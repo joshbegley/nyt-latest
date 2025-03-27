@@ -1,10 +1,26 @@
+**A net-front lesson with Canadiens' Juraj Slafkovský**\
+`Martin St. Louis believes Slafkovský can become one of the best net-front players in the NHL, but it will be a process getting there.`\
+https://nytimes.com/athletic/6234732/2025/03/27/canadiens-juraj-slafkovsky-net-front-power-play/
+
+**Flyers fire John Tortorella after 3 seasons, name Brad Shaw interim coach**\
+`Tortorella had been the Flyers' coach since 2022-23, going 97-107-33 with the rebuilding team.`\
+https://nytimes.com/athletic/6235254/2025/03/27/flyers-fire-john-tortorella/
+
+**Five remaining options for Browns to secure a starting QB for 2025 season**\
+`We're four weeks from the NFL Draft and Cleveland doesn't have a starting QB on the roster. What options are still available?`\
+https://nytimes.com/athletic/6234172/2025/03/27/browns-quarterback-options-kirk-cousins-shedeur-sanders/
+
+**NBA All-Surprise Team: Norm Powell, Evan Mobley and other bright spots**\
+`The All-Surprise Team is for players like Norm Powell, who, to use his words, were “put in a box."`\
+https://nytimes.com/athletic/6234244/2025/03/27/nba-biggest-surprises-norm-powell-evan-mobley/
+
 **Michigan, Matt Weiss sued again by 2 more former athletes alleging account hack**\
 `The federal suit was filed Wednesday on behalf of two unnamed athletes — a volleyball player and a soccer player. Both played from 2020-24.`\
 https://nytimes.com/athletic/6235184/2025/03/27/michigan-matt-weiss-lawsuits-account-hacking/
 
 **10,000 Federal Health Dept. Workers to Be Laid Off**\
-`The layoffs are part of a major restructuring at the health department, which now employs about 80,000 people.`\
-https://nytimes.com/2025/03/27/us/politics/10000-federal-health-dept-workers-to-be-laid-off.html
+`The layoffs are part of a major restructuring at the health department, which now employs about 82,000 people.`\
+https://nytimes.com/2025/03/27/us/politics/health-department-job-layoffs-rfk-jr.html
 
 **Premier League announce extra summer transfer window due to Club World Cup**\
 `A new window will open on June 1 before closing on June 10, five days before FIFA's revamped competition kicks off in Miami.`\
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/27/health/john-green-tuberculosis.html
 **MLB, cable companies reach deal to broadcast Twins games**\
 `The league came to agreements with Xfinity, DirecTV and FUBO in time for Opening Day.`\
 https://nytimes.com/athletic/6232664/2025/03/27/mlb-twins-games-broadcast-cable/
-
-**Deadly Wildfires Destroy Historic Landmarks in South Korea**\
-`Wildfires in South Korea have resulted in deaths, turned an ancient Buddhist temple into ashes and forced the evacuation of residents of a UNESCO World Heritage site.`\
-https://nytimes.com/video/world/asia/100000010075934/deadly-wildfires-destroy-historic-landmarks-in-south-korea.html
-
-**Germany Says Europe Must Respond to Trump’s Auto Tariffs**\
-`The United States is a crucial export market for the German auto industry, which is already suffering from weak sales and increased competition from China.`\
-https://nytimes.com/2025/03/27/business/germany-trump-auto-tariffs.html
-
-**Tourist Submarine Sinks Off Egypt, With at Least 4 People Dead**\
-`The vessel was said to be carrying more than 40 tourists near the Red Sea resort of Hurghada.`\
-https://nytimes.com/2025/03/27/world/middleeast/egypt-tourist-submarine-hurghada-red-sea.html
-
-**Baylor Scheierman stayed confident and now is 'coming into his own' for the Celtics**\
-`Boston didn't have much room for the rookie early on. But now he's making an impact and bringing "a different level of energy."`\
-https://nytimes.com/athletic/6234809/2025/03/27/baylor-scheierman-celtics-rookie/
 
