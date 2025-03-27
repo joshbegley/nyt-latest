@@ -1,3 +1,7 @@
+**Trump Asks Stefanik to Withdraw Bid to Be U.N. Ambassador**\
+`The president said he wanted the New York Republican to stay in Congress to bolster the party’s slim House margin and protect her seat.`\
+https://nytimes.com/2025/03/27/us/politics/stefanik-trump-cabinet.html
+
 **Top NFL Draft prospect Abdul Carter won't work out at Penn State pro day: Source**\
 `The edge rusher is viewed as one of the top prospects in the 2025 NFL Draft.`\
 https://nytimes.com/athletic/6236232/2025/03/27/abdul-carter-penn-state-pro-day-no-workout/
@@ -25,8 +29,4 @@ https://nytimes.com/2025/03/27/arts/leonard-polonsky-dead.html
 **Senate Overturns Rule Limiting Bank Overdraft Fees to $5**\
 `Lawmakers voted to invalidate a rule adopted last year by the Consumer Financial Protection Bureau. It now moves to the House.`\
 https://nytimes.com/2025/03/27/us/politics/overdraft-fees-limit-cfpb.html
-
-**Spitfires, 4 players, OHL, CHL named in sexual assault allegation from '84**\
-`A lawsuit alleges that a group sexual assault by four members of the Windsor Spitfires took place in 1984 in Tecumseh, Ontario.`\
-https://nytimes.com/athletic/6236064/2025/03/27/windsor-spitfires-alleged-sexual-assault-ohl/
 
