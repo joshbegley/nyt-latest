@@ -1,3 +1,15 @@
+**Rock Royalty Serenade Patti Smith at Carnegie Hall**\
+`Musicians and actors, including Bruce Springsteen, Michael Stipe and Scarlett Johansson, took the stage in tribute.`\
+https://nytimes.com/2025/03/27/style/patti-smith-carnegie-hall.html
+
+**Under Pressure, Psychology Accreditation Board Suspends Diversity Standards**\
+`As the Trump administration threatens to strip accrediting bodies of their power, many are scrambling to purge diversity requirements.`\
+https://nytimes.com/2025/03/27/health/psychology-dei-apa-trump.html
+
+**Bree and Chuck West on Art Imitating Life**\
+`The film and TV producers champion the importance of family, at home and in the media.`\
+https://nytimes.com/interactive/2025/03/28/realestate/bree-chuck-west-potomac-maryland-house.html
+
 **Selena’s Killer Is Denied Parole 30 Years After Murder**\
 `The Tejano music icon was fatally shot by the founder of her fan club, who has been serving a life sentence in Texas. On Thursday, a panel denied her first attempt at parole.`\
 https://nytimes.com/2025/03/27/us/selena-murder-yolanda-saldivar-parole.html

@@ -1,3 +1,15 @@
+**Rock Royalty Serenade Patti Smith at Carnegie Hall**\
+`Musicians and actors, including Bruce Springsteen, Michael Stipe and Scarlett Johansson, took the stage in tribute.`\
+https://nytimes.com/2025/03/27/style/patti-smith-carnegie-hall.html
+
+**Under Pressure, Psychology Accreditation Board Suspends Diversity Standards**\
+`As the Trump administration threatens to strip accrediting bodies of their power, many are scrambling to purge diversity requirements.`\
+https://nytimes.com/2025/03/27/health/psychology-dei-apa-trump.html
+
+**Bree and Chuck West on Art Imitating Life**\
+`The film and TV producers champion the importance of family, at home and in the media.`\
+https://nytimes.com/interactive/2025/03/28/realestate/bree-chuck-west-potomac-maryland-house.html
+
 **Selena’s Killer Is Denied Parole 30 Years After Murder**\
 `The Tejano music icon was fatally shot by the founder of her fan club, who has been serving a life sentence in Texas. On Thursday, a panel denied her first attempt at parole.`\
 https://nytimes.com/2025/03/27/us/selena-murder-yolanda-saldivar-parole.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/27/us/tesla-vandalism-arrest-las-vegas.html
 **Head of Amazon’s TV and Film Steps Down**\
 `Jennifer Salke held the position for seven years. The tech giant named separate chiefs for television and movies.`\
 https://nytimes.com/2025/03/27/business/media/jennifer-salke-amazon-tv-film.html
-
-**Kennedy Turns to a Discredited Vaccine Skeptic for Autism Study**\
-`David Geier has been hired as a senior data analyst at H.H.S. According to several people, he will examine any potential links between vaccines and autism that were debunked long ago.`\
-https://nytimes.com/2025/03/27/health/rfk-jr-autism-vaccines.html
-
-**Bobby Sherman, Former Teen Idol, Has Stage 4 Cancer, His Wife Says**\
-`The 81-year-old is known for his breakout role on the 1960s television series “Here Come the Brides” and hits that included “Little Woman.”`\
-https://nytimes.com/2025/03/27/arts/bobby-sherman-cancer.html
-
-**Faulty DNA Tests Were Used in Thousands of L.A. Criminal Cases, Sheriff Says**\
-`The manufacturer of the test kits notified the Los Angeles County Sheriff’s Department in August that many of the kits were likely defective, but it kept using them for several months.`\
-https://nytimes.com/2025/03/27/us/dna-faulty-test-los-angeles.html
 
