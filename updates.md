@@ -1,3 +1,15 @@
+**Jim Nantz circles 2036 Masters as hopeful retirement date**\
+`"I would like to work 50 Masters tournaments. That would be the thing that keeps me going. I want to work 50 Masters," Nantz said in 2016.`\
+https://nytimes.com/athletic/6235425/2025/03/27/jim-nantz-2036-masters-retirement-plan/
+
+**How to watch Aaron Judge and the New York Yankees during MLB's 2025 season**\
+`It's increasingly difficult to track all the streaming and broadcast options across an MLB season. Here's your guide to all things Yankees. `\
+https://nytimes.com/athletic/6234563/2025/03/27/new-york-yankees-2025-how-to-watch/
+
+**New York County Clerk Blocks Texas Court Filing Against Doctor Over Abortion Pills**\
+`The showdown catapults the interstate abortion wars to a new level.`\
+https://nytimes.com/2025/03/27/health/new-york-texas-abortion-shield-law.html
+
 **For 3 Years, They Quietly Dug Up One of the Biggest Treasures in England**\
 `Archaeologists can finally publicly discuss the Melsonby Hoard, a collection of Iron Age artifacts that they have been excavating since a metal detectorist found it in 2021.`\
 https://nytimes.com/2025/03/27/world/europe/melsonby-iron-age-find-uk.html
