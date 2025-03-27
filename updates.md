@@ -1,3 +1,15 @@
+**Las Vegas Man Faces State and U.S. Arson Charges in Torching of Tesla Vehicles**\
+`The police said the man spray-painted the word “resist” on the doors of a Tesla repair center and then used a firearm and Molotov cocktails to damage five vehicles.`\
+https://nytimes.com/2025/03/27/us/tesla-vandalism-arrest-las-vegas.html
+
+**Head of Amazon’s TV and Film Steps Down**\
+`Jennifer Salke held the position for seven years. The tech giant named separate chiefs for television and movies.`\
+https://nytimes.com/2025/03/27/business/media/jennifer-salke-amazon-tv-film.html
+
+**Kennedy Turns to a Discredited Vaccine Skeptic for Autism Study**\
+`David Geier has been hired as a senior data analyst at H.H.S. According to several people, he will examine any potential links between vaccines and autism that were debunked long ago.`\
+https://nytimes.com/2025/03/27/health/rfk-jr-autism-vaccines.html
+
 **Bobby Sherman, Former Teen Idol, Has Stage 4 Cancer, His Wife Says**\
 `The 81-year-old is known for his breakout role on the 1960s television series “Here Come the Brides” and hits that included “Little Woman.”`\
 https://nytimes.com/2025/03/27/arts/bobby-sherman-cancer.html
