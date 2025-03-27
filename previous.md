@@ -1,3 +1,7 @@
+**How Thatcher Demko led Canucks to soundly defeat Islanders: 3 takeaways**\
+`Vancouver pulled out a 5-2 win because Demko was brilliant and the best player on the ice on Long Island.`\
+https://nytimes.com/athletic/6234400/2025/03/26/canucks-islanders-thatcher-demko-takeaways/
+
 **Trump Floats Chinese Tariff Cuts in Exchange for TikTok Deal**\
 `The social media app could shut down on April 5 unless it is sold to a new non-Chinese owner. Mr. Trump issued an order delaying the enforcement of a federal ban, and told reporters he could extend that delay, if necessary.`\
 https://nytimes.com/2025/03/26/business/trump-tariffs-tiktok-china.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/26/business/cfpb-repay-mortgage-lawsuit.html
 **Appeals Court Keeps Order Barring Federal Funding Freezes in Place**\
 `The ruling let stand a district court judge’s order that had blocked agencies from categorically pausing federal funds based on guidance from the Office of Management and Budget.`\
 https://nytimes.com/2025/03/26/us/politics/appeals-court-funding-freezes.html
-
-**Ahead of Opening Day, Cubs will be relying early on Brad Keller and Colin Rea**\
-`Plus, Nico Hoerner will be ready to start against the Diamondbacks, though Chicago's final lineup remains to be seen.`\
-https://nytimes.com/athletic/6234179/2025/03/26/cubs-roster-analysis-brad-keller-colin-rea/
 

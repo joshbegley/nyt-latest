@@ -1,3 +1,7 @@
+**How Thatcher Demko led Canucks to soundly defeat Islanders: 3 takeaways**\
+`Vancouver pulled out a 5-2 win because Demko was brilliant and the best player on the ice on Long Island.`\
+https://nytimes.com/athletic/6234400/2025/03/26/canucks-islanders-thatcher-demko-takeaways/
+
 **Trump Floats Chinese Tariff Cuts in Exchange for TikTok Deal**\
 `The social media app could shut down on April 5 unless it is sold to a new non-Chinese owner. Mr. Trump issued an order delaying the enforcement of a federal ban, and told reporters he could extend that delay, if necessary.`\
 https://nytimes.com/2025/03/26/business/trump-tariffs-tiktok-china.html
