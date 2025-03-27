@@ -1,3 +1,7 @@
+**Selena’s Killer Is Denied Parole 30 Years After Murder**\
+`The Tejano music icon was fatally shot by the founder of her fan club, who has been serving a life sentence in Texas. On Thursday, a panel denied her first attempt at parole.`\
+https://nytimes.com/2025/03/27/us/selena-murder-yolanda-saldivar-parole.html
+
 **For Europe, the Nightmare Isn’t U.S. Contempt. It’s U.S. Incompetence.**\
 `Europeans are used to the Trump administration’s scorn by now, but the Signal chat’s lack of seriousness, including its substance, was shocking.`\
 https://nytimes.com/live/2025/03/24/opinion/thepoint/signal-chat-european-allies-houthis
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/27/arts/bobby-sherman-cancer.html
 **Faulty DNA Tests Were Used in Thousands of L.A. Criminal Cases, Sheriff Says**\
 `The manufacturer of the test kits notified the Los Angeles County Sheriff’s Department in August that many of the kits were likely defective, but it kept using them for several months.`\
 https://nytimes.com/2025/03/27/us/dna-faulty-test-los-angeles.html
-
-**University of Michigan to Scuttle Its Flagship D.E.I. Program**\
-`Michigan, once at the forefront of school diversity efforts, is rapidly changing course amid campus pushback and broad scrutiny by the Trump administration.`\
-https://nytimes.com/2025/03/27/education/university-of-michigan-dei.html
 

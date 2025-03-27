@@ -1,3 +1,7 @@
+**Selena’s Killer Is Denied Parole 30 Years After Murder**\
+`The Tejano music icon was fatally shot by the founder of her fan club, who has been serving a life sentence in Texas. On Thursday, a panel denied her first attempt at parole.`\
+https://nytimes.com/2025/03/27/us/selena-murder-yolanda-saldivar-parole.html
+
 **For Europe, the Nightmare Isn’t U.S. Contempt. It’s U.S. Incompetence.**\
 `Europeans are used to the Trump administration’s scorn by now, but the Signal chat’s lack of seriousness, including its substance, was shocking.`\
 https://nytimes.com/live/2025/03/24/opinion/thepoint/signal-chat-european-allies-houthis
