@@ -1,3 +1,15 @@
+**The 3.30.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/03/27/the-33025-issue
+
+**ITF and Piqué's Kosmos end Davis Cup legal dispute**\
+`Piqué's company had taken the ITF to the Court of Arbitration for Sport over the termination of its $3billion deal for the event.`\
+https://nytimes.com/athletic/6235011/2025/03/27/davis-cup-kosmos-gerard-pique-contract-cas/
+
+**The Athletic FC: Fallout from Davies' ACL injury, Brazil target Ancelotti, CWC's mammoth prize**\
+`Today in TAFC: Davies' ACL injury causes backlash from agent, Club World Cup's $125m prize for winners, Brazil turn attention to Ancelotti.`\
+https://nytimes.com/athletic/6234907/2025/03/27/alphonso-davies-acl-ancelotti-brazil/
+
 **Rescuers Race to Save People and Treasures From South Korea Wildfires**\
 `The country’s largest blaze on record has left 27 dead and destroyed heritage sites, including two 1,000-year-old temples.`\
 https://nytimes.com/2025/03/27/world/asia/south-korea-wildfires-heritage.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6227116/2025/03/27/cincinnati-reds-mlb-opening-day/
 **Last year, the Guardians could taste the World Series. Now, they’re ravenous to end a drought**\
 `Catcher Austin Hedges put it like this: "Last year was for convincing. Now there’s no convincing. We know exactly how good we are."`\
 https://nytimes.com/athletic/6214488/2025/03/27/cleveland-guardians-mlb-opening-day/
-
-**Q&A with Cubs president Jed Hoyer, Part 2: Expecting young players to take 'step forward'**\
-`Matt Shaw, Pete Crow-Armstrong and Michael Busch have key roles this season. "I probably look at it as upside, not volatility," Hoyer said.`\
-https://nytimes.com/athletic/6228666/2025/03/27/chicago-cubs-president-jed-hoyer-interview-part-2/
-
-**Greenberg: White Sox players embracing opportunity, just don't count on playoff share**\
-`For many journeyman ballplayers hanging on to their dream, the South Side of Chicago was a hot winter destination.`\
-https://nytimes.com/athletic/6231191/2025/03/27/chicago-white-sox-season-outlook-column/
-
-**Wheeler mailbag: 2025 NHL Draft steals? Schaefer vs. Misa? Hagens' slip?**\
-`Plus, the prospects from this class with a chance to play in the NHL next year and how this draft stacks up historically.`\
-https://nytimes.com/athletic/6232549/2025/03/27/2025-nhl-draft-schaefer-misa-hagens-mailbag/
 
