@@ -1,4 +1,4 @@
-**Rattled by Trump, America’s Allies Shift to Defense Mode**\
+**Rattled by Trump, America’s Allies Shift to Economic Defense Mode**\
 `The new auto tariffs are straining relations with U.S. allies and deepening doubts about America’s reliability as a partner.`\
 https://nytimes.com/2025/03/27/world/asia/tariffs-us-allies-trump.html
 
