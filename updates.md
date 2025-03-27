@@ -1,3 +1,11 @@
+**Turkey Deports BBC Reporter Who Covered Mass Protests**\
+`Mark Lowen was detained in Istanbul after reporting on unrest prompted by the arrest of a rival of President Recep Tayyip Erdogan, the broadcaster said.`\
+https://nytimes.com/2025/03/27/world/europe/turkey-protests-bbc-reporter-lowen-deported.html
+
+**Musk targeted FEMA. Storm-battered communities are paying a price.**\
+`By Christopher Flavelle, Eduardo Medina and Luis Ferré-Sadurní`\
+https://nytimes.com/live/2025/03/27/us/trump-news/musk-targeted-fema-storm-battered-communities-are-paying-a-price
+
 **Liga F plans to introduce 'cost-effective' VAR Football Video Support**\
 `The Spanish Football Federation (RFEF) has announced plans to implement FVS into Liga F for the 2025-26 season.`\
 https://nytimes.com/athletic/6235369/2025/03/27/liga-f-football-video-support/

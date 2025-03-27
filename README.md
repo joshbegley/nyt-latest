@@ -1,3 +1,7 @@
+**O'Riley close to Brighton return**\
+`The midfielder has not featured for Brighton since sustaining a knee injury against Ipswich in mid-January.`\
+https://nytimes.com/athletic/6235495/2025/03/27/matt-o-riley-brighton-injury-return/
+
 **Turkey Deports BBC Reporter Who Covered Mass Protests**\
 `Mark Lowen was detained in Istanbul after reporting on unrest prompted by the arrest of a rival of President Recep Tayyip Erdogan, the broadcaster said.`\
 https://nytimes.com/2025/03/27/world/europe/turkey-protests-bbc-reporter-lowen-deported.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/03/27/business/trump-tariffs
 **This Progressive Congressman Wants to Take On JD Vance**\
 `Ro Khanna, who represents Silicon Valley, sees the vice president —  a likely heir to President Trump’s political movement — as a unique threat to the constitutional order.`\
 https://nytimes.com/2025/03/27/us/politics/ro-khanna-jd-vance-2028.html
-
-**E.P.A. Offers a Way to Avoid Clean-Air Rules: Send an Email**\
-`Invoking an obscure provision, it said power plants and others could write to ask for exemptions to mercury, arsenic and other restrictions and that “the president will make a decision.”`\
-https://nytimes.com/2025/03/27/climate/epa-air-pollution-exemption-mercury-coal-ash.html
 
