@@ -1,3 +1,15 @@
+**Olmo suffers groin injury as Barcelona beat Osasuna 3-0 in La Liga return**\
+`The 26-year-old scored Barcelona’s second goal from the penalty spot but went down injured soon after and was unable to continue.`\
+https://nytimes.com/athletic/6236897/2025/03/27/barcelona-osasuna-la-liga-dani-olmo/
+
+**Global Sea Ice Hits a New Low**\
+`The data comes after researchers reported that the past 10 years have been the 10 hottest on record.`\
+https://nytimes.com/2025/03/27/climate/global-sea-ice-record-low.html
+
+**Top Senate Republican Protests Trump Bid to Withhold Spending**\
+`Senator Susan Collins of Maine, the chairwoman of the Appropriations Committee, joined top Democrats in insisting that the president does not have the power to “pick and choose” what to fund.`\
+https://nytimes.com/2025/03/27/us/politics/susan-collins-appropriations-trump.html
+
 **Adam Silver admits NBA All-Star format was 'a miss'; gives no timeline on expansion**\
 `Now that the NBA is exploring launching a new European league, could expansion be next? `\
 https://nytimes.com/athletic/6236626/2025/03/27/adam-silver-board-of-governors-all-star-game-expansion-nba/

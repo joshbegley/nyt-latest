@@ -1,3 +1,15 @@
+**Olmo suffers groin injury as Barcelona beat Osasuna 3-0 in La Liga return**\
+`The 26-year-old scored Barcelona’s second goal from the penalty spot but went down injured soon after and was unable to continue.`\
+https://nytimes.com/athletic/6236897/2025/03/27/barcelona-osasuna-la-liga-dani-olmo/
+
+**Global Sea Ice Hits a New Low**\
+`The data comes after researchers reported that the past 10 years have been the 10 hottest on record.`\
+https://nytimes.com/2025/03/27/climate/global-sea-ice-record-low.html
+
+**Top Senate Republican Protests Trump Bid to Withhold Spending**\
+`Senator Susan Collins of Maine, the chairwoman of the Appropriations Committee, joined top Democrats in insisting that the president does not have the power to “pick and choose” what to fund.`\
+https://nytimes.com/2025/03/27/us/politics/susan-collins-appropriations-trump.html
+
 **Adam Silver admits NBA All-Star format was 'a miss'; gives no timeline on expansion**\
 `Now that the NBA is exploring launching a new European league, could expansion be next? `\
 https://nytimes.com/athletic/6236626/2025/03/27/adam-silver-board-of-governors-all-star-game-expansion-nba/
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2025/03/28/realestate/bree-chuck-west-potomac-ma
 **Selena’s Killer Is Denied Parole 30 Years After Murder**\
 `The Tejano music icon was fatally shot by the founder of her fan club, who has been serving a life sentence in Texas. On Thursday, a panel denied her first attempt at parole.`\
 https://nytimes.com/2025/03/27/us/selena-murder-yolanda-saldivar-parole.html
-
-**For Europe, the Nightmare Isn’t U.S. Contempt. It’s U.S. Incompetence.**\
-`Europeans are used to the Trump administration’s scorn by now, but the Signal chat’s lack of seriousness, including its substance, was shocking.`\
-https://nytimes.com/live/2025/03/24/opinion/thepoint/signal-chat-european-allies-houthis
-
-**Judge Moves to Prevent Hegseth, Waltz and Others From Deleting Houthi Texts**\
-`Judge James E. Boasberg said top officials, including the defense secretary, the national security adviser and the secretary of state, must preserve the messages they exchanged.`\
-https://nytimes.com/2025/03/27/us/politics/signal-chat-houthis-court-decision.html
-
-**Chelsea beat Manchester City 3-0 to reach Champions League semi-finals**\
-`Chelsea came from 2-0 down on aggregate to win the tie 3-2.`\
-https://nytimes.com/athletic/6236813/2025/03/27/chelsea-manchester-city-womens-champions-league/
 
