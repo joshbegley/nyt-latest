@@ -1,4 +1,4 @@
-**Top NFL Draft prospect Abdul Carter won't workout at Penn State pro day: Source**\
+**Top NFL Draft prospect Abdul Carter won't work out at Penn State pro day: Source**\
 `The edge rusher is viewed as one of the top prospects in the 2025 NFL Draft.`\
 https://nytimes.com/athletic/6236232/2025/03/27/abdul-carter-penn-state-pro-day-no-workout/
 
