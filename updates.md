@@ -1,3 +1,15 @@
+**Tesla Finds a Chef for Its Retro-Futuristic Diner in Los Angeles**\
+`Eric Greenspan, a developer of delivery-only restaurants, is reported to be the choice as the company faces a wave of political blowback.`\
+https://nytimes.com/2025/03/27/dining/elon-musk-tesla-diner-chef.html
+
+**Liam Hendriks lands on 15-day IL with elbow inflammation: 'Hopefully it’s something minor'**\
+`Hendriks' velocity dipped in his last spring outing and he didn't bounce back as quickly as expected. `\
+https://nytimes.com/athletic/6236433/2025/03/27/red-sox-liam-hendriks-elbow-inflammation/
+
+**Trump’s Tariffs Will Raise Car Prices, but It’s Too Soon to Know When**\
+`Experts say the 25 percent import fee will make many cars more expensive, but it is not clear when, by how much or which models.`\
+https://nytimes.com/2025/03/27/business/economy/trump-auto-tariffs-car-prices.html
+
 **A Sleep Journalist’s Secret Weapons for Restless Nights**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/wc-how-to-sleep-better
