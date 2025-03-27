@@ -1,3 +1,11 @@
+**Trump Takes Government Secrecy Seriously. But Only When It Suits Him.**\
+`In the Trump era, the definition of an official secret depends on whatever works best for the president.`\
+https://nytimes.com/2025/03/27/us/politics/trump-signal-leak-venezuela-deportations.html
+
+**Clive Revill, Original Voice of Emperor Palpatine in ‘Star Wars,’ Dies at 94**\
+`His voice can be heard for only a minute in “The Empire Strikes Back,” but it provided the first draft of a character that would be a mainstay of the franchise for decades.`\
+https://nytimes.com/2025/03/27/movies/clive-revill-star-wars-dead.html
+
 **Rock Royalty Serenade Patti Smith at Carnegie Hall**\
 `Musicians and actors, including Bruce Springsteen, Michael Stipe and Scarlett Johansson, took the stage in tribute.`\
 https://nytimes.com/2025/03/27/style/patti-smith-carnegie-hall.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6236813/2025/03/27/chelsea-manchester-city-womens-c
 **U.S. Health Agency Announced Job Cuts**\
 `Also, Canada’s leader vowed to retaliate against U.S. auto tariffs. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/03/27/briefing/health-agency-job-cuts-canada-us-tariffs.html
-
-**Las Vegas Man Faces State and U.S. Arson Charges in Torching of Tesla Vehicles**\
-`The police said the man spray-painted the word “resist” on the doors of a Tesla repair center and then used a firearm and Molotov cocktails to damage five vehicles.`\
-https://nytimes.com/2025/03/27/us/tesla-vandalism-arrest-las-vegas.html
-
-**Head of Amazon’s TV and Film Steps Down**\
-`Jennifer Salke held the position for seven years. The tech giant named separate chiefs for television and movies.`\
-https://nytimes.com/2025/03/27/business/media/jennifer-salke-amazon-tv-film.html
 

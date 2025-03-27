@@ -1,3 +1,7 @@
+**Adam Silver admits NBA All-Star format was 'a miss'; gives no timeline on expansion**\
+`Now that the NBA is exploring launching a new European league, could expansion be next? `\
+https://nytimes.com/athletic/6236626/2025/03/27/adam-silver-board-of-governors-all-star-game-expansion-nba/
+
 **Trump Takes Government Secrecy Seriously. But Only When It Suits Him.**\
 `In the Trump era, the definition of an official secret depends on whatever works best for the president.`\
 https://nytimes.com/2025/03/27/us/politics/trump-signal-leak-venezuela-deportations.html
@@ -7,7 +11,7 @@ https://nytimes.com/2025/03/27/us/politics/trump-signal-leak-venezuela-deportati
 https://nytimes.com/2025/03/27/movies/clive-revill-star-wars-dead.html
 
 **Rock Royalty Serenade Patti Smith at Carnegie Hall**\
-`Musicians and actors, including Bruce Springsteen, Michael Stipe and Scarlett Johansson, took the stage in tribute.`\
+`Celebrated artists and actors, including Bruce Springsteen, Michael Stipe and Scarlett Johansson, took the stage in tribute.`\
 https://nytimes.com/2025/03/27/style/patti-smith-carnegie-hall.html
 
 **Under Pressure, Psychology Accreditation Board Suspends Diversity Standards**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/27/us/politics/signal-chat-houthis-court-decision.ht
 **Chelsea beat Manchester City 3-0 to reach Champions League semi-finals**\
 `Chelsea came from 2-0 down on aggregate to win the tie 3-2.`\
 https://nytimes.com/athletic/6236813/2025/03/27/chelsea-manchester-city-womens-champions-league/
-
-**U.S. Health Agency Announced Job Cuts**\
-`Also, Canada’s leader vowed to retaliate against U.S. auto tariffs. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2025/03/27/briefing/health-agency-job-cuts-canada-us-tariffs.html
 

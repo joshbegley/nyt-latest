@@ -1,3 +1,11 @@
+**Trump Takes Government Secrecy Seriously. But Only When It Suits Him.**\
+`In the Trump era, the definition of an official secret depends on whatever works best for the president.`\
+https://nytimes.com/2025/03/27/us/politics/trump-signal-leak-venezuela-deportations.html
+
+**Clive Revill, Original Voice of Emperor Palpatine in ‘Star Wars,’ Dies at 94**\
+`His voice can be heard for only a minute in “The Empire Strikes Back,” but it provided the first draft of a character that would be a mainstay of the franchise for decades.`\
+https://nytimes.com/2025/03/27/movies/clive-revill-star-wars-dead.html
+
 **Rock Royalty Serenade Patti Smith at Carnegie Hall**\
 `Musicians and actors, including Bruce Springsteen, Michael Stipe and Scarlett Johansson, took the stage in tribute.`\
 https://nytimes.com/2025/03/27/style/patti-smith-carnegie-hall.html
