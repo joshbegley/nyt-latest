@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6234732/2025/03/27/canadiens-juraj-slafkovsky-net-front-power-play/
 
 **Flyers fire John Tortorella after 3 seasons, name Brad Shaw interim coach**\
-`The Philadelphia Flyers announced Thursday that they have relieved John Tortorella of his duties as head coach, naming Brad Shaw his replacement on an interim basis.`\
+`Tortorella had been the Flyers' coach since 2022-23, going 97-107-33 with the rebuilding team.`\
 https://nytimes.com/athletic/6235254/2025/03/27/flyers-fire-john-tortorella/
 
 **Five remaining options for Browns to secure a starting QB for 2025 season**\
@@ -19,8 +19,8 @@ https://nytimes.com/athletic/6234244/2025/03/27/nba-biggest-surprises-norm-powel
 https://nytimes.com/athletic/6235184/2025/03/27/michigan-matt-weiss-lawsuits-account-hacking/
 
 **10,000 Federal Health Dept. Workers to Be Laid Off**\
-`The layoffs are part of a major restructuring at the health department, which now employs about 80,000 people.`\
-https://nytimes.com/2025/03/27/us/politics/10000-federal-health-dept-workers-to-be-laid-off.html
+`The layoffs are part of a major restructuring at the health department, which now employs about 82,000 people.`\
+https://nytimes.com/2025/03/27/us/politics/health-department-job-layoffs-rfk-jr.html
 
 **Premier League announce extra summer transfer window due to Club World Cup**\
 `A new window will open on June 1 before closing on June 10, five days before FIFA's revamped competition kicks off in Miami.`\
