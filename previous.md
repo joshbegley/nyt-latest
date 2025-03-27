@@ -1,3 +1,7 @@
+**Calmness, resilience and aggressive in-game decisions - how Arsenal stunned Real Madrid**\
+`Renee Slegers' side set up a Champions League semi-final meeting with Lyon after being 45 minutes away from elimination`\
+https://nytimes.com/athletic/6234257/2025/03/27/arsenal-women-real-madrid-champions-league-2/
+
 **A Baby and Pointing Fingers**\
 `What do you think this image is communicating?`\
 https://nytimes.com/2025/03/27/learning/a-baby-and-pointing-fingers.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6234768/2025/03/27/boston-bruins-losing-streak-anah
 **Word of the Day: quizzical**\
 `This word has appeared in 21 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/03/27/learning/word-of-the-day-quizzical.html
-
-**West Ham squad audit: Assessing the future of every member of Graham Potter's squad**\
-`The Athletic runs the rule over every member of the West Ham squad`\
-https://nytimes.com/athletic/6226373/2025/03/27/west-ham-squad-audit-graham-potter/
 

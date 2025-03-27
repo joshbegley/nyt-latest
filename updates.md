@@ -1,3 +1,7 @@
+**Calmness, resilience and aggressive in-game decisions - how Arsenal stunned Real Madrid**\
+`Renee Slegers' side set up a Champions League semi-final meeting with Lyon after being 45 minutes away from elimination`\
+https://nytimes.com/athletic/6234257/2025/03/27/arsenal-women-real-madrid-champions-league-2/
+
 **A Baby and Pointing Fingers**\
 `What do you think this image is communicating?`\
 https://nytimes.com/2025/03/27/learning/a-baby-and-pointing-fingers.html
