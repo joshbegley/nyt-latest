@@ -1,3 +1,11 @@
+**Auburn basketball’s first family: ‘Tears, work, love’ and an apprentice coming into his own**\
+`There is no official coach-in-waiting plan in place, but it's clear that Bruce would like Steven to be Auburn's next head coach. `\
+https://nytimes.com/athletic/6233880/2025/03/27/auburn-basketball-steven-pearl-bruce-pearl/
+
+**Here’s the latest.**\
+`By River Akira Davis, Emiliano Rodríguez Mega, Ian Austen and Jeanna Smialek`\
+https://nytimes.com/live/2025/03/27/business/trump-tariffs/heres-the-latest
+
 **Rudiger, Mbappe, Ceballos, Vinicius Jr investigated for alleged indecent conduct**\
 `The players are alleged to have made gestures towards Atletico supporters following Madrid's penalty shootout victory over their rivals.`\
 https://nytimes.com/athletic/6235676/2025/03/27/real-madrid-uefa-investigation-atletico/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/27/opinion/trump-signal-cabinet-hegseth.html
 **Hollywood Has Not Recovered Jobs Lost During Strikes, Report Says**\
 `Many entertainment industry workers have been jobless for months, leading state officials to consider increasing subsidies to keep film and television production in California.`\
 https://nytimes.com/2025/03/27/movies/hollywood-jobs-lost-strikes.html
-
-**PS21, a Hub for Forward-Looking Art Upstate, Names a New Director**\
-`Vallejo Gantner, a longtime arts administrator in New York City, has taken over as artistic and executive director at PS21 in Chatham, N.Y.`\
-https://nytimes.com/2025/03/27/arts/dance/ps21-vallejo-gantner-director.html
-
-**How Columbia Touched Off a Debate Over Public Space**\
-`Columbia University’s gates, closed in 2023 in anticipation of demonstrations over the war in Gaza, are at the center of a lawsuit.`\
-https://nytimes.com/video/realestate/100000010069306/how-columbia-touched-off-a-debate-over-public-space.html
 
