@@ -1,4 +1,12 @@
-**ESPN announces L.A. edition of 'SportsCenter' will relocate to Bristol**\
+**Corrections: March 27, 2025**\
+`Corrections that appeared in print on Thursday, March 27, 2025.`\
+https://nytimes.com/2025/03/26/pageoneplus/corrections-march-27-2025.html
+
+**LeShon Johnson, Ex-N.F.L. Running Back, Ran Major Dogfighting Kennel, U.S. Says**\
+`Federal investigators say that they seized 190 pit-bull-type dogs from the former player, who previously pleaded guilty to state dogfighting charges in 2004.`\
+https://nytimes.com/2025/03/26/us/eshon-johnson-dogfighting.html
+
+**ESPN to end L.A. edition of 'SportsCenter,' relocating production to Bristol**\
 `The network says the move will impact 35 of its 229 L.A. employees, who have the option to move to Connecticut.`\
 https://nytimes.com/athletic/6234259/2025/03/26/espn-sportscenter-l-a-relocating-to-bristol/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/26/us/ice-detains-doctoral-student-university-alabam
 **Trump Administration Deflects Blame for Leak at Every Turn**\
 `President Trump and other officials have given shifting, varied, implausible and sometimes conflicting explanations for how highly sensitive military information was shared in a group chat.`\
 https://nytimes.com/2025/03/26/us/politics/signal-chat-military-plan-leak-trump.html
-
-**Judge Extends Pause on Firings of Probationary Workers for 5 Days**\
-`The judge said he needed more time to determine whether a longer-term halt should apply to the entire country or be restricted to certain states while the case proceeds.`\
-https://nytimes.com/2025/03/26/us/politics/judge-pause-firings.html
-
-**What the data from MLB’s spring robot-umpire test says about baseball's future**\
-`Was the Automated Ball-Strike (ABS) system novel? Yes, though maybe not to Max Scherzer. Effective? According to the data, also, yes.`\
-https://nytimes.com/athletic/6234094/2025/03/26/major-league-baseball-abs-testing-2025/
 
