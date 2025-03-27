@@ -1,40 +1,40 @@
-**Helping Digital Natives Overcome Digital Naïveté: Four Steps to Media Literacy**\
-`Advice from an English teacher in Massachusetts for guiding teenagers to think critically but not cynically about the information they consume.`\
-https://nytimes.com/2025/03/27/learning/helping-digital-natives-overcome-digital-naivete-four-steps-to-media-literacy.html
+**Dozens of Engaging Ways to Make Media Literacy Meaningful to Teenagers**\
+`This collection of interactive exercises uses Times resources to help young people find the news that matters to them, understand how it’s made, connect it to their lives — and make media of their own.`\
+https://nytimes.com/2025/03/27/learning/media-literacy-teenagers.html
 
-**The 3.30.25 Issue**\
-``\
-https://nytimes.com/issue/magazine/2025/03/27/the-33025-issue
+**How Important Is a Free Press to Our Democracy? Is It Under Threat?**\
+`The new Trump administration has attacked the news media in ways that are markedly different from those of previous presidents. Have you been following this news?`\
+https://nytimes.com/2025/03/27/learning/how-important-is-a-free-press-to-our-democracy-is-it-under-threat.html
 
-**ITF and Piqué's Kosmos end Davis Cup legal dispute**\
-`Piqué's company had taken the ITF to the Court of Arbitration for Sport over the termination of its $3billion deal for the event.`\
-https://nytimes.com/athletic/6235011/2025/03/27/davis-cup-kosmos-gerard-pique-contract-cas/
+**Meet Doug Berns, the 'Weird Al' Yankovic of Knicks fandom**\
+`Doug Berns has gone viral making Knicks parody songs and videos. The lifelong musician and basketball lover has found his niche.`\
+https://nytimes.com/athletic/6226836/2025/03/27/ny-knicks-fan-weird-al-yankovic-doug-berns/
 
-**The Athletic FC: Fallout from Davies' ACL injury, Brazil target Ancelotti, CWC's mammoth prize**\
-`Today in TAFC: Davies' ACL injury causes backlash from agent, Club World Cup's $125m prize for winners, Brazil turn attention to Ancelotti.`\
-https://nytimes.com/athletic/6234907/2025/03/27/alphonso-davies-acl-ancelotti-brazil/
+**Chargers mock NFL Draft 2.0: Offensive weapons in the first 2 rounds**\
+`Colston Loveland's connection with Jim Harbaugh is obvious, but he also would help fill a big role on the Chargers.`\
+https://nytimes.com/athletic/6233977/2025/03/27/chargers-mock-nfl-draft-colston-loveland/
 
-**Rescuers Race to Save People and Treasures From South Korea Wildfires**\
-`The country’s largest blaze on record has left 27 dead and destroyed heritage sites, including two 1,000-year-old temples.`\
-https://nytimes.com/2025/03/27/world/asia/south-korea-wildfires-heritage.html
+**How the Blue Jackets landed a 'main target' college free agent, who headed straight to the NHL**\
+`Jack Williams, a center from Northeastern, has received high praise from Rick Nash.`\
+https://nytimes.com/athletic/6234027/2025/03/27/blue-jackets-jack-williams-college/
 
-**How the Twins rebounded from a season-ending 's--- show' and came together for 2025**\
-`After months of pondering their season-ending collapse, the Twins knew they had to adapt. They decided they needed to work together more. `\
-https://nytimes.com/athletic/6234116/2025/03/27/minnesota-twins-2024-collapse-2025-season/
+**Staple: Should the Rangers fire Peter Laviolette? The case for and against**\
+`It's been a very strange season at Madison Square Garden. How much of that is the coach's fault?`\
+https://nytimes.com/athletic/6232668/2025/03/27/rangers-peter-laviolette-coach-drury/
 
-**NBA Awards Watch: Wrench has been thrown into Defensive Player of the Year race**\
-`With Victor Wembanyama ineligible, the DPOY competition may come down to history vs. stats vs. who actually deserves it.`\
-https://nytimes.com/athletic/6231627/2025/03/27/nba-awards-defensive-player-of-the-year-odds-draymond-green/
+**Can the Mountain West fend the Pac-12 off for good?**\
+`What is the state of the Mountain West right now? Commissioner Gloria Nevarez feels pretty good, all things considered.`\
+https://nytimes.com/athletic/6234340/2025/03/27/mountain-west-pac-12-conference-realignment/
 
-**Men’s March Madness 2025: What to watch for on Day 5**\
-`Sixteen teams have navigated within reach of the Final Four. Who is in the best position to advance? We break it down.`\
-https://nytimes.com/athletic/6227584/2025/03/27/march-madness-2025-what-to-watch-day-5-sweet-16/
+**What it's like to watch a Blues game through the eyes of Cardinals players**\
+`Cardinals players Brendan Donovan and Alec Burleson attended the Blues' 6-1 win over Montreal two days before the MLB season begins.`\
+https://nytimes.com/athletic/6231056/2025/03/27/st-louis-blues-cardinals-brendan-donovan-alec-burleson/
 
-**NHL 2024-25 attendance check-in: Almost league-wide gains as season nears its finale**\
-`With the Stanley Cup playoffs fast approaching, teams are filling seats more than ever — with some surprising exceptions.`\
-https://nytimes.com/athletic/6233825/2025/03/27/nhl-attendance-tracking-analysis-jets-penguins/
+**Tariff Sticker Shock**\
+`President Trump’s vow to hit the global automotive industry with new duties risks raising inflation and inflaming trade-war tensions.`\
+https://nytimes.com/2025/03/27/business/dealbook/trump-auto-tariffs.html
 
-**Ready to level up, the 2025 Reds are bolstering their young core with veteran experience**\
-`Cincinnati's young core will be joined by a group of playoff veterans who the Reds hope will help push the team over the top this season.`\
-https://nytimes.com/athletic/6227116/2025/03/27/cincinnati-reds-mlb-opening-day/
+**The best-case scenario for the 2025 Giants**\
+`Opening Day is a day to dream. For one day, all happy thoughts are legal. So go ahead and dream on the 2025 Giants making the postseason.`\
+https://nytimes.com/athletic/6233874/2025/03/27/sf-giants-2025-best-case-scenario/
 
