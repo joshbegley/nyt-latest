@@ -1,3 +1,11 @@
+**Tyler O'Neill hits sixth straight Opening Day homer, extending MLB record**\
+`O'Neill's latest blast came with his third different team, as his Baltimore Orioles faced the Toronto Blue Jays on Thursday.`\
+https://nytimes.com/athletic/6232387/2025/03/27/tyler-oneill-opening-day-home-run-record/
+
+**With Car Tariffs, Trump Puts His Unorthodox Trade Theory to the Test**\
+`With sweeping auto levies, the president is putting his beliefs about tariffs into practice on the global economy. Economists aren’t optimistic.`\
+https://nytimes.com/2025/03/27/us/politics/trump-car-tariffs-trade-strategy.html
+
 **The Runners-Up in Our Second Annual ‘Where We Are’ Photo Essay Contest**\
 `A look at nine fascinating communities from around the world, as documented by teenagers there.`\
 https://nytimes.com/2025/03/27/learning/the-runners-up-in-our-second-annual-where-we-are-photo-essay-contest.html
@@ -21,12 +29,4 @@ https://nytimes.com/athletic/6236183/2025/03/27/blue-jays-united-states-national
 **California Man Sentenced in Scheme to Steal Pricey Violins and Rob a Bank**\
 `Prosecutors said that the man persuaded music stores to lend him violins worth tens of thousands of dollars on a trial basis, which he did not return.`\
 https://nytimes.com/2025/03/27/arts/stolen-violin-scheme.html
-
-**Four Tesla Dealers Said They Sold 8,653 Cars in 3 Days in Canada. Did They?**\
-`The sales numbers provided by the company-owned shops allowed them to claim tens of millions in government rebates. Now those numbers are under scrutiny.`\
-https://nytimes.com/2025/03/27/world/canada/tesla-canada-sales-musk.html
-
-**Three Restaurants Where Big Groups Are No Problem**\
-`We’re talking indoor pavilions, prix fixe deals and informal hangs.`\
-https://nytimes.com/2025/03/27/dining/three-restaurants-where-big-groups-are-no-problem.html
 

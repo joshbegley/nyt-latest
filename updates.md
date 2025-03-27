@@ -1,3 +1,15 @@
+**The Runners-Up in Our Second Annual ‘Where We Are’ Photo Essay Contest**\
+`A look at nine fascinating communities from around the world, as documented by teenagers there.`\
+https://nytimes.com/2025/03/27/learning/the-runners-up-in-our-second-annual-where-we-are-photo-essay-contest.html
+
+**‘I Am Free’: Hip-Hop and the Power of Resistance in Dharavi**\
+`Gauri Gupta, 17, documents a refuge for young dreamers in a Mumbai slum.`\
+https://nytimes.com/2025/03/27/learning/i-am-free-hip-hop-and-the-power-of-resistance-in-dharavi.html
+
+**The Winners of Our Second Annual ‘Where We Are’ Photo Essay Contest**\
+`From 619 teen entries, we are featuring 10 extraordinary pieces. Take a look.`\
+https://nytimes.com/2025/03/27/learning/the-winners-of-our-second-annual-where-we-are-photo-essay-contest.html
+
 **Rubio Vows ‘Consequences’ if Venezuela Tries Seizing Territory From Guyana**\
 `As ExxonMobil produces oil offshore in Guyana, Venezuela has asserted claims to a large region of the country, recently sending a naval vessel into the waters.`\
 https://nytimes.com/2025/03/27/world/americas/marco-rubio-exxonmobil-venezuela-guyana.html
