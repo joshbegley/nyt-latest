@@ -1,3 +1,15 @@
+**Warner Bros. Renaissance Remains a Waiting Game**\
+`David Zaslav promised to revive the storied film studio when he took over Warner Bros. Discovery. That was three years ago.`\
+https://nytimes.com/2025/03/27/business/warner-bros-david-zaslav.html
+
+**Bondi Indicates Signal Chat Episode Will Not Be Criminally Investigated**\
+`The attorney general said the focus should be on the success of the U.S. military strike in Yemen, not that military information was shared in advance in a group text among top officials.`\
+https://nytimes.com/2025/03/27/us/politics/signal-leak-prosecution-bondi.html
+
+**J.B. Bickerstaff has Pistons playing their best defense with postseason looming**\
+`The Pistons own the NBA's second best defensive rating since the All-Star break and that bodes well for the postseason. `\
+https://nytimes.com/athletic/6235293/2025/03/27/pistons-playoffs-defense-jb-bickerstaff/
+
 **How Major Car Brands Are Affected by Trump’s Tariffs**\
 `The scale of the damage depends on the circumstances of each company’s supply chain.`\
 https://nytimes.com/2025/03/27/business/trump-auto-tariffs-car-brands.html
