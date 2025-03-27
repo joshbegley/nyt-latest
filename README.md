@@ -22,7 +22,7 @@ https://nytimes.com/2025/03/27/business/trump-auto-tariffs-car-brands.html
 `MLB's youth movement reaches a core piece of equipment `\
 https://nytimes.com/athletic/6235456/2025/03/27/marucci-victus-mlb-official-bat/
 
-**New York Court Blocks Texas From Filing Summons Against Doctor Over Abortion Pills**\
+**New York County Clerk Blocks Texas Court Filing Against Doctor Over Abortion Pills**\
 `The showdown catapults the interstate abortion wars to a new level.`\
 https://nytimes.com/2025/03/27/health/new-york-texas-abortion-shield-law.html
 
