@@ -1,3 +1,11 @@
+**Tesla Finds a Chef for Its Retro-Futuristic Diner in Los Angeles**\
+`Eric Greenspan, a developer of delivery-only restaurants, is reported to be the choice as the company faces a wave of political blowback.`\
+https://nytimes.com/2025/03/27/dining/elon-musk-tesla-diner-chef.html
+
+**Liam Hendriks lands on 15-day IL with elbow inflammation: 'Hopefully it’s something minor'**\
+`Hendriks' velocity dipped in his last spring outing and he didn't bounce back as quickly as expected. `\
+https://nytimes.com/athletic/6236433/2025/03/27/red-sox-liam-hendriks-elbow-inflammation/
+
 **A Sleep Journalist’s Secret Weapons for Restless Nights**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/wc-how-to-sleep-better
@@ -22,15 +30,7 @@ https://nytimes.com/2025/03/27/learning/whats-going-on-in-this-graph-april-9-202
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2025/03/27/learning/whats-going-on-in-this-picture-april-7-2025.html
 
-**Trump’s Auto Tariffs Will Raise Car Prices, but Details Are Murky**\
+**Trump’s Tariffs Will Raise Car Prices, but It’s Too Soon to Know When**\
 `Experts say the 25 percent import fee will make many cars more expensive, but it is not clear when, by how much or which models.`\
 https://nytimes.com/2025/03/27/business/economy/trump-auto-tariffs-car-prices.html
-
-**‘A Gross Dishonor’: Cuts to Veterans’ Mental Health Care**\
-`Readers respond to President Trump’s orders that disrupt the V.A.’s ability to provide care. Also: Saving species; AI and human creativity.`\
-https://nytimes.com/2025/03/27/opinion/veterans-mental-health-cuts.html
-
-**Trump Asks Stefanik to Withdraw Bid to Be U.N. Ambassador**\
-`The president said he wanted the New York Republican to stay in Congress to bolster the party’s slim House margin and protect her seat.`\
-https://nytimes.com/2025/03/27/us/politics/stefanik-trump-cabinet.html
 
