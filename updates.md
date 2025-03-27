@@ -1,3 +1,11 @@
+**Thursday Briefing**\
+`Efforts to minimize the damage from a leaked Signal chat.`\
+https://nytimes.com/2025/03/27/world/europe/chat-russia-turkey.html
+
+**Silver to pitch NBA owners on new European pro league: How it might look**\
+`The venture could include 16 teams, defectors from the EuroLeague and new franchises in major markets like Paris and London.`\
+https://nytimes.com/athletic/6234659/2025/03/27/nba-adam-silver-europe-basketball-league/
+
 **Miami Open postpones Djokovic-Korda match to prevent late finish**\
 `A three-set match would have caused the players to not get to bed until as late — or early — as 5 a.m. `\
 https://nytimes.com/athletic/6234665/2025/03/27/miami-open-postpone-djokovic-korda/
