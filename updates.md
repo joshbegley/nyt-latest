@@ -1,3 +1,7 @@
+**U.S. Health Agency Announced Job Cuts**\
+`Also, Canada’s leader vowed to retaliate against U.S. auto tariffs. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/03/27/briefing/health-agency-job-cuts-canada-us-tariffs.html
+
 **Las Vegas Man Faces State and U.S. Arson Charges in Torching of Tesla Vehicles**\
 `The police said the man spray-painted the word “resist” on the doors of a Tesla repair center and then used a firearm and Molotov cocktails to damage five vehicles.`\
 https://nytimes.com/2025/03/27/us/tesla-vandalism-arrest-las-vegas.html

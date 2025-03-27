@@ -1,3 +1,7 @@
+**U.S. Health Agency Announced Job Cuts**\
+`Also, Canada’s leader vowed to retaliate against U.S. auto tariffs. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/03/27/briefing/health-agency-job-cuts-canada-us-tariffs.html
+
 **Las Vegas Man Faces State and U.S. Arson Charges in Torching of Tesla Vehicles**\
 `The police said the man spray-painted the word “resist” on the doors of a Tesla repair center and then used a firearm and Molotov cocktails to damage five vehicles.`\
 https://nytimes.com/2025/03/27/us/tesla-vandalism-arrest-las-vegas.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6236768/2025/03/27/miguel-rojas-jazz-chisholm-marli
 **Ingrid Ingebrigtsen, Jakob's sister, tells court their father Gjert slapped her, whipped her with a towel**\
 `Gjert denies all allegations and the portrayal of events, and pled not guilty. He denies ever having been violent.`\
 https://nytimes.com/athletic/6236184/2025/03/27/ingrid-ingebrigtsen-trial-jakob/
-
-**Armand LaMontagne, Meticulous Sculptor of Sports Greats, Dies at 87**\
-`Working in wood, he captured the zeal of New England sports with his exacting, lifelike renderings of Hall of Famers like Ted Williams and Larry Bird.`\
-https://nytimes.com/2025/03/27/arts/armand-lamontagne-dead.html
 
