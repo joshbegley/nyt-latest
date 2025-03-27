@@ -1,3 +1,19 @@
+**Blue Jays ask fans to 'be respectful' before playing U.S. anthem on Opening Day**\
+`Fans fans loudly booed the U.S. national anthem before the Toronto Blue Jays season opener against the Baltimore Orioles.`\
+https://nytimes.com/athletic/6236183/2025/03/27/blue-jays-united-states-national-anthem-opening-day/
+
+**California Man Sentenced in Scheme to Steal Pricey Violins and Rob a Bank**\
+`Prosecutors said that the man persuaded music stores to lend him violins worth tens of thousands of dollars on a trial basis, which he did not return.`\
+https://nytimes.com/2025/03/27/arts/stolen-violin-scheme.html
+
+**Four Tesla Dealers Said They Sold 8,653 Cars in 3 Days in Canada. Did They?**\
+`The sales numbers provided by the company-owned shops allowed them to claim tens of millions in government rebates. Now those numbers are under scrutiny.`\
+https://nytimes.com/2025/03/27/world/canada/tesla-canada-sales-musk.html
+
+**Three Restaurants Where Big Groups Are No Problem**\
+`We’re talking indoor pavilions, prix fixe deals and informal hangs.`\
+https://nytimes.com/2025/03/27/dining/three-restaurants-where-big-groups-are-no-problem.html
+
 **The Signal Leak Has Little Precedent**\
 `The military takes extraordinary measures to keep combat operations secret, cutting off outside communications for service members before launching an attack.`\
 https://nytimes.com/2025/03/27/us/politics/signal-leak-precedent-military.html
@@ -13,16 +29,4 @@ https://nytimes.com/athletic/6236452/2025/03/27/jaemyn-brakefield-ole-miss-nil-b
 **After Crash, F.A.A. Change Requires All Aircraft at Reagan to Broadcast Positions**\
 `The agency’s acting director told senators of the new policy after it was revealed that tracking technology had been disabled before a deadly midair collision in January.`\
 https://nytimes.com/2025/03/27/us/politics/reagan-crash-faa-rule-change-broadcast-positions.html
-
-**Review: Long-Lost ‘Love Life’ Still Has a Lot to Say About America**\
-`Brian Stokes Mitchell, Kate Baldwin and other top-shelf singers star in an overly sentimental production of the long-lost Kurt Weill and Alan Jay Lerner show.`\
-https://nytimes.com/2025/03/27/theater/love-life-review-encores.html
-
-**‘Fight for Glory’ Is an Ecstatic Treat**\
-`This three-part documentary about the 2024 World Series has an interesting task: Retell a story that is already pretty good and pretty legible.`\
-https://nytimes.com/2025/03/27/arts/television/fight-for-glory-2024-world-series-apple.html
-
-**Watch: Is the Russell Wilson signing going to do what the Giants want it to?**\
-`"The Athletic Football" discusses whether the New York Giants acquiring Russell Wilson eliminates any chance of drafting Shedeur Sanders.`\
-https://nytimes.com/athletic/6233502/2025/03/27/athletic-football-show-new-york-giants-russell-wilson/
 
