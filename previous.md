@@ -1,3 +1,11 @@
+**Canucks compensate for Quinn Hughes, Jonathan Lekkerimäki’s potential: 3 takeaways**\
+`Plus: How Vancouver transformed its blue line, and a look at whether the recent scoring surge is sustainable.`\
+https://nytimes.com/athletic/6234643/2025/03/27/vancouver-canucks-jonathan-lekkerimaki/
+
+**The Truth About F. Scott Fitzgerald’s Drunken Brawl in Rome**\
+`Biographers took an account of a scuffle in “Tender Is the Night” as a record of a real-life event. But uncovered documents suggest Fitzgerald may have behaved worse than he wrote.`\
+https://nytimes.com/2025/03/27/books/f-scott-fitzgerald-rome-arrest-1924.html
+
 **The Bounce: A message to Giannis Antetokounmpo, Shai Gilgeous-Alexander: Admit you want MVP!**\
 `It seems this season's NBA MVP candidates are playing humble about wanting the award. Zach Harper explains why this should change.`\
 https://nytimes.com/athletic/6235128/2025/03/27/giannis-antetokounmpo-shai-gilgeous-alexander-nikola-jokic-bucks-thunder-thunder-nba-mvp-the-bounce/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/27/us/politics/health-department-job-layoffs-rfk-jr.
 **Premier League announce extra summer transfer window due to Club World Cup**\
 `A new window will open on June 1 before closing on June 10, five days before FIFA's revamped competition kicks off in Miami.`\
 https://nytimes.com/athletic/6235193/2025/03/27/premier-league-transfer-window-club-world-cup/
-
-**The 2024 Mets elevated the standard, but the 2025 Mets must carry it**\
-`The Mets raised expectations and, as one player put it: "Knowing you have a real shot to win the championship is what you want to play for."`\
-https://nytimes.com/athletic/6234180/2025/03/27/mets-opening-day-expectations/
-
-**For John Green, It’s Tuberculosis All the Way Down**\
-`The best-selling author chatted with The Times’s global health reporter about the past, present and troubling future of the world’s deadliest infectious disease.`\
-https://nytimes.com/2025/03/27/health/john-green-tuberculosis.html
 

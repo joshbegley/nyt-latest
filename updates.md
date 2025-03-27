@@ -1,3 +1,11 @@
+**Canucks compensate for Quinn Hughes, Jonathan Lekkerimäki’s potential: 3 takeaways**\
+`Plus: How Vancouver transformed its blue line, and a look at whether the recent scoring surge is sustainable.`\
+https://nytimes.com/athletic/6234643/2025/03/27/vancouver-canucks-jonathan-lekkerimaki/
+
+**The Truth About F. Scott Fitzgerald’s Drunken Brawl in Rome**\
+`Biographers took an account of a scuffle in “Tender Is the Night” as a record of a real-life event. But uncovered documents suggest Fitzgerald may have behaved worse than he wrote.`\
+https://nytimes.com/2025/03/27/books/f-scott-fitzgerald-rome-arrest-1924.html
+
 **The Bounce: A message to Giannis Antetokounmpo, Shai Gilgeous-Alexander: Admit you want MVP!**\
 `It seems this season's NBA MVP candidates are playing humble about wanting the award. Zach Harper explains why this should change.`\
 https://nytimes.com/athletic/6235128/2025/03/27/giannis-antetokounmpo-shai-gilgeous-alexander-nikola-jokic-bucks-thunder-thunder-nba-mvp-the-bounce/
