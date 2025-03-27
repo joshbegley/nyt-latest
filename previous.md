@@ -1,3 +1,15 @@
+**State Department Revoked Visa of Tufts University Student, Rubio Says**\
+`Rumeysa Ozturk, a graduate student at Tufts University, was detained by masked plainclothes immigration agents outside her apartment on Tuesday night.`\
+https://nytimes.com/video/us/politics/100000010076948/rubio-tufts-student-detained-visa-rumeysa-ozturk.html
+
+**Ole Miss' Jaemyn Brakefield leans on NIL for mentoring opportunity**\
+`Last spring, Jaemyn Brakefield moved his “little brother” mentee Brandon Hill to live with him in Oxford with the help of NIL money.`\
+https://nytimes.com/athletic/6236452/2025/03/27/jaemyn-brakefield-ole-miss-nil-brandon-hill/
+
+**After Crash, F.A.A. Change Requires All Aircraft at Reagan to Broadcast Positions**\
+`The agency’s acting director told senators of the new policy after it was revealed that tracking technology had been disabled before a deadly midair collision in January.`\
+https://nytimes.com/2025/03/27/us/politics/reagan-crash-faa-rule-change-broadcast-positions.html
+
 **Review: Long-Lost ‘Love Life’ Still Has a Lot to Say About America**\
 `Brian Stokes Mitchell, Kate Baldwin and other top-shelf singers star in an overly sentimental production of the long-lost Kurt Weill and Alan Jay Lerner show.`\
 https://nytimes.com/2025/03/27/theater/love-life-review-encores.html
@@ -17,12 +29,4 @@ https://nytimes.com/2025/03/27/learning/teens-debate-whether-its-ok-for-parents-
 **Kenya goalkeeper under investigation for alleged match-fixing**\
 `Patrick Matasi has been capped 31 times by Kenya, including in qualifiers for the 2026 World Cup and the 2025 Africa Cup of Nations.`\
 https://nytimes.com/athletic/6236018/2025/03/27/kenya-goalkeeper-under-official-investigation-for-alleged-match-fixing/
-
-**Tesla Finds a Chef for Its Retro-Futuristic Diner in Los Angeles**\
-`Eric Greenspan, a developer of delivery-only restaurants, is reported to be the choice as the company faces a wave of political blowback.`\
-https://nytimes.com/2025/03/27/dining/elon-musk-tesla-diner-chef.html
-
-**Liam Hendriks lands on 15-day IL with elbow inflammation: 'Hopefully it’s something minor'**\
-`Hendriks' velocity dipped in his last spring outing and he didn't bounce back as quickly as expected. `\
-https://nytimes.com/athletic/6236433/2025/03/27/red-sox-liam-hendriks-elbow-inflammation/
 
