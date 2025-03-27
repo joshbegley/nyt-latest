@@ -1,3 +1,15 @@
+**Can Crystal Palace turn a record-breaking run of results into silverware?**\
+`Palace are the first team in English football history to win five successive away games by the same scoreline `\
+https://nytimes.com/athletic/6231982/2025/03/27/crystal-palace-away-form-record-fa-cup/
+
+**What Newcastle's cup win means to different generations of fans: 'I never gave up hope'**\
+`Five fans reflect on the Carabao Cup victory and how it fits into their history with the club`\
+https://nytimes.com/athletic/6231819/2025/03/27/what-newcastles-trophy-means-to-each-generation-of-fans/
+
+**Pinpoint passing and the most interceptions in La Liga - Johnny Cardoso has what Tottenham need**\
+`The USMNT international, who is a prospective Spurs player, has several key skills that Ange Postecoglou's team are crying out for`\
+https://nytimes.com/athletic/6232056/2025/03/27/johnny-cardoso-has-what-tottenham-need/
+
 **San Sebastian, Vigo and the murky selection process behind Spain's World Cup 2030 host cities**\
 `Vigo and San Sebastian have become embroiled in the latest political saga within Spanish football`\
 https://nytimes.com/athletic/6232136/2025/03/27/spain-2030-world-cup-vigo-san-sebastian/
