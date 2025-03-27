@@ -1,3 +1,11 @@
+**Michigan, Matt Weiss sued again by 2 more former athletes alleging account hack**\
+`The federal suit was filed Wednesday on behalf of two unnamed athletes — a volleyball player and a soccer player. Both played from 2020-24.`\
+https://nytimes.com/athletic/6235184/2025/03/27/michigan-matt-weiss-lawsuits-account-hacking/
+
+**10,000 Federal Health Dept. Workers to Be Laid Off**\
+`The layoffs are part of a major restructuring at the health department, which now employs about 80,000 people.`\
+https://nytimes.com/2025/03/27/us/politics/10000-federal-health-dept-workers-to-be-laid-off.html
+
 **Premier League announce extra summer transfer window due to Club World Cup**\
 `A new window will open on June 1 before closing on June 10, five days before FIFA's revamped competition kicks off in Miami.`\
 https://nytimes.com/athletic/6235193/2025/03/27/premier-league-transfer-window-club-world-cup/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/27/world/middleeast/egypt-tourist-submarine-hurghada
 **Baylor Scheierman stayed confident and now is 'coming into his own' for the Celtics**\
 `Boston didn't have much room for the rookie early on. But now he's making an impact and bringing "a different level of energy."`\
 https://nytimes.com/athletic/6234809/2025/03/27/baylor-scheierman-celtics-rookie/
-
-**Corey Perry wants Oilers goalies protected better. Is his concern being heard?**\
-`The team’s starting goaltender is injured, and its elder statesman is second-guessing how he should have handled the aftermath.`\
-https://nytimes.com/athletic/6234826/2025/03/27/oilers-corey-perry-stuart-skinner-injury/
-
-**Dozens of Engaging Ways to Make Media Literacy Meaningful to Teenagers**\
-`This collection of interactive exercises uses Times resources to help young people find the news that matters to them, understand how it’s made, connect it to their lives — and make media of their own.`\
-https://nytimes.com/2025/03/27/learning/media-literacy-teenagers.html
 
