@@ -1,3 +1,11 @@
+**What Kind of Competitor Are You?**\
+`Do you have swag, an all-about-winning attitude, or a game face? How about an icy stare like that of Karis Dadson, a teenager who shows pigs at livestock competitions?`\
+https://nytimes.com/2025/03/28/learning/what-kind-of-competitor-are-you.html
+
+**Israel Orders Residents in Neighborhood Near Beirut to Evacuate**\
+`The command for people to leave parts of the suburbs south of the Lebanese capital where Hezbollah holds sway is the first since a cease-fire went into effect in November.`\
+https://nytimes.com/2025/03/28/world/middleeast/israel-orders-residents-in-neighborhood-near-beirut-to-evacuate.html
+
 **Myanmar’s Internet Censorship Limits Information About Quake**\
 `Since 2021, the ruling military junta has severely restricted the internet and cut access to social media, digitally isolating the country.`\
 https://nytimes.com/2025/03/28/world/asia/myanmar-earthquake-internet-censorship.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6237512/2025/03/28/blues-hot-streak-nhl-playoffs/
 **Greenberg: After a cold start in Japan, can the Cubs get hot?**\
 `What a day in Chicago sports. The White Sox scored a win over the Angels, then the Bulls pulled off a miracle, and the Cubs topped it off.`\
 https://nytimes.com/athletic/6237775/2025/03/28/cubs-diamondbacks-pete-crow-armstrong-ian-happ/
-
-**Miami mailbag: Will the freshman WRs play? When will Carson Beck be ready?**\
-`How does the administration feel about Mario Cristobal? Will Samson Okunlola or Tommy Kinsler ever play significant snaps at Miami?`\
-https://nytimes.com/athletic/6233091/2025/03/28/miami-hurricanes-football-carson-beck/
-
-**Dylan Raiola embracing leadership role in second year on campus**\
-`Raiola's maturation as a QB in this second offseason of his collegiate career looms large for a program desperate to take the next step. `\
-https://nytimes.com/athletic/6236559/2025/03/28/dylan-raiola-nebraska-quarterback-leader/
 

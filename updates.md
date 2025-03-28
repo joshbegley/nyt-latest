@@ -1,3 +1,11 @@
+**What Kind of Competitor Are You?**\
+`Do you have swag, an all-about-winning attitude, or a game face? How about an icy stare like that of Karis Dadson, a teenager who shows pigs at livestock competitions?`\
+https://nytimes.com/2025/03/28/learning/what-kind-of-competitor-are-you.html
+
+**Israel Orders Residents in Neighborhood Near Beirut to Evacuate**\
+`The command for people to leave parts of the suburbs south of the Lebanese capital where Hezbollah holds sway is the first since a cease-fire went into effect in November.`\
+https://nytimes.com/2025/03/28/world/middleeast/israel-orders-residents-in-neighborhood-near-beirut-to-evacuate.html
+
 **How will Toronto Raptors be impacted by the struggling Canadian dollar?**\
 `While the new TV deal will help, the Raptors are facing tremendous uncertainty with Canada's lagging currency. `\
 https://nytimes.com/athletic/6233458/2025/03/28/toronto-raptors-canadian-dollar-economy/
