@@ -26,7 +26,3 @@ https://nytimes.com/athletic/6238080/2025/03/28/josh-giddey-bulls-lakers-half-co
 `Our weekly look at the bonkers side of the game also takes in Gareth Ainsworth fast-tracking to League Two and Scottish accents`\
 https://nytimes.com/athletic/6235152/2025/03/28/fifa-club-world-szoboszlai-millwall-row-z/
 
-**Canada accused of 'gross negligence' with Davies injury by Bayern executive**\
-`Davies suffered a torn ACL in his right knee, an injury which requires surgery and several months of rehabilitation.`\
-https://nytimes.com/athletic/6238131/2025/03/28/bayern-munich-canada-alphonso-davies-injury/
-
