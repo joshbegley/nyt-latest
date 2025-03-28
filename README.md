@@ -1,3 +1,11 @@
+**Ten pressing concerns for the Oilers to solve before the NHL playoffs**\
+`Now that the Oilers have just 10 games left on their schedule, these 10 concerns are worth mentioning and monitoring.`\
+https://nytimes.com/athletic/6237912/2025/03/28/oilers-nhl-playoffs-connor-mcdavid-injury/
+
+**Guardiola says Man City players and coaches do not deserve bonus for their season**\
+`Guardiola did not even want to entertain the idea of himself, his players and fellow coaching staff earning an end-of-season bonus.`\
+https://nytimes.com/athletic/6238333/2025/03/28/man-city-guardiola-players-coaches-bonus/
+
 **Olmo set for three weeks out with groin injury**\
 `The Spain international was forced off in the first half of Barcelona's 3-0 victory over Osasuna on Thursday.`\
 https://nytimes.com/athletic/6237966/2025/03/28/dani-olmo-injury-update-barcelona/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/28/well/utah-fluoride-ban.html
 **Victor Emanuel, Revered Birder and Pioneer of Ecotourism, Dies at 84**\
 `He had a reverential regard for birds from an early age, and he turned it into a thriving business. “I call him the Zen master of birds,” Peter Matthiessen said.`\
 https://nytimes.com/2025/03/28/us/victor-emanuel-dead.html
-
-**What We Know About the Earthquake in Myanmar**\
-`The death toll is expected to rise after the 7.7-magnitude quake was felt across Southeast Asia in densely populated cities. At least 20 people were reported dead in Myanmar, and three in Thailand.`\
-https://nytimes.com/2025/03/28/world/asia/earthquake-myanmar-thailand-death-toll.html
-
-**Calm Your Investing Life: Own a Bit of Everything**\
-`People with bond and international stock funds have held their own, despite a shaky U.S. stock market and the uncertainty and turmoil flowing from the White House.`\
-https://nytimes.com/2025/03/28/business/investing-international-stocks-bonds.html
 

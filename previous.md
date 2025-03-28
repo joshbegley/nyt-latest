@@ -1,3 +1,19 @@
+**Olmo set for three weeks out with groin injury**\
+`The Spain international was forced off in the first half of Barcelona's 3-0 victory over Osasuna on Thursday.`\
+https://nytimes.com/athletic/6237966/2025/03/28/dani-olmo-injury-update-barcelona/
+
+**Climate Activists Who Threw Soup at van Gogh Painting Are Changing Tactics**\
+`Just Stop Oil, the group that made headlines for high profile stunts to protest use of fossil fuels, said it was ending protests in museums after achieving its initial demand.`\
+https://nytimes.com/2025/03/28/world/europe/climate-activists-museum-protests.html
+
+**Men's Sweet 16 roundup: Alabama sets 3-point record, Flagg carries Duke**\
+`Cooper Flagg, Mark Sears and college basketball's biggest stars shined on an offense-heavy night in the Sweet 16.`\
+https://nytimes.com/athletic/6238143/2025/03/28/ncaa-tournament-sweet-16-roundup-alabama-duke-texas-tech-florida/
+
+**Cooking up Cristopher Sánchez's breakout: The partner and plan behind Phillies starter's gains**\
+`Everything  started to change for Sánchez when he met his wife, a professional chef. This offseason, with her help, he pushed even harder. `\
+https://nytimes.com/athletic/6235216/2025/03/28/cristopher-sanchez-phillies-breakout-diet-offseason/
+
 **Myanmar has been convulsed by civil war.**\
 `By Lara Jakes`\
 https://nytimes.com/live/2025/03/28/world/myanmar-earthquake/myanmar-has-been-convulsed-by-civil-war
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/28/world/asia/earthquake-myanmar-thailand-death-toll
 **Calm Your Investing Life: Own a Bit of Everything**\
 `People with bond and international stock funds have held their own, despite a shaky U.S. stock market and the uncertainty and turmoil flowing from the White House.`\
 https://nytimes.com/2025/03/28/business/investing-international-stocks-bonds.html
-
-**Elite tactician Bompastor keeps on proving why Chelsea hired her**\
-`Bompastor's evolution of Chelsea continued in their four successive matches against City. They now have Barcelona in their sights`\
-https://nytimes.com/athletic/6237898/2025/03/28/sonia-bompastor-chelsea-champions-league/
-
-**Haven’t Filed Your Taxes Yet? Here Are Some Last-Minute Tips.**\
-`Despite the turmoil at the I.R.S., tax returns are still due on April 15. And, yes, there are still options for lowering last year’s taxable income.`\
-https://nytimes.com/2025/03/28/your-money/taxes-filing-2024.html
-
-**Will Jimmy Snuggerud join the Blues after Minnesota's exit from NCAA Tournament?**\
-`After Minnesota's season ended Thursday, Snuggerud will have to decide whether to sign with the Blues or return to the Gophers.`\
-https://nytimes.com/athletic/6236176/2025/03/28/jimmy-snuggerud-blues-ncaa-tournament/
-
-**LeBron James, Lakers searching for answers after stunning loss to Bulls**\
-`Thursday's loss on Josh Giddey's half-court buzzer-beater was the Lakers' eighth setback in their past 12 games.`\
-https://nytimes.com/athletic/6237843/2025/03/28/lakers-loss-bulls-lebron-james/
 

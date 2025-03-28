@@ -1,3 +1,19 @@
+**Olmo set for three weeks out with groin injury**\
+`The Spain international was forced off in the first half of Barcelona's 3-0 victory over Osasuna on Thursday.`\
+https://nytimes.com/athletic/6237966/2025/03/28/dani-olmo-injury-update-barcelona/
+
+**Climate Activists Who Threw Soup at van Gogh Painting Are Changing Tactics**\
+`Just Stop Oil, the group that made headlines for high profile stunts to protest use of fossil fuels, said it was ending protests in museums after achieving its initial demand.`\
+https://nytimes.com/2025/03/28/world/europe/climate-activists-museum-protests.html
+
+**Men's Sweet 16 roundup: Alabama sets 3-point record, Flagg carries Duke**\
+`Cooper Flagg, Mark Sears and college basketball's biggest stars shined on an offense-heavy night in the Sweet 16.`\
+https://nytimes.com/athletic/6238143/2025/03/28/ncaa-tournament-sweet-16-roundup-alabama-duke-texas-tech-florida/
+
+**Cooking up Cristopher Sánchez's breakout: The partner and plan behind Phillies starter's gains**\
+`Everything  started to change for Sánchez when he met his wife, a professional chef. This offseason, with her help, he pushed even harder. `\
+https://nytimes.com/athletic/6235216/2025/03/28/cristopher-sanchez-phillies-breakout-diet-offseason/
+
 **Myanmar has been convulsed by civil war.**\
 `By Lara Jakes`\
 https://nytimes.com/live/2025/03/28/world/myanmar-earthquake/myanmar-has-been-convulsed-by-civil-war
