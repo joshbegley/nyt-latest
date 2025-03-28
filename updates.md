@@ -1,3 +1,19 @@
+**Trump Pardons Trevor Milton, Founder of Bankrupt Truck Maker Nikola**\
+`President Trump’s intervention came while Mr. Milton was appealing his conviction on securities and wire fraud charges.`\
+https://nytimes.com/2025/03/28/business/trump-trevor-milton-pardon.html
+
+**Maren Morris Lifts Herself Up, and 10 More New Songs**\
+`Hear tracks by Mumford & Sons, Mon Laferte, the Swell Season and others.`\
+https://nytimes.com/2025/03/28/arts/music/playlist-maren-morris-mumford-and-sons.html
+
+**With Cuomo Leading Mayor’s Race, Foes Weigh His Political Baggage**\
+`Rumors resurfaced of a relationship between Andrew Cuomo and his top aide, the latest reminder that the former governor’s record presents plenty of targets for his opponents.`\
+https://nytimes.com/2025/03/28/nyregion/andrew-cuomo-melissa-derosa.html
+
+**MoMA’s New Director Will Be Christophe Cherix**\
+`The Museum of Modern Art in New York is promoting Christophe Cherix, who currently leads its drawings and prints department.`\
+https://nytimes.com/2025/03/28/arts/design/christophe-cherix-moma-director.html
+
 **Trump Mentioned Biden 316 Times in 50 Days, Mostly to Blame Him for Things**\
 `A central dictum in the Trump White House is that Joseph R. Biden Jr. is to blame for just about anything and everything.`\
 https://nytimes.com/2025/03/28/us/politics/trump-biden-blame.html
