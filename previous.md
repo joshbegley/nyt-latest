@@ -1,3 +1,7 @@
+**‘Yellowjackets’ Season 3, Episode 8 Recap: ‘Eat It’**\
+`A familiar face comes back into the picture, but it’s a face with a different name. And questionable motives.`\
+https://nytimes.com/2025/03/28/arts/television/yellowjackets-recap-season-3-episode-8.html
+
 **Justice Dept. Investigates L.A. Sheriff Over Concealed Carry Permit Delays**\
 `The Justice Department said it believed the Los Angeles County Sheriff’s Department had violated residents’ Second Amendment rights through delays in issuing the permits.`\
 https://nytimes.com/2025/03/28/us/politics/doj-la-sheriff-concealed-carry-permits-second-amendment.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6236885/2025/03/28/jacob-trouba-rangers-ducks-trade
 **Guardians Opening Day takeaways: Upset stomachs, mustaches, extra-base hits**\
 `Ben Lively kept his emotions in check, Kyle Manzardo had a huge day at the plate and the Guardians pen looked as good as ever.`\
 https://nytimes.com/athletic/6237384/2025/03/28/cleveland-guardians-opening-day-takeaways/
-
-**The Athletic’s Friday football quiz question #48**\
-`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
-https://nytimes.com/athletic/6236413/2025/03/28/the-athletics-friday-football-quiz-question-48/
 

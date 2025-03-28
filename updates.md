@@ -1,3 +1,7 @@
+**‘Yellowjackets’ Season 3, Episode 8 Recap: ‘Eat It’**\
+`A familiar face comes back into the picture, but it’s a face with a different name. And questionable motives.`\
+https://nytimes.com/2025/03/28/arts/television/yellowjackets-recap-season-3-episode-8.html
+
 **Justice Dept. Investigates L.A. Sheriff Over Concealed Carry Permit Delays**\
 `The Justice Department said it believed the Los Angeles County Sheriff’s Department had violated residents’ Second Amendment rights through delays in issuing the permits.`\
 https://nytimes.com/2025/03/28/us/politics/doj-la-sheriff-concealed-carry-permits-second-amendment.html
