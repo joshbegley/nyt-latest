@@ -1,3 +1,7 @@
+**Twins hope it's 'business as usual' as Joe Ryan returns to mound following injury**\
+`Ryan is set to make his first regular-season start for the Twins since departing a start Aug. 7 with a season-ending injury.`\
+https://nytimes.com/athletic/6239374/2025/03/28/twins-joe-ryan-returns-to-mound/
+
 **F.C.C. Chairman Orders Inquiry Into Disney’s D.E.I. Practices**\
 `F.C.C. chairman Brendan Carr sent a letter to Disney accusing it of violating equal employment opportunity regulations.`\
 https://nytimes.com/2025/03/28/technology/disney-fcc-dei-investigation.html
