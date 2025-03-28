@@ -1,3 +1,7 @@
+**My Teenage Son Has a Girlfriend. Do Her Parents Need to Know?**\
+`The magazine’s Ethicist columnist on what parents owe to other parents.`\
+https://nytimes.com/2025/03/28/magazine/teenagers-dating-ethics-parenting.html
+
 **The Gen X Career Meltdown**\
 `Just when they should be at their peak, experienced workers in creative fields find that their skills are all but obsolete.`\
 https://nytimes.com/2025/03/28/style/the-gen-x-career-meltdown.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/28/us/politics/trump-canada-carney.html
 **Visiting Greenland, Vance Finds the Weather and the Reception Chilly**\
 `The trip was both a reconnaissance mission and a passive-aggressive reminder of President Trump’s determination to fulfill his territorial ambitions, no matter the obstacles.`\
 https://nytimes.com/2025/03/28/us/politics/greenland-jd-vance-usha.html
-
-**James says Club Leon expulsion from CWC a 'grave injustice'**\
-`Last week FIFA said Leon was not eligible to play in the 32-team competition this summer after failing to meet multi-club ownership criteria`\
-https://nytimes.com/athletic/6239236/2025/03/28/fifa-club-world-cup-leon-expulsion/
 

@@ -1,3 +1,7 @@
+**My Teenage Son Has a Girlfriend. Do Her Parents Need to Know?**\
+`The magazine’s Ethicist columnist on what parents owe to other parents.`\
+https://nytimes.com/2025/03/28/magazine/teenagers-dating-ethics-parenting.html
+
 **The Gen X Career Meltdown**\
 `Just when they should be at their peak, experienced workers in creative fields find that their skills are all but obsolete.`\
 https://nytimes.com/2025/03/28/style/the-gen-x-career-meltdown.html
