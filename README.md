@@ -1,4 +1,8 @@
-**Jimmy Snuggerud expected to sign with Blues: Source**\
+**Elon Musk Says He Has Sold X to xAI**\
+`Mr. Musk said the deal valued xAI, his artificial intelligence start-up, at $80 billion, and X at $30 billion.`\
+https://nytimes.com/2025/03/28/technology/musk-x-xai.html
+
+**Jimmy Snuggerud expected to sign with Blues, ending Gophers career: Source**\
 `Signing burns the first year of Snuggerud's entry-level contract, which means the 2025-26 season will be the second year of the deal.`\
 https://nytimes.com/athletic/6238471/2025/03/28/jimmy-snuggerud-blues-contract/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6239271/2025/03/28/duke-north-carolina-sweet-sixtee
 **Novak Djokovic nears yet another milestone en route to Miami Open final**\
 `If Djokovic is successful in the final of the Miami Open, it would give him 100 tour-level singles titles, joining Connors and Federer.`\
 https://nytimes.com/athletic/6239296/2025/03/28/novak-djokovic-milestone-miami-open-final/
-
-**What does Penn State TE Tyler Warren bring to NFL? 'He can do it all.'**\
-`NFL teams have asked him about the impressive moments during his college career. Warren would rather not say too much about himself.`\
-https://nytimes.com/athletic/6239263/2025/03/28/nfl-draft-2025-tyler-warren-penn-state/
 
