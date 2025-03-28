@@ -1,3 +1,11 @@
+**Tug of War Continues Over Where to Hear Khalil Deportation Case**\
+`The government wants the detainee’s case heard in Louisiana, where an appellate judge may be friendlier. At a hearing in Newark, one of his lawyers called the situation “Kafkaesque.”`\
+https://nytimes.com/2025/03/28/nyregion/mahmoud-khalil-deportation-case-hearing.html
+
+**Major Quake Batters Myanmar; High Toll Is Feared as Buildings Topple**\
+`The 7.7-magnitude earthquake near Mandalay, in a country already torn by war, was felt across Southeast Asia, and experts warned there could be tens of thousands dead.`\
+https://nytimes.com/2025/03/28/world/asia/myanmar-earthquake-thailand-mandalay.html
+
 **What we're hearing about John Tortorella's final days with the Flyers**\
 `Tortorella was fired on Thursday, after his situation with the team had deteriorated.`\
 https://nytimes.com/athletic/6238817/2025/03/28/tortorella-york-flyers-firing/
