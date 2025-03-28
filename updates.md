@@ -1,3 +1,7 @@
+**CoreWeave Disappoints on Opening of Trading**\
+`The start-up, which provides the processing power to help develop A.I. systems, faces questions about its debt and the overall economy.`\
+https://nytimes.com/2025/03/28/technology/coreweave-stock.html
+
 **The quake struck along a major fault line.**\
 `By James C. McKinley Jr.`\
 https://nytimes.com/live/2025/03/28/world/myanmar-earthquake/the-quake-struck-along-a-major-fault-line
