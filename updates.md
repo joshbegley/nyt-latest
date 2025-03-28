@@ -1,3 +1,7 @@
+**Jimmy Kimmel Updates the Never-Ending Signal Story**\
+`“There are many books and stories to come,” Kimmel said of the Trump administration’s leaky-group-chat scandal, comparing it to the Harry Potter saga.`\
+https://nytimes.com/2025/03/28/arts/television/jimmy-kimmel-signal-group-chat.html
+
 **Musk to Campaign in Wisconsin Ahead of Critical State Court Election**\
 `The billionaire is reprising another of the moves he did to help elect Donald J. Trump in November.`\
 https://nytimes.com/2025/03/28/us/politics/musk-wisconsin-supreme-court.html
