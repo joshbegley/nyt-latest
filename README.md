@@ -1,10 +1,26 @@
+**No 3s? No problem. How Texas could win a national championship without them**\
+`Texas has the lowest 3-point rate in the nation. Coach Vic Schaefer is just fine with that. "The proof’s in the pudding."`\
+https://nytimes.com/athletic/6237007/2025/03/28/texas-womens-basketball-ncaa-tournament-3-pointers/
+
+**Colts 2025 NFL Draft big board: 10 prospects for Indy to consider on Day 2**\
+`Chris Ballard wasn’t messing around.`\
+https://nytimes.com/athletic/6236596/2025/03/28/colts-2025-nfl-draft-big-board-treveyon-henderson/
+
+**A healthy Ben Simmons is doing his part with Clippers, where 'the goal is to win'**\
+`Simmons has been a maestro directing LA's second unit and has the Clippers' sights set on the playoffs, where he hasn't been since 2021.`\
+https://nytimes.com/athletic/6234830/2025/03/28/ben-simmons-la-clippers-sixers-nets/
+
+**The Self-Deporters**\
+`Our immigration correspondnet has found a surprising trend.`\
+https://nytimes.com/2025/03/28/briefing/the-self-deporters.html
+
 **The Pulse: At least we got some thrilling games?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6235556/2025/03/28/ncaa-sweet-16-texas-tech-duke-the-pulse/
 
 **The quake caused chaos in Bangkok, where at least 3 people died.**\
 `By Richard C. Paddock`\
-https://nytimes.com/live/2025/03/28/world/myanmar-earthquake/the-quake-caused-chaos-in-bangkok-where-at-least-3-people-died
+https://nytimes.com/2025/03/28/world/asia/the-quake-caused-chaos-in-bangkok-where-at-least-3-people-died.html
 
 **Houston vs. Purdue: Can the Boilers take down Kelvin Sampson's top-seeded Cougars?**\
 `Kelvin Sampson's squad is one of the best in the country. Can Big Ten Player of the Year Braden Smith lead the Boilers to an upset?`\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5932880/2025/03/28/titans-texans-oilers-throwback-u
 **Joe Buck returns to the baseball TV booth: ‘I felt like I hadn’t left’**\
 `On Thursday’s Opening Day at Yankee Stadium, Joe Buck was back on TV calling a baseball game. "I felt like I hadn't left."`\
 https://nytimes.com/athletic/6237028/2025/03/28/joe-buck-espn-mlb-opening-day/
-
-**'Can't-miss' games on TV to watch this weekend: March Madness Sweet 16 edition**\
-`Looking for recommendations of great sports on TV to watch this weekend? The Athletic's staff offers their recommendations.`\
-https://nytimes.com/athletic/6236448/2025/03/28/cant-miss-tv-march-madness-sweet-16/
-
-**He's built a spring football dynasty. Does he want another chance on fall Saturdays?**\
-`The most dominant team in football the last three years? Not the Kansas City Chiefs. That would be Skip Holtz's Birmingham Stallions.`\
-https://nytimes.com/athletic/6235726/2025/03/28/skip-holtz-ufl-birmingham-stallions-coach/
-
-**With new technology, visually impaired NBA fans can experience the action through touch**\
-`Haptic devices are being used in Portland, Sacramento and Phoenix to assist visually impaired fans in experiencing NBA games in real time.`\
-https://nytimes.com/athletic/6228609/2025/03/28/nba-visually-impaired-fans-haptic-devices/
-
-**Why Kim Mulkey's fiery coaching style still breeds success: 'She just keeps it real'**\
-`In an era of NIL and player empowerment, many elite players seek out Mulkey's old-school coaching methods. `\
-https://nytimes.com/athletic/6237310/2025/03/28/kim-mulkey-lsu-sweet-16-coaching-style/
 
