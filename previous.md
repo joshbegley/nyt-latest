@@ -1,6 +1,6 @@
 **Trump restored funding for Radio Free Europe and reinstated 33 employees for Cuban radio station.**\
 `The decision to`\
-https://nytimes.com/2025/03/27/us/politics/trump-restored-funding-for-radio-free-europe-and-reinstated-33-employees-for-cuban-radio-station.html
+https://nytimes.com/2025/03/27/us/politics/trump-radio-free-europe-funding.html
 
 **F.B.I. Agents in Southeast Asia Used Prostitutes, Watchdog Says**\
 `The conduct took place over several years even as employees were training to combat human trafficking, according to a document released to The Times in a lawsuit.`\
