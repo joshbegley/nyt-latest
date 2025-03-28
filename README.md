@@ -1,3 +1,7 @@
+**Strong Earthquake Strikes Myanmar’s Second-Largest City**\
+`The 7.7-magnitude quake struck near Mandalay, and shaking was felt in cities as far as Bangkok.`\
+https://nytimes.com/2025/03/28/world/asia/myanmar-earthquake.html
+
 **In potential make-or-break season, Cubs ride youth, bullpen to first win of 2025**\
 `In Thursday's domestic Opening Day, the Cubs rarely looked like the team that dropped two games to the Dodgers in Tokyo.`\
 https://nytimes.com/athletic/6237833/2025/03/28/chicago-cubs-2025-season-opener-outlook/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6235211/2025/03/28/manchester-city-mailbag-mcatee-s
 **Results: Would you rather Forest won the FA Cup or qualified for the Champions League?**\
 `We asked Nottingham Forest subscribers if they would rather win the FA Cup or qualify for the Champions League. Here are the results...`\
 https://nytimes.com/athletic/6235491/2025/03/28/forest-fa-cup-champions-league/
-
-**What if Arsenal had never left Highbury?**\
-`The move to the Emirates was a business decision rather than an emotional one, but it prompted the break up of Arsene Wenger's greatest team`\
-https://nytimes.com/athletic/6235683/2025/03/28/arsenal-highbury-emirates-inspired-by-you/
 
