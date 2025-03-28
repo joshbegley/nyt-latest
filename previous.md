@@ -1,3 +1,15 @@
+**A smash and a save in the sunshine: Not a bad opening act for the Yankees**\
+`Baseball is never more beautiful than it is on opening day, in the sunshine, with a whole season of possibility stretched out ahead.`\
+https://nytimes.com/athletic/6237147/2025/03/27/new-york-yankees-opening-day-win/
+
+**The perfect setup for Juan Soto ends with an Opening Day loss for the Mets**\
+`Soto expected a fastball but got a slider instead during Opening Day's most pivotal at-bat.`\
+https://nytimes.com/athletic/6237117/2025/03/27/mets-juan-soto-opening-day-josh-hader/
+
+**Quadg0d was here: The Ilia Malinin experience hits a new stage at figure skating worlds**\
+`The new star of figure skating, Ilia Malinin, put on his typically dazzling routine Thursday at the world championships in Boston.`\
+https://nytimes.com/athletic/6237110/2025/03/27/ilia-malinin-quadgod-figure-skating-world-championships/
+
 **Trump Targets WilmerHale, Citing Law Firm’s Connection to Robert Mueller**\
 `Mr. Mueller, who worked at WilmerHale before retiring in 2021, had investigated the Trump campaign’s ties to Russian officials during the president’s first term.`\
 https://nytimes.com/2025/03/27/us/politics/trump-wilmerhale-law-firm-mueller.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6237008/2025/03/27/mikaela-shiffrin-world-cup-final
 **Angel Reese supports brother Julian at Maryland's Sweet 16 game**\
 `The siblings both excel at rebounding. Angel proudly displayed a shirt Thursday that read “I’m from Baltimore” from her seat a few rows up.`\
 https://nytimes.com/athletic/6237032/2025/03/27/angel-reese-julian-reese-maryland-march-madness/
-
-**What We Know About the Detentions of Student Protesters**\
-`The Trump administration is looking to deport pro-Palestinian students who are legally in the United States, citing national security. Critics say that violates free speech protections.`\
-https://nytimes.com/2025/03/27/us/students-trump-ice-detention.html
-
-**'It's delusion that feeds me': Why White Sox fans still showed up on Opening Day**\
-`For so many, being here is closer to a ritual than a choice. It's not that they want to support their historically bad team. They need to.`\
-https://nytimes.com/athletic/6236867/2025/03/27/chicago-white-sox-fans-opening-day/
-
-**Justice Dept. Will Investigate California Universities Over Race in Admissions**\
-`California banned affirmative action decades ago. The Trump administration says it plans to investigate whether schools there are still considering race.`\
-https://nytimes.com/2025/03/27/us/california-universities-affirmative-action-doj.html
 
