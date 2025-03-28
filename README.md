@@ -1,3 +1,27 @@
+**City mailbag: Club World Cup starters, McAtee's missing minutes and a Bernardo bounceback?**\
+`Sam Lee answers your questions about the latest happenings at the Etihad`\
+https://nytimes.com/athletic/6235211/2025/03/28/manchester-city-mailbag-mcatee-silva-club-world-cup/
+
+**Results: Would you rather Forest won the FA Cup or qualified for the Champions League?**\
+`We asked Nottingham Forest subscribers if they would rather win the FA Cup or qualify for the Champions League. Here are the results...`\
+https://nytimes.com/athletic/6235491/2025/03/28/forest-fa-cup-champions-league/
+
+**The goal Hojlund keeps trying to score - and why it blocked his ketchup**\
+`A breakdown of the factors that caused Hojlund's 21-match goal drought for United`\
+https://nytimes.com/athletic/6143414/2025/03/28/rasmus-hojlund-ketchup-shooting-from-wide/
+
+**The making of Jack Hinshelwood, a homegrown Brighton talent to rival their best imports**\
+`The 19-year-old has unusual leadership skills for a player of his age and a versatility that makes him valuable for club and country`\
+https://nytimes.com/athletic/6200412/2025/03/28/jack-hinshelwood-brighton-background/
+
+**Steve Bull at 60: Wolves' cult hero whose legendary status remains undimmed**\
+`The club's record goalscorer went from working in a bed factory to playing for England at the World Cup in a little over five years`\
+https://nytimes.com/athletic/6235168/2025/03/28/steve-bull-60-wolves/
+
+**RB Leipzig, a revamped academy and a club on a mission to develop their own**\
+`The club have a reputation for advancing careers but are still to create their own stars. It’s something they are attempting to change`\
+https://nytimes.com/athletic/6232674/2025/03/28/leipzig-academy-baum-ai/
+
 **Why do Real Madrid make the fewest substitutions in Spain?**\
 `As Madrid chase a first treble in the club’s history, their manager Carlo Ancelotti remains reluctant to use his bench`\
 https://nytimes.com/athletic/6235073/2025/03/28/real-madrid-carlo-ancelotti-substitutes/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6235533/2025/03/28/geovany-quenda-chelsea-signing-s
 **Milos Kerkez interview: 'When people say they don't see stuff about you, it's a lie. I just do my job'**\
 `The Bournemouth left-back is enjoying a stellar season and attracting interest from Europe's top clubs - The Athletic went to meet him`\
 https://nytimes.com/athletic/6229619/2025/03/28/milos-kerkez-interview-bournemouth-liverpool-iraola/
-
-**Texas Tech is Elite: Red Raiders rally from 16 down to top Arkansas in OT**\
-`Texas Tech mounts second-largest comeback in a Sweet 16 game to advance to the Elite Eight for the third time in school history. `\
-https://nytimes.com/athletic/6237626/2025/03/28/arkansas-john-calipari-elite-eight-texas-tech/
-
-**Fulham, quietly, are in Champions League contention. They deserve more credit**\
-`Marco Silva's side are three points off fifth, yet they have not attracted the kind of praise reserved for Bournemouth, who are 10th`\
-https://nytimes.com/athletic/6215147/2025/03/28/fulham-marco-silva-europe/
-
-**Quansah, Isak, Gordon and Gomez: What we know about Liverpool and Newcastle transfer links**\
-`Could Jarell Quansah be heading to Newcastle? Is it possible Alexander Isak could move the other way?`\
-https://nytimes.com/athletic/6235534/2025/03/28/quansah-isak-gordon-gomez-liverpool-newcastle/
-
-**Why are there no Premier League games this weekend? And is this new?**\
-`If you live for Premier League action, you may be disappointed on Saturday and Sunday - despite the two-week international break being over`\
-https://nytimes.com/athletic/6227277/2025/03/28/premier-league-fa-cup-weekend-why/
-
-**Friday Briefing**\
-`A shock to the auto industry.`\
-https://nytimes.com/2025/03/28/briefing/auto-tariffs-ukraine-gaza.html
-
-**The New York Times in Print for Friday, March 28, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/03/28/todays-new-york-times
 
