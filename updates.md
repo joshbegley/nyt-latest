@@ -1,3 +1,11 @@
+**CoreWeave Scales Back Ambitions for Its I.P.O.**\
+`The company, which originally expected its shares to be priced between $47 and $55, will ask for $40 a share in a sign of stock market uncertainty.`\
+https://nytimes.com/2025/03/27/technology/coreweave-scales-back-ambitions-for-its-ipo.html
+
+**Wilyer Abreu's homers power Red Sox to stirring Opening Day win**\
+`Kristian Campbell's first big-league hit helps spur a game-winning rally, as Abreu's two home runs deliver a 5-2 win.`\
+https://nytimes.com/athletic/6237203/2025/03/27/red-sox-wilyer-abreu-homers-kristian-campbell-debut/
+
 **Review: Sarah Snook Stars in the Selfie of ‘Dorian Gray’**\
 `The “Succession” actress plays all 26 roles in this Oscar Wilde classic reimagined as a video spectacle. If only there were less screen time and more IRL contact.`\
 https://nytimes.com/2025/03/27/theater/picture-of-dorian-gray-review-snook.html
