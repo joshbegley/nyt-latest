@@ -1,3 +1,7 @@
+**Jean Rice, Advocate for the Homeless, Is Dead at 85**\
+`Homeless himself, he was for nearly two decades a pivotal member of Picture the Homeless, a group devoted to changing negative perceptions of the unhoused.`\
+https://nytimes.com/2025/03/28/nyregion/jean-rice-dead.html
+
 **At a Prison Appearance, a $50,000 Watch Stands Out**\
 `Kristi Noem’s trip to a prison in El Salvador drew social media attention for the homeland security secretary’s choice to wear a gold Rolex in such a setting.`\
 https://nytimes.com/2025/03/28/style/kristi-noem-venezuela-prison-rolex-watch.html
