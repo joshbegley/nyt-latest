@@ -1,3 +1,7 @@
+**Jimmy Kimmel Updates the Never-Ending Signal Story**\
+`“There are many books and stories to come,” Kimmel said of the Trump administration’s leaky-group-chat scandal, comparing it to the Harry Potter saga.`\
+https://nytimes.com/2025/03/28/arts/television/jimmy-kimmel-signal-group-chat.html
+
 **Musk to Campaign in Wisconsin Ahead of Critical State Court Election**\
 `The billionaire is reprising another of the moves he did to help elect Donald J. Trump in November.`\
 https://nytimes.com/2025/03/28/us/politics/musk-wisconsin-supreme-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/28/learning/word-of-the-day-simpatico.html
 **Alexandra Eala's wild run in Miami comes to an end**\
 `Eala nearly pulled off yet another hard-to-fathom upset in her semis match against Pegula on Thursday night at Hard Rock Stadium.`\
 https://nytimes.com/athletic/6237760/2025/03/28/alexandra-eala-miami-open-semifinals/
-
-**Floods Sweep South Texas and Nearby Border Cities in Mexico**\
-`Severe storms dumped about half a year’s rainfall in two days, leading to flash floods across both sides of the border.`\
-https://nytimes.com/2025/03/28/us/texas-mexico-flooding-rain.html
 
