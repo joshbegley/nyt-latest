@@ -1,3 +1,11 @@
+**Stocks Fall as Inflation Anxiety Dampens Mood on Wall Street**\
+`The S&P 500 index dipped as investors weighed new hotter-than-expected inflation data and braced for President Trump’s next round of tariffs.`\
+https://nytimes.com/2025/03/28/business/stock-market-inflation-consumer-sentiment.html
+
+**Masks, helmets and headbands: what are footballers allowed to wear on their heads?**\
+`Rules state head covers must be black or the same colour as the team shirt, and cannot endanger the person wearing it or any other player`\
+https://nytimes.com/athletic/6231985/2025/03/28/football-headgear-helmet-mask-mateta-palace/
+
 **Myanmar Earthquake Aid Complicated by Its Isolation**\
 `Earthquake-stricken Myanmar faces a humanitarian crisis. Political complexities are likely to hamper international aid delivery, leaving vulnerable people at risk.`\
 https://nytimes.com/2025/03/28/world/asia/myanmar-earthquake-aid.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6238675/2025/03/28/abdul-carter-penn-state-pro-day-
 **Is Kermit the Frog What the Class of 2025 Needs?**\
 `The University of Maryland says it is honoring Jim Henson, an alumnus, with its choice of commencement speaker. Some students think it is avoiding “real issues.”`\
 https://nytimes.com/2025/03/28/style/kermit-university-of-maryland-commencement-reaction.html
-
-**Watch: Who should win NBA Rookie of the Year?**\
-`NBA Daily discuss Stephon Castle, Zaccharie Risacher, Alex Sarr and Jaylen Wells.`\
-https://nytimes.com/athletic/6238111/2025/03/28/nba-daily-rookie-of-year-award/
-
-**Trump Pardons Trevor Milton, Founder of Bankrupt Truck Maker Nikola**\
-`President Trump’s intervention came while Mr. Milton was appealing his conviction on securities and wire fraud charges.`\
-https://nytimes.com/2025/03/28/business/trump-trevor-milton-pardon.html
 

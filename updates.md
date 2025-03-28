@@ -1,3 +1,11 @@
+**Myanmar Earthquake Aid Complicated by Its Isolation**\
+`Earthquake-stricken Myanmar faces a humanitarian crisis. Political complexities are likely to hamper international aid delivery, leaving vulnerable people at risk.`\
+https://nytimes.com/2025/03/28/world/asia/myanmar-earthquake-aid.html
+
+**Grizzlies fire coach Taylor Jenkins with 9 games left in regular season**\
+`The Grizzlies are 44-29 and in fifth place in the Western Conference standings. The team has nine regular-season games remaining.`\
+https://nytimes.com/athletic/6238723/2025/03/28/memphis-grizzlies-taylor-jenkins-fired/
+
 **Aftermath of Israeli Strikes Near Beirut**\
 `The Israeli military launched airstrikes in the neighborhood of Dahiya, on the southern edges of the Lebanese capital. Israel said it had targeted a site that stored Hezbollah drones.`\
 https://nytimes.com/video/world/middleeast/100000010078968/lebanon-beirut-israel-airstrikes.html
