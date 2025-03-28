@@ -1,3 +1,11 @@
+**Alexandra Eala's wild run in Miami comes to an end**\
+`Eala nearly pulled off yet another hard-to-fathom upset in her semis match against Pegula on Thursday night at Hard Rock Stadium.`\
+https://nytimes.com/athletic/6237760/2025/03/28/alexandra-eala-miami-open-semifinals/
+
+**Floods Sweep South Texas and Nearby Border Cities in Mexico**\
+`Severe storms dumped about half a year’s rainfall in two days, leading to flash floods across both sides of the border.`\
+https://nytimes.com/2025/03/28/us/texas-mexico-flooding-rain.html
+
 **Xi Jinping Meets Global Business Leaders Amid Trade Tensions**\
 `German investment in China’s auto industry has been one of the few bright spots as foreign investment has slowed to a crawl.`\
 https://nytimes.com/2025/03/28/business/china-xi-ceos-mercedes-bmw-qualcomm.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6200412/2025/03/28/jack-hinshelwood-brighton-backgr
 **Steve Bull at 60: Wolves' cult hero whose legendary status remains undimmed**\
 `The club's record goalscorer went from working in a bed factory to playing for England at the World Cup in a little over five years`\
 https://nytimes.com/athletic/6235168/2025/03/28/steve-bull-60-wolves/
-
-**RB Leipzig, a revamped academy and a club on a mission to develop their own**\
-`The club have a reputation for advancing careers but are still to create their own stars. It’s something they are attempting to change`\
-https://nytimes.com/athletic/6232674/2025/03/28/leipzig-academy-baum-ai/
-
-**Why do Real Madrid make the fewest substitutions in Spain?**\
-`As Madrid chase a first treble in the club’s history, their manager Carlo Ancelotti remains reluctant to use his bench`\
-https://nytimes.com/athletic/6235073/2025/03/28/real-madrid-carlo-ancelotti-substitutes/
 
