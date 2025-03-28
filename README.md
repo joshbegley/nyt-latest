@@ -1,3 +1,19 @@
+**Rick Tocchet's future, the plan for Tom Willander: Four Canucks takeaways**\
+`Plus: How Dylan Holloway's success seems to be changing industry opinion on the usefulness of offer sheets.`\
+https://nytimes.com/athletic/6237539/2025/03/28/canucks-rick-tocchet-tom-willander/
+
+**Watch: What role does the Spanish media play in Real Madrid's transfer dealings?**\
+`The Spanish media’s influence in helping Real Madrid secure transfers and how Trent Alexander-Arnold could be Toni Kroos' replacement.`\
+https://nytimes.com/athletic/6236935/2025/03/28/athletic-fc-podcast-alexander-arnold-real-madrid/
+
+**Penguins promote hyped prospects Rutger McGroarty, Ville Koivunen to NHL**\
+`McGroarty and Koivunen, two of the more hyped Penguins prospects in quite some time, have been recalled from the AHL.`\
+https://nytimes.com/athletic/6238558/2025/03/28/penguins-prospects-rutger-mcgroarty-ville-koivunen-nhl/
+
+**The Windup: An unbelievable Opening Day streak**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6237838/2025/03/28/tyler-oneill-opening-day-home-run-the-windup/
+
 **Trump Orders Smithsonian Institution to Promote ‘American Greatness’**\
 `The president complained in an executive order that the Smithsonian had advanced “narratives that portray American and Western values as inherently harmful and oppressive.”`\
 https://nytimes.com/2025/03/28/arts/design/trump-smithsonian-institution-eo.html
@@ -17,20 +33,4 @@ https://nytimes.com/2025/03/28/us/politics/kennedy-snap.html
 **Frantic Effort Underway in Lithuania to Retrieve Vehicle Carrying 4 American Soldiers**\
 `The search in dense, muddy swampland came after the U.S. Army vehicle disappeared in a waterlogged area on Tuesday.`\
 https://nytimes.com/2025/03/28/world/europe/missing-american-soldiers-lithuania-vehicle.html
-
-**‘I’d Always Wanted to Make Biryani, and This Did Not Disappoint’**\
-`Naz Deravian’s reader-favorite chicken biryani is a beautiful weekend dish, its preparation a satisfying process with delicious results.`\
-https://nytimes.com/2025/03/28/dining/id-always-wanted-to-make-biryani-and-this-did-not-disappoint.html
-
-**She Captured Some of the Most Famous Faces. Then She Put Them in a Drawer.**\
-`The actress Candy Clark documented her unlikely journey through 1970s Hollywood in a series of Polaroids, now published in a memoir.`\
-https://nytimes.com/2025/03/28/style/candy-clark-tight-heads-polaroids.html
-
-**Security Breaches Can Be Fixed. People Without Honor Can’t Be Trusted.**\
-`There’s a reason every warrior society has a code.`\
-https://nytimes.com/2025/03/28/opinion/signal-group-chat-military.html
-
-**Is Skipping Really a Good Workout?**\
-`It feels like play. Here’s what fitness experts say about using the activity as a training tool.`\
-https://nytimes.com/2025/03/28/well/move/skipping-fitness-benefits.html
 
