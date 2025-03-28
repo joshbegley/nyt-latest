@@ -1,3 +1,11 @@
+**Final Cuts Will Eliminate U.S. Aid Agency in All but Name**\
+`The staff of U.S.A.I.D. will be reduced to some 15 legally required positions. The agency employed about 10,000 people before the Trump administration entered office.`\
+https://nytimes.com/2025/03/28/us/politics/usaid-trump-doge-cuts.html
+
+**Trump Tones Down His Rhetoric About Canada After Call With Its Leader**\
+`The president and Canada’s new prime minister, Mark Carney, spoke for the first time on Friday and promised to begin negotiations on trade.`\
+https://nytimes.com/2025/03/28/us/politics/trump-canada-carney.html
+
 **Visiting Greenland, Vance Finds the Weather and the Reception Chilly**\
 `The trip was both a reconnaissance mission and a passive-aggressive reminder of President Trump’s determination to fulfill his territorial ambitions, no matter the obstacles.`\
 https://nytimes.com/2025/03/28/us/politics/greenland-jd-vance-usha.html
