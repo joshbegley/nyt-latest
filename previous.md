@@ -1,40 +1,40 @@
-**Texas Tech is Elite: Red Raiders rally from 16 down to top Arkansas in OT**\
-`Texas Tech mounts second-largest comeback in a Sweet 16 game to advance to the Elite Eight for the third time in school history. `\
-https://nytimes.com/athletic/6237626/2025/03/28/arkansas-john-calipari-elite-eight-texas-tech/
+**City mailbag: Club World Cup starters, McAtee's missing minutes and a Bernardo bounceback?**\
+`Sam Lee answers your questions about the latest happenings at the Etihad`\
+https://nytimes.com/athletic/6235211/2025/03/28/manchester-city-mailbag-mcatee-silva-club-world-cup/
 
-**Fulham, quietly, are in Champions League contention. They deserve more credit**\
-`Marco Silva's side are three points off fifth, yet they have not attracted the kind of praise reserved for Bournemouth, who are 10th`\
-https://nytimes.com/athletic/6215147/2025/03/28/fulham-marco-silva-europe/
+**Results: Would you rather Forest won the FA Cup or qualified for the Champions League?**\
+`We asked Nottingham Forest subscribers if they would rather win the FA Cup or qualify for the Champions League. Here are the results...`\
+https://nytimes.com/athletic/6235491/2025/03/28/forest-fa-cup-champions-league/
 
-**Quansah, Isak, Gordon and Gomez: What we know about Liverpool and Newcastle transfer links**\
-`Could Jarell Quansah be heading to Newcastle? Is it possible Alexander Isak could move the other way?`\
-https://nytimes.com/athletic/6235534/2025/03/28/quansah-isak-gordon-gomez-liverpool-newcastle/
+**The goal Hojlund keeps trying to score - and why it blocked his ketchup**\
+`A breakdown of the factors that caused Hojlund's 21-match goal drought for United`\
+https://nytimes.com/athletic/6143414/2025/03/28/rasmus-hojlund-ketchup-shooting-from-wide/
 
-**Why are there no Premier League games this weekend? And is this new?**\
-`If you live for Premier League action, you may be disappointed on Saturday and Sunday - despite the two-week international break being over`\
-https://nytimes.com/athletic/6227277/2025/03/28/premier-league-fa-cup-weekend-why/
+**The making of Jack Hinshelwood, a homegrown Brighton talent to rival their best imports**\
+`The 19-year-old has unusual leadership skills for a player of his age and a versatility that makes him valuable for club and country`\
+https://nytimes.com/athletic/6200412/2025/03/28/jack-hinshelwood-brighton-background/
 
-**Friday Briefing**\
-`A shock to the auto industry.`\
-https://nytimes.com/2025/03/28/briefing/auto-tariffs-ukraine-gaza.html
+**Steve Bull at 60: Wolves' cult hero whose legendary status remains undimmed**\
+`The club's record goalscorer went from working in a bed factory to playing for England at the World Cup in a little over five years`\
+https://nytimes.com/athletic/6235168/2025/03/28/steve-bull-60-wolves/
 
-**The New York Times in Print for Friday, March 28, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/03/28/todays-new-york-times
+**RB Leipzig, a revamped academy and a club on a mission to develop their own**\
+`The club have a reputation for advancing careers but are still to create their own stars. It’s something they are attempting to change`\
+https://nytimes.com/athletic/6232674/2025/03/28/leipzig-academy-baum-ai/
 
-**I Am the Turkish President’s Main Challenger. I Was Arrested.**\
-`President Erdogan of Turkey has jailed me because he knows he cannot beat me in an election.`\
-https://nytimes.com/2025/03/28/opinion/mayor-imamoglu-arrested-erdogan.html
+**Why do Real Madrid make the fewest substitutions in Spain?**\
+`As Madrid chase a first treble in the club’s history, their manager Carlo Ancelotti remains reluctant to use his bench`\
+https://nytimes.com/athletic/6235073/2025/03/28/real-madrid-carlo-ancelotti-substitutes/
 
-**Men's March Madness projections 2025: Which Sweet 16 teams have the best odds to advance?**\
-`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
-https://nytimes.com/athletic/6198047/2025/03/28/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+**Bigger than the question of Postecoglou's future is the question of what Spurs want to be (again)**\
+`If Spurs do decide to change manager at the end of this season, it will already be their third summer manager hunt of this decade`\
+https://nytimes.com/athletic/6228454/2025/03/28/tottenham-manager-postecoglou-iraola/
 
-**Cooper Flagg's 30 points, complete performance send Duke to Elite Eight**\
-`Thursday was Flagg's true breakout of the postseason: 30 points on 9-of-19 shooting, seven assists, six rebounds, three blocks and a steal.`\
-https://nytimes.com/athletic/6237610/2025/03/28/cooper-flagg-duke-arizona-march-madness/
+**Geovany Quenda is going places. Fast. 'I see similarities with Lamine Yamal'**\
+`The 17-year-old is joining Chelsea in 2026 for £40million. This is his (short) story so far. Many are convinced he will be a global star`\
+https://nytimes.com/athletic/6235533/2025/03/28/geovany-quenda-chelsea-signing-sporting-lisbon-profile/
 
-**Flyers' strange day starts with John Tortorella's firing, ends with Cam York's full-game benching**\
-`Team leaders praised their former coach after they beat the Canadiens — without a defenseman who dressed but didn't play.`\
-https://nytimes.com/athletic/6237681/2025/03/28/flyers-tortorella-york-benching/
+**Milos Kerkez interview: 'When people say they don't see stuff about you, it's a lie. I just do my job'**\
+`The Bournemouth left-back is enjoying a stellar season and attracting interest from Europe's top clubs - The Athletic went to meet him`\
+https://nytimes.com/athletic/6229619/2025/03/28/milos-kerkez-interview-bournemouth-liverpool-iraola/
 
