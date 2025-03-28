@@ -1,3 +1,7 @@
+**In 10 matches David Moyes has transformed Everton. Here's how he did it...**\
+`Moyes has built on the foundations left by Dyche to pull Everton clear of trouble much sooner than expected`\
+https://nytimes.com/athletic/6235505/2025/03/28/in-10-matches-david-moyes-has-transformed-everton-heres-how-he-did-it/
+
 **Alex Ovechkin thwarted by Jonas Brodin, Filip Gustavsson and Wild: 4 takeaways**\
 `The Capitals great, who is chasing the NHL goals record, was shut out, but saluted his longtime victim in net, Marc-Andre Fleury, postgame.`\
 https://nytimes.com/athletic/6236971/2025/03/28/wild-alex-ovechkin-brodin-gustavsson/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/28/style/daniel-nester-geno-yoscovits-wedding.html
 **Growing Up in St. Croix, He Asked Her to the Senior Prom Underwater**\
 `Harry Hoffman and Anne Hardee spent much of their youth in the water, on the water or by the water, often snacking on mangoes.`\
 https://nytimes.com/2025/03/28/style/anne-hardee-harry-hoffman-wedding.html
-
-**They Shared a Commitment to Sobriety. Then, to Each Other.**\
-`Greg Reck and Emily Starkey met at a 12-step meeting seven years ago and bonded over their similar backgrounds and career pursuits.`\
-https://nytimes.com/2025/03/28/style/emily-starkey-greg-reck-wedding.html
 

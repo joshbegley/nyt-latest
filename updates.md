@@ -1,3 +1,7 @@
+**Alex Ovechkin thwarted by Jonas Brodin, Filip Gustavsson and Wild: 4 takeaways**\
+`The Capitals great, who is chasing the NHL goals record, was shut out, but saluted his longtime victim in net, Marc-Andre Fleury, postgame.`\
+https://nytimes.com/athletic/6236971/2025/03/28/wild-alex-ovechkin-brodin-gustavsson/
+
 **For Some Autocrats, Even Rigged Elections Can Be Too Much of a Threat**\
 `Protests are raging in Turkey after the arrest of the country’s most prominent opposition politician.`\
 https://nytimes.com/2025/03/28/world/middleeast/for-some-autocrats-even-rigged-elections-can-be-too-much-of-a-threat.html

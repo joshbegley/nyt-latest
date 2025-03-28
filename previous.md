@@ -1,3 +1,7 @@
+**Alex Ovechkin thwarted by Jonas Brodin, Filip Gustavsson and Wild: 4 takeaways**\
+`The Capitals great, who is chasing the NHL goals record, was shut out, but saluted his longtime victim in net, Marc-Andre Fleury, postgame.`\
+https://nytimes.com/athletic/6236971/2025/03/28/wild-alex-ovechkin-brodin-gustavsson/
+
 **For Some Autocrats, Even Rigged Elections Can Be Too Much of a Threat**\
 `Protests are raging in Turkey after the arrest of the country’s most prominent opposition politician.`\
 https://nytimes.com/2025/03/28/world/middleeast/for-some-autocrats-even-rigged-elections-can-be-too-much-of-a-threat.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/28/style/anne-hardee-harry-hoffman-wedding.html
 **They Shared a Commitment to Sobriety. Then, to Each Other.**\
 `Greg Reck and Emily Starkey met at a 12-step meeting seven years ago and bonded over their similar backgrounds and career pursuits.`\
 https://nytimes.com/2025/03/28/style/emily-starkey-greg-reck-wedding.html
-
-**Quote of the Day: Even With Truce Talks, Ukraine’s War Rages On**\
-`Quotation of the Day for Friday, March 28, 2025.`\
-https://nytimes.com/2025/03/27/pageoneplus/quote-of-the-day-even-with-truce-talks-ukraines-war-rages-on.html
 
