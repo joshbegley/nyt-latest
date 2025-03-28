@@ -1,3 +1,23 @@
+**Elon Musk Says He Has Sold X to xAI**\
+`Mr. Musk said the deal valued xAI, his artificial intelligence start-up, at $80 billion, and X at $30 billion.`\
+https://nytimes.com/2025/03/28/technology/musk-x-xai.html
+
+**Jimmy Snuggerud expected to sign with Blues, ending Gophers career: Source**\
+`Signing burns the first year of Snuggerud's entry-level contract, which means the 2025-26 season will be the second year of the deal.`\
+https://nytimes.com/athletic/6238471/2025/03/28/jimmy-snuggerud-blues-contract/
+
+**A Powerful Earthquake Devastated Myanmar**\
+`Also, JD Vance went to Greenland. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/03/28/briefing/a-powerful-earthquake-devastated-myanmar.html
+
+**80,000 Pounds of Beef Stolen From Tennessee Slaughterhouse**\
+`The sheriff’s office in Grainger County, Tenn., is investigating the theft after shipments from a meat processing facility were loaded onto trucks and never reached their destinations.`\
+https://nytimes.com/2025/03/28/us/tennessee-beef-stolen-bean-station.html
+
+**Judge’s Order Slows Trump Deportation Plans**\
+`A temporary order will give some migrants a chance to convince the government that deporting them to “third countries” such as El Salvador would put them at risk.`\
+https://nytimes.com/2025/03/28/us/politics/trump-deportations-judge-order.html
+
 **My Teenage Son Has a Girlfriend. Do Her Parents Need to Know?**\
 `The magazine’s Ethicist columnist on what parents owe to other parents.`\
 https://nytimes.com/2025/03/28/magazine/teenagers-dating-ethics-parenting.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6239271/2025/03/28/duke-north-carolina-sweet-sixtee
 **Novak Djokovic nears yet another milestone en route to Miami Open final**\
 `If Djokovic is successful in the final of the Miami Open, it would give him 100 tour-level singles titles, joining Connors and Federer.`\
 https://nytimes.com/athletic/6239296/2025/03/28/novak-djokovic-milestone-miami-open-final/
-
-**What does Penn State TE Tyler Warren bring to NFL? 'He can do it all.'**\
-`NFL teams have asked him about the impressive moments during his college career. Warren would rather not say too much about himself.`\
-https://nytimes.com/athletic/6239263/2025/03/28/nfl-draft-2025-tyler-warren-penn-state/
-
-**Brazil sack Dorival after defeat to Argentina**\
-`Dorival leaves after 14 months in charge and two days after the side were defeated 4-1 by rivals Argentina on Tuesday.`\
-https://nytimes.com/athletic/6235219/2025/03/28/brazil-manager-dorival-sacked/
-
-**Final Cuts Will Eliminate U.S. Aid Agency in All but Name**\
-`The staff of U.S.A.I.D. will be reduced to some 15 legally required positions. The agency employed about 10,000 people before the Trump administration entered office.`\
-https://nytimes.com/2025/03/28/us/politics/usaid-trump-doge-cuts.html
-
-**Trump Tones Down His Rhetoric About Canada After Call With Its Leader**\
-`The president and Canada’s new prime minister, Mark Carney, spoke for the first time on Friday and promised to begin negotiations on trade.`\
-https://nytimes.com/2025/03/28/us/politics/trump-canada-carney.html
-
-**Visiting Greenland, Vance Finds the Weather and the Reception Chilly**\
-`The trip was both a reconnaissance mission and a passive-aggressive reminder of President Trump’s determination to fulfill his territorial ambitions, no matter the obstacles.`\
-https://nytimes.com/2025/03/28/us/politics/greenland-jd-vance-usha.html
 
