@@ -1,3 +1,7 @@
+**Corrections: March 28, 2025**\
+`Corrections that appeared in print on Friday, March 28, 2025.`\
+https://nytimes.com/2025/03/27/pageoneplus/corrections-march-28-2025.html
+
 **The Angels planned to compete in 2025. Game 1 was not a good start.**\
 `This season will not be defined by the first game. All the Angels can do is hope that this opener has no bearing on what's to come.`\
 https://nytimes.com/athletic/6237126/2025/03/27/can-angels-turn-it-around-2025-opening-day/
