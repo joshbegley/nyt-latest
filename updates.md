@@ -1,3 +1,8 @@
+**The 3 best bets to add to your FA Cup quarter-final accumulator**\
+`Sam Tighe outlines the three best FA Cup bets to add to your accumulator ahead of this weekend’s quarter-final showdowns. 
+`\
+https://nytimes.com/athletic/6236314/2025/03/28/fa-cup-quarter-final-best-bets-accumulator/
+
 **How to watch No. 2 Duke vs. No. 3 UNC in women's Sweet 16**\
 `The Tobacco Road rivalry takes center stage in the women's NCAA Tourney on Friday.`\
 https://nytimes.com/athletic/6228758/2025/03/28/duke-unc-womens-ncaa-tournament-sweet-16-how-to-watch/
