@@ -1,3 +1,15 @@
+**Canada accused of 'gross negligence' with Davies injury by Bayern executive**\
+`Davies suffered a torn ACL in his right knee, an injury which requires surgery and several months of rehabilitation.`\
+https://nytimes.com/athletic/6238131/2025/03/28/bayern-munich-canada-alphonso-davies-injury/
+
+**Ten pressing concerns for the Oilers to solve before the NHL playoffs**\
+`Now that the Oilers have just 10 games left on their schedule, these 10 concerns are worth mentioning and monitoring.`\
+https://nytimes.com/athletic/6237912/2025/03/28/oilers-nhl-playoffs-connor-mcdavid-injury/
+
+**Guardiola says Man City players and coaches do not deserve bonus for their season**\
+`Guardiola did not even want to entertain the idea of himself, his players and fellow coaching staff earning an end-of-season bonus.`\
+https://nytimes.com/athletic/6238333/2025/03/28/man-city-guardiola-players-coaches-bonus/
+
 **Olmo set for three weeks out with groin injury**\
 `The Spain international was forced off in the first half of Barcelona's 3-0 victory over Osasuna on Thursday.`\
 https://nytimes.com/athletic/6237966/2025/03/28/dani-olmo-injury-update-barcelona/
