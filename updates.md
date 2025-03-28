@@ -1,3 +1,15 @@
+**LeBron James, Lakers searching for answers after stunning loss to Bulls**\
+`Thursday's loss on Josh Giddey's half-court buzzer-beater was the Lakers' eighth setback in their past 12 games.`\
+https://nytimes.com/athletic/6237843/2025/03/28/lakers-loss-bulls-lebron-james/
+
+**Inflation Remained Sticky Ahead of Trump’s Escalating Trade War**\
+`The Federal Reserve’s preferred inflation measure showed underlying price pressures persisting in February.`\
+https://nytimes.com/2025/03/28/business/economy/us-inflation-pce-trump-trade-tariffs.html
+
+**Areas under junta control are the hardest hit by the Myanmar quake.**\
+`Military rulers have been criticized for blocking delivery of international aid during past disasters, but this time the junta is already asking for help.`\
+https://nytimes.com/live/2025/03/28/world/myanmar-earthquake/areas-under-junta-control-are-the-hardest-hit-by-the-myanmar-quake
+
 **‘Yellowjackets’ Season 3, Episode 8 Recap: ‘Eat It’**\
 `A familiar face comes back into the picture, but it’s a face with a different name. And questionable motives.`\
 https://nytimes.com/2025/03/28/arts/television/yellowjackets-recap-season-3-episode-8.html
