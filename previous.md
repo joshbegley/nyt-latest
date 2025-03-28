@@ -1,3 +1,27 @@
+**Frantic Effort Underway in Lithuania to Retrieve Vehicle Carrying 4 American Soldiers**\
+`The search in dense, muddy swampland came after the U.S. Army vehicle disappeared in a waterlogged area on Tuesday.`\
+https://nytimes.com/2025/03/28/world/europe/missing-american-soldiers-lithuania-vehicle.html
+
+**‘I’d Always Wanted to Make Biryani, and This Did Not Disappoint’**\
+`Naz Deravian’s reader-favorite chicken biryani is a beautiful weekend dish, its preparation a satisfying process with delicious results.`\
+https://nytimes.com/2025/03/28/dining/id-always-wanted-to-make-biryani-and-this-did-not-disappoint.html
+
+**She Captured Some of the Most Famous Faces. Then She Put Them in a Drawer.**\
+`The actress Candy Clark documented her unlikely journey through 1970s Hollywood in a series of Polaroids, now published in a memoir.`\
+https://nytimes.com/2025/03/28/style/candy-clark-tight-heads-polaroids.html
+
+**Security Breaches Can Be Fixed. People Without Honor Can’t Be Trusted.**\
+`There’s a reason every warrior society has a code.`\
+https://nytimes.com/2025/03/28/opinion/signal-group-chat-military.html
+
+**Is Skipping Really a Good Workout?**\
+`It feels like play. Here’s what fitness experts say about using the activity as a training tool.`\
+https://nytimes.com/2025/03/28/well/move/skipping-fitness-benefits.html
+
+**Five Horror Movies to Stream Now**\
+`This month’s picks include everyday evildoers, Indonesian demons and a smug Brazilian serial killer.`\
+https://nytimes.com/2025/03/28/movies/five-horror-movies-to-stream-now.html
+
 **Peter Schrager leaving Fox Sports, NFLN, likely heading to ESPN: Sources**\
 `If the deal with ESPN is finalized, Schrager is expected to be on the network's daily, including "NFL Live," "Get Up" and "First Take."`\
 https://nytimes.com/athletic/6238488/2025/03/28/peter-schrager-fox-sports-nfl-network-espn/
@@ -9,20 +33,4 @@ https://nytimes.com/athletic/6198047/2025/03/28/mens-march-madness-projections-2
 **Trump Deportation Fight Reaches Supreme Court**\
 `The Trump administration asked the justices to allow it to use a wartime law to continue deportations of Venezuelans with little or no due process.`\
 https://nytimes.com/2025/03/28/us/politics/trump-deportations-supreme-court.html
-
-**Overwhelmed Myanmar Hospital Treats Quake Victims in Parking Lot**\
-`Patients had to lie on cardboard or directly on the concrete outside the main hospital in Mandalay. Even before the earthquake, the health care system in Myanmar was under stress.`\
-https://nytimes.com/2025/03/28/world/asia/myanmar-earthquake-mandalay-general-hospital.html
-
-**Lowetide: Oilers' anticipated spring signing season gets underway**\
-`The Oilers are reportedly signing Joshua Samanski, signalling an active spring of signings.`\
-https://nytimes.com/athletic/6235118/2025/03/28/oilers-joshua-samanski-signing/
-
-**U.S. Revives Tough Demands in Reworked Deal for Ukraine’s Minerals**\
-`Officials in Kyiv say the country cannot possibly accept the proposal and that new negotiations would be needed. But they have not rejected it outright, which would anger the White House.`\
-https://nytimes.com/2025/03/28/world/europe/ukraine-minerals-deal-us.html
-
-**Flying to Greenland, Vance Is Visiting a Place That Doesn’t Want Him**\
-`Vice President JD Vance’s trip to an island that President Trump wants to “get” is a scaled-back version of the original White House plan.  “He’s not welcome,” one Greenlander said.`\
-https://nytimes.com/2025/03/28/world/europe/jd-vance-greenland-visit-denmark-us.html
 
