@@ -1,3 +1,7 @@
+**Dachshund Lost on Australian Island Is Still Alive, but Elusive**\
+`A year after getting loose on Kangaroo Island, Valerie is still out there.`\
+https://nytimes.com/2025/03/28/world/australia/dachshund-dog-australia-island.html
+
 **Elise Stefanik Is the First Casualty of the Great Trump Disillusionment**\
 `Republicans may seem oblivious to voter discomfort with the administration’s excesses, but Elise Stefanik’s pulled nomination shows they see trouble ahead.`\
 https://nytimes.com/live/2025/03/24/opinion/thepoint/elise-stefanik-democrats-trump
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/03/28/upshot/flashback.html
 **UConn star Paige Bueckers to enter 2025 WNBA Draft**\
 `Bueckers is averaging 19.2 points and 4.8 assists while shooting 41.1 percent from 3-point range this season.`\
 https://nytimes.com/athletic/6239019/2025/03/28/uconn-paige-bueckers-declare-2025-wnba-draft/
-
-**Protests Demanding Restoration of Monarchy in Nepal Turn Deadly**\
-`At least two people were killed and dozens injured as followers of the last king demanded the restoration of a monarchy that was dissolved in 2008.`\
-https://nytimes.com/2025/03/28/world/asia/nepal-protests-monarchy-violence.html
 

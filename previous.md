@@ -1,3 +1,7 @@
+**Elise Stefanik Is the First Casualty of the Great Trump Disillusionment**\
+`Republicans may seem oblivious to voter discomfort with the administration’s excesses, but Elise Stefanik’s pulled nomination shows they see trouble ahead.`\
+https://nytimes.com/live/2025/03/24/opinion/thepoint/elise-stefanik-democrats-trump
+
 **Tug of War Continues Over Where to Hear Khalil Deportation Case**\
 `The government wants the detainee’s case heard in Louisiana, where an appellate judge may be friendlier. At a hearing in Newark, one of his lawyers called the situation “Kafkaesque.”`\
 https://nytimes.com/2025/03/28/nyregion/mahmoud-khalil-deportation-case-hearing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6239019/2025/03/28/uconn-paige-bueckers-declare-202
 **Protests Demanding Restoration of Monarchy in Nepal Turn Deadly**\
 `At least two people were killed and dozens injured as followers of the last king demanded the restoration of a monarchy that was dissolved in 2008.`\
 https://nytimes.com/2025/03/28/world/asia/nepal-protests-monarchy-violence.html
-
-**The Gen X Career Meltdown**\
-`Just when they should be at their peak, experienced workers in creative fields find that their skills are all but obsolete.`\
-https://nytimes.com/interactive/2025/03/28/style/gen-x-creative-work.html
 
