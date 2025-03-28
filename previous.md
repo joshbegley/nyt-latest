@@ -1,3 +1,7 @@
+**Kevin Willard addresses future at Maryland: 'I don’t know what I’m doing'**\
+`"Right now my biggest concerns in life are, I don’t know who my boss is going to be,” Willard said after his team's loss to Florida.`\
+https://nytimes.com/athletic/6237472/2025/03/27/kevin-willard-maryland-coach-villanova/
+
 **Newly energetic Astros notch Opening Day win over Mets: 'It's a different club'**\
 `The Astros made it a priority to infuse some extra energy into their clubhouse during an offseason filled with change. So far, so good. `\
 https://nytimes.com/athletic/6237331/2025/03/27/astros-opening-day-energy-cam-smith-debut/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6237144/2025/03/27/florida-gators-maryland-elite-ei
 **Braves' bullpen falters badly in seventh, blows lead in opening loss**\
 `Chris Sale settled down and left the game with a lead before the bullpen unraveled.`\
 https://nytimes.com/athletic/6237256/2025/03/27/braves-bullpen-chris-sale-opening-day/
-
-**CoreWeave Scales Back Ambitions for Its I.P.O.**\
-`The company, which originally expected its shares to be priced between $47 and $55, will ask for $40 a share in a sign of stock market uncertainty.`\
-https://nytimes.com/2025/03/27/technology/coreweave-scales-back-ambitions-for-its-ipo.html
 

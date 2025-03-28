@@ -1,3 +1,7 @@
+**The DOGE Playbook Targeting Federal Agencies**\
+`The cost-cutting strategy of the group, led by billionaire Elon Musk, has played out at more than 30 agencies so far.`\
+https://nytimes.com/interactive/2025/03/27/us/politics/doge-playbook-musk-cuts.html
+
 **Kevin Willard addresses future at Maryland: 'I don’t know what I’m doing'**\
 `"Right now my biggest concerns in life are, I don’t know who my boss is going to be,” Willard said after his team's loss to Florida.`\
 https://nytimes.com/athletic/6237472/2025/03/27/kevin-willard-maryland-coach-villanova/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6198047/2025/03/27/mens-march-madness-projections-2
 **Florida stays hot, surges past Maryland into Elite Eight with dominant 2nd half**\
 `The Gators, winners of nine straight games, advanced to the Elite Eight for the 10th time in school history. `\
 https://nytimes.com/athletic/6237144/2025/03/27/florida-gators-maryland-elite-eight/
-
-**Braves' bullpen falters badly in seventh, blows lead in opening loss**\
-`Chris Sale settled down and left the game with a lead before the bullpen unraveled.`\
-https://nytimes.com/athletic/6237256/2025/03/27/braves-bullpen-chris-sale-opening-day/
 
