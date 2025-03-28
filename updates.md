@@ -1,3 +1,7 @@
+**Book Club: Let’s Talk About Han Kang’s ‘We Do Not Part’**\
+`This Korean novel by the 2024 winner of the Nobel Prize in Literature turns a pet-sitting mission into a haunting reflection on grief and memory.`\
+https://nytimes.com/2025/03/28/books/review/podcast-han-kang-book-club.html
+
 **Welcome to England, Thomas Tuchel – where Germans can still be subjected to infantile innuendo**\
 `Harry Redknapp's attempts at comedy made England look very small, as did the audience's guffawing reaction as he spoke at a charity event`\
 https://nytimes.com/athletic/6238531/2025/03/28/tuchel-redknapp-england-germany/
