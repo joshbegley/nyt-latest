@@ -1,3 +1,7 @@
+**Flyers' strange day starts with John Tortorella's firing, ends with Cam York's full-game benching**\
+`Team leaders praised their former coach after they beat the Canadiens — without a defenseman who dressed but didn't play.`\
+https://nytimes.com/athletic/6237681/2025/03/28/flyers-tortorella-york-benching/
+
 **Men's March Madness projections 2025: Which Sweet 16 teams have the best odds to advance?**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/03/28/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
