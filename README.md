@@ -1,3 +1,7 @@
+**Powerful Earthquake Shakes Southeast Asia**\
+`People in Myanmar and Thailand felt tremors.`\
+https://nytimes.com/video/world/asia/100000010078218/earthquake-myanmar-thailand.html
+
 **Jimmy Kimmel Updates the Never-Ending Signal Story**\
 `“There are many books and stories to come,” Kimmel said of the Trump administration’s leaky-group-chat scandal, comparing it to the Harry Potter saga.`\
 https://nytimes.com/2025/03/28/arts/television/jimmy-kimmel-signal-group-chat.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6237833/2025/03/28/chicago-cubs-2025-season-opener-
 **Word of the Day: simpatico**\
 `This word has appeared in 23 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/03/28/learning/word-of-the-day-simpatico.html
-
-**Alexandra Eala's wild run in Miami comes to an end**\
-`Eala nearly pulled off yet another hard-to-fathom upset in her semis match against Pegula on Thursday night at Hard Rock Stadium.`\
-https://nytimes.com/athletic/6237760/2025/03/28/alexandra-eala-miami-open-semifinals/
 
