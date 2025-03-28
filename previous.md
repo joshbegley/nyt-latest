@@ -1,41 +1,40 @@
-**Live Updates: Strong Earthquake Strikes Myanmar**\
-`People in the city of Mandalay, near the epicenter of the 7.7.-magnitude quake, were rushed to the main hospital. Tremors were felt hundreds of miles away in Bangkok and Hanoi.`\
-https://nytimes.com/live/2025/03/28/world/myanmar-earthquake
+**On Trump, Democrats and a New Era of Politics: A Look at the Year Ahead**\
+`Special elections are already pointing to a familiar pattern.`\
+https://nytimes.com/2025/03/28/upshot/trump-democrats-politics-elections.html
 
-**Map: 7.7-Magnitude Earthquake Strikes Myanmar**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/03/28/world/asia/myanmar-earthquake-tracker.html
+**The ‘Stuff’ of a New York Legend, From Skateboards to $12,000 Sweaters**\
+`A new book collects the Paper Magazine co-founder Kim Hastreiter’s most treasured belongings, and friends.`\
+https://nytimes.com/2025/03/28/books/review/kim-hastreiter-stuff.html
 
-**The quake also shook southern China, causing injuries.**\
-`By Vivian Wang`\
-https://nytimes.com/live/2025/03/28/world/myanmar-earthquake/the-quake-also-shook-southern-china-causing-injuries
+**The New York Times News Quiz, March 28, 2025**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2025/03/28/briefing/quiz-trump-signal-columbia-ukraine.html
 
-**How to watch No. 2 Duke vs. No. 3 UNC in women's Sweet 16**\
-`The Tobacco Road rivalry takes center stage in the women's NCAA Tourney on Friday.`\
-https://nytimes.com/athletic/6228758/2025/03/28/duke-unc-womens-ncaa-tournament-sweet-16-how-to-watch/
+**‘Of Course People Are Angry’: Four Columnists Unpack What the Democrats Are Missing**\
+`Why has fighting and opposing Trump proved so hard? It’s not just because Republicans hold all the cards in government.`\
+https://nytimes.com/2025/03/28/opinion/democratic-party-trump.html
 
-**Rubio Says Information on Abducted Ukrainian Children Will Be Preserved**\
-`Lawmakers had feared that a database on children taken by Russia was deleted when funding was stopped as part of President Trump’s foreign aid cuts.`\
-https://nytimes.com/2025/03/28/us/politics/rubio-russia-ukraine-children.html
+**The Worst Habits for Your Back, According to Spine Surgeons**\
+`Avoid a world of hurt with these four tips.`\
+https://nytimes.com/2025/03/28/well/bad-habits-back-spine-surgeons.html
 
-**F1 rookie Ollie Bearman is building his dream life one race (and furniture piece) at a time**\
-`"How many people get to do a job that they truly love?"`\
-https://nytimes.com/athletic/6233410/2025/03/28/ollie-bearman-f1-haas/
+**Hillary Clinton: This Is Just Dumb**\
+`The Signal group chat is only the latest in a string of self-inflicted wounds by the new administration.`\
+https://nytimes.com/2025/03/28/opinion/trump-hegseth-signal-chat.html
 
-**Is betting on the WSL this season tougher than ever?**\
-`Julia Ranney takes a look at the season-defining moments that have reshaped the bookmakers’ perspective of the Women's Super League.`\
-https://nytimes.com/athletic/6236354/2025/03/28/womens-super-league-betting-odds-predictions/
+**Iran Signals Openness to Indirect Talks After Trump Letter**\
+`Tehran neither rejected negotiations nor accepted face-to-face talks in its response to President Trump’s letter calling for talks to curb Iran’s advancing nuclear program. Here’s what to know.`\
+https://nytimes.com/2025/03/28/world/middleeast/iran-negotiations-trump-letter.html
 
-**The 3 best bets to add to your FA Cup quarter-final accumulator**\
-`Sam Tighe outlines the three best FA Cup bets to add to your accumulator ahead of this weekend’s quarter-final showdowns. 
-`\
-https://nytimes.com/athletic/6236314/2025/03/28/fa-cup-quarter-final-best-bets-accumulator/
+**Alison Krauss Gets the Band Back Together**\
+`The bluegrass star reunites with Union Station on “Arcadia,” their first album in 14 years.`\
+https://nytimes.com/2025/03/28/podcasts/alison-krauss-gets-the-band-back-together.html
 
-**Why you should bet on the Cherries to secure a top-six league finish**\
-`Brett Koremenos explores the science behind Bournemouth’s successes and the odds around the Cherries finishing within the league's top six.`\
-https://nytimes.com/athletic/6236269/2025/03/28/premier-league-bournemouth-top-six-odds-predictions/
+**Trump’s Tariffs Leave Automakers With Tough, Expensive Choices**\
+`Carmakers are likely to face higher costs regardless of how they respond to President Trump’s 25 percent tariffs on cars and auto parts.`\
+https://nytimes.com/2025/03/28/business/trump-auto-tariffs-companies.html
 
-**Powerful Earthquake Shakes Southeast Asia**\
-`People in Myanmar and Thailand felt tremors.`\
-https://nytimes.com/video/world/asia/100000010078218/earthquake-myanmar-thailand.html
+**10 Wild Clips to Help You Understand Andy Kaufman’s Greatness**\
+`The standup, who’s the subject of a new documentary, expanded the ambition of comedy. These videos show how far ahead of his time he was.`\
+https://nytimes.com/2025/03/28/arts/television/andy-kaufman-video.html
 
