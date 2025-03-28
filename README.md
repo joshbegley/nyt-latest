@@ -1,6 +1,14 @@
+**Live Updates: Strong Earthquake Strikes Myanmar**\
+`People in the city of Mandalay, near the epicenter of the 7.7.-magnitude quake, were rushed to the main hospital. Tremors were felt hundreds of miles away in Bangkok and Hanoi.`\
+https://nytimes.com/live/2025/03/28/world/myanmar-earthquake
+
+**Map: 7.7-Magnitude Earthquake Strikes Myanmar**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/03/28/world/asia/myanmar-earthquake-tracker.html
+
 **The quake also shook southern China, causing injuries.**\
 `By Vivian Wang`\
-https://nytimes.com/2025/03/28/world/asia/the-quake-also-shook-southern-china-causing-injuries.html
+https://nytimes.com/live/2025/03/28/world/myanmar-earthquake/the-quake-also-shook-southern-china-causing-injuries
 
 **How to watch No. 2 Duke vs. No. 3 UNC in women's Sweet 16**\
 `The Tobacco Road rivalry takes center stage in the women's NCAA Tourney on Friday.`\
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6236269/2025/03/28/premier-league-bournemouth-top-s
 **Powerful Earthquake Shakes Southeast Asia**\
 `People in Myanmar and Thailand felt tremors.`\
 https://nytimes.com/video/world/asia/100000010078218/earthquake-myanmar-thailand.html
-
-**Jimmy Kimmel Updates the Never-Ending Signal Story**\
-`“There are many books and stories to come,” Kimmel said of the Trump administration’s leaky-group-chat scandal, comparing it to the Harry Potter saga.`\
-https://nytimes.com/2025/03/28/arts/television/jimmy-kimmel-signal-group-chat.html
-
-**Musk to Campaign in Wisconsin Ahead of Critical State Court Election**\
-`The billionaire is reprising another of the moves he did to help elect Donald J. Trump in November.`\
-https://nytimes.com/2025/03/28/us/politics/musk-wisconsin-supreme-court.html
 
