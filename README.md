@@ -1,3 +1,7 @@
+**Myanmar Earthquake Aid Complicated by Its Isolation**\
+`Earthquake-stricken Myanmar faces a humanitarian crisis. Political complexities are likely to hamper international aid delivery, leaving vulnerable people at risk.`\
+https://nytimes.com/2025/03/28/world/asia/myanmar-earthquake-aid.html
+
 **Aftermath of Israeli Strikes Near Beirut**\
 `The Israeli military launched airstrikes in the neighborhood of Dahiya, on the southern edges of the Lebanese capital. Israel said it had targeted a site that stored Hezbollah drones.`\
 https://nytimes.com/video/world/middleeast/100000010078968/lebanon-beirut-israel-airstrikes.html
@@ -6,8 +10,8 @@ https://nytimes.com/video/world/middleeast/100000010078968/lebanon-beirut-israel
 `Several people were killed in a building collapse and dozens more were missing as of Friday evening in Thailand, the authorities said.`\
 https://nytimes.com/video/world/asia/100000010078844/thailand-myanmar-earthquake-building.html
 
-**Memphis Grizzlies fire coach Taylor Jenkins**\
-`The Memphis Grizzlies have fired coach Taylor Jenkins, the team announced Friday.`\
+**Grizzlies fire coach Taylor Jenkins with 9 games left in regular season**\
+`The Grizzlies are 44-29 and in fifth place in the Western Conference standings. The team has nine regular-season games remaining.`\
 https://nytimes.com/athletic/6238723/2025/03/28/memphis-grizzlies-taylor-jenkins-fired/
 
 **In Oklahoma, Counting Migrant Students May Have Gone Too Far**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6238111/2025/03/28/nba-daily-rookie-of-year-award/
 **Trump Pardons Trevor Milton, Founder of Bankrupt Truck Maker Nikola**\
 `President Trump’s intervention came while Mr. Milton was appealing his conviction on securities and wire fraud charges.`\
 https://nytimes.com/2025/03/28/business/trump-trevor-milton-pardon.html
-
-**Maren Morris Lifts Herself Up, and 10 More New Songs**\
-`Hear tracks by Mumford & Sons, Mon Laferte, the Swell Season and others.`\
-https://nytimes.com/2025/03/28/arts/music/playlist-maren-morris-mumford-and-sons.html
 
