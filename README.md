@@ -1,3 +1,7 @@
+**Jean Rice, Advocate for the Homeless, Is Dead at 85**\
+`Homeless himself, he was for nearly two decades a pivotal member of Picture the Homeless, a group devoted to changing negative perceptions of the unhoused.`\
+https://nytimes.com/2025/03/28/nyregion/jean-rice-dead.html
+
 **At a Prison Appearance, a $50,000 Watch Stands Out**\
 `Kristi Noem’s trip to a prison in El Salvador drew social media attention for the homeland security secretary’s choice to wear a gold Rolex in such a setting.`\
 https://nytimes.com/2025/03/28/style/kristi-noem-venezuela-prison-rolex-watch.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/28/world/asia/myanmar-earthquake-thailand-mandalay.h
 **Heat Today: Bam Adebayo's leadership leads Miami through tough times: 'It reminds me of Tim Duncan'**\
 `Bam Adebayo's leadership through Miami's tough season draws rave reviews from coaches, teammates.`\
 https://nytimes.com/athletic/6238450/2025/03/28/bam-adebayo-tim-duncan-heat-leadership-nba/
-
-**Charlie Javice Found Guilty of Defrauding JPMorgan of $175 Million**\
-`Federal prosecutors convinced a jury that Ms. Javice, along with one of her executives, had faked much of her customer list before selling her start-up, Frank, to the bank.`\
-https://nytimes.com/2025/03/28/business/charlie-javice-jpmorgan-guilty.html
 
