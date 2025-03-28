@@ -1,3 +1,7 @@
+**The Angels planned to compete in 2025. Game 1 was not a good start.**\
+`This season will not be defined by the first game. All the Angels can do is hope that this opener has no bearing on what's to come.`\
+https://nytimes.com/athletic/6237126/2025/03/27/can-angels-turn-it-around-2025-opening-day/
+
 **A smash and a save in the sunshine: Not a bad opening act for the Yankees**\
 `Baseball is never more beautiful than it is on opening day, in the sunshine, with a whole season of possibility stretched out ahead.`\
 https://nytimes.com/athletic/6237147/2025/03/27/new-york-yankees-opening-day-win/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/27/us/politics/tufts-ice-crackdown.html
 **Mikaela Shiffrin, with Olympics on deck, puts an emphatic stamp on her season**\
 `Shiffrin sent herself into the pre-Olympic offseason in the best way possible, winning Thursday's slalom at the World Cup finals.`\
 https://nytimes.com/athletic/6237008/2025/03/27/mikaela-shiffrin-world-cup-finals-slalom-olympics/
-
-**Angel Reese supports brother Julian at Maryland's Sweet 16 game**\
-`The siblings both excel at rebounding. Angel proudly displayed a shirt Thursday that read “I’m from Baltimore” from her seat a few rows up.`\
-https://nytimes.com/athletic/6237032/2025/03/27/angel-reese-julian-reese-maryland-march-madness/
 
