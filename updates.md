@@ -1,3 +1,19 @@
+**At a Prison Appearance, a $50,000 Watch Stands Out**\
+`Kristi Noem’s trip to a prison in El Salvador drew social media attention for the homeland security secretary’s choice to wear a gold Rolex in such a setting.`\
+https://nytimes.com/2025/03/28/style/kristi-noem-venezuela-prison-rolex-watch.html
+
+**An Executive Editor Who Was the Last of His Kind**\
+`When Max Frankel ascended to The Times’s top spot in 1986, he set out to respect traditions while pushing forward a period of vast transformation.`\
+https://nytimes.com/2025/03/28/insider/max-frankel-editor.html
+
+**Elise Stefanik Is the First Casualty of the Great Trump Disillusionment**\
+`Republicans may seem oblivious to voter discomfort with the administration’s excesses, but Elise Stefanik’s pulled nomination shows they see trouble ahead.`\
+https://nytimes.com/2025/03/28/opinion/elise-stefanik-democrats-trump.html
+
+**Charlie Javice Found Guilty of Defrauding JPMorgan of $175 Million**\
+`Federal prosecutors convinced a jury that Ms. Javice, along with one of her executives, had faked much of her customer list before selling her start-up, Frank, to the bank.`\
+https://nytimes.com/2025/03/28/business/charlie-javice-jpmorgan-guilty.html
+
 **Dachshund Lost on Australian Island Is Still Alive, but Elusive**\
 `A year after getting loose on Kangaroo Island, Valerie is still out there.`\
 https://nytimes.com/2025/03/28/world/australia/dachshund-dog-australia-island.html
