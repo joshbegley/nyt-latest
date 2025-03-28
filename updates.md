@@ -1,3 +1,7 @@
+**An Earthquake Rocks Myanmar and Thailand**\
+`The 7.7-magnitude quake caused widespread damage in a country already in chaos because of civil war.`\
+https://nytimes.com/2025/03/28/world/asia/myanmar-thailand-earthquake-photos.html
+
 **Leafs swept by league-worst Sharks: Five takeaways**\
 `The Leafs hatched a last-minute comeback to force overtime, only to lose in a shootout to the Sharks for the second time this season.`\
 https://nytimes.com/athletic/6237840/2025/03/28/maple-leafs-lose-sharks/

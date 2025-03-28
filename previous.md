@@ -1,3 +1,7 @@
+**An Earthquake Rocks Myanmar and Thailand**\
+`The 7.7-magnitude quake caused widespread damage in a country already in chaos because of civil war.`\
+https://nytimes.com/2025/03/28/world/asia/myanmar-thailand-earthquake-photos.html
+
 **Leafs swept by league-worst Sharks: Five takeaways**\
 `The Leafs hatched a last-minute comeback to force overtime, only to lose in a shootout to the Sharks for the second time this season.`\
 https://nytimes.com/athletic/6237840/2025/03/28/maple-leafs-lose-sharks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6233458/2025/03/28/toronto-raptors-canadian-dollar-
 **Nervous? Ilia Malinin didn't show it once he got into 'that flow state'**\
 `The defending world champion said he was more unsettled than usual, but it didn't stop him from nailing his elements in the short program. `\
 https://nytimes.com/athletic/6237091/2025/03/28/ilia-malinin-world-figure-skating-championships-short-program/
-
-**Dunk still has big part to play for Brighton - Hurzeler**\
-`Dunk has missed Brighton's last six matches but is set to return for the FA Cup quarter-final against Nottingham Forest on Saturday.`\
-https://nytimes.com/athletic/6238030/2025/03/28/brighton-dunk-hurzeler-fa-cup-team-news/
 

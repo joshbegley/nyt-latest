@@ -1,3 +1,16 @@
+**Trump Administration Live Updates: Vance to Lead Visit to U.S. Base in Greenland**\
+``\
+https://nytimes.com/live/2025/03/28/us/trump-greenland-vance-news
+
+**Listen: Brazil are a mess. What will it take to fix them?**\
+`The Totally Football Show discuss the turmoil surrounding the Brazilian FA and the nation's lack of top-class coaches.
+`\
+https://nytimes.com/athletic/6236272/2025/03/28/totally-football-show-brazil-argentina-world-cup/
+
+**JD Vance and a U.S. Delegation Head to a Wary Greenland**\
+`After initial plans for a visit from American officials were met with a backlash, Friday’s trip has been limited to a stop at a remote military base.`\
+https://nytimes.com/2025/03/28/us/politics/jd-vance-and-a-us-delegation-head-to-a-wary-greenland.html
+
 **An Earthquake Rocks Myanmar and Thailand**\
 `The 7.7-magnitude quake caused widespread damage in a country already in chaos because of civil war.`\
 https://nytimes.com/2025/03/28/world/asia/myanmar-thailand-earthquake-photos.html
@@ -25,16 +38,4 @@ https://nytimes.com/2025/03/28/world/middleeast/israel-orders-residents-in-neigh
 **Myanmar’s Internet Censorship Limits Information About Quake**\
 `Since 2021, the ruling military junta has severely restricted the internet and cut access to social media, digitally isolating the country.`\
 https://nytimes.com/2025/03/28/world/asia/myanmar-earthquake-internet-censorship.html
-
-**Ex Barcelona defender Alves acquitted of sexual assault, prison sentence overturned**\
-`Alves, 41, was sentenced in February 2024 for an alleged sexual assault at a Barcelona nightclub in December 2022.`\
-https://nytimes.com/athletic/6238039/2025/03/28/dani-alves-sexual-assault-sentence-overturned/
-
-**How will Toronto Raptors be impacted by the struggling Canadian dollar?**\
-`While the new TV deal will help, the Raptors are facing tremendous uncertainty with Canada's lagging currency. `\
-https://nytimes.com/athletic/6233458/2025/03/28/toronto-raptors-canadian-dollar-economy/
-
-**Nervous? Ilia Malinin didn't show it once he got into 'that flow state'**\
-`The defending world champion said he was more unsettled than usual, but it didn't stop him from nailing his elements in the short program. `\
-https://nytimes.com/athletic/6237091/2025/03/28/ilia-malinin-world-figure-skating-championships-short-program/
 
