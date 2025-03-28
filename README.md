@@ -1,3 +1,7 @@
+**‘This was essentially a settlement,’ Trump says of the agreement with Skadden Arps.**\
+`The president said the firm of Skadden, Arps, Slate, Meagher & Flom had agreed to provide $100 million in pro bono work on issues that he supports.`\
+https://nytimes.com/live/2025/03/28/us/trump-greenland-vance-news/trump-skadden-deal
+
 **Life Without Transit? Silicon Valley Had a Glimpse for Nearly 3 Weeks.**\
 `An unusually long strike in the San Jose area forced a shutdown of buses and light-rail trains. It was a possible harbinger of things to come for transit agencies elsewhere.`\
 https://nytimes.com/2025/03/28/us/san-jose-strike-transit-silicon-valley.html
@@ -21,8 +25,4 @@ https://nytimes.com/2025/03/28/business/stock-market-inflation-consumer-sentimen
 **Masks, helmets and headbands: what are footballers allowed to wear on their heads?**\
 `Rules state head covers must be black or the same colour as the team shirt, and cannot endanger the person wearing it or any other player`\
 https://nytimes.com/athletic/6231985/2025/03/28/football-headgear-helmet-mask-mateta-palace/
-
-**Myanmar Earthquake Aid Complicated by Its Isolation**\
-`Earthquake-stricken Myanmar faces a humanitarian crisis. Political complexities are likely to hamper international aid delivery, leaving vulnerable people at risk.`\
-https://nytimes.com/2025/03/28/world/asia/myanmar-earthquake-aid.html
 

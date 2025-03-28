@@ -1,3 +1,7 @@
+**Welcome to England, Thomas Tuchel – where Germans can still be subjected to infantile innuendo**\
+`Harry Redknapp's attempts at comedy made England look very small, as did the audience's guffawing reaction to his words at a charity event`\
+https://nytimes.com/athletic/6238531/2025/03/28/tuchel-redknapp-england-germany/
+
 **Life Without Transit? Silicon Valley Had a Glimpse for Nearly 3 Weeks.**\
 `An unusually long strike in the San Jose area forced a shutdown of buses and light-rail trains. It was a possible harbinger of things to come for transit agencies elsewhere.`\
 https://nytimes.com/2025/03/28/us/san-jose-strike-transit-silicon-valley.html
