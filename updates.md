@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6236314/2025/03/28/fa-cup-quarter-final-best-bets-accumulator/
 
+**The 3 best bets to add to your FA Cup quarter-final accumulator**\
+`Sam Tighe outlines the three best FA Cup bets to add to your accumulator ahead of this weekend’s quarter-final showdowns. 
+`\
+https://nytimes.com/athletic/6236314/2025/03/28/fa-cup-quarter-final-best-bets-accumulator/
+
 **Rubio Says Information on Abducted Ukrainian Children Will Be Preserved**\
 `Lawmakers had feared that a database on children taken by Russia was deleted when funding was stopped as part of President Trump’s foreign aid cuts.`\
 https://nytimes.com/2025/03/28/us/politics/rubio-russia-ukraine-children.html
