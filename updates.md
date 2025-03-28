@@ -1,3 +1,11 @@
+**Norwegian fans to protest after pro clubs' vote to scrap VAR overruled**\
+`Fans will stay out of stadiums for the first 15 minutes of each match before entering en mass, as a protest against maintaining VAR.`\
+https://nytimes.com/athletic/6239497/2025/03/28/norway-football-var-protests-fans/
+
+**Judge Grants Injunction to Prevent Consumer Bureau From Being ‘Dissolved and Dismantled’**\
+`The bureau has been in turmoil as the Trump administration moved to fire hundreds of employees, ordered the rest to stop working and closed offices.`\
+https://nytimes.com/2025/03/28/us/politics/trump-cfpb-ruling.html
+
 **USC coach defends player involved in Watkins injury: 'No intent to injure'**\
 `Coach said "no one deserves online bullying," in what she said was just a basketball play by Mississippi State's Chandler Prater.`\
 https://nytimes.com/athletic/6239496/2025/03/28/usc-coach-defends-player-juju-watkins-injury/

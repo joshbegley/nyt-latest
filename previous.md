@@ -1,3 +1,11 @@
+**Norwegian fans to protest after pro clubs' vote to scrap VAR overruled**\
+`Fans will stay out of stadiums for the first 15 minutes of each match before entering en mass, as a protest against maintaining VAR.`\
+https://nytimes.com/athletic/6239497/2025/03/28/norway-football-var-protests-fans/
+
+**Judge Grants Injunction to Prevent Consumer Bureau From Being ‘Dissolved and Dismantled’**\
+`The bureau has been in turmoil as the Trump administration moved to fire hundreds of employees, ordered the rest to stop working and closed offices.`\
+https://nytimes.com/2025/03/28/us/politics/trump-cfpb-ruling.html
+
 **USC coach defends player involved in Watkins injury: 'No intent to injure'**\
 `Coach said "no one deserves online bullying," in what she said was just a basketball play by Mississippi State's Chandler Prater.`\
 https://nytimes.com/athletic/6239496/2025/03/28/usc-coach-defends-player-juju-watkins-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6239468/2025/03/28/david-blitzer-real-salt-lake-uta
 **Trump Takes Aim at California Six Times in 24 Hours**\
 `The Trump administration seemed to hold back immediately after the January wildfires. But its multipronged assault on California has now begun in earnest.`\
 https://nytimes.com/2025/03/28/us/trump-newsom-california.html
-
-**Hornets' LaMelo Ball to undergo season-ending surgery on right ankle**\
-`The struggling Hornets will be without the dynamic guard for the final 10 games of the 2024-25 regular season.`\
-https://nytimes.com/athletic/6239437/2025/03/28/hornets-lamelo-ball-season-ending-surgery-ankle-wrist/
-
-**Blackstone Weighs Taking a Small Stake in TikTok**\
-`The private equity giant is considering investing as the video app works to follow a law that requires it to separate from its Chinese owner, ByteDance, by next week.`\
-https://nytimes.com/2025/03/28/business/media/blackstone-tiktok-bytedance.html
 
