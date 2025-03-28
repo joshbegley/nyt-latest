@@ -1,3 +1,15 @@
+**Why the Yankees believe they've unlocked the secret for a Carlos Rodón breakout**\
+`After relying for years on just his fastball and slider, the lefty has added multiple pitches to his arsenal. `\
+https://nytimes.com/athletic/6236327/2025/03/27/yankees-carlos-rodon-pitching-breakout/
+
+**Mark Sears, Alabama set NCAA record in Sweet 16 rout of BYU**\
+`Sears' 10 3-pointers lead Alabama to its record 25 3s against BYU in the NCAA Tournament Sweet 16 game.`\
+https://nytimes.com/athletic/6237037/2025/03/27/sweet-16-alabama-byu-ncaa-3-point-record/
+
+**Austin Wells ready to be first Yankees catcher of his kind: 'Incredible'**\
+`Wells became the first catcher to hit leadoff for the Yankees, who were established in 1913. And he led off the opener with a home run. `\
+https://nytimes.com/athletic/6237146/2025/03/27/yankees-catcher-austin-wells/
+
 **Reds blow ninth-inning lead in Opening Day loss to Giants**\
 `"Everybody is frustrated and we thought the outcome would be a lot different, especially going into that last inning,” Hunter Greene said. `\
 https://nytimes.com/athletic/6237111/2025/03/27/reds-lose-giants-opening-day/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6237110/2025/03/27/ilia-malinin-quadgod-figure-skat
 **Trump Targets WilmerHale, Citing Law Firm’s Connection to Robert Mueller**\
 `Mr. Mueller, who worked at WilmerHale before retiring in 2021, had investigated the Trump campaign’s ties to Russian officials during the president’s first term.`\
 https://nytimes.com/2025/03/27/us/politics/trump-wilmerhale-law-firm-mueller.html
-
-**Musk and Aides Try Charm Offensive in Fox News Interview**\
-`Most of Elon Musk’s associates at the Department of Government Efficiency have kept a low profile. Democrats have repeatedly criticized his effort to shrink the federal government, warning that critical services will be cut.`\
-https://nytimes.com/2025/03/27/us/politics/elon-musk-fox-interview-doge.html
-
-**Trump restored funding for Radio Free Europe and reinstated 33 employees for Cuban radio station.**\
-`The decision to`\
-https://nytimes.com/2025/03/27/us/politics/trump-radio-free-europe-funding.html
-
-**F.B.I. Agents in Southeast Asia Used Prostitutes, Watchdog Says**\
-`The conduct took place over several years even as employees were training to combat human trafficking, according to a document released to The Times in a lawsuit.`\
-https://nytimes.com/2025/03/27/world/americas/fbi-agents-in-southeast-asia-used-prostitutes-watchdog-says.html
 
