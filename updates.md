@@ -1,3 +1,7 @@
+**Peter Schrager leaving Fox Sports, NFLN, likely heading to ESPN: Sources**\
+`If the deal with ESPN is finalized, Schrager is expected to be on the network's daily, including "NFL Live," "Get Up" and "First Take."`\
+https://nytimes.com/athletic/6238488/2025/03/28/peter-schrager-fox-sports-nfl-network-espn/
+
 **Men's March Madness projections 2025: Which Sweet 16 teams have the best odds to advance?**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/03/28/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
