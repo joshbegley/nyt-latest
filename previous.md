@@ -1,3 +1,19 @@
+**Lowetide: Oilers' anticipated spring signing season gets underway**\
+`The Oilers are reportedly signing Joshua Samanski, signalling an active spring of signings.`\
+https://nytimes.com/athletic/6235118/2025/03/28/oilers-joshua-samanski-signing/
+
+**U.S. Revives Tough Demands in Reworked Deal for Ukraine’s Minerals**\
+`Officials in Kyiv say the country cannot possibly accept the proposal and that new negotiations would be needed. But they have not rejected it outright, which would anger the White House.`\
+https://nytimes.com/2025/03/28/world/europe/ukraine-minerals-deal-us.html
+
+**Flying to Greenland, Vance Is Visiting a Place That Doesn’t Want Him**\
+`Vice President JD Vance’s trip to an island that President Trump wants to “get” is a scaled-back version of the original White House plan.  “He’s not welcome,” one Greenlander said.`\
+https://nytimes.com/2025/03/28/world/europe/vance-greenland.html
+
+**Fantasy hockey lookahead: Lane Hutson, Macklin Celebrini and more keeper considerations**\
+`As the 2024-25 fantasy hockey season winds to a close, Shayna Goldman offers up some players worth keeper consideration for next season.`\
+https://nytimes.com/athletic/6236982/2025/03/28/fantasy-hockey-lookahead-lane-hutson-macklin-celebrini-and-more-keeper-considerations/
+
 **NHL Power Rankings: Who are the hottest (and coldest) teams since the trade deadline?**\
 `Which contenders have caught fire with their upgraded rosters? Who's limping into the playoffs? `\
 https://nytimes.com/athletic/6237874/2025/03/28/nhl-power-rankings-trade-deadline-4/
@@ -13,28 +29,4 @@ https://nytimes.com/athletic/6235152/2025/03/28/fifa-club-world-szoboszlai-millw
 **Canada accused of 'gross negligence' with Davies injury by Bayern executive**\
 `Davies suffered a torn ACL in his right knee, an injury which requires surgery and several months of rehabilitation.`\
 https://nytimes.com/athletic/6238131/2025/03/28/bayern-munich-canada-alphonso-davies-injury/
-
-**Ten pressing concerns for the Oilers to solve before the NHL playoffs**\
-`Now that the Oilers have just 10 games left on their schedule, these 10 concerns are worth mentioning and monitoring.`\
-https://nytimes.com/athletic/6237912/2025/03/28/oilers-nhl-playoffs-connor-mcdavid-injury/
-
-**Guardiola says Man City players and coaches do not deserve bonus for their season**\
-`Guardiola did not even want to entertain the idea of himself, his players and fellow coaching staff earning an end-of-season bonus.`\
-https://nytimes.com/athletic/6238333/2025/03/28/man-city-guardiola-players-coaches-bonus/
-
-**Olmo set for three weeks out with groin injury**\
-`The Spain international was forced off in the first half of Barcelona's 3-0 victory over Osasuna on Thursday.`\
-https://nytimes.com/athletic/6237966/2025/03/28/dani-olmo-injury-update-barcelona/
-
-**Climate Activists Who Threw Soup at van Gogh Painting Are Changing Tactics**\
-`Just Stop Oil, the group that made headlines for high profile stunts to protest use of fossil fuels, said it was ending protests in museums after achieving its initial demand.`\
-https://nytimes.com/2025/03/28/world/europe/climate-activists-museum-protests.html
-
-**Men's Sweet 16 roundup: Alabama sets 3-point record, Flagg carries Duke**\
-`Cooper Flagg, Mark Sears and college basketball's biggest stars shined on an offense-heavy night in the Sweet 16.`\
-https://nytimes.com/athletic/6238143/2025/03/28/ncaa-tournament-sweet-16-roundup-alabama-duke-texas-tech-florida/
-
-**Cooking up Cristopher Sánchez's breakout: The partner and plan behind Phillies starter's gains**\
-`Everything  started to change for Sánchez when he met his wife, a professional chef. This offseason, with her help, he pushed even harder. `\
-https://nytimes.com/athletic/6235216/2025/03/28/cristopher-sanchez-phillies-breakout-diet-offseason/
 

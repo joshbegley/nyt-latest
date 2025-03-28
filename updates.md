@@ -1,3 +1,19 @@
+**Lowetide: Oilers' anticipated spring signing season gets underway**\
+`The Oilers are reportedly signing Joshua Samanski, signalling an active spring of signings.`\
+https://nytimes.com/athletic/6235118/2025/03/28/oilers-joshua-samanski-signing/
+
+**U.S. Revives Tough Demands in Reworked Deal for Ukraine’s Minerals**\
+`Officials in Kyiv say the country cannot possibly accept the proposal and that new negotiations would be needed. But they have not rejected it outright, which would anger the White House.`\
+https://nytimes.com/2025/03/28/world/europe/ukraine-minerals-deal-us.html
+
+**Flying to Greenland, Vance Is Visiting a Place That Doesn’t Want Him**\
+`Vice President JD Vance’s trip to an island that President Trump wants to “get” is a scaled-back version of the original White House plan.  “He’s not welcome,” one Greenlander said.`\
+https://nytimes.com/2025/03/28/world/europe/vance-greenland.html
+
+**Fantasy hockey lookahead: Lane Hutson, Macklin Celebrini and more keeper considerations**\
+`As the 2024-25 fantasy hockey season winds to a close, Shayna Goldman offers up some players worth keeper consideration for next season.`\
+https://nytimes.com/athletic/6236982/2025/03/28/fantasy-hockey-lookahead-lane-hutson-macklin-celebrini-and-more-keeper-considerations/
+
 **NHL Power Rankings: Who are the hottest (and coldest) teams since the trade deadline?**\
 `Which contenders have caught fire with their upgraded rosters? Who's limping into the playoffs? `\
 https://nytimes.com/athletic/6237874/2025/03/28/nhl-power-rankings-trade-deadline-4/
