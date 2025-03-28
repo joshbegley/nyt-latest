@@ -1,3 +1,20 @@
+**Live Updates: Strong Earthquake Strikes Myanmar**\
+`People in the city of Mandalay, near the epicenter of the 7.7.-magnitude quake, were rushed to the main hospital. Tremors were felt hundreds of miles away in Bangkok and Hanoi.`\
+https://nytimes.com/live/2025/03/28/world/myanmar-earthquake
+
+**Map: 7.7-Magnitude Earthquake Strikes Myanmar**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/03/28/world/asia/myanmar-earthquake-tracker.html
+
+**The quake also shook southern China, causing injuries.**\
+`By Vivian Wang`\
+https://nytimes.com/live/2025/03/28/world/myanmar-earthquake/the-quake-also-shook-southern-china-causing-injuries
+
+**The 3 best bets to add to your FA Cup quarter-final accumulator**\
+`Sam Tighe outlines the three best FA Cup bets to add to your accumulator ahead of this weekend’s quarter-final showdowns. 
+`\
+https://nytimes.com/athletic/6236314/2025/03/28/fa-cup-quarter-final-best-bets-accumulator/
+
 **The quake also shook southern China, causing injuries.**\
 `By Vivian Wang`\
 https://nytimes.com/2025/03/28/world/asia/the-quake-also-shook-southern-china-causing-injuries.html
