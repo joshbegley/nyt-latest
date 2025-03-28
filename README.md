@@ -1,3 +1,7 @@
+**Canada accused of 'gross negligence' with Davies injury by Bayern executive**\
+`Davies suffered a torn ACL in his right knee, an injury which requires surgery and several months of rehabilitation.`\
+https://nytimes.com/athletic/6238131/2025/03/28/bayern-munich-canada-alphonso-davies-injury/
+
 **Ten pressing concerns for the Oilers to solve before the NHL playoffs**\
 `Now that the Oilers have just 10 games left on their schedule, these 10 concerns are worth mentioning and monitoring.`\
 https://nytimes.com/athletic/6237912/2025/03/28/oilers-nhl-playoffs-connor-mcdavid-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/28/business/jenner-block-trump-lawsuit.html
 **Utah Becomes First State to Ban Fluoride in Public Water**\
 `Medical experts warn the move could have consequences for oral health, especially among children.`\
 https://nytimes.com/2025/03/28/well/utah-fluoride-ban.html
-
-**Victor Emanuel, Revered Birder and Pioneer of Ecotourism, Dies at 84**\
-`He had a reverential regard for birds from an early age, and he turned it into a thriving business. “I call him the Zen master of birds,” Peter Matthiessen said.`\
-https://nytimes.com/2025/03/28/us/victor-emanuel-dead.html
 
