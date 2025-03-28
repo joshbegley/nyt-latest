@@ -1,3 +1,7 @@
+**What We Know About the Detentions of Student Protesters**\
+`The Trump administration is looking to deport pro-Palestinian students who are legally in the United States, citing national security. Critics say that violates free speech protections.`\
+https://nytimes.com/2025/03/27/us/students-trump-ice-detention.html
+
 **'It's delusion that feeds me': Why White Sox fans still showed up on Opening Day**\
 `For so many, being here is closer to a ritual than a choice. It’s not that they want to support their historically bad team. They need to.`\
 https://nytimes.com/athletic/6236867/2025/03/27/chicago-white-sox-fans-opening-day/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6236897/2025/03/27/barcelona-osasuna-la-liga-dani-o
 **Global Sea Ice Hits a New Low**\
 `The data comes after researchers reported that the past 10 years have been the 10 hottest on record.`\
 https://nytimes.com/2025/03/27/climate/global-sea-ice-record-low.html
-
-**Top Senate Republican Protests Trump Bid to Withhold Spending**\
-`Senator Susan Collins of Maine, the chairwoman of the Appropriations Committee, joined top Democrats in insisting that the president does not have the power to “pick and choose” what to fund.`\
-https://nytimes.com/2025/03/27/us/politics/susan-collins-appropriations-trump.html
 
