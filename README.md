@@ -1,3 +1,11 @@
+**David Perron continues his stellar March in win over Red Wings**\
+`The Sherbrooke native has seven goals and 10 points in 13 games since the beginning of the month. `\
+https://nytimes.com/athletic/6236209/2025/03/27/senators-david-perron-red-wings/
+
+**Nolan Arenado 'puts a bow' on Cardinals' Opening Day win: 'It meant a lot to me today'**\
+`After a turbulent winter, Arenado got much-appreciated support from the home fans.`\
+https://nytimes.com/athletic/6236835/2025/03/27/cardinals-nolan-arenado-opening-day-homer/
+
 **The DOGE Playbook Targeting Federal Agencies**\
 `The cost-cutting strategy of the group, led by billionaire Elon Musk, has played out at more than 30 agencies so far.`\
 https://nytimes.com/interactive/2025/03/27/us/politics/doge-playbook-musk-cuts.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6236331/2025/03/27/taniya-latson-transfer-portal-fs
 **A Very Phillies Opening Day: They whiffed, waited and won**\
 `The beauty is in the 162-game grind with a group that has experienced so much together. They will savor the victories — big and small.`\
 https://nytimes.com/athletic/6237183/2025/03/27/phillies-2025-season-opening-day-bryce-harper/
-
-**Men's March Madness projections 2025: Which Sweet 16 teams have the best odds to advance?**\
-`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
-https://nytimes.com/athletic/6198047/2025/03/27/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**Florida stays hot, surges past Maryland into Elite Eight with dominant 2nd half**\
-`The Gators, winners of nine straight games, advanced to the Elite Eight for the 10th time in school history. `\
-https://nytimes.com/athletic/6237144/2025/03/27/florida-gators-maryland-elite-eight/
 
