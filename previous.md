@@ -1,3 +1,11 @@
+**Men's March Madness projections 2025: Which Sweet 16 teams have the best odds to advance?**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/03/28/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
+**Cooper Flagg's 30 points, complete performance send Duke to Elite Eight**\
+`Thursday was Flagg's true breakout of the postseason: 30 points on 9-of-19 shooting, seven assists, six rebounds, three blocks and a steal.`\
+https://nytimes.com/athletic/6237610/2025/03/28/cooper-flagg-duke-arizona-march-madness/
+
 **Flyers' strange day starts with Tortorella's firing, ends with York's full-game benching**\
 `Team leaders praised their former coach after they beat the Canadiens — without a defenseman who dressed but didn't play`\
 https://nytimes.com/athletic/6237681/2025/03/28/flyers-tortorella-york-benching/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/28/world/europe/pope-francis-doctor-interview.html
 **For a Bus Driver and a Salon Manager, a Detour on the Path to Parenthood**\
 `Jason Santiago and Tiffany Roller planned to have a baby before getting married, but amid fertility struggles, opted to change the order of events.`\
 https://nytimes.com/2025/03/28/style/tiffany-roller-jason-santiago-wedding.html
-
-**Trump Could Hand China a ‘Strategic Victory’ by Silencing Voice of America**\
-`Generations of Chinese, including our columnist, turned to U.S. government-run outlets for an education in democracy, rights and the English language.`\
-https://nytimes.com/2025/03/28/business/media/china-voice-of-america-radio-free-asia.html
-
-**Ode to a Gen-Z Situationship**\
-`As my friends buy houses and start families, why am I at Abba Night with a 24-year-old in a faux-fur head wrap?`\
-https://nytimes.com/2025/03/28/style/modern-love-ode-to-a-gen-z-situationship.html
 

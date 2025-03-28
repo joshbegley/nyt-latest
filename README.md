@@ -6,8 +6,8 @@ https://nytimes.com/athletic/6198047/2025/03/28/mens-march-madness-projections-2
 `Thursday was Flagg's true breakout of the postseason: 30 points on 9-of-19 shooting, seven assists, six rebounds, three blocks and a steal.`\
 https://nytimes.com/athletic/6237610/2025/03/28/cooper-flagg-duke-arizona-march-madness/
 
-**Flyers' strange day starts with Tortorella's firing, ends with York's full-game benching**\
-`Team leaders praised their former coach after they beat the Canadiens — without a defenseman who dressed but didn't play`\
+**Flyers' strange day starts with John Tortorella's firing, ends with Cam York's full-game benching**\
+`Team leaders praised their former coach after they beat the Canadiens — without a defenseman who dressed but didn't play.`\
 https://nytimes.com/athletic/6237681/2025/03/28/flyers-tortorella-york-benching/
 
 **The Wizards franchise has played for 64 seasons. It just recorded its worst loss ever**\
