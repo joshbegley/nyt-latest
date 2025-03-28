@@ -1,3 +1,15 @@
+**Major Quake Batters Myanmar; High Toll Is Feared as Buildings Topple**\
+`The 7.7-magnitude earthquake near Mandalay, in a country already torn by war, was felt across Southeast Asia, and experts warned there could be thousands dead.`\
+https://nytimes.com/2025/03/28/world/asia/myanmar-earthquake-thailand-mandalay.html
+
+**Heat Today: Bam Adebayo's leadership leads Miami through tough times: 'It reminds me of Tim Duncan'**\
+`Bam Adebayo's leadership through Miami's tough season draws rave reviews from coaches, teammates.`\
+https://nytimes.com/athletic/6238450/2025/03/28/bam-adebayo-tim-duncan-heat-leadership-nba/
+
+**Charlie Javice Found Guilty of Defrauding JPMorgan in $175 Million Acquisition**\
+`Federal prosecutors convinced a jury that Ms. Javice faked much of her customer list before selling her startup, Frank, to the bank.`\
+https://nytimes.com/2025/03/28/business/charlie-javice-jpmorgan-guilty.html
+
 **Flashback: Your Weekly History Quiz, March 29, 2025**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2025/03/28/upshot/flashback.html
@@ -18,8 +30,4 @@ https://nytimes.com/interactive/2025/03/28/style/gen-x-creative-work.html
 **Deadly Earthquake Shakes Southeast Asia**\
 `A 7.7-magnitude earthquake hit central Myanmar, causing buildings to collapse and a high number of casualties in the region.`\
 https://nytimes.com/video/world/asia/100000010078508/myanmar-earthquake-thailand-southeast-asia.html
-
-**The quake struck along a major fault line.**\
-`By James C. McKinley Jr.`\
-https://nytimes.com/live/2025/03/28/world/myanmar-earthquake/the-quake-struck-along-a-major-fault-line
 
