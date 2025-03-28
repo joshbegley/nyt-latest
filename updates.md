@@ -1,3 +1,7 @@
+**Trump Moves to End Union Protections Across Broad Swath of Government**\
+`An executive order signed by the president would cancel collective bargaining for hundreds of thousands of workers, the largest federal employees union said. The union was preparing legal action.`\
+https://nytimes.com/2025/03/28/us/politics/trump-unions-executive-order.html
+
 **What if Arsenal had never left Highbury?**\
 `The move to the Emirates was a business decision rather than an emotional one, but it prompted the break up of Arsene Wenger's greatest team`\
 https://nytimes.com/athletic/6235683/2025/03/28/arsenal-highbury-emirates-inspired-by-you/
