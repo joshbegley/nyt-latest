@@ -1,3 +1,7 @@
+**Abdul Carter confident he's the best player in this draft: 'I think that for a lot of reasons'**\
+`"When crunch time comes around and you need somebody to make that big play, I make that big play," the 21-year-old Carter said. `\
+https://nytimes.com/athletic/6238675/2025/03/28/abdul-carter-penn-state-pro-day-nfl-draft/
+
 **Is Kermit the Frog What the Class of 2025 Needs?**\
 `The University of Maryland says it is honoring Jim Henson, an alumnus, with its choice of commencement speaker. Some students think it is avoiding “real issues.”`\
 https://nytimes.com/2025/03/28/style/kermit-university-of-maryland-commencement-reaction.html
@@ -26,15 +30,11 @@ https://nytimes.com/2025/03/28/arts/design/christophe-cherix-moma-director.html
 `A central dictum in the Trump White House is that Joseph R. Biden Jr. is to blame for just about anything and everything.`\
 https://nytimes.com/2025/03/28/us/politics/trump-biden-blame.html
 
-**Chelsea cancel scheduled day off after first team lose 3-0 to Under-21s**\
+**Chelsea cancel scheduled day off after senior players lose 3-0 to Under-21s**\
 `Maresca took the action after being disappointed by what he had seen during the drill, which was not a full 90-minute match.`\
 https://nytimes.com/athletic/6238611/2025/03/28/chelsea-training-cancelled-maresca/
 
 **Scoop City: Cam Ward's remarkable journey to QB1**\
 `Inside: Cam Ward&#8217;s journey, pro days for top quarterbacks and why one prospect sometimes can&#8217;t stay awake.`\
 https://nytimes.com/athletic/6238634/2025/03/28/who-is-cam-ward-miami-tennessee-nfl-draft-2025-scoop-city/
-
-**Modeling suggests the death toll is likely to top 1,000, and may be much higher.**\
-`By Pablo Robles and Agnes Chang`\
-https://nytimes.com/live/2025/03/28/world/myanmar-earthquake/modeling-suggests-that-the-death-toll-is-likely-to-top-1000
 
