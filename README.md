@@ -1,8 +1,12 @@
+**Reds blow ninth-inning lead in Opening Day loss to Giants**\
+`"Everybody is frustrated and we thought the outcome would be a lot different, especially going into that last inning,” Hunter Greene said. `\
+https://nytimes.com/athletic/6237111/2025/03/27/reds-lose-giants-opening-day/
+
 **Corrections: March 28, 2025**\
 `Corrections that appeared in print on Friday, March 28, 2025.`\
 https://nytimes.com/2025/03/27/pageoneplus/corrections-march-28-2025.html
 
-**The Angels planned to compete in 2025. Game 1 was not a good start.**\
+**The Angels planned to compete in 2025. Game 1 was not a good start**\
 `This season will not be defined by the first game. All the Angels can do is hope that this opener has no bearing on what's to come.`\
 https://nytimes.com/athletic/6237126/2025/03/27/can-angels-turn-it-around-2025-opening-day/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/27/us/politics/trump-radio-free-europe-funding.html
 **F.B.I. Agents in Southeast Asia Used Prostitutes, Watchdog Says**\
 `The conduct took place over several years even as employees were training to combat human trafficking, according to a document released to The Times in a lawsuit.`\
 https://nytimes.com/2025/03/27/world/americas/fbi-agents-in-southeast-asia-used-prostitutes-watchdog-says.html
-
-**A Video From Tufts Captures the Fear and Aggression in Trump’s Crackdown**\
-`The tactics on display in the arrest of Rumeysa Ozturk were not new — plainclothes officers, faces obscured — but as ICE actions ramp up, scrutiny may increase.`\
-https://nytimes.com/2025/03/27/us/politics/tufts-ice-crackdown.html
 
