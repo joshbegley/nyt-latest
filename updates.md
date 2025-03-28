@@ -1,3 +1,11 @@
+**How Emma Raducanu found her tennis, and perhaps herself, in Miami**\
+`Raducanu's Miami Open run saw her benefit from a change in environment, as well as having familiar faces in her coaching box.`\
+https://nytimes.com/athletic/6235979/2025/03/28/tennis-emma-raducanu-team-coach/
+
+**What can Giants fans expect from Russell Wilson? Our beat writers discuss**\
+`The Athletic's Giants and Steelers beat writers discuss Russell Wilson's time in Pittsburgh and how he could impact the Giants this season.`\
+https://nytimes.com/athletic/6236622/2025/03/28/russell-wilson-giants-fit-steelers-lessons/
+
 **On Trump, Democrats and a New Era of Politics: A Look at the Year Ahead**\
 `Special elections are already pointing to a familiar pattern.`\
 https://nytimes.com/2025/03/28/upshot/trump-democrats-politics-elections.html

@@ -1,3 +1,11 @@
+**How Emma Raducanu found her tennis, and perhaps herself, in Miami**\
+`Raducanu's Miami Open run saw her benefit from a change in environment, as well as having familiar faces in her coaching box.`\
+https://nytimes.com/athletic/6235979/2025/03/28/tennis-emma-raducanu-team-coach/
+
+**What can Giants fans expect from Russell Wilson? Our beat writers discuss**\
+`The Athletic's Giants and Steelers beat writers discuss Russell Wilson's time in Pittsburgh and how he could impact the Giants this season.`\
+https://nytimes.com/athletic/6236622/2025/03/28/russell-wilson-giants-fit-steelers-lessons/
+
 **On Trump, Democrats and a New Era of Politics: A Look at the Year Ahead**\
 `Special elections are already pointing to a familiar pattern.`\
 https://nytimes.com/2025/03/28/upshot/trump-democrats-politics-elections.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/28/world/middleeast/iran-negotiations-trump-letter.h
 **Alison Krauss Gets the Band Back Together**\
 `The bluegrass star reunites with Union Station on “Arcadia,” their first album in 14 years.`\
 https://nytimes.com/2025/03/28/podcasts/alison-krauss-gets-the-band-back-together.html
-
-**Trump’s Tariffs Leave Automakers With Tough, Expensive Choices**\
-`Carmakers are likely to face higher costs regardless of how they respond to President Trump’s 25 percent tariffs on cars and auto parts.`\
-https://nytimes.com/2025/03/28/business/trump-auto-tariffs-companies.html
-
-**10 Wild Clips to Help You Understand Andy Kaufman’s Greatness**\
-`The standup, who’s the subject of a new documentary, expanded the ambition of comedy. These videos show how far ahead of his time he was.`\
-https://nytimes.com/2025/03/28/arts/television/andy-kaufman-video.html
 
