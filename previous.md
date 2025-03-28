@@ -1,3 +1,7 @@
+**Overwhelmed Myanmar Hospital Treats Quake Victims in Parking Lot**\
+`Patients had to lie on cardboard or directly on the concrete outside the main hospital in Mandalay. Even before the earthquake, the health care system in Myanmar was under stress.`\
+https://nytimes.com/2025/03/28/world/asia/myanmar-earthquake-mandalay-general-hospital.html
+
 **Lowetide: Oilers' anticipated spring signing season gets underway**\
 `The Oilers are reportedly signing Joshua Samanski, signalling an active spring of signings.`\
 https://nytimes.com/athletic/6235118/2025/03/28/oilers-joshua-samanski-signing/
@@ -8,7 +12,7 @@ https://nytimes.com/2025/03/28/world/europe/ukraine-minerals-deal-us.html
 
 **Flying to Greenland, Vance Is Visiting a Place That Doesn’t Want Him**\
 `Vice President JD Vance’s trip to an island that President Trump wants to “get” is a scaled-back version of the original White House plan.  “He’s not welcome,” one Greenlander said.`\
-https://nytimes.com/2025/03/28/world/europe/vance-greenland.html
+https://nytimes.com/2025/03/28/world/europe/jd-vance-greenland-visit-denmark-us.html
 
 **Fantasy hockey lookahead: Lane Hutson, Macklin Celebrini and more keeper considerations**\
 `As the 2024-25 fantasy hockey season winds to a close, Shayna Goldman offers up some players worth keeper consideration for next season.`\
@@ -21,8 +25,4 @@ https://nytimes.com/athletic/6237874/2025/03/28/nhl-power-rankings-trade-deadlin
 **Josh Giddey's half-court bucket a reminder of Bulls playing 'with desperation to win'**\
 `“I think you see now it’s not over until it really is over,” Giddey said after his half-court, buzzer-beating game-winner against L.A.`\
 https://nytimes.com/athletic/6238080/2025/03/28/josh-giddey-bulls-lakers-half-court-buzzer-beater/
-
-**Row Z: The implications of FIFA's Club World Cup become clear, and geeky data fuels beef**\
-`Our weekly look at the bonkers side of the game also takes in Gareth Ainsworth fast-tracking to League Two and Scottish accents`\
-https://nytimes.com/athletic/6235152/2025/03/28/fifa-club-world-szoboszlai-millwall-row-z/
 

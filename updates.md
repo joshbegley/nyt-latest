@@ -1,3 +1,11 @@
+**Overwhelmed Myanmar Hospital Treats Quake Victims in Parking Lot**\
+`Patients had to lie on cardboard or directly on the concrete outside the main hospital in Mandalay. Even before the earthquake, the health care system in Myanmar was under stress.`\
+https://nytimes.com/2025/03/28/world/asia/myanmar-earthquake-mandalay-general-hospital.html
+
+**Flying to Greenland, Vance Is Visiting a Place That Doesn’t Want Him**\
+`Vice President JD Vance’s trip to an island that President Trump wants to “get” is a scaled-back version of the original White House plan.  “He’s not welcome,” one Greenlander said.`\
+https://nytimes.com/2025/03/28/world/europe/jd-vance-greenland-visit-denmark-us.html
+
 **Lowetide: Oilers' anticipated spring signing season gets underway**\
 `The Oilers are reportedly signing Joshua Samanski, signalling an active spring of signings.`\
 https://nytimes.com/athletic/6235118/2025/03/28/oilers-joshua-samanski-signing/
