@@ -1,3 +1,11 @@
+**F.C.C. Chairman Orders Inquiry Into Disney’s D.E.I. Practices**\
+`F.C.C. chairman Brendan Carr sent a letter to Disney accusing it of violating equal employment opportunity regulations.`\
+https://nytimes.com/2025/03/28/technology/disney-fcc-dei-investigation.html
+
+**Ravens, coach John Harbaugh agree to 3-year extension**\
+`Harbaugh, 62, is entering his 18th season as Baltimore's head coach. `\
+https://nytimes.com/athletic/6239441/2025/03/28/ravens-john-harbaugh-contract-extension/
+
 **Elon Musk Says He Has Sold X to xAI**\
 `Mr. Musk said the deal valued xAI, his artificial intelligence start-up, at $80 billion, and X at $30 billion.`\
 https://nytimes.com/2025/03/28/technology/musk-x-xai.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/28/style/the-gen-x-career-meltdown.html
 **Sludge-Fertilizer Giant Leaves Texas Town Amid ‘Forever Chemicals’ Crisis**\
 `Ranchers claim livestock has been sickened by toxic chemicals in fertilizer made from sewage. Now Synagro, a Goldman Sachs-backed firm, has lost a deal to make sludge fertilizer there.`\
 https://nytimes.com/2025/03/28/climate/sewage-sludge-fertilizer-pfas-synagro-forever-chemicals.html
-
-**Duke beats North Carolina to advance to Elite Eight**\
-`The Tar Heels seized control early, but Duke settled in and outscored North Carolina by a 47-27 margin in the final 34 minutes.`\
-https://nytimes.com/athletic/6239271/2025/03/28/duke-north-carolina-sweet-sixteen-elite-eight-ncaa-tournament/
-
-**Novak Djokovic nears yet another milestone en route to Miami Open final**\
-`If Djokovic is successful in the final of the Miami Open, it would give him 100 tour-level singles titles, joining Connors and Federer.`\
-https://nytimes.com/athletic/6239296/2025/03/28/novak-djokovic-milestone-miami-open-final/
 
