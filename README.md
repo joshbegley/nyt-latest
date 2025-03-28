@@ -1,3 +1,7 @@
+**Can the Jesus of History Support the Christ of Faith?**\
+`Why historically minded believers still find the New Testament credible.`\
+https://nytimes.com/2025/03/28/opinion/jesus-history-faith.html
+
 **We Should Improve D.E.I., Not Erase It**\
 `Readers weigh in on a D.E.I. effort at Anheuser-Busch. Also: More than just misinformation; Trump is taking us back in time.`\
 https://nytimes.com/2025/03/28/opinion/dei-anheuser-busch.html
@@ -17,8 +21,4 @@ https://nytimes.com/live/2025/03/28/us/trump-greenland-vance-news/trump-skadden-
 **Life Without Transit? Silicon Valley Had a Glimpse for Nearly 3 Weeks.**\
 `An unusually long strike in the San Jose area forced a shutdown of buses and light-rail trains. It was a possible harbinger of things to come for transit agencies elsewhere.`\
 https://nytimes.com/2025/03/28/us/san-jose-strike-transit-silicon-valley.html
-
-**Book Club: Let’s Talk About Han Kang’s ‘We Do Not Part’**\
-`This Korean novel by the 2024 winner of the Nobel Prize in Literature turns a pet-sitting mission into a haunting reflection on grief and memory.`\
-https://nytimes.com/2025/03/28/books/review/podcast-han-kang-book-club.html
 
