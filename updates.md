@@ -1,3 +1,7 @@
+**What We Know About the Earthquake in Myanmar**\
+`The death toll is expected to rise after the 7.7-magnitude quake was felt across Southeast Asia in densely populated cities. At least 20 people were reported dead in Myanmar, and three in Thailand.`\
+https://nytimes.com/2025/03/28/world/asia/earthquake-myanmar-thailand-death-toll.html
+
 **Calm Your Investing Life: Own a Bit of Everything**\
 `People with bond and international stock funds have held their own, despite a shaky U.S. stock market and the uncertainty and turmoil flowing from the White House.`\
 https://nytimes.com/2025/03/28/business/investing-international-stocks-bonds.html
