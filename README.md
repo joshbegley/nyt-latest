@@ -1,3 +1,7 @@
+**Houston vs. Purdue: Can the Boilers take down Kelvin Sampson's top-seeded Cougars?**\
+`Kelvin Sampson's squad is one of the best in the country. Can Big Ten Player of the Year Braden Smith lead the Boilers to an upset?`\
+https://nytimes.com/athletic/6229922/2025/03/28/houston-purdue-ncaa-tournament-how-to-watch/
+
 **Red Wings' latest frustrating loss to Ottawa story of missed opportunities**\
 `Recent games against the Senators have been an exercise in frustration for the Red Wings. This one had more than its share of malaise.`\
 https://nytimes.com/athletic/6237483/2025/03/28/red-wings-senators-missed-opportunities/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6232939/2025/03/28/womens-sweet-16-power-rankings-u
 **Trump 2.0: Group Chats and a New Spat**\
 `What does the Signal leak tell us about the administration’s approach to blame?`\
 https://nytimes.com/2025/03/28/podcasts/the-daily/trump-hegseth-signal-leak-group-chat.html
-
-**Musk’s Secretive Team Goes on TV, and RFK Jr. Hires a Vaccine Skeptic**\
-`Plus, what we didn’t know about sharks.`\
-https://nytimes.com/2025/03/28/podcasts/the-headlines/musk-fox-interview-rfk-jr-vaccine.html
 
