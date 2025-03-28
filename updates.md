@@ -1,3 +1,11 @@
+**Kelly's crossing, City nerves and staying calm: Arsenal and Chelsea's fought back in UWCL**\
+`Both English teams stayed true to their identities to pull off comebacks and earn spots in the Champions League semi-finals`\
+https://nytimes.com/athletic/6236049/2025/03/28/arsenal-chelsea-champions-league-semi-finals/
+
+**Word of the Day: simpatico**\
+`This word has appeared in 23 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/03/28/learning/word-of-the-day-simpatico.html
+
 **Alexandra Eala's wild run in Miami comes to an end**\
 `Eala nearly pulled off yet another hard-to-fathom upset in her semis match against Pegula on Thursday night at Hard Rock Stadium.`\
 https://nytimes.com/athletic/6237760/2025/03/28/alexandra-eala-miami-open-semifinals/
