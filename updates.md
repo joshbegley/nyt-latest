@@ -1,3 +1,7 @@
+**Dachshund Lost on Australian Island Is Still Alive, but Elusive**\
+`A year after getting loose on Kangaroo Island, Valerie is still out there.`\
+https://nytimes.com/2025/03/28/world/australia/dachshund-dog-australia-island.html
+
 **Elise Stefanik Is the First Casualty of the Great Trump Disillusionment**\
 `Republicans may seem oblivious to voter discomfort with the administration’s excesses, but Elise Stefanik’s pulled nomination shows they see trouble ahead.`\
 https://nytimes.com/live/2025/03/24/opinion/thepoint/elise-stefanik-democrats-trump
