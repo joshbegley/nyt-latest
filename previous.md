@@ -1,3 +1,19 @@
+**Calm Your Investing Life: Own a Bit of Everything**\
+`People with bond and international stock funds have held their own, despite a shaky U.S. stock market and the uncertainty and turmoil flowing from the White House.`\
+https://nytimes.com/2025/03/28/business/investing-international-stocks-bonds.html
+
+**Elite tactician Bompastor keeps on proving why Chelsea hired her**\
+`Bompastor's evolution of Chelsea continued in their four successive matches against City. They now have Barcelona in their sights`\
+https://nytimes.com/athletic/6237898/2025/03/28/sonia-bompastor-chelsea-champions-league/
+
+**Haven’t Filed Your Taxes Yet? Here Are Some Last-Minute Tips.**\
+`Despite the turmoil at the I.R.S., tax returns are still due on April 15. And, yes, there are still options for lowering last year’s taxable income.`\
+https://nytimes.com/2025/03/28/your-money/taxes-filing-2024.html
+
+**Will Jimmy Snuggerud join the Blues after Minnesota's exit from NCAA Tournament?**\
+`After Minnesota's season ended Thursday, Jimmy Snuggerud will have to decide whether to sign with the Blues or return to the Gophers.`\
+https://nytimes.com/athletic/6236176/2025/03/28/jimmy-snuggerud-blues-ncaa-tournament/
+
 **LeBron James, Lakers searching for answers after stunning loss to Bulls**\
 `Thursday's loss on Josh Giddey's half-court buzzer-beater was the Lakers' eighth setback in their past 12 games.`\
 https://nytimes.com/athletic/6237843/2025/03/28/lakers-loss-bulls-lebron-james/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/28/us/politics/doj-la-sheriff-concealed-carry-permit
 **QB Jaxson Dart to visit Steelers in April, per source: Pre-draft visit tracker**\
 `Keep track of every prospect who visits the Steelers' facility between now and the 2025 NFL Draft.`\
 https://nytimes.com/athletic/6181787/2025/03/28/steelers-nfl-draft-prospect-visitors-tracker/
-
-**Jason Kidd sees 'fight' from Mavericks, which keep Play-In hopes alive**\
-`Dallas improved to 3-0 with Anthony Davis in the lineup and should be getting two more key players back soon.`\
-https://nytimes.com/athletic/6237611/2025/03/28/mavericks-show-fight-against-orlando-grab-lead-for-final-play-in-tournament-spot/
-
-**Is CoreWeave’s Debut an Ill Omen for I.P.O.s?**\
-`The A.I. company is set to make its market debut on Friday amid concerns about its business model and the health of the wider economy.`\
-https://nytimes.com/2025/03/28/business/dealbook/coreweave-ipo-ai.html
-
-**Can Casey Mittelstadt be the Bruins’ next No. 1 center?**\
-`Mittelstadt has to prove himself to be defensively reliable and able to face top competition to get a run with David Pastrnak in 2025-26.`\
-https://nytimes.com/athletic/6236181/2025/03/28/casey-mittelstadt-bruins-center-future/
-
-**Gavin Meier on committing to Minnesota: What it means for Gophers, Wisconsin**\
-`Meier's decision had to do with what he believes Minnesota can offer him and with what Wisconsin isn't right now.`\
-https://nytimes.com/athletic/6236737/2025/03/28/gavin-meier-minnesota-football/
 

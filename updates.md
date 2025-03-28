@@ -1,3 +1,19 @@
+**Calm Your Investing Life: Own a Bit of Everything**\
+`People with bond and international stock funds have held their own, despite a shaky U.S. stock market and the uncertainty and turmoil flowing from the White House.`\
+https://nytimes.com/2025/03/28/business/investing-international-stocks-bonds.html
+
+**Elite tactician Bompastor keeps on proving why Chelsea hired her**\
+`Bompastor's evolution of Chelsea continued in their four successive matches against City. They now have Barcelona in their sights`\
+https://nytimes.com/athletic/6237898/2025/03/28/sonia-bompastor-chelsea-champions-league/
+
+**Haven’t Filed Your Taxes Yet? Here Are Some Last-Minute Tips.**\
+`Despite the turmoil at the I.R.S., tax returns are still due on April 15. And, yes, there are still options for lowering last year’s taxable income.`\
+https://nytimes.com/2025/03/28/your-money/taxes-filing-2024.html
+
+**Will Jimmy Snuggerud join the Blues after Minnesota's exit from NCAA Tournament?**\
+`After Minnesota's season ended Thursday, Jimmy Snuggerud will have to decide whether to sign with the Blues or return to the Gophers.`\
+https://nytimes.com/athletic/6236176/2025/03/28/jimmy-snuggerud-blues-ncaa-tournament/
+
 **LeBron James, Lakers searching for answers after stunning loss to Bulls**\
 `Thursday's loss on Josh Giddey's half-court buzzer-beater was the Lakers' eighth setback in their past 12 games.`\
 https://nytimes.com/athletic/6237843/2025/03/28/lakers-loss-bulls-lebron-james/
