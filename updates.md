@@ -1,3 +1,11 @@
+**F.C.C. Chairman Orders Inquiry Into Disney’s D.E.I. Practices**\
+`F.C.C. chairman Brendan Carr sent a letter to Disney accusing it of violating equal employment opportunity regulations.`\
+https://nytimes.com/2025/03/28/technology/disney-fcc-dei-investigation.html
+
+**Ravens, coach John Harbaugh agree to 3-year extension**\
+`Harbaugh, 62, is entering his 18th season as Baltimore's head coach. `\
+https://nytimes.com/athletic/6239441/2025/03/28/ravens-john-harbaugh-contract-extension/
+
 **Elon Musk Says He Has Sold X to xAI**\
 `Mr. Musk said the deal valued xAI, his artificial intelligence start-up, at $80 billion, and X at $30 billion.`\
 https://nytimes.com/2025/03/28/technology/musk-x-xai.html

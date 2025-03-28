@@ -1,3 +1,7 @@
+**Twins hope it's 'business as usual' as Joe Ryan returns to mound following injury**\
+`Ryan is set to make his first regular-season start for the Twins since departing a start Aug. 7 with a season-ending injury.`\
+https://nytimes.com/athletic/6239374/2025/03/28/twins-joe-ryan-returns-to-mound/
+
 **F.C.C. Chairman Orders Inquiry Into Disney’s D.E.I. Practices**\
 `F.C.C. chairman Brendan Carr sent a letter to Disney accusing it of violating equal employment opportunity regulations.`\
 https://nytimes.com/2025/03/28/technology/disney-fcc-dei-investigation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/28/magazine/teenagers-dating-ethics-parenting.html
 **The Gen X Career Meltdown**\
 `Just when they should be at their peak, experienced workers in creative fields find that their skills are all but obsolete.`\
 https://nytimes.com/2025/03/28/style/the-gen-x-career-meltdown.html
-
-**Sludge-Fertilizer Giant Leaves Texas Town Amid ‘Forever Chemicals’ Crisis**\
-`Ranchers claim livestock has been sickened by toxic chemicals in fertilizer made from sewage. Now Synagro, a Goldman Sachs-backed firm, has lost a deal to make sludge fertilizer there.`\
-https://nytimes.com/2025/03/28/climate/sewage-sludge-fertilizer-pfas-synagro-forever-chemicals.html
 
