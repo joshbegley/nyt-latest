@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6229856/2025/03/28/tennessee-kentucky-ncaa-tourname
 ``\
 https://nytimes.com/issue/todaysinyt/2025/03/28/todays-new-york-times-international-edition
 
-**Barcelona Femeni always bounce back - but know Chelsea will be a step up in class**\
+**Barcelona Femeni always bounce back – but know Chelsea will be a step up in class**\
 `Barcelona are chasing a third successive Champions League - a titanic battle with Chelsea now awaits in the last four`\
 https://nytimes.com/athletic/6237889/2025/03/28/barcelona-womens-champions-league-chelsea/
 

@@ -1,3 +1,7 @@
+**Barcelona Femeni always bounce back – but know Chelsea will be a step up in class**\
+`Barcelona are chasing a third successive Champions League - a titanic battle with Chelsea now awaits in the last four`\
+https://nytimes.com/athletic/6237889/2025/03/28/barcelona-womens-champions-league-chelsea/
+
 **NC State vs. LSU: How to watch the scorching Tigers in the Sweet 16**\
 `LSU's star-laden offense goes against hot-shooting and fast-breaking NC State. The spread is only a few points. This one could be a gem.`\
 https://nytimes.com/athletic/6229290/2025/03/28/nc-state-lsu-womens-ncaa-tournament-how-to-watch/
