@@ -1,3 +1,11 @@
+**Trump Targets WilmerHale, Citing Law Firm’s Connection to Robert Mueller**\
+`Mr. Mueller, who worked at WilmerHale before retiring in 2021, had investigated the Trump campaign’s ties to Russian officials during the president’s first term.`\
+https://nytimes.com/2025/03/27/us/politics/trump-wilmerhale-law-firm-mueller.html
+
+**Musk and Aides Try Charm Offensive in Fox News Interview**\
+`Most of Elon Musk’s associates at the Department of Government Efficiency have kept a low profile. Democrats have repeatedly criticized his effort to shrink the federal government, warning that critical services will be cut.`\
+https://nytimes.com/2025/03/27/us/politics/elon-musk-fox-interview-doge.html
+
 **Trump restored funding for Radio Free Europe and reinstated 33 employees for Cuban radio station.**\
 `The decision to`\
 https://nytimes.com/2025/03/27/us/politics/trump-radio-free-europe-funding.html

@@ -1,3 +1,11 @@
+**Trump Targets WilmerHale, Citing Law Firm’s Connection to Robert Mueller**\
+`Mr. Mueller, who worked at WilmerHale before retiring in 2021, had investigated the Trump campaign’s ties to Russian officials during the president’s first term.`\
+https://nytimes.com/2025/03/27/us/politics/trump-wilmerhale-law-firm-mueller.html
+
+**Musk and Aides Try Charm Offensive in Fox News Interview**\
+`Most of Elon Musk’s associates at the Department of Government Efficiency have kept a low profile. Democrats have repeatedly criticized his effort to shrink the federal government, warning that critical services will be cut.`\
+https://nytimes.com/2025/03/27/us/politics/elon-musk-fox-interview-doge.html
+
 **Trump restored funding for Radio Free Europe and reinstated 33 employees for Cuban radio station.**\
 `The decision to`\
 https://nytimes.com/2025/03/27/us/politics/trump-radio-free-europe-funding.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6236867/2025/03/27/chicago-white-sox-fans-opening-d
 **Justice Dept. Will Investigate California Universities Over Race in Admissions**\
 `California banned affirmative action decades ago. The Trump administration says it plans to investigate whether schools there are still considering race.`\
 https://nytimes.com/2025/03/27/us/california-universities-affirmative-action-doj.html
-
-**Crosby breaks Gretzky's NHL record with 20th point-per-game season**\
-`The Penguins captain now holds the league record for most consecutive point-per-game seasons in NHL history.`\
-https://nytimes.com/athletic/6237000/2025/03/27/penguins-sidney-crosby-wayne-gretzky-nhl/
-
-**It’s Gatsby’s World, We Just Live in It**\
-`F. Scott Fitzgerald’s classic novel turns 100 this year. What does its hero tell us about how we see ourselves?`\
-https://nytimes.com/interactive/2025/03/27/books/great-gatsby-100.html
 
