@@ -1,3 +1,7 @@
+**Xi Jinping Meets Global Business Leaders Amid Trade Tensions**\
+`German investment in China’s auto industry has been one of the few bright spots as foreign investment has slowed to a crawl.`\
+https://nytimes.com/2025/03/28/business/china-xi-ceos-mercedes-bmw-qualcomm.html
+
 **Trump Moves to End Union Protections Across Broad Swath of Government**\
 `An executive order signed by the president would cancel collective bargaining for hundreds of thousands of workers, the largest federal employees union said. The union was preparing legal action.`\
 https://nytimes.com/2025/03/28/us/politics/trump-unions-executive-order.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6232674/2025/03/28/leipzig-academy-baum-ai/
 **Why do Real Madrid make the fewest substitutions in Spain?**\
 `As Madrid chase a first treble in the club’s history, their manager Carlo Ancelotti remains reluctant to use his bench`\
 https://nytimes.com/athletic/6235073/2025/03/28/real-madrid-carlo-ancelotti-substitutes/
-
-**Bigger than the question of Postecoglou's future is the question of what Spurs want to be (again)**\
-`If Spurs do decide to change manager at the end of this season, it will already be their third summer manager hunt of this decade`\
-https://nytimes.com/athletic/6228454/2025/03/28/tottenham-manager-postecoglou-iraola/
 
