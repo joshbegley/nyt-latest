@@ -1,40 +1,40 @@
-**Medieval Tales of Merlin and Arthur, Hidden for Centuries, Return to Light**\
-`Cambridge University researchers found a manuscript with rare Arthurian tales bound into a ledger more than 400 years old and used advanced technology to reveal its contents.`\
-https://nytimes.com/2025/03/28/world/europe/merlin-manuscript-cambridge.html
+**Myanmar’s Internet Censorship Limits Information About Quake**\
+`Since 2021, the ruling military junta has severely restricted the internet and cut access to social media, digitally isolating the country.`\
+https://nytimes.com/2025/03/28/world/asia/myanmar-earthquake-internet-censorship.html
 
-**Central Myanmar is especially prone to powerful quakes.**\
-`By Keith Bradsher`\
-https://nytimes.com/live/2025/03/28/world/myanmar-earthquake/central-myanmar-is-especially-prone-to-powerful-quakes
+**Ex Barcelona defender Alves acquitted of sexual assault, prison sentence overturned**\
+`Alves, 41, was sentenced in February 2024 for an alleged sexual assault at a Barcelona nightclub in December 2022.`\
+https://nytimes.com/athletic/6238039/2025/03/28/dani-alves-sexual-assault-sentence-overturned/
 
-**UCLA vs. Ole Miss: How to watch Lauren Betts, Bruins play for Elite Eight bid**\
-`No. 1 UCLA is a big favorite against fifth-seeded Ole Miss on Friday. Lauren Betts is coming off a 30-point game in the prior round.`\
-https://nytimes.com/athletic/6227779/2025/03/28/ucla-ole-miss-womens-ncaa-tournament-how-to-watch/
+**Nervous? Ilia Malinin didn't show it once he got into 'that flow state'**\
+`The defending world champion said he was more unsettled than usual, but it didn't stop him from nailing his elements in the short program. `\
+https://nytimes.com/athletic/6237091/2025/03/28/ilia-malinin-world-figure-skating-championships-short-program/
 
-**No 3s? No problem. How Texas could win a national championship without them**\
-`Texas has the lowest 3-point rate in the nation. Coach Vic Schaefer is just fine with that. "The proof’s in the pudding."`\
-https://nytimes.com/athletic/6237007/2025/03/28/texas-womens-basketball-ncaa-tournament-3-pointers/
+**Dunk still has big part to play for Brighton - Hurzeler**\
+`Dunk has missed Brighton's last six matches but is set to return for the FA Cup quarter-final against Nottingham Forest on Saturday.`\
+https://nytimes.com/athletic/6238030/2025/03/28/brighton-dunk-hurzeler-fa-cup-team-news/
 
-**Colts 2025 NFL Draft big board: 10 prospects for Indy to consider on Day 2**\
-`Chris Ballard wasn’t messing around.`\
-https://nytimes.com/athletic/6236596/2025/03/28/colts-2025-nfl-draft-big-board-treveyon-henderson/
+**How rookie Yves Missi’s emergence has changed the Pelicans’ plans at center**\
+`A lot has gone wrong this year for the Pelicans, but they might have found their future at center. `\
+https://nytimes.com/athletic/6233900/2025/03/28/yves-missi-rookies-pelicans-nba/
 
-**A healthy Ben Simmons is doing his part with Clippers, where 'the goal is to win'**\
-`Simmons has been a maestro directing LA's second unit and has the Clippers' sights set on the playoffs, where he hasn't been since 2021.`\
-https://nytimes.com/athletic/6234830/2025/03/28/ben-simmons-la-clippers-sixers-nets/
+**Blues win eighth straight behind Dylan Holloway's goals, extend wild-card lead**\
+`The win over the Predators was perhaps their most impressive victory in a while, which is saying a lot.`\
+https://nytimes.com/athletic/6237512/2025/03/28/blues-hot-streak-nhl-playoffs/
 
-**The Self-Deporters**\
-`Our immigration correspondnet has found a surprising trend.`\
-https://nytimes.com/2025/03/28/briefing/the-self-deporters.html
+**Greenberg: After a cold start in Japan, can the Cubs get hot?**\
+`What a day in Chicago sports. The White Sox scored a win over the Angels, then the Bulls pulled off a miracle, and the Cubs topped it off.`\
+https://nytimes.com/athletic/6237775/2025/03/28/cubs-diamondbacks-pete-crow-armstrong-ian-happ/
 
-**The Pulse: At least we got some thrilling games?**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6235556/2025/03/28/ncaa-sweet-16-texas-tech-duke-the-pulse/
+**Miami mailbag: Will the freshman WRs play? When will Carson Beck be ready?**\
+`How does the administration feel about Mario Cristobal? Will Samson Okunlola or Tommy Kinsler ever play significant snaps at Miami?`\
+https://nytimes.com/athletic/6233091/2025/03/28/miami-hurricanes-football-carson-beck/
 
-**Myanmar Quake Causes Chaos in Bangkok**\
-`In Bangkok, a building that had been under construction collapsed, killing at least three people, while dozens of workers remained stuck in the rubble.`\
-https://nytimes.com/2025/03/28/world/asia/myanmar-earthquake-bangkok-thailand.html
+**Dylan Raiola embracing leadership role in second year on campus**\
+`Raiola's maturation as a QB in this second offseason of his collegiate career looms large for a program desperate to take the next step. `\
+https://nytimes.com/athletic/6236559/2025/03/28/dylan-raiola-nebraska-quarterback-leader/
 
-**Houston vs. Purdue: Can the Boilers take down Kelvin Sampson's top-seeded Cougars?**\
-`Kelvin Sampson's squad is one of the best in the country. Can Big Ten Player of the Year Braden Smith lead the Boilers to an upset?`\
-https://nytimes.com/athletic/6229922/2025/03/28/houston-purdue-ncaa-tournament-how-to-watch/
+**Men’s March Madness 2025: What to watch for on Day 6**\
+`Friday's Sweet 16 action is a slate of heavyweight showdowns that promise plenty of drama. Here's what you need to know.`\
+https://nytimes.com/athletic/6236122/2025/03/28/march-madness-2025-what-to-watch-day-6-sweet-16/
 
