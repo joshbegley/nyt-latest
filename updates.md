@@ -1,3 +1,7 @@
+**In 10 matches David Moyes has transformed Everton. Here's how he did it...**\
+`Moyes has built on the foundations left by Dyche to pull Everton clear of trouble much sooner than expected`\
+https://nytimes.com/athletic/6235505/2025/03/28/in-10-matches-david-moyes-has-transformed-everton-heres-how-he-did-it/
+
 **Alex Ovechkin thwarted by Jonas Brodin, Filip Gustavsson and Wild: 4 takeaways**\
 `The Capitals great, who is chasing the NHL goals record, was shut out, but saluted his longtime victim in net, Marc-Andre Fleury, postgame.`\
 https://nytimes.com/athletic/6236971/2025/03/28/wild-alex-ovechkin-brodin-gustavsson/
