@@ -1,3 +1,7 @@
+**Trump Deportation Fight Reaches Supreme Court**\
+`The Trump administration asked the justices to allow it to use a wartime law to continue deportations of Venezuelans with little or no due process.`\
+https://nytimes.com/2025/03/28/us/politics/trump-deportations-supreme-court.html
+
 **Overwhelmed Myanmar Hospital Treats Quake Victims in Parking Lot**\
 `Patients had to lie on cardboard or directly on the concrete outside the main hospital in Mandalay. Even before the earthquake, the health care system in Myanmar was under stress.`\
 https://nytimes.com/2025/03/28/world/asia/myanmar-earthquake-mandalay-general-hospital.html
