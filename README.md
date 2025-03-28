@@ -1,3 +1,11 @@
+**Scoop City: Cam Ward's remarkable journey to QB1**\
+`Inside: Cam Ward&#8217;s journey, pro days for top quarterbacks and why one prospect sometimes can&#8217;t stay awake.`\
+https://nytimes.com/athletic/6238634/2025/03/28/who-is-cam-ward-miami-tennessee-nfl-draft-2025-scoop-city/
+
+**Modeling suggests the death toll is likely to top 1,000, and may be much higher.**\
+`By Pablo Robles and Agnes Chang`\
+https://nytimes.com/live/2025/03/28/world/myanmar-earthquake/modeling-suggests-that-the-death-toll-is-likely-to-top-1000
+
 **Osasuna file appeal over Barcelona fielding Martinez in La Liga win**\
 `Martinez withdrew from Spain’s squad on March 17 due to a knee injury.`\
 https://nytimes.com/athletic/6238501/2025/03/28/osasuna-barcelona-inigo-martinez-appeal/
@@ -29,8 +37,4 @@ https://nytimes.com/athletic/6237838/2025/03/28/tyler-oneill-opening-day-home-ru
 **Trump Orders Smithsonian Institution to Promote ‘American Greatness’**\
 `The president complained in an executive order that the Smithsonian had advanced “narratives that portray American and Western values as inherently harmful and oppressive.”`\
 https://nytimes.com/2025/03/28/arts/design/trump-smithsonian-institution-eo.html
-
-**Food Poisoning While Traveling: What You Should Know**\
-`Whether you’re traveling off-the-beaten path or staying at a high-end resort, paying attention to how food is prepared and handled can help keep you safe.`\
-https://nytimes.com/2025/03/28/travel/food-poisoning-while-traveling-what-to-know.html
 
