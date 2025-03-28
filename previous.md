@@ -1,3 +1,15 @@
+**Twins' sloppy start and bumpy TV broadcast doom Opening Day**\
+`Between the team’s sloppy early play and the bumpy broadcast, nothing about Thursday’s start went the way the Twins desire.`\
+https://nytimes.com/athletic/6237422/2025/03/27/twins-opening-day-loss-tv-issues/
+
+**Giddey's half-court shot at buzzer gives Bulls dramatic win over Lakers**\
+`Josh Giddey earned his fifth triple-double with 25 points, 14 rebounds and 11 assists in the win.`\
+https://nytimes.com/athletic/6237432/2025/03/27/josh-giddey-half-court-shot-bulls-lakers/
+
+**Yohe's 10 observations: Sidney Crosby remains great, even when Penguins are not**\
+`Crosby made history with his 20th point-per-game season on an otherwise forgettable night for the Penguins in Buffalo. `\
+https://nytimes.com/athletic/6237108/2025/03/27/sidney-crosby-penguins-sabres-nhl-record/
+
 **David Perron continues his stellar March in win over Red Wings**\
 `The Sherbrooke native has seven goals and 10 points in 13 games since the beginning of the month. `\
 https://nytimes.com/athletic/6236209/2025/03/27/senators-david-perron-red-wings/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6237282/2025/03/27/what-we-saw-mlb-opening-day-2025
 **Mining Company Seeks Trump Support to Shortcut Access to Seabed Metals**\
 `Mining companies and the Trump administration want the metals to boost manufacturing. Environmentalists and some countries worry industrial mining would harm oceans.`\
 https://nytimes.com/2025/03/27/climate/mining-company-seeks-trump-support-to-shortcut-access-to-seabed-metals.html
-
-**How the 'grit squad' Padres got off to a fast start to a pivotal season**\
-`The Padres looked much like the team that flourished last summer, running and rallying their way to success against the Braves.`\
-https://nytimes.com/athletic/6237330/2025/03/27/padres-opening-day-stolen-bases/
-
-**FSU's Latson, top scorer in women's hoops, entering transfer portal: Reports**\
-`The three-time All-ACC guard has been the centerpiece of the Seminoles for each of the past three seasons.`\
-https://nytimes.com/athletic/6236331/2025/03/27/taniya-latson-transfer-portal-fsu/
-
-**A Very Phillies Opening Day: They whiffed, waited and won**\
-`The beauty is in the 162-game grind with a group that has experienced so much together. They will savor the victories — big and small.`\
-https://nytimes.com/athletic/6237183/2025/03/27/phillies-2025-season-opening-day-bryce-harper/
 

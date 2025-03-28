@@ -1,3 +1,15 @@
+**Twins' sloppy start and bumpy TV broadcast doom Opening Day**\
+`Between the team’s sloppy early play and the bumpy broadcast, nothing about Thursday’s start went the way the Twins desire.`\
+https://nytimes.com/athletic/6237422/2025/03/27/twins-opening-day-loss-tv-issues/
+
+**Giddey's half-court shot at buzzer gives Bulls dramatic win over Lakers**\
+`Josh Giddey earned his fifth triple-double with 25 points, 14 rebounds and 11 assists in the win.`\
+https://nytimes.com/athletic/6237432/2025/03/27/josh-giddey-half-court-shot-bulls-lakers/
+
+**Yohe's 10 observations: Sidney Crosby remains great, even when Penguins are not**\
+`Crosby made history with his 20th point-per-game season on an otherwise forgettable night for the Penguins in Buffalo. `\
+https://nytimes.com/athletic/6237108/2025/03/27/sidney-crosby-penguins-sabres-nhl-record/
+
 **Nolan Arenado 'puts a bow' on Cards' Opening Day win: 'It meant a lot to me'**\
 `After a turbulent winter, Arenado got much-appreciated support from the home fans.`\
 https://nytimes.com/athletic/6236835/2025/03/27/cardinals-nolan-arenado-opening-day-homer/
