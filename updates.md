@@ -1,3 +1,7 @@
+**Powerful Earthquake Shakes Southeast Asia**\
+`People in Myanmar and Thailand felt tremors.`\
+https://nytimes.com/video/world/asia/100000010078218/earthquake-myanmar-thailand.html
+
 **Strong Earthquake Strikes Myanmar’s Second-Largest City**\
 `People in Mandalay, near the epicenter of the 7.7.-magnitude quake, were rushed to the main hospital. Shaking was felt as far away as Bangkok in neighboring Thailand.`\
 https://nytimes.com/2025/03/28/world/asia/myanmar-earthquake.html
