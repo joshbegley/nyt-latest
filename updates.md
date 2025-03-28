@@ -1,3 +1,7 @@
+**Houston vs. Purdue: Can the Boilers take down Kelvin Sampson's top-seeded Cougars?**\
+`Kelvin Sampson's squad is one of the best in the country. Can Big Ten Player of the Year Braden Smith lead the Boilers to an upset?`\
+https://nytimes.com/athletic/6229922/2025/03/28/houston-purdue-ncaa-tournament-how-to-watch/
+
 **Red Wings' latest frustrating loss to Ottawa story of missed opportunities**\
 `Recent games against the Senators have been an exercise in frustration for the Red Wings. This one had more than its share of malaise.`\
 https://nytimes.com/athletic/6237483/2025/03/28/red-wings-senators-missed-opportunities/
