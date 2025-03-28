@@ -1,3 +1,11 @@
+**Hegseth Seeks to Reassure Allies on First Official Trip to Asia**\
+`At his first stop in the Philippines, the U.S. defense secretary promised to strengthen deterrence against Chinese “threats” in the region. He also plans to visit Japan.`\
+https://nytimes.com/2025/03/28/world/asia/hegseth-philippines-china.html
+
+**Breaking down Cam Ward's superpower and why it sets him apart in the NFL Draft**\
+`The draft's QB1 has elite awareness, especially off-script, but how he plays in structure will be key to his NFL success.`\
+https://nytimes.com/athletic/6234769/2025/03/28/cam-ward-miami-nfl-draft-film-review/
+
 **How Emma Raducanu found her tennis, and perhaps herself, in Miami**\
 `Raducanu's Miami Open run saw her benefit from a change in environment, as well as having familiar faces in her coaching box.`\
 https://nytimes.com/athletic/6235979/2025/03/28/tennis-emma-raducanu-team-coach/

@@ -1,3 +1,11 @@
+**Hegseth Seeks to Reassure Allies on First Official Trip to Asia**\
+`At his first stop in the Philippines, the U.S. defense secretary promised to strengthen deterrence against Chinese “threats” in the region. He also plans to visit Japan.`\
+https://nytimes.com/2025/03/28/world/asia/hegseth-philippines-china.html
+
+**Breaking down Cam Ward's superpower and why it sets him apart in the NFL Draft**\
+`The draft's QB1 has elite awareness, especially off-script, but how he plays in structure will be key to his NFL success.`\
+https://nytimes.com/athletic/6234769/2025/03/28/cam-ward-miami-nfl-draft-film-review/
+
 **How Emma Raducanu found her tennis, and perhaps herself, in Miami**\
 `Raducanu's Miami Open run saw her benefit from a change in environment, as well as having familiar faces in her coaching box.`\
 https://nytimes.com/athletic/6235979/2025/03/28/tennis-emma-raducanu-team-coach/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/28/well/bad-habits-back-spine-surgeons.html
 **Hillary Clinton: This Is Just Dumb**\
 `The Signal group chat is only the latest in a string of self-inflicted wounds by the new administration.`\
 https://nytimes.com/2025/03/28/opinion/trump-hegseth-signal-chat.html
-
-**Iran Signals Openness to Indirect Talks After Trump Letter**\
-`Tehran neither rejected negotiations nor accepted face-to-face talks in its response to President Trump’s letter calling for talks to curb Iran’s advancing nuclear program. Here’s what to know.`\
-https://nytimes.com/2025/03/28/world/middleeast/iran-negotiations-trump-letter.html
-
-**Alison Krauss Gets the Band Back Together**\
-`The bluegrass star reunites with Union Station on “Arcadia,” their first album in 14 years.`\
-https://nytimes.com/2025/03/28/podcasts/alison-krauss-gets-the-band-back-together.html
 
