@@ -1,3 +1,11 @@
+**Review: Sarah Snook Stars in the Selfie of ‘Dorian Gray’**\
+`The “Succession” actress plays all 26 roles in this Oscar Wilde classic reimagined as a video spectacle. If only there were less screen time and more IRL contact.`\
+https://nytimes.com/2025/03/27/theater/picture-of-dorian-gray-review-snook.html
+
+**Easily Victorious**\
+`Zhouqin Burnikel returns to deliver a Friday puzzle that is packed with misdirected clues.`\
+https://nytimes.com/2025/03/27/crosswords/daily-puzzle-2025-03-28.html
+
 **Why the Yankees believe they've unlocked the secret for a Carlos Rodón breakout**\
 `After relying for years on just his fastball and slider, the lefty has added multiple pitches to his arsenal. `\
 https://nytimes.com/athletic/6236327/2025/03/27/yankees-carlos-rodon-pitching-breakout/

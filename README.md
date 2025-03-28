@@ -1,3 +1,11 @@
+**CoreWeave Scales Back Ambitions for Its I.P.O.**\
+`The company, which originally expected its shares to be priced between $47 and $55, will ask for $40 a share in a sign of stock market uncertainty.`\
+https://nytimes.com/2025/03/27/technology/coreweave-scales-back-ambitions-for-its-ipo.html
+
+**Wilyer Abreu's homers power Red Sox to stirring Opening Day win**\
+`Kristian Campbell's first big-league hit helps spur a game-winning rally, as Abreu's two home runs deliver a 5-2 win.`\
+https://nytimes.com/athletic/6237203/2025/03/27/red-sox-wilyer-abreu-homers-kristian-campbell-debut/
+
 **Review: Sarah Snook Stars in the Selfie of ‘Dorian Gray’**\
 `The “Succession” actress plays all 26 roles in this Oscar Wilde classic reimagined as a video spectacle. If only there were less screen time and more IRL contact.`\
 https://nytimes.com/2025/03/27/theater/picture-of-dorian-gray-review-snook.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/27/pageoneplus/corrections-march-28-2025.html
 **The Angels planned to compete in 2025. Game 1 was not a good start**\
 `This season will not be defined by the first game. All the Angels can do is hope that this opener has no bearing on what's to come.`\
 https://nytimes.com/athletic/6237126/2025/03/27/can-angels-turn-it-around-2025-opening-day/
-
-**A smash and a save in the sunshine: Not a bad opening act for the Yankees**\
-`Baseball is never more beautiful than it is on opening day, in the sunshine, with a whole season of possibility stretched out ahead.`\
-https://nytimes.com/athletic/6237147/2025/03/27/new-york-yankees-opening-day-win/
-
-**The perfect setup for Juan Soto ends with an Opening Day loss for the Mets**\
-`Soto expected a fastball but got a slider instead during Opening Day's most pivotal at-bat.`\
-https://nytimes.com/athletic/6237117/2025/03/27/mets-juan-soto-opening-day-josh-hader/
 

@@ -1,3 +1,11 @@
+**Review: Sarah Snook Stars in the Selfie of ‘Dorian Gray’**\
+`The “Succession” actress plays all 26 roles in this Oscar Wilde classic reimagined as a video spectacle. If only there were less screen time and more IRL contact.`\
+https://nytimes.com/2025/03/27/theater/picture-of-dorian-gray-review-snook.html
+
+**Easily Victorious**\
+`Zhouqin Burnikel returns to deliver a Friday puzzle that is packed with misdirected clues.`\
+https://nytimes.com/2025/03/27/crosswords/daily-puzzle-2025-03-28.html
+
 **Why the Yankees believe they've unlocked the secret for a Carlos Rodón breakout**\
 `After relying for years on just his fastball and slider, the lefty has added multiple pitches to his arsenal. `\
 https://nytimes.com/athletic/6236327/2025/03/27/yankees-carlos-rodon-pitching-breakout/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6237147/2025/03/27/new-york-yankees-opening-day-win
 **The perfect setup for Juan Soto ends with an Opening Day loss for the Mets**\
 `Soto expected a fastball but got a slider instead during Opening Day's most pivotal at-bat.`\
 https://nytimes.com/athletic/6237117/2025/03/27/mets-juan-soto-opening-day-josh-hader/
-
-**Quadg0d was here: The Ilia Malinin experience hits a new stage at figure skating worlds**\
-`The new star of figure skating, Ilia Malinin, put on his typically dazzling routine Thursday at the world championships in Boston.`\
-https://nytimes.com/athletic/6237110/2025/03/27/ilia-malinin-quadgod-figure-skating-world-championships/
-
-**Trump Targets WilmerHale, Citing Law Firm’s Connection to Robert Mueller**\
-`Mr. Mueller, who worked at WilmerHale before retiring in 2021, had investigated the Trump campaign’s ties to Russian officials during the president’s first term.`\
-https://nytimes.com/2025/03/27/us/politics/trump-wilmerhale-law-firm-mueller.html
 
