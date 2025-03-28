@@ -1,3 +1,7 @@
+**U.S. Judge Orders Halt to Trump’s Effort to Dismantle Voice of America**\
+`Voice of America journalists had argued in a lawsuit that the administration’s actions violated their First Amendment rights.`\
+https://nytimes.com/2025/03/28/business/media/voice-of-america-lawsuit-trump.html
+
 **‘This was essentially a settlement,’ Trump says of the agreement with Skadden Arps.**\
 `The president said the firm of Skadden, Arps, Slate, Meagher & Flom had agreed to provide $100 million in pro bono work on issues that he supports.`\
 https://nytimes.com/live/2025/03/28/us/trump-greenland-vance-news/trump-skadden-deal
@@ -21,8 +25,4 @@ https://nytimes.com/athletic/6238726/2025/03/28/efl-official-child-sex-offences/
 **Stocks Fall as Inflation Anxiety Dampens Mood on Wall Street**\
 `The S&P 500 index dipped as investors weighed new hotter-than-expected inflation data and braced for President Trump’s next round of tariffs.`\
 https://nytimes.com/2025/03/28/business/stock-market-inflation-consumer-sentiment.html
-
-**Masks, helmets and headbands: what are footballers allowed to wear on their heads?**\
-`Rules state head covers must be black or the same colour as the team shirt, and cannot endanger the person wearing it or any other player`\
-https://nytimes.com/athletic/6231985/2025/03/28/football-headgear-helmet-mask-mateta-palace/
 
