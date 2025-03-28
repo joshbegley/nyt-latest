@@ -1,5 +1,13 @@
+**A 'culmination' for Dodgers: Champs look dangerous again in home opener**\
+`Amid much fanfare and hoopla, the Dodgers kept up their winning formula: "This feeling right now is unbeatable for everybody."`\
+https://nytimes.com/athletic/6237467/2025/03/27/dodgers-opening-day-ice-cube/
+
+**Opening Day homers from Wilmer Flores, Heliot Ramos give Giants fans a reason to dream**\
+`The Giants struck out 17 times against the Reds but it was all moot after Flores and Ramos hit dramatic homers off right-handers.`\
+https://nytimes.com/athletic/6237061/2025/03/27/sf-giants-heliot-ramos-wilmer-flores-opening-day/
+
 **Twins' sloppy start and bumpy TV broadcast doom Opening Day**\
-`Between the team’s sloppy early play and the bumpy broadcast, nothing about Thursday’s start went the way the Twins desire.`\
+`Between the team’s early play and the broadcast, nothing about Thursday’s start went the way the Twins desired.`\
 https://nytimes.com/athletic/6237422/2025/03/27/twins-opening-day-loss-tv-issues/
 
 **Giddey's half-court shot at buzzer gives Bulls dramatic win over Lakers**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6237472/2025/03/27/kevin-willard-maryland-coach-vil
 **Newly energetic Astros notch Opening Day win over Mets: 'It's a different club'**\
 `The Astros made it a priority to infuse some extra energy into their clubhouse during an offseason filled with change. So far, so good. `\
 https://nytimes.com/athletic/6237331/2025/03/27/astros-opening-day-energy-cam-smith-debut/
-
-**What we saw across MLB Opening Day: Ohtani mashes, Mets swoon, Tyler O'Neill strikes again**\
-`It was Game 1 of 162. A drop in the bucket, but it quenches a winter’s thirst. Across North America, a series of close games thrilled. `\
-https://nytimes.com/athletic/6237282/2025/03/27/what-we-saw-mlb-opening-day-2025/
-
-**Mining Company Seeks Trump Support to Shortcut Access to Seabed Metals**\
-`Mining companies and the Trump administration want the metals to boost manufacturing. Environmentalists and some countries worry industrial mining would harm oceans.`\
-https://nytimes.com/2025/03/27/climate/mining-company-seeks-trump-support-to-shortcut-access-to-seabed-metals.html
 

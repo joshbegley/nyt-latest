@@ -1,3 +1,15 @@
+**A 'culmination' for Dodgers: Champs look dangerous again in home opener**\
+`Amid much fanfare and hoopla, the Dodgers kept up their winning formula: "This feeling right now is unbeatable for everybody."`\
+https://nytimes.com/athletic/6237467/2025/03/27/dodgers-opening-day-ice-cube/
+
+**Opening Day homers from Wilmer Flores, Heliot Ramos give Giants fans a reason to dream**\
+`The Giants struck out 17 times against the Reds but it was all moot after Flores and Ramos hit dramatic homers off right-handers.`\
+https://nytimes.com/athletic/6237061/2025/03/27/sf-giants-heliot-ramos-wilmer-flores-opening-day/
+
+**Twins' sloppy start and bumpy TV broadcast doom Opening Day**\
+`Between the team’s early play and the broadcast, nothing about Thursday’s start went the way the Twins desired.`\
+https://nytimes.com/athletic/6237422/2025/03/27/twins-opening-day-loss-tv-issues/
+
 **Twins' sloppy start and bumpy TV broadcast doom Opening Day**\
 `Between the team’s sloppy early play and the bumpy broadcast, nothing about Thursday’s start went the way the Twins desire.`\
 https://nytimes.com/athletic/6237422/2025/03/27/twins-opening-day-loss-tv-issues/

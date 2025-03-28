@@ -1,3 +1,15 @@
+**Quote of the Day: Even With Truce Talks, Ukraine’s War Rages On**\
+`Quotation of the Day for Friday, March 28, 2025.`\
+https://nytimes.com/2025/03/27/pageoneplus/quote-of-the-day-even-with-truce-talks-ukraines-war-rages-on.html
+
+**As Tigers search for timely hits, not even Tarik Skubal could help them slay the Dodgers**\
+`The Tigers lost to the Dodgers 5-4 on Opening Day, done in by the home-run ball and going 0-for-15 with runners in scoring position.`\
+https://nytimes.com/athletic/6237520/2025/03/27/tigers-opening-day-dodgers-loss-skubal/
+
+**Kulich, Bernard-Docker shine in blowout win: Sabres takeaways**\
+`Amid yet another disappointing season, young Sabres proved they might be bright spots for the future in a demolishing of the Penguins.`\
+https://nytimes.com/athletic/6237558/2025/03/27/sabres-kulich-bernard-docker-penguins/
+
 **A 'culmination' for Dodgers: Champs look dangerous again in home opener**\
 `Amid much fanfare and hoopla, the Dodgers kept up their winning formula: "This feeling right now is unbeatable for everybody."`\
 https://nytimes.com/athletic/6237467/2025/03/27/dodgers-opening-day-ice-cube/
@@ -6,7 +18,7 @@ https://nytimes.com/athletic/6237467/2025/03/27/dodgers-opening-day-ice-cube/
 `The Giants struck out 17 times against the Reds but it was all moot after Flores and Ramos hit dramatic homers off right-handers.`\
 https://nytimes.com/athletic/6237061/2025/03/27/sf-giants-heliot-ramos-wilmer-flores-opening-day/
 
-**Twins' sloppy start and bumpy TV broadcast doom Opening Day**\
+**Twins' sloppy start and bumpy TV broadcast derail Opening Day**\
 `Between the team’s early play and the broadcast, nothing about Thursday’s start went the way the Twins desired.`\
 https://nytimes.com/athletic/6237422/2025/03/27/twins-opening-day-loss-tv-issues/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6236209/2025/03/27/senators-david-perron-red-wings/
 **Nolan Arenado 'puts a bow' on Cards' Opening Day win: 'It meant a lot to me'**\
 `After a turbulent winter, Arenado got much-appreciated support from the home fans.`\
 https://nytimes.com/athletic/6236835/2025/03/27/cardinals-nolan-arenado-opening-day-homer/
-
-**The DOGE Playbook Targeting Federal Agencies**\
-`The cost-cutting strategy of the group, led by billionaire Elon Musk, has played out at more than 30 agencies so far.`\
-https://nytimes.com/interactive/2025/03/27/us/politics/doge-playbook-musk-cuts.html
-
-**Kevin Willard addresses future at Maryland: 'I don’t know what I’m doing'**\
-`"Right now my biggest concerns in life are, I don’t know who my boss is going to be,” Willard said after his team's loss to Florida.`\
-https://nytimes.com/athletic/6237472/2025/03/27/kevin-willard-maryland-coach-villanova/
-
-**Newly energetic Astros notch Opening Day win over Mets: 'It's a different club'**\
-`The Astros made it a priority to infuse some extra energy into their clubhouse during an offseason filled with change. So far, so good. `\
-https://nytimes.com/athletic/6237331/2025/03/27/astros-opening-day-energy-cam-smith-debut/
 
