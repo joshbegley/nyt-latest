@@ -1,3 +1,7 @@
+**What if Arsenal had never left Highbury?**\
+`The move to the Emirates was a business decision rather than an emotional one, but it prompted the break up of Arsene Wenger's greatest team`\
+https://nytimes.com/athletic/6235683/2025/03/28/arsenal-highbury-emirates-inspired-by-you/
+
 **City mailbag: Club World Cup starters, McAtee's missing minutes and a Bernardo bounceback?**\
 `Sam Lee answers your questions about the latest happenings at the Etihad`\
 https://nytimes.com/athletic/6235211/2025/03/28/manchester-city-mailbag-mcatee-silva-club-world-cup/

@@ -1,3 +1,7 @@
+**Trump Moves to End Union Protections Across Broad Swath of Government**\
+`An executive order signed by the president would cancel collective bargaining for hundreds of thousands of workers, the largest federal employees union said. The union was preparing legal action.`\
+https://nytimes.com/2025/03/28/us/politics/trump-unions-executive-order.html
+
 **City mailbag: Club World Cup starters, McAtee's missing minutes and a Bernardo bounceback?**\
 `Sam Lee answers your questions about the latest happenings at the Etihad`\
 https://nytimes.com/athletic/6235211/2025/03/28/manchester-city-mailbag-mcatee-silva-club-world-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6235073/2025/03/28/real-madrid-carlo-ancelotti-subs
 **Bigger than the question of Postecoglou's future is the question of what Spurs want to be (again)**\
 `If Spurs do decide to change manager at the end of this season, it will already be their third summer manager hunt of this decade`\
 https://nytimes.com/athletic/6228454/2025/03/28/tottenham-manager-postecoglou-iraola/
-
-**Geovany Quenda is going places. Fast. 'I see similarities with Lamine Yamal'**\
-`The 17-year-old is joining Chelsea in 2026 for £40million. This is his (short) story so far. Many are convinced he will be a global star`\
-https://nytimes.com/athletic/6235533/2025/03/28/geovany-quenda-chelsea-signing-sporting-lisbon-profile/
 

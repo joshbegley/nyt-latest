@@ -6,6 +6,10 @@ https://nytimes.com/athletic/6235211/2025/03/28/manchester-city-mailbag-mcatee-s
 `We asked Nottingham Forest subscribers if they would rather win the FA Cup or qualify for the Champions League. Here are the results...`\
 https://nytimes.com/athletic/6235491/2025/03/28/forest-fa-cup-champions-league/
 
+**What if Arsenal had never left Highbury?**\
+`The move to the Emirates was a business decision rather than an emotional one, but it prompted the break up of Arsene Wenger's greatest team`\
+https://nytimes.com/athletic/6235683/2025/03/28/arsenal-highbury-emirates-inspired-by-you/
+
 **The goal Hojlund keeps trying to score - and why it blocked his ketchup**\
 `A breakdown of the factors that caused Hojlund's 21-match goal drought for United`\
 https://nytimes.com/athletic/6143414/2025/03/28/rasmus-hojlund-ketchup-shooting-from-wide/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6228454/2025/03/28/tottenham-manager-postecoglou-ir
 **Geovany Quenda is going places. Fast. 'I see similarities with Lamine Yamal'**\
 `The 17-year-old is joining Chelsea in 2026 for £40million. This is his (short) story so far. Many are convinced he will be a global star`\
 https://nytimes.com/athletic/6235533/2025/03/28/geovany-quenda-chelsea-signing-sporting-lisbon-profile/
-
-**Milos Kerkez interview: 'When people say they don't see stuff about you, it's a lie. I just do my job'**\
-`The Bournemouth left-back is enjoying a stellar season and attracting interest from Europe's top clubs - The Athletic went to meet him`\
-https://nytimes.com/athletic/6229619/2025/03/28/milos-kerkez-interview-bournemouth-liverpool-iraola/
 
