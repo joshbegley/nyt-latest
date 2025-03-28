@@ -1,3 +1,7 @@
+**U.S. Judge Orders Halt to Trump’s Effort to Dismantle Voice of America**\
+`Voice of America journalists had argued in a lawsuit that the administration’s actions violated their First Amendment rights.`\
+https://nytimes.com/2025/03/28/business/media/voice-of-america-lawsuit-trump.html
+
 **‘This was essentially a settlement,’ Trump says of the agreement with Skadden Arps.**\
 `The president said the firm of Skadden, Arps, Slate, Meagher & Flom had agreed to provide $100 million in pro bono work on issues that he supports.`\
 https://nytimes.com/live/2025/03/28/us/trump-greenland-vance-news/trump-skadden-deal
