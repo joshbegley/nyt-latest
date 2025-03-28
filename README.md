@@ -1,3 +1,19 @@
+**Why do Real Madrid make the fewest substitutions in Spain?**\
+`As Madrid chase a first treble in the club’s history, their manager Carlo Ancelotti remains reluctant to use his bench`\
+https://nytimes.com/athletic/6235073/2025/03/28/real-madrid-carlo-ancelotti-substitutes/
+
+**Bigger than the question of Postecoglou's future is the question of what Spurs want to be (again)**\
+`If Spurs do decide to change manager at the end of this season, it will already be their third summer manager hunt of this decade`\
+https://nytimes.com/athletic/6228454/2025/03/28/tottenham-manager-postecoglou-iraola/
+
+**Geovany Quenda is going places. Fast. 'I see similarities with Lamine Yamal'**\
+`The 17-year-old is joining Chelsea in 2026 for £40million. This is his (short) story so far. Many are convinced he will be a global star`\
+https://nytimes.com/athletic/6235533/2025/03/28/geovany-quenda-chelsea-signing-sporting-lisbon-profile/
+
+**Milos Kerkez interview: 'When people say they don't see stuff about you, it's a lie. I just do my job'**\
+`The Bournemouth left-back is enjoying a stellar season and attracting interest from Europe's top clubs - The Athletic went to meet him`\
+https://nytimes.com/athletic/6229619/2025/03/28/milos-kerkez-interview-bournemouth-liverpool-iraola/
+
 **Texas Tech is Elite: Red Raiders rally from 16 down to top Arkansas in OT**\
 `Texas Tech mounts second-largest comeback in a Sweet 16 game to advance to the Elite Eight for the third time in school history. `\
 https://nytimes.com/athletic/6237626/2025/03/28/arkansas-john-calipari-elite-eight-texas-tech/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/28/briefing/auto-tariffs-ukraine-gaza.html
 **The New York Times in Print for Friday, March 28, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/03/28/todays-new-york-times
-
-**I Am the Turkish President’s Main Challenger. I Was Arrested.**\
-`President Erdogan of Turkey has jailed me because he knows he cannot beat me in an election.`\
-https://nytimes.com/2025/03/28/opinion/mayor-imamoglu-arrested-erdogan.html
-
-**Men's March Madness projections 2025: Which Sweet 16 teams have the best odds to advance?**\
-`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
-https://nytimes.com/athletic/6198047/2025/03/28/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**Cooper Flagg's 30 points, complete performance send Duke to Elite Eight**\
-`Thursday was Flagg's true breakout of the postseason: 30 points on 9-of-19 shooting, seven assists, six rebounds, three blocks and a steal.`\
-https://nytimes.com/athletic/6237610/2025/03/28/cooper-flagg-duke-arizona-march-madness/
-
-**Flyers' strange day starts with John Tortorella's firing, ends with Cam York's full-game benching**\
-`Team leaders praised their former coach after they beat the Canadiens — without a defenseman who dressed but didn't play.`\
-https://nytimes.com/athletic/6237681/2025/03/28/flyers-tortorella-york-benching/
 

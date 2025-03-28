@@ -1,3 +1,7 @@
+**Quansah, Isak, Gordon and Gomez: What we know about Liverpool and Newcastle transfer links**\
+`Could Jarell Quansah be heading to Newcastle? Is it possible Alexander Isak could move the other way?`\
+https://nytimes.com/athletic/6235534/2025/03/28/quansah-isak-gordon-gomez-liverpool-newcastle/
+
 **Texas Tech is Elite: Red Raiders rally from 16 down to top Arkansas in OT**\
 `Texas Tech mounts second-largest comeback in a Sweet 16 game to advance to the Elite Eight for the third time in school history. `\
 https://nytimes.com/athletic/6237626/2025/03/28/arkansas-john-calipari-elite-eight-texas-tech/
