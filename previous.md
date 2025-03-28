@@ -1,3 +1,7 @@
+**Model Who Says She Dated Andrew Tate Accuses Him of Sexual Assault in Lawsuit**\
+`Brianna Stern of Los Angeles accused Andrew Tate of beating and choking her while they were in a relationship, according to a complaint. Mr. Tate, through his lawyers, denied her allegations.`\
+https://nytimes.com/2025/03/28/world/europe/andrew-tate-sexual-assault-lawsuit.html
+
 **As Democrats Rail Against Musk, Republicans Shrug**\
 `Both Republicans and Democrats think Elon Musk will help them win a key race the Wisconsin Supreme Court next week.`\
 https://nytimes.com/2025/03/28/us/politics/elon-musk-wisconsin-supreme-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6239496/2025/03/28/usc-coach-defends-player-juju-wa
 **Trump Commutes Ozy Media Founder’s Sentence Just Before His Surrender**\
 `Carlos Watson, who started the now-defunct digital media company, had been sentenced to almost 10 years in prison for trying to defraud investors and lenders.`\
 https://nytimes.com/2025/03/28/business/carlos-watson-ozy-media-trump.html
-
-**The Best Moisturizers**\
-`Text by Rory Evans`\
-https://nytimes.com/card/2025/03/28/smarter-living/wirecutter/best-moisturizers
 

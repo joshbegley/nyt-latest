@@ -1,3 +1,7 @@
+**Model Who Says She Dated Andrew Tate Accuses Him of Sexual Assault in Lawsuit**\
+`Brianna Stern of Los Angeles accused Andrew Tate of beating and choking her while they were in a relationship, according to a complaint. Mr. Tate, through his lawyers, denied her allegations.`\
+https://nytimes.com/2025/03/28/world/europe/andrew-tate-sexual-assault-lawsuit.html
+
 **As Democrats Rail Against Musk, Republicans Shrug**\
 `Both Republicans and Democrats think Elon Musk will help them win a key race the Wisconsin Supreme Court next week.`\
 https://nytimes.com/2025/03/28/us/politics/elon-musk-wisconsin-supreme-court.html
