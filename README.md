@@ -1,3 +1,11 @@
+**Josh Giddey's half-court bucket a reminder of Bulls playing 'with desperation to win'**\
+`“I think you see now it’s not over until it really is over,” Giddey said after his half-court, buzzer-beating game-winner against L.A.`\
+https://nytimes.com/athletic/6238080/2025/03/28/josh-giddey-bulls-lakers-half-court-buzzer-beater/
+
+**Row Z: The implications of FIFA's Club World Cup become clear, and geeky data fuels beef**\
+`Our weekly look at the bonkers side of the game also takes in Gareth Ainsworth fast-tracking to League Two and Scottish accents`\
+https://nytimes.com/athletic/6235152/2025/03/28/fifa-club-world-szoboszlai-millwall-row-z/
+
 **Canada accused of 'gross negligence' with Davies injury by Bayern executive**\
 `Davies suffered a torn ACL in his right knee, an injury which requires surgery and several months of rehabilitation.`\
 https://nytimes.com/athletic/6238131/2025/03/28/bayern-munich-canada-alphonso-davies-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6235216/2025/03/28/cristopher-sanchez-phillies-brea
 **Myanmar has been convulsed by civil war.**\
 `By Lara Jakes`\
 https://nytimes.com/live/2025/03/28/world/myanmar-earthquake/myanmar-has-been-convulsed-by-civil-war
-
-**Jenner & Block Sues to Stop Trump’s Executive Order Against Law Firm**\
-`President Trump has targeted big law firms that he said have “weaponized” the legal system.`\
-https://nytimes.com/2025/03/28/business/jenner-block-trump-lawsuit.html
-
-**Utah Becomes First State to Ban Fluoride in Public Water**\
-`Medical experts warn the move could have consequences for oral health, especially among children.`\
-https://nytimes.com/2025/03/28/well/utah-fluoride-ban.html
 
