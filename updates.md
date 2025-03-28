@@ -1,3 +1,11 @@
+**Flyers' strange day starts with Tortorella's firing, ends with York's full-game benching**\
+`Team leaders praised their former coach after they beat the Canadiens — without a defenseman who dressed but didn't play`\
+https://nytimes.com/athletic/6237681/2025/03/28/flyers-tortorella-york-benching/
+
+**The Wizards franchise has played for 64 seasons. It just recorded its worst loss ever**\
+`The last time the Washington Wizards lost this badly? It happened when they were the Baltimore Bullets.`\
+https://nytimes.com/athletic/6237588/2025/03/28/washington-wizards-most-lopsided-loss/
+
 **In 10 matches David Moyes has transformed Everton. Here's how he did it...**\
 `Moyes has built on the foundations left by Dyche to pull Everton clear of trouble much sooner than expected`\
 https://nytimes.com/athletic/6235505/2025/03/28/in-10-matches-david-moyes-has-transformed-everton-heres-how-he-did-it/

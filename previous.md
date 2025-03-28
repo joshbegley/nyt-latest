@@ -1,3 +1,11 @@
+**Flyers' strange day starts with Tortorella's firing, ends with York's full-game benching**\
+`Team leaders praised their former coach after they beat the Canadiens — without a defenseman who dressed but didn't play`\
+https://nytimes.com/athletic/6237681/2025/03/28/flyers-tortorella-york-benching/
+
+**The Wizards franchise has played for 64 seasons. It just recorded its worst loss ever**\
+`The last time the Washington Wizards lost this badly? It happened when they were the Baltimore Bullets.`\
+https://nytimes.com/athletic/6237588/2025/03/28/washington-wizards-most-lopsided-loss/
+
 **In 10 matches David Moyes has transformed Everton. Here's how he did it...**\
 `Moyes has built on the foundations left by Dyche to pull Everton clear of trouble much sooner than expected`\
 https://nytimes.com/athletic/6235505/2025/03/28/in-10-matches-david-moyes-has-transformed-everton-heres-how-he-did-it/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/28/business/media/china-voice-of-america-radio-free-
 **Ode to a Gen-Z Situationship**\
 `As my friends buy houses and start families, why am I at Abba Night with a 24-year-old in a faux-fur head wrap?`\
 https://nytimes.com/2025/03/28/style/modern-love-ode-to-a-gen-z-situationship.html
-
-**Flying Solo at a Pride Festival Was the Plan. Falling in Love Wasn’t.**\
-`Daniel Nester and Geno Yoscovits met nine years ago at a Pride event at a bar in Toledo, Ohio. Mr. Nester arrived alone, but left with a phone number and the spark of a possible new relationship.`\
-https://nytimes.com/2025/03/28/style/daniel-nester-geno-yoscovits-wedding.html
-
-**Growing Up in St. Croix, He Asked Her to the Senior Prom Underwater**\
-`Harry Hoffman and Anne Hardee spent much of their youth in the water, on the water or by the water, often snacking on mangoes.`\
-https://nytimes.com/2025/03/28/style/anne-hardee-harry-hoffman-wedding.html
 
