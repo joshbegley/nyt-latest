@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6236314/2025/03/28/fa-cup-quarter-final-best-bets-a
 `\
 https://nytimes.com/athletic/6236314/2025/03/28/fa-cup-quarter-final-best-bets-accumulator/
 
+**The 3 best bets to add to your FA Cup quarter-final accumulator**\
+`Sam Tighe outlines the three best FA Cup bets to add to your accumulator ahead of this weekend’s quarter-final showdowns. 
+`\
+https://nytimes.com/athletic/6236314/2025/03/28/fa-cup-quarter-final-best-bets-accumulator/
+
 **Live Updates: Strong Earthquake Strikes Myanmar**\
 `People in the city of Mandalay, near the epicenter of the 7.7.-magnitude quake, were rushed to the main hospital. Tremors were felt hundreds of miles away in Bangkok and Hanoi.`\
 https://nytimes.com/live/2025/03/28/world/myanmar-earthquake
