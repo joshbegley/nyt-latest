@@ -1,3 +1,19 @@
+**Trump Pardons Trevor Milton, Founder of Bankrupt Truck Maker Nikola**\
+`President Trump’s intervention came while Mr. Milton was appealing his conviction on securities and wire fraud charges.`\
+https://nytimes.com/2025/03/28/business/trump-trevor-milton-pardon.html
+
+**Maren Morris Lifts Herself Up, and 10 More New Songs**\
+`Hear tracks by Mumford & Sons, Mon Laferte, the Swell Season and others.`\
+https://nytimes.com/2025/03/28/arts/music/playlist-maren-morris-mumford-and-sons.html
+
+**With Cuomo Leading Mayor’s Race, Foes Weigh His Political Baggage**\
+`Rumors resurfaced of a relationship between Andrew Cuomo and his top aide, the latest reminder that the former governor’s record presents plenty of targets for his opponents.`\
+https://nytimes.com/2025/03/28/nyregion/andrew-cuomo-melissa-derosa.html
+
+**MoMA’s New Director Will Be Christophe Cherix**\
+`The Museum of Modern Art in New York is promoting Christophe Cherix, who currently leads its drawings and prints department.`\
+https://nytimes.com/2025/03/28/arts/design/christophe-cherix-moma-director.html
+
 **Trump Mentioned Biden 316 Times in 50 Days, Mostly to Blame Him for Things**\
 `A central dictum in the Trump White House is that Joseph R. Biden Jr. is to blame for just about anything and everything.`\
 https://nytimes.com/2025/03/28/us/politics/trump-biden-blame.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6238501/2025/03/28/osasuna-barcelona-inigo-martinez
 **A Tropical Haven for Design and Seafood Is Back on the Tourist Map**\
 `Insider tips on where to eat, sleep and shop in the Sri Lankan city of Colombo.`\
 https://nytimes.com/2025/03/28/t-magazine/colombo-sri-lanka-hotels-restaurants-guide.html
-
-**‘We Thought We Were Friends’: It’s an Uncertain Time in Greenland, Too**\
-`For Greenlanders, there’s the same kind of acute uncertainty about the past and the future that people in and outside America are feeling right now.`\
-https://nytimes.com/live/2025/03/24/opinion/thepoint/jd-vance-greenland-visit-reaction
-
-**Rick Tocchet's future, the plan for Tom Willander: Four Canucks takeaways**\
-`Plus: How Dylan Holloway's success seems to be changing industry opinion on the usefulness of offer sheets.`\
-https://nytimes.com/athletic/6237539/2025/03/28/canucks-rick-tocchet-tom-willander/
-
-**Watch: What role does the Spanish media play in Real Madrid's transfer dealings?**\
-`The Spanish media’s influence in helping Real Madrid secure transfers and how Trent Alexander-Arnold could be Toni Kroos' replacement.`\
-https://nytimes.com/athletic/6236935/2025/03/28/athletic-fc-podcast-alexander-arnold-real-madrid/
-
-**Penguins promote hyped prospects Rutger McGroarty, Ville Koivunen to NHL**\
-`McGroarty and Koivunen, two of the more hyped Penguins prospects in quite some time, have been recalled from the AHL.`\
-https://nytimes.com/athletic/6238558/2025/03/28/penguins-prospects-rutger-mcgroarty-ville-koivunen-nhl/
 
