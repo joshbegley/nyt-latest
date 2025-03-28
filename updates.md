@@ -1,3 +1,15 @@
+**The quake struck along a major fault line.**\
+`By James C. McKinley Jr.`\
+https://nytimes.com/live/2025/03/28/world/myanmar-earthquake/the-quake-struck-along-a-major-fault-line
+
+**CoreWeave Disappoints on Opening of Trading**\
+`The start-up, which provides the processing power to help develop A.I. systems, faces questions about its debt and the overall economy.`\
+https://nytimes.com/2025/03/28/technology/coreweave-disappoints-on-opening-of-trading.html
+
+**Stream These 17 Titles Before They Leave Netflix in April**\
+`A few popular franchises are leaving this month for U.S. subscribers, including the first three “Karate Kid” movies. Catch these before they leave.`\
+https://nytimes.com/2025/03/28/movies/netflix-expiring-april.html
+
 **Elon Musk Backtracks on a Legally Questionable Plan to Pay Voters**\
 `Experts had said that his pledge to hand out two $1 million checks to people who had already voted in the Wisconsin Supreme Court race seemed to run afoul of state law.`\
 https://nytimes.com/2025/03/28/us/politics/elon-musk-paying-voters-wisconsin.html
