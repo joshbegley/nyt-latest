@@ -1,3 +1,7 @@
+**Angel Reese supports brother Julian at Maryland's Sweet 16 game**\
+`The siblings both excel at rebounding. Angel proudly displayed a shirt Thursday that read “I’m from Baltimore” from her seat a few rows up.`\
+https://nytimes.com/athletic/6237032/2025/03/27/angel-reese-julian-reese-maryland-march-madness/
+
 **What We Know About the Detentions of Student Protesters**\
 `The Trump administration is looking to deport pro-Palestinian students who are legally in the United States, citing national security. Critics say that violates free speech protections.`\
 https://nytimes.com/2025/03/27/us/students-trump-ice-detention.html

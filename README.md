@@ -1,3 +1,15 @@
+**F.B.I. Agents in Southeast Asia Used Prostitutes, Watchdog Says**\
+`The conduct took place over several years even as employees were training to combat human trafficking, according to a document released to The Times in a lawsuit.`\
+https://nytimes.com/2025/03/27/world/americas/fbi-agents-in-southeast-asia-used-prostitutes-watchdog-says.html
+
+**A Video From Tufts Captures the Fear and Aggression in Trump’s Crackdown**\
+`The tactics on display in the arrest of Rumeysa Ozturk were not new — plainclothes officers, faces obscured — but as ICE actions ramp up, scrutiny may increase.`\
+https://nytimes.com/2025/03/27/us/politics/tufts-ice-crackdown.html
+
+**Mikaela Shiffrin, with Olympics on deck, puts an emphatic stamp on her season**\
+`Shiffrin sent herself into the pre-Olympic offseason in the best way possible, winning Thursday's slalom at the World Cup finals.`\
+https://nytimes.com/athletic/6237008/2025/03/27/mikaela-shiffrin-world-cup-finals-slalom-olympics/
+
 **Angel Reese supports brother Julian at Maryland's Sweet 16 game**\
 `The siblings both excel at rebounding. Angel proudly displayed a shirt Thursday that read “I’m from Baltimore” from her seat a few rows up.`\
 https://nytimes.com/athletic/6237032/2025/03/27/angel-reese-julian-reese-maryland-march-madness/
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2025/03/27/books/great-gatsby-100.html
 **16-Year-Old Is Charged With Hate Crimes in Gang Assault on Black Teen**\
 `The suspect was part of a group that attacked a Black 16-year-old who was on his way to school at a subway station in Brooklyn, the police said.`\
 https://nytimes.com/2025/03/27/nyregion/hate-crime-brooklyn-subway-attack.html
-
-**Kent State places coach Kenni Burns on administrative leave**\
-`Kent State said offensive coordinator Mark Carney will direct on-field activities at this time.`\
-https://nytimes.com/athletic/6236944/2025/03/27/kenni-burns-administrative-leave-kent-state/
-
-**A Disregard for the Rules Trickles Down From Trump to His Aides**\
-`Many of the people serving in the administration do not have decades of experience in government, or deep knowledge of its rules and why they exist, former officials say.`\
-https://nytimes.com/2025/03/27/us/politics/trump-documents-signal-leak.html
-
-**Olmo suffers groin injury as Barcelona beat Osasuna 3-0 in La Liga return**\
-`The 26-year-old scored Barcelona’s second goal from the penalty spot but went down injured soon after and was unable to continue.`\
-https://nytimes.com/athletic/6236897/2025/03/27/barcelona-osasuna-la-liga-dani-olmo/
 

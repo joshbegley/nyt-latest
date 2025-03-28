@@ -1,3 +1,7 @@
+**Angel Reese supports brother Julian at Maryland's Sweet 16 game**\
+`The siblings both excel at rebounding. Angel proudly displayed a shirt Thursday that read “I’m from Baltimore” from her seat a few rows up.`\
+https://nytimes.com/athletic/6237032/2025/03/27/angel-reese-julian-reese-maryland-march-madness/
+
 **What We Know About the Detentions of Student Protesters**\
 `The Trump administration is looking to deport pro-Palestinian students who are legally in the United States, citing national security. Critics say that violates free speech protections.`\
 https://nytimes.com/2025/03/27/us/students-trump-ice-detention.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/27/us/politics/trump-documents-signal-leak.html
 **Olmo suffers groin injury as Barcelona beat Osasuna 3-0 in La Liga return**\
 `The 26-year-old scored Barcelona’s second goal from the penalty spot but went down injured soon after and was unable to continue.`\
 https://nytimes.com/athletic/6236897/2025/03/27/barcelona-osasuna-la-liga-dani-olmo/
-
-**Global Sea Ice Hits a New Low**\
-`The data comes after researchers reported that the past 10 years have been the 10 hottest on record.`\
-https://nytimes.com/2025/03/27/climate/global-sea-ice-record-low.html
 
