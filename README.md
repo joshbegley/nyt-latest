@@ -1,3 +1,15 @@
+**Leafs swept by league-worst Sharks: Five takeaways**\
+`The Leafs hatched a last-minute comeback to force overtime, only to lose in a shootout to the Sharks for the second time this season.`\
+https://nytimes.com/athletic/6237840/2025/03/28/maple-leafs-lose-sharks/
+
+**Shaw returns to Man United training; Yoro, Maguire also join group**\
+`England international Shaw hasn't played since United's 4-0 win over Everton on December 1.`\
+https://nytimes.com/athletic/6238076/2025/03/28/manchester-united-team-news-shaw-maguire-yoro/
+
+**American figure skating duo honors crash victims after breakthrough performance at worlds**\
+`Misha Mitrofanov and Alisa Efimova delivered a huge performance and an emotional moment for the Boston skating community.`\
+https://nytimes.com/athletic/6237434/2025/03/28/alisa-efimova-misha-mitrofanov-figure-skating-world-championships-boston/
+
 **What Kind of Competitor Are You?**\
 `Do you have swag, an all-about-winning attitude, or a game face? How about an icy stare like that of Karis Dadson, a teenager who shows pigs at livestock competitions?`\
 https://nytimes.com/2025/03/28/learning/what-kind-of-competitor-are-you.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6237091/2025/03/28/ilia-malinin-world-figure-skatin
 **Dunk still has big part to play for Brighton - Hurzeler**\
 `Dunk has missed Brighton's last six matches but is set to return for the FA Cup quarter-final against Nottingham Forest on Saturday.`\
 https://nytimes.com/athletic/6238030/2025/03/28/brighton-dunk-hurzeler-fa-cup-team-news/
-
-**How rookie Yves Missi’s emergence has changed the Pelicans’ plans at center**\
-`A lot has gone wrong this year for the Pelicans, but they might have found their future at center. `\
-https://nytimes.com/athletic/6233900/2025/03/28/yves-missi-rookies-pelicans-nba/
-
-**Blues win eighth straight behind Dylan Holloway's goals, extend wild-card lead**\
-`The win over the Predators was perhaps their most impressive victory in a while, which is saying a lot.`\
-https://nytimes.com/athletic/6237512/2025/03/28/blues-hot-streak-nhl-playoffs/
-
-**Greenberg: After a cold start in Japan, can the Cubs get hot?**\
-`What a day in Chicago sports. The White Sox scored a win over the Angels, then the Bulls pulled off a miracle, and the Cubs topped it off.`\
-https://nytimes.com/athletic/6237775/2025/03/28/cubs-diamondbacks-pete-crow-armstrong-ian-happ/
 
