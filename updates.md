@@ -1,3 +1,15 @@
+**A Very Phillies Opening Day: They whiffed, they won. 'Same group' begins new grind**\
+`The beauty is in the 162-game grind with a group that has experienced so much together. They will savor the victories — big and small.`\
+https://nytimes.com/athletic/6237183/2025/03/27/phillies-2025-season-opening-day-bryce-harper/
+
+**Florida stays hot, surges past Maryland into Elite Eight with dominant 2nd half**\
+`The Gators, winners of nine straight games, advanced to the Elite Eight for the 10th time in school history. `\
+https://nytimes.com/athletic/6237144/2025/03/27/florida-gators-maryland-elite-eight/
+
+**Braves' bullpen falters badly in seventh, blows lead in opening loss**\
+`Chris Sale settled down and left the game with a lead before the bullpen unraveled.`\
+https://nytimes.com/athletic/6237256/2025/03/27/braves-bullpen-chris-sale-opening-day/
+
 **CoreWeave Scales Back Ambitions for Its I.P.O.**\
 `The company, which originally expected its shares to be priced between $47 and $55, will ask for $40 a share in a sign of stock market uncertainty.`\
 https://nytimes.com/2025/03/27/technology/coreweave-scales-back-ambitions-for-its-ipo.html
