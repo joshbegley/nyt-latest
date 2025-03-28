@@ -1,3 +1,11 @@
+**Rubio Says He Has Revoked 300 or More Visas in Trump’s Deportation Push**\
+`The secretary of state said he was trying to expel “lunatics” who had taken part in campus movements, as well as criminals. Some are permanent U.S. residents.`\
+https://nytimes.com/2025/03/28/us/politics/rubio-immigration-students-ozturk-chung-khalil.html
+
+**At Least 3 Killed and Hundreds Rescued in South Texas Flooding, Officials Say**\
+`More than 20 inches of rain — about a half-year’s worth — fell in some areas near the border with Mexico on Thursday and Friday.`\
+https://nytimes.com/2025/03/28/us/texas-flooding-deaths.html
+
 **Norwegian fans to protest after pro clubs' vote to scrap VAR overruled**\
 `Fans will stay out of stadiums for the first 15 minutes of each match before entering en mass, as a protest against maintaining VAR.`\
 https://nytimes.com/athletic/6239497/2025/03/28/norway-football-var-protests-fans/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6239516/2025/03/28/duke-sweet-16-kara-lawson-north-
 **USMNT's  Turner will not start for Palace in FA Cup QF vs Fulham**\
 `Turner has been Palace's first-choice goalkeeper in cup matches this season but regular league No 1 Dean Henderson will start this weekend.`\
 https://nytimes.com/athletic/6239132/2025/03/28/matt-turner-usmnt-palace-fa-cup/
-
-**RSL, Utah Royals majority sale by David Blitzer in advanced stage**\
-`Utah's MLS and NWSL teams have attracted the interest of the Larry H. Miller family, former owners of the NBA's Utah Jazz`\
-https://nytimes.com/athletic/6239468/2025/03/28/david-blitzer-real-salt-lake-utah-royals-sale/
-
-**Trump Takes Aim at California Six Times in 24 Hours**\
-`The Trump administration seemed to hold back immediately after the January wildfires. But its multipronged assault on California has now begun in earnest.`\
-https://nytimes.com/2025/03/28/us/trump-newsom-california.html
 
