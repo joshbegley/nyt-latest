@@ -1,3 +1,7 @@
+**L.A. Firefighters Who Fought Blazes Show Elevated Mercury and Lead Levels**\
+`The findings, which compared the firefighters’ blood samples against those taken after past fires, suggest unique risks to blazes that burn in populated areas.`\
+https://nytimes.com/2025/03/28/well/la-firefighters-mercury-lead-blood-levels.html
+
 **Airlines Cut Seats to the U.S. as Canadians Stay Away**\
 `Several airlines have reduced the number of seats on U.S.-bound flights in April, while industry data shows that bookings have declined significantly.`\
 https://nytimes.com/2025/03/28/world/canada/air-canada-flights-seats-us.html
