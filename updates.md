@@ -1,3 +1,11 @@
+**What advice did Paige Bueckers offer JuJu Watkins about her injury recovery?**\
+`Players such as Bueckers, Azzi Fudd and Olivia Miles, who have had ACL tears, expressed heartache for Watkins' injury.`\
+https://nytimes.com/athletic/6239545/2025/03/28/paige-bueckers-juju-watkins-knee-injury-advice/
+
+**Trump Is Giving Europe Vertigo, and Not Just About Ukraine**\
+`The split between Europe and the United States over how to end the war is exposing a new, disorienting reality for an alliance in trouble.`\
+https://nytimes.com/2025/03/28/world/europe/trump-europe-ukraine-russia.html
+
 **Rubio Says He Has Revoked 300 or More Visas in Trump’s Deportation Push**\
 `The secretary of state said he was trying to expel “lunatics” who had taken part in campus movements, as well as criminals. Some are permanent U.S. residents.`\
 https://nytimes.com/2025/03/28/us/politics/rubio-immigration-students-ozturk-chung-khalil.html

@@ -1,3 +1,7 @@
+**As Democrats Rail Against Musk, Republicans Shrug**\
+`Both Republicans and Democrats think Elon Musk will help them win a key race the Wisconsin Supreme Court next week.`\
+https://nytimes.com/2025/03/28/us/politics/elon-musk-wisconsin-supreme-court.html
+
 **What advice did Paige Bueckers offer JuJu Watkins about her injury recovery?**\
 `Players such as Bueckers, Azzi Fudd and Olivia Miles, who have had ACL tears, expressed heartache for Watkins' injury.`\
 https://nytimes.com/athletic/6239545/2025/03/28/paige-bueckers-juju-watkins-knee-injury-advice/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/28/business/carlos-watson-ozy-media-trump.html
 **The Best Moisturizers**\
 `Text by Rory Evans`\
 https://nytimes.com/card/2025/03/28/smarter-living/wirecutter/best-moisturizers
-
-**Colorado, Syracuse request for spring football game denied**\
-`The waiver was denied largely due to the late timing of the request.`\
-https://nytimes.com/athletic/6239498/2025/03/28/colorado-syracuse-spring-football-denied/
 
