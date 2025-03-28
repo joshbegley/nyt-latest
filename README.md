@@ -1,3 +1,11 @@
+**Heat Today: Bam Adebayo's leadership leads Heat through tough times: 'It reminds me of Tim Duncan'**\
+`Bam Adebayo's leadership through Miami's tough season draws rave reviews from coaches, teammates.`\
+https://nytimes.com/athletic/6238450/2025/03/28/bam-adebayo-tim-duncan-heat-leadership-nba/
+
+**Charlie Javice Found Guilty of Defrauding JPMorgan of $175 Million**\
+`Federal prosecutors convinced a jury that Ms. Javice faked much of her customer list before selling her startup, Frank, to the bank.`\
+https://nytimes.com/2025/03/28/business/charlie-javice-jpmorgan-guilty.html
+
 **Flashback: Your Weekly History Quiz, March 29, 2025**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2025/03/28/upshot/flashback.html

@@ -1,3 +1,12 @@
+**Flashback: Your Weekly History Quiz, March 29, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/03/28/upshot/flashback.html
+
+**UConn star Paige Bueckers to enter 2025 WNBA Draft**\
+`By Ben Pickman, Jelani Scott and Chantel Jennings
+Connecticut star Paige Bueckers, long considered the presumptive No.`\
+https://nytimes.com/athletic/6239019/2025/03/28/uconn-paige-bueckers-declare-2025-wnba-draft/
+
 **Protests Demanding Restoration of Monarchy in Nepal Turn Deadly**\
 `At least two people were killed and dozens injured as followers of the last king demanded the restoration of a monarchy that was dissolved in 2008.`\
 https://nytimes.com/2025/03/28/world/asia/nepal-protests-monarchy-violence.html
@@ -13,12 +22,4 @@ https://nytimes.com/video/world/asia/100000010078508/myanmar-earthquake-thailand
 **The quake struck along a major fault line.**\
 `By James C. McKinley Jr.`\
 https://nytimes.com/live/2025/03/28/world/myanmar-earthquake/the-quake-struck-along-a-major-fault-line
-
-**CoreWeave Disappoints on Opening of Trading**\
-`The start-up, which provides the processing power to help develop A.I. systems, faces questions about its debt and the overall economy.`\
-https://nytimes.com/2025/03/28/technology/coreweave-stock.html
-
-**Stream These 17 Titles Before They Leave Netflix in April**\
-`A few popular franchises are leaving this month for U.S. subscribers, including the first three “Karate Kid” movies. Catch these before they leave.`\
-https://nytimes.com/2025/03/28/movies/netflix-expiring-april.html
 

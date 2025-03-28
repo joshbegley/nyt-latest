@@ -1,3 +1,12 @@
+**Flashback: Your Weekly History Quiz, March 29, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/03/28/upshot/flashback.html
+
+**UConn star Paige Bueckers to enter 2025 WNBA Draft**\
+`By Ben Pickman, Jelani Scott and Chantel Jennings
+Connecticut star Paige Bueckers, long considered the presumptive No.`\
+https://nytimes.com/athletic/6239019/2025/03/28/uconn-paige-bueckers-declare-2025-wnba-draft/
+
 **Protests Demanding Restoration of Monarchy in Nepal Turn Deadly**\
 `At least two people were killed and dozens injured as followers of the last king demanded the restoration of a monarchy that was dissolved in 2008.`\
 https://nytimes.com/2025/03/28/world/asia/nepal-protests-monarchy-violence.html
