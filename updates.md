@@ -1,3 +1,11 @@
+**Is Kermit the Frog What the Class of 2025 Needs?**\
+`The University of Maryland says it is honoring Jim Henson, an alumnus, with its choice of commencement speaker. Some students think it is avoiding “real issues.”`\
+https://nytimes.com/2025/03/28/style/kermit-university-of-maryland-commencement-reaction.html
+
+**Watch: Who should win NBA Rookie of the Year?**\
+`NBA Daily discuss Stephon Castle, Zaccharie Risacher, Alex Sarr and Jaylen Wells.`\
+https://nytimes.com/athletic/6238111/2025/03/28/nba-daily-rookie-of-year-award/
+
 **Trump Pardons Trevor Milton, Founder of Bankrupt Truck Maker Nikola**\
 `President Trump’s intervention came while Mr. Milton was appealing his conviction on securities and wire fraud charges.`\
 https://nytimes.com/2025/03/28/business/trump-trevor-milton-pardon.html

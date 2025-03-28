@@ -1,3 +1,11 @@
+**Is Kermit the Frog What the Class of 2025 Needs?**\
+`The University of Maryland says it is honoring Jim Henson, an alumnus, with its choice of commencement speaker. Some students think it is avoiding “real issues.”`\
+https://nytimes.com/2025/03/28/style/kermit-university-of-maryland-commencement-reaction.html
+
+**Watch: Who should win NBA Rookie of the Year?**\
+`NBA Daily discuss Stephon Castle, Zaccharie Risacher, Alex Sarr and Jaylen Wells.`\
+https://nytimes.com/athletic/6238111/2025/03/28/nba-daily-rookie-of-year-award/
+
 **Trump Pardons Trevor Milton, Founder of Bankrupt Truck Maker Nikola**\
 `President Trump’s intervention came while Mr. Milton was appealing his conviction on securities and wire fraud charges.`\
 https://nytimes.com/2025/03/28/business/trump-trevor-milton-pardon.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6238634/2025/03/28/who-is-cam-ward-miami-tennessee-
 **Modeling suggests the death toll is likely to top 1,000, and may be much higher.**\
 `By Pablo Robles and Agnes Chang`\
 https://nytimes.com/live/2025/03/28/world/myanmar-earthquake/modeling-suggests-that-the-death-toll-is-likely-to-top-1000
-
-**Osasuna file appeal over Barcelona fielding Martinez in La Liga win**\
-`Martinez withdrew from Spain’s squad on March 17 due to a knee injury.`\
-https://nytimes.com/athletic/6238501/2025/03/28/osasuna-barcelona-inigo-martinez-appeal/
-
-**A Tropical Haven for Design and Seafood Is Back on the Tourist Map**\
-`Insider tips on where to eat, sleep and shop in the Sri Lankan city of Colombo.`\
-https://nytimes.com/2025/03/28/t-magazine/colombo-sri-lanka-hotels-restaurants-guide.html
 
