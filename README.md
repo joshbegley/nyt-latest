@@ -1,3 +1,15 @@
+**Justice Dept. Investigates L.A. Sheriff Over Concealed Carry Permit Delays**\
+`The Justice Department said it believed the Los Angeles County Sheriff’s Department had violated residents’ Second Amendment rights through delays in issuing the permits.`\
+https://nytimes.com/2025/03/28/us/politics/doj-la-sheriff-concealed-carry-permits-second-amendment.html
+
+**QB Jaxson Dart to visit Steelers in April, per source: Pre-draft visit tracker**\
+`Keep track of every prospect who visits the Steelers' facility between now and the 2025 NFL Draft.`\
+https://nytimes.com/athletic/6181787/2025/03/28/steelers-nfl-draft-prospect-visitors-tracker/
+
+**Jason Kidd sees 'fight' from Mavericks, which keep Play-In hopes alive**\
+`Dallas improved to 3-0 with Anthony Davis in the lineup and should be getting two more key players back soon.`\
+https://nytimes.com/athletic/6237611/2025/03/28/mavericks-show-fight-against-orlando-grab-lead-for-final-play-in-tournament-spot/
+
 **Is CoreWeave’s Debut an Ill Omen for I.P.O.s?**\
 `The A.I. company is set to make its market debut on Friday amid concerns about its business model and the health of the wider economy.`\
 https://nytimes.com/2025/03/28/business/dealbook/coreweave-ipo-ai.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6237384/2025/03/28/cleveland-guardians-opening-day-
 **The Athletic’s Friday football quiz question #48**\
 `Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
 https://nytimes.com/athletic/6236413/2025/03/28/the-athletics-friday-football-quiz-question-48/
-
-**Oluchi Okananwa brings flair to Duke ... in more ways than one**\
-`Duke's sophomore guard has been key to a Sweet 16 run, while also guiding the Blue Devils' fashion sense.`\
-https://nytimes.com/athletic/6237238/2025/03/28/oluchi-okananwa-sweet-16-duke-fashion/
-
-**Fighter, leader, goal scorer — How did Mathieu Olivier become so valuable in Columbus?**\
-`Widely known as the most feared fighter in the NHL, Olivier has elevated his game — and he wants to be even better.`\
-https://nytimes.com/athletic/6230600/2025/03/28/olivier-blue-jackets-fights-contract/
-
-**Blackhawks prospect updates: Commesso elevates game after focusing on mentality**\
-`While recovering from an injury, Drew Commesso took the time to prioritize his mindset on and off the ice.`\
-https://nytimes.com/athletic/6236816/2025/03/28/blackhawks-drew-commesso-goalie-prospect/
 
