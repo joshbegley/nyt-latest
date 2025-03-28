@@ -1,3 +1,7 @@
+**Airlines Cut Seats to the U.S. as Canadians Stay Away**\
+`Several airlines have reduced the number of seats on U.S.-bound flights in April, while industry data shows that bookings have declined significantly.`\
+https://nytimes.com/2025/03/28/world/canada/air-canada-flights-seats-us.html
+
 **Jean Rice, Advocate for the Homeless, Is Dead at 85**\
 `Homeless himself, he was for nearly two decades a pivotal member of Picture the Homeless, a group devoted to changing negative perceptions of the unhoused.`\
 https://nytimes.com/2025/03/28/nyregion/jean-rice-dead.html
@@ -7,7 +11,7 @@ https://nytimes.com/2025/03/28/nyregion/jean-rice-dead.html
 https://nytimes.com/2025/03/28/style/kristi-noem-venezuela-prison-rolex-watch.html
 
 **An Executive Editor Who Was the Last of His Kind**\
-`When Max Frankel ascended to The Times’s top spot in 1986, he set out to respect traditions while pushing forward a period of vast transformation.`\
+`When Max Frankel ascended to The Times’s top spot in 1986, he set out to respect traditions as the paper entered a period of vast transformation.`\
 https://nytimes.com/2025/03/28/insider/max-frankel-editor.html
 
 **Dachshund Lost on Australian Island Is Still Alive, but Elusive**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6238863/2025/03/28/uconn-geno-auriemma-ncaa-tournam
 **Major Quake Batters Myanmar; High Toll Is Feared as Buildings Topple**\
 `The 7.7-magnitude earthquake near Mandalay, in a country already torn by war, was felt across Southeast Asia, and experts warned there could be tens of thousands dead.`\
 https://nytimes.com/2025/03/28/world/asia/myanmar-earthquake-thailand-mandalay.html
-
-**Heat Today: Bam Adebayo's leadership leads Miami through tough times: 'It reminds me of Tim Duncan'**\
-`Bam Adebayo's leadership through Miami's tough season draws rave reviews from coaches, teammates.`\
-https://nytimes.com/athletic/6238450/2025/03/28/bam-adebayo-tim-duncan-heat-leadership-nba/
 

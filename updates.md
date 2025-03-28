@@ -1,3 +1,11 @@
+**Airlines Cut Seats to the U.S. as Canadians Stay Away**\
+`Several airlines have reduced the number of seats on U.S.-bound flights in April, while industry data shows that bookings have declined significantly.`\
+https://nytimes.com/2025/03/28/world/canada/air-canada-flights-seats-us.html
+
+**An Executive Editor Who Was the Last of His Kind**\
+`When Max Frankel ascended to The Times’s top spot in 1986, he set out to respect traditions as the paper entered a period of vast transformation.`\
+https://nytimes.com/2025/03/28/insider/max-frankel-editor.html
+
 **Jean Rice, Advocate for the Homeless, Is Dead at 85**\
 `Homeless himself, he was for nearly two decades a pivotal member of Picture the Homeless, a group devoted to changing negative perceptions of the unhoused.`\
 https://nytimes.com/2025/03/28/nyregion/jean-rice-dead.html
