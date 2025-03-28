@@ -1,3 +1,7 @@
+**How to watch No. 2 Duke vs. No. 3 UNC in women's Sweet 16**\
+`The Tobacco Road rivalry takes center stage in the women's NCAA Tourney on Friday.`\
+https://nytimes.com/athletic/6228758/2025/03/28/duke-unc-womens-ncaa-tournament-sweet-16-how-to-watch/
+
 **Rubio Says Information on Abducted Ukrainian Children Will Be Preserved**\
 `Lawmakers had feared that a database on children taken by Russia was deleted when funding was stopped as part of President Trump’s foreign aid cuts.`\
 https://nytimes.com/2025/03/28/us/politics/rubio-russia-ukraine-children.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/03/28/us/politics/musk-wisconsin-supreme-court.html
 **The Family That’s Pushing Cuomo to Apologize Personally for Covid Deaths**\
 `Thousands died in nursing homes at the outset of the pandemic. Will a campaign for accountability stall Andrew Cuomo’s progress in the mayor’s race?`\
 https://nytimes.com/2025/03/28/nyregion/cuomo-covid-nursing-homes.html
-
-**Mahjong Tiles**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2025/03/28/learning/mahjong-tiles.html
 

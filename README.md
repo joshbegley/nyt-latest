@@ -1,3 +1,7 @@
+**The quake also shook southern China, causing injuries.**\
+`By Vivian Wang`\
+https://nytimes.com/2025/03/28/world/asia/the-quake-also-shook-southern-china-causing-injuries.html
+
 **How to watch No. 2 Duke vs. No. 3 UNC in women's Sweet 16**\
 `The Tobacco Road rivalry takes center stage in the women's NCAA Tourney on Friday.`\
 https://nytimes.com/athletic/6228758/2025/03/28/duke-unc-womens-ncaa-tournament-sweet-16-how-to-watch/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/03/28/arts/television/jimmy-kimmel-signal-group-chat.ht
 **Musk to Campaign in Wisconsin Ahead of Critical State Court Election**\
 `The billionaire is reprising another of the moves he did to help elect Donald J. Trump in November.`\
 https://nytimes.com/2025/03/28/us/politics/musk-wisconsin-supreme-court.html
-
-**The Family That’s Pushing Cuomo to Apologize Personally for Covid Deaths**\
-`Thousands died in nursing homes at the outset of the pandemic. Will a campaign for accountability stall Andrew Cuomo’s progress in the mayor’s race?`\
-https://nytimes.com/2025/03/28/nyregion/cuomo-covid-nursing-homes.html
 
