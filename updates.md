@@ -1,3 +1,11 @@
+**Rubio Says He Has Revoked 300 or More Visas in Trump’s Deportation Push**\
+`The secretary of state said he was trying to expel “lunatics” who had taken part in campus movements, as well as criminals. Some are permanent U.S. residents.`\
+https://nytimes.com/2025/03/28/us/politics/rubio-immigration-students-ozturk-chung-khalil.html
+
+**At Least 3 Killed and Hundreds Rescued in South Texas Flooding, Officials Say**\
+`More than 20 inches of rain — about a half-year’s worth — fell in some areas near the border with Mexico on Thursday and Friday.`\
+https://nytimes.com/2025/03/28/us/texas-flooding-deaths.html
+
 **USC coach defends player involved in Watkins injury: 'No intent to injure'**\
 `Coach said, "No one deserves online bullying," in what she said was just a basketball play by Mississippi State's Chandler Prater.`\
 https://nytimes.com/athletic/6239496/2025/03/28/usc-coach-defends-player-juju-watkins-injury/
