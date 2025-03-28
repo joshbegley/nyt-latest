@@ -1,3 +1,27 @@
+**No 3s? No problem. How Texas could win a national championship without them**\
+`Texas has the lowest 3-point rate in the nation. Coach Vic Schaefer is just fine with that. "The proof’s in the pudding."`\
+https://nytimes.com/athletic/6237007/2025/03/28/texas-womens-basketball-ncaa-tournament-3-pointers/
+
+**Colts 2025 NFL Draft big board: 10 prospects for Indy to consider on Day 2**\
+`Chris Ballard wasn’t messing around.`\
+https://nytimes.com/athletic/6236596/2025/03/28/colts-2025-nfl-draft-big-board-treveyon-henderson/
+
+**A healthy Ben Simmons is doing his part with Clippers, where 'the goal is to win'**\
+`Simmons has been a maestro directing LA's second unit and has the Clippers' sights set on the playoffs, where he hasn't been since 2021.`\
+https://nytimes.com/athletic/6234830/2025/03/28/ben-simmons-la-clippers-sixers-nets/
+
+**The Self-Deporters**\
+`Our immigration correspondnet has found a surprising trend.`\
+https://nytimes.com/2025/03/28/briefing/the-self-deporters.html
+
+**The Pulse: At least we got some thrilling games?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6235556/2025/03/28/ncaa-sweet-16-texas-tech-duke-the-pulse/
+
+**The quake caused chaos in Bangkok, where at least 3 people died.**\
+`By Richard C. Paddock`\
+https://nytimes.com/2025/03/28/world/asia/the-quake-caused-chaos-in-bangkok-where-at-least-3-people-died.html
+
 **The quake caused chaos in Bangkok, where at least 3 people died.**\
 `By Richard C. Paddock`\
 https://nytimes.com/live/2025/03/28/world/myanmar-earthquake/the-quake-caused-chaos-in-bangkok-where-at-least-3-people-died
