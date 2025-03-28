@@ -23,7 +23,7 @@ https://nytimes.com/2025/03/28/nyregion/tesla-backlash-divestment.html
 https://nytimes.com/2025/03/28/crosswords/spelling-bee-forum.html
 
 **Strong Earthquake Strikes Myanmar’s Second-Largest City**\
-`The 7.7-magnitude quake struck near Mandalay, and shaking was felt in cities as far as Bangkok.`\
+`People in Mandalay, near the epicenter of the 7.7.-magnitude quake, were rushed to the main hospital. Shaking was felt as far away as Bangkok in neighboring Thailand.`\
 https://nytimes.com/2025/03/28/world/asia/myanmar-earthquake.html
 
 **In potential make-or-break season, Cubs ride youth, bullpen to first win of 2025**\

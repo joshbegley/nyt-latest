@@ -1,3 +1,7 @@
+**Strong Earthquake Strikes Myanmar’s Second-Largest City**\
+`People in Mandalay, near the epicenter of the 7.7.-magnitude quake, were rushed to the main hospital. Shaking was felt as far away as Bangkok in neighboring Thailand.`\
+https://nytimes.com/2025/03/28/world/asia/myanmar-earthquake.html
+
 **Jimmy Kimmel Updates the Never-Ending Signal Story**\
 `“There are many books and stories to come,” Kimmel said of the Trump administration’s leaky-group-chat scandal, comparing it to the Harry Potter saga.`\
 https://nytimes.com/2025/03/28/arts/television/jimmy-kimmel-signal-group-chat.html
