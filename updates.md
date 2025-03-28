@@ -1,3 +1,7 @@
+**What We Know About the Detentions of Student Protesters**\
+`The Trump administration is looking to deport pro-Palestinian students who are legally in the United States, citing national security. Critics say that violates free speech protections.`\
+https://nytimes.com/2025/03/27/us/students-trump-ice-detention.html
+
 **'It's delusion that feeds me': Why White Sox fans still showed up on Opening Day**\
 `For so many, being here is closer to a ritual than a choice. It’s not that they want to support their historically bad team. They need to.`\
 https://nytimes.com/athletic/6236867/2025/03/27/chicago-white-sox-fans-opening-day/
