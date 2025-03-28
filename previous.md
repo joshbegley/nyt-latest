@@ -1,11 +1,3 @@
-**Justice Dept. Will Investigate California Universities Over Race in Admissions**\
-`California banned affirmative action decades ago. The Trump administration says it plans to investigate whether schools there are still considering race.`\
-https://nytimes.com/2025/03/27/us/california-universities-affirmative-action-doj.html
-
-**Crosby breaks Gretzky's NHL record with 20th point-per-game season**\
-`The Penguins captain now holds the league record for most consecutive point-per-game seasons in NHL history.`\
-https://nytimes.com/athletic/6237000/2025/03/27/penguins-sidney-crosby-wayne-gretzky-nhl/
-
 **It’s Gatsby’s World, We Just Live in It**\
 `F. Scott Fitzgerald’s classic novel turns 100 this year. What does its hero tell us about how we see ourselves?`\
 https://nytimes.com/interactive/2025/03/27/books/great-gatsby-100.html
@@ -37,4 +29,12 @@ https://nytimes.com/2025/03/27/us/politics/susan-collins-appropriations-trump.ht
 **Adam Silver admits NBA All-Star format was 'a miss'; gives no timeline on expansion**\
 `Now that the NBA is exploring launching a new European league, could expansion be next? `\
 https://nytimes.com/athletic/6236626/2025/03/27/adam-silver-board-of-governors-all-star-game-expansion-nba/
+
+**Trump Takes Government Secrecy Seriously. But Only When It Suits Him.**\
+`In the Trump era, the definition of an official secret depends on whatever works best for the president.`\
+https://nytimes.com/2025/03/27/us/politics/trump-signal-leak-venezuela-deportations.html
+
+**Clive Revill, Original Voice of Emperor Palpatine in ‘Star Wars,’ Dies at 94**\
+`His voice can be heard for only a minute in “The Empire Strikes Back,” but it provided the first draft of a character that would be a mainstay of the franchise for decades.`\
+https://nytimes.com/2025/03/27/movies/clive-revill-star-wars-dead.html
 
