@@ -1,3 +1,7 @@
+**In potential make-or-break season, Cubs ride youth, bullpen to first win of 2025**\
+`In Thursday's domestic Opening Day, the Cubs rarely looked like the team that dropped two games to the Dodgers in Tokyo.`\
+https://nytimes.com/athletic/6237833/2025/03/28/chicago-cubs-2025-season-opener-outlook/
+
 **Kelly's crossing, City nerves and staying calm: Arsenal and Chelsea's fought back in UWCL**\
 `Both English teams stayed true to their identities to pull off comebacks and earn spots in the Champions League semi-finals`\
 https://nytimes.com/athletic/6236049/2025/03/28/arsenal-chelsea-champions-league-semi-finals/
