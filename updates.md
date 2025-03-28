@@ -1,3 +1,23 @@
+**Trump Takes Aim at California Six Times in 24 Hours**\
+`The Trump administration seemed to hold back immediately after the January wildfires. But its multipronged assault on California has now begun in earnest.`\
+https://nytimes.com/2025/03/28/us/trump-newsom-california.html
+
+**Hornets' LaMelo Ball to undergo season-ending surgery on right ankle**\
+`The struggling Hornets will be without the dynamic guard for the final 10 games of the 2024-25 regular season.`\
+https://nytimes.com/athletic/6239437/2025/03/28/hornets-lamelo-ball-season-ending-surgery-ankle-wrist/
+
+**Blackstone Weighs Taking a Small Stake in TikTok**\
+`The private equity giant is considering investing as the video app works to follow a law that requires it to separate from its Chinese owner, ByteDance, by next week.`\
+https://nytimes.com/2025/03/28/business/media/blackstone-tiktok-bytedance.html
+
+**Twins hope it's 'business as usual' as Joe Ryan returns to mound after injury**\
+`Ryan is set to make his first regular-season start for the Twins since departing an Aug. 7 start with a season-ending injury.`\
+https://nytimes.com/athletic/6239374/2025/03/28/twins-joe-ryan-returns-to-mound/
+
+**Jimmy Snuggerud signs with Blues, ending Gophers career: Will he play, and if so, who comes out?**\
+`Signing burns the first year of Snuggerud's entry-level contract, which means the 2025-26 season will be the second year of the deal.`\
+https://nytimes.com/athletic/6238471/2025/03/28/jimmy-snuggerud-blues-contract/
+
 **Twins hope it's 'business as usual' as Joe Ryan returns to mound following injury**\
 `Ryan is set to make his first regular-season start for the Twins since departing a start Aug. 7 with a season-ending injury.`\
 https://nytimes.com/athletic/6239374/2025/03/28/twins-joe-ryan-returns-to-mound/
