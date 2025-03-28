@@ -1,4 +1,8 @@
-**A Very Phillies Opening Day: They whiffed, they won. 'Same group' begins new grind**\
+**FSU's Latson, top scorer in women's hoops, entering transfer portal: Reports**\
+`The three-time All-ACC guard has been the centerpiece of the Seminoles for each of the past three seasons.`\
+https://nytimes.com/athletic/6236331/2025/03/27/taniya-latson-transfer-portal-fsu/
+
+**A Very Phillies Opening Day: They whiffed, waited and won**\
 `The beauty is in the 162-game grind with a group that has experienced so much together. They will savor the victories — big and small.`\
 https://nytimes.com/athletic/6237183/2025/03/27/phillies-2025-season-opening-day-bryce-harper/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/27/crosswords/daily-puzzle-2025-03-28.html
 **Why the Yankees believe they've unlocked the secret for a Carlos Rodón breakout**\
 `After relying for years on just his fastball and slider, the lefty has added multiple pitches to his arsenal. `\
 https://nytimes.com/athletic/6236327/2025/03/27/yankees-carlos-rodon-pitching-breakout/
-
-**Mark Sears, Alabama set NCAA record in Sweet 16 rout of BYU**\
-`Sears' 10 3-pointers lead Alabama to its record 25 3s against BYU in the NCAA Tournament Sweet 16 game.`\
-https://nytimes.com/athletic/6237037/2025/03/27/sweet-16-alabama-byu-ncaa-3-point-record/
 

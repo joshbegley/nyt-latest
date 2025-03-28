@@ -2,6 +2,10 @@
 `The beauty is in the 162-game grind with a group that has experienced so much together. They will savor the victories — big and small.`\
 https://nytimes.com/athletic/6237183/2025/03/27/phillies-2025-season-opening-day-bryce-harper/
 
+**Men's March Madness projections 2025: Which Sweet 16 teams have the best odds to advance?**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/03/27/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **Florida stays hot, surges past Maryland into Elite Eight with dominant 2nd half**\
 `The Gators, winners of nine straight games, advanced to the Elite Eight for the 10th time in school history. `\
 https://nytimes.com/athletic/6237144/2025/03/27/florida-gators-maryland-elite-eight/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6236327/2025/03/27/yankees-carlos-rodon-pitching-br
 **Mark Sears, Alabama set NCAA record in Sweet 16 rout of BYU**\
 `Sears' 10 3-pointers lead Alabama to its record 25 3s against BYU in the NCAA Tournament Sweet 16 game.`\
 https://nytimes.com/athletic/6237037/2025/03/27/sweet-16-alabama-byu-ncaa-3-point-record/
-
-**Austin Wells ready to be first Yankees catcher of his kind: 'Incredible'**\
-`Wells became the first catcher to hit leadoff for the Yankees, who were established in 1913. And he led off the opener with a home run. `\
-https://nytimes.com/athletic/6237146/2025/03/27/yankees-catcher-austin-wells/
 

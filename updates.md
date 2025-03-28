@@ -1,3 +1,7 @@
+**Men's March Madness projections 2025: Which Sweet 16 teams have the best odds to advance?**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/03/27/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **A Very Phillies Opening Day: They whiffed, they won. 'Same group' begins new grind**\
 `The beauty is in the 162-game grind with a group that has experienced so much together. They will savor the victories — big and small.`\
 https://nytimes.com/athletic/6237183/2025/03/27/phillies-2025-season-opening-day-bryce-harper/
