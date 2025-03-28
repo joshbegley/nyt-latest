@@ -1,3 +1,7 @@
+**USC coach defends player involved in Watkins injury: 'No intent to injure'**\
+`Coach said, "No one deserves online bullying," in what she said was just a basketball play by Mississippi State's Chandler Prater.`\
+https://nytimes.com/athletic/6239496/2025/03/28/usc-coach-defends-player-juju-watkins-injury/
+
 **Norwegian fans to protest after pro clubs' vote to scrap VAR overruled**\
 `Fans will stay out of stadiums for the first 15 minutes of each match before entering en mass, as a protest against maintaining VAR.`\
 https://nytimes.com/athletic/6239497/2025/03/28/norway-football-var-protests-fans/
