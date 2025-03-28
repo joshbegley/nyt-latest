@@ -1,3 +1,7 @@
+**Trump restored funding for Radio Free Europe and reinstated 33 employees for Cuban radio station.**\
+`The decision to`\
+https://nytimes.com/2025/03/27/us/politics/trump-restored-funding-for-radio-free-europe-and-reinstated-33-employees-for-cuban-radio-station.html
+
 **F.B.I. Agents in Southeast Asia Used Prostitutes, Watchdog Says**\
 `The conduct took place over several years even as employees were training to combat human trafficking, according to a document released to The Times in a lawsuit.`\
 https://nytimes.com/2025/03/27/world/americas/fbi-agents-in-southeast-asia-used-prostitutes-watchdog-says.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6237000/2025/03/27/penguins-sidney-crosby-wayne-gre
 **It’s Gatsby’s World, We Just Live in It**\
 `F. Scott Fitzgerald’s classic novel turns 100 this year. What does its hero tell us about how we see ourselves?`\
 https://nytimes.com/interactive/2025/03/27/books/great-gatsby-100.html
-
-**16-Year-Old Is Charged With Hate Crimes in Gang Assault on Black Teen**\
-`The suspect was part of a group that attacked a Black 16-year-old who was on his way to school at a subway station in Brooklyn, the police said.`\
-https://nytimes.com/2025/03/27/nyregion/hate-crime-brooklyn-subway-attack.html
 
