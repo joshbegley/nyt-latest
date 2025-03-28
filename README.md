@@ -1,3 +1,7 @@
+**Life Without Transit? Silicon Valley Had a Glimpse for Nearly 3 Weeks.**\
+`An unusually long strike in the San Jose area forced a shutdown of buses and light-rail trains. It was a possible harbinger of things to come for transit agencies elsewhere.`\
+https://nytimes.com/2025/03/28/us/san-jose-strike-transit-silicon-valley.html
+
 **Book Club: Let’s Talk About Han Kang’s ‘We Do Not Part’**\
 `This Korean novel by the 2024 winner of the Nobel Prize in Literature turns a pet-sitting mission into a haunting reflection on grief and memory.`\
 https://nytimes.com/2025/03/28/books/review/podcast-han-kang-book-club.html
@@ -21,16 +25,4 @@ https://nytimes.com/athletic/6231985/2025/03/28/football-headgear-helmet-mask-ma
 **Myanmar Earthquake Aid Complicated by Its Isolation**\
 `Earthquake-stricken Myanmar faces a humanitarian crisis. Political complexities are likely to hamper international aid delivery, leaving vulnerable people at risk.`\
 https://nytimes.com/2025/03/28/world/asia/myanmar-earthquake-aid.html
-
-**Aftermath of Israeli Strikes Near Beirut**\
-`The Israeli military launched airstrikes in the neighborhood of Dahiya, on the southern edges of the Lebanese capital. Israel said it had targeted a site that stored Hezbollah drones.`\
-https://nytimes.com/video/world/middleeast/100000010078968/lebanon-beirut-israel-airstrikes.html
-
-**Dozens Missing After 33-Story Skyscraper Topples in Bangkok**\
-`Several people were killed in a building collapse and dozens more were missing as of Friday evening in Thailand, the authorities said.`\
-https://nytimes.com/video/world/asia/100000010078844/thailand-myanmar-earthquake-building.html
-
-**Grizzlies fire coach Taylor Jenkins with 9 games left in regular season**\
-`The Grizzlies are 44-29 and in fifth place in the Western Conference standings. The team has nine regular-season games remaining.`\
-https://nytimes.com/athletic/6238723/2025/03/28/memphis-grizzlies-taylor-jenkins-fired/
 
