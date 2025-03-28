@@ -1,3 +1,7 @@
+**Elon Musk Backtracks on a Legally Questionable Plan to Pay Voters**\
+`Experts had said that his pledge to hand out two $1 million checks to people who had already voted in the Wisconsin Supreme Court race seemed to run afoul of state law.`\
+https://nytimes.com/2025/03/28/us/politics/elon-musk-paying-voters-wisconsin.html
+
 **Can the Jesus of History Support the Christ of Faith?**\
 `Why historically minded believers still find the New Testament credible.`\
 https://nytimes.com/2025/03/28/opinion/jesus-history-faith.html
