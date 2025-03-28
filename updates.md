@@ -1,3 +1,7 @@
+**USC coach defends player involved in Watkins injury: 'No intent to injure'**\
+`Coach said "no one deserves online bullying," in what she said was just a basketball play by Mississippi State's Chandler Prater.`\
+https://nytimes.com/athletic/6239496/2025/03/28/usc-coach-defends-player-juju-watkins-injury/
+
 **Trump Commutes Ozy Media Founder’s Sentence Just Before His Surrender**\
 `Carlos Watson, who started the now-defunct digital media company, had been sentenced to almost 10 years in prison for trying to defraud investors and lenders.`\
 https://nytimes.com/2025/03/28/business/carlos-watson-ozy-media-trump.html

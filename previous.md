@@ -1,3 +1,7 @@
+**USC coach defends player involved in Watkins injury: 'No intent to injure'**\
+`Coach said "no one deserves online bullying," in what she said was just a basketball play by Mississippi State's Chandler Prater.`\
+https://nytimes.com/athletic/6239496/2025/03/28/usc-coach-defends-player-juju-watkins-injury/
+
 **Trump Commutes Ozy Media Founder’s Sentence Just Before His Surrender**\
 `Carlos Watson, who started the now-defunct digital media company, had been sentenced to almost 10 years in prison for trying to defraud investors and lenders.`\
 https://nytimes.com/2025/03/28/business/carlos-watson-ozy-media-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6239437/2025/03/28/hornets-lamelo-ball-season-endin
 **Blackstone Weighs Taking a Small Stake in TikTok**\
 `The private equity giant is considering investing as the video app works to follow a law that requires it to separate from its Chinese owner, ByteDance, by next week.`\
 https://nytimes.com/2025/03/28/business/media/blackstone-tiktok-bytedance.html
-
-**Twins hope it's 'business as usual' as Joe Ryan returns to mound after injury**\
-`Ryan is set to make his first regular-season start for the Twins since departing an Aug. 7 start with a season-ending injury.`\
-https://nytimes.com/athletic/6239374/2025/03/28/twins-joe-ryan-returns-to-mound/
 
