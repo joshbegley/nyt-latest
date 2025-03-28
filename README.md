@@ -1,3 +1,11 @@
+**Kelly's crossing, City nerves and staying calm: Arsenal and Chelsea's fought back in UWCL**\
+`Both English teams stayed true to their identities to pull off comebacks and earn spots in the Champions League semi-finals`\
+https://nytimes.com/athletic/6236049/2025/03/28/arsenal-chelsea-champions-league-semi-finals/
+
+**Word of the Day: simpatico**\
+`This word has appeared in 23 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/03/28/learning/word-of-the-day-simpatico.html
+
 **Alexandra Eala's wild run in Miami comes to an end**\
 `Eala nearly pulled off yet another hard-to-fathom upset in her semis match against Pegula on Thursday night at Hard Rock Stadium.`\
 https://nytimes.com/athletic/6237760/2025/03/28/alexandra-eala-miami-open-semifinals/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6235683/2025/03/28/arsenal-highbury-emirates-inspir
 **The goal Hojlund keeps trying to score - and why it blocked his ketchup**\
 `A breakdown of the factors that caused Hojlund's 21-match goal drought for United`\
 https://nytimes.com/athletic/6143414/2025/03/28/rasmus-hojlund-ketchup-shooting-from-wide/
-
-**The making of Jack Hinshelwood, a homegrown Brighton talent to rival their best imports**\
-`The 19-year-old has unusual leadership skills for a player of his age and a versatility that makes him valuable for club and country`\
-https://nytimes.com/athletic/6200412/2025/03/28/jack-hinshelwood-brighton-background/
-
-**Steve Bull at 60: Wolves' cult hero whose legendary status remains undimmed**\
-`The club's record goalscorer went from working in a bed factory to playing for England at the World Cup in a little over five years`\
-https://nytimes.com/athletic/6235168/2025/03/28/steve-bull-60-wolves/
 
