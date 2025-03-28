@@ -1,3 +1,11 @@
+**At a Prison Appearance, a $50,000 Watch Stands Out**\
+`Kristi Noem’s trip to a prison in El Salvador drew social media attention for the homeland security secretary’s choice to wear a gold Rolex in such a setting.`\
+https://nytimes.com/2025/03/28/style/kristi-noem-venezuela-prison-rolex-watch.html
+
+**An Executive Editor Who Was the Last of His Kind**\
+`When Max Frankel ascended to The Times’s top spot in 1986, he set out to respect traditions while pushing forward a period of vast transformation.`\
+https://nytimes.com/2025/03/28/insider/max-frankel-editor.html
+
 **Dachshund Lost on Australian Island Is Still Alive, but Elusive**\
 `A year after getting loose on Kangaroo Island, Valerie is still out there.`\
 https://nytimes.com/2025/03/28/world/australia/dachshund-dog-australia-island.html
@@ -26,15 +34,7 @@ https://nytimes.com/2025/03/28/world/asia/myanmar-earthquake-thailand-mandalay.h
 `Bam Adebayo's leadership through Miami's tough season draws rave reviews from coaches, teammates.`\
 https://nytimes.com/athletic/6238450/2025/03/28/bam-adebayo-tim-duncan-heat-leadership-nba/
 
-**Charlie Javice Found Guilty of Defrauding JPMorgan in $175 Million Acquisition**\
-`Federal prosecutors convinced a jury that Ms. Javice faked much of her customer list before selling her start-up, Frank, to the bank.`\
+**Charlie Javice Found Guilty of Defrauding JPMorgan of $175 Million**\
+`Federal prosecutors convinced a jury that Ms. Javice, along with one of her executives, had faked much of her customer list before selling her start-up, Frank, to the bank.`\
 https://nytimes.com/2025/03/28/business/charlie-javice-jpmorgan-guilty.html
-
-**Flashback: Your Weekly History Quiz, March 29, 2025**\
-`Can you sort 8 historical events?`\
-https://nytimes.com/interactive/2025/03/28/upshot/flashback.html
-
-**UConn star Paige Bueckers to enter 2025 WNBA Draft**\
-`Bueckers is averaging 19.2 points and 4.8 assists while shooting 41.1 percent from 3-point range this season.`\
-https://nytimes.com/athletic/6239019/2025/03/28/uconn-paige-bueckers-declare-2025-wnba-draft/
 
