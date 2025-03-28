@@ -1,3 +1,7 @@
+**Myanmar Quake Causes Chaos in Bangkok**\
+`In Bangkok, a building that had been under construction collapsed, killing at least three people, while dozens of workers remained stuck in the rubble.`\
+https://nytimes.com/2025/03/28/world/asia/myanmar-earthquake-bangkok-thailand.html
+
 **No 3s? No problem. How Texas could win a national championship without them**\
 `Texas has the lowest 3-point rate in the nation. Coach Vic Schaefer is just fine with that. "The proof’s in the pudding."`\
 https://nytimes.com/athletic/6237007/2025/03/28/texas-womens-basketball-ncaa-tournament-3-pointers/

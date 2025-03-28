@@ -18,9 +18,9 @@ https://nytimes.com/2025/03/28/briefing/the-self-deporters.html
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6235556/2025/03/28/ncaa-sweet-16-texas-tech-duke-the-pulse/
 
-**The quake caused chaos in Bangkok, where at least 3 people died.**\
-`By Richard C. Paddock`\
-https://nytimes.com/2025/03/28/world/asia/the-quake-caused-chaos-in-bangkok-where-at-least-3-people-died.html
+**Myanmar Quake Causes Chaos in Bangkok**\
+`In Bangkok, a building that had been under construction collapsed, killing at least three people, while dozens of workers remained stuck in the rubble.`\
+https://nytimes.com/2025/03/28/world/asia/myanmar-earthquake-bangkok-thailand.html
 
 **Houston vs. Purdue: Can the Boilers take down Kelvin Sampson's top-seeded Cougars?**\
 `Kelvin Sampson's squad is one of the best in the country. Can Big Ten Player of the Year Braden Smith lead the Boilers to an upset?`\

@@ -1,3 +1,7 @@
+**UCLA vs. Ole Miss: How to watch Lauren Betts, Bruins play for Elite Eight bid**\
+`No. 1 UCLA is a big favorite against fifth-seeded Ole Miss on Friday. Lauren Betts is coming off a 30-point game in the prior round.`\
+https://nytimes.com/athletic/6227779/2025/03/28/ucla-ole-miss-womens-ncaa-tournament-how-to-watch/
+
 **No 3s? No problem. How Texas could win a national championship without them**\
 `Texas has the lowest 3-point rate in the nation. Coach Vic Schaefer is just fine with that. "The proof’s in the pudding."`\
 https://nytimes.com/athletic/6237007/2025/03/28/texas-womens-basketball-ncaa-tournament-3-pointers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6237483/2025/03/28/red-wings-senators-missed-opport
 **H-Town blues: Throwback uniforms stoked the embers of a decades-long NFL relocation fight**\
 `The feud between the Tennessee Titans and Houston Texans over the remains of the Oilers is defined by petty antagonism and proxy wars.`\
 https://nytimes.com/athletic/5932880/2025/03/28/titans-texans-oilers-throwback-uniforms-nfl/
-
-**Joe Buck returns to the baseball TV booth: ‘I felt like I hadn’t left’**\
-`On Thursday’s Opening Day at Yankee Stadium, Joe Buck was back on TV calling a baseball game. "I felt like I hadn't left."`\
-https://nytimes.com/athletic/6237028/2025/03/28/joe-buck-espn-mlb-opening-day/
 
