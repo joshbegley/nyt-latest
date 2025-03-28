@@ -1,40 +1,40 @@
-**An Earthquake Rocks Myanmar and Thailand**\
-`The 7.7-magnitude quake caused widespread damage in a country already in chaos because of civil war.`\
-https://nytimes.com/2025/03/28/world/asia/myanmar-thailand-earthquake-photos.html
+**Is CoreWeave’s Debut an Ill Omen for I.P.O.s?**\
+`The A.I. company is set to make its market debut on Friday amid concerns about its business model and the health of the wider economy.`\
+https://nytimes.com/2025/03/28/business/dealbook/coreweave-ipo-ai.html
 
-**Leafs swept by league-worst Sharks: Five takeaways**\
-`The Leafs hatched a last-minute comeback to force overtime, only to lose in a shootout to the Sharks for the second time this season.`\
-https://nytimes.com/athletic/6237840/2025/03/28/maple-leafs-lose-sharks/
+**Can Casey Mittelstadt be the Bruins’ next No. 1 center?**\
+`Mittelstadt has to prove himself to be defensively reliable and able to face top competition to get a run with David Pastrnak in 2025-26.`\
+https://nytimes.com/athletic/6236181/2025/03/28/casey-mittelstadt-bruins-center-future/
 
-**Shaw returns to Man United training; Yoro, Maguire also join group**\
-`England international Shaw hasn't played since United's 4-0 win over Everton on December 1.`\
-https://nytimes.com/athletic/6238076/2025/03/28/manchester-united-team-news-shaw-maguire-yoro/
+**Gavin Meier on committing to Minnesota: What it means for Gophers, Wisconsin**\
+`Meier's decision had to do with what he believes Minnesota can offer him and with what Wisconsin isn't right now.`\
+https://nytimes.com/athletic/6236737/2025/03/28/gavin-meier-minnesota-football/
 
-**American figure skating duo honors crash victims after breakthrough performance at worlds**\
-`Misha Mitrofanov and Alisa Efimova delivered a huge performance and an emotional moment for the Boston skating community.`\
-https://nytimes.com/athletic/6237434/2025/03/28/alisa-efimova-misha-mitrofanov-figure-skating-world-championships-boston/
+**'Team Dunne': How hockey has connected a St. Louis family, from childhood to the pros**\
+`Tom and Tammy Dunne raised six hockey-playing kids. Now adults, and with some still playing in pro leagues, their strong bond remains.`\
+https://nytimes.com/athletic/6177643/2025/03/28/nhl-pwhl-hockey-jincy-roese-st-louis/
 
-**What Kind of Competitor Are You?**\
-`Do you have swag, an all-about-winning attitude, or a game face? How about an icy stare like that of Karis Dadson, a teenager who shows pigs at livestock competitions?`\
-https://nytimes.com/2025/03/28/learning/what-kind-of-competitor-are-you.html
+**Ducks' Jacob Trouba 'not going to bad-mouth' Rangers, but also isn't backing down after trade**\
+`"I don’t feel bad about how it went down," Trouba said of his much-discussed move from New York to Anaheim.`\
+https://nytimes.com/athletic/6236885/2025/03/28/jacob-trouba-rangers-ducks-trade/
 
-**Israel Orders Residents in Neighborhood Near Beirut to Evacuate**\
-`The command for people to leave parts of the suburbs south of the Lebanese capital where Hezbollah holds sway is the first since a cease-fire went into effect in November.`\
-https://nytimes.com/2025/03/28/world/middleeast/israel-orders-residents-in-neighborhood-near-beirut-to-evacuate.html
+**Guardians Opening Day takeaways: Upset stomachs, mustaches, extra-base hits**\
+`Ben Lively kept his emotions in check, Kyle Manzardo had a huge day at the plate and the Guardians pen looked as good as ever.`\
+https://nytimes.com/athletic/6237384/2025/03/28/cleveland-guardians-opening-day-takeaways/
 
-**Myanmar’s Internet Censorship Limits Information About Quake**\
-`Since 2021, the ruling military junta has severely restricted the internet and cut access to social media, digitally isolating the country.`\
-https://nytimes.com/2025/03/28/world/asia/myanmar-earthquake-internet-censorship.html
+**The Athletic’s Friday football quiz question #48**\
+`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
+https://nytimes.com/athletic/6236413/2025/03/28/the-athletics-friday-football-quiz-question-48/
 
-**Ex Barcelona defender Alves acquitted of sexual assault, prison sentence overturned**\
-`Alves, 41, was sentenced in February 2024 for an alleged sexual assault at a Barcelona nightclub in December 2022.`\
-https://nytimes.com/athletic/6238039/2025/03/28/dani-alves-sexual-assault-sentence-overturned/
+**Oluchi Okananwa brings flair to Duke ... in more ways than one**\
+`Duke's sophomore guard has been key to a Sweet 16 run, while also guiding the Blue Devils' fashion sense.`\
+https://nytimes.com/athletic/6237238/2025/03/28/oluchi-okananwa-sweet-16-duke-fashion/
 
-**How will Toronto Raptors be impacted by the struggling Canadian dollar?**\
-`While the new TV deal will help, the Raptors are facing tremendous uncertainty with Canada's lagging currency. `\
-https://nytimes.com/athletic/6233458/2025/03/28/toronto-raptors-canadian-dollar-economy/
+**Fighter, leader, goal scorer — How did Mathieu Olivier become so valuable in Columbus?**\
+`Widely known as the most feared fighter in the NHL, Olivier has elevated his game — and he wants to be even better.`\
+https://nytimes.com/athletic/6230600/2025/03/28/olivier-blue-jackets-fights-contract/
 
-**Nervous? Ilia Malinin didn't show it once he got into 'that flow state'**\
-`The defending world champion said he was more unsettled than usual, but it didn't stop him from nailing his elements in the short program. `\
-https://nytimes.com/athletic/6237091/2025/03/28/ilia-malinin-world-figure-skating-championships-short-program/
+**Blackhawks prospect updates: Commesso elevates game after focusing on mentality**\
+`While recovering from an injury, Drew Commesso took the time to prioritize his mindset on and off the ice.`\
+https://nytimes.com/athletic/6236816/2025/03/28/blackhawks-drew-commesso-goalie-prospect/
 
