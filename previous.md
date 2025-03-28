@@ -1,3 +1,7 @@
+**NHL Power Rankings: Who are the hottest (and coldest) teams since the trade deadline?**\
+`Which contenders have caught fire with their upgraded rosters? Who's limping into the playoffs? `\
+https://nytimes.com/athletic/6237874/2025/03/28/nhl-power-rankings-trade-deadline-4/
+
 **Josh Giddey's half-court bucket a reminder of Bulls playing 'with desperation to win'**\
 `“I think you see now it’s not over until it really is over,” Giddey said after his half-court, buzzer-beating game-winner against L.A.`\
 https://nytimes.com/athletic/6238080/2025/03/28/josh-giddey-bulls-lakers-half-court-buzzer-beater/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6238143/2025/03/28/ncaa-tournament-sweet-16-roundup
 **Cooking up Cristopher Sánchez's breakout: The partner and plan behind Phillies starter's gains**\
 `Everything  started to change for Sánchez when he met his wife, a professional chef. This offseason, with her help, he pushed even harder. `\
 https://nytimes.com/athletic/6235216/2025/03/28/cristopher-sanchez-phillies-breakout-diet-offseason/
-
-**Myanmar has been convulsed by civil war.**\
-`By Lara Jakes`\
-https://nytimes.com/live/2025/03/28/world/myanmar-earthquake/myanmar-has-been-convulsed-by-civil-war
 

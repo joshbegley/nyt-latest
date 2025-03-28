@@ -1,3 +1,7 @@
+**NHL Power Rankings: Who are the hottest (and coldest) teams since the trade deadline?**\
+`Which contenders have caught fire with their upgraded rosters? Who's limping into the playoffs? `\
+https://nytimes.com/athletic/6237874/2025/03/28/nhl-power-rankings-trade-deadline-4/
+
 **Josh Giddey's half-court bucket a reminder of Bulls playing 'with desperation to win'**\
 `“I think you see now it’s not over until it really is over,” Giddey said after his half-court, buzzer-beating game-winner against L.A.`\
 https://nytimes.com/athletic/6238080/2025/03/28/josh-giddey-bulls-lakers-half-court-buzzer-beater/
