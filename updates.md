@@ -1,3 +1,15 @@
+**Food Poisoning While Traveling: What You Should Know**\
+`Whether you’re traveling off-the-beaten path or staying at a high-end resort, paying attention to how food is prepared and handled can help keep you safe.`\
+https://nytimes.com/2025/03/28/travel/food-poisoning-while-traveling-what-to-know.html
+
+**NBA trends I'm watching: Devin Booker's passing, Walker Kessler's green light and more**\
+`Plus, in Dallas, with the Mavericks' roster on the mend for much of the month, one player's paint prowess has come to light.`\
+https://nytimes.com/athletic/6238352/2025/03/28/nba-trends-devin-booker-walker-kessler-naji-marshall/
+
+**States Will Be Able to Bar Federal Food Benefit Recipients From Buying Soft Drinks, Kennedy Says**\
+`The health secretary announced the change to the benefit known as SNAP in an appearance in West Virginia, which is also the first state to ban most artificial dyes in food.`\
+https://nytimes.com/2025/03/28/us/politics/kennedy-snap.html
+
 **Frantic Effort Underway in Lithuania to Retrieve Vehicle Carrying 4 American Soldiers**\
 `The search in dense, muddy swampland came after the U.S. Army vehicle disappeared in a waterlogged area on Tuesday.`\
 https://nytimes.com/2025/03/28/world/europe/missing-american-soldiers-lithuania-vehicle.html

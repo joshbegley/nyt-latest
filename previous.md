@@ -1,3 +1,15 @@
+**Food Poisoning While Traveling: What You Should Know**\
+`Whether you’re traveling off-the-beaten path or staying at a high-end resort, paying attention to how food is prepared and handled can help keep you safe.`\
+https://nytimes.com/2025/03/28/travel/food-poisoning-while-traveling-what-to-know.html
+
+**NBA trends I'm watching: Devin Booker's passing, Walker Kessler's green light and more**\
+`Plus, in Dallas, with the Mavericks' roster on the mend for much of the month, one player's paint prowess has come to light.`\
+https://nytimes.com/athletic/6238352/2025/03/28/nba-trends-devin-booker-walker-kessler-naji-marshall/
+
+**States Will Be Able to Bar Federal Food Benefit Recipients From Buying Soft Drinks, Kennedy Says**\
+`The health secretary announced the change to the benefit known as SNAP in an appearance in West Virginia, which is also the first state to ban most artificial dyes in food.`\
+https://nytimes.com/2025/03/28/us/politics/kennedy-snap.html
+
 **Frantic Effort Underway in Lithuania to Retrieve Vehicle Carrying 4 American Soldiers**\
 `The search in dense, muddy swampland came after the U.S. Army vehicle disappeared in a waterlogged area on Tuesday.`\
 https://nytimes.com/2025/03/28/world/europe/missing-american-soldiers-lithuania-vehicle.html
@@ -21,16 +33,4 @@ https://nytimes.com/2025/03/28/well/move/skipping-fitness-benefits.html
 **Five Horror Movies to Stream Now**\
 `This month’s picks include everyday evildoers, Indonesian demons and a smug Brazilian serial killer.`\
 https://nytimes.com/2025/03/28/movies/five-horror-movies-to-stream-now.html
-
-**Peter Schrager leaving Fox Sports, NFLN, likely heading to ESPN: Sources**\
-`If the deal with ESPN is finalized, Schrager is expected to be on the network's daily, including "NFL Live," "Get Up" and "First Take."`\
-https://nytimes.com/athletic/6238488/2025/03/28/peter-schrager-fox-sports-nfl-network-espn/
-
-**Men's March Madness projections 2025: Which Sweet 16 teams have the best odds to advance?**\
-`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
-https://nytimes.com/athletic/6198047/2025/03/28/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**Trump Deportation Fight Reaches Supreme Court**\
-`The Trump administration asked the justices to allow it to use a wartime law to continue deportations of Venezuelans with little or no due process.`\
-https://nytimes.com/2025/03/28/us/politics/trump-deportations-supreme-court.html
 

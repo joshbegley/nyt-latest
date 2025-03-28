@@ -1,3 +1,7 @@
+**Trump Orders Smithsonian Institution to Promote ‘American Greatness’**\
+`The president complained in an executive order that the Smithsonian had advanced “narratives that portray American and Western values as inherently harmful and oppressive.”`\
+https://nytimes.com/2025/03/28/arts/design/trump-smithsonian-institution-eo.html
+
 **Food Poisoning While Traveling: What You Should Know**\
 `Whether you’re traveling off-the-beaten path or staying at a high-end resort, paying attention to how food is prepared and handled can help keep you safe.`\
 https://nytimes.com/2025/03/28/travel/food-poisoning-while-traveling-what-to-know.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/03/28/opinion/signal-group-chat-military.html
 **Is Skipping Really a Good Workout?**\
 `It feels like play. Here’s what fitness experts say about using the activity as a training tool.`\
 https://nytimes.com/2025/03/28/well/move/skipping-fitness-benefits.html
-
-**Five Horror Movies to Stream Now**\
-`This month’s picks include everyday evildoers, Indonesian demons and a smug Brazilian serial killer.`\
-https://nytimes.com/2025/03/28/movies/five-horror-movies-to-stream-now.html
 
