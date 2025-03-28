@@ -1,3 +1,7 @@
+**L.A. Firefighters Who Fought Blazes Show Elevated Mercury and Lead Levels**\
+`The findings, which compared the firefighters’ blood samples against those taken after past fires, suggest unique risks to blazes that burn in populated areas.`\
+https://nytimes.com/2025/03/28/well/la-firefighters-mercury-lead-blood-levels.html
+
 **Airlines Cut Seats to the U.S. as Canadians Stay Away**\
 `Several airlines have reduced the number of seats on U.S.-bound flights in April, while industry data shows that bookings have declined significantly.`\
 https://nytimes.com/2025/03/28/world/canada/air-canada-flights-seats-us.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6238817/2025/03/28/tortorella-york-flyers-firing/
 **UConn's Geno Auriemma criticizes regional format: 'They ruined the game'**\
 `The crowds have grown in the super-regional era, but with more teams at fewer sites, some teams have complained about logistics.`\
 https://nytimes.com/athletic/6238863/2025/03/28/uconn-geno-auriemma-ncaa-tournament-format-criticism/
-
-**Major Quake Batters Myanmar; High Toll Is Feared as Buildings Topple**\
-`The 7.7-magnitude earthquake near Mandalay, in a country already torn by war, was felt across Southeast Asia, and experts warned there could be tens of thousands dead.`\
-https://nytimes.com/2025/03/28/world/asia/myanmar-earthquake-thailand-mandalay.html
 
