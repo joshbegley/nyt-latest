@@ -1,3 +1,7 @@
+**The Pulse: At least we got some thrilling games?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6235556/2025/03/28/ncaa-sweet-16-texas-tech-duke-the-pulse/
+
 **The quake caused chaos in Bangkok, where at least 3 people died.**\
 `By Richard C. Paddock`\
 https://nytimes.com/live/2025/03/28/world/myanmar-earthquake/the-quake-caused-chaos-in-bangkok-where-at-least-3-people-died
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6228609/2025/03/28/nba-visually-impaired-fans-hapti
 **Why Kim Mulkey's fiery coaching style still breeds success: 'She just keeps it real'**\
 `In an era of NIL and player empowerment, many elite players seek out Mulkey's old-school coaching methods. `\
 https://nytimes.com/athletic/6237310/2025/03/28/kim-mulkey-lsu-sweet-16-coaching-style/
-
-**Women's Sweet 16 power rankings: How far does USC drop without JuJu Watkins?**\
-`NC State and Notre Dame appear to be heating up. Can they reach the Elite Eight?`\
-https://nytimes.com/athletic/6232939/2025/03/28/womens-sweet-16-power-rankings-usc-juju-watkins/
 
