@@ -1,3 +1,7 @@
+**The quake caused chaos in Bangkok, where at least 3 people died.**\
+`By Richard C. Paddock`\
+https://nytimes.com/live/2025/03/28/world/myanmar-earthquake/the-quake-caused-chaos-in-bangkok-where-at-least-3-people-died
+
 **Houston vs. Purdue: Can the Boilers take down Kelvin Sampson's top-seeded Cougars?**\
 `Kelvin Sampson's squad is one of the best in the country. Can Big Ten Player of the Year Braden Smith lead the Boilers to an upset?`\
 https://nytimes.com/athletic/6229922/2025/03/28/houston-purdue-ncaa-tournament-how-to-watch/

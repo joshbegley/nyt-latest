@@ -1,3 +1,7 @@
+**The quake caused chaos in Bangkok, where at least 3 people died.**\
+`By Richard C. Paddock`\
+https://nytimes.com/live/2025/03/28/world/myanmar-earthquake/the-quake-caused-chaos-in-bangkok-where-at-least-3-people-died
+
 **Houston vs. Purdue: Can the Boilers take down Kelvin Sampson's top-seeded Cougars?**\
 `Kelvin Sampson's squad is one of the best in the country. Can Big Ten Player of the Year Braden Smith lead the Boilers to an upset?`\
 https://nytimes.com/athletic/6229922/2025/03/28/houston-purdue-ncaa-tournament-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6237310/2025/03/28/kim-mulkey-lsu-sweet-16-coaching
 **Women's Sweet 16 power rankings: How far does USC drop without JuJu Watkins?**\
 `NC State and Notre Dame appear to be heating up. Can they reach the Elite Eight?`\
 https://nytimes.com/athletic/6232939/2025/03/28/womens-sweet-16-power-rankings-usc-juju-watkins/
-
-**Trump 2.0: Group Chats and a New Spat**\
-`What does the Signal leak tell us about the administration’s approach to blame?`\
-https://nytimes.com/2025/03/28/podcasts/the-daily/trump-hegseth-signal-leak-group-chat.html
 
