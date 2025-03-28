@@ -1,3 +1,11 @@
+**Trump Mentioned Biden 316 Times in 50 Days, Mostly to Blame Him for Things**\
+`A central dictum in the Trump White House is that Joseph R. Biden Jr. is to blame for just about anything and everything.`\
+https://nytimes.com/2025/03/28/us/politics/trump-biden-blame.html
+
+**Chelsea cancel scheduled day off after first team lose 3-0 to Under-21s**\
+`Maresca took the action after being disappointed by what he had seen during the drill, which was not a full 90-minute match.`\
+https://nytimes.com/athletic/6238611/2025/03/28/chelsea-training-cancelled-maresca/
+
 **Scoop City: Cam Ward's remarkable journey to QB1**\
 `Inside: Cam Ward&#8217;s journey, pro days for top quarterbacks and why one prospect sometimes can&#8217;t stay awake.`\
 https://nytimes.com/athletic/6238634/2025/03/28/who-is-cam-ward-miami-tennessee-nfl-draft-2025-scoop-city/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6236935/2025/03/28/athletic-fc-podcast-alexander-ar
 **Penguins promote hyped prospects Rutger McGroarty, Ville Koivunen to NHL**\
 `McGroarty and Koivunen, two of the more hyped Penguins prospects in quite some time, have been recalled from the AHL.`\
 https://nytimes.com/athletic/6238558/2025/03/28/penguins-prospects-rutger-mcgroarty-ville-koivunen-nhl/
-
-**The Windup: An unbelievable Opening Day streak**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6237838/2025/03/28/tyler-oneill-opening-day-home-run-the-windup/
-
-**Trump Orders Smithsonian Institution to Promote ‘American Greatness’**\
-`The president complained in an executive order that the Smithsonian had advanced “narratives that portray American and Western values as inherently harmful and oppressive.”`\
-https://nytimes.com/2025/03/28/arts/design/trump-smithsonian-institution-eo.html
 
