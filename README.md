@@ -1,3 +1,7 @@
+**USMNT's  Turner will not start for Palace in FA Cup QF vs Fulham**\
+`Turner has been Palace's first-choice goalkeeper in cup matches this season but regular league No 1 Dean Henderson will start this weekend.`\
+https://nytimes.com/athletic/6239132/2025/03/28/matt-turner-usmnt-palace-fa-cup/
+
 **RSL, Utah Royals majority sale by David Blitzer in advanced stage**\
 `Utah's MLS and NWSL teams have attracted the interest of the Larry H. Miller family, former owners of the NBA's Utah Jazz`\
 https://nytimes.com/athletic/6239468/2025/03/28/david-blitzer-real-salt-lake-utah-royals-sale/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/28/technology/musk-x-xai.html
 **Jimmy Snuggerud signs with Blues, ending Gophers career: Will he play, and if so, who comes out?**\
 `Signing burns the first year of Snuggerud's entry-level contract, which means the 2025-26 season will be the second year of the deal.`\
 https://nytimes.com/athletic/6238471/2025/03/28/jimmy-snuggerud-blues-contract/
-
-**A Powerful Earthquake Devastated Myanmar**\
-`Also, JD Vance went to Greenland. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2025/03/28/briefing/a-powerful-earthquake-devastated-myanmar.html
 
