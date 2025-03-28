@@ -1,3 +1,7 @@
+**The Angels planned to compete in 2025. Game 1 was not a good start.**\
+`This season will not be defined by the first game. All the Angels can do is hope that this opener has no bearing on what's to come.`\
+https://nytimes.com/athletic/6237126/2025/03/27/can-angels-turn-it-around-2025-opening-day/
+
 **A smash and a save in the sunshine: Not a bad opening act for the Yankees**\
 `Baseball is never more beautiful than it is on opening day, in the sunshine, with a whole season of possibility stretched out ahead.`\
 https://nytimes.com/athletic/6237147/2025/03/27/new-york-yankees-opening-day-win/
