@@ -1,3 +1,7 @@
+**How will Toronto Raptors be impacted by the struggling Canadian dollar?**\
+`While the new TV deal will help, the Raptors are facing tremendous uncertainty with Canada's lagging currency. `\
+https://nytimes.com/athletic/6233458/2025/03/28/toronto-raptors-canadian-dollar-economy/
+
 **Myanmar’s Internet Censorship Limits Information About Quake**\
 `Since 2021, the ruling military junta has severely restricted the internet and cut access to social media, digitally isolating the country.`\
 https://nytimes.com/2025/03/28/world/asia/myanmar-earthquake-internet-censorship.html

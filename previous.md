@@ -6,6 +6,10 @@ https://nytimes.com/2025/03/28/world/asia/myanmar-earthquake-internet-censorship
 `Alves, 41, was sentenced in February 2024 for an alleged sexual assault at a Barcelona nightclub in December 2022.`\
 https://nytimes.com/athletic/6238039/2025/03/28/dani-alves-sexual-assault-sentence-overturned/
 
+**How will Toronto Raptors be impacted by the struggling Canadian dollar?**\
+`While the new TV deal will help, the Raptors are facing tremendous uncertainty with Canada's lagging currency. `\
+https://nytimes.com/athletic/6233458/2025/03/28/toronto-raptors-canadian-dollar-economy/
+
 **Nervous? Ilia Malinin didn't show it once he got into 'that flow state'**\
 `The defending world champion said he was more unsettled than usual, but it didn't stop him from nailing his elements in the short program. `\
 https://nytimes.com/athletic/6237091/2025/03/28/ilia-malinin-world-figure-skating-championships-short-program/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6233091/2025/03/28/miami-hurricanes-football-carson
 **Dylan Raiola embracing leadership role in second year on campus**\
 `Raiola's maturation as a QB in this second offseason of his collegiate career looms large for a program desperate to take the next step. `\
 https://nytimes.com/athletic/6236559/2025/03/28/dylan-raiola-nebraska-quarterback-leader/
-
-**Men’s March Madness 2025: What to watch for on Day 6**\
-`Friday's Sweet 16 action is a slate of heavyweight showdowns that promise plenty of drama. Here's what you need to know.`\
-https://nytimes.com/athletic/6236122/2025/03/28/march-madness-2025-what-to-watch-day-6-sweet-16/
 
