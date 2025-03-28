@@ -1,3 +1,7 @@
+**RSL, Utah Royals majority sale by David Blitzer in advanced stage**\
+`Utah's MLS and NWSL teams have attracted the interest of the Larry H. Miller family, former owners of the NBA's Utah Jazz`\
+https://nytimes.com/athletic/6239468/2025/03/28/david-blitzer-real-salt-lake-utah-royals-sale/
+
 **Trump Takes Aim at California Six Times in 24 Hours**\
 `The Trump administration seemed to hold back immediately after the January wildfires. But its multipronged assault on California has now begun in earnest.`\
 https://nytimes.com/2025/03/28/us/trump-newsom-california.html
