@@ -1,3 +1,7 @@
+**A Very Phillies Opening Day: They whiffed, they won. 'Same group' begins new grind**\
+`The beauty is in the 162-game grind with a group that has experienced so much together. They will savor the victories — big and small.`\
+https://nytimes.com/athletic/6237183/2025/03/27/phillies-2025-season-opening-day-bryce-harper/
+
 **Florida stays hot, surges past Maryland into Elite Eight with dominant 2nd half**\
 `The Gators, winners of nine straight games, advanced to the Elite Eight for the 10th time in school history. `\
 https://nytimes.com/athletic/6237144/2025/03/27/florida-gators-maryland-elite-eight/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6237037/2025/03/27/sweet-16-alabama-byu-ncaa-3-poin
 **Austin Wells ready to be first Yankees catcher of his kind: 'Incredible'**\
 `Wells became the first catcher to hit leadoff for the Yankees, who were established in 1913. And he led off the opener with a home run. `\
 https://nytimes.com/athletic/6237146/2025/03/27/yankees-catcher-austin-wells/
-
-**Reds blow ninth-inning lead in Opening Day loss to Giants**\
-`"Everybody is frustrated and we thought the outcome would be a lot different, especially going into that last inning,” Hunter Greene said. `\
-https://nytimes.com/athletic/6237111/2025/03/27/reds-lose-giants-opening-day/
 
