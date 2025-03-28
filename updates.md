@@ -1,3 +1,15 @@
+**Alexandra Eala's wild run in Miami comes to an end**\
+`Eala nearly pulled off yet another hard-to-fathom upset in her semis match against Pegula on Thursday night at Hard Rock Stadium.`\
+https://nytimes.com/athletic/6237760/2025/03/28/alexandra-eala-miami-open-semifinals/
+
+**Floods Sweep South Texas and Nearby Border Cities in Mexico**\
+`Severe storms dumped about half a year’s rainfall in two days, leading to flash floods across both sides of the border.`\
+https://nytimes.com/2025/03/28/us/texas-mexico-flooding-rain.html
+
+**Xi Jinping Meets Global Business Leaders Amid Trade Tensions**\
+`German investment in China’s auto industry has been one of the few bright spots as foreign investment has slowed to a crawl.`\
+https://nytimes.com/2025/03/28/business/china-xi-ceos-mercedes-bmw-qualcomm.html
+
 **Trump Moves to End Union Protections Across Broad Swath of Government**\
 `An executive order signed by the president would cancel collective bargaining for hundreds of thousands of workers, the largest federal employees union said. The union was preparing legal action.`\
 https://nytimes.com/2025/03/28/us/politics/trump-unions-executive-order.html
