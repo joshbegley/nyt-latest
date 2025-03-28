@@ -1,3 +1,7 @@
+**Nolan Arenado 'puts a bow' on Cards' Opening Day win: 'It meant a lot to me'**\
+`After a turbulent winter, Arenado got much-appreciated support from the home fans.`\
+https://nytimes.com/athletic/6236835/2025/03/27/cardinals-nolan-arenado-opening-day-homer/
+
 **David Perron continues his stellar March in win over Red Wings**\
 `The Sherbrooke native has seven goals and 10 points in 13 games since the beginning of the month. `\
 https://nytimes.com/athletic/6236209/2025/03/27/senators-david-perron-red-wings/
