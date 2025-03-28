@@ -1,40 +1,40 @@
-**A 'culmination' for Dodgers: Champs look dangerous again in home opener**\
-`Amid much fanfare and hoopla, the Dodgers kept up their winning formula: "This feeling right now is unbeatable for everybody."`\
-https://nytimes.com/athletic/6237467/2025/03/27/dodgers-opening-day-ice-cube/
+**For Some Autocrats, Even Rigged Elections Can Be Too Much of a Threat**\
+`Protests are raging in Turkey after the arrest of the country’s most prominent opposition politician.`\
+https://nytimes.com/2025/03/28/world/middleeast/for-some-autocrats-even-rigged-elections-can-be-too-much-of-a-threat.html
 
-**Opening Day homers from Wilmer Flores, Heliot Ramos give Giants fans a reason to dream**\
-`The Giants struck out 17 times against the Reds but it was all moot after Flores and Ramos hit dramatic homers off right-handers.`\
-https://nytimes.com/athletic/6237061/2025/03/27/sf-giants-heliot-ramos-wilmer-flores-opening-day/
+**In Japan, an Iceless Lake and an Absent God Sound an Ancient Warning**\
+`For centuries, residents in central Japan have chronicled a mysterious natural phenomenon in winter. They see its disappearance as a bad omen.`\
+https://nytimes.com/2025/03/28/world/asia/japan-climate-lake.html
 
-**Twins' sloppy start and bumpy TV broadcast doom Opening Day**\
-`Between the team’s early play and the broadcast, nothing about Thursday’s start went the way the Twins desired.`\
-https://nytimes.com/athletic/6237422/2025/03/27/twins-opening-day-loss-tv-issues/
+**Pope Francis Came Near Death in Hospital, His Doctor Says**\
+`In an interview, the leader of Pope Francis’s medical team called it “a miracle” that the 88-year-old pontiff left the hospital, but said he needs to change his vigorous habits, at least for a while, to recover.`\
+https://nytimes.com/2025/03/28/world/europe/pope-francis-doctor-interview.html
 
-**Giddey's half-court shot at buzzer gives Bulls dramatic win over Lakers**\
-`Josh Giddey earned his fifth triple-double with 25 points, 14 rebounds and 11 assists in the win.`\
-https://nytimes.com/athletic/6237432/2025/03/27/josh-giddey-half-court-shot-bulls-lakers/
+**For a Bus Driver and a Salon Manager, a Detour on the Path to Parenthood**\
+`Jason Santiago and Tiffany Roller planned to have a baby before getting married, but amid fertility struggles, opted to change the order of events.`\
+https://nytimes.com/2025/03/28/style/tiffany-roller-jason-santiago-wedding.html
 
-**Yohe's 10 observations: Sidney Crosby remains great, even when Penguins are not**\
-`Crosby made history with his 20th point-per-game season on an otherwise forgettable night for the Penguins in Buffalo. `\
-https://nytimes.com/athletic/6237108/2025/03/27/sidney-crosby-penguins-sabres-nhl-record/
+**Trump Could Hand China a ‘Strategic Victory’ by Silencing Voice of America**\
+`Generations of Chinese, including our columnist, turned to U.S. government-run outlets for an education in democracy, rights and the English language.`\
+https://nytimes.com/2025/03/28/business/media/china-voice-of-america-radio-free-asia.html
 
-**David Perron continues his stellar March in win over Red Wings**\
-`The Sherbrooke native has seven goals and 10 points in 13 games since the beginning of the month. `\
-https://nytimes.com/athletic/6236209/2025/03/27/senators-david-perron-red-wings/
+**Ode to a Gen-Z Situationship**\
+`As my friends buy houses and start families, why am I at Abba Night with a 24-year-old in a faux-fur head wrap?`\
+https://nytimes.com/2025/03/28/style/modern-love-ode-to-a-gen-z-situationship.html
 
-**Nolan Arenado 'puts a bow' on Cards' Opening Day win: 'It meant a lot to me'**\
-`After a turbulent winter, Arenado got much-appreciated support from the home fans.`\
-https://nytimes.com/athletic/6236835/2025/03/27/cardinals-nolan-arenado-opening-day-homer/
+**Flying Solo at a Pride Festival Was the Plan. Falling in Love Wasn’t.**\
+`Daniel Nester and Geno Yoscovits met nine years ago at a Pride event at a bar in Toledo, Ohio. Mr. Nester arrived alone, but left with a phone number and the spark of a possible new relationship.`\
+https://nytimes.com/2025/03/28/style/daniel-nester-geno-yoscovits-wedding.html
 
-**The DOGE Playbook Targeting Federal Agencies**\
-`The cost-cutting strategy of the group, led by billionaire Elon Musk, has played out at more than 30 agencies so far.`\
-https://nytimes.com/interactive/2025/03/27/us/politics/doge-playbook-musk-cuts.html
+**Growing Up in St. Croix, He Asked Her to the Senior Prom Underwater**\
+`Harry Hoffman and Anne Hardee spent much of their youth in the water, on the water or by the water, often snacking on mangoes.`\
+https://nytimes.com/2025/03/28/style/anne-hardee-harry-hoffman-wedding.html
 
-**Kevin Willard addresses future at Maryland: 'I don’t know what I’m doing'**\
-`"Right now my biggest concerns in life are, I don’t know who my boss is going to be,” Willard said after his team's loss to Florida.`\
-https://nytimes.com/athletic/6237472/2025/03/27/kevin-willard-maryland-coach-villanova/
+**They Shared a Commitment to Sobriety. Then, to Each Other.**\
+`Greg Reck and Emily Starkey met at a 12-step meeting seven years ago and bonded over their similar backgrounds and career pursuits.`\
+https://nytimes.com/2025/03/28/style/emily-starkey-greg-reck-wedding.html
 
-**Newly energetic Astros notch Opening Day win over Mets: 'It's a different club'**\
-`The Astros made it a priority to infuse some extra energy into their clubhouse during an offseason filled with change. So far, so good. `\
-https://nytimes.com/athletic/6237331/2025/03/27/astros-opening-day-energy-cam-smith-debut/
+**Quote of the Day: Even With Truce Talks, Ukraine’s War Rages On**\
+`Quotation of the Day for Friday, March 28, 2025.`\
+https://nytimes.com/2025/03/27/pageoneplus/quote-of-the-day-even-with-truce-talks-ukraines-war-rages-on.html
 
