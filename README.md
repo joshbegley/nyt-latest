@@ -1,3 +1,7 @@
+**Barcelona Femeni always bounce back - but know Chelsea will be a step up in class**\
+`Barcelona are chasing a third successive Champions League - a titanic battle with Chelsea now awaits in the last four`\
+https://nytimes.com/athletic/6237889/2025/03/28/barcelona-womens-champions-league-chelsea/
+
 **Hegseth Seeks to Reassure Allies on First Official Trip to Asia**\
 `At his first stop in the Philippines, the U.S. defense secretary promised to strengthen deterrence against Chinese “threats” in the region. He also plans to visit Japan.`\
 https://nytimes.com/2025/03/28/world/asia/hegseth-philippines-china.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/28/opinion/democratic-party-trump.html
 **The Worst Habits for Your Back, According to Spine Surgeons**\
 `Avoid a world of hurt with these four tips.`\
 https://nytimes.com/2025/03/28/well/bad-habits-back-spine-surgeons.html
-
-**Hillary Clinton: This Is Just Dumb**\
-`The Signal group chat is only the latest in a string of self-inflicted wounds by the new administration.`\
-https://nytimes.com/2025/03/28/opinion/trump-hegseth-signal-chat.html
 
