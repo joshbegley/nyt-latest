@@ -1,3 +1,15 @@
+**Leafs swept by league-worst Sharks: Five takeaways**\
+`The Leafs hatched a last-minute comeback to force overtime, only to lose in a shootout to the Sharks for the second time this season.`\
+https://nytimes.com/athletic/6237840/2025/03/28/maple-leafs-lose-sharks/
+
+**Shaw returns to Man United training; Yoro, Maguire also join group**\
+`England international Shaw hasn't played since United's 4-0 win over Everton on December 1.`\
+https://nytimes.com/athletic/6238076/2025/03/28/manchester-united-team-news-shaw-maguire-yoro/
+
+**American figure skating duo honors crash victims after breakthrough performance at worlds**\
+`Misha Mitrofanov and Alisa Efimova delivered a huge performance and an emotional moment for the Boston skating community.`\
+https://nytimes.com/athletic/6237434/2025/03/28/alisa-efimova-misha-mitrofanov-figure-skating-world-championships-boston/
+
 **What Kind of Competitor Are You?**\
 `Do you have swag, an all-about-winning attitude, or a game face? How about an icy stare like that of Karis Dadson, a teenager who shows pigs at livestock competitions?`\
 https://nytimes.com/2025/03/28/learning/what-kind-of-competitor-are-you.html
