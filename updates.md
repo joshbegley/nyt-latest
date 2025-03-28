@@ -1,3 +1,11 @@
+**Penn State's Tyler Warren doesn't want to list his accomplishments, and he doesn't have to**\
+`NFL teams have asked him about the impressive moments during his college career. Warren would rather not say too much about himself.`\
+https://nytimes.com/athletic/6239263/2025/03/28/nfl-draft-2025-tyler-warren-penn-state/
+
+**Brazil sack Dorival after defeat to Argentina**\
+`Dorival leaves after 14 months in charge and two days after the side were defeated 4-1 by rivals Argentina on Tuesday.`\
+https://nytimes.com/athletic/6235219/2025/03/28/brazil-manager-dorival-sacked/
+
 **Final Cuts Will Eliminate U.S. Aid Agency in All but Name**\
 `The staff of U.S.A.I.D. will be reduced to some 15 legally required positions. The agency employed about 10,000 people before the Trump administration entered office.`\
 https://nytimes.com/2025/03/28/us/politics/usaid-trump-doge-cuts.html
