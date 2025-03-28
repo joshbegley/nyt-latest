@@ -1,3 +1,11 @@
+**What advice did Paige Bueckers offer JuJu Watkins about her injury recovery?**\
+`Players such as Bueckers, Azzi Fudd and Olivia Miles, who have had ACL tears, expressed heartache for Watkins' injury.`\
+https://nytimes.com/athletic/6239545/2025/03/28/paige-bueckers-juju-watkins-knee-injury-advice/
+
+**Trump Is Giving Europe Vertigo, and Not Just About Ukraine**\
+`The split between Europe and the United States over how to end the war is exposing a new, disorienting reality for an alliance in trouble.`\
+https://nytimes.com/2025/03/28/world/europe/trump-europe-ukraine-russia.html
+
 **Rubio Says He Has Revoked 300 or More Visas in Trump’s Deportation Push**\
 `The secretary of state said he was trying to expel “lunatics” who had taken part in campus movements, as well as criminals. Some are permanent U.S. residents.`\
 https://nytimes.com/2025/03/28/us/politics/rubio-immigration-students-ozturk-chung-khalil.html
@@ -29,12 +37,4 @@ https://nytimes.com/card/2025/03/28/smarter-living/wirecutter/best-moisturizers
 **Colorado, Syracuse request for spring football game denied**\
 `The waiver was denied largely due to the late timing of the request.`\
 https://nytimes.com/athletic/6239498/2025/03/28/colorado-syracuse-spring-football-denied/
-
-**'I'm built to do this at a high level': How Kara Lawson rebuilt Duke for an Elite Eight run**\
-`A win against North Carolina has the Blue Devils in the Elite Eight for the first time since 2013.`\
-https://nytimes.com/athletic/6239516/2025/03/28/duke-sweet-16-kara-lawson-north-carolina/
-
-**USMNT's  Turner will not start for Palace in FA Cup QF vs Fulham**\
-`Turner has been Palace's first-choice goalkeeper in cup matches this season but regular league No 1 Dean Henderson will start this weekend.`\
-https://nytimes.com/athletic/6239132/2025/03/28/matt-turner-usmnt-palace-fa-cup/
 
