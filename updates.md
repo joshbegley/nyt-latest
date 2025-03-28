@@ -1,3 +1,7 @@
+**Musk to Campaign in Wisconsin Ahead of Critical State Court Election**\
+`The billionaire is reprising another of the moves he did to help elect Donald J. Trump in November.`\
+https://nytimes.com/2025/03/28/us/politics/musk-wisconsin-supreme-court.html
+
 **The Family That’s Pushing Cuomo to Apologize Personally for Covid Deaths**\
 `Thousands died in nursing homes at the outset of the pandemic. Will a campaign for accountability stall Andrew Cuomo’s progress in the mayor’s race?`\
 https://nytimes.com/2025/03/28/nyregion/cuomo-covid-nursing-homes.html
