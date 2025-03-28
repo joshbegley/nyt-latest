@@ -1,3 +1,15 @@
+**Medieval Tales of Merlin and Arthur, Hidden for Centuries, Return to Light**\
+`Cambridge University researchers found a manuscript with rare Arthurian tales bound into a ledger more than 400 years old and used advanced technology to reveal its contents.`\
+https://nytimes.com/2025/03/28/world/europe/merlin-manuscript-cambridge.html
+
+**Central Myanmar is especially prone to powerful quakes.**\
+`By Keith Bradsher`\
+https://nytimes.com/live/2025/03/28/world/myanmar-earthquake/central-myanmar-is-especially-prone-to-powerful-quakes
+
+**UCLA vs. Ole Miss: How to watch Lauren Betts, Bruins play for Elite Eight bid**\
+`No. 1 UCLA is a big favorite against fifth-seeded Ole Miss on Friday. Lauren Betts is coming off a 30-point game in the prior round.`\
+https://nytimes.com/athletic/6227779/2025/03/28/ucla-ole-miss-womens-ncaa-tournament-how-to-watch/
+
 **Myanmar Quake Causes Chaos in Bangkok**\
 `In Bangkok, a building that had been under construction collapsed, killing at least three people, while dozens of workers remained stuck in the rubble.`\
 https://nytimes.com/2025/03/28/world/asia/myanmar-earthquake-bangkok-thailand.html
