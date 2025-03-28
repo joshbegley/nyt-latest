@@ -6,6 +6,10 @@ https://nytimes.com/athletic/6237626/2025/03/28/arkansas-john-calipari-elite-eig
 `Marco Silva's side are three points off fifth, yet they have not attracted the kind of praise reserved for Bournemouth, who are 10th`\
 https://nytimes.com/athletic/6215147/2025/03/28/fulham-marco-silva-europe/
 
+**Quansah, Isak, Gordon and Gomez: What we know about Liverpool and Newcastle transfer links**\
+`Could Jarell Quansah be heading to Newcastle? Is it possible Alexander Isak could move the other way?`\
+https://nytimes.com/athletic/6235534/2025/03/28/quansah-isak-gordon-gomez-liverpool-newcastle/
+
 **Why are there no Premier League games this weekend? And is this new?**\
 `If you live for Premier League action, you may be disappointed on Saturday and Sunday - despite the two-week international break being over`\
 https://nytimes.com/athletic/6227277/2025/03/28/premier-league-fa-cup-weekend-why/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6237610/2025/03/28/cooper-flagg-duke-arizona-march-
 **Flyers' strange day starts with John Tortorella's firing, ends with Cam York's full-game benching**\
 `Team leaders praised their former coach after they beat the Canadiens — without a defenseman who dressed but didn't play.`\
 https://nytimes.com/athletic/6237681/2025/03/28/flyers-tortorella-york-benching/
-
-**Wizards' 53-point loss is worst in franchise's 64 seasons of existence**\
-`The last time the Washington Wizards lost this badly? It happened when they were the Baltimore Bullets.`\
-https://nytimes.com/athletic/6237588/2025/03/28/washington-wizards-most-lopsided-loss/
 
