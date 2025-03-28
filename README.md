@@ -1,3 +1,11 @@
+**Duke beats North Carolina to advance to Elite Eight**\
+`The Tar Heels seized control early, but Duke settled in and outscored North Carolina by a 47-27 margin in the final 34 minutes.`\
+https://nytimes.com/athletic/6239271/2025/03/28/duke-north-carolina-sweet-sixteen-elite-eight-ncaa-tournament/
+
+**Novak Djokovic nears yet another milestone en route to Miami Open final**\
+`If Djokovic is successful in the final of the Miami Open, it would give him 100 tour-level singles titles, joining Connors and Federer.`\
+https://nytimes.com/athletic/6239296/2025/03/28/novak-djokovic-milestone-miami-open-final/
+
 **Penn State's Tyler Warren doesn't want to list his accomplishments, and he doesn't have to**\
 `NFL teams have asked him about the impressive moments during his college career. Warren would rather not say too much about himself.`\
 https://nytimes.com/athletic/6239263/2025/03/28/nfl-draft-2025-tyler-warren-penn-state/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/28/technology/hm-ai-models-social-media.html
 **Cornell Student Facing Deportation Felt Drawn to Protest**\
 `Momodou Taal is from a political family and found his muse in Malcolm X. He joined a pro-Palestinian movement that led to his suspension. Now, he is fighting to stay in the United States.`\
 https://nytimes.com/2025/03/28/us/cornell-student-deportation-protest.html
-
-**L.A. Firefighters Who Fought Blazes Show Elevated Mercury and Lead Levels**\
-`The findings, which compared the firefighters’ blood samples against those taken from other firefighters after past fires, suggest unique risks to blazes that burn in populated areas.`\
-https://nytimes.com/2025/03/28/well/la-firefighters-mercury-lead-blood-levels.html
-
-**Airlines Cut Seats to the U.S. as Canadians Stay Away**\
-`Several airlines have reduced the number of seats on U.S.-bound flights in April, while industry data shows that bookings have declined significantly.`\
-https://nytimes.com/2025/03/28/world/canada/air-canada-flights-seats-us.html
 
