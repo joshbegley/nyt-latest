@@ -1,3 +1,11 @@
+**Final Cuts Will Eliminate U.S. Aid Agency in All but Name**\
+`The staff of U.S.A.I.D. will be reduced to some 15 legally required positions. The agency employed about 10,000 people before the Trump administration entered office.`\
+https://nytimes.com/2025/03/28/us/politics/usaid-trump-doge-cuts.html
+
+**Trump Tones Down His Rhetoric About Canada After Call With Its Leader**\
+`The president and Canada’s new prime minister, Mark Carney, spoke for the first time on Friday and promised to begin negotiations on trade.`\
+https://nytimes.com/2025/03/28/us/politics/trump-canada-carney.html
+
 **Visiting Greenland, Vance Finds the Weather and the Reception Chilly**\
 `The trip was both a reconnaissance mission and a passive-aggressive reminder of President Trump’s determination to fulfill his territorial ambitions, no matter the obstacles.`\
 https://nytimes.com/2025/03/28/us/politics/greenland-jd-vance-usha.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/28/nyregion/jean-rice-dead.html
 **At a Prison Appearance, a $50,000 Watch Stands Out**\
 `Kristi Noem’s trip to a prison in El Salvador drew social media attention for the homeland security secretary’s choice to wear a gold Rolex in such a setting.`\
 https://nytimes.com/2025/03/28/style/kristi-noem-venezuela-prison-rolex-watch.html
-
-**An Executive Editor Who Was the Last of His Kind**\
-`When Max Frankel ascended to The Times’s top spot in 1986, he set out to respect traditions as the paper entered a period of vast transformation.`\
-https://nytimes.com/2025/03/28/insider/max-frankel-editor.html
-
-**Dachshund Lost on Australian Island Is Still Alive, but Elusive**\
-`A year after getting loose on Kangaroo Island, Valerie is still out there.`\
-https://nytimes.com/2025/03/28/world/australia/dachshund-dog-australia-island.html
 
