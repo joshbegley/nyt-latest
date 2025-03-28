@@ -1,3 +1,7 @@
+**Book Club: Let’s Talk About Han Kang’s ‘We Do Not Part’**\
+`This Korean novel by the 2024 winner of the Nobel Prize in Literature turns a pet-sitting mission into a haunting reflection on grief and memory.`\
+https://nytimes.com/2025/03/28/books/review/podcast-han-kang-book-club.html
+
 **Welcome to England, Thomas Tuchel – where Germans can still be subjected to infantile innuendo**\
 `Harry Redknapp's attempts at comedy made England look very small, as did the audience's guffawing reaction as he spoke at a charity event`\
 https://nytimes.com/athletic/6238531/2025/03/28/tuchel-redknapp-england-germany/
@@ -29,12 +33,4 @@ https://nytimes.com/video/world/asia/100000010078844/thailand-myanmar-earthquake
 **Grizzlies fire coach Taylor Jenkins with 9 games left in regular season**\
 `The Grizzlies are 44-29 and in fifth place in the Western Conference standings. The team has nine regular-season games remaining.`\
 https://nytimes.com/athletic/6238723/2025/03/28/memphis-grizzlies-taylor-jenkins-fired/
-
-**In Oklahoma, Counting Migrant Students May Have Gone Too Far**\
-`A rare divide between Oklahoma’s governor and schools chief over undocumented students may mark the outer limits of acceptable immigration enforcement, or the next frontier.`\
-https://nytimes.com/2025/03/28/us/oklahoma-republican-fight.html
-
-**Assessing Elon Musk’s Misleading Claims About Fraud in Government Spending**\
-`The world’s richest man made inaccurate claims about entitlement fraud, how a government payment system works and government survey costs.`\
-https://nytimes.com/2025/03/28/us/politics/fact-check-elon-musk-government-spending-fraud-claims.html
 

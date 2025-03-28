@@ -1,3 +1,11 @@
+**Welcome to England, Thomas Tuchel – where Germans can still be subjected to infantile innuendo**\
+`Harry Redknapp's attempts at comedy made England look very small, as did the audience's guffawing reaction as he spoke at a charity event`\
+https://nytimes.com/athletic/6238531/2025/03/28/tuchel-redknapp-england-germany/
+
+**EFL official charged with 16 child sex offences, to stand trial in September**\
+`Gareth Viccars, 46, has been charged with 16 offences with a trial scheduled for September.`\
+https://nytimes.com/athletic/6238726/2025/03/28/efl-official-child-sex-offences/
+
 **Stocks Fall as Inflation Anxiety Dampens Mood on Wall Street**\
 `The S&P 500 index dipped as investors weighed new hotter-than-expected inflation data and braced for President Trump’s next round of tariffs.`\
 https://nytimes.com/2025/03/28/business/stock-market-inflation-consumer-sentiment.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/28/us/oklahoma-republican-fight.html
 **Assessing Elon Musk’s Misleading Claims About Fraud in Government Spending**\
 `The world’s richest man made inaccurate claims about entitlement fraud, how a government payment system works and government survey costs.`\
 https://nytimes.com/2025/03/28/us/politics/fact-check-elon-musk-government-spending-fraud-claims.html
-
-**Abdul Carter confident he's the best player in this draft: 'I think that for a lot of reasons'**\
-`"When crunch time comes around and you need somebody to make that big play, I make that big play," the 21-year-old Carter said. `\
-https://nytimes.com/athletic/6238675/2025/03/28/abdul-carter-penn-state-pro-day-nfl-draft/
-
-**Is Kermit the Frog What the Class of 2025 Needs?**\
-`The University of Maryland says it is honoring Jim Henson, an alumnus, with its choice of commencement speaker. Some students think it is avoiding “real issues.”`\
-https://nytimes.com/2025/03/28/style/kermit-university-of-maryland-commencement-reaction.html
 
