@@ -1,3 +1,7 @@
+**'It's delusion that feeds me': Why White Sox fans still showed up on Opening Day**\
+`For so many, being here is closer to a ritual than a choice. It's not that they want to support their historically bad team. They need to.`\
+https://nytimes.com/athletic/6236867/2025/03/27/chicago-white-sox-fans-opening-day/
+
 **Trump restored funding for Radio Free Europe and reinstated 33 employees for Cuban radio station.**\
 `The decision to`\
 https://nytimes.com/2025/03/27/us/politics/trump-restored-funding-for-radio-free-europe-and-reinstated-33-employees-for-cuban-radio-station.html

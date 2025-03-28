@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6237032/2025/03/27/angel-reese-julian-reese-marylan
 https://nytimes.com/2025/03/27/us/students-trump-ice-detention.html
 
 **'It's delusion that feeds me': Why White Sox fans still showed up on Opening Day**\
-`For so many, being here is closer to a ritual than a choice. It’s not that they want to support their historically bad team. They need to.`\
+`For so many, being here is closer to a ritual than a choice. It's not that they want to support their historically bad team. They need to.`\
 https://nytimes.com/athletic/6236867/2025/03/27/chicago-white-sox-fans-opening-day/
 
 **Justice Dept. Will Investigate California Universities Over Race in Admissions**\
