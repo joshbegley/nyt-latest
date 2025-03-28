@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6238817/2025/03/28/tortorella-york-flyers-firing/
 https://nytimes.com/athletic/6238863/2025/03/28/uconn-geno-auriemma-ncaa-tournament-format-criticism/
 
 **Major Quake Batters Myanmar; High Toll Is Feared as Buildings Topple**\
-`The 7.7-magnitude earthquake near Mandalay, in a country already torn by war, was felt across Southeast Asia, and experts warned there could be thousands dead.`\
+`The 7.7-magnitude earthquake near Mandalay, in a country already torn by war, was felt across Southeast Asia, and experts warned there could be tens of thousands dead.`\
 https://nytimes.com/2025/03/28/world/asia/myanmar-earthquake-thailand-mandalay.html
 
 **Heat Today: Bam Adebayo's leadership leads Miami through tough times: 'It reminds me of Tim Duncan'**\
