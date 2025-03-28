@@ -1,3 +1,19 @@
+**NC State vs. LSU: How to watch the scorching Tigers in the Sweet 16**\
+`LSU's star-laden offense goes against hot-shooting and fast-breaking NC State. The spread is only a few points. This one could be a gem.`\
+https://nytimes.com/athletic/6229290/2025/03/28/nc-state-lsu-womens-ncaa-tournament-how-to-watch/
+
+**Ukraine Stages New Push Into Russia, Officials and Experts Say**\
+`The small incursion targets the Belgorod region, according to Ukrainian officials, analysts of open-source intelligence and Russian military bloggers. The advance comes as cease-fire talks continue.`\
+https://nytimes.com/2025/03/28/world/europe/ukraine-attack-russia-belgorod.html
+
+**Tennessee vs. Kentucky: Can Mark Pope's Wildcats beat the Vols for a third time this year?**\
+`Mark Pope's Wildcats have beaten Tennessee twice in the regular season, but this game has Elite Eight stakes. Can they pull it off again? `\
+https://nytimes.com/athletic/6229856/2025/03/28/tennessee-kentucky-ncaa-tournament-how-to-watch/
+
+**The New York Times International Edition in Print for Saturday, March 29, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/03/28/todays-new-york-times-international-edition
+
 **Barcelona Femeni always bounce back - but know Chelsea will be a step up in class**\
 `Barcelona are chasing a third successive Champions League - a titanic battle with Chelsea now awaits in the last four`\
 https://nytimes.com/athletic/6237889/2025/03/28/barcelona-womens-champions-league-chelsea/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6236622/2025/03/28/russell-wilson-giants-fit-steele
 **On Trump, Democrats and a New Era of Politics: A Look at the Year Ahead**\
 `Special elections are already pointing to a familiar pattern.`\
 https://nytimes.com/2025/03/28/upshot/trump-democrats-politics-elections.html
-
-**The ‘Stuff’ of a New York Legend, From Skateboards to $12,000 Sweaters**\
-`A new book collects the Paper Magazine co-founder Kim Hastreiter’s most treasured belongings, and friends.`\
-https://nytimes.com/2025/03/28/books/review/kim-hastreiter-stuff.html
-
-**The New York Times News Quiz, March 28, 2025**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2025/03/28/briefing/quiz-trump-signal-columbia-ukraine.html
-
-**‘Of Course People Are Angry’: Four Columnists Unpack What the Democrats Are Missing**\
-`Why has fighting and opposing Trump proved so hard? It’s not just because Republicans hold all the cards in government.`\
-https://nytimes.com/2025/03/28/opinion/democratic-party-trump.html
-
-**The Worst Habits for Your Back, According to Spine Surgeons**\
-`Avoid a world of hurt with these four tips.`\
-https://nytimes.com/2025/03/28/well/bad-habits-back-spine-surgeons.html
 
