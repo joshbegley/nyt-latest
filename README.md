@@ -1,3 +1,7 @@
+**The gutting of U.S.A.I.D. is likely to hinder recovery efforts in Myanmar.**\
+`By Tim Balk`\
+https://nytimes.com/live/2025/03/29/world/earthquake-myanmar-thailand/the-gutting-of-usaid-is-likely-to-hinder-recovery-efforts-in-myanmar
+
 **F.A.A. Investigates After Air Force Jets Near Delta Plane Activate Safety Alert**\
 `Four jets came close enough to the Delta flight, which was taking off from Washington’s Reagan National Airport, to set off a collision-avoidance alert.`\
 https://nytimes.com/2025/03/29/us/politics/faa-dca-delta-air-force.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/29/business/gai-gherardi-dead.html
 **The Rapper Sean Kingston and His Mother Are Convicted in $1 Million Fraud Scheme**\
 `Mr. Kingston, who is best known for his 2007 hit single “Beautiful Girls,” and his mother were charged with defrauding sellers of high-end vehicles, jewelry and other goods, prosecutors said.`\
 https://nytimes.com/2025/03/29/us/sean-kingston-mother-fraud-guilty.html
-
-**Earthquake Damages Myanmar’s Religious and Heritage Sites**\
-`The deadly quake in Myanmar damaged over 3,000 buildings, including about 150 mosques and pagodas, in the government’s latest count on Saturday morning.`\
-https://nytimes.com/video/world/asia/100000010080759/myanmar-heritage-sites-damage-earthquake.html
 

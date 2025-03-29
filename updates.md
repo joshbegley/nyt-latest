@@ -1,3 +1,7 @@
+**F.A.A. Investigates After Air Force Jets Near Delta Plane Activate Safety Alert**\
+`Four jets came close enough to the Delta flight, which was taking off from Washington’s Reagan National Airport, to set off a collision-avoidance alert.`\
+https://nytimes.com/2025/03/29/us/politics/faa-dca-delta-air-force.html
+
 **Yankees blast 3 homers on first 3 pitches off Brewers’ Nestor Cortes Jr.**\
 `It was the first time in team history that the Yankees hit four home runs in one inning.`\
 https://nytimes.com/athletic/6240555/2025/03/29/yankees-homeruns-highlights-judge-bellinger-goldschmidt-brewers/
