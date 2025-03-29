@@ -1,3 +1,7 @@
+**Brighton told to follow All Blacks mantra ahead of Nottm Forest reunion**\
+`Brighton face Forest in the FA Cup quarter-finals eight weeks after losing 7-0 to them in the Premier League.`\
+https://nytimes.com/athletic/6238223/2025/03/29/brighton-nottingham-forest-fa-cup/
+
 **California Governor Newsom Says the Democratic Brand Is ‘Toxic’**\
 `Gov. Gavin Newsom, appearing on “Real Time With Bill Maher,” said his own party talked down to people and was stuck in an echo chamber.`\
 https://nytimes.com/2025/03/29/us/politics/newsom-democrats-toxic.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6239934/2025/03/29/rangers-ducks-three-takeaways/
 **How do you solve a problem like UCLA's 6-7 Lauren Betts? Ole Miss couldn't. Can anyone?**\
 `Betts scored 31 points with 10 rebounds in one of the tournament's most dominant performances. `\
 https://nytimes.com/athletic/6240076/2025/03/29/ucla-lauren-betts-ole-miss-sweet-16/
-
-**Full speed ahead: Cubs confident they can make big gains on basepaths**\
-`Craig Counsell and base coaches Quintin Berry and Jose Javier have been preaching good base running. It's already paying off.`\
-https://nytimes.com/athletic/6239940/2025/03/29/chicago-cubs-base-running-steals-speed/
 
