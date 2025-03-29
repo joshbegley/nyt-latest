@@ -1,40 +1,41 @@
-**Breaking Through**\
-`Icebreakers are corny, corporate get-to-know-you exercises. But there’s something thrilling in dispensing with small talk.`\
-https://nytimes.com/2025/03/29/briefing/breaking-through.html
+**Men’s March Madness 2025: What to watch for on Day 7**\
+`Can Texas Tech slow down Florida? Can Alabama outduel Duke? Here's everything to know about Saturday's Elite Eight games.`\
+https://nytimes.com/athletic/6239249/2025/03/29/march-madness-2025-what-to-watch-day-7-elite-eight/
 
-**USC vs. Kansas State: How to watch the Trojans go all out for injured JuJu Watkins**\
-`USC continues its title quest without JuJu Watkins on Saturday. A win against Kansas State would power it into the Elite Eight.`\
-https://nytimes.com/athletic/6229699/2025/03/29/usc-kansas-state-womens-ncaa-tournament-how-to-watch/
+**Which D.C. team has had the best cherry blossom jersey? We rank them**\
+`Four D.C. teams have now had a jersey with cherry blossom inspirations`\
+https://nytimes.com/athletic/6238605/2025/03/29/washington-nationals-capitals-wizards-dc-united-cherry-blossom/
 
-**Men's NCAA Tournament Sweet 16 roundup: Auburn rules late, Houston survives**\
-`Houston, Michigan State and Auburn came up clutch, while Tennessee was a bully from the start in Sweet 16 action Friday night.`\
-https://nytimes.com/athletic/6239535/2025/03/29/mens-ncaa-tournament-sweet-16-roundup-auburn-houston-purdue-tennessee/
+**NHL bold predictions: Which preseason picks we got right and wrong**\
+`Which preseason bold predictions get a pass, fail or incomplete? We look back at all 32 as the season winds down.
+`\
+https://nytimes.com/athletic/6239219/2025/03/29/nhl-season-predictions-playoffs/
 
-**Trump and Tariffs Enter the Scene Only Days Into Canada’s Election Campaign**\
-`Without advance notice to Canada, the U.S. president put the auto industry into turmoil with a 25 percent tariff.`\
-https://nytimes.com/2025/03/29/world/canada/canada-letter-trump-tariffs-automobiles.html
+**Eight potential candidates for the Flyers' coaching vacancy**\
+`Would a reunion with Rick Tocchet make sense? How about the University of Denver's David Carle?`\
+https://nytimes.com/athletic/6239110/2025/03/29/philadelphia-flyers-coach-candidates/
 
-**Men's March Madness Elite Eight power rankings: Top seeds on collision course**\
-`It's a star-studded Elite Eight featuring all four No. 1 seeds, three No. 2 seeds, and the de facto Cinderella, No. 3 seed Texas Tech.`\
-https://nytimes.com/athletic/6238300/2025/03/29/mens-march-madness-elite-eight-power-rankings/
+**Actually, A.I. Is Pretty Mid**\
+`A.I. is just what we need in the post-fact era: less research and more predicting what we want to hear.`\
+https://nytimes.com/2025/03/29/opinion/ai-tech-innovation.html
 
-**Wordle Review No. 1,380**\
-`Scroll down for hints and conversation about the puzzle for Sunday, March 30, 2025.`\
-https://nytimes.com/2025/03/29/crosswords/wordle-review-1380.html
+**The Democrats Are in Denial About 2024**\
+`Party leaders have embraced convenient excuses. This perilous political moment requires more self-reflection and honesty.`\
+https://nytimes.com/2025/03/29/opinion/democrats-strategy-2024.html
 
-**Connections Companion No. 658**\
-`Scroll down for hints and conversation about the puzzle for Sunday, March 30, 2025.`\
-https://nytimes.com/2025/03/29/crosswords/connections-companion-658.html
+**8 Pieces of Free Advice for Trump’s National Security Team**\
+`Trust your staff, admit mistakes, don’t embarrass the president.`\
+https://nytimes.com/2025/03/29/opinion/signal-chat-security.html
 
-**Duke vs. Alabama: How to watch Cooper Flagg and Mark Sears square off for Final Four bid**\
-`It's a battle of blue blood vs. rising tide in Saturday's second Elite Eight game. Who will win?`\
-https://nytimes.com/athletic/6238602/2025/03/29/duke-alabama-ncaa-tournament-how-to-watch/
+**Rays prepare for a sunny season of home-field challenges (and maybe home-field advantages)**\
+`There’s going to be no place in baseball this summer quite like Steinbrenner Field, and the Rays are trying to make that heat into an edge. `\
+https://nytimes.com/athletic/6239634/2025/03/29/rays-summer-heat-steinbrenner-field-advantage/
 
-**Severe Storms and Tornado Threat Loom Over Central and Eastern U.S.**\
-`Forecasters warn of severe weather this weekend from Texas to the East Coast.`\
-https://nytimes.com/2025/03/29/weather/storms-forecast-central-us.html
+**A Jewish Comedian Walks Into a Theater in Minnesota**\
+`Alex Edelman HBO’s comedy special about white nationalism hits different now.`\
+https://nytimes.com/2025/03/29/opinion/alex-edelman-just-for-us-jewish-identity.html
 
-**UConn vs. Oklahoma: How to watch Paige Bueckers and the Huskies try for Elite Eight**\
-`UConn is favored to get past Oklahoma and into the Elite Eight on Saturday. Paige Bueckers is playing to extend her storied college career.`\
-https://nytimes.com/athletic/6229660/2025/03/29/uconn-oklahoma-womens-ncaa-tournament-sweet-16-how-to-watch/
+**First Cancer Threatened Her Life. Then Came Medical Freedom.**\
+`With Robert F. Kennedy Jr. as health secretary, what was once a fringe movement now controls the halls of power.`\
+https://nytimes.com/2025/03/29/opinion/medical-freedom-cancer-rfk.html
 
