@@ -1,3 +1,11 @@
+**Utah Bans Most Flags, Including Pride, at Schools and Government Buildings**\
+`The new law is among the most restrictive governing displays of flags, and is part of a polarizing debate focused on the Pride flag and other expressions of L.G.B.T.Q. support.`\
+https://nytimes.com/2025/03/29/us/utah-flag-pride-ban.html
+
+**Breanna Stewart returning to Liberty as 2-time MVP inks new deal**\
+`Earlier this month, New York acquired three-time all-defensive team guard Natasha Cloud via a trade with the Connecticut Sun.`\
+https://nytimes.com/athletic/6240312/2025/03/29/breanna-stewart-new-york-liberty-return/
+
 **You Can Never Go Wrong With Olive Oil Cake**\
 `Especially not Samantha Seneviratne’s five-star olive oil cake, which is “elegant, easy and frugal.”`\
 https://nytimes.com/2025/03/29/dining/easy-olive-oil-cake.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/29/science/solar-partial-eclipse-photos.html
 **Using a ‘Tiny Bit of Math’ May Improve Your Heart Health, Study Suggests**\
 `Your average daily heart rate is a useful metric; so is your daily step count. Combining the two might be even better.`\
 https://nytimes.com/2025/03/29/health/heart-health-steps-smartwatch.html
-
-**'You just gotta want it more': Loss to Knicks drops Bucks to 0-10 against top three in East**\
-`"They played with more effort than us. And they are a better team than us, simple as that," Bucks star Giannis Antetokounmpo said of Knicks.`\
-https://nytimes.com/athletic/6239103/2025/03/29/bucks-nba-playoff-chase-knicks-eastern-conference/
-
-**Trump Administration Live Updates: Top Vaccine Official at F.D.A. Resigns, and Criticizes Kennedy**\
-``\
-https://nytimes.com/live/2025/03/29/us/trump-news
 

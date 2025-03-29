@@ -1,3 +1,11 @@
+**Utah Bans Most Flags, Including Pride, at Schools and Government Buildings**\
+`The new law is among the most restrictive governing displays of flags, and is part of a polarizing debate focused on the Pride flag and other expressions of L.G.B.T.Q. support.`\
+https://nytimes.com/2025/03/29/us/utah-flag-pride-ban.html
+
+**Breanna Stewart returning to Liberty as 2-time MVP inks new deal**\
+`Earlier this month, New York acquired three-time all-defensive team guard Natasha Cloud via a trade with the Connecticut Sun.`\
+https://nytimes.com/athletic/6240312/2025/03/29/breanna-stewart-new-york-liberty-return/
+
 **You Can Never Go Wrong With Olive Oil Cake**\
 `Especially not Samantha Seneviratne’s five-star olive oil cake, which is “elegant, easy and frugal.”`\
 https://nytimes.com/2025/03/29/dining/easy-olive-oil-cake.html
