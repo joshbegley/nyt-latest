@@ -1,3 +1,7 @@
+**The gutting of U.S.A.I.D. is likely to hinder recovery efforts in Myanmar.**\
+`By Tim Balk`\
+https://nytimes.com/live/2025/03/29/world/earthquake-myanmar-thailand/the-gutting-of-usaid-is-likely-to-hinder-recovery-efforts-in-myanmar
+
 **F.A.A. Investigates After Air Force Jets Near Delta Plane Activate Safety Alert**\
 `Four jets came close enough to the Delta flight, which was taking off from Washington’s Reagan National Airport, to set off a collision-avoidance alert.`\
 https://nytimes.com/2025/03/29/us/politics/faa-dca-delta-air-force.html
