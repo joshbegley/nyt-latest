@@ -1,3 +1,19 @@
+**Here is the latest.**\
+`By Sui-Lee Wee and Qasim Nauman`\
+https://nytimes.com/live/2025/03/29/world/earthquake-myanmar-thailand/here-is-the-latest
+
+**Live Updates: Death Toll in Myanmar Quake Rises to Nearly 700**\
+`Myanmar’s military government said more than 1,600 people were injured. The 7.7-magnitude earthquake on Friday near Mandalay was felt in parts of Southeast Asia.`\
+https://nytimes.com/live/2025/03/29/world/earthquake-myanmar-thailand
+
+**An undersized rebounder with oversized drive, Aneesah Morrow carries LSU back to Elite Eight**\
+`The senior forward finished with finished with 30 points, 19 rebounds, two blocks and three steals to beat NC State.`\
+https://nytimes.com/athletic/6239892/2025/03/29/annesah-morrow-lsu-elite-eight/
+
+**Disciplinary hearing results in admonishment for former Canada soccer coach**\
+`The disciplinary committee hearing did not result in any further punishment for John Herdman in the wake of a drone-spying scandal.`\
+https://nytimes.com/athletic/6239874/2025/03/29/canada-john-herdman-disciplinary-hearing-admonishment/
+
 **Hold the Chianti: Tariff Threat Leaves Italian Bottles Grounded**\
 `For now, President Trump’s 200 percent tariff on wine remains just a threat. But jittery American wine importers have already hit pause on orders from Tuscany.`\
 https://nytimes.com/2025/03/29/world/europe/italy-wine-trump-tariff-threat.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/28/us/politics/naval-academy-diversity-affirmative-a
 **Aneesah Morrow dominates, guiding LSU past NC State and into Elite Eight**\
 `The All-American's 30-point, 19-rebound night led the way as the Tigers' offensive versatility proved too much for the Wolfpack.`\
 https://nytimes.com/athletic/6239730/2025/03/28/ncaa-tournament-lsu-nc-state-women-sweet-16/
-
-**How Kevin Lankinen, Canucks blew a wild, roller-coaster game: 3 takeaways**\
-`Vancouver blew a 3-0 lead and left an extra point on the table as it fell 7-6 in a shootout loss to Columbus.`\
-https://nytimes.com/athletic/6239615/2025/03/28/canucks-blue-jackets-kevin-lankinen/
-
-**Rays win an Opening Day unlike any other with a walk-off homer in their new outdoor home**\
-`This was drama. This was baseball. And for a team whose dome is rooflessly indisposed at the moment, this was even better. This was home. `\
-https://nytimes.com/athletic/6239738/2025/03/28/rays-opening-day-kameron-misner-walk-off-homer/
-
-**American Alysa Liu wins gold at figure skating worlds one year after return to the sport**\
-`Alysa Liu, who walked away from figure skating at age 16 and returned last year, won the 2025 world championship on Friday.`\
-https://nytimes.com/athletic/6239743/2025/03/28/alysa-liu-world-championship-gold-medal-olympics/
-
-**Tennessee outmuscles Kentucky to secure second straight Elite Eight trip**\
-`The Wildcats, which won both regular-season meetings with the Vols, were held to 65 points, tying their lowest scoring total of the season.`\
-https://nytimes.com/athletic/6239656/2025/03/28/tennessee-kentucky-score-march-madness/
 
