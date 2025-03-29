@@ -1,3 +1,11 @@
+**American Alysa Liu wins gold at figure skating worlds one year after return to the sport**\
+`Alysa Liu, who walked away from figure skating at age 16 and returned last year, won the 2025 world championship on Friday.`\
+https://nytimes.com/athletic/6239743/2025/03/28/alysa-liu-world-championship-gold-medal-olympics/
+
+**Tennessee outmuscles Kentucky to secure second straight Elite Eight trip**\
+`The Wildcats, which won both regular-season meetings with the Vols, were held to 65 points, tying their lowest scoring total of the season.`\
+https://nytimes.com/athletic/6239656/2025/03/28/tennessee-kentucky-score-march-madness/
+
 **Is South Carolina playing with fire in its bid to repeat as champion?**\
 `Despite its Sweet 16 loss, Maryland may have provided a blueprint for how to beat the Gamecocks.`\
 https://nytimes.com/athletic/6239754/2025/03/28/south-carolina-maryland-sweet-16-playing-with-fire/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6198047/2025/03/28/mens-march-madness-projections-2
 **Corrections: March 29, 2025**\
 `Corrections that appeared in print on Saturday, March 29, 2025.`\
 https://nytimes.com/2025/03/28/pageoneplus/corrections-march-29-2025.html
-
-**Top F.D.A. Vaccine Official Resigns, Citing Kennedy’s ‘Misinformation and Lies’**\
-`Dr. Peter Marks, a veteran of the agency, wrote that undermining confidence in vaccines is irresponsible and a danger to public health.`\
-https://nytimes.com/2025/03/28/health/fda-vaccines-rfk-jr-peter-marks.html
-
-**Justice Sonia Sotomayor Says Judges Must Be ‘Fearlessly Independent’**\
-`The justice made remarks at once cautious and forceful at Georgetown University Law Center, which has called attacks by the Trump administration a threat to academic freedom.`\
-https://nytimes.com/2025/03/28/us/sotomayor-remarks-georgetown.html
 
