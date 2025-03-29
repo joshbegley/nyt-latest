@@ -1,3 +1,11 @@
+**Appeals Court Allows Trump to Fire Heads of 2 Independent Boards**\
+`The ruling, in a case seen as a test of the president’s push for expansive executive authority, cripples the operations of the Merit Systems Protection Board and the National Labor Relations Board.`\
+https://nytimes.com/live/2025/03/28/us/trump-greenland-vance-news/trump-firing-appeal
+
+**Tracking Each Party’s Early Turnout for Tuesday’s Special House Elections**\
+`Voters in two heavily Republican House districts in Florida will decide who to send to Congress. See which party is ahead in turnout so far.`\
+https://nytimes.com/2025/03/28/us/elections/florida-house-special-election-turnout.html
+
 **Model Who Says She Dated Andrew Tate Accuses Him of Sexual Assault in Lawsuit**\
 `Brianna Stern of Los Angeles accused Andrew Tate of beating and choking her while they were in a relationship, according to a complaint. Mr. Tate, through his lawyers, denied her allegations.`\
 https://nytimes.com/2025/03/28/world/europe/andrew-tate-sexual-assault-lawsuit.html

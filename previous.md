@@ -1,3 +1,11 @@
+**Appeals Court Allows Trump to Fire Heads of 2 Independent Boards**\
+`The ruling, in a case seen as a test of the president’s push for expansive executive authority, cripples the operations of the Merit Systems Protection Board and the National Labor Relations Board.`\
+https://nytimes.com/live/2025/03/28/us/trump-greenland-vance-news/trump-firing-appeal
+
+**Tracking Each Party’s Early Turnout for Tuesday’s Special House Elections**\
+`Voters in two heavily Republican House districts in Florida will decide who to send to Congress. See which party is ahead in turnout so far.`\
+https://nytimes.com/2025/03/28/us/elections/florida-house-special-election-turnout.html
+
 **Model Who Says She Dated Andrew Tate Accuses Him of Sexual Assault in Lawsuit**\
 `Brianna Stern of Los Angeles accused Andrew Tate of beating and choking her while they were in a relationship, according to a complaint. Mr. Tate, through his lawyers, denied her allegations.`\
 https://nytimes.com/2025/03/28/world/europe/andrew-tate-sexual-assault-lawsuit.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6239497/2025/03/28/norway-football-var-protests-fan
 **Judge Grants Injunction to Prevent Consumer Bureau From Being ‘Dissolved and Dismantled’**\
 `The bureau has been in turmoil as the Trump administration moved to fire hundreds of employees, ordered the rest to stop working and closed offices.`\
 https://nytimes.com/2025/03/28/us/politics/trump-cfpb-ruling.html
-
-**USC coach defends player involved in Watkins injury: 'No intent to injure'**\
-`Coach said, "No one deserves online bullying," in what she said was just a basketball play by Mississippi State's Chandler Prater.`\
-https://nytimes.com/athletic/6239496/2025/03/28/usc-coach-defends-player-juju-watkins-injury/
-
-**Trump Commutes Ozy Media Founder’s Sentence Just Before His Surrender**\
-`Carlos Watson, who started the now-defunct digital media company, had been sentenced to almost 10 years in prison for trying to defraud investors and lenders.`\
-https://nytimes.com/2025/03/28/business/carlos-watson-ozy-media-trump.html
 
