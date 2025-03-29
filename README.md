@@ -1,3 +1,7 @@
+**Aneesah Morrow dominates, guiding LSU past NC State and into Elite Eight**\
+`The All-American's 30-point, 19-rebound night led the way as the Tigers' offensive versatility proved too much for the Wolfpack.`\
+https://nytimes.com/athletic/6239730/2025/03/28/ncaa-tournament-lsu-nc-state-women-sweet-16/
+
 **How Kevin Lankinen, Canucks blew a wild, roller-coaster game: 3 takeaways**\
 `Vancouver blew a 3-0 lead and left an extra point on the table as it fell 7-6 in a shootout loss to Columbus.`\
 https://nytimes.com/athletic/6239615/2025/03/28/canucks-blue-jackets-kevin-lankinen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6239628/2025/03/28/michigan-state-ole-miss-sweet-16
 **Women's March Madness projections 2025: Does UConn have the advantage?**\
 `What's your team's chance of winning? Find out here. `\
 https://nytimes.com/athletic/6198041/2025/03/28/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**Appeals Court Allows Musk to Keep Pushing Steep Cuts at U.S.A.I.D.**\
-`The appeals court panel said that whatever influence Elon Musk and DOGE had, it was ultimately agency officials who had signed off on the various moves to gut the agency.`\
-https://nytimes.com/2025/03/28/us/politics/trump-musk-usaid.html
 
