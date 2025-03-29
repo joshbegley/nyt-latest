@@ -1,5 +1,5 @@
 **Gotham FC defender Tierna Davidson leaves match after non-contact injury**\
-`Davidson left Gotham's match against the Dash in the first half`\
+`Davidson left Gotham's match against the Dash in the first half.`\
 https://nytimes.com/athletic/6239710/2025/03/28/gotham-fc-defender-tierna-davidson-non-contact-injury/
 
 **Tom Izzo, Michigan State headed back to Elite Eight after holding off Ole Miss**\
