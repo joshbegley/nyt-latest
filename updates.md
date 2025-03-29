@@ -1,3 +1,7 @@
+**Brighton waiting on extent of Rutter injury after forward limps off against Forest**\
+`Rutter's right ankle twisted awkwardly in the turf inside the centre circle during the second half of regulation time at the Amex Stadium.`\
+https://nytimes.com/athletic/6240752/2025/03/29/georginio-rutter-brighton-injury/
+
 **No Second Lady, No Problem: Greenland’s Dog Sled Race Goes Barking On**\
 `One of Greenland’s national pastimes was nearly hijacked this week after the White House said the Second Lady would attend. She didn’t. But a lot of people talked about this as the mushers did their work.`\
 https://nytimes.com/2025/03/29/world/europe/greenland-dog-sled-race-vance-trump.html
