@@ -1,3 +1,7 @@
+**U.S. Presses French Companies to Comply With Trump’s Anti-Diversity Policies**\
+`A letter from the American Embassy in France gave firms that do business with the U.S. government five days to indicate their agreement.`\
+https://nytimes.com/2025/03/29/business/france-trump-diversity-inclusion.html
+
 **Elite Eight is old money vs. new money — and that new money’s chanting: 'SEC! SEC! SEC!'**\
 `The Elite Eight is simply the best of the best, with eight of the top nine teams in KenPom (Gonzaga being the exception) still playing.`\
 https://nytimes.com/athletic/6240182/2025/03/29/ncaa-tournament-elite-eight-sec-duke/
