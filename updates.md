@@ -1,3 +1,7 @@
+**A Question in Quake-Wracked Myanmar: Does This Augur the End of the Junta?**\
+`In a censored nation that runs on rumor and omens, people in Myanmar wonder whether the latest disaster might be a portent of regime change.`\
+https://nytimes.com/2025/03/29/world/asia/myanmar-quake-junta.html
+
 **Brighton told to follow All Blacks mantra ahead of Nottm Forest reunion**\
 `Brighton face Forest in the FA Cup quarter-finals eight weeks after losing 7-0 to them in the Premier League.`\
 https://nytimes.com/athletic/6238223/2025/03/29/brighton-nottingham-forest-fa-cup/

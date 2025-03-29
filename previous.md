@@ -1,3 +1,7 @@
+**A Question in Quake-Wracked Myanmar: Does This Augur the End of the Junta?**\
+`In a censored nation that runs on rumor and omens, people in Myanmar wonder whether the latest disaster might be a portent of regime change.`\
+https://nytimes.com/2025/03/29/world/asia/myanmar-quake-junta.html
+
 **Brighton told to follow All Blacks mantra ahead of Nottm Forest reunion**\
 `Brighton face Forest in the FA Cup quarter-finals eight weeks after losing 7-0 to them in the Premier League.`\
 https://nytimes.com/athletic/6238223/2025/03/29/brighton-nottingham-forest-fa-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6240043/2025/03/29/pistons-cavaliers-nba-win-total/
 **In a season of lows, Rangers' loss in Anaheim somehow sunk lower: 3 takeaways**\
 `The Rangers had a 4-2 lead in the third period Friday with under six minutes to go and lost 5-4 in overtime. `\
 https://nytimes.com/athletic/6239934/2025/03/29/rangers-ducks-three-takeaways/
-
-**How do you solve a problem like UCLA's 6-7 Lauren Betts? Ole Miss couldn't. Can anyone?**\
-`Betts scored 31 points with 10 rebounds in one of the tournament's most dominant performances. `\
-https://nytimes.com/athletic/6240076/2025/03/29/ucla-lauren-betts-ole-miss-sweet-16/
 
