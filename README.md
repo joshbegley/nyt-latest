@@ -1,3 +1,11 @@
+**Appeals Court Allows Musk to Keep Pushing Steep Cuts at U.S.A.I.D.**\
+`The appeals court panel said that whatever influence Elon Musk and DOGE had, it was ultimately agency officials who had signed off on the various moves to gut the agency.`\
+https://nytimes.com/2025/03/28/us/politics/trump-musk-usaid.html
+
+**Men's March Madness projections 2025: Which Sweet 16 teams have the best odds to advance?**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/03/28/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **Corrections: March 29, 2025**\
 `Corrections that appeared in print on Saturday, March 29, 2025.`\
 https://nytimes.com/2025/03/28/pageoneplus/corrections-march-29-2025.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6239581/2025/03/28/russian-tennis-daria-kasatkina-w
 **What We Know About Cuts to the Federal Work Force**\
 `Here are the layoffs, buyouts taken and planned reductions, by agency, that The New York Times has confirmed.`\
 https://nytimes.com/interactive/2025/03/28/us/politics/trump-doge-federal-job-cuts.html
-
-**What we're hearing about the Grizzlies' firing of Taylor Jenkins**\
-`Preseason staff changes set an uneasy tone for the season to come in Memphis, and now there's uncertainty as the playoffs loom.`\
-https://nytimes.com/athletic/6239543/2025/03/28/why-did-taylor-jenkins-get-fired-grizzlies/
-
-**State Auditor to Investigate Sheriff Who Used Inmate Labor on Family Farm**\
-`In Mississippi, a sheriff accused of staffing his family’s commercial chicken farm with inmates defended the practice, saying he always paid them.`\
-https://nytimes.com/2025/03/28/us/state-auditor-to-investigate-mississippi-sheriff.html
 
