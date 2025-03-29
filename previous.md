@@ -1,3 +1,7 @@
+**Trump Order Could Cripple Federal Worker Unions Fighting DOGE Cuts**\
+`The move added to the list of actions by President Trump that use the powers of his office to weaken perceived enemies.`\
+https://nytimes.com/2025/03/29/us/politics/federal-worker-unions-doge.html
+
 **Blackhawks sign Sam Rinzel after Minnesota's exit from NCAA Tournament**\
 `Rinzel has decided to forgo his final two years at the University of Minnesota and sign with the Blackhawks.`\
 https://nytimes.com/athletic/6236295/2025/03/29/sam-rinzel-blackhawks-ncaa-tournament/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/03/29/us/trump-news
 **Tate-Pilled Boys Are a Problem for Schools**\
 `What ‘Adolescence’ gets right about the harassment of female authority figures.`\
 https://nytimes.com/2025/03/29/opinion/adolescence-misogyny-schools.html
-
-**In Mandalay, Desperate Rescue Efforts and Sinking Hopes**\
-`Volunteers gathered to help, some coming in from other cities, to do whatever they could in the city near the epicenter of the powerful quake.`\
-https://nytimes.com/2025/03/29/world/asia/myanmar-earthquake-mandalay.html
 
