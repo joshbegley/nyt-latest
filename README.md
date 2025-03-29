@@ -1,3 +1,7 @@
+**Leaders of Harvard’s Middle Eastern Studies Center Will Leave**\
+`Harvard University has been under pressure by the Trump administration to follow directives related to diversity and combating antisemitism.`\
+https://nytimes.com/2025/03/28/us/leaders-of-harvards-middle-eastern-studies-center-will-leave.html
+
 **Russian tennis star Daria Kasatkina to become permanent resident of Australia**\
 `One of the top tennis players from Russia, a critic of the war in Ukraine, wishes to represent Australia on the international stage.`\
 https://nytimes.com/athletic/6239581/2025/03/28/russian-tennis-daria-kasatkina-war-critic-resident-australia/
@@ -18,8 +22,8 @@ https://nytimes.com/2025/03/28/us/state-auditor-to-investigate-mississippi-sheri
 `MiLaysia Fulwiley scores 23 points off the bench to rescue Gamecocks, but will offensive struggles be a problem moving forward?`\
 https://nytimes.com/athletic/6239597/2025/03/28/south-carolina-maryland-sweet-16-result-score/
 
-**Columbia University’s President Resigns**\
-`Katrina Armstrong said she was stepping down a week after the university agreed to a list of demands from the Trump administration.`\
+**Columbia President Is Replaced as Trump Threatens University’s Funding**\
+`Katrina Armstrong is leaving the post a week after the university agreed to a list of demands from the White House.`\
 https://nytimes.com/2025/03/28/us/columbia-universitys-president-resigns.html
 
 **Appeals Court Allows Trump to Fire Heads of 2 Independent Boards**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/28/us/elections/florida-house-special-election-turno
 **Model Who Says She Dated Andrew Tate Accuses Him of Sexual Assault in Lawsuit**\
 `Brianna Stern of Los Angeles accused Andrew Tate of beating and choking her while they were in a relationship, according to a complaint. Mr. Tate, through his lawyers, denied her allegations.`\
 https://nytimes.com/2025/03/28/world/europe/andrew-tate-sexual-assault-lawsuit.html
-
-**As Democrats Rail Against Musk, Republicans Shrug**\
-`Both Republicans and Democrats think Elon Musk will help them win a key race the Wisconsin Supreme Court next week.`\
-https://nytimes.com/2025/03/28/us/politics/elon-musk-wisconsin-supreme-court.html
 
