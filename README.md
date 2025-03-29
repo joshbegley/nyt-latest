@@ -1,3 +1,23 @@
+**The striker who had not scored for 1,135 days or played in 304 - and a glorious return**\
+`Mariano Diaz has been without a club since leaving Sevilla last summer - but he's aiming to help his country to their first World Cup`\
+https://nytimes.com/athletic/6236527/2025/03/29/mariano-diaz-real-madrid-dominican-republic/
+
+**'I got stronger, I learned how to play men’s football' - Charlie Savage on life after Man United**\
+`The 21-year-old took a gamble leaving Manchester United, but he found experience, a bond, and a potential route back up the pyramid`\
+https://nytimes.com/athletic/6238544/2025/03/29/manchester-united-charlie-savage/
+
+**The Aston Villa player who may hope they get beaten by Preston in the FA Cup**\
+`Kaine Kesler-Hayden will miss the FA Cup tie between Preston and Villa, but his manager Paul Heckingbottom would love for him to be playing`\
+https://nytimes.com/athletic/6234908/2025/03/29/kaine-kesler-hayden-aston-villa-preston-loan/
+
+**Debate: Should Arsenal go all-in on Isak or spread their spending around the squad?**\
+`Jordan Campbell, Art de Roche, James McNicholas and Amy Lawrence debate Arsenal's transfer strategy and whether they should splurge on Isak`\
+https://nytimes.com/athletic/6235507/2025/03/29/arsenal-alexander-isak-debate/
+
+**West Ham's play-off win 20 years on: 'My knee is still in bits, but I would do it all over again'**\
+`We look back at West Ham's 2005 Championship play-off final victory over Preston - including Zamora's brilliance and a Pardew masterstroke`\
+https://nytimes.com/athletic/6226436/2025/03/29/west-ham-2005-play-off-final-preston/
+
 **Inside a UEFA Women's Champions League broadcast production**\
 `The Athletic were invited behind the scenes for TNT Sports' Women's Champions League coverage of Arsenal vs Real Madrid`\
 https://nytimes.com/athletic/6235897/2025/03/29/inside-tnt-uefa-womens-champions-league-broadcast/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6239819/2025/03/29/steph-curry-returns-warriors-3-p
 **UCLA's offense stymies Ole Miss; Bruins advance to Elite Eight**\
 `It marks the Bruins' third overall Elite Eight appearance and first since 2018.`\
 https://nytimes.com/athletic/6239963/2025/03/29/ucla-ole-miss-score-march-madness/
-
-**The New York Times in Print for Saturday, March 29, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/03/29/todays-new-york-times
-
-**Men's March Madness projections 2025: Who will advance to the Final Four?**\
-`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
-https://nytimes.com/athletic/6198047/2025/03/29/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**Blackhawks' Ryan Donato adds another chapter to memorable season with first hat trick**\
-`In a season where the Blackhawks haven't had many things to celebrate, Donato has been arguably their best and most consistent player.`\
-https://nytimes.com/athletic/6239820/2025/03/29/blackhawks-ryan-donato-hat-trick-golden-knights/
-
-**Resilient Blue Jackets come back twice in wild shootout win over Vancouver**\
-`"I almost had a heart attack a couple of times," Dante Fabbro said. Added Mathieu Olivier: "It's that time of year. It's exciting."`\
-https://nytimes.com/athletic/6239872/2025/03/29/blue-jackets-shootout-win-canucks/
-
-**Top-seeded Auburn surges past Michigan for 3rd Elite Eight trip**\
-`Auburn pulled off a big second-half swing to beat Michigan in the Sweet 16 and punch a ticket to the Elite Eight against Michigan State.`\
-https://nytimes.com/athletic/6239916/2025/03/29/auburn-michigan-ncaa-tournament-score-recap/
 
