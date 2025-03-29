@@ -1,3 +1,11 @@
+**TCU tops Notre Dame as Haily Van Lith shines to reach fifth career Elite Eight**\
+`Notre Dame shot just 31 percent from the field in the game and made just 3-of-15 shots from 3.`\
+https://nytimes.com/athletic/6240670/2025/03/29/tcu-notre-dame-womens-tournament-score-hailey-van-lith/
+
+**Yankees begin game with back-to-back-to-back HRs, tie team record with 8**\
+`It was the first time in team history that the Yankees hit four home runs in one inning.`\
+https://nytimes.com/athletic/6240555/2025/03/29/yankees-homeruns-highlights-judge-bellinger-goldschmidt-brewers/
+
 **‘Should I Fire Him?’ Inside Trump’s Deliberations Over the Fate of Michael Waltz**\
 `In public, President Trump has defended his national security adviser. But behind the scenes, he has been casting around for advice.`\
 https://nytimes.com/2025/03/29/us/politics/trump-signal-michael-waltz.html
