@@ -1,3 +1,7 @@
+**G.O.P. Lawmaker Faces Angry Crowds at Town Halls Outside Indianapolis**\
+`Representative Victoria Spartz, a Republican, defended Elon Musk’s DOGE cuts to the federal government, drawing jeers from the crowd.`\
+https://nytimes.com/2025/03/29/us/politics/victoria-spartz-republican-town-hall-doge.html
+
 **Aryna Sabalenka, world No. 1, surges past Jessica Pegula to win Miami Open**\
 `Sabalenka and Pegula have faced each other in three of the past four American tournaments`\
 https://nytimes.com/athletic/6240863/2025/03/29/aryana-sabalenka-jessica-pegula-miami-open-tennis/
