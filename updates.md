@@ -1,3 +1,7 @@
+**Naval Academy Takes Steps to End Diversity Policies in Books and Admissions**\
+`The defense secretary’s office has ordered that some books be removed from circulation in its library, and the academy has ended the use of affirmative action in admissions.`\
+https://nytimes.com/2025/03/28/us/politics/naval-academy-diversity-affirmative-action.html
+
 **Aneesah Morrow dominates, guiding LSU past NC State and into Elite Eight**\
 `The All-American's 30-point, 19-rebound night led the way as the Tigers' offensive versatility proved too much for the Wolfpack.`\
 https://nytimes.com/athletic/6239730/2025/03/28/ncaa-tournament-lsu-nc-state-women-sweet-16/
