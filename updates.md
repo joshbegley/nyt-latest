@@ -1,3 +1,7 @@
+**Johnny Mathis Is Retiring From Touring After Almost 70 Years of Crooning**\
+`Mr. Mathis, 89, a pioneer of romantic ballads, is leaving the stage because of his age and memory problems, his website said.`\
+https://nytimes.com/2025/03/29/us/johnny-mathis-retire-concerts.html
+
 **3 Killed, Including 2 Children, in Brooklyn Car Accident**\
 `Six other people were taken to hospitals after two vehicles collided on Saturday in southern Brooklyn, according to the police.`\
 https://nytimes.com/2025/03/29/nyregion/car-crash-brooklyn-deaths.html

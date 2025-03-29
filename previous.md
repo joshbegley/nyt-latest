@@ -1,3 +1,7 @@
+**Johnny Mathis Is Retiring From Touring After Almost 70 Years of Crooning**\
+`Mr. Mathis, 89, a pioneer of romantic ballads, is leaving the stage because of his age and memory problems, his website said.`\
+https://nytimes.com/2025/03/29/us/johnny-mathis-retire-concerts.html
+
 **3 Killed, Including 2 Children, in Brooklyn Car Accident**\
 `Six other people were taken to hospitals after two vehicles collided on Saturday in southern Brooklyn, according to the police.`\
 https://nytimes.com/2025/03/29/nyregion/car-crash-brooklyn-deaths.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6232397/2025/03/29/eze-goal-contributions-crystal-p
 **Myanmar Earthquake Toll Surpasses 1,600 Dead Amid Search for Survivors**\
 `Aid workers delivered the first shipments of help to Myanmar, but will have to cross a country buckled by the disaster and divided by civil war, arms dealers and drug syndicates.`\
 https://nytimes.com/2025/03/29/world/asia/myanmar-earthquake.html
-
-**The gutting of U.S.A.I.D. is likely to hinder recovery efforts in Myanmar.**\
-`By Tim Balk`\
-https://nytimes.com/live/2025/03/29/world/earthquake-myanmar-thailand/the-gutting-of-usaid-is-likely-to-hinder-recovery-efforts-in-myanmar
 
