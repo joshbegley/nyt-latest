@@ -1,3 +1,8 @@
+**Flyers rookie Matvei Michkov playing and scoring more after coaching change**\
+`No Flyers player has looked more noticeable or dangerous in the two games following John Tortorella's firing than the 20-year-old Michkov.
+`\
+https://nytimes.com/athletic/6240781/2025/03/29/flyers-matvei-michkov-john-tortorella-fired/
+
 **Many at U.S. Institute of Peace Fired as Trump Seeks Nonprofit’s End**\
 `Nearly all of the institute’s U.S.-based staff members were fired and asked to sign a separation agreement, according to notices reviewed by The Times.`\
 https://nytimes.com/2025/03/29/us/politics/institute-of-peace-trump-firings.html
