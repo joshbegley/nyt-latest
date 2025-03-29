@@ -1,3 +1,7 @@
+**University of Minnesota Student Detained by Immigration Agents**\
+`University officials said they had not been informed of the federal agents’ plans and called the situation “deeply concerning.”`\
+https://nytimes.com/2025/03/28/us/university-of-minnesota-student-detained.html
+
 **Leaders of Harvard’s Middle Eastern Studies Center Will Leave**\
 `Harvard University has been under pressure by the Trump administration to follow directives related to diversity and combating antisemitism.`\
 https://nytimes.com/2025/03/28/us/leaders-of-harvards-middle-eastern-studies-center-will-leave.html
