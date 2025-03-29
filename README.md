@@ -1,3 +1,11 @@
+**Trump Administration Live Updates: Top Vaccine Official at F.D.A. Resigns, and Criticizes Kennedy**\
+``\
+https://nytimes.com/live/2025/03/29/us/trump-news
+
+**Tate-Pilled Boys Are a Problem for Schools**\
+`What ‘Adolescence’ gets right about the harassment of female authority figures.`\
+https://nytimes.com/2025/03/29/opinion/adolescence-misogyny-schools.html
+
 **In Mandalay, Desperate Rescue Efforts and Sinking Hopes**\
 `Volunteers gathered to help, some coming in from other cities, to do whatever they could in the city near the epicenter of the powerful quake.`\
 https://nytimes.com/2025/03/29/world/asia/myanmar-earthquake-mandalay.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/29/world/asia/earthquake-devastates-myanmars-cultura
 **Molly Young on Space and Music**\
 `A Booker-winning novel; a rocking essay collection.`\
 https://nytimes.com/2025/03/29/books/read-like-wind-recommendations.html
-
-**What could FSG's interest in Malaga mean for Liverpool?**\
-`Liverpool's owners are pursuing the idea of buying Malaga. Why are the Spanish club attractive and why does FSG like the multi-club model?`\
-https://nytimes.com/athletic/6239323/2025/03/29/liverpool-malaga-multi-club-fsg/
-
-**Brentford captain Norgaard signs new two-year deal**\
-`The 31-year-old's previous terms had been due to expire in the summer.`\
-https://nytimes.com/athletic/6240167/2025/03/29/christian-norgaard-brentford-contract/
 
