@@ -1,3 +1,7 @@
+**Found: British Military Documents, Scattered on the Street**\
+`A man in Northern England said he had stumbled upon hundreds of documents, including threat assessments, armory codes and detailed base patrols. The Ministry of Defense said it was investigating.`\
+https://nytimes.com/2025/03/29/world/europe/military-documents-newcastle.html
+
 **The Pulse: Was TGL Year 1 a success?**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter. `\
 https://nytimes.com/athletic/6239526/2025/03/29/tgl-ratings-march-madness-the-pulse/
