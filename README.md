@@ -1,3 +1,7 @@
+**Liverpool owner FSG exploring deal for Spanish side Malaga**\
+`A delegation visited Malaga's club facilities in February to evaluate a potential acquisition as FSG seeks to develop a multi-club model.`\
+https://nytimes.com/athletic/6239166/2025/03/29/liverpool-owner-fsg-malaga-deal/
+
 **Breaking Through**\
 `Icebreakers are corny, corporate get-to-know-you exercises. But there’s something thrilling in dispensing with small talk.`\
 https://nytimes.com/2025/03/29/briefing/breaking-through.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6238602/2025/03/29/duke-alabama-ncaa-tournament-how
 **Severe Storms and Tornado Threat Loom Over Central and Eastern U.S.**\
 `Forecasters warn of severe weather this weekend from Texas to the East Coast.`\
 https://nytimes.com/2025/03/29/weather/storms-forecast-central-us.html
-
-**UConn vs. Oklahoma: How to watch Paige Bueckers and the Huskies try for Elite Eight**\
-`UConn is favored to get past Oklahoma and into the Elite Eight on Saturday. Paige Bueckers is playing to extend her storied college career.`\
-https://nytimes.com/athletic/6229660/2025/03/29/uconn-oklahoma-womens-ncaa-tournament-sweet-16-how-to-watch/
 
