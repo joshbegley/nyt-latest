@@ -1,3 +1,11 @@
+**Pistons' most impressive win of the season triples last year's total**\
+`Tim Hardaway Jr. had 32 points as Detroit ended a long losing streak against Cleveland.`\
+https://nytimes.com/athletic/6240043/2025/03/29/pistons-cavaliers-nba-win-total/
+
+**In a season of lows, Rangers' loss in Anaheim somehow sunk lower: 3 takeaways**\
+`The Rangers had a 4-2 lead in the third period Friday with under six minutes to go and lost 5-4 in overtime. `\
+https://nytimes.com/athletic/6239934/2025/03/29/rangers-ducks-three-takeaways/
+
 **How do you solve a problem like UCLA's 6-7 Lauren Betts? Ole Miss couldn't. Can anyone?**\
 `Betts scored 31 points with 10 rebounds in one of the tournament's most dominant performances. `\
 https://nytimes.com/athletic/6240076/2025/03/29/ucla-lauren-betts-ole-miss-sweet-16/

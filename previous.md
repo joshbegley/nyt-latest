@@ -1,3 +1,11 @@
+**Pistons' most impressive win of the season triples last year's total**\
+`Tim Hardaway Jr. had 32 points as Detroit ended a long losing streak against Cleveland.`\
+https://nytimes.com/athletic/6240043/2025/03/29/pistons-cavaliers-nba-win-total/
+
+**In a season of lows, Rangers' loss in Anaheim somehow sunk lower: 3 takeaways**\
+`The Rangers had a 4-2 lead in the third period Friday with under six minutes to go and lost 5-4 in overtime. `\
+https://nytimes.com/athletic/6239934/2025/03/29/rangers-ducks-three-takeaways/
+
 **How do you solve a problem like UCLA's 6-7 Lauren Betts? Ole Miss couldn't. Can anyone?**\
 `Betts scored 31 points with 10 rebounds in one of the tournament's most dominant performances. `\
 https://nytimes.com/athletic/6240076/2025/03/29/ucla-lauren-betts-ole-miss-sweet-16/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6234908/2025/03/29/kaine-kesler-hayden-aston-villa-
 **Debate: Should Arsenal go all-in on Isak or spread their spending around the squad?**\
 `Jordan Campbell, Art de Roche, James McNicholas and Amy Lawrence debate Arsenal's transfer strategy and whether they should splurge on Isak`\
 https://nytimes.com/athletic/6235507/2025/03/29/arsenal-alexander-isak-debate/
-
-**West Ham's play-off win 20 years on: 'My knee is still in bits, but I would do it all over again'**\
-`We look back at West Ham's 2005 Championship play-off final victory over Preston - including Zamora's brilliance and a Pardew masterstroke`\
-https://nytimes.com/athletic/6226436/2025/03/29/west-ham-2005-play-off-final-preston/
-
-**Is Farke right? Is there 'no doubt' four home wins will get Leeds promoted?**\
-`Leeds have four home games between now and the end of the season — is Farke right about their potential impact?`\
-https://nytimes.com/athletic/6238530/2025/03/29/leeds-united-promotion-points-total/
 
