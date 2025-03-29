@@ -1,3 +1,7 @@
+**'You just gotta want it more': Loss to Knicks drops Bucks to 0-10 against top three in East**\
+`"They played with more effort than us. And they are a better team than us, simple as that," Bucks star Giannis Antetokounmpo said of Knicks.`\
+https://nytimes.com/athletic/6239103/2025/03/29/bucks-nba-playoff-chase-knicks-eastern-conference/
+
 **Trump Administration Live Updates: Top Vaccine Official at F.D.A. Resigns, and Criticizes Kennedy**\
 ``\
 https://nytimes.com/live/2025/03/29/us/trump-news
