@@ -1,3 +1,15 @@
+**South Carolina overcomes shooting woes, outlasts Terps to reach Elite Eight**\
+`MiLaysia Fulwiley scores 23 points off the bench to rescue Gamecocks, but will offensive struggles be a problem moving forward?`\
+https://nytimes.com/athletic/6239597/2025/03/28/south-carolina-maryland-sweet-16-result-score/
+
+**Columbia University’s President Resigns**\
+`Katrina Armstrong said she was stepping down a week after the university agreed to a list of demands from the Trump administration.`\
+https://nytimes.com/2025/03/28/us/columbia-universitys-president-resigns.html
+
+**Appeals Court Allows Trump to Fire Heads of 2 Independent Boards**\
+`The ruling, in a case seen as a test of the president’s push for expansive executive authority, cripples the operations of the Merit Systems Protection Board and the National Labor Relations Board.`\
+https://nytimes.com/2025/03/28/us/politics/trump-firing-appeal.html
+
 **Appeals Court Allows Trump to Fire Heads of 2 Independent Boards**\
 `The ruling, in a case seen as a test of the president’s push for expansive executive authority, cripples the operations of the Merit Systems Protection Board and the National Labor Relations Board.`\
 https://nytimes.com/live/2025/03/28/us/trump-greenland-vance-news/trump-firing-appeal

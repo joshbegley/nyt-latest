@@ -1,6 +1,14 @@
+**South Carolina overcomes shooting woes, outlasts Terps to reach Elite Eight**\
+`MiLaysia Fulwiley scores 23 points off the bench to rescue Gamecocks, but will offensive struggles be a problem moving forward?`\
+https://nytimes.com/athletic/6239597/2025/03/28/south-carolina-maryland-sweet-16-result-score/
+
+**Columbia University’s President Resigns**\
+`Katrina Armstrong said she was stepping down a week after the university agreed to a list of demands from the Trump administration.`\
+https://nytimes.com/2025/03/28/us/columbia-universitys-president-resigns.html
+
 **Appeals Court Allows Trump to Fire Heads of 2 Independent Boards**\
 `The ruling, in a case seen as a test of the president’s push for expansive executive authority, cripples the operations of the Merit Systems Protection Board and the National Labor Relations Board.`\
-https://nytimes.com/live/2025/03/28/us/trump-greenland-vance-news/trump-firing-appeal
+https://nytimes.com/2025/03/28/us/politics/trump-firing-appeal.html
 
 **Tracking Each Party’s Early Turnout for Tuesday’s Special House Elections**\
 `Voters in two heavily Republican House districts in Florida will decide who to send to Congress. See which party is ahead in turnout so far.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/28/us/politics/rubio-immigration-students-ozturk-chu
 **At Least 3 Killed and Hundreds Rescued in South Texas Flooding, Officials Say**\
 `More than 20 inches of rain — about a half-year’s worth — fell in some areas near the border with Mexico on Thursday and Friday.`\
 https://nytimes.com/2025/03/28/us/texas-flooding-deaths.html
-
-**Norwegian fans to protest after pro clubs' vote to scrap VAR overruled**\
-`Fans will stay out of stadiums for the first 15 minutes of each match before entering en mass, as a protest against maintaining VAR.`\
-https://nytimes.com/athletic/6239497/2025/03/28/norway-football-var-protests-fans/
-
-**Judge Grants Injunction to Prevent Consumer Bureau From Being ‘Dissolved and Dismantled’**\
-`The bureau has been in turmoil as the Trump administration moved to fire hundreds of employees, ordered the rest to stop working and closed offices.`\
-https://nytimes.com/2025/03/28/us/politics/trump-cfpb-ruling.html
 
