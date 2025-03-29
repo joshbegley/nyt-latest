@@ -1,3 +1,11 @@
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/03/29/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
+**Texas holds off Tennessee 67-59 to return to Elite Eight: Takeaways**\
+`As in the January meeting between Texas and Tennessee, neither team pulled away.`\
+https://nytimes.com/athletic/6240886/2025/03/29/texas-beats-tennessee-elite-eight-return/
+
 **The Secret History of the War in Ukraine**\
 `This is the untold story of America’s hidden role in Ukrainian military operations against Russia’s invading armies.`\
 https://nytimes.com/interactive/2025/03/29/world/europe/us-ukraine-military-war-wiesbaden.html
