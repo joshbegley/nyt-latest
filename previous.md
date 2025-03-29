@@ -1,3 +1,23 @@
+**California Governor Newsom Says the Democratic Brand Is ‘Toxic’**\
+`Gov. Gavin Newsom, appearing on “Real Time With Bill Maher,” said his own party talked down to people and was stuck in an echo chamber.`\
+https://nytimes.com/2025/03/29/us/politics/newsom-democrats-toxic.html
+
+**How a Celebrity Nail Artist Spends Her Sundays**\
+`Melissa Samuel, the nail artist behind the brand Finesse Your Claws, has French toast and calls her mother, then heads to the studio to make a custom 3-D set.`\
+https://nytimes.com/2025/03/29/nyregion/melissa-samuel-nail-artist.html
+
+**The High School Dropout Hoping to Build a Legal Weed Empire in New York**\
+`Michael Flynn believes selling cannabis is his destiny. Do his ambitious expansion efforts violate state law?`\
+https://nytimes.com/2025/03/29/nyregion/the-high-school-dropout-hoping-to-build-a-legal-weed-empire-in-new-york.html
+
+**Their Catholic School Went Broke. They Found Another. It Went Broke Too.**\
+`The girls of St. Barnabas had to scramble to find a new high school. All Hallows rescued them, opening its doors to girls for the first time in 115 years. Then, in January, a familiar email arrived.`\
+https://nytimes.com/2025/03/29/nyregion/all-hallows-catholic-school-closing-bronx.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/03/29/crosswords/spelling-bee-forum.html
+
 **In Bangkok, a desperate search for survivors.**\
 `By Muktita Suhartono and Verena Hölzl`\
 https://nytimes.com/live/2025/03/29/world/earthquake-myanmar-thailand/in-bangkok-a-desperate-search-for-survivors
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6240076/2025/03/29/ucla-lauren-betts-ole-miss-sweet
 **Full speed ahead: Cubs confident they can make big gains on basepaths**\
 `Craig Counsell and base coaches Quintin Berry and Jose Javier have been preaching good base running. It's already paying off.`\
 https://nytimes.com/athletic/6239940/2025/03/29/chicago-cubs-base-running-steals-speed/
-
-**Rafael Devers struggling to adjust as full-time DH for Red Sox**\
-`"I know that I haven't done my job and I haven't done what I'm supposed to do," Devers said. "But I know that everything will change."`\
-https://nytimes.com/athletic/6239954/2025/03/29/rafael-devers-full-time-dh-red-sox/
-
-**China has sent a search-and-rescue team to Myanmar.**\
-`By David Pierson`\
-https://nytimes.com/live/2025/03/29/world/earthquake-myanmar-thailand/china-has-sent-a-search-and-rescue-team-to-myanmar
-
-**The striker who had not scored for 1,135 days or played in 304 - and a glorious return**\
-`Mariano Diaz has been without a club since leaving Sevilla last summer - but he's aiming to help his country to their first World Cup`\
-https://nytimes.com/athletic/6236527/2025/03/29/mariano-diaz-real-madrid-dominican-republic/
-
-**'I got stronger, I learned how to play men’s football' - Charlie Savage on life after Man United**\
-`The 21-year-old took a gamble leaving Manchester United, but he found experience, a bond, and a potential route back up the pyramid`\
-https://nytimes.com/athletic/6238544/2025/03/29/manchester-united-charlie-savage/
-
-**The Aston Villa player who may hope they get beaten by Preston in the FA Cup**\
-`Kaine Kesler-Hayden will miss the FA Cup tie between Preston and Villa, but his manager Paul Heckingbottom would love for him to be playing`\
-https://nytimes.com/athletic/6234908/2025/03/29/kaine-kesler-hayden-aston-villa-preston-loan/
 
