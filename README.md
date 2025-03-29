@@ -1,3 +1,19 @@
+**SEC sends four teams to Elite Eight, third league ever to do so**\
+`Since the first round, when six of the 14 SEC teams in the men's tournament were eliminated, the conference is 11-4.`\
+https://nytimes.com/athletic/6239928/2025/03/29/sec-teams-ncaa-tournament-elite-eight/
+
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/03/29/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
+**The FA Cup began in 1871 and has had 44 different winners. Is now the time for a 45th?**\
+`The 2025 quarter-finals involve four clubs who have never lifted the FA Cup. Stuart James joins the search for rare first-time winners`\
+https://nytimes.com/athletic/6238018/2025/03/29/fa-cup-first-time-winner-history-trophy/
+
+**Men's March Madness projections 2025: Who will advance to the Final Four?**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/03/29/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **Here is the latest.**\
 `By Sui-Lee Wee and Qasim Nauman`\
 https://nytimes.com/live/2025/03/29/world/earthquake-myanmar-thailand/here-is-the-latest
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/29/world/europe/italy-wine-trump-tariff-threat.html
 **Quote of the Day: A 65-Year-Old Hitting Coach Makes a Long-Overdue Big League Debut**\
 `Quotation of the Day for Saturday, March 29, 2025.`\
 https://nytimes.com/2025/03/29/pageoneplus/quote-of-the-day-a-65-year-old-hitting-coach-makes-a-long-overdue-big-league-debut.html
-
-**‘A Great Emboldening’: Trump Inspires Wannabe Authoritarians Everywhere**\
-`President Trump has turned a central precept of American diplomacy on its head, embracing fellow leaders who abandon democratic principles.`\
-https://nytimes.com/2025/03/29/world/europe/trump-authoritarians-inspiration.html
-
-**Connections: Sports Edition Coach: Hints for March 29, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6239837/2025/03/29/connections-sports-edition-hints-for-march-29-2025/
-
-**Naval Academy Takes Steps to End Diversity Policies in Books and Admissions**\
-`The defense secretary’s office has ordered that some books be removed from circulation in its library, and the academy has ended the use of affirmative action in admissions.`\
-https://nytimes.com/2025/03/28/us/politics/naval-academy-diversity-affirmative-action.html
-
-**Aneesah Morrow dominates, guiding LSU past NC State and into Elite Eight**\
-`The All-American's 30-point, 19-rebound night led the way as the Tigers' offensive versatility proved too much for the Wolfpack.`\
-https://nytimes.com/athletic/6239730/2025/03/28/ncaa-tournament-lsu-nc-state-women-sweet-16/
 
