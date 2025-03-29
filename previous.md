@@ -1,3 +1,7 @@
+**Using a ‘Tiny Bit of Math’ May Improve Your Heart Health, Study Suggests**\
+`Your average daily heart rate is a useful metric; so is your daily step count. Combining the two might be even better.`\
+https://nytimes.com/2025/03/29/health/heart-health-steps-smartwatch.html
+
 **'You just gotta want it more': Loss to Knicks drops Bucks to 0-10 against top three in East**\
 `"They played with more effort than us. And they are a better team than us, simple as that," Bucks star Giannis Antetokounmpo said of Knicks.`\
 https://nytimes.com/athletic/6239103/2025/03/29/bucks-nba-playoff-chase-knicks-eastern-conference/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/29/business/dealbook/pension-funds-climate-esg.html
 **Fear and loathing in Minnesota: Wolves riding the razor's edge in search of the 6th seed**\
 `Rudy Gobert tapped into the psyche of a team that has been so difficult to understand: "We are our biggest opponent."`\
 https://nytimes.com/athletic/6239644/2025/03/29/timberwolves-nba-playoff-chase-suns/
-
-**Earthquake Devastates Myanmar’s Cultural Sites**\
-`The authorities said that thousands of buildings had been damaged, including about 150 mosques and pagodas.`\
-https://nytimes.com/2025/03/29/world/asia/earthquake-devastates-myanmars-cultural-sites.html
 

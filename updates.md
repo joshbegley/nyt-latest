@@ -1,3 +1,7 @@
+**Using a ‘Tiny Bit of Math’ May Improve Your Heart Health, Study Suggests**\
+`Your average daily heart rate is a useful metric; so is your daily step count. Combining the two might be even better.`\
+https://nytimes.com/2025/03/29/health/heart-health-steps-smartwatch.html
+
 **'You just gotta want it more': Loss to Knicks drops Bucks to 0-10 against top three in East**\
 `"They played with more effort than us. And they are a better team than us, simple as that," Bucks star Giannis Antetokounmpo said of Knicks.`\
 https://nytimes.com/athletic/6239103/2025/03/29/bucks-nba-playoff-chase-knicks-eastern-conference/
