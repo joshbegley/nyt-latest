@@ -1,3 +1,7 @@
+**White House Correspondents Cancel Comedian Booked for Annual Dinner**\
+`The comedian Amber Ruffin had been slated to perform at the event in April. The correspondents’ association said it wanted to avoid focusing “on the politics of division.”`\
+https://nytimes.com/2025/03/29/us/politics/white-house-correspondents-dinner-amber-ruffin.html
+
 **Working Families Party Endorses 4 Candidates in Strategy to Beat Cuomo**\
 `The progressive group backed Brad Lander, Zohran Mamdani, Adrienne Adams and Zellnor Myrie for mayor as part of a broader effort to defeat the former governor, who is leading in the polls.`\
 https://nytimes.com/2025/03/29/nyregion/wfp-endorsement-mayor-nyc.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/03/29/world/europe/greenland-dog-sled-race-vance-trump.
 **Johnny Mathis Is Retiring From Touring After Almost 70 Years of Crooning**\
 `Mr. Mathis, 89, a pioneer of romantic ballads, is leaving the stage because of his age and memory problems, his website said.`\
 https://nytimes.com/2025/03/29/us/johnny-mathis-retire-concerts.html
-
-**3 Killed, Including 2 Children, in Brooklyn Car Accident**\
-`Six other people were taken to hospitals after two vehicles collided on Saturday in southern Brooklyn, according to the police.`\
-https://nytimes.com/2025/03/29/nyregion/car-crash-brooklyn-deaths.html
 
