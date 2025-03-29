@@ -1,3 +1,20 @@
+**Earthquake Devastates Myanmar’s Cultural Sites**\
+`The authorities said that thousands of buildings had been damaged, including about 150 mosques and pagodas.`\
+https://nytimes.com/2025/03/29/world/asia/earthquake-devastates-myanmars-cultural-sites.html
+
+**Molly Young on Space and Music**\
+`A Booker-winning novel; a rocking essay collection.`\
+https://nytimes.com/2025/03/29/books/read-like-wind-recommendations.html
+
+**What could FSG's interest in Malaga mean for Liverpool?**\
+`Liverpool's owners are pursuing the idea of buying Malaga. Why are the Spanish club attractive and why does FSG like the multi-club model?`\
+https://nytimes.com/athletic/6239323/2025/03/29/liverpool-malaga-multi-club-fsg/
+
+**NHL bold predictions: Which preseason picks we got right and wrong**\
+`Which preseason bold predictions get a pass, fail or incomplete? We look back at all 32 as the season winds down.
+`\
+https://nytimes.com/athletic/6239219/2025/03/29/nhl-season-predictions-playoffs/
+
 **NHL bold predictions: Which preseason picks we got right and wrong**\
 `Which preseason bold predictions get a pass, fail or incomplete? We look back at all 32 as the season winds down.
 `\

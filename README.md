@@ -1,3 +1,15 @@
+**What does John Tavares' hot shooting mean for his future with the Leafs?**\
+`Tavares is riding the best shooting percentage of his entire career this season, but let's dive into some of the other factors at play.`\
+https://nytimes.com/athletic/6235690/2025/03/29/maple-leafs-john-tavares-shooting/
+
+**Pension Funds Push Forward on Climate Goals Despite Backlash**\
+`At a time of resistance to environmental, social and governance goals, pension funds have become a bulwark against efforts to sideline climate risks.`\
+https://nytimes.com/2025/03/29/business/dealbook/pension-funds-climate-esg.html
+
+**Fear and loathing in Minnesota: Wolves riding the razor's edge in search of the 6th seed**\
+`Rudy Gobert tapped into the psyche of a team that has been so difficult to understand: "We are our biggest opponent."`\
+https://nytimes.com/athletic/6239644/2025/03/29/timberwolves-nba-playoff-chase-suns/
+
 **Earthquake Devastates Myanmar’s Cultural Sites**\
 `The authorities said that thousands of buildings had been damaged, including about 150 mosques and pagodas.`\
 https://nytimes.com/2025/03/29/world/asia/earthquake-devastates-myanmars-cultural-sites.html
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/6238605/2025/03/29/washington-nationals-capitals-wi
 `Which preseason bold predictions get a pass, fail or incomplete? We look back at all 32 as the season winds down.
 `\
 https://nytimes.com/athletic/6239219/2025/03/29/nhl-season-predictions-playoffs/
-
-**Eight potential candidates for the Flyers' coaching vacancy**\
-`Would a reunion with Rick Tocchet make sense? How about the University of Denver's David Carle?`\
-https://nytimes.com/athletic/6239110/2025/03/29/philadelphia-flyers-coach-candidates/
-
-**Actually, A.I. Is Pretty Mid**\
-`A.I. is just what we need in the post-fact era: less research and more predicting what we want to hear.`\
-https://nytimes.com/2025/03/29/opinion/ai-tech-innovation.html
-
-**The Democrats Are in Denial About 2024**\
-`Party leaders have embraced convenient excuses. This perilous political moment requires more self-reflection and honesty.`\
-https://nytimes.com/2025/03/29/opinion/democrats-strategy-2024.html
 
