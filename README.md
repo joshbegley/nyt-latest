@@ -1,3 +1,11 @@
+**Megyn Kelly Is Embracing Her Bias and Rejecting the ‘Old Rules’**\
+`The former Fox News and current YouTube host on her professional evolution, conservative media and why she endorsed Trump.`\
+https://nytimes.com/2025/03/29/magazine/megyn-kelly-interview.html
+
+**Megyn Kelly Is Embracing Her Bias and Rejecting the ‘Old Rules’**\
+`The former Fox News and current YouTube host on her professional evolution, conservative media and why she endorsed Trump.`\
+https://nytimes.com/video/podcasts/100000010076931/megyn-kelly-is-embracing-her-bias-and-rejecting-the-old-rules.html
+
 **Trump’s Not-So-Subtle Purpose in Fighting Big Law Firms**\
 `The president has attacked law firms for “frivolous” litigation. But his actions could undermine the basic right of Americans to sue their government.`\
 https://nytimes.com/2025/03/29/business/trump-law-firms-lawsuits.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/29/business/us-airports-backup-power-heathrow.html
 **5 Voters Weigh In on the Signal Leak**\
 `What did they think about the national security breach, in which Trump administration officials discussed attack plans in Yemen on a commercial messaging app?`\
 https://nytimes.com/2025/03/29/us/trump-signal-leak-war-plans.html
-
-**What’s More Powerful: Elon Musk’s Millions, or Liberal Anger at Him?**\
-`Voters will soon provide an answer in Wisconsin, where the billionaire has made himself the main character in a consequential court race that is set to shatter spending records.`\
-https://nytimes.com/2025/03/29/us/politics/elon-musk-trump-wisconsin-supreme-court-election.html
-
-**Why Is ICE Detaining College Students?**\
-`The Trump administration is trying to deport pro-Palestinian students who are legally in the United States, citing national security.`\
-https://nytimes.com/video/us/politics/100000010076813/why-is-ice-detaining-college-students.html
 
