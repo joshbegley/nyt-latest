@@ -1,3 +1,8 @@
+**NHL bold predictions: Which preseason picks we got right and wrong**\
+`Which preseason bold predictions get a pass, fail or incomplete? We look back at all 32 as the season winds down.
+`\
+https://nytimes.com/athletic/6239219/2025/03/29/nhl-season-predictions-playoffs/
+
 **Earthquake Devastates Myanmar’s Cultural Sites**\
 `The authorities said that thousands of buildings had been damaged, including about 150 mosques and pagodas.`\
 https://nytimes.com/2025/03/29/world/asia/earthquake-devastates-myanmars-cultural-sites.html
