@@ -1,3 +1,11 @@
+**Gai Gherardi, Who Made Eyeglass Frames Fashion Statements, Dies at 78**\
+`Her L.A. Eyeworks boutique, which she opened with a friend and fellow optician, was a pioneer in turning ordinary frames into bold, artistic accessories.`\
+https://nytimes.com/2025/03/29/business/gai-gherardi-dead.html
+
+**The Rapper Sean Kingston and His Mother Are Convicted in $1 Million Fraud Scheme**\
+`Mr. Kingston, who is best known for his 2007 hit single “Beautiful Girls,” and his mother were charged with defrauding sellers of high-end vehicles, jewelry and other goods, prosecutors said.`\
+https://nytimes.com/2025/03/29/us/sean-kingston-mother-fraud-guilty.html
+
 **Earthquake Damages Myanmar’s Religious and Heritage Sites**\
 `The deadly quake in Myanmar damaged over 3,000 buildings, including about 150 mosques and pagodas, in the government’s latest count on Saturday morning.`\
 https://nytimes.com/video/world/asia/100000010080759/myanmar-heritage-sites-damage-earthquake.html

@@ -1,3 +1,11 @@
+**Gai Gherardi, Who Made Eyeglass Frames Fashion Statements, Dies at 78**\
+`Her L.A. Eyeworks boutique, which she opened with a friend and fellow optician, was a pioneer in turning ordinary frames into bold, artistic accessories.`\
+https://nytimes.com/2025/03/29/business/gai-gherardi-dead.html
+
+**The Rapper Sean Kingston and His Mother Are Convicted in $1 Million Fraud Scheme**\
+`Mr. Kingston, who is best known for his 2007 hit single “Beautiful Girls,” and his mother were charged with defrauding sellers of high-end vehicles, jewelry and other goods, prosecutors said.`\
+https://nytimes.com/2025/03/29/us/sean-kingston-mother-fraud-guilty.html
+
 **Earthquake Damages Myanmar’s Religious and Heritage Sites**\
 `The deadly quake in Myanmar damaged over 3,000 buildings, including about 150 mosques and pagodas, in the government’s latest count on Saturday morning.`\
 https://nytimes.com/video/world/asia/100000010080759/myanmar-heritage-sites-damage-earthquake.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/29/world/europe/military-documents-newcastle.html
 **The Pulse: Was TGL Year 1 a success?**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter. `\
 https://nytimes.com/athletic/6239526/2025/03/29/tgl-ratings-march-madness-the-pulse/
-
-**Mookie Betts, still regaining weight after stomach virus, slugs walk-off HR: 'He's super-human'**\
-`Betts has only regained about half the weight he lost, but hit two home runs in Friday's win.`\
-https://nytimes.com/athletic/6240096/2025/03/29/mookie-betts-stomach-virus-walk-off-hr-dodgers/
-
-**The Many Overlapping Scandals of the Pete Hegseth Group Chat**\
-`They may be even more serious than the one we’ve been focused on.`\
-https://nytimes.com/2025/03/29/opinion/group-chat-security-signal-president.html
 
