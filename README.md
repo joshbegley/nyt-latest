@@ -1,3 +1,15 @@
+**Duke vs. Alabama: How to watch Cooper Flagg and Mark Sears square off for Final Four bid**\
+`It's a battle of blue blood vs. rising tide in Saturday's second Elite Eight game. Who will win?`\
+https://nytimes.com/athletic/6238602/2025/03/29/duke-alabama-ncaa-tournament-how-to-watch/
+
+**Severe Storms and Tornado Threat Loom Over Central and Eastern U.S.**\
+`Forecasters warn of severe weather this weekend from Texas to the East Coast.`\
+https://nytimes.com/2025/03/29/weather/storms-forecast-central-us.html
+
+**UConn vs. Oklahoma: How to watch Paige Bueckers and the Huskies try for Elite Eight**\
+`UConn is favored to get past Oklahoma and into the Elite Eight on Saturday. Paige Bueckers is playing to extend her storied college career.`\
+https://nytimes.com/athletic/6229660/2025/03/29/uconn-oklahoma-womens-ncaa-tournament-sweet-16-how-to-watch/
+
 **Megyn Kelly Is Embracing Her Bias and Rejecting the ‘Old Rules’**\
 `The former Fox News and current YouTube host on her professional evolution, conservative media and why she endorsed Trump.`\
 https://nytimes.com/2025/03/29/magazine/megyn-kelly-interview.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/29/world/middleeast/turkey-opposition.html
 **Journey From Biden Loyalist to ‘Full MAGA’ Ends in a Trump Pardon**\
 `Devon Archer used his knowledge about Hunter Biden’s foreign business dealings to gain favor from Republicans and appeal for clemency.`\
 https://nytimes.com/2025/03/29/us/politics/journey-from-biden-loyalist-to-full-maga-ends-in-a-trump-pardon.html
-
-**Where Was Each Member of the Signal Group Chat?**\
-`Officials were crisscrossing the world as they sent and received sensitive messages on Signal about an imminent U.S. attack on Yemen.`\
-https://nytimes.com/interactive/2025/03/29/us/signal-group-chat-locations.html
-
-**How Pittsburgh’s Airport Makes Power to Avoid Heathrow-Like Outages**\
-`Pittsburgh International Airport avoids power outages and reduces its energy costs by generating electricity on site using natural gas and solar panels.`\
-https://nytimes.com/2025/03/29/business/us-airports-backup-power-heathrow.html
-
-**5 Voters Weigh In on the Signal Leak**\
-`What did they think about the national security breach, in which Trump administration officials discussed attack plans in Yemen on a commercial messaging app?`\
-https://nytimes.com/2025/03/29/us/trump-signal-leak-war-plans.html
 
