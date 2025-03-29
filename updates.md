@@ -1,3 +1,7 @@
+**Bills, CB Christian Benford agree to 4-year, $76 million extension: Sources**\
+`The deal, when signed, will run through the 2029 season and at $19 million per year.`\
+https://nytimes.com/athletic/6240620/2025/03/29/bills-cb-christian-benford-agree-extension/
+
 **Eze isn't a perfect fit for Glasner's system, but his unique talent is crucial to Crystal Palace**\
 `Eberechi Eze made the difference against Fulham in the FA Cup quarter-final — even if he doesn't quite fit Glasner's system at Palace`\
 https://nytimes.com/athletic/6232397/2025/03/29/eze-goal-contributions-crystal-palace-fulham/

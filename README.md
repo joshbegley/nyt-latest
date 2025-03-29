@@ -1,3 +1,7 @@
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/03/29/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **Bills, CB Christian Benford agree to 4-year, $76 million extension: Sources**\
 `The deal, when signed, will run through the 2029 season and at $19 million per year.`\
 https://nytimes.com/athletic/6240620/2025/03/29/bills-cb-christian-benford-agree-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6240523/2025/03/29/rj-luis-jr-transfer-portal-nba/
 **Bad beat of the year? Why Ole Miss' last-second 3 was significant to some**\
 `Matthew Murrell's 3-pointer at the buzzer was a boon for anyone wagering on Ole Miss against the spread.`\
 https://nytimes.com/athletic/6240413/2025/03/29/bad-beat-michigan-state-ole-miss-march-madness/
-
-**Who Is Claire Shipman, the New Interim President of Columbia?**\
-`The former television journalist and co-chair of the university’s board of trustees takes the helm at a time of significant peril for the institution.`\
-https://nytimes.com/2025/03/29/nyregion/who-is-claire-shipman-columbia-president.html
 
