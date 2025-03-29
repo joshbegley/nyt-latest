@@ -1,3 +1,7 @@
+**TCU tops Notre Dame as Hailey Van Lith shines to reach fifth career Elite Eight**\
+`Notre Dame shot just 31 percent from the field in the game and made just 3-of-15 shots from 3.`\
+https://nytimes.com/athletic/6240670/2025/03/29/tcu-notre-dame-womens-tournament-score-hailey-van-lith/
+
 **TCU tops Notre Dame as Haily Van Lith shines to reach fifth career Elite Eight**\
 `Notre Dame shot just 31 percent from the field in the game and made just 3-of-15 shots from 3.`\
 https://nytimes.com/athletic/6240670/2025/03/29/tcu-notre-dame-womens-tournament-score-hailey-van-lith/
