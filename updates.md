@@ -1,3 +1,7 @@
+**Earthquake Damages Myanmar’s Religious and Heritage Sites**\
+`The deadly quake in Myanmar damaged over 3,000 buildings, including about 150 mosques and pagodas, in the government’s latest count on Saturday morning.`\
+https://nytimes.com/video/world/asia/100000010080759/myanmar-heritage-sites-damage-earthquake.html
+
 **In Bangkok, Grim Vigils as People Seek Word of Relatives at Collapsed Building**\
 `The collapse of a 30-story building under construction was “not normal,” an engineering expert said. It was one of the biggest projects ever done by a Chinese state-owned company.`\
 https://nytimes.com/2025/03/29/world/asia/bangkok-building-collapse.html
