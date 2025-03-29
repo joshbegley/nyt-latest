@@ -1,3 +1,7 @@
+**China has sent a search-and-rescue team to Myanmar.**\
+`By David Pierson`\
+https://nytimes.com/live/2025/03/29/world/earthquake-myanmar-thailand/china-has-sent-a-search-and-rescue-team-to-myanmar
+
 **The striker who had not scored for 1,135 days or played in 304 - and a glorious return**\
 `Mariano Diaz has been without a club since leaving Sevilla last summer - but he's aiming to help his country to their first World Cup`\
 https://nytimes.com/athletic/6236527/2025/03/29/mariano-diaz-real-madrid-dominican-republic/
@@ -18,6 +22,10 @@ https://nytimes.com/athletic/6235507/2025/03/29/arsenal-alexander-isak-debate/
 `We look back at West Ham's 2005 Championship play-off final victory over Preston - including Zamora's brilliance and a Pardew masterstroke`\
 https://nytimes.com/athletic/6226436/2025/03/29/west-ham-2005-play-off-final-preston/
 
+**Is Farke right? Is there 'no doubt' four home wins will get Leeds promoted?**\
+`Leeds have four home games between now and the end of the season — is Farke right about their potential impact?`\
+https://nytimes.com/athletic/6238530/2025/03/29/leeds-united-promotion-points-total/
+
 **Inside a UEFA Women's Champions League broadcast production**\
 `The Athletic were invited behind the scenes for TNT Sports' Women's Champions League coverage of Arsenal vs Real Madrid`\
 https://nytimes.com/athletic/6235897/2025/03/29/inside-tnt-uefa-womens-champions-league-broadcast/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6239993/2025/03/29/houston-purdue-milos-uzan-march-
 **Biting ban, FA racism charge, top scorer - Osmajic's eventful and controversial season**\
 `The striker could return from injury to play in the FA Cup quarter-finals. It’s the latest chapter in a season full of controversy`\
 https://nytimes.com/athletic/6236225/2025/03/29/milutin-osmajic-preston-fa-cup/
-
-**Steph Curry returns, Quinten Post shoots as Warriors cruise past Pelicans: 5 observations**\
-`Curry is wearing extra padding for tailbone protection and said he can still feel the soreness, but he can play.`\
-https://nytimes.com/athletic/6239819/2025/03/29/steph-curry-returns-warriors-3-pointers/
-
-**UCLA's offense stymies Ole Miss; Bruins advance to Elite Eight**\
-`It marks the Bruins' third overall Elite Eight appearance and first since 2018.`\
-https://nytimes.com/athletic/6239963/2025/03/29/ucla-ole-miss-score-march-madness/
 

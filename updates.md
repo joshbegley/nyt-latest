@@ -1,3 +1,11 @@
+**China has sent a search-and-rescue team to Myanmar.**\
+`By David Pierson`\
+https://nytimes.com/live/2025/03/29/world/earthquake-myanmar-thailand/china-has-sent-a-search-and-rescue-team-to-myanmar
+
+**Is Farke right? Is there 'no doubt' four home wins will get Leeds promoted?**\
+`Leeds have four home games between now and the end of the season — is Farke right about their potential impact?`\
+https://nytimes.com/athletic/6238530/2025/03/29/leeds-united-promotion-points-total/
+
 **The striker who had not scored for 1,135 days or played in 304 - and a glorious return**\
 `Mariano Diaz has been without a club since leaving Sevilla last summer - but he's aiming to help his country to their first World Cup`\
 https://nytimes.com/athletic/6236527/2025/03/29/mariano-diaz-real-madrid-dominican-republic/
