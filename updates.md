@@ -1,3 +1,11 @@
+**How Kevin Lankinen, Canucks blew a wild, roller-coaster game: 3 takeaways**\
+`Vancouver blew a 3-0 lead and left an extra point on the table as it fell 7-6 in a shootout loss to Columbus.`\
+https://nytimes.com/athletic/6239615/2025/03/28/canucks-blue-jackets-kevin-lankinen/
+
+**Rays win an Opening Day unlike any other with a walk-off homer in their new outdoor home**\
+`This was drama. This was baseball. And for a team whose dome is rooflessly indisposed at the moment, this was even better. This was home. `\
+https://nytimes.com/athletic/6239738/2025/03/28/rays-opening-day-kameron-misner-walk-off-homer/
+
 **Is South Carolina playing with fire in bid to repeat as champion?**\
 `Despite its Sweet 16 loss, Maryland may have provided a blueprint for how to beat the Gamecocks.`\
 https://nytimes.com/athletic/6239754/2025/03/28/south-carolina-maryland-sweet-16-playing-with-fire/

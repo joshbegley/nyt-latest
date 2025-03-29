@@ -1,3 +1,11 @@
+**How Kevin Lankinen, Canucks blew a wild, roller-coaster game: 3 takeaways**\
+`Vancouver blew a 3-0 lead and left an extra point on the table as it fell 7-6 in a shootout loss to Columbus.`\
+https://nytimes.com/athletic/6239615/2025/03/28/canucks-blue-jackets-kevin-lankinen/
+
+**Rays win an Opening Day unlike any other with a walk-off homer in their new outdoor home**\
+`This was drama. This was baseball. And for a team whose dome is rooflessly indisposed at the moment, this was even better. This was home. `\
+https://nytimes.com/athletic/6239738/2025/03/28/rays-opening-day-kameron-misner-walk-off-homer/
+
 **American Alysa Liu wins gold at figure skating worlds one year after return to the sport**\
 `Alysa Liu, who walked away from figure skating at age 16 and returned last year, won the 2025 world championship on Friday.`\
 https://nytimes.com/athletic/6239743/2025/03/28/alysa-liu-world-championship-gold-medal-olympics/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6198041/2025/03/28/womens-march-madness-projections
 **Appeals Court Allows Musk to Keep Pushing Steep Cuts at U.S.A.I.D.**\
 `The appeals court panel said that whatever influence Elon Musk and DOGE had, it was ultimately agency officials who had signed off on the various moves to gut the agency.`\
 https://nytimes.com/2025/03/28/us/politics/trump-musk-usaid.html
-
-**Men's March Madness projections 2025: Who will advance to the Final Four?**\
-`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
-https://nytimes.com/athletic/6198047/2025/03/28/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**Corrections: March 29, 2025**\
-`Corrections that appeared in print on Saturday, March 29, 2025.`\
-https://nytimes.com/2025/03/28/pageoneplus/corrections-march-29-2025.html
 
