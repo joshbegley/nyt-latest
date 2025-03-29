@@ -1,3 +1,7 @@
+**University of Minnesota Student Detained by Immigration Agents**\
+`University officials said they had not been informed of the federal agents’ plans and called the situation “deeply concerning.”`\
+https://nytimes.com/2025/03/28/us/university-of-minnesota-student-detained.html
+
 **Leaders of Harvard’s Middle Eastern Studies Center Will Leave**\
 `Harvard University has been under pressure by the Trump administration to follow directives related to diversity and combating antisemitism.`\
 https://nytimes.com/2025/03/28/us/leaders-of-harvards-middle-eastern-studies-center-will-leave.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/28/us/politics/trump-firing-appeal.html
 **Tracking Each Party’s Early Turnout for Tuesday’s Special House Elections**\
 `Voters in two heavily Republican House districts in Florida will decide who to send to Congress. See which party is ahead in turnout so far.`\
 https://nytimes.com/2025/03/28/us/elections/florida-house-special-election-turnout.html
-
-**Model Who Says She Dated Andrew Tate Accuses Him of Sexual Assault in Lawsuit**\
-`Brianna Stern of Los Angeles accused Andrew Tate of beating and choking her while they were in a relationship, according to a complaint. Mr. Tate, through his lawyers, denied her allegations.`\
-https://nytimes.com/2025/03/28/world/europe/andrew-tate-sexual-assault-lawsuit.html
 
