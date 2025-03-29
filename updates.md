@@ -1,3 +1,11 @@
+**In Bangkok, Grim Vigils as People Seek Word of Relatives at Collapsed Building**\
+`The collapse of a 30-story building under construction was “not normal,” an engineering expert said. It was one of the biggest projects ever done by a Chinese state-owned company.`\
+https://nytimes.com/2025/03/29/world/asia/bangkok-building-collapse.html
+
+**Myanmar’s junta resumed attacks on rebel-held areas soon after the devastating earthquake.**\
+`By Hannah Beech`\
+https://nytimes.com/live/2025/03/29/world/earthquake-myanmar-thailand/myanmars-junta-resumed-attacks-on-rebel-held-areas-soon-after-the-devastating-earthquake
+
 **The first international aid has arrived in Myanmar, but getting it where it needs to go will be hard.**\
 `Allies and detractors have responded to the military government’s pleas for aid, but delivery could be hampered by physical and diplomatic obstacles.`\
 https://nytimes.com/live/2025/03/29/world/earthquake-myanmar-thailand/the-first-international-aid-has-arrived-in-myanmar-but-getting-it-where-it-needs-to-go-will-be-hard
