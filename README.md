@@ -1,3 +1,7 @@
+**In Bangkok, a desperate search for survivors.**\
+`By Muktita Suhartono and Verena Hölzl`\
+https://nytimes.com/live/2025/03/29/world/earthquake-myanmar-thailand/in-bangkok-a-desperate-search-for-survivors
+
 **Pistons' most impressive win of the season triples last year's total**\
 `Tim Hardaway Jr. had 32 points as Detroit ended a long losing streak against Cleveland.`\
 https://nytimes.com/athletic/6240043/2025/03/29/pistons-cavaliers-nba-win-total/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6238544/2025/03/29/manchester-united-charlie-savage
 **The Aston Villa player who may hope they get beaten by Preston in the FA Cup**\
 `Kaine Kesler-Hayden will miss the FA Cup tie between Preston and Villa, but his manager Paul Heckingbottom would love for him to be playing`\
 https://nytimes.com/athletic/6234908/2025/03/29/kaine-kesler-hayden-aston-villa-preston-loan/
-
-**Debate: Should Arsenal go all-in on Isak or spread their spending around the squad?**\
-`Jordan Campbell, Art de Roche, James McNicholas and Amy Lawrence debate Arsenal's transfer strategy and whether they should splurge on Isak`\
-https://nytimes.com/athletic/6235507/2025/03/29/arsenal-alexander-isak-debate/
 
