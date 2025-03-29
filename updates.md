@@ -1,3 +1,7 @@
+**How do you solve a problem like UCLA's 6-7 Lauren Betts? Ole Miss couldn't. Can anyone?**\
+`Betts scored 31 points with 10 rebounds in one of the tournament's most dominant performances. `\
+https://nytimes.com/athletic/6240076/2025/03/29/ucla-lauren-betts-ole-miss-sweet-16/
+
 **Full speed ahead: Cubs confident they can make big gains on basepaths**\
 `Craig Counsell and base coaches Quintin Berry and Jose Javier have been preaching good base running. It's already paying off.`\
 https://nytimes.com/athletic/6239940/2025/03/29/chicago-cubs-base-running-steals-speed/
