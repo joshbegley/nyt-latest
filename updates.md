@@ -1,3 +1,7 @@
+**Aneesah Morrow dominates, guiding LSU past NC State and into Elite Eight**\
+`The All-American's 30-point, 19-rebound night led the way as the Tigers' offensive versatility proved too much for the Wolfpack.`\
+https://nytimes.com/athletic/6239730/2025/03/28/ncaa-tournament-lsu-nc-state-women-sweet-16/
+
 **How Kevin Lankinen, Canucks blew a wild, roller-coaster game: 3 takeaways**\
 `Vancouver blew a 3-0 lead and left an extra point on the table as it fell 7-6 in a shootout loss to Columbus.`\
 https://nytimes.com/athletic/6239615/2025/03/28/canucks-blue-jackets-kevin-lankinen/
