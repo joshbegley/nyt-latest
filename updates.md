@@ -1,3 +1,11 @@
+**Appeals Court Allows Musk to Keep Pushing Steep Cuts at U.S.A.I.D.**\
+`The appeals court panel said that whatever influence Elon Musk and DOGE had, it was ultimately agency officials who had signed off on the various moves to gut the agency.`\
+https://nytimes.com/2025/03/28/us/politics/trump-musk-usaid.html
+
+**Men's March Madness projections 2025: Which Sweet 16 teams have the best odds to advance?**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/03/28/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **Corrections: March 29, 2025**\
 `Corrections that appeared in print on Saturday, March 29, 2025.`\
 https://nytimes.com/2025/03/28/pageoneplus/corrections-march-29-2025.html
