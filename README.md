@@ -1,3 +1,11 @@
+**Bad beat of the year? Why Ole Miss' last-second 3 was significant to some**\
+`Matthew Murrell's 3-pointer at the buzzer was a boon for anyone wagering on Ole Miss against the spread.`\
+https://nytimes.com/athletic/6240413/2025/03/29/bad-beat-michigan-state-ole-miss-march-madness/
+
+**Who Is Claire Shipman, the New Interim President of Columbia?**\
+`The former television journalist and co-chair of the university’s board of trustees takes the helm at a time of significant peril for the institution.`\
+https://nytimes.com/2025/03/29/nyregion/who-is-claire-shipman-columbia-president.html
+
 **Every 2025 NFL Draft hat and the meaning behind their pins**\
 `The new NFL Draft hats come with a new accessory, but some have more obscure references than others`\
 https://nytimes.com/athletic/6239227/2025/03/29/2025-nfl-draft-hats-pins/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/03/29/world/earthquake-myanmar-thailand/the-first-
 **Women's March Madness projections 2025: Does UConn have the advantage?**\
 `What's your team's chance of winning? Find out here. `\
 https://nytimes.com/athletic/6198041/2025/03/29/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**Silva: Wharton deserved 'clear' second yellow in Fulham's FA Cup loss**\
-`Wharton went unpunished after appearing to kick out and catch Rodrigo Muniz in the first half.`\
-https://nytimes.com/athletic/6240452/2025/03/29/adam-wharton-yellow-card-crystal-palace-fulham/
-
-**Found: British Military Documents, Scattered on the Street**\
-`A man in Northern England said he had stumbled upon hundreds of documents, including threat assessments, armory codes and detailed base patrols. The Ministry of Defense said it was investigating.`\
-https://nytimes.com/2025/03/29/world/europe/military-documents-newcastle.html
 

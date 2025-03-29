@@ -1,3 +1,7 @@
+**Every 2025 NFL Draft hat and the meaning behind their pins**\
+`The new NFL Draft hats come with a new accessory, but some have more obscure references than others`\
+https://nytimes.com/athletic/6239227/2025/03/29/2025-nfl-draft-hats-pins/
+
 **Gai Gherardi, Who Made Eyeglass Frames Fashion Statements, Dies at 78**\
 `Her L.A. Eyeworks boutique, which she opened with a friend and fellow optician, was a pioneer in turning ordinary frames into bold, artistic accessories.`\
 https://nytimes.com/2025/03/29/business/gai-gherardi-dead.html
