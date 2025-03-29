@@ -1,3 +1,7 @@
+**USC vs. Kansas State: How to watch the Trojans go all out for injured JuJu Watkins**\
+`USC continues its title quest without JuJu Watkins on Saturday. A win against Kansas State would power it into the Elite Eight.`\
+https://nytimes.com/athletic/6229699/2025/03/29/usc-kansas-state-womens-ncaa-tournament-how-to-watch/
+
 **Men's NCAA Tournament Sweet 16 roundup: Auburn rules late, Houston survives**\
 `Houston, Michigan State and Auburn came up clutch, while Tennessee was a bully from the start in Sweet 16 action Friday night.`\
 https://nytimes.com/athletic/6239535/2025/03/29/mens-ncaa-tournament-sweet-16-roundup-auburn-houston-purdue-tennessee/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6229660/2025/03/29/uconn-oklahoma-womens-ncaa-tourn
 **Megyn Kelly Is Embracing Her Bias and Rejecting the ‘Old Rules’**\
 `The former Fox News and current YouTube host on her professional evolution, conservative media and why she endorsed Trump.`\
 https://nytimes.com/2025/03/29/magazine/megyn-kelly-interview.html
-
-**Megyn Kelly Is Embracing Her Bias and Rejecting the ‘Old Rules’**\
-`The former Fox News and current YouTube host on her professional evolution, conservative media and why she endorsed Trump.`\
-https://nytimes.com/video/podcasts/100000010076931/megyn-kelly-is-embracing-her-bias-and-rejecting-the-old-rules.html
 

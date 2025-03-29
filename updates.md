@@ -1,3 +1,7 @@
+**USC vs. Kansas State: How to watch the Trojans go all out for injured JuJu Watkins**\
+`USC continues its title quest without JuJu Watkins on Saturday. A win against Kansas State would power it into the Elite Eight.`\
+https://nytimes.com/athletic/6229699/2025/03/29/usc-kansas-state-womens-ncaa-tournament-how-to-watch/
+
 **Men's NCAA Tournament Sweet 16 roundup: Auburn rules late, Houston survives**\
 `Houston, Michigan State and Auburn came up clutch, while Tennessee was a bully from the start in Sweet 16 action Friday night.`\
 https://nytimes.com/athletic/6239535/2025/03/29/mens-ncaa-tournament-sweet-16-roundup-auburn-houston-purdue-tennessee/
