@@ -1,3 +1,15 @@
+**Yankees blast 3 homers on first 3 pitches off Brewers’ Nestor Cortes Jr.**\
+`NEW YORK — It surely wasn’t how Milwaukee Brewers starting pitcher Nestor Cortes Jr.`\
+https://nytimes.com/athletic/6240555/2025/03/29/yankees-homeruns-highlights-judge-bellinger-goldschmidt-brewers/
+
+**Grizzlies GM owns decision to fire Taylor Jenkins, offers little clarity**\
+`“Urgency is a core principle of ours,” said Kleiman, who spoke for less than three minutes. “So, (I) decided to go on with the move."`\
+https://nytimes.com/athletic/6240531/2025/03/29/grizzlies-taylor-jenkins-zach-kleiman/
+
+**St. John's RJ Luis Jr. declares for NBA Draft, enters transfer portal**\
+`The Miami native has one year of eligibility left and would be one of the top available players in the transfer portal.`\
+https://nytimes.com/athletic/6240523/2025/03/29/rj-luis-jr-transfer-portal-nba/
+
 **Bad beat of the year? Why Ole Miss' last-second 3 was significant to some**\
 `Matthew Murrell's 3-pointer at the buzzer was a boon for anyone wagering on Ole Miss against the spread.`\
 https://nytimes.com/athletic/6240413/2025/03/29/bad-beat-michigan-state-ole-miss-march-madness/

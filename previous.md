@@ -1,3 +1,15 @@
+**Yankees blast 3 homers on first 3 pitches off Brewers’ Nestor Cortes Jr.**\
+`NEW YORK — It surely wasn’t how Milwaukee Brewers starting pitcher Nestor Cortes Jr.`\
+https://nytimes.com/athletic/6240555/2025/03/29/yankees-homeruns-highlights-judge-bellinger-goldschmidt-brewers/
+
+**Grizzlies GM owns decision to fire Taylor Jenkins, offers little clarity**\
+`“Urgency is a core principle of ours,” said Kleiman, who spoke for less than three minutes. “So, (I) decided to go on with the move."`\
+https://nytimes.com/athletic/6240531/2025/03/29/grizzlies-taylor-jenkins-zach-kleiman/
+
+**St. John's RJ Luis Jr. declares for NBA Draft, enters transfer portal**\
+`The Miami native has one year of eligibility left and would be one of the top available players in the transfer portal.`\
+https://nytimes.com/athletic/6240523/2025/03/29/rj-luis-jr-transfer-portal-nba/
+
 **Bad beat of the year? Why Ole Miss' last-second 3 was significant to some**\
 `Matthew Murrell's 3-pointer at the buzzer was a boon for anyone wagering on Ole Miss against the spread.`\
 https://nytimes.com/athletic/6240413/2025/03/29/bad-beat-michigan-state-ole-miss-march-madness/
@@ -25,16 +37,4 @@ https://nytimes.com/video/world/asia/100000010080759/myanmar-heritage-sites-dama
 **In Bangkok, Grim Vigils as People Seek Word of Relatives at Collapsed Building**\
 `The collapse of a 30-story building under construction was “not normal,” an engineering expert said. It was one of the biggest projects ever done by a Chinese state-owned company.`\
 https://nytimes.com/2025/03/29/world/asia/bangkok-building-collapse.html
-
-**Myanmar’s junta resumed attacks on rebel-held areas soon after the devastating earthquake.**\
-`By Hannah Beech`\
-https://nytimes.com/live/2025/03/29/world/earthquake-myanmar-thailand/myanmars-junta-resumed-attacks-on-rebel-held-areas-soon-after-the-devastating-earthquake
-
-**The first international aid has arrived in Myanmar, but getting it where it needs to go will be hard.**\
-`Allies and detractors have responded to the military government’s pleas for aid, but delivery could be hampered by physical and diplomatic obstacles.`\
-https://nytimes.com/live/2025/03/29/world/earthquake-myanmar-thailand/the-first-international-aid-has-arrived-in-myanmar-but-getting-it-where-it-needs-to-go-will-be-hard
-
-**Women's March Madness projections 2025: Does UConn have the advantage?**\
-`What's your team's chance of winning? Find out here. `\
-https://nytimes.com/athletic/6198041/2025/03/29/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
 
