@@ -1,3 +1,11 @@
+**Resilient Blue Jackets come back twice in wild shootout win over Vancouver**\
+`"I almost had a heart attack a couple of times," Dante Fabbro said. Added Mathieu Olivier: "It's that time of year. It's exciting."`\
+https://nytimes.com/athletic/6239872/2025/03/29/blue-jackets-shootout-win-canucks/
+
+**Top-seeded Auburn surges past Michigan for 3rd Elite Eight trip**\
+`Auburn pulled off a big second-half swing to beat Michigan in the Sweet 16 and punch a ticket to the Elite Eight against Michigan State.`\
+https://nytimes.com/athletic/6239916/2025/03/29/auburn-michigan-ncaa-tournament-score-recap/
+
 **SEC sends four teams to Elite Eight, third league ever to do so**\
 `Since the first round, when six of the 14 SEC teams in the men's tournament were eliminated, the conference is 11-4.`\
 https://nytimes.com/athletic/6239928/2025/03/29/sec-teams-ncaa-tournament-elite-eight/

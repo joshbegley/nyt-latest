@@ -1,3 +1,11 @@
+**Resilient Blue Jackets come back twice in wild shootout win over Vancouver**\
+`"I almost had a heart attack a couple of times," Dante Fabbro said. Added Mathieu Olivier: "It's that time of year. It's exciting."`\
+https://nytimes.com/athletic/6239872/2025/03/29/blue-jackets-shootout-win-canucks/
+
+**Top-seeded Auburn surges past Michigan for 3rd Elite Eight trip**\
+`Auburn pulled off a big second-half swing to beat Michigan in the Sweet 16 and punch a ticket to the Elite Eight against Michigan State.`\
+https://nytimes.com/athletic/6239916/2025/03/29/auburn-michigan-ncaa-tournament-score-recap/
+
 **SEC sends four teams to Elite Eight, third league ever to do so**\
 `Since the first round, when six of the 14 SEC teams in the men's tournament were eliminated, the conference is 11-4.`\
 https://nytimes.com/athletic/6239928/2025/03/29/sec-teams-ncaa-tournament-elite-eight/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6239892/2025/03/29/annesah-morrow-lsu-elite-eight/
 **Disciplinary hearing results in admonishment for former Canada soccer coach**\
 `The disciplinary committee hearing did not result in any further punishment for John Herdman in the wake of a drone-spying scandal.`\
 https://nytimes.com/athletic/6239874/2025/03/29/canada-john-herdman-disciplinary-hearing-admonishment/
-
-**Hold the Chianti: Tariff Threat Leaves Italian Bottles Grounded**\
-`For now, President Trump’s 200 percent tariff on wine remains just a threat. But jittery American wine importers have already hit pause on orders from Tuscany.`\
-https://nytimes.com/2025/03/29/world/europe/italy-wine-trump-tariff-threat.html
-
-**Quote of the Day: A 65-Year-Old Hitting Coach Makes a Long-Overdue Big League Debut**\
-`Quotation of the Day for Saturday, March 29, 2025.`\
-https://nytimes.com/2025/03/29/pageoneplus/quote-of-the-day-a-65-year-old-hitting-coach-makes-a-long-overdue-big-league-debut.html
 
