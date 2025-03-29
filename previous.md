@@ -1,3 +1,15 @@
+**Corrections: March 29, 2025**\
+`Corrections that appeared in print on Saturday, March 29, 2025.`\
+https://nytimes.com/2025/03/28/pageoneplus/corrections-march-29-2025.html
+
+**Top F.D.A. Vaccine Official Resigns, Citing Kennedy’s ‘Misinformation and Lies’**\
+`Dr. Peter Marks, a veteran of the agency, wrote that undermining confidence in vaccines is irresponsible and a danger to public health.`\
+https://nytimes.com/2025/03/28/health/fda-vaccines-rfk-jr-peter-marks.html
+
+**Justice Sonia Sotomayor Says Judges Must Be ‘Fearlessly Independent’**\
+`The justice made remarks at once cautious and forceful at Georgetown University Law Center, which has called attacks by the Trump administration a threat to academic freedom.`\
+https://nytimes.com/2025/03/28/us/sotomayor-remarks-georgetown.html
+
 **Juan Soto smashes first home run with Mets, a no-doubter off second deck**\
 `The Mets' big offseason acquisition goes deep against the Astros in his second game with the team.`\
 https://nytimes.com/athletic/6239709/2025/03/28/juan-soto-first-home-run-with-mets/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6239543/2025/03/28/why-did-taylor-jenkins-get-fired
 **State Auditor to Investigate Sheriff Who Used Inmate Labor on Family Farm**\
 `In Mississippi, a sheriff accused of staffing his family’s commercial chicken farm with inmates defended the practice, saying he always paid them.`\
 https://nytimes.com/2025/03/28/us/state-auditor-to-investigate-mississippi-sheriff.html
-
-**South Carolina overcomes shooting woes, outlasts Terps to reach Elite Eight**\
-`MiLaysia Fulwiley scores 23 points off the bench to rescue Gamecocks, but will offensive struggles be a problem moving forward?`\
-https://nytimes.com/athletic/6239597/2025/03/28/south-carolina-maryland-sweet-16-result-score/
-
-**Columbia President Is Replaced as Trump Threatens University’s Funding**\
-`Katrina Armstrong is leaving the post a week after the university agreed to a list of demands from the White House.`\
-https://nytimes.com/2025/03/28/us/columbia-universitys-president-resigns.html
-
-**Appeals Court Allows Trump to Fire Heads of 2 Independent Boards**\
-`The ruling, in a case seen as a test of the president’s push for expansive executive authority, cripples the operations of the Merit Systems Protection Board and the National Labor Relations Board.`\
-https://nytimes.com/2025/03/28/us/politics/trump-firing-appeal.html
 
