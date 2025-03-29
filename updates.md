@@ -1,3 +1,23 @@
+**Men's NCAA Tournament Sweet 16 roundup: Auburn rules late, Houston survives**\
+`Houston, Michigan State and Auburn came up clutch, while Tennessee was a bully from the start in Sweet 16 action Friday night.`\
+https://nytimes.com/athletic/6239535/2025/03/29/mens-ncaa-tournament-sweet-16-roundup-auburn-houston-purdue-tennessee/
+
+**Trump and Tariffs Enter the Scene Only Days Into Canada’s Election Campaign**\
+`Without advance notice to Canada, the U.S. president put the auto industry into turmoil with a 25 percent tariff.`\
+https://nytimes.com/2025/03/29/world/canada/canada-letter-trump-tariffs-automobiles.html
+
+**Men's March Madness Elite Eight power rankings: Top seeds on collision course**\
+`It's a star-studded Elite Eight featuring all four No. 1 seeds, three No. 2 seeds, and the de facto Cinderella, No. 3 seed Texas Tech.`\
+https://nytimes.com/athletic/6238300/2025/03/29/mens-march-madness-elite-eight-power-rankings/
+
+**Wordle Review No. 1,380**\
+`Scroll down for hints and conversation about the puzzle for Sunday, March 30, 2025.`\
+https://nytimes.com/2025/03/29/crosswords/wordle-review-1380.html
+
+**Connections Companion No. 658**\
+`Scroll down for hints and conversation about the puzzle for Sunday, March 30, 2025.`\
+https://nytimes.com/2025/03/29/crosswords/connections-companion-658.html
+
 **Duke vs. Alabama: How to watch Cooper Flagg and Mark Sears square off for Final Four bid**\
 `It's a battle of blue blood vs. rising tide in Saturday's second Elite Eight game. Who will win?`\
 https://nytimes.com/athletic/6238602/2025/03/29/duke-alabama-ncaa-tournament-how-to-watch/
