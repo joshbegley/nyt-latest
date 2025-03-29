@@ -1,3 +1,11 @@
+**In Exeter, a match to show how Reynolds and McElhenney have supercharged Wrexham's rise**\
+`Wrexham are on the rise — and a look at Exeter, who they beat on Saturday, shows how a change in business model is making it a rapid process`\
+https://nytimes.com/athletic/6234919/2025/03/29/exeter-wrexham-hollywood-money-injection/
+
+**Yankees blast 9 HRs to set franchise record, including 3 on first 3 pitches**\
+`It was the first time in team history that the Yankees hit four home runs in one inning.`\
+https://nytimes.com/athletic/6240555/2025/03/29/yankees-homeruns-highlights-judge-bellinger-goldschmidt-brewers/
+
 **TCU tops Notre Dame as Hailey Van Lith shines to reach fifth career Elite Eight**\
 `Notre Dame shot just 31 percent from the field in the game and made just 3-of-15 shots from 3.`\
 https://nytimes.com/athletic/6240670/2025/03/29/tcu-notre-dame-womens-tournament-score-hailey-van-lith/
