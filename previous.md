@@ -1,3 +1,7 @@
+**Elite Eight is old money vs. new money — and that new money’s chanting: 'SEC! SEC! SEC!'**\
+`The Elite Eight is simply the best of the best, with eight of the top nine teams in KenPom (Gonzaga being the exception) still playing.`\
+https://nytimes.com/athletic/6240182/2025/03/29/ncaa-tournament-elite-eight-sec-duke/
+
 **What does John Tavares' hot shooting mean for his future with the Leafs?**\
 `Tavares is riding the best shooting percentage of his entire career this season, but let's dive into some of the other factors at play.`\
 https://nytimes.com/athletic/6235690/2025/03/29/maple-leafs-john-tavares-shooting/
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/6239249/2025/03/29/march-madness-2025-what-to-watch
 **Which D.C. team has had the best cherry blossom jersey? We rank them**\
 `Four D.C. teams have now had a jersey with cherry blossom inspirations`\
 https://nytimes.com/athletic/6238605/2025/03/29/washington-nationals-capitals-wizards-dc-united-cherry-blossom/
-
-**NHL bold predictions: Which preseason picks we got right and wrong**\
-`Which preseason bold predictions get a pass, fail or incomplete? We look back at all 32 as the season winds down.
-`\
-https://nytimes.com/athletic/6239219/2025/03/29/nhl-season-predictions-playoffs/
 

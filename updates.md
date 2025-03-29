@@ -1,3 +1,7 @@
+**Elite Eight is old money vs. new money — and that new money’s chanting: 'SEC! SEC! SEC!'**\
+`The Elite Eight is simply the best of the best, with eight of the top nine teams in KenPom (Gonzaga being the exception) still playing.`\
+https://nytimes.com/athletic/6240182/2025/03/29/ncaa-tournament-elite-eight-sec-duke/
+
 **What does John Tavares' hot shooting mean for his future with the Leafs?**\
 `Tavares is riding the best shooting percentage of his entire career this season, but let's dive into some of the other factors at play.`\
 https://nytimes.com/athletic/6235690/2025/03/29/maple-leafs-john-tavares-shooting/
