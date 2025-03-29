@@ -1,3 +1,7 @@
+**Working Families Party Endorses 4 Candidates in Strategy to Beat Cuomo**\
+`The progressive group backed Brad Lander, Zohran Mamdani, Adrienne Adams and Zellnor Myrie for mayor as part of a broader effort to defeat the former governor, who is leading in the polls.`\
+https://nytimes.com/2025/03/29/nyregion/wfp-endorsement-mayor-nyc.html
+
 **Many at U.S. Institute of Peace Fired as Trump Seeks Nonprofit’s End**\
 `Nearly all of the institute’s U.S.-based staff members were fired and asked to sign a separation agreement, according to notices reviewed by The Times.`\
 https://nytimes.com/2025/03/29/us/politics/institute-of-peace-trump-firings.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/03/29/us/johnny-mathis-retire-concerts.html
 **3 Killed, Including 2 Children, in Brooklyn Car Accident**\
 `Six other people were taken to hospitals after two vehicles collided on Saturday in southern Brooklyn, according to the police.`\
 https://nytimes.com/2025/03/29/nyregion/car-crash-brooklyn-deaths.html
-
-**Flau’jae Johnson available for LSU's Elite Eight showdown with UCLA**\
-`In last year's tournament, Johnson exploded for 24 points and 12 rebounds against UCLA, leading the Tigers to the Elite Eight.`\
-https://nytimes.com/athletic/6240716/2025/03/29/flaujae-johnson-lsu-ucla-health-availability/
 
