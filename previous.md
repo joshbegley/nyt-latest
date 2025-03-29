@@ -1,3 +1,7 @@
+**Texas holds off Tennessee, returns to Elite Eight for fourth time in 5 years**\
+`As in the January meeting between Texas and Tennessee, neither team pulled away.`\
+https://nytimes.com/athletic/6240886/2025/03/29/texas-beats-tennessee-elite-eight-return/
+
 **G.O.P. Lawmaker Faces Angry Crowds at Town Halls Outside Indianapolis**\
 `Representative Victoria Spartz, a Republican, defended Elon Musk’s DOGE cuts to the federal government, drawing jeers from the crowd.`\
 https://nytimes.com/2025/03/29/us/politics/victoria-spartz-republican-town-hall-doge.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/29/nyregion/wfp-endorsement-mayor-nyc.html
 **Many at U.S. Institute of Peace Fired as Trump Seeks Nonprofit’s End**\
 `Nearly all of the institute’s U.S.-based staff members were fired and asked to sign a separation agreement, according to notices reviewed by The Times.`\
 https://nytimes.com/2025/03/29/us/politics/institute-of-peace-trump-firings.html
-
-**Madison Chock and Evan Bates, U.S. ice dance stars, win third straight world title**\
-`Madison Chock and Evan Bates, the venerable American ice dancers, cemented their elite status with a third straight crown at worlds.`\
-https://nytimes.com/athletic/6240814/2025/03/29/madison-chock-evan-bates-ice-dance-world-championships-gold-medal/
 
