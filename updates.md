@@ -1,3 +1,7 @@
+**Aryna Sabalenka, world No. 1, surges past Jessica Pegula to win Miami Open**\
+`Sabalenka and Pegula have faced each other in three of the past four American tournaments`\
+https://nytimes.com/athletic/6240863/2025/03/29/aryana-sabalenka-jessica-pegula-miami-open-tennis/
+
 **Taliban Appears to Free American Woman Detained in Afghanistan**\
 `President Trump and a former U.S. ambassador to Afghanistan shared a video of a woman identified as Faye Hall thanking the president for her release from Afghanistan.`\
 https://nytimes.com/2025/03/29/world/asia/taliban-appears-to-free-american-woman-detained-in-afghanistan.html
