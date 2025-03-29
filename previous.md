@@ -1,3 +1,7 @@
+**Brentford captain Norgaard signs new two-year deal**\
+`The 31-year-old's pervious terms had been due to expire in the summer.`\
+https://nytimes.com/athletic/6240167/2025/03/29/christian-norgaard-brentford-contract/
+
 **Men’s March Madness 2025: What to watch for on Day 7**\
 `Can Texas Tech slow down Florida? Can Alabama outduel Duke? Here's everything to know about Saturday's Elite Eight games.`\
 https://nytimes.com/athletic/6239249/2025/03/29/march-madness-2025-what-to-watch-day-7-elite-eight/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6239634/2025/03/29/rays-summer-heat-steinbrenner-fi
 **A Jewish Comedian Walks Into a Theater in Minnesota**\
 `Alex Edelman HBO’s comedy special about white nationalism hits different now.`\
 https://nytimes.com/2025/03/29/opinion/alex-edelman-just-for-us-jewish-identity.html
-
-**First Cancer Threatened Her Life. Then Came Medical Freedom.**\
-`With Robert F. Kennedy Jr. as health secretary, what was once a fringe movement now controls the halls of power.`\
-https://nytimes.com/2025/03/29/opinion/medical-freedom-cancer-rfk.html
 
