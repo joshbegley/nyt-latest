@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6240781/2025/03/29/flyers-matvei-michkov-john-tortorella-fired/
 
+**Flyers rookie Matvei Michkov playing and scoring more after coaching change**\
+`No Flyers player has looked more noticeable or dangerous in the two games following John Tortorella's firing than the 20-year-old Michkov.
+`\
+https://nytimes.com/athletic/6240781/2025/03/29/flyers-matvei-michkov-john-tortorella-fired/
+
 **Working Families Party Endorses 4 Candidates in Strategy to Beat Cuomo**\
 `The progressive group backed Brad Lander, Zohran Mamdani, Adrienne Adams and Zellnor Myrie for mayor as part of a broader effort to defeat the former governor, who is leading in the polls.`\
 https://nytimes.com/2025/03/29/nyregion/wfp-endorsement-mayor-nyc.html
