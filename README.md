@@ -1,3 +1,7 @@
+**G.O.P. Lawmaker Faces Angry Crowds at Town Halls Outside Indianapolis**\
+`Representative Victoria Spartz, a Republican, defended Elon Musk’s DOGE cuts to the federal government, drawing jeers from the crowd.`\
+https://nytimes.com/2025/03/29/us/politics/victoria-spartz-republican-town-hall-doge.html
+
 **Aryna Sabalenka, world No. 1, surges past Jessica Pegula to win Miami Open**\
 `Sabalenka and Pegula have faced each other in three of the past four American tournaments`\
 https://nytimes.com/athletic/6240863/2025/03/29/aryana-sabalenka-jessica-pegula-miami-open-tennis/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/29/us/politics/institute-of-peace-trump-firings.html
 **Madison Chock and Evan Bates, U.S. ice dance stars, win third straight world title**\
 `Madison Chock and Evan Bates, the venerable American ice dancers, cemented their elite status with a third straight crown at worlds.`\
 https://nytimes.com/athletic/6240814/2025/03/29/madison-chock-evan-bates-ice-dance-world-championships-gold-medal/
-
-**Flyers rookie Matvei Michkov playing and scoring more after coaching change**\
-`No Flyers player has looked more noticeable or dangerous in the two games following John Tortorella's firing than the 20-year-old Michkov.`\
-https://nytimes.com/athletic/6240781/2025/03/29/flyers-matvei-michkov-john-tortorella-fired/
 
