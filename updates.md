@@ -1,3 +1,15 @@
+**Steph Curry returns, Quinten Post shoots as Warriors cruise past Pelicans: 5 observations**\
+`Curry is wearing extra padding for tailbone protection and said he can still feel the soreness, but he can play.`\
+https://nytimes.com/athletic/6239819/2025/03/29/steph-curry-returns-warriors-3-pointers/
+
+**UCLA's offense stymies Ole Miss; Bruins advance to Elite Eight**\
+`It marks the Bruins' third overall Elite Eight appearance and first since 2018.`\
+https://nytimes.com/athletic/6239963/2025/03/29/ucla-ole-miss-score-march-madness/
+
+**The New York Times in Print for Saturday, March 29, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/03/29/todays-new-york-times
+
 **Blackhawks' Ryan Donato adds another chapter to memorable season with first hat trick**\
 `In a season where the Blackhawks haven't had many things to celebrate, Donato has been arguably their best and most consistent player.`\
 https://nytimes.com/athletic/6239820/2025/03/29/blackhawks-ryan-donato-hat-trick-golden-knights/

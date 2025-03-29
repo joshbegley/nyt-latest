@@ -1,3 +1,15 @@
+**Steph Curry returns, Quinten Post shoots as Warriors cruise past Pelicans: 5 observations**\
+`Curry is wearing extra padding for tailbone protection and said he can still feel the soreness, but he can play.`\
+https://nytimes.com/athletic/6239819/2025/03/29/steph-curry-returns-warriors-3-pointers/
+
+**UCLA's offense stymies Ole Miss; Bruins advance to Elite Eight**\
+`It marks the Bruins' third overall Elite Eight appearance and first since 2018.`\
+https://nytimes.com/athletic/6239963/2025/03/29/ucla-ole-miss-score-march-madness/
+
+**The New York Times in Print for Saturday, March 29, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/03/29/todays-new-york-times
+
 **Men's March Madness projections 2025: Who will advance to the Final Four?**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/03/29/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6198041/2025/03/29/womens-march-madness-projections
 **The FA Cup began in 1871 and has had 44 different winners. Is now the time for a 45th?**\
 `The 2025 quarter-finals involve four clubs who have never lifted the FA Cup. Stuart James joins the search for rare first-time winners`\
 https://nytimes.com/athletic/6238018/2025/03/29/fa-cup-first-time-winner-history-trophy/
-
-**Here is the latest.**\
-`By Sui-Lee Wee and Qasim Nauman`\
-https://nytimes.com/live/2025/03/29/world/earthquake-myanmar-thailand/here-is-the-latest
-
-**Live Updates: Death Toll in Myanmar Quake Rises to Nearly 700**\
-`Myanmar’s military government said more than 1,600 people were injured. The 7.7-magnitude earthquake on Friday near Mandalay was felt in parts of Southeast Asia.`\
-https://nytimes.com/live/2025/03/29/world/earthquake-myanmar-thailand
-
-**An undersized rebounder with oversized drive, Aneesah Morrow carries LSU back to Elite Eight**\
-`The senior forward finished with finished with 30 points, 19 rebounds, two blocks and three steals to beat NC State.`\
-https://nytimes.com/athletic/6239892/2025/03/29/annesah-morrow-lsu-elite-eight/
 
