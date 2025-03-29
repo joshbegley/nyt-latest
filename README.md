@@ -1,4 +1,4 @@
-**Eze won't fit into Glasner's system, but his unique talent is crucial to Crystal Palace**\
+**Eze isn't a perfect fit for Glasner's system, but his unique talent is crucial to Crystal Palace**\
 `Eberechi Eze made the difference against Fulham in the FA Cup quarter-final — even if he doesn't quite fit Glasner's system at Palace`\
 https://nytimes.com/athletic/6232397/2025/03/29/eze-goal-contributions-crystal-palace-fulham/
 
