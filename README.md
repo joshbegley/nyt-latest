@@ -1,3 +1,7 @@
+**TCU tops Notre Dame as Haily Van Lith shines to reach fifth career Elite Eight**\
+`Notre Dame shot just 31 percent from the field in the game and made just 3-of-15 shots from 3.`\
+https://nytimes.com/athletic/6240670/2025/03/29/tcu-notre-dame-womens-tournament-score-hailey-van-lith/
+
 **‘Should I Fire Him?’ Inside Trump’s Deliberations Over the Fate of Michael Waltz**\
 `In public, President Trump has defended his national security adviser. But behind the scenes, he has been casting around for advice.`\
 https://nytimes.com/2025/03/29/us/politics/trump-signal-michael-waltz.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6240555/2025/03/29/yankees-homeruns-highlights-judg
 **Grizzlies GM owns decision to fire Taylor Jenkins, offers little clarity**\
 `“Urgency is a core principle of ours,” said Kleiman, who spoke for less than three minutes. “So, (I) decided to go on with the move."`\
 https://nytimes.com/athletic/6240531/2025/03/29/grizzlies-taylor-jenkins-zach-kleiman/
-
-**St. John's RJ Luis Jr. declares for NBA Draft, enters transfer portal**\
-`The Miami native has one year of eligibility left and would be one of the top available players in the transfer portal.`\
-https://nytimes.com/athletic/6240523/2025/03/29/rj-luis-jr-transfer-portal-nba/
 
