@@ -1,3 +1,7 @@
+**Juan Soto smashes first home run with Mets, a no-doubter off second deck**\
+`The Mets' big offseason acquisition goes deep against the Astros in his second game with the team.`\
+https://nytimes.com/athletic/6239709/2025/03/28/juan-soto-first-home-run-with-mets/
+
 **University of Minnesota Student Detained by Immigration Agents**\
 `University officials said they had not been informed of the federal agents’ plans and called the situation “deeply concerning.”`\
 https://nytimes.com/2025/03/28/us/university-of-minnesota-student-detained.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/28/us/columbia-universitys-president-resigns.html
 **Appeals Court Allows Trump to Fire Heads of 2 Independent Boards**\
 `The ruling, in a case seen as a test of the president’s push for expansive executive authority, cripples the operations of the Merit Systems Protection Board and the National Labor Relations Board.`\
 https://nytimes.com/2025/03/28/us/politics/trump-firing-appeal.html
-
-**Tracking Each Party’s Early Turnout for Tuesday’s Special House Elections**\
-`Voters in two heavily Republican House districts in Florida will decide who to send to Congress. See which party is ahead in turnout so far.`\
-https://nytimes.com/2025/03/28/us/elections/florida-house-special-election-turnout.html
 
