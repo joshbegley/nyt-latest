@@ -1,3 +1,11 @@
+**First-round draft pick Oliver Moore signs with Blackhawks after NCAA season ends**\
+`Moore, the 19th pick in the 2023 NHL Draft, ended his college career at Minnesota with a loss to UMass on Thursday.`\
+https://nytimes.com/athletic/6238442/2025/03/29/blackhawks-oliver-moore-nhl-contract/
+
+**Missed opportunities and another bullpen loss: Braves' first 2 defeats bear similarities**\
+`Atlanta is just 1-for-16 with runners in scoring position through two games.`\
+https://nytimes.com/athletic/6240078/2025/03/29/braves-struggles-bullpen-padres/
+
 **On Dodgers Ring Day, Jack Flaherty showed why the Tigers are happy to have him back**\
 `“It kind of felt like my first time back here, my first start in 2018 where it was more emotion than heart rate or anything,” Flaherty said.`\
 https://nytimes.com/athletic/6240109/2025/03/29/tigers-jack-flaherty-dodgers-ring-day-return/
