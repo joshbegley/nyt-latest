@@ -1,5 +1,13 @@
+**Is South Carolina playing with fire in its bid to repeat as champion?**\
+`Despite its Sweet 16 loss, Maryland may have provided a blueprint for how to beat the Gamecocks.`\
+https://nytimes.com/athletic/6239754/2025/03/28/south-carolina-maryland-sweet-16-playing-with-fire/
+
+**Head Honcho**\
+`Christina Iverson and Jacob McDermott team up on a puzzle with claws that merits applause.`\
+https://nytimes.com/2025/03/28/crosswords/daily-puzzle-2025-03-29.html
+
 **Gotham FC defender Tierna Davidson leaves match after non-contact injury**\
-`Davidson left Gotham's match against the Dash in the first half`\
+`Davidson left Gotham's match against the Dash in the first half.`\
 https://nytimes.com/athletic/6239710/2025/03/28/gotham-fc-defender-tierna-davidson-non-contact-injury/
 
 **Tom Izzo, Michigan State headed back to Elite Eight after holding off Ole Miss**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/28/health/fda-vaccines-rfk-jr-peter-marks.html
 **Justice Sonia Sotomayor Says Judges Must Be ‘Fearlessly Independent’**\
 `The justice made remarks at once cautious and forceful at Georgetown University Law Center, which has called attacks by the Trump administration a threat to academic freedom.`\
 https://nytimes.com/2025/03/28/us/sotomayor-remarks-georgetown.html
-
-**Juan Soto smashes first home run with Mets, a no-doubter off second deck**\
-`The Mets' big offseason acquisition goes deep against the Astros in his second game with the team.`\
-https://nytimes.com/athletic/6239709/2025/03/28/juan-soto-first-home-run-with-mets/
-
-**University of Minnesota Student Detained by Immigration Agents**\
-`University officials said they had not been informed of the federal agents’ plans and called the situation “deeply concerning.”`\
-https://nytimes.com/2025/03/28/us/university-of-minnesota-student-detained.html
 

@@ -1,3 +1,15 @@
+**Is South Carolina playing with fire in its bid to repeat as champion?**\
+`Despite its Sweet 16 loss, Maryland may have provided a blueprint for how to beat the Gamecocks.`\
+https://nytimes.com/athletic/6239754/2025/03/28/south-carolina-maryland-sweet-16-playing-with-fire/
+
+**Head Honcho**\
+`Christina Iverson and Jacob McDermott team up on a puzzle with claws that merits applause.`\
+https://nytimes.com/2025/03/28/crosswords/daily-puzzle-2025-03-29.html
+
+**Gotham FC defender Tierna Davidson leaves match after non-contact injury**\
+`Davidson left Gotham's match against the Dash in the first half.`\
+https://nytimes.com/athletic/6239710/2025/03/28/gotham-fc-defender-tierna-davidson-non-contact-injury/
+
 **Gotham FC defender Tierna Davidson leaves match after non-contact injury**\
 `Davidson left Gotham's match against the Dash in the first half`\
 https://nytimes.com/athletic/6239710/2025/03/28/gotham-fc-defender-tierna-davidson-non-contact-injury/
