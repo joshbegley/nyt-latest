@@ -1,3 +1,15 @@
+**Duke vs. Alabama: How to watch Cooper Flagg and Mark Sears square off for Final Four bid**\
+`It's a battle of blue blood vs. rising tide in Saturday's second Elite Eight game. Who will win?`\
+https://nytimes.com/athletic/6238602/2025/03/29/duke-alabama-ncaa-tournament-how-to-watch/
+
+**Severe Storms and Tornado Threat Loom Over Central and Eastern U.S.**\
+`Forecasters warn of severe weather this weekend from Texas to the East Coast.`\
+https://nytimes.com/2025/03/29/weather/storms-forecast-central-us.html
+
+**UConn vs. Oklahoma: How to watch Paige Bueckers and the Huskies try for Elite Eight**\
+`UConn is favored to get past Oklahoma and into the Elite Eight on Saturday. Paige Bueckers is playing to extend her storied college career.`\
+https://nytimes.com/athletic/6229660/2025/03/29/uconn-oklahoma-womens-ncaa-tournament-sweet-16-how-to-watch/
+
 **Megyn Kelly Is Embracing Her Bias and Rejecting the ‘Old Rules’**\
 `The former Fox News and current YouTube host on her professional evolution, conservative media and why she endorsed Trump.`\
 https://nytimes.com/2025/03/29/magazine/megyn-kelly-interview.html
