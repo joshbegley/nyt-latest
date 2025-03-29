@@ -1,3 +1,7 @@
+**Blackhawks sign Sam Rinzel after Minnesota's exit from NCAA Tournament**\
+`Rinzel has decided to forgo his final two years at the University of Minnesota and sign with the Blackhawks.`\
+https://nytimes.com/athletic/6236295/2025/03/29/sam-rinzel-blackhawks-ncaa-tournament/
+
 **First-round draft pick Oliver Moore signs with Blackhawks after NCAA season ends**\
 `Moore, the 19th pick in the 2023 NHL Draft, ended his college career at Minnesota with a loss to UMass on Thursday.`\
 https://nytimes.com/athletic/6238442/2025/03/29/blackhawks-oliver-moore-nhl-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/29/opinion/adolescence-misogyny-schools.html
 **In Mandalay, Desperate Rescue Efforts and Sinking Hopes**\
 `Volunteers gathered to help, some coming in from other cities, to do whatever they could in the city near the epicenter of the powerful quake.`\
 https://nytimes.com/2025/03/29/world/asia/myanmar-earthquake-mandalay.html
-
-**U.S. Presses French Companies to Comply With Trump’s Anti-Diversity Policies**\
-`A letter from the American Embassy in France gave firms that do business with the U.S. government five days to indicate their agreement.`\
-https://nytimes.com/2025/03/29/business/france-trump-diversity-inclusion.html
 
