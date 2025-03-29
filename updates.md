@@ -1,3 +1,20 @@
+**Former White Sox stars on the Angels experience a complicated homecoming**\
+`CHICAGO — Two former Chicago White Sox stars, returning with the Los Angeles Angels for the first time, have encountered two very different receptions.`\
+https://nytimes.com/athletic/6240810/2025/03/29/former-white-sox-angels-complicated-homecoming/
+
+**Mark My Words**\
+`Simeon Seigel’s puzzle rewards the solver who looks beyond the letters.`\
+https://nytimes.com/2025/03/29/crosswords/daily-puzzle-2025-03-30.html
+
+**White House Correspondents Cancel Comedian Booked for Annual Dinner**\
+`The comedian Amber Ruffin had been slated to perform at the event in April. The correspondents’ association said it wanted to avoid focusing “on the politics of division.”`\
+https://nytimes.com/2025/03/29/us/politics/white-house-correspondents-dinner-amber-ruffin.html
+
+**Flyers rookie Matvei Michkov playing and scoring more after coaching change**\
+`No Flyers player has looked more noticeable or dangerous in the two games following John Tortorella's firing than the 20-year-old Michkov.
+`\
+https://nytimes.com/athletic/6240781/2025/03/29/flyers-matvei-michkov-john-tortorella-fired/
+
 **Flyers rookie Matvei Michkov playing and scoring more after coaching change**\
 `No Flyers player has looked more noticeable or dangerous in the two games following John Tortorella's firing than the 20-year-old Michkov.
 `\
