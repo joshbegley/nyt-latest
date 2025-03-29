@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6239219/2025/03/29/nhl-season-predictions-playoffs/
 `\
 https://nytimes.com/athletic/6239219/2025/03/29/nhl-season-predictions-playoffs/
 
+**NHL bold predictions: Which preseason picks we got right and wrong**\
+`Which preseason bold predictions get a pass, fail or incomplete? We look back at all 32 as the season winds down.
+`\
+https://nytimes.com/athletic/6239219/2025/03/29/nhl-season-predictions-playoffs/
+
 **Men’s March Madness 2025: What to watch for on Day 7**\
 `Can Texas Tech slow down Florida? Can Alabama outduel Duke? Here's everything to know about Saturday's Elite Eight games.`\
 https://nytimes.com/athletic/6239249/2025/03/29/march-madness-2025-what-to-watch-day-7-elite-eight/
