@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6239743/2025/03/28/alysa-liu-world-championship-gol
 `The Wildcats, which won both regular-season meetings with the Vols, were held to 65 points, tying their lowest scoring total of the season.`\
 https://nytimes.com/athletic/6239656/2025/03/28/tennessee-kentucky-score-march-madness/
 
-**Is South Carolina playing with fire in its bid to repeat as champion?**\
+**Is South Carolina playing with fire in bid to repeat as champion?**\
 `Despite its Sweet 16 loss, Maryland may have provided a blueprint for how to beat the Gamecocks.`\
 https://nytimes.com/athletic/6239754/2025/03/28/south-carolina-maryland-sweet-16-playing-with-fire/
 
