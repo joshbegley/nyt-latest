@@ -1,3 +1,7 @@
+**Eze won't fit into Glasner's system, but his unique talent is crucial to Crystal Palace**\
+`Eberechi Eze made the difference against Fulham in the FA Cup quarter-final — even if he doesn't quite fit Glasner's system at Palace`\
+https://nytimes.com/athletic/6232397/2025/03/29/eze-goal-contributions-crystal-palace-fulham/
+
 **Myanmar Earthquake Toll Surpasses 1,600 Dead Amid Search for Survivors**\
 `Aid workers delivered the first shipments of help to Myanmar, but will have to cross a country buckled by the disaster and divided by civil war, arms dealers and drug syndicates.`\
 https://nytimes.com/2025/03/29/world/asia/myanmar-earthquake.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/29/nyregion/who-is-claire-shipman-columbia-president
 **Every 2025 NFL Draft hat and the meaning behind their pins**\
 `The new NFL Draft hats come with a new accessory, but some have more obscure references than others`\
 https://nytimes.com/athletic/6239227/2025/03/29/2025-nfl-draft-hats-pins/
-
-**Gai Gherardi, Who Made Eyeglass Frames Fashion Statements, Dies at 78**\
-`Her L.A. Eyeworks boutique, which she opened with a friend and fellow optician, was a pioneer in turning ordinary frames into bold, artistic accessories.`\
-https://nytimes.com/2025/03/29/business/gai-gherardi-dead.html
 
