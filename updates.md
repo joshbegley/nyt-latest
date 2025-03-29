@@ -1,3 +1,7 @@
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/03/29/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **Bills, CB Christian Benford agree to 4-year, $76 million extension: Sources**\
 `The deal, when signed, will run through the 2029 season and at $19 million per year.`\
 https://nytimes.com/athletic/6240620/2025/03/29/bills-cb-christian-benford-agree-extension/
