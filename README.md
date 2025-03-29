@@ -27,8 +27,7 @@ https://nytimes.com/2025/03/29/us/politics/institute-of-peace-trump-firings.html
 https://nytimes.com/athletic/6240814/2025/03/29/madison-chock-evan-bates-ice-dance-world-championships-gold-medal/
 
 **Flyers rookie Matvei Michkov playing and scoring more after coaching change**\
-`No Flyers player has looked more noticeable or dangerous in the two games following John Tortorella's firing than the 20-year-old Michkov.
-`\
+`No Flyers player has looked more noticeable or dangerous in the two games following John Tortorella's firing than the 20-year-old Michkov.`\
 https://nytimes.com/athletic/6240781/2025/03/29/flyers-matvei-michkov-john-tortorella-fired/
 
 **Small Plane Crashes in a Minneapolis Suburb, Leaving a House on Fire, Officials Say**\

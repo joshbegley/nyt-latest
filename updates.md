@@ -1,3 +1,16 @@
+**Specter of Auto Tariffs Spurs Some Car Buyers to Rush Purchases**\
+`“Prices are going to shoot up now,” one shopper said. But some dealers said that economic concerns might be keeping people away.`\
+https://nytimes.com/2025/03/29/business/economy/auto-tariffs-buyers-dealers.html
+
+**Former White Sox stars on the Angels experience a complicated homecoming**\
+`It's been an interesting homecoming for two players once believed to be part of the White Sox's young core.`\
+https://nytimes.com/athletic/6240810/2025/03/29/former-white-sox-angels-complicated-homecoming/
+
+**Flyers rookie Matvei Michkov playing and scoring more after coaching change**\
+`No Flyers player has looked more noticeable or dangerous in the two games following John Tortorella's firing than the 20-year-old Michkov.
+`\
+https://nytimes.com/athletic/6240781/2025/03/29/flyers-matvei-michkov-john-tortorella-fired/
+
 **Former White Sox stars on the Angels experience a complicated homecoming**\
 `CHICAGO — Two former Chicago White Sox stars, returning with the Los Angeles Angels for the first time, have encountered two very different receptions.`\
 https://nytimes.com/athletic/6240810/2025/03/29/former-white-sox-angels-complicated-homecoming/
