@@ -1,3 +1,7 @@
+**‘Should I Fire Him?’ Inside Trump’s Deliberations Over the Fate of Michael Waltz**\
+`In public, President Trump has defended his national security adviser. But behind the scenes, he has been casting around for advice.`\
+https://nytimes.com/2025/03/29/us/politics/trump-signal-michael-waltz.html
+
 **Women's March Madness projections 2025: Does UConn have the advantage?**\
 `What's your team's chance of winning? Find out here. `\
 https://nytimes.com/athletic/6198041/2025/03/29/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
