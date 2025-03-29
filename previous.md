@@ -1,3 +1,7 @@
+**The Pulse: Was TGL Year 1 a success?**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
+https://nytimes.com/athletic/6239526/2025/03/29/tgl-ratings-march-madness-the-pulse/
+
 **Mookie Betts, still regaining weight after stomach virus, slugs walk-off HR: 'He's super-human'**\
 `Betts has only regained about half the weight he lost, but hit two home runs in Friday's win.`\
 https://nytimes.com/athletic/6240096/2025/03/29/mookie-betts-stomach-virus-walk-off-hr-dodgers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6236295/2025/03/29/sam-rinzel-blackhawks-ncaa-tourn
 **First-round draft pick Oliver Moore signs with Blackhawks after NCAA season ends**\
 `Moore, the 19th pick in the 2023 NHL Draft, ended his college career at Minnesota with a loss to UMass on Thursday.`\
 https://nytimes.com/athletic/6238442/2025/03/29/blackhawks-oliver-moore-nhl-contract/
-
-**Missed opportunities and another bullpen loss: Braves' first 2 defeats bear similarities**\
-`Atlanta is just 1-for-16 with runners in scoring position through two games.`\
-https://nytimes.com/athletic/6240078/2025/03/29/braves-struggles-bullpen-padres/
 

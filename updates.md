@@ -1,3 +1,7 @@
+**The Pulse: Was TGL Year 1 a success?**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
+https://nytimes.com/athletic/6239526/2025/03/29/tgl-ratings-march-madness-the-pulse/
+
 **Mookie Betts, still regaining weight after stomach virus, slugs walk-off HR: 'He's super-human'**\
 `Betts has only regained about half the weight he lost, but hit two home runs in Friday's win.`\
 https://nytimes.com/athletic/6240096/2025/03/29/mookie-betts-stomach-virus-walk-off-hr-dodgers/

@@ -1,3 +1,7 @@
+**Found: British Military Documents, Scattered on the Street**\
+`A man in Northern England said he had stumbled upon hundreds of documents, including threat assessments, armory codes and detailed base patrols. The Ministry of Defense said it was investigating.`\
+https://nytimes.com/2025/03/29/world/europe/military-documents-newcastle.html
+
 **The Pulse: Was TGL Year 1 a success?**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter. `\
 https://nytimes.com/athletic/6239526/2025/03/29/tgl-ratings-march-madness-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/29/us/politics/federal-worker-unions-doge.html
 **Blackhawks sign Sam Rinzel after Minnesota's exit from NCAA Tournament**\
 `Rinzel has decided to forgo his final two years at the University of Minnesota and sign with the Blackhawks.`\
 https://nytimes.com/athletic/6236295/2025/03/29/sam-rinzel-blackhawks-ncaa-tournament/
-
-**First-round draft pick Oliver Moore signs with Blackhawks after NCAA season ends**\
-`Moore, the 19th pick in the 2023 NHL Draft, ended his college career at Minnesota with a loss to UMass on Thursday.`\
-https://nytimes.com/athletic/6238442/2025/03/29/blackhawks-oliver-moore-nhl-contract/
 
