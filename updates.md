@@ -1,3 +1,11 @@
+**Bad beat of the year? Why Ole Miss' last-second 3 was significant to some**\
+`Matthew Murrell's 3-pointer at the buzzer was a boon for anyone wagering on Ole Miss against the spread.`\
+https://nytimes.com/athletic/6240413/2025/03/29/bad-beat-michigan-state-ole-miss-march-madness/
+
+**Who Is Claire Shipman, the New Interim President of Columbia?**\
+`The former television journalist and co-chair of the university’s board of trustees takes the helm at a time of significant peril for the institution.`\
+https://nytimes.com/2025/03/29/nyregion/who-is-claire-shipman-columbia-president.html
+
 **Every 2025 NFL Draft hat and the meaning behind their pins**\
 `The new NFL Draft hats come with a new accessory, but some have more obscure references than others`\
 https://nytimes.com/athletic/6239227/2025/03/29/2025-nfl-draft-hats-pins/
