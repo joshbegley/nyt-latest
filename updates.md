@@ -1,3 +1,7 @@
+**Men's March Madness projections 2025: Who will advance to the Final Four?**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/03/29/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **Utah Bans Most Flags, Including Pride, at Schools and Government Buildings**\
 `The new law is among the most restrictive governing displays of flags, and is part of a polarizing debate focused on the Pride flag and other expressions of L.G.B.T.Q. support.`\
 https://nytimes.com/2025/03/29/us/utah-flag-pride-ban.html
