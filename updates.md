@@ -1,3 +1,20 @@
+**What does John Tavares' hot shooting mean for his future with the Leafs?**\
+`Tavares is riding the best shooting percentage of his entire career this season, but let's dive into some of the other factors at play.`\
+https://nytimes.com/athletic/6235690/2025/03/29/maple-leafs-john-tavares-shooting/
+
+**Pension Funds Push Forward on Climate Goals Despite Backlash**\
+`At a time of resistance to environmental, social and governance goals, pension funds have become a bulwark against efforts to sideline climate risks.`\
+https://nytimes.com/2025/03/29/business/dealbook/pension-funds-climate-esg.html
+
+**Fear and loathing in Minnesota: Wolves riding the razor's edge in search of the 6th seed**\
+`Rudy Gobert tapped into the psyche of a team that has been so difficult to understand: "We are our biggest opponent."`\
+https://nytimes.com/athletic/6239644/2025/03/29/timberwolves-nba-playoff-chase-suns/
+
+**NHL bold predictions: Which preseason picks we got right and wrong**\
+`Which preseason bold predictions get a pass, fail or incomplete? We look back at all 32 as the season winds down.
+`\
+https://nytimes.com/athletic/6239219/2025/03/29/nhl-season-predictions-playoffs/
+
 **NHL bold predictions: Which preseason picks we got right and wrong**\
 `Which preseason bold predictions get a pass, fail or incomplete? We look back at all 32 as the season winds down.
 `\
