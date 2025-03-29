@@ -1,3 +1,7 @@
+**Blackhawks' Ryan Donato adds another chapter to memorable season with first hat trick**\
+`In a season where the Blackhawks haven't had many things to celebrate, Donato has been arguably their best and most consistent player.`\
+https://nytimes.com/athletic/6239820/2025/03/29/blackhawks-ryan-donato-hat-trick-golden-knights/
+
 **Resilient Blue Jackets come back twice in wild shootout win over Vancouver**\
 `"I almost had a heart attack a couple of times," Dante Fabbro said. Added Mathieu Olivier: "It's that time of year. It's exciting."`\
 https://nytimes.com/athletic/6239872/2025/03/29/blue-jackets-shootout-win-canucks/
