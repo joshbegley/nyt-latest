@@ -1,3 +1,7 @@
+**Eze isn't a perfect fit for Glasner's system, but his unique talent is crucial to Crystal Palace**\
+`Eberechi Eze made the difference against Fulham in the FA Cup quarter-final — even if he doesn't quite fit Glasner's system at Palace`\
+https://nytimes.com/athletic/6232397/2025/03/29/eze-goal-contributions-crystal-palace-fulham/
+
 **Myanmar Earthquake Toll Surpasses 1,600 Dead Amid Search for Survivors**\
 `Aid workers delivered the first shipments of help to Myanmar, but will have to cross a country buckled by the disaster and divided by civil war, arms dealers and drug syndicates.`\
 https://nytimes.com/2025/03/29/world/asia/myanmar-earthquake.html
