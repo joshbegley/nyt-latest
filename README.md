@@ -1,3 +1,15 @@
+**Inside a UEFA Women's Champions League broadcast production**\
+`The Athletic were invited behind the scenes for TNT Sports' Women's Champions League coverage of Arsenal vs Real Madrid`\
+https://nytimes.com/athletic/6235897/2025/03/29/inside-tnt-uefa-womens-champions-league-broadcast/
+
+**Houston survives Purdue in thriller on Milos Uzan's last-second layup**\
+`The Cougars lost a 10-point second-half lead but quieted a Purdue-friendly crowd in Indianapolis with a slick out-of-bounds play.`\
+https://nytimes.com/athletic/6239993/2025/03/29/houston-purdue-milos-uzan-march-madness/
+
+**Biting ban, FA racism charge, top scorer - Osmajic's eventful and controversial season**\
+`The striker could return from injury to play in the FA Cup quarter-finals. It’s the latest chapter in a season full of controversy`\
+https://nytimes.com/athletic/6236225/2025/03/29/milutin-osmajic-preston-fa-cup/
+
 **Steph Curry returns, Quinten Post shoots as Warriors cruise past Pelicans: 5 observations**\
 `Curry is wearing extra padding for tailbone protection and said he can still feel the soreness, but he can play.`\
 https://nytimes.com/athletic/6239819/2025/03/29/steph-curry-returns-warriors-3-pointers/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6239872/2025/03/29/blue-jackets-shootout-win-canuck
 **Top-seeded Auburn surges past Michigan for 3rd Elite Eight trip**\
 `Auburn pulled off a big second-half swing to beat Michigan in the Sweet 16 and punch a ticket to the Elite Eight against Michigan State.`\
 https://nytimes.com/athletic/6239916/2025/03/29/auburn-michigan-ncaa-tournament-score-recap/
-
-**SEC sends four teams to Elite Eight, third league ever to do so**\
-`Since the first round, when six of the 14 SEC teams in the men's tournament were eliminated, the conference is 11-4.`\
-https://nytimes.com/athletic/6239928/2025/03/29/sec-teams-ncaa-tournament-elite-eight/
-
-**Women's March Madness projections 2025: Does UConn have the advantage?**\
-`What's your team's chance of winning? Find out here. `\
-https://nytimes.com/athletic/6198041/2025/03/29/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**The FA Cup began in 1871 and has had 44 different winners. Is now the time for a 45th?**\
-`The 2025 quarter-finals involve four clubs who have never lifted the FA Cup. Stuart James joins the search for rare first-time winners`\
-https://nytimes.com/athletic/6238018/2025/03/29/fa-cup-first-time-winner-history-trophy/
 
