@@ -1,3 +1,11 @@
+**Megyn Kelly Is Embracing Her Bias and Rejecting the ‘Old Rules’**\
+`The former Fox News and current YouTube host on her professional evolution, conservative media and why she endorsed Trump.`\
+https://nytimes.com/2025/03/29/magazine/megyn-kelly-interview.html
+
+**Megyn Kelly Is Embracing Her Bias and Rejecting the ‘Old Rules’**\
+`The former Fox News and current YouTube host on her professional evolution, conservative media and why she endorsed Trump.`\
+https://nytimes.com/video/podcasts/100000010076931/megyn-kelly-is-embracing-her-bias-and-rejecting-the-old-rules.html
+
 **Trump’s Not-So-Subtle Purpose in Fighting Big Law Firms**\
 `The president has attacked law firms for “frivolous” litigation. But his actions could undermine the basic right of Americans to sue their government.`\
 https://nytimes.com/2025/03/29/business/trump-law-firms-lawsuits.html
