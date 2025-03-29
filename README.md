@@ -1,3 +1,7 @@
+**The first international aid has arrived in Myanmar, but getting it where it needs to go will be hard.**\
+`Allies and detractors have responded to the military government’s pleas for aid, but delivery could be hampered by physical and diplomatic obstacles.`\
+https://nytimes.com/live/2025/03/29/world/earthquake-myanmar-thailand/the-first-international-aid-has-arrived-in-myanmar-but-getting-it-where-it-needs-to-go-will-be-hard
+
 **Women's March Madness projections 2025: Does UConn have the advantage?**\
 `What's your team's chance of winning? Find out here. `\
 https://nytimes.com/athletic/6198041/2025/03/29/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/29/us/utah-flag-pride-ban.html
 **Breanna Stewart returning to Liberty as 2-time MVP inks new deal**\
 `Earlier this month, New York acquired three-time all-defensive team guard Natasha Cloud via a trade with the Connecticut Sun.`\
 https://nytimes.com/athletic/6240312/2025/03/29/breanna-stewart-new-york-liberty-return/
-
-**You Can Never Go Wrong With Olive Oil Cake**\
-`Especially not Samantha Seneviratne’s five-star olive oil cake, which is “elegant, easy and frugal.”`\
-https://nytimes.com/2025/03/29/dining/easy-olive-oil-cake.html
 
