@@ -1,3 +1,15 @@
+**Trump Administration Live Updates: Top Vaccine Official at F.D.A. Resigns, and Criticizes Kennedy**\
+``\
+https://nytimes.com/live/2025/03/29/us/trump-news
+
+**Tate-Pilled Boys Are a Problem for Schools**\
+`What ‘Adolescence’ gets right about the harassment of female authority figures.`\
+https://nytimes.com/2025/03/29/opinion/adolescence-misogyny-schools.html
+
+**In Mandalay, Desperate Rescue Efforts and Sinking Hopes**\
+`Volunteers gathered to help, some coming in from other cities, to do whatever they could in the city near the epicenter of the powerful quake.`\
+https://nytimes.com/2025/03/29/world/asia/myanmar-earthquake-mandalay.html
+
 **U.S. Presses French Companies to Comply With Trump’s Anti-Diversity Policies**\
 `A letter from the American Embassy in France gave firms that do business with the U.S. government five days to indicate their agreement.`\
 https://nytimes.com/2025/03/29/business/france-trump-diversity-inclusion.html

@@ -1,3 +1,15 @@
+**Trump Administration Live Updates: Top Vaccine Official at F.D.A. Resigns, and Criticizes Kennedy**\
+``\
+https://nytimes.com/live/2025/03/29/us/trump-news
+
+**Tate-Pilled Boys Are a Problem for Schools**\
+`What ‘Adolescence’ gets right about the harassment of female authority figures.`\
+https://nytimes.com/2025/03/29/opinion/adolescence-misogyny-schools.html
+
+**In Mandalay, Desperate Rescue Efforts and Sinking Hopes**\
+`Volunteers gathered to help, some coming in from other cities, to do whatever they could in the city near the epicenter of the powerful quake.`\
+https://nytimes.com/2025/03/29/world/asia/myanmar-earthquake-mandalay.html
+
 **U.S. Presses French Companies to Comply With Trump’s Anti-Diversity Policies**\
 `A letter from the American Embassy in France gave firms that do business with the U.S. government five days to indicate their agreement.`\
 https://nytimes.com/2025/03/29/business/france-trump-diversity-inclusion.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/29/world/asia/earthquake-devastates-myanmars-cultura
 **Molly Young on Space and Music**\
 `A Booker-winning novel; a rocking essay collection.`\
 https://nytimes.com/2025/03/29/books/read-like-wind-recommendations.html
-
-**What could FSG's interest in Malaga mean for Liverpool?**\
-`Liverpool's owners are pursuing the idea of buying Malaga. Why are the Spanish club attractive and why does FSG like the multi-club model?`\
-https://nytimes.com/athletic/6239323/2025/03/29/liverpool-malaga-multi-club-fsg/
-
-**Brentford captain Norgaard signs new two-year deal**\
-`The 31-year-old's previous terms had been due to expire in the summer.`\
-https://nytimes.com/athletic/6240167/2025/03/29/christian-norgaard-brentford-contract/
-
-**Men’s March Madness 2025: What to watch for on Day 7**\
-`Can Texas Tech slow down Florida? Can Alabama outduel Duke? Here's everything to know about Saturday's Elite Eight games.`\
-https://nytimes.com/athletic/6239249/2025/03/29/march-madness-2025-what-to-watch-day-7-elite-eight/
 
