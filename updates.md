@@ -1,3 +1,7 @@
+**Myanmar Earthquake Toll Surpasses 1,600 Dead Amid Search for Survivors**\
+`Aid workers delivered the first shipments of help to Myanmar, but will have to cross a country buckled by the disaster and divided by civil war, arms dealers and drug syndicates.`\
+https://nytimes.com/2025/03/29/world/asia/myanmar-earthquake.html
+
 **The gutting of U.S.A.I.D. is likely to hinder recovery efforts in Myanmar.**\
 `By Tim Balk`\
 https://nytimes.com/live/2025/03/29/world/earthquake-myanmar-thailand/the-gutting-of-usaid-is-likely-to-hinder-recovery-efforts-in-myanmar

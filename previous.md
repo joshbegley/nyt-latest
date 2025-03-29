@@ -1,3 +1,7 @@
+**Myanmar Earthquake Toll Surpasses 1,600 Dead Amid Search for Survivors**\
+`Aid workers delivered the first shipments of help to Myanmar, but will have to cross a country buckled by the disaster and divided by civil war, arms dealers and drug syndicates.`\
+https://nytimes.com/2025/03/29/world/asia/myanmar-earthquake.html
+
 **The gutting of U.S.A.I.D. is likely to hinder recovery efforts in Myanmar.**\
 `By Tim Balk`\
 https://nytimes.com/live/2025/03/29/world/earthquake-myanmar-thailand/the-gutting-of-usaid-is-likely-to-hinder-recovery-efforts-in-myanmar
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6239227/2025/03/29/2025-nfl-draft-hats-pins/
 **Gai Gherardi, Who Made Eyeglass Frames Fashion Statements, Dies at 78**\
 `Her L.A. Eyeworks boutique, which she opened with a friend and fellow optician, was a pioneer in turning ordinary frames into bold, artistic accessories.`\
 https://nytimes.com/2025/03/29/business/gai-gherardi-dead.html
-
-**The Rapper Sean Kingston and His Mother Are Convicted in $1 Million Fraud Scheme**\
-`Mr. Kingston, who is best known for his 2007 hit single “Beautiful Girls,” and his mother were charged with defrauding sellers of high-end vehicles, jewelry and other goods, prosecutors said.`\
-https://nytimes.com/2025/03/29/us/sean-kingston-mother-fraud-guilty.html
 
