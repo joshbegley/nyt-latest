@@ -1,3 +1,7 @@
+**Rafael Devers struggling to adjust as full-time DH for Red Sox**\
+`"I know that I haven't done my job and I haven't done what I'm supposed to do," Devers said. "But I know that everything will change."`\
+https://nytimes.com/athletic/6239954/2025/03/29/rafael-devers-full-time-dh-red-sox/
+
 **China has sent a search-and-rescue team to Myanmar.**\
 `By David Pierson`\
 https://nytimes.com/live/2025/03/29/world/earthquake-myanmar-thailand/china-has-sent-a-search-and-rescue-team-to-myanmar

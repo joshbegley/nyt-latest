@@ -1,3 +1,7 @@
+**Rafael Devers struggling to adjust as full-time DH for Red Sox**\
+`"I know that I haven't done my job and I haven't done what I'm supposed to do," Devers said. "But I know that everything will change."`\
+https://nytimes.com/athletic/6239954/2025/03/29/rafael-devers-full-time-dh-red-sox/
+
 **China has sent a search-and-rescue team to Myanmar.**\
 `By David Pierson`\
 https://nytimes.com/live/2025/03/29/world/earthquake-myanmar-thailand/china-has-sent-a-search-and-rescue-team-to-myanmar
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6235897/2025/03/29/inside-tnt-uefa-womens-champions
 **Houston survives Purdue in thriller on Milos Uzan's last-second layup**\
 `The Cougars lost a 10-point second-half lead but quieted a Purdue-friendly crowd in Indianapolis with a slick out-of-bounds play.`\
 https://nytimes.com/athletic/6239993/2025/03/29/houston-purdue-milos-uzan-march-madness/
-
-**Biting ban, FA racism charge, top scorer - Osmajic's eventful and controversial season**\
-`The striker could return from injury to play in the FA Cup quarter-finals. It’s the latest chapter in a season full of controversy`\
-https://nytimes.com/athletic/6236225/2025/03/29/milutin-osmajic-preston-fa-cup/
 
