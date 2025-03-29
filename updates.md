@@ -1,3 +1,19 @@
+**Leaders of Harvard’s Middle Eastern Studies Center Will Leave**\
+`Harvard University has been under pressure by the Trump administration to follow directives related to diversity and combating antisemitism.`\
+https://nytimes.com/2025/03/28/us/leaders-of-harvards-middle-eastern-studies-center-will-leave.html
+
+**Russian tennis star Daria Kasatkina to become permanent resident of Australia**\
+`One of the top tennis players from Russia, a critic of the war in Ukraine, wishes to represent Australia on the international stage.`\
+https://nytimes.com/athletic/6239581/2025/03/28/russian-tennis-daria-kasatkina-war-critic-resident-australia/
+
+**What We Know About Cuts to the Federal Work Force**\
+`Here are the layoffs, buyouts taken and planned reductions, by agency, that The New York Times has confirmed.`\
+https://nytimes.com/interactive/2025/03/28/us/politics/trump-doge-federal-job-cuts.html
+
+**Columbia President Is Replaced as Trump Threatens University’s Funding**\
+`Katrina Armstrong is leaving the post a week after the university agreed to a list of demands from the White House.`\
+https://nytimes.com/2025/03/28/us/columbia-universitys-president-resigns.html
+
 **What we're hearing about the Grizzlies' firing of Taylor Jenkins**\
 `Preseason staff changes set an uneasy tone for the season to come in Memphis, and now there's uncertainty as the playoffs loom.`\
 https://nytimes.com/athletic/6239543/2025/03/28/why-did-taylor-jenkins-get-fired-grizzlies/
