@@ -1,3 +1,7 @@
+**F.A.A. Investigates After Air Force Jets Near Delta Plane Activate Safety Alert**\
+`Four jets came close enough to the Delta flight, which was taking off from Washington’s Reagan National Airport, to set off a collision-avoidance alert.`\
+https://nytimes.com/2025/03/29/us/politics/faa-dca-delta-air-force.html
+
 **Yankees blast 3 homers on first 3 pitches off Brewers’ Nestor Cortes Jr.**\
 `It was the first time in team history that the Yankees hit four home runs in one inning.`\
 https://nytimes.com/athletic/6240555/2025/03/29/yankees-homeruns-highlights-judge-bellinger-goldschmidt-brewers/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/29/us/sean-kingston-mother-fraud-guilty.html
 **Earthquake Damages Myanmar’s Religious and Heritage Sites**\
 `The deadly quake in Myanmar damaged over 3,000 buildings, including about 150 mosques and pagodas, in the government’s latest count on Saturday morning.`\
 https://nytimes.com/video/world/asia/100000010080759/myanmar-heritage-sites-damage-earthquake.html
-
-**In Bangkok, Grim Vigils as People Seek Word of Relatives at Collapsed Building**\
-`The collapse of a 30-story building under construction was “not normal,” an engineering expert said. It was one of the biggest projects ever done by a Chinese state-owned company.`\
-https://nytimes.com/2025/03/29/world/asia/bangkok-building-collapse.html
 
