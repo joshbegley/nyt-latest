@@ -1,3 +1,7 @@
+**U.S. Presses French Companies to Comply With Trump’s Anti-Diversity Policies**\
+`A letter from the American Embassy in France gave firms that do business with the U.S. government five days to indicate their agreement.`\
+https://nytimes.com/2025/03/29/business/france-trump-diversity-inclusion.html
+
 **Elite Eight is old money vs. new money — and that new money’s chanting: 'SEC! SEC! SEC!'**\
 `The Elite Eight is simply the best of the best, with eight of the top nine teams in KenPom (Gonzaga being the exception) still playing.`\
 https://nytimes.com/athletic/6240182/2025/03/29/ncaa-tournament-elite-eight-sec-duke/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6240167/2025/03/29/christian-norgaard-brentford-con
 **Men’s March Madness 2025: What to watch for on Day 7**\
 `Can Texas Tech slow down Florida? Can Alabama outduel Duke? Here's everything to know about Saturday's Elite Eight games.`\
 https://nytimes.com/athletic/6239249/2025/03/29/march-madness-2025-what-to-watch-day-7-elite-eight/
-
-**Which D.C. team has had the best cherry blossom jersey? We rank them**\
-`Four D.C. teams have now had a jersey with cherry blossom inspirations`\
-https://nytimes.com/athletic/6238605/2025/03/29/washington-nationals-capitals-wizards-dc-united-cherry-blossom/
 
