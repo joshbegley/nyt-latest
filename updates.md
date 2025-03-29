@@ -1,3 +1,11 @@
+**No Second Lady, No Problem: Greenland’s Dog Sled Race Goes Barking On**\
+`One of Greenland’s national pastimes was nearly hijacked this week after the White House said the Second Lady would attend. She didn’t. But a lot of people talked about this as the mushers did their work.`\
+https://nytimes.com/2025/03/29/world/europe/greenland-dog-sled-race-vance-trump.html
+
+**TCU tops Notre Dame as Hailey Van Lith impresses to reach fifth career Elite Eight**\
+`Notre Dame shot just 31 percent from the field in the game and made just 3 of 15 shots from 3.`\
+https://nytimes.com/athletic/6240670/2025/03/29/tcu-notre-dame-womens-tournament-score-hailey-van-lith/
+
 **Johnny Mathis Is Retiring From Touring After Almost 70 Years of Crooning**\
 `Mr. Mathis, 89, a pioneer of romantic ballads, is leaving the stage because of his age and memory problems, his website said.`\
 https://nytimes.com/2025/03/29/us/johnny-mathis-retire-concerts.html

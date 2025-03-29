@@ -1,3 +1,7 @@
+**No Second Lady, No Problem: Greenland’s Dog Sled Race Goes Barking On**\
+`One of Greenland’s national pastimes was nearly hijacked this week after the White House said the Second Lady would attend. She didn’t. But a lot of people talked about this as the mushers did their work.`\
+https://nytimes.com/2025/03/29/world/europe/greenland-dog-sled-race-vance-trump.html
+
 **Johnny Mathis Is Retiring From Touring After Almost 70 Years of Crooning**\
 `Mr. Mathis, 89, a pioneer of romantic ballads, is leaving the stage because of his age and memory problems, his website said.`\
 https://nytimes.com/2025/03/29/us/johnny-mathis-retire-concerts.html
@@ -14,8 +18,8 @@ https://nytimes.com/athletic/6240716/2025/03/29/flaujae-johnson-lsu-ucla-health-
 `Wrexham are on the rise — and a look at Exeter, who they beat on Saturday, shows how a change in business model is making it a rapid process`\
 https://nytimes.com/athletic/6234919/2025/03/29/exeter-wrexham-hollywood-money-injection/
 
-**TCU tops Notre Dame as Hailey Van Lith shines to reach fifth career Elite Eight**\
-`Notre Dame shot just 31 percent from the field in the game and made just 3-of-15 shots from 3.`\
+**TCU tops Notre Dame as Hailey Van Lith impresses to reach fifth career Elite Eight**\
+`Notre Dame shot just 31 percent from the field in the game and made just 3 of 15 shots from 3.`\
 https://nytimes.com/athletic/6240670/2025/03/29/tcu-notre-dame-womens-tournament-score-hailey-van-lith/
 
 **‘Should I Fire Him?’ Inside Trump’s Deliberations Over the Fate of Michael Waltz**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6240620/2025/03/29/bills-cb-christian-benford-agree
 **Eze isn't a perfect fit for Glasner's system, but his unique talent is crucial to Crystal Palace**\
 `Eberechi Eze made the difference against Fulham in the FA Cup quarter-final — even if he doesn't quite fit Glasner's system at Palace`\
 https://nytimes.com/athletic/6232397/2025/03/29/eze-goal-contributions-crystal-palace-fulham/
-
-**Myanmar Earthquake Toll Surpasses 1,600 Dead Amid Search for Survivors**\
-`Aid workers delivered the first shipments of help to Myanmar, but will have to cross a country buckled by the disaster and divided by civil war, arms dealers and drug syndicates.`\
-https://nytimes.com/2025/03/29/world/asia/myanmar-earthquake.html
 
