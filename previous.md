@@ -1,3 +1,7 @@
+**Flau’jae Johnson available for LSU's Elite Eight showdown with UCLA**\
+`In last year's tournament, Johnson exploded for 24 points and 12 rebounds against UCLA, leading the Tigers to the Elite Eight.`\
+https://nytimes.com/athletic/6240716/2025/03/29/flaujae-johnson-lsu-ucla-health-availability/
+
 **In Exeter, a match to show how Reynolds and McElhenney have supercharged Wrexham's rise**\
 `Wrexham are on the rise — and a look at Exeter, who they beat on Saturday, shows how a change in business model is making it a rapid process`\
 https://nytimes.com/athletic/6234919/2025/03/29/exeter-wrexham-hollywood-money-injection/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/03/29/world/earthquake-myanmar-thailand/the-guttin
 **F.A.A. Investigates After Air Force Jets Near Delta Plane Activate Safety Alert**\
 `Four jets came close enough to the Delta flight, which was taking off from Washington’s Reagan National Airport, to set off a collision-avoidance alert.`\
 https://nytimes.com/2025/03/29/us/politics/faa-dca-delta-air-force.html
-
-**Yankees blast 9 HRs to set franchise record, including 3 on first 3 pitches**\
-`It was the first time in team history that the Yankees hit four home runs in one inning.`\
-https://nytimes.com/athletic/6240555/2025/03/29/yankees-homeruns-highlights-judge-bellinger-goldschmidt-brewers/
 

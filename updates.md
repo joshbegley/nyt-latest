@@ -1,3 +1,7 @@
+**Flau’jae Johnson available for LSU's Elite Eight showdown with UCLA**\
+`In last year's tournament, Johnson exploded for 24 points and 12 rebounds against UCLA, leading the Tigers to the Elite Eight.`\
+https://nytimes.com/athletic/6240716/2025/03/29/flaujae-johnson-lsu-ucla-health-availability/
+
 **In Exeter, a match to show how Reynolds and McElhenney have supercharged Wrexham's rise**\
 `Wrexham are on the rise — and a look at Exeter, who they beat on Saturday, shows how a change in business model is making it a rapid process`\
 https://nytimes.com/athletic/6234919/2025/03/29/exeter-wrexham-hollywood-money-injection/
