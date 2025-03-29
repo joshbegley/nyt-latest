@@ -1,3 +1,7 @@
+**Syria’s Leader Announces New Government After Ousting Dictator**\
+`The choice of cabinet officials was seen as a litmus test for whether the rebels who ousted Bashar al-Assad would deliver on a pledge to create a government representative of all Syrians.`\
+https://nytimes.com/2025/03/29/world/middleeast/syria-government-al-shara.html
+
 **Texas holds off Tennessee, returns to Elite Eight for fourth time in 5 years**\
 `As in the January meeting between Texas and Tennessee, neither team pulled away.`\
 https://nytimes.com/athletic/6240886/2025/03/29/texas-beats-tennessee-elite-eight-return/
