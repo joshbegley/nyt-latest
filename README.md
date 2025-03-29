@@ -1,5 +1,5 @@
 **Brentford captain Norgaard signs new two-year deal**\
-`The 31-year-old's pervious terms had been due to expire in the summer.`\
+`The 31-year-old's previous terms had been due to expire in the summer.`\
 https://nytimes.com/athletic/6240167/2025/03/29/christian-norgaard-brentford-contract/
 
 **Men’s March Madness 2025: What to watch for on Day 7**\
