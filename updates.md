@@ -1,3 +1,11 @@
+**Mookie Betts, still regaining weight after stomach virus, slugs walk-off HR: 'He's super-human'**\
+`Betts has only regained about half the weight he lost, but hit two home runs in Friday's win.`\
+https://nytimes.com/athletic/6240096/2025/03/29/mookie-betts-stomach-virus-walk-off-hr-dodgers/
+
+**The Many Overlapping Scandals of the Pete Hegseth Group Chat**\
+`They may be even more serious than the one we’ve been focused on.`\
+https://nytimes.com/2025/03/29/opinion/group-chat-security-signal-president.html
+
 **Men's March Madness projections 2025: Who will advance to the Final Four?**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/03/29/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/

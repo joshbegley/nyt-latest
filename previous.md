@@ -1,3 +1,11 @@
+**Mookie Betts, still regaining weight after stomach virus, slugs walk-off HR: 'He's super-human'**\
+`Betts has only regained about half the weight he lost, but hit two home runs in Friday's win.`\
+https://nytimes.com/athletic/6240096/2025/03/29/mookie-betts-stomach-virus-walk-off-hr-dodgers/
+
+**The Many Overlapping Scandals of the Pete Hegseth Group Chat**\
+`They may be even more serious than the one we’ve been focused on.`\
+https://nytimes.com/2025/03/29/opinion/group-chat-security-signal-president.html
+
 **Men's March Madness projections 2025: Who will advance to the Final Four?**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/03/29/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6238442/2025/03/29/blackhawks-oliver-moore-nhl-cont
 **Missed opportunities and another bullpen loss: Braves' first 2 defeats bear similarities**\
 `Atlanta is just 1-for-16 with runners in scoring position through two games.`\
 https://nytimes.com/athletic/6240078/2025/03/29/braves-struggles-bullpen-padres/
-
-**On Dodgers Ring Day, Jack Flaherty showed why the Tigers are happy to have him back**\
-`“It kind of felt like my first time back here, my first start in 2018 where it was more emotion than heart rate or anything,” Flaherty said.`\
-https://nytimes.com/athletic/6240109/2025/03/29/tigers-jack-flaherty-dodgers-ring-day-return/
-
-**Partial Eclipse Captivates Much of the Northern Hemisphere**\
-`The moon slipped between the Earth and the sun on Saturday, casting a shadow on our planet in parts of the United States, Canada, the Caribbean, Europe, Russia and Africa.`\
-https://nytimes.com/2025/03/29/science/solar-partial-eclipse-photos.html
 
