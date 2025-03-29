@@ -1,3 +1,7 @@
+**The Secret History of the War in Ukraine**\
+`This is the untold story of America’s hidden role in Ukrainian military operations against Russia’s invading armies.`\
+https://nytimes.com/interactive/2025/03/29/world/europe/us-ukraine-military-war-wiesbaden.html
+
 **Yankees' uniquely designed new bats draw attention during offensive barrage**\
 `YES announcer Michael Kay pointed out during the broadcast that several players had been using a design with a barrel closer to the hands. `\
 https://nytimes.com/athletic/6240911/2025/03/29/yankees-new-bats-torpedo-home-runs/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/6240911/2025/03/29/yankees-new-bats-torpedo-home-ru
 `The choice of cabinet officials was seen as a litmus test for whether the rebels who ousted Bashar al-Assad would deliver on a pledge to create a government representative of all Syrians.`\
 https://nytimes.com/2025/03/29/world/middleeast/syria-government-al-shara.html
 
-**Texas holds off Tennessee, returns to Elite Eight for fourth time in 5 years**\
+**Texas holds off Tennessee, returns to Elite Eight for fourth time in 5 years: Takwaways**\
 `As in the January meeting between Texas and Tennessee, neither team pulled away.`\
 https://nytimes.com/athletic/6240886/2025/03/29/texas-beats-tennessee-elite-eight-return/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6240810/2025/03/29/former-white-sox-angels-complica
 **Mark My Words**\
 `Simeon Seigel’s puzzle rewards the solver who looks beyond the letters.`\
 https://nytimes.com/2025/03/29/crosswords/daily-puzzle-2025-03-30.html
-
-**White House Correspondents Cancel Comedian Booked for Annual Dinner**\
-`The comedian Amber Ruffin had been slated to perform at the event in April. The correspondents’ association said it wanted to avoid focusing “on the politics of division.”`\
-https://nytimes.com/2025/03/29/us/politics/white-house-correspondents-dinner-amber-ruffin.html
 

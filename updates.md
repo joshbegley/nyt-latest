@@ -1,3 +1,11 @@
+**The Secret History of the War in Ukraine**\
+`This is the untold story of America’s hidden role in Ukrainian military operations against Russia’s invading armies.`\
+https://nytimes.com/interactive/2025/03/29/world/europe/us-ukraine-military-war-wiesbaden.html
+
+**Texas holds off Tennessee, returns to Elite Eight for fourth time in 5 years: Takwaways**\
+`As in the January meeting between Texas and Tennessee, neither team pulled away.`\
+https://nytimes.com/athletic/6240886/2025/03/29/texas-beats-tennessee-elite-eight-return/
+
 **Yankees' uniquely designed new bats draw attention during offensive barrage**\
 `YES announcer Michael Kay pointed out during the broadcast that several players had been using a design with a barrel closer to the hands. `\
 https://nytimes.com/athletic/6240911/2025/03/29/yankees-new-bats-torpedo-home-runs/
