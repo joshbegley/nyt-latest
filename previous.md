@@ -1,3 +1,7 @@
+**You Can Never Go Wrong With Olive Oil Cake**\
+`Especially not Samantha Seneviratne’s five-star olive oil cake, which is “elegant, easy and frugal.”`\
+https://nytimes.com/2025/03/29/dining/easy-olive-oil-cake.html
+
 **Trump Order Could Cripple Federal Worker Unions Fighting DOGE Cuts**\
 `The move added to the list of actions by President Trump that use the powers of his office to weaken perceived enemies.`\
 https://nytimes.com/2025/03/29/us/politics/federal-worker-unions-doge.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6239103/2025/03/29/bucks-nba-playoff-chase-knicks-e
 **Trump Administration Live Updates: Top Vaccine Official at F.D.A. Resigns, and Criticizes Kennedy**\
 ``\
 https://nytimes.com/live/2025/03/29/us/trump-news
-
-**Tate-Pilled Boys Are a Problem for Schools**\
-`What ‘Adolescence’ gets right about the harassment of female authority figures.`\
-https://nytimes.com/2025/03/29/opinion/adolescence-misogyny-schools.html
 

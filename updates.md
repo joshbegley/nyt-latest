@@ -1,3 +1,7 @@
+**You Can Never Go Wrong With Olive Oil Cake**\
+`Especially not Samantha Seneviratne’s five-star olive oil cake, which is “elegant, easy and frugal.”`\
+https://nytimes.com/2025/03/29/dining/easy-olive-oil-cake.html
+
 **Trump Order Could Cripple Federal Worker Unions Fighting DOGE Cuts**\
 `The move added to the list of actions by President Trump that use the powers of his office to weaken perceived enemies.`\
 https://nytimes.com/2025/03/29/us/politics/federal-worker-unions-doge.html
