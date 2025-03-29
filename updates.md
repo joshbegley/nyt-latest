@@ -1,3 +1,15 @@
+**The first international aid has arrived in Myanmar, but getting it where it needs to go will be hard.**\
+`Allies and detractors have responded to the military government’s pleas for aid, but delivery could be hampered by physical and diplomatic obstacles.`\
+https://nytimes.com/live/2025/03/29/world/earthquake-myanmar-thailand/the-first-international-aid-has-arrived-in-myanmar-but-getting-it-where-it-needs-to-go-will-be-hard
+
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/03/29/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
+**Silva: Wharton deserved 'clear' second yellow in Fulham's FA Cup loss**\
+`Wharton went unpunished after appearing to kick out and catch Rodrigo Muniz in the first half.`\
+https://nytimes.com/athletic/6240452/2025/03/29/adam-wharton-yellow-card-crystal-palace-fulham/
+
 **Found: British Military Documents, Scattered on the Street**\
 `A man in Northern England said he had stumbled upon hundreds of documents, including threat assessments, armory codes and detailed base patrols. The Ministry of Defense said it was investigating.`\
 https://nytimes.com/2025/03/29/world/europe/military-documents-newcastle.html
