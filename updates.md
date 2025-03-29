@@ -1,3 +1,15 @@
+**Inside a UEFA Women's Champions League broadcast production**\
+`The Athletic were invited behind the scenes for TNT Sports' Women's Champions League coverage of Arsenal vs Real Madrid`\
+https://nytimes.com/athletic/6235897/2025/03/29/inside-tnt-uefa-womens-champions-league-broadcast/
+
+**Houston survives Purdue in thriller on Milos Uzan's last-second layup**\
+`The Cougars lost a 10-point second-half lead but quieted a Purdue-friendly crowd in Indianapolis with a slick out-of-bounds play.`\
+https://nytimes.com/athletic/6239993/2025/03/29/houston-purdue-milos-uzan-march-madness/
+
+**Biting ban, FA racism charge, top scorer - Osmajic's eventful and controversial season**\
+`The striker could return from injury to play in the FA Cup quarter-finals. It’s the latest chapter in a season full of controversy`\
+https://nytimes.com/athletic/6236225/2025/03/29/milutin-osmajic-preston-fa-cup/
+
 **Steph Curry returns, Quinten Post shoots as Warriors cruise past Pelicans: 5 observations**\
 `Curry is wearing extra padding for tailbone protection and said he can still feel the soreness, but he can play.`\
 https://nytimes.com/athletic/6239819/2025/03/29/steph-curry-returns-warriors-3-pointers/
