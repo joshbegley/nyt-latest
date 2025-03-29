@@ -1,3 +1,7 @@
+**Twins off to a slow start they could ill afford**\
+`Despite a good outing from starting pitcher Joe Ryan, the offense was held in check again as the Cardinals downed the Twins 5-1 on Saturday.`\
+https://nytimes.com/athletic/6240943/2025/03/29/twins-slow-start-cardinals/
+
 **Women's March Madness projections 2025: Does UConn have the advantage?**\
 `What's your team's chance of winning? Find out here. `\
 https://nytimes.com/athletic/6198041/2025/03/29/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/29/world/asia/taliban-appears-to-free-american-woman
 **Specter of Auto Tariffs Spurs Some Car Buyers to Rush Purchases**\
 `“Prices are going to shoot up now,” one shopper said. But some dealers said that economic concerns might be keeping people away.`\
 https://nytimes.com/2025/03/29/business/economy/auto-tariffs-buyers-dealers.html
-
-**Former White Sox stars on the Angels experience a complicated homecoming**\
-`It's been an interesting homecoming for two players once believed to be part of the White Sox's young core.`\
-https://nytimes.com/athletic/6240810/2025/03/29/former-white-sox-angels-complicated-homecoming/
 
