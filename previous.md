@@ -1,3 +1,11 @@
+**What we're hearing about the Grizzlies' firing of Taylor Jenkins**\
+`Preseason staff changes set an uneasy tone for the season to come in Memphis, and now there's uncertainty as the playoffs loom.`\
+https://nytimes.com/athletic/6239543/2025/03/28/why-did-taylor-jenkins-get-fired-grizzlies/
+
+**State Auditor to Investigate Sheriff Who Used Inmate Labor on Family Farm**\
+`In Mississippi, a sheriff accused of staffing his family’s commercial chicken farm with inmates defended the practice, saying he always paid them.`\
+https://nytimes.com/2025/03/28/us/state-auditor-to-investigate-mississippi-sheriff.html
+
 **South Carolina overcomes shooting woes, outlasts Terps to reach Elite Eight**\
 `MiLaysia Fulwiley scores 23 points off the bench to rescue Gamecocks, but will offensive struggles be a problem moving forward?`\
 https://nytimes.com/athletic/6239597/2025/03/28/south-carolina-maryland-sweet-16-result-score/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6239545/2025/03/28/paige-bueckers-juju-watkins-knee
 **Trump Is Giving Europe Vertigo, and Not Just About Ukraine**\
 `The split between Europe and the United States over how to end the war is exposing a new, disorienting reality for an alliance in trouble.`\
 https://nytimes.com/2025/03/28/world/europe/trump-europe-ukraine-russia.html
-
-**Rubio Says He Has Revoked 300 or More Visas in Trump’s Deportation Push**\
-`The secretary of state said he was trying to expel “lunatics” who had taken part in campus movements, as well as criminals. Some are permanent U.S. residents.`\
-https://nytimes.com/2025/03/28/us/politics/rubio-immigration-students-ozturk-chung-khalil.html
-
-**At Least 3 Killed and Hundreds Rescued in South Texas Flooding, Officials Say**\
-`More than 20 inches of rain — about a half-year’s worth — fell in some areas near the border with Mexico on Thursday and Friday.`\
-https://nytimes.com/2025/03/28/us/texas-flooding-deaths.html
 
