@@ -1,3 +1,11 @@
+**Earthquake Devastates Myanmar’s Cultural Sites**\
+`The authorities said that thousands of buildings had been damaged, including about 150 mosques and pagodas.`\
+https://nytimes.com/2025/03/29/world/asia/earthquake-devastates-myanmars-cultural-sites.html
+
+**Molly Young on Space and Music**\
+`A Booker-winning novel; a rocking essay collection.`\
+https://nytimes.com/2025/03/29/books/read-like-wind-recommendations.html
+
 **What could FSG's interest in Malaga mean for Liverpool?**\
 `Liverpool's owners are pursuing the idea of buying Malaga. Why are the Spanish club attractive and why does FSG like the multi-club model?`\
 https://nytimes.com/athletic/6239323/2025/03/29/liverpool-malaga-multi-club-fsg/
@@ -30,12 +38,4 @@ https://nytimes.com/2025/03/29/opinion/ai-tech-innovation.html
 **The Democrats Are in Denial About 2024**\
 `Party leaders have embraced convenient excuses. This perilous political moment requires more self-reflection and honesty.`\
 https://nytimes.com/2025/03/29/opinion/democrats-strategy-2024.html
-
-**8 Pieces of Free Advice for Trump’s National Security Team**\
-`Trust your staff, admit mistakes, don’t embarrass the president.`\
-https://nytimes.com/2025/03/29/opinion/signal-chat-security.html
-
-**Rays prepare for a sunny season of home-field challenges (and maybe home-field advantages)**\
-`There’s going to be no place in baseball this summer quite like Steinbrenner Field, and the Rays are trying to make that heat into an edge. `\
-https://nytimes.com/athletic/6239634/2025/03/29/rays-summer-heat-steinbrenner-field-advantage/
 
