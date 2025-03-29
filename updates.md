@@ -1,4 +1,8 @@
 **Yankees blast 3 homers on first 3 pitches off Brewers’ Nestor Cortes Jr.**\
+`It was the first time in team history that the Yankees hit four home runs in one inning.`\
+https://nytimes.com/athletic/6240555/2025/03/29/yankees-homeruns-highlights-judge-bellinger-goldschmidt-brewers/
+
+**Yankees blast 3 homers on first 3 pitches off Brewers’ Nestor Cortes Jr.**\
 `NEW YORK — It surely wasn’t how Milwaukee Brewers starting pitcher Nestor Cortes Jr.`\
 https://nytimes.com/athletic/6240555/2025/03/29/yankees-homeruns-highlights-judge-bellinger-goldschmidt-brewers/
 
