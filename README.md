@@ -1,3 +1,11 @@
+**First-round draft pick Oliver Moore signs with Blackhawks after NCAA season ends**\
+`Moore, the 19th pick in the 2023 NHL Draft, ended his college career at Minnesota with a loss to UMass on Thursday.`\
+https://nytimes.com/athletic/6238442/2025/03/29/blackhawks-oliver-moore-nhl-contract/
+
+**Missed opportunities and another bullpen loss: Braves' first 2 defeats bear similarities**\
+`Atlanta is just 1-for-16 with runners in scoring position through two games.`\
+https://nytimes.com/athletic/6240078/2025/03/29/braves-struggles-bullpen-padres/
+
 **On Dodgers Ring Day, Jack Flaherty showed why the Tigers are happy to have him back**\
 `“It kind of felt like my first time back here, my first start in 2018 where it was more emotion than heart rate or anything,” Flaherty said.`\
 https://nytimes.com/athletic/6240109/2025/03/29/tigers-jack-flaherty-dodgers-ring-day-return/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/29/world/asia/myanmar-earthquake-mandalay.html
 **U.S. Presses French Companies to Comply With Trump’s Anti-Diversity Policies**\
 `A letter from the American Embassy in France gave firms that do business with the U.S. government five days to indicate their agreement.`\
 https://nytimes.com/2025/03/29/business/france-trump-diversity-inclusion.html
-
-**Elite Eight is old money vs. new money — and that new money’s chanting: 'SEC! SEC! SEC!'**\
-`The Elite Eight is simply the best of the best, with eight of the top nine teams in KenPom (Gonzaga being the exception) still playing.`\
-https://nytimes.com/athletic/6240182/2025/03/29/ncaa-tournament-elite-eight-sec-duke/
-
-**What does John Tavares' hot shooting mean for his future with the Leafs?**\
-`Tavares is riding the best shooting percentage of his entire career this season, but let's dive into some of the other factors at play.`\
-https://nytimes.com/athletic/6235690/2025/03/29/maple-leafs-john-tavares-shooting/
 

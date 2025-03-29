@@ -1,3 +1,11 @@
+**On Dodgers Ring Day, Jack Flaherty showed why the Tigers are happy to have him back**\
+`“It kind of felt like my first time back here, my first start in 2018 where it was more emotion than heart rate or anything,” Flaherty said.`\
+https://nytimes.com/athletic/6240109/2025/03/29/tigers-jack-flaherty-dodgers-ring-day-return/
+
+**Partial Eclipse Captivates Much of the Northern Hemisphere**\
+`The moon slipped between the Earth and the sun on Saturday, casting a shadow on our planet in parts of the United States, Canada, the Caribbean, Europe, Russia and Africa.`\
+https://nytimes.com/2025/03/29/science/solar-partial-eclipse-photos.html
+
 **Using a ‘Tiny Bit of Math’ May Improve Your Heart Health, Study Suggests**\
 `Your average daily heart rate is a useful metric; so is your daily step count. Combining the two might be even better.`\
 https://nytimes.com/2025/03/29/health/heart-health-steps-smartwatch.html
