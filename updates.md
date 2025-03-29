@@ -1,3 +1,8 @@
+**NHL bold predictions: Which preseason picks we got right and wrong**\
+`Which preseason bold predictions get a pass, fail or incomplete? We look back at all 32 as the season winds down.
+`\
+https://nytimes.com/athletic/6239219/2025/03/29/nhl-season-predictions-playoffs/
+
 **Brentford captain Norgaard signs new two-year deal**\
 `The 31-year-old's previous terms had been due to expire in the summer.`\
 https://nytimes.com/athletic/6240167/2025/03/29/christian-norgaard-brentford-contract/

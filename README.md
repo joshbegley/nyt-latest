@@ -1,3 +1,7 @@
+**What could FSG's interest in Malaga mean for Liverpool?**\
+`Liverpool's owners are pursuing the idea of buying Malaga. Why are the Spanish club attractive and why does FSG like the multi-club model?`\
+https://nytimes.com/athletic/6239323/2025/03/29/liverpool-malaga-multi-club-fsg/
+
 **Brentford captain Norgaard signs new two-year deal**\
 `The 31-year-old's previous terms had been due to expire in the summer.`\
 https://nytimes.com/athletic/6240167/2025/03/29/christian-norgaard-brentford-contract/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/03/29/opinion/signal-chat-security.html
 **Rays prepare for a sunny season of home-field challenges (and maybe home-field advantages)**\
 `There’s going to be no place in baseball this summer quite like Steinbrenner Field, and the Rays are trying to make that heat into an edge. `\
 https://nytimes.com/athletic/6239634/2025/03/29/rays-summer-heat-steinbrenner-field-advantage/
-
-**A Jewish Comedian Walks Into a Theater in Minnesota**\
-`Alex Edelman HBO’s comedy special about white nationalism hits different now.`\
-https://nytimes.com/2025/03/29/opinion/alex-edelman-just-for-us-jewish-identity.html
 
