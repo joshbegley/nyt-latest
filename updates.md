@@ -1,3 +1,11 @@
+**Men's March Madness projections 2025: Who will advance to the Final Four?**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/03/29/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
+**Texas found its point guard of the future ... she delivered in the Sweet 16**\
+`Bryanna Preston's combined play with veteran Rori Harmon carried Texas into the Elite Eight.`\
+https://nytimes.com/athletic/6241023/2025/03/29/texas-point-guard-bryanna-preston-rori-harmon/
+
 **‘No Cake, No Entry’: More Than 1,000 Picnic to Celebrate the Love of Cake**\
 `No crumbs were left behind at Cake Picnic in San Francisco on Saturday as attendees gawked, photographed and ultimately ate 1,387 cakes.`\
 https://nytimes.com/2025/03/29/us/cake-picnic-san-francisco.html
