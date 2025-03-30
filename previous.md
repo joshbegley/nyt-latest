@@ -1,3 +1,7 @@
+**FA Cup defeat to Forest will be painful — Brighton missed a huge opportunity**\
+`It was the most open FA Cup competition in years - so defeat on penalties to Forest in the quarter-finals will be extra painful for Brighton`\
+https://nytimes.com/athletic/6236217/2025/03/30/brighton-forest-fa-cup-missed-opportunity/
+
 **How Tigers' Spencer Torkelson got his groove back: 'I've got a lot of fight in me'**\
 `After an impressive spring training, Torkelson went 4-for-9 with a home run and five walks in the Tigers' opening series.`\
 https://nytimes.com/athletic/6241388/2025/03/30/tigers-spencer-torkelson-hot-start/
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/03/30/todays-new-york-times
 **Take It From Ben Franklin: Attempts to Annex Canada End ‘Pitifully Unwell’**\
 `It was almost as though America’s northern neighbor were an entirely different country.`\
 https://nytimes.com/2025/03/30/opinion/canada-annex-us-trump.html
-
-**Optimization Culture Comes for Grief**\
-`A.I. “deadbots” and avatars are ushering in a new era of techno-spiritualism.`\
-https://nytimes.com/2025/03/30/opinion/grief-tech-ai-optimized.html
 
