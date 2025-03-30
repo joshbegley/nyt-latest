@@ -1,3 +1,7 @@
+**Dodgers are prepared to live with Sasaki's growing pains (for now)**\
+`With how raw Sasaki looks, it's a good thing the 5-0 Dodgers have a wealth of talent around him.`\
+https://nytimes.com/athletic/6241375/2025/03/30/roki-sasaki-growing-pains-dodgers/
+
 **Dansby Swanson gets the save for Cubs with heads-up defense in bottom of the 9th**\
 `With the tying run in scoring position for Arizona, Swanson used instincts and athleticism to make a game-saving tag at third base.`\
 https://nytimes.com/athletic/6241338/2025/03/30/cubs-dansby-swanson-pete-crow-armstrong-defense/

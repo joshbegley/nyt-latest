@@ -1,3 +1,7 @@
+**Canada coach Marsch says 50 people warned him after response to Trump**\
+`Canada's head coach speaks to The Athletic about the fallout from his public comments about the U.S. president`\
+https://nytimes.com/athletic/6238125/2025/03/30/jesse-marsch-trump-canada-us/
+
 **Dodgers are prepared to live with Sasaki's growing pains (for now)**\
 `With how raw Sasaki looks, it's a good thing the 5-0 Dodgers have a wealth of talent around him.`\
 https://nytimes.com/athletic/6241375/2025/03/30/roki-sasaki-growing-pains-dodgers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6241302/2025/03/30/braves-lose-to-padres-spencer-sc
 **With JuJu Watkins as inspiration, USC players aren't doubting their chances**\
 `"The prevailing feeling is that we can still do something together, and that's what JuJu wants us to do.”`\
 https://nytimes.com/athletic/6241317/2025/03/30/juju-watkins-usc-elite-eight-inspiration/
-
-**Isaac Paredes' influence, late-game outfield moves and Chas McCormick's role: Astros takeaways**\
-`Houston hopes Paredes' plate discipline is contagious, a reliever is gaining Joe Espada's trust, plus more observations on the first series.`\
-https://nytimes.com/athletic/6241276/2025/03/30/astros-isaac-paredes-chas-mccormick-role/
 

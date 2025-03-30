@@ -1,3 +1,7 @@
+**Dodgers are prepared to live with Sasaki's growing pains (for now)**\
+`With how raw Sasaki looks, it's a good thing the 5-0 Dodgers have a wealth of talent around him.`\
+https://nytimes.com/athletic/6241375/2025/03/30/roki-sasaki-growing-pains-dodgers/
+
 **Dansby Swanson gets the save for Cubs with heads-up defense in bottom of the 9th**\
 `With the tying run in scoring position for Arizona, Swanson used instincts and athleticism to make a game-saving tag at third base.`\
 https://nytimes.com/athletic/6241338/2025/03/30/cubs-dansby-swanson-pete-crow-armstrong-defense/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6241317/2025/03/30/juju-watkins-usc-elite-eight-ins
 **Isaac Paredes' influence, late-game outfield moves and Chas McCormick's role: Astros takeaways**\
 `Houston hopes Paredes' plate discipline is contagious, a reliever is gaining Joe Espada's trust, plus more observations on the first series.`\
 https://nytimes.com/athletic/6241276/2025/03/30/astros-isaac-paredes-chas-mccormick-role/
-
-**Farke has backed Meslier after every mistake - Leeds will judge him on what he does next**\
-`If Farke stands by Meslier again and the club fail to win promotion with the league's best squad he will be remembered as a stubborn failure`\
-https://nytimes.com/athletic/6240801/2025/03/30/meslier-farke-mistake-leeds/
 
