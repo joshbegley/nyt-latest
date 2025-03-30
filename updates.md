@@ -1,3 +1,11 @@
+**Closing time: Florida rallies past Texas Tech to advance to first Final Four since 2014**\
+`Texas Tech did nearly everything right for 38 minutes, but missed free throws gave the Gators life and opened the door for an epic comeback.`\
+https://nytimes.com/athletic/6241009/2025/03/29/texas-tech-florida-elite-eight-final-four/
+
+**Texas found its point guard of the future. Bryanna Preston delivers in the Sweet 16**\
+`Bryanna Preston's combined play with veteran Rori Harmon carried Texas into the Elite Eight.`\
+https://nytimes.com/athletic/6241023/2025/03/29/texas-point-guard-bryanna-preston-rori-harmon/
+
 **Men's March Madness projections 2025: Who will advance to the Final Four?**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/03/29/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/

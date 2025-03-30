@@ -1,3 +1,7 @@
+**Closing time: Florida rallies past Texas Tech to advance to first Final Four since 2014**\
+`Texas Tech did nearly everything right for 38 minutes, but missed free throws gave the Gators life and opened the door for an epic comeback.`\
+https://nytimes.com/athletic/6241009/2025/03/29/texas-tech-florida-elite-eight-final-four/
+
 **Men's March Madness projections 2025: Who will advance to the Final Four?**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/03/29/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
@@ -10,7 +14,7 @@ https://nytimes.com/2025/03/29/us/cake-picnic-san-francisco.html
 `Text by Laura Morton and Simon J. Levien`\
 https://nytimes.com/card/2025/03/30/us/let-them-eat-cake
 
-**Texas found its point guard of the future ... she delivered in the Sweet 16**\
+**Texas found its point guard of the future. Bryanna Preston delivers in the Sweet 16**\
 `Bryanna Preston's combined play with veteran Rori Harmon carried Texas into the Elite Eight.`\
 https://nytimes.com/athletic/6241023/2025/03/29/texas-point-guard-bryanna-preston-rori-harmon/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6198041/2025/03/29/womens-march-madness-projections
 **The Secret History of the War in Ukraine**\
 `This is the untold story of America’s hidden role in Ukrainian military operations against Russia’s invading armies.`\
 https://nytimes.com/interactive/2025/03/29/world/europe/us-ukraine-military-war-wiesbaden.html
-
-**Yankees' uniquely designed new bats draw attention during offensive barrage**\
-`YES announcer Michael Kay pointed out during the broadcast that several players had been using a design with a barrel closer to the hands. `\
-https://nytimes.com/athletic/6240911/2025/03/29/yankees-new-bats-torpedo-home-runs/
 
