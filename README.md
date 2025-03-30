@@ -2,7 +2,7 @@
 `Broome, 22, returned to the game after X-rays were negative.`\
 https://nytimes.com/athletic/6242810/2025/03/30/auburn-johni-broome-elbow-injury-elite-eight/
 
-**Justin Fields will be the Jets starter — and they believe he can be the next Sam Darnold, Baker Mayfield: Takeaways**\
+**Justin Fields will be the Jets starter — and they believe he can be the next Sam Darnold: Takeaways**\
 `Darren Mougey said Fields has a “unique athletic skill set that adds another dimension to the game." `\
 https://nytimes.com/athletic/6242736/2025/03/30/justin-fields-jets-quarterback/
 

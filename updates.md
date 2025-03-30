@@ -1,3 +1,11 @@
+**Auburn's Johni Broome exits game with apparent injury, returns to drill 3**\
+`Broome, 22, returned to the game after X-rays were negative.`\
+https://nytimes.com/athletic/6242810/2025/03/30/auburn-johni-broome-elbow-injury-elite-eight/
+
+**Justin Fields will be the Jets starter — and they believe he can be the next Sam Darnold, Baker Mayfield: Takeaways**\
+`Darren Mougey said Fields has a “unique athletic skill set that adds another dimension to the game." `\
+https://nytimes.com/athletic/6242736/2025/03/30/justin-fields-jets-quarterback/
+
 **Brewers believe Yankees' torpedo bats were fair: 'It ain't the wand; it's the magician'**\
 `After allowing 15 home runs in three games, the Brewers didn't make excuses: "It's not like some magical wood or anything else."`\
 https://nytimes.com/athletic/6242643/2025/03/30/brewers-yankees-torpedo-bats/
