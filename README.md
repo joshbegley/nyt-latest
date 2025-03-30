@@ -1,3 +1,7 @@
+**How Tigers' Spencer Torkelson got his groove back: 'I've got a lot of fight in me'**\
+`After an impressive spring training, Torkelson went 4-for-9 with a home run and five walks in the Tigers' opening series.`\
+https://nytimes.com/athletic/6241388/2025/03/30/tigers-spencer-torkelson-hot-start/
+
 **Rangers take care of business in San Jose and find themselves in a playoff spot: 3 takeaways**\
 `The Rangers grabbed a 2-0 lead on a pair of Artemi Panarin goals in the first period and headed to the finish line with a 6-1 win Saturday.`\
 https://nytimes.com/athletic/6241320/2025/03/30/rangers-beat-sharks-playoff-spot/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/30/opinion/canada-annex-us-trump.html
 **Optimization Culture Comes for Grief**\
 `A.I. “deadbots” and avatars are ushering in a new era of techno-spiritualism.`\
 https://nytimes.com/2025/03/30/opinion/grief-tech-ai-optimized.html
-
-**Braves waste scoring chances, Spencer Schwellenbach's superb start against Padres, fall to 0-3**\
-`Schwellenbach gave up one hit in six scoreless innings, but the Braves went 0-for-6 with runners in scoring position in Saturday's loss.`\
-https://nytimes.com/athletic/6241302/2025/03/30/braves-lose-to-padres-spencer-schwellenbach/
 
