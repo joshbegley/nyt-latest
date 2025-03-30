@@ -10,7 +10,7 @@ https://nytimes.com/2025/03/30/opinion/canada-annex-us-trump.html
 `A.I. “deadbots” and avatars are ushering in a new era of techno-spiritualism.`\
 https://nytimes.com/2025/03/30/opinion/grief-tech-ai-optimized.html
 
-**Braves waste scoring chances and Spencer Schwellenbach's superb start at Padres, fall to 0-3**\
+**Braves waste scoring chances, Spencer Schwellenbach's superb start against Padres, fall to 0-3**\
 `Schwellenbach gave up one hit in six scoreless innings, but the Braves went 0-for-6 with runners in scoring position in Saturday's loss.`\
 https://nytimes.com/athletic/6241302/2025/03/30/braves-lose-to-padres-spencer-schwellenbach/
 
