@@ -1,3 +1,11 @@
+**Newcastle's 'Glastonbury-on-Tyne' League Cup celebration: Tears of joy, giant Howe banner**\
+`Newcastle United brought 300,000 people to the streets for an emotional open-top bus parade to celebrate their League Cup trophy win.`\
+https://nytimes.com/athletic/6240126/2025/03/30/newcastle-league-cup-celebration-bus-parade/
+
+**Grizzlies show 'no big changes' in first game without Taylor Jenkins. But change must come**\
+`Suddenly, the team's short- and long-term future is more uncertain than it has been since the start of the Ja Morant era in 2019.`\
+https://nytimes.com/athletic/6241498/2025/03/30/grizzlies-changes-tuomas-iisalo-taylor-jenkins-nba/
+
 **Prince Harry Accused of ‘Bullying’ by Chair of Charity He Co-founded**\
 `Sophie Chandauka said Harry quit as patron of the organization to damage it after failing to oust her from the role following a series of board conflicts.`\
 https://nytimes.com/2025/03/30/world/europe/prince-harry-accused-bullying-charity.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6241559/2025/03/30/duke-alabama-elite-eight-final-f
 **The Pulse: Will Mike Trout ever play for a contender?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6241590/2025/03/30/mike-trout-trade-mlb-the-pulse/
-
-**Luka Dončić, LeBron James and Austin Reaves show how dangerous Lakers can be**\
-`The trio accepted a challenge, combining for 85 points and 25 assists in a 134-127 win over Memphis with playoff implications.`\
-https://nytimes.com/athletic/6241441/2025/03/30/lakers-grizzlies-score-result-luka-doncic-lebron-james-austin-reaves/
-
-**Take Better Care of Your Skin**\
-`Here’s some advice.`\
-https://nytimes.com/2025/03/30/briefing/skin-care-treatment.html
 
