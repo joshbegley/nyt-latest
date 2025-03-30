@@ -1,3 +1,7 @@
+**Hegseth Pledges to Step Up Military Cooperation With Japan**\
+`The U.S. defense secretary sought to reassure its ally over security ties and vowed to speed up the creation of a joint “war-fighting headquarters” to deter China.`\
+https://nytimes.com/2025/03/30/world/asia/hegseth-japan-military.html
+
 **Newcastle's 'Glastonbury-on-Tyne' League Cup celebration: Tears of joy, giant Howe banner**\
 `Newcastle United brought 300,000 people to the streets for an emotional open-top bus parade to celebrate their League Cup trophy win`\
 https://nytimes.com/athletic/6240126/2025/03/30/newcastle-league-cup-celebration-bus-parade/

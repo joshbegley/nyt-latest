@@ -1,8 +1,12 @@
+**Making unexpected late playoff pushes, what are Mavs and Bulls playing for?**\
+`Both teams have come alive lately, right as questions arose over whether a summer draft pick should be a higher priority than the playoffs.`\
+https://nytimes.com/athletic/6241680/2025/03/30/mavericks-bulls-nba-playoff-race/
+
 **Hegseth Pledges to Step Up Military Cooperation With Japan**\
 `The U.S. defense secretary sought to reassure its ally over security ties and vowed to speed up the creation of a joint “war-fighting headquarters” to deter China.`\
 https://nytimes.com/2025/03/30/world/asia/hegseth-japan-military.html
 
-**Map: 7.1-Magnitude Earthquake Near Tonga Prompts Tsunami Alert**\
+**Map: 7.0-Magnitude Earthquake Near Tonga Prompts Brief Tsunami Alert**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/03/30/world/tonga-quake-tsunami.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6241498/2025/03/30/grizzlies-changes-tuomas-iisalo-
 **Prince Harry Accused of ‘Bullying’ by Chair of Charity He Co-founded**\
 `Sophie Chandauka said Harry quit as patron of the organization to damage it after failing to oust her from the role following a series of board conflicts.`\
 https://nytimes.com/2025/03/30/world/europe/prince-harry-accused-bullying-charity.html
-
-**What We Know About Talks for a Renewed Gaza Cease-Fire**\
-`Hamas said it had accepted a proposal for a new cease-fire, which would see some hostages released from captivity in Gaza. But details were elusive.`\
-https://nytimes.com/2025/03/30/world/middleeast/israel-hamas-ceasefire-gaza.html
 
