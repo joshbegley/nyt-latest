@@ -22,7 +22,7 @@ https://nytimes.com/2025/03/30/crosswords/spelling-bee-forum.html
 `Willard emphasized when the Terps were in Seattle that he loved coaching at Maryland, but he wanted the school to improve in NIL.`\
 https://nytimes.com/athletic/6237329/2025/03/30/villanova-mens-basketball-hires-maryland-kevin-willard/
 
-**FA Cup defeat to Forest will be painful — Brighton missed a huge opportunity**\
+**FA Cup defeat to Forest will be painful - Brighton missed a huge opportunity**\
 `It was the most open FA Cup competition in years - so defeat on penalties to Forest in the quarter-finals will be extra painful for Brighton`\
 https://nytimes.com/athletic/6236217/2025/03/30/brighton-forest-fa-cup-missed-opportunity/
 

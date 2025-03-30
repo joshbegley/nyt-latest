@@ -1,3 +1,7 @@
+**FA Cup defeat to Forest will be painful - Brighton missed a huge opportunity**\
+`It was the most open FA Cup competition in years - so defeat on penalties to Forest in the quarter-finals will be extra painful for Brighton`\
+https://nytimes.com/athletic/6236217/2025/03/30/brighton-forest-fa-cup-missed-opportunity/
+
 **Edward Sorel Has a Confession**\
 `The esteemed artist worked for The Times in 1972, but didn’t quite follow instructions.`\
 https://nytimes.com/2025/03/30/pageoneplus/edward-sorel-has-a-confession.html
