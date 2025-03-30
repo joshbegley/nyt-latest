@@ -1,3 +1,11 @@
+**Linda Williams, 78, Dies; Took a Scholarly Approach to Pornography**\
+`One of the first to write seriously about a fraught subject, she also played a major role in developing the field of film studies and feminist film theory.`\
+https://nytimes.com/2025/03/30/arts/linda-williams-dead.html
+
+**Gananath Obeyesekere, 95, Dies; Anthropologist Bridged East and West**\
+`His wide-ranging work drew on field research in his native Sri Lanka as well as his extensive study of English literature and Christian mysticism.`\
+https://nytimes.com/2025/03/30/world/asia/gananath-obeyesekere-dead.html
+
 **Possible Electoral Ban on Marine Le Pen Has France on Edge**\
 `A verdict Monday in an embezzlement trial is seen as a test of the country’s democracy — and the rule of law.`\
 https://nytimes.com/2025/03/30/world/europe/le-pen-embezzlement-trial-france-election.html
