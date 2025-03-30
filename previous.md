@@ -18,9 +18,9 @@ https://nytimes.com/athletic/6241070/2025/03/29/jesus-luzardo-phillies-debut/
 `By Amanda E. Newman`\
 https://nytimes.com/live/2025/03/29/us/trump-news/protesters-take-aim-at-elon-musk-during-demonstrations-in-the-united-states-europe-and-australia
 
-**Closing time: Florida rallies past Texas Tech to advance to first Final Four since 2014**\
-`Texas Tech did nearly everything right for 38 minutes, but missed free throws gave the Gators life and opened the door for an epic comeback.`\
-https://nytimes.com/athletic/6241009/2025/03/29/texas-tech-florida-elite-eight-final-four/
+**Closing time: Walter Clayton Jr. shoots Florida past Texas Tech to advance to Final Four**\
+`Clayton, Florida's big shot maker, scored a game-high 30 points and hit several huge 3-pointers down the stretch. `\
+https://nytimes.com/athletic/6241009/2025/03/29/walter-clayton-florida-elite-eight-final-four/
 
 **Men's March Madness projections 2025: Who will advance to the Final Four?**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\

@@ -1,3 +1,7 @@
+**Closing time: Walter Clayton Jr. shoots Florida past Texas Tech to advance to Final Four**\
+`Clayton, Florida's big shot maker, scored a game-high 30 points and hit several huge 3-pointers down the stretch. `\
+https://nytimes.com/athletic/6241009/2025/03/29/walter-clayton-florida-elite-eight-final-four/
+
 **Ilia Malinin, with unmatchable form, repeats as figure skating world champion**\
 `The American sensation landed six quad jumps to repeat as world champion and cement his status as the Olympic favorite.`\
 https://nytimes.com/athletic/6241150/2025/03/29/ilia-malinin-figure-skating-world-championships-gold/
