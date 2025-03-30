@@ -1,3 +1,7 @@
+**Isaac Paredes' influence, late-game outfield moves and Chas McCormick's role: Astros takeaways**\
+`Houston hopes Paredes' plate discipline is contagious, a reliever is gaining Joe Espada's trust, plus more observations on the first series.`\
+https://nytimes.com/athletic/6241276/2025/03/30/astros-isaac-paredes-chas-mccormick-role/
+
 **Farke has backed Meslier after every mistake - Leeds will judge him on what he does next**\
 `If Farke stands by Meslier again and the club fail to win promotion with the league's best squad he will be remembered as a stubborn failure`\
 https://nytimes.com/athletic/6240801/2025/03/30/meslier-farke-mistake-leeds/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/30/world/asia/afghanistan-students-qatar-funding.htm
 **Key Takeaways From America’s Secret Military Partnership With Ukraine**\
 `An investigation by The New York Times has revealed that America was woven into the war far more than previously known.`\
 https://nytimes.com/2025/03/30/world/europe/us-ukraine-military-war-takeaways.html
-
-**French Schools Will Finally Teach Sex Education**\
-`For 25 years, France has said schools must teach sex ed. Now the government is at last putting a curriculum in place.`\
-https://nytimes.com/2025/03/30/world/europe/france-sex-education-schools.html
 
