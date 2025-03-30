@@ -1,3 +1,11 @@
+**‘Mission South Africa’: How Trump Is Offering White Afrikaners Refugee Status**\
+`The United States has banned most refugees, including 20,000 people who were already approved for entry before President Trump took office. But Mr. Trump is making one exception.`\
+https://nytimes.com/2025/03/30/us/politics/trump-south-africa-white-afrikaners-refugee.html
+
+**My Saves In My Words: Sels on bottle instructions and run-up clues that led to Forest shootout win**\
+`Matz Sels was the hero as Nottingham Forest beat Brighton in a penalty shootout in the FA Cup quarter-finals. He explains how he did it`\
+https://nytimes.com/athletic/6241539/2025/03/30/sels-forest-penalties-fa-cup-brighton/
+
 **On the Night Before Eid, Mothers Made the Magic Happen**\
 `For the joyous Muslim holiday to work, mothers in New York City spent Saturday night preparing, merging traditions from around the world with ones developed here.`\
 https://nytimes.com/2025/03/30/style/eid-preparations-mothers.html

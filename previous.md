@@ -1,3 +1,11 @@
+**‘Mission South Africa’: How Trump Is Offering White Afrikaners Refugee Status**\
+`The United States has banned most refugees, including 20,000 people who were already approved for entry before President Trump took office. But Mr. Trump is making one exception.`\
+https://nytimes.com/2025/03/30/us/politics/trump-south-africa-white-afrikaners-refugee.html
+
+**My Saves In My Words: Sels on bottle instructions and run-up clues that led to Forest shootout win**\
+`Matz Sels was the hero as Nottingham Forest beat Brighton in a penalty shootout in the FA Cup quarter-finals. He explains how he did it`\
+https://nytimes.com/athletic/6241539/2025/03/30/sels-forest-penalties-fa-cup-brighton/
+
 **On the Night Before Eid, Mothers Made the Magic Happen**\
 `For the joyous Muslim holiday to work, mothers in New York City spent Saturday night preparing, merging traditions from around the world with ones developed here.`\
 https://nytimes.com/2025/03/30/style/eid-preparations-mothers.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6241862/2025/03/30/yankees-bats-aaron-leanhardt-mar
 **Trump Offers Most Critical Comments of Russia With Threat of Secondary Tariffs**\
 `President Trump said he could impose tariffs on nations that buy oil from Russia if it thwarts negotiations for a peace deal in Ukraine. He suggested the same step was possible for Iran.`\
 https://nytimes.com/2025/03/30/us/politics/trump-putin-russia-iran-tariffs.html
-
-**Millions Face Risk of Severe Storms From the Midwest to the East Coast**\
-`Forecasters warn of widespread damaging winds, very large hail and tornadoes, from Texas to the East Coast starting on Sunday.`\
-https://nytimes.com/2025/03/30/weather/tornado-storms-missouri-illinois.html
-
-**Men's March Madness projections 2025: Who will advance to the Final Four?**\
-`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
-https://nytimes.com/athletic/6198047/2025/03/30/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
 
