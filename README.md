@@ -1,4 +1,4 @@
-**London Police Arrest Gaza War Protesters Inside a Quaker House**\
+**London Police Arrest Gaza Protest Planners at Quaker House**\
 `Quakers in Britain said the raid, in which six youth activists unaffiliated with the religious group were arrested, “clearly shows what happens when a society criminalizes protest.”`\
 https://nytimes.com/2025/03/30/world/europe/london-quaker-arrests-gaza.html
 
