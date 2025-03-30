@@ -1,3 +1,7 @@
+**Getting the ball in Chloe Kitts' hands was key to South Carolina's return to the Final Four**\
+`The junior is another in a long line of Gamecocks' post players to deliver in March Madness.`\
+https://nytimes.com/athletic/6242744/2025/03/30/chloe-kitts-south-carolina-final-four-elite-eight/
+
 **Canucks playoff odds take a devastating hit in loss to Jets: 3 takeaways**\
 `The Canucks fell 3-1 to the Jets in a loss they couldn't afford to sustain, seemingly sealing their fate as a non-playoff team.`\
 https://nytimes.com/athletic/6242629/2025/03/30/canucks-jets-loss-nhl-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6235568/2025/03/30/alex-ovechkin-goals-record-gretz
 **Knicks' Jalen Brunson hopes to return before end of regular season**\
 `Brunson suffered a right ankle sprain in an overtime loss to the Los Angeles Lakers on March 6.`\
 https://nytimes.com/athletic/6242403/2025/03/30/jalen-brunson-knicks-injury-update/
-
-**Monday Briefing: Devastation in Myanmar**\
-`Plus, skateboarders in the sky.`\
-https://nytimes.com/2025/03/30/briefing/myanmar-earthquake-ukraine-war-secrets-syria-government.html
 

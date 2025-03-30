@@ -1,3 +1,7 @@
+**Getting the ball in Chloe Kitts' hands was key to South Carolina's return to the Final Four**\
+`The junior is another in a long line of Gamecocks' post players to deliver in March Madness.`\
+https://nytimes.com/athletic/6242744/2025/03/30/chloe-kitts-south-carolina-final-four-elite-eight/
+
 **Canucks playoff odds take a devastating hit in loss to Jets: 3 takeaways**\
 `The Canucks fell 3-1 to the Jets in a loss they couldn't afford to sustain, seemingly sealing their fate as a non-playoff team.`\
 https://nytimes.com/athletic/6242629/2025/03/30/canucks-jets-loss-nhl-playoffs/
