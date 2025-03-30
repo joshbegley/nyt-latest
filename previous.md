@@ -1,3 +1,7 @@
+**Storm Leaves About 300,000 Without Power in Great Lakes Region**\
+`There were weather warnings in the Midwest, the Northeast and Quebec after the storm downed trees and power lines in Michigan and Ontario.`\
+https://nytimes.com/2025/03/30/us/ice-storm-michigan-ontario.html
+
 **Edward Sorel Has a Confession**\
 `The esteemed artist worked for The Times in 1972, but didn’t quite follow instructions.`\
 https://nytimes.com/2025/03/30/pageoneplus/edward-sorel-has-a-confession.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6241388/2025/03/30/tigers-spencer-torkelson-hot-sta
 **Rangers take care of business in San Jose and find themselves in a playoff spot: 3 takeaways**\
 `The Rangers grabbed a 2-0 lead on a pair of Artemi Panarin goals in the first period and headed to the finish line with a 6-1 win Saturday.`\
 https://nytimes.com/athletic/6241320/2025/03/30/rangers-beat-sharks-playoff-spot/
-
-**Canada coach Marsch says 50 people warned him after response to Trump**\
-`Canada's head coach speaks to The Athletic about the fallout from his public comments about the U.S. president`\
-https://nytimes.com/athletic/6238125/2025/03/30/jesse-marsch-trump-canada-us/
 

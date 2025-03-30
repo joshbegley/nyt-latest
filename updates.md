@@ -1,3 +1,7 @@
+**Storm Leaves About 300,000 Without Power in Great Lakes Region**\
+`There were weather warnings in the Midwest, the Northeast and Quebec after the storm downed trees and power lines in Michigan and Ontario.`\
+https://nytimes.com/2025/03/30/us/ice-storm-michigan-ontario.html
+
 **FA Cup defeat to Forest will be painful - Brighton missed a huge opportunity**\
 `It was the most open FA Cup competition in years - so defeat on penalties to Forest in the quarter-finals will be extra painful for Brighton`\
 https://nytimes.com/athletic/6236217/2025/03/30/brighton-forest-fa-cup-missed-opportunity/
