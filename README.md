@@ -19,7 +19,7 @@ https://nytimes.com/2025/03/30/arts/television/richard-chamberlain-dead.html
 https://nytimes.com/2025/03/30/arts/television/snl-live-from-new-york-military-secrets.html
 
 **Newcastle's 'Glastonbury-on-Tyne' League Cup celebration: Tears of joy, giant Howe banner**\
-`Newcastle United brought 300,000 people to the streets for an emotional open-top bus parade to celebrate their League Cup trophy win.`\
+`Newcastle United brought 300,000 people to the streets for an emotional open-top bus parade to celebrate their League Cup trophy win`\
 https://nytimes.com/athletic/6240126/2025/03/30/newcastle-league-cup-celebration-bus-parade/
 
 **Grizzlies show 'no big changes' in first game without Taylor Jenkins. But change must come**\

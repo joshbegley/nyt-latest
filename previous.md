@@ -1,3 +1,23 @@
+**Map: 7.1-Magnitude Earthquake Near Tonga Prompts Tsunami Alert**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/03/30/world/tonga-quake-tsunami.html
+
+**Trump Administration Live Updates: Trump Says He ‘Couldn’t Care Less’ if Automakers Raise Prices After Tariffs**\
+``\
+https://nytimes.com/live/2025/03/30/us/trump-news
+
+**Where Oligarchy and Populism Meet**\
+`Readers respond to a column by Ross Douthat arguing that populist ideas, not oligarchic self-interest, motivate President Trump’s agenda. Also: Cash bail injustices.`\
+https://nytimes.com/2025/03/30/opinion/trump-oligarchy-populism.html
+
+**Richard Chamberlain, TV Heartthrob Turned Serious Actor, Dies at 90**\
+`An overnight star as Dr. Kildare in the 1960s, he achieved new acclaim two decades later as the omnipresent leading man of mini-series.`\
+https://nytimes.com/2025/03/30/arts/television/richard-chamberlain-dead.html
+
+**‘S.N.L’: Live From New York, It’s More Military Secrets.**\
+`Mikey Madison hosts and Luigi Mangione, Squidward and Ashton Hall make appearances.`\
+https://nytimes.com/2025/03/30/arts/television/snl-live-from-new-york-military-secrets.html
+
 **Newcastle's 'Glastonbury-on-Tyne' League Cup celebration: Tears of joy, giant Howe banner**\
 `Newcastle United brought 300,000 people to the streets for an emotional open-top bus parade to celebrate their League Cup trophy win.`\
 https://nytimes.com/athletic/6240126/2025/03/30/newcastle-league-cup-celebration-bus-parade/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/03/30/world/middleeast/israel-hamas-ceasefire-gaza.html
 **Maryland basketball coaching candidates: Where will the Terps turn to replace Willard?**\
 `Willard guided Maryland to the NCAA Tournament three times in four seasons, including the 2024 trip to the Sweet 16. What's next? `\
 https://nytimes.com/athletic/6234078/2025/03/30/maryland-mens-basketball-coaching-candidates/
-
-**Orbital Rocket Crashes After First Launch From Continental Europe**\
-`The rocket, developed by Isar Aerospace, lifted off from Norway’s Andøya Space Center and crashed about 30 seconds later. The test flight was part of efforts to make Europe a center for private satellite launches.`\
-https://nytimes.com/2025/03/30/us/orbital-rocket-crashes-after-first-launch-from-continental-europe.html
-
-**Yohe: McGroarty, Koivunen fitting right in as Penguins eagerly embrace youth movement**\
-`The arrival and development of Pittsburgh's two prospects is a big deal — for now and the future.`\
-https://nytimes.com/athletic/6241100/2025/03/30/penguins-rutger-mcgroarty-ville-koivunen/
-
-**USC spring takeaways: Impressive freshmen, Jayden Maiava's progress, Kamari Ramsey**\
-`Where should the Trojans look for help in the spring portal window? Why it's clear that Lincoln Riley feels good about QB Husan Longstreet. `\
-https://nytimes.com/athletic/6240695/2025/03/30/usc-football-spring-practice-quarterbacks/
-
-**How Duke’s defense put the brakes on fastest-paced, highest-scoring offense in country**\
-`Two days after Alabama set an NCAA Tournament record, Duke's defense put the clamps on the Tide's high-scoring attack.`\
-https://nytimes.com/athletic/6241559/2025/03/30/duke-alabama-elite-eight-final-four-march-madness/
-
-**The Pulse: Will Mike Trout ever play for a contender?**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6241590/2025/03/30/mike-trout-trade-mlb-the-pulse/
 
