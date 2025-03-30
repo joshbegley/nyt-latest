@@ -1,3 +1,7 @@
+**Min Woo Lee holds off Scottie Scheffler to win Houston Open**\
+`It is Lee's first PGA Tour win. The 26-year-old Australian set a tournament record for low score.`\
+https://nytimes.com/athletic/6242722/2025/03/30/min-woo-lee-pga-tour-houston-open-scheffler/
+
 **Min Woo Lee holds off Scheffler to win Houston Open**\
 `It is Lee's first PGA Tour win. The 26-year-old Australian set a tournament record for low score.`\
 https://nytimes.com/athletic/6242722/2025/03/30/min-woo-lee-pga-tour-houston-open-scheffler/

@@ -1,3 +1,7 @@
+**Canucks playoff odds take a devastating hit in loss to Jets: 3 takeaways**\
+`The Canucks fell 3-1 to the Jets in a loss they couldn't afford to sustain, seemingly sealing their fate as a non-playoff team.`\
+https://nytimes.com/athletic/6242629/2025/03/30/canucks-jets-loss-nhl-playoffs/
+
 **Min Woo Lee holds off Scottie Scheffler to win Houston Open**\
 `It is Lee's first PGA Tour win. The 26-year-old Australian set a tournament record for low score.`\
 https://nytimes.com/athletic/6242722/2025/03/30/min-woo-lee-pga-tour-houston-open-scheffler/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6242403/2025/03/30/jalen-brunson-knicks-injury-upda
 **Monday Briefing: Devastation in Myanmar**\
 `Plus, skateboarders in the sky.`\
 https://nytimes.com/2025/03/30/briefing/myanmar-earthquake-ukraine-war-secrets-syria-government.html
-
-**Reinaldo Herrera, Arbiter of Style for Vanity Fair, Dies at 91**\
-`Both old school and Old World and married to a celebrated fashion designer, he helped define Manhattan’s high life for many years.`\
-https://nytimes.com/2025/03/30/style/reinaldo-herrera-dead.html
 
