@@ -1,3 +1,7 @@
+**Can the Mets' Francisco Lindor start hot this time? He's wondering, too**\
+`Lindor went 0-for-11 in Houston, but he's hardly alone. New York scored just five runs in the three games.`\
+https://nytimes.com/athletic/6241202/2025/03/29/francisco-lindor-mets-offense-astros/
+
 **USC leans on freshmen to get past Kansas State, advance to Elite Eight**\
 `Juju Watkins’ absence and Ayoka Lee’s presence made this No. 1-No. 5 matchup one of the biggest toss-ups of the third round.`\
 https://nytimes.com/athletic/6241144/2025/03/29/usc-kansas-state-sweet-sixteen-analysis/
