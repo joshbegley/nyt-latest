@@ -1,3 +1,7 @@
+**In Myanmar, Aftershocks and Military Airstrikes Terrorize Residents**\
+`New tremors rattled survivors of Friday’s earthquake, which killed more than 1,600 people, while the government continued its bombing campaign elsewhere in the country.`\
+https://nytimes.com/2025/03/30/world/asia/myanmar-earthquake-aftershocks-airstrikes.html
+
 **She wanted a law degree. Instead, a former NCAA guard became a quadruple-double threat**\
 `Shakyla Hill is the only college basketball player to record two quadruple-doubles in a career. She then recorded a third as a pro overseas.`\
 https://nytimes.com/athletic/6220701/2025/03/30/shakyla-hill-grambling-march-madness-ncaa-quadruple-double/
