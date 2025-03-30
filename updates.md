@@ -1,3 +1,11 @@
+**Duke stifles Alabama as 2nd top seed advances to Final Four**\
+`Only two more games separate Cooper Flagg and the Blue Devils from immortality and the program's sixth national championship banner.`\
+https://nytimes.com/athletic/6241127/2025/03/29/duke-alabama-cooper-flagg-march-madness/
+
+**Blue Jackets' back-to-back woes surface again in loss to Senators**\
+`Columbus made a third-period push but trailed for most of the game, losing 3-2 to Ottawa on Saturday night.`\
+https://nytimes.com/athletic/6241147/2025/03/29/blue-jackets-senators-nhl-playoff-standings/
+
 **Blue Jackets' back-to-back woes surface again in loss to Ottawa**\
 `Columbus made a third-period push but trailed for most of the game, ultimately losing 3-2 to Ottawa Saturday night.`\
 https://nytimes.com/athletic/6241147/2025/03/29/blue-jackets-senators-nhl-playoff-standings/
