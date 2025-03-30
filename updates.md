@@ -1,3 +1,7 @@
+**Millions Face Risk of Severe Storms From the Midwest to the East Coast**\
+`Forecasters warn of widespread damaging winds, very large hail and tornadoes, from Texas to the East Coast starting on Sunday.`\
+https://nytimes.com/2025/03/30/weather/tornado-storms-missouri-illinois.html
+
 **Men's March Madness projections 2025: Who will advance to the Final Four?**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/03/30/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
