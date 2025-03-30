@@ -1,3 +1,11 @@
+**London Police Arrest Gaza Protest Planners at Quaker House**\
+`Quakers in Britain said the raid, in which six youth activists unaffiliated with the religious group were arrested, “clearly shows what happens when a society criminalizes protest.”`\
+https://nytimes.com/2025/03/30/world/europe/london-quaker-arrests-gaza.html
+
+**Johni Broome propels Auburn to 2nd Final Four despite injury scare**\
+`No. 1 seed Auburn topped Michigan State 70-64 to earn a Final Four bid behind 25 points from Johni Broome, who briefly left with an injury.`\
+https://nytimes.com/athletic/6242943/2025/03/30/auburn-msu-johni-broome-injury-score/
+
 **Men's Final Four 2025: What to know about the last team's standing**\
 `Just because there's no Cinderella in the Final Four doesn't mean there can't be a storybook ending.`\
 https://nytimes.com/athletic/6242633/2025/03/30/mens-final-four-2025-what-to-know/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6242727/2025/03/30/steelers-aaron-rodgers-free-agen
 **Getting the ball in Chloe Kitts' hands was key to South Carolina's return to the Final Four**\
 `The junior is another in a long line of Gamecocks post players to deliver in March Madness.`\
 https://nytimes.com/athletic/6242744/2025/03/30/chloe-kitts-south-carolina-final-four-elite-eight/
-
-**Canucks playoff odds take a devastating hit in loss to Jets: 3 takeaways**\
-`The Canucks fell 3-1 to the Jets in a loss they couldn't afford to sustain, seemingly sealing their fate as a non-playoff team.`\
-https://nytimes.com/athletic/6242629/2025/03/30/canucks-jets-loss-nhl-playoffs/
-
-**Min Woo Lee holds off Scottie Scheffler to win Houston Open**\
-`It is Lee's first PGA Tour win. The 26-year-old Australian set a tournament record for low score.`\
-https://nytimes.com/athletic/6242722/2025/03/30/min-woo-lee-pga-tour-houston-open-scheffler/
 

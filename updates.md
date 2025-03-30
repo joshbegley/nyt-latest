@@ -1,3 +1,11 @@
+**London Police Arrest Gaza Protest Planners at Quaker House**\
+`Quakers in Britain said the raid, in which six youth activists unaffiliated with the religious group were arrested, “clearly shows what happens when a society criminalizes protest.”`\
+https://nytimes.com/2025/03/30/world/europe/london-quaker-arrests-gaza.html
+
+**Johni Broome propels Auburn to 2nd Final Four despite injury scare**\
+`No. 1 seed Auburn topped Michigan State 70-64 to earn a Final Four bid behind 25 points from Johni Broome, who briefly left with an injury.`\
+https://nytimes.com/athletic/6242943/2025/03/30/auburn-msu-johni-broome-injury-score/
+
 **Men's Final Four 2025: What to know about the last team's standing**\
 `Just because there's no Cinderella in the Final Four doesn't mean there can't be a storybook ending.`\
 https://nytimes.com/athletic/6242633/2025/03/30/mens-final-four-2025-what-to-know/
