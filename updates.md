@@ -1,3 +1,7 @@
+**Protesters take aim at Elon Musk during demonstrations in the United States, Europe and Australia.**\
+`By Amanda E. Newman`\
+https://nytimes.com/live/2025/03/29/us/trump-news/protesters-take-aim-at-elon-musk-during-demonstrations-in-the-united-states-europe-and-australia
+
 **Closing time: Florida rallies past Texas Tech to advance to first Final Four since 2014**\
 `Texas Tech did nearly everything right for 38 minutes, but missed free throws gave the Gators life and opened the door for an epic comeback.`\
 https://nytimes.com/athletic/6241009/2025/03/29/texas-tech-florida-elite-eight-final-four/

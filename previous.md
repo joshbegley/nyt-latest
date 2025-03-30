@@ -1,3 +1,7 @@
+**Protesters take aim at Elon Musk during demonstrations in the United States, Europe and Australia.**\
+`By Amanda E. Newman`\
+https://nytimes.com/live/2025/03/29/us/trump-news/protesters-take-aim-at-elon-musk-during-demonstrations-in-the-united-states-europe-and-australia
+
 **Closing time: Florida rallies past Texas Tech to advance to first Final Four since 2014**\
 `Texas Tech did nearly everything right for 38 minutes, but missed free throws gave the Gators life and opened the door for an epic comeback.`\
 https://nytimes.com/athletic/6241009/2025/03/29/texas-tech-florida-elite-eight-final-four/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6240943/2025/03/29/twins-slow-start-cardinals/
 **Women's March Madness projections 2025: Does UConn have the advantage?**\
 `What's your team's chance of winning? Find out here. `\
 https://nytimes.com/athletic/6198041/2025/03/29/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**The Secret History of the War in Ukraine**\
-`This is the untold story of America’s hidden role in Ukrainian military operations against Russia’s invading armies.`\
-https://nytimes.com/interactive/2025/03/29/world/europe/us-ukraine-military-war-wiesbaden.html
 
