@@ -1,3 +1,11 @@
+**Trump-Era Pivot on Seabed Mining Draws Global Rebuke**\
+`Diplomats from more than 30 nations have criticized a proposal that could allow the start of seabed mining as soon as 2027.`\
+https://nytimes.com/2025/03/30/us/politics/trump-mining-metals-company.html
+
+**South Carolina holds off Duke to reach fifth straight Final Four**\
+`The top-seeded Gamecocks, defending national champions, got all they could handle from second-seeded Duke, winning 54-50.`\
+https://nytimes.com/athletic/6242324/2025/03/30/duke-south-carolina-womens-ncaa-march-madness-elite-8/
+
 **Women's March Madness projections 2025: Does UConn have the advantage?**\
 `What's your team's chance of winning? Find out here. `\
 https://nytimes.com/athletic/6198041/2025/03/30/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
