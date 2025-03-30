@@ -1,3 +1,7 @@
+**Men's March Madness projections 2025: Who will advance to the Final Four?**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/03/30/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **When the Biggest Series Were Mini, Richard Chamberlain Was TV’s Mega Star**\
 `The actor, who died at 90, was the most compelling face of a maximalist, soapy television era.`\
 https://nytimes.com/2025/03/30/arts/television/richard-chamberlain-shogun-thorn-birds.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6242265/2025/03/30/wild-kaprizov-eriksson-ek-update
 **Trump Says He’s ‘Not Joking’ About Seeking a Third Term in Defiance of Constitution**\
 `President Trump, in an interview with NBC News, said there were “methods” that would allow a third term. The 22nd Amendment prohibits a person from being elected to more than two terms as president.`\
 https://nytimes.com/2025/03/30/us/politics/trump-third-term.html
-
-**Drug Reduces Mysterious Particle Involved in Heart Attack Risk**\
-`The Eli Lilly drug caused a major drop in the blood levels of Lp(a), but further research is needed to show that it will prevent heart attacks and strokes.`\
-https://nytimes.com/2025/03/30/health/heart-attack-lpa-protein.html
 
