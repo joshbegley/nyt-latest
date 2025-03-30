@@ -1,3 +1,7 @@
+**Kristian Campbell, after a big night, acknowledges 'communication' on Red Sox contract talks**\
+`In three games, Campbell has gone 5-for-10, and 2-for-3 Saturday when he hit his first career home run and and doubled in his next at-bat.`\
+https://nytimes.com/athletic/6241348/2025/03/30/kristian-campbell-red-sox-contract-talks/
+
 **Oilers' Leon Draisaitl scores 50th goal of the season**\
 `Saturday against the Calgary Flames, Draisaitl became the first player to reach 50 goals this season.`\
 https://nytimes.com/athletic/6208178/2025/03/30/oilers-leon-draisaitl-scores-50th-goal/
