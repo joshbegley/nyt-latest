@@ -1,3 +1,11 @@
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/03/30/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
+**Alex Ovechkin 5 goals from breaking Wayne Gretzky's record with No. 890**\
+`The Washington Capitals superstar continues to close in on Gretzky’s longstanding record of 894 career NHL goals.`\
+https://nytimes.com/athletic/6235568/2025/03/30/alex-ovechkin-goals-record-gretzky/
+
 **Knicks' Jalen Brunson hopes to return before end of regular season**\
 `Brunson suffered a right ankle sprain in an overtime loss to the Los Angeles Lakers on March 6.`\
 https://nytimes.com/athletic/6242403/2025/03/30/jalen-brunson-knicks-injury-update/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/30/arts/television/richard-chamberlain-shogun-thorn-
 **Richard Carlson, Journalist Who Led Voice of America, Dies at 84**\
 `The father of the conservative commentator Tucker Carlson, he won a Peabody Award for television reporting that uncovered a car company’s fraud.`\
 https://nytimes.com/2025/03/30/business/media/richard-carlson-dead.html
-
-**Trump’s U.S.A.I.D. Cuts Hobble Earthquake Response in Myanmar**\
-`While China, Russia and other nations have rushed emergency response teams to the devastated country, the U.S., once a leader in foreign aid, has been slow to act.`\
-https://nytimes.com/2025/03/30/world/asia/myanmar-earthquake-usaid-cuts.html
-
-**Trump-Era Pivot on Seabed Mining Draws Global Rebuke**\
-`Diplomats from more than 30 nations have criticized a proposal that could allow the start of seabed mining by 2027.`\
-https://nytimes.com/2025/03/30/us/politics/trump-mining-metals-company.html
 

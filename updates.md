@@ -1,3 +1,11 @@
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/03/30/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
+**Alex Ovechkin 5 goals from breaking Wayne Gretzky's record with No. 890**\
+`The Washington Capitals superstar continues to close in on Gretzky’s longstanding record of 894 career NHL goals.`\
+https://nytimes.com/athletic/6235568/2025/03/30/alex-ovechkin-goals-record-gretzky/
+
 **Knicks' Jalen Brunson hopes to return before end of regular season**\
 `Brunson suffered a right ankle sprain in an overtime loss to the Los Angeles Lakers on March 6.`\
 https://nytimes.com/athletic/6242403/2025/03/30/jalen-brunson-knicks-injury-update/
