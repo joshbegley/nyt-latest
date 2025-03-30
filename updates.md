@@ -1,3 +1,7 @@
+**USC leans on freshmen to get past Kansas State, advance to Elite Eight**\
+`JuJu Watkins' absence and Ayoka Lee's presence made this No. 1-No. 5 matchup one of the biggest toss-ups of the third round.`\
+https://nytimes.com/athletic/6241144/2025/03/29/usc-kansas-state-sweet-sixteen-analysis/
+
 **Duke stifles Alabama as 2nd top seed advances to Final Four**\
 `Only two more games separate Cooper Flagg and the Blue Devils from immortality and the program's sixth national championship banner.`\
 https://nytimes.com/athletic/6241127/2025/03/29/duke-alabama-cooper-flagg-march-madness/
