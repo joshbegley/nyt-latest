@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6220701/2025/03/30/shakyla-hill-grambling-march-madness-ncaa-quadruple-double/
 
 **In Myanmar, Aftershocks and Military Airstrikes Terrorize Residents**\
-`New tremors rattled survivors of Friday’s earthquake, which killed more than 1,500 people, while the government continued its bombing campaign elsewhere in the country.`\
+`New tremors rattled survivors of Friday’s earthquake, which killed more than 1,600 people, while the government continued its bombing campaign elsewhere in the country.`\
 https://nytimes.com/2025/03/30/world/asia/myanmar-earthquake-aftershocks-airstrikes.html
 
 **It’s worth listening to Tre Holloman, the voice of this Michigan State team **\
