@@ -1,3 +1,11 @@
+**Prince Harry Accused of ‘Bullying’ by Chair of Charity He Co-founded**\
+`Sophie Chandauka said Harry quit as patron of the organization to damage it after failing to oust her from the role following a series of board conflicts.`\
+https://nytimes.com/2025/03/30/world/europe/prince-harry-accused-bullying-charity.html
+
+**What We Know About Talks for a Renewed Gaza Cease-Fire**\
+`Hamas said it had accepted a proposal for a new cease-fire, which would see some hostages released from captivity in Gaza. But details were elusive.`\
+https://nytimes.com/2025/03/30/world/middleeast/israel-hamas-ceasefire-gaza.html
+
 **Maryland basketball coaching candidates: Where will the Terps turn to replace Willard?**\
 `Willard guided Maryland to the NCAA Tournament three times in four seasons, including the 2024 trip to the Sweet 16. What's next? `\
 https://nytimes.com/athletic/6234078/2025/03/30/maryland-mens-basketball-coaching-candidates/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6241441/2025/03/30/lakers-grizzlies-score-result-lu
 **Take Better Care of Your Skin**\
 `Here’s some advice.`\
 https://nytimes.com/2025/03/30/briefing/skin-care-treatment.html
-
-**Who has the edge in women's Elite Eight? Our experts predict the winners**\
-`UConn or USC? TCU or Texas? UCLA or LSU? South Carolina or Duke?  `\
-https://nytimes.com/athletic/6241221/2025/03/30/womens-tournament-elite-eight-predictions/
-
-**Meet Cam Reid, the 2025 NHL Draft prospect with only one mode: 'Very good'**\
-`Reid, a star defenseman for the OHL's Kitchener Rangers, is a potential 2025 first-round pick.`\
-https://nytimes.com/athletic/6221797/2025/03/30/cameron-reid-2025-nhl-draft/
 

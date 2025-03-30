@@ -1,3 +1,11 @@
+**Prince Harry Accused of ‘Bullying’ by Chair of Charity He Co-founded**\
+`Sophie Chandauka said Harry quit as patron of the organization to damage it after failing to oust her from the role following a series of board conflicts.`\
+https://nytimes.com/2025/03/30/world/europe/prince-harry-accused-bullying-charity.html
+
+**What We Know About Talks for a Renewed Gaza Cease-Fire**\
+`Hamas said it had accepted a proposal for a new cease-fire, which would see some hostages released from captivity in Gaza. But details were elusive.`\
+https://nytimes.com/2025/03/30/world/middleeast/israel-hamas-ceasefire-gaza.html
+
 **Maryland basketball coaching candidates: Where will the Terps turn to replace Willard?**\
 `Willard guided Maryland to the NCAA Tournament three times in four seasons, including the 2024 trip to the Sweet 16. What's next? `\
 https://nytimes.com/athletic/6234078/2025/03/30/maryland-mens-basketball-coaching-candidates/
