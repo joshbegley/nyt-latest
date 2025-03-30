@@ -1,3 +1,7 @@
+**Monday Briefing: Devastation in Myanmar**\
+`Plus, skateboarders in the sky.`\
+https://nytimes.com/2025/03/30/briefing/myanmar-earthquake-ukraine-war-secrets-syria-government.html
+
 **Reinaldo Herrera, Arbiter of Style for Vanity Fair, Dies at 91**\
 `Both old school and Old World and married to a celebrated fashion designer, he helped define Manhattan’s high life for many years.`\
 https://nytimes.com/2025/03/30/style/reinaldo-herrera-dead.html
