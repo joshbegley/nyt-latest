@@ -1,4 +1,4 @@
-**Kirill Kaprizov and Joel Eriksson Ek practice for the first time, but returns still undetermined**\
+**Kirill Kaprizov, Joel Eriksson Ek practice for first time, but returns still undetermined**\
 `The Wild still anticipate that both players will return in the regular season.`\
 https://nytimes.com/athletic/6242265/2025/03/30/wild-kaprizov-eriksson-ek-update/
 
