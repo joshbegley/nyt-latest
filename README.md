@@ -1,3 +1,11 @@
+**When the Biggest Series Were Mini, Richard Chamberlain Was TV’s Mega Star**\
+`The actor, who died at 90, was the most compelling face of a maximalist, soapy television era.`\
+https://nytimes.com/2025/03/30/arts/television/richard-chamberlain-shogun-thorn-birds.html
+
+**Richard Carlson, Journalist Who Led Voice of America, Dies at 84**\
+`The father of the conservative commentator Tucker Carlson, he won a Peabody Award for television reporting that uncovered a car company’s fraud.`\
+https://nytimes.com/2025/03/30/business/media/richard-carlson-dead.html
+
 **Trump’s U.S.A.I.D. Cuts Hobble Earthquake Response in Myanmar**\
 `While China, Russia and other nations have rushed emergency response teams to the devastated country, the U.S., once a leader in foreign aid, has been slow to act.`\
 https://nytimes.com/2025/03/30/world/asia/myanmar-earthquake-usaid-cuts.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/30/us/politics/trump-third-term.html
 **Drug Reduces Mysterious Particle Involved in Heart Attack Risk**\
 `The Eli Lilly drug caused a major drop in the blood levels of Lp(a), but further research is needed to show that it will prevent heart attacks and strokes.`\
 https://nytimes.com/2025/03/30/health/heart-attack-lpa-protein.html
-
-**Arsenal developing strong interest in Gyokeres as they consider striker options**\
-`The Sweden international has long been admired by Arsenal’s new sporting director Andrea Berta.`\
-https://nytimes.com/athletic/6240873/2025/03/30/viktor-gyokeres-arsenal-transfer-sporting/
-
-**‘Mission South Africa’: How Trump Is Offering White Afrikaners Refugee Status**\
-`The United States has banned most refugees, including 20,000 people who were already ready to travel to the United States before President Trump took office. But Mr. Trump is making one exception.`\
-https://nytimes.com/2025/03/30/us/politics/trump-south-africa-white-afrikaners-refugee.html
 
