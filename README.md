@@ -1,3 +1,7 @@
+**Hegseth Pledges to Step Up Military Cooperation With Japan**\
+`The U.S. defense secretary sought to reassure its ally over security ties and vowed to speed up the creation of a joint “war-fighting headquarters” to deter China.`\
+https://nytimes.com/2025/03/30/world/asia/hegseth-japan-military.html
+
 **Map: 7.1-Magnitude Earthquake Near Tonga Prompts Tsunami Alert**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/03/30/world/tonga-quake-tsunami.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/30/world/europe/prince-harry-accused-bullying-charit
 **What We Know About Talks for a Renewed Gaza Cease-Fire**\
 `Hamas said it had accepted a proposal for a new cease-fire, which would see some hostages released from captivity in Gaza. But details were elusive.`\
 https://nytimes.com/2025/03/30/world/middleeast/israel-hamas-ceasefire-gaza.html
-
-**Maryland basketball coaching candidates: Where will the Terps turn to replace Willard?**\
-`Willard guided Maryland to the NCAA Tournament three times in four seasons, including the 2024 trip to the Sweet 16. What's next? `\
-https://nytimes.com/athletic/6234078/2025/03/30/maryland-mens-basketball-coaching-candidates/
 
