@@ -1,3 +1,11 @@
+**Possible Electoral Ban on Marine Le Pen Has France on Edge**\
+`A verdict Monday in an embezzlement trial is seen as a test of the country’s democracy — and the rule of law.`\
+https://nytimes.com/2025/03/30/world/europe/le-pen-embezzlement-trial-france-election.html
+
+**Chicken Cobbler Is an Easier Potpie**\
+`Mark Bittman’s classic recipe turns a little chicken (just two boneless thighs) and a lot of vegetables into a cozy Sunday dinner.`\
+https://nytimes.com/2025/03/30/dining/easy-chicken-cobbler.html
+
 **Lowetide: In defence of Oilers AHL head coach Colin Chaulk**\
 `Here's a look at Chaulk's performance in his primary role: Developing young talent for the NHL team.`\
 https://nytimes.com/athletic/6240478/2025/03/30/colin-chaulk-bakersfield-condors-coach/

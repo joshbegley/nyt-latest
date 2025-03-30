@@ -1,3 +1,11 @@
+**Possible Electoral Ban on Marine Le Pen Has France on Edge**\
+`A verdict Monday in an embezzlement trial is seen as a test of the country’s democracy — and the rule of law.`\
+https://nytimes.com/2025/03/30/world/europe/le-pen-embezzlement-trial-france-election.html
+
+**Chicken Cobbler Is an Easier Potpie**\
+`Mark Bittman’s classic recipe turns a little chicken (just two boneless thighs) and a lot of vegetables into a cozy Sunday dinner.`\
+https://nytimes.com/2025/03/30/dining/easy-chicken-cobbler.html
+
 **Lowetide: In defence of Oilers AHL head coach Colin Chaulk**\
 `Here's a look at Chaulk's performance in his primary role: Developing young talent for the NHL team.`\
 https://nytimes.com/athletic/6240478/2025/03/30/colin-chaulk-bakersfield-condors-coach/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/03/30/us/trump-news
 **Where Oligarchy and Populism Meet**\
 `Readers respond to a column by Ross Douthat arguing that populist ideas, not oligarchic self-interest, motivate President Trump’s agenda. Also: Cash bail injustices.`\
 https://nytimes.com/2025/03/30/opinion/trump-oligarchy-populism.html
-
-**Richard Chamberlain, TV Heartthrob Turned Serious Actor, Dies at 90**\
-`An overnight star as Dr. Kildare in the 1960s, he achieved new acclaim two decades later as the omnipresent leading man of mini-series.`\
-https://nytimes.com/2025/03/30/arts/television/richard-chamberlain-dead.html
-
-**‘S.N.L’: Live From New York, It’s More Military Secrets.**\
-`Mikey Madison hosts and Luigi Mangione, Squidward and Ashton Hall make appearances.`\
-https://nytimes.com/2025/03/30/arts/television/snl-live-from-new-york-military-secrets.html
 
