@@ -1,3 +1,7 @@
+**In Bangkok, Looking at High-Rises With a New Sense of Dread**\
+`Buildings are rising all over the city, emblems of economic growth. But an earthquake that sent one crashing to the ground has stirred fears about building safety.`\
+https://nytimes.com/2025/03/30/world/asia/earthquake-bangkok-building-safety.html
+
 **No. 1 UCLA vs. No. 3 LSU: How to watch Lauren Betts, Aneesah Morrow battle for Final Four**\
 `Two of the best bigs in the game jostle for a Final Four spot, with Lauren Betts' top-ranked Bruins favored against Aneesah Morrow and LSU.`\
 https://nytimes.com/athletic/6240449/2025/03/30/ucla-lsu-womens-ncaa-tournament-elite-eight-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/30/us/politics/trump-tariffs-canada-minnesota-iron-r
 **What Rusting Russian Tanks Can Teach Us About the Pete Hegseth Group Chat**\
 `A politicized military is an ineffective military.`\
 https://nytimes.com/2025/03/30/opinion/hegseth-signal-trump-putin.html
-
-**After 120 Years Stored in a Museum, an Indigenous Shrine Returns Home**\
-`Taken from a First Nation community in Canada, the shrine recently began a more than 3,000-mile journey back from the American Museum of Natural History in New York.`\
-https://nytimes.com/2025/03/30/arts/design/museum-of-natural-history-returns-shrine.html
 
