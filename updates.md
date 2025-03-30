@@ -1,3 +1,15 @@
+**Yohe: McGroarty, Koivunen fitting right in as Penguins eagerly embrace youth movement**\
+`The arrival and development of Pittsburgh's two prospects is a big deal — for now and the future.`\
+https://nytimes.com/athletic/6241100/2025/03/30/penguins-rutger-mcgroarty-ville-koivunen/
+
+**USC spring takeaways: Impressive freshmen, Jayden Maiava's progress, Kamari Ramsey**\
+`Where should the Trojans look for help in the spring portal window? Why it's clear that Lincoln Riley feels good about QB Husan Longstreet. `\
+https://nytimes.com/athletic/6240695/2025/03/30/usc-football-spring-practice-quarterbacks/
+
+**How Duke’s defense put the brakes on fastest-paced, highest-scoring offense in country**\
+`Two days after Alabama set an NCAA Tournament record, Duke's defense put the clamps on the Tide's high-scoring attack.`\
+https://nytimes.com/athletic/6241559/2025/03/30/duke-alabama-elite-eight-final-four-march-madness/
+
 **The Pulse: Will Mike Trout ever play for a contender?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6241590/2025/03/30/mike-trout-trade-mlb-the-pulse/
