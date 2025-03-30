@@ -1,3 +1,11 @@
+**Houston locks down Tennessee to secure Kelvin Sampson's third career Final Four trip**\
+`The Vols had just 15 points at halftime, the fewest ever for a top-two seed in any NCAA Tournament game.`\
+https://nytimes.com/athletic/6242382/2025/03/30/houston-tennessee-march-madness-final-four/
+
+**White House Takes Highly Unusual Step of Directly Firing Line Prosecutors**\
+`Two prosecutors were dismissed out of the blue, notified by a terse one-sentence email stating no reason for the move other than that it was on behalf of the president himself.`\
+https://nytimes.com/2025/03/30/us/line-prosecutors-fired-trump-doj.html
+
 **Men's March Madness projections 2025: Who will advance to the Final Four?**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/03/30/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/

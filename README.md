@@ -1,3 +1,7 @@
+**Reinaldo Herrera, Arbiter of Style for Vanity Fair, Dies at 91**\
+`Both old school and Old World and married to a celebrated fashion designer, he helped define Manhattan’s high life for many years.`\
+https://nytimes.com/2025/03/30/style/reinaldo-herrera-dead.html
+
 **Houston locks down Tennessee to secure Kelvin Sampson's third career Final Four trip**\
 `The Vols had just 15 points at halftime, the fewest ever for a top-two seed in any NCAA Tournament game.`\
 https://nytimes.com/athletic/6242382/2025/03/30/houston-tennessee-march-madness-final-four/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6242324/2025/03/30/duke-south-carolina-womens-ncaa-
 **Women's March Madness projections 2025: Does UConn have the advantage?**\
 `What's your team's chance of winning? Find out here. `\
 https://nytimes.com/athletic/6198041/2025/03/30/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**Kite Confiscated After Coming in Contact With a Jet Near Washington**\
-`United Airlines said a plane landed safely at Reagan National Airport after a witness said he saw a kite reach the plane between its fuselage and engine.`\
-https://nytimes.com/2025/03/30/us/kite-plane-ronald-reagan-airport.html
 
