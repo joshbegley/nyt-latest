@@ -1,3 +1,7 @@
+**Can the Mets' Francisco Lindor start hot this time? He's wondering, too**\
+`Lindor went 0-for-11 in Houston, but he's hardly alone. New York scored just five runs in the three games.`\
+https://nytimes.com/athletic/6241202/2025/03/29/francisco-lindor-mets-offense-astros/
+
 **USC leans on freshmen to get past Kansas State, advance to Elite Eight**\
 `Juju Watkins’ absence and Ayoka Lee’s presence made this No. 1-No. 5 matchup one of the biggest toss-ups of the third round.`\
 https://nytimes.com/athletic/6241144/2025/03/29/usc-kansas-state-sweet-sixteen-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/03/29/us/trump-news/protesters-take-aim-at-elon-mu
 **Closing time: Walter Clayton Jr. shoots Florida past Texas Tech to advance to Final Four**\
 `Clayton, Florida's big shot maker, scored a game-high 30 points and hit several huge 3-pointers down the stretch. `\
 https://nytimes.com/athletic/6241009/2025/03/29/walter-clayton-florida-elite-eight-final-four/
-
-**Men's March Madness projections 2025: Who will advance to the Final Four?**\
-`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
-https://nytimes.com/athletic/6198047/2025/03/29/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
 
