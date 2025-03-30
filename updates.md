@@ -1,3 +1,11 @@
+**Drug Reduces Mysterious Particle Involved in Heart Attack Risk**\
+`The Eli Lilly drug caused a major drop in the blood levels of Lp(a), but further research is needed to show that it will prevent heart attacks and strokes.`\
+https://nytimes.com/2025/03/30/health/heart-attack-lpa-protein.html
+
+**Arsenal developing strong interest in Gyokeres as they consider striker options**\
+`The Sweden international has long been admired by Arsenal’s new sporting director Andrea Berta.`\
+https://nytimes.com/athletic/6240873/2025/03/30/viktor-gyokeres-arsenal-transfer-sporting/
+
 **‘Mission South Africa’: How Trump Is Offering White Afrikaners Refugee Status**\
 `The United States has banned most refugees, including 20,000 people who were already approved for entry before President Trump took office. But Mr. Trump is making one exception.`\
 https://nytimes.com/2025/03/30/us/politics/trump-south-africa-white-afrikaners-refugee.html
