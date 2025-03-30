@@ -1,3 +1,7 @@
+**Corrections: March 30, 2025**\
+`Corrections that appeared in print on Sunday, March 30, 2025.`\
+https://nytimes.com/2025/03/29/pageoneplus/corrections-march-30-2025.html
+
 **For Jesús Luzardo, 11 strikeouts and a strong first impression with the Phillies**\
 `Luzardo brought the heat, some competitive fire and an effective sweeper to the mound for his first start with the Phillies.`\
 https://nytimes.com/athletic/6241070/2025/03/29/jesus-luzardo-phillies-debut/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6240988/2025/03/29/uconn-oklahoma-ncaa-womens-march
 **Guardians' José Ramírez day to day with wrist sprain**\
 `Ramírez injured his right wrist on an unsuccessful stolen-base attempt in the third inning of Saturday's game against the Royals.`\
 https://nytimes.com/athletic/6240900/2025/03/29/guardians-jose-ramirez-injury-wrist/
-
-**Twins off to a slow start they could ill afford**\
-`Despite a good outing from starting pitcher Joe Ryan, the offense was held in check again as the Cardinals downed the Twins 5-1 on Saturday.`\
-https://nytimes.com/athletic/6240943/2025/03/29/twins-slow-start-cardinals/
 
