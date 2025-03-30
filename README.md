@@ -1,3 +1,7 @@
+**Villanova hires Maryland basketball coach Kevin Willard: Source**\
+`Willard emphasized when the Terps were in Seattle that he loved coaching at Maryland, but he wanted the school to improve in NIL.`\
+https://nytimes.com/athletic/6237329/2025/03/30/villanova-mens-basketball-hires-maryland-kevin-willard/
+
 **FA Cup defeat to Forest will be painful — Brighton missed a huge opportunity**\
 `It was the most open FA Cup competition in years - so defeat on penalties to Forest in the quarter-finals will be extra painful for Brighton`\
 https://nytimes.com/athletic/6236217/2025/03/30/brighton-forest-fa-cup-missed-opportunity/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6208178/2025/03/30/oilers-leon-draisaitl-scores-50t
 **The New York Times in Print for Sunday, March 30, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/03/30/todays-new-york-times
-
-**Take It From Ben Franklin: Attempts to Annex Canada End ‘Pitifully Unwell’**\
-`It was almost as though America’s northern neighbor were an entirely different country.`\
-https://nytimes.com/2025/03/30/opinion/canada-annex-us-trump.html
 
