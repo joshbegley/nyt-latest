@@ -1,3 +1,11 @@
+**Auburn's Johni Broome exits game with apparent injury, returns to drill 3**\
+`Broome, 22, returned to the game after X-rays were negative.`\
+https://nytimes.com/athletic/6242810/2025/03/30/auburn-johni-broome-elbow-injury-elite-eight/
+
+**Justin Fields will be the Jets starter — and they believe he can be the next Sam Darnold, Baker Mayfield: Takeaways**\
+`Darren Mougey said Fields has a “unique athletic skill set that adds another dimension to the game." `\
+https://nytimes.com/athletic/6242736/2025/03/30/justin-fields-jets-quarterback/
+
 **Brewers believe Yankees' torpedo bats were fair: 'It ain't the wand; it's the magician'**\
 `After allowing 15 home runs in three games, the Brewers didn't make excuses: "It's not like some magical wood or anything else."`\
 https://nytimes.com/athletic/6242643/2025/03/30/brewers-yankees-torpedo-bats/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6242595/2025/03/30/ucla-edges-lsu-first-final-four/
 **Trump’s New Concession on Tariffs Is His Most Striking**\
 `The president said he “couldn’t care less” if automakers rose prices in response to planned tariffs, reasoning that buyers would choose U.S.-made cars over foreign brands.`\
 https://nytimes.com/2025/03/30/us/politics/trump-auto-tariffs.html
-
-**Make Official**\
-`Ryan Mathiason makes his New York Times Crossword debut.`\
-https://nytimes.com/2025/03/30/crosswords/daily-puzzle-2025-03-31.html
-
-**Women's March Madness projections 2025: Does UConn have the advantage?**\
-`What's your team's chance of winning? Find out here. `\
-https://nytimes.com/athletic/6198041/2025/03/30/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
 
