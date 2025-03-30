@@ -1,5 +1,9 @@
-**Blue Jackets' back-to-back woes surface again in loss to Ottawa**\
-`Columbus made a third-period push but trailed for most of the game, ultimately losing 3-2 to Ottawa Saturday night.`\
+**Duke stifles Alabama as 2nd top seed advances to Final Four**\
+`Only two more games separate Cooper Flagg and the Blue Devils from immortality and the program's sixth national championship banner.`\
+https://nytimes.com/athletic/6241127/2025/03/29/duke-alabama-cooper-flagg-march-madness/
+
+**Blue Jackets' back-to-back woes surface again in loss to Senators**\
+`Columbus made a third-period push but trailed for most of the game, losing 3-2 to Ottawa on Saturday night.`\
 https://nytimes.com/athletic/6241147/2025/03/29/blue-jackets-senators-nhl-playoff-standings/
 
 **Trump Says He Won’t Fire Officials Involved in Leaked Signal Chat**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6240980/2025/03/29/wild-devils-john-hynes-standings
 **Ilia Malinin, with unmatchable form, repeats as figure skating world champion**\
 `The American sensation landed six quad jumps to repeat as world champion and cement his status as the Olympic favorite.`\
 https://nytimes.com/athletic/6241150/2025/03/29/ilia-malinin-figure-skating-world-championships-gold/
-
-**'This is why you came here': Paige Bueckers rises to occasion again with career performance**\
-`Bueckers scored a career-high 40 points to get UConn into the Elite Eight.`\
-https://nytimes.com/athletic/6241129/2025/03/29/paige-bueckers-uconn-40-points-sweet-16/
 

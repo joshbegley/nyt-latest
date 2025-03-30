@@ -1,3 +1,19 @@
+**Blue Jackets' back-to-back woes surface again in loss to Ottawa**\
+`Columbus made a third-period push but trailed for most of the game, ultimately losing 3-2 to Ottawa Saturday night.`\
+https://nytimes.com/athletic/6241147/2025/03/29/blue-jackets-senators-nhl-playoff-standings/
+
+**Trump Says He Won’t Fire Officials Involved in Leaked Signal Chat**\
+`President Trump told NBC News he would not fire anyone involved in a group chat that inadvertently disclosed plans for U.S. airstrikes to a journalist.`\
+https://nytimes.com/2025/03/29/us/politics/trump-signal-waltz-tariffs.html
+
+**Men's March Madness projections 2025: Who will advance to the Final Four?**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/03/29/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/03/29/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **Can the Mets' Francisco Lindor start hot this time? He's wondering, too**\
 `Lindor went 0-for-11 in Houston, but he's hardly alone. New York scored just five runs in the three games.`\
 https://nytimes.com/athletic/6241202/2025/03/29/francisco-lindor-mets-offense-astros/
