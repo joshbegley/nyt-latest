@@ -1,3 +1,23 @@
+**Men's March Madness projections 2025: Who will advance to the Final Four?**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/03/30/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
+**Cunha on Wolves future: 'I need to take the next step'**\
+`Cunha, 25, signed a new contact at Wolves, which contains a release clause, in February.`\
+https://nytimes.com/athletic/6242004/2025/03/30/matheus-cunha-wolves-future-latest/
+
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/03/30/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
+**Senators notebook: The 'gelling' Cozens line, a 'really special' dads' trip, and more**\
+`A familiar face got his revenge against Ottawa this week. It wasn't Josh Norris.`\
+https://nytimes.com/athletic/6224015/2025/03/30/ottawa-senators-cozens-notebook/
+
+**Joe Harris, 108, Dies; Thought to Be the Oldest World War II Paratrooper**\
+`He was a member of a segregated unit in the Pacific Northwest that fought forest fires set off by Japanese balloon bombs.`\
+https://nytimes.com/2025/03/30/us/joe-harris-dead.html
+
 **Blue Jays pitcher Max Scherzer placed on 15-day IL with thumb inflammation**\
 `Scherzer exited his Blue Jays debut Saturday against Baltimore after just three innings and 45 pitches due to right lat soreness.`\
 https://nytimes.com/athletic/6241921/2025/03/30/max-scherzer-15-day-il-right-thumb/

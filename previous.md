@@ -1,3 +1,23 @@
+**Men's March Madness projections 2025: Who will advance to the Final Four?**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/03/30/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
+**Cunha on Wolves future: 'I need to take the next step'**\
+`Cunha, 25, signed a new contact at Wolves, which contains a release clause, in February.`\
+https://nytimes.com/athletic/6242004/2025/03/30/matheus-cunha-wolves-future-latest/
+
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/03/30/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
+**Senators notebook: The 'gelling' Cozens line, a 'really special' dads' trip, and more**\
+`A familiar face got his revenge against Ottawa this week. It wasn't Josh Norris.`\
+https://nytimes.com/athletic/6224015/2025/03/30/ottawa-senators-cozens-notebook/
+
+**Joe Harris, 108, Dies; Thought to Be the Oldest World War II Paratrooper**\
+`He was a member of a segregated unit in the Pacific Northwest that fought forest fires set off by Japanese balloon bombs.`\
+https://nytimes.com/2025/03/30/us/joe-harris-dead.html
+
 **Blue Jays pitcher Max Scherzer placed on 15-day IL with thumb inflammation**\
 `Scherzer exited his Blue Jays debut Saturday against Baltimore after just three innings and 45 pitches due to right lat soreness.`\
 https://nytimes.com/athletic/6241921/2025/03/30/max-scherzer-15-day-il-right-thumb/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/03/30/world/europe/le-pen-embezzlement-trial-france-ele
 **Chicken Cobbler Is an Easier Potpie**\
 `Mark Bittman’s classic recipe turns a little chicken (just two boneless thighs) and a lot of vegetables into a cozy Sunday dinner.`\
 https://nytimes.com/2025/03/30/dining/easy-chicken-cobbler.html
-
-**Lowetide: In defence of Oilers AHL head coach Colin Chaulk**\
-`Here's a look at Chaulk's performance in his primary role: Developing young talent for the NHL team.`\
-https://nytimes.com/athletic/6240478/2025/03/30/colin-chaulk-bakersfield-condors-coach/
-
-**Elite Eight power rankings: Is UConn destined for another Final Four? Can UCLA be stopped?**\
-`The Elite Eight begins Sunday in Birmingham and Spokane. `\
-https://nytimes.com/athletic/6241395/2025/03/30/elite-eight-power-rankings-uconn-ucla/
-
-**Nonalcoholic Drinks Go Their Own Way**\
-`Plus: wooden sculptures of everyday objects, stylish takes on the fanny pack and more recommendations from T Magazine.`\
-https://nytimes.com/2025/03/30/t-magazine/nonalcoholic-wine-foraged-drinks.html
-
-**Making unexpected late playoff pushes, what are Mavs and Bulls playing for?**\
-`Both teams have come alive lately, right as questions arose over whether a summer draft pick should be a higher priority than the playoffs.`\
-https://nytimes.com/athletic/6241680/2025/03/30/mavericks-bulls-nba-playoff-race/
-
-**Hegseth Pledges to Step Up Military Cooperation With Japan**\
-`The U.S. defense secretary sought to reassure its ally over security ties and vowed to speed up the creation of a joint “war-fighting headquarters” to deter China.`\
-https://nytimes.com/2025/03/30/world/asia/hegseth-japan-military.html
 
