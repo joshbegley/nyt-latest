@@ -1,3 +1,11 @@
+**USC leans on freshmen to get past Kansas State, advance to Elite Eight**\
+`Juju Watkins’ absence and Ayoka Lee’s presence made this No. 1-No. 5 matchup one of the biggest toss-ups of the third round.`\
+https://nytimes.com/athletic/6241144/2025/03/29/usc-kansas-state-sweet-sixteen-analysis/
+
+**Double plays spoil Justin Verlander's Giants debut**\
+`In the season's second game, the Giants had moments that were promising, worth keeping an eye on and ominous.`\
+https://nytimes.com/athletic/6240737/2025/03/29/justin-verlander-giants-debut/
+
 **John Hynes says Wild's poor effort vs. Devils 'will be addressed': 3 takeaways**\
 `Minnesota continues to slide in the standings after Saturday's extremely disappointing 5-2 loss to New Jersey.`\
 https://nytimes.com/athletic/6240980/2025/03/29/wild-devils-john-hynes-standings-nhl/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6241009/2025/03/29/walter-clayton-florida-elite-eig
 **Men's March Madness projections 2025: Who will advance to the Final Four?**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/03/29/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**‘No Cake, No Entry’: More Than 1,000 Picnic to Celebrate the Love of Cake**\
-`No crumbs were left behind at Cake Picnic in San Francisco on Saturday as attendees gawked, photographed and ultimately ate 1,387 cakes.`\
-https://nytimes.com/2025/03/29/us/cake-picnic-san-francisco.html
-
-**Let Them Eat Cake**\
-`Text by Laura Morton and Simon J. Levien`\
-https://nytimes.com/card/2025/03/30/us/let-them-eat-cake
 

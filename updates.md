@@ -1,3 +1,11 @@
+**USC leans on freshmen to get past Kansas State, advance to Elite Eight**\
+`Juju Watkins’ absence and Ayoka Lee’s presence made this No. 1-No. 5 matchup one of the biggest toss-ups of the third round.`\
+https://nytimes.com/athletic/6241144/2025/03/29/usc-kansas-state-sweet-sixteen-analysis/
+
+**Double plays spoil Justin Verlander's Giants debut**\
+`In the season's second game, the Giants had moments that were promising, worth keeping an eye on and ominous.`\
+https://nytimes.com/athletic/6240737/2025/03/29/justin-verlander-giants-debut/
+
 **John Hynes says Wild's poor effort vs. Devils 'will be addressed': 3 takeaways**\
 `Minnesota continues to slide in the standings after Saturday's extremely disappointing 5-2 loss to New Jersey.`\
 https://nytimes.com/athletic/6240980/2025/03/29/wild-devils-john-hynes-standings-nhl/
