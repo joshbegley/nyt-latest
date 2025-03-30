@@ -1,5 +1,9 @@
+**Mike Tomlin gives no timeline on Aaron Rodgers as Steelers weigh QB options**\
+`Throughout his media availability at the annual league meetings, Tomlin was peppered with repeated questions about the ongoing Rodgers saga.`\
+https://nytimes.com/athletic/6242727/2025/03/30/steelers-aaron-rodgers-free-agency-quarterbacka/
+
 **Getting the ball in Chloe Kitts' hands was key to South Carolina's return to the Final Four**\
-`The junior is another in a long line of Gamecocks' post players to deliver in March Madness.`\
+`The junior is another in a long line of Gamecocks post players to deliver in March Madness.`\
 https://nytimes.com/athletic/6242744/2025/03/30/chloe-kitts-south-carolina-final-four-elite-eight/
 
 **Canucks playoff odds take a devastating hit in loss to Jets: 3 takeaways**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6198041/2025/03/30/womens-march-madness-projections
 **Alex Ovechkin 5 goals from breaking Wayne Gretzky's record with No. 890**\
 `The Washington Capitals superstar continues to close in on Gretzky’s longstanding record of 894 career NHL goals.`\
 https://nytimes.com/athletic/6235568/2025/03/30/alex-ovechkin-goals-record-gretzky/
-
-**Knicks' Jalen Brunson hopes to return before end of regular season**\
-`Brunson suffered a right ankle sprain in an overtime loss to the Los Angeles Lakers on March 6.`\
-https://nytimes.com/athletic/6242403/2025/03/30/jalen-brunson-knicks-injury-update/
 
