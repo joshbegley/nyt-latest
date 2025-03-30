@@ -1,3 +1,7 @@
+**Blue Jackets' back-to-back woes surface again in loss to Ottawa**\
+`Columbus made a third-period push but trailed for most of the game, ultimately losing 3-2 to Ottawa Saturday night.`\
+https://nytimes.com/athletic/6241147/2025/03/29/blue-jackets-senators-nhl-playoff-standings/
+
 **Trump Says He Won’t Fire Officials Involved in Leaked Signal Chat**\
 `President Trump told NBC News he would not fire anyone involved in a group chat that inadvertently disclosed plans for U.S. airstrikes to a journalist.`\
 https://nytimes.com/2025/03/29/us/politics/trump-signal-waltz-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6241150/2025/03/29/ilia-malinin-figure-skating-worl
 **'This is why you came here': Paige Bueckers rises to occasion again with career performance**\
 `Bueckers scored a career-high 40 points to get UConn into the Elite Eight.`\
 https://nytimes.com/athletic/6241129/2025/03/29/paige-bueckers-uconn-40-points-sweet-16/
-
-**Corrections: March 30, 2025**\
-`Corrections that appeared in print on Sunday, March 30, 2025.`\
-https://nytimes.com/2025/03/29/pageoneplus/corrections-march-30-2025.html
 
