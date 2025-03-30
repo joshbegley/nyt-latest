@@ -1,3 +1,11 @@
+**Making unexpected late playoff pushes, what are Mavs and Bulls playing for?**\
+`Both teams have come alive lately, right as questions arose over whether a summer draft pick should be a higher priority than the playoffs.`\
+https://nytimes.com/athletic/6241680/2025/03/30/mavericks-bulls-nba-playoff-race/
+
+**Map: 7.0-Magnitude Earthquake Near Tonga Prompts Brief Tsunami Alert**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/03/30/world/tonga-quake-tsunami.html
+
 **Hegseth Pledges to Step Up Military Cooperation With Japan**\
 `The U.S. defense secretary sought to reassure its ally over security ties and vowed to speed up the creation of a joint “war-fighting headquarters” to deter China.`\
 https://nytimes.com/2025/03/30/world/asia/hegseth-japan-military.html
