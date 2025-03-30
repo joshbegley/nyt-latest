@@ -31,7 +31,7 @@ https://nytimes.com/card/2025/03/30/us/let-them-eat-cake
 https://nytimes.com/athletic/6241023/2025/03/29/texas-point-guard-bryanna-preston-rori-harmon/
 
 **Paige Bueckers scores career high, UConn routs Oklahoma in Sweet 16**\
-`Bueckers finished 16-of-27 from the field and six-of-eight from 3, setting a UConn NCAA Tournament record for points `\
+`Bueckers finished 16-of-27 from the field and 6-of-8 from 3, setting a UConn NCAA Tournament record for points.`\
 https://nytimes.com/athletic/6240988/2025/03/29/uconn-oklahoma-ncaa-womens-march-madness-game/
 
 **Guardians' José Ramírez day to day with wrist sprain**\
