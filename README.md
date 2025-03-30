@@ -1,3 +1,11 @@
+**The Briefing: Bournemouth 1 Man City 2 - O'Reilly impact, Haaland's injury concern, and how did City turn it round?**\
+`Pep Guardiola's side could still claim a trophy this season after forcing passage into the FA Cup semi-finals for a seventh year in a row`\
+https://nytimes.com/athletic/6239544/2025/03/30/manchester-city-haaland-oreilly-bournemouth-fa-cup/
+
+**As some Yankees players embrace torpedo bats, Aaron Judge plans to stick with 'something that's working'**\
+`Yankees manager Aaron Boone compared the use of the torpedo bats to a golfer going to a simulator to get properly fitted for clubs.`\
+https://nytimes.com/athletic/6242188/2025/03/30/yankees-torpedo-bats-aaron-judge/
+
 **A Conductor’s Intensity on the Podium Matches Her Approachability Off**\
 `Joana Mallwitz, one of Germany’s fastest rising stars, makes her Metropolitan Opera debut in “The Marriage of Figaro” on Monday.`\
 https://nytimes.com/2025/03/30/arts/music/conductor-joana-mallwitz-metropolitan-opera-debut.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6242004/2025/03/30/matheus-cunha-wolves-future-late
 **Women's March Madness projections 2025: Does UConn have the advantage?**\
 `What's your team's chance of winning? Find out here. `\
 https://nytimes.com/athletic/6198041/2025/03/30/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**Senators notebook: The 'gelling' Cozens line, a 'really special' dads' trip, and more**\
-`A familiar face got his revenge against Ottawa this week. It wasn't Josh Norris.`\
-https://nytimes.com/athletic/6224015/2025/03/30/ottawa-senators-cozens-notebook/
-
-**Joe Harris, 108, Dies; Thought to Be the Oldest World War II Paratrooper**\
-`He was a member of a segregated unit in the Pacific Northwest that fought forest fires set off by Japanese balloon bombs.`\
-https://nytimes.com/2025/03/30/us/joe-harris-dead.html
 
