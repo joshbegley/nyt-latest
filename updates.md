@@ -1,4 +1,8 @@
 **Trump-Era Pivot on Seabed Mining Draws Global Rebuke**\
+`Diplomats from more than 30 nations have criticized a proposal that could allow the start of seabed mining by 2027.`\
+https://nytimes.com/2025/03/30/us/politics/trump-mining-metals-company.html
+
+**Trump-Era Pivot on Seabed Mining Draws Global Rebuke**\
 `Diplomats from more than 30 nations have criticized a proposal that could allow the start of seabed mining as soon as 2027.`\
 https://nytimes.com/2025/03/30/us/politics/trump-mining-metals-company.html
 
