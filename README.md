@@ -1,3 +1,7 @@
+**South Carolina holds off Duke to reach fifth straight Final Four**\
+`The top-seeded Gamecocks, defending national champions, got all they could handle from second-seeded Duke, winning 54-50.`\
+https://nytimes.com/athletic/6242324/2025/03/30/duke-south-carolina-womens-ncaa-march-madness-elite-8/
+
 **Women's March Madness projections 2025: Does UConn have the advantage?**\
 `What's your team's chance of winning? Find out here. `\
 https://nytimes.com/athletic/6198041/2025/03/30/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6241539/2025/03/30/sels-forest-penalties-fa-cup-bri
 **On the Night Before Eid, Mothers Made the Magic Happen**\
 `For the joyous Muslim holiday to work, mothers in New York City spent Saturday night preparing, merging traditions from around the world with ones developed here.`\
 https://nytimes.com/2025/03/30/style/eid-preparations-mothers.html
-
-**Blue Jackets Sunday Gathering: Chasing the game is no way to make the playoffs**\
-`With 10 games left, something has to change if the Blue Jackets want to keep this storybook season going past April 17.`\
-https://nytimes.com/athletic/6241568/2025/03/30/blue-jackets-nhl-playoffs-season/
 
