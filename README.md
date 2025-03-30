@@ -10,7 +10,7 @@ https://nytimes.com/2025/03/29/us/cake-picnic-san-francisco.html
 `Text by Laura Morton and Simon J. Levien`\
 https://nytimes.com/card/2025/03/30/us/let-them-eat-cake
 
-**Texas found its point guard of the future ... who's delivered in the Sweet 16**\
+**Texas found its point guard of the future ... she delivered in the Sweet 16**\
 `Bryanna Preston's combined play with veteran Rori Harmon carried Texas into the Elite Eight.`\
 https://nytimes.com/athletic/6241023/2025/03/29/texas-point-guard-bryanna-preston-rori-harmon/
 
