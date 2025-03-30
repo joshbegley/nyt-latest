@@ -1,3 +1,19 @@
+**Farke has backed Meslier after every mistake - Leeds will judge him on what he does next**\
+`If Farke stands by Meslier again and the club fail to win promotion with the league's best squad he will be remembered as a stubborn failure`\
+https://nytimes.com/athletic/6240801/2025/03/30/meslier-farke-mistake-leeds/
+
+**Caitlin Clark card sets new record sale for a women's sports trading card**\
+`Clark's WNBA rookie cards have been in demand `\
+https://nytimes.com/athletic/6241239/2025/03/30/caitlin-clark-rookie-card-record-sale/
+
+**Dean Huijsen: The two-footed, progressive centre-back coveted by Europe's top clubs**\
+`The 19-year-old is enjoying a stellar season with Bournemouth and has a skill set that looks tailor-made for the highest level `\
+https://nytimes.com/athletic/6232044/2025/03/30/dean-huijsen-tactical-profile/
+
+**Where have all the elite French men's football coaches gone?**\
+`Patrick Vieira is the only French coach managing in Europe's top four leagues. Tom Williams explores why they have fallen out of fashion... `\
+https://nytimes.com/athletic/6223057/2025/03/30/french-coaching-football-europe-elite/
+
 **'I was really emotional at the end' - Finding hope on football's march against a 'cruel and horrible' disease**\
 `Oliver Kay joins a gruelling 178-mile walk to speak to footballers suffering from MND — and fighting it every step of the way`\
 https://nytimes.com/athletic/6240148/2025/03/30/march-of-the-day-marcus-stewart-ipswich/
