@@ -1,3 +1,7 @@
+**South Carolina's used to dominating. It's been a narrower path to this season's Final Four**\
+`South Carolina struggled but found a way to beat Duke for its fifth straight Final Four trip.`\
+https://nytimes.com/athletic/6242924/2025/03/30/south-carolina-final-four-path/
+
 **Auburn's Johni Broome exits game with apparent injury, returns to drill 3**\
 `Broome, 22, returned to the game after X-rays were negative.`\
 https://nytimes.com/athletic/6242810/2025/03/30/auburn-johni-broome-elbow-injury-elite-eight/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/30/us/politics/republican-party-new-mexico-fire-arso
 **UCLA flexes depth, edges LSU to earn first trip to Final Four**\
 `Bruins overcome foul trouble for All-American center Lauren Betts, get hot from 3-point range to edge Tigers.`\
 https://nytimes.com/athletic/6242595/2025/03/30/ucla-edges-lsu-first-final-four/
-
-**Trump’s New Concession on Tariffs Is His Most Striking**\
-`The president said he “couldn’t care less” if automakers rose prices in response to planned tariffs, reasoning that buyers would choose U.S.-made cars over foreign brands.`\
-https://nytimes.com/2025/03/30/us/politics/trump-auto-tariffs.html
 
