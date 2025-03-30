@@ -1,3 +1,7 @@
+**Meet the MIT physicist turned Marlins coach behind the ‘torpedo’ bats used by the Yankees**\
+`Aaron Leanhardt was the Yankees' lead analyst in 2024 before joining the Marlins' coaching staff this offseason. `\
+https://nytimes.com/athletic/6241862/2025/03/30/yankees-bats-aaron-leanhardt-marlins/
+
 **Trump Offers Most Critical Comments of Russia With Threat of Secondary Tariffs**\
 `President Trump said he could impose tariffs on nations that buy oil from Russia if it thwarts negotiations for a peace deal in Ukraine. He suggested the same step was possible for Iran.`\
 https://nytimes.com/2025/03/30/us/politics/trump-putin-russia-iran-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6241921/2025/03/30/max-scherzer-15-day-il-right-thu
 **Linda Williams, 78, Dies; Took a Scholarly Approach to Pornography**\
 `One of the first to write seriously about a fraught subject, she also played a major role in developing the field of film studies and feminist film theory.`\
 https://nytimes.com/2025/03/30/arts/linda-williams-dead.html
-
-**Gananath Obeyesekere, 95, Dies; Anthropologist Bridged East and West**\
-`His wide-ranging work drew on field research in his native Sri Lanka as well as his extensive study of English literature and Christian mysticism.`\
-https://nytimes.com/2025/03/30/world/asia/gananath-obeyesekere-dead.html
 

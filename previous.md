@@ -1,3 +1,7 @@
+**Trump Offers Most Critical Comments of Russia With Threat of Secondary Tariffs**\
+`President Trump said he could impose tariffs on nations that buy oil from Russia if it thwarts negotiations for a peace deal in Ukraine. He suggested the same step was possible for Iran.`\
+https://nytimes.com/2025/03/30/us/politics/trump-putin-russia-iran-tariffs.html
+
 **Millions Face Risk of Severe Storms From the Midwest to the East Coast**\
 `Forecasters warn of widespread damaging winds, very large hail and tornadoes, from Texas to the East Coast starting on Sunday.`\
 https://nytimes.com/2025/03/30/weather/tornado-storms-missouri-illinois.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/30/arts/linda-williams-dead.html
 **Gananath Obeyesekere, 95, Dies; Anthropologist Bridged East and West**\
 `His wide-ranging work drew on field research in his native Sri Lanka as well as his extensive study of English literature and Christian mysticism.`\
 https://nytimes.com/2025/03/30/world/asia/gananath-obeyesekere-dead.html
-
-**Possible Electoral Ban on Marine Le Pen Has France on Edge**\
-`A verdict Monday in an embezzlement trial is seen as a test of the country’s democracy — and the rule of law.`\
-https://nytimes.com/2025/03/30/world/europe/le-pen-embezzlement-trial-france-election.html
 

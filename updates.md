@@ -1,3 +1,7 @@
+**Trump Offers Most Critical Comments of Russia With Threat of Secondary Tariffs**\
+`President Trump said he could impose tariffs on nations that buy oil from Russia if it thwarts negotiations for a peace deal in Ukraine. He suggested the same step was possible for Iran.`\
+https://nytimes.com/2025/03/30/us/politics/trump-putin-russia-iran-tariffs.html
+
 **Millions Face Risk of Severe Storms From the Midwest to the East Coast**\
 `Forecasters warn of widespread damaging winds, very large hail and tornadoes, from Texas to the East Coast starting on Sunday.`\
 https://nytimes.com/2025/03/30/weather/tornado-storms-missouri-illinois.html
