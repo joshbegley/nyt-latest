@@ -1,3 +1,15 @@
+**On the Night Before Eid, Mothers Made the Magic Happen**\
+`For the joyous Muslim holiday to work, mothers in New York City spent Saturday night preparing, merging traditions from around the world with ones developed here.`\
+https://nytimes.com/2025/03/30/style/eid-preparations-mothers.html
+
+**Blue Jackets Sunday Gathering: Chasing the game is no way to make the playoffs**\
+`With 10 games left, something has to change if the Blue Jackets want to keep this storybook season going past April 17.`\
+https://nytimes.com/athletic/6241568/2025/03/30/blue-jackets-nhl-playoffs-season/
+
+**As some Yankees embrace torpedo bats, Aaron Judge plans to stick with 'something that's working'**\
+`Yankees manager Aaron Boone compared the use of the torpedo bats to a golfer going to a simulator to get properly fitted for clubs.`\
+https://nytimes.com/athletic/6242188/2025/03/30/yankees-torpedo-bats-aaron-judge/
+
 **The Briefing: Bournemouth 1 Man City 2 - O'Reilly impact, Haaland's injury concern, and how did City turn it round?**\
 `Pep Guardiola's side could still claim a trophy this season after forcing passage into the FA Cup semi-finals for a seventh year in a row`\
 https://nytimes.com/athletic/6239544/2025/03/30/manchester-city-haaland-oreilly-bournemouth-fa-cup/
