@@ -1,3 +1,7 @@
+**Kristian Campbell, after a big night, acknowledges 'communication' on Red Sox contract talks**\
+`In three games, Campbell has gone 5-for-10, and 2-for-3 Saturday when he hit his first career home run and and doubled in his next at-bat.`\
+https://nytimes.com/athletic/6241348/2025/03/30/kristian-campbell-red-sox-contract-talks/
+
 **Oilers' Leon Draisaitl scores 50th goal of the season**\
 `Saturday against the Calgary Flames, Draisaitl became the first player to reach 50 goals this season.`\
 https://nytimes.com/athletic/6208178/2025/03/30/oilers-leon-draisaitl-scores-50th-goal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6240801/2025/03/30/meslier-farke-mistake-leeds/
 **Caitlin Clark card sets new record sale for a women's sports trading card**\
 `Clark's WNBA rookie cards have been in demand `\
 https://nytimes.com/athletic/6241239/2025/03/30/caitlin-clark-rookie-card-record-sale/
-
-**Dean Huijsen: The two-footed, progressive centre-back coveted by Europe's top clubs**\
-`The 19-year-old is enjoying a stellar season with Bournemouth and has a skill set that looks tailor-made for the highest level `\
-https://nytimes.com/athletic/6232044/2025/03/30/dean-huijsen-tactical-profile/
 
