@@ -1,3 +1,7 @@
+**Brewers believe Yankees' torpedo bats were fair: 'It ain't the wand; it's the magician'**\
+`After allowing 15 home runs in three games, the Brewers didn't make excuses: "It's not like some magical wood or anything else."`\
+https://nytimes.com/athletic/6242643/2025/03/30/brewers-yankees-torpedo-bats/
+
 **Mike Tomlin gives no timeline on Aaron Rodgers as Steelers weigh QB options**\
 `Throughout his media availability at the annual league meetings, Tomlin was peppered with repeated questions about the ongoing Rodgers saga.`\
 https://nytimes.com/athletic/6242727/2025/03/30/steelers-aaron-rodgers-free-agency-quarterbacka/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/30/crosswords/daily-puzzle-2025-03-31.html
 **Women's March Madness projections 2025: Does UConn have the advantage?**\
 `What's your team's chance of winning? Find out here. `\
 https://nytimes.com/athletic/6198041/2025/03/30/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**Alex Ovechkin 5 goals from breaking Wayne Gretzky's record with No. 890**\
-`The Washington Capitals superstar continues to close in on Gretzky’s longstanding record of 894 career NHL goals.`\
-https://nytimes.com/athletic/6235568/2025/03/30/alex-ovechkin-goals-record-gretzky/
 
