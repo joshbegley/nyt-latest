@@ -1,3 +1,15 @@
+**Brewers believe Yankees' torpedo bats were fair: 'It ain't the wand; it's the magician'**\
+`After allowing 15 home runs in three games, the Brewers didn't make excuses: "It's not like some magical wood or anything else."`\
+https://nytimes.com/athletic/6242643/2025/03/30/brewers-yankees-torpedo-bats/
+
+**Mike Tomlin gives no timeline on Aaron Rodgers as Steelers weigh QB options**\
+`Throughout his media availability at the annual league meetings, Tomlin was peppered with repeated questions about the ongoing Rodgers saga.`\
+https://nytimes.com/athletic/6242727/2025/03/30/steelers-aaron-rodgers-free-agency-quarterbacka/
+
+**Getting the ball in Chloe Kitts' hands was key to South Carolina's return to the Final Four**\
+`The junior is another in a long line of Gamecocks post players to deliver in March Madness.`\
+https://nytimes.com/athletic/6242744/2025/03/30/chloe-kitts-south-carolina-final-four-elite-eight/
+
 **Getting the ball in Chloe Kitts' hands was key to South Carolina's return to the Final Four**\
 `The junior is another in a long line of Gamecocks' post players to deliver in March Madness.`\
 https://nytimes.com/athletic/6242744/2025/03/30/chloe-kitts-south-carolina-final-four-elite-eight/
