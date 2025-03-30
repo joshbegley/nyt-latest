@@ -1,3 +1,7 @@
+**Kirill Kaprizov, Joel Eriksson Ek practice for first time, but returns still undetermined**\
+`The Wild still anticipate that both players will return in the regular season.`\
+https://nytimes.com/athletic/6242265/2025/03/30/wild-kaprizov-eriksson-ek-update/
+
 **Trump Says He’s ‘Not Joking’ About Seeking a Third Term in Defiance of Constitution**\
 `President Trump, in an interview with NBC News, said there were “methods” that would allow a third term. The 22nd Amendment prohibits a person from being elected to more than two terms as president.`\
 https://nytimes.com/2025/03/30/us/politics/trump-third-term.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6242188/2025/03/30/yankees-torpedo-bats-aaron-judge
 **A Conductor’s Intensity on the Podium Matches Her Approachability Off**\
 `Joana Mallwitz, one of Germany’s fastest rising stars, makes her Metropolitan Opera debut in “The Marriage of Figaro” on Monday.`\
 https://nytimes.com/2025/03/30/arts/music/conductor-joana-mallwitz-metropolitan-opera-debut.html
-
-**Shohei Ohtani card bearing piece of his 50/50 pants becomes first to sell for $1 million**\
-`Memorabilia from Ohtani's 50/50 season continues to command big prices`\
-https://nytimes.com/athletic/6242054/2025/03/30/shohei-ohtani-record-card-sale/
 

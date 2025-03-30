@@ -1,3 +1,7 @@
+**Kirill Kaprizov, Joel Eriksson Ek practice for first time, but returns still undetermined**\
+`The Wild still anticipate that both players will return in the regular season.`\
+https://nytimes.com/athletic/6242265/2025/03/30/wild-kaprizov-eriksson-ek-update/
+
 **Trump Says He’s ‘Not Joking’ About Seeking a Third Term in Defiance of Constitution**\
 `President Trump, in an interview with NBC News, said there were “methods” that would allow a third term. The 22nd Amendment prohibits a person from being elected to more than two terms as president.`\
 https://nytimes.com/2025/03/30/us/politics/trump-third-term.html
