@@ -1,3 +1,7 @@
+**Dansby Swanson gets the save for Cubs with heads-up defense in bottom of the 9th**\
+`With the tying run in scoring position for Arizona, Swanson used instincts and athleticism to make a game-saving tag at third base.`\
+https://nytimes.com/athletic/6241338/2025/03/30/cubs-dansby-swanson-pete-crow-armstrong-defense/
+
 **Kristian Campbell, after a big night, acknowledges 'communication' on Red Sox contract talks**\
 `In three games, Campbell has gone 5-for-10, and 2-for-3 Saturday when he hit his first career home run and and doubled in his next at-bat.`\
 https://nytimes.com/athletic/6241348/2025/03/30/kristian-campbell-red-sox-contract-talks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6241276/2025/03/30/astros-isaac-paredes-chas-mccorm
 **Farke has backed Meslier after every mistake - Leeds will judge him on what he does next**\
 `If Farke stands by Meslier again and the club fail to win promotion with the league's best squad he will be remembered as a stubborn failure`\
 https://nytimes.com/athletic/6240801/2025/03/30/meslier-farke-mistake-leeds/
-
-**Caitlin Clark card sets new record sale for a women's sports trading card**\
-`Clark's WNBA rookie cards have been in demand `\
-https://nytimes.com/athletic/6241239/2025/03/30/caitlin-clark-rookie-card-record-sale/
 
