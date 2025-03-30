@@ -1,3 +1,7 @@
+**Min Woo Lee holds off Scheffler to win Houston Open**\
+`It is Lee's first PGA Tour win. The 26-year-old Australian set a tournament record for low score.`\
+https://nytimes.com/athletic/6242722/2025/03/30/min-woo-lee-pga-tour-houston-open-scheffler/
+
 **Fire at New Mexico Republican Party Headquarters Being Investigated as Arson**\
 `Officials confirmed that the headquarters had been damaged in a fire, which the Republican Party called a “deliberate act of arson.”`\
 https://nytimes.com/2025/03/30/us/politics/republican-party-new-mexico-fire-arson.html
@@ -8,7 +12,7 @@ https://nytimes.com/athletic/6242595/2025/03/30/ucla-edges-lsu-first-final-four/
 
 **Trump’s New Concession on Tariffs Is His Most Striking**\
 `The president said he “couldn’t care less” if automakers rose prices in response to planned tariffs, reasoning that buyers would choose U.S.-made cars over foreign brands.`\
-https://nytimes.com/2025/03/30/us/politics/trumps-new-concession-on-tariffs-is-his-most-striking.html
+https://nytimes.com/2025/03/30/us/politics/trump-auto-tariffs.html
 
 **Make Official**\
 `Ryan Mathiason makes his New York Times Crossword debut.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/30/briefing/myanmar-earthquake-ukraine-war-secrets-s
 **Reinaldo Herrera, Arbiter of Style for Vanity Fair, Dies at 91**\
 `Both old school and Old World and married to a celebrated fashion designer, he helped define Manhattan’s high life for many years.`\
 https://nytimes.com/2025/03/30/style/reinaldo-herrera-dead.html
-
-**Houston locks down Tennessee to secure Kelvin Sampson's third career Final Four trip**\
-`The Vols had just 15 points at halftime, the fewest ever for a top-two seed in any NCAA Tournament game.`\
-https://nytimes.com/athletic/6242382/2025/03/30/houston-tennessee-march-madness-final-four/
 

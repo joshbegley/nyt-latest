@@ -1,3 +1,11 @@
+**Min Woo Lee holds off Scheffler to win Houston Open**\
+`It is Lee's first PGA Tour win. The 26-year-old Australian set a tournament record for low score.`\
+https://nytimes.com/athletic/6242722/2025/03/30/min-woo-lee-pga-tour-houston-open-scheffler/
+
+**Trump’s New Concession on Tariffs Is His Most Striking**\
+`The president said he “couldn’t care less” if automakers rose prices in response to planned tariffs, reasoning that buyers would choose U.S.-made cars over foreign brands.`\
+https://nytimes.com/2025/03/30/us/politics/trump-auto-tariffs.html
+
 **Fire at New Mexico Republican Party Headquarters Being Investigated as Arson**\
 `Officials confirmed that the headquarters had been damaged in a fire, which the Republican Party called a “deliberate act of arson.”`\
 https://nytimes.com/2025/03/30/us/politics/republican-party-new-mexico-fire-arson.html
