@@ -1,3 +1,11 @@
+**A Conductor’s Intensity on the Podium Matches Her Approachability Off**\
+`Joana Mallwitz, one of Germany’s fastest rising stars, makes her Metropolitan Opera debut in “The Marriage of Figaro” on Monday.`\
+https://nytimes.com/2025/03/30/arts/music/conductor-joana-mallwitz-metropolitan-opera-debut.html
+
+**Meet the MIT physicist turned Marlins coach behind the ‘torpedo’ bats used by the Yankees**\
+`Aaron Leanhardt was the Yankees' lead analyst in 2024 before joining the Marlins' coaching staff this offseason. `\
+https://nytimes.com/athletic/6241862/2025/03/30/yankees-bats-aaron-leanhardt-marlins/
+
 **Shohei Ohtani card bearing piece of his 50/50 pants becomes first to sell for $1 million**\
 `Memorabilia from Ohtani's 50/50 season continues to command big prices`\
 https://nytimes.com/athletic/6242054/2025/03/30/shohei-ohtani-record-card-sale/
