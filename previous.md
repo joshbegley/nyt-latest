@@ -1,3 +1,7 @@
+**For Jesús Luzardo, 11 strikeouts and a strong first impression with the Phillies**\
+`Luzardo brought the heat, some competitive fire and an effective sweeper to the mound for his first start with the Phillies.`\
+https://nytimes.com/athletic/6241070/2025/03/29/jesus-luzardo-phillies-debut/
+
 **Protesters take aim at Elon Musk during demonstrations in the United States, Europe and Australia.**\
 `By Amanda E. Newman`\
 https://nytimes.com/live/2025/03/29/us/trump-news/protesters-take-aim-at-elon-musk-during-demonstrations-in-the-united-states-europe-and-australia
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6240900/2025/03/29/guardians-jose-ramirez-injury-wr
 **Twins off to a slow start they could ill afford**\
 `Despite a good outing from starting pitcher Joe Ryan, the offense was held in check again as the Cardinals downed the Twins 5-1 on Saturday.`\
 https://nytimes.com/athletic/6240943/2025/03/29/twins-slow-start-cardinals/
-
-**Women's March Madness projections 2025: Does UConn have the advantage?**\
-`What's your team's chance of winning? Find out here. `\
-https://nytimes.com/athletic/6198041/2025/03/29/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
 

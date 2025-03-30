@@ -1,3 +1,7 @@
+**For Jesús Luzardo, 11 strikeouts and a strong first impression with the Phillies**\
+`Luzardo brought the heat, some competitive fire and an effective sweeper to the mound for his first start with the Phillies.`\
+https://nytimes.com/athletic/6241070/2025/03/29/jesus-luzardo-phillies-debut/
+
 **Protesters take aim at Elon Musk during demonstrations in the United States, Europe and Australia.**\
 `By Amanda E. Newman`\
 https://nytimes.com/live/2025/03/29/us/trump-news/protesters-take-aim-at-elon-musk-during-demonstrations-in-the-united-states-europe-and-australia
