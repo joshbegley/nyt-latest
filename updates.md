@@ -1,3 +1,7 @@
+**Trump’s U.S.A.I.D. Cuts Hobble Earthquake Response in Myanmar**\
+`While China, Russia and other nations have rushed emergency response teams to the devastated country, the U.S., once a leader in foreign aid, has been slow to act.`\
+https://nytimes.com/2025/03/30/world/asia/myanmar-earthquake-usaid-cuts.html
+
 **Trump-Era Pivot on Seabed Mining Draws Global Rebuke**\
 `Diplomats from more than 30 nations have criticized a proposal that could allow the start of seabed mining by 2027.`\
 https://nytimes.com/2025/03/30/us/politics/trump-mining-metals-company.html

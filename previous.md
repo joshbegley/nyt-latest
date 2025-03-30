@@ -1,3 +1,7 @@
+**Trump’s U.S.A.I.D. Cuts Hobble Earthquake Response in Myanmar**\
+`While China, Russia and other nations have rushed emergency response teams to the devastated country, the U.S., once a leader in foreign aid, has been slow to act.`\
+https://nytimes.com/2025/03/30/world/asia/myanmar-earthquake-usaid-cuts.html
+
 **Trump-Era Pivot on Seabed Mining Draws Global Rebuke**\
 `Diplomats from more than 30 nations have criticized a proposal that could allow the start of seabed mining by 2027.`\
 https://nytimes.com/2025/03/30/us/politics/trump-mining-metals-company.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6240873/2025/03/30/viktor-gyokeres-arsenal-transfer
 **‘Mission South Africa’: How Trump Is Offering White Afrikaners Refugee Status**\
 `The United States has banned most refugees, including 20,000 people who were already ready to travel to the United States before President Trump took office. But Mr. Trump is making one exception.`\
 https://nytimes.com/2025/03/30/us/politics/trump-south-africa-white-afrikaners-refugee.html
-
-**My Saves In My Words: Sels on bottle instructions and run-up clues that led to Forest shootout win**\
-`Matz Sels was the hero as Nottingham Forest beat Brighton in a penalty shootout in the FA Cup quarter-finals. He explains how he did it`\
-https://nytimes.com/athletic/6241539/2025/03/30/sels-forest-penalties-fa-cup-brighton/
 
