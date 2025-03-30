@@ -1,3 +1,11 @@
+**Maryland basketball coaching candidates: Where will the Terps turn to replace Willard?**\
+`Willard guided Maryland to the NCAA Tournament three times in four seasons, including the 2024 trip to the Sweet 16. What's next? `\
+https://nytimes.com/athletic/6234078/2025/03/30/maryland-mens-basketball-coaching-candidates/
+
+**Orbital Rocket Crashes After First Launch From Continental Europe**\
+`The rocket, developed by Isar Aerospace, lifted off from Norway’s Andøya Space Center and crashed about 30 seconds later. The test flight was part of efforts to make Europe a center for private satellite launches.`\
+https://nytimes.com/2025/03/30/us/orbital-rocket-crashes-after-first-launch-from-continental-europe.html
+
 **Yohe: McGroarty, Koivunen fitting right in as Penguins eagerly embrace youth movement**\
 `The arrival and development of Pittsburgh's two prospects is a big deal — for now and the future.`\
 https://nytimes.com/athletic/6241100/2025/03/30/penguins-rutger-mcgroarty-ville-koivunen/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6241221/2025/03/30/womens-tournament-elite-eight-pr
 **Meet Cam Reid, the 2025 NHL Draft prospect with only one mode: 'Very good'**\
 `Reid, a star defenseman for the OHL's Kitchener Rangers, is a potential 2025 first-round pick.`\
 https://nytimes.com/athletic/6221797/2025/03/30/cameron-reid-2025-nhl-draft/
-
-**For God’s Sake, Fellow Lawyers, Stand Up to Trump**\
-`If law firms won’t defend the rule of law, who will?`\
-https://nytimes.com/2025/03/30/opinion/perkins-coie-trump.html
-
-**What Ocasio-Cortez Wants for the Democrats**\
-`The New York progressive believes economic populism is the path forward for Democrats. Can she unite her party around that?`\
-https://nytimes.com/2025/03/30/opinion/aoc-bernie-sanders-democrats.html
 
