@@ -1,3 +1,15 @@
+**Men's Final Four 2025: What to know about the last team's standing**\
+`Just because there's no Cinderella in the Final Four doesn't mean there can't be a storybook ending.`\
+https://nytimes.com/athletic/6242633/2025/03/30/mens-final-four-2025-what-to-know/
+
+**Men's March Madness projections 2025: Who will advance to the Final Four?**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/03/30/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
+**South Carolina's used to dominating. It's been a narrower path to this Final Four**\
+`South Carolina struggled but found a way to beat Duke for its fifth straight Final Four trip.`\
+https://nytimes.com/athletic/6242924/2025/03/30/south-carolina-final-four-path/
+
 **South Carolina's used to dominating. It's been a narrower path to this season's Final Four**\
 `South Carolina struggled but found a way to beat Duke for its fifth straight Final Four trip.`\
 https://nytimes.com/athletic/6242924/2025/03/30/south-carolina-final-four-path/
