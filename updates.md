@@ -1,3 +1,7 @@
+**Meet the MIT physicist turned Marlins coach behind the ‘torpedo’ bats used by the Yankees**\
+`Aaron Leanhardt was the Yankees' lead analyst in 2024 before joining the Marlins' coaching staff this offseason. `\
+https://nytimes.com/athletic/6241862/2025/03/30/yankees-bats-aaron-leanhardt-marlins/
+
 **Trump Offers Most Critical Comments of Russia With Threat of Secondary Tariffs**\
 `President Trump said he could impose tariffs on nations that buy oil from Russia if it thwarts negotiations for a peace deal in Ukraine. He suggested the same step was possible for Iran.`\
 https://nytimes.com/2025/03/30/us/politics/trump-putin-russia-iran-tariffs.html
