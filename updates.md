@@ -1,3 +1,23 @@
+**Edward Sorel Has a Confession**\
+`The esteemed artist worked for The Times in 1972, but didn’t quite follow instructions.`\
+https://nytimes.com/2025/03/30/pageoneplus/edward-sorel-has-a-confession.html
+
+**In the Halls of Power, Trump’s Demands Force Agonizing Choices**\
+`Leaders at top-flight law firms, Columbia University and inside City Hall are weighing decisions that pit the fates of their institutions against their own reputations.`\
+https://nytimes.com/2025/03/30/nyregion/trump-columbia-paul-weiss-demands.html
+
+**‘I Walked to the Q With a Bounce in My Step and a Twinkle in My Eyes’**\
+`Up early with Jimmie Dale Gilmore, trouble placing a familiar face and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2025/03/30/nyregion/metropolitan-diary.html
+
+**They Want More Babies. Now They Have Friends in the White House.**\
+`Advocates of higher birthrates have support in the Trump administration. But it’s unclear whether their priorities will win out.`\
+https://nytimes.com/2025/03/30/business/economy/birthrate-politics-vance-musk.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/03/30/crosswords/spelling-bee-forum.html
+
 **Villanova hires Maryland basketball coach Kevin Willard: Source**\
 `Willard emphasized when the Terps were in Seattle that he loved coaching at Maryland, but he wanted the school to improve in NIL.`\
 https://nytimes.com/athletic/6237329/2025/03/30/villanova-mens-basketball-hires-maryland-kevin-willard/
