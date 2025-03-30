@@ -1,3 +1,11 @@
+**No. 1 UCLA vs. No. 3 LSU: How to watch Lauren Betts, Aneesah Morrow battle for Final Four**\
+`Two of the best bigs in the game jostle for a Final Four spot, with Lauren Betts' top-ranked Bruins favored against Aneesah Morrow and LSU.`\
+https://nytimes.com/athletic/6240449/2025/03/30/ucla-lsu-womens-ncaa-tournament-elite-eight-how-to-watch/
+
+**The New York Times International Edition in Print for Monday, March 31, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/03/30/todays-new-york-times-international-edition
+
 **In Tokyo, Rice Farmers Protest ‘Misguided’ Rules Fueling Shortages**\
 `A scarcity of rice is causing discontent among farmers and consumers in Japan and drawing attention to a policy some say has worsened shortages.`\
 https://nytimes.com/2025/03/30/business/japan-rice-farmer-protest.html
