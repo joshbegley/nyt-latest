@@ -1,3 +1,7 @@
+**Canada coach Marsch says 50 people warned him after response to Trump**\
+`Canada's head coach speaks to The Athletic about the fallout from his public comments about the U.S. president`\
+https://nytimes.com/athletic/6238125/2025/03/30/jesse-marsch-trump-canada-us/
+
 **Dodgers are prepared to live with Sasaki's growing pains (for now)**\
 `With how raw Sasaki looks, it's a good thing the 5-0 Dodgers have a wealth of talent around him.`\
 https://nytimes.com/athletic/6241375/2025/03/30/roki-sasaki-growing-pains-dodgers/
