@@ -1,3 +1,7 @@
+**Paige Bueckers scores career high, UConn routs Oklahoma in Sweet 16**\
+`Bueckers finished 16-of-27 from the field and 6-of-8 from 3, setting a UConn NCAA Tournament record for points.`\
+https://nytimes.com/athletic/6240988/2025/03/29/uconn-oklahoma-ncaa-womens-march-madness-game/
+
 **Corrections: March 30, 2025**\
 `Corrections that appeared in print on Sunday, March 30, 2025.`\
 https://nytimes.com/2025/03/29/pageoneplus/corrections-march-30-2025.html
