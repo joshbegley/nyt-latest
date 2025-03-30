@@ -1,3 +1,15 @@
+**Yohe: McGroarty, Koivunen fitting right in as Penguins eagerly embrace youth movement**\
+`The arrival and development of Pittsburgh's two prospects is a big deal — for now and the future.`\
+https://nytimes.com/athletic/6241100/2025/03/30/penguins-rutger-mcgroarty-ville-koivunen/
+
+**USC spring takeaways: Impressive freshmen, Jayden Maiava's progress, Kamari Ramsey**\
+`Where should the Trojans look for help in the spring portal window? Why it's clear that Lincoln Riley feels good about QB Husan Longstreet. `\
+https://nytimes.com/athletic/6240695/2025/03/30/usc-football-spring-practice-quarterbacks/
+
+**How Duke’s defense put the brakes on fastest-paced, highest-scoring offense in country**\
+`Two days after Alabama set an NCAA Tournament record, Duke's defense put the clamps on the Tide's high-scoring attack.`\
+https://nytimes.com/athletic/6241559/2025/03/30/duke-alabama-elite-eight-final-four-march-madness/
+
 **The Pulse: Will Mike Trout ever play for a contender?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6241590/2025/03/30/mike-trout-trade-mlb-the-pulse/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/30/opinion/perkins-coie-trump.html
 **What Ocasio-Cortez Wants for the Democrats**\
 `The New York progressive believes economic populism is the path forward for Democrats. Can she unite her party around that?`\
 https://nytimes.com/2025/03/30/opinion/aoc-bernie-sanders-democrats.html
-
-**The Fall of Forever 21 Means Fast Fashion Got Faster**\
-`Forever 21 is bankrupt, supplanted by Shein and Temu, as fast fashion gets even faster and less sustainable.`\
-https://nytimes.com/2025/03/30/opinion/forever-21-bankrupt-fast-fashion.html
-
-**Syrians Wake Up to a New Government**\
-`The list of ministers appears to be a compromise between calls for a diverse cabinet to unite the divided country while keeping allies of the interim president, Ahmed al-Shara, in powerful roles.`\
-https://nytimes.com/2025/03/30/world/middleeast/syria-new-transitional-government.html
-
-**Inside Arsenal's appointment of Andrea Berta - Arteta's influence, Kroenke's role and room for Ayto?**\
-`Most important of all to Berta's success at his new club will be his chemistry with Arteta. Here's how and why Arsenal appointed the Italian`\
-https://nytimes.com/athletic/6232229/2025/03/30/arsenal-appoint-berta-sporting-director-arteta/
 
