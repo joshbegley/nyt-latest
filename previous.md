@@ -1,3 +1,11 @@
+**Elite Eight power rankings: Is UConn destined for another Final Four? Can UCLA be stopped?**\
+`The Elite Eight begins Sunday in Birmingham and Spokane. `\
+https://nytimes.com/athletic/6241395/2025/03/30/elite-eight-power-rankings-uconn-ucla/
+
+**Nonalcoholic Drinks Go Their Own Way**\
+`Plus: wooden sculptures of everyday objects, stylish takes on the fanny pack and more recommendations from T Magazine.`\
+https://nytimes.com/2025/03/30/t-magazine/nonalcoholic-wine-foraged-drinks.html
+
 **Making unexpected late playoff pushes, what are Mavs and Bulls playing for?**\
 `Both teams have come alive lately, right as questions arose over whether a summer draft pick should be a higher priority than the playoffs.`\
 https://nytimes.com/athletic/6241680/2025/03/30/mavericks-bulls-nba-playoff-race/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/30/arts/television/snl-live-from-new-york-military-s
 **Newcastle's 'Glastonbury-on-Tyne' League Cup celebration: Tears of joy, giant Howe banner**\
 `Newcastle United brought 300,000 people to the streets for an emotional open-top bus parade to celebrate their League Cup trophy win`\
 https://nytimes.com/athletic/6240126/2025/03/30/newcastle-league-cup-celebration-bus-parade/
-
-**Grizzlies show 'no big changes' in first game without Taylor Jenkins. But change must come**\
-`Suddenly, the team's short- and long-term future is more uncertain than it has been since the start of the Ja Morant era in 2019.`\
-https://nytimes.com/athletic/6241498/2025/03/30/grizzlies-changes-tuomas-iisalo-taylor-jenkins-nba/
-
-**Prince Harry Accused of ‘Bullying’ by Chair of Charity He Co-founded**\
-`Sophie Chandauka said Harry quit as patron of the organization to damage it after failing to oust her from the role following a series of board conflicts.`\
-https://nytimes.com/2025/03/30/world/europe/prince-harry-accused-bullying-charity.html
 

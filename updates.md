@@ -1,3 +1,11 @@
+**Elite Eight power rankings: Is UConn destined for another Final Four? Can UCLA be stopped?**\
+`The Elite Eight begins Sunday in Birmingham and Spokane. `\
+https://nytimes.com/athletic/6241395/2025/03/30/elite-eight-power-rankings-uconn-ucla/
+
+**Nonalcoholic Drinks Go Their Own Way**\
+`Plus: wooden sculptures of everyday objects, stylish takes on the fanny pack and more recommendations from T Magazine.`\
+https://nytimes.com/2025/03/30/t-magazine/nonalcoholic-wine-foraged-drinks.html
+
 **Making unexpected late playoff pushes, what are Mavs and Bulls playing for?**\
 `Both teams have come alive lately, right as questions arose over whether a summer draft pick should be a higher priority than the playoffs.`\
 https://nytimes.com/athletic/6241680/2025/03/30/mavericks-bulls-nba-playoff-race/
