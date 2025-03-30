@@ -1,3 +1,7 @@
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/03/30/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **Kite Confiscated After Coming in Contact With a Jet Near Washington**\
 `United Airlines said a plane landed safely at Reagan National Airport after a witness said he saw a kite reach the plane between its fuselage and engine.`\
 https://nytimes.com/2025/03/30/us/kite-plane-ronald-reagan-airport.html

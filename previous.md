@@ -1,3 +1,7 @@
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/03/30/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **Kite Confiscated After Coming in Contact With a Jet Near Washington**\
 `United Airlines said a plane landed safely at Reagan National Airport after a witness said he saw a kite reach the plane between its fuselage and engine.`\
 https://nytimes.com/2025/03/30/us/kite-plane-ronald-reagan-airport.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/30/style/eid-preparations-mothers.html
 **Blue Jackets Sunday Gathering: Chasing the game is no way to make the playoffs**\
 `With 10 games left, something has to change if the Blue Jackets want to keep this storybook season going past April 17.`\
 https://nytimes.com/athletic/6241568/2025/03/30/blue-jackets-nhl-playoffs-season/
-
-**As some Yankees embrace torpedo bats, Aaron Judge plans to stick with 'something that's working'**\
-`Yankees manager Aaron Boone compared the use of the torpedo bats to a golfer going to a simulator to get properly fitted for clubs.`\
-https://nytimes.com/athletic/6242188/2025/03/30/yankees-torpedo-bats-aaron-judge/
 
