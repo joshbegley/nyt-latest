@@ -1,3 +1,11 @@
+**Inside Arsenal's appointment of Andrea Berta - Arteta's influence, Kroenke's role and room for Ayto?**\
+`Most important of all to Berta's success at his new club will be his chemistry with Arteta. Here's how and why Arsenal appointed the Italian`\
+https://nytimes.com/athletic/6232229/2025/03/30/arsenal-appoint-berta-sporting-director-arteta/
+
+**In Myanmar, Aftershocks and Military Airstrikes Terrorize Residents**\
+`New tremors rattled survivors of Friday’s earthquake, which killed more than 1,500 people, while the government continued its bombing campaign elsewhere in the country.`\
+https://nytimes.com/2025/03/30/world/asia/myanmar-earthquake-aftershocks-airstrikes.html
+
 **In Myanmar, Aftershocks and Military Airstrikes Terrorize Residents**\
 `New tremors rattled survivors of Friday’s earthquake, which killed more than 1,600 people, while the government continued its bombing campaign elsewhere in the country.`\
 https://nytimes.com/2025/03/30/world/asia/myanmar-earthquake-aftershocks-airstrikes.html

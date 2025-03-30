@@ -1,9 +1,13 @@
+**Inside Arsenal's appointment of Andrea Berta - Arteta's influence, Kroenke's role and room for Ayto?**\
+`Most important of all to Berta's success at his new club will be his chemistry with Arteta. Here's how and why Arsenal appointed the Italian`\
+https://nytimes.com/athletic/6232229/2025/03/30/arsenal-appoint-berta-sporting-director-arteta/
+
 **She wanted a law degree. Instead, a former NCAA guard became a quadruple-double threat**\
 `Shakyla Hill is the only college basketball player to record two quadruple-doubles in a career. She then recorded a third as a pro overseas.`\
 https://nytimes.com/athletic/6220701/2025/03/30/shakyla-hill-grambling-march-madness-ncaa-quadruple-double/
 
 **In Myanmar, Aftershocks and Military Airstrikes Terrorize Residents**\
-`New tremors rattled survivors of Friday’s earthquake, which killed more than 1,600 people, while the government continued its bombing campaign elsewhere in the country.`\
+`New tremors rattled survivors of Friday’s earthquake, which killed more than 1,500 people, while the government continued its bombing campaign elsewhere in the country.`\
 https://nytimes.com/2025/03/30/world/asia/myanmar-earthquake-aftershocks-airstrikes.html
 
 **It’s worth listening to Tre Holloman, the voice of this Michigan State team **\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/30/crosswords/connections-companion-659.html
 **In Bangkok, Looking at High-Rises With a New Sense of Dread**\
 `Buildings are rising all over the city, emblems of economic growth. But an earthquake that sent one crashing to the ground has stirred fears about building safety.`\
 https://nytimes.com/2025/03/30/world/asia/earthquake-bangkok-building-safety.html
-
-**No. 1 UCLA vs. No. 3 LSU: How to watch Lauren Betts, Aneesah Morrow battle for Final Four**\
-`Two of the best bigs in the game jostle for a Final Four spot, with Lauren Betts' top-ranked Bruins favored against Aneesah Morrow and LSU.`\
-https://nytimes.com/athletic/6240449/2025/03/30/ucla-lsu-womens-ncaa-tournament-elite-eight-how-to-watch/
 
