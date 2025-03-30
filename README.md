@@ -1,3 +1,11 @@
+**Drug Reduces Mysterious Particle Involved in Heart Attack Risk**\
+`The Eli Lilly drug caused a major drop in the blood levels of Lp(a), but further research is needed to show that it will prevent heart attacks and strokes.`\
+https://nytimes.com/2025/03/30/health/heart-attack-lpa-protein.html
+
+**Arsenal developing strong interest in Gyokeres as they consider striker options**\
+`The Sweden international has long been admired by Arsenal’s new sporting director Andrea Berta.`\
+https://nytimes.com/athletic/6240873/2025/03/30/viktor-gyokeres-arsenal-transfer-sporting/
+
 **‘Mission South Africa’: How Trump Is Offering White Afrikaners Refugee Status**\
 `The United States has banned most refugees, including 20,000 people who were already approved for entry before President Trump took office. But Mr. Trump is making one exception.`\
 https://nytimes.com/2025/03/30/us/politics/trump-south-africa-white-afrikaners-refugee.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6242054/2025/03/30/shohei-ohtani-record-card-sale/
 **The Briefing: Bournemouth 1 Man City 2 - O'Reilly impact, Haaland's injury concern, and how did City turn it round?**\
 `Pep Guardiola's side could still claim a trophy this season after forcing passage into the FA Cup semi-finals for a seventh year in a row`\
 https://nytimes.com/athletic/6239544/2025/03/30/manchester-city-haaland-oreilly-bournemouth-fa-cup/
-
-**Meet the MIT physicist turned Marlins coach behind the ‘torpedo’ bats used by the Yankees**\
-`Aaron Leanhardt was the Yankees' lead analyst in 2024 before joining the Marlins' coaching staff this offseason. `\
-https://nytimes.com/athletic/6241862/2025/03/30/yankees-bats-aaron-leanhardt-marlins/
-
-**Trump Offers Most Critical Comments of Russia With Threat of Secondary Tariffs**\
-`President Trump said he could impose tariffs on nations that buy oil from Russia if it thwarts negotiations for a peace deal in Ukraine. He suggested the same step was possible for Iran.`\
-https://nytimes.com/2025/03/30/us/politics/trump-putin-russia-iran-tariffs.html
 
