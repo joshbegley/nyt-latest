@@ -1,4 +1,12 @@
-**South Carolina's used to dominating. It's been a narrower path to this season's Final Four**\
+**Men's Final Four 2025: What to know about the last team's standing**\
+`Just because there's no Cinderella in the Final Four doesn't mean there can't be a storybook ending.`\
+https://nytimes.com/athletic/6242633/2025/03/30/mens-final-four-2025-what-to-know/
+
+**Men's March Madness projections 2025: Who will advance to the Final Four?**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/03/30/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
+**South Carolina's used to dominating. It's been a narrower path to this Final Four**\
 `South Carolina struggled but found a way to beat Duke for its fifth straight Final Four trip.`\
 https://nytimes.com/athletic/6242924/2025/03/30/south-carolina-final-four-path/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6242629/2025/03/30/canucks-jets-loss-nhl-playoffs/
 **Min Woo Lee holds off Scottie Scheffler to win Houston Open**\
 `It is Lee's first PGA Tour win. The 26-year-old Australian set a tournament record for low score.`\
 https://nytimes.com/athletic/6242722/2025/03/30/min-woo-lee-pga-tour-houston-open-scheffler/
-
-**Fire at New Mexico Republican Party Headquarters Being Investigated as Arson**\
-`Officials confirmed that the headquarters had been damaged in a fire, which the Republican Party called a “deliberate act of arson.”`\
-https://nytimes.com/2025/03/30/us/politics/republican-party-new-mexico-fire-arson.html
-
-**UCLA flexes depth, edges LSU to earn first trip to Final Four**\
-`Bruins overcome foul trouble for All-American center Lauren Betts, get hot from 3-point range to edge Tigers.`\
-https://nytimes.com/athletic/6242595/2025/03/30/ucla-edges-lsu-first-final-four/
 
