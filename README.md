@@ -1,3 +1,7 @@
+**Kite Confiscated After Coming in Contact With a Jet Near Washington**\
+`United Airlines said a plane landed safely at Reagan National Airport after a witness said he saw a kite reach the plane between its fuselage and engine.`\
+https://nytimes.com/2025/03/30/us/kite-plane-ronald-reagan-airport.html
+
 **Kirill Kaprizov, Joel Eriksson Ek practice for first time, but returns still undetermined**\
 `The Wild still anticipate that both players will return in the regular season.`\
 https://nytimes.com/athletic/6242265/2025/03/30/wild-kaprizov-eriksson-ek-update/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6241568/2025/03/30/blue-jackets-nhl-playoffs-season
 **As some Yankees embrace torpedo bats, Aaron Judge plans to stick with 'something that's working'**\
 `Yankees manager Aaron Boone compared the use of the torpedo bats to a golfer going to a simulator to get properly fitted for clubs.`\
 https://nytimes.com/athletic/6242188/2025/03/30/yankees-torpedo-bats-aaron-judge/
-
-**A Conductor’s Intensity on the Podium Matches Her Approachability Off**\
-`Joana Mallwitz, one of Germany’s fastest rising stars, makes her Metropolitan Opera debut in “The Marriage of Figaro” on Monday.`\
-https://nytimes.com/2025/03/30/arts/music/conductor-joana-mallwitz-metropolitan-opera-debut.html
 
