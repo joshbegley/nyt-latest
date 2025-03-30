@@ -1,3 +1,7 @@
+**Trump-Era Pivot on Seabed Mining Draws Global Rebuke**\
+`Diplomats from more than 30 nations have criticized a proposal that could allow the start of seabed mining as soon as 2027.`\
+https://nytimes.com/2025/03/30/us/politics/trump-mining-metals-company.html
+
 **South Carolina holds off Duke to reach fifth straight Final Four**\
 `The top-seeded Gamecocks, defending national champions, got all they could handle from second-seeded Duke, winning 54-50.`\
 https://nytimes.com/athletic/6242324/2025/03/30/duke-south-carolina-womens-ncaa-march-madness-elite-8/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/30/us/politics/trump-south-africa-white-afrikaners-r
 **My Saves In My Words: Sels on bottle instructions and run-up clues that led to Forest shootout win**\
 `Matz Sels was the hero as Nottingham Forest beat Brighton in a penalty shootout in the FA Cup quarter-finals. He explains how he did it`\
 https://nytimes.com/athletic/6241539/2025/03/30/sels-forest-penalties-fa-cup-brighton/
-
-**On the Night Before Eid, Mothers Made the Magic Happen**\
-`For the joyous Muslim holiday to work, mothers in New York City spent Saturday night preparing, merging traditions from around the world with ones developed here.`\
-https://nytimes.com/2025/03/30/style/eid-preparations-mothers.html
 
