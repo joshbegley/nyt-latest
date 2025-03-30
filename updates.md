@@ -1,3 +1,7 @@
+**Knicks' Jalen Brunson hopes to return before end of regular season**\
+`Brunson suffered a right ankle sprain in an overtime loss to the Los Angeles Lakers on March 6.`\
+https://nytimes.com/athletic/6242403/2025/03/30/jalen-brunson-knicks-injury-update/
+
 **Monday Briefing: Devastation in Myanmar**\
 `Plus, skateboarders in the sky.`\
 https://nytimes.com/2025/03/30/briefing/myanmar-earthquake-ukraine-war-secrets-syria-government.html

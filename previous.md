@@ -1,3 +1,7 @@
+**Knicks' Jalen Brunson hopes to return before end of regular season**\
+`Brunson suffered a right ankle sprain in an overtime loss to the Los Angeles Lakers on March 6.`\
+https://nytimes.com/athletic/6242403/2025/03/30/jalen-brunson-knicks-injury-update/
+
 **Monday Briefing: Devastation in Myanmar**\
 `Plus, skateboarders in the sky.`\
 https://nytimes.com/2025/03/30/briefing/myanmar-earthquake-ukraine-war-secrets-syria-government.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/30/world/asia/myanmar-earthquake-usaid-cuts.html
 **Trump-Era Pivot on Seabed Mining Draws Global Rebuke**\
 `Diplomats from more than 30 nations have criticized a proposal that could allow the start of seabed mining by 2027.`\
 https://nytimes.com/2025/03/30/us/politics/trump-mining-metals-company.html
-
-**South Carolina holds off Duke to reach fifth straight Final Four**\
-`The top-seeded Gamecocks, defending national champions, got all they could handle from second-seeded Duke, winning 54-50.`\
-https://nytimes.com/athletic/6242324/2025/03/30/duke-south-carolina-womens-ncaa-march-madness-elite-8/
 
