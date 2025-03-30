@@ -1,3 +1,11 @@
+**Ilia Malinin, with unmatchable form, repeats as figure skating world champion**\
+`The American sensation landed six quad jumps to repeat as world champion and cement his status as the Olympic favorite.`\
+https://nytimes.com/athletic/6241150/2025/03/29/ilia-malinin-figure-skating-world-championships-gold/
+
+**'This is why you came here': Paige Bueckers rises to occasion again with career performance**\
+`Bueckers scored a career-high 40 points to get UConn into the Elite Eight.`\
+https://nytimes.com/athletic/6241129/2025/03/29/paige-bueckers-uconn-40-points-sweet-16/
+
 **Paige Bueckers scores career high, UConn routs Oklahoma in Sweet 16**\
 `Bueckers finished 16-of-27 from the field and 6-of-8 from 3, setting a UConn NCAA Tournament record for points.`\
 https://nytimes.com/athletic/6240988/2025/03/29/uconn-oklahoma-ncaa-womens-march-madness-game/
