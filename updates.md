@@ -1,3 +1,11 @@
+**When the Biggest Series Were Mini, Richard Chamberlain Was TV’s Mega Star**\
+`The actor, who died at 90, was the most compelling face of a maximalist, soapy television era.`\
+https://nytimes.com/2025/03/30/arts/television/richard-chamberlain-shogun-thorn-birds.html
+
+**Richard Carlson, Journalist Who Led Voice of America, Dies at 84**\
+`The father of the conservative commentator Tucker Carlson, he won a Peabody Award for television reporting that uncovered a car company’s fraud.`\
+https://nytimes.com/2025/03/30/business/media/richard-carlson-dead.html
+
 **Trump’s U.S.A.I.D. Cuts Hobble Earthquake Response in Myanmar**\
 `While China, Russia and other nations have rushed emergency response teams to the devastated country, the U.S., once a leader in foreign aid, has been slow to act.`\
 https://nytimes.com/2025/03/30/world/asia/myanmar-earthquake-usaid-cuts.html
