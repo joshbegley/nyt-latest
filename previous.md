@@ -1,3 +1,7 @@
+**Lowetide: In defence of Oilers AHL head coach Colin Chaulk**\
+`Here's a look at Chaulk's performance in his primary role: Developing young talent for the NHL team.`\
+https://nytimes.com/athletic/6240478/2025/03/30/colin-chaulk-bakersfield-condors-coach/
+
 **Elite Eight power rankings: Is UConn destined for another Final Four? Can UCLA be stopped?**\
 `The Elite Eight begins Sunday in Birmingham and Spokane. `\
 https://nytimes.com/athletic/6241395/2025/03/30/elite-eight-power-rankings-uconn-ucla/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/30/arts/television/richard-chamberlain-dead.html
 **‘S.N.L’: Live From New York, It’s More Military Secrets.**\
 `Mikey Madison hosts and Luigi Mangione, Squidward and Ashton Hall make appearances.`\
 https://nytimes.com/2025/03/30/arts/television/snl-live-from-new-york-military-secrets.html
-
-**Newcastle's 'Glastonbury-on-Tyne' League Cup celebration: Tears of joy, giant Howe banner**\
-`Newcastle United brought 300,000 people to the streets for an emotional open-top bus parade to celebrate their League Cup trophy win`\
-https://nytimes.com/athletic/6240126/2025/03/30/newcastle-league-cup-celebration-bus-parade/
 
