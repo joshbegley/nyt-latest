@@ -1,3 +1,7 @@
+**Blue Jays pitcher Max Scherzer placed on 15-day IL with thumb inflammation**\
+`Scherzer exited his Blue Jays debut Saturday against Baltimore after just three innings and 45 pitches due to right lat soreness.`\
+https://nytimes.com/athletic/6241921/2025/03/30/max-scherzer-15-day-il-right-thumb/
+
 **Linda Williams, 78, Dies; Took a Scholarly Approach to Pornography**\
 `One of the first to write seriously about a fraught subject, she also played a major role in developing the field of film studies and feminist film theory.`\
 https://nytimes.com/2025/03/30/arts/linda-williams-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6241680/2025/03/30/mavericks-bulls-nba-playoff-race
 **Hegseth Pledges to Step Up Military Cooperation With Japan**\
 `The U.S. defense secretary sought to reassure its ally over security ties and vowed to speed up the creation of a joint “war-fighting headquarters” to deter China.`\
 https://nytimes.com/2025/03/30/world/asia/hegseth-japan-military.html
-
-**Map: 7.0-Magnitude Earthquake Near Tonga Prompts Brief Tsunami Alert**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/03/30/world/tonga-quake-tsunami.html
 

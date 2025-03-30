@@ -1,3 +1,7 @@
+**Blue Jays pitcher Max Scherzer placed on 15-day IL with thumb inflammation**\
+`Scherzer exited his Blue Jays debut Saturday against Baltimore after just three innings and 45 pitches due to right lat soreness.`\
+https://nytimes.com/athletic/6241921/2025/03/30/max-scherzer-15-day-il-right-thumb/
+
 **Linda Williams, 78, Dies; Took a Scholarly Approach to Pornography**\
 `One of the first to write seriously about a fraught subject, she also played a major role in developing the field of film studies and feminist film theory.`\
 https://nytimes.com/2025/03/30/arts/linda-williams-dead.html
