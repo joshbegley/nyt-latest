@@ -1,3 +1,7 @@
+**Shohei Ohtani card bearing piece of his 50/50 pants becomes first to sell for $1 million**\
+`Memorabilia from Ohtani's 50/50 season continues to command big prices`\
+https://nytimes.com/athletic/6242054/2025/03/30/shohei-ohtani-record-card-sale/
+
 **Meet the MIT physicist-turned-Marlins coach behind the ‘torpedo’ bats used by the Yankees**\
 `Aaron Leanhardt was the Yankees' lead analyst in 2024 before joining the Marlins' coaching staff this offseason. `\
 https://nytimes.com/athletic/6241862/2025/03/30/yankees-bats-aaron-leanhardt-marlins/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/30/us/joe-harris-dead.html
 **Blue Jays pitcher Max Scherzer placed on 15-day IL with thumb inflammation**\
 `Scherzer exited his Blue Jays debut Saturday against Baltimore after just three innings and 45 pitches due to right lat soreness.`\
 https://nytimes.com/athletic/6241921/2025/03/30/max-scherzer-15-day-il-right-thumb/
-
-**Linda Williams, 78, Dies; Took a Scholarly Approach to Pornography**\
-`One of the first to write seriously about a fraught subject, she also played a major role in developing the field of film studies and feminist film theory.`\
-https://nytimes.com/2025/03/30/arts/linda-williams-dead.html
 

@@ -1,3 +1,7 @@
+**Meet the MIT physicist-turned-Marlins coach behind the ‘torpedo’ bats used by the Yankees**\
+`Aaron Leanhardt was the Yankees' lead analyst in 2024 before joining the Marlins' coaching staff this offseason. `\
+https://nytimes.com/athletic/6241862/2025/03/30/yankees-bats-aaron-leanhardt-marlins/
+
 **Meet the MIT physicist turned Marlins coach behind the ‘torpedo’ bats used by the Yankees**\
 `Aaron Leanhardt was the Yankees' lead analyst in 2024 before joining the Marlins' coaching staff this offseason. `\
 https://nytimes.com/athletic/6241862/2025/03/30/yankees-bats-aaron-leanhardt-marlins/
