@@ -1,3 +1,7 @@
+**Guardians' José Ramírez day to day with wrist sprain**\
+`Ramírez injured his right wrist on an unsuccessful stolen-base attempt in the third inning of Saturday's game against the Royals.`\
+https://nytimes.com/athletic/6240900/2025/03/29/guardians-jose-ramirez-injury-wrist/
+
 **Twins off to a slow start they could ill afford**\
 `Despite a good outing from starting pitcher Joe Ryan, the offense was held in check again as the Cardinals downed the Twins 5-1 on Saturday.`\
 https://nytimes.com/athletic/6240943/2025/03/29/twins-slow-start-cardinals/
