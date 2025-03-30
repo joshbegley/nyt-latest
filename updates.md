@@ -1,3 +1,15 @@
+**In Tokyo, Rice Farmers Protest ‘Misguided’ Rules Fueling Shortages**\
+`A scarcity of rice is causing discontent among farmers and consumers in Japan and drawing attention to a policy some say has worsened shortages.`\
+https://nytimes.com/2025/03/30/business/japan-rice-farmer-protest.html
+
+**RB Leipzig sack head coach Rose**\
+`Rose, 48, had been in charge at the Red Bull Arena since September 2022, but has suffered through a difficult third season.`\
+https://nytimes.com/athletic/6241508/2025/03/30/rb-leipzig-sack-marco-rose/
+
+**How to watch No. 1 Auburn vs. No. 2 Michigan State with the Tigers favored to advance**\
+`Izzo's tournament-tested Spartans face Pearl's blazing Tigers on Sunday. Auburn is favored to advance.`\
+https://nytimes.com/athletic/6240499/2025/03/30/auburn-michigan-state-ncaa-tournament-how-to-watch/
+
 **Bayern defender Ito sustains metatarsal fracture for second time this season**\
 `It is another blow to head coach Vincent Kompany after injuries to defenders Alphonso Davies and Dayot Upamecano.`\
 https://nytimes.com/athletic/6241503/2025/03/30/bayern-munich-hiroki-ito-injury/

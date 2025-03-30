@@ -1,3 +1,15 @@
+**In Tokyo, Rice Farmers Protest ‘Misguided’ Rules Fueling Shortages**\
+`A scarcity of rice is causing discontent among farmers and consumers in Japan and drawing attention to a policy some say has worsened shortages.`\
+https://nytimes.com/2025/03/30/business/japan-rice-farmer-protest.html
+
+**RB Leipzig sack head coach Rose**\
+`Rose, 48, had been in charge at the Red Bull Arena since September 2022, but has suffered through a difficult third season.`\
+https://nytimes.com/athletic/6241508/2025/03/30/rb-leipzig-sack-marco-rose/
+
+**How to watch No. 1 Auburn vs. No. 2 Michigan State with the Tigers favored to advance**\
+`Izzo's tournament-tested Spartans face Pearl's blazing Tigers on Sunday. Auburn is favored to advance.`\
+https://nytimes.com/athletic/6240499/2025/03/30/auburn-michigan-state-ncaa-tournament-how-to-watch/
+
 **Bayern defender Ito sustains metatarsal fracture for second time this season**\
 `It is another blow to head coach Vincent Kompany after injuries to defenders Alphonso Davies and Dayot Upamecano.`\
 https://nytimes.com/athletic/6241503/2025/03/30/bayern-munich-hiroki-ito-injury/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/30/us/politics/a-competitive-race-for-mike-waltzs-se
 **The Big Fat Windsor Knot Takes Washington**\
 `President Trump and his cabinet favor this style for their neck ties.`\
 https://nytimes.com/2025/03/30/style/windsor-knots-trump-cabinet-washington.html
-
-**At Black Colleges, a Stubborn Gender Enrollment Gap Keeps Growing**\
-`Only 19 percent of students at Howard University are Black men, a reflection of plunging male enrollment as President Trump targets programs aimed at Black achievement.`\
-https://nytimes.com/2025/03/30/us/black-men.html
-
-**Haiti Doesn’t Make Guns. So How Are Gangs Awash in Them?**\
-`Federal authorities in several countries have recently nabbed several caches of weapons headed to Haiti, but armed violence continues to rise there, with gangs increasingly obtaining high-caliber firearms and ammunition.`\
-https://nytimes.com/2025/03/30/us/haiti-gangs-guns-smuggling.html
-
-**She Devoted Her Life to Serving the U.S. Then DOGE Targeted Her.**\
-`A veteran who returned from Iraq injured and transformed, Joy Marver is now facing a crisis at home.`\
-https://nytimes.com/2025/03/30/us/doge-iraq-veteran-fired.html
 
