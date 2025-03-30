@@ -1,3 +1,11 @@
+**No. 1 UCLA vs. No. 3 LSU: How to watch Lauren Betts, Aneesah Morrow battle for Final Four**\
+`Two of the best bigs in the game jostle for a Final Four spot, with Lauren Betts' top-ranked Bruins favored against Aneesah Morrow and LSU.`\
+https://nytimes.com/athletic/6240449/2025/03/30/ucla-lsu-womens-ncaa-tournament-elite-eight-how-to-watch/
+
+**The New York Times International Edition in Print for Monday, March 31, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/03/30/todays-new-york-times-international-edition
+
 **In Tokyo, Rice Farmers Protest ‘Misguided’ Rules Fueling Shortages**\
 `A scarcity of rice is causing discontent among farmers and consumers in Japan and drawing attention to a policy some say has worsened shortages.`\
 https://nytimes.com/2025/03/30/business/japan-rice-farmer-protest.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/30/opinion/hegseth-signal-trump-putin.html
 **After 120 Years Stored in a Museum, an Indigenous Shrine Returns Home**\
 `Taken from a First Nation community in Canada, the shrine recently began a more than 3,000-mile journey back from the American Museum of Natural History in New York.`\
 https://nytimes.com/2025/03/30/arts/design/museum-of-natural-history-returns-shrine.html
-
-**A Competitive Race for Mike Waltz’s Seat Rattles Republicans**\
-`Democrats are hoping to do better in Florida’s Sixth District than they did in November, when President Trump won it by 30 points.`\
-https://nytimes.com/2025/03/30/us/politics/a-competitive-race-for-mike-waltzs-seat-rattles-republicans.html
-
-**The Big Fat Windsor Knot Takes Washington**\
-`President Trump and his cabinet favor this style for their neck ties.`\
-https://nytimes.com/2025/03/30/style/windsor-knots-trump-cabinet-washington.html
 
