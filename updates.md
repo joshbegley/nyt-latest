@@ -1,3 +1,7 @@
+**Kite Confiscated After Coming in Contact With a Jet Near Washington**\
+`United Airlines said a plane landed safely at Reagan National Airport after a witness said he saw a kite reach the plane between its fuselage and engine.`\
+https://nytimes.com/2025/03/30/us/kite-plane-ronald-reagan-airport.html
+
 **Kirill Kaprizov, Joel Eriksson Ek practice for first time, but returns still undetermined**\
 `The Wild still anticipate that both players will return in the regular season.`\
 https://nytimes.com/athletic/6242265/2025/03/30/wild-kaprizov-eriksson-ek-update/
