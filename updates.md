@@ -1,3 +1,7 @@
+**John Hynes says Wild's poor effort vs. Devils 'will be addressed': 3 takeaways**\
+`Minnesota continues to slide in the standings after Saturday's extremely disappointing 5-2 loss to New Jersey.`\
+https://nytimes.com/athletic/6240980/2025/03/29/wild-devils-john-hynes-standings-nhl/
+
 **Closing time: Walter Clayton Jr. shoots Florida past Texas Tech to advance to Final Four**\
 `Clayton, Florida's big shot maker, scored a game-high 30 points and hit several huge 3-pointers down the stretch. `\
 https://nytimes.com/athletic/6241009/2025/03/29/walter-clayton-florida-elite-eight-final-four/

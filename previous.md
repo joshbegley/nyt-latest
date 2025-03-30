@@ -1,3 +1,7 @@
+**John Hynes says Wild's poor effort vs. Devils 'will be addressed': 3 takeaways**\
+`Minnesota continues to slide in the standings after Saturday's extremely disappointing 5-2 loss to New Jersey.`\
+https://nytimes.com/athletic/6240980/2025/03/29/wild-devils-john-hynes-standings-nhl/
+
 **Ilia Malinin, with unmatchable form, repeats as figure skating world champion**\
 `The American sensation landed six quad jumps to repeat as world champion and cement his status as the Olympic favorite.`\
 https://nytimes.com/athletic/6241150/2025/03/29/ilia-malinin-figure-skating-world-championships-gold/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/29/us/cake-picnic-san-francisco.html
 **Let Them Eat Cake**\
 `Text by Laura Morton and Simon J. Levien`\
 https://nytimes.com/card/2025/03/30/us/let-them-eat-cake
-
-**Texas found its point guard of the future. Bryanna Preston delivers in the Sweet 16**\
-`Bryanna Preston's combined play with veteran Rori Harmon carried Texas into the Elite Eight.`\
-https://nytimes.com/athletic/6241023/2025/03/29/texas-point-guard-bryanna-preston-rori-harmon/
 
