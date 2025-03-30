@@ -1,3 +1,7 @@
+**Take Better Care of Your Skin**\
+`Here’s some advice.`\
+https://nytimes.com/2025/03/30/briefing/skin-care-treatment.html
+
 **Who has the edge in women's Elite Eight? Our experts predict the winners**\
 `UConn or USC? TCU or Texas? UCLA or LSU? South Carolina or Duke?  `\
 https://nytimes.com/athletic/6241221/2025/03/30/womens-tournament-elite-eight-predictions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6220701/2025/03/30/shakyla-hill-grambling-march-mad
 **In Myanmar, Aftershocks and Military Airstrikes Terrorize Residents**\
 `New tremors rattled survivors of Friday’s earthquake, which killed more than 1,500 people, while the government continued its bombing campaign elsewhere in the country.`\
 https://nytimes.com/2025/03/30/world/asia/myanmar-earthquake-aftershocks-airstrikes.html
-
-**It’s worth listening to Tre Holloman, the voice of this Michigan State team **\
-`The standout guard — and trash talker — for Michigan State details growing up with a stutter and how he manages it now.`\
-https://nytimes.com/athletic/6241266/2025/03/30/michigan-state-tre-holloman-elite-eight/
 
