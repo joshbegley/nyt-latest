@@ -1,3 +1,7 @@
+**Monday Briefing: Devastation in Myanmar**\
+`Plus, skateboarders in the sky.`\
+https://nytimes.com/2025/03/30/briefing/myanmar-earthquake-ukraine-war-secrets-syria-government.html
+
 **Reinaldo Herrera, Arbiter of Style for Vanity Fair, Dies at 91**\
 `Both old school and Old World and married to a celebrated fashion designer, he helped define Manhattan’s high life for many years.`\
 https://nytimes.com/2025/03/30/style/reinaldo-herrera-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/30/us/politics/trump-mining-metals-company.html
 **South Carolina holds off Duke to reach fifth straight Final Four**\
 `The top-seeded Gamecocks, defending national champions, got all they could handle from second-seeded Duke, winning 54-50.`\
 https://nytimes.com/athletic/6242324/2025/03/30/duke-south-carolina-womens-ncaa-march-madness-elite-8/
-
-**Women's March Madness projections 2025: Does UConn have the advantage?**\
-`What's your team's chance of winning? Find out here. `\
-https://nytimes.com/athletic/6198041/2025/03/30/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
 

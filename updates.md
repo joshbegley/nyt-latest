@@ -1,3 +1,7 @@
+**Reinaldo Herrera, Arbiter of Style for Vanity Fair, Dies at 91**\
+`Both old school and Old World and married to a celebrated fashion designer, he helped define Manhattan’s high life for many years.`\
+https://nytimes.com/2025/03/30/style/reinaldo-herrera-dead.html
+
 **Houston locks down Tennessee to secure Kelvin Sampson's third career Final Four trip**\
 `The Vols had just 15 points at halftime, the fewest ever for a top-two seed in any NCAA Tournament game.`\
 https://nytimes.com/athletic/6242382/2025/03/30/houston-tennessee-march-madness-final-four/
