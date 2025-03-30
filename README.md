@@ -1,3 +1,7 @@
+**Farke has backed Meslier after every mistake - Leeds will judge him on what he does next**\
+`If Farke stands by Meslier again and the club fail to win promotion with the league's best squad he will be remembered as a stubborn failure`\
+https://nytimes.com/athletic/6240801/2025/03/30/meslier-farke-mistake-leeds/
+
 **Caitlin Clark card sets new record sale for a women's sports trading card**\
 `Clark's WNBA rookie cards have been in demand `\
 https://nytimes.com/athletic/6241239/2025/03/30/caitlin-clark-rookie-card-record-sale/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/30/world/europe/us-ukraine-military-war-takeaways.ht
 **French Schools Will Finally Teach Sex Education**\
 `For 25 years, France has said schools must teach sex ed. Now the government is at last putting a curriculum in place.`\
 https://nytimes.com/2025/03/30/world/europe/france-sex-education-schools.html
-
-**How the U.S. Broke Its Own Rules to Help Ukraine**\
-`A New York Times investigation reveals that the United States was much more involved in Ukrainian military operations than publicly disclosed. Adam Entous, a Times investigative reporter, breaks down a key moment in the war when the Biden administration changed its policy on the war in Ukraine.`\
-https://nytimes.com/video/world/europe/100000010059216/how-the-us-broke-its-own-rules-for-ukraine.html
 
