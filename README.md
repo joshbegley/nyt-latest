@@ -1,3 +1,7 @@
+**'This is why you came here': Paige Bueckers rises to occasion again with career performance**\
+`Bueckers scored a career-high 40 points to get UConn into the Elite Eight.`\
+https://nytimes.com/athletic/6241129/2025/03/29/paige-bueckers-uconn-40-points-sweet-16/
+
 **Corrections: March 30, 2025**\
 `Corrections that appeared in print on Sunday, March 30, 2025.`\
 https://nytimes.com/2025/03/29/pageoneplus/corrections-march-30-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6241023/2025/03/29/texas-point-guard-bryanna-presto
 **Paige Bueckers scores career high, UConn routs Oklahoma in Sweet 16**\
 `Bueckers finished 16-of-27 from the field and 6-of-8 from 3, setting a UConn NCAA Tournament record for points.`\
 https://nytimes.com/athletic/6240988/2025/03/29/uconn-oklahoma-ncaa-womens-march-madness-game/
-
-**Guardians' José Ramírez day to day with wrist sprain**\
-`Ramírez injured his right wrist on an unsuccessful stolen-base attempt in the third inning of Saturday's game against the Royals.`\
-https://nytimes.com/athletic/6240900/2025/03/29/guardians-jose-ramirez-injury-wrist/
 
