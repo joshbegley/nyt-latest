@@ -1,3 +1,11 @@
+**Oilers' Leon Draisaitl scores 50th goal of the season**\
+`Saturday against the Calgary Flames, Draisaitl became the first player to reach 50 goals this season.`\
+https://nytimes.com/athletic/6208178/2025/03/30/oilers-leon-draisaitl-scores-50th-goal/
+
+**Braves waste scoring chances, Spencer Schwellenbach's superb start against Padres, fall to 0-3**\
+`Schwellenbach gave up one hit in six scoreless innings, but the Braves went 0-for-6 with runners in scoring position in Saturday's loss.`\
+https://nytimes.com/athletic/6241302/2025/03/30/braves-lose-to-padres-spencer-schwellenbach/
+
 **The New York Times in Print for Sunday, March 30, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/03/30/todays-new-york-times

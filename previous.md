@@ -1,3 +1,7 @@
+**Oilers' Leon Draisaitl scores 50th goal of the season**\
+`Saturday against the Calgary Flames, Draisaitl became the first player to reach 50 goals this season.`\
+https://nytimes.com/athletic/6208178/2025/03/30/oilers-leon-draisaitl-scores-50th-goal/
+
 **The New York Times in Print for Sunday, March 30, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/03/30/todays-new-york-times
@@ -10,7 +14,7 @@ https://nytimes.com/2025/03/30/opinion/canada-annex-us-trump.html
 `A.I. “deadbots” and avatars are ushering in a new era of techno-spiritualism.`\
 https://nytimes.com/2025/03/30/opinion/grief-tech-ai-optimized.html
 
-**Braves waste scoring chances and Spencer Schwellenbach's superb start at Padres, fall to 0-3**\
+**Braves waste scoring chances, Spencer Schwellenbach's superb start against Padres, fall to 0-3**\
 `Schwellenbach gave up one hit in six scoreless innings, but the Braves went 0-for-6 with runners in scoring position in Saturday's loss.`\
 https://nytimes.com/athletic/6241302/2025/03/30/braves-lose-to-padres-spencer-schwellenbach/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6241239/2025/03/30/caitlin-clark-rookie-card-record
 **Dean Huijsen: The two-footed, progressive centre-back coveted by Europe's top clubs**\
 `The 19-year-old is enjoying a stellar season with Bournemouth and has a skill set that looks tailor-made for the highest level `\
 https://nytimes.com/athletic/6232044/2025/03/30/dean-huijsen-tactical-profile/
-
-**Where have all the elite French men's football coaches gone?**\
-`Patrick Vieira is the only French coach managing in Europe's top four leagues. Tom Williams explores why they have fallen out of fashion... `\
-https://nytimes.com/athletic/6223057/2025/03/30/french-coaching-football-europe-elite/
 
