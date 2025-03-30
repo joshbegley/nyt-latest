@@ -1,3 +1,15 @@
+**‘No Cake, No Entry’: More Than 1,000 Picnic to Celebrate the Love of Cake**\
+`No crumbs were left behind at Cake Picnic in San Francisco on Saturday as attendees gawked, photographed and ultimately ate 1,387 cakes.`\
+https://nytimes.com/2025/03/29/us/cake-picnic-san-francisco.html
+
+**Let Them Eat Cake**\
+`Text by Laura Morton and Simon J. Levien`\
+https://nytimes.com/card/2025/03/30/us/let-them-eat-cake
+
+**Texas found its point guard of the future ... who's delivered in the Sweet 16**\
+`Bryanna Preston's combined play with veteran Rori Harmon carried Texas into the Elite Eight.`\
+https://nytimes.com/athletic/6241023/2025/03/29/texas-point-guard-bryanna-preston-rori-harmon/
+
 **Paige Bueckers scores career high, UConn routs Oklahoma in Sweet 16**\
 `Bueckers finished 16-of-27 from the field and six-of-eight from 3, setting a UConn NCAA Tournament record for points `\
 https://nytimes.com/athletic/6240988/2025/03/29/uconn-oklahoma-ncaa-womens-march-madness-game/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6240911/2025/03/29/yankees-new-bats-torpedo-home-ru
 **Syria’s Leader Announces New Government After Ousting Dictator**\
 `The choice of cabinet officials was seen as a litmus test for whether the rebels who ousted Bashar al-Assad would deliver on a pledge to create a government representative of all Syrians.`\
 https://nytimes.com/2025/03/29/world/middleeast/syria-government-al-shara.html
-
-**Texas holds off Tennessee 67-59 to return to Elite Eight: Takeaways**\
-`As in the January meeting between Texas and Tennessee, neither team pulled away.`\
-https://nytimes.com/athletic/6240886/2025/03/29/texas-beats-tennessee-elite-eight-return/
-
-**G.O.P. Lawmaker Faces Angry Crowds at Town Halls Outside Indianapolis**\
-`Representative Victoria Spartz, a Republican, defended Elon Musk’s DOGE cuts to the federal government, drawing jeers from the crowd.`\
-https://nytimes.com/2025/03/29/us/politics/victoria-spartz-republican-town-hall-doge.html
-
-**Aryna Sabalenka, world No. 1, surges past Jessica Pegula to win Miami Open**\
-`Sabalenka and Pegula have faced each other in three of the past four American tournaments`\
-https://nytimes.com/athletic/6240863/2025/03/29/aryana-sabalenka-jessica-pegula-miami-open-tennis/
 
