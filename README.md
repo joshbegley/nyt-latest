@@ -1,3 +1,11 @@
+**Braves waste scoring chances and Spencer Schwellenbach's superb start at Padres, fall to 0-3**\
+`Schwellenbach gave up one hit in six scoreless innings, but the Braves went 0-for-6 with runners in scoring position in Saturday's loss.`\
+https://nytimes.com/athletic/6241302/2025/03/30/braves-lose-to-padres-spencer-schwellenbach/
+
+**With JuJu Watkins as inspiration, USC players aren't doubting their chances**\
+`"The prevailing feeling is that we can still do something together, and that's what JuJu wants us to do.”`\
+https://nytimes.com/athletic/6241317/2025/03/30/juju-watkins-usc-elite-eight-inspiration/
+
 **Isaac Paredes' influence, late-game outfield moves and Chas McCormick's role: Astros takeaways**\
 `Houston hopes Paredes' plate discipline is contagious, a reliever is gaining Joe Espada's trust, plus more observations on the first series.`\
 https://nytimes.com/athletic/6241276/2025/03/30/astros-isaac-paredes-chas-mccormick-role/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6238520/2025/03/30/world-cup-winners-italy-1934/
 **Jeremiah Azu: My Golds In My Words**\
 `British, European and world 60m champion Azu analyses his technique and career progression with The Athletic `\
 https://nytimes.com/athletic/6238743/2025/03/30/jeremiah-azu-my-golds-in-my-words/
-
-**‘They Will Label Us as Spies’: The Afghan Students Abandoned by America**\
-`Students at the American University of Afghanistan in Qatar fear having to return to their Taliban-ruled homeland after aid and visa cutoffs by the Trump administration.`\
-https://nytimes.com/2025/03/30/world/asia/afghanistan-students-qatar-funding.html
-
-**Key Takeaways From America’s Secret Military Partnership With Ukraine**\
-`An investigation by The New York Times has revealed that America was woven into the war far more than previously known.`\
-https://nytimes.com/2025/03/30/world/europe/us-ukraine-military-war-takeaways.html
 
