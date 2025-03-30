@@ -1,3 +1,23 @@
+**Edward Sorel Has a Confession**\
+`The esteemed artist worked for The Times in 1972, but didn’t quite follow instructions.`\
+https://nytimes.com/2025/03/30/pageoneplus/edward-sorel-has-a-confession.html
+
+**In the Halls of Power, Trump’s Demands Force Agonizing Choices**\
+`Leaders at top-flight law firms, Columbia University and inside City Hall are weighing decisions that pit the fates of their institutions against their own reputations.`\
+https://nytimes.com/2025/03/30/nyregion/trump-columbia-paul-weiss-demands.html
+
+**‘I Walked to the Q With a Bounce in My Step and a Twinkle in My Eyes’**\
+`Up early with Jimmie Dale Gilmore, trouble placing a familiar face and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2025/03/30/nyregion/metropolitan-diary.html
+
+**They Want More Babies. Now They Have Friends in the White House.**\
+`Advocates of higher birthrates have support in the Trump administration. But it’s unclear whether their priorities will win out.`\
+https://nytimes.com/2025/03/30/business/economy/birthrate-politics-vance-musk.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/03/30/crosswords/spelling-bee-forum.html
+
 **Villanova hires Maryland basketball coach Kevin Willard: Source**\
 `Willard emphasized when the Terps were in Seattle that he loved coaching at Maryland, but he wanted the school to improve in NIL.`\
 https://nytimes.com/athletic/6237329/2025/03/30/villanova-mens-basketball-hires-maryland-kevin-willard/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6241320/2025/03/30/rangers-beat-sharks-playoff-spot
 **Canada coach Marsch says 50 people warned him after response to Trump**\
 `Canada's head coach speaks to The Athletic about the fallout from his public comments about the U.S. president`\
 https://nytimes.com/athletic/6238125/2025/03/30/jesse-marsch-trump-canada-us/
-
-**Dodgers are prepared to live with Sasaki's growing pains (for now)**\
-`With how raw Sasaki looks, it's a good thing the 5-0 Dodgers have a wealth of talent around him.`\
-https://nytimes.com/athletic/6241375/2025/03/30/roki-sasaki-growing-pains-dodgers/
-
-**Dansby Swanson gets the save for Cubs with heads-up defense in bottom of the 9th**\
-`With the tying run in scoring position for Arizona, Swanson used instincts and athleticism to make a game-saving tag at third base.`\
-https://nytimes.com/athletic/6241338/2025/03/30/cubs-dansby-swanson-pete-crow-armstrong-defense/
-
-**Kristian Campbell, after a big night, acknowledges 'communication' on Red Sox contract talks**\
-`In three games, Campbell has gone 5-for-10, and 2-for-3 Saturday when he hit his first career home run and and doubled in his next at-bat.`\
-https://nytimes.com/athletic/6241348/2025/03/30/kristian-campbell-red-sox-contract-talks/
-
-**Oilers' Leon Draisaitl scores 50th goal of the season**\
-`Saturday against the Calgary Flames, Draisaitl became the first player to reach 50 goals this season.`\
-https://nytimes.com/athletic/6208178/2025/03/30/oilers-leon-draisaitl-scores-50th-goal/
-
-**The New York Times in Print for Sunday, March 30, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/03/30/todays-new-york-times
 
