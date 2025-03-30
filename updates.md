@@ -1,3 +1,11 @@
+**South Carolina's used to dominating. It's been a narrower path to this season's Final Four**\
+`South Carolina struggled but found a way to beat Duke for its fifth straight Final Four trip.`\
+https://nytimes.com/athletic/6242924/2025/03/30/south-carolina-final-four-path/
+
+**Justin Fields will be the Jets' starter, and they believe he can be the next Sam Darnold: Takeaways**\
+`Darren Mougey said Fields has a "unique athletic skill set that adds another dimension to the game."`\
+https://nytimes.com/athletic/6242736/2025/03/30/justin-fields-jets-quarterback/
+
 **Justin Fields will be the Jets starter — and they believe he can be the next Sam Darnold: Takeaways**\
 `Darren Mougey said Fields has a “unique athletic skill set that adds another dimension to the game." `\
 https://nytimes.com/athletic/6242736/2025/03/30/justin-fields-jets-quarterback/
