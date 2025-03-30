@@ -1,3 +1,7 @@
+**Corrections: March 30, 2025**\
+`Corrections that appeared in print on Sunday, March 30, 2025.`\
+https://nytimes.com/2025/03/29/pageoneplus/corrections-march-30-2025.html
+
 **For Jesús Luzardo, 11 strikeouts and a strong first impression with the Phillies**\
 `Luzardo brought the heat, some competitive fire and an effective sweeper to the mound for his first start with the Phillies.`\
 https://nytimes.com/athletic/6241070/2025/03/29/jesus-luzardo-phillies-debut/
