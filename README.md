@@ -1,3 +1,11 @@
+**Houston locks down Tennessee to secure Kelvin Sampson's third career Final Four trip**\
+`The Vols had just 15 points at halftime, the fewest ever for a top-two seed in any NCAA Tournament game.`\
+https://nytimes.com/athletic/6242382/2025/03/30/houston-tennessee-march-madness-final-four/
+
+**White House Takes Highly Unusual Step of Directly Firing Line Prosecutors**\
+`Two prosecutors were dismissed out of the blue, notified by a terse one-sentence email stating no reason for the move other than that it was on behalf of the president himself.`\
+https://nytimes.com/2025/03/30/us/line-prosecutors-fired-trump-doj.html
+
 **Men's March Madness projections 2025: Who will advance to the Final Four?**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/03/30/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6198041/2025/03/30/womens-march-madness-projections
 **Kite Confiscated After Coming in Contact With a Jet Near Washington**\
 `United Airlines said a plane landed safely at Reagan National Airport after a witness said he saw a kite reach the plane between its fuselage and engine.`\
 https://nytimes.com/2025/03/30/us/kite-plane-ronald-reagan-airport.html
-
-**Kirill Kaprizov, Joel Eriksson Ek practice for first time, but returns still undetermined**\
-`The Wild still anticipate that both players will return in the regular season.`\
-https://nytimes.com/athletic/6242265/2025/03/30/wild-kaprizov-eriksson-ek-update/
-
-**Trump Says He’s ‘Not Joking’ About Seeking a Third Term in Defiance of Constitution**\
-`President Trump, in an interview with NBC News, said there were “methods” that would allow a third term. The 22nd Amendment prohibits a person from being elected to more than two terms as president.`\
-https://nytimes.com/2025/03/30/us/politics/trump-third-term.html
 
