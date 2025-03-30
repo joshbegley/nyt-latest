@@ -1,3 +1,11 @@
+**The Pulse: Will Mike Trout ever play for a contender?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6241590/2025/03/30/mike-trout-trade-mlb-the-pulse/
+
+**Luka Dončić, LeBron James and Austin Reaves show how dangerous Lakers can be**\
+`The trio accepted a challenge, combining for 85 points and 25 assists in a 134-127 win over Memphis with playoff implications.`\
+https://nytimes.com/athletic/6241441/2025/03/30/lakers-grizzlies-score-result-luka-doncic-lebron-james-austin-reaves/
+
 **In Myanmar, Aftershocks and Military Airstrikes Terrorize Residents**\
 `New tremors rattled survivors of Friday’s earthquake, which killed more than 1,600 people, while the government continued its bombing campaign elsewhere in the country.`\
 https://nytimes.com/2025/03/30/world/asia/myanmar-earthquake-aftershocks-airstrikes.html

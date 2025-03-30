@@ -1,3 +1,11 @@
+**The Pulse: Will Mike Trout ever play for a contender?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6241590/2025/03/30/mike-trout-trade-mlb-the-pulse/
+
+**Luka Dončić, LeBron James and Austin Reaves show how dangerous Lakers can be**\
+`The trio accepted a challenge, combining for 85 points and 25 assists in a 134-127 win over Memphis with playoff implications.`\
+https://nytimes.com/athletic/6241441/2025/03/30/lakers-grizzlies-score-result-luka-doncic-lebron-james-austin-reaves/
+
 **Take Better Care of Your Skin**\
 `Here’s some advice.`\
 https://nytimes.com/2025/03/30/briefing/skin-care-treatment.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/30/world/middleeast/syria-new-transitional-governmen
 **Inside Arsenal's appointment of Andrea Berta - Arteta's influence, Kroenke's role and room for Ayto?**\
 `Most important of all to Berta's success at his new club will be his chemistry with Arteta. Here's how and why Arsenal appointed the Italian`\
 https://nytimes.com/athletic/6232229/2025/03/30/arsenal-appoint-berta-sporting-director-arteta/
-
-**She wanted a law degree. Instead, a former NCAA guard became a quadruple-double threat**\
-`Shakyla Hill is the only college basketball player to record two quadruple-doubles in a career. She then recorded a third as a pro overseas.`\
-https://nytimes.com/athletic/6220701/2025/03/30/shakyla-hill-grambling-march-madness-ncaa-quadruple-double/
-
-**In Myanmar, Aftershocks and Military Airstrikes Terrorize Residents**\
-`New tremors rattled survivors of Friday’s earthquake, which killed more than 1,600 people, while the government continued its bombing campaign elsewhere in the country.`\
-https://nytimes.com/2025/03/30/world/asia/myanmar-earthquake-aftershocks-airstrikes.html
 
