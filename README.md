@@ -8,7 +8,7 @@ https://nytimes.com/athletic/6242595/2025/03/30/ucla-edges-lsu-first-final-four/
 
 **Trump’s New Concession on Tariffs Is His Most Striking**\
 `The president said he “couldn’t care less” if automakers rose prices in response to planned tariffs, reasoning that buyers would choose U.S.-made cars over foreign brands.`\
-https://nytimes.com/2025/03/30/us/politics/trumps-new-concession-on-tariffs-is-his-most-striking.html
+https://nytimes.com/2025/03/30/us/politics/trump-auto-tariffs.html
 
 **Make Official**\
 `Ryan Mathiason makes his New York Times Crossword debut.`\
