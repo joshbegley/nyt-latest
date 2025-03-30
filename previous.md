@@ -1,40 +1,40 @@
-**Real Madrid 3-2 Leganes: Mbappe matching Ronaldo, a free-kick first, defensive deficiency**\
-`Guillermo Rai breaks down the key talking points of Real Madrid's 3-2 victory over Leganes.`\
-https://nytimes.com/athletic/6241159/2025/03/30/mbappe-ronaldo-goals-record-free-kick-leganes/
+**Bayern defender Ito sustains metatarsal fracture for second time this season**\
+`It is another blow to head coach Vincent Kompany after injuries to defenders Alphonso Davies and Dayot Upamecano.`\
+https://nytimes.com/athletic/6241503/2025/03/30/bayern-munich-hiroki-ito-injury/
 
-**Storm Leaves About 300,000 Without Power in Great Lakes Region**\
-`There were weather warnings in the Midwest, the Northeast and Quebec after the storm downed trees and power lines in Michigan and Ontario.`\
-https://nytimes.com/2025/03/30/us/ice-storm-michigan-ontario.html
+**Men's March Madness 2025: What to watch for on Day 8**\
+`The stage is set for a showdown of powerhouses and perennial contenders.`\
+https://nytimes.com/athletic/6240718/2025/03/30/march-madness-2025-what-to-watch-day-8/
 
-**Edward Sorel Has a Confession**\
-`The esteemed artist worked for The Times in 1972, but didn’t quite follow instructions.`\
-https://nytimes.com/2025/03/30/pageoneplus/edward-sorel-has-a-confession.html
+**On Minnesota’s Iron Range, Trump’s Tariffs Could Be Boom or Bust**\
+`A region near the Canadian border, whose mines provide most of the new ore used in producing domestic steel — and cars — has a lot at stake as trade wars intensify.`\
+https://nytimes.com/2025/03/30/us/politics/trump-tariffs-canada-minnesota-iron-range.html
 
-**In the Halls of Power, Trump’s Demands Force Agonizing Choices**\
-`Leaders at top-flight law firms, Columbia University and inside City Hall are weighing decisions that pit the fates of their institutions against their own reputations.`\
-https://nytimes.com/2025/03/30/nyregion/trump-columbia-paul-weiss-demands.html
+**What Rusting Russian Tanks Can Teach Us About the Pete Hegseth Group Chat**\
+`A politicized military is an ineffective military.`\
+https://nytimes.com/2025/03/30/opinion/hegseth-signal-trump-putin.html
 
-**‘I Walked to the Q With a Bounce in My Step and a Twinkle in My Eyes’**\
-`Up early with Jimmie Dale Gilmore, trouble placing a familiar face and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2025/03/30/nyregion/metropolitan-diary.html
+**After 120 Years Stored in a Museum, an Indigenous Shrine Returns Home**\
+`Taken from a First Nation community in Canada, the shrine recently began a more than 3,000-mile journey back from the American Museum of Natural History in New York.`\
+https://nytimes.com/2025/03/30/arts/design/museum-of-natural-history-returns-shrine.html
 
-**They Want More Babies. Now They Have Friends in the White House.**\
-`Advocates of higher birthrates have support in the Trump administration. But it’s unclear whether their priorities will win out.`\
-https://nytimes.com/2025/03/30/business/economy/birthrate-politics-vance-musk.html
+**A Competitive Race for Mike Waltz’s Seat Rattles Republicans**\
+`Democrats are hoping to do better in Florida’s Sixth District than they did in November, when President Trump won it by 30 points.`\
+https://nytimes.com/2025/03/30/us/politics/a-competitive-race-for-mike-waltzs-seat-rattles-republicans.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/03/30/crosswords/spelling-bee-forum.html
+**The Big Fat Windsor Knot Takes Washington**\
+`President Trump and his cabinet favor this style for their neck ties.`\
+https://nytimes.com/2025/03/30/style/windsor-knots-trump-cabinet-washington.html
 
-**Villanova hires Maryland basketball coach Kevin Willard: Source**\
-`Willard emphasized when the Terps were in Seattle that he loved coaching at Maryland, but he wanted the school to improve in NIL.`\
-https://nytimes.com/athletic/6237329/2025/03/30/villanova-mens-basketball-hires-maryland-kevin-willard/
+**At Black Colleges, a Stubborn Gender Enrollment Gap Keeps Growing**\
+`Only 19 percent of students at Howard University are Black men, a reflection of plunging male enrollment as President Trump targets programs aimed at Black achievement.`\
+https://nytimes.com/2025/03/30/us/black-men.html
 
-**FA Cup defeat to Forest will be painful - Brighton missed a huge opportunity**\
-`It was the most open FA Cup competition in years - so defeat on penalties to Forest in the quarter-finals will be extra painful for Brighton`\
-https://nytimes.com/athletic/6236217/2025/03/30/brighton-forest-fa-cup-missed-opportunity/
+**Haiti Doesn’t Make Guns. So How Are Gangs Awash in Them?**\
+`Federal authorities in several countries have recently nabbed several caches of weapons headed to Haiti, but armed violence continues to rise there, with gangs increasingly obtaining high-caliber firearms and ammunition.`\
+https://nytimes.com/2025/03/30/us/haiti-gangs-guns-smuggling.html
 
-**How Tigers' Spencer Torkelson got his groove back: 'I've got a lot of fight in me'**\
-`After an impressive spring training, Torkelson went 4-for-9 with a home run and five walks in the Tigers' opening series.`\
-https://nytimes.com/athletic/6241388/2025/03/30/tigers-spencer-torkelson-hot-start/
+**She Devoted Her Life to Serving the U.S. Then DOGE Targeted Her.**\
+`A veteran who returned from Iraq injured and transformed, Joy Marver is now facing a crisis at home.`\
+https://nytimes.com/2025/03/30/us/doge-iraq-veteran-fired.html
 
