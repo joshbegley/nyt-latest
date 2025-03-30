@@ -1,3 +1,15 @@
+**Caitlin Clark card sets new record sale for a women's sports trading card**\
+`Clark's WNBA rookie cards have been in demand `\
+https://nytimes.com/athletic/6241239/2025/03/30/caitlin-clark-rookie-card-record-sale/
+
+**Dean Huijsen: The two-footed, progressive centre-back coveted by Europe's top clubs**\
+`The 19-year-old is enjoying a stellar season with Bournemouth and has a skill set that looks tailor-made for the highest level `\
+https://nytimes.com/athletic/6232044/2025/03/30/dean-huijsen-tactical-profile/
+
+**Where have all the elite French men's football coaches gone?**\
+`Patrick Vieira is the only French coach managing in Europe's top four leagues. Tom Williams explores why they have fallen out of fashion... `\
+https://nytimes.com/athletic/6223057/2025/03/30/french-coaching-football-europe-elite/
+
 **'I was really emotional at the end' - Finding hope on football's march against a 'cruel and horrible' disease**\
 `Oliver Kay joins a gruelling 178-mile walk to speak to footballers suffering from MND — and fighting it every step of the way`\
 https://nytimes.com/athletic/6240148/2025/03/30/march-of-the-day-marcus-stewart-ipswich/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/30/world/europe/france-sex-education-schools.html
 **How the U.S. Broke Its Own Rules to Help Ukraine**\
 `A New York Times investigation reveals that the United States was much more involved in Ukrainian military operations than publicly disclosed. Adam Entous, a Times investigative reporter, breaks down a key moment in the war when the Biden administration changed its policy on the war in Ukraine.`\
 https://nytimes.com/video/world/europe/100000010059216/how-the-us-broke-its-own-rules-for-ukraine.html
-
-**Connections: Sports Edition Coach: Hints for March 30, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6240818/2025/03/30/connections-sports-edition-hints-for-march-30-2025/
-
-**Amid unusual slump, Auston Matthews finds ways to score — and contribute**\
-`Even as his five-on-five struggles continue, Matthews proved he can still summon up something extra when his team needs it.`\
-https://nytimes.com/athletic/6241201/2025/03/29/maple-leafs-kings-auston-matthews-goal/
-
-**Duke stifles Alabama as 2nd top seed advances to Final Four**\
-`Only two more games separate Cooper Flagg and the Blue Devils from immortality and the program's sixth national championship banner.`\
-https://nytimes.com/athletic/6241127/2025/03/29/duke-alabama-cooper-flagg-march-madness/
 
