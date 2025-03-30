@@ -1,3 +1,7 @@
+**Real Madrid 3-2 Leganes: Mbappe matching Ronaldo, a free-kick first, defensive deficiency**\
+`Guillermo Rai breaks down the key talking points of Real Madrid's 3-2 victory over Leganes.`\
+https://nytimes.com/athletic/6241159/2025/03/30/mbappe-ronaldo-goals-record-free-kick-leganes/
+
 **Storm Leaves About 300,000 Without Power in Great Lakes Region**\
 `There were weather warnings in the Midwest, the Northeast and Quebec after the storm downed trees and power lines in Michigan and Ontario.`\
 https://nytimes.com/2025/03/30/us/ice-storm-michigan-ontario.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6236217/2025/03/30/brighton-forest-fa-cup-missed-op
 **How Tigers' Spencer Torkelson got his groove back: 'I've got a lot of fight in me'**\
 `After an impressive spring training, Torkelson went 4-for-9 with a home run and five walks in the Tigers' opening series.`\
 https://nytimes.com/athletic/6241388/2025/03/30/tigers-spencer-torkelson-hot-start/
-
-**Rangers take care of business in San Jose and find themselves in a playoff spot: 3 takeaways**\
-`The Rangers grabbed a 2-0 lead on a pair of Artemi Panarin goals in the first period and headed to the finish line with a 6-1 win Saturday.`\
-https://nytimes.com/athletic/6241320/2025/03/30/rangers-beat-sharks-playoff-spot/
 

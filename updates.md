@@ -1,3 +1,7 @@
+**Real Madrid 3-2 Leganes: Mbappe matching Ronaldo, a free-kick first, defensive deficiency**\
+`Guillermo Rai breaks down the key talking points of Real Madrid's 3-2 victory over Leganes.`\
+https://nytimes.com/athletic/6241159/2025/03/30/mbappe-ronaldo-goals-record-free-kick-leganes/
+
 **Storm Leaves About 300,000 Without Power in Great Lakes Region**\
 `There were weather warnings in the Midwest, the Northeast and Quebec after the storm downed trees and power lines in Michigan and Ontario.`\
 https://nytimes.com/2025/03/30/us/ice-storm-michigan-ontario.html
