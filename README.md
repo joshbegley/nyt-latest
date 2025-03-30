@@ -1,3 +1,35 @@
+**She wanted a law degree. Instead, a former NCAA guard became a quadruple-double threat**\
+`Shakyla Hill is the only college basketball player to record two quadruple-doubles in a career. She then recorded a third as a pro overseas.`\
+https://nytimes.com/athletic/6220701/2025/03/30/shakyla-hill-grambling-march-madness-ncaa-quadruple-double/
+
+**In Myanmar, Aftershocks and Military Airstrikes Terrorize Residents**\
+`New tremors rattled survivors of Friday’s earthquake, which killed more than 1,500 people, while the government continued its bombing campaign elsewhere in the country.`\
+https://nytimes.com/2025/03/30/world/asia/myanmar-earthquake-aftershocks-airstrikes.html
+
+**It’s worth listening to Tre Holloman, the voice of this Michigan State team **\
+`The standout guard — and trash talker — for Michigan State details growing up with a stutter and how he manages it now.`\
+https://nytimes.com/athletic/6241266/2025/03/30/michigan-state-tre-holloman-elite-eight/
+
+**Men's NCAA Tournament Elite Eight roundup: Clayton's burst, Duke's defense**\
+`Florida survived third-seed Texas Tech while Duke didn't need any late-game heroics to secure a bid to San Antonio as the second No. 1 seed`\
+https://nytimes.com/athletic/6240794/2025/03/30/mens-ncaa-tournament-elite-eight-roundup-florida-duke/
+
+**Thomas Haugh, Tebowmania and the Florida Gators' Final Four serendipity**\
+`Haugh is possibly the only human ever to be both a native of New Oxford, Pa., and a die-hard Florida fan.`\
+https://nytimes.com/athletic/6241314/2025/03/30/thomas-haugh-florida-final-four-tim-tebow/
+
+**The Sunday Read: ‘Why Airline Pilots Feel Pushed to Hide Their Mental Illness’**\
+`Is the F.A.A. really ensuring safety by disqualifying pilots who receive a diagnosis or treatment?`\
+https://nytimes.com/2025/03/30/podcasts/the-daily/airline-pilots-mental-illness-depression.html
+
+**Wordle Review No. 1,381**\
+`Scroll down for hints and conversation about the puzzle for Monday, March 31, 2025.`\
+https://nytimes.com/2025/03/30/crosswords/wordle-review-1381.html
+
+**Connections Companion No. 659**\
+`Scroll down for hints and conversation about the puzzle for Monday, March 31, 2025.`\
+https://nytimes.com/2025/03/30/crosswords/connections-companion-659.html
+
 **In Bangkok, Looking at High-Rises With a New Sense of Dread**\
 `Buildings are rising all over the city, emblems of economic growth. But an earthquake that sent one crashing to the ground has stirred fears about building safety.`\
 https://nytimes.com/2025/03/30/world/asia/earthquake-bangkok-building-safety.html
@@ -5,36 +37,4 @@ https://nytimes.com/2025/03/30/world/asia/earthquake-bangkok-building-safety.htm
 **No. 1 UCLA vs. No. 3 LSU: How to watch Lauren Betts, Aneesah Morrow battle for Final Four**\
 `Two of the best bigs in the game jostle for a Final Four spot, with Lauren Betts' top-ranked Bruins favored against Aneesah Morrow and LSU.`\
 https://nytimes.com/athletic/6240449/2025/03/30/ucla-lsu-womens-ncaa-tournament-elite-eight-how-to-watch/
-
-**The New York Times International Edition in Print for Monday, March 31, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/03/30/todays-new-york-times-international-edition
-
-**In Tokyo, Rice Farmers Protest ‘Misguided’ Rules Fueling Shortages**\
-`A scarcity of rice is causing discontent among farmers and consumers in Japan and drawing attention to a policy some say has worsened shortages.`\
-https://nytimes.com/2025/03/30/business/japan-rice-farmer-protest.html
-
-**RB Leipzig sack head coach Rose**\
-`Rose, 48, had been in charge at the Red Bull Arena since September 2022, but has suffered through a difficult third season.`\
-https://nytimes.com/athletic/6241508/2025/03/30/rb-leipzig-sack-marco-rose/
-
-**How to watch No. 1 Auburn vs. No. 2 Michigan State with the Tigers favored to advance**\
-`Izzo's tournament-tested Spartans face Pearl's blazing Tigers on Sunday. Auburn is favored to advance.`\
-https://nytimes.com/athletic/6240499/2025/03/30/auburn-michigan-state-ncaa-tournament-how-to-watch/
-
-**Bayern defender Ito sustains metatarsal fracture for second time this season**\
-`It is another blow to head coach Vincent Kompany after injuries to defenders Alphonso Davies and Dayot Upamecano.`\
-https://nytimes.com/athletic/6241503/2025/03/30/bayern-munich-hiroki-ito-injury/
-
-**Men's March Madness 2025: What to watch for on Day 8**\
-`The stage is set for a showdown of powerhouses and perennial contenders.`\
-https://nytimes.com/athletic/6240718/2025/03/30/march-madness-2025-what-to-watch-day-8/
-
-**On Minnesota’s Iron Range, Trump’s Tariffs Could Be Boom or Bust**\
-`A region near the Canadian border, whose mines provide most of the new ore used in producing domestic steel — and cars — has a lot at stake as trade wars intensify.`\
-https://nytimes.com/2025/03/30/us/politics/trump-tariffs-canada-minnesota-iron-range.html
-
-**What Rusting Russian Tanks Can Teach Us About the Pete Hegseth Group Chat**\
-`A politicized military is an ineffective military.`\
-https://nytimes.com/2025/03/30/opinion/hegseth-signal-trump-putin.html
 
