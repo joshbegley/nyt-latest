@@ -1,3 +1,7 @@
+**Trump Says He’s ‘Not Joking’ About Seeking a Third Term in Defiance of Constitution**\
+`President Trump, in an interview with NBC News, said there were “methods” that would allow a third term. The 22nd Amendment prohibits a person from being elected to more than two terms as president.`\
+https://nytimes.com/2025/03/30/us/politics/trump-third-term.html
+
 **Drug Reduces Mysterious Particle Involved in Heart Attack Risk**\
 `The Eli Lilly drug caused a major drop in the blood levels of Lp(a), but further research is needed to show that it will prevent heart attacks and strokes.`\
 https://nytimes.com/2025/03/30/health/heart-attack-lpa-protein.html
@@ -7,7 +11,7 @@ https://nytimes.com/2025/03/30/health/heart-attack-lpa-protein.html
 https://nytimes.com/athletic/6240873/2025/03/30/viktor-gyokeres-arsenal-transfer-sporting/
 
 **‘Mission South Africa’: How Trump Is Offering White Afrikaners Refugee Status**\
-`The United States has banned most refugees, including 20,000 people who were already approved for entry before President Trump took office. But Mr. Trump is making one exception.`\
+`The United States has banned most refugees, including 20,000 people who were already ready to travel to the United States before President Trump took office. But Mr. Trump is making one exception.`\
 https://nytimes.com/2025/03/30/us/politics/trump-south-africa-white-afrikaners-refugee.html
 
 **My Saves In My Words: Sels on bottle instructions and run-up clues that led to Forest shootout win**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/30/arts/music/conductor-joana-mallwitz-metropolitan-
 **Shohei Ohtani card bearing piece of his 50/50 pants becomes first to sell for $1 million**\
 `Memorabilia from Ohtani's 50/50 season continues to command big prices`\
 https://nytimes.com/athletic/6242054/2025/03/30/shohei-ohtani-record-card-sale/
-
-**The Briefing: Bournemouth 1 Man City 2 - O'Reilly impact, Haaland's injury concern, and how did City turn it round?**\
-`Pep Guardiola's side could still claim a trophy this season after forcing passage into the FA Cup semi-finals for a seventh year in a row`\
-https://nytimes.com/athletic/6239544/2025/03/30/manchester-city-haaland-oreilly-bournemouth-fa-cup/
 
