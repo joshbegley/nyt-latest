@@ -1,3 +1,19 @@
+**Fire at New Mexico Republican Party Headquarters Being Investigated as Arson**\
+`Officials confirmed that the headquarters had been damaged in a fire, which the Republican Party called a “deliberate act of arson.”`\
+https://nytimes.com/2025/03/30/us/politics/republican-party-new-mexico-fire-arson.html
+
+**UCLA flexes depth, edges LSU to earn first trip to Final Four**\
+`Bruins overcome foul trouble for All-American center Lauren Betts, get hot from 3-point range to edge Tigers.`\
+https://nytimes.com/athletic/6242595/2025/03/30/ucla-edges-lsu-first-final-four/
+
+**Trump’s New Concession on Tariffs Is His Most Striking**\
+`The president said he “couldn’t care less” if automakers rose prices in response to planned tariffs, reasoning that buyers would choose U.S.-made cars over foreign brands.`\
+https://nytimes.com/2025/03/30/us/politics/trumps-new-concession-on-tariffs-is-his-most-striking.html
+
+**Make Official**\
+`Ryan Mathiason makes his New York Times Crossword debut.`\
+https://nytimes.com/2025/03/30/crosswords/daily-puzzle-2025-03-31.html
+
 **Women's March Madness projections 2025: Does UConn have the advantage?**\
 `What's your team's chance of winning? Find out here. `\
 https://nytimes.com/athletic/6198041/2025/03/30/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/30/style/reinaldo-herrera-dead.html
 **Houston locks down Tennessee to secure Kelvin Sampson's third career Final Four trip**\
 `The Vols had just 15 points at halftime, the fewest ever for a top-two seed in any NCAA Tournament game.`\
 https://nytimes.com/athletic/6242382/2025/03/30/houston-tennessee-march-madness-final-four/
-
-**White House Takes Highly Unusual Step of Directly Firing Line Prosecutors**\
-`Two prosecutors were dismissed out of the blue, notified by a terse one-sentence email stating no reason for the move other than that it was on behalf of the president himself.`\
-https://nytimes.com/2025/03/30/us/line-prosecutors-fired-trump-doj.html
-
-**Men's March Madness projections 2025: Who will advance to the Final Four?**\
-`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
-https://nytimes.com/athletic/6198047/2025/03/30/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**When the Biggest Series Were Mini, Richard Chamberlain Was TV’s Mega Star**\
-`The actor, who died at 90, was the most compelling face of a maximalist, soapy television era.`\
-https://nytimes.com/2025/03/30/arts/television/richard-chamberlain-shogun-thorn-birds.html
-
-**Richard Carlson, Journalist Who Led Voice of America, Dies at 84**\
-`The father of the conservative commentator Tucker Carlson, he won a Peabody Award for television reporting that uncovered a car company’s fraud.`\
-https://nytimes.com/2025/03/30/business/media/richard-carlson-dead.html
 
