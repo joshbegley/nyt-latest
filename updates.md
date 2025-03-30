@@ -1,3 +1,7 @@
+**In Myanmar, Aftershocks and Military Airstrikes Terrorize Residents**\
+`New tremors rattled survivors of Friday’s earthquake, which killed more than 1,600 people, while the government continued its bombing campaign elsewhere in the country.`\
+https://nytimes.com/2025/03/30/world/asia/myanmar-earthquake-aftershocks-airstrikes.html
+
 **Take Better Care of Your Skin**\
 `Here’s some advice.`\
 https://nytimes.com/2025/03/30/briefing/skin-care-treatment.html
