@@ -1,3 +1,15 @@
+**He Went to Prison for One Punch. 7 Years Later, It Became a Homicide.**\
+`Gary Anderson hit Domingo Tapia for reasons never explained, sending Mr. Tapia into a coma and Mr. Anderson to prison. Mr. Tapia later died, and his attacker faces manslaughter charges.`\
+https://nytimes.com/2025/03/31/nyregion/brooklyn-punch-murder-charges-domingo-tapia.html
+
+**Liverpool confirm pre-season matches in Hong Kong, Japan**\
+`Arne Slot's side will face AC Milan in Hong Kong, with details of the Japan leg to be confirmed.`\
+https://nytimes.com/athletic/6242593/2025/03/31/liverpool-pre-season-hong-kong-japan/
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/03/31/crosswords/spelling-bee-forum.html
+
 **Netanyahu Names New Intel Chief Despite Showdown With Court**\
 `Benjamin Netanyahu, the Israeli prime minister, named a new head of Israel’s domestic intelligence agency on Monday. Judges had frozen the dismissal of the current chief.`\
 https://nytimes.com/2025/03/31/world/middleeast/israel-netanyahu-shin-bet.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/31/us/politics/greenland-prime-minister-trump.html
 **Still no relief for Cubs after huge bullpen letdown: 'Wasn’t a good day'**\
 `Cubs relievers allow 10 runs as a comfortable lead turns into a 10-6 loss to Diamondbacks.`\
 https://nytimes.com/athletic/6243407/2025/03/31/chicago-cubs-relief-pitchers-diamondbacks/
-
-**Inside Leicester's academy: Producing talent, tough decisions and offering a future**\
-`There are 180 aspiring youngsters in Leicester's academy - we take a closer look at how the club builds players, and people, for the future`\
-https://nytimes.com/athletic/6241514/2025/03/31/leicester-city-academy-products/
-
-**Alejandro Balde is nicknamed 'the plane' - his rise has been as rapid**\
-`Balde has become a key player under Hansi Flick. So why is he still being overlooked for Spain?`\
-https://nytimes.com/athletic/6238137/2025/03/31/barcelona-alejandro-balde-rise/
-
-**How being in Europe will impact Newcastle's plans: Money, recruitment and silverware**\
-`A breakdown of each of this season's outcomes and what it's likely to prompt this summer`\
-https://nytimes.com/athletic/6234858/2025/03/31/newcastle-europe-impact/
 
