@@ -1,3 +1,15 @@
+**Ask CJ: Submit your NHL questions for Chris Johnston’s mailbag**\
+`Whether it’s playoff races, record pursuits, free agency or the league's inner workings, we want to know. Drop your questions here.`\
+https://nytimes.com/athletic/6244464/2025/03/31/nhl-mailbag-playoff-races-ovechkin/
+
+**America Has Never Been Wealthier. Here’s Why It Doesn’t Feel That Way.**\
+`A surge in U.S. wealth has been driven by stock and home values. But the gains are concentrated at the top, leaving others in a sour economic mood.`\
+https://nytimes.com/2025/03/31/business/economy/wealth-cash-inequality.html
+
+**Steak Fries: Deservedly Reviled or Underappreciated Edible Spoon?**\
+`They may be America’s least popular fry, but some chefs are still devoted to them.`\
+https://nytimes.com/2025/03/31/dining/steak-fries.html
+
 **Trump’s Science Policies Pose Long-Term Risk, Economists Warn**\
 `Since World War II, U.S. research funding has led to discoveries that fueled economic gains. Now cutbacks are seen as putting that legacy in jeopardy.`\
 https://nytimes.com/2025/03/31/business/economy/trump-research-cutbacks-economy.html
