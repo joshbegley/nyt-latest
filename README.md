@@ -4,7 +4,7 @@ https://nytimes.com/video/science/100000010084035/nasa-astronauts-boeing-spacex.
 
 **Musk Visits C.I.A. to Discuss Downsizing Efforts**\
 `A federal judge ordered the agency to reconsider its firings of employees who had been assigned to diversity recruiting.`\
-https://nytimes.com/2025/03/31/us/politics/musk-visits-cia-to-discuss-downsizing-efforts.html
+https://nytimes.com/2025/03/31/us/politics/elon-musk-cia-doge.html
 
 **MLB suspends Braves' Jurickson Profar 80 games for PEDs**\
 `Profar signed a three-year, $42 million contract with the Braves in January. `\
