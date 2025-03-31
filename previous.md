@@ -1,3 +1,15 @@
+**Trump’s Advisers Battle Over Tariff Goals**\
+`Also, France’s far-right leader was barred from running for office. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/03/31/briefing/trump-tariffs-france-far-right-leader-guilty.html
+
+**Palestinians Flee Southern Gaza Amid New Evacuation Order**\
+`Gazans were seen fleeing Rafah on Monday after the Israeli military issued a wide evacuation order for the southern Gaza Strip.`\
+https://nytimes.com/video/world/middleeast/100000010083339/rafah-gaza-evacuation.html
+
+**Why C.J. Gardner-Johnson trade shows Eagles learned from Super Bowl LII fallout**\
+`The Eagles are intent on spending smartly while making difficult decisions to let some players go.`\
+https://nytimes.com/athletic/6244372/2025/03/31/eagles-super-bowl-cj-gardner-johnson-trade/
+
 **Waiting on Aaron Rodgers: How the Steelers landed in QB limbo, and what comes next**\
 `Coach Mike Tomlin and GM Omar Khan are waiting, just like the rest of us, to see what the four-time NFL MVP decides.`\
 https://nytimes.com/athletic/6245184/2025/03/31/aaron-rodgers-steelers-mike-tomlin-omar-khan/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6245185/2025/03/31/panthers-defense-ejiro-evero-fre
 **White House May Remake Reporters’ Seating Chart, Escalating Tensions**\
 `The Trump administration is planning another encroachment into the day-to-day arrangements of the journalists who cover it.`\
 https://nytimes.com/2025/03/31/business/media/trump-briefing-room-seating-chart.html
-
-**Callahan praises Sanders' confidence as Titans close in on No. 1 pick decision**\
-`The Titans remain open to trading the No. 1 pick but Callahan said "there is no price" you can put on a potential franchise quarterback.`\
-https://nytimes.com/athletic/6245175/2025/03/31/titans-first-pick-decision-brian-callahan-sanders-ward/
-
-**Is Giants GM Joe Schoen preparing to pass on a QB at No. 3?**\
-`It's "lying season," but Schoen sure sounded like a GM happy with the QB room he has assembled and thinking about other needs in the draft.`\
-https://nytimes.com/athletic/6245134/2025/03/31/new-york-giants-nfl-draft-russell-wilson-shedeur-sanders/
-
-**A ride from the captain, a new number and a starting job: Jimmy Snuggerud's first day with the Blues**\
-`Jimmy Snuggerud, the Blues' first-round pick in 2022, had his first practice with the team after signing a contract Friday.`\
-https://nytimes.com/athletic/6244487/2025/03/31/jimmy-snuggerud-blues-first-day/
 

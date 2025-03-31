@@ -1,3 +1,15 @@
+**Trump’s Advisers Battle Over Tariff Goals**\
+`Also, France’s far-right leader was barred from running for office. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/03/31/briefing/trump-tariffs-france-far-right-leader-guilty.html
+
+**Palestinians Flee Southern Gaza Amid New Evacuation Order**\
+`Gazans were seen fleeing Rafah on Monday after the Israeli military issued a wide evacuation order for the southern Gaza Strip.`\
+https://nytimes.com/video/world/middleeast/100000010083339/rafah-gaza-evacuation.html
+
+**Why C.J. Gardner-Johnson trade shows Eagles learned from Super Bowl LII fallout**\
+`The Eagles are intent on spending smartly while making difficult decisions to let some players go.`\
+https://nytimes.com/athletic/6244372/2025/03/31/eagles-super-bowl-cj-gardner-johnson-trade/
+
 **Waiting on Aaron Rodgers: How the Steelers landed in QB limbo, and what comes next**\
 `Coach Mike Tomlin and GM Omar Khan are waiting, just like the rest of us, to see what the four-time NFL MVP decides.`\
 https://nytimes.com/athletic/6245184/2025/03/31/aaron-rodgers-steelers-mike-tomlin-omar-khan/
