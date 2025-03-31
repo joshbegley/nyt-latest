@@ -1,3 +1,7 @@
+**Pereira: 'Natural' for Cunha to title-winning ambitions**\
+`The 25-year-old spoke to the Guardian about his desire to “take the next step” in an interview published over the weekend.`\
+https://nytimes.com/athletic/6244106/2025/03/31/matheus-cunha-wolves-future-transfer/
+
 **What we learned in the NHL in March: Blues' green flags, Stars' red flags, power-play slides**\
 `Plus a look at regular-season goalie splits to see whether the past might hint at Washington's postseason plans in net.`\
 https://nytimes.com/athletic/6242996/2025/03/31/nhl-blues-stars-capitals-power-play/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6234053/2025/03/31/nba-rewind-taylor-jenkins-grizzl
 **In Southern California, a Sea-Mammal Crisis Washes Ashore**\
 `In recent weeks, hundreds of sea lions, dolphins and other animals have turned up in the sand dead or seriously ill, alarming rescuers and beachgoers alike.`\
 https://nytimes.com/2025/03/31/us/southern-california-dolphins-sea-lions.html
-
-**The Athletic college baseball Top 25: Texas rolling in Year 1 under Jim Schlossnagle**\
-`Teams ranked ninth through 25th in last week's poll combined to lose 33 games, and four teams were swept in weekend series.`\
-https://nytimes.com/athletic/6243213/2025/03/31/college-baseball-top-25-texas-tennessee-arkansas/
 

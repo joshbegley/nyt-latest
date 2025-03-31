@@ -1,3 +1,16 @@
+**What we learned in the NHL in March: Blues' green flags, Stars' red flags, power-play slides**\
+`Plus a look at regular-season goalie splits to see whether the past might hint at Washington's postseason plans in net.`\
+https://nytimes.com/athletic/6242996/2025/03/31/nhl-blues-stars-capitals-power-play/
+
+**Silver Fire in California Prompts Evacuations**\
+`Efforts to battle the 1,250-acre fire in eastern California were complicated by strong winds, which were expected to continue through Monday.`\
+https://nytimes.com/2025/03/31/us/silver-fire-bishop-california.html
+
+**xG Explained: How data metrics can help you beat the bookmakers**\
+`Brett Koremenos explores the concept of Expected Goals and how to use the metric to get around the bookmakers.
+`\
+https://nytimes.com/athletic/6244124/2025/03/31/expected-goals-explainer-betting-guide-tips/
+
 **xG Explained: How data metrics can help you beat the bookmakers**\
 `Brett Koremenos explores the concept of Expected Goals and how to use the metric to get around the bookmakers.
 `\
