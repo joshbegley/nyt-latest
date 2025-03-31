@@ -1,40 +1,40 @@
-**Time to Get Over Eurovision? ‘Hell No!’ a Jilted Contestant Says.**\
-`Joost Klein was thrown out of last year’s contest after being accused of threatening a camerawoman. On a new album, he’s still stuck in that moment.`\
-https://nytimes.com/2025/03/31/arts/music/joost-klein-unity-eurovision.html
+**Trump Administration Live Updates: President Says He’s ‘Not Joking’ About a Third Term**\
+``\
+https://nytimes.com/live/2025/03/31/us/trump-news
 
-**Giants have a plan at QB for 2025 but not beyond, so how will they approach NFL Draft?**\
-`No one knows what the Giants will do in the draft for a simple reason: They don’t know yet.`\
-https://nytimes.com/athletic/6242297/2025/03/31/new-york-giants-nfl-draft-quarterback-russell-wilson-joe-schoen/
+**How Vikings' free-agency haul signals another defensive evolution under Brian Flores**\
+`The signings of Jonathan Allen and Javon Hargrave offer some critical hints about Flores' plan for the Vikings defense in 2025.`\
+https://nytimes.com/athletic/6236246/2025/03/31/vikings-free-agency-brian-flores-defense/
 
-**Tennis Briefing: Jannik Sinner wins big without playing a match as rivals falter**\
-`The world No. 1's three-month anti-doping ban has barely affected his ATP ranking as yet.`\
-https://nytimes.com/athletic/6242694/2025/03/31/tennis-jannik-sinner-ranking-ban/
+**Los Angeles Chargers NFL Draft 2025 guide: Picks, predictions and key needs**\
+`The Chargers own the No. 22 pick and 10 picks total in the NFL Draft. Will they add a playmaker or look to beef up the trenches? `\
+https://nytimes.com/athletic/6220143/2025/03/31/los-angeles-chargers-2025-nfl-draft-picks-needs-predictions-guide/
 
-**Tariffs Keep Wall Street on Edge**\
-`President Trump’s latest trade war threat is expected to come into effect this week, but businesses and investors remain unsure about how much it will hurt.`\
-https://nytimes.com/2025/03/31/business/dealbook/tariffs-trump-wall-street.html
+**Los Angeles Rams NFL Draft 2025 guide: Picks, predictions and key needs**\
+`The Rams are set to pick at No. 26 in the first round and have eight total picks in the NFL Draft.`\
+https://nytimes.com/athletic/6233149/2025/03/31/los-angeles-rams-2025-nfl-draft-picks-needs-predictions-guide/
 
-**Isco: Betis need 'crowdfunding' to sign Antony beyond this season**\
-`The 25-year-old forward, who joined United in a deal worth €100million (£84m, $99m), started just two matches after Ruben Amorim’s arrival.`\
-https://nytimes.com/athletic/6243902/2025/03/31/antony-real-betis-isco-manchester-united/
+**Cardinals sweep Twins to open season: 3 takeaways from 3 wins**\
+`Pedro Pagés helped lead an offensive barrage as the homer-happy Cardinals scored 19 runs in the series.`\
+https://nytimes.com/athletic/6242193/2025/03/31/cardinals-sweep-twins-takeaways/
 
-**Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
-`Post your questions and Chris Waugh will endeavour to answer as many as possible between 2pm and 3pm BST (9am and 10am ET)`\
-https://nytimes.com/athletic/6243779/2025/03/31/inside-newcastle-live-qa-epl-brentford-isak/
+**Can the NBA fix its big tanking problem? Here’s how the league can change it**\
+`Can anything be done to make teams out of the playoff race care more about winning at the end of the season? We have some ideas. `\
+https://nytimes.com/athletic/6235572/2025/03/31/nba-tanking-problem-fix-draft/
 
-**FPL: Everything you need to know ahead of Gameweek 30**\
-`FPL is back after a break of more than two weeks. Holly Shand brings you back up to speed ahead of Tuesday's Gameweek 30 deadline`\
-https://nytimes.com/athletic/6231871/2025/03/31/fantasy-premier-league-gameweek-30-preview-wildcard-strategy/
+**MMLR: The Leafs' playoff lineup (and goalie starter) competition heats up**\
+`As the regular season winds to a close, Craig Berube will fine-tune who gets the nod in the bottom six to start the playoffs.`\
+https://nytimes.com/athletic/6243441/2025/03/31/maple-leafs-playoffs-lineup-starter/
 
-**The Athletic FC: Arsenal and Berta eye Gyokeres, Mbappe matches Ronaldo record**\
-`Today in TAFC: Arsenal's sporting director is interested in Gyokeres, a potential Club World Cup play-off, and Newcastle fans take over town`\
-https://nytimes.com/athletic/6243815/2025/03/31/arsenal-gyokeres-mbappe-ronaldo-record-real-madrid/
+**Red Wings mailbag: Is there a silver lining to this season? Plus draft, free-agent targets**\
+`Also in the mailbag : Replacing Patrick Kane, and what's going on with Dylan Larkin and Lucas Raymond?`\
+https://nytimes.com/athletic/6240963/2025/03/31/red-wings-draft-free-agent-targets/
 
-**Tigers' prospect Jackson Jobe honed his pitches in a barn. Now he's starting in the majors**\
-`Jackson Jobe was a teenager when he started pitching lessons with Alex Marney in an Oklahoma barn. Now Jobe and PitchingWRX are taking off.`\
-https://nytimes.com/athletic/6242712/2025/03/31/tigers-jackson-jobe-pitchingwrx-alex-marney/
+**What stands out so far in Alabama's spring practice?**\
+`After only two practices last week, here’s what we saw, heard and learned with the A-Day game set for April 12.`\
+https://nytimes.com/athletic/6242941/2025/03/31/alabama-football-spring-practice-storylines/
 
-**Las Vegas Raiders NFL Draft 2025 guide: Picks, predictions and key needs**\
-`The Raiders own the No. 6 pick and have nine picks total in the NFL Draft. How will Pete Carroll and John Spytek upgrade the roster?`\
-https://nytimes.com/athletic/6220063/2025/03/31/las-vegas-raiders-2025-nfl-draft-picks-needs-predictions-guide/
+**Alex Ovechkin's classy gesture fitting end to love-hate relationship with Marc-Andre Fleury**\
+`Plus an update on Zeev Buium after Denver's clash with Boston College in the NCAA regionals.`\
+https://nytimes.com/athletic/6242416/2025/03/31/wild-insider-fleury-ovechkin-buium/
 
