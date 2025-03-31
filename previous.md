@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6235647/2025/03/30/giants-opening-series-matt-chapm
 https://nytimes.com/2025/03/30/podcasts/museum-of-now-this-american-life-nyt-audio.html
 
 **Maxim Naumov’s late parents are with him on the ice, now and forever**\
-`The 23-year-old skater delivered a flawless exhibition of love at the “Exhibition of Champions” and ended it with a message to his parents. `\
+`The 23-year-old skater delivered a flawless exhibition of love at the “Exhibition of Champions” and ended it with a message to his parents.`\
 https://nytimes.com/athletic/6242773/2025/03/30/world-figure-skating-championships-maxim-naumov/
 
 **Twins takeaways: Déjà vu for Bailey Ober, prospect watching in St. Paul, franchise values**\

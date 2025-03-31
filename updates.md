@@ -1,3 +1,7 @@
+**Maxim Naumov’s late parents are with him on the ice, now and forever**\
+`The 23-year-old skater delivered a flawless exhibition of love at the “Exhibition of Champions” and ended it with a message to his parents.`\
+https://nytimes.com/athletic/6242773/2025/03/30/world-figure-skating-championships-maxim-naumov/
+
 **Odds say men's college basketball title is Duke's to lose**\
 `Entering the Final Four, it looks like it is Duke vs. everyone else in the national title odds.`\
 https://nytimes.com/athletic/6242322/2025/03/30/march-madness-national-title-odds-duke-florida-houston-auburn/
