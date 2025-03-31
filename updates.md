@@ -1,3 +1,11 @@
+**The Athletic college baseball Top 25: Texas rolling in Year 1 under Jim Schlossnagle**\
+`Teams ranked ninth through 25th in last week's poll combined to lose 33 games, and four teams were swept in weekend series.`\
+https://nytimes.com/athletic/6243213/2025/03/31/college-baseball-top-25-texas-tennessee-arkansas/
+
+**Gluck: Embarrassing Xfinity race leaves NASCAR's second-tier series searching for answers**\
+`A caution-filled Xfinity Series race at Martinsville drew criticism in the Cup Series garage and put a spotlight on a tricky problem.`\
+https://nytimes.com/athletic/6243282/2025/03/31/nascar-xfinity-series-martinsville-race-crashes-cautions/
+
 **Help Comes Slowly for War-Torn City in Myanmar Hit by Earthquake**\
 `As the death toll rose past 2,000, some volunteers complained of being blocked by Myanmar’s military from reaching a rebel stronghold that was badly hit.`\
 https://nytimes.com/2025/03/31/world/asia/myanmar-earthquake-rescue.html
