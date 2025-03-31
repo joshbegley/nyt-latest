@@ -1,3 +1,11 @@
+**In Espionage and War, Secure Communication Is Key. Just Ask These Spies.**\
+`As Americans scrutinize the accidental leak of a high-level U.S. group chat, several books detail other mishaps in the annals of global conflict.`\
+https://nytimes.com/2025/03/31/books/review/military-histories-about-spies-and-intelligence-services.html
+
+**Trump Cannot Win His War on History**\
+`The assumption that there is a standard, agreed-upon truth about the country’s past is a fantasy; but when declared by a sitting president, it becomes a provocation.`\
+https://nytimes.com/2025/03/31/opinion/trump-war-history.html
+
 **Trump’s Advisers Battle Over Tariff Goals**\
 `Also, France’s far-right leader was barred from running for office. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/03/31/briefing/trump-tariffs-france-far-right-leader-guilty.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6244303/2025/03/31/gibbs-white-wood-injury-forest/
 **Abbott Delays Calling a Special House Election. Democrats Cry Foul.**\
 `Representative Hakeem Jeffries, the House minority leader, accused Gov. Greg Abbott of Texas of slow-walking a special election to hold the Republicans’ slim majority steady.`\
 https://nytimes.com/2025/03/31/us/texas-house-seat.html
-
-**With more pieces in place, Ejiro Evero gets shot to fix Panthers' defense**\
-`“I’m a huge fan of him,” said Rams GM Les Snead of Ejiro Evero, who spent five seasons in L.A., including the team's Super Bowl season.`\
-https://nytimes.com/athletic/6245185/2025/03/31/panthers-defense-ejiro-evero-free-agency/
-
-**White House May Remake Reporters’ Seating Chart, Escalating Tensions**\
-`The Trump administration is planning another encroachment into the day-to-day arrangements of the journalists who cover it.`\
-https://nytimes.com/2025/03/31/business/media/trump-briefing-room-seating-chart.html
 
