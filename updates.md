@@ -1,3 +1,7 @@
+**‘The White Lotus’ Season 3, Episode 7: Lovers and Fighters**\
+`“The White Lotus” tells us only enough about the characters’ pasts to explain some of the choices they make. Sometimes this works; sometimes it doesn’t.`\
+https://nytimes.com/2025/03/30/arts/television/the-white-lotus-season-3-episode-7-recap.html
+
 **Phillies takeaways: The lefty starters are coming (again), timing Nola, Strahm's return**\
 `Mitchell Parker, along with fellow lefty MacKenzie Gore, held the Phillies scoreless over 12 1/3 innings with 18 strikeouts and two walks.`\
 https://nytimes.com/athletic/6243025/2025/03/30/phillies-scores-results-standings/
