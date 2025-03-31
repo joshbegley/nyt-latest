@@ -1,40 +1,40 @@
-**Djokovic bested by Menšík in Miami Open as hunt for history remains ongoing**\
-`Trying to win his 100th ATP Tour title, Djokovic ran into both the power and precision of the rising 19-year-old Czech.`\
-https://nytimes.com/athletic/6242240/2025/03/30/djokovic-mensik-miami-open-final-result-analysis/
+**Rashford at Villa is a process and perseverance is paying off for Emery**\
+`It's premature to say the on-loan Man United forward is back to his best, but his first goals for Villa show he is moving in right direction`\
+https://nytimes.com/athletic/6241953/2025/03/31/marcus-rashford-villa-man-united/
 
-**Kevin Durant ruled out with left ankle sprain in Suns' blowout loss**\
-`Losing Durant for any stretch would be a devastating blow to Phoenix's postseason hopes. The Suns are 2-11 without him this season.`\
-https://nytimes.com/athletic/6243412/2025/03/30/kevin-durant-ankle-injury-suns/
+**Monday Briefing**\
+`An earthquake’s devastation in Myanmar.`\
+https://nytimes.com/2025/03/31/briefing/myanmar-quake-ukraine.html
 
-**Trump Says He’s ‘Not Joking’ About Seeking a Third Term in Defiance of Constitution**\
-`In wide-ranging remarks to “Meet the Press,” Mr. Trump said “a lot of people” wanted him to serve a third term and vowed to impose tariffs on global rivals, according to a transcript of the interview provided by NBC News.`\
-https://nytimes.com/2025/03/30/us/trump-third-term.html
+**Manchester City are FA Cup semi-finalists again - with apologies to the nation**\
+`Pep Guardiola's side reached a record seventh consecutive FA Cup semi-final after beating Bournemouth`\
+https://nytimes.com/athletic/6242292/2025/03/31/manchester-city-semi-final-guardiola-fa-cup/
 
-**Maple Leafs report cards: Depth scoring gets it done to finish California swing**\
-`Max Domi scored a highlight-reel goal to break the game open and Steven Lorentz got the game-winner on a tipped shot.`\
-https://nytimes.com/athletic/6243400/2025/03/30/maple-leafs-report-cards-domi-lorentz-ducks/
+**Aston Villa are scrambling for WSL safety, but how did it come to this?**\
+`Villa secured a vital three points against Liverpool, but they should not be fighting relegation. What's happened?`\
+https://nytimes.com/athletic/6242041/2025/03/31/aston-villa-women-wsl-relegation-scramble/
 
-**Stocks Sink as Trump’s Tariff Threats Weigh on Confidence**\
-`Stocks in Japan tumbled nearly 4 percent as investors braced for a week of market turmoil caused by an expected announcement of more tariffs.`\
-https://nytimes.com/2025/03/30/business/stocks-nikkei-sp500.html
+**How Trump Supercharged Distrust, Driving U.S. Allies Away**\
+`Trust is very hard to build and easy to destroy. America and its partners are caught in a spiral of distrust.`\
+https://nytimes.com/2025/03/31/world/trump-foreign-policy-trust.html
 
-**Sabres thoughts: A big goalie question, Jack Quinn's scoring surge and more**\
-`The 2024-25 Sabres are capable of beating any team in the league and just as capable of losing to any team in the league.`\
-https://nytimes.com/athletic/6243260/2025/03/30/sabres-jack-quinn-goalies-krebs-capitals/
+**Quote of the Day: Sacramento Roots, Roots, Roots for Home Team with No Home**\
+`Quote of the Day for Monday, March 31, 2025`\
+https://nytimes.com/2025/03/31/pageoneplus/quote-of-the-day-sacramento-roots-roots-roots-for-home-team-with-no-home.html
 
-**Amid athletic lore in Pauley Pavilion, UCLA women's basketball finally has a legacy to add**\
-`After 14 seasons, coach Cori Close has led the Bruins to new heights with their first Final Four bid.`\
-https://nytimes.com/athletic/6243271/2025/03/30/ucla-womens-basketball-final-four/
+**Zimbabwe’s Leader Faces Call for Removal From Within His Own Party**\
+`Nearly eight years after the coup that brought him to power, President Emmerson Mnangagwa is under threat from opponents within his governing ZANU-PF party, who have urged mass protests.`\
+https://nytimes.com/2025/03/31/world/africa/zimbabwe-demonstrations-mnangagwa.html
 
-**‘The White Lotus’ Season 3, Episode 7: Lovers and Fighters**\
-`“The White Lotus” tells us only enough about the characters’ pasts to explain some of the choices they make. Sometimes this works; sometimes it doesn’t.`\
-https://nytimes.com/2025/03/30/arts/television/the-white-lotus-season-3-episode-7-recap.html
+**Funfairs, river walks, leafy parks, and Hugh Grant - welcome to Fulham (away)**\
+`Until fairly recently, Fulham were so accommodating that they even had a neutral stand where home and away fans could sit next to each other`\
+https://nytimes.com/athletic/6240194/2025/03/31/fulham-craven-cottage-unique/
 
-**Kenny Atkinson's pregame water bottle toss outburst spurs Cavaliers to 60th win**\
-`After their coach fired them up, the Cavs had their best performance in quite a while, a 127-122 win over the Clippers.`\
-https://nytimes.com/athletic/6243060/2025/03/30/kenny-atkinson-outburst-cavaliers-win-60/
+**As Tensions Escalate Between Trump and Europe, Meloni Is Caught in the Middle**\
+`Each new crisis, whether over Ukraine or tariffs, has made the Italian prime minister’s balancing act that much harder.`\
+https://nytimes.com/2025/03/31/world/europe/italy-meloni-trump-europe-tensions.html
 
-**Musk Says ‘Destiny of Humanity’ Rests on Wisconsin Judicial Race**\
-`“What’s happening on Tuesday is a vote for which party controls the U.S. House of Representatives,” Elon Musk told a crowd in Green Bay. “That is why it is so significant.”`\
-https://nytimes.com/2025/03/30/us/elon-musk-wisconsin-supreme-court.html
+**Why China Is Wary of a Trump-Xi Summit**\
+`It could take months for agreement on a meeting between President Trump and Xi Jinping, China’s top leader, as Chinese officials seek a scripted encounter.`\
+https://nytimes.com/2025/03/31/business/trump-xi-summit-tariffs.html
 
