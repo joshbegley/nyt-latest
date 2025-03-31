@@ -1,3 +1,11 @@
+**Odds say men's college basketball title is Duke's to lose**\
+`Entering the Final Four, it looks like it is Duke vs. everyone else in the national title odds.`\
+https://nytimes.com/athletic/6242322/2025/03/30/march-madness-national-title-odds-duke-florida-houston-auburn/
+
+**Giants take opening series behind Matt Chapman's bat, glove**\
+`There's a consensus, statistically and anecdotally, that Chapman is very good at baseball relative to his peers.`\
+https://nytimes.com/athletic/6235647/2025/03/30/giants-opening-series-matt-chapman/
+
 **Museum of Now**\
 `A tour of some unusual artifacts from the present.`\
 https://nytimes.com/2025/03/30/podcasts/museum-of-now-this-american-life-nyt-audio.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6198047/2025/03/30/mens-march-madness-projections-2
 **South Carolina's used to dominating. It's been a narrower path to this Final Four**\
 `South Carolina struggled but found a way to beat Duke for its fifth straight Final Four trip.`\
 https://nytimes.com/athletic/6242924/2025/03/30/south-carolina-final-four-path/
-
-**Auburn's Johni Broome exits game with apparent injury, returns to drill 3**\
-`Broome, 22, returned to the game after X-rays were negative.`\
-https://nytimes.com/athletic/6242810/2025/03/30/auburn-johni-broome-elbow-injury-elite-eight/
-
-**Justin Fields will be the Jets' starter, and they believe he can be the next Sam Darnold: Takeaways**\
-`Darren Mougey said Fields has a "unique athletic skill set that adds another dimension to the game."`\
-https://nytimes.com/athletic/6242736/2025/03/30/justin-fields-jets-quarterback/
 
