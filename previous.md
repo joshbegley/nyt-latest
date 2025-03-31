@@ -1,3 +1,19 @@
+**How to watch Braves at Dodgers as Atlanta takes on Shohei Ohtani, Dodgers' bats**\
+`The Braves and Dodgers have a potential NLCS preview in LA, with a three-game series that starts Monday and ends Wednesday.`\
+https://nytimes.com/athletic/6244823/2025/03/31/braves-dodgers-ohtani-olson-how-to-watch/
+
+**Tips for Travelers Entering the U.S. Now: Check Your Visa, Turn Off Your Phone**\
+`With increasing news reports of travelers being denied entry, understanding what might prompt extra scrutiny is key. Here’s what to know.`\
+https://nytimes.com/2025/03/31/travel/us-travel-border-customs-visa-trump.html
+
+**Sean McDermott's tush push stance stresses player safety as tiresome debate comes to a head**\
+`The Bills use a version of the play and Sean McDermott is on the competition committee.`\
+https://nytimes.com/athletic/6244797/2025/03/31/sean-mcdermott-bills-tush-push-josh-allen/
+
+**2 N.Y.P.D. Officers Are Charged With Burglary and Groping**\
+`The officers stole money from a prostitute and groped her while on patrol duty in Queens, prosecutors said.`\
+https://nytimes.com/2025/03/31/nyregion/nypd-charges-burglary-groping.html
+
 **Jim Jarmusch, New York Fixture, Showed His Art in Los Angeles. His Fans Showed Up.**\
 `Angelenos flocked to meet the artist and filmmaker, who came to the West Coast for the opening of his solo exhibition “Some More Collages.”`\
 https://nytimes.com/2025/03/31/style/jim-jarmusch-some-more-collages-exhibit-la.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/31/world/middleeast/uae-death-sentence-rabbi-killing
 **Washington's GM has long-term plans for Terry McLaurin: 'He's a great Commander'**\
 `McLaurin topped 1,000 receiving yards for the fifth consecutive season and had over 80 receptions for the second time in his career in 2024.`\
 https://nytimes.com/athletic/6245045/2025/03/31/commanders-terry-mclaurin-contract-extension/
-
-**Trump Administration Moves to Shutter Library Agency**\
-`The staff of the independent Institute of Museum and Library Services, the largest source of federal funding for museums and libraries, were put on leave.`\
-https://nytimes.com/2025/03/31/arts/design/library-agency-trump-museums.html
-
-**NFL reduces TNF flex window to 21 days, announces 'Hard Knocks' renewal**\
-`When the NFL flexes games it can make national matchups more compelling, but it can also impact fans negatively.`\
-https://nytimes.com/athletic/6245018/2025/03/31/nfl-thursday-night-football-flex-hard-knocks/
-
-**Trump Administration Will Review Billions in Funding for Harvard**\
-`The move follows the cancellation of roughly $400 million in funding for Columbia, and suspension of $175 million for the University of Pennsylvania.`\
-https://nytimes.com/2025/03/31/us/trump-administration-harvard-funding.html
-
-**Elon Musk Gives Away $1 Million Checks at Wisconsin Rally**\
-`Elon Musk appeared at a rally where he called on people to vote for Brad Schimel, a Wisconsin Supreme Court candidate, ahead of the high-stakes election.`\
-https://nytimes.com/video/us/elections/100000010082749/musk-million-dollar-checks-wisconsin-rally.html
 
