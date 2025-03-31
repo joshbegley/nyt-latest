@@ -1,3 +1,11 @@
+**Patirots like Will Campbell at left tackle, want Travis Hunter to focus on one position**\
+`If Travis Hunter and Abdul Carter don't slip to New England at No. 4, the Patriots could fill their hole at left tackle with Campbell.`\
+https://nytimes.com/athletic/6244236/2025/03/31/patriots-2025-draft-will-campbell-travis-hunter/
+
+**The Windup: All about those Yankee torpedo bats**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6243530/2025/03/31/yankees-bats-torpedo-explained-the-windup/
+
 **Sean Payton glad 'not to be in that QB market' as Broncos eye contention in 2025**\
 `The Broncos will add a running back in the upcoming NFL Draft, general manager George Paton said Monday, but will it be their top pick?`\
 https://nytimes.com/athletic/6244050/2025/03/31/broncos-sean-payton-george-paton-nfl-owners-meetings/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/31/well/ivermectin-cancer-covid.html
 **Investigating a Sprawling Money Laundering Network**\
 `Two New York Times reporters spent several months learning the intricacies of a wide-reaching web of scammers.`\
 https://nytimes.com/2025/03/31/insider/cambodia-money-laundering-huione.html
-
-**While Crosby and Ovechkin still shine, Evgeni Malkin is quietly fading away**\
-`With new players arriving in Pittsburgh, we are reminded that the Malkin era is coming to an end.`\
-https://nytimes.com/athletic/6242087/2025/03/31/penguins-evgeni-malkin-retirement-career/
-
-**Greenberg: White Sox lose first series of season Sunday, the first of many to come**\
-`After a nearly three-hour delay, the aftermath was familiar: Sox hitters stranded runners, a reliever gave up a homer and the Angels won.`\
-https://nytimes.com/athletic/6244111/2025/03/31/white-sox-lose-first-series/
 
