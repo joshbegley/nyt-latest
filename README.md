@@ -1,9 +1,13 @@
+**The Athletic college baseball Top 25: Texas rolling in Year 1 under Jim Schlossnagle**\
+`Teams ranked ninth through 25th in last week's poll combined to lose 33 games, and four teams were swept in weekend series.`\
+https://nytimes.com/athletic/6243213/2025/03/31/college-baseball-top-25-texas-tennessee-arkansas/
+
 **Help Comes Slowly for War-Torn City in Myanmar Hit by Earthquake**\
 `As the death toll rose past 2,000, some volunteers complained of being blocked by Myanmar’s military from reaching a rebel stronghold that was badly hit.`\
 https://nytimes.com/2025/03/31/world/asia/myanmar-earthquake-rescue.html
 
 **Gluck: Embarrassing Xfinity race leaves NASCAR's second-tier series searching for answers**\
-`A wreck- and caution-filled Xfinity Series at Martinsville drew criticism in the Cup Series garage and put a spotlight on a tricky problem.`\
+`A caution-filled Xfinity Series race at Martinsville drew criticism in the Cup Series garage and put a spotlight on a tricky problem.`\
 https://nytimes.com/athletic/6243282/2025/03/31/nascar-xfinity-series-martinsville-race-crashes-cautions/
 
 **Real Estate Fund Raises $2.5 Billion for Affordable Housing**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000010082384/myanmar-earthquake-rescue.h
 **Sacramento Is Ready for Its Major League Moment. (Just Don’t Say ‘Sacramento.’)**\
 `The Athletics temporarily moved to California’s capital region, but insisted on avoiding references to Sacramento. Residents, who are thrilled to have M.L.B. games, are used to such slights.`\
 https://nytimes.com/2025/03/31/us/athletics-sacramento-mlb.html
-
-**Amorim: Heaven injury 'not so serious', Mainoo 'almost ready to return'**\
-`Luke Shaw is also not ready for action but Harry Maguire and Leny Yoro are fit.`\
-https://nytimes.com/athletic/6207672/2025/03/31/manchester-united-heaven-mainoo-injury/
 
