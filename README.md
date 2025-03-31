@@ -1,3 +1,7 @@
+**Trump Says He’s ‘Not Joking’ About Seeking a Third Term in Defiance of Constitution**\
+`In wide-ranging remarks to “Meet the Press,” Mr. Trump said “a lot of people” wanted him to serve a third term and vowed to impose tariffs on global rivals, according to a transcript of the interview provided by NBC News.`\
+https://nytimes.com/2025/03/30/us/trump-third-term.html
+
 **Maple Leafs report cards: Depth scoring gets it done to finish California swing**\
 `Max Domi scored a highlight-reel goal to break the game open and Steven Lorentz got the game-winner on a tipped shot.`\
 https://nytimes.com/athletic/6243400/2025/03/30/maple-leafs-report-cards-domi-lorentz-ducks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6241884/2025/03/30/penguins-crosby-mcgroarty-koivun
 **Wild brawl in Pistons-Timberwolves results in 7 ejections**\
 `There are scuffles in games, and then there are fights. This was a fight.`\
 https://nytimes.com/athletic/6243058/2025/03/30/pistons-fight-brawl-timberwolves/
-
-**Will Flau'jae Johnson head to the WNBA? Or will championship goals bring her back to LSU?**\
-`“I want to be in the Final Four. I want my own one. Where I lead the team." `\
-https://nytimes.com/athletic/6243139/2025/03/30/lsu-flaujae-johnson-wnba-elite-eight/
 

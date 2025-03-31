@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Depth scoring gets it done to finish California swing**\
+`Max Domi scored a highlight-reel goal to break the game open and Steven Lorentz got the game-winner on a tipped shot.`\
+https://nytimes.com/athletic/6243400/2025/03/30/maple-leafs-report-cards-domi-lorentz-ducks/
+
 **Stocks Sink as Trump’s Tariff Threats Weigh on Confidence**\
 `Stocks in Japan tumbled nearly 4 percent as investors braced for a week of market turmoil caused by an expected announcement of more tariffs.`\
 https://nytimes.com/2025/03/30/business/stocks-nikkei-sp500.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6243058/2025/03/30/pistons-fight-brawl-timberwolves
 **Will Flau'jae Johnson head to the WNBA? Or will championship goals bring her back to LSU?**\
 `“I want to be in the Final Four. I want my own one. Where I lead the team." `\
 https://nytimes.com/athletic/6243139/2025/03/30/lsu-flaujae-johnson-wnba-elite-eight/
-
-**Blackhawks' rebuild reaches promising point as 6 first-rounders take the ice together**\
-`GM Kyle Davidson's vision for the Blackhawks' future is getting closer every day.`\
-https://nytimes.com/athletic/6242358/2025/03/30/blackhawks-first-rounders-rinzel-moore-rebuild/
 

@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Depth scoring gets it done to finish California swing**\
+`Max Domi scored a highlight-reel goal to break the game open and Steven Lorentz got the game-winner on a tipped shot.`\
+https://nytimes.com/athletic/6243400/2025/03/30/maple-leafs-report-cards-domi-lorentz-ducks/
+
 **Stocks Sink as Trump’s Tariff Threats Weigh on Confidence**\
 `Stocks in Japan tumbled nearly 4 percent as investors braced for a week of market turmoil caused by an expected announcement of more tariffs.`\
 https://nytimes.com/2025/03/30/business/stocks-nikkei-sp500.html
