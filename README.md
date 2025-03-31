@@ -1,3 +1,7 @@
+**Brad Holmes on Lions' 2025 offseason moves, free agency, Za'Darius Smith and more**\
+`The Lions' general manager also explained the status of third-year players Hendon Hooker and Brodric Martin.`\
+https://nytimes.com/athletic/6244784/2025/03/31/lions-brad-holmes-offseason-moves-free-agency-nfl-2025/
+
 **Man City say Haaland will return this season, will see specialist about ankle injury**\
 `The 24-year-old has only missed one Premier League game so far this season, February's 2-0 loss against Liverpool.`\
 https://nytimes.com/athletic/6242259/2025/03/31/erling-haaland-injury-man-city-leicester/
@@ -21,8 +25,4 @@ https://nytimes.com/athletic/6244722/2025/03/31/aaron-glenn-owners-meetings-comm
 **Chargers' Jim Harbaugh on building the offensive line, potential Keenan Allen reunion**\
 `Harbaugh on Allen, who remains a free agent after playing for the Bears last season: “Oh yeah, anything’s possible. That would be cool.”`\
 https://nytimes.com/athletic/6244771/2025/03/31/jim-harbaugh-chargers-offensive-line-keenan-allen/
-
-**Browns owner Jimmy Haslam: Deshaun Watson trade was 'big swing and a miss'**\
-`"It ends with Dee and I, so hold us accountable," Haslam said during his availability at league meetings. `\
-https://nytimes.com/athletic/6244753/2025/03/31/browns-jimmy-haslam-deshaun-watson-quarterback/
 
