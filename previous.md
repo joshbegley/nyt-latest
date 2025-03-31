@@ -1,3 +1,7 @@
+**Braves' Reynaldo López on IL with right shoulder inflammation**\
+`Despite missing time for a forearm strain and shoulder inflammation after the All-Star break last year, López finished last season healthy.`\
+https://nytimes.com/athletic/6245664/2025/03/31/braves-reynaldo-lopez-shoulder-injury/
+
 **U.S. Tied Migrants to Gang Based Largely on Clothes or Tattoos, Papers Show**\
 `The court papers suggest that the administration has set a low bar for seeking the removal of the Venezuelan migrants, whom officials have described as belonging to the street gang, Tren de Aragua.`\
 https://nytimes.com/2025/03/31/us/politics/us-deportations-tren-de-aragua-deportation-guidance.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/31/business/economy/ustr-report-trade-barriers.html
 **N.Y.C. Cannabis Boss Resigns Amid Sexual Harassment Investigation**\
 `Dasheeda Dawson, who helped people start dispensaries, was accused of trying to pressure a businesswoman into a relationship in exchange for a city contract.`\
 https://nytimes.com/2025/03/31/nyregion/dasheeda-dawson-cannabis-nyc.html
-
-**Rafael Devers’ historically rough start continues, but Red Sox remain patient**\
-`Devers' early-season woes continued in the opener in Baltimore, with three more strikeouts. He now has 15 through the first five games.`\
-https://nytimes.com/athletic/6245403/2025/03/31/rafael-devers-strikeouts-red-sox/
 

@@ -1,3 +1,7 @@
+**Braves' Reynaldo López on IL with right shoulder inflammation**\
+`Despite missing time for a forearm strain and shoulder inflammation after the All-Star break last year, López finished last season healthy.`\
+https://nytimes.com/athletic/6245664/2025/03/31/braves-reynaldo-lopez-shoulder-injury/
+
 **U.S. Tied Migrants to Gang Based Largely on Clothes or Tattoos, Papers Show**\
 `The court papers suggest that the administration has set a low bar for seeking the removal of the Venezuelan migrants, whom officials have described as belonging to the street gang, Tren de Aragua.`\
 https://nytimes.com/2025/03/31/us/politics/us-deportations-tren-de-aragua-deportation-guidance.html
