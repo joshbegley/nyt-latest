@@ -1,4 +1,8 @@
-**NFL reduces TNF flex window to 21 days, announces 'Hard Knocks' renewal**\
+**Trump Administration Moves to Shutter Library Agency**\
+`The staff of the independent Institute of Museum and Library Services, the largest source of federal funding for museums and libraries, were put on leave.`\
+https://nytimes.com/2025/03/31/arts/design/library-agency-trump-museums.html
+
+**NFL reduces 'TNF' flex window to 21 days, announces 'Hard Knocks' renewal**\
 `When the NFL flexes games it can make national matchups more compelling, but it can also impact fans negatively.`\
 https://nytimes.com/athletic/6245018/2025/03/31/nfl-thursday-night-football-flex-hard-knocks/
 
