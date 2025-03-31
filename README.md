@@ -1,3 +1,11 @@
+**Lee Zeldin, E.P.A. Head, Shuts National Environmental Museum**\
+`The exhibits were dedicated to the agency’s history. Mr. Zeldin said closing the collection would save $600,000 annually.`\
+https://nytimes.com/2025/03/31/climate/lzeldin-epa-environmental-museum.html
+
+**GM John Schneider urges fans to trust Seahawks' O-line plan: ‘We feel good’**\
+`Schneider touted the new coaching staff and returning players while noting the Seahawks won't add a veteran O-lineman until after the draft.`\
+https://nytimes.com/athletic/6245354/2025/03/31/seahawks-offensive-line-john-schneider-free-agency/
+
 **In Espionage and War, Secure Communication Is Key. Just Ask These Spies.**\
 `As Americans scrutinize the accidental leak of a high-level U.S. group chat, several books detail other mishaps in the annals of global conflict.`\
 https://nytimes.com/2025/03/31/books/review/military-histories-about-spies-and-intelligence-services.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/31/us/invasive-seeds-scam-china.html
 **U.S. Deports More Detainees to El Salvador, Calling Them ‘Violent Criminals’**\
 `A military plane ferried 17 more people accused of being gang members to a prison in El Salvador. The White House said it was acting under a different legal authority than the one a judge blocked with a temporary order.`\
 https://nytimes.com/2025/03/31/us/politics/trump-deportations-venezuelans-el-salvador.html
-
-**Forest to make late fitness calls on Gibbs-White, Wood for Man Utd clash**\
-`"We will have the morning and the afternoon to assess the players. We will make a decision on them then," Nuno said.`\
-https://nytimes.com/athletic/6244303/2025/03/31/gibbs-white-wood-injury-forest/
-
-**Abbott Delays Calling a Special House Election. Democrats Cry Foul.**\
-`Representative Hakeem Jeffries, the House minority leader, accused Gov. Greg Abbott of Texas of slow-walking a special election to hold the Republicans’ slim majority steady.`\
-https://nytimes.com/2025/03/31/us/texas-house-seat.html
 
