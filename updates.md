@@ -1,3 +1,7 @@
+**Stocks Sink as Trump’s Tariff Threats Weigh on Confidence**\
+`Stocks in Japan tumbled nearly 4 percent as investors braced for a week of market turmoil caused by an expected announcement of more tariffs.`\
+https://nytimes.com/2025/03/30/business/stocks-nikkei-sp500.html
+
 **Sabres thoughts: A big goalie question, Jack Quinn's scoring surge and more**\
 `The 2024-25 Sabres are capable of beating any team in the league and just as capable of losing to any team in the league.`\
 https://nytimes.com/athletic/6243260/2025/03/30/sabres-jack-quinn-goalies-krebs-capitals/
