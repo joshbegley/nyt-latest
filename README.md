@@ -1,3 +1,11 @@
+**Why Morgan Wallen’s Abrupt ‘S.N.L.’ Exit Is Being Dissected**\
+`The pop-country superstar followed his departure from the stage with a social media post about needing to get “to God’s country.”`\
+https://nytimes.com/2025/03/31/arts/television/morgan-wallen-saturday-night-live.html
+
+**Democrats cry foul on a G.O.P. budgeting trick that declares tax cuts free.**\
+`Democratic senators declared the gimmick “a lie to the American people” as their aides made the case that the top rules official in the Senate should bar its use in the Republican budget.`\
+https://nytimes.com/live/2025/03/31/us/trump-tariffs-news/trump-budget-free-tax-cuts
+
 **U.A.E. Sentences Three People to Death for Killing an Israeli Rabbi**\
 `Emirati authorities decided on a punishment for the “premeditated murder with terrorist intention” of Rabbi Zvi Kogan but offered no details about the crime.`\
 https://nytimes.com/2025/03/31/world/middleeast/uae-death-sentence-rabbi-killing.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6245074/2025/03/31/wolves-yerson-mosquera-contract-
 **Brad Holmes on Lions' 2025 offseason moves, free agency, Za'Darius Smith and more**\
 `The Lions' general manager also explained the status of third-year players Hendon Hooker and Brodric Martin.`\
 https://nytimes.com/athletic/6244784/2025/03/31/lions-brad-holmes-offseason-moves-free-agency-nfl-2025/
-
-**Man City say Haaland will return this season, will see specialist about ankle injury**\
-`The 24-year-old has only missed one Premier League game so far this season, February's 2-0 loss against Liverpool.`\
-https://nytimes.com/athletic/6242259/2025/03/31/erling-haaland-injury-man-city-leicester/
-
-**No Toilet Paper and No Privacy: Returning to the Office, Federal Workers Walk Into Chaos**\
-`President Trump has described his new in-office requirement as a way to ensure workers are doing their jobs. He sees potentially leading more employees to quit as an added benefit.`\
-https://nytimes.com/2025/03/31/us/politics/federal-workers-return-to-office.html
 

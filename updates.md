@@ -1,3 +1,11 @@
+**U.A.E. Sentences Three People to Death for Killing an Israeli Rabbi**\
+`Emirati authorities decided on a punishment for the “premeditated murder with terrorist intention” of Rabbi Zvi Kogan but offered no details about the crime.`\
+https://nytimes.com/2025/03/31/world/middleeast/uae-death-sentence-rabbi-killing.html
+
+**Washington's GM has long-term plans for Terry McLaurin: 'He's a great Commander'**\
+`McLaurin topped 1,000 receiving yards for the fifth consecutive season and had over 80 receptions for the second time in his career in 2024.`\
+https://nytimes.com/athletic/6245045/2025/03/31/commanders-terry-mclaurin-contract-extension/
+
 **NFL reduces TNF flex window to 21 days, announces 'Hard Knocks' renewal**\
 `When the NFL flexes games it can make national matchups more compelling, but it can also impact fans negatively.`\
 https://nytimes.com/athletic/6245018/2025/03/31/nfl-thursday-night-football-flex-hard-knocks/
