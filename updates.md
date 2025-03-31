@@ -1,3 +1,15 @@
+**Tariff Gambit Bets Americans Will Swallow Higher Prices**\
+`Treasury Secretary Scott Bessent argues that the American dream is about more than cheap televisions, but inflation-weary consumers might disagree.`\
+https://nytimes.com/2025/03/31/business/trump-tariffs-higher-prices.html
+
+**Lowetide: How Corey Perry remains a key roster player at (almost) 40**\
+`Perry has been money for the Oilers all year in a utility role offensively.`\
+https://nytimes.com/athletic/6242206/2025/03/31/oilers-corey-perry-stats/
+
+**She Wrote Last Summer’s Hit Thriller. Naturally, TV Was Next.**\
+`Suddenly Liz Moore blazed, comet-like, onto small screens and best-seller lists. But her writing career has been a slow burn.`\
+https://nytimes.com/2025/03/31/books/long-bright-river-liz-moore.html
+
 **xG Explained: How data metrics can help you beat the bookmakers**\
 `Brett Koremenos explores the concept of Expected Goals and how to use the metric to get around the bookmakers.
 `\

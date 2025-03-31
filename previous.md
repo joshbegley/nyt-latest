@@ -1,3 +1,15 @@
+**Tariff Gambit Bets Americans Will Swallow Higher Prices**\
+`Treasury Secretary Scott Bessent argues that the American dream is about more than cheap televisions, but inflation-weary consumers might disagree.`\
+https://nytimes.com/2025/03/31/business/trump-tariffs-higher-prices.html
+
+**Lowetide: How Corey Perry remains a key roster player at (almost) 40**\
+`Perry has been money for the Oilers all year in a utility role offensively.`\
+https://nytimes.com/athletic/6242206/2025/03/31/oilers-corey-perry-stats/
+
+**She Wrote Last Summer’s Hit Thriller. Naturally, TV Was Next.**\
+`Suddenly Liz Moore blazed, comet-like, onto small screens and best-seller lists. But her writing career has been a slow burn.`\
+https://nytimes.com/2025/03/31/books/long-bright-river-liz-moore.html
+
 **Colts coach says Anthony Richardson, Daniel Jones will split reps at OTAs**\
 `Colts coach Shane Steichen: "It's gonna come down to who’s the most consistent and who’s the most productive."`\
 https://nytimes.com/athletic/6244187/2025/03/31/colts-anthony-richardson-daniel-jones-quarterback-competition/
@@ -25,17 +37,4 @@ https://nytimes.com/2025/03/31/world/europe/putin-trump-russia-ukraine.html
 **Adams Asks Judge to Speed Up Decision on Dropping Corruption Charges**\
 `The federal government wants the bribery and fraud charges against New York’s mayor to be dropped so he can help President Trump’s deportation program. A judge is considering the matter as the mayoral race heats up.`\
 https://nytimes.com/2025/03/31/nyregion/eric-adams-corruption-charges-judge-ho.html
-
-**Trump Family Pushes Further Into Crypto, Starting Another Venture**\
-`Eric Trump and Donald Trump Jr. are investing in a Bitcoin-mining company called American Bitcoin, created by the merger of two firms.`\
-https://nytimes.com/2025/03/31/business/trump-bitcoin-mining.html
-
-**Spurs' Levy addresses transfers criticism: 'Spending must be sustainable'**\
-`"A closer examination of today’s financial figures reveals that such spending must be sustainable in the long term," Levy said.`\
-https://nytimes.com/athletic/6244158/2025/03/31/tottenham-daniel-levy-transfers/
-
-**xG Explained: How data metrics can help you beat the bookmakers**\
-`Brett Koremenos explores the concept of Expected Goals and how to use the metric to get around the bookmakers.
-`\
-https://nytimes.com/athletic/6244124/2025/03/31/expected-goals-explainer-betting-guide-tips/
 
