@@ -1,3 +1,19 @@
+**Liverpool, Everton and the 'conjoined stadium' that never was**\
+`In 2010, a proposal to build a dual stadium in Stanley Park was put to Merseyside's leading teams. The Athletic speaks to those behind it`\
+https://nytimes.com/athletic/6220985/2025/03/31/everton-liverpool-stadium-joint-design/
+
+**Billy Gilmour on Conte's Napoli, nights out with McTominay and paying tribute to Maradona**\
+`The former Chelsea midfielder thinks playing abroad was always going to suit him, as Napoli chase a second Serie A title in three years`\
+https://nytimes.com/athletic/6232046/2025/03/31/billy-gilmour-napoli-conte-mctominay-scotland/
+
+**The Premier League is back - and it's all about the race for a top-five finish**\
+`Assessing the strengths and weaknesses of the seven teams who are in the fight to finish fourth and fifth this season`\
+https://nytimes.com/athletic/6226328/2025/03/31/premier-league-champions-league-projections/
+
+**The Briefing: Would FA Cup salvage season for Guardiola? Glasner's turnaround; The penalty pros**\
+`Nick Miller answers the big questions to arise from the weekend's action`\
+https://nytimes.com/athletic/6242316/2025/03/31/man-city-forest-fa-cup-palace/
+
 **Rashford at Villa is a process and perseverance is paying off for Emery**\
 `It's premature to say the on-loan Man United forward is back to his best, but his first goals for Villa show he is moving in right direction`\
 https://nytimes.com/athletic/6241953/2025/03/31/marcus-rashford-villa-man-united/
