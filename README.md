@@ -1,6 +1,14 @@
+**Marine Le Pen Found Guilty of Embezzlement by French Court**\
+`The ruling could complicate her plans to run for president in 2027.`\
+https://nytimes.com/2025/03/31/world/europe/france-marine-le-pen-embezzlement-trial.html
+
+**Primark C.E.O. Resigns After ‘Error of Judgment’**\
+`Paul Marchant has left the clothing retailer after “an allegation made by an individual about his behavior,” the company said.`\
+https://nytimes.com/2025/03/31/business/primark-paul-marchant-resigns.html
+
 **Israel Digs In Beyond Its Northern Border**\
 `Israel has built a growing network of outposts and fortifications in Syria and Lebanon, deepening concerns about a protracted occupation in parts of the two countries.`\
-https://nytimes.com/interactive/2025/03/31/world/middleeast/undof-outposts.html
+https://nytimes.com/interactive/2025/03/31/world/middleeast/israel-border-military-outposts-syria-lebanon-border.html
 
 **Nothing Ever Goes Wrong in Trump’s White House**\
 `The problem is that competence and execution matter.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/31/us/wisconsin-supreme-court-trump-musk.html
 **Is It Time to Trade My Rolex for a Smart Watch?**\
 `When it comes to watches, they can tell you more than just the time, our critic says. Find out what yours is saying — whether it’s smart or analog.`\
 https://nytimes.com/2025/03/31/fashion/rolex-smart-watch-apple.html
-
-**People Are Promoting Ivermectin for Cancer. Here’s What to Know.**\
-`Ivermectin, a drug used mainly for deworming horses and other animals, is being promoted on social media for unproven uses, including the treatment of cancer in humans. Dani Blum, a reporter for Well, explains.`\
-https://nytimes.com/video/well/100000010078832/people-are-promoting-ivermectin-for-cancer-heres-what-to-know.html
-
-**As Trump Squeezes the Immigrant Work Force, Employers Seek Relief**\
-`Businesses that rely on immigrants are pushing for legislation to ensure an adequate, legal flow of laborers from abroad as deportations ramp up.`\
-https://nytimes.com/2025/03/31/business/economy/trump-immigrant-workers-visas.html
 
