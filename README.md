@@ -1,3 +1,15 @@
+**Ravens continue to play waiting game with Justin Tucker, plan to follow NFL's lead**\
+`President Sashi Brown said the team wants to have a "great understanding of the facts" before making a decision on Tucker. `\
+https://nytimes.com/athletic/6242600/2025/03/30/ravens-justin-tucker-sashi-brown/
+
+**Phillies takeaways: The lefty starters are coming (again), timing Nola, Strahm's return**\
+`Parker, along with fellow lefty MacKenzie Gore, held the Phillies scoreless over 12 1/3 innings with 18 strikeouts and two walks.`\
+https://nytimes.com/athletic/6243025/2025/03/30/phillies-left-handed-lineup-aaron-nola-matt-strahm/
+
+**FIFA considers playoff between LAFC, Club América for 2025 Club World Cup**\
+`The news follows FIFA’s decision to remove Club Lèon from the tournament, less than three months ahead of its commencement in June. `\
+https://nytimes.com/athletic/6221660/2025/03/30/fifa-playoff-lafc-club-america-2025-club-world-cup/
+
 **Odds say men's college basketball title is Duke's to lose**\
 `Entering the Final Four, it looks like it is Duke vs. everyone else in the national title odds.`\
 https://nytimes.com/athletic/6242322/2025/03/30/march-madness-national-title-odds-duke-florida-houston-auburn/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/30/world/europe/london-quaker-arrests-gaza.html
 **Johni Broome propels Auburn to 2nd Final Four despite injury scare**\
 `No. 1 seed Auburn topped Michigan State 70-64 to earn a Final Four bid behind 25 points from Johni Broome, who briefly left with an injury.`\
 https://nytimes.com/athletic/6242943/2025/03/30/auburn-msu-johni-broome-injury-score/
-
-**Men's Final Four 2025: What to know about the last teams standing**\
-`Just because there's no Cinderella in the Final Four doesn't mean there can't be a storybook ending.`\
-https://nytimes.com/athletic/6242633/2025/03/30/mens-final-four-2025-what-to-know/
-
-**Men's March Madness projections 2025: Who will win in the Final Four?**\
-`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
-https://nytimes.com/athletic/6198047/2025/03/30/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**South Carolina's used to dominating. It's been a narrower path to this Final Four**\
-`South Carolina struggled but found a way to beat Duke for its fifth straight Final Four trip.`\
-https://nytimes.com/athletic/6242924/2025/03/30/south-carolina-final-four-path/
 
