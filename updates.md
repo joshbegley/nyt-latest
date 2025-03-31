@@ -1,3 +1,11 @@
+**A Quarter-Billion Dollars for Defamation: Inside Greenpeace’s Huge Loss**\
+`A pipeline company’s lawsuit against the environmental group could chill free speech, experts said. First Amendment issues are likely to figure prominently in an appeal.`\
+https://nytimes.com/2025/03/31/climate/greenpeace-energy-transfer-dakota-access-defamation-verdict.html
+
+**Ravens understand a Lamar Jackson extension will happen 'sooner or later'**\
+`Jackson and Baltimore agreed to a five-year, $260 million contract extension less than two years ago.`\
+https://nytimes.com/athletic/6244497/2025/03/31/ravens-lamar-jackson-john-harbaugh-contract-extension/
+
 **Estimates Imply That Burden of Tariffs Could Fall Heavily on Consumers**\
 `A White House trade adviser projected that tariffs would raise about $6 trillion over the next decade. But raising so much revenue for the government conflicts with the administration’s goal of reshoring manufacturing.`\
 https://nytimes.com/2025/03/31/us/politics/tariffs-estimates-consumers.html
