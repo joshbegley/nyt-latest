@@ -1,3 +1,19 @@
+**What to Make of These $690 Flip-Flops**\
+`A debate about the Row’s latest rubber sandals.`\
+https://nytimes.com/2025/03/31/style/flip-flops-the-row-the-olsens.html
+
+**What NFL coaches are saying about the 'tush push' as league vote approaches**\
+`24 of the 32 NFL voters need to vote to ban the "tush push" for it to become official.`\
+https://nytimes.com/athletic/6244400/2025/03/31/nfl-tush-push-coach-reactions-league-meetings/
+
+**Hillary Clinton’s Blast at the Trump Administration**\
+`Readers respond to Mrs. Clinton’s sharply worded Opinion guest essay. Also: Autism misinformation; President Trump’s trail of destruction.`\
+https://nytimes.com/2025/03/31/opinion/hillary-clinton-trump.html
+
+**As Lamar Jackson's contract extension looms, Ravens know 'the value is the top'**\
+`Jackson and Baltimore agreed to a five-year, $260 million contract extension less than two years ago.`\
+https://nytimes.com/athletic/6244497/2025/03/31/ravens-lamar-jackson-john-harbaugh-contract-extension/
+
 **A Quarter-Billion Dollars for Defamation: Inside Greenpeace’s Huge Loss**\
 `A pipeline company’s lawsuit against the environmental group could chill free speech, experts said. First Amendment issues are likely to figure prominently in an appeal.`\
 https://nytimes.com/2025/03/31/climate/greenpeace-energy-transfer-dakota-access-defamation-verdict.html
