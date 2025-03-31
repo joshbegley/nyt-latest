@@ -1,3 +1,20 @@
+**Colts coach says Anthony Richardson, Daniel Jones will split reps at OTAs**\
+`Colts coach Shane Steichen: "It's gonna come down to who’s the most consistent and who’s the most productive."`\
+https://nytimes.com/athletic/6244187/2025/03/31/colts-anthony-richardson-daniel-jones-quarterback-competition/
+
+**The Bounce: Explaining the Grizzlies' odd timing behind firing Taylor Jenkins**\
+`The Grizzlies chose a strange time to fire Taylor Jenkins. Zach Harper breaks down why it isn't too surprising. `\
+https://nytimes.com/athletic/6244054/2025/03/31/nba-taylor-jenkins-grizzlies-fired-playoffs-the-bounce/
+
+**Pereira: 'Natural' for Cunha to have title-winning ambitions**\
+`The 25-year-old spoke to the Guardian about his desire to “take the next step” in an interview published over the weekend.`\
+https://nytimes.com/athletic/6244106/2025/03/31/matheus-cunha-wolves-future-transfer/
+
+**xG Explained: How data metrics can help you beat the bookmakers**\
+`Brett Koremenos explores the concept of Expected Goals and how to use the metric to get around the bookmakers.
+`\
+https://nytimes.com/athletic/6244124/2025/03/31/expected-goals-explainer-betting-guide-tips/
+
 **xG Explained: How data metrics can help you beat the bookmakers**\
 `Brett Koremenos explores the concept of Expected Goals and how to use the metric to get around the bookmakers.
 `\
