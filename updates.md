@@ -1,3 +1,7 @@
+**Waiting on Aaron Rodgers: How the Steelers landed in QB limbo, and what comes next**\
+`Coach Mike Tomlin and GM Omar Khan are waiting, just like the rest of us, to see what the four-time NFL MVP decides.`\
+https://nytimes.com/athletic/6245184/2025/03/31/aaron-rodgers-steelers-mike-tomlin-omar-khan/
+
 **3 States Issue Warnings About Unsolicited Packages of Seeds**\
 `Alabama, Texas and New Mexico warned that the seeds, which apparently came from China, could sprout into invasive plants, officials said.`\
 https://nytimes.com/2025/03/31/us/invasive-seeds-scam-china.html
