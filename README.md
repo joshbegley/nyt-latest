@@ -1,3 +1,7 @@
+**Alisson and Gravenberch back in Liverpool training ahead of Merseyside derby**\
+`Alisson suffered a head injury playing for Brazil against Colombia while Gravenberch left the Netherlands' training camp as a precaution.`\
+https://nytimes.com/athletic/6244195/2025/03/31/alisson-ryan-gravenberch-injury-news-liverpool/
+
 **Tariff Gambit Bets Americans Will Swallow Higher Prices**\
 `Treasury Secretary Scott Bessent argues that the American dream is about more than cheap televisions, but inflation-weary consumers might disagree.`\
 https://nytimes.com/2025/03/31/business/trump-tariffs-higher-prices.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/31/us/silver-fire-bishop-california.html
 **Putin Keeps Pushing, With Trump and on the Battlefield**\
 `The Russian leader’s drones are deluging Ukrainian cities, while his negotiating tactics test the patience of the friendliest White House he has faced in decades.`\
 https://nytimes.com/2025/03/31/world/europe/putin-trump-russia-ukraine.html
-
-**Adams Asks Judge to Speed Up Decision on Dropping Corruption Charges**\
-`The federal government wants the bribery and fraud charges against New York’s mayor to be dropped so he can help President Trump’s deportation program. A judge is considering the matter as the mayoral race heats up.`\
-https://nytimes.com/2025/03/31/nyregion/eric-adams-corruption-charges-judge-ho.html
 
