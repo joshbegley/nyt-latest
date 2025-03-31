@@ -1,3 +1,11 @@
+**How Much Does America Spend?**\
+`We explore what federal government spends its money on.`\
+https://nytimes.com/2025/03/31/briefing/us-federal-government-spending-doge.html
+
+**Weekend NHL rankings: The Wild, the Canadiens and the 10 teams we haven't ranked yet**\
+`We track the five best and worst teams all season, but what about the teams that never get a mention at all?`\
+https://nytimes.com/athletic/6242632/2025/03/31/nhl-weekend-rankings-wild-canadiens/
+
 **Indianapolis Colts NFL Draft 2025 guide: Picks, predictions and key needs**\
 `The Colts own the No. 14 pick and seven picks total in the NFL Draft. Will they add a TE in Round 1 or target another need?`\
 https://nytimes.com/athletic/6227667/2025/03/31/indianapolis-colts-2025-nfl-draft-picks-needs-predictions-guide/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6240969/2025/03/31/panthers-nfl-draft-strategy-rost
 **Israel Issues Wide-Ranging Evacuation Order for Southern Gaza**\
 `The order, which came during the Eid al-Fitr holiday, included Rafah and parts of neighboring Khan Younis.`\
 https://nytimes.com/2025/03/31/world/middleeast/gaza-israel-rafah-evacuation-order.html
-
-**Talk of the Devils announces new UK and Ireland tour for 2025**\
-`Talk of the Devils has announced a new slate of tour dates for 2025`\
-https://nytimes.com/athletic/6235043/2025/03/31/talk-of-the-devils-2025-tour-dates-uk-ireland/
-
-**Yankees takeaways: Stellar start about more than ‘torpedo’ bats**\
-`The 3-0 Yankees outscored the Brewers 36-14 to open the season. There's plenty of enthusiasm and many questions still to be answered.`\
-https://nytimes.com/athletic/6242889/2025/03/31/yankees-stellar-start-torpedo-bats/
 

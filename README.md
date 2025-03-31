@@ -1,40 +1,40 @@
-**How Much Does America Spend?**\
-`We explore what federal government spends its money on.`\
-https://nytimes.com/2025/03/31/briefing/us-federal-government-spending-doge.html
+**Tigers' prospect Jackson Jobe honed his pitches in a barn. Now he's starting in the majors**\
+`Jackson Jobe was a teenager when he started pitching lessons with Alex Marney in an Oklahoma barn. Now Jobe and PitchingWRX are taking off.`\
+https://nytimes.com/athletic/6242712/2025/03/31/tigers-jackson-jobe-pitchingwrx-alex-marney/
 
-**Weekend NHL rankings: The Wild, the Canadiens and the 10 teams we haven't ranked yet**\
-`We track the five best and worst teams all season, but what about the teams that never get a mention at all?`\
-https://nytimes.com/athletic/6242632/2025/03/31/nhl-weekend-rankings-wild-canadiens/
+**Las Vegas Raiders NFL Draft 2025 guide: Picks, predictions and key needs**\
+`The Raiders own the No. 6 pick and have nine picks total in the NFL Draft. How will Pete Carroll and John Spytek upgrade the roster?`\
+https://nytimes.com/athletic/6220063/2025/03/31/las-vegas-raiders-2025-nfl-draft-picks-needs-predictions-guide/
 
-**Indianapolis Colts NFL Draft 2025 guide: Picks, predictions and key needs**\
-`The Colts own the No. 14 pick and seven picks total in the NFL Draft. Will they add a TE in Round 1 or target another need?`\
-https://nytimes.com/athletic/6227667/2025/03/31/indianapolis-colts-2025-nfl-draft-picks-needs-predictions-guide/
+**Moon shots and mob movies: Jhonkensy Noel's bid to be Guardians' next big home run hitter**\
+`After a legendary moment in last year's ALCS, Noel is looking to prove he belongs as a reliable hitter in the Guardians' lineup.`\
+https://nytimes.com/athletic/6202566/2025/03/31/jhonkensy-noel-cleveland-guardians-hitter/
 
-**Green Bay Packers NFL Draft 2025 guide: Picks, predictions and key needs**\
-`What you need to know as the Packers head into, and host, the NFL Draft.`\
-https://nytimes.com/athletic/6222142/2025/03/31/green-bay-packers-2025-nfl-draft-picks-needs-predictions-guide/
+**2025 MLB Draft observations: Zach Root a potential first-rounder, Steele Hall has plus speed**\
+`A look at several prospects for the 2025 MLB Draft from recent scouting trips to Florida and Arizona.`\
+https://nytimes.com/athletic/6241048/2025/03/31/mlb-draft-2025-zach-root-steele-hall/
 
-**Dallas Cowboys NFL Draft 2025 guide: Picks, predictions and key needs**\
-`The Cowboys have the 12th overall pick and 10 total selections in the NFL Draft.`\
-https://nytimes.com/athletic/6233115/2025/03/31/dallas-cowboys-2025-nfl-draft-picks-needs-predictions-guide/
+**Chiefs NFL Draft 2025 guide: Picks, predictions and key needs**\
+`The Chiefs own eight picks in the draft, including two third-rounders. Their needs include pass rusher and offensive tackle.`\
+https://nytimes.com/athletic/6230314/2025/03/31/kansas-city-chiefs-2025-nfl-draft-picks-needs-predictions-guide/
 
-**Arsenal's Saka 'ready to go' ahead of return from hamstring injury**\
-`The England international could even feature from the start when Arsenal entertain Fulham on Tuesday night.`\
-https://nytimes.com/athletic/6237996/2025/03/31/bukayo-saka-arsenal-injury-return-update/
+**Fixture list could yet offer Manchester City a route back into Women's Champions League**\
+`City know their rivals for a Champions League place will drop points during the run-in - the question is whether they can capitalise`\
+https://nytimes.com/athletic/6243682/2025/03/31/manchester-city-uwcl/
 
-**Uncertainty Torments Afghan Refugees Facing Deportation from Pakistan**\
-`Monday marks the deadline for Afghans sheltering in Pakistan to leave the country, with the prospect of a dangerous future in Taliban-led Afghanistan ahead.`\
-https://nytimes.com/2025/03/31/world/asia/uncertainty-torments-afghan-refugees-facing-deportation-from-pakistan.html
+**From Liam Lawson's demotion to Frank de Boer's sacking: Sport's most cutthroat decisions**\
+`Liam Lawson joins a long list of athletes and coaches who will think they should have been given more time with their teams`\
+https://nytimes.com/athletic/6238398/2025/03/31/liam-lawson-red-bull-f1-sports-ruthless-decisions/
 
-**The Pulse: Two historic Final Fours**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6243199/2025/03/31/final-four-torpedo-bats-nba-fight-the-pulse/
+**Notre Dame mailbag: How much will Irish offense change? Pressure on Micah Shrewsberry?**\
+`Answering your Notre Dame questions about Mike Denbrock's offense with a new QB, spring football changes, what's next in hoops and more.`\
+https://nytimes.com/athletic/6242357/2025/03/31/notre-dame-offense-starting-qb-denbrock/
 
-**With Tetairoa McMillan set to visit, are Panthers looking to give Bryce Young more help?**\
-`The Panthers leaned heavy on defense in free agency and still have needs on that side, but receiver remains a priority entering the draft.`\
-https://nytimes.com/athletic/6240969/2025/03/31/panthers-nfl-draft-strategy-roster-building/
+**If the NHL playoffs started today: The matchups and what to expect in each series**\
+`As we inch closer and closer to the postseason, it isn't too early to start looking at which teams could square off against one another.`\
+https://nytimes.com/athletic/6240987/2025/03/31/nhl-playoff-matchups-2025/
 
-**Israel Issues Wide-Ranging Evacuation Order for Southern Gaza**\
-`The order, which came during the Eid al-Fitr holiday, included Rafah and parts of neighboring Khan Younis.`\
-https://nytimes.com/2025/03/31/world/middleeast/gaza-israel-rafah-evacuation-order.html
+**Denver Broncos NFL Draft 2025 guide: Picks, predictions and key needs**\
+`What you need to know as the Broncos head into the NFL Draft.`\
+https://nytimes.com/athletic/6222002/2025/03/31/denver-broncos-2025-nfl-draft-picks-needs-predictions-guide/
 
