@@ -1,3 +1,11 @@
+**What We Know About Marine Le Pen’s Embezzlement Conviction**\
+`The far-right French politician was a leading candidate to become the country’s next president, but has now been barred from running for public office for five years.`\
+https://nytimes.com/2025/03/31/world/europe/marine-lepen-embezzlement-france.html
+
+**On a South Carolina Farm, a House Born From a College Promise**\
+`A couple and their architect friend built a family home that celebrates hyperlocal building materials.`\
+https://nytimes.com/2025/03/31/realestate/south-carolina-farm-architecture.html
+
 **Canada sovereignty 'is never on the table', Concacaf president tells Trump**\
 `The full interview features in a special episode of The Athletic FC podcast looking at the impact of politics on the 2026 World Cup`\
 https://nytimes.com/athletic/6243755/2025/03/31/victor-montagliani-canada-trump-world-cup/
@@ -29,8 +37,4 @@ https://nytimes.com/2025/03/31/dining/steak-fries.html
 **Trump’s Science Policies Pose Long-Term Risk, Economists Warn**\
 `Since World War II, U.S. research funding has led to discoveries that fueled economic gains. Now cutbacks are seen as putting that legacy in jeopardy.`\
 https://nytimes.com/2025/03/31/business/economy/trump-research-cutbacks-economy.html
-
-**Eastern U.S. Faces More Rounds of Severe Spring Storms**\
-`Intense storms are expected across the Southeast on Monday. More are forecast for later this week.`\
-https://nytimes.com/2025/03/31/weather/georgia-carolina-storms-forecast.html
 
