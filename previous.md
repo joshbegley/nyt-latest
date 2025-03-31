@@ -1,40 +1,40 @@
-**Stanford firing Frank Reich as interim football coach for 2025: Source**\
-`Stanford general manager Andrew Luck played for Reich with the Colts in 2018.`\
-https://nytimes.com/athletic/6244323/2025/03/31/stanford-hiring-frank-reich-coach/
+**Patirots like Will Campbell at left tackle, want Travis Hunter to focus on one position**\
+`If Travis Hunter and Abdul Carter don't slip to New England at No. 4, the Patriots could fill their hole at left tackle with Campbell.`\
+https://nytimes.com/athletic/6244236/2025/03/31/patriots-2025-draft-will-campbell-travis-hunter/
 
-**Why Does America Have Presidential Term Limits?**\
-`Congress passed the 22nd Amendment in 1947, imposing a two-term limit after more than 170 years of George Washington’s unwritten precedent. President Trump has hinted that he wants a third term anyway.`\
-https://nytimes.com/2025/03/31/us/politics/trump-presidential-term-limits.html
+**The Windup: All about those Yankee torpedo bats**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6243530/2025/03/31/yankees-bats-torpedo-explained-the-windup/
 
-**They Found Love at a Construction Site, Then Were Trapped Beneath It**\
-`The Bangkok building razed by Friday’s quake employed men and women who had found love at work. Despite glimmers of hope, many were still beneath the rubble.`\
-https://nytimes.com/2025/03/31/world/asia/collapsed-bangkok-building-rescue-earthquake.html
+**Sean Payton glad 'not to be in that QB market' as Broncos eye contention in 2025**\
+`The Broncos will add a running back in the upcoming NFL Draft, general manager George Paton said Monday, but will it be their top pick?`\
+https://nytimes.com/athletic/6244050/2025/03/31/broncos-sean-payton-george-paton-nfl-owners-meetings/
 
-**Vermes, Sporting KC part ways ending longest coaching tenure in MLS**\
-`The 58-year-old will also vacate his role as chief soccer officer while Kerry Zavagnin will be Sporting's interim head coach.`\
-https://nytimes.com/athletic/6244294/2025/03/31/peter-vermes-sporting-kc-exit/
+**'We were not mentally focused': Bucks' blowout loss to Hawks features many old problems**\
+`With their scoring in transition and their second-chance points, the Hawks sprinted past the Bucks, who dropped to 40-34 on the season.`\
+https://nytimes.com/athletic/6243330/2025/03/31/bucks-hawks-giannis-antetokounmpo/
 
-**Alisson and Gravenberch back in Liverpool training ahead of Merseyside derby**\
-`Alisson suffered a head injury playing for Brazil against Colombia while Gravenberch left the Netherlands' training camp as a precaution.`\
-https://nytimes.com/athletic/6244195/2025/03/31/alisson-ryan-gravenberch-injury-news-liverpool/
+**Ohio State lands 5-star safety Blaine Bradford from Louisiana**\
+`The Buckeyes grab an elite defensive player who attends high school about 4 miles from Tiger Stadium in Baton Rouge. `\
+https://nytimes.com/athletic/6244317/2025/03/31/ohio-state-recruiting-5-star-blaine-bradford/
 
-**Tariff Gambit Bets Americans Will Swallow Higher Prices**\
-`Treasury Secretary Scott Bessent argues that the American dream is about more than cheap televisions, but inflation-weary consumers might disagree.`\
-https://nytimes.com/2025/03/31/business/trump-tariffs-higher-prices.html
+**Why the Right Still Embraces Ivermectin**\
+`Five years after the pandemic began, interest in the anti-parasitic drug is rising again as right-wing influencers promote it — and spread misinformation about it.`\
+https://nytimes.com/2025/03/31/us/ivermectin-conservatives-influencers.html
 
-**Lowetide: How Corey Perry remains a key roster player at (almost) 40**\
-`Perry has been money for the Oilers all year in a utility role offensively.`\
-https://nytimes.com/athletic/6242206/2025/03/31/oilers-corey-perry-stats/
+**Trump Administration Has Begun a War on Science, Researchers Say**\
+`Nearly 2,000 scientists urged that Congress restore funding to federal agencies decimated by recent cuts.`\
+https://nytimes.com/2025/03/31/science/trump-science-nas-letter.html
 
-**She Wrote Last Summer’s Hit Thriller. Naturally, TV Was Next.**\
-`Suddenly Liz Moore blazed, comet-like, onto small screens and best-seller lists. But her writing career has been a slow burn.`\
-https://nytimes.com/2025/03/31/books/long-bright-river-liz-moore.html
+**This Might Just Be the Springiest Salmon**\
+`The peas are fat and sweet, the radishes are small and peppery. It’s time for this Kay Chun stunner.`\
+https://nytimes.com/2025/03/31/dining/spring-roasted-salmon-recipe.html
 
-**Colts coach says Anthony Richardson, Daniel Jones will split reps at OTAs**\
-`Colts coach Shane Steichen: "It's gonna come down to who’s the most consistent and who’s the most productive."`\
-https://nytimes.com/athletic/6244187/2025/03/31/colts-anthony-richardson-daniel-jones-quarterback-competition/
+**What Ivermectin Can (and Can’t) Do**\
+`Social media posts have promoted the anti-parasitic drug for cancer and Covid. That has doctors alarmed.`\
+https://nytimes.com/2025/03/31/well/ivermectin-cancer-covid.html
 
-**The Bounce: Explaining the Grizzlies' odd timing behind firing Taylor Jenkins**\
-`The Grizzlies chose a strange time to fire Taylor Jenkins. Zach Harper breaks down why it isn't too surprising. `\
-https://nytimes.com/athletic/6244054/2025/03/31/nba-taylor-jenkins-grizzlies-fired-playoffs-the-bounce/
+**Investigating a Sprawling Money Laundering Network**\
+`Two New York Times reporters spent several months learning the intricacies of a wide-reaching web of scammers.`\
+https://nytimes.com/2025/03/31/insider/cambodia-money-laundering-huione.html
 
