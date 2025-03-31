@@ -1,3 +1,7 @@
+**Alisson and Gravenberch back in Liverpool training ahead of Merseyside derby**\
+`Alisson suffered a head injury playing for Brazil against Colombia while Gravenberch left the Netherlands' training camp as a precaution.`\
+https://nytimes.com/athletic/6244195/2025/03/31/alisson-ryan-gravenberch-injury-news-liverpool/
+
 **Tariff Gambit Bets Americans Will Swallow Higher Prices**\
 `Treasury Secretary Scott Bessent argues that the American dream is about more than cheap televisions, but inflation-weary consumers might disagree.`\
 https://nytimes.com/2025/03/31/business/trump-tariffs-higher-prices.html
