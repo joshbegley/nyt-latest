@@ -1,9 +1,25 @@
+**3 States Issue Warnings About Unsolicited Packages of Seeds**\
+`Alabama, Texas and New Mexico warned that the seeds, which apparently came from China, could sprout into invasive plants, officials said.`\
+https://nytimes.com/2025/03/31/us/invasive-seeds-scam-china.html
+
+**U.S. Deports More Detainees to El Salvador, Calling Them ‘Violent Criminals’**\
+`A military plane ferried 17 more people accused of being gang members to a prison in El Salvador. The White House said it was acting under a different legal authority than the one a judge blocked with a temporary order.`\
+https://nytimes.com/2025/03/31/us/politics/trump-deportations-venezuelans-el-salvador.html
+
+**Forest to make late fitness calls on Gibbs-White, Wood for Man Utd clash**\
+`"We will have the morning and the afternoon to assess the players. We will make a decision on them then," Nuno said.`\
+https://nytimes.com/athletic/6244303/2025/03/31/gibbs-white-wood-injury-forest/
+
+**Abbott Delays Calling a Special House Election. Democrats Cry Foul.**\
+`Representative Hakeem Jeffries, the House minority leader, accused Gov. Greg Abbott of Texas of slow-walking a special election to hold the Republicans’ slim majority steady.`\
+https://nytimes.com/2025/03/31/us/texas-house-seat.html
+
 **With more pieces in place, Ejiro Evero gets shot to fix Panthers' defense**\
 `“I’m a huge fan of him,” said Rams GM Les Snead of Ejiro Evero, who spent five seasons in L.A., including the team's Super Bowl season.`\
 https://nytimes.com/athletic/6245185/2025/03/31/panthers-defense-ejiro-evero-free-agency/
 
 **White House May Remake Reporters’ Seating Chart, Escalating Tensions**\
-`The Trump administration is planning another encroachment into the day-to-day arrangements of the journalists that cover it.`\
+`The Trump administration is planning another encroachment into the day-to-day arrangements of the journalists who cover it.`\
 https://nytimes.com/2025/03/31/business/media/trump-briefing-room-seating-chart.html
 
 **Callahan praises Sanders' confidence as Titans close in on No. 1 pick decision**\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6244487/2025/03/31/jimmy-snuggerud-blues-first-day/
 **J.J. McCarthy’s opportunity becoming Vikings' focus after NFL league meetings**\
 `The Vikings brass appeared to want to put the Aaron Rodgers talk behind them at the NFL league meetings Monday in Palm Beach, Fla.`\
 https://nytimes.com/athletic/6245106/2025/03/31/vikings-jj-mccarthy-aaron-rodgers-nfl-meetings/
-
-**Kevin Durant expected to miss multiple games with sprained ankle: Source**\
-`Suns star did not accompany his team to Milwaukee for a Tuesday game against the Bucks, which kicks off a three-game road trip.`\
-https://nytimes.com/athletic/6244644/2025/03/31/kevin-durant-out-sprained-ankle/
-
-**Eating ‘Family Style’ May Have Set the Stage for Life as We Know It**\
-`Under microscopes, scientists found that giant single-cell organisms were able to vacuum up more food when they are stuck together.`\
-https://nytimes.com/2025/03/31/science/stentors-cells-evolution-physics.html
-
-**Tuesday Briefing: A Shock Ruling in France**\
-`Plus, lessons on happiness from Finland.`\
-https://nytimes.com/2025/03/31/briefing/le-pen-guilty-markets-tariffs-myanmar-earthquake-aid.html
-
-**Watch Live: President Trump Signs Executive Orders**\
-`President Donald Trump signs executive orders at the White House.`\
-https://nytimes.com/video/us/politics/100000010083009/watch-live-president-trump-signs-executive-orders.html
 

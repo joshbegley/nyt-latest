@@ -1,3 +1,7 @@
+**Waiting on Aaron Rodgers: How the Steelers landed in QB limbo, and what comes next**\
+`Coach Mike Tomlin and GM Omar Khan are waiting, just like the rest of us, to see what the four-time NFL MVP decides.`\
+https://nytimes.com/athletic/6245184/2025/03/31/aaron-rodgers-steelers-mike-tomlin-omar-khan/
+
 **3 States Issue Warnings About Unsolicited Packages of Seeds**\
 `Alabama, Texas and New Mexico warned that the seeds, which apparently came from China, could sprout into invasive plants, officials said.`\
 https://nytimes.com/2025/03/31/us/invasive-seeds-scam-china.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6245134/2025/03/31/new-york-giants-nfl-draft-russel
 **A ride from the captain, a new number and a starting job: Jimmy Snuggerud's first day with the Blues**\
 `Jimmy Snuggerud, the Blues' first-round pick in 2022, had his first practice with the team after signing a contract Friday.`\
 https://nytimes.com/athletic/6244487/2025/03/31/jimmy-snuggerud-blues-first-day/
-
-**J.J. McCarthy’s opportunity becoming Vikings' focus after NFL league meetings**\
-`The Vikings brass appeared to want to put the Aaron Rodgers talk behind them at the NFL league meetings Monday in Palm Beach, Fla.`\
-https://nytimes.com/athletic/6245106/2025/03/31/vikings-jj-mccarthy-aaron-rodgers-nfl-meetings/
 
