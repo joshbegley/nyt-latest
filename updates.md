@@ -1,3 +1,11 @@
+**Sabres thoughts: A big goalie question, Jack Quinn's scoring surge and more**\
+`The 2024-25 Sabres are capable of beating any team in the league and just as capable of losing to any team in the league.`\
+https://nytimes.com/athletic/6243260/2025/03/30/sabres-jack-quinn-goalies-krebs-capitals/
+
+**Amid athletic lore in Pauley Pavilion, UCLA women's basketball finally has a legacy to add**\
+`After 14 seasons, coach Cori Close has led the Bruins to new heights with their first Final Four bid.`\
+https://nytimes.com/athletic/6243271/2025/03/30/ucla-womens-basketball-final-four/
+
 **Amid athletic lore in Pauley Pavilion, UCLA women's basketball finally has a legacy to add**\
 `After 14 seasons, coach Cori Close has led the Bruins to new heights with its first Final Four bid.`\
 https://nytimes.com/athletic/6243271/2025/03/30/ucla-womens-basketball-final-four/
