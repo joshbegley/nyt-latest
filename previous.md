@@ -1,4 +1,4 @@
-**FPL: Everything you need to know as the game returns with Gameweek 30**\
+**FPL: Everything you need to know ahead of Gameweek 30**\
 `FPL is back after a break of more than two weeks. Holly Shand brings you back up to speed ahead of Tuesday's Gameweek 30 deadline`\
 https://nytimes.com/athletic/6231871/2025/03/31/fantasy-premier-league-gameweek-30-preview-wildcard-strategy/
 
