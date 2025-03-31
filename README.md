@@ -1,3 +1,7 @@
+**A ride from the captain, a new number and a starting job: Jimmy Snuggerud's first day with the Blues**\
+`Jimmy Snuggerud, the Blues' first-round pick in 2022, had his first practice with the team after signing a contract Friday.`\
+https://nytimes.com/athletic/6244487/2025/03/31/jimmy-snuggerud-blues-first-day/
+
 **J.J. McCarthy’s opportunity becoming Vikings' focus after NFL league meetings**\
 `The Vikings brass appeared to want to put the Aaron Rodgers talk behind them at the NFL league meetings Monday in Palm Beach, Fla.`\
 https://nytimes.com/athletic/6245106/2025/03/31/vikings-jj-mccarthy-aaron-rodgers-nfl-meetings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6244797/2025/03/31/sean-mcdermott-bills-tush-push-j
 **2 N.Y.P.D. Officers Are Charged With Burglary and Groping**\
 `The officers stole money from a prostitute and groped her while on patrol duty in Queens, prosecutors said.`\
 https://nytimes.com/2025/03/31/nyregion/nypd-charges-burglary-groping.html
-
-**Jim Jarmusch, New York Fixture, Showed His Art in Los Angeles. His Fans Showed Up.**\
-`Angelenos flocked to meet the artist and filmmaker, who came to the West Coast for the opening of his solo exhibition “Some More Collages.”`\
-https://nytimes.com/2025/03/31/style/jim-jarmusch-some-more-collages-exhibit-la.html
 
