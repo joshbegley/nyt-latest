@@ -1,3 +1,15 @@
+**Uncertainty Torments Afghan Refugees Facing Deportation from Pakistan**\
+`Monday marks the deadline for Afghans sheltering in Pakistan to leave the country, with the prospect of a dangerous future in Taliban-led Afghanistan ahead.`\
+https://nytimes.com/2025/03/31/world/asia/uncertainty-torments-afghan-refugees-facing-deportation-from-pakistan.html
+
+**The Pulse: Two historic Final Fours**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6243199/2025/03/31/final-four-torpedo-bats-nba-fight-the-pulse/
+
+**With Tetairoa McMillan set to visit, are Panthers looking to give Bryce Young more help?**\
+`The Panthers leaned heavy on defense in free agency and still have needs on that side, but receiver remains a priority entering the draft.`\
+https://nytimes.com/athletic/6240969/2025/03/31/panthers-nfl-draft-strategy-roster-building/
+
 **Israel Issues Wide-Ranging Evacuation Order for Southern Gaza**\
 `The order, which came during the Eid al-Fitr holiday, included Rafah and parts of neighboring Khan Younis.`\
 https://nytimes.com/2025/03/31/world/middleeast/gaza-israel-rafah-evacuation-order.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6221447/2025/03/31/minnesota-vikings-2025-nfl-draft
 **How to watch No. 1 USC vs. No. 2 UConn in battle for a Final Four berth**\
 `Paige Bueckers just put together one of the coolest March Madness performances ever. She tries to take UConn to the Final Four on Monday.`\
 https://nytimes.com/athletic/6241986/2025/03/31/usc-uconn-womens-ncaa-tournament-elite-eight-how-to-watch/
-
-**Cincinnati Bengals NFL Draft 2025 guide: Picks, predictions and key needs**\
-`What you need to know as the Bengals head into the 2025 NFL Draft.`\
-https://nytimes.com/athletic/6221505/2025/03/31/cincinnati-bengals-2025-nfl-draft-picks-needs-predictions-guide/
-
-**Players around MLB intrigued after Yankees’ power surge with new ‘torpedo’ bats**\
-`"I think it’s an amazing discovery," said Angels outfielder Taylor Ward, one of many players suddenly interested in the new bats. `\
-https://nytimes.com/athletic/6243085/2025/03/31/mlb-torpedo-bats-players-intrigued/
-
-**As Athletics begin their Sacramento residency, a city tentatively opens its arms**\
-`The A's three-year stopover in Sacramento on their way to Las Vegas is unusual in the extreme, and that has meant some uncertain moments.`\
-https://nytimes.com/athletic/6243315/2025/03/31/sacramento-athletics-oakland-mlb-kings/
 

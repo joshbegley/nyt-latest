@@ -1,3 +1,7 @@
+**Israel Issues Wide-Ranging Evacuation Order for Southern Gaza**\
+`The order, which came during the Eid al-Fitr holiday, included Rafah and parts of neighboring Khan Younis.`\
+https://nytimes.com/2025/03/31/world/middleeast/gaza-israel-rafah-evacuation-order.html
+
 **Talk of the Devils announces new UK and Ireland tour for 2025**\
 `Talk of the Devils has announced a new slate of tour dates for 2025`\
 https://nytimes.com/athletic/6235043/2025/03/31/talk-of-the-devils-2025-tour-dates-uk-ireland/
