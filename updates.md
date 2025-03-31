@@ -1,3 +1,11 @@
+**In Espionage and War, Secure Communication Is Key. Just Ask These Spies.**\
+`As Americans scrutinize the accidental leak of a high-level U.S. group chat, several books detail other mishaps in the annals of global conflict.`\
+https://nytimes.com/2025/03/31/books/review/military-histories-about-spies-and-intelligence-services.html
+
+**Trump Cannot Win His War on History**\
+`The assumption that there is a standard, agreed-upon truth about the country’s past is a fantasy; but when declared by a sitting president, it becomes a provocation.`\
+https://nytimes.com/2025/03/31/opinion/trump-war-history.html
+
 **Trump’s Advisers Battle Over Tariff Goals**\
 `Also, France’s far-right leader was barred from running for office. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/03/31/briefing/trump-tariffs-france-far-right-leader-guilty.html
