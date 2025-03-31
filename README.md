@@ -1,3 +1,11 @@
+**U.A.E. Sentences Three People to Death for Killing an Israeli Rabbi**\
+`Emirati authorities decided on a punishment for the “premeditated murder with terrorist intention” of Rabbi Zvi Kogan but offered no details about the crime.`\
+https://nytimes.com/2025/03/31/world/middleeast/uae-death-sentence-rabbi-killing.html
+
+**Washington's GM has long-term plans for Terry McLaurin: 'He's a great Commander'**\
+`McLaurin topped 1,000 receiving yards for the fifth consecutive season and had over 80 receptions for the second time in his career in 2024.`\
+https://nytimes.com/athletic/6245045/2025/03/31/commanders-terry-mclaurin-contract-extension/
+
 **Trump Administration Moves to Shutter Library Agency**\
 `The staff of the independent Institute of Museum and Library Services, the largest source of federal funding for museums and libraries, were put on leave.`\
 https://nytimes.com/2025/03/31/arts/design/library-agency-trump-museums.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6242259/2025/03/31/erling-haaland-injury-man-city-l
 **No Toilet Paper and No Privacy: Returning to the Office, Federal Workers Walk Into Chaos**\
 `President Trump has described his new in-office requirement as a way to ensure workers are doing their jobs. He sees potentially leading more employees to quit as an added benefit.`\
 https://nytimes.com/2025/03/31/us/politics/federal-workers-return-to-office.html
-
-**Gabe Perreault to join Rangers after BC's exit from NCAA Tournament**\
-`The 2023 first-round pick could make his NHL debut Wednesday against the Wild if coach Peter Laviolette puts him in the lineup.`\
-https://nytimes.com/athletic/6236293/2025/03/31/gabe-perreault-rangers-ncaa-tournament/
-
-**Delayed White House visit for 2019 Chiefs in the works after Trump invitation**\
-`The Chiefs didn't get to celebrate their Super Bowl LIV victory at the White House because of the COVID-19 pandemic.`\
-https://nytimes.com/athletic/6244649/2025/03/31/chiefs-super-bowl-trump-white-house-visit/
 
