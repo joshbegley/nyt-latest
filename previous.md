@@ -1,3 +1,15 @@
+**Critics of U.S. Attorney in Washington Push for Confirmation Hearing**\
+`Congressional aides of both parties believe that the nominee for U.S. attorney, Ed Martin, appears to have a solid chance of squeaking through on a party-line vote.`\
+https://nytimes.com/2025/03/31/us/politics/trump-ed-martin-dc-prosecutor.html
+
+**Taking Aim at Smithsonian, Trump Wades Into Race and Biology**\
+`His executive order faulted an exhibit which “promotes the view that race is not a biological reality but a social construct,” a widely held position in the scientific community.`\
+https://nytimes.com/2025/03/31/arts/design/trump-smithsonian-race.html
+
+**The Strategy Behind Trump’s Repeated Musings About a Third Term**\
+`The president’s comments deflect attention from other controversies. And they freeze the field of potential successors who might steal the spotlight from a lame duck.`\
+https://nytimes.com/2025/03/31/us/politics/trump-third-term.html
+
 **NASA Astronauts Say They Would Fly on Boeing’s Starliner Again**\
 `Butch Wilmore and Suni Williams were brought back to Earth in a SpaceX capsule after problems with Boeing’s Starliner delayed their return by about nine months.`\
 https://nytimes.com/video/science/100000010084035/nasa-astronauts-boeing-spacex.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6245354/2025/03/31/seahawks-offensive-line-john-sch
 **In Espionage and War, Secure Communication Is Key. Just Ask These Spies.**\
 `As Americans scrutinize the accidental leak of a high-level U.S. group chat, several books detail other mishaps in the annals of global conflict.`\
 https://nytimes.com/2025/03/31/books/review/military-histories-about-spies-and-intelligence-services.html
-
-**Trump Cannot Win His War on History**\
-`The assumption that there is a standard, agreed-upon truth about the country’s past is a fantasy; but when declared by a sitting president, it becomes a provocation.`\
-https://nytimes.com/2025/03/31/opinion/trump-war-history.html
-
-**Trump’s Advisers Battle Over Tariff Goals**\
-`Also, France’s far-right leader was barred from running for office. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2025/03/31/briefing/trump-tariffs-france-far-right-leader-guilty.html
-
-**Palestinians Flee Southern Gaza Amid New Evacuation Order**\
-`Gazans were seen fleeing Rafah on Monday after the Israeli military issued a wide evacuation order for the southern Gaza Strip.`\
-https://nytimes.com/video/world/middleeast/100000010083339/rafah-gaza-evacuation.html
 

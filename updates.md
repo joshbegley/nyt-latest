@@ -1,3 +1,15 @@
+**Critics of U.S. Attorney in Washington Push for Confirmation Hearing**\
+`Congressional aides of both parties believe that the nominee for U.S. attorney, Ed Martin, appears to have a solid chance of squeaking through on a party-line vote.`\
+https://nytimes.com/2025/03/31/us/politics/trump-ed-martin-dc-prosecutor.html
+
+**Taking Aim at Smithsonian, Trump Wades Into Race and Biology**\
+`His executive order faulted an exhibit which “promotes the view that race is not a biological reality but a social construct,” a widely held position in the scientific community.`\
+https://nytimes.com/2025/03/31/arts/design/trump-smithsonian-race.html
+
+**The Strategy Behind Trump’s Repeated Musings About a Third Term**\
+`The president’s comments deflect attention from other controversies. And they freeze the field of potential successors who might steal the spotlight from a lame duck.`\
+https://nytimes.com/2025/03/31/us/politics/trump-third-term.html
+
 **Musk Visits C.I.A. to Discuss Downsizing Efforts**\
 `A federal judge ordered the agency to reconsider its firings of employees who had been assigned to diversity recruiting.`\
 https://nytimes.com/2025/03/31/us/politics/elon-musk-cia-doge.html
