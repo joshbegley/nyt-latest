@@ -1,3 +1,7 @@
+**FPL: Everything you need to know as the game returns with Gameweek 30**\
+`FPL is back after a break of more than two weeks. Holly Shand brings you back up to speed ahead of Tuesday's Gameweek 30 deadline`\
+https://nytimes.com/athletic/6231871/2025/03/31/fantasy-premier-league-gameweek-30-preview-wildcard-strategy/
+
 **The Athletic FC: Arsenal and Berta eye Gyokeres, Mbappe matches Ronaldo record**\
 `Today in TAFC: Arsenal's sporting director is interested in Gyokeres, a potential Club World Cup play-off, and Newcastle fans take over town`\
 https://nytimes.com/athletic/6243815/2025/03/31/arsenal-gyokeres-mbappe-ronaldo-record-real-madrid/
