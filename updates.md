@@ -1,3 +1,7 @@
+**Why has Wolves' academy not produced another Morgan Gibbs-White?**\
+`As part of our Inspired by You series, subscribers asked us to find out what's going on with the club's academy - so we did`\
+https://nytimes.com/athletic/6239125/2025/03/31/wolves-academy-inspired-by-you/
+
 **‘Dying for Sex,’ Plus 7 Things to Watch on TV this Week**\
 `The Hulu show starring Michelle Williams premieres, and the third season of “White Lotus” wraps up.`\
 https://nytimes.com/2025/03/31/arts/television/dying-for-sex.html

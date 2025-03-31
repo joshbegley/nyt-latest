@@ -26,7 +26,7 @@ https://nytimes.com/athletic/6238137/2025/03/31/barcelona-alejandro-balde-rise/
 `A breakdown of each of this season's outcomes and what it's likely to prompt this summer`\
 https://nytimes.com/athletic/6234858/2025/03/31/newcastle-europe-impact/
 
-**Why has another Gibbs-White not come out of Wolves' academy?**\
+**Why has Wolves' academy not produced another Morgan Gibbs-White?**\
 `As part of our Inspired by You series, subscribers asked us to find out what's going on with the club's academy - so we did`\
 https://nytimes.com/athletic/6239125/2025/03/31/wolves-academy-inspired-by-you/
 
