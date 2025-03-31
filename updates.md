@@ -1,3 +1,7 @@
+**College baseball week in review: SEC powers flexing their muscles**\
+`A coaching giant announces his retirement. A transfer terrorizes is former team. Virginia shows signs of life. `\
+https://nytimes.com/athletic/6242933/2025/03/31/college-baseball-sec-tennessee-georgia-texas-arkansas/
+
 **Trump Administration Live Updates: President Says He’s ‘Not Joking’ About a Possible Third Term**\
 ``\
 https://nytimes.com/live/2025/03/31/us/trump-news

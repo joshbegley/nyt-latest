@@ -1,3 +1,7 @@
+**College baseball week in review: SEC powers flexing their muscles**\
+`A coaching giant announces his retirement. A transfer terrorizes is former team. Virginia shows signs of life. `\
+https://nytimes.com/athletic/6242933/2025/03/31/college-baseball-sec-tennessee-georgia-texas-arkansas/
+
 **Trump Administration Live Updates: President Says He’s ‘Not Joking’ About a Possible Third Term**\
 ``\
 https://nytimes.com/live/2025/03/31/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6243441/2025/03/31/maple-leafs-playoffs-lineup-star
 **Red Wings mailbag: Is there a silver lining to this season? Plus draft, free-agent targets**\
 `Also in the mailbag : Replacing Patrick Kane, and what's going on with Dylan Larkin and Lucas Raymond?`\
 https://nytimes.com/athletic/6240963/2025/03/31/red-wings-draft-free-agent-targets/
-
-**What stands out so far in Alabama's spring practice?**\
-`After only two practices last week, here’s what we saw, heard and learned with the A-Day game set for April 12.`\
-https://nytimes.com/athletic/6242941/2025/03/31/alabama-football-spring-practice-storylines/
 
