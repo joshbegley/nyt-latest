@@ -1,3 +1,15 @@
+**Jakob Ingebrigtsen's father: 'Kicking one of my children is absolutely unthinkable'**\
+`The 59-year-old Gjert Ingebrigtsen denies charges of abuse against two of his seven children.`\
+https://nytimes.com/athletic/6244505/2025/03/31/gjert-ingebrigtsen-trial-jakob/
+
+**49ers' John Lynch still optimistic to get Brock Purdy extension finalized soon**\
+`Lynch left open the possibility an extension wouldn't happen this offseason but added, "I think we're gonna get the deal done."`\
+https://nytimes.com/athletic/6244779/2025/03/31/brock-purdy-49ers-extension-john-lynch-optimistic/
+
+**Woody Johnson calls NFLPA team report cards 'bogus'**\
+`At the owners' meetings, Johnson also addressed a report about buyout offers for Jets employees.`\
+https://nytimes.com/athletic/6244684/2025/03/31/woody-johnson-new-york-jets-nflpa-team-report-cards/
+
 **Will Jaire Alexander play for the Packers again? GM Brian Gutekunst on that and more**\
 `Gutekunst confirmed that two-time All-Pro left guard Elgton Jenkins is moving to center with the free-agency addition of Aaron Banks.`\
 https://nytimes.com/athletic/6244666/2025/03/31/packers-brian-gutekunst-nfl-owners-meetings/
@@ -9,12 +21,4 @@ https://nytimes.com/2025/03/31/world/europe/prince-harry-charity-dispute-harassm
 **How Ben Johnson's play calling helped shape his path to Bears head coach**\
 `Johnson discussed how he evolved as the play caller that led the NFL's top-scoring offense and then became Bears head coach.`\
 https://nytimes.com/athletic/6244643/2025/03/31/bears-ben-johnson-play-calling/
-
-**Brazil want Ancelotti or Jesus as head coach before Club World Cup**\
-`Ancelotti's Real Madrid contract runs until next summer while Jesus' deal at Al Hilal expires at the end of the 2024-25 season.`\
-https://nytimes.com/athletic/6244374/2025/03/31/brazil-manager-next-ancelotti-jesus/
-
-**The Loosening of American News Anchors**\
-`Don Lemon, Joy Reid and Jim Acosta, exiled or extricated from their networks, are now on Substack, trading sleek studios and “pancake makeup” for their living rooms.`\
-https://nytimes.com/2025/03/31/business/media/tv-news-anchors-substack.html
 
