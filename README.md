@@ -1,3 +1,19 @@
+**J.J. McCarthy’s opportunity becoming Vikings' focus after NFL league meetings**\
+`The Vikings brass appeared to want to put the Aaron Rodgers talk behind them at the NFL league meetings Monday in Palm Beach, Fla.`\
+https://nytimes.com/athletic/6245106/2025/03/31/vikings-jj-mccarthy-aaron-rodgers-nfl-meetings/
+
+**Kevin Durant expected to miss multiple games with sprained ankle: Source**\
+`Suns star did not accompany his team to Milwaukee for a Tuesday game against the Bucks, which kicks off a three-game road trip.`\
+https://nytimes.com/athletic/6244644/2025/03/31/kevin-durant-out-sprained-ankle/
+
+**Eating ‘Family Style’ May Have Set the Stage for Life as We Know It**\
+`Under microscopes, scientists found that giant single-cell organisms were able to vacuum up more food when they are stuck together.`\
+https://nytimes.com/2025/03/31/science/stentors-cells-evolution-physics.html
+
+**Tuesday Briefing: A Shock Ruling in France**\
+`Plus, lessons on happiness from Finland.`\
+https://nytimes.com/2025/03/31/briefing/le-pen-guilty-markets-tariffs-myanmar-earthquake-aid.html
+
 **Watch Live: President Trump Signs Executive Orders**\
 `President Donald Trump signs executive orders at the White House.`\
 https://nytimes.com/video/us/politics/100000010083009/watch-live-president-trump-signs-executive-orders.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/31/nyregion/nypd-charges-burglary-groping.html
 **Jim Jarmusch, New York Fixture, Showed His Art in Los Angeles. His Fans Showed Up.**\
 `Angelenos flocked to meet the artist and filmmaker, who came to the West Coast for the opening of his solo exhibition “Some More Collages.”`\
 https://nytimes.com/2025/03/31/style/jim-jarmusch-some-more-collages-exhibit-la.html
-
-**Hank Steinbrecher, Who Helped Elevate Soccer in the U.S., Dies at 77**\
-`He was also a key figure in raising American soccer’s profile on the world stage. Earlier, as a marketer, he saw opportunities in the football ritual of dousing coaches with Gatorade.`\
-https://nytimes.com/2025/03/31/sports/soccer/hank-steinbrecher-dead.html
-
-**Why Morgan Wallen’s Abrupt ‘S.N.L.’ Exit Is Being Dissected**\
-`The pop-country superstar followed his departure from the stage with a social media post about needing to get “to God’s country.”`\
-https://nytimes.com/2025/03/31/arts/television/morgan-wallen-saturday-night-live.html
-
-**Democrats cry foul on a G.O.P. budgeting trick that declares tax cuts free.**\
-`Democratic senators declared the gimmick “a lie to the American people” as their aides made the case that the top rules official in the Senate should bar its use in the Republican budget.`\
-https://nytimes.com/live/2025/03/31/us/trump-tariffs-news/trump-budget-free-tax-cuts
-
-**U.A.E. Sentences Three People to Death for Killing an Israeli Rabbi**\
-`Emirati authorities decided on a punishment for the “premeditated murder with terrorist intention” of Rabbi Zvi Kogan but offered no details about the crime.`\
-https://nytimes.com/2025/03/31/world/middleeast/uae-death-sentence-rabbi-killing.html
 

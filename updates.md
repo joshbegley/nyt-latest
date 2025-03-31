@@ -1,3 +1,7 @@
+**Watch Live: President Trump Signs Executive Orders**\
+`President Donald Trump signs executive orders at the White House.`\
+https://nytimes.com/video/us/politics/100000010083009/watch-live-president-trump-signs-executive-orders.html
+
 **How to watch Braves at Dodgers as Atlanta takes on Shohei Ohtani, Dodgers' bats**\
 `The Braves and Dodgers have a potential NLCS preview in LA, with a three-game series that starts Monday and ends Wednesday.`\
 https://nytimes.com/athletic/6244823/2025/03/31/braves-dodgers-ohtani-olson-how-to-watch/
