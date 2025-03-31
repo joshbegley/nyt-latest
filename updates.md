@@ -1,3 +1,7 @@
+**Phillies takeaways: The lefty starters are coming (again), timing Nola, Strahm's return**\
+`Mitchell Parker, along with fellow lefty MacKenzie Gore, held the Phillies scoreless over 12 1/3 innings with 18 strikeouts and two walks.`\
+https://nytimes.com/athletic/6243025/2025/03/30/phillies-scores-results-standings/
+
 **Kenny Atkinson's pregame water bottle toss outburst spurs Cavaliers to 60th win**\
 `After their coach fired them up, the Cavs had their best performance in quite a while, a 127-122 win over the Clippers.`\
 https://nytimes.com/athletic/6243060/2025/03/30/kenny-atkinson-outburst-cavaliers-win-60/
