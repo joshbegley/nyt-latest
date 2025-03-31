@@ -1,3 +1,11 @@
+**Lithuania Recovers Vehicle That Carried 4 Missing U.S. Soldiers**\
+`The U.S. Army vehicle disappeared in a waterlogged area on Tuesday, setting off nearly a week of frantic recovery efforts.`\
+https://nytimes.com/2025/03/31/world/europe/lithuania-us-army-soldiers-swamp.html
+
+**Kerr to face no further action from Football Australia amid captaincy doubts**\
+`The Chelsea striker was found not guilty of racially aggravated harassment of a police officer following a seven-day trial in February.`\
+https://nytimes.com/athletic/6243687/2025/03/31/sam-kerr-australia-court-case/
+
 **Arsenal and Tottenham announce first north London derby outside of UK**\
 `The July 31 fixture is part of the Hong Kong Football Festival (HKFF) and will be held at the 50,000 seater Kai Tak Stadium.`\
 https://nytimes.com/athletic/6243690/2025/03/31/arsenal-tottenham-hong-kong-north-london-derby/
