@@ -1,3 +1,7 @@
+**New Columbia President Attacked by Stefanik Over 2023 Text Message**\
+`Elise Stefanik, a prominent Republican, questioned Claire Shipman’s commitment to protecting Jewish students. Ms. Shipman pledged “to build on the significant progress we’ve made.”`\
+https://nytimes.com/2025/03/31/nyregion/columbia-president-republican-criticism.html
+
 **Braves' Reynaldo López on IL with right shoulder inflammation**\
 `Despite missing time for a forearm strain and shoulder inflammation after the All-Star break last year, López finished last season healthy.`\
 https://nytimes.com/athletic/6245664/2025/03/31/braves-reynaldo-lopez-shoulder-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6245520/2025/03/31/twins-early-struggles-white-sox-
 **Trump Administration Tallies Trade Barriers That Could Prompt Tariffs**\
 `The Office of the United States Trade Representative released a report Monday highlighting foreign trade barriers that could influence tariffs the president puts into effect this week.`\
 https://nytimes.com/2025/03/31/business/economy/ustr-report-trade-barriers.html
-
-**N.Y.C. Cannabis Boss Resigns Amid Sexual Harassment Investigation**\
-`Dasheeda Dawson, who helped people start dispensaries, was accused of trying to pressure a businesswoman into a relationship in exchange for a city contract.`\
-https://nytimes.com/2025/03/31/nyregion/dasheeda-dawson-cannabis-nyc.html
 
