@@ -1,3 +1,11 @@
+**Wild brawl in Pistons-Timberwolves ends in 7 ejections**\
+`There are scuffles in games, and then there are fights. This was a fight.`\
+https://nytimes.com/athletic/6243058/2025/03/30/pistons-timberwolves-game-brawl-ejections/
+
+**Will Flau'jae Johnson head to the WNBA? Or will championship goals bring her back to LSU?**\
+`“I want to be in the Final Four. I want my own one. Where I lead the team." `\
+https://nytimes.com/athletic/6243139/2025/03/30/lsu-flaujae-johnson-wnba-elite-eight/
+
 **Blackhawks' rebuild reaches promising point as 6 first-rounders take the ice together**\
 `GM Kyle Davidson's vision for the Blackhawks' future is getting closer every day.`\
 https://nytimes.com/athletic/6242358/2025/03/30/blackhawks-first-rounders-rinzel-moore-rebuild/
@@ -7,7 +15,7 @@ https://nytimes.com/athletic/6242358/2025/03/30/blackhawks-first-rounders-rinzel
 https://nytimes.com/athletic/6242600/2025/03/30/ravens-justin-tucker-sashi-brown/
 
 **Phillies takeaways: The lefty starters are coming (again), timing Nola, Strahm's return**\
-`Parker, along with fellow lefty MacKenzie Gore, held the Phillies scoreless over 12 1/3 innings with 18 strikeouts and two walks.`\
+`Mitchell Parker, along with fellow lefty MacKenzie Gore, held the Phillies scoreless over 12 1/3 innings with 18 strikeouts and two walks.`\
 https://nytimes.com/athletic/6243025/2025/03/30/phillies-left-handed-lineup-aaron-nola-matt-strahm/
 
 **FIFA considers playoff between LAFC, Club América for 2025 Club World Cup**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/30/podcasts/museum-of-now-this-american-life-nyt-aud
 **Maxim Naumov’s late parents are with him on the ice, now and forever**\
 `The 23-year-old skater delivered a flawless exhibition of love at the “Exhibition of Champions” and ended it with a message to his parents.`\
 https://nytimes.com/athletic/6242773/2025/03/30/world-figure-skating-championships-maxim-naumov/
-
-**Twins takeaways: Déjà vu for Bailey Ober, prospect watching in St. Paul, franchise values**\
-`Swept by the Cardinals in St. Louis, the Twins have started a season 0-3 for the first time since 2016.`\
-https://nytimes.com/athletic/6241564/2025/03/30/twins-opening-series-prospects-takeaways/
-
-**London Police Arrest Gaza Protest Planners at Quaker House**\
-`Quakers in Britain said the raid, in which six youth activists unaffiliated with the religious group were arrested, “clearly shows what happens when a society criminalizes protest.”`\
-https://nytimes.com/2025/03/30/world/europe/london-quaker-arrests-gaza.html
 
