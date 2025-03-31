@@ -1,3 +1,11 @@
+**U.S. Tied Migrants to Gang Based Largely on Clothes or Tattoos, Papers Show**\
+`The court papers suggest that the administration has set a low bar for seeking the removal of the Venezuelan migrants, whom officials have described as belonging to the street gang, Tren de Aragua.`\
+https://nytimes.com/2025/03/31/us/politics/us-deportations-tren-de-aragua-deportation-guidance.html
+
+**Minnesota Student Detained by ICE Was Not an Activist, Lawsuit Says**\
+`Lawyers and experts say the arrest last week of a University of Minnesota graduate student may signal a new front in the Trump administration’s approach to immigration.`\
+https://nytimes.com/2025/03/31/us/minnesota-student-immigration-arrest.html
+
 **UNC's Elliot Cadeau to transfer to Michigan: What he brings to Wolverines**\
 `Dusty May is landing a brilliant passer, but a guard who was also the epitome of a boom-or-bust player with Tar Heels.`\
 https://nytimes.com/athletic/6245477/2025/03/31/elliot-cadeau-transfers-michigan-unc/
