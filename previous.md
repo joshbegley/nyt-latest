@@ -1,40 +1,40 @@
-**Lithuania Recovers Vehicle That Carried 4 Missing U.S. Soldiers**\
-`The U.S. Army vehicle disappeared in a waterlogged area on Tuesday, setting off nearly a week of frantic recovery efforts.`\
-https://nytimes.com/2025/03/31/world/europe/lithuania-us-army-soldiers-swamp.html
+**Israel Digs In Beyond Its Northern Border**\
+`Israel has built a growing network of outposts and fortifications in Syria and Lebanon, deepening concerns about a protracted occupation in parts of the two countries.`\
+https://nytimes.com/interactive/2025/03/31/world/middleeast/undof-outposts.html
 
-**Kerr to face no further action from Football Australia amid captaincy doubts**\
-`The Chelsea striker was found not guilty of racially aggravated harassment of a police officer following a seven-day trial in February.`\
-https://nytimes.com/athletic/6243687/2025/03/31/sam-kerr-australia-court-case/
+**Nothing Ever Goes Wrong in Trump’s White House**\
+`The problem is that competence and execution matter.`\
+https://nytimes.com/2025/03/31/opinion/nothing-ever-goes-wrong-in-trumps-white-house.html
 
-**Arsenal and Tottenham announce first north London derby outside of UK**\
-`The July 31 fixture is part of the Hong Kong Football Festival (HKFF) and will be held at the 50,000 seater Kai Tak Stadium.`\
-https://nytimes.com/athletic/6243690/2025/03/31/arsenal-tottenham-hong-kong-north-london-derby/
+**DOGE Accesses Federal Payroll System Over Objections of Career Staff**\
+`Elon Musk’s team gains visibility into sensitive information about hundreds of thousands of government workers despite security concerns raised by IT officials.`\
+https://nytimes.com/2025/03/31/us/doge-musk-federal-payroll.html
 
-**He Went to Prison for One Punch. 7 Years Later, It Became a Homicide.**\
-`Gary Anderson hit Domingo Tapia for reasons never explained, sending Mr. Tapia into a coma and Mr. Anderson to prison. Mr. Tapia later died, and his attacker faces manslaughter charges.`\
-https://nytimes.com/2025/03/31/nyregion/brooklyn-punch-murder-charges-domingo-tapia.html
+**We Should Have Seen What Sally Mann Saw 40 Years Ago**\
+`A new edition of the photographer’s 1988 book is even more relevant today.`\
+https://nytimes.com/2025/03/31/opinion/sally-mann-photography.html
 
-**Liverpool confirm pre-season matches in Hong Kong, Japan**\
-`Arne Slot's side will face AC Milan in Hong Kong, with details of the Japan leg to be confirmed.`\
-https://nytimes.com/athletic/6242593/2025/03/31/liverpool-pre-season-hong-kong-japan/
+**A Special Election That Was Supposed to Be a Snoozer Is Suddenly Buzzing**\
+`A House race in a deep-red Florida district is seeing millions of dollars in spending ahead of Tuesday’s election. Even in a loss, Democrats hope it will signal much-needed momentum.`\
+https://nytimes.com/2025/03/31/us/politics/florida-special-election-fine-weil.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/03/31/crosswords/spelling-bee-forum.html
+**The Chinese Electric Vehicle Founder Who Wants In on Trump’s America**\
+`Wen Han is intent on listing Windrose’s stock in New York. He is fueled by $300 million, Chinese technology and a belief that “China doesn’t have to be the enemy forever.”`\
+https://nytimes.com/2025/03/31/business/windrose-electric-trucks-ipo.html
 
-**Netanyahu Names New Intel Chief Despite Showdown With Court**\
-`Benjamin Netanyahu, the Israeli prime minister, named a new head of Israel’s domestic intelligence agency on Monday. Judges had frozen the dismissal of the current chief.`\
-https://nytimes.com/2025/03/31/world/middleeast/israel-netanyahu-shin-bet.html
+**Wisconsin Voters See State Supreme Court Race as Referendum on Trump**\
+`Elon Musk’s prominent role in the most expensive judicial race in American history has helped turn Tuesday’s election into a battle over national politics.`\
+https://nytimes.com/2025/03/31/us/wisconsin-supreme-court-trump-musk.html
 
-**After Suns' latest embarrassing loss, there's only one question: Do these guys care?**\
-`Sunday’s 148-109 loss to the Houston Rockets sucked the energy out of PHX Arena and the soul from the league’s most expensive team.`\
-https://nytimes.com/athletic/6243576/2025/03/31/phoenix-suns-embarrassing-loss/
+**Is It Time to Trade My Rolex for a Smart Watch?**\
+`When it comes to watches, they can tell you more than just the time, our critic says. Find out what yours is saying — whether it’s smart or analog.`\
+https://nytimes.com/2025/03/31/fashion/rolex-smart-watch-apple.html
 
-**Word of the Day: impropriety**\
-`This word has appeared in 88 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/03/31/learning/word-of-the-day-impropriety.html
+**People Are Promoting Ivermectin for Cancer. Here’s What to Know.**\
+`Ivermectin, a drug used mainly for deworming horses and other animals, is being promoted on social media for unproven uses, including the treatment of cancer in humans. Dani Blum, a reporter for Well, explains.`\
+https://nytimes.com/video/well/100000010078832/people-are-promoting-ivermectin-for-cancer-heres-what-to-know.html
 
-**‘Dying for Sex,’ Plus 7 Things to Watch on TV this Week**\
-`The Hulu show starring Michelle Williams premieres, and the third season of “White Lotus” wraps up.`\
-https://nytimes.com/2025/03/31/arts/television/dying-for-sex.html
+**As Trump Squeezes the Immigrant Work Force, Employers Seek Relief**\
+`Businesses that rely on immigrants are pushing for legislation to ensure an adequate, legal flow of laborers from abroad as deportations ramp up.`\
+https://nytimes.com/2025/03/31/business/economy/trump-immigrant-workers-visas.html
 
