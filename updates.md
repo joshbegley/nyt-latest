@@ -1,3 +1,15 @@
+**Wild brawl in Pistons-Timberwolves ends in 7 ejections**\
+`There are scuffles in games, and then there are fights. This was a fight.`\
+https://nytimes.com/athletic/6243058/2025/03/30/pistons-timberwolves-game-brawl-ejections/
+
+**Will Flau'jae Johnson head to the WNBA? Or will championship goals bring her back to LSU?**\
+`“I want to be in the Final Four. I want my own one. Where I lead the team." `\
+https://nytimes.com/athletic/6243139/2025/03/30/lsu-flaujae-johnson-wnba-elite-eight/
+
+**Phillies takeaways: The lefty starters are coming (again), timing Nola, Strahm's return**\
+`Mitchell Parker, along with fellow lefty MacKenzie Gore, held the Phillies scoreless over 12 1/3 innings with 18 strikeouts and two walks.`\
+https://nytimes.com/athletic/6243025/2025/03/30/phillies-left-handed-lineup-aaron-nola-matt-strahm/
+
 **Blackhawks' rebuild reaches promising point as 6 first-rounders take the ice together**\
 `GM Kyle Davidson's vision for the Blackhawks' future is getting closer every day.`\
 https://nytimes.com/athletic/6242358/2025/03/30/blackhawks-first-rounders-rinzel-moore-rebuild/
