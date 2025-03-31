@@ -1,3 +1,7 @@
+**FPL: Everything you need to know as the game returns with Gameweek 30**\
+`FPL is back after a break of more than two weeks. Holly Shand brings you back up to speed ahead of Tuesday's Gameweek 30 deadline`\
+https://nytimes.com/athletic/6231871/2025/03/31/fantasy-premier-league-gameweek-30-preview-wildcard-strategy/
+
 **The Athletic FC: Arsenal and Berta eye Gyokeres, Mbappe matches Ronaldo record**\
 `Today in TAFC: Arsenal's sporting director is interested in Gyokeres, a potential Club World Cup play-off, and Newcastle fans take over town`\
 https://nytimes.com/athletic/6243815/2025/03/31/arsenal-gyokeres-mbappe-ronaldo-record-real-madrid/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6238398/2025/03/31/liam-lawson-red-bull-f1-sports-r
 **Notre Dame mailbag: How much will Irish offense change? Pressure on Micah Shrewsberry?**\
 `Answering your Notre Dame questions about Mike Denbrock's offense with a new QB, spring football changes, what's next in hoops and more.`\
 https://nytimes.com/athletic/6242357/2025/03/31/notre-dame-offense-starting-qb-denbrock/
-
-**If the NHL playoffs started today: The matchups and what to expect in each series**\
-`As we inch closer and closer to the postseason, it isn't too early to start looking at which teams could square off against one another.`\
-https://nytimes.com/athletic/6240987/2025/03/31/nhl-playoff-matchups-2025/
 
