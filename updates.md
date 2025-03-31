@@ -1,3 +1,7 @@
+**Amid athletic lore in Pauley Pavilion, UCLA women's basketball finally has a legacy to add**\
+`After 14 seasons, coach Cori Close has led the Bruins to new heights with its first Final Four bid.`\
+https://nytimes.com/athletic/6243271/2025/03/30/ucla-womens-basketball-final-four/
+
 **‘The White Lotus’ Season 3, Episode 7: Lovers and Fighters**\
 `“The White Lotus” tells us only enough about the characters’ pasts to explain some of the choices they make. Sometimes this works; sometimes it doesn’t.`\
 https://nytimes.com/2025/03/30/arts/television/the-white-lotus-season-3-episode-7-recap.html
