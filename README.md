@@ -1,3 +1,15 @@
+**Myanmar Rescue Underway in Race Against Time**\
+`The smell of death filled the air at a monastery destroyed by the 7.7-magnitude quake as teams from various countries joined the rescue.`\
+https://nytimes.com/video/world/asia/100000010082384/myanmar-earthquake-rescue.html
+
+**Sacramento Is Ready for Its Major League Moment. (Just Don’t Say ‘Sacramento.’)**\
+`The Athletics temporarily moved to California’s capital region, but insisted on avoiding references to Sacramento. Residents, who are thrilled to have M.L.B. games, are used to such slights.`\
+https://nytimes.com/2025/03/31/us/athletics-sacramento-mlb.html
+
+**Amorim: Heaven injury 'not so serious', Mainoo 'almost ready to return'**\
+`Luke Shaw is also not ready for action but Harry Maguire and Leny Yoro are fit.`\
+https://nytimes.com/athletic/6207672/2025/03/31/manchester-united-heaven-mainoo-injury/
+
 **Denny Hamlin, at 44, ends 31-race winless streak and shows his time is not up yet**\
 `Denny Hamlin won NASCAR's Cup Series race Sunday at Martinsville, showing that, at age 44, the inevitable hasn't happened to him just yet.`\
 https://nytimes.com/athletic/6243408/2025/03/31/denny-hamlin-nascar-martinsville-cup-series-win/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6233149/2025/03/31/los-angeles-rams-2025-nfl-draft-
 **Chelsea's run-in: Where the bid for Champions League qualification will be won or lost**\
 `Five games at home, four away and players back from injury - where does that leave their chances of finishing in the top five?`\
 https://nytimes.com/athletic/6238859/2025/03/31/chelsea-premier-league-run-in/
-
-**Cardinals sweep Twins to open season: 3 takeaways from 3 wins**\
-`Pedro Pagés helped lead an offensive barrage as the homer-happy Cardinals scored 19 runs in the series.`\
-https://nytimes.com/athletic/6242193/2025/03/31/cardinals-sweep-twins-takeaways/
-
-**Can the NBA fix its big tanking problem? Here’s how the league can change it**\
-`Can anything be done to make teams out of the playoff race care more about winning at the end of the season? We have some ideas. `\
-https://nytimes.com/athletic/6235572/2025/03/31/nba-tanking-problem-fix-draft/
-
-**MMLR: The Leafs' playoff lineup (and goalie starter) competition heats up**\
-`As the regular season winds to a close, Craig Berube will fine-tune who gets the nod in the bottom six to start the playoffs.`\
-https://nytimes.com/athletic/6243441/2025/03/31/maple-leafs-playoffs-lineup-starter/
 

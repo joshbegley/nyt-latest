@@ -1,3 +1,7 @@
+**Denny Hamlin, at 44, ends 31-race winless streak and shows his time is not up yet**\
+`Denny Hamlin won NASCAR's Cup Series race Sunday at Martinsville, showing that, at age 44, the inevitable hasn't happened to him just yet.`\
+https://nytimes.com/athletic/6243408/2025/03/31/denny-hamlin-nascar-martinsville-cup-series-win/
+
 **College baseball week in review: SEC powers flexing their muscles**\
 `A coaching giant announces his retirement. A transfer terrorizes is former team. Virginia shows signs of life. `\
 https://nytimes.com/athletic/6242933/2025/03/31/college-baseball-sec-tennessee-georgia-texas-arkansas/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6235572/2025/03/31/nba-tanking-problem-fix-draft/
 **MMLR: The Leafs' playoff lineup (and goalie starter) competition heats up**\
 `As the regular season winds to a close, Craig Berube will fine-tune who gets the nod in the bottom six to start the playoffs.`\
 https://nytimes.com/athletic/6243441/2025/03/31/maple-leafs-playoffs-lineup-starter/
-
-**Red Wings mailbag: Is there a silver lining to this season? Plus draft, free-agent targets**\
-`Also in the mailbag : Replacing Patrick Kane, and what's going on with Dylan Larkin and Lucas Raymond?`\
-https://nytimes.com/athletic/6240963/2025/03/31/red-wings-draft-free-agent-targets/
 
