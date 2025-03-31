@@ -18,7 +18,7 @@ https://nytimes.com/2025/03/31/business/economy/ustr-report-trade-barriers.html
 `Dasheeda Dawson, who helped people start dispensaries, was accused of trying to pressure a businesswoman into a relationship in exchange for a city contract.`\
 https://nytimes.com/2025/03/31/nyregion/dasheeda-dawson-cannabis-nyc.html
 
-**Rafael Devers’ historically rough start continues, but the Red Sox remain patient**\
+**Rafael Devers’ historically rough start continues, but Red Sox remain patient**\
 `Devers' early-season woes continued in the opener in Baltimore, with three more strikeouts. He now has 15 through the first five games.`\
 https://nytimes.com/athletic/6245403/2025/03/31/rafael-devers-strikeouts-red-sox/
 
