@@ -1,4 +1,8 @@
-**Patirots like Will Campbell at left tackle, want Travis Hunter to focus on one position**\
+**Read the Letter**\
+`Researchers at academic institutions nationwide say that U.S. science is being dismantled.`\
+https://nytimes.com/interactive/2025/03/31/health/scientists-letter.html
+
+**Patriots like Will Campbell at left tackle, want Travis Hunter to focus on one position**\
 `If Travis Hunter and Abdul Carter don't slip to New England at No. 4, the Patriots could fill their hole at left tackle with Campbell.`\
 https://nytimes.com/athletic/6244236/2025/03/31/patriots-2025-draft-will-campbell-travis-hunter/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/31/dining/spring-roasted-salmon-recipe.html
 **What Ivermectin Can (and Can’t) Do**\
 `Social media posts have promoted the anti-parasitic drug for cancer and Covid. That has doctors alarmed.`\
 https://nytimes.com/2025/03/31/well/ivermectin-cancer-covid.html
-
-**Investigating a Sprawling Money Laundering Network**\
-`Two New York Times reporters spent several months learning the intricacies of a wide-reaching web of scammers.`\
-https://nytimes.com/2025/03/31/insider/cambodia-money-laundering-huione.html
 

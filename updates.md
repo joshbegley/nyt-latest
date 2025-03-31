@@ -1,3 +1,11 @@
+**Read the Letter**\
+`Researchers at academic institutions nationwide say that U.S. science is being dismantled.`\
+https://nytimes.com/interactive/2025/03/31/health/scientists-letter.html
+
+**Patriots like Will Campbell at left tackle, want Travis Hunter to focus on one position**\
+`If Travis Hunter and Abdul Carter don't slip to New England at No. 4, the Patriots could fill their hole at left tackle with Campbell.`\
+https://nytimes.com/athletic/6244236/2025/03/31/patriots-2025-draft-will-campbell-travis-hunter/
+
 **Patirots like Will Campbell at left tackle, want Travis Hunter to focus on one position**\
 `If Travis Hunter and Abdul Carter don't slip to New England at No. 4, the Patriots could fill their hole at left tackle with Campbell.`\
 https://nytimes.com/athletic/6244236/2025/03/31/patriots-2025-draft-will-campbell-travis-hunter/
