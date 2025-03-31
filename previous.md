@@ -1,3 +1,7 @@
+**The Athletic FC: Arsenal and Berta eye Gyokeres, Mbappe matches Ronaldo record**\
+`Today in TAFC: Arsenal's sporting director is interested in Gyokeres, a potential Club World Cup play-off, and Newcastle fans take over town`\
+https://nytimes.com/athletic/6243815/2025/03/31/arsenal-gyokeres-mbappe-ronaldo-record-real-madrid/
+
 **Tigers' prospect Jackson Jobe honed his pitches in a barn. Now he's starting in the majors**\
 `Jackson Jobe was a teenager when he started pitching lessons with Alex Marney in an Oklahoma barn. Now Jobe and PitchingWRX are taking off.`\
 https://nytimes.com/athletic/6242712/2025/03/31/tigers-jackson-jobe-pitchingwrx-alex-marney/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6242357/2025/03/31/notre-dame-offense-starting-qb-d
 **If the NHL playoffs started today: The matchups and what to expect in each series**\
 `As we inch closer and closer to the postseason, it isn't too early to start looking at which teams could square off against one another.`\
 https://nytimes.com/athletic/6240987/2025/03/31/nhl-playoff-matchups-2025/
-
-**Denver Broncos NFL Draft 2025 guide: Picks, predictions and key needs**\
-`What you need to know as the Broncos head into the NFL Draft.`\
-https://nytimes.com/athletic/6222002/2025/03/31/denver-broncos-2025-nfl-draft-picks-needs-predictions-guide/
 

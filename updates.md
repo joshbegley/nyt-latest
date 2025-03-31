@@ -1,3 +1,7 @@
+**The Athletic FC: Arsenal and Berta eye Gyokeres, Mbappe matches Ronaldo record**\
+`Today in TAFC: Arsenal's sporting director is interested in Gyokeres, a potential Club World Cup play-off, and Newcastle fans take over town`\
+https://nytimes.com/athletic/6243815/2025/03/31/arsenal-gyokeres-mbappe-ronaldo-record-real-madrid/
+
 **Tigers' prospect Jackson Jobe honed his pitches in a barn. Now he's starting in the majors**\
 `Jackson Jobe was a teenager when he started pitching lessons with Alex Marney in an Oklahoma barn. Now Jobe and PitchingWRX are taking off.`\
 https://nytimes.com/athletic/6242712/2025/03/31/tigers-jackson-jobe-pitchingwrx-alex-marney/
