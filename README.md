@@ -1,3 +1,7 @@
+**Djokovic bested by Menšík in Miami Open as hunt for history remains ongoing**\
+`Trying to win his 100th ATP Tour title, Djokovic ran into both the power and precision of the rising 19-year-old Czech.`\
+https://nytimes.com/athletic/6242240/2025/03/30/djokovic-mensik-miami-open-final-result-analysis/
+
 **Kevin Durant ruled out with left ankle sprain in Suns' blowout loss**\
 `Losing Durant for any stretch would be a devastating blow to Phoenix's postseason hopes. The Suns are 2-11 without him this season.`\
 https://nytimes.com/athletic/6243412/2025/03/30/kevin-durant-ankle-injury-suns/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6243060/2025/03/30/kenny-atkinson-outburst-cavalier
 **Musk Says ‘Destiny of Humanity’ Rests on Wisconsin Judicial Race**\
 `“What’s happening on Tuesday is a vote for which party controls the U.S. House of Representatives,” Elon Musk told a crowd in Green Bay. “That is why it is so significant.”`\
 https://nytimes.com/2025/03/30/us/elon-musk-wisconsin-supreme-court.html
-
-**Yohe's 10 observations: Sid the Kid shows the kids how it's done in overtime**\
-`Sidney Crosby led the way with a couple of rookies in the fold as the Penguins earned a 1-0 overtime win against Ottawa. `\
-https://nytimes.com/athletic/6241884/2025/03/30/penguins-crosby-mcgroarty-koivunen-rookies-senators/
 
