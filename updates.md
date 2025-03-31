@@ -1,3 +1,19 @@
+**What We Know About Marine Le Pen’s Embezzlement Conviction**\
+`The far-right French politician was a leading candidate to become the country’s next president, but has now been barred from running for public office for five years.`\
+https://nytimes.com/2025/03/31/world/europe/marine-lepen-embezzlement-france.html
+
+**On a South Carolina Farm, a House Born From a College Promise**\
+`A couple and their architect friend built a family home that celebrates hyperlocal building materials.`\
+https://nytimes.com/2025/03/31/realestate/south-carolina-farm-architecture.html
+
+**USMNT Player Tracker: Pulisic frustration, Aaronson's fast start and Sargent's selfie request**\
+`Our roundup of the weekend action also takes in Chris Richards' latest away shutout and a return to winning ways for Weston McKennie`\
+https://nytimes.com/athletic/6244129/2025/03/31/usmnt-pulisic-aaronson-sargent-richards-tracker/
+
+**Trump Demands Harsh Treatment for Suspects After Vandalism at Turnberry**\
+`In the incident earlier this month, the Scottish club’s main building was sprayed with red paint and a pro-Palestinian message was painted on the ground next to a green.`\
+https://nytimes.com/2025/03/31/us/politics/trump-turnberry-vandalism.html
+
 **Submit your questions for Jeremy Rutherford’s St. Louis Blues mailbag**\
 `Have a question about the Blues? Submit it here and The Athletic’s Jeremy Rutherford will address a selection in his upcoming mailbag.`\
 https://nytimes.com/athletic/6244465/2025/03/31/st-louis-blues-jeremy-rutherford-mailbag-april-2025/

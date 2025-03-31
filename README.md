@@ -1,3 +1,7 @@
+**Storm Knocks Out Power for Nearly 900,000 in Great Lakes Region**\
+`A storm downed power lines and left hundreds of thousands of electricity customers without power on Monday morning in Indiana, Michigan, Wisconsin and Ontario, Canada.`\
+https://nytimes.com/video/us/100000010082627/storms-great-lakes-region-power-trees.html
+
 **What We Know About Marine Le Pen’s Embezzlement Conviction**\
 `The far-right French politician was a leading candidate to become the country’s next president, but has now been barred from running for public office for five years.`\
 https://nytimes.com/2025/03/31/world/europe/marine-lepen-embezzlement-france.html
@@ -29,12 +33,4 @@ https://nytimes.com/athletic/6244464/2025/03/31/nhl-mailbag-playoff-races-ovechk
 **America Has Never Been Wealthier. Here’s Why It Doesn’t Feel That Way.**\
 `A surge in U.S. wealth has been driven by stock and home values. But the gains are concentrated at the top, leaving others in a sour economic mood.`\
 https://nytimes.com/2025/03/31/business/economy/wealth-cash-inequality.html
-
-**Steak Fries: Deservedly Reviled or Underappreciated Edible Spoon?**\
-`They may be America’s least popular fry, but some chefs are still devoted to them.`\
-https://nytimes.com/2025/03/31/dining/steak-fries.html
-
-**Trump’s Science Policies Pose Long-Term Risk, Economists Warn**\
-`Since World War II, U.S. research funding has led to discoveries that fueled economic gains. Now cutbacks are seen as putting that legacy in jeopardy.`\
-https://nytimes.com/2025/03/31/business/economy/trump-research-cutbacks-economy.html
 
