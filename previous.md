@@ -1,3 +1,7 @@
+**French Far-Right Leader Marine Le Pen Is Convicted of Embezzlement**\
+`A criminal court in Paris ruled that Marine Le Pen had played a “central role” in a scheme to siphon funds from the European Parliament to finance her far-right National Rally party. Ms. Le Pen has been barred from public office for five years.`\
+https://nytimes.com/video/world/europe/100000010082587/marine-le-pen-embezzlement-conviction-.html
+
 **As Alpine skiing World Cup season ends, stage is set for a star-studded Olympics**\
 `As Alpine skiing heads to its offseason before the 2026 Olympics, some of the greatest of all time are in top form.`\
 https://nytimes.com/athletic/6239075/2025/03/31/lindsey-vonn-mikaela-shiffrin-alpine-skiing-olympics-world-cup/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6244317/2025/03/31/ohio-state-recruiting-5-star-bla
 **Why the Right Still Embraces Ivermectin**\
 `Five years after the pandemic began, interest in the anti-parasitic drug is rising again as right-wing influencers promote it — and spread misinformation about it.`\
 https://nytimes.com/2025/03/31/us/ivermectin-conservatives-influencers.html
-
-**Trump Administration Has Begun a War on Science, Researchers Say**\
-`Nearly 2,000 scientists urged that Congress restore funding to federal agencies decimated by recent cuts.`\
-https://nytimes.com/2025/03/31/science/trump-science-nas-letter.html
 

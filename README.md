@@ -1,3 +1,19 @@
+**Trump’s Science Policies Pose Long-Term Risk, Economists Warn**\
+`Since World War II, U.S. research funding has led to discoveries that fueled economic gains. Now cutbacks are seen as putting that legacy in jeopardy.`\
+https://nytimes.com/2025/03/31/business/economy/trump-research-cutbacks-economy.html
+
+**Eastern U.S. Faces More Rounds of Severe Spring Storms**\
+`Intense storms are expected across the Southeast on Monday. More are forecast for later this week.`\
+https://nytimes.com/2025/03/31/weather/georgia-carolina-storms-forecast.html
+
+**Canada sovereignty 'is never on the table', Concacaf president tells Trump**\
+`The full interview features in a special episode of The Athletic FC podcast looking at the impact of politics on the 2026 World Cup`\
+https://nytimes.com/athletic/6243755/2025/03/31/victor-montagliani-canada-trump-world-cup/
+
+**New York City Ballet’s New Season: Premieres, a Revival, a Retirement**\
+`The 2025-26 season, which includes a Balanchine revival and premieres by Justin Peck and Alexei Ratmansky, will also see the retirement of Megan Fairchild in spring.`\
+https://nytimes.com/2025/03/31/arts/dance/new-york-city-ballet-2025-26-season.html
+
 **French Far-Right Leader Marine Le Pen Is Convicted of Embezzlement**\
 `A criminal court in Paris ruled that Marine Le Pen had played a “central role” in a scheme to siphon funds from the European Parliament to finance her far-right National Rally party. Ms. Le Pen has been barred from public office for five years.`\
 https://nytimes.com/video/world/europe/100000010082587/marine-le-pen-embezzlement-conviction-.html
@@ -13,24 +29,4 @@ https://nytimes.com/interactive/2025/03/31/health/scientists-letter.html
 **Patriots like Will Campbell at left tackle, want Travis Hunter to focus on one position**\
 `If Travis Hunter and Abdul Carter don't slip to New England at No. 4, the Patriots could fill their hole at left tackle with Campbell.`\
 https://nytimes.com/athletic/6244236/2025/03/31/patriots-2025-draft-will-campbell-travis-hunter/
-
-**The Windup: All about those Yankee torpedo bats**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6243530/2025/03/31/yankees-bats-torpedo-explained-the-windup/
-
-**Sean Payton glad 'not to be in that QB market' as Broncos eye contention in 2025**\
-`The Broncos will add a running back in the upcoming NFL Draft, general manager George Paton said Monday, but will it be their top pick?`\
-https://nytimes.com/athletic/6244050/2025/03/31/broncos-sean-payton-george-paton-nfl-owners-meetings/
-
-**'We were not mentally focused': Bucks' blowout loss to Hawks features many old problems**\
-`With their scoring in transition and their second-chance points, the Hawks sprinted past the Bucks, who dropped to 40-34 on the season.`\
-https://nytimes.com/athletic/6243330/2025/03/31/bucks-hawks-giannis-antetokounmpo/
-
-**Ohio State lands 5-star safety Blaine Bradford from Louisiana**\
-`The Buckeyes grab an elite defensive player who attends high school about 4 miles from Tiger Stadium in Baton Rouge. `\
-https://nytimes.com/athletic/6244317/2025/03/31/ohio-state-recruiting-5-star-blaine-bradford/
-
-**Why the Right Still Embraces Ivermectin**\
-`Five years after the pandemic began, interest in the anti-parasitic drug is rising again as right-wing influencers promote it — and spread misinformation about it.`\
-https://nytimes.com/2025/03/31/us/ivermectin-conservatives-influencers.html
 
