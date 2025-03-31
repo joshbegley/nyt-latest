@@ -1,24 +1,28 @@
-**Rams GM Les Snead offers insight on potential Kyren Williams deal**\
-`The Rams GM touched on Kyren Williams, Matthew Stafford's contract, drafting a QB and what adding Coleman Shelton means.`\
-https://nytimes.com/athletic/6244757/2025/03/31/rams-kyren-williams-contract-les-snead-owners-meetings/
+**Chargers' Jim Harbaugh on building the offensive line, potential Keenan Allen reunion**\
+`Harbaugh on Allen, who remains a free agent after playing for the Bears last season: “Oh yeah, anything’s possible. That would be cool.”`\
+https://nytimes.com/athletic/6244771/2025/03/31/jim-harbaugh-chargers-offensive-line-keenan-allen/
 
-**Are Zac Taylor, Bengals doing enough up front to protect their investments?**\
-`Joe Burrow, Ja'Marr Chase and Tee Higgins are set with their contracts but glaring needs at guard jeopardize their effectiveness.`\
-https://nytimes.com/athletic/6244607/2025/03/31/bengals-zac-taylor-offensive-line-nfl-owners-meetings/
+**Browns owner Jimmy Haslam: Deshaun Watson trade was 'big swing and a miss'**\
+`"It ends with Dee and I, so hold us accountable," Haslam said during his availability at league meetings. `\
+https://nytimes.com/athletic/6244753/2025/03/31/browns-jimmy-haslam-deshaun-watson-quarterback/
 
-**What's the holdup with Geno Smith? And more on the Raiders' plans in the NFL Draft**\
-`At the NFL meetings in Florida, coach Pete Carroll and GM John Spytek discussed the Raiders' moves in free agency and plans for the draft.`\
-https://nytimes.com/athletic/6244592/2025/03/31/raiders-owners-meetings-geno-smith-nfl-draft/
+**Lloyd: 'Tush push' vote, in the name of player safety, leaves impression of weakness**\
+`As the league prepares to vote on whether to abolish the Eagles’ unstoppable short-yardage play, let’s be clear: This isn’t a safety issue.`\
+https://nytimes.com/athletic/6244834/2025/03/31/nfl-tush-push-league-meetings/
 
-**John Lynch says 49ers were 'somewhat reactive' in pursuit of Dre Greenlaw**\
-`The 49ers took a wait-and-see approach with Greenlaw following his Achilles injury and that ultimately cost them.`\
-https://nytimes.com/athletic/6244720/2025/03/31/dre-greenlaw-49ers-pursuit-broncos/
+**Shohei Ohtani leads MLB players in jersey sales, six Dodgers crack top 20 list**\
+`Two Japanese-born players made the top 10 rankings for the first time since 2012.`\
+https://nytimes.com/athletic/6244751/2025/03/31/shohei-ohtani-most-popular-mlb-jersey/
 
-**Scoop City: How valuable are rookie QB deals, really?**\
-`Inside: The changing value of rookie-contract quarterbacks, checking in on a potential Bills holdout and glancing at fantasy football rankings, currently led by Ja&#8217;Marr Chase and Saquon Barkley.`\
-https://nytimes.com/athletic/6244809/2025/03/31/history-rookie-contract-quarterbacks-nfl-scoop-city/
+**Trump Commutes the Sentence of Another Hunter Biden Business Associate**\
+`Jason Galanis had pleaded guilty to his role in two fraud schemes before cooperating with Republican congressional investigations into the Bidens.`\
+https://nytimes.com/2025/03/31/us/politics/trump-hunter-biden-jason-galanis.html
 
-**Marine Le Pen Falls to the Rule of Law and a Great Battle Looms**\
-`A court’s conviction of the far-right leader for embezzlement and its ban on her running for office have set off a new crisis for France.`\
-https://nytimes.com/2025/03/31/world/europe/marine-le-pen-embezzelment-democracy.html
+**U.S. Has Spent $40 Million to Jail About 400 Migrants at Guantánamo**\
+`The disclosure of the tab so far came after a visit by five senators to the offshore operation, who condemned it as a waste of resources.`\
+https://nytimes.com/2025/03/31/us/politics/migrants-guantanamo-costs.html
+
+**New Jersey Police Chief Accused of Violent and Vulgar Harassment at Work**\
+`Five officers in the North Bergen, N.J., police department have filed notices of intent to sue the township over the allegations, which the chief denies.`\
+https://nytimes.com/2025/03/31/nyregion/nj-police-chief-harassment.html
 
