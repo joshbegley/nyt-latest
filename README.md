@@ -1,4 +1,8 @@
-**Giants have a plan at QB for 2025 but not beyond, so how will they approach the NFL Draft?**\
+**Time to Get Over Eurovision? ‘Hell No!’ a Jilted Contestant Says.**\
+`Joost Klein was thrown out of last year’s contest after being accused of threatening a camerawoman. On a new album, he’s still stuck in that moment.`\
+https://nytimes.com/2025/03/31/arts/music/joost-klein-unity-eurovision.html
+
+**Giants have a plan at QB for 2025 but not beyond, so how will they approach NFL Draft?**\
 `No one knows what the Giants will do in the draft for a simple reason: They don’t know yet.`\
 https://nytimes.com/athletic/6242297/2025/03/31/new-york-giants-nfl-draft-quarterback-russell-wilson-joe-schoen/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6242712/2025/03/31/tigers-jackson-jobe-pitchingwrx-
 **Las Vegas Raiders NFL Draft 2025 guide: Picks, predictions and key needs**\
 `The Raiders own the No. 6 pick and have nine picks total in the NFL Draft. How will Pete Carroll and John Spytek upgrade the roster?`\
 https://nytimes.com/athletic/6220063/2025/03/31/las-vegas-raiders-2025-nfl-draft-picks-needs-predictions-guide/
-
-**Moon shots and mob movies: Jhonkensy Noel's bid to be Guardians' next big home run hitter**\
-`After a legendary moment in last year's ALCS, Noel is looking to prove he belongs as a reliable hitter in the Guardians' lineup.`\
-https://nytimes.com/athletic/6202566/2025/03/31/jhonkensy-noel-cleveland-guardians-hitter/
 

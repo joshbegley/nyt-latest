@@ -1,3 +1,7 @@
+**Giants have a plan at QB for 2025 but not beyond, so how will they approach the NFL Draft?**\
+`No one knows what the Giants will do in the draft for a simple reason: They don’t know yet.`\
+https://nytimes.com/athletic/6242297/2025/03/31/new-york-giants-nfl-draft-quarterback-russell-wilson-joe-schoen/
+
 **Tennis Briefing: Jannik Sinner wins big without playing a match as rivals falter**\
 `The world No. 1's three-month anti-doping ban has barely affected his ATP ranking as yet.`\
 https://nytimes.com/athletic/6242694/2025/03/31/tennis-jannik-sinner-ranking-ban/

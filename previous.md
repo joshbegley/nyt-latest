@@ -1,3 +1,7 @@
+**Giants have a plan at QB for 2025 but not beyond, so how will they approach the NFL Draft?**\
+`No one knows what the Giants will do in the draft for a simple reason: They don’t know yet.`\
+https://nytimes.com/athletic/6242297/2025/03/31/new-york-giants-nfl-draft-quarterback-russell-wilson-joe-schoen/
+
 **Tennis Briefing: Jannik Sinner wins big without playing a match as rivals falter**\
 `The world No. 1's three-month anti-doping ban has barely affected his ATP ranking as yet.`\
 https://nytimes.com/athletic/6242694/2025/03/31/tennis-jannik-sinner-ranking-ban/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6220063/2025/03/31/las-vegas-raiders-2025-nfl-draft
 **Moon shots and mob movies: Jhonkensy Noel's bid to be Guardians' next big home run hitter**\
 `After a legendary moment in last year's ALCS, Noel is looking to prove he belongs as a reliable hitter in the Guardians' lineup.`\
 https://nytimes.com/athletic/6202566/2025/03/31/jhonkensy-noel-cleveland-guardians-hitter/
-
-**2025 MLB Draft observations: Zach Root a potential first-rounder, Steele Hall has plus speed**\
-`A look at several prospects for the 2025 MLB Draft from recent scouting trips to Florida and Arizona.`\
-https://nytimes.com/athletic/6241048/2025/03/31/mlb-draft-2025-zach-root-steele-hall/
 
