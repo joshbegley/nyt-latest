@@ -1,3 +1,15 @@
+**Trump Administration Moves to Shutter Library Agency**\
+`The staff of the independent Institute of Museum and Library Services, the largest source of federal funding for museums and libraries, were put on leave.`\
+https://nytimes.com/2025/03/31/arts/design/library-agency-trump-museums.html
+
+**NFL reduces 'TNF' flex window to 21 days, announces 'Hard Knocks' renewal**\
+`When the NFL flexes games it can make national matchups more compelling, but it can also impact fans negatively.`\
+https://nytimes.com/athletic/6245018/2025/03/31/nfl-thursday-night-football-flex-hard-knocks/
+
+**Trump Administration Will Review Billions in Funding for Harvard**\
+`The administration has already canceled hundreds of millions in federal grants and contracts at Columbia and the University of Pennsylvania.`\
+https://nytimes.com/2025/03/31/us/trump-administration-harvard-funding.html
+
 **Elon Musk Gives Away $1 Million Checks at Wisconsin Rally**\
 `Elon Musk appeared at a rally where he called on people to vote for Brad Schimel, a Wisconsin Supreme Court candidate, ahead of the high-stakes election.`\
 https://nytimes.com/video/us/elections/100000010082749/musk-million-dollar-checks-wisconsin-rally.html
