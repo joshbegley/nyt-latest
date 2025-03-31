@@ -1,3 +1,7 @@
+**What Daniel Freitag's transfer portal move means for Wisconsin**\
+`Freitag, the highest-rated recruit signed under Greg Gard, played just 27 total minutes in 14 games this season.`\
+https://nytimes.com/athletic/6244523/2025/03/31/wisconsin-basketball-daniel-freitag-transfer-portal/
+
 **Storm Knocks Out Power for Nearly 900,000 in Great Lakes Region**\
 `A storm downed power lines and left hundreds of thousands of electricity customers without power on Monday morning in Indiana, Michigan, Wisconsin and Ontario, Canada.`\
 https://nytimes.com/video/us/100000010082627/storms-great-lakes-region-power-trees.html
