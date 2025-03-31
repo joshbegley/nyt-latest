@@ -1,3 +1,15 @@
+**Marine Le Pen Found Guilty of Embezzlement by French Court**\
+`The ruling could complicate her plans to run for president in 2027.`\
+https://nytimes.com/2025/03/31/world/europe/france-marine-le-pen-embezzlement-trial.html
+
+**Primark C.E.O. Resigns After ‘Error of Judgment’**\
+`Paul Marchant has left the clothing retailer after “an allegation made by an individual about his behavior,” the company said.`\
+https://nytimes.com/2025/03/31/business/primark-paul-marchant-resigns.html
+
+**Israel Digs In Beyond Its Northern Border**\
+`Israel has built a growing network of outposts and fortifications in Syria and Lebanon, deepening concerns about a protracted occupation in parts of the two countries.`\
+https://nytimes.com/interactive/2025/03/31/world/middleeast/israel-border-military-outposts-syria-lebanon-border.html
+
 **Israel Digs In Beyond Its Northern Border**\
 `Israel has built a growing network of outposts and fortifications in Syria and Lebanon, deepening concerns about a protracted occupation in parts of the two countries.`\
 https://nytimes.com/interactive/2025/03/31/world/middleeast/undof-outposts.html
