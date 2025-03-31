@@ -1,3 +1,7 @@
+**Kevin Durant ruled out with left ankle sprain in Suns' blowout loss**\
+`Losing Durant for any stretch would be a devastating blow to Phoenix's postseason hopes. The Suns are 2-11 without him this season.`\
+https://nytimes.com/athletic/6243412/2025/03/30/kevin-durant-ankle-injury-suns/
+
 **Trump Says He’s ‘Not Joking’ About Seeking a Third Term in Defiance of Constitution**\
 `In wide-ranging remarks to “Meet the Press,” Mr. Trump said “a lot of people” wanted him to serve a third term and vowed to impose tariffs on global rivals, according to a transcript of the interview provided by NBC News.`\
 https://nytimes.com/2025/03/30/us/trump-third-term.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/30/us/elon-musk-wisconsin-supreme-court.html
 **Yohe's 10 observations: Sid the Kid shows the kids how it's done in overtime**\
 `Sidney Crosby led the way with a couple of rookies in the fold as the Penguins earned a 1-0 overtime win against Ottawa. `\
 https://nytimes.com/athletic/6241884/2025/03/30/penguins-crosby-mcgroarty-koivunen-rookies-senators/
-
-**Wild brawl in Pistons-Timberwolves results in 7 ejections**\
-`There are scuffles in games, and then there are fights. This was a fight.`\
-https://nytimes.com/athletic/6243058/2025/03/30/pistons-fight-brawl-timberwolves/
 
