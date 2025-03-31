@@ -18,7 +18,3 @@ https://nytimes.com/athletic/6244374/2025/03/31/brazil-manager-next-ancelotti-je
 `Don Lemon, Joy Reid and Jim Acosta, exiled or extricated from their networks, are now on Substack, trading sleek studios and “pancake makeup” for their living rooms.`\
 https://nytimes.com/2025/03/31/business/media/tv-news-anchors-substack.html
 
-**What to Make of These $690 Flip-Flops**\
-`A debate about the Row’s latest rubber sandals.`\
-https://nytimes.com/2025/03/31/style/flip-flops-the-row-the-olsens.html
-
