@@ -1,3 +1,11 @@
+**Judge Blocks Trump Administration’s Bid to End Deportation Protections for Venezuelans**\
+`Venezuelans with Temporary Protected Status are challenging the Trump administration’s efforts to end the program for many migrants.`\
+https://nytimes.com/2025/03/31/us/politics/trump-deportations-venezuelan-immigrants-ruling.html
+
+**Search and Recovery Continue for a Missing U.S. Soldier in Lithuania**\
+`Three U.S. Army soldiers were found dead and a fourth was missing on Monday, nearly a week after their armored vehicle became stuck in a deep and muddy bog during a training mission, the Army said.`\
+https://nytimes.com/video/world/europe/100000010084141/us-soldiers-lithuania-death.html
+
 **Critics of U.S. Attorney in Washington Push for Confirmation Hearing**\
 `Congressional aides of both parties believe that the nominee for U.S. attorney, Ed Martin, appears to have a solid chance of squeaking through on a party-line vote.`\
 https://nytimes.com/2025/03/31/us/politics/trump-ed-martin-dc-prosecutor.html

@@ -1,3 +1,11 @@
+**Judge Blocks Trump Administration’s Bid to End Deportation Protections for Venezuelans**\
+`Venezuelans with Temporary Protected Status are challenging the Trump administration’s efforts to end the program for many migrants.`\
+https://nytimes.com/2025/03/31/us/politics/trump-deportations-venezuelan-immigrants-ruling.html
+
+**Search and Recovery Continue for a Missing U.S. Soldier in Lithuania**\
+`Three U.S. Army soldiers were found dead and a fourth was missing on Monday, nearly a week after their armored vehicle became stuck in a deep and muddy bog during a training mission, the Army said.`\
+https://nytimes.com/video/world/europe/100000010084141/us-soldiers-lithuania-death.html
+
 **Critics of U.S. Attorney in Washington Push for Confirmation Hearing**\
 `Congressional aides of both parties believe that the nominee for U.S. attorney, Ed Martin, appears to have a solid chance of squeaking through on a party-line vote.`\
 https://nytimes.com/2025/03/31/us/politics/trump-ed-martin-dc-prosecutor.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6245423/2025/03/31/man-united-aston-villa-youth-cup
 **Lee Zeldin, E.P.A. Head, Shuts National Environmental Museum**\
 `The exhibits were dedicated to the agency’s history. Mr. Zeldin said closing the collection would save $600,000 annually.`\
 https://nytimes.com/2025/03/31/climate/lzeldin-epa-environmental-museum.html
-
-**GM John Schneider urges fans to trust Seahawks' O-line plan: ‘We feel good’**\
-`Schneider touted the new coaching staff and returning players while noting the Seahawks won't add a veteran O-lineman until after the draft.`\
-https://nytimes.com/athletic/6245354/2025/03/31/seahawks-offensive-line-john-schneider-free-agency/
-
-**In Espionage and War, Secure Communication Is Key. Just Ask These Spies.**\
-`As Americans scrutinize the accidental leak of a high-level U.S. group chat, several books detail other mishaps in the annals of global conflict.`\
-https://nytimes.com/2025/03/31/books/review/military-histories-about-spies-and-intelligence-services.html
 
