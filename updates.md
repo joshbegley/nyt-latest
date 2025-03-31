@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6244124/2025/03/31/expected-goals-explainer-betting-guide-tips/
 
+**xG Explained: How data metrics can help you beat the bookmakers**\
+`Brett Koremenos explores the concept of Expected Goals and how to use the metric to get around the bookmakers.
+`\
+https://nytimes.com/athletic/6244124/2025/03/31/expected-goals-explainer-betting-guide-tips/
+
 **NBA Rewind: Can Grizzlies' season be saved? Plus, stock rising for OKC, Magic, Bulls**\
 `The Grizzlies made a bold choice by firing Taylor Jenkins so late in the season. Will it pay off?`\
 https://nytimes.com/athletic/6234053/2025/03/31/nba-rewind-taylor-jenkins-grizzlies-fired/
