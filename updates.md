@@ -1,3 +1,7 @@
+**Blackhawks' rebuild reaches promising point as 6 first-rounders take the ice together**\
+`GM Kyle Davidson's vision for the Blackhawks' future is getting closer every day.`\
+https://nytimes.com/athletic/6242358/2025/03/30/blackhawks-first-rounders-rinzel-moore-rebuild/
+
 **Ravens continue to play waiting game with Justin Tucker, plan to follow NFL's lead**\
 `President Sashi Brown said the team wants to have a "great understanding of the facts" before making a decision on Tucker. `\
 https://nytimes.com/athletic/6242600/2025/03/30/ravens-justin-tucker-sashi-brown/
