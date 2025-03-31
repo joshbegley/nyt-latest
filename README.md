@@ -1,3 +1,19 @@
+**Stanford firing Frank Reich as interim football coach for 2025: Source**\
+`Stanford general manager Andrew Luck played for Reich with the Colts in 2018.`\
+https://nytimes.com/athletic/6244323/2025/03/31/stanford-hiring-frank-reich-coach/
+
+**Why Does America Have Presidential Term Limits?**\
+`Congress passed the 22nd Amendment in 1947, imposing a two-term limit after more than 170 years of George Washington’s unwritten precedent. President Trump has hinted that he wants a third term anyway.`\
+https://nytimes.com/2025/03/31/us/politics/trump-presidential-term-limits.html
+
+**They Found Love at a Construction Site, Then Were Trapped Beneath It**\
+`The Bangkok building razed by Friday’s quake employed men and women who had found love at work. Despite glimmers of hope, many were still beneath the rubble.`\
+https://nytimes.com/2025/03/31/world/asia/collapsed-bangkok-building-rescue-earthquake.html
+
+**Vermes, Sporting KC part ways ending longest coaching tenure in MLS**\
+`The 58-year-old will also vacate his role as chief soccer officer while Kerry Zavagnin will be Sporting's interim head coach.`\
+https://nytimes.com/athletic/6244294/2025/03/31/peter-vermes-sporting-kc-exit/
+
 **Alisson and Gravenberch back in Liverpool training ahead of Merseyside derby**\
 `Alisson suffered a head injury playing for Brazil against Colombia while Gravenberch left the Netherlands' training camp as a precaution.`\
 https://nytimes.com/athletic/6244195/2025/03/31/alisson-ryan-gravenberch-injury-news-liverpool/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6244187/2025/03/31/colts-anthony-richardson-daniel-
 **The Bounce: Explaining the Grizzlies' odd timing behind firing Taylor Jenkins**\
 `The Grizzlies chose a strange time to fire Taylor Jenkins. Zach Harper breaks down why it isn't too surprising. `\
 https://nytimes.com/athletic/6244054/2025/03/31/nba-taylor-jenkins-grizzlies-fired-playoffs-the-bounce/
-
-**Pereira: 'Natural' for Cunha to have title-winning ambitions**\
-`The 25-year-old spoke to the Guardian about his desire to “take the next step” in an interview published over the weekend.`\
-https://nytimes.com/athletic/6244106/2025/03/31/matheus-cunha-wolves-future-transfer/
-
-**What we learned in the NHL in March: Blues' green flags, Stars' red flags, power-play slides**\
-`Plus a look at regular-season goalie splits to see whether the past might hint at Washington's postseason plans in net.`\
-https://nytimes.com/athletic/6242996/2025/03/31/nhl-blues-stars-capitals-power-play/
-
-**Silver Fire in California Prompts Evacuations**\
-`Efforts to battle the 1,250-acre fire in eastern California were complicated by strong winds, which were expected to continue through Monday.`\
-https://nytimes.com/2025/03/31/us/silver-fire-bishop-california.html
-
-**Putin Keeps Pushing, With Trump and on the Battlefield**\
-`The Russian leader’s drones are deluging Ukrainian cities, while his negotiating tactics test the patience of the friendliest White House he has faced in decades.`\
-https://nytimes.com/2025/03/31/world/europe/putin-trump-russia-ukraine.html
 
