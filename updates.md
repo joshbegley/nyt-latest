@@ -1,3 +1,7 @@
+**Kenny Atkinson's pregame water bottle toss outburst spurs Cavaliers to 60th win**\
+`After their coach fired them up, the Cavs had their best performance in quite a while, a 127-122 win over the Clippers.`\
+https://nytimes.com/athletic/6243060/2025/03/30/kenny-atkinson-outburst-cavaliers-win-60/
+
 **Musk Says ‘Destiny of Humanity’ Rests on Wisconsin Judicial Race**\
 `“What’s happening on Tuesday is a vote for which party controls the U.S. House of Representatives,” Elon Musk told a crowd in Green Bay. “That is why it is so significant.”`\
 https://nytimes.com/2025/03/30/us/elon-musk-wisconsin-supreme-court.html

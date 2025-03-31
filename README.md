@@ -28,7 +28,7 @@ https://nytimes.com/athletic/6242600/2025/03/30/ravens-justin-tucker-sashi-brown
 
 **Phillies takeaways: The lefty starters are coming (again), timing Nola, Strahm's return**\
 `Mitchell Parker, along with fellow lefty MacKenzie Gore, held the Phillies scoreless over 12 1/3 innings with 18 strikeouts and two walks.`\
-https://nytimes.com/athletic/6243025/2025/03/30/phillies-left-handed-lineup-aaron-nola-matt-strahm/
+https://nytimes.com/athletic/6243025/2025/03/30/phillies-scores-results-standings/
 
 **FIFA considers playoff between LAFC, Club América for 2025 Club World Cup**\
 `The news follows FIFA’s decision to remove Club Lèon from the tournament, less than three months ahead of its commencement in June. `\
