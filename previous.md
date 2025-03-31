@@ -1,3 +1,7 @@
+**How Ben Johnson's play calling helped shape his path to Bears head coach**\
+`Johnson discussed how he evolved as the play caller that led the NFL's top-scoring offense and then became Bears head coach.`\
+https://nytimes.com/athletic/6244643/2025/03/31/bears-ben-johnson-play-calling/
+
 **Brazil want Ancelotti or Jesus as head coach before Club World Cup**\
 `Ancelotti's Real Madrid contract runs until next summer while Jesus' deal at Al Hilal expires at the end of the 2024-25 season.`\
 https://nytimes.com/athletic/6244374/2025/03/31/brazil-manager-next-ancelotti-jesus/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/03/31/us/politics/tariffs-estimates-consumers.html
 **USWNT, Canada to play friendly match in July international window**\
 `“Canada is a top team and this match is worthy of the Allstate Continental Clásico,” said USWNT head coach Emma Hayes.`\
 https://nytimes.com/athletic/6244563/2025/03/31/uswnt-canada-match-when/
-
-**Ryan Leonard to join Capitals after BC's NCAA tournament exit: Source**\
-`Leonard finished third in the NCAA in goals and fourth in points as a freshman last season, registering 31 goals and 60 points in 41 games.`\
-https://nytimes.com/athletic/6236292/2025/03/31/ryan-leonard-capitals-ncaa-tournament/
 
