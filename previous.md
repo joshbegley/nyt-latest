@@ -1,3 +1,11 @@
+**After Suns' latest embarrassing loss, there's only one question: Do these guys care?**\
+`Sunday’s 148-109 loss to the Houston Rockets sucked the energy out of PHX Arena and the soul from the league’s most expensive team.`\
+https://nytimes.com/athletic/6243576/2025/03/31/phoenix-suns-embarrassing-loss/
+
+**Word of the Day: impropriety**\
+`This word has appeared in 88 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/03/31/learning/word-of-the-day-impropriety.html
+
 **‘Dying for Sex,’ Plus 7 Things to Watch on TV this Week**\
 `The Hulu show starring Michelle Williams premieres, and the third season of “White Lotus” wraps up.`\
 https://nytimes.com/2025/03/31/arts/television/dying-for-sex.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6234858/2025/03/31/newcastle-europe-impact/
 **Why has Wolves' academy not produced another Morgan Gibbs-White?**\
 `As part of our Inspired by You series, subscribers asked us to find out what's going on with the club's academy - so we did`\
 https://nytimes.com/athletic/6239125/2025/03/31/wolves-academy-inspired-by-you/
-
-**What is the role of Manchester United's academy in 2025?**\
-`A look at the club's priorities when it comes to their youth teams and the pathways provided to those players`\
-https://nytimes.com/athletic/6241939/2025/03/31/manchester-united-academy-role/
-
-**Goals galore and a willingness to be self-sufficient - would Gyokeres be a good fit for Arsenal?**\
-`Aside from the mind-boggling goal tally, the Sweden striker occupies defenders and tends to make something out of nothing single-handedly`\
-https://nytimes.com/athletic/6242470/2025/03/31/gyokeres-arsenal-sporting-sweden-fit/
 

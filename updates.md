@@ -1,3 +1,11 @@
+**After Suns' latest embarrassing loss, there's only one question: Do these guys care?**\
+`Sunday’s 148-109 loss to the Houston Rockets sucked the energy out of PHX Arena and the soul from the league’s most expensive team.`\
+https://nytimes.com/athletic/6243576/2025/03/31/phoenix-suns-embarrassing-loss/
+
+**Word of the Day: impropriety**\
+`This word has appeared in 88 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/03/31/learning/word-of-the-day-impropriety.html
+
 **Why has Wolves' academy not produced another Morgan Gibbs-White?**\
 `As part of our Inspired by You series, subscribers asked us to find out what's going on with the club's academy - so we did`\
 https://nytimes.com/athletic/6239125/2025/03/31/wolves-academy-inspired-by-you/
