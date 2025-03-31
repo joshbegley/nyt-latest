@@ -1,3 +1,19 @@
+**Putin Keeps Pushing, With Trump and on the Battlefield**\
+`The Russian leader’s drones are deluging Ukrainian cities, while his negotiating tactics test the patience of the friendliest White House he has faced in decades.`\
+https://nytimes.com/2025/03/31/world/europe/putin-trump-russia-ukraine.html
+
+**Adams Asks Judge to Speed Up Decision on Dropping Corruption Charges**\
+`The federal government wants the bribery and fraud charges against New York’s mayor to be dropped so he can help President Trump’s deportation program. A judge is considering the matter as the mayoral race heats up.`\
+https://nytimes.com/2025/03/31/nyregion/eric-adams-corruption-charges-judge-ho.html
+
+**Trump Family Pushes Further Into Crypto, Starting Another Venture**\
+`Eric Trump and Donald Trump Jr. are investing in a Bitcoin-mining company called American Bitcoin, created by the merger of two firms.`\
+https://nytimes.com/2025/03/31/business/trump-bitcoin-mining.html
+
+**Spurs' Levy addresses transfers criticism: 'Spending must be sustainable'**\
+`"A closer examination of today’s financial figures reveals that such spending must be sustainable in the long term," Levy said.`\
+https://nytimes.com/athletic/6244158/2025/03/31/tottenham-daniel-levy-transfers/
+
 **xG Explained: How data metrics can help you beat the bookmakers**\
 `Brett Koremenos explores the concept of Expected Goals and how to use the metric to get around the bookmakers.
 `\
@@ -22,20 +38,4 @@ https://nytimes.com/2025/03/31/world/asia/myanmar-earthquake-rescue.html
 **Gluck: Embarrassing Xfinity race leaves NASCAR's second-tier series searching for answers**\
 `A caution-filled Xfinity Series race at Martinsville drew criticism in the Cup Series garage and put a spotlight on a tricky problem.`\
 https://nytimes.com/athletic/6243282/2025/03/31/nascar-xfinity-series-martinsville-race-crashes-cautions/
-
-**Real Estate Fund Exceeds $2.5 Billion for Affordable Housing**\
-`The size of the fund, which is run by the Vistria Group, highlights how investors see an opportunity to address the nation’s housing crisis.`\
-https://nytimes.com/2025/03/31/business/dealbook/real-estate-fund-raises-2-5-billion-for-affordable-housing.html
-
-**Padres takeaways: Leadoff pays off, depth matters and the experience factor**\
-`Fernando Tatis Jr. has brought a welcome element to the top of San Diego's order, as a 4-0 start has shown.`\
-https://nytimes.com/athletic/6242421/2025/03/31/san-diego-padres-fernando-tatis-leadoff/
-
-**Do You Know Where These Jazz Age Novels Are Set?**\
-`Even though it’s been more than a century since some of these novels roared onto the literary scene, they all remain classics of the era. Try this short quiz to see how many you remember.`\
-https://nytimes.com/interactive/2025/03/31/books/review/jazz-age-novels.html
-
-**Canadiens weekly notebook: Hutson’s defensive game, Suzuki’s Olympic competition and more**\
-`Also this week, a potential future third-line pairing for Montreal getting an audition and have we found the source of St. Louis' Martyisms?`\
-https://nytimes.com/athletic/6243640/2025/03/31/canadiens-lane-hutson-nick-suzuki-panthers-win/
 
