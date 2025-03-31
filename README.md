@@ -1,3 +1,11 @@
+**Jim Jarmusch, New York Fixture, Showed His Art in Los Angeles. His Fans Showed Up.**\
+`Angelenos flocked to meet the artist and filmmaker, who came to the West Coast for the opening of his solo exhibition “Some More Collages.”`\
+https://nytimes.com/2025/03/31/style/jim-jarmusch-some-more-collages-exhibit-la.html
+
+**Hank Steinbrecher, Who Helped Elevate Soccer in the U.S., Dies at 77**\
+`He was also a key figure in raising American soccer’s profile on the world stage. Earlier, as a marketer, he saw opportunities in the football ritual of dousing coaches with Gatorade.`\
+https://nytimes.com/2025/03/31/sports/soccer/hank-steinbrecher-dead.html
+
 **Why Morgan Wallen’s Abrupt ‘S.N.L.’ Exit Is Being Dissected**\
 `The pop-country superstar followed his departure from the stage with a social media post about needing to get “to God’s country.”`\
 https://nytimes.com/2025/03/31/arts/television/morgan-wallen-saturday-night-live.html
@@ -23,18 +31,10 @@ https://nytimes.com/2025/03/31/arts/design/library-agency-trump-museums.html
 https://nytimes.com/athletic/6245018/2025/03/31/nfl-thursday-night-football-flex-hard-knocks/
 
 **Trump Administration Will Review Billions in Funding for Harvard**\
-`The administration has already canceled hundreds of millions in federal grants and contracts at Columbia and the University of Pennsylvania.`\
+`The move follows the cancellation of roughly $400 million in funding for Columbia, and suspension of $175 million for the University of Pennsylvania.`\
 https://nytimes.com/2025/03/31/us/trump-administration-harvard-funding.html
 
 **Elon Musk Gives Away $1 Million Checks at Wisconsin Rally**\
 `Elon Musk appeared at a rally where he called on people to vote for Brad Schimel, a Wisconsin Supreme Court candidate, ahead of the high-stakes election.`\
 https://nytimes.com/video/us/elections/100000010082749/musk-million-dollar-checks-wisconsin-rally.html
-
-**Wolves defender Mosquera signs new five-year deal**\
-`The Colombia international's new deal will see him stay at Molineux until 2030 with an option of an additional 12 months.`\
-https://nytimes.com/athletic/6245074/2025/03/31/wolves-yerson-mosquera-contract-update/
-
-**Brad Holmes on Lions' 2025 offseason moves, free agency, Za'Darius Smith and more**\
-`The Lions' general manager also explained the status of third-year players Hendon Hooker and Brodric Martin.`\
-https://nytimes.com/athletic/6244784/2025/03/31/lions-brad-holmes-offseason-moves-free-agency-nfl-2025/
 
