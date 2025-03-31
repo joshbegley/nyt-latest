@@ -1,3 +1,11 @@
+**Why Morgan Wallen’s Abrupt ‘S.N.L.’ Exit Is Being Dissected**\
+`The pop-country superstar followed his departure from the stage with a social media post about needing to get “to God’s country.”`\
+https://nytimes.com/2025/03/31/arts/television/morgan-wallen-saturday-night-live.html
+
+**Democrats cry foul on a G.O.P. budgeting trick that declares tax cuts free.**\
+`Democratic senators declared the gimmick “a lie to the American people” as their aides made the case that the top rules official in the Senate should bar its use in the Republican budget.`\
+https://nytimes.com/live/2025/03/31/us/trump-tariffs-news/trump-budget-free-tax-cuts
+
 **U.A.E. Sentences Three People to Death for Killing an Israeli Rabbi**\
 `Emirati authorities decided on a punishment for the “premeditated murder with terrorist intention” of Rabbi Zvi Kogan but offered no details about the crime.`\
 https://nytimes.com/2025/03/31/world/middleeast/uae-death-sentence-rabbi-killing.html
