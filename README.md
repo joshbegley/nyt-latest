@@ -1,3 +1,11 @@
+**U.S. Tied Migrants to Gang Based Largely on Clothes or Tattoos, Papers Show**\
+`The court papers suggest that the administration has set a low bar for seeking the removal of the Venezuelan migrants, whom officials have described as belonging to the street gang, Tren de Aragua.`\
+https://nytimes.com/2025/03/31/us/politics/us-deportations-tren-de-aragua-deportation-guidance.html
+
+**Minnesota Student Detained by ICE Was Not an Activist, Lawsuit Says**\
+`Lawyers and experts say the arrest last week of a University of Minnesota graduate student may signal a new front in the Trump administration’s approach to immigration.`\
+https://nytimes.com/2025/03/31/us/minnesota-student-immigration-arrest.html
+
 **UNC's Elliot Cadeau to transfer to Michigan: What he brings to Wolverines**\
 `Dusty May is landing a brilliant passer, but a guard who was also the epitome of a boom-or-bust player with Tar Heels.`\
 https://nytimes.com/athletic/6245477/2025/03/31/elliot-cadeau-transfers-michigan-unc/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/31/nyregion/dasheeda-dawson-cannabis-nyc.html
 **Rafael Devers’ historically rough start continues, but Red Sox remain patient**\
 `Devers' early-season woes continued in the opener in Baltimore, with three more strikeouts. He now has 15 through the first five games.`\
 https://nytimes.com/athletic/6245403/2025/03/31/rafael-devers-strikeouts-red-sox/
-
-**Judge Blocks Trump Administration’s Bid to End Deportation Protections for Venezuelans**\
-`Venezuelans with Temporary Protected Status are challenging the Trump administration’s efforts to end the program for many migrants.`\
-https://nytimes.com/2025/03/31/us/politics/trump-deportations-venezuelan-immigrants-ruling.html
-
-**Search and Recovery Continue for a Missing U.S. Soldier in Lithuania**\
-`Three U.S. Army soldiers were found dead and a fourth was missing on Monday, nearly a week after their armored vehicle became stuck in a deep and muddy bog during a training mission, the Army said.`\
-https://nytimes.com/video/world/europe/100000010084141/us-soldiers-lithuania-death.html
 
