@@ -1,3 +1,19 @@
+**Liverpool, Everton and the 'conjoined stadium' that never was**\
+`In 2010, a proposal to build a dual stadium in Stanley Park was put to Merseyside's leading teams. The Athletic speaks to those behind it`\
+https://nytimes.com/athletic/6220985/2025/03/31/everton-liverpool-stadium-joint-design/
+
+**Billy Gilmour on Conte's Napoli, nights out with McTominay and paying tribute to Maradona**\
+`The former Chelsea midfielder thinks playing abroad was always going to suit him, as Napoli chase a second Serie A title in three years`\
+https://nytimes.com/athletic/6232046/2025/03/31/billy-gilmour-napoli-conte-mctominay-scotland/
+
+**The Premier League is back - and it's all about the race for a top-five finish**\
+`Assessing the strengths and weaknesses of the seven teams who are in the fight to finish fourth and fifth this season`\
+https://nytimes.com/athletic/6226328/2025/03/31/premier-league-champions-league-projections/
+
+**The Briefing: Would FA Cup salvage season for Guardiola? Glasner's turnaround; The penalty pros**\
+`Nick Miller answers the big questions to arise from the weekend's action`\
+https://nytimes.com/athletic/6242316/2025/03/31/man-city-forest-fa-cup-palace/
+
 **Rashford at Villa is a process and perseverance is paying off for Emery**\
 `It's premature to say the on-loan Man United forward is back to his best, but his first goals for Villa show he is moving in right direction`\
 https://nytimes.com/athletic/6241953/2025/03/31/marcus-rashford-villa-man-united/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/31/world/trump-foreign-policy-trust.html
 **Quote of the Day: Sacramento Roots, Roots, Roots for Home Team with No Home**\
 `Quote of the Day for Monday, March 31, 2025`\
 https://nytimes.com/2025/03/31/pageoneplus/quote-of-the-day-sacramento-roots-roots-roots-for-home-team-with-no-home.html
-
-**Zimbabwe’s Leader Faces Call for Removal From Within His Own Party**\
-`Nearly eight years after the coup that brought him to power, President Emmerson Mnangagwa is under threat from opponents within his governing ZANU-PF party, who have urged mass protests.`\
-https://nytimes.com/2025/03/31/world/africa/zimbabwe-demonstrations-mnangagwa.html
-
-**Funfairs, river walks, leafy parks, and Hugh Grant - welcome to Fulham (away)**\
-`Until fairly recently, Fulham were so accommodating that they even had a neutral stand where home and away fans could sit next to each other`\
-https://nytimes.com/athletic/6240194/2025/03/31/fulham-craven-cottage-unique/
-
-**As Tensions Escalate Between Trump and Europe, Meloni Is Caught in the Middle**\
-`Each new crisis, whether over Ukraine or tariffs, has made the Italian prime minister’s balancing act that much harder.`\
-https://nytimes.com/2025/03/31/world/europe/italy-meloni-trump-europe-tensions.html
-
-**Why China Is Wary of a Trump-Xi Summit**\
-`It could take months for agreement on a meeting between President Trump and Xi Jinping, China’s top leader, as Chinese officials seek a scripted encounter.`\
-https://nytimes.com/2025/03/31/business/trump-xi-summit-tariffs.html
 
