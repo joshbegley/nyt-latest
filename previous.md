@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6244563/2025/03/31/uswnt-canada-match-when/
 https://nytimes.com/athletic/6236292/2025/03/31/ryan-leonard-capitals-ncaa-tournament/
 
 **As Lamar Jackson's contract extension looms, Ravens know 'the value is the top'**\
-`Jackson and Baltimore agreed to a five-year, $260 million contract extension less than two years ago.`\
+`By agreeing to a deal with Jackson soon, Baltimore could get ahead of negotiations that will become a necessity next offseason. `\
 https://nytimes.com/athletic/6244497/2025/03/31/ravens-lamar-jackson-john-harbaugh-contract-extension/
 
 **Watch: Which NBA team is under most pressure to avoid the Play-In Tournament?**\

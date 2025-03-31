@@ -1,3 +1,7 @@
+**As Lamar Jackson's contract extension looms, Ravens know 'the value is the top'**\
+`By agreeing to a deal with Jackson soon, Baltimore could get ahead of negotiations that will become a necessity next offseason. `\
+https://nytimes.com/athletic/6244497/2025/03/31/ravens-lamar-jackson-john-harbaugh-contract-extension/
+
 **What to Make of These $690 Flip-Flops**\
 `A debate about the Row’s latest rubber sandals.`\
 https://nytimes.com/2025/03/31/style/flip-flops-the-row-the-olsens.html

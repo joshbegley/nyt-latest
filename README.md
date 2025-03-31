@@ -1,3 +1,11 @@
+**Brazil want Ancelotti or Jesus as head coach before Club World Cup**\
+`Ancelotti's Real Madrid contract runs until next summer while Jesus' deal at Al Hilal expires at the end of the 2024-25 season.`\
+https://nytimes.com/athletic/6244374/2025/03/31/brazil-manager-next-ancelotti-jesus/
+
+**The Loosening of American News Anchors**\
+`Don Lemon, Joy Reid and Jim Acosta, exiled or extricated from their networks, are now on Substack, trading sleek studios and “pancake makeup” for their living rooms.`\
+https://nytimes.com/2025/03/31/business/media/tv-news-anchors-substack.html
+
 **What to Make of These $690 Flip-Flops**\
 `A debate about the Row’s latest rubber sandals.`\
 https://nytimes.com/2025/03/31/style/flip-flops-the-row-the-olsens.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6244563/2025/03/31/uswnt-canada-match-when/
 **Ryan Leonard to join Capitals after BC's NCAA tournament exit: Source**\
 `Leonard finished third in the NCAA in goals and fourth in points as a freshman last season, registering 31 goals and 60 points in 41 games.`\
 https://nytimes.com/athletic/6236292/2025/03/31/ryan-leonard-capitals-ncaa-tournament/
-
-**As Lamar Jackson's contract extension looms, Ravens know 'the value is the top'**\
-`By agreeing to a deal with Jackson soon, Baltimore could get ahead of negotiations that will become a necessity next offseason. `\
-https://nytimes.com/athletic/6244497/2025/03/31/ravens-lamar-jackson-john-harbaugh-contract-extension/
-
-**Watch: Which NBA team is under most pressure to avoid the Play-In Tournament?**\
-`NBA Daily discuss whether the Lakers, Grizzlies, Warriors, Timberwolves or Clippers are under the most pressure to secure a top-six seed.`\
-https://nytimes.com/athletic/6244014/2025/03/31/nba-daily-nba-teams-pressure-play-in-tournament/
 
