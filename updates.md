@@ -1,3 +1,7 @@
+**Rams GM Les Snead offers insight on potential Kyren Williams deal**\
+`The Rams GM touched on Kyren Williams, Matthew Stafford's contract, drafting a QB and what adding Coleman Shelton means.`\
+https://nytimes.com/athletic/6244757/2025/03/31/rams-kyren-williams-contract-les-snead-owners-meetings/
+
 **Are Zac Taylor, Bengals doing enough up front to protect their investments?**\
 `Joe Burrow, Ja'Marr Chase and Tee Higgins are set with their contracts but glaring needs at guard jeopardize their effectiveness.`\
 https://nytimes.com/athletic/6244607/2025/03/31/bengals-zac-taylor-offensive-line-nfl-owners-meetings/
