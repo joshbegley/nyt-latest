@@ -1,3 +1,7 @@
+**Arsenal and Tottenham announce first north London derby outside of UK**\
+`The July 31 fixture is part of the Hong Kong Football Festival (HKFF) and will be held at the 50,000 seater Kai Tak Stadium.`\
+https://nytimes.com/athletic/6243690/2025/03/31/arsenal-tottenham-hong-kong-north-london-derby/
+
 **He Went to Prison for One Punch. 7 Years Later, It Became a Homicide.**\
 `Gary Anderson hit Domingo Tapia for reasons never explained, sending Mr. Tapia into a coma and Mr. Anderson to prison. Mr. Tapia later died, and his attacker faces manslaughter charges.`\
 https://nytimes.com/2025/03/31/nyregion/brooklyn-punch-murder-charges-domingo-tapia.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/03/31/todays-new-york-times
 **Greenland’s Prime Minister Says the U.S. Will Not ‘Get’ the Island**\
 `“We do not belong to anyone else,” Prime Minister Jens-Frederik Nielsen said in response to President Trump’s latest assertion that he wants to annex the territory.`\
 https://nytimes.com/2025/03/31/us/politics/greenland-prime-minister-trump.html
-
-**Still no relief for Cubs after huge bullpen letdown: 'Wasn’t a good day'**\
-`Cubs relievers allow 10 runs as a comfortable lead turns into a 10-6 loss to Diamondbacks.`\
-https://nytimes.com/athletic/6243407/2025/03/31/chicago-cubs-relief-pitchers-diamondbacks/
 
