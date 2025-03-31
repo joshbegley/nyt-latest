@@ -1,3 +1,8 @@
+**xG Explained: How data metrics can help you beat the bookmakers**\
+`Brett Koremenos explores the concept of Expected Goals and how to use the metric to get around the bookmakers.
+`\
+https://nytimes.com/athletic/6244124/2025/03/31/expected-goals-explainer-betting-guide-tips/
+
 **Putin Keeps Pushing, With Trump and on the Battlefield**\
 `The Russian leader’s drones are deluging Ukrainian cities, while his negotiating tactics test the patience of the friendliest White House he has faced in decades.`\
 https://nytimes.com/2025/03/31/world/europe/putin-trump-russia-ukraine.html
