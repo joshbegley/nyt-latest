@@ -1,3 +1,15 @@
+**Estimates Imply That Burden of Tariffs Could Fall Heavily on Consumers**\
+`A White House trade adviser projected that tariffs would raise about $6 trillion over the next decade. But raising so much revenue for the government conflicts with the administration’s goal of reshoring manufacturing.`\
+https://nytimes.com/2025/03/31/us/politics/tariffs-estimates-consumers.html
+
+**USWNT, Canada to play friendly match in July international window**\
+`“Canada is a top team and this match is worthy of the Allstate Continental Clásico,” said USWNT head coach Emma Hayes.`\
+https://nytimes.com/athletic/6244563/2025/03/31/uswnt-canada-match-when/
+
+**Ryan Leonard to join Capitals after BC's NCAA tournament exit: Source**\
+`Leonard finished third in the NCAA in goals and fourth in points as a freshman last season, registering 31 goals and 60 points in 41 games.`\
+https://nytimes.com/athletic/6236292/2025/03/31/ryan-leonard-capitals-ncaa-tournament/
+
 **Ravens understand a Lamar Jackson extension will happen 'sooner or later'**\
 `Jackson and Baltimore agreed to a five-year, $260 million contract extension less than two years ago on the eve of the 2023 NFL Draft.`\
 https://nytimes.com/athletic/6244497/2025/03/31/ravens-lamar-jackson-john-harbaugh-contract-extension/
