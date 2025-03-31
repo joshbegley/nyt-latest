@@ -1,3 +1,7 @@
+**Talk of the Devils announces new UK and Ireland tour for 2025**\
+`Talk of the Devils has announced a new slate of tour dates for 2025`\
+https://nytimes.com/athletic/6235043/2025/03/31/talk-of-the-devils-2025-tour-dates-uk-ireland/
+
 **Yankees takeaways: Stellar start about more than ‘torpedo’ bats**\
 `The 3-0 Yankees outscored the Brewers 36-14 to open the season. There's plenty of enthusiasm and many questions still to be answered.`\
 https://nytimes.com/athletic/6242889/2025/03/31/yankees-stellar-start-torpedo-bats/
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/6243085/2025/03/31/mlb-torpedo-bats-players-intrigu
 `The A's three-year stopover in Sacramento on their way to Las Vegas is unusual in the extreme, and that has meant some uncertain moments.`\
 https://nytimes.com/athletic/6243315/2025/03/31/sacramento-athletics-oakland-mlb-kings/
 
-**Michigan State is done. But Tom Izzo isn't going anywhere**\
-`Michigan State fell short of the Final Four against Auburn, but the 70-year-old Izzo says "this year has reinvigorated" him.`\
-https://nytimes.com/athletic/6243512/2025/03/31/tom-izzo-michigan-state-auburn/
-
-**ICE on Campus**\
-`The Trump administration’s immigration crackdown at universities has targeted pro-Palestinian students who have been in the United States legally.`\
-https://nytimes.com/2025/03/31/podcasts/the-daily/ice-tufts-columbia-student.html
+**This Week in Mets: Clay Holmes, Tylor Megill and rotation takeaways from opening series**\
+`Despite a series defeat, Clay Holmes, Tylor Megill and Griffin Canning answered some questions with their impressive starts.`\
+https://nytimes.com/athletic/6241421/2025/03/31/mets-rotation-takeaways-clay-holmes/
 

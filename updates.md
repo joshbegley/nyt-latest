@@ -1,3 +1,11 @@
+**Talk of the Devils announces new UK and Ireland tour for 2025**\
+`Talk of the Devils has announced a new slate of tour dates for 2025`\
+https://nytimes.com/athletic/6235043/2025/03/31/talk-of-the-devils-2025-tour-dates-uk-ireland/
+
+**This Week in Mets: Clay Holmes, Tylor Megill and rotation takeaways from opening series**\
+`Despite a series defeat, Clay Holmes, Tylor Megill and Griffin Canning answered some questions with their impressive starts.`\
+https://nytimes.com/athletic/6241421/2025/03/31/mets-rotation-takeaways-clay-holmes/
+
 **Yankees takeaways: Stellar start about more than ‘torpedo’ bats**\
 `The 3-0 Yankees outscored the Brewers 36-14 to open the season. There's plenty of enthusiasm and many questions still to be answered.`\
 https://nytimes.com/athletic/6242889/2025/03/31/yankees-stellar-start-torpedo-bats/
