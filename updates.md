@@ -1,3 +1,11 @@
+**Trump Administration Live Updates: President Says He’s ‘Not Joking’ About a Possible Third Term**\
+``\
+https://nytimes.com/live/2025/03/31/us/trump-news
+
+**Chelsea's run-in: Where the bid for Champions League qualification will be won or lost**\
+`Five games at home, four away and players back from injury - where does that leave their chances of finishing in the top five?`\
+https://nytimes.com/athletic/6238859/2025/03/31/chelsea-premier-league-run-in/
+
 **Trump Administration Live Updates: President Says He’s ‘Not Joking’ About a Third Term**\
 ``\
 https://nytimes.com/live/2025/03/31/us/trump-news

@@ -1,4 +1,4 @@
-**Trump Administration Live Updates: President Says He’s ‘Not Joking’ About a Third Term**\
+**Trump Administration Live Updates: President Says He’s ‘Not Joking’ About a Possible Third Term**\
 ``\
 https://nytimes.com/live/2025/03/31/us/trump-news
 
@@ -13,6 +13,10 @@ https://nytimes.com/athletic/6220143/2025/03/31/los-angeles-chargers-2025-nfl-dr
 **Los Angeles Rams NFL Draft 2025 guide: Picks, predictions and key needs**\
 `The Rams are set to pick at No. 26 in the first round and have eight total picks in the NFL Draft.`\
 https://nytimes.com/athletic/6233149/2025/03/31/los-angeles-rams-2025-nfl-draft-picks-needs-predictions-guide/
+
+**Chelsea's run-in: Where the bid for Champions League qualification will be won or lost**\
+`Five games at home, four away and players back from injury - where does that leave their chances of finishing in the top five?`\
+https://nytimes.com/athletic/6238859/2025/03/31/chelsea-premier-league-run-in/
 
 **Cardinals sweep Twins to open season: 3 takeaways from 3 wins**\
 `Pedro Pagés helped lead an offensive barrage as the homer-happy Cardinals scored 19 runs in the series.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6240963/2025/03/31/red-wings-draft-free-agent-targe
 **What stands out so far in Alabama's spring practice?**\
 `After only two practices last week, here’s what we saw, heard and learned with the A-Day game set for April 12.`\
 https://nytimes.com/athletic/6242941/2025/03/31/alabama-football-spring-practice-storylines/
-
-**Alex Ovechkin's classy gesture fitting end to love-hate relationship with Marc-Andre Fleury**\
-`Plus an update on Zeev Buium after Denver's clash with Boston College in the NCAA regionals.`\
-https://nytimes.com/athletic/6242416/2025/03/31/wild-insider-fleury-ovechkin-buium/
 
