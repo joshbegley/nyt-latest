@@ -1,3 +1,7 @@
+**Stocks Sink as Trump’s Tariff Threats Weigh on Confidence**\
+`Stocks in Japan tumbled nearly 4 percent as investors braced for a week of market turmoil caused by an expected announcement of more tariffs.`\
+https://nytimes.com/2025/03/30/business/stocks-nikkei-sp500.html
+
 **Sabres thoughts: A big goalie question, Jack Quinn's scoring surge and more**\
 `The 2024-25 Sabres are capable of beating any team in the league and just as capable of losing to any team in the league.`\
 https://nytimes.com/athletic/6243260/2025/03/30/sabres-jack-quinn-goalies-krebs-capitals/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6243139/2025/03/30/lsu-flaujae-johnson-wnba-elite-e
 **Blackhawks' rebuild reaches promising point as 6 first-rounders take the ice together**\
 `GM Kyle Davidson's vision for the Blackhawks' future is getting closer every day.`\
 https://nytimes.com/athletic/6242358/2025/03/30/blackhawks-first-rounders-rinzel-moore-rebuild/
-
-**Ravens continue to play waiting game with Justin Tucker, plan to follow NFL's lead**\
-`President Sashi Brown said the team wants to have a "great understanding of the facts" before making a decision on Tucker. `\
-https://nytimes.com/athletic/6242600/2025/03/30/ravens-justin-tucker-sashi-brown/
 
