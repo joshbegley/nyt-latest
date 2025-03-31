@@ -1,3 +1,7 @@
+**Submit your questions for Jeremy Rutherford’s St. Louis Blues mailbag**\
+`Have a question about the Blues? Submit it here and The Athletic’s Jeremy Rutherford will address a selection in his upcoming mailbag.`\
+https://nytimes.com/athletic/6244465/2025/03/31/st-louis-blues-jeremy-rutherford-mailbag-april-2025/
+
 **Ask CJ: Submit your NHL questions for Chris Johnston’s mailbag**\
 `Whether it’s playoff races, record pursuits, free agency or the league's inner workings, we want to know. Drop your questions here.`\
 https://nytimes.com/athletic/6244464/2025/03/31/nhl-mailbag-playoff-races-ovechkin/
