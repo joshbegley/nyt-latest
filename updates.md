@@ -1,3 +1,7 @@
+**Wolves defender Mosquera signs new five-year deal**\
+`The Colombia international's new deal will see him stay at Molineux until 2030 with an option of an additional 12 months.`\
+https://nytimes.com/athletic/6245074/2025/03/31/wolves-yerson-mosquera-contract-update/
+
 **Brad Holmes on Lions' 2025 offseason moves, free agency, Za'Darius Smith and more**\
 `The Lions' general manager also explained the status of third-year players Hendon Hooker and Brodric Martin.`\
 https://nytimes.com/athletic/6244784/2025/03/31/lions-brad-holmes-offseason-moves-free-agency-nfl-2025/
