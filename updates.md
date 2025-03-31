@@ -1,3 +1,19 @@
+**Indianapolis Colts NFL Draft 2025 guide: Picks, predictions and key needs**\
+`The Colts own the No. 14 pick and seven picks total in the NFL Draft. Will they add a TE in Round 1 or target another need?`\
+https://nytimes.com/athletic/6227667/2025/03/31/indianapolis-colts-2025-nfl-draft-picks-needs-predictions-guide/
+
+**Green Bay Packers NFL Draft 2025 guide: Picks, predictions and key needs**\
+`What you need to know as the Packers head into, and host, the NFL Draft.`\
+https://nytimes.com/athletic/6222142/2025/03/31/green-bay-packers-2025-nfl-draft-picks-needs-predictions-guide/
+
+**Dallas Cowboys NFL Draft 2025 guide: Picks, predictions and key needs**\
+`The Cowboys have the 12th overall pick and 10 total selections in the NFL Draft.`\
+https://nytimes.com/athletic/6233115/2025/03/31/dallas-cowboys-2025-nfl-draft-picks-needs-predictions-guide/
+
+**Arsenal's Saka 'ready to go' ahead of return from hamstring injury**\
+`The England international could even feature from the start when Arsenal entertain Fulham on Tuesday night.`\
+https://nytimes.com/athletic/6237996/2025/03/31/bukayo-saka-arsenal-injury-return-update/
+
 **Uncertainty Torments Afghan Refugees Facing Deportation from Pakistan**\
 `Monday marks the deadline for Afghans sheltering in Pakistan to leave the country, with the prospect of a dangerous future in Taliban-led Afghanistan ahead.`\
 https://nytimes.com/2025/03/31/world/asia/uncertainty-torments-afghan-refugees-facing-deportation-from-pakistan.html
