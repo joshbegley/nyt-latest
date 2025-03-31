@@ -1,3 +1,11 @@
+**Odds say men's college basketball title is Duke's to lose**\
+`Entering the Final Four, it looks like it is Duke vs. everyone else in the national title odds.`\
+https://nytimes.com/athletic/6242322/2025/03/30/march-madness-national-title-odds-duke-florida-houston-auburn/
+
+**Giants take opening series behind Matt Chapman's bat, glove**\
+`There's a consensus, statistically and anecdotally, that Chapman is very good at baseball relative to his peers.`\
+https://nytimes.com/athletic/6235647/2025/03/30/giants-opening-series-matt-chapman/
+
 **Museum of Now**\
 `A tour of some unusual artifacts from the present.`\
 https://nytimes.com/2025/03/30/podcasts/museum-of-now-this-american-life-nyt-audio.html
