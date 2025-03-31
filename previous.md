@@ -1,6 +1,10 @@
-**Wild brawl in Pistons-Timberwolves ends in 7 ejections**\
+**Yohe's 10 observations: Sid the Kid shows the kids how it's done in overtime**\
+`Sidney Crosby led the way with a couple of rookies in the fold as the Penguins earned a 1-0 overtime win against Ottawa. `\
+https://nytimes.com/athletic/6241884/2025/03/30/penguins-crosby-mcgroarty-koivunen-rookies-senators/
+
+**Wild brawl in Pistons-Timberwolves results in 7 ejections**\
 `There are scuffles in games, and then there are fights. This was a fight.`\
-https://nytimes.com/athletic/6243058/2025/03/30/pistons-timberwolves-game-brawl-ejections/
+https://nytimes.com/athletic/6243058/2025/03/30/pistons-fight-brawl-timberwolves/
 
 **Will Flau'jae Johnson head to the WNBA? Or will championship goals bring her back to LSU?**\
 `“I want to be in the Final Four. I want my own one. Where I lead the team." `\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6235647/2025/03/30/giants-opening-series-matt-chapm
 **Museum of Now**\
 `A tour of some unusual artifacts from the present.`\
 https://nytimes.com/2025/03/30/podcasts/museum-of-now-this-american-life-nyt-audio.html
-
-**Maxim Naumov’s late parents are with him on the ice, now and forever**\
-`The 23-year-old skater delivered a flawless exhibition of love at the “Exhibition of Champions” and ended it with a message to his parents.`\
-https://nytimes.com/athletic/6242773/2025/03/30/world-figure-skating-championships-maxim-naumov/
 

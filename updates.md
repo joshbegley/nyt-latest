@@ -1,3 +1,11 @@
+**Yohe's 10 observations: Sid the Kid shows the kids how it's done in overtime**\
+`Sidney Crosby led the way with a couple of rookies in the fold as the Penguins earned a 1-0 overtime win against Ottawa. `\
+https://nytimes.com/athletic/6241884/2025/03/30/penguins-crosby-mcgroarty-koivunen-rookies-senators/
+
+**Wild brawl in Pistons-Timberwolves results in 7 ejections**\
+`There are scuffles in games, and then there are fights. This was a fight.`\
+https://nytimes.com/athletic/6243058/2025/03/30/pistons-fight-brawl-timberwolves/
+
 **Wild brawl in Pistons-Timberwolves ends in 7 ejections**\
 `There are scuffles in games, and then there are fights. This was a fight.`\
 https://nytimes.com/athletic/6243058/2025/03/30/pistons-timberwolves-game-brawl-ejections/
