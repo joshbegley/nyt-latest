@@ -1,3 +1,7 @@
+**Netanyahu Names New Intel Chief Despite Showdown With Court**\
+`Benjamin Netanyahu, the Israeli prime minister, named a new head of Israel’s domestic intelligence agency on Monday. Judges had frozen the dismissal of the current chief.`\
+https://nytimes.com/2025/03/31/world/middleeast/israel-netanyahu-shin-bet.html
+
 **After Suns' latest embarrassing loss, there's only one question: Do these guys care?**\
 `Sunday’s 148-109 loss to the Houston Rockets sucked the energy out of PHX Arena and the soul from the league’s most expensive team.`\
 https://nytimes.com/athletic/6243576/2025/03/31/phoenix-suns-embarrassing-loss/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6238137/2025/03/31/barcelona-alejandro-balde-rise/
 **How being in Europe will impact Newcastle's plans: Money, recruitment and silverware**\
 `A breakdown of each of this season's outcomes and what it's likely to prompt this summer`\
 https://nytimes.com/athletic/6234858/2025/03/31/newcastle-europe-impact/
-
-**Why has Wolves' academy not produced another Morgan Gibbs-White?**\
-`As part of our Inspired by You series, subscribers asked us to find out what's going on with the club's academy - so we did`\
-https://nytimes.com/athletic/6239125/2025/03/31/wolves-academy-inspired-by-you/
 
