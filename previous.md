@@ -1,3 +1,7 @@
+**Elon Musk Gives Away $1 Million Checks at Wisconsin Rally**\
+`Elon Musk appeared at a rally where he called on people to vote for Brad Schimel, a Wisconsin Supreme Court candidate, ahead of the high-stakes election.`\
+https://nytimes.com/video/us/elections/100000010082749/musk-million-dollar-checks-wisconsin-rally.html
+
 **Wolves defender Mosquera signs new five-year deal**\
 `The Colombia international's new deal will see him stay at Molineux until 2030 with an option of an additional 12 months.`\
 https://nytimes.com/athletic/6245074/2025/03/31/wolves-yerson-mosquera-contract-update/
@@ -25,8 +29,4 @@ https://nytimes.com/athletic/6244649/2025/03/31/chiefs-super-bowl-trump-white-ho
 **Aaron Glenn on Justin Fields and the running back room: Jets takeaways from owners meetings**\
 `The first-year head coach is looking to change the tone for the Jets.`\
 https://nytimes.com/athletic/6244722/2025/03/31/aaron-glenn-owners-meetings-comments/
-
-**Chargers' Jim Harbaugh on building the offensive line, potential Keenan Allen reunion**\
-`Harbaugh on Allen, who remains a free agent after playing for the Bears last season: “Oh yeah, anything’s possible. That would be cool.”`\
-https://nytimes.com/athletic/6244771/2025/03/31/jim-harbaugh-chargers-offensive-line-keenan-allen/
 
