@@ -1,3 +1,7 @@
+**Kevin Durant ruled out with left ankle sprain in Suns' blowout loss**\
+`Losing Durant for any stretch would be a devastating blow to Phoenix's postseason hopes. The Suns are 2-11 without him this season.`\
+https://nytimes.com/athletic/6243412/2025/03/30/kevin-durant-ankle-injury-suns/
+
 **Trump Says He’s ‘Not Joking’ About Seeking a Third Term in Defiance of Constitution**\
 `In wide-ranging remarks to “Meet the Press,” Mr. Trump said “a lot of people” wanted him to serve a third term and vowed to impose tariffs on global rivals, according to a transcript of the interview provided by NBC News.`\
 https://nytimes.com/2025/03/30/us/trump-third-term.html
