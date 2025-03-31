@@ -1,3 +1,19 @@
+**UNC's Elliot Cadeau to transfer to Michigan: What he brings to Wolverines**\
+`Dusty May is landing a brilliant passer, but a guard who was also the epitome of a boom-or-bust player with Tar Heels.`\
+https://nytimes.com/athletic/6245477/2025/03/31/elliot-cadeau-transfers-michigan-unc/
+
+**Astronauts Emphasize Gratitude as NASA Contends With Uncertainty**\
+`Suni Williams and Butch Wilmore spoke in their first news conference since returning to Earth two weeks ago from an unexpectedly long I.S.S. stay that lasted more than nine months.`\
+https://nytimes.com/2025/03/31/science/nasa-astronauts-stuck-space-press-conference.html
+
+**Justin Verlander, Astros had 'mutual interest' in reunion during offseason**\
+`Verlander isn't sure about his future plaque in Cooperstown: "You don’t know how things will play out with me and Detroit in the future."`\
+https://nytimes.com/athletic/6245536/2025/03/31/justin-verlander-astros-reunion-hall-of-fame-cap/
+
+**Rafael Devers’ historically rough start continues, but Red Sox remain patient**\
+`Devers' early-season woes continued in the opener in Baltimore, with three more strikeouts. He now has 15 through the first five games.`\
+https://nytimes.com/athletic/6245403/2025/03/31/rafael-devers-strikeouts-red-sox/
+
 **OpenAI Completes Deal That Values Company at $300 Billion**\
 `The start-up’s valuation, which has nearly doubled in six months, shows continued enthusiasm for A.I. among investors.`\
 https://nytimes.com/2025/03/31/technology/openai-valuation-300-billion.html
