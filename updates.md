@@ -1,3 +1,7 @@
+**Djokovic bested by Menšík in Miami Open as hunt for history remains ongoing**\
+`Trying to win his 100th ATP Tour title, Djokovic ran into both the power and precision of the rising 19-year-old Czech.`\
+https://nytimes.com/athletic/6242240/2025/03/30/djokovic-mensik-miami-open-final-result-analysis/
+
 **Kevin Durant ruled out with left ankle sprain in Suns' blowout loss**\
 `Losing Durant for any stretch would be a devastating blow to Phoenix's postseason hopes. The Suns are 2-11 without him this season.`\
 https://nytimes.com/athletic/6243412/2025/03/30/kevin-durant-ankle-injury-suns/
