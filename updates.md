@@ -1,3 +1,11 @@
+**In Southern California, a Sea-Mammal Crisis Washes Ashore**\
+`In recent weeks, hundreds of sea lions, dolphins and other animals have turned up in the sand dead or seriously ill, alarming rescuers and beachgoers alike.`\
+https://nytimes.com/2025/03/31/us/southern-california-dolphins-sea-lions.html
+
+**Real Estate Fund Exceeds $2.5 Billion for Affordable Housing**\
+`The size of the fund, which is run by the Vistria Group, highlights how investors see an opportunity to address the nation’s housing crisis.`\
+https://nytimes.com/2025/03/31/business/dealbook/real-estate-fund-raises-2-5-billion-for-affordable-housing.html
+
 **The Athletic college baseball Top 25: Texas rolling in Year 1 under Jim Schlossnagle**\
 `Teams ranked ninth through 25th in last week's poll combined to lose 33 games, and four teams were swept in weekend series.`\
 https://nytimes.com/athletic/6243213/2025/03/31/college-baseball-top-25-texas-tennessee-arkansas/

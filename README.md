@@ -1,3 +1,12 @@
+**xG Explained: How data metrics can help you beat the bookmakers**\
+`Brett Koremenos explores the concept of Expected Goals and how to use the metric to get around the bookmakers.
+`\
+https://nytimes.com/athletic/6244124/2025/03/31/expected-goals-explainer-betting-guide-tips/
+
+**NBA Rewind: Can Grizzlies' season be saved? Plus, stock rising for OKC, Magic, Bulls**\
+`The Grizzlies made a bold choice by firing Taylor Jenkins so late in the season. Will it pay off?`\
+https://nytimes.com/athletic/6234053/2025/03/31/nba-rewind-taylor-jenkins-grizzlies-fired/
+
 **In Southern California, a Sea-Mammal Crisis Washes Ashore**\
 `In recent weeks, hundreds of sea lions, dolphins and other animals have turned up in the sand dead or seriously ill, alarming rescuers and beachgoers alike.`\
 https://nytimes.com/2025/03/31/us/southern-california-dolphins-sea-lions.html
@@ -29,12 +38,4 @@ https://nytimes.com/interactive/2025/03/31/books/review/jazz-age-novels.html
 **Canadiens weekly notebook: Hutson’s defensive game, Suzuki’s Olympic competition and more**\
 `Also this week, a potential future third-line pairing for Montreal getting an audition and have we found the source of St. Louis' Martyisms?`\
 https://nytimes.com/athletic/6243640/2025/03/31/canadiens-lane-hutson-nick-suzuki-panthers-win/
-
-**No Corrections: March 31, 2025**\
-`No corrections appeared in print on Monday, March 31, 2025.`\
-https://nytimes.com/2025/03/31/pageoneplus/no-corrections-march-31-2025.html
-
-**Myanmar Rescue Underway in Race Against Time**\
-`The smell of death filled the air at a monastery destroyed by the 7.7-magnitude quake as teams from various countries joined the rescue.`\
-https://nytimes.com/video/world/asia/100000010082384/myanmar-earthquake-rescue.html
 

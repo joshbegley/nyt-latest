@@ -1,3 +1,7 @@
+**In Southern California, a Sea-Mammal Crisis Washes Ashore**\
+`In recent weeks, hundreds of sea lions, dolphins and other animals have turned up in the sand dead or seriously ill, alarming rescuers and beachgoers alike.`\
+https://nytimes.com/2025/03/31/us/southern-california-dolphins-sea-lions.html
+
 **The Athletic college baseball Top 25: Texas rolling in Year 1 under Jim Schlossnagle**\
 `Teams ranked ninth through 25th in last week's poll combined to lose 33 games, and four teams were swept in weekend series.`\
 https://nytimes.com/athletic/6243213/2025/03/31/college-baseball-top-25-texas-tennessee-arkansas/
@@ -10,7 +14,7 @@ https://nytimes.com/2025/03/31/world/asia/myanmar-earthquake-rescue.html
 `A caution-filled Xfinity Series race at Martinsville drew criticism in the Cup Series garage and put a spotlight on a tricky problem.`\
 https://nytimes.com/athletic/6243282/2025/03/31/nascar-xfinity-series-martinsville-race-crashes-cautions/
 
-**Real Estate Fund Raises $2.5 Billion for Affordable Housing**\
+**Real Estate Fund Exceeds $2.5 Billion for Affordable Housing**\
 `The size of the fund, which is run by the Vistria Group, highlights how investors see an opportunity to address the nation’s housing crisis.`\
 https://nytimes.com/2025/03/31/business/dealbook/real-estate-fund-raises-2-5-billion-for-affordable-housing.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/31/pageoneplus/no-corrections-march-31-2025.html
 **Myanmar Rescue Underway in Race Against Time**\
 `The smell of death filled the air at a monastery destroyed by the 7.7-magnitude quake as teams from various countries joined the rescue.`\
 https://nytimes.com/video/world/asia/100000010082384/myanmar-earthquake-rescue.html
-
-**Sacramento Is Ready for Its Major League Moment. (Just Don’t Say ‘Sacramento.’)**\
-`The Athletics temporarily moved to California’s capital region, but insisted on avoiding references to Sacramento. Residents, who are thrilled to have M.L.B. games, are used to such slights.`\
-https://nytimes.com/2025/03/31/us/athletics-sacramento-mlb.html
 
