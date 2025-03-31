@@ -1,40 +1,40 @@
-**How Does It Feel to Be an International Student in the U.S. Now?**\
-`We want to hear about how the Trump administration’s immigration policies have affected your travel plans and experience on campus.`\
-https://nytimes.com/2025/03/31/us/international-student-immigration-callout.html
+**Yankees takeaways: Stellar start about more than ‘torpedo’ bats**\
+`The 3-0 Yankees outscored the Brewers 36-14 to open the season. There's plenty of enthusiasm and many questions still to be answered.`\
+https://nytimes.com/athletic/6242889/2025/03/31/yankees-stellar-start-torpedo-bats/
 
-**Buffalo Bills NFL Draft 2025 guide: Picks, predictions and key needs**\
-`All you need to know about the Bills' 2025 draft.`\
-https://nytimes.com/athletic/6230315/2025/03/31/buffalo-bills-2025-nfl-draft-picks-needs-predictions-guide/
+**Carolina Panthers NFL Draft 2025 guide: Picks, predictions and key needs**\
+`The Panthers have the No. 8 pick in the NFL Draft and own a total of nine picks.`\
+https://nytimes.com/athletic/6227440/2025/03/31/carolina-panthers-2025-nfl-draft-picks-needs-predictions-guide/
 
-**Detroit Lions NFL Draft 2025 guide: Picks, predictions and key needs**\
-`All you need to know about the Lions' 2025 draft.`\
-https://nytimes.com/athletic/6230341/2025/03/31/detroit-lions-2025-nfl-draft-picks-needs-predictions-guide/
+**Bears NFL Draft 2025 guide: Picks, predictions and key needs**\
+`The Bears have seven picks in the NFL Draft, including three of the first 41. What will they do at No. 10?`\
+https://nytimes.com/athletic/6232527/2025/03/31/chicago-bears-2025-nfl-draft-picks-needs-predictions-guide/
 
-**How to watch No. 1 Texas vs. No. 2 TCU duel for a women's Final Four berth**\
-`These are uncharted depths for TCU. Texas is balanced, disciplined and subsequently favored going into Monday's Elite Eight matchup.`\
-https://nytimes.com/athletic/6241960/2025/03/31/texas-tcu-womens-ncaa-tournament-elite-eight-how-to-watch/
+**Minnesota Vikings NFL Draft 2025 guide: Picks, predictions and key needs**\
+`The Vikings have pick No. 24 in the first round of the NFL Draft but have only four picks overall. Can they trade down to accumulate more?`\
+https://nytimes.com/athletic/6221447/2025/03/31/minnesota-vikings-2025-nfl-draft-picks-needs-predictions-guide/
 
-**Browns NFL Draft 2025 guide: Picks, predictions and key needs**\
-`Keeping you up to date on all of Cleveland's draft-related news and analysis heading into Round 1 on April 24. `\
-https://nytimes.com/athletic/6233351/2025/03/31/cleveland-browns-2025-nfl-draft-picks-needs-predictions-guide/
+**How to watch No. 1 USC vs. No. 2 UConn in battle for a Final Four berth**\
+`Paige Bueckers just put together one of the coolest March Madness performances ever. She tries to take UConn to the Final Four on Monday.`\
+https://nytimes.com/athletic/6241986/2025/03/31/usc-uconn-womens-ncaa-tournament-elite-eight-how-to-watch/
 
-**Pittsburgh Steelers NFL Draft 2025 guide: Picks, predictions and key needs**\
-`Everything you need to know about the Steelers ahead of the draft, from their most pressing needs to how their QB situation factors in.`\
-https://nytimes.com/athletic/6228127/2025/03/31/pittsburgh-steelers-2025-nfl-draft-picks-needs-predictions-guide/
+**Cincinnati Bengals NFL Draft 2025 guide: Picks, predictions and key needs**\
+`What you need to know as the Bengals head into the 2025 NFL Draft.`\
+https://nytimes.com/athletic/6221505/2025/03/31/cincinnati-bengals-2025-nfl-draft-picks-needs-predictions-guide/
 
-**The New York Times International Edition in Print for Tuesday, April 1, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/03/31/todays-new-york-times-international-edition
+**Players around MLB intrigued after Yankees’ power surge with new ‘torpedo’ bats**\
+`"I think it’s an amazing discovery," said Angels outfielder Taylor Ward, one of many players suddenly interested in the new bats. `\
+https://nytimes.com/athletic/6243085/2025/03/31/mlb-torpedo-bats-players-intrigued/
 
-**Marine Le Pen Found Guilty of Embezzlement by French Court**\
-`The ruling could complicate her plans to run for president in 2027.`\
-https://nytimes.com/2025/03/31/world/europe/france-marine-le-pen-embezzlement-trial.html
+**As Athletics begin their Sacramento residency, a city tentatively opens its arms**\
+`The A's three-year stopover in Sacramento on their way to Las Vegas is unusual in the extreme, and that has meant some uncertain moments.`\
+https://nytimes.com/athletic/6243315/2025/03/31/sacramento-athletics-oakland-mlb-kings/
 
-**Primark C.E.O. Resigns After ‘Error of Judgment’**\
-`Paul Marchant has left the clothing retailer after “an allegation made by an individual about his behavior,” the company said.`\
-https://nytimes.com/2025/03/31/business/primark-paul-marchant-resigns.html
+**Michigan State is done. But Tom Izzo isn't going anywhere**\
+`Michigan State fell short of the Final Four against Auburn, but the 70-year-old Izzo says "this year has reinvigorated" him.`\
+https://nytimes.com/athletic/6243512/2025/03/31/tom-izzo-michigan-state-auburn/
 
-**Israel Digs In Beyond Its Northern Border**\
-`Israel has built a growing network of outposts and fortifications in Syria and Lebanon, deepening concerns about a protracted occupation in parts of the two countries.`\
-https://nytimes.com/interactive/2025/03/31/world/middleeast/israel-border-military-outposts-syria-lebanon-border.html
+**ICE on Campus**\
+`The Trump administration’s immigration crackdown at universities has targeted pro-Palestinian students who have been in the United States legally.`\
+https://nytimes.com/2025/03/31/podcasts/the-daily/ice-tufts-columbia-student.html
 
