@@ -1,3 +1,7 @@
+**What Daniel Freitag's transfer portal move means for Wisconsin**\
+`Freitag, the highest-rated recruit signed under Greg Gard, played just 27 total minutes in 14 games this season.`\
+https://nytimes.com/athletic/6244523/2025/03/31/wisconsin-basketball-daniel-freitag-transfer-portal/
+
 **Storm Knocks Out Power for Nearly 900,000 in Great Lakes Region**\
 `A storm downed power lines and left hundreds of thousands of electricity customers without power on Monday morning in Indiana, Michigan, Wisconsin and Ontario, Canada.`\
 https://nytimes.com/video/us/100000010082627/storms-great-lakes-region-power-trees.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6244465/2025/03/31/st-louis-blues-jeremy-rutherford
 **Ask CJ: Submit your NHL questions for Chris Johnston’s mailbag**\
 `Whether it’s playoff races, record pursuits, free agency or the league's inner workings, we want to know. Drop your questions here.`\
 https://nytimes.com/athletic/6244464/2025/03/31/nhl-mailbag-playoff-races-ovechkin/
-
-**America Has Never Been Wealthier. Here’s Why It Doesn’t Feel That Way.**\
-`A surge in U.S. wealth has been driven by stock and home values. But the gains are concentrated at the top, leaving others in a sour economic mood.`\
-https://nytimes.com/2025/03/31/business/economy/wealth-cash-inequality.html
 

@@ -1,3 +1,7 @@
+**Storm Knocks Out Power for Nearly 900,000 in Great Lakes Region**\
+`A storm downed power lines and left hundreds of thousands of electricity customers without power on Monday morning in Indiana, Michigan, Wisconsin and Ontario, Canada.`\
+https://nytimes.com/video/us/100000010082627/storms-great-lakes-region-power-trees.html
+
 **What We Know About Marine Le Pen’s Embezzlement Conviction**\
 `The far-right French politician was a leading candidate to become the country’s next president, but has now been barred from running for public office for five years.`\
 https://nytimes.com/2025/03/31/world/europe/marine-lepen-embezzlement-france.html
