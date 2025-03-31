@@ -1,4 +1,8 @@
-**Pereira: 'Natural' for Cunha to title-winning ambitions**\
+**The Bounce: Explaining the Grizzlies' odd timing behind firing Taylor Jenkins**\
+`The Grizzlies chose a strange time to fire Taylor Jenkins. Zach Harper breaks down why it isn't too surprising. `\
+https://nytimes.com/athletic/6244054/2025/03/31/nba-taylor-jenkins-grizzlies-fired-playoffs-the-bounce/
+
+**Pereira: 'Natural' for Cunha to have title-winning ambitions**\
 `The 25-year-old spoke to the Guardian about his desire to “take the next step” in an interview published over the weekend.`\
 https://nytimes.com/athletic/6244106/2025/03/31/matheus-cunha-wolves-future-transfer/
 
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6244124/2025/03/31/expected-goals-explainer-betting
 **NBA Rewind: Can Grizzlies' season be saved? Plus, stock rising for OKC, Magic, Bulls**\
 `The Grizzlies made a bold choice by firing Taylor Jenkins so late in the season. Will it pay off?`\
 https://nytimes.com/athletic/6234053/2025/03/31/nba-rewind-taylor-jenkins-grizzlies-fired/
-
-**In Southern California, a Sea-Mammal Crisis Washes Ashore**\
-`In recent weeks, hundreds of sea lions, dolphins and other animals have turned up in the sand dead or seriously ill, alarming rescuers and beachgoers alike.`\
-https://nytimes.com/2025/03/31/us/southern-california-dolphins-sea-lions.html
 
