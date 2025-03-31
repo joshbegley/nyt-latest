@@ -1,3 +1,7 @@
+**Abbott Delays Calling a Special House Election. Democrats Cry Foul.**\
+`Representative Hakeem Jeffries, the House minority leader, accused Gov. Greg Abbott of Texas of slow-walking a special election to hold the Republicans’ slim majority steady.`\
+https://nytimes.com/2025/03/31/us/texas-house-seat.html
+
 **With more pieces in place, Ejiro Evero gets shot to fix Panthers' defense**\
 `“I’m a huge fan of him,” said Rams GM Les Snead of Ejiro Evero, who spent five seasons in L.A., including the team's Super Bowl season.`\
 https://nytimes.com/athletic/6245185/2025/03/31/panthers-defense-ejiro-evero-free-agency/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/31/science/stentors-cells-evolution-physics.html
 **Tuesday Briefing: A Shock Ruling in France**\
 `Plus, lessons on happiness from Finland.`\
 https://nytimes.com/2025/03/31/briefing/le-pen-guilty-markets-tariffs-myanmar-earthquake-aid.html
-
-**Watch Live: President Trump Signs Executive Orders**\
-`President Donald Trump signs executive orders at the White House.`\
-https://nytimes.com/video/us/politics/100000010083009/watch-live-president-trump-signs-executive-orders.html
 
