@@ -1,3 +1,15 @@
+**Ravens continue to play waiting game with Justin Tucker, plan to follow NFL's lead**\
+`President Sashi Brown said the team wants to have a "great understanding of the facts" before making a decision on Tucker. `\
+https://nytimes.com/athletic/6242600/2025/03/30/ravens-justin-tucker-sashi-brown/
+
+**Phillies takeaways: The lefty starters are coming (again), timing Nola, Strahm's return**\
+`Parker, along with fellow lefty MacKenzie Gore, held the Phillies scoreless over 12 1/3 innings with 18 strikeouts and two walks.`\
+https://nytimes.com/athletic/6243025/2025/03/30/phillies-left-handed-lineup-aaron-nola-matt-strahm/
+
+**FIFA considers playoff between LAFC, Club América for 2025 Club World Cup**\
+`The news follows FIFA’s decision to remove Club Lèon from the tournament, less than three months ahead of its commencement in June. `\
+https://nytimes.com/athletic/6221660/2025/03/30/fifa-playoff-lafc-club-america-2025-club-world-cup/
+
 **Maxim Naumov’s late parents are with him on the ice, now and forever**\
 `The 23-year-old skater delivered a flawless exhibition of love at the “Exhibition of Champions” and ended it with a message to his parents.`\
 https://nytimes.com/athletic/6242773/2025/03/30/world-figure-skating-championships-maxim-naumov/
