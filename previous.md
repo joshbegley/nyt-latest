@@ -26,11 +26,3 @@ https://nytimes.com/2025/03/31/opinion/hillary-clinton-trump.html
 `A pipeline company’s lawsuit against the environmental group could chill free speech, experts said. First Amendment issues are likely to figure prominently in an appeal.`\
 https://nytimes.com/2025/03/31/climate/greenpeace-energy-transfer-dakota-access-defamation-verdict.html
 
-**Estimates Imply That Burden of Tariffs Could Fall Heavily on Consumers**\
-`A White House trade adviser projected that tariffs would raise about $6 trillion over the next decade. But raising so much revenue for the government conflicts with the administration’s goal of reshoring manufacturing.`\
-https://nytimes.com/2025/03/31/us/politics/tariffs-estimates-consumers.html
-
-**USWNT, Canada to play friendly match in July international window**\
-`“Canada is a top team and this match is worthy of the Allstate Continental Clásico,” said USWNT head coach Emma Hayes.`\
-https://nytimes.com/athletic/6244563/2025/03/31/uswnt-canada-match-when/
-
