@@ -1,8 +1,16 @@
+**UNC's Elliot Cadeau to transfer to Michigan: What he brings to Wolverines**\
+`Dusty May is landing a brilliant passer, but a guard who was also the epitome of a boom-or-bust player with Tar Heels.`\
+https://nytimes.com/athletic/6245477/2025/03/31/elliot-cadeau-transfers-michigan-unc/
+
+**Astronauts Emphasize Gratitude as NASA Contends With Uncertainty**\
+`Suni Williams and Butch Wilmore spoke in their first news conference since returning to Earth two weeks ago from an unexpectedly long I.S.S. stay that lasted more than nine months.`\
+https://nytimes.com/2025/03/31/science/nasa-astronauts-stuck-space-press-conference.html
+
 **OpenAI Completes Deal That Values Company at $300 Billion**\
 `The start-up’s valuation, which has nearly doubled in six months, shows continued enthusiasm for A.I. among investors.`\
 https://nytimes.com/2025/03/31/technology/openai-valuation-300-billion.html
 
-**Justin Verlander, Astros had "mutual interest" in reunion during offseason**\
+**Justin Verlander, Astros had 'mutual interest' in reunion during offseason**\
 `Verlander isn't sure about his future plaque in Cooperstown: "You don’t know how things will play out with me and Detroit in the future."`\
 https://nytimes.com/athletic/6245536/2025/03/31/justin-verlander-astros-reunion-hall-of-fame-cap/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/31/us/politics/trump-deportations-venezuelan-immigra
 **Search and Recovery Continue for a Missing U.S. Soldier in Lithuania**\
 `Three U.S. Army soldiers were found dead and a fourth was missing on Monday, nearly a week after their armored vehicle became stuck in a deep and muddy bog during a training mission, the Army said.`\
 https://nytimes.com/video/world/europe/100000010084141/us-soldiers-lithuania-death.html
-
-**Critics of U.S. Attorney in Washington Push for Confirmation Hearing**\
-`Congressional aides of both parties believe that the nominee for U.S. attorney, Ed Martin, appears to have a solid chance of squeaking through on a party-line vote.`\
-https://nytimes.com/2025/03/31/us/politics/trump-ed-martin-dc-prosecutor.html
-
-**Taking Aim at Smithsonian, Trump Wades Into Race and Biology**\
-`His executive order faulted an exhibit which “promotes the view that race is not a biological reality but a social construct,” a widely held position in the scientific community.`\
-https://nytimes.com/2025/03/31/arts/design/trump-smithsonian-race.html
 
