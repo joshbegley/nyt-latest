@@ -1,3 +1,7 @@
+**Greenland’s Prime Minister Says the U.S. Will Not ‘Get’ the Island**\
+`“We do not belong to anyone else,” Prime Minister Jens-Frederik Nielsen said in response to President Trump’s latest assertion that he wants to annex the territory.`\
+https://nytimes.com/2025/03/31/us/politics/greenland-prime-minister-trump.html
+
 **Still no relief for Cubs after huge bullpen letdown: 'Wasn’t a good day'**\
 `Cubs relievers allow 10 runs as comfortable lead turns into a 10-6 loss to Diamondbacks.`\
 https://nytimes.com/athletic/6243407/2025/03/31/chicago-cubs-relief-pitchers-diamondbacks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6220985/2025/03/31/everton-liverpool-stadium-joint-
 **Billy Gilmour on Conte's Napoli, nights out with McTominay and paying tribute to Maradona**\
 `The former Chelsea midfielder thinks playing abroad was always going to suit him, as Napoli chase a second Serie A title in three years`\
 https://nytimes.com/athletic/6232046/2025/03/31/billy-gilmour-napoli-conte-mctominay-scotland/
-
-**The Premier League is back - and it's all about the race for a top-five finish**\
-`Assessing the strengths and weaknesses of the seven teams who are in the fight to finish fourth and fifth this season`\
-https://nytimes.com/athletic/6226328/2025/03/31/premier-league-champions-league-projections/
 

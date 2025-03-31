@@ -1,3 +1,7 @@
+**Greenland’s Prime Minister Says the U.S. Will Not ‘Get’ the Island**\
+`“We do not belong to anyone else,” Prime Minister Jens-Frederik Nielsen said in response to President Trump’s latest assertion that he wants to annex the territory.`\
+https://nytimes.com/2025/03/31/us/politics/greenland-prime-minister-trump.html
+
 **Still no relief for Cubs after huge bullpen letdown: 'Wasn’t a good day'**\
 `Cubs relievers allow 10 runs as comfortable lead turns into a 10-6 loss to Diamondbacks.`\
 https://nytimes.com/athletic/6243407/2025/03/31/chicago-cubs-relief-pitchers-diamondbacks/
