@@ -1,3 +1,15 @@
+**Jim Jarmusch, New York Fixture, Showed His Art in Los Angeles. His Fans Showed Up.**\
+`Angelenos flocked to meet the artist and filmmaker, who came to the West Coast for the opening of his solo exhibition “Some More Collages.”`\
+https://nytimes.com/2025/03/31/style/jim-jarmusch-some-more-collages-exhibit-la.html
+
+**Hank Steinbrecher, Who Helped Elevate Soccer in the U.S., Dies at 77**\
+`He was also a key figure in raising American soccer’s profile on the world stage. Earlier, as a marketer, he saw opportunities in the football ritual of dousing coaches with Gatorade.`\
+https://nytimes.com/2025/03/31/sports/soccer/hank-steinbrecher-dead.html
+
+**Trump Administration Will Review Billions in Funding for Harvard**\
+`The move follows the cancellation of roughly $400 million in funding for Columbia, and suspension of $175 million for the University of Pennsylvania.`\
+https://nytimes.com/2025/03/31/us/trump-administration-harvard-funding.html
+
 **Why Morgan Wallen’s Abrupt ‘S.N.L.’ Exit Is Being Dissected**\
 `The pop-country superstar followed his departure from the stage with a social media post about needing to get “to God’s country.”`\
 https://nytimes.com/2025/03/31/arts/television/morgan-wallen-saturday-night-live.html
