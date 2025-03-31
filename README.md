@@ -1,3 +1,7 @@
+**Is Giants GM Joe Schoen preparing to pass on a QB at No. 3?**\
+`It's "lying season," but Schoen sure sounded like a GM happy with the QB room he has assembled and thinking about other needs in the draft.`\
+https://nytimes.com/athletic/6245134/2025/03/31/new-york-giants-nfl-draft-russell-wilson-shedeur-sanders/
+
 **A ride from the captain, a new number and a starting job: Jimmy Snuggerud's first day with the Blues**\
 `Jimmy Snuggerud, the Blues' first-round pick in 2022, had his first practice with the team after signing a contract Friday.`\
 https://nytimes.com/athletic/6244487/2025/03/31/jimmy-snuggerud-blues-first-day/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/31/travel/us-travel-border-customs-visa-trump.html
 **Sean McDermott's tush push stance stresses player safety as tiresome debate comes to a head**\
 `The Bills use a version of the play and Sean McDermott is on the competition committee.`\
 https://nytimes.com/athletic/6244797/2025/03/31/sean-mcdermott-bills-tush-push-josh-allen/
-
-**2 N.Y.P.D. Officers Are Charged With Burglary and Groping**\
-`The officers stole money from a prostitute and groped her while on patrol duty in Queens, prosecutors said.`\
-https://nytimes.com/2025/03/31/nyregion/nypd-charges-burglary-groping.html
 

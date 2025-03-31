@@ -1,3 +1,23 @@
+**A ride from the captain, a new number and a starting job: Jimmy Snuggerud's first day with the Blues**\
+`Jimmy Snuggerud, the Blues' first-round pick in 2022, had his first practice with the team after signing a contract Friday.`\
+https://nytimes.com/athletic/6244487/2025/03/31/jimmy-snuggerud-blues-first-day/
+
+**J.J. McCarthy’s opportunity becoming Vikings' focus after NFL league meetings**\
+`The Vikings brass appeared to want to put the Aaron Rodgers talk behind them at the NFL league meetings Monday in Palm Beach, Fla.`\
+https://nytimes.com/athletic/6245106/2025/03/31/vikings-jj-mccarthy-aaron-rodgers-nfl-meetings/
+
+**Kevin Durant expected to miss multiple games with sprained ankle: Source**\
+`Suns star did not accompany his team to Milwaukee for a Tuesday game against the Bucks, which kicks off a three-game road trip.`\
+https://nytimes.com/athletic/6244644/2025/03/31/kevin-durant-out-sprained-ankle/
+
+**Eating ‘Family Style’ May Have Set the Stage for Life as We Know It**\
+`Under microscopes, scientists found that giant single-cell organisms were able to vacuum up more food when they are stuck together.`\
+https://nytimes.com/2025/03/31/science/stentors-cells-evolution-physics.html
+
+**Tuesday Briefing: A Shock Ruling in France**\
+`Plus, lessons on happiness from Finland.`\
+https://nytimes.com/2025/03/31/briefing/le-pen-guilty-markets-tariffs-myanmar-earthquake-aid.html
+
 **Watch Live: President Trump Signs Executive Orders**\
 `President Donald Trump signs executive orders at the White House.`\
 https://nytimes.com/video/us/politics/100000010083009/watch-live-president-trump-signs-executive-orders.html
