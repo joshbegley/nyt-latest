@@ -1,3 +1,11 @@
+**Will Jaire Alexander play for the Packers again? GM Brian Gutekunst on that and more**\
+`Gutekunst confirmed that two-time All-Pro left guard Elgton Jenkins is moving to center with the free-agency addition of Aaron Banks.`\
+https://nytimes.com/athletic/6244666/2025/03/31/packers-brian-gutekunst-nfl-owners-meetings/
+
+**What We Know About the Dispute at Prince Harry’s Charity**\
+`Harry resigned from Sentebale, the charity he co-founded in memory of his mother, after a dispute erupted between the charity’s chair, Sophie Chandauka, and five of its trustees.`\
+https://nytimes.com/2025/03/31/world/europe/prince-harry-charity-dispute-harassment.html
+
 **How Ben Johnson's play calling helped shape his path to Bears head coach**\
 `Johnson discussed how he evolved as the play caller that led the NFL's top-scoring offense and then became Bears head coach.`\
 https://nytimes.com/athletic/6244643/2025/03/31/bears-ben-johnson-play-calling/
@@ -17,12 +25,4 @@ https://nytimes.com/2025/03/31/style/flip-flops-the-row-the-olsens.html
 **What NFL coaches are saying about the 'tush push' as league vote approaches**\
 `24 of the 32 NFL voters need to vote to ban the "tush push" for it to become official.`\
 https://nytimes.com/athletic/6244400/2025/03/31/nfl-tush-push-coach-reactions-league-meetings/
-
-**Hillary Clinton’s Blast at the Trump Administration**\
-`Readers respond to Mrs. Clinton’s sharply worded Opinion guest essay. Also: Autism misinformation; President Trump’s trail of destruction.`\
-https://nytimes.com/2025/03/31/opinion/hillary-clinton-trump.html
-
-**A Quarter-Billion Dollars for Defamation: Inside Greenpeace’s Huge Loss**\
-`A pipeline company’s lawsuit against the environmental group could chill free speech, experts said. First Amendment issues are likely to figure prominently in an appeal.`\
-https://nytimes.com/2025/03/31/climate/greenpeace-energy-transfer-dakota-access-defamation-verdict.html
 

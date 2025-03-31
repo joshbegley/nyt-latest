@@ -22,7 +22,3 @@ https://nytimes.com/2025/03/31/business/media/tv-news-anchors-substack.html
 `A debate about the Row’s latest rubber sandals.`\
 https://nytimes.com/2025/03/31/style/flip-flops-the-row-the-olsens.html
 
-**What NFL coaches are saying about the 'tush push' as league vote approaches**\
-`24 of the 32 NFL voters need to vote to ban the "tush push" for it to become official.`\
-https://nytimes.com/athletic/6244400/2025/03/31/nfl-tush-push-coach-reactions-league-meetings/
-

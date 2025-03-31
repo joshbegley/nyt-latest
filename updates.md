@@ -1,3 +1,11 @@
+**Will Jaire Alexander play for the Packers again? GM Brian Gutekunst on that and more**\
+`Gutekunst confirmed that two-time All-Pro left guard Elgton Jenkins is moving to center with the free-agency addition of Aaron Banks.`\
+https://nytimes.com/athletic/6244666/2025/03/31/packers-brian-gutekunst-nfl-owners-meetings/
+
+**What We Know About the Dispute at Prince Harry’s Charity**\
+`Harry resigned from Sentebale, the charity he co-founded in memory of his mother, after a dispute erupted between the charity’s chair, Sophie Chandauka, and five of its trustees.`\
+https://nytimes.com/2025/03/31/world/europe/prince-harry-charity-dispute-harassment.html
+
 **How Ben Johnson's play calling helped shape his path to Bears head coach**\
 `Johnson discussed how he evolved as the play caller that led the NFL's top-scoring offense and then became Bears head coach.`\
 https://nytimes.com/athletic/6244643/2025/03/31/bears-ben-johnson-play-calling/
