@@ -26,7 +26,3 @@ https://nytimes.com/athletic/6244214/2025/03/31/handbrake-off-kevin-campbell-leg
 `The mountain range straddling California and Nevada is the target of a storm that may offer a late-season boost to the West Coast’s water supply.`\
 https://nytimes.com/2025/03/31/weather/sierra-nevada-snow-california.html
 
-**Supreme Court Leans Toward Catholic Charity in Tax Case**\
-`The Wisconsin Supreme Court had ruled that the group’s activities in serving the state’s poor were not religious enough to qualify for a tax exemption.`\
-https://nytimes.com/2025/03/31/us/supreme-court-catholic-charity.html
-
