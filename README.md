@@ -1,3 +1,7 @@
+**Amid athletic lore in Pauley Pavilion, UCLA women's basketball finally has a legacy to add**\
+`After 14 seasons, coach Cori Close has led the Bruins to new heights with its first Final Four bid.`\
+https://nytimes.com/athletic/6243271/2025/03/30/ucla-womens-basketball-final-four/
+
 **‘The White Lotus’ Season 3, Episode 7: Lovers and Fighters**\
 `“The White Lotus” tells us only enough about the characters’ pasts to explain some of the choices they make. Sometimes this works; sometimes it doesn’t.`\
 https://nytimes.com/2025/03/30/arts/television/the-white-lotus-season-3-episode-7-recap.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6242600/2025/03/30/ravens-justin-tucker-sashi-brown
 **Phillies takeaways: The lefty starters are coming (again), timing Nola, Strahm's return**\
 `Mitchell Parker, along with fellow lefty MacKenzie Gore, held the Phillies scoreless over 12 1/3 innings with 18 strikeouts and two walks.`\
 https://nytimes.com/athletic/6243025/2025/03/30/phillies-scores-results-standings/
-
-**FIFA considers playoff between LAFC, Club América for 2025 Club World Cup**\
-`The news follows FIFA’s decision to remove Club Lèon from the tournament, less than three months ahead of its commencement in June. `\
-https://nytimes.com/athletic/6221660/2025/03/30/fifa-playoff-lafc-club-america-2025-club-world-cup/
 
