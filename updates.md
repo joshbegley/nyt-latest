@@ -1,3 +1,7 @@
+**Musk Says ‘Destiny of Humanity’ Rests on Wisconsin Judicial Race**\
+`“What’s happening on Tuesday is a vote for which party controls the U.S. House of Representatives,” Elon Musk told a crowd in Green Bay. “That is why it is so significant.”`\
+https://nytimes.com/2025/03/30/us/elon-musk-wisconsin-supreme-court.html
+
 **Yohe's 10 observations: Sid the Kid shows the kids how it's done in overtime**\
 `Sidney Crosby led the way with a couple of rookies in the fold as the Penguins earned a 1-0 overtime win against Ottawa. `\
 https://nytimes.com/athletic/6241884/2025/03/30/penguins-crosby-mcgroarty-koivunen-rookies-senators/

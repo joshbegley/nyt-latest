@@ -1,3 +1,7 @@
+**Musk Says ‘Destiny of Humanity’ Rests on Wisconsin Judicial Race**\
+`“What’s happening on Tuesday is a vote for which party controls the U.S. House of Representatives,” Elon Musk told a crowd in Green Bay. “That is why it is so significant.”`\
+https://nytimes.com/2025/03/30/us/elon-musk-wisconsin-supreme-court.html
+
 **Yohe's 10 observations: Sid the Kid shows the kids how it's done in overtime**\
 `Sidney Crosby led the way with a couple of rookies in the fold as the Penguins earned a 1-0 overtime win against Ottawa. `\
 https://nytimes.com/athletic/6241884/2025/03/30/penguins-crosby-mcgroarty-koivunen-rookies-senators/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6242322/2025/03/30/march-madness-national-title-odd
 **Giants take opening series behind Matt Chapman's bat, glove**\
 `There's a consensus, statistically and anecdotally, that Chapman is very good at baseball relative to his peers.`\
 https://nytimes.com/athletic/6235647/2025/03/30/giants-opening-series-matt-chapman/
-
-**Museum of Now**\
-`A tour of some unusual artifacts from the present.`\
-https://nytimes.com/2025/03/30/podcasts/museum-of-now-this-american-life-nyt-audio.html
 
