@@ -1,3 +1,15 @@
+**He Went to Prison for One Punch. 7 Years Later, It Became a Homicide.**\
+`Gary Anderson hit Domingo Tapia for reasons never explained, sending Mr. Tapia into a coma and Mr. Anderson to prison. Mr. Tapia later died, and his attacker faces manslaughter charges.`\
+https://nytimes.com/2025/03/31/nyregion/brooklyn-punch-murder-charges-domingo-tapia.html
+
+**Liverpool confirm pre-season matches in Hong Kong, Japan**\
+`Arne Slot's side will face AC Milan in Hong Kong, with details of the Japan leg to be confirmed.`\
+https://nytimes.com/athletic/6242593/2025/03/31/liverpool-pre-season-hong-kong-japan/
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/03/31/crosswords/spelling-bee-forum.html
+
 **Netanyahu Names New Intel Chief Despite Showdown With Court**\
 `Benjamin Netanyahu, the Israeli prime minister, named a new head of Israel’s domestic intelligence agency on Monday. Judges had frozen the dismissal of the current chief.`\
 https://nytimes.com/2025/03/31/world/middleeast/israel-netanyahu-shin-bet.html
