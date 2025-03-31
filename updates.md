@@ -1,3 +1,11 @@
+**Aaron Glenn on Justin Fields and the running back room: Jets takeaways from owners meetings**\
+`The first-year head coach is looking to change the tone for the Jets.`\
+https://nytimes.com/athletic/6244722/2025/03/31/aaron-glenn-owners-meetings-comments/
+
+**Browns owner Jimmy Haslam: Deshaun Watson trade was a 'big swing and a miss'**\
+`"It ends with Dee and I, so hold us accountable," Haslam said during his availability at league meetings. `\
+https://nytimes.com/athletic/6244753/2025/03/31/browns-jimmy-haslam-deshaun-watson-quarterback/
+
 **Chargers' Jim Harbaugh on building the offensive line, potential Keenan Allen reunion**\
 `Harbaugh on Allen, who remains a free agent after playing for the Bears last season: “Oh yeah, anything’s possible. That would be cool.”`\
 https://nytimes.com/athletic/6244771/2025/03/31/jim-harbaugh-chargers-offensive-line-keenan-allen/
