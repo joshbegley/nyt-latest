@@ -1,3 +1,19 @@
+**MLB suspends Braves' Jurickson Profar 80 games for PEDs**\
+`Profar signed a three-year, $42 million contract with the Braves in January. `\
+https://nytimes.com/athletic/6245451/2025/03/31/braves-jurickson-profar-suspension-performance-enhancing-drugs/
+
+**Man United beaten by Villa in FA Youth Cup semi-final after penalty shootout**\
+`Villa will now face either Manchester City or Watford in the FA Youth Cup final.`\
+https://nytimes.com/athletic/6245423/2025/03/31/man-united-aston-villa-youth-cup/
+
+**Lee Zeldin, E.P.A. Head, Shuts National Environmental Museum**\
+`The exhibits were dedicated to the agency’s history. Mr. Zeldin said closing the collection would save $600,000 annually.`\
+https://nytimes.com/2025/03/31/climate/lzeldin-epa-environmental-museum.html
+
+**GM John Schneider urges fans to trust Seahawks' O-line plan: ‘We feel good’**\
+`Schneider touted the new coaching staff and returning players while noting the Seahawks won't add a veteran O-lineman until after the draft.`\
+https://nytimes.com/athletic/6245354/2025/03/31/seahawks-offensive-line-john-schneider-free-agency/
+
 **In Espionage and War, Secure Communication Is Key. Just Ask These Spies.**\
 `As Americans scrutinize the accidental leak of a high-level U.S. group chat, several books detail other mishaps in the annals of global conflict.`\
 https://nytimes.com/2025/03/31/books/review/military-histories-about-spies-and-intelligence-services.html

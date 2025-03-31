@@ -1,3 +1,11 @@
+**NASA Astronauts Say They Would Fly on Boeing’s Starliner Again**\
+`Butch Wilmore and Suni Williams were brought back to Earth in a SpaceX capsule after problems with Boeing’s Starliner delayed their return by about nine months.`\
+https://nytimes.com/video/science/100000010084035/nasa-astronauts-boeing-spacex.html
+
+**Musk Visits C.I.A. to Discuss Downsizing Efforts**\
+`A federal judge ordered the agency to reconsider its firings of employees who had been assigned to diversity recruiting.`\
+https://nytimes.com/2025/03/31/us/politics/musk-visits-cia-to-discuss-downsizing-efforts.html
+
 **MLB suspends Braves' Jurickson Profar 80 games for PEDs**\
 `Profar signed a three-year, $42 million contract with the Braves in January. `\
 https://nytimes.com/athletic/6245451/2025/03/31/braves-jurickson-profar-suspension-performance-enhancing-drugs/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/31/briefing/trump-tariffs-france-far-right-leader-gu
 **Palestinians Flee Southern Gaza Amid New Evacuation Order**\
 `Gazans were seen fleeing Rafah on Monday after the Israeli military issued a wide evacuation order for the southern Gaza Strip.`\
 https://nytimes.com/video/world/middleeast/100000010083339/rafah-gaza-evacuation.html
-
-**Why C.J. Gardner-Johnson trade shows Eagles learned from Super Bowl LII fallout**\
-`The Eagles are intent on spending smartly while making difficult decisions to let some players go.`\
-https://nytimes.com/athletic/6244372/2025/03/31/eagles-super-bowl-cj-gardner-johnson-trade/
-
-**Waiting on Aaron Rodgers: How the Steelers landed in QB limbo, and what comes next**\
-`Coach Mike Tomlin and GM Omar Khan are waiting, just like the rest of us, to see what the four-time NFL MVP decides.`\
-https://nytimes.com/athletic/6245184/2025/03/31/aaron-rodgers-steelers-mike-tomlin-omar-khan/
 
