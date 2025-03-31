@@ -1,3 +1,7 @@
+**Delayed White House visit for 2019 Chiefs in the works after Trump invitation**\
+`The Chiefs didn't get to celebrate their Super Bowl LIV victory at the White House because of the COVID-19 pandemic.`\
+https://nytimes.com/athletic/6244649/2025/03/31/chiefs-super-bowl-trump-white-house-visit/
+
 **Aaron Glenn on Justin Fields and the running back room: Jets takeaways from owners meetings**\
 `The first-year head coach is looking to change the tone for the Jets.`\
 https://nytimes.com/athletic/6244722/2025/03/31/aaron-glenn-owners-meetings-comments/
