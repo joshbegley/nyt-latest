@@ -1,3 +1,7 @@
+**‘The White Lotus’ Season 3, Episode 7: Lovers and Fighters**\
+`“The White Lotus” tells us only enough about the characters’ pasts to explain some of the choices they make. Sometimes this works; sometimes it doesn’t.`\
+https://nytimes.com/2025/03/30/arts/television/the-white-lotus-season-3-episode-7-recap.html
+
 **Kenny Atkinson's pregame water bottle toss outburst spurs Cavaliers to 60th win**\
 `After their coach fired them up, the Cavs had their best performance in quite a while, a 127-122 win over the Clippers.`\
 https://nytimes.com/athletic/6243060/2025/03/30/kenny-atkinson-outburst-cavaliers-win-60/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6243025/2025/03/30/phillies-scores-results-standing
 **FIFA considers playoff between LAFC, Club América for 2025 Club World Cup**\
 `The news follows FIFA’s decision to remove Club Lèon from the tournament, less than three months ahead of its commencement in June. `\
 https://nytimes.com/athletic/6221660/2025/03/30/fifa-playoff-lafc-club-america-2025-club-world-cup/
-
-**Odds say men's college basketball title is Duke's to lose**\
-`Entering the Final Four, it looks like it is Duke vs. everyone else in the national title odds.`\
-https://nytimes.com/athletic/6242322/2025/03/30/march-madness-national-title-odds-duke-florida-houston-auburn/
 
