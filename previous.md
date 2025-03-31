@@ -1,3 +1,7 @@
+**As Alpine skiing World Cup season ends, stage is set for a star-studded Olympics**\
+`As Alpine skiing heads to its offseason before the 2026 Olympics, some of the greatest of all time are in top form.`\
+https://nytimes.com/athletic/6239075/2025/03/31/lindsey-vonn-mikaela-shiffrin-alpine-skiing-olympics-world-cup/
+
 **Read the Letter**\
 `Researchers at academic institutions nationwide say that U.S. science is being dismantled.`\
 https://nytimes.com/interactive/2025/03/31/health/scientists-letter.html
@@ -29,12 +33,4 @@ https://nytimes.com/2025/03/31/us/ivermectin-conservatives-influencers.html
 **Trump Administration Has Begun a War on Science, Researchers Say**\
 `Nearly 2,000 scientists urged that Congress restore funding to federal agencies decimated by recent cuts.`\
 https://nytimes.com/2025/03/31/science/trump-science-nas-letter.html
-
-**This Might Just Be the Springiest Salmon**\
-`The peas are fat and sweet, the radishes are small and peppery. It’s time for this Kay Chun stunner.`\
-https://nytimes.com/2025/03/31/dining/spring-roasted-salmon-recipe.html
-
-**What Ivermectin Can (and Can’t) Do**\
-`Social media posts have promoted the anti-parasitic drug for cancer and Covid. That has doctors alarmed.`\
-https://nytimes.com/2025/03/31/well/ivermectin-cancer-covid.html
 
