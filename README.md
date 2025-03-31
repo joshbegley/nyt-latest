@@ -1,3 +1,7 @@
+**Colts coach says Anthony Richardson, Daniel Jones will split reps at OTAs**\
+`Colts coach Shane Steichen: "It's gonna come down to who’s the most consistent and who’s the most productive."`\
+https://nytimes.com/athletic/6244187/2025/03/31/colts-anthony-richardson-daniel-jones-quarterback-competition/
+
 **The Bounce: Explaining the Grizzlies' odd timing behind firing Taylor Jenkins**\
 `The Grizzlies chose a strange time to fire Taylor Jenkins. Zach Harper breaks down why it isn't too surprising. `\
 https://nytimes.com/athletic/6244054/2025/03/31/nba-taylor-jenkins-grizzlies-fired-playoffs-the-bounce/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6244158/2025/03/31/tottenham-daniel-levy-transfers/
 `Brett Koremenos explores the concept of Expected Goals and how to use the metric to get around the bookmakers.
 `\
 https://nytimes.com/athletic/6244124/2025/03/31/expected-goals-explainer-betting-guide-tips/
-
-**NBA Rewind: Can Grizzlies' season be saved? Plus, stock rising for OKC, Magic, Bulls**\
-`The Grizzlies made a bold choice by firing Taylor Jenkins so late in the season. Will it pay off?`\
-https://nytimes.com/athletic/6234053/2025/03/31/nba-rewind-taylor-jenkins-grizzlies-fired/
 

@@ -1,3 +1,8 @@
+**xG Explained: How data metrics can help you beat the bookmakers**\
+`Brett Koremenos explores the concept of Expected Goals and how to use the metric to get around the bookmakers.
+`\
+https://nytimes.com/athletic/6244124/2025/03/31/expected-goals-explainer-betting-guide-tips/
+
 **Pereira: 'Natural' for Cunha to title-winning ambitions**\
 `The 25-year-old spoke to the Guardian about his desire to “take the next step” in an interview published over the weekend.`\
 https://nytimes.com/athletic/6244106/2025/03/31/matheus-cunha-wolves-future-transfer/
