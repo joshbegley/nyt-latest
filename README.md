@@ -1,3 +1,7 @@
+**Canadiens weekly notebook: Hutson’s defensive game, Suzuki’s Olympic competition and more**\
+`Also this week, a potential future third-line pairing for Montreal getting an audition and have we found the source of St. Louis' Martyisms?`\
+https://nytimes.com/athletic/6243640/2025/03/31/canadiens-lane-hutson-nick-suzuki-panthers-win/
+
 **No Corrections: March 31, 2025**\
 `No corrections appeared in print on Monday, March 31, 2025.`\
 https://nytimes.com/2025/03/31/pageoneplus/no-corrections-march-31-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6236246/2025/03/31/vikings-free-agency-brian-flores
 **Los Angeles Chargers NFL Draft 2025 guide: Picks, predictions and key needs**\
 `The Chargers own the No. 22 pick and 10 picks total in the NFL Draft. Will they add a playmaker or look to beef up the trenches? `\
 https://nytimes.com/athletic/6220143/2025/03/31/los-angeles-chargers-2025-nfl-draft-picks-needs-predictions-guide/
-
-**Los Angeles Rams NFL Draft 2025 guide: Picks, predictions and key needs**\
-`The Rams are set to pick at No. 26 in the first round and have eight total picks in the NFL Draft.`\
-https://nytimes.com/athletic/6233149/2025/03/31/los-angeles-rams-2025-nfl-draft-picks-needs-predictions-guide/
 
