@@ -1,3 +1,15 @@
+**Estimates Imply That Burden of Tariffs Could Fall Heavily on Consumers**\
+`A White House trade adviser projected that tariffs would raise about $6 trillion over the next decade. But raising so much revenue for the government conflicts with the administration’s goal of reshoring manufacturing.`\
+https://nytimes.com/2025/03/31/us/politics/tariffs-estimates-consumers.html
+
+**USWNT, Canada to play friendly match in July international window**\
+`“Canada is a top team and this match is worthy of the Allstate Continental Clásico,” said USWNT head coach Emma Hayes.`\
+https://nytimes.com/athletic/6244563/2025/03/31/uswnt-canada-match-when/
+
+**Ryan Leonard to join Capitals after BC's NCAA tournament exit: Source**\
+`Leonard finished third in the NCAA in goals and fourth in points as a freshman last season, registering 31 goals and 60 points in 41 games.`\
+https://nytimes.com/athletic/6236292/2025/03/31/ryan-leonard-capitals-ncaa-tournament/
+
 **Ravens understand a Lamar Jackson extension will happen 'sooner or later'**\
 `Jackson and Baltimore agreed to a five-year, $260 million contract extension less than two years ago on the eve of the 2023 NFL Draft.`\
 https://nytimes.com/athletic/6244497/2025/03/31/ravens-lamar-jackson-john-harbaugh-contract-extension/
@@ -17,20 +29,4 @@ https://nytimes.com/athletic/6244523/2025/03/31/wisconsin-basketball-daniel-frei
 **Storm Knocks Out Power for Nearly 900,000 in Great Lakes Region**\
 `A storm downed power lines and left hundreds of thousands of electricity customers without power on Monday morning in Indiana, Michigan, Wisconsin and Ontario, Canada.`\
 https://nytimes.com/video/us/100000010082627/storms-great-lakes-region-power-trees.html
-
-**What We Know About Marine Le Pen’s Embezzlement Conviction**\
-`The far-right French politician was a leading candidate to become the country’s next president, but has now been barred from running for public office for five years.`\
-https://nytimes.com/2025/03/31/world/europe/marine-lepen-embezzlement-france.html
-
-**On a South Carolina Farm, a House Born From a College Promise**\
-`A couple and their architect friend built a family home that celebrates hyperlocal building materials.`\
-https://nytimes.com/2025/03/31/realestate/south-carolina-farm-architecture.html
-
-**Canada sovereignty 'is never on the table', Concacaf president tells Trump**\
-`The full interview features in a special episode of The Athletic FC podcast looking at the impact of politics on the 2026 World Cup`\
-https://nytimes.com/athletic/6243755/2025/03/31/victor-montagliani-canada-trump-world-cup/
-
-**USMNT Player Tracker: Pulisic frustration, Aaronson's fast start and Sargent's selfie request**\
-`Our roundup of the weekend action also takes in Chris Richards' latest away shutout and a return to winning ways for Weston McKennie`\
-https://nytimes.com/athletic/6244129/2025/03/31/usmnt-pulisic-aaronson-sargent-richards-tracker/
 

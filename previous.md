@@ -1,3 +1,15 @@
+**Ravens understand a Lamar Jackson extension will happen 'sooner or later'**\
+`Jackson and Baltimore agreed to a five-year, $260 million contract extension less than two years ago on the eve of the 2023 NFL Draft.`\
+https://nytimes.com/athletic/6244497/2025/03/31/ravens-lamar-jackson-john-harbaugh-contract-extension/
+
+**Watch: Which NBA team is under most pressure to avoid the Play-In Tournament?**\
+`NBA Daily discuss whether the Lakers, Grizzlies, Warriors, Timberwolves or Clippers are under the most pressure to secure a top-six seed.`\
+https://nytimes.com/athletic/6244014/2025/03/31/nba-daily-nba-teams-pressure-play-in-tournament/
+
+**Review: A Kronos Quartet Glow Up: New Players, Newly Lustrous Sound**\
+`The venerable quartet returned to Zankel Hall with a typically eclectic program and a newfound emotional intensity.`\
+https://nytimes.com/2025/03/31/arts/music/review-kronos-quartet-carnegie-hall.html
+
 **What Daniel Freitag's transfer portal move means for Wisconsin**\
 `Freitag, the highest-rated recruit signed under Greg Gard, played just 27 total minutes in 14 games this season.`\
 https://nytimes.com/athletic/6244523/2025/03/31/wisconsin-basketball-daniel-freitag-transfer-portal/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6243755/2025/03/31/victor-montagliani-canada-trump-
 **USMNT Player Tracker: Pulisic frustration, Aaronson's fast start and Sargent's selfie request**\
 `Our roundup of the weekend action also takes in Chris Richards' latest away shutout and a return to winning ways for Weston McKennie`\
 https://nytimes.com/athletic/6244129/2025/03/31/usmnt-pulisic-aaronson-sargent-richards-tracker/
-
-**Trump Demands Harsh Treatment for Suspects After Vandalism at Turnberry**\
-`In the incident earlier this month, the Scottish club’s main building was sprayed with red paint and a pro-Palestinian message was painted on the ground next to a green.`\
-https://nytimes.com/2025/03/31/us/politics/trump-turnberry-vandalism.html
-
-**Submit your questions for Jeremy Rutherford’s St. Louis Blues mailbag**\
-`Have a question about the Blues? Submit it here and The Athletic’s Jeremy Rutherford will address a selection in his upcoming mailbag.`\
-https://nytimes.com/athletic/6244465/2025/03/31/st-louis-blues-jeremy-rutherford-mailbag-april-2025/
-
-**Ask CJ: Submit your NHL questions for Chris Johnston’s mailbag**\
-`Whether it’s playoff races, record pursuits, free agency or the league's inner workings, we want to know. Drop your questions here.`\
-https://nytimes.com/athletic/6244464/2025/03/31/nhl-mailbag-playoff-races-ovechkin/
 
