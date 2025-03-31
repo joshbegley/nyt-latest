@@ -1,3 +1,27 @@
+**Buffalo Bills NFL Draft 2025 guide: Picks, predictions and key needs**\
+`All you need to know about the Bills' 2025 draft.`\
+https://nytimes.com/athletic/6230315/2025/03/31/buffalo-bills-2025-nfl-draft-picks-needs-predictions-guide/
+
+**Detroit Lions NFL Draft 2025 guide: Picks, predictions and key needs**\
+`All you need to know about the Lions' 2025 draft.`\
+https://nytimes.com/athletic/6230341/2025/03/31/detroit-lions-2025-nfl-draft-picks-needs-predictions-guide/
+
+**How to watch No. 1 Texas vs. No. 2 TCU duel for a women's Final Four berth**\
+`These are uncharted depths for TCU. Texas is balanced, disciplined and subsequently favored going into Monday's Elite Eight matchup.`\
+https://nytimes.com/athletic/6241960/2025/03/31/texas-tcu-womens-ncaa-tournament-elite-eight-how-to-watch/
+
+**Browns NFL Draft 2025 guide: Picks, predictions and key needs**\
+`Keeping you up to date on all of Cleveland's draft-related news and analysis heading into Round 1 on April 24. `\
+https://nytimes.com/athletic/6233351/2025/03/31/cleveland-browns-2025-nfl-draft-picks-needs-predictions-guide/
+
+**Pittsburgh Steelers NFL Draft 2025 guide: Picks, predictions and key needs**\
+`Everything you need to know about the Steelers ahead of the draft, from their most pressing needs to how their QB situation factors in.`\
+https://nytimes.com/athletic/6228127/2025/03/31/pittsburgh-steelers-2025-nfl-draft-picks-needs-predictions-guide/
+
+**The New York Times International Edition in Print for Tuesday, April 1, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/03/31/todays-new-york-times-international-edition
+
 **Marine Le Pen Found Guilty of Embezzlement by French Court**\
 `The ruling could complicate her plans to run for president in 2027.`\
 https://nytimes.com/2025/03/31/world/europe/france-marine-le-pen-embezzlement-trial.html
@@ -13,28 +37,4 @@ https://nytimes.com/interactive/2025/03/31/world/middleeast/israel-border-milita
 **Nothing Ever Goes Wrong in Trump’s White House**\
 `The problem is that competence and execution matter.`\
 https://nytimes.com/2025/03/31/opinion/nothing-ever-goes-wrong-in-trumps-white-house.html
-
-**DOGE Accesses Federal Payroll System Over Objections of Career Staff**\
-`Elon Musk’s team gains visibility into sensitive information about hundreds of thousands of government workers despite security concerns raised by IT officials.`\
-https://nytimes.com/2025/03/31/us/doge-musk-federal-payroll.html
-
-**We Should Have Seen What Sally Mann Saw 40 Years Ago**\
-`A new edition of the photographer’s 1988 book is even more relevant today.`\
-https://nytimes.com/2025/03/31/opinion/sally-mann-photography.html
-
-**A Special Election That Was Supposed to Be a Snoozer Is Suddenly Buzzing**\
-`A House race in a deep-red Florida district is seeing millions of dollars in spending ahead of Tuesday’s election. Even in a loss, Democrats hope it will signal much-needed momentum.`\
-https://nytimes.com/2025/03/31/us/politics/florida-special-election-fine-weil.html
-
-**The Chinese Electric Vehicle Founder Who Wants In on Trump’s America**\
-`Wen Han is intent on listing Windrose’s stock in New York. He is fueled by $300 million, Chinese technology and a belief that “China doesn’t have to be the enemy forever.”`\
-https://nytimes.com/2025/03/31/business/windrose-electric-trucks-ipo.html
-
-**Wisconsin Voters See State Supreme Court Race as Referendum on Trump**\
-`Elon Musk’s prominent role in the most expensive judicial race in American history has helped turn Tuesday’s election into a battle over national politics.`\
-https://nytimes.com/2025/03/31/us/wisconsin-supreme-court-trump-musk.html
-
-**Is It Time to Trade My Rolex for a Smart Watch?**\
-`When it comes to watches, they can tell you more than just the time, our critic says. Find out what yours is saying — whether it’s smart or analog.`\
-https://nytimes.com/2025/03/31/fashion/rolex-smart-watch-apple.html
 
