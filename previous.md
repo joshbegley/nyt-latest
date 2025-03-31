@@ -1,3 +1,11 @@
+**Museum of Now**\
+`A tour of some unusual artifacts from the present.`\
+https://nytimes.com/2025/03/30/podcasts/museum-of-now-this-american-life-nyt-audio.html
+
+**Maxim Naumov’s late parents are with him on the ice, now and forever**\
+`The 23-year-old skater delivered a flawless exhibition of love at the “Exhibition of Champions” and ended it with a message to his parents. `\
+https://nytimes.com/athletic/6242773/2025/03/30/world-figure-skating-championships-maxim-naumov/
+
 **Twins takeaways: Déjà vu for Bailey Ober, prospect watching in St. Paul, franchise values**\
 `Swept by the Cardinals in St. Louis, the Twins have started a season 0-3 for the first time since 2016.`\
 https://nytimes.com/athletic/6241564/2025/03/30/twins-opening-series-prospects-takeaways/
@@ -10,7 +18,7 @@ https://nytimes.com/2025/03/30/world/europe/london-quaker-arrests-gaza.html
 `No. 1 seed Auburn topped Michigan State 70-64 to earn a Final Four bid behind 25 points from Johni Broome, who briefly left with an injury.`\
 https://nytimes.com/athletic/6242943/2025/03/30/auburn-msu-johni-broome-injury-score/
 
-**Men's Final Four 2025: What to know about the last team's standing**\
+**Men's Final Four 2025: What to know about the last teams standing**\
 `Just because there's no Cinderella in the Final Four doesn't mean there can't be a storybook ending.`\
 https://nytimes.com/athletic/6242633/2025/03/30/mens-final-four-2025-what-to-know/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6242810/2025/03/30/auburn-johni-broome-elbow-injury
 **Justin Fields will be the Jets' starter, and they believe he can be the next Sam Darnold: Takeaways**\
 `Darren Mougey said Fields has a "unique athletic skill set that adds another dimension to the game."`\
 https://nytimes.com/athletic/6242736/2025/03/30/justin-fields-jets-quarterback/
-
-**Brewers believe Yankees' torpedo bats were fair: 'It ain't the wand; it's the magician'**\
-`After allowing 15 home runs in three games, the Brewers didn't make excuses: "It's not like some magical wood or anything else."`\
-https://nytimes.com/athletic/6242643/2025/03/30/brewers-yankees-torpedo-bats/
-
-**Mike Tomlin gives no timeline on Aaron Rodgers as Steelers weigh QB options**\
-`Throughout his media availability at the annual league meetings, Tomlin was peppered with repeated questions about the ongoing Rodgers saga.`\
-https://nytimes.com/athletic/6242727/2025/03/30/steelers-aaron-rodgers-free-agency-quarterbacka/
 

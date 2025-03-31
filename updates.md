@@ -1,3 +1,15 @@
+**Museum of Now**\
+`A tour of some unusual artifacts from the present.`\
+https://nytimes.com/2025/03/30/podcasts/museum-of-now-this-american-life-nyt-audio.html
+
+**Maxim Naumov’s late parents are with him on the ice, now and forever**\
+`The 23-year-old skater delivered a flawless exhibition of love at the “Exhibition of Champions” and ended it with a message to his parents. `\
+https://nytimes.com/athletic/6242773/2025/03/30/world-figure-skating-championships-maxim-naumov/
+
+**Men's Final Four 2025: What to know about the last teams standing**\
+`Just because there's no Cinderella in the Final Four doesn't mean there can't be a storybook ending.`\
+https://nytimes.com/athletic/6242633/2025/03/30/mens-final-four-2025-what-to-know/
+
 **Twins takeaways: Déjà vu for Bailey Ober, prospect watching in St. Paul, franchise values**\
 `Swept by the Cardinals in St. Louis, the Twins have started a season 0-3 for the first time since 2016.`\
 https://nytimes.com/athletic/6241564/2025/03/30/twins-opening-series-prospects-takeaways/
