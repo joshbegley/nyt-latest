@@ -1,9 +1,17 @@
+**‘Dying for Sex,’ Plus 7 Things to Watch on TV this Week**\
+`The Hulu show starring Michelle Williams premieres, and the third season of “White Lotus” wraps up.`\
+https://nytimes.com/2025/03/31/arts/television/dying-for-sex.html
+
+**The New York Times in Print for Monday, March 31, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/03/31/todays-new-york-times
+
 **Greenland’s Prime Minister Says the U.S. Will Not ‘Get’ the Island**\
 `“We do not belong to anyone else,” Prime Minister Jens-Frederik Nielsen said in response to President Trump’s latest assertion that he wants to annex the territory.`\
 https://nytimes.com/2025/03/31/us/politics/greenland-prime-minister-trump.html
 
 **Still no relief for Cubs after huge bullpen letdown: 'Wasn’t a good day'**\
-`Cubs relievers allow 10 runs as comfortable lead turns into a 10-6 loss to Diamondbacks.`\
+`Cubs relievers allow 10 runs as a comfortable lead turns into a 10-6 loss to Diamondbacks.`\
 https://nytimes.com/athletic/6243407/2025/03/31/chicago-cubs-relief-pitchers-diamondbacks/
 
 **Inside Leicester's academy: Producing talent, tough decisions and offering a future**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6241939/2025/03/31/manchester-united-academy-role/
 **Goals galore and a willingness to be self-sufficient - would Gyokeres be a good fit for Arsenal?**\
 `Aside from the mind-boggling goal tally, the Sweden striker occupies defenders and tends to make something out of nothing single-handedly`\
 https://nytimes.com/athletic/6242470/2025/03/31/gyokeres-arsenal-sporting-sweden-fit/
-
-**Liverpool, Everton and the 'conjoined stadium' that never was**\
-`In 2010, a proposal to build a dual stadium in Stanley Park was put to Merseyside's leading teams. The Athletic speaks to those behind it`\
-https://nytimes.com/athletic/6220985/2025/03/31/everton-liverpool-stadium-joint-design/
-
-**Billy Gilmour on Conte's Napoli, nights out with McTominay and paying tribute to Maradona**\
-`The former Chelsea midfielder thinks playing abroad was always going to suit him, as Napoli chase a second Serie A title in three years`\
-https://nytimes.com/athletic/6232046/2025/03/31/billy-gilmour-napoli-conte-mctominay-scotland/
 

@@ -1,3 +1,15 @@
+**‘Dying for Sex,’ Plus 7 Things to Watch on TV this Week**\
+`The Hulu show starring Michelle Williams premieres, and the third season of “White Lotus” wraps up.`\
+https://nytimes.com/2025/03/31/arts/television/dying-for-sex.html
+
+**The New York Times in Print for Monday, March 31, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/03/31/todays-new-york-times
+
+**Still no relief for Cubs after huge bullpen letdown: 'Wasn’t a good day'**\
+`Cubs relievers allow 10 runs as a comfortable lead turns into a 10-6 loss to Diamondbacks.`\
+https://nytimes.com/athletic/6243407/2025/03/31/chicago-cubs-relief-pitchers-diamondbacks/
+
 **Greenland’s Prime Minister Says the U.S. Will Not ‘Get’ the Island**\
 `“We do not belong to anyone else,” Prime Minister Jens-Frederik Nielsen said in response to President Trump’s latest assertion that he wants to annex the territory.`\
 https://nytimes.com/2025/03/31/us/politics/greenland-prime-minister-trump.html
