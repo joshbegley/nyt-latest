@@ -1,3 +1,7 @@
+**How Does It Feel to Be an International Student in the U.S. Now?**\
+`We want to hear about how the Trump administration’s immigration policies have affected your travel plans and experience on campus.`\
+https://nytimes.com/2025/03/31/us/international-student-immigration-callout.html
+
 **Buffalo Bills NFL Draft 2025 guide: Picks, predictions and key needs**\
 `All you need to know about the Bills' 2025 draft.`\
 https://nytimes.com/athletic/6230315/2025/03/31/buffalo-bills-2025-nfl-draft-picks-needs-predictions-guide/
