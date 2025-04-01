@@ -1,3 +1,7 @@
+**A's owner John Fisher says he's confident, not nervous, as team begins Sacramento tenure**\
+`Will construction on a new ballpark in Las Vegas start this summer? "I only hope so," said the A's owner.`\
+https://nytimes.com/athletic/6245853/2025/03/31/athletics-owner-john-fisher-sacramento/
+
 **Corrections: April 1, 2025**\
 `Corrections that appeared in print on Tuesday, April 1, 2025.`\
 https://nytimes.com/2025/03/31/pageoneplus/corrections-april-1-2025.html

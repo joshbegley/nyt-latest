@@ -1,3 +1,7 @@
+**Long Stretch**\
+`Sande Milton makes his Crossword solo debut in The New York Times.`\
+https://nytimes.com/2025/03/31/crosswords/daily-puzzle-2025-04-01.html
+
 **A's owner John Fisher says he's confident, not nervous, as team begins Sacramento tenure**\
 `Will construction on a new ballpark in Las Vegas start this summer? "I only hope so," said the A's owner.`\
 https://nytimes.com/athletic/6245853/2025/03/31/athletics-owner-john-fisher-sacramento/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/31/us/politics/trump-executive-order-elections-lawsu
 **Dodgers' Freddie Freeman tweaks surgically-repaired ankle during shower 'mishap'**\
 `Freeman wasn't in the Dodgers' lineup for Monday night's game against the Braves but isn't expected to miss much time.`\
 https://nytimes.com/athletic/6245659/2025/03/31/dodgers-freddie-freeman-ankle-injury-shower/
-
-**Coastal Carolina offering free concessions at home football games in 2025**\
-`Fans can make unlimited visits and are only required to scan each trip through an athletic department app.`\
-https://nytimes.com/athletic/6245674/2025/03/31/coastal-carolina-football-concessions-2025/
 
