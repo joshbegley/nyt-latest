@@ -1,3 +1,7 @@
+**DOGE Demands Deep Cuts at Humanities Endowment**\
+`The National Endowment for the Humanities, which supports museums, scholarship and historical sites, could see grants curtailed and staffing slashed by up to 80 percent.`\
+https://nytimes.com/2025/04/01/arts/trump-doge-federal-cuts-humanities.html
+
 **Packers president Mark Murphy explains why they want the 'tush push' banned**\
 `Murphy first cited safety concerns, but there isn't much data to back up the conclusion that the tush push is an elevated safety risk.`\
 https://nytimes.com/athletic/6248189/2025/04/01/packers-mark-murphy-tush-push/
@@ -33,8 +37,4 @@ https://nytimes.com/card/watch/2025/04/01/us/politics/reporter-trump-tariff-expl
 **Trump Expected to Announce Reciprocal Tariffs for Other Countries**\
 `President Trump is expected to announce new tariffs on goods imported from outside the U.S., which could match the levies that other countries place on products made in America.`\
 https://nytimes.com/video/business/economy/100000010085723/trump-tariff-liberation-day.html
-
-**Kathan Brown, Acclaimed Fine Art Printmaker, Dies at 89**\
-`She helped revive the centuries-old tradition of intaglio printing in the U.S., producing fine-art etchings with artists like Chuck Close and Sol LeWitt.`\
-https://nytimes.com/2025/04/01/arts/kathan-brown-dead.html
 

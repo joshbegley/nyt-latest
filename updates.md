@@ -1,3 +1,7 @@
+**DOGE Demands Deep Cuts at Humanities Endowment**\
+`The National Endowment for the Humanities, which supports museums, scholarship and historical sites, could see grants curtailed and staffing slashed by up to 80 percent.`\
+https://nytimes.com/2025/04/01/arts/trump-doge-federal-cuts-humanities.html
+
 **Packers president Mark Murphy explains why they want the 'tush push' banned**\
 `Murphy first cited safety concerns, but there isn't much data to back up the conclusion that the tush push is an elevated safety risk.`\
 https://nytimes.com/athletic/6248189/2025/04/01/packers-mark-murphy-tush-push/
