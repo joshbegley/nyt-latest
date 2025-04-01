@@ -1,3 +1,11 @@
+**Kyle Hart, who'd only pitched in the emptiness of 2020, earns win for Padres in MLB return**\
+`SAN DIEGO — Kyle Hart took the Petco Park mound Monday in rare company.`\
+https://nytimes.com/athletic/6246096/2025/04/01/kyle-hart-mlb-padres-pandemic/
+
+**Word of the Day: profusely**\
+`This word has appeared in 71 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/04/01/learning/word-of-the-day-profusely.html
+
 **China Holds Military Exercises Around Taiwan in Fresh Warning**\
 `The drills came after Taiwan’s president, Lai Ching-te, announced measures to counter China’s influence and espionage. Beijing also wants to send a message to Washington, analysts said.`\
 https://nytimes.com/2025/04/01/world/asia/china-taiwan-military-drills.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6244816/2025/04/01/nottingham-forest-finances-would
 **Hailey Van Lith's long college career ends with a loss, but also redemption**\
 `"My journey has been crazy. I'm super grateful for it, wouldn't have had it any other way.”`\
 https://nytimes.com/athletic/6246035/2025/04/01/hailey-van-liths-long-college-career-ends-with-a-loss-but-also-redemption/
-
-**Everton's accounts explained: Friedkin impact, PSR compliance, transfers to come after June 30**\
-`Everton posted a loss for a seventh straight year but having been taken over there is scope and ambition to do more than survive`\
-https://nytimes.com/athletic/6244439/2025/04/01/everton-accounts-friedkin-takeover-stadium-transfers/
-
-**Pete Alonso tunes up for Mets home opener with grand slam in win over Marlins**\
-`With 227 career home runs, Alonso needs just 26 more to pass Darryl Strawberry for the Mets franchise record.`\
-https://nytimes.com/athletic/6245968/2025/04/01/pete-alonso-grand-slam-mets-win/
 
