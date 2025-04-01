@@ -1,3 +1,15 @@
+**Are new torpedo bats affecting sports betting? 'We don’t do any knee-jerk reactions'**\
+`Bettors are all over the torpedo bat craze, but what do the sportsbooks think? Max Meyer talked to oddsmakers to find out.`\
+https://nytimes.com/athletic/6247578/2025/04/01/torpedo-bats-mlb-betting/
+
+**What stood out in Wisconsin's fifth practice of the spring?**\
+`Six takeaways from Wisconsin's spring practice on Tuesday morning.`\
+https://nytimes.com/athletic/6247528/2025/04/01/wisconsin-spring-football-practice-luke-fickell/
+
+**Voters Cast Ballots in Crucial Wisconsin Supreme Court Race**\
+`The contest between judges Susan Crawford, a liberal, and Brad Schimel, a conservative whose campaign was backed by the billionaire Elon Musk, will tip the balance of the Wisconsin Supreme Court.`\
+https://nytimes.com/video/us/elections/100000010084913/wisconsin-election-voters.html
+
 **Jerry Jones' comments about agent and contract talks prompt Micah Parsons' response**\
 `"The agent doesn’t have one thing to do with what we’re doing when we get on the football field,” Jerry Jones said of the negotiations.`\
 https://nytimes.com/athletic/6247691/2025/04/01/cowboys-micah-parsons-agent-jerry-jones-comment/
