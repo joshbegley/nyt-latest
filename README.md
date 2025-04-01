@@ -1,3 +1,7 @@
+**Bucks' co-owner Wes Edens 'optimistic' team can make a playoff run despite Lillard injury**\
+`Edens took questions at the Bucks' Sixth Man Soirée on Monday night and believes Milwaukee can make "a real run of it" in the playoffs.`\
+https://nytimes.com/athletic/6245743/2025/04/01/bucks-playoffs-damian-lillard-wes-edens-comments/
+
 **Congress Wrote a Deportation Law to Be Used ‘Sparingly.’ Trump Has Other Ideas.**\
 `A crackdown targeting foreign students protesting Israel’s treatment of Palestinians conflicts with free-speech protections that lawmakers added in 1990.`\
 https://nytimes.com/2025/04/01/us/trump-deportations-students-campus-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6246531/2025/04/01/nba-draft-tanking-lakers-lebron-
 **USWNT's Rodman: 'I don't know if my back will ever be 100 percent'**\
 `The 22-year-old has dealt with multiple back injuries since her debut season in the NWSL in 2021.`\
 https://nytimes.com/athletic/6246630/2025/04/01/trinity-rodman-back-injury/
-
-**Weekly Student News Quiz: Earthquake, Security Breach, Baseball Season **\
-`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
-https://nytimes.com/interactive/2025/04/01/learning/01StudentNewsQuizLN.html
 
