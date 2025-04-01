@@ -1,3 +1,11 @@
+**Edmundo Sosa, Phillies' home opener hero, rewards Rob Thomson's trust**\
+`"Right man, right spot": Until Sosa's swing, a packed house didn't have much to celebrate other than the unusual warmth in South Philly.`\
+https://nytimes.com/athletic/6245720/2025/03/31/edmundo-sosa-phillies-home-opener/
+
+**Democrats Sue President Over Executive Order on Elections**\
+`The lawsuit accuses President Trump of vastly overstepping his authority to “upturn the electoral playing field in his favor and against his political rivals.”`\
+https://nytimes.com/2025/03/31/us/politics/trump-executive-order-elections-lawsuit.html
+
 **Dodgers' Freddie Freeman tweaks surgically-repaired ankle during shower 'mishap'**\
 `Freeman wasn't in the Dodgers' lineup for Monday night's game against the Braves but isn't expected to miss much time.`\
 https://nytimes.com/athletic/6245659/2025/03/31/dodgers-freddie-freeman-ankle-injury-shower/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/31/us/politics/us-deportations-tren-de-aragua-deport
 **Minnesota Student Detained by ICE Was Not an Activist, Lawsuit Says**\
 `Lawyers and experts say the arrest last week of a University of Minnesota graduate student may signal a new front in the Trump administration’s approach to immigration.`\
 https://nytimes.com/2025/03/31/us/minnesota-student-immigration-arrest.html
-
-**UNC's Elliot Cadeau to transfer to Michigan: What he brings to Wolverines**\
-`Dusty May is landing a brilliant passer, but a guard who was also the epitome of a boom-or-bust player with Tar Heels.`\
-https://nytimes.com/athletic/6245477/2025/03/31/elliot-cadeau-transfers-michigan-unc/
-
-**Astronauts Emphasize Gratitude as NASA Contends With Uncertainty**\
-`Suni Williams and Butch Wilmore spoke in their first news conference since returning to Earth two weeks ago from an unexpectedly long I.S.S. stay that lasted more than nine months.`\
-https://nytimes.com/2025/03/31/science/nasa-astronauts-stuck-space-press-conference.html
 
