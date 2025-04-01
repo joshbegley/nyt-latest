@@ -1,3 +1,11 @@
+**Iceland Volcano Eruption Threatens Town**\
+`The eruption began near Grindavik, a small town long threatened by volcanic disruptions, and prompted the closure of a popular tourist destination.`\
+https://nytimes.com/2025/04/01/world/europe/iceland-volcano-eruption-grindavik.html
+
+**Icelandic Volcano Eruption Threatens Nearby Town**\
+`Iceland’s Civil Defense captured aerial footage on Tuesday after a volcano erupted near Grindavik in the country’s southwest.`\
+https://nytimes.com/video/world/europe/100000010084748/icelandic-volcano-eruption-threatens-nearby-town.html
+
 **Hooters Files for Bankruptcy, but Its Restaurants Will Stay Open**\
 `A group that includes the restaurant’s founders will buy restaurants from the private equity firm that owns many locations of the chain.`\
 https://nytimes.com/2025/04/01/business/hooters-restaurant-bankruptcy.html
