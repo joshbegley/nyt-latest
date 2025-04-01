@@ -1,3 +1,11 @@
+**Calais Campbell, 38, returning to Cardinals for his 18th NFL season**\
+`Campbell, the NFL's oldest non-quarterback, spent his first nine seasons with the Arizona Cardinals after being drafted by them in 2008.`\
+https://nytimes.com/athletic/6248055/2025/04/01/calais-campbell-free-agency-signing-cardinals-return/
+
+**NASCAR penalizes Sammy Smith for intentional wreck during Xfinity Series**\
+`Smith received the same points penalty as Cup Series driver Austin Cindric, who intentionally wrecked a competitor last month.`\
+https://nytimes.com/athletic/6248094/2025/04/01/nascar-sammy-smith-penalty-fine-wreck-martinsville/
+
 **Forest's Aina set for injury scan**\
 `The defender went down and had to be withdrawn in the 39th minute of the game against Manchester United.`\
 https://nytimes.com/athletic/6247995/2025/04/01/ola-aina-injury-nottingham-forest/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/01/us/politics/federal-worker-protests.html
 **Musk Again Misleads on Social Security Fraud**\
 `The world’s richest man misstated a statistic from the Social Security Administration to once again overstate fraud in the program.`\
 https://nytimes.com/2025/04/01/us/politics/elon-musk-social-security-fraud.html
-
-**In Adams Case, Some Say It’s Not the Time for Narrow Reading of the Law**\
-`Some legal observers say the court-appointed expert who recommended dismissing charges against Mayor Eric Adams failed to account for the extraordinary factors in the case.`\
-https://nytimes.com/2025/04/01/nyregion/adams-corruption-clement-dismiss.html
-
-**7-Year-Old Girl Is Killed by Falling Boulder at Lake Tahoe Ski Resort**\
-`The child was at the Diamond Peak Ski Resort, which said in a statement that she had not been skiing at the time it happened.`\
-https://nytimes.com/2025/04/01/us/child-killed-lake-tahoe-diamond-peak-ski-resort.html
 
