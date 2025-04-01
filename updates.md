@@ -1,3 +1,7 @@
+**High Stakes and Lack of Details Add to Trade War Jitters**\
+`Business leaders and investors remain on edge ahead of President Trump’s expected announcement of a sweeping new round of tariffs.`\
+https://nytimes.com/2025/04/01/business/dealbook/trump-tariffs-trade-war.html
+
 **Seven reasons to be cautiously optimistic about Manchester United's run-in**\
 `Manchester United still have a chance of winning a trophy and avoiding a historically bad season`\
 https://nytimes.com/athletic/6246359/2025/04/01/manchester-united-season-europa-league/

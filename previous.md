@@ -1,3 +1,7 @@
+**High Stakes and Lack of Details Add to Trade War Jitters**\
+`Business leaders and investors remain on edge ahead of President Trump’s expected announcement of a sweeping new round of tariffs.`\
+https://nytimes.com/2025/04/01/business/dealbook/trump-tariffs-trade-war.html
+
 **Seven reasons to be cautiously optimistic about Manchester United's run-in**\
 `Manchester United still have a chance of winning a trophy and avoiding a historically bad season`\
 https://nytimes.com/athletic/6246359/2025/04/01/manchester-united-season-europa-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6244747/2025/04/01/quarterbacks-recruiting-class-20
 **Lloyd: Jimmy Haslam takes accountability (again) while Browns mull Travis Hunter and more**\
 `Admitting failure has never been hard for the Haslams. Fixing their failures is a different story. Their next chance comes in the NFL Draft.`\
 https://nytimes.com/athletic/6245457/2025/04/01/browns-owner-jimmy-haslam-nfl-draft-travis-hunter/
-
-**Who are the best Group of 5 transfers heading to the Power 4 ranks?**\
-`Will John Mateer solve Oklahoma's woes? Can Makhi Hughes be the next great back at Oregon? Will Ethan Onianwa be a star at Ohio State?`\
-https://nytimes.com/athletic/6245251/2025/04/01/college-football-transfer-portal-group-5-power-4/
 
