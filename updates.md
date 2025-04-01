@@ -1,3 +1,11 @@
+**The New York Times International Edition in Print for Wednesday, April 2, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/04/01/todays-new-york-times-international-edition
+
+**Cory Booker Slams Trump’s Policies in Marathon Senate Floor Speech**\
+`The New Jersey senator criticized the president’s plans for Social Security, education and health care, saying the “nation is in crisis.” He was still speaking in the predawn hours.`\
+https://nytimes.com/2025/04/01/us/politics/booker-senate-trump.html
+
 **Cory Booker Slams Trump’s Policies in Marathon Senate Floor Speech**\
 `The New Jersey senator criticized the president’s plans for Social Security, education and health care, saying the ‘nation is in crisis.’ He was still speaking in the predawn hours.`\
 https://nytimes.com/2025/04/01/us/politics/booker-senate-trump.html
