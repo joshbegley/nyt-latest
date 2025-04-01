@@ -1,3 +1,15 @@
+**NFL owners approve rule for both teams to possess ball in regular season OT**\
+`The new regular season overtime rules will now more closely resemble the playoff format.`\
+https://nytimes.com/athletic/6246849/2025/04/01/nfl-overtime-rule-change-expanded-replay-assist/
+
+**After a Terminal Cancer Diagnosis, a Lawyer Seeks Revenge**\
+`In Ariel Courage’s novel, “Bad Nature,” a powerful career woman sets out on a road trip intending to kill her father.`\
+https://nytimes.com/2025/04/01/books/review/bad-nature-ariel-courage.html
+
+**Johnson Moves to Block a Bill Allowing New Parents in the House to Vote by Proxy**\
+`It was not clear whether the speaker would be able to peel off enough Republicans to prevent the measure from coming up because a majority of House members want to consider it.`\
+https://nytimes.com/2025/04/01/us/politics/house-proxy-voting-parents.html
+
 **Meet the Beatles! (The Movie Version, at Least)**\
 `The director Sam Mendes announced the stars of his four-film series, each told from the perspective of a different Beatle, set to be released in 2028.`\
 https://nytimes.com/2025/04/01/movies/beatles-biopic-movie-cast-mendes-mescal-keoghan-dickinson-quinn.html

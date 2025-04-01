@@ -1,3 +1,7 @@
+**NFL teams table vote to ban 'tush push' at league meetings: Source**\
+`The play has been frequently used by the Philadelphia Eagles and quarterback Jalen Hurts in short-yardage situations.`\
+https://nytimes.com/athletic/6245224/2025/04/01/nfl-tush-push-vote-tabled/
+
 **NFL owners approve rule for both teams to possess ball in regular season OT**\
 `The new regular season overtime rules will now more closely resemble the playoff format.`\
 https://nytimes.com/athletic/6246849/2025/04/01/nfl-overtime-rule-change-expanded-replay-assist/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6246114/2025/04/01/rockets-dillon-brooks-lebron-lak
 **Wolves' Joao Gomes signs new five-year contract**\
 `The new deal does not contain a release clause, meaning Gomes is all but certain to stay at Molineux this summer.`\
 https://nytimes.com/athletic/6246557/2025/04/01/wolves-joao-gomes-contract-update/
-
-**Three New Works of Theater to Share One Trait: Hope**\
-`The Fisher Center at Bard has announced a wave of works by artists including Suzan-Lori Parks, Courtney Bryan, Barrie Kosky and Lisa Kron.`\
-https://nytimes.com/2025/04/01/arts/civis-hope-commissions-fisher-center-bard.html
 

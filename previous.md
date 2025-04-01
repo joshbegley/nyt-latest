@@ -1,3 +1,15 @@
+**NFL owners approve rule for both teams to possess ball in regular season OT**\
+`The new regular season overtime rules will now more closely resemble the playoff format.`\
+https://nytimes.com/athletic/6246849/2025/04/01/nfl-overtime-rule-change-expanded-replay-assist/
+
+**After a Terminal Cancer Diagnosis, a Lawyer Seeks Revenge**\
+`In Ariel Courage’s novel, “Bad Nature,” a powerful career woman sets out on a road trip intending to kill her father.`\
+https://nytimes.com/2025/04/01/books/review/bad-nature-ariel-courage.html
+
+**Johnson Moves to Block a Bill Allowing New Parents in the House to Vote by Proxy**\
+`It was not clear whether the speaker would be able to peel off enough Republicans to prevent the measure from coming up because a majority of House members want to consider it.`\
+https://nytimes.com/2025/04/01/us/politics/house-proxy-voting-parents.html
+
 **Meet the Beatles! (The Movie Version, at Least)**\
 `The director Sam Mendes announced the stars of his four-film series, each told from the perspective of a different Beatle, set to be released in 2028.`\
 https://nytimes.com/2025/04/01/movies/beatles-biopic-movie-cast-mendes-mescal-keoghan-dickinson-quinn.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6246557/2025/04/01/wolves-joao-gomes-contract-updat
 **Three New Works of Theater to Share One Trait: Hope**\
 `The Fisher Center at Bard has announced a wave of works by artists including Suzan-Lori Parks, Courtney Bryan, Barrie Kosky and Lisa Kron.`\
 https://nytimes.com/2025/04/01/arts/civis-hope-commissions-fisher-center-bard.html
-
-**Major Layoffs Begin at Health Agencies That Track Disease and Regulate Food**\
-`The cuts were part of a Trump administration plan announced last week to dismiss thousands of employees and drastically overhaul the Health and Human Services Department under Secretary Robert F. Kennedy Jr.`\
-https://nytimes.com/2025/04/01/us/politics/trump-federal-layoffs-health-food.html
-
-**Celtics chase history on road after perfect 6-0 trip: 'Our guys are good everywhere'**\
-`The Celtics are two road wins away from tying the Warriors for the best road record in a single season.`\
-https://nytimes.com/athletic/6246059/2025/04/01/celtics-history-road-record-winning/
-
-**Falcons preparing for Kirk Cousins to be backup QB, not expected at OTAs**\
-`Cousins has told coach Raheem Morris he would prefer to be in a situation where he can be the starting quarterback.`\
-https://nytimes.com/athletic/6246731/2025/04/01/kirk-cousins-falcons-backup-qb-raheem-morris/
 
