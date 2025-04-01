@@ -1,3 +1,7 @@
+**NBA Power Rankings: Across the league, there's an app for that — good and bad**\
+`As April begins, there's a sizable gap between the league's top three teams and the rest of the field.`\
+https://nytimes.com/athletic/6246701/2025/04/01/nba-power-rankings-lakers-thunder-cavaliers-bucks/
+
 **Women's March Madness projections 2025: Does UConn have the advantage?**\
 `What's your team's chance of winning? Find out here. `\
 https://nytimes.com/athletic/6198041/2025/04/01/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/01/us/politics/trump-tariffs-stock-market.html
 **The Caretaker of Muncy Farms**\
 `When he was five years old, Malcolm Barlow arrived at a country estate in Pennsylvania to escape World War II. He never left, under circumstances he would not understand until years later.`\
 https://nytimes.com/2025/04/01/realestate/malcolm-barlow-muncy-pennsylvania.html
-
-**Five Ingredients, Five Stars, No Joke**\
-`Garlicky Alfredo beans are “outrageously good.”`\
-https://nytimes.com/2025/04/01/dining/five-ingredients-five-stars-no-joke.html
 
