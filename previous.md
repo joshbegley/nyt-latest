@@ -1,3 +1,7 @@
+**Marcus Foligno, Matt Boldy team up to deliver a much-needed point in New Jersey**\
+`The Wild found some offense late to bounce back from one of their worst games of the season.`\
+https://nytimes.com/athletic/6245793/2025/03/31/wild-foligno-boldy-offense-devils/
+
 **Johnson & Johnson Loses in Court Again in Bid to Settle Talc Cases**\
 `A judge dismissed an attempt to use a bankruptcy court to resolve tens of thousands of claims that the company’s talcum power products caused cancer.`\
 https://nytimes.com/2025/03/31/business/johnson-johnson-bankruptcy-talc.html
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/6198041/2025/03/31/womens-march-madness-projections
 https://nytimes.com/2025/03/31/theater/glengarry-glen-ross-review-culkin-odenkirk-burr.html
 
 **Oakland native Nico Hoerner wishes A's still played there: 'I feel for ... sports fans'**\
-`“All three teams being gone in a very short span is a hard hit to an entire community," Hoerner said of the MLB, NBA and NFL exits.`\
+`"All three teams being gone in a very short span is a hard hit to an entire community," Hoerner said of the MLB, NBA and NFL exits.`\
 https://nytimes.com/athletic/6245867/2025/03/31/oakland-native-nico-hoerner-athletics-move-reaction/
 
 **Read the Alabama Judge’s Ruling**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/31/world/middleeast/israel-strike-lebanon-beirut.htm
 **Pentagon Eliminates Lower Fitness Standards for Women in Combat Roles**\
 `Pete Hegseth, the defense secretary, mandated that physical fitness requirements for combat jobs be “sex-neutral,” a move that is likely to significantly reduce the number of women who qualify.`\
 https://nytimes.com/2025/03/31/us/politics/hegseth-fitness-standards-military-combat-roles.html
-
-**South Korea’s President Will Learn His Fate on Friday**\
-`The Constitutional Court will announce on Friday whether Yoon Suk Yeol, who was impeached in December for declaring martial law, will be permanently removed from office or restored to power.`\
-https://nytimes.com/2025/03/31/world/asia/south-korea-yoon-impeach-court.html
 

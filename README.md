@@ -1,3 +1,15 @@
+**Quote of the Day: A Chinese Truck Maker Wants the Green Light**\
+`Quotation of the Day for Tuesday, April 1, 2025.`\
+https://nytimes.com/2025/03/31/pageoneplus/quote-of-the-day-a-chinese-truck-maker-wants-the-green-light.html
+
+**Alabama Can’t Prosecute Those Who Help With Out-of-State Abortions, Judge Rules**\
+`The state attorney general had raised the possibility of charging doctors with criminal conspiracy for recommending abortion care out of state.`\
+https://nytimes.com/2025/03/31/us/politics/alabama-abortion-prosecution.html
+
+**UConn defeats USC 78-64 to return to record 24th Final Four vs. UCLA**\
+`Paige Bueckers was again sensational and finished with 31 points and freshman forward Sarah Strong finished with 20 points and 17 rebounds`\
+https://nytimes.com/athletic/6245903/2025/03/31/usc-uconn-elite-eight-results-analysis/
+
 **Marcus Foligno, Matt Boldy team up to deliver a much-needed point in New Jersey**\
 `The Wild found some offense late to bounce back from one of their worst games of the season.`\
 https://nytimes.com/athletic/6245793/2025/03/31/wild-foligno-boldy-offense-devils/
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2025/03/31/us/alabama-abortion-prosecution.html
 **Notre Dame's Olivia Miles entering transfer portal, forgoing draft**\
 `The senior averaged a career-best and team second-best 15.4 points this season. Her 5.8 assists per game were a team-high.`\
 https://nytimes.com/athletic/6245915/2025/03/31/notre-dame-olivia-miles-transfer-portal/
-
-**Torpedo bats are making a lot of noise — but they've been quietly in MLB for a few years**\
-`Reds star Elly De La Cruz is the latest convert, hitting two home runs and knocking in seven runs in his first game with the unique bat.`\
-https://nytimes.com/athletic/6245770/2025/03/31/mlb-torpedo-bat-interest-viral/
-
-**Israel’s Military Says It Struck Beirut’s Suburbs**\
-`The attack was the second in less than a week, raising fears that a cease-fire between Israel and Hezbollah could unravel.`\
-https://nytimes.com/2025/03/31/world/middleeast/israel-strike-lebanon-beirut.html
-
-**Pentagon Eliminates Lower Fitness Standards for Women in Combat Roles**\
-`Pete Hegseth, the defense secretary, mandated that physical fitness requirements for combat jobs be “sex-neutral,” a move that is likely to significantly reduce the number of women who qualify.`\
-https://nytimes.com/2025/03/31/us/politics/hegseth-fitness-standards-military-combat-roles.html
 

@@ -1,3 +1,11 @@
+**Marcus Foligno, Matt Boldy team up to deliver a much-needed point in New Jersey**\
+`The Wild found some offense late to bounce back from one of their worst games of the season.`\
+https://nytimes.com/athletic/6245793/2025/03/31/wild-foligno-boldy-offense-devils/
+
+**Oakland native Nico Hoerner wishes A's still played there: 'I feel for ... sports fans'**\
+`"All three teams being gone in a very short span is a hard hit to an entire community," Hoerner said of the MLB, NBA and NFL exits.`\
+https://nytimes.com/athletic/6245867/2025/03/31/oakland-native-nico-hoerner-athletics-move-reaction/
+
 **Johnson & Johnson Loses in Court Again in Bid to Settle Talc Cases**\
 `A judge dismissed an attempt to use a bankruptcy court to resolve tens of thousands of claims that the company’s talcum power products caused cancer.`\
 https://nytimes.com/2025/03/31/business/johnson-johnson-bankruptcy-talc.html
