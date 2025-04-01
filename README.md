@@ -1,3 +1,11 @@
+**Yankees sign relief pitcher Adam Ottavino to major-league contract**\
+`Ottavino, 39, played for the Yankees from 2019-20 and is likely a short-term option with Devin Williams on the paternity list.`\
+https://nytimes.com/athletic/6247096/2025/04/01/yankees-adam-ottavino-contract/
+
+**Postecoglou says Tottenham got start of season 'wrong'**\
+`"We probably underestimated the challenges of Europe this year with your two extra games and having a deep cup run," the Australian said.`\
+https://nytimes.com/athletic/6247129/2025/04/01/ange-postecoglou-tottenham-schedule/
+
 **Prosecutors to Seek Death Penalty for Mangione, Bondi Says**\
 `The attorney general said the decision to seek the death penalty for Luigi Mangione, who is accused of murdering an insurance executive, was in keeping with an executive order by President Trump.`\
 https://nytimes.com/2025/04/01/us/politics/luigi-mangione-death-penalty.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6198041/2025/04/01/womens-march-madness-projections
 **The Windup: Already panic time for the Braves?**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6246173/2025/04/01/atlanta-braves-record-the-windup/
-
-**Shake-Up in China’s Auto Sector: Two Giants Are Discussing a Merger**\
-`The state-owned automakers, longtime joint venture partners of Ford and Nissan, might combine operations as Beijing consolidates its sprawling car sector.`\
-https://nytimes.com/2025/04/01/business/dongfeng-changan-china-auto-merger.html
-
-**Who will be the Packers' left tackle? Matt LaFleur discusses that competition and more**\
-`Rasheed Walker was a sturdy blindside protector, but 2024 first-rounder Jordan Morgan will compete for the job in 2025.`\
-https://nytimes.com/athletic/6246910/2025/04/01/matt-lafleur-packers-nfl-owners-meetings/
 
