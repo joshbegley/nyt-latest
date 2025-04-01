@@ -1,3 +1,7 @@
+**Pope Francis’ Health Continues to Improve, Vatican Says**\
+`A little over a week after returning to the Vatican guesthouse to convalesce, the pope was showing gradual improvements in his movements and speech.`\
+https://nytimes.com/2025/04/01/world/europe/pope-francis-health-vatican.html
+
 **Iceland Volcano Eruption Threatens Town**\
 `The eruption began near Grindavik, a small town long threatened by volcanic disruptions, and prompted the closure of a popular tourist destination.`\
 https://nytimes.com/2025/04/01/world/europe/iceland-volcano-eruption-grindavik.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6245086/2025/04/01/blackhawks-moore-rinzel-levshuno
 **Tough call: Veteran James van Riemsdyk feels the squeeze of Blue Jackets' roster glut**\
 `The Blue Jackets are healthier than they've been all season, with two deadline signings to boot. But not everyone can play every game.`\
 https://nytimes.com/athletic/6245454/2025/04/01/blue-jackets-james-van-riemsdyk-scratch/
-
-**Trump Administration Live Updates: New Tariffs and State Elections Will Test President’s Momentum**\
-``\
-https://nytimes.com/live/2025/04/01/us/trump-news-updates
 

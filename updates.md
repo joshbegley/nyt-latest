@@ -1,3 +1,7 @@
+**Pope Francis’ Health Continues to Improve, Vatican Says**\
+`A little over a week after returning to the Vatican guesthouse to convalesce, the pope was showing gradual improvements in his movements and speech.`\
+https://nytimes.com/2025/04/01/world/europe/pope-francis-health-vatican.html
+
 **Iceland Volcano Eruption Threatens Town**\
 `The eruption began near Grindavik, a small town long threatened by volcanic disruptions, and prompted the closure of a popular tourist destination.`\
 https://nytimes.com/2025/04/01/world/europe/iceland-volcano-eruption-grindavik.html
