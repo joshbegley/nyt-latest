@@ -1,3 +1,7 @@
+**Cory Booker Delivers Marathon Speech on Senate Floor**\
+`Senator Booker, Democrat of New Jersey, spoke for hours, criticizing the Trump administration’s policies on Social Security, education, health care and more.`\
+https://nytimes.com/video/us/politics/100000010084523/corey-booker-senate-speech.html
+
 **Rosenthal: Just five games into the 2025 season, the Braves are already playing from behind**\
 `Atlanta is now down Jurickson Profar and Reynaldo López, but they still might be all right.`\
 https://nytimes.com/athletic/6246031/2025/04/01/atlanta-braves-profar-lopez-winless/
