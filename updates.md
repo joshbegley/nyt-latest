@@ -1,3 +1,7 @@
+**How to watch 76ers vs. Knicks as OG Anunoby, Mikal Bridges ascend for New York**\
+`The Knicks are massive favorites against the 76ers Tuesday night at the Garden. Mikal Bridges and OG Anunoby are heating up for New York.`\
+https://nytimes.com/athletic/6247464/2025/04/01/76ers-knicks-nba-how-to-watch/
+
 **Messi's bodyguard and his dwindling presence at Inter Miami games**\
 `Yassine Cheuko has had less of a presence on Inter Miami sidelines this season, and he claims to know why.`\
 https://nytimes.com/athletic/6247418/2025/04/01/messi-bodyguard-yassine-cheuko-mls-inter-miami-concacaf-access/
