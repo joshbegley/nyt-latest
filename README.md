@@ -1,3 +1,7 @@
+**Trump’s ‘Liberation Day’ Tariffs Are Coming, but at a Cost to U.S. Alliances**\
+`President Trump is already showing signs of concern that his targets may team up against him.`\
+https://nytimes.com/2025/04/01/us/politics/trump-tariffs-nato-allies.html
+
 **NBA suspends 5 players following Pistons-Timberwolves fight**\
 `There were seven technical fouls handed out during the incident.`\
 https://nytimes.com/athletic/6247263/2025/04/01/nba-suspensions-pistons-timberwolves-fight/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6247296/2025/04/01/submit-questions-for-jim-bowdens
 **Trump’s Dismantling of Minority Business Agency Could Hinder Job Growth**\
 `Supporters of the agency said its gutting could hurt minority-owned businesses that already face additional barriers to gaining capital.`\
 https://nytimes.com/2025/04/01/us/politics/minority-business-development-agency-trump.html
-
-**Heat Today: 5 observations from Miami's longest win streak of the season**\
-`The Heat have had plenty of peaks and valleys. Here are five reasons for their season-best five-game win streak.`\
-https://nytimes.com/athletic/6246811/2025/04/01/miami-heat-bam-adebayo-tyler-herro-win-streak/
 

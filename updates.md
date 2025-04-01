@@ -1,3 +1,11 @@
+**NBA suspends 5 players following Pistons-Timberwolves fight**\
+`There were seven technical fouls handed out during the incident.`\
+https://nytimes.com/athletic/6247263/2025/04/01/nba-suspensions-pistons-timberwolves-fight/
+
+**NFL to air 3 games on for Christmas Day 2025, Netflix partnership continues**\
+`Two of the three Christmas Day games will stream on Netflix, with the third as part of Amazon Prime's "Thursday Night Football" package.`\
+https://nytimes.com/athletic/6247055/2025/04/01/nfl-christmas-day-netflix-streaming-amazon/
+
 **How would we build homes without foreign labor and materials?**\
 `Take a line-by-line look at the estimated costs of building this four-bedroom home in Phoenix, Ariz., under President Trump’s agenda.`\
 https://nytimes.com/interactive/2025/04/01/realestate/trump-tariffs-deportation-house-construction.html
