@@ -1,3 +1,19 @@
+**Democratic Voters Are Prepared to Fight Back, but Is the Party Ready?**\
+`The party’s rank and file are angry and searching for a Democrat who can lead the way.`\
+https://nytimes.com/2025/04/01/us/democratic-voters-party-fight-gop.html
+
+**PL confirms semi-automated offside technology to be introduced this season**\
+`Semi-automated offside technology (SAOT) was introduced to major competitions in 2022, but did not debut in England until this season.`\
+https://nytimes.com/athletic/6235090/2025/04/01/semi-automated-offside-premier-league/
+
+**Bill Parcells to be inducted into Patriots Hall of Fame**\
+`Owner Robert Kraft announced that, after an at-times tumultuous relationship with the franchise, Parcells will be inducted this year.`\
+https://nytimes.com/athletic/6246908/2025/04/01/bill-parcells-new-england-patriots-hall-of-fame/
+
+**‘I Am Disgusted’: Le Pen Voters Voice Outrage Over Her Conviction**\
+`National Rally supporters say the court decision punishing France’s far-right leader for embezzlement will ultimately redound in her favor.`\
+https://nytimes.com/2025/04/01/world/europe/le-pen-voters-outrage-conviction.html
+
 **Yankees sign relief pitcher Adam Ottavino to major-league contract**\
 `Ottavino, 39, played for the Yankees from 2019-20 and is likely a short-term option with Devin Williams on the paternity list.`\
 https://nytimes.com/athletic/6247096/2025/04/01/yankees-adam-ottavino-contract/

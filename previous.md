@@ -1,3 +1,19 @@
+**Democratic Voters Are Prepared to Fight Back, but Is the Party Ready?**\
+`The party’s rank and file are angry and searching for a Democrat who can lead the way.`\
+https://nytimes.com/2025/04/01/us/democratic-voters-party-fight-gop.html
+
+**PL confirms semi-automated offside technology to be introduced this season**\
+`Semi-automated offside technology (SAOT) was introduced to major competitions in 2022, but did not debut in England until this season.`\
+https://nytimes.com/athletic/6235090/2025/04/01/semi-automated-offside-premier-league/
+
+**Bill Parcells to be inducted into Patriots Hall of Fame**\
+`Owner Robert Kraft announced that, after an at-times tumultuous relationship with the franchise, Parcells will be inducted this year.`\
+https://nytimes.com/athletic/6246908/2025/04/01/bill-parcells-new-england-patriots-hall-of-fame/
+
+**‘I Am Disgusted’: Le Pen Voters Voice Outrage Over Her Conviction**\
+`National Rally supporters say the court decision punishing France’s far-right leader for embezzlement will ultimately redound in her favor.`\
+https://nytimes.com/2025/04/01/world/europe/le-pen-voters-outrage-conviction.html
+
 **Yankees sign relief pitcher Adam Ottavino to major-league contract**\
 `Ottavino, 39, played for the Yankees from 2019-20 and is likely a short-term option with Devin Williams on the paternity list.`\
 https://nytimes.com/athletic/6247096/2025/04/01/yankees-adam-ottavino-contract/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/04/01/world/europe/italy-citizenship-rules.html
 **'We don't want to be in the Play-In': Lakers admit they're keeping an eye on standings**\
 `Back-to-back wins against Memphis and Houston have aided the Lakers' push for the No. 2 seed. Another key game, against Golden State, looms.`\
 https://nytimes.com/athletic/6245954/2025/04/01/nba-western-conference-standings-lakers-rockets-nuggets/
-
-**The Eagles can still run the Brotherly Shove. For now.**\
-`The debate continues after NFL owners tabled a proposal to ban the play.`\
-https://nytimes.com/athletic/6246635/2025/04/01/tush-push-eagles-brotherly-shove/
-
-**NBA Power Rankings: Across the league, there's an app for that — good and bad**\
-`As April begins, there's a sizable gap between the league's top three teams and the rest of the field.`\
-https://nytimes.com/athletic/6246701/2025/04/01/nba-power-rankings-lakers-thunder-cavaliers-bucks/
-
-**Women's March Madness projections 2025: Does UConn have the advantage?**\
-`What's your team's chance of winning? Find out here. `\
-https://nytimes.com/athletic/6198041/2025/04/01/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**The Windup: Already panic time for the Braves?**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6246173/2025/04/01/atlanta-braves-record-the-windup/
 
