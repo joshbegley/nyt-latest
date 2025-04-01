@@ -1,3 +1,7 @@
+**Gabe Perreault arrival to Rangers brings excitement, expectations for top prospect**\
+`“Unfortunate his (college) season is over,” coach Peter Laviolette said. “But fortunate for us, he’s now a member of the New York Rangers.”`\
+https://nytimes.com/athletic/6247787/2025/04/01/gabe-perreault-rangers-prospect-ncaa/
+
 **A Lavish Party Inside the Frick’s $220 Million Renovation**\
 `A joyous reunion for art lovers at the Frick Collection’s gala offered a private viewing of iconic works from the 14th through the 19th centuries.`\
 https://nytimes.com/2025/04/01/style/frick-collection-gala.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/04/01/opinion/hamas-gaza-palestinian-protests.html
 **Bongino Tells F.B.I. He Is Not Partisan**\
 `The F.B.I.’s No. 2 official said he would rise above partisanship, an admission that reflected skepticism among former and current agents about whether he would maintain the bureau’s independence.`\
 https://nytimes.com/2025/04/01/us/politics/dan-bongino-fbi-partisan.html
-
-**Aaron Glenn has a plan to fix the Jets' culture — it starts with silence**\
-`This offseason has revealed plenty about the first-year head coach's vision.`\
-https://nytimes.com/athletic/6247525/2025/04/01/aaron-glenn-jets-new-culture/
 
