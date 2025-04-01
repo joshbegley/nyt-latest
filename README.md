@@ -1,5 +1,9 @@
+**The New York Times International Edition in Print for Wednesday, April 2, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/04/01/todays-new-york-times-international-edition
+
 **Cory Booker Slams Trump’s Policies in Marathon Senate Floor Speech**\
-`The New Jersey senator criticized the president’s plans for Social Security, education and health care, saying the ‘nation is in crisis.’ He was still speaking in the predawn hours.`\
+`The New Jersey senator criticized the president’s plans for Social Security, education and health care, saying the “nation is in crisis.” He was still speaking in the predawn hours.`\
 https://nytimes.com/2025/04/01/us/politics/booker-senate-trump.html
 
 **Browns QB tracker: What Kevin Stefanski, Andrew Berry had to say at league meeting**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/01/learning/pranks.html
 **Amazon’s New Movie Strategy Starts With Theaters**\
 `The streaming giant is planning to release at least 14 movies a year in theaters around the country, rivaling other major studios.`\
 https://nytimes.com/2025/04/01/business/media/amazon-movies-theaters.html
-
-**When Banksy Came to Red Hook and Made His Mark**\
-`A chunk of wall that bears the work of the graffiti artist will go on display in Manhattan this month.`\
-https://nytimes.com/2025/04/01/nyregion/banksy-installation-red-hook.html
 
