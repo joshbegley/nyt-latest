@@ -1,3 +1,11 @@
+**Jordan Hicks' dominating 2025 debut gave the Giants reason to be optimistic**\
+`Hicks isn't all that different from Garrett Crochet in terms of what he did last season. Their ceilings might not be that different, too.`\
+https://nytimes.com/athletic/6245824/2025/04/01/sf-giants-jordan-hicks-season-debut/
+
+**U.S. Says Deportation of Maryland Man Was an ‘Administrative Error’**\
+`Kilmar Armando Abrego Garcia, who was in the U.S. legally, is now in prison in El Salvador, and federal courts have no jurisdiction to order his release, the Trump administration said in a court filing.`\
+https://nytimes.com/2025/04/01/us/politics/maryland-man-deportation-error-el-salvador.html
+
 **Netanyahu Drops Nominee for Spy Chief After Backlash**\
 `Eli Sharvit was a controversial choice after Israel’s prime minister fired his predecessor. Revelations that he wrote a column criticizing President Trump may have helped sink his chances.`\
 https://nytimes.com/2025/04/01/world/middleeast/israel-netanyahu-trump-shin-bet.html

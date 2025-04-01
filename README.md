@@ -22,7 +22,7 @@ https://nytimes.com/2025/04/01/us/politics/trump-law-firm-doug-emhoff-wilkie-far
 `They included yellow, red, green, brown and blue.`\
 https://nytimes.com/2025/04/01/style/street-style-look-spring-colors.html
 
-**A's Opening Day in Sacramento brings fans, but shine wears off quickly**\
+**A's home opener in Sacramento had a different — but distinctly minor league — feel**\
 `On the field, the A's were embarrassed by the Chicago Cubs 18-3 as Carson Kelly hit for the cycle.`\
 https://nytimes.com/athletic/6246494/2025/04/01/athletics-opening-day-sacramento-fans/
 
