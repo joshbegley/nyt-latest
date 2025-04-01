@@ -1,3 +1,11 @@
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/04/01/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
+**The Windup: Already panic time for the Braves?**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6246173/2025/04/01/atlanta-braves-record-the-windup/
+
 **Shake-Up in China’s Auto Sector: Two Giants Are Discussing a Merger**\
 `The state-owned automakers, longtime joint venture partners of Ford and Nissan, might combine operations as Beijing consolidates its sprawling car sector.`\
 https://nytimes.com/2025/04/01/business/dongfeng-changan-china-auto-merger.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/01/realestate/malcolm-barlow-muncy-pennsylvania.html
 **Five Ingredients, Five Stars, No Joke**\
 `Garlicky Alfredo beans are “outrageously good.”`\
 https://nytimes.com/2025/04/01/dining/five-ingredients-five-stars-no-joke.html
-
-**Millions of Women Will Lose Access to Contraception as a Result of Trump Aid Cuts**\
-`The United States was a key supplier of contraceptives in many developing countries. The Trump administration has ended that support.`\
-https://nytimes.com/2025/04/01/health/usaid-contraception-cuts.html
-
-**Robert Kraft optimistic about Patriots under Mike Vrabel, hopes 'to make the playoffs'**\
-`Asked whether the Patriots are still at ground zero of their multiyear rebuild, the owner said, “I think we’re ahead of that."`\
-https://nytimes.com/athletic/6246860/2025/04/01/robert-kraft-patriots-mike-vrabel-playoffs/
 

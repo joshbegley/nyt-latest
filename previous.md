@@ -1,3 +1,7 @@
+**Shake-Up in China’s Auto Sector: Two Giants Are Discussing a Merger**\
+`The state-owned automakers, longtime joint venture partners of Ford and Nissan, might combine operations as Beijing consolidates its sprawling car sector.`\
+https://nytimes.com/2025/04/01/business/dongfeng-changan-china-auto-merger.html
+
 **Who will be the Packers' left tackle? Matt LaFleur discusses that competition and more**\
 `Rasheed Walker was a sturdy blindside protector, but 2024 first-rounder Jordan Morgan will compete for the job in 2025.`\
 https://nytimes.com/athletic/6246910/2025/04/01/matt-lafleur-packers-nfl-owners-meetings/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/01/health/usaid-contraception-cuts.html
 **Robert Kraft optimistic about Patriots under Mike Vrabel, hopes 'to make the playoffs'**\
 `Asked whether the Patriots are still at ground zero of their multiyear rebuild, the owner said, “I think we’re ahead of that."`\
 https://nytimes.com/athletic/6246860/2025/04/01/robert-kraft-patriots-mike-vrabel-playoffs/
-
-**NFL teams table vote to ban 'tush push' at league meetings: Source**\
-`The play has been frequently used by the Philadelphia Eagles and quarterback Jalen Hurts in short-yardage situations.`\
-https://nytimes.com/athletic/6245224/2025/04/01/nfl-tush-push-vote-tabled/
 
