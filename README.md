@@ -1,3 +1,11 @@
+**The baseball cards that make our writers happy**\
+`Every collector has a card with special significance, whether it was a childhood hero or the middle reliever you couldn't escape `\
+https://nytimes.com/athletic/6241863/2025/04/01/baseball-cards-ripken-brett-mantle/
+
+**Dan Campbell on Lions homegrown talent, free agency additions, tush push and other rule proposals**\
+`Dan Campbell has strong feelings on the tush push debate.`\
+https://nytimes.com/athletic/6246937/2025/04/01/lions-dan-campbell-tush-push-free-agency/
+
 **Trump Said Auto Emissions Don’t Affect the Environment. That’s Not True.**\
 `The president wants to weaken limits on tailpipe pollution. Scientists say it’s driving climate change and taking human lives “every day.”`\
 https://nytimes.com/2025/04/01/climate/trump-auto-emissions.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/01/france-parliament-consent-rape-law.html
 **Broncos' RB bread crumbs, winning Dre Greenlaw pursuit and latest on stadium**\
 `Sean Payton wants to see if his existing running backs can step up but the team definitely plans to draft a new one as well.`\
 https://nytimes.com/athletic/6246629/2025/04/01/denver-broncos-2025-nfl-owners-meetings/
-
-**Florida Special Election Results**\
-`Get live results and maps from the 2025 Florida special elections.`\
-https://nytimes.com/interactive/2025/04/01/us/elections/results-florida-special.html
-
-**Wisconsin Spring Election Results**\
-`Get live results and maps from the 2025 Wisconsin Spring elections.`\
-https://nytimes.com/interactive/2025/04/01/us/elections/results-wisconsin.html
 
