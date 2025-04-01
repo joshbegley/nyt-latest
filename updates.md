@@ -1,3 +1,7 @@
+**Great Spaces**\
+``\
+https://nytimes.com/series/great-spaces
+
 **Gabe Perreault arrival to Rangers brings excitement, expectations for top prospect**\
 `“Unfortunate his (college) season is over,” coach Peter Laviolette said. “But fortunate for us, he’s now a member of the New York Rangers.”`\
 https://nytimes.com/athletic/6247787/2025/04/01/gabe-perreault-rangers-prospect-ncaa/

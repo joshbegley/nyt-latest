@@ -1,3 +1,11 @@
+**Nottingham Forest 1 Man Utd 0 - How Elanga's seven touches in nine seconds cut Amorim's team apart**\
+`Analysis of Nottingham Forest's victory over Manchester United in the Premier League`\
+https://nytimes.com/athletic/6243965/2025/04/01/nottingham-forest-manchester-united-elanga-goal/
+
+**Wednesday Briefing: An Elections Test for Trump**\
+`Plus, the enigmatic “goddess” of the piano.`\
+https://nytimes.com/2025/04/01/briefing/trump-elections-israel-un-gaza-bangladesh-extremism.html
+
 **Great Spaces**\
 ``\
 https://nytimes.com/series/great-spaces
@@ -29,8 +37,4 @@ https://nytimes.com/athletic/6247857/2025/04/01/yankees-giancarlo-stanton-torped
 **This Tree Wants to Be Struck by Lightning**\
 `Before a discovery in a Panamanian rainforest, “it seemed impossible that lightning could be a good thing for the trees,” a scientist said.`\
 https://nytimes.com/2025/04/01/science/trees-lightning-rainforest.html
-
-**Free Gaza From Its Own Tyrants First**\
-`Anti-Hamas protests in Gaza are the first necessary steps on the road to real peace.`\
-https://nytimes.com/2025/04/01/opinion/hamas-gaza-palestinian-protests.html
 
