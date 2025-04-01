@@ -1,6 +1,10 @@
+**A Graphic Coat of Many Colors**\
+`They included yellow, red, green, brown and blue.`\
+https://nytimes.com/2025/04/01/style/street-style-look-spring-colors.html
+
 **A's Opening Day in Sacramento brings fans, but shine wears off quickly**\
 `On the field, the A's were embarrassed by the Chicago Cubs 18-3 as Carson Kelly hit for the cycle.`\
-https://nytimes.com/athletic/6246494/2025/04/01/as-opening-day-in-sacramento-brings-fans-but-shine-wears-off-quickly/
+https://nytimes.com/athletic/6246494/2025/04/01/athletics-opening-day-sacramento-fans/
 
 **Brutal day for Braves ends with loss to Dodgers for 0-5 start**\
 `The Braves are off to their worst start since the 2017 team lost six of their first seven in a 72-90 season.`\
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000010084748/icelandic-volcano-eruptio
 **Hooters Files for Bankruptcy, but Its Restaurants Will Stay Open**\
 `A group that includes the restaurant’s founders will buy restaurants from the private equity firm that owns many locations of the chain.`\
 https://nytimes.com/2025/04/01/business/hooters-restaurant-bankruptcy.html
-
-**Islanders' path to the playoffs: Analyzing schedule difficulty, rival teams, key players**\
-`Somehow, despite everything, the Islanders are still within shot of a playoff spot. Here's how it could happen.`\
-https://nytimes.com/athletic/6245420/2025/04/01/islanders-playoffs-path-eastern-wild-card/
 

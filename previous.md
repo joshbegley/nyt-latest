@@ -1,3 +1,23 @@
+**A's Opening Day in Sacramento brings fans, but shine wears off quickly**\
+`On the field, the A's were embarrassed by the Chicago Cubs 18-3 as Carson Kelly hit for the cycle.`\
+https://nytimes.com/athletic/6246494/2025/04/01/as-opening-day-in-sacramento-brings-fans-but-shine-wears-off-quickly/
+
+**Brutal day for Braves ends with loss to Dodgers for 0-5 start**\
+`The Braves are off to their worst start since the 2017 team lost six of their first seven in a 72-90 season.`\
+https://nytimes.com/athletic/6246182/2025/04/01/braves-suspension-injury-loss-0-5-start/
+
+**N.Y.C. pension funds plan to sue Tesla over Musk’s DOGE leadership.**\
+`Brad Lander, the comptroller, said Elon Musk’s actions on behalf of the Trump administration had hurt Tesla’s stock price.`\
+https://nytimes.com/live/2025/04/01/us/trump-news-updates/nyc-pension-funds-plan-to-sue-tesla-over-musks-doge-leadership
+
+**SpaceX Puts Humans in Orbit Over Earth’s Poles for the First Time**\
+`Chun Wang, a Chinese-born crypto entrepreneur, paid an undisclosed amount for the mission. Some satellites are already in polar orbit, and researchers called it a routine flight.`\
+https://nytimes.com/2025/04/01/world/asia/spacex-rocket-launch.html
+
+**Cornell Student Who Faced Deportation Says He Has Left U.S.**\
+`Momodou Taal, a Ph.D. student who had been suspended by the university after participating in pro-Palestinian protests, said he “took the decision to leave the United States.”`\
+https://nytimes.com/2025/04/01/us/politics/cornell-student-momodou-taal.html
+
 **Pope Francis’ Health Continues to Improve, Vatican Says**\
 `A little over a week after returning to the Vatican guesthouse to convalesce, the pope was showing gradual improvements in his movements and speech.`\
 https://nytimes.com/2025/04/01/world/europe/pope-francis-health-vatican.html
@@ -17,25 +37,4 @@ https://nytimes.com/2025/04/01/business/hooters-restaurant-bankruptcy.html
 **Islanders' path to the playoffs: Analyzing schedule difficulty, rival teams, key players**\
 `Somehow, despite everything, the Islanders are still within shot of a playoff spot. Here's how it could happen.`\
 https://nytimes.com/athletic/6245420/2025/04/01/islanders-playoffs-path-eastern-wild-card/
-
-**Submit your questions for Murat Ates' Winnipeg Jets mailbag**\
-`<p>With the season winding down and the Jets chasing the Central Division title and the Presidents&#8217; Trophy, it&#8217;s time for another edition of the mailbag. Leave your questions below.</p>
-`\
-https://nytimes.com/athletic/6244930/2025/04/01/submit-your-questions-for-murat-ates-winnipeg-jets-mailbag-3/
-
-**Thomas Muller's Bayern future and the uncomfortable conclusion of an iconic career**\
-`The forward’s contract expires in the summer and a final decision over his future, which has been a long time coming, is expected this week`\
-https://nytimes.com/athletic/6246307/2025/04/01/thomas-muller-bayern-munich-future-contract/
-
-**The Rangers' path to the playoffs: Analyzing schedule difficulty, rival teams, key players**\
-`Someone in the East has to claim the second wild card, and it could be New York. Here is how the team can get there. `\
-https://nytimes.com/athletic/6245097/2025/04/01/rangers-playoffs-nhl-schedule/
-
-**Blackhawks' Oliver Moore, Sam Rinzel show promise in NHL debuts: 20 thoughts**\
-`Plus updates on a variety of prospects and highlighting Ryan Donato's scoring surge.`\
-https://nytimes.com/athletic/6245086/2025/04/01/blackhawks-moore-rinzel-levshunov-prospects/
-
-**Tough call: Veteran James van Riemsdyk feels the squeeze of Blue Jackets' roster glut**\
-`The Blue Jackets are healthier than they've been all season, with two deadline signings to boot. But not everyone can play every game.`\
-https://nytimes.com/athletic/6245454/2025/04/01/blue-jackets-james-van-riemsdyk-scratch/
 
