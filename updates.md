@@ -1,3 +1,11 @@
+**South Korea’s President Will Learn His Fate on Friday**\
+`The Constitutional Court will announce on Friday whether Yoon Suk Yeol, who was impeached in December for declaring martial law, will be permanently removed from office or restored to power.`\
+https://nytimes.com/2025/03/31/world/asia/south-korea-yoon-impeach-court.html
+
+**Red Sox, Garrett Crochet agree to six-year, $170 million extension: Source**\
+`Crochet is the Red Sox new No. 1 starter and now he'll be around for the long-haul.`\
+https://nytimes.com/athletic/6245893/2025/03/31/red-sox-garrett-crochet-extension/
+
 **Long Stretch**\
 `Sande Milton makes his Crossword solo debut in The New York Times.`\
 https://nytimes.com/2025/03/31/crosswords/daily-puzzle-2025-04-01.html
