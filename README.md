@@ -1,3 +1,7 @@
+**Randy Fine, a State Senator, Wins a House Seat in Florida, Adding to the G.O.P. Majority.**\
+`Randy Fine, a state senator, won a special election to replace Michael Waltz of Florida, who is now Trump’s national security adviser.`\
+https://nytimes.com/2025/04/01/us/politics/florida-special-election-winner.html
+
 **If New York Puts a Casino in the Bronx, Trump Will Get $115 Million**\
 `Although the Trump Organization sold a golf course in Ferry Point Park in the Bronx to Bally’s, it will still receive a windfall if the site is chosen for a casino.`\
 https://nytimes.com/2025/04/01/nyregion/trump-casino-ballys-bronx.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/01/us/politics/jonathan-braun-trump-pardons-arrests.
 **Goodell talks pro flag football, 'tush push' and more at league meeting**\
 `With an eye on expanding the NFL brand, the commissioner spent a good portion of the conversation on flag football and women's sports.`\
 https://nytimes.com/athletic/6247866/2025/04/01/roger-goodell-league-meeting-flag-football/
-
-**Calais Campbell, 38, returning to Cardinals for his 18th NFL season**\
-`Campbell, the NFL's oldest non-quarterback, spent his first nine seasons with the Arizona Cardinals after being drafted by them in 2008.`\
-https://nytimes.com/athletic/6248055/2025/04/01/calais-campbell-free-agency-signing-cardinals-return/
 
