@@ -1,3 +1,35 @@
+**Raptors predictions revisited: The small victories, big losers and Drake**\
+`Our fearless Raptors reporter Eric Koreen was better at tanking than the team he covers.`\
+https://nytimes.com/athletic/6244876/2025/04/01/raptors-predictions-2025-revisited/
+
+**Are Chelsea the first Premier League club whose fans have become bored of transfers?**\
+`Chelsea have already made signings for upcoming windows, but fans are less enthused than most usually are`\
+https://nytimes.com/athletic/6244215/2025/04/01/chelsea-transfers-bored-latest/
+
+**2026 NHL Draft ranking: Scott Wheeler's early top 26 list**\
+`The 2026 class is headlined by McKenna, a strong Swedish age group, a pair of big OHL forwards and a standout crop of WHL defensemen.`\
+https://nytimes.com/athletic/6195407/2025/04/01/2026-nhl-draft-prospects-gavin-mckenna/
+
+**Checking in on the blue-chip quarterbacks in the Class of 2026**\
+`The No. 1 QB in the class, Jared Curtis, will choose between Oregon and Georgia in early May.`\
+https://nytimes.com/athletic/6244747/2025/04/01/quarterbacks-recruiting-class-2026/
+
+**Lloyd: Jimmy Haslam takes accountability (again) while Browns mull Travis Hunter and more**\
+`Admitting failure has never been hard for the Haslams. Fixing their failures is a different story. Their next chance comes in the NFL Draft.`\
+https://nytimes.com/athletic/6245457/2025/04/01/browns-owner-jimmy-haslam-nfl-draft-travis-hunter/
+
+**Who are the best Group of 5 transfers heading to the Power 4 ranks?**\
+`Will John Mateer solve Oklahoma's woes? Can Makhi Hughes be the next great back at Oregon? Will Ethan Onianwa be a star at Ohio State?`\
+https://nytimes.com/athletic/6245251/2025/04/01/college-football-transfer-portal-group-5-power-4/
+
+**Top women's basketball players in transfer portal: Olivia Miles, Ta'Niya Latson, Cotie McMahon**\
+`Who are the top 13 players in the transfer portal? `\
+https://nytimes.com/athletic/6245401/2025/04/01/womens-basketball-transfer-portal-olivia-miles-cotie-mcmahon/
+
+**Anthony Davis, Mavs blow an opportunity in Daniel Gafford's return: 'We should have won'**\
+`A Mavs team fighting for a Play-In Tournament spot took a bad loss Monday to a team hoping for good luck in the upcoming NBA Draft Lottery.`\
+https://nytimes.com/athletic/6246053/2025/04/01/anthony-davis-mavericks-daniel-gafford-nba/
+
 **Cutting Off NPR and PBS**\
 `Republicans say there is no reason for the government to fund the public broadcasters.`\
 https://nytimes.com/2025/04/01/briefing/public-broadcasters-republicans-npr-pbs.html
@@ -5,36 +37,4 @@ https://nytimes.com/2025/04/01/briefing/public-broadcasters-republicans-npr-pbs.
 **Merseyside Derby betting preview: Salah to blitz Everton? Or fouls galore?**\
 `Sam Tighe provides betting insight ahead of this Wednesday’s Merseyside Derby.`\
 https://nytimes.com/athletic/6246417/2025/04/01/premier-league-merseyside-derby-predictions-betting-tips-odds/
-
-**Texas' Vic Schaefer is close to reaching the top of the ladder once more**\
-`Schaefer has the Longhorns back in the Final Four for the first time since 2003. `\
-https://nytimes.com/athletic/6246118/2025/04/01/texas-vic-schaefer-final-four/
-
-**Cory Booker Delivers Marathon Speech on Senate Floor**\
-`Senator Booker, Democrat of New Jersey, spoke for hours, criticizing the Trump administration’s policies on Social Security, education, health care and more.`\
-https://nytimes.com/video/us/politics/100000010084523/corey-booker-senate-speech.html
-
-**Rosenthal: Just five games into the 2025 season, the Braves are already playing from behind**\
-`Atlanta is now down Jurickson Profar and Reynaldo López, but they still might be all right.`\
-https://nytimes.com/athletic/6246031/2025/04/01/atlanta-braves-profar-lopez-winless/
-
-**Deion Sanders is not only back at Colorado, he's the Buffs' $10M a year man. What's next?**\
-`More than a few predicted Sanders would move on when his sons did. But he's back with an extension, a new-look team and a QB competition. `\
-https://nytimes.com/athletic/6244554/2025/04/01/deion-sanders-colorado-contract-extension-next-steps-college-football/
-
-**Whatever the rules may be, some college coaches just continue to win**\
-`What should be clear is that what some assumed before — some coaches only won because they broke the rules — wasn’t true.`\
-https://nytimes.com/athletic/6243953/2025/04/01/ncaa-basketball-rules-bruce-pearl-kelvin-sampson/
-
-**The NBA is as talented and skilled as it's ever been. So ... why all the negativity?**\
-`There are many concerns about the NBA these days, but Kevin Durant dismisses it: "I think we're at the peak of basketball, in my opinion."`\
-https://nytimes.com/athletic/6019886/2025/04/01/nba-media-negativity-charles-barkley-shaq/
-
-**ESPN’s Pat McAfee and others amplified a false rumor. A teenager's life was 'destroyed'**\
-`An Ole Miss freshman has engaged legal representation and says she intends to take action against McAfee, ESPN, and potentially others`\
-https://nytimes.com/athletic/6245376/2025/04/01/pat-mcafee-espn-ole-miss-student/
-
-**Women's Final Four breakdown and predictions: UCLA or UConn? South Carolina or Texas?**\
-`Who has the edge in the Tampa showdown? `\
-https://nytimes.com/athletic/6245857/2025/04/01/womens-final-four-breakdown-and-predictions-ucla-or-uconn-south-carolina-or-texas/
 
