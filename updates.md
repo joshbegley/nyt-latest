@@ -1,3 +1,15 @@
+**He Wore a ‘Patriotic’ Hat to a Blue Jays Game. It Got Him Ejected.**\
+`The message “Canada is not for sale” drew attention because of a rule against political slogans at Rogers Centre in Toronto. The team later apologized.`\
+https://nytimes.com/2025/04/01/sports/baseball/toronto-blue-jays-fan-ejected-hat.html
+
+**Maryland hires Buzz Williams as next men's basketball coach**\
+`Williams leaves Texas A&M and will replace Kevin Willard, who left the Terps to become the head coach at Villanova.`\
+https://nytimes.com/athletic/6242347/2025/04/01/maryland-hires-buzz-williams-as-next-mens-basketball-coach/
+
+**Johnson Fails to Kill Bipartisan Measure to Allow Proxy Voting for New Parents**\
+`The speaker tried to use an unprecedented parliamentary maneuver to deny a bipartisan majority the chance to hold a vote on their proposal to allow new parents to vote remotely in the House.`\
+https://nytimes.com/2025/04/01/us/politics/house-proxy-voting-parents-mike-johnson.html
+
 **Brighton confirm signing of Sunderland's Tommy Watson**\
 `The Premier League side were in talks over a move for Watson in January but a transfer did not happen before the deadline.`\
 https://nytimes.com/athletic/6247486/2025/04/01/tommy-watson-brighton-sunderland/
