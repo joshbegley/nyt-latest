@@ -1,3 +1,7 @@
+**Seahawks' focus remains on Super Bowl, despite shake-up: 'We can definitely win with Sam'**\
+`Seahawks coach Mike Macdonald also discussed the team's draft strategy and why he's confident Riq Woolen will recapture his 2022 magic.`\
+https://nytimes.com/athletic/6247510/2025/04/01/seahawks-sam-darnold-mike-macdonald-owners-meetings/
+
 **Nguyen: 'Tush push' lives to fight another day, here's why it should stay for good**\
 `Is it fair to create a rule to take away something the Eagles have committed resources into while others have chosen not to?`\
 https://nytimes.com/athletic/6243433/2025/04/01/tush-push-ban-vote-nfl-nguyen/
