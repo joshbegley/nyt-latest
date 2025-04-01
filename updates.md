@@ -1,3 +1,11 @@
+**The Briefing: Nottingham Forest 1 Man Utd 0 - How Elanga's seven touches in nine seconds cut Amorim's team apart**\
+`Analysis of Nottingham Forest's victory over Manchester United in the Premier League`\
+https://nytimes.com/athletic/6243965/2025/04/01/nottingham-forest-manchester-united-elanga-goal/
+
+**The Briefing: Arsenal 2 Fulham 1 - Saka's dream return but Gabriel injury clouds win**\
+`The major talking points analysed from Tuesday's Premier League clash at the Emirates Stadium`\
+https://nytimes.com/athletic/6243964/2025/04/01/arsenal-fulham-result-analysis/
+
 **Elon Musk Sued Over Pennsylvania Signature Payments**\
 `A canvasser for the billionaire’s America PAC says he’s owed $20,000 for signatures he collected on a petition that was part of Mr. Musk’s effort to motivate Trump voters.`\
 https://nytimes.com/2025/04/01/us/politics/elon-musk-pennsylvania-petition-lawsuit.html
