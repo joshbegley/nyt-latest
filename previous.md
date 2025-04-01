@@ -1,3 +1,7 @@
+**Rutter and Webster could miss remainder of season through injury**\
+`Both players suffered injuries in normal time in Saturday's exit from the FA Cup against Nottingham Forest.`\
+https://nytimes.com/athletic/6246283/2025/04/01/brighton-rutter-webster-injury-news/
+
 **SpaceX Launches First Crewed Flight Over Earth’s Poles**\
 `Four private astronauts lifted off from Florida on Monday on the Fram2 mission to orbit Earth from pole to pole.`\
 https://nytimes.com/video/science/space/100000010084367/space-mission-polar-orbit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/01/fashion/watches-vacheron-constantin-41-functions.
 **A 3-Year-Old Was Left Dead at a Hospital. Who Failed to Save Him?**\
 `In the months before Kyng Davis was abandoned at a Brooklyn hospital by his mother and her boyfriend, there were signs that he might have been in danger.`\
 https://nytimes.com/2025/04/01/nyregion/nypd-investigation-child-abuse.html
-
-**Cometh the Hour, Cometh the Watch Fair**\
-`Watches and Wonders Geneva, the luxury industry’s only major watch fair, opens this week with introductions from 60 brands.`\
-https://nytimes.com/2025/04/01/fashion/watches-and-wonders-geneva.html
 

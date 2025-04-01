@@ -1,3 +1,7 @@
+**Rutter and Webster could miss remainder of season through injury**\
+`Both players suffered injuries in normal time in Saturday's exit from the FA Cup against Nottingham Forest.`\
+https://nytimes.com/athletic/6246283/2025/04/01/brighton-rutter-webster-injury-news/
+
 **SpaceX Launches First Crewed Flight Over Earth’s Poles**\
 `Four private astronauts lifted off from Florida on Monday on the Fram2 mission to orbit Earth from pole to pole.`\
 https://nytimes.com/video/science/space/100000010084367/space-mission-polar-orbit.html
