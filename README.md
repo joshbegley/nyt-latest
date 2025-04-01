@@ -1,3 +1,7 @@
+**A Mysterious Group Says Its Mission Is to Expose Antisemitic Students**\
+`Civil rights advocates say Canary Mission is doxxing critics of Israel and providing a possible road map for immigration agents as they sweep up students in a campus crackdown.`\
+https://nytimes.com/2025/04/01/us/israel-gaza-student-protests-canary-mission.html
+
 **He Wore a ‘Patriotic’ Hat to a Blue Jays Game. It Got Him Ejected.**\
 `The message “Canada is not for sale” drew attention because of a rule against political slogans at Rogers Centre in Toronto. The team later apologized.`\
 https://nytimes.com/2025/04/01/sports/baseball/toronto-blue-jays-fan-ejected-hat.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/01/health/hhs-employees-spending-one-percent-budget-
 **How to Exfoliate Your Skin**\
 `Expert advice from a celebrity facialist, a chef and a gardener.`\
 https://nytimes.com/2025/04/01/t-magazine/how-to-exfoliate-skin.html
-
-**A Pack of April Fools**\
-`A survey of the many fools who have been immortalized in song, featuring Aretha Franklin, Bow Wow Wow, the Stone Roses and more.`\
-https://nytimes.com/2025/04/01/arts/music/amplifier-newsletter-april-fools-songs.html
 
