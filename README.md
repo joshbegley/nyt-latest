@@ -1,3 +1,7 @@
+**Corrections: April 1, 2025**\
+`Corrections that appeared in print on Tuesday, April 1, 2025.`\
+https://nytimes.com/2025/03/31/pageoneplus/corrections-april-1-2025.html
+
 **NHL, Canadian media company Rogers agree to 12-year, $7.7B TV deal: Reports**\
 `The new agreement will come at the conclusion of the previous 12-year deal agreed to by both parties, which was signed in 2013.`\
 https://nytimes.com/athletic/6245657/2025/03/31/nhl-rogers-sportsnet-broadcasts/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6245674/2025/03/31/coastal-carolina-football-conces
 **What’s at Stake in Wisconsin**\
 `Elon Musk sees the state’s Supreme Court race as a way of preserving Republicans’ power in Washington.`\
 https://nytimes.com/2025/03/31/us/politics/elon-musk-wisconsin.html
-
-**Crucial Week for Trump: New Tariffs and Elections Will Test His Momentum**\
-`Down-ballot races in Florida and Wisconsin are seen as a referendum on the White House, while the president’s to-be-announced reciprocal tariff plan is increasingly worrying investors and consumers.`\
-https://nytimes.com/2025/03/31/us/politics/trump-florida-wisconsin-tariffs.html
 
