@@ -1,3 +1,23 @@
+**How would we build homes without foreign labor and materials?**\
+`Take a line-by-line look at the estimated costs of building this four-bedroom home in Phoenix, Ariz., under President Trump’s agenda.`\
+https://nytimes.com/interactive/2025/04/01/realestate/trump-tariffs-deportation-house-construction.html
+
+**NFL announces 3 games for Christmas Day 2025, Netflix partnership continues**\
+`Two of the three Christmas Day games will stream on Netflix, with the third as part of Amazon Prime's "Thursday Night Football" package.`\
+https://nytimes.com/athletic/6247055/2025/04/01/nfl-christmas-day-netflix-streaming-amazon/
+
+**5 People Have Already Died on Rikers This Year as Crisis Worsens**\
+`Mayor Eric Adams’s administration is fighting to keep control of the troubled complex and other New York City lockups that have been plagued by violence and deaths in custody.`\
+https://nytimes.com/2025/04/01/nyregion/rikers-death.html
+
+**Steelers' Art Rooney II on Aaron Rodgers: 'All signs are positive so far'**\
+`While the Steelers continue to wait for a final decision from Aaron Rodgers, owner Art Rooney II indicated that an answer could come soon.`\
+https://nytimes.com/athletic/6247212/2025/04/01/aaron-rodgers-steelers-owner-art-rooney/
+
+**Should Universities Resist Trump’s Tactics?**\
+`Readers discuss how universities should respond to the administration’s demands and threats to cut off funding.`\
+https://nytimes.com/2025/04/01/opinion/letters/universities-trump.html
+
 **Dr. Oz ‘Disavows’ Support for Transgender Care, Assuaging a Senator’s Concerns**\
 `Senator Josh Hawley, a Republican, pressed Dr. Oz on transgender care and abortion, and now says he will vote for the physician’s confirmation to become head of Medicare and Medicaid.`\
 https://nytimes.com/2025/04/01/health/dr-oz-transgender-care-abortion-josh-hawley-confirmation-cms.html

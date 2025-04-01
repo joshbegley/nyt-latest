@@ -1,3 +1,23 @@
+**How would we build homes without foreign labor and materials?**\
+`Take a line-by-line look at the estimated costs of building this four-bedroom home in Phoenix, Ariz., under President Trump’s agenda.`\
+https://nytimes.com/interactive/2025/04/01/realestate/trump-tariffs-deportation-house-construction.html
+
+**NFL announces 3 games for Christmas Day 2025, Netflix partnership continues**\
+`Two of the three Christmas Day games will stream on Netflix, with the third as part of Amazon Prime's "Thursday Night Football" package.`\
+https://nytimes.com/athletic/6247055/2025/04/01/nfl-christmas-day-netflix-streaming-amazon/
+
+**5 People Have Already Died on Rikers This Year as Crisis Worsens**\
+`Mayor Eric Adams’s administration is fighting to keep control of the troubled complex and other New York City lockups that have been plagued by violence and deaths in custody.`\
+https://nytimes.com/2025/04/01/nyregion/rikers-death.html
+
+**Steelers' Art Rooney II on Aaron Rodgers: 'All signs are positive so far'**\
+`While the Steelers continue to wait for a final decision from Aaron Rodgers, owner Art Rooney II indicated that an answer could come soon.`\
+https://nytimes.com/athletic/6247212/2025/04/01/aaron-rodgers-steelers-owner-art-rooney/
+
+**Should Universities Resist Trump’s Tactics?**\
+`Readers discuss how universities should respond to the administration’s demands and threats to cut off funding.`\
+https://nytimes.com/2025/04/01/opinion/letters/universities-trump.html
+
 **Dr. Oz ‘Disavows’ Support for Transgender Care, Assuaging a Senator’s Concerns**\
 `Senator Josh Hawley, a Republican, pressed Dr. Oz on transgender care and abortion, and now says he will vote for the physician’s confirmation to become head of Medicare and Medicaid.`\
 https://nytimes.com/2025/04/01/health/dr-oz-transgender-care-abortion-josh-hawley-confirmation-cms.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6246811/2025/04/01/miami-heat-bam-adebayo-tyler-her
 **Fourth U.S. Soldier Is Found Dead in Lithuania**\
 `The soldier and three others had gone on a training mission in a 70-ton vehicle that sank in a bog near the border with Belarus.`\
 https://nytimes.com/2025/04/01/world/europe/fourth-us-soldier-dead-lithuania.html
-
-**Watch: Are the Thunder the best regular-season team ever?**\
-`NBA Daily discuss the Oklahoma City Thunder's record-breaking season so far.`\
-https://nytimes.com/athletic/6246554/2025/04/01/nba-okc-thunder-best-regular-season/
-
-**Turnout Strong as Wisconsin Decides Key Court Contest**\
-`Officials expect more than two million people will vote in the election, which will decide the partisan balance on the state’s Supreme Court. Many voters cite Elon Musk as a factor in the race.`\
-https://nytimes.com/2025/04/01/us/elections/wisconsin-supreme-court-election-turnout.html
-
-**Huset Pops Up at the Standard, East Village, With Flavors From Mexico City**\
-`Hakata TonTon serves hot pot at Cha Kee, a new shop focuses on the bureka and more restaurant news.`\
-https://nytimes.com/2025/04/01/dining/nyc-restaurant-news.html
-
-**Semi-automated offside technology is finally coming to the Premier League – this is how it works**\
-`SAOT finally reaches English top-flight football this month, with the technology due to be introduced for matchday 32`\
-https://nytimes.com/athletic/6246598/2025/04/01/semi-automated-offside-technology-premier-league/
-
-**Joe DePugh, who inspired Bruce Springsteen’s ‘Glory Days,’ dies at 75**\
-`DePugh and Springsteen ran into each other in 1973 outside a bar in Neptune City, N.J. Over a decade later, “Glory Days” hit the airwaves.`\
-https://nytimes.com/athletic/6247018/2025/04/01/joe-depugh-bruce-springsteen-glory-days-dies/
 
