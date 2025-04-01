@@ -1,3 +1,7 @@
+**Dodgers' Tyler Glasnow, who remains dominant, hopes his offseason changes keep him that way**\
+`In his first action since Aug. 11, Glasnow offered a reminder of his high-end talent. The Dodgers improve to 6-0.`\
+https://nytimes.com/athletic/6246157/2025/04/01/tyler-glasnow-first-start-dodgers/
+
 **The Thunder are finalizing one of the greatest regular seasons in NBA history**\
 `The Thunder are in impressive company, however the team knows its historic season won't matter much if they falter in the postseason.`\
 https://nytimes.com/athletic/6241300/2025/04/01/thunder-dominant-nba-season/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/01/opinion/taiwan-china-trump.html
 **Tuesday Briefing**\
 `President Trump’s talk of a third term.`\
 https://nytimes.com/2025/04/01/briefing/trump-le-pen-israel.html
-
-**Nottingham Forest finances: Would Champions League cash mean they could keep star players?**\
-`Forest made a profit of £12million in 2023-24 — but would extra Champions League cash mean they would not have to sell a prize asset?`\
-https://nytimes.com/athletic/6244816/2025/04/01/nottingham-forest-finances-would-champions-league-cash-mean-they-could-keep-star-players/
 

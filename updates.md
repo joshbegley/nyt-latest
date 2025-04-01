@@ -1,3 +1,7 @@
+**The Thunder are finalizing one of the greatest regular seasons in NBA history**\
+`The Thunder are in impressive company, however the team knows its historic season won't matter much if they falter in the postseason.`\
+https://nytimes.com/athletic/6241300/2025/04/01/thunder-dominant-nba-season/
+
 **Kyle Hart, who'd only pitched in the emptiness of 2020, earns win for Padres in MLB return**\
 `SAN DIEGO — Kyle Hart took the Petco Park mound Monday in rare company.`\
 https://nytimes.com/athletic/6246096/2025/04/01/kyle-hart-mlb-padres-pandemic/
