@@ -1,3 +1,11 @@
+**Hailey Van Lith's long college career ends with a loss, but also redemption**\
+`"My journey has been crazy. I'm super grateful for it, wouldn't have had it any other way.”`\
+https://nytimes.com/athletic/6246035/2025/04/01/hailey-van-liths-long-college-career-ends-with-a-loss-but-also-redemption/
+
+**Pete Alonso tunes up for Mets home opener with grand slam in win over Marlins**\
+`With 227 career home runs, Alonso needs just 26 more to pass Darryl Strawberry for the Mets franchise record.`\
+https://nytimes.com/athletic/6245968/2025/04/01/pete-alonso-grand-slam-mets-win/
+
 **Everton's accounts explained: Friedkin impact, PSR compliance, transfers to come after June 30**\
 `Everton posted a loss for a seventh straight year but having been taken over there is scope and ambition to do more than survive`\
 https://nytimes.com/athletic/6244439/2025/04/01/everton-accounts-friedkin-takeover-stadium-transfers/
