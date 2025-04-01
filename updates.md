@@ -1,3 +1,19 @@
+**Who will be the Packers' left tackle? Matt LaFleur discusses that competition and more**\
+`Rasheed Walker was a sturdy blindside protector, but 2024 first-rounder Jordan Morgan will compete for the job in 2025.`\
+https://nytimes.com/athletic/6246910/2025/04/01/matt-lafleur-packers-nfl-owners-meetings/
+
+**Ter Stegen: Feeling 'physically better than ever' on return to training**\
+`Ter Stegen underwent surgery after suffering “a complete rupture in the patella tendon” against Villarreal in September.`\
+https://nytimes.com/athletic/6244658/2025/04/01/marc-andre-ter-stegen-barcelona-return/
+
+**How Ben Johnson plans to change Caleb Williams' game: Bears takeaways**\
+`Johnson offered insight on several players, including Braxton Jones, Tyrique Stevenson and Cole Kmet, at the league meetings in Florida.`\
+https://nytimes.com/athletic/6246930/2025/04/01/bears-ben-johnson-caleb-williams-eric-bieniemy/
+
+**Why Argentina's FA is strengthening its footprint in the USA**\
+`Winning another major international trophy is top of the mind for Argentina's federation, but that's not all`\
+https://nytimes.com/athletic/6235914/2025/04/01/argentina-fa-soccer-united-states-new-york-world-cup-messi/
+
 **Trump Says He’s Settled on Tariff Plan, Sending Fresh Jitters Through Markets**\
 `The president did not reveal the details of his plan to impose reciprocal tariffs on Wednesday but suggested he would move ahead with import taxes on trading partners.`\
 https://nytimes.com/2025/04/01/us/politics/trump-tariffs-stock-market.html
