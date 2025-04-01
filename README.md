@@ -1,8 +1,16 @@
+**How to Exfoliate Your Skin**\
+`Expert advice from a celebrity facialist, a chef and a gardener.`\
+https://nytimes.com/2025/04/01/t-magazine/how-to-exfoliate-skin.html
+
+**A Pack of April Fools**\
+`A survey of the many fools who have been immortalized in song, featuring Aretha Franklin, Bow Wow Wow, the Stone Roses and more.`\
+https://nytimes.com/2025/04/01/arts/music/amplifier-newsletter-april-fools-songs.html
+
 **The baseball cards that make our writers happy**\
 `Every collector has a card with special significance, whether it was a childhood hero or the middle reliever you couldn't escape `\
 https://nytimes.com/athletic/6241863/2025/04/01/baseball-cards-ripken-brett-mantle/
 
-**Dan Campbell on Lions homegrown talent, free agency additions, tush push and other rule proposals**\
+**Dan Campbell on Lions' homegrown talent, free agency additions, tush push and other rule proposals**\
 `Dan Campbell has strong feelings on the tush push debate.`\
 https://nytimes.com/athletic/6246937/2025/04/01/lions-dan-campbell-tush-push-free-agency/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/01/us/politics/air-traffic-controller-arrest-reagan-
 **Rubio Orders U.S. Diplomats to Scour Student Visa Applicants’ Social Media**\
 `The order comes as President Trump expands deportation efforts, including of students who have spoken out in support of Palestinians during Israel’s war in Gaza.`\
 https://nytimes.com/2025/04/01/us/politics/student-visas-social-media.html
-
-**France Debates Adding a Missing Word to Its Rape Law: Consent**\
-`After dozens of men were convicted of raping a drugged Gisèle Pelicot, lawmakers moved to require that consent be given for sex to be considered consensual.`\
-https://nytimes.com/2025/04/01/france-parliament-consent-rape-law.html
-
-**Broncos' RB bread crumbs, winning Dre Greenlaw pursuit and latest on stadium**\
-`Sean Payton wants to see if his existing running backs can step up but the team definitely plans to draft a new one as well.`\
-https://nytimes.com/athletic/6246629/2025/04/01/denver-broncos-2025-nfl-owners-meetings/
 
