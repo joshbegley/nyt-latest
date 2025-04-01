@@ -1,3 +1,7 @@
+**Are new torpedo bats affecting sports betting? 'We don’t do any knee-jerk reactions'**\
+`Bettors are all over the torpedo bat craze, but what do the sportsbooks think? Max Meyer talked to oddsmakers to find out.`\
+https://nytimes.com/athletic/6247578/2025/04/01/torpedo-bats-mlb-betting/
+
 **What stood out in Wisconsin's fifth practice of the spring?**\
 `Six takeaways from Wisconsin's spring practice on Tuesday morning.`\
 https://nytimes.com/athletic/6247528/2025/04/01/wisconsin-spring-football-practice-luke-fickell/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6247182/2025/04/01/vikings-kevin-oconnell-nfl-leagu
 **What we heard from Commanders' Adam Peters, Dan Quinn at annual league meeting**\
 `Washington's decision-makers answered questions about the team's free-agency moves, options in the upcoming draft, Jayden Daniels and more. `\
 https://nytimes.com/athletic/6247153/2025/04/01/commanders-adam-peters-dan-quinn-nfl-meeting/
-
-**A TikTok Trend Tests Toddlers — One Cookie at a Time**\
-`Do these kids know that sharing is caring? The viral challenge seeks to find out.`\
-https://nytimes.com/2025/04/01/well/family/tiktok-cookie-challenge-kids.html
 
