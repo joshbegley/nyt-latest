@@ -1,3 +1,7 @@
+**Jon Stewart: Trump Is ‘Trying to Order Off-Menu From the Constitution’**\
+`President Trump says there are “methods” by which he could get a third term. “I think you tried one a few years ago,” the “Daily Show” host quipped.`\
+https://nytimes.com/2025/04/01/arts/television/jon-stewart-trump-third-term.html
+
 **Princeton Senior, Accused of Assault During Protest, Braces for Verdict**\
 `A judge is expected to decide Tuesday whether David Piegaro is guilty of assaulting a police officer while recording pro-Palestinian campus demonstrations last year.`\
 https://nytimes.com/2025/04/01/nyregion/gaza-protests-princeton-student-arrested.html
