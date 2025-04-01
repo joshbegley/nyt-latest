@@ -1,3 +1,15 @@
+**Garrett Crochet's extension could just be the start of the Red Sox locking up their core**\
+`Crochet is now under team control through 2031. The Red Sox have several other young players who could also be in-line for new deals.`\
+https://nytimes.com/athletic/6247899/2025/04/01/garrett-crochet-red-sox-future-extensions/
+
+**49ers' Kyle Shanahan details positions of need, is eager for more competition**\
+`Shanahan cited spots — including kicker — where there will be competition this summer while Jed York talked about Brock Purdy's contract.`\
+https://nytimes.com/athletic/6247778/2025/04/01/49ers-kyle-shanahan-nfl-league-meeting/
+
+**Andrew Luck: Frank Reich 'the perfect steward' as Stanford's interim coach**\
+`Former NFL coach embraces one-year job to usher Cardinal football into new era.`\
+https://nytimes.com/athletic/6247992/2025/04/01/stanford-football-andrew-luck-frank-reich/
+
 **The Briefing: Nottingham Forest 1 Man Utd 0 - How Elanga's seven touches in nine seconds cut Amorim's team apart**\
 `Analysis of Nottingham Forest's victory over Manchester United in the Premier League`\
 https://nytimes.com/athletic/6243965/2025/04/01/nottingham-forest-manchester-united-elanga-goal/
