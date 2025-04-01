@@ -1,9 +1,13 @@
+**Hailey Van Lith's long college career ends with a loss, but also redemption**\
+`"My journey has been crazy. I'm super grateful for it, wouldn't have had it any other way.”`\
+https://nytimes.com/athletic/6246035/2025/04/01/hailey-van-liths-long-college-career-ends-with-a-loss-but-also-redemption/
+
 **Everton's accounts explained: Friedkin impact, PSR compliance, transfers to come after June 30**\
 `Everton posted a loss for a seventh straight year but having been taken over there is scope and ambition to do more than survive`\
 https://nytimes.com/athletic/6244439/2025/04/01/everton-accounts-friedkin-takeover-stadium-transfers/
 
 **Pete Alonso tunes up for Mets home opener with grand slam in win over Marlins**\
-`After re-signing with New York, Alonso worked on his swing over the winter. He “actually learned how to hit,” coach Eric Chavez said.`\
+`With 227 career home runs, Alonso needs just 26 more to pass Darryl Strawberry for the Mets franchise record.`\
 https://nytimes.com/athletic/6245968/2025/04/01/pete-alonso-grand-slam-mets-win/
 
 **Statement reveals Levy's mood has changed, but Spurs' summer strategy will remain the same**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6226781/2025/04/01/var-scandinavia-revolt/
 **Fenway Sports Group's interest in Malaga explained - and how it might impact Liverpool**\
 `Why is FSG exploring a deal for Malaga? What would they be getting? And what are the financial benefits? Our experts explain... `\
 https://nytimes.com/athletic/6244860/2025/04/01/malaga-fsg-deal-liverpool/
-
-**Saka the leader is back...**\
-`Bukayo Saka reached a milestone after playing his 250th Arsenal game. His impact on and off the pitch is only increasing`\
-https://nytimes.com/athletic/5998484/2025/04/01/saka-the-leader-is-back/
 
