@@ -1,3 +1,7 @@
+**Slot dismisses speculation over Alexander-Arnold's Liverpool future**\
+`Real Madrid are working to finalise a deal to sign the England international on a free transfer when his contract expires this summer.`\
+https://nytimes.com/athletic/6246345/2025/04/01/alexander-arnold-slot-liverpool-madrid/
+
 **The New York Times International Edition in Print for Wednesday, April 2, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/04/01/todays-new-york-times-international-edition
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/01/opinion/pete-hegseth-signal-app.html
 **Pranks**\
 `How do you feel about them?`\
 https://nytimes.com/2025/04/01/learning/pranks.html
-
-**Amazon’s New Movie Strategy Starts With Theaters**\
-`The streaming giant is planning to release at least 14 movies a year in theaters around the country, rivaling other major studios.`\
-https://nytimes.com/2025/04/01/business/media/amazon-movies-theaters.html
 
