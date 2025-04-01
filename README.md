@@ -1,3 +1,7 @@
+**Messi's bodyguard and his dwindling presence at Inter Miami games**\
+`Yassine Cheuko has had less of a presence on Inter Miami sidelines this season, and he claims to know why.`\
+https://nytimes.com/athletic/6247418/2025/04/01/messi-bodyguard-yassine-cheuko-mls-inter-miami-concacaf-access/
+
 **Are new torpedo bats affecting sports betting? 'We don’t do any knee-jerk reactions'**\
 `Bettors are all over the torpedo bat craze, but what do the sportsbooks think? Max Meyer talked to oddsmakers to find out.`\
 https://nytimes.com/athletic/6247578/2025/04/01/torpedo-bats-mlb-betting/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/01/climate/why-al-gore-is-shifting-his-climate-activ
 **What we heard about the Vikings at the NFL's annual league meeting**\
 `From the contract negotiations with Kwesi Adofo-Mensah to the team's plans in the draft, we cover everything we learned about the Vikings.`\
 https://nytimes.com/athletic/6247182/2025/04/01/vikings-kevin-oconnell-nfl-league-meeting/
-
-**What we heard from Commanders' Adam Peters, Dan Quinn at annual league meeting**\
-`Washington's decision-makers answered questions about the team's free-agency moves, options in the upcoming draft, Jayden Daniels and more. `\
-https://nytimes.com/athletic/6247153/2025/04/01/commanders-adam-peters-dan-quinn-nfl-meeting/
 
