@@ -1,3 +1,11 @@
+**Packers president Mark Murphy explains why they want the 'tush push' banned**\
+`Murphy first cited safety concerns, but there isn't much data to back up the conclusion that the tush push is an elevated safety risk.`\
+https://nytimes.com/athletic/6248189/2025/04/01/packers-mark-murphy-tush-push/
+
+**Transportation Dept. Renews Voluntary Buyouts for Work Force**\
+`The department said it was offering a second wave of buyouts to accommodate employees who may have declined the initial offer because of confusing messages.`\
+https://nytimes.com/2025/04/01/us/politics/trump-buyouts-us-transportation-department.html
+
 **He Got Clemency From Trump. Now He’s Facing Charges of Injuring a Child.**\
 `Jonathan Braun, who has had a string of legal issues since President Trump commuted his drug sentence four years ago, was arrested after allegedly punching an acquaintance and shoving a 3-year-old.`\
 https://nytimes.com/2025/04/01/us/politics/jonathan-braun-trump-pardons-arrests.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/business/economy/100000010085723/trump-tariff-liberati
 **Kathan Brown, Acclaimed Fine Art Printmaker, Dies at 89**\
 `She helped revive the centuries-old tradition of intaglio printing in the U.S., producing fine-art etchings with artists like Chuck Close and Sol LeWitt.`\
 https://nytimes.com/2025/04/01/arts/kathan-brown-dead.html
-
-**Voters Will Offer an Early Assessment of Trump and Musk**\
-`Also, prosecutors plan to pursue the death penalty for Luigi Mangione. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2025/04/01/briefing/elections-wisconsin-florida-revolving-restaurants-return.html
-
-**Arsenal's Gabriel, Timber to be assessed after sustaining injuries**\
-`Arsenal already have defenders Riccardo Calafiori, Takehiro Tomiyasu and Ben White out injured.`\
-https://nytimes.com/athletic/6247794/2025/04/01/gabriel-timber-arsenal-injury/
 

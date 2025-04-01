@@ -1,3 +1,7 @@
+**He Got Clemency From Trump. Now He’s Facing Charges of Injuring a Child.**\
+`Jonathan Braun, who has had a string of legal issues since President Trump commuted his drug sentence four years ago, was arrested after allegedly punching an acquaintance and shoving a 3-year-old.`\
+https://nytimes.com/2025/04/01/us/politics/jonathan-braun-trump-pardons-arrests.html
+
 **Goodell talks pro flag football, 'tush push' and more at league meeting**\
 `With an eye on expanding the NFL brand, the commissioner spent a good portion of the conversation on flag football and women's sports.`\
 https://nytimes.com/athletic/6247866/2025/04/01/roger-goodell-league-meeting-flag-football/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/01/briefing/elections-wisconsin-florida-revolving-re
 **Arsenal's Gabriel, Timber to be assessed after sustaining injuries**\
 `Arsenal already have defenders Riccardo Calafiori, Takehiro Tomiyasu and Ben White out injured.`\
 https://nytimes.com/athletic/6247794/2025/04/01/gabriel-timber-arsenal-injury/
-
-**Fired Federal Workers Ask Senators to Stand Up for Them**\
-`Former federal employees went to a Capitol Hill basement to find the lawmakers. Democratic senators said that they would keep fighting as hard as they could. Most Republicans ignored the workers.`\
-https://nytimes.com/2025/04/01/us/politics/federal-worker-protests.html
 
