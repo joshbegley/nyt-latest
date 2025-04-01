@@ -1,3 +1,7 @@
+**U.S. Sanctions Chinese and Hong Kong Officials for Pursuing Activists Abroad**\
+`China’s former top spy catcher is among six security enforcers targeted as the Trump administration turns its attention to human rights issues in the city.`\
+https://nytimes.com/2025/04/01/world/asia/china-hong-kong-sanctions.html
+
 **New Zealand Rugby and INEOS reach settlement over sponsorship dispute**\
 `Sir Jim Ratcliffe’s petrochemical firm had been seeking to renegotiate their performance partnership with the governing body.`\
 https://nytimes.com/athletic/6246218/2025/04/01/new-zealand-rugby-ineos-sponsorship/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/01/fashion/watches-and-wonders-geneva.html
 **Van Cleef & Arpels’ Cadenas Watch at 90**\
 `The padlock-style timepiece now features a mix of diamonds and sapphires.`\
 https://nytimes.com/2025/04/01/fashion/van-cleef-arpels-cadenas-watch-90-anniversary.html
-
-**Piaget Revisits the Trapezoid**\
-`Sixtie, a new bracelet watch, was inspired by a design from the late 1960s.`\
-https://nytimes.com/2025/04/01/fashion/watches-piaget-trapezoid-sixtie.html
 

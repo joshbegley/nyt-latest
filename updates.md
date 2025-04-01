@@ -1,3 +1,7 @@
+**U.S. Sanctions Chinese and Hong Kong Officials for Pursuing Activists Abroad**\
+`China’s former top spy catcher is among six security enforcers targeted as the Trump administration turns its attention to human rights issues in the city.`\
+https://nytimes.com/2025/04/01/world/asia/china-hong-kong-sanctions.html
+
 **New Zealand Rugby and INEOS reach settlement over sponsorship dispute**\
 `Sir Jim Ratcliffe’s petrochemical firm had been seeking to renegotiate their performance partnership with the governing body.`\
 https://nytimes.com/athletic/6246218/2025/04/01/new-zealand-rugby-ineos-sponsorship/
