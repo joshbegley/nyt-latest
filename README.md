@@ -1,3 +1,7 @@
+**5 Takeaways From the Hearing for Trump’s Joint Chiefs Chairman Pick**\
+`Democrats seemed to view Lt. Gen. Dan Caine as perhaps the best possible option, under the circumstances. Republicans embraced him.`\
+https://nytimes.com/2025/04/01/us/politics/dan-caine-chairman-hearing.html
+
 **Wisconsin Voters Have a Huge Opportunity to Brush Back Trump and Musk**\
 `Are the mass of voters really worked up about this administration’s actions? Tuesday night may provide some answers.`\
 https://nytimes.com/2025/04/01/opinion/wisconsin-special-election-elon-musk.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/01/travel/norovirus-cruise-cunard-line-ship.html
 **What the Falcons are saying about their amicable standoff with Kirk Cousins**\
 `Cousins has told coach Raheem Morris he would prefer to be in a situation where he can be the starting quarterback.`\
 https://nytimes.com/athletic/6246731/2025/04/01/kirk-cousins-falcons-backup-qb-raheem-morris/
-
-**Giants' Brian Daboll talks play calling, what he likes about Russell Wilson and more**\
-`Daboll watched all of Wilson's tape dating back to the QB's rookie season of 2012 and came away impressed. `\
-https://nytimes.com/athletic/6247194/2025/04/01/giants-russell-wilson-travis-hunter-brian-daboll-nfl-draft/
 
