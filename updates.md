@@ -1,3 +1,7 @@
+**Watch: Are the Thunder the best regular-season team ever?**\
+`NBA Daily discuss the Oklahoma City Thunder's record-breaking season so far.`\
+https://nytimes.com/athletic/6246554/2025/04/01/nba-okc-thunder-best-regular-season/
+
 **Turnout Strong as Wisconsin Decides Key Court Contest**\
 `Officials expect more than two million people will vote in the election, which will decide the partisan balance on the state’s Supreme Court. Many voters cite Elon Musk as a factor in the race.`\
 https://nytimes.com/2025/04/01/us/elections/wisconsin-supreme-court-election-turnout.html

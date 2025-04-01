@@ -1,3 +1,7 @@
+**Watch: Are the Thunder the best regular-season team ever?**\
+`NBA Daily discuss the Oklahoma City Thunder's record-breaking season so far.`\
+https://nytimes.com/athletic/6246554/2025/04/01/nba-okc-thunder-best-regular-season/
+
 **Turnout Strong as Wisconsin Decides Key Court Contest**\
 `Officials expect more than two million people will vote in the election, which will decide the partisan balance on the state’s Supreme Court. Many voters cite Elon Musk as a factor in the race.`\
 https://nytimes.com/2025/04/01/us/elections/wisconsin-supreme-court-election-turnout.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6247070/2025/04/01/pat-mcafee-ole-miss-until-saturd
 **Watchdog Agency to Investigate Attempted Cuts to Fair Housing Groups**\
 `The inquiry is another roadblock to efforts by HUD and DOGE to slash funds earmarked for the enforcement of the Fair Housing Act.`\
 https://nytimes.com/2025/04/01/realestate/fair-housing-investigation.html
-
-**Extension takeaways: What deals for Garrett Crochet, Cal Raleigh, others mean for the market**\
-`Breaking down what the recent extensions for Crochet, Raleigh, Bibee, Pfaadt and Kirk might mean for other similar players. `\
-https://nytimes.com/athletic/6247081/2025/04/01/mlb-extension-takeaways-garrett-crochet-cal-raleigh/
 
