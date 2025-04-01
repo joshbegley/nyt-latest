@@ -1,3 +1,7 @@
+**Seahawks' focus remains on Super Bowl, despite shake-up: 'We can definitely win with Sam'**\
+`Seahawks coach Mike Macdonald also discussed the team's draft strategy and why he's confident Riq Woolen will recapture his 2022 magic.`\
+https://nytimes.com/athletic/6247510/2025/04/01/seahawks-sam-darnold-mike-macdonald-owners-meetings/
+
 **Nguyen: 'Tush push' lives to fight another day, here's why it should stay for good**\
 `Is it fair to create a rule to take away something the Eagles have committed resources into while others have chosen not to?`\
 https://nytimes.com/athletic/6243433/2025/04/01/tush-push-ban-vote-nfl-nguyen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6247231/2025/04/01/nfl-richard-sherman-robbery-home
 **Auto Sales Surged in Anticipation of Trump’s Tariffs**\
 `Sales of cars picked up recently partly as buyers rushed to lock in deals before President Trump’s 25 percent tariffs on cars and auto parts go into effect.`\
 https://nytimes.com/2025/04/01/business/auto-sales-trump-tariffs.html
-
-**Federal Health Work Force Makes Up Less Than 1% of Agency Spending**\
-`Health Secretary Robert F. Kennedy Jr. suggests that laying off thousands of federal workers would tame a massive budget. But nearly all of the agency’s money goes to hospitals, doctors and nursing homes.`\
-https://nytimes.com/2025/04/01/health/hhs-employees-spending-one-percent-budget-layoffs.html
 
