@@ -1,3 +1,19 @@
+**How to Exfoliate Your Skin**\
+`Expert advice from a celebrity facialist, a chef and a gardener.`\
+https://nytimes.com/2025/04/01/t-magazine/how-to-exfoliate-skin.html
+
+**A Pack of April Fools**\
+`A survey of the many fools who have been immortalized in song, featuring Aretha Franklin, Bow Wow Wow, the Stone Roses and more.`\
+https://nytimes.com/2025/04/01/arts/music/amplifier-newsletter-april-fools-songs.html
+
+**The baseball cards that make our writers happy**\
+`Every collector has a card with special significance, whether it was a childhood hero or the middle reliever you couldn't escape `\
+https://nytimes.com/athletic/6241863/2025/04/01/baseball-cards-ripken-brett-mantle/
+
+**Dan Campbell on Lions' homegrown talent, free agency additions, tush push and other rule proposals**\
+`Dan Campbell has strong feelings on the tush push debate.`\
+https://nytimes.com/athletic/6246937/2025/04/01/lions-dan-campbell-tush-push-free-agency/
+
 **Trump Said Auto Emissions Don’t Affect the Environment. That’s Not True.**\
 `The president wants to weaken limits on tailpipe pollution. Scientists say it’s driving climate change and taking human lives “every day.”`\
 https://nytimes.com/2025/04/01/climate/trump-auto-emissions.html
