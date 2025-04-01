@@ -1,3 +1,7 @@
+**New Zealand Rugby and INEOS reach settlement over sponsorship dispute**\
+`Sir Jim Ratcliffe’s petrochemical firm had been seeking to renegotiate their performance partnership with the governing body.`\
+https://nytimes.com/athletic/6246218/2025/04/01/new-zealand-rugby-ineos-sponsorship/
+
 **Jon Stewart: Trump Is ‘Trying to Order Off-Menu From the Constitution’**\
 `President Trump says there are “methods” by which he could get a third term. “I think you tried one a few years ago,” the “Daily Show” host quipped.`\
 https://nytimes.com/2025/04/01/arts/television/jon-stewart-trump-third-term.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/01/fashion/van-cleef-arpels-cadenas-watch-90-anniver
 **Piaget Revisits the Trapezoid**\
 `Sixtie, a new bracelet watch, was inspired by a design from the late 1960s.`\
 https://nytimes.com/2025/04/01/fashion/watches-piaget-trapezoid-sixtie.html
-
-**Dodgers' Tyler Glasnow, who remains dominant, hopes his offseason changes keep him that way**\
-`In his first action since Aug. 11, Glasnow offered a reminder of his high-end talent. The Dodgers improve to 6-0.`\
-https://nytimes.com/athletic/6246157/2025/04/01/tyler-glasnow-first-start-dodgers/
 

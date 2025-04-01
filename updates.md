@@ -1,3 +1,7 @@
+**New Zealand Rugby and INEOS reach settlement over sponsorship dispute**\
+`Sir Jim Ratcliffe’s petrochemical firm had been seeking to renegotiate their performance partnership with the governing body.`\
+https://nytimes.com/athletic/6246218/2025/04/01/new-zealand-rugby-ineos-sponsorship/
+
 **Jon Stewart: Trump Is ‘Trying to Order Off-Menu From the Constitution’**\
 `President Trump says there are “methods” by which he could get a third term. “I think you tried one a few years ago,” the “Daily Show” host quipped.`\
 https://nytimes.com/2025/04/01/arts/television/jon-stewart-trump-third-term.html
