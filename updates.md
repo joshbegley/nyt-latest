@@ -1,3 +1,15 @@
+**Tuesday Briefing**\
+`President Trump’s talk of a third term.`\
+https://nytimes.com/2025/04/01/briefing/trump-le-pen-israel.html
+
+**Nottingham Forest finances: Would Champions League cash mean they could keep star players?**\
+`Forest made a profit of £12million in 2023-24 — but would extra Champions League cash mean they would not have to sell a prize asset?`\
+https://nytimes.com/athletic/6244816/2025/04/01/nottingham-forest-finances-would-champions-league-cash-mean-they-could-keep-star-players/
+
+**Explained: Arsenal's Gyokeres interest and the impact on Man Utd, Liverpool and Chelsea's plans**\
+`Arsenal have a growing interest in Viktor Gyokeres — but that must have a knock-on effect on the rest of the market`\
+https://nytimes.com/athletic/6244877/2025/04/01/viktor-gyokeres-arsenal-transfer-manchester-united-liverpool-chelsea-latest/
+
 **Hailey Van Lith's long college career ends with a loss, but also redemption**\
 `"My journey has been crazy. I'm super grateful for it, wouldn't have had it any other way.”`\
 https://nytimes.com/athletic/6246035/2025/04/01/hailey-van-liths-long-college-career-ends-with-a-loss-but-also-redemption/
