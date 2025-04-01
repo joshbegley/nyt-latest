@@ -1,3 +1,11 @@
+**The Bounce: Tired of NBA teams tanking? Here's how to solve it. Plus, checking in on 2024 rookies**\
+`If you're tired of NBA teams tanking for the draft, Zach Harper has a simple solution to quell the chaos.`\
+https://nytimes.com/athletic/6246531/2025/04/01/nba-draft-tanking-lakers-lebron-james-luka-doncic-nba-the-bounce/
+
+**USWNT's Rodman: 'I don't know if my back will ever be 100 percent'**\
+`The 22-year-old has dealt with multiple back injuries since her debut season in the NWSL in 2021.`\
+https://nytimes.com/athletic/6246630/2025/04/01/trinity-rodman-back-injury/
+
 **Weekly Student News Quiz: Earthquake, Security Breach, Baseball Season **\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2025/04/01/learning/01StudentNewsQuizLN.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6243947/2025/04/01/liverpool-best-team-england/
 **Doug Emhoff’s Law Firm Is Said to Be Trump’s Next Target**\
 `The firm, Willkie Farr & Gallagher, also employs a top investigator for the congressional committee that documented President Trump’s role in the Jan. 6, 2021, attack on the U.S. Capitol.`\
 https://nytimes.com/2025/04/01/us/politics/trump-law-firm-doug-emhoff-wilkie-farr-gallagher.html
-
-**A Graphic Coat of Many Colors**\
-`They included yellow, red, green, brown and blue.`\
-https://nytimes.com/2025/04/01/style/street-style-look-spring-colors.html
-
-**A's home opener in Sacramento had a different — but distinctly minor league — feel**\
-`On the field, the A's were embarrassed by the Chicago Cubs 18-3 as Carson Kelly hit for the cycle.`\
-https://nytimes.com/athletic/6246494/2025/04/01/athletics-opening-day-sacramento-fans/
 

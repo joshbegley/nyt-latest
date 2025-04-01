@@ -1,3 +1,15 @@
+**Weekly Student News Quiz: Earthquake, Security Breach, Baseball Season **\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/04/01/learning/01StudentNewsQuizLN.html
+
+**Palace's Richards to miss Southampton game with calf issue**\
+`The USMNT defender sustained a minor injury in Palace’s 3-0 win over Fulham in the FA Cup quarter-final on Saturday.`\
+https://nytimes.com/athletic/6246737/2025/04/01/crystal-palace-chris-richards-calf-injury/
+
+**For Tigers prospect Jackson Jobe, this is how growth works in the major leagues**\
+`Jackson Jobe surrendered three earned runs in four innings during his first start in the major leagues. `\
+https://nytimes.com/athletic/6246175/2025/04/01/tigers-prospect-jackson-jobe-mlb-start/
+
 **A's home opener in Sacramento had a different — but distinctly minor league — feel**\
 `On the field, the A's were embarrassed by the Chicago Cubs 18-3 as Carson Kelly hit for the cycle.`\
 https://nytimes.com/athletic/6246494/2025/04/01/athletics-opening-day-sacramento-fans/
