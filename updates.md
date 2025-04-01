@@ -1,3 +1,11 @@
+**Why Italy Made It Harder to Become Italian**\
+`The government says it tightened citizenship rules because of a deluge of applications from the descendants of emigrants who only coveted an Italian passport.`\
+https://nytimes.com/2025/04/01/world/europe/italy-citizenship-rules.html
+
+**'We don't want to be in the Play-In': Lakers admit they're keeping an eye on standings**\
+`Back-to-back wins against Memphis and Houston have aided the Lakers' push for the No. 2 seed. Another key game, against Golden State, looms.`\
+https://nytimes.com/athletic/6245954/2025/04/01/nba-western-conference-standings-lakers-rockets-nuggets/
+
 **The Eagles can still run the Brotherly Shove. For now.**\
 `The debate continues after NFL owners tabled a proposal to ban the play.`\
 https://nytimes.com/athletic/6246635/2025/04/01/tush-push-eagles-brotherly-shove/
