@@ -1,3 +1,11 @@
+**Nguyen: 'Tush push' lives to fight another day, here's why it should stay for good**\
+`Is it fair to create a rule to take away something the Eagles have committed resources into while others have chosen not to?`\
+https://nytimes.com/athletic/6243433/2025/04/01/tush-push-ban-vote-nfl-nguyen/
+
+**A Mysterious Group Says Its Mission Is to Expose Antisemitic Students**\
+`Civil rights advocates say Canary Mission is doxxing critics of Israel and providing a possible road map for immigration agents as they sweep up students in a campus crackdown.`\
+https://nytimes.com/2025/04/01/us/israel-gaza-student-protests-canary-mission.html
+
 **He Wore a ‘Patriotic’ Hat to a Blue Jays Game. It Got Him Ejected.**\
 `The message “Canada is not for sale” drew attention because of a rule against political slogans at Rogers Centre in Toronto. The team later apologized.`\
 https://nytimes.com/2025/04/01/sports/baseball/toronto-blue-jays-fan-ejected-hat.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/01/business/auto-sales-trump-tariffs.html
 **Federal Health Work Force Makes Up Less Than 1% of Agency Spending**\
 `Health Secretary Robert F. Kennedy Jr. suggests that laying off thousands of federal workers would tame a massive budget. But nearly all of the agency’s money goes to hospitals, doctors and nursing homes.`\
 https://nytimes.com/2025/04/01/health/hhs-employees-spending-one-percent-budget-layoffs.html
-
-**How to Exfoliate Your Skin**\
-`Expert advice from a celebrity facialist, a chef and a gardener.`\
-https://nytimes.com/2025/04/01/t-magazine/how-to-exfoliate-skin.html
-
-**A Pack of April Fools**\
-`A survey of the many fools who have been immortalized in song, featuring Aretha Franklin, Bow Wow Wow, the Stone Roses and more.`\
-https://nytimes.com/2025/04/01/arts/music/amplifier-newsletter-april-fools-songs.html
 
