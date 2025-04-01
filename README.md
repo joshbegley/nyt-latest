@@ -6,7 +6,7 @@ https://nytimes.com/2025/04/01/us/politics/elon-musk-pennsylvania-petition-lawsu
 `What on earth are Republican leaders thinking in trying to stop a Republican proposal to make it easier for new parents to vote in Congress?`\
 https://nytimes.com/2025/04/01/opinion/anna-paulina-luna-mike-johnson-parental-voting.html
 
-**Nottingham Forest 1 Man Utd 0 - How Elanga's seven touches in nine seconds cut Amorim's team apart**\
+**The Briefing: Nottingham Forest 1 Man Utd 0 - How Elanga's seven touches in nine seconds cut Amorim's team apart**\
 `Analysis of Nottingham Forest's victory over Manchester United in the Premier League`\
 https://nytimes.com/athletic/6243965/2025/04/01/nottingham-forest-manchester-united-elanga-goal/
 
@@ -31,7 +31,7 @@ https://nytimes.com/2025/04/01/style/frick-collection-gala.html
 https://nytimes.com/athletic/6247688/2025/04/01/newcastle-saudi-arabia-thogden/
 
 **The Briefing: Arsenal 2 Fulham 1 - Saka's dream return but Gabriel injury clouds win**\
-`The major talking points analysed from Tuesday's Premier League clash at the Emirates`\
+`The major talking points analysed from Tuesday's Premier League clash at the Emirates Stadium`\
 https://nytimes.com/athletic/6243964/2025/04/01/arsenal-fulham-result-analysis/
 
 **Betty Webb, Who Helped Bletchley Park Code Breakers, Dies at 101**\
