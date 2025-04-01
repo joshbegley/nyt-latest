@@ -1,3 +1,11 @@
+**Packers president Mark Murphy explains why they want the 'tush push' banned**\
+`Murphy first cited safety concerns, but there isn't much data to back up the conclusion that the tush push is an elevated safety risk.`\
+https://nytimes.com/athletic/6248189/2025/04/01/packers-mark-murphy-tush-push/
+
+**Transportation Dept. Renews Voluntary Buyouts for Work Force**\
+`The department said it was offering a second wave of buyouts to accommodate employees who may have declined the initial offer because of confusing messages.`\
+https://nytimes.com/2025/04/01/us/politics/trump-buyouts-us-transportation-department.html
+
 **He Got Clemency From Trump. Now He’s Facing Charges of Injuring a Child.**\
 `Jonathan Braun, who has had a string of legal issues since President Trump commuted his drug sentence four years ago, was arrested after allegedly punching an acquaintance and shoving a 3-year-old.`\
 https://nytimes.com/2025/04/01/us/politics/jonathan-braun-trump-pardons-arrests.html
