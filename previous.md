@@ -1,3 +1,11 @@
+**Browns QB tracker: What Kevin Stefanski, Andrew Berry had to say at league meeting**\
+`The coach and GM outline where things stand, the team's views on the QBs group and why they don't feel rushed to make a decision.`\
+https://nytimes.com/athletic/6245130/2025/04/01/browns-quarterback-tracker-kevin-stefanski-andrew-berry/
+
+**Reading between the lines for Bills draft takeaways from Brandon Beane**\
+`Could the Bills not use an early pick on a wide receiver?`\
+https://nytimes.com/athletic/6245070/2025/04/01/bills-brandon-beane-nfl-draft-strategy/
+
 **Democrats May Be Down, but Their Appetite for Voting Hasn’t Dimmed**\
 `They have had strong turnout in special elections and in the early voting for today’s elections.`\
 https://nytimes.com/2025/04/01/upshot/special-elections-democrats-voting.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/01/nyregion/banksy-installation-red-hook.html
 **What I Learned About Trump’s Second Term by Reading His First 100 Executive Orders**\
 `Even with Republican congressional majorities, Trump favors the flourish of the order over the hassle of lawmaking.`\
 https://nytimes.com/2025/04/01/opinion/trump-executive-orders-presidential-power.html
-
-**As Trump Stokes Uncertainty, the Fed Asks Businesses Where It Hurts**\
-`The central bank’s outreach to companies has taken on new significance as the outlook for growth and inflation gets cloudier.`\
-https://nytimes.com/2025/04/01/business/economy/trump-tariffs-fed-economy.html
-
-**Layer Your Lighting Design for Drama and Functionality**\
-`Lamps in all shapes and sizes can be used to recast the feel of a room,  brighten dark corners and illuminate your treasures.`\
-https://nytimes.com/2025/04/01/realestate/fix-layered-lighting-design.html
 
