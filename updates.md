@@ -1,3 +1,11 @@
+**Major Layoffs Begin at Health Agencies That Track Disease and Regulate Food**\
+`The cuts were part of a Trump administration plan announced last week to dismiss 10,000 employees and drastically overhaul the Health and Human Services Department under Secretary Robert F. Kennedy Jr.`\
+https://nytimes.com/2025/04/01/us/politics/trump-federal-layoffs-health-food.html
+
+**Jordan Hicks' dominating 2025 debut gave the Giants reason to be optimistic**\
+`Hicks isn't all that different from Garrett Crochet in terms of what he did last season. Their ceilings might not be that different, either.`\
+https://nytimes.com/athletic/6245824/2025/04/01/sf-giants-jordan-hicks-season-debut/
+
 **Celtics chase history on road after perfect 6-0 trip: 'Our guys are good everywhere'**\
 `The Celtics are two road wins away from tying the Warriors for the best road record in a single season.`\
 https://nytimes.com/athletic/6246059/2025/04/01/celtics-history-road-record-winning/

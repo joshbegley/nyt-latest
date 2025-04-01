@@ -1,5 +1,21 @@
+**Congress Wrote a Deportation Law to Be Used ‘Sparingly.’ Trump Has Other Ideas.**\
+`A crackdown targeting foreign students protesting Israel’s treatment of Palestinians conflicts with free-speech protections that lawmakers added in 1990.`\
+https://nytimes.com/2025/04/01/us/trump-deportations-students-campus-protests.html
+
+**Rockets can't tune out noise in loss to Lakers: 'Most of the game is mental'**\
+`Fans in L.A. gave Houston's Dillon Brooks the kind of welcome he practices in pregame. `\
+https://nytimes.com/athletic/6246114/2025/04/01/rockets-dillon-brooks-lebron-lakers-mental/
+
+**Wolves' Joao Gomes signs new five-year contract**\
+`The new deal does not contain a release clause, meaning Gomes is all but certain to stay at Molineux this summer.`\
+https://nytimes.com/athletic/6246557/2025/04/01/wolves-joao-gomes-contract-update/
+
+**Three New Works of Theater to Share One Trait: Hope**\
+`The Fisher Center at Bard has announced a wave of works by artists including Suzan-Lori Parks, Courtney Bryan, Barrie Kosky and Lisa Kron.`\
+https://nytimes.com/2025/04/01/arts/civis-hope-commissions-fisher-center-bard.html
+
 **Major Layoffs Begin at Health Agencies That Track Disease and Regulate Food**\
-`The cuts were part of a Trump administration plan announced last week to dismiss 10,000 employees and drastically overhaul the Health and Human Services Department under Secretary Robert F. Kennedy Jr.`\
+`The cuts were part of a Trump administration plan announced last week to dismiss thousands of employees and drastically overhaul the Health and Human Services Department under Secretary Robert F. Kennedy Jr.`\
 https://nytimes.com/2025/04/01/us/politics/trump-federal-layoffs-health-food.html
 
 **Celtics chase history on road after perfect 6-0 trip: 'Our guys are good everywhere'**\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6246630/2025/04/01/trinity-rodman-back-injury/
 **Weekly Student News Quiz: Earthquake, Security Breach, Baseball Season **\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2025/04/01/learning/01StudentNewsQuizLN.html
-
-**Palace's Richards to miss Southampton game with calf issue**\
-`The USMNT defender sustained a minor injury in Palace’s 3-0 win over Fulham in the FA Cup quarter-final on Saturday.`\
-https://nytimes.com/athletic/6246737/2025/04/01/crystal-palace-chris-richards-calf-injury/
-
-**For Tigers prospect Jackson Jobe, this is how growth works in the major leagues**\
-`Jackson Jobe surrendered three earned runs in four innings during his first start in the major leagues. `\
-https://nytimes.com/athletic/6246175/2025/04/01/tigers-prospect-jackson-jobe-mlb-start/
-
-**Jordan Hicks' dominating 2025 debut gave the Giants reason to be optimistic**\
-`Hicks isn't all that different from Garrett Crochet in terms of what he did last season. Their ceilings might not be that different, either.`\
-https://nytimes.com/athletic/6245824/2025/04/01/sf-giants-jordan-hicks-season-debut/
-
-**U.S. Says Deportation of Maryland Man Was an ‘Administrative Error’**\
-`Kilmar Armando Abrego Garcia, who was in the U.S. legally, is now in prison in El Salvador, and federal courts have no jurisdiction to order his release, the Trump administration said in a court filing.`\
-https://nytimes.com/2025/04/01/us/politics/maryland-man-deportation-error-el-salvador.html
 

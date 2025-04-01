@@ -1,3 +1,7 @@
+**Major Layoffs Begin at Health Agencies That Track Disease and Regulate Food**\
+`The cuts were part of a Trump administration plan announced last week to dismiss 10,000 employees and drastically overhaul the Health and Human Services Department under Secretary Robert F. Kennedy Jr.`\
+https://nytimes.com/2025/04/01/us/politics/trump-federal-layoffs-health-food.html
+
 **Celtics chase history on road after perfect 6-0 trip: 'Our guys are good everywhere'**\
 `The Celtics are two road wins away from tying the Warriors for the best road record in a single season.`\
 https://nytimes.com/athletic/6246059/2025/04/01/celtics-history-road-record-winning/
@@ -27,14 +31,10 @@ https://nytimes.com/athletic/6246737/2025/04/01/crystal-palace-chris-richards-ca
 https://nytimes.com/athletic/6246175/2025/04/01/tigers-prospect-jackson-jobe-mlb-start/
 
 **Jordan Hicks' dominating 2025 debut gave the Giants reason to be optimistic**\
-`Hicks isn't all that different from Garrett Crochet in terms of what he did last season. Their ceilings might not be that different, too.`\
+`Hicks isn't all that different from Garrett Crochet in terms of what he did last season. Their ceilings might not be that different, either.`\
 https://nytimes.com/athletic/6245824/2025/04/01/sf-giants-jordan-hicks-season-debut/
 
 **U.S. Says Deportation of Maryland Man Was an ‘Administrative Error’**\
 `Kilmar Armando Abrego Garcia, who was in the U.S. legally, is now in prison in El Salvador, and federal courts have no jurisdiction to order his release, the Trump administration said in a court filing.`\
 https://nytimes.com/2025/04/01/us/politics/maryland-man-deportation-error-el-salvador.html
-
-**Netanyahu Drops Nominee for Spy Chief After Backlash**\
-`Eli Sharvit was a controversial choice after Israel’s prime minister fired his predecessor. Revelations that he wrote a column criticizing President Trump may have helped sink his chances.`\
-https://nytimes.com/2025/04/01/world/middleeast/israel-netanyahu-trump-shin-bet.html
 
