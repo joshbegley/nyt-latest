@@ -1,3 +1,15 @@
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/03/31/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
+**‘Glengarry Glen Ross’ Review: Caveat Emptor, Suckers!**\
+`Kieran Culkin, Bill Burr and Bob Odenkirk star in a bumpy revival of David Mamet’s play about salesmen with nothing worth selling.`\
+https://nytimes.com/2025/03/31/theater/glengarry-glen-ross-review-culkin-odenkirk-burr.html
+
+**Oakland native Nico Hoerner wishes A's still played there: 'I feel for ... sports fans'**\
+`“All three teams being gone in a very short span is a hard hit to an entire community," Hoerner said of the MLB, NBA and NFL exits.`\
+https://nytimes.com/athletic/6245867/2025/03/31/oakland-native-nico-hoerner-athletics-move-reaction/
+
 **Oakland native Nico Hoerner wishes A's team still played there: 'I feel for...sports fans'**\
 `“All three teams being gone in a very short span is a hard hit to an entire community," Hoerner said of the MLB, NBA and NFL exits.`\
 https://nytimes.com/athletic/6245867/2025/03/31/oakland-native-nico-hoerner-athletics-move-reaction/
