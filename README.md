@@ -1,3 +1,11 @@
+**This Tree Wants to Be Struck by Lightning**\
+`Before a discovery in a Panamanian rainforest, “it seemed impossible that lightning could be a good thing for the trees,” a scientist said.`\
+https://nytimes.com/2025/04/01/science/trees-lightning-rainforest.html
+
+**Free Gaza From Its Own Tyrants First**\
+`Anti-Hamas protests in Gaza are the first necessary steps on the road to real peace.`\
+https://nytimes.com/2025/04/01/opinion/hamas-gaza-palestinian-protests.html
+
 **Bongino Tells F.B.I. He Is Not Partisan**\
 `The F.B.I.’s No. 2 official said he would rise above partisanship, an admission that reflected skepticism among former and current agents about whether he would maintain the bureau’s independence.`\
 https://nytimes.com/2025/04/01/us/politics/dan-bongino-fbi-partisan.html
@@ -25,16 +33,4 @@ https://nytimes.com/athletic/6247464/2025/04/01/76ers-knicks-nba-how-to-watch/
 **Messi's bodyguard and his dwindling presence at Inter Miami games**\
 `Yassine Cheuko has had less of a presence on Inter Miami sidelines this season, and he claims to know why.`\
 https://nytimes.com/athletic/6247418/2025/04/01/messi-bodyguard-yassine-cheuko-mls-inter-miami-concacaf-access/
-
-**Are new torpedo bats affecting sports betting? 'We don’t do any knee-jerk reactions'**\
-`Bettors are all over the torpedo bat craze, but what do the sportsbooks think? Max Meyer talked to oddsmakers to find out.`\
-https://nytimes.com/athletic/6247578/2025/04/01/torpedo-bats-mlb-betting/
-
-**What stood out in Wisconsin's fifth practice of the spring?**\
-`Six takeaways from Wisconsin's spring practice on Tuesday morning.`\
-https://nytimes.com/athletic/6247528/2025/04/01/wisconsin-spring-football-practice-luke-fickell/
-
-**Voters Cast Ballots in Crucial Wisconsin Supreme Court Race**\
-`The contest between judges Susan Crawford, a liberal, and Brad Schimel, a conservative whose campaign was backed by the billionaire Elon Musk, will tip the balance of the Wisconsin Supreme Court.`\
-https://nytimes.com/video/us/elections/100000010084913/wisconsin-election-voters.html
 
