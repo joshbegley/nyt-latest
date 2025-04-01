@@ -1,3 +1,11 @@
+**Merseyside Derby betting preview: Salah to blitz Everton? Or fouls galore?**\
+`Sam Tighe provides betting insight ahead of this Wednesday’s Merseyside Derby.`\
+https://nytimes.com/athletic/6246417/2025/04/01/premier-league-merseyside-derby-predictions-betting-tips-odds/
+
+**Texas' Vic Schaefer is close to reaching the top of the ladder once more**\
+`Schaefer has the Longhorns back in the Final Four for the first time since 2003. `\
+https://nytimes.com/athletic/6246118/2025/04/01/texas-vic-schaefer-final-four/
+
 **Cory Booker Delivers Marathon Speech on Senate Floor**\
 `Senator Booker, Democrat of New Jersey, spoke for hours, criticizing the Trump administration’s policies on Social Security, education, health care and more.`\
 https://nytimes.com/video/us/politics/100000010084523/corey-booker-senate-speech.html
