@@ -1,3 +1,11 @@
+**Kasatkina on switching Russia for Australia: 'If I want to be myself, I have to make this step'**\
+`Kasatkina says she “didn’t have much choice” but to defect from her home country of Russia.`\
+https://nytimes.com/athletic/6246277/2025/04/01/daria-kasatkina-australia-russia/
+
+**Padres stars voice support for ex-teammate Profar as he begins suspension**\
+`Profar will serve an 80-game suspension after testing positive for a banned substance.`\
+https://nytimes.com/athletic/6246243/2025/04/01/jurickson-profar-suspension-braves-padres/
+
 **Rutter and Webster could miss remainder of season through injury**\
 `Both players suffered injuries in normal time in Saturday's exit from the FA Cup against Nottingham Forest.`\
 https://nytimes.com/athletic/6246283/2025/04/01/brighton-rutter-webster-injury-news/
