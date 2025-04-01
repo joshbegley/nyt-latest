@@ -1,3 +1,11 @@
+**The New York Times in Print for Tuesday, April 1, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/01/todays-new-york-times
+
+**Trump’s Ukraine Betrayal Is a Reality Check for Taiwan**\
+`Taiwan can no longer shelter under the delusion that the U.S. will defend it against China.`\
+https://nytimes.com/2025/04/01/opinion/taiwan-china-trump.html
+
 **Tuesday Briefing**\
 `President Trump’s talk of a third term.`\
 https://nytimes.com/2025/04/01/briefing/trump-le-pen-israel.html
