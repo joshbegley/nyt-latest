@@ -1,3 +1,7 @@
+**Wisconsin Spring Election Results**\
+`Get live results and maps from the 2025 Wisconsin Spring elections.`\
+https://nytimes.com/interactive/2025/04/01/us/elections/results-wisconsin.html
+
 **Wisconsin Supreme Court Election Results**\
 `Get live results and maps from the 2025 Wisconsin general election.`\
 https://nytimes.com/interactive/2025/04/01/us/elections/results-wisconsin-supreme-court.html
@@ -5,10 +9,6 @@ https://nytimes.com/interactive/2025/04/01/us/elections/results-wisconsin-suprem
 **Florida Sixth District Special Election Results**\
 `Get live results and maps from the 2025 Florida special election.`\
 https://nytimes.com/interactive/2025/04/01/us/elections/results-florida-us-house-6-special.html
-
-**Wisconsin Spring Election Results**\
-`Get live results and maps from the 2025 Wisconsin Spring elections.`\
-https://nytimes.com/interactive/2025/04/01/us/elections/results-wisconsin.html
 
 **Florida Special Election Results**\
 `Get live results and maps from the 2025 Florida special elections.`\
