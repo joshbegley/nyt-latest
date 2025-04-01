@@ -1,3 +1,7 @@
+**Federal Health Work Force Makes Up Less Than 1% of Agency Spending**\
+`Health Secretary Robert F. Kennedy Jr. suggests that laying off thousands of federal workers would tame a massive budget. But nearly all of the agency’s money goes to hospitals, doctors and nursing homes.`\
+https://nytimes.com/2025/04/01/health/hhs-employees-spending-one-percent-budget-layoffs.html
+
 **How to Exfoliate Your Skin**\
 `Expert advice from a celebrity facialist, a chef and a gardener.`\
 https://nytimes.com/2025/04/01/t-magazine/how-to-exfoliate-skin.html

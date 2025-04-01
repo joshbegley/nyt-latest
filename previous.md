@@ -1,3 +1,7 @@
+**Federal Health Work Force Makes Up Less Than 1% of Agency Spending**\
+`Health Secretary Robert F. Kennedy Jr. suggests that laying off thousands of federal workers would tame a massive budget. But nearly all of the agency’s money goes to hospitals, doctors and nursing homes.`\
+https://nytimes.com/2025/04/01/health/hhs-employees-spending-one-percent-budget-layoffs.html
+
 **How to Exfoliate Your Skin**\
 `Expert advice from a celebrity facialist, a chef and a gardener.`\
 https://nytimes.com/2025/04/01/t-magazine/how-to-exfoliate-skin.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6247141/2025/04/01/panthers-xavier-legette-dave-can
 **Air Traffic Controller Arrested in Incident at Reagan National Tower**\
 `The arrest of an F.A.A. employee on assault and battery charges comes as flight operations at the airport have been under scrutiny since a passenger jet and an Army helicopter collided in January.`\
 https://nytimes.com/2025/04/01/us/politics/air-traffic-controller-arrest-reagan-airport.html
-
-**Rubio Orders U.S. Diplomats to Scour Student Visa Applicants’ Social Media**\
-`The order comes as President Trump expands deportation efforts, including of students who have spoken out in support of Palestinians during Israel’s war in Gaza.`\
-https://nytimes.com/2025/04/01/us/politics/student-visas-social-media.html
 
