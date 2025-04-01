@@ -1,3 +1,7 @@
+**SpaceX Launches First Crewed Flight Over Earth’s Poles**\
+`Four private astronauts lifted off from Florida on Monday on the Fram2 mission to orbit Earth from pole to pole.`\
+https://nytimes.com/video/science/space/100000010084367/space-mission-polar-orbit.html
+
 **U.S. Sanctions Chinese and Hong Kong Officials for Pursuing Activists Abroad**\
 `China’s former top spy catcher is among six security enforcers targeted as the Trump administration turns its attention to human rights issues in the city.`\
 https://nytimes.com/2025/04/01/world/asia/china-hong-kong-sanctions.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/01/nyregion/nypd-investigation-child-abuse.html
 **Cometh the Hour, Cometh the Watch Fair**\
 `Watches and Wonders Geneva, the luxury industry’s only major watch fair, opens this week with introductions from 60 brands.`\
 https://nytimes.com/2025/04/01/fashion/watches-and-wonders-geneva.html
-
-**Van Cleef & Arpels’ Cadenas Watch at 90**\
-`The padlock-style timepiece now features a mix of diamonds and sapphires.`\
-https://nytimes.com/2025/04/01/fashion/van-cleef-arpels-cadenas-watch-90-anniversary.html
 
