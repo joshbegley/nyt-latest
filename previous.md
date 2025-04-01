@@ -26,13 +26,13 @@ https://nytimes.com/athletic/6245857/2025/04/01/womens-final-four-breakdown-and-
 `Auriemma is in his 24th Final Four, while Bueckers is making her fourth trip. `\
 https://nytimes.com/athletic/6246304/2025/04/01/uconn-paige-bueckers-geno-auriemma/
 
-**The Most Expensive Judicial Race in U.S. History, and a Growing Demand for Ivermectin**\
-`Plus, the return of the rotating restaurant.`\
-https://nytimes.com/2025/04/01/podcasts/the-headlines/florida-wisconsin-judicial-ivermectin.html
-
 **Is Elon Musk Buying Today’s Election in Wisconsin?**\
 `A state judicial race has turned into a referendum on a billionaire.`\
 https://nytimes.com/2025/04/01/podcasts/the-daily/elon-musk-wisconsin-supreme-court-election.html
+
+**The Most Expensive Judicial Race in U.S. History, and a Growing Demand for Ivermectin**\
+`Plus, the return of the rotating restaurant.`\
+https://nytimes.com/2025/04/01/podcasts/the-headlines/florida-wisconsin-judicial-ivermectin.html
 
 **A contradiction on skates, Alex Ovechkin nears the end of the great chase**\
 `His long connection to Russian President Vladimir Putin complicates Alex Ovechkin's legacy in the eyes of some. `\
