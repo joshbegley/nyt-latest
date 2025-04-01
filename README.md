@@ -1,3 +1,7 @@
+**Robert Kraft optimistic about Patriots under Mike Vrabel, hopes 'to make the playoffs'**\
+`Asked whether the Patriots are still at ground zero of their multiyear rebuild, the owner said, “I think we’re ahead of that."`\
+https://nytimes.com/athletic/6246860/2025/04/01/robert-kraft-patriots-mike-vrabel-playoffs/
+
 **NFL teams table vote to ban 'tush push' at league meetings: Source**\
 `The play has been frequently used by the Philadelphia Eagles and quarterback Jalen Hurts in short-yardage situations.`\
 https://nytimes.com/athletic/6245224/2025/04/01/nfl-tush-push-vote-tabled/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/01/us/trump-deportations-students-campus-protests.ht
 **Rockets can't tune out noise in loss to Lakers: 'Most of the game is mental'**\
 `Fans in L.A. gave Houston's Dillon Brooks the kind of welcome he practices in pregame. `\
 https://nytimes.com/athletic/6246114/2025/04/01/rockets-dillon-brooks-lebron-lakers-mental/
-
-**Wolves' Joao Gomes signs new five-year contract**\
-`The new deal does not contain a release clause, meaning Gomes is all but certain to stay at Molineux this summer.`\
-https://nytimes.com/athletic/6246557/2025/04/01/wolves-joao-gomes-contract-update/
 

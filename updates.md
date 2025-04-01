@@ -1,3 +1,7 @@
+**NFL teams table vote to ban 'tush push' at league meetings: Source**\
+`The play has been frequently used by the Philadelphia Eagles and quarterback Jalen Hurts in short-yardage situations.`\
+https://nytimes.com/athletic/6245224/2025/04/01/nfl-tush-push-vote-tabled/
+
 **NFL owners approve rule for both teams to possess ball in regular season OT**\
 `The new regular season overtime rules will now more closely resemble the playoff format.`\
 https://nytimes.com/athletic/6246849/2025/04/01/nfl-overtime-rule-change-expanded-replay-assist/
