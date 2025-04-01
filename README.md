@@ -1,3 +1,15 @@
+**Trump Expected to Announce Reciprocal Tariffs for Other Countries**\
+`President Trump is expected to announce new tariffs on goods imported from outside the U.S., which could match the levies that other countries place on products made in America.`\
+https://nytimes.com/video/business/economy/100000010085723/trump-tariff-liberation-day.html
+
+**Kathan Brown, Acclaimed Fine Art Printmaker, Dies at 89**\
+`She helped revive the centuries-old tradition of intaglio printing in the U.S., producing fine-art etchings with artists like Chuck Close and Sol LeWitt.`\
+https://nytimes.com/2025/04/01/arts/kathan-brown-dead.html
+
+**Voters Will Offer an Early Assessment of Trump and Musk**\
+`Also, prosecutors plan to pursue the death penalty for Luigi Mangione. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/04/01/briefing/elections-wisconsin-florida-revolving-restaurants-return.html
+
 **Arsenal's Gabriel, Timber to be assessed after sustaining injuries**\
 `Arsenal already have defenders Riccardo Calafiori, Takehiro Tomiyasu and Ben White out injured.`\
 https://nytimes.com/athletic/6247794/2025/04/01/gabriel-timber-arsenal-injury/
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2025/04/01/us/politics/house-vote-johnson-proxy-
 **Garrett Crochet's extension could just be the start of Red Sox locking up their core**\
 `Crochet is now under team control through 2031. The Red Sox have several other young players who could also be in line for new deals.`\
 https://nytimes.com/athletic/6247899/2025/04/01/garrett-crochet-red-sox-future-extensions/
-
-**49ers' Kyle Shanahan details positions of need, is eager for more competition**\
-`Shanahan cited spots — including kicker — where there will be competition this summer while Jed York talked about Brock Purdy's contract.`\
-https://nytimes.com/athletic/6247778/2025/04/01/49ers-kyle-shanahan-nfl-league-meeting/
-
-**Andrew Luck: Frank Reich 'the perfect steward' as Stanford's interim coach**\
-`Former NFL coach embraces one-year job to usher Cardinal football into new era.`\
-https://nytimes.com/athletic/6247992/2025/04/01/stanford-football-andrew-luck-frank-reich/
-
-**Elon Musk Sued Over Pennsylvania Signature Payments**\
-`A canvasser for the billionaire’s America PAC says he’s owed $20,000 for signatures he collected on a petition that was part of Mr. Musk’s effort to motivate Trump voters.`\
-https://nytimes.com/2025/04/01/us/politics/elon-musk-pennsylvania-petition-lawsuit.html
 

@@ -1,3 +1,7 @@
+**Arsenal's Gabriel, Timber to be assessed after sustaining injuries**\
+`Arsenal already have defenders Riccardo Calafiori, Takehiro Tomiyasu and Ben White out injured.`\
+https://nytimes.com/athletic/6247794/2025/04/01/gabriel-timber-arsenal-injury/
+
 **Fired Federal Workers Ask Senators to Stand Up for Them**\
 `Former federal employees went to a Capitol Hill basement to find the lawmakers. Democratic senators said that they would keep fighting as hard as they could. Most Republicans ignored the workers.`\
 https://nytimes.com/2025/04/01/us/politics/federal-worker-protests.html
@@ -18,8 +22,8 @@ https://nytimes.com/2025/04/01/us/child-killed-lake-tahoe-diamond-peak-ski-resor
 `Nine Republicans joined Democrats to force a vote to allow members who had new children to vote by proxy.`\
 https://nytimes.com/interactive/2025/04/01/us/politics/house-vote-johnson-proxy-vote-parents.html
 
-**Garrett Crochet's extension could just be the start of the Red Sox locking up their core**\
-`Crochet is now under team control through 2031. The Red Sox have several other young players who could also be in-line for new deals.`\
+**Garrett Crochet's extension could just be the start of Red Sox locking up their core**\
+`Crochet is now under team control through 2031. The Red Sox have several other young players who could also be in line for new deals.`\
 https://nytimes.com/athletic/6247899/2025/04/01/garrett-crochet-red-sox-future-extensions/
 
 **49ers' Kyle Shanahan details positions of need, is eager for more competition**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6247992/2025/04/01/stanford-football-andrew-luck-fr
 **Elon Musk Sued Over Pennsylvania Signature Payments**\
 `A canvasser for the billionaire’s America PAC says he’s owed $20,000 for signatures he collected on a petition that was part of Mr. Musk’s effort to motivate Trump voters.`\
 https://nytimes.com/2025/04/01/us/politics/elon-musk-pennsylvania-petition-lawsuit.html
-
-**G.O.P. Leaders Can’t Do Even Easy Pro-Family Policy in Congress**\
-`What on earth are Republican leaders thinking in trying to stop a Republican proposal to make it easier for new parents to vote in Congress?`\
-https://nytimes.com/2025/04/01/opinion/anna-paulina-luna-mike-johnson-parental-voting.html
 

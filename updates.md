@@ -1,3 +1,11 @@
+**Arsenal's Gabriel, Timber to be assessed after sustaining injuries**\
+`Arsenal already have defenders Riccardo Calafiori, Takehiro Tomiyasu and Ben White out injured.`\
+https://nytimes.com/athletic/6247794/2025/04/01/gabriel-timber-arsenal-injury/
+
+**Garrett Crochet's extension could just be the start of Red Sox locking up their core**\
+`Crochet is now under team control through 2031. The Red Sox have several other young players who could also be in line for new deals.`\
+https://nytimes.com/athletic/6247899/2025/04/01/garrett-crochet-red-sox-future-extensions/
+
 **Fired Federal Workers Ask Senators to Stand Up for Them**\
 `Former federal employees went to a Capitol Hill basement to find the lawmakers. Democratic senators said that they would keep fighting as hard as they could. Most Republicans ignored the workers.`\
 https://nytimes.com/2025/04/01/us/politics/federal-worker-protests.html
