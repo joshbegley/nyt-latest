@@ -1,3 +1,7 @@
+**Texas tops TCU to advance to first Final Four since 2003**\
+`TCU had a historic year as well, as the Horned Frogs had never made a Sweet 16 before.`\
+https://nytimes.com/athletic/6245747/2025/03/31/texas-tcu-elite-eight-womens-basketball/
+
 **Torpedo effect: Victus, Marucci and Chandler all begin selling the uniquely shaped bats**\
 `The three retailers have made their versions of the torpedo bat available to consumers.`\
 https://nytimes.com/athletic/6245704/2025/03/31/torpedo-bats-sale-victus-marucci-chandler-yankees/

@@ -1,3 +1,7 @@
+**Texas tops TCU to advance to first Final Four since 2003**\
+`TCU had a historic year as well, as the Horned Frogs had never made a Sweet 16 before.`\
+https://nytimes.com/athletic/6245747/2025/03/31/texas-tcu-elite-eight-womens-basketball/
+
 **Torpedo effect: Victus, Marucci and Chandler all begin selling the uniquely shaped bats**\
 `The three retailers have made their versions of the torpedo bat available to consumers.`\
 https://nytimes.com/athletic/6245704/2025/03/31/torpedo-bats-sale-victus-marucci-chandler-yankees/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/31/nyregion/columbia-president-republican-criticism.
 **Braves' Reynaldo López on IL with right shoulder inflammation**\
 `Despite missing time for a forearm strain and shoulder inflammation after the All-Star break last year, López finished last season healthy.`\
 https://nytimes.com/athletic/6245664/2025/03/31/braves-reynaldo-lopez-shoulder-injury/
-
-**U.S. Tied Migrants to Gang Based Largely on Clothes or Tattoos, Papers Show**\
-`The court papers suggest that the administration has set a low bar for seeking the removal of the Venezuelan migrants, whom officials have described as belonging to the street gang, Tren de Aragua.`\
-https://nytimes.com/2025/03/31/us/politics/us-deportations-tren-de-aragua-deportation-guidance.html
 
