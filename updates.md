@@ -1,4 +1,8 @@
 **Read the Alabama Judge’s Ruling**\
+`A federal judge ruled that Alabama could not prosecute doctors and reproductive health organizations for helping patients travel out of the state to obtain abortions.`\
+https://nytimes.com/interactive/2025/03/31/us/alabama-abortion-prosecution.html
+
+**Read the Alabama Judge’s Ruling**\
 `A federal judge ruled that Alabama cannot prosecute doctors and reproductive health organizations for helping patients travel out of the state to obtain abortions.`\
 https://nytimes.com/interactive/2025/03/31/us/alabama-abortion-prosecution.html
 

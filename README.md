@@ -4,7 +4,7 @@ https://nytimes.com/interactive/2025/03/31/us/alabama-abortion-prosecution.html
 
 **Notre Dame's Olivia Miles entering transfer portal, forgoing draft**\
 `The senior averaged a career-best and team second-best 15.4 points this season. Her 5.8 assists per game were a team-high.`\
-https://nytimes.com/athletic/6245915/2025/03/31/notre-dames-olivia-miles-transfer-portal/
+https://nytimes.com/athletic/6245915/2025/03/31/notre-dame-olivia-miles-transfer-portal/
 
 **Torpedo bats are making a lot of noise — but they've been quietly in MLB for a few years**\
 `Reds star Elly De La Cruz is the latest convert, hitting two home runs and knocking in seven runs in his first game with the unique bat.`\
