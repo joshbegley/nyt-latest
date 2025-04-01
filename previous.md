@@ -1,3 +1,15 @@
+**What we heard about the Vikings at the NFL's annual league meetings**\
+`From the contract negotiations with Kwesi Adofo-Mensah to the team's plans in the draft, we cover everything we learned about the Vikings.`\
+https://nytimes.com/athletic/6247182/2025/04/01/vikings-kevin-oconnell-nfl-league-meetings/
+
+**A TikTok Trend Tests Toddlers — One Cookie at a Time**\
+`Do these kids know that sharing is caring? The viral challenge seeks to find out.`\
+https://nytimes.com/2025/04/01/well/family/tiktok-cookie-challenge-kids.html
+
+**Immigration Officials Detain Former Taliban Ambassador to Spain**\
+`Mohammad Rahim Wahidi, a lawful permanent resident of the United States, was detained for more than 30 hours upon returning to the country over the weekend.`\
+https://nytimes.com/2025/04/01/us/politics/taliban-ambassador-detained.html
+
 **Seahawks' focus remains on Super Bowl, despite shake-up: 'We can definitely win with Sam'**\
 `Seahawks coach Mike Macdonald also discussed the team's draft strategy and why he's confident Riq Woolen will recapture his 2022 magic.`\
 https://nytimes.com/athletic/6247510/2025/04/01/seahawks-sam-darnold-mike-macdonald-owners-meetings/
@@ -14,7 +26,7 @@ https://nytimes.com/2025/04/01/us/israel-gaza-student-protests-canary-mission.ht
 `The message “Canada is not for sale” drew attention because of a rule against political slogans at Rogers Centre in Toronto. The team later apologized.`\
 https://nytimes.com/2025/04/01/sports/baseball/toronto-blue-jays-fan-ejected-hat.html
 
-**Maryland hires Buzz Williams as next men's basketball coach**\
+**Maryland hires Buzz Williams as men's hoops coach: What he brings to Terps**\
 `Williams leaves Texas A&M and will replace Kevin Willard, who left the Terps to become the head coach at Villanova.`\
 https://nytimes.com/athletic/6242347/2025/04/01/maryland-hires-buzz-williams-as-next-mens-basketball-coach/
 
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/01/us/politics/house-proxy-voting-parents-mike-johns
 **Brighton confirm signing of Sunderland's Tommy Watson**\
 `The Premier League side were in talks over a move for Watson in January but a transfer did not happen before the deadline.`\
 https://nytimes.com/athletic/6247486/2025/04/01/tommy-watson-brighton-sunderland/
-
-**Venezuelan Migrants Ask Supreme Court to Block Deportations**\
-`Lawyers for Venezuelan migrants asked the justices to keep in place a pause on President Trump’s deportation plan, calling it “completely at odds” with limited wartime authority given by Congress.`\
-https://nytimes.com/2025/04/01/us/politics/supreme-court-venezuelan-deportations.html
-
-**Richard Sherman shares photos, video of armed suspects breaking into his home**\
-`Timestamps place the armed robbery just before midnight on Sunday, Sherman's 37th birthday.`\
-https://nytimes.com/athletic/6247231/2025/04/01/nfl-richard-sherman-robbery-home-armed/
-
-**Auto Sales Surged in Anticipation of Trump’s Tariffs**\
-`Sales of cars picked up recently partly as buyers rushed to lock in deals before President Trump’s 25 percent tariffs on cars and auto parts go into effect.`\
-https://nytimes.com/2025/04/01/business/auto-sales-trump-tariffs.html
 

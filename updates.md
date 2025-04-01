@@ -1,3 +1,19 @@
+**What we heard about the Vikings at the NFL's annual league meetings**\
+`From the contract negotiations with Kwesi Adofo-Mensah to the team's plans in the draft, we cover everything we learned about the Vikings.`\
+https://nytimes.com/athletic/6247182/2025/04/01/vikings-kevin-oconnell-nfl-league-meetings/
+
+**A TikTok Trend Tests Toddlers — One Cookie at a Time**\
+`Do these kids know that sharing is caring? The viral challenge seeks to find out.`\
+https://nytimes.com/2025/04/01/well/family/tiktok-cookie-challenge-kids.html
+
+**Immigration Officials Detain Former Taliban Ambassador to Spain**\
+`Mohammad Rahim Wahidi, a lawful permanent resident of the United States, was detained for more than 30 hours upon returning to the country over the weekend.`\
+https://nytimes.com/2025/04/01/us/politics/taliban-ambassador-detained.html
+
+**Maryland hires Buzz Williams as men's hoops coach: What he brings to Terps**\
+`Williams leaves Texas A&M and will replace Kevin Willard, who left the Terps to become the head coach at Villanova.`\
+https://nytimes.com/athletic/6242347/2025/04/01/maryland-hires-buzz-williams-as-next-mens-basketball-coach/
+
 **Seahawks' focus remains on Super Bowl, despite shake-up: 'We can definitely win with Sam'**\
 `Seahawks coach Mike Macdonald also discussed the team's draft strategy and why he's confident Riq Woolen will recapture his 2022 magic.`\
 https://nytimes.com/athletic/6247510/2025/04/01/seahawks-sam-darnold-mike-macdonald-owners-meetings/
