@@ -1,3 +1,19 @@
+**NFL announces use of virtual measurement technology for 2025 season**\
+`Initial ball placement will still remain in the hands of on-field referees, but six 8K cameras will now confirm the spot of the placement.`\
+https://nytimes.com/athletic/6247338/2025/04/01/nfl-announces-virtual-first-down-measurement-technology/
+
+**Iceland Residents Evacuate Town Threatened by Volcano Eruption**\
+`A volcanic eruption in southwestern Iceland on Tuesday prompted an emergency evacuation from the town of Grindavik, which has been endangered by eight of the 11 eruptions on the Reykjanes Peninsula since 2021.`\
+https://nytimes.com/video/world/europe/100000010085366/iceland-volcano-eruption-evacuation.html
+
+**Panthers takeaways: Can Xavier Legette be that top-tier WR? Are they considering OT at 8?**\
+`Dave Canales says the work they did in free agency allows Carolina to draft the best player available, even if it's an offensive playmaker.`\
+https://nytimes.com/athletic/6247141/2025/04/01/panthers-xavier-legette-dave-canales-nfl-draft/
+
+**Air Traffic Controller Arrested in Incident at Reagan National Tower**\
+`The arrest of an F.A.A. employee on assault and battery charges comes as flight operations at the airport have been under scrutiny since a passenger jet and an Army helicopter collided in January.`\
+https://nytimes.com/2025/04/01/us/politics/air-traffic-controller-arrest-reagan-airport.html
+
 **Rubio Orders U.S. Diplomats to Scour Student Visa Applicants’ Social Media**\
 `The order comes as President Trump expands deportation efforts, including of students who have spoken out in support of Palestinians during Israel’s war in Gaza.`\
 https://nytimes.com/2025/04/01/us/politics/student-visas-social-media.html
@@ -21,20 +37,4 @@ https://nytimes.com/interactive/2025/04/01/us/elections/results-wisconsin.html
 **Wisconsin Superintendent of Public Instruction Election Results**\
 `Get live results and maps from the 2025 Wisconsin general election.`\
 https://nytimes.com/interactive/2025/04/01/us/elections/results-wisconsin-superintendent-of-public-instruction.html
-
-**Wisconsin Question 1 Election Results**\
-`Get live results and maps from the 2025 Wisconsin general election.`\
-https://nytimes.com/interactive/2025/04/01/us/elections/results-wisconsin-question.html
-
-**Florida First District Special Election Results**\
-`Get live results and maps from the 2025 Florida special election.`\
-https://nytimes.com/interactive/2025/04/01/us/elections/results-florida-us-house-1-special.html
-
-**Wisconsin Supreme Court Election Results**\
-`Get live results and maps from the 2025 Wisconsin general election.`\
-https://nytimes.com/interactive/2025/04/01/us/elections/results-wisconsin-supreme-court.html
-
-**Florida Sixth District Special Election Results**\
-`Get live results and maps from the 2025 Florida special election.`\
-https://nytimes.com/interactive/2025/04/01/us/elections/results-florida-us-house-6-special.html
 
