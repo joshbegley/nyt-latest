@@ -1,3 +1,7 @@
+**Jon Stewart: Trump Is ‘Trying to Order Off-Menu From the Constitution’**\
+`President Trump says there are “methods” by which he could get a third term. “I think you tried one a few years ago,” the “Daily Show” host quipped.`\
+https://nytimes.com/2025/04/01/arts/television/jon-stewart-trump-third-term.html
+
 **Princeton Senior, Accused of Assault During Protest, Braces for Verdict**\
 `A judge is expected to decide Tuesday whether David Piegaro is guilty of assaulting a police officer while recording pro-Palestinian campus demonstrations last year.`\
 https://nytimes.com/2025/04/01/nyregion/gaza-protests-princeton-student-arrested.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/01/fashion/watches-piaget-trapezoid-sixtie.html
 **Dodgers' Tyler Glasnow, who remains dominant, hopes his offseason changes keep him that way**\
 `In his first action since Aug. 11, Glasnow offered a reminder of his high-end talent. The Dodgers improve to 6-0.`\
 https://nytimes.com/athletic/6246157/2025/04/01/tyler-glasnow-first-start-dodgers/
-
-**The Thunder are finalizing one of the greatest regular seasons in NBA history**\
-`The Thunder are in impressive company, however the team knows its historic season won't matter much if they falter in the postseason.`\
-https://nytimes.com/athletic/6241300/2025/04/01/thunder-dominant-nba-season/
 
