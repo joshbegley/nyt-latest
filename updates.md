@@ -1,3 +1,7 @@
+**Dodgers' Tyler Glasnow, who remains dominant, hopes his offseason changes keep him that way**\
+`In his first action since Aug. 11, Glasnow offered a reminder of his high-end talent. The Dodgers improve to 6-0.`\
+https://nytimes.com/athletic/6246157/2025/04/01/tyler-glasnow-first-start-dodgers/
+
 **The Thunder are finalizing one of the greatest regular seasons in NBA history**\
 `The Thunder are in impressive company, however the team knows its historic season won't matter much if they falter in the postseason.`\
 https://nytimes.com/athletic/6241300/2025/04/01/thunder-dominant-nba-season/

@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6246157/2025/04/01/tyler-glasnow-first-start-dodger
 https://nytimes.com/athletic/6241300/2025/04/01/thunder-dominant-nba-season/
 
 **Kyle Hart, who'd only pitched in the emptiness of 2020, earns win for Padres in MLB return**\
-`SAN DIEGO — Kyle Hart took the Petco Park mound Monday in rare company.`\
+`The Padres’ new No. 5 starter held the Cleveland Guardians to two runs, limiting the damage to a pair of solo homers.`\
 https://nytimes.com/athletic/6246096/2025/04/01/kyle-hart-mlb-padres-pandemic/
 
 **Word of the Day: profusely**\
