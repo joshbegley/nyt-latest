@@ -1,3 +1,7 @@
+**Goodell talks pro flag football, 'tush push' and more at league meeting**\
+`With an eye on expanding the NFL brand, the commissioner spent a good portion of the conversation on flag football and women's sports.`\
+https://nytimes.com/athletic/6247866/2025/04/01/roger-goodell-league-meeting-flag-football/
+
 **Calais Campbell, 38, returning to Cardinals for his 18th NFL season**\
 `Campbell, the NFL's oldest non-quarterback, spent his first nine seasons with the Arizona Cardinals after being drafted by them in 2008.`\
 https://nytimes.com/athletic/6248055/2025/04/01/calais-campbell-free-agency-signing-cardinals-return/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6247794/2025/04/01/gabriel-timber-arsenal-injury/
 **Fired Federal Workers Ask Senators to Stand Up for Them**\
 `Former federal employees went to a Capitol Hill basement to find the lawmakers. Democratic senators said that they would keep fighting as hard as they could. Most Republicans ignored the workers.`\
 https://nytimes.com/2025/04/01/us/politics/federal-worker-protests.html
-
-**Musk Again Misleads on Social Security Fraud**\
-`The world’s richest man misstated a statistic from the Social Security Administration to once again overstate fraud in the program.`\
-https://nytimes.com/2025/04/01/us/politics/elon-musk-social-security-fraud.html
 
