@@ -1,3 +1,23 @@
+**Pete Alonso tunes up for Mets home opener with a grand slam in win over Marlins**\
+`After re-signing with New York, Alonso worked on his swing over the winter. He “actually learned how to hit,” coach Eric Chavez said.`\
+https://nytimes.com/athletic/6245968/2025/04/01/pete-alonso-grand-slam-mets-win/
+
+**Statement reveals Levy's mood has changed, but Spurs' summer strategy will remain the same**\
+`The key message ahead of summer is to double down but try to do it better`\
+https://nytimes.com/athletic/6236458/2025/04/01/tottenham-financial-statement-levy/
+
+**Inside Newcastle Q&A: Isak contract rumour, Mitchell's target strategy and summer departures**\
+`Chris Waugh answers questions about the stadium plans, post-celebration hangover and Callum Wilson's future`\
+https://nytimes.com/athletic/6243717/2025/04/01/newcastle-qa-isak-mitchell-contracts-stadium/
+
+**Manchester City's 'easy' nine-game pathway back to the Champions League**\
+`The statistics show that City have the Premier League's most forgiving run-in this season. In a competitive division, they may well need it`\
+https://nytimes.com/athletic/6243907/2025/04/01/manchester-city-champions-league-run-in/
+
+**Skubala interview: 'I didn't realise how big Leeds was - when I left, I definitely knew'**\
+`If not for one freak goal at Goodison Park, Michael Skubala’s tenure as Leeds' interim head coach may have lasted more than three games`\
+https://nytimes.com/athletic/6239273/2025/04/01/leeds-michael-skubala-interview/
+
 **Explained: Arsenal's Gyokeres interest & impact on United, Liverpool and Chelsea's plans**\
 `Arsenal have a growing interest in Viktor Gyokeres — but that must have a knock-on effect on the rest of the market`\
 https://nytimes.com/athletic/6244877/2025/04/01/viktor-gyokeres-arsenal-transfer-manchester-united-liverpool-chelsea-latest/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5998484/2025/04/01/saka-the-leader-is-back/
 **Full Time: USWNT’s gold medal rematch**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6246024/2025/04/01/uswnt-brazil-friendly-preview-full-time/
-
-**The Spanish club Aston Villa manager Unai Emery and his family saved from ruin**\
-`The Emery family is rooted in a Basque club that has fallen on hard times - The Athletic has been to see their rebuilding work `\
-https://nytimes.com/athletic/6241947/2025/04/01/aston-villa-unai-emery-real-union/
-
-**Premier League injury update: Every club's situation after the international break**\
-`Alisson, Haaland and Gordon were among the casualties in March - here's who was injured and who's back after the break`\
-https://nytimes.com/athletic/6243993/2025/04/01/premier-league-injury-update-after-international-break/
-
-**The Premier League returns: Our writers' verdicts on the end-of-season run-in**\
-`Which teams have the most so prove? How can we predict the race for Europe? And who is the unsung player of the season?`\
-https://nytimes.com/athletic/6243918/2025/04/01/premier-league-top-five-title-relegation/
-
-**UConn women clear favorite to win national title entering Final Four**\
-`Even in a Final Four with three No. 1 seeds, No. 2 UConn is the clear favorite to win the national title now that the Final Four is set.`\
-https://nytimes.com/athletic/6245965/2025/04/01/womens-national-title-odds-uconn-texas-ucla-south-carolina/
-
-**What to Watch in Today’s Big Elections in Wisconsin and Florida**\
-`Voters in a crucial court race and two House special elections will provide hints of how the country views President Trump and Elon Musk, months after they took power.`\
-https://nytimes.com/2025/04/01/us/politics/wisconsin-florida-elections-musk-trump.html
 
