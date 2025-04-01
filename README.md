@@ -1,3 +1,15 @@
+**The Briefing: Arsenal 2 Fulham 1 - Saka's dream return but Gabriel injury clouds win**\
+`The major talking points analysed from Tuesday's Premier League clash at the Emirates`\
+https://nytimes.com/athletic/6243964/2025/04/01/arsenal-fulham-result-analysis/
+
+**Betty Webb, Who Helped Bletchley Park Code Breakers, Dies at 101**\
+`Sworn to secrecy about the goings-on at Britain’s storied World War II decryption operation, she only later recounted the efforts to crack German signals.`\
+https://nytimes.com/2025/04/01/world/europe/betty-webb-obituary.html
+
+**Yankees’ Giancarlo Stanton sidesteps whether torpedo bats caused injury**\
+`Stanton said that he has often tinkered with his bats throughout the years.`\
+https://nytimes.com/athletic/6247857/2025/04/01/yankees-giancarlo-stanton-torpedo-bat-tennis-elbow/
+
 **This Tree Wants to Be Struck by Lightning**\
 `Before a discovery in a Panamanian rainforest, “it seemed impossible that lightning could be a good thing for the trees,” a scientist said.`\
 https://nytimes.com/2025/04/01/science/trees-lightning-rainforest.html
@@ -21,16 +33,4 @@ https://nytimes.com/2025/04/01/style/april-fools-day-posts-social-media.html
 **5 Takeaways From the Hearing for Trump’s Joint Chiefs Chairman Pick**\
 `Democrats seemed to view Lt. Gen. Dan Caine as perhaps the best possible option, under the circumstances. Republicans embraced him.`\
 https://nytimes.com/2025/04/01/us/politics/dan-caine-chairman-hearing.html
-
-**Wisconsin Voters Have a Huge Opportunity to Brush Back Trump and Musk**\
-`Are the mass of voters really worked up about this administration’s actions? Tuesday night may provide some answers.`\
-https://nytimes.com/2025/04/01/opinion/wisconsin-special-election-elon-musk.html
-
-**How to watch 76ers vs. Knicks as OG Anunoby, Mikal Bridges ascend for New York**\
-`The Knicks are massive favorites against the 76ers Tuesday night at the Garden. Mikal Bridges and OG Anunoby are heating up for New York.`\
-https://nytimes.com/athletic/6247464/2025/04/01/76ers-knicks-nba-how-to-watch/
-
-**Messi's bodyguard and his dwindling presence at Inter Miami games**\
-`Yassine Cheuko has had less of a presence on Inter Miami sidelines this season, and he claims to know why.`\
-https://nytimes.com/athletic/6247418/2025/04/01/messi-bodyguard-yassine-cheuko-mls-inter-miami-concacaf-access/
 

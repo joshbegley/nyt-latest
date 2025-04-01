@@ -1,3 +1,11 @@
+**This Tree Wants to Be Struck by Lightning**\
+`Before a discovery in a Panamanian rainforest, “it seemed impossible that lightning could be a good thing for the trees,” a scientist said.`\
+https://nytimes.com/2025/04/01/science/trees-lightning-rainforest.html
+
+**Free Gaza From Its Own Tyrants First**\
+`Anti-Hamas protests in Gaza are the first necessary steps on the road to real peace.`\
+https://nytimes.com/2025/04/01/opinion/hamas-gaza-palestinian-protests.html
+
 **Bongino Tells F.B.I. He Is Not Partisan**\
 `The F.B.I.’s No. 2 official said he would rise above partisanship, an admission that reflected skepticism among former and current agents about whether he would maintain the bureau’s independence.`\
 https://nytimes.com/2025/04/01/us/politics/dan-bongino-fbi-partisan.html
