@@ -1,3 +1,7 @@
+**Randy Fine, a State Senator, Wins a House Seat in Florida, Adding to the G.O.P. Majority.**\
+`Randy Fine, a state senator, won a special election to replace Michael Waltz of Florida, who is now Trump’s national security adviser.`\
+https://nytimes.com/2025/04/01/us/politics/florida-special-election-winner.html
+
 **If New York Puts a Casino in the Bronx, Trump Will Get $115 Million**\
 `Although the Trump Organization sold a golf course in Ferry Point Park in the Bronx to Bally’s, it will still receive a windfall if the site is chosen for a casino.`\
 https://nytimes.com/2025/04/01/nyregion/trump-casino-ballys-bronx.html

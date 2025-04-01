@@ -1,3 +1,7 @@
+**Alex Ovechkin 4 goals from breaking Wayne Gretzky's record with No. 891**\
+`The Washington Capitals superstar continues to close in on Gretzky’s longstanding record of 894 career NHL goals.`\
+https://nytimes.com/athletic/6245458/2025/04/01/ovechkin-goals-record-gretzky-891/
+
 **Randy Fine, a State Senator, Wins a House Seat in Florida, Adding to the G.O.P. Majority.**\
 `Randy Fine, a state senator, won a special election to replace Michael Waltz of Florida, who is now Trump’s national security adviser.`\
 https://nytimes.com/2025/04/01/us/politics/florida-special-election-winner.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/01/us/politics/trump-buyouts-us-transportation-depar
 **He Got Clemency From Trump. Now He’s Facing Charges of Injuring a Child.**\
 `Jonathan Braun, who has had a string of legal issues since President Trump commuted his drug sentence four years ago, was arrested after allegedly punching an acquaintance and shoving a 3-year-old.`\
 https://nytimes.com/2025/04/01/us/politics/jonathan-braun-trump-pardons-arrests.html
-
-**Goodell talks pro flag football, 'tush push' and more at league meeting**\
-`With an eye on expanding the NFL brand, the commissioner spent a good portion of the conversation on flag football and women's sports.`\
-https://nytimes.com/athletic/6247866/2025/04/01/roger-goodell-league-meeting-flag-football/
 
