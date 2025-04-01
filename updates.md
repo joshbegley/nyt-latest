@@ -1,3 +1,7 @@
+**What we heard from Commanders' Adam Peters, Dan Quinn at annual league meeting**\
+`Washington's decision-makers answered questions about the team's free-agency moves, options in the upcoming draft, Jayden Daniels and more. `\
+https://nytimes.com/athletic/6247153/2025/04/01/commanders-adam-peters-dan-quinn-nfl-meeting/
+
 **What we heard about the Vikings at the NFL's annual league meetings**\
 `From the contract negotiations with Kwesi Adofo-Mensah to the team's plans in the draft, we cover everything we learned about the Vikings.`\
 https://nytimes.com/athletic/6247182/2025/04/01/vikings-kevin-oconnell-nfl-league-meetings/

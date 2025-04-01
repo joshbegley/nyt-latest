@@ -1,6 +1,14 @@
-**What we heard about the Vikings at the NFL's annual league meetings**\
+**Giants' Brian Daboll talks play calling, what he likes about Russell Wilson and more**\
+`Daboll watched all of Wilson's tape dating back to the QB's rookie season of 2012 and came away impressed. `\
+https://nytimes.com/athletic/6247194/2025/04/01/giants-russell-wilson-travis-hunter-brian-daboll-nfl-draft/
+
+**Why Al Gore Is Shifting His Climate Activism Abroad**\
+`Given the Trump administration’s recent moves relating to climate, the former vice president is looking to the developing world for the next generation of climate activism.`\
+https://nytimes.com/2025/04/01/climate/why-al-gore-is-shifting-his-climate-activism-abroad.html
+
+**What we heard about the Vikings at the NFL's annual league meeting**\
 `From the contract negotiations with Kwesi Adofo-Mensah to the team's plans in the draft, we cover everything we learned about the Vikings.`\
-https://nytimes.com/athletic/6247182/2025/04/01/vikings-kevin-oconnell-nfl-league-meetings/
+https://nytimes.com/athletic/6247182/2025/04/01/vikings-kevin-oconnell-nfl-league-meeting/
 
 **What we heard from Commanders' Adam Peters, Dan Quinn at annual league meeting**\
 `Washington's decision-makers answered questions about the team's free-agency moves, options in the upcoming draft, Jayden Daniels and more. `\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/01/us/israel-gaza-student-protests-canary-mission.ht
 **He Wore a ‘Patriotic’ Hat to a Blue Jays Game. It Got Him Ejected.**\
 `The message “Canada is not for sale” drew attention because of a rule against political slogans at Rogers Centre in Toronto. The team later apologized.`\
 https://nytimes.com/2025/04/01/sports/baseball/toronto-blue-jays-fan-ejected-hat.html
-
-**Maryland hires Buzz Williams as men's hoops coach: What he brings to Terps**\
-`Williams leaves Texas A&M and will replace Kevin Willard, who left the Terps to become the head coach at Villanova.`\
-https://nytimes.com/athletic/6242347/2025/04/01/maryland-hires-buzz-williams-as-next-mens-basketball-coach/
-
-**Johnson Fails to Kill Bipartisan Measure to Allow Proxy Voting for New Parents**\
-`The speaker tried to use an unprecedented parliamentary maneuver to deny a bipartisan majority the chance to hold a vote on their proposal to allow new parents to vote remotely in the House.`\
-https://nytimes.com/2025/04/01/us/politics/house-proxy-voting-parents-mike-johnson.html
 

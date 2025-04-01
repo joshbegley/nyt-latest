@@ -2,6 +2,10 @@
 `From the contract negotiations with Kwesi Adofo-Mensah to the team's plans in the draft, we cover everything we learned about the Vikings.`\
 https://nytimes.com/athletic/6247182/2025/04/01/vikings-kevin-oconnell-nfl-league-meetings/
 
+**What we heard from Commanders' Adam Peters, Dan Quinn at annual league meeting**\
+`Washington's decision-makers answered questions about the team's free-agency moves, options in the upcoming draft, Jayden Daniels and more. `\
+https://nytimes.com/athletic/6247153/2025/04/01/commanders-adam-peters-dan-quinn-nfl-meeting/
+
 **A TikTok Trend Tests Toddlers — One Cookie at a Time**\
 `Do these kids know that sharing is caring? The viral challenge seeks to find out.`\
 https://nytimes.com/2025/04/01/well/family/tiktok-cookie-challenge-kids.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6242347/2025/04/01/maryland-hires-buzz-williams-as-
 **Johnson Fails to Kill Bipartisan Measure to Allow Proxy Voting for New Parents**\
 `The speaker tried to use an unprecedented parliamentary maneuver to deny a bipartisan majority the chance to hold a vote on their proposal to allow new parents to vote remotely in the House.`\
 https://nytimes.com/2025/04/01/us/politics/house-proxy-voting-parents-mike-johnson.html
-
-**Brighton confirm signing of Sunderland's Tommy Watson**\
-`The Premier League side were in talks over a move for Watson in January but a transfer did not happen before the deadline.`\
-https://nytimes.com/athletic/6247486/2025/04/01/tommy-watson-brighton-sunderland/
 
