@@ -1,3 +1,19 @@
+**Yankees sign relief pitcher Adam Ottavino to major-league contract**\
+`Ottavino, 39, played for the Yankees from 2019-20 and is likely a short-term option with Devin Williams on the paternity list.`\
+https://nytimes.com/athletic/6247096/2025/04/01/yankees-adam-ottavino-contract/
+
+**Postecoglou says Tottenham got start of season 'wrong'**\
+`"We probably underestimated the challenges of Europe this year with your two extra games and having a deep cup run," the Australian said.`\
+https://nytimes.com/athletic/6247129/2025/04/01/ange-postecoglou-tottenham-schedule/
+
+**Prosecutors to Seek Death Penalty for Mangione, Bondi Says**\
+`The attorney general said the decision to seek the death penalty for Luigi Mangione, who is accused of murdering an insurance executive, was in keeping with an executive order by President Trump.`\
+https://nytimes.com/2025/04/01/us/politics/luigi-mangione-death-penalty.html
+
+**Kane: Winning a trophy would 'stop the noise,' not thinking about Bayern exit**\
+`Despite being one of the world’s most prolific goalscorers, the 31-year-old is yet to lift any silverware in his 15-year career.`\
+https://nytimes.com/athletic/6247048/2025/04/01/harry-kane-bayern-munich-future-tottenham-trophy/
+
 **Why Italy Made It Harder to Become Italian**\
 `The government says it tightened citizenship rules because of a deluge of applications from the descendants of emigrants who only coveted an Italian passport.`\
 https://nytimes.com/2025/04/01/world/europe/italy-citizenship-rules.html

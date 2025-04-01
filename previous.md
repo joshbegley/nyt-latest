@@ -1,3 +1,19 @@
+**Yankees sign relief pitcher Adam Ottavino to major-league contract**\
+`Ottavino, 39, played for the Yankees from 2019-20 and is likely a short-term option with Devin Williams on the paternity list.`\
+https://nytimes.com/athletic/6247096/2025/04/01/yankees-adam-ottavino-contract/
+
+**Postecoglou says Tottenham got start of season 'wrong'**\
+`"We probably underestimated the challenges of Europe this year with your two extra games and having a deep cup run," the Australian said.`\
+https://nytimes.com/athletic/6247129/2025/04/01/ange-postecoglou-tottenham-schedule/
+
+**Prosecutors to Seek Death Penalty for Mangione, Bondi Says**\
+`The attorney general said the decision to seek the death penalty for Luigi Mangione, who is accused of murdering an insurance executive, was in keeping with an executive order by President Trump.`\
+https://nytimes.com/2025/04/01/us/politics/luigi-mangione-death-penalty.html
+
+**Kane: Winning a trophy would 'stop the noise,' not thinking about Bayern exit**\
+`Despite being one of the world’s most prolific goalscorers, the 31-year-old is yet to lift any silverware in his 15-year career.`\
+https://nytimes.com/athletic/6247048/2025/04/01/harry-kane-bayern-munich-future-tottenham-trophy/
+
 **Why Italy Made It Harder to Become Italian**\
 `The government says it tightened citizenship rules because of a deluge of applications from the descendants of emigrants who only coveted an Italian passport.`\
 https://nytimes.com/2025/04/01/world/europe/italy-citizenship-rules.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6198041/2025/04/01/womens-march-madness-projections
 **The Windup: Already panic time for the Braves?**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6246173/2025/04/01/atlanta-braves-record-the-windup/
-
-**Shake-Up in China’s Auto Sector: Two Giants Are Discussing a Merger**\
-`The state-owned automakers, longtime joint venture partners of Ford and Nissan, might combine operations as Beijing consolidates its sprawling car sector.`\
-https://nytimes.com/2025/04/01/business/dongfeng-changan-china-auto-merger.html
-
-**Who will be the Packers' left tackle? Matt LaFleur discusses that competition and more**\
-`Rasheed Walker was a sturdy blindside protector, but 2024 first-rounder Jordan Morgan will compete for the job in 2025.`\
-https://nytimes.com/athletic/6246910/2025/04/01/matt-lafleur-packers-nfl-owners-meetings/
-
-**Ter Stegen: Feeling 'physically better than ever' on return to training**\
-`Ter Stegen underwent surgery after suffering “a complete rupture in the patella tendon” against Villarreal in September.`\
-https://nytimes.com/athletic/6244658/2025/04/01/marc-andre-ter-stegen-barcelona-return/
-
-**How Ben Johnson plans to change Caleb Williams' game: Bears takeaways**\
-`Johnson offered insight on several players, including Braxton Jones, Tyrique Stevenson and Cole Kmet, at the league meetings in Florida.`\
-https://nytimes.com/athletic/6246930/2025/04/01/bears-ben-johnson-caleb-williams-eric-bieniemy/
 
