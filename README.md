@@ -1,3 +1,11 @@
+**7-Year-Old Girl Is Killed by Falling Boulder at Lake Tahoe Ski Resort**\
+`The child was at the Diamond Peak Ski Resort, which said in a statement that she had not been skiing at the time it happened.`\
+https://nytimes.com/2025/04/01/us/child-killed-lake-tahoe-diamond-peak-ski-resort.html
+
+**See Which House Members Rejected Johnson’s Effort Against Proxy Voting**\
+`Nine Republicans joined Democrats to force a vote to allow members who had new children to vote by proxy.`\
+https://nytimes.com/interactive/2025/04/01/us/politics/house-vote-johnson-proxy-vote-parents.html
+
 **Garrett Crochet's extension could just be the start of the Red Sox locking up their core**\
 `Crochet is now under team control through 2031. The Red Sox have several other young players who could also be in-line for new deals.`\
 https://nytimes.com/athletic/6247899/2025/04/01/garrett-crochet-red-sox-future-extensions/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/01/briefing/trump-elections-israel-un-gaza-banglades
 **Great Spaces**\
 ``\
 https://nytimes.com/series/great-spaces
-
-**Gabe Perreault arrival to Rangers brings excitement, expectations for top prospect**\
-`“Unfortunate his (college) season is over,” coach Peter Laviolette said. “But fortunate for us, he’s now a member of the New York Rangers.”`\
-https://nytimes.com/athletic/6247787/2025/04/01/gabe-perreault-rangers-prospect-ncaa/
-
-**A Lavish Party Inside the Frick’s $220 Million Renovation**\
-`A joyous reunion for art lovers at the Frick Collection’s gala offered a private viewing of iconic works from the 14th through the 19th centuries.`\
-https://nytimes.com/2025/04/01/style/frick-collection-gala.html
 
