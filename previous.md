@@ -1,3 +1,7 @@
+**Netanyahu Drops Nominee for Spy Chief After Backlash**\
+`Eli Sharvit was a controversial choice after Israel’s prime minister fired his predecessor. Revelations that he wrote a column criticizing President Trump may have helped sink his chances.`\
+https://nytimes.com/2025/04/01/world/middleeast/israel-netanyahu-trump-shin-bet.html
+
 **Liverpool need to remind the world why they are the best team in England**\
 `Arne Slot's side must forget their recent wobbles and deliver an emphatic end to the Premier League season`\
 https://nytimes.com/athletic/6243947/2025/04/01/liverpool-best-team-england/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/01/us/politics/cornell-student-momodou-taal.html
 **Pope Francis’ Health Continues to Improve, Vatican Says**\
 `A little over a week after returning to the Vatican guesthouse to convalesce, the pope was showing gradual improvements in his movements and speech.`\
 https://nytimes.com/2025/04/01/world/europe/pope-francis-health-vatican.html
-
-**Iceland Volcano Eruption Threatens Town**\
-`The eruption began near Grindavik, a small town long threatened by volcanic disruptions, and prompted the closure of a popular tourist destination.`\
-https://nytimes.com/2025/04/01/world/europe/iceland-volcano-eruption-grindavik.html
 

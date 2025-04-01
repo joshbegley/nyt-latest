@@ -1,3 +1,11 @@
+**Jordan Hicks' dominating 2025 debut gave the Giants reason to be optimistic**\
+`Hicks isn't all that different from Garrett Crochet in terms of what he did last season. Their ceilings might not be that different, too.`\
+https://nytimes.com/athletic/6245824/2025/04/01/sf-giants-jordan-hicks-season-debut/
+
+**U.S. Says Deportation of Maryland Man Was an ‘Administrative Error’**\
+`Kilmar Armando Abrego Garcia, who was in the U.S. legally, is now in prison in El Salvador, and federal courts have no jurisdiction to order his release, the Trump administration said in a court filing.`\
+https://nytimes.com/2025/04/01/us/politics/maryland-man-deportation-error-el-salvador.html
+
 **Netanyahu Drops Nominee for Spy Chief After Backlash**\
 `Eli Sharvit was a controversial choice after Israel’s prime minister fired his predecessor. Revelations that he wrote a column criticizing President Trump may have helped sink his chances.`\
 https://nytimes.com/2025/04/01/world/middleeast/israel-netanyahu-trump-shin-bet.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/04/01/us/trump-news-updates/nyc-pension-funds-plan
 **SpaceX Puts Humans in Orbit Over Earth’s Poles for the First Time**\
 `Chun Wang, a Chinese-born crypto entrepreneur, paid an undisclosed amount for the mission. Some satellites are already in polar orbit, and researchers called it a routine flight.`\
 https://nytimes.com/2025/04/01/world/asia/spacex-rocket-launch.html
-
-**Cornell Student Who Faced Deportation Says He Has Left U.S.**\
-`Momodou Taal, a Ph.D. student who had been suspended by the university after participating in pro-Palestinian protests, said he “took the decision to leave the United States.”`\
-https://nytimes.com/2025/04/01/us/politics/cornell-student-momodou-taal.html
-
-**Pope Francis’ Health Continues to Improve, Vatican Says**\
-`A little over a week after returning to the Vatican guesthouse to convalesce, the pope was showing gradual improvements in his movements and speech.`\
-https://nytimes.com/2025/04/01/world/europe/pope-francis-health-vatican.html
 
