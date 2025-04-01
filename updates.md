@@ -1,3 +1,31 @@
+**Wisconsin Spring Election Results**\
+`Get live results and maps from the 2025 Wisconsin Spring elections.`\
+https://nytimes.com/interactive/2025/04/01/us/elections/results-wisconsin.html
+
+**Wisconsin Supreme Court Election Results**\
+`Get live results and maps from the 2025 Wisconsin general election.`\
+https://nytimes.com/interactive/2025/04/01/us/elections/results-wisconsin-supreme-court.html
+
+**Florida Sixth District Special Election Results**\
+`Get live results and maps from the 2025 Florida special election.`\
+https://nytimes.com/interactive/2025/04/01/us/elections/results-florida-us-house-6-special.html
+
+**Florida Special Election Results**\
+`Get live results and maps from the 2025 Florida special elections.`\
+https://nytimes.com/interactive/2025/04/01/us/elections/results-florida-special.html
+
+**Wisconsin Question 1 Election Results**\
+`Get live results and maps from the 2025 Wisconsin general election.`\
+https://nytimes.com/interactive/2025/04/01/us/elections/results-wisconsin-question.html
+
+**Wisconsin Superintendent of Public Instruction Election Results**\
+`Get live results and maps from the 2025 Wisconsin general election.`\
+https://nytimes.com/interactive/2025/04/01/us/elections/results-wisconsin-superintendent-of-public-instruction.html
+
+**Florida First District Special Election Results**\
+`Get live results and maps from the 2025 Florida special election.`\
+https://nytimes.com/interactive/2025/04/01/us/elections/results-florida-us-house-1-special.html
+
 **Trump’s ‘Liberation Day’ Tariffs Are Coming, but at a Cost to U.S. Alliances**\
 `President Trump is already showing signs of concern that his targets may team up against him.`\
 https://nytimes.com/2025/04/01/us/politics/trump-tariffs-nato-allies.html
