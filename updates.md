@@ -1,3 +1,11 @@
+**What’s at Stake in Wisconsin**\
+`Elon Musk sees the state’s Supreme Court race as a way of preserving Republicans’ power in Washington.`\
+https://nytimes.com/2025/03/31/us/politics/elon-musk-wisconsin.html
+
+**Crucial Week for Trump: New Tariffs and State Elections Will Test His Momentum**\
+`Down-ballot races in Florida and Wisconsin are seen as a referendum on the White House, while the president’s to-be-announced reciprocal tariff plan is increasingly worrying investors and consumers.`\
+https://nytimes.com/2025/03/31/us/politics/trump-florida-wisconsin-tariffs.html
+
 **New Columbia President Attacked by Stefanik Over 2023 Text Message**\
 `Elise Stefanik, a prominent Republican, questioned Claire Shipman’s commitment to protecting Jewish students. Ms. Shipman pledged “to build on the significant progress we’ve made.”`\
 https://nytimes.com/2025/03/31/nyregion/columbia-president-republican-criticism.html

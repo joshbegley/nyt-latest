@@ -1,3 +1,11 @@
+**What’s at Stake in Wisconsin**\
+`Elon Musk sees the state’s Supreme Court race as a way of preserving Republicans’ power in Washington.`\
+https://nytimes.com/2025/03/31/us/politics/elon-musk-wisconsin.html
+
+**Crucial Week for Trump: New Tariffs and State Elections Will Test His Momentum**\
+`Down-ballot races in Florida and Wisconsin are seen as a referendum on the White House, while the president’s to-be-announced reciprocal tariff plan is increasingly worrying investors and consumers.`\
+https://nytimes.com/2025/03/31/us/politics/trump-florida-wisconsin-tariffs.html
+
 **New Columbia President Attacked by Stefanik Over 2023 Text Message**\
 `Elise Stefanik, a prominent Republican, questioned Claire Shipman’s commitment to protecting Jewish students. Ms. Shipman pledged “to build on the significant progress we’ve made.”`\
 https://nytimes.com/2025/03/31/nyregion/columbia-president-republican-criticism.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/31/technology/openai-valuation-300-billion.html
 **Justin Verlander, Astros had 'mutual interest' in reunion during offseason**\
 `Verlander isn't sure about his future plaque in Cooperstown: "You don’t know how things will play out with me and Detroit in the future."`\
 https://nytimes.com/athletic/6245536/2025/03/31/justin-verlander-astros-reunion-hall-of-fame-cap/
-
-**Twins blown out by White Sox as early struggles continue: 'We've got to adjust quick'**\
-`The Twins have played 36 innings of baseball this season. They’ve held a lead for one of those innings. They've been outscored 28-6. `\
-https://nytimes.com/athletic/6245520/2025/03/31/twins-early-struggles-white-sox-loss/
-
-**Trump Administration Tallies Trade Barriers That Could Prompt Tariffs**\
-`The Office of the United States Trade Representative released a report Monday highlighting foreign trade barriers that could influence tariffs the president puts into effect this week.`\
-https://nytimes.com/2025/03/31/business/economy/ustr-report-trade-barriers.html
 
