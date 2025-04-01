@@ -20,7 +20,7 @@ https://nytimes.com/athletic/6247070/2025/04/01/pat-mcafee-ole-miss-until-saturd
 
 **Watchdog Agency to Investigate Attempted Cuts to Fair Housing Groups**\
 `The inquiry is another roadblock to efforts by HUD and DOGE to slash funds earmarked for the enforcement of the Fair Housing Act.`\
-https://nytimes.com/2025/04/01/realestate/01fair-housing-investigation.html
+https://nytimes.com/2025/04/01/realestate/fair-housing-investigation.html
 
 **Extension takeaways: What deals for Garrett Crochet, Cal Raleigh, others mean for the market**\
 `Breaking down what the recent extensions for Crochet, Raleigh, Bibee, Pfaadt and Kirk might mean for other similar players. `\
