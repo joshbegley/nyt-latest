@@ -1,3 +1,7 @@
+**Corrections: April 1, 2025**\
+`Corrections that appeared in print on Tuesday, April 1, 2025.`\
+https://nytimes.com/2025/03/31/pageoneplus/corrections-april-1-2025.html
+
 **NHL, Canadian media company Rogers agree to 12-year, $7.7B TV deal: Reports**\
 `The new agreement will come at the conclusion of the previous 12-year deal agreed to by both parties, which was signed in 2013.`\
 https://nytimes.com/athletic/6245657/2025/03/31/nhl-rogers-sportsnet-broadcasts/
