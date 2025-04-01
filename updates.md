@@ -1,3 +1,11 @@
+**A Graphic Coat of Many Colors**\
+`They included yellow, red, green, brown and blue.`\
+https://nytimes.com/2025/04/01/style/street-style-look-spring-colors.html
+
+**A's Opening Day in Sacramento brings fans, but shine wears off quickly**\
+`On the field, the A's were embarrassed by the Chicago Cubs 18-3 as Carson Kelly hit for the cycle.`\
+https://nytimes.com/athletic/6246494/2025/04/01/athletics-opening-day-sacramento-fans/
+
 **A's Opening Day in Sacramento brings fans, but shine wears off quickly**\
 `On the field, the A's were embarrassed by the Chicago Cubs 18-3 as Carson Kelly hit for the cycle.`\
 https://nytimes.com/athletic/6246494/2025/04/01/as-opening-day-in-sacramento-brings-fans-but-shine-wears-off-quickly/
