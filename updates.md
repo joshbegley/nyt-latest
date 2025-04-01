@@ -1,3 +1,7 @@
+**Seven reasons to be cautiously optimistic about Manchester United's run-in**\
+`Manchester United still have a chance of winning a trophy and avoiding a historically bad season`\
+https://nytimes.com/athletic/6246359/2025/04/01/manchester-united-season-europa-league/
+
 **The Athletic FC: Fishcake and tennis ball VAR protests, remember the name Huijsen**\
 `Today in TAFC: Tennis ball and fishcake protests over VAR, the fight for fifth in the Premier League, and Huijsen's bright future.`\
 https://nytimes.com/athletic/6246355/2025/04/01/var-protest-norway-fishcakes-tennis-balls/
