@@ -1,3 +1,7 @@
+**Meet the Beatles! (The Movie Version, at Least)**\
+`The director Sam Mendes announced the stars of his four-film series, each told from the perspective of a different Beatle, set to be released in 2028.`\
+https://nytimes.com/2025/04/01/movies/beatles-biopic-movie-cast-mendes-mescal-keoghan-dickinson-quinn.html
+
 **Assisted Driving Tech in Focus After Fatal Electric Car Crash in China**\
 `A popular electric vehicle made by the Chinese consumer electronics giant Xiaomi crashed into a concrete guardrail while deploying its autonomous driving feature. Three people died.`\
 https://nytimes.com/2025/04/01/business/xiaomi-driverless-electric-car-china.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6246059/2025/04/01/celtics-history-road-record-winn
 **Falcons preparing for Kirk Cousins to be backup QB, not expected at OTAs**\
 `Cousins has told coach Raheem Morris he would prefer to be in a situation where he can be the starting quarterback.`\
 https://nytimes.com/athletic/6246731/2025/04/01/kirk-cousins-falcons-backup-qb-raheem-morris/
-
-**The Bounce: Tired of NBA teams tanking? Here's how to solve it. Plus, checking in on 2024 rookies**\
-`If you're tired of NBA teams tanking for the draft, Zach Harper has a simple solution to quell the chaos.`\
-https://nytimes.com/athletic/6246531/2025/04/01/nba-draft-tanking-lakers-lebron-james-luka-doncic-nba-the-bounce/
 

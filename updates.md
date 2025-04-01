@@ -1,3 +1,7 @@
+**Meet the Beatles! (The Movie Version, at Least)**\
+`The director Sam Mendes announced the stars of his four-film series, each told from the perspective of a different Beatle, set to be released in 2028.`\
+https://nytimes.com/2025/04/01/movies/beatles-biopic-movie-cast-mendes-mescal-keoghan-dickinson-quinn.html
+
 **Assisted Driving Tech in Focus After Fatal Electric Car Crash in China**\
 `A popular electric vehicle made by the Chinese consumer electronics giant Xiaomi crashed into a concrete guardrail while deploying its autonomous driving feature. Three people died.`\
 https://nytimes.com/2025/04/01/business/xiaomi-driverless-electric-car-china.html
