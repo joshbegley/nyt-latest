@@ -1,3 +1,11 @@
+**Notre Dame's Olivia Miles entering transfer portal, forgoing draft**\
+`The senior averaged a career-best and team second-best 15.4 points this season. Her 5.8 assists per game were a team-high.`\
+https://nytimes.com/athletic/6245915/2025/03/31/notre-dames-olivia-miles-transfer-portal/
+
+**Torpedo bats are making a lot of noise - but they've been quietly in MLB for a few years**\
+`Reds star Elly de la Cruz is the latest convert, hitting two home runs and knocking in seven runs in his first game with the unique bat.`\
+https://nytimes.com/athletic/6245770/2025/03/31/mlb-torpedo-bat-interest-viral/
+
 **Israel’s Military Says It Struck Beirut’s Suburbs**\
 `The attack was the second in less than a week, raising fears that a cease-fire between Israel and Hezbollah could unravel.`\
 https://nytimes.com/2025/03/31/world/middleeast/israel-strike-lebanon-beirut.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/31/pageoneplus/corrections-april-1-2025.html
 **NHL, Canadian media company Rogers agree to 12-year, $7.7B TV deal: Reports**\
 `The new agreement will come at the conclusion of the previous 12-year deal agreed to by both parties, which was signed in 2013.`\
 https://nytimes.com/athletic/6245657/2025/03/31/nhl-rogers-sportsnet-broadcasts/
-
-**Women's March Madness projections 2025: Does UConn have the advantage?**\
-`What's your team's chance of winning? Find out here. `\
-https://nytimes.com/athletic/6198041/2025/03/31/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**Texas tops TCU to advance to first Final Four since 2003**\
-`TCU had a historic year as well, as the Horned Frogs had never made a Sweet 16 before.`\
-https://nytimes.com/athletic/6245747/2025/03/31/texas-tcu-elite-eight-womens-basketball/
 
