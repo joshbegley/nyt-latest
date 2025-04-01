@@ -1,3 +1,15 @@
+**Weekly Student News Quiz: Earthquake, Security Breach, Baseball Season **\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/04/01/learning/01StudentNewsQuizLN.html
+
+**Palace's Richards to miss Southampton game with calf issue**\
+`The USMNT defender sustained a minor injury in Palace’s 3-0 win over Fulham in the FA Cup quarter-final on Saturday.`\
+https://nytimes.com/athletic/6246737/2025/04/01/crystal-palace-chris-richards-calf-injury/
+
+**For Tigers prospect Jackson Jobe, this is how growth works in the major leagues**\
+`Jackson Jobe surrendered three earned runs in four innings during his first start in the major leagues. `\
+https://nytimes.com/athletic/6246175/2025/04/01/tigers-prospect-jackson-jobe-mlb-start/
+
 **Jordan Hicks' dominating 2025 debut gave the Giants reason to be optimistic**\
 `Hicks isn't all that different from Garrett Crochet in terms of what he did last season. Their ceilings might not be that different, too.`\
 https://nytimes.com/athletic/6245824/2025/04/01/sf-giants-jordan-hicks-season-debut/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/01/style/street-style-look-spring-colors.html
 **A's home opener in Sacramento had a different — but distinctly minor league — feel**\
 `On the field, the A's were embarrassed by the Chicago Cubs 18-3 as Carson Kelly hit for the cycle.`\
 https://nytimes.com/athletic/6246494/2025/04/01/athletics-opening-day-sacramento-fans/
-
-**Brutal day for Braves ends with loss to Dodgers for 0-5 start**\
-`The Braves are off to their worst start since the 2017 team lost six of their first seven in a 72-90 season.`\
-https://nytimes.com/athletic/6246182/2025/04/01/braves-suspension-injury-loss-0-5-start/
-
-**N.Y.C. pension funds plan to sue Tesla over Musk’s DOGE leadership.**\
-`Brad Lander, the comptroller, said Elon Musk’s actions on behalf of the Trump administration had hurt Tesla’s stock price.`\
-https://nytimes.com/live/2025/04/01/us/trump-news-updates/nyc-pension-funds-plan-to-sue-tesla-over-musks-doge-leadership
-
-**SpaceX Puts Humans in Orbit Over Earth’s Poles for the First Time**\
-`Chun Wang, a Chinese-born crypto entrepreneur, paid an undisclosed amount for the mission. Some satellites are already in polar orbit, and researchers called it a routine flight.`\
-https://nytimes.com/2025/04/01/world/asia/spacex-rocket-launch.html
 

@@ -1,3 +1,7 @@
+**A's home opener in Sacramento had a different — but distinctly minor league — feel**\
+`On the field, the A's were embarrassed by the Chicago Cubs 18-3 as Carson Kelly hit for the cycle.`\
+https://nytimes.com/athletic/6246494/2025/04/01/athletics-opening-day-sacramento-fans/
+
 **Jordan Hicks' dominating 2025 debut gave the Giants reason to be optimistic**\
 `Hicks isn't all that different from Garrett Crochet in terms of what he did last season. Their ceilings might not be that different, too.`\
 https://nytimes.com/athletic/6245824/2025/04/01/sf-giants-jordan-hicks-season-debut/
