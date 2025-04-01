@@ -1,3 +1,11 @@
+**The Athletic FC: Fishcake and tennis ball VAR protests, remember the name Huijsen**\
+`Today in TAFC: Tennis ball and fishcake protests over VAR, the fight for fifth in the Premier League, and Huijsen's bright future.`\
+https://nytimes.com/athletic/6246355/2025/04/01/var-protest-norway-fishcakes-tennis-balls/
+
+**Why are Arsenal playing Spurs 6,000 miles away in Hong Kong, and how have fans reacted?**\
+`In July, Spurs and Arsenal will face off at the 50,000-seater Kai Tak Stadium. It marks the first time the derby will be played overseas`\
+https://nytimes.com/athletic/6246343/2025/04/01/why-are-arsenal-playing-spurs-in-hong-kong-and-how-have-fans-reacted/
+
 **A Symbol of a City’s Rapid Growth Comes Crashing Down**\
 `The collapse of the Sky Villa complex in the Myanmar city of Mandalay buried an unknown number of people amid the earthquake on Friday that killed more than 2,700.`\
 https://nytimes.com/2025/04/01/world/asia/myanmar-mandalay-earthquake-condo.html
