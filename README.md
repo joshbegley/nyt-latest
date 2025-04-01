@@ -1,3 +1,11 @@
+**Why Italy Made It Harder to Become Italian**\
+`The government says it tightened citizenship rules because of a deluge of applications from the descendants of emigrants who only coveted an Italian passport.`\
+https://nytimes.com/2025/04/01/world/europe/italy-citizenship-rules.html
+
+**'We don't want to be in the Play-In': Lakers admit they're keeping an eye on standings**\
+`Back-to-back wins against Memphis and Houston have aided the Lakers' push for the No. 2 seed. Another key game, against Golden State, looms.`\
+https://nytimes.com/athletic/6245954/2025/04/01/nba-western-conference-standings-lakers-rockets-nuggets/
+
 **The Eagles can still run the Brotherly Shove. For now.**\
 `The debate continues after NFL owners tabled a proposal to ban the play.`\
 https://nytimes.com/athletic/6246635/2025/04/01/tush-push-eagles-brotherly-shove/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6244658/2025/04/01/marc-andre-ter-stegen-barcelona-
 **How Ben Johnson plans to change Caleb Williams' game: Bears takeaways**\
 `Johnson offered insight on several players, including Braxton Jones, Tyrique Stevenson and Cole Kmet, at the league meetings in Florida.`\
 https://nytimes.com/athletic/6246930/2025/04/01/bears-ben-johnson-caleb-williams-eric-bieniemy/
-
-**Why Argentina's FA is strengthening its footprint in the USA**\
-`Winning another major international trophy is top of the mind for Argentina's federation, but that's not all`\
-https://nytimes.com/athletic/6235914/2025/04/01/argentina-fa-soccer-united-states-new-york-world-cup-messi/
-
-**Trump Says He’s Settled on Tariff Plan, Sending Fresh Jitters Through Markets**\
-`The president did not reveal the details of his plan to impose reciprocal tariffs on Wednesday but suggested he would move ahead with import taxes on trading partners.`\
-https://nytimes.com/2025/04/01/us/politics/trump-tariffs-stock-market.html
 

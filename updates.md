@@ -1,3 +1,7 @@
+**The Eagles can still run the Brotherly Shove. For now.**\
+`The debate continues after NFL owners tabled a proposal to ban the play.`\
+https://nytimes.com/athletic/6246635/2025/04/01/tush-push-eagles-brotherly-shove/
+
 **NBA Power Rankings: Across the league, there's an app for that — good and bad**\
 `As April begins, there's a sizable gap between the league's top three teams and the rest of the field.`\
 https://nytimes.com/athletic/6246701/2025/04/01/nba-power-rankings-lakers-thunder-cavaliers-bucks/

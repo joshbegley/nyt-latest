@@ -1,3 +1,7 @@
+**The Eagles can still run the Brotherly Shove. For now.**\
+`The debate continues after NFL owners tabled a proposal to ban the play.`\
+https://nytimes.com/athletic/6246635/2025/04/01/tush-push-eagles-brotherly-shove/
+
 **NBA Power Rankings: Across the league, there's an app for that — good and bad**\
 `As April begins, there's a sizable gap between the league's top three teams and the rest of the field.`\
 https://nytimes.com/athletic/6246701/2025/04/01/nba-power-rankings-lakers-thunder-cavaliers-bucks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6235914/2025/04/01/argentina-fa-soccer-united-state
 **Trump Says He’s Settled on Tariff Plan, Sending Fresh Jitters Through Markets**\
 `The president did not reveal the details of his plan to impose reciprocal tariffs on Wednesday but suggested he would move ahead with import taxes on trading partners.`\
 https://nytimes.com/2025/04/01/us/politics/trump-tariffs-stock-market.html
-
-**The Caretaker of Muncy Farms**\
-`When he was five years old, Malcolm Barlow arrived at a country estate in Pennsylvania to escape World War II. He never left, under circumstances he would not understand until years later.`\
-https://nytimes.com/2025/04/01/realestate/malcolm-barlow-muncy-pennsylvania.html
 
