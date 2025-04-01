@@ -1,3 +1,35 @@
+**Princeton Senior, Accused of Assault During Protest, Braces for Verdict**\
+`A judge is expected to decide Tuesday whether David Piegaro is guilty of assaulting a police officer while recording pro-Palestinian campus demonstrations last year.`\
+https://nytimes.com/2025/04/01/nyregion/gaza-protests-princeton-student-arrested.html
+
+**Add More N.Y.P.D. Officers to Fight Crime? Mamdani Has Different Ideas.**\
+`Many of the candidates for mayor of New York City support hiring more police officers. Zohran Mamdani has a different public-safety plan.`\
+https://nytimes.com/2025/04/01/nyregion/zohran-mamdani-crime-plan.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/04/01/crosswords/spelling-bee-forum.html
+
+**Vacheron Constantin Puts a Record on the Wrist**\
+`The 41 functions of the Les Cabinotiers Solaria Grand Complication make it the world’s most complicated wristwatch.`\
+https://nytimes.com/2025/04/01/fashion/watches-vacheron-constantin-41-functions.html
+
+**A 3-Year-Old Was Left Dead at a Hospital. Who Failed to Save Him?**\
+`In the months before Kyng Davis was abandoned at a Brooklyn hospital by his mother and her boyfriend, there were signs that he might have been in danger.`\
+https://nytimes.com/2025/04/01/nyregion/nypd-investigation-child-abuse.html
+
+**Cometh the Hour, Cometh the Watch Fair**\
+`Watches and Wonders Geneva, the luxury industry’s only major watch fair, opens this week with introductions from 60 brands.`\
+https://nytimes.com/2025/04/01/fashion/watches-and-wonders-geneva.html
+
+**Van Cleef & Arpels’ Cadenas Watch at 90**\
+`The padlock-style timepiece now features a mix of diamonds and sapphires.`\
+https://nytimes.com/2025/04/01/fashion/van-cleef-arpels-cadenas-watch-90-anniversary.html
+
+**Piaget Revisits the Trapezoid**\
+`Sixtie, a new bracelet watch, was inspired by a design from the late 1960s.`\
+https://nytimes.com/2025/04/01/fashion/watches-piaget-trapezoid-sixtie.html
+
 **Dodgers' Tyler Glasnow, who remains dominant, hopes his offseason changes keep him that way**\
 `In his first action since Aug. 11, Glasnow offered a reminder of his high-end talent. The Dodgers improve to 6-0.`\
 https://nytimes.com/athletic/6246157/2025/04/01/tyler-glasnow-first-start-dodgers/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/6246157/2025/04/01/tyler-glasnow-first-start-dodger
 **The Thunder are finalizing one of the greatest regular seasons in NBA history**\
 `The Thunder are in impressive company, however the team knows its historic season won't matter much if they falter in the postseason.`\
 https://nytimes.com/athletic/6241300/2025/04/01/thunder-dominant-nba-season/
-
-**Kyle Hart, who'd only pitched in the emptiness of 2020, earns win for Padres in MLB return**\
-`The Padres’ new No. 5 starter held the Cleveland Guardians to two runs, limiting the damage to a pair of solo homers.`\
-https://nytimes.com/athletic/6246096/2025/04/01/kyle-hart-mlb-padres-pandemic/
-
-**Word of the Day: profusely**\
-`This word has appeared in 71 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/04/01/learning/word-of-the-day-profusely.html
-
-**China Holds Military Exercises Around Taiwan in Fresh Warning**\
-`The drills came after Taiwan’s president, Lai Ching-te, announced measures to counter China’s influence and espionage. Beijing also wants to send a message to Washington, analysts said.`\
-https://nytimes.com/2025/04/01/world/asia/china-taiwan-military-drills.html
-
-**Israel Strikes Suburb in Beirut**\
-`The Israeli military said it was targeting a member of Hezbollah in an area near Lebanon’s capital that is a stronghold for the militant group.`\
-https://nytimes.com/video/world/middleeast/100000010084465/israel-strike-lebanon-beirut.html
-
-**Carson Kelly notches first cycle of 2025 MLB season; first for Cubs since 1993**\
-`In an 18-3 victory over the Athletics, Kelly homered to lead off the fourth, singled in the fifth and doubled in the sixth.`\
-https://nytimes.com/athletic/6246108/2025/04/01/carson-kelly-cubs-cycle/
-
-**The New York Times in Print for Tuesday, April 1, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/04/01/todays-new-york-times
-
-**Trump’s Ukraine Betrayal Is a Reality Check for Taiwan**\
-`Taiwan can no longer shelter under the delusion that the U.S. will defend it against China.`\
-https://nytimes.com/2025/04/01/opinion/taiwan-china-trump.html
-
-**Tuesday Briefing**\
-`President Trump’s talk of a third term.`\
-https://nytimes.com/2025/04/01/briefing/trump-le-pen-israel.html
 
