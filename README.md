@@ -1,3 +1,7 @@
+**The Thunder are finalizing one of the greatest regular seasons in NBA history**\
+`The Thunder are in impressive company, however the team knows its historic season won't matter much if they falter in the postseason.`\
+https://nytimes.com/athletic/6241300/2025/04/01/thunder-dominant-nba-season/
+
 **Kyle Hart, who'd only pitched in the emptiness of 2020, earns win for Padres in MLB return**\
 `SAN DIEGO — Kyle Hart took the Petco Park mound Monday in rare company.`\
 https://nytimes.com/athletic/6246096/2025/04/01/kyle-hart-mlb-padres-pandemic/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/01/briefing/trump-le-pen-israel.html
 **Nottingham Forest finances: Would Champions League cash mean they could keep star players?**\
 `Forest made a profit of £12million in 2023-24 — but would extra Champions League cash mean they would not have to sell a prize asset?`\
 https://nytimes.com/athletic/6244816/2025/04/01/nottingham-forest-finances-would-champions-league-cash-mean-they-could-keep-star-players/
-
-**Hailey Van Lith's long college career ends with a loss, but also redemption**\
-`"My journey has been crazy. I'm super grateful for it, wouldn't have had it any other way.”`\
-https://nytimes.com/athletic/6246035/2025/04/01/hailey-van-liths-long-college-career-ends-with-a-loss-but-also-redemption/
 
