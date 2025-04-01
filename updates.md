@@ -1,3 +1,11 @@
+**Robert Kraft optimistic about Patriots under Mike Vrabel, hopes 'to make the playoffs'**\
+`Asked whether the Patriots are still at ground zero of their multiyear rebuild, the owner said, “I think we’re ahead of that."`\
+https://nytimes.com/athletic/6246860/2025/04/01/robert-kraft-patriots-mike-vrabel-playoffs/
+
+**Bucks co-owner Wes Edens 'optimistic' team can make a playoff run despite Lillard injury**\
+`Edens took questions at the Bucks' Sixth Man Soirée on Monday night and believes Milwaukee can make "a real run of it" in the playoffs.`\
+https://nytimes.com/athletic/6245743/2025/04/01/bucks-playoffs-damian-lillard-wes-edens-comments/
+
 **NFL teams table vote to ban 'tush push' at league meetings: Source**\
 `The play has been frequently used by the Philadelphia Eagles and quarterback Jalen Hurts in short-yardage situations.`\
 https://nytimes.com/athletic/6245224/2025/04/01/nfl-tush-push-vote-tabled/

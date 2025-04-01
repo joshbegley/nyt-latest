@@ -1,3 +1,19 @@
+**Trump Says He’s Settled on Tariff Plan, Sending Fresh Jitters Through Markets**\
+`The president did not reveal the details of his plan to impose reciprocal tariffs on Wednesday but suggested he would move ahead with import taxes on trading partners.`\
+https://nytimes.com/2025/04/01/us/politics/trump-tariffs-stock-market.html
+
+**The Caretaker of Muncy Farms**\
+`When he was five years old, Malcolm Barlow arrived at a country estate in Pennsylvania to escape World War II. He never left, under circumstances he would not understand until years later.`\
+https://nytimes.com/2025/04/01/realestate/malcolm-barlow-muncy-pennsylvania.html
+
+**Five Ingredients, Five Stars, No Joke**\
+`Garlicky Alfredo beans are “outrageously good.”`\
+https://nytimes.com/2025/04/01/dining/five-ingredients-five-stars-no-joke.html
+
+**Millions of Women Will Lose Access to Contraception as a Result of Trump Aid Cuts**\
+`The United States was a key supplier of contraceptives in many developing countries. The Trump administration has ended that support.`\
+https://nytimes.com/2025/04/01/health/usaid-contraception-cuts.html
+
 **Robert Kraft optimistic about Patriots under Mike Vrabel, hopes 'to make the playoffs'**\
 `Asked whether the Patriots are still at ground zero of their multiyear rebuild, the owner said, “I think we’re ahead of that."`\
 https://nytimes.com/athletic/6246860/2025/04/01/robert-kraft-patriots-mike-vrabel-playoffs/
@@ -6,8 +22,8 @@ https://nytimes.com/athletic/6246860/2025/04/01/robert-kraft-patriots-mike-vrabe
 `The play has been frequently used by the Philadelphia Eagles and quarterback Jalen Hurts in short-yardage situations.`\
 https://nytimes.com/athletic/6245224/2025/04/01/nfl-tush-push-vote-tabled/
 
-**NFL owners approve rule for both teams to possess ball in regular season OT**\
-`The new regular season overtime rules will now more closely resemble the playoff format.`\
+**NFL owners approve rule for both teams to possess ball in regular-season OT**\
+`The new regular-season overtime rules will now more closely resemble the playoff format.`\
 https://nytimes.com/athletic/6246849/2025/04/01/nfl-overtime-rule-change-expanded-replay-assist/
 
 **After a Terminal Cancer Diagnosis, a Lawyer Seeks Revenge**\
@@ -21,20 +37,4 @@ https://nytimes.com/2025/04/01/us/politics/house-proxy-voting-parents.html
 **Meet the Beatles! (The Movie Version, at Least)**\
 `The director Sam Mendes announced the stars of his four-film series, each told from the perspective of a different Beatle, set to be released in 2028.`\
 https://nytimes.com/2025/04/01/movies/beatles-biopic-movie-cast-mendes-mescal-keoghan-dickinson-quinn.html
-
-**Assisted Driving Tech in Focus After Fatal Electric Car Crash in China**\
-`A popular electric vehicle made by the Chinese consumer electronics giant Xiaomi crashed into a concrete guardrail while deploying its autonomous driving feature. Three people died.`\
-https://nytimes.com/2025/04/01/business/xiaomi-driverless-electric-car-china.html
-
-**Bucks co-owner Wes Edens 'optimistic' team can make a playoff run despite Lillard injury**\
-`Edens took questions at the Bucks' Sixth Man Soirée on Monday night and believes Milwaukee can make "a real run of it" in the playoffs.`\
-https://nytimes.com/athletic/6245743/2025/04/01/bucks-playoffs-damian-lillard-wes-edens-comments/
-
-**Congress Wrote a Deportation Law to Be Used ‘Sparingly.’ Trump Has Other Ideas.**\
-`A crackdown targeting foreign students protesting Israel’s treatment of Palestinians conflicts with free-speech protections that lawmakers added in 1990.`\
-https://nytimes.com/2025/04/01/us/trump-deportations-students-campus-protests.html
-
-**Rockets can't tune out noise in loss to Lakers: 'Most of the game is mental'**\
-`Fans in L.A. gave Houston's Dillon Brooks the kind of welcome he practices in pregame. `\
-https://nytimes.com/athletic/6246114/2025/04/01/rockets-dillon-brooks-lebron-lakers-mental/
 

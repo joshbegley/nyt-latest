@@ -1,3 +1,7 @@
+**Robert Kraft optimistic about Patriots under Mike Vrabel, hopes 'to make the playoffs'**\
+`Asked whether the Patriots are still at ground zero of their multiyear rebuild, the owner said, “I think we’re ahead of that."`\
+https://nytimes.com/athletic/6246860/2025/04/01/robert-kraft-patriots-mike-vrabel-playoffs/
+
 **NFL teams table vote to ban 'tush push' at league meetings: Source**\
 `The play has been frequently used by the Philadelphia Eagles and quarterback Jalen Hurts in short-yardage situations.`\
 https://nytimes.com/athletic/6245224/2025/04/01/nfl-tush-push-vote-tabled/
@@ -22,7 +26,7 @@ https://nytimes.com/2025/04/01/movies/beatles-biopic-movie-cast-mendes-mescal-ke
 `A popular electric vehicle made by the Chinese consumer electronics giant Xiaomi crashed into a concrete guardrail while deploying its autonomous driving feature. Three people died.`\
 https://nytimes.com/2025/04/01/business/xiaomi-driverless-electric-car-china.html
 
-**Bucks' co-owner Wes Edens 'optimistic' team can make a playoff run despite Lillard injury**\
+**Bucks co-owner Wes Edens 'optimistic' team can make a playoff run despite Lillard injury**\
 `Edens took questions at the Bucks' Sixth Man Soirée on Monday night and believes Milwaukee can make "a real run of it" in the playoffs.`\
 https://nytimes.com/athletic/6245743/2025/04/01/bucks-playoffs-damian-lillard-wes-edens-comments/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/01/us/trump-deportations-students-campus-protests.ht
 **Rockets can't tune out noise in loss to Lakers: 'Most of the game is mental'**\
 `Fans in L.A. gave Houston's Dillon Brooks the kind of welcome he practices in pregame. `\
 https://nytimes.com/athletic/6246114/2025/04/01/rockets-dillon-brooks-lebron-lakers-mental/
-
-**Wolves' Joao Gomes signs new five-year contract**\
-`The new deal does not contain a release clause, meaning Gomes is all but certain to stay at Molineux this summer.`\
-https://nytimes.com/athletic/6246557/2025/04/01/wolves-joao-gomes-contract-update/
 
