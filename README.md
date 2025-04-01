@@ -1,3 +1,15 @@
+**Who will be the Packers' left tackle? Matt LaFleur discusses that competition and more**\
+`Rasheed Walker was a sturdy blindside protector, but 2024 first-rounder Jordan Morgan will compete for the job in 2025.`\
+https://nytimes.com/athletic/6246910/2025/04/01/matt-lafleur-packers-nfl-owners-meetings/
+
+**Ter Stegen: Feeling 'physically better than ever' on return to training**\
+`Ter Stegen underwent surgery after suffering “a complete rupture in the patella tendon” against Villarreal in September.`\
+https://nytimes.com/athletic/6244658/2025/04/01/marc-andre-ter-stegen-barcelona-return/
+
+**How Ben Johnson plans to change Caleb Williams' game: Bears takeaways**\
+`Johnson offered insight on several players, including Braxton Jones, Tyrique Stevenson and Cole Kmet, at the league meetings in Florida.`\
+https://nytimes.com/athletic/6246930/2025/04/01/bears-ben-johnson-caleb-williams-eric-bieniemy/
+
 **Why Argentina's FA is strengthening its footprint in the USA**\
 `Winning another major international trophy is top of the mind for Argentina's federation, but that's not all`\
 https://nytimes.com/athletic/6235914/2025/04/01/argentina-fa-soccer-united-states-new-york-world-cup-messi/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6246860/2025/04/01/robert-kraft-patriots-mike-vrabe
 **NFL teams table vote to ban 'tush push' at league meetings: Source**\
 `The play has been frequently used by the Philadelphia Eagles and quarterback Jalen Hurts in short-yardage situations.`\
 https://nytimes.com/athletic/6245224/2025/04/01/nfl-tush-push-vote-tabled/
-
-**NFL owners approve rule for both teams to possess ball in regular-season OT**\
-`The new regular-season overtime rules will now more closely resemble the playoff format.`\
-https://nytimes.com/athletic/6246849/2025/04/01/nfl-overtime-rule-change-expanded-replay-assist/
-
-**After a Terminal Cancer Diagnosis, a Lawyer Seeks Revenge**\
-`In Ariel Courage’s novel, “Bad Nature,” a powerful career woman sets out on a road trip intending to kill her father.`\
-https://nytimes.com/2025/04/01/books/review/bad-nature-ariel-courage.html
-
-**Johnson Moves to Block a Bill Allowing New Parents in the House to Vote by Proxy**\
-`It was not clear whether the speaker would be able to peel off enough Republicans to prevent the measure from coming up because a majority of House members want to consider it.`\
-https://nytimes.com/2025/04/01/us/politics/house-proxy-voting-parents.html
 
