@@ -1,3 +1,11 @@
+**7-Year-Old Girl Is Killed by Falling Boulder at Lake Tahoe Ski Resort**\
+`The child was at the Diamond Peak Ski Resort, which said in a statement that she had not been skiing at the time it happened.`\
+https://nytimes.com/2025/04/01/us/child-killed-lake-tahoe-diamond-peak-ski-resort.html
+
+**See Which House Members Rejected Johnson’s Effort Against Proxy Voting**\
+`Nine Republicans joined Democrats to force a vote to allow members who had new children to vote by proxy.`\
+https://nytimes.com/interactive/2025/04/01/us/politics/house-vote-johnson-proxy-vote-parents.html
+
 **Garrett Crochet's extension could just be the start of the Red Sox locking up their core**\
 `Crochet is now under team control through 2031. The Red Sox have several other young players who could also be in-line for new deals.`\
 https://nytimes.com/athletic/6247899/2025/04/01/garrett-crochet-red-sox-future-extensions/
