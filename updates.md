@@ -1,3 +1,7 @@
+**Trump’s ‘Liberation Day’ Tariffs Are Coming, but at a Cost to U.S. Alliances**\
+`President Trump is already showing signs of concern that his targets may team up against him.`\
+https://nytimes.com/2025/04/01/us/politics/trump-tariffs-nato-allies.html
+
 **NBA suspends 5 players following Pistons-Timberwolves fight**\
 `There were seven technical fouls handed out during the incident.`\
 https://nytimes.com/athletic/6247263/2025/04/01/nba-suspensions-pistons-timberwolves-fight/
