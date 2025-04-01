@@ -1,3 +1,11 @@
+**Israel Strikes Suburb in Beirut**\
+`The Israeli military said it was targeting a member of Hezbollah in an area near Lebanon’s capital that is a stronghold for the militant group.`\
+https://nytimes.com/video/world/middleeast/100000010084465/israel-strike-lebanon-beirut.html
+
+**Carson Kelly notches first cycle of 2025 MLB season; first for Cubs since 1993**\
+`In an 18-3 victory over the Athletics, Kelly homered to lead off the fourth, singled in the fifth and doubled in the sixth.`\
+https://nytimes.com/athletic/6246108/2025/04/01/carson-kelly-cubs-cycle/
+
 **The New York Times in Print for Tuesday, April 1, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/04/01/todays-new-york-times
