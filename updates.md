@@ -1,3 +1,7 @@
+**Messi's bodyguard and his dwindling presence at Inter Miami games**\
+`Yassine Cheuko has had less of a presence on Inter Miami sidelines this season, and he claims to know why.`\
+https://nytimes.com/athletic/6247418/2025/04/01/messi-bodyguard-yassine-cheuko-mls-inter-miami-concacaf-access/
+
 **Are new torpedo bats affecting sports betting? 'We don’t do any knee-jerk reactions'**\
 `Bettors are all over the torpedo bat craze, but what do the sportsbooks think? Max Meyer talked to oddsmakers to find out.`\
 https://nytimes.com/athletic/6247578/2025/04/01/torpedo-bats-mlb-betting/
