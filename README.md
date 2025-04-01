@@ -1,3 +1,7 @@
+**Bengals' Katie Blackburn addresses staying downtown, seeks 'more urgency' for stadium deal**\
+`Cincinnati's executive VP says the team wants to stay in a renovated Paycor Stadium but a June 30 deadline looms to agree to a deal.`\
+https://nytimes.com/athletic/6248228/2025/04/01/bengals-evp-katie-blackburn-stadium-deal/
+
 **Legacy Motor Club sues RWR over NASCAR charter purchase gone awry**\
 `Team owned by Jimmie Johnson accuses RWR of backing out of deal to purchase charter, which are typically valued at up to $40 million.`\
 https://nytimes.com/athletic/6248277/2025/04/01/nascar-lawsuit-charter-purchase/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6248094/2025/04/01/nascar-sammy-smith-penalty-fine-
 **Forest's Aina set for injury scan**\
 `The defender went down and had to be withdrawn in the 39th minute of the game against Manchester United.`\
 https://nytimes.com/athletic/6247995/2025/04/01/ola-aina-injury-nottingham-forest/
-
-**How Tariffs Could Affect Everyday Americans**\
-`(No description)`\
-https://nytimes.com/card/watch/2025/04/01/us/politics/reporter-trump-tariff-explainers
 

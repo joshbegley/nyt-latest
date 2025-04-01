@@ -1,3 +1,7 @@
+**Legacy Motor Club sues RWR over NASCAR charter purchase gone awry**\
+`Team owned by Jimmie Johnson accuses RWR of backing out of deal to purchase charter, which are typically valued at up to $40 million.`\
+https://nytimes.com/athletic/6248277/2025/04/01/nascar-lawsuit-charter-purchase/
+
 **DOGE Demands Deep Cuts at Humanities Endowment**\
 `The National Endowment for the Humanities, which supports museums, scholarship and historical sites, could see grants curtailed and staffing slashed by up to 80 percent.`\
 https://nytimes.com/2025/04/01/arts/trump-doge-federal-cuts-humanities.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6247995/2025/04/01/ola-aina-injury-nottingham-fores
 **How Tariffs Could Affect Everyday Americans**\
 `(No description)`\
 https://nytimes.com/card/watch/2025/04/01/us/politics/reporter-trump-tariff-explainers
-
-**Trump Expected to Announce Reciprocal Tariffs for Other Countries**\
-`President Trump is expected to announce new tariffs on goods imported from outside the U.S., which could match the levies that other countries place on products made in America.`\
-https://nytimes.com/video/business/economy/100000010085723/trump-tariff-liberation-day.html
 

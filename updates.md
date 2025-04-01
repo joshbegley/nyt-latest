@@ -1,3 +1,7 @@
+**Legacy Motor Club sues RWR over NASCAR charter purchase gone awry**\
+`Team owned by Jimmie Johnson accuses RWR of backing out of deal to purchase charter, which are typically valued at up to $40 million.`\
+https://nytimes.com/athletic/6248277/2025/04/01/nascar-lawsuit-charter-purchase/
+
 **DOGE Demands Deep Cuts at Humanities Endowment**\
 `The National Endowment for the Humanities, which supports museums, scholarship and historical sites, could see grants curtailed and staffing slashed by up to 80 percent.`\
 https://nytimes.com/2025/04/01/arts/trump-doge-federal-cuts-humanities.html
