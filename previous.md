@@ -1,3 +1,19 @@
+**Brighton confirm signing of Sunderland's Tommy Watson**\
+`The Premier League side were in talks over a move for Watson in January but a transfer did not happen before the deadline.`\
+https://nytimes.com/athletic/6247486/2025/04/01/tommy-watson-brighton-sunderland/
+
+**Venezuelan Migrants Ask Supreme Court to Block Deportations**\
+`Lawyers for Venezuelan migrants asked the justices to keep in place a pause on President Trump’s deportation plan, calling it “completely at odds” with limited wartime authority given by Congress.`\
+https://nytimes.com/2025/04/01/us/politics/supreme-court-venezuelan-deportations.html
+
+**Richard Sherman shares photos, video of armed suspects breaking into his home**\
+`Timestamps place the armed robbery just before midnight on Sunday, Sherman's 37th birthday.`\
+https://nytimes.com/athletic/6247231/2025/04/01/nfl-richard-sherman-robbery-home-armed/
+
+**Auto Sales Surged in Anticipation of Trump’s Tariffs**\
+`Sales of cars picked up recently partly as buyers rushed to lock in deals before President Trump’s 25 percent tariffs on cars and auto parts go into effect.`\
+https://nytimes.com/2025/04/01/business/auto-sales-trump-tariffs.html
+
 **Federal Health Work Force Makes Up Less Than 1% of Agency Spending**\
 `Health Secretary Robert F. Kennedy Jr. suggests that laying off thousands of federal workers would tame a massive budget. But nearly all of the agency’s money goes to hospitals, doctors and nursing homes.`\
 https://nytimes.com/2025/04/01/health/hhs-employees-spending-one-percent-budget-layoffs.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6246937/2025/04/01/lions-dan-campbell-tush-push-fre
 **Trump Said Auto Emissions Don’t Affect the Environment. That’s Not True.**\
 `The president wants to weaken limits on tailpipe pollution. Scientists say it’s driving climate change and taking human lives “every day.”`\
 https://nytimes.com/2025/04/01/climate/trump-auto-emissions.html
-
-**NFL announces use of virtual measurement technology for first downs**\
-`Initial ball placement will still remain in the hands of on-field referees, but six 8K cameras will now confirm the spot of the placement.`\
-https://nytimes.com/athletic/6247338/2025/04/01/nfl-announces-virtual-first-down-measurement-technology/
-
-**Iceland Residents Evacuate Town Threatened by Volcano Eruption**\
-`A volcanic eruption in southwestern Iceland on Tuesday prompted an emergency evacuation from the town of Grindavik, which has been endangered by eight of the 11 eruptions on the Reykjanes Peninsula since 2021.`\
-https://nytimes.com/video/world/europe/100000010085366/iceland-volcano-eruption-evacuation.html
-
-**Panthers takeaways: Can Xavier Legette be that top-tier WR? Are they considering OT at 8?**\
-`Dave Canales says the work they did in free agency allows Carolina to draft the best player available, even if it's an offensive playmaker.`\
-https://nytimes.com/athletic/6247141/2025/04/01/panthers-xavier-legette-dave-canales-nfl-draft/
-
-**Air Traffic Controller Arrested in Incident at Reagan National Tower**\
-`The arrest of an F.A.A. employee on assault and battery charges comes as flight operations at the airport have been under scrutiny since a passenger jet and an Army helicopter collided in January.`\
-https://nytimes.com/2025/04/01/us/politics/air-traffic-controller-arrest-reagan-airport.html
 
