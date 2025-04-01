@@ -1,3 +1,7 @@
+**Assisted Driving Tech in Focus After Fatal Electric Car Crash in China**\
+`A popular electric vehicle made by the Chinese consumer electronics giant Xiaomi crashed into a concrete guardrail while deploying its autonomous driving feature. Three people died.`\
+https://nytimes.com/2025/04/01/business/xiaomi-driverless-electric-car-china.html
+
 **Bucks' co-owner Wes Edens 'optimistic' team can make a playoff run despite Lillard injury**\
 `Edens took questions at the Bucks' Sixth Man Soirée on Monday night and believes Milwaukee can make "a real run of it" in the playoffs.`\
 https://nytimes.com/athletic/6245743/2025/04/01/bucks-playoffs-damian-lillard-wes-edens-comments/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6246731/2025/04/01/kirk-cousins-falcons-backup-qb-r
 **The Bounce: Tired of NBA teams tanking? Here's how to solve it. Plus, checking in on 2024 rookies**\
 `If you're tired of NBA teams tanking for the draft, Zach Harper has a simple solution to quell the chaos.`\
 https://nytimes.com/athletic/6246531/2025/04/01/nba-draft-tanking-lakers-lebron-james-luka-doncic-nba-the-bounce/
-
-**USWNT's Rodman: 'I don't know if my back will ever be 100 percent'**\
-`The 22-year-old has dealt with multiple back injuries since her debut season in the NWSL in 2021.`\
-https://nytimes.com/athletic/6246630/2025/04/01/trinity-rodman-back-injury/
 

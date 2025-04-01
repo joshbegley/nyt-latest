@@ -1,3 +1,7 @@
+**Assisted Driving Tech in Focus After Fatal Electric Car Crash in China**\
+`A popular electric vehicle made by the Chinese consumer electronics giant Xiaomi crashed into a concrete guardrail while deploying its autonomous driving feature. Three people died.`\
+https://nytimes.com/2025/04/01/business/xiaomi-driverless-electric-car-china.html
+
 **Bucks' co-owner Wes Edens 'optimistic' team can make a playoff run despite Lillard injury**\
 `Edens took questions at the Bucks' Sixth Man Soirée on Monday night and believes Milwaukee can make "a real run of it" in the playoffs.`\
 https://nytimes.com/athletic/6245743/2025/04/01/bucks-playoffs-damian-lillard-wes-edens-comments/
