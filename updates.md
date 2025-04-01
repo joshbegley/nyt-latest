@@ -1,3 +1,23 @@
+**Dr. Oz ‘Disavows’ Support for Transgender Care, Assuaging a Senator’s Concerns**\
+`Senator Josh Hawley, a Republican, pressed Dr. Oz on transgender care and abortion, and now says he will vote for the physician’s confirmation to become head of Medicare and Medicaid.`\
+https://nytimes.com/2025/04/01/health/dr-oz-transgender-care-abortion-josh-hawley-confirmation-cms.html
+
+**Submit questions for Jim Bowden's MLB mailbag**\
+`What questions are on your mind as April baseball gets underway? Submit them here. `\
+https://nytimes.com/athletic/6247296/2025/04/01/submit-questions-for-jim-bowdens-mlb-mailbag-2/
+
+**Trump’s Dismantling of Minority Business Agency Could Hinder Job Growth**\
+`Supporters of the agency said its gutting could hurt minority-owned businesses that already face additional barriers to gaining capital.`\
+https://nytimes.com/2025/04/01/us/politics/minority-business-development-agency-trump.html
+
+**Heat Today: 5 observations from Miami's longest win streak of the season**\
+`The Heat have had plenty of peaks and valleys. Here are five reasons for their season-best five-game win streak.`\
+https://nytimes.com/athletic/6246811/2025/04/01/miami-heat-bam-adebayo-tyler-herro-win-streak/
+
+**Fourth U.S. Soldier Is Found Dead in Lithuania**\
+`The soldier and three others had gone on a training mission in a 70-ton vehicle that sank in a bog near the border with Belarus.`\
+https://nytimes.com/2025/04/01/world/europe/fourth-us-soldier-dead-lithuania.html
+
 **Watch: Are the Thunder the best regular-season team ever?**\
 `NBA Daily discuss the Oklahoma City Thunder's record-breaking season so far.`\
 https://nytimes.com/athletic/6246554/2025/04/01/nba-okc-thunder-best-regular-season/
