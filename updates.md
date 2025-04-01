@@ -1,3 +1,15 @@
+**NBA Power Rankings: Across the league, there's an app for that — good and bad**\
+`As April begins, there's a sizable gap between the league's top three teams and the rest of the field.`\
+https://nytimes.com/athletic/6246701/2025/04/01/nba-power-rankings-lakers-thunder-cavaliers-bucks/
+
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/04/01/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
+**The Windup: Already panic time for the Braves?**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6246173/2025/04/01/atlanta-braves-record-the-windup/
+
 **Shake-Up in China’s Auto Sector: Two Giants Are Discussing a Merger**\
 `The state-owned automakers, longtime joint venture partners of Ford and Nissan, might combine operations as Beijing consolidates its sprawling car sector.`\
 https://nytimes.com/2025/04/01/business/dongfeng-changan-china-auto-merger.html
