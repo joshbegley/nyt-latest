@@ -1,4 +1,8 @@
-**NFL announces use of virtual measurement technology for 2025 season**\
+**Trump Said Auto Emissions Don’t Affect the Environment. That’s Not True.**\
+`The president wants to weaken limits on tailpipe pollution. Scientists say it’s driving climate change and taking human lives “every day.”`\
+https://nytimes.com/2025/04/01/climate/trump-auto-emissions.html
+
+**NFL announces use of virtual measurement technology for first downs**\
 `Initial ball placement will still remain in the hands of on-field referees, but six 8K cameras will now confirm the spot of the placement.`\
 https://nytimes.com/athletic/6247338/2025/04/01/nfl-announces-virtual-first-down-measurement-technology/
 
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/04/01/us/elections/results-florida-special.
 **Wisconsin Spring Election Results**\
 `Get live results and maps from the 2025 Wisconsin Spring elections.`\
 https://nytimes.com/interactive/2025/04/01/us/elections/results-wisconsin.html
-
-**Wisconsin Superintendent of Public Instruction Election Results**\
-`Get live results and maps from the 2025 Wisconsin general election.`\
-https://nytimes.com/interactive/2025/04/01/us/elections/results-wisconsin-superintendent-of-public-instruction.html
 
