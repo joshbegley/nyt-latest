@@ -1,3 +1,7 @@
+**Dodgers' Freddie Freeman tweaks surgically-repaired ankle during shower 'mishap'**\
+`Freeman wasn't in the Dodgers' lineup for Monday night's game against the Braves but isn't expected to miss much time.`\
+https://nytimes.com/athletic/6245659/2025/03/31/dodgers-freddie-freeman-ankle-injury-shower/
+
 **Coastal Carolina offering free concessions at home football games in 2025**\
 `Fans can make unlimited visits and are only required to scan each trip through an athletic department app.`\
 https://nytimes.com/athletic/6245674/2025/03/31/coastal-carolina-football-concessions-2025/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/6245674/2025/03/31/coastal-carolina-football-conces
 `Elon Musk sees the state’s Supreme Court race as a way of preserving Republicans’ power in Washington.`\
 https://nytimes.com/2025/03/31/us/politics/elon-musk-wisconsin.html
 
-**Crucial Week for Trump: New Tariffs and State Elections Will Test His Momentum**\
+**Crucial Week for Trump: New Tariffs and Elections Will Test His Momentum**\
 `Down-ballot races in Florida and Wisconsin are seen as a referendum on the White House, while the president’s to-be-announced reciprocal tariff plan is increasingly worrying investors and consumers.`\
 https://nytimes.com/2025/03/31/us/politics/trump-florida-wisconsin-tariffs.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6245477/2025/03/31/elliot-cadeau-transfers-michigan
 **Astronauts Emphasize Gratitude as NASA Contends With Uncertainty**\
 `Suni Williams and Butch Wilmore spoke in their first news conference since returning to Earth two weeks ago from an unexpectedly long I.S.S. stay that lasted more than nine months.`\
 https://nytimes.com/2025/03/31/science/nasa-astronauts-stuck-space-press-conference.html
-
-**OpenAI Completes Deal That Values Company at $300 Billion**\
-`The start-up’s valuation, which has nearly doubled in six months, shows continued enthusiasm for A.I. among investors.`\
-https://nytimes.com/2025/03/31/technology/openai-valuation-300-billion.html
 
