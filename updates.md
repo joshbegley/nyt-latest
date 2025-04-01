@@ -1,3 +1,7 @@
+**Torpedo effect: Victus, Marucci and Chandler all begin selling the uniquely shaped bats**\
+`The three retailers have made their versions of the torpedo bat available to consumers.`\
+https://nytimes.com/athletic/6245704/2025/03/31/torpedo-bats-sale-victus-marucci-chandler-yankees/
+
 **Edmundo Sosa, Phillies' home opener hero, rewards Rob Thomson's trust**\
 `"Right man, right spot": Until Sosa's swing, a packed house didn't have much to celebrate other than the unusual warmth in South Philly.`\
 https://nytimes.com/athletic/6245720/2025/03/31/edmundo-sosa-phillies-home-opener/

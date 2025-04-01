@@ -1,3 +1,7 @@
+**Torpedo effect: Victus, Marucci and Chandler all begin selling the uniquely shaped bats**\
+`The three retailers have made their versions of the torpedo bat available to consumers.`\
+https://nytimes.com/athletic/6245704/2025/03/31/torpedo-bats-sale-victus-marucci-chandler-yankees/
+
 **Edmundo Sosa, Phillies' home opener hero, rewards Rob Thomson's trust**\
 `"Right man, right spot": Until Sosa's swing, a packed house didn't have much to celebrate other than the unusual warmth in South Philly.`\
 https://nytimes.com/athletic/6245720/2025/03/31/edmundo-sosa-phillies-home-opener/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6245664/2025/03/31/braves-reynaldo-lopez-shoulder-i
 **U.S. Tied Migrants to Gang Based Largely on Clothes or Tattoos, Papers Show**\
 `The court papers suggest that the administration has set a low bar for seeking the removal of the Venezuelan migrants, whom officials have described as belonging to the street gang, Tren de Aragua.`\
 https://nytimes.com/2025/03/31/us/politics/us-deportations-tren-de-aragua-deportation-guidance.html
-
-**Minnesota Student Detained by ICE Was Not an Activist, Lawsuit Says**\
-`Lawyers and experts say the arrest last week of a University of Minnesota graduate student may signal a new front in the Trump administration’s approach to immigration.`\
-https://nytimes.com/2025/03/31/us/minnesota-student-immigration-arrest.html
 
