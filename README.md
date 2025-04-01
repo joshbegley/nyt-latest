@@ -1,3 +1,7 @@
+**Why Argentina's FA is strengthening its footprint in the USA**\
+`Winning another major international trophy is top of the mind for Argentina's federation, but that's not all`\
+https://nytimes.com/athletic/6235914/2025/04/01/argentina-fa-soccer-united-states-new-york-world-cup-messi/
+
 **Trump Says He’s Settled on Tariff Plan, Sending Fresh Jitters Through Markets**\
 `The president did not reveal the details of his plan to impose reciprocal tariffs on Wednesday but suggested he would move ahead with import taxes on trading partners.`\
 https://nytimes.com/2025/04/01/us/politics/trump-tariffs-stock-market.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/01/books/review/bad-nature-ariel-courage.html
 **Johnson Moves to Block a Bill Allowing New Parents in the House to Vote by Proxy**\
 `It was not clear whether the speaker would be able to peel off enough Republicans to prevent the measure from coming up because a majority of House members want to consider it.`\
 https://nytimes.com/2025/04/01/us/politics/house-proxy-voting-parents.html
-
-**Meet the Beatles! (The Movie Version, at Least)**\
-`The director Sam Mendes announced the stars of his four-film series, each told from the perspective of a different Beatle, set to be released in 2028.`\
-https://nytimes.com/2025/04/01/movies/beatles-biopic-movie-cast-mendes-mescal-keoghan-dickinson-quinn.html
 
