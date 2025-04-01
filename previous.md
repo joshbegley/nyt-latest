@@ -1,3 +1,7 @@
+**Pentagon Eliminates Lower Fitness Standards for Women in Combat Roles**\
+`Pete Hegseth, the defense secretary, mandated that physical fitness requirements for combat jobs be “sex-neutral,” a move that is likely to significantly reduce the number of women who qualify.`\
+https://nytimes.com/2025/03/31/us/politics/hegseth-fitness-standards-military-combat-roles.html
+
 **South Korea’s President Will Learn His Fate on Friday**\
 `The Constitutional Court will announce on Friday whether Yoon Suk Yeol, who was impeached in December for declaring martial law, will be permanently removed from office or restored to power.`\
 https://nytimes.com/2025/03/31/world/asia/south-korea-yoon-impeach-court.html
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/6245893/2025/03/31/red-sox-garrett-crochet-extensio
 https://nytimes.com/2025/03/31/crosswords/daily-puzzle-2025-04-01.html
 
 **A's owner John Fisher says he's confident, not nervous, as team begins Sacramento tenure**\
-`Will construction on a new ballpark in Las Vegas start this summer? "I only hope so," said the A's owner.`\
+`Will construction on a new ballpark in Las Vegas start this summer? "I only hope so," the A's owner said.`\
 https://nytimes.com/athletic/6245853/2025/03/31/athletics-owner-john-fisher-sacramento/
 
 **Corrections: April 1, 2025**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6245747/2025/03/31/texas-tcu-elite-eight-womens-bas
 **Torpedo effect: Victus, Marucci and Chandler all begin selling the uniquely shaped bats**\
 `The three retailers have made their versions of the torpedo bat available to consumers.`\
 https://nytimes.com/athletic/6245704/2025/03/31/torpedo-bats-sale-victus-marucci-chandler-yankees/
-
-**Edmundo Sosa, Phillies' home opener hero, rewards Rob Thomson's trust**\
-`"Right man, right spot": Until Sosa's swing, a packed house didn't have much to celebrate other than the unusual warmth in South Philly.`\
-https://nytimes.com/athletic/6245720/2025/03/31/edmundo-sosa-phillies-home-opener/
 

@@ -1,3 +1,11 @@
+**Pentagon Eliminates Lower Fitness Standards for Women in Combat Roles**\
+`Pete Hegseth, the defense secretary, mandated that physical fitness requirements for combat jobs be “sex-neutral,” a move that is likely to significantly reduce the number of women who qualify.`\
+https://nytimes.com/2025/03/31/us/politics/hegseth-fitness-standards-military-combat-roles.html
+
+**A's owner John Fisher says he's confident, not nervous, as team begins Sacramento tenure**\
+`Will construction on a new ballpark in Las Vegas start this summer? "I only hope so," the A's owner said.`\
+https://nytimes.com/athletic/6245853/2025/03/31/athletics-owner-john-fisher-sacramento/
+
 **South Korea’s President Will Learn His Fate on Friday**\
 `The Constitutional Court will announce on Friday whether Yoon Suk Yeol, who was impeached in December for declaring martial law, will be permanently removed from office or restored to power.`\
 https://nytimes.com/2025/03/31/world/asia/south-korea-yoon-impeach-court.html
