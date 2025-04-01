@@ -1,3 +1,15 @@
+**Turnout Strong as Wisconsin Decides Key Court Contest**\
+`Officials expect more than two million people will vote in the election, which will decide the partisan balance on the state’s Supreme Court. Many voters cite Elon Musk as a factor in the race.`\
+https://nytimes.com/2025/04/01/us/elections/wisconsin-supreme-court-election-turnout.html
+
+**Huset Pops Up at the Standard, East Village, With Flavors From Mexico City**\
+`Hakata TonTon serves hot pot at Cha Kee, a new shop focuses on the bureka and more restaurant news.`\
+https://nytimes.com/2025/04/01/dining/nyc-restaurant-news.html
+
+**Semi-automated offside technology is finally coming to the Premier League – this is how it works**\
+`SAOT finally reaches English top-flight football this month, with the technology due to be introduced for matchday 32`\
+https://nytimes.com/athletic/6246598/2025/04/01/semi-automated-offside-technology-premier-league/
+
 **Joe DePugh, who inspired Bruce Springsteen’s ‘Glory Days,’ dies at 75**\
 `DePugh and Springsteen ran into each other in 1973 outside a bar in Neptune City, N.J. Over a decade later, “Glory Days” hit the airwaves.`\
 https://nytimes.com/athletic/6247018/2025/04/01/joe-depugh-bruce-springsteen-glory-days-dies/
@@ -20,21 +32,9 @@ https://nytimes.com/athletic/6247070/2025/04/01/pat-mcafee-ole-miss-until-saturd
 
 **Watchdog Agency to Investigate Attempted Cuts to Fair Housing Groups**\
 `The inquiry is another roadblock to efforts by HUD and DOGE to slash funds earmarked for the enforcement of the Fair Housing Act.`\
-https://nytimes.com/2025/04/01/realestate/01fair-housing-investigation.html
+https://nytimes.com/2025/04/01/realestate/fair-housing-investigation.html
 
 **Extension takeaways: What deals for Garrett Crochet, Cal Raleigh, others mean for the market**\
 `Breaking down what the recent extensions for Crochet, Raleigh, Bibee, Pfaadt and Kirk might mean for other similar players. `\
 https://nytimes.com/athletic/6247081/2025/04/01/mlb-extension-takeaways-garrett-crochet-cal-raleigh/
-
-**Democratic Voters Are Prepared to Fight Back, but Is the Party Ready?**\
-`The party’s rank and file are angry and searching for a Democrat who can lead the way.`\
-https://nytimes.com/2025/04/01/us/democratic-voters-party-fight-gop.html
-
-**PL confirms semi-automated offside technology to be introduced this season**\
-`Semi-automated offside technology (SAOT) was introduced to major competitions in 2022, but did not debut in England until this season.`\
-https://nytimes.com/athletic/6235090/2025/04/01/semi-automated-offside-premier-league/
-
-**Bill Parcells to be inducted into Patriots Hall of Fame**\
-`Owner Robert Kraft announced that, after an at-times tumultuous relationship with the franchise, Parcells will be inducted this year.`\
-https://nytimes.com/athletic/6246908/2025/04/01/bill-parcells-new-england-patriots-hall-of-fame/
 
