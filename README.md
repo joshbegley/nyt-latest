@@ -1,3 +1,11 @@
+**Israel Strikes Suburb in Beirut**\
+`The Israeli military said it was targeting a member of Hezbollah in an area near Lebanon’s capital that is a stronghold for the militant group.`\
+https://nytimes.com/video/world/middleeast/100000010084465/israel-strike-lebanon-beirut.html
+
+**Carson Kelly notches first cycle of 2025 MLB season; first for Cubs since 1993**\
+`In an 18-3 victory over the Athletics, Kelly homered to lead off the fourth, singled in the fifth and doubled in the sixth.`\
+https://nytimes.com/athletic/6246108/2025/04/01/carson-kelly-cubs-cycle/
+
 **The New York Times in Print for Tuesday, April 1, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/04/01/todays-new-york-times
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6245968/2025/04/01/pete-alonso-grand-slam-mets-win/
 **Statement reveals Levy's mood has changed, but Spurs' summer strategy will remain the same**\
 `The key message ahead of summer is to double down but try to do it better`\
 https://nytimes.com/athletic/6236458/2025/04/01/tottenham-financial-statement-levy/
-
-**Inside Newcastle Q&A: Isak contract rumour, Mitchell's target strategy and summer departures**\
-`Chris Waugh answers questions about the stadium plans, post-celebration hangover and Callum Wilson's future`\
-https://nytimes.com/athletic/6243717/2025/04/01/newcastle-qa-isak-mitchell-contracts-stadium/
-
-**Manchester City's 'easy' nine-game pathway back to the Champions League**\
-`The statistics show that City have the Premier League's most forgiving run-in this season. In a competitive division, they may well need it`\
-https://nytimes.com/athletic/6243907/2025/04/01/manchester-city-champions-league-run-in/
 
