@@ -1,3 +1,11 @@
+**Oakland native Nico Hoerner wishes A's team still played there: 'I feel for...sports fans'**\
+`“All three teams being gone in a very short span is a hard hit to an entire community," Hoerner said of the MLB, NBA and NFL exits.`\
+https://nytimes.com/athletic/6245867/2025/03/31/oakland-native-nico-hoerner-athletics-move-reaction/
+
+**Notre Dame's Olivia Miles entering transfer portal, forgoing draft**\
+`The senior averaged a career-best and team second-best 15.4 points this season. Her 5.8 assists per game were a team-high.`\
+https://nytimes.com/athletic/6245915/2025/03/31/notre-dame-olivia-miles-transfer-portal/
+
 **Read the Alabama Judge’s Ruling**\
 `A federal judge ruled that Alabama could not prosecute doctors and reproductive health organizations for helping patients travel out of the state to obtain abortions.`\
 https://nytimes.com/interactive/2025/03/31/us/alabama-abortion-prosecution.html
