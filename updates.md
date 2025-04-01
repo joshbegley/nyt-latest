@@ -1,3 +1,11 @@
+**Trump-Allied Prosecutor Looks to Undermine Biden Pardons**\
+`In an unorthodox move, Ed Martin, the interim U.S. attorney in Washington, is questioning Biden’s family and former White House officials about clemency.`\
+https://nytimes.com/2025/04/01/us/politics/trump-prosecutor-biden-pardons.html
+
+**Bengals' Katie Blackburn addresses staying downtown, seeks 'more urgency' for stadium deal**\
+`Cincinnati's executive VP says the team wants to stay in a renovated Paycor Stadium but a June 30 deadline looms to agree to a deal.`\
+https://nytimes.com/athletic/6248228/2025/04/01/bengals-evp-katie-blackburn-stadium-deal/
+
 **Legacy Motor Club sues RWR over NASCAR charter purchase gone awry**\
 `Team owned by Jimmie Johnson accuses RWR of backing out of deal to purchase charter, which are typically valued at up to $40 million.`\
 https://nytimes.com/athletic/6248277/2025/04/01/nascar-lawsuit-charter-purchase/

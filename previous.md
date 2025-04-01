@@ -1,3 +1,11 @@
+**Trump-Allied Prosecutor Looks to Undermine Biden Pardons**\
+`In an unorthodox move, Ed Martin, the interim U.S. attorney in Washington, is questioning Biden’s family and former White House officials about clemency.`\
+https://nytimes.com/2025/04/01/us/politics/trump-prosecutor-biden-pardons.html
+
+**Bengals' Katie Blackburn addresses staying downtown, seeks 'more urgency' for stadium deal**\
+`Cincinnati's executive VP says the team wants to stay in a renovated Paycor Stadium but a June 30 deadline looms to agree to a deal.`\
+https://nytimes.com/athletic/6248228/2025/04/01/bengals-evp-katie-blackburn-stadium-deal/
+
 **Legacy Motor Club sues RWR over NASCAR charter purchase gone awry**\
 `Team owned by Jimmie Johnson accuses RWR of backing out of deal to purchase charter, which are typically valued at up to $40 million.`\
 https://nytimes.com/athletic/6248277/2025/04/01/nascar-lawsuit-charter-purchase/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6248055/2025/04/01/calais-campbell-free-agency-sign
 **NASCAR penalizes Sammy Smith for intentional wreck during Xfinity Series**\
 `Smith received the same points penalty as Cup Series driver Austin Cindric, who intentionally wrecked a competitor last month.`\
 https://nytimes.com/athletic/6248094/2025/04/01/nascar-sammy-smith-penalty-fine-wreck-martinsville/
-
-**Forest's Aina set for injury scan**\
-`The defender went down and had to be withdrawn in the 39th minute of the game against Manchester United.`\
-https://nytimes.com/athletic/6247995/2025/04/01/ola-aina-injury-nottingham-forest/
-
-**How Tariffs Could Affect Everyday Americans**\
-`(No description)`\
-https://nytimes.com/card/watch/2025/04/01/us/politics/reporter-trump-tariff-explainers
 
