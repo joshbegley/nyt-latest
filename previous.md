@@ -1,3 +1,11 @@
+**Liverpool need to remind the world why they are the best team in England**\
+`Arne Slot's side must forget their recent wobbles and deliver an emphatic end to the Premier League season`\
+https://nytimes.com/athletic/6243947/2025/04/01/liverpool-best-team-england/
+
+**Doug Emhoff’s Law Firm Is Said to Be Trump’s Next Target**\
+`The firm, Willkie Farr & Gallagher, also employs a top investigator for the congressional committee that documented President Trump’s role in the Jan. 6, 2021, attack on the U.S. Capitol.`\
+https://nytimes.com/2025/04/01/us/politics/trump-law-firm-doug-emhoff-wilkie-farr-gallagher.html
+
 **A Graphic Coat of Many Colors**\
 `They included yellow, red, green, brown and blue.`\
 https://nytimes.com/2025/04/01/style/street-style-look-spring-colors.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/01/world/europe/pope-francis-health-vatican.html
 **Iceland Volcano Eruption Threatens Town**\
 `The eruption began near Grindavik, a small town long threatened by volcanic disruptions, and prompted the closure of a popular tourist destination.`\
 https://nytimes.com/2025/04/01/world/europe/iceland-volcano-eruption-grindavik.html
-
-**Icelandic Volcano Eruption Threatens Nearby Town**\
-`Iceland’s Civil Defense captured aerial footage on Tuesday after a volcano erupted near Grindavik in the country’s southwest.`\
-https://nytimes.com/video/world/europe/100000010084748/icelandic-volcano-eruption-threatens-nearby-town.html
-
-**Hooters Files for Bankruptcy, but Its Restaurants Will Stay Open**\
-`A group that includes the restaurant’s founders will buy restaurants from the private equity firm that owns many locations of the chain.`\
-https://nytimes.com/2025/04/01/business/hooters-restaurant-bankruptcy.html
 

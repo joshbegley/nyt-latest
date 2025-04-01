@@ -1,3 +1,11 @@
+**Liverpool need to remind the world why they are the best team in England**\
+`Arne Slot's side must forget their recent wobbles and deliver an emphatic end to the Premier League season`\
+https://nytimes.com/athletic/6243947/2025/04/01/liverpool-best-team-england/
+
+**Doug Emhoff’s Law Firm Is Said to Be Trump’s Next Target**\
+`The firm, Willkie Farr & Gallagher, also employs a top investigator for the congressional committee that documented President Trump’s role in the Jan. 6, 2021, attack on the U.S. Capitol.`\
+https://nytimes.com/2025/04/01/us/politics/trump-law-firm-doug-emhoff-wilkie-farr-gallagher.html
+
 **A Graphic Coat of Many Colors**\
 `They included yellow, red, green, brown and blue.`\
 https://nytimes.com/2025/04/01/style/street-style-look-spring-colors.html
