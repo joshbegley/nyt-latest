@@ -7,7 +7,7 @@ https://nytimes.com/2025/03/31/us/politics/hegseth-fitness-standards-military-co
 https://nytimes.com/2025/03/31/world/asia/south-korea-yoon-impeach-court.html
 
 **Red Sox, Garrett Crochet agree to six-year, $170 million extension: Source**\
-`Crochet is the Red Sox new No. 1 starter and now he'll be around for the long-haul.`\
+`Crochet is the Red Sox's new No. 1 starter and now he'll be around for the long haul.`\
 https://nytimes.com/athletic/6245893/2025/03/31/red-sox-garrett-crochet-extension/
 
 **Long Stretch**\
@@ -15,7 +15,7 @@ https://nytimes.com/athletic/6245893/2025/03/31/red-sox-garrett-crochet-extensio
 https://nytimes.com/2025/03/31/crosswords/daily-puzzle-2025-04-01.html
 
 **A's owner John Fisher says he's confident, not nervous, as team begins Sacramento tenure**\
-`Will construction on a new ballpark in Las Vegas start this summer? "I only hope so," the A's owner said.`\
+`Will construction on a new ballpark in Las Vegas start this summer? "I hope so," the A's owner said.`\
 https://nytimes.com/athletic/6245853/2025/03/31/athletics-owner-john-fisher-sacramento/
 
 **Corrections: April 1, 2025**\
