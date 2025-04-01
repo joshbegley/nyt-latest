@@ -1,3 +1,15 @@
+**Fired Federal Workers Ask Senators to Stand Up for Them**\
+`Former federal employees went to a Capitol Hill basement to find the lawmakers. Democratic senators said that they would keep fighting as hard as they could. Most Republicans ignored the workers.`\
+https://nytimes.com/2025/04/01/us/politics/federal-worker-protests.html
+
+**Musk Again Misleads on Social Security Fraud**\
+`The world’s richest man misstated a statistic from the Social Security Administration to once again overstate fraud in the program.`\
+https://nytimes.com/2025/04/01/us/politics/elon-musk-social-security-fraud.html
+
+**In Adams Case, Some Say It’s Not the Time for Narrow Reading of the Law**\
+`Some legal observers say the court-appointed expert who recommended dismissing charges against Mayor Eric Adams failed to account for the extraordinary factors in the case.`\
+https://nytimes.com/2025/04/01/nyregion/adams-corruption-clement-dismiss.html
+
 **7-Year-Old Girl Is Killed by Falling Boulder at Lake Tahoe Ski Resort**\
 `The child was at the Diamond Peak Ski Resort, which said in a statement that she had not been skiing at the time it happened.`\
 https://nytimes.com/2025/04/01/us/child-killed-lake-tahoe-diamond-peak-ski-resort.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/01/us/politics/elon-musk-pennsylvania-petition-lawsu
 **G.O.P. Leaders Can’t Do Even Easy Pro-Family Policy in Congress**\
 `What on earth are Republican leaders thinking in trying to stop a Republican proposal to make it easier for new parents to vote in Congress?`\
 https://nytimes.com/2025/04/01/opinion/anna-paulina-luna-mike-johnson-parental-voting.html
-
-**The Briefing: Nottingham Forest 1 Man Utd 0 - How Elanga's seven touches in nine seconds cut Amorim's team apart**\
-`Analysis of Nottingham Forest's victory over Manchester United in the Premier League`\
-https://nytimes.com/athletic/6243965/2025/04/01/nottingham-forest-manchester-united-elanga-goal/
-
-**Wednesday Briefing: An Elections Test for Trump**\
-`Plus, the enigmatic “goddess” of the piano.`\
-https://nytimes.com/2025/04/01/briefing/trump-elections-israel-un-gaza-bangladesh-extremism.html
-
-**Great Spaces**\
-``\
-https://nytimes.com/series/great-spaces
 
