@@ -1,40 +1,40 @@
-**Kasatkina on switching Russia for Australia: 'If I want to be myself, I have to make this step'**\
-`Kasatkina says she “didn’t have much choice” but to defect from her home country of Russia.`\
-https://nytimes.com/athletic/6246277/2025/04/01/daria-kasatkina-australia-russia/
+**Democrats May Be Down, but Their Appetite for Voting Hasn’t Dimmed**\
+`They have had strong turnout in special elections and in the early voting for today’s elections.`\
+https://nytimes.com/2025/04/01/upshot/special-elections-democrats-voting.html
 
-**Padres stars voice support for ex-teammate Profar as he begins suspension**\
-`Profar will serve an 80-game suspension after testing positive for a banned substance.`\
-https://nytimes.com/athletic/6246243/2025/04/01/jurickson-profar-suspension-braves-padres/
+**Chiefs thrilled about the return of Travis Kelce, who is 'training like crazy'**\
+`The Chiefs likely will reduce Kelce's snaps in 2025, plus Patrick Mahomes' new look and the plan for Trey Smith.`\
+https://nytimes.com/athletic/6245504/2025/04/01/chiefs-travis-kelce-andy-reid-owners-meetings/
 
-**Rutter and Webster could miss remainder of season through injury**\
-`Both players suffered injuries in normal time in Saturday's exit from the FA Cup against Nottingham Forest.`\
-https://nytimes.com/athletic/6246283/2025/04/01/brighton-rutter-webster-injury-news/
+**‘Our 2028 Nominee Will Need to Come From America, Not Washington’**\
+`What Democrats need to do now will not be very easily done.`\
+https://nytimes.com/2025/04/01/opinion/democrats-bennet-david-shor.html
 
-**SpaceX Launches First Crewed Flight Over Earth’s Poles**\
-`Four private astronauts lifted off from Florida on Monday on the Fram2 mission to orbit Earth from pole to pole.`\
-https://nytimes.com/video/science/space/100000010084367/space-mission-polar-orbit.html
+**The Message Pete Hegseth Sends the Troops**\
+`Last week’s report that the defense secretary shared sensitive information on an unclassified messaging app is now straining the limits of his credibility.`\
+https://nytimes.com/2025/04/01/opinion/pete-hegseth-signal-app.html
 
-**U.S. Sanctions Chinese and Hong Kong Officials for Pursuing Activists Abroad**\
-`China’s former top spy catcher is among six security enforcers targeted as the Trump administration turns its attention to human rights issues in the city.`\
-https://nytimes.com/2025/04/01/world/asia/china-hong-kong-sanctions.html
+**Pranks**\
+`How do you feel about them?`\
+https://nytimes.com/2025/04/01/learning/pranks.html
 
-**New Zealand Rugby and INEOS reach settlement over sponsorship dispute**\
-`Sir Jim Ratcliffe’s petrochemical firm had been seeking to renegotiate their performance partnership with the governing body.`\
-https://nytimes.com/athletic/6246218/2025/04/01/new-zealand-rugby-ineos-sponsorship/
+**Amazon’s New Movie Strategy Starts With Theaters**\
+`The streaming giant is planning to release at least 14 movies a year in theaters around the country, rivaling other major studios.`\
+https://nytimes.com/2025/04/01/business/media/amazon-movies-theaters.html
 
-**Jon Stewart: Trump Is ‘Trying to Order Off-Menu From the Constitution’**\
-`President Trump says there are “methods” by which he could get a third term. “I think you tried one a few years ago,” the “Daily Show” host quipped.`\
-https://nytimes.com/2025/04/01/arts/television/jon-stewart-trump-third-term.html
+**When Banksy Came to Red Hook and Made His Mark**\
+`A chunk of wall that bears the work of the graffiti artist will go on display in Manhattan this month.`\
+https://nytimes.com/2025/04/01/nyregion/banksy-installation-red-hook.html
 
-**Princeton Senior, Accused of Assault During Protest, Braces for Verdict**\
-`A judge is expected to decide Tuesday whether David Piegaro is guilty of assaulting a police officer while recording pro-Palestinian campus demonstrations last year.`\
-https://nytimes.com/2025/04/01/nyregion/gaza-protests-princeton-student-arrested.html
+**What I Learned About Trump’s Second Term by Reading His First 100 Executive Orders**\
+`Even with Republican congressional majorities, Trump favors the flourish of the order over the hassle of lawmaking.`\
+https://nytimes.com/2025/04/01/opinion/trump-executive-orders-presidential-power.html
 
-**Add More N.Y.P.D. Officers to Fight Crime? Mamdani Has Different Ideas.**\
-`Many of the candidates for mayor of New York City support hiring more police officers. Zohran Mamdani has a different public-safety plan.`\
-https://nytimes.com/2025/04/01/nyregion/zohran-mamdani-crime-plan.html
+**As Trump Stokes Uncertainty, the Fed Asks Businesses Where It Hurts**\
+`The central bank’s outreach to companies has taken on new significance as the outlook for growth and inflation gets cloudier.`\
+https://nytimes.com/2025/04/01/business/economy/trump-tariffs-fed-economy.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/04/01/crosswords/spelling-bee-forum.html
+**Layer Your Lighting Design for Drama and Functionality**\
+`Lamps in all shapes and sizes can be used to recast the feel of a room,  brighten dark corners and illuminate your treasures.`\
+https://nytimes.com/2025/04/01/realestate/fix-layered-lighting-design.html
 
