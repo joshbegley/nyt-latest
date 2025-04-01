@@ -1,3 +1,7 @@
+**Cutting Off NPR and PBS**\
+`Republicans say there is no reason for the government to fund the public broadcasters.`\
+https://nytimes.com/2025/04/01/briefing/public-broadcasters-republicans-npr-pbs.html
+
 **Merseyside Derby betting preview: Salah to blitz Everton? Or fouls galore?**\
 `Sam Tighe provides betting insight ahead of this Wednesday’s Merseyside Derby.`\
 https://nytimes.com/athletic/6246417/2025/04/01/premier-league-merseyside-derby-predictions-betting-tips-odds/
