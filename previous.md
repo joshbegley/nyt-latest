@@ -1,3 +1,19 @@
+**Celtics chase history on road after perfect 6-0 trip: 'Our guys are good everywhere'**\
+`The Celtics are two road wins away from tying the Warriors for the best road record in a single season.`\
+https://nytimes.com/athletic/6246059/2025/04/01/celtics-history-road-record-winning/
+
+**Falcons preparing for Kirk Cousins to be backup QB, not expected at OTAs**\
+`Cousins has told coach Raheem Morris he would prefer to be in a situation where he can be the starting quarterback.`\
+https://nytimes.com/athletic/6246731/2025/04/01/kirk-cousins-falcons-backup-qb-raheem-morris/
+
+**The Bounce: Tired of NBA teams tanking? Here's how to solve it. Plus, checking in on 2024 rookies**\
+`If you're tired of NBA teams tanking for the draft, Zach Harper has a simple solution to quell the chaos.`\
+https://nytimes.com/athletic/6246531/2025/04/01/nba-draft-tanking-lakers-lebron-james-luka-doncic-nba-the-bounce/
+
+**USWNT's Rodman: 'I don't know if my back will ever be 100 percent'**\
+`The 22-year-old has dealt with multiple back injuries since her debut season in the NWSL in 2021.`\
+https://nytimes.com/athletic/6246630/2025/04/01/trinity-rodman-back-injury/
+
 **Weekly Student News Quiz: Earthquake, Security Breach, Baseball Season **\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2025/04/01/learning/01StudentNewsQuizLN.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/04/01/us/politics/maryland-man-deportation-error-el-sal
 **Netanyahu Drops Nominee for Spy Chief After Backlash**\
 `Eli Sharvit was a controversial choice after Israel’s prime minister fired his predecessor. Revelations that he wrote a column criticizing President Trump may have helped sink his chances.`\
 https://nytimes.com/2025/04/01/world/middleeast/israel-netanyahu-trump-shin-bet.html
-
-**Liverpool need to remind the world why they are the best team in England**\
-`Arne Slot's side must forget their recent wobbles and deliver an emphatic end to the Premier League season`\
-https://nytimes.com/athletic/6243947/2025/04/01/liverpool-best-team-england/
-
-**Doug Emhoff’s Law Firm Is Said to Be Trump’s Next Target**\
-`The firm, Willkie Farr & Gallagher, also employs a top investigator for the congressional committee that documented President Trump’s role in the Jan. 6, 2021, attack on the U.S. Capitol.`\
-https://nytimes.com/2025/04/01/us/politics/trump-law-firm-doug-emhoff-wilkie-farr-gallagher.html
-
-**A Graphic Coat of Many Colors**\
-`They included yellow, red, green, brown and blue.`\
-https://nytimes.com/2025/04/01/style/street-style-look-spring-colors.html
-
-**A's home opener in Sacramento had a different — but distinctly minor league — feel**\
-`On the field, the A's were embarrassed by the Chicago Cubs 18-3 as Carson Kelly hit for the cycle.`\
-https://nytimes.com/athletic/6246494/2025/04/01/athletics-opening-day-sacramento-fans/
 
