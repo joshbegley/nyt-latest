@@ -1,3 +1,7 @@
+**Oakland native Nico Hoerner wishes A's team still played there: 'I feel for...sports fans'**\
+`“All three teams being gone in a very short span is a hard hit to an entire community," Hoerner said of the MLB, NBA and NFL exits.`\
+https://nytimes.com/athletic/6245867/2025/03/31/oakland-native-nico-hoerner-athletics-move-reaction/
+
 **Read the Alabama Judge’s Ruling**\
 `A federal judge ruled that Alabama could not prosecute doctors and reproductive health organizations for helping patients travel out of the state to obtain abortions.`\
 https://nytimes.com/interactive/2025/03/31/us/alabama-abortion-prosecution.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/31/crosswords/daily-puzzle-2025-04-01.html
 **A's owner John Fisher says he's confident, not nervous, as team begins Sacramento tenure**\
 `Will construction on a new ballpark in Las Vegas start this summer? "I hope so," the A's owner said.`\
 https://nytimes.com/athletic/6245853/2025/03/31/athletics-owner-john-fisher-sacramento/
-
-**Corrections: April 1, 2025**\
-`Corrections that appeared in print on Tuesday, April 1, 2025.`\
-https://nytimes.com/2025/03/31/pageoneplus/corrections-april-1-2025.html
 
