@@ -1,3 +1,11 @@
+**The New York Times in Print for Tuesday, April 1, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/01/todays-new-york-times
+
+**Trump’s Ukraine Betrayal Is a Reality Check for Taiwan**\
+`Taiwan can no longer shelter under the delusion that the U.S. will defend it against China.`\
+https://nytimes.com/2025/04/01/opinion/taiwan-china-trump.html
+
 **Tuesday Briefing**\
 `President Trump’s talk of a third term.`\
 https://nytimes.com/2025/04/01/briefing/trump-le-pen-israel.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6243717/2025/04/01/newcastle-qa-isak-mitchell-contr
 **Manchester City's 'easy' nine-game pathway back to the Champions League**\
 `The statistics show that City have the Premier League's most forgiving run-in this season. In a competitive division, they may well need it`\
 https://nytimes.com/athletic/6243907/2025/04/01/manchester-city-champions-league-run-in/
-
-**Skubala interview: 'I didn't realise how big Leeds was - when I left, I definitely knew'**\
-`If not for one freak goal at Goodison Park, Michael Skubala’s tenure as Leeds' interim head coach may have lasted more than three games`\
-https://nytimes.com/athletic/6239273/2025/04/01/leeds-michael-skubala-interview/
-
-**Explained: Arsenal's Gyokeres interest and the impact on Man Utd, Liverpool and Chelsea's plans**\
-`Arsenal have a growing interest in Viktor Gyokeres — but that must have a knock-on effect on the rest of the market`\
-https://nytimes.com/athletic/6244877/2025/04/01/viktor-gyokeres-arsenal-transfer-manchester-united-liverpool-chelsea-latest/
 
