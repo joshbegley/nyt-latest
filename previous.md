@@ -1,3 +1,7 @@
+**Cory Booker Slams Trump’s Policies in Marathon Senate Floor Speech**\
+`The New Jersey senator criticized the president’s plans for Social Security, education and health care, saying the ‘nation is in crisis.’ He was still speaking in the predawn hours.`\
+https://nytimes.com/2025/04/01/us/politics/booker-senate-trump.html
+
 **Browns QB tracker: What Kevin Stefanski, Andrew Berry had to say at league meeting**\
 `The coach and GM outline where things stand, the team's views on the QBs group and why they don't feel rushed to make a decision.`\
 https://nytimes.com/athletic/6245130/2025/04/01/browns-quarterback-tracker-kevin-stefanski-andrew-berry/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/01/business/media/amazon-movies-theaters.html
 **When Banksy Came to Red Hook and Made His Mark**\
 `A chunk of wall that bears the work of the graffiti artist will go on display in Manhattan this month.`\
 https://nytimes.com/2025/04/01/nyregion/banksy-installation-red-hook.html
-
-**What I Learned About Trump’s Second Term by Reading His First 100 Executive Orders**\
-`Even with Republican congressional majorities, Trump favors the flourish of the order over the hassle of lawmaking.`\
-https://nytimes.com/2025/04/01/opinion/trump-executive-orders-presidential-power.html
 

@@ -1,3 +1,7 @@
+**Cory Booker Slams Trump’s Policies in Marathon Senate Floor Speech**\
+`The New Jersey senator criticized the president’s plans for Social Security, education and health care, saying the ‘nation is in crisis.’ He was still speaking in the predawn hours.`\
+https://nytimes.com/2025/04/01/us/politics/booker-senate-trump.html
+
 **Browns QB tracker: What Kevin Stefanski, Andrew Berry had to say at league meeting**\
 `The coach and GM outline where things stand, the team's views on the QBs group and why they don't feel rushed to make a decision.`\
 https://nytimes.com/athletic/6245130/2025/04/01/browns-quarterback-tracker-kevin-stefanski-andrew-berry/
