@@ -1,3 +1,11 @@
+**What stood out in Wisconsin's fifth practice of the spring?**\
+`Six takeaways from Wisconsin's spring practice on Tuesday morning.`\
+https://nytimes.com/athletic/6247528/2025/04/01/wisconsin-spring-football-practice-luke-fickell/
+
+**Voters Cast Ballots in Crucial Wisconsin Supreme Court Race**\
+`The contest between judges Susan Crawford, a liberal, and Brad Schimel, a conservative whose campaign was backed by the billionaire Elon Musk, will tip the balance of the Wisconsin Supreme Court.`\
+https://nytimes.com/video/us/elections/100000010084913/wisconsin-election-voters.html
+
 **Jerry Jones' comments about agent and contract talks prompt Micah Parsons' response**\
 `"The agent doesn’t have one thing to do with what we’re doing when we get on the football field,” Jerry Jones said of the negotiations.`\
 https://nytimes.com/athletic/6247691/2025/04/01/cowboys-micah-parsons-agent-jerry-jones-comment/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6247153/2025/04/01/commanders-adam-peters-dan-quinn
 **A TikTok Trend Tests Toddlers — One Cookie at a Time**\
 `Do these kids know that sharing is caring? The viral challenge seeks to find out.`\
 https://nytimes.com/2025/04/01/well/family/tiktok-cookie-challenge-kids.html
-
-**Immigration Officials Detain Former Taliban Ambassador to Spain**\
-`Mohammad Rahim Wahidi, a lawful permanent resident of the United States, was detained for more than 30 hours upon returning to the country over the weekend.`\
-https://nytimes.com/2025/04/01/us/politics/taliban-ambassador-detained.html
-
-**Seahawks' focus remains on Super Bowl, despite shake-up: 'We can definitely win with Sam'**\
-`Seattle coach Mike Macdonald also discussed the team's draft strategy and why he's confident Riq Woolen will recapture his 2022 magic.`\
-https://nytimes.com/athletic/6247510/2025/04/01/seahawks-sam-darnold-mike-macdonald-owners-meetings/
 
