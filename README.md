@@ -1,3 +1,7 @@
+**Israel’s Military Says It Struck Beirut’s Suburbs**\
+`The attack was the second in less than a week, raising fears that a cease-fire between Israel and Hezbollah could unravel.`\
+https://nytimes.com/2025/03/31/world/middleeast/israel-strike-lebanon-beirut.html
+
 **Pentagon Eliminates Lower Fitness Standards for Women in Combat Roles**\
 `Pete Hegseth, the defense secretary, mandated that physical fitness requirements for combat jobs be “sex-neutral,” a move that is likely to significantly reduce the number of women who qualify.`\
 https://nytimes.com/2025/03/31/us/politics/hegseth-fitness-standards-military-combat-roles.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6198041/2025/03/31/womens-march-madness-projections
 **Texas tops TCU to advance to first Final Four since 2003**\
 `TCU had a historic year as well, as the Horned Frogs had never made a Sweet 16 before.`\
 https://nytimes.com/athletic/6245747/2025/03/31/texas-tcu-elite-eight-womens-basketball/
-
-**Torpedo effect: Victus, Marucci and Chandler all begin selling the uniquely shaped bats**\
-`The three retailers have made their versions of the torpedo bat available to consumers.`\
-https://nytimes.com/athletic/6245704/2025/03/31/torpedo-bats-sale-victus-marucci-chandler-yankees/
 

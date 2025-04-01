@@ -1,3 +1,11 @@
+**Red Sox, Garrett Crochet agree to six-year, $170 million extension: Source**\
+`Crochet is the Red Sox's new No. 1 starter and now he'll be around for the long haul.`\
+https://nytimes.com/athletic/6245893/2025/03/31/red-sox-garrett-crochet-extension/
+
+**A's owner John Fisher says he's confident, not nervous, as team begins Sacramento tenure**\
+`Will construction on a new ballpark in Las Vegas start this summer? "I hope so," the A's owner said.`\
+https://nytimes.com/athletic/6245853/2025/03/31/athletics-owner-john-fisher-sacramento/
+
 **Pentagon Eliminates Lower Fitness Standards for Women in Combat Roles**\
 `Pete Hegseth, the defense secretary, mandated that physical fitness requirements for combat jobs be “sex-neutral,” a move that is likely to significantly reduce the number of women who qualify.`\
 https://nytimes.com/2025/03/31/us/politics/hegseth-fitness-standards-military-combat-roles.html
