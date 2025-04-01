@@ -1,4 +1,8 @@
-**Pete Alonso tunes up for Mets home opener with a grand slam in win over Marlins**\
+**Everton's accounts explained: Friedkin impact, PSR compliance, transfers to come after June 30**\
+`Everton posted a loss for a seventh straight year but having been taken over there is scope and ambition to do more than survive`\
+https://nytimes.com/athletic/6244439/2025/04/01/everton-accounts-friedkin-takeover-stadium-transfers/
+
+**Pete Alonso tunes up for Mets home opener with grand slam in win over Marlins**\
 `After re-signing with New York, Alonso worked on his swing over the winter. He “actually learned how to hit,” coach Eric Chavez said.`\
 https://nytimes.com/athletic/6245968/2025/04/01/pete-alonso-grand-slam-mets-win/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6244860/2025/04/01/malaga-fsg-deal-liverpool/
 **Saka the leader is back...**\
 `Bukayo Saka reached a milestone after playing his 250th Arsenal game. His impact on and off the pitch is only increasing`\
 https://nytimes.com/athletic/5998484/2025/04/01/saka-the-leader-is-back/
-
-**Full Time: USWNT’s gold medal rematch**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/6246024/2025/04/01/uswnt-brazil-friendly-preview-full-time/
 
