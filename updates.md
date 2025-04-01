@@ -1,3 +1,7 @@
+**Long Stretch**\
+`Sande Milton makes his Crossword solo debut in The New York Times.`\
+https://nytimes.com/2025/03/31/crosswords/daily-puzzle-2025-04-01.html
+
 **A's owner John Fisher says he's confident, not nervous, as team begins Sacramento tenure**\
 `Will construction on a new ballpark in Las Vegas start this summer? "I only hope so," said the A's owner.`\
 https://nytimes.com/athletic/6245853/2025/03/31/athletics-owner-john-fisher-sacramento/
