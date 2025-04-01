@@ -1,3 +1,7 @@
+**Read the Alabama Judge’s Ruling**\
+`A federal judge ruled that Alabama cannot prosecute doctors and reproductive health organizations for helping patients travel out of the state to obtain abortions.`\
+https://nytimes.com/interactive/2025/03/31/us/alabama-abortion-prosecution.html
+
 **Notre Dame's Olivia Miles entering transfer portal, forgoing draft**\
 `The senior averaged a career-best and team second-best 15.4 points this season. Her 5.8 assists per game were a team-high.`\
 https://nytimes.com/athletic/6245915/2025/03/31/notre-dames-olivia-miles-transfer-portal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6245853/2025/03/31/athletics-owner-john-fisher-sacr
 **Corrections: April 1, 2025**\
 `Corrections that appeared in print on Tuesday, April 1, 2025.`\
 https://nytimes.com/2025/03/31/pageoneplus/corrections-april-1-2025.html
-
-**NHL, Canadian media company Rogers agree to 12-year, $7.7B TV deal: Reports**\
-`The new agreement will come at the conclusion of the previous 12-year deal agreed to by both parties, which was signed in 2013.`\
-https://nytimes.com/athletic/6245657/2025/03/31/nhl-rogers-sportsnet-broadcasts/
 

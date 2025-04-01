@@ -1,3 +1,7 @@
+**Read the Alabama Judge’s Ruling**\
+`A federal judge ruled that Alabama cannot prosecute doctors and reproductive health organizations for helping patients travel out of the state to obtain abortions.`\
+https://nytimes.com/interactive/2025/03/31/us/alabama-abortion-prosecution.html
+
 **Torpedo bats are making a lot of noise — but they've been quietly in MLB for a few years**\
 `Reds star Elly De La Cruz is the latest convert, hitting two home runs and knocking in seven runs in his first game with the unique bat.`\
 https://nytimes.com/athletic/6245770/2025/03/31/mlb-torpedo-bat-interest-viral/
