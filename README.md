@@ -1,3 +1,11 @@
+**Forest's Aina set for injury scan**\
+`The defender went down and had to be withdrawn in the 39th minute of the game against Manchester United.`\
+https://nytimes.com/athletic/6247995/2025/04/01/ola-aina-injury-nottingham-forest/
+
+**How Tariffs Could Affect Everyday Americans**\
+`(No description)`\
+https://nytimes.com/card/watch/2025/04/01/us/politics/reporter-trump-tariff-explainers
+
 **Trump Expected to Announce Reciprocal Tariffs for Other Countries**\
 `President Trump is expected to announce new tariffs on goods imported from outside the U.S., which could match the levies that other countries place on products made in America.`\
 https://nytimes.com/video/business/economy/100000010085723/trump-tariff-liberation-day.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/01/nyregion/adams-corruption-clement-dismiss.html
 **7-Year-Old Girl Is Killed by Falling Boulder at Lake Tahoe Ski Resort**\
 `The child was at the Diamond Peak Ski Resort, which said in a statement that she had not been skiing at the time it happened.`\
 https://nytimes.com/2025/04/01/us/child-killed-lake-tahoe-diamond-peak-ski-resort.html
-
-**See Which House Members Rejected Johnson’s Effort Against Proxy Voting**\
-`Nine Republicans joined Democrats to force a vote to allow members who had new children to vote by proxy.`\
-https://nytimes.com/interactive/2025/04/01/us/politics/house-vote-johnson-proxy-vote-parents.html
-
-**Garrett Crochet's extension could just be the start of Red Sox locking up their core**\
-`Crochet is now under team control through 2031. The Red Sox have several other young players who could also be in line for new deals.`\
-https://nytimes.com/athletic/6247899/2025/04/01/garrett-crochet-red-sox-future-extensions/
 
