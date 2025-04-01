@@ -1,3 +1,7 @@
+**China Holds Military Exercises Around Taiwan in Fresh Warning**\
+`The drills came after Taiwan’s president, Lai Ching-te, announced measures to counter China’s influence and espionage. Beijing also wants to send a message to Washington, analysts said.`\
+https://nytimes.com/2025/04/01/world/asia/china-taiwan-military-drills.html
+
 **Israel Strikes Suburb in Beirut**\
 `The Israeli military said it was targeting a member of Hezbollah in an area near Lebanon’s capital that is a stronghold for the militant group.`\
 https://nytimes.com/video/world/middleeast/100000010084465/israel-strike-lebanon-beirut.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6244439/2025/04/01/everton-accounts-friedkin-takeov
 **Pete Alonso tunes up for Mets home opener with grand slam in win over Marlins**\
 `With 227 career home runs, Alonso needs just 26 more to pass Darryl Strawberry for the Mets franchise record.`\
 https://nytimes.com/athletic/6245968/2025/04/01/pete-alonso-grand-slam-mets-win/
-
-**Statement reveals Levy's mood has changed, but Spurs' summer strategy will remain the same**\
-`The key message ahead of summer is to double down but try to do it better`\
-https://nytimes.com/athletic/6236458/2025/04/01/tottenham-financial-statement-levy/
 

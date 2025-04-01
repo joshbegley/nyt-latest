@@ -1,3 +1,7 @@
+**China Holds Military Exercises Around Taiwan in Fresh Warning**\
+`The drills came after Taiwan’s president, Lai Ching-te, announced measures to counter China’s influence and espionage. Beijing also wants to send a message to Washington, analysts said.`\
+https://nytimes.com/2025/04/01/world/asia/china-taiwan-military-drills.html
+
 **Israel Strikes Suburb in Beirut**\
 `The Israeli military said it was targeting a member of Hezbollah in an area near Lebanon’s capital that is a stronghold for the militant group.`\
 https://nytimes.com/video/world/middleeast/100000010084465/israel-strike-lebanon-beirut.html
