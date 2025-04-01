@@ -1,3 +1,7 @@
+**Coastal Carolina offering free concessions at home football games in 2025**\
+`Fans can make unlimited visits and are only required to scan each trip through an athletic department app.`\
+https://nytimes.com/athletic/6245674/2025/03/31/coastal-carolina-football-concessions-2025/
+
 **What’s at Stake in Wisconsin**\
 `Elon Musk sees the state’s Supreme Court race as a way of preserving Republicans’ power in Washington.`\
 https://nytimes.com/2025/03/31/us/politics/elon-musk-wisconsin.html
