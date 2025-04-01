@@ -1,3 +1,7 @@
+**A Symbol of a City’s Rapid Growth Comes Crashing Down**\
+`The collapse of the Sky Villa complex in the Myanmar city of Mandalay buried an unknown number of people amid the earthquake on Friday that killed more than 2,700.`\
+https://nytimes.com/2025/04/01/world/asia/myanmar-mandalay-earthquake-condo.html
+
 **Raptors predictions revisited: The small victories, big losers and Drake**\
 `Our fearless Raptors reporter Eric Koreen was better at tanking than the team he covers.`\
 https://nytimes.com/athletic/6244876/2025/04/01/raptors-predictions-2025-revisited/

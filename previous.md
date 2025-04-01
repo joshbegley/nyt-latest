@@ -1,3 +1,7 @@
+**A Symbol of a City’s Rapid Growth Comes Crashing Down**\
+`The collapse of the Sky Villa complex in the Myanmar city of Mandalay buried an unknown number of people amid the earthquake on Friday that killed more than 2,700.`\
+https://nytimes.com/2025/04/01/world/asia/myanmar-mandalay-earthquake-condo.html
+
 **Raptors predictions revisited: The small victories, big losers and Drake**\
 `Our fearless Raptors reporter Eric Koreen was better at tanking than the team he covers.`\
 https://nytimes.com/athletic/6244876/2025/04/01/raptors-predictions-2025-revisited/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6246053/2025/04/01/anthony-davis-mavericks-daniel-g
 **Cutting Off NPR and PBS**\
 `Republicans say there is no reason for the government to fund the public broadcasters.`\
 https://nytimes.com/2025/04/01/briefing/public-broadcasters-republicans-npr-pbs.html
-
-**Merseyside Derby betting preview: Salah to blitz Everton? Or fouls galore?**\
-`Sam Tighe provides betting insight ahead of this Wednesday’s Merseyside Derby.`\
-https://nytimes.com/athletic/6246417/2025/04/01/premier-league-merseyside-derby-predictions-betting-tips-odds/
 
