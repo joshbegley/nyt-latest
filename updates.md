@@ -1,3 +1,15 @@
+**Bongino Tells F.B.I. He Is Not Partisan**\
+`The F.B.I.’s No. 2 official said he would rise above partisanship, an admission that reflected skepticism among former and current agents about whether he would maintain the bureau’s independence.`\
+https://nytimes.com/2025/04/01/us/politics/dan-bongino-fbi-partisan.html
+
+**Aaron Glenn has a plan to fix the Jets' culture — it starts with silence**\
+`This offseason has revealed plenty about the first-year head coach's vision.`\
+https://nytimes.com/athletic/6247525/2025/04/01/aaron-glenn-jets-new-culture/
+
+**It’s Still April Fools’ Day on Social Media**\
+`We’re really still doing this?`\
+https://nytimes.com/2025/04/01/style/april-fools-day-posts-social-media.html
+
 **5 Takeaways From the Hearing for Trump’s Joint Chiefs Chairman Pick**\
 `Democrats seemed to view Lt. Gen. Dan Caine as perhaps the best possible option, under the circumstances. Republicans embraced him.`\
 https://nytimes.com/2025/04/01/us/politics/dan-caine-chairman-hearing.html

@@ -1,3 +1,15 @@
+**Bongino Tells F.B.I. He Is Not Partisan**\
+`The F.B.I.’s No. 2 official said he would rise above partisanship, an admission that reflected skepticism among former and current agents about whether he would maintain the bureau’s independence.`\
+https://nytimes.com/2025/04/01/us/politics/dan-bongino-fbi-partisan.html
+
+**Aaron Glenn has a plan to fix the Jets' culture — it starts with silence**\
+`This offseason has revealed plenty about the first-year head coach's vision.`\
+https://nytimes.com/athletic/6247525/2025/04/01/aaron-glenn-jets-new-culture/
+
+**It’s Still April Fools’ Day on Social Media**\
+`We’re really still doing this?`\
+https://nytimes.com/2025/04/01/style/april-fools-day-posts-social-media.html
+
 **5 Takeaways From the Hearing for Trump’s Joint Chiefs Chairman Pick**\
 `Democrats seemed to view Lt. Gen. Dan Caine as perhaps the best possible option, under the circumstances. Republicans embraced him.`\
 https://nytimes.com/2025/04/01/us/politics/dan-caine-chairman-hearing.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6247528/2025/04/01/wisconsin-spring-football-practi
 **Voters Cast Ballots in Crucial Wisconsin Supreme Court Race**\
 `The contest between judges Susan Crawford, a liberal, and Brad Schimel, a conservative whose campaign was backed by the billionaire Elon Musk, will tip the balance of the Wisconsin Supreme Court.`\
 https://nytimes.com/video/us/elections/100000010084913/wisconsin-election-voters.html
-
-**Jerry Jones' comments about agent and contract talks prompt Micah Parsons' response**\
-`"The agent doesn’t have one thing to do with what we’re doing when we get on the football field,” Jerry Jones said of the negotiations.`\
-https://nytimes.com/athletic/6247691/2025/04/01/cowboys-micah-parsons-agent-jerry-jones-comment/
-
-**More than 230 People Infected With Norovirus on Luxury Cruise Ship**\
-`Passengers and crew traveling on the Queen Mary 2 from England to the Caribbean reported symptoms of diarrhea and vomiting.`\
-https://nytimes.com/2025/04/01/travel/norovirus-cruise-cunard-line-ship.html
-
-**What the Falcons are saying about their amicable standoff with Kirk Cousins**\
-`Cousins has told coach Raheem Morris he would prefer to be in a situation where he can be the starting quarterback.`\
-https://nytimes.com/athletic/6246731/2025/04/01/kirk-cousins-falcons-backup-qb-raheem-morris/
 
