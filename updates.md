@@ -1,3 +1,7 @@
+**Johnson & Johnson Loses in Court Again in Bid to Settle Talc Cases**\
+`A judge dismissed an attempt to use a bankruptcy court to resolve tens of thousands of claims that the company’s talcum power products caused cancer.`\
+https://nytimes.com/2025/03/31/business/johnson-johnson-bankruptcy-talc.html
+
 **Women's March Madness projections 2025: Does UConn have the advantage?**\
 `What's your team's chance of winning? Find out here. `\
 https://nytimes.com/athletic/6198041/2025/03/31/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
