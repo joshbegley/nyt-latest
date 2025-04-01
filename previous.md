@@ -1,3 +1,19 @@
+**Elon Musk Sued Over Pennsylvania Signature Payments**\
+`A canvasser for the billionaire’s America PAC says he’s owed $20,000 for signatures he collected on a petition that was part of Mr. Musk’s effort to motivate Trump voters.`\
+https://nytimes.com/2025/04/01/us/politics/elon-musk-pennsylvania-petition-lawsuit.html
+
+**G.O.P. Leaders Can’t Do Even Easy Pro-Family Policy in Congress**\
+`What on earth are Republican leaders thinking in trying to stop a Republican proposal to make it easier for new parents to vote in Congress?`\
+https://nytimes.com/2025/04/01/opinion/anna-paulina-luna-mike-johnson-parental-voting.html
+
+**Nottingham Forest 1 Man Utd 0 - How Elanga's seven touches in nine seconds cut Amorim's team apart**\
+`Analysis of Nottingham Forest's victory over Manchester United in the Premier League`\
+https://nytimes.com/athletic/6243965/2025/04/01/nottingham-forest-manchester-united-elanga-goal/
+
+**Wednesday Briefing: An Elections Test for Trump**\
+`Plus, the enigmatic “goddess” of the piano.`\
+https://nytimes.com/2025/04/01/briefing/trump-elections-israel-un-gaza-bangladesh-extremism.html
+
 **Great Spaces**\
 ``\
 https://nytimes.com/series/great-spaces
@@ -21,16 +37,4 @@ https://nytimes.com/athletic/6243964/2025/04/01/arsenal-fulham-result-analysis/
 **Betty Webb, Who Helped Bletchley Park Code Breakers, Dies at 101**\
 `Sworn to secrecy about the goings-on at Britain’s storied World War II decryption operation, she only later recounted the efforts to crack German signals.`\
 https://nytimes.com/2025/04/01/world/europe/betty-webb-obituary.html
-
-**Yankees’ Giancarlo Stanton sidesteps whether torpedo bats caused injury**\
-`Stanton said that he has often tinkered with his bats throughout the years.`\
-https://nytimes.com/athletic/6247857/2025/04/01/yankees-giancarlo-stanton-torpedo-bat-tennis-elbow/
-
-**This Tree Wants to Be Struck by Lightning**\
-`Before a discovery in a Panamanian rainforest, “it seemed impossible that lightning could be a good thing for the trees,” a scientist said.`\
-https://nytimes.com/2025/04/01/science/trees-lightning-rainforest.html
-
-**Free Gaza From Its Own Tyrants First**\
-`Anti-Hamas protests in Gaza are the first necessary steps on the road to real peace.`\
-https://nytimes.com/2025/04/01/opinion/hamas-gaza-palestinian-protests.html
 

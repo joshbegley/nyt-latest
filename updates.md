@@ -1,3 +1,19 @@
+**Elon Musk Sued Over Pennsylvania Signature Payments**\
+`A canvasser for the billionaire’s America PAC says he’s owed $20,000 for signatures he collected on a petition that was part of Mr. Musk’s effort to motivate Trump voters.`\
+https://nytimes.com/2025/04/01/us/politics/elon-musk-pennsylvania-petition-lawsuit.html
+
+**G.O.P. Leaders Can’t Do Even Easy Pro-Family Policy in Congress**\
+`What on earth are Republican leaders thinking in trying to stop a Republican proposal to make it easier for new parents to vote in Congress?`\
+https://nytimes.com/2025/04/01/opinion/anna-paulina-luna-mike-johnson-parental-voting.html
+
+**Nottingham Forest 1 Man Utd 0 - How Elanga's seven touches in nine seconds cut Amorim's team apart**\
+`Analysis of Nottingham Forest's victory over Manchester United in the Premier League`\
+https://nytimes.com/athletic/6243965/2025/04/01/nottingham-forest-manchester-united-elanga-goal/
+
+**Wednesday Briefing: An Elections Test for Trump**\
+`Plus, the enigmatic “goddess” of the piano.`\
+https://nytimes.com/2025/04/01/briefing/trump-elections-israel-un-gaza-bangladesh-extremism.html
+
 **Great Spaces**\
 ``\
 https://nytimes.com/series/great-spaces
