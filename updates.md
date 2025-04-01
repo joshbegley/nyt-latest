@@ -1,3 +1,7 @@
+**Israel’s Military Says It Struck Beirut’s Suburbs**\
+`The attack was the second in less than a week, raising fears that a cease-fire between Israel and Hezbollah could unravel.`\
+https://nytimes.com/2025/03/31/world/middleeast/israel-strike-lebanon-beirut.html
+
 **Red Sox, Garrett Crochet agree to six-year, $170 million extension: Source**\
 `Crochet is the Red Sox's new No. 1 starter and now he'll be around for the long haul.`\
 https://nytimes.com/athletic/6245893/2025/03/31/red-sox-garrett-crochet-extension/
