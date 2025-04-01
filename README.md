@@ -1,3 +1,7 @@
+**NHL, Canadian media company Rogers agree to 12-year, $7.7B TV deal: Reports**\
+`The new agreement will come at the conclusion of the previous 12-year deal agreed to by both parties, which was signed in 2013.`\
+https://nytimes.com/athletic/6245657/2025/03/31/nhl-rogers-sportsnet-broadcasts/
+
 **Women's March Madness projections 2025: Does UConn have the advantage?**\
 `What's your team's chance of winning? Find out here. `\
 https://nytimes.com/athletic/6198041/2025/03/31/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/31/us/politics/elon-musk-wisconsin.html
 **Crucial Week for Trump: New Tariffs and Elections Will Test His Momentum**\
 `Down-ballot races in Florida and Wisconsin are seen as a referendum on the White House, while the president’s to-be-announced reciprocal tariff plan is increasingly worrying investors and consumers.`\
 https://nytimes.com/2025/03/31/us/politics/trump-florida-wisconsin-tariffs.html
-
-**New Columbia President Attacked by Stefanik Over 2023 Text Message**\
-`Elise Stefanik, a prominent Republican, questioned Claire Shipman’s commitment to protecting Jewish students. Ms. Shipman pledged “to build on the significant progress we’ve made.”`\
-https://nytimes.com/2025/03/31/nyregion/columbia-president-republican-criticism.html
 
