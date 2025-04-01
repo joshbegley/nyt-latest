@@ -1,3 +1,15 @@
+**Jerry Jones' comments about agent and contract talks prompt Micah Parsons' response**\
+`"The agent doesn’t have one thing to do with what we’re doing when we get on the football field,” Jerry Jones said of the negotiations.`\
+https://nytimes.com/athletic/6247691/2025/04/01/cowboys-micah-parsons-agent-jerry-jones-comment/
+
+**More than 230 People Infected With Norovirus on Luxury Cruise Ship**\
+`Passengers and crew traveling on the Queen Mary 2 from England to the Caribbean reported symptoms of diarrhea and vomiting.`\
+https://nytimes.com/2025/04/01/travel/norovirus-cruise-cunard-line-ship.html
+
+**What the Falcons are saying about their amicable standoff with Kirk Cousins**\
+`Cousins has told coach Raheem Morris he would prefer to be in a situation where he can be the starting quarterback.`\
+https://nytimes.com/athletic/6246731/2025/04/01/kirk-cousins-falcons-backup-qb-raheem-morris/
+
 **Giants' Brian Daboll talks play calling, what he likes about Russell Wilson and more**\
 `Daboll watched all of Wilson's tape dating back to the QB's rookie season of 2012 and came away impressed. `\
 https://nytimes.com/athletic/6247194/2025/04/01/giants-russell-wilson-travis-hunter-brian-daboll-nfl-draft/
@@ -23,18 +35,6 @@ https://nytimes.com/2025/04/01/well/family/tiktok-cookie-challenge-kids.html
 https://nytimes.com/2025/04/01/us/politics/taliban-ambassador-detained.html
 
 **Seahawks' focus remains on Super Bowl, despite shake-up: 'We can definitely win with Sam'**\
-`Seahawks coach Mike Macdonald also discussed the team's draft strategy and why he's confident Riq Woolen will recapture his 2022 magic.`\
+`Seattle coach Mike Macdonald also discussed the team's draft strategy and why he's confident Riq Woolen will recapture his 2022 magic.`\
 https://nytimes.com/athletic/6247510/2025/04/01/seahawks-sam-darnold-mike-macdonald-owners-meetings/
-
-**Nguyen: 'Tush push' lives to fight another day, here's why it should stay for good**\
-`Is it fair to create a rule to take away something the Eagles have committed resources into while others have chosen not to?`\
-https://nytimes.com/athletic/6243433/2025/04/01/tush-push-ban-vote-nfl-nguyen/
-
-**A Mysterious Group Says Its Mission Is to Expose Antisemitic Students**\
-`Civil rights advocates say Canary Mission is doxxing critics of Israel and providing a possible road map for immigration agents as they sweep up students in a campus crackdown.`\
-https://nytimes.com/2025/04/01/us/israel-gaza-student-protests-canary-mission.html
-
-**He Wore a ‘Patriotic’ Hat to a Blue Jays Game. It Got Him Ejected.**\
-`The message “Canada is not for sale” drew attention because of a rule against political slogans at Rogers Centre in Toronto. The team later apologized.`\
-https://nytimes.com/2025/04/01/sports/baseball/toronto-blue-jays-fan-ejected-hat.html
 
