@@ -1,3 +1,15 @@
+**The New York Times in Print for Wednesday, April 2, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/02/todays-new-york-times
+
+**What I Saw in China on the Eve of Trump’s ‘Liberation Day’**\
+`Beijing’s message to America: We’re not afraid of you. You aren’t who you think you are — and we aren’t who you think we are.`\
+https://nytimes.com/2025/04/02/opinion/trump-tariffs-china.html
+
+**There’s Still a Chance to Get Syria Right**\
+`Trying to rebuild a war-ravaged country without humanitarian aid or sanction relief is like trying to get up with a boot on your neck.`\
+https://nytimes.com/2025/04/02/opinion/syria-war-humanitarian-aid.html
+
 **Early slump for Yordan Alvarez, the Astros' 'heartbeat,' stagnates offense**\
 `Alvarez's 1-for-16 start is crippling a lineup that can't afford his anemia.`\
 https://nytimes.com/athletic/6248750/2025/04/02/early-slump-yordan-alvarez-astros-offense/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6246482/2025/04/02/cristian-romero-tottenham-hotspu
 **Pep Guardiola's latest challenge: How do you cope without Erling Haaland?**\
 `The ankle injury keeping Haaland out up to seven weeks is just the latest test of a hugely difficult season for Manchester City`\
 https://nytimes.com/athletic/6246946/2025/04/02/erling-haaland-injury-absence-manchester-city/
-
-**'A brilliant failure': The barely believable story of Arne Slot's craziest coaching idea**\
-`A bizarre kick-off routine in the Netherlands backfired spectacularly but it was an early sign of the future Liverpool coach's creativity`\
-https://nytimes.com/athletic/6220590/2025/04/02/arne-slot-liverpool-kick-off-tactic/
-
-**How Hansi Flick fixed Barcelona and put them firmly in the hunt for three trophies**\
-`Towards the end of 2024, Barcelona lost four of seven matches in La Liga. Their season was in freefall — but now they are targeting a treble`\
-https://nytimes.com/athletic/6238724/2025/04/02/barcelona-flick-style-tactics-decision/
-
-**Blue Jackets take early lead and ride Kirill Marchenko's hat trick to blowout win**\
-`Seven Blue Jackets players enjoyed multi-point nights in Columbus' 8-4 rout of Nashville on Tuesday.`\
-https://nytimes.com/athletic/6248595/2025/04/02/blue-jackets-predators-kirill-marchenko-hat-trick/
 

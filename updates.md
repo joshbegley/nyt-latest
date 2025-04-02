@@ -1,3 +1,15 @@
+**Early slump for Yordan Alvarez, the Astros' 'heartbeat,' stagnates offense**\
+`Alvarez's 1-for-16 start is crippling a lineup that can't afford his anemia.`\
+https://nytimes.com/athletic/6248750/2025/04/02/early-slump-yordan-alvarez-astros-offense/
+
+**Dodgers reach 7-0, match 1933 Yankees for best start for defending champions**\
+`The Dodgers' 3-1 win over the Atlanta Braves on Tuesday secured one milestone early this season.`\
+https://nytimes.com/athletic/6248805/2025/04/02/dodgers-7-0-start-yankees-champions/
+
+**Twins rally, finally break through for their first win of the season**\
+`A five-run sixth inning and late three-run homer by Harrison Bader led the Twins to an 8-3 victory over the White Sox. `\
+https://nytimes.com/athletic/6248760/2025/04/02/twins-first-win-white-sox/
+
 **Wednesday Briefing**\
 `Election results in the U.S.`\
 https://nytimes.com/2025/04/02/briefing/trump-israel-italy.html

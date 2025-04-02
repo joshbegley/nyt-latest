@@ -1,3 +1,15 @@
+**Early slump for Yordan Alvarez, the Astros' 'heartbeat,' stagnates offense**\
+`Alvarez's 1-for-16 start is crippling a lineup that can't afford his anemia.`\
+https://nytimes.com/athletic/6248750/2025/04/02/early-slump-yordan-alvarez-astros-offense/
+
+**Dodgers reach 7-0, match 1933 Yankees for best start for defending champions**\
+`The Dodgers' 3-1 win over the Atlanta Braves on Tuesday secured one milestone early this season.`\
+https://nytimes.com/athletic/6248805/2025/04/02/dodgers-7-0-start-yankees-champions/
+
+**Twins rally, finally break through for their first win of the season**\
+`A five-run sixth inning and late three-run homer by Harrison Bader led the Twins to an 8-3 victory over the White Sox. `\
+https://nytimes.com/athletic/6248760/2025/04/02/twins-first-win-white-sox/
+
 **Wednesday Briefing**\
 `Election results in the U.S.`\
 https://nytimes.com/2025/04/02/briefing/trump-israel-italy.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6238724/2025/04/02/barcelona-flick-style-tactics-de
 **Blue Jackets take early lead and ride Kirill Marchenko's hat trick to blowout win**\
 `Seven Blue Jackets players enjoyed multi-point nights in Columbus' 8-4 rout of Nashville on Tuesday.`\
 https://nytimes.com/athletic/6248595/2025/04/02/blue-jackets-predators-kirill-marchenko-hat-trick/
-
-**Alexander Isak after 100 Newcastle games: How impressive has he been?**\
-`Fittingly, the Sweden international marked a century of appearances with the goal that won Newcastle the Carabao Cup`\
-https://nytimes.com/athletic/6245637/2025/04/02/alexander-isak-first-100-games-newcastle/
-
-**The Business of Football: Premier League cuts £75m in funding, Reading in crisis**\
-`What Matt Slater is hearing about the business side of the beautiful game from the Premier League, EFL and beyond`\
-https://nytimes.com/athletic/6243855/2025/04/02/premier-league-efl-reading-cuts/
-
-**Southampton and the unwanted Premier League lowest points record: 'It would be a stain'**\
-`Southampton have nine points and nine games to get more than the record low points total of 11`\
-https://nytimes.com/athletic/6246725/2025/04/02/southampton-premier-league-lowest-points-record/
 
