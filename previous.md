@@ -1,3 +1,15 @@
+**How Jets' unforced errors put their Central Division title hopes at risk**\
+`The Jets’ costly mistakes leave them just four points up on Dallas for first place in the Central.`\
+https://nytimes.com/athletic/6249004/2025/04/02/winnipeg-jets-kings-nhl-central-division/
+
+**Penn State spring takeaways, observations from practice, interviews**\
+`Here’s what stood out during this week’s practice viewing window and interview sessions at Penn State.`\
+https://nytimes.com/athletic/6249321/2025/04/02/penn-state-spring-football-james-franklin-jim-knowles/
+
+**Who are Notre Dame's transfers, and what do they bring to the Irish?**\
+`Six of Notre Dame’s eight incoming transfers are already in South Bend for spring practice.`\
+https://nytimes.com/athletic/6249326/2025/04/02/notre-dame-football-transfers/
+
 **Padres, Jackson Merrill agree to 9-year, $135 million contract: Source**\
 `Merrill finished second in NL Rookie of the Year voting last season and won a Silver Slugger award.`\
 https://nytimes.com/athletic/6249594/2025/04/02/padres-jackson-merrill-contract-extension/
@@ -22,19 +34,7 @@ https://nytimes.com/2025/04/02/business/nintendo-switch-2.html
 `I didn’t know a topcoat from a base coat. But writing about an unfamiliar subject made me a better reporter.`\
 https://nytimes.com/2025/04/02/insider/mei-kawajiri-nails.html
 
-**Elon Musk Made an Election About Him and Wisconsin Said, ‘No, Thanks’**\
+**Elon Musk Made an Election About Him. Wisconsin Said, ‘No, Thanks.’**\
 `Republicans would be wise to seize the moment while this failure is raw to remind Trump what a political loser his buddy is turning out to be.`\
 https://nytimes.com/2025/04/02/opinion/wisconsin-florida-special-election-results-democrats.html
-
-**Biden’s Health Secretary Joins the Governor’s Race in California**\
-`Xavier Becerra, the former secretary of the Department of Health and Human Services, may face Kamala Harris in a potential Democratic showdown in their home state.`\
-https://nytimes.com/2025/04/02/us/becerra-california-governor-harris.html
-
-**‘Truelove’ Explores Truth, Love and Endings**\
-`This thoughtful British mini-series explores the complex bonds among a group of aging friends who are determined not to let one another suffer.`\
-https://nytimes.com/2025/04/02/arts/television/truelove-acorn.html
-
-**Nobody Wants to Be Responsible for Dismal K-12 Test Scores**\
-`Trump wants to give power back to the states. Some states are lowering standards.`\
-https://nytimes.com/2025/04/02/opinion/florida-standardized-tests.html
 
