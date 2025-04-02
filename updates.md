@@ -1,3 +1,7 @@
+**Companies rushed to import goods ahead of the tariffs. Here’s what that looked like.**\
+`By Peter Eavis`\
+https://nytimes.com/live/2025/04/02/business/trump-tariffs-liberation-day/companies-rushed-to-import-goods-ahead-of-the-tariffs-heres-what-that-looked-like
+
 **The Cory Booker Endurance Test**\
 `What happens to your body when you deliver a 25-hour speech without any breaks?`\
 https://nytimes.com/2025/04/02/well/cory-booker-senate-speech-prep.html

@@ -1,3 +1,11 @@
+**N.Y.U. Cancels Doctor’s Speech at the Last Minute, Citing Anti-Government Tone**\
+`Dr. Joanne Liu, an N.Y.U. graduate, said the cancellation of her presentation on humanitarian crises was a sign of the climate of fear at U.S. universities.`\
+https://nytimes.com/2025/04/02/nyregion/nyu-doctor-speech-canceled.html
+
+**‘A Minecraft Movie’ Review: Block by Bizarre Block**\
+`Jack Black and Jason Momoa star in this adaptation of the megahit video game that leans into the mindless silliness of mid-aughts comedy.`\
+https://nytimes.com/2025/04/02/movies/a-minecraft-movie-review.html
+
 **Companies rushed to import goods ahead of the tariffs. Here’s what that looked like.**\
 `By Peter Eavis`\
 https://nytimes.com/live/2025/04/02/business/trump-tariffs-liberation-day/companies-rushed-to-import-goods-ahead-of-the-tariffs-heres-what-that-looked-like
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/politics/100000010085892/tuesdays-election-results-
 **Mass Layoffs as Agencies Are Gutted**\
 `Responses to the mass firings in the federal government. Also: Cory Booker’s speech; talk of a third Trump term; Republicans and Ukraine; a letter to Canada.`\
 https://nytimes.com/2025/04/02/opinion/federal-workers-mass-layoffs.html
-
-**Here’s the latest on tariffs.**\
-`By Ana Swanson, Alan Rappeport and Tony Romm`\
-https://nytimes.com/live/2025/04/02/business/trump-tariffs-liberation-day/heres-the-latest-on-tariffs
-
-**Bears chairman George McCaskey: Succession plan officially in place for family control**\
-`McCaskey discussed the tush push, private equity, Ben Johnson and more at the annual league meeting Wednesday.`\
-https://nytimes.com/athletic/6250246/2025/04/02/bears-george-mccaskey-succession-plan/
 
