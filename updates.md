@@ -1,3 +1,11 @@
+**Who Is Susan Crawford?**\
+`Judge Crawford defeated Judge Brad Schimel, who was backed by President Trump, for a seat on the Wisconsin Supreme Court. She worked as a prosecutor and in private practice before joining the bench.`\
+https://nytimes.com/2025/04/02/us/politics/susan-crawford-wisconsin-supreme-court.html
+
+**Steph Curry’s epic performance illustrates Grizzlies’ downward spiral on defense**\
+`The Grizzlies’ flaws on the defensive end have left them reeling over the past few weeks and came back to bite them again.`\
+https://nytimes.com/athletic/6248990/2025/04/02/grizzlies-loss-defense-stephen-curry/
+
 **TNT Sports hires Andre Agassi for French Open coverage**\
 `Agassi, 54, won the French Open in 1999.`\
 https://nytimes.com/athletic/6249422/2025/04/02/tnt-sports-alex-agassi-french-open/

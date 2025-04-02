@@ -1,3 +1,7 @@
+**Who Is Susan Crawford?**\
+`Judge Crawford defeated Judge Brad Schimel, who was backed by President Trump, for a seat on the Wisconsin Supreme Court. She worked as a prosecutor and in private practice before joining the bench.`\
+https://nytimes.com/2025/04/02/us/politics/susan-crawford-wisconsin-supreme-court.html
+
 **TNT Sports hires Andre Agassi for French Open coverage**\
 `Agassi, 54, won the French Open in 1999.`\
 https://nytimes.com/athletic/6249422/2025/04/02/tnt-sports-alex-agassi-french-open/
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/6249365/2025/04/02/barcelona-olmo-victor-la-liga-st
 `"He might be the best basketball player I’ve ever seen close up," Timberwolves star Anthony Edwards said.`\
 https://nytimes.com/athletic/6248428/2025/04/02/nikola-jokic-61-point-triple-double/
 
-**Stephen Curry’s epic performance illustrates Grizzlies’ downward spiral on defense**\
+**Steph Curry’s epic performance illustrates Grizzlies’ downward spiral on defense**\
 `The Grizzlies’ flaws on the defensive end have left them reeling over the past few weeks and came back to bite them again.`\
 https://nytimes.com/athletic/6248990/2025/04/02/grizzlies-loss-defense-stephen-curry/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6244956/2025/04/02/maple-leafs-ncaa-free-agents-hay
 **Senate Democrats move to rescind some Trump tariffs, hoping for G.O.P. support.**\
 `Passage would send a strong signal of bipartisan opposition to the levies, though the measure would face long odds in the House.`\
 https://nytimes.com/live/2025/04/02/us/trump-news/senate-democrats-canada-tariffs-trump
-
-**Raiders' Mark Davis is enjoying his favorite time of the year: 'We are undefeated'**\
-`The Raiders have a new regime for the third straight year but Tom Brady's presence give an added weight to the new triumvirate.`\
-https://nytimes.com/athletic/6248076/2025/04/02/raiders-mark-davis-tom-brady-pete-carroll/
 
