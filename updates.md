@@ -1,3 +1,7 @@
+**President Trump’s Tariff Plans**\
+`Plus, we cover election results from Wisconsin and Florida.`\
+https://nytimes.com/2025/04/02/briefing/tariff-plans-wisconsin-florida-election.html
+
 **The Pulse: Wait, Nikola Jokić did what?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6248415/2025/04/02/nikola-jokic-triple-double-the-pulse/

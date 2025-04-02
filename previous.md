@@ -1,3 +1,7 @@
+**President Trump’s Tariff Plans**\
+`Plus, we cover election results from Wisconsin and Florida.`\
+https://nytimes.com/2025/04/02/briefing/tariff-plans-wisconsin-florida-election.html
+
 **The Pulse: Wait, Nikola Jokić did what?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6248415/2025/04/02/nikola-jokic-triple-double-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6248023/2025/04/02/don-imus-pat-mcafee-espn-ole-mis
 **Looking for a March Cinderella story? Check the transfer portal**\
 `The pendulum has swung hard toward player empowerment when it comes to transfer rules, and the results aren't all bad for basketball fans.`\
 https://nytimes.com/athletic/6247859/2025/04/02/march-madness-transfers-johni-broome-walter-clayton/
-
-**How two of the Canadiens’ exceptional brains converged to earn a critical win**\
-`Nick Suzuki and Lane Hutson are two of the Canadiens' smartest players, and their brains conspired to get their team a massive win.`\
-https://nytimes.com/athletic/6248975/2025/04/02/canadiens-panthers-suzuki-hutson/
 
