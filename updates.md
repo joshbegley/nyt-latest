@@ -1,3 +1,23 @@
+**NWSL-based Zambia players forced to miss games in China**\
+`Orlando Pride's Barbra Banda is one of four Zambian players who will miss the games due to “additional travel measures" introduced in the US`\
+https://nytimes.com/athletic/6250187/2025/04/02/nwsl-zambia-china-united-states/
+
+**Richard Bernstein, Times Correspondent, Critic and Author, Dies at 80**\
+`He wrote from Europe and Asia, served as a book critic and produced a raft of books, on subjects ranging from the French condition to multiculturalism.`\
+https://nytimes.com/2025/04/02/business/media/richard-bernstein-dead.html
+
+**The ‘White Lotus’ Music Will Never Be the Same**\
+`Cristóbal Tapia de Veer’s theme song was one of the breakout stars of HBO’s vacation thriller. In an exclusive interview, the composer said he had ooh’ed his last loo-loo.`\
+https://nytimes.com/2025/04/02/style/white-lotus-composer-season-4-leaving.html
+
+**Howe confirms Isak, Trippier withdrawn due to groin injuries**\
+`Now fifth after the win over Brentford, Newcastle's next game comes at Leicester City on Monday.`\
+https://nytimes.com/athletic/6250845/2025/04/02/alexander-isak-injury-trippier-newcastle/
+
+**A Pristine Family Photo. Then Barack Obama Strolls By.**\
+`The former president was taking a morning walk just as two young siblings posed with the Washington Monument and cherry blossoms serving as a perfect backdrop.`\
+https://nytimes.com/2025/04/02/us/obama-photobomb-dc-cherry-blossoms.html
+
 **Joe DePugh, Speedball Pitcher in Springsteen’s ‘Glory Days,’ Dies at 75**\
 `A gifted athlete, he gave a clumsy teenage Bruce Springsteen his first nickname, Saddie. Years later, the Boss returned the favor, memorializing him in a song.`\
 https://nytimes.com/2025/04/02/arts/music/joe-depugh-dead-glory-days.html

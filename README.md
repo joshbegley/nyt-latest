@@ -1,3 +1,11 @@
+**Pulisic's Milan draws Inter in Coppa Italia semifinal first leg**\
+`The cup edition of Milan's derby will come down to the second leg on April 23, with the winner advancing to the final.`\
+https://nytimes.com/athletic/6250923/2025/04/02/ac-milan-inter-coppa-italia-semifinal-first-leg-pulisic/
+
+**Officer Won’t Be Charged in Fatal Shooting of Boy Who Had Pellet Gun**\
+`The New York attorney general, Letitia James, said the evidence in the shooting of Nyah Mway, 13, last year would be unlikely to persuade a jury to convict the officer.`\
+https://nytimes.com/2025/04/02/nyregion/police-officer-shooting-utica-no-charges.html
+
 **NWSL-based Zambia players forced to miss games in China**\
 `Orlando Pride's Barbra Banda is one of four Zambian players who will miss the games due to “additional travel measures" introduced in the US`\
 https://nytimes.com/athletic/6250187/2025/04/02/nwsl-zambia-china-united-states/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/02/well/hhs-workers-cuts-rfk-jr.html
 **The Briefing: Atletico 0 Barcelona 1 (4-5 agg) - Magical Yamal, Torres scores again and a Clasico final next**\
 `Thom Harris and Dermot Corrigan break down Barcelona's Copa del Rey semi-final win over Atletico Madrid`\
 https://nytimes.com/athletic/6246913/2025/04/02/atletico-madrid-barcelona-torres-yamal/
-
-**A Pristine Family Photo. Then Barack Obama Strolls By.**\
-`The former president was taking a morning walk just as two young siblings posed with the Washington Monument and cherry blossoms serving as a perfect backdrop.`\
-https://nytimes.com/2025/04/02/us/obama-photobomb-dc-cherry-blossoms.html
-
-**With Trump’s Tariffs, the Chasm Between Allies and the U.S. Widens**\
-`President Trump announced sweeping levies on countries across the world. Washington’s partners have been bracing for the fallout.`\
-https://nytimes.com/2025/04/02/world/europe/trump-tariffs-reciprocal-reaction-trade-war.html
 
