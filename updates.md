@@ -1,3 +1,11 @@
+**Trump’s Global Trade War Makes the Fed’s Task Tougher**\
+`Tariffs risk slowing growth and making inflation stickier, a tricky combination for the central bank as it debates what to do about interest rates.`\
+https://nytimes.com/2025/04/02/business/economy/trump-tariffs-federal-reserve-inflation.html
+
+**Lowetide: Can Oilers forwards turn around their inconsistent season?**\
+`Many Oilers forwards are badly off the pace of their own established performance levels, and well shy of expectations.`\
+https://nytimes.com/athletic/6247087/2025/04/02/edmonton-oilers-stats-forwards-2024-25/
+
 **Drance: Why it's hard to make sense of a likely squandered Canucks season**\
 `With eight games remaining, the Canucks' playoff odds are on life support with not enough time to build a new identity.`\
 https://nytimes.com/athletic/6246237/2025/04/02/canucks-nhl-2024-25-season/
