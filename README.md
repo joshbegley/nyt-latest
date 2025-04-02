@@ -1,3 +1,11 @@
+**Moyes: Jota goal was ‘clear offside’**\
+`The Everton manager said that Liverpool's Luis Diaz was interfering with play and called it a "very easy decision to give".`\
+https://nytimes.com/athletic/6250922/2025/04/02/moyes-slot-diaz-offside-everton-liverpool/
+
+**Star VII, Anchorage’s Famous Reindeer, Dies Weeks After Poisoning**\
+`In February, security camera footage showed a masked figure spraying the reindeer with an unknown liquid. The police have no leads.`\
+https://nytimes.com/2025/04/02/us/star-reindeer-dead-poison.html
+
 **‘Reciprocal’ Tariffs: See Which Countries Have the Highest Rates**\
 `President Trump unveiled sweeping tariffs that included so-called reciprocal actions on dozens of other countries at very high levels.`\
 https://nytimes.com/2025/04/02/business/economy/trump-tariffs-chart.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6250187/2025/04/02/nwsl-zambia-china-united-states/
 **Richard Bernstein Dies at 80; Times Correspondent, Critic and Author**\
 `He wrote from Europe and Asia, served as a book critic and produced a raft of books, on subjects ranging from the French condition to multiculturalism.`\
 https://nytimes.com/2025/04/02/business/media/richard-bernstein-dead.html
-
-**The ‘White Lotus’ Music Will Never Be the Same**\
-`Cristóbal Tapia de Veer’s theme song was one of the breakout stars of HBO’s vacation thriller. In an exclusive interview, the composer said he had ooh’ed his last loo-loo.`\
-https://nytimes.com/2025/04/02/style/white-lotus-composer-season-4-leaving.html
-
-**Howe confirms Isak, Trippier withdrawn due to groin injuries**\
-`Now fifth after the win over Brentford, Newcastle's next game comes at Leicester City on Monday.`\
-https://nytimes.com/athletic/6250845/2025/04/02/alexander-isak-injury-trippier-newcastle/
 
