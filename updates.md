@@ -1,5 +1,9 @@
 **Republicans Invoke Newsom in a Hearing on Transgender Sports**\
 `California Democrats rejected two Republican bills that would have banned transgender athletes from female sports. In a rare turn, Republicans tried to use the Democratic governor’s own words to challenge Democrats.`\
+https://nytimes.com/2025/04/01/us/politics/california-transgender-women-sports-bills.html
+
+**Republicans Invoke Newsom in a Hearing on Transgender Sports**\
+`California Democrats rejected two Republican bills that would have banned transgender athletes from female sports. In a rare turn, Republicans tried to use the Democratic governor’s own words to challenge Democrats.`\
 https://nytimes.com/2025/04/01/us/politics/republicans-invoke-newsom-in-a-hearing-on-transgender-sports.html
 
 **Alex Ovechkin 4 goals from breaking Wayne Gretzky's record with No. 891**\
