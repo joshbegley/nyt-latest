@@ -1,3 +1,7 @@
+**What’s the Catch?**\
+`Try your hand at Daniel Bodily’s puzzle — it’ll all work out.`\
+https://nytimes.com/2025/04/01/crosswords/daily-puzzle-2025-04-02.html
+
 **Padres, Diamondbacks expected to play regular-season series in Mexico City in 2026**\
 `Mexico has been the most frequent locale for the so-called MLB World Tour.`\
 https://nytimes.com/athletic/6247910/2025/04/01/padres-diamondbacks-mexico-city-series-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/01/us/politics/trump-immigration-joe-rogan-conservat
 **Alex Ovechkin 4 goals from breaking Wayne Gretzky's record with No. 891**\
 `The Washington Capitals superstar continues to close in on Gretzky’s long-standing record of 894 career NHL goals.`\
 https://nytimes.com/athletic/6245458/2025/04/01/ovechkin-goals-record-gretzky-891/
-
-**G.O.P. Bolsters House Majority by Retaining Two Seats in Florida**\
-`The Republicans who were elected on Tuesday to fill seats left empty by Matt Gaetz and Michael Waltz had President Trump’s backing.`\
-https://nytimes.com/2025/04/01/us/politics/florida-special-election-winner.html
 

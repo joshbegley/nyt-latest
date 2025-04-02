@@ -1,3 +1,7 @@
+**What’s the Catch?**\
+`Try your hand at Daniel Bodily’s puzzle — it’ll all work out.`\
+https://nytimes.com/2025/04/01/crosswords/daily-puzzle-2025-04-02.html
+
 **Padres, Diamondbacks expected to play regular-season series in Mexico City in 2026**\
 `Mexico has been the most frequent locale for the so-called MLB World Tour.`\
 https://nytimes.com/athletic/6247910/2025/04/01/padres-diamondbacks-mexico-city-series-2026/
