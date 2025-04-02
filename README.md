@@ -1,3 +1,15 @@
+**San Diego FC reviewing fan brawls at Snapdragon Stadium, considering disciplinary action**\
+`Several videos appear to show fans involved in brawls after San Diego's 3-2 win over LAFC on Saturday.`\
+https://nytimes.com/athletic/6250234/2025/04/02/san-diego-fc-fan-violence/
+
+**Watch: Is Ben Johnson the perfect coach to get the most out of Ashton Jeanty?**\
+`"The Athletic Football Show" discusses why the Chicago Bears should draft Boise State running back Ashton Jeanty with the No.10 pick.`\
+https://nytimes.com/athletic/6244702/2025/04/02/athletic-football-show-ashton-jeanty-chicago-bears/
+
+**Justices Weigh Challenge to South Carolina’s Bid to Defund Planned Parenthood**\
+`The court will decide whether Medicaid beneficiaries may sue to receive services under a law that lets them choose any qualified provider.`\
+https://nytimes.com/2025/04/02/us/politics/supreme-court-planned-parenthood.html
+
 **When Val Kilmer Was Batman and the ’90s Were Their Most ’90s**\
 `The actor took only one turn in the famous batsuit. That film, “Batman Forever,” couldn’t be a more representative artifact of its era.`\
 https://nytimes.com/2025/04/02/movies/val-kilmer-batman-forever.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6249409/2025/04/02/nhl-ovechkin-record-goal-prepara
 **Analysing Manchester United's 23 shots against Forest - and what it says of their attack**\
 `United haven't had as many shots in a game and lost since 2021. The lack of decisiveness in their attack is a huge concern`\
 https://nytimes.com/athletic/6249792/2025/04/02/manchester-united-shots-nottingham-forest-attack/
-
-**What does the future hold for Ja Morant and the Grizzlies?**\
-`NBA Daily discuss Ja Morant's future, why Memphis parted ways with Taylor Jenkins so late, and if Tuomas Iisalo will remain as head coach.`\
-https://nytimes.com/athletic/6249374/2025/04/02/nba-daily-memphis-grizzlies-ja-morant/
-
-**How a seven-second viral video encapsulates the way sport has changed**\
-`Undeniably, the landscape of sport has changed. The furore around a seven-second viral video proves just that `\
-https://nytimes.com/athletic/6249660/2025/04/02/jasmine-joyce-butchers-chicken-banana-dance-tiktok-wales-six-nations/
-
-**Tiny Love Stories: ‘Breathing Felt Like Betrayal’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2025/04/02/style/tiny-modern-love-stories-breathing-felt-like-betrayal.html
 
