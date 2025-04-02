@@ -1,3 +1,11 @@
+**‘It’s a Disaster’: Global Markets Slide After Trump Unveils Tariffs**\
+`The initial market reaction suggested that the scale of the tariffs on Wednesday had come as a surprise and analysts were still trying to figure out how they had been derived.`\
+https://nytimes.com/2025/04/02/business/trump-tariffs-global-stock-markets.html
+
+**Richard Bernstein Dies at 80; Times Correspondent, Critic and Author**\
+`He wrote from Europe and Asia, served as a book critic and produced a raft of books, on subjects ranging from the French condition to multiculturalism.`\
+https://nytimes.com/2025/04/02/business/media/richard-bernstein-dead.html
+
 **Pulisic's Milan draws Inter in Coppa Italia semifinal first leg**\
 `The cup edition of Milan's derby will come down to the second leg on April 23, with the winner advancing to the final.`\
 https://nytimes.com/athletic/6250923/2025/04/02/ac-milan-inter-coppa-italia-semifinal-first-leg-pulisic/

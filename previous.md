@@ -1,3 +1,7 @@
+**‘It’s a Disaster’: Global Markets Slide After Trump Unveils Tariffs**\
+`The initial market reaction suggested that the scale of the tariffs on Wednesday had come as a surprise and analysts were still trying to figure out how they had been derived.`\
+https://nytimes.com/2025/04/02/business/trump-tariffs-global-stock-markets.html
+
 **Pulisic's Milan draws Inter in Coppa Italia semifinal first leg**\
 `The cup edition of Milan's derby will come down to the second leg on April 23, with the winner advancing to the final.`\
 https://nytimes.com/athletic/6250923/2025/04/02/ac-milan-inter-coppa-italia-semifinal-first-leg-pulisic/
@@ -10,7 +14,7 @@ https://nytimes.com/2025/04/02/nyregion/police-officer-shooting-utica-no-charges
 `Orlando Pride's Barbra Banda is one of four Zambian players who will miss the games due to “additional travel measures" introduced in the US`\
 https://nytimes.com/athletic/6250187/2025/04/02/nwsl-zambia-china-united-states/
 
-**Richard Bernstein, Times Correspondent, Critic and Author, Dies at 80**\
+**Richard Bernstein Dies at 80; Times Correspondent, Critic and Author**\
 `He wrote from Europe and Asia, served as a book critic and produced a raft of books, on subjects ranging from the French condition to multiculturalism.`\
 https://nytimes.com/2025/04/02/business/media/richard-bernstein-dead.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/02/us/politics/trump-maine-funding-freeze-transgende
 **Kennedy Guts Teams That Share Health Information With the Public**\
 `The health secretary had promised “radical transparency,” but fired communications teams in the Health and Human Services Department.`\
 https://nytimes.com/2025/04/02/well/hhs-workers-cuts-rfk-jr.html
-
-**The Briefing: Atletico 0 Barcelona 1 (4-5 agg) - Magical Yamal, Torres scores again and a Clasico final next**\
-`Thom Harris and Dermot Corrigan break down Barcelona's Copa del Rey semi-final win over Atletico Madrid`\
-https://nytimes.com/athletic/6246913/2025/04/02/atletico-madrid-barcelona-torres-yamal/
 
