@@ -1,3 +1,7 @@
+**Read the letter**\
+`A love letter to the Division of Violence Prevention`\
+https://nytimes.com/interactive/2025/04/02/science/violence-prevention-love-letter.html
+
 **Ancelotti appears in court over alleged tax fraud**\
 `Ancelotti was charged in 2020 and Spanish prosecutors are seeking a prison sentence of four years and nine months and a fine of €3.2m.`\
 https://nytimes.com/athletic/6249258/2025/04/02/carlo-ancelotti-real-madrid-tax-fraud/
@@ -27,14 +31,10 @@ https://nytimes.com/2025/04/02/nyregion/paul-weiss-granddaughters-letter.html
 https://nytimes.com/athletic/6249892/2025/04/02/islanders-patrick-roy-anthony-duclair-nhl/
 
 **Little Island Welcomes an Ambitious Sophomore Season**\
-`The summer lineup will include eight world premieres, including new works by Suzan-Lori Parks, Whitney White and Bobbi Jene Smith.`\
+`The summer lineup will include eight premieres, including new works by Suzan-Lori Parks, Whitney White and Bobbi Jene Smith.`\
 https://nytimes.com/2025/04/02/arts/dance/little-island-summer-season.html
 
 **Charges Dropped Against Adams, but Re-Election Chances Remain Dim**\
 `Even with the dismissal of a five-count federal corruption indictment, Mayor Eric Adams faces an uncertain future.`\
 https://nytimes.com/2025/04/02/nyregion/eric-adams-mayor-election.html
-
-**Supreme Court Sides With Truck Driver Fired Over Drug Test**\
-`The driver, Douglas Horn, sued the maker of a product advertised as THC-free under a federal racketeering law, saying he had suffered a business injury.`\
-https://nytimes.com/2025/04/02/us/supreme-court-truck-driver.html
 

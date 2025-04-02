@@ -1,3 +1,11 @@
+**Read the letter**\
+`A love letter to the Division of Violence Prevention`\
+https://nytimes.com/interactive/2025/04/02/science/violence-prevention-love-letter.html
+
+**Little Island Welcomes an Ambitious Sophomore Season**\
+`The summer lineup will include eight premieres, including new works by Suzan-Lori Parks, Whitney White and Bobbi Jene Smith.`\
+https://nytimes.com/2025/04/02/arts/dance/little-island-summer-season.html
+
 **Ancelotti appears in court over alleged tax fraud**\
 `Ancelotti was charged in 2020 and Spanish prosecutors are seeking a prison sentence of four years and nine months and a fine of €3.2m.`\
 https://nytimes.com/athletic/6249258/2025/04/02/carlo-ancelotti-real-madrid-tax-fraud/
