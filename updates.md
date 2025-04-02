@@ -1,3 +1,19 @@
+**Ralph Holloway, Anthropologist Who Studied Brain’s Evolution, Dies at 90**\
+`It wasn’t the size of human brains that distinguished people from apes, he theorized, but the way they were organized. He found a creative way to prove it.`\
+https://nytimes.com/2025/04/02/science/ralph-holloway-dead.html
+
+**After Briefly Disappearing, TikTok Went Back to Normal. Or Did It?**\
+`TikTok’s future is in limbo as another deadline looms. For some users, nothing has been the same since those 14 hours in January anyway.`\
+https://nytimes.com/2025/04/02/style/tiktok-ban-algorithm-deadline.html
+
+**Political Texts or Scantily Clad Pics? Both.**\
+`Before Wisconsin’s election, a right-wing group rallied for voters’ attention with unauthorized photos of Emily Ratajkowski and a shirtless man holding a dog.`\
+https://nytimes.com/2025/04/02/style/right-wing-group-wisconsin-voting-thirst-traps.html
+
+**Thursday Briefing: Trump’s Global Tariffs**\
+`Plus, David Hockney’s biggest show.`\
+https://nytimes.com/2025/04/02/briefing/trump-tariffs-israel-gaza-musk-tesla-sales.html
+
 **Let Us Help You Find Your Next Book: Fantasy**\
 `Whether you're looking for a classic or the latest and greatest, start here.`\
 https://nytimes.com/interactive/2025/books/fantasy-books.html
