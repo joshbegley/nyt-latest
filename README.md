@@ -1,3 +1,15 @@
+**‘Truelove’ Explores Truth, Love and Endings**\
+`This thoughtful British mini-series explores the complex bonds among a group of aging friends who are determined not to let one another suffer.`\
+https://nytimes.com/2025/04/02/arts/television/truelove-acorn.html
+
+**Nobody Wants to Be Responsible for Dismal K-12 Test Scores**\
+`Trump wants to give power back to the states. Some states are lowering standards.`\
+https://nytimes.com/2025/04/02/opinion/florida-standardized-tests.html
+
+**My Future Sister-in-Law Is Skipping My Wedding to Dance at a Football Game. Help!**\
+`A bride-to-be has trouble accepting a future relative’s decision to miss her wedding because of a scheduling conflict with a newly landed dream job.`\
+https://nytimes.com/2025/04/02/style/in-laws-wedding-attendance.html
+
 **Offensive woes continue for Braves, MLB's only winless team, in loss to Dodgers**\
 `“I can't explain it,” Braves manager Brian Snitker said of the woeful hitting. “I'm sure they're pressing."`\
 https://nytimes.com/athletic/6248994/2025/04/02/braves-winless-mlb-lose-dodgers/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6248990/2025/04/02/grizzlies-loss-defense-stephen-c
 **What I'm hearing about Penguins' NHL Draft, free agency**\
 `Penguins GM Kyle Dubas will have plenty of decisions to make this summer as he looks to turn around his team as quickly as possible.`\
 https://nytimes.com/athletic/6243538/2025/04/02/penguins-nhl-draft-free-agents/
-
-**Club World Cup playoff would be controversial, but also a blockbuster**\
-`FIFA's one-game playoff plan is a strange step, but may lead to a entertaining spectacle.`\
-https://nytimes.com/athletic/6248635/2025/04/02/club-world-cup-lafc-america-fifa/
-
-**Senators mailbag: Submit your questions for Julian McKenzie**\
-`With the season winding down and the Senators looking set for a playoff berth, it's time for another mailbag.`\
-https://nytimes.com/athletic/6247529/2025/04/02/ottawa-senators-mailbag-april/
-
-**Behind the Maple Leafs' NCAA signing frenzy: What to expect from the newest Marlies**\
-`What do Luke Haymes, John Prokop and Ryan Kirwan bring to Toronto? What do their signings reveal about the state of the Leafs' prospect pool`\
-https://nytimes.com/athletic/6244956/2025/04/02/maple-leafs-ncaa-free-agents-haymes-prokop/
 

@@ -1,3 +1,7 @@
+**Offensive woes continue for Braves, MLB's only winless team, in loss to Dodgers**\
+`“I can't explain it,” Braves manager Brian Snitker said of the woeful hitting. “I'm sure they're pressing."`\
+https://nytimes.com/athletic/6248994/2025/04/02/braves-winless-mlb-lose-dodgers/
+
 **Steph Curry’s epic performance illustrates Grizzlies’ downward spiral on defense**\
 `The Grizzlies’ flaws on the defensive end have left them reeling over the past few weeks.`\
 https://nytimes.com/athletic/6248990/2025/04/02/grizzlies-loss-defense-stephen-curry/
