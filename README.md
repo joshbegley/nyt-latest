@@ -1,3 +1,11 @@
+**Padres, Jackson Merrill agree to 9-year, $135 million contract: Source**\
+`Merrill finished second in NL Rookie of the Year voting last season and won a Silver Slugger award.`\
+https://nytimes.com/athletic/6249594/2025/04/02/padres-jackson-merrill-contract-extension/
+
+**Judge Ends Case Against Adams, Bowing to Trump Administration’s Wishes**\
+`The judge, Dale E. Ho, refused to let the government leave open the prospect of reinstating corruption charges against Mayor Eric Adams. But his decision recognized the president’s power to determine the fate of prosecutions.`\
+https://nytimes.com/2025/04/02/nyregion/eric-adams-case-dismissed.html
+
 **A Florida superfan bet on Duke. Now he is two Duke wins away from a six-figure payout**\
 `One fan placed a $5 parlay last year and now stands to win a six-figure payout if Duke clinches the title.`\
 https://nytimes.com/athletic/6246853/2025/04/02/march-madness-massive-parlay-payout-duke-bet/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/02/arts/television/truelove-acorn.html
 **Nobody Wants to Be Responsible for Dismal K-12 Test Scores**\
 `Trump wants to give power back to the states. Some states are lowering standards.`\
 https://nytimes.com/2025/04/02/opinion/florida-standardized-tests.html
-
-**My Future Sister-in-Law Is Skipping My Wedding to Dance at a Football Game. Help!**\
-`A bride-to-be has trouble accepting a future relative’s decision to miss her wedding because of a scheduling conflict with a newly landed dream job.`\
-https://nytimes.com/2025/04/02/style/in-laws-wedding-attendance.html
-
-**Offensive woes continue for Braves, MLB's only winless team, in loss to Dodgers**\
-`“I can't explain it,” Braves manager Brian Snitker said of the woeful hitting. “I'm sure they're pressing."`\
-https://nytimes.com/athletic/6248994/2025/04/02/braves-winless-mlb-lose-dodgers/
 

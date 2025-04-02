@@ -1,3 +1,7 @@
+**Postecoglou 'not disrespected' by Pochettino’s Spurs return hopes**\
+`Last month, Pochettino told reporters he would like to return to Spurs to fulfil his dream of winning a trophy with them.`\
+https://nytimes.com/athletic/6249565/2025/04/02/ange-postecoglou-mauricio-pochettino-tottenham/
+
 **A Florida superfan bet on Duke. Now he is two Duke wins away from a six-figure payout**\
 `One fan placed a $5 parlay last year and now stands to win a six-figure payout if Duke clinches the title.`\
 https://nytimes.com/athletic/6246853/2025/04/02/march-madness-massive-parlay-payout-duke-bet/
