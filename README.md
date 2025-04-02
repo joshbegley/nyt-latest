@@ -2,7 +2,7 @@
 `Merrill finished second in NL Rookie of the Year voting last season and won a Silver Slugger award.`\
 https://nytimes.com/athletic/6249594/2025/04/02/padres-jackson-merrill-contract-extension/
 
-**Judge Ends Case Against Adams, Bowing to Trump Administration’s Wishes**\
+**Judge Ends Eric Adams Case, but Says U.S. Cannot Use Charges as Leverage**\
 `The judge, Dale E. Ho, refused to let the government leave open the prospect of reinstating corruption charges against Mayor Eric Adams. But his decision recognized the president’s power to determine the fate of prosecutions.`\
 https://nytimes.com/2025/04/02/nyregion/eric-adams-case-dismissed.html
 
