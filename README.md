@@ -1,3 +1,7 @@
+**Trump’s Global Trade War Makes the Fed’s Task Tougher**\
+`Tariffs risk slowing growth and making inflation stickier, a tricky combination for the central bank as it debates what to do about interest rates.`\
+https://nytimes.com/2025/04/02/business/economy/trump-tariffs-federal-reserve-inflation.html
+
 **Lowetide: Can Oilers forwards turn around their inconsistent season?**\
 `Many Oilers forwards are badly off the pace of their own established performance levels, and well shy of expectations.`\
 https://nytimes.com/athletic/6247087/2025/04/02/edmonton-oilers-stats-forwards-2024-25/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6249399/2025/04/02/leeds-united-accounts-explained-
 **Manchester United head coach Skinner signs new two-year contract**\
 `Skinner's previous deal had been due to expire in the end of the season, with the option for a further 12 months.`\
 https://nytimes.com/athletic/6243723/2025/04/02/marc-skinner-contract-manchester-united-women/
-
-**San Francisco Rethinks Its Free Handouts of Drug Paraphernalia**\
-`Daniel Lurie, the city’s new mayor, is scaling back a program that gives away clean foil, pipes and plastic straws for fentanyl consumption. Nonprofits will have to direct people toward treatment.`\
-https://nytimes.com/2025/04/02/us/san-francisco-drug-supplies.html
 
