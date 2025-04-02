@@ -1,3 +1,7 @@
+**Who are Notre Dame's transfers, and what do they bring to the Irish?**\
+`Six of Notre Dame’s eight incoming transfers are already in South Bend for spring practice.`\
+https://nytimes.com/athletic/6249326/2025/04/02/notre-dame-football-transfers/
+
 **Padres, Jackson Merrill agree to 9-year, $135 million contract: Source**\
 `Merrill finished second in NL Rookie of the Year voting last season and won a Silver Slugger award.`\
 https://nytimes.com/athletic/6249594/2025/04/02/padres-jackson-merrill-contract-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/02/us/becerra-california-governor-harris.html
 **‘Truelove’ Explores Truth, Love and Endings**\
 `This thoughtful British mini-series explores the complex bonds among a group of aging friends who are determined not to let one another suffer.`\
 https://nytimes.com/2025/04/02/arts/television/truelove-acorn.html
-
-**Nobody Wants to Be Responsible for Dismal K-12 Test Scores**\
-`Trump wants to give power back to the states. Some states are lowering standards.`\
-https://nytimes.com/2025/04/02/opinion/florida-standardized-tests.html
 
