@@ -1,3 +1,15 @@
+**‘Adolescence’ Stars Discuss Their Father-Son Bond, and Questions of a Sequel**\
+`In an interview, the actors Owen Cooper and Stephen Graham explore the social and personal impact of the Netflix hit about a teenager accused of murder.`\
+https://nytimes.com/2025/04/02/arts/television/adolescence-owen-cooper-stephen-graham-interview.html
+
+**Jakob Ingebrigtsen's father says he was 'not kind' as a coach**\
+`The 59-year-old Gjert Ingebrigtsen has denied all allegations and pleaded not guilty at the start of the trial`\
+https://nytimes.com/athletic/6250052/2025/04/02/jakob-ingebrigtsen-gjert-trial/
+
+**N.Y.C. Transit Leaders Unveil New Subway Map**\
+`The redesigned map, the first to be introduced in nearly half a century, is reminiscent of a version from the 1970s that was reviled by many traditionalists.`\
+https://nytimes.com/2025/04/02/nyregion/nyc-new-subway-map.html
+
 **Read the letter**\
 `A love letter to the Division of Violence Prevention`\
 https://nytimes.com/interactive/2025/04/02/science/violence-prevention-love-letter.html
