@@ -1,3 +1,31 @@
+**Joe DePugh, Speedball Pitcher in Springsteen’s ‘Glory Days,’ Dies at 75**\
+`A gifted athlete, he gave a clumsy teenage Bruce Springsteen his first nickname, Saddie. Years later, the Boss returned the favor, memorializing him in a song.`\
+https://nytimes.com/2025/04/02/arts/music/joe-depugh-dead-glory-days.html
+
+**U.S.D.A. Freezes Funding for Maine Amid Battle Over Transgender Athletes**\
+`The administration concluded last month that Maine had violated federal law by allowing transgender athletes to play on girls’ or women’s teams.`\
+https://nytimes.com/2025/04/02/us/politics/trump-maine-funding-freeze-transgender-athletes.html
+
+**Kennedy Guts Teams That Share Health Information With the Public**\
+`The health secretary had promised “radical transparency,” but fired communications teams in the Health and Human Services Department.`\
+https://nytimes.com/2025/04/02/well/hhs-workers-cuts-rfk-jr.html
+
+**The Briefing: Atletico 0 Barcelona 1 (4-5 agg) - Magical Yamal, Torres scores again and a Clasico final next**\
+`Thom Harris and Dermot Corrigan break down Barcelona's Copa del Rey semi-final win over Atletico Madrid`\
+https://nytimes.com/athletic/6246913/2025/04/02/atletico-madrid-barcelona-torres-yamal/
+
+**A Pristine Family Photo. Then Barack Obama Strolls By.**\
+`The former president was taking a morning walk just as two young siblings posed with the Washington Monument and cherry blossoms serving as a perfect backdrop.`\
+https://nytimes.com/2025/04/02/us/a-pristine-family-photo-then-barack-obama-strolls-by.html
+
+**With Trump’s Tariffs, the Chasm Between Allies and the U.S. Widens**\
+`President Trump announced sweeping levies on countries across the world. Washington’s partners have been bracing for the fallout.`\
+https://nytimes.com/2025/04/02/world/europe/trump-tariffs-reciprocal-reaction-trade-war.html
+
+**NWSL expansion team Boston Legacy gets White Stadium court win**\
+`A Superior Court Justice ruled on Wednesday that the renovation of the stadium is not in violation of Massachusetts state law.`\
+https://nytimes.com/athletic/6250823/2025/04/02/boston-legacy-white-stadium/
+
 **Ralph Holloway, Anthropologist Who Studied Brain’s Evolution, Dies at 90**\
 `It wasn’t the size of human brains that distinguished people from apes, he theorized, but the way they were organized. He found a creative way to prove it.`\
 https://nytimes.com/2025/04/02/science/ralph-holloway-dead.html
@@ -9,32 +37,4 @@ https://nytimes.com/2025/04/02/style/tiktok-ban-algorithm-deadline.html
 **Political Texts or Scantily Clad Pics? Both.**\
 `Before Wisconsin’s election, a right-wing group rallied for voters’ attention with unauthorized photos of Emily Ratajkowski and a shirtless man holding a dog.`\
 https://nytimes.com/2025/04/02/style/right-wing-group-wisconsin-voting-thirst-traps.html
-
-**Thursday Briefing: Trump’s Global Tariffs**\
-`Plus, David Hockney’s biggest show.`\
-https://nytimes.com/2025/04/02/briefing/trump-tariffs-israel-gaza-musk-tesla-sales.html
-
-**Let Us Help You Find Your Next Book: Fantasy**\
-`Whether you're looking for a classic or the latest and greatest, start here.`\
-https://nytimes.com/interactive/2025/books/fantasy-books.html
-
-**Mark Zuckerberg Lobbies Trump to Settle Antitrust Suit Against Meta**\
-`The Meta chief, who was at the White House on Wednesday, has discussed the case with the president and his aides. A trial is set to start in less than two weeks.`\
-https://nytimes.com/2025/04/02/technology/mark-zuckerberg-trump-meta-antitrust.html
-
-**For Trump, Musk Is a Scapegoat and a Liability. But for Now, He’s Still Useful.**\
-`Elon Musk has become a valuable heat shield for a president who avoids blame at any cost.`\
-https://nytimes.com/2025/04/02/us/politics/trump-musk-wisconsin.html
-
-**'We were part of the problem': Improved Flyers responding to coaching change**\
-`Since John Tortorella was fired, Philadelphia has won three games in a row and Matvei Michkov and Owen Tippett have stood out.`\
-https://nytimes.com/athletic/6250643/2025/04/02/flyers-john-tortorella-matvei-michkov-owen-tippett/
-
-**Nashville Police Release Details on Covenant School Shooting and Close Case**\
-`A summary of the police investigation, released two years after the attack, found that the shooter had spent years planning the violence and covering up mental health problems.`\
-https://nytimes.com/2025/04/02/us/politics/covenant-school-shooting-report-nashville.html
-
-**Spotify Sells Itself to Advertisers as ‘Nutritional’**\
-`After finally achieving profitability, the streaming platform wants to be a healthy alternative to “doom scrolling.”`\
-https://nytimes.com/2025/04/02/business/media/spotify-advertising.html
 

@@ -1,3 +1,15 @@
+**Richard Bernstein, Times Correspondent, Critic and Author, Dies at 80**\
+`He wrote from Europe and Asia, served as a book critic and produced a raft of books, on subjects ranging from the French condition to multiculturalism.`\
+https://nytimes.com/2025/04/02/business/media/richard-bernstein-dead.html
+
+**The ‘White Lotus’ Music Will Never Be the Same**\
+`Cristóbal Tapia de Veer’s theme song was one of the breakout stars of HBO’s vacation thriller. In an exclusive interview, the composer said he had ooh’ed his last loo-loo.`\
+https://nytimes.com/2025/04/02/style/white-lotus-composer-season-4-leaving.html
+
+**Howe confirms Isak, Trippier withdrawn due to groin injuries**\
+`Now fifth after the win over Brentford, Newcastle's next game comes at Leicester City on Monday.`\
+https://nytimes.com/athletic/6250845/2025/04/02/alexander-isak-injury-trippier-newcastle/
+
 **Joe DePugh, Speedball Pitcher in Springsteen’s ‘Glory Days,’ Dies at 75**\
 `A gifted athlete, he gave a clumsy teenage Bruce Springsteen his first nickname, Saddie. Years later, the Boss returned the favor, memorializing him in a song.`\
 https://nytimes.com/2025/04/02/arts/music/joe-depugh-dead-glory-days.html
@@ -16,7 +28,7 @@ https://nytimes.com/athletic/6246913/2025/04/02/atletico-madrid-barcelona-torres
 
 **A Pristine Family Photo. Then Barack Obama Strolls By.**\
 `The former president was taking a morning walk just as two young siblings posed with the Washington Monument and cherry blossoms serving as a perfect backdrop.`\
-https://nytimes.com/2025/04/02/us/a-pristine-family-photo-then-barack-obama-strolls-by.html
+https://nytimes.com/2025/04/02/us/obama-photobomb-dc-cherry-blossoms.html
 
 **With Trump’s Tariffs, the Chasm Between Allies and the U.S. Widens**\
 `President Trump announced sweeping levies on countries across the world. Washington’s partners have been bracing for the fallout.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/02/world/europe/trump-tariffs-reciprocal-reaction-tr
 **NWSL expansion team Boston Legacy gets White Stadium court win**\
 `A Superior Court Justice ruled on Wednesday that the renovation of the stadium is not in violation of Massachusetts state law.`\
 https://nytimes.com/athletic/6250823/2025/04/02/boston-legacy-white-stadium/
-
-**Ralph Holloway, Anthropologist Who Studied Brain’s Evolution, Dies at 90**\
-`It wasn’t the size of human brains that distinguished people from apes, he theorized, but the way they were organized. He found a creative way to prove it.`\
-https://nytimes.com/2025/04/02/science/ralph-holloway-dead.html
-
-**After Briefly Disappearing, TikTok Went Back to Normal. Or Did It?**\
-`TikTok’s future is in limbo as another deadline looms. For some users, nothing has been the same since those 14 hours in January anyway.`\
-https://nytimes.com/2025/04/02/style/tiktok-ban-algorithm-deadline.html
-
-**Political Texts or Scantily Clad Pics? Both.**\
-`Before Wisconsin’s election, a right-wing group rallied for voters’ attention with unauthorized photos of Emily Ratajkowski and a shirtless man holding a dog.`\
-https://nytimes.com/2025/04/02/style/right-wing-group-wisconsin-voting-thirst-traps.html
 
