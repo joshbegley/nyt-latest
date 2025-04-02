@@ -1,3 +1,7 @@
+**Trump’s Fight Against Antisemitism Has Become Fraught for Many Jews**\
+`American Jews have watched with both alarm and enthusiasm as strong-arm tactics, including arrests of activists, have been deployed in their name.`\
+https://nytimes.com/2025/04/02/us/jews-trump.html
+
 **Senators Denounce Trump Administration’s Response to Myanmar Quake**\
 `Democratic senators said in a letter that the administration was failing its first test of humanitarian aid as China and Russia send teams to help.`\
 https://nytimes.com/2025/04/02/us/politics/trump-aid-myanmar-earthquake.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/02/nyregion/nyu-doctor-speech-canceled.html
 **‘A Minecraft Movie’ Review: Block by Bizarre Block**\
 `Jack Black and Jason Momoa star in this adaptation of the megahit video game that leans into the mindless silliness of mid-aughts comedy.`\
 https://nytimes.com/2025/04/02/movies/a-minecraft-movie-review.html
-
-**Companies rushed to import goods ahead of the tariffs. Here’s what that looked like.**\
-`By Peter Eavis`\
-https://nytimes.com/live/2025/04/02/business/trump-tariffs-liberation-day/companies-rushed-to-import-goods-ahead-of-the-tariffs-heres-what-that-looked-like
 

@@ -1,3 +1,11 @@
+**Senators Denounce Trump Administration’s Response to Myanmar Quake**\
+`Democratic senators said in a letter that the administration was failing its first test of humanitarian aid as China and Russia send teams to help.`\
+https://nytimes.com/2025/04/02/us/politics/trump-aid-myanmar-earthquake.html
+
+**Lawyer for Many in Trump’s Orbit Is Picked for No. 3 Post at Justice Dept.**\
+`If confirmed, Stanley Woodward would join a number of other former lawyers for President Trump who have been selected to key law enforcement positions.`\
+https://nytimes.com/2025/04/02/us/politics/trump-doj-pick-woodward.html
+
 **American exporters had been vying to shape Trump’s trade agenda.**\
 `By Ana Swanson`\
 https://nytimes.com/live/2025/04/02/business/trump-tariffs-liberation-day/american-exporters-had-been-vying-to-shape-trumps-trade-agenda
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/02/movies/a-minecraft-movie-review.html
 **Companies rushed to import goods ahead of the tariffs. Here’s what that looked like.**\
 `By Peter Eavis`\
 https://nytimes.com/live/2025/04/02/business/trump-tariffs-liberation-day/companies-rushed-to-import-goods-ahead-of-the-tariffs-heres-what-that-looked-like
-
-**The Cory Booker Endurance Test**\
-`What happens to your body when you deliver a 25-hour speech without any breaks?`\
-https://nytimes.com/2025/04/02/well/cory-booker-senate-speech-prep.html
-
-**NBA investigating Ja Morant's apparent gun gesture toward Warriors: Source**\
-`Grizzlies star has a history with gun-related incidents in recent years, all of which led to a 25-game league suspension in Dec. of 2023.`\
-https://nytimes.com/athletic/6250334/2025/04/02/ja-morant-grizzlies-warriors-finger-guns-nba/
 
