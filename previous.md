@@ -1,3 +1,11 @@
+**For Trump, Musk Is a Scapegoat and a Liability. But for Now, He’s Still Useful.**\
+`Elon Musk has become a valuable heat shield for a president who avoids blame at any cost.`\
+https://nytimes.com/2025/04/02/us/politics/trump-musk-wisconsin.html
+
+**'We were part of the problem': Improved Flyers responding to coaching change**\
+`Since John Tortorella was fired, Philadelphia has won three games in a row and Matvei Michkov and Owen Tippett have stood out.`\
+https://nytimes.com/athletic/6250643/2025/04/02/flyers-john-tortorella-matvei-michkov-owen-tippett/
+
 **Nashville Police Release Details on Covenant School Shooting and Close Case**\
 `A summary of the police investigation, released two years after the attack, found that the shooter had spent years planning the violence and covering up mental health problems.`\
 https://nytimes.com/2025/04/02/us/politics/covenant-school-shooting-report-nashville.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/02/business/trump-law-firms-milbank-deal.html
 **Countries Targeted by Trump’s Tariffs May Strike Back at U.S. Services**\
 `Service sectors make up the vast bulk of the American economy, which gives trading partners some clout in trade negotiations.`\
 https://nytimes.com/2025/04/02/business/economy/tariffs-foreign-goods-tariffs-us-services.html
-
-**A Tequila Ban a Century Ago Predicts the Chaos of Trump’s Tariffs**\
-`Trump’s threat to impose tariffs on Mexico undermines his stated intention to eliminate the “chaos” at America’s southern border.`\
-https://nytimes.com/2025/04/02/opinion/trump-tariffs-mexico-tequila-border.html
-
-**Mets' Vientos gets the message on hustle: 'I won't let that happen again'**\
-`Mets manager Carlos Mendoza advised struggling third baseman to "stick to the basics."`\
-https://nytimes.com/athletic/6250676/2025/04/02/mets-mark-viento-lack-of-hustle/
 

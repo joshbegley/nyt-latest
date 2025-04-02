@@ -1,3 +1,11 @@
+**For Trump, Musk Is a Scapegoat and a Liability. But for Now, He’s Still Useful.**\
+`Elon Musk has become a valuable heat shield for a president who avoids blame at any cost.`\
+https://nytimes.com/2025/04/02/us/politics/trump-musk-wisconsin.html
+
+**'We were part of the problem': Improved Flyers responding to coaching change**\
+`Since John Tortorella was fired, Philadelphia has won three games in a row and Matvei Michkov and Owen Tippett have stood out.`\
+https://nytimes.com/athletic/6250643/2025/04/02/flyers-john-tortorella-matvei-michkov-owen-tippett/
+
 **Nashville Police Release Details on Covenant School Shooting and Close Case**\
 `A summary of the police investigation, released two years after the attack, found that the shooter had spent years planning the violence and covering up mental health problems.`\
 https://nytimes.com/2025/04/02/us/politics/covenant-school-shooting-report-nashville.html
