@@ -1,3 +1,7 @@
+**The Movie That Can Help You Understand Cory Booker’s Senate Speech**\
+`“Mr. Smith Goes to Washington,” starring Jimmy Stewart as a naïve senator, explores the idealism — and reality — behind the tactic.`\
+https://nytimes.com/2025/04/02/movies/cory-booker-speech-mr-smith-goes-to-washington.html
+
 **Judge denies Phillies' request for restraining order in case against analytics company**\
 `The Phillies failed to "show that its claims of injury were anything but entirely speculative," the judge wrote, in siding with Teamworks.`\
 https://nytimes.com/athletic/6250439/2025/04/02/phillies-teamworks-lawsuit-restraining-order/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/02/us/politics/trump-aid-myanmar-earthquake.html
 **Lawyer for Many in Trump’s Orbit Is Picked for No. 3 Post at Justice Dept.**\
 `If confirmed, Stanley Woodward would join a number of other former lawyers for President Trump who have been selected to key law enforcement positions.`\
 https://nytimes.com/2025/04/02/us/politics/trump-doj-pick-woodward.html
-
-**American exporters had been vying to shape Trump’s trade agenda.**\
-`By Ana Swanson`\
-https://nytimes.com/live/2025/04/02/business/trump-tariffs-liberation-day/american-exporters-had-been-vying-to-shape-trumps-trade-agenda
 
