@@ -1,3 +1,7 @@
+**Dave Sims' 'amazing' first week in Yankees radio booth: 'Welcome to Home Run Derby'**\
+`No broadcaster has ever begun their career with a new team quite like this. Sims discusses the booming start to his dream job. `\
+https://nytimes.com/athletic/6249895/2025/04/02/dave-sims-yankees-home-runs/
+
 **Read the Letter to the Chairman of Paul Weiss**\
 `The granddaughters of the man who formulated the firm’s principles wrote to the chairman decrying his deal with President Trump.`\
 https://nytimes.com/interactive/2025/04/02/us/paul-weiss-letter-32725-2.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/02/business/media/amazon-tiktok-bid.html
 **The Windup: Explaining the new 'kick-change' pitch**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6248855/2025/04/02/mlb-pitch-type-kick-change-the-windup/
-
-**Lore, Rodriguez have agreement for ownership of Timberwolves, Lynx**\
-`Both sides expect Lore and Rodriguez to be approved, the sources said.`\
-https://nytimes.com/athletic/6249866/2025/04/02/timberwolves-marc-lore-alex-rodriguez-ownership-nba/
 
