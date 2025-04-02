@@ -1,3 +1,7 @@
+**Val Kilmer, Film Star Who Played Batman and Jim Morrison, Dies at 65**\
+`A wide-ranging leading man who earned critical praise, he was known to be charismatic but unpredictable. At one point he dropped out of Hollywood for a decade.`\
+https://nytimes.com/2025/04/01/movies/val-kilmer-dead.html
+
 **Democrats Show a Pulse: 6 Takeaways From Tuesday’s Elections**\
 `Energized against the new Trump era, and against Elon Musk, Democrats pulled off a crucial judicial victory in Wisconsin and cut into Republican margins in two Florida congressional races.`\
 https://nytimes.com/2025/04/01/us/politics/elections-florida-wisconsin-takeaways.html
