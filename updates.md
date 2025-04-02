@@ -1,3 +1,11 @@
+**The War on Nature in Ukraine**\
+`Fires and smoke foul the air. Toxins seep into the earth and water. Habitats for wildlife disappear. Experts call it ecocide.`\
+https://nytimes.com/interactive/2025/04/02/world/europe/ukraine-russia-war-environment.html
+
+**Trump’s advisers disagree on the goal of new tariffs. Is it to raise revenue, or lower trade barriers?**\
+`Trump’s supporters have clashed over the true goal of forthcoming global tariffs: raising revenue, or lowering foreign trade barriers?`\
+https://nytimes.com/live/2025/04/02/business/trump-tariffs-liberation-day/trumps-advisers-disagree-on-the-goal-of-new-tariffs-is-to-raise-revenue-or-lower-trade-barriers
+
 **Fan who used hateful language toward Barba Banda banned by Gotham FC**\
 `The fan in question was found to have violated the NWSL Fan Code of Conduct.`\
 https://nytimes.com/athletic/6250280/2025/04/02/nwsl-gotham-barba-banda-fan-hateful/

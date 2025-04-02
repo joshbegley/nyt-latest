@@ -1,3 +1,11 @@
+**The War on Nature in Ukraine**\
+`Fires and smoke foul the air. Toxins seep into the earth and water. Habitats for wildlife disappear. Experts call it ecocide.`\
+https://nytimes.com/interactive/2025/04/02/world/europe/ukraine-russia-war-environment.html
+
+**Trump’s advisers disagree on the goal of new tariffs. Is it to raise revenue, or lower trade barriers?**\
+`Trump’s supporters have clashed over the true goal of forthcoming global tariffs: raising revenue, or lowering foreign trade barriers?`\
+https://nytimes.com/live/2025/04/02/business/trump-tariffs-liberation-day/trumps-advisers-disagree-on-the-goal-of-new-tariffs-is-to-raise-revenue-or-lower-trade-barriers
+
 **Fan who used hateful language toward Barba Banda banned by Gotham FC**\
 `The fan in question was found to have violated the NWSL Fan Code of Conduct.`\
 https://nytimes.com/athletic/6250280/2025/04/02/nwsl-gotham-barba-banda-fan-hateful/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6250282/2025/04/02/red-sox-kristian-campbell-contra
 **Why Is Newsmax, the Right-Wing Channel, Suddenly Worth More Than U.S. Steel?**\
 `Newsmax lost $55 million in the first half of last year. But its stock has surged this week as shares in the company traded on the public market for the first time.`\
 https://nytimes.com/2025/04/02/business/media/newsmax-stock-ipo.html
-
-**Tariffs Are Likely to Hit U.S. Renewable Energy**\
-`The components used to assemble wind turbines are made by suppliers around the globe.`\
-https://nytimes.com/2025/04/02/business/trump-renewable-energy-tariffs.html
-
-**Tuesday’s Election Results Are a Boost for Democrats**\
-`Democrats achieved their biggest gains to date in the second Trump era, winning a fiercely contested State Supreme Court race in Wisconsin, while also landing relatively strong showings despite losing two Florida special elections.`\
-https://nytimes.com/video/us/politics/100000010085892/tuesdays-election-results-are-a-boost-for-democrats.html
 
