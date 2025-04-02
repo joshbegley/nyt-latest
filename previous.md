@@ -1,3 +1,7 @@
+**Trey Hendrickson: Executive's comments ‘disappointing’ amid contract talks**\
+`The star edge rusher took to the media to address his frustrations with comments by a Cincinnati executive at the annual league meeting.`\
+https://nytimes.com/athletic/6250397/2025/04/02/trey-hendrickson-bengals-frustration-contract-talks/
+
 **The War on Nature in Ukraine**\
 `Fires and smoke foul the air. Toxins seep into the earth and water. Habitats for wildlife disappear. Experts call it ecocide.`\
 https://nytimes.com/interactive/2025/04/02/world/europe/ukraine-russia-war-environment.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6250334/2025/04/02/ja-morant-grizzlies-warriors-fin
 **Red Sox, Kristian Campbell agree to 8-year, $60 million deal: Source**\
 `The extension for the 22-year-old runs through 2032 with options for 2033 and 2034.`\
 https://nytimes.com/athletic/6250282/2025/04/02/red-sox-kristian-campbell-contract-extension/
-
-**Why Is Newsmax, the Right-Wing Channel, Suddenly Worth More Than U.S. Steel?**\
-`Newsmax lost $55 million in the first half of last year. But its stock has surged this week as shares in the company traded on the public market for the first time.`\
-https://nytimes.com/2025/04/02/business/media/newsmax-stock-ipo.html
 

@@ -1,3 +1,7 @@
+**Trey Hendrickson: Executive's comments ‘disappointing’ amid contract talks**\
+`The star edge rusher took to the media to address his frustrations with comments by a Cincinnati executive at the annual league meeting.`\
+https://nytimes.com/athletic/6250397/2025/04/02/trey-hendrickson-bengals-frustration-contract-talks/
+
 **The War on Nature in Ukraine**\
 `Fires and smoke foul the air. Toxins seep into the earth and water. Habitats for wildlife disappear. Experts call it ecocide.`\
 https://nytimes.com/interactive/2025/04/02/world/europe/ukraine-russia-war-environment.html
