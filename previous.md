@@ -1,3 +1,15 @@
+**Digging in Against Proxy Voting, Johnson Exposes His Weak Hold on the House**\
+`The Republican speaker, who has mostly wielded power by relying on the threat of retribution from President Trump, has chosen an institutional fight it’s not clear he can win.`\
+https://nytimes.com/2025/04/02/us/politics/proxy-voting-johnson-house-republicans.html
+
+**Is Your Agency’s FOIA Office Being Shrunk or Cut?**\
+`The team that responds to requests at the Centers for Disease Control and Prevention has been eliminated. We are trying to determine whether this is a governmentwide pattern.`\
+https://nytimes.com/2025/04/02/us/politics/foia-office-callout.html
+
+**Inside the C.D.C., a Final ‘Love Letter’ Before Mass Layoffs**\
+`The agency’s injury center was among the departments that were largely gutted in Tuesday’s wave of dismissals. Read a staff member’s letter to colleagues while they awaited their fates.`\
+https://nytimes.com/2025/04/02/health/cdc-layoffs-response.html
+
 **Val Kilmer Brought a Wonderfully Weird Sensibility to Every Role**\
 `Even his choice of parts could be eccentric. In the end, he’s best thought of as a character actor trapped in a leading man’s body.`\
 https://nytimes.com/2025/04/02/movies/val-kilmer-career.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6250397/2025/04/02/trey-hendrickson-bengals-frustra
 **The War on Nature in Ukraine**\
 `Fires and smoke foul the air. Toxins seep into the earth and water. Habitats for wildlife disappear. Experts call it ecocide.`\
 https://nytimes.com/interactive/2025/04/02/world/europe/ukraine-russia-war-environment.html
-
-**Trump’s advisers disagree on the goal of new tariffs. Is it to raise revenue, or lower trade barriers?**\
-`Trump’s supporters have clashed over the true goal of forthcoming global tariffs: raising revenue, or lowering foreign trade barriers?`\
-https://nytimes.com/live/2025/04/02/business/trump-tariffs-liberation-day/trumps-advisers-disagree-on-the-goal-of-new-tariffs-is-to-raise-revenue-or-lower-trade-barriers
-
-**Fan who used hateful language toward Barba Banda banned by Gotham FC**\
-`The fan in question was found to have violated the NWSL Fan Code of Conduct.`\
-https://nytimes.com/athletic/6250280/2025/04/02/nwsl-gotham-barba-banda-fan-hateful/
-
-**N.Y.U. Cancels Doctor’s Speech at the Last Minute, Citing Anti-Government Tone**\
-`Dr. Joanne Liu, an N.Y.U. graduate, said the cancellation of her presentation on humanitarian crises was a sign of the climate of fear at U.S. universities.`\
-https://nytimes.com/2025/04/02/nyregion/nyu-doctor-speech-canceled.html
 

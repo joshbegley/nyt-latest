@@ -1,3 +1,15 @@
+**Digging in Against Proxy Voting, Johnson Exposes His Weak Hold on the House**\
+`The Republican speaker, who has mostly wielded power by relying on the threat of retribution from President Trump, has chosen an institutional fight it’s not clear he can win.`\
+https://nytimes.com/2025/04/02/us/politics/proxy-voting-johnson-house-republicans.html
+
+**Is Your Agency’s FOIA Office Being Shrunk or Cut?**\
+`The team that responds to requests at the Centers for Disease Control and Prevention has been eliminated. We are trying to determine whether this is a governmentwide pattern.`\
+https://nytimes.com/2025/04/02/us/politics/foia-office-callout.html
+
+**Inside the C.D.C., a Final ‘Love Letter’ Before Mass Layoffs**\
+`The agency’s injury center was among the departments that were largely gutted in Tuesday’s wave of dismissals. Read a staff member’s letter to colleagues while they awaited their fates.`\
+https://nytimes.com/2025/04/02/health/cdc-layoffs-response.html
+
 **Val Kilmer Brought a Wonderfully Weird Sensibility to Every Role**\
 `Even his choice of parts could be eccentric. In the end, he’s best thought of as a character actor trapped in a leading man’s body.`\
 https://nytimes.com/2025/04/02/movies/val-kilmer-career.html
