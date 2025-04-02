@@ -1,3 +1,7 @@
+**Fullkrug, Ferguson and diverging paths to solving West Ham's striker problem**\
+`There have been few positives this season, but Fullkrug's belated return offers hope that he will be the forward West Ham have long desired.`\
+https://nytimes.com/athletic/6247555/2025/04/02/fullkrug-ferguson-west-ham-strikers/
+
 **Fire Briefly Disrupts Heathrow Airport Train Service**\
 `Trains linking Paddington Station with Heathrow’s Terminal 5 may be canceled or face delays of up to 30 minutes.`\
 https://nytimes.com/2025/04/02/world/europe/heathrow-train-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6248937/2025/04/02/casey-mize-tigers/
 **Dustin May excels in return to the mound for first MLB game for Dodgers in 22 months**\
 `After staring down death, May embraced being back and pitched with that perspective.`\
 https://nytimes.com/athletic/6248944/2025/04/02/dodgers-win-dustin-may-returns/
-
-**Welcome to the Vitor Pereira Show: A song of ice and fire**\
-`In three and a half months, with an engaging blend of hot and cold, Pereira has put Wolves 12 points clear of the bottom three.`\
-https://nytimes.com/athletic/6248348/2025/04/02/vitor-pereira-wolves-defence-survival/
 
