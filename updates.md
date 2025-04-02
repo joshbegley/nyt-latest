@@ -1,3 +1,15 @@
+**San Diego FC reviewing fan brawls at Snapdragon Stadium, considering disciplinary action**\
+`Several videos appear to show fans involved in brawls after San Diego's 3-2 win over LAFC on Saturday.`\
+https://nytimes.com/athletic/6250234/2025/04/02/san-diego-fc-fan-violence/
+
+**Watch: Is Ben Johnson the perfect coach to get the most out of Ashton Jeanty?**\
+`"The Athletic Football Show" discusses why the Chicago Bears should draft Boise State running back Ashton Jeanty with the No.10 pick.`\
+https://nytimes.com/athletic/6244702/2025/04/02/athletic-football-show-ashton-jeanty-chicago-bears/
+
+**Justices Weigh Challenge to South Carolina’s Bid to Defund Planned Parenthood**\
+`The court will decide whether Medicaid beneficiaries may sue to receive services under a law that lets them choose any qualified provider.`\
+https://nytimes.com/2025/04/02/us/politics/supreme-court-planned-parenthood.html
+
 **When Val Kilmer Was Batman and the ’90s Were Their Most ’90s**\
 `The actor took only one turn in the famous batsuit. That film, “Batman Forever,” couldn’t be a more representative artifact of its era.`\
 https://nytimes.com/2025/04/02/movies/val-kilmer-batman-forever.html
