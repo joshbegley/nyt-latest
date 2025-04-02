@@ -1,3 +1,7 @@
+**The Bounce: Steph Curry adds to list of legendary games. Plus, revisiting bad preseason predictions**\
+`Steph Curry and Nikola Jokić had all-time performances on Tuesday. Zach Harper examines their greatness and revisits preseason predictions.`\
+https://nytimes.com/athletic/6249462/2025/04/02/steph-curry-nikola-jokic-warriors-nuggets-nba-the-bounce/
+
 **Read the ruling dismissing corruption charges against Eric Adams**\
 `Read Judge Dale Ho’s decision dismissing the charges against Eric Adams, the mayor of New York City, with prejudice.`\
 https://nytimes.com/interactive/2025/04/02/nyregion/adams-charges-dismissed-ruling.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6249004/2025/04/02/winnipeg-jets-kings-nhl-central-
 **Penn State spring takeaways, observations from practice, interviews**\
 `Here’s what stood out during this week’s practice viewing window and interview sessions at Penn State.`\
 https://nytimes.com/athletic/6249321/2025/04/02/penn-state-spring-football-james-franklin-jim-knowles/
-
-**Who are Notre Dame's transfers, and what do they bring to the Irish?**\
-`Six of Notre Dame’s eight incoming transfers are already in South Bend for spring practice.`\
-https://nytimes.com/athletic/6249326/2025/04/02/notre-dame-football-transfers/
 

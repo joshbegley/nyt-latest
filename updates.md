@@ -1,3 +1,15 @@
+**Read the ruling dismissing corruption charges against Eric Adams**\
+`Read Judge Dale Ho’s decision dismissing the charges against Eric Adams, the mayor of New York City, with prejudice.`\
+https://nytimes.com/interactive/2025/04/02/nyregion/adams-charges-dismissed-ruling.html
+
+**‘Finally Some Fire’: Cory Booker’s 25-Hour Speech Hits a Nerve at Home**\
+`Many Democrats, including in Mr. Booker’s home state of New Jersey, reveled in his stamina and moxie as he assailed President Trump in the longest Senate speech on record.`\
+https://nytimes.com/2025/04/02/nyregion/cory-booker-speech-reactions.html
+
+**Eagles owner Jeffrey Lurie defends the tush push, hints at Nick Sirianni extension: Takeaways**\
+`Plus: Lurie's thoughts on the upcoming White House visit and signing Zack Baun.`\
+https://nytimes.com/athletic/6248040/2025/04/02/eagles-jeffrey-lurie-tush-push-nick-sirianni-extension/
+
 **Gotham FC's Davidson out of 2025 season with ACL injury**\
 `The 26-year-old will be placed on the league’s season-ending injury list after suffering the injury against the Houston Dash.`\
 https://nytimes.com/athletic/6249626/2025/04/02/tierna-davidson-acl-injury-gotham-uswnt/
