@@ -1,3 +1,7 @@
+**Can Male Authors Publish Books Under Female Names?**\
+`The magazine’s Ethicist columnist on what is acceptable when trying to increase book sales.`\
+https://nytimes.com/2025/04/02/magazine/authors-books-names-ethics.html
+
 **The Movie That Can Help You Understand Cory Booker’s Senate Speech**\
 `“Mr. Smith Goes to Washington,” starring Jimmy Stewart as a naïve senator, explores the idealism — and reality — behind the tactic.`\
 https://nytimes.com/2025/04/02/movies/cory-booker-speech-mr-smith-goes-to-washington.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/02/us/jews-trump.html
 **Senators Denounce Trump Administration’s Response to Myanmar Quake**\
 `Democratic senators said in a letter that the administration was failing its first test of humanitarian aid as China and Russia send teams to help.`\
 https://nytimes.com/2025/04/02/us/politics/trump-aid-myanmar-earthquake.html
-
-**Lawyer for Many in Trump’s Orbit Is Picked for No. 3 Post at Justice Dept.**\
-`If confirmed, Stanley Woodward would join a number of other former lawyers for President Trump who have been selected to key law enforcement positions.`\
-https://nytimes.com/2025/04/02/us/politics/trump-doj-pick-woodward.html
 
