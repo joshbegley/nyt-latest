@@ -1,3 +1,11 @@
+**How Oilers outshined first-place Golden Knights: 3 takeaways from a possible playoff preview**\
+`The way the Oilers played in Vegas should have the Golden Knights’ attention ahead of a potential second-round series.`\
+https://nytimes.com/athletic/6249032/2025/04/02/oilers-golden-knights-pickard-nurse/
+
+**Leverkusen call for 'penalty' over 'unwatered' pitch in Bielefeld cup shock**\
+`Leverkusen were left unhappy with the condition of the pitch in Tuesday night's 2-1 defeat to the third division side.`\
+https://nytimes.com/athletic/6249305/2025/04/02/bielefeld-leverkusen-dfb-pokal-pitch/
+
 **On Eve of Trump’s Tariffs Announcement, Israel Says It Will Lift All Duties on U.S. Imports**\
 `The move was an apparent bid to ensure that Israel is exempt from new tariffs that President Trump plans to announce on Wednesday.`\
 https://nytimes.com/2025/04/02/us/politics/israel-tariffs-us-imports-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/02/us/politics/trump-legal-funds-migrant-children-ju
 **Curry erupts for 52 points as Warriors win in Memphis to grab fifth seed**\
 `Curry's haul helped give the Warriors a big win and the inside track to escape the dreaded Play-In Tournament bracket.`\
 https://nytimes.com/athletic/6248392/2025/04/02/steph-curry-points-warriors-grizzlies/
-
-**Anthony Elanga is versatile, technical and selfless - the epitome of this new Nottingham Forest**\
-`The Swedish winger is at home in Nuno Espirito Santo's unashamedly counter-attacking side, regardless of which position he plays`\
-https://nytimes.com/athletic/6249143/2025/04/02/elanga-forest-versatility/
-
-**The birth of a new pitch: Why MLB players are rushing to try the 'kick-change'**\
-`Some pitchers who can throw breaking balls but haven't yet found a changeup grip are finding that the kick-change fits their needs.`\
-https://nytimes.com/athletic/6201935/2025/04/02/new-baseball-pitch-kick-change-origins/
 
