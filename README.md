@@ -1,3 +1,7 @@
+**What does the future hold for Ja Morant and the Grizzlies?**\
+`NBA Daily discuss Ja Morant's future, why Memphis parted ways with Taylor Jenkins so late, and if Tuomas Iisalo will remain as head coach.`\
+https://nytimes.com/athletic/6249374/2025/04/02/nba-daily-memphis-grizzlies-ja-morant/
+
 **How a seven-second viral video encapsulates how sport has changed**\
 `Undeniably, the landscape of sport has changed. The furore around a seven-second viral video proves just that `\
 https://nytimes.com/athletic/6249660/2025/04/02/jasmine-joyce-butchers-chicken-banana-dance-tiktok-wales-six-nations/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/02/nyregion/nyc-new-subway-map.html
 **A love letter to the Division of Violence Prevention**\
 `Read the letter`\
 https://nytimes.com/interactive/2025/04/02/science/a-love-letter-to-the-division-of-violence-prevention.html
-
-**Ancelotti appears in court over alleged tax fraud**\
-`Ancelotti was charged in 2020 and Spanish prosecutors are seeking a prison sentence of four years and nine months and a fine of €3.2m.`\
-https://nytimes.com/athletic/6249258/2025/04/02/carlo-ancelotti-real-madrid-tax-fraud/
 
