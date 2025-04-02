@@ -1,3 +1,15 @@
+**Analysing Manchester United's 23 shots against Forest - and what it says of their attack**\
+`United haven't had as many shots in a game and lost since 2021. The lack of decisiveness in their attack is a huge concern`\
+https://nytimes.com/athletic/6249792/2025/04/02/manchester-united-shots-nottingham-forest-attack/
+
+**Falcons NFL Draft 2025 guide: Picks, predictions and key needs**\
+`The Falcons have glaring needs on defense and should think about the future of the offensive line. What will they do with the 15th pick?`\
+https://nytimes.com/athletic/6230522/2025/04/02/atlanta-falcons-2025-nfl-draft-picks-needs-predictions-guide/
+
+**Val Kilmer: A Life in Pictures**\
+`A charismatic and handsome leading man in the 1990s, Kilmer played both superhero and rock star.`\
+https://nytimes.com/2025/04/02/movies/val-kilmer-photos-batman-top-gun.html
+
 **What does the future hold for Ja Morant and the Grizzlies?**\
 `NBA Daily discuss Ja Morant's future, why Memphis parted ways with Taylor Jenkins so late, and if Tuomas Iisalo will remain as head coach.`\
 https://nytimes.com/athletic/6249374/2025/04/02/nba-daily-memphis-grizzlies-ja-morant/

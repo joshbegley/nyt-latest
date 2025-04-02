@@ -1,3 +1,11 @@
+**‘I Did Nothing Wrong’: Adams Says After Corruption Charges Dropped**\
+`A judge on Wednesday dismissed corruption charges against Eric Adams, ending the first criminal case against a New York City mayor in modern history.`\
+https://nytimes.com/video/nyregion/100000010087779/eric-adams-corruption-case.html
+
+**How the NHL is preparing for Ovechkin's record goal: OviCasts, a traveling caravan and Gretzky in the building**\
+`The game will be stopped for a ceremony when Alex Ovechkin passes Wayne Gretzky for most all-time goals, regardless of playoff implications.`\
+https://nytimes.com/athletic/6249409/2025/04/02/nhl-ovechkin-record-goal-preparations/
+
 **Analysing Manchester United's 23 shots against Forest - and what it says of their attack**\
 `United haven't had as many shots in a game and lost since 2021. The lack of decisiveness in their attack is a huge concern`\
 https://nytimes.com/athletic/6249792/2025/04/02/manchester-united-shots-nottingham-forest-attack/
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/100000010087463/storm-central-us-midwest-south.html
 **Entire Staff Is Fired at Office That Helps Poorer Americans Pay for Heating**\
 `The move threatens to paralyze the Low Income Home Energy Assistance Program, which helps to offset high utility bills for roughly 6.2 million people nationwide.`\
 https://nytimes.com/2025/04/02/climate/trump-layoffs-energy-assistance-liheap.html
-
-**‘Adolescence’ Stars Discuss Their Father-Son Bond, and Questions of a Sequel**\
-`In an interview, the actors Owen Cooper and Stephen Graham explore the social and personal impact of the Netflix hit about a teenager accused of murder.`\
-https://nytimes.com/2025/04/02/arts/television/adolescence-owen-cooper-stephen-graham-interview.html
-
-**Jakob Ingebrigtsen's father says he was 'not kind' as a coach**\
-`The 59-year-old Gjert Ingebrigtsen has denied all allegations and pleaded not guilty at the start of the trial`\
-https://nytimes.com/athletic/6250052/2025/04/02/jakob-ingebrigtsen-gjert-trial/
 
