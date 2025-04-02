@@ -1,3 +1,7 @@
+**Corrections: April 2, 2025**\
+`Corrections that appeared in print on Wednesday, April 2, 2025.`\
+https://nytimes.com/2025/04/01/pageoneplus/corrections-april-2-2025.html
+
 **Columbia Campus Occupation Could Have Ended Without Police, Report Says**\
 `A university senate review concludes that some demonstrators who occupied Hamilton Hall were willing to leave voluntarily.`\
 https://nytimes.com/2025/04/01/nyregion/columbia-protests-police.html
