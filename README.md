@@ -1,3 +1,19 @@
+**Israel Is Expanding Gaza Offensive, Defense Minister Says**\
+`Israel Katz warned that “large areas” of the enclave would be seized and added to security zones controlled by the military.`\
+https://nytimes.com/2025/04/02/world/middleeast/israel-gaza-offensive-hamas-war-katz.html
+
+**Blue-chippers, roster holes and Ben Johnson's vision: Bears NFL Draft takeaways**\
+`Having four picks in the top 75 (Nos. 10, 39, 41 and 72) is an encouraging starting point for the Bears.`\
+https://nytimes.com/athletic/6247843/2025/04/02/bears-nfl-draft-ben-johnson-ryan-poles/
+
+**Latest Storm System Could Drop ‘Potentially Historic’ Rain on Central U.S.**\
+`Forecasters warned of life-threatening flash flooding as a stalling system brings days of heavy rain and a tornado threat across much of the country.`\
+https://nytimes.com/2025/04/02/weather/severe-storms-midwest-tornado-flooding-rain.html
+
+**The New York Times International Edition in Print for Thursday, April 3, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/04/02/todays-new-york-times-international-edition
+
 **Chiefs the favorite to face the Chargers in Brazil, request Christmas Day spotlight**\
 `The Chiefs are the top contender to face the Chargers in São Paulo, Brazil, to open their season in a Friday night game Sept. 5.`\
 https://nytimes.com/athletic/6248441/2025/04/02/chiefs-chargers-brazil-christmas-day/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/04/02/opinion/poland-democracy-us.html
 **Chuck Todd Wants You to Meet the Pods**\
 `After leaving NBC News in January, the former “Meet the Press” moderator is starting a new chapter as a media entrepreneur.`\
 https://nytimes.com/2025/04/02/business/chuck-todd-podcast.html
-
-**I Study Measles. I’m Terrified We’re Headed for an Epidemic.**\
-`The outbreak in Texas could become much, much worse.`\
-https://nytimes.com/2025/04/02/opinion/measles-epidemic-texas.html
-
-**Unmarked Vans. Secret Lists. Public Denunciations. Our Police State Has Arrived.**\
-`Those of us who seen secret police in action can’t shake a feeling of dreadful familiarity.`\
-https://nytimes.com/2025/04/02/opinion/trump-ice-immigrants.html
-
-**Homes for Sale in New Jersey and New York**\
-`This week’s properties are a modern four-bedroom house in North Caldwell, and a colonial-style four-bedroom in Great Neck.`\
-https://nytimes.com/2025/04/02/realestate/housing-market-near-nyc.html
-
-**Homes for Sale in Manhattan and Brooklyn**\
-`This week’s properties are in TriBeCa, Hudson Heights and Fort Hamilton.`\
-https://nytimes.com/2025/04/02/realestate/housing-market-nyc.html
 
