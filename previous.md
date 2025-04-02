@@ -1,6 +1,22 @@
+**Trump’s New Tariffs Test Apple’s Global Supply Chain**\
+`The iPhone maker spent years trying to move production of some products out of China to avoid tariffs. But now that may not matter.`\
+https://nytimes.com/2025/04/02/technology/trump-tariffs-apple-iphones.html
+
+**The Briefing: Liverpool 1 Everton 0: Jota scores, Jones adapts and should Tarkowski have seen red?**\
+`Gregg Evans and Mark Carey analyse events from Wednesday night's Merseyside derby at Anfield`\
+https://nytimes.com/athletic/6245050/2025/04/02/liverpool-everton-premier-league-result-analysis/
+
+**In Gaza, ‘How Do You Heal a Scarred Soul?’**\
+`Protests against Hamas are encouraging, but prolonged and unnecessary killing still seems likely.`\
+https://nytimes.com/2025/04/02/opinion/gaza-hamas-israel.html
+
+**Excerpts From the Judge’s Order Dropping Charges Against Eric Adams**\
+`Although he granted the federal government’s request to drop the case, the judge harshly criticized its reasoning in seeking the dismissal.`\
+https://nytimes.com/2025/04/02/nyregion/adams-ho-justice-order-quotes.html
+
 **Another Big Law Firm Reaches Agreement With Trump**\
 `Milbank, based in Manhattan, agreed to provide $100 million in pro bono legal services to causes supported by the president and the firm.`\
-https://nytimes.com/2025/04/02/us/politics/trump-law-firms-milbank-deal.html
+https://nytimes.com/2025/04/02/business/trump-law-firms-milbank-deal.html
 
 **Countries Targeted by Trump’s Tariffs May Strike Back at U.S. Services**\
 `Service sectors make up the vast bulk of the American economy, which gives trading partners some clout in trade negotiations.`\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6244331/2025/04/02/newcastle-2-brentford-1-tonali-i
 **The Briefing: Man City 2 Leicester 0: Grealish and Marmoush dovetail as fans sit start out**\
 `All the key talking points from Manchester City's victory over Leicester analysed and evaluated`\
 https://nytimes.com/athletic/6244307/2025/04/02/manchester-city-leicester-city-premier-league/
-
-**Wisconsin Republicans Hit Their Vote Target, but Democrats Blew Past Theirs**\
-`The liberal candidate in the state’s Supreme Court race benefited from outsize Democratic turnout as counties swung left across the state.`\
-https://nytimes.com/2025/04/02/us/politics/wisconsin-turnout-democrats-republicans.html
-
-**Lawyers for Man Deported in Error to El Salvador Assail Trump Administration**\
-`The case has raised questions not only about how the man could have ended up on a plane to El Salvador, but also about why the administration has apparently not moved to correct its mistake.`\
-https://nytimes.com/2025/04/02/us/politics/maryland-man-deported-el-salvador-trump-criticism.html
-
-**Can Male Authors Publish Books Under Female Names?**\
-`The magazine’s Ethicist columnist on what is acceptable when trying to increase book sales.`\
-https://nytimes.com/2025/04/02/magazine/authors-books-names-ethics.html
-
-**The Movie That Can Help You Understand Cory Booker’s Senate Speech**\
-`“Mr. Smith Goes to Washington,” starring Jimmy Stewart as a naïve senator, explores the idealism — and reality — behind the tactic.`\
-https://nytimes.com/2025/04/02/movies/cory-booker-speech-mr-smith-goes-to-washington.html
 

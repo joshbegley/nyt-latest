@@ -1,3 +1,23 @@
+**Trump’s New Tariffs Test Apple’s Global Supply Chain**\
+`The iPhone maker spent years trying to move production of some products out of China to avoid tariffs. But now that may not matter.`\
+https://nytimes.com/2025/04/02/technology/trump-tariffs-apple-iphones.html
+
+**The Briefing: Liverpool 1 Everton 0: Jota scores, Jones adapts and should Tarkowski have seen red?**\
+`Gregg Evans and Mark Carey analyse events from Wednesday night's Merseyside derby at Anfield`\
+https://nytimes.com/athletic/6245050/2025/04/02/liverpool-everton-premier-league-result-analysis/
+
+**In Gaza, ‘How Do You Heal a Scarred Soul?’**\
+`Protests against Hamas are encouraging, but prolonged and unnecessary killing still seems likely.`\
+https://nytimes.com/2025/04/02/opinion/gaza-hamas-israel.html
+
+**Excerpts From the Judge’s Order Dropping Charges Against Eric Adams**\
+`Although he granted the federal government’s request to drop the case, the judge harshly criticized its reasoning in seeking the dismissal.`\
+https://nytimes.com/2025/04/02/nyregion/adams-ho-justice-order-quotes.html
+
+**Another Big Law Firm Reaches Agreement With Trump**\
+`Milbank, based in Manhattan, agreed to provide $100 million in pro bono legal services to causes supported by the president and the firm.`\
+https://nytimes.com/2025/04/02/business/trump-law-firms-milbank-deal.html
+
 **Another Big Law Firm Reaches Agreement With Trump**\
 `Milbank, based in Manhattan, agreed to provide $100 million in pro bono legal services to causes supported by the president and the firm.`\
 https://nytimes.com/2025/04/02/us/politics/trump-law-firms-milbank-deal.html
