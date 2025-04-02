@@ -1,3 +1,7 @@
+**Bears shift focus on new stadium location to Arlington Heights; downtown still in play**\
+`After a year of talk about building a new stadium on the museum campus downtown, the Bears are shifting focus back to Arlington Heights.`\
+https://nytimes.com/athletic/6249799/2025/04/02/bears-stadium-arlington-heights-shift/
+
 **In Ed Atkins’s World, the Uncanny Is Realer Than the Real**\
 `The British artist is being honored with a major retrospective. His eerie avatars aren’t quite lifelike, but they show what it means to be human.`\
 https://nytimes.com/2025/04/02/arts/design/ed-atkins-tate-britain.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/02/technology/trump-larry-ellison-tiktok-oracle.html
 **Desperation Grows in Gaza as U.N. Shutters Bakeries**\
 `Anxious residents rushed to obtain bags of flour as the United Nations warned that Israeli restrictions on aid deliveries were deepening the humanitarian crisis.`\
 https://nytimes.com/2025/04/02/world/middleeast/un-aid-gaza-world-food-program.html
-
-**U.S. Seeks to Calm Tempest in Europe Over Trump’s Anti-Diversity Policies**\
-`European companies and officials are balking at what they see as a campaign to impose U.S. policy abroad.`\
-https://nytimes.com/2025/04/02/business/dei-trump-europe-diversity.html
 

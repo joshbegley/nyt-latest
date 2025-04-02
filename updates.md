@@ -1,3 +1,7 @@
+**In Ed Atkins’s World, the Uncanny Is Realer Than the Real**\
+`The British artist is being honored with a major retrospective. His eerie avatars aren’t quite lifelike, but they show what it means to be human.`\
+https://nytimes.com/2025/04/02/arts/design/ed-atkins-tate-britain.html
+
 **Mallory McMorrow Enters Michigan Senate Race**\
 `The 38-year-old Democratic state lawmaker says that her party needs a generational shift.`\
 https://nytimes.com/2025/04/02/us/politics/michigan-senate-democrats-mallory-mcmorrow.html
