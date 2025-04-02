@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6246853/2025/04/02/march-madness-massive-parlay-payout-duke-bet/
 
 **Postecoglou 'not disrespected' by Pochettino’s Spurs return hopes**\
-`Ange Postecoglou says that he “did not feel disrespected” by Mauricio Pochettino’s comments about hoping to return to manage Tottenham Hotspur in the future.`\
+`Last month, Pochettino told reporters he would like to return to Spurs to fulfil his dream of winning a trophy with them.`\
 https://nytimes.com/athletic/6249565/2025/04/02/ange-postecoglou-mauricio-pochettino-tottenham/
 
 **Nintendo Switch 2 Will Release in June and Emphasize Streaming**\

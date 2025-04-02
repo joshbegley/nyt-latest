@@ -1,3 +1,15 @@
+**A Florida superfan bet on Duke. Now he is two Duke wins away from a six-figure payout**\
+`One fan placed a $5 parlay last year and now stands to win a six-figure payout if Duke clinches the title.`\
+https://nytimes.com/athletic/6246853/2025/04/02/march-madness-massive-parlay-payout-duke-bet/
+
+**Postecoglou 'not disrespected' by Pochettino’s Spurs return hopes**\
+`Ange Postecoglou says that he “did not feel disrespected” by Mauricio Pochettino’s comments about hoping to return to manage Tottenham Hotspur in the future.`\
+https://nytimes.com/athletic/6249565/2025/04/02/ange-postecoglou-mauricio-pochettino-tottenham/
+
+**Elon Musk Made an Election About Him and Wisconsin Said, ‘No, Thanks’**\
+`Republicans would be wise to seize the moment while this failure is raw to remind Trump what a political loser his buddy is turning out to be.`\
+https://nytimes.com/2025/04/02/opinion/wisconsin-florida-special-election-results-democrats.html
+
 **Nintendo Switch 2 Will Release in June and Emphasize Streaming**\
 `The company said Mario Kart World would be part of the new console’s initial game lineup, also sharing details on its technical upgrades.`\
 https://nytimes.com/2025/04/02/business/nintendo-switch-2.html
