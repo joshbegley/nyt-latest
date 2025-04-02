@@ -1,3 +1,7 @@
+**Companies rushed to import goods ahead of the tariffs. Here’s what that looked like.**\
+`By Peter Eavis`\
+https://nytimes.com/live/2025/04/02/business/trump-tariffs-liberation-day/companies-rushed-to-import-goods-ahead-of-the-tariffs-heres-what-that-looked-like
+
 **The Cory Booker Endurance Test**\
 `What happens to your body when you deliver a 25-hour speech without any breaks?`\
 https://nytimes.com/2025/04/02/well/cory-booker-senate-speech-prep.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/04/02/business/trump-tariffs-liberation-day/heres-
 **Bears chairman George McCaskey: Succession plan officially in place for family control**\
 `McCaskey discussed the tush push, private equity, Ben Johnson and more at the annual league meeting Wednesday.`\
 https://nytimes.com/athletic/6250246/2025/04/02/bears-george-mccaskey-succession-plan/
-
-**Trump Media Refiles to Register the President’s Shares, Worth $2 Billion, for Sale**\
-`President Trump’s shares of the company have been held in a trust since he won the election last year. The stock has plunged 40 percent this year.`\
-https://nytimes.com/2025/04/02/business/trump-media-shares.html
 
