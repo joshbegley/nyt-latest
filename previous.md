@@ -1,3 +1,7 @@
+**Pep Guardiola's latest challenge: How do you cope without Erling Haaland?**\
+`The ankle injury keeping Haaland out up to seven weeks is just the latest test of a hugely difficult season for Manchester City`\
+https://nytimes.com/athletic/6246946/2025/04/02/erling-haaland-injury-absence-manchester-city/
+
 **'A brilliant failure': The barely believable story of Arne Slot's craziest coaching idea**\
 `A bizarre kick-off routine in the Netherlands backfired spectacularly but it was an early sign of the future Liverpool coach's creativity`\
 https://nytimes.com/athletic/6220590/2025/04/02/arne-slot-liverpool-kick-off-tactic/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6220590/2025/04/02/arne-slot-liverpool-kick-off-tac
 https://nytimes.com/athletic/6238724/2025/04/02/barcelona-flick-style-tactics-decision/
 
 **Blue Jackets take early lead and ride Kirill Marchenko's hat trick to blowout win**\
-`Seven Blue Jackets players enjoyed multi-point nights in Columbus' 8-4 rout of Nashville Tuesday.`\
+`Seven Blue Jackets players enjoyed multi-point nights in Columbus' 8-4 rout of Nashville on Tuesday.`\
 https://nytimes.com/athletic/6248595/2025/04/02/blue-jackets-predators-kirill-marchenko-hat-trick/
 
 **Alexander Isak after 100 Newcastle games: How impressive has he been?**\
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/04/02/well/social-life-quiz.html
 **Trump to Pick Ohio’s Solicitor General for Top Justice Department Legal Post**\
 `T. Elliot Gaiser will be nominated to lead the influential Office of Legal Counsel, a department official said.`\
 https://nytimes.com/2025/04/02/us/politics/trump-ohio-elliot-gaiser-justice-department.html
-
-**More Americans Can’t Afford Medical Care, Poll Finds**\
-`A new survey found that 11 percent of Americans said they could not pay for medication and medical treatments.`\
-https://nytimes.com/2025/04/02/health/health-care-costs-gallup.html
 

@@ -1,3 +1,15 @@
+**Wednesday Briefing**\
+`Election results in the U.S.`\
+https://nytimes.com/2025/04/02/briefing/trump-israel-italy.html
+
+**Military Fires on Chinese Aid Convoy in Myanmar, Rebels Say**\
+`The army has also launched airstrikes against rebel groups as aid organizations struggle to reach parts of the country devastated by the earthquake.`\
+https://nytimes.com/2025/04/02/world/asia/myanmar-quake-aid.html
+
+**Where Cristian Romero goes, drama follows. What lies ahead at Spurs?**\
+`Cristian Romero can be erratic but Tottenham have missed his quality and leadership in defence this season`\
+https://nytimes.com/athletic/6246482/2025/04/02/cristian-romero-tottenham-hotspur-argentina/
+
 **Pep Guardiola's latest challenge: How do you cope without Erling Haaland?**\
 `The ankle injury keeping Haaland out up to seven weeks is just the latest test of a hugely difficult season for Manchester City`\
 https://nytimes.com/athletic/6246946/2025/04/02/erling-haaland-injury-absence-manchester-city/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6243855/2025/04/02/premier-league-efl-reading-cuts/
 **Southampton and the unwanted Premier League lowest points record: 'It would be a stain'**\
 `Southampton have nine points and nine games to get more than the record low points total of 11`\
 https://nytimes.com/athletic/6246725/2025/04/02/southampton-premier-league-lowest-points-record/
-
-**How Royale Union Saint-Gilloise perfected the role of 'a selling club' - and may win a title with it**\
-`The Belgian side have mastered recruitment, but are also nine games away from their first title in 90 years`\
-https://nytimes.com/athletic/6246214/2025/04/02/royale-union-saint-gilloise/
-
-**How Healthy Is Your Social Biome? Take Our Quiz.**\
-`Research shows that our happiness depends on a complex web of relationships and interactions. Fifteen simple questions can assess yours.`\
-https://nytimes.com/interactive/2025/04/02/well/social-life-quiz.html
-
-**Trump to Pick Ohio’s Solicitor General for Top Justice Department Legal Post**\
-`T. Elliot Gaiser will be nominated to lead the influential Office of Legal Counsel, a department official said.`\
-https://nytimes.com/2025/04/02/us/politics/trump-ohio-elliot-gaiser-justice-department.html
 

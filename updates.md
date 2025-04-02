@@ -1,3 +1,11 @@
+**Pep Guardiola's latest challenge: How do you cope without Erling Haaland?**\
+`The ankle injury keeping Haaland out up to seven weeks is just the latest test of a hugely difficult season for Manchester City`\
+https://nytimes.com/athletic/6246946/2025/04/02/erling-haaland-injury-absence-manchester-city/
+
+**Blue Jackets take early lead and ride Kirill Marchenko's hat trick to blowout win**\
+`Seven Blue Jackets players enjoyed multi-point nights in Columbus' 8-4 rout of Nashville on Tuesday.`\
+https://nytimes.com/athletic/6248595/2025/04/02/blue-jackets-predators-kirill-marchenko-hat-trick/
+
 **'A brilliant failure': The barely believable story of Arne Slot's craziest coaching idea**\
 `A bizarre kick-off routine in the Netherlands backfired spectacularly but it was an early sign of the future Liverpool coach's creativity`\
 https://nytimes.com/athletic/6220590/2025/04/02/arne-slot-liverpool-kick-off-tactic/
