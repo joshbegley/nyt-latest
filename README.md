@@ -1,3 +1,7 @@
+**Jimmy Snuggerud's NHL debut: A shift-by-shift look from the OT win**\
+`Snuggerud logged 10:43 of ice time in his debut with the Blues — a 2-1 OT win over the Red Wings. Here's a closer look at his 15 shifts.`\
+https://nytimes.com/athletic/6248395/2025/04/02/jimmy-snuggerud-nhl-debut/
+
 **Political divisions may impact support for USMNT at 2026 World Cup, says Lalas**\
 `The former U.S. international is a Trump supporter but expects the president's rhetoric to influence how the team is viewed next year`\
 https://nytimes.com/athletic/6243778/2025/04/02/alexi-lalas-world-cup-trump/
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/04/02/todays-new-york-times
 **What I Saw in China on the Eve of Trump’s ‘Liberation Day’**\
 `Beijing’s message to America: We’re not afraid of you. You aren’t who you think you are — and we aren’t who you think we are.`\
 https://nytimes.com/2025/04/02/opinion/trump-tariffs-china.html
-
-**There’s Still a Chance to Get Syria Right**\
-`Trying to rebuild a war-ravaged country without humanitarian aid or sanction relief is like trying to get up with a boot on your neck.`\
-https://nytimes.com/2025/04/02/opinion/syria-war-humanitarian-aid.html
 
