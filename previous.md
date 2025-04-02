@@ -1,3 +1,7 @@
+**Reds looking for early answers at the plate and in the bullpen: 3 takeaways**\
+`Cincinnati went 2-4 in its opening homestand. Who's excelling and who needs to shake off the offseason rust?`\
+https://nytimes.com/athletic/6250754/2025/04/02/cincinnati-reds-starters-bullpen-hitters/
+
 **D-backs, Ketel Marte reach 6-year, $116.5 million extension**\
 `Marte’s extension is the latest in a line of recent moves indicating the Diamondbacks aren't willing to roll over in the NL West.`\
 https://nytimes.com/athletic/6251011/2025/04/02/ketel-marte-diamondbacks-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/02/us/star-reindeer-dead-poison.html
 **‘Reciprocal’ Tariffs: See Which Countries Have the Highest Rates**\
 `President Trump unveiled sweeping tariffs that included so-called reciprocal actions on dozens of other countries at very high levels.`\
 https://nytimes.com/2025/04/02/business/economy/trump-tariffs-chart.html
-
-**What Will Musk Learn From Wisconsin?**\
-`After a failed $20 million effort to tilt a State Supreme Court race, Elon Musk joins the ranks of billionaires frustrated by the laws of politics.`\
-https://nytimes.com/2025/04/02/us/politics/musk-wisconsin-supreme-court.html
 
