@@ -1,3 +1,15 @@
+**Olusesi signs four-year Tottenham contract**\
+`The 18-year-old midfielder made his first-team debut for Spurs earlier this year.`\
+https://nytimes.com/athletic/6249172/2025/04/02/callum-olusesi-tottenham-contract/
+
+**Chelsea trio passed fit for Spurs match - Maresca**\
+`Chelsea have been without Jackson since February 3 and Madueke since February 14 due to injuries while Palmer has had a hamstring issue.`\
+https://nytimes.com/athletic/6249198/2025/04/02/palmer-jackson-madueke-chelsea-injury-update/
+
+**Why Was This the Only High-Rise in Bangkok to Topple After the Quake?**\
+`Workers said poor-quality materials were used during construction by a Chinese developer as it sought to cut costs. Investigators also said they found substandard steel bars in the rubble.`\
+https://nytimes.com/2025/04/02/world/asia/earthquake-bangkok-collapse.html
+
 **Israel Is Expanding Gaza Offensive, Defense Minister Says**\
 `Israel Katz warned that “large areas” of the enclave would be seized and added to security zones controlled by the military.`\
 https://nytimes.com/2025/04/02/world/middleeast/israel-gaza-offensive-hamas-war-katz.html

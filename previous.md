@@ -1,3 +1,15 @@
+**Olusesi signs four-year Tottenham contract**\
+`The 18-year-old midfielder made his first-team debut for Spurs earlier this year.`\
+https://nytimes.com/athletic/6249172/2025/04/02/callum-olusesi-tottenham-contract/
+
+**Chelsea trio passed fit for Spurs match - Maresca**\
+`Chelsea have been without Jackson since February 3 and Madueke since February 14 due to injuries while Palmer has had a hamstring issue.`\
+https://nytimes.com/athletic/6249198/2025/04/02/palmer-jackson-madueke-chelsea-injury-update/
+
+**Why Was This the Only High-Rise in Bangkok to Topple After the Quake?**\
+`Workers said poor-quality materials were used during construction by a Chinese developer as it sought to cut costs. Investigators also said they found substandard steel bars in the rubble.`\
+https://nytimes.com/2025/04/02/world/asia/earthquake-bangkok-collapse.html
+
 **Israel Is Expanding Gaza Offensive, Defense Minister Says**\
 `Israel Katz warned that “large areas” of the enclave would be seized and added to security zones controlled by the military.`\
 https://nytimes.com/2025/04/02/world/middleeast/israel-gaza-offensive-hamas-war-katz.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/02/us/politics/paxton-cornyn-senate.html
 **Trump Is Set to Unveil Expansive Global Tariffs**\
 `The president on Wednesday will announce sweeping tariffs that he says will restore fairness to the global trading system.`\
 https://nytimes.com/2025/04/02/business/economy/trump-tariffs.html
-
-**At New Directors/New Films, the Faces Tell the Story**\
-`They’re the great cinematic landscape in stories as diverse as “Familiar Touch,” about dementia, and “Timestamp,” about Ukrainian schoolchildren.`\
-https://nytimes.com/2025/04/02/movies/new-directors-new-films.html
-
-**To Save Democracy, Here’s a Playbook That Works**\
-`Poland pulled back from an authoritarian slide. What can the U.S. learn from its nonpartisan approach?`\
-https://nytimes.com/2025/04/02/opinion/poland-democracy-us.html
-
-**Chuck Todd Wants You to Meet the Pods**\
-`After leaving NBC News in January, the former “Meet the Press” moderator is starting a new chapter as a media entrepreneur.`\
-https://nytimes.com/2025/04/02/business/chuck-todd-podcast.html
 
