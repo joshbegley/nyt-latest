@@ -1,3 +1,11 @@
+**The Cory Booker Endurance Test**\
+`What happens to your body when you deliver a 25-hour speech without any breaks?`\
+https://nytimes.com/2025/04/02/well/cory-booker-senate-speech-prep.html
+
+**NBA investigating Ja Morant's apparent gun gesture toward Warriors: Source**\
+`Grizzlies star has a history with gun-related incidents in recent years, all of which led to a 25-game league suspension in Dec. of 2023.`\
+https://nytimes.com/athletic/6250334/2025/04/02/ja-morant-grizzlies-warriors-finger-guns-nba/
+
 **Red Sox, Kristian Campbell agree to 8-year, $60 million deal: Source**\
 `The extension for the 22-year-old runs through 2032 with options for 2033 and 2034.`\
 https://nytimes.com/athletic/6250282/2025/04/02/red-sox-kristian-campbell-contract-extension/
