@@ -1,3 +1,19 @@
+**Val Kilmer: A Life in Pictures**\
+`A charismatic and handsome leading man in the 1990s, Kilmer played both superhero and rock star.`\
+https://nytimes.com/2025/04/02/arts/val-kilmer-a-life-in-pictures.html
+
+**Severe Storm Damages Homes in Oklahoma**\
+`A storm system hitting the central U.S. uprooted trees, knocked down fences and littered the streets with debris.`\
+https://nytimes.com/video/us/100000010087463/storm-central-us-midwest-south.html
+
+**Entire Staff Is Fired at Office That Helps Poorer Americans Pay for Heating**\
+`The move threatens to paralyze the Low Income Home Energy Assistance Program, which helps to offset high utility bills for roughly 6.2 million people nationwide.`\
+https://nytimes.com/2025/04/02/climate/trump-layoffs-energy-assistance-liheap.html
+
+**A love letter to the Division of Violence Prevention**\
+`Read the letter`\
+https://nytimes.com/interactive/2025/04/02/science/a-love-letter-to-the-division-of-violence-prevention.html
+
 **‘Adolescence’ Stars Discuss Their Father-Son Bond, and Questions of a Sequel**\
 `In an interview, the actors Owen Cooper and Stephen Graham explore the social and personal impact of the Netflix hit about a teenager accused of murder.`\
 https://nytimes.com/2025/04/02/arts/television/adolescence-owen-cooper-stephen-graham-interview.html
