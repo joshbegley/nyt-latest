@@ -1,3 +1,15 @@
+**‘Truelove’ Explores Truth, Love and Endings**\
+`This thoughtful British mini-series explores the complex bonds among a group of aging friends who are determined not to let one another suffer.`\
+https://nytimes.com/2025/04/02/arts/television/truelove-acorn.html
+
+**Nobody Wants to Be Responsible for Dismal K-12 Test Scores**\
+`Trump wants to give power back to the states. Some states are lowering standards.`\
+https://nytimes.com/2025/04/02/opinion/florida-standardized-tests.html
+
+**My Future Sister-in-Law Is Skipping My Wedding to Dance at a Football Game. Help!**\
+`A bride-to-be has trouble accepting a future relative’s decision to miss her wedding because of a scheduling conflict with a newly landed dream job.`\
+https://nytimes.com/2025/04/02/style/in-laws-wedding-attendance.html
+
 **Offensive woes continue for Braves, MLB's only winless team, in loss to Dodgers**\
 `“I can't explain it,” Braves manager Brian Snitker said of the woeful hitting. “I'm sure they're pressing."`\
 https://nytimes.com/athletic/6248994/2025/04/02/braves-winless-mlb-lose-dodgers/
