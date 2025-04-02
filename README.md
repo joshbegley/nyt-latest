@@ -1,3 +1,15 @@
+**Welcome to the Vitor Pereira Show: A song of ice and fire**\
+`In three and a half months, with an engaging blend of hot and cold, Pereira has put Wolves 12 points clear of the bottom three.`\
+https://nytimes.com/athletic/6248348/2025/04/02/vitor-pereira-wolves-defence-survival/
+
+**Val Kilmer: Three Memorable Movies to Stream**\
+`Kilmer’s film career ranged from slapstick comedy to some of the most memorable films of the 1980s and ’90s.`\
+https://nytimes.com/2025/04/02/movies/val-kilmer-movies.html
+
+**Nobel Laureate and Ex-Leader of Costa Rica Says U.S. Revoked His Visa**\
+`Óscar Arias Sánchez, twice president of Costa Rica, has been a vocal critic of President Trump, describing him as acting like a “Roman emperor.”`\
+https://nytimes.com/2025/04/02/us/politics/oscar-arias-sanchez-visa-trump.html
+
 **Jimmy Snuggerud's NHL debut: A shift-by-shift look from the OT win**\
 `Snuggerud logged 10:43 of ice time in his debut with the Blues — a 2-1 OT win over the Red Wings. Here's a closer look at his 15 shifts.`\
 https://nytimes.com/athletic/6248395/2025/04/02/jimmy-snuggerud-nhl-debut/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6248343/2025/04/02/arsenal-bukayo-saka-return/
 **Susan Crawford Beats Musk-Backed Candidate in Wisconsin**\
 `Susan Crawford, a liberal judge, won a seat on Wisconsin’s Supreme Court, beating the conservative candidate, Brad Schimel, who received $25 million in campaign support from Elon Musk.`\
 https://nytimes.com/video/us/politics/100000010086695/wisconsin-supreme-court-crawford-schimel.html
-
-**Knicks' OG Anunoby is unleashed and better than ever**\
-`Tuesday night's 27-point performance in the Knicks' win over the 76ers was Anunoby's seventh straight game with at least 23 points.`\
-https://nytimes.com/athletic/6248667/2025/04/02/knicks-og-anunoby-new-york/
-
-**The New York Times in Print for Wednesday, April 2, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/04/02/todays-new-york-times
-
-**What I Saw in China on the Eve of Trump’s ‘Liberation Day’**\
-`Beijing’s message to America: We’re not afraid of you. You aren’t who you think you are — and we aren’t who you think we are.`\
-https://nytimes.com/2025/04/02/opinion/trump-tariffs-china.html
 
