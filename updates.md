@@ -1,3 +1,15 @@
+**The New York Times in Print for Wednesday, April 2, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/02/todays-new-york-times
+
+**What I Saw in China on the Eve of Trump’s ‘Liberation Day’**\
+`Beijing’s message to America: We’re not afraid of you. You aren’t who you think you are — and we aren’t who you think we are.`\
+https://nytimes.com/2025/04/02/opinion/trump-tariffs-china.html
+
+**There’s Still a Chance to Get Syria Right**\
+`Trying to rebuild a war-ravaged country without humanitarian aid or sanction relief is like trying to get up with a boot on your neck.`\
+https://nytimes.com/2025/04/02/opinion/syria-war-humanitarian-aid.html
+
 **Early slump for Yordan Alvarez, the Astros' 'heartbeat,' stagnates offense**\
 `Alvarez's 1-for-16 start is crippling a lineup that can't afford his anemia.`\
 https://nytimes.com/athletic/6248750/2025/04/02/early-slump-yordan-alvarez-astros-offense/
