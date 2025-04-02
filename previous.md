@@ -15,7 +15,7 @@ https://nytimes.com/athletic/6249365/2025/04/02/barcelona-olmo-victor-la-liga-st
 https://nytimes.com/athletic/6248428/2025/04/02/nikola-jokic-61-point-triple-double/
 
 **Steph Curry’s epic performance illustrates Grizzlies’ downward spiral on defense**\
-`The Grizzlies’ flaws on the defensive end have left them reeling over the past few weeks and came back to bite them again.`\
+`The Grizzlies’ flaws on the defensive end have left them reeling over the past few weeks.`\
 https://nytimes.com/athletic/6248990/2025/04/02/grizzlies-loss-defense-stephen-curry/
 
 **What I'm hearing about Penguins' NHL Draft, free agency**\

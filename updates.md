@@ -1,3 +1,7 @@
+**Steph Curry’s epic performance illustrates Grizzlies’ downward spiral on defense**\
+`The Grizzlies’ flaws on the defensive end have left them reeling over the past few weeks.`\
+https://nytimes.com/athletic/6248990/2025/04/02/grizzlies-loss-defense-stephen-curry/
+
 **Who Is Susan Crawford?**\
 `Judge Crawford defeated Judge Brad Schimel, who was backed by President Trump, for a seat on the Wisconsin Supreme Court. She worked as a prosecutor and in private practice before joining the bench.`\
 https://nytimes.com/2025/04/02/us/politics/susan-crawford-wisconsin-supreme-court.html

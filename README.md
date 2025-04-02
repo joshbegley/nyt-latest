@@ -1,3 +1,7 @@
+**Offensive woes continue for Braves, MLB's only winless team, in loss to Dodgers**\
+`“I can't explain it,” Braves manager Brian Snitker said of the woeful hitting. “I'm sure they're pressing."`\
+https://nytimes.com/athletic/6248994/2025/04/02/braves-winless-mlb-lose-dodgers/
+
 **Who Is Susan Crawford?**\
 `Judge Crawford defeated Judge Brad Schimel, who was backed by President Trump, for a seat on the Wisconsin Supreme Court. She worked as a prosecutor and in private practice before joining the bench.`\
 https://nytimes.com/2025/04/02/us/politics/susan-crawford-wisconsin-supreme-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6247529/2025/04/02/ottawa-senators-mailbag-april/
 **Behind the Maple Leafs' NCAA signing frenzy: What to expect from the newest Marlies**\
 `What do Luke Haymes, John Prokop and Ryan Kirwan bring to Toronto? What do their signings reveal about the state of the Leafs' prospect pool`\
 https://nytimes.com/athletic/6244956/2025/04/02/maple-leafs-ncaa-free-agents-haymes-prokop/
-
-**Senate Democrats move to rescind some Trump tariffs, hoping for G.O.P. support.**\
-`Passage would send a strong signal of bipartisan opposition to the levies, though the measure would face long odds in the House.`\
-https://nytimes.com/live/2025/04/02/us/trump-news/senate-democrats-canada-tariffs-trump
 
