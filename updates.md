@@ -1,3 +1,7 @@
+**Saka's return breathes life back into Arsenal**\
+`This was the moment Arsenal fans had been waiting for and Bukayo Saka did not disappoint.`\
+https://nytimes.com/athletic/6248343/2025/04/02/arsenal-bukayo-saka-return/
+
 **Susan Crawford Beats Musk-Backed Candidate in Wisconsin**\
 `Susan Crawford, a liberal judge, won a seat on Wisconsin’s Supreme Court, beating the conservative candidate, Brad Schimel, who received $25 million in campaign support from Elon Musk.`\
 https://nytimes.com/video/us/politics/100000010086695/wisconsin-supreme-court-crawford-schimel.html
