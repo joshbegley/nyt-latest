@@ -1,3 +1,11 @@
+**Federal Judge Pauses Firing of Probationary Workers, But Not Nationwide**\
+`The pause is limited to certain states while the case proceeds, narrowing the scope of an earlier order that had paused firings nationwide and led to the reinstatement of thousands of federal employees.`\
+https://nytimes.com/2025/04/01/us/politics/probationary-workers-doge-cuts.html
+
+**Liberal Wins Wisconsin Court Race, Despite Musk’s Millions**\
+`Susan Crawford defeated Brad Schimel for a State Supreme Court seat in a race that shattered spending records and maintained a liberal majority on the court.`\
+https://nytimes.com/2025/04/01/us/politics/wisconsin-supreme-court-crawford-schimel.html
+
 **What’s the Catch?**\
 `Try your hand at Daniel Bodily’s puzzle — it’ll all work out.`\
 https://nytimes.com/2025/04/01/crosswords/daily-puzzle-2025-04-02.html

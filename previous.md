@@ -1,3 +1,11 @@
+**Federal Judge Pauses Firing of Probationary Workers, But Not Nationwide**\
+`The pause is limited to certain states while the case proceeds, narrowing the scope of an earlier order that had paused firings nationwide and led to the reinstatement of thousands of federal employees.`\
+https://nytimes.com/2025/04/01/us/politics/probationary-workers-doge-cuts.html
+
+**Liberal Wins Wisconsin Court Race, Despite Musk’s Millions**\
+`Susan Crawford defeated Brad Schimel for a State Supreme Court seat in a race that shattered spending records and maintained a liberal majority on the court.`\
+https://nytimes.com/2025/04/01/us/politics/wisconsin-supreme-court-crawford-schimel.html
+
 **What’s the Catch?**\
 `Try your hand at Daniel Bodily’s puzzle — it’ll all work out.`\
 https://nytimes.com/2025/04/01/crosswords/daily-puzzle-2025-04-02.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/01/technology/trump-tiktok-sale-meeting.html
 **Republicans Invoke Newsom in a Hearing on Transgender Sports**\
 `California Democrats rejected two Republican bills that would have banned transgender athletes from female sports. In a rare turn, Republicans tried to use the Democratic governor’s own words to challenge Democrats.`\
 https://nytimes.com/2025/04/01/us/politics/california-transgender-women-sports-bills.html
-
-**Some Conservative Voices Raise Alarm Over Trump’s Immigration Tactics**\
-`The cracks in support show how seriously some conservatives are taking the administration’s aggressive and at times slapdash tactics.`\
-https://nytimes.com/2025/04/01/us/politics/trump-immigration-joe-rogan-conservatives.html
-
-**Alex Ovechkin 4 goals from breaking Wayne Gretzky's record with No. 891**\
-`The Washington Capitals superstar continues to close in on Gretzky’s long-standing record of 894 career NHL goals.`\
-https://nytimes.com/athletic/6245458/2025/04/01/ovechkin-goals-record-gretzky-891/
 
