@@ -1,3 +1,19 @@
+**Two Beautiful Spring Recipes From Meghan, Duchess of Sussex**\
+`Her spring garden pasta salad and layered vanilla pudding are simple yet stylish.`\
+https://nytimes.com/2025/04/02/dining/spring-recipes-meghan-duchess-of-sussex.html
+
+**How Trump Could Make Larry Ellison the Next Media Mogul**\
+`The co-founder of Oracle and friend of President Trump, who was a flamboyant fixture in the 1990s, has returned to the spotlight through — of all things — TikTok.`\
+https://nytimes.com/2025/04/02/technology/trump-larry-ellison-tiktok-oracle.html
+
+**Desperation Grows in Gaza as U.N. Shutters Bakeries**\
+`Anxious residents rushed to obtain bags of flour as the United Nations warned that Israeli restrictions on aid deliveries were deepening the humanitarian crisis.`\
+https://nytimes.com/2025/04/02/world/middleeast/un-aid-gaza-world-food-program.html
+
+**U.S. Seeks to Calm Tempest in Europe Over Trump’s Anti-Diversity Policies**\
+`European companies and officials are balking at what they see as a campaign to impose U.S. policy abroad.`\
+https://nytimes.com/2025/04/02/business/dei-trump-europe-diversity.html
+
 **‘Finally Some Fire’: Cory Booker’s 25-Hour Speech Strikes a Chord at Home**\
 `Many Democrats, including in Mr. Booker’s home state of New Jersey, reveled in his stamina and moxie as he assailed President Trump in the longest Senate speech on record.`\
 https://nytimes.com/2025/04/02/nyregion/cory-booker-speech-reactions.html

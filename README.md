@@ -1,3 +1,23 @@
+**Mallory McMorrow Enters Michigan Senate Race**\
+`The 38-year-old Democratic state lawmaker says that her party needs a generational shift.`\
+https://nytimes.com/2025/04/02/us/politics/michigan-senate-democrats-mallory-mcmorrow.html
+
+**Ghana, Nigeria, Jamaica, Trinidad & Tobago to compete in soccer tournament in London**\
+`The Ghana Football Association (GFA) confirmed on Wednesday that the four nations will play in the Unity Cup in late May.`\
+https://nytimes.com/athletic/6249819/2025/04/02/ghana-nigeria-jamaica-trinidad-london-tournament/
+
+**Supreme Court Rules Against Makers of Flavored Vapes Popular With Teens**\
+`The justices said the Food and Drug Administration had acted lawfully in rejecting applications from makers of flavored liquids used in e-cigarettes.`\
+https://nytimes.com/2025/04/02/us/supreme-court-flavored-vapes.html
+
+**Shingles Vaccine Can Decrease Risk of Dementia, Study Finds**\
+`A growing body of research suggests that preventing the viral infection can help stave off cognitive decline.`\
+https://nytimes.com/2025/04/02/health/shingles-vaccine-dementia.html
+
+**How a Black Progressive Transformed Into a Conservative Star**\
+`Xaviaer DuRousseau once marched in Black Lives Matter protests. Then he started watching PragerU videos — and they resonated with him.`\
+https://nytimes.com/2025/04/02/us/politics/how-a-black-progressive-transformed-into-a-conservative-star.html
+
 **Two Beautiful Spring Recipes From Meghan, Duchess of Sussex**\
 `Her spring garden pasta salad and layered vanilla pudding are simple yet stylish.`\
 https://nytimes.com/2025/04/02/dining/spring-recipes-meghan-duchess-of-sussex.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/04/02/business/dei-trump-europe-diversity.html
 **Kawhi Leonard is playing at an All-NBA level again, and he wants to stay there**\
 `Leonard enters April after posting 12 20-point games in March. And as he's come on strong, so have the Clippers.`\
 https://nytimes.com/athletic/6248925/2025/04/02/kawhi-leonard-clippers-nba-standings/
-
-**Rare Beatles Audition Tape Surfaces in a Vancouver Record Shop**\
-`The recording appears to be from the band’s 1962 audition for Decca Records, which notably rejected the group.`\
-https://nytimes.com/2025/04/02/arts/music/beatles-vancouver-demo-session.html
-
-**Trump’s Global Trade War Makes the Fed’s Task Tougher**\
-`Tariffs risk slowing growth and making inflation stickier, a tricky combination for the central bank as it debates what to do about interest rates.`\
-https://nytimes.com/2025/04/02/business/economy/trump-tariffs-federal-reserve-inflation.html
-
-**Lowetide: Can Oilers forwards turn around their inconsistent season?**\
-`Many Oilers forwards are badly off the pace of their own established performance levels, and well shy of expectations.`\
-https://nytimes.com/athletic/6247087/2025/04/02/edmonton-oilers-stats-forwards-2024-25/
-
-**Drance: Why it's hard to make sense of a likely squandered Canucks season**\
-`With eight games remaining, the Canucks' playoff odds are on life support with not enough time to build a new identity.`\
-https://nytimes.com/athletic/6246237/2025/04/02/canucks-nhl-2024-25-season/
-
-**The Bounce: Steph Curry adds to list of legendary games. Plus, revisiting bad preseason predictions**\
-`Steph Curry and Nikola Jokić had all-time performances on Tuesday. Zach Harper examines their greatness and revisits preseason predictions.`\
-https://nytimes.com/athletic/6249462/2025/04/02/steph-curry-nikola-jokic-warriors-nuggets-nba-the-bounce/
 
