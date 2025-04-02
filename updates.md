@@ -1,3 +1,15 @@
+**House Republicans Demand Documents About ActBlue Departures**\
+`Republicans began investigating ActBlue, the Democratic Party’s main fund-raising platform, last year in part of a broader bid to target key Democratic organizations.`\
+https://nytimes.com/2025/04/02/us/politics/actblue-house-investigation.html
+
+**Trump Announces Tariffs on Global Trading Partners**\
+`During a news conference, President Trump announced that he would impose a baseline 10 percent tariff on all trading partners, as well as double-digit “reciprocal tariffs” on dozens of other countries.`\
+https://nytimes.com/video/business/100000010088408/trump-new-tariffs.html
+
+**Coal Plant Ranked as Nation’s Dirtiest Asks for Pollution Exemption**\
+`The facility, in Colstrip, Mont., used a new E.P.A. system for requesting special waivers from President Trump.`\
+https://nytimes.com/2025/04/02/climate/coal-plant-colstrip-epa-email-pollution-exemption.html
+
 **Moyes: Jota goal was ‘clear offside’**\
 `The Everton manager said that Liverpool's Luis Diaz was interfering with play and called it a "very easy decision to give".`\
 https://nytimes.com/athletic/6250922/2025/04/02/moyes-slot-diaz-offside-everton-liverpool/
