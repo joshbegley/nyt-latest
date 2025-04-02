@@ -1,3 +1,7 @@
+**Padres, Diamondbacks expected to play regular-season series in Mexico City in 2026**\
+`Mexico has been the most frequent locale for the so-called MLB World Tour.`\
+https://nytimes.com/athletic/6247910/2025/04/01/padres-diamondbacks-mexico-city-series-2026/
+
 **Wisconsin Voters Approve Amendment Requiring Photo ID to Vote**\
 `The state has required voters to use photograph identification for nearly a decade, but an amendment to the Wisconsin Constitution was seen as making it more difficult to roll back that rule.`\
 https://nytimes.com/2025/04/01/us/wisconsin-voters-approve-amendment-requiring-photo-id-to-vote.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6245458/2025/04/01/ovechkin-goals-record-gretzky-89
 **G.O.P. Bolsters House Majority by Retaining Two Seats in Florida**\
 `The Republicans who were elected on Tuesday to fill seats left empty by Matt Gaetz and Michael Waltz had President Trump’s backing.`\
 https://nytimes.com/2025/04/01/us/politics/florida-special-election-winner.html
-
-**If New York Puts a Casino in the Bronx, Trump Will Get $115 Million**\
-`Although the Trump Organization sold a golf course in Ferry Point Park in the Bronx to Bally’s, it will still receive a windfall if the site is chosen for a casino.`\
-https://nytimes.com/2025/04/01/nyregion/trump-casino-ballys-bronx.html
 
