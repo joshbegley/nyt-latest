@@ -1,3 +1,15 @@
+**Wednesday Briefing**\
+`Election results in the U.S.`\
+https://nytimes.com/2025/04/02/briefing/trump-israel-italy.html
+
+**Military Fires on Chinese Aid Convoy in Myanmar, Rebels Say**\
+`The army has also launched airstrikes against rebel groups as aid organizations struggle to reach parts of the country devastated by the earthquake.`\
+https://nytimes.com/2025/04/02/world/asia/myanmar-quake-aid.html
+
+**Where Cristian Romero goes, drama follows. What lies ahead at Spurs?**\
+`Cristian Romero can be erratic but Tottenham have missed his quality and leadership in defence this season`\
+https://nytimes.com/athletic/6246482/2025/04/02/cristian-romero-tottenham-hotspur-argentina/
+
 **Pep Guardiola's latest challenge: How do you cope without Erling Haaland?**\
 `The ankle injury keeping Haaland out up to seven weeks is just the latest test of a hugely difficult season for Manchester City`\
 https://nytimes.com/athletic/6246946/2025/04/02/erling-haaland-injury-absence-manchester-city/
