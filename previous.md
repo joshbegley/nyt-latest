@@ -1,3 +1,11 @@
+**Kawhi Leonard is playing at an All-NBA level again, and he wants to stay there**\
+`Leonard enters April after posting 12 20-point games in March. And as he's come on strong, so have the Clippers.`\
+https://nytimes.com/athletic/6248925/2025/04/02/kawhi-leonard-clippers-nba-standings/
+
+**Rare Beatles Audition Tape Surfaces in a Vancouver Record Shop**\
+`The recording appears to be from the band’s 1962 audition for Decca Records, which notably rejected the group.`\
+https://nytimes.com/2025/04/02/arts/music/beatles-vancouver-demo-session.html
+
 **Trump’s Global Trade War Makes the Fed’s Task Tougher**\
 `Tariffs risk slowing growth and making inflation stickier, a tricky combination for the central bank as it debates what to do about interest rates.`\
 https://nytimes.com/2025/04/02/business/economy/trump-tariffs-federal-reserve-inflation.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6248040/2025/04/02/eagles-jeffrey-lurie-tush-push-n
 **Gotham FC's Davidson out of 2025 season with ACL injury**\
 `The 26-year-old will be placed on the league’s season-ending injury list after suffering the injury against the Houston Dash.`\
 https://nytimes.com/athletic/6249626/2025/04/02/tierna-davidson-acl-injury-gotham-uswnt/
-
-**Leeds United's accounts explained: £60m loss, £140m 49ers support and PSR situation**\
-`Leeds United's accounts have been released — but what do the figures all mean?`\
-https://nytimes.com/athletic/6249399/2025/04/02/leeds-united-accounts-explained-loss-psr/
-
-**Manchester United head coach Skinner signs new two-year contract**\
-`Skinner's previous deal had been due to expire in the end of the season, with the option for a further 12 months.`\
-https://nytimes.com/athletic/6243723/2025/04/02/marc-skinner-contract-manchester-united-women/
 

@@ -1,3 +1,11 @@
+**Kawhi Leonard is playing at an All-NBA level again, and he wants to stay there**\
+`Leonard enters April after posting 12 20-point games in March. And as he's come on strong, so have the Clippers.`\
+https://nytimes.com/athletic/6248925/2025/04/02/kawhi-leonard-clippers-nba-standings/
+
+**Rare Beatles Audition Tape Surfaces in a Vancouver Record Shop**\
+`The recording appears to be from the band’s 1962 audition for Decca Records, which notably rejected the group.`\
+https://nytimes.com/2025/04/02/arts/music/beatles-vancouver-demo-session.html
+
 **Trump’s Global Trade War Makes the Fed’s Task Tougher**\
 `Tariffs risk slowing growth and making inflation stickier, a tricky combination for the central bank as it debates what to do about interest rates.`\
 https://nytimes.com/2025/04/02/business/economy/trump-tariffs-federal-reserve-inflation.html

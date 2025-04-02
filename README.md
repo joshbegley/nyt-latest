@@ -26,7 +26,7 @@ https://nytimes.com/athletic/6249462/2025/04/02/steph-curry-nikola-jokic-warrior
 `Read Judge Dale Ho’s decision dismissing the charges against Eric Adams, the mayor of New York City, with prejudice.`\
 https://nytimes.com/interactive/2025/04/02/nyregion/adams-charges-dismissed-ruling.html
 
-**‘Finally Some Fire’: Cory Booker’s 25-Hour Speech Hits a Nerve at Home**\
+**‘Finally Some Fire’: Cory Booker’s 25-Hour Speech Strikes a Chord at Home**\
 `Many Democrats, including in Mr. Booker’s home state of New Jersey, reveled in his stamina and moxie as he assailed President Trump in the longest Senate speech on record.`\
 https://nytimes.com/2025/04/02/nyregion/cory-booker-speech-reactions.html
 
