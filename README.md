@@ -1,3 +1,7 @@
+**NWSL-based Zambia players forced to miss games in China**\
+`Orlando Pride's Barbra Banda is one of four Zambian players who will miss the games due to “additional travel measures" introduced in the US`\
+https://nytimes.com/athletic/6250187/2025/04/02/nwsl-zambia-china-united-states/
+
 **Richard Bernstein, Times Correspondent, Critic and Author, Dies at 80**\
 `He wrote from Europe and Asia, served as a book critic and produced a raft of books, on subjects ranging from the French condition to multiculturalism.`\
 https://nytimes.com/2025/04/02/business/media/richard-bernstein-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/02/us/obama-photobomb-dc-cherry-blossoms.html
 **With Trump’s Tariffs, the Chasm Between Allies and the U.S. Widens**\
 `President Trump announced sweeping levies on countries across the world. Washington’s partners have been bracing for the fallout.`\
 https://nytimes.com/2025/04/02/world/europe/trump-tariffs-reciprocal-reaction-trade-war.html
-
-**NWSL expansion team Boston Legacy gets White Stadium court win**\
-`A Superior Court Justice ruled on Wednesday that the renovation of the stadium is not in violation of Massachusetts state law.`\
-https://nytimes.com/athletic/6250823/2025/04/02/boston-legacy-white-stadium/
 
