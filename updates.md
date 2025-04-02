@@ -1,3 +1,7 @@
+**Democrats Show a Pulse: 6 Takeaways From Tuesday’s Elections**\
+`Energized against the new Trump era, and against Elon Musk, Democrats pulled off a crucial judicial victory in Wisconsin and cut into Republican margins in two Florida congressional races.`\
+https://nytimes.com/2025/04/01/us/politics/elections-florida-wisconsin-takeaways.html
+
 **China’s New Barges Could Make a Tough Task Easier: Invading Taiwan**\
 `The barges, which link up to form a bridge, could give China a way to land large numbers of vehicles and troops on Taiwan, solving a major logistical problem.`\
 https://nytimes.com/2025/04/01/world/asia/china-invasion-barges-taiwan.html
