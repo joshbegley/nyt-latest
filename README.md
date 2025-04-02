@@ -1,3 +1,23 @@
+**Wrexham manager Parkinson has made unpopular calls - but he is being proved right**\
+`He has benefited from financial resources most of his peers do not, but with the role has come much scrutiny and criticism.`\
+https://nytimes.com/athletic/6243819/2025/04/02/wrexham-tactics-phil-parkinson/
+
+**Angola Rail Line Offers Clues to Trump’s Africa Policy**\
+`The $4 billion project was the Biden administration’s signature initiative in Africa. Early signs are that the Trump team supports it, too, for mineral access if nothing else.`\
+https://nytimes.com/2025/04/02/world/africa/trump-angola-lobito-corridor.html
+
+**N.Y. Lawmakers Fight Trump With a Proposal Targeting Elon Musk**\
+`A bill would authorize an audit of a state deal allowing Tesla to lease a factory site near Buffalo for $1 a year, and would create a way for the state to claw back subsidies.`\
+https://nytimes.com/2025/04/02/nyregion/trump-musk-ny-tesla.html
+
+**After Fatal Crash, Lawmakers Push for Ways to Stop Dangerous Drivers**\
+`The city has long grappled with traffic fatalities. Officials and residents are now asking what more can be done after a fatal crash that killed a woman and two of her children.`\
+https://nytimes.com/2025/04/02/nyregion/nyc-drivers-brooklyn-car-crash.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/04/02/crosswords/spelling-bee-forum.html
+
 **Late Night Is Expecting Tariffs With a Side of Drama**\
 `New tariffs will be unveiled at the White House Rose Garden — because “when you elect a reality TV star, you get all your economic policy via rose ceremony,” said Stephen Colbert.`\
 https://nytimes.com/2025/04/02/arts/television/late-night-trump-tariffs.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6248348/2025/04/02/vitor-pereira-wolves-defence-sur
 **Val Kilmer: Three Memorable Movies to Stream**\
 `Kilmer’s film career ranged from slapstick comedy to some of the most memorable films of the 1980s and ’90s.`\
 https://nytimes.com/2025/04/02/movies/val-kilmer-movies.html
-
-**Nobel Laureate and Ex-Leader of Costa Rica Says U.S. Revoked His Visa**\
-`Óscar Arias Sánchez, twice president of Costa Rica, has been a vocal critic of President Trump, describing him as acting like a “Roman emperor.”`\
-https://nytimes.com/2025/04/02/us/politics/oscar-arias-sanchez-visa-trump.html
-
-**Jimmy Snuggerud's NHL debut: A shift-by-shift look from the OT win**\
-`Snuggerud logged 10:43 of ice time in his debut with the Blues — a 2-1 OT win over the Red Wings. Here's a closer look at his 15 shifts.`\
-https://nytimes.com/athletic/6248395/2025/04/02/jimmy-snuggerud-nhl-debut/
-
-**Political divisions may impact support for USMNT at 2026 World Cup, says Lalas**\
-`The former U.S. international is a Trump supporter but expects the president's rhetoric to influence how the team is viewed next year`\
-https://nytimes.com/athletic/6243778/2025/04/02/alexi-lalas-world-cup-trump/
-
-**Joao Pedro set to return to Brighton starting line-up for Villa clash**\
-`The 23-year-old forward was used from the bench in Saturday's FA Cup quarter-final loss on penalties against Nottingham Forest.`\
-https://nytimes.com/athletic/6246423/2025/04/02/brighton-team-news-aston-villa-joao-pedro/
-
-**George Russell is Mercedes’ perfect leader. Now he needs a new contract**\
-`He has not put a foot wrong this season, but until Russell's Mercedes future is secured beyond this year the speculation will persist`\
-https://nytimes.com/athletic/6247051/2025/04/02/george-russell-max-verstappen-mercedes-contract-f1/
 

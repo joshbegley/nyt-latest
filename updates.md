@@ -1,3 +1,11 @@
+**Late Night Is Expecting Tariffs With a Side of Drama**\
+`New tariffs will be unveiled at the White House Rose Garden — because “when you elect a reality TV star, you get all your economic policy via rose ceremony,” said Stephen Colbert.`\
+https://nytimes.com/2025/04/02/arts/television/late-night-trump-tariffs.html
+
+**How Casey Mize reclaimed his splitter and reasserted himself in the Tigers rotation**\
+`Mize held the Mariners scoreless over 5 2/3 innings with a well-rounded arsenal boosted by the return of his splitter.`\
+https://nytimes.com/athletic/6248937/2025/04/02/casey-mize-tigers/
+
 **Dustin May excels in return to the mound for first MLB game for Dodgers in 22 months**\
 `After staring down death, May embraced being back and pitched with that perspective.`\
 https://nytimes.com/athletic/6248944/2025/04/02/dodgers-win-dustin-may-returns/
