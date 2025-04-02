@@ -1,3 +1,15 @@
+**When Val Kilmer Was Batman and the ’90s Were Their Most ’90s**\
+`The actor took only one turn in the famous batsuit. That film, “Batman Forever,” couldn’t be a more representative artifact of its era.`\
+https://nytimes.com/2025/04/02/movies/val-kilmer-batman-forever.html
+
+**Adams Doubles Down on Trump Alliance, Praising F.B.I. Director’s Book**\
+`In the mayor’s first comments after a judge ordered corruption charges against him dropped, he urged New Yorkers to read a book by the Trump administration’s F.B.I. director.`\
+https://nytimes.com/2025/04/02/nyregion/eric-adams-kash-patel-book.html
+
+**Trump Says Global Trade Is Unfair. Does He Have a Point?**\
+`President Trump says that countries have been ripping off the United States for decades. There is some truth to that argument — but also a lot of hypocrisy.`\
+https://nytimes.com/2025/04/02/us/politics/trump-tariffs-global-trade.html
+
 **Watch: Do NFL teams adjust trade charts based on how a draft class is perceived?**\
 `"The Athletic Football Show" discusses the types of draft-day trades that lead to a premium being paid in draft capital. `\
 https://nytimes.com/athletic/6239636/2025/04/02/athletic-football-show-draft-trade-charts/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6249660/2025/04/02/jasmine-joyce-butchers-chicken-b
 **Tiny Love Stories: ‘Breathing Felt Like Betrayal’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/04/02/style/tiny-modern-love-stories-breathing-felt-like-betrayal.html
-
-**Falcons NFL Draft 2025 guide: Picks, predictions and key needs**\
-`The Falcons have glaring needs on defense and should think about the future of the offensive line. What will they do with the 15th pick?`\
-https://nytimes.com/athletic/6230522/2025/04/02/atlanta-falcons-2025-nfl-draft-picks-needs-predictions-guide/
-
-**Val Kilmer: A Life in Pictures**\
-`A charismatic and handsome leading man in the 1990s, Kilmer played both superhero and rock star.`\
-https://nytimes.com/2025/04/02/movies/val-kilmer-photos-batman-top-gun.html
-
-**Severe Storm Damages Homes in Oklahoma**\
-`A storm system hitting the central U.S. uprooted trees, knocked down fences and littered the streets with debris.`\
-https://nytimes.com/video/us/100000010087463/storm-central-us-midwest-south.html
 
