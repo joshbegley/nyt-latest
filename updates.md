@@ -1,3 +1,7 @@
+**Wisconsin Voters Approve Amendment Requiring Photo ID to Vote**\
+`The state has required voters to use photograph identification for nearly a decade, but an amendment to the Wisconsin Constitution was seen as making it more difficult to roll back that rule.`\
+https://nytimes.com/2025/04/01/us/wisconsin-voters-approve-amendment-requiring-photo-id-to-vote.html
+
 **Corrections: April 2, 2025**\
 `Corrections that appeared in print on Wednesday, April 2, 2025.`\
 https://nytimes.com/2025/04/01/pageoneplus/corrections-april-2-2025.html
