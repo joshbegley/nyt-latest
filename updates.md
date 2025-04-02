@@ -1,3 +1,7 @@
+**Padres, Diamondbacks expected to play regular-season series in Mexico City in 2026**\
+`Mexico has been the most frequent locale for the so-called MLB World Tour.`\
+https://nytimes.com/athletic/6247910/2025/04/01/padres-diamondbacks-mexico-city-series-2026/
+
 **Wisconsin Voters Approve Amendment Requiring Photo ID to Vote**\
 `The state has required voters to use photograph identification for nearly a decade, but an amendment to the Wisconsin Constitution was seen as making it more difficult to roll back that rule.`\
 https://nytimes.com/2025/04/01/us/wisconsin-voters-approve-amendment-requiring-photo-id-to-vote.html
