@@ -1,3 +1,7 @@
+**In Ed Atkins’s World, the Uncanny Is Realer Than the Real**\
+`The British artist is being honored with a major retrospective. His eerie avatars aren’t quite lifelike, but they show what it means to be human.`\
+https://nytimes.com/2025/04/02/arts/design/ed-atkins-tate-britain.html
+
 **Mallory McMorrow Enters Michigan Senate Race**\
 `The 38-year-old Democratic state lawmaker says that her party needs a generational shift.`\
 https://nytimes.com/2025/04/02/us/politics/michigan-senate-democrats-mallory-mcmorrow.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/02/world/middleeast/un-aid-gaza-world-food-program.h
 **U.S. Seeks to Calm Tempest in Europe Over Trump’s Anti-Diversity Policies**\
 `European companies and officials are balking at what they see as a campaign to impose U.S. policy abroad.`\
 https://nytimes.com/2025/04/02/business/dei-trump-europe-diversity.html
-
-**Kawhi Leonard is playing at an All-NBA level again, and he wants to stay there**\
-`Leonard enters April after posting 12 20-point games in March. And as he's come on strong, so have the Clippers.`\
-https://nytimes.com/athletic/6248925/2025/04/02/kawhi-leonard-clippers-nba-standings/
 
