@@ -1,3 +1,7 @@
+**‘Finally Some Fire’: Cory Booker’s 25-Hour Speech Strikes a Chord at Home**\
+`Many Democrats, including in Mr. Booker’s home state of New Jersey, reveled in his stamina and moxie as he assailed President Trump in the longest Senate speech on record.`\
+https://nytimes.com/2025/04/02/nyregion/cory-booker-speech-reactions.html
+
 **Kawhi Leonard is playing at an All-NBA level again, and he wants to stay there**\
 `Leonard enters April after posting 12 20-point games in March. And as he's come on strong, so have the Clippers.`\
 https://nytimes.com/athletic/6248925/2025/04/02/kawhi-leonard-clippers-nba-standings/
