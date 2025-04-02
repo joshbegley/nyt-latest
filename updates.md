@@ -1,3 +1,7 @@
+**What does the future hold for Ja Morant and the Grizzlies?**\
+`NBA Daily discuss Ja Morant's future, why Memphis parted ways with Taylor Jenkins so late, and if Tuomas Iisalo will remain as head coach.`\
+https://nytimes.com/athletic/6249374/2025/04/02/nba-daily-memphis-grizzlies-ja-morant/
+
 **How a seven-second viral video encapsulates how sport has changed**\
 `Undeniably, the landscape of sport has changed. The furore around a seven-second viral video proves just that `\
 https://nytimes.com/athletic/6249660/2025/04/02/jasmine-joyce-butchers-chicken-banana-dance-tiktok-wales-six-nations/
