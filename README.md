@@ -1,3 +1,7 @@
+**Chiefs the favorite to face the Chargers in Brazil, request Christmas Day spotlight**\
+`The Chiefs are the top contender to face the Chargers in São Paulo, Brazil, to open their season in a Friday night game Sept. 5.`\
+https://nytimes.com/athletic/6248441/2025/04/02/chiefs-chargers-brazil-christmas-day/
+
 **A Senate Blockbuster Looms in Texas, as Paxton Prepares to Challenge Cornyn**\
 `In an interview, the Texas attorney general attacked Senator John Cornyn as out of touch, and said he had talked to people close to President Trump about an endorsement.`\
 https://nytimes.com/2025/04/02/us/politics/paxton-cornyn-senate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/02/realestate/housing-market-near-nyc.html
 **Homes for Sale in Manhattan and Brooklyn**\
 `This week’s properties are in TriBeCa, Hudson Heights and Fort Hamilton.`\
 https://nytimes.com/2025/04/02/realestate/housing-market-nyc.html
-
-**New Words**\
-`What feeling or experience do you wish there was a word for in English?`\
-https://nytimes.com/2025/04/02/learning/new-words.html
 

@@ -1,40 +1,40 @@
-**Fullkrug, Ferguson and diverging paths to solving West Ham's striker problem**\
-`There have been few positives this season, but Fullkrug's belated return offers hope that he will be the forward West Ham have long desired`\
-https://nytimes.com/athletic/6247555/2025/04/02/fullkrug-ferguson-west-ham-strikers/
+**A Senate Blockbuster Looms in Texas, as Paxton Prepares to Challenge Cornyn**\
+`In an interview, the Texas attorney general attacked Senator John Cornyn as out of touch, and said he had talked to people close to President Trump about an endorsement.`\
+https://nytimes.com/2025/04/02/us/politics/paxton-cornyn-senate.html
 
-**Fire Briefly Disrupts Heathrow Airport Train Service**\
-`Trains linking Paddington Station with Heathrow’s Terminal 5 may be canceled or face delays of up to 30 minutes.`\
-https://nytimes.com/2025/04/02/world/europe/heathrow-train-fire.html
+**Trump Is Set to Unveil Expansive Global Tariffs**\
+`The president on Wednesday will announce sweeping tariffs that he says will restore fairness to the global trading system.`\
+https://nytimes.com/2025/04/02/business/economy/trump-tariffs.html
 
-**Wrexham manager Parkinson has made unpopular calls - but he is being proved right**\
-`He has benefited from financial resources most of his peers do not, but with the role has come much scrutiny and criticism`\
-https://nytimes.com/athletic/6243819/2025/04/02/wrexham-tactics-phil-parkinson/
+**At New Directors/New Films, the Faces Tell the Story**\
+`They’re the great cinematic landscape in stories as diverse as “Familiar Touch,” about dementia, and “Timestamp,” about Ukrainian schoolchildren.`\
+https://nytimes.com/2025/04/02/movies/new-directors-new-films.html
 
-**Angola Rail Line Offers Clues to Trump’s Africa Policy**\
-`The $4 billion project was the Biden administration’s signature initiative in Africa. Early signs are that the Trump team supports it, too, for mineral access if nothing else.`\
-https://nytimes.com/2025/04/02/world/africa/trump-angola-lobito-corridor.html
+**To Save Democracy, Here’s a Playbook That Works**\
+`Poland pulled back from an authoritarian slide. What can the U.S. learn from its nonpartisan approach?`\
+https://nytimes.com/2025/04/02/opinion/poland-democracy-us.html
 
-**N.Y. Lawmakers Fight Trump With a Proposal Targeting Elon Musk**\
-`A bill would authorize an audit of a state deal allowing Tesla to lease a factory site near Buffalo for $1 a year, and would create a way for the state to claw back subsidies.`\
-https://nytimes.com/2025/04/02/nyregion/trump-musk-ny-tesla.html
+**Chuck Todd Wants You to Meet the Pods**\
+`After leaving NBC News in January, the former “Meet the Press” moderator is starting a new chapter as a media entrepreneur.`\
+https://nytimes.com/2025/04/02/business/chuck-todd-podcast.html
 
-**After Fatal Crash, Lawmakers Push for Ways to Stop Dangerous Drivers**\
-`The city has long grappled with traffic fatalities. Officials and residents are now asking what more can be done after a fatal crash that killed a woman and two of her children.`\
-https://nytimes.com/2025/04/02/nyregion/nyc-drivers-brooklyn-car-crash.html
+**I Study Measles. I’m Terrified We’re Headed for an Epidemic.**\
+`The outbreak in Texas could become much, much worse.`\
+https://nytimes.com/2025/04/02/opinion/measles-epidemic-texas.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/04/02/crosswords/spelling-bee-forum.html
+**Unmarked Vans. Secret Lists. Public Denunciations. Our Police State Has Arrived.**\
+`Those of us who seen secret police in action can’t shake a feeling of dreadful familiarity.`\
+https://nytimes.com/2025/04/02/opinion/trump-ice-immigrants.html
 
-**Late Night Is Expecting Tariffs With a Side of Drama**\
-`New tariffs will be unveiled at the White House Rose Garden — because “when you elect a reality TV star, you get all your economic policy via rose ceremony,” said Stephen Colbert.`\
-https://nytimes.com/2025/04/02/arts/television/late-night-trump-tariffs.html
+**Homes for Sale in New Jersey and New York**\
+`This week’s properties are a modern four-bedroom house in North Caldwell, and a colonial-style four-bedroom in Great Neck.`\
+https://nytimes.com/2025/04/02/realestate/housing-market-near-nyc.html
 
-**How Casey Mize reclaimed his splitter and reasserted himself in the Tigers rotation**\
-`Mize held the Mariners scoreless over 5 2/3 innings with a well-rounded arsenal boosted by the return of his splitter.`\
-https://nytimes.com/athletic/6248937/2025/04/02/casey-mize-tigers/
+**Homes for Sale in Manhattan and Brooklyn**\
+`This week’s properties are in TriBeCa, Hudson Heights and Fort Hamilton.`\
+https://nytimes.com/2025/04/02/realestate/housing-market-nyc.html
 
-**Dustin May excels in return to the mound for first MLB game for Dodgers in 22 months**\
-`After staring down death, May embraced being back and pitched with that perspective.`\
-https://nytimes.com/athletic/6248944/2025/04/02/dodgers-win-dustin-may-returns/
+**New Words**\
+`What feeling or experience do you wish there was a word for in English?`\
+https://nytimes.com/2025/04/02/learning/new-words.html
 
