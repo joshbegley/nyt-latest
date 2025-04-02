@@ -1,3 +1,11 @@
+**Elon Musk Made an Election About Him and Wisconsin Said, ‘No, Thanks’**\
+`Republicans would be wise to seize the moment while this failure is raw to remind Donald Trump what a political loser his buddy is turning out to be.`\
+https://nytimes.com/2025/04/02/opinion/wisconsin-florida-special-election-results-democrats.html
+
+**Biden’s Health Secretary Joins the Governor’s Race in California**\
+`Xavier Becerra, the former secretary of the Department of Health and Human Services, may face Kamala Harris in a potential Democratic showdown in their home state.`\
+https://nytimes.com/2025/04/02/us/becerra-california-governor-harris.html
+
 **‘Truelove’ Explores Truth, Love and Endings**\
 `This thoughtful British mini-series explores the complex bonds among a group of aging friends who are determined not to let one another suffer.`\
 https://nytimes.com/2025/04/02/arts/television/truelove-acorn.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6249365/2025/04/02/barcelona-olmo-victor-la-liga-st
 **What does it feel like to face Jokić on a 61-point night? 'Bruh, oh my God'**\
 `"He might be the best basketball player I’ve ever seen close up," Timberwolves star Anthony Edwards said.`\
 https://nytimes.com/athletic/6248428/2025/04/02/nikola-jokic-61-point-triple-double/
-
-**Steph Curry’s epic performance illustrates Grizzlies’ downward spiral on defense**\
-`The Grizzlies’ flaws on the defensive end have left them reeling over the past few weeks.`\
-https://nytimes.com/athletic/6248990/2025/04/02/grizzlies-loss-defense-stephen-curry/
-
-**What I'm hearing about Penguins' NHL Draft, free agency**\
-`Penguins GM Kyle Dubas will have plenty of decisions to make this summer as he looks to turn around his team as quickly as possible.`\
-https://nytimes.com/athletic/6243538/2025/04/02/penguins-nhl-draft-free-agents/
 

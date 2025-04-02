@@ -1,3 +1,11 @@
+**Elon Musk Made an Election About Him and Wisconsin Said, ‘No, Thanks’**\
+`Republicans would be wise to seize the moment while this failure is raw to remind Donald Trump what a political loser his buddy is turning out to be.`\
+https://nytimes.com/2025/04/02/opinion/wisconsin-florida-special-election-results-democrats.html
+
+**Biden’s Health Secretary Joins the Governor’s Race in California**\
+`Xavier Becerra, the former secretary of the Department of Health and Human Services, may face Kamala Harris in a potential Democratic showdown in their home state.`\
+https://nytimes.com/2025/04/02/us/becerra-california-governor-harris.html
+
 **‘Truelove’ Explores Truth, Love and Endings**\
 `This thoughtful British mini-series explores the complex bonds among a group of aging friends who are determined not to let one another suffer.`\
 https://nytimes.com/2025/04/02/arts/television/truelove-acorn.html
