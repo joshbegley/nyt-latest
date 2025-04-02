@@ -1,3 +1,19 @@
+**Two Beautiful Spring Recipes From Meghan, Duchess of Sussex**\
+`Her spring garden pasta salad and layered vanilla pudding are simple yet stylish.`\
+https://nytimes.com/2025/04/02/dining/spring-recipes-meghan-duchess-of-sussex.html
+
+**How Trump Could Make Larry Ellison the Next Media Mogul**\
+`The co-founder of Oracle and friend of President Trump, who was a flamboyant fixture in the 1990s, has returned to the spotlight through — of all things — TikTok.`\
+https://nytimes.com/2025/04/02/technology/trump-larry-ellison-tiktok-oracle.html
+
+**Desperation Grows in Gaza as U.N. Shutters Bakeries**\
+`Anxious residents rushed to obtain bags of flour as the United Nations warned that Israeli restrictions on aid deliveries were deepening the humanitarian crisis.`\
+https://nytimes.com/2025/04/02/world/middleeast/un-aid-gaza-world-food-program.html
+
+**U.S. Seeks to Calm Tempest in Europe Over Trump’s Anti-Diversity Policies**\
+`European companies and officials are balking at what they see as a campaign to impose U.S. policy abroad.`\
+https://nytimes.com/2025/04/02/business/dei-trump-europe-diversity.html
+
 **Kawhi Leonard is playing at an All-NBA level again, and he wants to stay there**\
 `Leonard enters April after posting 12 20-point games in March. And as he's come on strong, so have the Clippers.`\
 https://nytimes.com/athletic/6248925/2025/04/02/kawhi-leonard-clippers-nba-standings/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6246237/2025/04/02/canucks-nhl-2024-25-season/
 **The Bounce: Steph Curry adds to list of legendary games. Plus, revisiting bad preseason predictions**\
 `Steph Curry and Nikola Jokić had all-time performances on Tuesday. Zach Harper examines their greatness and revisits preseason predictions.`\
 https://nytimes.com/athletic/6249462/2025/04/02/steph-curry-nikola-jokic-warriors-nuggets-nba-the-bounce/
-
-**Read the ruling dismissing corruption charges against Eric Adams**\
-`Read Judge Dale Ho’s decision dismissing the charges against Eric Adams, the mayor of New York City, with prejudice.`\
-https://nytimes.com/interactive/2025/04/02/nyregion/adams-charges-dismissed-ruling.html
-
-**‘Finally Some Fire’: Cory Booker’s 25-Hour Speech Strikes a Chord at Home**\
-`Many Democrats, including in Mr. Booker’s home state of New Jersey, reveled in his stamina and moxie as he assailed President Trump in the longest Senate speech on record.`\
-https://nytimes.com/2025/04/02/nyregion/cory-booker-speech-reactions.html
-
-**Eagles owner Jeffrey Lurie defends the tush push, hints at Nick Sirianni extension: Takeaways**\
-`Plus: Lurie's thoughts on the upcoming White House visit and signing Zack Baun.`\
-https://nytimes.com/athletic/6248040/2025/04/02/eagles-jeffrey-lurie-tush-push-nick-sirianni-extension/
-
-**Gotham FC's Davidson out of 2025 season with ACL injury**\
-`The 26-year-old will be placed on the league’s season-ending injury list after suffering the injury against the Houston Dash.`\
-https://nytimes.com/athletic/6249626/2025/04/02/tierna-davidson-acl-injury-gotham-uswnt/
 
