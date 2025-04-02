@@ -1,3 +1,11 @@
+**Anthony Elanga is versatile, technical and selfless - the epitome of this new Nottingham Forest**\
+`The Swedish winger is at home in Nuno Espirito Santo's unashamedly counter-attacking side, regardless of which position he plays`\
+https://nytimes.com/athletic/6249143/2025/04/02/elanga-forest-versatility/
+
+**The birth of a new pitch: Why MLB players are rushing to try the 'kick-change'**\
+`Some pitchers who can throw breaking balls but haven't yet found a changeup grip are finding that the kick-change fits their needs.`\
+https://nytimes.com/athletic/6201935/2025/04/02/new-baseball-pitch-kick-change-origins/
+
 **Every time Paul Skenes starts, an entire sport marvels — and also holds its breath**\
 `Skenes has invoked a more complicated reaction than Doc, the D-Train or Fernandomania. In this era of arm injuries, how long can he last?`\
 https://nytimes.com/athletic/6248309/2025/04/02/paul-skenes-pirates-ace-injury-risk/
@@ -5,6 +13,15 @@ https://nytimes.com/athletic/6248309/2025/04/02/paul-skenes-pirates-ace-injury-r
 **Corbin Burnes, the $210-million ace, vs. the Yankees' torpedoes: for now, call it a draw?**\
 `One of the best pitchers in baseball put up a mediocre result against the Yankees, but it would be hard to say it was due to torpedo bats.`\
 https://nytimes.com/athletic/6248653/2025/04/02/corbin-burnes-yankees-diamondbacks-torpedo-bats/
+
+**Mirtle: How do the Maple Leafs measure up to recent Stanley Cup winners?**\
+`Does Toronto profile like a potential Cup contender? Is there a realistic possibility for more than a quick exit in the playoffs?
+`\
+https://nytimes.com/athletic/6248497/2025/04/02/maple-leafs-nhl-stanley-cup-winners/
+
+**A question of control: Coach and team rules and the next big NCAA case**\
+`There are many layers to the college athlete-employment debate, enough for a college thesis. Control is just one of them.`\
+https://nytimes.com/athletic/6235993/2025/04/02/ncaa-rules-johnson-case-coach/
 
 **Greenberg: Your Chicago Bulls are a postseason team once again … kind of**\
 `If the standings stay the same, the Bulls will play the Miami Heat for the third straight year, this time in the first Play-In game.`\
@@ -21,20 +38,4 @@ https://nytimes.com/athletic/6245774/2025/04/02/nhl-all-star-second-team-goalie/
 **Olivia Miles' transfer portal entrance highlights power shift in women's basketball**\
 `The balance of power is shifting, and colleges and WNBA teams are now at the mercy of the players.`\
 https://nytimes.com/athletic/6248666/2025/04/02/olivia-miles-transfer-portal-womens-basketball-wnba/
-
-**NHL rumblings: Will McDavid, Kaprizov, the Tkachuks and other injured stars be back for the playoffs?**\
-`The playoffs are two and a half weeks away, and there is still uncertainty around the injury recovery timelines affecting some big names.`\
-https://nytimes.com/athletic/6248197/2025/04/02/nhl-star-injuries-playoff-availability/
-
-**From UberEats driver to NHL goalie: Inside the unlikeliest start in hockey history**\
-`Through surgeries and mental health struggles, thrilling call-ups and heartbreaking cuts, Brandon Halverson persevered to reach his dream.`\
-https://nytimes.com/athletic/6240780/2025/04/02/nhl-goalie-brandon-halverson-lightning-rangers/
-
-**The quirks and extremes of FIFA's 2026 World Cup training base demands**\
-`When normies like us all travel, we find ourselves daunted with a wide array of features among our prospective homes away from home.`\
-https://nytimes.com/athletic/6248137/2025/04/02/2026-world-cup-training-site-rules-fifa-guidelines/
-
-**The Final Four players to know (beyond Cooper Flagg)**\
-`Duke has the biggest superstar in all of college basketball. But there are plenty of other key players to know in San Antonio. `\
-https://nytimes.com/athletic/6247065/2025/04/02/final-four-players-to-know-2025/
 
