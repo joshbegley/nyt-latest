@@ -1,3 +1,7 @@
+**Red Sox, Kristian Campbell agree to 8-year, $60 million deal: Source**\
+`The extension for the 22-year-old runs through 2032 with options for 2033 and 2034.`\
+https://nytimes.com/athletic/6250282/2025/04/02/red-sox-kristian-campbell-contract-extension/
+
 **Why Is Newsmax, the Right-Wing Channel, Suddenly Worth More Than U.S. Steel?**\
 `Newsmax lost $55 million in the first half of last year. But its stock has surged this week as shares in the company traded on the public market for the first time.`\
 https://nytimes.com/2025/04/02/business/media/newsmax-stock-ipo.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6250199/2025/04/02/dodgers-athletics-trade-esteury-
 **What’s in Our Queue? ‘A Man on the Inside’ and More **\
 `Text by Heather Knight`\
 https://nytimes.com/card/2025/04/02/arts/editors-recommendations-maninside
-
-****\
-``\
-https://nytimes.com/live/2025/04/02/business/trump-tariffs-liberation-day
 
