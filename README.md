@@ -1,3 +1,7 @@
+**Joe DePugh, Speedball Pitcher in Springsteen’s ‘Glory Days,’ Dies at 75**\
+`A gifted athlete, he gave a clumsy teenage Bruce Springsteen his first nickname, Saddie. Years later, the Boss returned the favor, memorializing him in a song.`\
+https://nytimes.com/2025/04/02/arts/music/joe-depugh-dead-glory-days.html
+
 **U.S.D.A. Freezes Funding for Maine Amid Battle Over Transgender Athletes**\
 `The administration concluded last month that Maine had violated federal law by allowing transgender athletes to play on girls’ or women’s teams.`\
 https://nytimes.com/2025/04/02/us/politics/trump-maine-funding-freeze-transgender-athletes.html
@@ -8,7 +12,7 @@ https://nytimes.com/2025/04/02/well/hhs-workers-cuts-rfk-jr.html
 
 **The Briefing: Atletico 0 Barcelona 1 (4-5 agg) - Magical Yamal, Torres scores again and a Clasico final next**\
 `Thom Harris and Dermot Corrigan break down Barcelona's Copa del Rey semi-final win over Atletico Madrid`\
-https://nytimes.com/athletic/6246913/2025/04/02/atletico-madrid-0-barcelona-1-torres-yamal/
+https://nytimes.com/athletic/6246913/2025/04/02/atletico-madrid-barcelona-torres-yamal/
 
 **A Pristine Family Photo. Then Barack Obama Strolls By.**\
 `The former president was taking a morning walk just as two young siblings posed with the Washington Monument and cherry blossoms serving as a perfect backdrop.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/02/style/tiktok-ban-algorithm-deadline.html
 **Political Texts or Scantily Clad Pics? Both.**\
 `Before Wisconsin’s election, a right-wing group rallied for voters’ attention with unauthorized photos of Emily Ratajkowski and a shirtless man holding a dog.`\
 https://nytimes.com/2025/04/02/style/right-wing-group-wisconsin-voting-thirst-traps.html
-
-**Thursday Briefing: Trump’s Global Tariffs**\
-`Plus, David Hockney’s biggest show.`\
-https://nytimes.com/2025/04/02/briefing/trump-tariffs-israel-gaza-musk-tesla-sales.html
 
