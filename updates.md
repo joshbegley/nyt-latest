@@ -1,3 +1,15 @@
+**Moyes: Jota goal was ‘clear offside’**\
+`The Everton manager said that Liverpool's Luis Diaz was interfering with play and called it a "very easy decision to give".`\
+https://nytimes.com/athletic/6250922/2025/04/02/moyes-slot-diaz-offside-everton-liverpool/
+
+**Star VII, Anchorage’s Famous Reindeer, Dies Weeks After Poisoning**\
+`In February, security camera footage showed a masked figure spraying the reindeer with an unknown liquid. The police have no leads.`\
+https://nytimes.com/2025/04/02/us/star-reindeer-dead-poison.html
+
+**‘Reciprocal’ Tariffs: See Which Countries Have the Highest Rates**\
+`President Trump unveiled sweeping tariffs that included so-called reciprocal actions on dozens of other countries at very high levels.`\
+https://nytimes.com/2025/04/02/business/economy/trump-tariffs-chart.html
+
 **What Will Musk Learn From Wisconsin?**\
 `After a failed $20 million effort to tilt a State Supreme Court race, Elon Musk joins the ranks of billionaires frustrated by the laws of politics.`\
 https://nytimes.com/2025/04/02/us/politics/musk-wisconsin-supreme-court.html

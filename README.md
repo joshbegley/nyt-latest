@@ -1,3 +1,15 @@
+**House Republicans Demand Documents About ActBlue Departures**\
+`Republicans began investigating ActBlue, the Democratic Party’s main fund-raising platform, last year in part of a broader bid to target key Democratic organizations.`\
+https://nytimes.com/2025/04/02/us/politics/actblue-house-investigation.html
+
+**Trump Announces Tariffs on Global Trading Partners**\
+`During a news conference, President Trump announced that he would impose a baseline 10 percent tariff on all trading partners, as well as double-digit “reciprocal tariffs” on dozens of other countries.`\
+https://nytimes.com/video/business/100000010088408/trump-new-tariffs.html
+
+**Coal Plant Ranked as Nation’s Dirtiest Asks for Pollution Exemption**\
+`The facility, in Colstrip, Mont., used a new E.P.A. system for requesting special waivers from President Trump.`\
+https://nytimes.com/2025/04/02/climate/coal-plant-colstrip-epa-email-pollution-exemption.html
+
 **Moyes: Jota goal was ‘clear offside’**\
 `The Everton manager said that Liverpool's Luis Diaz was interfering with play and called it a "very easy decision to give".`\
 https://nytimes.com/athletic/6250922/2025/04/02/moyes-slot-diaz-offside-everton-liverpool/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/02/business/trump-tariffs-global-stock-markets.html
 **Pulisic's Milan draws Inter in Coppa Italia semifinal first leg**\
 `The cup edition of Milan's derby will come down to the second leg on April 23, with the winner advancing to the final.`\
 https://nytimes.com/athletic/6250923/2025/04/02/ac-milan-inter-coppa-italia-semifinal-first-leg-pulisic/
-
-**Officer Won’t Be Charged in Fatal Shooting of Boy Who Had Pellet Gun**\
-`The New York attorney general, Letitia James, said the evidence in the shooting of Nyah Mway, 13, last year would be unlikely to persuade a jury to convict the officer.`\
-https://nytimes.com/2025/04/02/nyregion/police-officer-shooting-utica-no-charges.html
-
-**NWSL-based Zambia players forced to miss games in China**\
-`Orlando Pride's Barbra Banda is one of four Zambian players who will miss the games due to “additional travel measures" introduced in the US`\
-https://nytimes.com/athletic/6250187/2025/04/02/nwsl-zambia-china-united-states/
-
-**Richard Bernstein Dies at 80; Times Correspondent, Critic and Author**\
-`He wrote from Europe and Asia, served as a book critic and produced a raft of books, on subjects ranging from the French condition to multiculturalism.`\
-https://nytimes.com/2025/04/02/business/media/richard-bernstein-dead.html
 
