@@ -1,3 +1,15 @@
+**Ancelotti appears in court over alleged tax fraud**\
+`Ancelotti was charged in 2020 and Spanish prosecutors are seeking a prison sentence of four years and nine months and a fine of €3.2m.`\
+https://nytimes.com/athletic/6249258/2025/04/02/carlo-ancelotti-real-madrid-tax-fraud/
+
+**As Smaller Firms Back Perkins Coie’s Fight With Trump, Largest Ones Shy Away**\
+`None of the nation’s top-10 firms by revenue have signed a legal brief demonstrating support for the law firm that is resisting an executive order.`\
+https://nytimes.com/2025/04/02/business/trump-perkins-coie-amicus-brief.html
+
+**Lucas Akins is playing football in League One. In a few weeks, he could be in prison**\
+`The Grenada winger is still being picked by Mansfield despite pleading guilty to causing the death of a cyclist in 2022`\
+https://nytimes.com/athletic/6248021/2025/04/02/lucas-akins-mansfield-town-prison/
+
 **Dave Sims' 'amazing' first week in Yankees radio booth: 'Welcome to Home Run Derby'**\
 `No broadcaster has ever begun their career with a new team quite like this. Sims discusses the booming start to his dream job. `\
 https://nytimes.com/athletic/6249895/2025/04/02/dave-sims-yankees-home-runs/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/02/nyregion/eric-adams-mayor-election.html
 **Supreme Court Sides With Truck Driver Fired Over Drug Test**\
 `The driver, Douglas Horn, sued the maker of a product advertised as THC-free under a federal racketeering law, saying he had suffered a business injury.`\
 https://nytimes.com/2025/04/02/us/supreme-court-truck-driver.html
-
-**'We definitely needed a win': Giannis Antetokounmpo's playmaking leads Bucks past Suns**\
-`With point guard Damian Lillard still out, Doc Rivers put the ball in Antetokounmpo's hands and let him orchestrate the offense.`\
-https://nytimes.com/athletic/6249120/2025/04/02/giannis-antetokounmpo-bucks-suns-2/
-
-**Amazon Said to Make a Bid to Buy TikTok in the U.S.**\
-`The e-commerce giant put in a last-minute offer for the popular video app, according to three people familiar with the talks. TikTok faces a Saturday deadline to change its ownership structure.`\
-https://nytimes.com/2025/04/02/business/media/amazon-tiktok-bid.html
-
-**The Windup: Explaining the new 'kick-change' pitch**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6248855/2025/04/02/mlb-pitch-type-kick-change-the-windup/
 

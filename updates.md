@@ -1,3 +1,15 @@
+**Ancelotti appears in court over alleged tax fraud**\
+`Ancelotti was charged in 2020 and Spanish prosecutors are seeking a prison sentence of four years and nine months and a fine of €3.2m.`\
+https://nytimes.com/athletic/6249258/2025/04/02/carlo-ancelotti-real-madrid-tax-fraud/
+
+**As Smaller Firms Back Perkins Coie’s Fight With Trump, Largest Ones Shy Away**\
+`None of the nation’s top-10 firms by revenue have signed a legal brief demonstrating support for the law firm that is resisting an executive order.`\
+https://nytimes.com/2025/04/02/business/trump-perkins-coie-amicus-brief.html
+
+**Lucas Akins is playing football in League One. In a few weeks, he could be in prison**\
+`The Grenada winger is still being picked by Mansfield despite pleading guilty to causing the death of a cyclist in 2022`\
+https://nytimes.com/athletic/6248021/2025/04/02/lucas-akins-mansfield-town-prison/
+
 **Dave Sims' 'amazing' first week in Yankees radio booth: 'Welcome to Home Run Derby'**\
 `No broadcaster has ever begun their career with a new team quite like this. Sims discusses the booming start to his dream job. `\
 https://nytimes.com/athletic/6249895/2025/04/02/dave-sims-yankees-home-runs/
