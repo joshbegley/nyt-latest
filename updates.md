@@ -1,3 +1,7 @@
+**Judge denies Phillies' request for restraining order in case against analytics company**\
+`The Phillies failed to "show that its claims of injury were anything but entirely speculative," the judge wrote, in siding with Teamworks.`\
+https://nytimes.com/athletic/6250439/2025/04/02/phillies-teamworks-lawsuit-restraining-order/
+
 **C.D.C. Cuts Threaten to Set Back the Nation’s Health, Critics Say**\
 `The reorganization that began on Tuesday will scale back an agency that has been a public health model around the world.`\
 https://nytimes.com/2025/04/02/health/cdc-layoffs-kennedy.html
