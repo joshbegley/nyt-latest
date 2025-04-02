@@ -1,8 +1,12 @@
+**TNT Sports hires Andre Agassi for French Open coverage**\
+`Agassi, 54, won the French Open in 1999.`\
+https://nytimes.com/athletic/6249422/2025/04/02/tnt-sports-alex-agassi-french-open/
+
 **La Liga question Barcelona's financing of Olmo, Victor registrations**\
 `The league has questioned whether the sale of VIP seating to Middle Eastern investors was properly accounted for.`\
 https://nytimes.com/athletic/6249365/2025/04/02/barcelona-olmo-victor-la-liga-statement/
 
-**'Bruh, oh my God': What does it feel like to take on Nikola Jokić on a historic night?**\
+**What does it feel like to face Jokić on a 61-point night? 'Bruh, oh my God'**\
 `"He might be the best basketball player I’ve ever seen close up," Timberwolves star Anthony Edwards said.`\
 https://nytimes.com/athletic/6248428/2025/04/02/nikola-jokic-61-point-triple-double/
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/04/02/us/trump-news/senate-democrats-canada-tariff
 **Raiders' Mark Davis is enjoying his favorite time of the year: 'We are undefeated'**\
 `The Raiders have a new regime for the third straight year but Tom Brady's presence give an added weight to the new triumvirate.`\
 https://nytimes.com/athletic/6248076/2025/04/02/raiders-mark-davis-tom-brady-pete-carroll/
-
-**Trump Administration Live Updates: President and Top Aides to Discuss TikTok’s Future**\
-``\
-https://nytimes.com/live/2025/04/02/us/trump-news
 
