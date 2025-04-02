@@ -1,3 +1,7 @@
+**Republicans Plan to Skirt Senate Rules to Push Through More Tax Cuts**\
+`Senate G.O.P. leaders are planning to use what is known as the “nuclear option” to steer around the Senate’s in-house referee and allow the use of a gimmick that makes trillions of dollars in tax cuts appear to be free.`\
+https://nytimes.com/2025/04/02/us/politics/republicans-senate-rules-tax-cuts.html
+
 **Reds looking for early answers at the plate and in the bullpen: 3 takeaways**\
 `Cincinnati went 2-4 in its opening homestand. Who's excelling and who needs to shake off the offseason rust?`\
 https://nytimes.com/athletic/6250754/2025/04/02/cincinnati-reds-starters-bullpen-hitters/
