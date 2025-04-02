@@ -1,3 +1,7 @@
+**C.D.C. Cuts Threaten to Set Back the Nation’s Health, Critics Say**\
+`The reorganization that began on Tuesday will scale back an agency that has been a public health model around the world.`\
+https://nytimes.com/2025/04/02/health/cdc-layoffs-kennedy.html
+
 **Digging in Against Proxy Voting, Johnson Exposes His Weak Hold on the House**\
 `The Republican speaker, who has mostly wielded power by relying on the threat of retribution from President Trump, has chosen an institutional fight it’s not clear he can win.`\
 https://nytimes.com/2025/04/02/us/politics/proxy-voting-johnson-house-republicans.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/04/02/business/trump-tariffs-liberation-day/americ
 **Trey Hendrickson: Executive's comments ‘disappointing’ amid contract talks**\
 `The star edge rusher took to the media to address his frustrations with comments by a Cincinnati executive at the annual league meeting.`\
 https://nytimes.com/athletic/6250397/2025/04/02/trey-hendrickson-bengals-frustration-contract-talks/
-
-**The War on Nature in Ukraine**\
-`Fires and smoke foul the air. Toxins seep into the earth and water. Habitats for wildlife disappear. Experts call it ecocide.`\
-https://nytimes.com/interactive/2025/04/02/world/europe/ukraine-russia-war-environment.html
 
