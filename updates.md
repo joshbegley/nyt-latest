@@ -1,3 +1,19 @@
+**Israel Is Expanding Gaza Offensive, Defense Minister Says**\
+`Israel Katz warned that “large areas” of the enclave would be seized and added to security zones controlled by the military.`\
+https://nytimes.com/2025/04/02/world/middleeast/israel-gaza-offensive-hamas-war-katz.html
+
+**Blue-chippers, roster holes and Ben Johnson's vision: Bears NFL Draft takeaways**\
+`Having four picks in the top 75 (Nos. 10, 39, 41 and 72) is an encouraging starting point for the Bears.`\
+https://nytimes.com/athletic/6247843/2025/04/02/bears-nfl-draft-ben-johnson-ryan-poles/
+
+**Latest Storm System Could Drop ‘Potentially Historic’ Rain on Central U.S.**\
+`Forecasters warned of life-threatening flash flooding as a stalling system brings days of heavy rain and a tornado threat across much of the country.`\
+https://nytimes.com/2025/04/02/weather/severe-storms-midwest-tornado-flooding-rain.html
+
+**The New York Times International Edition in Print for Thursday, April 3, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/04/02/todays-new-york-times-international-edition
+
 **Chiefs the favorite to face the Chargers in Brazil, request Christmas Day spotlight**\
 `The Chiefs are the top contender to face the Chargers in São Paulo, Brazil, to open their season in a Friday night game Sept. 5.`\
 https://nytimes.com/athletic/6248441/2025/04/02/chiefs-chargers-brazil-christmas-day/
