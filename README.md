@@ -1,3 +1,7 @@
+**Chelsea, City fans with banning orders stopped from travelling to CWC**\
+`Around 150 fans of the two clubs will have to surrender their passports for the duration of the competition.`\
+https://nytimes.com/athletic/6249295/2025/04/02/chelsea-manchester-city-fans-club-world-cup/
+
 **The Athletic FC: Where is Messi's bodyguard? Elanga hits fast-forward on Forest's Euro hopes**\
 `Today in TAFC: The mystery surrounding Messi's bodyguard, Elanga's lightning run and goal, Southampton looking to avoid an unwanted record.`\
 https://nytimes.com/athletic/6249175/2025/04/02/messi-bodyguard-logan-paul-forest-elanga-goal-man-utd/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6248653/2025/04/02/corbin-burnes-yankees-diamondbac
 `Does Toronto profile like a potential Cup contender? Is there a realistic possibility for more than a quick exit in the playoffs?
 `\
 https://nytimes.com/athletic/6248497/2025/04/02/maple-leafs-nhl-stanley-cup-winners/
-
-**A question of control: Coach and team rules and the next big NCAA case**\
-`There are many layers to the college athlete-employment debate, enough for a college thesis. Control is just one of them.`\
-https://nytimes.com/athletic/6235993/2025/04/02/ncaa-rules-johnson-case-coach/
 

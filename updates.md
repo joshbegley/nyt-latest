@@ -1,3 +1,8 @@
+**Mirtle: How do the Maple Leafs measure up to recent Stanley Cup winners?**\
+`Does Toronto profile like a potential Cup contender? Is there a realistic possibility for more than a quick exit in the playoffs?
+`\
+https://nytimes.com/athletic/6248497/2025/04/02/maple-leafs-nhl-stanley-cup-winners/
+
 **Anthony Elanga is versatile, technical and selfless - the epitome of this new Nottingham Forest**\
 `The Swedish winger is at home in Nuno Espirito Santo's unashamedly counter-attacking side, regardless of which position he plays`\
 https://nytimes.com/athletic/6249143/2025/04/02/elanga-forest-versatility/
