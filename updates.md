@@ -1,3 +1,7 @@
+**China’s New Barges Could Make a Tough Task Easier: Invading Taiwan**\
+`The barges, which link up to form a bridge, could give China a way to land large numbers of vehicles and troops on Taiwan, solving a major logistical problem.`\
+https://nytimes.com/2025/04/01/world/asia/china-invasion-barges-taiwan.html
+
 **‘Hey, it’s Ovi’: A welcome text, a hometown debut and Leonard’s next move**\
 `Ryan Leonard played 14:14 in his NHL debut against his hometown Boston Bruins.`\
 https://nytimes.com/athletic/6248578/2025/04/01/capitals-ryan-leonard-nhl-debut-ovechkin-boston/

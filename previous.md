@@ -1,3 +1,7 @@
+**China’s New Barges Could Make a Tough Task Easier: Invading Taiwan**\
+`The barges, which link up to form a bridge, could give China a way to land large numbers of vehicles and troops on Taiwan, solving a major logistical problem.`\
+https://nytimes.com/2025/04/01/world/asia/china-invasion-barges-taiwan.html
+
 **‘Hey, it’s Ovi’: A welcome text, a hometown debut and Leonard’s next move**\
 `Ryan Leonard played 14:14 in his NHL debut against his hometown Boston Bruins.`\
 https://nytimes.com/athletic/6248578/2025/04/01/capitals-ryan-leonard-nhl-debut-ovechkin-boston/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/01/pageoneplus/corrections-april-2-2025.html
 **Columbia Campus Occupation Could Have Ended Without Police, Report Says**\
 `A university senate review concludes that some demonstrators who occupied Hamilton Hall were willing to leave voluntarily.`\
 https://nytimes.com/2025/04/01/nyregion/columbia-protests-police.html
-
-**With Painful Layoffs Ahead, Agencies Push Incentives to Quit**\
-`Another round of “deferred resignation” offers is part of the Trump administration’s stepped-up effort to rapidly downsize the government.`\
-https://nytimes.com/2025/04/01/us/politics/federal-layoff-buyout-offers.html
 
