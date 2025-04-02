@@ -1,3 +1,11 @@
+**Nashville Police Release Details on Covenant School Shooting and Close Case**\
+`A summary of the police investigation, released two years after the attack, found that the shooter had spent years planning the violence and covering up mental health problems.`\
+https://nytimes.com/2025/04/02/us/politics/covenant-school-shooting-report-nashville.html
+
+**Spotify Sells Itself to Advertisers as ‘Nutritional’**\
+`After finally achieving profitability, the streaming platform wants to be a healthy alternative to “doom scrolling.”`\
+https://nytimes.com/2025/04/02/business/media/spotify-advertising.html
+
 **Trump’s New Tariffs Test Apple’s Global Supply Chain**\
 `The iPhone maker spent years trying to move production of some products out of China to avoid tariffs. But now that may not matter.`\
 https://nytimes.com/2025/04/02/technology/trump-tariffs-apple-iphones.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/02/opinion/trump-tariffs-mexico-tequila-border.html
 **Mets' Vientos gets the message on hustle: 'I won't let that happen again'**\
 `Mets manager Carlos Mendoza advised struggling third baseman to "stick to the basics."`\
 https://nytimes.com/athletic/6250676/2025/04/02/mets-mark-viento-lack-of-hustle/
-
-**The Briefing: Newcastle 2 Brentford 1 - Did Tonali mean it? Post-trophy hangover avoided**\
-`Newcastle United started life as Carabao Cup winners by claiming a hard-fought 2-1 victory over Brentford`\
-https://nytimes.com/athletic/6244331/2025/04/02/newcastle-2-brentford-1-tonali-isak/
-
-**The Briefing: Man City 2 Leicester 0: Grealish and Marmoush dovetail as fans sit start out**\
-`All the key talking points from Manchester City's victory over Leicester analysed and evaluated`\
-https://nytimes.com/athletic/6244307/2025/04/02/manchester-city-leicester-city-premier-league/
 

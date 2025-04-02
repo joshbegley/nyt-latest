@@ -1,3 +1,11 @@
+**Nashville Police Release Details on Covenant School Shooting and Close Case**\
+`A summary of the police investigation, released two years after the attack, found that the shooter had spent years planning the violence and covering up mental health problems.`\
+https://nytimes.com/2025/04/02/us/politics/covenant-school-shooting-report-nashville.html
+
+**Spotify Sells Itself to Advertisers as ‘Nutritional’**\
+`After finally achieving profitability, the streaming platform wants to be a healthy alternative to “doom scrolling.”`\
+https://nytimes.com/2025/04/02/business/media/spotify-advertising.html
+
 **Trump’s New Tariffs Test Apple’s Global Supply Chain**\
 `The iPhone maker spent years trying to move production of some products out of China to avoid tariffs. But now that may not matter.`\
 https://nytimes.com/2025/04/02/technology/trump-tariffs-apple-iphones.html
