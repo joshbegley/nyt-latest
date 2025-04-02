@@ -1,3 +1,7 @@
+**Susan Crawford Beats Musk-Backed Candidate in Wisconsin**\
+`Susan Crawford, a liberal judge, won a seat on Wisconsin’s Supreme Court, beating the conservative candidate, Brad Schimel, who received $25 million in campaign support from Elon Musk.`\
+https://nytimes.com/video/us/politics/100000010086695/wisconsin-supreme-court-crawford-schimel.html
+
 **Knicks' OG Anunoby is unleashed and better than ever**\
 `Tuesday night's 27-point performance in the Knicks' win over the 76ers was Anunoby's seventh straight game with at least 23 points.`\
 https://nytimes.com/athletic/6248667/2025/04/02/knicks-og-anunoby-new-york/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/02/briefing/trump-israel-italy.html
 **Military Fires on Chinese Aid Convoy in Myanmar, Rebels Say**\
 `The army has also launched airstrikes against rebel groups as aid organizations struggle to reach parts of the country devastated by the earthquake.`\
 https://nytimes.com/2025/04/02/world/asia/myanmar-quake-aid.html
-
-**Where Cristian Romero goes, drama follows. What lies ahead at Spurs?**\
-`Cristian Romero can be erratic but Tottenham have missed his quality and leadership in defence this season`\
-https://nytimes.com/athletic/6246482/2025/04/02/cristian-romero-tottenham-hotspur-argentina/
 

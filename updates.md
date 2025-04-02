@@ -1,3 +1,7 @@
+**Susan Crawford Beats Musk-Backed Candidate in Wisconsin**\
+`Susan Crawford, a liberal judge, won a seat on Wisconsin’s Supreme Court, beating the conservative candidate, Brad Schimel, who received $25 million in campaign support from Elon Musk.`\
+https://nytimes.com/video/us/politics/100000010086695/wisconsin-supreme-court-crawford-schimel.html
+
 **Knicks' OG Anunoby is unleashed and better than ever**\
 `Tuesday night's 27-point performance in the Knicks' win over the 76ers was Anunoby's seventh straight game with at least 23 points.`\
 https://nytimes.com/athletic/6248667/2025/04/02/knicks-og-anunoby-new-york/
