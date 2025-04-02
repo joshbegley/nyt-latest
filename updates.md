@@ -1,3 +1,7 @@
+**Dustin May excels in return to the mound for first MLB game for Dodgers in 22 months**\
+`After staring down death, May embraced being back and pitched with that perspective.`\
+https://nytimes.com/athletic/6248944/2025/04/02/dodgers-win-dustin-may-returns/
+
 **Welcome to the Vitor Pereira Show: A song of ice and fire**\
 `In three and a half months, with an engaging blend of hot and cold, Pereira has put Wolves 12 points clear of the bottom three.`\
 https://nytimes.com/athletic/6248348/2025/04/02/vitor-pereira-wolves-defence-survival/
