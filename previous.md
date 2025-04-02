@@ -1,40 +1,40 @@
-**Olusesi signs four-year Tottenham contract**\
-`The 18-year-old midfielder made his first-team debut for Spurs earlier this year.`\
-https://nytimes.com/athletic/6249172/2025/04/02/callum-olusesi-tottenham-contract/
+**Could the Browns be tanking for Arch Manning? NFL execs debate**\
+`The Browns, who were previously cleared of tanking allegations raise by Hue Jackson, have done little at QB and don't have many options.`\
+https://nytimes.com/athletic/6248168/2025/04/02/browns-tanking-nfl-draft-arch-manning/
 
-**Chelsea trio passed fit for Spurs match - Maresca**\
-`Chelsea have been without Jackson since February 3 and Madueke since February 14 due to injuries while Palmer has had a hamstring issue.`\
-https://nytimes.com/athletic/6249198/2025/04/02/palmer-jackson-madueke-chelsea-injury-update/
+**Chris Buescher on respectful racing, his distaste for roundabouts and more: 12 Questions**\
+`Chris Buescher talks about why he hates roundabouts, the ethics of racing, the power of simplicity and more in the latest 12 Questions.`\
+https://nytimes.com/athletic/6244608/2025/04/02/chris-buescher-nascar-rfk-racing-12-questions/
 
-**Why Was This the Only High-Rise in Bangkok to Topple After the Quake?**\
-`Workers said poor-quality materials were used during construction by a Chinese developer as it sought to cut costs. Investigators also said they found substandard steel bars in the rubble.`\
-https://nytimes.com/2025/04/02/world/asia/earthquake-bangkok-collapse.html
+**Separate locker rooms and homeschooling: Growing class of teens adapt to life in NWSL**\
+`Mak Whitham, the youngest player in NWSL, shares what life is like balancing school and professional soccer`\
+https://nytimes.com/athletic/6236445/2025/04/02/nwsl-teen-soccer-players-mak-whitham/
 
-**Israel Is Expanding Gaza Offensive, Defense Minister Says**\
-`Israel Katz warned that “large areas” of the enclave would be seized and added to security zones controlled by the military.`\
-https://nytimes.com/2025/04/02/world/middleeast/israel-gaza-offensive-hamas-war-katz.html
+**Feldman's 2025 NFL mock draft: How coaches view Ward, Sanders, Hunter, Carter and more**\
+`What I’ve gathered about the first round of the 2025 NFL Draft after speaking to dozens of college coaches and NFL sources in recent months.`\
+https://nytimes.com/athletic/6246631/2025/04/02/nfl-mock-draft-2025-bruce-feldman/
 
-**Blue-chippers, roster holes and Ben Johnson's vision: Bears NFL Draft takeaways**\
-`Having four picks in the top 75 (Nos. 10, 39, 41 and 72) is an encouraging starting point for the Bears.`\
-https://nytimes.com/athletic/6247843/2025/04/02/bears-nfl-draft-ben-johnson-ryan-poles/
+**Why do Tyler Warren, Colston Loveland stand out in 2025 NFL Draft TE class?**\
+`Both prospects could land in Round 1, so we dive into their tape to figure out what makes them so good.`\
+https://nytimes.com/athletic/6230135/2025/04/02/nfl-draft-2025-tyler-warren-colston-loveland/
 
-**Latest Storm System Could Drop ‘Potentially Historic’ Rain on Central U.S.**\
-`Forecasters warned of life-threatening flash flooding as a stalling system brings days of heavy rain and a tornado threat across much of the country.`\
-https://nytimes.com/2025/04/02/weather/severe-storms-midwest-tornado-flooding-rain.html
+**From Don Imus to Pat McAfee, talk show hosts face consequences of the digital world: Marchand**\
+`Nearly two decades after Don Imus, the talk show game is the same, but the world around it has changed.`\
+https://nytimes.com/athletic/6248023/2025/04/02/don-imus-pat-mcafee-espn-ole-miss-student/
 
-**The New York Times International Edition in Print for Thursday, April 3, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/04/02/todays-new-york-times-international-edition
+**Looking for a March Cinderella story? Check the transfer portal**\
+`The pendulum has swung hard toward player empowerment when it comes to transfer rules, and the results aren't all bad for basketball fans.`\
+https://nytimes.com/athletic/6247859/2025/04/02/march-madness-transfers-johni-broome-walter-clayton/
 
-**Chiefs the favorite to face the Chargers in Brazil, request Christmas Day spotlight**\
-`The Chiefs are the top contender to face the Chargers in São Paulo, Brazil, to open their season in a Friday night game Sept. 5.`\
-https://nytimes.com/athletic/6248441/2025/04/02/chiefs-chargers-brazil-christmas-day/
+**How two of the Canadiens’ exceptional brains converged to earn a critical win**\
+`Nick Suzuki and Lane Hutson are two of the Canadiens' smartest players, and their brains conspired to get their team a massive win.`\
+https://nytimes.com/athletic/6248975/2025/04/02/canadiens-panthers-suzuki-hutson/
 
-**A Senate Blockbuster Looms in Texas, as Paxton Prepares to Challenge Cornyn**\
-`In an interview, the Texas attorney general attacked Senator John Cornyn as out of touch, and said he had talked to people close to President Trump about an endorsement.`\
-https://nytimes.com/2025/04/02/us/politics/paxton-cornyn-senate.html
+**Shen Yun: The Dark Side of a Dance Troupe**\
+`What a Times investigation has found about abusive conditions at the secretive enterprise.`\
+https://nytimes.com/2025/04/02/podcasts/the-daily/shen-yun-dance-billboards.html
 
-**Trump Is Set to Unveil Expansive Global Tariffs**\
-`The president on Wednesday will announce sweeping tariffs that he says will restore fairness to the global trading system.`\
-https://nytimes.com/2025/04/02/business/economy/trump-tariffs.html
+**Democrats Get a Boost, and a Deportation ‘Error’**\
+`Plus, Val Kilmer’s legacy.`\
+https://nytimes.com/2025/04/02/podcasts/the-headlines/wisonsin-florida-mistaken-deportation-mangione-kilmer.html
 
