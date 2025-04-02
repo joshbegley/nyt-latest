@@ -1,3 +1,7 @@
+**Why Is Newsmax, the Right-Wing Channel, Suddenly Worth More Than U.S. Steel?**\
+`Newsmax lost $55 million in the first half of last year. But its stock has surged this week as shares in the company traded on the public market for the first time.`\
+https://nytimes.com/2025/04/02/business/media/newsmax-stock-ipo.html
+
 **Tariffs Are Likely to Hit U.S. Renewable Energy**\
 `The components used to assemble wind turbines are made by suppliers around the globe.`\
 https://nytimes.com/2025/04/02/business/trump-renewable-energy-tariffs.html
@@ -22,7 +26,7 @@ https://nytimes.com/athletic/6250246/2025/04/02/bears-george-mccaskey-succession
 `President Trump’s shares of the company have been held in a trust since he won the election last year. The stock has plunged 40 percent this year.`\
 https://nytimes.com/2025/04/02/business/trump-media-shares.html
 
-**Dodgers trade for former AL stolen bases leader Esteury Ruiz from Athletics**\
+**Dodgers acquire Esteury Ruiz, former AL stolen-base leader, in trade with A's**\
 `The speedy 26-year-old outfielder swiped 67 bases in 132 games two seasons ago.`\
 https://nytimes.com/athletic/6250199/2025/04/02/dodgers-athletics-trade-esteury-ruiz/
 
@@ -33,8 +37,4 @@ https://nytimes.com/card/2025/04/02/arts/editors-recommendations-maninside
 ****\
 ``\
 https://nytimes.com/live/2025/04/02/business/trump-tariffs-liberation-day
-
-**San Diego FC reviewing fan brawls at Snapdragon Stadium, considering disciplinary action**\
-`Several videos appear to show fans involved in brawls after San Diego's 3-2 win over LAFC on Saturday.`\
-https://nytimes.com/athletic/6250234/2025/04/02/san-diego-fc-fan-violence/
 

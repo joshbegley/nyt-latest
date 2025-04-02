@@ -1,3 +1,15 @@
+**Tariffs Are Likely to Hit U.S. Renewable Energy**\
+`The components used to assemble wind turbines are made by suppliers around the globe.`\
+https://nytimes.com/2025/04/02/business/trump-renewable-energy-tariffs.html
+
+**Tuesday’s Election Results Are a Boost for Democrats**\
+`Democrats achieved their biggest gains to date in the second Trump era, winning a fiercely contested State Supreme Court race in Wisconsin, while also landing relatively strong showings despite losing two Florida special elections.`\
+https://nytimes.com/video/us/politics/100000010085892/tuesdays-election-results-are-a-boost-for-democrats.html
+
+**Mass Layoffs as Agencies Are Gutted**\
+`Responses to the mass firings in the federal government. Also: Cory Booker’s speech; talk of a third Trump term; Republicans and Ukraine; a letter to Canada.`\
+https://nytimes.com/2025/04/02/opinion/federal-workers-mass-layoffs.html
+
 **Here’s the latest on tariffs.**\
 `By Ana Swanson, Alan Rappeport and Tony Romm`\
 https://nytimes.com/live/2025/04/02/business/trump-tariffs-liberation-day/heres-the-latest-on-tariffs
@@ -18,23 +30,11 @@ https://nytimes.com/athletic/6250199/2025/04/02/dodgers-athletics-trade-esteury-
 `Text by Heather Knight`\
 https://nytimes.com/card/2025/04/02/arts/editors-recommendations-maninside
 
-**Live Updates: Trump to Reveal Sweeping Tariffs Plan at White House Soon**\
-`The import taxes are expected to take effect immediately after a ceremony in the Rose Garden, the president’s press secretary said.`\
+****\
+``\
 https://nytimes.com/live/2025/04/02/business/trump-tariffs-liberation-day
 
 **San Diego FC reviewing fan brawls at Snapdragon Stadium, considering disciplinary action**\
 `Several videos appear to show fans involved in brawls after San Diego's 3-2 win over LAFC on Saturday.`\
 https://nytimes.com/athletic/6250234/2025/04/02/san-diego-fc-fan-violence/
-
-**Watch: Is Ben Johnson the perfect coach to get the most out of Ashton Jeanty?**\
-`"The Athletic Football Show" discusses why the Chicago Bears should draft Boise State running back Ashton Jeanty with the No.10 pick.`\
-https://nytimes.com/athletic/6244702/2025/04/02/athletic-football-show-ashton-jeanty-chicago-bears/
-
-**Justices Weigh Challenge to South Carolina’s Bid to Defund Planned Parenthood**\
-`The court will decide whether Medicaid beneficiaries may sue to receive services under a law that lets them choose any qualified provider.`\
-https://nytimes.com/2025/04/02/us/politics/supreme-court-planned-parenthood.html
-
-**When Val Kilmer Was Batman and the ’90s Were Their Most ’90s**\
-`The actor took only one turn in the famous batsuit. That film, “Batman Forever,” couldn’t be a more representative artifact of its era.`\
-https://nytimes.com/2025/04/02/movies/val-kilmer-batman-forever.html
 
