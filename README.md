@@ -1,3 +1,7 @@
+**Drance: Why it's hard to make sense of a likely squandered Canucks season**\
+`With eight games remaining, the Canucks' playoff odds are on life support with not enough time to build a new identity.`\
+https://nytimes.com/athletic/6246237/2025/04/02/canucks-nhl-2024-25-season/
+
 **The Bounce: Steph Curry adds to list of legendary games. Plus, revisiting bad preseason predictions**\
 `Steph Curry and Nikola Jokić had all-time performances on Tuesday. Zach Harper examines their greatness and revisits preseason predictions.`\
 https://nytimes.com/athletic/6249462/2025/04/02/steph-curry-nikola-jokic-warriors-nuggets-nba-the-bounce/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/02/us/san-francisco-drug-supplies.html
 **How Jets' unforced errors put their Central Division title hopes at risk**\
 `The Jets’ costly mistakes leave them just four points up on Dallas for first place in the Central.`\
 https://nytimes.com/athletic/6249004/2025/04/02/winnipeg-jets-kings-nhl-central-division/
-
-**Penn State spring takeaways, observations from practice, interviews**\
-`Here’s what stood out during this week’s practice viewing window and interview sessions at Penn State.`\
-https://nytimes.com/athletic/6249321/2025/04/02/penn-state-spring-football-james-franklin-jim-knowles/
 
