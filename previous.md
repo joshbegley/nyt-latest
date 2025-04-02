@@ -1,40 +1,40 @@
+**Blue Jackets take early lead and ride Kirill Marchenko's hat trick to blowout win**\
+`Seven Blue Jackets players enjoyed multi-point nights in Columbus' 8-4 rout of Nashville Tuesday.`\
+https://nytimes.com/athletic/6248595/2025/04/02/blue-jackets-predators-kirill-marchenko-hat-trick/
+
+**Alexander Isak after 100 Newcastle games: How impressive has he been?**\
+`Fittingly, the Sweden international marked a century of appearances with the goal that won Newcastle the Carabao Cup`\
+https://nytimes.com/athletic/6245637/2025/04/02/alexander-isak-first-100-games-newcastle/
+
+**The Business of Football: Premier League cuts £75m in funding, Reading in crisis**\
+`What Matt Slater is hearing about the business side of the beautiful game from the Premier League, EFL and beyond`\
+https://nytimes.com/athletic/6243855/2025/04/02/premier-league-efl-reading-cuts/
+
+**Southampton and the unwanted Premier League lowest points record: 'It would be a stain'**\
+`Southampton have nine points and nine games to get more than the record low points total of 11`\
+https://nytimes.com/athletic/6246725/2025/04/02/southampton-premier-league-lowest-points-record/
+
+**How Royale Union Saint-Gilloise perfected the role of 'a selling club' - and may win a title with it**\
+`The Belgian side have mastered recruitment, but are also nine games away from their first title in 90 years`\
+https://nytimes.com/athletic/6246214/2025/04/02/royale-union-saint-gilloise/
+
+**How Healthy Is Your Social Biome? Take Our Quiz.**\
+`Research shows that our happiness depends on a complex web of relationships and interactions. Fifteen simple questions can assess yours.`\
+https://nytimes.com/interactive/2025/04/02/well/social-life-quiz.html
+
+**Trump to Pick Ohio’s Solicitor General for Top Justice Department Legal Post**\
+`T. Elliot Gaiser will be nominated to lead the influential Office of Legal Counsel, a department official said.`\
+https://nytimes.com/2025/04/02/us/politics/trump-ohio-elliot-gaiser-justice-department.html
+
+**More Americans Can’t Afford Medical Care, Poll Finds**\
+`A new survey found that 11 percent of Americans said they could not pay for medication and medical treatments.`\
+https://nytimes.com/2025/04/02/health/health-care-costs-gallup.html
+
+**Connections: Sports Edition Coach: Hints for April 2, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6246854/2025/04/02/connections-sports-edition-hints-for-april-2-2025/
+
 **Quote of the Day: A Toy Maker in China Struggles as Tariffs Bite**\
 `Quotation of the Day for Tuesday, April 2, 2025.`\
 https://nytimes.com/2025/04/01/pageoneplus/quote-of-the-day-a-toy-maker-in-china-struggles-as-tariffs-bite.html
-
-**Senators should be closer to the playoffs, but they've wasted points in losses to Buffalo**\
-`Tuesday night's loss — not an April Fool's joke by any means — was their second to Buffalo in a week and fourth all season long.`\
-https://nytimes.com/athletic/6248346/2025/04/01/senators-sabres-playoff-chase-sanderson/
-
-**Val Kilmer, Film Star Who Played Batman and Jim Morrison, Dies at 65**\
-`A wide-ranging leading man who earned critical praise, he was known to be charismatic but unpredictable. At one point he dropped out of Hollywood for a decade.`\
-https://nytimes.com/2025/04/01/movies/val-kilmer-dead.html
-
-**Democrats Show a Pulse: 6 Takeaways From Tuesday’s Elections**\
-`Energized against the new Trump era, and against Elon Musk, Democrats pulled off a crucial judicial victory in Wisconsin and cut into Republican margins in two Florida congressional races.`\
-https://nytimes.com/2025/04/01/us/politics/elections-florida-wisconsin-takeaways.html
-
-**China’s New Barges Could Make a Tough Task Easier: Invading Taiwan**\
-`The barges, which link up to form a bridge, could give China a way to land large numbers of vehicles and troops on Taiwan, solving a major logistical problem.`\
-https://nytimes.com/2025/04/01/world/asia/china-invasion-barges-taiwan.html
-
-**‘Hey, it’s Ovi’: A welcome text, a hometown debut and Leonard’s next move**\
-`Ryan Leonard played 14:14 in his NHL debut against his hometown Boston Bruins.`\
-https://nytimes.com/athletic/6248578/2025/04/01/capitals-ryan-leonard-nhl-debut-ovechkin-boston/
-
-**The Kodai Senga whisperer? Mets' new assistant coach hits it off with pivotal starter**\
-`The Mets hired Desi Druschel away from the New York Yankees, and the assistant developed a bond with Senga. `\
-https://nytimes.com/athletic/6248531/2025/04/01/mets-kodai-senga-pitching-coach/
-
-**Federal Judge Pauses Firing of Probationary Workers, But Not Nationwide**\
-`The pause is limited to certain states while the case proceeds, narrowing the scope of an earlier order that had paused firings nationwide and led to the reinstatement of thousands of federal employees.`\
-https://nytimes.com/2025/04/01/us/politics/probationary-workers-doge-cuts.html
-
-**Liberal Wins Wisconsin Court Race, Despite Musk’s Millions**\
-`Susan Crawford defeated Brad Schimel for a State Supreme Court seat in a race that shattered spending records and maintained a liberal majority on the court.`\
-https://nytimes.com/2025/04/01/us/politics/wisconsin-supreme-court-crawford-schimel.html
-
-**What’s the Catch?**\
-`Try your hand at Daniel Bodily’s puzzle — it’ll all work out.`\
-https://nytimes.com/2025/04/01/crosswords/daily-puzzle-2025-04-02.html
 
