@@ -1,3 +1,15 @@
+**Charges Dropped Against Adams, but Re-Election Chances Remain Dim**\
+`Even with the dismissal of a five-count federal corruption indictment, Mayor Eric Adams faces an uncertain future.`\
+https://nytimes.com/2025/04/02/nyregion/eric-adams-mayor-election.html
+
+**Supreme Court Sides With Truck Driver Fired Over Drug Test**\
+`The driver, Douglas Horn, sued the maker of a product advertised as THC-free under a federal racketeering law, saying he had suffered a business injury.`\
+https://nytimes.com/2025/04/02/us/supreme-court-truck-driver.html
+
+**'We definitely needed a win': Giannis Antetokounmpo's playmaking leads Bucks past Suns**\
+`With point guard Damian Lillard still out, Doc Rivers put the ball in Antetokounmpo's hands and let him orchestrate the offense.`\
+https://nytimes.com/athletic/6249120/2025/04/02/giannis-antetokounmpo-bucks-suns-2/
+
 **Amazon Said to Make a Bid to Buy TikTok in the U.S.**\
 `The e-commerce giant put in a last-minute offer for the popular video app, according to three people familiar with the talks. TikTok faces a Saturday deadline to change its ownership structure.`\
 https://nytimes.com/2025/04/02/business/media/amazon-tiktok-bid.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6249556/2025/04/02/lessons-learned-fantasy-basketba
 **MoneyCall: The sports innovation of the year**\
 `Welcome to MoneyCall, The Athletic's sports business newsletter. `\
 https://nytimes.com/athletic/6248685/2025/04/02/mlb-torpedo-bats-innovation-moneycall-newsletter/
-
-**The Rush to Import Goods Ahead of Trump’s Tariffs **\
-`Imports have surged recently as businesses seek to bring in more goods before President Trump imposes higher levies on goods from Mexico, Canada and other countries.`\
-https://nytimes.com/card/2025/04/02/business/tariffs-shipping-trump
-
-**Bears shift focus on new stadium location to Arlington Heights; downtown still in play**\
-`After a year of talk about building a new stadium on the museum campus downtown, the Bears are shifting focus back to Arlington Heights.`\
-https://nytimes.com/athletic/6249799/2025/04/02/bears-stadium-arlington-heights-shift/
-
-**In Ed Atkins’s World, the Uncanny Is Realer Than the Real**\
-`The British artist is being honored with a major retrospective. His eerie avatars aren’t quite lifelike, but they show what it means to be human.`\
-https://nytimes.com/2025/04/02/arts/design/ed-atkins-tate-britain.html
 
