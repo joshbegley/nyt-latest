@@ -1,3 +1,23 @@
+**Mets' Vientos gets the message on hustle: 'I won't let that happen again'**\
+`Mets manager Carlos Mendoza advises struggling third baseman to "stick to the basics."`\
+https://nytimes.com/athletic/6250676/2025/04/02/mets-mark-viento-lack-of-hustle/
+
+**The Briefing: Newcastle 2 Brentford 1 - Did Tonali mean it? Post-trophy hangover avoided**\
+`Newcastle United started life as Carabao Cup winners by claiming a hard-fought 2-1 victory over Brentford`\
+https://nytimes.com/athletic/6244331/2025/04/02/newcastle-2-brentford-1-tonali-isak/
+
+**The Briefing: Man City 2 Leicester 0: Grealish and Marmoush dovetail as fans sit start out**\
+`All the key talking points from Manchester City's victory over Leicester analysed and evaluated`\
+https://nytimes.com/athletic/6244307/2025/04/02/manchester-city-leicester-city-premier-league/
+
+**Wisconsin Republicans Hit Their Vote Target, but Democrats Blew Past Theirs**\
+`The liberal candidate in the state’s Supreme Court race benefited from outsize Democratic turnout as counties swung left across the state.`\
+https://nytimes.com/2025/04/02/us/politics/wisconsin-turnout-democrats-republicans.html
+
+**Lawyers for Man Deported in Error to El Salvador Assail Trump Administration**\
+`The case has raised questions not only about how the man could have ended up on a plane to El Salvador, but also about why the administration has apparently not moved to correct its mistake.`\
+https://nytimes.com/2025/04/02/us/politics/maryland-man-deported-el-salvador-trump-criticism.html
+
 **Can Male Authors Publish Books Under Female Names?**\
 `The magazine’s Ethicist columnist on what is acceptable when trying to increase book sales.`\
 https://nytimes.com/2025/04/02/magazine/authors-books-names-ethics.html
@@ -14,27 +34,7 @@ https://nytimes.com/athletic/6250439/2025/04/02/phillies-teamworks-lawsuit-restr
 `The reorganization that began on Tuesday will scale back an agency that has been a public health model around the world.`\
 https://nytimes.com/2025/04/02/health/cdc-layoffs-kennedy.html
 
-**Digging in Against Proxy Voting, Johnson Exposes His Weak Hold on the House**\
+**Digging In Against Proxy Voting, Johnson Exposes His Weak Hold on the House**\
 `The Republican speaker, who has mostly wielded power by relying on the threat of retribution from President Trump, has chosen an institutional fight it’s not clear he can win.`\
 https://nytimes.com/2025/04/02/us/politics/proxy-voting-johnson-house-republicans.html
-
-**Is Your Agency’s FOIA Office Being Shrunk or Cut?**\
-`The team that responds to requests at the Centers for Disease Control and Prevention has been eliminated. We are trying to determine whether this is a governmentwide pattern.`\
-https://nytimes.com/2025/04/02/us/politics/foia-office-callout.html
-
-**Inside the C.D.C., a Final ‘Love Letter’ Before Mass Layoffs**\
-`The agency’s injury center was among the departments that were largely gutted in Tuesday’s wave of dismissals. Read a staff member’s letter to colleagues while they awaited their fates.`\
-https://nytimes.com/2025/04/02/health/cdc-layoffs-response.html
-
-**Val Kilmer Brought a Wonderfully Weird Sensibility to Every Role**\
-`Even his choice of parts could be eccentric. In the end, he’s best thought of as a character actor trapped in a leading man’s body.`\
-https://nytimes.com/2025/04/02/movies/val-kilmer-career.html
-
-**Trump’s Fight Against Antisemitism Has Become Fraught for Many Jews**\
-`American Jews have watched with both alarm and enthusiasm as strong-arm tactics, including arrests of activists, have been deployed in their name.`\
-https://nytimes.com/2025/04/02/us/jews-trump.html
-
-**Senators Denounce Trump Administration’s Response to Myanmar Quake**\
-`Democratic senators said in a letter that the administration was failing its first test of humanitarian aid as China and Russia send teams to help.`\
-https://nytimes.com/2025/04/02/us/politics/trump-aid-myanmar-earthquake.html
 

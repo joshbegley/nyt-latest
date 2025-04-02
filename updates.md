@@ -1,3 +1,11 @@
+**Can Male Authors Publish Books Under Female Names?**\
+`The magazine’s Ethicist columnist on what is acceptable when trying to increase book sales.`\
+https://nytimes.com/2025/04/02/magazine/authors-books-names-ethics.html
+
+**The Movie That Can Help You Understand Cory Booker’s Senate Speech**\
+`“Mr. Smith Goes to Washington,” starring Jimmy Stewart as a naïve senator, explores the idealism — and reality — behind the tactic.`\
+https://nytimes.com/2025/04/02/movies/cory-booker-speech-mr-smith-goes-to-washington.html
+
 **Judge denies Phillies' request for restraining order in case against analytics company**\
 `The Phillies failed to "show that its claims of injury were anything but entirely speculative," the judge wrote, in siding with Teamworks.`\
 https://nytimes.com/athletic/6250439/2025/04/02/phillies-teamworks-lawsuit-restraining-order/
