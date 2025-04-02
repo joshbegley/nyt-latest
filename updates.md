@@ -1,3 +1,11 @@
+**Pulisic's Milan draws Inter in Coppa Italia semifinal first leg**\
+`The cup edition of Milan's derby will come down to the second leg on April 23, with the winner advancing to the final.`\
+https://nytimes.com/athletic/6250923/2025/04/02/ac-milan-inter-coppa-italia-semifinal-first-leg-pulisic/
+
+**Officer Won’t Be Charged in Fatal Shooting of Boy Who Had Pellet Gun**\
+`The New York attorney general, Letitia James, said the evidence in the shooting of Nyah Mway, 13, last year would be unlikely to persuade a jury to convict the officer.`\
+https://nytimes.com/2025/04/02/nyregion/police-officer-shooting-utica-no-charges.html
+
 **NWSL-based Zambia players forced to miss games in China**\
 `Orlando Pride's Barbra Banda is one of four Zambian players who will miss the games due to “additional travel measures" introduced in the US`\
 https://nytimes.com/athletic/6250187/2025/04/02/nwsl-zambia-china-united-states/
