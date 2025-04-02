@@ -1,3 +1,19 @@
+**Scoop City: Rule changes from the NFL's league meetings**\
+`Inside: Pro day risers, a draft fact from Dane Brugler and why the Eagles can still run the tush push for now, plus new rule changes.`\
+https://nytimes.com/athletic/6249935/2025/04/02/nfl-league-meeting-rule-changes-tush-push-scoop-city/
+
+**Takeaways from the fantasy basketball season: Minutes are gold, depth matters and more**\
+`Stan Son looks back at the fantasy basketball season, his countless leagues and extracts valuable lessons. `\
+https://nytimes.com/athletic/6249556/2025/04/02/lessons-learned-fantasy-basketball-2024/
+
+**MoneyCall: The sports innovation of the year**\
+`Welcome to MoneyCall, The Athletic's sports business newsletter. `\
+https://nytimes.com/athletic/6248685/2025/04/02/mlb-torpedo-bats-innovation-moneycall-newsletter/
+
+**The Rush to Import Goods Ahead of Trump’s Tariffs **\
+`Imports have surged recently as businesses seek to bring in more goods before President Trump imposes higher levies on goods from Mexico, Canada and other countries.`\
+https://nytimes.com/card/2025/04/02/business/tariffs-shipping-trump
+
 **Bears shift focus on new stadium location to Arlington Heights; downtown still in play**\
 `After a year of talk about building a new stadium on the museum campus downtown, the Bears are shifting focus back to Arlington Heights.`\
 https://nytimes.com/athletic/6249799/2025/04/02/bears-stadium-arlington-heights-shift/

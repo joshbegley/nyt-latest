@@ -1,3 +1,11 @@
+**Lore, Rodriguez have agreement for ownership of Timberwolves, Lynx**\
+`Both sides expect Lore and Rodriguez to be approved, the sources said.`\
+https://nytimes.com/athletic/6249866/2025/04/02/timberwolves-marc-lore-alex-rodriguez-ownership-nba/
+
+**The ‘Bazooka’ Europe Could Use to Fight Trump’s Tariffs**\
+`European officials are weighing deploying a tool called the anti-coercion instrument that would potentially target American tech and financial giants.`\
+https://nytimes.com/2025/04/02/business/dealbook/trump-tariffs-europe-response.html
+
 **Scoop City: Rule changes from the NFL's league meetings**\
 `Inside: Pro day risers, a draft fact from Dane Brugler and why the Eagles can still run the tush push for now, plus new rule changes.`\
 https://nytimes.com/athletic/6249935/2025/04/02/nfl-league-meeting-rule-changes-tush-push-scoop-city/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/02/us/politics/michigan-senate-democrats-mallory-mcm
 **Ghana, Nigeria, Jamaica, Trinidad & Tobago to compete in soccer tournament in London**\
 `The Ghana Football Association (GFA) confirmed on Wednesday that the four nations will play in the Unity Cup in late May.`\
 https://nytimes.com/athletic/6249819/2025/04/02/ghana-nigeria-jamaica-trinidad-london-tournament/
-
-**Supreme Court Rules Against Makers of Flavored Vapes Popular With Teens**\
-`The justices said the Food and Drug Administration had acted lawfully in rejecting applications from makers of flavored liquids used in e-cigarettes.`\
-https://nytimes.com/2025/04/02/us/supreme-court-flavored-vapes.html
-
-**Shingles Vaccine Can Decrease Risk of Dementia, Study Finds**\
-`A growing body of research suggests that preventing the viral infection can help stave off cognitive decline.`\
-https://nytimes.com/2025/04/02/health/shingles-vaccine-dementia.html
 
