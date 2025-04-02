@@ -1,3 +1,7 @@
+**Dustin May excels in return to the mound for first MLB game for Dodgers in 22 months**\
+`After staring down death, May embraced being back and pitched with that perspective.`\
+https://nytimes.com/athletic/6248944/2025/04/02/dodgers-win-dustin-may-returns/
+
 **Welcome to the Vitor Pereira Show: A song of ice and fire**\
 `In three and a half months, with an engaging blend of hot and cold, Pereira has put Wolves 12 points clear of the bottom three.`\
 https://nytimes.com/athletic/6248348/2025/04/02/vitor-pereira-wolves-defence-survival/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/02/learning/word-of-the-day-rapprochement.html
 **Saka's return breathes life back into Arsenal**\
 `This was the moment Arsenal fans had been waiting for and Bukayo Saka did not disappoint.`\
 https://nytimes.com/athletic/6248343/2025/04/02/arsenal-bukayo-saka-return/
-
-**Susan Crawford Beats Musk-Backed Candidate in Wisconsin**\
-`Susan Crawford, a liberal judge, won a seat on Wisconsin’s Supreme Court, beating the conservative candidate, Brad Schimel, who received $25 million in campaign support from Elon Musk.`\
-https://nytimes.com/video/us/politics/100000010086695/wisconsin-supreme-court-crawford-schimel.html
 
