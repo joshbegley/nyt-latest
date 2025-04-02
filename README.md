@@ -1,3 +1,7 @@
+**Late Night Is Expecting Tariffs With a Side of Drama**\
+`New tariffs will be unveiled at the White House Rose Garden — because “when you elect a reality TV star, you get all your economic policy via rose ceremony,” said Stephen Colbert.`\
+https://nytimes.com/2025/04/02/arts/television/late-night-trump-tariffs.html
+
 **How Casey Mize reclaimed his splitter and reasserted himself in the Tigers rotation**\
 `Mize held the Mariners scoreless over 5 2/3 innings with a well-rounded arsenal boosted by the return of his splitter.`\
 https://nytimes.com/athletic/6248937/2025/04/02/casey-mize-tigers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6246423/2025/04/02/brighton-team-news-aston-villa-j
 **George Russell is Mercedes’ perfect leader. Now he needs a new contract**\
 `He has not put a foot wrong this season, but until Russell's Mercedes future is secured beyond this year the speculation will persist`\
 https://nytimes.com/athletic/6247051/2025/04/02/george-russell-max-verstappen-mercedes-contract-f1/
-
-**Word of the Day: rapprochement**\
-`This word has appeared in 77 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/04/02/learning/word-of-the-day-rapprochement.html
 
