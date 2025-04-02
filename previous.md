@@ -1,6 +1,14 @@
+**How a seven-second viral video encapsulates how sport has changed**\
+`Undeniably, the landscape of sport has changed. The furore around a seven-second viral video proves just that `\
+https://nytimes.com/athletic/6249660/2025/04/02/jasmine-joyce-butchers-chicken-banana-dance-tiktok-wales-six-nations/
+
+**Tiny Love Stories: ‘Breathing Felt Like Betrayal’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/04/02/style/tiny-modern-love-stories-breathing-felt-like-betrayal.html
+
 **Val Kilmer: A Life in Pictures**\
 `A charismatic and handsome leading man in the 1990s, Kilmer played both superhero and rock star.`\
-https://nytimes.com/2025/04/02/arts/val-kilmer-a-life-in-pictures.html
+https://nytimes.com/2025/04/02/movies/val-kilmer-a-life-in-pictures.html
 
 **Severe Storm Damages Homes in Oklahoma**\
 `A storm system hitting the central U.S. uprooted trees, knocked down fences and littered the streets with debris.`\
@@ -18,7 +26,7 @@ https://nytimes.com/2025/04/02/arts/television/adolescence-owen-cooper-stephen-g
 `The 59-year-old Gjert Ingebrigtsen has denied all allegations and pleaded not guilty at the start of the trial`\
 https://nytimes.com/athletic/6250052/2025/04/02/jakob-ingebrigtsen-gjert-trial/
 
-**N.Y.C. Transit Leaders Unveil New Subway Map**\
+**New York City’s First New Subway Map in Decades Looks Mighty Familiar**\
 `The redesigned map, the first to be introduced in nearly half a century, is reminiscent of a version from the 1970s that was reviled by many traditionalists.`\
 https://nytimes.com/2025/04/02/nyregion/nyc-new-subway-map.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/04/02/science/a-love-letter-to-the-division
 **Ancelotti appears in court over alleged tax fraud**\
 `Ancelotti was charged in 2020 and Spanish prosecutors are seeking a prison sentence of four years and nine months and a fine of €3.2m.`\
 https://nytimes.com/athletic/6249258/2025/04/02/carlo-ancelotti-real-madrid-tax-fraud/
-
-**As Smaller Firms Back Perkins Coie’s Fight With Trump, Largest Ones Shy Away**\
-`None of the nation’s top-10 firms by revenue have signed a legal brief demonstrating support for the law firm that is resisting an executive order.`\
-https://nytimes.com/2025/04/02/business/trump-perkins-coie-amicus-brief.html
-
-**Lucas Akins is playing football in League One. In a few weeks, he could be in prison**\
-`The Grenada winger is still being picked by Mansfield despite pleading guilty to causing the death of a cyclist in 2022`\
-https://nytimes.com/athletic/6248021/2025/04/02/lucas-akins-mansfield-town-prison/
 

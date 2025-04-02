@@ -1,3 +1,19 @@
+**How a seven-second viral video encapsulates how sport has changed**\
+`Undeniably, the landscape of sport has changed. The furore around a seven-second viral video proves just that `\
+https://nytimes.com/athletic/6249660/2025/04/02/jasmine-joyce-butchers-chicken-banana-dance-tiktok-wales-six-nations/
+
+**Tiny Love Stories: ‘Breathing Felt Like Betrayal’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/04/02/style/tiny-modern-love-stories-breathing-felt-like-betrayal.html
+
+**Val Kilmer: A Life in Pictures**\
+`A charismatic and handsome leading man in the 1990s, Kilmer played both superhero and rock star.`\
+https://nytimes.com/2025/04/02/movies/val-kilmer-a-life-in-pictures.html
+
+**New York City’s First New Subway Map in Decades Looks Mighty Familiar**\
+`The redesigned map, the first to be introduced in nearly half a century, is reminiscent of a version from the 1970s that was reviled by many traditionalists.`\
+https://nytimes.com/2025/04/02/nyregion/nyc-new-subway-map.html
+
 **Val Kilmer: A Life in Pictures**\
 `A charismatic and handsome leading man in the 1990s, Kilmer played both superhero and rock star.`\
 https://nytimes.com/2025/04/02/arts/val-kilmer-a-life-in-pictures.html
