@@ -1,3 +1,15 @@
+**On Eve of Trump’s Tariffs Announcement, Israel Says It Will Lift All Duties on U.S. Imports**\
+`The move was an apparent bid to ensure that Israel is exempt from new tariffs that President Trump plans to announce on Wednesday.`\
+https://nytimes.com/2025/04/02/us/politics/israel-tariffs-us-imports-trump.html
+
+**Maddie Booker's quiet role is speaking volumes in Texas' national championship mission**\
+`Booker, a sophomore, has been a powerful defender and versatile offensive leader to take the Longhorns into the Final Four.`\
+https://nytimes.com/athletic/6248697/2025/04/02/maddie-booker-texas-final-four/
+
+**How ‘Liberation Day’ Might Go Down**\
+`The president is set to announce details of his sweeping tariffs, as companies and global trading partners scramble to respond.`\
+https://nytimes.com/2025/04/02/business/dealbook/trump-liberation-day-tariffs.html
+
 **Chelsea, City fans with banning orders stopped from travelling to CWC**\
 `Around 150 fans of the two clubs will have to surrender their passports for the duration of the competition.`\
 https://nytimes.com/athletic/6249295/2025/04/02/chelsea-manchester-city-fans-club-world-cup/
@@ -25,17 +37,4 @@ https://nytimes.com/athletic/6249143/2025/04/02/elanga-forest-versatility/
 **The birth of a new pitch: Why MLB players are rushing to try the 'kick-change'**\
 `Some pitchers who can throw breaking balls but haven't yet found a changeup grip are finding that the kick-change fits their needs.`\
 https://nytimes.com/athletic/6201935/2025/04/02/new-baseball-pitch-kick-change-origins/
-
-**Every time Paul Skenes starts, an entire sport marvels — and also holds its breath**\
-`Skenes has invoked a more complicated reaction than Doc, the D-Train or Fernandomania. In this era of arm injuries, how long can he last?`\
-https://nytimes.com/athletic/6248309/2025/04/02/paul-skenes-pirates-ace-injury-risk/
-
-**Corbin Burnes, the $210-million ace, vs. the Yankees' torpedoes: for now, call it a draw?**\
-`One of the best pitchers in baseball put up a mediocre result against the Yankees, but it would be hard to say it was due to torpedo bats.`\
-https://nytimes.com/athletic/6248653/2025/04/02/corbin-burnes-yankees-diamondbacks-torpedo-bats/
-
-**Mirtle: How do the Maple Leafs measure up to recent Stanley Cup winners?**\
-`Does Toronto profile like a potential Cup contender? Is there a realistic possibility for more than a quick exit in the playoffs?
-`\
-https://nytimes.com/athletic/6248497/2025/04/02/maple-leafs-nhl-stanley-cup-winners/
 
