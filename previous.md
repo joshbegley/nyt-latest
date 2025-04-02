@@ -1,3 +1,11 @@
+**Let Us Help You Find Your Next Book: Fantasy**\
+`Whether you're looking for a classic or the latest and greatest, start here.`\
+https://nytimes.com/interactive/2025/books/fantasy-books.html
+
+**Mark Zuckerberg Lobbies Trump to Settle Antitrust Suit Against Meta**\
+`The Meta chief, who was at the White House on Wednesday, has discussed the case with the president and his aides. A trial is set to start in less than two weeks.`\
+https://nytimes.com/2025/04/02/technology/mark-zuckerberg-trump-meta-antitrust.html
+
 **For Trump, Musk Is a Scapegoat and a Liability. But for Now, He’s Still Useful.**\
 `Elon Musk has become a valuable heat shield for a president who avoids blame at any cost.`\
 https://nytimes.com/2025/04/02/us/politics/trump-musk-wisconsin.html
@@ -18,7 +26,7 @@ https://nytimes.com/2025/04/02/business/media/spotify-advertising.html
 `The iPhone maker spent years trying to move production of some products out of China to avoid tariffs. But now that may not matter.`\
 https://nytimes.com/2025/04/02/technology/trump-tariffs-apple-iphones.html
 
-**The Briefing: Liverpool 1 Everton 0: Jota scores, Jones adapts and should Tarkowski have seen red?**\
+**The Briefing: Liverpool 1 Everton 0 - Jota scores, Jones adapts and should Tarkowski have seen red?**\
 `Gregg Evans and Mark Carey analyse events from Wednesday night's Merseyside derby at Anfield`\
 https://nytimes.com/athletic/6245050/2025/04/02/liverpool-everton-premier-league-result-analysis/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/02/opinion/gaza-hamas-israel.html
 **Excerpts From the Judge’s Order Dropping Charges Against Eric Adams**\
 `Although he granted the federal government’s request to drop the case, the judge harshly criticized its reasoning in seeking the dismissal.`\
 https://nytimes.com/2025/04/02/nyregion/adams-ho-justice-order-quotes.html
-
-**Another Big Law Firm Reaches Agreement With Trump**\
-`Milbank, based in Manhattan, agreed to provide $100 million in pro bono legal services to causes supported by the president and the firm.`\
-https://nytimes.com/2025/04/02/business/trump-law-firms-milbank-deal.html
-
-**Countries Targeted by Trump’s Tariffs May Strike Back at U.S. Services**\
-`Service sectors make up the vast bulk of the American economy, which gives trading partners some clout in trade negotiations.`\
-https://nytimes.com/2025/04/02/business/economy/tariffs-foreign-goods-tariffs-us-services.html
 

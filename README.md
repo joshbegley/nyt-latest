@@ -1,3 +1,19 @@
+**Ralph Holloway, Anthropologist Who Studied Brain’s Evolution, Dies at 90**\
+`It wasn’t the size of human brains that distinguished people from apes, he theorized, but the way they were organized. He found a creative way to prove it.`\
+https://nytimes.com/2025/04/02/science/ralph-holloway-dead.html
+
+**After Briefly Disappearing, TikTok Went Back to Normal. Or Did It?**\
+`TikTok’s future is in limbo as another deadline looms. For some users, nothing has been the same since those 14 hours in January anyway.`\
+https://nytimes.com/2025/04/02/style/tiktok-ban-algorithm-deadline.html
+
+**Political Texts or Scantily Clad Pics? Both.**\
+`Before Wisconsin’s election, a right-wing group rallied for voters’ attention with unauthorized photos of Emily Ratajkowski and a shirtless man holding a dog.`\
+https://nytimes.com/2025/04/02/style/right-wing-group-wisconsin-voting-thirst-traps.html
+
+**Thursday Briefing: Trump’s Global Tariffs**\
+`Plus, David Hockney’s biggest show.`\
+https://nytimes.com/2025/04/02/briefing/trump-tariffs-israel-gaza-musk-tesla-sales.html
+
 **Let Us Help You Find Your Next Book: Fantasy**\
 `Whether you're looking for a classic or the latest and greatest, start here.`\
 https://nytimes.com/interactive/2025/books/fantasy-books.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/04/02/us/politics/covenant-school-shooting-report-nashv
 **Spotify Sells Itself to Advertisers as ‘Nutritional’**\
 `After finally achieving profitability, the streaming platform wants to be a healthy alternative to “doom scrolling.”`\
 https://nytimes.com/2025/04/02/business/media/spotify-advertising.html
-
-**Trump’s New Tariffs Test Apple’s Global Supply Chain**\
-`The iPhone maker spent years trying to move production of some products out of China to avoid tariffs. But now that may not matter.`\
-https://nytimes.com/2025/04/02/technology/trump-tariffs-apple-iphones.html
-
-**The Briefing: Liverpool 1 Everton 0 - Jota scores, Jones adapts and should Tarkowski have seen red?**\
-`Gregg Evans and Mark Carey analyse events from Wednesday night's Merseyside derby at Anfield`\
-https://nytimes.com/athletic/6245050/2025/04/02/liverpool-everton-premier-league-result-analysis/
-
-**In Gaza, ‘How Do You Heal a Scarred Soul?’**\
-`Protests against Hamas are encouraging, but prolonged and unnecessary killing still seems likely.`\
-https://nytimes.com/2025/04/02/opinion/gaza-hamas-israel.html
-
-**Excerpts From the Judge’s Order Dropping Charges Against Eric Adams**\
-`Although he granted the federal government’s request to drop the case, the judge harshly criticized its reasoning in seeking the dismissal.`\
-https://nytimes.com/2025/04/02/nyregion/adams-ho-justice-order-quotes.html
 
