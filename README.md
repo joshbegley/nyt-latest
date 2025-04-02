@@ -1,3 +1,11 @@
+**Nintendo Switch 2 Will Release in June and Emphasize Streaming**\
+`The company said Mario Kart World would be part of the new console’s initial game lineup, also sharing details on its technical upgrades.`\
+https://nytimes.com/2025/04/02/business/nintendo-switch-2.html
+
+**A Nail Art Neophyte Sits Down With a Manicurist**\
+`I didn’t know a topcoat from a base coat. But writing about an unfamiliar subject made me a better reporter.`\
+https://nytimes.com/2025/04/02/insider/mei-kawajiri-nails.html
+
 **Elon Musk Made an Election About Him and Wisconsin Said, ‘No, Thanks’**\
 `Republicans would be wise to seize the moment while this failure is raw to remind Donald Trump what a political loser his buddy is turning out to be.`\
 https://nytimes.com/2025/04/02/opinion/wisconsin-florida-special-election-results-democrats.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/02/us/politics/susan-crawford-wisconsin-supreme-cour
 **TNT Sports hires Andre Agassi for French Open coverage**\
 `Agassi, 54, won the French Open in 1999.`\
 https://nytimes.com/athletic/6249422/2025/04/02/tnt-sports-alex-agassi-french-open/
-
-**La Liga question Barcelona's financing of Olmo, Victor registrations**\
-`The league has questioned whether the sale of VIP seating to Middle Eastern investors was properly accounted for.`\
-https://nytimes.com/athletic/6249365/2025/04/02/barcelona-olmo-victor-la-liga-statement/
-
-**What does it feel like to face Jokić on a 61-point night? 'Bruh, oh my God'**\
-`"He might be the best basketball player I’ve ever seen close up," Timberwolves star Anthony Edwards said.`\
-https://nytimes.com/athletic/6248428/2025/04/02/nikola-jokic-61-point-triple-double/
 
