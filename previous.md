@@ -1,3 +1,7 @@
+**How Nebraska's new DC plans to help Huskers get their swag back**\
+`John Butler's promotion might be the most overlooked move at Nebraska, and also its most consequential.`\
+https://nytimes.com/athletic/6250211/2025/04/02/nebraska-football-john-butler-defense/
+
 **Americans’ Reaction to Trump’s Tariffs Vary From Worried to Enthused**\
 `Critics warned that the levies could fuel inflation and slow economic growth, while those who supported the move said it was long overdue.`\
 https://nytimes.com/2025/04/02/business/economy/trump-tariffs-us-business-groups-response.html
@@ -7,7 +11,7 @@ https://nytimes.com/2025/04/02/business/economy/trump-tariffs-us-business-groups
 https://nytimes.com/2025/04/02/world/middleeast/gaza-aid-workers-gunshot-wounds.html
 
 **Republicans Plan to Skirt Senate Rules to Push Through More Tax Cuts**\
-`Senate G.O.P. leaders are planning to use what is known as the “nuclear option” to steer around the Senate’s in-house referee and allow the use of a gimmick that makes trillions of dollars in tax cuts appear to be free.`\
+`G.O.P. leaders are planning to use the “nuclear option” to steer around the Senate’s in-house referee and allow the use of a gimmick that makes trillions of dollars in tax cuts appear to be free.`\
 https://nytimes.com/2025/04/02/us/politics/republicans-senate-rules-tax-cuts.html
 
 **Reds looking for early answers at the plate and in the bullpen: 3 takeaways**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/02/us/politics/actblue-house-investigation.html
 **Trump Announces Tariffs on Global Trading Partners**\
 `During a news conference, President Trump announced that he would impose a baseline 10 percent tariff on all trading partners, as well as double-digit “reciprocal tariffs” on dozens of other countries.`\
 https://nytimes.com/video/business/100000010088408/trump-new-tariffs.html
-
-**Coal Plant Ranked as Nation’s Dirtiest Asks for Pollution Exemption**\
-`The facility, in Colstrip, Mont., used a new E.P.A. system for requesting special waivers from President Trump.`\
-https://nytimes.com/2025/04/02/climate/coal-plant-colstrip-epa-email-pollution-exemption.html
 

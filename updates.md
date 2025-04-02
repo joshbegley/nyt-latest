@@ -1,3 +1,11 @@
+**How Nebraska's new DC plans to help Huskers get their swag back**\
+`John Butler's promotion might be the most overlooked move at Nebraska, and also its most consequential.`\
+https://nytimes.com/athletic/6250211/2025/04/02/nebraska-football-john-butler-defense/
+
+**Republicans Plan to Skirt Senate Rules to Push Through More Tax Cuts**\
+`G.O.P. leaders are planning to use the “nuclear option” to steer around the Senate’s in-house referee and allow the use of a gimmick that makes trillions of dollars in tax cuts appear to be free.`\
+https://nytimes.com/2025/04/02/us/politics/republicans-senate-rules-tax-cuts.html
+
 **Americans’ Reaction to Trump’s Tariffs Vary From Worried to Enthused**\
 `Critics warned that the levies could fuel inflation and slow economic growth, while those who supported the move said it was long overdue.`\
 https://nytimes.com/2025/04/02/business/economy/trump-tariffs-us-business-groups-response.html
