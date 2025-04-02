@@ -1,3 +1,11 @@
+**Drance: Why it's hard to make sense of a likely squandered Canucks season**\
+`With eight games remaining, the Canucks' playoff odds are on life support with not enough time to build a new identity.`\
+https://nytimes.com/athletic/6246237/2025/04/02/canucks-nhl-2024-25-season/
+
+**The Bounce: Steph Curry adds to list of legendary games. Plus, revisiting bad preseason predictions**\
+`Steph Curry and Nikola Jokić had all-time performances on Tuesday. Zach Harper examines their greatness and revisits preseason predictions.`\
+https://nytimes.com/athletic/6249462/2025/04/02/steph-curry-nikola-jokic-warriors-nuggets-nba-the-bounce/
+
 **Read the ruling dismissing corruption charges against Eric Adams**\
 `Read Judge Dale Ho’s decision dismissing the charges against Eric Adams, the mayor of New York City, with prejudice.`\
 https://nytimes.com/interactive/2025/04/02/nyregion/adams-charges-dismissed-ruling.html
