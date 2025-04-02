@@ -1,3 +1,7 @@
+**Republicans Invoke Newsom in a Hearing on Transgender Sports**\
+`California Democrats rejected two Republican bills that would have banned transgender athletes from female sports. In a rare turn, Republicans tried to use the Democratic governor’s own words to challenge Democrats.`\
+https://nytimes.com/2025/04/01/us/politics/republicans-invoke-newsom-in-a-hearing-on-transgender-sports.html
+
 **Some Conservative Voices Raise Alarm Over Trump’s Immigration Tactics**\
 `The cracks in support show how seriously some conservatives are taking the administration’s aggressive and at times slapdash tactics.`\
 https://nytimes.com/2025/04/01/us/politics/trump-immigration-joe-rogan-conservatives.html
@@ -6,8 +10,8 @@ https://nytimes.com/2025/04/01/us/politics/trump-immigration-joe-rogan-conservat
 `The Washington Capitals superstar continues to close in on Gretzky’s longstanding record of 894 career NHL goals.`\
 https://nytimes.com/athletic/6245458/2025/04/01/ovechkin-goals-record-gretzky-891/
 
-**Randy Fine, a State Senator, Wins a House Seat in Florida, Adding to the G.O.P. Majority.**\
-`Randy Fine, a state senator, won a special election to replace Michael Waltz of Florida, who is now Trump’s national security adviser.`\
+**G.O.P. Bolsters House Majority by Retaining Two Seats in Florida**\
+`The Republicans who were elected on Tuesday to fill seats left empty by Matt Gaetz and Michael Waltz had President Trump’s backing.`\
 https://nytimes.com/2025/04/01/us/politics/florida-special-election-winner.html
 
 **If New York Puts a Casino in the Bronx, Trump Will Get $115 Million**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/01/arts/trump-doge-federal-cuts-humanities.html
 **Packers president Mark Murphy explains why they want the 'tush push' banned**\
 `Murphy first cited safety concerns, but there isn't much data to back up the conclusion that the tush push is an elevated safety risk.`\
 https://nytimes.com/athletic/6248189/2025/04/01/packers-mark-murphy-tush-push/
-
-**Transportation Dept. Renews Voluntary Buyouts for Work Force**\
-`The department said it was offering a second wave of buyouts to accommodate employees who may have declined the initial offer because of confusing messages.`\
-https://nytimes.com/2025/04/01/us/politics/trump-buyouts-us-transportation-department.html
 
