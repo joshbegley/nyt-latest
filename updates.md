@@ -1,3 +1,7 @@
+**Amazon Said to Make a Bid to Buy TikTok in the U.S.**\
+`The e-commerce giant put in a last-minute offer for the popular video app, according to three people familiar with the talks. TikTok faces a Saturday deadline to change its ownership structure.`\
+https://nytimes.com/2025/04/02/business/media/amazon-tiktok-bid.html
+
 **The Windup: Explaining the new 'kick-change' pitch**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6248855/2025/04/02/mlb-pitch-type-kick-change-the-windup/
