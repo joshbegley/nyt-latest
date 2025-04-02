@@ -1,3 +1,7 @@
+**Fan who used hateful language toward Barba Banda banned by Gotham FC**\
+`The fan in question was found to have violated the NWSL Fan Code of Conduct.`\
+https://nytimes.com/athletic/6250280/2025/04/02/nwsl-gotham-barba-banda-fan-hateful/
+
 **N.Y.U. Cancels Doctor’s Speech at the Last Minute, Citing Anti-Government Tone**\
 `Dr. Joanne Liu, an N.Y.U. graduate, said the cancellation of her presentation on humanitarian crises was a sign of the climate of fear at U.S. universities.`\
 https://nytimes.com/2025/04/02/nyregion/nyu-doctor-speech-canceled.html
