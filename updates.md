@@ -1,3 +1,11 @@
+**The Pulse: Wait, Nikola Jokić did what?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6248415/2025/04/02/nikola-jokic-triple-double-the-pulse/
+
+**How losses in Dallas and Paris are driving SGA to a historic season**\
+`The MVP front-runner thinks defeats have given him the proper perspective to chase a title: "Nothing in life is promised."`\
+https://nytimes.com/athletic/6247796/2025/04/02/shai-gilgeous-alexander-oklahoma-city-thunder-mvp-playoffs-nba/
+
 **Could the Browns be tanking for Arch Manning? NFL execs debate**\
 `The Browns, who were previously cleared of tanking allegations raise by Hue Jackson, have done little at QB and don't have many options.`\
 https://nytimes.com/athletic/6248168/2025/04/02/browns-tanking-nfl-draft-arch-manning/

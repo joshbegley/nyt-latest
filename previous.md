@@ -1,3 +1,11 @@
+**The Pulse: Wait, Nikola Jokić did what?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6248415/2025/04/02/nikola-jokic-triple-double-the-pulse/
+
+**How losses in Dallas and Paris are driving SGA to a historic season**\
+`The MVP front-runner thinks defeats have given him the proper perspective to chase a title: "Nothing in life is promised."`\
+https://nytimes.com/athletic/6247796/2025/04/02/shai-gilgeous-alexander-oklahoma-city-thunder-mvp-playoffs-nba/
+
 **Could the Browns be tanking for Arch Manning? NFL execs debate**\
 `The Browns, who were previously cleared of tanking allegations raise by Hue Jackson, have done little at QB and don't have many options.`\
 https://nytimes.com/athletic/6248168/2025/04/02/browns-tanking-nfl-draft-arch-manning/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6247859/2025/04/02/march-madness-transfers-johni-br
 **How two of the Canadiens’ exceptional brains converged to earn a critical win**\
 `Nick Suzuki and Lane Hutson are two of the Canadiens' smartest players, and their brains conspired to get their team a massive win.`\
 https://nytimes.com/athletic/6248975/2025/04/02/canadiens-panthers-suzuki-hutson/
-
-**Shen Yun: The Dark Side of a Dance Troupe**\
-`What a Times investigation has found about abusive conditions at the secretive enterprise.`\
-https://nytimes.com/2025/04/02/podcasts/the-daily/shen-yun-dance-billboards.html
-
-**Democrats Get a Boost, and a Deportation ‘Error’**\
-`Plus, Val Kilmer’s legacy.`\
-https://nytimes.com/2025/04/02/podcasts/the-headlines/wisonsin-florida-mistaken-deportation-mangione-kilmer.html
 
