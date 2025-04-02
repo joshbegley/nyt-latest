@@ -1,3 +1,7 @@
+**American exporters had been vying to shape Trump’s trade agenda.**\
+`By Ana Swanson`\
+https://nytimes.com/live/2025/04/02/business/trump-tariffs-liberation-day/american-exporters-had-been-vying-to-shape-trumps-trade-agenda
+
 **Trey Hendrickson: Executive's comments ‘disappointing’ amid contract talks**\
 `The star edge rusher took to the media to address his frustrations with comments by a Cincinnati executive at the annual league meeting.`\
 https://nytimes.com/athletic/6250397/2025/04/02/trey-hendrickson-bengals-frustration-contract-talks/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/02/well/cory-booker-senate-speech-prep.html
 **NBA investigating Ja Morant's apparent gun gesture toward Warriors: Source**\
 `Grizzlies star has a history with gun-related incidents in recent years, all of which led to a 25-game league suspension in Dec. of 2023.`\
 https://nytimes.com/athletic/6250334/2025/04/02/ja-morant-grizzlies-warriors-finger-guns-nba/
-
-**Red Sox, Kristian Campbell agree to 8-year, $60 million deal: Source**\
-`The extension for the 22-year-old runs through 2032 with options for 2033 and 2034.`\
-https://nytimes.com/athletic/6250282/2025/04/02/red-sox-kristian-campbell-contract-extension/
 

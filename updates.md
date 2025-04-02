@@ -1,3 +1,7 @@
+**American exporters had been vying to shape Trump’s trade agenda.**\
+`By Ana Swanson`\
+https://nytimes.com/live/2025/04/02/business/trump-tariffs-liberation-day/american-exporters-had-been-vying-to-shape-trumps-trade-agenda
+
 **Trey Hendrickson: Executive's comments ‘disappointing’ amid contract talks**\
 `The star edge rusher took to the media to address his frustrations with comments by a Cincinnati executive at the annual league meeting.`\
 https://nytimes.com/athletic/6250397/2025/04/02/trey-hendrickson-bengals-frustration-contract-talks/
