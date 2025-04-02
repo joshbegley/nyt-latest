@@ -1,3 +1,7 @@
+**How to watch Knicks at Cavaliers as Karl-Anthony Towns faces Cleveland's top-tier bigs**\
+`The East-leading Cleveland Cavaliers host the New York Knicks as solid favorites on Wednesday. The game is on national TV via ESPN.`\
+https://nytimes.com/athletic/6245161/2025/04/02/knicks-cavaliers-nba-how-to-watch/
+
 **President Trump’s Tariff Plans**\
 `Plus, we cover election results from Wisconsin and Florida.`\
 https://nytimes.com/2025/04/02/briefing/tariff-plans-wisconsin-florida-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6230135/2025/04/02/nfl-draft-2025-tyler-warren-cols
 **From Don Imus to Pat McAfee, talk show hosts face consequences of the digital world: Marchand**\
 `Nearly two decades after Don Imus, the talk show game is the same, but the world around it has changed.`\
 https://nytimes.com/athletic/6248023/2025/04/02/don-imus-pat-mcafee-espn-ole-miss-student/
-
-**Looking for a March Cinderella story? Check the transfer portal**\
-`The pendulum has swung hard toward player empowerment when it comes to transfer rules, and the results aren't all bad for basketball fans.`\
-https://nytimes.com/athletic/6247859/2025/04/02/march-madness-transfers-johni-broome-walter-clayton/
 
