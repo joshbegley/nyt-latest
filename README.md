@@ -1,3 +1,11 @@
+**The Cory Booker Endurance Test**\
+`What happens to your body when you deliver a 25-hour speech without any breaks?`\
+https://nytimes.com/2025/04/02/well/cory-booker-senate-speech-prep.html
+
+**NBA investigating Ja Morant's apparent gun gesture toward Warriors: Source**\
+`Grizzlies star has a history with gun-related incidents in recent years, all of which led to a 25-game league suspension in Dec. of 2023.`\
+https://nytimes.com/athletic/6250334/2025/04/02/ja-morant-grizzlies-warriors-finger-guns-nba/
+
 **Red Sox, Kristian Campbell agree to 8-year, $60 million deal: Source**\
 `The extension for the 22-year-old runs through 2032 with options for 2033 and 2034.`\
 https://nytimes.com/athletic/6250282/2025/04/02/red-sox-kristian-campbell-contract-extension/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6250246/2025/04/02/bears-george-mccaskey-succession
 **Trump Media Refiles to Register the President’s Shares, Worth $2 Billion, for Sale**\
 `President Trump’s shares of the company have been held in a trust since he won the election last year. The stock has plunged 40 percent this year.`\
 https://nytimes.com/2025/04/02/business/trump-media-shares.html
-
-**Dodgers acquire Esteury Ruiz, former AL stolen-base leader, in trade with A's**\
-`The speedy 26-year-old outfielder swiped 67 bases in 132 games two seasons ago.`\
-https://nytimes.com/athletic/6250199/2025/04/02/dodgers-athletics-trade-esteury-ruiz/
-
-**What’s in Our Queue? ‘A Man on the Inside’ and More **\
-`Text by Heather Knight`\
-https://nytimes.com/card/2025/04/02/arts/editors-recommendations-maninside
 
