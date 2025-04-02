@@ -1,3 +1,7 @@
+**C.D.C. Cuts Threaten to Set Back the Nation’s Health, Critics Say**\
+`The reorganization that began on Tuesday will scale back an agency that has been a public health model around the world.`\
+https://nytimes.com/2025/04/02/health/cdc-layoffs-kennedy.html
+
 **Digging in Against Proxy Voting, Johnson Exposes His Weak Hold on the House**\
 `The Republican speaker, who has mostly wielded power by relying on the threat of retribution from President Trump, has chosen an institutional fight it’s not clear he can win.`\
 https://nytimes.com/2025/04/02/us/politics/proxy-voting-johnson-house-republicans.html

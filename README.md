@@ -1,3 +1,7 @@
+**Judge denies Phillies' request for restraining order in case against analytics company**\
+`The Phillies failed to "show that its claims of injury were anything but entirely speculative," the judge wrote, in siding with Teamworks.`\
+https://nytimes.com/athletic/6250439/2025/04/02/phillies-teamworks-lawsuit-restraining-order/
+
 **C.D.C. Cuts Threaten to Set Back the Nation’s Health, Critics Say**\
 `The reorganization that began on Tuesday will scale back an agency that has been a public health model around the world.`\
 https://nytimes.com/2025/04/02/health/cdc-layoffs-kennedy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/02/us/politics/trump-doj-pick-woodward.html
 **American exporters had been vying to shape Trump’s trade agenda.**\
 `By Ana Swanson`\
 https://nytimes.com/live/2025/04/02/business/trump-tariffs-liberation-day/american-exporters-had-been-vying-to-shape-trumps-trade-agenda
-
-**Trey Hendrickson: Executive's comments ‘disappointing’ amid contract talks**\
-`The star edge rusher took to the media to address his frustrations with comments by a Cincinnati executive at the annual league meeting.`\
-https://nytimes.com/athletic/6250397/2025/04/02/trey-hendrickson-bengals-frustration-contract-talks/
 
