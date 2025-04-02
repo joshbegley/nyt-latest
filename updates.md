@@ -1,3 +1,23 @@
+**Mallory McMorrow Enters Michigan Senate Race**\
+`The 38-year-old Democratic state lawmaker says that her party needs a generational shift.`\
+https://nytimes.com/2025/04/02/us/politics/michigan-senate-democrats-mallory-mcmorrow.html
+
+**Ghana, Nigeria, Jamaica, Trinidad & Tobago to compete in soccer tournament in London**\
+`The Ghana Football Association (GFA) confirmed on Wednesday that the four nations will play in the Unity Cup in late May.`\
+https://nytimes.com/athletic/6249819/2025/04/02/ghana-nigeria-jamaica-trinidad-london-tournament/
+
+**Supreme Court Rules Against Makers of Flavored Vapes Popular With Teens**\
+`The justices said the Food and Drug Administration had acted lawfully in rejecting applications from makers of flavored liquids used in e-cigarettes.`\
+https://nytimes.com/2025/04/02/us/supreme-court-flavored-vapes.html
+
+**Shingles Vaccine Can Decrease Risk of Dementia, Study Finds**\
+`A growing body of research suggests that preventing the viral infection can help stave off cognitive decline.`\
+https://nytimes.com/2025/04/02/health/shingles-vaccine-dementia.html
+
+**How a Black Progressive Transformed Into a Conservative Star**\
+`Xaviaer DuRousseau once marched in Black Lives Matter protests. Then he started watching PragerU videos — and they resonated with him.`\
+https://nytimes.com/2025/04/02/us/politics/how-a-black-progressive-transformed-into-a-conservative-star.html
+
 **Two Beautiful Spring Recipes From Meghan, Duchess of Sussex**\
 `Her spring garden pasta salad and layered vanilla pudding are simple yet stylish.`\
 https://nytimes.com/2025/04/02/dining/spring-recipes-meghan-duchess-of-sussex.html
