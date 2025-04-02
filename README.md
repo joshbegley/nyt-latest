@@ -1,3 +1,11 @@
+**La Liga question Barcelona's financing of Olmo, Victor registrations**\
+`The league has questioned whether the sale of VIP seating to Middle Eastern investors was properly accounted for.`\
+https://nytimes.com/athletic/6249365/2025/04/02/barcelona-olmo-victor-la-liga-statement/
+
+**'Bruh, oh my God': What does it feel like to take on Nikola Jokić on a historic night?**\
+`"He might be the best basketball player I’ve ever seen close up," Timberwolves star Anthony Edwards said.`\
+https://nytimes.com/athletic/6248428/2025/04/02/nikola-jokic-61-point-triple-double/
+
 **Stephen Curry’s epic performance illustrates Grizzlies’ downward spiral on defense**\
 `The Grizzlies’ flaws on the defensive end have left them reeling over the past few weeks and came back to bite them again.`\
 https://nytimes.com/athletic/6248990/2025/04/02/grizzlies-loss-defense-stephen-curry/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6248076/2025/04/02/raiders-mark-davis-tom-brady-pet
 **Trump Administration Live Updates: President and Top Aides to Discuss TikTok’s Future**\
 ``\
 https://nytimes.com/live/2025/04/02/us/trump-news
-
-**Why Blackhawks' Foligno obsessively works to plant a garden he'll likely never see bloom**\
-`Foligno could be a mercenary chasing the Stanley Cup. Instead, he chose to be a part of one of the NHL's worst teams.`\
-https://nytimes.com/athletic/6247772/2025/04/02/blackhawks-captain-nick-foligno/
-
-**Why Auburn freshman Tahaad Pettiford was built for March**\
-`If everything is indeed bigger in Texas for the Final Four, Pettiford should fit right in.`\
-https://nytimes.com/athletic/6247935/2025/04/02/tahaad-pettiford-auburn-march-madness-freshman-basketball/
 
