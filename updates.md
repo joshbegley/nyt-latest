@@ -1,3 +1,7 @@
+**Fire Briefly Disrupts Heathrow Airport Train Service**\
+`Trains linking Paddington Station with Heathrow’s Terminal 5 may be canceled or face delays of up to 30 minutes.`\
+https://nytimes.com/2025/04/02/world/europe/heathrow-train-fire.html
+
 **Wrexham manager Parkinson has made unpopular calls - but he is being proved right**\
 `He has benefited from financial resources most of his peers do not, but with the role has come much scrutiny and criticism.`\
 https://nytimes.com/athletic/6243819/2025/04/02/wrexham-tactics-phil-parkinson/
