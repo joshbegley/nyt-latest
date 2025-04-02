@@ -1,3 +1,11 @@
+**Val Kilmer Brought a Wonderfully Weird Sensibility to Every Role**\
+`Even his choice of parts could be eccentric. In the end, he’s best thought of as a character actor trapped in a leading man’s body.`\
+https://nytimes.com/2025/04/02/movies/val-kilmer-career.html
+
+**Trump’s Fight Against Antisemitism Has Become Fraught for Many Jews**\
+`American Jews have watched with both alarm and enthusiasm as strong-arm tactics, including arrests of activists, have been deployed in their name.`\
+https://nytimes.com/2025/04/02/us/jews-trump.html
+
 **Senators Denounce Trump Administration’s Response to Myanmar Quake**\
 `Democratic senators said in a letter that the administration was failing its first test of humanitarian aid as China and Russia send teams to help.`\
 https://nytimes.com/2025/04/02/us/politics/trump-aid-myanmar-earthquake.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6250280/2025/04/02/nwsl-gotham-barba-banda-fan-hate
 **N.Y.U. Cancels Doctor’s Speech at the Last Minute, Citing Anti-Government Tone**\
 `Dr. Joanne Liu, an N.Y.U. graduate, said the cancellation of her presentation on humanitarian crises was a sign of the climate of fear at U.S. universities.`\
 https://nytimes.com/2025/04/02/nyregion/nyu-doctor-speech-canceled.html
-
-**‘A Minecraft Movie’ Review: Block by Bizarre Block**\
-`Jack Black and Jason Momoa star in this adaptation of the megahit video game that leans into the mindless silliness of mid-aughts comedy.`\
-https://nytimes.com/2025/04/02/movies/a-minecraft-movie-review.html
-
-**Companies rushed to import goods ahead of the tariffs. Here’s what that looked like.**\
-`By Peter Eavis`\
-https://nytimes.com/live/2025/04/02/business/trump-tariffs-liberation-day/companies-rushed-to-import-goods-ahead-of-the-tariffs-heres-what-that-looked-like
 

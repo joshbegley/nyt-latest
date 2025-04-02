@@ -1,3 +1,7 @@
+**Inside the C.D.C., a Final ‘Love Letter’ Before Mass Layoffs**\
+`The agency’s injury center was among the departments that were largely gutted in Tuesday’s wave of dismissals. Read a staff member’s letter to colleagues while they awaited their fates.`\
+https://nytimes.com/2025/04/02/health/cdc-layoffs-response.html
+
 **Val Kilmer Brought a Wonderfully Weird Sensibility to Every Role**\
 `Even his choice of parts could be eccentric. In the end, he’s best thought of as a character actor trapped in a leading man’s body.`\
 https://nytimes.com/2025/04/02/movies/val-kilmer-career.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/04/02/business/trump-tariffs-liberation-day/trumps
 **Fan who used hateful language toward Barba Banda banned by Gotham FC**\
 `The fan in question was found to have violated the NWSL Fan Code of Conduct.`\
 https://nytimes.com/athletic/6250280/2025/04/02/nwsl-gotham-barba-banda-fan-hateful/
-
-**N.Y.U. Cancels Doctor’s Speech at the Last Minute, Citing Anti-Government Tone**\
-`Dr. Joanne Liu, an N.Y.U. graduate, said the cancellation of her presentation on humanitarian crises was a sign of the climate of fear at U.S. universities.`\
-https://nytimes.com/2025/04/02/nyregion/nyu-doctor-speech-canceled.html
 
