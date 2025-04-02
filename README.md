@@ -1,3 +1,19 @@
+**The Athletic FC: Where is Messi's bodyguard? Elanga hits fast-forward on Forest's Euro hopes**\
+`Today in TAFC: The mystery surrounding Messi's bodyguard, Elanga's lightning run and goal, Southampton looking to avoid an unwanted record.`\
+https://nytimes.com/athletic/6249175/2025/04/02/messi-bodyguard-logan-paul-forest-elanga-goal-man-utd/
+
+**Heathrow Was Warned of Power Supply Vulnerabilities, Airlines Advocate Says**\
+`The official told a parliamentary committee that he had raised concerns about the resilience of Heathrow’s electricity supply just days before a fire forced the airport to shut down.`\
+https://nytimes.com/2025/04/02/world/europe/heathrow-airport-power-outage-substation.html
+
+**Federal Judge Orders Legal Funds for Migrant Children to Be Restored**\
+`The restoration, which is temporary, came after nonprofit groups challenged the government’s decision to cut funding for legal services for unaccompanied children arriving in the United States.`\
+https://nytimes.com/2025/04/02/us/politics/trump-legal-funds-migrant-children-judge-order.html
+
+**Curry erupts for 52 points as Warriors win in Memphis to grab fifth seed**\
+`Curry's haul helped give the Warriors a big win and the inside track to escape the dreaded Play-In Tournament bracket.`\
+https://nytimes.com/athletic/6248392/2025/04/02/steph-curry-points-warriors-grizzlies/
+
 **Anthony Elanga is versatile, technical and selfless - the epitome of this new Nottingham Forest**\
 `The Swedish winger is at home in Nuno Espirito Santo's unashamedly counter-attacking side, regardless of which position he plays`\
 https://nytimes.com/athletic/6249143/2025/04/02/elanga-forest-versatility/
@@ -22,20 +38,4 @@ https://nytimes.com/athletic/6248497/2025/04/02/maple-leafs-nhl-stanley-cup-winn
 **A question of control: Coach and team rules and the next big NCAA case**\
 `There are many layers to the college athlete-employment debate, enough for a college thesis. Control is just one of them.`\
 https://nytimes.com/athletic/6235993/2025/04/02/ncaa-rules-johnson-case-coach/
-
-**Greenberg: Your Chicago Bulls are a postseason team once again … kind of**\
-`If the standings stay the same, the Bulls will play the Miami Heat for the third straight year, this time in the first Play-In game.`\
-https://nytimes.com/athletic/6248690/2025/04/02/chicago-bulls-clinch-play-in-tournament/
-
-**Buckley: With Garrett Crochet secured, Red Sox and Craig Breslow aim for sustained success**\
-`Despite their sluggish 1-4 start, the 2025 Red Sox are capable of big things. Boston's fans should have that annual expectation.`\
-https://nytimes.com/athletic/6248385/2025/04/02/red-sox-garrett-crochet-craig-breslow/
-
-**A brief history of the NHL’s weirdest honor: The Second-Team All-Star goalie**\
-`Some unexpected names throughout history have had the honor of being named the league’s second-best goaltender.`\
-https://nytimes.com/athletic/6245774/2025/04/02/nhl-all-star-second-team-goalie/
-
-**Olivia Miles' transfer portal entrance highlights power shift in women's basketball**\
-`The balance of power is shifting, and colleges and WNBA teams are now at the mercy of the players.`\
-https://nytimes.com/athletic/6248666/2025/04/02/olivia-miles-transfer-portal-womens-basketball-wnba/
 
