@@ -1,3 +1,19 @@
+**Scoop City: Rule changes from the NFL's league meetings**\
+`Inside: Pro day risers, a draft fact from Dane Brugler and why the Eagles can still run the tush push for now, plus new rule changes.`\
+https://nytimes.com/athletic/6249935/2025/04/02/nfl-league-meeting-rule-changes-tush-push-scoop-city/
+
+**Takeaways from the fantasy basketball season: Minutes are gold, depth matters and more**\
+`Stan Son looks back at the fantasy basketball season, his countless leagues and extracts valuable lessons. `\
+https://nytimes.com/athletic/6249556/2025/04/02/lessons-learned-fantasy-basketball-2024/
+
+**MoneyCall: The sports innovation of the year**\
+`Welcome to MoneyCall, The Athletic's sports business newsletter. `\
+https://nytimes.com/athletic/6248685/2025/04/02/mlb-torpedo-bats-innovation-moneycall-newsletter/
+
+**The Rush to Import Goods Ahead of Trump’s Tariffs **\
+`Imports have surged recently as businesses seek to bring in more goods before President Trump imposes higher levies on goods from Mexico, Canada and other countries.`\
+https://nytimes.com/card/2025/04/02/business/tariffs-shipping-trump
+
 **Bears shift focus on new stadium location to Arlington Heights; downtown still in play**\
 `After a year of talk about building a new stadium on the museum campus downtown, the Bears are shifting focus back to Arlington Heights.`\
 https://nytimes.com/athletic/6249799/2025/04/02/bears-stadium-arlington-heights-shift/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/04/02/us/supreme-court-flavored-vapes.html
 **Shingles Vaccine Can Decrease Risk of Dementia, Study Finds**\
 `A growing body of research suggests that preventing the viral infection can help stave off cognitive decline.`\
 https://nytimes.com/2025/04/02/health/shingles-vaccine-dementia.html
-
-**How a Black Progressive Transformed Into a Conservative Star**\
-`Xaviaer DuRousseau once marched in Black Lives Matter protests. Then he started watching PragerU videos — and they resonated with him.`\
-https://nytimes.com/2025/04/02/us/politics/how-a-black-progressive-transformed-into-a-conservative-star.html
-
-**Two Beautiful Spring Recipes From Meghan, Duchess of Sussex**\
-`Her spring garden pasta salad and layered vanilla pudding are simple yet stylish.`\
-https://nytimes.com/2025/04/02/dining/spring-recipes-meghan-duchess-of-sussex.html
-
-**How Trump Could Make Larry Ellison the Next Media Mogul**\
-`The co-founder of Oracle and friend of President Trump, who was a flamboyant fixture in the 1990s, has returned to the spotlight through — of all things — TikTok.`\
-https://nytimes.com/2025/04/02/technology/trump-larry-ellison-tiktok-oracle.html
-
-**Desperation Grows in Gaza as U.N. Shutters Bakeries**\
-`Anxious residents rushed to obtain bags of flour as the United Nations warned that Israeli restrictions on aid deliveries were deepening the humanitarian crisis.`\
-https://nytimes.com/2025/04/02/world/middleeast/un-aid-gaza-world-food-program.html
 
