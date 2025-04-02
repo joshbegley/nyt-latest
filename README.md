@@ -1,3 +1,7 @@
+**How Casey Mize reclaimed his splitter and reasserted himself in the Tigers rotation**\
+`Mize held the Mariners scoreless over 5 2/3 innings with a well-rounded arsenal boosted by the return of his splitter.`\
+https://nytimes.com/athletic/6248937/2025/04/02/casey-mize-tigers/
+
 **Dustin May excels in return to the mound for first MLB game for Dodgers in 22 months**\
 `After staring down death, May embraced being back and pitched with that perspective.`\
 https://nytimes.com/athletic/6248944/2025/04/02/dodgers-win-dustin-may-returns/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6247051/2025/04/02/george-russell-max-verstappen-me
 **Word of the Day: rapprochement**\
 `This word has appeared in 77 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/04/02/learning/word-of-the-day-rapprochement.html
-
-**Saka's return breathes life back into Arsenal**\
-`This was the moment Arsenal fans had been waiting for and Bukayo Saka did not disappoint.`\
-https://nytimes.com/athletic/6248343/2025/04/02/arsenal-bukayo-saka-return/
 
