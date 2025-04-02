@@ -7,7 +7,7 @@ https://nytimes.com/2025/04/01/us/politics/republicans-invoke-newsom-in-a-hearin
 https://nytimes.com/2025/04/01/us/politics/trump-immigration-joe-rogan-conservatives.html
 
 **Alex Ovechkin 4 goals from breaking Wayne Gretzky's record with No. 891**\
-`The Washington Capitals superstar continues to close in on Gretzky’s longstanding record of 894 career NHL goals.`\
+`The Washington Capitals superstar continues to close in on Gretzky’s long-standing record of 894 career NHL goals.`\
 https://nytimes.com/athletic/6245458/2025/04/01/ovechkin-goals-record-gretzky-891/
 
 **G.O.P. Bolsters House Majority by Retaining Two Seats in Florida**\
