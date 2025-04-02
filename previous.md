@@ -1,7 +1,3 @@
-**Some Conservative Voices Raise Alarm Over Trump’s Immigration Tactics**\
-`The cracks in support show how seriously some conservatives are taking the administration’s aggressive and at times slapdash tactics.`\
-https://nytimes.com/2025/04/01/us/politics/trump-immigration-joe-rogan-conservatives.html
-
 **Alex Ovechkin 4 goals from breaking Wayne Gretzky's record with No. 891**\
 `The Washington Capitals superstar continues to close in on Gretzky’s longstanding record of 894 career NHL goals.`\
 https://nytimes.com/athletic/6245458/2025/04/01/ovechkin-goals-record-gretzky-891/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6248189/2025/04/01/packers-mark-murphy-tush-push/
 **Transportation Dept. Renews Voluntary Buyouts for Work Force**\
 `The department said it was offering a second wave of buyouts to accommodate employees who may have declined the initial offer because of confusing messages.`\
 https://nytimes.com/2025/04/01/us/politics/trump-buyouts-us-transportation-department.html
+
+**He Got Clemency From Trump. Now He’s Facing Charges of Injuring a Child.**\
+`Jonathan Braun, who has had a string of legal issues since President Trump commuted his drug sentence four years ago, was arrested after allegedly punching an acquaintance and shoving a 3-year-old.`\
+https://nytimes.com/2025/04/01/us/politics/jonathan-braun-trump-pardons-arrests.html
 
