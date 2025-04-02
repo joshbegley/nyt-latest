@@ -1,3 +1,15 @@
+**TNT Sports hires Andre Agassi for French Open coverage**\
+`Agassi, 54, won the French Open in 1999.`\
+https://nytimes.com/athletic/6249422/2025/04/02/tnt-sports-alex-agassi-french-open/
+
+**La Liga question Barcelona's financing of Olmo, Victor registrations**\
+`The league has questioned whether the sale of VIP seating to Middle Eastern investors was properly accounted for.`\
+https://nytimes.com/athletic/6249365/2025/04/02/barcelona-olmo-victor-la-liga-statement/
+
+**What does it feel like to face Jokić on a 61-point night? 'Bruh, oh my God'**\
+`"He might be the best basketball player I’ve ever seen close up," Timberwolves star Anthony Edwards said.`\
+https://nytimes.com/athletic/6248428/2025/04/02/nikola-jokic-61-point-triple-double/
+
 **Stephen Curry’s epic performance illustrates Grizzlies’ downward spiral on defense**\
 `The Grizzlies’ flaws on the defensive end have left them reeling over the past few weeks and came back to bite them again.`\
 https://nytimes.com/athletic/6248990/2025/04/02/grizzlies-loss-defense-stephen-curry/
