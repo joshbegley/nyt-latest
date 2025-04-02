@@ -1,3 +1,19 @@
+**Another Big Law Firm Reaches Agreement With Trump**\
+`Milbank, based in Manhattan, agreed to provide $100 million in pro bono legal services to causes supported by the president and the firm.`\
+https://nytimes.com/2025/04/02/us/politics/trump-law-firms-milbank-deal.html
+
+**Countries Targeted by Trump’s Tariffs May Strike Back at U.S. Services**\
+`Service sectors make up the vast bulk of the American economy, which gives trading partners some clout in trade negotiations.`\
+https://nytimes.com/2025/04/02/business/economy/tariffs-foreign-goods-tariffs-us-services.html
+
+**A Tequila Ban a Century Ago Predicts the Chaos of Trump’s Tariffs**\
+`Trump’s threat to impose tariffs on Mexico undermines his stated intention to eliminate the “chaos” at America’s southern border.`\
+https://nytimes.com/2025/04/02/opinion/trump-tariffs-mexico-tequila-border.html
+
+**Mets' Vientos gets the message on hustle: 'I won't let that happen again'**\
+`Mets manager Carlos Mendoza advised struggling third baseman to "stick to the basics."`\
+https://nytimes.com/athletic/6250676/2025/04/02/mets-mark-viento-lack-of-hustle/
+
 **Mets' Vientos gets the message on hustle: 'I won't let that happen again'**\
 `Mets manager Carlos Mendoza advises struggling third baseman to "stick to the basics."`\
 https://nytimes.com/athletic/6250676/2025/04/02/mets-mark-viento-lack-of-hustle/

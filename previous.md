@@ -1,5 +1,17 @@
+**Another Big Law Firm Reaches Agreement With Trump**\
+`Milbank, based in Manhattan, agreed to provide $100 million in pro bono legal services to causes supported by the president and the firm.`\
+https://nytimes.com/2025/04/02/us/politics/trump-law-firms-milbank-deal.html
+
+**Countries Targeted by Trump’s Tariffs May Strike Back at U.S. Services**\
+`Service sectors make up the vast bulk of the American economy, which gives trading partners some clout in trade negotiations.`\
+https://nytimes.com/2025/04/02/business/economy/tariffs-foreign-goods-tariffs-us-services.html
+
+**A Tequila Ban a Century Ago Predicts the Chaos of Trump’s Tariffs**\
+`Trump’s threat to impose tariffs on Mexico undermines his stated intention to eliminate the “chaos” at America’s southern border.`\
+https://nytimes.com/2025/04/02/opinion/trump-tariffs-mexico-tequila-border.html
+
 **Mets' Vientos gets the message on hustle: 'I won't let that happen again'**\
-`Mets manager Carlos Mendoza advises struggling third baseman to "stick to the basics."`\
+`Mets manager Carlos Mendoza advised struggling third baseman to "stick to the basics."`\
 https://nytimes.com/athletic/6250676/2025/04/02/mets-mark-viento-lack-of-hustle/
 
 **The Briefing: Newcastle 2 Brentford 1 - Did Tonali mean it? Post-trophy hangover avoided**\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/02/magazine/authors-books-names-ethics.html
 **The Movie That Can Help You Understand Cory Booker’s Senate Speech**\
 `“Mr. Smith Goes to Washington,” starring Jimmy Stewart as a naïve senator, explores the idealism — and reality — behind the tactic.`\
 https://nytimes.com/2025/04/02/movies/cory-booker-speech-mr-smith-goes-to-washington.html
-
-**Judge denies Phillies' request for restraining order in case against analytics company**\
-`The Phillies failed to "show that its claims of injury were anything but entirely speculative," the judge wrote, in siding with Teamworks.`\
-https://nytimes.com/athletic/6250439/2025/04/02/phillies-teamworks-lawsuit-restraining-order/
-
-**C.D.C. Cuts Threaten to Set Back the Nation’s Health, Critics Say**\
-`The reorganization that began on Tuesday will scale back an agency that has been a public health model around the world.`\
-https://nytimes.com/2025/04/02/health/cdc-layoffs-kennedy.html
-
-**Digging In Against Proxy Voting, Johnson Exposes His Weak Hold on the House**\
-`The Republican speaker, who has mostly wielded power by relying on the threat of retribution from President Trump, has chosen an institutional fight it’s not clear he can win.`\
-https://nytimes.com/2025/04/02/us/politics/proxy-voting-johnson-house-republicans.html
 
