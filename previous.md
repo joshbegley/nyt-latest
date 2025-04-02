@@ -1,3 +1,11 @@
+**Americans’ Reaction to Trump’s Tariffs Vary From Worried to Enthused**\
+`Critics warned that the levies could fuel inflation and slow economic growth, while those who supported the move said it was long overdue.`\
+https://nytimes.com/2025/04/02/business/economy/trump-tariffs-us-business-groups-response.html
+
+**Some Aid Workers Killed in Gaza Were Shot Multiple Times, Officials Say**\
+`The Palestinian Red Crescent Society said that nearly all of the 15 bodies recovered had gunshot wounds.`\
+https://nytimes.com/2025/04/02/world/middleeast/gaza-aid-workers-gunshot-wounds.html
+
 **Republicans Plan to Skirt Senate Rules to Push Through More Tax Cuts**\
 `Senate G.O.P. leaders are planning to use what is known as the “nuclear option” to steer around the Senate’s in-house referee and allow the use of a gimmick that makes trillions of dollars in tax cuts appear to be free.`\
 https://nytimes.com/2025/04/02/us/politics/republicans-senate-rules-tax-cuts.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/business/100000010088408/trump-new-tariffs.html
 **Coal Plant Ranked as Nation’s Dirtiest Asks for Pollution Exemption**\
 `The facility, in Colstrip, Mont., used a new E.P.A. system for requesting special waivers from President Trump.`\
 https://nytimes.com/2025/04/02/climate/coal-plant-colstrip-epa-email-pollution-exemption.html
-
-**Moyes: Jota goal was ‘clear offside’**\
-`The Everton manager said that Liverpool's Luis Diaz was interfering with play and called it a "very easy decision to give".`\
-https://nytimes.com/athletic/6250922/2025/04/02/moyes-slot-diaz-offside-everton-liverpool/
-
-**Star VII, Anchorage’s Famous Reindeer, Dies Weeks After Poisoning**\
-`In February, security camera footage showed a masked figure spraying the reindeer with an unknown liquid. The police have no leads.`\
-https://nytimes.com/2025/04/02/us/star-reindeer-dead-poison.html
 
