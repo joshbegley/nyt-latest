@@ -1,3 +1,7 @@
+**Wrexham manager Parkinson has made unpopular calls - but he is being proved right**\
+`He has benefited from financial resources most of his peers do not, but with the role has come much scrutiny and criticism`\
+https://nytimes.com/athletic/6243819/2025/04/02/wrexham-tactics-phil-parkinson/
+
 **Fullkrug, Ferguson and diverging paths to solving West Ham's striker problem**\
 `There have been few positives this season, but Fullkrug's belated return offers hope that he will be the forward West Ham have long desired.`\
 https://nytimes.com/athletic/6247555/2025/04/02/fullkrug-ferguson-west-ham-strikers/

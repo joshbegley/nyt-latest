@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6247555/2025/04/02/fullkrug-ferguson-west-ham-strik
 https://nytimes.com/2025/04/02/world/europe/heathrow-train-fire.html
 
 **Wrexham manager Parkinson has made unpopular calls - but he is being proved right**\
-`He has benefited from financial resources most of his peers do not, but with the role has come much scrutiny and criticism.`\
+`He has benefited from financial resources most of his peers do not, but with the role has come much scrutiny and criticism`\
 https://nytimes.com/athletic/6243819/2025/04/02/wrexham-tactics-phil-parkinson/
 
 **Angola Rail Line Offers Clues to Trump’s Africa Policy**\
