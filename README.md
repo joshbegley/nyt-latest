@@ -1,3 +1,7 @@
+**Fire Briefly Disrupts Heathrow Airport Train Service**\
+`Trains linking Paddington Station with Heathrow’s Terminal 5 may be canceled or face delays of up to 30 minutes.`\
+https://nytimes.com/2025/04/02/world/europe/heathrow-train-fire.html
+
 **Wrexham manager Parkinson has made unpopular calls - but he is being proved right**\
 `He has benefited from financial resources most of his peers do not, but with the role has come much scrutiny and criticism.`\
 https://nytimes.com/athletic/6243819/2025/04/02/wrexham-tactics-phil-parkinson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6248944/2025/04/02/dodgers-win-dustin-may-returns/
 **Welcome to the Vitor Pereira Show: A song of ice and fire**\
 `In three and a half months, with an engaging blend of hot and cold, Pereira has put Wolves 12 points clear of the bottom three.`\
 https://nytimes.com/athletic/6248348/2025/04/02/vitor-pereira-wolves-defence-survival/
-
-**Val Kilmer: Three Memorable Movies to Stream**\
-`Kilmer’s film career ranged from slapstick comedy to some of the most memorable films of the 1980s and ’90s.`\
-https://nytimes.com/2025/04/02/movies/val-kilmer-movies.html
 
