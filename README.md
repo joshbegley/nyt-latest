@@ -1,3 +1,7 @@
+**Knicks' OG Anunoby is unleashed and better than ever**\
+`Tuesday night's 27-point performance in the Knicks' win over the 76ers was Anunoby's seventh straight game with at least 23 points.`\
+https://nytimes.com/athletic/6248667/2025/04/02/knicks-og-anunoby-new-york/
+
 **The New York Times in Print for Wednesday, April 2, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/04/02/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/02/world/asia/myanmar-quake-aid.html
 **Where Cristian Romero goes, drama follows. What lies ahead at Spurs?**\
 `Cristian Romero can be erratic but Tottenham have missed his quality and leadership in defence this season`\
 https://nytimes.com/athletic/6246482/2025/04/02/cristian-romero-tottenham-hotspur-argentina/
-
-**Pep Guardiola's latest challenge: How do you cope without Erling Haaland?**\
-`The ankle injury keeping Haaland out up to seven weeks is just the latest test of a hugely difficult season for Manchester City`\
-https://nytimes.com/athletic/6246946/2025/04/02/erling-haaland-injury-absence-manchester-city/
 
