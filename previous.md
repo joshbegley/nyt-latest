@@ -1,3 +1,7 @@
+**USC's Watkins named 2025 Naismith Women's College Player of the Year**\
+`The Trojans superstar led her team to a No. 1 seed in the NCAA Tournament before suffering a season-ending knee injury.`\
+https://nytimes.com/athletic/6250813/2025/04/02/juju-watkins-2025-naismith-womens-player-of-year/
+
 **House Republicans Demand Documents About ActBlue Departures**\
 `Republicans began investigating ActBlue, the Democratic Party’s main fund-raising platform, last year in part of a broader bid to target key Democratic organizations.`\
 https://nytimes.com/2025/04/02/us/politics/actblue-house-investigation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/02/briefing/trump-global-tariffs-val-kilmer-great-da
 **‘It’s a Disaster’: Global Markets Slide After Trump Unveils Tariffs**\
 `The initial market reaction suggested that the scale of the tariffs on Wednesday had come as a surprise and analysts were still trying to figure out how they had been derived.`\
 https://nytimes.com/2025/04/02/business/trump-tariffs-global-stock-markets.html
-
-**Pulisic's Milan draws Inter in Coppa Italia semifinal first leg**\
-`The cup edition of Milan's derby will come down to the second leg on April 23, with the winner advancing to the final.`\
-https://nytimes.com/athletic/6250923/2025/04/02/ac-milan-inter-coppa-italia-semifinal-first-leg-pulisic/
 

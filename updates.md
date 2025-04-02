@@ -1,3 +1,7 @@
+**USC's Watkins named 2025 Naismith Women's College Player of the Year**\
+`The Trojans superstar led her team to a No. 1 seed in the NCAA Tournament before suffering a season-ending knee injury.`\
+https://nytimes.com/athletic/6250813/2025/04/02/juju-watkins-2025-naismith-womens-player-of-year/
+
 **House Republicans Demand Documents About ActBlue Departures**\
 `Republicans began investigating ActBlue, the Democratic Party’s main fund-raising platform, last year in part of a broader bid to target key Democratic organizations.`\
 https://nytimes.com/2025/04/02/us/politics/actblue-house-investigation.html
