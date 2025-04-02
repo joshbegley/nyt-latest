@@ -1,5 +1,5 @@
 **Fullkrug, Ferguson and diverging paths to solving West Ham's striker problem**\
-`There have been few positives this season, but Fullkrug's belated return offers hope that he will be the forward West Ham have long desired.`\
+`There have been few positives this season, but Fullkrug's belated return offers hope that he will be the forward West Ham have long desired`\
 https://nytimes.com/athletic/6247555/2025/04/02/fullkrug-ferguson-west-ham-strikers/
 
 **Fire Briefly Disrupts Heathrow Airport Train Service**\
