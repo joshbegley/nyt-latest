@@ -1,3 +1,11 @@
+**D-backs, Ketel Marte reach 6-year, $116.5 million extension**\
+`Marte’s extension is the latest in a line of recent moves indicating the Diamondbacks aren't willing to roll over in the NL West.`\
+https://nytimes.com/athletic/6251011/2025/04/02/ketel-marte-diamondbacks-contract/
+
+**Iván Herrera's 3-homer day powers Cardinals: 'The best moment of my career'**\
+`Herrera's game summary: "The first homer I thought I hit pretty good. The next two, I crushed them."`\
+https://nytimes.com/athletic/6250809/2025/04/02/cardinals-ivan-herreras-three-homers/
+
 **USC's Watkins named 2025 Naismith Women's College Player of the Year**\
 `The Trojans superstar led her team to a No. 1 seed in the NCAA Tournament before suffering a season-ending knee injury.`\
 https://nytimes.com/athletic/6250813/2025/04/02/juju-watkins-2025-naismith-womens-player-of-year/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/02/business/economy/trump-tariffs-chart.html
 **What Will Musk Learn From Wisconsin?**\
 `After a failed $20 million effort to tilt a State Supreme Court race, Elon Musk joins the ranks of billionaires frustrated by the laws of politics.`\
 https://nytimes.com/2025/04/02/us/politics/musk-wisconsin-supreme-court.html
-
-**Trump Unveiled Sweeping Tariffs on Nearly All Imports**\
-`Also, millions of Americans are at risk for tornadoes and “generational” flooding. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2025/04/02/briefing/trump-global-tariffs-val-kilmer-great-dane.html
-
-**‘It’s a Disaster’: Global Markets Slide After Trump Unveils Tariffs**\
-`The initial market reaction suggested that the scale of the tariffs on Wednesday had come as a surprise and analysts were still trying to figure out how they had been derived.`\
-https://nytimes.com/2025/04/02/business/trump-tariffs-global-stock-markets.html
 
