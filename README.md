@@ -1,3 +1,11 @@
+**'A brilliant failure': The barely believable story of Arne Slot's craziest coaching idea**\
+`A bizarre kick-off routine in the Netherlands backfired spectacularly but it was an early sign of the future Liverpool coach's creativity`\
+https://nytimes.com/athletic/6220590/2025/04/02/arne-slot-liverpool-kick-off-tactic/
+
+**How Hansi Flick fixed Barcelona and put them firmly in the hunt for three trophies**\
+`Towards the end of 2024, Barcelona lost four of seven matches in La Liga. Their season was in freefall — but now they are targeting a treble`\
+https://nytimes.com/athletic/6238724/2025/04/02/barcelona-flick-style-tactics-decision/
+
 **Blue Jackets take early lead and ride Kirill Marchenko's hat trick to blowout win**\
 `Seven Blue Jackets players enjoyed multi-point nights in Columbus' 8-4 rout of Nashville Tuesday.`\
 https://nytimes.com/athletic/6248595/2025/04/02/blue-jackets-predators-kirill-marchenko-hat-trick/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/02/us/politics/trump-ohio-elliot-gaiser-justice-depa
 **More Americans Can’t Afford Medical Care, Poll Finds**\
 `A new survey found that 11 percent of Americans said they could not pay for medication and medical treatments.`\
 https://nytimes.com/2025/04/02/health/health-care-costs-gallup.html
-
-**Connections: Sports Edition Coach: Hints for April 2, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6246854/2025/04/02/connections-sports-edition-hints-for-april-2-2025/
-
-**Quote of the Day: A Toy Maker in China Struggles as Tariffs Bite**\
-`Quotation of the Day for Tuesday, April 2, 2025.`\
-https://nytimes.com/2025/04/01/pageoneplus/quote-of-the-day-a-toy-maker-in-china-struggles-as-tariffs-bite.html
 
