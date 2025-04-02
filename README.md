@@ -1,3 +1,7 @@
+**‘Reciprocal’ Tariffs: See Which Countries Have the Highest Rates**\
+`President Trump unveiled sweeping tariffs that included so-called reciprocal actions on dozens of other countries at very high levels.`\
+https://nytimes.com/2025/04/02/business/economy/trump-tariffs-chart.html
+
 **What Will Musk Learn From Wisconsin?**\
 `After a failed $20 million effort to tilt a State Supreme Court race, Elon Musk joins the ranks of billionaires frustrated by the laws of politics.`\
 https://nytimes.com/2025/04/02/us/politics/musk-wisconsin-supreme-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/02/style/white-lotus-composer-season-4-leaving.html
 **Howe confirms Isak, Trippier withdrawn due to groin injuries**\
 `Now fifth after the win over Brentford, Newcastle's next game comes at Leicester City on Monday.`\
 https://nytimes.com/athletic/6250845/2025/04/02/alexander-isak-injury-trippier-newcastle/
-
-**Joe DePugh, Speedball Pitcher in Springsteen’s ‘Glory Days,’ Dies at 75**\
-`A gifted athlete, he gave a clumsy teenage Bruce Springsteen his first nickname, Saddie. Years later, the Boss returned the favor, memorializing him in a song.`\
-https://nytimes.com/2025/04/02/arts/music/joe-depugh-dead-glory-days.html
 

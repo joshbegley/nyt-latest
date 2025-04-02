@@ -1,3 +1,11 @@
+**What Will Musk Learn From Wisconsin?**\
+`After a failed $20 million effort to tilt a State Supreme Court race, Elon Musk joins the ranks of billionaires frustrated by the laws of politics.`\
+https://nytimes.com/2025/04/02/us/politics/musk-wisconsin-supreme-court.html
+
+**Trump Unveiled Sweeping Tariffs on Nearly All Imports**\
+`Also, millions of Americans are at risk for tornadoes and “generational” flooding. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/04/02/briefing/trump-global-tariffs-val-kilmer-great-dane.html
+
 **‘It’s a Disaster’: Global Markets Slide After Trump Unveils Tariffs**\
 `The initial market reaction suggested that the scale of the tariffs on Wednesday had come as a surprise and analysts were still trying to figure out how they had been derived.`\
 https://nytimes.com/2025/04/02/business/trump-tariffs-global-stock-markets.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6250845/2025/04/02/alexander-isak-injury-trippier-n
 **Joe DePugh, Speedball Pitcher in Springsteen’s ‘Glory Days,’ Dies at 75**\
 `A gifted athlete, he gave a clumsy teenage Bruce Springsteen his first nickname, Saddie. Years later, the Boss returned the favor, memorializing him in a song.`\
 https://nytimes.com/2025/04/02/arts/music/joe-depugh-dead-glory-days.html
-
-**U.S.D.A. Freezes Funding for Maine Amid Battle Over Transgender Athletes**\
-`The administration concluded last month that Maine had violated federal law by allowing transgender athletes to play on girls’ or women’s teams.`\
-https://nytimes.com/2025/04/02/us/politics/trump-maine-funding-freeze-transgender-athletes.html
-
-**Kennedy Guts Teams That Share Health Information With the Public**\
-`The health secretary had promised “radical transparency,” but fired communications teams in the Health and Human Services Department.`\
-https://nytimes.com/2025/04/02/well/hhs-workers-cuts-rfk-jr.html
 

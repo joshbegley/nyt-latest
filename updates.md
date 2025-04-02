@@ -1,3 +1,11 @@
+**What Will Musk Learn From Wisconsin?**\
+`After a failed $20 million effort to tilt a State Supreme Court race, Elon Musk joins the ranks of billionaires frustrated by the laws of politics.`\
+https://nytimes.com/2025/04/02/us/politics/musk-wisconsin-supreme-court.html
+
+**Trump Unveiled Sweeping Tariffs on Nearly All Imports**\
+`Also, millions of Americans are at risk for tornadoes and “generational” flooding. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/04/02/briefing/trump-global-tariffs-val-kilmer-great-dane.html
+
 **‘It’s a Disaster’: Global Markets Slide After Trump Unveils Tariffs**\
 `The initial market reaction suggested that the scale of the tariffs on Wednesday had come as a surprise and analysts were still trying to figure out how they had been derived.`\
 https://nytimes.com/2025/04/02/business/trump-tariffs-global-stock-markets.html
