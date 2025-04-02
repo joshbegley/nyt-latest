@@ -1,3 +1,7 @@
+**Tariffs Are Likely to Hit U.S. Renewable Energy**\
+`The components used to assemble wind turbines are made by suppliers around the globe.`\
+https://nytimes.com/2025/04/02/business/trump-renewable-energy-tariffs.html
+
 **Tuesday’s Election Results Are a Boost for Democrats**\
 `Democrats achieved their biggest gains to date in the second Trump era, winning a fiercely contested State Supreme Court race in Wisconsin, while also landing relatively strong showings despite losing two Florida special elections.`\
 https://nytimes.com/video/us/politics/100000010085892/tuesdays-election-results-are-a-boost-for-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/04/02/business/trump-tariffs-liberation-day
 **San Diego FC reviewing fan brawls at Snapdragon Stadium, considering disciplinary action**\
 `Several videos appear to show fans involved in brawls after San Diego's 3-2 win over LAFC on Saturday.`\
 https://nytimes.com/athletic/6250234/2025/04/02/san-diego-fc-fan-violence/
-
-**Watch: Is Ben Johnson the perfect coach to get the most out of Ashton Jeanty?**\
-`"The Athletic Football Show" discusses why the Chicago Bears should draft Boise State running back Ashton Jeanty with the No.10 pick.`\
-https://nytimes.com/athletic/6244702/2025/04/02/athletic-football-show-ashton-jeanty-chicago-bears/
 
