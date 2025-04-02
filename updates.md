@@ -1,3 +1,11 @@
+**'A brilliant failure': The barely believable story of Arne Slot's craziest coaching idea**\
+`A bizarre kick-off routine in the Netherlands backfired spectacularly but it was an early sign of the future Liverpool coach's creativity`\
+https://nytimes.com/athletic/6220590/2025/04/02/arne-slot-liverpool-kick-off-tactic/
+
+**How Hansi Flick fixed Barcelona and put them firmly in the hunt for three trophies**\
+`Towards the end of 2024, Barcelona lost four of seven matches in La Liga. Their season was in freefall — but now they are targeting a treble`\
+https://nytimes.com/athletic/6238724/2025/04/02/barcelona-flick-style-tactics-decision/
+
 **Blue Jackets take early lead and ride Kirill Marchenko's hat trick to blowout win**\
 `Seven Blue Jackets players enjoyed multi-point nights in Columbus' 8-4 rout of Nashville Tuesday.`\
 https://nytimes.com/athletic/6248595/2025/04/02/blue-jackets-predators-kirill-marchenko-hat-trick/
