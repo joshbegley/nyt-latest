@@ -1,3 +1,7 @@
+**Trump Set to Meet With Top Aides to Decide TikTok’s Fate**\
+`They are expected to convene on Wednesday to discuss a potential sale of the app, which faces a Saturday deadline to change its ownership structure.`\
+https://nytimes.com/2025/04/01/technology/trump-tiktok-sale-meeting.html
+
 **Republicans Invoke Newsom in a Hearing on Transgender Sports**\
 `California Democrats rejected two Republican bills that would have banned transgender athletes from female sports. In a rare turn, Republicans tried to use the Democratic governor’s own words to challenge Democrats.`\
 https://nytimes.com/2025/04/01/us/politics/california-transgender-women-sports-bills.html
