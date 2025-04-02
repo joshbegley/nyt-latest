@@ -1,3 +1,11 @@
+**Nintendo Switch 2 Will Release in June and Emphasize Streaming**\
+`The company said Mario Kart World would be part of the new console’s initial game lineup, also sharing details on its technical upgrades.`\
+https://nytimes.com/2025/04/02/business/nintendo-switch-2.html
+
+**A Nail Art Neophyte Sits Down With a Manicurist**\
+`I didn’t know a topcoat from a base coat. But writing about an unfamiliar subject made me a better reporter.`\
+https://nytimes.com/2025/04/02/insider/mei-kawajiri-nails.html
+
 **Elon Musk Made an Election About Him and Wisconsin Said, ‘No, Thanks’**\
 `Republicans would be wise to seize the moment while this failure is raw to remind Donald Trump what a political loser his buddy is turning out to be.`\
 https://nytimes.com/2025/04/02/opinion/wisconsin-florida-special-election-results-democrats.html
