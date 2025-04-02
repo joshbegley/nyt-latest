@@ -1,3 +1,19 @@
+**Gotham FC's Davidson out of 2025 season with ACL injury**\
+`The 26-year-old will be placed on the league’s season-ending injury list after suffering the injury against the Houston Dash.`\
+https://nytimes.com/athletic/6249626/2025/04/02/tierna-davidson-acl-injury-gotham-uswnt/
+
+**Leeds United's accounts explained: £60m loss, £140m 49ers support and PSR situation**\
+`Leeds United's accounts have been released — but what do the figures all mean?`\
+https://nytimes.com/athletic/6249399/2025/04/02/leeds-united-accounts-explained-loss-psr/
+
+**Manchester United head coach Skinner signs new two-year contract**\
+`Skinner's previous deal had been due to expire in the end of the season, with the option for a further 12 months.`\
+https://nytimes.com/athletic/6243723/2025/04/02/marc-skinner-contract-manchester-united-women/
+
+**San Francisco Rethinks Its Free Handouts of Drug Paraphernalia**\
+`Daniel Lurie, the city’s new mayor, is scaling back a program that gives away clean foil, pipes and plastic straws for fentanyl consumption. Nonprofits will have to direct people toward treatment.`\
+https://nytimes.com/2025/04/02/us/san-francisco-drug-supplies.html
+
 **How Jets' unforced errors put their Central Division title hopes at risk**\
 `The Jets’ costly mistakes leave them just four points up on Dallas for first place in the Central.`\
 https://nytimes.com/athletic/6249004/2025/04/02/winnipeg-jets-kings-nhl-central-division/

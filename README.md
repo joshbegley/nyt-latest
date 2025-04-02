@@ -1,3 +1,15 @@
+**Read the ruling dismissing corruption charges against Eric Adams**\
+`Read Judge Dale Ho’s decision dismissing the charges against Eric Adams, the mayor of New York City, with prejudice.`\
+https://nytimes.com/interactive/2025/04/02/nyregion/adams-charges-dismissed-ruling.html
+
+**‘Finally Some Fire’: Cory Booker’s 25-Hour Speech Hits a Nerve at Home**\
+`Many Democrats, including in Mr. Booker’s home state of New Jersey, reveled in his stamina and moxie as he assailed President Trump in the longest Senate speech on record.`\
+https://nytimes.com/2025/04/02/nyregion/cory-booker-speech-reactions.html
+
+**Eagles owner Jeffrey Lurie defends the tush push, hints at Nick Sirianni extension: Takeaways**\
+`Plus: Lurie's thoughts on the upcoming White House visit and signing Zack Baun.`\
+https://nytimes.com/athletic/6248040/2025/04/02/eagles-jeffrey-lurie-tush-push-nick-sirianni-extension/
+
 **Gotham FC's Davidson out of 2025 season with ACL injury**\
 `The 26-year-old will be placed on the league’s season-ending injury list after suffering the injury against the Houston Dash.`\
 https://nytimes.com/athletic/6249626/2025/04/02/tierna-davidson-acl-injury-gotham-uswnt/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6249321/2025/04/02/penn-state-spring-football-james
 **Who are Notre Dame's transfers, and what do they bring to the Irish?**\
 `Six of Notre Dame’s eight incoming transfers are already in South Bend for spring practice.`\
 https://nytimes.com/athletic/6249326/2025/04/02/notre-dame-football-transfers/
-
-**Padres, Jackson Merrill agree to 9-year, $135 million contract: Source**\
-`Merrill finished second in NL Rookie of the Year voting last season and won a Silver Slugger award.`\
-https://nytimes.com/athletic/6249594/2025/04/02/padres-jackson-merrill-contract-extension/
-
-**Judge Ends Eric Adams Case, but Says U.S. Cannot Use Charges as Leverage**\
-`The judge, Dale E. Ho, refused to let the government leave open the prospect of reinstating corruption charges against Mayor Eric Adams. But his decision recognized the president’s power to determine the fate of prosecutions.`\
-https://nytimes.com/2025/04/02/nyregion/eric-adams-case-dismissed.html
-
-**A Florida superfan bet on Duke. Now he is two Duke wins away from a six-figure payout**\
-`One fan placed a $5 parlay last year and now stands to win a six-figure payout if Duke clinches the title.`\
-https://nytimes.com/athletic/6246853/2025/04/02/march-madness-massive-parlay-payout-duke-bet/
 

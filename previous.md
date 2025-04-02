@@ -1,3 +1,19 @@
+**Gotham FC's Davidson out of 2025 season with ACL injury**\
+`The 26-year-old will be placed on the league’s season-ending injury list after suffering the injury against the Houston Dash.`\
+https://nytimes.com/athletic/6249626/2025/04/02/tierna-davidson-acl-injury-gotham-uswnt/
+
+**Leeds United's accounts explained: £60m loss, £140m 49ers support and PSR situation**\
+`Leeds United's accounts have been released — but what do the figures all mean?`\
+https://nytimes.com/athletic/6249399/2025/04/02/leeds-united-accounts-explained-loss-psr/
+
+**Manchester United head coach Skinner signs new two-year contract**\
+`Skinner's previous deal had been due to expire in the end of the season, with the option for a further 12 months.`\
+https://nytimes.com/athletic/6243723/2025/04/02/marc-skinner-contract-manchester-united-women/
+
+**San Francisco Rethinks Its Free Handouts of Drug Paraphernalia**\
+`Daniel Lurie, the city’s new mayor, is scaling back a program that gives away clean foil, pipes and plastic straws for fentanyl consumption. Nonprofits will have to direct people toward treatment.`\
+https://nytimes.com/2025/04/02/us/san-francisco-drug-supplies.html
+
 **How Jets' unforced errors put their Central Division title hopes at risk**\
 `The Jets’ costly mistakes leave them just four points up on Dallas for first place in the Central.`\
 https://nytimes.com/athletic/6249004/2025/04/02/winnipeg-jets-kings-nhl-central-division/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/04/02/nyregion/eric-adams-case-dismissed.html
 **A Florida superfan bet on Duke. Now he is two Duke wins away from a six-figure payout**\
 `One fan placed a $5 parlay last year and now stands to win a six-figure payout if Duke clinches the title.`\
 https://nytimes.com/athletic/6246853/2025/04/02/march-madness-massive-parlay-payout-duke-bet/
-
-**Postecoglou 'not disrespected' by Pochettino’s Spurs return hopes**\
-`Last month, Pochettino told reporters he would like to return to Spurs to fulfil his dream of winning a trophy with them.`\
-https://nytimes.com/athletic/6249565/2025/04/02/ange-postecoglou-mauricio-pochettino-tottenham/
-
-**Nintendo Switch 2 Will Release in June and Emphasize Streaming**\
-`The company said Mario Kart World would be part of the new console’s initial game lineup, also sharing details on its technical upgrades.`\
-https://nytimes.com/2025/04/02/business/nintendo-switch-2.html
-
-**A Nail Art Neophyte Sits Down With a Manicurist**\
-`I didn’t know a topcoat from a base coat. But writing about an unfamiliar subject made me a better reporter.`\
-https://nytimes.com/2025/04/02/insider/mei-kawajiri-nails.html
-
-**Elon Musk Made an Election About Him. Wisconsin Said, ‘No, Thanks.’**\
-`Republicans would be wise to seize the moment while this failure is raw to remind Trump what a political loser his buddy is turning out to be.`\
-https://nytimes.com/2025/04/02/opinion/wisconsin-florida-special-election-results-democrats.html
 
