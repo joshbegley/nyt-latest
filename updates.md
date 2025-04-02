@@ -1,3 +1,11 @@
+**‘Hey, it’s Ovi’: An welcome text, a hometown debut and Leonard’s next move**\
+`Ryan Leonard played 14:14 in his NHL debut against his hometown Boston Bruins.`\
+https://nytimes.com/athletic/6248578/2025/04/01/capitals-ryan-leonard-nhl-debut-ovechkin-boston/
+
+**The Kodai Senga whisperer? Mets' new assistant coach hits it off with pivotal starter**\
+`The Mets hired Desi Druschel away from the New York Yankees, and the assistant developed a bond with Senga. `\
+https://nytimes.com/athletic/6248531/2025/04/01/mets-kodai-senga-pitching-coach/
+
 **Federal Judge Pauses Firing of Probationary Workers, But Not Nationwide**\
 `The pause is limited to certain states while the case proceeds, narrowing the scope of an earlier order that had paused firings nationwide and led to the reinstatement of thousands of federal employees.`\
 https://nytimes.com/2025/04/01/us/politics/probationary-workers-doge-cuts.html

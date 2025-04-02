@@ -1,4 +1,4 @@
-**‘Hey, it’s Ovi’: An welcome text, a hometown debut and Leonard’s next move**\
+**‘Hey, it’s Ovi’: A welcome text, a hometown debut and Leonard’s next move**\
 `Ryan Leonard played 14:14 in his NHL debut against his hometown Boston Bruins.`\
 https://nytimes.com/athletic/6248578/2025/04/01/capitals-ryan-leonard-nhl-debut-ovechkin-boston/
 
