@@ -1,3 +1,7 @@
+**Death Sentences Commuted for 3 Americans Over Failed Congo Coup**\
+`The three Americans had their sentences reduced to life imprisonment ahead of an expected visit from a Trump official.`\
+https://nytimes.com/2025/04/02/world/africa/congo-coup-americans-death-sentences.html
+
 **How Oilers outshined first-place Golden Knights: 3 takeaways from a possible playoff preview**\
 `The way the Oilers played in Vegas should have the Golden Knights’ attention ahead of a potential second-round series.`\
 https://nytimes.com/athletic/6249032/2025/04/02/oilers-golden-knights-pickard-nurse/

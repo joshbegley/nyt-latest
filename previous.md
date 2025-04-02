@@ -1,3 +1,7 @@
+**Death Sentences Commuted for 3 Americans Over Failed Congo Coup**\
+`The three Americans had their sentences reduced to life imprisonment ahead of an expected visit from a Trump official.`\
+https://nytimes.com/2025/04/02/world/africa/congo-coup-americans-death-sentences.html
+
 **How Oilers outshined first-place Golden Knights: 3 takeaways from a possible playoff preview**\
 `The way the Oilers played in Vegas should have the Golden Knights’ attention ahead of a potential second-round series.`\
 https://nytimes.com/athletic/6249032/2025/04/02/oilers-golden-knights-pickard-nurse/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/02/world/europe/heathrow-airport-power-outage-substa
 **Federal Judge Orders Legal Funds for Migrant Children to Be Restored**\
 `The restoration, which is temporary, came after nonprofit groups challenged the government’s decision to cut funding for legal services for unaccompanied children arriving in the United States.`\
 https://nytimes.com/2025/04/02/us/politics/trump-legal-funds-migrant-children-judge-order.html
-
-**Curry erupts for 52 points as Warriors win in Memphis to grab fifth seed**\
-`Curry's haul helped give the Warriors a big win and the inside track to escape the dreaded Play-In Tournament bracket.`\
-https://nytimes.com/athletic/6248392/2025/04/02/steph-curry-points-warriors-grizzlies/
 
