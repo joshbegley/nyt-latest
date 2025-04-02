@@ -1,9 +1,25 @@
+**How Healthy Is Your Social Biome? Take Our Quiz.**\
+`Research shows that our happiness depends on a complex web of relationships and interactions. Fifteen simple questions can assess yours.`\
+https://nytimes.com/interactive/2025/04/02/well/social-life-quiz.html
+
+**Trump to Pick Ohio’s Solicitor General for Top Justice Department Legal Post**\
+`T. Elliot Gaiser will be nominated to lead the influential Office of Legal Counsel, a department official said.`\
+https://nytimes.com/2025/04/02/us/politics/trump-ohio-elliot-gaiser-justice-department.html
+
+**More Americans Can’t Afford Medical Care, Poll Finds**\
+`A new survey found that 11 percent of Americans said they could not pay for medication and medical treatments.`\
+https://nytimes.com/2025/04/02/health/health-care-costs-gallup.html
+
+**Connections: Sports Edition Coach: Hints for April 2, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6246854/2025/04/02/connections-sports-edition-hints-for-april-2-2025/
+
 **Quote of the Day: A Toy Maker in China Struggles as Tariffs Bite**\
 `Quotation of the Day for Tuesday, April 2, 2025.`\
 https://nytimes.com/2025/04/01/pageoneplus/quote-of-the-day-a-toy-maker-in-china-struggles-as-tariffs-bite.html
 
 **Senators should be closer to the playoffs, but they've wasted points in losses to Buffalo**\
-`Tuesday night's loss — not an April Fool's joke by any means — was their second to Buffalo in a week and fourth all season long.`\
+`Tuesday night's loss — not an April Fools' joke by any means — was their second to Buffalo in a week and fourth this season.`\
 https://nytimes.com/athletic/6248346/2025/04/01/senators-sabres-playoff-chase-sanderson/
 
 **Val Kilmer, Film Star Who Played Batman and Jim Morrison, Dies at 65**\
@@ -21,20 +37,4 @@ https://nytimes.com/2025/04/01/world/asia/china-invasion-barges-taiwan.html
 **‘Hey, it’s Ovi’: A welcome text, a hometown debut and Leonard’s next move**\
 `Ryan Leonard played 14:14 in his NHL debut against his hometown Boston Bruins.`\
 https://nytimes.com/athletic/6248578/2025/04/01/capitals-ryan-leonard-nhl-debut-ovechkin-boston/
-
-**The Kodai Senga whisperer? Mets' new assistant coach hits it off with pivotal starter**\
-`The Mets hired Desi Druschel away from the New York Yankees, and the assistant developed a bond with Senga. `\
-https://nytimes.com/athletic/6248531/2025/04/01/mets-kodai-senga-pitching-coach/
-
-**Federal Judge Pauses Firing of Probationary Workers, But Not Nationwide**\
-`The pause is limited to certain states while the case proceeds, narrowing the scope of an earlier order that had paused firings nationwide and led to the reinstatement of thousands of federal employees.`\
-https://nytimes.com/2025/04/01/us/politics/probationary-workers-doge-cuts.html
-
-**Liberal Wins Wisconsin Court Race, Despite Musk’s Millions**\
-`Susan Crawford defeated Brad Schimel for a State Supreme Court seat in a race that shattered spending records and maintained a liberal majority on the court.`\
-https://nytimes.com/2025/04/01/us/politics/wisconsin-supreme-court-crawford-schimel.html
-
-**What’s the Catch?**\
-`Try your hand at Daniel Bodily’s puzzle — it’ll all work out.`\
-https://nytimes.com/2025/04/01/crosswords/daily-puzzle-2025-04-02.html
 

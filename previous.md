@@ -1,3 +1,11 @@
+**Quote of the Day: A Toy Maker in China Struggles as Tariffs Bite**\
+`Quotation of the Day for Tuesday, April 2, 2025.`\
+https://nytimes.com/2025/04/01/pageoneplus/quote-of-the-day-a-toy-maker-in-china-struggles-as-tariffs-bite.html
+
+**Senators should be closer to the playoffs, but they've wasted points in losses to Buffalo**\
+`Tuesday night's loss — not an April Fool's joke by any means — was their second to Buffalo in a week and fourth all season long.`\
+https://nytimes.com/athletic/6248346/2025/04/01/senators-sabres-playoff-chase-sanderson/
+
 **Val Kilmer, Film Star Who Played Batman and Jim Morrison, Dies at 65**\
 `A wide-ranging leading man who earned critical praise, he was known to be charismatic but unpredictable. At one point he dropped out of Hollywood for a decade.`\
 https://nytimes.com/2025/04/01/movies/val-kilmer-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/01/us/politics/wisconsin-supreme-court-crawford-schi
 **What’s the Catch?**\
 `Try your hand at Daniel Bodily’s puzzle — it’ll all work out.`\
 https://nytimes.com/2025/04/01/crosswords/daily-puzzle-2025-04-02.html
-
-**Padres, Diamondbacks expected to play regular-season series in Mexico City in 2026**\
-`Mexico has been the most frequent locale for the so-called MLB World Tour.`\
-https://nytimes.com/athletic/6247910/2025/04/01/padres-diamondbacks-mexico-city-series-2026/
-
-**Wisconsin Voters Approve Amendment Requiring Photo ID to Vote**\
-`The state has required voters to use photograph identification for nearly a decade, but an amendment to the Wisconsin Constitution was seen as making it more difficult to roll back that rule.`\
-https://nytimes.com/2025/04/01/us/wisconsin-voters-approve-amendment-requiring-photo-id-to-vote.html
 

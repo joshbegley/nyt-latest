@@ -1,3 +1,11 @@
+**Quote of the Day: A Toy Maker in China Struggles as Tariffs Bite**\
+`Quotation of the Day for Tuesday, April 2, 2025.`\
+https://nytimes.com/2025/04/01/pageoneplus/quote-of-the-day-a-toy-maker-in-china-struggles-as-tariffs-bite.html
+
+**Senators should be closer to the playoffs, but they've wasted points in losses to Buffalo**\
+`Tuesday night's loss — not an April Fool's joke by any means — was their second to Buffalo in a week and fourth all season long.`\
+https://nytimes.com/athletic/6248346/2025/04/01/senators-sabres-playoff-chase-sanderson/
+
 **Val Kilmer, Film Star Who Played Batman and Jim Morrison, Dies at 65**\
 `A wide-ranging leading man who earned critical praise, he was known to be charismatic but unpredictable. At one point he dropped out of Hollywood for a decade.`\
 https://nytimes.com/2025/04/01/movies/val-kilmer-dead.html
