@@ -1,6 +1,6 @@
 **Americans’ Reaction to Trump’s Tariffs Vary From Worried to Enthused**\
 `Critics warned that the levies could fuel inflation and slow economic growth, while those who supported the move said it was long overdue.`\
-https://nytimes.com/live/2025/04/02/business/trump-tariffs-liberation-day/trump-tariffs-us-business-groups-response
+https://nytimes.com/2025/04/02/business/economy/trump-tariffs-us-business-groups-response.html
 
 **Some Aid Workers Killed in Gaza Were Shot Multiple Times, Officials Say**\
 `The Palestinian Red Crescent Society said that nearly all of the 15 bodies recovered had gunshot wounds.`\
