@@ -1,3 +1,15 @@
+**‘Adolescence’ Stars Discuss Their Father-Son Bond, and Questions of a Sequel**\
+`In an interview, the actors Owen Cooper and Stephen Graham explore the social and personal impact of the Netflix hit about a teenager accused of murder.`\
+https://nytimes.com/2025/04/02/arts/television/adolescence-owen-cooper-stephen-graham-interview.html
+
+**Jakob Ingebrigtsen's father says he was 'not kind' as a coach**\
+`The 59-year-old Gjert Ingebrigtsen has denied all allegations and pleaded not guilty at the start of the trial`\
+https://nytimes.com/athletic/6250052/2025/04/02/jakob-ingebrigtsen-gjert-trial/
+
+**N.Y.C. Transit Leaders Unveil New Subway Map**\
+`The redesigned map, the first to be introduced in nearly half a century, is reminiscent of a version from the 1970s that was reviled by many traditionalists.`\
+https://nytimes.com/2025/04/02/nyregion/nyc-new-subway-map.html
+
 **Read the letter**\
 `A love letter to the Division of Violence Prevention`\
 https://nytimes.com/interactive/2025/04/02/science/violence-prevention-love-letter.html
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2025/04/02/us/paul-weiss-letter-32725-2.html
 **Granddaughters of a Paul Weiss Patriarch Deplore the Firm’s Trump Deal**\
 `The law firm’s chairman, Brad Karp, capitulated to the president’s threats. The descendants of the man who wrote its high-minded principles told Mr. Karp that he had betrayed them.`\
 https://nytimes.com/2025/04/02/nyregion/paul-weiss-granddaughters-letter.html
-
-**Patrick Roy's 'god-awful' jab at Anthony Duclair a sign of worsening times for the Islanders**\
-`"He was god-awful. He had a bad game. ... And he’s lucky to be in the lineup," Roy said of Duclair after the 4-1 loss to the Lightning.`\
-https://nytimes.com/athletic/6249892/2025/04/02/islanders-patrick-roy-anthony-duclair-nhl/
-
-**Little Island Welcomes an Ambitious Sophomore Season**\
-`The summer lineup will include eight premieres, including new works by Suzan-Lori Parks, Whitney White and Bobbi Jene Smith.`\
-https://nytimes.com/2025/04/02/arts/dance/little-island-summer-season.html
-
-**Charges Dropped Against Adams, but Re-Election Chances Remain Dim**\
-`Even with the dismissal of a five-count federal corruption indictment, Mayor Eric Adams faces an uncertain future.`\
-https://nytimes.com/2025/04/02/nyregion/eric-adams-mayor-election.html
 
