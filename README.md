@@ -1,3 +1,7 @@
+**Trump Set to Meet With Top Aides to Decide TikTok’s Fate**\
+`They are expected to convene on Wednesday to discuss a potential sale of the app, which faces a Saturday deadline to change its ownership structure.`\
+https://nytimes.com/2025/04/01/technology/trump-tiktok-sale-meeting.html
+
 **Republicans Invoke Newsom in a Hearing on Transgender Sports**\
 `California Democrats rejected two Republican bills that would have banned transgender athletes from female sports. In a rare turn, Republicans tried to use the Democratic governor’s own words to challenge Democrats.`\
 https://nytimes.com/2025/04/01/us/politics/california-transgender-women-sports-bills.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6248277/2025/04/01/nascar-lawsuit-charter-purchase/
 **DOGE Demands Deep Cuts at Humanities Endowment**\
 `The National Endowment for the Humanities, which supports museums, scholarship and historical sites, could see grants curtailed and staffing slashed by up to 80 percent.`\
 https://nytimes.com/2025/04/01/arts/trump-doge-federal-cuts-humanities.html
-
-**Packers president Mark Murphy explains why they want the 'tush push' banned**\
-`Murphy first cited safety concerns, but there isn't much data to back up the conclusion that the tush push is an elevated safety risk.`\
-https://nytimes.com/athletic/6248189/2025/04/01/packers-mark-murphy-tush-push/
 
