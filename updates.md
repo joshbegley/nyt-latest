@@ -1,3 +1,5 @@
+
+
 **Political divisions may impact support for USMNT at 2026 World Cup, says Lalas**\
 `The former U.S. international is a Trump supporter but expects the president's rhetoric to influence how the team is viewed next year`\
 https://nytimes.com/athletic/6243778/2025/04/02/alexi-lalas-world-cup-trump/
