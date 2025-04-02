@@ -1,3 +1,11 @@
+**Columbia Campus Occupation Could Have Ended Without Police, Report Says**\
+`A university senate review concludes that some demonstrators who occupied Hamilton Hall were willing to leave voluntarily.`\
+https://nytimes.com/2025/04/01/nyregion/columbia-protests-police.html
+
+**With Painful Layoffs Ahead, Agencies Push Incentives to Quit**\
+`Another round of “deferred resignation” offers is part of the Trump administration’s stepped-up effort to rapidly downsize the government.`\
+https://nytimes.com/2025/04/01/us/politics/federal-layoff-buyout-offers.html
+
 **Trump Set to Meet With Top Aides to Decide TikTok’s Fate**\
 `They are expected to convene on Wednesday to discuss a potential sale of the app, which faces a Saturday deadline to change its ownership structure.`\
 https://nytimes.com/2025/04/01/technology/trump-tiktok-sale-meeting.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/01/us/politics/trump-prosecutor-biden-pardons.html
 **Bengals' Katie Blackburn addresses staying downtown, seeks 'more urgency' for stadium deal**\
 `Cincinnati's executive VP says the team wants to stay in a renovated Paycor Stadium, but a June 30 deadline looms to agree to a deal.`\
 https://nytimes.com/athletic/6248228/2025/04/01/bengals-evp-katie-blackburn-stadium-deal/
-
-**Legacy Motor Club sues RWR over NASCAR charter purchase gone awry**\
-`Team owned by Jimmie Johnson accuses RWR of backing out of deal to purchase charter, which are typically valued at up to $40 million.`\
-https://nytimes.com/athletic/6248277/2025/04/01/nascar-lawsuit-charter-purchase/
-
-**DOGE Demands Deep Cuts at Humanities Endowment**\
-`The National Endowment for the Humanities, which supports museums, scholarship and historical sites, could see grants curtailed and staffing slashed by up to 80 percent.`\
-https://nytimes.com/2025/04/01/arts/trump-doge-federal-cuts-humanities.html
 
