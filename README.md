@@ -1,3 +1,7 @@
+**The Windup: Explaining the new 'kick-change' pitch**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6248855/2025/04/02/mlb-pitch-type-kick-change-the-windup/
+
 **Lore, Rodriguez have agreement for ownership of Timberwolves, Lynx**\
 `Both sides expect Lore and Rodriguez to be approved, the sources said.`\
 https://nytimes.com/athletic/6249866/2025/04/02/timberwolves-marc-lore-alex-rodriguez-ownership-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/02/arts/design/ed-atkins-tate-britain.html
 **Mallory McMorrow Enters Michigan Senate Race**\
 `The 38-year-old Democratic state lawmaker says that her party needs a generational shift.`\
 https://nytimes.com/2025/04/02/us/politics/michigan-senate-democrats-mallory-mcmorrow.html
-
-**Ghana, Nigeria, Jamaica, Trinidad & Tobago to compete in soccer tournament in London**\
-`The Ghana Football Association (GFA) confirmed on Wednesday that the four nations will play in the Unity Cup in late May.`\
-https://nytimes.com/athletic/6249819/2025/04/02/ghana-nigeria-jamaica-trinidad-london-tournament/
 
