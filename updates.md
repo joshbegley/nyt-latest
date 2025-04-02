@@ -1,3 +1,11 @@
+**N.Y.U. Cancels Doctor’s Speech at the Last Minute, Citing Anti-Government Tone**\
+`Dr. Joanne Liu, an N.Y.U. graduate, said the cancellation of her presentation on humanitarian crises was a sign of the climate of fear at U.S. universities.`\
+https://nytimes.com/2025/04/02/nyregion/nyu-doctor-speech-canceled.html
+
+**‘A Minecraft Movie’ Review: Block by Bizarre Block**\
+`Jack Black and Jason Momoa star in this adaptation of the megahit video game that leans into the mindless silliness of mid-aughts comedy.`\
+https://nytimes.com/2025/04/02/movies/a-minecraft-movie-review.html
+
 **Companies rushed to import goods ahead of the tariffs. Here’s what that looked like.**\
 `By Peter Eavis`\
 https://nytimes.com/live/2025/04/02/business/trump-tariffs-liberation-day/companies-rushed-to-import-goods-ahead-of-the-tariffs-heres-what-that-looked-like

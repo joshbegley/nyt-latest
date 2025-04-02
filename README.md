@@ -1,3 +1,7 @@
+**Fan who used hateful language toward Barba Banda banned by Gotham FC**\
+`The fan in question was found to have violated the NWSL Fan Code of Conduct.`\
+https://nytimes.com/athletic/6250280/2025/04/02/nwsl-gotham-barba-banda-fan-hateful/
+
 **N.Y.U. Cancels Doctor’s Speech at the Last Minute, Citing Anti-Government Tone**\
 `Dr. Joanne Liu, an N.Y.U. graduate, said the cancellation of her presentation on humanitarian crises was a sign of the climate of fear at U.S. universities.`\
 https://nytimes.com/2025/04/02/nyregion/nyu-doctor-speech-canceled.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/02/business/trump-renewable-energy-tariffs.html
 **Tuesday’s Election Results Are a Boost for Democrats**\
 `Democrats achieved their biggest gains to date in the second Trump era, winning a fiercely contested State Supreme Court race in Wisconsin, while also landing relatively strong showings despite losing two Florida special elections.`\
 https://nytimes.com/video/us/politics/100000010085892/tuesdays-election-results-are-a-boost-for-democrats.html
-
-**Mass Layoffs as Agencies Are Gutted**\
-`Responses to the mass firings in the federal government. Also: Cory Booker’s speech; talk of a third Trump term; Republicans and Ukraine; a letter to Canada.`\
-https://nytimes.com/2025/04/02/opinion/federal-workers-mass-layoffs.html
 
