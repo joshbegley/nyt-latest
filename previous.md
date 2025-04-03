@@ -27,8 +27,8 @@ https://nytimes.com/athletic/6205076/2025/04/03/raiders-geno-smith-contract-exte
 `Should every student be encouraged to pursue a four-year degree after high school? Teenagers weigh in.`\
 https://nytimes.com/2025/04/03/learning/what-students-are-saying-about-college-for-all.html
 
-**How Trump’s Tariffs Threaten the Transition to Cleaner Energy**\
-`Tariffs are the latest blow in a the shift to renewable energy. The U.S. relies largely on imported technology from Europe and Asia.`\
+**How Tariffs Could Upend the Transition to Cleaner Energy**\
+`The levies are expected to drive up costs for U.S. companies that rely on renewable energy technology from abroad and scramble supply chains worldwide.`\
 https://nytimes.com/2025/04/03/climate/trump-tariff-clean-energy-transition.html
 
 **F.D.A. Layoffs Could Raise Drug Costs and Erode Food Safety**\
