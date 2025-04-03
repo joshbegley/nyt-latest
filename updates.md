@@ -1,3 +1,7 @@
+**The Job Market Has Been Resilient. The Trade War Could Be Its Undoing.**\
+`The U.S. economy has largely withstood inflation and high interest rates. But tariffs could bring new price increases and put a damper on hiring.`\
+https://nytimes.com/2025/04/03/business/economy/job-market-tariffs.html
+
 **Inquest into death of West Brom fan at Sheffield Wednesday game set for September**\
 `Mark Townsend died after collapsing while attending the EFL Championship game between Sheffield Wednesday and West Brom in September 2024.`\
 https://nytimes.com/athletic/6252679/2025/04/03/west-brom-fan-death-hillsborough/
