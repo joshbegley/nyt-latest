@@ -1,5 +1,13 @@
-**Pressing Assault, Israels Shifts the Goal Posts in Gaza**\
-`Israel wants to squeeze Hamas into releasing the dozens of hostages still being held in the enclave. But other goals have since emerged.`\
+**Insulin Test Used to Convict Lucy Letby in Babies’ Deaths Was Unreliable, Experts Say**\
+`A new report by neonatal and toxicology experts casts doubt on the validity of the test results that were pivotal to the prosecution’s case.`\
+https://nytimes.com/2025/04/03/us/politics/uk-lucy-letby-insulin-test-evidence.html
+
+**We Are in Uncharted Waters With Trump’s New Tariffs**\
+`Trump had a point that pundits had been wrong about NAFTA and wrong about China. But where he loses the plot is in the chaos surrounding his tariff announcements.`\
+https://nytimes.com/live/2025/03/24/opinion/thepoint/liberation-day-tariff-announcement-manufacturing
+
+**Pressing Assault, Israel Shifts the Goal Posts in Gaza**\
+`Israel wants to squeeze Hamas into releasing the dozens of hostages still held in the enclave. But other objectives have since emerged.`\
 https://nytimes.com/2025/04/03/world/middleeast/israel-hamas-gaza-military-objectives.html
 
 **Eric Adams to Run as an Independent, Withdrawing From Democratic Primary**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6250777/2025/04/03/big-ten-mens-ncaa-tournament-rec
 **Dear Gamecocks: The pre-game letters that sustain South Carolina on its Final Four journey**\
 `Gamecocks assistant Mary Wooley writes a special note for each player before every game.`\
 https://nytimes.com/athletic/6251572/2025/04/03/south-carolina-final-four-letters/
-
-**Is a Cavs-Celtics Eastern Conference finals inevitable?**\
-`Cleveland and Boston have been the class of the East, but can a dark-horse team get in the way of a playoff showdown?`\
-https://nytimes.com/athletic/6249548/2025/04/03/cavaliers-celtics-east-playoffs-roundtable-nba/
-
-**What does the NHL-Rogers TV deal mean for 'Hockey Night in Canada,' future of broadcasting?**\
-`The NHL has signed a 12-year, $11 billion CAD ($7.7 billion USD) deal with its Canadian national broadcast partner, Rogers. `\
-https://nytimes.com/athletic/6250402/2025/04/03/nhl-rogers-canada-hockey-broadcast-sportsnet/
 

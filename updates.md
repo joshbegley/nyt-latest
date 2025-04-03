@@ -1,3 +1,15 @@
+**Insulin Test Used to Convict Lucy Letby in Babies’ Deaths Was Unreliable, Experts Say**\
+`A new report by neonatal and toxicology experts casts doubt on the validity of the test results that were pivotal to the prosecution’s case.`\
+https://nytimes.com/2025/04/03/us/politics/uk-lucy-letby-insulin-test-evidence.html
+
+**We Are in Uncharted Waters With Trump’s New Tariffs**\
+`Trump had a point that pundits had been wrong about NAFTA and wrong about China. But where he loses the plot is in the chaos surrounding his tariff announcements.`\
+https://nytimes.com/live/2025/03/24/opinion/thepoint/liberation-day-tariff-announcement-manufacturing
+
+**Pressing Assault, Israel Shifts the Goal Posts in Gaza**\
+`Israel wants to squeeze Hamas into releasing the dozens of hostages still held in the enclave. But other objectives have since emerged.`\
+https://nytimes.com/2025/04/03/world/middleeast/israel-hamas-gaza-military-objectives.html
+
 **Pressing Assault, Israels Shifts the Goal Posts in Gaza**\
 `Israel wants to squeeze Hamas into releasing the dozens of hostages still being held in the enclave. But other goals have since emerged.`\
 https://nytimes.com/2025/04/03/world/middleeast/israel-hamas-gaza-military-objectives.html
