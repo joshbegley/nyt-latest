@@ -1,3 +1,7 @@
+**The Job Market Has Been Resilient. The Trade War Could Be Its Undoing.**\
+`The U.S. economy has largely withstood inflation and high interest rates. But tariffs could bring new price increases and put a damper on hiring.`\
+https://nytimes.com/2025/04/03/business/economy/job-market-tariffs.html
+
 **Inquest into death of West Brom fan at Sheffield Wednesday game set for September**\
 `Mark Townsend died after collapsing while attending the EFL Championship game between Sheffield Wednesday and West Brom in September 2024.`\
 https://nytimes.com/athletic/6252679/2025/04/03/west-brom-fan-death-hillsborough/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6253144/2025/04/03/patrick-roy-anthony-duclair-isla
 `<p>Submit your Cowboys mock drafts — trade up, trade back, stand pat, and let us know what you think is the best route for Dallas&#8217; decision-makers, and Saad Yousuf will analyze a handful of the most interesting ones in his upcoming mailbag.</p>
 `\
 https://nytimes.com/athletic/6253120/2025/04/03/cowboys-nfl-mock-draft-mailbag-submissions/
-
-**7 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2025/04/03/books/review/new-books-recommendations.html
 
