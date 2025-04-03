@@ -1,3 +1,7 @@
+**Kremlin Envoy Says He’s in U.S. for Talks With Trump Administration**\
+`Kirill Dmitriev wrote on social media that his meetings were about restoring a U.S.-Russian dialogue that was “completely destroyed under the Biden administration.”`\
+https://nytimes.com/2025/04/03/world/europe/russia-envoy-us-visit-trump-dmitriev.html
+
 **Saint-Etienne awarded win in Montpellier game abandoned due to smoke bombs and fire**\
 `The decision leaves Montpellier bottom of Ligue 1, eight points behind Saint-Etienne.`\
 https://nytimes.com/athletic/6252162/2025/04/03/saint-etienne-montpellier-game-abandoned-result/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6251430/2025/04/03/twins-white-sox-takeaways-correa
 **Slot: Would have been 'more fair' for Liverpool and Arsenal to play on same night**\
 `Liverpool picked up a hard-fought 1-0 victory over Everton on Wednesday — 24 hours after Arsenal won 2-1 at home to Fulham.`\
 https://nytimes.com/athletic/6252107/2025/04/03/arne-slot-liverpool-pl-schedule/
-
-**Forget about the red flags and focus on the young Canadiens' playoff chase**\
-`The skill and resilience of Montreal's up-and-coming core have fueled an unlikely run and allowed the team to play meaningful April hockey.`\
-https://nytimes.com/athletic/6250521/2025/04/03/canadiens-nhl-playoff-race/
 

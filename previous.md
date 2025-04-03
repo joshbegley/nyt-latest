@@ -1,5 +1,5 @@
 **Saint-Etienne awarded win in Montpellier game abandoned due to smoke bombs and fire**\
-`The decision leaves Montpellier bottom of Ligue 1, eight points behind Saint-Ettiene, who are now one point of a relegation play-off spot.`\
+`The decision leaves Montpellier bottom of Ligue 1, eight points behind Saint-Etienne.`\
 https://nytimes.com/athletic/6252162/2025/04/03/saint-etienne-montpellier-game-abandoned-result/
 
 **The NHL’s top 10 most underrated defensemen and why they’re so valuable**\
