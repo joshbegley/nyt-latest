@@ -1,3 +1,7 @@
+**Newcastle and their fans show no inclination of letting the moment go**\
+`In this sense, victory against Brentford was business as usual for Newcastle. In another, nothing will ever be the same...`\
+https://nytimes.com/athletic/6249075/2025/04/03/newcastle-brentford-winners/
+
 **Without Erling Haaland, Manchester City's forwards have nowhere to hide**\
 `Manchester City need goals. With Haaland injured, their other forwards showed a worrying lack of killer instinct against Leicester City`\
 https://nytimes.com/athletic/6250926/2025/04/03/manchester-city-doku-savinho-grealish-haaland/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/03/us/politics/rubio-visits-nato.html
 **A 600-Year-Old Masterpiece Gets Some Much-Needed Love**\
 `After three doctors fell in love with a fresco by Fra Angelico, they pledged to restore it so it could get its due when a blockbuster exhibition opens this fall.`\
 https://nytimes.com/2025/04/03/arts/design/fra-angelico-fresco-restoration-florence.html
-
-**Surfers Take What They Can Get in Hong Kong’s Unexciting Waters**\
-`The scene in the Chinese territory is concentrated at a few beaches with inconsistent swell. One intrepid surfer says it’s all about “turning nothing into something.”`\
-https://nytimes.com/2025/04/03/world/asia/hong-kong-surfers.html
 

@@ -1,3 +1,7 @@
+**Newcastle and their fans show no inclination of letting the moment go**\
+`In this sense, victory against Brentford was business as usual for Newcastle. In another, nothing will ever be the same...`\
+https://nytimes.com/athletic/6249075/2025/04/03/newcastle-brentford-winners/
+
 **Without Erling Haaland, Manchester City's forwards have nowhere to hide**\
 `Manchester City need goals. With Haaland injured, their other forwards showed a worrying lack of killer instinct against Leicester City`\
 https://nytimes.com/athletic/6250926/2025/04/03/manchester-city-doku-savinho-grealish-haaland/
