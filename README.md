@@ -1,3 +1,23 @@
+**Fantasy baseball bullpen report: A demotion in Pittsburgh, a saves sleeper in Cincy**\
+`We're only a week into the 2025 regular season, but Greg Jewett has plenty to talk about in terms of notable MLB bullpen movement. `\
+https://nytimes.com/athletic/6252778/2025/04/03/fantasy-baseball-2025-bullpen-report-saves-sleeper/
+
+**Trump Trade ‘Emergency’ Follows Decades of Anger That America Has Been Ripped Off**\
+`Economists and legal experts question how the strongest economy in the world can be facing a national emergency over the trade deficit.`\
+https://nytimes.com/2025/04/03/us/politics/trump-tariffs-trade-deficit-manufacturing.html
+
+**Trump’s Pick to Argue at Supreme Court Made His Career in Culture Wars**\
+`President Trump’s choice for solicitor general, D. John Sauer, has long pushed for restrictions on abortion and access to contraception.`\
+https://nytimes.com/2025/04/03/us/politics/john-sauer-solicitor-general-abortion.html
+
+**Stocks of Consumer Brands Hit Hard by Tariffs**\
+`Many sportswear brands shifted production away from China to avoid tariffs imposed years ago, but now they face punishing levies targeting alternative manufacturing hubs.`\
+https://nytimes.com/2025/04/03/business/consumer-stocks-nike-adidas.html
+
+**In wake of criticism from Patrick Roy, Islanders forward Anthony Duclair takes leave**\
+`Duclair has struggled in his first season with the Islanders after signing a four-year deal worth $3.5 million per season last summer.`\
+https://nytimes.com/athletic/6253144/2025/04/03/patrick-roy-anthony-duclair-islanders-criticism/
+
 **Submit your Cowboys mock drafts for Saad Yousuf’s mock draft mailbag**\
 `<p>Submit your Cowboys mock drafts — trade up, trade back, stand pat, and let us know what you think is the best route for Dallas&#8217; decision-makers, and Saad Yousuf will analyze a handful of the most interesting ones in his upcoming mailbag.</p>
 `\
@@ -18,24 +38,4 @@ https://nytimes.com/2025/04/03/business/media/radhika-jones-vanity-fair-steps-do
 **The 4.13.25 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/04/03/the-41325-issue
-
-**Women's World Cup 2035 can change the game in the UK - England's Euros success is evidence**\
-`England know better than most countries the power of hosting a tournament on home soil and the 2035 event can bring a fresh momentum`\
-https://nytimes.com/athletic/6252721/2025/04/03/womens-world-cup-2035-uk-hosts/
-
-**How Musk’s Politics Are Hurting Tesla**\
-`After Election Day, investors initially thought that Elon Musk’s close association with President Trump would help Tesla. Jack Ewing, a reporter who covers the electric vehicle industry, describes how, instead, Tesla’s stock gains have evaporated and its sales are falling around the world.`\
-https://nytimes.com/video/automobiles/100000010083269/how-musks-politics-are-hurting-tesla.html
-
-**‘When Fall is Coming’ Review: Cooking Up a Mystery**\
-`With her kind eyes and guileless smile, Hélène Vincent plays a sweet old French lady. But looks can be deceiving in this François Ozon film.`\
-https://nytimes.com/2025/04/03/movies/when-fall-is-coming-review.html
-
-**Mexico’s president says her country was given ‘preferential treatment’ in the new U.S. tariffs announcement.**\
-`By James Wagner`\
-https://nytimes.com/live/2025/04/03/business/trump-tariffs/mexicos-president-says-her-country-was-given-preferential-treatment-in-the-new-us-tariffs-announcement
-
-**Even in tough loss to Thunder, Pistons show glimpses of how good team can be**\
-`The Pistons defense pressured the Thunder throughout the fourth quarter, but Detroit didn't have enough offense to topple Oklahoma City.`\
-https://nytimes.com/athletic/6252814/2025/04/03/dennis-schroder-pistons-thunder/
 

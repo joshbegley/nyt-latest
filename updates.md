@@ -1,3 +1,20 @@
+**Submit your Cowboys mock drafts for Saad Yousuf’s mock draft mailbag**\
+`<p>Submit your Cowboys mock drafts — trade up, trade back, stand pat, and let us know what you think is the best route for Dallas&#8217; decision-makers, and Saad Yousuf will analyze a handful of the most interesting ones in his upcoming mailbag.</p>
+`\
+https://nytimes.com/athletic/6253120/2025/04/03/cowboys-nfl-mock-draft-mailbag-submissions/
+
+**7 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2025/04/03/books/review/new-books-recommendations.html
+
+**I Just Want to Eat Bread for Dinner**\
+`And with these crouton-heavy salads, hearty dips and easy-enough pizzas, I can.`\
+https://nytimes.com/2025/04/03/dining/bread-for-dinner-recipes.html
+
+**Radhika Jones, Vanity Fair’s Top Editor, Steps Down**\
+`Ms. Jones has been editor of the gilded magazine of culture, business and politics since 2017.`\
+https://nytimes.com/2025/04/03/business/media/radhika-jones-vanity-fair-steps-down.html
+
 **The 4.13.25 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/04/03/the-41325-issue

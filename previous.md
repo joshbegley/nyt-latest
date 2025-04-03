@@ -1,3 +1,20 @@
+**Submit your Cowboys mock drafts for Saad Yousuf’s mock draft mailbag**\
+`<p>Submit your Cowboys mock drafts — trade up, trade back, stand pat, and let us know what you think is the best route for Dallas&#8217; decision-makers, and Saad Yousuf will analyze a handful of the most interesting ones in his upcoming mailbag.</p>
+`\
+https://nytimes.com/athletic/6253120/2025/04/03/cowboys-nfl-mock-draft-mailbag-submissions/
+
+**7 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2025/04/03/books/review/new-books-recommendations.html
+
+**I Just Want to Eat Bread for Dinner**\
+`And with these crouton-heavy salads, hearty dips and easy-enough pizzas, I can.`\
+https://nytimes.com/2025/04/03/dining/bread-for-dinner-recipes.html
+
+**Radhika Jones, Vanity Fair’s Top Editor, Steps Down**\
+`Ms. Jones has been editor of the gilded magazine of culture, business and politics since 2017.`\
+https://nytimes.com/2025/04/03/business/media/radhika-jones-vanity-fair-steps-down.html
+
 **The 4.13.25 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/04/03/the-41325-issue
@@ -21,20 +38,4 @@ https://nytimes.com/live/2025/04/03/business/trump-tariffs/mexicos-president-say
 **Even in tough loss to Thunder, Pistons show glimpses of how good team can be**\
 `The Pistons defense pressured the Thunder throughout the fourth quarter, but Detroit didn't have enough offense to topple Oklahoma City.`\
 https://nytimes.com/athletic/6252814/2025/04/03/dennis-schroder-pistons-thunder/
-
-**Paul McDonough, Whose Photographs Evoked Street Life, Dies at 84**\
-`His candid black-and-white images, prosaic yet provocative, captured the faces of a wide range of New Yorkers. He also took occasional side trips to the West.`\
-https://nytimes.com/2025/04/03/arts/paul-mcdonough-dead.html
-
-**Vietnam’s prime minister urges calm as the shock of high U.S. tariffs sinks in.**\
-`By Tung Ngo`\
-https://nytimes.com/live/2025/04/03/business/trump-tariffs/vietnams-prime-minister-urges-calm-as-the-shock-of-high-us-tariffs-sinks-in
-
-**Capital One Deal for Discover Clears Justice Dept. Hurdle**\
-`The department, during the Biden administration, initially said it had concerns about the merger of two of the largest credit card companies in the U.S.`\
-https://nytimes.com/2025/04/03/business/dealbook/capital-one-discover-merger.html
-
-**Morant, Hield receive warnings from NBA after 'inappropriate' gestures**\
-`Morant and Hield engaged in a verbal altercation that included hand gestures resembling guns during a game Tuesday. `\
-https://nytimes.com/athletic/6252893/2025/04/03/ja-morant-finger-guns-warning-nba/
 
