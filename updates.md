@@ -1,3 +1,7 @@
+**The Fallout From Trump’s Reign of Tariffs**\
+`Global markets were in a tailspin on Thursday as policymakers and trade partners expressed dismay over president’s latest trade-war salvo.`\
+https://nytimes.com/2025/04/03/business/dealbook/trumps-tariffs-global-reaction.html
+
 **Why Did Trump Spare Russia From New Tariffs?**\
 `The Trump administration says sanctions imposed on Moscow mean the U.S. does little trade with Russia, but questions persist about the motivations.`\
 https://nytimes.com/2025/04/03/business/economy/russia-us-tariffs-trump.html

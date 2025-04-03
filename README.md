@@ -1,3 +1,27 @@
+**Trump Administration Live Updates: Rubio Visits NATO Amid Tensions With Europe**\
+``\
+https://nytimes.com/live/2025/04/03/us/trump-news-updates
+
+**Watch: Are Arsenal's contract renewals as important as new signings this summer?**\
+`The FC Podcast discuss how Andrea Berta’s Atletico experience will help Arsenal and why retaining key players could outweigh adding new ones`\
+https://nytimes.com/athletic/6250186/2025/04/03/athletic-fc-podcast-arsenal-summer-priorities/
+
+**Chargers mailbag: How big a draft priority is WR? Will Zion Johnson be the starting C?**\
+`The Chargers need more talent and speed at receiver and it should be a position of consideration when they select at No. 22. `\
+https://nytimes.com/athletic/6250792/2025/04/03/chargers-mailbag-nfl-draft-zion-johnson/
+
+**A rapid career turnaround. Inside Yuki Tsunoda’s first week as a Red Bull driver**\
+`The Japanese driver says he is not feeling the pressure in his home race as he replaces Liam Lawson`\
+https://nytimes.com/athletic/6252092/2025/04/03/yuki-tsunoda-red-bull-first-week-f1/
+
+**Calum Ritchie wants to be great. A former Islanders player is helping him get there**\
+`Three years after retiring from the NHL, Andrew Ladd is helping New York's top prospect as a private mental performance coach.`\
+https://nytimes.com/athletic/6247166/2025/04/03/calum-ritchie-islanders-prospect-andrew-ladd/
+
+**Blues power rankings: The stare, 10-game winning streak, Jobu and more**\
+`Jobu, the voodoo doll from the 1989 movie "Major League," might be behind the Blues' incredible run after the 4 Nations Face-Off.`\
+https://nytimes.com/athletic/6246903/2025/04/03/blues-winning-streak-rankings-jobu/
+
 **The Fallout From Trump’s Reign of Tariffs**\
 `Global markets were in a tailspin on Thursday as policymakers and trade partners expressed dismay over president’s latest trade-war salvo.`\
 https://nytimes.com/2025/04/03/business/dealbook/trumps-tariffs-global-reaction.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6250180/2025/04/03/houston-rockets-jeff-green-nba-p
 **What Is Your Reaction to the Arrests of Student Protesters by Federal Immigration Agents?**\
 `The Trump administration has targeted at least nine foreign pro-Palestinian students and academics for deportation. Do you support these efforts, or do you think they are a violation of civil liberties?`\
 https://nytimes.com/2025/04/03/learning/what-is-your-reaction-to-the-arrests-of-student-protesters-by-federal-immigration-agents.html
-
-**Kremlin Envoy Says He’s in U.S. for Talks With Trump Administration**\
-`Kirill Dmitriev wrote on social media that his meetings were about restoring a U.S.-Russian dialogue that was “completely destroyed under the Biden administration.”`\
-https://nytimes.com/2025/04/03/world/europe/russia-envoy-us-visit-trump-dmitriev.html
-
-**Saint-Etienne awarded win in Montpellier game abandoned due to smoke bombs and fire**\
-`The decision leaves Montpellier bottom of Ligue 1, eight points behind Saint-Etienne.`\
-https://nytimes.com/athletic/6252162/2025/04/03/saint-etienne-montpellier-game-abandoned-result/
-
-**The NHL’s top 10 most underrated defensemen and why they’re so valuable**\
-`We all know the big names and some of the other stars who often appear on underrated lists. But who's genuinely flying under the radar?`\
-https://nytimes.com/athletic/6248407/2025/04/03/nhl-underrated-defensemen-top-10/
-
-**Breaking down UEFA prize money from 23-24: Real Madrid earn record sum**\
-`Manchester City were the highest-earning Premier League team in the Champions League, netting €110.4m.`\
-https://nytimes.com/athletic/6252166/2025/04/03/champions-league-prize-money-real-madrid/
-
-**Insulin Test Used to Convict Lucy Letby in Babies’ Deaths Was Unreliable, Experts Say**\
-`A new report by neonatal and toxicology experts casts doubt on the validity of the test results that were pivotal to the prosecution’s case.`\
-https://nytimes.com/2025/04/03/us/politics/uk-lucy-letby-insulin-test-evidence.html
-
-**We Are in Uncharted Waters With Trump’s New Tariffs**\
-`Trump had a point that pundits had been wrong about NAFTA and wrong about China. But where he loses the plot is in the chaos surrounding his tariff announcements.`\
-https://nytimes.com/live/2025/03/24/opinion/thepoint/liberation-day-tariff-announcement-manufacturing
 
