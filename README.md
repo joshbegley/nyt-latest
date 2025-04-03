@@ -1,3 +1,7 @@
+**How the Trump Administration Might Target D.E.I. in Public Schools**\
+`A letter from the administration promised to withdraw funding from schools that allow certain D.E.I. programs. But what counts as D.E.I. may prove murky.`\
+https://nytimes.com/2025/04/03/us/trump-administration-dei-public-schools.html
+
 **Why your can of beer might get more expensive.**\
 `The Trump administration will impose a 25 percent tariff on all imported beer that comes in cans starting Friday, part of sweeping measures against foreign steel and aluminum.`\
 https://nytimes.com/live/2025/04/03/business/trump-tariffs/why-your-can-of-beer-might-get-more-expensive
@@ -18,7 +22,7 @@ https://nytimes.com/2025/04/03/opinion/trump-tariffs-us-security-stability.html
 `The review started in response to a joint bipartisan request last week from leaders of the Senate Armed Services Committee.`\
 https://nytimes.com/2025/04/03/us/politics/signal-pete-hegseth-pentagon.html
 
-**The Briefing:  Chelsea 1 Tottenham 0 - Maresca relief, Postecoglou pressure, and will Eintracht be concerned?**\
+**The Briefing: Chelsea 1 Tottenham 0 - Maresca relief, Postecoglou pressure, and will Eintracht be concerned?**\
 `Analysis of the key talking points at Stamford Bridge as Chelsea pile on yet more misery for Ange Postecoglou's struggling side`\
 https://nytimes.com/athletic/6246914/2025/04/03/chelsea-tottenham-ven-romero-palmer-sancho-maresca/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/03/briefing/tariffs-markets-israel-gaza-airstrike-so
 **LSU star Flau’jae Johnson did not declare for WNBA Draft**\
 `By remaining in college, Johnson will enter the WNBA with the league's new collective bargaining agreement and significantly higher salaries`\
 https://nytimes.com/athletic/6253635/2025/04/03/flaujae-johnson-lsu-forgoes-wnba-draft/
-
-**For Wine, Tariffs Mean Fear, Uncertainty and Higher Prices**\
-`American consumers are likely to see fewer choices on the shelves, and small producers may be the hardest hit.`\
-https://nytimes.com/2025/04/03/dining/drinks/wine-tariffs-prices.html
 
