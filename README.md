@@ -1,3 +1,15 @@
+**Without Erling Haaland, Manchester City's forwards have nowhere to hide**\
+`Manchester City need goals. With Haaland injured, their other forwards showed a worrying lack of killer instinct against Leicester City`\
+https://nytimes.com/athletic/6250926/2025/04/03/manchester-city-doku-savinho-grealish-haaland/
+
+**Is this the worst Leicester City side in Premier League history?**\
+`Ruud van Nistelrooy's side are record-breakers… but for all the wrong reasons`\
+https://nytimes.com/athletic/6250894/2025/04/03/is-this-the-worst-leicester-city-side/
+
+**Arsenal striker options: Gyokeres, Sesko, Isak, Watkins, Cunha compared**\
+`Arteta needs a centre-forward this summer, but cost, style and age need to be taken into consideration. We weigh up five contenders.`\
+https://nytimes.com/athletic/6249545/2025/04/03/arsenal-striker-options-gyokeres-sesko/
+
 **How do Kylian Mbappe and Cristiano Ronaldo's Real Madrid debut seasons compare?**\
 `Mbappe has equalled Ronaldo's goals tally from 2009-10 with 33, but let's take a closer look at their respective first years with Madrid`\
 https://nytimes.com/athletic/6249265/2025/04/03/kylian-mbappe-cristiano-ronaldo-real-madrid-debut/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/03/arts/design/fra-angelico-fresco-restoration-flore
 **Surfers Take What They Can Get in Hong Kong’s Unexciting Waters**\
 `The scene in the Chinese territory is concentrated at a few beaches with inconsistent swell. One intrepid surfer says it’s all about “turning nothing into something.”`\
 https://nytimes.com/2025/04/03/world/asia/hong-kong-surfers.html
-
-**The Hindu Nation Was Fake. But Its Land Grab in Bolivia Was Real.**\
-`Emissaries of the “United States of Kailasa,” led by a fugitive holy man, were deported after negotiating 1,000-year deals with Indigenous groups.`\
-https://nytimes.com/2025/04/03/world/asia/united-states-of-kailasa-bolivia.html
-
-**How Ukraine’s Environment Became a Casualty of Russia’s War**\
-`Russia’s war in Ukraine has decimated the environment, causing floods, wildfires and pollution.`\
-https://nytimes.com/video/world/europe/100000009766713/tracking-ecocide-russia-ukraine-war.html
-
-**Connections: Sports Edition Coach: Hints for April 3, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6249503/2025/04/03/connections-sports-edition-hints-for-april-3-2025/
 
