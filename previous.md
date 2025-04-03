@@ -1,3 +1,7 @@
+**Scientists Reveal the Hairy Truth About Giant Ground Sloths**\
+`New research painted a more accurate picture of the megafauna that spread widely around the Americas before they went extinct.`\
+https://nytimes.com/2025/04/03/science/giant-sloths-hair-fur.html
+
 **Trump’s Tariffs Hit Garment Makers in Bangladesh and Sri Lanka Hard**\
 `The industry supplies low-cost clothing to the United States is a crucial part of the Asian countries’ economies.`\
 https://nytimes.com/2025/04/03/business/economy/trumps-tariffs-bangladesh-sri-lanka.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/03/business/economy/apple-stock-tech-selloff.html
 **Where Trump’s Tariffs Will Hit Hardest**\
 `These economies are deeply reliant on selling goods to the United States, and many of them were hit with especially steep taxes.`\
 https://nytimes.com/interactive/2025/04/03/world/trump-tariffs-charts.html
-
-**Watch: Ryan Poles explains Bears' key draft priorities and getting balance right**\
-`"Hoge & Jahns" sit down with Chicago Bears general manager Ryan Poles to discuss how the team approaches draft evaluations.`\
-https://nytimes.com/athletic/6250377/2025/04/03/hoge-and-jahns-ryan-poles-interview/
 
