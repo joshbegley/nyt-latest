@@ -1,3 +1,19 @@
+**Netanyahu Arrives in Hungary, Finding a Rare Welcome in Europe**\
+`The visit comes as the Israeli prime minister faces an arrest warrant against him by the International Criminal Court.`\
+https://nytimes.com/2025/04/02/world/middleeast/netanyahu-hungary-orban.html
+
+**On a night for Phillies' subs, Edmundo Sosa and Johan Rojas show their value**\
+`In Philadelphia's win over Colorado, two capable reserves signaled that they could help a contender survive the 162-game grind.`\
+https://nytimes.com/athletic/6251594/2025/04/02/phillies-sosa-rojas-rockies-result/
+
+**China Will Face at Least 54 Percent Tariffs With Trump’s New Order**\
+`The 34 percent tariff announced on Wednesday is in addition to two rounds of import taxes the president already imposed since January.`\
+https://nytimes.com/2025/04/02/business/economy/trump-china-new-tariffs.html
+
+**Rangers overcome mistakes, earn 2 big points in Gabe Perreault's NHL debut: 4 takeaways**\
+`The Rangers' 5-4 OT win over Minnesota put them back on the Canadiens' heels in the chase for the last playoff spot.`\
+https://nytimes.com/athletic/6251523/2025/04/02/rangers-gabe-perreault-nhl-debut/
+
 **Accusations Fly in South Korean Dating Scandal After Actress’s Suicide**\
 `The death of the actress Kim Sae-ron has plunged her former boyfriend, the superstar actor Kim Soo-hyun, into the biggest crisis of his career.`\
 https://nytimes.com/2025/04/02/world/asia/kim-sae-ron-suicide-soo-hyun.html
