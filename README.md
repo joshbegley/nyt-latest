@@ -1,3 +1,7 @@
+**Trump’s Tariffs Don’t Apply to Chips, but Taiwan Remains Wary**\
+`As the center of the global supply chain, Taiwan’s chip companies are expected to face pressure from Washington to invest more in the U.S.`\
+https://nytimes.com/2025/04/03/business/trump-tariffs-taiwan-chips.html
+
 **Analysis: How Flick perfected the science of substitutions to beat Atletico**\
 `The manager is getting the most out of his squad as Barca fight on three fronts`\
 https://nytimes.com/athletic/6252141/2025/04/03/flick-barcelona-squad-substitutes-atletico/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6252289/2025/04/03/fifa-president-gianni-infantino-
 **Live Updates: Tornadoes and Flooding Hit South and Midwest**\
 `At least two people were killed in Tennessee, officials said, and millions were under severe weather advisories. Flooding was reported in Nashville.`\
 https://nytimes.com/live/2025/04/03/weather/midwest-storms-tornado
-
-**Israel Hits Syria With New Strikes and Ground Raid as Tensions Soar**\
-`Israel defended the moves as necessary security measures, but Syria accused it of trying to destabilize the country.`\
-https://nytimes.com/2025/04/03/world/middleeast/israel-syria-airstrikes-ground-operation.html
 
