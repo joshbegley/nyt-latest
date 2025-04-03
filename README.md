@@ -1,3 +1,15 @@
+**Maple Leafs clinch postseason berth for NHL-leading ninth consecutive season**\
+`At nine years, the Leafs hold the NHL's longest active postseason streak.`\
+https://nytimes.com/athletic/6247164/2025/04/02/maple-leafs-playoffs-clinch-nhl/
+
+**‘The Cherry Orchard’ Review: A Captivating Take on Chekhov**\
+`Nina Hoss stars as a melancholic matriarch in Benedict Andrews’s immersive rendition of the classic at St. Ann’s Warehouse in Brooklyn.`\
+https://nytimes.com/2025/04/02/theater/the-cherry-orchard-review-st-anns-warehouse.html
+
+**Sourced From the Alps**\
+`Hanh Huynh’s puzzle gives main-character energy.`\
+https://nytimes.com/2025/04/02/crosswords/daily-puzzle-2025-04-03.html
+
 **How Are Trump’s Tariff Rates Calculated?**\
 `The answer appears to begin with the total trade deficit America runs with its trading partners.`\
 https://nytimes.com/2025/04/02/business/economy/trump-tariff-rates-calculation.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/02/health/cdc-tump-health.html
 **Alex Ovechkin 3 goals from breaking Wayne Gretzky's record with No. 892**\
 `The Washington Capitals superstar continues to close in on Gretzky’s long-standing record of 894 career NHL goals.`\
 https://nytimes.com/athletic/6250105/2025/04/02/ovechkin-goals-record-gretzky-892/
-
-**Musk’s Task Force Begins Shutting Down Foreign Policy Research Center**\
-`Mark Green, a Republican who once worked under President Trump, stepped down as head of the Wilson Center after employees of Elon Musk’s team visited the think tank.`\
-https://nytimes.com/2025/04/02/us/politics/doge-wilson-center.html
-
-**ASU's Quaintance has ACL surgery, is considering transfer portal: Reports**\
-`The 17-year-old big man was named to the Big 12 All-Freshman and All-Defensive teams.`\
-https://nytimes.com/athletic/6250690/2025/04/02/arizona-state-jayden-quaintance-surgery-transfer-portal/
-
-**How Nebraska's new DC plans to help Huskers get their swag back**\
-`John Butler's promotion might be the most overlooked move at Nebraska, and also its most consequential.`\
-https://nytimes.com/athletic/6250211/2025/04/02/nebraska-football-john-butler-defense/
 
