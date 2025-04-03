@@ -18,7 +18,7 @@ https://nytimes.com/2025/04/02/us/politics/republicans-senate-rules-tax-cuts.htm
 `Cincinnati went 2-4 in its opening homestand. Who's excelling and who needs to shake off the offseason rust?`\
 https://nytimes.com/athletic/6250754/2025/04/02/cincinnati-reds-starters-bullpen-hitters/
 
-**D-backs, Ketel Marte reach 6-year, $116.5 million extension**\
+**D-backs, Ketel Marte reach 6-year, $116.5 million extension: Source**\
 `Marte’s extension is the latest in a line of recent moves indicating the Diamondbacks aren't willing to roll over in the NL West.`\
 https://nytimes.com/athletic/6251011/2025/04/02/ketel-marte-diamondbacks-contract/
 
