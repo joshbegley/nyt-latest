@@ -1,3 +1,11 @@
+**Trump Administration Demands Additional Cuts at C.D.C.**\
+`In addition to reductions at agency personnel, federal regulators are demanding $2.9 billion in contract cancellations, The Times has learned.`\
+https://nytimes.com/2025/04/02/health/cdc-tump-health.html
+
+**Alex Ovechkin 3 goals from breaking Wayne Gretzky's record with No. 892**\
+`The Washington Capitals superstar continues to close in on Gretzky’s long-standing record of 894 career NHL goals.`\
+https://nytimes.com/athletic/6250105/2025/04/02/ovechkin-goals-record-gretzky-892/
+
 **Musk’s Task Force Begins Shutting Down Foreign Policy Research Center**\
 `Mark Green, a Republican who once worked under President Trump, stepped down as head of the Wilson Center after employees of Elon Musk’s team visited the think tank.`\
 https://nytimes.com/2025/04/02/us/politics/doge-wilson-center.html

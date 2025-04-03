@@ -1,3 +1,11 @@
+**Trump Administration Demands Additional Cuts at C.D.C.**\
+`In addition to reductions at agency personnel, federal regulators are demanding $2.9 billion in contract cancellations, The Times has learned.`\
+https://nytimes.com/2025/04/02/health/cdc-tump-health.html
+
+**Alex Ovechkin 3 goals from breaking Wayne Gretzky's record with No. 892**\
+`The Washington Capitals superstar continues to close in on Gretzky’s long-standing record of 894 career NHL goals.`\
+https://nytimes.com/athletic/6250105/2025/04/02/ovechkin-goals-record-gretzky-892/
+
 **Musk’s Task Force Begins Shutting Down Foreign Policy Research Center**\
 `Mark Green, a Republican who once worked under President Trump, stepped down as head of the Wilson Center after employees of Elon Musk’s team visited the think tank.`\
 https://nytimes.com/2025/04/02/us/politics/doge-wilson-center.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6250754/2025/04/02/cincinnati-reds-starters-bullpen
 **D-backs, Ketel Marte reach 6-year, $116.5 million extension: Source**\
 `Marte’s extension is the latest in a line of recent moves indicating the Diamondbacks aren't willing to roll over in the NL West.`\
 https://nytimes.com/athletic/6251011/2025/04/02/ketel-marte-diamondbacks-contract/
-
-**Iván Herrera's 3-homer day powers Cardinals: 'The best moment of my career'**\
-`Herrera's game summary: "The first homer I thought I hit pretty good. The next two, I crushed them."`\
-https://nytimes.com/athletic/6250809/2025/04/02/cardinals-ivan-herreras-three-homers/
-
-**USC's Watkins named 2025 Naismith Women's College Player of the Year**\
-`The Trojans superstar led her team to a No. 1 seed in the NCAA Tournament before suffering a season-ending knee injury.`\
-https://nytimes.com/athletic/6250813/2025/04/02/juju-watkins-2025-naismith-womens-player-of-year/
 
