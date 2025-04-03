@@ -1,40 +1,40 @@
-**FIFA confirms U.S.-Mexico, UK set to host 2031, 2035 Women's World Cups**\
-`The Athletic has previously reported that the U.S.-Mexico bid is exploring staging games in Costa Rica and Jamaica.`\
-https://nytimes.com/athletic/6251987/2025/04/03/womens-world-cup-us-uk-mexico/
+**Angels for Sale. Only $1,000.**\
+`Trump’s religious advisers have a peculiar view of Christianity.`\
+https://nytimes.com/2025/04/03/opinion/trump-evangelicals-easter.html
 
-**Hungary Says It Will Withdraw From I.C.C.**\
-`The announcement came hours after Prime Minister Benjamin Netanyahu of Israel arrived in the country for a visit despite facing an international arrest warrant.`\
-https://nytimes.com/2025/04/03/world/europe/hungary-icc-netanyahu.html
+**Gracie Abrams on Her Skin Essentials and Favorite Hair Bows**\
+`Plus: wild hops in Venice, a Catherine Opie exhibition in New York and more recommendations from T Magazine.`\
+https://nytimes.com/2025/04/03/t-magazine/gracie-abrams-beauty-bows.html
 
-**Japan Lacks a ‘Viable Option’ for Retaliating to Trump’s Tariffs**\
-`Japan has refrained from talk of striking back at U.S. tariffs. Trade experts say that is because its inflation-strained economy limits its options.`\
-https://nytimes.com/2025/04/03/business/economy/japan-trump-tariffs.html
+**They Wanted Bigger Space in a Smaller Building in Brooklyn. Friendly Neighbors a Plus.**\
+`Shaking off first-time, home-buying jitters, a couple with a budget of just over $1 million searched for a two-bedroom with room for guests and their dog.`\
+https://nytimes.com/interactive/2025/04/03/realestate/brooklyn-home-sale.html
 
-**Piled High**\
-`What do you think this image is communicating?`\
-https://nytimes.com/2025/04/03/learning/piled-high.html
+**What Should Worry Republicans the Most Right Now**\
+`Asking what voters think of a president’s performance is important, but so is gauging how they feel.`\
+https://nytimes.com/2025/04/03/opinion/democrats-elections-wisconsin.html
 
-**Braves takeaways: RISP woes in 0-7 start, Marcell Ozuna's walks, Nick Allen's rise**\
-`The Braves scored five unearned runs in the first two innings to take a 5-0 lead Wednesday. And still it wasn't enough.`\
-https://nytimes.com/athletic/6251847/2025/04/03/braves-takeaways-marcell-ozuna-nick-allen/
+**Trump’s Tariffs Are Latest Sign of His Second-Term Appetite for Risk**\
+`President Trump’s announcement went beyond most predictions, showing a greater willingness to follow his instincts even when critics — and some allies — consider failure a likely outcome.`\
+https://nytimes.com/2025/04/03/us/politics/trumps-tariffs-risks-second-term.html
 
-**Following Immigration Changes Far From Border**\
-`A reporter shares the shifts she’s seen unfold since the start of the second Trump term.`\
-https://nytimes.com/2025/04/03/insider/following-immigration-changes-far-from-border.html
+**A Gunman Returns to El Paso. So Does the Hateful Rhetoric That Inspired Him.**\
+`The lawyer of the white supremacist who slaughtered 23 people in 2019 said his client was inspired by President Trump’s words, the same the president is using today.`\
+https://nytimes.com/2025/04/03/us/el-paso-mass-shooting-trump.html
 
-**A Swastika, a Tesla and a Debate Over the Limits of Hate Crime Law**\
-`Is it a hate crime for people to draw a swastika on a Tesla if they believe Elon Musk is a Nazi?`\
-https://nytimes.com/2025/04/03/nyregion/tesla-vandalism-hate-crimes.html
+**These Jackets Are Fire**\
+`Trending for spring: a jacket inspired by firemen.`\
+https://nytimes.com/2025/04/03/style/fireman-jackets-mens-wear-trend.html
 
-**How Online Rage Invaded a Victorian-Era Intellectual Retreat**\
-`Charges of antisemitism and liberal bias and dismay over cuts to the opera budget have led to a small mutiny at Chautauqua Institution. And this was after the attack on Salman Rushdie.`\
-https://nytimes.com/2025/04/03/nyregion/chautauqua-institution-salman-rushdie.html
+**What Happens When There’s a Real National Security Crisis?**\
+`In its first military action, the Trump administration showed itself to be reckless and unserious.`\
+https://nytimes.com/2025/04/03/opinion/signal-national-security-crisis.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/04/03/crosswords/spelling-bee-forum.html
+**How About a Dash of Respect for the Daiquiri?**\
+`The ice-cold Cuban cocktail is revered by bartenders. So why don’t they sell more of them?`\
+https://nytimes.com/2025/04/03/dining/drinks/daiquiri.html
 
-**South Korean Actor Denies Dating a Minor**\
-`Kim Soo-hyun, one of Korea’s most famous actors, was in tears as he denied allegations of dating the actress Kim Sae-ron when she was a minor. Ms. Kim, 24, died by suicide this year.`\
-https://nytimes.com/video/world/asia/100000010089154/kim-sae-ron-suicide-soo-hyun.html
+**If Powerful Places Like Harvard Don’t Stand Up to Trump, Who Can?**\
+`As with most confrontations, the merits in this clash are not one-sided. But the Trump administration is acting in bad faith.`\
+https://nytimes.com/2025/04/03/opinion/larry-summers-harvard-trump.html
 
