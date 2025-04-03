@@ -1,3 +1,11 @@
+**Glamorous Clothes You Can Wear on the Subway**\
+`The Proenza Schouler alumna Alex McEachin’s new label, Accorda, aims for informal drama with fluid silhouettes and flashes of black Lurex.`\
+https://nytimes.com/2025/04/03/t-magazine/accorda-fashion.html
+
+**Sports-related stocks crushed Thursday on U.S. tariff news**\
+`Stock prices for sports-related companies that rely on a global supply chain were battered Thursday after the U.S. tariff announcement.`\
+https://nytimes.com/athletic/6253713/2025/04/03/sports-related-stocks-trump-tariff-news/
+
 **John Thornton, 59, Dies; Financier Helped Revive Local Journalism**\
 `An idealist, he founded The Texas Tribune, a model for nonprofit grass-roots news organizations nationwide, and the American Journalism Project, which supports them.`\
 https://nytimes.com/2025/04/03/business/media/john-thornton-dead.html

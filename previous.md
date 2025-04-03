@@ -1,3 +1,11 @@
+**Glamorous Clothes You Can Wear on the Subway**\
+`The Proenza Schouler alumna Alex McEachin’s new label, Accorda, aims for informal drama with fluid silhouettes and flashes of black Lurex.`\
+https://nytimes.com/2025/04/03/t-magazine/accorda-fashion.html
+
+**Sports-related stocks crushed Thursday on U.S. tariff news**\
+`Stock prices for sports-related companies that rely on a global supply chain were battered Thursday after the U.S. tariff announcement.`\
+https://nytimes.com/athletic/6253713/2025/04/03/sports-related-stocks-trump-tariff-news/
+
 **John Thornton, 59, Dies; Financier Helped Revive Local Journalism**\
 `An idealist, he founded The Texas Tribune, a model for nonprofit grass-roots news organizations nationwide, and the American Journalism Project, which supports them.`\
 https://nytimes.com/2025/04/03/business/media/john-thornton-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/03/arts/humanities-grants-canceled-doge.html
 **Markets Tumbled After Trump’s Tariffs**\
 `Also, a storm soaked the central U.S. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/04/03/briefing/markets-tumbled-trumps-tariffs-us-storms.html
-
-**Cardinals make Trey McBride highest-paid tight end in NFL history with 4-year extension**\
-`McBride's $19 million in annual value and $43 million in guaranteed money are both records for the tight end position. `\
-https://nytimes.com/athletic/6253664/2025/04/03/trey-mcbride-arizona-cardinals-extension/
-
-**Some of Nashville’s Tornado Sirens Run Out of Battery**\
-`At least one siren in the southwestern part of the city was still out of service, and the Fire Department did not say how long repairs would take.`\
-https://nytimes.com/2025/04/03/weather/tornado-sirens-nashville.html
 
