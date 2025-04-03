@@ -1,3 +1,7 @@
+**Accusations Fly in South Korean Dating Scandal After Actress’s Suicide**\
+`The death of the actress Kim Sae-ron has plunged her former boyfriend, the superstar actor Kim Soo-hyun, into the biggest crisis of his career.`\
+https://nytimes.com/2025/04/02/world/asia/kim-sae-ron-suicide-soo-hyun.html
+
 **Rangers overcome their mistakes, earn 2 big points in Gabe Perreault's NHL debut: 4 takeaways**\
 `The Rangers' 5-4 OT win over Minnesota put them back on the Canadiens' heels in the chase for the last playoff spot.`\
 https://nytimes.com/athletic/6251523/2025/04/02/rangers-gabe-perreault-nhl-debut/
