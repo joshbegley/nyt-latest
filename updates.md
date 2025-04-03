@@ -1,3 +1,7 @@
+**This Storm System Is Poised to Deliver Heavy Rain From Texas to Connecticut**\
+`Potentially “catastrophic” flash and river flooding is expected to continue as rain pummels the Central U.S. through Saturday, with the risk of more tornadoes.`\
+https://nytimes.com/2025/04/03/weather/rain-forecast-flooding-tennessee.html
+
 **Trump Will Tell You When He’s Done**\
 `From tariffs to ballots, he makes up his own rules.`\
 https://nytimes.com/2025/04/03/opinion/trump-third-term.html

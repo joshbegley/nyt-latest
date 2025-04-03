@@ -1,3 +1,11 @@
+**Ex-Yankees Player Brett Gardner’s Son Died From Carbon Monoxide, Officials Say**\
+`Miller Gardner, who was 14, died last month at a resort in Costa Rica.`\
+https://nytimes.com/2025/04/03/world/americas/miller-gardner-carbon-monoxide-poisoning-cause-death.html
+
+**How Trump’s Tariffs Could Hobble the Fastest-Growing Energy Technology**\
+`Across the country, companies have been installing giant batteries that help them use more wind and solar power. That’s about to get much harder.`\
+https://nytimes.com/2025/04/03/climate/trump-tariffs-battery-storage.html
+
 **This Storm System Is Poised to Deliver Heavy Rain From Texas to Connecticut**\
 `Potentially “catastrophic” flash and river flooding is expected to continue as rain pummels the Central U.S. through Saturday, with the risk of more tornadoes.`\
 https://nytimes.com/2025/04/03/weather/rain-forecast-flooding-tennessee.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/03/science/giant-sloths-hair-fur.html
 **Trump’s Tariffs Hit Garment Makers in Bangladesh and Sri Lanka Hard**\
 `The industry supplies low-cost clothing to the United States, and is a crucial part of the Asian countries’ economies.`\
 https://nytimes.com/2025/04/03/business/economy/trumps-tariffs-bangladesh-sri-lanka.html
-
-**Kporha signs new four-year Crystal Palace contract**\
-`The 18-year-old’s previous deal was set to expire this summer but he has now committed his future to Palace.`\
-https://nytimes.com/athletic/6252757/2025/04/03/caleb-kporha-crystal-palace-contract/
-
-**If the NBA playoffs started today: The matchups and what to expect in each series**\
-`The rest of the season (and Play-In) could shake things up, but as of now, some intriguing first-round series loom.`\
-https://nytimes.com/athletic/6251570/2025/04/03/nba-playoffs-matchups-2025/
 
