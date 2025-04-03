@@ -1,3 +1,23 @@
+**Leonardo Patterson, Disgraced Dealer in Latin American Artifacts, Dies at 82**\
+`Born into rural poverty, he climbed to the top of the art market. But he fell after being convicted of selling fake and stolen items.`\
+https://nytimes.com/2025/04/03/arts/leonardo-patterson-dead.html
+
+**Chris Pappas Jumps Into 2026 Senate Race in New Hampshire**\
+`Mr. Pappas, a 44-year-old Democratic congressman, is the first major candidate to enter the race to succeed the retiring Senator Jeanne Shaheen.`\
+https://nytimes.com/2025/04/03/us/politics/chris-pappas-new-hampshire-senate.html
+
+**E.U. Prepares Major Penalties Against Elon Musk’s X**\
+`European regulators are considering fining X more than $1 billion, after weighing the risks of further antagonizing Mr. Musk and President Trump.`\
+https://nytimes.com/2025/04/03/technology/eu-penalties-x-elon-musk.html
+
+**Fake Doctor Is Charged After ‘Butt Lift’ Surgery Leaves Woman Near Death**\
+`Felipe Hoyos Foronda, who advertised cosmetic surgery services on social media, tried to flee the country after the procedure went wrong, according to an internal police report.`\
+https://nytimes.com/2025/04/03/nyregion/queens-man-charged-unlicensed-surgery.html
+
+**What to Know About Trump’s New Tariffs**\
+`The president announced sweeping tariffs on Wednesday in an effort to reset global trading relationships. Here’s what you need to know.`\
+https://nytimes.com/2025/04/03/business/economy/trump-tariffs-trade.html
+
 **Red Sox takeaways from opening road trip: Crochet, Campbell extensions, Devers gets a hit**\
 `After a slow start, the Red Sox salvaged the road trip with a series win in Baltimore and return home following a news-filled first week.`\
 https://nytimes.com/athletic/6253474/2025/04/03/red-sox-takeaways-extensions-rafael-devers-first-hit/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/04/03/arts/television/lazarus-adult-swim-anime.html
 **Oil Producers Follow Trump’s Tariffs With a Surprise Increase**\
 `Saudi Arabia and other members of the OPEC Plus group accelerated their program to put more oil on the market, adding to a sharp fall in prices.`\
 https://nytimes.com/2025/04/03/business/opec-oil-trump-tariffs.html
-
-**Trump’s Tariffs Could Threaten His ‘Energy Dominance’ Agenda**\
-`A new wave of tariffs could raise costs for energy producers, including oil and gas companies, as well as solar and wind firms.`\
-https://nytimes.com/2025/04/03/climate/trump-tariffs-energy-renewables.html
-
-**Volkswagen to Add ‘Import Fee’ to Cars Sold in U.S.**\
-`The company’s move is one of the first and clearest examples of automakers using price increases to deal with the 25 percent tariffs President Trump imposed on car and auto parts imports.`\
-https://nytimes.com/2025/04/03/business/volkswagen-auto-tariffs-trump.html
-
-**What to See in N.Y.C. Galleries in April**\
-`This week in Newly Reviewed, Travis Diehl covers Kianja Strobert’s silver benches, Anna-Bella Papp’s elegant clay slabs and Amanda Rodriguez’s playful watercolors.`\
-https://nytimes.com/2025/04/03/arts/art-galleries-nyc-april.html
-
-**Murders and Shootings Tumble in New York City in First Quarter of Year**\
-`The number of shootings in the first three months of 2025 was the lowest since 1994, but rape numbers were up and more children were shot, according to police statistics.`\
-https://nytimes.com/2025/04/03/nyregion/nyc-shootings-decrease-first-quarter.html
-
-**More Grocery Stores That Are Also Great Restaurants**\
-`It’s round two back at markets that have the best prepared foods for the days you’re not quite feeling restaurants.`\
-https://nytimes.com/2025/04/03/dining/more-grocery-stores-that-are-also-great-restaurants.html
 
