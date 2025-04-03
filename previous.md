@@ -1,3 +1,7 @@
+**What to See in N.Y.C. Galleries in April**\
+`This week in Newly Reviewed, Travis Diehl covers Kianja Strobert’s silver benches, Anna-Bella Papp’s elegant clay slabs and Amanda Rodriguez’s playful watercolors.`\
+https://nytimes.com/2025/04/03/arts/art-galleries-nyc-april.html
+
 **Murders and Shootings Tumble in New York City in First Quarter of Year**\
 `The number of shootings in the first three months of 2025 was the lowest since 1994, but rape numbers were up and more children were shot, according to police statistics.`\
 https://nytimes.com/2025/04/03/nyregion/nyc-shootings-decrease-first-quarter.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6251999/2025/04/03/2026-world-cup-odds-brazil-argen
 **It’s Day 1 of a New Mayor’s Race in New York**\
 `What do a disgraced former governor, a once-indicted mayor and a former Guardian Angel have in common? They all may be on the November ballot in the New York City mayor’s race.`\
 https://nytimes.com/2025/04/03/nyregion/nyc-mayor-race-adams-independent.html
-
-**Michigan State says NCAA investigating recruiting violations under Mel Tucker**\
-`It’s unclear what specific violations have been alleged.`\
-https://nytimes.com/athletic/6253414/2025/04/03/michigan-state-ncaa-investigation-mel-tucker/
 
