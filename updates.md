@@ -1,3 +1,11 @@
+**More Penguins Than People: Trump Imposes Tariffs on Remote Islands**\
+`Some of the more sparsely populated territories in the world that do little trade with the United States have been caught up in the trade war.`\
+https://nytimes.com/2025/04/03/business/economy/trump-tariffs-uninhabited-islands.html
+
+**Trump’s Tariffs Hit Garment Makers in Bangladesh and Sri Lanka Hard**\
+`The industry supplies low-cost clothing to the United States, and is a crucial part of the Asian countries’ economies.`\
+https://nytimes.com/2025/04/03/business/economy/trumps-tariffs-bangladesh-sri-lanka.html
+
 **Scientists Reveal the Hairy Truth About Giant Ground Sloths**\
 `New research painted a more accurate picture of the megafauna that spread widely around the Americas before they went extinct.`\
 https://nytimes.com/2025/04/03/science/giant-sloths-hair-fur.html
