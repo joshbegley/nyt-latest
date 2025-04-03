@@ -1,3 +1,11 @@
+**Schar signs new one-year Newcastle contract until 2026**\
+`Schar's previous deal was set to expire during the summer, but a 12-month extension has now been signed.`\
+https://nytimes.com/athletic/6252411/2025/04/03/newcastle-fabian-schar-contract-update-confirmed/
+
+**In Oval Office Meeting, Far-Right Activist Pushes Trump to Fire National Security Staff**\
+`During the 30-minute meeting, Laura Loomer excoriated National Security Council officials in front of the president and Michael Waltz, the national security adviser.`\
+https://nytimes.com/2025/04/03/us/politics/trump-meeting-laura-loomer.html
+
 **What Is the I.C.C.? What to Know After Hungary’s Announced Withdrawal**\
 `Hungary said it would pull out of the International Criminal Court as Prime Minister Benjamin Netanyahu of Israel visited the country.`\
 https://nytimes.com/2025/04/03/world/europe/icc-international-criminal-court-what-is.html

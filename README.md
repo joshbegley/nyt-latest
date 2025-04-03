@@ -1,3 +1,7 @@
+**Arizona Cardinals NFL Draft Big Board: Five players who make sense in each round**\
+`The Cardinals enter the draft with six picks: 16, 47, 78, 115, 152 and 225. Let's look at some possibilities.`\
+https://nytimes.com/athletic/6251414/2025/04/03/arizona-cardinals-nfl-draft-picks-big-board/
+
 **Schar signs new one-year Newcastle contract until 2026**\
 `Schar's previous deal was set to expire during the summer, but a 12-month extension has now been signed.`\
 https://nytimes.com/athletic/6252411/2025/04/03/newcastle-fabian-schar-contract-update-confirmed/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6249042/2025/04/03/garbriel-arsenal-hamstring-injur
 **Trump’s Tariffs Don’t Apply to Chips, but Taiwan Remains Wary**\
 `The chip companies in Taiwan, the center of the global supply chain, are expected to face pressure from Washington to invest more in the U.S.`\
 https://nytimes.com/2025/04/03/business/trump-tariffs-taiwan-chips.html
-
-**Analysis: How Flick perfected the science of substitutions to beat Atletico**\
-`The manager is getting the most out of his squad as Barca fight on three fronts`\
-https://nytimes.com/athletic/6252141/2025/04/03/flick-barcelona-squad-substitutes-atletico/
 
