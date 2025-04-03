@@ -1,3 +1,7 @@
+**How Countries Responded to Trump’s Tariffs**\
+`China vowed countermeasures and the E.U. promised a unified response, while Britain and Japan refrained from immediate retaliation.`\
+https://nytimes.com/2025/04/03/business/economy/trump-tariffs-reciprocal-reaction.html
+
 **Trump Administration Live Updates: Rubio Visits NATO Amid Tensions With Europe**\
 ``\
 https://nytimes.com/live/2025/04/03/us/trump-news-updates
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/03/business/economy/russia-us-tariffs-trump.html
 **Q&A: 'Uncle Jeff' Green shares his wisdom on playoffs, NBA life with young Rockets**\
 `Rockets veteran Green talks about mentoring young players, his "uncle" status and why he returned to Houston.`\
 https://nytimes.com/athletic/6250180/2025/04/03/houston-rockets-jeff-green-nba-playoffs/
-
-**What Is Your Reaction to the Arrests of Student Protesters by Federal Immigration Agents?**\
-`The Trump administration has targeted at least nine foreign pro-Palestinian students and academics for deportation. Do you support these efforts, or do you think they are a violation of civil liberties?`\
-https://nytimes.com/2025/04/03/learning/what-is-your-reaction-to-the-arrests-of-student-protesters-by-federal-immigration-agents.html
 
