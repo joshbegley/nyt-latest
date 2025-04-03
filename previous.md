@@ -1,3 +1,15 @@
+**Tornado Touches Down in Missouri Amid Powerful Storm System**\
+`Several residents reported seeing a tornado in Potosi, Mo., part of a region in the Central United States that the National Weather Service warned could be deluged with tornadoes and floods in the coming days.`\
+https://nytimes.com/video/weather/100000010088923/severe-storms-tornado-missouri.html
+
+**Giants look the part of a 'good team' in uniquely successful opening road trip**\
+`Good teams win on the road and win in different ways. The Giants showed they were capable of doing both, taking two road series on the trip.`\
+https://nytimes.com/athletic/6248748/2025/04/02/sf-giants-opening-road-trip-history/
+
+**Tornadoes Reported in South and Midwest Amid Powerful Storm System**\
+`Millions of people across several states were under tornado warnings and watches on Wednesday.`\
+https://nytimes.com/2025/04/02/weather/tornado-storms-midwest-weather.html
+
 **President Trump scraps tax loophole on low-cost goods.**\
 `By Aimee Ortiz`\
 https://nytimes.com/live/2025/04/02/business/trump-tariffs-liberation-day/president-trump-scraps-tax-loophole-on-low-cost-goods
@@ -22,19 +34,7 @@ https://nytimes.com/athletic/6250690/2025/04/02/arizona-state-jayden-quaintance-
 `John Butler's promotion might be the most overlooked move at Nebraska, and also its most consequential.`\
 https://nytimes.com/athletic/6250211/2025/04/02/nebraska-football-john-butler-defense/
 
-**Americans’ Reaction to Trump’s Tariffs Vary From Worried to Enthused**\
+**Americans’ Reaction to Trump’s Tariffs Range From Worried to Enthusiastic**\
 `Critics warned that the levies could fuel inflation and slow economic growth, while those who supported the move said it was long overdue.`\
 https://nytimes.com/2025/04/02/business/economy/trump-tariffs-us-business-groups-response.html
-
-**Some Aid Workers Killed in Gaza Were Shot Multiple Times, Officials Say**\
-`The Palestinian Red Crescent Society said that nearly all of the 15 bodies recovered had gunshot wounds.`\
-https://nytimes.com/2025/04/02/world/middleeast/gaza-aid-workers-gunshot-wounds.html
-
-**Republicans Plan to Skirt Senate Rules to Push Through More Tax Cuts**\
-`G.O.P. leaders are planning to use the “nuclear option” to steer around the Senate’s in-house referee and allow the use of a gimmick that makes trillions of dollars in tax cuts appear to be free.`\
-https://nytimes.com/2025/04/02/us/politics/republicans-senate-rules-tax-cuts.html
-
-**Reds looking for early answers at the plate and in the bullpen: 3 takeaways**\
-`Cincinnati went 2-4 in its opening homestand. Who's excelling and who needs to shake off the offseason rust?`\
-https://nytimes.com/athletic/6250754/2025/04/02/cincinnati-reds-starters-bullpen-hitters/
 
