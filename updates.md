@@ -1,3 +1,11 @@
+**Bettors are all over the Blue Devils: 'There’s just been no shortage of Duke money'**\
+`Max Meyer spoke to sportsbooks about the betting action on the men's Final Four with biggest bets and line movement.`\
+https://nytimes.com/athletic/6250763/2025/04/03/march-madness-betting-action-duke-public-money/
+
+**Fact-checking Trump’s claim about egg prices.**\
+`By Linda Qiu`\
+https://nytimes.com/2025/04/03/business/economy/fact-checking-trumps-claim-about-egg-prices.html
+
 **NBA Awards Watch: Are All-NBA and other honors bad for your favorite team?**\
 `We have new front-runners for a couple of individual races, though things could change over the season's final week.`\
 https://nytimes.com/athletic/6146457/2025/04/03/all-nba-predictions-odds-awards-watch-2025/

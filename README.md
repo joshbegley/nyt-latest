@@ -1,3 +1,15 @@
+**Prince Harry Expresses ‘Relief’ Over U.K. Charity Investigation**\
+`A British regulator said it would examine concerns about Sentebale, the charity Harry co-founded, looking at its chair as well as its trustees.`\
+https://nytimes.com/2025/04/03/world/europe/prince-harry-charity-investigation.html
+
+**The Childish Tariff Formula That Will Reshape the Global Economy**\
+`By Binyamin Appelbaum`\
+https://nytimes.com/live/2025/03/24/opinion/thepoint/trump-tariffs-formula-global-economy
+
+**Marinakis alleges he is victim of a conspiracy after sports violence charges**\
+`"I am not afraid, I will not be blackmailed, I will not negotiate, I will not back down, I will not submit," Marinakis said.`\
+https://nytimes.com/athletic/6252062/2025/04/03/evangelos-marinakis-conspiracy-charges-forest/
+
 **Bettors are all over the Blue Devils: 'There’s just been no shortage of Duke money'**\
 `Max Meyer spoke to sportsbooks about the betting action on the men's Final Four with biggest bets and line movement.`\
 https://nytimes.com/athletic/6250763/2025/04/03/march-madness-betting-action-duke-public-money/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6252299/2025/04/03/joe-milton-cowboys-patriots-trad
 **Anthony Davis' dominant two-way effort allows Mavericks to inch closer to a Play-In spot**\
 `“I was able to catch a rhythm,” said Davis, who was key in the final three plays of Dallas' win Wednesday against Atlanta.`\
 https://nytimes.com/athletic/6251775/2025/04/03/anthony-davis-mavericks-nba-playoffs/
-
-**Fact-checking Trump’s claim about egg prices.**\
-`By Linda Qiu`\
-https://nytimes.com/2025/04/03/business/economy/fact-checking-trumps-claim-about-egg-prices.html
-
-**Forest's Aina to miss Villa game with calf injury, could return vs. Everton**\
-`The Nigeria international sustained the injury in Tuesday's 1-0 win over Manchester United.`\
-https://nytimes.com/athletic/6252446/2025/04/03/nottingham-forest-ola-aina-injury/
-
-**Olmo, Victor given permission to play for rest of season by Spanish government**\
-`The Consejo Superior de Deportes confirmed both players would maintain their sporting licenses after upholding Barcelona's appeal.`\
-https://nytimes.com/athletic/6249234/2025/04/03/dani-olmo-pau-victor-license-appeal/
 

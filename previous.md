@@ -1,3 +1,7 @@
+**Bettors are all over the Blue Devils: 'There’s just been no shortage of Duke money'**\
+`Max Meyer spoke to sportsbooks about the betting action on the men's Final Four with biggest bets and line movement.`\
+https://nytimes.com/athletic/6250763/2025/04/03/march-madness-betting-action-duke-public-money/
+
 **NBA Awards Watch: Are All-NBA and other honors bad for your favorite team?**\
 `We have new front-runners for a couple of individual races, though things could change over the season's final week.`\
 https://nytimes.com/athletic/6146457/2025/04/03/all-nba-predictions-odds-awards-watch-2025/
@@ -24,7 +28,7 @@ https://nytimes.com/athletic/6251775/2025/04/03/anthony-davis-mavericks-nba-play
 
 **Fact-checking Trump’s claim about egg prices.**\
 `By Linda Qiu`\
-https://nytimes.com/live/2025/04/03/business/trump-tariffs/fact-checking-trumps-claim-about-egg-prices
+https://nytimes.com/2025/04/03/business/economy/fact-checking-trumps-claim-about-egg-prices.html
 
 **Forest's Aina to miss Villa game with calf injury, could return vs. Everton**\
 `The Nigeria international sustained the injury in Tuesday's 1-0 win over Manchester United.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6252446/2025/04/03/nottingham-forest-ola-aina-injur
 **Olmo, Victor given permission to play for rest of season by Spanish government**\
 `The Consejo Superior de Deportes confirmed both players would maintain their sporting licenses after upholding Barcelona's appeal.`\
 https://nytimes.com/athletic/6249234/2025/04/03/dani-olmo-pau-victor-license-appeal/
-
-**How to Become Trump’s ‘Favorite President’: Nonstop Praise.**\
-`Javier Milei of Argentina might not be that useful for the United States on economics or geopolitics — but he can help to fight the culture wars.`\
-https://nytimes.com/2025/04/03/world/americas/argentina-javier-milei-trump.html
 
