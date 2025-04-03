@@ -1,3 +1,12 @@
+**Volkswagen will add an ‘import fee’ to cars sold in the U.S.**\
+`The company’s move is one of the first and clearest examples of automakers using price increases to deal with the 25 percent tariffs President Trump imposed on car and auto parts imports.`\
+https://nytimes.com/2025/04/03/business/volkswagen-auto-tariffs-trump.html
+
+**2026 World Cup odds: Why are reeling Brazil still ahead of Argentina?**\
+`Sam Tighe has a look at next year’s World Cup betting favourites, the best of the rest, and the dark horse picks. 
+`\
+https://nytimes.com/athletic/6251999/2025/04/03/2026-world-cup-odds-brazil-argentina/
+
 **What to See in N.Y.C. Galleries in April**\
 `This week in Newly Reviewed, Travis Diehl covers Kianja Strobert’s silver benches, Anna-Bella Papp’s elegant clay slabs and Amanda Rodriguez’s playful watercolors.`\
 https://nytimes.com/2025/04/03/arts/art-galleries-nyc-april.html
