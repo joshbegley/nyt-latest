@@ -1,3 +1,7 @@
+**Hungary Says It Will Withdraw From I.C.C.**\
+`The announcement came hours after Prime Minister Benjamin Netanyahu of Israel arrived in the country for a visit despite facing an international arrest warrant.`\
+https://nytimes.com/2025/04/03/world/europe/hungary-icc-netanyahu.html
+
 **Japan Lacks a ‘Viable Option’ for Retaliating to Trump’s Tariffs**\
 `Japan has refrained from talk of striking back at U.S. tariffs. Trade experts say that is because its inflation-strained economy limits its options.`\
 https://nytimes.com/2025/04/03/business/economy/japan-trump-tariffs.html
