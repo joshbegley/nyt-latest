@@ -1,3 +1,7 @@
+**President Trump scraps tax loophole on low-cost goods.**\
+`By Aimee Ortiz`\
+https://nytimes.com/live/2025/04/02/business/trump-tariffs-liberation-day/president-trump-scraps-tax-loophole-on-low-cost-goods
+
 **Trump Administration Demands Additional Cuts at C.D.C.**\
 `In addition to reductions at agency personnel, federal regulators are demanding $2.9 billion in contract cancellations, The Times has learned.`\
 https://nytimes.com/2025/04/02/health/cdc-tump-health.html
