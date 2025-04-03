@@ -1,3 +1,7 @@
+**Japan Lacks a ‘Viable Option’ for Retaliating to Trump’s Tariffs**\
+`Japan has refrained from talk of striking back at U.S. tariffs. Trade experts say that is because its inflation-strained economy limits its options.`\
+https://nytimes.com/2025/04/03/business/economy/japan-trump-tariffs.html
+
 **Piled High**\
 `What do you think this image is communicating?`\
 https://nytimes.com/2025/04/03/learning/piled-high.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6240496/2025/04/03/matheus-franca-crystal-palace-go
 **'It’s just what he does': Shohei Ohtani's walk-off homer keeps Dodgers undefeated**\
 `The Dodgers rallied from a 5-0 deficit and are off to the best start ever for a defending World Series champion at 8-0.`\
 https://nytimes.com/athletic/6251815/2025/04/03/shohei-ohtani-walkoff-homer-dodgers-undefeated/
-
-**Who is the best fit at No 10 for Brighton after losing Rutter to injury?**\
-`Brighton's defeat to Aston Villa shows how important Georginio Rutter is in the No 10 role as they chase European football`\
-https://nytimes.com/athletic/6246353/2025/04/03/brighton-georginio-rutter-brajan-gruder/
 
