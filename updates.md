@@ -1,3 +1,7 @@
+**Giants look the part of a 'good team' in uniquely successful opening trip**\
+`Good teams win on the road and win in different ways. The Giants showed they were capable of doing both, taking two road series on the trip.`\
+https://nytimes.com/athletic/6248748/2025/04/02/sf-giants-opening-road-trip-history/
+
 **Rockets clinch NBA playoff spot for first time since 2020**\
 `The organization languished at the bottom of the Western Conference for years after James Harden departed in 2021.`\
 https://nytimes.com/athletic/6251488/2025/04/02/rockets-nba-playoff-spot-2025/
