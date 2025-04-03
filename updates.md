@@ -1,3 +1,15 @@
+**Prince Harry Expresses ‘Relief’ Over U.K. Charity Investigation**\
+`A British regulator said it would examine concerns about Sentebale, the charity Harry co-founded, looking at its chair as well as its trustees.`\
+https://nytimes.com/2025/04/03/world/europe/prince-harry-charity-investigation.html
+
+**The Childish Tariff Formula That Will Reshape the Global Economy**\
+`By Binyamin Appelbaum`\
+https://nytimes.com/2025/04/03/opinion/trump-tariffs-formula-global-economy.html
+
+**Marinakis alleges he is victim of a conspiracy after sports violence charges**\
+`"I am not afraid, I will not be blackmailed, I will not negotiate, I will not back down, I will not submit," Marinakis said.`\
+https://nytimes.com/athletic/6252062/2025/04/03/evangelos-marinakis-conspiracy-charges-forest/
+
 **Bettors are all over the Blue Devils: 'There’s just been no shortage of Duke money'**\
 `Max Meyer spoke to sportsbooks about the betting action on the men's Final Four with biggest bets and line movement.`\
 https://nytimes.com/athletic/6250763/2025/04/03/march-madness-betting-action-duke-public-money/
