@@ -1,3 +1,11 @@
+**Late Night Debriefs After a ‘Tariff-fying’ Day at the White House**\
+`Stephen Colbert said that, thanks to President Trump, “America is finally free from the tyranny of being able to buy stuff from other countries.”`\
+https://nytimes.com/2025/04/03/arts/television/late-night-trump-tariffs-liberation-day.html
+
+**Transfer strategy, training methods and days off: How Emery is making sure Villa last the distance**\
+`An intense approach and schedule meant Villa's levels dipped at the end of 2023-24 but that does not seem likely this time around`\
+https://nytimes.com/athletic/6249931/2025/04/03/aston-villa-unai-emery-brighton/
+
 **Jota needed a big performance for Liverpool - this was it**\
 `The Portuguese has struggled recently but the Merseyside derby offered a reminder of his prowess as a No 9`\
 https://nytimes.com/athletic/6251162/2025/04/03/diogo-jota-liverpool-everton-goal/

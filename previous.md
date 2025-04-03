@@ -1,3 +1,11 @@
+**Late Night Debriefs After a ‘Tariff-fying’ Day at the White House**\
+`Stephen Colbert said that, thanks to President Trump, “America is finally free from the tyranny of being able to buy stuff from other countries.”`\
+https://nytimes.com/2025/04/03/arts/television/late-night-trump-tariffs-liberation-day.html
+
+**Transfer strategy, training methods and days off: How Emery is making sure Villa last the distance**\
+`An intense approach and schedule meant Villa's levels dipped at the end of 2023-24 but that does not seem likely this time around`\
+https://nytimes.com/athletic/6249931/2025/04/03/aston-villa-unai-emery-brighton/
+
 **Jota needed a big performance for Liverpool - this was it**\
 `The Portuguese has struggled recently but the Merseyside derby offered a reminder of his prowess as a No 9`\
 https://nytimes.com/athletic/6251162/2025/04/03/diogo-jota-liverpool-everton-goal/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/04/03/business/trump-tariffs/china-assails-trumps-
 **Newcastle and their fans show no inclination of letting the moment go**\
 `In this sense, victory against Brentford was business as usual for Newcastle. In another, nothing will ever be the same...`\
 https://nytimes.com/athletic/6249075/2025/04/03/newcastle-brentford-winners/
-
-**Without Erling Haaland, Manchester City's forwards have nowhere to hide**\
-`Manchester City need goals. With Haaland injured, their other forwards showed a worrying lack of killer instinct against Leicester City`\
-https://nytimes.com/athletic/6250926/2025/04/03/manchester-city-doku-savinho-grealish-haaland/
-
-**Is this the worst Leicester City side in Premier League history?**\
-`Ruud van Nistelrooy's side are record-breakers… but for all the wrong reasons`\
-https://nytimes.com/athletic/6250894/2025/04/03/is-this-the-worst-leicester-city-side/
 
