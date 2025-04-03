@@ -2,7 +2,7 @@
 `In spite of a prolonged charm offensive by Prime Minister Keir Starmer, President Trump said that Britain would be hit with the universal base rate levied on all countries.`\
 https://nytimes.com/2025/04/03/world/europe/uk-trump-tariffs.html
 
-**What is ‘Qatargate,’ the Latest Furor Embroiling Israel?**\
+**What Is ‘Qatargate,’ the Latest Furor Embroiling Israel?**\
 `This week, the police questioned Prime Minister Benjamin Netanyahu amid claims that members of his team worked simultaneously for the state of Qatar. He is not a suspect, but two of his media advisers have been arrested.`\
 https://nytimes.com/2025/04/03/world/middleeast/israel-qatar-netanyahu.html
 
