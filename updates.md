@@ -1,3 +1,7 @@
+**Until Saturday: CFB's most popular team is ...**\
+`Until Saturday is The Athletic's college football newsletter.`\
+https://nytimes.com/athletic/6253344/2025/04/03/college-football-most-popular-team-until-saturday/
+
 **Trump’s Tariffs: Anxiety and Assent**\
 `Readers react to news of the president’s move to reshape global trade.`\
 https://nytimes.com/2025/04/03/opinion/letters/trump-tariffs-reaction.html
