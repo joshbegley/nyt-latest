@@ -1,3 +1,7 @@
+**Cheers for Taijuan Walker, chills for Phillies: Teammates show support after strong start**\
+`This meant something. Everyone wearing powder blue uniforms felt it as Walker strode toward the dugout after his best outing in ages. `\
+https://nytimes.com/athletic/6253830/2025/04/03/taijuan-walker-phillies-fifth-starter-rockies/
+
 **Police Officers Are Suspended After a Car Chase Ends in a Fatal Fire**\
 `The driver of a Honda CRV was found dead in a burning car in Upper Manhattan. The Police Department put new restrictions on automobile pursuits three months ago.`\
 https://nytimes.com/2025/04/03/nyregion/bronx-nypd-car-chase-fatal-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/03/weather/national-weather-service-staffing.html
 **Trump Administration Set to Pause $510 Million for Brown University**\
 `The administration has now targeted five schools’ federal funding as part of a pledge to combat what it considers to be antisemitism on university campuses.`\
 https://nytimes.com/2025/04/03/us/trump-administration-brown-university-funding-pause.html
-
-**Groups Are Told That Federal Humanities Grants Are Canceled**\
-`Letters informed grant recipients that funds from the National Endowment for the Humanities would be redirected to furthering “the president’s agenda.”`\
-https://nytimes.com/2025/04/03/arts/humanities-grants-canceled-doge.html
 
