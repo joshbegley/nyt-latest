@@ -1,3 +1,7 @@
+**How Are Trump’s Tariff Rates Calculated?**\
+`The answer appears to begin with the total trade deficit America runs with its trading partners.`\
+https://nytimes.com/2025/04/02/business/economy/trump-tariff-rates-calculation.html
+
 **Tornado Touches Down in Missouri Amid Powerful Storm System**\
 `Several residents reported seeing a tornado in Potosi, Mo., part of a region in the Central United States that the National Weather Service warned could be deluged with tornadoes and floods in the coming days.`\
 https://nytimes.com/video/weather/100000010088923/severe-storms-tornado-missouri.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6250690/2025/04/02/arizona-state-jayden-quaintance-
 **How Nebraska's new DC plans to help Huskers get their swag back**\
 `John Butler's promotion might be the most overlooked move at Nebraska, and also its most consequential.`\
 https://nytimes.com/athletic/6250211/2025/04/02/nebraska-football-john-butler-defense/
-
-**Americans’ Reaction to Trump’s Tariffs Range From Worried to Enthusiastic**\
-`Critics warned that the levies could fuel inflation and slow economic growth, while those who supported the move said it was long overdue.`\
-https://nytimes.com/2025/04/02/business/economy/trump-tariffs-us-business-groups-response.html
 

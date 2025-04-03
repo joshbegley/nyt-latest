@@ -1,3 +1,7 @@
+**Tornadoes Reported in South and Midwest Amid Powerful Storm System**\
+`Millions of people across several states were at risk of tornadoes and other severe weather on Wednesday.`\
+https://nytimes.com/2025/04/02/weather/tornado-storms-midwest-weather.html
+
 **Tornado Touches Down in Missouri Amid Powerful Storm System**\
 `Several residents reported seeing a tornado in Potosi, Mo., part of a region in the Central United States that the National Weather Service warned could be deluged with tornadoes and floods in the coming days.`\
 https://nytimes.com/video/weather/100000010088923/severe-storms-tornado-missouri.html
