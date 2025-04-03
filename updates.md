@@ -1,3 +1,15 @@
+**Saint-Etienne awarded win in Montpellier game abandoned due to smoke bombs and fire**\
+`The decision leaves Montpellier bottom of Ligue 1, eight points behind Saint-Ettiene, who are now one point of a relegation play-off spot.`\
+https://nytimes.com/athletic/6252162/2025/04/03/saint-etienne-montpellier-game-abandoned-result/
+
+**The NHL’s top 10 most underrated defensemen and why they’re so valuable**\
+`We all know the big names and some of the other stars who often appear on underrated lists. But who's genuinely flying under the radar?`\
+https://nytimes.com/athletic/6248407/2025/04/03/nhl-underrated-defensemen-top-10/
+
+**Eric Adams to Run as an Independent, Skipping Democratic Primary**\
+`Mayor Eric Adams faced an uphill battle in the June 24 Democratic primary, which has drawn a crowded field of candidates. He will run for re-election as an independent instead.`\
+https://nytimes.com/2025/04/03/nyregion/eric-adams-independent-mayor.html
+
 **Breaking down UEFA prize money from 23-24: Real Madrid earn record sum**\
 `Manchester City were the highest-earning Premier League team in the Champions League, netting €110.4m.`\
 https://nytimes.com/athletic/6252166/2025/04/03/champions-league-prize-money-real-madrid/
