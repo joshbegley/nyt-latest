@@ -1,3 +1,11 @@
+**Five red cards and a pinched nose: Another wild night for Mourinho at Fenerbahce**\
+`If Mourinho does leave Fenerbahce this summer he can at least do so knowing he was true to himself`\
+https://nytimes.com/athletic/6251040/2025/04/03/jose-mourinho-fenerbahce-galatasary-mayhem/
+
+**China assails Trump’s new tariffs and vows retaliation.**\
+`By David Pierson`\
+https://nytimes.com/live/2025/04/02/business/trump-tariffs-liberation-day/china-assails-trumps-new-tariffs-and-vows-retaliation
+
 **Newcastle and their fans show no inclination of letting the moment go**\
 `In this sense, victory against Brentford was business as usual for Newcastle. In another, nothing will ever be the same...`\
 https://nytimes.com/athletic/6249075/2025/04/03/newcastle-brentford-winners/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6247106/2025/04/03/chelsea-tottenham-hotspur-discus
 **Thursday Briefing**\
 `The start of a global trade war.`\
 https://nytimes.com/2025/04/03/briefing/tariffs-gaza-hockney.html
-
-**Rubio Visits NATO Amid European Alarm Over Trump’s Agenda**\
-`The secretary of state’s trip comes amid an abrupt shift in relations between the United States and Europe after close cooperation during the Biden era.`\
-https://nytimes.com/2025/04/03/us/politics/rubio-visits-nato.html
-
-**A 600-Year-Old Masterpiece Gets Some Much-Needed Love**\
-`After three doctors fell in love with a fresco by Fra Angelico, they pledged to restore it so it could get its due when a blockbuster exhibition opens this fall.`\
-https://nytimes.com/2025/04/03/arts/design/fra-angelico-fresco-restoration-florence.html
 

@@ -1,3 +1,11 @@
+**Five red cards and a pinched nose: Another wild night for Mourinho at Fenerbahce**\
+`If Mourinho does leave Fenerbahce this summer he can at least do so knowing he was true to himself`\
+https://nytimes.com/athletic/6251040/2025/04/03/jose-mourinho-fenerbahce-galatasary-mayhem/
+
+**China assails Trump’s new tariffs and vows retaliation.**\
+`By David Pierson`\
+https://nytimes.com/live/2025/04/02/business/trump-tariffs-liberation-day/china-assails-trumps-new-tariffs-and-vows-retaliation
+
 **Newcastle and their fans show no inclination of letting the moment go**\
 `In this sense, victory against Brentford was business as usual for Newcastle. In another, nothing will ever be the same...`\
 https://nytimes.com/athletic/6249075/2025/04/03/newcastle-brentford-winners/
