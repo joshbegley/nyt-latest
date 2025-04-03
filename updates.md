@@ -1,3 +1,15 @@
+**Here’s the latest.**\
+`By Ana Swanson, Alan Rappeport and Tony Romm`\
+https://nytimes.com/live/2025/04/03/business/trump-tariffs/heres-the-latest
+
+**Live Updates: China and Europe Vow to Respond to Trump’s Tariffs**\
+`Investors’ shock at the size of the levies sent markets in Asia sharply lower. Experts warned that the global economy could be upended.`\
+https://nytimes.com/live/2025/04/03/business/trump-tariffs
+
+**China assails Trump’s new tariffs and vows retaliation.**\
+`By David Pierson`\
+https://nytimes.com/live/2025/04/03/business/trump-tariffs/china-assails-trumps-new-tariffs-and-vows-retaliation
+
 **Five red cards and a pinched nose: Another wild night for Mourinho at Fenerbahce**\
 `If Mourinho does leave Fenerbahce this summer he can at least do so knowing he was true to himself`\
 https://nytimes.com/athletic/6251040/2025/04/03/jose-mourinho-fenerbahce-galatasary-mayhem/

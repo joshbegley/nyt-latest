@@ -1,10 +1,18 @@
+**Here’s the latest.**\
+`By Ana Swanson, Alan Rappeport and Tony Romm`\
+https://nytimes.com/live/2025/04/03/business/trump-tariffs/heres-the-latest
+
+**Live Updates: China and Europe Vow to Respond to Trump’s Tariffs**\
+`Investors’ shock at the size of the levies sent markets in Asia sharply lower. Experts warned that the global economy could be upended.`\
+https://nytimes.com/live/2025/04/03/business/trump-tariffs
+
 **Five red cards and a pinched nose: Another wild night for Mourinho at Fenerbahce**\
 `If Mourinho does leave Fenerbahce this summer he can at least do so knowing he was true to himself`\
 https://nytimes.com/athletic/6251040/2025/04/03/jose-mourinho-fenerbahce-galatasary-mayhem/
 
 **China assails Trump’s new tariffs and vows retaliation.**\
 `By David Pierson`\
-https://nytimes.com/live/2025/04/02/business/trump-tariffs-liberation-day/china-assails-trumps-new-tariffs-and-vows-retaliation
+https://nytimes.com/live/2025/04/03/business/trump-tariffs/china-assails-trumps-new-tariffs-and-vows-retaliation
 
 **Newcastle and their fans show no inclination of letting the moment go**\
 `In this sense, victory against Brentford was business as usual for Newcastle. In another, nothing will ever be the same...`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6249265/2025/04/03/kylian-mbappe-cristiano-ronaldo-
 **Paratici's contacts and charisma will still appeal to Milan, Spurs and others**\
 `The clock on Paratici’s 30-month ban from football activity is ticking towards zero. In July, he can take a new full-time post - but where?`\
 https://nytimes.com/athletic/6245054/2025/04/03/fabio-paraticis-contacts-and-charisma-will-still-appeal-to-milan-spurs-and-more/
-
-**Chelsea vs Spurs: Head coaches, players, aims, fears and predictions discussed**\
-`Chelsea and Tottenham Hotspur face off for the second time in the Premier League this season on Thursday night`\
-https://nytimes.com/athletic/6247106/2025/04/03/chelsea-tottenham-hotspur-discussion/
-
-**Thursday Briefing**\
-`The start of a global trade war.`\
-https://nytimes.com/2025/04/03/briefing/tariffs-gaza-hockney.html
 

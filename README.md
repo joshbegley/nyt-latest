@@ -1,3 +1,11 @@
+**Celtics thoughts: Jaylen Brown has a plan, Luke Kornet bummed about fouls and more**\
+`After completing the first 6-0 road trip in franchise history, Boston surrendered its worst defensive performance in the play-by-play era.`\
+https://nytimes.com/athletic/6251750/2025/04/03/celtics-lose-heat-jaylen-brown-luke-kornet/
+
+**The New York Times in Print for Thursday, April 3, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/03/todays-new-york-times
+
 **Here’s the latest.**\
 `By Ana Swanson, Alan Rappeport and Tony Romm`\
 https://nytimes.com/live/2025/04/03/business/trump-tariffs/heres-the-latest
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6250894/2025/04/03/is-this-the-worst-leicester-city
 **Arsenal striker options: Gyokeres, Sesko, Isak, Watkins, Cunha compared**\
 `Arteta needs a centre-forward this summer, but cost, style and age need to be taken into consideration. We weigh up five contenders.`\
 https://nytimes.com/athletic/6249545/2025/04/03/arsenal-striker-options-gyokeres-sesko/
-
-**How do Kylian Mbappe and Cristiano Ronaldo's Real Madrid debut seasons compare?**\
-`Mbappe has equalled Ronaldo's goals tally from 2009-10 with 33, but let's take a closer look at their respective first years with Madrid`\
-https://nytimes.com/athletic/6249265/2025/04/03/kylian-mbappe-cristiano-ronaldo-real-madrid-debut/
-
-**Paratici's contacts and charisma will still appeal to Milan, Spurs and others**\
-`The clock on Paratici’s 30-month ban from football activity is ticking towards zero. In July, he can take a new full-time post - but where?`\
-https://nytimes.com/athletic/6245054/2025/04/03/fabio-paraticis-contacts-and-charisma-will-still-appeal-to-milan-spurs-and-more/
 
