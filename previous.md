@@ -16,7 +16,7 @@ https://nytimes.com/athletic/6253664/2025/04/03/trey-mcbride-arizona-cardinals-e
 
 **Some of Nashville’s Tornado Sirens Run Out of Battery**\
 `At least one siren in the southwestern part of the city was still out of service, and the Fire Department did not say how long repairs would take.`\
-https://nytimes.com/2025/04/03/weather/some-of-nashvilles-tornado-sirens-run-out-of-battery.html
+https://nytimes.com/2025/04/03/weather/tornado-sirens-nashville.html
 
 **‘Fair Likelihood’ Trump Administration Violated Court Order, Judge Says**\
 `The judge, James E. Boasberg, said he was likely to wait until next week to rule on whether the White House was in contempt of court for having ignored his order.`\

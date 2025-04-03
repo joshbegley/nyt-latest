@@ -1,3 +1,7 @@
+**Some of Nashville’s Tornado Sirens Run Out of Battery**\
+`At least one siren in the southwestern part of the city was still out of service, and the Fire Department did not say how long repairs would take.`\
+https://nytimes.com/2025/04/03/weather/tornado-sirens-nashville.html
+
 **Trump Administration Set to Pause $510 Million for Brown University**\
 `The administration has now targeted five schools’ federal funding as part of a pledge to combat what it considers to be antisemitism on university campuses.`\
 https://nytimes.com/2025/04/03/us/trump-administration-brown-university-funding-pause.html
