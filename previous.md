@@ -1,40 +1,40 @@
-**A Stunned World Reckons With Economic Fallout From Trump’s Tariffs**\
-`Not even America’s closest trading partners were spared by a policy broadside that spooked investors and left policymakers scrambling to formulate responses.`\
-https://nytimes.com/2025/04/03/business/trump-tariffs-global-reaction.html
+**Ignoring Protests, Thailand Opens Door to Myanmar’s Military Leader**\
+`Senior General Min Aung Hlaing, who has long been treated like a pariah on the global stage, is visiting Bangkok barely a week after an earthquake that killed at least 3,000 people in his country.`\
+https://nytimes.com/2025/04/03/world/asia/myanmar-general-earthquake.html
 
-**PGMOL acknowledges Tarkowski should have been sent off for foul on Mac Allister**\
-`Tarkowski was only shown a yellow card when an ugly follow-through saw the defender’s studs hit Mac Allister just below the knee.`\
-https://nytimes.com/athletic/6252043/2025/04/03/liverpool-everton-pgmol-tarkowski-mac-allister/
+**Ten sleepers the Vikings could target in the later rounds of the draft**\
+`Who could be in play for the Vikings on Days 2 and 3 of the draft? Which lesser-known prospects are worth keeping an eye on? And why?`\
+https://nytimes.com/athletic/6250878/2025/04/03/vikings-2025-nfl-draft-sleepers/
 
-**Travis Hunter gets a chance to further impress Browns at Colorado pro day**\
-`Cleveland will have several players to choose from when on the clock at No. 2, including the Heisman Trophy winner, who can play both ways.`\
-https://nytimes.com/athletic/6250076/2025/04/03/travis-hunter-shedeur-sanders-browns-colorado-pro-day/
+**Inside Draymond Green's defensive mind, which seeks to 'completely destroy' you**\
+`The Warriors stalwart sits down to dissect how his brain works when he's roaming the defensive end.`\
+https://nytimes.com/athletic/6248565/2025/04/03/draymond-green-golden-state-warriors-nba-defense/
 
-**As NFL Draft nears, John Harbaugh feels Ravens 'could line up and play right now'**\
-`A roster that yielded 18 unrestricted free agents and was seemingly in flux at the start of the new league year suddenly looks stable. `\
-https://nytimes.com/athletic/6247410/2025/04/03/ravens-roster-john-harbaugh-nfl-draft/
+**NFL execs unfiltered on free agency: What's the Giants' QB plan? Thoughts on all NFC teams**\
+`Execs wonder if Giants owner John Mara is restricting Joe Schoen and Brian Daboll, while others are curious what's happening in Minnesota.`\
+https://nytimes.com/athletic/6244284/2025/04/03/nfl-free-agency-2025-nfc-execs-best-worst/
 
-**The New York Times International Edition in Print for Friday, April 4, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/04/03/todays-new-york-times-international-edition
+**Who is college football's most popular team? An unscientific investigation**\
+`We looked at tickets, revenue, social media and more to investigate an unanswerable question: Which college football team has the most fans?`\
+https://nytimes.com/athletic/6250250/2025/04/03/college-football-most-popular-team-fans/
 
-**Not Even a Royal Invite Spared the U.K. From Trump’s Tariffs**\
-`In spite of a prolonged charm offensive by Prime Minister Keir Starmer, President Trump said that Britain would be hit with the universal base rate levied on all countries.`\
-https://nytimes.com/2025/04/03/world/europe/uk-trump-tariffs.html
+**Can a new coach bring Wisconsin women's basketball back from the wilderness?**\
+`Wisconsin has not qualified for the NCAA Tournament since 2010. In the ensuing 15 seasons, every other Big Ten team made it at least twice.`\
+https://nytimes.com/athletic/6250557/2025/04/03/wisconsin-womens-basketball-robin-pingeton/
 
-**What Is ‘Qatargate,’ the Latest Furor Embroiling Israel?**\
-`This week, the police questioned Prime Minister Benjamin Netanyahu amid claims that members of his team worked simultaneously for the state of Qatar. He is not a suspect, but two of his media advisers have been arrested.`\
-https://nytimes.com/2025/04/03/world/middleeast/israel-qatar-netanyahu.html
+**Leafs showed blueprint for playoff success vs. Panthers: 'That’s what championship teams do'**\
+`Anthony Stolarz won a Cup with the Panthers last season. With the Leafs, he likes what he saw in a battle of Atlantic Division rivals.`\
+https://nytimes.com/athletic/6251712/2025/04/03/maple-leafs-stolarz-playoffs-blueprint-panthers/
 
-**What I'm hearing about the Falcons: Draft targets, job security, trade options and more**\
-`The Falcons may have a surprising target early in the 2025 NFL Draft. They currently own five total picks.`\
-https://nytimes.com/athletic/6250000/2025/04/03/falcons-nfl-draft-options-arthur-blank/
+**Tarik Skubal, Colt Keith and an out-of-rhythm road trip: 6 Tigers takeaways**\
+`Skubal's stuff is there, but the execution still needs work. Meanwhile, Jackson Jobe is nasty.`\
+https://nytimes.com/athletic/6251295/2025/04/03/detroit-tigers-road-trip-tarik-skubal/
 
-**Angels for Sale. Only $1,000.**\
-`Trump’s religious advisers have a peculiar view of Christianity.`\
-https://nytimes.com/2025/04/03/opinion/trump-evangelicals-easter.html
+**When Cooper Flagg chose Duke, it brought Jon Scheyer to tears. Is a fabled finish in store?**\
+`Duke is on the precipice of doing just what Cooper Flagg and Jon Scheyer dreamed about many months ago when the star committed.`\
+https://nytimes.com/athletic/6250116/2025/04/03/cooper-flagg-duke-final-four-recruitment-nba/
 
-**Gracie Abrams on Her Skin Essentials and Favorite Hair Bows**\
-`Plus: wild hops in Venice, a Catherine Opie exhibition in New York and more recommendations from T Magazine.`\
-https://nytimes.com/2025/04/03/t-magazine/gracie-abrams-beauty-bows.html
+**What is DVT? Doctors explain the blood clot affecting Lillard, Wemby and others**\
+`In light of two high-profile NBA stars suffering from blood clots, we asked doctors how they happen and if they are occurring more often.`\
+https://nytimes.com/athletic/6250063/2025/04/03/nba-dvt-blood-clots-lillard-wembanyama-doctor/
 
