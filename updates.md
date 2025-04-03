@@ -1,3 +1,7 @@
+**Trump’s De Minimis Order Poised to Upend E-Commerce**\
+`The loophole has allowed retailers to send goods from China directly to U.S. shoppers without paying tariffs. Closing it could raise consumer prices.`\
+https://nytimes.com/2025/04/03/business/trump-de-minimis-china-shipments.html
+
 **Trump’s tariffs deliver a blow to Nike’s bet on Vietnam.**\
 `Nike thought Vietnam would be a cheaper and less fraught zone for manufacturing than China. Now, all bets are off.`\
 https://nytimes.com/live/2025/04/03/business/trump-tariffs/nike-stock-tariffs-vietnam
