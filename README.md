@@ -1,3 +1,7 @@
+**Canada’s Prime Minister Puts Tariffs on U.S.-Made Cars and Predicts Global Upheaval**\
+`Mark Carney, a former central banker, also called on ‘like minded nations’ to form a new trading order without the United States.`\
+https://nytimes.com/2025/04/03/business/economy/canada-mark-carney-us-autos-tariffs.html
+
 **2026 World Cup odds: Why are reeling Brazil still ahead of Argentina?**\
 `Sam Tighe has a look at next year’s World Cup betting favourites, the best of the rest, and the dark horse picks. 
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/2025/04/03/climate/trump-tariff-clean-energy-transition.html
 **F.D.A. Layoffs Could Raise Drug Costs and Erode Food Safety**\
 `Trump cutbacks were supposedly aimed at administrators. But scientists in food and drug-testing labs and policy experts who advance generic drug approvals were also dismissed.`\
 https://nytimes.com/2025/04/03/health/fda-layoffs-food-and-drug-safety-rfk-jr.html
-
-**She Crossed a Line That Even the Saltiest Speech Should Avoid**\
-`What the controversy about Jasmine Crockett’s comments got wrong — and right`\
-https://nytimes.com/2025/04/03/opinion/jasmine-crockett-hot-wheels-code-switching.html
 

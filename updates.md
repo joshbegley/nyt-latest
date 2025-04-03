@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6251999/2025/04/03/2026-world-cup-odds-brazil-argentina/
 
+**2026 World Cup odds: Why are reeling Brazil still ahead of Argentina?**\
+`Sam Tighe has a look at next year’s World Cup betting favourites, the best of the rest, and the dark horse picks. 
+`\
+https://nytimes.com/athletic/6251999/2025/04/03/2026-world-cup-odds-brazil-argentina/
+
 **How Tariffs Could Upend the Transition to Cleaner Energy**\
 `The levies are expected to drive up costs for U.S. companies that rely on renewable energy technology from abroad and scramble supply chains worldwide.`\
 https://nytimes.com/2025/04/03/climate/trump-tariff-clean-energy-transition.html
