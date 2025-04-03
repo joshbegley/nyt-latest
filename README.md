@@ -1,4 +1,20 @@
-**Morant, Hield receive warnings fromvNBA after 'inappropriate' gestures**\
+**Even in tough loss to Thunder, Pistons show glimpses of how good team can be**\
+`The Pistons defense pressured the Thunder throughout the fourth quarter, but Detroit didn't have enough offense to topple Oklahoma City.`\
+https://nytimes.com/athletic/6252814/2025/04/03/dennis-schroder-pistons-thunder/
+
+**Paul McDonough, Whose Photographs Evoked Street Life, Dies at 84**\
+`His candid black-and-white images, prosaic yet provocative, captured the faces of a wide range of New Yorkers. He also took occasional side trips to the West.`\
+https://nytimes.com/2025/04/03/arts/paul-mcdonough-dead.html
+
+**Vietnam’s prime minister urges calm as the shock of high U.S. tariffs sinks in.**\
+`By Tung Ngo`\
+https://nytimes.com/live/2025/04/03/business/trump-tariffs/vietnams-prime-minister-urges-calm-as-the-shock-of-high-us-tariffs-sinks-in
+
+**Capital One Deal for Discover Clears Justice Dept. Hurdle**\
+`The department, during the Biden administration, initially said it had concerns about the merger of two of the largest credit card companies in the U.S.`\
+https://nytimes.com/2025/04/03/business/dealbook/capital-one-discover-merger.html
+
+**Morant, Hield receive warnings from NBA after 'inappropriate' gestures**\
 `Morant and Hield engaged in a verbal altercation that included hand gestures resembling guns during a game Tuesday. `\
 https://nytimes.com/athletic/6252893/2025/04/03/ja-morant-finger-guns-warning-nba/
 
@@ -21,20 +37,4 @@ https://nytimes.com/2025/04/03/climate/trump-tariffs-battery-storage.html
 **This Storm System Is Poised to Deliver Heavy Rain From Texas to Connecticut**\
 `Potentially “catastrophic” flash and river flooding is expected to continue as rain pummels the Central U.S. through Saturday, with the risk of more tornadoes.`\
 https://nytimes.com/2025/04/03/weather/rain-forecast-flooding-tennessee.html
-
-**Trump Will Tell You When He’s Done**\
-`From tariffs to ballots, he makes up his own rules.`\
-https://nytimes.com/2025/04/03/opinion/trump-third-term.html
-
-**Arsenal's Williams interest? Liverpool and midfielders? Guehi future? - Ask Ornstein**\
-`Once a week for an hour, The Athletic’s subscribers can ask David Ornstein for his views on anything from the world of football`\
-https://nytimes.com/athletic/6252753/2025/04/03/arsenals-nico-williams-interest-liverpool-and-midfielders-guehi-future-ask-ornstein/
-
-**This A.I. Forecast Predicts Storms Ahead**\
-`The A.I. prediction world is torn between optimism and gloom. A report released on Thursday decidedly lands on the side of gloom.`\
-https://nytimes.com/2025/04/03/technology/ai-futures-project-ai-2027.html
-
-**UK aiming to include new Man Utd stadium in 2035 Women's World Cup bid**\
-`The joint Home Nations bid was confirmed as the sole candidate for the tournament by FIFA chief Infantino at UEFA’s Congress in Belgrade.`\
-https://nytimes.com/athletic/6252625/2025/04/03/manchester-united-stadium-new-womens-world-cup/
 
