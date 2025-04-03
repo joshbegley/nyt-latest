@@ -1,3 +1,11 @@
+**Leonardo Patterson, Disgraced Dealer in Latin American Artifacts, Dies at 82**\
+`Born into rural poverty, he climbed to the top of the art market. But he fell after being convicted of selling fake and stolen items.`\
+https://nytimes.com/2025/04/03/arts/leonardo-patterson-dead.html
+
+**Chris Pappas Jumps Into 2026 Senate Race in New Hampshire**\
+`Mr. Pappas, a 44-year-old Democratic congressman, is the first major candidate to enter the race to succeed the retiring Senator Jeanne Shaheen.`\
+https://nytimes.com/2025/04/03/us/politics/chris-pappas-new-hampshire-senate.html
+
 **E.U. Prepares Major Penalties Against Elon Musk’s X**\
 `European regulators are considering fining X more than $1 billion, after weighing the risks of further antagonizing Mr. Musk and President Trump.`\
 https://nytimes.com/2025/04/03/technology/eu-penalties-x-elon-musk.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/03/arts/television/lazarus-adult-swim-anime.html
 **Oil Producers Follow Trump’s Tariffs With a Surprise Increase**\
 `Saudi Arabia and other members of the OPEC Plus group accelerated their program to put more oil on the market, adding to a sharp fall in prices.`\
 https://nytimes.com/2025/04/03/business/opec-oil-trump-tariffs.html
-
-**Trump’s Tariffs Could Threaten His ‘Energy Dominance’ Agenda**\
-`A new wave of tariffs could raise costs for energy producers, including oil and gas companies, as well as solar and wind firms.`\
-https://nytimes.com/2025/04/03/climate/trump-tariffs-energy-renewables.html
-
-**Volkswagen to Add ‘Import Fee’ to Cars Sold in U.S.**\
-`The company’s move is one of the first and clearest examples of automakers using price increases to deal with the 25 percent tariffs President Trump imposed on car and auto parts imports.`\
-https://nytimes.com/2025/04/03/business/volkswagen-auto-tariffs-trump.html
 
