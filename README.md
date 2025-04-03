@@ -1,3 +1,15 @@
+**What Is the I.C.C.? What to Know After Hungary’s Announced Withdrawal**\
+`Hungary said it would pull out of the International Criminal Court as Prime Minister Benjamin Netanyahu of Israel visited the country.`\
+https://nytimes.com/2025/04/03/world/europe/icc-international-criminal-court-what-is.html
+
+**Oil and metals prices fall on concerns about the global economy.**\
+`The combination of lower oil prices and higher costs for essential materials like steel pipe threatens to squeeze domestic oil and gas producers.`\
+https://nytimes.com/2025/04/03/business/energy-environment/oil-metals-prices-global-economy.html
+
+**Ask Ornstein Q&A: Our football insider answers your questions**\
+`Here is your opportunity to ask David Ornstein anything you want about the world of football`\
+https://nytimes.com/athletic/6252025/2025/04/03/ask-ornstein-qa-our-football-insider-answers-your-questions-23/
+
 **Europe Has Economic Power. Can It Use It Against Trump’s Tariffs?**\
 `European leaders have said they would prefer to negotiate. If that fails, their response could go beyond anything they’ve tried before.`\
 https://nytimes.com/2025/04/03/world/europe/tariffs-response-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6251907/2025/04/03/canucks-kraken-jared-mccann-nhl/
 **Premier League confirms new dates for Arsenal-Palace, Man City-Villa**\
 `The fixture amendments have created a Double Gameweek in GW33.`\
 https://nytimes.com/athletic/6252314/2025/04/03/fpl-double-gameweek-fixtures-arsenal-man-city/
-
-**For better or worse, Nuggets championship chances swing on Russell Westbrook's volatility**\
-`The Nuggets need the 2017 NBA MVP to be at his best for them to succeed in the playoffs. On Tuesday, we saw what happened when he wasn't.`\
-https://nytimes.com/athletic/6239828/2025/04/03/russell-westbrook-nuggets-nba-playoffs-hopes/
-
-**'It's really hard to believe': Kings' Andrei Kuzmenko is surprising everyone since the trade**\
-`A low-cost, low-risk addition before the trade deadline, Kuzmenko has impressed at both ends of the ice.`\
-https://nytimes.com/athletic/6251001/2025/04/03/kings-kuzmenko-trade-hiller/
-
-**Bruce Springsteen Will Release Seven ‘Lost Albums’ in June**\
-`The singer and songwriter announced a boxed set featuring 83 songs, of which 74 have never been officially released in any form.`\
-https://nytimes.com/2025/04/03/arts/music/bruce-springsteen-tracks-ii-the-lost-albums.html
 
