@@ -1,3 +1,15 @@
+**Morant, Hield receive warnings fromvNBA after 'inappropriate' gestures**\
+`Morant and Hield engaged in a verbal altercation that included hand gestures resembling guns during a game Tuesday. `\
+https://nytimes.com/athletic/6252893/2025/04/03/ja-morant-finger-guns-warning-nba/
+
+**In ‘The Bondsman,’ Kevin Bacon Goes to Hell and Back**\
+`The actor stars as the title character in this new horror comedy series, playing a man charged with tracking down escaped demons.`\
+https://nytimes.com/2025/04/03/arts/television/the-bondsman-kevin-bacon.html
+
+**An app helps Italians to shop local after Trump imposes tariffs.**\
+`By reading country-of-origin information, the app helps consumers make better decisions, its proposers say.`\
+https://nytimes.com/live/2025/04/03/business/trump-tariffs/an-app-helps-italians-to-shop-local-after-trump-imposes-tariffs
+
 **Ex-Yankees Player Brett Gardner’s Son Died From Carbon Monoxide, Officials Say**\
 `Miller Gardner, who was 14, died last month at a resort in Costa Rica.`\
 https://nytimes.com/2025/04/03/world/americas/miller-gardner-carbon-monoxide-poisoning-cause-death.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/03/technology/ai-futures-project-ai-2027.html
 **UK aiming to include new Man Utd stadium in 2035 Women's World Cup bid**\
 `The joint Home Nations bid was confirmed as the sole candidate for the tournament by FIFA chief Infantino at UEFA’s Congress in Belgrade.`\
 https://nytimes.com/athletic/6252625/2025/04/03/manchester-united-stadium-new-womens-world-cup/
-
-**More Penguins Than People: Trump Imposes Tariffs on Remote Islands**\
-`Some of the more sparsely populated territories in the world that do little trade with the United States have been caught up in the trade war.`\
-https://nytimes.com/2025/04/03/business/economy/trump-tariffs-uninhabited-islands.html
-
-**Scientists Reveal the Hairy Truth About Giant Ground Sloths**\
-`New research painted a more accurate picture of the megafauna that spread widely around the Americas before they went extinct.`\
-https://nytimes.com/2025/04/03/science/giant-sloths-hair-fur.html
-
-**Trump’s Tariffs Hit Garment Makers in Bangladesh and Sri Lanka Hard**\
-`The industry supplies low-cost clothing to the United States, and is a crucial part of the Asian countries’ economies.`\
-https://nytimes.com/2025/04/03/business/economy/trumps-tariffs-bangladesh-sri-lanka.html
 
