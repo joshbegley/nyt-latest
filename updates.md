@@ -1,3 +1,11 @@
+**Senate Confirms Dr. Oz to Oversee Medicare and Medicaid**\
+`The TV celebrity doctor, a cardiothoracic surgeon, will take the reins at a time when the agency is facing cutbacks, especially for the poor, and scrutiny of its missions.`\
+https://nytimes.com/2025/04/03/health/dr-mehmet-oz-senate-confirmation.html
+
+**Bears bringing on veteran QB Case Keenum to mentor Caleb Williams**\
+`Keenum comes to Chicago with 66 career NFL starts, including two for the Texans in 2023.`\
+https://nytimes.com/athletic/6253993/2025/04/03/case-keenum-bears-contract-caleb-williams/
+
 **How Will She Teach Pilates in an Ankle Monitor?**\
 `Convicted of fraud and facing the possibility of decades in prison, Charlie Javice was concerned about how a monitoring device would affect her job.`\
 https://nytimes.com/2025/04/03/style/charlie-javice-ankle-monitor-pilates.html

@@ -1,3 +1,11 @@
+**Senate Confirms Dr. Oz to Oversee Medicare and Medicaid**\
+`The TV celebrity doctor, a cardiothoracic surgeon, will take the reins at a time when the agency is facing cutbacks, especially for the poor, and scrutiny of its missions.`\
+https://nytimes.com/2025/04/03/health/dr-mehmet-oz-senate-confirmation.html
+
+**Bears bringing on veteran QB Case Keenum to mentor Caleb Williams**\
+`Keenum comes to Chicago with 66 career NFL starts, including two for the Texans in 2023.`\
+https://nytimes.com/athletic/6253993/2025/04/03/case-keenum-bears-contract-caleb-williams/
+
 **How Will She Teach Pilates in an Ankle Monitor?**\
 `Convicted of fraud and facing the possibility of decades in prison, Charlie Javice was concerned about how a monitoring device would affect her job.`\
 https://nytimes.com/2025/04/03/style/charlie-javice-ankle-monitor-pilates.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/03/business/media/john-thornton-dead.html
 **Trump Supports Proxy Voting for New Parents in Congress, a Blow to Johnson**\
 `The president’s comment was a rare instance in which he and House Speaker Mike Johnson were not on the same side of an issue.`\
 https://nytimes.com/2025/04/03/us/politics/proxy-voting-trump-congress-luna.html
-
-**Tufts Student Held by ICE Asks Court to Return Her Case to Massachusetts**\
-`After being picked up in Massachusetts, Rumeysa Ozturk was moved to a detention center in Louisiana, where the government wants to argue its case to deport her.`\
-https://nytimes.com/2025/04/03/us/tufts-student-deportation-ice.html
-
-**Judge Blocks H.H.S. From Terminating $11 Billion in Public Health Grants**\
-`A coalition of states sued over the Trump administration’s unexpected move to cut off the funds, which they said imperiled everything from childhood vaccination programs to opioid addiction treatment.`\
-https://nytimes.com/2025/04/03/us/politics/hhs-public-health-grants-judge.html
 
