@@ -1,3 +1,7 @@
+**Barcelona want a new striker - but can they really do better than Ferran Torres?**\
+`A 'shark mentality' is fuelling the forward's best season at the club and suggests he could be Lewandowski's successor`\
+https://nytimes.com/athletic/6251326/2025/04/03/barcelona-striker-transfer-ferran-torres/
+
 **How the Canucks got shellacked in a loss that all but kills their playoff hopes: 3 takeaways**\
 `The Canucks' chances of making the playoffs were already a massive long shot before facing the Seattle Kraken.`\
 https://nytimes.com/athletic/6251581/2025/04/03/canucks-loss-kills-playoff-hopes-kraken/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/04/03/business/trump-tariffs
 **Five red cards and a pinched nose: Another wild night for Mourinho at Fenerbahce**\
 `If Mourinho does leave Fenerbahce this summer he can at least do so knowing he was true to himself`\
 https://nytimes.com/athletic/6251040/2025/04/03/jose-mourinho-fenerbahce-galatasary-mayhem/
-
-**China assails Trump’s new tariffs and vows retaliation.**\
-`By David Pierson`\
-https://nytimes.com/live/2025/04/03/business/trump-tariffs/china-assails-trumps-new-tariffs-and-vows-retaliation
 
