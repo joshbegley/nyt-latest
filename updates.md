@@ -1,3 +1,7 @@
+**South Korean Actor Denies Dating a Minor**\
+`Kim Soo-hyun, one of Korea’s most famous actors, was in tears as he denied allegations of dating the actress Kim Sae-ron when she was a minor. Ms. Kim, 24, died by suicide this year.`\
+https://nytimes.com/video/world/asia/100000010089154/kim-sae-ron-suicide-soo-hyun.html
+
 **Franca's Crystal Palace career finally has lift-off - so what comes next?**\
 `The Brazilian has had a trying time in England but a crucial equaliser at Southampton could be the spark he needs`\
 https://nytimes.com/athletic/6240496/2025/04/03/matheus-franca-crystal-palace-goal/
