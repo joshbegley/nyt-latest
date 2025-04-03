@@ -1,3 +1,7 @@
+**Wild pick up another point on a night of endless turnovers: 3 takeaways**\
+`Gustav Nyquist scored his first goal in this stint with the Wild and Marco Rossi tied the game in the third, but the Rangers got the win.`\
+https://nytimes.com/athletic/6251188/2025/04/02/wild-rossi-turnovers-kaprizov-rangers/
+
 **Maple Leafs clinch postseason berth for NHL-leading ninth consecutive season**\
 `At nine years, the Leafs hold the NHL's longest active postseason streak.`\
 https://nytimes.com/athletic/6247164/2025/04/02/maple-leafs-playoffs-clinch-nhl/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/04/02/business/trump-tariffs-liberation-day/presid
 **Trump Administration Demands Additional Cuts at C.D.C.**\
 `In addition to reductions at agency personnel, federal regulators are demanding $2.9 billion in contract cancellations, The Times has learned.`\
 https://nytimes.com/2025/04/02/health/cdc-tump-health.html
-
-**Alex Ovechkin 3 goals from breaking Wayne Gretzky's record with No. 892**\
-`The Washington Capitals superstar continues to close in on Gretzky’s long-standing record of 894 career NHL goals.`\
-https://nytimes.com/athletic/6250105/2025/04/02/ovechkin-goals-record-gretzky-892/
 
