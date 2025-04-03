@@ -1,3 +1,11 @@
+**Liam Lawson's confidence suggests his Formula One future could still be bright**\
+`Liam Lawson seemed self-assured as he navigated questions about his demotion from Red Bull`\
+https://nytimes.com/athletic/6251973/2025/04/03/liam-lawson-racing-bulls-f1-red-bull-demotion/
+
+**The Pulse: Shohei magic**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6250338/2025/04/03/ohtani-walkoff-the-pulse/
+
 **Ignoring Protests, Thailand Opens Door to Myanmar’s Military Leader**\
 `Senior General Min Aung Hlaing, who has long been treated like a pariah on the global stage, is visiting Bangkok barely a week after an earthquake that killed at least 3,000 people in his country.`\
 https://nytimes.com/2025/04/03/world/asia/myanmar-general-earthquake.html

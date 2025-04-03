@@ -1,3 +1,11 @@
+**Liam Lawson's confidence suggests his Formula One future could still be bright**\
+`Liam Lawson seemed self-assured as he navigated questions about his demotion from Red Bull`\
+https://nytimes.com/athletic/6251973/2025/04/03/liam-lawson-racing-bulls-f1-red-bull-demotion/
+
+**The Pulse: Shohei magic**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6250338/2025/04/03/ohtani-walkoff-the-pulse/
+
 **Ignoring Protests, Thailand Opens Door to Myanmar’s Military Leader**\
 `Senior General Min Aung Hlaing, who has long been treated like a pariah on the global stage, is visiting Bangkok barely a week after an earthquake that killed at least 3,000 people in his country.`\
 https://nytimes.com/2025/04/03/world/asia/myanmar-general-earthquake.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6251712/2025/04/03/maple-leafs-stolarz-playoffs-blu
 **Tarik Skubal, Colt Keith and an out-of-rhythm road trip: 6 Tigers takeaways**\
 `Skubal's stuff is there, but the execution still needs work. Meanwhile, Jackson Jobe is nasty.`\
 https://nytimes.com/athletic/6251295/2025/04/03/detroit-tigers-road-trip-tarik-skubal/
-
-**When Cooper Flagg chose Duke, it brought Jon Scheyer to tears. Is a fabled finish in store?**\
-`Duke is on the precipice of doing just what Cooper Flagg and Jon Scheyer dreamed about many months ago when the star committed.`\
-https://nytimes.com/athletic/6250116/2025/04/03/cooper-flagg-duke-final-four-recruitment-nba/
-
-**What is DVT? Doctors explain the blood clot affecting Lillard, Wemby and others**\
-`In light of two high-profile NBA stars suffering from blood clots, we asked doctors how they happen and if they are occurring more often.`\
-https://nytimes.com/athletic/6250063/2025/04/03/nba-dvt-blood-clots-lillard-wembanyama-doctor/
 
