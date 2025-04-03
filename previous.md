@@ -1,3 +1,11 @@
+**John Thornton, 59, Dies; Financier Helped Revive Local Journalism**\
+`An idealist, he founded The Texas Tribune, a model for nonprofit grass-roots news organizations nationwide, and the American Journalism Project, which supports them.`\
+https://nytimes.com/2025/04/03/business/media/john-thornton-dead.html
+
+**Trump Supports Proxy Voting for New Parents in Congress, a Blow to Johnson**\
+`The president’s comment was a rare instance in which he and House Speaker Mike Johnson were not on the same side of an issue.`\
+https://nytimes.com/2025/04/03/us/politics/proxy-voting-trump-congress-luna.html
+
 **Tufts Student Held by ICE Asks Court to Return Her Case to Massachusetts**\
 `After being picked up in Massachusetts, Rumeysa Ozturk was moved to a detention center in Louisiana, where the government wants to argue its case to deport her.`\
 https://nytimes.com/2025/04/03/us/tufts-student-deportation-ice.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6253664/2025/04/03/trey-mcbride-arizona-cardinals-e
 **Some of Nashville’s Tornado Sirens Run Out of Battery**\
 `At least one siren in the southwestern part of the city was still out of service, and the Fire Department did not say how long repairs would take.`\
 https://nytimes.com/2025/04/03/weather/tornado-sirens-nashville.html
-
-**‘Fair Likelihood’ Trump Administration Violated Court Order, Judge Says**\
-`The judge, James E. Boasberg, said he was likely to wait until next week to rule on whether the White House was in contempt of court for having ignored his order.`\
-https://nytimes.com/2025/04/03/us/politics/trump-deportations-venezuela-judge-boasberg.html
-
-**One Bird Nest, 30 Years of Human Trash**\
-`A coot’s nest reveals that what humans throw away doesn’t really go away.`\
-https://nytimes.com/interactive/2025/04/03/science/bird-nest-litter.html
 

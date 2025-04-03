@@ -1,3 +1,11 @@
+**John Thornton, 59, Dies; Financier Helped Revive Local Journalism**\
+`An idealist, he founded The Texas Tribune, a model for nonprofit grass-roots news organizations nationwide, and the American Journalism Project, which supports them.`\
+https://nytimes.com/2025/04/03/business/media/john-thornton-dead.html
+
+**Trump Supports Proxy Voting for New Parents in Congress, a Blow to Johnson**\
+`The president’s comment was a rare instance in which he and House Speaker Mike Johnson were not on the same side of an issue.`\
+https://nytimes.com/2025/04/03/us/politics/proxy-voting-trump-congress-luna.html
+
 **Tufts Student Held by ICE Asks Court to Return Her Case to Massachusetts**\
 `After being picked up in Massachusetts, Rumeysa Ozturk was moved to a detention center in Louisiana, where the government wants to argue its case to deport her.`\
 https://nytimes.com/2025/04/03/us/tufts-student-deportation-ice.html
