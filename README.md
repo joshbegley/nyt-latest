@@ -1,3 +1,15 @@
+**Trump Took a Wrecking Ball to Southeast Asia’s Role as an Alternative to China**\
+`Punishing tariffs on Vietnam, Cambodia, Thailand and others in the region threaten their position as major manufacturing hubs for the American market.`\
+https://nytimes.com/2025/04/03/business/trump-tariffs-vietnam-southeast-asia.html
+
+**FIFA president Infantino hopeful on Russia return to football 'soon'**\
+`Infantino said he was hoping for Russia's football return as this would signify that the war was over and "everything was solved".`\
+https://nytimes.com/athletic/6252289/2025/04/03/fifa-president-gianni-infantino-hopeful-on-russia-return-to-football-soon/
+
+**Live Updates: Tornadoes and Flooding Hit South and Midwest**\
+`At least two people were killed in Tennessee, officials said, and millions were under severe weather advisories. Flooding was reported in Nashville.`\
+https://nytimes.com/live/2025/04/03/weather/midwest-storms-tornado
+
 **Israel Hits Syria With New Strikes and Ground Raid as Tensions Soar**\
 `Israel defended the moves as necessary security measures, but Syria accused it of trying to destabilize the country.`\
 https://nytimes.com/2025/04/03/world/middleeast/israel-syria-airstrikes-ground-operation.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6252092/2025/04/03/yuki-tsunoda-red-bull-first-week
 **Calum Ritchie wants to be great. A former Islanders player is helping him get there**\
 `Three years after retiring from the NHL, Andrew Ladd is helping New York's top prospect as a private mental performance coach.`\
 https://nytimes.com/athletic/6247166/2025/04/03/calum-ritchie-islanders-prospect-andrew-ladd/
-
-**Blues power rankings: The stare, 10-game winning streak, Jobu and more**\
-`Jobu, the voodoo doll from the 1989 movie "Major League," might be behind the Blues' incredible run after the 4 Nations Face-Off.`\
-https://nytimes.com/athletic/6246903/2025/04/03/blues-winning-streak-rankings-jobu/
-
-**The Fallout From Trump’s Reign of Tariffs**\
-`Global markets were in a tailspin on Thursday as policymakers and trade partners expressed dismay over president’s latest trade-war salvo.`\
-https://nytimes.com/2025/04/03/business/dealbook/trumps-tariffs-global-reaction.html
-
-**Why Did Trump Spare Russia From New Tariffs?**\
-`The Trump administration says sanctions imposed on Moscow mean the U.S. does little trade with Russia, but questions persist about the motivations.`\
-https://nytimes.com/2025/04/03/business/economy/russia-us-tariffs-trump.html
 
