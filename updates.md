@@ -1,3 +1,19 @@
+**Following Immigration Changes Far From Border**\
+`A reporter shares the shifts she’s seen unfold since the start of the second Trump term.`\
+https://nytimes.com/2025/04/03/insider/following-immigration-changes-far-from-border.html
+
+**A Swastika, a Tesla and a Debate Over the Limits of Hate Crime Law**\
+`Is it a hate crime for people to draw a swastika on a Tesla if they believe Elon Musk is a Nazi?`\
+https://nytimes.com/2025/04/03/nyregion/tesla-vandalism-hate-crimes.html
+
+**How Online Rage Invaded a Victorian-Era Intellectual Retreat**\
+`Charges of antisemitism and liberal bias and dismay over cuts to the opera budget have led to a small mutiny at Chautauqua Institution. And this was after the attack on Salman Rushdie.`\
+https://nytimes.com/2025/04/03/nyregion/chautauqua-institution-salman-rushdie.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/04/03/crosswords/spelling-bee-forum.html
+
 **South Korean Actor Denies Dating a Minor**\
 `Kim Soo-hyun, one of Korea’s most famous actors, was in tears as he denied allegations of dating the actress Kim Sae-ron when she was a minor. Ms. Kim, 24, died by suicide this year.`\
 https://nytimes.com/video/world/asia/100000010089154/kim-sae-ron-suicide-soo-hyun.html
