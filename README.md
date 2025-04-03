@@ -1,3 +1,7 @@
+**South Korean Actor Denies Dating a Minor**\
+`Kim Soo-hyun, one of Korea’s most famous actors, was in tears as he denied allegations of dating the actress Kim Sae-ron when she was a minor. Ms. Kim, 24, died by suicide this year.`\
+https://nytimes.com/video/world/asia/100000010089154/kim-sae-ron-suicide-soo-hyun.html
+
 **Franca's Crystal Palace career finally has lift-off - so what comes next?**\
 `The Brazilian has had a trying time in England but a crucial equaliser at Southampton could be the spark he needs`\
 https://nytimes.com/athletic/6240496/2025/04/03/matheus-franca-crystal-palace-goal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6243917/2025/04/03/united-states-canada-mexico-worl
 **Word of the Day: flaxen**\
 `This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/04/03/learning/word-of-the-day-flaxen.html
-
-**Everton are revived under Moyes but Liverpool show how much work is still to be done**\
-`The manager's return may have transformed their fortunes but one thing remains constant - Moyes' inability to get a result at Anfield`\
-https://nytimes.com/athletic/6251254/2025/04/03/everton-david-moyes-liverpool-anfield/
 
