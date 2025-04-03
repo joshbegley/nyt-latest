@@ -1,3 +1,11 @@
+**Tuesdays with Wooden: How visits with legendary UCLA coach shaped Cori Close's Final Four path**\
+`As UCLA marches toward a national title, Close keeps UCLA legend John Wooden's lessons close to her heart.`\
+https://nytimes.com/athletic/6251327/2025/04/03/ucla-cori-close-john-wooden-final-four/
+
+**Trump’s Tariffs Pose a New Threat for Germany’s Stagnant Economy**\
+`President Trump’s trade war adds another challenge to the incoming government’s attempts to revive Europe’s biggest economy.`\
+https://nytimes.com/2025/04/03/business/economy/germany-trump-tariffs-economy.html
+
 **Liam Lawson's confidence suggests his Formula One future could still be bright**\
 `Liam Lawson seemed self-assured as he navigated questions about his demotion from Red Bull`\
 https://nytimes.com/athletic/6251973/2025/04/03/liam-lawson-racing-bulls-f1-red-bull-demotion/

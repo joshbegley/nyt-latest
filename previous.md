@@ -1,3 +1,11 @@
+**Tuesdays with Wooden: How visits with legendary UCLA coach shaped Cori Close's Final Four path**\
+`As UCLA marches toward a national title, Close keeps UCLA legend John Wooden's lessons close to her heart.`\
+https://nytimes.com/athletic/6251327/2025/04/03/ucla-cori-close-john-wooden-final-four/
+
+**Trump’s Tariffs Pose a New Threat for Germany’s Stagnant Economy**\
+`President Trump’s trade war adds another challenge to the incoming government’s attempts to revive Europe’s biggest economy.`\
+https://nytimes.com/2025/04/03/business/economy/germany-trump-tariffs-economy.html
+
 **Liam Lawson's confidence suggests his Formula One future could still be bright**\
 `Liam Lawson seemed self-assured as he navigated questions about his demotion from Red Bull`\
 https://nytimes.com/athletic/6251973/2025/04/03/liam-lawson-racing-bulls-f1-red-bull-demotion/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6250250/2025/04/03/college-football-most-popular-te
 **Can a new coach bring Wisconsin women's basketball back from the wilderness?**\
 `Wisconsin has not qualified for the NCAA Tournament since 2010. In the ensuing 15 seasons, every other Big Ten team made it at least twice.`\
 https://nytimes.com/athletic/6250557/2025/04/03/wisconsin-womens-basketball-robin-pingeton/
-
-**Leafs showed blueprint for playoff success vs. Panthers: 'That’s what championship teams do'**\
-`Anthony Stolarz won a Cup with the Panthers last season. With the Leafs, he likes what he saw in a battle of Atlantic Division rivals.`\
-https://nytimes.com/athletic/6251712/2025/04/03/maple-leafs-stolarz-playoffs-blueprint-panthers/
-
-**Tarik Skubal, Colt Keith and an out-of-rhythm road trip: 6 Tigers takeaways**\
-`Skubal's stuff is there, but the execution still needs work. Meanwhile, Jackson Jobe is nasty.`\
-https://nytimes.com/athletic/6251295/2025/04/03/detroit-tigers-road-trip-tarik-skubal/
 
