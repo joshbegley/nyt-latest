@@ -1,3 +1,19 @@
+**NBA Awards Watch: Are All-NBA and other honors bad for your favorite team?**\
+`We have new front-runners for a couple of individual races, though things could change over the season's final week.`\
+https://nytimes.com/athletic/6146457/2025/04/03/all-nba-predictions-odds-awards-watch-2025/
+
+**‘It Had Teeth’: A 3-Year-Old Discovers Ancient Treasure in Israel**\
+`While on a hike with her family, a child stumbled across a 3,800-year-old Egyptian amulet. It will go on display in an upcoming exhibition.`\
+https://nytimes.com/2025/04/03/world/middleeast/child-ancient-discovery-israel.html
+
+**As Wall Street sags, Lutnick says American markets will eventually do ‘extremely well.’**\
+`By Ana Swanson and Joe Rennison`\
+https://nytimes.com/live/2025/04/03/business/trump-tariffs/as-wall-street-sags-lutnick-says-american-markets-will-eventually-do-extremely-well
+
+**Trump Administration Threatens to Withhold Funds From Public Schools**\
+`State education officials will be required to verify that they have eliminated all programs that promote diversity, equity and inclusion that the administration deems unlawful, according to a new memo.`\
+https://nytimes.com/2025/04/03/us/politics/public-school-funding-trump-dei.html
+
 **Cowboys acquiring QB Joe Milton from Patriots: Source**\
 `Milton brings depth and upside to the Cowboys' QB depth chart that before only included Dak Prescott and Will Grier.`\
 https://nytimes.com/athletic/6252299/2025/04/03/joe-milton-cowboys-patriots-trade/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6249234/2025/04/03/dani-olmo-pau-victor-license-app
 **How to Become Trump’s ‘Favorite President’: Nonstop Praise.**\
 `Javier Milei of Argentina might not be that useful for the United States on economics or geopolitics — but he can help to fight the culture wars.`\
 https://nytimes.com/2025/04/03/world/americas/argentina-javier-milei-trump.html
-
-**Prosecutors Move to Revoke Young Thug’s Probation After Social Media Post**\
-`The district attorney’s office in Fulton County, Ga., cited a post in which the rapper referred to a gang investigator as the “Biggest liar in the DA office.”`\
-https://nytimes.com/2025/04/03/arts/music/young-thug-probation.html
-
-**The Bounce: Did Ja Morant do something bad? Plus, revisiting good NBA preseason predictions**\
-`Is Ja Morant getting into familiar trouble? And how well did Zach Harper's best preseason predictions age?`\
-https://nytimes.com/athletic/6252273/2025/04/03/ja-morant-grizzlies-nba-preseason-predictions-the-bounce/
-
-**Arizona Cardinals NFL Draft Big Board: Five players who make sense in each round**\
-`The Cardinals enter the draft with six picks: 16, 47, 78, 115, 152 and 225. Let's look at some possibilities.`\
-https://nytimes.com/athletic/6251414/2025/04/03/arizona-cardinals-nfl-draft-picks-big-board/
-
-**Schar signs new one-year Newcastle contract until 2026**\
-`Schar's previous deal was set to expire during the summer, but a 12-month extension has now been signed.`\
-https://nytimes.com/athletic/6252411/2025/04/03/newcastle-fabian-schar-contract-update-confirmed/
 
