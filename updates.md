@@ -1,3 +1,7 @@
+**Trump’s Tariffs: Anxiety and Assent**\
+`Readers react to news of the president’s move to reshape global trade.`\
+https://nytimes.com/2025/04/03/opinion/letters/trump-tariffs-reaction.html
+
 **Trump’s De Minimis Order Poised to Upend E-Commerce**\
 `The loophole has allowed retailers to send goods from China directly to U.S. shoppers without paying tariffs. Closing it could raise consumer prices.`\
 https://nytimes.com/2025/04/03/business/trump-de-minimis-china-shipments.html

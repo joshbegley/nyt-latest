@@ -1,3 +1,7 @@
+**Until Saturday: CFB's most popular team is ...**\
+`Until Saturday is The Athletic's college football newsletter.`\
+https://nytimes.com/athletic/6253344/2025/04/03/college-football-most-popular-team-until-saturday/
+
 **Trump’s Tariffs: Anxiety and Assent**\
 `Readers react to news of the president’s move to reshape global trade.`\
 https://nytimes.com/2025/04/03/opinion/letters/trump-tariffs-reaction.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6252679/2025/04/03/west-brom-fan-death-hillsborough
 **How Much Will Trump’s Tariffs Cost U.S. Importers?**\
 `It will cost an extra $714 billion in tariffs to bring shoes, TVs and all other imports into the United States, a new analysis of trade data shows.`\
 https://nytimes.com/interactive/2025/04/03/business/economy/trump-tariffs-us-imports.html
-
-**Garbage Strike Leaves Rotting Trash Piling Up in Major British City**\
-`A pay strike by garbage collectors in Birmingham, Britain’s second-largest city, has left 17,000 tons of rotting trash on its streets, raising public health concerns.`\
-https://nytimes.com/video/world/europe/100000010087142/birmingham-trash-garbage-strike.html
 

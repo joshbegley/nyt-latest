@@ -1,3 +1,7 @@
+**Trump’s Tariffs: Anxiety and Assent**\
+`Readers react to news of the president’s move to reshape global trade.`\
+https://nytimes.com/2025/04/03/opinion/letters/trump-tariffs-reaction.html
+
 **Trump’s De Minimis Order Poised to Upend E-Commerce**\
 `The loophole has allowed retailers to send goods from China directly to U.S. shoppers without paying tariffs. Closing it could raise consumer prices.`\
 https://nytimes.com/2025/04/03/business/trump-de-minimis-china-shipments.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/04/03/business/economy/trump-tariffs-us-imp
 **Garbage Strike Leaves Rotting Trash Piling Up in Major British City**\
 `A pay strike by garbage collectors in Birmingham, Britain’s second-largest city, has left 17,000 tons of rotting trash on its streets, raising public health concerns.`\
 https://nytimes.com/video/world/europe/100000010087142/birmingham-trash-garbage-strike.html
-
-**Fantasy baseball bullpen report: A demotion in Pittsburgh, a saves sleeper in Cincy**\
-`We're only a week into the 2025 regular season, but Greg Jewett has plenty to talk about in terms of notable MLB bullpen movement. `\
-https://nytimes.com/athletic/6252778/2025/04/03/fantasy-baseball-2025-bullpen-report-saves-sleeper/
 
