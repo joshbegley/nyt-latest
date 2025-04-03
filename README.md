@@ -30,7 +30,7 @@ https://nytimes.com/2025/04/02/business/economy/trump-tariff-rates-calculation.h
 `Several residents reported seeing a tornado in Potosi, Mo., part of a region in the Central United States that the National Weather Service warned could be deluged with tornadoes and floods in the coming days.`\
 https://nytimes.com/video/weather/100000010088923/severe-storms-tornado-missouri.html
 
-**Giants look the part of a 'good team' in uniquely successful opening road trip**\
+**Giants look the part of a 'good team' in uniquely successful opening trip**\
 `Good teams win on the road and win in different ways. The Giants showed they were capable of doing both, taking two road series on the trip.`\
 https://nytimes.com/athletic/6248748/2025/04/02/sf-giants-opening-road-trip-history/
 
