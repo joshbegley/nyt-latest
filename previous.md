@@ -1,3 +1,7 @@
+**The Trade War Begins**\
+`We explain the sweeping tariff announcement and the world’s reaction.`\
+https://nytimes.com/2025/04/03/briefing/the-trade-war-begins.html
+
 **Tuesdays with Wooden: How visits with legendary UCLA coach shaped Cori Close's Final Four path**\
 `As UCLA marches toward a national title, Close keeps UCLA legend John Wooden's lessons close to her heart.`\
 https://nytimes.com/athletic/6251327/2025/04/03/ucla-cori-close-john-wooden-final-four/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6244284/2025/04/03/nfl-free-agency-2025-nfc-execs-b
 **Who is college football's most popular team? An unscientific investigation**\
 `We looked at tickets, revenue, social media and more to investigate an unanswerable question: Which college football team has the most fans?`\
 https://nytimes.com/athletic/6250250/2025/04/03/college-football-most-popular-team-fans/
-
-**Can a new coach bring Wisconsin women's basketball back from the wilderness?**\
-`Wisconsin has not qualified for the NCAA Tournament since 2010. In the ensuing 15 seasons, every other Big Ten team made it at least twice.`\
-https://nytimes.com/athletic/6250557/2025/04/03/wisconsin-womens-basketball-robin-pingeton/
 

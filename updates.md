@@ -1,3 +1,7 @@
+**The Trade War Begins**\
+`We explain the sweeping tariff announcement and the world’s reaction.`\
+https://nytimes.com/2025/04/03/briefing/the-trade-war-begins.html
+
 **Tuesdays with Wooden: How visits with legendary UCLA coach shaped Cori Close's Final Four path**\
 `As UCLA marches toward a national title, Close keeps UCLA legend John Wooden's lessons close to her heart.`\
 https://nytimes.com/athletic/6251327/2025/04/03/ucla-cori-close-john-wooden-final-four/
