@@ -1,3 +1,7 @@
+**Ford Offers Discounts on Cars and Trucks as Auto Tariffs Kick In**\
+`The company said it would offer customers the same prices it offers its employees on most of its vehicles.`\
+https://nytimes.com/2025/04/03/business/economy/ford-discounts-auto-tariffs.html
+
 **If the NBA playoffs started today: The matchups and what to expect in each series**\
 `The rest of the season (and Play-In) could shake things up, but as of now, some intriguing first-round series loom.`\
 https://nytimes.com/athletic/6251570/2025/04/03/nba-playoffs-matchups-2025/
