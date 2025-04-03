@@ -1,3 +1,7 @@
+**Rangers overcome their mistakes, earn 2 big points in Gabe Perreault's NHL debut: 4 takeaways**\
+`The Rangers' 5-4 OT win over Minnesota put them back on the Canadiens' heels in the chase for the last playoff spot.`\
+https://nytimes.com/athletic/6251523/2025/04/02/rangers-gabe-perreault-nhl-debut/
+
 **Maple Leafs report cards: First line steps up to beat division rival Panthers**\
 `The Leafs clinched a playoff berth with the win in a tight-checking game.`\
 https://nytimes.com/athletic/6251571/2025/04/02/maple-leafs-report-cards-marner-nylander-panthers/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/02/crosswords/daily-puzzle-2025-04-03.html
 **How Are Trump’s Tariff Rates Calculated?**\
 `The answer appears to begin with the total trade deficit America runs with its trading partners.`\
 https://nytimes.com/2025/04/02/business/economy/trump-tariff-rates-calculation.html
-
-**Tornado Touches Down in Missouri Amid Powerful Storm System**\
-`Several residents reported seeing a tornado in Potosi, Mo., part of a region in the Central United States that the National Weather Service warned could be deluged with tornadoes and floods in the coming days.`\
-https://nytimes.com/video/weather/100000010088923/severe-storms-tornado-missouri.html
 

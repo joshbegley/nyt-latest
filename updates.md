@@ -1,3 +1,7 @@
+**Rangers overcome their mistakes, earn 2 big points in Gabe Perreault's NHL debut: 4 takeaways**\
+`The Rangers' 5-4 OT win over Minnesota put them back on the Canadiens' heels in the chase for the last playoff spot.`\
+https://nytimes.com/athletic/6251523/2025/04/02/rangers-gabe-perreault-nhl-debut/
+
 **Maple Leafs report cards: First line steps up to beat division rival Panthers**\
 `The Leafs clinched a playoff berth with the win in a tight-checking game.`\
 https://nytimes.com/athletic/6251571/2025/04/02/maple-leafs-report-cards-marner-nylander-panthers/

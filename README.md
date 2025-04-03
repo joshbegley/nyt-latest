@@ -1,3 +1,7 @@
+**Accusations Fly in South Korean Dating Scandal After Actress’s Suicide**\
+`The death of the actress Kim Sae-ron has plunged her former boyfriend, the superstar actor Kim Soo-hyun, into the biggest crisis of his career.`\
+https://nytimes.com/2025/04/02/world/asia/kim-sae-ron-suicide-soo-hyun.html
+
 **Rangers overcome their mistakes, earn 2 big points in Gabe Perreault's NHL debut: 4 takeaways**\
 `The Rangers' 5-4 OT win over Minnesota put them back on the Canadiens' heels in the chase for the last playoff spot.`\
 https://nytimes.com/athletic/6251523/2025/04/02/rangers-gabe-perreault-nhl-debut/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/02/theater/the-cherry-orchard-review-st-anns-warehou
 **Sourced From the Alps**\
 `Hanh Huynh’s puzzle gives main-character energy.`\
 https://nytimes.com/2025/04/02/crosswords/daily-puzzle-2025-04-03.html
-
-**How Are Trump’s Tariff Rates Calculated?**\
-`The answer appears to begin with the total trade deficit America runs with its trading partners.`\
-https://nytimes.com/2025/04/02/business/economy/trump-tariff-rates-calculation.html
 
