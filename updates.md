@@ -1,3 +1,7 @@
+**The Windup: Why 2 young stars signed extensions *now***\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6251726/2025/04/03/merrill-campbell-contract-extension-the-windup/
+
 **Steve Rattner on Just How Bad Things Will Get Under Trump’s Tariffs**\
 `And what business executives are saying behind closed doors.`\
 https://nytimes.com/2025/04/03/opinion/trump-tariffs-economy.html
