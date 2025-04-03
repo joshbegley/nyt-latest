@@ -7,7 +7,7 @@ https://nytimes.com/video/weather/100000010088923/severe-storms-tornado-missouri
 https://nytimes.com/athletic/6248748/2025/04/02/sf-giants-opening-road-trip-history/
 
 **Tornadoes Reported in South and Midwest Amid Powerful Storm System**\
-`Millions of people across several states were under tornado warnings and watches on Wednesday.`\
+`Millions of people across several states were at risk of tornadoes and other severe weather on Wednesday.`\
 https://nytimes.com/2025/04/02/weather/tornado-storms-midwest-weather.html
 
 **President Trump scraps tax loophole on low-cost goods.**\
