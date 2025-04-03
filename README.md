@@ -1,3 +1,7 @@
+**Pete Alonso's power making up for Mets' outages elsewhere: 3 takeaways**\
+`Luis Torrens continued his stellar sub role against Miami, while the New York bullpen is showing surprising depth.`\
+https://nytimes.com/athletic/6251622/2025/04/02/new-york-mets-pete-alonso-bullpen/
+
 **Netanyahu Arrives in Hungary, Finding a Rare Welcome in Europe**\
 `The visit comes as the Israeli prime minister faces an arrest warrant against him by the International Criminal Court.`\
 https://nytimes.com/2025/04/02/world/middleeast/netanyahu-hungary-orban.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6251488/2025/04/02/rockets-nba-playoff-spot-2025/
 **Twins takeaways from win over White Sox, a first series victory worth the wait**\
 `Takeaways on Carlos Correa, Byron Buxton, Pablo López and Ty France. Plus, what do players do during a three-hour, 20-minute rain delay?`\
 https://nytimes.com/athletic/6251430/2025/04/02/twins-white-sox-takeaways-correa-buxton-rain-delay/
-
-**Wild pick up another point on a night of endless turnovers: 3 takeaways**\
-`Gustav Nyquist scored his first goal in this stint with the Wild and Marco Rossi tied the game in the third, but the Rangers got the win.`\
-https://nytimes.com/athletic/6251188/2025/04/02/wild-rossi-turnovers-kaprizov-rangers/
 
