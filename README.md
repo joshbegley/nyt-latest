@@ -1,4 +1,8 @@
-**Cheers for Taijuan Walker, chills for Phillies: Teammates show support after strong start**\
+**C.E.O. Choked Man Who Danced Barefoot on Cruise Ship, U.S. Says**\
+`Kenneth D. DeGiorgio, the chief executive of First American Financial, was charged with assault. His lawyers say that the other man was harassing the executive’s wife.`\
+https://nytimes.com/2025/04/03/us/ceo-choking-virgin-cruise.html
+
+**Cheers for Taijuan Walker: Phillies fans, his teammates and mom applaud a meaningful start**\
 `This meant something. Everyone wearing powder blue uniforms felt it as Walker strode toward the dugout after his best outing in ages. `\
 https://nytimes.com/athletic/6253830/2025/04/03/taijuan-walker-phillies-fifth-starter-rockies/
 
@@ -10,7 +14,7 @@ https://nytimes.com/2025/04/03/nyregion/bronx-nypd-car-chase-fatal-fire.html
 `The Proenza Schouler alumna Alex McEachin’s new label, Accorda, aims for informal drama with fluid silhouettes and flashes of black Lurex.`\
 https://nytimes.com/2025/04/03/t-magazine/accorda-fashion.html
 
-**Sports-related stocks crushed Thursday on U.S. tariff news**\
+**Sports-related stocks hit hard Thursday after U.S. tariff news**\
 `Stock prices for sports-related companies that rely on a global supply chain were battered Thursday after the U.S. tariff announcement.`\
 https://nytimes.com/athletic/6253713/2025/04/03/sports-related-stocks-trump-tariff-news/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/03/us/politics/hhs-public-health-grants-judge.html
 **Some Weather Service Offices Are Delaying or Skipping Storm Surveys**\
 `At least two Weather Service offices in Kentucky cited the continued threat of bad weather.`\
 https://nytimes.com/2025/04/03/weather/national-weather-service-staffing.html
-
-**Trump Administration Set to Pause $510 Million for Brown University**\
-`The administration has now targeted five schools’ federal funding as part of a pledge to combat what it considers to be antisemitism on university campuses.`\
-https://nytimes.com/2025/04/03/us/trump-administration-brown-university-funding-pause.html
 
