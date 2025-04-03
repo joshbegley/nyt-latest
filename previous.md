@@ -1,3 +1,15 @@
+**Cowboys acquiring QB Joe Milton from Patriots: Source**\
+`Milton brings depth and upside to the Cowboys' QB depth chart that before only included Dak Prescott and Will Grier.`\
+https://nytimes.com/athletic/6252299/2025/04/03/joe-milton-cowboys-patriots-trade/
+
+**Anthony Davis' dominant two-way effort allows Mavericks to inch closer to a Play-In spot**\
+`“I was able to catch a rhythm,” said Davis, who was key in the final three plays of Dallas' win Wednesday against Atlanta.`\
+https://nytimes.com/athletic/6251775/2025/04/03/anthony-davis-mavericks-nba-playoffs/
+
+**Fact-checking Trump’s claim about egg prices.**\
+`By Linda Qiu`\
+https://nytimes.com/live/2025/04/03/business/trump-tariffs/fact-checking-trumps-claim-about-egg-prices
+
 **Forest's Aina to miss Villa game with calf injury, could return vs. Everton**\
 `The Nigeria international sustained the injury in Tuesday's 1-0 win over Manchester United.`\
 https://nytimes.com/athletic/6252446/2025/04/03/nottingham-forest-ola-aina-injury/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6251414/2025/04/03/arizona-cardinals-nfl-draft-pick
 **Schar signs new one-year Newcastle contract until 2026**\
 `Schar's previous deal was set to expire during the summer, but a 12-month extension has now been signed.`\
 https://nytimes.com/athletic/6252411/2025/04/03/newcastle-fabian-schar-contract-update-confirmed/
-
-**In Oval Office Meeting, Far-Right Activist Pushes Trump to Fire National Security Staff**\
-`During the 30-minute meeting, Laura Loomer excoriated National Security Council officials in front of the president and Michael Waltz, the national security adviser.`\
-https://nytimes.com/2025/04/03/us/politics/trump-meeting-laura-loomer.html
-
-**What Is the I.C.C.? What to Know After Hungary’s Announced Withdrawal**\
-`Hungary said it would pull out of the International Criminal Court as Prime Minister Benjamin Netanyahu of Israel visited the country.`\
-https://nytimes.com/2025/04/03/world/europe/icc-international-criminal-court-what-is.html
-
-**Oil and metals prices fall on concerns about the global economy.**\
-`The combination of lower oil prices and higher costs for essential materials like steel pipe threatens to squeeze domestic oil and gas producers.`\
-https://nytimes.com/2025/04/03/business/energy-environment/oil-metals-prices-global-economy.html
 

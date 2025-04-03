@@ -1,3 +1,15 @@
+**Cowboys acquiring QB Joe Milton from Patriots: Source**\
+`Milton brings depth and upside to the Cowboys' QB depth chart that before only included Dak Prescott and Will Grier.`\
+https://nytimes.com/athletic/6252299/2025/04/03/joe-milton-cowboys-patriots-trade/
+
+**Anthony Davis' dominant two-way effort allows Mavericks to inch closer to a Play-In spot**\
+`“I was able to catch a rhythm,” said Davis, who was key in the final three plays of Dallas' win Wednesday against Atlanta.`\
+https://nytimes.com/athletic/6251775/2025/04/03/anthony-davis-mavericks-nba-playoffs/
+
+**Fact-checking Trump’s claim about egg prices.**\
+`By Linda Qiu`\
+https://nytimes.com/live/2025/04/03/business/trump-tariffs/fact-checking-trumps-claim-about-egg-prices
+
 **Forest's Aina to miss Villa game with calf injury, could return vs. Everton**\
 `The Nigeria international sustained the injury in Tuesday's 1-0 win over Manchester United.`\
 https://nytimes.com/athletic/6252446/2025/04/03/nottingham-forest-ola-aina-injury/
