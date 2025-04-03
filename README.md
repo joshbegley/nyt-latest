@@ -1,3 +1,7 @@
+**Olmo, Victor given permission to play for rest of season by Spanish government**\
+`The Consejo Superior de Deportes confirmed both players would maintain their sporting licenses after upholding Barcelona's appeal.`\
+https://nytimes.com/athletic/6249234/2025/04/03/dani-olmo-pau-victor-license-appeal/
+
 **How to Become Trump’s ‘Favorite President’: Nonstop Praise.**\
 `Javier Milei of Argentina might not be that useful for the United States on economics or geopolitics — but he can help to fight the culture wars.`\
 https://nytimes.com/2025/04/03/world/americas/argentina-javier-milei-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/03/business/energy-environment/oil-metals-prices-glo
 **Ask Ornstein Q&A: Our football insider answers your questions**\
 `Here is your opportunity to ask David Ornstein anything you want about the world of football`\
 https://nytimes.com/athletic/6252025/2025/04/03/ask-ornstein-qa-our-football-insider-answers-your-questions-23/
-
-**Europe Has Economic Power. Can It Use It Against Trump’s Tariffs?**\
-`European leaders have said they would prefer to negotiate. If that fails, their response could go beyond anything they’ve tried before.`\
-https://nytimes.com/2025/04/03/world/europe/tariffs-response-trump.html
 
