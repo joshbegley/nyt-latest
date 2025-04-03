@@ -1,3 +1,11 @@
+**Women's World Cup 2035 can change the game in the UK - England's Euros success is evidence**\
+`England know better than most countries the power of hosting a tournament on home soil and the 2035 event can bring a fresh momentum`\
+https://nytimes.com/athletic/6252721/2025/04/03/womens-world-cup-2035-uk-hosts/
+
+**How Musk’s Politics Are Hurting Tesla**\
+`After Election Day, investors initially thought that Elon Musk’s close association with President Trump would help Tesla. Jack Ewing, a reporter who covers the electric vehicle industry, describes how, instead, Tesla’s stock gains have evaporated and its sales are falling around the world.`\
+https://nytimes.com/video/automobiles/100000010083269/how-musks-politics-are-hurting-tesla.html
+
 **‘When Fall is Coming’ Review: Cooking Up a Mystery**\
 `With her kind eyes and guileless smile, Hélène Vincent plays a sweet old French lady. But looks can be deceiving in this François Ozon film.`\
 https://nytimes.com/2025/04/03/movies/when-fall-is-coming-review.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6252893/2025/04/03/ja-morant-finger-guns-warning-nb
 **In ‘The Bondsman,’ Kevin Bacon Goes to Hell and Back**\
 `The actor stars as the title character in this new horror comedy series, playing a man charged with tracking down escaped demons.`\
 https://nytimes.com/2025/04/03/arts/television/the-bondsman-kevin-bacon.html
-
-**An app helps Italians to shop local after Trump imposes tariffs.**\
-`By reading country-of-origin information, the app helps consumers make better decisions, its proposers say.`\
-https://nytimes.com/live/2025/04/03/business/trump-tariffs/an-app-helps-italians-to-shop-local-after-trump-imposes-tariffs
-
-**Ex-Yankees Player Brett Gardner’s Son Died From Carbon Monoxide, Officials Say**\
-`Miller Gardner, who was 14, died last month at a resort in Costa Rica.`\
-https://nytimes.com/2025/04/03/world/americas/miller-gardner-carbon-monoxide-poisoning-cause-death.html
 

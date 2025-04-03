@@ -1,3 +1,7 @@
+**‘When Fall is Coming’ Review: Cooking Up a Mystery**\
+`With her kind eyes and guileless smile, Hélène Vincent plays a sweet old French lady. But looks can be deceiving in this François Ozon film.`\
+https://nytimes.com/2025/04/03/movies/when-fall-is-coming-review.html
+
 **Mexico’s president says her country was given ‘preferential treatment’ in the new U.S. tariffs announcement.**\
 `By James Wagner`\
 https://nytimes.com/live/2025/04/03/business/trump-tariffs/mexicos-president-says-her-country-was-given-preferential-treatment-in-the-new-us-tariffs-announcement
