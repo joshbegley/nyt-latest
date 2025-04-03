@@ -1,3 +1,15 @@
+**Maple Leafs clinch postseason berth for NHL-leading ninth consecutive season**\
+`At nine years, the Leafs hold the NHL's longest active postseason streak.`\
+https://nytimes.com/athletic/6247164/2025/04/02/maple-leafs-playoffs-clinch-nhl/
+
+**‘The Cherry Orchard’ Review: A Captivating Take on Chekhov**\
+`Nina Hoss stars as a melancholic matriarch in Benedict Andrews’s immersive rendition of the classic at St. Ann’s Warehouse in Brooklyn.`\
+https://nytimes.com/2025/04/02/theater/the-cherry-orchard-review-st-anns-warehouse.html
+
+**Sourced From the Alps**\
+`Hanh Huynh’s puzzle gives main-character energy.`\
+https://nytimes.com/2025/04/02/crosswords/daily-puzzle-2025-04-03.html
+
 **How Are Trump’s Tariff Rates Calculated?**\
 `The answer appears to begin with the total trade deficit America runs with its trading partners.`\
 https://nytimes.com/2025/04/02/business/economy/trump-tariff-rates-calculation.html
