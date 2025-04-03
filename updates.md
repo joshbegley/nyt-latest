@@ -1,3 +1,15 @@
+**What Is the I.C.C.? What to Know After Hungary’s Announced Withdrawal**\
+`Hungary said it would pull out of the International Criminal Court as Prime Minister Benjamin Netanyahu of Israel visited the country.`\
+https://nytimes.com/2025/04/03/world/europe/icc-international-criminal-court-what-is.html
+
+**Oil and metals prices fall on concerns about the global economy.**\
+`The combination of lower oil prices and higher costs for essential materials like steel pipe threatens to squeeze domestic oil and gas producers.`\
+https://nytimes.com/2025/04/03/business/energy-environment/oil-metals-prices-global-economy.html
+
+**Ask Ornstein Q&A: Our football insider answers your questions**\
+`Here is your opportunity to ask David Ornstein anything you want about the world of football`\
+https://nytimes.com/athletic/6252025/2025/04/03/ask-ornstein-qa-our-football-insider-answers-your-questions-23/
+
 **Europe Has Economic Power. Can It Use It Against Trump’s Tariffs?**\
 `European leaders have said they would prefer to negotiate. If that fails, their response could go beyond anything they’ve tried before.`\
 https://nytimes.com/2025/04/03/world/europe/tariffs-response-trump.html
