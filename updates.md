@@ -1,3 +1,23 @@
+**Even in tough loss to Thunder, Pistons show glimpses of how good team can be**\
+`The Pistons defense pressured the Thunder throughout the fourth quarter, but Detroit didn't have enough offense to topple Oklahoma City.`\
+https://nytimes.com/athletic/6252814/2025/04/03/dennis-schroder-pistons-thunder/
+
+**Paul McDonough, Whose Photographs Evoked Street Life, Dies at 84**\
+`His candid black-and-white images, prosaic yet provocative, captured the faces of a wide range of New Yorkers. He also took occasional side trips to the West.`\
+https://nytimes.com/2025/04/03/arts/paul-mcdonough-dead.html
+
+**Vietnam’s prime minister urges calm as the shock of high U.S. tariffs sinks in.**\
+`By Tung Ngo`\
+https://nytimes.com/live/2025/04/03/business/trump-tariffs/vietnams-prime-minister-urges-calm-as-the-shock-of-high-us-tariffs-sinks-in
+
+**Capital One Deal for Discover Clears Justice Dept. Hurdle**\
+`The department, during the Biden administration, initially said it had concerns about the merger of two of the largest credit card companies in the U.S.`\
+https://nytimes.com/2025/04/03/business/dealbook/capital-one-discover-merger.html
+
+**Morant, Hield receive warnings from NBA after 'inappropriate' gestures**\
+`Morant and Hield engaged in a verbal altercation that included hand gestures resembling guns during a game Tuesday. `\
+https://nytimes.com/athletic/6252893/2025/04/03/ja-morant-finger-guns-warning-nba/
+
 **Morant, Hield receive warnings fromvNBA after 'inappropriate' gestures**\
 `Morant and Hield engaged in a verbal altercation that included hand gestures resembling guns during a game Tuesday. `\
 https://nytimes.com/athletic/6252893/2025/04/03/ja-morant-finger-guns-warning-nba/
