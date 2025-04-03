@@ -1,3 +1,7 @@
+**D-backs, Ketel Marte reach 6-year, $116.5 million extension: Source**\
+`Marte’s extension is the latest in a line of recent moves indicating the Diamondbacks aren't willing to roll over in the NL West.`\
+https://nytimes.com/athletic/6251011/2025/04/02/ketel-marte-diamondbacks-contract/
+
 **How Nebraska's new DC plans to help Huskers get their swag back**\
 `John Butler's promotion might be the most overlooked move at Nebraska, and also its most consequential.`\
 https://nytimes.com/athletic/6250211/2025/04/02/nebraska-football-john-butler-defense/
