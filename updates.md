@@ -1,3 +1,15 @@
+**C.E.O. Choked Man Who Danced Barefoot on Cruise Ship, U.S. Says**\
+`Kenneth D. DeGiorgio, the chief executive of First American Financial, was charged with assault. His lawyers say that the other man was harassing the executive’s wife.`\
+https://nytimes.com/2025/04/03/us/ceo-choking-virgin-cruise.html
+
+**Cheers for Taijuan Walker: Phillies fans, his teammates and mom applaud a meaningful start**\
+`This meant something. Everyone wearing powder blue uniforms felt it as Walker strode toward the dugout after his best outing in ages. `\
+https://nytimes.com/athletic/6253830/2025/04/03/taijuan-walker-phillies-fifth-starter-rockies/
+
+**Sports-related stocks hit hard Thursday after U.S. tariff news**\
+`Stock prices for sports-related companies that rely on a global supply chain were battered Thursday after the U.S. tariff announcement.`\
+https://nytimes.com/athletic/6253713/2025/04/03/sports-related-stocks-trump-tariff-news/
+
 **Cheers for Taijuan Walker, chills for Phillies: Teammates show support after strong start**\
 `This meant something. Everyone wearing powder blue uniforms felt it as Walker strode toward the dugout after his best outing in ages. `\
 https://nytimes.com/athletic/6253830/2025/04/03/taijuan-walker-phillies-fifth-starter-rockies/
