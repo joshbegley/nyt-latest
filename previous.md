@@ -1,3 +1,7 @@
+**Forest's Aina to miss Villa game with calf injury, could return vs. Everton**\
+`The Nigeria international sustained the injury in Tuesday's 1-0 win over Manchester United.`\
+https://nytimes.com/athletic/6252446/2025/04/03/nottingham-forest-ola-aina-injury/
+
 **Olmo, Victor given permission to play for rest of season by Spanish government**\
 `The Consejo Superior de Deportes confirmed both players would maintain their sporting licenses after upholding Barcelona's appeal.`\
 https://nytimes.com/athletic/6249234/2025/04/03/dani-olmo-pau-victor-license-appeal/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/03/world/europe/icc-international-criminal-court-wha
 **Oil and metals prices fall on concerns about the global economy.**\
 `The combination of lower oil prices and higher costs for essential materials like steel pipe threatens to squeeze domestic oil and gas producers.`\
 https://nytimes.com/2025/04/03/business/energy-environment/oil-metals-prices-global-economy.html
-
-**Ask Ornstein Q&A: Our football insider answers your questions**\
-`Here is your opportunity to ask David Ornstein anything you want about the world of football`\
-https://nytimes.com/athletic/6252025/2025/04/03/ask-ornstein-qa-our-football-insider-answers-your-questions-23/
 

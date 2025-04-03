@@ -1,3 +1,7 @@
+**Forest's Aina to miss Villa game with calf injury, could return vs. Everton**\
+`The Nigeria international sustained the injury in Tuesday's 1-0 win over Manchester United.`\
+https://nytimes.com/athletic/6252446/2025/04/03/nottingham-forest-ola-aina-injury/
+
 **Olmo, Victor given permission to play for rest of season by Spanish government**\
 `The Consejo Superior de Deportes confirmed both players would maintain their sporting licenses after upholding Barcelona's appeal.`\
 https://nytimes.com/athletic/6249234/2025/04/03/dani-olmo-pau-victor-license-appeal/
