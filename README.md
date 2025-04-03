@@ -1,3 +1,11 @@
+**Friday Briefing: Trump’s Tariffs Rattle the Markets**\
+`Plus, Bruce Springsteen’s “Lost Albums.”`\
+https://nytimes.com/2025/04/03/briefing/tariffs-markets-israel-gaza-airstrike-south-korea-yoon.html
+
+**LSU star Flau’jae Johnson did not declare for WNBA Draft**\
+`By remaining in college, Johnson will enter the WNBA with the league's new collective bargaining agreement and significantly higher salaries`\
+https://nytimes.com/athletic/6253635/2025/04/03/flaujae-johnson-lsu-forgoes-wnba-draft/
+
 **For Wine, Tariffs Mean Fear, Uncertainty and Higher Prices**\
 `American consumers are likely to see fewer choices on the shelves, and small producers may be the hardest hit.`\
 https://nytimes.com/2025/04/03/dining/drinks/wine-tariffs-prices.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6253474/2025/04/03/red-sox-takeaways-extensions-raf
 **Israeli Strike Kills Dozens at Gaza City Shelter, Officials Say**\
 `The Israeli military said it was looking into reports about the deaths at a school-turned-shelter, which came as Israel was intensifying its offensive in Gaza to pressure Hamas to release hostages.`\
 https://nytimes.com/2025/04/03/world/middleeast/gaza-city-school-strike.html
-
-**Beatlemania: A Penetrating New Book Celebrates Lennon and McCartney**\
-`T Bone Burnett reviews Ian Leslie’s “John & Paul,” which explores the partnership of “two extraordinarily gifted young men.”`\
-https://nytimes.com/2025/04/03/books/review/john-and-paul-ian-leslie.html
-
-**‘Lazarus’ Is a Dark and Kinetic Adventure**\
-`This anime series on Adult Swim is filled with fantastic fight sequences but also deeper musings about the nature of existence and divinity.`\
-https://nytimes.com/2025/04/03/arts/television/lazarus-adult-swim-anime.html
 

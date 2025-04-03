@@ -1,3 +1,7 @@
+**For Wine, Tariffs Mean Fear, Uncertainty and Higher Prices**\
+`American consumers are likely to see fewer choices on the shelves, and small producers may be the hardest hit.`\
+https://nytimes.com/2025/04/03/dining/drinks/wine-tariffs-prices.html
+
 **Leonardo Patterson, Disgraced Dealer in Latin American Artifacts, Dies at 82**\
 `Born into rural poverty, he climbed to the top of the art market. But he fell after being convicted of selling fake and stolen items.`\
 https://nytimes.com/2025/04/03/arts/leonardo-patterson-dead.html
