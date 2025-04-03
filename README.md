@@ -1,3 +1,15 @@
+**How Tariffs Destroy What Makes America Great**\
+`Trump’s tariffs erect a wall between Americans and other people — a wall that obstructs not only the flow of goods, but the flow of ideas, contacts, technology and friendships.`\
+https://nytimes.com/2025/04/03/opinion/tariffs-trump.html
+
+**Ford offers discounts on cars and trucks as auto tariffs kick in.**\
+`The company said it would offer customers the same prices it offers its employees on most of its vehicles.`\
+https://nytimes.com/2025/04/03/business/economy/ford-discounts-auto-tariffs.html
+
+**Apple Plunges 9 Percent, Leading a Tech Sell-Off**\
+`The company counts on the sale of devices for three-quarters of its nearly $400 billion in annual revenue, and it makes almost all of its iPhones, iPads and Macs overseas.`\
+https://nytimes.com/2025/04/03/business/economy/apple-stock-tech-selloff.html
+
 **Where Trump’s Tariffs Will Hit Hardest**\
 `These economies are deeply reliant on selling goods to the United States, and many of them were hit with especially steep taxes.`\
 https://nytimes.com/interactive/2025/04/03/world/trump-tariffs-charts.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/03/world/europe/prince-harry-charity-investigation.h
 **The Childish Tariff Formula That Will Reshape the Global Economy**\
 `Trump said repeatedly that the tariffs are “reciprocal,” but that’s not true. The rates were calculated using a childish formula based on trade imbalances.`\
 https://nytimes.com/2025/04/03/opinion/trump-tariffs-formula-global-economy.html
-
-**Marinakis alleges he is victim of a conspiracy after sports violence charges**\
-`"I am not afraid, I will not be blackmailed, I will not negotiate, I will not back down, I will not submit," Marinakis said.`\
-https://nytimes.com/athletic/6252062/2025/04/03/evangelos-marinakis-conspiracy-charges-forest/
-
-**Bettors are all over the Blue Devils: 'There’s just been no shortage of Duke money'**\
-`Max Meyer spoke to sportsbooks about the betting action on the men's Final Four with biggest bets and line movement.`\
-https://nytimes.com/athletic/6250763/2025/04/03/march-madness-betting-action-duke-public-money/
-
-**NBA Awards Watch: Are All-NBA and other honors bad for your favorite team?**\
-`We have new front-runners for a couple of individual races, though things could change over the season's final week.`\
-https://nytimes.com/athletic/6146457/2025/04/03/all-nba-predictions-odds-awards-watch-2025/
 
