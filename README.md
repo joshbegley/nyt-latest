@@ -1,3 +1,7 @@
+**Garbage Strike Leaves Rotting Trash Piling Up in Major British City**\
+`A pay strike by garbage collectors in Birmingham, Britain’s second-largest city, has left 17,000 tons of rotting trash on its streets, raising public health concerns.`\
+https://nytimes.com/video/world/europe/100000010087142/birmingham-trash-garbage-strike.html
+
 **Fantasy baseball bullpen report: A demotion in Pittsburgh, a saves sleeper in Cincy**\
 `We're only a week into the 2025 regular season, but Greg Jewett has plenty to talk about in terms of notable MLB bullpen movement. `\
 https://nytimes.com/athletic/6252778/2025/04/03/fantasy-baseball-2025-bullpen-report-saves-sleeper/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/04/03/dining/bread-for-dinner-recipes.html
 **Radhika Jones, Vanity Fair’s Top Editor, Steps Down**\
 `Ms. Jones has been editor of the gilded magazine of culture, business and politics since 2017.`\
 https://nytimes.com/2025/04/03/business/media/radhika-jones-vanity-fair-steps-down.html
-
-**The 4.13.25 Issue**\
-``\
-https://nytimes.com/issue/magazine/2025/04/03/the-41325-issue
 
