@@ -1,3 +1,11 @@
+**Braves takeaways: RISP woes in 0-7 start, Marcell Ozuna's walks, Nick Allen's rise**\
+`The Braves scored five unearned runs in the first two innings to take a 5-0 lead Wednesday. And still it wasn't enough.`\
+https://nytimes.com/athletic/6251847/2025/04/03/braves-takeaways-marcell-ozuna-nick-allen/
+
+**Franca's Crystal Palace career finally has lift-off - so what comes next?**\
+`The Brazilian has had a trying time in England, but a crucial equaliser at Southampton could be the spark he needs`\
+https://nytimes.com/athletic/6240496/2025/04/03/matheus-franca-crystal-palace-goal/
+
 **Following Immigration Changes Far From Border**\
 `A reporter shares the shifts she’s seen unfold since the start of the second Trump term.`\
 https://nytimes.com/2025/04/03/insider/following-immigration-changes-far-from-border.html
