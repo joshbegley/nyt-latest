@@ -1,3 +1,7 @@
+**FIFA confirms U.S.-Mexico, UK set to host 2031, 2035 Women's World Cups**\
+`The Athletic has previously reported that the U.S.-Mexico bid is exploring staging games in Costa Rica and Jamaica.`\
+https://nytimes.com/athletic/6251987/2025/04/03/womens-world-cup-us-uk-mexico/
+
 **Hungary Says It Will Withdraw From I.C.C.**\
 `The announcement came hours after Prime Minister Benjamin Netanyahu of Israel arrived in the country for a visit despite facing an international arrest warrant.`\
 https://nytimes.com/2025/04/03/world/europe/hungary-icc-netanyahu.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/03/crosswords/spelling-bee-forum.html
 **South Korean Actor Denies Dating a Minor**\
 `Kim Soo-hyun, one of Korea’s most famous actors, was in tears as he denied allegations of dating the actress Kim Sae-ron when she was a minor. Ms. Kim, 24, died by suicide this year.`\
 https://nytimes.com/video/world/asia/100000010089154/kim-sae-ron-suicide-soo-hyun.html
-
-**Franca's Crystal Palace career finally has lift-off - so what comes next?**\
-`The Brazilian has had a trying time in England, but a crucial equaliser at Southampton could be the spark he needs`\
-https://nytimes.com/athletic/6240496/2025/04/03/matheus-franca-crystal-palace-goal/
 

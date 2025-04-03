@@ -1,3 +1,7 @@
+**FIFA confirms U.S.-Mexico, UK set to host 2031, 2035 Women's World Cups**\
+`The Athletic has previously reported that the U.S.-Mexico bid is exploring staging games in Costa Rica and Jamaica.`\
+https://nytimes.com/athletic/6251987/2025/04/03/womens-world-cup-us-uk-mexico/
+
 **Hungary Says It Will Withdraw From I.C.C.**\
 `The announcement came hours after Prime Minister Benjamin Netanyahu of Israel arrived in the country for a visit despite facing an international arrest warrant.`\
 https://nytimes.com/2025/04/03/world/europe/hungary-icc-netanyahu.html
