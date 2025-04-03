@@ -1,8 +1,28 @@
+**Red Sox takeaways from opening road trip: Crochet, Campbell extensions, Devers gets a hit**\
+`After a slow start, the Red Sox salvaged the road trip with a series win in Baltimore and return home following a news-filled first week.`\
+https://nytimes.com/athletic/6253474/2025/04/03/red-sox-takeaways-extensions-rafael-devers-first-hit/
+
+**Israeli Strike Kills Dozens at Gaza City Shelter, Officials Say**\
+`The Israeli military said it was looking into reports about the deaths at a school-turned-shelter, which came as Israel was intensifying its offensive in Gaza to pressure Hamas to release hostages.`\
+https://nytimes.com/2025/04/03/world/middleeast/gaza-city-school-strike.html
+
+**Beatlemania: A Penetrating New Book Celebrates Lennon and McCartney**\
+`T Bone Burnett reviews Ian Leslie’s “John & Paul,” which explores the partnership of “two extraordinarily gifted young men.”`\
+https://nytimes.com/2025/04/03/books/review/john-and-paul-ian-leslie.html
+
+**‘Lazarus’ Is a Dark and Kinetic Adventure**\
+`This anime series on Adult Swim is filled with fantastic fight sequences but also deeper musings about the nature of existence and divinity.`\
+https://nytimes.com/2025/04/03/arts/television/lazarus-adult-swim-anime.html
+
+**Oil Producers Follow Trump’s Tariffs With a Surprise Increase**\
+`Saudi Arabia and other members of the OPEC Plus group accelerated their program to put more oil on the market, adding to a sharp fall in prices.`\
+https://nytimes.com/2025/04/03/business/opec-oil-trump-tariffs.html
+
 **Trump’s Tariffs Could Threaten His ‘Energy Dominance’ Agenda**\
 `A new wave of tariffs could raise costs for energy producers, including oil and gas companies, as well as solar and wind firms.`\
 https://nytimes.com/2025/04/03/climate/trump-tariffs-energy-renewables.html
 
-**Volkswagen will add an ‘import fee’ to cars sold in the U.S.**\
+**Volkswagen to Add ‘Import Fee’ to Cars Sold in U.S.**\
 `The company’s move is one of the first and clearest examples of automakers using price increases to deal with the 25 percent tariffs President Trump imposed on car and auto parts imports.`\
 https://nytimes.com/2025/04/03/business/volkswagen-auto-tariffs-trump.html
 
@@ -17,24 +37,4 @@ https://nytimes.com/2025/04/03/nyregion/nyc-shootings-decrease-first-quarter.htm
 **More Grocery Stores That Are Also Great Restaurants**\
 `It’s round two back at markets that have the best prepared foods for the days you’re not quite feeling restaurants.`\
 https://nytimes.com/2025/04/03/dining/more-grocery-stores-that-are-also-great-restaurants.html
-
-**Hurricane Experts Forecast Another Above-Average Atlantic Hurricane Season**\
-`After an active season in 2024, researchers at Colorado State University see another one on the way for 2025.`\
-https://nytimes.com/2025/04/03/weather/2025-atlantic-hurricane-season-forecast.html
-
-**Darrion Dupree and Dilin Jones could form a strong 1-2 punch for Wisconsin**\
-`Here are six observations from what was an eventful morning for Wisconsin during Thursday's practice.`\
-https://nytimes.com/athletic/6253304/2025/04/03/wisconsin-football-darrion-dupree-dilin-jones/
-
-**Mexico’s leader unveils plan to blunt tariffs by increasing domestic production of food, energy and textiles.**\
-`By Simon Romero`\
-https://nytimes.com/live/2025/04/03/business/trump-tariffs/mexicos-leader-unveils-plan-to-blunt-tariffs-by-increasing-domestic-production-of-food-energy-and-textiles
-
-**With Deadline Looming, Details of a Potential TikTok Deal Emerge**\
-`The video app is barreling toward a Saturday deadline to change its ownership under federal law or face a ban in the United States.`\
-https://nytimes.com/2025/04/03/business/tiktok-sale-ban-deadline.html
-
-**Canada’s Prime Minister Puts Tariffs on U.S.-Made Cars and Predicts Global Upheaval**\
-`Mark Carney, a former central banker, also called on ‘like minded nations’ to form a new trading order without the United States.`\
-https://nytimes.com/2025/04/03/business/economy/canada-mark-carney-us-autos-tariffs.html
 
