@@ -1,3 +1,7 @@
+**Why Did Trump Spare Russia From New Tariffs?**\
+`The Trump administration says sanctions imposed on Moscow mean the U.S. does little trade with Russia, but questions persist about the motivations.`\
+https://nytimes.com/2025/04/03/business/economy/russia-us-tariffs-trump.html
+
 **Q&A: 'Uncle Jeff' Green shares his wisdom on playoffs, NBA life with young Rockets**\
 `Rockets veteran Green talks about mentoring young players, his "uncle" status and why he returned to Houston.`\
 https://nytimes.com/athletic/6250180/2025/04/03/houston-rockets-jeff-green-nba-playoffs/
