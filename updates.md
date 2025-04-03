@@ -1,3 +1,19 @@
+**Trump’s tariffs deliver a blow to Nike’s bet on Vietnam.**\
+`Nike thought Vietnam would be a cheaper and less fraught zone for manufacturing than China. Now, all bets are off.`\
+https://nytimes.com/live/2025/04/03/business/trump-tariffs/nike-stock-tariffs-vietnam
+
+**In the Calls of Bonobos, Scientists Hear Hints of Language**\
+`Hundreds of hours of recordings suggest that the apes can generate meaning by stringing sounds together in pairs. But some scholars are skeptical.`\
+https://nytimes.com/2025/04/03/science/communication-language-bonobos.html
+
+**Joe Milton III trade grades: Cowboys pick up a lottery ticket, Patriots cash out**\
+`The Patriots shipped out Milton to move up 46 spots in the NFL Draft. Will he make them regret that move? `\
+https://nytimes.com/athletic/6252915/2025/04/03/joe-milton-cowboys-patriots-trade-grades/
+
+**World Cup expansion to 64 teams a 'bad idea' - UEFA's Ceferin**\
+`Uruguayan football official Ignacio Alonso surprisingly proposed the additional increase at a FIFA Council meeting last month.`\
+https://nytimes.com/athletic/6253233/2025/04/03/world-cup-expansion-64-teams-uefa/
+
 **The Job Market Has Been Resilient. The Trade War Could Be Its Undoing.**\
 `The U.S. economy has largely withstood inflation and high interest rates. But tariffs could bring new price increases and put a damper on hiring.`\
 https://nytimes.com/2025/04/03/business/economy/job-market-tariffs.html

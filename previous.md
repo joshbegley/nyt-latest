@@ -1,3 +1,19 @@
+**Trump’s tariffs deliver a blow to Nike’s bet on Vietnam.**\
+`Nike thought Vietnam would be a cheaper and less fraught zone for manufacturing than China. Now, all bets are off.`\
+https://nytimes.com/live/2025/04/03/business/trump-tariffs/nike-stock-tariffs-vietnam
+
+**In the Calls of Bonobos, Scientists Hear Hints of Language**\
+`Hundreds of hours of recordings suggest that the apes can generate meaning by stringing sounds together in pairs. But some scholars are skeptical.`\
+https://nytimes.com/2025/04/03/science/communication-language-bonobos.html
+
+**Joe Milton III trade grades: Cowboys pick up a lottery ticket, Patriots cash out**\
+`The Patriots shipped out Milton to move up 46 spots in the NFL Draft. Will he make them regret that move? `\
+https://nytimes.com/athletic/6252915/2025/04/03/joe-milton-cowboys-patriots-trade-grades/
+
+**World Cup expansion to 64 teams a 'bad idea' - UEFA's Ceferin**\
+`Uruguayan football official Ignacio Alonso surprisingly proposed the additional increase at a FIFA Council meeting last month.`\
+https://nytimes.com/athletic/6253233/2025/04/03/world-cup-expansion-64-teams-uefa/
+
 **The Job Market Has Been Resilient. The Trade War Could Be Its Undoing.**\
 `The U.S. economy has largely withstood inflation and high interest rates. But tariffs could bring new price increases and put a damper on hiring.`\
 https://nytimes.com/2025/04/03/business/economy/job-market-tariffs.html
@@ -21,21 +37,4 @@ https://nytimes.com/athletic/6252778/2025/04/03/fantasy-baseball-2025-bullpen-re
 **Trump Trade ‘Emergency’ Follows Decades of Anger That America Has Been Ripped Off**\
 `Economists and legal experts question how the strongest economy in the world can be facing a national emergency over the trade deficit.`\
 https://nytimes.com/2025/04/03/us/politics/trump-tariffs-trade-deficit-manufacturing.html
-
-**Trump’s Pick to Argue at Supreme Court Made His Career in Culture Wars**\
-`President Trump’s choice for solicitor general, D. John Sauer, has long pushed for restrictions on abortion and access to contraception.`\
-https://nytimes.com/2025/04/03/us/politics/john-sauer-solicitor-general-abortion.html
-
-**Stocks of Consumer Brands Hit Hard by Tariffs**\
-`Many sportswear brands shifted production away from China to avoid tariffs imposed years ago, but now they face punishing levies targeting alternative manufacturing hubs.`\
-https://nytimes.com/2025/04/03/business/consumer-stocks-nike-adidas.html
-
-**In wake of criticism from Patrick Roy, Islanders forward Anthony Duclair takes leave**\
-`Duclair has struggled in his first season with the Islanders after signing a four-year deal worth $3.5 million per season last summer.`\
-https://nytimes.com/athletic/6253144/2025/04/03/patrick-roy-anthony-duclair-islanders-criticism/
-
-**Submit your Cowboys mock drafts for Saad Yousuf’s mock draft mailbag**\
-`<p>Submit your Cowboys mock drafts — trade up, trade back, stand pat, and let us know what you think is the best route for Dallas&#8217; decision-makers, and Saad Yousuf will analyze a handful of the most interesting ones in his upcoming mailbag.</p>
-`\
-https://nytimes.com/athletic/6253120/2025/04/03/cowboys-nfl-mock-draft-mailbag-submissions/
 
