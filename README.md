@@ -1,3 +1,7 @@
+**For Wine, Tariffs Mean Fear, Uncertainty and Higher Prices**\
+`American consumers are likely to see fewer choices on the shelves, and small producers may be the hardest hit.`\
+https://nytimes.com/2025/04/03/dining/drinks/wine-tariffs-prices.html
+
 **Leonardo Patterson, Disgraced Dealer in Latin American Artifacts, Dies at 82**\
 `Born into rural poverty, he climbed to the top of the art market. But he fell after being convicted of selling fake and stolen items.`\
 https://nytimes.com/2025/04/03/arts/leonardo-patterson-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/03/books/review/john-and-paul-ian-leslie.html
 **‘Lazarus’ Is a Dark and Kinetic Adventure**\
 `This anime series on Adult Swim is filled with fantastic fight sequences but also deeper musings about the nature of existence and divinity.`\
 https://nytimes.com/2025/04/03/arts/television/lazarus-adult-swim-anime.html
-
-**Oil Producers Follow Trump’s Tariffs With a Surprise Increase**\
-`Saudi Arabia and other members of the OPEC Plus group accelerated their program to put more oil on the market, adding to a sharp fall in prices.`\
-https://nytimes.com/2025/04/03/business/opec-oil-trump-tariffs.html
 
