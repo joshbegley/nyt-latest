@@ -1,3 +1,15 @@
+**Farke to drop Meslier for Darlow vs Luton**\
+`It will be Darlow's first league start in more than 15 months.`\
+https://nytimes.com/athletic/6252535/2025/04/03/illan-meslier-karl-darlow-leeds-luton/
+
+**Overlooked No More: Katharine McCormick, Force Behind the Birth Control Pill**\
+`She used her wealth strategically to expand opportunities for women, underwriting the development of the pill and supporting the suffrage movement.`\
+https://nytimes.com/2025/04/03/obituaries/katharine-mccormick-overlooked.html
+
+**The Childish Tariff Formula That Will Reshape the Global Economy**\
+`Trump said repeatedly that the tariffs are “reciprocal,” but that’s not true. The rates were calculated using a childish formula based on trade imbalances.`\
+https://nytimes.com/2025/04/03/opinion/trump-tariffs-formula-global-economy.html
+
 **Prince Harry Expresses ‘Relief’ Over U.K. Charity Investigation**\
 `A British regulator said it would examine concerns about Sentebale, the charity Harry co-founded, looking at its chair as well as its trustees.`\
 https://nytimes.com/2025/04/03/world/europe/prince-harry-charity-investigation.html
