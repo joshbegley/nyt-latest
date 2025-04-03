@@ -1,3 +1,15 @@
+**If the NBA playoffs started today: The matchups and what to expect in each series**\
+`The rest of the season (and Play-In) could shake things up, but as of now, some intriguing first-round series loom.`\
+https://nytimes.com/athletic/6251570/2025/04/03/nba-playoffs-matchups-2025/
+
+**Trump’s Trade War Risks Forfeiting America’s Economic Primacy**\
+`The United States has steered an economic order for 75 years based on trade and trust, making the country the world’s financial superpower. That vision is now blurred.`\
+https://nytimes.com/2025/04/03/business/trump-tariffs-dollar.html
+
+**Lists of tariffs issued by the White House show two different figures for some countries.**\
+`By Matthew Mpoke Bigg and Samuel Granados`\
+https://nytimes.com/live/2025/04/03/business/trump-tariffs/lists-of-tariffs-issued-by-the-white-house-show-two-different-figures-for-some-countries
+
 **How Tariffs Destroy What Makes America Great**\
 `Trump’s tariffs erect a wall between Americans and other people — a wall that obstructs not only the flow of goods, but the flow of ideas, contacts, technology and friendships.`\
 https://nytimes.com/2025/04/03/opinion/tariffs-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/03/dining/quick-sticky-toffee-pudding.html
 **Farke to drop Meslier for Darlow vs Luton**\
 `It will be Darlow's first league start in more than 15 months.`\
 https://nytimes.com/athletic/6252535/2025/04/03/illan-meslier-karl-darlow-leeds-luton/
-
-**Overlooked No More: Katharine McCormick, Force Behind the Birth Control Pill**\
-`She used her wealth strategically to expand opportunities for women, underwriting the development of the pill and supporting the suffrage movement.`\
-https://nytimes.com/2025/04/03/obituaries/katharine-mccormick-overlooked.html
-
-**Prince Harry Expresses ‘Relief’ Over U.K. Charity Investigation**\
-`A British regulator said it would examine concerns about Sentebale, the charity Harry co-founded, looking at its chair as well as its trustees.`\
-https://nytimes.com/2025/04/03/world/europe/prince-harry-charity-investigation.html
-
-**The Childish Tariff Formula That Will Reshape the Global Economy**\
-`Trump said repeatedly that the tariffs are “reciprocal,” but that’s not true. The rates were calculated using a childish formula based on trade imbalances.`\
-https://nytimes.com/2025/04/03/opinion/trump-tariffs-formula-global-economy.html
 
