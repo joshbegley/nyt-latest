@@ -4,7 +4,7 @@ https://nytimes.com/2025/04/03/world/europe/prince-harry-charity-investigation.h
 
 **The Childish Tariff Formula That Will Reshape the Global Economy**\
 `By Binyamin Appelbaum`\
-https://nytimes.com/live/2025/03/24/opinion/thepoint/trump-tariffs-formula-global-economy
+https://nytimes.com/2025/04/03/opinion/trump-tariffs-formula-global-economy.html
 
 **Marinakis alleges he is victim of a conspiracy after sports violence charges**\
 `"I am not afraid, I will not be blackmailed, I will not negotiate, I will not back down, I will not submit," Marinakis said.`\
