@@ -1,40 +1,40 @@
-**The Trade War Begins**\
-`We explain the sweeping tariff announcement and the world’s reaction.`\
-https://nytimes.com/2025/04/03/briefing/the-trade-war-begins.html
+**Pressing Assault, Israels Shifts the Goal Posts in Gaza**\
+`Israel wants to squeeze Hamas into releasing the dozens of hostages still being held in the enclave. But other goals have since emerged.`\
+https://nytimes.com/2025/04/03/world/middleeast/israel-hamas-gaza-military-objectives.html
 
-**Tuesdays with Wooden: How visits with legendary UCLA coach shaped Cori Close's Final Four path**\
-`As UCLA marches toward a national title, Close keeps UCLA legend John Wooden's lessons close to her heart.`\
-https://nytimes.com/athletic/6251327/2025/04/03/ucla-cori-close-john-wooden-final-four/
+**Eric Adams to Run as an Independent, Withdrawing From Democratic Primary**\
+`Mayor Eric Adams faced an uphill battle for re-election in the Democratic primary. He has decided to run as an independent in November.`\
+https://nytimes.com/2025/04/03/nyregion/eric-adams-independent-mayor.html
 
-**Trump’s Tariffs Pose a New Threat for Germany’s Stagnant Economy**\
-`President Trump’s trade war adds another challenge to the incoming government’s attempts to revive Europe’s biggest economy.`\
-https://nytimes.com/2025/04/03/business/economy/germany-trump-tariffs-economy.html
+**Twins takeaways from win over White Sox, a first series victory worth the wait**\
+`Takeaways on Carlos Correa, Byron Buxton, Pablo López and Ty France. Plus, what do players do during a three-hour, 20-minute rain delay?`\
+https://nytimes.com/athletic/6251430/2025/04/03/twins-white-sox-takeaways-correa-buxton-rain-delay/
 
-**Liam Lawson's confidence suggests his Formula One future could still be bright**\
-`Liam Lawson seemed self-assured as he navigated questions about his demotion from Red Bull`\
-https://nytimes.com/athletic/6251973/2025/04/03/liam-lawson-racing-bulls-f1-red-bull-demotion/
+**Slot: Would have been 'more fair' for Liverpool and Arsenal to play on same night**\
+`Liverpool picked up a hard-fought 1-0 victory over Everton on Wednesday — 24 hours after Arsenal won 2-1 at home to Fulham.`\
+https://nytimes.com/athletic/6252107/2025/04/03/arne-slot-liverpool-pl-schedule/
 
-**The Pulse: Shohei magic**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6250338/2025/04/03/ohtani-walkoff-the-pulse/
+**Forget about the red flags and focus on the young Canadiens' playoff chase**\
+`The skill and resilience of Montreal's up-and-coming core have fueled an unlikely run and allowed the team to play meaningful April hockey.`\
+https://nytimes.com/athletic/6250521/2025/04/03/canadiens-nhl-playoff-race/
 
-**Ignoring Protests, Thailand Opens Door to Myanmar’s Military Leader**\
-`Senior General Min Aung Hlaing, who has long been treated like a pariah on the global stage, is visiting Bangkok barely a week after an earthquake that killed at least 3,000 people in his country.`\
-https://nytimes.com/2025/04/03/world/asia/myanmar-general-earthquake.html
+**How a deejay and a novelty song inspired Terry Pegula's Buffalo sports empire**\
+`Late in the 1974-75 NHL season, Pegula relocated to rural Western New York and started hearing new voices that transformed him.`\
+https://nytimes.com/athletic/6243478/2025/04/03/terry-pegula-sabres-bills-song/
 
-**Ten sleepers the Vikings could target in the later rounds of the draft**\
-`Who could be in play for the Vikings on Days 2 and 3 of the draft? Which lesser-known prospects are worth keeping an eye on? And why?`\
-https://nytimes.com/athletic/6250878/2025/04/03/vikings-2025-nfl-draft-sleepers/
+**The Big Ten had a good NCAA Tournament. To have a great one, change is needed**\
+`To win a national championship, the Big Ten needs a talent infusion everywhere, and especially on its best teams.`\
+https://nytimes.com/athletic/6250777/2025/04/03/big-ten-mens-ncaa-tournament-record/
 
-**Inside Draymond Green's defensive mind, which seeks to 'completely destroy' you**\
-`The Warriors stalwart sits down to dissect how his brain works when he's roaming the defensive end.`\
-https://nytimes.com/athletic/6248565/2025/04/03/draymond-green-golden-state-warriors-nba-defense/
+**Dear Gamecocks: The pre-game letters that sustain South Carolina on its Final Four journey**\
+`Gamecocks assistant Mary Wooley writes a special note for each player before every game.`\
+https://nytimes.com/athletic/6251572/2025/04/03/south-carolina-final-four-letters/
 
-**NFL execs unfiltered on free agency: What's the Giants' QB plan? Thoughts on all NFC teams**\
-`Execs wonder if Giants owner John Mara is restricting Joe Schoen and Brian Daboll, while others are curious what's happening in Minnesota.`\
-https://nytimes.com/athletic/6244284/2025/04/03/nfl-free-agency-2025-nfc-execs-best-worst/
+**Is a Cavs-Celtics Eastern Conference finals inevitable?**\
+`Cleveland and Boston have been the class of the East, but can a dark-horse team get in the way of a playoff showdown?`\
+https://nytimes.com/athletic/6249548/2025/04/03/cavaliers-celtics-east-playoffs-roundtable-nba/
 
-**Who is college football's most popular team? An unscientific investigation**\
-`We looked at tickets, revenue, social media and more to investigate an unanswerable question: Which college football team has the most fans?`\
-https://nytimes.com/athletic/6250250/2025/04/03/college-football-most-popular-team-fans/
+**What does the NHL-Rogers TV deal mean for 'Hockey Night in Canada,' future of broadcasting?**\
+`The NHL has signed a 12-year, $11 billion CAD ($7.7 billion USD) deal with its Canadian national broadcast partner, Rogers. `\
+https://nytimes.com/athletic/6250402/2025/04/03/nhl-rogers-canada-hockey-broadcast-sportsnet/
 
