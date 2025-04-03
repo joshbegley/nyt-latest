@@ -1,3 +1,7 @@
+**Breaking down UEFA prize money from 23-24: Real Madrid earn record sum**\
+`Manchester City were the highest-earning Premier League team in the Champions League, netting €110.4m.`\
+https://nytimes.com/athletic/6252166/2025/04/03/champions-league-prize-money-real-madrid/
+
 **Insulin Test Used to Convict Lucy Letby in Babies’ Deaths Was Unreliable, Experts Say**\
 `A new report by neonatal and toxicology experts casts doubt on the validity of the test results that were pivotal to the prosecution’s case.`\
 https://nytimes.com/2025/04/03/us/politics/uk-lucy-letby-insulin-test-evidence.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6243478/2025/04/03/terry-pegula-sabres-bills-song/
 **The Big Ten had a good NCAA Tournament. To have a great one, change is needed**\
 `To win a national championship, the Big Ten needs a talent infusion everywhere, and especially on its best teams.`\
 https://nytimes.com/athletic/6250777/2025/04/03/big-ten-mens-ncaa-tournament-record/
-
-**Dear Gamecocks: The pre-game letters that sustain South Carolina on its Final Four journey**\
-`Gamecocks assistant Mary Wooley writes a special note for each player before every game.`\
-https://nytimes.com/athletic/6251572/2025/04/03/south-carolina-final-four-letters/
 
