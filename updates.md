@@ -1,3 +1,11 @@
+**Friday Briefing: Trump’s Tariffs Rattle the Markets**\
+`Plus, Bruce Springsteen’s “Lost Albums.”`\
+https://nytimes.com/2025/04/03/briefing/tariffs-markets-israel-gaza-airstrike-south-korea-yoon.html
+
+**LSU star Flau’jae Johnson did not declare for WNBA Draft**\
+`By remaining in college, Johnson will enter the WNBA with the league's new collective bargaining agreement and significantly higher salaries`\
+https://nytimes.com/athletic/6253635/2025/04/03/flaujae-johnson-lsu-forgoes-wnba-draft/
+
 **For Wine, Tariffs Mean Fear, Uncertainty and Higher Prices**\
 `American consumers are likely to see fewer choices on the shelves, and small producers may be the hardest hit.`\
 https://nytimes.com/2025/04/03/dining/drinks/wine-tariffs-prices.html
