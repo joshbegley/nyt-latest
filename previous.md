@@ -1,3 +1,19 @@
+**Steve Rattner on Just How Bad Things Will Get Under Trump’s Tariffs**\
+`And what business executives are saying behind closed doors.`\
+https://nytimes.com/2025/04/03/opinion/trump-tariffs-economy.html
+
+**A Chef’s Favorite Dessert Is Also the Easiest to Make**\
+`Custard-soaked malva pudding, a beloved South African treat, is the cake for right now.`\
+https://nytimes.com/2025/04/03/dining/malva-south-african-cake.html
+
+**Watch: Why the Knicks can’t compete against the real contenders?**\
+`NBA Daily discuss the New York Knicks’ struggles against the Eastern Conference’s top teams and when Jalen Brunson is expected to return.`\
+https://nytimes.com/athletic/6252461/2025/04/03/nba-daily-new-york-knicks-compete/
+
+**Fed expectations diverge sharply as Trump’s trade war upends forecasts.**\
+`Splits are emerging about when the central bank will be able to lower interest rates again.`\
+https://nytimes.com/live/2025/04/03/business/trump-tariffs/fed-expectations-diverge-sharply-as-trump-trade-war-upends-economic-forecasts
+
 **Until Saturday: CFB's most popular team is ...**\
 `Until Saturday is The Athletic's college football newsletter.`\
 https://nytimes.com/athletic/6253344/2025/04/03/college-football-most-popular-team-until-saturday/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/04/03/science/communication-language-bonobos.html
 **Joe Milton III trade grades: Cowboys pick up a lottery ticket, Patriots cash out**\
 `The Patriots shipped out Milton to move up 46 spots in the NFL Draft. Will he make them regret that move? `\
 https://nytimes.com/athletic/6252915/2025/04/03/joe-milton-cowboys-patriots-trade-grades/
-
-**World Cup expansion to 64 teams a 'bad idea' - UEFA's Ceferin**\
-`Uruguayan football official Ignacio Alonso surprisingly proposed the additional increase at a FIFA Council meeting last month.`\
-https://nytimes.com/athletic/6253233/2025/04/03/world-cup-expansion-64-teams-uefa/
-
-**The Job Market Has Been Resilient. The Trade War Could Be Its Undoing.**\
-`The U.S. economy has largely withstood inflation and high interest rates. But tariffs could bring new price increases and put a damper on hiring.`\
-https://nytimes.com/2025/04/03/business/economy/job-market-tariffs.html
-
-**Inquest into death of West Brom fan at Sheffield Wednesday game set for September**\
-`Mark Townsend died after collapsing while attending the EFL Championship game between Sheffield Wednesday and West Brom in September 2024.`\
-https://nytimes.com/athletic/6252679/2025/04/03/west-brom-fan-death-hillsborough/
-
-**How Much Will Trump’s Tariffs Cost U.S. Importers?**\
-`It will cost an extra $714 billion in tariffs to bring shoes, TVs and all other imports into the United States, a new analysis of trade data shows.`\
-https://nytimes.com/interactive/2025/04/03/business/economy/trump-tariffs-us-imports.html
 
