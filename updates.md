@@ -1,3 +1,15 @@
+**Q&A: 'Uncle Jeff' Green shares his wisdom on playoffs, NBA life with young Rockets**\
+`Rockets veteran Green talks about mentoring young players, his "uncle" status and why he returned to Houston.`\
+https://nytimes.com/athletic/6250180/2025/04/03/houston-rockets-jeff-green-nba-playoffs/
+
+**What Is Your Reaction to the Arrests of Student Protesters by Federal Immigration Agents?**\
+`The Trump administration has targeted at least nine foreign pro-Palestinian students and academics for deportation. Do you support these efforts, or do you think they are a violation of civil liberties?`\
+https://nytimes.com/2025/04/03/learning/what-is-your-reaction-to-the-arrests-of-student-protesters-by-federal-immigration-agents.html
+
+**Kremlin Envoy Says He’s in U.S. for Talks With Trump Administration**\
+`Kirill Dmitriev wrote on social media that his meetings were about restoring a U.S.-Russian dialogue that was “completely destroyed under the Biden administration.”`\
+https://nytimes.com/2025/04/03/world/europe/russia-envoy-us-visit-trump-dmitriev.html
+
 **Saint-Etienne awarded win in Montpellier game abandoned due to smoke bombs and fire**\
 `The decision leaves Montpellier bottom of Ligue 1, eight points behind Saint-Etienne.`\
 https://nytimes.com/athletic/6252162/2025/04/03/saint-etienne-montpellier-game-abandoned-result/

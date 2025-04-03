@@ -1,3 +1,7 @@
+**Why Did Trump Spare Russia From New Tariffs?**\
+`The Trump administration says sanctions imposed on Moscow mean the U.S. does little trade with Russia, but questions persist about the motivations.`\
+https://nytimes.com/2025/04/03/business/economy/russia-us-tariffs-trump.html
+
 **Q&A: 'Uncle Jeff' Green shares his wisdom on playoffs, NBA life with young Rockets**\
 `Rockets veteran Green talks about mentoring young players, his "uncle" status and why he returned to Houston.`\
 https://nytimes.com/athletic/6250180/2025/04/03/houston-rockets-jeff-green-nba-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/03/24/opinion/thepoint/liberation-day-tariff-annou
 **Pressing Assault, Israel Shifts the Goal Posts in Gaza**\
 `Israel wants to squeeze Hamas into releasing the dozens of hostages still held in the enclave. But other objectives have since emerged.`\
 https://nytimes.com/2025/04/03/world/middleeast/israel-hamas-gaza-military-objectives.html
-
-**Eric Adams to Run as an Independent, Skipping Democratic Primary**\
-`Mayor Eric Adams faced an uphill battle in the June 24 Democratic primary, which has drawn a crowded field of candidates. He will run for re-election as an independent instead.`\
-https://nytimes.com/2025/04/03/nyregion/eric-adams-independent-mayor.html
 
