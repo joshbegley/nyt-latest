@@ -1,3 +1,7 @@
+**Pete Alonso's power making up for Mets' outages elsewhere: 3 takeaways**\
+`Luis Torrens continued his stellar sub role against Miami, while the New York bullpen is showing surprising depth.`\
+https://nytimes.com/athletic/6251622/2025/04/02/new-york-mets-pete-alonso-bullpen/
+
 **Netanyahu Arrives in Hungary, Finding a Rare Welcome in Europe**\
 `The visit comes as the Israeli prime minister faces an arrest warrant against him by the International Criminal Court.`\
 https://nytimes.com/2025/04/02/world/middleeast/netanyahu-hungary-orban.html
