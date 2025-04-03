@@ -1,3 +1,7 @@
+**The 4.13.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/04/03/the-41325-issue
+
 **Women's World Cup 2035 can change the game in the UK - England's Euros success is evidence**\
 `England know better than most countries the power of hosting a tournament on home soil and the 2035 event can bring a fresh momentum`\
 https://nytimes.com/athletic/6252721/2025/04/03/womens-world-cup-2035-uk-hosts/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/03/business/dealbook/capital-one-discover-merger.htm
 **Morant, Hield receive warnings from NBA after 'inappropriate' gestures**\
 `Morant and Hield engaged in a verbal altercation that included hand gestures resembling guns during a game Tuesday. `\
 https://nytimes.com/athletic/6252893/2025/04/03/ja-morant-finger-guns-warning-nba/
-
-**In ‘The Bondsman,’ Kevin Bacon Goes to Hell and Back**\
-`The actor stars as the title character in this new horror comedy series, playing a man charged with tracking down escaped demons.`\
-https://nytimes.com/2025/04/03/arts/television/the-bondsman-kevin-bacon.html
 
