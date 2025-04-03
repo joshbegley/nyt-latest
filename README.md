@@ -1,3 +1,7 @@
+**Hungary Says It Will Withdraw From I.C.C.**\
+`The announcement came hours after Prime Minister Benjamin Netanyahu of Israel arrived in the country for a visit despite facing an international arrest warrant.`\
+https://nytimes.com/2025/04/03/world/europe/hungary-icc-netanyahu.html
+
 **Japan Lacks a ‘Viable Option’ for Retaliating to Trump’s Tariffs**\
 `Japan has refrained from talk of striking back at U.S. tariffs. Trade experts say that is because its inflation-strained economy limits its options.`\
 https://nytimes.com/2025/04/03/business/economy/japan-trump-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000010089154/kim-sae-ron-suicide-soo-hyu
 **Franca's Crystal Palace career finally has lift-off - so what comes next?**\
 `The Brazilian has had a trying time in England, but a crucial equaliser at Southampton could be the spark he needs`\
 https://nytimes.com/athletic/6240496/2025/04/03/matheus-franca-crystal-palace-goal/
-
-**'It’s just what he does': Shohei Ohtani's walk-off homer keeps Dodgers undefeated**\
-`The Dodgers rallied from a 5-0 deficit and are off to the best start ever for a defending World Series champion at 8-0.`\
-https://nytimes.com/athletic/6251815/2025/04/03/shohei-ohtani-walkoff-homer-dodgers-undefeated/
 
