@@ -1,3 +1,11 @@
+**Michigan State says NCAA investigating recruiting violations under Mel Tucker**\
+`It’s unclear what specific violations have been alleged.`\
+https://nytimes.com/athletic/6253414/2025/04/03/michigan-state-ncaa-investigation-mel-tucker/
+
+**Former Treasury Secretary Lawrence Summers says he would have quit over Trump’s tariffs plan.**\
+`By Talya Minsberg`\
+https://nytimes.com/live/2025/04/03/business/trump-tariffs/former-treasury-secretary-lawrence-summers-says-he-would-have-quit-over-trumps-tariffs-plan
+
 **NFL announces 2025 offseason workout dates for all 32 teams**\
 `Find out each team's schedule of organized team practice activities and mandatory minicamp. `\
 https://nytimes.com/athletic/6253073/2025/04/03/nfl-key-offseason-dates-minicamp-otas/

@@ -1,3 +1,7 @@
+**It’s Day 1 of a New Mayor’s Race in New York**\
+`What do a disgraced former governor, a once-indicted mayor and a former Guardian Angel have in common? They all may be on the November ballot in the New York City mayor’s race.`\
+https://nytimes.com/2025/04/03/nyregion/nyc-mayor-race-adams-independent.html
+
 **Michigan State says NCAA investigating recruiting violations under Mel Tucker**\
 `It’s unclear what specific violations have been alleged.`\
 https://nytimes.com/athletic/6253414/2025/04/03/michigan-state-ncaa-investigation-mel-tucker/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/03/opinion/jasmine-crockett-hot-wheels-code-switchin
 **What to Know About Carbon Monoxide Poisoning**\
 `Miller Gardner, the 14-year-old son of the retired Yankees player Brett Gardner, died from carbon monoxide poisoning while on vacation in Costa Rica. Here’s why the gas is so dangerous.`\
 https://nytimes.com/2025/04/03/health/carbon-monoxide-poisoning.html
-
-**Will Houston have less than 2 dunks vs. Duke? Unique prop bets for the Final Four**\
-`There are plenty of fun bets relating to the Final Four, from how many dunks Houston will have to which team will get to 15 points first.`\
-https://nytimes.com/athletic/6252635/2025/04/03/fun-final-four-prop-bets-houston-duke-auburn-florida/
 
