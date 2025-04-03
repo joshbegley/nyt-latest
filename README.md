@@ -1,3 +1,11 @@
+**Q&A: 'Uncle Jeff' Green shares his wisdom on playoffs, NBA life with young Rockets**\
+`Rockets veteran Green talks about mentoring young players, his "uncle" status and why he returned to Houston.`\
+https://nytimes.com/athletic/6250180/2025/04/03/houston-rockets-jeff-green-nba-playoffs/
+
+**What Is Your Reaction to the Arrests of Student Protesters by Federal Immigration Agents?**\
+`The Trump administration has targeted at least nine foreign pro-Palestinian students and academics for deportation. Do you support these efforts, or do you think they are a violation of civil liberties?`\
+https://nytimes.com/2025/04/03/learning/what-is-your-reaction-to-the-arrests-of-student-protesters-by-federal-immigration-agents.html
+
 **Kremlin Envoy Says He’s in U.S. for Talks With Trump Administration**\
 `Kirill Dmitriev wrote on social media that his meetings were about restoring a U.S.-Russian dialogue that was “completely destroyed under the Biden administration.”`\
 https://nytimes.com/2025/04/03/world/europe/russia-envoy-us-visit-trump-dmitriev.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/03/world/middleeast/israel-hamas-gaza-military-objec
 **Eric Adams to Run as an Independent, Skipping Democratic Primary**\
 `Mayor Eric Adams faced an uphill battle in the June 24 Democratic primary, which has drawn a crowded field of candidates. He will run for re-election as an independent instead.`\
 https://nytimes.com/2025/04/03/nyregion/eric-adams-independent-mayor.html
-
-**Twins takeaways from win over White Sox, a first series victory worth the wait**\
-`Takeaways on Carlos Correa, Byron Buxton, Pablo López and Ty France. Plus, what do players do during a three-hour, 20-minute rain delay?`\
-https://nytimes.com/athletic/6251430/2025/04/03/twins-white-sox-takeaways-correa-buxton-rain-delay/
-
-**Slot: Would have been 'more fair' for Liverpool and Arsenal to play on same night**\
-`Liverpool picked up a hard-fought 1-0 victory over Everton on Wednesday — 24 hours after Arsenal won 2-1 at home to Fulham.`\
-https://nytimes.com/athletic/6252107/2025/04/03/arne-slot-liverpool-pl-schedule/
 
