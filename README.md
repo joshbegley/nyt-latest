@@ -1,3 +1,7 @@
+**This Storm System Is Poised to Deliver Heavy Rain From Texas to Connecticut**\
+`Potentially “catastrophic” flash and river flooding is expected to continue as rain pummels the Central U.S. through Saturday, with the risk of more tornadoes.`\
+https://nytimes.com/2025/04/03/weather/rain-forecast-flooding-tennessee.html
+
 **Trump Will Tell You When He’s Done**\
 `From tariffs to ballots, he makes up his own rules.`\
 https://nytimes.com/2025/04/03/opinion/trump-third-term.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6252757/2025/04/03/caleb-kporha-crystal-palace-cont
 **If the NBA playoffs started today: The matchups and what to expect in each series**\
 `The rest of the season (and Play-In) could shake things up, but as of now, some intriguing first-round series loom.`\
 https://nytimes.com/athletic/6251570/2025/04/03/nba-playoffs-matchups-2025/
-
-**Trump’s Trade War Risks Forfeiting America’s Economic Primacy**\
-`The United States has steered an economic order for 80 years based on trade and trust, making the country the world’s financial superpower. That vision is now blurred.`\
-https://nytimes.com/2025/04/03/business/trump-tariffs-dollar.html
 

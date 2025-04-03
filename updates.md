@@ -1,3 +1,19 @@
+**Trump Will Tell You When He’s Done**\
+`From tariffs to ballots, he makes up his own rules.`\
+https://nytimes.com/2025/04/03/opinion/trump-third-term.html
+
+**Arsenal's Williams interest? Liverpool and midfielders? Guehi future? - Ask Ornstein**\
+`Once a week for an hour, The Athletic’s subscribers can ask David Ornstein for his views on anything from the world of football`\
+https://nytimes.com/athletic/6252753/2025/04/03/arsenals-nico-williams-interest-liverpool-and-midfielders-guehi-future-ask-ornstein/
+
+**This A.I. Forecast Predicts Storms Ahead**\
+`The A.I. prediction world is torn between optimism and gloom. A report released on Thursday decidedly lands on the side of gloom.`\
+https://nytimes.com/2025/04/03/technology/ai-futures-project-ai-2027.html
+
+**UK aiming to include new Man Utd stadium in 2035 Women's World Cup bid**\
+`The joint Home Nations bid was confirmed as the sole candidate for the tournament by FIFA chief Infantino at UEFA’s Congress in Belgrade.`\
+https://nytimes.com/athletic/6252625/2025/04/03/manchester-united-stadium-new-womens-world-cup/
+
 **More Penguins Than People: Trump Imposes Tariffs on Remote Islands**\
 `Some of the more sparsely populated territories in the world that do little trade with the United States have been caught up in the trade war.`\
 https://nytimes.com/2025/04/03/business/economy/trump-tariffs-uninhabited-islands.html
