@@ -1,3 +1,7 @@
+**Messi, Inter Miami facing Champions Cup exit danger after LAFC defeat**\
+`Inter Miami slumped to a 1-0 defeat against LAFC in the first leg of its Concacaf Champions Cup quarterfinal.`\
+https://nytimes.com/athletic/6251803/2025/04/03/messi-lafc-inter-miami-concacaf/
+
 **How 'Bryan's Gunn' has turned football phrases and stereotypes into social media gold**\
 `Football content creator Will Powell explains the origin of his viral videos`\
 https://nytimes.com/athletic/6249763/2025/04/03/bryans-gunn-social-media-foodbanks/
