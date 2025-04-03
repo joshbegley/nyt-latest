@@ -1,3 +1,19 @@
+**Some of Nashville’s Tornado Sirens Run Out of Battery**\
+`At least one siren in the southwestern part of the city was still out of service, and the Fire Department did not say how long repairs would take.`\
+https://nytimes.com/2025/04/03/weather/some-of-nashvilles-tornado-sirens-run-out-of-battery.html
+
+**‘Fair Likelihood’ Trump Administration Violated Court Order, Judge Says**\
+`The judge, James E. Boasberg, said he was likely to wait until next week to rule on whether the White House was in contempt of court for having ignored his order.`\
+https://nytimes.com/2025/04/03/us/politics/trump-deportations-venezuela-judge-boasberg.html
+
+**One Bird Nest, 30 Years of Human Trash**\
+`A coot’s nest reveals that what humans throw away doesn’t really go away.`\
+https://nytimes.com/interactive/2025/04/03/science/bird-nest-litter.html
+
+**March Madness Most Outstanding Player picks: Can anyone jump Cooper Flagg?**\
+`Our betting and fantasy staff make picks for Most Outstanding Player, with a little history sprinkled in.`\
+https://nytimes.com/athletic/6247038/2025/04/03/ncaa-tournament-most-outstanding-player-odds-picks/
+
 **Interesting Times with Ross Douthat**\
 `The first draft of our future. Mapping the new world order through interviews and conversations. Every Thursday, from New York Times Opinion.`\
 https://nytimes.com/column/interesting-times
@@ -21,20 +37,4 @@ https://nytimes.com/live/2025/04/03/business/trump-tariffs/why-your-can-of-beer-
 **Storm System Wreaks Havoc Across U.S. South and Midwest**\
 `Nearly 30 tornadoes were confirmed in several states after the first wave of the storm and floodwaters overtook streets in Tennessee.`\
 https://nytimes.com/video/weather/100000010090827/storms-south-midwest-tornadoes-floods.html
-
-**Two Top Organizers of Canada’s Trucker Convoy Are Found Guilty**\
-`The case is among the last stemming from the 2022 trucker protests, which spawned many other criminal cases, lawsuits and a public inquiry.`\
-https://nytimes.com/2025/04/03/world/americas/canada-freedom-convoy-organizers-guilty.html
-
-**Trump Just Bet the Farm**\
-`Donald Trump is upending a world that has brought peace and stability for 80 years. What is it he doesn’t understand?`\
-https://nytimes.com/2025/04/03/opinion/trump-tariffs-us-security-stability.html
-
-**Pentagon Will Review Hegseth’s Use of Signal**\
-`The review started in response to a joint bipartisan request last week from leaders of the Senate Armed Services Committee.`\
-https://nytimes.com/2025/04/03/us/politics/signal-pete-hegseth-pentagon.html
-
-**The Briefing: Chelsea 1 Tottenham 0 – Maresca relief, Postecoglou pressure, and will Eintracht be concerned?**\
-`Analysis of the key talking points at Stamford Bridge as Chelsea pile on yet more misery for Ange Postecoglou's struggling side`\
-https://nytimes.com/athletic/6246914/2025/04/03/chelsea-tottenham-ven-romero-palmer-sancho-maresca/
 

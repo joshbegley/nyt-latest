@@ -1,3 +1,7 @@
+**Interesting Times with Ross Douthat**\
+`The first draft of our future. Mapping the new world order through interviews and conversations. Every Thursday, from New York Times Opinion.`\
+https://nytimes.com/column/interesting-times
+
 **Mel Gibson’s Gun Rights to Be Restored by Justice Dept.**\
 `People familiar with the decision said Mr. Gibson, a supporter of President Trump, would be among 10 people with convictions to get back their gun rights.`\
 https://nytimes.com/2025/04/03/us/politics/mel-gibson-gun-rights.html

@@ -1,3 +1,7 @@
+**Interesting Times with Ross Douthat**\
+`The first draft of our future. Mapping the new world order through interviews and conversations. Every Thursday, from New York Times Opinion.`\
+https://nytimes.com/column/interesting-times
+
 **Mel Gibson’s Gun Rights to Be Restored by Justice Dept.**\
 `People familiar with the decision said Mr. Gibson, a supporter of President Trump, would be among 10 people with convictions to get back their gun rights.`\
 https://nytimes.com/2025/04/03/us/politics/mel-gibson-gun-rights.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/03/us/politics/signal-pete-hegseth-pentagon.html
 **The Briefing: Chelsea 1 Tottenham 0 – Maresca relief, Postecoglou pressure, and will Eintracht be concerned?**\
 `Analysis of the key talking points at Stamford Bridge as Chelsea pile on yet more misery for Ange Postecoglou's struggling side`\
 https://nytimes.com/athletic/6246914/2025/04/03/chelsea-tottenham-ven-romero-palmer-sancho-maresca/
-
-**In Worst Stock Market in Years, Slow and Boring Has Eased the Pain**\
-`People have avoided huge losses by holding old-fashioned, well-balanced investments, an approach our columnist is banking on for the future.`\
-https://nytimes.com/2025/04/03/business/stock-market-investing-retirement-pain-stocks-bonds.html
 
