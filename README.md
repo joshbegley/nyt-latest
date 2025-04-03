@@ -1,3 +1,11 @@
+**Analysis: How Flick perfected the science of substitutions to beat Atletico**\
+`The manager is getting the most out of his squad as Barca fight on three fronts`\
+https://nytimes.com/athletic/6252141/2025/04/03/flick-barcelona-squad-substitutes-atletico/
+
+**Drance: The Canucks' sealed fate, Jared McCann and the risks of short-term thinking**\
+`The Canucks' 5-0 loss to the Kraken is a potent symbol of the sort of short-term thinking that has led to their disappointing season.`\
+https://nytimes.com/athletic/6251907/2025/04/03/canucks-kraken-jared-mccann-nhl/
+
 **Premier League confirms new dates for Arsenal-Palace, Man City-Villa**\
 `The fixture amendments have created a Double Gameweek in GW33.`\
 https://nytimes.com/athletic/6252314/2025/04/03/fpl-double-gameweek-fixtures-arsenal-man-city/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/04/03/weather/midwest-storms-tornado
 **Israel Hits Syria With New Strikes and Ground Raid as Tensions Soar**\
 `Israel defended the moves as necessary security measures, but Syria accused it of trying to destabilize the country.`\
 https://nytimes.com/2025/04/03/world/middleeast/israel-syria-airstrikes-ground-operation.html
-
-**How Countries Responded to Trump’s Tariffs**\
-`China vowed countermeasures and the E.U. promised a unified response, while Britain and Japan refrained from immediate retaliation.`\
-https://nytimes.com/2025/04/03/business/economy/trump-tariffs-reciprocal-reaction.html
-
-**Trump Administration Live Updates: Rubio Visits NATO Amid Tensions With Europe**\
-``\
-https://nytimes.com/live/2025/04/03/us/trump-news-updates
 
