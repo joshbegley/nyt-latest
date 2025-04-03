@@ -1,3 +1,35 @@
+**NFL announces 2025 offseason workout dates for all 32 teams**\
+`Find out each team's schedule of organized team practice activities and mandatory minicamp. `\
+https://nytimes.com/athletic/6253073/2025/04/03/nfl-key-offseason-dates-minicamp-otas/
+
+**Raiders, QB Geno Smith agree to two-year, $85.5 million extension: Source**\
+`After trading for the veteran QB last month, Las Vegas extends his deal to keep him under contract through 2027. `\
+https://nytimes.com/athletic/6205076/2025/04/03/raiders-geno-smith-contract-extension-nfl-news/
+
+**What Students Are Saying About ‘College for All’**\
+`Should every student be encouraged to pursue a four-year degree after high school? Teenagers weigh in.`\
+https://nytimes.com/2025/04/03/learning/what-students-are-saying-about-college-for-all.html
+
+**How Trump’s Tariffs Threaten the Transition to Cleaner Energy**\
+`Tariffs are the latest blow in a the shift to renewable energy. The U.S. relies largely on imported technology from Europe and Asia.`\
+https://nytimes.com/2025/04/03/climate/trump-tariff-clean-energy-transition.html
+
+**F.D.A. Layoffs Could Raise Drug Costs and Erode Food Safety**\
+`Trump cutbacks were supposedly aimed at administrators. But scientists in food and drug-testing labs and policy experts who advance generic drug approvals were also dismissed.`\
+https://nytimes.com/2025/04/03/health/fda-layoffs-food-and-drug-safety-rfk-jr.html
+
+**She Crossed a Line That Even the Saltiest Speech Should Avoid**\
+`What the controversy about Jasmine Crockett’s comments got wrong — and right`\
+https://nytimes.com/2025/04/03/opinion/jasmine-crockett-hot-wheels-code-switching.html
+
+**What to Know About Carbon Monoxide Poisoning**\
+`Miller Gardner, the 14-year-old son of the retired Yankees player Brett Gardner, died from carbon monoxide poisoning while on vacation in Costa Rica. Here’s why the gas is so dangerous.`\
+https://nytimes.com/2025/04/03/health/carbon-monoxide-poisoning.html
+
+**Will Houston have less than 2 dunks vs. Duke? Unique prop bets for the Final Four**\
+`There are plenty of fun bets relating to the Final Four, from how many dunks Houston will have to which team will get to 15 points first.`\
+https://nytimes.com/athletic/6252635/2025/04/03/fun-final-four-prop-bets-houston-duke-auburn-florida/
+
 **The Windup: Why 2 young stars signed extensions *now***\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6251726/2025/04/03/merrill-campbell-contract-extension-the-windup/
