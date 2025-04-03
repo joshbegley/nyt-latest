@@ -1,3 +1,11 @@
+**Murders and Shootings Tumble in New York City in First Quarter of Year**\
+`The number of shootings in the first three months of 2025 was the lowest since 1994, but rape numbers were up and more children were shot, according to police statistics.`\
+https://nytimes.com/2025/04/03/nyregion/nyc-shootings-decrease-first-quarter.html
+
+**More Grocery Stores That Are Also Great Restaurants**\
+`It’s round two back at markets that have the best prepared foods for the days you’re not quite feeling restaurants.`\
+https://nytimes.com/2025/04/03/dining/more-grocery-stores-that-are-also-great-restaurants.html
+
 **Hurricane Experts Forecast Another Above-Average Atlantic Hurricane Season**\
 `After an active season in 2024, researchers at Colorado State University see another one on the way for 2025.`\
 https://nytimes.com/2025/04/03/weather/2025-atlantic-hurricane-season-forecast.html
@@ -30,12 +38,4 @@ https://nytimes.com/2025/04/03/nyregion/nyc-mayor-race-adams-independent.html
 **Michigan State says NCAA investigating recruiting violations under Mel Tucker**\
 `It’s unclear what specific violations have been alleged.`\
 https://nytimes.com/athletic/6253414/2025/04/03/michigan-state-ncaa-investigation-mel-tucker/
-
-**Former Treasury Secretary Lawrence Summers says he would have quit over Trump’s tariffs plan.**\
-`By Talya Minsberg`\
-https://nytimes.com/live/2025/04/03/business/trump-tariffs/former-treasury-secretary-lawrence-summers-says-he-would-have-quit-over-trumps-tariffs-plan
-
-**NFL announces 2025 offseason workout dates for all 32 teams**\
-`Find out each team's schedule of organized team practice activities and mandatory minicamp. `\
-https://nytimes.com/athletic/6253073/2025/04/03/nfl-key-offseason-dates-minicamp-otas/
 
