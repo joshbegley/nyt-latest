@@ -1,3 +1,11 @@
+**The Newcastle fan, his cup final video QR code tattoo and rival supporters' bid to remove the clip**\
+`Graeme Davison explains why he marked Dan Burn's goal in such an unusual way - and why fans of other clubs could be causing him a problem`\
+https://nytimes.com/athletic/6252226/2025/04/03/newcastle-graeme-davison-qr-code-tattoo/
+
+**Arsenal defender Gabriel to undergo surgery, set to miss rest of season**\
+`Gabriel had to be withdrawn in the 16th minute of Tuesday night's 2-1 victory at home to Fulham in the Premier League.`\
+https://nytimes.com/athletic/6249042/2025/04/03/garbriel-arsenal-hamstring-injury-surgery/
+
 **Trump’s Tariffs Don’t Apply to Chips, but Taiwan Remains Wary**\
 `As the center of the global supply chain, Taiwan’s chip companies are expected to face pressure from Washington to invest more in the U.S.`\
 https://nytimes.com/2025/04/03/business/trump-tariffs-taiwan-chips.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/03/arts/music/bruce-springsteen-tracks-ii-the-lost-a
 **Trump Took a Wrecking Ball to Southeast Asia’s Role as an Alternative to China**\
 `Punishing tariffs on Vietnam, Cambodia, Thailand and others in the region threaten their position as major manufacturing hubs for the American market.`\
 https://nytimes.com/2025/04/03/business/trump-tariffs-vietnam-southeast-asia.html
-
-**FIFA president Infantino hopeful on Russia return to football 'soon'**\
-`Infantino said he was hoping for Russia's football return as this would signify that the war was over and "everything was solved".`\
-https://nytimes.com/athletic/6252289/2025/04/03/fifa-president-gianni-infantino-hopeful-on-russia-return-to-football-soon/
-
-**Live Updates: Tornadoes and Flooding Hit South and Midwest**\
-`At least two people were killed in Tennessee, officials said, and millions were under severe weather advisories. Flooding was reported in Nashville.`\
-https://nytimes.com/live/2025/04/03/weather/midwest-storms-tornado
 
