@@ -14,7 +14,7 @@ https://nytimes.com/live/2025/04/03/business/trump-tariffs/lists-of-tariffs-issu
 `Trump’s tariffs erect a wall between Americans and other people — a wall that obstructs not only the flow of goods, but the flow of ideas, contacts, technology and friendships.`\
 https://nytimes.com/2025/04/03/opinion/tariffs-trump.html
 
-**Ford offers discounts on cars and trucks as auto tariffs kick in.**\
+**Ford Offers Discounts on Cars and Trucks as Auto Tariffs Kick In**\
 `The company said it would offer customers the same prices it offers its employees on most of its vehicles.`\
 https://nytimes.com/2025/04/03/business/economy/ford-discounts-auto-tariffs.html
 
