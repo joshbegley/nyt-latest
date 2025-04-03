@@ -1,3 +1,7 @@
+**How Are Trump’s Tariff Rates Calculated?**\
+`The answer appears to begin with the total trade deficit America runs with its trading partners.`\
+https://nytimes.com/2025/04/02/business/economy/trump-tariff-rates-calculation.html
+
 **Tornadoes Reported in South and Midwest Amid Powerful Storm System**\
 `Millions of people across several states were at risk of tornadoes and other severe weather on Wednesday.`\
 https://nytimes.com/2025/04/02/weather/tornado-storms-midwest-weather.html
