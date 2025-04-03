@@ -1,3 +1,7 @@
+**How Will She Teach Pilates in an Ankle Monitor?**\
+`Convicted of fraud and facing the possibility of decades in prison, Charlie Javice was concerned about how a monitoring device would affect her job.`\
+https://nytimes.com/2025/04/03/style/charlie-javice-ankle-monitor-pilates.html
+
 **C.E.O. Choked Man Who Danced Barefoot on Cruise Ship, U.S. Says**\
 `Kenneth D. DeGiorgio, the chief executive of First American Financial, was charged with assault. His lawyers say that the other man was harassing the executive’s wife.`\
 https://nytimes.com/2025/04/03/us/ceo-choking-virgin-cruise.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/03/us/tufts-student-deportation-ice.html
 **Judge Blocks H.H.S. From Terminating $11 Billion in Public Health Grants**\
 `A coalition of states sued over the Trump administration’s unexpected move to cut off the funds, which they said imperiled everything from childhood vaccination programs to opioid addiction treatment.`\
 https://nytimes.com/2025/04/03/us/politics/hhs-public-health-grants-judge.html
-
-**Some Weather Service Offices Are Delaying or Skipping Storm Surveys**\
-`At least two Weather Service offices in Kentucky cited the continued threat of bad weather.`\
-https://nytimes.com/2025/04/03/weather/national-weather-service-staffing.html
 
