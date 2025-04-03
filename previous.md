@@ -1,3 +1,7 @@
+**Jota needed a big performance for Liverpool - this was it**\
+`The Portuguese has struggled recently but the Merseyside derby offered a reminder of his prowess as a No 9`\
+https://nytimes.com/athletic/6251162/2025/04/03/diogo-jota-liverpool-everton-goal/
+
 **Celtics thoughts: Jaylen Brown has a plan, Luke Kornet bummed about fouls and more**\
 `After completing the first 6-0 road trip in franchise history, Boston surrendered its worst defensive performance in the play-by-play era.`\
 https://nytimes.com/athletic/6251750/2025/04/03/celtics-lose-heat-jaylen-brown-luke-kornet/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6250926/2025/04/03/manchester-city-doku-savinho-gre
 **Is this the worst Leicester City side in Premier League history?**\
 `Ruud van Nistelrooy's side are record-breakers… but for all the wrong reasons`\
 https://nytimes.com/athletic/6250894/2025/04/03/is-this-the-worst-leicester-city-side/
-
-**Arsenal striker options: Gyokeres, Sesko, Isak, Watkins, Cunha compared**\
-`Arteta needs a centre-forward this summer, but cost, style and age need to be taken into consideration. We weigh up five contenders.`\
-https://nytimes.com/athletic/6249545/2025/04/03/arsenal-striker-options-gyokeres-sesko/
 
