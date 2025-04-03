@@ -1,3 +1,7 @@
+**Trump’s De Minimis Order Poised to Upend E-Commerce**\
+`The loophole has allowed retailers to send goods from China directly to U.S. shoppers without paying tariffs. Closing it could raise consumer prices.`\
+https://nytimes.com/2025/04/03/business/trump-de-minimis-china-shipments.html
+
 **Trump’s tariffs deliver a blow to Nike’s bet on Vietnam.**\
 `Nike thought Vietnam would be a cheaper and less fraught zone for manufacturing than China. Now, all bets are off.`\
 https://nytimes.com/live/2025/04/03/business/trump-tariffs/nike-stock-tariffs-vietnam
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000010087142/birmingham-trash-garbage-
 **Fantasy baseball bullpen report: A demotion in Pittsburgh, a saves sleeper in Cincy**\
 `We're only a week into the 2025 regular season, but Greg Jewett has plenty to talk about in terms of notable MLB bullpen movement. `\
 https://nytimes.com/athletic/6252778/2025/04/03/fantasy-baseball-2025-bullpen-report-saves-sleeper/
-
-**Trump Trade ‘Emergency’ Follows Decades of Anger That America Has Been Ripped Off**\
-`Economists and legal experts question how the strongest economy in the world can be facing a national emergency over the trade deficit.`\
-https://nytimes.com/2025/04/03/us/politics/trump-tariffs-trade-deficit-manufacturing.html
 
