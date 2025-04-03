@@ -1,3 +1,7 @@
+**A Stunned World Reckons With Economic Fallout From Trump’s Tariffs**\
+`Not even America’s closest trading partners were spared by a policy broadside that spooked investors and left policymakers scrambling to formulate responses.`\
+https://nytimes.com/2025/04/03/business/trump-tariffs-global-reaction.html
+
 **PGMOL acknowledges Tarkowski should have been sent off for foul on Mac Allister**\
 `Tarkowski was only shown a yellow card when an ugly follow-through saw the defender’s studs hit Mac Allister just below the knee.`\
 https://nytimes.com/athletic/6252043/2025/04/03/liverpool-everton-pgmol-tarkowski-mac-allister/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/03/opinion/trump-evangelicals-easter.html
 **Gracie Abrams on Her Skin Essentials and Favorite Hair Bows**\
 `Plus: wild hops in Venice, a Catherine Opie exhibition in New York and more recommendations from T Magazine.`\
 https://nytimes.com/2025/04/03/t-magazine/gracie-abrams-beauty-bows.html
-
-**They Wanted Bigger Space in a Smaller Building in Brooklyn. Friendly Neighbors a Plus.**\
-`Shaking off first-time, home-buying jitters, a couple with a budget of just over $1 million searched for a two-bedroom with room for guests and their dog.`\
-https://nytimes.com/interactive/2025/04/03/realestate/brooklyn-home-sale.html
 
