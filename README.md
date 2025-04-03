@@ -23,7 +23,7 @@ https://nytimes.com/live/2025/04/03/business/trump-tariffs/former-treasury-secre
 `Find out each team's schedule of organized team practice activities and mandatory minicamp. `\
 https://nytimes.com/athletic/6253073/2025/04/03/nfl-key-offseason-dates-minicamp-otas/
 
-**Raiders, QB Geno Smith agree to two-year, $85.5 million extension: Source**\
+**Raiders, QB Geno Smith agree to two-year extension worth up to $85.5 million: Source**\
 `After trading for the veteran QB last month, Las Vegas extends his deal to keep him under contract through 2027. `\
 https://nytimes.com/athletic/6205076/2025/04/03/raiders-geno-smith-contract-extension-nfl-news/
 
