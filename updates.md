@@ -1,3 +1,7 @@
+**Franca's Crystal Palace career finally has lift-off - so what comes next?**\
+`The Brazilian has had a trying time in England but a crucial equaliser at Southampton could be the spark he needs`\
+https://nytimes.com/athletic/6240496/2025/04/03/matheus-franca-crystal-palace-goal/
+
 **'It’s just what he does': Shohei Ohtani's walk-off homer keeps Dodgers undefeated**\
 `The Dodgers rallied from a 5-0 deficit and are off to the best start ever for a defending World Series champion at 8-0.`\
 https://nytimes.com/athletic/6251815/2025/04/03/shohei-ohtani-walkoff-homer-dodgers-undefeated/
