@@ -1,3 +1,7 @@
+**How Countries Responded to Trump’s Tariffs**\
+`China vowed countermeasures and the E.U. promised a unified response, while Britain and Japan refrained from immediate retaliation.`\
+https://nytimes.com/2025/04/03/business/economy/trump-tariffs-reciprocal-reaction.html
+
 **Trump Administration Live Updates: Rubio Visits NATO Amid Tensions With Europe**\
 ``\
 https://nytimes.com/live/2025/04/03/us/trump-news-updates
