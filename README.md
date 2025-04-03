@@ -1,3 +1,11 @@
+**Tufts Student Held by ICE Asks Court to Return Her Case to Massachusetts**\
+`After being picked up in Massachusetts, Rumeysa Ozturk was moved to a detention center in Louisiana, where the government wants to argue its case to deport her.`\
+https://nytimes.com/2025/04/03/us/tufts-student-deportation-ice.html
+
+**Judge Blocks H.H.S. From Terminating $11 Billion in Public Health Grants**\
+`A coalition of states sued over the Trump administration’s unexpected move to cut off the funds, which they said imperiled everything from childhood vaccination programs to opioid addiction treatment.`\
+https://nytimes.com/2025/04/03/us/politics/hhs-public-health-grants-judge.html
+
 **Some Weather Service Offices Are Delaying or Skipping Storm Surveys**\
 `At least two Weather Service offices in Kentucky cited the continued threat of bad weather.`\
 https://nytimes.com/2025/04/03/weather/national-weather-service-staffing.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/03/us/politics/trump-deportations-venezuela-judge-bo
 **One Bird Nest, 30 Years of Human Trash**\
 `A coot’s nest reveals that what humans throw away doesn’t really go away.`\
 https://nytimes.com/interactive/2025/04/03/science/bird-nest-litter.html
-
-**March Madness Most Outstanding Player picks: Can anyone jump Cooper Flagg?**\
-`Our betting and fantasy staff make picks for Most Outstanding Player, with a little history sprinkled in.`\
-https://nytimes.com/athletic/6247038/2025/04/03/ncaa-tournament-most-outstanding-player-odds-picks/
-
-**Interesting Times with Ross Douthat**\
-`The first draft of our future. Mapping the new world order through interviews and conversations. Every Thursday, from New York Times Opinion.`\
-https://nytimes.com/column/interesting-times
 
