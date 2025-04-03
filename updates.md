@@ -1,3 +1,7 @@
+**Japan Lacks a ‘Viable Option’ for Retaliating to Trump’s Tariffs**\
+`Japan has refrained from talk of striking back at U.S. tariffs. Trade experts say that is because its inflation-strained economy limits its options.`\
+https://nytimes.com/2025/04/03/business/economy/japan-trump-tariffs.html
+
 **Piled High**\
 `What do you think this image is communicating?`\
 https://nytimes.com/2025/04/03/learning/piled-high.html
