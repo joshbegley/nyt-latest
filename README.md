@@ -1,3 +1,11 @@
+**The Briefing:  Chelsea 1 Tottenham 0 - Maresca relief, Postecoglou pressure, and will Eintracht be concerned?**\
+`Analysis of the key talking points at Stamford Bridge as Chelsea pile on yet more misery for Ange Postecoglou's struggling side`\
+https://nytimes.com/athletic/6246914/2025/04/03/chelsea-tottenham-ven-romero-palmer-sancho-maresca/
+
+**In Worst Stock Market in Years, Slow and Boring Has Eased the Pain**\
+`People have avoided huge losses by holding old-fashioned, well-balanced investments, an approach our columnist is banking on for the future.`\
+https://nytimes.com/2025/04/03/business/stock-market-investing-retirement-pain-stocks-bonds.html
+
 **Friday Briefing: Trump’s Tariffs Rattle the Markets**\
 `Plus, Bruce Springsteen’s “Lost Albums.”`\
 https://nytimes.com/2025/04/03/briefing/tariffs-markets-israel-gaza-airstrike-south-korea-yoon.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/03/nyregion/queens-man-charged-unlicensed-surgery.ht
 **What to Know About Trump’s New Tariffs**\
 `The president announced sweeping tariffs on Wednesday in an effort to reset global trading relationships. Here’s what you need to know.`\
 https://nytimes.com/2025/04/03/business/economy/trump-tariffs-trade.html
-
-**Red Sox takeaways from opening road trip: Crochet, Campbell extensions, Devers gets a hit**\
-`After a slow start, the Red Sox salvaged the road trip with a series win in Baltimore and return home following a news-filled first week.`\
-https://nytimes.com/athletic/6253474/2025/04/03/red-sox-takeaways-extensions-rafael-devers-first-hit/
-
-**Israeli Strike Kills Dozens at Gaza City Shelter, Officials Say**\
-`The Israeli military said it was looking into reports about the deaths at a school-turned-shelter, which came as Israel was intensifying its offensive in Gaza to pressure Hamas to release hostages.`\
-https://nytimes.com/2025/04/03/world/middleeast/gaza-city-school-strike.html
 
