@@ -1,3 +1,7 @@
+**Mexico’s president says her country was given ‘preferential treatment’ in the new U.S. tariffs announcement.**\
+`By James Wagner`\
+https://nytimes.com/live/2025/04/03/business/trump-tariffs/mexicos-president-says-her-country-was-given-preferential-treatment-in-the-new-us-tariffs-announcement
+
 **Even in tough loss to Thunder, Pistons show glimpses of how good team can be**\
 `The Pistons defense pressured the Thunder throughout the fourth quarter, but Detroit didn't have enough offense to topple Oklahoma City.`\
 https://nytimes.com/athletic/6252814/2025/04/03/dennis-schroder-pistons-thunder/

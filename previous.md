@@ -1,3 +1,7 @@
+**Mexico’s president says her country was given ‘preferential treatment’ in the new U.S. tariffs announcement.**\
+`By James Wagner`\
+https://nytimes.com/live/2025/04/03/business/trump-tariffs/mexicos-president-says-her-country-was-given-preferential-treatment-in-the-new-us-tariffs-announcement
+
 **Even in tough loss to Thunder, Pistons show glimpses of how good team can be**\
 `The Pistons defense pressured the Thunder throughout the fourth quarter, but Detroit didn't have enough offense to topple Oklahoma City.`\
 https://nytimes.com/athletic/6252814/2025/04/03/dennis-schroder-pistons-thunder/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/03/world/americas/miller-gardner-carbon-monoxide-poi
 **How Trump’s Tariffs Could Hobble the Fastest-Growing Energy Technology**\
 `Across the country, companies have been installing giant batteries that help them use more wind and solar power. That’s about to get much harder.`\
 https://nytimes.com/2025/04/03/climate/trump-tariffs-battery-storage.html
-
-**This Storm System Is Poised to Deliver Heavy Rain From Texas to Connecticut**\
-`Potentially “catastrophic” flash and river flooding is expected to continue as rain pummels the Central U.S. through Saturday, with the risk of more tornadoes.`\
-https://nytimes.com/2025/04/03/weather/rain-forecast-flooding-tennessee.html
 
