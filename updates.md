@@ -1,3 +1,11 @@
+**Inquest into death of West Brom fan at Sheffield Wednesday game set for September**\
+`Mark Townsend died after collapsing while attending the EFL Championship game between Sheffield Wednesday and West Brom in September 2024.`\
+https://nytimes.com/athletic/6252679/2025/04/03/west-brom-fan-death-hillsborough/
+
+**How Much Will Trump’s Tariffs Cost U.S. Importers?**\
+`It will cost an extra $714 billion in tariffs to bring shoes, TVs and all other imports into the United States, a new analysis of trade data shows.`\
+https://nytimes.com/interactive/2025/04/03/business/economy/trump-tariffs-us-imports.html
+
 **Garbage Strike Leaves Rotting Trash Piling Up in Major British City**\
 `A pay strike by garbage collectors in Birmingham, Britain’s second-largest city, has left 17,000 tons of rotting trash on its streets, raising public health concerns.`\
 https://nytimes.com/video/world/europe/100000010087142/birmingham-trash-garbage-strike.html
