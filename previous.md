@@ -1,6 +1,6 @@
 **Trump’s Tariffs Hit Garment Makers in Bangladesh and Sri Lanka Hard**\
 `The industry supplies low-cost clothing to the United States is a crucial part of the Asian countries’ economies.`\
-https://nytimes.com/2025/04/03/business/economy/trumps-tariffs-hit-garment-makers-in-bangladesh-and-sri-lanka-hard.html
+https://nytimes.com/2025/04/03/business/economy/trumps-tariffs-bangladesh-sri-lanka.html
 
 **Kporha signs new four-year Crystal Palace contract**\
 `The 18-year-old’s previous deal was set to expire this summer but he has now committed his future to Palace.`\
@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6252757/2025/04/03/caleb-kporha-crystal-palace-cont
 https://nytimes.com/athletic/6251570/2025/04/03/nba-playoffs-matchups-2025/
 
 **Trump’s Trade War Risks Forfeiting America’s Economic Primacy**\
-`The United States has steered an economic order for 75 years based on trade and trust, making the country the world’s financial superpower. That vision is now blurred.`\
+`The United States has steered an economic order for 80 years based on trade and trust, making the country the world’s financial superpower. That vision is now blurred.`\
 https://nytimes.com/2025/04/03/business/trump-tariffs-dollar.html
 
 **Lists of tariffs issued by the White House show two different figures for some countries.**\
