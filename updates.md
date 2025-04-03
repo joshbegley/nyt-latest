@@ -1,3 +1,7 @@
+**How Will She Teach Pilates in an Ankle Monitor?**\
+`Convicted of fraud and facing the possibility of decades in prison, Charlie Javice was concerned about how a monitoring device would affect her job.`\
+https://nytimes.com/2025/04/03/style/charlie-javice-ankle-monitor-pilates.html
+
 **C.E.O. Choked Man Who Danced Barefoot on Cruise Ship, U.S. Says**\
 `Kenneth D. DeGiorgio, the chief executive of First American Financial, was charged with assault. His lawyers say that the other man was harassing the executive’s wife.`\
 https://nytimes.com/2025/04/03/us/ceo-choking-virgin-cruise.html
