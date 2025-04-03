@@ -1,3 +1,11 @@
+**Piled High**\
+`What do you think this image is communicating?`\
+https://nytimes.com/2025/04/03/learning/piled-high.html
+
+**Who is the best fit at No 10 for Brighton after losing Rutter to injury?**\
+`Brighton's defeat to Aston Villa shows how important Georginio Rutter is in the No 10 role as they chase European football`\
+https://nytimes.com/athletic/6246353/2025/04/03/brighton-georginio-rutter-brajan-gruder/
+
 **Braves takeaways: RISP woes in 0-7 start, Marcell Ozuna's walks, Nick Allen's rise**\
 `The Braves scored five unearned runs in the first two innings to take a 5-0 lead Wednesday. And still it wasn't enough.`\
 https://nytimes.com/athletic/6251847/2025/04/03/braves-takeaways-marcell-ozuna-nick-allen/

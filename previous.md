@@ -1,3 +1,7 @@
+**Piled High**\
+`What do you think this image is communicating?`\
+https://nytimes.com/2025/04/03/learning/piled-high.html
+
 **Braves takeaways: RISP woes in 0-7 start, Marcell Ozuna's walks, Nick Allen's rise**\
 `The Braves scored five unearned runs in the first two innings to take a 5-0 lead Wednesday. And still it wasn't enough.`\
 https://nytimes.com/athletic/6251847/2025/04/03/braves-takeaways-marcell-ozuna-nick-allen/
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/6240496/2025/04/03/matheus-franca-crystal-palace-go
 `The Dodgers rallied from a 5-0 deficit and are off to the best start ever for a defending World Series champion at 8-0.`\
 https://nytimes.com/athletic/6251815/2025/04/03/shohei-ohtani-walkoff-homer-dodgers-undefeated/
 
-**Who is the best fit at No 10 for Brighton in Rutter's absence?**\
+**Who is the best fit at No 10 for Brighton after losing Rutter to injury?**\
 `Brighton's defeat to Aston Villa shows how important Georginio Rutter is in the No 10 role as they chase European football`\
 https://nytimes.com/athletic/6246353/2025/04/03/brighton-georginio-rutter-brajan-gruder/
-
-**Young Blackhawks' overtime loss to Avalanche is one to grow on, one to learn from**\
-`Now the young Blackhawks know what it's like to play against a MacKinnon and a Makar, and now they know what not to do against them.`\
-https://nytimes.com/athletic/6251831/2025/04/03/blackhawks-overtime-loss-to-avalanche/
 
