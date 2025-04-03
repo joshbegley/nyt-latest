@@ -1,3 +1,11 @@
+**Celtics thoughts: Jaylen Brown has a plan, Luke Kornet bummed about fouls and more**\
+`After completing the first 6-0 road trip in franchise history, Boston surrendered its worst defensive performance in the play-by-play era.`\
+https://nytimes.com/athletic/6251750/2025/04/03/celtics-lose-heat-jaylen-brown-luke-kornet/
+
+**The New York Times in Print for Thursday, April 3, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/03/todays-new-york-times
+
 **Here’s the latest.**\
 `By Ana Swanson, Alan Rappeport and Tony Romm`\
 https://nytimes.com/live/2025/04/03/business/trump-tariffs/heres-the-latest
