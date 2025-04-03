@@ -1,3 +1,11 @@
+**Quote of the Day: Where America and France Secured Their Bond**\
+`Quotation of the Day for Thursday, March 3, 2025.`\
+https://nytimes.com/2025/04/02/pageoneplus/quote-of-the-day-where-america-and-france-secured-their-bond.html
+
+**Russo: Optimism is tough during this Wild skid, but huge reinforcements appear near**\
+`The Wild have picked up two points just once in their past six games. Even with Kaprizov on the horizon, the team needs to adjust.`\
+https://nytimes.com/athletic/6251677/2025/04/02/wild-skid-kaprizov-eriksson-ek-return-rangers/
+
 **Pete Alonso's power making up for Mets' outages elsewhere: 3 takeaways**\
 `Luis Torrens continued his stellar sub role against Miami, while the New York bullpen is showing surprising depth.`\
 https://nytimes.com/athletic/6251622/2025/04/02/new-york-mets-pete-alonso-bullpen/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6251571/2025/04/02/maple-leafs-report-cards-marner-
 **Coco Gauff switching agencies, launching Coco Gauff Enterprises with WME**\
 `Gauff said her new venture would "reflect my passion for making an impact — not just in tennis but in business, philanthropy and beyond."`\
 https://nytimes.com/athletic/6251562/2025/04/02/coco-gauff-agency-wme/
-
-**Rockets clinch NBA playoff spot for first time since 2020**\
-`The organization languished at the bottom of the Western Conference for years after James Harden departed in 2021.`\
-https://nytimes.com/athletic/6251488/2025/04/02/rockets-nba-playoff-spot-2025/
-
-**Twins takeaways from win over White Sox, a first series victory worth the wait**\
-`Takeaways on Carlos Correa, Byron Buxton, Pablo López and Ty France. Plus, what do players do during a three-hour, 20-minute rain delay?`\
-https://nytimes.com/athletic/6251430/2025/04/02/twins-white-sox-takeaways-correa-buxton-rain-delay/
 
