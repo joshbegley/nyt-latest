@@ -1,3 +1,11 @@
+**Quote of the Day: Where America and France Secured Their Bond**\
+`Quotation of the Day for Thursday, March 3, 2025.`\
+https://nytimes.com/2025/04/02/pageoneplus/quote-of-the-day-where-america-and-france-secured-their-bond.html
+
+**Russo: Optimism is tough during this Wild skid, but huge reinforcements appear near**\
+`The Wild have picked up two points just once in their past six games. Even with Kaprizov on the horizon, the team needs to adjust.`\
+https://nytimes.com/athletic/6251677/2025/04/02/wild-skid-kaprizov-eriksson-ek-return-rangers/
+
 **Pete Alonso's power making up for Mets' outages elsewhere: 3 takeaways**\
 `Luis Torrens continued his stellar sub role against Miami, while the New York bullpen is showing surprising depth.`\
 https://nytimes.com/athletic/6251622/2025/04/02/new-york-mets-pete-alonso-bullpen/
