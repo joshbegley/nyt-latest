@@ -1,9 +1,17 @@
+**Farke to drop Meslier for Darlow vs Luton**\
+`It will be Darlow's first league start in more than 15 months.`\
+https://nytimes.com/athletic/6252535/2025/04/03/illan-meslier-karl-darlow-leeds-luton/
+
+**Overlooked No More: Katharine McCormick, Force Behind the Birth Control Pill**\
+`She used her wealth strategically to expand opportunities for women, underwriting the development of the pill and supporting the suffrage movement.`\
+https://nytimes.com/2025/04/03/obituaries/katharine-mccormick-overlooked.html
+
 **Prince Harry Expresses ‘Relief’ Over U.K. Charity Investigation**\
 `A British regulator said it would examine concerns about Sentebale, the charity Harry co-founded, looking at its chair as well as its trustees.`\
 https://nytimes.com/2025/04/03/world/europe/prince-harry-charity-investigation.html
 
 **The Childish Tariff Formula That Will Reshape the Global Economy**\
-`By Binyamin Appelbaum`\
+`Trump said repeatedly that the tariffs are “reciprocal,” but that’s not true. The rates were calculated using a childish formula based on trade imbalances.`\
 https://nytimes.com/2025/04/03/opinion/trump-tariffs-formula-global-economy.html
 
 **Marinakis alleges he is victim of a conspiracy after sports violence charges**\
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/04/03/business/trump-tariffs/as-wall-street-sags-l
 **Trump Administration Threatens to Withhold Funds From Public Schools**\
 `State education officials will be required to verify that they have eliminated all programs that promote diversity, equity and inclusion that the administration deems unlawful, according to a new memo.`\
 https://nytimes.com/2025/04/03/us/politics/public-school-funding-trump-dei.html
-
-**Cowboys acquiring QB Joe Milton from Patriots: Source**\
-`Milton brings depth and upside to the Cowboys' QB depth chart that before only included Dak Prescott and Will Grier.`\
-https://nytimes.com/athletic/6252299/2025/04/03/joe-milton-cowboys-patriots-trade/
-
-**Anthony Davis' dominant two-way effort allows Mavericks to inch closer to a Play-In spot**\
-`“I was able to catch a rhythm,” said Davis, who was key in the final three plays of Dallas' win Wednesday against Atlanta.`\
-https://nytimes.com/athletic/6251775/2025/04/03/anthony-davis-mavericks-nba-playoffs/
 
