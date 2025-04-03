@@ -1,3 +1,8 @@
+**2026 World Cup odds: Why are reeling Brazil still ahead of Argentina?**\
+`Sam Tighe has a look at next year’s World Cup betting favourites, the best of the rest, and the dark horse picks. 
+`\
+https://nytimes.com/athletic/6251999/2025/04/03/2026-world-cup-odds-brazil-argentina/
+
 **Canada’s Prime Minister Puts Tariffs on U.S.-Made Cars and Predicts Global Upheaval**\
 `Mark Carney, a former central banker, also called on ‘like minded nations’ to form a new trading order without the United States.`\
 https://nytimes.com/2025/04/03/business/economy/canada-mark-carney-us-autos-tariffs.html
