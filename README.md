@@ -1,3 +1,7 @@
+**Europe Has Economic Power. Can It Use It Against Trump’s Tariffs?**\
+`European leaders have said they would prefer to negotiate. If that fails, their response could go beyond anything they’ve tried before.`\
+https://nytimes.com/2025/04/03/world/europe/tariffs-response-trump.html
+
 **The Newcastle fan, his cup final video QR code tattoo and rival supporters' bid to remove the clip**\
 `Graeme Davison explains why he marked Dan Burn's goal in such an unusual way - and why fans of other clubs could be causing him a problem`\
 https://nytimes.com/athletic/6252226/2025/04/03/newcastle-graeme-davison-qr-code-tattoo/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6252226/2025/04/03/newcastle-graeme-davison-qr-code
 https://nytimes.com/athletic/6249042/2025/04/03/garbriel-arsenal-hamstring-injury-surgery/
 
 **Trump’s Tariffs Don’t Apply to Chips, but Taiwan Remains Wary**\
-`As the center of the global supply chain, Taiwan’s chip companies are expected to face pressure from Washington to invest more in the U.S.`\
+`The chip companies in Taiwan, the center of the global supply chain, are expected to face pressure from Washington to invest more in the U.S.`\
 https://nytimes.com/2025/04/03/business/trump-tariffs-taiwan-chips.html
 
 **Analysis: How Flick perfected the science of substitutions to beat Atletico**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6251001/2025/04/03/kings-kuzmenko-trade-hiller/
 **Bruce Springsteen Will Release Seven ‘Lost Albums’ in June**\
 `The singer and songwriter announced a boxed set featuring 83 songs, of which 74 have never been officially released in any form.`\
 https://nytimes.com/2025/04/03/arts/music/bruce-springsteen-tracks-ii-the-lost-albums.html
-
-**Trump Took a Wrecking Ball to Southeast Asia’s Role as an Alternative to China**\
-`Punishing tariffs on Vietnam, Cambodia, Thailand and others in the region threaten their position as major manufacturing hubs for the American market.`\
-https://nytimes.com/2025/04/03/business/trump-tariffs-vietnam-southeast-asia.html
 
