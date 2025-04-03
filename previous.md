@@ -1,3 +1,15 @@
+**Where Trump’s Tariffs Will Hit Hardest**\
+`These economies are deeply reliant on selling goods to the United States, and many of them were hit with especially steep taxes.`\
+https://nytimes.com/interactive/2025/04/03/world/trump-tariffs-charts.html
+
+**Watch: Ryan Poles explains Bears' key draft priorities and getting balance right**\
+`"Hoge & Jahns" sit down with Chicago Bears general manager Ryan Poles to discuss how the team approaches draft evaluations.`\
+https://nytimes.com/athletic/6250377/2025/04/03/hoge-and-jahns-ryan-poles-interview/
+
+**Quickly, Sticky Toffee Pudding**\
+`Ali Slagle’s genius recipe for microwave sticky toffee pudding takes only 10 minutes, from start to finish.`\
+https://nytimes.com/2025/04/03/dining/quick-sticky-toffee-pudding.html
+
 **Farke to drop Meslier for Darlow vs Luton**\
 `It will be Darlow's first league start in more than 15 months.`\
 https://nytimes.com/athletic/6252535/2025/04/03/illan-meslier-karl-darlow-leeds-luton/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6250763/2025/04/03/march-madness-betting-action-duk
 **NBA Awards Watch: Are All-NBA and other honors bad for your favorite team?**\
 `We have new front-runners for a couple of individual races, though things could change over the season's final week.`\
 https://nytimes.com/athletic/6146457/2025/04/03/all-nba-predictions-odds-awards-watch-2025/
-
-**‘It Had Teeth’: A 3-Year-Old Discovers Ancient Treasure in Israel**\
-`While on a hike with her family, a child stumbled across a 3,800-year-old Egyptian amulet. It will go on display in an upcoming exhibition.`\
-https://nytimes.com/2025/04/03/world/middleeast/child-ancient-discovery-israel.html
-
-**As Wall Street sags, Lutnick says American markets will eventually do ‘extremely well.’**\
-`By Ana Swanson and Joe Rennison`\
-https://nytimes.com/live/2025/04/03/business/trump-tariffs/as-wall-street-sags-lutnick-says-american-markets-will-eventually-do-extremely-well
-
-**Trump Administration Threatens to Withhold Funds From Public Schools**\
-`State education officials will be required to verify that they have eliminated all programs that promote diversity, equity and inclusion that the administration deems unlawful, according to a new memo.`\
-https://nytimes.com/2025/04/03/us/politics/public-school-funding-trump-dei.html
 

@@ -1,3 +1,15 @@
+**Where Trump’s Tariffs Will Hit Hardest**\
+`These economies are deeply reliant on selling goods to the United States, and many of them were hit with especially steep taxes.`\
+https://nytimes.com/interactive/2025/04/03/world/trump-tariffs-charts.html
+
+**Watch: Ryan Poles explains Bears' key draft priorities and getting balance right**\
+`"Hoge & Jahns" sit down with Chicago Bears general manager Ryan Poles to discuss how the team approaches draft evaluations.`\
+https://nytimes.com/athletic/6250377/2025/04/03/hoge-and-jahns-ryan-poles-interview/
+
+**Quickly, Sticky Toffee Pudding**\
+`Ali Slagle’s genius recipe for microwave sticky toffee pudding takes only 10 minutes, from start to finish.`\
+https://nytimes.com/2025/04/03/dining/quick-sticky-toffee-pudding.html
+
 **Farke to drop Meslier for Darlow vs Luton**\
 `It will be Darlow's first league start in more than 15 months.`\
 https://nytimes.com/athletic/6252535/2025/04/03/illan-meslier-karl-darlow-leeds-luton/
