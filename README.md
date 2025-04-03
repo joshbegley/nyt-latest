@@ -1,3 +1,7 @@
+**Trump’s Tariffs Could Threaten His ‘Energy Dominance’ Agenda**\
+`A new wave of tariffs could raise costs for energy producers, including oil and gas companies, as well as solar and wind firms.`\
+https://nytimes.com/2025/04/03/climate/trump-tariffs-energy-renewables.html
+
 **Volkswagen will add an ‘import fee’ to cars sold in the U.S.**\
 `The company’s move is one of the first and clearest examples of automakers using price increases to deal with the 25 percent tariffs President Trump imposed on car and auto parts imports.`\
 https://nytimes.com/2025/04/03/business/volkswagen-auto-tariffs-trump.html
@@ -33,9 +37,4 @@ https://nytimes.com/2025/04/03/business/tiktok-sale-ban-deadline.html
 **Canada’s Prime Minister Puts Tariffs on U.S.-Made Cars and Predicts Global Upheaval**\
 `Mark Carney, a former central banker, also called on ‘like minded nations’ to form a new trading order without the United States.`\
 https://nytimes.com/2025/04/03/business/economy/canada-mark-carney-us-autos-tariffs.html
-
-**2026 World Cup odds: Why are reeling Brazil still ahead of Argentina?**\
-`Sam Tighe has a look at next year’s World Cup betting favourites, the best of the rest, and the dark horse picks. 
-`\
-https://nytimes.com/athletic/6251999/2025/04/03/2026-world-cup-odds-brazil-argentina/
 
