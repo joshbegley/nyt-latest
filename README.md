@@ -1,3 +1,7 @@
+**Police Officers Are Suspended After a Car Chase Ends in a Fatal Fire**\
+`The driver of a Honda CRV was found dead in a burning car in Upper Manhattan. The Police Department put new restrictions on automobile pursuits three months ago.`\
+https://nytimes.com/2025/04/03/nyregion/bronx-nypd-car-chase-fatal-fire.html
+
 **Glamorous Clothes You Can Wear on the Subway**\
 `The Proenza Schouler alumna Alex McEachin’s new label, Accorda, aims for informal drama with fluid silhouettes and flashes of black Lurex.`\
 https://nytimes.com/2025/04/03/t-magazine/accorda-fashion.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/03/us/trump-administration-brown-university-funding-
 **Groups Are Told That Federal Humanities Grants Are Canceled**\
 `Letters informed grant recipients that funds from the National Endowment for the Humanities would be redirected to furthering “the president’s agenda.”`\
 https://nytimes.com/2025/04/03/arts/humanities-grants-canceled-doge.html
-
-**Markets Tumbled After Trump’s Tariffs**\
-`Also, a storm soaked the central U.S. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2025/04/03/briefing/markets-tumbled-trumps-tariffs-us-storms.html
 
