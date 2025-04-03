@@ -1,3 +1,11 @@
+**How do Kylian Mbappe and Cristiano Ronaldo's Real Madrid debut seasons compare?**\
+`Mbappe has equalled Ronaldo's goals tally from 2009-10 with 33, but let's take a closer look at their respective first years with Madrid`\
+https://nytimes.com/athletic/6249265/2025/04/03/kylian-mbappe-cristiano-ronaldo-real-madrid-debut/
+
+**Paratici's contacts and charisma will still appeal to Milan, Spurs and others**\
+`The clock on Paratici’s 30-month ban from football activity is ticking towards zero. In July, he can take a new full-time post - but where?`\
+https://nytimes.com/athletic/6245054/2025/04/03/fabio-paraticis-contacts-and-charisma-will-still-appeal-to-milan-spurs-and-more/
+
 **Chelsea vs Spurs: Head coaches, players, aims, fears and predictions discussed**\
 `Chelsea and Tottenham Hotspur face off for the second time in the Premier League this season on Thursday night`\
 https://nytimes.com/athletic/6247106/2025/04/03/chelsea-tottenham-hotspur-discussion/
