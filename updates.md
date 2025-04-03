@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6251999/2025/04/03/2026-world-cup-odds-brazil-argentina/
 
+**2026 World Cup odds: Why are reeling Brazil still ahead of Argentina?**\
+`Sam Tighe has a look at next year’s World Cup betting favourites, the best of the rest, and the dark horse picks. 
+`\
+https://nytimes.com/athletic/6251999/2025/04/03/2026-world-cup-odds-brazil-argentina/
+
 **It’s Day 1 of a New Mayor’s Race in New York**\
 `What do a disgraced former governor, a once-indicted mayor and a former Guardian Angel have in common? They all may be on the November ballot in the New York City mayor’s race.`\
 https://nytimes.com/2025/04/03/nyregion/nyc-mayor-race-adams-independent.html
