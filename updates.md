@@ -1,3 +1,7 @@
+**Trump’s Tariffs Could Threaten His ‘Energy Dominance’ Agenda**\
+`A new wave of tariffs could raise costs for energy producers, including oil and gas companies, as well as solar and wind firms.`\
+https://nytimes.com/2025/04/03/climate/trump-tariffs-energy-renewables.html
+
 **2026 World Cup odds: Why are reeling Brazil still ahead of Argentina?**\
 `Sam Tighe has a look at next year’s World Cup betting favourites, the best of the rest, and the dark horse picks. 
 `\
