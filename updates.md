@@ -1,3 +1,11 @@
+**Trump’s Tariffs Hit Garment Makers in Bangladesh and Sri Lanka Hard**\
+`The industry supplies low-cost clothing to the United States is a crucial part of the Asian countries’ economies.`\
+https://nytimes.com/2025/04/03/business/economy/trumps-tariffs-hit-garment-makers-in-bangladesh-and-sri-lanka-hard.html
+
+**Kporha signs new four-year Crystal Palace contract**\
+`The 18-year-old’s previous deal was set to expire this summer but he has now committed his future to Palace.`\
+https://nytimes.com/athletic/6252757/2025/04/03/caleb-kporha-crystal-palace-contract/
+
 **Ford Offers Discounts on Cars and Trucks as Auto Tariffs Kick In**\
 `The company said it would offer customers the same prices it offers its employees on most of its vehicles.`\
 https://nytimes.com/2025/04/03/business/economy/ford-discounts-auto-tariffs.html

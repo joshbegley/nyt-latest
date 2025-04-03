@@ -1,3 +1,11 @@
+**Trump’s Tariffs Hit Garment Makers in Bangladesh and Sri Lanka Hard**\
+`The industry supplies low-cost clothing to the United States is a crucial part of the Asian countries’ economies.`\
+https://nytimes.com/2025/04/03/business/economy/trumps-tariffs-hit-garment-makers-in-bangladesh-and-sri-lanka-hard.html
+
+**Kporha signs new four-year Crystal Palace contract**\
+`The 18-year-old’s previous deal was set to expire this summer but he has now committed his future to Palace.`\
+https://nytimes.com/athletic/6252757/2025/04/03/caleb-kporha-crystal-palace-contract/
+
 **If the NBA playoffs started today: The matchups and what to expect in each series**\
 `The rest of the season (and Play-In) could shake things up, but as of now, some intriguing first-round series loom.`\
 https://nytimes.com/athletic/6251570/2025/04/03/nba-playoffs-matchups-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/04/03/world/trump-tariffs-charts.html
 **Watch: Ryan Poles explains Bears' key draft priorities and getting balance right**\
 `"Hoge & Jahns" sit down with Chicago Bears general manager Ryan Poles to discuss how the team approaches draft evaluations.`\
 https://nytimes.com/athletic/6250377/2025/04/03/hoge-and-jahns-ryan-poles-interview/
-
-**Quickly, Sticky Toffee Pudding**\
-`Ali Slagle’s genius recipe for microwave sticky toffee pudding takes only 10 minutes, from start to finish.`\
-https://nytimes.com/2025/04/03/dining/quick-sticky-toffee-pudding.html
-
-**Farke to drop Meslier for Darlow vs Luton**\
-`It will be Darlow's first league start in more than 15 months.`\
-https://nytimes.com/athletic/6252535/2025/04/03/illan-meslier-karl-darlow-leeds-luton/
 
