@@ -1,3 +1,7 @@
+**Israel Hits Syria With New Strikes and Ground Raid as Tensions Soar**\
+`Israel defended the moves as necessary security measures, but Syria accused it of trying to destabilize the country.`\
+https://nytimes.com/2025/04/03/world/middleeast/israel-syria-airstrikes-ground-operation.html
+
 **How Countries Responded to Trump’s Tariffs**\
 `China vowed countermeasures and the E.U. promised a unified response, while Britain and Japan refrained from immediate retaliation.`\
 https://nytimes.com/2025/04/03/business/economy/trump-tariffs-reciprocal-reaction.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/03/business/dealbook/trumps-tariffs-global-reaction.
 **Why Did Trump Spare Russia From New Tariffs?**\
 `The Trump administration says sanctions imposed on Moscow mean the U.S. does little trade with Russia, but questions persist about the motivations.`\
 https://nytimes.com/2025/04/03/business/economy/russia-us-tariffs-trump.html
-
-**Q&A: 'Uncle Jeff' Green shares his wisdom on playoffs, NBA life with young Rockets**\
-`Rockets veteran Green talks about mentoring young players, his "uncle" status and why he returned to Houston.`\
-https://nytimes.com/athletic/6250180/2025/04/03/houston-rockets-jeff-green-nba-playoffs/
 

@@ -1,3 +1,7 @@
+**Israel Hits Syria With New Strikes and Ground Raid as Tensions Soar**\
+`Israel defended the moves as necessary security measures, but Syria accused it of trying to destabilize the country.`\
+https://nytimes.com/2025/04/03/world/middleeast/israel-syria-airstrikes-ground-operation.html
+
 **How Countries Responded to Trump’s Tariffs**\
 `China vowed countermeasures and the E.U. promised a unified response, while Britain and Japan refrained from immediate retaliation.`\
 https://nytimes.com/2025/04/03/business/economy/trump-tariffs-reciprocal-reaction.html
