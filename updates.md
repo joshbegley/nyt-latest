@@ -1,3 +1,7 @@
+**How the Canucks got shellacked in a loss that all but kills their playoff hopes: 3 takeaways**\
+`The Canucks' chances of making the playoffs were already a massive long shot before facing the Seattle Kraken.`\
+https://nytimes.com/athletic/6251581/2025/04/03/canucks-loss-kills-playoff-hopes-kraken/
+
 **Late Night Debriefs After a ‘Tariff-fying’ Day at the White House**\
 `Stephen Colbert said that, thanks to President Trump, “America is finally free from the tyranny of being able to buy stuff from other countries.”`\
 https://nytimes.com/2025/04/03/arts/television/late-night-trump-tariffs-liberation-day.html
