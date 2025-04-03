@@ -1,3 +1,7 @@
+**Some Weather Service Offices Are Delaying or Skipping Storm Surveys**\
+`At least two Weather Service offices in Kentucky cited the continued threat of bad weather.`\
+https://nytimes.com/2025/04/03/weather/national-weather-service-staffing.html
+
 **Some of Nashville’s Tornado Sirens Run Out of Battery**\
 `At least one siren in the southwestern part of the city was still out of service, and the Fire Department did not say how long repairs would take.`\
 https://nytimes.com/2025/04/03/weather/tornado-sirens-nashville.html

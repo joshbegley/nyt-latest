@@ -1,3 +1,7 @@
+**Some Weather Service Offices Are Delaying or Skipping Storm Surveys**\
+`At least two Weather Service offices in Kentucky cited the continued threat of bad weather.`\
+https://nytimes.com/2025/04/03/weather/national-weather-service-staffing.html
+
 **Trump Administration Set to Pause $510 Million for Brown University**\
 `The administration has now targeted five schools’ federal funding as part of a pledge to combat what it considers to be antisemitism on university campuses.`\
 https://nytimes.com/2025/04/03/us/trump-administration-brown-university-funding-pause.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6247038/2025/04/03/ncaa-tournament-most-outstanding
 **Interesting Times with Ross Douthat**\
 `The first draft of our future. Mapping the new world order through interviews and conversations. Every Thursday, from New York Times Opinion.`\
 https://nytimes.com/column/interesting-times
-
-**Mel Gibson’s Gun Rights to Be Restored by Justice Dept.**\
-`People familiar with the decision said Mr. Gibson, a supporter of President Trump, would be among 10 people with convictions to get back their gun rights.`\
-https://nytimes.com/2025/04/03/us/politics/mel-gibson-gun-rights.html
 
