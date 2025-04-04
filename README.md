@@ -1,3 +1,11 @@
+**The Best Boxed Cake Mix **\
+`Text by Mace Dent Johnson`\
+https://nytimes.com/card/2025/04/04/smarter-living/wirecutter/best-boxed-cake-mix
+
+**Investors Recoil From Trump’s Pledge to Remake the Global Economy**\
+`Stocks hadn’t fallen this far this fast since the early days of the coronavirus pandemic. A 9.1 percent drop in the S&P 500 is the steepest weekly decline since March 2020.`\
+https://nytimes.com/2025/04/04/business/trump-stocks-tariffs-trade.html
+
 **Cooper Flagg's mom vows to get a tattoo 'when we win the whole thing'**\
 `“I’ll get a tattoo anywhere. He can pick the spot — except my face — if they do what they need to do," Kelly Flagg said on Friday.`\
 https://nytimes.com/athletic/6256017/2025/04/04/cooper-flagg-mom-tattoo-kelly-2/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/04/us/theodore-mccarrick-dead.html
 **Hayes: USWNT in 'dreamland' as U.S. set to co-host 2031 Women's World Cup**\
 `FIFA confirmed that a joint bid from U.S. Soccer and other Concacaf member associations was the sole expression of interest for 2031.`\
 https://nytimes.com/athletic/6255933/2025/04/04/emma-hayes-uswnt-womens-world-cup/
-
-**george-clooney-broadway-good-night-good-luck**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/george-clooney-broadway-good-night-good-luck
-
-**A Cake With Nothing to Hide**\
-`A light, classic coconut cake in all its old-fashioned glory.`\
-https://nytimes.com/2025/04/04/magazine/coconut-cake-recipe.html
 
