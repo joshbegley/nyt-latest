@@ -1,3 +1,11 @@
+**NBA trends I'm watching: Giannis' playmaking, OG Anunoby's foul drawing and more**\
+`Also in the East, one point guard has found the perfect balance between aggression and protection on offense.`\
+https://nytimes.com/athletic/6254312/2025/04/04/nba-trends-giannis-playmaking-og-anunoby-fouls/
+
+**Chinese Woman Detained in Arizona Border Station Dies by Suicide**\
+`A woman detained by U.S. border officers for overstaying a visitor visa died by suicide while in custody, according to a Democratic congresswoman.`\
+https://nytimes.com/2025/04/04/us/chinese-woman-detained-suicide-border.html
+
 **Arteta says De Bruyne is one of the best players in Premier League history - do you agree?**\
 `Where does Kevin De Bruyne sit now in the list of greatest Premier League players ever?`\
 https://nytimes.com/athletic/6255139/2025/04/04/arteta-de-bruyne-best-player-premier-league-history-ranking/

@@ -1,3 +1,7 @@
+**Lowetide: Why Oilers' recent free-agent signing activity a welcome turn of events**\
+`In David Tomasek, the Oilers may have signed a top-nine forward for just over $1 million.`\
+https://nytimes.com/athletic/6253932/2025/04/04/oilers-david-tomasek-signing/
+
 **NBA trends I'm watching: Giannis' playmaking, OG Anunoby's foul drawing and more**\
 `Also in the East, one point guard has found the perfect balance between aggression and protection on offense.`\
 https://nytimes.com/athletic/6254312/2025/04/04/nba-trends-giannis-playmaking-og-anunoby-fouls/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6255088/2025/04/04/arsenal-timber-white-injury-news
 **‘Yellowjackets’ Season 3, Episode 9 Recap: Motive**\
 `Teen Shauna tightens her grip on power. Poor Melissa feels the squeeze.`\
 https://nytimes.com/2025/04/04/arts/television/yellowjackets-recap-season-3-episode-9.html
-
-**Why Mark Scheifele, Kyle Connor, Cole Perfetti are more playoff-ready than in years past**\
-`Here's how Winnipeg is controlling the play at a higher level now than it did last season.`\
-https://nytimes.com/athletic/6247014/2025/04/04/why-jets-mark-scheifele-kyle-connor-cole-perfetti-are-more-playoff-ready-this-season/
 
