@@ -1,3 +1,7 @@
+**Scoop City: Four draft lessons from 2024**\
+`Inside: Four things we can learn from last April, why a tush push ban feels inevitable and three stories you might've missed.`\
+https://nytimes.com/athletic/6255586/2025/04/04/nfl-draft-lessons-2024-2025-eagles-scoop-city/
+
 **Nintendo Delays Preorders for the Switch 2, Citing Tariffs**\
 `The new video game console will still be released in June, the Japanese company said. Its price was unveiled as $450 this week.`\
 https://nytimes.com/2025/04/04/business/economy/nintendo-switch-2-preorder-delay-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6255028/2025/04/04/ja-morant-gun-gesture-nba/
 **Mats Hummels to retire at end of 2024-25 season**\
 `The centre-back, who had multiple spells at both Borussia Dortmund and Bayern Munich, won the World Cup with Germany in 2014.`\
 https://nytimes.com/athletic/6255505/2025/04/04/mats-hummels-roma-retires/
-
-**Fritz misses Monte Carlo Masters with injury as draw separates Djokovic and Alcaraz**\
-`Fritz, the world No. 4, has been managing an injury in his right oblique muscle.`\
-https://nytimes.com/athletic/6255437/2025/04/04/monte-carlo-masters-draw-withdrawals-fritz/
 
