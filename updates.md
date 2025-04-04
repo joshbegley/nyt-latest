@@ -1,3 +1,11 @@
+**Risking Reprisals, Protesters in Gaza Call on Hamas to Step Aside**\
+`Demanding an end to the war, hundreds pressed the militants to relinquish control of the enclave, a rare demonstration against a group that has suppressed dissent with violence.`\
+https://nytimes.com/2025/04/04/world/middleeast/gaza-protests-hamas.html
+
+**Welcome to Birmingham, England — Mind the Rats**\
+`A standoff between garbage collectors and municipal officials in Britain’s second largest city has left an estimated 17,000 tons of trash on the streets.`\
+https://nytimes.com/2025/04/04/world/europe/garbage-strike-birmingham-uk.html
+
 **Welcome to Birmingham — Mind the Rats**\
 `A standoff between garbage collectors and municipal officials in Britain’s second largest city has left an estimated 17,000 tons of trash on the streets.`\
 https://nytimes.com/2025/04/04/world/europe/birmingham-bin-strike-garbage-rats.html

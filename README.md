@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Saturday, April 5, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/04/04/todays-new-york-times-international-edition
+
 **Risking Reprisals, Protesters in Gaza Call on Hamas to Step Aside**\
 `Demanding an end to the war, hundreds pressed the militants to relinquish control of the enclave, a rare demonstration against a group that has suppressed dissent with violence.`\
 https://nytimes.com/2025/04/04/world/middleeast/gaza-protests-hamas.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/04/science/caterpillars-territorial-vibrations.html
 **Is Hawaiian Pizza a 'Classic'?**\
 `Judge John Hodgman rules on Canada's most infamous culinary export.`\
 https://nytimes.com/interactive/2025/04/04/magazine/hawaiian-pizza.html
-
-**To Trump, U.S. Economy Is a ‘Sick Patient’ and Tariffs Are the Cure**\
-`The president’s aides insist the fallout will be short and ultimately result in a better economy, as economists warn of higher inflation and slower growth.`\
-https://nytimes.com/2025/04/04/us/politics/trump-tariffs-us-economy-prices.html
 
