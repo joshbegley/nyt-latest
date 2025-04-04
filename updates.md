@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6252703/2025/04/04/premier-league-accumulator-betting-everton-ipswich/
 
+**The best three bets to add to this weekend’s Premier League acca**\
+`Sam Tighe outlines the best three bets to add to this weekend’s Premier League accumulator.
+`\
+https://nytimes.com/athletic/6252703/2025/04/04/premier-league-accumulator-betting-everton-ipswich/
+
 **‘A Minecraft Movie’ | Anatomy of a Scene**\
 `Jared Hess narrates a mine cart sequence from his film, featuring Jack Black, Jason Momoa and Sebastian Hansen.`\
 https://nytimes.com/video/movies/100000010090226/a-minecraft-movie-anatomy-of-a-scene.html
