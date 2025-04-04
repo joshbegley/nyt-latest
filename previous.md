@@ -1,40 +1,40 @@
-**The Athletic FC: Marinakis claims conspiracy over charges; Postecoglou takes aim at VAR**\
-`Today in TAFC: Forest owner Marinakis alleges 'blackmail', Postecoglou slams VAR, a viral clip watched by 300m and the QR code tattoo.`\
-https://nytimes.com/athletic/6254718/2025/04/04/marinakis-charges-forest-postecoglou-var/
+**De Bruyne announces he will leave City at end of season**\
+`De Bruyne joined City from Wolfsburg in 2015 and has helped them win six Premier League titles, as well as their maiden Champions League.`\
+https://nytimes.com/athletic/6232335/2025/04/04/kevin-de-bruyne-manchester-city-leave/
 
-**Europe’s Paradox**\
-`We explain a development that may help the far right in Europe.`\
-https://nytimes.com/2025/04/04/briefing/europes-paradox.html
+**Postecoglou says he 'made a mistake' celebrating disallowed goal against Chelsea**\
+`Postecoglou cupped his ear with his right hand towards the Spurs supporters while his players celebrated the goal.`\
+https://nytimes.com/athletic/6254805/2025/04/04/ange-postecoglou-tottenham-chelsea-celebration/
 
-**Slumping oil prices reflect intensifying economic worries.**\
-`By Stanley Reed`\
-https://nytimes.com/live/2025/04/04/business/jobs-report-march-tariffs-economy/slumping-oil-prices-reflect-intensifying-economic-worries
+**Sliders: A Triple-A pitcher's unusual place in MLB history, plus the most creative Immaculate Grid yet**\
+`A century before the torpedo, there was the bottle bat. We've got that and more of this week's timely and timeless elements of baseball.`\
+https://nytimes.com/athletic/6252698/2025/04/04/mariners-pitcher-immaculate-grid-jeff-conine/
 
-**India Passes Contentious Bill Increasing Oversight of Muslim Land Trusts**\
-`The legislation passed by Parliament on Friday would allow non-Muslims to help administer so-called Waqfs. The move fueled concerns that the rights of Muslims are being infringed on.`\
-https://nytimes.com/2025/04/04/world/asia/india-bill-muslim-land-waqfs.html
+**How to watch No. 1 UCLA vs. No. 2 UConn in the women's Final Four: Betts against Bueckers**\
+`Connecticut is going for its 12th national championship. UCLA has earned its first Final Four berth ... ever.`\
+https://nytimes.com/athletic/6250756/2025/04/04/ucla-uconn-womens-ncaa-tournament-final-four-how-to-watch/
 
-**Weird & Wild Week 1: Yankees' torpedo power, strange injuries and Sacramento has a ball**\
-`Not to mention Useless Info, Strange But Trueness and five things we loved this week ... in the triumphant return of Weird and Wild. `\
-https://nytimes.com/athletic/6254375/2025/04/04/yankees-torpedo-bats-sacromento-athletics-mlb-injuries/
+**Florida, Duke players went from NBA Academy 'brotherhood' to Final Four**\
+`The academy gives young, promising players access to experienced college and pro coaches who help refine their skills on and off the floor.`\
+https://nytimes.com/athletic/6254078/2025/04/04/florida-duke-nba-academy-final-four/
 
-**Final Four for Lauren Betts, MVP award for sister Sienna. Next year? They'll be a UCLA duo**\
-`Sienna didn't want to be in her sister's shadow. Lauren convinced her they will impress together next season. `\
-https://nytimes.com/athletic/6254560/2025/04/04/ucla-lauren-betts-sienna-sisters/
+**Top prospects Perreault, Leonard buoyed by touring Boston College teammates in NHL debuts**\
+`After attending Leonard’s Capitals debut some 24 hours earlier, the crew of Eagles players headed to New York to support Perreault.`\
+https://nytimes.com/athletic/6253274/2025/04/04/nhl-rangers-capitals-gabe-perreault-ryan-leonard/
 
-**Happy New Year, Baseball! 17 Weird & Wild ways the season's first week surprised**\
-`You’d think we’d catch on one of these years. We head into every baseball season thinking we actually know something about baseball. Ha.`\
-https://nytimes.com/athletic/6254249/2025/04/04/mlb-season-first-week-weird-facts-trivia/
+**Scouting the Final Four: Who do coaches say has the edge? UConn or UCLA?**\
+`One coach says about UConn: “They're going to expose your disadvantage.”`\
+https://nytimes.com/athletic/6254402/2025/04/04/final-four-uconn-ucla-coaches-scouting/
 
-**Five MLB numbers that matter, even in the first week of the season**\
-`Let's dive into some of the stats that can already tell us something about players who could be on their way to big years.`\
-https://nytimes.com/athletic/6253420/2025/04/04/mlb-numbers-first-week-2025-season/
+**What the Premier League can learn from the NFL owners' meetings**\
+`If the Premier League wants to expand its grasp of the year-round news cycle, it could take a page from the NFL's playbook.`\
+https://nytimes.com/athletic/6253175/2025/04/04/premier-league-nfl-owners-meetings-access/
 
-**The Pulse: At the women's Final Four, a split reality**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6253197/2025/04/04/womens-final-four-ratings-the-pulse/
+**Inside Amazon's first year streaming the NHL and whether their Rogers deal will continue**\
+`If Prime pulled off its broadcast with any degree of success, could it angle for a bigger piece of the Canadian rights pie?`\
+https://nytimes.com/athletic/6238912/2025/04/04/amazon-prime-video-rogers-nhl/
 
-**Trump’s Trade War Escalates as China Retaliates With 34% Tariffs**\
-`The Chinese government said it would match President Trump’s tariff, and also barred a group of American companies from doing business in China.`\
-https://nytimes.com/2025/04/04/business/china-trump-tariffs-retaliation.html
+**Exclusive: Mitch Marner on playoffs, deadline drama and the extension**\
+`The pending unrestricted free agent spoke to The Athletic about some of the weightiest subjects swirling around him right now.`\
+https://nytimes.com/athletic/6252597/2025/04/04/mitch-marner-leafs-contract-talks-playoffs/
 
