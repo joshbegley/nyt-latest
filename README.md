@@ -1,3 +1,11 @@
+**A Mass Grave of the Roman Empire Is Found Under a Vienna Soccer Field**\
+`Archaeologists found the remains of at least 129 people, many of them bearing the injuries of battle, dating to when Rome battled Germanic people nearly 2,000 years ago.`\
+https://nytimes.com/2025/04/04/world/europe/roman-empire-grave-vienna.html
+
+**Arsenal's White and Timber 'have a chance' to play vs Everton - Arteta**\
+`White missed Tuesday's win over Fulham while Timber was substituted with an issue during that game, but the pair could return on Saturday.`\
+https://nytimes.com/athletic/6255088/2025/04/04/arsenal-timber-white-injury-news-everton/
+
 **‘Yellowjackets’ Season 3, Episode 9 Recap: Motive**\
 `Teen Shauna tightens her grip on power. Poor Melissa feels the squeeze.`\
 https://nytimes.com/2025/04/04/arts/television/yellowjackets-recap-season-3-episode-9.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/04/us/politics/hunter-biden-burisma-letter-italy.htm
 **At ‘Good Night’ Opening, the Stars Came Out for Clooney**\
 `As a play with parallels to today’s political climate had its official Broadway premiere, famous friends celebrated its star, George Clooney. He brushed aside talk of a political future.`\
 https://nytimes.com/2025/04/04/style/george-clooney-good-night-good-luck-broadway-party.html
-
-**Still Receive Paper Checks From the Government? That Will Soon End.**\
-`An executive order from President Trump will require government agencies to make electronic payments for tax refunds, Social Security and other benefits as of Sept. 30.`\
-https://nytimes.com/2025/04/04/your-money/paper-checks-tax-refunds-social-security.html
-
-**Mainoo returns to Man Utd training; De Ligt a doubt for City**\
-`Mainoo has not played since February 7 due to an injury suffered in training while De Ligt sustained an injury against Nottingham Forest.`\
-https://nytimes.com/athletic/6255036/2025/04/04/mainoo-injury-update-manchester-united-team-news/
 

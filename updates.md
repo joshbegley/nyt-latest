@@ -1,3 +1,15 @@
+**‘Yellowjackets’ Season 3, Episode 9 Recap: Motive**\
+`Teen Shauna tightens her grip on power. Poor Melissa feels the squeeze.`\
+https://nytimes.com/2025/04/04/arts/television/yellowjackets-recap-season-3-episode-9.html
+
+**Why Mark Scheifele, Kyle Connor, Cole Perfetti are more playoff-ready than in years past**\
+`Here's how Winnipeg is controlling the play at a higher level now than it did last season.`\
+https://nytimes.com/athletic/6247014/2025/04/04/why-jets-mark-scheifele-kyle-connor-cole-perfetti-are-more-playoff-ready-this-season/
+
+**Russell Brand Is Charged With Rape and Sexual Assault in U.K.**\
+`British prosecutors said that they had charged the comedian and actor with offenses between 1999 and 2005 involving four women.`\
+https://nytimes.com/2025/04/04/arts/russell-brand-rape-sexual-assault-charges.html
+
 **The Grand National: Why Britain's most celebrated horse race has become so divisive**\
 `There has been a renewed focus placed on animal welfare in recent years after 66 horse fatalities at the Grand National Festival since 2000`\
 https://nytimes.com/athletic/6254943/2025/04/04/grand-national-aintree-horse-fatalities-safety/
