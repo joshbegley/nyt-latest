@@ -1,3 +1,7 @@
+**Private School Diversity Events Are Canceled Amid Government Crackdown**\
+`The National Association of Independent Schools said it would reassess two of its diversity conferences “given the rapidly evolving political and legal landscape.”`\
+https://nytimes.com/2025/04/04/nyregion/private-school-group-diversity-conferences.html
+
 **Is This the Trump Boom We Were Promised?**\
 `The country is currently on the losing side of the Trump bet. The business leaders who went for it were suffering from two nested delusions about him.`\
 https://nytimes.com/live/2025/03/24/opinion/thepoint/tariffs-trump-economy-silicon-valley
