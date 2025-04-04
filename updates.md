@@ -1,3 +1,15 @@
+**Bruce Pearl, Rick Pitino earn AP coach of the year in award's first-ever tie**\
+`Of the ballots cast by the national media panel that ranks the AP Top 25 throughout the season, Pearl and Pitino each received 20 votes.`\
+https://nytimes.com/athletic/6255639/2025/04/04/rick-pitino-bruce-pearl-ap-coach-of-year/
+
+**Inside MLS youth league's experiment of replacing results with 'quality of play'**\
+`In the name of youth development, MLS Next is moving away from traditional results and instead taking on a more holistic approach.`\
+https://nytimes.com/athletic/6255644/2025/04/04/inside-mls-youth-leagues-experiment-of-replacing-results-with-quality-of-play/
+
+**Miley Cyrus’s Apocalyptic Pop, and 9 More New Songs**\
+`Hear tracks by Bruce Springsteen, Elton John and Brandi Carlile, Wet Leg and others.`\
+https://nytimes.com/2025/04/04/arts/music/playlist-miley-cyrus-ed-sheeran-bruce-springsteen.html
+
 **Kelly withdraws from England squad with foot injury**\
 `The Football Association has confirmed the winger has returned to Arsenal for treatment.`\
 https://nytimes.com/athletic/6255606/2025/04/04/chloe-kelly-england-arsenal-injury/
