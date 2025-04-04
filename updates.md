@@ -1,3 +1,19 @@
+**Weird & Wild Week 1: Yankees' torpedo power, strange injuries and Sacramento has a ball**\
+`Not to mention Useless Info, Strange But Trueness and five things we loved this week ... in the triumphant return of Weird and Wild. `\
+https://nytimes.com/athletic/6254375/2025/04/04/yankees-torpedo-bats-sacromento-athletics-mlb-injuries/
+
+**Happy New Year, Baseball! 17 Weird & Wild ways the season's first week surprised**\
+`You’d think we’d catch on one of these years. We head into every baseball season thinking we actually know something about baseball. Ha.`\
+https://nytimes.com/athletic/6254249/2025/04/04/mlb-season-first-week-weird-facts-trivia/
+
+**Five MLB numbers that matter, even in the first week of the season**\
+`Let's dive into some of the stats that can already tell us something about players who could be on their way to big years.`\
+https://nytimes.com/athletic/6253420/2025/04/04/mlb-numbers-first-week-2025-season/
+
+**The Pulse: At the women's Final Four, a split reality**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6253197/2025/04/04/womens-final-four-ratings-the-pulse/
+
 **China Retaliates Against Trump With 34% Tariff on U.S. Goods**\
 `The Chinese government said it would match President Trump’s tariff, and also barred a group of American companies from doing business in China.`\
 https://nytimes.com/2025/04/04/business/china-trump-tariffs-retaliation.html
