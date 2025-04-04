@@ -1,3 +1,19 @@
+**Here’s the latest.**\
+`By Qasim Nauman`\
+https://nytimes.com/live/2025/04/03/world/south-korea-yoon/heres-the-latest
+
+**Live Updates: Court Set to Decide Fate of South Korea’s President**\
+`The Constitutional Court will either uphold Yoon Suk Yeol’s impeachment or restore him to power. The police are preparing for huge protests in Seoul.`\
+https://nytimes.com/live/2025/04/03/world/south-korea-yoon
+
+**Workers Forced to Leave Foreign Policy Center as Trump Presses Shutdown**\
+`About 130 employees of the Wilson Center were told they were being put on leave, just four days after workers for Elon Musk’s team entered the center.`\
+https://nytimes.com/2025/04/03/us/politics/wilson-center-shutdown-musk.html
+
+**Grocery Shoppers Will Feel the Tariffs First in the Produce Aisle**\
+`Higher prices could also be coming soon for seafood, sugar and coffee. But it may be a while before importers and retailers can gauge the effects of the new fees.`\
+https://nytimes.com/2025/04/03/dining/grocery-shoppers-will-feel-the-tariffs-first-in-the-produce-aisle.html
+
 **Senate Confirms Dr. Oz to Oversee Medicare and Medicaid**\
 `The TV celebrity doctor, a cardiothoracic surgeon, will take the reins at a time when the agency is facing cutbacks, especially for the poor, and scrutiny of its missions.`\
 https://nytimes.com/2025/04/03/health/dr-mehmet-oz-senate-confirmation.html
@@ -6,7 +22,7 @@ https://nytimes.com/2025/04/03/health/dr-mehmet-oz-senate-confirmation.html
 `Keenum comes to Chicago with 66 career NFL starts, including two for the Texans in 2023.`\
 https://nytimes.com/athletic/6253993/2025/04/03/case-keenum-bears-contract-caleb-williams/
 
-**How Will She Teach Pilates in an Ankle Monitor?**\
+**But, How Will She Teach Pilates in an Ankle Monitor?**\
 `Convicted of fraud and facing the possibility of decades in prison, Charlie Javice was concerned about how a monitoring device would affect her job.`\
 https://nytimes.com/2025/04/03/style/charlie-javice-ankle-monitor-pilates.html
 
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6253830/2025/04/03/taijuan-walker-phillies-fifth-st
 **Police Officers Are Suspended After a Car Chase Ends in a Fatal Fire**\
 `The driver of a Honda CRV was found dead in a burning car in Upper Manhattan. The Police Department put new restrictions on automobile pursuits three months ago.`\
 https://nytimes.com/2025/04/03/nyregion/bronx-nypd-car-chase-fatal-fire.html
-
-**Glamorous Clothes You Can Wear on the Subway**\
-`The Proenza Schouler alumna Alex McEachin’s new label, Accorda, aims for informal drama with fluid silhouettes and flashes of black Lurex.`\
-https://nytimes.com/2025/04/03/t-magazine/accorda-fashion.html
-
-**Sports-related stocks hit hard Thursday after U.S. tariff news**\
-`Stock prices for sports-related companies that rely on a global supply chain were battered Thursday after the U.S. tariff announcement.`\
-https://nytimes.com/athletic/6253713/2025/04/03/sports-related-stocks-trump-tariff-news/
-
-**John Thornton, 59, Dies; Financier Helped Revive Local Journalism**\
-`An idealist, he founded The Texas Tribune, a model for nonprofit grass-roots news organizations nationwide, and the American Journalism Project, which supports them.`\
-https://nytimes.com/2025/04/03/business/media/john-thornton-dead.html
-
-**Trump Supports Proxy Voting for New Parents in Congress, a Blow to Johnson**\
-`The president’s comment was a rare instance in which he and House Speaker Mike Johnson were not on the same side of an issue.`\
-https://nytimes.com/2025/04/03/us/politics/proxy-voting-trump-congress-luna.html
 
