@@ -1,3 +1,7 @@
+**Seoul Erupts With Emotion After Yoon Is Removed From Office**\
+`Still, after four months of political uncertainty, many people expressed apprehension about what lies ahead for the country.`\
+https://nytimes.com/2025/04/04/world/asia/yoon-impeachment-reaction-seoul.html
+
 **Stocks Fall Further as Concern About Tariffs Deepens**\
 `Markets in Asia reflected investors’ continued worries about the economic disruption of President Trump’s trade policies.`\
 https://nytimes.com/2025/04/04/business/stocks-trump-tariffs.html

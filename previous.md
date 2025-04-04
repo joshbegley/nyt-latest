@@ -14,7 +14,7 @@ https://nytimes.com/issue/todayspaper/2025/04/04/todays-new-york-times
 `The exaggerated government claims and ensuing public concern about Tren de Aragua’s activities in the United States amount to a classic moral panic.`\
 https://nytimes.com/2025/04/04/opinion/tren-de-aragua-venezuela-maduro.html
 
-**Seoul Erupts With Shouts of Joy After Yoon Is Removed From Office**\
+**Seoul Erupts With Emotion After Yoon Is Removed From Office**\
 `Still, after four months of political uncertainty, many people expressed apprehension about what lies ahead for the country.`\
 https://nytimes.com/2025/04/04/world/asia/yoon-impeachment-reaction-seoul.html
 
