@@ -1,3 +1,15 @@
+**Anaheim mayor pens letter to Angels, hopes to fix fractured relationship**\
+`The relationship between the team and the city has been frosty since a $320 million land deal fell through in 2022.`\
+https://nytimes.com/athletic/6254340/2025/04/04/anaheim-mayor-angels-letter-relationship/
+
+**Triage**\
+`What one image shows about the aftermath of a strike on a shelter in Gaza.`\
+https://nytimes.com/2025/04/04/world/middleeast/gaza-school-strike-hospital.html
+
+**On Fox News, All Is Calm**\
+`There is no onscreen stock ticker. One anchor reassured viewers that “President Trump is keeping another campaign promise.”`\
+https://nytimes.com/2025/04/04/business/media/on-fox-news-all-is-calm.html
+
 **Iowa guard Josh Dix announces transfer to Creighton**\
 `Dix averaged 14.4 points, 3.2 rebounds and 2.8 assists per game at Iowa last season.`\
 https://nytimes.com/athletic/6255653/2025/04/04/josh-dix-transfer-iowa-creighton/
