@@ -1,3 +1,7 @@
+**Stocks Fall Further as Concern About Tariffs Deepens**\
+`Markets in Asia reflected investors’ continued worries about the economic disruption of President Trump’s trade policies.`\
+https://nytimes.com/2025/04/04/business/stocks-trump-tariffs.html
+
 **Trump Officials Have Not Funded Radio Free Europe, Despite Court Order**\
 `The delay in disbursement has forced the news organization, which relies almost exclusively on congressional funding, to furlough some of its staff and cut parts of its programming.`\
 https://nytimes.com/2025/04/04/us/politics/radio-free-europe-funding-trump.html
