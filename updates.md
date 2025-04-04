@@ -1,3 +1,23 @@
+**Here’s the latest.**\
+`By Qasim Nauman`\
+https://nytimes.com/live/2025/04/03/world/south-korea-yoon/heres-the-latest
+
+**Live Updates: Court Will Decide Fate of South Korea’s President**\
+`The Constitutional Court will either uphold Yoon Suk Yeol’s impeachment or restore him to power. The police are preparing for huge protests in Seoul.`\
+https://nytimes.com/live/2025/04/03/world/south-korea-yoon
+
+**Workers Forced to Leave Foreign Policy Center as Trump Presses Shutdown**\
+`About 130 employees of the Wilson Center were told they were being put on leave, just four days after workers for Elon Musk’s team entered the center.`\
+https://nytimes.com/2025/04/03/us/politics/wilson-center-shutdown-musk.html
+
+**Grocery Shoppers Will Feel the Tariffs First in the Produce Aisle**\
+`Higher prices could also be coming soon for seafood, sugar and coffee. But it may be a while before importers and retailers can gauge the effects of the new fees.`\
+https://nytimes.com/2025/04/03/dining/grocery-shoppers-will-feel-the-tariffs-first-in-the-produce-aisle.html
+
+**But, How Will She Teach Pilates in an Ankle Monitor?**\
+`Convicted of fraud and facing the possibility of decades in prison, Charlie Javice was concerned about how a monitoring device would affect her job.`\
+https://nytimes.com/2025/04/03/style/charlie-javice-ankle-monitor-pilates.html
+
 **Senate Confirms Dr. Oz to Oversee Medicare and Medicaid**\
 `The TV celebrity doctor, a cardiothoracic surgeon, will take the reins at a time when the agency is facing cutbacks, especially for the poor, and scrutiny of its missions.`\
 https://nytimes.com/2025/04/03/health/dr-mehmet-oz-senate-confirmation.html
