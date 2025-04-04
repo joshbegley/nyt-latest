@@ -1,3 +1,11 @@
+**Trump Sounds Defiant Note as Tariffs Roil Markets Again**\
+`After China announced new retaliatory measures against the United States, President Trump responded that Beijing “PLAYED IT WRONG.”`\
+https://nytimes.com/live/2025/04/04/business/jobs-report-march-tariffs-economy/trump-sounds-defiant-note-as-tariffs-roil-markets-again
+
+**The Bounce: Ready for Final Four action? Here's everything to know. Plus, Ja Morant did it again!**\
+`If you're ready for this weekend's Final Four action, The Bounce previews everything worth knowing.`\
+https://nytimes.com/athletic/6255129/2025/04/04/final-four-cooper-flagg-paige-bueckers-duke-uconn-ja-morant-grizzlies-nba-the-bounce/
+
 **Listen: Can Arsenal take down Real Madrid without Gabriel?**\
 `Handbrake Off discuss whether Arsenal can advance past Real Madrid amid their defensive injury crisis`\
 https://nytimes.com/athletic/6254869/2025/04/04/can-arsenal-take-down-real-madrid-without-gabriel/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6255139/2025/04/04/arteta-de-bruyne-best-player-pre
 **Ancelotti confident Courtois will be fit for Arsenal game**\
 `Courtois has missed Madrid's last two fixtures and is likely to be absent again for Saturday's match against Valencia.`\
 https://nytimes.com/athletic/6255275/2025/04/04/thibaut-courtois-injury-champions-league/
-
-**Who are the Hurricanes' most consistent players, and how do they maintain it?**\
-`Is it "a Benjamin Button-type thing" for Jordan Martinook?`\
-https://nytimes.com/athletic/6254579/2025/04/04/hurricanes-scoring-jordan-martinook/
-
-**Warriors offer blueprint on how to beat L.A. in Luka's worst game as Laker**\
-`Golden State's switch-heavy scheme was a problem for Dončić and company. "That performance from me was unacceptable."`\
-https://nytimes.com/athletic/6254755/2025/04/04/luka-doncic-lakers-warriors-nba/
 
