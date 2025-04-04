@@ -2,7 +2,7 @@
 `By Qasim Nauman`\
 https://nytimes.com/live/2025/04/03/world/south-korea-yoon/heres-the-latest
 
-**Live Updates: Court Set to Decide Fate of South Korea’s President**\
+**Live Updates: Court Will Decide Fate of South Korea’s President**\
 `The Constitutional Court will either uphold Yoon Suk Yeol’s impeachment or restore him to power. The police are preparing for huge protests in Seoul.`\
 https://nytimes.com/live/2025/04/03/world/south-korea-yoon
 
