@@ -1,3 +1,12 @@
+**Why Red Bull changed their liveries to white for Japanese Grand Prix**\
+`When Yuki Tsunoda takes to the track as a Red Bull F1 driver for the first time, he will do so in a very different-looking car to usual
+`\
+https://nytimes.com/athletic/6252220/2025/04/03/red-bull-f1-japanese-gp-white-cars/
+
+**Swayman was the Bruins' best player, which is a critical development**\
+`The Bruins have little to play for at this point in the season, but their star goalie is starting to find his game again.`\
+https://nytimes.com/athletic/6254341/2025/04/03/bruins-jeremy-swayman-canadiens/
+
 **Trump Administration Sends Harvard a List of Demands to Protect Federal Funds**\
 `The list was similar to one sent to Columbia University last month after the government canceled $400 million to the school. Harvard may have $9 billion on the line.`\
 https://nytimes.com/2025/04/03/us/politics/trump-harvard-funding-demands.html
@@ -29,12 +38,4 @@ https://nytimes.com/2025/04/03/us/amtrak-train-crash-bucks-county-pa.html
 **Lamar Jackson challenges Dale Earnhardt Jr.'s trademark claim of No. 8**\
 `The NFL quarterback's drive to win the battle of the famous No. 8s is racing on.`\
 https://nytimes.com/athletic/6254074/2025/04/03/lamar-jackson-dale-earnhardt-jr-trademark/
-
-**L.A. Fires Death Toll Rises to 30 After Remains Are Found**\
-`The discovery makes the Palisades and Eaton fires, combined, the second-deadliest wildfires in California’s history.`\
-https://nytimes.com/2025/04/03/us/la-fires-death-toll-rises-to-30-after-remains-are-found.html
-
-**Jose Altuve's career-high 5 strikeouts spark Twins crowd in home opener loss**\
-`The Astros star's ninth-inning strikeout completed one of his worst career days — and finally gave Twins fans something to cheer about. `\
-https://nytimes.com/athletic/6254079/2025/04/03/jose-altuve-five-strikeouts-astros-twins-crowd/
 
