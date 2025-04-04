@@ -1,3 +1,11 @@
+**These Are the 381 Books Removed From the Naval Academy Library**\
+`The office of Defense Secretary Pete Hegseth ordered the college to adhere to an executive order from President Trump banning educational material related to diversity, equity and inclusion topics.`\
+https://nytimes.com/2025/04/04/us/politics/naval-academy-dei-books-removed.html
+
+**Obama Calls for Universities to Stand Up for Core Values**\
+`As the Trump administration threatens universities, the former president suggested schools shouldn’t be intimidated. But he also offered a critique of campus culture, saying it had too often shut out opposing voices.`\
+https://nytimes.com/2025/04/04/us/politics/obama-trump-college-speech.html
+
 **Baltimore sues FanDuel, DraftKings over tactics, lack of safeguards**\
 `The city of Baltimore's complaint focuses on sportsbooks’ use of user data, which it said could be used to help prevent gambling addiction.`\
 https://nytimes.com/athletic/6256255/2025/04/04/baltimore-sues-fanduel-draftkings-promo-tactics-safeguards/
