@@ -1,3 +1,7 @@
+**Trump’s promise to bring back factory jobs clashes with the 21st century pursuit of free trade.**\
+`By Talmon Joseph Smith`\
+https://nytimes.com/live/2025/04/04/business/jobs-report-march-tariffs-economy/trumps-promise-to-bring-back-factory-jobs-clashes-with-the-21st-century-pursuit-of-free-trade
+
 **The New York Times International Edition in Print for Saturday, April 5, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/04/04/todays-new-york-times-international-edition
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/04/podcasts/meet-jensen-mcrae-and-3-other-artists-on
 **The Very Territorial Caterpillar**\
 `As they cling to leaf tips, newborn warty birch caterpillars produce vibrations that can ward off invaders approaching their millimeter-size domain.`\
 https://nytimes.com/2025/04/04/science/caterpillars-territorial-vibrations.html
-
-**Is Hawaiian Pizza a 'Classic'?**\
-`Judge John Hodgman rules on Canada's most infamous culinary export.`\
-https://nytimes.com/interactive/2025/04/04/magazine/hawaiian-pizza.html
 

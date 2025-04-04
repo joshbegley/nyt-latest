@@ -1,3 +1,7 @@
+**Trump’s promise to bring back factory jobs clashes with the 21st century pursuit of free trade.**\
+`By Talmon Joseph Smith`\
+https://nytimes.com/live/2025/04/04/business/jobs-report-march-tariffs-economy/trumps-promise-to-bring-back-factory-jobs-clashes-with-the-21st-century-pursuit-of-free-trade
+
 **The New York Times International Edition in Print for Saturday, April 5, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/04/04/todays-new-york-times-international-edition
