@@ -1,3 +1,7 @@
+**Electing Judges Is Good for Democracy**\
+`Given the country’s extreme polarization, there is something to be said for giving voters a voice in judicial elections unconstrained by district lines in gerrymandered states.`\
+https://nytimes.com/2025/04/04/opinion/wisconsin-elections-judges.html
+
 **Flashback: Your Weekly History Quiz, April 5, 2025**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2025/04/04/upshot/flashback.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6255712/2025/04/04/torpedo-bat-sales-trademark/
 **SpaceX Dragon Capsule Lands in Pacific Ocean**\
 `After more than five years of landing its returning vessels off the Florida coast, SpaceX’s Dragon capsule splashed down off the California coast for the first time.`\
 https://nytimes.com/video/science/space/100000010092094/spacex-lands-off-california-coast.html
-
-**Trump Extends Deadline for a TikTok Deal**\
-`The app was facing a Saturday deadline to change its ownership or face a ban in the United States.`\
-https://nytimes.com/2025/04/04/technology/trump-tiktok-deadline-delay.html
 

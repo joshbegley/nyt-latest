@@ -1,3 +1,7 @@
+**Electing Judges Is Good for Democracy**\
+`Given the country’s extreme polarization, there is something to be said for giving voters a voice in judicial elections unconstrained by district lines in gerrymandered states.`\
+https://nytimes.com/2025/04/04/opinion/wisconsin-elections-judges.html
+
 **Flashback: Your Weekly History Quiz, April 5, 2025**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2025/04/04/upshot/flashback.html
