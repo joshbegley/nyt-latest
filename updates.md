@@ -1,3 +1,7 @@
+**Trump’s Trade War Escalates as China Retaliates With 34% Tariffs**\
+`The Chinese government said it would match President Trump’s tariff, and also barred a group of American companies from doing business in China.`\
+https://nytimes.com/2025/04/04/business/china-trump-tariffs-retaliation.html
+
 **The Athletic FC: Marinakis claims conspiracy over charges; Postecoglou takes aim at VAR**\
 `Today in TAFC: Forest owner Marinakis alleges 'blackmail', Postecoglou slams VAR, a viral clip watched by 300m and the QR code tattoo.`\
 https://nytimes.com/athletic/6254718/2025/04/04/marinakis-charges-forest-postecoglou-var/

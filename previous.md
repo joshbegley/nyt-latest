@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6253420/2025/04/04/mlb-numbers-first-week-2025-seas
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6253197/2025/04/04/womens-final-four-ratings-the-pulse/
 
-**China Retaliates Against Trump With 34% Tariff on U.S. Goods**\
+**Trump’s Trade War Escalates as China Retaliates With 34% Tariffs**\
 `The Chinese government said it would match President Trump’s tariff, and also barred a group of American companies from doing business in China.`\
 https://nytimes.com/2025/04/04/business/china-trump-tariffs-retaliation.html
 
