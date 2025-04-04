@@ -1,3 +1,23 @@
+**The Timeless Appeal of Puerto Vallarta **\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/puerto-vallarta-mexico
+
+**Banff, Alberta **\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/things-to-do-banff
+
+**In the San Juan Islands, a Cabin Touched by Many Hands **\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/san-juan-islands-cabin
+
+**Prime Tire: A scary F1 rookie mistake in Japan. Plus, Tsunoda's solid Red Bull debut**\
+`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
+https://nytimes.com/athletic/6255795/2025/04/04/jack-doohan-crash-japan-f1-yuki-tsunoda-red-bull-prime-tire/
+
+**Lamar Jackson challenges Dale Earnhardt Jr.'s trademark claim of No. 8**\
+`The NFL quarterback's drive to win the battle of the famous No. 8s is racing on.`\
+https://nytimes.com/athletic/6254074/2025/04/04/lamar-jackson-dale-earnhardt-jr-trademark/
+
 **Electing Judges Is Good for Democracy**\
 `Given the country’s extreme polarization, there is something to be said for giving voters a voice in judicial elections unconstrained by district lines in gerrymandered states.`\
 https://nytimes.com/2025/04/04/opinion/wisconsin-elections-judges.html
@@ -17,20 +37,4 @@ https://nytimes.com/video/science/100000010092686/tortoise-hatchlings-philadelph
 **Robert S. Rifkind, Who Defended a Libel Suit by Ariel Sharon, Dies at 88**\
 `In one of the biggest cases he worked on, he represented Time magazine when Mr. Sharon, Israel’s defense minister, sued it over its reporting on a 1983 massacre in Lebanon.`\
 https://nytimes.com/2025/04/04/nyregion/robert-rifkind-dead.html
-
-**Appeals Court Orders Thousands of Voters to Verify Information in Contested N.C. Election**\
-`The ruling was a win for the Republican who narrowly lost a State Supreme Court race in November. The case has tested the boundaries of post-election litigation.`\
-https://nytimes.com/2025/04/04/us/north-carolina-supreme-court-race-ruling.html
-
-**At Least 14 Dead in Russian Strike on Zelensky’s Hometown, Ukraine Says**\
-`The missile strike was the latest in a series of Russian attacks on urban centers that have caused significant civilian casualties despite ongoing cease-fire talks.`\
-https://nytimes.com/2025/04/04/world/europe/ukraine-russia-strike-zelensky-hometown.html
-
-**Torpedo bats spark record sales, trademark attempts as they head to stores**\
-`Torpedo bats have quickly become a big business that is still ramping up `\
-https://nytimes.com/athletic/6255712/2025/04/04/torpedo-bat-sales-trademark/
-
-**SpaceX Dragon Capsule Lands in Pacific Ocean**\
-`After more than five years of landing its returning vessels off the Florida coast, SpaceX’s Dragon capsule splashed down off the California coast for the first time.`\
-https://nytimes.com/video/science/space/100000010092094/spacex-lands-off-california-coast.html
 
