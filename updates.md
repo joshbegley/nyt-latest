@@ -1,3 +1,11 @@
+**What Might Europe’s Fines Against X Mean for Musk?**\
+`The potential for major penalties in the European Union could test the boundaries of online speech and inflame tensions between the U.S. and Europe.`\
+https://nytimes.com/2025/04/04/us/politics/musk-x-european-union-fine.html
+
+**Washington Spirit owner Michele Kang invests $25 million in U.S. Soccer**\
+`Kang's investment is for the development and research of women’s soccer via the federation’s Soccer Forward Foundation.`\
+https://nytimes.com/athletic/6256261/2025/04/04/michele-kang-us-soccer-investment-spirit/
+
 **A Federal Lab That Tracked Rising S.T.I.s Has Been Shuttered**\
 `The United States can no longer keep tabs on drug-resistant gonorrhea, among other infections, scientists said.`\
 https://nytimes.com/2025/04/04/health/cdc-sti-lab-gonorrhea.html
