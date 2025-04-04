@@ -1,3 +1,7 @@
+**Scenes From States Devastated by a Powerful Storm System**\
+`The severe weather stretched from Texas to Ohio, causing tornadoes and flooding across the central United States.`\
+https://nytimes.com/2025/04/03/us/scenes-from-states-devastated-by-a-powerful-storm-system.html
+
 **How Brendan Rodgers' first Astros team flight helped him handle 'pressure' of being the new guy**\
 `After seeing how the Astros interact with each other on a flight to Minnesota, Rodgers relaxed a bit and went 3-for-4 against the Twins.`\
 https://nytimes.com/athletic/6254170/2025/04/03/astros-brendan-rodgers-first-team-flight/
