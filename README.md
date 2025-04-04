@@ -1,9 +1,17 @@
+**States Challenge Trump’s Effort to Dismantle Library Agency**\
+`In a lawsuit, 20 state attorneys general argued that the steep cuts to the Institute of Museum and Library Services violate the Constitution and other federal laws related to spending.`\
+https://nytimes.com/2025/04/04/arts/design/library-agency-lawsuit-trump.html
+
+**Tracy Chapman Wants to Speak for Herself**\
+`For years, the singer and songwriter has avoided the spotlight. But she is breaking her silence to look back on her self-titled debut and its powerful hit “Fast Car.”`\
+https://nytimes.com/2025/04/04/arts/music/tracy-chapman-interview.html
+
 **Republican Plan to Kill California’s E.V. Policies Stopped in Senate**\
 `The Trump administration asked Republicans in Congress to stop California’s ban on new gas-powered cars. The Senate parliamentarian said it wasn’t allowed.`\
 https://nytimes.com/2025/04/04/climate/california-ev-waiver-senate.html
 
 **Musiala forced off with hamstring injury: 'It doesn't look so brilliant'**\
-`The 22-year-old is expected to miss Tuesday's Champions League quarter-final first leg tie against Inter.`\
+`The 22-year-old is expected to miss Tuesday's Champions League quarter-final first leg against Inter.`\
 https://nytimes.com/athletic/6256035/2025/04/04/jamal-musiala-injury-update/
 
 **Bryce Harper sounds off on Dodgers' spending ahead of three-game series**\
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/03/24/opinion/thepoint/tariffs-trump-economy-silic
 **The 4.6.25 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/04/04/the-4625-issue
-
-**The Best Boxed Cake Mix **\
-`Text by Mace Dent Johnson`\
-https://nytimes.com/card/2025/04/04/smarter-living/wirecutter/best-boxed-cake-mix
-
-**Investors Recoil From Trump’s Pledge to Remake the Global Economy**\
-`Stocks hadn’t fallen this far this fast since the early days of the coronavirus pandemic. A 9.1 percent drop in the S&P 500 is the steepest weekly decline since March 2020.`\
-https://nytimes.com/2025/04/04/business/trump-stocks-tariffs-trade.html
 

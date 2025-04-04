@@ -1,3 +1,23 @@
+**Republican Plan to Kill California’s E.V. Policies Stopped in Senate**\
+`The Trump administration asked Republicans in Congress to stop California’s ban on new gas-powered cars. The Senate parliamentarian said it wasn’t allowed.`\
+https://nytimes.com/2025/04/04/climate/california-ev-waiver-senate.html
+
+**Musiala forced off with hamstring injury: 'It doesn't look so brilliant'**\
+`The 22-year-old is expected to miss Tuesday's Champions League quarter-final first leg tie against Inter.`\
+https://nytimes.com/athletic/6256035/2025/04/04/jamal-musiala-injury-update/
+
+**Bryce Harper sounds off on Dodgers' spending ahead of three-game series**\
+`After committing over $1 billion during the 2023 winter, the Dodgers followed up their World Series win by committing another $450 million.`\
+https://nytimes.com/athletic/6256034/2025/04/04/bryce-harper-dodgers-spending/
+
+**Justices Are Asked to Keep Nationwide Pause on Trump’s Birthright Citizenship Order**\
+`Immigrant groups and Democratic states pushed back on a Trump administration request for the Supreme Court to allow curbs on birthright citizenship to go into effect in some places.`\
+https://nytimes.com/2025/04/04/us/politics/supreme-court-birthright-citizenship.html
+
+**Colum McCann on the Surprising Drama of Undersea Cables**\
+`The Irish writer’s new novel, “Twist,” is a shipboard adventure about the ragtag crews who repair ruptured information cables deep in the ocean.`\
+https://nytimes.com/2025/04/04/books/review/podcast-colum-mccann-twist.html
+
 **Private School Diversity Events Are Canceled Amid Government Crackdown**\
 `The National Association of Independent Schools said it would reassess two of its diversity conferences “given the rapidly evolving political and legal landscape.”`\
 https://nytimes.com/2025/04/04/nyregion/private-school-group-diversity-conferences.html
@@ -17,24 +37,4 @@ https://nytimes.com/card/2025/04/04/smarter-living/wirecutter/best-boxed-cake-mi
 **Investors Recoil From Trump’s Pledge to Remake the Global Economy**\
 `Stocks hadn’t fallen this far this fast since the early days of the coronavirus pandemic. A 9.1 percent drop in the S&P 500 is the steepest weekly decline since March 2020.`\
 https://nytimes.com/2025/04/04/business/trump-stocks-tariffs-trade.html
-
-**Cooper Flagg's mom vows to get a tattoo 'when we win the whole thing'**\
-`“I’ll get a tattoo anywhere. He can pick the spot — except my face — if they do what they need to do," Kelly Flagg said on Friday.`\
-https://nytimes.com/athletic/6256017/2025/04/04/cooper-flagg-mom-tattoo-kelly-2/
-
-**A Miracle Underground: Sean Duffy Rides the Subway. (He Survived.)**\
-`Mr. Duffy, the U.S. transportation secretary who has characterized the New York City subway as dirty and dangerous, rode a train with Mayor Eric Adams on Friday.`\
-https://nytimes.com/2025/04/04/nyregion/sean-duffy-subway-adams.html
-
-**How to watch the Orioles-Royals weekend series with Bobby Witt Jr. and Gunnar Henderson**\
-`A bevy of young infield talents will play this weekend, with Bobby Witt Jr and the Royals hosting Gunnar Henderson's Orioles.`\
-https://nytimes.com/athletic/6255789/2025/04/04/orioles-royals-mlb-2025-how-to-watch/
-
-**YouTuber Is Arrested After Leaving Diet Coke on Isolated Tribe’s Island**\
-`A 24-year-old American man went to a far-flung island in hopes of filming an encounter with the Sentinelese, the Indian authorities said. It is illegal to make contact with the tribe.`\
-https://nytimes.com/2025/04/04/world/asia/north-sentinel-island-us-man-arrested.html
-
-**Boston’s King of Couches Relinquishes His Crown**\
-`Eliot Tatelman, a fixture on regional television for his quirky ads, is retiring as president of Jordan’s Furniture. It was a nostalgic moment for a place known for fiercely guarding its traditions.`\
-https://nytimes.com/2025/04/04/us/eliot-tatelman-jordans-furniture-retiring.html
 
