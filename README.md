@@ -1,3 +1,7 @@
+**SpaceX Astronauts Splash Down Off California Coast for the First Time**\
+`After years of NASA and private crews returning to Earth near Florida, the company shifted its landing zone to the West Coast for the private Fram2 mission.`\
+https://nytimes.com/2025/04/04/science/spacex-fram2-splashdown-california.html
+
 **Listen: Is Omarion Hampton the second-best running back in the 2025 draft class?**\
 `"The Athletic Football Show" discusses why North Carolina's Omarion Hampton is the second-best running back in this year's draft class.`\
 https://nytimes.com/athletic/6254708/2025/04/04/athletic-football-show-omarion-hampton-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/04/world/middleeast/gaza-school-strike-hospital.html
 **Iowa guard Josh Dix announces transfer to Creighton**\
 `Dix averaged 14.4 points, 3.2 rebounds and 2.8 assists per game at Iowa last season.`\
 https://nytimes.com/athletic/6255653/2025/04/04/josh-dix-transfer-iowa-creighton/
-
-**Thompson: Are the Warriors' title hopes real? LeBron's reaction might be a hint**\
-`You may not think the Warriors are a title contender yet, but it's hard to ignore the subliminal message in LeBron's reaction to them.`\
-https://nytimes.com/athletic/6255573/2025/04/04/golden-state-warriors-title-hopes-lebron-james-steph-curry/
 
