@@ -1,3 +1,11 @@
+**Judge Orders Tufts Student’s Detention Case Moved to Vermont**\
+`The student, Rumeysa Ozturk, was detained by ICE agents in Massachusetts, driven to Vermont and flown to a detention center in Louisiana, where the government was trying to argue her court case.`\
+https://nytimes.com/2025/04/04/us/tufts-student-deportation-case-vermont-rumeysa-ozturk.html
+
+**Trey Lance, Chargers agree to deal, bringing QB to L.A. as a backup for Justin Herbert**\
+`Lance was the No. 11 quarterback on The Athletic’s updated top 150 free agents list.`\
+https://nytimes.com/athletic/6184859/2025/04/04/trey-lance-free-agency-2025-chargers/
+
 **How Guantánamo Bay Figures in the Trump Immigration Crackdown**\
 `In two months, only around 400 migrants have been held there, mostly Venezuelan and Nicaraguan citizens awaiting deportation.`\
 https://nytimes.com/2025/04/04/us/politics/migrant-mission-guantanamo-bay.html
