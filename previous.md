@@ -1,3 +1,15 @@
+**Listen: Can Arsenal take down Real Madrid without Gabriel?**\
+`Handbrake Off discuss whether Arsenal can advance past Real Madrid amid their defensive injury crisis`\
+https://nytimes.com/athletic/6254869/2025/04/04/can-arsenal-take-down-real-madrid-without-gabriel/
+
+**Meet the 23-Year-Old Student Who Raised $25 Million in Democratic Losses**\
+`A law student in Florida has a lucrative side gig: fund-raising consultant. His firm earns a 25 percent cut of “profit” from donations, and critics have begun to pile up after two special elections.`\
+https://nytimes.com/2025/04/04/us/politics/democrats-fundraising-florida.html
+
+**Federal Worker Unions Sue to Block Trump From Stripping Bargaining Rights**\
+`Labor unions are battling the Trump administration over its attempts to slash the federal work force and roll back the protections afforded to the civil service employees.`\
+https://nytimes.com/2025/04/04/us/politics/trump-unions-lawsuit.html
+
 **Lowetide: Why Oilers' recent free-agent signing activity a welcome turn of events**\
 `In David Tomasek, the Oilers may have signed a top-nine forward for just over $1 million.`\
 https://nytimes.com/athletic/6253932/2025/04/04/oilers-david-tomasek-signing/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6254579/2025/04/04/hurricanes-scoring-jordan-martin
 **Warriors offer blueprint on how to beat L.A. in Luka's worst game as Laker**\
 `Golden State's switch-heavy scheme was a problem for Dončić and company. "That performance from me was unacceptable."`\
 https://nytimes.com/athletic/6254755/2025/04/04/luka-doncic-lakers-warriors-nba/
-
-**A Mass Grave of the Roman Empire Is Found Under a Vienna Soccer Field**\
-`Archaeologists found the remains of at least 129 people, many of them bearing the injuries of battle, dating to when Rome battled Germanic people nearly 2,000 years ago.`\
-https://nytimes.com/2025/04/04/world/europe/roman-empire-grave-vienna.html
-
-**Arsenal's White and Timber 'have a chance' to play vs Everton - Arteta**\
-`White missed Tuesday's win over Fulham while Timber was substituted with an issue during that game, but the pair could return on Saturday.`\
-https://nytimes.com/athletic/6255088/2025/04/04/arsenal-timber-white-injury-news-everton/
-
-**‘Yellowjackets’ Season 3, Episode 9 Recap: Motive**\
-`Teen Shauna tightens her grip on power. Poor Melissa feels the squeeze.`\
-https://nytimes.com/2025/04/04/arts/television/yellowjackets-recap-season-3-episode-9.html
 

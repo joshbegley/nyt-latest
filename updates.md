@@ -1,3 +1,15 @@
+**Listen: Can Arsenal take down Real Madrid without Gabriel?**\
+`Handbrake Off discuss whether Arsenal can advance past Real Madrid amid their defensive injury crisis`\
+https://nytimes.com/athletic/6254869/2025/04/04/can-arsenal-take-down-real-madrid-without-gabriel/
+
+**Meet the 23-Year-Old Student Who Raised $25 Million in Democratic Losses**\
+`A law student in Florida has a lucrative side gig: fund-raising consultant. His firm earns a 25 percent cut of “profit” from donations, and critics have begun to pile up after two special elections.`\
+https://nytimes.com/2025/04/04/us/politics/democrats-fundraising-florida.html
+
+**Federal Worker Unions Sue to Block Trump From Stripping Bargaining Rights**\
+`Labor unions are battling the Trump administration over its attempts to slash the federal work force and roll back the protections afforded to the civil service employees.`\
+https://nytimes.com/2025/04/04/us/politics/trump-unions-lawsuit.html
+
 **Lowetide: Why Oilers' recent free-agent signing activity a welcome turn of events**\
 `In David Tomasek, the Oilers may have signed a top-nine forward for just over $1 million.`\
 https://nytimes.com/athletic/6253932/2025/04/04/oilers-david-tomasek-signing/
