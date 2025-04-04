@@ -1,3 +1,7 @@
+**Powell Says Trump’s Tariffs Raise Risks of Higher Inflation, Slower Growth**\
+`Jerome H. Powell, chair of the Federal Reserve, says the central bank’s “obligation” is to ensure that a “one-time increase in the price level does not become an ongoing inflation problem.”`\
+https://nytimes.com/2025/04/04/business/economy/powell-says-trumps-tariffs-raise-risks-of-higher-inflation-slower-growth.html
+
 **Kevin De Bruyne transcends the 'Barclays' generation – he is a genuine modern great**\
 `De Bruyne is one of very, very few modern Premier League players that will have us reminiscing about 2018, not 2008`\
 https://nytimes.com/athletic/6255203/2025/04/04/kevin-de-bruyne-genuine-modern-great/

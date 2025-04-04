@@ -1,3 +1,7 @@
+**Powell Says Trump’s Tariffs Raise Risks of Higher Inflation, Slower Growth**\
+`Jerome H. Powell, chair of the Federal Reserve, says the central bank’s “obligation” is to ensure that a “one-time increase in the price level does not become an ongoing inflation problem.”`\
+https://nytimes.com/2025/04/04/business/economy/powell-says-trumps-tariffs-raise-risks-of-higher-inflation-slower-growth.html
+
 **Kevin De Bruyne transcends the 'Barclays' generation – he is a genuine modern great**\
 `De Bruyne is one of very, very few modern Premier League players that will have us reminiscing about 2018, not 2008`\
 https://nytimes.com/athletic/6255203/2025/04/04/kevin-de-bruyne-genuine-modern-great/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010084870/gaza-displacement-isr
 **Five International Movies to Stream Now**\
 `This month’s picks include a Taiwanese horror-comedy, a South Indian tale of possession and patriarchy, a rain-soaked Chinese noir and more.`\
 https://nytimes.com/2025/04/04/movies/international-movies-streaming.html
-
-**Elena Delle Donne, 2-time WNBA MVP, retires from basketball**\
-`Delle Donne, 35, was the No. 2 pick in the 2013 draft and went on to have one of the most accomplished careers of her generation.`\
-https://nytimes.com/athletic/6255412/2025/04/04/elena-delle-donne-retires-wnba/
 
