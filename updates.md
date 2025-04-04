@@ -1,3 +1,7 @@
+**Trump Administration Sends Harvard a List of Demands to Protect Federal Funds**\
+`The list was similar to one sent to Columbia University last month after the government canceled $400 million to the school. Harvard may have $9 billion on the line.`\
+https://nytimes.com/2025/04/03/us/politics/trump-harvard-funding-demands.html
+
 **Most Likely to Pay Out**\
 `Karen Steinberg opens our solving weekend with her first solo themeless puzzle.`\
 https://nytimes.com/2025/04/03/crosswords/daily-puzzle-2025-04-04.html

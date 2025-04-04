@@ -1,3 +1,7 @@
+**Trump Administration Sends Harvard a List of Demands to Protect Federal Funds**\
+`The list was similar to one sent to Columbia University last month after the government canceled $400 million to the school. Harvard may have $9 billion on the line.`\
+https://nytimes.com/2025/04/03/us/politics/trump-harvard-funding-demands.html
+
 **Most Likely to Pay Out**\
 `Karen Steinberg opens our solving weekend with her first solo themeless puzzle.`\
 https://nytimes.com/2025/04/03/crosswords/daily-puzzle-2025-04-04.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/03/us/la-fires-death-toll-rises-to-30-after-remains-
 **Jose Altuve's career-high 5 strikeouts spark Twins crowd in home opener loss**\
 `The Astros star's ninth-inning strikeout completed one of his worst career days — and finally gave Twins fans something to cheer about. `\
 https://nytimes.com/athletic/6254079/2025/04/03/jose-altuve-five-strikeouts-astros-twins-crowd/
-
-**Dodgers place Freddie Freeman on IL with ankle sprain days after fall in shower**\
-`The Dodgers wanted to exercise caution with a cross-country flight and cold, wet conditions on the East Coast ahead.`\
-https://nytimes.com/athletic/6254112/2025/04/03/dodgers-freddie-freeman-ankle-injury-shower-update/
 
