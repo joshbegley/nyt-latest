@@ -1,40 +1,40 @@
-**Everton condemn death threats Tarkowski received after Merseyside derby**\
-`Tarkowski’s wife Samantha said that their family had received "vile comments" including threats of physical violence. `\
-https://nytimes.com/athletic/6254839/2025/04/04/james-tarkowski-death-threats-everton/
+**Opposing coaches break down the men's Final Four's key matchups**\
+`Coaches who saw the 2025 Final Four teams this season get into the nitty-gritty details of what makes them good and how to beat them.`\
+https://nytimes.com/athletic/6254011/2025/04/04/final-four-scouting-reports-duke-houston-florida-auburn/
 
-**Storm Stalled Over Central U.S. Brings Another Day of Rain and Flooding**\
-`More than 30 tornadoes have already swept across the region, and at least seven people were killed in three states. Much of Kentucky was under a flash flood warning.`\
-https://nytimes.com/2025/04/04/us/severe-storms-central-united-states.html
+**Chelsea's Lavia and Wesley undergo scans on muscular injuries**\
+`Both players missed Chelsea’s 1-0 victory over Tottenham and have already been ruled out of Sunday’s Premier League fixture at Brentford.`\
+https://nytimes.com/athletic/6254873/2025/04/04/chelsea-injury-news-fofana-lavia/
 
-**'Alex is a troll': Sarr, Wizards' all-business ROY contender, shows his fun side**\
-`Alex Sarr has developed a reputation within the Wizards for being a laser-focused worker. But he's showing other parts of his personality.`\
-https://nytimes.com/athletic/6253571/2025/04/04/alex-sarr-washington-wizards-nba-rookie-of-year/
+**Women's Final Four: Who would make the all-time starting 5, coach for each team?**\
+`A tough question: Which players, past and present, would be included in a starting five of each team representing this year's Final Four?`\
+https://nytimes.com/athletic/6250665/2025/04/04/womens-final-four-2025-all-time-team/
 
-**Tariffs Drive Another Market Meltdown**\
-`A rapidly escalating trade war has socked stocks as investors weigh the fallout from President Trump’s tariff barrage.`\
-https://nytimes.com/2025/04/04/business/dealbook/trump-tariffs-markets-metldown.html
+**Eight numbers that tell the story of Dodgers' historic 8-0 start**\
+`Here's a by-the-numbers look at the Dodgers' winning streak: "I think each night we’re unbeatable."`\
+https://nytimes.com/athletic/6254395/2025/04/04/dodgers-undefeated-by-the-numbers/
 
-**Israeli Military Orders New Evacuation of Gaza City Neighborhoods**\
-`The order came not long after Palestinian health authorities said dozens of people, including children, were killed in strikes on a school turned shelter. Israel said it was looking into the reports.`\
-https://nytimes.com/2025/04/04/world/middleeast/israel-gaza-hamas.html
+**Nebraska's Jalyn Gramstad wants to test his game in the NFL**\
+`Gramstad spent four seasons at Northwestern College before transferring to Nebraska. And he's hoping his career continues in the NFL.`\
+https://nytimes.com/athletic/6253673/2025/04/04/nebraska-football-jalyn-gramstad-nfl/
 
-**FPL live Q&A: FPL Gameweek 31 advice from Ben Dinnery**\
-`Join Ben Dinnery for a live Gameweek 31 FPL Q&A from 4pm-5pm UK time`\
-https://nytimes.com/athletic/6246302/2025/04/04/fantasy-premier-league-advice-gw31-tips/
+**The secondary was a weakness for Alabama entering 2024, but now it's a strength**\
+`Alabama's secondary being a strength after a year of change for the defensive backs in 2024 is one of the biggest storylines this spring.`\
+https://nytimes.com/athletic/6250859/2025/04/04/alabama-football-secondary-zabien-brown-maurice-linguist/
 
-**Saka's race to start against Madrid - and how players target comeback games**\
-`Medical staff may wince but football has a long history of key players returning from serious injuries straight into big games`\
-https://nytimes.com/athletic/6235003/2025/04/04/bukayo-saka-comeback-injury/
+**How Sabres goalie prospect Devon Levi learned to embrace the AHL**\
+`The Sabres haven't ruled out Levi returning to the AHL next season, but that could depend on what else happens at the position this summer.`\
+https://nytimes.com/athletic/6253457/2025/04/04/sabres-prospects-devon-levi-ahl-stats/
 
-**Will Trump’s Tariffs Drive Europe Into China’s Arms, or Into a Fight?**\
-`The European Union is deepening other trade partnerships as U.S. relations sour. But with China, the relationship could get closer — or more combative.`\
-https://nytimes.com/2025/04/04/world/europe/trump-tariffs-china.html
+**Will Stephon Castle be the Spurs' second straight Rookie of the Year? 'I think it's his'**\
+`No rookie has come closer to a triple-double this season than Castle did this week during his latest standout game since the All-Star break.`\
+https://nytimes.com/athletic/6253844/2025/04/04/stephon-castle-spurs-nba-rookie-of-the-year/
 
-**Andy O'Boyle rejoins Liverpool as managing director of women's team**\
-`Liverpool Women are still without a permanent successor to Matt Beard, who was sacked in February.`\
-https://nytimes.com/athletic/6254825/2025/04/04/andy-oboyle-liverpool-women/
+**Timberwolves' dramatic ownership saga finally appears settled. So what now?**\
+`Marc Lore and Alex Rodriguez can now go through the final approval process with the NBA. Here's what's next for all involved.`\
+https://nytimes.com/athletic/6129711/2025/04/04/timberwolves-lynx-ownership-alex-rodriguez-glen-taylor/
 
-**Here’s the latest.**\
-`By The New York Times`\
-https://nytimes.com/live/2025/04/04/business/jobs-report-march-tariffs-economy/heres-the-latest
+**Prospect breakdown: What newly-signed defenseman Taige Harding brings to Blackhawks**\
+`The 6-foot-7 lefty spent his senior year with Providence focusing on using his size and physicality.`\
+https://nytimes.com/athletic/6253480/2025/04/04/blackhawks-taige-harding-prospect-breakdown/
 

@@ -1,3 +1,11 @@
+**Everton condemn death threats Tarkowski received after Merseyside derby**\
+`Tarkowski’s wife Samantha said that their family had received "vile comments" including threats of physical violence. `\
+https://nytimes.com/athletic/6254839/2025/04/04/james-tarkowski-death-threats-everton/
+
+**Storm Stalled Over Central U.S. Brings Another Day of Rain and Flooding**\
+`More than 30 tornadoes have already swept across the region, and at least seven people were killed in three states. Much of Kentucky was under a flash flood warning.`\
+https://nytimes.com/2025/04/04/us/severe-storms-central-united-states.html
+
 **'Alex is a troll': Sarr, Wizards' all-business ROY contender, shows his fun side**\
 `Alex Sarr has developed a reputation within the Wizards for being a laser-focused worker. But he's showing other parts of his personality.`\
 https://nytimes.com/athletic/6253571/2025/04/04/alex-sarr-washington-wizards-nba-rookie-of-year/
