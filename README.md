@@ -1,3 +1,7 @@
+**Map: Earthquake Near Papua New Guinea Prompts Tsunami Alert**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/04/04/world/earthquake-papua-new-guinea.html
+
 **Stocks Keep Falling**\
 `Also, Trump granted TikTok another reprieve. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/04/04/briefing/tariffs-stock-market-tiktok-ban-ovechkin-record.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/04/style/emily-thompson-flower-shop-party-nyc.html
 **Supreme Court Lets Trump Suspend Grants to Teachers**\
 `In boilerplate letters, the administration told recipients that the grants supported diversity efforts and were wasteful.`\
 https://nytimes.com/2025/04/04/us/supreme-court-trump-teacher-grants.html
-
-**Jean Van Leeuwen, 87, Dies; Wrote ‘Oliver Pig’ Series of Children’s Books**\
-`She wrote for many ages, from picture books to young adult fiction. Her children led her to create a series of books about two pigs named Oliver and Amanda.`\
-https://nytimes.com/2025/04/04/books/jean-van-leeuwen-dead.html
 
