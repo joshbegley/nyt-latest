@@ -1,3 +1,7 @@
+**Stephen Colbert Likens Trump’s Tariffs to an Economic Infection**\
+`“Has anyone thought about injecting our money with bleach?” Colbert said after President Trump’s new tariffs tanked the stock market on Thursday.`\
+https://nytimes.com/2025/04/04/arts/television/stephen-colbert-trump-tariffs.html
+
 **Seoul Erupts With Emotion After Yoon Is Removed From Office**\
 `Still, after four months of political uncertainty, many people expressed apprehension about what lies ahead for the country.`\
 https://nytimes.com/2025/04/04/world/asia/yoon-impeachment-reaction-seoul.html

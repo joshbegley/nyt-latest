@@ -1,3 +1,7 @@
+**Stephen Colbert Likens Trump’s Tariffs to an Economic Infection**\
+`“Has anyone thought about injecting our money with bleach?” Colbert said after President Trump’s new tariffs tanked the stock market on Thursday.`\
+https://nytimes.com/2025/04/04/arts/television/stephen-colbert-trump-tariffs.html
+
 **Stocks Fall Further as Concern About Tariffs Deepens**\
 `Markets in Asia reflected investors’ continued worries about the economic disruption of President Trump’s trade policies.`\
 https://nytimes.com/2025/04/04/business/stocks-trump-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6254474/2025/04/04/giannis-antetokounmpo-35-17-20-r
 **Arsenal will miss Gabriel - he embodies their fundamental change under Mikel Arteta**\
 `Gabriel is rugged and reliable, and what he represents is unmistakable. His absence feels like a gut punch for Arsenal`\
 https://nytimes.com/athletic/6250522/2025/04/04/arsenal-gabriel-hamstring-injury-analysis/
-
-**What to Know About the Ruling on South Korea’s President**\
-`The country’s Constitutional Court on Friday upheld the impeachment of Yoon Suk Yeol, removing him from office four months after his short-lived imposition of martial law.`\
-https://nytimes.com/2025/04/04/world/asia/yoon-south-korea-impeachment-ruling.html
 
