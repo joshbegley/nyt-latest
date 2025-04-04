@@ -1,3 +1,20 @@
+**Blanked again: Reds make history with third straight 1-0 loss**\
+`For just the sixth time ever and first time since 1960, a team has lost three straight 1-0 games.`\
+https://nytimes.com/athletic/6254385/2025/04/03/cincinnati-reds-mlb-history-1-0/
+
+**Head of National Security Agency and Cyber Command Is Ousted**\
+`No reason was given for the removal of Gen. Timothy D. Haugh, but the far-right activist Laura Loomer had called for his ouster in a meeting with President Trump, an official said.`\
+https://nytimes.com/2025/04/03/us/politics/nsa-cyber-command-chief-fired.html
+
+**Friday Briefing: Trump’s Tariffs Rattle the Markets**\
+`Plus, Bruce Springsteen’s “Lost Albums.”`\
+https://nytimes.com/2025/04/03/briefing/stocks-plunge-tariffs-gaza-strike-south-korea-yoon.html
+
+**Why Red Bull changed its livery to white for Japanese Grand Prix**\
+`When Yuki Tsunoda takes to the track as a Red Bull F1 driver for the first time, he will do so in a very different-looking car to usual
+`\
+https://nytimes.com/athletic/6252220/2025/04/03/red-bull-f1-japanese-gp-white-cars/
+
 **Why Red Bull changed its livery to white for Japanese Grand Prix**\
 `When Yuki Tsunoda takes to the track as a Red Bull F1 driver for the first time, he will do so in a very different-looking car to usual
 `\

@@ -1,3 +1,15 @@
+**Blanked again: Reds make history with third straight 1-0 loss**\
+`For just the sixth time ever and first time since 1960, a team has lost three straight 1-0 games.`\
+https://nytimes.com/athletic/6254385/2025/04/03/cincinnati-reds-mlb-history-1-0/
+
+**Head of National Security Agency and Cyber Command Is Ousted**\
+`No reason was given for the removal of Gen. Timothy D. Haugh, but the far-right activist Laura Loomer had called for his ouster in a meeting with President Trump, an official said.`\
+https://nytimes.com/2025/04/03/us/politics/nsa-cyber-command-chief-fired.html
+
+**Friday Briefing: Trump’s Tariffs Rattle the Markets**\
+`Plus, Bruce Springsteen’s “Lost Albums.”`\
+https://nytimes.com/2025/04/03/briefing/stocks-plunge-tariffs-gaza-strike-south-korea-yoon.html
+
 **Why Red Bull changed its livery to white for Japanese Grand Prix**\
 `When Yuki Tsunoda takes to the track as a Red Bull F1 driver for the first time, he will do so in a very different-looking car to usual
 `\
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/6254170/2025/04/03/astros-brendan-rodgers-first-tea
 **Corrections: April 4, 2025**\
 `Corrections that appeared in print on Friday, April 4, 2025.`\
 https://nytimes.com/2025/04/03/pageoneplus/corrections-april-4-2025.html
-
-**Lawsuit Challenges Trump’s Legal Rationale for Tariffs on China**\
-`A nonprofit group said the president misapplied a law in imposing those levies and portrayed its filing as the first lawsuit to challenge the Trump administration over its tariffs.`\
-https://nytimes.com/2025/04/03/business/economy/lawsuit-tariffs-china-trump-administration.html
-
-**Amtrak Train Strikes and Kills 3 People in Pennsylvania**\
-`Amtrak said a train hit three members of the same family on a track. Service between New York and Philadelphia was temporarily suspended.`\
-https://nytimes.com/2025/04/03/us/amtrak-train-crash-bucks-county-pa.html
-
-**Lamar Jackson challenges Dale Earnhardt Jr.'s trademark claim of No. 8**\
-`The NFL quarterback's drive to win the battle of the famous No. 8s is racing on.`\
-https://nytimes.com/athletic/6254074/2025/04/03/lamar-jackson-dale-earnhardt-jr-trademark/
 
