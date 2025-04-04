@@ -1,3 +1,8 @@
+**The best three bets to add to this weekend’s Premier League acca**\
+`Sam Tighe outlines the best three bets to add to this weekend’s Premier League accumulator.
+`\
+https://nytimes.com/athletic/6252703/2025/04/04/premier-league-accumulator-betting-everton-ipswich/
+
 **Yoon Ejected After South Korean Court Upholds Impeachment**\
 `South Korea’s Constitutional Court ruled unanimously to remove former President Yoon Suk Yeol. Protesters reacted to the decision, some cheered while others showed their disappointment.`\
 https://nytimes.com/video/world/asia/100000010091597/yoon-south-korea-impeachment-ruling.html
