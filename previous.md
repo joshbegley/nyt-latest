@@ -1,3 +1,7 @@
+**Sam Keen, Philosopher of the Men’s Movement, Is Dead at 93**\
+`“Only men,” he wrote, “understand the secret fears that go with the territory of masculinity.” His message resonated: His book “Fire in the Belly” was a best seller.`\
+https://nytimes.com/2025/04/04/books/sam-keen-dead.html
+
 **Men's tennis chief executive Massimo Calvelli will step down in summer**\
 `Calvelli's departure from the governing body of men's tennis continues the recent shuffling of the decks at the top of the sport.`\
 https://nytimes.com/athletic/6255306/2025/04/04/tennis-atp-bosses-calvelli-steps-down/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/04/us/politics/trump-unions-lawsuit.html
 **Lowetide: Why Oilers' recent free-agent signing activity a welcome turn of events**\
 `In David Tomasek, the Oilers may have signed a top-nine forward for just over $1 million.`\
 https://nytimes.com/athletic/6253932/2025/04/04/oilers-david-tomasek-signing/
-
-**NBA trends I'm watching: Giannis' playmaking, OG Anunoby's foul drawing and more**\
-`Also in the East, one point guard has found the perfect balance between aggression and protection on offense.`\
-https://nytimes.com/athletic/6254312/2025/04/04/nba-trends-giannis-playmaking-og-anunoby-fouls/
 
