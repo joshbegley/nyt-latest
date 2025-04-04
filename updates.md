@@ -1,3 +1,8 @@
+**The best three bets to add to this weekend’s Premier League acca**\
+`Sam Tighe outlines the best three bets to add to this weekend’s Premier League accumulator.
+`\
+https://nytimes.com/athletic/6252703/2025/04/04/premier-league-accumulator-betting-everton-ipswich/
+
 **'It must not come into contact with Jannik': Sinner's trainer explains role in positive tests**\
 `“I very clearly communicated both the nature of the product, and that it must not come into contact with Jannik," Ferrara told Gazzetta.`\
 https://nytimes.com/athletic/6252296/2025/04/04/umberto-ferrara-jannik-sinner-positive-test-clostebol/
