@@ -1,3 +1,7 @@
+**Divided Over a President’s Fate, South Koreans Awaited a Historic Verdict.**\
+`Text by Chang W. Lee and Jun Michael Park`\
+https://nytimes.com/card/2025/04/04/world/asia/south-korea-yoon-impeachment-photos
+
 **Faced With a Changed Ally, Australia Debates the Need for a ‘Plan B’**\
 `The country has doubled down on its defense relationship with the United States in recent years. President Trump’s treatment of allies is prompting some to question the wisdom of that path.`\
 https://nytimes.com/2025/04/04/world/australia/us-trump-security-alliance.html
