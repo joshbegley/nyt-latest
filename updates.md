@@ -1,3 +1,7 @@
+**Faced With a Changed Ally, Australia Debates the Need for a ‘Plan B’**\
+`The country has doubled down on its defense relationship with the United States in recent years. President Trump’s treatment of allies is prompting some to question the wisdom of that path.`\
+https://nytimes.com/2025/04/04/world/australia/us-trump-security-alliance.html
+
 **Blues tie franchise record with 11th straight win but lose Dylan Holloway**\
 `After letting the Penguins rally late, Robert Thomas, Jimmy Snuggerud and the Blues earned an overtime victory.`\
 https://nytimes.com/athletic/6254045/2025/04/04/blues-11-straight-dylan-holloway-injury/
