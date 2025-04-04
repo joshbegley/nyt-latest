@@ -7,7 +7,7 @@ https://nytimes.com/2025/04/03/us/tornadoes-south-midwest.html
 https://nytimes.com/live/2025/04/03/world/south-korea-yoon/heres-the-latest
 
 **Live Updates: Court Will Decide Fate of South Korea’s President**\
-`The Constitutional Court will either uphold Yoon Suk Yeol’s impeachment or restore him to power. The police are preparing for huge protests in Seoul.`\
+`Eight justices will rule on whether Yoon Suk Yeol’s impeachment for declaring martial law was justified. If they decide it wasn’t, he will be returned to power.`\
 https://nytimes.com/live/2025/04/03/world/south-korea-yoon
 
 **Workers Forced to Leave Foreign Policy Center as Trump Presses Shutdown**\

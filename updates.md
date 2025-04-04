@@ -1,3 +1,7 @@
+**Tornadoes Sweep Across the South and Midwest, Killing at Least 7**\
+`After hail, heavy rains and more than 30 tornadoes drenched the region, officials warned that a “generational flooding” disaster was possible.`\
+https://nytimes.com/2025/04/03/us/tornadoes-south-midwest.html
+
 **Here’s the latest.**\
 `By Qasim Nauman`\
 https://nytimes.com/live/2025/04/03/world/south-korea-yoon/heres-the-latest

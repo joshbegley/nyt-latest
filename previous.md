@@ -1,3 +1,7 @@
+**Tornadoes Sweep Across the South and Midwest, Killing at Least 7**\
+`After hail, heavy rains and more than 30 tornadoes drenched the region, officials warned that a “generational flooding” disaster was possible.`\
+https://nytimes.com/2025/04/03/us/tornadoes-south-midwest.html
+
 **Here’s the latest.**\
 `By Qasim Nauman`\
 https://nytimes.com/live/2025/04/03/world/south-korea-yoon/heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/03/us/ceo-choking-virgin-cruise.html
 **Cheers for Taijuan Walker: Phillies fans, his teammates and mom applaud a meaningful start**\
 `This meant something. Everyone wearing powder blue uniforms felt it as Walker strode toward the dugout after his best outing in ages. `\
 https://nytimes.com/athletic/6253830/2025/04/03/taijuan-walker-phillies-fifth-starter-rockies/
-
-**Police Officers Are Suspended After a Car Chase Ends in a Fatal Fire**\
-`The driver of a Honda CRV was found dead in a burning car in Upper Manhattan. The Police Department put new restrictions on automobile pursuits three months ago.`\
-https://nytimes.com/2025/04/03/nyregion/bronx-nypd-car-chase-fatal-fire.html
 
