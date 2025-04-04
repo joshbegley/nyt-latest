@@ -1,3 +1,11 @@
+**Tariffs Drive Another Market Meltdown**\
+`A rapidly escalating trade war has socked stocks as investors weigh the fallout from President Trump’s tariff barrage.`\
+https://nytimes.com/2025/04/04/business/dealbook/trump-tariffs-markets-metldown.html
+
+**Israeli Military Orders New Evacuation of Gaza City Neighborhoods**\
+`The order came not long after Palestinian health authorities said dozens of people, including children, were killed in strikes on a school turned shelter. Israel said it was looking into the reports.`\
+https://nytimes.com/2025/04/04/world/middleeast/israel-gaza-hamas.html
+
 **FPL live Q&A: FPL Gameweek 31 advice from Ben Dinnery**\
 `Join Ben Dinnery for a live Gameweek 31 FPL Q&A from 4pm-5pm UK time`\
 https://nytimes.com/athletic/6246302/2025/04/04/fantasy-premier-league-advice-gw31-tips/
