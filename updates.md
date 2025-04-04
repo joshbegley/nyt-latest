@@ -1,3 +1,11 @@
+**Scoop City: Four draft lessons from 2024**\
+`Inside: Four things we can learn from last April, why a tush push ban feels inevitable and three stories you might've missed.`\
+https://nytimes.com/athletic/6255586/2025/04/04/nfl-draft-lessons-2024-2025-eagles-scoop-city/
+
+**Nintendo Delays Preorders for the Switch 2, Citing Tariffs**\
+`The new video game console will still be released in June, the Japanese company said. Its price was unveiled as $450 this week.`\
+https://nytimes.com/2025/04/04/business/economy/nintendo-switch-2-preorder-delay-tariffs.html
+
 **Residents Sift Debris as Storm Sweeps the South and Midwest**\
 `The storm has generated more than 30 tornadoes this week, killing at least seven people in three states.`\
 https://nytimes.com/video/us/100000010092051/storm-south-midwest-tornadoes-floods.html
