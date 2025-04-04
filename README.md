@@ -1,3 +1,7 @@
+**‘Yellowjackets’ Season 3, Episode 9 Recap: Motive**\
+`Teen Shauna tightens her grip on power. Poor Melissa feels the squeeze.`\
+https://nytimes.com/2025/04/04/arts/television/yellowjackets-recap-season-3-episode-9.html
+
 **Why Mark Scheifele, Kyle Connor, Cole Perfetti are more playoff-ready than in years past**\
 `Here's how Winnipeg is controlling the play at a higher level now than it did last season.`\
 https://nytimes.com/athletic/6247014/2025/04/04/why-jets-mark-scheifele-kyle-connor-cole-perfetti-are-more-playoff-ready-this-season/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6247014/2025/04/04/why-jets-mark-scheifele-kyle-con
 https://nytimes.com/athletic/6254943/2025/04/04/grand-national-aintree-horse-fatalities-safety/
 
 **Russell Brand Is Charged With Rape and Sexual Assault in U.K.**\
-`British prosecutors said that they had charged the comedian and actor with offenses between 1999 and 2005, involving four women.`\
+`British prosecutors said that they had charged the comedian and actor with offenses between 1999 and 2005 involving four women.`\
 https://nytimes.com/2025/04/04/arts/russell-brand-rape-sexual-assault-charges.html
 
 **Prospect breakdown: What newly-signed defenseman Taige Harding brings to Blackhawks**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/04/your-money/paper-checks-tax-refunds-social-securi
 **Mainoo returns to Man Utd training; De Ligt a doubt for City**\
 `Mainoo has not played since February 7 due to an injury suffered in training while De Ligt sustained an injury against Nottingham Forest.`\
 https://nytimes.com/athletic/6255036/2025/04/04/mainoo-injury-update-manchester-united-team-news/
-
-**Helped by Brandin Podziemski and Jonathan Kuminga, Warriors get big road win over Lakers**\
-`After a big performance in Memphis, the victory over the Lakers closed the Warriors' six-game trip with two of the season's biggest wins.`\
-https://nytimes.com/athletic/6254305/2025/04/04/warriors-lakers-score-brandin-podziemski-jonathan-kuminga/
 
