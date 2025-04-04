@@ -1,3 +1,7 @@
+**Colum McCann on the Surprising Drama of Undersea Cables**\
+`The Irish writer’s new novel, “Twist,” is a shipboard adventure about the ragtag crews who repair ruptured information cables deep in the ocean.`\
+https://nytimes.com/2025/04/04/books/review/podcast-colum-mccann-twist.html
+
 **Private School Diversity Events Are Canceled Amid Government Crackdown**\
 `The National Association of Independent Schools said it would reassess two of its diversity conferences “given the rapidly evolving political and legal landscape.”`\
 https://nytimes.com/2025/04/04/nyregion/private-school-group-diversity-conferences.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6255789/2025/04/04/orioles-royals-mlb-2025-how-to-w
 **YouTuber Is Arrested After Leaving Diet Coke on Isolated Tribe’s Island**\
 `A 24-year-old American man went to a far-flung island in hopes of filming an encounter with the Sentinelese, the Indian authorities said. It is illegal to make contact with the tribe.`\
 https://nytimes.com/2025/04/04/world/asia/north-sentinel-island-us-man-arrested.html
-
-**Boston’s King of Couches Relinquishes His Crown**\
-`Eliot Tatelman, a fixture on regional television for his quirky ads, is retiring as president of Jordan’s Furniture. It was a nostalgic moment for a place known for fiercely guarding its traditions.`\
-https://nytimes.com/2025/04/04/us/eliot-tatelman-jordans-furniture-retiring.html
 
