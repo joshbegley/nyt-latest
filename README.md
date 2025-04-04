@@ -1,3 +1,11 @@
+**How Tariffs Are Hitting Digital Commerce Companies**\
+`These businesses, including e-commerce platforms and payment processors, are pulling back on public offering plans and bracing for pain.`\
+https://nytimes.com/2025/04/04/technology/tariffs-digital-commerce.html
+
+**The I.R.S. says it will begin more mass layoffs.**\
+`Employees were notified of the coming layoffs, which could affect large swaths of the tax collection agency, just days before the annual tax filing deadline.`\
+https://nytimes.com/live/2025/04/04/us/trump-news-updates/trump-irs-layoffs
+
 **What Might Europe’s Fines Against X Mean for Musk?**\
 `The potential for major penalties in the European Union could test the boundaries of online speech and inflame tensions between the U.S. and Europe.`\
 https://nytimes.com/2025/04/04/us/politics/musk-x-european-union-fine.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6184859/2025/04/04/trey-lance-free-agency-2025-char
 **How Guantánamo Bay Figures in the Trump Immigration Crackdown**\
 `In two months, only around 400 migrants have been held there, mostly Venezuelan and Nicaraguan citizens designated for deportation.`\
 https://nytimes.com/2025/04/04/us/politics/migrant-mission-guantanamo-bay.html
-
-**Loomer’s Role in Firings Shows Rising Sway of Fringe Figures on Trump**\
-`President Trump has always solicited information from dubious sources. But now, in his second term, he has fewer people around him who try to keep those voices away.`\
-https://nytimes.com/2025/04/04/us/politics/trump-nsc-firings-laura-loomer.html
-
-**Ted Cruz and Other Senate Republicans Question Trump’s Tariffs**\
-`One of the president’s allies warns that the trade barriers could hurt American business and consumers. But he has yet to take any real steps to reverse them.`\
-https://nytimes.com/2025/04/04/business/economy/ted-cruz-trump-tariffs-republicans.html
 
