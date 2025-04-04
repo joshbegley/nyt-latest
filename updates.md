@@ -1,3 +1,15 @@
+**Five International Movies to Stream Now**\
+`This month’s picks include a Taiwanese horror-comedy, a South Indian tale of possession and patriarchy, a rain-soaked Chinese noir and more.`\
+https://nytimes.com/2025/04/04/movies/international-movies-streaming.html
+
+**Elena Delle Donne, 2-time WNBA MVP, retires from basketball**\
+`Delle Donne, 35, was the No. 2 pick in the 2013 draft and went on to have one of the most accomplished careers of her generation.`\
+https://nytimes.com/athletic/6255412/2025/04/04/elena-delle-donne-retires-wnba/
+
+**Broiled Fish Tacos, Buttermilk Pancakes, Chicken Adobo**\
+`Excellent recipes that feel like magic.`\
+https://nytimes.com/2025/04/04/dining/broiled-fish-tacos-buttermilk-pancakes-chicken-adobo.html
+
 **Sam Keen, Philosopher of the Men’s Movement, Is Dead at 93**\
 `“Only men,” he wrote, “understand the secret fears that go with the territory of masculinity.” His message resonated: His book “Fire in the Belly” was a best seller.`\
 https://nytimes.com/2025/04/04/books/sam-keen-dead.html

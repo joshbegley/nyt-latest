@@ -1,3 +1,15 @@
+**Five International Movies to Stream Now**\
+`This month’s picks include a Taiwanese horror-comedy, a South Indian tale of possession and patriarchy, a rain-soaked Chinese noir and more.`\
+https://nytimes.com/2025/04/04/movies/international-movies-streaming.html
+
+**Elena Delle Donne, 2-time WNBA MVP, retires from basketball**\
+`Delle Donne, 35, was the No. 2 pick in the 2013 draft and went on to have one of the most accomplished careers of her generation.`\
+https://nytimes.com/athletic/6255412/2025/04/04/elena-delle-donne-retires-wnba/
+
+**Broiled Fish Tacos, Buttermilk Pancakes, Chicken Adobo**\
+`Excellent recipes that feel like magic.`\
+https://nytimes.com/2025/04/04/dining/broiled-fish-tacos-buttermilk-pancakes-chicken-adobo.html
+
 **Sam Keen, Philosopher of the Men’s Movement, Is Dead at 93**\
 `“Only men,” he wrote, “understand the secret fears that go with the territory of masculinity.” His message resonated: His book “Fire in the Belly” was a best seller.`\
 https://nytimes.com/2025/04/04/books/sam-keen-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6255129/2025/04/04/final-four-cooper-flagg-paige-bu
 **Listen: Can Arsenal take down Real Madrid without Gabriel?**\
 `Handbrake Off discuss whether Arsenal can advance past Real Madrid amid their defensive injury crisis`\
 https://nytimes.com/athletic/6254869/2025/04/04/can-arsenal-take-down-real-madrid-without-gabriel/
-
-**Meet the 23-Year-Old Student Who Raised $25 Million in Democratic Losses**\
-`A law student in Florida has a lucrative side gig: fund-raising consultant. His firm earns a 25 percent cut of “profit” from donations, and critics have begun to pile up after two special elections.`\
-https://nytimes.com/2025/04/04/us/politics/democrats-fundraising-florida.html
-
-**Federal Worker Unions Sue to Block Trump From Stripping Bargaining Rights**\
-`Labor unions are battling the Trump administration over its attempts to slash the federal work force and roll back the protections afforded to the civil service employees.`\
-https://nytimes.com/2025/04/04/us/politics/trump-unions-lawsuit.html
-
-**Lowetide: Why Oilers' recent free-agent signing activity a welcome turn of events**\
-`In David Tomasek, the Oilers may have signed a top-nine forward for just over $1 million.`\
-https://nytimes.com/athletic/6253932/2025/04/04/oilers-david-tomasek-signing/
 
