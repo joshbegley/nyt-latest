@@ -1,3 +1,23 @@
+**Iowa guard Josh Dix announces transfer to Creighton**\
+`Dix averaged 14.4 points, 3.2 rebounds and 2.8 assists per game at Iowa last season.`\
+https://nytimes.com/athletic/6255653/2025/04/04/josh-dix-transfer-iowa-creighton/
+
+**Thompson: Are the Warriors' title hopes real? LeBron's reaction might be a hint**\
+`You may not think the Warriors are a title contender yet, but it's hard to ignore the subliminal message in LeBron's reaction to them.`\
+https://nytimes.com/athletic/6255573/2025/04/04/golden-state-warriors-title-hopes-lebron-james-steph-curry/
+
+**Why Trump’s Tariffs Are Rattling Even Meta**\
+`Meta, which owns Facebook, Instagram and WhatsApp, would not seem to be in the line of fire from tariffs. But President Trump’s trade actions are hitting even social networking businesses.`\
+https://nytimes.com/2025/04/04/technology/trump-tariffs-meta.html
+
+**Two-way star Travis Hunter to run routes at Colorado pro day**\
+`The two-way player has yet to publicly work out this draft cycle, sitting out of workouts during the NFL combine. `\
+https://nytimes.com/athletic/6255447/2025/04/04/travis-hunter-routes-colorado-pro-day/
+
+**On Fox News, all is calm.**\
+`There is no onscreen stock ticker. One anchor reassured viewers that “President Trump is keeping another campaign promise.”`\
+https://nytimes.com/live/2025/04/04/business/jobs-report-march-tariffs-economy/on-fox-news-all-is-calm
+
 **Sean Combs Faces New Sex-Trafficking Charge Ahead of Trial**\
 `Weeks before the music mogul is scheduled to stand trial, prosecutors added a more serious charge involving a woman they refer to as “Victim-2.”`\
 https://nytimes.com/2025/04/04/arts/music/sean-diddy-combs-new-sex-trafficking-charge.html
