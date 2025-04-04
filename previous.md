@@ -1,3 +1,15 @@
+**Supreme Court Lets Trump Suspend Grants to Teachers**\
+`In boilerplate letters, the administration told recipients that the grants supported diversity efforts and were wasteful.`\
+https://nytimes.com/2025/04/04/us/supreme-court-trump-teacher-grants.html
+
+**Jean Van Leeuwen, 87, Dies; Wrote ‘Oliver Pig’ Series of Children’s Books**\
+`She wrote for many ages, from picture books to young adult fiction. Her children led her to create a series of books about two pigs named Oliver and Amanda.`\
+https://nytimes.com/2025/04/04/books/jean-van-leeuwen-dead.html
+
+**Head of African American Museum Departs As Trump Targets Smithsonian**\
+`Kevin Young, who has led the National Museum of African American History and Culture since 2021, went on leave before the president criticized the institution in an executive order.`\
+https://nytimes.com/2025/04/04/arts/kevin-young-smithsonian-african-american-museum-departs.html
+
 **States Challenge Trump’s Effort to Dismantle Library Agency**\
 `In a lawsuit, 20 state attorneys general argued that the steep cuts to the Institute of Museum and Library Services violate the Constitution and other federal laws related to spending.`\
 https://nytimes.com/2025/04/04/arts/design/library-agency-lawsuit-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/04/us/politics/supreme-court-birthright-citizenship.
 **Colum McCann on the Surprising Drama of Undersea Cables**\
 `The Irish writer’s new novel, “Twist,” is a shipboard adventure about the ragtag crews who repair ruptured information cables deep in the ocean.`\
 https://nytimes.com/2025/04/04/books/review/podcast-colum-mccann-twist.html
-
-**Private School Diversity Events Are Canceled Amid Government Crackdown**\
-`The National Association of Independent Schools said it would reassess two of its diversity conferences “given the rapidly evolving political and legal landscape.”`\
-https://nytimes.com/2025/04/04/nyregion/private-school-group-diversity-conferences.html
-
-**Is This the Trump Boom We Were Promised?**\
-`The country is currently on the losing side of the Trump bet. The business leaders who went for it were suffering from two nested delusions about him.`\
-https://nytimes.com/live/2025/03/24/opinion/thepoint/tariffs-trump-economy-silicon-valley
-
-**The 4.6.25 Issue**\
-``\
-https://nytimes.com/issue/magazine/2025/04/04/the-4625-issue
 

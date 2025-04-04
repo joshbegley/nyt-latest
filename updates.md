@@ -1,3 +1,15 @@
+**Supreme Court Lets Trump Suspend Grants to Teachers**\
+`In boilerplate letters, the administration told recipients that the grants supported diversity efforts and were wasteful.`\
+https://nytimes.com/2025/04/04/us/supreme-court-trump-teacher-grants.html
+
+**Jean Van Leeuwen, 87, Dies; Wrote ‘Oliver Pig’ Series of Children’s Books**\
+`She wrote for many ages, from picture books to young adult fiction. Her children led her to create a series of books about two pigs named Oliver and Amanda.`\
+https://nytimes.com/2025/04/04/books/jean-van-leeuwen-dead.html
+
+**Head of African American Museum Departs As Trump Targets Smithsonian**\
+`Kevin Young, who has led the National Museum of African American History and Culture since 2021, went on leave before the president criticized the institution in an executive order.`\
+https://nytimes.com/2025/04/04/arts/kevin-young-smithsonian-african-american-museum-departs.html
+
 **Republican Plan to Kill California’s E.V. Policies Hits Senate Snag**\
 `The Trump administration asked Republicans in Congress to stop California’s ban on new gas-powered cars. The Senate parliamentarian said it wasn’t allowed.`\
 https://nytimes.com/2025/04/04/climate/california-ev-waiver-senate.html
