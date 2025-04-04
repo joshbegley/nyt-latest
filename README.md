@@ -1,3 +1,15 @@
+**The Grand National: Why Britain's most celebrated horse race has become so divisive**\
+`There has been a renewed focus placed on animal welfare in recent years after 66 horse fatalities at the Grand National Festival since 2000`\
+https://nytimes.com/athletic/6254943/2025/04/04/grand-national-aintree-horse-fatalities-safety/
+
+**Russell Brand Is Charged With Rape and Sexual Assault in U.K.**\
+`British prosecutors said that they had charged the comedian and actor with offenses between 1999 and 2005, involving four women.`\
+https://nytimes.com/2025/04/04/arts/russell-brand-rape-sexual-assault-charges.html
+
+**Prospect breakdown: What newly-signed defenseman Taige Harding brings to Blackhawks**\
+`The 6-foot-7 lefty spent his senior year with Providence focusing on using his size and physicality.`\
+https://nytimes.com/athletic/6253480/2025/04/04/blackhawks-taige-harding-prospect-breakdown/
+
 **NHL Power Rankings: As playoff picture solidifies, what's left to worry about?**\
 `With less than two weeks left in the regular season, we’re taking a look at what each team’s final fortnight focus should be.`\
 https://nytimes.com/athletic/6254909/2025/04/04/nhl-power-rankings-26/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6254305/2025/04/04/warriors-lakers-score-brandin-po
 **Listen: Why Moyes can lead Everton into their new era**\
 `The Athletic FC Podcast discuss David Moyes’ impact on Everton and why he’s the right man to lead the club’s new era`\
 https://nytimes.com/athletic/6253128/2025/04/04/athletic-fc-podcast-moyes-everton-new-era/
-
-**Opposing coaches break down the men's Final Four's key matchups**\
-`Coaches who saw the 2025 Final Four teams this season get into the nitty-gritty details of what makes them good and how to beat them.`\
-https://nytimes.com/athletic/6254011/2025/04/04/final-four-scouting-reports-duke-houston-florida-auburn/
-
-**Chelsea's Lavia and Wesley undergo scans on muscular injuries**\
-`Both players missed Chelsea’s 1-0 victory over Tottenham and have already been ruled out of Sunday’s Premier League fixture at Brentford.`\
-https://nytimes.com/athletic/6254873/2025/04/04/chelsea-injury-news-fofana-lavia/
-
-**Women's Final Four: Who would make the all-time starting 5, coach for each team?**\
-`A tough question: Which players, past and present, would be included in a starting five of each team representing this year's Final Four?`\
-https://nytimes.com/athletic/6250665/2025/04/04/womens-final-four-2025-all-time-team/
 

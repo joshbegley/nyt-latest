@@ -1,3 +1,7 @@
+**NHL Power Rankings: As playoff picture solidifies, what's left to worry about?**\
+`With less than two weeks left in the regular season, we’re taking a look at what each team’s final fortnight focus should be.`\
+https://nytimes.com/athletic/6254909/2025/04/04/nhl-power-rankings-26/
+
 **In Burisma Letter, Hunter Biden Sought Support from State Department**\
 `While Joe Biden was vice president, his son used the letterhead of a Ukrainian energy company when writing to a U.S. ambassador with ties to the family.`\
 https://nytimes.com/2025/04/04/us/politics/hunter-biden-burisma-letter-italy.html
