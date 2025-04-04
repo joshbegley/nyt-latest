@@ -1,3 +1,7 @@
+**Lawsuit Challenges Trump’s Legal Rationale for Tariffs on China**\
+`A nonprofit group said the president misapplied a law in imposing those levies and portrayed its filing as the first lawsuit to challenge the Trump administration over its tariffs.`\
+https://nytimes.com/2025/04/03/business/economy/lawsuit-tariffs-china-trump-administration.html
+
 **Amtrak Train Strikes and Kills 1 in Pennsylvania**\
 `Amtrak said it had temporarily suspended rail service from Penn Station in New York City and Philadelphia’s main station.`\
 https://nytimes.com/2025/04/03/us/amtrak-train-crash-bucks-county-pa.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/04/03/world/south-korea-yoon/heres-the-latest
 **Live Updates: Court Will Decide Fate of South Korea’s President**\
 `Eight justices will rule on whether Yoon Suk Yeol’s impeachment for declaring martial law was justified. Their decision will determine whether he returns to power.`\
 https://nytimes.com/live/2025/04/03/world/south-korea-yoon
-
-**Workers Forced to Leave Foreign Policy Center as Trump Presses Shutdown**\
-`About 130 employees of the Wilson Center were told they were being put on leave, just four days after workers for Elon Musk’s team entered the center.`\
-https://nytimes.com/2025/04/03/us/politics/wilson-center-shutdown-musk.html
 

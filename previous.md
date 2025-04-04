@@ -1,3 +1,7 @@
+**Amtrak Train Strikes and Kills 1 in Pennsylvania**\
+`Amtrak said it had temporarily suspended rail service from Penn Station in New York City and Philadelphia’s main station.`\
+https://nytimes.com/2025/04/03/us/amtrak-train-crash-bucks-county-pa.html
+
 **Lamar Jackson challenges Dale Earnhardt Jr.'s trademark claim of No. 8**\
 `The NFL quarterback's drive to win the battle of the famous No. 8s is racing on.`\
 https://nytimes.com/athletic/6254074/2025/04/03/lamar-jackson-dale-earnhardt-jr-trademark/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/04/03/world/south-korea-yoon
 **Workers Forced to Leave Foreign Policy Center as Trump Presses Shutdown**\
 `About 130 employees of the Wilson Center were told they were being put on leave, just four days after workers for Elon Musk’s team entered the center.`\
 https://nytimes.com/2025/04/03/us/politics/wilson-center-shutdown-musk.html
-
-**Grocery Shoppers Will Feel the Tariffs First in the Produce Aisle**\
-`Higher prices could also be coming soon for seafood, sugar and coffee. But it may be a while before importers and retailers can gauge the effects of the new fees.`\
-https://nytimes.com/2025/04/03/dining/grocery-shoppers-will-feel-the-tariffs-first-in-the-produce-aisle.html
 

@@ -1,3 +1,7 @@
+**Amtrak Train Strikes and Kills 1 in Pennsylvania**\
+`Amtrak said it had temporarily suspended rail service from Penn Station in New York City and Philadelphia’s main station.`\
+https://nytimes.com/2025/04/03/us/amtrak-train-crash-bucks-county-pa.html
+
 **Lamar Jackson challenges Dale Earnhardt Jr.'s trademark claim of No. 8**\
 `The NFL quarterback's drive to win the battle of the famous No. 8s is racing on.`\
 https://nytimes.com/athletic/6254074/2025/04/03/lamar-jackson-dale-earnhardt-jr-trademark/
