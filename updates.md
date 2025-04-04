@@ -1,3 +1,11 @@
+**Chelsea's sale of women's team to themselves still being assessed by PL**\
+`The sale will not count towards UEFA’s Financial Fair Play (FFP) rules, which are more strict than the Premier League's.`\
+https://nytimes.com/athletic/6252232/2025/04/04/chelsea-ffp-womens-team-sale/
+
+**Word of the Day: salinity**\
+`This word has appeared in 26 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/04/04/learning/word-of-the-day-salinity.html
+
 **Stephen Colbert Likens Trump’s Tariffs to an Economic Infection**\
 `“Has anyone thought about injecting our money with bleach?” Colbert said after President Trump’s new tariffs tanked the stock market on Thursday.`\
 https://nytimes.com/2025/04/04/arts/television/stephen-colbert-trump-tariffs.html
