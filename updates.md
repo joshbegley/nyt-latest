@@ -1,3 +1,11 @@
+**Hayes: USWNT in 'dreamland' as U.S. set to co-host 2031 Women's World Cup**\
+`FIFA confirmed that a joint bid from U.S. Soccer and other Concacaf member associations was the sole expression of interest for 2031.`\
+https://nytimes.com/athletic/6255933/2025/04/04/emma-hayes-uswnt-womens-world-cup/
+
+**george-clooney-broadway-good-night-good-luck**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/george-clooney-broadway-good-night-good-luck
+
 **A Cake With Nothing to Hide**\
 `A light, classic coconut cake in all its old-fashioned glory.`\
 https://nytimes.com/2025/04/04/magazine/coconut-cake-recipe.html
