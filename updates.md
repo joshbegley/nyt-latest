@@ -1,3 +1,7 @@
+**Bruce Pearl, Rick Pitino earn AP Coach of the Year in award's first-ever tie**\
+`Of the ballots cast by the national media panel that ranks the AP Top 25 throughout the season, Pearl and Pitino each received 20 votes.`\
+https://nytimes.com/athletic/6255639/2025/04/04/rick-pitino-bruce-pearl-ap-coach-of-year/
+
 **At Least 14 Dead in Russian Strike on Zelensky’s Hometown, Ukraine Says**\
 `The missile strike was the latest in a series of Russian attacks on urban centers that have caused significant civilian casualties despite ongoing cease-fire talks.`\
 https://nytimes.com/2025/04/04/world/europe/ukraine-russia-strike-zelensky-hometown.html
