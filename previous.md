@@ -1,4 +1,4 @@
-**Why Red Bull changed their liveries to white for Japanese Grand Prix**\
+**Why Red Bull changed its livery to white for Japanese Grand Prix**\
 `When Yuki Tsunoda takes to the track as a Red Bull F1 driver for the first time, he will do so in a very different-looking car to usual
 `\
 https://nytimes.com/athletic/6252220/2025/04/03/red-bull-f1-japanese-gp-white-cars/
