@@ -1,3 +1,7 @@
+**Seoul Erupts With Shouts of Joy After Yoon Is Removed From Office**\
+`Still, after four months of political uncertainty, many people expressed apprehension about what lies ahead for the country.`\
+https://nytimes.com/2025/04/04/world/asia/yoon-impeachment-reaction-seoul.html
+
 **FPL: A Gameweek 31 wildcard guide and the must-have players to target**\
 `Wildcarding in Gameweek 31 is bound to be a popular move - Abdul Rehman runs through the players you need to put in your team this week`\
 https://nytimes.com/athletic/6249797/2025/04/04/fantasy-premier-league-gameweek-31-wildcard/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6254454/2025/04/04/999-for-99-on-the-eve-of-his-100
 **Atletico's wild eight-game run: The highs, the lows, the 'rage' and that 'two-touch' penalty**\
 `Over three weeks, Diego Simeone's team faced a series of tests that would define their season. We were there every step of the way`\
 https://nytimes.com/athletic/6252979/2025/04/04/atletico-madrid-eight-game-run-la-liga/
-
-**How do Nottingham Forest keep beating the Premier League's 'Big Six' with hardly any of the ball?**\
-`Nuno’s team may not play like a modern superclub — but when facing teams that do, they’ve consistently found a way to thrive`\
-https://nytimes.com/athletic/6252962/2025/04/04/nottingham-forest-beating-big-six-record/
 

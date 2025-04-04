@@ -1,3 +1,7 @@
+**Seoul Erupts With Shouts of Joy After Yoon Is Removed From Office**\
+`Still, after four months of political uncertainty, many people expressed apprehension about what lies ahead for the country.`\
+https://nytimes.com/2025/04/04/world/asia/yoon-impeachment-reaction-seoul.html
+
 **FPL: A Gameweek 31 wildcard guide and the must-have players to target**\
 `Wildcarding in Gameweek 31 is bound to be a popular move - Abdul Rehman runs through the players you need to put in your team this week`\
 https://nytimes.com/athletic/6249797/2025/04/04/fantasy-premier-league-gameweek-31-wildcard/
