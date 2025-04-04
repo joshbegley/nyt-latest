@@ -1,3 +1,7 @@
+**Employers that rely on immigrants push for laws to ensure flow of laborers.**\
+`By Lydia DePillis`\
+https://nytimes.com/live/2025/04/04/business/jobs-report-march-tariffs-economy/employers-that-rely-on-immigrants-push-for-laws-to-ensure-flow-of-laborers
+
 **Twins takeaways from home opener loss: Joe Ryan unravels, cold bats, healthy Byron Buxton**\
 `In what could be the final home opener under the Pohlad family's ownership, the Twins wasted a hot start and fell to 2-5 on the season.`\
 https://nytimes.com/athletic/6254082/2025/04/04/twins-loss-astros-joe-ryan-byron-buxton/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6250258/2025/04/04/afc-west-coached-andy-reid-sean-
 **Madness of March may be imperiled by NIL, transfer portal, but it's not a trend yet**\
 `No team seeded No. 4 or better lost their first-round matchup in 2025. Is this the new normal or can March remain "mad" in the NIL era?`\
 https://nytimes.com/athletic/6252325/2025/04/04/march-madness-cinderellas-nil-transfer-portal-underdogs/
-
-**Why the Senators shouldn't be concerned about Fabian Zetterlund's slow start**\
-`The Swedish winger has just one point in 13 games with the Senators since being acquired from the Sharks.`\
-https://nytimes.com/athletic/6249821/2025/04/04/senators-fabian-zetterlund-sharks-trade/
 
