@@ -1,3 +1,7 @@
+**Is This the Trump Boom We Were Promised?**\
+`The country is currently on the losing side of the Trump bet. The business leaders who went for it were suffering from two nested delusions about him.`\
+https://nytimes.com/live/2025/03/24/opinion/thepoint/tariffs-trump-economy-silicon-valley
+
 **The 4.6.25 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/04/04/the-4625-issue
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/04/us/eliot-tatelman-jordans-furniture-retiring.html
 **Can Rich Parents Make Special Requests at a Public School?**\
 `The magazine’s Ethicist columnist on who deserves preferential access to a public good.`\
 https://nytimes.com/2025/04/04/magazine/parents-wealth-school-ethics.html
-
-**Theodore McCarrick, Cardinal Accused of Sexual Abuse, Dies at 94**\
-`He ascended to the highest levels of the Roman Catholic Church before allegations of misconduct in 2018, and an investigation led Pope Francis to strip him of his title and priesthood.`\
-https://nytimes.com/2025/04/04/us/theodore-mccarrick-dead.html
 
