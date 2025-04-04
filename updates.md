@@ -1,3 +1,19 @@
+**Airline stocks get hammered as investors worry about travel demand.**\
+`By Niraj Chokshi`\
+https://nytimes.com/live/2025/04/04/business/jobs-report-march-tariffs-economy/airline-hotel-stocks-travel-demand
+
+**Wasn’t Trump Supposed to Have Solved the War in Ukraine by Now?**\
+`Here is what has happened in Ukraine: nothing. There’s no sign that Putin is preparing to stop fighting, despite Trump’s talk of cease-fires and deals.`\
+https://nytimes.com/2025/04/03/opinion/ukraine-trump-ceasefire-russia-putin.html
+
+**Powell Says Trump’s Tariffs Raise Risks of Higher Inflation, Slower Growth**\
+`Jerome H. Powell, chair of the Federal Reserve, says the central bank’s “obligation” is to ensure that a “one-time increase in the price level does not become an ongoing inflation problem.”`\
+https://nytimes.com/2025/04/04/business/economy/powell-trump-tariff-inflation-risk.html
+
+**Bowden's mailbag: What should Red Sox do? Will Jays extend Vlad Jr.? 116 wins for Dodgers?**\
+`Answering 20 questions from subscribers, including some of my early thoughts on the deadline and who will be the top pick in the MLB Draft.`\
+https://nytimes.com/athletic/6253288/2025/04/04/red-sox-devers-abreu-blue-jays-vlad-nl-central/
+
 **Powell Says Trump’s Tariffs Raise Risks of Higher Inflation, Slower Growth**\
 `Jerome H. Powell, chair of the Federal Reserve, says the central bank’s “obligation” is to ensure that a “one-time increase in the price level does not become an ongoing inflation problem.”`\
 https://nytimes.com/2025/04/04/business/economy/powell-says-trumps-tariffs-raise-risks-of-higher-inflation-slower-growth.html
