@@ -1,3 +1,19 @@
+**Flashback: Your Weekly History Quiz, April 5, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/04/04/upshot/flashback.html
+
+**Fate of the Filibuster Emerges as a Central Issue in Senate Budget Fight**\
+`Some Republicans are uneasy that their party is pursuing a tactic that could weaken the filibuster and backfire in the future.`\
+https://nytimes.com/2025/04/04/us/politics/republicans-filibuster-tax-cuts.html
+
+**Philadelphia Zoo Welcomes Four Endangered Tortoise Hatchlings**\
+`Four endangered Western Santa Cruz Galápagos tortoises hatched at the Philadelphia Zoo.`\
+https://nytimes.com/video/science/100000010092686/tortoise-hatchlings-philadelphia-zoo.html
+
+**Robert S. Rifkind, Who Defended a Libel Suit by Ariel Sharon, Dies at 88**\
+`In one of the biggest cases he worked on, he represented Time magazine when Mr. Sharon, Israel’s defense minister, sued it over its reporting on a 1983 massacre in Lebanon.`\
+https://nytimes.com/2025/04/04/nyregion/robert-rifkind-dead.html
+
 **Appeals Court Orders Thousands of Voters to Verify Information in Contested N.C. Election**\
 `The ruling was a win for the Republican who narrowly lost a State Supreme Court race in November. The case has tested the boundaries of post-election litigation.`\
 https://nytimes.com/2025/04/04/us/north-carolina-supreme-court-race-ruling.html
