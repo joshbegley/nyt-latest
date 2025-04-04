@@ -1,3 +1,11 @@
+**Boston’s King of Couches Relinquishes His Crown**\
+`Eliot Tatelman, a fixture on regional television for his quirky ads, is retiring as president of Jordan’s Furniture. It was a nostalgic moment for a place known for fiercely guarding its traditions.`\
+https://nytimes.com/2025/04/04/us/eliot-tatelman-jordans-furniture-retiring.html
+
+**Can Rich Parents Make Special Requests at a Public School?**\
+`The magazine’s Ethicist columnist on who deserves preferential access to a public good.`\
+https://nytimes.com/2025/04/04/magazine/parents-wealth-school-ethics.html
+
 **Theodore McCarrick, Cardinal Accused of Sexual Abuse, Dies at 94**\
 `He ascended to the highest levels of the Roman Catholic Church before allegations of misconduct in 2018, and an investigation led Pope Francis to strip him of his title and priesthood.`\
 https://nytimes.com/2025/04/04/us/theodore-mccarrick-dead.html

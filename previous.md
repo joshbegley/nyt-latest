@@ -1,3 +1,11 @@
+**Boston’s King of Couches Relinquishes His Crown**\
+`Eliot Tatelman, a fixture on regional television for his quirky ads, is retiring as president of Jordan’s Furniture. It was a nostalgic moment for a place known for fiercely guarding its traditions.`\
+https://nytimes.com/2025/04/04/us/eliot-tatelman-jordans-furniture-retiring.html
+
+**Can Rich Parents Make Special Requests at a Public School?**\
+`The magazine’s Ethicist columnist on who deserves preferential access to a public good.`\
+https://nytimes.com/2025/04/04/magazine/parents-wealth-school-ethics.html
+
 **Theodore McCarrick, Cardinal Accused of Sexual Abuse, Dies at 94**\
 `He ascended to the highest levels of the Roman Catholic Church before allegations of misconduct in 2018, and an investigation led Pope Francis to strip him of his title and priesthood.`\
 https://nytimes.com/2025/04/04/us/theodore-mccarrick-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6255869/2025/04/04/cooper-flagg-duke-ap-player-of-t
 **Easy Recipes for When You Want to Eat More Fish**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/easy-fish-recipes
-
-**No One Loves Hockey Hair More Than This Guy**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/minnesota-hockey-hair-john-king
-
-**Swiss Indignant to Make the Top 10 of Trump’s Tariffs List**\
-`Swiss companies bemoan the loss of a reliable partner, and called the 32 percent tariff “incomprehensible.”`\
-https://nytimes.com/2025/04/04/business/trump-tariffs-switzerland.html
 
