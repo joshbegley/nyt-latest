@@ -1,3 +1,11 @@
+**China Retaliates Against Trump With 34% Tariff on U.S. Goods**\
+`The Chinese government said it would match President Trump’s tariff, and also barred a group of American companies from doing business in China.`\
+https://nytimes.com/2025/04/04/business/china-trump-tariffs-retaliation.html
+
+**Hurzeler feels 'responsibility' to Brighton fans ahead of Palace game**\
+`Hurzeler could become the first Brighton boss since Charlie Webb in 1932 to lose both league fixtures against Palace in the same season.`\
+https://nytimes.com/athletic/6254818/2025/04/04/hurzeler-brighton-crystal-palace/
+
 **Employers that rely on immigrants push for laws to ensure flow of laborers.**\
 `By Lydia DePillis`\
 https://nytimes.com/live/2025/04/04/business/jobs-report-march-tariffs-economy/employers-that-rely-on-immigrants-push-for-laws-to-ensure-flow-of-laborers
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6236437/2025/04/04/mlb-players-money-saving-hacks/
 **Women's Final Four power ranking: Who's winning? UCLA, South Carolina, UConn or Texas?**\
 `Will South Carolina repeat? Can UCLA win its first NCAA-era championship? Will UConn win it all? Will Paige Bueckers deliver?`\
 https://nytimes.com/athletic/6251715/2025/04/04/womens-final-four-power-rankings-whos-winning-ucla-south-carolina-uconn-or-texas/
-
-**Can AFC West's 'all-star lineup' of coaches finally top Andy Reid and the Chiefs?**\
-`The Chiefs have accumulated more division titles (9) since 2016 than division game losses (8), but 2025 may be the toughest test yet.`\
-https://nytimes.com/athletic/6250258/2025/04/04/afc-west-coached-andy-reid-sean-payton-pete-carroll-jim-harbaugh/
-
-**Madness of March may be imperiled by NIL, transfer portal, but it's not a trend yet**\
-`No team seeded No. 4 or better lost their first-round matchup in 2025. Is this the new normal or can March remain "mad" in the NIL era?`\
-https://nytimes.com/athletic/6252325/2025/04/04/march-madness-cinderellas-nil-transfer-portal-underdogs/
 
