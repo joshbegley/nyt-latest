@@ -1,3 +1,11 @@
+**FPL live Q&A: FPL Gameweek 31 advice from Ben Dinnery**\
+`Join Ben Dinnery for a live Gameweek 31 FPL Q&A from 4pm-5pm UK time`\
+https://nytimes.com/athletic/6246302/2025/04/04/fantasy-premier-league-advice-gw31-tips/
+
+**Saka's race to start against Madrid - and how players target comeback games**\
+`Medical staff may wince but football has a long history of key players returning from serious injuries straight into big games`\
+https://nytimes.com/athletic/6235003/2025/04/04/bukayo-saka-comeback-injury/
+
 **Will Trump’s Tariffs Drive Europe Into China’s Arms, or Into a Fight?**\
 `The European Union is deepening other trade partnerships as U.S. relations sour. But with China, the relationship could get closer — or more combative.`\
 https://nytimes.com/2025/04/04/world/europe/trump-tariffs-china.html
