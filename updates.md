@@ -1,3 +1,15 @@
+**In Burisma Letter, Hunter Biden Sought Support from State Department**\
+`While Joe Biden was vice president, his son used the letterhead of a Ukrainian energy company when writing to a U.S. ambassador with ties to the family.`\
+https://nytimes.com/2025/04/04/us/politics/hunter-biden-burisma-letter-italy.html
+
+**At ‘Good Night’ Opening, the Stars Came Out for Clooney**\
+`As a play with parallels to today’s political climate had its official Broadway premiere, famous friends celebrated its star, George Clooney. He brushed aside talk of a political future.`\
+https://nytimes.com/2025/04/04/style/george-clooney-good-night-good-luck-broadway-party.html
+
+**Still Receive Paper Checks From the Government? That Will Soon End.**\
+`An executive order from President Trump will require government agencies to make electronic payments for tax refunds, Social Security and other benefits as of Sept. 30.`\
+https://nytimes.com/2025/04/04/your-money/paper-checks-tax-refunds-social-security.html
+
 **Mainoo returns to Man Utd training; De Ligt a doubt for City**\
 `Mainoo has not played since February 7 due to an injury suffered in training while De Ligt sustained an injury against Nottingham Forest.`\
 https://nytimes.com/athletic/6255036/2025/04/04/mainoo-injury-update-manchester-united-team-news/

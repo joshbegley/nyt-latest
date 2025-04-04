@@ -1,3 +1,15 @@
+**In Burisma Letter, Hunter Biden Sought Support from State Department**\
+`While Joe Biden was vice president, his son used the letterhead of a Ukrainian energy company when writing to a U.S. ambassador with ties to the family.`\
+https://nytimes.com/2025/04/04/us/politics/hunter-biden-burisma-letter-italy.html
+
+**At ‘Good Night’ Opening, the Stars Came Out for Clooney**\
+`As a play with parallels to today’s political climate had its official Broadway premiere, famous friends celebrated its star, George Clooney. He brushed aside talk of a political future.`\
+https://nytimes.com/2025/04/04/style/george-clooney-good-night-good-luck-broadway-party.html
+
+**Still Receive Paper Checks From the Government? That Will Soon End.**\
+`An executive order from President Trump will require government agencies to make electronic payments for tax refunds, Social Security and other benefits as of Sept. 30.`\
+https://nytimes.com/2025/04/04/your-money/paper-checks-tax-refunds-social-security.html
+
 **Mainoo returns to Man Utd training; De Ligt a doubt for City**\
 `Mainoo has not played since February 7 due to an injury suffered in training while De Ligt sustained an injury against Nottingham Forest.`\
 https://nytimes.com/athletic/6255036/2025/04/04/mainoo-injury-update-manchester-united-team-news/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6250665/2025/04/04/womens-final-four-2025-all-time-
 **Eight numbers that tell the story of Dodgers' historic 8-0 start**\
 `Here's a by-the-numbers look at the Dodgers' winning streak: "I think each night we’re unbeatable."`\
 https://nytimes.com/athletic/6254395/2025/04/04/dodgers-undefeated-by-the-numbers/
-
-**Nebraska's Jalyn Gramstad wants to test his game in the NFL**\
-`Gramstad spent four seasons at Northwestern College before transferring to Nebraska. And he's hoping his career continues in the NFL.`\
-https://nytimes.com/athletic/6253673/2025/04/04/nebraska-football-jalyn-gramstad-nfl/
-
-**The secondary was a weakness for Alabama entering 2024, but now it's a strength**\
-`Alabama's secondary being a strength after a year of change for the defensive backs in 2024 is one of the biggest storylines this spring.`\
-https://nytimes.com/athletic/6250859/2025/04/04/alabama-football-secondary-zabien-brown-maurice-linguist/
-
-**How Sabres goalie prospect Devon Levi learned to embrace the AHL**\
-`The Sabres haven't ruled out Levi returning to the AHL next season, but that could depend on what else happens at the position this summer.`\
-https://nytimes.com/athletic/6253457/2025/04/04/sabres-prospects-devon-levi-ahl-stats/
 
