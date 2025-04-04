@@ -1,3 +1,15 @@
+**SpaceX Dragon Capsule Lands in Pacific Ocean**\
+`After more than five years of landing its returning vessels off the Florida coast, SpaceX’s Dragon capsule splashed down off the California coast for the first time.`\
+https://nytimes.com/video/science/space/100000010092094/spacex-lands-off-california-coast.html
+
+**Trump Extends Deadline for a TikTok Deal**\
+`The app was facing a Saturday deadline to change its ownership or face a ban in the United States.`\
+https://nytimes.com/2025/04/04/technology/trump-tiktok-deadline-delay.html
+
+**Three MIT Startups to Know Now**\
+`Learn how these alumni entrepreneurs are applying their MIT know-how to reduce waste and create jobs`\
+https://nytimes.com/paidpost/mit-sloan/three-mit-startups-to-know-now/alumni-entrepreneurs.html
+
 **Bruce Pearl, Rick Pitino earn AP coach of the year in award's first-ever tie**\
 `Of the ballots cast by the national media panel that ranks the AP Top 25 throughout the season, Pearl and Pitino each received 20 votes.`\
 https://nytimes.com/athletic/6255639/2025/04/04/rick-pitino-bruce-pearl-ap-coach-of-year/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/04/science/spacex-fram2-splashdown-california.html
 **Listen: Is Omarion Hampton the second-best running back in the 2025 draft class?**\
 `"The Athletic Football Show" discusses why North Carolina's Omarion Hampton is the second-best running back in this year's draft class.`\
 https://nytimes.com/athletic/6254708/2025/04/04/athletic-football-show-omarion-hampton-draft/
-
-**Differing Portraits of American Campuses**\
-`Readers offer views on the state of American universities that go beyond the stereotypes. Also: Fatal U.S.A.I.D. cuts; college using police tactics.`\
-https://nytimes.com/2025/04/04/opinion/universities-colleges.html
-
-**Trump Calls India a Friend, but Is Trying to Block Its Imports**\
-`Stunned to see their own exports punished harshly, Indians are picking through the wreckage for signs of hope. There’s some but not a lot.`\
-https://nytimes.com/2025/04/04/business/india-trump-tariffs.html
-
-**Felon Freed by Trump Is Sent Back to Prison After Child Assault Charge**\
-`Jonathan Braun, a drug smuggler, on Friday made an obscene gesture toward people in the courtroom and complained about his legal representation.`\
-https://nytimes.com/2025/04/04/nyregion/jonathan-braun-trump.html
 

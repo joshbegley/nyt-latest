@@ -1,3 +1,15 @@
+**SpaceX Dragon Capsule Lands in Pacific Ocean**\
+`After more than five years of landing its returning vessels off the Florida coast, SpaceX’s Dragon capsule splashed down off the California coast for the first time.`\
+https://nytimes.com/video/science/space/100000010092094/spacex-lands-off-california-coast.html
+
+**Trump Extends Deadline for a TikTok Deal**\
+`The app was facing a Saturday deadline to change its ownership or face a ban in the United States.`\
+https://nytimes.com/2025/04/04/technology/trump-tiktok-deadline-delay.html
+
+**Three MIT Startups to Know Now**\
+`Learn how these alumni entrepreneurs are applying their MIT know-how to reduce waste and create jobs`\
+https://nytimes.com/paidpost/mit-sloan/three-mit-startups-to-know-now/alumni-entrepreneurs.html
+
 **Bruce Pearl, Rick Pitino earn AP coach of the year in award's first-ever tie**\
 `Of the ballots cast by the national media panel that ranks the AP Top 25 throughout the season, Pearl and Pitino each received 20 votes.`\
 https://nytimes.com/athletic/6255639/2025/04/04/rick-pitino-bruce-pearl-ap-coach-of-year/
