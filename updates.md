@@ -1,3 +1,15 @@
+**Men's tennis chief executive Massimo Calvelli will step down in summer**\
+`Calvelli's departure from the governing body of men's tennis continues the recent shuffling of the decks at the top of the sport.`\
+https://nytimes.com/athletic/6255306/2025/04/04/tennis-atp-bosses-calvelli-steps-down/
+
+**Trump Weighs In, Making Marine Le Pen’s Case Part of the Politics of Grievance**\
+`The American president cast the French politician’s conviction as an example of far-right persecution, ignoring ample evidence against her.`\
+https://nytimes.com/2025/04/04/world/europe/trump-marine-le-pen-conviction.html
+
+**Rudiger, Mbappe, Ceballos and Vinicius Jr avoid Arsenal ban**\
+`Mbappe and Rudiger have been fined and given one-game suspended bans, Ceballos has been fined and Vinicius Jr has not been sanctioned.`\
+https://nytimes.com/athletic/6255361/2025/04/04/champions-league-suspensions-madrid-arsenal/
+
 **Trump Sounds Defiant Note as Tariffs Roil Markets Again**\
 `After China announced new retaliatory measures against the United States, President Trump responded that Beijing “PLAYED IT WRONG.”`\
 https://nytimes.com/live/2025/04/04/business/jobs-report-march-tariffs-economy/trump-sounds-defiant-note-as-tariffs-roil-markets-again
