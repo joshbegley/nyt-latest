@@ -1,3 +1,7 @@
+**Lowetide: Why Oilers' recent free-agent signing activity a welcome turn of events**\
+`In David Tomasek, the Oilers may have signed a top-nine forward for just over $1 million.`\
+https://nytimes.com/athletic/6253932/2025/04/04/oilers-david-tomasek-signing/
+
 **NBA trends I'm watching: Giannis' playmaking, OG Anunoby's foul drawing and more**\
 `Also in the East, one point guard has found the perfect balance between aggression and protection on offense.`\
 https://nytimes.com/athletic/6254312/2025/04/04/nba-trends-giannis-playmaking-og-anunoby-fouls/
