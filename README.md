@@ -1,3 +1,7 @@
+**Trump Rejects Biden Plan to Expand Medicare Coverage for Obesity Drugs**\
+`Administration officials reversed a decision made during the Biden presidency that would have given millions of people access to weight-loss drugs paid for Medicare and Medicaid.`\
+https://nytimes.com/2025/04/04/health/trump-wegovy-obesity-drugs-medicare.html
+
 **Judge Orders Tufts Student’s Detention Case Moved to Vermont**\
 `The student, Rumeysa Ozturk, was detained by ICE agents in Massachusetts, driven to Vermont and flown to a detention center in Louisiana, where the government was trying to argue her court case.`\
 https://nytimes.com/2025/04/04/us/tufts-student-deportation-case-vermont-rumeysa-ozturk.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6256177/2025/04/04/reds-terry-francona-illness/
 **Dodgers' Mookie Betts will attend White House celebration: 'It's not a political stance'**\
 `Betts did not attend the celebration in 2019 when the Red Sox visited the White House to celebrate their 2018 World Series victory.`\
 https://nytimes.com/athletic/6256111/2025/04/04/dodgers-mookie-betts-white-house/
-
-**The case for sports' greatest No. 8**\
-`We put it to seven Athletic writers across sports to make their case: Who's the greatest No. 8 of all time?`\
-https://nytimes.com/athletic/6255957/2025/04/04/kobe-bryant-yogi-berra-lamar-jackson-dale-earnhardt-alex-ovechkin-number-eight/
 
