@@ -1,3 +1,11 @@
+**Sean Combs Faces New Sex-Trafficking Charge Ahead of Trial**\
+`Weeks before the music mogul is scheduled to stand trial, prosecutors added a more serious charge involving a woman they refer to as “Victim-2.”`\
+https://nytimes.com/2025/04/04/arts/music/sean-diddy-combs-new-sex-trafficking-charge.html
+
+**Newsom Will Seek Trade Deals That Spare California From Retaliatory Tariffs**\
+`The governor’s announcement could ratchet up animosity between the Trump administration and California, the world’s fifth-largest economy.`\
+https://nytimes.com/2025/04/04/us/politics/newsom-trump-california-tariffs.html
+
 **Song of the Week: Is ‘Nokia’ Drake’s Comeback?**\
 `Is this the start of a Drake comeback? Join our critic Jon Caramanica in his car as he listens to — and breaks down — one of the most interesting tracks of the moment.`\
 https://nytimes.com/video/podcasts/100000010085284/song-of-the-week-nokia-drake-comeback.html
