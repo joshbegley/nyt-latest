@@ -1,3 +1,11 @@
+**A Federal Lab That Tracked Rising S.T.I.s Has Been Shuttered**\
+`The United States can no longer keep tabs on drug-resistant gonorrhea, among other infections, scientists said.`\
+https://nytimes.com/2025/04/04/health/cdc-sti-lab-gonorrhea.html
+
+**Los Angeles County Plans to Pay $4 Billion to Settle Sex Abuse Claims**\
+`The settlement, which still needs formal approval, covers more than 6,800 claims of abuse, some of which date back to 1959.`\
+https://nytimes.com/2025/04/04/us/los-angeles-county-plans-to-pay-4-billion-to-settle-sex-abuse-claims.html
+
 **Trump Rejects Biden Plan to Expand Medicare Coverage for Obesity Drugs**\
 `Administration officials reversed a decision made during the Biden presidency that would have given millions of people access to weight-loss drugs paid for Medicare and Medicaid.`\
 https://nytimes.com/2025/04/04/health/trump-wegovy-obesity-drugs-medicare.html
@@ -11,7 +19,7 @@ https://nytimes.com/2025/04/04/us/tufts-student-deportation-case-vermont-rumeysa
 https://nytimes.com/athletic/6184859/2025/04/04/trey-lance-free-agency-2025-chargers/
 
 **How Guantánamo Bay Figures in the Trump Immigration Crackdown**\
-`In two months, only around 400 migrants have been held there, mostly Venezuelan and Nicaraguan citizens awaiting deportation.`\
+`In two months, only around 400 migrants have been held there, mostly Venezuelan and Nicaraguan citizens designated for deportation.`\
 https://nytimes.com/2025/04/04/us/politics/migrant-mission-guantanamo-bay.html
 
 **Loomer’s Role in Firings Shows Rising Sway of Fringe Figures on Trump**\
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/04/04/world/earthquake-papua-new-guinea.htm
 **Stocks Keep Falling**\
 `Also, Trump granted TikTok another reprieve. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/04/04/briefing/tariffs-stock-market-tiktok-ban-ovechkin-record.html
-
-**Reds manager Terry Francona to miss game due to illness**\
-`Francona is one of several members of the Reds' traveling party who won't be available for Friday's game.`\
-https://nytimes.com/athletic/6256177/2025/04/04/reds-terry-francona-illness/
-
-**Dodgers' Mookie Betts will attend White House celebration: 'It's not a political stance'**\
-`Betts did not attend the celebration in 2019 when the Red Sox visited the White House to celebrate their 2018 World Series victory.`\
-https://nytimes.com/athletic/6256111/2025/04/04/dodgers-mookie-betts-white-house/
 
