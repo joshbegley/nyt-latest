@@ -1,3 +1,7 @@
+**Theodore McCarrick, Cardinal Accused of Sexual Abuse, Dies at 94**\
+`He ascended to the highest levels of the Roman Catholic Church before allegations of misconduct in 2018, and an investigation led Pope Francis to strip him of his title and priesthood.`\
+https://nytimes.com/2025/04/04/us/theodore-mccarrick-dead.html
+
 **Hayes: USWNT in 'dreamland' as U.S. set to co-host 2031 Women's World Cup**\
 `FIFA confirmed that a joint bid from U.S. Soccer and other Concacaf member associations was the sole expression of interest for 2031.`\
 https://nytimes.com/athletic/6255933/2025/04/04/emma-hayes-uswnt-womens-world-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/newsgraphics/card-story/minnesota-hockey-hair-john-king
 **Swiss Indignant to Make the Top 10 of Trump’s Tariffs List**\
 `Swiss companies bemoan the loss of a reliable partner, and called the 32 percent tariff “incomprehensible.”`\
 https://nytimes.com/2025/04/04/business/trump-tariffs-switzerland.html
-
-**6 Sources of Protein That Aren’t Meat**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/non-meat-protein-sources
 
