@@ -1,3 +1,11 @@
+**At Least 14 Dead in Russian Strike on Zelensky’s Hometown, Ukraine Says**\
+`The missile strike was the latest in a series of Russian attacks on urban centers that have caused significant civilian casualties despite ongoing cease-fire talks.`\
+https://nytimes.com/2025/04/04/world/europe/ukraine-russia-strike-zelensky-hometown.html
+
+**Torpedo bats spark record sales, trademark attempts as they head to stores**\
+`Torpedo bats have quickly become a big business that is still ramping up `\
+https://nytimes.com/athletic/6255712/2025/04/04/torpedo-bat-sales-trademark/
+
 **SpaceX Dragon Capsule Lands in Pacific Ocean**\
 `After more than five years of landing its returning vessels off the Florida coast, SpaceX’s Dragon capsule splashed down off the California coast for the first time.`\
 https://nytimes.com/video/science/space/100000010092094/spacex-lands-off-california-coast.html
