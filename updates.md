@@ -1,3 +1,7 @@
+**Is This the Trump Boom We Were Promised?**\
+`The country is currently on the losing side of the Trump bet. The business leaders who went for it were suffering from two nested delusions about him.`\
+https://nytimes.com/live/2025/03/24/opinion/thepoint/tariffs-trump-economy-silicon-valley
+
 **The 4.6.25 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/04/04/the-4625-issue

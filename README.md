@@ -1,3 +1,7 @@
+**Private School Diversity Events Are Canceled Amid Government Crackdown**\
+`The National Association of Independent Schools said it would reassess two of its diversity conferences “given the rapidly evolving political and legal landscape.”`\
+https://nytimes.com/2025/04/04/nyregion/private-school-group-diversity-conferences.html
+
 **Is This the Trump Boom We Were Promised?**\
 `The country is currently on the losing side of the Trump bet. The business leaders who went for it were suffering from two nested delusions about him.`\
 https://nytimes.com/live/2025/03/24/opinion/thepoint/tariffs-trump-economy-silicon-valley
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/04/world/asia/north-sentinel-island-us-man-arrested.
 **Boston’s King of Couches Relinquishes His Crown**\
 `Eliot Tatelman, a fixture on regional television for his quirky ads, is retiring as president of Jordan’s Furniture. It was a nostalgic moment for a place known for fiercely guarding its traditions.`\
 https://nytimes.com/2025/04/04/us/eliot-tatelman-jordans-furniture-retiring.html
-
-**Can Rich Parents Make Special Requests at a Public School?**\
-`The magazine’s Ethicist columnist on who deserves preferential access to a public good.`\
-https://nytimes.com/2025/04/04/magazine/parents-wealth-school-ethics.html
 
