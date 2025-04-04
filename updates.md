@@ -1,3 +1,7 @@
+**Welcome to Birmingham — Mind the Rats**\
+`A standoff between garbage collectors and municipal officials in Britain’s second largest city has left an estimated 17,000 tons of trash on the streets.`\
+https://nytimes.com/2025/04/04/world/europe/birmingham-bin-strike-garbage-rats.html
+
 **‘What Is Our Country Becoming?’ Four Columnists Map Out Where Trump Is Taking America.**\
 `America is in a period of profound national regression. Where will the country end up?`\
 https://nytimes.com/2025/04/04/opinion/trump-ice-detentions.html

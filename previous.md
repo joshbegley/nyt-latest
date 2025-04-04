@@ -1,3 +1,7 @@
+**Welcome to Birmingham — Mind the Rats**\
+`A standoff between garbage collectors and municipal officials in Britain’s second largest city has left an estimated 17,000 tons of trash on the streets.`\
+https://nytimes.com/2025/04/04/world/europe/birmingham-bin-strike-garbage-rats.html
+
 **‘What Is Our Country Becoming?’ Four Columnists Map Out Where Trump Is Taking America.**\
 `America is in a period of profound national regression. Where will the country end up?`\
 https://nytimes.com/2025/04/04/opinion/trump-ice-detentions.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/04/us/politics/trump-tariffs-us-economy-prices.html
 **Inside One Migrant’s Accidental Journey to a Salvadoran Prison**\
 `Immigration officers asked Kilmar Armando Abrego Garcia if he was a gang member, and refused to believe him when he denied it, according to court papers.`\
 https://nytimes.com/2025/04/04/us/politics/el-salvador-deportation-migrant-trump.html
-
-**F.B.I. Leaders Push to Restore Trust in the Agency They Once Undermined**\
-`In recent days, Kash Patel, the F.B.I. director, and Dan Bongino, his deputy, have promised to bring change to what they have called a broken institution.`\
-https://nytimes.com/2025/04/04/us/politics/kash-patel-fbi-trust.html
 
