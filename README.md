@@ -1,40 +1,40 @@
-**5 Things to Do This Weekend**\
-`(No description)`\
-https://nytimes.com/card/2025/04/04/arts/5-thing-to-do-this-weekend-good-night-and-good-luck
+**‘What Is Our Country Becoming?’ Four Columnists Map Out Where Trump Is Taking America.**\
+`America is in a period of profound national regression. Where will the country end up?`\
+https://nytimes.com/2025/04/04/opinion/trump-ice-detentions.html
 
-**Howe hopeful that Isak will be fit for Newcastle trip to Leicester**\
-`The 25-year-old was substituted as a precaution during Newcastle's 2-1 win over Brentford on Wednesday after feeling something in his groin.`\
-https://nytimes.com/athletic/6252201/2025/04/04/alex-isak-injury-update-newcastle-leicester/
+**This Habit Is Quietly Ruining Your Relationships**\
+`Many of us have done it, but that doesn’t make it right, experts say.`\
+https://nytimes.com/2025/04/04/well/silent-treatment-ruin-relationship.html
 
-**‘A Minecraft Movie’ | Anatomy of a Scene**\
-`Jared Hess narrates a mine cart sequence from his film, featuring Jack Black, Jason Momoa and Sebastian Hansen.`\
-https://nytimes.com/video/movies/100000010090226/a-minecraft-movie-anatomy-of-a-scene.html
+**The New York Times News Quiz, April 4, 2025**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2025/04/04/briefing/trump-tariffs-stocks-news-quiz.html
 
-**'Must not come into contact with Jannik': Sinner's ex-trainer discusses spray at center of doping case**\
-`“I very clearly communicated both the nature of the product, and that it must not come into contact with Jannik," Ferrara told Gazzetta.`\
-https://nytimes.com/athletic/6252296/2025/04/04/umberto-ferrara-jannik-sinner-positive-test-clostebol/
+**You’re Going to Pay Dearly for Trump’s Tariffs**\
+`Justin Wolfers on how the tariffs will radically change our daily lives.`\
+https://nytimes.com/2025/04/04/opinion/trump-tariff-economics-cost.html
 
-**What’s next for ousted President Yoon?**\
-`South Korea’s former president still faces criminal charges of leading an insurrection when he declared martial law. If found guilty, he could be imprisoned for life.`\
-https://nytimes.com/live/2025/04/03/world/south-korea-yoon/skorea-yoon-next
+**Meet Jensen McRae and 3 Other Artists on the Rise**\
+`Our chief pop critic on the musicians breaking through this spring.`\
+https://nytimes.com/2025/04/04/podcasts/meet-jensen-mcrae-and-3-other-artists-on-the-rise.html
 
-**Do You Have a Vibrant and Healthy Social Life?**\
-`This quiz can help you find out.`\
-https://nytimes.com/2025/04/04/learning/do-you-have-a-vibrant-and-healthy-social-life.html
+**The Very Territorial Caterpillar**\
+`As they cling to leaf tips, newborn warty birch caterpillars produce vibrations that can ward off invaders approaching their millimeter-size domain.`\
+https://nytimes.com/2025/04/04/science/caterpillars-territorial-vibrations.html
 
-**Hold On!**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2025/04/04/learning/hold-on.html
+**Is Hawaiian Pizza a 'Classic'?**\
+`Judge John Hodgman rules on Canada's most infamous culinary export.`\
+https://nytimes.com/interactive/2025/04/04/magazine/hawaiian-pizza.html
 
-**Yoon Ejected as South Korean Court Upholds Impeachment**\
-`South Korea’s Constitutional Court ruled unanimously to remove former President Yoon Suk Yeol. Protesters reacted to the decision, some cheered while others showed their disappointment.`\
-https://nytimes.com/video/world/asia/100000010091597/yoon-south-korea-impeachment-ruling.html
+**To Trump, U.S. Economy Is a ‘Sick Patient’ and Tariffs Are the Cure**\
+`The president’s aides insist the fallout will be short and ultimately result in a better economy, as economists warn of higher inflation and slower growth.`\
+https://nytimes.com/2025/04/04/us/politics/trump-tariffs-us-economy-prices.html
 
-**Mike Matheson's embrace of defense could make Canadiens' playoff dreams a reality**\
-`Matheson playing a risk-free defensive game goes against everything he's ever known, but it's something the Canadiens need.`\
-https://nytimes.com/athletic/6254661/2025/04/04/montreal-canadiens-mike-matheson-playoffs/
+**Inside One Migrant’s Accidental Journey to a Salvadoran Prison**\
+`Immigration officers asked Kilmar Armando Abrego Garcia if he was a gang member, and refused to believe him when he denied it, according to court papers.`\
+https://nytimes.com/2025/04/04/us/politics/el-salvador-deportation-migrant-trump.html
 
-**Maresca needed Chelsea's win against Spurs - for his relationship with the fans**\
-`Chelsea manager Enzo Maresca had joy with tactical tweaks as they maintained their unbeaten run at home with a win against Tottenham`\
-https://nytimes.com/athletic/6254067/2025/04/04/chelsea-tottenham-enzo-maresca/
+**F.B.I. Leaders Push to Restore Trust in the Agency They Once Undermined**\
+`In recent days, Kash Patel, the F.B.I. director, and Dan Bongino, his deputy, have promised to bring change to what they have called a broken institution.`\
+https://nytimes.com/2025/04/04/us/politics/kash-patel-fbi-trust.html
 

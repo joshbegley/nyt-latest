@@ -1,3 +1,11 @@
+**5 Things to Do This Weekend**\
+`(No description)`\
+https://nytimes.com/card/2025/04/04/arts/5-thing-to-do-this-weekend-good-night-and-good-luck
+
+**Howe hopeful that Isak will be fit for Newcastle trip to Leicester**\
+`The 25-year-old was substituted as a precaution during Newcastle's 2-1 win over Brentford on Wednesday after feeling something in his groin.`\
+https://nytimes.com/athletic/6252201/2025/04/04/alex-isak-injury-update-newcastle-leicester/
+
 **‘A Minecraft Movie’ | Anatomy of a Scene**\
 `Jared Hess narrates a mine cart sequence from his film, featuring Jack Black, Jason Momoa and Sebastian Hansen.`\
 https://nytimes.com/video/movies/100000010090226/a-minecraft-movie-anatomy-of-a-scene.html
@@ -29,13 +37,4 @@ https://nytimes.com/athletic/6254661/2025/04/04/montreal-canadiens-mike-matheson
 **Maresca needed Chelsea's win against Spurs - for his relationship with the fans**\
 `Chelsea manager Enzo Maresca had joy with tactical tweaks as they maintained their unbeaten run at home with a win against Tottenham`\
 https://nytimes.com/athletic/6254067/2025/04/04/chelsea-tottenham-enzo-maresca/
-
-**Manchester derby odds: Can Red Devils avoid a thumping?**\
-`Julia Ranney has a gander at the best bets surrounding this Sunday’s Manchester Derby.`\
-https://nytimes.com/athletic/6252759/2025/04/04/manchester-derby-city-united-premier-league-odds-preview/
-
-**The best three bets to add to this weekend’s Premier League acca**\
-`Sam Tighe outlines the best three bets to add to this weekend’s Premier League accumulator.
-`\
-https://nytimes.com/athletic/6252703/2025/04/04/premier-league-accumulator-betting-everton-ipswich/
 

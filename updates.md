@@ -1,3 +1,11 @@
+**5 Things to Do This Weekend**\
+`(No description)`\
+https://nytimes.com/card/2025/04/04/arts/5-thing-to-do-this-weekend-good-night-and-good-luck
+
+**Howe hopeful that Isak will be fit for Newcastle trip to Leicester**\
+`The 25-year-old was substituted as a precaution during Newcastle's 2-1 win over Brentford on Wednesday after feeling something in his groin.`\
+https://nytimes.com/athletic/6252201/2025/04/04/alex-isak-injury-update-newcastle-leicester/
+
 **The best three bets to add to this weekend’s Premier League acca**\
 `Sam Tighe outlines the best three bets to add to this weekend’s Premier League accumulator.
 `\
