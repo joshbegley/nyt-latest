@@ -1,3 +1,7 @@
+**Baltimore sues FanDuel, DraftKings over tactics, lack of safeguards**\
+`The city of Baltimore's complaint focuses on sportsbooks’ use of user data, which it said could be used to help prevent gambling addiction.`\
+https://nytimes.com/athletic/6256255/2025/04/04/baltimore-sues-fanduel-draftkings-promo-tactics-safeguards/
+
 **Alex Ovechkin 2 goals from breaking Wayne Gretzky's record with No. 893**\
 `The Washington Capitals superstar continues to close in on Gretzky’s long-standing record of 894 NHL goals.`\
 https://nytimes.com/athletic/6255985/2025/04/04/ovechkin-goals-record-gretzky-893/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/6255985/2025/04/04/ovechkin-goals-record-gretzky-89
 `New York’s stance differed from the muted and deferential responses from other major institutions to the administration’s threats.`\
 https://nytimes.com/2025/04/04/us/politics/new-york-trump-dei-order.html
 
-**Read the Navy’s list of removed books**\
+**Read the Naval Academy’s list of removed books**\
 `The Navy released the titles of 381 books that were removed from the U.S. Naval Academy’s Nimitz Library on the Annapolis, Md., campus this week because their subject matter was seen as being related to so-called diversity, equity and inclusion topics.`\
 https://nytimes.com/interactive/2025/04/04/us/250404-list-of-removed-books-from-nimitz-library.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/04/04/us/trump-news-updates/trump-irs-layoffs
 **What Might Europe’s Fines Against X Mean for Musk?**\
 `The potential for major penalties in the European Union could test the boundaries of online speech and inflame tensions between the U.S. and Europe.`\
 https://nytimes.com/2025/04/04/us/politics/musk-x-european-union-fine.html
-
-**Washington Spirit owner Michele Kang invests $25 million in U.S. Soccer**\
-`Kang's investment is for the development and research of women’s soccer via the federation’s Soccer Forward Foundation.`\
-https://nytimes.com/athletic/6256261/2025/04/04/michele-kang-us-soccer-investment-spirit/
 
