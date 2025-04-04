@@ -1,3 +1,7 @@
+**NHL Power Rankings: As playoff picture solidifies, what's left to worry about?**\
+`With less than two weeks left in the regular season, we’re taking a look at what each team’s final fortnight focus should be.`\
+https://nytimes.com/athletic/6254909/2025/04/04/nhl-power-rankings-26/
+
 **In Burisma Letter, Hunter Biden Sought Support from State Department**\
 `While Joe Biden was vice president, his son used the letterhead of a Ukrainian energy company when writing to a U.S. ambassador with ties to the family.`\
 https://nytimes.com/2025/04/04/us/politics/hunter-biden-burisma-letter-italy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6254873/2025/04/04/chelsea-injury-news-fofana-lavia
 **Women's Final Four: Who would make the all-time starting 5, coach for each team?**\
 `A tough question: Which players, past and present, would be included in a starting five of each team representing this year's Final Four?`\
 https://nytimes.com/athletic/6250665/2025/04/04/womens-final-four-2025-all-time-team/
-
-**Eight numbers that tell the story of Dodgers' historic 8-0 start**\
-`Here's a by-the-numbers look at the Dodgers' winning streak: "I think each night we’re unbeatable."`\
-https://nytimes.com/athletic/6254395/2025/04/04/dodgers-undefeated-by-the-numbers/
 
