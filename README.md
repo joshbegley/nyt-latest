@@ -1,3 +1,11 @@
+**Two-way star Travis Hunter to run routes at Colorado pro day**\
+`The two-way player has yet to publicly work out this draft cycle, sitting out of workouts during the NFL combine. `\
+https://nytimes.com/athletic/6255447/2025/04/04/travis-hunter-routes-colorado-pro-day/
+
+**On Fox News, all is calm.**\
+`There is no onscreen stock ticker. One anchor reassured viewers that “President Trump is keeping another campaign promise.”`\
+https://nytimes.com/live/2025/04/04/business/jobs-report-march-tariffs-economy/on-fox-news-all-is-calm
+
 **Sean Combs Faces New Sex-Trafficking Charge Ahead of Trial**\
 `Weeks before the music mogul is scheduled to stand trial, prosecutors added a more serious charge involving a woman they refer to as “Victim-2.”`\
 https://nytimes.com/2025/04/04/arts/music/sean-diddy-combs-new-sex-trafficking-charge.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/100000010092051/storm-south-midwest-tornadoes-flood
 **The Best Movies and TV Shows Coming to Netflix in April**\
 `“Black Mirror” and “You” are back this month, alongside a bunch of promising new titles.`\
 https://nytimes.com/2025/04/04/arts/television/netflix-new-shows-movies-april.html
-
-**The Windup: Early-season stats that actually matter**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6254427/2025/04/04/mlb-stats-hunter-greene-the-windup/
-
-**Tempted to Panic-Buy? Sit Down and Have a $1.50 Hot Dog Instead.**\
-`A census of Costco carts on Thursday revealed little fear. Tariffs could go as fast as they’re coming, and our columnist is not stuffing his pantry.`\
-https://nytimes.com/2025/04/04/your-money/tariffs-panic-buying.html
 
