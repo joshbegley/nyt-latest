@@ -1,3 +1,11 @@
+**Columbia Displays More Aggressive Posture in Dealing With Demonstrators**\
+`Students chained to a gate were removed by security officials. It came as the university planned to deploy 36 officers empowered to remove people from campus.`\
+https://nytimes.com/2025/04/04/nyregion/columbia-security-protesters-removed.html
+
+**The Life and Death of a Block Destroyed By the L.A. Fires**\
+`A block is more than just houses — it’s one of our most basic forms of community. This is the story of what’s lost when a whole block burns.`\
+https://nytimes.com/interactive/2025/04/04/magazine/los-angeles-fires-altadena.html
+
 **Airline stocks get hammered as investors worry about travel demand.**\
 `By Niraj Chokshi`\
 https://nytimes.com/live/2025/04/04/business/jobs-report-march-tariffs-economy/airline-hotel-stocks-travel-demand

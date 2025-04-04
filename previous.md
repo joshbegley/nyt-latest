@@ -1,3 +1,11 @@
+**Columbia Displays More Aggressive Posture in Dealing With Demonstrators**\
+`Students chained to a gate were removed by security officials. It came as the university planned to deploy 36 officers empowered to remove people from campus.`\
+https://nytimes.com/2025/04/04/nyregion/columbia-security-protesters-removed.html
+
+**The Life and Death of a Block Destroyed By the L.A. Fires**\
+`A block is more than just houses — it’s one of our most basic forms of community. This is the story of what’s lost when a whole block burns.`\
+https://nytimes.com/interactive/2025/04/04/magazine/los-angeles-fires-altadena.html
+
 **Airline stocks get hammered as investors worry about travel demand.**\
 `By Niraj Chokshi`\
 https://nytimes.com/live/2025/04/04/business/jobs-report-march-tariffs-economy/airline-hotel-stocks-travel-demand
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6250139/2025/04/04/fantasy-baseball-waiver-wire-pic
 **How to watch this weekend's Cardinals-Red Sox series, starring two baseball blue-bloods**\
 `We've got a cool interleague weekend series on tap, with the Boston Red Sox hosting the St. Louis Cardinals at Fenway Park.`\
 https://nytimes.com/athletic/6253615/2025/04/04/cardinals-red-sox-mlb-how-to-watch/
-
-**Premier League predicted line-ups: Who do our writers think will start in Gameweek 31?**\
-`As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
-https://nytimes.com/athletic/6246403/2025/04/04/premier-league-predicted-lineups-fpl-gw31/
-
-**13 Off Broadway Shows to Tempt You in April**\
-`New short plays by Caryl Churchill, a comedy with one erstwhile Derry Girl and a musical starring Anika Noni Rose — here’s what’s on New York stages this month.`\
-https://nytimes.com/2025/04/04/theater/13-off-broadway-shows-to-tempt-you-in-april.html
 
