@@ -1,3 +1,7 @@
+**Stocks Keep Falling**\
+`Also, Trump granted TikTok another reprieve. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/04/04/briefing/tariffs-stock-market-tiktok-ban-ovechkin-record.html
+
 **Reds manager Terry Francona to miss game due to illness**\
 `Francona is one of several members of the Reds' traveling party who won't be available for Friday's game.`\
 https://nytimes.com/athletic/6256177/2025/04/04/reds-terry-francona-illness/
