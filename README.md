@@ -1,3 +1,7 @@
+**Stocks Keep Falling**\
+`Also, Trump granted TikTok another reprieve. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/04/04/briefing/tariffs-stock-market-tiktok-ban-ovechkin-record.html
+
 **Reds manager Terry Francona to miss game due to illness**\
 `Francona is one of several members of the Reds' traveling party who won't be available for Friday's game.`\
 https://nytimes.com/athletic/6256177/2025/04/04/reds-terry-francona-illness/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/04/us/supreme-court-trump-teacher-grants.html
 **Jean Van Leeuwen, 87, Dies; Wrote ‘Oliver Pig’ Series of Children’s Books**\
 `She wrote for many ages, from picture books to young adult fiction. Her children led her to create a series of books about two pigs named Oliver and Amanda.`\
 https://nytimes.com/2025/04/04/books/jean-van-leeuwen-dead.html
-
-**Head of African American Museum Departs as Trump Targets Smithsonian**\
-`Kevin Young, who has led the National Museum of African American History and Culture since 2021, went on leave before the president criticized the institution in an executive order.`\
-https://nytimes.com/2025/04/04/arts/design/kevin-young-smithsonian-african-american-museum-departs.html
 
