@@ -1,3 +1,11 @@
+**Most Likely to Pay Out**\
+`Karen Steinberg opens our solving weekend with her first solo themeless puzzle.`\
+https://nytimes.com/2025/04/03/crosswords/daily-puzzle-2025-04-04.html
+
+**Amtrak Train Strikes and Kills a Person in Pennsylvania**\
+`Amtrak said one of its trains hit three people on the tracks near Bristol Station. Service between New York’s Penn Station and Philadelphia’s main station was temporarily suspended.`\
+https://nytimes.com/2025/04/03/us/amtrak-train-crash-bucks-county-pa.html
+
 **Scenes From States Devastated by a Powerful Storm System**\
 `The severe weather stretched from Texas to Ohio, causing tornadoes and flooding across the central United States.`\
 https://nytimes.com/2025/04/03/us/scenes-from-states-devastated-by-a-powerful-storm-system.html

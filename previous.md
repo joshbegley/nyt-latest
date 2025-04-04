@@ -1,3 +1,7 @@
+**Most Likely to Pay Out**\
+`Karen Steinberg opens our solving weekend with her first solo themeless puzzle.`\
+https://nytimes.com/2025/04/03/crosswords/daily-puzzle-2025-04-04.html
+
 **Scenes From States Devastated by a Powerful Storm System**\
 `The severe weather stretched from Texas to Ohio, causing tornadoes and flooding across the central United States.`\
 https://nytimes.com/2025/04/03/us/scenes-from-states-devastated-by-a-powerful-storm-system.html
@@ -14,8 +18,8 @@ https://nytimes.com/2025/04/03/pageoneplus/corrections-april-4-2025.html
 `A nonprofit group said the president misapplied a law in imposing those levies and portrayed its filing as the first lawsuit to challenge the Trump administration over its tariffs.`\
 https://nytimes.com/2025/04/03/business/economy/lawsuit-tariffs-china-trump-administration.html
 
-**Amtrak Train Strikes and Kills 1 in Pennsylvania**\
-`Amtrak said it had temporarily suspended rail service from Penn Station in New York City and Philadelphia’s main station.`\
+**Amtrak Train Strikes and Kills a Person in Pennsylvania**\
+`Amtrak said one of its trains hit three people on the tracks near Bristol Station. Service between New York’s Penn Station and Philadelphia’s main station was temporarily suspended.`\
 https://nytimes.com/2025/04/03/us/amtrak-train-crash-bucks-county-pa.html
 
 **Lamar Jackson challenges Dale Earnhardt Jr.'s trademark claim of No. 8**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6254079/2025/04/03/jose-altuve-five-strikeouts-astr
 **Dodgers place Freddie Freeman on IL with ankle sprain days after fall in shower**\
 `The Dodgers wanted to exercise caution with a cross-country flight and cold, wet conditions on the East Coast ahead.`\
 https://nytimes.com/athletic/6254112/2025/04/03/dodgers-freddie-freeman-ankle-injury-shower-update/
-
-**Police Shut Area Near Seoul Court as Protesters Amass Before Ruling**\
-`More than 14,000 police officers have been deployed ahead of Friday’s decision by the Constitutional Court in the impeachment case of President Yoon Suk Yeol.`\
-https://nytimes.com/2025/04/03/world/asia/seoul-protests-yoon-south-korea.html
 
