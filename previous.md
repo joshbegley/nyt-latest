@@ -6,7 +6,7 @@ https://nytimes.com/2025/04/04/arts/design/library-agency-lawsuit-trump.html
 `For years, the singer and songwriter has avoided the spotlight. But she is breaking her silence to look back on her self-titled debut and its powerful hit “Fast Car.”`\
 https://nytimes.com/2025/04/04/arts/music/tracy-chapman-interview.html
 
-**Republican Plan to Kill California’s E.V. Policies Stopped in Senate**\
+**Republican Plan to Kill California’s E.V. Policies Hits Senate Snag**\
 `The Trump administration asked Republicans in Congress to stop California’s ban on new gas-powered cars. The Senate parliamentarian said it wasn’t allowed.`\
 https://nytimes.com/2025/04/04/climate/california-ev-waiver-senate.html
 

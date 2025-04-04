@@ -1,3 +1,7 @@
+**Republican Plan to Kill California’s E.V. Policies Hits Senate Snag**\
+`The Trump administration asked Republicans in Congress to stop California’s ban on new gas-powered cars. The Senate parliamentarian said it wasn’t allowed.`\
+https://nytimes.com/2025/04/04/climate/california-ev-waiver-senate.html
+
 **States Challenge Trump’s Effort to Dismantle Library Agency**\
 `In a lawsuit, 20 state attorneys general argued that the steep cuts to the Institute of Museum and Library Services violate the Constitution and other federal laws related to spending.`\
 https://nytimes.com/2025/04/04/arts/design/library-agency-lawsuit-trump.html
