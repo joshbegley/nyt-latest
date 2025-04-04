@@ -1,3 +1,7 @@
+**Listen: Why Moyes can lead Everton into their new era**\
+`The Athletic FC Podcast discuss David Moyes’ impact on Everton and why he’s the right man to lead the club’s new era`\
+https://nytimes.com/athletic/6253128/2025/04/04/athletic-fc-podcast-moyes-everton-new-era/
+
 **Opposing coaches break down the men's Final Four's key matchups**\
 `Coaches who saw the 2025 Final Four teams this season get into the nitty-gritty details of what makes them good and how to beat them.`\
 https://nytimes.com/athletic/6254011/2025/04/04/final-four-scouting-reports-duke-houston-florida-auburn/

@@ -1,3 +1,7 @@
+**Listen: Why Moyes can lead Everton into their new era**\
+`The Athletic FC Podcast discuss David Moyes’ impact on Everton and why he’s the right man to lead the club’s new era`\
+https://nytimes.com/athletic/6253128/2025/04/04/athletic-fc-podcast-moyes-everton-new-era/
+
 **Opposing coaches break down the men's Final Four's key matchups**\
 `Coaches who saw the 2025 Final Four teams this season get into the nitty-gritty details of what makes them good and how to beat them.`\
 https://nytimes.com/athletic/6254011/2025/04/04/final-four-scouting-reports-duke-houston-florida-auburn/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6253844/2025/04/04/stephon-castle-spurs-nba-rookie-
 **Timberwolves' dramatic ownership saga finally appears settled. So what now?**\
 `Marc Lore and Alex Rodriguez can now go through the final approval process with the NBA. Here's what's next for all involved.`\
 https://nytimes.com/athletic/6129711/2025/04/04/timberwolves-lynx-ownership-alex-rodriguez-glen-taylor/
-
-**Prospect breakdown: What newly-signed defenseman Taige Harding brings to Blackhawks**\
-`The 6-foot-7 lefty spent his senior year with Providence focusing on using his size and physicality.`\
-https://nytimes.com/athletic/6253480/2025/04/04/blackhawks-taige-harding-prospect-breakdown/
 
