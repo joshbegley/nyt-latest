@@ -1,3 +1,15 @@
+**How Guantánamo Bay Figures in the Trump Immigration Crackdown**\
+`In two months, only around 400 migrants have been held there, mostly Venezuelan and Nicaraguan citizens awaiting deportation.`\
+https://nytimes.com/2025/04/04/us/politics/migrant-mission-guantanamo-bay.html
+
+**Loomer’s Role in Firings Shows Rising Sway of Fringe Figures on Trump**\
+`President Trump has always solicited information from dubious sources. But now, in his second term, he has fewer people around him who try to keep those voices away.`\
+https://nytimes.com/2025/04/04/us/politics/trump-nsc-firings-laura-loomer.html
+
+**Ted Cruz and Other Senate Republicans Question Trump’s Tariffs**\
+`One of the president’s allies warns that the trade barriers could hurt American business and consumers. But he has yet to take any real steps to reverse them.`\
+https://nytimes.com/2025/04/04/business/economy/ted-cruz-trump-tariffs-republicans.html
+
 **Map: Earthquake Near Papua New Guinea Prompts Tsunami Alert**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/04/04/world/earthquake-papua-new-guinea.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/04/us/politics/senate-republicans-budget-votes.html
 **More Than 500 Law Firms Back Perkins Coie in Fight With Trump**\
 `The firms signed a legal brief supporting Perkins Coie, calling the president’s actions a threat “to the rule of law.” The largest firms declined to sign.`\
 https://nytimes.com/2025/04/04/business/law-firms-perkins-coie-trump.html
-
-**Farmers Brace for Significant Losses in a New Trade War**\
-`China is the third-biggest buyer of U.S. agricultural products. Now that it has punched back with tariffs on American goods, farmers can expect to feel the pain.`\
-https://nytimes.com/2025/04/04/business/china-tariffs-american-farmers.html
-
-**Martha Stewart and Jason Wu Under a Weeping Willow**\
-`The influential floral designer Emily Thompson, known for her wild and rough-hewn style, transformed a flower shop in Chelsea for a party celebrating her new book.`\
-https://nytimes.com/2025/04/04/style/emily-thompson-flower-shop-party-nyc.html
-
-**Supreme Court Lets Trump Suspend Grants to Teachers**\
-`In boilerplate letters, the administration told recipients that the grants supported diversity efforts and were wasteful.`\
-https://nytimes.com/2025/04/04/us/supreme-court-trump-teacher-grants.html
 

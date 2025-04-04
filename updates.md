@@ -1,3 +1,15 @@
+**How Guantánamo Bay Figures in the Trump Immigration Crackdown**\
+`In two months, only around 400 migrants have been held there, mostly Venezuelan and Nicaraguan citizens awaiting deportation.`\
+https://nytimes.com/2025/04/04/us/politics/migrant-mission-guantanamo-bay.html
+
+**Loomer’s Role in Firings Shows Rising Sway of Fringe Figures on Trump**\
+`President Trump has always solicited information from dubious sources. But now, in his second term, he has fewer people around him who try to keep those voices away.`\
+https://nytimes.com/2025/04/04/us/politics/trump-nsc-firings-laura-loomer.html
+
+**Ted Cruz and Other Senate Republicans Question Trump’s Tariffs**\
+`One of the president’s allies warns that the trade barriers could hurt American business and consumers. But he has yet to take any real steps to reverse them.`\
+https://nytimes.com/2025/04/04/business/economy/ted-cruz-trump-tariffs-republicans.html
+
 **Map: Earthquake Near Papua New Guinea Prompts Tsunami Alert**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/04/04/world/earthquake-papua-new-guinea.html
