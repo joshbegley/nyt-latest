@@ -1,3 +1,27 @@
+**Mike Matheson's embrace of defense could make Canadiens' playoff dreams a reality**\
+`Matheson playing a risk-free defensive game goes against everything he's ever known, but it's something the Canadiens need.`\
+https://nytimes.com/athletic/6254661/2025/04/04/montreal-canadiens-mike-matheson-playoffs/
+
+**Maresca needed Chelsea's win against Spurs - for his relationship with the fans**\
+`Chelsea manager Enzo Maresca had joy with tactical tweaks as they maintained their unbeaten run at home with a win against Tottenham`\
+https://nytimes.com/athletic/6254067/2025/04/04/chelsea-tottenham-enzo-maresca/
+
+**What Does Eric Adams’s Exit From the Democratic Primary Mean for Voters?**\
+`Democratic primary voters won’t see the mayor’s name on the ballot in June. He plans to run in the general election in November, when ranked-choice voting is not in use.`\
+https://nytimes.com/2025/04/04/us/eric-adams-independent-campaign-mayor.html
+
+**The Ex-Convict Who Turned Down Columbia’s Ph.D. Offer**\
+`After 30 years in prison, Ibrahim Rivera was headed to the Ivy League. Then he realized that because of Trump administration threats, the university could not guarantee his funding would survive.`\
+https://nytimes.com/2025/04/04/nyregion/columbia-funding-phd.html
+
+**Key Evidence Thrown Out in Jolt to ‘Orgasmic Meditation’ Conspiracy Case**\
+`Defense lawyers had argued that diaries by a former adherent of the OneTaste group were tainted by the way they were prepared and edited for a Netflix documentary.`\
+https://nytimes.com/2025/04/04/nyregion/one-taste-orgasmic-meditation-evidence.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/04/04/crosswords/spelling-bee-forum.html
+
 **Divided Over a President’s Fate, South Koreans Awaited a Historic Verdict.**\
 `Text by Chang W. Lee and Jun Michael Park`\
 https://nytimes.com/card/2025/04/04/world/asia/south-korea-yoon-impeachment-photos
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6254045/2025/04/04/blues-11-straight-dylan-holloway
 **Chelsea's sale of women's team to themselves still being assessed by PL**\
 `The sale will not count towards UEFA’s Financial Fair Play (FFP) rules, which are more strict than the Premier League's.`\
 https://nytimes.com/athletic/6252232/2025/04/04/chelsea-ffp-womens-team-sale/
-
-**Word of the Day: salinity**\
-`This word has appeared in 26 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/04/04/learning/word-of-the-day-salinity.html
-
-**Stephen Colbert Likens Trump’s Tariffs to an Economic Infection**\
-`“Has anyone thought about injecting our money with bleach?” Colbert said after President Trump’s new tariffs tanked the stock market on Thursday.`\
-https://nytimes.com/2025/04/04/arts/television/stephen-colbert-trump-tariffs.html
-
-**Stocks Fall Further as Concern About Tariffs Deepens**\
-`Markets in Asia reflected investors’ continued worries about the economic disruption of President Trump’s trade policies.`\
-https://nytimes.com/2025/04/04/business/stocks-trump-tariffs.html
-
-**Trump Officials Have Not Funded Radio Free Europe, Despite Court Order**\
-`The delay in disbursement has forced the news organization, which relies almost exclusively on congressional funding, to furlough some of its staff and cut parts of its programming.`\
-https://nytimes.com/2025/04/04/us/politics/radio-free-europe-funding-trump.html
-
-**The New York Times in Print for Friday, April 4, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/04/04/todays-new-york-times
-
-**This Is Not the Right Way to Curb Migration**\
-`The exaggerated government claims and ensuing public concern about Tren de Aragua’s activities in the United States amount to a classic moral panic.`\
-https://nytimes.com/2025/04/04/opinion/tren-de-aragua-venezuela-maduro.html
 
