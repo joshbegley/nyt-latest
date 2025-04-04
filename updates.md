@@ -1,3 +1,7 @@
+**Appeals Court Orders Thousands of Voters to Verify Information in Contested N.C. Election**\
+`The ruling was a win for the Republican who narrowly lost a State Supreme Court race in November. The case has tested the boundaries of post-election litigation.`\
+https://nytimes.com/2025/04/04/us/north-carolina-supreme-court-race-ruling.html
+
 **Bruce Pearl, Rick Pitino earn AP Coach of the Year in award's first-ever tie**\
 `Of the ballots cast by the national media panel that ranks the AP Top 25 throughout the season, Pearl and Pitino each received 20 votes.`\
 https://nytimes.com/athletic/6255639/2025/04/04/rick-pitino-bruce-pearl-ap-coach-of-year/
