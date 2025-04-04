@@ -1,3 +1,7 @@
+**Residents Sift Debris as Storm Sweeps the South and Midwest**\
+`The storm has generated more than 30 tornadoes this week, killing at least seven people in three states.`\
+https://nytimes.com/video/us/100000010092051/storm-south-midwest-tornadoes-floods.html
+
 **The Best Movies and TV Shows Coming to Netflix in April**\
 `“Black Mirror” and “You” are back this month, alongside a bunch of promising new titles.`\
 https://nytimes.com/2025/04/04/arts/television/netflix-new-shows-movies-april.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6255437/2025/04/04/monte-carlo-masters-draw-withdra
 **The Strange Allure of Watching Other People Tear Up Their Homes**\
 `D.I.Y. influencers indulge our most ambitious housing fantasies — and cash in on them.`\
 https://nytimes.com/2025/04/04/magazine/influencers-real-estate-tiktok-instagram.html
-
-**Columbia Displays More Aggressive Posture in Dealing With Demonstrators**\
-`Students chained to a gate were removed by security officials. It came as the university planned to deploy 36 officers empowered to remove people from campus.`\
-https://nytimes.com/2025/04/04/nyregion/columbia-security-protesters-removed.html
 

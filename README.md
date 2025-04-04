@@ -1,3 +1,7 @@
+**Nintendo Delays Preorders for the Switch 2, Citing Tariffs**\
+`The new video game console will still be released in June, the Japanese company said. Its price was unveiled as $450 this week.`\
+https://nytimes.com/2025/04/04/business/economy/nintendo-switch-2-preorder-delay-tariffs.html
+
 **Residents Sift Debris as Storm Sweeps the South and Midwest**\
 `The storm has generated more than 30 tornadoes this week, killing at least seven people in three states.`\
 https://nytimes.com/video/us/100000010092051/storm-south-midwest-tornadoes-floods.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6255505/2025/04/04/mats-hummels-roma-retires/
 **Fritz misses Monte Carlo Masters with injury as draw separates Djokovic and Alcaraz**\
 `Fritz, the world No. 4, has been managing an injury in his right oblique muscle.`\
 https://nytimes.com/athletic/6255437/2025/04/04/monte-carlo-masters-draw-withdrawals-fritz/
-
-**The Strange Allure of Watching Other People Tear Up Their Homes**\
-`D.I.Y. influencers indulge our most ambitious housing fantasies — and cash in on them.`\
-https://nytimes.com/2025/04/04/magazine/influencers-real-estate-tiktok-instagram.html
 

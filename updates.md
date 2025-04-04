@@ -1,3 +1,7 @@
+**Residents Sift Debris as Storm Sweeps the South and Midwest**\
+`The storm has generated more than 30 tornadoes this week, killing at least seven people in three states.`\
+https://nytimes.com/video/us/100000010092051/storm-south-midwest-tornadoes-floods.html
+
 **The Best Movies and TV Shows Coming to Netflix in April**\
 `“Black Mirror” and “You” are back this month, alongside a bunch of promising new titles.`\
 https://nytimes.com/2025/04/04/arts/television/netflix-new-shows-movies-april.html
