@@ -1,3 +1,7 @@
+**Warriors offer blueprint on how to beat L.A. in Luka's worst game as Laker**\
+`Golden State's switch-heavy scheme was a problem for Dončić and company. "That performance from me was unacceptable."`\
+https://nytimes.com/athletic/6254755/2025/04/04/luka-doncic-lakers-warriors-nba/
+
 **A Mass Grave of the Roman Empire Is Found Under a Vienna Soccer Field**\
 `Archaeologists found the remains of at least 129 people, many of them bearing the injuries of battle, dating to when Rome battled Germanic people nearly 2,000 years ago.`\
 https://nytimes.com/2025/04/04/world/europe/roman-empire-grave-vienna.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6254909/2025/04/04/nhl-power-rankings-26/
 **In Burisma Letter, Hunter Biden Sought Support from State Department**\
 `While Joe Biden was vice president, his son used the letterhead of a Ukrainian energy company when writing to a U.S. ambassador with ties to the family.`\
 https://nytimes.com/2025/04/04/us/politics/hunter-biden-burisma-letter-italy.html
-
-**At ‘Good Night’ Opening, the Stars Came Out for Clooney**\
-`As a play with parallels to today’s political climate had its official Broadway premiere, famous friends celebrated its star, George Clooney. He brushed aside talk of a political future.`\
-https://nytimes.com/2025/04/04/style/george-clooney-good-night-good-luck-broadway-party.html
 
