@@ -1,3 +1,15 @@
+**Warriors offer blueprint on how to beat L.A. in Luka's worst game as Laker**\
+`Golden State's switch-heavy scheme was a problem for Dončić and company. "That performance from me was unacceptable."`\
+https://nytimes.com/athletic/6254755/2025/04/04/luka-doncic-lakers-warriors-nba/
+
+**A Mass Grave of the Roman Empire Is Found Under a Vienna Soccer Field**\
+`Archaeologists found the remains of at least 129 people, many of them bearing the injuries of battle, dating to when Rome battled Germanic people nearly 2,000 years ago.`\
+https://nytimes.com/2025/04/04/world/europe/roman-empire-grave-vienna.html
+
+**Arsenal's White and Timber 'have a chance' to play vs Everton - Arteta**\
+`White missed Tuesday's win over Fulham while Timber was substituted with an issue during that game, but the pair could return on Saturday.`\
+https://nytimes.com/athletic/6255088/2025/04/04/arsenal-timber-white-injury-news-everton/
+
 **‘Yellowjackets’ Season 3, Episode 9 Recap: Motive**\
 `Teen Shauna tightens her grip on power. Poor Melissa feels the squeeze.`\
 https://nytimes.com/2025/04/04/arts/television/yellowjackets-recap-season-3-episode-9.html
