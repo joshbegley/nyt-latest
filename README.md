@@ -1,41 +1,40 @@
-**Blanked again: Reds make history with third straight 1-0 loss**\
-`For just the sixth time ever and first time since 1960, a team has lost three straight 1-0 games.`\
-https://nytimes.com/athletic/6254385/2025/04/03/cincinnati-reds-mlb-history-1-0/
+**Ja Morant uses finger-gun gesture again despite NBA warning**\
+`Morant, who has been suspended by the NBA for gun-related incidents in recent seasons, ignored a warning given to him earlier the same day.`\
+https://nytimes.com/athletic/6254370/2025/04/04/ja-morant-finger-gun-gesture-warning/
 
-**Head of National Security Agency and Cyber Command Is Ousted**\
-`No reason was given for the removal of Gen. Timothy D. Haugh, but the far-right activist Laura Loomer had called for his ouster in a meeting with President Trump, an official said.`\
-https://nytimes.com/2025/04/03/us/politics/nsa-cyber-command-chief-fired.html
+**Row Z: Semi-automated offsides, PSR loopholes and champion influencers**\
+`This week's column speculates on clubs selling off the silverware and marvels at Matheus Cunha's commitment to fighting for titles`\
+https://nytimes.com/athletic/6253246/2025/04/04/offside-chelsea-var-psr-mourinho-cunha/
 
-**Friday Briefing: Trump’s Tariffs Rattle the Markets**\
-`Plus, Bruce Springsteen’s “Lost Albums.”`\
-https://nytimes.com/2025/04/03/briefing/stocks-plunge-tariffs-gaza-strike-south-korea-yoon.html
+**U.S. Strikes in Yemen Burning Through Munitions With Limited Success**\
+`In just three weeks, the Pentagon has used $200 million worth of munitions in Operation Rough Rider against the Houthi militia, officials said.`\
+https://nytimes.com/2025/04/04/us/politics/us-strikes-yemen-houthis.html
 
-**Why Red Bull changed its livery to white for Japanese Grand Prix**\
-`When Yuki Tsunoda takes to the track as a Red Bull F1 driver for the first time, he will do so in a very different-looking car to usual
-`\
-https://nytimes.com/athletic/6252220/2025/04/03/red-bull-f1-japanese-gp-white-cars/
+**Michael Johnson’s Grand Slam Track begins tonight: What is it and how does it work?**\
+`This new athletics competition eschews field events as it tries to stoke rivalries that will breathe new life into the sport  `\
+https://nytimes.com/athletic/6252513/2025/04/04/michael-johnson-grand-slam-track-explainer/
 
-**Swayman was the Bruins' best player, which is a critical development**\
-`The Bruins have little to play for at this point in the season, but their star goalie is starting to find his game again.`\
-https://nytimes.com/athletic/6254341/2025/04/03/bruins-jeremy-swayman-canadiens/
+**They Fought to Save Lives in Myanmar. The Earthquake Claimed Theirs.**\
+`Five friends defied the junta to care for people injured in the military coup. One returned from the battlefield to find his four friends among the dead in the March 28 earthquake.`\
+https://nytimes.com/2025/04/04/world/asia/myanmar-earthquake-doctors.html
 
-**Trump Administration Sends Harvard a List of Demands to Protect Federal Funds**\
-`The list was similar to one sent to Columbia University last month after the government canceled $400 million to the school. Harvard may have $9 billion on the line.`\
-https://nytimes.com/2025/04/03/us/politics/trump-harvard-funding-demands.html
+**As Unexplained Quakes Ease, Tourist Island Insists It’s Open for Business**\
+`The Greek island of Santorini was shaken by thousands of mostly smaller-scale temblors. Now, residents have returned, and they hope visitors will, too.`\
+https://nytimes.com/2025/04/04/world/europe/greece-santorini-earthquakes-tourism.html
 
-**Most Likely to Pay Out**\
-`Karen Steinberg opens our solving weekend with her first solo themeless puzzle.`\
-https://nytimes.com/2025/04/03/crosswords/daily-puzzle-2025-04-04.html
+**An Epic Celebration in Guatemala, Ruins and Volcano Included**\
+`Keri Ann Meslar and Trevor Galko dated from 2006 to 2009, but broke up when they became long-distance. The second time was the charm.`\
+https://nytimes.com/2025/04/04/style/keri-ann-meslar-trevor-galko-wedding.html
 
-**Scenes From States Devastated by a Powerful Storm System**\
-`The severe weather stretched from Texas to Ohio, causing tornadoes and flooding across the central United States.`\
-https://nytimes.com/2025/04/03/us/scenes-from-states-devastated-by-a-powerful-storm-system.html
+**Connections: Sports Edition Coach: Hints for April 4, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6253991/2025/04/04/connections-sports-edition-hints-for-april-4-2025/
 
-**How Brendan Rodgers' first Astros team flight helped him handle 'pressure' of being the new guy**\
-`After seeing how the Astros interact with each other on a flight to Minnesota, Rodgers relaxed a bit and went 3-for-4 against the Twins.`\
-https://nytimes.com/athletic/6254170/2025/04/03/astros-brendan-rodgers-first-team-flight/
+**She Tuned Into His ‘Commanding’ Voice at Columbia**\
+`Chambers Moore noticed Tom Moore’s distinctive voice in a radio class in journalism school, and again at their reunion 30 years later.`\
+https://nytimes.com/2025/04/04/style/chambers-moore-tom-moore-wedding.html
 
-**Corrections: April 4, 2025**\
-`Corrections that appeared in print on Friday, April 4, 2025.`\
-https://nytimes.com/2025/04/03/pageoneplus/corrections-april-4-2025.html
+**A First Kiss in an Elevator Was ‘More Than Fireworks’**\
+`After meeting on an app in 2022, Gin Venuto described the end of her first date with Shauna Miller as “a blurry silence where time stood still.”`\
+https://nytimes.com/2025/04/04/style/gin-venuto-shauna-miller-wedding.html
 

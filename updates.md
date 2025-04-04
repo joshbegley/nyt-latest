@@ -1,3 +1,8 @@
+**Why Red Bull changed its livery to white for Japanese Grand Prix**\
+`When Yuki Tsunoda takes to the track as a Red Bull F1 driver for the first time, he will do so in a very different-looking car to usual
+`\
+https://nytimes.com/athletic/6252220/2025/04/03/red-bull-f1-japanese-gp-white-cars/
+
 **Blanked again: Reds make history with third straight 1-0 loss**\
 `For just the sixth time ever and first time since 1960, a team has lost three straight 1-0 games.`\
 https://nytimes.com/athletic/6254385/2025/04/03/cincinnati-reds-mlb-history-1-0/
