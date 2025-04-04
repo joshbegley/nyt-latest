@@ -1,3 +1,7 @@
+**Cooper Flagg's mom vows to get a tattoo 'when we win the whole thing'**\
+`“I’ll get a tattoo anywhere. He can pick the spot — except my face — if they do what they need to do," Kelly Flagg said on Friday.`\
+https://nytimes.com/athletic/6256017/2025/04/04/cooper-flagg-mom-tattoo-kelly-2/
+
 **A Miracle Underground: Sean Duffy Rides the Subway. (He Survived.)**\
 `Mr. Duffy, the U.S. transportation secretary who has characterized the New York City subway as dirty and dangerous, rode a train with Mayor Eric Adams on Friday.`\
 https://nytimes.com/2025/04/04/nyregion/sean-duffy-subway-adams.html
@@ -33,8 +37,4 @@ https://nytimes.com/newsgraphics/card-story/george-clooney-broadway-good-night-g
 **A Cake With Nothing to Hide**\
 `A light, classic coconut cake in all its old-fashioned glory.`\
 https://nytimes.com/2025/04/04/magazine/coconut-cake-recipe.html
-
-**Trump Administration Is Ordered to Return Migrant Deported to El Salvador**\
-`A federal judge said officials had acted without “legal basis” last month when they arrested the migrant, Kilmar Armando Abrego Garcia, and put him on a plane to a notorious Salvadoran prison.`\
-https://nytimes.com/2025/04/04/us/politics/trump-deportations-maryland-man-el-salvador.html
 
