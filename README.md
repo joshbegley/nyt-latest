@@ -1,3 +1,11 @@
+**Tariffs Drive Another Market Meltdown**\
+`A rapidly escalating trade war has socked stocks as investors weigh the fallout from President Trump’s tariff barrage.`\
+https://nytimes.com/2025/04/04/business/dealbook/trump-tariffs-markets-metldown.html
+
+**Israeli Military Orders New Evacuation of Gaza City Neighborhoods**\
+`The order came not long after Palestinian health authorities said dozens of people, including children, were killed in strikes on a school turned shelter. Israel said it was looking into the reports.`\
+https://nytimes.com/2025/04/04/world/middleeast/israel-gaza-hamas.html
+
 **FPL live Q&A: FPL Gameweek 31 advice from Ben Dinnery**\
 `Join Ben Dinnery for a live Gameweek 31 FPL Q&A from 4pm-5pm UK time`\
 https://nytimes.com/athletic/6246302/2025/04/04/fantasy-premier-league-advice-gw31-tips/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6232335/2025/04/04/kevin-de-bruyne-manchester-city-
 **Postecoglou says he 'made a mistake' celebrating disallowed goal against Chelsea**\
 `Postecoglou cupped his ear with his right hand towards the Spurs supporters while his players celebrated the goal.`\
 https://nytimes.com/athletic/6254805/2025/04/04/ange-postecoglou-tottenham-chelsea-celebration/
-
-**Sliders: A Triple-A pitcher's unusual place in MLB history, plus the most creative Immaculate Grid yet**\
-`A century before the torpedo, there was the bottle bat. We've got that and more of this week's timely and timeless elements of baseball.`\
-https://nytimes.com/athletic/6252698/2025/04/04/mariners-pitcher-immaculate-grid-jeff-conine/
-
-**How to watch No. 1 UCLA vs. No. 2 UConn in the women's Final Four: Betts against Bueckers**\
-`Connecticut is going for its 12th national championship. UCLA has earned its first Final Four berth ... ever.`\
-https://nytimes.com/athletic/6250756/2025/04/04/ucla-uconn-womens-ncaa-tournament-final-four-how-to-watch/
 
