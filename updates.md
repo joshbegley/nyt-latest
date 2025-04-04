@@ -1,3 +1,7 @@
+**How Brendan Rodgers' first Astros team flight helped him handle 'pressure' of being the new guy**\
+`After seeing how the Astros interact with each other on a flight to Minnesota, Rodgers relaxed a bit and went 3-for-4 against the Twins.`\
+https://nytimes.com/athletic/6254170/2025/04/03/astros-brendan-rodgers-first-team-flight/
+
 **Corrections: April 4, 2025**\
 `Corrections that appeared in print on Friday, April 4, 2025.`\
 https://nytimes.com/2025/04/03/pageoneplus/corrections-april-4-2025.html
