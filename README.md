@@ -1,3 +1,7 @@
+**Blues tie franchise record with 11th straight win but lose Dylan Holloway**\
+`After letting the Penguins rally late, Robert Thomas, Jimmy Snuggerud and the Blues earned an overtime victory.`\
+https://nytimes.com/athletic/6254045/2025/04/04/blues-11-straight-dylan-holloway-injury/
+
 **Chelsea's sale of women's team to themselves still being assessed by PL**\
 `The sale will not count towards UEFA’s Financial Fair Play (FFP) rules, which are more strict than the Premier League's.`\
 https://nytimes.com/athletic/6252232/2025/04/04/chelsea-ffp-womens-team-sale/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/04/world/asia/yoon-impeachment-reaction-seoul.html
 **FPL: A Gameweek 31 wildcard guide and the must-have players to target**\
 `Wildcarding in Gameweek 31 is bound to be a popular move - Abdul Rehman runs through the players you need to put in your team this week`\
 https://nytimes.com/athletic/6249797/2025/04/04/fantasy-premier-league-gameweek-31-wildcard/
-
-**Crystal Palace against Brighton & Hove Albion: A (polite) conversation between rivals**\
-`These bitter rivals meet for the 20th time in the top flight this weekend. Our club writers debate the teams' respective seasons to date`\
-https://nytimes.com/athletic/6244291/2025/04/04/crystal-palace-brighton-hurzeler-glasner/
 
