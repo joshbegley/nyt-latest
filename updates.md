@@ -1,3 +1,11 @@
+**Trump Sounds Defiant Note as Tariffs Roil Markets Again**\
+`After China announced new retaliatory measures against the United States, President Trump responded that Beijing “PLAYED IT WRONG.”`\
+https://nytimes.com/live/2025/04/04/business/jobs-report-march-tariffs-economy/trump-sounds-defiant-note-as-tariffs-roil-markets-again
+
+**The Bounce: Ready for Final Four action? Here's everything to know. Plus, Ja Morant did it again!**\
+`If you're ready for this weekend's Final Four action, The Bounce previews everything worth knowing.`\
+https://nytimes.com/athletic/6255129/2025/04/04/final-four-cooper-flagg-paige-bueckers-duke-uconn-ja-morant-grizzlies-nba-the-bounce/
+
 **Listen: Can Arsenal take down Real Madrid without Gabriel?**\
 `Handbrake Off discuss whether Arsenal can advance past Real Madrid amid their defensive injury crisis`\
 https://nytimes.com/athletic/6254869/2025/04/04/can-arsenal-take-down-real-madrid-without-gabriel/
