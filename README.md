@@ -1,3 +1,11 @@
+**The case for sports' greatest No. 8**\
+`We put it to seven Athletic writers across sports to make their case: Who's the greatest No. 8 of all time?`\
+https://nytimes.com/athletic/6255957/2025/04/04/kobe-bryant-yogi-berra-lamar-jackson-dale-earnhardt-alex-ovechkin-number-eight/
+
+**Senate Wades Into All-Night Vote-a-Thon as Republicans Push Through Budget Plan**\
+`With Republicans driving toward a vote on their tax and spending cut blueprint, Democrats plan to force them to cast politically painful votes on every element of President Trump’s agenda.`\
+https://nytimes.com/2025/04/04/us/politics/senate-republicans-budget-votes.html
+
 **More Than 500 Law Firms Back Perkins Coie in Fight With Trump**\
 `The firms signed a legal brief supporting Perkins Coie, calling the president’s actions a threat “to the rule of law.” The largest firms declined to sign.`\
 https://nytimes.com/2025/04/04/business/law-firms-perkins-coie-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/04/arts/design/library-agency-lawsuit-trump.html
 **Tracy Chapman Wants to Speak for Herself**\
 `For years, the singer and songwriter has avoided the spotlight. But she is breaking her silence to look back on her self-titled debut and its powerful hit “Fast Car.”`\
 https://nytimes.com/2025/04/04/arts/music/tracy-chapman-interview.html
-
-**Republican Plan to Kill California’s E.V. Policies Hits Senate Snag**\
-`The Trump administration asked Republicans in Congress to stop California’s ban on new gas-powered cars. The Senate parliamentarian said it wasn’t allowed.`\
-https://nytimes.com/2025/04/04/climate/california-ev-waiver-senate.html
-
-**Musiala forced off with hamstring injury: 'It doesn't look so brilliant'**\
-`The 22-year-old is expected to miss Tuesday's Champions League quarter-final first leg against Inter.`\
-https://nytimes.com/athletic/6256035/2025/04/04/jamal-musiala-injury-update/
 
