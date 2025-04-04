@@ -1,3 +1,15 @@
+**Kevin De Bruyne transcends the 'Barclays' generation – he is a genuine modern great**\
+`De Bruyne is one of very, very few modern Premier League players that will have us reminiscing about 2018, not 2008`\
+https://nytimes.com/athletic/6255203/2025/04/04/kevin-de-bruyne-genuine-modern-great/
+
+**Bowden's mailbag: What should Red Sox do? Will Jays extend Vlad Jr.? 116 wins for Dodgers?**\
+`Answering 20 questions from subscribers, including some early thoughts on the trade deadline and who will be the top pick in the MLB Draft.`\
+https://nytimes.com/athletic/6253288/2025/04/04/red-sox-devers-abreu-blue-jays-vlad-nl-central/
+
+**Brett Gardner's son died of carbon monoxide poisoning, authorities confirm**\
+`Miller Gardner, 14, died on March 21 while the family was staying at a resort.`\
+https://nytimes.com/athletic/6255237/2025/04/04/brett-gardner-son-carbon-monoxide-poisoning-costa-rica-yankees/
+
 **Fantasy baseball waiver wire pickups featuring Spencer Torkelson, Landen Roupp and more**\
 `John Laghezza digs into the metrics that matter through the first week of the MLB season to highlight the best fantasy baseball free agents.`\
 https://nytimes.com/athletic/6250139/2025/04/04/fantasy-baseball-waiver-wire-pickups-spencer-torkelson/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/04/movies/international-movies-streaming.html
 **Elena Delle Donne, 2-time WNBA MVP, retires from basketball**\
 `Delle Donne, 35, was the No. 2 pick in the 2013 draft and went on to have one of the most accomplished careers of her generation.`\
 https://nytimes.com/athletic/6255412/2025/04/04/elena-delle-donne-retires-wnba/
-
-**Broiled Fish Tacos, Buttermilk Pancakes, Chicken Adobo**\
-`Excellent recipes that feel like magic.`\
-https://nytimes.com/2025/04/04/dining/broiled-fish-tacos-buttermilk-pancakes-chicken-adobo.html
-
-**Sam Keen, Philosopher of the Men’s Movement, Is Dead at 93**\
-`“Only men,” he wrote, “understand the secret fears that go with the territory of masculinity.” His message resonated: His book “Fire in the Belly” was a best seller.`\
-https://nytimes.com/2025/04/04/books/sam-keen-dead.html
-
-**Men's tennis chief executive Massimo Calvelli will step down in summer**\
-`Calvelli's departure from the governing body of men's tennis continues the recent shuffling of the decks at the top of the sport.`\
-https://nytimes.com/athletic/6255306/2025/04/04/tennis-atp-bosses-calvelli-steps-down/
 

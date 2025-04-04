@@ -1,3 +1,23 @@
+**Fantasy baseball waiver wire pickups featuring Spencer Torkelson, Landen Roupp and more**\
+`John Laghezza digs into the metrics that matter through the first week of the MLB season to highlight the best fantasy baseball free agents.`\
+https://nytimes.com/athletic/6250139/2025/04/04/fantasy-baseball-waiver-wire-pickups-spencer-torkelson/
+
+**How to watch this weekend's Cardinals-Red Sox series, starring two baseball blue-bloods**\
+`We've got a cool interleague weekend series on tap, with the Boston Red Sox hosting the St. Louis Cardinals at Fenway Park.`\
+https://nytimes.com/athletic/6253615/2025/04/04/cardinals-red-sox-mlb-how-to-watch/
+
+**Premier League predicted line-ups: Who do our writers think will start in Gameweek 31?**\
+`As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
+https://nytimes.com/athletic/6246403/2025/04/04/premier-league-predicted-lineups-fpl-gw31/
+
+**13 Off Broadway Shows to Tempt You in April**\
+`New short plays by Caryl Churchill, a comedy with one erstwhile Derry Girl and a musical starring Anika Noni Rose — here’s what’s on New York stages this month.`\
+https://nytimes.com/2025/04/04/theater/13-off-broadway-shows-to-tempt-you-in-april.html
+
+**Renewed Israeli Strikes Deepen Gaza’s Displacement Crisis**\
+`The United Nations estimates that 280,000 Gazans have been displaced since the collapse of the temporary truce between Hamas and Israel on March 18. The New York Times examined one strike that destroyed an evacuated displacement camp, killing the 4-year-old Razan Hamdiye.`\
+https://nytimes.com/video/world/middleeast/100000010084870/gaza-displacement-israeli-strikes-.html
+
 **Five International Movies to Stream Now**\
 `This month’s picks include a Taiwanese horror-comedy, a South Indian tale of possession and patriarchy, a rain-soaked Chinese noir and more.`\
 https://nytimes.com/2025/04/04/movies/international-movies-streaming.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/04/04/books/sam-keen-dead.html
 **Men's tennis chief executive Massimo Calvelli will step down in summer**\
 `Calvelli's departure from the governing body of men's tennis continues the recent shuffling of the decks at the top of the sport.`\
 https://nytimes.com/athletic/6255306/2025/04/04/tennis-atp-bosses-calvelli-steps-down/
-
-**Trump Weighs In, Making Marine Le Pen’s Case Part of the Politics of Grievance**\
-`The American president cast the French politician’s conviction as an example of far-right persecution, ignoring ample evidence against her.`\
-https://nytimes.com/2025/04/04/world/europe/trump-marine-le-pen-conviction.html
-
-**Rudiger, Mbappe, Ceballos and Vinicius Jr avoid Arsenal ban**\
-`Mbappe and Rudiger have been fined and given one-game suspended bans, Ceballos has been fined and Vinicius Jr has not been sanctioned.`\
-https://nytimes.com/athletic/6255361/2025/04/04/champions-league-suspensions-madrid-arsenal/
-
-**Trump Sounds Defiant Note as Tariffs Roil Markets Again**\
-`After China announced new retaliatory measures against the United States, President Trump responded that Beijing “PLAYED IT WRONG.”`\
-https://nytimes.com/live/2025/04/04/business/jobs-report-march-tariffs-economy/trump-sounds-defiant-note-as-tariffs-roil-markets-again
-
-**The Bounce: Ready for Final Four action? Here's everything to know. Plus, Ja Morant did it again!**\
-`If you're ready for this weekend's Final Four action, The Bounce previews everything worth knowing.`\
-https://nytimes.com/athletic/6255129/2025/04/04/final-four-cooper-flagg-paige-bueckers-duke-uconn-ja-morant-grizzlies-nba-the-bounce/
-
-**Listen: Can Arsenal take down Real Madrid without Gabriel?**\
-`Handbrake Off discuss whether Arsenal can advance past Real Madrid amid their defensive injury crisis`\
-https://nytimes.com/athletic/6254869/2025/04/04/can-arsenal-take-down-real-madrid-without-gabriel/
 
