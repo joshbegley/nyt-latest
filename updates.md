@@ -1,3 +1,15 @@
+**States Challenge Trump’s Effort to Dismantle Library Agency**\
+`In a lawsuit, 20 state attorneys general argued that the steep cuts to the Institute of Museum and Library Services violate the Constitution and other federal laws related to spending.`\
+https://nytimes.com/2025/04/04/arts/design/library-agency-lawsuit-trump.html
+
+**Tracy Chapman Wants to Speak for Herself**\
+`For years, the singer and songwriter has avoided the spotlight. But she is breaking her silence to look back on her self-titled debut and its powerful hit “Fast Car.”`\
+https://nytimes.com/2025/04/04/arts/music/tracy-chapman-interview.html
+
+**Musiala forced off with hamstring injury: 'It doesn't look so brilliant'**\
+`The 22-year-old is expected to miss Tuesday's Champions League quarter-final first leg against Inter.`\
+https://nytimes.com/athletic/6256035/2025/04/04/jamal-musiala-injury-update/
+
 **Republican Plan to Kill California’s E.V. Policies Stopped in Senate**\
 `The Trump administration asked Republicans in Congress to stop California’s ban on new gas-powered cars. The Senate parliamentarian said it wasn’t allowed.`\
 https://nytimes.com/2025/04/04/climate/california-ev-waiver-senate.html
