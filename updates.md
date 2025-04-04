@@ -1,3 +1,15 @@
+**Kevin De Bruyne transcends the 'Barclays' generation – he is a genuine modern great**\
+`De Bruyne is one of very, very few modern Premier League players that will have us reminiscing about 2018, not 2008`\
+https://nytimes.com/athletic/6255203/2025/04/04/kevin-de-bruyne-genuine-modern-great/
+
+**Bowden's mailbag: What should Red Sox do? Will Jays extend Vlad Jr.? 116 wins for Dodgers?**\
+`Answering 20 questions from subscribers, including some early thoughts on the trade deadline and who will be the top pick in the MLB Draft.`\
+https://nytimes.com/athletic/6253288/2025/04/04/red-sox-devers-abreu-blue-jays-vlad-nl-central/
+
+**Brett Gardner's son died of carbon monoxide poisoning, authorities confirm**\
+`Miller Gardner, 14, died on March 21 while the family was staying at a resort.`\
+https://nytimes.com/athletic/6255237/2025/04/04/brett-gardner-son-carbon-monoxide-poisoning-costa-rica-yankees/
+
 **Fantasy baseball waiver wire pickups featuring Spencer Torkelson, Landen Roupp and more**\
 `John Laghezza digs into the metrics that matter through the first week of the MLB season to highlight the best fantasy baseball free agents.`\
 https://nytimes.com/athletic/6250139/2025/04/04/fantasy-baseball-waiver-wire-pickups-spencer-torkelson/
