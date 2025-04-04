@@ -1,3 +1,7 @@
+**Stocks Fall Further as Concern About Tariffs Deepens**\
+`Markets in Asia reflected investors’ continued worries about the economic disruption of President Trump’s trade policies.`\
+https://nytimes.com/2025/04/04/business/stocks-trump-tariffs.html
+
 **Trump Officials Have Not Funded Radio Free Europe, Despite Court Order**\
 `The delay in disbursement has forced the news organization, which relies almost exclusively on congressional funding, to furlough some of its staff and cut parts of its programming.`\
 https://nytimes.com/2025/04/04/us/politics/radio-free-europe-funding-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6250522/2025/04/04/arsenal-gabriel-hamstring-injury
 **What to Know About the Ruling on South Korea’s President**\
 `The country’s Constitutional Court on Friday upheld the impeachment of Yoon Suk Yeol, removing him from office four months after his short-lived imposition of martial law.`\
 https://nytimes.com/2025/04/04/world/asia/yoon-south-korea-impeachment-ruling.html
-
-**Gyokeres, Isak, Sesko, Nunez: The 15 strikers who could define the summer transfer window**\
-`We have taken a look at the most important strikers to the upcoming summer transfer window`\
-https://nytimes.com/athletic/6252369/2025/04/04/transfer-summer-window-strikers-analysis/
 
