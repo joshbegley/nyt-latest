@@ -1,3 +1,7 @@
+**Map: Earthquake Near Papua New Guinea Prompts Tsunami Alert**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/04/04/world/earthquake-papua-new-guinea.html
+
 **Stocks Keep Falling**\
 `Also, Trump granted TikTok another reprieve. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/04/04/briefing/tariffs-stock-market-tiktok-ban-ovechkin-record.html
