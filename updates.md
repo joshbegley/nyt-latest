@@ -1,3 +1,19 @@
+**Felon Freed by Trump Is Sent Back to Prison After Child Assault Charge**\
+`Jonathan Braun, a drug smuggler, on Friday made an obscene gesture toward people in the courtroom and complained about his legal representation.`\
+https://nytimes.com/2025/04/04/nyregion/jonathan-braun-trump.html
+
+**For Pierce Brosnan, the World Is Just Enough**\
+`There has always been more to this actor than meets the eye. But if James Bond is still all you see, he’s OK with that.`\
+https://nytimes.com/2025/04/04/arts/television/pierce-brosnan-mobland-black-bag.html
+
+**Blues' Dylan Holloway day-to-day: Who comes into the lineup as they go for a record 12th straight?**\
+`Holloway is having a breakout season with St. Louis, ranking second on the club in goals (26) and third in points (63).`\
+https://nytimes.com/athletic/6255618/2025/04/04/blues-dylan-holloway-injury-update/
+
+**On Fox News, All Is Calm**\
+`There is no onscreen stock ticker. One anchor reassured viewers that “President Trump is keeping another campaign promise.”`\
+https://nytimes.com/2025/04/04/business/media/trump-tariffs-stocks-fox-news.html
+
 **Anaheim mayor pens letter to Angels, hopes to fix fractured relationship**\
 `The relationship between the team and the city has been frosty since a $320 million land deal fell through in 2022.`\
 https://nytimes.com/athletic/6254340/2025/04/04/anaheim-mayor-angels-letter-relationship/
