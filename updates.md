@@ -1,3 +1,15 @@
+**China Retaliates Against Trump With 34% Tariff on U.S. Goods**\
+`The Chinese government said it would match President Trump’s tariff, and also barred a group of American companies from doing business in China.`\
+https://nytimes.com/2025/04/04/business/china-trump-tariffs-retaliation.html
+
+**Hurzeler feels 'responsibility' to Brighton fans ahead of Palace game**\
+`Hurzeler could become the first Brighton boss since Charlie Webb in 1932 to lose both league fixtures against Palace in the same season.`\
+https://nytimes.com/athletic/6254818/2025/04/04/hurzeler-brighton-crystal-palace/
+
+**Employers that rely on immigrants push for laws to ensure flow of laborers.**\
+`By Lydia DePillis`\
+https://nytimes.com/live/2025/04/04/business/jobs-report-march-tariffs-economy/employers-that-rely-on-immigrants-push-for-laws-to-ensure-flow-of-laborers
+
 **Twins takeaways from home opener loss: Joe Ryan unravels, cold bats, healthy Byron Buxton**\
 `In what could be the final home opener under the Pohlad family's ownership, the Twins wasted a hot start and fell to 2-5 on the season.`\
 https://nytimes.com/athletic/6254082/2025/04/04/twins-loss-astros-joe-ryan-byron-buxton/
