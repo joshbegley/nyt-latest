@@ -1,3 +1,7 @@
+**The Strange Allure of Watching Other People Tear Up Their Homes**\
+`D.I.Y. influencers indulge our housing fantasies — and cash in on them.`\
+https://nytimes.com/2025/04/04/magazine/influencers-real-estate-tiktok-instagram.html
+
 **Columbia Displays More Aggressive Posture in Dealing With Demonstrators**\
 `Students chained to a gate were removed by security officials. It came as the university planned to deploy 36 officers empowered to remove people from campus.`\
 https://nytimes.com/2025/04/04/nyregion/columbia-security-protesters-removed.html
@@ -14,7 +18,7 @@ https://nytimes.com/live/2025/04/04/business/jobs-report-march-tariffs-economy/a
 `Here is what has happened in Ukraine: nothing. There’s no sign that Putin is preparing to stop fighting, despite Trump’s talk of cease-fires and deals.`\
 https://nytimes.com/2025/04/03/opinion/ukraine-trump-ceasefire-russia-putin.html
 
-**Powell Says Trump’s Tariffs Raise Risks of Higher Inflation, Slower Growth**\
+**Powell Says Trump’s Tariffs Raise Risks of Higher Inflation and Slower Growth**\
 `Jerome H. Powell, chair of the Federal Reserve, says the central bank’s “obligation” is to ensure that a “one-time increase in the price level does not become an ongoing inflation problem.”`\
 https://nytimes.com/2025/04/04/business/economy/powell-trump-tariff-inflation-risk.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6255237/2025/04/04/brett-gardner-son-carbon-monoxid
 **Fantasy baseball waiver wire pickups featuring Spencer Torkelson, Landen Roupp and more**\
 `John Laghezza digs into the metrics that matter through the first week of the MLB season to highlight the best fantasy baseball free agents.`\
 https://nytimes.com/athletic/6250139/2025/04/04/fantasy-baseball-waiver-wire-pickups-spencer-torkelson/
-
-**How to watch this weekend's Cardinals-Red Sox series, starring two baseball blue-bloods**\
-`We've got a cool interleague weekend series on tap, with the Boston Red Sox hosting the St. Louis Cardinals at Fenway Park.`\
-https://nytimes.com/athletic/6253615/2025/04/04/cardinals-red-sox-mlb-how-to-watch/
 

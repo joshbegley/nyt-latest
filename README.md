@@ -1,3 +1,23 @@
+**What I’m hearing about the Bengals: Hendrickson drama, draft priorities, free agency**\
+`The end of the saga between the team and it's top edge rusher seems nowhere in sight.`\
+https://nytimes.com/athletic/6253938/2025/04/04/what-im-hearing-about-the-bengals-hendrickson-blackburn/
+
+**How ‘Free Speech’ Became a New Flashpoint Between Europe and U.S.**\
+`The two have long been divided on whether speech can be restricted, and when. Under the Trump administration, the gap is widening.`\
+https://nytimes.com/2025/04/04/world/europe/european-union-free-speech-x-facebook-elon-musk.html
+
+**NBA fines Ja Morant $75,000 for finger-gun gestures**\
+`Morant's finger-gun gestures came hours after the league issued a warning advising him to refrain from using the celebration.`\
+https://nytimes.com/athletic/6255028/2025/04/04/ja-morant-gun-gesture-nba/
+
+**Mats Hummels to retire at end of 2024-25 season**\
+`The centre-back, who had multiple spells at both Borussia Dortmund and Bayern Munich, won the World Cup with Germany in 2014.`\
+https://nytimes.com/athletic/6255505/2025/04/04/mats-hummels-roma-retires/
+
+**Fritz misses Monte Carlo Masters with injury as draw separates Djokovic and Alcaraz**\
+`Fritz, the world No. 4, has been managing an injury in his right oblique muscle.`\
+https://nytimes.com/athletic/6255437/2025/04/04/monte-carlo-masters-draw-withdrawals-fritz/
+
 **The Strange Allure of Watching Other People Tear Up Their Homes**\
 `D.I.Y. influencers indulge our housing fantasies — and cash in on them.`\
 https://nytimes.com/2025/04/04/magazine/influencers-real-estate-tiktok-instagram.html
@@ -17,24 +37,4 @@ https://nytimes.com/live/2025/04/04/business/jobs-report-march-tariffs-economy/a
 **Wasn’t Trump Supposed to Have Solved the War in Ukraine by Now?**\
 `Here is what has happened in Ukraine: nothing. There’s no sign that Putin is preparing to stop fighting, despite Trump’s talk of cease-fires and deals.`\
 https://nytimes.com/2025/04/03/opinion/ukraine-trump-ceasefire-russia-putin.html
-
-**Powell Says Trump’s Tariffs Raise Risks of Higher Inflation and Slower Growth**\
-`Jerome H. Powell, chair of the Federal Reserve, says the central bank’s “obligation” is to ensure that a “one-time increase in the price level does not become an ongoing inflation problem.”`\
-https://nytimes.com/2025/04/04/business/economy/powell-trump-tariff-inflation-risk.html
-
-**Kevin De Bruyne transcends the 'Barclays' generation – he is a genuine modern great**\
-`De Bruyne is one of very, very few modern Premier League players that will have us reminiscing about 2018, not 2008`\
-https://nytimes.com/athletic/6255203/2025/04/04/kevin-de-bruyne-genuine-modern-great/
-
-**Bowden's mailbag: What should Red Sox do? Will Jays extend Vlad Jr.? 116 wins for Dodgers?**\
-`Answering 20 questions from subscribers, including some of my early thoughts on the deadline and who will be the top pick in the MLB Draft.`\
-https://nytimes.com/athletic/6253288/2025/04/04/red-sox-devers-abreu-blue-jays-vlad-nl-central/
-
-**Brett Gardner's son died of carbon monoxide poisoning, authorities confirm**\
-`Miller Gardner, 14, died on March 21 while the family was staying at a resort.`\
-https://nytimes.com/athletic/6255237/2025/04/04/brett-gardner-son-carbon-monoxide-poisoning-costa-rica-yankees/
-
-**Fantasy baseball waiver wire pickups featuring Spencer Torkelson, Landen Roupp and more**\
-`John Laghezza digs into the metrics that matter through the first week of the MLB season to highlight the best fantasy baseball free agents.`\
-https://nytimes.com/athletic/6250139/2025/04/04/fantasy-baseball-waiver-wire-pickups-spencer-torkelson/
 

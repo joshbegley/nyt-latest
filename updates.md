@@ -1,3 +1,11 @@
+**The Strange Allure of Watching Other People Tear Up Their Homes**\
+`D.I.Y. influencers indulge our housing fantasies — and cash in on them.`\
+https://nytimes.com/2025/04/04/magazine/influencers-real-estate-tiktok-instagram.html
+
+**Powell Says Trump’s Tariffs Raise Risks of Higher Inflation and Slower Growth**\
+`Jerome H. Powell, chair of the Federal Reserve, says the central bank’s “obligation” is to ensure that a “one-time increase in the price level does not become an ongoing inflation problem.”`\
+https://nytimes.com/2025/04/04/business/economy/powell-trump-tariff-inflation-risk.html
+
 **Columbia Displays More Aggressive Posture in Dealing With Demonstrators**\
 `Students chained to a gate were removed by security officials. It came as the university planned to deploy 36 officers empowered to remove people from campus.`\
 https://nytimes.com/2025/04/04/nyregion/columbia-security-protesters-removed.html
