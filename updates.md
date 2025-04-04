@@ -1,3 +1,7 @@
+**Mainoo returns to Man Utd training; De Ligt a doubt for City**\
+`Mainoo has not played since February 7 due to an injury suffered in training while De Ligt sustained an injury against Nottingham Forest.`\
+https://nytimes.com/athletic/6255036/2025/04/04/mainoo-injury-update-manchester-united-team-news/
+
 **Helped by Brandin Podziemski and Jonathan Kuminga, Warriors get big road win over Lakers**\
 `After a big performance in Memphis, the victory over the Lakers closed the Warriors' six-game trip with two of the season's biggest wins.`\
 https://nytimes.com/athletic/6254305/2025/04/04/warriors-lakers-score-brandin-podziemski-jonathan-kuminga/
