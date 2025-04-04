@@ -31,8 +31,8 @@ https://nytimes.com/2025/04/03/pageoneplus/corrections-april-4-2025.html
 `A nonprofit group said the president misapplied a law in imposing those levies and portrayed its filing as the first lawsuit to challenge the Trump administration over its tariffs.`\
 https://nytimes.com/2025/04/03/business/economy/lawsuit-tariffs-china-trump-administration.html
 
-**Amtrak Train Strikes and Kills a Person in Pennsylvania**\
-`Amtrak said one of its trains hit three people on the tracks near Bristol Station. Service between New York’s Penn Station and Philadelphia’s main station was temporarily suspended.`\
+**Amtrak Train Strikes and Kills 3 People in Pennsylvania**\
+`Amtrak said a train hit three members of the same family on a track. Service between New York and Philadelphia was temporarily suspended.`\
 https://nytimes.com/2025/04/03/us/amtrak-train-crash-bucks-county-pa.html
 
 **Lamar Jackson challenges Dale Earnhardt Jr.'s trademark claim of No. 8**\
