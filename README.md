@@ -1,3 +1,7 @@
+**Corrections: April 4, 2025**\
+`Corrections that appeared in print on Friday, April 4, 2025.`\
+https://nytimes.com/2025/04/03/pageoneplus/corrections-april-4-2025.html
+
 **Lawsuit Challenges Trump’s Legal Rationale for Tariffs on China**\
 `A nonprofit group said the president misapplied a law in imposing those levies and portrayed its filing as the first lawsuit to challenge the Trump administration over its tariffs.`\
 https://nytimes.com/2025/04/03/business/economy/lawsuit-tariffs-china-trump-administration.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/03/us/tornadoes-south-midwest.html
 **Here’s the latest.**\
 `By Qasim Nauman`\
 https://nytimes.com/live/2025/04/03/world/south-korea-yoon/heres-the-latest
-
-**Live Updates: Court Will Decide Fate of South Korea’s President**\
-`Eight justices will rule on whether Yoon Suk Yeol’s impeachment for declaring martial law was justified. Their decision will determine whether he returns to power.`\
-https://nytimes.com/live/2025/04/03/world/south-korea-yoon
 
