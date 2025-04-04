@@ -1,4 +1,4 @@
-**'It must not come into contact with Jannik': Sinner's trainer explains role in positive tests**\
+**'Must not come into contact with Jannik': Sinner's ex-trainer discusses spray at center of doping case**\
 `“I very clearly communicated both the nature of the product, and that it must not come into contact with Jannik," Ferrara told Gazzetta.`\
 https://nytimes.com/athletic/6252296/2025/04/04/umberto-ferrara-jannik-sinner-positive-test-clostebol/
 
