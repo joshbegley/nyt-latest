@@ -1,3 +1,11 @@
+**FPL live Q&A: FPL Gameweek 31 advice from Ben Dinnery**\
+`Join Ben Dinnery for a live Gameweek 31 FPL Q&A from 4pm-5pm UK time`\
+https://nytimes.com/athletic/6246302/2025/04/04/fantasy-premier-league-advice-gw31-tips/
+
+**Saka's race to start against Madrid - and how players target comeback games**\
+`Medical staff may wince but football has a long history of key players returning from serious injuries straight into big games`\
+https://nytimes.com/athletic/6235003/2025/04/04/bukayo-saka-comeback-injury/
+
 **Will Trump’s Tariffs Drive Europe Into China’s Arms, or Into a Fight?**\
 `The European Union is deepening other trade partnerships as U.S. relations sour. But with China, the relationship could get closer — or more combative.`\
 https://nytimes.com/2025/04/04/world/europe/trump-tariffs-china.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6252698/2025/04/04/mariners-pitcher-immaculate-grid
 **How to watch No. 1 UCLA vs. No. 2 UConn in the women's Final Four: Betts against Bueckers**\
 `Connecticut is going for its 12th national championship. UCLA has earned its first Final Four berth ... ever.`\
 https://nytimes.com/athletic/6250756/2025/04/04/ucla-uconn-womens-ncaa-tournament-final-four-how-to-watch/
-
-**Florida, Duke players went from NBA Academy 'brotherhood' to Final Four**\
-`The academy gives young, promising players access to experienced college and pro coaches who help refine their skills on and off the floor.`\
-https://nytimes.com/athletic/6254078/2025/04/04/florida-duke-nba-academy-final-four/
-
-**Top prospects Perreault, Leonard buoyed by touring Boston College teammates in NHL debuts**\
-`After attending Leonard’s Capitals debut some 24 hours earlier, the crew of Eagles players headed to New York to support Perreault.`\
-https://nytimes.com/athletic/6253274/2025/04/04/nhl-rangers-capitals-gabe-perreault-ryan-leonard/
 
