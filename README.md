@@ -18,13 +18,13 @@ https://nytimes.com/athletic/6248041/2025/04/04/ncaa-tournament-perfect-bracket/
 `The Blue Jackets led 3-2 halfway through the second but allowed five unanswered goals in a blow to their playoff hopes.`\
 https://nytimes.com/athletic/6254388/2025/04/04/blue-jackets-merzlikins-meltdown-evason-avalanche/
 
-**Women's Final Four power ranking: Who's winning? UCLA, South Carolina, UConn or Texas?**\
-`Will South Carolina repeat? Can UCLA win its first NCAA-era championship? Will UConn win it all? Will Paige Bueckers deliver?`\
-https://nytimes.com/athletic/6251715/2025/04/04/womens-final-four-power-rankings-whos-winning-ucla-south-carolina-uconn-or-texas/
-
 **'You stay rich by being cheap': Why major leaguers won't even pay to read this article**\
 `From streaming services to plane tickets to water bottles, these players are 'frugal' — and proud of it.`\
 https://nytimes.com/athletic/6236437/2025/04/04/mlb-players-money-saving-hacks/
+
+**Women's Final Four power ranking: Who's winning? UCLA, South Carolina, UConn or Texas?**\
+`Will South Carolina repeat? Can UCLA win its first NCAA-era championship? Will UConn win it all? Will Paige Bueckers deliver?`\
+https://nytimes.com/athletic/6251715/2025/04/04/womens-final-four-power-rankings-whos-winning-ucla-south-carolina-uconn-or-texas/
 
 **Can AFC West's 'all-star lineup' of coaches finally top Andy Reid and the Chiefs?**\
 `The Chiefs have accumulated more division titles (9) since 2016 than division game losses (8), but 2025 may be the toughest test yet.`\
