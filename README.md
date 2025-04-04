@@ -1,3 +1,15 @@
+**Iowa guard Josh Dix announces transfer to Creighton**\
+`Dix averaged 14.4 points, 3.2 rebounds and 2.8 assists per game at Iowa last season.`\
+https://nytimes.com/athletic/6255653/2025/04/04/josh-dix-transfer-iowa-creighton/
+
+**Thompson: Are the Warriors' title hopes real? LeBron's reaction might be a hint**\
+`You may not think the Warriors are a title contender yet, but it's hard to ignore the subliminal message in LeBron's reaction to them.`\
+https://nytimes.com/athletic/6255573/2025/04/04/golden-state-warriors-title-hopes-lebron-james-steph-curry/
+
+**Why Trump’s Tariffs Are Rattling Even Meta**\
+`Meta, which owns Facebook, Instagram and WhatsApp, would not seem to be in the line of fire from tariffs. But President Trump’s trade actions are hitting even social networking businesses.`\
+https://nytimes.com/2025/04/04/technology/trump-tariffs-meta.html
+
 **Two-way star Travis Hunter to run routes at Colorado pro day**\
 `The two-way player has yet to publicly work out this draft cycle, sitting out of workouts during the NFL combine. `\
 https://nytimes.com/athletic/6255447/2025/04/04/travis-hunter-routes-colorado-pro-day/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/04/world/europe/rubio-russia-ukraine-talks-nato.html
 **Scoop City: Four draft lessons from 2024**\
 `Inside: Four things we can learn from last April, why a tush push ban feels inevitable and three stories you might've missed.`\
 https://nytimes.com/athletic/6255586/2025/04/04/nfl-draft-lessons-2024-2025-eagles-scoop-city/
-
-**Nintendo Delays Preorders for the Switch 2, Citing Tariffs**\
-`The new video game console will still be released in June, the Japanese company said. Its price was unveiled as $450 this week.`\
-https://nytimes.com/2025/04/04/business/economy/nintendo-switch-2-preorder-delay-tariffs.html
-
-**Residents Sift Debris as Storm Sweeps the South and Midwest**\
-`The storm has generated more than 30 tornadoes this week, killing at least seven people in three states.`\
-https://nytimes.com/video/us/100000010092051/storm-south-midwest-tornadoes-floods.html
-
-**The Best Movies and TV Shows Coming to Netflix in April**\
-`“Black Mirror” and “You” are back this month, alongside a bunch of promising new titles.`\
-https://nytimes.com/2025/04/04/arts/television/netflix-new-shows-movies-april.html
 
