@@ -1,3 +1,11 @@
+**How Tariffs Are Hitting Digital Commerce Companies**\
+`These businesses, including e-commerce platforms and payment processors, are pulling back on public offering plans and bracing for pain.`\
+https://nytimes.com/2025/04/04/technology/tariffs-digital-commerce.html
+
+**The I.R.S. says it will begin more mass layoffs.**\
+`Employees were notified of the coming layoffs, which could affect large swaths of the tax collection agency, just days before the annual tax filing deadline.`\
+https://nytimes.com/live/2025/04/04/us/trump-news-updates/trump-irs-layoffs
+
 **What Might Europe’s Fines Against X Mean for Musk?**\
 `The potential for major penalties in the European Union could test the boundaries of online speech and inflame tensions between the U.S. and Europe.`\
 https://nytimes.com/2025/04/04/us/politics/musk-x-european-union-fine.html
