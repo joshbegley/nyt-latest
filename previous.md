@@ -1,3 +1,7 @@
+**'Alex is a troll': Sarr, Wizards' all-business ROY contender, shows his fun side**\
+`Alex Sarr has developed a reputation within the Wizards for being a laser-focused worker. But he's showing other parts of his personality.`\
+https://nytimes.com/athletic/6253571/2025/04/04/alex-sarr-washington-wizards-nba-rookie-of-year/
+
 **Tariffs Drive Another Market Meltdown**\
 `A rapidly escalating trade war has socked stocks as investors weigh the fallout from President Trump’s tariff barrage.`\
 https://nytimes.com/2025/04/04/business/dealbook/trump-tariffs-markets-metldown.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/04/world/asia/south-korea-removes-impeached-presiden
 **De Bruyne announces he will leave City at end of season**\
 `De Bruyne joined City from Wolfsburg in 2015 and has helped them win six Premier League titles, as well as their maiden Champions League.`\
 https://nytimes.com/athletic/6232335/2025/04/04/kevin-de-bruyne-manchester-city-leave/
-
-**Postecoglou says he 'made a mistake' celebrating disallowed goal against Chelsea**\
-`Postecoglou cupped his ear with his right hand towards the Spurs supporters while his players celebrated the goal.`\
-https://nytimes.com/athletic/6254805/2025/04/04/ange-postecoglou-tottenham-chelsea-celebration/
 

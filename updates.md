@@ -1,3 +1,7 @@
+**'Alex is a troll': Sarr, Wizards' all-business ROY contender, shows his fun side**\
+`Alex Sarr has developed a reputation within the Wizards for being a laser-focused worker. But he's showing other parts of his personality.`\
+https://nytimes.com/athletic/6253571/2025/04/04/alex-sarr-washington-wizards-nba-rookie-of-year/
+
 **Tariffs Drive Another Market Meltdown**\
 `A rapidly escalating trade war has socked stocks as investors weigh the fallout from President Trump’s tariff barrage.`\
 https://nytimes.com/2025/04/04/business/dealbook/trump-tariffs-markets-metldown.html
