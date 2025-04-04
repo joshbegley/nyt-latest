@@ -1,3 +1,7 @@
+**Helped by Brandin Podziemski and Jonathan Kuminga, Warriors get big road win over Lakers**\
+`After a big performance in Memphis, the victory over the Lakers closed the Warriors' six-game trip with two of the season's biggest wins.`\
+https://nytimes.com/athletic/6254305/2025/04/04/warriors-lakers-score-brandin-podziemski-jonathan-kuminga/
+
 **Listen: Why Moyes can lead Everton into their new era**\
 `The Athletic FC Podcast discuss David Moyes’ impact on Everton and why he’s the right man to lead the club’s new era`\
 https://nytimes.com/athletic/6253128/2025/04/04/athletic-fc-podcast-moyes-everton-new-era/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6253457/2025/04/04/sabres-prospects-devon-levi-ahl-
 **Will Stephon Castle be the Spurs' second straight Rookie of the Year? 'I think it's his'**\
 `No rookie has come closer to a triple-double this season than Castle did this week during his latest standout game since the All-Star break.`\
 https://nytimes.com/athletic/6253844/2025/04/04/stephon-castle-spurs-nba-rookie-of-the-year/
-
-**Timberwolves' dramatic ownership saga finally appears settled. So what now?**\
-`Marc Lore and Alex Rodriguez can now go through the final approval process with the NBA. Here's what's next for all involved.`\
-https://nytimes.com/athletic/6129711/2025/04/04/timberwolves-lynx-ownership-alex-rodriguez-glen-taylor/
 

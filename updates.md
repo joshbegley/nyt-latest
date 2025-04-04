@@ -1,3 +1,7 @@
+**Helped by Brandin Podziemski and Jonathan Kuminga, Warriors get big road win over Lakers**\
+`After a big performance in Memphis, the victory over the Lakers closed the Warriors' six-game trip with two of the season's biggest wins.`\
+https://nytimes.com/athletic/6254305/2025/04/04/warriors-lakers-score-brandin-podziemski-jonathan-kuminga/
+
 **Listen: Why Moyes can lead Everton into their new era**\
 `The Athletic FC Podcast discuss David Moyes’ impact on Everton and why he’s the right man to lead the club’s new era`\
 https://nytimes.com/athletic/6253128/2025/04/04/athletic-fc-podcast-moyes-everton-new-era/
