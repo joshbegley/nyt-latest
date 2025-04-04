@@ -1,3 +1,11 @@
+**Sean Combs Faces New Sex-Trafficking Charge Ahead of Trial**\
+`Weeks before the music mogul is scheduled to stand trial, prosecutors added a more serious charge involving a woman they refer to as “Victim-2.”`\
+https://nytimes.com/2025/04/04/arts/music/sean-diddy-combs-new-sex-trafficking-charge.html
+
+**Newsom Will Seek Trade Deals That Spare California From Retaliatory Tariffs**\
+`The governor’s announcement could ratchet up animosity between the Trump administration and California, the world’s fifth-largest economy.`\
+https://nytimes.com/2025/04/04/us/politics/newsom-trump-california-tariffs.html
+
 **Song of the Week: Is ‘Nokia’ Drake’s Comeback?**\
 `Is this the start of a Drake comeback? Join our critic Jon Caramanica in his car as he listens to — and breaks down — one of the most interesting tracks of the moment.`\
 https://nytimes.com/video/podcasts/100000010085284/song-of-the-week-nokia-drake-comeback.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6254427/2025/04/04/mlb-stats-hunter-greene-the-wind
 **Tempted to Panic-Buy? Sit Down and Have a $1.50 Hot Dog Instead.**\
 `A census of Costco carts on Thursday revealed little fear. Tariffs could go as fast as they’re coming, and our columnist is not stuffing his pantry.`\
 https://nytimes.com/2025/04/04/your-money/tariffs-panic-buying.html
-
-**What I’m hearing about the Bengals: Hendrickson drama, draft priorities, free agency**\
-`The end of the saga between the team and it's top edge rusher seems nowhere in sight.`\
-https://nytimes.com/athletic/6253938/2025/04/04/what-im-hearing-about-the-bengals-hendrickson-blackburn/
-
-**How ‘Free Speech’ Became a New Flashpoint Between Europe and U.S.**\
-`The two have long been divided on whether speech can be restricted, and when. Under the Trump administration, the gap is widening.`\
-https://nytimes.com/2025/04/04/world/europe/european-union-free-speech-x-facebook-elon-musk.html
 

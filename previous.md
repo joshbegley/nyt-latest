@@ -1,3 +1,11 @@
+**Song of the Week: Is ‘Nokia’ Drake’s Comeback?**\
+`Is this the start of a Drake comeback? Join our critic Jon Caramanica in his car as he listens to — and breaks down — one of the most interesting tracks of the moment.`\
+https://nytimes.com/video/podcasts/100000010085284/song-of-the-week-nokia-drake-comeback.html
+
+**U.S. Patience on Ukraine Is Running Out, Rubio Warns Russia**\
+`Whether the Kremlin is serious about peace talks to end the Ukraine war will become clear soon, the secretary of state said.`\
+https://nytimes.com/2025/04/04/world/europe/rubio-russia-ukraine-talks-nato.html
+
 **Scoop City: Four draft lessons from 2024**\
 `Inside: Four things we can learn from last April, why a tush push ban feels inevitable and three stories you might've missed.`\
 https://nytimes.com/athletic/6255586/2025/04/04/nfl-draft-lessons-2024-2025-eagles-scoop-city/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6253938/2025/04/04/what-im-hearing-about-the-bengal
 **How ‘Free Speech’ Became a New Flashpoint Between Europe and U.S.**\
 `The two have long been divided on whether speech can be restricted, and when. Under the Trump administration, the gap is widening.`\
 https://nytimes.com/2025/04/04/world/europe/european-union-free-speech-x-facebook-elon-musk.html
-
-**NBA fines Ja Morant $75,000 for finger-gun gestures**\
-`Morant's finger-gun gestures came hours after the league issued a warning advising him to refrain from using the celebration.`\
-https://nytimes.com/athletic/6255028/2025/04/04/ja-morant-gun-gesture-nba/
-
-**Mats Hummels to retire at end of 2024-25 season**\
-`The centre-back, who had multiple spells at both Borussia Dortmund and Bayern Munich, won the World Cup with Germany in 2014.`\
-https://nytimes.com/athletic/6255505/2025/04/04/mats-hummels-roma-retires/
 

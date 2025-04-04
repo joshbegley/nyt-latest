@@ -1,3 +1,11 @@
+**Song of the Week: Is ‘Nokia’ Drake’s Comeback?**\
+`Is this the start of a Drake comeback? Join our critic Jon Caramanica in his car as he listens to — and breaks down — one of the most interesting tracks of the moment.`\
+https://nytimes.com/video/podcasts/100000010085284/song-of-the-week-nokia-drake-comeback.html
+
+**U.S. Patience on Ukraine Is Running Out, Rubio Warns Russia**\
+`Whether the Kremlin is serious about peace talks to end the Ukraine war will become clear soon, the secretary of state said.`\
+https://nytimes.com/2025/04/04/world/europe/rubio-russia-ukraine-talks-nato.html
+
 **Scoop City: Four draft lessons from 2024**\
 `Inside: Four things we can learn from last April, why a tush push ban feels inevitable and three stories you might've missed.`\
 https://nytimes.com/athletic/6255586/2025/04/04/nfl-draft-lessons-2024-2025-eagles-scoop-city/
