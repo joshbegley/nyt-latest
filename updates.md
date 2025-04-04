@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6252220/2025/04/03/red-bull-f1-japanese-gp-white-ca
 `\
 https://nytimes.com/athletic/6252220/2025/04/03/red-bull-f1-japanese-gp-white-cars/
 
+**Why Red Bull changed their liveries to white for Japanese Grand Prix**\
+`When Yuki Tsunoda takes to the track as a Red Bull F1 driver for the first time, he will do so in a very different-looking car to usual
+`\
+https://nytimes.com/athletic/6252220/2025/04/03/red-bull-f1-japanese-gp-white-cars/
+
 **Swayman was the Bruins' best player, which is a critical development**\
 `The Bruins have little to play for at this point in the season, but their star goalie is starting to find his game again.`\
 https://nytimes.com/athletic/6254341/2025/04/03/bruins-jeremy-swayman-canadiens/
