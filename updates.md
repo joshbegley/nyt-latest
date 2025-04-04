@@ -1,3 +1,15 @@
+**Trump Officials Have Not Funded Radio Free Europe, Despite Court Order**\
+`The delay in disbursement has forced the news organization, which relies almost exclusively on congressional funding, to furlough some of its staff and cut parts of its programming.`\
+https://nytimes.com/2025/04/04/us/politics/radio-free-europe-funding-trump.html
+
+**The New York Times in Print for Friday, April 4, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/04/todays-new-york-times
+
+**This Is Not the Right Way to Curb Migration**\
+`The exaggerated government claims and ensuing public concern about Tren de Aragua’s activities in the United States amount to a classic moral panic.`\
+https://nytimes.com/2025/04/04/opinion/tren-de-aragua-venezuela-maduro.html
+
 **Seoul Erupts With Shouts of Joy After Yoon Is Removed From Office**\
 `Still, after four months of political uncertainty, many people expressed apprehension about what lies ahead for the country.`\
 https://nytimes.com/2025/04/04/world/asia/yoon-impeachment-reaction-seoul.html
