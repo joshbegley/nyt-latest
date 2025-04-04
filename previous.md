@@ -1,3 +1,7 @@
+**'It must not come into contact with Jannik': Sinner's trainer explains role in positive tests**\
+`“I very clearly communicated both the nature of the product, and that it must not come into contact with Jannik," Ferrara told Gazzetta.`\
+https://nytimes.com/athletic/6252296/2025/04/04/umberto-ferrara-jannik-sinner-positive-test-clostebol/
+
 **What’s next for ousted President Yoon?**\
 `South Korea’s former president still faces criminal charges of leading an insurrection when he declared martial law. If found guilty, he could be imprisoned for life.`\
 https://nytimes.com/live/2025/04/03/world/south-korea-yoon/skorea-yoon-next
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6252703/2025/04/04/premier-league-accumulator-betti
 **What Does Eric Adams’s Exit From the Democratic Primary Mean for Voters?**\
 `Democratic primary voters won’t see the mayor’s name on the ballot in June. He plans to run in the general election in November, when ranked-choice voting is not in use.`\
 https://nytimes.com/2025/04/04/us/eric-adams-independent-campaign-mayor.html
-
-**The Ex-Convict Who Turned Down Columbia’s Ph.D. Offer**\
-`After 30 years in prison, Ibrahim Rivera was headed to the Ivy League. Then he realized that because of Trump administration threats, the university could not guarantee his funding would survive.`\
-https://nytimes.com/2025/04/04/nyregion/columbia-funding-phd.html
 
