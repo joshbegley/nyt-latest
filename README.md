@@ -1,3 +1,19 @@
+**Will Trump’s Tariffs Drive Europe Into China’s Arms, or Into a Fight?**\
+`The European Union is deepening other trade partnerships as U.S. relations sour. But with China, the relationship could get closer — or more combative.`\
+https://nytimes.com/2025/04/04/world/europe/trump-tariffs-china.html
+
+**Andy O'Boyle rejoins Liverpool as managing director of women's team**\
+`Liverpool Women are still without a permanent successor to Matt Beard, who was sacked in February.`\
+https://nytimes.com/athletic/6254825/2025/04/04/andy-oboyle-liverpool-women/
+
+**Here’s the latest.**\
+`By The New York Times`\
+https://nytimes.com/live/2025/04/04/business/jobs-report-march-tariffs-economy/heres-the-latest
+
+**South Korea Removes Its Impeached President and Regains Direction**\
+`The country’s Constitutional Court formally ended the presidency of Yoon Suk Yeol for declaring martial law, ending months of turmoil. But the country remains deeply divided.`\
+https://nytimes.com/2025/04/04/world/asia/south-korea-removes-impeached-president.html
+
 **De Bruyne announces he will leave City at end of season**\
 `De Bruyne joined City from Wolfsburg in 2015 and has helped them win six Premier League titles, as well as their maiden Champions League.`\
 https://nytimes.com/athletic/6232335/2025/04/04/kevin-de-bruyne-manchester-city-leave/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6254078/2025/04/04/florida-duke-nba-academy-final-f
 **Top prospects Perreault, Leonard buoyed by touring Boston College teammates in NHL debuts**\
 `After attending Leonard’s Capitals debut some 24 hours earlier, the crew of Eagles players headed to New York to support Perreault.`\
 https://nytimes.com/athletic/6253274/2025/04/04/nhl-rangers-capitals-gabe-perreault-ryan-leonard/
-
-**Scouting the Final Four: Who do coaches say has the edge? UConn or UCLA?**\
-`One coach says about UConn: “They're going to expose your disadvantage.”`\
-https://nytimes.com/athletic/6254402/2025/04/04/final-four-uconn-ucla-coaches-scouting/
-
-**What the Premier League can learn from the NFL owners' meetings**\
-`If the Premier League wants to expand its grasp of the year-round news cycle, it could take a page from the NFL's playbook.`\
-https://nytimes.com/athletic/6253175/2025/04/04/premier-league-nfl-owners-meetings-access/
-
-**Inside Amazon's first year streaming the NHL and whether their Rogers deal will continue**\
-`If Prime pulled off its broadcast with any degree of success, could it angle for a bigger piece of the Canadian rights pie?`\
-https://nytimes.com/athletic/6238912/2025/04/04/amazon-prime-video-rogers-nhl/
-
-**Exclusive: Mitch Marner on playoffs, deadline drama and the extension**\
-`The pending unrestricted free agent spoke to The Athletic about some of the weightiest subjects swirling around him right now.`\
-https://nytimes.com/athletic/6252597/2025/04/04/mitch-marner-leafs-contract-talks-playoffs/
 
