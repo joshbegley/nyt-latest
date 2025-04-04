@@ -1,3 +1,7 @@
+**The Pulse: At the women's Final Four, a split reality**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6253197/2025/04/04/womens-final-four-ratings-the-pulse/
+
 **China Retaliates Against Trump With 34% Tariff on U.S. Goods**\
 `The Chinese government said it would match President Trump’s tariff, and also barred a group of American companies from doing business in China.`\
 https://nytimes.com/2025/04/04/business/china-trump-tariffs-retaliation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6254388/2025/04/04/blue-jackets-merzlikins-meltdown
 **'You stay rich by being cheap': Why major leaguers won't even pay to read this article**\
 `From streaming services to plane tickets to water bottles, these players are 'frugal' — and proud of it.`\
 https://nytimes.com/athletic/6236437/2025/04/04/mlb-players-money-saving-hacks/
-
-**Women's Final Four power ranking: Who's winning? UCLA, South Carolina, UConn or Texas?**\
-`Will South Carolina repeat? Can UCLA win its first NCAA-era championship? Will UConn win it all? Will Paige Bueckers deliver?`\
-https://nytimes.com/athletic/6251715/2025/04/04/womens-final-four-power-rankings-whos-winning-ucla-south-carolina-uconn-or-texas/
 
