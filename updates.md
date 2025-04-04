@@ -1,3 +1,7 @@
+**Trump Rejects Biden Plan to Expand Medicare Coverage for Obesity Drugs**\
+`Administration officials reversed a decision made during the Biden presidency that would have given millions of people access to weight-loss drugs paid for Medicare and Medicaid.`\
+https://nytimes.com/2025/04/04/health/trump-wegovy-obesity-drugs-medicare.html
+
 **Judge Orders Tufts Student’s Detention Case Moved to Vermont**\
 `The student, Rumeysa Ozturk, was detained by ICE agents in Massachusetts, driven to Vermont and flown to a detention center in Louisiana, where the government was trying to argue her court case.`\
 https://nytimes.com/2025/04/04/us/tufts-student-deportation-case-vermont-rumeysa-ozturk.html
