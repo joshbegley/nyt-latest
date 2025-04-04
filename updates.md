@@ -1,3 +1,20 @@
+**What’s next for ousted President Yoon?**\
+`South Korea’s former president still faces criminal charges of leading an insurrection when he declared martial law. If found guilty, he could be imprisoned for life.`\
+https://nytimes.com/live/2025/04/03/world/south-korea-yoon/skorea-yoon-next
+
+**Do You Have a Vibrant and Healthy Social Life?**\
+`This quiz can help you find out.`\
+https://nytimes.com/2025/04/04/learning/do-you-have-a-vibrant-and-healthy-social-life.html
+
+**Hold On!**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2025/04/04/learning/hold-on.html
+
+**The best three bets to add to this weekend’s Premier League acca**\
+`Sam Tighe outlines the best three bets to add to this weekend’s Premier League accumulator.
+`\
+https://nytimes.com/athletic/6252703/2025/04/04/premier-league-accumulator-betting-everton-ipswich/
+
 **Yoon Ejected as South Korean Court Upholds Impeachment**\
 `South Korea’s Constitutional Court ruled unanimously to remove former President Yoon Suk Yeol. Protesters reacted to the decision, some cheered while others showed their disappointment.`\
 https://nytimes.com/video/world/asia/100000010091597/yoon-south-korea-impeachment-ruling.html

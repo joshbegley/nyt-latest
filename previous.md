@@ -1,3 +1,15 @@
+**What’s next for ousted President Yoon?**\
+`South Korea’s former president still faces criminal charges of leading an insurrection when he declared martial law. If found guilty, he could be imprisoned for life.`\
+https://nytimes.com/live/2025/04/03/world/south-korea-yoon/skorea-yoon-next
+
+**Do You Have a Vibrant and Healthy Social Life?**\
+`This quiz can help you find out.`\
+https://nytimes.com/2025/04/04/learning/do-you-have-a-vibrant-and-healthy-social-life.html
+
+**Hold On!**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2025/04/04/learning/hold-on.html
+
 **Yoon Ejected as South Korean Court Upholds Impeachment**\
 `South Korea’s Constitutional Court ruled unanimously to remove former President Yoon Suk Yeol. Protesters reacted to the decision, some cheered while others showed their disappointment.`\
 https://nytimes.com/video/world/asia/100000010091597/yoon-south-korea-impeachment-ruling.html
@@ -26,16 +38,4 @@ https://nytimes.com/2025/04/04/us/eric-adams-independent-campaign-mayor.html
 **The Ex-Convict Who Turned Down Columbia’s Ph.D. Offer**\
 `After 30 years in prison, Ibrahim Rivera was headed to the Ivy League. Then he realized that because of Trump administration threats, the university could not guarantee his funding would survive.`\
 https://nytimes.com/2025/04/04/nyregion/columbia-funding-phd.html
-
-**Key Evidence Thrown Out in Jolt to ‘Orgasmic Meditation’ Conspiracy Case**\
-`Defense lawyers had argued that diaries by a former adherent of the OneTaste group were tainted by the way they were prepared and edited for a Netflix documentary.`\
-https://nytimes.com/2025/04/04/nyregion/one-taste-orgasmic-meditation-evidence.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/04/04/crosswords/spelling-bee-forum.html
-
-**Divided Over a President’s Fate, South Koreans Awaited a Historic Verdict.**\
-`Text by Chang W. Lee and Jun Michael Park`\
-https://nytimes.com/card/2025/04/04/world/asia/south-korea-yoon-impeachment-photos
 
