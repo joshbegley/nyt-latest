@@ -1,3 +1,7 @@
+**‘A Minecraft Movie’ | Anatomy of a Scene**\
+`Jared Hess narrates a mine cart sequence from his film, featuring Jack Black, Jason Momoa and Sebastian Hansen.`\
+https://nytimes.com/video/movies/100000010090226/a-minecraft-movie-anatomy-of-a-scene.html
+
 **'Must not come into contact with Jannik': Sinner's ex-trainer discusses spray at center of doping case**\
 `“I very clearly communicated both the nature of the product, and that it must not come into contact with Jannik," Ferrara told Gazzetta.`\
 https://nytimes.com/athletic/6252296/2025/04/04/umberto-ferrara-jannik-sinner-positive-test-clostebol/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6252759/2025/04/04/manchester-derby-city-united-pre
 `Sam Tighe outlines the best three bets to add to this weekend’s Premier League accumulator.
 `\
 https://nytimes.com/athletic/6252703/2025/04/04/premier-league-accumulator-betting-everton-ipswich/
-
-**What Does Eric Adams’s Exit From the Democratic Primary Mean for Voters?**\
-`Democratic primary voters won’t see the mayor’s name on the ballot in June. He plans to run in the general election in November, when ranked-choice voting is not in use.`\
-https://nytimes.com/2025/04/04/us/eric-adams-independent-campaign-mayor.html
 
