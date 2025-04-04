@@ -1,3 +1,7 @@
+**Police Shut Area Near Seoul Court as Protesters Amass Before Ruling**\
+`More than 14,000 police officers have been deployed ahead of Friday’s decision by the Constitutional Court in the impeachment case of President Yoon Suk Yeol.`\
+https://nytimes.com/2025/04/03/world/asia/seoul-protests-yoon-south-korea.html
+
 **Tornadoes Sweep Across the South and Midwest, Killing at Least 7**\
 `After hail, heavy rains and more than 30 tornadoes drenched the region, officials warned that a “generational flooding” disaster was possible.`\
 https://nytimes.com/2025/04/03/us/tornadoes-south-midwest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/03/style/charlie-javice-ankle-monitor-pilates.html
 **C.E.O. Choked Man Who Danced Barefoot on Cruise Ship, U.S. Says**\
 `Kenneth D. DeGiorgio, the chief executive of First American Financial, was charged with assault. His lawyers say that the other man was harassing the executive’s wife.`\
 https://nytimes.com/2025/04/03/us/ceo-choking-virgin-cruise.html
-
-**Cheers for Taijuan Walker: Phillies fans, his teammates and mom applaud a meaningful start**\
-`This meant something. Everyone wearing powder blue uniforms felt it as Walker strode toward the dugout after his best outing in ages. `\
-https://nytimes.com/athletic/6253830/2025/04/03/taijuan-walker-phillies-fifth-starter-rockies/
 
