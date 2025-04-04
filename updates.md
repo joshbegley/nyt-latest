@@ -1,3 +1,11 @@
+**Crystal Palace against Brighton & Hove Albion: A (polite) conversation between rivals**\
+`These bitter rivals meet for the 20th time in the top flight this weekend. Our club writers debate the teams' respective seasons to date`\
+https://nytimes.com/athletic/6244291/2025/04/04/crystal-palace-brighton-hurzeler-glasner/
+
+**Giannis records NBA's first-ever game of 35 points, 17 rebounds, 20 assists**\
+`Giannis Antetokounmpo added to his list of career accomplishments in the Bucks’ 126-113 win over the 76ers.`\
+https://nytimes.com/athletic/6254474/2025/04/04/giannis-antetokounmpo-35-17-20-record-bucks/
+
 **Arsenal will miss Gabriel - he embodies their fundamental change under Mikel Arteta**\
 `Gabriel is rugged and reliable, and what he represents is unmistakable. His absence feels like a gut punch for Arsenal`\
 https://nytimes.com/athletic/6250522/2025/04/04/arsenal-gabriel-hamstring-injury-analysis/

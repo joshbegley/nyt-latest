@@ -1,3 +1,11 @@
+**Crystal Palace against Brighton & Hove Albion: A (polite) conversation between rivals**\
+`These bitter rivals meet for the 20th time in the top flight this weekend. Our club writers debate the teams' respective seasons to date`\
+https://nytimes.com/athletic/6244291/2025/04/04/crystal-palace-brighton-hurzeler-glasner/
+
+**Giannis records NBA's first-ever game of 35 points, 17 rebounds, 20 assists**\
+`Giannis Antetokounmpo added to his list of career accomplishments in the Bucks’ 126-113 win over the 76ers.`\
+https://nytimes.com/athletic/6254474/2025/04/04/giannis-antetokounmpo-35-17-20-record-bucks/
+
 **Arsenal will miss Gabriel - he embodies their fundamental change under Mikel Arteta**\
 `Gabriel is rugged and reliable, and what he represents is unmistakable. His absence feels like a gut punch for Arsenal`\
 https://nytimes.com/athletic/6250522/2025/04/04/arsenal-gabriel-hamstring-injury-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6252962/2025/04/04/nottingham-forest-beating-big-si
 **Want to sign Isak? Try £150m as a conversation-starter – but it might be a short chat**\
 `Arsenal and Liverpool both want him but, you know what? So do Newcastle - and they have no intention of letting him go`\
 https://nytimes.com/athletic/6252806/2025/04/04/alexander-isak-transfer-newcastle/
-
-**Ja Morant uses finger-gun gesture again despite NBA warning**\
-`Morant, who has been suspended by the NBA for gun-related incidents in recent seasons, ignored a warning given to him earlier the same day.`\
-https://nytimes.com/athletic/6254370/2025/04/04/ja-morant-finger-gun-gesture-warning/
-
-**Row Z: Semi-automated offsides, PSR loopholes and champion influencers**\
-`This week's column speculates on clubs selling off the silverware and marvels at Matheus Cunha's commitment to fighting for titles`\
-https://nytimes.com/athletic/6253246/2025/04/04/offside-chelsea-var-psr-mourinho-cunha/
 
