@@ -1,3 +1,7 @@
+**Appeals Court Orders Thousands of Voters to Verify Information in Contested N.C. Election**\
+`The ruling was a win for the Republican who narrowly lost a State Supreme Court race in November. The case has tested the boundaries of post-election litigation.`\
+https://nytimes.com/2025/04/04/us/north-carolina-supreme-court-race-ruling.html
+
 **At Least 14 Dead in Russian Strike on Zelensky’s Hometown, Ukraine Says**\
 `The missile strike was the latest in a series of Russian attacks on urban centers that have caused significant civilian casualties despite ongoing cease-fire talks.`\
 https://nytimes.com/2025/04/04/world/europe/ukraine-russia-strike-zelensky-hometown.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6255644/2025/04/04/inside-mls-youth-leagues-experim
 **Miley Cyrus’s Apocalyptic Pop, and 9 More New Songs**\
 `Hear tracks by Bruce Springsteen, Elton John and Brandi Carlile, Wet Leg and others.`\
 https://nytimes.com/2025/04/04/arts/music/playlist-miley-cyrus-ed-sheeran-bruce-springsteen.html
-
-**Kelly withdraws from England squad with foot injury**\
-`The Football Association has confirmed the winger has returned to Arsenal for treatment.`\
-https://nytimes.com/athletic/6255606/2025/04/04/chloe-kelly-england-arsenal-injury/
 
