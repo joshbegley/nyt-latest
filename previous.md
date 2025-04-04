@@ -1,3 +1,7 @@
+**Yoon Ejected After South Korean Court Upholds Impeachment**\
+`South Korea’s Constitutional Court ruled unanimously to remove former President Yoon Suk Yeol. Protesters reacted to the decision, some cheered while others showed their disappointment.`\
+https://nytimes.com/video/world/asia/100000010091597/yoon-south-korea-impeachment-ruling.html
+
 **Mike Matheson's embrace of defense could make Canadiens' playoff dreams a reality**\
 `Matheson playing a risk-free defensive game goes against everything he's ever known, but it's something the Canadiens need.`\
 https://nytimes.com/athletic/6254661/2025/04/04/montreal-canadiens-mike-matheson-playoffs/
@@ -5,6 +9,15 @@ https://nytimes.com/athletic/6254661/2025/04/04/montreal-canadiens-mike-matheson
 **Maresca needed Chelsea's win against Spurs - for his relationship with the fans**\
 `Chelsea manager Enzo Maresca had joy with tactical tweaks as they maintained their unbeaten run at home with a win against Tottenham`\
 https://nytimes.com/athletic/6254067/2025/04/04/chelsea-tottenham-enzo-maresca/
+
+**Manchester derby odds: Can Red Devils avoid a thumping?**\
+`Julia Ranney has a gander at the best bets surrounding this Sunday’s Manchester Derby.`\
+https://nytimes.com/athletic/6252759/2025/04/04/manchester-derby-city-united-premier-league-odds-preview/
+
+**The best three bets to add to this weekend’s Premier League acca**\
+`Sam Tighe outlines the best three bets to add to this weekend’s Premier League accumulator.
+`\
+https://nytimes.com/athletic/6252703/2025/04/04/premier-league-accumulator-betting-everton-ipswich/
 
 **What Does Eric Adams’s Exit From the Democratic Primary Mean for Voters?**\
 `Democratic primary voters won’t see the mayor’s name on the ballot in June. He plans to run in the general election in November, when ranked-choice voting is not in use.`\
@@ -25,16 +38,4 @@ https://nytimes.com/2025/04/04/crosswords/spelling-bee-forum.html
 **Divided Over a President’s Fate, South Koreans Awaited a Historic Verdict.**\
 `Text by Chang W. Lee and Jun Michael Park`\
 https://nytimes.com/card/2025/04/04/world/asia/south-korea-yoon-impeachment-photos
-
-**Faced With a Changed Ally, Australia Debates the Need for a ‘Plan B’**\
-`The country has doubled down on its defense relationship with the United States in recent years. President Trump’s treatment of allies is prompting some to question the wisdom of that path.`\
-https://nytimes.com/2025/04/04/world/australia/us-trump-security-alliance.html
-
-**Blues tie franchise record with 11th straight win but lose Dylan Holloway**\
-`After letting the Penguins rally late, Robert Thomas, Jimmy Snuggerud and the Blues earned an overtime victory.`\
-https://nytimes.com/athletic/6254045/2025/04/04/blues-11-straight-dylan-holloway-injury/
-
-**Chelsea's sale of women's team to themselves still being assessed by PL**\
-`The sale will not count towards UEFA’s Financial Fair Play (FFP) rules, which are more strict than the Premier League's.`\
-https://nytimes.com/athletic/6252232/2025/04/04/chelsea-ffp-womens-team-sale/
 

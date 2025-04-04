@@ -1,3 +1,16 @@
+**Yoon Ejected After South Korean Court Upholds Impeachment**\
+`South Korea’s Constitutional Court ruled unanimously to remove former President Yoon Suk Yeol. Protesters reacted to the decision, some cheered while others showed their disappointment.`\
+https://nytimes.com/video/world/asia/100000010091597/yoon-south-korea-impeachment-ruling.html
+
+**Manchester derby odds: Can Red Devils avoid a thumping?**\
+`Julia Ranney has a gander at the best bets surrounding this Sunday’s Manchester Derby.`\
+https://nytimes.com/athletic/6252759/2025/04/04/manchester-derby-city-united-premier-league-odds-preview/
+
+**The best three bets to add to this weekend’s Premier League acca**\
+`Sam Tighe outlines the best three bets to add to this weekend’s Premier League accumulator.
+`\
+https://nytimes.com/athletic/6252703/2025/04/04/premier-league-accumulator-betting-everton-ipswich/
+
 **Mike Matheson's embrace of defense could make Canadiens' playoff dreams a reality**\
 `Matheson playing a risk-free defensive game goes against everything he's ever known, but it's something the Canadiens need.`\
 https://nytimes.com/athletic/6254661/2025/04/04/montreal-canadiens-mike-matheson-playoffs/
