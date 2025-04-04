@@ -1,3 +1,15 @@
+**A Federal Lab That Tracked Rising S.T.I.s Has Been Shuttered**\
+`The United States can no longer keep tabs on drug-resistant gonorrhea, among other infections, scientists said.`\
+https://nytimes.com/2025/04/04/health/cdc-sti-lab-gonorrhea.html
+
+**Los Angeles County Plans to Pay $4 Billion to Settle Sex Abuse Claims**\
+`The settlement, which still needs formal approval, covers more than 6,800 claims of abuse, some of which date back to 1959.`\
+https://nytimes.com/2025/04/04/us/los-angeles-county-plans-to-pay-4-billion-to-settle-sex-abuse-claims.html
+
+**How Guantánamo Bay Figures in the Trump Immigration Crackdown**\
+`In two months, only around 400 migrants have been held there, mostly Venezuelan and Nicaraguan citizens designated for deportation.`\
+https://nytimes.com/2025/04/04/us/politics/migrant-mission-guantanamo-bay.html
+
 **Trump Rejects Biden Plan to Expand Medicare Coverage for Obesity Drugs**\
 `Administration officials reversed a decision made during the Biden presidency that would have given millions of people access to weight-loss drugs paid for Medicare and Medicaid.`\
 https://nytimes.com/2025/04/04/health/trump-wegovy-obesity-drugs-medicare.html

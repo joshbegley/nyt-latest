@@ -1,3 +1,11 @@
+**What Might Europe’s Fines Against X Mean for Musk?**\
+`The potential for major penalties in the European Union could test the boundaries of online speech and inflame tensions between the U.S. and Europe.`\
+https://nytimes.com/2025/04/04/us/politics/musk-x-european-union-fine.html
+
+**Washington Spirit owner Michele Kang invests $25 million in U.S. Soccer**\
+`Kang's investment is for the development and research of women’s soccer via the federation’s Soccer Forward Foundation.`\
+https://nytimes.com/athletic/6256261/2025/04/04/michele-kang-us-soccer-investment-spirit/
+
 **A Federal Lab That Tracked Rising S.T.I.s Has Been Shuttered**\
 `The United States can no longer keep tabs on drug-resistant gonorrhea, among other infections, scientists said.`\
 https://nytimes.com/2025/04/04/health/cdc-sti-lab-gonorrhea.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/04/us/politics/trump-nsc-firings-laura-loomer.html
 **Ted Cruz and Other Senate Republicans Question Trump’s Tariffs**\
 `One of the president’s allies warns that the trade barriers could hurt American business and consumers. But he has yet to take any real steps to reverse them.`\
 https://nytimes.com/2025/04/04/business/economy/ted-cruz-trump-tariffs-republicans.html
-
-**Map: Earthquake Near Papua New Guinea Prompts Tsunami Alert**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/04/04/world/earthquake-papua-new-guinea.html
-
-**Stocks Keep Falling**\
-`Also, Trump granted TikTok another reprieve. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2025/04/04/briefing/tariffs-stock-market-tiktok-ban-ovechkin-record.html
 
