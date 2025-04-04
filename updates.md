@@ -1,3 +1,7 @@
+**The 4.6.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/04/04/the-4625-issue
+
 **The Best Boxed Cake Mix **\
 `Text by Mace Dent Johnson`\
 https://nytimes.com/card/2025/04/04/smarter-living/wirecutter/best-boxed-cake-mix

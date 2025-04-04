@@ -1,3 +1,7 @@
+**The 4.6.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/04/04/the-4625-issue
+
 **The Best Boxed Cake Mix **\
 `Text by Mace Dent Johnson`\
 https://nytimes.com/card/2025/04/04/smarter-living/wirecutter/best-boxed-cake-mix
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/04/magazine/parents-wealth-school-ethics.html
 **Theodore McCarrick, Cardinal Accused of Sexual Abuse, Dies at 94**\
 `He ascended to the highest levels of the Roman Catholic Church before allegations of misconduct in 2018, and an investigation led Pope Francis to strip him of his title and priesthood.`\
 https://nytimes.com/2025/04/04/us/theodore-mccarrick-dead.html
-
-**Hayes: USWNT in 'dreamland' as U.S. set to co-host 2031 Women's World Cup**\
-`FIFA confirmed that a joint bid from U.S. Soccer and other Concacaf member associations was the sole expression of interest for 2031.`\
-https://nytimes.com/athletic/6255933/2025/04/04/emma-hayes-uswnt-womens-world-cup/
 
