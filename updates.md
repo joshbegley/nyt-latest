@@ -1,3 +1,15 @@
+**Arteta says De Bruyne is one of the best players in Premier League history - do you agree?**\
+`Where does Kevin De Bruyne sit now in the list of greatest Premier League players ever?`\
+https://nytimes.com/athletic/6255139/2025/04/04/arteta-de-bruyne-best-player-premier-league-history-ranking/
+
+**Ancelotti confident Courtois will be fit for Arsenal game**\
+`Courtois has missed Madrid's last two fixtures and is likely to be absent again for Saturday's match against Valencia.`\
+https://nytimes.com/athletic/6255275/2025/04/04/thibaut-courtois-injury-champions-league/
+
+**Who are the Hurricanes' most consistent players, and how do they maintain it?**\
+`Is it "a Benjamin Button-type thing" for Jordan Martinook?`\
+https://nytimes.com/athletic/6254579/2025/04/04/hurricanes-scoring-jordan-martinook/
+
 **Warriors offer blueprint on how to beat L.A. in Luka's worst game as Laker**\
 `Golden State's switch-heavy scheme was a problem for Dončić and company. "That performance from me was unacceptable."`\
 https://nytimes.com/athletic/6254755/2025/04/04/luka-doncic-lakers-warriors-nba/

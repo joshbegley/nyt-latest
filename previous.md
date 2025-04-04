@@ -1,3 +1,15 @@
+**Arteta says De Bruyne is one of the best players in Premier League history - do you agree?**\
+`Where does Kevin De Bruyne sit now in the list of greatest Premier League players ever?`\
+https://nytimes.com/athletic/6255139/2025/04/04/arteta-de-bruyne-best-player-premier-league-history-ranking/
+
+**Ancelotti confident Courtois will be fit for Arsenal game**\
+`Courtois has missed Madrid's last two fixtures and is likely to be absent again for Saturday's match against Valencia.`\
+https://nytimes.com/athletic/6255275/2025/04/04/thibaut-courtois-injury-champions-league/
+
+**Who are the Hurricanes' most consistent players, and how do they maintain it?**\
+`Is it "a Benjamin Button-type thing" for Jordan Martinook?`\
+https://nytimes.com/athletic/6254579/2025/04/04/hurricanes-scoring-jordan-martinook/
+
 **Warriors offer blueprint on how to beat L.A. in Luka's worst game as Laker**\
 `Golden State's switch-heavy scheme was a problem for Dončić and company. "That performance from me was unacceptable."`\
 https://nytimes.com/athletic/6254755/2025/04/04/luka-doncic-lakers-warriors-nba/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6254943/2025/04/04/grand-national-aintree-horse-fat
 **Russell Brand Is Charged With Rape and Sexual Assault in U.K.**\
 `British prosecutors said that they had charged the comedian and actor with offenses between 1999 and 2005 involving four women.`\
 https://nytimes.com/2025/04/04/arts/russell-brand-rape-sexual-assault-charges.html
-
-**Prospect breakdown: What newly-signed defenseman Taige Harding brings to Blackhawks**\
-`The 6-foot-7 lefty spent his senior year with Providence focusing on using his size and physicality.`\
-https://nytimes.com/athletic/6253480/2025/04/04/blackhawks-taige-harding-prospect-breakdown/
-
-**NHL Power Rankings: As playoff picture solidifies, what's left to worry about?**\
-`With less than two weeks left in the regular season, we’re taking a look at what each team’s final fortnight focus should be.`\
-https://nytimes.com/athletic/6254909/2025/04/04/nhl-power-rankings-26/
-
-**In Burisma Letter, Hunter Biden Sought Support from State Department**\
-`While Joe Biden was vice president, his son used the letterhead of a Ukrainian energy company when writing to a U.S. ambassador with ties to the family.`\
-https://nytimes.com/2025/04/04/us/politics/hunter-biden-burisma-letter-italy.html
 
