@@ -1,3 +1,7 @@
+**FPL: A Gameweek 31 wildcard guide and the must-have players to target**\
+`Wildcarding in Gameweek 31 is bound to be a popular move - Abdul Rehman runs through the players you need to put in your team this week`\
+https://nytimes.com/athletic/6249797/2025/04/04/fantasy-premier-league-gameweek-31-wildcard/
+
 **Crystal Palace against Brighton & Hove Albion: A (polite) conversation between rivals**\
 `These bitter rivals meet for the 20th time in the top flight this weekend. Our club writers debate the teams' respective seasons to date`\
 https://nytimes.com/athletic/6244291/2025/04/04/crystal-palace-brighton-hurzeler-glasner/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6252979/2025/04/04/atletico-madrid-eight-game-run-l
 **How do Nottingham Forest keep beating the Premier League's 'Big Six' with hardly any of the ball?**\
 `Nuno’s team may not play like a modern superclub — but when facing teams that do, they’ve consistently found a way to thrive`\
 https://nytimes.com/athletic/6252962/2025/04/04/nottingham-forest-beating-big-six-record/
-
-**Want to sign Isak? Try £150m as a conversation-starter – but it might be a short chat**\
-`Arsenal and Liverpool both want him but, you know what? So do Newcastle - and they have no intention of letting him go`\
-https://nytimes.com/athletic/6252806/2025/04/04/alexander-isak-transfer-newcastle/
 
