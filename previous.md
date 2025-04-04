@@ -1,4 +1,4 @@
-**Yoon Ejected After South Korean Court Upholds Impeachment**\
+**Yoon Ejected as South Korean Court Upholds Impeachment**\
 `South Korea’s Constitutional Court ruled unanimously to remove former President Yoon Suk Yeol. Protesters reacted to the decision, some cheered while others showed their disappointment.`\
 https://nytimes.com/video/world/asia/100000010091597/yoon-south-korea-impeachment-ruling.html
 
