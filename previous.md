@@ -1,3 +1,7 @@
+**Dodgers place Freddie Freeman on IL with ankle sprain days after fall in shower**\
+`The Dodgers wanted to exercise caution with a cross-country flight and cold, wet conditions on the East Coast ahead.`\
+https://nytimes.com/athletic/6254112/2025/04/03/dodgers-freddie-freeman-ankle-injury-shower-update/
+
 **Police Shut Area Near Seoul Court as Protesters Amass Before Ruling**\
 `More than 14,000 police officers have been deployed ahead of Friday’s decision by the Constitutional Court in the impeachment case of President Yoon Suk Yeol.`\
 https://nytimes.com/2025/04/03/world/asia/seoul-protests-yoon-south-korea.html
@@ -11,7 +15,7 @@ https://nytimes.com/2025/04/03/us/tornadoes-south-midwest.html
 https://nytimes.com/live/2025/04/03/world/south-korea-yoon/heres-the-latest
 
 **Live Updates: Court Will Decide Fate of South Korea’s President**\
-`Eight justices will rule on whether Yoon Suk Yeol’s impeachment for declaring martial law was justified. If they decide it wasn’t, he will be returned to power.`\
+`Eight justices will rule on whether Yoon Suk Yeol’s impeachment for declaring martial law was justified. Their decision will determine whether he returns to power.`\
 https://nytimes.com/live/2025/04/03/world/south-korea-yoon
 
 **Workers Forced to Leave Foreign Policy Center as Trump Presses Shutdown**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6253993/2025/04/03/case-keenum-bears-contract-caleb
 **But, How Will She Teach Pilates in an Ankle Monitor?**\
 `Convicted of fraud and facing the possibility of decades in prison, Charlie Javice was concerned about how a monitoring device would affect her job.`\
 https://nytimes.com/2025/04/03/style/charlie-javice-ankle-monitor-pilates.html
-
-**C.E.O. Choked Man Who Danced Barefoot on Cruise Ship, U.S. Says**\
-`Kenneth D. DeGiorgio, the chief executive of First American Financial, was charged with assault. His lawyers say that the other man was harassing the executive’s wife.`\
-https://nytimes.com/2025/04/03/us/ceo-choking-virgin-cruise.html
 

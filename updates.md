@@ -1,3 +1,11 @@
+**Dodgers place Freddie Freeman on IL with ankle sprain days after fall in shower**\
+`The Dodgers wanted to exercise caution with a cross-country flight and cold, wet conditions on the East Coast ahead.`\
+https://nytimes.com/athletic/6254112/2025/04/03/dodgers-freddie-freeman-ankle-injury-shower-update/
+
+**Live Updates: Court Will Decide Fate of South Korea’s President**\
+`Eight justices will rule on whether Yoon Suk Yeol’s impeachment for declaring martial law was justified. Their decision will determine whether he returns to power.`\
+https://nytimes.com/live/2025/04/03/world/south-korea-yoon
+
 **Police Shut Area Near Seoul Court as Protesters Amass Before Ruling**\
 `More than 14,000 police officers have been deployed ahead of Friday’s decision by the Constitutional Court in the impeachment case of President Yoon Suk Yeol.`\
 https://nytimes.com/2025/04/03/world/asia/seoul-protests-yoon-south-korea.html
