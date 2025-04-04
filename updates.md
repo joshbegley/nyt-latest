@@ -1,3 +1,11 @@
+**Kelly withdraws from England squad with foot injury**\
+`The Football Association has confirmed the winger has returned to Arsenal for treatment.`\
+https://nytimes.com/athletic/6255606/2025/04/04/chloe-kelly-england-arsenal-injury/
+
+**Live Q&A: Talking baseball with Eno Sarris on Friday 4/4 at 2:00 p.m. ET**\
+`Submit your baseball questions for Eno Sarris' latest live chat. `\
+https://nytimes.com/athletic/6253500/2025/04/04/sarris-live-chat-mlb-fantasy-baseball-4-4/
+
 **SpaceX Astronauts Splash Down Off California Coast for the First Time**\
 `After years of NASA and private crews returning to Earth near Florida, the company shifted its landing zone to the West Coast for the private Fram2 mission.`\
 https://nytimes.com/2025/04/04/science/spacex-fram2-splashdown-california.html

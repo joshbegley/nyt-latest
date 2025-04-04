@@ -1,3 +1,11 @@
+**Kelly withdraws from England squad with foot injury**\
+`The Football Association has confirmed the winger has returned to Arsenal for treatment.`\
+https://nytimes.com/athletic/6255606/2025/04/04/chloe-kelly-england-arsenal-injury/
+
+**Live Q&A: Talking baseball with Eno Sarris on Friday 4/4 at 2:00 p.m. ET**\
+`Submit your baseball questions for Eno Sarris' latest live chat. `\
+https://nytimes.com/athletic/6253500/2025/04/04/sarris-live-chat-mlb-fantasy-baseball-4-4/
+
 **SpaceX Astronauts Splash Down Off California Coast for the First Time**\
 `After years of NASA and private crews returning to Earth near Florida, the company shifted its landing zone to the West Coast for the private Fram2 mission.`\
 https://nytimes.com/2025/04/04/science/spacex-fram2-splashdown-california.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6255618/2025/04/04/blues-dylan-holloway-injury-upda
 **Anaheim mayor pens letter to Angels, hopes to fix fractured relationship**\
 `The relationship between the team and the city has been frosty since a $320 million land deal fell through in 2022.`\
 https://nytimes.com/athletic/6254340/2025/04/04/anaheim-mayor-angels-letter-relationship/
-
-**Triage**\
-`What one image shows about the aftermath of a strike on a shelter in Gaza.`\
-https://nytimes.com/2025/04/04/world/middleeast/gaza-school-strike-hospital.html
-
-**Iowa guard Josh Dix announces transfer to Creighton**\
-`Dix averaged 14.4 points, 3.2 rebounds and 2.8 assists per game at Iowa last season.`\
-https://nytimes.com/athletic/6255653/2025/04/04/josh-dix-transfer-iowa-creighton/
 

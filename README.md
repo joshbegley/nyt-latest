@@ -1,3 +1,15 @@
+**Bruce Pearl, Rick Pitino earn AP coach of the year in award's first-ever tie**\
+`Of the ballots cast by the national media panel that ranks the AP Top 25 throughout the season, Pearl and Pitino each received 20 votes.`\
+https://nytimes.com/athletic/6255639/2025/04/04/rick-pitino-bruce-pearl-ap-coach-of-year/
+
+**Inside MLS youth league's experiment of replacing results with 'quality of play'**\
+`In the name of youth development, MLS Next is moving away from traditional results and instead taking on a more holistic approach.`\
+https://nytimes.com/athletic/6255644/2025/04/04/inside-mls-youth-leagues-experiment-of-replacing-results-with-quality-of-play/
+
+**Miley Cyrus’s Apocalyptic Pop, and 9 More New Songs**\
+`Hear tracks by Bruce Springsteen, Elton John and Brandi Carlile, Wet Leg and others.`\
+https://nytimes.com/2025/04/04/arts/music/playlist-miley-cyrus-ed-sheeran-bruce-springsteen.html
+
 **Kelly withdraws from England squad with foot injury**\
 `The Football Association has confirmed the winger has returned to Arsenal for treatment.`\
 https://nytimes.com/athletic/6255606/2025/04/04/chloe-kelly-england-arsenal-injury/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/04/business/india-trump-tariffs.html
 **Felon Freed by Trump Is Sent Back to Prison After Child Assault Charge**\
 `Jonathan Braun, a drug smuggler, on Friday made an obscene gesture toward people in the courtroom and complained about his legal representation.`\
 https://nytimes.com/2025/04/04/nyregion/jonathan-braun-trump.html
-
-**For Pierce Brosnan, the World Is Just Enough**\
-`There has always been more to this actor than meets the eye. But if James Bond is still all you see, he’s OK with that.`\
-https://nytimes.com/2025/04/04/arts/television/pierce-brosnan-mobland-black-bag.html
-
-**Blues' Dylan Holloway day to day: Who enters lineup as they go for a record 12th straight?**\
-`Holloway is having a breakout season with St. Louis, ranking second on the club in goals (26) and third in points (63).`\
-https://nytimes.com/athletic/6255618/2025/04/04/blues-dylan-holloway-injury-update/
-
-**Anaheim mayor pens letter to Angels, hopes to fix fractured relationship**\
-`The relationship between the team and the city has been frosty since a $320 million land deal fell through in 2022.`\
-https://nytimes.com/athletic/6254340/2025/04/04/anaheim-mayor-angels-letter-relationship/
 
