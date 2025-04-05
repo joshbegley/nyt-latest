@@ -1,5 +1,5 @@
 **Trinity Rodman scores in first game back with USWNT**\
-`It was the U.S. forward's first game back with the team since the Olympics `\
+`It was the U.S. forward's first game back with the team since the Olympics.`\
 https://nytimes.com/athletic/6257852/2025/04/05/trinity-rodman-goal-uswnt-brazil-soccer/
 
 **How Canucks crushed Ducks with franchise-record offensive outburst: 3 takeaways**\

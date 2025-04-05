@@ -1,3 +1,7 @@
+**Byron Buxton channels inner 'Energizer Bunny' to help Twins break out of slumber**\
+`The season is but a week old, and there have already been several sightings of the Twins' Energizer Bunny.`\
+https://nytimes.com/athletic/6257861/2025/04/05/byron-buxton-energizer-bunny-twins-beat-astros/
+
 **Trinity Rodman scores in first game back with USWNT**\
 `It was the U.S. forward's first game back with the team since the Olympics.`\
 https://nytimes.com/athletic/6257852/2025/04/05/trinity-rodman-goal-uswnt-brazil-soccer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6257544/2025/04/05/carla-bernat-escuder-win-anwa/
 **Flick 'happy' with Barcelona draw against Betis: 'We have one point more'**\
 `The draw extended Barca's lead at the top of La Liga to four points, after Real Madrid were defeated at home by Valencia earlier on Saturday`\
 https://nytimes.com/athletic/6257684/2025/04/05/flick-barcelona-betis-la-liga-title/
-
-**Amorim: Man Utd need to sign ‘one or two big players’**\
-`"It's characteristics that we don't have in our squad, trying to see the gaps," Amorim said ahead of Sunday's Manchester derby.`\
-https://nytimes.com/athletic/6255233/2025/04/05/ruben-amorim-manchester-united-transfers/
 
