@@ -1,3 +1,11 @@
+**The Pulse: Why today's Final Four is special**\
+`Welcome to The Pulse, The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/6256499/2025/04/05/final-four-teams-favorites-picks-the-pulse/
+
+**2 Books to Keep You Pleasantly Diverted**\
+`A collection of autobiographical sketches; a complicated Japanese mystery.`\
+https://nytimes.com/2025/04/05/books/read-like-wind-recommendations.html
+
 **UCLA was trounced by UConn, but can the Bruins get back to the Final Four next season?**\
 `“We got exposed,” UCLA coach Cori Close said. “We got our butts kicked today. And it stings right now.”`\
 https://nytimes.com/athletic/6257035/2025/04/05/ucla-uconn-final-four-loss/
