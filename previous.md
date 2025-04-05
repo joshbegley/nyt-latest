@@ -1,3 +1,19 @@
+**Explained: Premier League's letter on ATP rules and City's issue with shareholder loans**\
+`The Premier League has written to its clubs about City's second legal challenge — but what does it all mean?`\
+https://nytimes.com/athletic/6255724/2025/04/05/premier-league-atp-letter-manchester-city-loans/
+
+**Detained in The Hague, Duterte Pursues a Political Comeback at Home**\
+`Rodrigo Duterte, the former Philippine president who is facing charges of crimes against humanity, is running for mayor in a race analysts say he could win.`\
+https://nytimes.com/2025/04/05/world/asia/duterte-mayor-davao.html
+
+**Connections: Sports Edition Coach: Hints for April 5, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6256404/2025/04/05/connections-sports-edition-hints-for-april-5-2025/
+
+**Corrections: April 5, 2025**\
+`Corrections that appeared in print on Saturday, April 5, 2025.`\
+https://nytimes.com/2025/04/05/pageoneplus/corrections-april-5-2025.html
+
 **Quote of the Day: After ‘Adolescence,’ a Teen Handles School and Fame**\
 `Quotation of the Day for Saturday, April 5, 2025.`\
 https://nytimes.com/2025/04/04/pageoneplus/quote-of-the-day-after-adolescence-a-teen-handles-school-and-fame.html
@@ -21,20 +37,4 @@ https://nytimes.com/interactive/2025/04/04/upshot/trump-tariffs-reciprocal.html
 **Judge Permanently Bars N.I.H. From Limiting Medical Research Funding**\
 `The decision came as an initial win for a broad coalition of academic institutions that had argued the policy jeopardized ongoing research, but it set up an almost certain appeal.`\
 https://nytimes.com/2025/04/04/us/politics/nih-medical-research-funding.html
-
-**‘White Lotus’ Takes On Touchy Subjects. The Southern Accent Is One of Them.**\
-`Viewers have obsessed over whether the accents in Season 3 were credible, or another atrocious attempt by Hollywood to replicate a Southern dialect.`\
-https://nytimes.com/interactive/2025/04/04/us/2025-03-28-white-lotus-accent-index.html
-
-**The U.S. awarded large space contracts to companies owned by Elon Musk and Jeff Bezos.**\
-`By Tim Balk`\
-https://nytimes.com/live/2025/04/04/us/trump-news-updates/the-us-awarded-large-space-contracts-to-companies-owned-by-elon-musk-and-jeff-bezos
-
-**Jake Middleton injured as slumping Wild go winless on 3-game trip: 3 takeaways**\
-`The Wild, who are crumbling at the seams, are 1-4-2 in their past seven games after a 3-1 loss to the Islanders on Friday. `\
-https://nytimes.com/athletic/6256450/2025/04/04/wild-islanders-jake-middleton-injury/
-
-**Pistons beat Raptors to clinch first playoff berth since 2019**\
-`Detroit went from 14 wins last season to 43 (and counting) now, with a guaranteed spot in the postseason.`\
-https://nytimes.com/athletic/6256584/2025/04/04/pistons-nba-playoff-berth-raptors/
 

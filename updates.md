@@ -1,3 +1,19 @@
+**Explained: Premier League's letter on ATP rules and City's issue with shareholder loans**\
+`The Premier League has written to its clubs about City's second legal challenge — but what does it all mean?`\
+https://nytimes.com/athletic/6255724/2025/04/05/premier-league-atp-letter-manchester-city-loans/
+
+**Detained in The Hague, Duterte Pursues a Political Comeback at Home**\
+`Rodrigo Duterte, the former Philippine president who is facing charges of crimes against humanity, is running for mayor in a race analysts say he could win.`\
+https://nytimes.com/2025/04/05/world/asia/duterte-mayor-davao.html
+
+**Connections: Sports Edition Coach: Hints for April 5, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6256404/2025/04/05/connections-sports-edition-hints-for-april-5-2025/
+
+**Corrections: April 5, 2025**\
+`Corrections that appeared in print on Saturday, April 5, 2025.`\
+https://nytimes.com/2025/04/05/pageoneplus/corrections-april-5-2025.html
+
 **Quote of the Day: After ‘Adolescence,’ a Teen Handles School and Fame**\
 `Quotation of the Day for Saturday, April 5, 2025.`\
 https://nytimes.com/2025/04/04/pageoneplus/quote-of-the-day-after-adolescence-a-teen-handles-school-and-fame.html
