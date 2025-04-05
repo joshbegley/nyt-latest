@@ -1,3 +1,11 @@
+**U.S. Soccer and NWSL react to potential 2031 Women's World Cup in the U.S.**\
+`U.S. Soccer says it's a 'passionate supporter' of a 48-team Women's World Cup`\
+https://nytimes.com/athletic/6257208/2025/04/05/us-soccer-nwsl-2031-world-cup-bid/
+
+**South Carolina vs. UConn odds: Huskies favored in women's national title game**\
+`UConn-South Carolina is the final game we deserve. Legacies will solidify and hoop dreams will actualize on Sunday afternoon.`\
+https://nytimes.com/athletic/6256044/2025/04/05/south-carolina-uconn-womens-ncaa-tournament-championship-odds-betting-how-to-watch/
+
 **Prosecutors on George Santos Case Seek 7-Year Sentence**\
 `The disgraced former congressman is set to be sentenced on April 25. His lawyers asked for a penalty of two years, the minimum allowed.`\
 https://nytimes.com/2025/04/05/nyregion/george-santos-sentencing-prison.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/05/sports/golf/dave-pelz-dead.html
 **The Public School Programs Trump Has Threatened**\
 `The Trump administration has a new directive for U.S. public schools: Cut D.E.I. programs or face federal funding cuts. Dana Goldstein, who covers education for The New York Times, describes what programs might be targeted by the directive, which is already being challenged in court.`\
 https://nytimes.com/video/us/100000010091142/the-public-school-programs-trump-has-threatened.html
-
-**Netanyahu Will Meet Trump in Washington**\
-`The Israeli prime minister will visit President Trump at the White House on Monday amid his nation’s renewed campaign in Gaza.`\
-https://nytimes.com/2025/04/05/world/middleeast/netanyahu-trump-washington.html
-
-**Sammy Smith, NASCAR Xfinity drivers strike different tone after post-Martinsville meeting**\
-`A contrite Sammy Smith acknowledged he "made a mistake" after NASCAR warned Xfinity Series drivers to watch their actions on the track. `\
-https://nytimes.com/athletic/6257136/2025/04/05/sammy-smith-nascar-xfinity-series-martinsville-penalty-apology/
 
