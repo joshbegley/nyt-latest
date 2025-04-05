@@ -1,3 +1,7 @@
+**Celtics' Jaylen Brown, adapting to injury, studies Paul Pierce game tape**\
+`Dealing with a persistent knee issue, Brown sees it as an opportunity to learn and reimagine himself and his game.`\
+https://nytimes.com/athletic/6256872/2025/04/05/celtics-jaylen-brown-studies-paul-pierce/
+
 **Grass fires interrupt Japanese Grand Prix qualifying and practice sessions**\
 `Wild fires interrupt qualifying and practice sessions and could be a concern ahead of Japanese Grand Prix `\
 https://nytimes.com/athletic/6256867/2025/04/05/japanese-grand-prix-qualifying-practice-wild-fires/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6256733/2025/04/05/wild-islanders-nhl-playoff-stand
 **After Spurs, Romaine Mundle is making his own path - and flying with Sunderland**\
 `Tottenham academy graduate Mundle is lighting up the Championship - and has Premier League ambitions at Sunderland`\
 https://nytimes.com/athletic/6254726/2025/04/05/romaine-mundle-tottenham-hotspur-sunderland-interview/
-
-**When is the earliest Nottingham Forest can qualify for the Champions League?**\
-`Forest now have a roughly 90% chance of qualifying for next season's Champions League. So when is the earliest they can do it?`\
-https://nytimes.com/athletic/6255027/2025/04/05/nottingham-forest-ucl-champions-league-qualification-uefa/
 
