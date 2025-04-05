@@ -1,3 +1,7 @@
+**Reds break scoreless streak, still looking to end losing streak**\
+`There’s a cliche that hitting is contagious, but for this Reds team, that's one illness not going through the clubhouse.`\
+https://nytimes.com/athletic/6256763/2025/04/05/reds-scoreless-losing-streak/
+
 **Mourinho handed three-match ban after Istanbul derby nose grab incident**\
 `The Fenerbahce head coach appeared to pinch of Galatasaray boss Okan Buruk's nose following Wednesday's Istanbul derby.`\
 https://nytimes.com/athletic/6250836/2025/04/05/jose-mourinho-ban-galatasaray-fenerbahce/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6257340/2025/04/05/ipswich-backpass-wolves-goalkeep
 **Floods Inundate Central U.S.**\
 `A relentless storm continued to dump rain across the Midwest and South, causing increased flooding from Texas to Ohio.`\
 https://nytimes.com/video/us/100000010094026/flooding-central-us-severe-weather.html
-
-**Trump Administration Fires U.S. Aid Workers in Quake Zone in Myanmar**\
-`The move comes despite Secretary of State Marco Rubio saying the U.S. would still do some humanitarian work while shrinking foreign aid. Democratic lawmakers have denounced the cuts.`\
-https://nytimes.com/2025/04/05/us/politics/aid-workers-myanmar-fired.html
 

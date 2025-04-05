@@ -1,3 +1,11 @@
+**Mourinho handed three-match ban after Istanbul derby nose grab incident**\
+`The Fenerbahce head coach appeared to pinch of Galatasaray boss Okan Buruk's nose following Wednesday's Istanbul derby.`\
+https://nytimes.com/athletic/6250836/2025/04/05/jose-mourinho-ban-galatasaray-fenerbahce/
+
+**Cody Bellinger's back injury sidelines him for 2nd straight game**\
+`The Yankees are already missing almost a full team to the injured list.`\
+https://nytimes.com/athletic/6257402/2025/04/05/yankees-cody-bellingers-back-injury/
+
 **Musk Says He Hopes Europe and U.S. Move to a ‘Zero-Tariff Situation’**\
 `The billionaire adviser to the Trump administration appeared to part ways with the president in a videoconference appearance with Italy’s far-right League party.`\
 https://nytimes.com/2025/04/05/us/politics/musk-says-he-hopes-europe-and-us-move-to-a-zero-tariff-situation.html
