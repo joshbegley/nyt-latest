@@ -1,4 +1,4 @@
-**As a Candidate, He Wanted to Ban Congressional Stock Trading. In Office, He Trades Freely.**\
+**He Said He Would Ban Congressional Stock Trading. Now in Office, He Trades Freely.**\
 `Representative Rob Bresnahan Jr., who campaigned on prohibiting stock trading by members of Congress, has emerged as one of the most active stock traders in the freshman class.`\
 https://nytimes.com/2025/04/05/us/politics/congress-stock-trading-ban.html
 
