@@ -1,5 +1,9 @@
 **Senate Approves G.O.P. Budget Plan After Overnight Vote-a-Thon**\
 `Republicans pushed through their blueprint for tax and spending cuts after Democrats forced them to cast politically painful votes into the early morning on every element of President Trump’s agenda.`\
+https://nytimes.com/2025/04/05/us/politics/senate-budget.html
+
+**Senate Approves G.O.P. Budget Plan After Overnight Vote-a-Thon**\
+`Republicans pushed through their blueprint for tax and spending cuts after Democrats forced them to cast politically painful votes into the early morning on every element of President Trump’s agenda.`\
 https://nytimes.com/2025/04/05/world/europe/senate-budget.html
 
 **England are taking shape before the Euros - but Wiegman has another midfield puzzle to solve**\

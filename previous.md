@@ -1,6 +1,6 @@
 **Senate Approves G.O.P. Budget Plan After Overnight Vote-a-Thon**\
 `Republicans pushed through their blueprint for tax and spending cuts after Democrats forced them to cast politically painful votes into the early morning on every element of President Trump’s agenda.`\
-https://nytimes.com/2025/04/05/world/europe/senate-budget.html
+https://nytimes.com/2025/04/05/us/politics/senate-budget.html
 
 **Should a Killer Profit From Putting His Death Row Writings Up for Sale?**\
 `Albert Jones’s 11 books describe life in prison. His victims’ relatives say his family should not benefit from a sale of his story.`\
