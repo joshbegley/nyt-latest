@@ -1,3 +1,7 @@
+**Spencer Schwellenbach pitches like an ace, again, in Braves' first win of 2025**\
+`Schwellenbach is not pitching like a future MLB ace. He's pitching like a current ace.`\
+https://nytimes.com/athletic/6256703/2025/04/05/braves-marlins-first-win-spencer-schwellenbach-ace/
+
 **Have we finally heard the last of the Dani Olmo and Pau Victor registration saga?**\
 `A Spanish government body has ruled Olmo and Victor can play for the rest of the current campaign. What happens next?`\
 https://nytimes.com/athletic/6255559/2025/04/05/dani-olmo-pau-victor-barcelona-saga/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/6255559/2025/04/05/dani-olmo-pau-victor-barcelona-s
 `Kevin De Bruyne's announcement of his Manchester City departure had us discussing the most influential Premier League midfielders`\
 https://nytimes.com/athletic/6255836/2025/04/05/most-influential-premier-league-midfielders/
 
-**Phillies hand Dodgers first loss as J.T. Realmuto's arm the difference in marquee matchup**\
+**Phillies hand Dodgers first loss as J.T. Realmuto's arm is difference in marquee matchup**\
 `Credit Realmuto with a save. The catcher threw out two would-be stealers late to give the Phillies a win over the undefeated Dodgers.`\
 https://nytimes.com/athletic/6256690/2025/04/05/phillies-dodgers-first-loss-jt-realmuto/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/04/pageoneplus/quote-of-the-day-after-adolescence-a-
 **Women's March Madness projections 2025: Does UConn have the advantage?**\
 `What's your team's chance of winning? Find out here. `\
 https://nytimes.com/athletic/6198041/2025/04/04/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**UConn routs UCLA in Final Four to set up championship game with South Carolina**\
-`UConn is looking for its 12th national championship under coach Geno Auriemma and first since 2016.`\
-https://nytimes.com/athletic/6256694/2025/04/04/uconn-ucla-final-four-result-score/
 

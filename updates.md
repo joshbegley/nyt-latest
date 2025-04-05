@@ -1,3 +1,15 @@
+**Have we finally heard the last of the Dani Olmo and Pau Victor registration saga?**\
+`A Spanish government body has ruled Olmo and Victor can play for the rest of the current campaign. What happens next?`\
+https://nytimes.com/athletic/6255559/2025/04/05/dani-olmo-pau-victor-barcelona-saga/
+
+**Discussing Kevin De Bruyne and the most influential midfielders of the Premier League era**\
+`Kevin De Bruyne's announcement of his Manchester City departure had us discussing the most influential Premier League midfielders`\
+https://nytimes.com/athletic/6255836/2025/04/05/most-influential-premier-league-midfielders/
+
+**Phillies hand Dodgers first loss as J.T. Realmuto's arm the difference in marquee matchup**\
+`Credit Realmuto with a save. The catcher threw out two would-be stealers late to give the Phillies a win over the undefeated Dodgers.`\
+https://nytimes.com/athletic/6256690/2025/04/05/phillies-dodgers-first-loss-jt-realmuto/
+
 **Explained: Premier League's letter on ATP rules and City's issue with shareholder loans**\
 `The Premier League has written to its clubs about City's second legal challenge — but what does it all mean?`\
 https://nytimes.com/athletic/6255724/2025/04/05/premier-league-atp-letter-manchester-city-loans/
