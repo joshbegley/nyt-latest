@@ -1,4 +1,8 @@
 **Max Verstappen takes sensational pole as grass fires interrupt Japanese Grand Prix qualifying**\
+`Max Verstappen sets a lap record in securing pole for the Japanese Grand Prix `\
+https://nytimes.com/athletic/6256867/2025/04/05/japanese-grand-prix-qualifying-practice-grass-fires/
+
+**Max Verstappen takes sensational pole as grass fires interrupt Japanese Grand Prix qualifying**\
 `Max Verstappen set a lap record in securing pole for the Japanese Grand Prix `\
 https://nytimes.com/athletic/6256867/2025/04/05/japanese-grand-prix-qualifying-practice-grass-fires/
 
