@@ -1,3 +1,11 @@
+**PSG win Ligue 1 title with six games to go, remain unbeaten**\
+`The victory over Angers left PSG, who remain unbeaten in Ligue 1 this season, with an insurmountable 24-point lead over second place Monaco.`\
+https://nytimes.com/athletic/6249139/2025/04/05/psg-champions-france-ligue-1-title/
+
+**Protesters gather across the country as anti-Trump rallies get underway.**\
+`By Shaila Dewan`\
+https://nytimes.com/2025/04/05/us/politics/protesters-gather-across-the-country-as-anti-trump-rallies-get-underway.html
+
 **British Carmaker Jaguar Land Rover Pauses Shipments to U.S.**\
 `The luxury automaker, which faces 25 percent import tariffs, said it was halting shipments in April as it addresses the new trading terms.`\
 https://nytimes.com/2025/04/05/business/jaguar-land-rover-tariffs-shipments.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/05/nyregion/george-santos-sentencing-prison.html
 **Ticket prices soar with Alex Ovechkin 1 goal from breaking Wayne Gretzky's record**\
 `If you're trying to watch Ovechkin make history, prepare yourself for a risky, expensive gamble.`\
 https://nytimes.com/athletic/6257192/2025/04/05/alex-ovechkin-washington-capitals-tickets/
-
-**James out of England squad with hamstring injury, Naz called up**\
-`James will miss the reverse fixture with Belgium on Tuesday and return to Chelsea to begin her rehabilitation.`\
-https://nytimes.com/athletic/6257088/2025/04/05/lauren-james-injury-update-england-chelsea/
-
-**Forest without recognised striker for Villa trip after Awoniyi injury**\
-`Awoniyi has been ruled out of a key game against one of Forest’s rivals for Champions League qualification.`\
-https://nytimes.com/athletic/6257201/2025/04/05/nottingham-forest-aston-villa-awoniyi-injury/
 
