@@ -1,3 +1,19 @@
+**Should a Killer Profit From Putting His Death Row Writings Up for Sale?**\
+`Albert Jones’s 11 books describe life in prison. His victims’ relatives say his family should not benefit from a sale of his story.`\
+https://nytimes.com/2025/04/05/nyregion/albert-jones-death-row-inmate-books-sale.html
+
+**How the Broadway Producer Tom Kirdahy Spends His Sundays**\
+`That morning workout he scheduled? He might get around to it. But Mr. Kirdahy is certain to make time for his friends and a quick trip to the theater.`\
+https://nytimes.com/2025/04/05/nyregion/tom-kirdahy-broadway.html
+
+**England are taking shape before Euros - but Wiegman has another midfield puzzle to solve**\
+`England are finding form before their Euros defence but Wiegman's midfield could look very different once the tournament starts in July`\
+https://nytimes.com/athletic/6256421/2025/04/05/england-midfield-euros-wiegman/
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/04/05/crosswords/spelling-bee-forum.html
+
 **Celtics' Jaylen Brown, adapting to injury, studies Paul Pierce game tape**\
 `Dealing with a persistent knee issue, Brown sees it as an opportunity to learn and reimagine himself and his game.`\
 https://nytimes.com/athletic/6256872/2025/04/05/celtics-jaylen-brown-studies-paul-pierce/
@@ -21,20 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/04/05/todays-new-york-times
 **Freshman Joyce Edwards could be South Carolina's spark against UConn in championship**\
 `Edwards broke out of a tournament slump against Texas with 13 points and 11 rebounds in the Final Four.`\
 https://nytimes.com/athletic/6256685/2025/04/05/joyce-edwards-south-carolina-final-four/
-
-**South Carolina makes emphatic statement about its identity in return to national championship**\
-`The Gamecocks will play for their third title in four seasons. They'll have to beat UConn on Sunday to earn it.`\
-https://nytimes.com/athletic/6256790/2025/04/05/south-carolina-makes-emphatic-statement-about-its-identity-in-return-to-national-championship/
-
-**Giants fans get the full Willy Adames experience with a walk-off win in home opener**\
-`The Giants and Mariners traded jabs and body blows all game, which ended with the second straight walk-off win in an Oracle Park opener.`\
-https://nytimes.com/athletic/6256143/2025/04/05/giants-walk-off-wins-home-opener/
-
-**With tensions rising and losses mounting, Wild's playoff spot becoming perilous**\
-`Minnesota is in treacherous waters after going winless in three games and losing Jake Middleton to injury on Long Island.`\
-https://nytimes.com/athletic/6256733/2025/04/05/wild-islanders-nhl-playoff-standings/
-
-**After Spurs, Romaine Mundle is making his own path - and flying with Sunderland**\
-`Tottenham academy graduate Mundle is lighting up the Championship - and has Premier League ambitions at Sunderland`\
-https://nytimes.com/athletic/6254726/2025/04/05/romaine-mundle-tottenham-hotspur-sunderland-interview/
 
