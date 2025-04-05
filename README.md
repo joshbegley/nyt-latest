@@ -1,3 +1,7 @@
+**Jeremiah Estrada is back at Wrigley Field, now in control of a blossoming career**\
+`Estrada was claimed off waivers from the Cubs in November 2023. He has since become one of baseball's better relievers.`\
+https://nytimes.com/athletic/6256924/2025/04/05/jeremiah-estrada-cubs-padres/
+
 **Senate Approves G.O.P. Budget Plan After Overnight Vote-a-Thon**\
 `Republicans pushed through their blueprint for tax and spending cuts after Democrats forced them to cast politically painful votes into the early morning on every element of President Trump’s agenda.`\
 https://nytimes.com/2025/04/05/us/politics/senate-budget.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6256756/2025/04/05/warriors-in-position-for-home-co
 **Rockets' win vs. OKC shows they're already playing like it's the postseason**\
 `Houston has seemingly flipped a switch ahead of its first postseason trip in four years and is sending a message to the rest of the NBA.`\
 https://nytimes.com/athletic/6256698/2025/04/05/rockets-thunder-playoff-preparation/
-
-**The New York Times in Print for Saturday, April 5, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/04/05/todays-new-york-times
 
