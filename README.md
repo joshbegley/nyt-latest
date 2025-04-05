@@ -1,4 +1,8 @@
-**Ticket prices soar with Alex Ovechkin 1 goal from becoming NHL all-time goals leader**\
+**Prosecutors Push for 7-Year Sentence for George Santos**\
+`The disgraced former congressman is set to be sentenced on April 25. His lawyers asked for a penalty of two years, the minimum allowed.`\
+https://nytimes.com/2025/04/05/nyregion/george-santos-sentencing-prison.html
+
+**Ticket prices soar with Alex Ovechkin 1 goal from breaking Wayne Gretzky's record**\
 `If you're trying to watch Ovechkin make history, prepare yourself for a risky, expensive gamble.`\
 https://nytimes.com/athletic/6257192/2025/04/05/alex-ovechkin-washington-capitals-tickets/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/05/world/middleeast/netanyahu-trump-washington.html
 **Sammy Smith, NASCAR Xfinity drivers strike different tone after post-Martinsville meeting**\
 `A contrite Sammy Smith acknowledged he "made a mistake" after NASCAR warned Xfinity Series drivers to watch their actions on the track. `\
 https://nytimes.com/athletic/6257136/2025/04/05/sammy-smith-nascar-xfinity-series-martinsville-penalty-apology/
-
-**Barcelona's Martinez out of Betis match with muscular injury**\
-`Martinez has been a regular in the defence of Hansi Flick's side this season, starting 36 matches across all competitions.`\
-https://nytimes.com/athletic/6257140/2025/04/05/inigo-martinez-barcelona-injury/
 
