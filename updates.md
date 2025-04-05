@@ -1,3 +1,7 @@
+**Red Sox energized by raucous crowd, show fight in winning home opener**\
+`The Red Sox collected their first win in a home opener since 2020. They are optimistic it's just the start of a memorable season.`\
+https://nytimes.com/athletic/6256373/2025/04/04/red-sox-home-opener-win/
+
 **Investors recoil from Trump’s pledge to remake the global economy.**\
 `By Joe Rennison and Danielle Kaye`\
 https://nytimes.com/live/2025/04/04/business/trump-tariffs-stocks-economy/investors-recoil-from-trumps-pledge-to-remake-the-global-economy

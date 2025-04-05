@@ -1,3 +1,7 @@
+**Red Sox energized by raucous crowd, show fight in winning home opener**\
+`The Red Sox collected their first win in a home opener since 2020. They are optimistic it's just the start of a memorable season.`\
+https://nytimes.com/athletic/6256373/2025/04/04/red-sox-home-opener-win/
+
 **Investors recoil from Trump’s pledge to remake the global economy.**\
 `By Joe Rennison and Danielle Kaye`\
 https://nytimes.com/live/2025/04/04/business/trump-tariffs-stocks-economy/investors-recoil-from-trumps-pledge-to-remake-the-global-economy
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/04/04/us/250404-list-of-removed-books-from-
 **Shota Imanaga reinforces his ace status with the help of Cubs' speed**\
 `Imanaga's stellar outing coupled with heads-up plays by Pete Crow-Armstrong and Seiya Suzuki handed the Padres their first loss.`\
 https://nytimes.com/athletic/6256288/2025/04/04/shota-imanaga-cubs-base-running/
-
-**The legend of 'Kerry Bonds' grows in Tigers home opener **\
-`"I think it's a little bit of high praise," Kerry Carpenter said. "I accept the nickname, but I'm probably not going to call myself that."`\
-https://nytimes.com/athletic/6256254/2025/04/04/tigers-home-opener-kerry-bonds-carpenter/
 
