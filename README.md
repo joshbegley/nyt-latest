@@ -1,3 +1,7 @@
+**Yankees' Aaron Judge is 'no-brainer' for Hall of Fame after 1,000 games, manager says**\
+`Aaron Boone was impressed after Judge became the first player in MLB history with 321 home runs in his first 1,000 games.`\
+https://nytimes.com/athletic/6256555/2025/04/04/yankees-aaron-judge-1000-games-mlb-history/
+
 **Women's March Madness projections 2025: Does UConn have the advantage?**\
 `What's your team's chance of winning? Find out here. `\
 https://nytimes.com/athletic/6198041/2025/04/04/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/04/nyregion/ai-lawyer-replica-new-york.html
 **Why the Central U.S. Is Experiencing Severe Flooding**\
 `Meteorologists say flooding could be catastrophic this week in parts of the country. Judson Jones, a meteorologist and reporter for The New York Times, describes how the ground is being dangerously saturated by a series of storms.`\
 https://nytimes.com/video/weather/100000010089949/why-the-central-us-is-experiencing-severe-flooding.html
-
-**The Mets played a dangerous game with Pete Alonso — but for now, it's all just super**\
-`After the Polar Bear crushed a home run in the Mets' home opener, it's difficult to imagine him playing anywhere else.`\
-https://nytimes.com/athletic/6256375/2025/04/04/pete-alonso-mets-home-opener/
 
