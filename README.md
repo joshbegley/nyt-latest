@@ -1,3 +1,7 @@
+**The U.S. awarded large space contracts to companies owned by Elon Musk and Jeff Bezos.**\
+`By Tim Balk`\
+https://nytimes.com/live/2025/04/04/us/trump-news-updates/the-us-awarded-large-space-contracts-to-companies-owned-by-elon-musk-and-jeff-bezos
+
 **Jake Middleton injured as slumping Wild go winless on 3-game trip: 3 takeaways**\
 `The Wild, who are crumbling at the seams, are 1-4-2 in their past seven games after a 3-1 loss to the Islanders on Friday. `\
 https://nytimes.com/athletic/6256450/2025/04/04/wild-islanders-jake-middleton-injury/
@@ -22,7 +26,7 @@ https://nytimes.com/2025/04/04/crosswords/daily-puzzle-2025-04-05.html
 `We don't know what rookie Kristian Campbell may tell his grandkids in 50 years about Friday's win, but there could be a lot to discuss. `\
 https://nytimes.com/athletic/6256457/2025/04/04/red-sox-cardinals-home-opener-kristian-campbell/
 
-**David Bailey, former Stanford edge rusher, commits to Texas Tech**\
+**David Bailey, former Stanford edge rusher, signs with Texas Tech**\
 `Bailey spent his first three years with the Cardinal, but entered the portal after the recent firing of coach Troy Taylor.`\
 https://nytimes.com/athletic/6256446/2025/04/04/david-bailey-texas-tech-commit-transfer-portal/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6256447/2025/04/04/wayne-gretzky-alex-ovechkin-reco
 **Texas A&M to hire Samford's Bucky McMillan as coach**\
 `McMillan is set to replace Buzz Williams at Texas A&M after Williams left for the job at Maryland.`\
 https://nytimes.com/athletic/6256504/2025/04/04/texas-am-bucky-mcmillan-samford-coach/
-
-**South Carolina downs Texas in women's Final Four to return to title game**\
-`South Carolina is vying for its third national championship in four years.`\
-https://nytimes.com/athletic/6256513/2025/04/04/south-carolina-texas-final-four-score-result/
 
