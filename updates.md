@@ -1,3 +1,11 @@
+**Judge Permanently Bars N.I.H. From Limiting Medical Research Funding**\
+`The decision came as an initial win for a broad coalition of academic institutions that had argued the policy jeopardized ongoing research, but it set up an almost certain appeal.`\
+https://nytimes.com/2025/04/04/us/politics/nih-medical-research-funding.html
+
+**‘White Lotus’ Takes On Touchy Subjects. The Southern Accent Is One of Them.**\
+`Viewers have obsessed over whether the accents in Season 3 were credible, or another atrocious attempt by Hollywood to replicate a Southern dialect.`\
+https://nytimes.com/interactive/2025/04/04/us/2025-03-28-white-lotus-accent-index.html
+
 **The U.S. awarded large space contracts to companies owned by Elon Musk and Jeff Bezos.**\
 `By Tim Balk`\
 https://nytimes.com/live/2025/04/04/us/trump-news-updates/the-us-awarded-large-space-contracts-to-companies-owned-by-elon-musk-and-jeff-bezos
