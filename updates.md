@@ -1,3 +1,15 @@
+**The Mets played a dangerous game with Pete Alonso — but for now, it's all just super**\
+`After the Polar Bear crushed a home run in the Mets' home opener, it's difficult to imagine him playing anywhere else.`\
+https://nytimes.com/athletic/6256375/2025/04/04/pete-alonso-mets-home-opener/
+
+**Video Shows Aid Workers Killed in Gaza Under Gunfire Barrage, With Ambulance Lights On**\
+`The U.N. has said Israel killed the workers. The video appears to contradict Israel’s version of the incident, which described the vehicles as “advancing suspiciously” without headlights or emergency signals.`\
+https://nytimes.com/2025/04/04/world/middleeast/gaza-israel-aid-workers-deaths-video.html
+
+**Greenberg: Cubs return to Wrigley Field and give their fans some home-opening hope**\
+`After two 83-win seasons and a too-long playoff drought, the Cubs look good enough to win 90 games, draw 3 million fans and win the Central.`\
+https://nytimes.com/athletic/6256287/2025/04/04/cubs-padres-home-opener-wrigley-field/
+
 **Red Sox energized by raucous crowd, show fight in winning home opener**\
 `The Red Sox collected their first win in a home opener since 2020. They are optimistic it's just the start of a memorable season.`\
 https://nytimes.com/athletic/6256373/2025/04/04/red-sox-home-opener-win/
