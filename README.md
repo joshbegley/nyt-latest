@@ -1,3 +1,7 @@
+**Israel Says Its Account of Rescue Workers Killed in Gaza Was Partly ‘Mistaken’**\
+`The Israeli military had previously asserted that the workers had been “advancing suspiciously” toward its troops. A video obtained by The New York Times on Friday appeared to contradict that account.`\
+https://nytimes.com/2025/04/05/world/middleeast/israel-killing-rescue-workers-gaza.html
+
 **After Trump’s Tariffs, Stocks Plunged but Penguin Memes Ticked Up**\
 `The internet poked fun at the Trump administration’s decision to impose new tariffs on Heard Island and McDonald Islands, Australian territories near Antarctica where many penguins but no people live.`\
 https://nytimes.com/2025/04/05/world/americas/penguins-tariffs-island.html
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/6257528/2025/04/05/red-sox-kristian-campbell-backup
 **Justice Dept. Accuses Top Immigration Lawyer of Failing to Follow Orders**\
 `Erez Reuveni conceded in court that the deportation last month of Kilmar Armando Abrego Garcia, who had a court order allowing him to stay in the United States, should never have taken place.`\
 https://nytimes.com/2025/04/05/us/politics/justice-dept-immigration-lawyer-leave.html
-
-**Staple: Rangers come up small in a big spot once again**\
-`In game No. 76 against local rival New Jersey, the Rangers looked like a team still trying to figure out their season.
-`\
-https://nytimes.com/athletic/6257416/2025/04/05/new-york-rangers-new-jersey-devils-score/
 
