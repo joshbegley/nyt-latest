@@ -1,3 +1,7 @@
+**Ex-Aides to Texas Attorney General Win $6.6 Million in Whistle-Blower Case**\
+`A judge found that four whistle-blowers who accused Ken Paxton, the Texas attorney general, of corruption and reported him to the F.B.I. were unjustly fired.`\
+https://nytimes.com/2025/04/05/us/ken-paxton-aides-whistleblowers-texas-ag.html
+
 **Trump Family’s Cash Registers Ring as Financial Meltdown Plays Out**\
 `The party was on at a Saudi-backed LIV Golf tournament at the president’s Doral resort in Florida and a fund-raiser at Mar-a-Lago, even as markets tumbled.`\
 https://nytimes.com/2025/04/05/us/politics/trump-family-saudi-golf.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/05/business/jaguar-land-rover-tariffs-shipments.html
 **Priest Is Fatally Shot Outside His Parish Rectory**\
 `The Rev. Arul Carasala was found outside his parish rectory in Kansas on Thursday, officials said. An Oklahoma man was arrested, though a motive remained unknown.`\
 https://nytimes.com/2025/04/05/us/catholic-priest-shot-kansas.html
-
-**Carmelo Anthony, Dwight Howard, Sue Bird among 2025 Hall of Fame class**\
-`The members of the Naismith Memorial Basketball Hall of Fame's 2025 class were revealed at the men's Final Four in San Antonio on Saturday.`\
-https://nytimes.com/athletic/6256324/2025/04/05/basketball-hall-of-fame-2025-class-carmelo-anthony-sue-bird/
 
