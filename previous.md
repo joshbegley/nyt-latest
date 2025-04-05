@@ -1,3 +1,7 @@
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/04/04/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **UConn routs UCLA in Final Four to set up championship game with South Carolina**\
 `UConn is looking for its 12th national championship under coach Geno Auriemma and first since 2016.`\
 https://nytimes.com/athletic/6256694/2025/04/04/uconn-ucla-final-four-result-score/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6256584/2025/04/04/pistons-nba-playoff-berth-raptor
 **Yankees' Aaron Judge is 'no-brainer' for Hall of Fame after 1,000 games, manager says**\
 `Aaron Boone was impressed after Judge became the first player in MLB history with 321 home runs in his first 1,000 games.`\
 https://nytimes.com/athletic/6256555/2025/04/04/yankees-aaron-judge-1000-games-mlb-history/
-
-**Women's March Madness projections 2025: Does UConn have the advantage?**\
-`What's your team's chance of winning? Find out here. `\
-https://nytimes.com/athletic/6198041/2025/04/04/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
 
