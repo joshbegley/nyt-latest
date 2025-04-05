@@ -1,3 +1,7 @@
+**Justice Dept. Lawyer Who Criticized Administration in Court Is Put on Leave**\
+`Erez Reuveni is the latest in a series of career officials who have faced punitive action after refusing to comply with a directive they deemed illegal or unethical.`\
+https://nytimes.com/2025/04/05/us/politics/justice-dept-immigration-lawyer-leave.html
+
 **Staple: Rangers come up small in a big spot once again**\
 `In game No. 76 against local rival New Jersey, the Rangers looked like a team still trying to figure out their season.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6257377/2025/04/05/wesley-fofana-injury-update-surg
 **Ex-Aides to Texas Attorney General Win $6.6 Million in Whistle-Blower Case**\
 `A judge found that four whistle-blowers who accused Ken Paxton, the Texas attorney general, of corruption and reported him to the F.B.I. were unjustly fired.`\
 https://nytimes.com/2025/04/05/us/ken-paxton-aides-whistleblowers-texas-ag.html
-
-**Trump Family’s Cash Registers Ring as Financial Meltdown Plays Out**\
-`The party was on at a Saudi-backed LIV Golf tournament at the president’s Doral resort in Florida and a fund-raiser at Mar-a-Lago, even as markets tumbled.`\
-https://nytimes.com/2025/04/05/us/politics/trump-family-saudi-golf.html
 
