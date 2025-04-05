@@ -1,3 +1,31 @@
+**Giants fans get the full Willy Adames experience with a walk-off win in home opener**\
+`The Giants and Mariners traded jabs and body blows all game, which ended with the second straight walk-off win in an Oracle Park opener. `\
+https://nytimes.com/athletic/6256143/2025/04/05/giants-walk-off-wins-home-opener/
+
+**With tensions rising and losses mounting, Wild's playoff spot becoming perilous**\
+`Minnesota is in treacherous waters after going winless in three games and losing Jake Middleton to injury on Long Island.`\
+https://nytimes.com/athletic/6256733/2025/04/05/wild-islanders-nhl-playoff-standings/
+
+**After Spurs, Romaine Mundle is making his own path - and flying with Sunderland**\
+`Tottenham academy graduate Mundle is lighting up the Championship - and has Premier League ambitions at Sunderland`\
+https://nytimes.com/athletic/6254726/2025/04/05/romaine-mundle-tottenham-hotspur-sunderland-interview/
+
+**When is the earliest Nottingham Forest can qualify for the Champions League?**\
+`Forest now have a roughly 90% chance of qualifying for next season's Champions League. So when is the earliest they can do it?`\
+https://nytimes.com/athletic/6255027/2025/04/05/nottingham-forest-ucl-champions-league-qualification-uefa/
+
+**Ange Postecoglou thinks not enough external voices defend Spurs - is he right?**\
+`Postecoglou made the comments the day after Tottenham Hotspur's defeat against Chelsea`\
+https://nytimes.com/athletic/6255733/2025/04/05/tottenham-ange-postecoglou-media-analysis/
+
+**Could Strasbourg’s form in Ligue 1 impact Chelsea’s European qualification hopes?**\
+`With the BlueCo-owned side the talk of France, there could be consequences for Chelsea`\
+https://nytimes.com/athletic/6246433/2025/04/05/rc-strasbourg-chelsea-europe-impact/
+
+**'It felt like getting dumped' - the Man Utd fans losing their seats near the dugouts to make way for hospitality**\
+`Around 500 supporters who sit close to the dugouts have been told their tickets will be for elsewhere next season`\
+https://nytimes.com/athletic/6254958/2025/04/05/manchester-united-fans-moved-seats-for-hospitality/
+
 **Spencer Schwellenbach pitches like an ace, again, in Braves' first win of 2025**\
 `Schwellenbach is not pitching like a future MLB ace. He's pitching like a current ace.`\
 https://nytimes.com/athletic/6256703/2025/04/05/braves-marlins-first-win-spencer-schwellenbach-ace/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6255559/2025/04/05/dani-olmo-pau-victor-barcelona-s
 **Discussing Kevin De Bruyne and the most influential midfielders of the Premier League era**\
 `Kevin De Bruyne's announcement of his Manchester City departure had us discussing the most influential Premier League midfielders`\
 https://nytimes.com/athletic/6255836/2025/04/05/most-influential-premier-league-midfielders/
-
-**Phillies hand Dodgers first loss as J.T. Realmuto's arm is difference in marquee matchup**\
-`Credit Realmuto with a save. The catcher threw out two would-be stealers late to give the Phillies a win over the undefeated Dodgers.`\
-https://nytimes.com/athletic/6256690/2025/04/05/phillies-dodgers-first-loss-jt-realmuto/
-
-**Explained: Premier League's letter on ATP rules and City's issue with shareholder loans**\
-`The Premier League has written to its clubs about City's second legal challenge — but what does it all mean?`\
-https://nytimes.com/athletic/6255724/2025/04/05/premier-league-atp-letter-manchester-city-loans/
-
-**Detained in The Hague, Duterte Pursues a Political Comeback at Home**\
-`Rodrigo Duterte, the former Philippine president who is facing charges of crimes against humanity, is running for mayor in a race analysts say he could win.`\
-https://nytimes.com/2025/04/05/world/asia/duterte-mayor-davao.html
-
-**Connections: Sports Edition Coach: Hints for April 5, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6256404/2025/04/05/connections-sports-edition-hints-for-april-5-2025/
-
-**Corrections: April 5, 2025**\
-`Corrections that appeared in print on Saturday, April 5, 2025.`\
-https://nytimes.com/2025/04/05/pageoneplus/corrections-april-5-2025.html
-
-**Quote of the Day: After ‘Adolescence,’ a Teen Handles School and Fame**\
-`Quotation of the Day for Saturday, April 5, 2025.`\
-https://nytimes.com/2025/04/04/pageoneplus/quote-of-the-day-after-adolescence-a-teen-handles-school-and-fame.html
-
-**Women's March Madness projections 2025: Does UConn have the advantage?**\
-`What's your team's chance of winning? Find out here. `\
-https://nytimes.com/athletic/6198041/2025/04/04/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
 
