@@ -1,3 +1,7 @@
+**What we saw from Notre Dame's open spring practice**\
+`As has been the custom with Notre Dame’s open practices, we'll offer a running diary of the action and work through the noise.`\
+https://nytimes.com/athletic/6257610/2025/04/05/notre-dame-football-spring-practice-observations/
+
 **How Spanish underdog Carla Bernat Escuder won ANWA**\
 `Bernat Escuder became the seventh Spanish winner at Augusta National in just 45 years.`\
 https://nytimes.com/athletic/6257544/2025/04/05/carla-bernat-escuder-win-anwa/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6257438/2025/04/05/nottingham-forest-injury-news-aw
 **Reds break scoreless streak, still looking to end losing streak**\
 `There’s a cliche that hitting is contagious, but for this Reds team, that's one illness not going through the clubhouse.`\
 https://nytimes.com/athletic/6256763/2025/04/05/reds-scoreless-losing-streak/
-
-**Mourinho handed three-match ban after Istanbul derby nose grab incident**\
-`The Fenerbahce head coach appeared to pinch of Galatasaray boss Okan Buruk's nose following Wednesday's Istanbul derby.`\
-https://nytimes.com/athletic/6250836/2025/04/05/jose-mourinho-ban-galatasaray-fenerbahce/
 
