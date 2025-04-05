@@ -1,3 +1,7 @@
+**Why the Central U.S. Is Experiencing Severe Flooding**\
+`Meteorologists say flooding could be catastrophic this week in parts of the country. Judson Jones, a meteorologist and reporter for The New York Times, describes how the ground is being dangerously saturated by a series of storms.`\
+https://nytimes.com/video/weather/100000010089949/why-the-central-us-is-experiencing-severe-flooding.html
+
 **The Mets played a dangerous game with Pete Alonso — but for now, it's all just super**\
 `After the Polar Bear crushed a home run in the Mets' home opener, it's difficult to imagine him playing anywhere else.`\
 https://nytimes.com/athletic/6256375/2025/04/04/pete-alonso-mets-home-opener/

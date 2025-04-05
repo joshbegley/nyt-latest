@@ -1,3 +1,7 @@
+**Why the Central U.S. Is Experiencing Severe Flooding**\
+`Meteorologists say flooding could be catastrophic this week in parts of the country. Judson Jones, a meteorologist and reporter for The New York Times, describes how the ground is being dangerously saturated by a series of storms.`\
+https://nytimes.com/video/weather/100000010089949/why-the-central-us-is-experiencing-severe-flooding.html
+
 **The Mets played a dangerous game with Pete Alonso — but for now, it's all just super**\
 `After the Polar Bear crushed a home run in the Mets' home opener, it's difficult to imagine him playing anywhere else.`\
 https://nytimes.com/athletic/6256375/2025/04/04/pete-alonso-mets-home-opener/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/04/us/politics/obama-trump-college-speech.html
 **Baltimore sues FanDuel, DraftKings over tactics, lack of safeguards**\
 `The city of Baltimore's complaint focuses on sportsbooks’ use of user data, which it said could be used to help prevent gambling addiction.`\
 https://nytimes.com/athletic/6256255/2025/04/04/baltimore-sues-fanduel-draftkings-promo-tactics-safeguards/
-
-**Alex Ovechkin 2 goals from breaking Wayne Gretzky's record with No. 893**\
-`The Washington Capitals superstar continues to close in on Gretzky’s long-standing record of 894 NHL goals.`\
-https://nytimes.com/athletic/6255985/2025/04/04/ovechkin-goals-record-gretzky-893/
 
