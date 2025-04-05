@@ -1,3 +1,11 @@
+**Texas A&M to hire Samford's Bucky McMillan as coach**\
+`McMillan is set to replace Buzz Williams at Texas A&M after Williams left for the job at Maryland.`\
+https://nytimes.com/athletic/6256504/2025/04/04/texas-am-bucky-mcmillan-samford-coach/
+
+**South Carolina downs Texas in women's Final Four to return to title game**\
+`South Carolina is vying for its third national championship in four years.`\
+https://nytimes.com/athletic/6256513/2025/04/04/south-carolina-texas-final-four-score-result/
+
 **Man Employs A.I. Avatar in Legal Appeal, and Judge Isn’t Amused**\
 `The use of a video persona created with artificial intelligence software to help make an argument earns a stern rebuke.`\
 https://nytimes.com/2025/04/04/nyregion/ai-lawyer-replica-new-york.html

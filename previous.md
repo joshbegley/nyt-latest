@@ -1,3 +1,11 @@
+**Texas A&M to hire Samford's Bucky McMillan as coach**\
+`McMillan is set to replace Buzz Williams at Texas A&M after Williams left for the job at Maryland.`\
+https://nytimes.com/athletic/6256504/2025/04/04/texas-am-bucky-mcmillan-samford-coach/
+
+**South Carolina downs Texas in women's Final Four to return to title game**\
+`South Carolina is vying for its third national championship in four years.`\
+https://nytimes.com/athletic/6256513/2025/04/04/south-carolina-texas-final-four-score-result/
+
 **Man Employs A.I. Avatar in Legal Appeal, and Judge Isn’t Amused**\
 `The use of a video persona created with artificial intelligence software to help make an argument earns a stern rebuke.`\
 https://nytimes.com/2025/04/04/nyregion/ai-lawyer-replica-new-york.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/04/04/business/trump-tariffs-stocks-economy/invest
 **NFL legend Julio Jones announces retirement after 13 seasons**\
 `The superstar wide receiver and Falcons icon amassed over 13,700 yards along with numerous All-Pro and Pro Bowl selections.`\
 https://nytimes.com/athletic/6256262/2025/04/04/julio-jones-announces-retirement-nfl-falcons/
-
-**These Are the 381 Books Removed From the Naval Academy Library**\
-`The office of Defense Secretary Pete Hegseth ordered the college to adhere to an executive order from President Trump banning educational material related to diversity, equity and inclusion topics.`\
-https://nytimes.com/2025/04/04/us/politics/naval-academy-dei-books-removed.html
-
-**Obama Calls for Universities to Stand Up for Core Values**\
-`As the Trump administration threatens universities, the former president suggested schools shouldn’t be intimidated. But he also offered a critique of campus culture, saying it had too often shut out opposing voices.`\
-https://nytimes.com/2025/04/04/us/politics/obama-trump-college-speech.html
 
