@@ -1,3 +1,11 @@
+**The U.S. awarded large space contracts to companies owned by Elon Musk and Jeff Bezos.**\
+`By Tim Balk`\
+https://nytimes.com/live/2025/04/04/us/trump-news-updates/the-us-awarded-large-space-contracts-to-companies-owned-by-elon-musk-and-jeff-bezos
+
+**David Bailey, former Stanford edge rusher, signs with Texas Tech**\
+`Bailey spent his first three years with the Cardinal, but entered the portal after the recent firing of coach Troy Taylor.`\
+https://nytimes.com/athletic/6256446/2025/04/04/david-bailey-texas-tech-commit-transfer-portal/
+
 **Jake Middleton injured as slumping Wild go winless on 3-game trip: 3 takeaways**\
 `The Wild, who are crumbling at the seams, are 1-4-2 in their past seven games after a 3-1 loss to the Islanders on Friday. `\
 https://nytimes.com/athletic/6256450/2025/04/04/wild-islanders-jake-middleton-injury/
