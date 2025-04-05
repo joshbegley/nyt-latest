@@ -1,3 +1,11 @@
+**The Pulse: Why today's Final Four is special**\
+`Welcome to The Pulse, The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/6256499/2025/04/05/final-four-teams-favorites-picks-the-pulse/
+
+**2 Books to Keep You Pleasantly Diverted**\
+`A collection of autobiographical sketches; a complicated Japanese mystery.`\
+https://nytimes.com/2025/04/05/books/read-like-wind-recommendations.html
+
 **UCLA was trounced by UConn, but can the Bruins get back to the Final Four next season?**\
 `“We got exposed,” UCLA coach Cori Close said. “We got our butts kicked today. And it stings right now.”`\
 https://nytimes.com/athletic/6257035/2025/04/05/ucla-uconn-final-four-loss/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/05/opinion/ezra-klein-podcast-paul-krugman.html
 **‘Few of Us Ever Imagined He Would Go This Far’**\
 `Donald Trump’s tariff regime is a self-inflicted disaster.`\
 https://nytimes.com/2025/04/05/opinion/trump-tariffs-stock-market-recession.html
-
-**Which prospect in each NHL team’s pipeline had the most promising season?**\
-`As the 2024-25 hockey season winds down, these NHL prospects have emerged and shown what they could have to offer.`\
-https://nytimes.com/athletic/6256024/2025/04/05/nhl-top-prospects-teams-promising-season-rookie/
-
-**Globalization Is Collapsing. Brace Yourselves.**\
-`The world was just as intertwined 100 years ago, and its unraveling was a disaster. Can we avoid the same outcome?`\
-https://nytimes.com/2025/04/05/opinion/globalization-collapse.html
 
