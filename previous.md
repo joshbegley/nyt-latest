@@ -1,3 +1,15 @@
+**Buckley: Red Sox bask in Fenway Park opener, where the stories of tomorrow are born**\
+`We don't know what rookie Kristian Campbell may tell his grandkids in 50 years about Friday's win, but there could be a lot to discuss. `\
+https://nytimes.com/athletic/6256457/2025/04/04/red-sox-cardinals-home-opener-kristin-campbell/
+
+**David Bailey, former Stanford edge rusher, commits to Texas Tech**\
+`Bailey spent his first three years with the Cardinal, but entered the portal after the recent firing of coach Troy Taylor.`\
+https://nytimes.com/athletic/6256446/2025/04/04/david-bailey-texas-tech-commit-transfer-portal/
+
+**Wayne Gretzky on Alex Ovechkin's record chase: 'It's great for hockey'**\
+`Gretzky was in attendance on Friday as Ovechkin tied his goals record.`\
+https://nytimes.com/athletic/6256447/2025/04/04/wayne-gretzky-alex-ovechkin-record-chase/
+
 **Texas A&M to hire Samford's Bucky McMillan as coach**\
 `McMillan is set to replace Buzz Williams at Texas A&M after Williams left for the job at Maryland.`\
 https://nytimes.com/athletic/6256504/2025/04/04/texas-am-bucky-mcmillan-samford-coach/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/04/world/middleeast/gaza-israel-aid-workers-deaths-v
 **Red Sox energized by raucous crowd, show fight in winning home opener**\
 `The Red Sox collected their first win in a home opener since 2020. They are optimistic it's just the start of a memorable season.`\
 https://nytimes.com/athletic/6256373/2025/04/04/red-sox-home-opener-win/
-
-**Greenberg: Cubs return to Wrigley Field and give their fans some home-opening hope**\
-`After two 83-win seasons and a too-long playoff drought, the Cubs look good enough to win 90 games, draw 3 million fans and win the Central.`\
-https://nytimes.com/athletic/6256287/2025/04/04/cubs-padres-home-opener-wrigley-field/
-
-**Investors recoil from Trump’s pledge to remake the global economy.**\
-`By Joe Rennison and Danielle Kaye`\
-https://nytimes.com/live/2025/04/04/business/trump-tariffs-stocks-economy/investors-recoil-from-trumps-pledge-to-remake-the-global-economy
-
-**NFL legend Julio Jones announces retirement after 13 seasons**\
-`The superstar wide receiver and Falcons icon amassed over 13,700 yards along with numerous All-Pro and Pro Bowl selections.`\
-https://nytimes.com/athletic/6256262/2025/04/04/julio-jones-announces-retirement-nfl-falcons/
 

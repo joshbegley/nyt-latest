@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6256457/2025/04/04/red-sox-cardinals-home-opener-kr
 https://nytimes.com/athletic/6256446/2025/04/04/david-bailey-texas-tech-commit-transfer-portal/
 
 **Wayne Gretzky on Alex Ovechkin's record chase: 'It's great for hockey'**\
-`Gretzky was in attendance on Friday as Ovechkin tied his goals record.`\
+`Gretzky was in attendance Friday as Ovechkin tied his goals record.`\
 https://nytimes.com/athletic/6256447/2025/04/04/wayne-gretzky-alex-ovechkin-record-chase/
 
 **Texas A&M to hire Samford's Bucky McMillan as coach**\

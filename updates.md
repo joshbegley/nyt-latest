@@ -1,3 +1,15 @@
+**Buckley: Red Sox bask in Fenway Park opener, where the stories of tomorrow are born**\
+`We don't know what rookie Kristian Campbell may tell his grandkids in 50 years about Friday's win, but there could be a lot to discuss. `\
+https://nytimes.com/athletic/6256457/2025/04/04/red-sox-cardinals-home-opener-kristin-campbell/
+
+**David Bailey, former Stanford edge rusher, commits to Texas Tech**\
+`Bailey spent his first three years with the Cardinal, but entered the portal after the recent firing of coach Troy Taylor.`\
+https://nytimes.com/athletic/6256446/2025/04/04/david-bailey-texas-tech-commit-transfer-portal/
+
+**Wayne Gretzky on Alex Ovechkin's record chase: 'It's great for hockey'**\
+`Gretzky was in attendance on Friday as Ovechkin tied his goals record.`\
+https://nytimes.com/athletic/6256447/2025/04/04/wayne-gretzky-alex-ovechkin-record-chase/
+
 **Texas A&M to hire Samford's Bucky McMillan as coach**\
 `McMillan is set to replace Buzz Williams at Texas A&M after Williams left for the job at Maryland.`\
 https://nytimes.com/athletic/6256504/2025/04/04/texas-am-bucky-mcmillan-samford-coach/
