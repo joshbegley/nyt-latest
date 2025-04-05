@@ -1,3 +1,7 @@
+**How ​South Korea’s Democracy Prevailed Over a Reckless Leader**\
+`The rise and fall of Yoon Suk Yeol exposed a vulnerability in South Korean democracy, but also a resilience. Its people were always ready to fight for it.`\
+https://nytimes.com/2025/04/05/world/asia/south-korea-democracy-martial-law.html
+
 **How to watch No. 1 Duke vs. No. 1 Houston in the Final Four: Flagg tests Cougars' defense**\
 `Duke is in pursuit of its sixth national championship. Houston has never won it all, and last reached the title game as "Phi Slamma Jamma."`\
 https://nytimes.com/athletic/6253781/2025/04/05/duke-houston-ncaa-tournament-final-four-how-to-watch/
