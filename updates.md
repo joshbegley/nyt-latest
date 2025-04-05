@@ -1,3 +1,11 @@
+**Rockets' win vs. OKC shows they're already playing like it's the postseason**\
+`Houston has seemingly flipped a switch ahead of its first postseason trip in four years and is sending a message to the rest of the NBA.`\
+https://nytimes.com/athletic/6256698/2025/04/05/rockets-thunder-playoff-preparation/
+
+**The New York Times in Print for Saturday, April 5, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/05/todays-new-york-times
+
 **Freshman Joyce Edwards could be South Carolina's spark against UConn in championship**\
 `Edwards broke out of a tournament slump against Texas with 13 points and 11 rebounds in the Final Four.`\
 https://nytimes.com/athletic/6256685/2025/04/05/joyce-edwards-south-carolina-final-four/

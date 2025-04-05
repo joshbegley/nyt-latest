@@ -1,3 +1,11 @@
+**Rockets' win vs. OKC shows they're already playing like it's the postseason**\
+`Houston has seemingly flipped a switch ahead of its first postseason trip in four years and is sending a message to the rest of the NBA.`\
+https://nytimes.com/athletic/6256698/2025/04/05/rockets-thunder-playoff-preparation/
+
+**The New York Times in Print for Saturday, April 5, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/05/todays-new-york-times
+
 **Freshman Joyce Edwards could be South Carolina's spark against UConn in championship**\
 `Edwards broke out of a tournament slump against Texas with 13 points and 11 rebounds in the Final Four.`\
 https://nytimes.com/athletic/6256685/2025/04/05/joyce-edwards-south-carolina-final-four/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6255733/2025/04/05/tottenham-ange-postecoglou-media
 **Could Strasbourg’s form in Ligue 1 impact Chelsea’s European qualification hopes?**\
 `With the BlueCo-owned side the talk of France, there could be consequences for Chelsea`\
 https://nytimes.com/athletic/6246433/2025/04/05/rc-strasbourg-chelsea-europe-impact/
-
-**'It felt like getting dumped' - the Man Utd fans losing their seats near the dugouts to make way for hospitality**\
-`Around 500 supporters who sit close to the dugouts have been told their tickets will be for elsewhere next season`\
-https://nytimes.com/athletic/6254958/2025/04/05/manchester-united-fans-moved-seats-for-hospitality/
-
-**Spencer Schwellenbach pitches like an ace, again, in Braves' first win of 2025**\
-`Schwellenbach is not pitching like a future MLB ace. He's pitching like a current ace.`\
-https://nytimes.com/athletic/6256703/2025/04/05/braves-marlins-first-win-spencer-schwellenbach-ace/
 
