@@ -1,3 +1,15 @@
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/04/04/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
+**Red Sox bask in Fenway Park opener, where the stories of tomorrow are born: Buckley**\
+`We don't know what rookie Kristian Campbell may tell his grandkids in 50 years about Friday's win, but there could be a lot to discuss. `\
+https://nytimes.com/athletic/6256457/2025/04/04/red-sox-cardinals-home-opener-kristian-campbell/
+
+**Wayne Gretzky, after shunning spotlight, speaks out on Alex Ovechkin's record chase**\
+`Gretzky was in attendance Friday as Ovechkin tied his goals record.`\
+https://nytimes.com/athletic/6256447/2025/04/04/wayne-gretzky-alex-ovechkin-record-chase/
+
 **Having Ears Pricked**\
 `To solve Rafael Musa’s latest, keep your wits about you.`\
 https://nytimes.com/2025/04/04/crosswords/daily-puzzle-2025-04-05.html
