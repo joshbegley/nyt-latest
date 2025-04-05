@@ -1,3 +1,7 @@
+**Trump Envoy Visits Lebanon Amid Fears Over a Shaky Cease-Fire**\
+`Morgan Ortagus, President Trump’s deputy Middle East envoy, met with senior officials as tensions with Israel threaten the truce.`\
+https://nytimes.com/2025/04/05/world/middleeast/lebanon-us-israel-hezbollah.html
+
 **Works of Art**\
 `Creating rules around the content we consume can help calm our overtaxed brains and manage our moods.`\
 https://nytimes.com/2025/04/05/briefing/works-of-art.html
