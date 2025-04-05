@@ -1,3 +1,7 @@
+**Muller to leave Bayern Munich at end of season**\
+`Muller will leave Bayern after spending the entirety of his 17-year senior career with the club`\
+https://nytimes.com/athletic/6238911/2025/04/05/thomas-muller-bayern-munich-leave/
+
 **Jeremiah Estrada is back at Wrigley Field, now in control of a blossoming career**\
 `Estrada was claimed off waivers from the Cubs in November 2023. He has since become one of baseball's better relievers.`\
 https://nytimes.com/athletic/6256924/2025/04/05/jeremiah-estrada-cubs-padres/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6256867/2025/04/05/japanese-grand-prix-qualifying-p
 **After 3 significant wins, Warriors are in position to snatch home-court advantage**\
 `If they can win consistently, there's a practical path to the Warriors moving into the third or fourth spot in the Play-In Tournament.`\
 https://nytimes.com/athletic/6256756/2025/04/05/warriors-in-position-for-home-court-advantage/
-
-**Rockets' win vs. OKC shows they're already playing like it's the postseason**\
-`Houston has seemingly flipped a switch ahead of its first postseason trip in four years and is sending a message to the rest of the NBA.`\
-https://nytimes.com/athletic/6256698/2025/04/05/rockets-thunder-playoff-preparation/
 
