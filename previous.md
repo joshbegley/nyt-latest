@@ -1,3 +1,27 @@
+**In Wrigley Field debut, Kyle Tucker shows his game-changing potential**\
+`“The crowd, the interactions and chanting was pretty cool to see and be a part of,” Tucker said.`\
+https://nytimes.com/athletic/6256352/2025/04/05/kyle-tucker-wrigley-field-debut/
+
+**What makes the Geekie-Pastrnak partnership work? ‘Forehand to forehand’**\
+`Geekie, 26, has maximized his top-line opportunity to the point where he has numbers to flex in a potential arbitration hearing this summer.`\
+https://nytimes.com/athletic/6256059/2025/04/05/bruins-david-pastrnak-morgan-geekie-chemistry/
+
+**Men's Final Four: Who makes the all-time starting 5 and coach for each team?**\
+`Which players, past and present, would be included in a starting five of each team representing this year's Final Four?`\
+https://nytimes.com/athletic/6254350/2025/04/05/final-four-who-makes-the-all-time-starting-5-and-coach-for-each-team/
+
+**Corner by corner. Breaking down Max Verstappen's 'magical' pole lap in Japan**\
+`The ultimate driver on the ultimate driver’s track, delivering a lap that will live long in the memory`\
+https://nytimes.com/athletic/6257039/2025/04/05/max-verstappen-suzuka-pole-japanese-grand-prix/
+
+**A Tariffs Cheat Sheet**\
+`An escalating global trade war has tanked markets and plunged corporate America into chaos. DealBook asked economists, investors and other experts to help make sense of what’s next.`\
+https://nytimes.com/2025/04/05/business/dealbook/a-tariffs-cheat-sheet.html
+
+**Communities Brace for Flooding as Storm Moves Across Central U.S.**\
+`The storm has already wreaked havoc across the South and the Midwest, killing at least eight people, including a boy who was swept away by floodwaters in Kentucky.`\
+https://nytimes.com/2025/04/05/us/severe-storm-flood-central-us.html
+
 **The Pulse: Why today's Final Four is special**\
 `Welcome to The Pulse, The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/6256499/2025/04/05/final-four-teams-favorites-picks-the-pulse/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6257035/2025/04/05/ucla-uconn-final-four-loss/
 **Colorado pro day: Travis Hunter is a lock as a top-5 pick, but could Shedeur Sanders fall?**\
 `There's growing belief around the league that Cam Ward and Hunter will be the top two picks in the NFL Draft. Where will Sanders go?`\
 https://nytimes.com/athletic/6256054/2025/04/05/colorado-pro-day-shedeur-sanders-travis-hunter-nfl-draft/
-
-**UConn's Paige Bueckers has 40 minutes of college basketball left. Will it end in a title?**\
-`Geno Auriemma doesn't need to talk to Bueckers about winning a title. They know the standard at UConn. `\
-https://nytimes.com/athletic/6257019/2025/04/05/paige-bueckers-uconn-legacy-national-championship/
-
-**The Theories Behind the Trump Shock**\
-`What Trump’s dramatic revision of the global trade system is intended to accomplish — and reasons for skepticism.`\
-https://nytimes.com/2025/04/05/opinion/trump-tariffs-theories.html
-
-**Without Tyrese Proctor, there is no Final Four for Duke: 'The guy we looked to for guidance'**\
-`Proctor is playing the best basketball of his collegiate career for a Duke team that is the favorite to win the national title. `\
-https://nytimes.com/athletic/6256411/2025/04/05/tyrese-proctor-duke-final-four/
-
-**Paul Krugman on the ‘Biggest Trade Shock in History’**\
-`The trade economist Paul Krugman parses the ‘layers of wrongness’ in Trump’s tariff policy.`\
-https://nytimes.com/video/opinion/100000010091402/paul-krugman-on-the-biggest-trade-shock-in-history.html
-
-**Paul Krugman on the ‘Biggest Trade Shock in History’**\
-`The trade economist Paul Krugman parses the ‘layers of wrongness’ in Trump’s tariff policy.`\
-https://nytimes.com/2025/04/05/opinion/ezra-klein-podcast-paul-krugman.html
-
-**‘Few of Us Ever Imagined He Would Go This Far’**\
-`Donald Trump’s tariff regime is a self-inflicted disaster.`\
-https://nytimes.com/2025/04/05/opinion/trump-tariffs-stock-market-recession.html
 
