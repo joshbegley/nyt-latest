@@ -3,7 +3,7 @@
 https://nytimes.com/2025/04/05/crosswords/daily-puzzle-2025-04-06.html
 
 **What we saw from Notre Dame's open spring practice**\
-`As has been the custom with Notre Dame’s open practices, we'll offer a running diary of the action and work through the noise.`\
+`As has been the custom with Notre Dame's open practices, we'll offer a running diary of the action and work through the noise.`\
 https://nytimes.com/athletic/6257610/2025/04/05/notre-dame-football-spring-practice-observations/
 
 **How Spanish underdog Carla Bernat Escuder won ANWA**\

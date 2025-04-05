@@ -1,3 +1,12 @@
+**What we saw from Notre Dame's open spring practice**\
+`As has been the custom with Notre Dame's open practices, we'll offer a running diary of the action and work through the noise.`\
+https://nytimes.com/athletic/6257610/2025/04/05/notre-dame-football-spring-practice-observations/
+
+**Staple: Rangers come up small in a big spot once again**\
+`In game No. 76 against local rival New Jersey, the Rangers looked like a team still trying to figure out their season.
+`\
+https://nytimes.com/athletic/6257416/2025/04/05/new-york-rangers-new-jersey-devils-score/
+
 **Course Correction**\
 `Kareem Ayas’s Sunday puzzle is major fun.`\
 https://nytimes.com/2025/04/05/crosswords/daily-puzzle-2025-04-06.html
