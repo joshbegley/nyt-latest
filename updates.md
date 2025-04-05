@@ -1,3 +1,23 @@
+**Should a Killer Profit From Putting His Death Row Writings Up for Sale?**\
+`Albert Jones’s 11 books describe life in prison. His victims’ relatives say his family should not benefit from a sale of his story.`\
+https://nytimes.com/2025/04/05/nyregion/albert-jones-death-row-inmate-books-sale.html
+
+**How the Broadway Producer Tom Kirdahy Spends His Sundays**\
+`That morning workout he scheduled? He might get around to it. But Mr. Kirdahy is certain to make time for his friends and a quick trip to the theater.`\
+https://nytimes.com/2025/04/05/nyregion/tom-kirdahy-broadway.html
+
+**England are taking shape before Euros - but Wiegman has another midfield puzzle to solve**\
+`England are finding form before their Euros defence but Wiegman's midfield could look very different once the tournament starts in July`\
+https://nytimes.com/athletic/6256421/2025/04/05/england-midfield-euros-wiegman/
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/04/05/crosswords/spelling-bee-forum.html
+
+**Celtics' Jaylen Brown, adapting to injury, studies Paul Pierce game tape**\
+`Dealing with a persistent knee issue, Brown sees it as an opportunity to learn and reimagine himself and his game.`\
+https://nytimes.com/athletic/6256872/2025/04/05/celtics-jaylen-brown-studies-paul-pierce/
+
 **Grass fires interrupt Japanese Grand Prix qualifying and practice sessions**\
 `Wild fires interrupt qualifying and practice sessions and could be a concern ahead of Japanese Grand Prix `\
 https://nytimes.com/athletic/6256867/2025/04/05/japanese-grand-prix-qualifying-practice-wild-fires/
