@@ -1,40 +1,40 @@
-**Muller to leave Bayern Munich at end of season**\
-`Muller will leave Bayern after spending the entirety of his 17-year senior career with the club`\
-https://nytimes.com/athletic/6238911/2025/04/05/thomas-muller-bayern-munich-leave/
+**The Fed Isn’t Rushing to Save the Markets This Time**\
+`With stocks in a steep decline and tariffs inducing recession jitters, the patience of investors may be tested.`\
+https://nytimes.com/2025/04/05/business/tariffs-stock-market-fed-inflation.html
 
-**Jeremiah Estrada is back at Wrigley Field, now in control of a blossoming career**\
-`Estrada was claimed off waivers from the Cubs in November 2023. He has since become one of baseball's better relievers.`\
-https://nytimes.com/athletic/6256924/2025/04/05/jeremiah-estrada-cubs-padres/
+**Shining Bright at Milan Design Week**\
+`Light plays a starring role in many collections being presented at the annual furniture festival.`\
+https://nytimes.com/2025/04/05/arts/design/milan-design-week-lighting.html
 
-**Senate Approves G.O.P. Budget Plan After Overnight Vote-a-Thon**\
-`Republicans pushed through their blueprint for tax and spending cuts after Democrats forced them to cast politically painful votes into the early morning on every element of President Trump’s agenda.`\
-https://nytimes.com/2025/04/05/us/politics/senate-budget.html
+**Lounging and Reflecting at Milan Design Week**\
+`The designers of these inventive spots to sit are honoring the past while looking to the future.`\
+https://nytimes.com/2025/04/05/arts/design/milan-design-week-seating.html
 
-**Should a Killer Profit From Putting His Death Row Writings Up for Sale?**\
-`Albert Jones’s 11 books describe life in prison. His victims’ relatives say his family should not benefit from a sale of his story.`\
-https://nytimes.com/2025/04/05/nyregion/albert-jones-death-row-inmate-books-sale.html
+**The Predatory Friend: Trump Treats Europe as Anything but an Ally**\
+`President Trump has shown a willingness to fracture the trans-Atlantic alliance with his tariffs and demands for higher military spending.`\
+https://nytimes.com/2025/04/05/world/europe/trump-europe-tariffs-defense.html
 
-**How the Broadway Producer Tom Kirdahy Spends His Sundays**\
-`That morning workout he scheduled? He might get around to it. But Mr. Kirdahy is certain to make time for his friends and a quick trip to the theater.`\
-https://nytimes.com/2025/04/05/nyregion/tom-kirdahy-broadway.html
+**When Huge Trump Tariffs Hit Small African Economies**\
+`The amount of manufactured goods exported from Africa to the United States is minuscule. But for Lesotho, the impact of a stunning 50 percent tariff is enormous.`\
+https://nytimes.com/2025/04/05/business/economy/when-huge-trump-tariffs-hit-small-african-economies.html
 
-**England are taking shape before the Euros - but Wiegman has another midfield puzzle to solve**\
-`England are finding form before their Euros defence but Wiegman's midfield could look very different once the tournament starts in July`\
-https://nytimes.com/athletic/6256421/2025/04/05/england-midfield-euros-wiegman/
+**Anti-Trump Protests Try to Reach the Newly Alarmed**\
+`The rallies on Saturday are being held all over the country and emphasize cuts to health care, Social Security and education.`\
+https://nytimes.com/2025/04/05/us/politics/trump-protests-hands-off-saturday.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/04/05/crosswords/spelling-bee-forum.html
+**Epic Universe Is Coming. Here’s a Sneak Peek.**\
+`The new $7 billion theme park in Orlando opens in May. With it, Universal aims to challenge Disney by letting visitors explore lands based on movies and games.`\
+https://nytimes.com/2025/04/05/travel/universal-epic-universe-theme-park-orlando-preview.html
 
-**Celtics' Jaylen Brown, adapting to injury, studies Paul Pierce game tape**\
-`Dealing with a persistent knee issue, Brown sees it as an opportunity to learn and reimagine himself and his game.`\
-https://nytimes.com/athletic/6256872/2025/04/05/celtics-jaylen-brown-studies-paul-pierce/
+**7 Americans Weigh In on Trump’s Sweeping Tariffs**\
+`Voters were bracing for the effects of President Trump’s recent tariffs in their own lives, but some said they were, for now, waiting and watching to see how all of this plays out.`\
+https://nytimes.com/2025/04/05/us/tariffs-trump-voters-reaction.html
 
-**Max Verstappen takes 'magical' pole for Japanese Grand Prix**\
-`Max Verstappen sets a lap record in securing pole for the Japanese Grand Prix `\
-https://nytimes.com/athletic/6256867/2025/04/05/japanese-grand-prix-qualifying-practice-grass-fires/
+**Do Dogs Belong at Work?**\
+`Plus, how to talk about office cleavage. (Yes, you can talk about it.)`\
+https://nytimes.com/2025/04/05/business/do-dogs-belong-at-work.html
 
-**After 3 significant wins, Warriors are in position to snatch home-court advantage**\
-`If they can win consistently, there's a practical path to the Warriors moving into the third or fourth spot in the Play-In Tournament.`\
-https://nytimes.com/athletic/6256756/2025/04/05/warriors-in-position-for-home-court-advantage/
+**Trump Is on Shaky Legal Ground With Mass Layoffs at H.H.S., Experts Say**\
+`Job and program cuts at the Department of Health and Human Services have teed up court challenges and prompted bipartisan criticism in Congress.`\
+https://nytimes.com/2025/04/05/us/politics/trump-hhs-layoffs-legal.html
 
