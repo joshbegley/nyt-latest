@@ -1,3 +1,20 @@
+**How Spanish underdog Carla Bernat Escuder won ANWA**\
+`Bernat Escuder became the seventh Spanish winner at Augusta National in just 45 years.`\
+https://nytimes.com/athletic/6257544/2025/04/05/carla-bernat-escuder-win-anwa/
+
+**Flick 'happy' with Barcelona draw against Betis: 'We have one point more'**\
+`The draw extended Barca's lead at the top of La Liga to four points, after Real Madrid were defeated at home by Valencia earlier on Saturday`\
+https://nytimes.com/athletic/6257684/2025/04/05/flick-barcelona-betis-la-liga-title/
+
+**Amorim: Man Utd need to sign ‘one or two big players’**\
+`"It's characteristics that we don't have in our squad, trying to see the gaps," Amorim said ahead of Sunday's Manchester derby.`\
+https://nytimes.com/athletic/6255233/2025/04/05/ruben-amorim-manchester-united-transfers/
+
+**Staple: Rangers come up small in a big spot once again**\
+`In game No. 76 against local rival New Jersey, the Rangers looked like a team still trying to figure out their season.
+`\
+https://nytimes.com/athletic/6257416/2025/04/05/new-york-rangers-new-jersey-devils-score/
+
 **Staple: Rangers come up small in a big spot once again**\
 `In game No. 76 against local rival New Jersey, the Rangers looked like a team still trying to figure out their season.
 `\
