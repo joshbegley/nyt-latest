@@ -1,3 +1,7 @@
+**Musk Says He Hopes Europe and U.S. Move to a ‘Zero-Tariff Situation’**\
+`The billionaire adviser to the Trump administration appeared to part ways with the president in a videoconference appearance with Italy’s far-right League party.`\
+https://nytimes.com/2025/04/05/us/politics/musk-says-he-hopes-europe-and-us-move-to-a-zero-tariff-situation.html
+
 **Thomas Muller and Bayern's dignified but surprising parting of ways. Will MLS be next?**\
 `Muller, aged 35, will leave after 25 years at the club. He is not ready to retire and there has been a discussion between Bayern and LAFC`\
 https://nytimes.com/athletic/6257043/2025/04/05/thomas-muller-leaving-bayern-mls-lafc/
