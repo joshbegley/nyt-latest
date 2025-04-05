@@ -1,3 +1,7 @@
+**Anti-Trump Protests Get Underway Across the Country**\
+`The mass action, “Hands Off!,” was planned at a time when many on the left have bemoaned what they considered a lack of strong resistance to President Trump.`\
+https://nytimes.com/2025/04/05/us/politics/anti-trump-protests-hands-off.html
+
 **PSG win Ligue 1 title with six games to go, remain unbeaten**\
 `The victory over Angers left PSG, who remain unbeaten in Ligue 1 this season, with an insurmountable 24-point lead over second place Monaco.`\
 https://nytimes.com/athletic/6249139/2025/04/05/psg-champions-france-ligue-1-title/
