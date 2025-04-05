@@ -1,3 +1,7 @@
+**After 3 significant wins, Warriors are in position to snatch home-court advantage**\
+`If they can win consistently, there's a practical path to the Warriors moving into the third or fourth spot in the Play-In Tournament.`\
+https://nytimes.com/athletic/6256756/2025/04/05/warriors-in-position-for-home-court-advantage/
+
 **Rockets' win vs. OKC shows they're already playing like it's the postseason**\
 `Houston has seemingly flipped a switch ahead of its first postseason trip in four years and is sending a message to the rest of the NBA.`\
 https://nytimes.com/athletic/6256698/2025/04/05/rockets-thunder-playoff-preparation/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6255027/2025/04/05/nottingham-forest-ucl-champions-
 **Ange Postecoglou thinks not enough external voices defend Spurs - is he right?**\
 `Postecoglou made the comments the day after Tottenham Hotspur's defeat against Chelsea`\
 https://nytimes.com/athletic/6255733/2025/04/05/tottenham-ange-postecoglou-media-analysis/
-
-**Could Strasbourg’s form in Ligue 1 impact Chelsea’s European qualification hopes?**\
-`With the BlueCo-owned side the talk of France, there could be consequences for Chelsea`\
-https://nytimes.com/athletic/6246433/2025/04/05/rc-strasbourg-chelsea-europe-impact/
 
