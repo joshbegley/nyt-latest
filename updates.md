@@ -1,3 +1,7 @@
+**Bill Murray Says He’s Not the Man He Used to Be**\
+`The actor talks about his new film “The Friend,” his jerky past and what he doesn’t get about himself.`\
+https://nytimes.com/2025/04/05/magazine/bill-murray-interview.html
+
 **The Fed Isn’t Rushing to Save the Markets This Time**\
 `With stocks in a steep decline and tariffs inducing recession jitters, the patience of investors may be tested.`\
 https://nytimes.com/2025/04/05/business/tariffs-stock-market-fed-inflation.html

@@ -1,3 +1,7 @@
+**Bill Murray Says He’s Not the Man He Used to Be**\
+`The actor talks about his new film “The Friend,” his jerky past and what he doesn’t get about himself.`\
+https://nytimes.com/2025/04/05/magazine/bill-murray-interview.html
+
 **The Fed Isn’t Rushing to Save the Markets This Time**\
 `With stocks in a steep decline and tariffs inducing recession jitters, the patience of investors may be tested.`\
 https://nytimes.com/2025/04/05/business/tariffs-stock-market-fed-inflation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/05/us/tariffs-trump-voters-reaction.html
 **Do Dogs Belong at Work?**\
 `Plus, how to talk about office cleavage. (Yes, you can talk about it.)`\
 https://nytimes.com/2025/04/05/business/do-dogs-belong-at-work.html
-
-**Trump Is on Shaky Legal Ground With Mass Layoffs at H.H.S., Experts Say**\
-`Job and program cuts at the Department of Health and Human Services have teed up court challenges and prompted bipartisan criticism in Congress.`\
-https://nytimes.com/2025/04/05/us/politics/trump-hhs-layoffs-legal.html
 
