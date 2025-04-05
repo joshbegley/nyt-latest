@@ -1,3 +1,7 @@
+**Real Madrid winning La Liga 'difficult' after Valencia loss - Ancelotti**\
+`The defeat leaves Madrid three points behind Barcelona, who play their game in hand later on Saturday at home to Real Betis.`\
+https://nytimes.com/athletic/6257319/2025/04/05/real-madrid-la-liga-title-ancelotti/
+
 **Chemical Industry Asks Trump for Exemption From Pollution Limits**\
 `The Biden-era limits were designed to reduce emissions of toxic pollutants, including a cancer-causing ingredient used in antifreeze and plastics.`\
 https://nytimes.com/2025/04/05/climate/chemical-industry-trump-pollution-exemption.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6257208/2025/04/05/us-soccer-nwsl-2031-world-cup-bi
 **South Carolina vs. UConn odds: Huskies favored in women's national title game**\
 `UConn-South Carolina is the final game we deserve. Legacies will solidify and hoop dreams will actualize on Sunday afternoon.`\
 https://nytimes.com/athletic/6256044/2025/04/05/south-carolina-uconn-womens-ncaa-tournament-championship-odds-betting-how-to-watch/
-
-**Prosecutors on George Santos Case Seek 7-Year Sentence**\
-`The disgraced former congressman is set to be sentenced on April 25. His lawyers asked for a penalty of two years, the minimum allowed.`\
-https://nytimes.com/2025/04/05/nyregion/george-santos-sentencing-prison.html
 

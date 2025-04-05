@@ -1,3 +1,7 @@
+**Real Madrid winning La Liga 'difficult' after Valencia loss - Ancelotti**\
+`The defeat leaves Madrid three points behind Barcelona, who play their game in hand later on Saturday at home to Real Betis.`\
+https://nytimes.com/athletic/6257319/2025/04/05/real-madrid-la-liga-title-ancelotti/
+
 **Chemical Industry Asks Trump for Exemption From Pollution Limits**\
 `The Biden-era limits were designed to reduce emissions of toxic pollutants, including a cancer-causing ingredient used in antifreeze and plastics.`\
 https://nytimes.com/2025/04/05/climate/chemical-industry-trump-pollution-exemption.html
