@@ -1,5 +1,9 @@
+**Thomas Muller and Bayern's dignified but surprising parting of ways. Will MLS be next?**\
+`Muller, aged 35, will leave after 25 years at the club. He is not ready to retire and there has been a discussion between Bayern and LAFC`\
+https://nytimes.com/athletic/6257043/2025/04/05/thomas-muller-leaving-bayern-mls-lafc/
+
 **Chelsea’s Fofana out for rest of 2024-25 after hamstring surgery**\
-`Chelsea expect Fofana to miss the remainder of the campaign, including the FIFA Club World Cup, and return to availability of 2025-26.`\
+`Chelsea expect Fofana to miss the remainder of the campaign, including the FIFA Club World Cup, and return for the 2025-26 season`\
 https://nytimes.com/athletic/6257377/2025/04/05/wesley-fofana-injury-update-surgery-chelsea/
 
 **Ex-Aides to Texas Attorney General Win $6.6 Million in Whistle-Blower Case**\
@@ -9,6 +13,10 @@ https://nytimes.com/2025/04/05/us/ken-paxton-aides-whistleblowers-texas-ag.html
 **Trump Family’s Cash Registers Ring as Financial Meltdown Plays Out**\
 `The party was on at a Saudi-backed LIV Golf tournament at the president’s Doral resort in Florida and a fund-raiser at Mar-a-Lago, even as markets tumbled.`\
 https://nytimes.com/2025/04/05/us/politics/trump-family-saudi-golf.html
+
+**How one Ipswich backpass caused two of the craziest minutes in the Premier League this season**\
+`One simple-looking pass led to mayhem at Portman Road, with some Braveheart-esque defending to keep out an indirect free kick inside the box`\
+https://nytimes.com/athletic/6257340/2025/04/05/ipswich-backpass-wolves-goalkeeper-handball-free-kick/
 
 **Floods Inundate Central U.S.**\
 `A relentless storm continued to dump rain across the Midwest and South, causing increased flooding from Texas to Ohio.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/05/climate/chemical-industry-trump-pollution-exempti
 **PSG win Ligue 1 title with six games to go, remain unbeaten**\
 `The victory over Angers left PSG, who remain unbeaten in Ligue 1 this season, with an insurmountable 24-point lead over second place Monaco.`\
 https://nytimes.com/athletic/6249139/2025/04/05/psg-champions-france-ligue-1-title/
-
-**Anti-Trump Protests Get Underway Across the Country**\
-`The mass action, “Hands Off!,” was planned at a time when many on the left have bemoaned what they considered a lack of strong resistance to President Trump.`\
-https://nytimes.com/2025/04/05/us/politics/anti-trump-protests-hands-off.html
-
-**British Carmaker Jaguar Land Rover Pauses Shipments to U.S.**\
-`The luxury automaker, which faces 25 percent import tariffs, said it was halting shipments in April as it addresses the new trading terms.`\
-https://nytimes.com/2025/04/05/business/jaguar-land-rover-tariffs-shipments.html
 
