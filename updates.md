@@ -1,3 +1,7 @@
+**Israel Says Its Account of Rescue Workers Killed in Gaza Was Partly ‘Mistaken’**\
+`The Israeli military had previously asserted that the workers had been “advancing suspiciously” toward its troops. A video obtained by The New York Times on Friday appeared to contradict that account.`\
+https://nytimes.com/2025/04/05/world/middleeast/israel-killing-rescue-workers-gaza.html
+
 **Staple: Rangers come up small in a big spot once again**\
 `In game No. 76 against local rival New Jersey, the Rangers looked like a team still trying to figure out their season.
 `\
