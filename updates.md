@@ -1,3 +1,11 @@
+**Senate Approves G.O.P. Budget Plan After Overnight Vote-a-Thon**\
+`Republicans pushed through their blueprint for tax and spending cuts after Democrats forced them to cast politically painful votes into the early morning on every element of President Trump’s agenda.`\
+https://nytimes.com/2025/04/05/world/europe/senate-budget.html
+
+**England are taking shape before the Euros - but Wiegman has another midfield puzzle to solve**\
+`England are finding form before their Euros defence but Wiegman's midfield could look very different once the tournament starts in July`\
+https://nytimes.com/athletic/6256421/2025/04/05/england-midfield-euros-wiegman/
+
 **Should a Killer Profit From Putting His Death Row Writings Up for Sale?**\
 `Albert Jones’s 11 books describe life in prison. His victims’ relatives say his family should not benefit from a sale of his story.`\
 https://nytimes.com/2025/04/05/nyregion/albert-jones-death-row-inmate-books-sale.html

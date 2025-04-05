@@ -1,3 +1,7 @@
+**Senate Approves G.O.P. Budget Plan After Overnight Vote-a-Thon**\
+`Republicans pushed through their blueprint for tax and spending cuts after Democrats forced them to cast politically painful votes into the early morning on every element of President Trump’s agenda.`\
+https://nytimes.com/2025/04/05/world/europe/senate-budget.html
+
 **Should a Killer Profit From Putting His Death Row Writings Up for Sale?**\
 `Albert Jones’s 11 books describe life in prison. His victims’ relatives say his family should not benefit from a sale of his story.`\
 https://nytimes.com/2025/04/05/nyregion/albert-jones-death-row-inmate-books-sale.html
@@ -6,7 +10,7 @@ https://nytimes.com/2025/04/05/nyregion/albert-jones-death-row-inmate-books-sale
 `That morning workout he scheduled? He might get around to it. But Mr. Kirdahy is certain to make time for his friends and a quick trip to the theater.`\
 https://nytimes.com/2025/04/05/nyregion/tom-kirdahy-broadway.html
 
-**England are taking shape before Euros - but Wiegman has another midfield puzzle to solve**\
+**England are taking shape before the Euros - but Wiegman has another midfield puzzle to solve**\
 `England are finding form before their Euros defence but Wiegman's midfield could look very different once the tournament starts in July`\
 https://nytimes.com/athletic/6256421/2025/04/05/england-midfield-euros-wiegman/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6256698/2025/04/05/rockets-thunder-playoff-preparat
 **The New York Times in Print for Saturday, April 5, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/04/05/todays-new-york-times
-
-**Freshman Joyce Edwards could be South Carolina's spark against UConn in championship**\
-`Edwards broke out of a tournament slump against Texas with 13 points and 11 rebounds in the Final Four.`\
-https://nytimes.com/athletic/6256685/2025/04/05/joyce-edwards-south-carolina-final-four/
 
