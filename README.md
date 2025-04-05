@@ -1,3 +1,7 @@
+**Sammy Smith, NASCAR Xfinity drivers strike different tone after post-Martinsville meeting**\
+`A contrite Sammy Smith acknowledged he "made a mistake" after NASCAR warned Xfinity Series drivers to watch their actions on the track. `\
+https://nytimes.com/athletic/6257136/2025/04/05/sammy-smith-nascar-xfinity-series-martinsville-penalty-apology/
+
 **Barcelona's Martinez out of Betis match with muscular injury**\
 `Martinez has been a regular in the defence of Hansi Flick's side this season, starting 36 matches across all competitions.`\
 https://nytimes.com/athletic/6257140/2025/04/05/inigo-martinez-barcelona-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6253370/2025/04/05/fran-gonzalez-real-madrid-goalke
 **In Wrigley Field debut, Kyle Tucker shows his game-changing potential**\
 `“The crowd, the interactions and chanting was pretty cool to see and be a part of,” Tucker said.`\
 https://nytimes.com/athletic/6256352/2025/04/05/kyle-tucker-wrigley-field-debut/
-
-**What makes the Geekie-Pastrnak partnership work? ‘Forehand to forehand’**\
-`Geekie, 26, has maximized his top-line opportunity to the point where he has numbers to flex in a potential arbitration hearing this summer.`\
-https://nytimes.com/athletic/6256059/2025/04/05/bruins-david-pastrnak-morgan-geekie-chemistry/
 
