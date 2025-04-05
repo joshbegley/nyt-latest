@@ -1,3 +1,7 @@
+**Reds break scoreless streak, still looking to end losing streak**\
+`There’s a cliche that hitting is contagious, but for this Reds team, that's one illness not going through the clubhouse.`\
+https://nytimes.com/athletic/6256763/2025/04/05/reds-scoreless-losing-streak/
+
 **Mourinho handed three-match ban after Istanbul derby nose grab incident**\
 `The Fenerbahce head coach appeared to pinch of Galatasaray boss Okan Buruk's nose following Wednesday's Istanbul derby.`\
 https://nytimes.com/athletic/6250836/2025/04/05/jose-mourinho-ban-galatasaray-fenerbahce/

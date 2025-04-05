@@ -1,3 +1,7 @@
+**Forest's Awoniyi, Elanga to be monitored after injuries**\
+`Forest are awaiting Awoniyi's injury scan results while Elanga was forced off at half-time in Saturday's defeat to Aston Villa.`\
+https://nytimes.com/athletic/6257438/2025/04/05/nottingham-forest-injury-news-awoniyi-elanga/
+
 **Reds break scoreless streak, still looking to end losing streak**\
 `There’s a cliche that hitting is contagious, but for this Reds team, that's one illness not going through the clubhouse.`\
 https://nytimes.com/athletic/6256763/2025/04/05/reds-scoreless-losing-streak/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/05/us/politics/trump-family-saudi-golf.html
 **How one Ipswich backpass caused two of the craziest minutes in the Premier League this season**\
 `One simple-looking pass led to mayhem at Portman Road, with some Braveheart-esque defending to keep out an indirect free kick inside the box`\
 https://nytimes.com/athletic/6257340/2025/04/05/ipswich-backpass-wolves-goalkeeper-handball-free-kick/
-
-**Floods Inundate Central U.S.**\
-`A relentless storm continued to dump rain across the Midwest and South, causing increased flooding from Texas to Ohio.`\
-https://nytimes.com/video/us/100000010094026/flooding-central-us-severe-weather.html
 
