@@ -1,3 +1,7 @@
+**Works of Art**\
+`Creating rules around the content we consume can help calm our overtaxed brains and manage our moods.`\
+https://nytimes.com/2025/04/05/briefing/works-of-art.html
+
 **Alex Ovechkin scored No. 894 'in theater and in style.' His next goal will be even grander**\
 `Nothing in hockey is inevitable. But Ovechkin is as close as it comes.`\
 https://nytimes.com/athletic/6256831/2025/04/05/ovechkin-record-gretzky-goals/

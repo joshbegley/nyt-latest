@@ -1,3 +1,7 @@
+**Trump Envoy Visits Lebanon Amid Fears Over a Shaky Cease-Fire**\
+`Morgan Ortagus, President Trump’s deputy Middle East envoy, met with senior officials as tensions with Israel threaten the truce.`\
+https://nytimes.com/2025/04/05/world/middleeast/lebanon-us-israel-hezbollah.html
+
 **Works of Art**\
 `Creating rules around the content we consume can help calm our overtaxed brains and manage our moods.`\
 https://nytimes.com/2025/04/05/briefing/works-of-art.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/05/world/asia/south-korea-democracy-martial-law.html
 **How to watch No. 1 Duke vs. No. 1 Houston in the Final Four: Flagg tests Cougars' defense**\
 `Duke is in pursuit of its sixth national championship. Houston has never won it all, and last reached the title game as "Phi Slamma Jamma."`\
 https://nytimes.com/athletic/6253781/2025/04/05/duke-houston-ncaa-tournament-final-four-how-to-watch/
-
-**Bill Murray Says He’s Not the Man He Used to Be**\
-`The actor talks about his new film “The Friend,” his jerky past and what he doesn’t get about himself.`\
-https://nytimes.com/2025/04/05/magazine/bill-murray-interview.html
 
