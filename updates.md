@@ -1,3 +1,11 @@
+**UConn routs UCLA in Final Four to set up championship game with South Carolina**\
+`UConn is looking for its 12th national championship under coach Geno Auriemma and first since 2016.`\
+https://nytimes.com/athletic/6256694/2025/04/04/uconn-ucla-final-four-result-score/
+
+**Dodgers' record unbeaten start ends as they seek to play better baseball**\
+`Even as the Dodgers started the season 8-0, they've hardly played their best baseball. Early deficits and poor base running are concerning.`\
+https://nytimes.com/athletic/6256650/2025/04/04/dodgers-record-unbeaten-start-ends/
+
 **Dodgers' record unbeaten season start ends as they seek to play better baseball**\
 `Even as the Dodgers started the season 8-0, they've hardly played their best baseball. Early deficits and poor base running are concerning.`\
 https://nytimes.com/athletic/6256650/2025/04/04/dodgers-record-unbeaten-start-ends/
