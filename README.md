@@ -2,9 +2,9 @@
 `The victory over Angers left PSG, who remain unbeaten in Ligue 1 this season, with an insurmountable 24-point lead over second place Monaco.`\
 https://nytimes.com/athletic/6249139/2025/04/05/psg-champions-france-ligue-1-title/
 
-**Protesters gather across the country as anti-Trump rallies get underway.**\
-`By Shaila Dewan`\
-https://nytimes.com/2025/04/05/us/politics/protesters-gather-across-the-country-as-anti-trump-rallies-get-underway.html
+**Anti-Trump Protests Get Underway Across the Country**\
+`The mass action, “Hands Off!,” was planned at a time when many on the left have bemoaned what they considered a lack of strong resistance to President Trump.`\
+https://nytimes.com/2025/04/05/us/politics/anti-trump-protests-hands-off.html
 
 **British Carmaker Jaguar Land Rover Pauses Shipments to U.S.**\
 `The luxury automaker, which faces 25 percent import tariffs, said it was halting shipments in April as it addresses the new trading terms.`\
