@@ -1,3 +1,11 @@
+**PSG win Ligue 1 title with six games to go, remain unbeaten**\
+`The victory over Angers left PSG, who remain unbeaten in Ligue 1 this season, with an insurmountable 24-point lead over second place Monaco.`\
+https://nytimes.com/athletic/6249139/2025/04/05/psg-champions-france-ligue-1-title/
+
+**Protesters gather across the country as anti-Trump rallies get underway.**\
+`By Shaila Dewan`\
+https://nytimes.com/2025/04/05/us/politics/protesters-gather-across-the-country-as-anti-trump-rallies-get-underway.html
+
 **British Carmaker Jaguar Land Rover Pauses Shipments to U.S.**\
 `The luxury automaker, which faces 25 percent import tariffs, said it was halting shipments in April as it addresses the new trading terms.`\
 https://nytimes.com/2025/04/05/business/jaguar-land-rover-tariffs-shipments.html
