@@ -1,3 +1,7 @@
+**Muller to leave Bayern Munich at end of season**\
+`Muller will leave Bayern after spending the entirety of his 17-year senior career with the club`\
+https://nytimes.com/athletic/6238911/2025/04/05/thomas-muller-bayern-munich-leave/
+
 **Max Verstappen takes 'magical' pole for Japanese Grand Prix**\
 `Max Verstappen sets a lap record in securing pole for the Japanese Grand Prix `\
 https://nytimes.com/athletic/6256867/2025/04/05/japanese-grand-prix-qualifying-practice-grass-fires/
