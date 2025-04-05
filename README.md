@@ -1,3 +1,11 @@
+**Yohe's 10 observations: Sidney Crosby puts on a show with hat trick against Dallas**\
+`Crosby extended his points streak to 12 games as Pittsburgh surprised the Stars with a 5-3 win in Dallas. `\
+https://nytimes.com/athletic/6257527/2025/04/05/penguins-sidney-crosby-hat-trick-stars/
+
+**Trump Administration Revokes Visas of South Sudanese in Clash Over Deportees**\
+`Secretary of State Marco Rubio said he was making the move because the transitional government of South Sudan had refused to accept its citizens in a timely manner.`\
+https://nytimes.com/2025/04/05/us/politics/trump-administration-revokes-visas-of-south-sudanese-in-clash-over-deportees.html
+
 **Byron Buxton channels inner 'Energizer Bunny' to help Twins break out of slumber**\
 `The season is but a week old, and there have already been several sightings of the Twins' Energizer Bunny.`\
 https://nytimes.com/athletic/6257861/2025/04/05/byron-buxton-energizer-bunny-twins-beat-astros/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/05/crosswords/daily-puzzle-2025-04-06.html
 **What we saw from Notre Dame's open spring practice**\
 `As has been the custom with Notre Dame's open practices, we'll offer a running diary of the action and work through the noise.`\
 https://nytimes.com/athletic/6257610/2025/04/05/notre-dame-football-spring-practice-observations/
-
-**How Spanish underdog Carla Bernat Escuder won ANWA**\
-`Bernat Escuder became the seventh Spanish winner at Augusta National in just 45 years.`\
-https://nytimes.com/athletic/6257544/2025/04/05/carla-bernat-escuder-win-anwa/
-
-**Flick 'happy' with Barcelona draw against Betis: 'We have one point more'**\
-`The draw extended Barca's lead at the top of La Liga to four points, after Real Madrid were defeated at home by Valencia earlier on Saturday`\
-https://nytimes.com/athletic/6257684/2025/04/05/flick-barcelona-betis-la-liga-title/
 
