@@ -1,3 +1,7 @@
+**How to watch No. 1 Duke vs. No. 1 Houston in the Final Four: Flagg tests Cougars' defense**\
+`Duke is in pursuit of its sixth national championship. Houston has never won it all, and last reached the title game as "Phi Slamma Jamma."`\
+https://nytimes.com/athletic/6253781/2025/04/05/duke-houston-ncaa-tournament-final-four-how-to-watch/
+
 **Bill Murray Says He’s Not the Man He Used to Be**\
 `The actor talks about his new film “The Friend,” his jerky past and what he doesn’t get about himself.`\
 https://nytimes.com/2025/04/05/magazine/bill-murray-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/05/travel/universal-epic-universe-theme-park-orlando
 **7 Americans Weigh In on Trump’s Sweeping Tariffs**\
 `Voters were bracing for the effects of President Trump’s recent tariffs in their own lives, but some said they were, for now, waiting and watching to see how all of this plays out.`\
 https://nytimes.com/2025/04/05/us/tariffs-trump-voters-reaction.html
-
-**Do Dogs Belong at Work?**\
-`Plus, how to talk about office cleavage. (Yes, you can talk about it.)`\
-https://nytimes.com/2025/04/05/business/do-dogs-belong-at-work.html
 

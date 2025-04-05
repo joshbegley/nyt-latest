@@ -1,3 +1,7 @@
+**How ​South Korea’s Democracy Prevailed Over a Reckless Leader**\
+`The rise and fall of Yoon Suk Yeol exposed a vulnerability in South Korean democracy, but also a resilience. Its people were always ready to fight for it.`\
+https://nytimes.com/2025/04/05/world/asia/south-korea-democracy-martial-law.html
+
 **How to watch No. 1 Duke vs. No. 1 Houston in the Final Four: Flagg tests Cougars' defense**\
 `Duke is in pursuit of its sixth national championship. Houston has never won it all, and last reached the title game as "Phi Slamma Jamma."`\
 https://nytimes.com/athletic/6253781/2025/04/05/duke-houston-ncaa-tournament-final-four-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/05/us/politics/trump-protests-hands-off-saturday.htm
 **Epic Universe Is Coming. Here’s a Sneak Peek.**\
 `The new $7 billion theme park in Orlando opens in May. With it, Universal aims to challenge Disney by letting visitors explore lands based on movies and games.`\
 https://nytimes.com/2025/04/05/travel/universal-epic-universe-theme-park-orlando-preview.html
-
-**7 Americans Weigh In on Trump’s Sweeping Tariffs**\
-`Voters were bracing for the effects of President Trump’s recent tariffs in their own lives, but some said they were, for now, waiting and watching to see how all of this plays out.`\
-https://nytimes.com/2025/04/05/us/tariffs-trump-voters-reaction.html
 
