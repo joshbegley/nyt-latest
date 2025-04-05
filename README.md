@@ -1,3 +1,7 @@
+**Dave Pelz, Scientist Turned Golf Instructor, Is Dead at 85**\
+`After working at NASA, he became a renowned expert on putting and shots close to the green through his coaching, books, television appearances and training aids.`\
+https://nytimes.com/2025/04/05/sports/golf/dave-pelz-dead.html
+
 **The Public School Programs Trump Has Threatened**\
 `The Trump administration has a new directive for U.S. public schools: Cut D.E.I. programs or face federal funding cuts. Dana Goldstein, who covers education for The New York Times, describes what programs might be targeted by the directive, which is already being challenged in court.`\
 https://nytimes.com/video/us/100000010091142/the-public-school-programs-trump-has-threatened.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/05/science/galapagos-tortoise-hatchlings-philadelphi
 **‘White Lotus’ Has an Old-School View of Relationships**\
 `In Mike White’s show, love and money go together.`\
 https://nytimes.com/2025/04/05/opinion/white-lotus-marriage.html
-
-**Firing of National Security Agency Chief Rattles Lawmakers**\
-`Gen. Timothy D. Haugh, who was also the head of U.S. Cyber Command, was one of several national security officials fired on the advice of a conspiracy theorist.`\
-https://nytimes.com/2025/04/05/us/politics/nsa-director-haugh-trump-loomer.html
 
