@@ -1,3 +1,7 @@
+**Man Employs A.I. Avatar in Legal Appeal, and Judge Isn’t Amused**\
+`The use of a video persona created with artificial intelligence software to help make an argument earns a stern rebuke.`\
+https://nytimes.com/2025/04/04/nyregion/ai-lawyer-replica-new-york.html
+
 **Why the Central U.S. Is Experiencing Severe Flooding**\
 `Meteorologists say flooding could be catastrophic this week in parts of the country. Judson Jones, a meteorologist and reporter for The New York Times, describes how the ground is being dangerously saturated by a series of storms.`\
 https://nytimes.com/video/weather/100000010089949/why-the-central-us-is-experiencing-severe-flooding.html
