@@ -1,3 +1,7 @@
+**Gonzalez to make Real Madrid debut; Courtois missing vs. Valencia**\
+`Gonzalez has been an unused substitute in Carlo Ancelotti's matchday squad on 59 occasions across recent seasons.`\
+https://nytimes.com/athletic/6253370/2025/04/05/fran-gonzalez-real-madrid-goalkeeper-who/
+
 **In Wrigley Field debut, Kyle Tucker shows his game-changing potential**\
 `“The crowd, the interactions and chanting was pretty cool to see and be a part of,” Tucker said.`\
 https://nytimes.com/athletic/6256352/2025/04/05/kyle-tucker-wrigley-field-debut/
