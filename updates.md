@@ -1,5 +1,9 @@
 **Firing of National Security Agency Chief Rattles Lawmakers**\
 `Gen. Timothy Haugh, who was also the head of U.S. Cyber Command, was one of several national security officials fired on the advice of a conspiracy theorist.`\
+https://nytimes.com/2025/04/05/us/politics/nsa-director-haugh-trump-loomer.html
+
+**Firing of National Security Agency Chief Rattles Lawmakers**\
+`Gen. Timothy Haugh, who was also the head of U.S. Cyber Command, was one of several national security officials fired on the advice of a conspiracy theorist.`\
 https://nytimes.com/2025/04/05/us/politics/nsa-hough-loomer.html
 
 **Gonzalez to make Real Madrid debut; Courtois missing vs. Valencia**\
