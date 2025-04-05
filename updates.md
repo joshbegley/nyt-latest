@@ -1,3 +1,11 @@
+**Spencer Schwellenbach pitches like an ace, again, in Braves' first win of 2025**\
+`Schwellenbach is not pitching like a future MLB ace. He's pitching like a current ace.`\
+https://nytimes.com/athletic/6256703/2025/04/05/braves-marlins-first-win-spencer-schwellenbach-ace/
+
+**Phillies hand Dodgers first loss as J.T. Realmuto's arm is difference in marquee matchup**\
+`Credit Realmuto with a save. The catcher threw out two would-be stealers late to give the Phillies a win over the undefeated Dodgers.`\
+https://nytimes.com/athletic/6256690/2025/04/05/phillies-dodgers-first-loss-jt-realmuto/
+
 **Have we finally heard the last of the Dani Olmo and Pau Victor registration saga?**\
 `A Spanish government body has ruled Olmo and Victor can play for the rest of the current campaign. What happens next?`\
 https://nytimes.com/athletic/6255559/2025/04/05/dani-olmo-pau-victor-barcelona-saga/
