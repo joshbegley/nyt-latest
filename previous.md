@@ -1,3 +1,11 @@
+**Barcelona's Martinez out of Betis match with muscular injury**\
+`Martinez has been a regular in the defence of Hansi Flick's side this season, starting 36 matches across all competitions.`\
+https://nytimes.com/athletic/6257140/2025/04/05/inigo-martinez-barcelona-injury/
+
+**The Briefing: Everton 1 Arsenal 1 - Arteta's eye on Madrid, Trossard's lethal left foot, is White a centre-back option?**\
+`Arsenal head into their Champions League tie against Real Madrid on the back of a draw at Everton - Art de Roche analyses the action`\
+https://nytimes.com/athletic/6247162/2025/04/05/everton-1-arsenal-1-rotation-real-madrid-trossard/
+
 **Trump Administration Live Updates: Senate Approves G.O.P. Budget Plan After an Overnight ‘Vote-a-Rama’**\
 ``\
 https://nytimes.com/live/2025/04/05/us/trump-news-tariffs
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6256352/2025/04/05/kyle-tucker-wrigley-field-debut/
 **What makes the Geekie-Pastrnak partnership work? ‘Forehand to forehand’**\
 `Geekie, 26, has maximized his top-line opportunity to the point where he has numbers to flex in a potential arbitration hearing this summer.`\
 https://nytimes.com/athletic/6256059/2025/04/05/bruins-david-pastrnak-morgan-geekie-chemistry/
-
-**Men's Final Four: Who makes the all-time starting 5 and coach for each team?**\
-`Which players, past and present, would be included in a starting five of each team representing this year's Final Four?`\
-https://nytimes.com/athletic/6254350/2025/04/05/final-four-who-makes-the-all-time-starting-5-and-coach-for-each-team/
-
-**Corner by corner. Breaking down Max Verstappen's 'magical' pole lap in Japan**\
-`The ultimate driver on the ultimate driver’s track, delivering a lap that will live long in the memory`\
-https://nytimes.com/athletic/6257039/2025/04/05/max-verstappen-suzuka-pole-japanese-grand-prix/
 

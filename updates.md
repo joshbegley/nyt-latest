@@ -1,3 +1,11 @@
+**Barcelona's Martinez out of Betis match with muscular injury**\
+`Martinez has been a regular in the defence of Hansi Flick's side this season, starting 36 matches across all competitions.`\
+https://nytimes.com/athletic/6257140/2025/04/05/inigo-martinez-barcelona-injury/
+
+**The Briefing: Everton 1 Arsenal 1 - Arteta's eye on Madrid, Trossard's lethal left foot, is White a centre-back option?**\
+`Arsenal head into their Champions League tie against Real Madrid on the back of a draw at Everton - Art de Roche analyses the action`\
+https://nytimes.com/athletic/6247162/2025/04/05/everton-1-arsenal-1-rotation-real-madrid-trossard/
+
 **Trump Administration Live Updates: Senate Approves G.O.P. Budget Plan After an Overnight ‘Vote-a-Rama’**\
 ``\
 https://nytimes.com/live/2025/04/05/us/trump-news-tariffs
