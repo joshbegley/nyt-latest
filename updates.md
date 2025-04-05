@@ -1,3 +1,7 @@
+**Trump Administration Fires U.S. Aid Workers in Quake Zone in Myanmar**\
+`The move comes despite Secretary of State Marco Rubio saying the U.S. would still do some humanitarian work while shrinking foreign aid. Democratic lawmakers have denounced the cuts.`\
+https://nytimes.com/2025/04/05/us/politics/aid-workers-myanmar-fired.html
+
 **Real Madrid winning La Liga 'difficult' after Valencia loss - Ancelotti**\
 `The defeat leaves Madrid three points behind Barcelona, who play their game in hand later on Saturday at home to Real Betis.`\
 https://nytimes.com/athletic/6257319/2025/04/05/real-madrid-la-liga-title-ancelotti/

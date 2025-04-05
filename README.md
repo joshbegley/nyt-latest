@@ -1,3 +1,7 @@
+**Floods Inundate Central U.S.**\
+`A relentless storm continued to dump rain across the Midwest and South, causing increased flooding from Texas to Ohio.`\
+https://nytimes.com/video/us/100000010094026/flooding-central-us-severe-weather.html
+
 **Trump Administration Fires U.S. Aid Workers in Quake Zone in Myanmar**\
 `The move comes despite Secretary of State Marco Rubio saying the U.S. would still do some humanitarian work while shrinking foreign aid. Democratic lawmakers have denounced the cuts.`\
 https://nytimes.com/2025/04/05/us/politics/aid-workers-myanmar-fired.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6256324/2025/04/05/basketball-hall-of-fame-2025-cla
 **He Said He Would Ban Congressional Stock Trading. Now in Office, He Trades Freely.**\
 `Representative Rob Bresnahan Jr., who campaigned on prohibiting stock trading by members of Congress, has emerged as one of the most active stock traders in the freshman class.`\
 https://nytimes.com/2025/04/05/us/politics/congress-stock-trading-ban.html
-
-**U.S. Soccer and NWSL react to potential 2031 Women's World Cup in the U.S.**\
-`U.S. Soccer says it's a 'passionate supporter' of a 48-team Women's World Cup`\
-https://nytimes.com/athletic/6257208/2025/04/05/us-soccer-nwsl-2031-world-cup-bid/
 
