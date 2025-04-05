@@ -1,3 +1,7 @@
+**Chelsea’s Fofana out for rest of 2024-25 after hamstring surgery**\
+`Chelsea expect Fofana to miss the remainder of the campaign, including the FIFA Club World Cup, and return to availability of 2025-26.`\
+https://nytimes.com/athletic/6257377/2025/04/05/wesley-fofana-injury-update-surgery-chelsea/
+
 **Ex-Aides to Texas Attorney General Win $6.6 Million in Whistle-Blower Case**\
 `A judge found that four whistle-blowers who accused Ken Paxton, the Texas attorney general, of corruption and reported him to the F.B.I. were unjustly fired.`\
 https://nytimes.com/2025/04/05/us/ken-paxton-aides-whistleblowers-texas-ag.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/05/us/politics/anti-trump-protests-hands-off.html
 **British Carmaker Jaguar Land Rover Pauses Shipments to U.S.**\
 `The luxury automaker, which faces 25 percent import tariffs, said it was halting shipments in April as it addresses the new trading terms.`\
 https://nytimes.com/2025/04/05/business/jaguar-land-rover-tariffs-shipments.html
-
-**Priest Is Fatally Shot Outside His Parish Rectory**\
-`The Rev. Arul Carasala was found outside his parish rectory in Kansas on Thursday, officials said. An Oklahoma man was arrested, though a motive remained unknown.`\
-https://nytimes.com/2025/04/05/us/catholic-priest-shot-kansas.html
 

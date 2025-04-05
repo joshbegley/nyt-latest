@@ -1,3 +1,7 @@
+**Chelsea’s Fofana out for rest of 2024-25 after hamstring surgery**\
+`Chelsea expect Fofana to miss the remainder of the campaign, including the FIFA Club World Cup, and return to availability of 2025-26.`\
+https://nytimes.com/athletic/6257377/2025/04/05/wesley-fofana-injury-update-surgery-chelsea/
+
 **Ex-Aides to Texas Attorney General Win $6.6 Million in Whistle-Blower Case**\
 `A judge found that four whistle-blowers who accused Ken Paxton, the Texas attorney general, of corruption and reported him to the F.B.I. were unjustly fired.`\
 https://nytimes.com/2025/04/05/us/ken-paxton-aides-whistleblowers-texas-ag.html
