@@ -1,3 +1,7 @@
+**Matthew Boyd's strong start sets stage for Cubs to claim fifth-straight victory**\
+`In an April schedule packed with the NL’s best, the Cubs are showing that they may be up for the challenge.`\
+https://nytimes.com/athletic/6257785/2025/04/05/chicago-cubs-matthew-boyd-start-victory/
+
 **Israel Says Its Account of Rescue Workers Killed in Gaza Was Partly ‘Mistaken’**\
 `The Israeli military had previously asserted that the workers had been “advancing suspiciously” toward its troops. A video obtained by The New York Times on Friday appeared to contradict that account.`\
 https://nytimes.com/2025/04/05/world/middleeast/israel-killing-rescue-workers-gaza.html
