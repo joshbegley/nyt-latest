@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6254726/2025/04/05/romaine-mundle-tottenham-hotspur
 `Forest now have a roughly 90% chance of qualifying for next season's Champions League. So when is the earliest they can do it?`\
 https://nytimes.com/athletic/6255027/2025/04/05/nottingham-forest-ucl-champions-league-qualification-uefa/
 
-**Ange Postecoglou thinks not enough external voices defend Spurs - is he right?**\
-`Postecoglou made the comments the day after Tottenham Hotspur's defeat against Chelsea`\
-https://nytimes.com/athletic/6255733/2025/04/05/tottenham-ange-postecoglou-media-analysis/
+**Could Strasbourg’s form in Ligue 1 impact Chelsea’s European qualification hopes?**\
+`With the BlueCo-owned side the talk of France, there could be consequences for Chelsea`\
+https://nytimes.com/athletic/6246433/2025/04/05/rc-strasbourg-chelsea-europe-impact/
 
