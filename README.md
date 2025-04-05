@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6257527/2025/04/05/penguins-sidney-crosby-hat-trick
 https://nytimes.com/2025/04/05/us/politics/trump-administration-revokes-visas-of-south-sudanese-in-clash-over-deportees.html
 
 **Byron Buxton channels inner 'Energizer Bunny' to help Twins break out of slumber**\
-`The season is but a week old, and there have already been several sightings of the Twins' Energizer Bunny.`\
+`The season is but a week old, and there have already been several sightings of the Twins' "Energizer Bunny."`\
 https://nytimes.com/athletic/6257861/2025/04/05/byron-buxton-energizer-bunny-twins-beat-astros/
 
 **Trinity Rodman scores in first game back with USWNT**\

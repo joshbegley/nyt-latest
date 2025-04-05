@@ -1,3 +1,11 @@
+**Yohe's 10 observations: Sidney Crosby puts on a show with hat trick against Dallas**\
+`Crosby extended his points streak to 12 games as Pittsburgh surprised the Stars with a 5-3 win in Dallas. `\
+https://nytimes.com/athletic/6257527/2025/04/05/penguins-sidney-crosby-hat-trick-stars/
+
+**Trump Administration Revokes Visas of South Sudanese in Clash Over Deportees**\
+`Secretary of State Marco Rubio said he was making the move because the transitional government of South Sudan had refused to accept its citizens in a timely manner.`\
+https://nytimes.com/2025/04/05/us/politics/trump-administration-revokes-visas-of-south-sudanese-in-clash-over-deportees.html
+
 **Byron Buxton channels inner 'Energizer Bunny' to help Twins break out of slumber**\
 `The season is but a week old, and there have already been several sightings of the Twins' Energizer Bunny.`\
 https://nytimes.com/athletic/6257861/2025/04/05/byron-buxton-energizer-bunny-twins-beat-astros/
