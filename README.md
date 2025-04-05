@@ -1,40 +1,40 @@
-**Dawn's Dynasty? Auriemma's Empire? Iconic UConn, South Carolina coaches duel for championship**\
-`The Hall of Fame coaches are a portrait of where women's basketball has been and where it's going.`\
-https://nytimes.com/athletic/6256918/2025/04/05/dawn-staley-geno-auriemma-uconn-south-carolina-national-championship-womens/
+**Colorado pro day: Travis Hunter is a lock as a top-5 pick, but could Shedeur Sanders fall?**\
+`There's growing belief around the league that Cam Ward and Hunter will be the top two picks in the NFL Draft. Where will Sanders go?`\
+https://nytimes.com/athletic/6256054/2025/04/05/colorado-pro-day-shedeur-sanders-travis-hunter-nfl-draft/
 
-**Trump Envoy Visits Lebanon Amid Fears Over a Shaky Cease-Fire**\
-`Morgan Ortagus, President Trump’s deputy Middle East envoy, met with senior officials as tensions with Israel threaten the truce.`\
-https://nytimes.com/2025/04/05/world/middleeast/lebanon-us-israel-hezbollah.html
+**UConn's Paige Bueckers has 40 minutes of college basketball left. Will it end in a title?**\
+`Geno Auriemma doesn't need to talk to Bueckers about winning a title. They know the standard at UConn. `\
+https://nytimes.com/athletic/6257019/2025/04/05/paige-bueckers-uconn-legacy-national-championship/
 
-**Works of Art**\
-`Creating rules around the content we consume can help calm our overtaxed brains and manage our moods.`\
-https://nytimes.com/2025/04/05/briefing/works-of-art.html
+**The Theories Behind the Trump Shock**\
+`What Trump’s dramatic revision of the global trade system is intended to accomplish — and reasons for skepticism.`\
+https://nytimes.com/2025/04/05/opinion/trump-tariffs-theories.html
 
-**Alex Ovechkin scored No. 894 'in theater and in style.' His next goal will be even grander**\
-`Nothing in hockey is inevitable. But Ovechkin is as close as it comes.`\
-https://nytimes.com/athletic/6256831/2025/04/05/ovechkin-record-gretzky-goals/
+**Without Tyrese Proctor, there is no Final Four for Duke: 'The guy we looked to for guidance'**\
+`Proctor is playing the best basketball of his collegiate career for a Duke team that is the favorite to win the national title. `\
+https://nytimes.com/athletic/6256411/2025/04/05/tyrese-proctor-duke-final-four/
 
-**Can ANWA have its first repeat champion? Lottie Woad is ready for the opportunity**\
-`She’ll play the pressure-filled final round on the biggest stage in women’s amateur golf, tied with Oregon’s Kiara Romero.`\
-https://nytimes.com/athletic/6255798/2025/04/05/anwa-golf-lottie-woad-champion/
+**Paul Krugman on the ‘Biggest Trade Shock in History’**\
+`The trade economist Paul Krugman parses the ‘layers of wrongness’ in Trump’s tariff policy.`\
+https://nytimes.com/video/opinion/100000010091402/paul-krugman-on-the-biggest-trade-shock-in-history.html
 
-**UConn vs. South Carolina: Our experts predict who will win the national championship**\
-`The Athletic's women's basketball experts overwhelmingly picked one team to win it all. But there is an outlier.`\
-https://nytimes.com/athletic/6256691/2025/04/05/uconn-south-carolina-womens-national-championship-predictions/
+**Paul Krugman on the ‘Biggest Trade Shock in History’**\
+`The trade economist Paul Krugman parses the ‘layers of wrongness’ in Trump’s tariff policy.`\
+https://nytimes.com/2025/04/05/opinion/ezra-klein-podcast-paul-krugman.html
 
-**In Canada’s Auto City, Tariffs Have Already Caused a Shutdown**\
-`Hours before the 25 percent tariff on cars made in Canada went into effect, the largest auto plant in Windsor, Ontario, announced it would close for two weeks.`\
-https://nytimes.com/2025/04/05/world/canada/tariffs-canada-windsor-auto-industry.html
+**‘Few of Us Ever Imagined He Would Go This Far’**\
+`Donald Trump’s tariff regime is a self-inflicted disaster.`\
+https://nytimes.com/2025/04/05/opinion/trump-tariffs-stock-market-recession.html
 
-**Wordle Review No. 1,387**\
-`Scroll down for hints and conversation about the puzzle for Sunday, April 6, 2025.`\
-https://nytimes.com/2025/04/05/crosswords/wordle-review-1387.html
+**Which prospect in each NHL team’s pipeline had the most promising season?**\
+`As the 2024-25 hockey season winds down, these NHL prospects have emerged and shown what they could have to offer.`\
+https://nytimes.com/athletic/6256024/2025/04/05/nhl-top-prospects-teams-promising-season-rookie/
 
-**Connections Companion No. 665**\
-`Scroll down for hints and conversation about the puzzle for Sunday, April 6, 2025.`\
-https://nytimes.com/2025/04/05/crosswords/connections-companion-665.html
+**Globalization Is Collapsing. Brace Yourselves.**\
+`The world was just as intertwined 100 years ago, and its unraveling was a disaster. Can we avoid the same outcome?`\
+https://nytimes.com/2025/04/05/opinion/globalization-collapse.html
 
-**How ​South Korea’s Democracy Prevailed Over a Reckless Leader**\
-`The rise and fall of Yoon Suk Yeol exposed a vulnerability in South Korean democracy, but also a resilience. Its people were always ready to fight for it.`\
-https://nytimes.com/2025/04/05/world/asia/south-korea-democracy-martial-law.html
+**‘I Want to Be Martyred,’ a Palestinian Boy Declares**\
+`Israel’s ‘Gazafication’ of the West Bank displaces 40,000 residents of refugee camps.`\
+https://nytimes.com/2025/04/05/opinion/palestinian-west-bank-refugee-israel.html
 
