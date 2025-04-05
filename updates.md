@@ -1,3 +1,7 @@
+**Max Verstappen takes sensational pole as grass fires interrupt Japanese Grand Prix qualifying**\
+`Max Verstappen set a lap record in securing pole for the Japanese Grand Prix `\
+https://nytimes.com/athletic/6256867/2025/04/05/japanese-grand-prix-qualifying-practice-grass-fires/
+
 **Senate Approves G.O.P. Budget Plan After Overnight Vote-a-Thon**\
 `Republicans pushed through their blueprint for tax and spending cuts after Democrats forced them to cast politically painful votes into the early morning on every element of President Trump’s agenda.`\
 https://nytimes.com/2025/04/05/us/politics/senate-budget.html
