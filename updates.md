@@ -1,3 +1,15 @@
+**Jake Middleton injured as slumping Wild go winless on 3-game trip: 3 takeaways**\
+`The Wild, who are crumbling at the seams, are now 1-4-2 in their past seven games after a 3-1 loss to the Islanders Friday. `\
+https://nytimes.com/athletic/6256450/2025/04/04/wild-islanders-jake-middleton-injury/
+
+**Pistons beat Raptors to clinch first playoff berth since 2019**\
+`Detroit went from 14 wins last season to 43 (and counting) now, with a guaranteed spot in the postseason.`\
+https://nytimes.com/athletic/6256584/2025/04/04/pistons-nba-playoff-berth-raptors/
+
+**Yankees' Aaron Judge is 'no-brainer' for Hall of Fame after 1,000 games, manager says**\
+`Aaron Boone was impressed after Judge became the first player in MLB history with 321 home runs in his first 1,000 games.`\
+https://nytimes.com/athletic/6256555/2025/04/04/yankees-aaron-judge-1000-games-mlb-history/
+
 **Women's March Madness projections 2025: Does UConn have the advantage?**\
 `What's your team's chance of winning? Find out here. `\
 https://nytimes.com/athletic/6198041/2025/04/04/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
