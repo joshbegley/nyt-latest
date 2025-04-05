@@ -1,3 +1,11 @@
+**Netanyahu Will Meet Trump in Washington**\
+`The Israeli prime minister will visit President Trump at the White House on Monday amid his nation’s renewed campaign in Gaza.`\
+https://nytimes.com/2025/04/05/world/middleeast/netanyahu-trump-washington.html
+
+**Sammy Smith, NASCAR Xfinity drivers strike different tone after post-Martinsville meeting**\
+`A contrite Sammy Smith acknowledged he "made a mistake" after NASCAR warned Xfinity Series drivers to watch their actions on the track. `\
+https://nytimes.com/athletic/6257136/2025/04/05/sammy-smith-nascar-xfinity-series-martinsville-penalty-apology/
+
 **Barcelona's Martinez out of Betis match with muscular injury**\
 `Martinez has been a regular in the defence of Hansi Flick's side this season, starting 36 matches across all competitions.`\
 https://nytimes.com/athletic/6257140/2025/04/05/inigo-martinez-barcelona-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/05/us/politics/nsa-director-haugh-trump-loomer.html
 **Gonzalez to make Real Madrid debut; Courtois missing vs. Valencia**\
 `Gonzalez has been an unused substitute in Carlo Ancelotti's matchday squad on 59 occasions across recent seasons.`\
 https://nytimes.com/athletic/6253370/2025/04/05/fran-gonzalez-real-madrid-goalkeeper-who/
-
-**In Wrigley Field debut, Kyle Tucker shows his game-changing potential**\
-`“The crowd, the interactions and chanting was pretty cool to see and be a part of,” Tucker said.`\
-https://nytimes.com/athletic/6256352/2025/04/05/kyle-tucker-wrigley-field-debut/
-
-**What makes the Geekie-Pastrnak partnership work? ‘Forehand to forehand’**\
-`Geekie, 26, has maximized his top-line opportunity to the point where he has numbers to flex in a potential arbitration hearing this summer.`\
-https://nytimes.com/athletic/6256059/2025/04/05/bruins-david-pastrnak-morgan-geekie-chemistry/
 
