@@ -1,4 +1,4 @@
-**Prosecutors Push for 7-Year Sentence for George Santos**\
+**Prosectors on George Santos Case Seek 7-Year Sentence**\
 `The disgraced former congressman is set to be sentenced on April 25. His lawyers asked for a penalty of two years, the minimum allowed.`\
 https://nytimes.com/2025/04/05/nyregion/george-santos-sentencing-prison.html
 
