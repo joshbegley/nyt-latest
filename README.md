@@ -1,3 +1,11 @@
+**U.K. Labour Lawmaker Suspended From Party After Arrest**\
+`Dan Norris, a lawmaker who won a seat in Parliament last year, was swiftly suspended from Britain’s governing party.`\
+https://nytimes.com/2025/04/05/world/europe/uk-parliament-dan-norris-suspended.html
+
+**Red Sox rookie Kristian Campbell becomes team's backup center fielder**\
+`Ten days into his Major League career, Boston Red Sox rookie Kristian Campbell already has a new assignment: backup center fielder.`\
+https://nytimes.com/athletic/6257528/2025/04/05/red-sox-kristian-campbell-backup-center-field/
+
 **Justice Dept. Lawyer Who Criticized Administration in Court Is Put on Leave**\
 `Erez Reuveni is the latest in a series of career officials who have faced punitive action after refusing to comply with a directive they deemed illegal or unethical.`\
 https://nytimes.com/2025/04/05/us/politics/justice-dept-immigration-lawyer-leave.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6257402/2025/04/05/yankees-cody-bellingers-back-inj
 **Thomas Muller and Bayern's dignified but surprising parting of ways. Will MLS be next?**\
 `Muller, aged 35, will leave after 25 years at the club. He is not ready to retire and there has been a discussion between Bayern and LAFC`\
 https://nytimes.com/athletic/6257043/2025/04/05/thomas-muller-leaving-bayern-mls-lafc/
-
-**Chelsea’s Fofana out for rest of 2024-25 after hamstring surgery**\
-`Chelsea expect Fofana to miss the remainder of the campaign, including the FIFA Club World Cup, and return for the 2025-26 season`\
-https://nytimes.com/athletic/6257377/2025/04/05/wesley-fofana-injury-update-surgery-chelsea/
-
-**Ex-Aides to Texas Attorney General Win $6.6 Million in Whistle-Blower Case**\
-`A judge found that four whistle-blowers who accused Ken Paxton, the Texas attorney general, of corruption and reported him to the F.B.I. were unjustly fired.`\
-https://nytimes.com/2025/04/05/us/ken-paxton-aides-whistleblowers-texas-ag.html
 

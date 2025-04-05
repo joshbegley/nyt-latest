@@ -1,3 +1,8 @@
+**Staple: Rangers come up small in a big spot once again**\
+`In game No. 76 against local rival New Jersey, the Rangers looked like a team still trying to figure out their season.
+`\
+https://nytimes.com/athletic/6257416/2025/04/05/new-york-rangers-new-jersey-devils-score/
+
 **Justice Dept. Lawyer Who Criticized Administration in Court Is Put on Leave**\
 `Erez Reuveni is the latest in a series of career officials who have faced punitive action after refusing to comply with a directive they deemed illegal or unethical.`\
 https://nytimes.com/2025/04/05/us/politics/justice-dept-immigration-lawyer-leave.html
