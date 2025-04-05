@@ -1,3 +1,11 @@
+**Investors recoil from Trump’s pledge to remake the global economy.**\
+`By Joe Rennison and Danielle Kaye`\
+https://nytimes.com/live/2025/04/04/business/trump-tariffs-stocks-economy/investors-recoil-from-trumps-pledge-to-remake-the-global-economy
+
+**NFL legend Julio Jones announces retirement after 13 seasons**\
+`The superstar wide receiver and Falcons icon amassed over 13,700 yards along with numerous All-Pro and Pro Bowl selections.`\
+https://nytimes.com/athletic/6256262/2025/04/04/julio-jones-announces-retirement-nfl-falcons/
+
 **These Are the 381 Books Removed From the Naval Academy Library**\
 `The office of Defense Secretary Pete Hegseth ordered the college to adhere to an executive order from President Trump banning educational material related to diversity, equity and inclusion topics.`\
 https://nytimes.com/2025/04/04/us/politics/naval-academy-dei-books-removed.html
