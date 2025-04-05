@@ -1,3 +1,7 @@
+**Chemical Industry Asks Trump for Exemption From Pollution Limits**\
+`The Biden-era limits were designed to reduce emissions of toxic pollutants, including a cancer-causing ingredient used in antifreeze and plastics.`\
+https://nytimes.com/2025/04/05/climate/chemical-industry-trump-pollution-exemption.html
+
 **Anti-Trump Protests Get Underway Across the Country**\
 `The mass action, “Hands Off!,” was planned at a time when many on the left have bemoaned what they considered a lack of strong resistance to President Trump.`\
 https://nytimes.com/2025/04/05/us/politics/anti-trump-protests-hands-off.html

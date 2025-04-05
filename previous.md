@@ -1,3 +1,7 @@
+**Chemical Industry Asks Trump for Exemption From Pollution Limits**\
+`The Biden-era limits were designed to reduce emissions of toxic pollutants, including a cancer-causing ingredient used in antifreeze and plastics.`\
+https://nytimes.com/2025/04/05/climate/chemical-industry-trump-pollution-exemption.html
+
 **PSG win Ligue 1 title with six games to go, remain unbeaten**\
 `The victory over Angers left PSG, who remain unbeaten in Ligue 1 this season, with an insurmountable 24-point lead over second place Monaco.`\
 https://nytimes.com/athletic/6249139/2025/04/05/psg-champions-france-ligue-1-title/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6256044/2025/04/05/south-carolina-uconn-womens-ncaa
 **Prosecutors on George Santos Case Seek 7-Year Sentence**\
 `The disgraced former congressman is set to be sentenced on April 25. His lawyers asked for a penalty of two years, the minimum allowed.`\
 https://nytimes.com/2025/04/05/nyregion/george-santos-sentencing-prison.html
-
-**Ticket prices soar with Alex Ovechkin 1 goal from breaking Wayne Gretzky's record**\
-`If you're trying to watch Ovechkin make history, prepare yourself for a risky, expensive gamble.`\
-https://nytimes.com/athletic/6257192/2025/04/05/alex-ovechkin-washington-capitals-tickets/
 
