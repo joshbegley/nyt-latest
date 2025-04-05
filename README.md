@@ -1,5 +1,9 @@
+**‘White Lotus’ Has an Old-School View of Relationships**\
+`In Mike White’s show, love and money go together.`\
+https://nytimes.com/2025/04/05/opinion/white-lotus-marriage.html
+
 **Firing of National Security Agency Chief Rattles Lawmakers**\
-`Gen. Timothy Haugh, who was also the head of U.S. Cyber Command, was one of several national security officials fired on the advice of a conspiracy theorist.`\
+`Gen. Timothy D. Haugh, who was also the head of U.S. Cyber Command, was one of several national security officials fired on the advice of a conspiracy theorist.`\
 https://nytimes.com/2025/04/05/us/politics/nsa-director-haugh-trump-loomer.html
 
 **Gonzalez to make Real Madrid debut; Courtois missing vs. Valencia**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/05/us/severe-storm-flood-central-us.html
 **The Pulse: Why today's Final Four is special**\
 `Welcome to The Pulse, The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/6256499/2025/04/05/final-four-teams-favorites-picks-the-pulse/
-
-**2 Books to Keep You Pleasantly Diverted**\
-`A collection of autobiographical sketches; a complicated Japanese mystery.`\
-https://nytimes.com/2025/04/05/books/read-like-wind-recommendations.html
 
