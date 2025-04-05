@@ -1,3 +1,7 @@
+**Grass fires interrupt Japanese Grand Prix practice sessions**\
+`Wild fires interrupt practice sessions and could be a concern ahead of Japanese Grand Prix `\
+https://nytimes.com/athletic/6256867/2025/04/05/japanese-grand-prix-qualifying-practice-wild-fires/
+
 **Could Strasbourg’s form in Ligue 1 impact Chelsea’s European qualification hopes?**\
 `With the BlueCo-owned side the talk of France, there could be consequences for Chelsea`\
 https://nytimes.com/athletic/6246433/2025/04/05/rc-strasbourg-chelsea-europe-impact/

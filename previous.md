@@ -1,3 +1,7 @@
+**Grass fires interrupt Japanese Grand Prix practice sessions**\
+`Wild fires interrupt practice sessions and could be a concern ahead of Japanese Grand Prix `\
+https://nytimes.com/athletic/6256867/2025/04/05/japanese-grand-prix-qualifying-practice-wild-fires/
+
 **After 3 significant wins, Warriors are in position to snatch home-court advantage**\
 `If they can win consistently, there's a practical path to the Warriors moving into the third or fourth spot in the Play-In Tournament.`\
 https://nytimes.com/athletic/6256756/2025/04/05/warriors-in-position-for-home-court-advantage/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6254726/2025/04/05/romaine-mundle-tottenham-hotspur
 **When is the earliest Nottingham Forest can qualify for the Champions League?**\
 `Forest now have a roughly 90% chance of qualifying for next season's Champions League. So when is the earliest they can do it?`\
 https://nytimes.com/athletic/6255027/2025/04/05/nottingham-forest-ucl-champions-league-qualification-uefa/
-
-**Could Strasbourg’s form in Ligue 1 impact Chelsea’s European qualification hopes?**\
-`With the BlueCo-owned side the talk of France, there could be consequences for Chelsea`\
-https://nytimes.com/athletic/6246433/2025/04/05/rc-strasbourg-chelsea-europe-impact/
 
