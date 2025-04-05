@@ -1,3 +1,15 @@
+**Thomas Muller and Bayern's dignified but surprising parting of ways. Will MLS be next?**\
+`Muller, aged 35, will leave after 25 years at the club. He is not ready to retire and there has been a discussion between Bayern and LAFC`\
+https://nytimes.com/athletic/6257043/2025/04/05/thomas-muller-leaving-bayern-mls-lafc/
+
+**Chelsea’s Fofana out for rest of 2024-25 after hamstring surgery**\
+`Chelsea expect Fofana to miss the remainder of the campaign, including the FIFA Club World Cup, and return for the 2025-26 season`\
+https://nytimes.com/athletic/6257377/2025/04/05/wesley-fofana-injury-update-surgery-chelsea/
+
+**How one Ipswich backpass caused two of the craziest minutes in the Premier League this season**\
+`One simple-looking pass led to mayhem at Portman Road, with some Braveheart-esque defending to keep out an indirect free kick inside the box`\
+https://nytimes.com/athletic/6257340/2025/04/05/ipswich-backpass-wolves-goalkeeper-handball-free-kick/
+
 **Chelsea’s Fofana out for rest of 2024-25 after hamstring surgery**\
 `Chelsea expect Fofana to miss the remainder of the campaign, including the FIFA Club World Cup, and return to availability of 2025-26.`\
 https://nytimes.com/athletic/6257377/2025/04/05/wesley-fofana-injury-update-surgery-chelsea/
