@@ -1,3 +1,23 @@
+**Prosecutors Push for 7-Year Sentence for George Santos**\
+`The disgraced former congressman is set to be sentenced on April 25. His lawyers asked for a penalty of two years, the minimum allowed.`\
+https://nytimes.com/2025/04/05/nyregion/george-santos-sentencing-prison.html
+
+**Ticket prices soar with Alex Ovechkin 1 goal from breaking Wayne Gretzky's record**\
+`If you're trying to watch Ovechkin make history, prepare yourself for a risky, expensive gamble.`\
+https://nytimes.com/athletic/6257192/2025/04/05/alex-ovechkin-washington-capitals-tickets/
+
+**James out of England squad with hamstring injury, Naz called up**\
+`James will miss the reverse fixture with Belgium on Tuesday and return to Chelsea to begin her rehabilitation.`\
+https://nytimes.com/athletic/6257088/2025/04/05/lauren-james-injury-update-england-chelsea/
+
+**Forest without recognised striker for Villa trip after Awoniyi injury**\
+`Awoniyi has been ruled out of a key game against one of Forest’s rivals for Champions League qualification.`\
+https://nytimes.com/athletic/6257201/2025/04/05/nottingham-forest-aston-villa-awoniyi-injury/
+
+**Cottage Cheese Egg Bites Are Versatile and Handy**\
+`This recipe is how you turn those random leftovers in your fridge into a perfect grab-and-go breakfast.`\
+https://nytimes.com/2025/04/05/dining/cottage-cheese-egg-bites-breakfast.html
+
 **Arteta on Everton penalty decision: 'I've seen it 15 times, there's no way'**\
 `Jack Harrison went to ground under pressure from Myles Lewis-Skelly with Iliman Ndiaye scoring from the spot to earn a draw.`\
 https://nytimes.com/athletic/6257196/2025/04/05/everton-penalty-arsenal-arteta/
