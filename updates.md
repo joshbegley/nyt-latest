@@ -1,4 +1,8 @@
 **Jake Middleton injured as slumping Wild go winless on 3-game trip: 3 takeaways**\
+`The Wild, who are crumbling at the seams, are 1-4-2 in their past seven games after a 3-1 loss to the Islanders on Friday. `\
+https://nytimes.com/athletic/6256450/2025/04/04/wild-islanders-jake-middleton-injury/
+
+**Jake Middleton injured as slumping Wild go winless on 3-game trip: 3 takeaways**\
 `The Wild, who are crumbling at the seams, are now 1-4-2 in their past seven games after a 3-1 loss to the Islanders Friday. `\
 https://nytimes.com/athletic/6256450/2025/04/04/wild-islanders-jake-middleton-injury/
 
