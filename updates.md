@@ -1,3 +1,7 @@
+**Quote of the Day: After ‘Adolescence,’ a Teen Handles School and Fame**\
+`Quotation of the Day for Saturday, April 5, 2025.`\
+https://nytimes.com/2025/04/04/pageoneplus/quote-of-the-day-after-adolescence-a-teen-handles-school-and-fame.html
+
 **UConn routs UCLA in Final Four to set up championship game with South Carolina**\
 `UConn is looking for its 12th national championship under coach Geno Auriemma and first since 2016.`\
 https://nytimes.com/athletic/6256694/2025/04/04/uconn-ucla-final-four-result-score/
