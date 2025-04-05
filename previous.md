@@ -1,3 +1,7 @@
+**Course Correction**\
+`Kareem Ayas’s Sunday puzzle is major fun.`\
+https://nytimes.com/2025/04/05/crosswords/daily-puzzle-2025-04-06.html
+
 **What we saw from Notre Dame's open spring practice**\
 `As has been the custom with Notre Dame’s open practices, we'll offer a running diary of the action and work through the noise.`\
 https://nytimes.com/athletic/6257610/2025/04/05/notre-dame-football-spring-practice-observations/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6257416/2025/04/05/new-york-rangers-new-jersey-devi
 **Forest's Awoniyi, Elanga to be monitored after injuries**\
 `Forest are awaiting Awoniyi's injury scan results while Elanga was forced off at half-time in Saturday's defeat to Aston Villa.`\
 https://nytimes.com/athletic/6257438/2025/04/05/nottingham-forest-injury-news-awoniyi-elanga/
-
-**Reds break scoreless streak, still looking to end losing streak**\
-`There’s a cliche that hitting is contagious, but for this Reds team, that's one illness not going through the clubhouse.`\
-https://nytimes.com/athletic/6256763/2025/04/05/reds-scoreless-losing-streak/
 
