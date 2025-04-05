@@ -1,3 +1,7 @@
+**Trump Administration Fires U.S. Aid Workers in Quake Zone in Myanmar**\
+`The move comes despite Secretary of State Marco Rubio saying the U.S. would still do some humanitarian work while shrinking foreign aid. Democratic lawmakers have denounced the cuts.`\
+https://nytimes.com/2025/04/05/us/politics/aid-workers-myanmar-fired.html
+
 **Real Madrid winning La Liga 'difficult' after Valencia loss - Ancelotti**\
 `The defeat leaves Madrid three points behind Barcelona, who play their game in hand later on Saturday at home to Real Betis.`\
 https://nytimes.com/athletic/6257319/2025/04/05/real-madrid-la-liga-title-ancelotti/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/05/us/politics/congress-stock-trading-ban.html
 **U.S. Soccer and NWSL react to potential 2031 Women's World Cup in the U.S.**\
 `U.S. Soccer says it's a 'passionate supporter' of a 48-team Women's World Cup`\
 https://nytimes.com/athletic/6257208/2025/04/05/us-soccer-nwsl-2031-world-cup-bid/
-
-**South Carolina vs. UConn odds: Huskies favored in women's national title game**\
-`UConn-South Carolina is the final game we deserve. Legacies will solidify and hoop dreams will actualize on Sunday afternoon.`\
-https://nytimes.com/athletic/6256044/2025/04/05/south-carolina-uconn-womens-ncaa-tournament-championship-odds-betting-how-to-watch/
 
