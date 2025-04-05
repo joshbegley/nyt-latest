@@ -1,9 +1,13 @@
+**Freshman Joyce Edwards could be South Carolina's spark against UConn in championship**\
+`Edwards broke out of a tournament slump against Texas with 13 points and 11 rebounds in the Final Four.`\
+https://nytimes.com/athletic/6256685/2025/04/05/joyce-edwards-south-carolina-final-four/
+
 **South Carolina makes emphatic statement about its identity in return to national championship**\
 `The Gamecocks will play for their third title in four seasons. They'll have to beat UConn on Sunday to earn it.`\
 https://nytimes.com/athletic/6256790/2025/04/05/south-carolina-makes-emphatic-statement-about-its-identity-in-return-to-national-championship/
 
 **Giants fans get the full Willy Adames experience with a walk-off win in home opener**\
-`The Giants and Mariners traded jabs and body blows all game, which ended with the second straight walk-off win in an Oracle Park opener. `\
+`The Giants and Mariners traded jabs and body blows all game, which ended with the second straight walk-off win in an Oracle Park opener.`\
 https://nytimes.com/athletic/6256143/2025/04/05/giants-walk-off-wins-home-opener/
 
 **With tensions rising and losses mounting, Wild's playoff spot becoming perilous**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6254958/2025/04/05/manchester-united-fans-moved-sea
 **Spencer Schwellenbach pitches like an ace, again, in Braves' first win of 2025**\
 `Schwellenbach is not pitching like a future MLB ace. He's pitching like a current ace.`\
 https://nytimes.com/athletic/6256703/2025/04/05/braves-marlins-first-win-spencer-schwellenbach-ace/
-
-**Have we finally heard the last of the Dani Olmo and Pau Victor registration saga?**\
-`A Spanish government body has ruled Olmo and Victor can play for the rest of the current campaign. What happens next?`\
-https://nytimes.com/athletic/6255559/2025/04/05/dani-olmo-pau-victor-barcelona-saga/
 

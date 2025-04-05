@@ -1,3 +1,11 @@
+**Freshman Joyce Edwards could be South Carolina's spark against UConn in championship**\
+`Edwards broke out of a tournament slump against Texas with 13 points and 11 rebounds in the Final Four.`\
+https://nytimes.com/athletic/6256685/2025/04/05/joyce-edwards-south-carolina-final-four/
+
+**Giants fans get the full Willy Adames experience with a walk-off win in home opener**\
+`The Giants and Mariners traded jabs and body blows all game, which ended with the second straight walk-off win in an Oracle Park opener.`\
+https://nytimes.com/athletic/6256143/2025/04/05/giants-walk-off-wins-home-opener/
+
 **South Carolina makes emphatic statement about its identity in return to national championship**\
 `The Gamecocks will play for their third title in four seasons. They'll have to beat UConn on Sunday to earn it.`\
 https://nytimes.com/athletic/6256790/2025/04/05/south-carolina-makes-emphatic-statement-about-its-identity-in-return-to-national-championship/
