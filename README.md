@@ -1,3 +1,7 @@
+**Works of Art**\
+`Creating rules around the content we consume can help calm our overtaxed brains and manage our moods.`\
+https://nytimes.com/2025/04/05/briefing/works-of-art.html
+
 **Alex Ovechkin scored No. 894 'in theater and in style.' His next goal will be even grander**\
 `Nothing in hockey is inevitable. But Ovechkin is as close as it comes.`\
 https://nytimes.com/athletic/6256831/2025/04/05/ovechkin-record-gretzky-goals/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6253781/2025/04/05/duke-houston-ncaa-tournament-fin
 **Bill Murray Says He’s Not the Man He Used to Be**\
 `The actor talks about his new film “The Friend,” his jerky past and what he doesn’t get about himself.`\
 https://nytimes.com/2025/04/05/magazine/bill-murray-interview.html
-
-**The Fed Isn’t Rushing to Save the Markets This Time**\
-`With stocks in a steep decline and tariffs inducing recession jitters, the patience of investors may be tested.`\
-https://nytimes.com/2025/04/05/business/tariffs-stock-market-fed-inflation.html
 
