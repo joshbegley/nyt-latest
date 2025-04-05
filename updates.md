@@ -1,3 +1,7 @@
+**As a Candidate, He Wanted to Ban Congressional Stock Trading. In Office, He Trades Freely.**\
+`Representative Rob Bresnahan Jr., who campaigned on prohibiting stock trading by members of Congress, has emerged as one of the most active stock traders in the freshman class.`\
+https://nytimes.com/2025/04/05/us/politics/congress-stock-trading-ban.html
+
 **U.S. Soccer and NWSL react to potential 2031 Women's World Cup in the U.S.**\
 `U.S. Soccer says it's a 'passionate supporter' of a 48-team Women's World Cup`\
 https://nytimes.com/athletic/6257208/2025/04/05/us-soccer-nwsl-2031-world-cup-bid/
