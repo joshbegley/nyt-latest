@@ -1,3 +1,7 @@
+**Arteta on Everton penalty decision: 'I've seen it 15 times, there's no way'**\
+`Jack Harrison went to ground under pressure from Myles Lewis-Skelly with Iliman Ndiaye scoring from the spot to earn a draw.`\
+https://nytimes.com/athletic/6257196/2025/04/05/everton-penalty-arsenal-arteta/
+
 **Dave Pelz, Scientist Turned Golf Instructor, Is Dead at 85**\
 `After working at NASA, he became a renowned expert on putting and shots close to the green through his coaching, books, television appearances and training aids.`\
 https://nytimes.com/2025/04/05/sports/golf/dave-pelz-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6257117/2025/04/05/chelsea-ffp-uefa-talks/
 **An Endangered Galápagos Tortoise Is a First-Time Mother at 100**\
 `Mommy, a Western Santa Cruz tortoise, recently welcomed four hatchlings at the Philadelphia Zoo, where she has lived since 1932.`\
 https://nytimes.com/2025/04/05/science/galapagos-tortoise-hatchlings-philadelphia-zoo.html
-
-**‘White Lotus’ Has an Old-School View of Relationships**\
-`In Mike White’s show, love and money go together.`\
-https://nytimes.com/2025/04/05/opinion/white-lotus-marriage.html
 

@@ -1,3 +1,19 @@
+**Ticket prices soar with Alex Ovechkin 1 goal from becoming NHL all-time goals leader**\
+`If you're trying to watch Ovechkin make history, prepare yourself for a risky, expensive gamble.`\
+https://nytimes.com/athletic/6257192/2025/04/05/alex-ovechkin-washington-capitals-tickets/
+
+**James out of England squad with hamstring injury, Naz called up**\
+`James will miss the reverse fixture with Belgium on Tuesday and return to Chelsea to begin her rehabilitation.`\
+https://nytimes.com/athletic/6257088/2025/04/05/lauren-james-injury-update-england-chelsea/
+
+**Forest without recognised striker for Villa trip after Awoniyi injury**\
+`Awoniyi has been ruled out of a key game against one of Forest’s rivals for Champions League qualification.`\
+https://nytimes.com/athletic/6257201/2025/04/05/nottingham-forest-aston-villa-awoniyi-injury/
+
+**Cottage Cheese Egg Bites Are Versatile and Handy**\
+`This recipe is how you turn those random leftovers in your fridge into a perfect grab-and-go breakfast.`\
+https://nytimes.com/2025/04/05/dining/cottage-cheese-egg-bites-breakfast.html
+
 **Arteta on Everton penalty decision: 'I've seen it 15 times, there's no way'**\
 `Jack Harrison went to ground under pressure from Myles Lewis-Skelly with Iliman Ndiaye scoring from the spot to earn a draw.`\
 https://nytimes.com/athletic/6257196/2025/04/05/everton-penalty-arsenal-arteta/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6257136/2025/04/05/sammy-smith-nascar-xfinity-serie
 **Barcelona's Martinez out of Betis match with muscular injury**\
 `Martinez has been a regular in the defence of Hansi Flick's side this season, starting 36 matches across all competitions.`\
 https://nytimes.com/athletic/6257140/2025/04/05/inigo-martinez-barcelona-injury/
-
-**The Briefing: Everton 1 Arsenal 1 - Arteta's eye on Madrid, Trossard's lethal left foot, is White a centre-back option?**\
-`Arsenal head into their Champions League tie against Real Madrid on the back of a draw at Everton - Art de Roche analyses the action`\
-https://nytimes.com/athletic/6247162/2025/04/05/everton-1-arsenal-1-rotation-real-madrid-trossard/
-
-**Trump Administration Live Updates: Senate Approves G.O.P. Budget Plan After an Overnight ‘Vote-a-Rama’**\
-``\
-https://nytimes.com/live/2025/04/05/us/trump-news-tariffs
-
-**Chelsea in talks with UEFA over settlement after spending rule breach**\
-`The most likely outcome from the Premier League club’s dialogue with UEFA is that they will be required to pay a financial penalty.`\
-https://nytimes.com/athletic/6257117/2025/04/05/chelsea-ffp-uefa-talks/
-
-**An Endangered Galápagos Tortoise Is a First-Time Mother at 100**\
-`Mommy, a Western Santa Cruz tortoise, recently welcomed four hatchlings at the Philadelphia Zoo, where she has lived since 1932.`\
-https://nytimes.com/2025/04/05/science/galapagos-tortoise-hatchlings-philadelphia-zoo.html
 

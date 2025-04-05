@@ -1,3 +1,7 @@
+**Arteta on Everton penalty decision: 'I've seen it 15 times, there's no way'**\
+`Jack Harrison went to ground under pressure from Myles Lewis-Skelly with Iliman Ndiaye scoring from the spot to earn a draw.`\
+https://nytimes.com/athletic/6257196/2025/04/05/everton-penalty-arsenal-arteta/
+
 **Dave Pelz, Scientist Turned Golf Instructor, Is Dead at 85**\
 `After working at NASA, he became a renowned expert on putting and shots close to the green through his coaching, books, television appearances and training aids.`\
 https://nytimes.com/2025/04/05/sports/golf/dave-pelz-dead.html
