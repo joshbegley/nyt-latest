@@ -1,3 +1,7 @@
+**UCLA was trounced by UConn, but can the Bruins get back to the Final Four next season?**\
+`“We got exposed,” UCLA coach Cori Close said. “We got our butts kicked today. And it stings right now.”`\
+https://nytimes.com/athletic/6257035/2025/04/05/ucla-uconn-final-four-loss/
+
 **Colorado pro day: Travis Hunter is a lock as a top-5 pick, but could Shedeur Sanders fall?**\
 `There's growing belief around the league that Cam Ward and Hunter will be the top two picks in the NFL Draft. Where will Sanders go?`\
 https://nytimes.com/athletic/6256054/2025/04/05/colorado-pro-day-shedeur-sanders-travis-hunter-nfl-draft/

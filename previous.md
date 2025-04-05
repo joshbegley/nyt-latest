@@ -1,3 +1,7 @@
+**UCLA was trounced by UConn, but can the Bruins get back to the Final Four next season?**\
+`“We got exposed,” UCLA coach Cori Close said. “We got our butts kicked today. And it stings right now.”`\
+https://nytimes.com/athletic/6257035/2025/04/05/ucla-uconn-final-four-loss/
+
 **Colorado pro day: Travis Hunter is a lock as a top-5 pick, but could Shedeur Sanders fall?**\
 `There's growing belief around the league that Cam Ward and Hunter will be the top two picks in the NFL Draft. Where will Sanders go?`\
 https://nytimes.com/athletic/6256054/2025/04/05/colorado-pro-day-shedeur-sanders-travis-hunter-nfl-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6256024/2025/04/05/nhl-top-prospects-teams-promisin
 **Globalization Is Collapsing. Brace Yourselves.**\
 `The world was just as intertwined 100 years ago, and its unraveling was a disaster. Can we avoid the same outcome?`\
 https://nytimes.com/2025/04/05/opinion/globalization-collapse.html
-
-**‘I Want to Be Martyred,’ a Palestinian Boy Declares**\
-`Israel’s ‘Gazafication’ of the West Bank displaces 40,000 residents of refugee camps.`\
-https://nytimes.com/2025/04/05/opinion/palestinian-west-bank-refugee-israel.html
 
