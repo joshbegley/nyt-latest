@@ -1,3 +1,7 @@
+**Carmelo Anthony, Dwight Howard, Sue Bird among 2025 Hall of Fame class**\
+`The members of the Naismith Memorial Basketball Hall of Fame's 2025 class were revealed at the men's Final Four in San Antonio on Saturday.`\
+https://nytimes.com/athletic/6256324/2025/04/05/basketball-hall-of-fame-2025-class-carmelo-anthony-sue-bird/
+
 **He Said He Would Ban Congressional Stock Trading. Now in Office, He Trades Freely.**\
 `Representative Rob Bresnahan Jr., who campaigned on prohibiting stock trading by members of Congress, has emerged as one of the most active stock traders in the freshman class.`\
 https://nytimes.com/2025/04/05/us/politics/congress-stock-trading-ban.html

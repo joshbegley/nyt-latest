@@ -1,3 +1,11 @@
+**British Carmaker Jaguar Land Rover Pauses Shipments to U.S.**\
+`The luxury automaker, which faces 25 percent import tariffs, said it was halting shipments in April as it addresses the new trading terms.`\
+https://nytimes.com/2025/04/05/business/jaguar-land-rover-tariffs-shipments.html
+
+**Priest Is Fatally Shot Outside His Parish Rectory**\
+`The Rev. Arul Carasala was found outside his parish rectory in Kansas on Thursday, officials said. An Oklahoma man was arrested, though a motive remained unknown.`\
+https://nytimes.com/2025/04/05/us/catholic-priest-shot-kansas.html
+
 **Carmelo Anthony, Dwight Howard, Sue Bird among 2025 Hall of Fame class**\
 `The members of the Naismith Memorial Basketball Hall of Fame's 2025 class were revealed at the men's Final Four in San Antonio on Saturday.`\
 https://nytimes.com/athletic/6256324/2025/04/05/basketball-hall-of-fame-2025-class-carmelo-anthony-sue-bird/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6257088/2025/04/05/lauren-james-injury-update-engla
 **Forest without recognised striker for Villa trip after Awoniyi injury**\
 `Awoniyi has been ruled out of a key game against one of Forest’s rivals for Champions League qualification.`\
 https://nytimes.com/athletic/6257201/2025/04/05/nottingham-forest-aston-villa-awoniyi-injury/
-
-**Cottage Cheese Egg Bites Are Versatile and Handy**\
-`This recipe is how you turn those random leftovers in your fridge into a perfect grab-and-go breakfast.`\
-https://nytimes.com/2025/04/05/dining/cottage-cheese-egg-bites-breakfast.html
-
-**Arteta on Everton penalty decision: 'I've seen it 15 times, there's no way'**\
-`Jack Harrison went to ground under pressure from Myles Lewis-Skelly with Iliman Ndiaye scoring from the spot to earn a draw.`\
-https://nytimes.com/athletic/6257196/2025/04/05/everton-penalty-arsenal-arteta/
 
