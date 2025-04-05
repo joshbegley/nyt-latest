@@ -1,3 +1,7 @@
+**How Canucks crushed Ducks with franchise-record offensive outburst: 3 takeaways**\
+`Vancouver set a record for the fastest five goals scored in franchise history in a 6-2 win over Anaheim. `\
+https://nytimes.com/athletic/6257750/2025/04/05/canucks-ducks-franchise-record-fastest-goals/
+
 **Matthew Boyd's strong start sets stage for Cubs to claim fifth-straight victory**\
 `In an April schedule packed with the NL’s best, the Cubs are showing that they may be up for the challenge.`\
 https://nytimes.com/athletic/6257785/2025/04/05/chicago-cubs-matthew-boyd-start-victory/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6255233/2025/04/05/ruben-amorim-manchester-united-t
 **U.K. Labour Lawmaker Suspended From Party After Arrest**\
 `Dan Norris, a lawmaker who won a seat in Parliament last year, was swiftly suspended from Britain’s governing party.`\
 https://nytimes.com/2025/04/05/world/europe/uk-parliament-dan-norris-suspended.html
-
-**Red Sox rookie Kristian Campbell becomes team's backup center fielder**\
-`Ten days into his Major League career, Boston Red Sox rookie Kristian Campbell already has a new assignment: backup center fielder.`\
-https://nytimes.com/athletic/6257528/2025/04/05/red-sox-kristian-campbell-backup-center-field/
 
