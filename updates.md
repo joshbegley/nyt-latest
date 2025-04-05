@@ -1,3 +1,7 @@
+**Jeremiah Estrada is back at Wrigley Field, now in control of a blossoming career**\
+`Estrada was claimed off waivers from the Cubs in November 2023. He has since become one of baseball's better relievers.`\
+https://nytimes.com/athletic/6256924/2025/04/05/jeremiah-estrada-cubs-padres/
+
 **Max Verstappen takes sensational pole as grass fires interrupt Japanese Grand Prix qualifying**\
 `Max Verstappen sets a lap record in securing pole for the Japanese Grand Prix `\
 https://nytimes.com/athletic/6256867/2025/04/05/japanese-grand-prix-qualifying-practice-grass-fires/
