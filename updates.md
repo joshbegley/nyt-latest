@@ -1,3 +1,7 @@
+**Why Small Changes Meant Big Differences in Tariff Rates, From Bermuda to Switzerland**\
+`Brunei’s tariffs could be much lower. Equatorial Guinea’s could be way higher. And Australia could have no tariffs at all. It all depends on choices hidden in the Trump formula.`\
+https://nytimes.com/interactive/2025/04/04/upshot/trump-tariffs-reciprocal.html
+
 **Judge Permanently Bars N.I.H. From Limiting Medical Research Funding**\
 `The decision came as an initial win for a broad coalition of academic institutions that had argued the policy jeopardized ongoing research, but it set up an almost certain appeal.`\
 https://nytimes.com/2025/04/04/us/politics/nih-medical-research-funding.html
