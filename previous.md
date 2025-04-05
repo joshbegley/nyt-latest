@@ -1,3 +1,15 @@
+**Trump Administration Live Updates: Senate Approves G.O.P. Budget Plan After an Overnight ‘Vote-a-Rama’**\
+``\
+https://nytimes.com/live/2025/04/05/us/trump-news-tariffs
+
+**Chelsea in talks with UEFA over settlement after spending rule breach**\
+`The most likely outcome from the Premier League club’s dialogue with UEFA is that they will be required to pay a financial penalty.`\
+https://nytimes.com/athletic/6257117/2025/04/05/chelsea-ffp-uefa-talks/
+
+**An Endangered Galápagos Tortoise Is a First-Time Mother at 100**\
+`Mommy, a Western Santa Cruz tortoise, recently welcomed four hatchlings at the Philadelphia Zoo, where she has lived since 1932.`\
+https://nytimes.com/2025/04/05/science/galapagos-tortoise-hatchlings-philadelphia-zoo.html
+
 **‘White Lotus’ Has an Old-School View of Relationships**\
 `In Mike White’s show, love and money go together.`\
 https://nytimes.com/2025/04/05/opinion/white-lotus-marriage.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6254350/2025/04/05/final-four-who-makes-the-all-tim
 **Corner by corner. Breaking down Max Verstappen's 'magical' pole lap in Japan**\
 `The ultimate driver on the ultimate driver’s track, delivering a lap that will live long in the memory`\
 https://nytimes.com/athletic/6257039/2025/04/05/max-verstappen-suzuka-pole-japanese-grand-prix/
-
-**A Tariffs Cheat Sheet**\
-`An escalating global trade war has tanked markets and plunged corporate America into chaos. DealBook asked economists, investors and other experts to help make sense of what’s next.`\
-https://nytimes.com/2025/04/05/business/dealbook/a-tariffs-cheat-sheet.html
-
-**Communities Brace for Flooding as Storm Moves Across Central U.S.**\
-`The storm has already wreaked havoc across the South and the Midwest, killing at least eight people, including a boy who was swept away by floodwaters in Kentucky.`\
-https://nytimes.com/2025/04/05/us/severe-storm-flood-central-us.html
-
-**The Pulse: Why today's Final Four is special**\
-`Welcome to The Pulse, The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/6256499/2025/04/05/final-four-teams-favorites-picks-the-pulse/
 

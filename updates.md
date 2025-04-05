@@ -1,3 +1,15 @@
+**Trump Administration Live Updates: Senate Approves G.O.P. Budget Plan After an Overnight ‘Vote-a-Rama’**\
+``\
+https://nytimes.com/live/2025/04/05/us/trump-news-tariffs
+
+**Chelsea in talks with UEFA over settlement after spending rule breach**\
+`The most likely outcome from the Premier League club’s dialogue with UEFA is that they will be required to pay a financial penalty.`\
+https://nytimes.com/athletic/6257117/2025/04/05/chelsea-ffp-uefa-talks/
+
+**An Endangered Galápagos Tortoise Is a First-Time Mother at 100**\
+`Mommy, a Western Santa Cruz tortoise, recently welcomed four hatchlings at the Philadelphia Zoo, where she has lived since 1932.`\
+https://nytimes.com/2025/04/05/science/galapagos-tortoise-hatchlings-philadelphia-zoo.html
+
 **‘White Lotus’ Has an Old-School View of Relationships**\
 `In Mike White’s show, love and money go together.`\
 https://nytimes.com/2025/04/05/opinion/white-lotus-marriage.html
