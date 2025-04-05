@@ -1,3 +1,11 @@
+**British Carmaker Jaguar Land Rover Pauses Shipments to U.S.**\
+`The luxury automaker, which faces 25 percent import tariffs, said it was halting shipments in April as it addresses the new trading terms.`\
+https://nytimes.com/2025/04/05/business/jaguar-land-rover-tariffs-shipments.html
+
+**Priest Is Fatally Shot Outside His Parish Rectory**\
+`The Rev. Arul Carasala was found outside his parish rectory in Kansas on Thursday, officials said. An Oklahoma man was arrested, though a motive remained unknown.`\
+https://nytimes.com/2025/04/05/us/catholic-priest-shot-kansas.html
+
 **Carmelo Anthony, Dwight Howard, Sue Bird among 2025 Hall of Fame class**\
 `The members of the Naismith Memorial Basketball Hall of Fame's 2025 class were revealed at the men's Final Four in San Antonio on Saturday.`\
 https://nytimes.com/athletic/6256324/2025/04/05/basketball-hall-of-fame-2025-class-carmelo-anthony-sue-bird/
