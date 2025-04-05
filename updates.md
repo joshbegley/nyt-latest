@@ -1,3 +1,11 @@
+**Having Ears Pricked**\
+`To solve Rafael Musa’s latest, keep your wits about you.`\
+https://nytimes.com/2025/04/04/crosswords/daily-puzzle-2025-04-05.html
+
+**Buckley: Red Sox bask in Fenway Park opener, where the stories of tomorrow are born**\
+`We don't know what rookie Kristian Campbell may tell his grandkids in 50 years about Friday's win, but there could be a lot to discuss. `\
+https://nytimes.com/athletic/6256457/2025/04/04/red-sox-cardinals-home-opener-kristian-campbell/
+
 **Wayne Gretzky on Alex Ovechkin's record chase: 'It's great for hockey'**\
 `Gretzky was in attendance Friday as Ovechkin tied his goals record.`\
 https://nytimes.com/athletic/6256447/2025/04/04/wayne-gretzky-alex-ovechkin-record-chase/

@@ -1,6 +1,10 @@
+**Having Ears Pricked**\
+`To solve Rafael Musa’s latest, keep your wits about you.`\
+https://nytimes.com/2025/04/04/crosswords/daily-puzzle-2025-04-05.html
+
 **Buckley: Red Sox bask in Fenway Park opener, where the stories of tomorrow are born**\
 `We don't know what rookie Kristian Campbell may tell his grandkids in 50 years about Friday's win, but there could be a lot to discuss. `\
-https://nytimes.com/athletic/6256457/2025/04/04/red-sox-cardinals-home-opener-kristin-campbell/
+https://nytimes.com/athletic/6256457/2025/04/04/red-sox-cardinals-home-opener-kristian-campbell/
 
 **David Bailey, former Stanford edge rusher, commits to Texas Tech**\
 `Bailey spent his first three years with the Cardinal, but entered the portal after the recent firing of coach Troy Taylor.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6256375/2025/04/04/pete-alonso-mets-home-opener/
 **Video Shows Aid Workers Killed in Gaza Under Gunfire Barrage, With Ambulance Lights On**\
 `The U.N. has said Israel killed the workers. The video appears to contradict Israel’s version of the incident, which described the vehicles as “advancing suspiciously” without headlights or emergency signals.`\
 https://nytimes.com/2025/04/04/world/middleeast/gaza-israel-aid-workers-deaths-video.html
-
-**Red Sox energized by raucous crowd, show fight in winning home opener**\
-`The Red Sox collected their first win in a home opener since 2020. They are optimistic it's just the start of a memorable season.`\
-https://nytimes.com/athletic/6256373/2025/04/04/red-sox-home-opener-win/
 
