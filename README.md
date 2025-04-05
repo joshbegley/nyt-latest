@@ -1,4 +1,8 @@
-**Dodgers' record unbeaten season start ends as they seek to play better baseball**\
+**UConn routs UCLA in Final Four to set up championship game with South Carolina**\
+`UConn is looking for its 12th national championship under coach Geno Auriemma and first since 2016.`\
+https://nytimes.com/athletic/6256694/2025/04/04/uconn-ucla-final-four-result-score/
+
+**Dodgers' record unbeaten start ends as they seek to play better baseball**\
 `Even as the Dodgers started the season 8-0, they've hardly played their best baseball. Early deficits and poor base running are concerning.`\
 https://nytimes.com/athletic/6256650/2025/04/04/dodgers-record-unbeaten-start-ends/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6256555/2025/04/04/yankees-aaron-judge-1000-games-m
 **Women's March Madness projections 2025: Does UConn have the advantage?**\
 `What's your team's chance of winning? Find out here. `\
 https://nytimes.com/athletic/6198041/2025/04/04/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**Having Ears Pricked**\
-`To solve Rafael Musa’s latest, keep your wits about you.`\
-https://nytimes.com/2025/04/04/crosswords/daily-puzzle-2025-04-05.html
 

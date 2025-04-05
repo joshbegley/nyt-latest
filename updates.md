@@ -1,3 +1,7 @@
+**Dodgers' record unbeaten season start ends as they seek to play better baseball**\
+`Even as the Dodgers started the season 8-0, they've hardly played their best baseball. Early deficits and poor base running are concerning.`\
+https://nytimes.com/athletic/6256650/2025/04/04/dodgers-record-unbeaten-start-ends/
+
 **Why Small Changes Meant Big Differences in Tariff Rates, From Bermuda to Switzerland**\
 `Brunei’s tariffs could be much lower. Equatorial Guinea’s could be way higher. And Australia could have no tariffs at all. It all depends on choices hidden in the Trump formula.`\
 https://nytimes.com/interactive/2025/04/04/upshot/trump-tariffs-reciprocal.html
