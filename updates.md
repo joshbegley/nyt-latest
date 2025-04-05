@@ -1,3 +1,7 @@
+**Dawn's Dynasty? Auriemma's Empire? Iconic UConn, South Carolina coaches duel for championship**\
+`The Hall of Fame coaches are a portrait of where women's basketball has been and where it's going.`\
+https://nytimes.com/athletic/6256918/2025/04/05/dawn-staley-geno-auriemma-uconn-south-carolina-national-championship-womens/
+
 **Trump Envoy Visits Lebanon Amid Fears Over a Shaky Cease-Fire**\
 `Morgan Ortagus, President Trump’s deputy Middle East envoy, met with senior officials as tensions with Israel threaten the truce.`\
 https://nytimes.com/2025/04/05/world/middleeast/lebanon-us-israel-hezbollah.html
