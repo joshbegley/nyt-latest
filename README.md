@@ -1,3 +1,7 @@
+**Musk Says He Hopes Europe and U.S. Move to a ‘Zero-Tariff Situation’**\
+`The billionaire adviser to the Trump administration appeared to part ways with the president in a videoconference appearance with Italy’s far-right League party.`\
+https://nytimes.com/2025/04/05/us/politics/musk-says-he-hopes-europe-and-us-move-to-a-zero-tariff-situation.html
+
 **Thomas Muller and Bayern's dignified but surprising parting of ways. Will MLS be next?**\
 `Muller, aged 35, will leave after 25 years at the club. He is not ready to retire and there has been a discussion between Bayern and LAFC`\
 https://nytimes.com/athletic/6257043/2025/04/05/thomas-muller-leaving-bayern-mls-lafc/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6257319/2025/04/05/real-madrid-la-liga-title-ancelo
 **Chemical Industry Asks Trump for Exemption From Pollution Limits**\
 `The Biden-era limits were designed to reduce emissions of toxic pollutants, including a cancer-causing ingredient used in antifreeze and plastics.`\
 https://nytimes.com/2025/04/05/climate/chemical-industry-trump-pollution-exemption.html
-
-**PSG win Ligue 1 title with six games to go, remain unbeaten**\
-`The victory over Angers left PSG, who remain unbeaten in Ligue 1 this season, with an insurmountable 24-point lead over second place Monaco.`\
-https://nytimes.com/athletic/6249139/2025/04/05/psg-champions-france-ligue-1-title/
 
