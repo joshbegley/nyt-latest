@@ -1,3 +1,8 @@
+**Staple: Rangers come up small in a big spot once again**\
+`In game No. 76 against local rival New Jersey, the Rangers looked like a team still trying to figure out their season.
+`\
+https://nytimes.com/athletic/6257416/2025/04/05/new-york-rangers-new-jersey-devils-score/
+
 **Justice Dept. Accuses Top Immigration Lawyer of Failing to Follow Orders**\
 `Erez Reuveni conceded in court that the deportation last month of Kilmar Armando Abrego Garcia, who had a court order allowing him to stay in the United States, should never have taken place.`\
 https://nytimes.com/2025/04/05/us/politics/justice-dept-immigration-lawyer-leave.html
