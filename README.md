@@ -1,4 +1,4 @@
-**Barcelona's Inigo Martinez out of Betis match with muscular injury**\
+**Barcelona's Martinez out of Betis match with muscular injury**\
 `Martinez has been a regular in the defence of Hansi Flick's side this season, starting 36 matches across all competitions.`\
 https://nytimes.com/athletic/6257140/2025/04/05/inigo-martinez-barcelona-injury/
 
