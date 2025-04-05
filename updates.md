@@ -1,3 +1,7 @@
+**Byron Buxton channels inner 'Energizer Bunny' to help Twins break out of slumber**\
+`The season is but a week old, and there have already been several sightings of the Twins' Energizer Bunny.`\
+https://nytimes.com/athletic/6257861/2025/04/05/byron-buxton-energizer-bunny-twins-beat-astros/
+
 **Trinity Rodman scores in first game back with USWNT**\
 `It was the U.S. forward's first game back with the team since the Olympics.`\
 https://nytimes.com/athletic/6257852/2025/04/05/trinity-rodman-goal-uswnt-brazil-soccer/
