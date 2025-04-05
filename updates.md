@@ -1,3 +1,7 @@
+**Forest's Awoniyi, Elanga to be monitored after injuries**\
+`Forest are awaiting Awoniyi's injury scan results while Elanga was forced off at half-time in Saturday's defeat to Aston Villa.`\
+https://nytimes.com/athletic/6257438/2025/04/05/nottingham-forest-injury-news-awoniyi-elanga/
+
 **Reds break scoreless streak, still looking to end losing streak**\
 `There’s a cliche that hitting is contagious, but for this Reds team, that's one illness not going through the clubhouse.`\
 https://nytimes.com/athletic/6256763/2025/04/05/reds-scoreless-losing-streak/
