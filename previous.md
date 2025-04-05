@@ -30,8 +30,8 @@ https://nytimes.com/2025/04/05/world/europe/uk-parliament-dan-norris-suspended.h
 `Ten days into his Major League career, Boston Red Sox rookie Kristian Campbell already has a new assignment: backup center fielder.`\
 https://nytimes.com/athletic/6257528/2025/04/05/red-sox-kristian-campbell-backup-center-field/
 
-**Justice Dept. Lawyer Who Criticized Administration in Court Is Put on Leave**\
-`Erez Reuveni is the latest in a series of career officials who have faced punitive action after refusing to comply with a directive they deemed illegal or unethical.`\
+**Justice Dept. Accuses Top Immigration Lawyer of Failing to Follow Orders**\
+`Erez Reuveni conceded in court that the deportation last month of Kilmar Armando Abrego Garcia, who had a court order allowing him to stay in the United States, should never have taken place.`\
 https://nytimes.com/2025/04/05/us/politics/justice-dept-immigration-lawyer-leave.html
 
 **Staple: Rangers come up small in a big spot once again**\
