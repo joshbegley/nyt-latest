@@ -1,3 +1,7 @@
+**Floods Inundate Central U.S.**\
+`A relentless storm continued to dump rain across the Midwest and South, causing increased flooding from Texas to Ohio.`\
+https://nytimes.com/video/us/100000010094026/flooding-central-us-severe-weather.html
+
 **Trump Administration Fires U.S. Aid Workers in Quake Zone in Myanmar**\
 `The move comes despite Secretary of State Marco Rubio saying the U.S. would still do some humanitarian work while shrinking foreign aid. Democratic lawmakers have denounced the cuts.`\
 https://nytimes.com/2025/04/05/us/politics/aid-workers-myanmar-fired.html
