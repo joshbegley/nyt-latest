@@ -1,3 +1,7 @@
+**Grass fires interrupt Japanese Grand Prix qualifying and practice sessions**\
+`Wild fires interrupt qualifying and practice sessions and could be a concern ahead of Japanese Grand Prix `\
+https://nytimes.com/athletic/6256867/2025/04/05/japanese-grand-prix-qualifying-practice-wild-fires/
+
 **Grass fires interrupt Japanese Grand Prix practice sessions**\
 `Wild fires interrupt practice sessions and could be a concern ahead of Japanese Grand Prix `\
 https://nytimes.com/athletic/6256867/2025/04/05/japanese-grand-prix-qualifying-practice-wild-fires/
