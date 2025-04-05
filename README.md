@@ -1,3 +1,15 @@
+**How Spanish underdog Carla Bernat Escuder won ANWA**\
+`Bernat Escuder became the seventh Spanish winner at Augusta National in just 45 years.`\
+https://nytimes.com/athletic/6257544/2025/04/05/carla-bernat-escuder-win-anwa/
+
+**Flick 'happy' with Barcelona draw against Betis: 'We have one point more'**\
+`The draw extended Barca's lead at the top of La Liga to four points, after Real Madrid were defeated at home by Valencia earlier on Saturday`\
+https://nytimes.com/athletic/6257684/2025/04/05/flick-barcelona-betis-la-liga-title/
+
+**Amorim: Man Utd need to sign ‘one or two big players’**\
+`"It's characteristics that we don't have in our squad, trying to see the gaps," Amorim said ahead of Sunday's Manchester derby.`\
+https://nytimes.com/athletic/6255233/2025/04/05/ruben-amorim-manchester-united-transfers/
+
 **U.K. Labour Lawmaker Suspended From Party After Arrest**\
 `Dan Norris, a lawmaker who won a seat in Parliament last year, was swiftly suspended from Britain’s governing party.`\
 https://nytimes.com/2025/04/05/world/europe/uk-parliament-dan-norris-suspended.html
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/6256763/2025/04/05/reds-scoreless-losing-streak/
 **Mourinho handed three-match ban after Istanbul derby nose grab incident**\
 `The Fenerbahce head coach appeared to pinch of Galatasaray boss Okan Buruk's nose following Wednesday's Istanbul derby.`\
 https://nytimes.com/athletic/6250836/2025/04/05/jose-mourinho-ban-galatasaray-fenerbahce/
-
-**Musk Says He Hopes Europe and U.S. Move to a ‘Zero-Tariff Situation’**\
-`The billionaire adviser to the Trump administration appeared to part ways with the president in a videoconference appearance with Italy’s far-right League party.`\
-https://nytimes.com/2025/04/05/us/politics/musk-says-he-hopes-europe-and-us-move-to-a-zero-tariff-situation.html
-
-**Cody Bellinger's back injury sidelines him for 2nd straight game**\
-`The Yankees are already missing almost a full team to the injured list.`\
-https://nytimes.com/athletic/6257402/2025/04/05/yankees-cody-bellingers-back-injury/
-
-**Thomas Muller and Bayern's dignified but surprising parting of ways. Will MLS be next?**\
-`Muller, aged 35, will leave after 25 years at the club. He is not ready to retire and there has been a discussion between Bayern and LAFC`\
-https://nytimes.com/athletic/6257043/2025/04/05/thomas-muller-leaving-bayern-mls-lafc/
 
