@@ -26,7 +26,7 @@ https://nytimes.com/2025/04/05/crosswords/spelling-bee-forum.html
 `Dealing with a persistent knee issue, Brown sees it as an opportunity to learn and reimagine himself and his game.`\
 https://nytimes.com/athletic/6256872/2025/04/05/celtics-jaylen-brown-studies-paul-pierce/
 
-**Max Verstappen takes sensational pole as grass fires interrupt Japanese Grand Prix qualifying**\
+**Max Verstappen takes 'magical' pole for Japanese Grand Prix**\
 `Max Verstappen sets a lap record in securing pole for the Japanese Grand Prix `\
 https://nytimes.com/athletic/6256867/2025/04/05/japanese-grand-prix-qualifying-practice-grass-fires/
 
