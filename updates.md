@@ -1,3 +1,7 @@
+**The Public School Programs Trump Has Threatened**\
+`The Trump administration has a new directive for U.S. public schools: Cut D.E.I. programs or face federal funding cuts. Dana Goldstein, who covers education for The New York Times, describes what programs might be targeted by the directive, which is already being challenged in court.`\
+https://nytimes.com/video/us/100000010091142/the-public-school-programs-trump-has-threatened.html
+
 **Netanyahu Will Meet Trump in Washington**\
 `The Israeli prime minister will visit President Trump at the White House on Monday amid his nation’s renewed campaign in Gaza.`\
 https://nytimes.com/2025/04/05/world/middleeast/netanyahu-trump-washington.html
