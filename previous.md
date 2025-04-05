@@ -1,3 +1,8 @@
+**Staple: Rangers come up small in a big spot once again**\
+`In game No. 76 against local rival New Jersey, the Rangers looked like a team still trying to figure out their season.
+`\
+https://nytimes.com/athletic/6257416/2025/04/05/new-york-rangers-new-jersey-devils-score/
+
 **Forest's Awoniyi, Elanga to be monitored after injuries**\
 `Forest are awaiting Awoniyi's injury scan results while Elanga was forced off at half-time in Saturday's defeat to Aston Villa.`\
 https://nytimes.com/athletic/6257438/2025/04/05/nottingham-forest-injury-news-awoniyi-elanga/
@@ -33,8 +38,4 @@ https://nytimes.com/2025/04/05/us/ken-paxton-aides-whistleblowers-texas-ag.html
 **Trump Family’s Cash Registers Ring as Financial Meltdown Plays Out**\
 `The party was on at a Saudi-backed LIV Golf tournament at the president’s Doral resort in Florida and a fund-raiser at Mar-a-Lago, even as markets tumbled.`\
 https://nytimes.com/2025/04/05/us/politics/trump-family-saudi-golf.html
-
-**How one Ipswich backpass caused two of the craziest minutes in the Premier League this season**\
-`One simple-looking pass led to mayhem at Portman Road, with some Braveheart-esque defending to keep out an indirect free kick inside the box`\
-https://nytimes.com/athletic/6257340/2025/04/05/ipswich-backpass-wolves-goalkeeper-handball-free-kick/
 
