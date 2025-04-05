@@ -1,3 +1,7 @@
+**Trump Family’s Cash Registers Ring as Financial Meltdown Plays Out**\
+`The party was on at a Saudi-backed LIV Golf tournament at the president’s Doral resort in Florida and a fund-raiser at Mar-a-Lago, even as markets tumbled.`\
+https://nytimes.com/2025/04/05/us/politics/trump-family-saudi-golf.html
+
 **Floods Inundate Central U.S.**\
 `A relentless storm continued to dump rain across the Midwest and South, causing increased flooding from Texas to Ohio.`\
 https://nytimes.com/video/us/100000010094026/flooding-central-us-severe-weather.html
