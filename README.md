@@ -1,3 +1,7 @@
+**Blue Jackets Sunday Gathering: Goaltending overhaul a must-do this summer**\
+`It's probably too late to salvage this season, but what can GM Don Waddell do about the goalies this offseason?`\
+https://nytimes.com/athletic/6258648/2025/04/06/blue-jackets-goalies-offseason/
+
 **Buy or Wait? Americans Wrestle With How Tariffs Will Affect Their Shopping.**\
 `In the first weekend since President Trump unveiled broad tariffs, many shoppers sought to get ahead of expected price hikes, while others showed patience.`\
 https://nytimes.com/2025/04/06/us/trump-tariffs-shopping-consumer-panic-buying.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6258309/2025/04/06/houston-comeback-final-four-duke
 **Are Southampton the worst-ever Premier League team?**\
 `Southampton are down - how does their disastrous season compare to some of the worst in Premier League history?`\
 https://nytimes.com/athletic/6258603/2025/04/06/southampton-premier-league-relegation-worst-teams/
-
-**The Briefing: Fulham 3 Liverpool 2: Jones and Robertson mistakes costly as Silva's side stun league leaders**\
-`Liverpool suffered a surprise defeat as their unbeaten run ended and they conceded three goals in the first half for first time since 2020`\
-https://nytimes.com/athletic/6247642/2025/04/06/fulham-liverpool-result-match-analysis-mistakes/
 

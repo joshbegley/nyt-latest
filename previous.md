@@ -1,3 +1,11 @@
+**Buy or Wait? Americans Wrestle With How Tariffs Will Affect Their Shopping.**\
+`In the first weekend since President Trump unveiled broad tariffs, many shoppers sought to get ahead of expected price hikes, while others showed patience.`\
+https://nytimes.com/2025/04/06/us/trump-tariffs-shopping-consumer-panic-buying.html
+
+**Slot denies complacency to blame for Liverpool defeat at Fulham**\
+`Liverpool's 26-game unbeaten league run ended as they lost 3-2 at Craven Cottage on Sunday.`\
+https://nytimes.com/athletic/6259084/2025/04/06/liverpool-fulham-result-arne-slot/
+
 **Nkunku's Chelsea 'struggles' not due to lack of effort - Maresca**\
 `Maresca selected Nkunku to play as a No 9 in Sunday's goalless draw at Brentford but he was substituted off at half-time.`\
 https://nytimes.com/athletic/6259050/2025/04/06/christopher-nkunku-chelsea/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6258603/2025/04/06/southampton-premier-league-releg
 **The Briefing: Fulham 3 Liverpool 2: Jones and Robertson mistakes costly as Silva's side stun league leaders**\
 `Liverpool suffered a surprise defeat as their unbeaten run ended and they conceded three goals in the first half for first time since 2020`\
 https://nytimes.com/athletic/6247642/2025/04/06/fulham-liverpool-result-match-analysis-mistakes/
-
-**The Briefing: Spurs 3 Southampton 1 - Fans react to Levy, Postecoglou; five-minute VAR check; Bergvall shines**\
-`Our writers break down the action from a home win that included an incredibly long VAR check.`\
-https://nytimes.com/athletic/6249901/2025/04/06/tottenham-levy-postecoglou-frankfurt/
-
-**Southampton relegated from Premier League with seven games remaining**\
-`Southampton have won just two league games all season and are at risk of a Premier League record low points tally.`\
-https://nytimes.com/athletic/6249119/2025/04/06/southampton-relegated-premier-league-record/
 
