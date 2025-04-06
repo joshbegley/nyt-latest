@@ -1,4 +1,8 @@
 **Yohe's 10 observations: Sidney Crosby puts on a show with hat trick against Dallas**\
+`Crosby extended his points streak to 12 games as Pittsburgh surprised the Stars with a 5-3 win in Dallas.`\
+https://nytimes.com/athletic/6257527/2025/04/05/penguins-sidney-crosby-hat-trick-stars/
+
+**Yohe's 10 observations: Sidney Crosby puts on a show with hat trick against Dallas**\
 `Crosby extended his points streak to 12 games as Pittsburgh surprised the Stars with a 5-3 win in Dallas. `\
 https://nytimes.com/athletic/6257527/2025/04/05/penguins-sidney-crosby-hat-trick-stars/
 
