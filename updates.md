@@ -1,3 +1,11 @@
+**Raiders release CB Jack Jones: What move means for LV, potential suitors**\
+`Jones has shown flashes of potential, but has been undisciplined and inconsistent. The Raiders, meanwhile, are left with a thin DB room.`\
+https://nytimes.com/athletic/6259512/2025/04/06/raiders-release-jack-jones-analysis/
+
+**Wayne Gretzky cheers as Alex Ovechkin breaks his goals record: 'I felt like I scored'**\
+`The moment Alex Ovechkin erased Wayne Gretzky's name from the top of the NHL's career goals list, Gretzky celebrated.`\
+https://nytimes.com/athletic/6259513/2025/04/06/wayne-gretzky-record-goals-alex-ovechkin/
+
 **The best Alexander Ovechkin cards to collect**\
 `These are the Alexander Ovechkin trading cards worth considering adding to your collection.`\
 https://nytimes.com/athletic/6069464/2025/04/06/ovechkin-rookie-cards-capitals/
