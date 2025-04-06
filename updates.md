@@ -1,3 +1,11 @@
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/04/06/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
+**UConn defeats South Carolina for record 12th national championship**\
+`As South Carolina focuses on stopping Paige Bueckers, Azzi Fudd and Sarah Strong lead way in UConn's rout.`\
+https://nytimes.com/athletic/6259647/2025/04/06/uconn-south-carolina-ncaa-womens-championship/
+
 **Eyewitnesses Recount Deadly Israeli Attack on Medics in Gaza**\
 `The New York Times interviewed two people who described being detained by Israeli soldiers and looking on as they opened fire on ambulances and a fire truck, killing 15.`\
 https://nytimes.com/2025/04/06/world/middleeast/gaza-medics-killed-israel.html

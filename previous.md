@@ -1,3 +1,11 @@
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/04/06/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
+**UConn defeats South Carolina for record 12th national championship**\
+`As South Carolina focuses on stopping Paige Bueckers, Azzi Fudd and Sarah Strong lead way in UConn's rout.`\
+https://nytimes.com/athletic/6259647/2025/04/06/uconn-south-carolina-ncaa-womens-championship/
+
 **Eyewitnesses Recount Deadly Israeli Attack on Medics in Gaza**\
 `The New York Times interviewed two people who described being detained by Israeli soldiers and looking on as they opened fire on ambulances and a fire truck, killing 15.`\
 https://nytimes.com/2025/04/06/world/middleeast/gaza-medics-killed-israel.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6259512/2025/04/06/raiders-release-jack-jones-analy
 **Wayne Gretzky cheers as Alex Ovechkin breaks his goals record: 'I felt like I scored'**\
 `The moment Alex Ovechkin erased Wayne Gretzky's name from the top of the NHL's career goals list, Gretzky celebrated.`\
 https://nytimes.com/athletic/6259513/2025/04/06/wayne-gretzky-record-goals-alex-ovechkin/
-
-**Alex Ovechkin quiz: How much do you know about 'The Great 8'?**\
-`Ovechkin has passed Wayne Gretzky to become the NHL's all-time goals leader. How well do you know Ovi's career? Test your knowledge here.`\
-https://nytimes.com/athletic/6251533/2025/04/06/alex-ovechkin-nhl-record-wayne-gretzky-quiz/
-
-**The best Alexander Ovechkin cards to collect**\
-`These are the Alexander Ovechkin trading cards worth considering adding to your collection.`\
-https://nytimes.com/athletic/6069464/2025/04/06/ovechkin-rookie-cards-capitals/
 
