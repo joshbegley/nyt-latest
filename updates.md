@@ -1,3 +1,7 @@
+**A Second Child Dies of Measles in Texas**\
+`It is the second confirmed measles death in the U.S. in a decade. If the outbreak continues at the current pace, the nation may lose its “elimination” status.`\
+https://nytimes.com/2025/04/06/health/measles-death-texas.html
+
 **The Future of Baseball**\
 `An interview with the M.L.B. commissioner.`\
 https://nytimes.com/2025/04/06/briefing/baseball-mlb-rob-manfred.html
