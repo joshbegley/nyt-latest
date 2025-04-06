@@ -1,3 +1,7 @@
+**The Briefing: Fulham 3 Liverpool 2: Jones and Robertson mistakes costly as Silva's side stun league leaders**\
+`Liverpool suffered a surprise defeat as their unbeaten run ended and they conceded three goals in the first half for first time since 2020`\
+https://nytimes.com/athletic/6247642/2025/04/06/fulham-liverpool-result-match-analysis-mistakes/
+
 **The Briefing: Spurs 3 Southampton 1 - Fans react to Levy, Postecoglou; five-minute VAR check; Bergvall shines**\
 `Our writers break down the action from a home win that included an incredibly long VAR check.`\
 https://nytimes.com/athletic/6249901/2025/04/06/tottenham-levy-postecoglou-frankfurt/

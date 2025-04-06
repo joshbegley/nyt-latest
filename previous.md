@@ -1,3 +1,7 @@
+**The Briefing: Fulham 3 Liverpool 2: Jones and Robertson mistakes costly as Silva's side stun league leaders**\
+`Liverpool suffered a surprise defeat as their unbeaten run ended and they conceded three goals in the first half for first time since 2020`\
+https://nytimes.com/athletic/6247642/2025/04/06/fulham-liverpool-result-match-analysis-mistakes/
+
 **The Briefing: Spurs 3 Southampton 1 - Fans react to Levy, Postecoglou; five-minute VAR check; Bergvall shines**\
 `Our writers break down the action from a home win that included an incredibly long VAR check.`\
 https://nytimes.com/athletic/6249901/2025/04/06/tottenham-levy-postecoglou-frankfurt/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6258802/2025/04/06/alessia-russo-injury-arsenal-eng
 **Lowetide: How much have injuries impacted Oilers prospect Beau Akey?**\
 `The injuries have taken all of the buzz out of Akey's projection as a top prospect for the Oilers.`\
 https://nytimes.com/athletic/6257325/2025/04/06/oilers-beau-akey-injuries/
-
-**Mavericks must regroup after bad back-to-back losses; a rematch with Luka Dončić awaits**\
-`The Mavericks have lost three of their last four, all with a Play-In Tournament spot on the line. Luka and the Lakers are in town Wednesday.`\
-https://nytimes.com/athletic/6258439/2025/04/06/mavericks-nba-loss-clippers-luka-doncic/
 
