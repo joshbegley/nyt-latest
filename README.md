@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6258398/2025/04/06/pistons-cade-cunningham-returns/
 `Max Verstappen wins the Japanese Grand Prix with a superb drive from pole as Kimi Antonelli breaks two records`\
 https://nytimes.com/athletic/6258403/2025/04/06/japanese-grand-prix-f1-briefing-max-verstappen-red-bull/
 
-**'We like fun!': Matt Chapman, Jung Hoo Lee help Giants extend their win streak to 6 games**\
+**'We like fun!': Matt Chapman, Jung Hoo Lee help Giants extend win streak to 6 games**\
 `Chapman met the moment on his bobblehead night, and eight games into the season, the Giants are playing fun baseball.`\
 https://nytimes.com/athletic/6258082/2025/04/06/chapman-hoo-lee-giants-win-streak/
 
