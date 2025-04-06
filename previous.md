@@ -1,3 +1,11 @@
+**They Pushed for Cuomo to Resign. Now They’re Clearing His Comeback Path.**\
+`Many political, business and union leaders who castigated former Gov. Andrew Cuomo and pressed him to resign have done an about-face and support his run for mayor.`\
+https://nytimes.com/2025/04/06/nyregion/cuomo-democrats-mayor-comeback.html
+
+**Jesse Kornbluth, Magazine Writer Who Covered Everything, Dies at 79**\
+`He reported on the highs and lows of culture in the pages of Vanity Fair and elsewhere. He also wrote seven books of nonfiction and two novels.`\
+https://nytimes.com/2025/04/06/business/media/jesse-kornbluth-dead.html
+
 **Blue Jackets Sunday Gathering: Goaltending overhaul a must-do this summer**\
 `It's probably too late to salvage this season, but what can GM Don Waddell do about the goalies this offseason?`\
 https://nytimes.com/athletic/6258648/2025/04/06/blue-jackets-goalies-offseason/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6258825/2025/04/06/rob-manfred-mlb-robot-umpires-to
 **Trump Aides Defend His Tariffs Amid Global Blowback**\
 `The president’s top advisers acknowledged President Trump’s sweeping tariffs could raise prices but said an economic adjustment that would ultimately benefit American workers was overdue.`\
 https://nytimes.com/2025/04/06/us/politics/trump-tariffs-aides-recession.html
-
-**Houston shocked Duke, but where does it rank among all-time Final Four comebacks?**\
-`Houston muscled its way into the national title game after a furious comeback against Duke on Saturday night in a Final Four for the ages.`\
-https://nytimes.com/athletic/6258309/2025/04/06/houston-comeback-final-four-duke/
-
-**Are Southampton the worst-ever Premier League team?**\
-`Southampton are down - how does their disastrous season compare to some of the worst in Premier League history?`\
-https://nytimes.com/athletic/6258603/2025/04/06/southampton-premier-league-relegation-worst-teams/
 
