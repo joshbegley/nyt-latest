@@ -1,4 +1,4 @@
-**Max Verstappen wins to close gap on Lando Norris**\
+**Max Verstappen's perfect win and Kimi Antonelli makes history: Japanese Grand Prix briefing**\
 `Max Verstappen wins the Japanese Grand Prix with a superb drive from pole. `\
 https://nytimes.com/athletic/6258403/2025/04/06/japanese-grand-prix-f1-briefing-max-verstappen-red-bull/
 
