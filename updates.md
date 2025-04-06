@@ -1,3 +1,7 @@
+**Houston shocked Duke, but where does it rank among all-time Final Four comebacks?**\
+`Houston muscled its way into the national title game after a furious comeback against Duke on Saturday night in a Final Four for the ages.`\
+https://nytimes.com/athletic/6258309/2025/04/06/houston-comeback-final-four-duke/
+
 **Are Southampton the worst-ever Premier League team?**\
 `Southampton are down - how does their disastrous season compare to some of the worst in Premier League history?`\
 https://nytimes.com/athletic/6258603/2025/04/06/southampton-premier-league-relegation-worst-teams/

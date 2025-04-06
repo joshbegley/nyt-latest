@@ -1,3 +1,7 @@
+**Houston shocked Duke, but where does it rank among all-time Final Four comebacks?**\
+`Houston muscled its way into the national title game after a furious comeback against Duke on Saturday night in a Final Four for the ages.`\
+https://nytimes.com/athletic/6258309/2025/04/06/houston-comeback-final-four-duke/
+
 **Are Southampton the worst-ever Premier League team?**\
 `Southampton are down - how does their disastrous season compare to some of the worst in Premier League history?`\
 https://nytimes.com/athletic/6258603/2025/04/06/southampton-premier-league-relegation-worst-teams/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/06/us/politics/trump-deportation-el-salvador-judge-x
 **Upper West Side Theater Is Sold After Governor Allocates $3.5 Million**\
 `A nonprofit bought the landmark Metro Theater after receiving financial support from Gov. Kathy Hochul, the State Senate and Steven Spielberg’s foundation.`\
 https://nytimes.com/2025/04/06/movies/metro-theater-sold-hochul-grants.html
-
-**Arsenal's Russo withdraws from England squad with injury**\
-`The 26-year-old forward took a knock to her ankle during Friday's 5-0 win over Belgium.`\
-https://nytimes.com/athletic/6258802/2025/04/06/alessia-russo-injury-arsenal-england/
 
