@@ -1,3 +1,7 @@
+**Trent Grisham hits 2 home runs in win over Pirates, talks overcoming difficult 2024**\
+`After struggling last year, Grisham is off to a strong start, hitting .471 with three home runs and seven RBIs in just seven games.`\
+https://nytimes.com/athletic/6257977/2025/04/05/yankees-pirates-trent-grisham-2-home-runs/
+
 **Walter Clayton Jr. drops 34, Florida downs Auburn in all-SEC Final Four thriller**\
 `Clayton became the 15th player to score more than 30 points in a Final Four game.`\
 https://nytimes.com/athletic/6257659/2025/04/05/florida-auburn-walter-clayton-final-four/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6257527/2025/04/05/penguins-sidney-crosby-hat-trick
 **Trump Administration Revokes Visas of South Sudanese in Clash Over Deportees**\
 `Secretary of State Marco Rubio said he was making the move because the transitional government of South Sudan had refused to accept its citizens in a timely manner.`\
 https://nytimes.com/2025/04/05/us/politics/trump-administration-revokes-visas-of-south-sudanese-in-clash-over-deportees.html
-
-**Byron Buxton channels inner 'Energizer Bunny' to help Twins break out of slumber**\
-`The season is but a week old, and there have already been several sightings of the Twins' "Energizer Bunny."`\
-https://nytimes.com/athletic/6257861/2025/04/05/byron-buxton-energizer-bunny-twins-beat-astros/
 
