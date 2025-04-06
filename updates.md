@@ -1,3 +1,7 @@
+**Vietnam’s Leader Urges Trump to Delay 46 Percent Tariff**\
+`In recent years Vietnam has forged strategic and economic links with the United States, its former foe, making the steep tariff rate all the more of a shock.`\
+https://nytimes.com/2025/04/06/world/asia/vietnam-trump-tariff-delay.html
+
 **Barcelona dropped points against Real Betis. It may be a good thing**\
 `Hansi Flick's team missed the chance to go six points clear - but it may help them refocus in their pursuit of a treble this season`\
 https://nytimes.com/athletic/6257937/2025/04/06/barcelona-betis-la-liga-title-race/
