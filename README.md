@@ -1,3 +1,7 @@
+**Real Madrid's forward line needs to step up - or they will be trophyless this season**\
+`Carlo Ancelotti was 'angry' after Madrid's defeat to Valencia - his misfiring forwards need to ease the load on France star Mbappe `\
+https://nytimes.com/athletic/6257817/2025/04/06/real-madrid-forwards-carlo-ancelotti/
+
 **Japanese Grand Prix: Submit your questions for our F1 mailbag**\
 `What questions do you have for our writers after the Japanese Grand Prix?`\
 https://nytimes.com/athletic/6258468/2025/04/06/f1-mailbag-japanese-grand-prix/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6258403/2025/04/06/japanese-grand-prix-f1-briefing-
 **'We like fun!': Matt Chapman, Jung Hoo Lee help Giants extend their win streak to 6 games**\
 `Chapman met the moment on his bobblehead night, and eight games into the season, the Giants are playing fun baseball.`\
 https://nytimes.com/athletic/6258082/2025/04/06/chapman-hoo-lee-giants-win-streak/
-
-**Key Canadiens make waves as Josh Anderson's absence causes ripple effect**\
-`Oliver Kapanen, Jake Evans, Nick Suzuki and the Canadiens collective picked up a win for a teammate who has meant so much.`\
-https://nytimes.com/athletic/6258372/2025/04/06/canadiens-flyers-nick-suzuki-nhl-playoffs/
 
