@@ -1,3 +1,7 @@
+**Monday Briefing: Trump’s Team Defends Tariffs**\
+`Plus, meet a robot butler.`\
+https://nytimes.com/2025/04/06/briefing/trump-tariffs-israel-gaza-aid-deaths-syria-chemical-weapons.html
+
 **Denis Arndt, Who Was a First-Time Tony Nominee at 77, Dies at 86**\
 `After more than 40 years as a stage and television actor, he broke through in “Heisenberg” as a butcher who has a romance with a much younger woman.`\
 https://nytimes.com/2025/04/06/theater/denis-arndt-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6069464/2025/04/06/ovechkin-rookie-cards-capitals/
 **Defiant, Le Pen Tells Supporters ‘I Won’t Give Up’ Despite 5-Year Ban**\
 `In a speech, Marine Le Pen, the French far-right leader, cast a judicial decision prohibiting her from running for office as a threat to democracy.`\
 https://nytimes.com/2025/04/06/world/europe/france-marine-le-pen-rally.html
-
-**Saying Goodbye to the Prototype for Celebrity Chefs**\
-`An incredible concentration of culinary star power gathered in Manhattan to celebrate the life and career of André Soltner, the chef behind Lutèce.`\
-https://nytimes.com/2025/04/06/style/andre-soltner-lutece-memorial.html
 
