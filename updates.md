@@ -1,3 +1,7 @@
+**The best Alexander Ovechkin cards to collect**\
+`These are the Alexander Ovechkin trading cards worth considering adding to your collection.`\
+https://nytimes.com/athletic/6069464/2025/04/06/ovechkin-rookie-cards-capitals/
+
 **Alex Ovechkin quiz: How much do you know about 'The Great 8'?**\
 `Ovechkin has passed Wayne Gretzky to become the NHL's all-time goals leader. How well do you know Ovi's career? Test your knowledge here.`\
 https://nytimes.com/athletic/6251533/2025/04/06/alex-ovechkin-nhl-record-wayne-gretzky-quiz/
