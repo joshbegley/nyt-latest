@@ -1,3 +1,23 @@
+**Long-Running Storm Drenches Central U.S. but Starts to Shift East**\
+`The heaviest rains so far this weekend have hit Arkansas, Missouri and Kentucky. More rain is expected on Sunday, but the risk of flooding will be less severe.`\
+https://nytimes.com/2025/04/06/weather/storm-flood-rain-central-us.html
+
+**What we learned about USC in its second week of spring practice**\
+`Here’s what we learned about the Trojans as they continue to work toward the 2025 season.`\
+https://nytimes.com/athletic/6257279/2025/04/06/usc-football-spring-practice-observations/
+
+**Nuno has been left short by Wood and Awoniyi injuries - Forest need another striker**\
+`Defeat to Aston Villa was a perfect demonstration of why it is imperative Nottingham Forest add a third natural forward to their squad`\
+https://nytimes.com/athletic/6258510/2025/04/06/nottingham-forest-wuno-wood-awoniyi-strikers/
+
+**The Japanese Grand Prix was boring. This is why it was 'similar to Monaco'**\
+`The 2025 Japanese Grand Prix may not have been an edge-of-your-seat thriller, but it did remind us about the sport's fickle nature`\
+https://nytimes.com/athletic/6258537/2025/04/06/japanese-grand-prix-f1-boring-race-monaco/
+
+**Frank Nazar is proving people wrong — including prospect expert Corey Pronman**\
+`Blackhawks fans weren't pleased when Pronman ranked Nazar as the 14th-best prospect in the organization's pipeline back in August.`\
+https://nytimes.com/athletic/6257473/2025/04/06/blackhawks-prospect-frank-nazar-ranking/
+
 **A Second Child Dies of Measles in Texas**\
 `It is the second confirmed measles death in the U.S. in a decade. If the outbreak continues at the current pace, the nation may lose its “elimination” status.`\
 https://nytimes.com/2025/04/06/health/measles-death-texas.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6257759/2025/04/06/caitlin-clark-rookie-cards-autog
 **Ryan Reynolds makes a worthwhile visit as Wrexham take big step towards promotion**\
 `Wrexham's automatic promotion fate is in their hands after a 3-0 win over ten-man Burton Albion, with Wycombe also losing`\
 https://nytimes.com/athletic/6254760/2025/04/06/ryan-reynolds-wrexham-burton-wycombe/
-
-**Dawn Staley sees a familiar guard in South Carolina's MiLaysia Fulwiley: Herself**\
-`Fulwiley could be the ultimate X factor in the NCAA Tournament championship game against UConn.`\
-https://nytimes.com/athletic/6257529/2025/04/06/dawn-staley-guard-south-carolina-milaysia-fulwiley/
-
-**Inside the epic Final Four rally Houston basketball was built for**\
-`The Cougars started to believe anything was possible in January, then drew upon their biggest win when Duke pushed them to the brink.`\
-https://nytimes.com/athletic/6258518/2025/04/06/houston-final-four-kelvin-sampson-jwan-roberts/
-
-**Florida vs. Houston NCAA Championship odds: Gators are narrow early favorites for Monday**\
-`Houston and Florida each pulled seismic last-minute stunners in the Final Four. They duel for the national title on Monday night.`\
-https://nytimes.com/athletic/6256022/2025/04/06/florida-houston-odds-ncaa-championship/
-
-**Can Nick Robertson force his way into the Maple Leafs playoff lineup?**\
-`The 23-year-old's two goals Saturday were vital in his fight to make himself a no-doubter for Toronto's playoff opener.`\
-https://nytimes.com/athletic/6258187/2025/04/06/maple-leafs-nick-robertson-playoff-lineup/
-
-**Why NBA commissioner Adam Silver wants to tap into the European basketball academy pipeline**\
-`As it has evolved in recent years, the NBA has seen an influx of international talent. Silver wants to cultivate that talent at its source.`\
-https://nytimes.com/athletic/6247566/2025/04/06/nba-adam-silver-european-basketball-academy-pipeline/
 
