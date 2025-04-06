@@ -2,7 +2,7 @@
 `By Bernard Mokam`\
 https://nytimes.com/live/2025/04/06/us/trump-news-updates/the-immigration-status-of-a-duke-basketball-star-from-south-sudan-is-unclear
 
-**TJ Oshie, Nicklas Backstrom revel in Ovechkin's accomplishment: 'We're like brothers'**\
+**T.J. Oshie, Nicklas Backstrom revel in Ovechkin's accomplishment: 'We're like brothers'**\
 `Oshie and Backstrom were by Ovechkin's side during the long journey to the record. Sunday's game was no different.`\
 https://nytimes.com/athletic/6259691/2025/04/06/ovechkin-record-oshie-backstrom-reaction-capitals/
 
