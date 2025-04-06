@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Monday, April 7, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/04/06/todays-new-york-times-international-edition
+
 **For Republicans, Tariffs Pose a Risk Like No Other**\
 `Trump’s political strength is built on the economy. If it sinks, he could drag his party down with him.`\
 https://nytimes.com/2025/04/06/upshot/trump-tariffs-republicans-risk.html
