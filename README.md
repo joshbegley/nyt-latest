@@ -1,3 +1,7 @@
+**A Second Child Dies of Measles in Texas**\
+`It is the second confirmed measles death in the U.S. in a decade. If the outbreak continues at the current pace, the nation may lose its “elimination” status.`\
+https://nytimes.com/2025/04/06/health/measles-death-texas.html
+
 **The Future of Baseball**\
 `An interview with the M.L.B. commissioner.`\
 https://nytimes.com/2025/04/06/briefing/baseball-mlb-rob-manfred.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6258187/2025/04/06/maple-leafs-nick-robertson-playo
 **Why NBA commissioner Adam Silver wants to tap into the European basketball academy pipeline**\
 `As it has evolved in recent years, the NBA has seen an influx of international talent. Silver wants to cultivate that talent at its source.`\
 https://nytimes.com/athletic/6247566/2025/04/06/nba-adam-silver-european-basketball-academy-pipeline/
-
-**After decades as a March Madness failed Goliath, Houston flips the script**\
-`Some of the chalk that has defined this tournament got lost in a poof of smoke late Saturday.`\
-https://nytimes.com/athletic/6258428/2025/04/06/houston-duke-final-four-march-madness-history/
 
