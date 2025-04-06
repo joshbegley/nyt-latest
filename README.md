@@ -1,3 +1,11 @@
+**A stunning Final Four finish and Ovi's epic chase**\
+`Welcome to The Pulse, The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/6258343/2025/04/06/a-stunning-last-minute-comeback-at-the-final-four-plus-ovis-epic-chase/
+
+**Israel Turns Away 2 British Lawmakers**\
+`The lawmakers, Abtisam Mohamed and Yuan Yang, said they were “astounded” by the decision to refuse them entry.`\
+https://nytimes.com/2025/04/06/world/europe/israel-uk-parliament-entry-abtisam-mohamed-yuan-yang.html
+
 **They Pushed for Cuomo to Resign. Now They’re Clearing His Comeback Path.**\
 `Many political, business and union leaders who castigated former Gov. Andrew Cuomo and pressed him to resign have done an about-face and support his run for mayor.`\
 https://nytimes.com/2025/04/06/nyregion/cuomo-democrats-mayor-comeback.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/06/arts/dance/review-reggie-wilson-nyu-skirball.html
 **Max Verstappen's Suzuka brilliance proves he'll be hard to beat to the title**\
 `Red Bull team principal Christian Horner called it one of Verstappen’s best weekends in F1.`\
 https://nytimes.com/athletic/6258602/2025/04/06/max-verstappen-suzuka-win-japanese-grand-prix/
-
-**Rob Manfred talks torpedo bats, robot umpires in overview of MLB's future**\
-`In an interview with The New York Times, Manfred also forecasted fans getting more access to game broadcasts after the 2028 season.`\
-https://nytimes.com/athletic/6258825/2025/04/06/rob-manfred-mlb-robot-umpires-torpedo-bats/
-
-**Trump Aides Defend His Tariffs Amid Global Blowback**\
-`The president’s top advisers acknowledged President Trump’s sweeping tariffs could raise prices but said an economic adjustment that would ultimately benefit American workers was overdue.`\
-https://nytimes.com/2025/04/06/us/politics/trump-tariffs-aides-recession.html
 
