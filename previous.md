@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6259691/2025/04/06/ovechkin-record-oshie-backstrom-
 https://nytimes.com/athletic/6259478/2025/04/06/brian-harman-wins-texas-open/
 
 **Stocks Are Set to Extend Sharp Fall**\
-`Futures on the S&P 500, which allow investors to trade the index before the official start of trading on Monday, added to last week’s sell-off.`\
+`Futures on the S&P 500, which allow investors to trade the index before regular trading begins on Monday, added to last week’s sell-off.`\
 https://nytimes.com/2025/04/06/business/stocks-trump-tariffs.html
 
 **Dodger Details: Blake Snell's injury, Tommy Edman's adjustment and what else we're seeing**\
