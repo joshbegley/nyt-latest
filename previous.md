@@ -1,3 +1,11 @@
+**'It means we're good': Blues' franchise-record 12-game winning streak no fluke**\
+`Robert Thomas and rookie Zack Bolduc have been solid maintaining the streak while the Blues were without Colton Parayko and Dylan Holloway.`\
+https://nytimes.com/athletic/6257981/2025/04/06/blues-franchise-record-12-game-win-streak/
+
+**Walter Clayton Jr.'s tourney takeover hits the Final Four: 'He's special'**\
+`Clayton has spent March one-upping himself, making so many big shots his teammates (but not Carmelo Anthony) are at a loss for words.`\
+https://nytimes.com/athletic/6258144/2025/04/06/walter-clayton-jr-florida-final-four/
+
 **Kings' Kevin Fiala scores 30th goal of season, L.A. clinches playoff spot**\
 `The Kings went on to a workmanlike 3-0 victory over the banged-up Edmonton Oilers.`\
 https://nytimes.com/athletic/6258297/2025/04/06/kings-win-oilers-kevin-fiala-30th-goal-playoff-spot/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6258169/2025/04/06/reds-snap-losing-skid-tj-friedl/
 **Mikel Arteta took a rare opportunity to rotate his Arsenal side - so what did he learn?**\
 `The idea of resting players or conceding defeat in a competition does not sit well with Arteta, but the Champions League is now the priority`\
 https://nytimes.com/athletic/6257162/2025/04/06/arsenal-squad-arteta/
-
-**Who are six-goal Victor Musa, JJ Gabriel and the other stars of Man Utd U18's 13-1 win over Leeds?**\
-`Saturday's win featured not only six goals for Musa, but also a debut for a 14-year-old deemed among United's finest academy prospects`\
-https://nytimes.com/athletic/6257362/2025/04/06/manchester-united-leeds-musa-gabriel-ibragimov/
-
-**The Caravaggio of kit designers who made Italian football look beautiful**\
-`Nicola Raccuglia was friends with Maradona, a business partner of Cruyff and provided kits for Schumacher. His company NR is back in vogue`\
-https://nytimes.com/athletic/6249814/2025/04/06/nr-italy-kit-design-raccuglia-maradona/
 

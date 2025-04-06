@@ -1,3 +1,11 @@
+**'It means we're good': Blues' franchise-record 12-game winning streak no fluke**\
+`Robert Thomas and rookie Zack Bolduc have been solid maintaining the streak while the Blues were without Colton Parayko and Dylan Holloway.`\
+https://nytimes.com/athletic/6257981/2025/04/06/blues-franchise-record-12-game-win-streak/
+
+**Walter Clayton Jr.'s tourney takeover hits the Final Four: 'He's special'**\
+`Clayton has spent March one-upping himself, making so many big shots his teammates (but not Carmelo Anthony) are at a loss for words.`\
+https://nytimes.com/athletic/6258144/2025/04/06/walter-clayton-jr-florida-final-four/
+
 **Kings' Kevin Fiala scores 30th goal of season, L.A. clinches playoff spot**\
 `The Kings went on to a workmanlike 3-0 victory over the banged-up Edmonton Oilers.`\
 https://nytimes.com/athletic/6258297/2025/04/06/kings-win-oilers-kevin-fiala-30th-goal-playoff-spot/
