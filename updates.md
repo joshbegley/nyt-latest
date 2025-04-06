@@ -1,3 +1,7 @@
+**Eyewitnesses Recount Deadly Israeli Attack on Medics in Gaza**\
+`The New York Times interviewed two people who described being detained by Israeli soldiers and looking on as they opened fire on ambulances and a fire truck, killing 15.`\
+https://nytimes.com/2025/04/06/world/middleeast/gaza-medics-killed-israel.html
+
 **Monday Briefing: Trump’s Team Defends Tariffs**\
 `Plus, meet a robot butler.`\
 https://nytimes.com/2025/04/06/briefing/trump-tariffs-israel-gaza-aid-deaths-syria-chemical-weapons.html

@@ -1,3 +1,7 @@
+**UConn defeats South Carolina for record 12th national championship**\
+`As South Carolina focuses on stopping Paige Bueckers, Azzie Fudd and Sarah Strong lead way in UConn's rout.`\
+https://nytimes.com/athletic/6259647/2025/04/06/uconn-south-carolina-ncaa-womens-championship/
+
 **Eyewitnesses Recount Deadly Israeli Attack on Medics in Gaza**\
 `The New York Times interviewed two people who described being detained by Israeli soldiers and looking on as they opened fire on ambulances and a fire truck, killing 15.`\
 https://nytimes.com/2025/04/06/world/middleeast/gaza-medics-killed-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6259513/2025/04/06/wayne-gretzky-record-goals-alex-
 **Alex Ovechkin quiz: How much do you know about 'The Great 8'?**\
 `Ovechkin has passed Wayne Gretzky to become the NHL's all-time goals leader. How well do you know Ovi's career? Test your knowledge here.`\
 https://nytimes.com/athletic/6251533/2025/04/06/alex-ovechkin-nhl-record-wayne-gretzky-quiz/
-
-**The best Alexander Ovechkin cards to collect**\
-`These are the Alexander Ovechkin trading cards worth considering adding to your collection.`\
-https://nytimes.com/athletic/6069464/2025/04/06/ovechkin-rookie-cards-capitals/
 
