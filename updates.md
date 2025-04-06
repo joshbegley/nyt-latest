@@ -1,3 +1,7 @@
+**'He knows that he can do it here': Roki Sasaki turns in strong bounce-back start for Dodgers**\
+`"There's no need to panic over one or two bad outings," Kiké Hernández said. The Dodgers beat the Phillies 3-1.`\
+https://nytimes.com/athletic/6257928/2025/04/05/dodgers-win-phillies-roki-sasaki-bounce-back-start/
+
 **Jose Altuve's left-field experience hinges on better exchanges**\
 `Altuve is an infielder in his fourth month of full-time outfield play. "I'm feeling slowly better out there," he said after Saturday's loss.`\
 https://nytimes.com/athletic/6257873/2025/04/05/jose-altuve-left-field-twins/
