@@ -1,3 +1,19 @@
+**‘S.N.L.’: Trumpeting Tariffs and Predicting a ‘Great’ Depression**\
+`Cheeseheads and cheesecakes join the punchlines and headlines, and an enthusiastic audience gets a mild scolding for slipping past the censors. Temporarily.`\
+https://nytimes.com/2025/04/06/arts/television/snl-trumpeting-tariffs-great-depression.html
+
+**Trump Administration Live Updates: Rubio Cancels Visas for South Sudanese in Dispute Over Deportations**\
+``\
+https://nytimes.com/live/2025/04/06/us/trump-news-updates
+
+**In Retirement: Blessings and Challenges**\
+`Readers respond to an article about staying mentally sharp in retirement.`\
+https://nytimes.com/2025/04/06/opinion/retirement-challenges.html
+
+**Forget the Signal Chat. The Strike on the Houthis Was a Necessary Blow.**\
+`Striking the Iranian-backed Houthi militia serves United States interests, and puts pressure on Iran over its nuclear ambitions.`\
+https://nytimes.com/2025/04/06/opinion/signal-houthis-strikes-iran.html
+
 **Recovering Pope Surprises Pilgrims With a Public Appearance**\
 `Pope Francis was wheeled through a crowd that included health care workers from around the world, who had been told he was watching their Jubilee Mass on television.`\
 https://nytimes.com/2025/04/06/world/europe/pope-francis-surprise-public-appearance.html

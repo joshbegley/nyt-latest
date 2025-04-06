@@ -1,3 +1,19 @@
+**‘S.N.L.’: Trumpeting Tariffs and Predicting a ‘Great’ Depression**\
+`Cheeseheads and cheesecakes join the punchlines and headlines, and an enthusiastic audience gets a mild scolding for slipping past the censors. Temporarily.`\
+https://nytimes.com/2025/04/06/arts/television/snl-trumpeting-tariffs-great-depression.html
+
+**Trump Administration Live Updates: Rubio Cancels Visas for South Sudanese in Dispute Over Deportations**\
+``\
+https://nytimes.com/live/2025/04/06/us/trump-news-updates
+
+**In Retirement: Blessings and Challenges**\
+`Readers respond to an article about staying mentally sharp in retirement.`\
+https://nytimes.com/2025/04/06/opinion/retirement-challenges.html
+
+**Forget the Signal Chat. The Strike on the Houthis Was a Necessary Blow.**\
+`Striking the Iranian-backed Houthi militia serves United States interests, and puts pressure on Iran over its nuclear ambitions.`\
+https://nytimes.com/2025/04/06/opinion/signal-houthis-strikes-iran.html
+
 **Recovering Pope Surprises Pilgrims With a Public Appearance**\
 `Pope Francis was wheeled through a crowd that included health care workers from around the world, who had been told he was watching their Jubilee Mass on television.`\
 https://nytimes.com/2025/04/06/world/europe/pope-francis-surprise-public-appearance.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6257279/2025/04/06/usc-football-spring-practice-obs
 **Nuno has been left short by Wood and Awoniyi injuries - Forest need another striker**\
 `Defeat to Aston Villa was a perfect demonstration of why it is imperative Nottingham Forest add a third natural forward to their squad`\
 https://nytimes.com/athletic/6258510/2025/04/06/nottingham-forest-wuno-wood-awoniyi-strikers/
-
-**The Japanese Grand Prix was boring. This is why it was 'similar to Monaco'**\
-`The 2025 Japanese Grand Prix may not have been an edge-of-your-seat thriller, but it did remind us about the sport's fickle nature`\
-https://nytimes.com/athletic/6258537/2025/04/06/japanese-grand-prix-f1-boring-race-monaco/
-
-**Frank Nazar is proving people wrong — including prospect expert Corey Pronman**\
-`Blackhawks fans weren't pleased when Pronman ranked Nazar as the 14th-best prospect in the organization's pipeline back in August.`\
-https://nytimes.com/athletic/6257473/2025/04/06/blackhawks-prospect-frank-nazar-ranking/
-
-**A Second Child Dies of Measles in Texas**\
-`It is the second confirmed measles death in the U.S. in a decade. If the outbreak continues at the current pace, the nation may lose its “elimination” status.`\
-https://nytimes.com/2025/04/06/health/measles-death-texas.html
-
-**The Future of Baseball**\
-`An interview with the M.L.B. commissioner.`\
-https://nytimes.com/2025/04/06/briefing/baseball-mlb-rob-manfred.html
 
