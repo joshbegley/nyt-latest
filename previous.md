@@ -1,3 +1,19 @@
+**Who are six-goal Victor Musa, JJ Gabriel and the other stars of Man Utd U18's 13-1 win over Leeds?**\
+`Saturday's win featured not only six goals for Musa, but also a debut for a 14-year-old deemed among United's finest academy prospects`\
+https://nytimes.com/athletic/6257362/2025/04/06/manchester-united-leeds-musa-gabriel-ibragimov/
+
+**The Caravaggio of kit designers who made Italian football look beautiful**\
+`Nicola Raccuglia was friends with Maradona, a business partner of Cruyff and provided kits for Schumacher. His company NR is back in vogue`\
+https://nytimes.com/athletic/6249814/2025/04/06/nr-italy-kit-design-raccuglia-maradona/
+
+**'I don’t remember my parents and son being there' - Kristoffer Olsson on rare brain injury and amnesia**\
+`After suffering a rare condition that left him with blood clots on his brain, the 29-year-old tells The Athletic about his road to recovery`\
+https://nytimes.com/athletic/6241571/2025/04/06/kristoffer-olsson-brain-injury-future/
+
+**Manchester United vs Manchester City - discussing derby day vibes, tactics and fears**\
+`Carl Anka and Sam Lee with the key talking points for Sunday's game at Old Trafford `\
+https://nytimes.com/athletic/6255471/2025/04/06/manchester-united-manchester-city-roundtable-2025/
+
 **Chelsea's accounts explained: Women's team sold for £200m, profit posted, UEFA spending limit breached**\
 `Chelsea's accounts make for very interesting reading - The Athletic breaks down the numbers and what it could mean going forward`\
 https://nytimes.com/athletic/6257167/2025/04/06/chelsea-accounts-womens-team-200m-uefa-breach/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/04/06/world/middleeast/syria-chemical-weapons-assad.htm
 **For Many Russian Exiles, Even a Peace Deal Might Not Mean a Ticket Home**\
 `Hundreds of thousands fled Russia after the Ukraine invasion, fearing the draft and widening repression. Talks toward a possible truce have done little to allay their fears.`\
 https://nytimes.com/2025/04/06/world/europe/russian-exiles-return-putin-war-ceasefire.html
-
-**Connections: Sports Edition Coach: Hints for April 6, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6257773/2025/04/06/connections-sports-edition-hints-for-april-6-2025/
-
-**No corrections: April 6, 2025**\
-`No corrections appeared in print on Sunday, April 6, 2025.`\
-https://nytimes.com/2025/04/06/pageoneplus/no-corrections-april-6-2025.html
-
-**Men's NCAA Championship 2025: What to know about Florida, Houston**\
-`The men's NCAA Tournament started with 68 teams and plenty of March Madness dreams. Here's what should know about Monday's title game.`\
-https://nytimes.com/athletic/6257671/2025/04/05/mens-ncaa-championship-what-to-know/
-
-**Sabres thoughts: Noah Ostlund's debut, Tage Thompson scores 40th and more**\
-`Ostlund, Buffalo’s 2022 first-round pick who made his NHL debut Saturday in a 3-2 win over the Lightning, is “a coach’s dream.”`\
-https://nytimes.com/athletic/6258157/2025/04/05/sabres-noah-ostlund-tage-thompson/
 

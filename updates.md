@@ -1,3 +1,19 @@
+**Who are six-goal Victor Musa, JJ Gabriel and the other stars of Man Utd U18's 13-1 win over Leeds?**\
+`Saturday's win featured not only six goals for Musa, but also a debut for a 14-year-old deemed among United's finest academy prospects`\
+https://nytimes.com/athletic/6257362/2025/04/06/manchester-united-leeds-musa-gabriel-ibragimov/
+
+**The Caravaggio of kit designers who made Italian football look beautiful**\
+`Nicola Raccuglia was friends with Maradona, a business partner of Cruyff and provided kits for Schumacher. His company NR is back in vogue`\
+https://nytimes.com/athletic/6249814/2025/04/06/nr-italy-kit-design-raccuglia-maradona/
+
+**'I don’t remember my parents and son being there' - Kristoffer Olsson on rare brain injury and amnesia**\
+`After suffering a rare condition that left him with blood clots on his brain, the 29-year-old tells The Athletic about his road to recovery`\
+https://nytimes.com/athletic/6241571/2025/04/06/kristoffer-olsson-brain-injury-future/
+
+**Manchester United vs Manchester City - discussing derby day vibes, tactics and fears**\
+`Carl Anka and Sam Lee with the key talking points for Sunday's game at Old Trafford `\
+https://nytimes.com/athletic/6255471/2025/04/06/manchester-united-manchester-city-roundtable-2025/
+
 **Chelsea's accounts explained: Women's team sold for £200m, profit posted, UEFA spending limit breached**\
 `Chelsea's accounts make for very interesting reading - The Athletic breaks down the numbers and what it could mean going forward`\
 https://nytimes.com/athletic/6257167/2025/04/06/chelsea-accounts-womens-team-200m-uefa-breach/
