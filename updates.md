@@ -1,3 +1,7 @@
+**Nashville SC's Walker Zimmerman released from hospital after head injury**\
+`Nashville's captain was carted off the pitch and briefly hospitalized following a kick to the face in Saturday's loss to Charlotte FC.`\
+https://nytimes.com/athletic/6257971/2025/04/05/walker-zimmerman-hospitalized-released-injury/
+
 **Trent Grisham hits 2 home runs in win over Pirates, talks overcoming difficult 2024**\
 `After struggling last year, Grisham is off to a strong start, hitting .471 with three home runs and seven RBIs in just seven games.`\
 https://nytimes.com/athletic/6257977/2025/04/05/yankees-pirates-trent-grisham-2-home-runs/
