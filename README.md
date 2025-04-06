@@ -1,3 +1,11 @@
+**Judge Calls Mistaken Deportation of Maryland Man a ‘Grievous Error’**\
+`Judge Paula Xinis, who has ordered that the Trump administration return the man, Kilmar Armando Abrego Garcia, by Monday, also rejected a request to pause that order.`\
+https://nytimes.com/2025/04/06/us/politics/trump-deportation-el-salvador-judge-xinis.html
+
+**Upper West Side Theater Is Sold After Governor Allocates $3.5 Million**\
+`A nonprofit bought the landmark Metro Theater after receiving financial support from Gov. Kathy Hochul, the State Senate and Steven Spielberg’s foundation.`\
+https://nytimes.com/2025/04/06/movies/metro-theater-sold-hochul-grants.html
+
 **Arsenal's Russo withdraws from England squad with injury**\
 `The 26-year-old forward took a knock to her ankle during Friday's 5-0 win over Belgium.`\
 https://nytimes.com/athletic/6258802/2025/04/06/alessia-russo-injury-arsenal-england/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/06/opinion/retirement-challenges.html
 **Forget the Signal Chat. The Strike on the Houthis Was a Necessary Blow.**\
 `Striking the Iranian-backed Houthi militia serves United States interests, and puts pressure on Iran over its nuclear ambitions.`\
 https://nytimes.com/2025/04/06/opinion/signal-houthis-strikes-iran.html
-
-**Recovering Pope Surprises Pilgrims With a Public Appearance**\
-`Pope Francis was wheeled through a crowd that included health care workers from around the world, who had been told he was watching their Jubilee Mass on television.`\
-https://nytimes.com/2025/04/06/world/europe/pope-francis-surprise-public-appearance.html
-
-**After Anthony Edwards bails out Wolves, Chris Finch challenges them to finish strong**\
-`This was the second straight game that the Timberwolves coach has sounded unimpressed after a win.`\
-https://nytimes.com/athletic/6258401/2025/04/06/anthony-edwards-timberwolves-76ers-chris-finch/
 
