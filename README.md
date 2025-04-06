@@ -1,40 +1,40 @@
-**The New York Times International Edition in Print for Monday, April 7, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/04/06/todays-new-york-times-international-edition
+**Florida vs. Houston NCAA Championship odds: Gators are narrow early favorites for Monday**\
+`Houston and Florida each pulled seismic last-minute stunners in the Final Four. They duel for the national title on Monday night.`\
+https://nytimes.com/athletic/6256022/2025/04/06/florida-houston-odds-ncaa-championship/
 
-**For Republicans, Tariffs Pose a Risk Like No Other**\
-`Trump’s political strength is built on the economy. If it sinks, he could drag his party down with him.`\
-https://nytimes.com/2025/04/06/upshot/trump-tariffs-republicans-risk.html
+**Can Nick Robertson force his way into the Maple Leafs playoff lineup?**\
+`The 23-year-old's two goals Saturday were vital in his fight to make himself a no-doubter for Toronto's playoff opener.`\
+https://nytimes.com/athletic/6258187/2025/04/06/maple-leafs-nick-robertson-playoff-lineup/
 
-**‘A Minecraft Movie’ Arrives as a Surprise Box Office Smash**\
-`Weekend ticket sales will total at least $140 million, analysts said, about 75 percent more than expected, ending a Hollywood dry spell.`\
-https://nytimes.com/2025/04/06/business/a-minecraft-movie-box-office.html
+**Why NBA commissioner Adam Silver wants to tap into the European basketball academy pipeline**\
+`As it has evolved in recent years, the NBA has seen an influx of international talent. Silver wants to cultivate that talent at its source.`\
+https://nytimes.com/athletic/6247566/2025/04/06/nba-adam-silver-european-basketball-academy-pipeline/
 
-**President’s Third Term Talk Defies Constitution and Tests Democracy**\
-`The 22nd Amendment is clear: President Trump has to give up his office after his second term. But his refusal to accept that underscores how far he is willing to consider going to consolidate power.`\
-https://nytimes.com/2025/04/06/us/politics/trump-third-term-constitution.html
+**After decades as a March Madness failed Goliath, Houston flips the script**\
+`Some of the chalk that has defined this tournament got lost in a poof of smoke late Saturday.`\
+https://nytimes.com/athletic/6258428/2025/04/06/houston-duke-final-four-march-madness-history/
 
-**Small Businesses Face a ‘Tornado’ of Challenges: Cuts, Freezes and Now Tariffs**\
-`President Trump vowed to aid entrepreneurs by reducing taxes and slicing red tape. But some owners say other policies have put them at a disadvantage.`\
-https://nytimes.com/2025/04/06/business/economy/trump-tariffs-small-business.html
+**Sens notebook: Big wins over Lightning and Panthers, Forsberg's play and more**\
+`Plus, an update on those "leaked" Senators alternate jerseys that hit the internet last week. `\
+https://nytimes.com/athletic/6249838/2025/04/06/senators-lightning-panthers-anton-forsberg/
 
-**Trump’s Tariffs Will Wound Free Trade, but the Blow May Not Be Fatal**\
-`Free trade has been so beneficial to so many countries that the world may find a way to live without its biggest player.`\
-https://nytimes.com/2025/04/06/world/europe/trade-trump-tariffs-brexit.html
+**South Carolina's 'Seatbelt Gang' better buckle up for UConn in national championship**\
+`South Carolina's defense is "like gnats." "We've got bigs blocking shots. We've got guards blocking shots. …Honestly, it's hard against us."`\
+https://nytimes.com/athletic/6257370/2025/04/06/south-carolina-seatbelt-gang-defense-uconn-national-championship/
 
-**At Milan Design Week, Collections Probe Childhood Joys and Dark Futures**\
-`The annual festival of furnishings and household objects showcases pieces inspired by ancient Anatolia, cauliflower, electronic dance music and more.`\
-https://nytimes.com/2025/04/06/arts/design/milan-design-week-collections.html
+**The People Who Want Institutions to Stand Up to Trump**\
+`Three months into the Trump administration, it is clear that many of the Americans refusing to back down or stay silent are ordinary people.`\
+https://nytimes.com/2025/04/06/opinion/skadden-arps-fellows-letter-law-firm.html
 
-**‘White Lotus’ Audience Is Big, and Keeps Getting Bigger**\
-`The show, which ends its third season on Sunday, has built one of the largest audiences of any HBO series.`\
-https://nytimes.com/2025/04/06/business/media/white-lotus-ratings.html
+**The Sunday Read: ‘What Happened to Val Kilmer?’**\
+`Cancer had taken his voice, but the unlikeliest movie star in Hollywood history still had a lot he wanted to say. (Published in 2020.)`\
+https://nytimes.com/2025/04/06/podcasts/the-daily/val-kilmer.html
 
-**Don’t Roll Your Eyes at Due Process**\
-`It doesn’t just protect a person’s liberty and dignity. It’s a humble acknowledgment of our own limitations.`\
-https://nytimes.com/2025/04/06/opinion/trump-deportations-due-process.html
+**The Age of Miraculous Growth Is Over. Trump’s Tariffs Were Just the Last Straw.**\
+`For the billions of people who still live in poverty, the path to prosperity may look very different than it has since World War II.`\
+https://nytimes.com/2025/04/06/opinion/tariffs-vietnam-cambodia-globalization.html
 
-**Testing New Twists on Unexpected Materials at Milan Design Week**\
-`Whether for sustainability or just for show, designers are playing with unusual materials in unconventional ways.`\
-https://nytimes.com/2025/04/06/arts/design/milan-design-week-furniture-materials.html
+**Maya, Stewie, Paige ... and now Sarah Strong. Count her among UConn's most elite freshmen**\
+`South Carolina coach Dawn Staley said of Strong: "In the next three years, she might be the best player to come out of UConn."`\
+https://nytimes.com/athletic/6257607/2025/04/06/sarah-strong-uconn-freshman-national-championship/
 
