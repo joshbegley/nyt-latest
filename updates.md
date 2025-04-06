@@ -1,3 +1,7 @@
+**Guardiola: Fans chanting about Foden’s family ‘should be ashamed’**\
+`Foden played 58 minutes in the goalless draw in the Manchester derby, but was subjected to insulting chants about his mother.`\
+https://nytimes.com/athletic/6259695/2025/04/06/phil-foden-chants-manchester-derby/
+
 **Women's March Madness projections 2025: Does UConn have the advantage?**\
 `What's your team's chance of winning? Find out here. `\
 https://nytimes.com/athletic/6198041/2025/04/06/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/

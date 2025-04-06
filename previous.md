@@ -1,3 +1,7 @@
+**Guardiola: Fans chanting about Foden’s family ‘should be ashamed’**\
+`Foden played 58 minutes in the goalless draw in the Manchester derby, but was subjected to insulting chants about his mother.`\
+https://nytimes.com/athletic/6259695/2025/04/06/phil-foden-chants-manchester-derby/
+
 **Women's March Madness projections 2025: Does UConn have the advantage?**\
 `What's your team's chance of winning? Find out here. `\
 https://nytimes.com/athletic/6198041/2025/04/06/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/06/theater/olivier-awards-winners-giant-lithgow.html
 **Raiders release CB Jack Jones: What move means for LV, potential suitors**\
 `Jones has shown flashes of potential, but has been undisciplined and inconsistent. The Raiders, meanwhile, are left with a thin DB room.`\
 https://nytimes.com/athletic/6259512/2025/04/06/raiders-release-jack-jones-analysis/
-
-**Wayne Gretzky cheers as Alex Ovechkin breaks his goals record: 'I felt like I scored'**\
-`The moment Alex Ovechkin erased Wayne Gretzky's name from the top of the NHL's career goals list, Gretzky celebrated.`\
-https://nytimes.com/athletic/6259513/2025/04/06/wayne-gretzky-record-goals-alex-ovechkin/
 
