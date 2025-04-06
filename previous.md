@@ -1,3 +1,11 @@
+**John Peck, Underground Cartoonist Known as The Mad Peck, Dies at 82**\
+`Among many other accomplishments, he illustrated a scholarly work on the history of comic books and wrote record reviews in four-panel comic-strip form.`\
+https://nytimes.com/2025/04/06/arts/john-peck-dead.html
+
+**Two Liquid Egg Brands Recalled Over Bleach Contamination Risk**\
+`Cargill Kitchen Solutions recalled more than 210,000 pounds of products under its Egg Beaters and Bob Evans labels.`\
+https://nytimes.com/2025/04/06/business/liquid-eggs-recall-bob-evans.html
+
 **Alex Ovechkin passes Wayne Gretzky as NHL all-time goals leader with No. 895**\
 `With his 895th career goal, The Great 8 has passed The Great One to become the league's all-time scoring leader.`\
 https://nytimes.com/athletic/6258313/2025/04/06/alex-ovechkin-nhl-goals-record-wayne-gretzky/
@@ -7,7 +15,7 @@ https://nytimes.com/athletic/6258313/2025/04/06/alex-ovechkin-nhl-goals-record-w
 https://nytimes.com/athletic/6259215/2025/04/06/dodgers-blake-snell-injured-list/
 
 **The Briefing: Man United 0 Man City 0 - A rare Amorim clean sheet and why De Bruyne's departure makes sense**\
-`Our writers analyse the talking points from a goal-less Manchester derby at Old Trafford, as United's defence picked up a rare clean sheet`\
+`Our writers analyse the talking points from a goalless Manchester derby at Old Trafford, as United's defence picked up a rare clean sheet`\
 https://nytimes.com/athletic/6255636/2025/04/06/man-united-city-result-analysis-de-bruyne-clean-sheet/
 
 **Mets prospect Matt Allan makes first appearance in 6 years**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/06/world/europe/israel-uk-parliament-entry-abtisam-m
 **They Pushed for Cuomo to Resign. Now They’re Clearing His Comeback Path.**\
 `Many political, business and union leaders who castigated former Gov. Andrew Cuomo and pressed him to resign have done an about-face and support his run for mayor.`\
 https://nytimes.com/2025/04/06/nyregion/cuomo-democrats-mayor-comeback.html
-
-**Jesse Kornbluth, Magazine Writer Who Covered Everything, Dies at 79**\
-`He reported on the highs and lows of culture in the pages of Vanity Fair and elsewhere. He also wrote seven books of nonfiction and two novels.`\
-https://nytimes.com/2025/04/06/business/media/jesse-kornbluth-dead.html
-
-**Blue Jackets Sunday Gathering: Goaltending overhaul a must-do this summer**\
-`It's probably too late to salvage this season, but what can GM Don Waddell do about the goalies this offseason?`\
-https://nytimes.com/athletic/6258648/2025/04/06/blue-jackets-goalies-offseason/
 
