@@ -1,3 +1,7 @@
+**After Anthony Edwards bails out Wolves, Chris Finch challenges them to finish strong**\
+`This was the second straight game that the Timberwolves coach has sounded unimpressed after a win.`\
+https://nytimes.com/athletic/6258401/2025/04/06/anthony-edwards-timberwolves-76ers-chris-finch/
+
 **'Man, he can hoop': Kevin Porter Jr. shines in Bucks come-from-behind win in Miami**\
 `Since joining the Bucks at the trade deadline, Porter has tried to find his way. But he gave them exactly what they needed on Saturday.`\
 https://nytimes.com/athletic/6258279/2025/04/06/kevin-porter-jr-bucks-heat/
