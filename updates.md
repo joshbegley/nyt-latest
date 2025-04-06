@@ -1,3 +1,7 @@
+**Defiant, Le Pen Tells Supporters ‘I Won’t Give Up’ Despite 5-Year Ban**\
+`In a speech, Marine Le Pen, the French far-right leader, cast a judicial decision prohibiting her from running for office as a threat to democracy.`\
+https://nytimes.com/2025/04/06/world/europe/france-marine-le-pen-rally.html
+
 **Saying Goodbye to the Prototype for Celebrity Chefs**\
 `An incredible concentration of culinary star power gathered in Manhattan to celebrate the life and career of André Soltner, the chef behind Lutèce.`\
 https://nytimes.com/2025/04/06/style/andre-soltner-lutece-memorial.html
