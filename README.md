@@ -1,3 +1,15 @@
+**Arsenal's Russo withdraws from England squad with injury**\
+`The 26-year-old forward took a knock to her ankle during Friday's 5-0 win over Belgium.`\
+https://nytimes.com/athletic/6258802/2025/04/06/alessia-russo-injury-arsenal-england/
+
+**Lowetide: How much have injuries impacted Oilers prospect Beau Akey?**\
+`The injuries have taken all of the buzz out of Akey's projection as a top prospect for the Oilers.`\
+https://nytimes.com/athletic/6257325/2025/04/06/oilers-beau-akey-injuries/
+
+**Mavericks must regroup after bad back-to-back losses; a rematch with Luka Dončić awaits**\
+`The Mavericks have lost three of their last four, all with a Play-In Tournament spot on the line. Luka and the Lakers are in town Wednesday.`\
+https://nytimes.com/athletic/6258439/2025/04/06/mavericks-nba-loss-clippers-luka-doncic/
+
 **'Man, he can hoop': Kevin Porter Jr. shines in Bucks come-from-behind win in Miami**\
 `Since joining the Bucks at the trade deadline, Porter has tried to find his way. But he gave them exactly what they needed on Saturday.`\
 https://nytimes.com/athletic/6258279/2025/04/06/kevin-porter-jr-bucks-heat/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/06/world/europe/pope-francis-surprise-public-appeara
 **After Anthony Edwards bails out Wolves, Chris Finch challenges them to finish strong**\
 `This was the second straight game that the Timberwolves coach has sounded unimpressed after a win.`\
 https://nytimes.com/athletic/6258401/2025/04/06/anthony-edwards-timberwolves-76ers-chris-finch/
-
-**For Duke, fateful Final Four collapse, end of Cooper Flagg's run ‘still hard to believe’**\
-`Duke was cruising toward the title game. Cooper Flagg had 27 points and the ball at the end. So how did a dream season end like this?`\
-https://nytimes.com/athletic/6258611/2025/04/06/duke-cooper-flagg-houston-final-four-collapse/
-
-**Long-Running Storm Drenches Central U.S. but Starts to Shift East**\
-`The heaviest rains so far this weekend have hit Arkansas, Missouri and Kentucky. More rain is expected on Sunday, but the risk of flooding will be less severe.`\
-https://nytimes.com/2025/04/06/weather/storm-flood-rain-central-us.html
-
-**What we learned about USC in its second week of spring practice**\
-`Here’s what we learned about the Trojans as they continue to work toward the 2025 season.`\
-https://nytimes.com/athletic/6257279/2025/04/06/usc-football-spring-practice-observations/
 
