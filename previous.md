@@ -1,3 +1,7 @@
+**Alex Ovechkin passes Wayne Gretzky as NHL all-time goals leader with No. 895**\
+`With his 895th career goal, The Great 8 has passed The Great One to become the league's all-time scoring leader.`\
+https://nytimes.com/athletic/6258313/2025/04/06/alex-ovechkin-nhl-goals-record-wayne-gretzky/
+
 **Dodgers place Blake Snell on IL due to shoulder inflammation**\
 `It was not immediately clear how much time pitcher will miss. He signed with Los Angeles for $182 million over the offseason.`\
 https://nytimes.com/athletic/6259215/2025/04/06/dodgers-blake-snell-injured-list/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/06/business/media/jesse-kornbluth-dead.html
 **Blue Jackets Sunday Gathering: Goaltending overhaul a must-do this summer**\
 `It's probably too late to salvage this season, but what can GM Don Waddell do about the goalies this offseason?`\
 https://nytimes.com/athletic/6258648/2025/04/06/blue-jackets-goalies-offseason/
-
-**Buy or Wait? Americans Wrestle With How Tariffs Will Affect Their Shopping.**\
-`In the first weekend since President Trump unveiled broad tariffs, many shoppers sought to get ahead of expected price hikes, while others showed patience.`\
-https://nytimes.com/2025/04/06/us/trump-tariffs-shopping-consumer-panic-buying.html
 
