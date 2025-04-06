@@ -1,3 +1,7 @@
+**Max Verstappen wins to close gap on Lando Norris**\
+`Max Verstappen wins the Japanese Grand Prix with a superb drive from pole. `\
+https://nytimes.com/athletic/6258403/2025/04/06/japanese-grand-prix-f1-briefing-max-verstappen-red-bull/
+
 **'We like fun!': Matt Chapman, Jung Hoo Lee help Giants extend their win streak to 6 games**\
 `Chapman met the moment on his bobblehead night, and eight games into the season, the Giants are playing fun baseball.`\
 https://nytimes.com/athletic/6258082/2025/04/06/chapman-hoo-lee-giants-win-streak/
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/04/06/todays-new-york-times
 **‘Adolescence’ and the Surprising Difficulty of Hugging a Teen Son**\
 `I didn’t know how to tear down that wall of silence and mystery that creeps up between parents and their teens, but I knew doing so was essential.`\
 https://nytimes.com/2025/04/06/opinion/adolescence-affection-aggression-parenting.html
-
-**Alcaraz as a No 10, Chermiti chances, O'Brien in the centre - Moyes can now experiment**\
-`Moyes knows what Doucoure and co can bring. Before the summer, he should take the chance to find out what Alcaraz and others are made of`\
-https://nytimes.com/athletic/6257286/2025/04/06/everton-david-moyes-squad/
 
