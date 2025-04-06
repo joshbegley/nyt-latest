@@ -1,3 +1,7 @@
+**John Lithgow’s ‘Giant’ Is Among the Big Winners at the Olivier Awards**\
+`The play, about Roald Dahl’s antisemitism, took home three awards at Britain’s equivalent of the Tonys. So did a “Fiddler on the Roof” revival and a folk rock “Benjamin Button.”`\
+https://nytimes.com/2025/04/06/theater/olivier-awards-winners-giant-lithgow.html
+
 **Raiders release CB Jack Jones: What move means for LV, potential suitors**\
 `Jones has shown flashes of potential, but has been undisciplined and inconsistent. The Raiders, meanwhile, are left with a thin DB room.`\
 https://nytimes.com/athletic/6259512/2025/04/06/raiders-release-jack-jones-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/06/arts/marcia-marcus-dead.html
 **After a Blowout Week, Wall Street Decision Makers Brace for More Chaos**\
 `The financial titans who backed Trump are now dealing with the fallout from his tariffs. They spent the weekend surveying the damage of last week’s major sell-off.`\
 https://nytimes.com/2025/04/06/business/stock-market-plunge-investment-bank-impact.html
-
-**Roberto Clemente's son 'shocked' as Pirates replace tribute with ad**\
-`The Pirates said the tribute was never meant to be permanent but apologized for not notifying the family about the change.`\
-https://nytimes.com/athletic/6259303/2025/04/06/pirates-robert-clemente-tribute-replaced-ad/
 

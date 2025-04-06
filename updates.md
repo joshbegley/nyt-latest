@@ -1,3 +1,7 @@
+**John Lithgow’s ‘Giant’ Is Among the Big Winners at the Olivier Awards**\
+`The play, about Roald Dahl’s antisemitism, took home three awards at Britain’s equivalent of the Tonys. So did a “Fiddler on the Roof” revival and a folk rock “Benjamin Button.”`\
+https://nytimes.com/2025/04/06/theater/olivier-awards-winners-giant-lithgow.html
+
 **Raiders release CB Jack Jones: What move means for LV, potential suitors**\
 `Jones has shown flashes of potential, but has been undisciplined and inconsistent. The Raiders, meanwhile, are left with a thin DB room.`\
 https://nytimes.com/athletic/6259512/2025/04/06/raiders-release-jack-jones-analysis/
