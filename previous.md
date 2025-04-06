@@ -1,3 +1,15 @@
+**TJ Oshie, Nicklas Backstrom revel in Ovechkin's accomplishment: 'We're like brothers'**\
+`Oshie and Backstrom were by Ovechkin's side during the long journey to the record. Sunday's game was no different.`\
+https://nytimes.com/athletic/6259691/2025/04/06/ovechkin-record-oshie-backstrom-reaction-capitals/
+
+**Brian Harman wins Texas Open, scoring first victory since 2023 Open Championship**\
+`Harman earned his fourth career PGA Tour victory in windy conditions.`\
+https://nytimes.com/athletic/6259478/2025/04/06/brian-harman-wins-texas-open/
+
+**Stocks Are Set to Extend Sharp Fall**\
+`Futures on the S&P 500, which allow investors to trade the index before the official start of trading on Monday, added to last week’s sell-off.`\
+https://nytimes.com/2025/04/06/business/stocks-trump-tariffs.html
+
 **Dodger Details: Blake Snell's injury, Tommy Edman's adjustment and what else we're seeing**\
 `Tyler Glasnow lasted just 60 pitches, less than half of which were strikes, as he struggled with the rainy conditions.`\
 https://nytimes.com/athletic/6259714/2025/04/06/dodgers-blake-snell-tommy-edman/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6259647/2025/04/06/uconn-south-carolina-ncaa-womens
 **Eyewitnesses Recount Deadly Israeli Attack on Medics in Gaza**\
 `The New York Times interviewed two people who described being detained by Israeli soldiers and looking on as they opened fire on ambulances and a fire truck, killing 15.`\
 https://nytimes.com/2025/04/06/world/middleeast/gaza-medics-killed-israel.html
-
-**Monday Briefing: Trump’s Team Defends Tariffs**\
-`Plus, meet a robot butler.`\
-https://nytimes.com/2025/04/06/briefing/trump-tariffs-israel-gaza-aid-deaths-syria-chemical-weapons.html
-
-**Denis Arndt, Who Was a First-Time Tony Nominee at 77, Dies at 86**\
-`After more than 40 years as a stage and television actor, he broke through in “Heisenberg” as a butcher who has a romance with a much younger woman.`\
-https://nytimes.com/2025/04/06/theater/denis-arndt-dead.html
-
-**Man Is Shot by N.Y.P.D. After Attacking 4 Girls With Cleaver**\
-`The man may be related to the girls, who all survived, the police said. An 11-year-old called 911, and officers rushed to the house in Brooklyn where the children lived.`\
-https://nytimes.com/2025/04/06/nyregion/stabbing-cleaver-police-shooting-brooklyn.html
 

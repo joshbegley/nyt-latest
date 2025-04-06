@@ -1,3 +1,15 @@
+**TJ Oshie, Nicklas Backstrom revel in Ovechkin's accomplishment: 'We're like brothers'**\
+`Oshie and Backstrom were by Ovechkin's side during the long journey to the record. Sunday's game was no different.`\
+https://nytimes.com/athletic/6259691/2025/04/06/ovechkin-record-oshie-backstrom-reaction-capitals/
+
+**Brian Harman wins Texas Open, scoring first victory since 2023 Open Championship**\
+`Harman earned his fourth career PGA Tour victory in windy conditions.`\
+https://nytimes.com/athletic/6259478/2025/04/06/brian-harman-wins-texas-open/
+
+**Stocks Are Set to Extend Sharp Fall**\
+`Futures on the S&P 500, which allow investors to trade the index before the official start of trading on Monday, added to last week’s sell-off.`\
+https://nytimes.com/2025/04/06/business/stocks-trump-tariffs.html
+
 **Dodger Details: Blake Snell's injury, Tommy Edman's adjustment and what else we're seeing**\
 `Tyler Glasnow lasted just 60 pitches, less than half of which were strikes, as he struggled with the rainy conditions.`\
 https://nytimes.com/athletic/6259714/2025/04/06/dodgers-blake-snell-tommy-edman/
