@@ -1,3 +1,11 @@
+**Dawn Staley sees a familiar guard in South Carolina's MiLaysia Fulwiley: Herself**\
+`Fulwiley could be the ultimate X factor in the NCAA Tournament championship game against UConn.`\
+https://nytimes.com/athletic/6257529/2025/04/06/dawn-staley-guard-south-carolina-milaysia-fulwiley/
+
+**Inside the epic Final Four rally Houston basketball was built for**\
+`The Cougars started to believe anything was possible in January, then drew upon their biggest win when Duke pushed them to the brink.`\
+https://nytimes.com/athletic/6258518/2025/04/06/houston-final-four-kelvin-sampson-jwan-roberts/
+
 **Florida vs. Houston NCAA Championship odds: Gators are narrow early favorites for Monday**\
 `Houston and Florida each pulled seismic last-minute stunners in the Final Four. They duel for the national title on Monday night.`\
 https://nytimes.com/athletic/6256022/2025/04/06/florida-houston-odds-ncaa-championship/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/06/opinion/skadden-arps-fellows-letter-law-firm.html
 **The Sunday Read: ‘What Happened to Val Kilmer?’**\
 `Cancer had taken his voice, but the unlikeliest movie star in Hollywood history still had a lot he wanted to say. (Published in 2020.)`\
 https://nytimes.com/2025/04/06/podcasts/the-daily/val-kilmer.html
-
-**The Age of Miraculous Growth Is Over. Trump’s Tariffs Were Just the Last Straw.**\
-`For the billions of people who still live in poverty, the path to prosperity may look very different than it has since World War II.`\
-https://nytimes.com/2025/04/06/opinion/tariffs-vietnam-cambodia-globalization.html
-
-**Maya, Stewie, Paige ... and now Sarah Strong. Count her among UConn's most elite freshmen**\
-`South Carolina coach Dawn Staley said of Strong: "In the next three years, she might be the best player to come out of UConn."`\
-https://nytimes.com/athletic/6257607/2025/04/06/sarah-strong-uconn-freshman-national-championship/
 
