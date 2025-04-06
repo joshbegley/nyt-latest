@@ -1,3 +1,11 @@
+**Walter Clayton Jr. drops 34, Florida downs Auburn in all-SEC Final Four thriller**\
+`Clayton became the 15th player to score more than 30 points in a Final Four game.`\
+https://nytimes.com/athletic/6257659/2025/04/05/florida-auburn-walter-clayton-final-four/
+
+**With home ice nearly out of question, Oilers must start shifting their focus**\
+`Edmonton will likely start the postseason on the road for the first time since Connor McDavid and Leon Draisaitl joined the team.`\
+https://nytimes.com/athletic/6257959/2025/04/05/oilers-kings-nhl-playoffs-home-ice/
+
 **Men's March Madness projections 2025: Who will win in the Final Four?**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/04/05/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/05/us/politics/trump-administration-revokes-visas-of
 **Byron Buxton channels inner 'Energizer Bunny' to help Twins break out of slumber**\
 `The season is but a week old, and there have already been several sightings of the Twins' "Energizer Bunny."`\
 https://nytimes.com/athletic/6257861/2025/04/05/byron-buxton-energizer-bunny-twins-beat-astros/
-
-**Trinity Rodman scores in first game back with USWNT**\
-`It was the U.S. forward's first game back with the team since the Olympics.`\
-https://nytimes.com/athletic/6257852/2025/04/05/trinity-rodman-goal-uswnt-brazil-soccer/
-
-**How Canucks crushed Ducks with franchise-record offensive outburst: 3 takeaways**\
-`Vancouver set a record for the fastest five goals scored in franchise history in a 6-2 win over Anaheim. `\
-https://nytimes.com/athletic/6257750/2025/04/05/canucks-ducks-franchise-record-fastest-goals/
 
