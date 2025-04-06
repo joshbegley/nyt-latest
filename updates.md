@@ -1,3 +1,11 @@
+**Mets' prospect Matt Allan makes first appearance in 6 years**\
+`Allan delivered a scoreless outing in a Class-A game as he comes back from two Tommy John surgeries.`\
+https://nytimes.com/athletic/6259186/2025/04/06/mets-prospect-matt-allan-comeback/
+
+**What We Know About the Case of Gaza Aid Workers Killed by Israeli Gunfire**\
+`The Israeli military, confronted with video evidence contradicting its initial account, now says it was “mistaken.”`\
+https://nytimes.com/2025/04/06/world/middleeast/gaza-aid-workers-killed-israel.html
+
 **A stunning Final Four finish and Ovi's epic chase**\
 `Welcome to The Pulse, The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/6258343/2025/04/06/a-stunning-last-minute-comeback-at-the-final-four-plus-ovis-epic-chase/

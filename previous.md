@@ -1,3 +1,11 @@
+**Mets' prospect Matt Allan makes first appearance in 6 years**\
+`Allan delivered a scoreless outing in a Class-A game as he comes back from two Tommy John surgeries.`\
+https://nytimes.com/athletic/6259186/2025/04/06/mets-prospect-matt-allan-comeback/
+
+**What We Know About the Case of Gaza Aid Workers Killed by Israeli Gunfire**\
+`The Israeli military, confronted with video evidence contradicting its initial account, now says it was “mistaken.”`\
+https://nytimes.com/2025/04/06/world/middleeast/gaza-aid-workers-killed-israel.html
+
 **A stunning Final Four finish and Ovi's epic chase**\
 `Welcome to The Pulse, The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/6258343/2025/04/06/a-stunning-last-minute-comeback-at-the-final-four-plus-ovis-epic-chase/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6259084/2025/04/06/liverpool-fulham-result-arne-slo
 **Nkunku's Chelsea 'struggles' not due to lack of effort - Maresca**\
 `Maresca selected Nkunku to play as a No 9 in Sunday's goalless draw at Brentford but he was substituted off at half-time.`\
 https://nytimes.com/athletic/6259050/2025/04/06/christopher-nkunku-chelsea/
-
-**Review: Reclaiming the Past in a Dance of Simmering Power**\
-`The choreographer Reggie Wilson premieres his latest, “The Reclamation,” a stark, formal dance for seven, at NYU Skirball.`\
-https://nytimes.com/2025/04/06/arts/dance/review-reggie-wilson-nyu-skirball.html
-
-**Max Verstappen's Suzuka brilliance proves he'll be hard to beat to the title**\
-`Red Bull team principal Christian Horner called it one of Verstappen’s best weekends in F1.`\
-https://nytimes.com/athletic/6258602/2025/04/06/max-verstappen-suzuka-win-japanese-grand-prix/
 
