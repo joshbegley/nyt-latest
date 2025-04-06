@@ -1,3 +1,7 @@
+**Monday Briefing: Trump’s Team Defends Tariffs**\
+`Plus, meet a robot butler.`\
+https://nytimes.com/2025/04/06/briefing/trump-tariffs-israel-gaza-aid-deaths-syria-chemical-weapons.html
+
 **Denis Arndt, Who Was a First-Time Tony Nominee at 77, Dies at 86**\
 `After more than 40 years as a stage and television actor, he broke through in “Heisenberg” as a butcher who has a romance with a much younger woman.`\
 https://nytimes.com/2025/04/06/theater/denis-arndt-dead.html

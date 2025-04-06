@@ -1,3 +1,7 @@
+**Eyewitnesses Recount Deadly Israeli Attack on Medics in Gaza**\
+`The New York Times interviewed two people who described being detained by Israeli soldiers and looking on as they opened fire on ambulances and a fire truck, killing 15.`\
+https://nytimes.com/2025/04/06/world/middleeast/gaza-medics-killed-israel.html
+
 **Monday Briefing: Trump’s Team Defends Tariffs**\
 `Plus, meet a robot butler.`\
 https://nytimes.com/2025/04/06/briefing/trump-tariffs-israel-gaza-aid-deaths-syria-chemical-weapons.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6251533/2025/04/06/alex-ovechkin-nhl-record-wayne-g
 **The best Alexander Ovechkin cards to collect**\
 `These are the Alexander Ovechkin trading cards worth considering adding to your collection.`\
 https://nytimes.com/athletic/6069464/2025/04/06/ovechkin-rookie-cards-capitals/
-
-**Defiant, Le Pen Tells Supporters ‘I Won’t Give Up’ Despite 5-Year Ban**\
-`In a speech, Marine Le Pen, the French far-right leader, cast a judicial decision prohibiting her from running for office as a threat to democracy.`\
-https://nytimes.com/2025/04/06/world/europe/france-marine-le-pen-rally.html
 
