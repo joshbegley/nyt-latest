@@ -1,3 +1,15 @@
+**Russia Strikes Kyiv as Ukraine Reels From Deadly Attack on Zelensky’s Hometown**\
+`While Russian missile and drone attacks have been unrelenting over more than three years of war, they have intensified in recent weeks amid U.S.-led peace talks.`\
+https://nytimes.com/2025/04/06/world/europe/ukraine-kyiv-attack-russia.html
+
+**The best Caitlin Clark cards to collect**\
+`An introduction for anyone looking to collect Caitlin Clark trading cards `\
+https://nytimes.com/athletic/6257759/2025/04/06/caitlin-clark-rookie-cards-autographs/
+
+**Ryan Reynolds makes a worthwhile visit as Wrexham take big step towards promotion**\
+`Wrexham's automatic promotion fate is in their hands after a 3-0 win over ten-man Burton Albion, with Wycombe also losing`\
+https://nytimes.com/athletic/6254760/2025/04/06/ryan-reynolds-wrexham-burton-wycombe/
+
 **Dawn Staley sees a familiar guard in South Carolina's MiLaysia Fulwiley: Herself**\
 `Fulwiley could be the ultimate X factor in the NCAA Tournament championship game against UConn.`\
 https://nytimes.com/athletic/6257529/2025/04/06/dawn-staley-guard-south-carolina-milaysia-fulwiley/

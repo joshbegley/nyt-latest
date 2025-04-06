@@ -1,3 +1,15 @@
+**Russia Strikes Kyiv as Ukraine Reels From Deadly Attack on Zelensky’s Hometown**\
+`While Russian missile and drone attacks have been unrelenting over more than three years of war, they have intensified in recent weeks amid U.S.-led peace talks.`\
+https://nytimes.com/2025/04/06/world/europe/ukraine-kyiv-attack-russia.html
+
+**The best Caitlin Clark cards to collect**\
+`An introduction for anyone looking to collect Caitlin Clark trading cards `\
+https://nytimes.com/athletic/6257759/2025/04/06/caitlin-clark-rookie-cards-autographs/
+
+**Ryan Reynolds makes a worthwhile visit as Wrexham take big step towards promotion**\
+`Wrexham's automatic promotion fate is in their hands after a 3-0 win over ten-man Burton Albion, with Wycombe also losing`\
+https://nytimes.com/athletic/6254760/2025/04/06/ryan-reynolds-wrexham-burton-wycombe/
+
 **Dawn Staley sees a familiar guard in South Carolina's MiLaysia Fulwiley: Herself**\
 `Fulwiley could be the ultimate X factor in the NCAA Tournament championship game against UConn.`\
 https://nytimes.com/athletic/6257529/2025/04/06/dawn-staley-guard-south-carolina-milaysia-fulwiley/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6258428/2025/04/06/houston-duke-final-four-march-ma
 **Sens notebook: Big wins over Lightning and Panthers, Forsberg's play and more**\
 `Plus, an update on those "leaked" Senators alternate jerseys that hit the internet last week. `\
 https://nytimes.com/athletic/6249838/2025/04/06/senators-lightning-panthers-anton-forsberg/
-
-**South Carolina's 'Seatbelt Gang' better buckle up for UConn in national championship**\
-`South Carolina's defense is "like gnats." "We've got bigs blocking shots. We've got guards blocking shots. …Honestly, it's hard against us."`\
-https://nytimes.com/athletic/6257370/2025/04/06/south-carolina-seatbelt-gang-defense-uconn-national-championship/
-
-**The People Who Want Institutions to Stand Up to Trump**\
-`Three months into the Trump administration, it is clear that many of the Americans refusing to back down or stay silent are ordinary people.`\
-https://nytimes.com/2025/04/06/opinion/skadden-arps-fellows-letter-law-firm.html
-
-**The Sunday Read: ‘What Happened to Val Kilmer?’**\
-`Cancer had taken his voice, but the unlikeliest movie star in Hollywood history still had a lot he wanted to say. (Published in 2020.)`\
-https://nytimes.com/2025/04/06/podcasts/the-daily/val-kilmer.html
 
