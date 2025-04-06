@@ -1,3 +1,7 @@
+**For Duke, fateful Final Four collapse, end of Cooper Flagg's run ‘still hard to believe’**\
+`Duke was cruising toward the title game. Cooper Flagg had 27 points and the ball at the end. So how did a dream season end like this?`\
+https://nytimes.com/athletic/6258611/2025/04/06/duke-cooper-flagg-houston-final-four-collapse/
+
 **Long-Running Storm Drenches Central U.S. but Starts to Shift East**\
 `The heaviest rains so far this weekend have hit Arkansas, Missouri and Kentucky. More rain is expected on Sunday, but the risk of flooding will be less severe.`\
 https://nytimes.com/2025/04/06/weather/storm-flood-rain-central-us.html
