@@ -1,5 +1,29 @@
+**The Stories That Aren’t Archived**\
+`Before the digital age, many New York Times articles were updated or scrapped between editions, and never saved on microfilm.`\
+https://nytimes.com/2025/04/06/insider/the-stories-that-arent-archived.html
+
+**‘As the Doors Closed, I Realized I Had Left My Laptop on the Bench’**\
+`A sinking feeling on the subway, racing after a teen heartthrob and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2025/04/06/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/04/06/crosswords/spelling-bee-forum.html
+
+**This Agency Fights Corruption. New York City Leaders Have Weakened It.**\
+`The Department of Investigation, tasked with stamping out corruption in city government, has lost more than a quarter of its employees since 2019.`\
+https://nytimes.com/2025/04/06/nyregion/nyc-corruption-adams-doi.html
+
+**Spelling Bee Lets Solvers Have Plurals (for One Day)**\
+`Relenting to their audience, the editors behind a popular New York Times game decided to break a rule.`\
+https://nytimes.com/2025/04/06/pageoneplus/spelling-bee-s.html
+
+**Cade Cunningham returns from injury, but Pistons fall to Grizzlies**\
+`"I feel great now," Cunningham said. "So, I feel good going into the playoffs. It was a good game for me to try to shake off the rust."`\
+https://nytimes.com/athletic/6258398/2025/04/06/pistons-cade-cunningham-returns/
+
 **Max Verstappen's perfect win and Kimi Antonelli makes history: Japanese Grand Prix briefing**\
-`Max Verstappen wins the Japanese Grand Prix with a superb drive from pole. `\
+`Max Verstappen wins the Japanese Grand Prix with a superb drive from pole as Kimi Antonelli breaks two records`\
 https://nytimes.com/athletic/6258403/2025/04/06/japanese-grand-prix-f1-briefing-max-verstappen-red-bull/
 
 **'We like fun!': Matt Chapman, Jung Hoo Lee help Giants extend their win streak to 6 games**\
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6258372/2025/04/06/canadiens-flyers-nick-suzuki-nhl
 **'It means we're good': Blues' franchise-record 12-game winning streak no fluke**\
 `Robert Thomas and rookie Zack Bolduc have been solid maintaining the streak while the Blues were without Colton Parayko and Dylan Holloway.`\
 https://nytimes.com/athletic/6257981/2025/04/06/blues-franchise-record-12-game-win-streak/
-
-**Walter Clayton Jr.'s tourney takeover hits the Final Four: 'He's special'**\
-`Clayton has spent March one-upping himself, making so many big shots his teammates (but not Carmelo Anthony) are at a loss for words.`\
-https://nytimes.com/athletic/6258144/2025/04/06/walter-clayton-jr-florida-final-four/
-
-**Kings' Kevin Fiala scores 30th goal of season, L.A. clinches playoff spot**\
-`The Kings went on to a workmanlike 3-0 victory over the banged-up Edmonton Oilers.`\
-https://nytimes.com/athletic/6258297/2025/04/06/kings-win-oilers-kevin-fiala-30th-goal-playoff-spot/
-
-**What makes Mets so confident in comebacks? 'We really believe it every time'**\
-`Francisco Lindor hit a walk-off sacrifice fly Saturday, and it came as no surprise to anyone in New York's dugout.`\
-https://nytimes.com/athletic/6258254/2025/04/06/mets-comeback-walkoff-francisco-lindor/
-
-**A Playbook for Standing Up to President Trump**\
-`Law firms and universities do not need to capitulate. Here’s how they can fight back.`\
-https://nytimes.com/2025/04/06/opinion/trump-law-firms-universities.html
-
-**The New York Times in Print for Sunday, April 6, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/04/06/todays-new-york-times
-
-**‘Adolescence’ and the Surprising Difficulty of Hugging a Teen Son**\
-`I didn’t know how to tear down that wall of silence and mystery that creeps up between parents and their teens, but I knew doing so was essential.`\
-https://nytimes.com/2025/04/06/opinion/adolescence-affection-aggression-parenting.html
 
