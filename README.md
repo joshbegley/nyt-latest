@@ -1,3 +1,7 @@
+**Are Southampton the worst-ever Premier League team?**\
+`Southampton are down - how does their disastrous season compare to some of the worst in Premier League history?`\
+https://nytimes.com/athletic/6258603/2025/04/06/southampton-premier-league-relegation-worst-teams/
+
 **The Briefing: Fulham 3 Liverpool 2: Jones and Robertson mistakes costly as Silva's side stun league leaders**\
 `Liverpool suffered a surprise defeat as their unbeaten run ended and they conceded three goals in the first half for first time since 2020`\
 https://nytimes.com/athletic/6247642/2025/04/06/fulham-liverpool-result-match-analysis-mistakes/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/06/movies/metro-theater-sold-hochul-grants.html
 **Arsenal's Russo withdraws from England squad with injury**\
 `The 26-year-old forward took a knock to her ankle during Friday's 5-0 win over Belgium.`\
 https://nytimes.com/athletic/6258802/2025/04/06/alessia-russo-injury-arsenal-england/
-
-**Lowetide: How much have injuries impacted Oilers prospect Beau Akey?**\
-`The injuries have taken all of the buzz out of Akey's projection as a top prospect for the Oilers.`\
-https://nytimes.com/athletic/6257325/2025/04/06/oilers-beau-akey-injuries/
 
