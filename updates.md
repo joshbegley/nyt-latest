@@ -1,3 +1,15 @@
+**The Briefing: Spurs 3 Southampton 1 - Fans react to Levy, Postecoglou; five-minute VAR check; Bergvall shines**\
+`Our writers break down the action from a home win that included an incredibly long VAR check.`\
+https://nytimes.com/athletic/6249901/2025/04/06/tottenham-levy-postecoglou-frankfurt/
+
+**Southampton relegated from Premier League with seven games remaining**\
+`Southampton have won just two league games all season and are at risk of a Premier League record low points tally.`\
+https://nytimes.com/athletic/6249119/2025/04/06/southampton-relegated-premier-league-record/
+
+**Green Goddess Chicken for a Spring Sunday**\
+`Melissa Clark’s five-star recipe pairs the salty, acidic, herb-laden dressing with a perfectly burnished bird.`\
+https://nytimes.com/2025/04/06/dining/spring-roasted-chicken.html
+
 **The Briefing: Brentford 0 Chelsea 0 - Maresca's bold starting XI, Nkunku's struggle, is Sanchez fun?**\
 `Enzo Maresca made a bold team selection against Brentford and it failed to pay off. The Athletic's Liam Twomey analyses the action`\
 https://nytimes.com/athletic/6247233/2025/04/06/brentford-0-chelsea-0-maresca-nkunku-sanchez/

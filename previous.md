@@ -1,3 +1,15 @@
+**The Briefing: Spurs 3 Southampton 1 - Fans react to Levy, Postecoglou; five-minute VAR check; Bergvall shines**\
+`Our writers break down the action from a home win that included an incredibly long VAR check.`\
+https://nytimes.com/athletic/6249901/2025/04/06/tottenham-levy-postecoglou-frankfurt/
+
+**Southampton relegated from Premier League with seven games remaining**\
+`Southampton have won just two league games all season and are at risk of a Premier League record low points tally.`\
+https://nytimes.com/athletic/6249119/2025/04/06/southampton-relegated-premier-league-record/
+
+**Green Goddess Chicken for a Spring Sunday**\
+`Melissa Clark’s five-star recipe pairs the salty, acidic, herb-laden dressing with a perfectly burnished bird.`\
+https://nytimes.com/2025/04/06/dining/spring-roasted-chicken.html
+
 **The Briefing: Brentford 0 Chelsea 0 - Maresca's bold starting XI, Nkunku's struggle, is Sanchez fun?**\
 `Enzo Maresca made a bold team selection against Brentford and it failed to pay off. The Athletic's Liam Twomey analyses the action`\
 https://nytimes.com/athletic/6247233/2025/04/06/brentford-0-chelsea-0-maresca-nkunku-sanchez/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6257325/2025/04/06/oilers-beau-akey-injuries/
 **Mavericks must regroup after bad back-to-back losses; a rematch with Luka Dončić awaits**\
 `The Mavericks have lost three of their last four, all with a Play-In Tournament spot on the line. Luka and the Lakers are in town Wednesday.`\
 https://nytimes.com/athletic/6258439/2025/04/06/mavericks-nba-loss-clippers-luka-doncic/
-
-**'Man, he can hoop': Kevin Porter Jr. shines in Bucks come-from-behind win in Miami**\
-`Since joining the Bucks at the trade deadline, Porter has tried to find his way. But he gave them exactly what they needed on Saturday.`\
-https://nytimes.com/athletic/6258279/2025/04/06/kevin-porter-jr-bucks-heat/
-
-**‘S.N.L.’: Trumpeting Tariffs and Predicting a ‘Great’ Depression**\
-`Cheeseheads and cheesecakes join the punchlines and headlines, and an enthusiastic audience gets a mild scolding for slipping past the censors. Temporarily.`\
-https://nytimes.com/2025/04/06/arts/television/snl-trumpeting-tariffs-great-depression.html
-
-**Trump Administration Live Updates: Rubio Cancels Visas for South Sudanese in Dispute Over Deportations**\
-``\
-https://nytimes.com/live/2025/04/06/us/trump-news-updates
 
