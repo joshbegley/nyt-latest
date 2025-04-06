@@ -1,3 +1,11 @@
+**The Briefing: Brentford 0 Chelsea 0 - Maresca's bold starting XI, Nkunku's struggle, is Sanchez fun?**\
+`Enzo Maresca made a bold team selection against Brentford and it failed to pay off. The Athletic's Liam Twomey analyses the action`\
+https://nytimes.com/athletic/6247233/2025/04/06/brentford-0-chelsea-0-maresca-nkunku-sanchez/
+
+**European rugby game delayed after parachutist stuck in stadium roof**\
+`The parachute malfunctioned as the paratrooper, part of the pre-match entertainment, became stuck on part of the awning of the stadium roof.`\
+https://nytimes.com/athletic/6258813/2025/04/06/rugby-parachutist-toulouse-sale-champions-cup/
+
 **Judge Calls Mistaken Deportation of Maryland Man a ‘Grievous Error’**\
 `Judge Paula Xinis, who has ordered that the Trump administration return the man, Kilmar Armando Abrego Garcia, by Monday, also rejected a request to pause that order.`\
 https://nytimes.com/2025/04/06/us/politics/trump-deportation-el-salvador-judge-xinis.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/06/arts/television/snl-trumpeting-tariffs-great-depr
 **Trump Administration Live Updates: Rubio Cancels Visas for South Sudanese in Dispute Over Deportations**\
 ``\
 https://nytimes.com/live/2025/04/06/us/trump-news-updates
-
-**In Retirement: Blessings and Challenges**\
-`Readers respond to an article about staying mentally sharp in retirement.`\
-https://nytimes.com/2025/04/06/opinion/retirement-challenges.html
-
-**Forget the Signal Chat. The Strike on the Houthis Was a Necessary Blow.**\
-`Striking the Iranian-backed Houthi militia serves United States interests, and puts pressure on Iran over its nuclear ambitions.`\
-https://nytimes.com/2025/04/06/opinion/signal-houthis-strikes-iran.html
 
