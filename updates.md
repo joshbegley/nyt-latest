@@ -1,3 +1,7 @@
+**At the Final Four, Florida stands alone as the class of an all-time SEC**\
+`One game away from the program's third national title, these Gators can credibly make the case for setting an entirely new standard.`\
+https://nytimes.com/athletic/6257659/2025/04/05/florida-auburn-walter-clayton-final-four/
+
 **Nashville SC's Walker Zimmerman released from hospital after head injury**\
 `Nashville's captain was carted off the pitch and briefly hospitalized following a kick to the face in Saturday's loss to Charlotte FC.`\
 https://nytimes.com/athletic/6257971/2025/04/05/walker-zimmerman-hospitalized-released-injury/

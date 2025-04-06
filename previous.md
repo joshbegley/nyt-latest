@@ -6,8 +6,8 @@ https://nytimes.com/athletic/6257971/2025/04/05/walker-zimmerman-hospitalized-re
 `After struggling last year, Grisham is off to a strong start, hitting .471 with three home runs and seven RBIs in just seven games.`\
 https://nytimes.com/athletic/6257977/2025/04/05/yankees-pirates-trent-grisham-2-home-runs/
 
-**Walter Clayton Jr. drops 34, Florida downs Auburn in all-SEC Final Four thriller**\
-`Clayton became the 15th player to score more than 30 points in a Final Four game.`\
+**At the Final Four, Florida stands alone as the class of an all-time SEC**\
+`One game away from the program's third national title, these Gators can credibly make the case for setting an entirely new standard.`\
 https://nytimes.com/athletic/6257659/2025/04/05/florida-auburn-walter-clayton-final-four/
 
 **With home ice nearly out of question, Oilers must start shifting their focus**\
