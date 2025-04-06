@@ -1,3 +1,7 @@
+**Jose Altuve's left-field experience hinges on better exchanges**\
+`Altuve is an infielder in his fourth month of full-time outfield play. "I'm feeling slowly better out there," he said after Saturday's loss.`\
+https://nytimes.com/athletic/6257873/2025/04/05/jose-altuve-left-field-twins/
+
 **Protesters Rally Against Trump and Musk Across the U.S.**\
 `People attending the marches chanted and held signs signaling their opposition to President Trump and his administration’s cuts to the federal government.`\
 https://nytimes.com/video/us/politics/100000010094238/anti-trump-musk-protests.html

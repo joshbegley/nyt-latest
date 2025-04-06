@@ -1,3 +1,7 @@
+**Jose Altuve's left-field experience hinges on better exchanges**\
+`Altuve is an infielder in his fourth month of full-time outfield play. "I'm feeling slowly better out there," he said after Saturday's loss.`\
+https://nytimes.com/athletic/6257873/2025/04/05/jose-altuve-left-field-twins/
+
 **Protesters Rally Against Trump and Musk Across the U.S.**\
 `People attending the marches chanted and held signs signaling their opposition to President Trump and his administration’s cuts to the federal government.`\
 https://nytimes.com/video/us/politics/100000010094238/anti-trump-musk-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/05/world/middleeast/israel-killing-rescue-workers-ga
 **After Trump’s Tariffs, Stocks Plunged but Penguin Memes Ticked Up**\
 `The internet poked fun at the Trump administration’s decision to impose new tariffs on Heard Island and McDonald Islands, Australian territories near Antarctica where many penguins but no people live.`\
 https://nytimes.com/2025/04/05/world/americas/penguins-tariffs-island.html
-
-**Course Correction**\
-`Kareem Ayas’s Sunday puzzle is major fun.`\
-https://nytimes.com/2025/04/05/crosswords/daily-puzzle-2025-04-06.html
 

@@ -1,3 +1,7 @@
+**'He knows that he can do it here': Roki Sasaki turns in strong bounce-back start for Dodgers**\
+`There's no need to panic over one or two bad outings," Kiké Hernández said. The Dodgers beat the Phillies 3-1.`\
+https://nytimes.com/athletic/6257928/2025/04/05/dodgers-win-phillies-roki-sasaki-bounce-back-start/
+
 **Jose Altuve's left-field experience hinges on better exchanges**\
 `Altuve is an infielder in his fourth month of full-time outfield play. "I'm feeling slowly better out there," he said after Saturday's loss.`\
 https://nytimes.com/athletic/6257873/2025/04/05/jose-altuve-left-field-twins/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6257785/2025/04/05/chicago-cubs-matthew-boyd-start-
 **Israel Says Its Account of Rescue Workers Killed in Gaza Was Partly ‘Mistaken’**\
 `The Israeli military had previously asserted that the workers had been “advancing suspiciously” toward its troops. A video obtained by The New York Times on Friday appeared to contradict that account.`\
 https://nytimes.com/2025/04/05/world/middleeast/israel-killing-rescue-workers-gaza.html
-
-**After Trump’s Tariffs, Stocks Plunged but Penguin Memes Ticked Up**\
-`The internet poked fun at the Trump administration’s decision to impose new tariffs on Heard Island and McDonald Islands, Australian territories near Antarctica where many penguins but no people live.`\
-https://nytimes.com/2025/04/05/world/americas/penguins-tariffs-island.html
 
