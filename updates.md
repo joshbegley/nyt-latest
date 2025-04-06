@@ -1,3 +1,7 @@
+**Men's March Madness projections 2025: Who will win in the Final Four?**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/04/05/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **Chevron Must Pay $745 Million for Coastal Damages, Louisiana Jury Rules**\
 `The verdict will likely influence similar lawsuits against other oil companies over coastal damage in the state.`\
 https://nytimes.com/2025/04/05/us/chevron-trial-louisiana-damages.html
