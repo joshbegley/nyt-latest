@@ -1,3 +1,11 @@
+**Walter Clayton Jr. drops 34, Florida downs Auburn in all-SEC Final Four thriller**\
+`Clayton became the 15th player to score more than 30 points in a Final Four game.`\
+https://nytimes.com/athletic/6257659/2025/04/05/florida-auburn-walter-clayton-final-four/
+
+**With home ice nearly out of question, Oilers must start shifting their focus**\
+`Edmonton will likely start the postseason on the road for the first time since Connor McDavid and Leon Draisaitl joined the team.`\
+https://nytimes.com/athletic/6257959/2025/04/05/oilers-kings-nhl-playoffs-home-ice/
+
 **Men's March Madness projections 2025: Who will win in the Final Four?**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/04/05/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
