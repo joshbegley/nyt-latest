@@ -1,3 +1,11 @@
+**Kings' Kevin Fiala scores 30th goal of season, L.A. clinches playoff spot**\
+`The Kings went on to a workmanlike 3-0 victory over the banged-up Edmonton Oilers.`\
+https://nytimes.com/athletic/6258297/2025/04/06/kings-win-oilers-kevin-fiala-30th-goal-playoff-spot/
+
+**What makes Mets so confident in comebacks? 'We really believe it every time'**\
+`Francisco Lindor hit a walk-off sacrifice fly Saturday, and it came as no surprise to anyone in New York's dugout.`\
+https://nytimes.com/athletic/6258254/2025/04/06/mets-comeback-walkoff-francisco-lindor/
+
 **A Playbook for Standing Up to President Trump**\
 `Law firms and universities do not need to capitulate. Here’s how they can fight back.`\
 https://nytimes.com/2025/04/06/opinion/trump-law-firms-universities.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6257362/2025/04/06/manchester-united-leeds-musa-gab
 **The Caravaggio of kit designers who made Italian football look beautiful**\
 `Nicola Raccuglia was friends with Maradona, a business partner of Cruyff and provided kits for Schumacher. His company NR is back in vogue`\
 https://nytimes.com/athletic/6249814/2025/04/06/nr-italy-kit-design-raccuglia-maradona/
-
-**'I don’t remember my parents and son being there' - Kristoffer Olsson on rare brain injury and amnesia**\
-`After suffering a rare condition that left him with blood clots on his brain, the 29-year-old tells The Athletic about his road to recovery`\
-https://nytimes.com/athletic/6241571/2025/04/06/kristoffer-olsson-brain-injury-future/
-
-**Manchester United vs Manchester City - discussing derby day vibes, tactics and fears**\
-`Carl Anka and Sam Lee with the key talking points for Sunday's game at Old Trafford `\
-https://nytimes.com/athletic/6255471/2025/04/06/manchester-united-manchester-city-roundtable-2025/
 
