@@ -1,4 +1,12 @@
-**Mets' prospect Matt Allan makes first appearance in 6 years**\
+**Dodgers place Blake Snell on IL due to shoulder inflammation**\
+`It was not immediately clear how much time pitcher will miss. He signed with Los Angeles for $182 million over the offseason.`\
+https://nytimes.com/athletic/6259215/2025/04/06/dodgers-blake-snell-injured-list/
+
+**The Briefing: Man United 0 Man City 0 - A rare Amorim clean sheet and why De Bruyne's departure makes sense**\
+`Our writers analyse the talking points from a goal-less Manchester derby at Old Trafford, as United's defence picked up a rare clean sheet`\
+https://nytimes.com/athletic/6255636/2025/04/06/man-united-city-result-analysis-de-bruyne-clean-sheet/
+
+**Mets prospect Matt Allan makes first appearance in 6 years**\
 `Allan delivered a scoreless outing in a Class-A game as he comes back from two Tommy John surgeries.`\
 https://nytimes.com/athletic/6259186/2025/04/06/mets-prospect-matt-allan-comeback/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6258648/2025/04/06/blue-jackets-goalies-offseason/
 **Buy or Wait? Americans Wrestle With How Tariffs Will Affect Their Shopping.**\
 `In the first weekend since President Trump unveiled broad tariffs, many shoppers sought to get ahead of expected price hikes, while others showed patience.`\
 https://nytimes.com/2025/04/06/us/trump-tariffs-shopping-consumer-panic-buying.html
-
-**Slot denies complacency to blame for Liverpool defeat at Fulham**\
-`Liverpool's 26-game unbeaten league run ended as they lost 3-2 at Craven Cottage on Sunday.`\
-https://nytimes.com/athletic/6259084/2025/04/06/liverpool-fulham-result-arne-slot/
-
-**Nkunku's Chelsea 'struggles' not due to lack of effort - Maresca**\
-`Maresca selected Nkunku to play as a No 9 in Sunday's goalless draw at Brentford but he was substituted off at half-time.`\
-https://nytimes.com/athletic/6259050/2025/04/06/christopher-nkunku-chelsea/
 

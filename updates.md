@@ -1,3 +1,15 @@
+**Dodgers place Blake Snell on IL due to shoulder inflammation**\
+`It was not immediately clear how much time pitcher will miss. He signed with Los Angeles for $182 million over the offseason.`\
+https://nytimes.com/athletic/6259215/2025/04/06/dodgers-blake-snell-injured-list/
+
+**The Briefing: Man United 0 Man City 0 - A rare Amorim clean sheet and why De Bruyne's departure makes sense**\
+`Our writers analyse the talking points from a goal-less Manchester derby at Old Trafford, as United's defence picked up a rare clean sheet`\
+https://nytimes.com/athletic/6255636/2025/04/06/man-united-city-result-analysis-de-bruyne-clean-sheet/
+
+**Mets prospect Matt Allan makes first appearance in 6 years**\
+`Allan delivered a scoreless outing in a Class-A game as he comes back from two Tommy John surgeries.`\
+https://nytimes.com/athletic/6259186/2025/04/06/mets-prospect-matt-allan-comeback/
+
 **Mets' prospect Matt Allan makes first appearance in 6 years**\
 `Allan delivered a scoreless outing in a Class-A game as he comes back from two Tommy John surgeries.`\
 https://nytimes.com/athletic/6259186/2025/04/06/mets-prospect-matt-allan-comeback/
