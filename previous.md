@@ -1,3 +1,11 @@
+**Denis Arndt, Who Was a First-Time Tony Nominee at 77, Dies at 86**\
+`After more than 40 years as a stage and television actor, he broke through in “Heisenberg” as a butcher who has a romance with a much younger woman.`\
+https://nytimes.com/2025/04/06/theater/denis-arndt-dead.html
+
+**Man Is Shot by N.Y.P.D. After Attacking 4 Girls With Cleaver**\
+`The man may be related to the girls, who all survived, the police said. An 11-year-old called 911, and officers rushed to the house in Brooklyn where the children lived.`\
+https://nytimes.com/2025/04/06/nyregion/stabbing-cleaver-police-shooting-brooklyn.html
+
 **A Coda on Syria’s Chemical Weapons**\
 `New reporting on how extensive Assad’s deception on chemical weapons seems to have been makes clear that critics were right to be skeptical of Obama’s deal.`\
 https://nytimes.com/live/2025/03/24/opinion/thepoint/syria-chemical-weapons-stockpile-obama
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/06/world/europe/france-marine-le-pen-rally.html
 **Saying Goodbye to the Prototype for Celebrity Chefs**\
 `An incredible concentration of culinary star power gathered in Manhattan to celebrate the life and career of André Soltner, the chef behind Lutèce.`\
 https://nytimes.com/2025/04/06/style/andre-soltner-lutece-memorial.html
-
-**Edward Countryman, Student of the American Revolution, Dies at 80**\
-`He wrote influential books exploring the dramatic changes wrought by independence, bringing in overlooked perspectives — what he called “a collision of histories.”`\
-https://nytimes.com/2025/04/06/books/edward-countryman-dead.html
-
-**Marcia Marcus, Painter Rediscovered in Her Last Decade, Dies at 97**\
-`A popular downtown artist in the 1960s, she worked in obscurity after art world trends left her behind. Now her startlingly fresh work is on view again.`\
-https://nytimes.com/2025/04/06/arts/marcia-marcus-dead.html
 
