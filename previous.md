@@ -1,3 +1,11 @@
+**It wasn't perfect, but Reds end losing skid behind TJ Friedl's 4-hit game**\
+`One day after being no-hit through 6 2/3 innings, the Reds managed 14 hits, and ended a 4-game skid which included three 1-0 losses.`\
+https://nytimes.com/athletic/6258169/2025/04/06/reds-snap-losing-skid-tj-friedl/
+
+**Mikel Arteta took a rare opportunity to rotate his Arsenal side - so what did he learn?**\
+`The idea of resting players or conceding defeat in a competition does not sit well with Arteta, but the Champions League is now the priority`\
+https://nytimes.com/athletic/6257162/2025/04/06/arsenal-squad-arteta/
+
 **Who are six-goal Victor Musa, JJ Gabriel and the other stars of Man Utd U18's 13-1 win over Leeds?**\
 `Saturday's win featured not only six goals for Musa, but also a debut for a 14-year-old deemed among United's finest academy prospects`\
 https://nytimes.com/athletic/6257362/2025/04/06/manchester-united-leeds-musa-gabriel-ibragimov/
@@ -23,18 +31,10 @@ https://nytimes.com/athletic/6257167/2025/04/06/chelsea-accounts-womens-team-200
 https://nytimes.com/athletic/6257015/2025/04/06/dani-alves-sexual-assault-acquittal-prison-explainer/
 
 **Houston stuns Duke with late surge to advance to national title game**\
-`The Cougars advance to face fellow top-seed Florida in Monday night's national title game. `\
+`The Cougars advance to their first title game appearance since 1984 and will face fellow top-seed Florida on Monday night in San Antonio.`\
 https://nytimes.com/athletic/6258105/2025/04/06/duke-basketball-cooper-flagg-houston-final-four/
 
 **‘0 to 1939 in 3 seconds’: Why Anti-Elon Musk Satire Is Flourishing in Britain**\
 `Humor and art have been used to mock the powerful in Britain for centuries. Now Elon Musk is on the receiving end.`\
 https://nytimes.com/2025/04/06/world/europe/anti-elon-musk-tesla-ads.html
-
-**Inspectors Say More Than 100 Chemical Weapons Sites Could Remain in Syria**\
-`The number, far higher than any previous estimate, poses a test for the new government. Experts fear that sarin, chlorine and mustard gas stockpiles could be unsecured.`\
-https://nytimes.com/2025/04/06/world/middleeast/syria-chemical-weapons-assad.html
-
-**For Many Russian Exiles, Even a Peace Deal Might Not Mean a Ticket Home**\
-`Hundreds of thousands fled Russia after the Ukraine invasion, fearing the draft and widening repression. Talks toward a possible truce have done little to allay their fears.`\
-https://nytimes.com/2025/04/06/world/europe/russian-exiles-return-putin-war-ceasefire.html
 

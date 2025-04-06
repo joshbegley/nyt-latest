@@ -1,3 +1,15 @@
+**It wasn't perfect, but Reds end losing skid behind TJ Friedl's 4-hit game**\
+`One day after being no-hit through 6 2/3 innings, the Reds managed 14 hits, and ended a 4-game skid which included three 1-0 losses.`\
+https://nytimes.com/athletic/6258169/2025/04/06/reds-snap-losing-skid-tj-friedl/
+
+**Mikel Arteta took a rare opportunity to rotate his Arsenal side - so what did he learn?**\
+`The idea of resting players or conceding defeat in a competition does not sit well with Arteta, but the Champions League is now the priority`\
+https://nytimes.com/athletic/6257162/2025/04/06/arsenal-squad-arteta/
+
+**Houston stuns Duke with late surge to advance to national title game**\
+`The Cougars advance to their first title game appearance since 1984 and will face fellow top-seed Florida on Monday night in San Antonio.`\
+https://nytimes.com/athletic/6258105/2025/04/06/duke-basketball-cooper-flagg-houston-final-four/
+
 **Who are six-goal Victor Musa, JJ Gabriel and the other stars of Man Utd U18's 13-1 win over Leeds?**\
 `Saturday's win featured not only six goals for Musa, but also a debut for a 14-year-old deemed among United's finest academy prospects`\
 https://nytimes.com/athletic/6257362/2025/04/06/manchester-united-leeds-musa-gabriel-ibragimov/
