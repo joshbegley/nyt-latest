@@ -1,3 +1,7 @@
+**Trent Grisham hits 2 home runs in win over Pirates, talks overcoming difficult 2024**\
+`After struggling last year, Grisham is off to a strong start, hitting .471 with three home runs and seven RBIs in just seven games.`\
+https://nytimes.com/athletic/6257977/2025/04/05/yankees-pirates-trent-grisham-2-home-runs/
+
 **Walter Clayton Jr. drops 34, Florida downs Auburn in all-SEC Final Four thriller**\
 `Clayton became the 15th player to score more than 30 points in a Final Four game.`\
 https://nytimes.com/athletic/6257659/2025/04/05/florida-auburn-walter-clayton-final-four/
