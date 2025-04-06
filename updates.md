@@ -1,3 +1,11 @@
+**Recovering Pope Surprises Pilgrims With a Public Appearance**\
+`Pope Francis was wheeled through a crowd that included health care workers from around the world, who had been told he was watching their Jubilee Mass on television.`\
+https://nytimes.com/2025/04/06/world/europe/pope-francis-surprise-public-appearance.html
+
+**After Anthony Edwards bails Wolves out, Chris Finch challenges them to finish strong**\
+`This was the second straight game that the Timberwolves coach has sounded unimpressed after a win.`\
+https://nytimes.com/athletic/6258401/2025/04/06/anthony-edwards-timberwolves-76ers-chris-finch/
+
 **For Duke, fateful Final Four collapse, end of Cooper Flagg's run ‘still hard to believe’**\
 `Duke was cruising toward the title game. Cooper Flagg had 27 points and the ball at the end. So how did a dream season end like this?`\
 https://nytimes.com/athletic/6258611/2025/04/06/duke-cooper-flagg-houston-final-four-collapse/
