@@ -1,3 +1,7 @@
+**Nashville SC's Walker Zimmerman released from hospital after head injury**\
+`Nashville's captain was carted off the pitch and briefly hospitalized following a kick to the face in Saturday's loss to Charlotte FC.`\
+https://nytimes.com/athletic/6257971/2025/04/05/walker-zimmerman-hospitalized-released-injury/
+
 **Trent Grisham hits 2 home runs in win over Pirates, talks overcoming difficult 2024**\
 `After struggling last year, Grisham is off to a strong start, hitting .471 with three home runs and seven RBIs in just seven games.`\
 https://nytimes.com/athletic/6257977/2025/04/05/yankees-pirates-trent-grisham-2-home-runs/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010094238/anti-trump-musk-protests.h
 **Yohe's 10 observations: Sidney Crosby puts on a show with hat trick against Dallas**\
 `Crosby extended his points streak to 12 games as Pittsburgh surprised the Stars with a 5-3 win in Dallas.`\
 https://nytimes.com/athletic/6257527/2025/04/05/penguins-sidney-crosby-hat-trick-stars/
-
-**Trump Administration Revokes Visas of South Sudanese in Clash Over Deportees**\
-`Secretary of State Marco Rubio said he was making the move because the transitional government of South Sudan had refused to accept its citizens in a timely manner.`\
-https://nytimes.com/2025/04/05/us/politics/trump-administration-revokes-visas-of-south-sudanese-in-clash-over-deportees.html
 
