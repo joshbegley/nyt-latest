@@ -2,7 +2,7 @@
 `Oshie and Backstrom were by Ovechkin's side during the long journey to the record. Sunday's game was no different.`\
 https://nytimes.com/athletic/6259691/2025/04/06/ovechkin-record-oshie-backstrom-reaction-capitals/
 
-**Brian Harman wins Texas Open, scoring first victory since 2023 Open Championship**\
+**Brian Harman wins Texas Open, his first win since 2023 Open Championship**\
 `Harman earned his fourth career PGA Tour victory in windy conditions.`\
 https://nytimes.com/athletic/6259478/2025/04/06/brian-harman-wins-texas-open/
 
