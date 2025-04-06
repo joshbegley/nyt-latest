@@ -1,3 +1,7 @@
+**Blue Jackets Sunday Gathering: Goaltending overhaul a must-do this summer**\
+`It's probably too late to salvage this season, but what can GM Don Waddell do about the goalies this offseason?`\
+https://nytimes.com/athletic/6258648/2025/04/06/blue-jackets-goalies-offseason/
+
 **Buy or Wait? Americans Wrestle With How Tariffs Will Affect Their Shopping.**\
 `In the first weekend since President Trump unveiled broad tariffs, many shoppers sought to get ahead of expected price hikes, while others showed patience.`\
 https://nytimes.com/2025/04/06/us/trump-tariffs-shopping-consumer-panic-buying.html
