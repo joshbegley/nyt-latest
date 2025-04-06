@@ -1,3 +1,7 @@
+**Maple Leafs report cards: A familiar script but a different ending against Blue Jackets**\
+`Toronto started slow and let Columbus dictate the pace of play but put the pedal down in the third for a 5-0 shutout win.`\
+https://nytimes.com/athletic/6257837/2025/04/05/maple-leafs-blue-jackets-grades-analysis/
+
 **At the Final Four, Florida stands alone as the class of an all-time SEC**\
 `One game away from the program's third national title, these Gators can credibly make the case for setting an entirely new standard.`\
 https://nytimes.com/athletic/6257659/2025/04/05/florida-auburn-walter-clayton-final-four/

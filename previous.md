@@ -1,3 +1,7 @@
+**Maple Leafs report cards: A familiar script but a different ending against Blue Jackets**\
+`Toronto started slow and let Columbus dictate the pace of play but put the pedal down in the third for a 5-0 shutout win.`\
+https://nytimes.com/athletic/6257837/2025/04/05/maple-leafs-blue-jackets-grades-analysis/
+
 **Nashville SC's Walker Zimmerman released from hospital after head injury**\
 `Nashville's captain was carted off the pitch and briefly hospitalized following a kick to the face in Saturday's loss to Charlotte FC.`\
 https://nytimes.com/athletic/6257971/2025/04/05/walker-zimmerman-hospitalized-released-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6257873/2025/04/05/jose-altuve-left-field-twins/
 **Protesters Rally Against Trump and Musk Across the U.S.**\
 `People attending the marches chanted and held signs signaling their opposition to President Trump and his administration’s cuts to the federal government.`\
 https://nytimes.com/video/us/politics/100000010094238/anti-trump-musk-protests.html
-
-**Yohe's 10 observations: Sidney Crosby puts on a show with hat trick against Dallas**\
-`Crosby extended his points streak to 12 games as Pittsburgh surprised the Stars with a 5-3 win in Dallas.`\
-https://nytimes.com/athletic/6257527/2025/04/05/penguins-sidney-crosby-hat-trick-stars/
 
