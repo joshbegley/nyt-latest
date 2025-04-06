@@ -1,3 +1,7 @@
+**Is Alex Ovechkin's new NHL goals record unreachable? Explaining the historical context**\
+`How did the league change after Gretzky retired? Will anyone ever topple Ovechkin?`\
+https://nytimes.com/athletic/6216431/2025/04/06/gretzky-nhl-records-ovechkin/
+
 **John Peck, Underground Cartoonist Known as The Mad Peck, Dies at 82**\
 `Among many other accomplishments, he illustrated a scholarly work on the history of comic books and wrote record reviews in four-panel comic-strip form.`\
 https://nytimes.com/2025/04/06/arts/john-peck-dead.html
