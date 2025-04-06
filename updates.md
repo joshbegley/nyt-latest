@@ -1,3 +1,7 @@
+**Russia Strikes Kyiv as Ukraine Mourns Deadly Attack on Zelensky’s Hometown**\
+`While Russian missile and drone bombardments have been unrelenting over more than three years of war, they have intensified in recent weeks amid U.S.-led peace talks.`\
+https://nytimes.com/2025/04/06/world/europe/ukraine-kyiv-attack-russia.html
+
 **A Second Child Dies of Measles in Texas**\
 `It is the second confirmed measles death in the U.S. in a decade. If the outbreak continues at the current pace, the nation may lose its “elimination” status.`\
 https://nytimes.com/2025/04/06/health/measles-death-texas.html
