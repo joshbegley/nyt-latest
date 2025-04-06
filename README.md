@@ -1,3 +1,7 @@
+**For Duke, fateful Final Four collapse, end of Cooper Flagg's run ‘still hard to believe’**\
+`Duke was cruising toward the title game. Cooper Flagg had 27 points and the ball at the end. So how did a dream season end like this?`\
+https://nytimes.com/athletic/6258611/2025/04/06/duke-cooper-flagg-houston-final-four-collapse/
+
 **Long-Running Storm Drenches Central U.S. but Starts to Shift East**\
 `The heaviest rains so far this weekend have hit Arkansas, Missouri and Kentucky. More rain is expected on Sunday, but the risk of flooding will be less severe.`\
 https://nytimes.com/2025/04/06/weather/storm-flood-rain-central-us.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/06/world/europe/ukraine-kyiv-attack-russia.html
 **The best Caitlin Clark cards to collect**\
 `An introduction for anyone looking to collect Caitlin Clark trading cards `\
 https://nytimes.com/athletic/6257759/2025/04/06/caitlin-clark-rookie-cards-autographs/
-
-**Ryan Reynolds makes a worthwhile visit as Wrexham take big step towards promotion**\
-`Wrexham's automatic promotion fate is in their hands after a 3-0 win over ten-man Burton Albion, with Wycombe also losing`\
-https://nytimes.com/athletic/6254760/2025/04/06/ryan-reynolds-wrexham-burton-wycombe/
 
