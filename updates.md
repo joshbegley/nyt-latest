@@ -1,3 +1,7 @@
+**'We like fun!': Matt Chapman, Jung Hoo Lee help Giants extend their win streak to 6 games**\
+`Chapman met the moment on his bobblehead night, and eight games into the season, the Giants are playing fun baseball.`\
+https://nytimes.com/athletic/6258082/2025/04/06/chapman-hoo-lee-giants-win-streak/
+
 **Key Canadiens make waves as Josh Anderson's absence causes ripple effect**\
 `Oliver Kapanen, Jake Evans, Nick Suzuki and the Canadiens collective picked up a win for a teammate who has meant so much.`\
 https://nytimes.com/athletic/6258372/2025/04/06/canadiens-flyers-nick-suzuki-nhl-playoffs/
