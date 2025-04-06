@@ -1,3 +1,7 @@
+**Barcelona dropped points against Real Betis. It may be a good thing**\
+`Hansi Flick's team missed the chance to go six points clear - but it may help them refocus in their pursuit of a treble this season`\
+https://nytimes.com/athletic/6257937/2025/04/06/barcelona-betis-la-liga-title-race/
+
 **'We like fun!': Matt Chapman, Jung Hoo Lee help Giants extend win streak to 6 games**\
 `Chapman met the moment on his bobblehead night, and eight games into the season, the Giants are playing fun baseball.`\
 https://nytimes.com/athletic/6258082/2025/04/06/chapman-hoo-lee-giants-win-streak/

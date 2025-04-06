@@ -1,3 +1,7 @@
+**Vietnam’s Leader Urges Trump to Delay 46 Percent Tariff**\
+`In recent years Vietnam has forged strategic and economic links with the United States, its former foe, making the steep tariff rate all the more of a shock.`\
+https://nytimes.com/2025/04/06/world/asia/vietnam-trump-tariff-delay.html
+
 **Barcelona dropped points against Real Betis. It may be a good thing**\
 `Hansi Flick's team missed the chance to go six points clear - but it may help them refocus in their pursuit of a treble this season`\
 https://nytimes.com/athletic/6257937/2025/04/06/barcelona-betis-la-liga-title-race/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/06/pageoneplus/spelling-bee-s.html
 **Cade Cunningham returns from injury, but Pistons fall to Grizzlies**\
 `"I feel great now," Cunningham said. "So, I feel good going into the playoffs. It was a good game for me to try to shake off the rust."`\
 https://nytimes.com/athletic/6258398/2025/04/06/pistons-cade-cunningham-returns/
-
-**Max Verstappen's perfect win and Kimi Antonelli makes history: Japanese Grand Prix briefing**\
-`Max Verstappen wins the Japanese Grand Prix with a superb drive from pole as Kimi Antonelli breaks two records`\
-https://nytimes.com/athletic/6258403/2025/04/06/japanese-grand-prix-f1-briefing-max-verstappen-red-bull/
 

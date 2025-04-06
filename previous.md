@@ -1,3 +1,7 @@
+**Barcelona dropped points against Real Betis. It may be a good thing**\
+`Hansi Flick's team missed the chance to go six points clear - but it may help them refocus in their pursuit of a treble this season`\
+https://nytimes.com/athletic/6257937/2025/04/06/barcelona-betis-la-liga-title-race/
+
 **Real Madrid's forward line needs to step up - or they will be trophyless this season**\
 `Carlo Ancelotti was 'angry' after Madrid's defeat to Valencia - his misfiring forwards need to ease the load on France star Mbappe `\
 https://nytimes.com/athletic/6257817/2025/04/06/real-madrid-forwards-carlo-ancelotti/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6258398/2025/04/06/pistons-cade-cunningham-returns/
 **Max Verstappen's perfect win and Kimi Antonelli makes history: Japanese Grand Prix briefing**\
 `Max Verstappen wins the Japanese Grand Prix with a superb drive from pole as Kimi Antonelli breaks two records`\
 https://nytimes.com/athletic/6258403/2025/04/06/japanese-grand-prix-f1-briefing-max-verstappen-red-bull/
-
-**'We like fun!': Matt Chapman, Jung Hoo Lee help Giants extend win streak to 6 games**\
-`Chapman met the moment on his bobblehead night, and eight games into the season, the Giants are playing fun baseball.`\
-https://nytimes.com/athletic/6258082/2025/04/06/chapman-hoo-lee-giants-win-streak/
 
