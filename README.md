@@ -1,3 +1,7 @@
+**A Coda on Syria’s Chemical Weapons**\
+`New reporting on how extensive Assad’s deception on chemical weapons seems to have been makes clear that critics were right to be skeptical of Obama’s deal.`\
+https://nytimes.com/live/2025/03/24/opinion/thepoint/syria-chemical-weapons-stockpile-obama
+
 **John Lithgow’s ‘Giant’ Is Among the Big Winners at the Olivier Awards**\
 `The play, about Roald Dahl’s antisemitism, took home three awards at Britain’s equivalent of the Tonys. So did a “Fiddler on the Roof” revival and a folk rock “Benjamin Button.”`\
 https://nytimes.com/2025/04/06/theater/olivier-awards-winners-giant-lithgow.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/06/books/edward-countryman-dead.html
 **Marcia Marcus, Painter Rediscovered in Her Last Decade, Dies at 97**\
 `A popular downtown artist in the 1960s, she worked in obscurity after art world trends left her behind. Now her startlingly fresh work is on view again.`\
 https://nytimes.com/2025/04/06/arts/marcia-marcus-dead.html
-
-**After a Blowout Week, Wall Street Decision Makers Brace for More Chaos**\
-`The financial titans who backed Trump are now dealing with the fallout from his tariffs. They spent the weekend surveying the damage of last week’s major sell-off.`\
-https://nytimes.com/2025/04/06/business/stock-market-plunge-investment-bank-impact.html
 
