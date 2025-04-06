@@ -1,3 +1,7 @@
+**Dodger Details: Blake Snell's injury, Tommy Edman's adjustment and what else we're seeing**\
+`Tyler Glasnow lasted just 60 pitches, less than half of which were strikes, as he struggled with the rainy conditions.`\
+https://nytimes.com/athletic/6259714/2025/04/06/dodgers-blake-snell-tommy-edman/
+
 **Inflated Sense of Self-Importance**\
 `Jeffrey Lease and Jeff Chen take their chances in a first-time collaboration for The New York Times.`\
 https://nytimes.com/2025/04/06/crosswords/daily-puzzle-2025-04-07.html
