@@ -1,3 +1,7 @@
+**'Man, he can hoop': Kevin Porter Jr. shines in Bucks come-from-behind win in Miami**\
+`Since joining the Bucks at the trade deadline, Porter has tried to find his way. But he gave them exactly what they needed on Saturday.`\
+https://nytimes.com/athletic/6258279/2025/04/06/kevin-porter-jr-bucks-heat/
+
 **‘S.N.L.’: Trumpeting Tariffs and Predicting a ‘Great’ Depression**\
 `Cheeseheads and cheesecakes join the punchlines and headlines, and an enthusiastic audience gets a mild scolding for slipping past the censors. Temporarily.`\
 https://nytimes.com/2025/04/06/arts/television/snl-trumpeting-tariffs-great-depression.html

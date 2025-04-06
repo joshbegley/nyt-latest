@@ -22,7 +22,7 @@ https://nytimes.com/2025/04/06/opinion/signal-houthis-strikes-iran.html
 `Pope Francis was wheeled through a crowd that included health care workers from around the world, who had been told he was watching their Jubilee Mass on television.`\
 https://nytimes.com/2025/04/06/world/europe/pope-francis-surprise-public-appearance.html
 
-**After Anthony Edwards bails Wolves out, Chris Finch challenges them to finish strong**\
+**After Anthony Edwards bails out Wolves, Chris Finch challenges them to finish strong**\
 `This was the second straight game that the Timberwolves coach has sounded unimpressed after a win.`\
 https://nytimes.com/athletic/6258401/2025/04/06/anthony-edwards-timberwolves-76ers-chris-finch/
 
