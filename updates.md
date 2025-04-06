@@ -1,3 +1,15 @@
+**Chelsea's accounts explained: Women's team sold for £200m, profit posted, UEFA spending limit breached**\
+`Chelsea's accounts make for very interesting reading - The Athletic breaks down the numbers and what it could mean going forward`\
+https://nytimes.com/athletic/6257167/2025/04/06/chelsea-accounts-womens-team-200m-uefa-breach/
+
+**Explained: Why a Spanish court overturned Dani Alves' prison sentence for sexual assault**\
+`A year after being given found guilty, the former Barcelona and Brazil player has been acquitted. Here's how the decision was made`\
+https://nytimes.com/athletic/6257015/2025/04/06/dani-alves-sexual-assault-acquittal-prison-explainer/
+
+**Connections: Sports Edition Coach: Hints for April 6, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6257773/2025/04/06/connections-sports-edition-hints-for-april-6-2025/
+
 **Houston stuns Duke with late surge to advance to national title game**\
 `The Cougars advance to face fellow top-seed Florida in Monday night's national title game. `\
 https://nytimes.com/athletic/6258105/2025/04/06/duke-basketball-cooper-flagg-houston-final-four/

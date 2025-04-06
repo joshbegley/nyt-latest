@@ -1,3 +1,11 @@
+**'I don’t remember my parents and son being there' - Kristoffer Olsson on rare brain injury and amnesia**\
+`After suffering a rare condition that left him with blood clots on his brain, the 29-year-old tells The Athletic about his road to recovery`\
+https://nytimes.com/athletic/6241571/2025/04/06/kristoffer-olsson-brain-injury-future/
+
+**Manchester United vs Manchester City - discussing derby day vibes, tactics and fears**\
+`Carl Anka and Sam Lee with the key talking points for Sunday's game at Old Trafford `\
+https://nytimes.com/athletic/6255471/2025/04/06/manchester-united-manchester-city-roundtable-2025/
+
 **Chelsea's accounts explained: Women's team sold for £200m, profit posted, UEFA spending limit breached**\
 `Chelsea's accounts make for very interesting reading - The Athletic breaks down the numbers and what it could mean going forward`\
 https://nytimes.com/athletic/6257167/2025/04/06/chelsea-accounts-womens-team-200m-uefa-breach/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6257773/2025/04/06/connections-sports-edition-hints
 **No corrections: April 6, 2025**\
 `No corrections appeared in print on Sunday, April 6, 2025.`\
 https://nytimes.com/2025/04/06/pageoneplus/no-corrections-april-6-2025.html
-
-**Men's NCAA Championship 2025: What to know about Florida, Houston**\
-`The men's NCAA Tournament started with 68 teams and plenty of March Madness dreams. Here's what should know about Monday's title game.`\
-https://nytimes.com/athletic/6257671/2025/04/05/mens-ncaa-championship-what-to-know/
-
-**Sabres thoughts: Noah Ostlund's debut, Tage Thompson scores 40th and more**\
-`Ostlund, Buffalo’s 2022 first-round pick who made his NHL debut Saturday in a 3-2 win over the Lightning, is “a coach’s dream.”`\
-https://nytimes.com/athletic/6258157/2025/04/05/sabres-noah-ostlund-tage-thompson/
 
