@@ -1,3 +1,11 @@
+**Raiders release CB Jack Jones: What move means for LV, potential suitors**\
+`Jones has shown flashes of potential, but has been undisciplined and inconsistent. The Raiders, meanwhile, are left with a thin DB room.`\
+https://nytimes.com/athletic/6259512/2025/04/06/raiders-release-jack-jones-analysis/
+
+**Wayne Gretzky cheers as Alex Ovechkin breaks his goals record: 'I felt like I scored'**\
+`The moment Alex Ovechkin erased Wayne Gretzky's name from the top of the NHL's career goals list, Gretzky celebrated.`\
+https://nytimes.com/athletic/6259513/2025/04/06/wayne-gretzky-record-goals-alex-ovechkin/
+
 **Alex Ovechkin quiz: How much do you know about 'The Great 8'?**\
 `Ovechkin has passed Wayne Gretzky to become the NHL's all-time goals leader. How well do you know Ovi's career? Test your knowledge here.`\
 https://nytimes.com/athletic/6251533/2025/04/06/alex-ovechkin-nhl-record-wayne-gretzky-quiz/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/06/business/stock-market-plunge-investment-bank-impa
 **Roberto Clemente's son 'shocked' as Pirates replace tribute with ad**\
 `The Pirates said the tribute was never meant to be permanent but apologized for not notifying the family about the change.`\
 https://nytimes.com/athletic/6259303/2025/04/06/pirates-robert-clemente-tribute-replaced-ad/
-
-**TJ Finley's lawyers allege online scam led to Tulane QB's arrest, suspension**\
-`Finley was arrested Wednesday in New Orleans on a charge of illegally possessing a stolen vehicle.`\
-https://nytimes.com/athletic/6258833/2025/04/06/tj-finley-arrest-suspension-tulane/
-
-**Is Alex Ovechkin's new NHL goals record unreachable? Explaining the historical context**\
-`How did the league change after Gretzky retired? Will anyone ever topple Ovechkin?`\
-https://nytimes.com/athletic/6216431/2025/04/06/gretzky-nhl-records-ovechkin/
 
