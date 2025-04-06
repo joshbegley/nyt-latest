@@ -1,40 +1,40 @@
-**Sudanese Refugees Flee to Chad Amid Deadly Airstrikes**\
-`By Alex Pena`\
-https://nytimes.com/2025/04/06/world/africa/sudan-strikes-refugees.html
+**For Republicans, Tariffs Pose a Risk Like No Other**\
+`Trump’s political strength is built on the economy. If it sinks, he could drag his party down with him.`\
+https://nytimes.com/2025/04/06/upshot/trump-tariffs-republicans-risk.html
 
-**Airstrikes in Darfur Missed Their Target. These Refugees Were Hit Instead.**\
-`Airstrikes carried out by the Sudanese military in Darfur have been sending refugees fleeing for safety and medical treatment, as they describe being victimized by bombs intended for the army’s opposition.`\
-https://nytimes.com/video/world/africa/100000010087416/sudanese-refugees-airstrikes.html
+**‘A Minecraft Movie’ Arrives as a Surprise Box Office Smash**\
+`Weekend ticket sales will total at least $140 million, analysts said, about 75 percent more than expected, ending a Hollywood dry spell.`\
+https://nytimes.com/2025/04/06/business/a-minecraft-movie-box-office.html
 
-**Vietnam’s Leader Urges Trump to Delay 46 Percent Tariff**\
-`In recent years Vietnam has forged strategic and economic links with the United States, its former foe, making the steep tariff rate all the more of a shock.`\
-https://nytimes.com/2025/04/06/world/asia/vietnam-trump-tariff-delay.html
+**President’s Third Term Talk Defies Constitution and Tests Democracy**\
+`The 22nd Amendment is clear: President Trump has to give up his office after his second term. But his refusal to accept that underscores how far he is willing to consider going to consolidate power.`\
+https://nytimes.com/2025/04/06/us/politics/trump-third-term-constitution.html
 
-**Barcelona dropped points against Real Betis. It may be a good thing**\
-`Hansi Flick's team missed the chance to go six points clear - but it may help them refocus in their pursuit of a treble this season`\
-https://nytimes.com/athletic/6257937/2025/04/06/barcelona-betis-la-liga-title-race/
+**Small Businesses Face a ‘Tornado’ of Challenges: Cuts, Freezes and Now Tariffs**\
+`President Trump vowed to aid entrepreneurs by reducing taxes and slicing red tape. But some owners say other policies have put them at a disadvantage.`\
+https://nytimes.com/2025/04/06/business/economy/trump-tariffs-small-business.html
 
-**Real Madrid's forward line needs to step up - or they will be trophyless this season**\
-`Carlo Ancelotti was 'angry' after Madrid's defeat to Valencia - his misfiring forwards need to ease the load on France star Mbappe `\
-https://nytimes.com/athletic/6257817/2025/04/06/real-madrid-forwards-carlo-ancelotti/
+**Trump’s Tariffs Will Wound Free Trade, but the Blow May Not Be Fatal**\
+`Free trade has been so beneficial to so many countries that the world may find a way to live without its biggest player.`\
+https://nytimes.com/2025/04/06/world/europe/trade-trump-tariffs-brexit.html
 
-**Japanese Grand Prix: Submit your questions for our F1 mailbag**\
-`What questions do you have for our writers after the Japanese Grand Prix?`\
-https://nytimes.com/athletic/6258468/2025/04/06/f1-mailbag-japanese-grand-prix/
+**At Milan Design Week, Collections Probe Childhood Joys and Dark Futures**\
+`The annual festival of furnishings and household objects showcases pieces inspired by ancient Anatolia, cauliflower, electronic dance music and more.`\
+https://nytimes.com/2025/04/06/arts/design/milan-design-week-collections.html
 
-**The Stories That Aren’t Archived**\
-`Before the digital age, many New York Times articles were updated or scrapped between editions, and never saved on microfilm.`\
-https://nytimes.com/2025/04/06/insider/the-stories-that-arent-archived.html
+**‘White Lotus’ Audience Is Big, and Keeps Getting Bigger**\
+`The show, which ends its third season on Sunday, has built one of the largest audiences of any HBO series.`\
+https://nytimes.com/2025/04/06/business/media/white-lotus-ratings.html
 
-**‘As the Doors Closed, I Realized I Had Left My Laptop on the Bench’**\
-`A sinking feeling on the subway, racing after a teen heartthrob and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2025/04/06/nyregion/metropolitan-diary.html
+**Don’t Roll Your Eyes at Due Process**\
+`It doesn’t just protect a person’s liberty and dignity. It’s a humble acknowledgment of our own limitations.`\
+https://nytimes.com/2025/04/06/opinion/trump-deportations-due-process.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/04/06/crosswords/spelling-bee-forum.html
+**Testing New Twists on Unexpected Materials at Milan Design Week**\
+`Whether for sustainability or just for show, designers are playing with unusual materials in unconventional ways.`\
+https://nytimes.com/2025/04/06/arts/design/milan-design-week-furniture-materials.html
 
-**This Agency Fights Corruption. New York City Leaders Have Weakened It.**\
-`The Department of Investigation, tasked with stamping out corruption in city government, has lost more than a quarter of its employees since 2019.`\
-https://nytimes.com/2025/04/06/nyregion/nyc-corruption-adams-doi.html
+**Republicans Want to Make the Trump Tax Cuts Last Forever**\
+`Senate Republicans are hoping to ice Democrats out from deciding the fate of President Trump’s 2017 tax cuts, a move that Democrats could eventually use against them.`\
+https://nytimes.com/2025/04/06/us/politics/republicans-tax-cuts.html
 

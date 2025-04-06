@@ -1,3 +1,11 @@
+**Sudanese Refugees Flee to Chad Amid Deadly Airstrikes**\
+`By Alex Pena`\
+https://nytimes.com/2025/04/06/world/africa/sudan-strikes-refugees.html
+
+**Airstrikes in Darfur Missed Their Target. These Refugees Were Hit Instead.**\
+`Airstrikes carried out by the Sudanese military in Darfur have been sending refugees fleeing for safety and medical treatment, as they describe being victimized by bombs intended for the army’s opposition.`\
+https://nytimes.com/video/world/africa/100000010087416/sudanese-refugees-airstrikes.html
+
 **Vietnam’s Leader Urges Trump to Delay 46 Percent Tariff**\
 `In recent years Vietnam has forged strategic and economic links with the United States, its former foe, making the steep tariff rate all the more of a shock.`\
 https://nytimes.com/2025/04/06/world/asia/vietnam-trump-tariff-delay.html
