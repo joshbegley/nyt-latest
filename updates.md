@@ -1,3 +1,7 @@
+**Chevron Must Pay $745 Million for Coastal Damages, Louisiana Jury Rules**\
+`The verdict will likely influence similar lawsuits against other oil companies over coastal damage in the state.`\
+https://nytimes.com/2025/04/05/us/chevron-trial-louisiana-damages.html
+
 **'He knows that he can do it here': Roki Sasaki turns in strong bounce-back start for Dodgers**\
 `"There's no need to panic over one or two bad outings," Kiké Hernández said. The Dodgers beat the Phillies 3-1.`\
 https://nytimes.com/athletic/6257928/2025/04/05/dodgers-win-phillies-roki-sasaki-bounce-back-start/

@@ -1,3 +1,7 @@
+**Men's March Madness projections 2025: Who will win in the Final Four?**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/04/05/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **Chevron Must Pay $745 Million for Coastal Damages, Louisiana Jury Rules**\
 `The verdict will likely influence similar lawsuits against other oil companies over coastal damage in the state.`\
 https://nytimes.com/2025/04/05/us/chevron-trial-louisiana-damages.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6257852/2025/04/05/trinity-rodman-goal-uswnt-brazil
 **How Canucks crushed Ducks with franchise-record offensive outburst: 3 takeaways**\
 `Vancouver set a record for the fastest five goals scored in franchise history in a 6-2 win over Anaheim. `\
 https://nytimes.com/athletic/6257750/2025/04/05/canucks-ducks-franchise-record-fastest-goals/
-
-**Matthew Boyd's strong start sets stage for Cubs to claim fifth-straight victory**\
-`In an April schedule packed with the NL’s best, the Cubs are showing that they may be up for the challenge.`\
-https://nytimes.com/athletic/6257785/2025/04/05/chicago-cubs-matthew-boyd-start-victory/
 
