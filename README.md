@@ -1,3 +1,11 @@
+**Who are six-goal Victor Musa, JJ Gabriel and the other stars of Man Utd U18's 13-1 win over Leeds?**\
+`Saturday's win featured not only six goals for Musa, but also a debut for a 14-year-old deemed among United's finest academy prospects`\
+https://nytimes.com/athletic/6257362/2025/04/06/manchester-united-leeds-musa-gabriel-ibragimov/
+
+**The Caravaggio of kit designers who made Italian football look beautiful**\
+`Nicola Raccuglia was friends with Maradona, a business partner of Cruyff and provided kits for Schumacher. His company NR is back in vogue`\
+https://nytimes.com/athletic/6249814/2025/04/06/nr-italy-kit-design-raccuglia-maradona/
+
 **'I don’t remember my parents and son being there' - Kristoffer Olsson on rare brain injury and amnesia**\
 `After suffering a rare condition that left him with blood clots on his brain, the 29-year-old tells The Athletic about his road to recovery`\
 https://nytimes.com/athletic/6241571/2025/04/06/kristoffer-olsson-brain-injury-future/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/06/world/middleeast/syria-chemical-weapons-assad.htm
 **For Many Russian Exiles, Even a Peace Deal Might Not Mean a Ticket Home**\
 `Hundreds of thousands fled Russia after the Ukraine invasion, fearing the draft and widening repression. Talks toward a possible truce have done little to allay their fears.`\
 https://nytimes.com/2025/04/06/world/europe/russian-exiles-return-putin-war-ceasefire.html
-
-**Connections: Sports Edition Coach: Hints for April 6, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6257773/2025/04/06/connections-sports-edition-hints-for-april-6-2025/
-
-**No corrections: April 6, 2025**\
-`No corrections appeared in print on Sunday, April 6, 2025.`\
-https://nytimes.com/2025/04/06/pageoneplus/no-corrections-april-6-2025.html
 
