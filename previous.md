@@ -1,5 +1,9 @@
+**Alcaraz as a No 10, Chermiti chances, O'Brien in the centre - Moyes can now experiment**\
+`Moyes knows what Doucoure and co can bring. Before the summer, he should take the chance to find out what Alcaraz and others are made of`\
+https://nytimes.com/athletic/6257286/2025/04/06/everton-david-moyes-squad/
+
 **It wasn't perfect, but Reds end losing skid behind TJ Friedl's 4-hit game**\
-`One day after being no-hit through 6 2/3 innings, the Reds managed 14 hits, and ended a 4-game skid which included three 1-0 losses.`\
+`One day after being no-hit through 6 2/3 innings, the Reds managed 14 hits and ended a four-game skid that included three 1-0 losses.`\
 https://nytimes.com/athletic/6258169/2025/04/06/reds-snap-losing-skid-tj-friedl/
 
 **Mikel Arteta took a rare opportunity to rotate his Arsenal side - so what did he learn?**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6257015/2025/04/06/dani-alves-sexual-assault-acquit
 **Houston stuns Duke with late surge to advance to national title game**\
 `The Cougars advance to their first title game appearance since 1984 and will face fellow top-seed Florida on Monday night in San Antonio.`\
 https://nytimes.com/athletic/6258105/2025/04/06/duke-basketball-cooper-flagg-houston-final-four/
-
-**‘0 to 1939 in 3 seconds’: Why Anti-Elon Musk Satire Is Flourishing in Britain**\
-`Humor and art have been used to mock the powerful in Britain for centuries. Now Elon Musk is on the receiving end.`\
-https://nytimes.com/2025/04/06/world/europe/anti-elon-musk-tesla-ads.html
 

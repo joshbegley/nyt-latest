@@ -1,3 +1,11 @@
+**Alcaraz as a No 10, Chermiti chances, O'Brien in the centre - Moyes can now experiment**\
+`Moyes knows what Doucoure and co can bring. Before the summer, he should take the chance to find out what Alcaraz and others are made of`\
+https://nytimes.com/athletic/6257286/2025/04/06/everton-david-moyes-squad/
+
+**It wasn't perfect, but Reds end losing skid behind TJ Friedl's 4-hit game**\
+`One day after being no-hit through 6 2/3 innings, the Reds managed 14 hits and ended a four-game skid that included three 1-0 losses.`\
+https://nytimes.com/athletic/6258169/2025/04/06/reds-snap-losing-skid-tj-friedl/
+
 **It wasn't perfect, but Reds end losing skid behind TJ Friedl's 4-hit game**\
 `One day after being no-hit through 6 2/3 innings, the Reds managed 14 hits, and ended a 4-game skid which included three 1-0 losses.`\
 https://nytimes.com/athletic/6258169/2025/04/06/reds-snap-losing-skid-tj-friedl/
