@@ -1,3 +1,7 @@
+**Saying Goodbye to the Prototype for Celebrity Chefs**\
+`An incredible concentration of culinary star power gathered in Manhattan to celebrate the life and career of André Soltner, the chef behind Lutèce.`\
+https://nytimes.com/2025/04/06/style/andre-soltner-lutece-memorial.html
+
 **Edward Countryman, Student of the American Revolution, Dies at 80**\
 `He wrote influential books exploring the dramatic changes wrought by independence, bringing in overlooked perspectives — what he called “a collision of histories.”`\
 https://nytimes.com/2025/04/06/books/edward-countryman-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/06/business/liquid-eggs-recall-bob-evans.html
 **Alex Ovechkin passes Wayne Gretzky as NHL all-time goals leader with No. 895**\
 `With his 895th career goal, The Great 8 has passed The Great One to become the league's all-time scoring leader.`\
 https://nytimes.com/athletic/6258313/2025/04/06/alex-ovechkin-nhl-goals-record-wayne-gretzky/
-
-**Dodgers place Blake Snell on IL due to shoulder inflammation**\
-`It was not immediately clear how much time pitcher will miss. He signed with Los Angeles for $182 million over the offseason.`\
-https://nytimes.com/athletic/6259215/2025/04/06/dodgers-blake-snell-injured-list/
 
