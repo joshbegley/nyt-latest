@@ -1,3 +1,15 @@
+**Arsenal's Russo withdraws from England squad with injury**\
+`The 26-year-old forward took a knock to her ankle during Friday's 5-0 win over Belgium.`\
+https://nytimes.com/athletic/6258802/2025/04/06/alessia-russo-injury-arsenal-england/
+
+**Lowetide: How much have injuries impacted Oilers prospect Beau Akey?**\
+`The injuries have taken all of the buzz out of Akey's projection as a top prospect for the Oilers.`\
+https://nytimes.com/athletic/6257325/2025/04/06/oilers-beau-akey-injuries/
+
+**Mavericks must regroup after bad back-to-back losses; a rematch with Luka Dončić awaits**\
+`The Mavericks have lost three of their last four, all with a Play-In Tournament spot on the line. Luka and the Lakers are in town Wednesday.`\
+https://nytimes.com/athletic/6258439/2025/04/06/mavericks-nba-loss-clippers-luka-doncic/
+
 **After Anthony Edwards bails out Wolves, Chris Finch challenges them to finish strong**\
 `This was the second straight game that the Timberwolves coach has sounded unimpressed after a win.`\
 https://nytimes.com/athletic/6258401/2025/04/06/anthony-edwards-timberwolves-76ers-chris-finch/
