@@ -1,3 +1,7 @@
+**Key Canadiens make waves as Josh Anderson's absence causes ripple effect**\
+`Oliver Kapanen, Jake Evans, Nick Suzuki and the Canadiens collective picked up a win for a teammate who has meant so much.`\
+https://nytimes.com/athletic/6258372/2025/04/06/canadiens-flyers-nick-suzuki-nhl-playoffs/
+
 **'It means we're good': Blues' franchise-record 12-game winning streak no fluke**\
 `Robert Thomas and rookie Zack Bolduc have been solid maintaining the streak while the Blues were without Colton Parayko and Dylan Holloway.`\
 https://nytimes.com/athletic/6257981/2025/04/06/blues-franchise-record-12-game-win-streak/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6257286/2025/04/06/everton-david-moyes-squad/
 **It wasn't perfect, but Reds end losing skid behind TJ Friedl's 4-hit game**\
 `One day after being no-hit through 6 2/3 innings, the Reds managed 14 hits and ended a four-game skid that included three 1-0 losses.`\
 https://nytimes.com/athletic/6258169/2025/04/06/reds-snap-losing-skid-tj-friedl/
-
-**Mikel Arteta took a rare opportunity to rotate his Arsenal side - so what did he learn?**\
-`The idea of resting players or conceding defeat in a competition does not sit well with Arteta, but the Champions League is now the priority`\
-https://nytimes.com/athletic/6257162/2025/04/06/arsenal-squad-arteta/
 

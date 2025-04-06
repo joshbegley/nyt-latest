@@ -1,3 +1,7 @@
+**Key Canadiens make waves as Josh Anderson's absence causes ripple effect**\
+`Oliver Kapanen, Jake Evans, Nick Suzuki and the Canadiens collective picked up a win for a teammate who has meant so much.`\
+https://nytimes.com/athletic/6258372/2025/04/06/canadiens-flyers-nick-suzuki-nhl-playoffs/
+
 **'It means we're good': Blues' franchise-record 12-game winning streak no fluke**\
 `Robert Thomas and rookie Zack Bolduc have been solid maintaining the streak while the Blues were without Colton Parayko and Dylan Holloway.`\
 https://nytimes.com/athletic/6257981/2025/04/06/blues-franchise-record-12-game-win-streak/
