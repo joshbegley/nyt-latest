@@ -1,3 +1,7 @@
+**Dodger Details: Blake Snell's injury, Tommy Edman's adjustment and what else we're seeing**\
+`Tyler Glasnow lasted just 60 pitches, less than half of which were strikes, as he struggled with the rainy conditions.`\
+https://nytimes.com/athletic/6259714/2025/04/06/dodgers-blake-snell-tommy-edman/
+
 **Inflated Sense of Self-Importance**\
 `Jeffrey Lease and Jeff Chen take their chances in a first-time collaboration for The New York Times.`\
 https://nytimes.com/2025/04/06/crosswords/daily-puzzle-2025-04-07.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/06/theater/denis-arndt-dead.html
 **Man Is Shot by N.Y.P.D. After Attacking 4 Girls With Cleaver**\
 `The man may be related to the girls, who all survived, the police said. An 11-year-old called 911, and officers rushed to the house in Brooklyn where the children lived.`\
 https://nytimes.com/2025/04/06/nyregion/stabbing-cleaver-police-shooting-brooklyn.html
-
-**A Coda on Syria’s Chemical Weapons**\
-`New reporting on how extensive Assad’s deception on chemical weapons seems to have been makes clear that critics were right to be skeptical of Obama’s deal.`\
-https://nytimes.com/live/2025/03/24/opinion/thepoint/syria-chemical-weapons-stockpile-obama
 
