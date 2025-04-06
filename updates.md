@@ -1,3 +1,7 @@
+**Japanese Grand Prix: Submit your questions for our F1 mailbag**\
+`What questions do you have for our writers after the Japanese Grand Prix?`\
+https://nytimes.com/athletic/6258468/2025/04/06/f1-mailbag-japanese-grand-prix/
+
 **The Stories That Aren’t Archived**\
 `Before the digital age, many New York Times articles were updated or scrapped between editions, and never saved on microfilm.`\
 https://nytimes.com/2025/04/06/insider/the-stories-that-arent-archived.html
