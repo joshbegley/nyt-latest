@@ -1,3 +1,7 @@
+**Prospect Fraser Minten, a solid Bruins debut and a head start on 2025-26**\
+`The 2022 second-round pick's smart debut in Boston's 5-1 win over Carolina is an early glimpse of what's to come next season.`\
+https://nytimes.com/athletic/6258103/2025/04/05/bruins-prospect-fraser-minten-hurricanes/
+
 **Maple Leafs report cards: A familiar script but a different ending against Blue Jackets**\
 `Toronto started slow and let Columbus dictate the pace of play but put the pedal down in the third for a 5-0 shutout win.`\
 https://nytimes.com/athletic/6257837/2025/04/05/maple-leafs-blue-jackets-grades-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6257928/2025/04/05/dodgers-win-phillies-roki-sasaki
 **Jose Altuve's left-field experience hinges on better exchanges**\
 `Altuve is an infielder in his fourth month of full-time outfield play. "I'm feeling slowly better out there," he said after Saturday's loss.`\
 https://nytimes.com/athletic/6257873/2025/04/05/jose-altuve-left-field-twins/
-
-**Protesters Rally Against Trump and Musk Across the U.S.**\
-`People attending the marches chanted and held signs signaling their opposition to President Trump and his administration’s cuts to the federal government.`\
-https://nytimes.com/video/us/politics/100000010094238/anti-trump-musk-protests.html
 

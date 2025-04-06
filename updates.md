@@ -1,3 +1,7 @@
+**Prospect Fraser Minten, a solid Bruins debut and a head start on 2025-26**\
+`The 2022 second-round pick's smart debut in Boston's 5-1 win over Carolina is an early glimpse of what's to come next season.`\
+https://nytimes.com/athletic/6258103/2025/04/05/bruins-prospect-fraser-minten-hurricanes/
+
 **Maple Leafs report cards: A familiar script but a different ending against Blue Jackets**\
 `Toronto started slow and let Columbus dictate the pace of play but put the pedal down in the third for a 5-0 shutout win.`\
 https://nytimes.com/athletic/6257837/2025/04/05/maple-leafs-blue-jackets-grades-analysis/
