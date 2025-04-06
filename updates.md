@@ -1,3 +1,7 @@
+**The immigration status of a Duke basketball star from South Sudan is unclear.**\
+`By Bernard Mokam`\
+https://nytimes.com/live/2025/04/06/us/trump-news-updates/the-immigration-status-of-a-duke-basketball-star-from-south-sudan-is-unclear
+
 **Brian Harman wins Texas Open, his first win since 2023 Open Championship**\
 `Harman earned his fourth career PGA Tour victory in windy conditions.`\
 https://nytimes.com/athletic/6259478/2025/04/06/brian-harman-wins-texas-open/
