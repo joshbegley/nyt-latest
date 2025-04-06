@@ -1,3 +1,7 @@
+**Is Alex Ovechkin's new NHL goals record unreachable? Explaining the historical context**\
+`How did the league change after Gretzky retired? Will anyone ever topple Ovechkin?`\
+https://nytimes.com/athletic/6216431/2025/04/06/gretzky-nhl-records-ovechkin/
+
 **John Peck, Underground Cartoonist Known as The Mad Peck, Dies at 82**\
 `Among many other accomplishments, he illustrated a scholarly work on the history of comic books and wrote record reviews in four-panel comic-strip form.`\
 https://nytimes.com/2025/04/06/arts/john-peck-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6258343/2025/04/06/a-stunning-last-minute-comeback-
 **Israel Turns Away 2 British Lawmakers**\
 `The lawmakers, Abtisam Mohamed and Yuan Yang, said they were “astounded” by the decision to refuse them entry.`\
 https://nytimes.com/2025/04/06/world/europe/israel-uk-parliament-entry-abtisam-mohamed-yuan-yang.html
-
-**They Pushed for Cuomo to Resign. Now They’re Clearing His Comeback Path.**\
-`Many political, business and union leaders who castigated former Gov. Andrew Cuomo and pressed him to resign have done an about-face and support his run for mayor.`\
-https://nytimes.com/2025/04/06/nyregion/cuomo-democrats-mayor-comeback.html
 
