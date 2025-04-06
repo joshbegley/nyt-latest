@@ -1,3 +1,7 @@
+**A Coda on Syria’s Chemical Weapons**\
+`New reporting on how extensive Assad’s deception on chemical weapons seems to have been makes clear that critics were right to be skeptical of Obama’s deal.`\
+https://nytimes.com/live/2025/03/24/opinion/thepoint/syria-chemical-weapons-stockpile-obama
+
 **John Lithgow’s ‘Giant’ Is Among the Big Winners at the Olivier Awards**\
 `The play, about Roald Dahl’s antisemitism, took home three awards at Britain’s equivalent of the Tonys. So did a “Fiddler on the Roof” revival and a folk rock “Benjamin Button.”`\
 https://nytimes.com/2025/04/06/theater/olivier-awards-winners-giant-lithgow.html
