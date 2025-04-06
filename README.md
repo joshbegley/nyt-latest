@@ -1,3 +1,11 @@
+**Four Braves takeaways: Drake Baldwin stays, a Ronald Acuña update and more**\
+`The Braves dropped Chadwick Tromp and opted to keep Baldwin on the big-league team.`\
+https://nytimes.com/athletic/6259957/2025/04/06/braves-drake-baldwin-ronald-acuna/
+
+**Amadou Bagayoko, Half of Malian Duo Who Went Global, Dies at 70**\
+`As Amadou & Mariam, he and his wife were improbable pop stars on two counts. Their style was venturesome and eclectic, and they were blind virtuosos.`\
+https://nytimes.com/2025/04/06/obituaries/amadou-bagayoko-dead.html
+
 **The immigration status of a Duke basketball star from South Sudan is unclear.**\
 `By Bernard Mokam`\
 https://nytimes.com/live/2025/04/06/us/trump-news-updates/the-immigration-status-of-a-duke-basketball-star-from-south-sudan-is-unclear
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6259637/2025/04/06/sorokin-ovechkin-goal-nhl-record
 **Guardiola: Fans chanting about Foden’s family ‘should be ashamed’**\
 `Foden played 58 minutes in the goalless draw in the Manchester derby, but was subjected to insulting chants about his mother.`\
 https://nytimes.com/athletic/6259695/2025/04/06/phil-foden-chants-manchester-derby/
-
-**Women's March Madness projections 2025: Does UConn have the advantage?**\
-`What's your team's chance of winning? Find out here. `\
-https://nytimes.com/athletic/6198041/2025/04/06/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**UConn defeats South Carolina for record 12th national championship**\
-`As South Carolina focuses on stopping Paige Bueckers, Azzi Fudd and Sarah Strong lead way in UConn's rout.`\
-https://nytimes.com/athletic/6259647/2025/04/06/uconn-south-carolina-ncaa-womens-championship/
 
