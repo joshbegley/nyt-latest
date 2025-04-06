@@ -1,3 +1,5 @@
+
+
 **Max Verstappen's Suzuka brilliance proves he'll be hard to beat to the title**\
 `Red Bull team principal Christian Horner called it one of Verstappen’s best weekends in F1.`\
 https://nytimes.com/athletic/6258602/2025/04/06/max-verstappen-suzuka-win-japanese-grand-prix/
