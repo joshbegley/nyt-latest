@@ -1,3 +1,7 @@
+**Sabres thoughts: Noah Ostlund's debut, Tage Thompson scores 40th and more**\
+`Ostlund, Buffalo’s 2022 first-round pick who made his NHL debut Saturday in a 3-2 win over the Lightning, is “a coach’s dream.”`\
+https://nytimes.com/athletic/6258157/2025/04/05/sabres-noah-ostlund-tage-thompson/
+
 **Playoff hopes fading fast for Blue Jackets after ugly loss to Maple Leafs**\
 `After playing well above expectations for most of the season, the Blue Jackets have looked as if the stage is suddenly too big for them.`\
 https://nytimes.com/athletic/6258073/2025/04/05/blue-jackets-nhl-playoff-hopes-maple-leafs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6257959/2025/04/05/oilers-kings-nhl-playoffs-home-i
 **Men's March Madness projections 2025: Who will win in the Final Four?**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/04/05/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**Chevron Must Pay $745 Million for Coastal Damages, Louisiana Jury Rules**\
-`The verdict will likely influence similar lawsuits against other oil companies over coastal damage in the state.`\
-https://nytimes.com/2025/04/05/us/chevron-trial-louisiana-damages.html
 
