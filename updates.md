@@ -1,3 +1,7 @@
+**The Future of Baseball**\
+`An interview with the M.L.B. commissioner.`\
+https://nytimes.com/2025/04/06/briefing/baseball-mlb-rob-manfred.html
+
 **Russia Strikes Kyiv as Ukraine Reels From Deadly Attack on Zelensky’s Hometown**\
 `While Russian missile and drone attacks have been unrelenting over more than three years of war, they have intensified in recent weeks amid U.S.-led peace talks.`\
 https://nytimes.com/2025/04/06/world/europe/ukraine-kyiv-attack-russia.html
