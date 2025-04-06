@@ -1,3 +1,7 @@
+**Saying Goodbye to the Prototype for Celebrity Chefs**\
+`An incredible concentration of culinary star power gathered in Manhattan to celebrate the life and career of André Soltner, the chef behind Lutèce.`\
+https://nytimes.com/2025/04/06/style/andre-soltner-lutece-memorial.html
+
 **Edward Countryman, Student of the American Revolution, Dies at 80**\
 `He wrote influential books exploring the dramatic changes wrought by independence, bringing in overlooked perspectives — what he called “a collision of histories.”`\
 https://nytimes.com/2025/04/06/books/edward-countryman-dead.html
