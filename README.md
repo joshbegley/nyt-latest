@@ -1,5 +1,5 @@
 **Guardiola: Fans chanting about Foden’s family ‘should be ashamed’**\
-`Foden played 58 minutes in the goalless draw in the Manchester derby, but was subjected to insulting chants about his family.`\
+`Foden played 58 minutes in the goalless draw in the Manchester derby, but was subjected to insulting chants about his mother.`\
 https://nytimes.com/athletic/6259695/2025/04/06/phil-foden-chants-manchester-derby/
 
 **Women's March Madness projections 2025: Does UConn have the advantage?**\
