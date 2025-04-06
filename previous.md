@@ -1,3 +1,11 @@
+**Playoff hopes fading fast for Blue Jackets after ugly loss to Maple Leafs**\
+`After playing well above expectations for most of the season, the Blue Jackets have looked as if the stage is suddenly too big for them.`\
+https://nytimes.com/athletic/6258073/2025/04/05/blue-jackets-nhl-playoff-hopes-maple-leafs/
+
+**How Florida shut down Johni Broome in second half to end his Auburn career**\
+`Broome had 15 points on Saturday against Florida in the Final Four but was shut down by the Gators after halftime.`\
+https://nytimes.com/athletic/6258124/2025/04/05/johni-broome-auburn-basketball-final-four/
+
 **Prospect Fraser Minten, a solid Bruins debut and a head start on 2025-26**\
 `The 2022 second-round pick's smart debut in Boston's 5-1 win over Carolina is an early glimpse of what's to come next season.`\
 https://nytimes.com/athletic/6258103/2025/04/05/bruins-prospect-fraser-minten-hurricanes/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6198047/2025/04/05/mens-march-madness-projections-2
 **Chevron Must Pay $745 Million for Coastal Damages, Louisiana Jury Rules**\
 `The verdict will likely influence similar lawsuits against other oil companies over coastal damage in the state.`\
 https://nytimes.com/2025/04/05/us/chevron-trial-louisiana-damages.html
-
-**'He knows that he can do it here': Roki Sasaki turns in strong bounce-back start for Dodgers**\
-`"There's no need to panic over one or two bad outings," Kiké Hernández said. The Dodgers beat the Phillies 3-1.`\
-https://nytimes.com/athletic/6257928/2025/04/05/dodgers-win-phillies-roki-sasaki-bounce-back-start/
-
-**Jose Altuve's left-field experience hinges on better exchanges**\
-`Altuve is an infielder in his fourth month of full-time outfield play. "I'm feeling slowly better out there," he said after Saturday's loss.`\
-https://nytimes.com/athletic/6257873/2025/04/05/jose-altuve-left-field-twins/
 

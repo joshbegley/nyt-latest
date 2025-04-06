@@ -1,3 +1,11 @@
+**Playoff hopes fading fast for Blue Jackets after ugly loss to Maple Leafs**\
+`After playing well above expectations for most of the season, the Blue Jackets have looked as if the stage is suddenly too big for them.`\
+https://nytimes.com/athletic/6258073/2025/04/05/blue-jackets-nhl-playoff-hopes-maple-leafs/
+
+**How Florida shut down Johni Broome in second half to end his Auburn career**\
+`Broome had 15 points on Saturday against Florida in the Final Four but was shut down by the Gators after halftime.`\
+https://nytimes.com/athletic/6258124/2025/04/05/johni-broome-auburn-basketball-final-four/
+
 **Prospect Fraser Minten, a solid Bruins debut and a head start on 2025-26**\
 `The 2022 second-round pick's smart debut in Boston's 5-1 win over Carolina is an early glimpse of what's to come next season.`\
 https://nytimes.com/athletic/6258103/2025/04/05/bruins-prospect-fraser-minten-hurricanes/
