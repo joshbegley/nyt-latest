@@ -1,3 +1,11 @@
+**Edward Countryman, Student of the American Revolution, Dies at 80**\
+`He wrote influential books exploring the dramatic changes wrought by independence, bringing in overlooked perspectives — what he called “a collision of histories.”`\
+https://nytimes.com/2025/04/06/books/edward-countryman-dead.html
+
+**Marcia Marcus, Painter Rediscovered in Her Last Decade, Dies at 97**\
+`A popular downtown artist in the 1960s, she worked in obscurity after art world trends left her behind. Now her startlingly fresh work is on view again.`\
+https://nytimes.com/2025/04/06/arts/marcia-marcus-dead.html
+
 **After a Blowout Week, Wall Street Decision Makers Brace for More Chaos**\
 `The financial titans who backed Trump are now dealing with the fallout from his tariffs. They spent the weekend surveying the damage of last week’s major sell-off.`\
 https://nytimes.com/2025/04/06/business/stock-market-plunge-investment-bank-impact.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6258313/2025/04/06/alex-ovechkin-nhl-goals-record-w
 **Dodgers place Blake Snell on IL due to shoulder inflammation**\
 `It was not immediately clear how much time pitcher will miss. He signed with Los Angeles for $182 million over the offseason.`\
 https://nytimes.com/athletic/6259215/2025/04/06/dodgers-blake-snell-injured-list/
-
-**The Briefing: Man United 0 Man City 0 - A rare Amorim clean sheet and why De Bruyne's departure makes sense**\
-`Our writers analyse the talking points from a goalless Manchester derby at Old Trafford, as United's defence picked up a rare clean sheet`\
-https://nytimes.com/athletic/6255636/2025/04/06/man-united-city-result-analysis-de-bruyne-clean-sheet/
-
-**Mets prospect Matt Allan makes first appearance in 6 years**\
-`Allan delivered a scoreless outing in a Class-A game as he comes back from two Tommy John surgeries.`\
-https://nytimes.com/athletic/6259186/2025/04/06/mets-prospect-matt-allan-comeback/
 

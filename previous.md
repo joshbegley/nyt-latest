@@ -1,3 +1,15 @@
+**After a Blowout Week, Wall Street Decision Makers Brace for More Chaos**\
+`The financial titans who backed Trump are now dealing with the fallout from his tariffs. They spent the weekend surveying the damage of last week’s major sell-off.`\
+https://nytimes.com/2025/04/06/business/stock-market-plunge-investment-bank-impact.html
+
+**Roberto Clemente's son 'shocked' as Pirates replace tribute with ad**\
+`The Pirates said the tribute was never meant to be permanent but apologized for not notifying the family about the change.`\
+https://nytimes.com/athletic/6259303/2025/04/06/pirates-robert-clemente-tribute-replaced-ad/
+
+**TJ Finley's lawyers allege online scam led to Tulane QB's arrest, suspension**\
+`Finley was arrested Wednesday in New Orleans on a charge of illegally possessing a stolen vehicle.`\
+https://nytimes.com/athletic/6258833/2025/04/06/tj-finley-arrest-suspension-tulane/
+
 **Is Alex Ovechkin's new NHL goals record unreachable? Explaining the historical context**\
 `How did the league change after Gretzky retired? Will anyone ever topple Ovechkin?`\
 https://nytimes.com/athletic/6216431/2025/04/06/gretzky-nhl-records-ovechkin/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6255636/2025/04/06/man-united-city-result-analysis-
 **Mets prospect Matt Allan makes first appearance in 6 years**\
 `Allan delivered a scoreless outing in a Class-A game as he comes back from two Tommy John surgeries.`\
 https://nytimes.com/athletic/6259186/2025/04/06/mets-prospect-matt-allan-comeback/
-
-**What We Know About the Case of Gaza Aid Workers Killed by Israeli Gunfire**\
-`The Israeli military, confronted with video evidence contradicting its initial account, now says it was “mistaken.”`\
-https://nytimes.com/2025/04/06/world/middleeast/gaza-aid-workers-killed-israel.html
-
-**A stunning Final Four finish and Ovi's epic chase**\
-`Welcome to The Pulse, The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/6258343/2025/04/06/a-stunning-last-minute-comeback-at-the-final-four-plus-ovis-epic-chase/
-
-**Israel Turns Away 2 British Lawmakers**\
-`The lawmakers, Abtisam Mohamed and Yuan Yang, said they were “astounded” by the decision to refuse them entry.`\
-https://nytimes.com/2025/04/06/world/europe/israel-uk-parliament-entry-abtisam-mohamed-yuan-yang.html
 
