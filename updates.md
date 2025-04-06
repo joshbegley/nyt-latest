@@ -1,3 +1,11 @@
+**Edward Countryman, Student of the American Revolution, Dies at 80**\
+`He wrote influential books exploring the dramatic changes wrought by independence, bringing in overlooked perspectives — what he called “a collision of histories.”`\
+https://nytimes.com/2025/04/06/books/edward-countryman-dead.html
+
+**Marcia Marcus, Painter Rediscovered in Her Last Decade, Dies at 97**\
+`A popular downtown artist in the 1960s, she worked in obscurity after art world trends left her behind. Now her startlingly fresh work is on view again.`\
+https://nytimes.com/2025/04/06/arts/marcia-marcus-dead.html
+
 **After a Blowout Week, Wall Street Decision Makers Brace for More Chaos**\
 `The financial titans who backed Trump are now dealing with the fallout from his tariffs. They spent the weekend surveying the damage of last week’s major sell-off.`\
 https://nytimes.com/2025/04/06/business/stock-market-plunge-investment-bank-impact.html
