@@ -1,3 +1,11 @@
+**Dawn Staley sees a familiar guard in South Carolina's MiLaysia Fulwiley: Herself**\
+`Fulwiley could be the ultimate X factor in the NCAA Tournament championship game against UConn.`\
+https://nytimes.com/athletic/6257529/2025/04/06/dawn-staley-guard-south-carolina-milaysia-fulwiley/
+
+**Inside the epic Final Four rally Houston basketball was built for**\
+`The Cougars started to believe anything was possible in January, then drew upon their biggest win when Duke pushed them to the brink.`\
+https://nytimes.com/athletic/6258518/2025/04/06/houston-final-four-kelvin-sampson-jwan-roberts/
+
 **Florida vs. Houston NCAA Championship odds: Gators are narrow early favorites for Monday**\
 `Houston and Florida each pulled seismic last-minute stunners in the Final Four. They duel for the national title on Monday night.`\
 https://nytimes.com/athletic/6256022/2025/04/06/florida-houston-odds-ncaa-championship/
