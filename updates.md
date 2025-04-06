@@ -1,3 +1,11 @@
+**Four Braves takeaways: Drake Baldwin stays, a Ronald Acuña update and more**\
+`The Braves dropped Chadwick Tromp and opted to keep Baldwin on the big-league team.`\
+https://nytimes.com/athletic/6259957/2025/04/06/braves-drake-baldwin-ronald-acuna/
+
+**Amadou Bagayoko, Half of Malian Duo Who Went Global, Dies at 70**\
+`As Amadou & Mariam, he and his wife were improbable pop stars on two counts. Their style was venturesome and eclectic, and they were blind virtuosos.`\
+https://nytimes.com/2025/04/06/obituaries/amadou-bagayoko-dead.html
+
 **Stocks Are Set to Extend Sharp Fall**\
 `Futures on the S&P 500, which allow investors to trade the index before regular trading begins on Monday, added to last week’s sell-off.`\
 https://nytimes.com/2025/04/06/business/stocks-trump-tariffs.html
