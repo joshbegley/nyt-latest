@@ -1,3 +1,11 @@
+**Inflated Sense of Self-Importance**\
+`Jeffrey Lease and Jeff Chen take their chances in a first-time collaboration for The New York Times.`\
+https://nytimes.com/2025/04/06/crosswords/daily-puzzle-2025-04-07.html
+
+**Ilya Sorokin gives up Alex Ovechkin's record-breaking goal but can still smile: 'It was amazing'**\
+`Sorokin will be on the highlight reels forever now as the goalie who gave up the record-setter to his friend and fellow countryman.`\
+https://nytimes.com/athletic/6259637/2025/04/06/sorokin-ovechkin-goal-nhl-record-gretzky/
+
 **Guardiola: Fans chanting about Foden’s family ‘should be ashamed’**\
 `Foden played 58 minutes in the goalless draw in the Manchester derby, but was subjected to insulting chants about his mother.`\
 https://nytimes.com/athletic/6259695/2025/04/06/phil-foden-chants-manchester-derby/
