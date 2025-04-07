@@ -1,3 +1,11 @@
+**Can Gamecocks reclaim the crown? Way-too-early odds favor Staley's squad next year**\
+`Way-too-early odds for the women's basketball title next year, and top questions for the favorites.`\
+https://nytimes.com/athletic/6261638/2025/04/07/2026-ncaa-womens-college-basketball-odds/
+
+**Geno Smith ready to bring durability as Raiders QB, Pete Carroll reunite**\
+`Carroll coached Smith for five seasons when he was the Seahawks’ coach before getting fired following the 2023 season`\
+https://nytimes.com/athletic/6261831/2025/04/07/raiders-geno-smith-pete-carroll-introduction/
+
 **Johnson Reaches Agreement to Kill Proxy Voting Proposal in the House**\
 `Republicans who had been poised to force a vote on changing House rules to allow new parents to vote remotely pulled back after the speaker offered a watered-down solution for a narrow set of new mothers.`\
 https://nytimes.com/2025/04/07/us/politics/johnson-agreement-house-proxy-voting-proposal.html
