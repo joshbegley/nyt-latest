@@ -1,3 +1,15 @@
+**Paid Post Example**\
+`Paid Post Example`\
+https://nytimes.com/paidpost/paid-post-example/paid-post-example.html
+
+**Prices for copper and other metals fall sharply as recession fears grow.**\
+`By Peter Eavis`\
+https://nytimes.com/live/2025/04/07/business/trump-tariffs-stock-market/copper-metal-prices-trump-tariffs
+
+**How far can the Blues go in the playoffs? Is the retool over? 2025-26 line combos? Mailbag, part 1**\
+`The Blues have sped up the retool with a strong finish to the 2024-25 season, but there are still moves that need to be made.`\
+https://nytimes.com/athletic/6257761/2025/04/07/blues-playoffs-retool-line-combos/
+
 **Defending Trump Policies in Court Leads to Criticism, Doubt and Punishment**\
 `Inside the Justice Department’s civil division, lawyers are squeezed between judges demanding answers and bosses’ instructions to protect the Trump agenda at all costs.`\
 https://nytimes.com/2025/04/07/us/politics/justice-department-trump-policies-defense.html
@@ -25,16 +37,4 @@ https://nytimes.com/newsgraphics/card-story/brian-tyree-henry-dope-thief
 **A Vast Sea of Protests Against Trump**\
 `Readers, including participants, discuss the nationwide anti-Trump rallies on Saturday. Also: President Trump’s “hang tough” comment; veterans’ plight.`\
 https://nytimes.com/2025/04/07/opinion/trump-hands-off-protests.html
-
-**gws-jason-kelce-espn-late-night**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/jason-kelce-espn-late-night
-
-**Scientists Revive the Dire Wolf, or Something Close**\
-`Dire wolves, made famous by “Game of Thrones,” went extinct some 13,000 years ago. Now, researchers have bred gray-wolf pups that carry genes of their ancient cousins.`\
-https://nytimes.com/2025/04/07/science/colossal-dire-wolf-deextinction.html
-
-**How dominant are OKC and Cleveland, and what does it mean for the playoffs?**\
-`The league's top two teams are posting historic numbers. Does it guarantee anything once May and June arrive?`\
-https://nytimes.com/athletic/6260404/2025/04/07/thunder-cavaliers-nba-scoring-margin-kon-knueppel-duke/
 
