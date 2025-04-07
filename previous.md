@@ -1,3 +1,23 @@
+**China Downplays the Trade War’s Effects on Its Economy**\
+`Faced with economic disruption, Beijing is presenting itself as too powerful to succumb to U.S. pressure and casting itself as a responsible champion of fair trade.`\
+https://nytimes.com/2025/04/07/business/economy/china-trade-war-tariffs.html
+
+**Casemiro's season is not panning out in a way anyone expected**\
+`The Brazilian was expected to leave Manchester United last summer, and was dropped early in the season, but has appeared rejuvenated of late`\
+https://nytimes.com/athletic/6259918/2025/04/07/casemiro-manchester-united/
+
+**Word of the Day: fortify**\
+`This word has appeared in 263 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/04/07/learning/word-of-the-day-fortify.html
+
+**Here’s the latest.**\
+`By Yan Zhuang`\
+https://nytimes.com/live/2025/04/07/business/trump-tariffs-stock-market/heres-the-latest
+
+**Asia Stocks Plunge as Trump Says Tariffs Will Stay**\
+`Markets in Europe and the U.S. were set to open sharply lower as well. President Trump said on Sunday that he would not back off, reinforcing fears of a severe economic downturn.`\
+https://nytimes.com/live/2025/04/07/business/trump-tariffs-stock-market
+
 **Nils Höglander’s strong return, the Victor Mancini experiment and more: 3 takeaways**\
 `Kevin Lankinen needed a bounce-back performance against Vegas. Despite a 3-2 loss, he got it.`\
 https://nytimes.com/athletic/6260419/2025/04/07/vancouver-canucks-vegas-nils-hoglander/
@@ -17,24 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/04/07/todays-new-york-times
 **Jalen Brunson makes his return: What we saw in the New York star's first game back**\
 `Thoughts and observations from Brunson's first game back from injury and more. `\
 https://nytimes.com/athletic/6260518/2025/04/07/knicks-win-phoenix-jalen-brunson-returns/
-
-**Wolves' wild Ipswich celebrations: Andre's selfie, a viral video and Pereira in the pub**\
-`Wolves' squad and their fans clearly know how to celebrate - the win over Ipswich sparked pandemonium in the away end and beyond`\
-https://nytimes.com/athletic/6257901/2025/04/07/wolves-vitor-pereira-andre-fans/
-
-**Youri Tielemans and the art of toying with an opponent**\
-`Villa's Belgium midfielder has been one step ahead this season - Forest and Gibbs-White went to great lengths to stop him, but couldn't`\
-https://nytimes.com/athletic/6257255/2025/04/07/youri-tielemans-aston-villa-cat-and-mouse/
-
-**Monday Briefing**\
-`Uncertainty roils markets.`\
-https://nytimes.com/2025/04/07/briefing/markets-tariffs-syria-israel.html
-
-**Manchester City and their season of 'survival'**\
-`What is clear from the draw at Old Trafford is that Guardiola's trust in the ones who have won so much for him is never going to run out`\
-https://nytimes.com/athletic/6259461/2025/04/07/man-city-guardiola-de-bruyne-silva/
-
-**Chelsea's top Premier League scorer in 2025 is left-back Marc Cucurella. That is a problem**\
-`If Maresca's side want to get into the Champions League, the forwards needs to start scoring`\
-https://nytimes.com/athletic/6259252/2025/04/07/chelseas-top-scorer-in-the-premier-league-in-2025-is-left-back-marc-cucurella/
 
