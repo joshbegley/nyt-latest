@@ -1,3 +1,7 @@
+**Jalen Brunson makes his return: What we saw in the New York star's first game back**\
+`Thoughts and observations from Brunson's first game back from injury and more. `\
+https://nytimes.com/athletic/6260518/2025/04/07/knicks-win-phoenix-jalen-brunson-returns/
+
 **Wolves' wild Ipswich celebrations: Andre's selfie, a viral video and Pereira in the pub**\
 `Wolves' squad and their fans clearly know how to celebrate - the win over Ipswich sparked pandemonium in the away end and beyond`\
 https://nytimes.com/athletic/6257901/2025/04/07/wolves-vitor-pereira-andre-fans/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6257749/2025/04/07/is-graham-potters-tinkering-help
 **Crystal Palace have a chance to finish above Brighton - and even Europe is in their sights**\
 `Oliver Glasner's side have a difficult run in, but at the moment anything looks possible`\
 https://nytimes.com/athletic/6251122/2025/04/07/crystal-palace-have-a-chance-to-finish-ahead-of-brighton/
-
-**Newcastle's summer planning and how the recruitment dynamics are changing**\
-`On the face of it a new contract for Fabian Schar suggested the continuation of the status quo - but it was part of a wider plan for change`\
-https://nytimes.com/athletic/6254709/2025/04/07/fabian-schar-newcastle-contract-transfers/
 
