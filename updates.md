@@ -1,3 +1,19 @@
+**Does Trump Have an ‘Off Ramp’?**\
+`With global markets again in free-fall, the president appeared to be losing support of business leaders, raising questions about his leverage in his trade fight.`\
+https://nytimes.com/2025/04/07/business/dealbook/trump-tariffs-off-ramp.html
+
+**Putin Calls N.H.L. Star’s Record-Setting Goal a Reason for Russia to Celebrate**\
+`Alex Ovechkin’s feat put a fresh spotlight on the hockey star’s past support for Russia’s leader and on his stance on the war in Ukraine.`\
+https://nytimes.com/2025/04/07/world/europe/ovechkin-putin-russia-nhl.html
+
+**NHL pre-playoffs vibe check: Stars vs. Jets and other storylines to watch down the stretch**\
+`Is the top of the West still in play? Can Tavares and Knies help the Maple Leafs in the postseason? And what's going on at Crypto.com Arena?`\
+https://nytimes.com/athletic/6260273/2025/04/07/nhl-vibe-check-playoffs-2024-25/
+
+**MLB Draft notes: Liam Doyle dominates against Texas A&M, but is he still No. 1?**\
+`Doyle threw a gem on Friday, while fellow top draft prospect Jace LaViolette homered this weekend. Is either player a potential No. 1 pick?`\
+https://nytimes.com/athletic/6259760/2025/04/07/mlb-draft-liam-doyle-jace-laviolette-dean-curley/
+
 **Trump Administration Live Updates: Netanyahu Heads to White House**\
 ``\
 https://nytimes.com/live/2025/04/07/us/trump-news
