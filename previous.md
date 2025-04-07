@@ -1,3 +1,7 @@
+**NBA Rewind: Everything that's at stake in the season's final week**\
+`Let's examine all the playoff seeding (and tanking) scenarios as the 2024-25 regular season draws to a close.`\
+https://nytimes.com/athletic/6254698/2025/04/07/nba-rewind-rockets-playoff-standings/
+
 **Jets mailbag: Walton signs contract, Hellebuyck's greatness and more**\
 `Plus: Determining a realistic ceiling for Ville Heinola and assessing Logan Stanley's recent play.`\
 https://nytimes.com/athletic/6257284/2025/04/07/winnipeg-jets-kieron-walton-connor-hellebuyck/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6260273/2025/04/07/nhl-vibe-check-playoffs-2024-25/
 **Trump Administration Live Updates: Netanyahu Heads to White House**\
 ``\
 https://nytimes.com/live/2025/04/07/us/trump-news
-
-**‘A good start, apart from the result’: The positives from Yuki Tsunoda’s Red Bull debut**\
-` Yuki Tsunoda's performance and confidence in Japan was a big step forward from where Liam Lawson was with Red Bull`\
-https://nytimes.com/athletic/6258759/2025/04/07/yuki-tsunoda-red-bull-debut-japan/
 

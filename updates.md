@@ -1,3 +1,7 @@
+**NBA Rewind: Everything that's at stake in the season's final week**\
+`Let's examine all the playoff seeding (and tanking) scenarios as the 2024-25 regular season draws to a close.`\
+https://nytimes.com/athletic/6254698/2025/04/07/nba-rewind-rockets-playoff-standings/
+
 **Jets mailbag: Walton signs contract, Hellebuyck's greatness and more**\
 `Plus: Determining a realistic ceiling for Ville Heinola and assessing Logan Stanley's recent play.`\
 https://nytimes.com/athletic/6257284/2025/04/07/winnipeg-jets-kieron-walton-connor-hellebuyck/
