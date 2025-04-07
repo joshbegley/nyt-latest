@@ -2,6 +2,10 @@
 `The CBF announced players should be shown a yellow card and an indirect free kick be awarded to the opposition if they perform the move.`\
 https://nytimes.com/athletic/6261017/2025/04/07/memphis-depay-brazil-yellow-card-skill/
 
+**The Athletic FC: Two European icons say goodbye, a record Premier League relegation and backpass mayhem**\
+`Today in TAFC: Kevin De Bruyne and Thomas Muller confirm their impending departures and a backpass causes chaos at Portman Road`\
+https://nytimes.com/athletic/6261066/2025/04/07/de-bruyne-muller-manchester-southampton-wolves/
+
 **FPL: What we learnt from Gameweek 31 - Arsenal and Chelsea rotations pose questions**\
 `Abdul Rehman breaks down the main talking points from Gameweek 31 in Fantasy Premier League and looks ahead to back-to-back doubles`\
 https://nytimes.com/athletic/6259626/2025/04/07/fpl-gameweek-31-review/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6260876/2025/04/07/alyssa-thompson-uswnt-resurgence
 **Alex Ovechkin has long been the NHL's greatest goal-scorer — now he has the proof**\
 `This isn't about comparing players across generations. It's the fact that Ovechkin is unmatchable.`\
 https://nytimes.com/athletic/6214295/2025/04/07/alex-ovechkin-nhl-record-goals/
-
-**For two baseball-loving sisters, major-league careers honor a family history**\
-`In a sport long known for fathers and sons and brothers, sisters Amelia and Joanna Schimmel are making their own mark.`\
-https://nytimes.com/athletic/6251341/2025/04/07/schimmel-sisters-athletics-cubs-mlb/
 

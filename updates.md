@@ -1,3 +1,7 @@
+**USWNT's Alyssa Thompson is having a moment: 'I knew what I could do'**\
+`The 20-year-old barely played at the World Cup and missed out on the squad that won Olympic gold but is now starting to shine for Emma Hayes`\
+https://nytimes.com/athletic/6260876/2025/04/07/alyssa-thompson-uswnt-resurgence/
+
 **Depay criticises Brazil FA for punishing players who stand on the ball**\
 `The CBF announced players should be shown a yellow card and an indirect free kick be awarded to the opposition if they perform the move.`\
 https://nytimes.com/athletic/6261017/2025/04/07/memphis-depay-brazil-yellow-card-skill/
