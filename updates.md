@@ -1,3 +1,11 @@
+**A top White House adviser indicates that offers from trading partners won’t convince Trump to retreat.**\
+`By Ana Swanson`\
+https://nytimes.com/live/2025/04/07/business/trump-tariffs-stock-market/a-top-white-house-adviser-indicates-that-offers-from-trading-partners-wont-convince-trump-to-retreat
+
+**How to watch the Yankees at Tigers series as Aaron Judge faces Detroit's top arms**\
+`The Yankees and Tigers, atop the AL East and Central, respectively, face off in a three-game series running Monday through Wednesday.`\
+https://nytimes.com/athletic/6261311/2025/04/07/yankees-tigers-how-to-watch/
+
 **Video Shows Search for Missing Gaza Paramedics Before Israelis Shoot Rescuers**\
 `The Palestine Red Crescent released a video made by a paramedic before he was killed, and called the deaths of 15 rescue workers “a full-fledged war crime.” Israel has said it is investigating.`\
 https://nytimes.com/2025/04/07/world/middleeast/gaza-paramedics-video.html
