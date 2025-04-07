@@ -1,3 +1,7 @@
+**Rosenthal: Guerrero’s extension is great for the Jays and top free agents – and will no doubt heighten labor tensions**\
+`Vladimir Guerrero Jr.'s massive new deal doesn't just alter the Blue Jays' trajectory. It will have ripple effects throughout the sport.`\
+https://nytimes.com/athletic/6260632/2025/04/07/vladimir-guerrero-blue-jays-extension-free-agency/
+
 **‘Your Friends and Neighbors,’ Plus 9 Things to Watch on TV this Week**\
 `The AppleTV+ show starring Jon Hamm premieres. ‘Black Mirror’ returns for an eighth season.`\
 https://nytimes.com/2025/04/07/arts/television/what-to-watch-on-tv-this-week.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6259252/2025/04/07/chelseas-top-scorer-in-the-premi
 **A lack of defensive consistency and cohesion could be hampering Brighton's European push**\
 `The injury crisis at Brighton this season has denied Fabien Hurzeler the kind of continuity he would have liked at the back`\
 https://nytimes.com/athletic/6254713/2025/04/07/could-a-lack-of-defensive-consistency-be-hampering-brightons-european-push/
-
-**Has Karl Darlow ended Leeds' wobble?**\
-`A 17-match unbeaten streak has given way to one win in the last six outings, but has a change of goalkeeper fixed it?`\
-https://nytimes.com/athletic/6257348/2025/04/07/has-karl-darlow-ended-leeds-wobble/
 

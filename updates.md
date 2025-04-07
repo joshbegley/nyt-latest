@@ -1,3 +1,7 @@
+**Rosenthal: Guerrero’s extension is great for the Jays and top free agents – and will no doubt heighten labor tensions**\
+`Vladimir Guerrero Jr.'s massive new deal doesn't just alter the Blue Jays' trajectory. It will have ripple effects throughout the sport.`\
+https://nytimes.com/athletic/6260632/2025/04/07/vladimir-guerrero-blue-jays-extension-free-agency/
+
 **‘Your Friends and Neighbors,’ Plus 9 Things to Watch on TV this Week**\
 `The AppleTV+ show starring Jon Hamm premieres. ‘Black Mirror’ returns for an eighth season.`\
 https://nytimes.com/2025/04/07/arts/television/what-to-watch-on-tv-this-week.html
