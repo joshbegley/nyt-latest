@@ -1,3 +1,15 @@
+**Trump Says the U.S. and Iran Will Hold ‘Direct’ Nuclear Talks**\
+`President Trump pulled out of the last Iran nuclear accord in 2018, and negotiators from the two nations have not met face-to-face since.`\
+https://nytimes.com/2025/04/07/us/politics/iran-nuclear-talks-trump.html
+
+**FEMA Cuts More Than $300 Million in Disaster Aid to New York**\
+`Much of the money was to go toward flood mitigation in vulnerable areas of New York City that were struck hard by Hurricane Sandy and the remnants of Hurricane Ida.`\
+https://nytimes.com/2025/04/07/nyregion/fema-cuts-new-york.html
+
+**How U.S. move to revoke South Sudanese visas could impact Duke's Maluach**\
+`The decision is not likely to impact players currently in the NBA, WNBA or G League.`\
+https://nytimes.com/athletic/6262740/2025/04/07/khaman-maluach-duke-south-sudan-trump-rubio-visa/
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>With March Madness behind us, we can turn our attention to spring football. Or at least what&#8217;s left of it.</p>
 <p>Please leave your questions here. Please include your city.</p>
