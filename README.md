@@ -1,3 +1,19 @@
+**Farke: Leeds 'fear' Struijk out for season with foot fracture**\
+`"Struijk needs to wait for further assessment, the fear is it might be a fracture, which would mean his season is over," Farke said.`\
+https://nytimes.com/athletic/6261749/2025/04/07/leeds-fear-pascal-struijk-out-for-season-with-foot-fracture-daniel-farke/
+
+**chelsea-handler-book-netflix**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/chelsea-handler-book-netflix
+
+**Canucks trade targets, and could we see an offer sheet? Mailbag, part 1**\
+`Plus, an existential question about Canucks fandom and the value of the team's 2025 first-round pick.`\
+https://nytimes.com/athletic/6260804/2025/04/07/canucks-trade-targers-offer-sheets-mailbag/
+
+**long-bright-river-amanda-seyfrie**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/long-bright-river-amanda-seyfrie
+
 **Small but Mighty Appliances Fit for a Tiny Kitchen**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/wirecutter-small-kitchen-appliances
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6261761/2025/04/07/lamare-bogarde-contract-aston-vi
 **Grand Slam Track debuts with some solid moments and one big lingering question**\
 `Grand Slam Track debuted this weekend to sparse crowds and mixed reviews, but it also had some promising signs.`\
 https://nytimes.com/athletic/6258753/2025/04/07/grand-slam-track-debut-review-michael-johnson/
-
-**At 88, a Nutritionist Meets Her Moment**\
-`After five decades in the field of nutrition, Dr. Marion Nestle thought she had seen it all. Then came “Make America Healthy Again.”`\
-https://nytimes.com/2025/04/07/well/marion-nestle-nutrition-food-profile.html
-
-**Chile-Crisp Shrimp and Green Beans Is as Good as It Sounds**\
-`Ali Slagle’s fast recipe is salty and sweet, spicy and snappy.`\
-https://nytimes.com/2025/04/07/dining/chile-crisp-shrimp-and-green-beans-is-as-good-as-it-sounds.html
-
-**Already Ravaged by War, Myanmar Now Longs for Earthquake Relief**\
-`Critics say the country’s often-incompetent military government has delayed and restricted the arrival and distribution of crucial aid.`\
-https://nytimes.com/2025/04/07/world/asia/myanmar-earthquake-aid.html
-
-**Laurie Shaw to take up role with Liverpool owner FSG after leaving CFG**\
-`Shaw was placed on gardening leave in January and is expected to begin his role at FSG in the coming weeks.`\
-https://nytimes.com/athletic/6261460/2025/04/07/laurie-shaw-liverpool-cfg/
 
