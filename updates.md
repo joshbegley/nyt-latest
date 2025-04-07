@@ -1,3 +1,11 @@
+**Weekend NHL rankings: Ovechkin breaks the goals record, plus my worst rankings**\
+`We're almost to the end of the NHL regular season, and that means it's time to look back at where these rankings really blew it.`\
+https://nytimes.com/athletic/6259891/2025/04/07/nhl-weekend-rankings-ovechkin-worst-picks/
+
+**Trump’s Retribution**\
+`We explore the creative ways the president is getting even with his opponents.`\
+https://nytimes.com/2025/04/07/briefing/donald-trump-retribution.html
+
 **The L.A. Dodgers Will Visit the White House on Monday**\
 `The World Series winners’ trip comes after the Trump administration was criticized for removing an article on a Pentagon website honoring Jackie Robinson, one of the franchise’s most celebrated players.`\
 https://nytimes.com/2025/04/07/us/politics/dodgers-white-house-visit.html

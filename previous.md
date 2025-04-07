@@ -1,3 +1,11 @@
+**Weekend NHL rankings: Ovechkin breaks the goals record, plus my worst rankings**\
+`We're almost to the end of the NHL regular season, and that means it's time to look back at where these rankings really blew it.`\
+https://nytimes.com/athletic/6259891/2025/04/07/nhl-weekend-rankings-ovechkin-worst-picks/
+
+**Trump’s Retribution**\
+`We explore the creative ways the president is getting even with his opponents.`\
+https://nytimes.com/2025/04/07/briefing/donald-trump-retribution.html
+
 **The L.A. Dodgers Will Visit the White House on Monday**\
 `The World Series winners’ trip comes after the Trump administration was criticized for removing an article on a Pentagon website honoring Jackie Robinson, one of the franchise’s most celebrated players.`\
 https://nytimes.com/2025/04/07/us/politics/dodgers-white-house-visit.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6259955/2025/04/07/phillies-dodgers-walks-ohtani-jo
 **Women's college basketball 2025-26 too-early power ranking: UConn looks like favorite again**\
 `Where's South Carolina ranked? Does Notre Dame make the top 25? `\
 https://nytimes.com/athletic/6259644/2025/04/07/womens-college-basketball-2025-26-early-power-ranking-uconn/
-
-**This Week in Mets: Good vibes carrying over in solid start**\
-`Juan Soto and the lineup capture the headlines, but a deep bullpen has helped fuel a 6-3 start to the season.`\
-https://nytimes.com/athletic/6259721/2025/04/07/this-week-in-mets-good-vibes-carrying-over-in-solid-start-for-mets/
-
-**The Ovechkin Spot: How the NHL's best goal scorer achieved greatness from one area of ice**\
-`Ovechkin’s dominance on the ice from the left circle defines his legacy as the greatest goal scorer in NHL history.`\
-https://nytimes.com/athletic/6233041/2025/04/07/alex-ovechkin-nhl-goals-record-spot/
 
