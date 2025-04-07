@@ -1,10 +1,18 @@
+**The L.A. Dodgers Will Visit the White House on Monday**\
+`The World Series winners’ trip comes after the Trump administration was criticized for removing an article on a Pentagon website honoring Jackie Robinson, one of the franchise’s most celebrated players.`\
+https://nytimes.com/2025/04/07/us/politics/dodgers-white-house-visit.html
+
 **Europe Is Ready to Make Its First Countermove to Trump Tariffs**\
-`European Union officials meeting in Brussels will vet and vote on a list of retaliatory tariffs this week, while contemplating what comes next.`\
+`European Union officials will vet and vote on a list of retaliatory tariffs this week, while contemplating what comes next.`\
 https://nytimes.com/2025/04/07/world/europe/europe-tariffs-trump-response.html
 
 **Southampton to sack Juric after 108 days in charge**\
 `Juric won only one of 14 Premier League matches and Southampton's relegation was confirmed after Sunday's loss to Tottenham Hotspur.`\
 https://nytimes.com/athletic/6159582/2025/04/07/ivan-juric-sacked-southampton/
+
+**In loss to UConn, South Carolina's imperfect season ends in incomplete repeat mission**\
+`Without a go-to option, South Carolina lacked the keys to unlock another championship. `\
+https://nytimes.com/athletic/6260626/2025/04/07/south-carolina-loss-national-championship/
 
 **China intervenes to ‘safeguard’ markets as shares tumble.**\
 `An arm of China’s sovereign wealth fund said it raised its holdings of Chinese stocks.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6259721/2025/04/07/this-week-in-mets-good-vibes-car
 **The Ovechkin Spot: How the NHL's best goal scorer achieved greatness from one area of ice**\
 `Ovechkin’s dominance on the ice from the left circle defines his legacy as the greatest goal scorer in NHL history.`\
 https://nytimes.com/athletic/6233041/2025/04/07/alex-ovechkin-nhl-goals-record-spot/
-
-**The lagom of it all: Ludvig Åberg is a different kind of golf phenom**\
-`“There is no lack of killer mentality. He has all those things. He just has such good perspective and knows what he needs to do to succeed."`\
-https://nytimes.com/athletic/6255910/2025/04/07/ludvig-aberg-masters-golf/
-
-**Which of Wayne Gretzky's other NHL records could be broken?**\
-`Gretzky still holds more than 50 NHL records. Will anyone get more assists, or win the Hart Trophy more?`\
-https://nytimes.com/athletic/6254399/2025/04/07/nhl-records-gretzky-ovechkin/
 

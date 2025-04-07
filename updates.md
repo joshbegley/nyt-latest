@@ -1,3 +1,15 @@
+**Europe Is Ready to Make Its First Countermove to Trump Tariffs**\
+`European Union officials meeting in Brussels will vet and vote on a list of retaliatory tariffs this week, while contemplating what comes next.`\
+https://nytimes.com/2025/04/07/world/europe/europe-tariffs-trump-response.html
+
+**Southampton to sack Juric after 108 days in charge**\
+`Juric won only one of 14 Premier League matches and Southampton's relegation was confirmed after Sunday's loss to Tottenham Hotspur.`\
+https://nytimes.com/athletic/6159582/2025/04/07/ivan-juric-sacked-southampton/
+
+**China intervenes to ‘safeguard’ markets as shares tumble.**\
+`An arm of China’s sovereign wealth fund said it raised its holdings of Chinese stocks.`\
+https://nytimes.com/live/2025/04/07/business/trump-tariffs-stock-market/china-stocks
+
 **The Pulse: A legacy-making Sunday**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6260207/2025/04/07/guerrero-contract-uconn-bueckers-ovechkin-the-pulse/

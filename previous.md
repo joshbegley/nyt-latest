@@ -1,3 +1,15 @@
+**Europe Is Ready to Make Its First Countermove to Trump Tariffs**\
+`European Union officials meeting in Brussels will vet and vote on a list of retaliatory tariffs this week, while contemplating what comes next.`\
+https://nytimes.com/2025/04/07/world/europe/europe-tariffs-trump-response.html
+
+**Southampton to sack Juric after 108 days in charge**\
+`Juric won only one of 14 Premier League matches and Southampton's relegation was confirmed after Sunday's loss to Tottenham Hotspur.`\
+https://nytimes.com/athletic/6159582/2025/04/07/ivan-juric-sacked-southampton/
+
+**China intervenes to ‘safeguard’ markets as shares tumble.**\
+`An arm of China’s sovereign wealth fund said it raised its holdings of Chinese stocks.`\
+https://nytimes.com/live/2025/04/07/business/trump-tariffs-stock-market/china-stocks
+
 **The Pulse: A legacy-making Sunday**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6260207/2025/04/07/guerrero-contract-uconn-bueckers-ovechkin-the-pulse/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6255910/2025/04/07/ludvig-aberg-masters-golf/
 **Which of Wayne Gretzky's other NHL records could be broken?**\
 `Gretzky still holds more than 50 NHL records. Will anyone get more assists, or win the Hart Trophy more?`\
 https://nytimes.com/athletic/6254399/2025/04/07/nhl-records-gretzky-ovechkin/
-
-**Federico Valverde’s Arsenal trial in 2015: 'Spectacular Arteta' and why he ended up at Real Madrid**\
-`Wenger wanted the club to sign the midfielder after a week-long trial - and he left with an Arsenal shirt with Valverde on the back`\
-https://nytimes.com/athletic/6258550/2025/04/07/valverde-arsenal-trial-real-madrid-champions-league/
-
-**Our experts predict Florida vs. Houston: Who will win the national championship?**\
-`How we're predicting Houston vs. Florida for the championship of the men's NCAA Tournament on Monday night.`\
-https://nytimes.com/athletic/6259842/2025/04/07/florida-houston-predictions-national-championship-ncaa/
-
-**What's at stake with the House v. NCAA settlement? Goodbye amateurism, hello revenue sharing**\
-`If approved, schools will be permitted to directly pay athletes through about $20.5 million in revenue sharing in the 2025-26 athletic year.`\
-https://nytimes.com/athletic/6256000/2025/04/07/house-v-ncaa-settlement-revenue-sharing-explained/
 
