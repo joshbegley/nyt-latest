@@ -1,3 +1,7 @@
+**Another female leader in the U.S. military is fired by the Trump administration.**\
+`Vice Adm. Shoshana Chatfield has joined a list of several leaders who have been purged from the military’s highest ranks.`\
+https://nytimes.com/live/2025/04/07/us/trump-news/another-female-leader-in-the-us-military-is-fired-by-the-trump-administration
+
 **Clem Burke, Versatile, Hard-Driving Drummer for Blondie, Dies at 70**\
 `He provided both the explosive percussion on hits like “Call Me” and the laid-back rhythm on the reggae-influenced “The Tide Is High.”`\
 https://nytimes.com/2025/04/07/arts/music/clem-burke-dead.html

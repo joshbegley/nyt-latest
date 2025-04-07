@@ -1,3 +1,7 @@
+**Another female leader in the U.S. military is fired by the Trump administration.**\
+`Vice Adm. Shoshana Chatfield has joined a list of several leaders who have been purged from the military’s highest ranks.`\
+https://nytimes.com/live/2025/04/07/us/trump-news/another-female-leader-in-the-us-military-is-fired-by-the-trump-administration
+
 **Clem Burke, Versatile, Hard-Driving Drummer for Blondie, Dies at 70**\
 `He provided both the explosive percussion on hits like “Call Me” and the laid-back rhythm on the reggae-influenced “The Tide Is High.”`\
 https://nytimes.com/2025/04/07/arts/music/clem-burke-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/07/us/politics/iran-nuclear-talks-trump.html
 **FEMA Cuts More Than $300 Million in Disaster Aid to New York**\
 `Much of the money was to go toward flood mitigation in vulnerable areas of New York City that were struck hard by Hurricane Sandy and the remnants of Hurricane Ida.`\
 https://nytimes.com/2025/04/07/nyregion/fema-cuts-new-york.html
-
-**How U.S. move to revoke South Sudanese visas could impact Duke's Maluach**\
-`The decision is not likely to impact players currently in the NBA, WNBA or G League.`\
-https://nytimes.com/athletic/6262740/2025/04/07/khaman-maluach-duke-south-sudan-trump-rubio-visa/
 

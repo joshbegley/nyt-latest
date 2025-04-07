@@ -1,3 +1,7 @@
+**Rep. John James of Michigan Announces Bid for Governor**\
+`The Republican congressman joins a crowded field vying to replace Gov. Gretchen Whitmer, who is term-limited.`\
+https://nytimes.com/2025/04/07/us/politics/john-james-michigan-governor.html
+
 **Another female leader in the U.S. military is fired by the Trump administration.**\
 `Vice Adm. Shoshana Chatfield has joined a list of several leaders who have been purged from the military’s highest ranks.`\
 https://nytimes.com/live/2025/04/07/us/trump-news/another-female-leader-in-the-us-military-is-fired-by-the-trump-administration
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/07/briefing/facing-pushback-trump-threatened-more-ta
 **Trump Says the U.S. and Iran Will Hold ‘Direct’ Nuclear Talks**\
 `President Trump pulled out of the last Iran nuclear accord in 2018, and negotiators from the two nations have not met face-to-face since.`\
 https://nytimes.com/2025/04/07/us/politics/iran-nuclear-talks-trump.html
-
-**FEMA Cuts More Than $300 Million in Disaster Aid to New York**\
-`Much of the money was to go toward flood mitigation in vulnerable areas of New York City that were struck hard by Hurricane Sandy and the remnants of Hurricane Ida.`\
-https://nytimes.com/2025/04/07/nyregion/fema-cuts-new-york.html
 
