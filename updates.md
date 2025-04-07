@@ -1,3 +1,19 @@
+**Man Questioned in Killings of 4 at Georgia Trailer Park**\
+`The authorities said that the killings appeared to have stemmed from a domestic dispute. Investigators in Perry, Ga., said the four victims, who ranged in age from 2 to 82, were related.`\
+https://nytimes.com/2025/04/07/us/georgia-trailer-park-killings.html
+
+**The U.S. Conference of Catholic Bishops says aid cuts are forcing it to end refugee and children’s services.**\
+`By Elizabeth Dias`\
+https://nytimes.com/live/2025/04/07/us/trump-news/the-us-conference-of-catholic-bishops-says-aid-cuts-are-forcing-it-to-end-refugee-and-childrens-services
+
+**Trump Administration to Roll Back Array of Gun Control Measures**\
+`Taken together, they signal an abrupt reversal from efforts by the Biden administration to stem the flood of unregulated semiautomatic handguns and rifles.`\
+https://nytimes.com/2025/04/07/us/politics/trump-administration-to-roll-back-array-of-gun-control-measures.html
+
+**Trump Discusses Potential Nuclear Talks With Iran**\
+`President Trump and Prime Minister Netanyahu of Israel spoke at the White House on Monday, discussing trade policy and nuclear talks with Iran.`\
+https://nytimes.com/video/us/politics/100000010096981/trump-netanyahu-iran-nuclear-tariffs.html
+
 **Supreme Court Overturns Lower Court’s Block on Venezuelan Deportations**\
 `The Trump administration asked the justices to weigh in after a federal judge paused the president’s use of a wartime powers law to deport Venezuelans it accused of being gang members.`\
 https://nytimes.com/2025/04/07/us/politics/supreme-court-trump-venezuelan-deportations.html
