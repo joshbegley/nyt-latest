@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6260557/2025/04/07/steph-curry-warriors-lose-to-roc
 https://nytimes.com/2025/04/07/world/asia/china-trade-war-tariffs.html
 
 **Casemiro's season is not panning out in a way anyone expected**\
-`The Brazilian was expected to leave Manchester United last summer, and was dropped early in the season, but has appeared rejuvenated of late`\
+`The Brazilian was expected to leave Manchester United last summer and has been dropped twice this season but he's looked rejuvenated of late`\
 https://nytimes.com/athletic/6259918/2025/04/07/casemiro-manchester-united/
 
 **Word of the Day: fortify**\
