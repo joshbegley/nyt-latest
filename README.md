@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Tuesday, April 8, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/04/07/todays-new-york-times-international-edition
+
 **What to Know About the Destructive Spring Storm System**\
 `Heavy rains, damaging winds and dangerous floods have ravaged the South and the Midwest for days, killing at least 18 people.`\
 https://nytimes.com/2025/04/07/us/midwest-south-storm-floods-tornadoes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/07/arts/music/doechii-newjeans-ye-popcast-mailbag.ht
 **How new kickoff rule impacts Keisean Nixon, Mecole Hardman and the Packers**\
 `Under the new kickoff rule, touchbacks will now come out to the 35-yard line. That could mean more returns for the Packers.`\
 https://nytimes.com/athletic/6258841/2025/04/07/packers-keisean-nixon-kickoff-rule-mecole-hardman/
-
-**What the Seahawks' best-player-available approach means for 2025 NFL Draft**\
-`Is trading back likely? Which positions are more likely than others?`\
-https://nytimes.com/athletic/6258504/2025/04/07/seahawks-nfl-draft-2025-best-player-available/
 
