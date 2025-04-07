@@ -1,3 +1,15 @@
+**Scientists Revive the Dire Wolf, or Something Close**\
+`Dire wolves, made famous by “Game of Thrones,” went extinct some 13,000 years ago. Now, researchers have bred gray-wolf pups that carry genes of their ancient cousins.`\
+https://nytimes.com/2025/04/07/science/colossal-dire-wolf-deextinction.html
+
+**How dominant are OKC and Cleveland, and what does it mean for the playoffs?**\
+`The league's top two teams are posting historic numbers. Does it guarantee anything once May and June arrive?`\
+https://nytimes.com/athletic/6260404/2025/04/07/thunder-cavaliers-nba-scoring-margin-kon-knueppel-duke/
+
+**MK Dons' Lewington to retire after record-breaking 915 appearances**\
+`Lewington was a member of the Wimbledon team before the club's reformation and relocation to Milton Keynes.`\
+https://nytimes.com/athletic/6261863/2025/04/07/dean-lewington-mk-dons/
+
 **USMNT Player Tracker: Musah pays price, Robinson shuts down Salah, and has Sargent outgrown Norwich?**\
 `Our weekend roundup of the American contingent's contributions includes another goal from Haji Wright and Aidan Morris targeting promotion`\
 https://nytimes.com/athletic/6261355/2025/04/07/musah-robinson-pulisic-sargent-usmnt-tracker/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6261602/2025/04/07/premier-league-managers-sacked-t
 **Will anyone ever break Ovechkin's record? Should the NHL expand to Wisconsin? Hellebuyck for Hart? Ask CJ**\
 `Also in Chris Johnston's mailbag: What happens in Toronto if the Maple Leafs lose a Battle of Ontario? And just how good are the Blues?`\
 https://nytimes.com/athletic/6260473/2025/04/07/ovechkin-hellebuyck-expansion-nhl-mailbag/
-
-**Trump Asks Supreme Court to Block Order Requiring Return of Wrongly Deported Migrant**\
-`The government said Judge Paula Xinis, who ordered that the administration return the migrant, Kilmar Armando Abrego Garcia, by Monday, had engaged in “district-court diplomacy.”`\
-https://nytimes.com/2025/04/07/us/politics/supreme-court-wrongly-deported.html
-
-**Sharks' 2025-26 roster projection: How will San Jose fill holes on offense, defense?**\
-`The Sharks need a No. 1 defenseman, a couple of forwards and possibly a goalie for next season. `\
-https://nytimes.com/athletic/6260874/2025/04/07/san-jose-sharks-2025-2026-lineup/
-
-**She’s Martha Graham. Who Are You?**\
-`At 99, the Graham company continues to grapple with the legacy of its founder with reimagined lost works and commissions.`\
-https://nytimes.com/2025/04/07/arts/dance/martha-graham-company-new-works.html
 
