@@ -1,3 +1,7 @@
+**Meredith Gaudreau has third child, honors late husband Johnny with name**\
+`Meredith said the baby's middle name is the same as Johnny's and his weight was the "exact same as his daddy."`\
+https://nytimes.com/athletic/6262489/2025/04/07/meredith-johnny-gaudreau-third-child/
+
 **How to Get a Great Rate on a Hotel Room**\
 `Six strategies for scoring bargains.`\
 https://nytimes.com/article/hotel-discount-rate-cost.html
