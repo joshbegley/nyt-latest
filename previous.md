@@ -1,3 +1,7 @@
+**Familiar script: Blue Jackets fall behind early, suffer second straight shutout**\
+`The Blue Jackets have now matched a franchise record in allowing 14 straight unanswered goals.`\
+https://nytimes.com/athletic/6260105/2025/04/06/blue-jackets-shutout-tarasov-merzlikins-senators/
+
 **South Carolina players 'soak in this sucky feeling' in hopes of returning stronger**\
 `South Carolina's 82-59 loss to UConn ended the Gamecocks' quest to repeat as champions. `\
 https://nytimes.com/athletic/6260215/2025/04/06/south-carolina-national-championship-loss-uconn/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6260021/2025/04/06/alex-ovechkin-goal-895-record-gr
 **Four Braves takeaways: Drake Baldwin stays, a Ronald Acuña Jr. update and more**\
 `The Braves dropped Chadwick Tromp and opted to keep Baldwin on the big-league team.`\
 https://nytimes.com/athletic/6259957/2025/04/06/braves-drake-baldwin-ronald-acuna/
-
-**Amadou Bagayoko, Half of Malian Duo Who Went Global, Dies at 70**\
-`As Amadou & Mariam, he and his wife were improbable pop stars on two counts. Their style was venturesome and eclectic, and they were blind virtuosos.`\
-https://nytimes.com/2025/04/06/obituaries/amadou-bagayoko-dead.html
 
