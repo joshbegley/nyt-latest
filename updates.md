@@ -1,3 +1,15 @@
+**CAS rule Norwegian club won't pay fine on 'UEFA Mafia' chants, banners**\
+`Brann supporters chanted “UEFA Mafia” at a Women’s Champions League match against St. Polten in January 2024.`\
+https://nytimes.com/athletic/6259154/2025/04/07/uefa-chant-banner-fine-cas-appeal/
+
+**Trump’s Least Favorite Judge Has Friends in High Places**\
+`To President Trump, Judge James E. Boasberg is “a troublemaker” and a “Radical Left Lunatic.” But his record and biography, including a friendship with Justice Brett M. Kavanaugh, say otherwise.`\
+https://nytimes.com/2025/04/07/us/politics/trump-judge-boasberg-kavanaugh.html
+
+**Why Cameras Are Popping Up in Eldercare Facilities**\
+`Roughly 20 states now have laws permitting families to place cameras in the rooms of loved ones. Facility operators are often opposed.`\
+https://nytimes.com/2025/04/07/health/cameras-assisted-living.html
+
 **The Windup: Vlad Jr., Blue Jays finally get it done**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6260508/2025/04/07/vlad-guerrero-blue-jays-contract-the-windup/
