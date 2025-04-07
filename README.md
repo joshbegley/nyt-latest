@@ -1,3 +1,7 @@
+**Texas Governor Sets November Election to Fill Heavily Democratic House Seat**\
+`Democrats have argued that Gov. Greg Abbott, a Republican, did not act faster to fill the vacant seat because he didn’t want the narrow Republicans majority in Congress to shrink.`\
+https://nytimes.com/2025/04/07/us/texas-house-seat.html
+
 **Rep. John James of Michigan Announces Bid for Governor**\
 `The Republican congressman joins a crowded field vying to replace Gov. Gretchen Whitmer, who is term-limited.`\
 https://nytimes.com/2025/04/07/us/politics/john-james-michigan-governor.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/07/us/student-visas-revoked-trump-administration.htm
 **Facing Pushback, Trump Threatened More Tariffs**\
 `Also, the Supreme Court halted an order to return a wrongly deported man. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/04/07/briefing/facing-pushback-trump-threatened-more-tariffs.html
-
-**Trump Says the U.S. and Iran Will Hold ‘Direct’ Nuclear Talks**\
-`President Trump pulled out of the last Iran nuclear accord in 2018, and negotiators from the two nations have not met face-to-face since.`\
-https://nytimes.com/2025/04/07/us/politics/iran-nuclear-talks-trump.html
 
