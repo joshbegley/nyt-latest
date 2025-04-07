@@ -1,3 +1,11 @@
+**Jalen Brunson makes his return: What we saw in the New York star's first game back**\
+`Thoughts and observations from Brunson's first game back from injury and more. `\
+https://nytimes.com/athletic/6260518/2025/04/07/knicks-win-phoenix-jalen-brunson-returns/
+
+**Wolves' wild Ipswich celebrations: Andre's selfie, a viral video and Pereira in the pub**\
+`Wolves' squad and their fans clearly know how to celebrate - the win over Ipswich sparked pandemonium in the away end and beyond`\
+https://nytimes.com/athletic/6257901/2025/04/07/wolves-vitor-pereira-andre-fans/
+
 **Youri Tielemans and the art of toying with an opponent**\
 `Villa's Belgium midfielder has been one step ahead this season - Forest and Gibbs-White went to great lengths to stop him, but couldn't`\
 https://nytimes.com/athletic/6257255/2025/04/07/youri-tielemans-aston-villa-cat-and-mouse/
