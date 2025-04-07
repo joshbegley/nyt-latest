@@ -1,3 +1,7 @@
+**Vladimir Guerrero Jr., Blue Jays reach agreement on 14-year, $500 million extension**\
+`After months of negotiations, the Blue Jays star will remain in Toronto for his long-term future. `\
+https://nytimes.com/athletic/6234442/2025/04/07/vladimir-guerrero-blue-jays-extension-500-million/
+
 **Champions League quarter-finals: Analysing the last eight contenders for European football's biggest prize**\
 `Breaking down the strengths of each remaining side, from Barcelona's attack to Inter's defence via PSG's pressing and Madrid's invention`\
 https://nytimes.com/athletic/6254717/2025/04/07/champions-league-quarter-finals-analysing-the-last-eight-contenders-for-european-footballs-biggest-prize/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/07/pageoneplus/quote-of-the-day-skeletons-of-the-rom
 **In a Strongman State, a Trump Order Extinguishes Flickers of Freedom**\
 `Cambodia’s authoritarian dynasty had silenced almost all of the country’s independent media. The remaining few are facing extinction because of an executive directive from President Trump.`\
 https://nytimes.com/2025/04/07/world/asia/in-a-strongman-state-a-trump-order-extinguishes-flickers-of-freedom.html
-
-**As Netanyahu Heads to Washington, He Finds an Ally in Trump**\
-`President Trump and Prime Minister Benjamin Netanyahu are using similar playbooks as they face turmoil.`\
-https://nytimes.com/2025/04/07/us/politics/netanyahu-trump-israel-gaza.html
 

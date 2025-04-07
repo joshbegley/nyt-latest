@@ -1,3 +1,31 @@
+**Champions League quarter-finals: Analysing the last eight contenders for European football's biggest prize**\
+`Breaking down the strengths of each remaining side, from Barcelona's attack to Inter's defence via PSG's pressing and Madrid's invention`\
+https://nytimes.com/athletic/6254717/2025/04/07/champions-league-quarter-finals-analysing-the-last-eight-contenders-for-european-footballs-biggest-prize/
+
+**Why a terrible Manchester derby summed up this Premier League season**\
+`The sense from Old Trafford wasn’t merely that neither side won, but that all of us who bothered watching had lost`\
+https://nytimes.com/athletic/6259354/2025/04/07/manchester-derby-premier-league-season-analysis/
+
+**The Briefing: Liverpool's odd ending, a derby of nothingness and Southampton's anti-survival blueprint**\
+`Nick Miller on the week's big questions after a strange weekend of action`\
+https://nytimes.com/athletic/6259432/2025/04/07/liverpool-manchester-derby-southampton/
+
+**Trump’s Tariffs Imperil the Fortunes of a Nissan Factory Town**\
+`Kanda, on Japan’s southern coast, grew in tandem with an auto plant that sends half of the cars it makes to the United States.`\
+https://nytimes.com/2025/04/07/business/nissan-kanda-japan-factory.html
+
+**Chelsea in Fulham? And where is 'Arsenal'? London's confusing football club names**\
+`We went on a tour of the confusingly named seven Premier League clubs across London`\
+https://nytimes.com/athletic/6254771/2025/04/07/london-football-stadiums-names-tube-stations/
+
+**Forest are great at 1-0 up but struggle at 1-0 down. Next season, they need to show layers**\
+`Their style will bring riches this season but does not have longevity or a high ceiling`\
+https://nytimes.com/athletic/6257477/2025/04/07/forest-when-behind-need-layers/
+
+**The commercial cost, parachute payments, shares returned - what happens after relegation?**\
+`The coveted Premier League status is soon to be relinquished but how exactly? The Athletic examines what comes next once a team drops down`\
+https://nytimes.com/athletic/6255236/2025/04/07/premier-league-relegation-southampton-what-happens-cost/
+
 **Quote of the Day: Skeletons of the Roman Empire Are Found Under a Vienna Soccer Field**\
 `Quote of the Day for Monday, April 7, 2025`\
 https://nytimes.com/2025/04/07/pageoneplus/quote-of-the-day-skeletons-of-the-roman-empire-are-found-under-a-vienna-soccer-field.html
@@ -9,32 +37,4 @@ https://nytimes.com/2025/04/07/world/asia/in-a-strongman-state-a-trump-order-ext
 **As Netanyahu Heads to Washington, He Finds an Ally in Trump**\
 `President Trump and Prime Minister Benjamin Netanyahu are using similar playbooks as they face turmoil.`\
 https://nytimes.com/2025/04/07/us/politics/netanyahu-trump-israel-gaza.html
-
-**Oil Prices Tumble Further as Trump’s Tariffs Weigh on Economic Outlook**\
-`Crude oil now costs around 15 percent less than it did before the president revealed his plans to impose stiff new tariffs on imports from most countries.`\
-https://nytimes.com/2025/04/06/business/energy-environment/oil-prices-trump-tariffs.html
-
-**‘The White Lotus’ Season 3 Finale Recap: Bloodshed and Sacrifice**\
-`Some characters got happy endings, while some decidedly did not. But there were enough twists to keep viewers guessing until the end.`\
-https://nytimes.com/2025/04/06/arts/television/white-lotus-recap-season-3-finale.html
-
-**Are Azzi Fudd and Sarah Strong the keys to UConn running it back?**\
-`Strong and Fudd each scored 24 points to beat South Carolina for the national championship. `\
-https://nytimes.com/athletic/6260519/2025/04/06/are-azzi-fudd-and-sarah-strong-the-keys-to-uconn-running-it-back/
-
-**Cavs miss chance to clinch East; Donovan Mitchell suffers injury scare: What it means**\
-`Up four games on the Boston Celtics with four to play, Cleveland has four more chances to close this thing out.`\
-https://nytimes.com/athletic/6260488/2025/04/06/cavaliers-kings-donovan-mitchell-ankle/
-
-**Red Wings' winning weekend sets up 'biggest game of the year': 5 thoughts**\
-`Wins over Carolina and Florida have the given the Red Wings' upcoming trip to Montreal some real meaning.`\
-https://nytimes.com/athletic/6260276/2025/04/06/red-wings-debrincat-talbot-playoffs-panthers/
-
-**Review: How ‘The Last Five Years’ Became a Blur on Broadway**\
-`Nick Jonas and Adrienne Warren star in a muddy revival of Jason Robert Brown’s still-scathing musical.`\
-https://nytimes.com/2025/04/06/theater/last-five-years-broadway-nick-jonas-adrienne-warren.html
-
-**Bitcoin Is Down 10% Since Trump’s Global Tariff Announcement**\
-`The rapid drop shows that cryptocurrencies, which the president has promoted, are subject to the same market gyrations as any other risky asset.`\
-https://nytimes.com/2025/04/06/business/economy/trump-bitcoin-crypto-tariffs.html
 
