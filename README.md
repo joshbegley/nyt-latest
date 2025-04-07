@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6259970/2025/04/07/minnesota-twins-start-stats-atte
 https://nytimes.com/athletic/6260803/2025/04/07/mainz-henriksen-champions-league-fear-exclusive/
 
 **USWNT's Alyssa Thompson is having a moment: 'I knew what I could do'**\
-`The 20-year-old missed out on a place in the squad that won Olympic gold last year but is now showing Emma Hayes what she can do`\
+`The 20-year-old barely played at the World Cup and missed out on the squad that won Olympic gold but is now starting to shine for Emma Hayes`\
 https://nytimes.com/athletic/6260876/2025/04/07/alyssa-thompson-uswnt-resurgence/
 
 **Alex Ovechkin has long been the NHL's greatest goal-scorer — now he has the proof**\

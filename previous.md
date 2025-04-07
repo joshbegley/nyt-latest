@@ -1,3 +1,7 @@
+**Depay criticises Brazil FA for punishing players who stand on the ball**\
+`The CBF announced players should be shown a yellow card and an indirect free kick be awarded to the opposition if they perform the move.`\
+https://nytimes.com/athletic/6261017/2025/04/07/memphis-depay-brazil-yellow-card-skill/
+
 **FPL: What we learnt from Gameweek 31 - Arsenal and Chelsea rotations pose questions**\
 `Abdul Rehman breaks down the main talking points from Gameweek 31 in Fantasy Premier League and looks ahead to back-to-back doubles`\
 https://nytimes.com/athletic/6259626/2025/04/07/fpl-gameweek-31-review/
@@ -23,7 +27,7 @@ https://nytimes.com/athletic/6259970/2025/04/07/minnesota-twins-start-stats-atte
 https://nytimes.com/athletic/6260803/2025/04/07/mainz-henriksen-champions-league-fear-exclusive/
 
 **USWNT's Alyssa Thompson is having a moment: 'I knew what I could do'**\
-`This is Alyssa Thompson’s moment.`\
+`The 20-year-old missed out on a place in the squad that won Olympic gold last year but is now showing Emma Hayes what she can do`\
 https://nytimes.com/athletic/6260876/2025/04/07/alyssa-thompson-uswnt-resurgence/
 
 **Alex Ovechkin has long been the NHL's greatest goal-scorer — now he has the proof**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6214295/2025/04/07/alex-ovechkin-nhl-record-goals/
 **For two baseball-loving sisters, major-league careers honor a family history**\
 `In a sport long known for fathers and sons and brothers, sisters Amelia and Joanna Schimmel are making their own mark.`\
 https://nytimes.com/athletic/6251341/2025/04/07/schimmel-sisters-athletics-cubs-mlb/
-
-**Without Paige or JuJu, who will emerge as a women's basketball star in 2025-26?**\
-`Could UConn's Sarah Strong or Notre Dame's Hannah Hidalgo become a commercial superstar and grow their fan bases?`\
-https://nytimes.com/athletic/6260701/2025/04/07/womens-college-basketball-stars-2026-sarah-strong/
 

@@ -1,3 +1,11 @@
+**Depay criticises Brazil FA for punishing players who stand on the ball**\
+`The CBF announced players should be shown a yellow card and an indirect free kick be awarded to the opposition if they perform the move.`\
+https://nytimes.com/athletic/6261017/2025/04/07/memphis-depay-brazil-yellow-card-skill/
+
+**USWNT's Alyssa Thompson is having a moment: 'I knew what I could do'**\
+`The 20-year-old missed out on a place in the squad that won Olympic gold last year but is now showing Emma Hayes what she can do`\
+https://nytimes.com/athletic/6260876/2025/04/07/alyssa-thompson-uswnt-resurgence/
+
 **FPL: What we learnt from Gameweek 31 - Arsenal and Chelsea rotations pose questions**\
 `Abdul Rehman breaks down the main talking points from Gameweek 31 in Fantasy Premier League and looks ahead to back-to-back doubles`\
 https://nytimes.com/athletic/6259626/2025/04/07/fpl-gameweek-31-review/
