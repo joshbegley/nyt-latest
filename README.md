@@ -1,40 +1,40 @@
-**The New York Times International Edition in Print for Tuesday, April 8, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/04/07/todays-new-york-times-international-edition
+**Women's college basketball 2025-26 too-early power ranking: UConn looks like favorite again**\
+`Where's South Carolina ranked? Does Notre Dame make the top 25? `\
+https://nytimes.com/athletic/6259644/2025/04/07/womens-college-basketball-2025-26-early-power-ranking-uconn/
 
-**What to Know About the Destructive Spring Storm System**\
-`Heavy rains, damaging winds and dangerous floods have ravaged the South and the Midwest for days, killing at least 18 people.`\
-https://nytimes.com/2025/04/07/us/midwest-south-storm-floods-tornadoes.html
+**This Week in Mets: Good vibes carrying over in solid start**\
+`Juan Soto and the lineup capture the headlines, but a deep bullpen has helped fuel a 6-3 start to the season.`\
+https://nytimes.com/athletic/6259721/2025/04/07/this-week-in-mets-good-vibes-carrying-over-in-solid-start-for-mets/
 
-**Everything Is Going According to Plan**\
-`Will President Trump’s tariffs go down as one of the 100 worst decisions in presidential history? 50? 10?`\
-https://nytimes.com/2025/04/07/opinion/trump-tariffs-economy-third-term.html
+**The Ovechkin Spot: How the NHL's best goal scorer achieved greatness from one area of ice**\
+`Ovechkin’s dominance on the ice from the left circle defines his legacy as the greatest goal scorer in NHL history.`\
+https://nytimes.com/athletic/6233041/2025/04/07/alex-ovechkin-nhl-goals-record-spot/
 
-**Adrienne Adams Pitches Guaranteed Income as Major Campaign Proposal**\
-`Adrienne Adams, the New York City Council speaker who is running for mayor, will release a plan to provide guaranteed income for homeless families.`\
-https://nytimes.com/2025/04/07/nyregion/adrienne-adams-nyc-mayor-guaranteed-income.html
+**The lagom of it all: Ludvig Åberg is a different kind of golf phenom**\
+`“There is no lack of killer mentality. He has all those things. He just has such good perspective and knows what he needs to do to succeed."`\
+https://nytimes.com/athletic/6255910/2025/04/07/ludvig-aberg-masters-golf/
 
-**The Trump White House Cited My Research to Justify Tariffs. They Got It All Wrong.**\
-`A look inside the administration’s methodology is a real eye-opener.`\
-https://nytimes.com/2025/04/07/opinion/trump-tariff-math-formula.html
+**Which of Wayne Gretzky's other NHL records could be broken?**\
+`Gretzky still holds more than 50 NHL records. Will anyone get more assists, or win the Hart Trophy more?`\
+https://nytimes.com/athletic/6254399/2025/04/07/nhl-records-gretzky-ovechkin/
 
-**Trump’s Trade War Raises Bar for Fed Rate Cuts**\
-`Tariffs set to take effect this week risk stoking even higher inflation and slower growth than expected, complicating the central bank’s decisions on monetary policy.`\
-https://nytimes.com/2025/04/07/business/federal-reserve-trump-tariffs-inflation.html
+**Federico Valverde’s Arsenal trial in 2015: 'Spectacular Arteta' and why he ended up at Real Madrid**\
+`Wenger wanted the club to sign the midfielder after a week-long trial - and he left with an Arsenal shirt with Valverde on the back`\
+https://nytimes.com/athletic/6258550/2025/04/07/valverde-arsenal-trial-real-madrid-champions-league/
 
-**A Split on the Right Over Whether Teenagers Can Have Guns**\
-`Conservative judges have come to opposite conclusions on what the Second Amendment has to say about limiting the gun rights of those under 21.`\
-https://nytimes.com/2025/04/07/us/politics/courts-guns-teenagers.html
+**Our experts predict Florida vs. Houston: Who will win the national championship?**\
+`How we're predicting Houston vs. Florida for the championship of the men's NCAA Tournament on Monday night.`\
+https://nytimes.com/athletic/6259842/2025/04/07/florida-houston-predictions-national-championship-ncaa/
 
-**‘The Tsunami Is Coming’: China’s Global Exports Are Just Getting Started**\
-`A staggering $1.9 trillion in extra industrial lending is fueling a continued flood of exports that could be spread even wider across the world by the Trump tariffs.`\
-https://nytimes.com/2025/04/07/business/china-manufacturing-exports-trump-tariffs.html
+**What's at stake with the House v. NCAA settlement? Goodbye amateurism, hello revenue sharing**\
+`If approved, schools will be permitted to directly pay athletes through about $20.5 million in revenue sharing in the 2025-26 athletic year.`\
+https://nytimes.com/athletic/6256000/2025/04/07/house-v-ncaa-settlement-revenue-sharing-explained/
 
-**Doechii! NewJeans! Ye! Answering Your Pop Music Questions**\
-`For Popcast’s listener mailbag, we address some of the most urgent music topics of the moment, including Doechii’s rise and NewJeans’ K-pop struggle.`\
-https://nytimes.com/2025/04/07/arts/music/doechii-newjeans-ye-popcast-mailbag.html
+**Long before torpedo bats, the maple bat craze changed baseball**\
+`In the late 1990s, an Ottawa man changed bat technology with the creation of maple bats. Soon, almost every major leaguer wanted one.`\
+https://nytimes.com/athletic/6255592/2025/04/07/maple-bat-craze-torpedo-bats/
 
-**How new kickoff rule impacts Keisean Nixon, Mecole Hardman and the Packers**\
-`Under the new kickoff rule, touchbacks will now come out to the 35-yard line. That could mean more returns for the Packers.`\
-https://nytimes.com/athletic/6258841/2025/04/07/packers-keisean-nixon-kickoff-rule-mecole-hardman/
+**‘I Felt Ashamed.’ Why One Lawyer Resigned When His Firm Caved to Trump**\
+`When his employer struck a deal to avert an executive order, Thomas Sipp decided to make a stand.`\
+https://nytimes.com/2025/04/07/podcasts/the-daily/skadden-lawyer-resigned-trump-thomas-sipp.html
 
