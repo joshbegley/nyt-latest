@@ -1,3 +1,11 @@
+**The Long Fuse**\
+`People toss out words that ignite and burn over decades.`\
+https://nytimes.com/2025/04/06/podcasts/the-long-fuse-this-american-life-nyt-audio.html
+
+**Why Alex Ovechkin's 'amazing journey' to goal No. 895 meant so much to so many**\
+`"It's just an honor to be living through this," said Tom Wilson, whose pass to Ovechkin led to history on Sunday.`\
+https://nytimes.com/athletic/6260021/2025/04/06/alex-ovechkin-goal-895-record-gretzky/
+
 **Four Braves takeaways: Drake Baldwin stays, a Ronald Acuña update and more**\
 `The Braves dropped Chadwick Tromp and opted to keep Baldwin on the big-league team.`\
 https://nytimes.com/athletic/6259957/2025/04/06/braves-drake-baldwin-ronald-acuna/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6259714/2025/04/06/dodgers-blake-snell-tommy-edman/
 **Inflated Sense of Self-Importance**\
 `Jeffrey Lease and Jeff Chen take their chances in a first-time collaboration for The New York Times.`\
 https://nytimes.com/2025/04/06/crosswords/daily-puzzle-2025-04-07.html
-
-**Ilya Sorokin gives up Alex Ovechkin's record-breaking goal but can still smile: 'It was amazing'**\
-`Sorokin will be on the highlight reels forever now as the goalie who gave up the record-setter to his friend and fellow countryman.`\
-https://nytimes.com/athletic/6259637/2025/04/06/sorokin-ovechkin-goal-nhl-record-gretzky/
-
-**Guardiola: Fans chanting about Foden’s family ‘should be ashamed’**\
-`Foden played 58 minutes in the goalless draw in the Manchester derby, but was subjected to insulting chants about his mother.`\
-https://nytimes.com/athletic/6259695/2025/04/06/phil-foden-chants-manchester-derby/
 
