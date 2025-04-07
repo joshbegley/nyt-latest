@@ -1,3 +1,7 @@
+**What could Vladimir Guerrero Jr.'s extension with Blue Jays mean for the Mets' Pete Alonso?**\
+`It’s easier for Alonso to argue for “90 percent of what Guerrero got” — or about $32 million or more per season.`\
+https://nytimes.com/athletic/6262803/2025/04/07/mets-blue-jays-vladimir-guerrero-pete-alonso/
+
 **Nearly 150 Students Have Had Visas Revoked and Could Face Deportation**\
 `Dozens of schools, including the University of California and Harvard, said the Trump administration ended the visas of their students in recent days. For many, the reasons are unclear.`\
 https://nytimes.com/2025/04/07/us/student-visas-revoked-trump-administration.html
@@ -35,8 +39,4 @@ https://nytimes.com/2025/04/07/us/tigers-nevada-arrest-joe-exotic.html
 **Another Law Firm Braces for Possible Blowback From Trump**\
 `Cadwalader, Wickersham & Taft balked at having one of its partners represent Donald Trump in his criminal cases. Now the firm is among those that have been pushed to agree to a deal with the White House.`\
 https://nytimes.com/2025/04/07/us/politics/law-firms-trump-cadwalader-wickersham-taft.html
-
-**Maine Sues U.S.D.A. Over Funding for School Meals**\
-`The federal lawsuit is the latest escalation of Gov. Janet Mills’s standoff with the Trump administration over the issue of transgender athletes.`\
-https://nytimes.com/live/2025/04/07/us/trump-news/maine-lawsuit-usda-title-ix
 
