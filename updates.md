@@ -1,3 +1,7 @@
+**What could Vladimir Guerrero Jr.'s extension with Blue Jays mean for the Mets' Pete Alonso?**\
+`It’s easier for Alonso to argue for “90 percent of what Guerrero got” — or about $32 million or more per season.`\
+https://nytimes.com/athletic/6262803/2025/04/07/mets-blue-jays-vladimir-guerrero-pete-alonso/
+
 **Nearly 150 Students Have Had Visas Revoked and Could Face Deportation**\
 `Dozens of schools, including the University of California and Harvard, said the Trump administration ended the visas of their students in recent days. For many, the reasons are unclear.`\
 https://nytimes.com/2025/04/07/us/student-visas-revoked-trump-administration.html
