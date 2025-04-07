@@ -1,3 +1,11 @@
+**Google Says Employees Can Discuss Antitrust Case**\
+`The Silicon Valley giant had ordered employees to stay silent on the landmark case before reaching a settlement with a workers’ union over the issue.`\
+https://nytimes.com/2025/04/07/technology/google-antitrust-union-settlement.html
+
+**Man’s 7 ‘Emotional Support’ Tigers Seized in Nevada**\
+`The local authorities arrested Karl Mitchell, who claimed he had been authorized by a doctor to keep the tigers.`\
+https://nytimes.com/2025/04/07/us/tigers-nevada-arrest-joe-exotic.html
+
 **Another Law Firm Braces for Possible Blowback From Trump**\
 `Cadwalader, Wickersham & Taft balked at having one of its partners represent Donald Trump in his criminal cases. Now the firm is among those that have been pushed to agree to a deal with the White House.`\
 https://nytimes.com/2025/04/07/us/politics/law-firms-trump-cadwalader-wickersham-taft.html
