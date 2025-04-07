@@ -1,3 +1,7 @@
+**Clem Burke, Versatile, Hard-Driving Drummer for Blondie, Dies at 70**\
+`He provided both the explosive percussion on hits like “Call Me” and the laid-back rhythm on the reggae-influenced “The Tide Is High.”`\
+https://nytimes.com/2025/04/07/arts/music/clem-burke-dead.html
+
 **New Study Links Diabetes in Pregnancy to Developmental Risks in Children**\
 `Researchers reviewed data from more than 56 million pregnancies to examine the connection between diabetes and A.D.H.D., autism and intellectual disability.`\
 https://nytimes.com/2025/04/07/well/live/pregnancy-diabetes-adhd.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/07/nyregion/fema-cuts-new-york.html
 **How U.S. move to revoke South Sudanese visas could impact Duke's Maluach**\
 `The decision is not likely to impact players currently in the NBA, WNBA or G League.`\
 https://nytimes.com/athletic/6262740/2025/04/07/khaman-maluach-duke-south-sudan-trump-rubio-visa/
-
-**Google Says Employees Can Discuss Antitrust Case**\
-`The Silicon Valley giant had ordered employees to stay silent on the landmark case before reaching a settlement with a workers’ union over the issue.`\
-https://nytimes.com/2025/04/07/technology/google-antitrust-union-settlement.html
 
