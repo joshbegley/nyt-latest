@@ -1,3 +1,11 @@
+**Has NASCAR's Throwback Weekend, with paint scheme woes, run its course?**\
+`As paint-scheme participation dwindles, questions linger about the future of NASCAR's Throwback Weekend. But not all may be lost.`\
+https://nytimes.com/athletic/6262134/2025/04/07/nascar-throwback-weekend-paint-schemes-future/
+
+**Trump Administration Aims to Spend $45 Billion to Expand Immigrant Detention**\
+`A request for proposals for new detention facilities and other services would allow the government to expedite the contracting process and rapidly expand detention.`\
+https://nytimes.com/2025/04/07/us/politics/trump-administration-immigrant-detention-facilities-services.html
+
 **Israeli Strike By a Major Hospital in Gaza Kills and Injures Journalists**\
 `The strike killed one journalist and injured nine others, according to the Palestinian Journalists Syndicate.`\
 https://nytimes.com/video/world/middleeast/100000010095641/israeli-strike-gaza-journalists-hospital.html
