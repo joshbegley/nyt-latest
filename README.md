@@ -1,3 +1,11 @@
+**Has NASCAR's Throwback Weekend, with paint scheme woes, run its course?**\
+`As paint-scheme participation dwindles, questions linger about the future of NASCAR's Throwback Weekend. But not all may be lost.`\
+https://nytimes.com/athletic/6262134/2025/04/07/nascar-throwback-weekend-paint-schemes-future/
+
+**Trump Administration Aims to Spend $45 Billion to Expand Immigrant Detention**\
+`A request for proposals for new detention facilities and other services would allow the government to expedite the contracting process and rapidly expand detention.`\
+https://nytimes.com/2025/04/07/us/politics/trump-administration-immigrant-detention-facilities-services.html
+
 **Israeli Strike By a Major Hospital in Gaza Kills and Injures Journalists**\
 `The strike killed one journalist and injured nine others, according to the Palestinian Journalists Syndicate.`\
 https://nytimes.com/video/world/middleeast/100000010095641/israeli-strike-gaza-journalists-hospital.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6259246/2025/04/07/real-madrid-thibaut-courtois-ars
 **Explaining Real Madrid's 'crisis de los penaltis': Why do they miss more than their rivals?**\
 `The European champions are in a slump when it comes to converting penalties — will it cost them in the big games to come?`\
 https://nytimes.com/athletic/6261997/2025/04/07/real-madrid-penalty-miss-crisis/
-
-**Five Canadian forwards making their case for the Olympics after 4 Nations snubs**\
-`The NHL's top two point-scorers since the 4 Nations break were both forwards left off of Canada's roster. Who else is on the rise?`\
-https://nytimes.com/athletic/6261996/2025/04/07/canada-olympics-forwards-4-nations-snubs/
-
-**‘The White Lotus’: Walton Goggins Knows It Had to End This Way**\
-`“I realized that there was really no other conclusion,” the actor said in an interview on Monday about the season finale.`\
-https://nytimes.com/2025/04/07/arts/television/walton-goggins-white-lotus-finale.html
 
