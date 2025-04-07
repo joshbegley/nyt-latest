@@ -1,3 +1,7 @@
+**New Study Links Diabetes in Pregnancy to Developmental Risks in Children**\
+`Researchers reviewed data from more than 56 million pregnancies to examine the connection between diabetes and A.D.H.D., autism and intellectual disability.`\
+https://nytimes.com/2025/04/07/well/live/pregnancy-diabetes-adhd.html
+
 **Can Musk Pull Trump Back From theTariff Ledge?**\
 `Elon Musk has been criticizing Trump’s tariff policy — and publicly. Could there be a strategy?`\
 https://nytimes.com/2025/04/07/us/politics/elon-musk-tariffs-trump.html
