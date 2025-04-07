@@ -1,3 +1,7 @@
+**Yohe's 10 observations: Malkin pays tribute to Ovechkin following Penguins loss**\
+`More than 20 years after Ovechkin and Malkin were drafted back to back, the Penguins' Russian gushed about his compatriot's new record.`\
+https://nytimes.com/athletic/6259821/2025/04/06/penguins-malkin-ovechkin-crosby-fatigue-blackhawks/
+
 **He's tried to retire, but Geno Auriemma keeps coming back ... and winning**\
 ` Auriemma has won more than anyone in women's college basketball. Yet, he's still hungry for more. `\
 https://nytimes.com/athletic/6260321/2025/04/06/uconn-national-championship-geno-auriemma/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6259766/2025/04/06/yankees-takeaways-devin-williams
 **'That's more of the team we're used to': Behind the Wild's huge overtime win**\
 `The Wild bounced back with a victory to strengthen their playoff chances after a dismal trip.`\
 https://nytimes.com/athletic/6259469/2025/04/06/wild-overtime-boldy-penalty-kill-stars/
-
-**The Long Fuse**\
-`People toss out words that ignite and burn over decades.`\
-https://nytimes.com/2025/04/06/podcasts/the-long-fuse-this-american-life-nyt-audio.html
 
