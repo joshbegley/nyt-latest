@@ -1,3 +1,15 @@
+**Explaining Real Madrid's 'crisis de los penaltis': Why do they miss more than their rivals?**\
+`The European champions are in a slump when it comes to converting penalties - will it cost them in the big games to come?`\
+https://nytimes.com/athletic/6261997/2025/04/07/real-madrid-penalty-miss-crisis/
+
+**Five Canadian forwards making their case for the Olympics after 4 Nations snubs**\
+`The NHL's top two point-scorers since the 4 Nations break were both forwards left off of Canada's roster. Who else is on the rise?`\
+https://nytimes.com/athletic/6261996/2025/04/07/canada-olympics-forwards-4-nations-snubs/
+
+**‘The White Lotus’: Walton Goggins Knows It Had to End This Way**\
+`“I realized that there was really no other conclusion,” the actor said in an interview on Monday about the season finale.`\
+https://nytimes.com/2025/04/07/arts/television/the-white-lotus-walton-goggins.html
+
 **A top White House adviser indicates that offers from trading partners won’t convince Trump to retreat.**\
 `By Ana Swanson`\
 https://nytimes.com/live/2025/04/07/business/trump-tariffs-stock-market/a-top-white-house-adviser-indicates-that-offers-from-trading-partners-wont-convince-trump-to-retreat
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6257761/2025/04/07/blues-playoffs-retool-line-combo
 **Defending Trump Policies in Court Leads to Criticism, Doubt and Punishment**\
 `Inside the Justice Department’s civil division, lawyers are squeezed between judges demanding answers and bosses’ instructions to protect the Trump agenda at all costs.`\
 https://nytimes.com/2025/04/07/us/politics/justice-department-trump-policies-defense.html
-
-**Red Sox trade Priester to Brewers, acquire outfield prospect, draft pick**\
-`The Brewers desperately needed more pitching depth as their staff has been ravaged by injuries.`\
-https://nytimes.com/athletic/6261850/2025/04/07/red-sox-brewers-quinn-priester-trade/
-
-**gws-new-york-pandemic-heroes**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/new-york-pandemic-heroes
-
-**gws-severance-lumon-food**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/severance-lumon-food
 
