@@ -1,3 +1,15 @@
+**CAS rule Norwegian club won't pay fine on 'UEFA Mafia' chants, banners**\
+`Brann supporters chanted “UEFA Mafia” at a Women’s Champions League match against St. Polten in January 2024.`\
+https://nytimes.com/athletic/6259154/2025/04/07/uefa-chant-banner-fine-cas-appeal/
+
+**Trump’s Least Favorite Judge Has Friends in High Places**\
+`To President Trump, Judge James E. Boasberg is “a troublemaker” and a “Radical Left Lunatic.” But his record and biography, including a friendship with Justice Brett M. Kavanaugh, say otherwise.`\
+https://nytimes.com/2025/04/07/us/politics/trump-judge-boasberg-kavanaugh.html
+
+**Why Cameras Are Popping Up in Eldercare Facilities**\
+`Roughly 20 states now have laws permitting families to place cameras in the rooms of loved ones. Facility operators are often opposed.`\
+https://nytimes.com/2025/04/07/health/cameras-assisted-living.html
+
 **The Windup: Vlad Jr., Blue Jays finally get it done**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6260508/2025/04/07/vlad-guerrero-blue-jays-contract-the-windup/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6259514/2025/04/07/angels-kyren-paris-swing-playing
 **Blanca, an Acclaimed Brooklyn Restaurant, Is Closing**\
 `The quirky tasting counter behind Roberta’s pizzeria mixed low-key vibes with high-stakes cuisine.`\
 https://nytimes.com/2025/04/07/dining/blanca-nyc-restaurant-closing.html
-
-**Browns QB tracker: Shedeur Sanders and other options available in the draft**\
-`A QB search that’s mysterious both in its nature and because Cleveland has only added Kenny Pickett thus far now extends to the NFL Draft.`\
-https://nytimes.com/athletic/6260324/2025/04/07/browns-quarterback-tracker-shedeur-sanders-nfl-draft/
-
-**NBA Rewind: Everything that's at stake in the season's final week**\
-`Let's examine all the playoff seeding (and tanking) scenarios as the 2024-25 regular season draws to a close.`\
-https://nytimes.com/athletic/6254698/2025/04/07/nba-rewind-rockets-playoff-standings/
-
-**Jets mailbag: Walton signs contract, Hellebuyck's greatness and more**\
-`Plus: Determining a realistic ceiling for Ville Heinola and assessing Logan Stanley's recent play.`\
-https://nytimes.com/athletic/6257284/2025/04/07/winnipeg-jets-kieron-walton-connor-hellebuyck/
 

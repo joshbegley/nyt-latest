@@ -1,3 +1,15 @@
+**The Windup: Vlad Jr., Blue Jays finally get it done**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6260508/2025/04/07/vlad-guerrero-blue-jays-contract-the-windup/
+
+**As Kennedy Champions Chronic Disease Prevention, Key Research Is Cut**\
+`Two significant programs that invested in research on diabetes, dementia, obesity and kidney disease have ended since the start of the Trump administration.`\
+https://nytimes.com/2025/04/07/health/rfk-hhs-diabetes-obesity-disease.html
+
+**College baseball week in review: Are the Aggies back? Texas A&M showing signs of life**\
+`Texas makes a statement by sweeping Georgia. Wake Forest bounces back against Florida State. Western Kentucky is for real. `\
+https://nytimes.com/athletic/6260507/2025/04/07/college-baseball-texas-am-tennessee-lsu-texas/
+
 **Canadiens weekly notebook: Bad starts, Hutson keeps rolling, Savard’s perspective**\
 `Also in this week's notebook, Cole Caufield's not satisfied, Juraj Slafkovský's chirp game, a former teammate of Sean Farrell heaps praise.`\
 https://nytimes.com/athletic/6260794/2025/04/07/canadiens-lane-hutson-david-savard/
