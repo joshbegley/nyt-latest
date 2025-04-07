@@ -1,6 +1,10 @@
+**USMNT Player Tracker: Musah pays price, Robinson shuts down Salah, and has Sargent outgrown Norwich?**\
+`Our weekend roundup of the American contingent's contributions includes another goal from Haji Wright and Aidan Morris targeting promotion`\
+https://nytimes.com/athletic/6261355/2025/04/07/musah-robinson-pulisic-sargent-usmnt-tracker/
+
 **The Snubs and Surprises of the 2025 Olivier Awards**\
 `Times critics discuss the big winners — a new play about Roald Dahl, a “Fiddler on the Roof” revival and a folk-rock “Benjamin Button”— at London’s theater awards.`\
-https://nytimes.com/2025/04/07/theater/2025-olivier-awards-winners.html
+https://nytimes.com/2025/04/07/theater/olivier-awards-2025-snubs-surprises.html
 
 **Ex-Villanova star Kris Jenkins suing NCAA, 6 conferences over NIL**\
 `Jenkins opted out of the House v. NCAA settlement, and his lawsuit does not seek a specific amount in damages.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6260874/2025/04/07/san-jose-sharks-2025-2026-lineup
 **She’s Martha Graham. Who Are You?**\
 `At 99, the Graham company continues to grapple with the legacy of its founder with reimagined lost works and commissions.`\
 https://nytimes.com/2025/04/07/arts/dance/martha-graham-company-new-works.html
-
-**foot-workout-exercises**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/foot-workout-exercises
 

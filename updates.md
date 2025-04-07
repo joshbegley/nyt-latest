@@ -1,3 +1,7 @@
+**The Snubs and Surprises of the 2025 Olivier Awards**\
+`Times critics discuss the big winners — a new play about Roald Dahl, a “Fiddler on the Roof” revival and a folk-rock “Benjamin Button”— at London’s theater awards.`\
+https://nytimes.com/2025/04/07/theater/2025-olivier-awards-winners.html
+
 **Ex-Villanova star Kris Jenkins suing NCAA, 6 conferences over NIL**\
 `Jenkins opted out of the House v. NCAA settlement, and his lawsuit does not seek a specific amount in damages.`\
 https://nytimes.com/athletic/6261720/2025/04/07/kris-jenkins-villanova-ncaa-nil-lawsuit/
