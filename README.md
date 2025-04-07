@@ -1,3 +1,7 @@
+**How Trump’s TikTok Negotiations Were Upended by China and Tariffs**\
+`The future of the popular video app is now at the center of a geopolitical tussle between Washington and Beijing.`\
+https://nytimes.com/2025/04/07/technology/trump-tiktok-china-tariffs.html
+
 **Man Questioned in Killings of 4 at Georgia Trailer Park**\
 `The authorities said that the killings appeared to have stemmed from a domestic dispute. Investigators in Perry, Ga., said the four victims, who ranged in age from 2 to 82, were related.`\
 https://nytimes.com/2025/04/07/us/georgia-trailer-park-killings.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/04/07/us/trump-news/another-female-leader-in-the-u
 **Clem Burke, Versatile, Hard-Driving Drummer for Blondie, Dies at 70**\
 `He provided both the explosive percussion on hits like “Call Me” and the laid-back rhythm on the reggae-influenced “The Tide Is High.”`\
 https://nytimes.com/2025/04/07/arts/music/clem-burke-dead.html
-
-**New Study Links Diabetes in Pregnancy to Developmental Risks in Children**\
-`Researchers reviewed data from more than 56 million pregnancies to examine the connection between diabetes and A.D.H.D., autism and intellectual disability.`\
-https://nytimes.com/2025/04/07/well/live/pregnancy-diabetes-adhd.html
 
