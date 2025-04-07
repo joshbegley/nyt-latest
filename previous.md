@@ -1,3 +1,7 @@
+**No Big Stick: Many Tariff Targets Avoid Hitting Back**\
+`Just two of the 20 largest exporters to the United States have matched Mr. Trump’s moves with new tariffs of their own.`\
+https://nytimes.com/interactive/2025/04/07/business/economy/trump-tariffs-reaction-china-eu-canada.html
+
 **Meredith Gaudreau has third child, honors late husband Johnny with name**\
 `Meredith said the baby's middle name is the same as Johnny's and his weight was the "exact same as his daddy."`\
 https://nytimes.com/athletic/6262489/2025/04/07/meredith-johnny-gaudreau-third-child/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/07/us/politics/trump-tariffs-foreign-governments-neg
 **This Matzo Ball Soup Drifts Toward Tokyo**\
 `A miso soup shows the ingenuity of Jewish cooks in Japan, who adapt traditional dishes with local ingredients.`\
 https://nytimes.com/2025/04/07/dining/matzo-ball-miso-soup.html
-
-**When It Comes to D.E.I. and ICE, Trump Is Using Federal Grants as Leverage**\
-`The Department of Homeland Security is reviewing billions of dollars in grants to make sure cities and states are complying with President Trump’s priorities on immigration and diversity.`\
-https://nytimes.com/2025/04/07/us/politics/trump-homeland-security-ice-dei-grants.html
 

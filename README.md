@@ -1,3 +1,15 @@
+**Columbia’s Former Leader Faced Contentious Interview After Resigning**\
+`Dr. Katrina Armstrong told a federal task force she could not remember details from the university’s report on antisemitism or her response to its recommendations.`\
+https://nytimes.com/2025/04/07/nyregion/columbia-president-armstrong-federal-deposition.html
+
+**Trump and Paramount Agree on Mediator in ‘60 Minutes’ Lawsuit**\
+`President Trump’s $20 billion suit accuses CBS News of deceptively editing an interview with former Vice President Kamala Harris.`\
+https://nytimes.com/2025/04/07/business/media/trump-paramount-mediator-60-minutes.html
+
+**Jeremiah Ostriker, Who Plumbed Dark Forces That Shape Universe, Dies at 87**\
+`There’s more to the universe than meets the eye, he found. His studies led astronomy to the dark side, changing our view of what’s out there.`\
+https://nytimes.com/2025/04/07/science/space/jeremiah-ostriker-dead.html
+
 **No Big Stick: Many Tariff Targets Avoid Hitting Back**\
 `Just two of the 20 largest exporters to the United States have matched Mr. Trump’s moves with new tariffs of their own.`\
 https://nytimes.com/interactive/2025/04/07/business/economy/trump-tariffs-reaction-china-eu-canada.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6261831/2025/04/07/raiders-geno-smith-pete-carroll-
 **Johnson Reaches Agreement to Kill Proxy Voting Proposal in the House**\
 `Republicans who had been poised to force a vote on changing House rules to allow new parents to vote remotely pulled back after the speaker offered a watered-down solution for a narrow set of new mothers.`\
 https://nytimes.com/2025/04/07/us/politics/johnson-agreement-house-proxy-voting-proposal.html
-
-**She Knocks the Cobwebs Off the Violin Repertory**\
-`Patricia Kopatchinskaja, making her New York Philharmonic debut this week, has become one of music’s quirkiest stars by breathing new life into standards.`\
-https://nytimes.com/2025/04/07/arts/music/patricia-kopatchinskaja-violin-new-york-philharmonic.html
-
-**Global Leaders Rush to Woo Trump, Hoping to Sway Him on Tariffs**\
-`Dozens of foreign governments were trying to appeal to the president to have steep tariffs rolled back, but the president and his advisers have indicated negotiations could be difficult.`\
-https://nytimes.com/2025/04/07/us/politics/trump-tariffs-foreign-governments-negotiations.html
-
-**This Matzo Ball Soup Drifts Toward Tokyo**\
-`A miso soup shows the ingenuity of Jewish cooks in Japan, who adapt traditional dishes with local ingredients.`\
-https://nytimes.com/2025/04/07/dining/matzo-ball-miso-soup.html
 

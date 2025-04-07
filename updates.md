@@ -1,3 +1,7 @@
+**No Big Stick: Many Tariff Targets Avoid Hitting Back**\
+`Just two of the 20 largest exporters to the United States have matched Mr. Trump’s moves with new tariffs of their own.`\
+https://nytimes.com/interactive/2025/04/07/business/economy/trump-tariffs-reaction-china-eu-canada.html
+
 **Meredith Gaudreau has third child, honors late husband Johnny with name**\
 `Meredith said the baby's middle name is the same as Johnny's and his weight was the "exact same as his daddy."`\
 https://nytimes.com/athletic/6262489/2025/04/07/meredith-johnny-gaudreau-third-child/
