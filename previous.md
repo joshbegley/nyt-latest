@@ -1,3 +1,23 @@
+**Jets mailbag: Walton signs contract, Hellebuyck's greatness and more**\
+`Plus: Determining a realistic ceiling for Ville Heinola and assessing Logan Stanley's recent play.`\
+https://nytimes.com/athletic/6257284/2025/04/07/winnipeg-jets-kieron-walton-connor-hellebuyck/
+
+**Champions League quarter-final best bets: Bayern and Madrid favoured to win**\
+`Julia Ranney outlines the best bets for Tuesday’s Champions League quarter-finals.`\
+https://nytimes.com/athletic/6261197/2025/04/07/champions-league-tuesday-betting-tips-predictions-odds/
+
+**Britain Eases Rules on Electric Vehicles as Auto Tariffs Hit**\
+`Even before the latest tariffs by the Trump administration, Britain’s car industry was struggling.`\
+https://nytimes.com/2025/04/07/business/britain-electric-vehicles-auto-tariffs.html
+
+**Lakers' dominant win over Thunder is a reminder of their playoff ceiling**\
+`Dončić scored 30 as Los Angeles made the league's best defense look helpless. `\
+https://nytimes.com/athletic/6260457/2025/04/07/lakers-luka-doncic-thunder-win/
+
+**How one European club shares a common thread with LeBron beyond the court**\
+`Alba Berlin's relationship with nearby schools is a rare one and sparks the question: Why don't we see more of it?`\
+https://nytimes.com/athletic/6259126/2025/04/07/lebron-james-i-promise-alba-berlin-basketball/
+
 **Does Trump Have an ‘Off Ramp’?**\
 `With global markets again in free-fall, the president appeared to be losing support of business leaders, raising questions about his leverage in his trade fight.`\
 https://nytimes.com/2025/04/07/business/dealbook/trump-tariffs-off-ramp.html
@@ -17,24 +37,4 @@ https://nytimes.com/live/2025/04/07/us/trump-news
 **‘A good start, apart from the result’: The positives from Yuki Tsunoda’s Red Bull debut**\
 ` Yuki Tsunoda's performance and confidence in Japan was a big step forward from where Liam Lawson was with Red Bull`\
 https://nytimes.com/athletic/6258759/2025/04/07/yuki-tsunoda-red-bull-debut-japan/
-
-**Monday Morning Leafs Report: The Game 1 starter debate is over**\
-`The gap between Anthony Stolarz and Joseph Woll has become too wide to ignore.`\
-https://nytimes.com/athletic/6259092/2025/04/07/maple-leafs-goalie-playoffs-starter/
-
-**Wild insider: Faber on what Buium can expect, Zuccarello's class and Yurov's future**\
-`Brock Faber knows exactly what Zeev Buium is likely to go through upon an expected elevation to the Wild roster.`\
-https://nytimes.com/athletic/6259594/2025/04/07/wild-insider-faber-buium-yurov-zuccarello/
-
-**MLB Draft notes: Liam Doyle dominates against Texas A&M, but is he still No. 1?**\
-`Doyle threw a gem on Friday, while fellow top draft prospect Jace LaViolette homered this weekend. Is either player a potential No. 1 pick?`\
-https://nytimes.com/athletic/6259760/2025/04/07/mlb-draft-liam-doyle-jace-laviolette-dean-curley/
-
-**'He'll make this thing go': Frank Reich's former players endorse Andrew Luck's pick for Stanford**\
-`Frank Reich's former players, beyond Stanford GM Andrew Luck, believe the former NFL coach can make the best of a unique situation. `\
-https://nytimes.com/athletic/6258994/2025/04/07/andrew-luck-frank-reich-stanford-former-players/
-
-**Perreault's NHL readiness, Laviolette on Ovechkin, more: Weekly Rangers observations**\
-`Plus the latest work on the power play, more tributes to Sam Rosen and what the youngest players get up to off the ice.`\
-https://nytimes.com/athletic/6259596/2025/04/07/rangers-perrault-laviolette-ovechkin-power-play/
 
