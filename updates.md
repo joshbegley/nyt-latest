@@ -1,3 +1,7 @@
+**Red Wings' winning weekend sets up 'biggest game of the year': 5 thoughts**\
+`Wins over Carolina and Florida have the given the Red Wings' upcoming trip to Montreal some real meaning.`\
+https://nytimes.com/athletic/6260276/2025/04/06/red-wings-debrincat-talbot-playoffs-panthers/
+
 **Review: How ‘The Last Five Years’ Became a Blur on Broadway**\
 `Nick Jonas and Adrienne Warren star in a muddy revival of Jason Robert Brown’s still-scathing musical.`\
 https://nytimes.com/2025/04/06/theater/last-five-years-broadway-nick-jonas-adrienne-warren.html
