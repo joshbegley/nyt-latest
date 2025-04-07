@@ -1,3 +1,19 @@
+**Jarren Duran discusses his mental health journey, suicide attempt in new Netflix documentary**\
+`Duran spoke of his struggles with his mental health in the fourth episode of the Red Sox Netflix documentary, which debuts on Tuesday.`\
+https://nytimes.com/athletic/6259717/2025/04/07/jarren-duran-mental-health-netflix-red-sox-documentary/
+
+**What Is a Student Visa? The Rights and Risks Amid Trump’s Crackdown.**\
+`Federal immigration officials are rescinding the legal status of some international students, using rarely invoked powers.`\
+https://nytimes.com/2025/04/07/nyregion/us-visa-international-student-trump.html
+
+**In 15 Years, 80,000 Homes in the New York Area May Be Lost to Flooding**\
+`The metro region’s housing shortage is acute. But by 2040, dozens of neighborhoods and suburbs are likely to have lost thousands of homes to floods, a new report found.`\
+https://nytimes.com/2025/04/07/nyregion/climate-change-housing-crisis-new-york-city.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/04/07/crosswords/spelling-bee-forum.html
+
 **Steph Curry's Warriors and Ime Udoka's Rockets get testy in Houston's statement win**\
 `Houston's game plan was heavily geared toward making Curry's evening miserable. He missed 9 of his 10 shots and scored only three points.`\
 https://nytimes.com/athletic/6260557/2025/04/07/steph-curry-warriors-lose-to-rockets/
