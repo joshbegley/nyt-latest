@@ -1,3 +1,7 @@
+**Clem Burke, Versatile, Hard-Driving Drummer for Blondie, Dies at 70**\
+`He provided both the explosive percussion on hits like “Call Me” and the laid-back rhythm on the reggae-influenced “The Tide Is High.”`\
+https://nytimes.com/2025/04/07/arts/music/clem-burke-dead.html
+
 **New Study Links Diabetes in Pregnancy to Developmental Risks in Children**\
 `Researchers reviewed data from more than 56 million pregnancies to examine the connection between diabetes and A.D.H.D., autism and intellectual disability.`\
 https://nytimes.com/2025/04/07/well/live/pregnancy-diabetes-adhd.html
