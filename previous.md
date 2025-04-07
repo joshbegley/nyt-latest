@@ -1,3 +1,11 @@
+**At 88, a Nutritionist Meets Her Moment**\
+`After five decades in the field of nutrition, Dr. Marion Nestle thought she had seen it all. Then came “Make America Healthy Again.”`\
+https://nytimes.com/2025/04/07/well/marion-nestle-nutrition-food-profile.html
+
+**Chile-Crisp Shrimp and Green Beans Is as Good as It Sounds**\
+`Ali Slagle’s fast recipe is salty and sweet, spicy and snappy.`\
+https://nytimes.com/2025/04/07/dining/chile-crisp-shrimp-and-green-beans-is-as-good-as-it-sounds.html
+
 **Already Ravaged by War, Myanmar Now Longs for Earthquake Relief**\
 `Critics say the country’s often-incompetent military government has delayed and restricted the arrival and distribution of crucial aid.`\
 https://nytimes.com/2025/04/07/world/asia/myanmar-earthquake-aid.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/04/07/opinion/thepoint
 **Lowetide: Why the Oilers' list of scratches in the playoffs may surprise**\
 `It's possible several regular-season contributors won't be in the Oilers lineup for Game 1 of the postseason.`\
 https://nytimes.com/athletic/6259160/2025/04/07/edmonton-oilers-2025-playoffs-roster/
-
-**Kennedy to Kick Off MAHA Tour on Fighting Chronic Disease**\
-`After a second measles death in West Texas, the health secretary is expected to begin a tour through the Southwest to showcase nutrition legislation, among other priorities.`\
-https://nytimes.com/2025/04/07/health/rfk-jr-maha-tour.html
-
-**Justice Dept. Tries to Use Executive Privilege to Muzzle Fired Pardon Attorney**\
-`A fight over the testimony of Elizabeth G. Oyer could have a ripple effect on whether other fired Justice Department lawyers speak publicly about their experiences.`\
-https://nytimes.com/2025/04/07/us/politics/justice-department-pardon-attorney.html
 

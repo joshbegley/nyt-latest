@@ -1,3 +1,11 @@
+**At 88, a Nutritionist Meets Her Moment**\
+`After five decades in the field of nutrition, Dr. Marion Nestle thought she had seen it all. Then came “Make America Healthy Again.”`\
+https://nytimes.com/2025/04/07/well/marion-nestle-nutrition-food-profile.html
+
+**Chile-Crisp Shrimp and Green Beans Is as Good as It Sounds**\
+`Ali Slagle’s fast recipe is salty and sweet, spicy and snappy.`\
+https://nytimes.com/2025/04/07/dining/chile-crisp-shrimp-and-green-beans-is-as-good-as-it-sounds.html
+
 **Already Ravaged by War, Myanmar Now Longs for Earthquake Relief**\
 `Critics say the country’s often-incompetent military government has delayed and restricted the arrival and distribution of crucial aid.`\
 https://nytimes.com/2025/04/07/world/asia/myanmar-earthquake-aid.html
