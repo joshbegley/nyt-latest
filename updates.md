@@ -1,3 +1,7 @@
+**FPL: What we learnt from Gameweek 31 - Arsenal and Chelsea rotations pose questions**\
+`Abdul Rehman breaks down the main talking points from Gameweek 31 in Fantasy Premier League and looks ahead to back-to-back doubles`\
+https://nytimes.com/athletic/6259626/2025/04/07/fpl-gameweek-31-review/
+
 **Duke's collapse doesn't have to define Jon Scheyer, but will be part of what his legacy becomes**\
 `The raw reality of Saturday night's stunning loss must now be squared with Scheyer’s budding coaching stardom.`\
 https://nytimes.com/athletic/6260456/2025/04/07/duke-basketball-jon-scheyer-final-four-houston/
