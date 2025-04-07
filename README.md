@@ -1,5 +1,13 @@
+**Borussia Dortmund's Schlotterbeck to miss rest of the season with knee injury**\
+`The injury will see the Germany international miss the rest of the season, and the news comes just days before their game against Barcelona.`\
+https://nytimes.com/athletic/6261728/2025/04/07/schlotterbeck-dortmund-knee-injury/
+
+**Appeals Court Reinstates 2 Leaders of Federal Boards Fired by Trump**\
+`A full appeals court panel voted 7-4 to restore Cathy Harris and Gwynne Wilcox to their positions, setting up an expected Supreme Court finale.`\
+https://nytimes.com/2025/04/07/us/politics/labor-relations-merit-systems-board.html
+
 **Bogarde signs new Aston Villa contract**\
-`Lamare Bogarde has signed a new contract at Aston Villa.`\
+`Villa signed Bogarde from Feyenoord in 2020 and he has since risen through the ranks to be part of Unai Emery's first team.`\
 https://nytimes.com/athletic/6261761/2025/04/07/lamare-bogarde-contract-aston-villa/
 
 **Grand Slam Track debuts with some solid moments and one big lingering question**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6257236/2025/04/07/nhl-playoff-first-round-2025/
 **Watch: Why Sarah Strong should have won Most Outstanding Player**\
 `No Offseason discusses why Sarah Strong should have been voted the Final Four’s Most Outstanding Player.`\
 https://nytimes.com/athletic/6261341/2025/04/07/no-offseason-sarah-strong-ncaa-outstanding-player/
-
-**Arteta urges Arsenal fans to 'play the game with us' before Real Madrid clash**\
-`Arteta says Arsenal will need the backing of the entire Emirates stadium during gheir Champions League quarter-final against Real Madrid. `\
-https://nytimes.com/athletic/6261579/2025/04/07/arsenal-real-madrid-champions-league-arteta/
-
-**How Much Do You Know About the History of Books?**\
-`Try this short quiz on the material side of reading.`\
-https://nytimes.com/interactive/2025/04/07/books/review/book-history-quiz.html
 
