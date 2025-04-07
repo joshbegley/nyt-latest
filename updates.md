@@ -1,3 +1,7 @@
+**Kyren Paris' swing change has Angels fans excited again. But will he play every day?**\
+`Fans are excited about the success Paris has had but when will he get the chance to play full-time?`\
+https://nytimes.com/athletic/6259514/2025/04/07/angels-kyren-paris-swing-playing-time/
+
 **Blanca, an Acclaimed Brooklyn Restaurant, Is Closing**\
 `The quirky tasting counter behind Roberta’s pizzeria mixed low-key vibes with high-stakes cuisine.`\
 https://nytimes.com/2025/04/07/dining/blanca-nyc-restaurant-closing.html
