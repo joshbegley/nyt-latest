@@ -12,7 +12,7 @@ https://nytimes.com/2025/04/07/opinion/trump-tariffs-economy-third-term.html
 
 **Adrienne Adams Pitches Guaranteed Income as Major Campaign Proposal**\
 `Adrienne Adams, the New York City Council speaker who is running for mayor, will release a plan to provide guaranteed income for homeless families.`\
-https://nytimes.com/2025/04/07/nyregion/guaranteed-income-adrienne-adams-nyc-mayor.html
+https://nytimes.com/2025/04/07/nyregion/adrienne-adams-nyc-mayor-guaranteed-income.html
 
 **The Trump White House Cited My Research to Justify Tariffs. They Got It All Wrong.**\
 `A look inside the administration’s methodology is a real eye-opener.`\
