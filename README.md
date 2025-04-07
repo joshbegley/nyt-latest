@@ -1,3 +1,7 @@
+**All Cubs signs pointing toward an entertaining, dramatic summer at Wrigley Field**\
+`As Eric Karros said: "Every player should spend a year as a Chicago Cub."`\
+https://nytimes.com/athletic/6260023/2025/04/06/chicago-cubs-summer-wrigley-field/
+
 **Yohe's 10 observations: Malkin pays tribute to Ovechkin following Penguins loss**\
 `More than 20 years after Ovechkin and Malkin were drafted back to back, the Penguins' Russian gushed about his compatriot's new record.`\
 https://nytimes.com/athletic/6259821/2025/04/06/penguins-malkin-ovechkin-crosby-fatigue-blackhawks/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/06/arts/television/jay-north-dennis-the-menance-dead
 **Yankees takeaways: Devin Williams not to blame, Ben Rice beefs up, Aaron Judge's bling**\
 `While Williams earned his first loss with the Yankees — 5-4 in 11 innings in Pittsburgh — several other factors came into play.`\
 https://nytimes.com/athletic/6259766/2025/04/06/yankees-takeaways-devin-williams-ben-rice/
-
-**'That's more of the team we're used to': Behind the Wild's huge overtime win**\
-`The Wild bounced back with a victory to strengthen their playoff chances after a dismal trip.`\
-https://nytimes.com/athletic/6259469/2025/04/06/wild-overtime-boldy-penalty-kill-stars/
 
