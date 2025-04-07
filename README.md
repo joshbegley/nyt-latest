@@ -1,3 +1,7 @@
+**Ex-Villanova star Kris Jenkins suing NCAA, 6 conferences over NIL**\
+`Jenkins opted out of the House v. NCAA settlement, and his lawsuit does not seek a specific amount in damages.`\
+https://nytimes.com/athletic/6261720/2025/04/07/kris-jenkins-villanova-ncaa-nil-lawsuit/
+
 **How Trump’s Tariffs Play Right Into China’s Hands**\
 `Instead of making our strategy America against the whole world on tariffs, Trump should have made it all the industrial democracies, led by America, against China.`\
 https://nytimes.com/2025/04/07/opinion/tariffs-china-advanced-manufacturing.html
@@ -33,8 +37,4 @@ https://nytimes.com/newsgraphics/card-story/foot-workout-exercises
 **Neuer faces race to be fit for Inter second leg**\
 `Neuer has been recovering from a calf injury sustained in early March and will not be fit in time for tomorrow's first leg.`\
 https://nytimes.com/athletic/6261781/2025/04/07/bayern-munichs-manuel-neuer-faces-race-to-be-fit-for-champions-league-quarter-final-second-leg/
-
-**U.S. Markets Swing Wildly on an Unsubstantiated Report**\
-`It was not clear where the report, that President Trump was considering a pause on his expansive tariffs, had originated. The White House called the claim “fake news.”`\
-https://nytimes.com/2025/04/07/business/economy/trump-tariffs-no-pause-stock-market.html
 
