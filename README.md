@@ -1,3 +1,15 @@
+**Man Questioned in Killings of 4 at Georgia Trailer Park**\
+`The authorities said that the killings appeared to have stemmed from a domestic dispute. Investigators in Perry, Ga., said the four victims, who ranged in age from 2 to 82, were related.`\
+https://nytimes.com/2025/04/07/us/georgia-trailer-park-killings.html
+
+**The U.S. Conference of Catholic Bishops says aid cuts are forcing it to end refugee and children’s services.**\
+`By Elizabeth Dias`\
+https://nytimes.com/live/2025/04/07/us/trump-news/the-us-conference-of-catholic-bishops-says-aid-cuts-are-forcing-it-to-end-refugee-and-childrens-services
+
+**Trump Administration to Roll Back Array of Gun Control Measures**\
+`Taken together, they signal an abrupt reversal from efforts by the Biden administration to stem the flood of unregulated semiautomatic handguns and rifles.`\
+https://nytimes.com/2025/04/07/us/politics/trump-administration-to-roll-back-array-of-gun-control-measures.html
+
 **Trump Discusses Potential Nuclear Talks With Iran**\
 `President Trump and Prime Minister Netanyahu of Israel spoke at the White House on Monday, discussing trade policy and nuclear talks with Iran.`\
 https://nytimes.com/video/us/politics/100000010096981/trump-netanyahu-iran-nuclear-tariffs.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/07/arts/music/clem-burke-dead.html
 **New Study Links Diabetes in Pregnancy to Developmental Risks in Children**\
 `Researchers reviewed data from more than 56 million pregnancies to examine the connection between diabetes and A.D.H.D., autism and intellectual disability.`\
 https://nytimes.com/2025/04/07/well/live/pregnancy-diabetes-adhd.html
-
-**Can Musk Pull Trump Back From theTariff Ledge?**\
-`Elon Musk has been criticizing Trump’s tariff policy — and publicly. Could there be a strategy?`\
-https://nytimes.com/2025/04/07/us/politics/elon-musk-tariffs-trump.html
-
-**Miami has De Bruyne's MLS discovery rights – and could sign him this summer**\
-`Inter Miami already has a host of world-class stars, but it's possible that there's room for one more.`\
-https://nytimes.com/athletic/6256074/2025/04/07/kevin-de-bruyne-inter-miami-mls-discovery-rights-man-city/
-
-**What could Vladimir Guerrero Jr.'s extension with Blue Jays mean for the Mets' Pete Alonso?**\
-`It’s easier for Alonso to argue for “90 percent of what Guerrero got” — or about $32 million or more per season.`\
-https://nytimes.com/athletic/6262803/2025/04/07/mets-blue-jays-vladimir-guerrero-pete-alonso/
 
