@@ -1,3 +1,7 @@
+**Adrienne Adams Pitches Guaranteed Income as Major Campaign Proposal**\
+`Adrienne Adams, the New York City Council speaker who is running for mayor, will release a plan to provide guaranteed income for homeless families.`\
+https://nytimes.com/2025/04/07/nyregion/adrienne-adams-nyc-mayor-guaranteed-income.html
+
 **The New York Times International Edition in Print for Tuesday, April 8, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/04/07/todays-new-york-times-international-edition
