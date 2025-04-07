@@ -1,3 +1,7 @@
+**FPL: What we learnt from Gameweek 31 - Arsenal and Chelsea rotations pose questions**\
+`Abdul Rehman breaks down the main talking points from Gameweek 31 in Fantasy Premier League and looks ahead to back-to-back doubles`\
+https://nytimes.com/athletic/6259626/2025/04/07/fpl-gameweek-31-review/
+
 **Duke's collapse doesn't have to define Jon Scheyer, but will be part of what his legacy becomes**\
 `The raw reality of Saturday night's stunning loss must now be squared with Scheyer’s budding coaching stardom.`\
 https://nytimes.com/athletic/6260456/2025/04/07/duke-basketball-jon-scheyer-final-four-houston/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6251341/2025/04/07/schimmel-sisters-athletics-cubs-
 **Without Paige or JuJu, who will emerge as a women's basketball star in 2025-26?**\
 `Could UConn's Sarah Strong or Notre Dame's Hannah Hidalgo become a commercial superstar and grow their fan bases?`\
 https://nytimes.com/athletic/6260701/2025/04/07/womens-college-basketball-stars-2026-sarah-strong/
-
-**How will the House v. NCAA settlement, revenue sharing impact women's college basketball?**\
-`Revenue-sharing "will ruin parity," UConn coach Geno Auriemma argued.`\
-https://nytimes.com/athletic/6259508/2025/04/07/ncaa-house-settlement-womens-basketball/
 
