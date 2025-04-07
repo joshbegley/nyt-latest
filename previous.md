@@ -1,6 +1,6 @@
-**China Downplays the Trade War’s Effects on Its Economy**\
-`Faced with economic disruption, Beijing is presenting itself as too powerful to succumb to U.S. pressure and casting itself as a responsible champion of fair trade.`\
-https://nytimes.com/2025/04/07/business/economy/china-trade-war-tariffs.html
+**China Tries to Downplay the Trade War’s Effects on Its Economy**\
+`Faced with economic disruption, Beijing is presenting itself as too powerful to succumb to U.S. pressure. It is also censoring criticism at home.`\
+https://nytimes.com/2025/04/07/world/asia/china-trade-war-tariffs.html
 
 **Casemiro's season is not panning out in a way anyone expected**\
 `The Brazilian was expected to leave Manchester United last summer, and was dropped early in the season, but has appeared rejuvenated of late`\
