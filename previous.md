@@ -1,3 +1,15 @@
+**Defending Trump Policies in Court Leads to Criticism, Doubt and Punishment**\
+`Inside the Justice Department’s civil division, lawyers are squeezed between judges demanding answers and bosses’ instructions to protect the Trump agenda at all costs.`\
+https://nytimes.com/2025/04/07/us/politics/justice-department-trump-policies-defense.html
+
+**Red Sox trade Priester to Brewers, acquire outfield prospect, draft pick**\
+`The Brewers desperately needed more pitching depth as their staff has been ravaged by injuries.`\
+https://nytimes.com/athletic/6261850/2025/04/07/red-sox-brewers-quinn-priester-trade/
+
+**gws-new-york-pandemic-heroes**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/new-york-pandemic-heroes
+
 **gws-severance-lumon-food**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/severance-lumon-food
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/07/science/colossal-dire-wolf-deextinction.html
 **How dominant are OKC and Cleveland, and what does it mean for the playoffs?**\
 `The league's top two teams are posting historic numbers. Does it guarantee anything once May and June arrive?`\
 https://nytimes.com/athletic/6260404/2025/04/07/thunder-cavaliers-nba-scoring-margin-kon-knueppel-duke/
-
-**MK Dons' Lewington to retire after record-breaking 915 appearances**\
-`Lewington was a member of the Wimbledon team before the club's reformation and relocation to Milton Keynes.`\
-https://nytimes.com/athletic/6261863/2025/04/07/dean-lewington-mk-dons/
-
-**USMNT Player Tracker: Musah pays price, Robinson shuts down Salah, and has Sargent outgrown Norwich?**\
-`Our weekend roundup of the American contingent's contributions includes another goal from Haji Wright and Aidan Morris targeting promotion`\
-https://nytimes.com/athletic/6261355/2025/04/07/musah-robinson-pulisic-sargent-usmnt-tracker/
-
-**The Snubs and Surprises of the 2025 Olivier Awards**\
-`Times critics discuss the big winners — a new play about Roald Dahl, a “Fiddler on the Roof” revival and a folk-rock “Benjamin Button”— at London’s theater awards.`\
-https://nytimes.com/2025/04/07/theater/olivier-awards-2025-snubs-surprises.html
 
