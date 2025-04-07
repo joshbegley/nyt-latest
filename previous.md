@@ -1,3 +1,11 @@
+**The Briefing: Leicester 0 Newcastle 3 - Champions League chances, Schar's audacious shot, Murphy's turnaround**\
+`Our writers break down the action from a comfortable away win at the King Power.`\
+https://nytimes.com/athletic/6255637/2025/04/07/newcastle-leicester-schar-champions-league/
+
+**The Pong-Pong Fruit in ‘White Lotus’ Really Is That Dangerous**\
+`Indigenous to parts of South and Southeast Asia, Australia and the Pacific islands, the fruit contains a toxin in its seeds that attacks the heart.`\
+https://nytimes.com/2025/04/07/dining/white-lotus-pong-pong-fruit-suicide-tree.html
+
 **Columbia’s Former Leader Faced Contentious Interview After Resigning**\
 `Dr. Katrina Armstrong told a federal task force she could not remember details from the university’s report on antisemitism or her response to its recommendations.`\
 https://nytimes.com/2025/04/07/nyregion/columbia-president-armstrong-federal-deposition.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/07/us/politics/north-carolina-supreme-court-election
 **Can Gamecocks reclaim the crown? Way-too-early odds favor Staley's squad next year**\
 `Way-too-early odds for the women's basketball title next year, and top questions for the favorites.`\
 https://nytimes.com/athletic/6261638/2025/04/07/2026-ncaa-womens-college-basketball-odds/
-
-**Geno Smith ready to bring stability as Raiders QB, Pete Carroll reunite**\
-`Carroll coached Smith for five seasons when he was the Seahawks’ coach before getting fired following the 2023 season`\
-https://nytimes.com/athletic/6261831/2025/04/07/raiders-geno-smith-pete-carroll-introduction/
-
-**Johnson Reaches Agreement to Kill Proxy Voting Proposal in the House**\
-`Republicans who had been poised to force a vote on changing House rules to allow new parents to vote remotely pulled back after the speaker offered a watered-down solution for a narrow set of new mothers.`\
-https://nytimes.com/2025/04/07/us/politics/johnson-agreement-house-proxy-voting-proposal.html
 

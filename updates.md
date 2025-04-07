@@ -1,3 +1,11 @@
+**The Briefing: Leicester 0 Newcastle 3 - Champions League chances, Schar's audacious shot, Murphy's turnaround**\
+`Our writers break down the action from a comfortable away win at the King Power.`\
+https://nytimes.com/athletic/6255637/2025/04/07/newcastle-leicester-schar-champions-league/
+
+**The Pong-Pong Fruit in ‘White Lotus’ Really Is That Dangerous**\
+`Indigenous to parts of South and Southeast Asia, Australia and the Pacific islands, the fruit contains a toxin in its seeds that attacks the heart.`\
+https://nytimes.com/2025/04/07/dining/white-lotus-pong-pong-fruit-suicide-tree.html
+
 **Columbia’s Former Leader Faced Contentious Interview After Resigning**\
 `Dr. Katrina Armstrong told a federal task force she could not remember details from the university’s report on antisemitism or her response to its recommendations.`\
 https://nytimes.com/2025/04/07/nyregion/columbia-president-armstrong-federal-deposition.html
