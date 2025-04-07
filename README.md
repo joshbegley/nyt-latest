@@ -1,3 +1,7 @@
+**The Snubs and Surprises of the 2025 Olivier Awards**\
+`Times critics discuss the big winners — a new play about Roald Dahl, a “Fiddler on the Roof” revival and a folk-rock “Benjamin Button”— at London’s theater awards.`\
+https://nytimes.com/2025/04/07/theater/2025-olivier-awards-winners.html
+
 **Ex-Villanova star Kris Jenkins suing NCAA, 6 conferences over NIL**\
 `Jenkins opted out of the House v. NCAA settlement, and his lawsuit does not seek a specific amount in damages.`\
 https://nytimes.com/athletic/6261720/2025/04/07/kris-jenkins-villanova-ncaa-nil-lawsuit/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/07/arts/dance/martha-graham-company-new-works.html
 **foot-workout-exercises**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/foot-workout-exercises
-
-**Neuer faces race to be fit for Inter second leg**\
-`Neuer has been recovering from a calf injury sustained in early March and will not be fit in time for tomorrow's first leg.`\
-https://nytimes.com/athletic/6261781/2025/04/07/bayern-munichs-manuel-neuer-faces-race-to-be-fit-for-champions-league-quarter-final-second-leg/
 

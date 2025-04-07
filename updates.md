@@ -1,3 +1,15 @@
+**Ex-Villanova star Kris Jenkins suing NCAA, 6 conferences over NIL**\
+`Jenkins opted out of the House v. NCAA settlement, and his lawsuit does not seek a specific amount in damages.`\
+https://nytimes.com/athletic/6261720/2025/04/07/kris-jenkins-villanova-ncaa-nil-lawsuit/
+
+**How Trump’s Tariffs Play Right Into China’s Hands**\
+`Instead of making our strategy America against the whole world on tariffs, Trump should have made it all the industrial democracies, led by America, against China.`\
+https://nytimes.com/2025/04/07/opinion/tariffs-china-advanced-manufacturing.html
+
+**Will anyone ever break Ovechkin's record? Should the NHL expand to Wisconsin? Hellebuyck for Hart? Ask CJ**\
+`Also in Chris Johnston's mailbag: What happens in Toronto if the Maple Leafs lose a Battle of Ontario? And just how good are the Blues?`\
+https://nytimes.com/athletic/6260473/2025/04/07/ovechkin-hellebuyck-expansion-nhl-mailbag/
+
 **Celtic Boys Club abuse case settled: 'A significant milestone' after 50 years of pain**\
 `This week, a seven-figure settlement was reached with Celtic on behalf of 22 victims who were sexually abused at Celtic Boys Club`\
 https://nytimes.com/athletic/6251977/2025/04/07/celtic-boys-club-abuse-case-settlement/
