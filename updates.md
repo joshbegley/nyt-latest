@@ -1,3 +1,11 @@
+**The Fed isn’t rushing to save the markets this time.**\
+`With stocks in a steep decline and tariffs inducing recession jitters, the patience of investors may be tested.`\
+https://nytimes.com/live/2025/04/07/business/trump-tariffs-stock-market/the-fed-isnt-rushing-to-save-the-markets-this-time
+
+**When Have You Challenged Yourself?**\
+`Tell us about a time when you did something difficult. What did you learn about yourself from the experience?`\
+https://nytimes.com/2025/04/07/learning/when-have-you-challenged-yourself.html
+
 **Casemiro's season is not panning out in a way anyone expected**\
 `The Brazilian was expected to leave Manchester United last summer and has been dropped twice this season but he's looked rejuvenated of late`\
 https://nytimes.com/athletic/6259918/2025/04/07/casemiro-manchester-united/
