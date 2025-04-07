@@ -1,3 +1,7 @@
+**Video Shows Search for Missing Gaza Paramedics Before Israelis Shoot Rescuers**\
+`The Palestine Red Crescent released a video made by a paramedic before he was killed, and called the deaths of 15 rescue workers “a full-fledged war crime.” Israel has said it is investigating.`\
+https://nytimes.com/2025/04/07/world/middleeast/gaza-paramedics-video.html
+
 **Paid Post Example**\
 `Paid Post Example`\
 https://nytimes.com/paidpost/paid-post-example/paid-post-example.html
