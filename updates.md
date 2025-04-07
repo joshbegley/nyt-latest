@@ -1,3 +1,7 @@
+**When It Comes to D.E.I. and ICE, Trump Is Using Federal Grants as Leverage**\
+`The Department of Homeland Security is reviewing billions of dollars in grants to make sure cities and states are complying with President Trump’s priorities on immigration and diversity.`\
+https://nytimes.com/2025/04/07/us/politics/trump-homeland-security-ice-dei-grants.html
+
 **The leading U.S. business lobby warns tariffs could inflict ‘major harm.’**\
 `By Ken Belson`\
 https://nytimes.com/live/2025/04/07/business/trump-tariffs-stock-market/the-leading-us-business-lobby-warns-tariffs-could-inflict-major-harm
