@@ -1,3 +1,11 @@
+**Jets mailbag: Walton signs contract, Hellebuyck's greatness and more**\
+`Plus: Determining a realistic ceiling for Ville Heinola and assessing Logan Stanley's recent play.`\
+https://nytimes.com/athletic/6257284/2025/04/07/winnipeg-jets-kieron-walton-connor-hellebuyck/
+
+**Champions League quarter-final best bets: Bayern and Madrid favoured to win**\
+`Julia Ranney outlines the best bets for Tuesday’s Champions League quarter-finals.`\
+https://nytimes.com/athletic/6261197/2025/04/07/champions-league-tuesday-betting-tips-predictions-odds/
+
 **Britain Eases Rules on Electric Vehicles as Auto Tariffs Hit**\
 `Even before the latest tariffs by the Trump administration, Britain’s car industry was struggling.`\
 https://nytimes.com/2025/04/07/business/britain-electric-vehicles-auto-tariffs.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/04/07/us/trump-news
 **‘A good start, apart from the result’: The positives from Yuki Tsunoda’s Red Bull debut**\
 ` Yuki Tsunoda's performance and confidence in Japan was a big step forward from where Liam Lawson was with Red Bull`\
 https://nytimes.com/athletic/6258759/2025/04/07/yuki-tsunoda-red-bull-debut-japan/
-
-**Monday Morning Leafs Report: The Game 1 starter debate is over**\
-`The gap between Anthony Stolarz and Joseph Woll has become too wide to ignore.`\
-https://nytimes.com/athletic/6259092/2025/04/07/maple-leafs-goalie-playoffs-starter/
-
-**Wild insider: Faber on what Buium can expect, Zuccarello's class and Yurov's future**\
-`Brock Faber knows exactly what Zeev Buium is likely to go through upon an expected elevation to the Wild roster.`\
-https://nytimes.com/athletic/6259594/2025/04/07/wild-insider-faber-buium-yurov-zuccarello/
 
