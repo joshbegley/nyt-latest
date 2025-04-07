@@ -1,3 +1,7 @@
+**How Trump’s TikTok Negotiations Were Upended by China and Tariffs**\
+`The future of the popular video app is now at the center of a geopolitical tussle between Washington and Beijing.`\
+https://nytimes.com/2025/04/07/technology/trump-tiktok-china-tariffs.html
+
 **Man Questioned in Killings of 4 at Georgia Trailer Park**\
 `The authorities said that the killings appeared to have stemmed from a domestic dispute. Investigators in Perry, Ga., said the four victims, who ranged in age from 2 to 82, were related.`\
 https://nytimes.com/2025/04/07/us/georgia-trailer-park-killings.html
