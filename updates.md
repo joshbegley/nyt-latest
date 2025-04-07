@@ -1,3 +1,7 @@
+**Review: How ‘The Last Five Years’ Became a Blur on Broadway**\
+`Nick Jonas and Adrienne Warren star in a muddy revival of Jason Robert Brown’s still-scathing musical.`\
+https://nytimes.com/2025/04/06/theater/last-five-years-broadway-nick-jonas-adrienne-warren.html
+
 **Bitcoin Is Down 10% Since Trump’s Global Tariff Announcement**\
 `The rapid drop shows that cryptocurrencies, which the president has promoted, are subject to the same market gyrations as any other risky asset.`\
 https://nytimes.com/2025/04/06/business/economy/trump-bitcoin-crypto-tariffs.html

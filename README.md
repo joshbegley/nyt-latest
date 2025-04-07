@@ -1,3 +1,7 @@
+**Red Wings' winning weekend sets up 'biggest game of the year': 5 thoughts**\
+`Wins over Carolina and Florida have the given the Red Wings' upcoming trip to Montreal some real meaning.`\
+https://nytimes.com/athletic/6260276/2025/04/06/red-wings-debrincat-talbot-playoffs-panthers/
+
 **Review: How ‘The Last Five Years’ Became a Blur on Broadway**\
 `Nick Jonas and Adrienne Warren star in a muddy revival of Jason Robert Brown’s still-scathing musical.`\
 https://nytimes.com/2025/04/06/theater/last-five-years-broadway-nick-jonas-adrienne-warren.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6260321/2025/04/06/uconn-national-championship-geno
 **Everything we know so far about Alexander Ovechkin's 895th goal memorabilia and collectibles**\
 `What Ovechkin has earmarked for his planned museum in Moscow and more`\
 https://nytimes.com/athletic/6259473/2025/04/06/alexander-ovechkin-895-memorabilia/
-
-**Familiar script: Blue Jackets fall behind early, suffer second straight shutout**\
-`The Blue Jackets have now matched a franchise record in allowing 14 straight unanswered goals.`\
-https://nytimes.com/athletic/6260105/2025/04/06/blue-jackets-shutout-tarasov-merzlikins-senators/
 
