@@ -1,3 +1,15 @@
+**Guide to The Times Newsroom: Breaking News**\
+`Our mission is to help you understand the world. Here, we want to help you understand us, and how we work.`\
+https://nytimes.com/2025/04/07/reader-center/new-york-times-breaking-news-process.html
+
+**The Athletic college baseball Top 25: Arkansas powers into top spot**\
+`Tennessee's reign atop the poll ends after five weeks following a series loss at home to Texas A&M.`\
+https://nytimes.com/athletic/6261399/2025/04/07/college-baseball-top-25-arkansas-tennessee-texas/
+
+**Will the Nuggets' string of bad games drop them into the NBA's Play-In Tournament?**\
+`Instead of playing their best basketball, the Nuggets are flailing at the wrong time, especially on the defensive end. `\
+https://nytimes.com/athletic/6260840/2025/04/07/nuggets-losing-change-play-in-tournament/
+
 **U.S. Visa Ban Adds to South Sudan’s Mounting Troubles**\
 `The Trump administration’s revocation of all visas held by South Sudanese nationals comes as the East African nation faces the threat of renewed war.`\
 https://nytimes.com/2025/04/07/world/africa/south-sudan-visas-trump.html
