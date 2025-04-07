@@ -1,3 +1,7 @@
+**Real Madrid's Courtois says he is 'fine' ahead of Arsenal Champions League clash**\
+`Courtois has missed four of Madrid’s last six matches across all competitions including Saturday's La Liga defeat at home to Valencia.`\
+https://nytimes.com/athletic/6259246/2025/04/07/real-madrid-thibaut-courtois-arsenal/
+
 **Explaining Real Madrid's 'crisis de los penaltis': Why do they miss more than their rivals?**\
 `The European champions are in a slump when it comes to converting penalties - will it cost them in the big games to come?`\
 https://nytimes.com/athletic/6261997/2025/04/07/real-madrid-penalty-miss-crisis/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/04/07/business/trump-tariffs-stock-market/copper-m
 **How far can the Blues go in the playoffs? Is the retool over? 2025-26 line combos? Mailbag, part 1**\
 `The Blues have sped up the retool with a strong finish to the 2024-25 season, but there are still moves that need to be made.`\
 https://nytimes.com/athletic/6257761/2025/04/07/blues-playoffs-retool-line-combos/
-
-**Defending Trump Policies in Court Leads to Criticism, Doubt and Punishment**\
-`Inside the Justice Department’s civil division, lawyers are squeezed between judges demanding answers and bosses’ instructions to protect the Trump agenda at all costs.`\
-https://nytimes.com/2025/04/07/us/politics/justice-department-trump-policies-defense.html
 
