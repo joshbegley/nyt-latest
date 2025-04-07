@@ -1,3 +1,11 @@
+**Bogarde signs new Aston Villa contract**\
+`Lamare Bogarde has signed a new contract at Aston Villa.`\
+https://nytimes.com/athletic/6261761/2025/04/07/lamare-bogarde-contract-aston-villa/
+
+**Grand Slam Track debuts with some solid moments and one big lingering question**\
+`Grand Slam Track debuted this weekend to sparse crowds and mixed reviews, but it also had some promising signs.`\
+https://nytimes.com/athletic/6258753/2025/04/07/grand-slam-track-debut-review-michael-johnson/
+
 **At 88, a Nutritionist Meets Her Moment**\
 `After five decades in the field of nutrition, Dr. Marion Nestle thought she had seen it all. Then came “Make America Healthy Again.”`\
 https://nytimes.com/2025/04/07/well/marion-nestle-nutrition-food-profile.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6261579/2025/04/07/arsenal-real-madrid-champions-le
 **How Much Do You Know About the History of Books?**\
 `Try this short quiz on the material side of reading.`\
 https://nytimes.com/interactive/2025/04/07/books/review/book-history-quiz.html
-
-**Conversations and insights about the moment.**\
-``\
-https://nytimes.com/live/2025/04/07/opinion/thepoint
-
-**Lowetide: Why the Oilers' list of scratches in the playoffs may surprise**\
-`It's possible several regular-season contributors won't be in the Oilers lineup for Game 1 of the postseason.`\
-https://nytimes.com/athletic/6259160/2025/04/07/edmonton-oilers-2025-playoffs-roster/
 
