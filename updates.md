@@ -1,3 +1,11 @@
+**Texas Governor Sets November Election to Fill Heavily Democratic House Seat**\
+`Democrats have argued that Gov. Greg Abbott, a Republican, did not act faster to fill the vacant seat because he didn’t want the narrow Republicans majority in Congress to shrink.`\
+https://nytimes.com/2025/04/07/us/texas-house-seat.html
+
+**Rep. John James of Michigan Announces Bid for Governor**\
+`The Republican congressman joins a crowded field vying to replace Gov. Gretchen Whitmer, who is term-limited.`\
+https://nytimes.com/2025/04/07/us/politics/john-james-michigan-governor.html
+
 **Another female leader in the U.S. military is fired by the Trump administration.**\
 `Vice Adm. Shoshana Chatfield has joined a list of several leaders who have been purged from the military’s highest ranks.`\
 https://nytimes.com/live/2025/04/07/us/trump-news/another-female-leader-in-the-us-military-is-fired-by-the-trump-administration
