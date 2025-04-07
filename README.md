@@ -1,3 +1,11 @@
+**South Carolina players 'soak in this sucky feeling' in hopes of returning stronger**\
+`South Carolina's 82-59 loss to UConn ended the Gamecocks' quest to repeat as champions. `\
+https://nytimes.com/athletic/6260215/2025/04/06/south-carolina-national-championship-loss-uconn/
+
+**‘I’m Assuming You Know David Greenspan’ Review: What Are You Waiting For?**\
+`Mona Pirnot’s comic ode to the downtown artist doubles as a meditation on the precariousness of playwriting as a creative life.`\
+https://nytimes.com/2025/04/06/theater/im-assuming-you-know-david-greenspan-review.html
+
 **Twins takeaways: Brutal loss to Astros, Royce Lewis' progress, low attendance**\
 `"Some losses are different than other losses. This is going to be a tough one that's going to bother a lot of people in our clubhouse." `\
 https://nytimes.com/athletic/6260033/2025/04/06/twins-astros-royce-lewis-injury-attendance/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6259957/2025/04/06/braves-drake-baldwin-ronald-acun
 **Amadou Bagayoko, Half of Malian Duo Who Went Global, Dies at 70**\
 `As Amadou & Mariam, he and his wife were improbable pop stars on two counts. Their style was venturesome and eclectic, and they were blind virtuosos.`\
 https://nytimes.com/2025/04/06/obituaries/amadou-bagayoko-dead.html
-
-**The immigration status of a Duke basketball star from South Sudan is unclear.**\
-`By Bernard Mokam`\
-https://nytimes.com/live/2025/04/06/us/trump-news-updates/the-immigration-status-of-a-duke-basketball-star-from-south-sudan-is-unclear
-
-**T.J. Oshie, Nicklas Backstrom revel in Ovechkin's accomplishment: 'We're like brothers'**\
-`Oshie and Backstrom were by Ovechkin's side during the long journey to the record. Sunday's game was no different.`\
-https://nytimes.com/athletic/6259691/2025/04/06/ovechkin-record-oshie-backstrom-reaction-capitals/
 
