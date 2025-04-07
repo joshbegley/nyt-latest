@@ -1,3 +1,15 @@
+**Leading football agent arrested on suspicion of rape, causing grievous bodily harm**\
+`The man was arrested on March 29 after his flight landed at London’s Heathrow Airport.`\
+https://nytimes.com/athletic/6261385/2025/04/07/football-soccer-agent-arrest/
+
+**Guardiola: Nunes 'not clever enough' to play in Man City's midfield**\
+`Nunes has often been utilised at right-back since Kyle Walker’s departure on loan to AC Milan in January.`\
+https://nytimes.com/athletic/6261433/2025/04/07/pep-guardiola-matheus-nunes-not-clever-enough-to-play-in-manchester-citys-midfield/
+
+**Lawsuit Accuses Prominent Palestinian American of Supporting Hamas**\
+`The complaint against the businessman, Bashar Masri, does not say that he knew about the Oct. 7 attack in advance but does assert that he was aware of the Hamas military infrastructure at his properties.`\
+https://nytimes.com/2025/04/07/us/politics/lawsuit-american-palestinian-hamas.html
+
 **Guide to The Times Newsroom: Breaking News**\
 `Our mission is to help you understand the world. Here, we want to help you understand us, and how we work.`\
 https://nytimes.com/2025/04/07/reader-center/new-york-times-breaking-news-process.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6261257/2025/04/07/ernest-nuamah-acl-injury-lyon/
 **Red Sox's Jarren Duran will get warm ovation his next at-bat. His struggle touches us all**\
 `Duran speaks candidly about his mental health struggles and reveals a suicide attempt in a Netflix documentary that airs Tuesday. `\
 https://nytimes.com/athletic/6260799/2025/04/07/jarren-duran-netflix-red-sox-documentary-mental-health/
-
-**CAS rule Norwegian club won't pay fine on 'UEFA Mafia' chants, banners**\
-`Brann supporters chanted “UEFA Mafia” at a Women’s Champions League match against St. Polten in January 2024.`\
-https://nytimes.com/athletic/6259154/2025/04/07/uefa-chant-banner-fine-cas-appeal/
-
-**Trump’s Least Favorite Judge Has Friends in High Places**\
-`To President Trump, Judge James E. Boasberg is “a troublemaker” and a “Radical Left Lunatic.” But his record and biography, including a friendship with Justice Brett M. Kavanaugh, say otherwise.`\
-https://nytimes.com/2025/04/07/us/politics/trump-judge-boasberg-kavanaugh.html
-
-**Why Cameras Are Popping Up in Eldercare Facilities**\
-`Roughly 20 states now have laws permitting families to place cameras in the rooms of loved ones. Facility operators are often opposed.`\
-https://nytimes.com/2025/04/07/health/cameras-assisted-living.html
 

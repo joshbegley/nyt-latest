@@ -1,3 +1,15 @@
+**Leading football agent arrested on suspicion of rape, causing grievous bodily harm**\
+`The man was arrested on March 29 after his flight landed at London’s Heathrow Airport.`\
+https://nytimes.com/athletic/6261385/2025/04/07/football-soccer-agent-arrest/
+
+**Guardiola: Nunes 'not clever enough' to play in Man City's midfield**\
+`Nunes has often been utilised at right-back since Kyle Walker’s departure on loan to AC Milan in January.`\
+https://nytimes.com/athletic/6261433/2025/04/07/pep-guardiola-matheus-nunes-not-clever-enough-to-play-in-manchester-citys-midfield/
+
+**Lawsuit Accuses Prominent Palestinian American of Supporting Hamas**\
+`The complaint against the businessman, Bashar Masri, does not say that he knew about the Oct. 7 attack in advance but does assert that he was aware of the Hamas military infrastructure at his properties.`\
+https://nytimes.com/2025/04/07/us/politics/lawsuit-american-palestinian-hamas.html
+
 **Guide to The Times Newsroom: Breaking News**\
 `Our mission is to help you understand the world. Here, we want to help you understand us, and how we work.`\
 https://nytimes.com/2025/04/07/reader-center/new-york-times-breaking-news-process.html
