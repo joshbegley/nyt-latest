@@ -1,3 +1,11 @@
+**Are Azzi Fudd and Sarah Strong the keys to UConn running it back?**\
+`Strong and Fudd each scored 24 points to beat South Carolina for the national championship. `\
+https://nytimes.com/athletic/6260519/2025/04/06/are-azzi-fudd-and-sarah-strong-the-keys-to-uconn-running-it-back/
+
+**Cavs miss chance to clinch East; Donovan Mitchell suffers injury scare: What it means**\
+`Up four games on the Boston Celtics with four to play, Cleveland has four more chances to close this thing out.`\
+https://nytimes.com/athletic/6260488/2025/04/06/cavaliers-kings-donovan-mitchell-ankle/
+
 **Red Wings' winning weekend sets up 'biggest game of the year': 5 thoughts**\
 `Wins over Carolina and Florida have the given the Red Wings' upcoming trip to Montreal some real meaning.`\
 https://nytimes.com/athletic/6260276/2025/04/06/red-wings-debrincat-talbot-playoffs-panthers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6260023/2025/04/06/chicago-cubs-summer-wrigley-fiel
 **Yohe's 10 observations: Malkin pays tribute to Ovechkin following Penguins loss**\
 `More than 20 years after Ovechkin and Malkin were drafted back to back, the Penguins' Russian gushed about his compatriot's new record.`\
 https://nytimes.com/athletic/6259821/2025/04/06/penguins-malkin-ovechkin-crosby-fatigue-blackhawks/
-
-**He's tried to retire, but Geno Auriemma keeps coming back ... and winning**\
-`Auriemma has won more than anyone in women's college basketball. Yet, he's still hungry for more. `\
-https://nytimes.com/athletic/6260321/2025/04/06/uconn-national-championship-geno-auriemma/
-
-**Everything we know so far about Alexander Ovechkin's 895th goal memorabilia and collectibles**\
-`What Ovechkin has earmarked for his planned museum in Moscow and more`\
-https://nytimes.com/athletic/6259473/2025/04/06/alexander-ovechkin-895-memorabilia/
 
