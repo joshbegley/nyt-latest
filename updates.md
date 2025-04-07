@@ -1,3 +1,19 @@
+**Israeli Strike By a Major Hospital in Gaza Kills and Injures Journalists**\
+`The strike killed one journalist and injured nine others, according to the Palestinian Journalists Syndicate.`\
+https://nytimes.com/video/world/middleeast/100000010095641/israeli-strike-gaza-journalists-hospital.html
+
+**This Easy Crumble Has Peanut Butter-and-Jelly Vibes**\
+`Made with almonds, coconut and almond butter, this rosy crumble is Passover Seder ready and great all year.`\
+https://nytimes.com/2025/04/07/dining/easy-dessert-passover-seder.html
+
+**Dodgers celebrate World Series title at White House: 'An incredible honor'**\
+`Trump repeatedly praised the 2024 World Series champions for “some of the most incredible performances ever seen on the baseball diamond."`\
+https://nytimes.com/athletic/6262205/2025/04/07/dodgers-white-house-world-series/
+
+**Explaining Real Madrid's 'crisis de los penaltis': Why do they miss more than their rivals?**\
+`The European champions are in a slump when it comes to converting penalties — will it cost them in the big games to come?`\
+https://nytimes.com/athletic/6261997/2025/04/07/real-madrid-penalty-miss-crisis/
+
 **Transgender Woman Arrested After Using Bathroom at Florida State Capitol**\
 `Marcy Rheintgen said she was held in jail overnight after she deliberately challenged a state law by entering a women’s bathroom in the government building.`\
 https://nytimes.com/2025/04/07/us/politics/trans-student-arrest-bathroom-law-florida.html

@@ -1,3 +1,15 @@
+**Israeli Strike By a Major Hospital in Gaza Kills and Injures Journalists**\
+`The strike killed one journalist and injured nine others, according to the Palestinian Journalists Syndicate.`\
+https://nytimes.com/video/world/middleeast/100000010095641/israeli-strike-gaza-journalists-hospital.html
+
+**This Easy Crumble Has Peanut Butter-and-Jelly Vibes**\
+`Made with almonds, coconut and almond butter, this rosy crumble is Passover Seder ready and great all year.`\
+https://nytimes.com/2025/04/07/dining/easy-dessert-passover-seder.html
+
+**Dodgers celebrate World Series title at White House: 'An incredible honor'**\
+`Trump repeatedly praised the 2024 World Series champions for “some of the most incredible performances ever seen on the baseball diamond."`\
+https://nytimes.com/athletic/6262205/2025/04/07/dodgers-white-house-world-series/
+
 **Transgender Woman Arrested After Using Bathroom at Florida State Capitol**\
 `Marcy Rheintgen said she was held in jail overnight after she deliberately challenged a state law by entering a women’s bathroom in the government building.`\
 https://nytimes.com/2025/04/07/us/politics/trans-student-arrest-bathroom-law-florida.html
@@ -15,7 +27,7 @@ https://nytimes.com/2025/04/07/nyregion/new-york-weed-marijuana-investigations.h
 https://nytimes.com/athletic/6259246/2025/04/07/real-madrid-thibaut-courtois-arsenal/
 
 **Explaining Real Madrid's 'crisis de los penaltis': Why do they miss more than their rivals?**\
-`The European champions are in a slump when it comes to converting penalties - will it cost them in the big games to come?`\
+`The European champions are in a slump when it comes to converting penalties — will it cost them in the big games to come?`\
 https://nytimes.com/athletic/6261997/2025/04/07/real-madrid-penalty-miss-crisis/
 
 **Five Canadian forwards making their case for the Olympics after 4 Nations snubs**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6261996/2025/04/07/canada-olympics-forwards-4-natio
 **‘The White Lotus’: Walton Goggins Knows It Had to End This Way**\
 `“I realized that there was really no other conclusion,” the actor said in an interview on Monday about the season finale.`\
 https://nytimes.com/2025/04/07/arts/television/walton-goggins-white-lotus-finale.html
-
-**A top White House adviser indicates that offers from trading partners won’t convince Trump to retreat.**\
-`By Ana Swanson`\
-https://nytimes.com/live/2025/04/07/business/trump-tariffs-stock-market/a-top-white-house-adviser-indicates-that-offers-from-trading-partners-wont-convince-trump-to-retreat
-
-**How to watch the Yankees at Tigers series as Aaron Judge faces Detroit's top arms**\
-`The Yankees and Tigers, atop the AL East and Central, respectively, face off in a three-game series running Monday through Wednesday.`\
-https://nytimes.com/athletic/6261311/2025/04/07/yankees-tigers-how-to-watch/
-
-**Video Shows Search for Missing Gaza Paramedics Before Israelis Shoot Rescuers**\
-`The Palestine Red Crescent released a video made by a paramedic before he was killed, and called the deaths of 15 rescue workers “a full-fledged war crime.” Israel has said it is investigating.`\
-https://nytimes.com/2025/04/07/world/middleeast/gaza-paramedics-video.html
 
