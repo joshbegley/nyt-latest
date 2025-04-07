@@ -1,3 +1,7 @@
+**New Study Links Diabetes in Pregnancy to Developmental Risks in Children**\
+`Researchers reviewed data from more than 56 million pregnancies to examine the connection between diabetes and A.D.H.D., autism and intellectual disability.`\
+https://nytimes.com/2025/04/07/well/live/pregnancy-diabetes-adhd.html
+
 **Can Musk Pull Trump Back From theTariff Ledge?**\
 `Elon Musk has been criticizing Trump’s tariff policy — and publicly. Could there be a strategy?`\
 https://nytimes.com/2025/04/07/us/politics/elon-musk-tariffs-trump.html
@@ -33,10 +37,4 @@ https://nytimes.com/athletic/6262740/2025/04/07/khaman-maluach-duke-south-sudan-
 **Google Says Employees Can Discuss Antitrust Case**\
 `The Silicon Valley giant had ordered employees to stay silent on the landmark case before reaching a settlement with a workers’ union over the issue.`\
 https://nytimes.com/2025/04/07/technology/google-antitrust-union-settlement.html
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>With March Madness behind us, we can turn our attention to spring football. Or at least what&#8217;s left of it.</p>
-<p>Please leave your questions here. Please include your city.</p>
-`\
-https://nytimes.com/athletic/6262839/2025/04/07/submit-a-question-for-stewart-mandels-college-football-mailbag-297/
 

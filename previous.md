@@ -1,3 +1,11 @@
+**Can Musk Pull Trump Back From theTariff Ledge?**\
+`Elon Musk has been criticizing Trump’s tariff policy — and publicly. Could there be a strategy?`\
+https://nytimes.com/2025/04/07/us/politics/elon-musk-tariffs-trump.html
+
+**Miami has De Bruyne's MLS discovery rights – and could sign him this summer**\
+`Inter Miami already has a host of world-class stars, but it's possible that there's room for one more.`\
+https://nytimes.com/athletic/6256074/2025/04/07/kevin-de-bruyne-inter-miami-mls-discovery-rights-man-city/
+
 **What could Vladimir Guerrero Jr.'s extension with Blue Jays mean for the Mets' Pete Alonso?**\
 `It’s easier for Alonso to argue for “90 percent of what Guerrero got” — or about $32 million or more per season.`\
 https://nytimes.com/athletic/6262803/2025/04/07/mets-blue-jays-vladimir-guerrero-pete-alonso/
@@ -31,12 +39,4 @@ https://nytimes.com/2025/04/07/technology/google-antitrust-union-settlement.html
 <p>Please leave your questions here. Please include your city.</p>
 `\
 https://nytimes.com/athletic/6262839/2025/04/07/submit-a-question-for-stewart-mandels-college-football-mailbag-297/
-
-**Man’s 7 ‘Emotional Support’ Tigers Seized in Nevada**\
-`The local authorities arrested Karl Mitchell, who claimed he had been authorized by a doctor to keep the tigers.`\
-https://nytimes.com/2025/04/07/us/tigers-nevada-arrest-joe-exotic.html
-
-**Another Law Firm Braces for Possible Blowback From Trump**\
-`Cadwalader, Wickersham & Taft balked at having one of its partners represent Donald Trump in his criminal cases. Now the firm is among those that have been pushed to agree to a deal with the White House.`\
-https://nytimes.com/2025/04/07/us/politics/law-firms-trump-cadwalader-wickersham-taft.html
 
