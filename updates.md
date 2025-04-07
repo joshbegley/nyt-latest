@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>With March Madness behind us, we can turn our attention to spring football. Or at least what&#8217;s left of it.</p>
+<p>Please leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6262839/2025/04/07/submit-a-question-for-stewart-mandels-college-football-mailbag-297/
+
 **Google Says Employees Can Discuss Antitrust Case**\
 `The Silicon Valley giant had ordered employees to stay silent on the landmark case before reaching a settlement with a workers’ union over the issue.`\
 https://nytimes.com/2025/04/07/technology/google-antitrust-union-settlement.html

@@ -2,6 +2,12 @@
 `The Silicon Valley giant had ordered employees to stay silent on the landmark case before reaching a settlement with a workers’ union over the issue.`\
 https://nytimes.com/2025/04/07/technology/google-antitrust-union-settlement.html
 
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>With March Madness behind us, we can turn our attention to spring football. Or at least what&#8217;s left of it.</p>
+<p>Please leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6262839/2025/04/07/submit-a-question-for-stewart-mandels-college-football-mailbag-297/
+
 **Man’s 7 ‘Emotional Support’ Tigers Seized in Nevada**\
 `The local authorities arrested Karl Mitchell, who claimed he had been authorized by a doctor to keep the tigers.`\
 https://nytimes.com/2025/04/07/us/tigers-nevada-arrest-joe-exotic.html
@@ -33,8 +39,4 @@ https://nytimes.com/2025/04/07/dining/white-lotus-pong-pong-fruit-suicide-tree.h
 **Columbia’s Former Leader Faced Contentious Interview After Resigning**\
 `Dr. Katrina Armstrong told a federal task force she could not remember details from the university’s report on antisemitism or her response to its recommendations.`\
 https://nytimes.com/2025/04/07/nyregion/columbia-president-armstrong-federal-deposition.html
-
-**Trump and Paramount Agree on Mediator in ‘60 Minutes’ Lawsuit**\
-`President Trump’s $20 billion suit accuses CBS News of deceptively editing an interview with former Vice President Kamala Harris.`\
-https://nytimes.com/2025/04/07/business/media/trump-paramount-mediator-60-minutes.html
 

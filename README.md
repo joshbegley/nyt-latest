@@ -1,3 +1,15 @@
+**Trump Says the U.S. and Iran Will Hold ‘Direct’ Nuclear Talks**\
+`President Trump pulled out of the last Iran nuclear accord in 2018, and negotiators from the two nations have not met face-to-face since.`\
+https://nytimes.com/2025/04/07/us/politics/iran-nuclear-talks-trump.html
+
+**FEMA Cuts More Than $300 Million in Disaster Aid to New York**\
+`Much of the money was to go toward flood mitigation in vulnerable areas of New York City that were struck hard by Hurricane Sandy and the remnants of Hurricane Ida.`\
+https://nytimes.com/2025/04/07/nyregion/fema-cuts-new-york.html
+
+**How U.S. move to revoke South Sudanese visas could impact Duke's Maluach**\
+`The decision is not likely to impact players currently in the NBA, WNBA or G League.`\
+https://nytimes.com/athletic/6262740/2025/04/07/khaman-maluach-duke-south-sudan-trump-rubio-visa/
+
 **Google Says Employees Can Discuss Antitrust Case**\
 `The Silicon Valley giant had ordered employees to stay silent on the landmark case before reaching a settlement with a workers’ union over the issue.`\
 https://nytimes.com/2025/04/07/technology/google-antitrust-union-settlement.html
@@ -27,16 +39,4 @@ https://nytimes.com/2025/04/07/briefing/trump-china-tariffs-us-iran-ukraine-navy
 **Brad Shaw would 'really like to try' being Flyers' permanent coach. Could he be the right fit?**\
 `One of Shaw's previous bosses, Ken Hitchcock, believes Shaw would thrive running his own bench.`\
 https://nytimes.com/athletic/6262511/2025/04/07/flyers-coach-brad-shaw/
-
-**The Briefing: Leicester 0 Newcastle 3 - Champions League chances, Schar's audacious shot, Murphy's turnaround**\
-`Our writers break down the action from a comfortable away win at the King Power.`\
-https://nytimes.com/athletic/6255637/2025/04/07/newcastle-leicester-schar-champions-league/
-
-**The Pong-Pong Fruit in ‘White Lotus’ Really Is That Dangerous**\
-`Indigenous to parts of South and Southeast Asia, Australia and the Pacific islands, the fruit contains a toxin in its seeds that attacks the heart.`\
-https://nytimes.com/2025/04/07/dining/white-lotus-pong-pong-fruit-suicide-tree.html
-
-**Columbia’s Former Leader Faced Contentious Interview After Resigning**\
-`Dr. Katrina Armstrong told a federal task force she could not remember details from the university’s report on antisemitism or her response to its recommendations.`\
-https://nytimes.com/2025/04/07/nyregion/columbia-president-armstrong-federal-deposition.html
 
