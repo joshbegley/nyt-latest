@@ -1,3 +1,11 @@
+**Blanca, an Acclaimed Brooklyn Restaurant, Is Closing**\
+`The quirky tasting counter behind Roberta’s pizzeria mixed low-key vibes with high-stakes cuisine.`\
+https://nytimes.com/2025/04/07/dining/blanca-nyc-restaurant-closing.html
+
+**Browns QB tracker: Shedeur Sanders and other options available in the draft**\
+`A QB search that’s mysterious both in its nature and because Cleveland has only added Kenny Pickett thus far now extends to the NFL Draft.`\
+https://nytimes.com/athletic/6260324/2025/04/07/browns-quarterback-tracker-shedeur-sanders-nfl-draft/
+
 **NBA Rewind: Everything that's at stake in the season's final week**\
 `Let's examine all the playoff seeding (and tanking) scenarios as the 2024-25 regular season draws to a close.`\
 https://nytimes.com/athletic/6254698/2025/04/07/nba-rewind-rockets-playoff-standings/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/07/business/dealbook/trump-tariffs-off-ramp.html
 **Putin Calls N.H.L. Star’s Record-Setting Goal a Reason for Russia to Celebrate**\
 `Alex Ovechkin’s feat put a fresh spotlight on the hockey star’s past support for Russia’s leader and on his stance on the war in Ukraine.`\
 https://nytimes.com/2025/04/07/world/europe/ovechkin-putin-russia-nhl.html
-
-**NHL pre-playoffs vibe check: Stars vs. Jets and other storylines to watch down the stretch**\
-`Is the top of the West still in play? Can Tavares and Knies help the Maple Leafs in the postseason? And what's going on at Crypto.com Arena?`\
-https://nytimes.com/athletic/6260273/2025/04/07/nhl-vibe-check-playoffs-2024-25/
-
-**Trump Administration Live Updates: Netanyahu Heads to White House**\
-``\
-https://nytimes.com/live/2025/04/07/us/trump-news
 
