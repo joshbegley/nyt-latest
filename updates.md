@@ -1,3 +1,23 @@
+**Transgender Woman Arrested After Using Bathroom at Florida State Capitol**\
+`Marcy Rheintgen said she was held in jail overnight after she deliberately challenged a state law by entering a women’s bathroom in the government building.`\
+https://nytimes.com/2025/04/07/us/politics/trans-student-arrest-bathroom-law-florida.html
+
+**Trump Is Threatening School Funding. Here’s What Families Should Know.**\
+`The impact of the upheaval could vary greatly across the country. New York, for example, is not feeling significant effects so far, but district leaders are watching closely.`\
+https://nytimes.com/2025/04/07/nyregion/trump-education-funding-schools-parents.html
+
+**New York Regulators Target Weed Brands Accused of Breaking Rules**\
+`New York State is investigating some of America’s biggest cannabis brands over a tactic that has become pervasive in the absence of strong oversight.`\
+https://nytimes.com/2025/04/07/nyregion/new-york-weed-marijuana-investigations.html
+
+**Real Madrid's Courtois says he is 'fine' ahead of Arsenal Champions League clash**\
+`Courtois has missed four of Madrid’s last six matches across all competitions including Saturday's La Liga defeat at home to Valencia.`\
+https://nytimes.com/athletic/6259246/2025/04/07/real-madrid-thibaut-courtois-arsenal/
+
+**‘The White Lotus’: Walton Goggins Knows It Had to End This Way**\
+`“I realized that there was really no other conclusion,” the actor said in an interview on Monday about the season finale.`\
+https://nytimes.com/2025/04/07/arts/television/walton-goggins-white-lotus-finale.html
+
 **Explaining Real Madrid's 'crisis de los penaltis': Why do they miss more than their rivals?**\
 `The European champions are in a slump when it comes to converting penalties - will it cost them in the big games to come?`\
 https://nytimes.com/athletic/6261997/2025/04/07/real-madrid-penalty-miss-crisis/
