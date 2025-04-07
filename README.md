@@ -1,3 +1,15 @@
+**Guide to The Times Newsroom: Breaking News**\
+`Our mission is to help you understand the world. Here, we want to help you understand us, and how we work.`\
+https://nytimes.com/2025/04/07/reader-center/new-york-times-breaking-news-process.html
+
+**The Athletic college baseball Top 25: Arkansas powers into top spot**\
+`Tennessee's reign atop the poll ends after five weeks following a series loss at home to Texas A&M.`\
+https://nytimes.com/athletic/6261399/2025/04/07/college-baseball-top-25-arkansas-tennessee-texas/
+
+**Will the Nuggets' string of bad games drop them into the NBA's Play-In Tournament?**\
+`Instead of playing their best basketball, the Nuggets are flailing at the wrong time, especially on the defensive end. `\
+https://nytimes.com/athletic/6260840/2025/04/07/nuggets-losing-change-play-in-tournament/
+
 **U.S. Visa Ban Adds to South Sudan’s Mounting Troubles**\
 `The Trump administration’s revocation of all visas held by South Sudanese nationals comes as the East African nation faces the threat of renewed war.`\
 https://nytimes.com/2025/04/07/world/africa/south-sudan-visas-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/07/us/politics/trump-judge-boasberg-kavanaugh.html
 **Why Cameras Are Popping Up in Eldercare Facilities**\
 `Roughly 20 states now have laws permitting families to place cameras in the rooms of loved ones. Facility operators are often opposed.`\
 https://nytimes.com/2025/04/07/health/cameras-assisted-living.html
-
-**The Windup: Vlad Jr., Blue Jays finally get it done**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6260508/2025/04/07/vlad-guerrero-blue-jays-contract-the-windup/
-
-**As Kennedy Champions Chronic Disease Prevention, Key Research Is Cut**\
-`Two significant programs that invested in research on diabetes, dementia, obesity and kidney disease have ended since the start of the Trump administration.`\
-https://nytimes.com/2025/04/07/health/rfk-hhs-diabetes-obesity-disease.html
-
-**College baseball week in review: Are the Aggies back? Texas A&M showing signs of life**\
-`Texas makes a statement by sweeping Georgia. Wake Forest bounces back against Florida State. Western Kentucky is for real. `\
-https://nytimes.com/athletic/6260507/2025/04/07/college-baseball-texas-am-tennessee-lsu-texas/
 

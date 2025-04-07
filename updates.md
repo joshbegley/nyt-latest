@@ -1,3 +1,11 @@
+**U.S. Visa Ban Adds to South Sudan’s Mounting Troubles**\
+`The Trump administration’s revocation of all visas held by South Sudanese nationals comes as the East African nation faces the threat of renewed war.`\
+https://nytimes.com/2025/04/07/world/africa/south-sudan-visas-trump.html
+
+**No Corrections: April 7, 2025**\
+`No corrections appeared in print on Monday, April 7, 2025.`\
+https://nytimes.com/2025/04/07/pageoneplus/no-corrections-april-7-2025.html
+
 **Lyon winger Nuamah suffers ACL injury**\
 `Lyon confirmed Nuamah suffered the injury to his left knee during Saturday's Ligue 1 victory over Lille.`\
 https://nytimes.com/athletic/6261257/2025/04/07/ernest-nuamah-acl-injury-lyon/
