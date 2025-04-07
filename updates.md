@@ -1,4 +1,8 @@
 **'That's more of the team we're used to': Behind the Wild's huge overtime win**\
+`The Wild bounced back with a victory to strengthen their playoff chances after a dismal trip.`\
+https://nytimes.com/athletic/6259469/2025/04/06/wild-overtime-boldy-penalty-kill-stars/
+
+**'That's more of the team we're used to': Behind the Wild's huge overtime win**\
 `The Wild bounced back after a dismal road trip with a victory to strengthen their playoff chances.`\
 https://nytimes.com/athletic/6259469/2025/04/06/wild-overtime-boldy-penalty-kill-stars/
 

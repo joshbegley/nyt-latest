@@ -1,3 +1,11 @@
+**Jay North, Child Star From ‘Dennis the Menace,’ Dies at 73**\
+`Mr. North was best known for playing the towheaded Dennis Mitchell on the television series, which ran on CBS from 1959 to 1963.`\
+https://nytimes.com/2025/04/06/arts/television/jay-north-dennis-the-menance-dead.html
+
+**Yankees takeaways: Williams not to blame for loss, Rice beefs up, Judge's bling**\
+`While Williams earned his first loss with the Yankees — 5-4 in 11 innings in Pittsburgh — several other factors came into play.`\
+https://nytimes.com/athletic/6259766/2025/04/06/yankees-takeaways-devin-williams-ben-rice/
+
 **'That's more of the team we're used to': Behind the Wild's huge overtime win**\
 `The Wild bounced back with a victory to strengthen their playoff chances after a dismal trip.`\
 https://nytimes.com/athletic/6259469/2025/04/06/wild-overtime-boldy-penalty-kill-stars/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6259691/2025/04/06/ovechkin-record-oshie-backstrom-
 **Brian Harman wins Texas Open, his first win since 2023 Open Championship**\
 `Harman earned his fourth career PGA Tour victory in windy conditions.`\
 https://nytimes.com/athletic/6259478/2025/04/06/brian-harman-wins-texas-open/
-
-**Stocks Are Set to Extend Sharp Fall**\
-`Futures on the S&P 500, which allow investors to trade the index before regular trading begins on Monday, added to last week’s sell-off.`\
-https://nytimes.com/2025/04/06/business/stocks-trump-tariffs.html
-
-**Dodger Details: Blake Snell's injury, Tommy Edman's adjustment and what else we're seeing**\
-`Tyler Glasnow lasted just 60 pitches, less than half of which were strikes, as he struggled with the rainy conditions.`\
-https://nytimes.com/athletic/6259714/2025/04/06/dodgers-blake-snell-tommy-edman/
 
