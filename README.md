@@ -1,3 +1,11 @@
+**Canadiens weekly notebook: Bad starts, Hutson keeps rolling, Savard’s perspective**\
+`Also in this week's notebook, Cole Caufield's not satisfied, Juraj Slafkovský's chirp game, a former teammate of Sean Farrell heaps praise.`\
+https://nytimes.com/athletic/6260794/2025/04/07/canadiens-lane-hutson-david-savard/
+
+**Giants weekly recap: Buster Posey's team is off to a historically impressive start**\
+`This is only the second Giants team in the modern era to begin a season 8-1. It's been a special start to the season thus far.`\
+https://nytimes.com/athletic/6259924/2025/04/07/sf-giants-historic-season-start-2025/
+
 **Kyren Paris' swing change has Angels fans excited again. But will he play every day?**\
 `Fans are excited about the success Paris has had but when will he get the chance to play full-time?`\
 https://nytimes.com/athletic/6259514/2025/04/07/angels-kyren-paris-swing-playing-time/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/07/business/britain-electric-vehicles-auto-tariffs.h
 **Lakers' dominant win over Thunder is a reminder of their playoff ceiling**\
 `Dončić scored 30 as Los Angeles made the league's best defense look helpless. `\
 https://nytimes.com/athletic/6260457/2025/04/07/lakers-luka-doncic-thunder-win/
-
-**How one European club shares a common thread with LeBron beyond the court**\
-`Alba Berlin's relationship with nearby schools is a rare one and sparks the question: Why don't we see more of it?`\
-https://nytimes.com/athletic/6259126/2025/04/07/lebron-james-i-promise-alba-berlin-basketball/
-
-**Does Trump Have an ‘Off Ramp’?**\
-`With global markets again in free-fall, the president appeared to be losing support of business leaders, raising questions about his leverage in his trade fight.`\
-https://nytimes.com/2025/04/07/business/dealbook/trump-tariffs-off-ramp.html
 
