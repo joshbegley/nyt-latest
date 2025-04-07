@@ -1,3 +1,15 @@
+**Jay North, Child Star From ‘Dennis the Menace,’ Dies at 73**\
+`Mr. North was best known for playing the towheaded Dennis Mitchell on the television series, which ran on CBS from 1959 to 1963.`\
+https://nytimes.com/2025/04/06/arts/television/jay-north-dennis-the-menance-dead.html
+
+**Yankees takeaways: Devin Williams not to blame, Ben Rice beefs up, Aaron Judge's bling**\
+`While Williams earned his first loss with the Yankees — 5-4 in 11 innings in Pittsburgh — several other factors came into play.`\
+https://nytimes.com/athletic/6259766/2025/04/06/yankees-takeaways-devin-williams-ben-rice/
+
+**Four Braves takeaways: Drake Baldwin stays, a Ronald Acuña Jr. update and more**\
+`The Braves dropped Chadwick Tromp and opted to keep Baldwin on the big-league team.`\
+https://nytimes.com/athletic/6259957/2025/04/06/braves-drake-baldwin-ronald-acuna/
+
 **'That's more of the team we're used to': Behind the Wild's huge overtime win**\
 `The Wild bounced back with a victory to strengthen their playoff chances after a dismal trip.`\
 https://nytimes.com/athletic/6259469/2025/04/06/wild-overtime-boldy-penalty-kill-stars/
