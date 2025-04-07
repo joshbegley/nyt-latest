@@ -1,3 +1,11 @@
+**gws-severance-lumon-food**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/severance-lumon-food
+
+**Trump Threatens Huge Tariffs on China in Response to Its Retaliation**\
+`The president said he would counter Beijing’s tariffs — which came in response to Mr. Trump’s own levies — with even more tariffs on Chinese imports.`\
+https://nytimes.com/2025/04/07/business/economy/trump-china-tariffs-threat.html
+
 **gws-brian-tyree-henry-dope-thief**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/brian-tyree-henry-dope-thief
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6261355/2025/04/07/musah-robinson-pulisic-sargent-u
 **The Snubs and Surprises of the 2025 Olivier Awards**\
 `Times critics discuss the big winners — a new play about Roald Dahl, a “Fiddler on the Roof” revival and a folk-rock “Benjamin Button”— at London’s theater awards.`\
 https://nytimes.com/2025/04/07/theater/olivier-awards-2025-snubs-surprises.html
-
-**Ex-Villanova star Kris Jenkins suing NCAA, 6 conferences over NIL**\
-`Jenkins opted out of the House v. NCAA settlement, and his lawsuit does not seek a specific amount in damages.`\
-https://nytimes.com/athletic/6261720/2025/04/07/kris-jenkins-villanova-ncaa-nil-lawsuit/
-
-**How Trump’s Tariffs Play Right Into China’s Hands**\
-`Instead of making our strategy America against the whole world on tariffs, Trump should have made it all the industrial democracies, led by America, against China.`\
-https://nytimes.com/2025/04/07/opinion/tariffs-china-advanced-manufacturing.html
 
