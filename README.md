@@ -1,3 +1,7 @@
+**Supreme Court Overturns Lower Court’s Block on Venezuelan Deportations**\
+`The Trump administration asked the justices to weigh in after a federal judge paused the president’s use of a wartime powers law to deport Venezuelans it accused of being gang members.`\
+https://nytimes.com/2025/04/07/us/politics/supreme-court-trump-venezuelan-deportations.html
+
 **Texas Governor Sets November Election to Fill Heavily Democratic House Seat**\
 `Democrats have argued that Gov. Greg Abbott, a Republican, did not act faster to fill the vacant seat because he didn’t want the narrow Republicans majority in Congress to shrink.`\
 https://nytimes.com/2025/04/07/us/texas-house-seat.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6262803/2025/04/07/mets-blue-jays-vladimir-guerrero
 **Nearly 150 Students Have Had Visas Revoked and Could Face Deportation**\
 `Dozens of schools, including the University of California and Harvard, said the Trump administration ended the visas of their students in recent days. For many, the reasons are unclear.`\
 https://nytimes.com/2025/04/07/us/student-visas-revoked-trump-administration.html
-
-**Facing Pushback, Trump Threatened More Tariffs**\
-`Also, the Supreme Court halted an order to return a wrongly deported man. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2025/04/07/briefing/facing-pushback-trump-threatened-more-tariffs.html
 
