@@ -1,3 +1,11 @@
+**Small but Mighty Appliances Fit for a Tiny Kitchen**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/wirecutter-small-kitchen-appliances
+
+**1,200 Acres of Powder for Around $100: Skiing a Vermont Gem**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/backcountry-downhill-skiing-vermont
+
 **Borussia Dortmund's Schlotterbeck to miss rest of the season with knee injury**\
 `The injury will see the Germany international miss the rest of the season, and the news comes just days before their game against Barcelona.`\
 https://nytimes.com/athletic/6261728/2025/04/07/schlotterbeck-dortmund-knee-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/07/world/asia/myanmar-earthquake-aid.html
 **Laurie Shaw to take up role with Liverpool owner FSG after leaving CFG**\
 `Shaw was placed on gardening leave in January and is expected to begin his role at FSG in the coming weeks.`\
 https://nytimes.com/athletic/6261460/2025/04/07/laurie-shaw-liverpool-cfg/
-
-**Which teams have clinched playoff berths? Evaluating the first-round matchups as they stand**\
-`Analyzing each first-round matchup as it would look if the playoffs started today.`\
-https://nytimes.com/athletic/6257236/2025/04/07/nhl-playoff-first-round-2025/
-
-**Watch: Why Sarah Strong should have won Most Outstanding Player**\
-`No Offseason discusses why Sarah Strong should have been voted the Final Four’s Most Outstanding Player.`\
-https://nytimes.com/athletic/6261341/2025/04/07/no-offseason-sarah-strong-ncaa-outstanding-player/
 
