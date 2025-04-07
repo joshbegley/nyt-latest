@@ -1,3 +1,7 @@
+**The Athletic FC: Two European icons say goodbye, a record Premier League relegation and backpass mayhem**\
+`Today in TAFC: Kevin De Bruyne and Thomas Muller confirm their impending departures and a backpass causes chaos at Portman Road`\
+https://nytimes.com/athletic/6261066/2025/04/07/de-bruyne-muller-manchester-southampton-wolves/
+
 **USWNT's Alyssa Thompson is having a moment: 'I knew what I could do'**\
 `The 20-year-old barely played at the World Cup and missed out on the squad that won Olympic gold but is now starting to shine for Emma Hayes`\
 https://nytimes.com/athletic/6260876/2025/04/07/alyssa-thompson-uswnt-resurgence/
