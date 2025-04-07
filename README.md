@@ -1,3 +1,11 @@
+**Google Says Employees Can Discuss Antitrust Case**\
+`The Silicon Valley giant had ordered employees to stay silent on the landmark case before reaching a settlement with a workers’ union over the issue.`\
+https://nytimes.com/2025/04/07/technology/google-antitrust-union-settlement.html
+
+**Man’s 7 ‘Emotional Support’ Tigers Seized in Nevada**\
+`The local authorities arrested Karl Mitchell, who claimed he had been authorized by a doctor to keep the tigers.`\
+https://nytimes.com/2025/04/07/us/tigers-nevada-arrest-joe-exotic.html
+
 **Another Law Firm Braces for Possible Blowback From Trump**\
 `Cadwalader, Wickersham & Taft balked at having one of its partners represent Donald Trump in his criminal cases. Now the firm is among those that have been pushed to agree to a deal with the White House.`\
 https://nytimes.com/2025/04/07/us/politics/law-firms-trump-cadwalader-wickersham-taft.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/07/nyregion/columbia-president-armstrong-federal-dep
 **Trump and Paramount Agree on Mediator in ‘60 Minutes’ Lawsuit**\
 `President Trump’s $20 billion suit accuses CBS News of deceptively editing an interview with former Vice President Kamala Harris.`\
 https://nytimes.com/2025/04/07/business/media/trump-paramount-mediator-60-minutes.html
-
-**Jeremiah Ostriker, Who Plumbed Dark Forces That Shape Universe, Dies at 87**\
-`There’s more to the universe than meets the eye, he found. His studies led astronomy to the dark side, changing our view of what’s out there.`\
-https://nytimes.com/2025/04/07/science/space/jeremiah-ostriker-dead.html
-
-**No Big Stick: Many Tariff Targets Avoid Hitting Back**\
-`Just two of the 20 largest exporters to the United States have matched Mr. Trump’s moves with new tariffs of their own.`\
-https://nytimes.com/interactive/2025/04/07/business/economy/trump-tariffs-reaction-china-eu-canada.html
 

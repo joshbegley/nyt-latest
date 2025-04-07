@@ -1,9 +1,17 @@
+**Another Law Firm Braces for Possible Blowback From Trump**\
+`Cadwalader, Wickersham & Taft balked at having one of its partners represent Donald Trump in his criminal cases. Now the firm is among those that have been pushed to agree to a deal with the White House.`\
+https://nytimes.com/2025/04/07/us/politics/law-firms-trump-cadwalader-wickersham-taft.html
+
+**Maine Sues U.S.D.A. Over Funding for School Meals**\
+`The federal lawsuit is the latest escalation of Gov. Janet Mills’s standoff with the Trump administration over the issue of transgender athletes.`\
+https://nytimes.com/2025/04/07/us/politics/maine-lawsuit-usda-title-ix.html
+
 **Tuesday Briefing: Trump’s Tariff Threat to China**\
 `Plus, “The White Lotus” finale.`\
 https://nytimes.com/2025/04/07/briefing/trump-china-tariffs-us-iran-ukraine-navy-black-sea.html
 
 **Brad Shaw would 'really like to try' being Flyers' permanent coach. Could he be the right fit?**\
-`One of Shaw's previous bosses, Ken Hitchcock, believes Shaw would thrive in running his own bench.`\
+`One of Shaw's previous bosses, Ken Hitchcock, believes Shaw would thrive running his own bench.`\
 https://nytimes.com/athletic/6262511/2025/04/07/flyers-coach-brad-shaw/
 
 **The Briefing: Leicester 0 Newcastle 3 - Champions League chances, Schar's audacious shot, Murphy's turnaround**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/07/science/space/jeremiah-ostriker-dead.html
 **No Big Stick: Many Tariff Targets Avoid Hitting Back**\
 `Just two of the 20 largest exporters to the United States have matched Mr. Trump’s moves with new tariffs of their own.`\
 https://nytimes.com/interactive/2025/04/07/business/economy/trump-tariffs-reaction-china-eu-canada.html
-
-**Meredith Gaudreau has third child, honors late husband Johnny with name**\
-`Meredith said the baby's middle name is the same as Johnny's and his weight was the "exact same as his daddy."`\
-https://nytimes.com/athletic/6262489/2025/04/07/meredith-johnny-gaudreau-third-child/
-
-**How to Get a Great Rate on a Hotel Room**\
-`Six strategies for scoring bargains.`\
-https://nytimes.com/article/hotel-discount-rate-cost.html
 
