@@ -1,3 +1,7 @@
+**Live Updates: Stocks in Asia and Europe Plunge as Trump Says Tariffs Will Stay**\
+`U.S. markets were set to open sharply lower as well. President Trump said on Sunday that he would not back off his trade war, reinforcing fears of a global economic downturn.`\
+https://nytimes.com/live/2025/04/07/business/trump-tariffs-stock-market
+
 **Jarren Duran discusses his mental health journey, suicide attempt in new Netflix documentary**\
 `Duran spoke of his struggles with his mental health in the fourth episode of the Red Sox Netflix documentary, which debuts on Tuesday.`\
 https://nytimes.com/athletic/6259717/2025/04/07/jarren-duran-mental-health-netflix-red-sox-documentary/
