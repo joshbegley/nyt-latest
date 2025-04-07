@@ -1,3 +1,31 @@
+**Arteta urges Arsenal fans to 'play the game with us' before Real Madrid clash**\
+`Arteta says Arsenal will need the backing of the entire Emirates stadium during gheir Champions League quarter-final against Real Madrid. `\
+https://nytimes.com/athletic/6261579/2025/04/07/arsenal-real-madrid-champions-league-arteta/
+
+**How Much Do You Know About the History of Books?**\
+`Try this short quiz on the material side of reading.`\
+https://nytimes.com/interactive/2025/04/07/books/review/book-history-quiz.html
+
+**Conversations and insights about the moment.**\
+``\
+https://nytimes.com/live/2025/04/07/opinion/thepoint
+
+**Lowetide: Why the Oilers' list of scratches in the playoffs may surprise**\
+`It's possible several regular-season contributors won't be in the Oilers lineup for Game 1 of the postseason.`\
+https://nytimes.com/athletic/6259160/2025/04/07/edmonton-oilers-2025-playoffs-roster/
+
+**Kennedy to Kick Off MAHA Tour on Fighting Chronic Disease**\
+`After a second measles death in West Texas, the health secretary is expected to begin a tour through the Southwest to showcase nutrition legislation, among other priorities.`\
+https://nytimes.com/2025/04/07/health/rfk-jr-maha-tour.html
+
+**Justice Dept. Tries to Use Executive Privilege to Muzzle Fired Pardon Attorney**\
+`A fight over the testimony of Elizabeth G. Oyer could have a ripple effect on whether other fired Justice Department lawyers speak publicly about their experiences.`\
+https://nytimes.com/2025/04/07/us/politics/justice-department-pardon-attorney.html
+
+**The Bounce: Walter Clayton Jr.'s NBA Draft stock keeps rising as Florida-Houston title game looms**\
+`Florida will be leaning on NBA hopeful Walter Clayton Jr. as the Gators seek their first hoops title in almost 20 years.`\
+https://nytimes.com/athletic/6261264/2025/04/07/walter-clayton-jr-florida-houston-paige-bueckers-uconn-nba-draft-the-bounce/
+
 **Bangladesh asks for a 3-month reprieve from the Trump tariffs.**\
 `By Alex Travelli and Saif Hasnat`\
 https://nytimes.com/live/2025/04/07/business/trump-tariffs-stock-market/bangladesh-asks-for-a-3-month-reprieve-from-the-trump-tariffs
@@ -9,32 +37,4 @@ https://nytimes.com/2025/04/07/us/los-angeles-county-abuse-settlement.html
 **What Is a Bear Market? Are We in One?**\
 `A bear market occurs when stocks fall 20 percent from a recent peak. As global markets continue their meltdown, here’s what it means for your money and the economy.`\
 https://nytimes.com/2025/04/07/business/economy/bear-market-stocks-tariffs.html
-
-**Jamie Dimon Warns Tariffs Could Increase Inflation and Weigh on Growth**\
-`In his annual letter to shareholders, Jamie Dimon, the chief executive of JPMorgan Chase, wrote that a trade fight could dampen consumer and investor confidence and increase inflation.`\
-https://nytimes.com/2025/04/07/business/economy/jamie-dimon-letter-tariffs.html
-
-**Leading football agent arrested on suspicion of rape, causing grievous bodily harm**\
-`The man was arrested on March 29 after his flight landed at London’s Heathrow Airport.`\
-https://nytimes.com/athletic/6261385/2025/04/07/football-soccer-agent-arrest/
-
-**Guardiola: Nunes 'not clever enough' to play in Man City's midfield**\
-`Nunes has often been utilised at right-back since Kyle Walker’s departure on loan to AC Milan in January.`\
-https://nytimes.com/athletic/6261433/2025/04/07/pep-guardiola-matheus-nunes-not-clever-enough-to-play-in-manchester-citys-midfield/
-
-**Lawsuit Accuses Prominent Palestinian American of Supporting Hamas**\
-`The complaint against the businessman, Bashar Masri, does not say that he knew about the Oct. 7 attack in advance but does assert that he was aware of the Hamas military infrastructure at his properties.`\
-https://nytimes.com/2025/04/07/us/politics/lawsuit-american-palestinian-hamas.html
-
-**Guide to The Times Newsroom: Breaking News**\
-`Our mission is to help you understand the world. Here, we want to help you understand us, and how we work.`\
-https://nytimes.com/2025/04/07/reader-center/new-york-times-breaking-news-process.html
-
-**The Athletic college baseball Top 25: Arkansas powers into top spot**\
-`Tennessee's reign atop the poll ends after five weeks following a series loss at home to Texas A&M.`\
-https://nytimes.com/athletic/6261399/2025/04/07/college-baseball-top-25-arkansas-tennessee-texas/
-
-**Will the Nuggets' string of bad games drop them into the NBA's Play-In Tournament?**\
-`Instead of playing their best basketball, the Nuggets are flailing at the wrong time, especially on the defensive end. `\
-https://nytimes.com/athletic/6260840/2025/04/07/nuggets-losing-change-play-in-tournament/
 
