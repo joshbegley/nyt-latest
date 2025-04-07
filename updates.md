@@ -1,3 +1,7 @@
+**Steph Curry's Warriors and Ime Udoka's Rockets get testy in Houston's statement win**\
+`Houston's game plan was heavily geared toward making Curry's evening miserable. He missed 9 of his 10 shots and scored only three points.`\
+https://nytimes.com/athletic/6260557/2025/04/07/steph-curry-warriors-lose-to-rockets/
+
 **China Tries to Downplay the Trade War’s Effects on Its Economy**\
 `Faced with economic disruption, Beijing is presenting itself as too powerful to succumb to U.S. pressure. It is also censoring criticism at home.`\
 https://nytimes.com/2025/04/07/world/asia/china-trade-war-tariffs.html
