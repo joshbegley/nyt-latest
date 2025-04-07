@@ -1,3 +1,19 @@
+**gws-severance-lumon-food**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/severance-lumon-food
+
+**Trump Threatens Huge Tariffs on China in Response to Its Retaliation**\
+`The president said he would counter Beijing’s tariffs — which came in response to Mr. Trump’s own levies — with even more tariffs on Chinese imports.`\
+https://nytimes.com/2025/04/07/business/economy/trump-china-tariffs-threat.html
+
+**gws-brian-tyree-henry-dope-thief**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/brian-tyree-henry-dope-thief
+
+**A Vast Sea of Protests Against Trump**\
+`Readers, including participants, discuss the nationwide anti-Trump rallies on Saturday. Also: President Trump’s “hang tough” comment; veterans’ plight.`\
+https://nytimes.com/2025/04/07/opinion/trump-hands-off-protests.html
+
 **gws-jason-kelce-espn-late-night**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/jason-kelce-espn-late-night
