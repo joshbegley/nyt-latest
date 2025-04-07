@@ -1,3 +1,11 @@
+**Lyon winger Nuamah suffers ACL injury**\
+`Lyon confirmed Nuamah suffered the injury to his left knee during Saturday's Ligue 1 victory over Lille.`\
+https://nytimes.com/athletic/6261257/2025/04/07/ernest-nuamah-acl-injury-lyon/
+
+**Red Sox's Jarren Duran will get warm ovation his next at-bat. His struggle touches us all**\
+`Duran speaks candidly about his mental health struggles and reveals a suicide attempt in a Netflix documentary that airs Tuesday. `\
+https://nytimes.com/athletic/6260799/2025/04/07/jarren-duran-netflix-red-sox-documentary-mental-health/
+
 **CAS rule Norwegian club won't pay fine on 'UEFA Mafia' chants, banners**\
 `Brann supporters chanted “UEFA Mafia” at a Women’s Champions League match against St. Polten in January 2024.`\
 https://nytimes.com/athletic/6259154/2025/04/07/uefa-chant-banner-fine-cas-appeal/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6260794/2025/04/07/canadiens-lane-hutson-david-sava
 **Giants weekly recap: Buster Posey's team is off to a historically impressive start**\
 `This is only the second Giants team in the modern era to begin a season 8-1. It's been a special start to the season thus far.`\
 https://nytimes.com/athletic/6259924/2025/04/07/sf-giants-historic-season-start-2025/
-
-**Kyren Paris' swing change has Angels fans excited again. But will he play every day?**\
-`Fans are excited about the success Paris has had but when will he get the chance to play full-time?`\
-https://nytimes.com/athletic/6259514/2025/04/07/angels-kyren-paris-swing-playing-time/
-
-**Blanca, an Acclaimed Brooklyn Restaurant, Is Closing**\
-`The quirky tasting counter behind Roberta’s pizzeria mixed low-key vibes with high-stakes cuisine.`\
-https://nytimes.com/2025/04/07/dining/blanca-nyc-restaurant-closing.html
 

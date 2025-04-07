@@ -1,3 +1,11 @@
+**U.S. Visa Ban Adds to South Sudan’s Mounting Troubles**\
+`The Trump administration’s revocation of all visas held by South Sudanese nationals comes as the East African nation faces the threat of renewed war.`\
+https://nytimes.com/2025/04/07/world/africa/south-sudan-visas-trump.html
+
+**No Corrections: April 7, 2025**\
+`No corrections appeared in print on Monday, April 7, 2025.`\
+https://nytimes.com/2025/04/07/pageoneplus/no-corrections-april-7-2025.html
+
 **Lyon winger Nuamah suffers ACL injury**\
 `Lyon confirmed Nuamah suffered the injury to his left knee during Saturday's Ligue 1 victory over Lille.`\
 https://nytimes.com/athletic/6261257/2025/04/07/ernest-nuamah-acl-injury-lyon/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/07/health/rfk-hhs-diabetes-obesity-disease.html
 **College baseball week in review: Are the Aggies back? Texas A&M showing signs of life**\
 `Texas makes a statement by sweeping Georgia. Wake Forest bounces back against Florida State. Western Kentucky is for real. `\
 https://nytimes.com/athletic/6260507/2025/04/07/college-baseball-texas-am-tennessee-lsu-texas/
-
-**Canadiens weekly notebook: Bad starts, Hutson keeps rolling, Savard’s perspective**\
-`Also in this week's notebook, Cole Caufield's not satisfied, Juraj Slafkovský's chirp game, a former teammate of Sean Farrell heaps praise.`\
-https://nytimes.com/athletic/6260794/2025/04/07/canadiens-lane-hutson-david-savard/
-
-**Giants weekly recap: Buster Posey's team is off to a historically impressive start**\
-`This is only the second Giants team in the modern era to begin a season 8-1. It's been a special start to the season thus far.`\
-https://nytimes.com/athletic/6259924/2025/04/07/sf-giants-historic-season-start-2025/
 

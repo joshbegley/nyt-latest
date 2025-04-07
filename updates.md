@@ -1,3 +1,11 @@
+**Lyon winger Nuamah suffers ACL injury**\
+`Lyon confirmed Nuamah suffered the injury to his left knee during Saturday's Ligue 1 victory over Lille.`\
+https://nytimes.com/athletic/6261257/2025/04/07/ernest-nuamah-acl-injury-lyon/
+
+**Red Sox's Jarren Duran will get warm ovation his next at-bat. His struggle touches us all**\
+`Duran speaks candidly about his mental health struggles and reveals a suicide attempt in a Netflix documentary that airs Tuesday. `\
+https://nytimes.com/athletic/6260799/2025/04/07/jarren-duran-netflix-red-sox-documentary-mental-health/
+
 **CAS rule Norwegian club won't pay fine on 'UEFA Mafia' chants, banners**\
 `Brann supporters chanted “UEFA Mafia” at a Women’s Champions League match against St. Polten in January 2024.`\
 https://nytimes.com/athletic/6259154/2025/04/07/uefa-chant-banner-fine-cas-appeal/
