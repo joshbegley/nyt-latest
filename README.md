@@ -1,5 +1,5 @@
 **Twins takeaways: Brutal loss to Astros, Royce Lewis' progress, low attendance**\
-`"Some losses are different than other losses. This is going to be a tough one that’s going to bother a lot of people in our clubhouse." `\
+`"Some losses are different than other losses. This is going to be a tough one that's going to bother a lot of people in our clubhouse." `\
 https://nytimes.com/athletic/6260033/2025/04/06/twins-astros-royce-lewis-injury-attendance/
 
 **Jay North, Child Star From ‘Dennis the Menace,’ Dies at 73**\

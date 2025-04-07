@@ -1,3 +1,7 @@
+**Twins takeaways: Brutal loss to Astros, Royce Lewis' progress, low attendance**\
+`"Some losses are different than other losses. This is going to be a tough one that’s going to bother a lot of people in our clubhouse." `\
+https://nytimes.com/athletic/6260033/2025/04/06/twins-astros-royce-lewis-injury-attendance/
+
 **Jay North, Child Star From ‘Dennis the Menace,’ Dies at 73**\
 `Mr. North was best known for playing the towheaded Dennis Mitchell on the television series, which ran on CBS from 1959 to 1963.`\
 https://nytimes.com/2025/04/06/arts/television/jay-north-dennis-the-menance-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/04/06/us/trump-news-updates/the-immigration-status
 **T.J. Oshie, Nicklas Backstrom revel in Ovechkin's accomplishment: 'We're like brothers'**\
 `Oshie and Backstrom were by Ovechkin's side during the long journey to the record. Sunday's game was no different.`\
 https://nytimes.com/athletic/6259691/2025/04/06/ovechkin-record-oshie-backstrom-reaction-capitals/
-
-**Brian Harman wins Texas Open, his first win since 2023 Open Championship**\
-`Harman earned his fourth career PGA Tour victory in windy conditions.`\
-https://nytimes.com/athletic/6259478/2025/04/06/brian-harman-wins-texas-open/
 

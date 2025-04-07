@@ -1,3 +1,7 @@
+**Twins takeaways: Brutal loss to Astros, Royce Lewis' progress, low attendance**\
+`"Some losses are different than other losses. This is going to be a tough one that’s going to bother a lot of people in our clubhouse." `\
+https://nytimes.com/athletic/6260033/2025/04/06/twins-astros-royce-lewis-injury-attendance/
+
 **Jay North, Child Star From ‘Dennis the Menace,’ Dies at 73**\
 `Mr. North was best known for playing the towheaded Dennis Mitchell on the television series, which ran on CBS from 1959 to 1963.`\
 https://nytimes.com/2025/04/06/arts/television/jay-north-dennis-the-menance-dead.html
