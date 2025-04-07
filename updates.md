@@ -1,3 +1,7 @@
+**All Cubs signs pointing toward an entertaining, dramatic summer at Wrigley Field**\
+`As Eric Karros said: "Every player should spend a year as a Chicago Cub."`\
+https://nytimes.com/athletic/6260023/2025/04/06/chicago-cubs-summer-wrigley-field/
+
 **Yohe's 10 observations: Malkin pays tribute to Ovechkin following Penguins loss**\
 `More than 20 years after Ovechkin and Malkin were drafted back to back, the Penguins' Russian gushed about his compatriot's new record.`\
 https://nytimes.com/athletic/6259821/2025/04/06/penguins-malkin-ovechkin-crosby-fatigue-blackhawks/
