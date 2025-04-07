@@ -1,3 +1,7 @@
+**Everything we know so far about Alexander Ovechkin's 895th goal memorabilia and collectibles**\
+`What Ovechkin has earmarked for his planned museum in Moscow and more`\
+https://nytimes.com/athletic/6259473/2025/04/06/alexander-ovechkin-895-memorabilia/
+
 **South Carolina players 'soak this sucky feeling in' in hopes of returning stronger**\
 `South Carolina's 82-59 loss to UConn ended the Gamecocks' quest to repeat as champions. `\
 https://nytimes.com/athletic/6260215/2025/04/06/south-carolina-national-championship-loss-uconn/

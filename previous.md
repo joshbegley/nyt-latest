@@ -1,3 +1,7 @@
+**Everything we know so far about Alexander Ovechkin's 895th goal memorabilia and collectibles**\
+`What Ovechkin has earmarked for his planned museum in Moscow and more`\
+https://nytimes.com/athletic/6259473/2025/04/06/alexander-ovechkin-895-memorabilia/
+
 **Familiar script: Blue Jackets fall behind early, suffer second straight shutout**\
 `The Blue Jackets have now matched a franchise record in allowing 14 straight unanswered goals.`\
 https://nytimes.com/athletic/6260105/2025/04/06/blue-jackets-shutout-tarasov-merzlikins-senators/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/06/podcasts/the-long-fuse-this-american-life-nyt-aud
 **Why Alex Ovechkin's 'amazing journey' to goal No. 895 meant so much to so many**\
 `"It's just an honor to be living through this," said Tom Wilson, whose pass to Ovechkin led to history on Sunday.`\
 https://nytimes.com/athletic/6260021/2025/04/06/alex-ovechkin-goal-895-record-gretzky/
-
-**Four Braves takeaways: Drake Baldwin stays, a Ronald Acuña Jr. update and more**\
-`The Braves dropped Chadwick Tromp and opted to keep Baldwin on the big-league team.`\
-https://nytimes.com/athletic/6259957/2025/04/06/braves-drake-baldwin-ronald-acuna/
 
