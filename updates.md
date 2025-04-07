@@ -1,3 +1,11 @@
+**South Carolina players 'soak in this sucky feeling' in hopes of returning stronger**\
+`South Carolina's 82-59 loss to UConn ended the Gamecocks' quest to repeat as champions. `\
+https://nytimes.com/athletic/6260215/2025/04/06/south-carolina-national-championship-loss-uconn/
+
+**‘I’m Assuming You Know David Greenspan’ Review: What Are You Waiting For?**\
+`Mona Pirnot’s comic ode to the downtown artist doubles as a meditation on the precariousness of playwriting as a creative life.`\
+https://nytimes.com/2025/04/06/theater/im-assuming-you-know-david-greenspan-review.html
+
 **Twins takeaways: Brutal loss to Astros, Royce Lewis' progress, low attendance**\
 `"Some losses are different than other losses. This is going to be a tough one that's going to bother a lot of people in our clubhouse." `\
 https://nytimes.com/athletic/6260033/2025/04/06/twins-astros-royce-lewis-injury-attendance/
