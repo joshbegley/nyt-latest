@@ -1,3 +1,7 @@
+**She Knocks the Cobwebs Off the Violin Repertory**\
+`Patricia Kopatchinskaja, making her New York Philharmonic debut this week, has become one of music’s quirkiest stars by breathing new life into standards.`\
+https://nytimes.com/2025/04/07/arts/music/patricia-kopatchinskaja-violin-new-york-philharmonic.html
+
 **Global Leaders Rush to Woo Trump, Hoping to Sway Him on Tariffs**\
 `Dozens of foreign governments were trying to appeal to the president to have steep tariffs rolled back, but the president and his advisers have indicated negotiations could be difficult.`\
 https://nytimes.com/2025/04/07/us/politics/trump-tariffs-foreign-governments-negotiations.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6262134/2025/04/07/nascar-throwback-weekend-paint-s
 **Trump Administration Aims to Spend $45 Billion to Expand Immigrant Detention**\
 `A request for proposals for new detention facilities and other services would allow the government to expedite the contracting process and rapidly expand detention.`\
 https://nytimes.com/2025/04/07/us/politics/trump-administration-immigrant-detention-facilities-services.html
-
-**Israeli Strike By a Major Hospital in Gaza Kills and Injures Journalists**\
-`The strike killed one journalist and injured nine others, according to the Palestinian Journalists Syndicate.`\
-https://nytimes.com/video/world/middleeast/100000010095641/israeli-strike-gaza-journalists-hospital.html
 
