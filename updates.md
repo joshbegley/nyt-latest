@@ -1,3 +1,7 @@
+**Oil Prices Tumble Further as Trump’s Tariffs Weigh on Economic Outlook**\
+`Crude oil now costs around 15 percent less than it did before the president revealed his plans to impose stiff new tariffs on imports from most countries.`\
+https://nytimes.com/2025/04/06/business/energy-environment/oil-prices-trump-tariffs.html
+
 **‘The White Lotus’ Season 3 Finale Recap: Bloodshed and Sacrifice**\
 `Some characters got happy endings, while some decidedly did not. But there were enough twists to keep viewers guessing until the end.`\
 https://nytimes.com/2025/04/06/arts/television/white-lotus-recap-season-3-finale.html

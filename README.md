@@ -1,3 +1,15 @@
+**Quote of the Day: Skeletons of the Roman Empire Are Found Under a Vienna Soccer Field**\
+`Quote of the Day for Monday, April 7, 2025`\
+https://nytimes.com/2025/04/07/pageoneplus/quote-of-the-day-skeletons-of-the-roman-empire-are-found-under-a-vienna-soccer-field.html
+
+**In a Strongman State, a Trump Order Extinguishes Flickers of Freedom**\
+`Cambodia’s authoritarian dynasty had silenced almost all of the country’s independent media. The remaining few are facing extinction because of an executive directive from President Trump.`\
+https://nytimes.com/2025/04/07/world/asia/in-a-strongman-state-a-trump-order-extinguishes-flickers-of-freedom.html
+
+**As Netanyahu Heads to Washington, He Finds an Ally in Trump**\
+`President Trump and Prime Minister Benjamin Netanyahu are using similar playbooks as they face turmoil.`\
+https://nytimes.com/2025/04/07/us/politics/netanyahu-trump-israel-gaza.html
+
 **Oil Prices Tumble Further as Trump’s Tariffs Weigh on Economic Outlook**\
 `Crude oil now costs around 15 percent less than it did before the president revealed his plans to impose stiff new tariffs on imports from most countries.`\
 https://nytimes.com/2025/04/06/business/energy-environment/oil-prices-trump-tariffs.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/06/theater/last-five-years-broadway-nick-jonas-adrie
 **Bitcoin Is Down 10% Since Trump’s Global Tariff Announcement**\
 `The rapid drop shows that cryptocurrencies, which the president has promoted, are subject to the same market gyrations as any other risky asset.`\
 https://nytimes.com/2025/04/06/business/economy/trump-bitcoin-crypto-tariffs.html
-
-**Blackhawks' Korchinski weeding out 'immature' plays as he eyes a permanent NHL spot**\
-`Korchinski was fast-tracked to the NHL last season, wreaking havoc with his sense of development. Now he knows where he's growing and going.`\
-https://nytimes.com/athletic/6260357/2025/04/06/blackhawks-kevin-korchinski-maturity-penguins/
-
-**Thompson: Paige Bueckers didn't need a title to be a UConn legend. She deserved one, though**\
-`Bueckers’ greatest victory, the one most meaningful to her undeniable legacy, is how she has handled the weight of her crown.`\
-https://nytimes.com/athletic/6260292/2025/04/06/paige-bueckers-uconn-national-championship-2/
-
-**10-Minute Challenge: ‘The Seasons’ by Lee Krasner**\
-`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
-https://nytimes.com/interactive/2025/04/06/upshot/ten-minute-challenge-seasons.html
 
