@@ -1,3 +1,7 @@
+**Johnson Reaches Agreement to Kill Proxy Voting Proposal in the House**\
+`Republicans who had been poised to force a vote on changing House rules to allow new parents to vote remotely pulled back after the speaker offered a watered-down solution for a narrow set of new mothers.`\
+https://nytimes.com/2025/04/07/us/politics/johnson-agreement-house-proxy-voting-proposal.html
+
 **She Knocks the Cobwebs Off the Violin Repertory**\
 `Patricia Kopatchinskaja, making her New York Philharmonic debut this week, has become one of music’s quirkiest stars by breathing new life into standards.`\
 https://nytimes.com/2025/04/07/arts/music/patricia-kopatchinskaja-violin-new-york-philharmonic.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/04/07/us/us-border-officers-bribes-charged.html
 **Has NASCAR's Throwback Weekend, with paint scheme woes, run its course?**\
 `As paint-scheme participation dwindles, questions linger about the future of NASCAR's Throwback Weekend. But not all may be lost.`\
 https://nytimes.com/athletic/6262134/2025/04/07/nascar-throwback-weekend-paint-schemes-future/
-
-**Trump Administration Aims to Spend $45 Billion to Expand Immigrant Detention**\
-`A request for proposals for new detention facilities and other services would allow the government to expedite the contracting process and rapidly expand detention.`\
-https://nytimes.com/2025/04/07/us/politics/trump-administration-immigrant-detention-facilities-services.html
 

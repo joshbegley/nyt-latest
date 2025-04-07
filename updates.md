@@ -1,3 +1,15 @@
+**She Knocks the Cobwebs Off the Violin Repertory**\
+`Patricia Kopatchinskaja, making her New York Philharmonic debut this week, has become one of music’s quirkiest stars by breathing new life into standards.`\
+https://nytimes.com/2025/04/07/arts/music/patricia-kopatchinskaja-violin-new-york-philharmonic.html
+
+**Global Leaders Rush to Woo Trump, Hoping to Sway Him on Tariffs**\
+`Dozens of foreign governments were trying to appeal to the president to have steep tariffs rolled back, but the president and his advisers have indicated negotiations could be difficult.`\
+https://nytimes.com/2025/04/07/us/politics/trump-tariffs-foreign-governments-negotiations.html
+
+**This Matzo Ball Soup Drifts Toward Tokyo**\
+`A miso soup shows the ingenuity of Jewish cooks in Japan, who adapt traditional dishes with local ingredients.`\
+https://nytimes.com/2025/04/07/dining/matzo-ball-miso-soup.html
+
 **When It Comes to D.E.I. and ICE, Trump Is Using Federal Grants as Leverage**\
 `The Department of Homeland Security is reviewing billions of dollars in grants to make sure cities and states are complying with President Trump’s priorities on immigration and diversity.`\
 https://nytimes.com/2025/04/07/us/politics/trump-homeland-security-ice-dei-grants.html
