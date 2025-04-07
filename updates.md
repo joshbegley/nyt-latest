@@ -1,3 +1,11 @@
+**The Pulse: A legacy-making Sunday**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6260207/2025/04/07/guerrero-contract-uconn-bueckers-ovechkin-the-pulse/
+
+**Phillies takeaways: Patience pays off, containing Ohtani, Romano's velo, more ABs for Sosa**\
+`The Phillies have been more disciplined. They are near the top of MLB in OBP. There is some chase, but the overall approach has been solid.`\
+https://nytimes.com/athletic/6259955/2025/04/07/phillies-dodgers-walks-ohtani-jordan-romano-edmundo-sosa/
+
 **Women's college basketball 2025-26 too-early power ranking: UConn looks like favorite again**\
 `Where's South Carolina ranked? Does Notre Dame make the top 25? `\
 https://nytimes.com/athletic/6259644/2025/04/07/womens-college-basketball-2025-26-early-power-ranking-uconn/

@@ -1,3 +1,11 @@
+**The Pulse: A legacy-making Sunday**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6260207/2025/04/07/guerrero-contract-uconn-bueckers-ovechkin-the-pulse/
+
+**Phillies takeaways: Patience pays off, containing Ohtani, Romano's velo, more ABs for Sosa**\
+`The Phillies have been more disciplined. They are near the top of MLB in OBP. There is some chase, but the overall approach has been solid.`\
+https://nytimes.com/athletic/6259955/2025/04/07/phillies-dodgers-walks-ohtani-jordan-romano-edmundo-sosa/
+
 **Women's college basketball 2025-26 too-early power ranking: UConn looks like favorite again**\
 `Where's South Carolina ranked? Does Notre Dame make the top 25? `\
 https://nytimes.com/athletic/6259644/2025/04/07/womens-college-basketball-2025-26-early-power-ranking-uconn/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6259842/2025/04/07/florida-houston-predictions-nati
 **What's at stake with the House v. NCAA settlement? Goodbye amateurism, hello revenue sharing**\
 `If approved, schools will be permitted to directly pay athletes through about $20.5 million in revenue sharing in the 2025-26 athletic year.`\
 https://nytimes.com/athletic/6256000/2025/04/07/house-v-ncaa-settlement-revenue-sharing-explained/
-
-**Long before torpedo bats, the maple bat craze changed baseball**\
-`In the late 1990s, an Ottawa man changed bat technology with the creation of maple bats. Soon, almost every major leaguer wanted one.`\
-https://nytimes.com/athletic/6255592/2025/04/07/maple-bat-craze-torpedo-bats/
-
-**‘I Felt Ashamed.’ Why One Lawyer Resigned When His Firm Caved to Trump**\
-`When his employer struck a deal to avert an executive order, Thomas Sipp decided to make a stand.`\
-https://nytimes.com/2025/04/07/podcasts/the-daily/skadden-lawyer-resigned-trump-thomas-sipp.html
 
