@@ -1,3 +1,7 @@
+**Trump’s Retribution**\
+`We explore the creative ways the president is getting even with his opponents.`\
+https://nytimes.com/2025/04/07/briefing/donald-trump-retribution.html
+
 **The L.A. Dodgers Will Visit the White House on Monday**\
 `The World Series winners’ trip comes after the Trump administration was criticized for removing an article on a Pentagon website honoring Jackie Robinson, one of the franchise’s most celebrated players.`\
 https://nytimes.com/2025/04/07/us/politics/dodgers-white-house-visit.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6259644/2025/04/07/womens-college-basketball-2025-2
 **This Week in Mets: Good vibes carrying over in solid start**\
 `Juan Soto and the lineup capture the headlines, but a deep bullpen has helped fuel a 6-3 start to the season.`\
 https://nytimes.com/athletic/6259721/2025/04/07/this-week-in-mets-good-vibes-carrying-over-in-solid-start-for-mets/
-
-**The Ovechkin Spot: How the NHL's best goal scorer achieved greatness from one area of ice**\
-`Ovechkin’s dominance on the ice from the left circle defines his legacy as the greatest goal scorer in NHL history.`\
-https://nytimes.com/athletic/6233041/2025/04/07/alex-ovechkin-nhl-goals-record-spot/
 
