@@ -2,7 +2,7 @@
 `Mr. North was best known for playing the towheaded Dennis Mitchell on the television series, which ran on CBS from 1959 to 1963.`\
 https://nytimes.com/2025/04/06/arts/television/jay-north-dennis-the-menance-dead.html
 
-**Yankees takeaways: Williams not to blame for loss, Rice beefs up, Judge's bling**\
+**Yankees takeaways: Devin Williams not to blame, Ben Rice beefs up, Aaron Judge's bling**\
 `While Williams earned his first loss with the Yankees — 5-4 in 11 innings in Pittsburgh — several other factors came into play.`\
 https://nytimes.com/athletic/6259766/2025/04/06/yankees-takeaways-devin-williams-ben-rice/
 
@@ -18,7 +18,7 @@ https://nytimes.com/2025/04/06/podcasts/the-long-fuse-this-american-life-nyt-aud
 `"It's just an honor to be living through this," said Tom Wilson, whose pass to Ovechkin led to history on Sunday.`\
 https://nytimes.com/athletic/6260021/2025/04/06/alex-ovechkin-goal-895-record-gretzky/
 
-**Four Braves takeaways: Drake Baldwin stays, a Ronald Acuña update and more**\
+**Four Braves takeaways: Drake Baldwin stays, a Ronald Acuña Jr. update and more**\
 `The Braves dropped Chadwick Tromp and opted to keep Baldwin on the big-league team.`\
 https://nytimes.com/athletic/6259957/2025/04/06/braves-drake-baldwin-ronald-acuna/
 
