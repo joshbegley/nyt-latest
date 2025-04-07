@@ -1,3 +1,7 @@
+**Kyren Paris' swing change has Angels fans excited again. But will he play every day?**\
+`Fans are excited about the success Paris has had but when will he get the chance to play full-time?`\
+https://nytimes.com/athletic/6259514/2025/04/07/angels-kyren-paris-swing-playing-time/
+
 **Blanca, an Acclaimed Brooklyn Restaurant, Is Closing**\
 `The quirky tasting counter behind Roberta’s pizzeria mixed low-key vibes with high-stakes cuisine.`\
 https://nytimes.com/2025/04/07/dining/blanca-nyc-restaurant-closing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6259126/2025/04/07/lebron-james-i-promise-alba-berl
 **Does Trump Have an ‘Off Ramp’?**\
 `With global markets again in free-fall, the president appeared to be losing support of business leaders, raising questions about his leverage in his trade fight.`\
 https://nytimes.com/2025/04/07/business/dealbook/trump-tariffs-off-ramp.html
-
-**Putin Calls N.H.L. Star’s Record-Setting Goal a Reason for Russia to Celebrate**\
-`Alex Ovechkin’s feat put a fresh spotlight on the hockey star’s past support for Russia’s leader and on his stance on the war in Ukraine.`\
-https://nytimes.com/2025/04/07/world/europe/ovechkin-putin-russia-nhl.html
 

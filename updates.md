@@ -1,3 +1,11 @@
+**Blanca, an Acclaimed Brooklyn Restaurant, Is Closing**\
+`The quirky tasting counter behind Roberta’s pizzeria mixed low-key vibes with high-stakes cuisine.`\
+https://nytimes.com/2025/04/07/dining/blanca-nyc-restaurant-closing.html
+
+**Browns QB tracker: Shedeur Sanders and other options available in the draft**\
+`A QB search that’s mysterious both in its nature and because Cleveland has only added Kenny Pickett thus far now extends to the NFL Draft.`\
+https://nytimes.com/athletic/6260324/2025/04/07/browns-quarterback-tracker-shedeur-sanders-nfl-draft/
+
 **NBA Rewind: Everything that's at stake in the season's final week**\
 `Let's examine all the playoff seeding (and tanking) scenarios as the 2024-25 regular season draws to a close.`\
 https://nytimes.com/athletic/6254698/2025/04/07/nba-rewind-rockets-playoff-standings/
