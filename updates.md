@@ -1,3 +1,7 @@
+**Supreme Court Overturns Lower Court’s Block on Venezuelan Deportations**\
+`The Trump administration asked the justices to weigh in after a federal judge paused the president’s use of a wartime powers law to deport Venezuelans it accused of being gang members.`\
+https://nytimes.com/2025/04/07/us/politics/supreme-court-trump-venezuelan-deportations.html
+
 **Texas Governor Sets November Election to Fill Heavily Democratic House Seat**\
 `Democrats have argued that Gov. Greg Abbott, a Republican, did not act faster to fill the vacant seat because he didn’t want the narrow Republicans majority in Congress to shrink.`\
 https://nytimes.com/2025/04/07/us/texas-house-seat.html
