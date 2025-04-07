@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Tuesday, April 8, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/04/07/todays-new-york-times-international-edition
+
 **What to Know About the Destructive Spring Storm System**\
 `Heavy rains, damaging winds and dangerous floods have ravaged the South and the Midwest for days, killing at least 18 people.`\
 https://nytimes.com/2025/04/07/us/midwest-south-storm-floods-tornadoes.html
