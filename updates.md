@@ -1,3 +1,11 @@
+**‘Your Friends and Neighbors,’ Plus 9 Things to Watch on TV this Week**\
+`The AppleTV+ show starring Jon Hamm premieres. ‘Black Mirror’ returns for an eighth season.`\
+https://nytimes.com/2025/04/07/arts/television/what-to-watch-on-tv-this-week.html
+
+**The New York Times in Print for Monday, April 7, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/07/todays-new-york-times
+
 **Jalen Brunson makes his return: What we saw in the New York star's first game back**\
 `Thoughts and observations from Brunson's first game back from injury and more. `\
 https://nytimes.com/athletic/6260518/2025/04/07/knicks-win-phoenix-jalen-brunson-returns/

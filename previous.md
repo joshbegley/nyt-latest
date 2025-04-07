@@ -1,3 +1,11 @@
+**‘Your Friends and Neighbors,’ Plus 9 Things to Watch on TV this Week**\
+`The AppleTV+ show starring Jon Hamm premieres. ‘Black Mirror’ returns for an eighth season.`\
+https://nytimes.com/2025/04/07/arts/television/what-to-watch-on-tv-this-week.html
+
+**The New York Times in Print for Monday, April 7, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/07/todays-new-york-times
+
 **Jalen Brunson makes his return: What we saw in the New York star's first game back**\
 `Thoughts and observations from Brunson's first game back from injury and more. `\
 https://nytimes.com/athletic/6260518/2025/04/07/knicks-win-phoenix-jalen-brunson-returns/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6254713/2025/04/07/could-a-lack-of-defensive-consis
 **Has Karl Darlow ended Leeds' wobble?**\
 `A 17-match unbeaten streak has given way to one win in the last six outings, but has a change of goalkeeper fixed it?`\
 https://nytimes.com/athletic/6257348/2025/04/07/has-karl-darlow-ended-leeds-wobble/
-
-**Is Graham Potter's tinkering helping or hindering West Ham?**\
-`Would greater consistency in the new manager's set-up might lead to greater consistency in performances?`\
-https://nytimes.com/athletic/6257749/2025/04/07/is-graham-potters-tinkering-helping-or-hindering-west-ham/
-
-**Crystal Palace have a chance to finish above Brighton - and even Europe is in their sights**\
-`Oliver Glasner's side have a difficult run in, but at the moment anything looks possible`\
-https://nytimes.com/athletic/6251122/2025/04/07/crystal-palace-have-a-chance-to-finish-ahead-of-brighton/
 
