@@ -1,3 +1,7 @@
+**Tuesday Briefing: Trump’s Tariff Threat to China**\
+`Plus, “The White Lotus” finale.`\
+https://nytimes.com/2025/04/07/briefing/trump-china-tariffs-us-iran-ukraine-navy-black-sea.html
+
 **Brad Shaw would 'really like to try' being Flyers' permanent coach. Could he be the right fit?**\
 `One of Shaw's previous bosses, Ken Hitchcock, believes Shaw would thrive in running his own bench.`\
 https://nytimes.com/athletic/6262511/2025/04/07/flyers-coach-brad-shaw/

@@ -1,3 +1,7 @@
+**Tuesday Briefing: Trump’s Tariff Threat to China**\
+`Plus, “The White Lotus” finale.`\
+https://nytimes.com/2025/04/07/briefing/trump-china-tariffs-us-iran-ukraine-navy-black-sea.html
+
 **Brad Shaw would 'really like to try' being Flyers' permanent coach. Could he be the right fit?**\
 `One of Shaw's previous bosses, Ken Hitchcock, believes Shaw would thrive in running his own bench.`\
 https://nytimes.com/athletic/6262511/2025/04/07/flyers-coach-brad-shaw/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6262489/2025/04/07/meredith-johnny-gaudreau-third-c
 **How to Get a Great Rate on a Hotel Room**\
 `Six strategies for scoring bargains.`\
 https://nytimes.com/article/hotel-discount-rate-cost.html
-
-**N.C. Supreme Court Halts Voter Eligibility Review in Contested Judicial Race**\
-`A razor-close race for a seat on the court is the last 2024 statewide election in the nation to remain uncertified.`\
-https://nytimes.com/2025/04/07/us/politics/north-carolina-supreme-court-election-ballots.html
 
