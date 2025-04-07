@@ -1,3 +1,11 @@
+**She’s Martha Graham. Who Are You?**\
+`At 99, the Graham company continues to grapple with the legacy of its founder with reimagined lost works and commissions.`\
+https://nytimes.com/2025/04/07/arts/dance/martha-graham-company-new-works.html
+
+**Scoop City: Big offseason questions to ponder as Julio Jones retires**\
+`A well-deserved break from your tax returns or refreshing your stock portfolio to unpack the five big remaining offseason questions, 2026 FA`\
+https://nytimes.com/athletic/6261822/2025/04/07/julio-jones-retires-yards-per-route-run-nfl-offseason-questions-scoop-city/
+
 **foot-workout-exercises**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/foot-workout-exercises

@@ -1,3 +1,7 @@
+**She’s Martha Graham. Who Are You?**\
+`At 99, the Graham company continues to grapple with the legacy of its founder with reimagined lost works and commissions.`\
+https://nytimes.com/2025/04/07/arts/dance/martha-graham-company-new-works.html
+
 **foot-workout-exercises**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/foot-workout-exercises
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/6261781/2025/04/07/bayern-munichs-manuel-neuer-face
 https://nytimes.com/2025/04/07/business/economy/trump-tariffs-no-pause-stock-market.html
 
 **Scoop City: Big offseason questions to ponder as Julio Jones retires**\
-`A well-deserved break your tax returns or refreshing your stock portfolio to unpack the five big remaining offseason questions, 2026 FAs`\
+`A well-deserved break from your tax returns or refreshing your stock portfolio to unpack the five big remaining offseason questions, 2026 FA`\
 https://nytimes.com/athletic/6261822/2025/04/07/julio-jones-retires-yards-per-route-run-nfl-offseason-questions-scoop-city/
 
 **Farke: Leeds 'fear' Struijk out for season with foot fracture**\
@@ -33,8 +37,4 @@ https://nytimes.com/newsgraphics/card-story/long-bright-river-amanda-seyfrie
 **Small but Mighty Appliances Fit for a Tiny Kitchen**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/wirecutter-small-kitchen-appliances
-
-**1,200 Acres of Powder for Around $100: Skiing a Vermont Gem**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/backcountry-downhill-skiing-vermont
 
