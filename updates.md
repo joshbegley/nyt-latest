@@ -1,3 +1,15 @@
+**Trump Asks Supreme Court to Block Order Requiring Return of Wrongly Deported Migrant**\
+`The government said Judge Paula Xinis, who ordered that the administration return the migrant, Kilmar Armando Abrego Garcia, by Monday, had engaged in “district-court diplomacy.”`\
+https://nytimes.com/2025/04/07/us/politics/supreme-court-wrongly-deported.html
+
+**Sharks' 2025-26 roster projection: How will San Jose fill holes on offense, defense?**\
+`The Sharks need a No. 1 defenseman, a couple of forwards and possibly a goalie for next season. `\
+https://nytimes.com/athletic/6260874/2025/04/07/san-jose-sharks-2025-2026-lineup/
+
+**Neuer faces race to be fit for Inter second leg**\
+`Neuer has been recovering from a calf injury sustained in early March and will not be fit in time for tomorrow's first leg.`\
+https://nytimes.com/athletic/6261781/2025/04/07/bayern-munichs-manuel-neuer-faces-race-to-be-fit-for-champions-league-quarter-final-second-leg/
+
 **She’s Martha Graham. Who Are You?**\
 `At 99, the Graham company continues to grapple with the legacy of its founder with reimagined lost works and commissions.`\
 https://nytimes.com/2025/04/07/arts/dance/martha-graham-company-new-works.html

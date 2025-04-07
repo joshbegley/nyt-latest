@@ -1,3 +1,11 @@
+**Trump Asks Supreme Court to Block Order Requiring Return of Wrongly Deported Migrant**\
+`The government said Judge Paula Xinis, who ordered that the administration return the migrant, Kilmar Armando Abrego Garcia, by Monday, had engaged in “district-court diplomacy.”`\
+https://nytimes.com/2025/04/07/us/politics/supreme-court-wrongly-deported.html
+
+**Sharks' 2025-26 roster projection: How will San Jose fill holes on offense, defense?**\
+`The Sharks need a No. 1 defenseman, a couple of forwards and possibly a goalie for next season. `\
+https://nytimes.com/athletic/6260874/2025/04/07/san-jose-sharks-2025-2026-lineup/
+
 **She’s Martha Graham. Who Are You?**\
 `At 99, the Graham company continues to grapple with the legacy of its founder with reimagined lost works and commissions.`\
 https://nytimes.com/2025/04/07/arts/dance/martha-graham-company-new-works.html
@@ -6,8 +14,8 @@ https://nytimes.com/2025/04/07/arts/dance/martha-graham-company-new-works.html
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/foot-workout-exercises
 
-**Bayern Munich's Neuer faces race to be fit for CL quarter-final second leg**\
-`Neuer has been recovering from a calf injury sustained in early March and will not be fit in time for tomorrow's first leg tie, while Kingsl`\
+**Neuer faces race to be fit for Inter second leg**\
+`Neuer has been recovering from a calf injury sustained in early March and will not be fit in time for tomorrow's first leg.`\
 https://nytimes.com/athletic/6261781/2025/04/07/bayern-munichs-manuel-neuer-faces-race-to-be-fit-for-champions-league-quarter-final-second-leg/
 
 **U.S. Markets Swing Wildly on an Unsubstantiated Report**\
@@ -29,12 +37,4 @@ https://nytimes.com/newsgraphics/card-story/chelsea-handler-book-netflix
 **Canucks trade targets, and could we see an offer sheet? Mailbag, part 1**\
 `Plus, an existential question about Canucks fandom and the value of the team's 2025 first-round pick.`\
 https://nytimes.com/athletic/6260804/2025/04/07/canucks-trade-targers-offer-sheets-mailbag/
-
-**long-bright-river-amanda-seyfrie**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/long-bright-river-amanda-seyfrie
-
-**Small but Mighty Appliances Fit for a Tiny Kitchen**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/wirecutter-small-kitchen-appliances
 
