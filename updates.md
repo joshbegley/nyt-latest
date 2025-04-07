@@ -1,3 +1,15 @@
+**The L.A. Dodgers Will Visit the White House on Monday**\
+`The World Series winners’ trip comes after the Trump administration was criticized for removing an article on a Pentagon website honoring Jackie Robinson, one of the franchise’s most celebrated players.`\
+https://nytimes.com/2025/04/07/us/politics/dodgers-white-house-visit.html
+
+**Europe Is Ready to Make Its First Countermove to Trump Tariffs**\
+`European Union officials will vet and vote on a list of retaliatory tariffs this week, while contemplating what comes next.`\
+https://nytimes.com/2025/04/07/world/europe/europe-tariffs-trump-response.html
+
+**In loss to UConn, South Carolina's imperfect season ends in incomplete repeat mission**\
+`Without a go-to option, South Carolina lacked the keys to unlock another championship. `\
+https://nytimes.com/athletic/6260626/2025/04/07/south-carolina-loss-national-championship/
+
 **Europe Is Ready to Make Its First Countermove to Trump Tariffs**\
 `European Union officials meeting in Brussels will vet and vote on a list of retaliatory tariffs this week, while contemplating what comes next.`\
 https://nytimes.com/2025/04/07/world/europe/europe-tariffs-trump-response.html
