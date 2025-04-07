@@ -1,3 +1,11 @@
+**Which teams have clinched playoff berths? Evaluating the first-round matchups as they stand**\
+`Analyzing each first-round matchup as it would look if the playoffs started today.`\
+https://nytimes.com/athletic/6257236/2025/04/07/nhl-playoff-first-round-2025/
+
+**Watch: Why Sarah Strong should have won Most Outstanding Player**\
+`No Offseason discusses why Sarah Strong should have been voted the Final Four’s Most Outstanding Player.`\
+https://nytimes.com/athletic/6261341/2025/04/07/no-offseason-sarah-strong-ncaa-outstanding-player/
+
 **Arteta urges Arsenal fans to 'play the game with us' before Real Madrid clash**\
 `Arteta says Arsenal will need the backing of the entire Emirates stadium during gheir Champions League quarter-final against Real Madrid. `\
 https://nytimes.com/athletic/6261579/2025/04/07/arsenal-real-madrid-champions-league-arteta/
