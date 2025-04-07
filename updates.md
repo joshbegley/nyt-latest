@@ -1,3 +1,7 @@
+**Casemiro's season is not panning out in a way anyone expected**\
+`The Brazilian was expected to leave Manchester United last summer and has been dropped twice this season but he's looked rejuvenated of late`\
+https://nytimes.com/athletic/6259918/2025/04/07/casemiro-manchester-united/
+
 **Live Updates: Stocks in Asia and Europe Plunge as Trump Says Tariffs Will Stay**\
 `U.S. markets were set to open sharply lower as well. President Trump said on Sunday that he would not back off his trade war, reinforcing fears of a global economic downturn.`\
 https://nytimes.com/live/2025/04/07/business/trump-tariffs-stock-market
