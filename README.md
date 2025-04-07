@@ -1,3 +1,7 @@
+**Trump Discusses Potential Nuclear Talks With Iran**\
+`President Trump and Prime Minister Netanyahu of Israel spoke at the White House on Monday, discussing trade policy and nuclear talks with Iran.`\
+https://nytimes.com/video/us/politics/100000010096981/trump-netanyahu-iran-nuclear-tariffs.html
+
 **Supreme Court Overturns Lower Court’s Block on Venezuelan Deportations**\
 `The Trump administration asked the justices to weigh in after a federal judge paused the president’s use of a wartime powers law to deport Venezuelans it accused of being gang members.`\
 https://nytimes.com/2025/04/07/us/politics/supreme-court-trump-venezuelan-deportations.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6256074/2025/04/07/kevin-de-bruyne-inter-miami-mls-
 **What could Vladimir Guerrero Jr.'s extension with Blue Jays mean for the Mets' Pete Alonso?**\
 `It’s easier for Alonso to argue for “90 percent of what Guerrero got” — or about $32 million or more per season.`\
 https://nytimes.com/athletic/6262803/2025/04/07/mets-blue-jays-vladimir-guerrero-pete-alonso/
-
-**Nearly 150 Students Have Had Visas Revoked and Could Face Deportation**\
-`Dozens of schools, including the University of California and Harvard, said the Trump administration ended the visas of their students in recent days. For many, the reasons are unclear.`\
-https://nytimes.com/2025/04/07/us/student-visas-revoked-trump-administration.html
 
