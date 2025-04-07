@@ -1,3 +1,7 @@
+**He's tried to retired, but Geno Auriemma keeps coming back ... and winning**\
+` Auriemma has won more than anyone in women's college basketball. Yet, he's still hungry for more. `\
+https://nytimes.com/athletic/6260321/2025/04/06/uconn-national-championship-geno-auriemma/
+
 **Everything we know so far about Alexander Ovechkin's 895th goal memorabilia and collectibles**\
 `What Ovechkin has earmarked for his planned museum in Moscow and more`\
 https://nytimes.com/athletic/6259473/2025/04/06/alexander-ovechkin-895-memorabilia/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6259469/2025/04/06/wild-overtime-boldy-penalty-kill
 **The Long Fuse**\
 `People toss out words that ignite and burn over decades.`\
 https://nytimes.com/2025/04/06/podcasts/the-long-fuse-this-american-life-nyt-audio.html
-
-**Why Alex Ovechkin's 'amazing journey' to goal No. 895 meant so much to so many**\
-`"It's just an honor to be living through this," said Tom Wilson, whose pass to Ovechkin led to history on Sunday.`\
-https://nytimes.com/athletic/6260021/2025/04/06/alex-ovechkin-goal-895-record-gretzky/
 

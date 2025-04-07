@@ -1,4 +1,4 @@
-**He's tried to retired, but Geno Auriemma keeps coming back ... and winning**\
+**He's tried to retire, but Geno Auriemma keeps coming back ... and winning**\
 ` Auriemma has won more than anyone in women's college basketball. Yet, he's still hungry for more. `\
 https://nytimes.com/athletic/6260321/2025/04/06/uconn-national-championship-geno-auriemma/
 
