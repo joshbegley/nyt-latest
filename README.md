@@ -1,3 +1,7 @@
+**Wolves' wild Ipswich celebrations: Andre's selfie, a viral video and Pereira in the pub**\
+`Wolves' squad and their fans clearly know how to celebrate - the win over Ipswich sparked pandemonium in the away end and beyond`\
+https://nytimes.com/athletic/6257901/2025/04/07/wolves-vitor-pereira-andre-fans/
+
 **Youri Tielemans and the art of toying with an opponent**\
 `Villa's Belgium midfielder has been one step ahead this season - Forest and Gibbs-White went to great lengths to stop him, but couldn't`\
 https://nytimes.com/athletic/6257255/2025/04/07/youri-tielemans-aston-villa-cat-and-mouse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6251122/2025/04/07/crystal-palace-have-a-chance-to-
 **Newcastle's summer planning and how the recruitment dynamics are changing**\
 `On the face of it a new contract for Fabian Schar suggested the continuation of the status quo - but it was part of a wider plan for change`\
 https://nytimes.com/athletic/6254709/2025/04/07/fabian-schar-newcastle-contract-transfers/
-
-**Andy Robertson and Liverpool's left-back situation**\
-`Robertson's legendary status is secure, but he is entering the final year of his contract and a new left-back will be targeted this summer`\
-https://nytimes.com/athletic/6259544/2025/04/07/andy-robertson-liverpool-left-backs/
 
