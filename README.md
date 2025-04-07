@@ -34,7 +34,7 @@ https://nytimes.com/2025/04/07/learning/word-of-the-day-fortify.html
 `By Yan Zhuang`\
 https://nytimes.com/live/2025/04/07/business/trump-tariffs-stock-market/heres-the-latest
 
-**Asia Stocks Plunge as Trump Says Tariffs Will Stay**\
-`Markets in Europe and the U.S. were set to open sharply lower as well. President Trump said on Sunday that he would not back off, reinforcing fears of a severe economic downturn.`\
+**Live Updates: Stocks in Asia and Europe Plunge as Trump Says Tariffs Will Stay**\
+`U.S. markets were set to open sharply lower as well. President Trump said on Sunday that he would not back off his trade war, reinforcing fears of a global economic downturn.`\
 https://nytimes.com/live/2025/04/07/business/trump-tariffs-stock-market
 
