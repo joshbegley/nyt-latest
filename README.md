@@ -1,3 +1,11 @@
+**Nearly 150 Students Have Had Visas Revoked and Could Face Deportation**\
+`Dozens of schools, including the University of California and Harvard, said the Trump administration ended the visas of their students in recent days. For many, the reasons are unclear.`\
+https://nytimes.com/2025/04/07/us/student-visas-revoked-trump-administration.html
+
+**Facing Pushback, Trump Threatened More Tariffs**\
+`Also, the Supreme Court halted an order to return a wrongly deported man. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/04/07/briefing/facing-pushback-trump-threatened-more-tariffs.html
+
 **Trump Says the U.S. and Iran Will Hold ‘Direct’ Nuclear Talks**\
 `President Trump pulled out of the last Iran nuclear accord in 2018, and negotiators from the two nations have not met face-to-face since.`\
 https://nytimes.com/2025/04/07/us/politics/iran-nuclear-talks-trump.html
@@ -30,13 +38,5 @@ https://nytimes.com/2025/04/07/us/politics/law-firms-trump-cadwalader-wickersham
 
 **Maine Sues U.S.D.A. Over Funding for School Meals**\
 `The federal lawsuit is the latest escalation of Gov. Janet Mills’s standoff with the Trump administration over the issue of transgender athletes.`\
-https://nytimes.com/2025/04/07/us/politics/maine-lawsuit-usda-title-ix.html
-
-**Tuesday Briefing: Trump’s Tariff Threat to China**\
-`Plus, “The White Lotus” finale.`\
-https://nytimes.com/2025/04/07/briefing/trump-china-tariffs-us-iran-ukraine-navy-black-sea.html
-
-**Brad Shaw would 'really like to try' being Flyers' permanent coach. Could he be the right fit?**\
-`One of Shaw's previous bosses, Ken Hitchcock, believes Shaw would thrive running his own bench.`\
-https://nytimes.com/athletic/6262511/2025/04/07/flyers-coach-brad-shaw/
+https://nytimes.com/live/2025/04/07/us/trump-news/maine-lawsuit-usda-title-ix
 
