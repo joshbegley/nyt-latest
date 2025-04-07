@@ -1,3 +1,7 @@
+**'That's more of the team we're used to': Behind the Wild's huge overtime win**\
+`The Wild bounced back after a dismal road trip with a victory to strengthen their playoff chances.`\
+https://nytimes.com/athletic/6259469/2025/04/06/wild-overtime-boldy-penalty-kill-stars/
+
 **The Long Fuse**\
 `People toss out words that ignite and burn over decades.`\
 https://nytimes.com/2025/04/06/podcasts/the-long-fuse-this-american-life-nyt-audio.html
