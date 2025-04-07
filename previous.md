@@ -1,6 +1,22 @@
+**foot-workout-exercises**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/foot-workout-exercises
+
+**Bayern Munich's Neuer faces race to be fit for CL quarter-final second leg**\
+`Neuer has been recovering from a calf injury sustained in early March and will not be fit in time for tomorrow's first leg tie, while Kingsl`\
+https://nytimes.com/athletic/6261781/2025/04/07/bayern-munichs-manuel-neuer-faces-race-to-be-fit-for-champions-league-quarter-final-second-leg/
+
+**U.S. Markets Swing Wildly on an Unsubstantiated Report**\
+`It was not clear where the report, that President Trump was considering a pause on his expansive tariffs, had originated. The White House called the claim “fake news.”`\
+https://nytimes.com/2025/04/07/business/economy/trump-tariffs-no-pause-stock-market.html
+
+**Scoop City: Big offseason questions to ponder as Julio Jones retires**\
+`A well-deserved break your tax returns or refreshing your stock portfolio to unpack the five big remaining offseason questions, 2026 FAs`\
+https://nytimes.com/athletic/6261822/2025/04/07/julio-jones-retires-yards-per-route-run-nfl-offseason-questions-scoop-city/
+
 **Farke: Leeds 'fear' Struijk out for season with foot fracture**\
 `"Struijk needs to wait for further assessment, the fear is it might be a fracture, which would mean his season is over," Farke said.`\
-https://nytimes.com/athletic/6261749/2025/04/07/leeds-fear-pascal-struijk-out-for-season-with-foot-fracture-daniel-farke/
+https://nytimes.com/athletic/6261749/2025/04/07/pascal-struijk-injury-leeds/
 
 **chelsea-handler-book-netflix**\
 `(No description)`\
@@ -21,20 +37,4 @@ https://nytimes.com/newsgraphics/card-story/wirecutter-small-kitchen-appliances
 **1,200 Acres of Powder for Around $100: Skiing a Vermont Gem**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/backcountry-downhill-skiing-vermont
-
-**Borussia Dortmund's Schlotterbeck to miss rest of the season with knee injury**\
-`The injury will see the Germany international miss the rest of the season, and the news comes just days before their game against Barcelona.`\
-https://nytimes.com/athletic/6261728/2025/04/07/schlotterbeck-dortmund-knee-injury/
-
-**Appeals Court Reinstates 2 Leaders of Federal Boards Fired by Trump**\
-`A full appeals court panel voted 7-4 to restore Cathy Harris and Gwynne Wilcox to their positions, setting up an expected Supreme Court finale.`\
-https://nytimes.com/2025/04/07/us/politics/labor-relations-merit-systems-board.html
-
-**Bogarde signs new Aston Villa contract**\
-`Villa signed Bogarde from Feyenoord in 2020 and he has since risen through the ranks to be part of Unai Emery's first team.`\
-https://nytimes.com/athletic/6261761/2025/04/07/lamare-bogarde-contract-aston-villa/
-
-**Grand Slam Track debuts with some solid moments and one big lingering question**\
-`Grand Slam Track debuted this weekend to sparse crowds and mixed reviews, but it also had some promising signs.`\
-https://nytimes.com/athletic/6258753/2025/04/07/grand-slam-track-debut-review-michael-johnson/
 
