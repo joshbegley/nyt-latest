@@ -1,3 +1,7 @@
+**10-Minute Challenge: ‘The Seasons’ by Lee Krasner**\
+`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
+https://nytimes.com/interactive/2025/04/06/upshot/ten-minute-challenge-seasons.html
+
 **All Cubs signs pointing toward an entertaining, dramatic summer at Wrigley Field**\
 `As Eric Karros said: "Every player should spend a year as a Chicago Cub."`\
 https://nytimes.com/athletic/6260023/2025/04/06/chicago-cubs-summer-wrigley-field/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6260033/2025/04/06/twins-astros-royce-lewis-injury-
 **Jay North, Child Star From ‘Dennis the Menace,’ Dies at 73**\
 `Mr. North was best known for playing the towheaded Dennis Mitchell on the television series, which ran on CBS from 1959 to 1963.`\
 https://nytimes.com/2025/04/06/arts/television/jay-north-dennis-the-menance-dead.html
-
-**Yankees takeaways: Devin Williams not to blame, Ben Rice beefs up, Aaron Judge's bling**\
-`While Williams earned his first loss with the Yankees — 5-4 in 11 innings in Pittsburgh — several other factors came into play.`\
-https://nytimes.com/athletic/6259766/2025/04/06/yankees-takeaways-devin-williams-ben-rice/
 
