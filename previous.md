@@ -1,3 +1,15 @@
+**The Anti-D.E.I. Crusader Who Wants to Dismantle the Department of Education**\
+`Christopher Rufo’s mission to make universities to feel “existential terror.”`\
+https://nytimes.com/2025/04/07/opinion/ross-douthat-christopher-rufo.html
+
+**How Democrats Drove Silicon Valley Into Trump’s Arms**\
+`Marc Andreessen explains the newest faction of conservatism.`\
+https://nytimes.com/2025/04/07/opinion/ross-douthat-marc-andreessen.html
+
+**Steve Bannon on ‘Broligarchs’ vs. Populism**\
+`Ross Douthat sits down with Steve Bannon to discuss the many right-wing factions vying for dominance in the Trump administration.`\
+https://nytimes.com/2025/04/07/opinion/ross-douthat-steve-bannon.html
+
 **The Fed isn’t rushing to save the markets this time.**\
 `With stocks in a steep decline and tariffs inducing recession jitters, the patience of investors may be tested.`\
 https://nytimes.com/live/2025/04/07/business/trump-tariffs-stock-market/the-fed-isnt-rushing-to-save-the-markets-this-time
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/07/crosswords/spelling-bee-forum.html
 **Steph Curry's Warriors and Ime Udoka's Rockets get testy in Houston's statement win**\
 `Houston's game plan was heavily geared toward making Curry's evening miserable. He missed 9 of his 10 shots and scored only three points.`\
 https://nytimes.com/athletic/6260557/2025/04/07/steph-curry-warriors-lose-to-rockets/
-
-**China Tries to Downplay the Trade War’s Effects on Its Economy**\
-`Faced with economic disruption, Beijing is presenting itself as too powerful to succumb to U.S. pressure. It is also censoring criticism at home.`\
-https://nytimes.com/2025/04/07/world/asia/china-trade-war-tariffs.html
-
-**Casemiro's season is not panning out in a way anyone expected**\
-`The Brazilian was expected to leave Manchester United last summer and has been dropped twice this season but he's looked rejuvenated of late`\
-https://nytimes.com/athletic/6259918/2025/04/07/casemiro-manchester-united/
-
-**Word of the Day: fortify**\
-`This word has appeared in 263 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/04/07/learning/word-of-the-day-fortify.html
 

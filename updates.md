@@ -1,3 +1,15 @@
+**The Anti-D.E.I. Crusader Who Wants to Dismantle the Department of Education**\
+`Christopher Rufo’s mission to make universities to feel “existential terror.”`\
+https://nytimes.com/2025/04/07/opinion/ross-douthat-christopher-rufo.html
+
+**How Democrats Drove Silicon Valley Into Trump’s Arms**\
+`Marc Andreessen explains the newest faction of conservatism.`\
+https://nytimes.com/2025/04/07/opinion/ross-douthat-marc-andreessen.html
+
+**Steve Bannon on ‘Broligarchs’ vs. Populism**\
+`Ross Douthat sits down with Steve Bannon to discuss the many right-wing factions vying for dominance in the Trump administration.`\
+https://nytimes.com/2025/04/07/opinion/ross-douthat-steve-bannon.html
+
 **The Fed isn’t rushing to save the markets this time.**\
 `With stocks in a steep decline and tariffs inducing recession jitters, the patience of investors may be tested.`\
 https://nytimes.com/live/2025/04/07/business/trump-tariffs-stock-market/the-fed-isnt-rushing-to-save-the-markets-this-time
