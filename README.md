@@ -1,3 +1,7 @@
+**When It Comes to D.E.I. and ICE, Trump Is Using Federal Grants as Leverage**\
+`The Department of Homeland Security is reviewing billions of dollars in grants to make sure cities and states are complying with President Trump’s priorities on immigration and diversity.`\
+https://nytimes.com/2025/04/07/us/politics/trump-homeland-security-ice-dei-grants.html
+
 **The leading U.S. business lobby warns tariffs could inflict ‘major harm.’**\
 `By Ken Belson`\
 https://nytimes.com/live/2025/04/07/business/trump-tariffs-stock-market/the-leading-us-business-lobby-warns-tariffs-could-inflict-major-harm
@@ -29,8 +33,4 @@ https://nytimes.com/2025/04/07/dining/easy-dessert-passover-seder.html
 **Dodgers celebrate World Series title at White House: 'An incredible honor'**\
 `Trump repeatedly praised the 2024 World Series champions for “some of the most incredible performances ever seen on the baseball diamond."`\
 https://nytimes.com/athletic/6262205/2025/04/07/dodgers-white-house-world-series/
-
-**Transgender Woman Arrested After Using Bathroom at Florida State Capitol**\
-`Marcy Rheintgen said she was held in jail overnight after she deliberately challenged a state law by entering a women’s bathroom in the government building.`\
-https://nytimes.com/2025/04/07/us/politics/trans-student-arrest-bathroom-law-florida.html
 
