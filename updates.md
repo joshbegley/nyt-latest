@@ -1,3 +1,11 @@
+**The leading U.S. business lobby warns tariffs could inflict ‘major harm.’**\
+`By Ken Belson`\
+https://nytimes.com/live/2025/04/07/business/trump-tariffs-stock-market/the-leading-us-business-lobby-warns-tariffs-could-inflict-major-harm
+
+**Tigers asst. GM resigned amid investigation into lewd photos allegedly sent to female staffers**\
+`Sam Menzin was recently under investigation for workplace misconduct. He resigned before the team could terminate him, the Tigers said.`\
+https://nytimes.com/athletic/6262272/2025/04/07/tigers-assistant-gm-investigation/
+
 **Tigers asst. GM resigned amid investigation into lewd photos allegedly sent to female staffers**\
 `Sam Menzin was recently under investigation for workplace misconduct and resigned before the team could terminate him, the Tigers said.`\
 https://nytimes.com/athletic/6262272/2025/04/07/tigers-assistant-gm-investigation/

@@ -1,5 +1,9 @@
+**The leading U.S. business lobby warns tariffs could inflict ‘major harm.’**\
+`By Ken Belson`\
+https://nytimes.com/live/2025/04/07/business/trump-tariffs-stock-market/the-leading-us-business-lobby-warns-tariffs-could-inflict-major-harm
+
 **Tigers asst. GM resigned amid investigation into lewd photos allegedly sent to female staffers**\
-`Sam Menzin was recently under investigation for workplace misconduct and resigned before the team could terminate him, the Tigers said.`\
+`Sam Menzin was recently under investigation for workplace misconduct. He resigned before the team could terminate him, the Tigers said.`\
 https://nytimes.com/athletic/6262272/2025/04/07/tigers-assistant-gm-investigation/
 
 **2 U.S. Border Officers Charged With Taking Bribes to Allow Undocumented Migrants**\
@@ -29,12 +33,4 @@ https://nytimes.com/athletic/6262205/2025/04/07/dodgers-white-house-world-series
 **Transgender Woman Arrested After Using Bathroom at Florida State Capitol**\
 `Marcy Rheintgen said she was held in jail overnight after she deliberately challenged a state law by entering a women’s bathroom in the government building.`\
 https://nytimes.com/2025/04/07/us/politics/trans-student-arrest-bathroom-law-florida.html
-
-**Trump Is Threatening School Funding. Here’s What Families Should Know.**\
-`The impact of the upheaval could vary greatly across the country. New York, for example, is not feeling significant effects so far, but district leaders are watching closely.`\
-https://nytimes.com/2025/04/07/nyregion/trump-education-funding-schools-parents.html
-
-**New York Regulators Target Weed Brands Accused of Breaking Rules**\
-`New York State is investigating some of America’s biggest cannabis brands over a tactic that has become pervasive in the absence of strong oversight.`\
-https://nytimes.com/2025/04/07/nyregion/new-york-weed-marijuana-investigations.html
 
