@@ -1,3 +1,11 @@
+**Blackhawks' Korchinski weeding out 'immature' plays as he eyes a permanent NHL spot**\
+`Korchinski was fast-tracked to the NHL last season, wreaking havoc with his sense of development. Now he knows where he's growing and going.`\
+https://nytimes.com/athletic/6260357/2025/04/06/blackhawks-kevin-korchinski-maturity-penguins/
+
+**Thompson: Paige Bueckers didn't need a title to be a UConn legend. She deserved one, though**\
+`Bueckers’ greatest victory, the one most meaningful to her undeniable legacy, is how she has handled the weight of her crown.`\
+https://nytimes.com/athletic/6260292/2025/04/06/paige-bueckers-uconn-national-championship-2/
+
 **10-Minute Challenge: ‘The Seasons’ by Lee Krasner**\
 `We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
 https://nytimes.com/interactive/2025/04/06/upshot/ten-minute-challenge-seasons.html
@@ -11,7 +19,7 @@ https://nytimes.com/athletic/6260023/2025/04/06/chicago-cubs-summer-wrigley-fiel
 https://nytimes.com/athletic/6259821/2025/04/06/penguins-malkin-ovechkin-crosby-fatigue-blackhawks/
 
 **He's tried to retire, but Geno Auriemma keeps coming back ... and winning**\
-` Auriemma has won more than anyone in women's college basketball. Yet, he's still hungry for more. `\
+`Auriemma has won more than anyone in women's college basketball. Yet, he's still hungry for more. `\
 https://nytimes.com/athletic/6260321/2025/04/06/uconn-national-championship-geno-auriemma/
 
 **Everything we know so far about Alexander Ovechkin's 895th goal memorabilia and collectibles**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6260215/2025/04/06/south-carolina-national-champion
 **‘I’m Assuming You Know David Greenspan’ Review: What Are You Waiting For?**\
 `Mona Pirnot’s comic ode to the downtown artist doubles as a meditation on the precariousness of playwriting as a creative life.`\
 https://nytimes.com/2025/04/06/theater/im-assuming-you-know-david-greenspan-review.html
-
-**Twins takeaways: Brutal loss to Astros, Royce Lewis' progress, low attendance**\
-`"Some losses are different than other losses. This is going to be a tough one that's going to bother a lot of people in our clubhouse." `\
-https://nytimes.com/athletic/6260033/2025/04/06/twins-astros-royce-lewis-injury-attendance/
-
-**Jay North, Child Star From ‘Dennis the Menace,’ Dies at 73**\
-`Mr. North was best known for playing the towheaded Dennis Mitchell on the television series, which ran on CBS from 1959 to 1963.`\
-https://nytimes.com/2025/04/06/arts/television/jay-north-dennis-the-menance-dead.html
 

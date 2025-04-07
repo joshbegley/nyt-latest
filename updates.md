@@ -1,3 +1,15 @@
+**Blackhawks' Korchinski weeding out 'immature' plays as he eyes a permanent NHL spot**\
+`Korchinski was fast-tracked to the NHL last season, wreaking havoc with his sense of development. Now he knows where he's growing and going.`\
+https://nytimes.com/athletic/6260357/2025/04/06/blackhawks-kevin-korchinski-maturity-penguins/
+
+**Thompson: Paige Bueckers didn't need a title to be a UConn legend. She deserved one, though**\
+`Bueckers’ greatest victory, the one most meaningful to her undeniable legacy, is how she has handled the weight of her crown.`\
+https://nytimes.com/athletic/6260292/2025/04/06/paige-bueckers-uconn-national-championship-2/
+
+**He's tried to retire, but Geno Auriemma keeps coming back ... and winning**\
+`Auriemma has won more than anyone in women's college basketball. Yet, he's still hungry for more. `\
+https://nytimes.com/athletic/6260321/2025/04/06/uconn-national-championship-geno-auriemma/
+
 **10-Minute Challenge: ‘The Seasons’ by Lee Krasner**\
 `We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
 https://nytimes.com/interactive/2025/04/06/upshot/ten-minute-challenge-seasons.html
