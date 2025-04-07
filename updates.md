@@ -1,3 +1,7 @@
+**10-Minute Challenge: ‘The Seasons’ by Lee Krasner**\
+`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
+https://nytimes.com/interactive/2025/04/06/upshot/ten-minute-challenge-seasons.html
+
 **All Cubs signs pointing toward an entertaining, dramatic summer at Wrigley Field**\
 `As Eric Karros said: "Every player should spend a year as a Chicago Cub."`\
 https://nytimes.com/athletic/6260023/2025/04/06/chicago-cubs-summer-wrigley-field/
