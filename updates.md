@@ -1,3 +1,11 @@
+**Celtic Boys Club abuse case settled: 'A significant milestone' after 50 years of pain**\
+`This week, a seven-figure settlement was reached with Celtic on behalf of 22 victims who were sexually abused at Celtic Boys Club`\
+https://nytimes.com/athletic/6251977/2025/04/07/celtic-boys-club-abuse-case-settlement/
+
+**The Premier League's double sacking seasons: Commandeered taxis, emails and found fivers**\
+`Southampton became the latest side to sack two managers in a season when Ivan Juric followed Russell Martin out of the door`\
+https://nytimes.com/athletic/6261602/2025/04/07/premier-league-managers-sacked-two-double-sackings/
+
 **Trump Asks Supreme Court to Block Order Requiring Return of Wrongly Deported Migrant**\
 `The government said Judge Paula Xinis, who ordered that the administration return the migrant, Kilmar Armando Abrego Garcia, by Monday, had engaged in “district-court diplomacy.”`\
 https://nytimes.com/2025/04/07/us/politics/supreme-court-wrongly-deported.html

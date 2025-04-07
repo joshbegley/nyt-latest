@@ -1,3 +1,7 @@
+**How Trump’s Tariffs Play Right Into China’s Hands**\
+`Instead of making our strategy America against the whole world on tariffs, Trump should have made it all the industrial democracies, led by America, against China.`\
+https://nytimes.com/2025/04/07/opinion/tariffs-china-advanced-manufacturing.html
+
 **Celtic Boys Club abuse case settled: 'A significant milestone' after 50 years of pain**\
 `This week, a seven-figure settlement was reached with Celtic on behalf of 22 victims who were sexually abused at Celtic Boys Club`\
 https://nytimes.com/athletic/6251977/2025/04/07/celtic-boys-club-abuse-case-settlement/
@@ -5,6 +9,10 @@ https://nytimes.com/athletic/6251977/2025/04/07/celtic-boys-club-abuse-case-sett
 **The Premier League's double sacking seasons: Commandeered taxis, emails and found fivers**\
 `Southampton became the latest side to sack two managers in a season when Ivan Juric followed Russell Martin out of the door`\
 https://nytimes.com/athletic/6261602/2025/04/07/premier-league-managers-sacked-two-double-sackings/
+
+**Will anyone ever break Ovechkin's record? Should the NHL expand to Wisconsin? Hellebuyck for Hart? Ask CJ**\
+`Also in Chris Johnston's mailbag: What happens in Toronto if the Maple Leafs lose a Battle of Ontario? And just how good are the Blues?`\
+https://nytimes.com/athletic/6260473/2025/04/07/ovechkin-hellebuyck-expansion-nhl-mailbag/
 
 **Trump Asks Supreme Court to Block Order Requiring Return of Wrongly Deported Migrant**\
 `The government said Judge Paula Xinis, who ordered that the administration return the migrant, Kilmar Armando Abrego Garcia, by Monday, had engaged in “district-court diplomacy.”`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6261781/2025/04/07/bayern-munichs-manuel-neuer-face
 **U.S. Markets Swing Wildly on an Unsubstantiated Report**\
 `It was not clear where the report, that President Trump was considering a pause on his expansive tariffs, had originated. The White House called the claim “fake news.”`\
 https://nytimes.com/2025/04/07/business/economy/trump-tariffs-no-pause-stock-market.html
-
-**Scoop City: Big offseason questions to ponder as Julio Jones retires**\
-`A well-deserved break from your tax returns or refreshing your stock portfolio to unpack the five big remaining offseason questions, 2026 FA`\
-https://nytimes.com/athletic/6261822/2025/04/07/julio-jones-retires-yards-per-route-run-nfl-offseason-questions-scoop-city/
-
-**Farke: Leeds 'fear' Struijk out for season with foot fracture**\
-`"Struijk needs to wait for further assessment, the fear is it might be a fracture, which would mean his season is over," Farke said.`\
-https://nytimes.com/athletic/6261749/2025/04/07/pascal-struijk-injury-leeds/
 
