@@ -1,3 +1,11 @@
+**Tigers asst. GM resigned amid investigation into lewd photos allegedly sent to female staffers**\
+`Sam Menzin was recently under investigation for workplace misconduct and resigned before the team could terminate him, the Tigers said.`\
+https://nytimes.com/athletic/6262272/2025/04/07/tigers-assistant-gm-investigation/
+
+**2 U.S. Border Officers Charged With Taking Bribes to Allow Undocumented Migrants**\
+`Prosecutors said the men allowed dozens of cars with undocumented immigrants to pass through their inspection lanes in Southern California in exchange for cash.`\
+https://nytimes.com/2025/04/07/us/us-border-officers-bribes-charged.html
+
 **Has NASCAR's Throwback Weekend, with paint scheme woes, run its course?**\
 `As paint-scheme participation dwindles, questions linger about the future of NASCAR's Throwback Weekend. But not all may be lost.`\
 https://nytimes.com/athletic/6262134/2025/04/07/nascar-throwback-weekend-paint-schemes-future/
