@@ -1,3 +1,7 @@
+**Johnson Reaches Agreement to Kill Proxy Voting Proposal in the House**\
+`Republicans who had been poised to force a vote on changing House rules to allow new parents to vote remotely pulled back after the speaker offered a watered-down solution for a narrow set of new mothers.`\
+https://nytimes.com/2025/04/07/us/politics/johnson-agreement-house-proxy-voting-proposal.html
+
 **She Knocks the Cobwebs Off the Violin Repertory**\
 `Patricia Kopatchinskaja, making her New York Philharmonic debut this week, has become one of music’s quirkiest stars by breathing new life into standards.`\
 https://nytimes.com/2025/04/07/arts/music/patricia-kopatchinskaja-violin-new-york-philharmonic.html
