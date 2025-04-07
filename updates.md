@@ -1,3 +1,11 @@
+**Are Azzi Fudd and Sarah Strong the keys to UConn running it back?**\
+`Strong and Fudd each scored 24 points to beat South Carolina for the national championship. `\
+https://nytimes.com/athletic/6260519/2025/04/06/are-azzi-fudd-and-sarah-strong-the-keys-to-uconn-running-it-back/
+
+**Cavs miss chance to clinch East; Donovan Mitchell suffers injury scare: What it means**\
+`Up four games on the Boston Celtics with four to play, Cleveland has four more chances to close this thing out.`\
+https://nytimes.com/athletic/6260488/2025/04/06/cavaliers-kings-donovan-mitchell-ankle/
+
 **Red Wings' winning weekend sets up 'biggest game of the year': 5 thoughts**\
 `Wins over Carolina and Florida have the given the Red Wings' upcoming trip to Montreal some real meaning.`\
 https://nytimes.com/athletic/6260276/2025/04/06/red-wings-debrincat-talbot-playoffs-panthers/

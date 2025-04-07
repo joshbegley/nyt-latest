@@ -1,3 +1,7 @@
+**‘The White Lotus’ Season 3 Finale Recap: Bloodshed and Sacrifice**\
+`Some characters got happy endings, while some decidedly did not. But there were enough twists to keep viewers guessing until the end.`\
+https://nytimes.com/2025/04/06/arts/television/white-lotus-recap-season-3-finale.html
+
 **Are Azzi Fudd and Sarah Strong the keys to UConn running it back?**\
 `Strong and Fudd each scored 24 points to beat South Carolina for the national championship. `\
 https://nytimes.com/athletic/6260519/2025/04/06/are-azzi-fudd-and-sarah-strong-the-keys-to-uconn-running-it-back/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/04/06/upshot/ten-minute-challenge-seasons.h
 **All Cubs signs pointing toward an entertaining, dramatic summer at Wrigley Field**\
 `As Eric Karros said: "Every player should spend a year as a Chicago Cub."`\
 https://nytimes.com/athletic/6260023/2025/04/06/chicago-cubs-summer-wrigley-field/
-
-**Yohe's 10 observations: Malkin pays tribute to Ovechkin following Penguins loss**\
-`More than 20 years after Ovechkin and Malkin were drafted back to back, the Penguins' Russian gushed about his compatriot's new record.`\
-https://nytimes.com/athletic/6259821/2025/04/06/penguins-malkin-ovechkin-crosby-fatigue-blackhawks/
 
