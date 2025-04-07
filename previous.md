@@ -1,8 +1,16 @@
+**How to Get a Great Rate on a Hotel Room**\
+`Six strategies for scoring bargains.`\
+https://nytimes.com/article/hotel-discount-rate-cost.html
+
+**N.C. Supreme Court Halts Voter Eligibility Review in Contested Judicial Race**\
+`A razor-close race for a seat on the court is the last 2024 statewide election in the nation to remain uncertified.`\
+https://nytimes.com/2025/04/07/us/politics/north-carolina-supreme-court-election-ballots.html
+
 **Can Gamecocks reclaim the crown? Way-too-early odds favor Staley's squad next year**\
 `Way-too-early odds for the women's basketball title next year, and top questions for the favorites.`\
 https://nytimes.com/athletic/6261638/2025/04/07/2026-ncaa-womens-college-basketball-odds/
 
-**Geno Smith ready to bring durability as Raiders QB, Pete Carroll reunite**\
+**Geno Smith ready to bring stability as Raiders QB, Pete Carroll reunite**\
 `Carroll coached Smith for five seasons when he was the Seahawks’ coach before getting fired following the 2023 season`\
 https://nytimes.com/athletic/6261831/2025/04/07/raiders-geno-smith-pete-carroll-introduction/
 
@@ -29,8 +37,4 @@ https://nytimes.com/2025/04/07/us/politics/trump-homeland-security-ice-dei-grant
 **The leading U.S. business lobby warns tariffs could inflict ‘major harm.’**\
 `By Ken Belson`\
 https://nytimes.com/live/2025/04/07/business/trump-tariffs-stock-market/the-leading-us-business-lobby-warns-tariffs-could-inflict-major-harm
-
-**Tigers asst. GM resigned amid investigation into lewd photos allegedly sent to female staffers**\
-`Sam Menzin was recently under investigation for workplace misconduct. He resigned before the team could terminate him, the Tigers said.`\
-https://nytimes.com/athletic/6262272/2025/04/07/tigers-assistant-gm-investigation/
 
