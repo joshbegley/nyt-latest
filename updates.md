@@ -1,3 +1,7 @@
+**‘The White Lotus’ Season 3 Finale Recap: Bloodshed and Sacrifice**\
+`Some characters got happy endings, while some decidedly did not. But there were enough twists to keep viewers guessing until the end.`\
+https://nytimes.com/2025/04/06/arts/television/white-lotus-recap-season-3-finale.html
+
 **Are Azzi Fudd and Sarah Strong the keys to UConn running it back?**\
 `Strong and Fudd each scored 24 points to beat South Carolina for the national championship. `\
 https://nytimes.com/athletic/6260519/2025/04/06/are-azzi-fudd-and-sarah-strong-the-keys-to-uconn-running-it-back/
