@@ -1,3 +1,7 @@
+**Nils Höglander’s strong return, the Victor Mancini experiment and more: 3 takeaways**\
+`Kevin Lankinen needed a bounce-back performance against Vegas. Despite a 3-2 loss, he got it.`\
+https://nytimes.com/athletic/6260419/2025/04/07/vancouver-canucks-vegas-nils-hoglander/
+
 **Rosenthal: Guerrero’s extension is great for the Jays and top free agents – and will no doubt heighten labor tensions**\
 `Vladimir Guerrero Jr.'s massive new deal doesn't just alter the Blue Jays' trajectory. It will have ripple effects throughout the sport.`\
 https://nytimes.com/athletic/6260632/2025/04/07/vladimir-guerrero-blue-jays-extension-free-agency/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6259461/2025/04/07/man-city-guardiola-de-bruyne-sil
 **Chelsea's top Premier League scorer in 2025 is left-back Marc Cucurella. That is a problem**\
 `If Maresca's side want to get into the Champions League, the forwards needs to start scoring`\
 https://nytimes.com/athletic/6259252/2025/04/07/chelseas-top-scorer-in-the-premier-league-in-2025-is-left-back-marc-cucurella/
-
-**A lack of defensive consistency and cohesion could be hampering Brighton's European push**\
-`The injury crisis at Brighton this season has denied Fabien Hurzeler the kind of continuity he would have liked at the back`\
-https://nytimes.com/athletic/6254713/2025/04/07/could-a-lack-of-defensive-consistency-be-hampering-brightons-european-push/
 

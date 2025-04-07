@@ -1,3 +1,7 @@
+**Nils Höglander’s strong return, the Victor Mancini experiment and more: 3 takeaways**\
+`Kevin Lankinen needed a bounce-back performance against Vegas. Despite a 3-2 loss, he got it.`\
+https://nytimes.com/athletic/6260419/2025/04/07/vancouver-canucks-vegas-nils-hoglander/
+
 **Rosenthal: Guerrero’s extension is great for the Jays and top free agents – and will no doubt heighten labor tensions**\
 `Vladimir Guerrero Jr.'s massive new deal doesn't just alter the Blue Jays' trajectory. It will have ripple effects throughout the sport.`\
 https://nytimes.com/athletic/6260632/2025/04/07/vladimir-guerrero-blue-jays-extension-free-agency/
