@@ -1,3 +1,15 @@
+**Quote of the Day: Skeletons of the Roman Empire Are Found Under a Vienna Soccer Field**\
+`Quote of the Day for Monday, April 7, 2025`\
+https://nytimes.com/2025/04/07/pageoneplus/quote-of-the-day-skeletons-of-the-roman-empire-are-found-under-a-vienna-soccer-field.html
+
+**In a Strongman State, a Trump Order Extinguishes Flickers of Freedom**\
+`Cambodia’s authoritarian dynasty had silenced almost all of the country’s independent media. The remaining few are facing extinction because of an executive directive from President Trump.`\
+https://nytimes.com/2025/04/07/world/asia/in-a-strongman-state-a-trump-order-extinguishes-flickers-of-freedom.html
+
+**As Netanyahu Heads to Washington, He Finds an Ally in Trump**\
+`President Trump and Prime Minister Benjamin Netanyahu are using similar playbooks as they face turmoil.`\
+https://nytimes.com/2025/04/07/us/politics/netanyahu-trump-israel-gaza.html
+
 **Oil Prices Tumble Further as Trump’s Tariffs Weigh on Economic Outlook**\
 `Crude oil now costs around 15 percent less than it did before the president revealed his plans to impose stiff new tariffs on imports from most countries.`\
 https://nytimes.com/2025/04/06/business/energy-environment/oil-prices-trump-tariffs.html
