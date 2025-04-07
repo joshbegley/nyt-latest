@@ -1,3 +1,7 @@
+**gws-jason-kelce-espn-late-night**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/jason-kelce-espn-late-night
+
 **Scientists Revive the Dire Wolf, or Something Close**\
 `Dire wolves, made famous by “Game of Thrones,” went extinct some 13,000 years ago. Now, researchers have bred gray-wolf pups that carry genes of their ancient cousins.`\
 https://nytimes.com/2025/04/07/science/colossal-dire-wolf-deextinction.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6251977/2025/04/07/celtic-boys-club-abuse-case-sett
 **The Premier League's double sacking seasons: Commandeered taxis, emails and found fivers**\
 `Southampton became the latest side to sack two managers in a season when Ivan Juric followed Russell Martin out of the door`\
 https://nytimes.com/athletic/6261602/2025/04/07/premier-league-managers-sacked-two-double-sackings/
-
-**Will anyone ever break Ovechkin's record? Should the NHL expand to Wisconsin? Hellebuyck for Hart? Ask CJ**\
-`Also in Chris Johnston's mailbag: What happens in Toronto if the Maple Leafs lose a Battle of Ontario? And just how good are the Blues?`\
-https://nytimes.com/athletic/6260473/2025/04/07/ovechkin-hellebuyck-expansion-nhl-mailbag/
 
