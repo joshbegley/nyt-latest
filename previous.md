@@ -2,7 +2,7 @@
 `The Blue Jackets have now matched a franchise record in allowing 14 straight unanswered goals.`\
 https://nytimes.com/athletic/6260105/2025/04/06/blue-jackets-shutout-tarasov-merzlikins-senators/
 
-**South Carolina players 'soak in this sucky feeling' in hopes of returning stronger**\
+**South Carolina players 'soak this sucky feeling in' in hopes of returning stronger**\
 `South Carolina's 82-59 loss to UConn ended the Gamecocks' quest to repeat as champions. `\
 https://nytimes.com/athletic/6260215/2025/04/06/south-carolina-national-championship-loss-uconn/
 
