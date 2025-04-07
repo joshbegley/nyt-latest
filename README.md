@@ -1,3 +1,7 @@
+**Bitcoin Is Down 10% Since Trump’s Global Tariff Announcement**\
+`The rapid drop shows that cryptocurrencies, which the president has promoted, are subject to the same market gyrations as any other risky asset.`\
+https://nytimes.com/2025/04/06/business/economy/trump-bitcoin-crypto-tariffs.html
+
 **Blackhawks' Korchinski weeding out 'immature' plays as he eyes a permanent NHL spot**\
 `Korchinski was fast-tracked to the NHL last season, wreaking havoc with his sense of development. Now he knows where he's growing and going.`\
 https://nytimes.com/athletic/6260357/2025/04/06/blackhawks-kevin-korchinski-maturity-penguins/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6260105/2025/04/06/blue-jackets-shutout-tarasov-mer
 **South Carolina players 'soak this sucky feeling in' in hopes of returning stronger**\
 `South Carolina's 82-59 loss to UConn ended the Gamecocks' quest to repeat as champions. `\
 https://nytimes.com/athletic/6260215/2025/04/06/south-carolina-national-championship-loss-uconn/
-
-**‘I’m Assuming You Know David Greenspan’ Review: What Are You Waiting For?**\
-`Mona Pirnot’s comic ode to the downtown artist doubles as a meditation on the precariousness of playwriting as a creative life.`\
-https://nytimes.com/2025/04/06/theater/im-assuming-you-know-david-greenspan-review.html
 
