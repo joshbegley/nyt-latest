@@ -1,40 +1,40 @@
-**Weekend NHL rankings: Ovechkin breaks the goals record, plus my worst rankings**\
-`We're almost to the end of the NHL regular season, and that means it's time to look back at where these rankings really blew it.`\
-https://nytimes.com/athletic/6259891/2025/04/07/nhl-weekend-rankings-ovechkin-worst-picks/
+**Wilson signs new two-year Aston Villa deal**\
+`The agreement marks the end of protracted negotiations between Villa and the 19-year-old.`\
+https://nytimes.com/athletic/6246751/2025/04/07/rory-wilson-aston-villa-contract-new/
 
-**Trump’s Retribution**\
-`We explore the creative ways the president is getting even with his opponents.`\
-https://nytimes.com/2025/04/07/briefing/donald-trump-retribution.html
+**Nine ugly Twins numbers after the first 9 games, from pitching and hitting to attendance**\
+`After blowing a six-run lead at home Sunday, the Twins are off to a 3-6 start for the second year in a row.`\
+https://nytimes.com/athletic/6259970/2025/04/07/minnesota-twins-start-stats-attendance/
 
-**The L.A. Dodgers Will Visit the White House on Monday**\
-`The World Series winners’ trip comes after the Trump administration was criticized for removing an article on a Pentagon website honoring Jackie Robinson, one of the franchise’s most celebrated players.`\
-https://nytimes.com/2025/04/07/us/politics/dodgers-white-house-visit.html
+**Bo Henriksen on taking Mainz to the brink of the Champions League: 'Without fear, anything is possible'**\
+`The Dane inherited a team apparently destined for relegation but, 11 months on, has them in the Bundesliga's top four`\
+https://nytimes.com/athletic/6260803/2025/04/07/mainz-henriksen-champions-league-fear-exclusive/
 
-**Europe Is Ready to Make Its First Countermove to Trump Tariffs**\
-`European Union officials will vet and vote on a list of retaliatory tariffs this week, while contemplating what comes next.`\
-https://nytimes.com/2025/04/07/world/europe/europe-tariffs-trump-response.html
+**USWNT's Alyssa Thompson is having a moment: 'I knew what I could do'**\
+`This is Alyssa Thompson’s moment.`\
+https://nytimes.com/athletic/6260876/2025/04/07/alyssa-thompson-uswnt-resurgence/
 
-**Southampton to sack Juric after 108 days in charge**\
-`Juric won only one of 14 Premier League matches and Southampton's relegation was confirmed after Sunday's loss to Tottenham Hotspur.`\
-https://nytimes.com/athletic/6159582/2025/04/07/ivan-juric-sacked-southampton/
+**Alex Ovechkin has long been the NHL's greatest goal-scorer — now he has the proof**\
+`This isn't about comparing players across generations. It's the fact that Ovechkin is unmatchable.`\
+https://nytimes.com/athletic/6214295/2025/04/07/alex-ovechkin-nhl-record-goals/
 
-**In loss to UConn, South Carolina's imperfect season ends in incomplete repeat mission**\
-`Without a go-to option, South Carolina lacked the keys to unlock another championship. `\
-https://nytimes.com/athletic/6260626/2025/04/07/south-carolina-loss-national-championship/
+**For two baseball-loving sisters, major-league careers honor a family history**\
+`In a sport long known for fathers and sons and brothers, sisters Amelia and Joanna Schimmel are making their own mark.`\
+https://nytimes.com/athletic/6251341/2025/04/07/schimmel-sisters-athletics-cubs-mlb/
 
-**China intervenes to ‘safeguard’ markets as shares tumble.**\
-`An arm of China’s sovereign wealth fund said it raised its holdings of Chinese stocks.`\
-https://nytimes.com/live/2025/04/07/business/trump-tariffs-stock-market/china-stocks
+**Without Paige or JuJu, who will emerge as a women's basketball star in 2025-26?**\
+`Could UConn's Sarah Strong or Notre Dame's Hannah Hidalgo become a commercial superstar and grow their fan bases?`\
+https://nytimes.com/athletic/6260701/2025/04/07/womens-college-basketball-stars-2026-sarah-strong/
 
-**The Pulse: A legacy-making Sunday**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6260207/2025/04/07/guerrero-contract-uconn-bueckers-ovechkin-the-pulse/
+**How will the House v. NCAA settlement, revenue sharing impact women's college basketball?**\
+`Revenue-sharing "will ruin parity," UConn coach Geno Auriemma argued.`\
+https://nytimes.com/athletic/6259508/2025/04/07/ncaa-house-settlement-womens-basketball/
 
-**Phillies takeaways: Patience pays off, containing Ohtani, Romano's velo, more ABs for Sosa**\
-`The Phillies have been more disciplined. They are near the top of MLB in OBP. There is some chase, but the overall approach has been solid.`\
-https://nytimes.com/athletic/6259955/2025/04/07/phillies-dodgers-walks-ohtani-jordan-romano-edmundo-sosa/
+**Florida’s analytical whiz kid vs. Houston’s old-school grinder? Think deeper**\
+`Kelvin Sampson may scoff at the term analytics, but he has embraced math and probabilities as valuable tools in shaping his decisions.`\
+https://nytimes.com/athletic/6260061/2025/04/07/todd-golden-kelvin-sampson-coaches-analytics/
 
-**Women's college basketball 2025-26 too-early power ranking: UConn looks like favorite again**\
-`Where's South Carolina ranked? Does Notre Dame make the top 25? `\
-https://nytimes.com/athletic/6259644/2025/04/07/womens-college-basketball-2025-26-early-power-ranking-uconn/
+**At a Group of 5 school like FIU, coaches try to win with ‘an abundance of love’ not NIL**\
+`New coach Willie Simmons understands the challenges that come with operating a G5 program in today's college football climate.`\
+https://nytimes.com/athletic/6258930/2025/04/07/fiu-willie-simmons-group-5-nil/
 
