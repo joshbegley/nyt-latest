@@ -1,3 +1,7 @@
+**Weekend NHL rankings: Ovechkin breaks the goals record, plus my worst rankings**\
+`We're almost to the end of the NHL regular season, and that means it's time to look back at where these rankings really blew it.`\
+https://nytimes.com/athletic/6259891/2025/04/07/nhl-weekend-rankings-ovechkin-worst-picks/
+
 **Trump’s Retribution**\
 `We explore the creative ways the president is getting even with his opponents.`\
 https://nytimes.com/2025/04/07/briefing/donald-trump-retribution.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6259955/2025/04/07/phillies-dodgers-walks-ohtani-jo
 **Women's college basketball 2025-26 too-early power ranking: UConn looks like favorite again**\
 `Where's South Carolina ranked? Does Notre Dame make the top 25? `\
 https://nytimes.com/athletic/6259644/2025/04/07/womens-college-basketball-2025-26-early-power-ranking-uconn/
-
-**This Week in Mets: Good vibes carrying over in solid start**\
-`Juan Soto and the lineup capture the headlines, but a deep bullpen has helped fuel a 6-3 start to the season.`\
-https://nytimes.com/athletic/6259721/2025/04/07/this-week-in-mets-good-vibes-carrying-over-in-solid-start-for-mets/
 
