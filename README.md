@@ -1,3 +1,7 @@
+**Nuggets fire coach Malone, GM Booth in pre-playoff shakeup**\
+`Malone, 53, has coached the Nuggets since the 2015 season and brought Denver a championship in 2023.`\
+https://nytimes.com/athletic/6264653/2025/04/08/michael-malone-fired-nuggets-head-coach/
+
 **Darjeeling Kitchen & Café Offers Halal Momos in Long Island City**\
 `Leonessa serves cocktails with rooftop views, 12 Matcha caters to green-tea obsessives and more restaurant news.`\
 https://nytimes.com/2025/04/08/dining/nyc-restaurant-news.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/08/world/europe/europe-trump-tariff-retaliation.html
 **When Politics Has a Place in the Classroom**\
 `Readers respond to a critique of colleges by Greg Weiner, the president of Assumption University. Also: The rich and the rest.`\
 https://nytimes.com/2025/04/08/opinion/colleges-universities-politics.html
-
-**Supreme Court Pauses Ruling Requiring Rehiring of 16,000 Probationary Workers**\
-`A federal judge in California had ordered the Trump administration to rehire government employees fired as part of its efforts to slash the federal work force.`\
-https://nytimes.com/2025/04/08/us/politics/supreme-court-probationary-workers.html
 
