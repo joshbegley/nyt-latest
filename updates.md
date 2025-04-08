@@ -1,3 +1,15 @@
+**NBA Draft early entry tracker: Jase Richardson declares; who else is in?**\
+`April 26 is the deadline for underclassmen to declare for the NBA Draft on June 25-26.`\
+https://nytimes.com/athletic/6251067/2025/04/08/nba-draft-early-entry-tracker-deadline/
+
+**3 Visitors to Yellowstone Get Jail Sentences for Violations**\
+`Tourists are required to stay on marked paths in thermal areas because of the dangers of the hot springs, geysers and steam vents, and to protect nature.`\
+https://nytimes.com/2025/04/08/us/yellowstone-tourists-prison-sentence.html
+
+**Death of Palestinian American Boy in West Bank Sparks Outcry**\
+`Amer Rabee, 14, was fatally shot Sunday by Israeli forces in the West Bank, according to his family. On Tuesday, community leaders gathered in New Jersey to demand justice.`\
+https://nytimes.com/2025/04/08/nyregion/nj-amer-rabee-killed-west-bank.html
+
 **Trump Officials Freeze $1 Billion for Cornell and $790 Million for Northwestern**\
 `The funding pause amid civil rights investigations into both universities sharply escalates the Trump administration’s campaign against elite colleges.`\
 https://nytimes.com/2025/04/08/us/politics/cornell-northwestern-university-funds-trump.html

@@ -1,3 +1,7 @@
+**3 Are Killed in Shooting Near Fredericksburg, Va., Authorities Say**\
+`Three others were injured in the shooting, which occurred on a suburban street in Spotsylvania County, about 60 miles southwest of Washington, D.C.`\
+https://nytimes.com/2025/04/08/us/shooting-virginia-fredericksburg.html
+
 **NBA Draft early entry tracker: Jase Richardson declares; who else is in?**\
 `April 26 is the deadline for underclassmen to declare for the NBA Draft on June 25-26.`\
 https://nytimes.com/athletic/6251067/2025/04/08/nba-draft-early-entry-tracker-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6263751/2025/04/08/boat-race-thames-bacteria/
 **The Skin on Mysterious Medieval Books Concealed a Shaggy Surprise**\
 `The material on the covers of books from a French abbey was too hairy to have come from calves or other local mammals. Researchers identified its more distant origin.`\
 https://nytimes.com/2025/04/08/science/medieval-books-hair-binding.html
-
-**Tigers roll to a 5-game win streak despite mounting injuries**\
-`With their injured brethren unable to contribute, the Tigers have found production from unlikely sources.`\
-https://nytimes.com/athletic/6265225/2025/04/08/tigers-yankees-5-game-win-streak-injuries/
 
