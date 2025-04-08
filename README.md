@@ -1,3 +1,11 @@
+**South Korea Sets New Presidential Election for June 3**\
+`Polls show the main opposition leader, Lee Jae-myung, is the front-runner to replace Yoon Suk Yeol, who was removed from office for declaring martial law.`\
+https://nytimes.com/2025/04/07/world/asia/south-korea-election.html
+
+**Red Sox winning streak snapped, Connor Wong headed to IL with fractured finger**\
+`After a weekend sweep, the Red Sox had a cold start to the week, losing a game to Toronto and a valuable player to the IL.`\
+https://nytimes.com/athletic/6263236/2025/04/07/red-sox-connor-wong-injured-list/
+
 **Florida rallies past Houston in thriller for first national championship since 2007**\
 `Florida produced a slew of defensive stands in crunch time to secure the school’s third national championship in men’s basketball.`\
 https://nytimes.com/athletic/6263067/2025/04/07/florida-houston-national-championship-ncaa-tournament/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6263240/2025/04/07/dodgers-shohei-ohtani-pitching-r
 **Florida overcomes 2nd-half fouls, including 2 technicals, to edge Houston**\
 `Florida was called for six fouls in less than three minutes as Houston built a 12-point lead, but the Gators rallied.`\
 https://nytimes.com/athletic/6263191/2025/04/07/florida-foul-calls-technical-houston-second-half/
-
-**Joe Musgrove plays catch for first time since surgery, continues to target October**\
-`"He's worked really hard. And that's a good thing for Joe. He's got a smile on his face," Mike Shildt said.`\
-https://nytimes.com/athletic/6263168/2025/04/07/padres-joe-musgrove-plays-catch/
-
-**NCAA’s House settlement on hold, but judge expresses optimism for approval**\
-`A federal judge declined to make a final ruling on the NCAA’s $2.8 billion House settlement after hearing objections Monday.`\
-https://nytimes.com/athletic/6263102/2025/04/07/ncaa-house-settlement-hearing/
 
