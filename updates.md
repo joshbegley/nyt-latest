@@ -1,3 +1,8 @@
+**Watch: Are blue-chip prospects worth trading up for in this year's NFL Draft?**\
+`"The Athletic Football Show" discusses which teams should consider an aggressive trade up to get Travis Hunter or Abdul Carter.
+`\
+https://nytimes.com/athletic/6260946/2025/04/08/athletic-football-show-2025-nfl-draft-trading-up/
+
 **Is Being Royal a Job? This Prince Says Yes, and He Wants a Pension.**\
 `A court case by the Belgian king’s younger brother argued that he was entitled to a state pension to keep his wife and adult children financially safe.`\
 https://nytimes.com/2025/04/08/world/europe/belgium-prince-social-security-benefits-ruling.html

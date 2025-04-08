@@ -1,9 +1,17 @@
+**China Criticizes JD Vance for Calling Its People ‘Peasants’**\
+`A spokesman for China’s foreign ministry denounced the vice president’s comments as “ignorant and impolite.”`\
+https://nytimes.com/2025/04/08/us/politics/jd-vance-peasants-china.html
+
+**Remembering Greg Millen, an NHLer, broadcaster and prankster who made his colleagues feel like family**\
+`The NHL Alumni Association announced Monday that Millen had passed away suddenly at age 67.`\
+https://nytimes.com/athletic/6263332/2025/04/08/greg-millen-hockey-night-in-canada/
+
 **Verstappen's Japanese GP win showed how he can exploit a tough McLaren tactic**\
 `Suzuka exposed some of McLaren’s weaknesses as its driver dilemma resurfaced`\
 https://nytimes.com/athletic/6263732/2025/04/08/max-verstappen-suzuka-japanese-gp-norris-piastri-mclaren/
 
 **Trump Officials Point to Outreach on Tariffs in a Bid to Calm Markets**\
-`Jamieson Greer, the United States trade representative, will tell senators the U.S. is economy is in need of “drastic, overdue change.”`\
+`Jamieson Greer, the United States trade representative, told senators the U.S. is economy is in need of “drastic, overdue change.”`\
 https://nytimes.com/2025/04/08/business/trump-tariffs-greer.html
 
 **Is Being Royal a Job? This Prince Says Yes, and He Wants a Pension.**\
@@ -30,12 +38,4 @@ https://nytimes.com/2025/04/08/movies/film-at-lincoln-center-daniel-battsek-pres
 `"The Athletic Football Show" discusses which teams should consider an aggressive trade up to get Travis Hunter or Abdul Carter.
 `\
 https://nytimes.com/athletic/6260946/2025/04/08/athletic-football-show-2025-nfl-draft-trading-up/
-
-**Gibbs-White, Wirtz among City's options to replace De Bruyne**\
-`Kevin De Bruyne announced last week he will leave City after 10 years at the club, potentially leaving a creative void in the squad.`\
-https://nytimes.com/athletic/6263607/2025/04/08/gibbs-white-wirtz-manchester-city-transfer/
-
-**Trump Administration Opens More Public Land to Drilling and Mining**\
-`The move, focused on Nevada and New Mexico, is aimed at removing “burdensome” restrictions on energy and mineral development, a statement said.`\
-https://nytimes.com/2025/04/08/climate/trump-new-mexico-nevada-mining-drilling.html
 
