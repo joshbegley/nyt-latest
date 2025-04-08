@@ -1,3 +1,11 @@
+**Trump to Sign Order Aimed at Reviving a Struggling Coal Industry**\
+`The moves include loosening environmental rules, but it is unclear how much they can help reverse the sharp decline in coal power over the last two decades.`\
+https://nytimes.com/2025/04/08/climate/trump-order-coal-mining.html
+
+**Councilwoman Who Bit Officer Has Charges Dropped After ‘Healing’ Course**\
+`Susan Zhuang attacked a deputy chief of the Police Department during a protest last summer over a homeless shelter in Brooklyn.`\
+https://nytimes.com/2025/04/08/nyregion/nyc-councilwoman-susan-zhuang-biting-charges-dropped.html
+
 **Man Pleads Guilty to Trying to Assassinate Justice Kavanaugh**\
 `Nicholas J. Roske, 29, of California, faces a maximum sentence of life in prison. He was arrested near the justice’s home in 2022, with a pistol, a knife and other weapons.`\
 https://nytimes.com/2025/04/08/us/kavanaugh-assassination-attempt-guilty.html
@@ -10,7 +18,7 @@ https://nytimes.com/athletic/6264186/2025/04/08/nashville-sc-eddi-tagseth-pokemo
 `Hear songs from the duo’s latest album, “Bunky Becky Birthday Boy,” plus predecessors and protégés.`\
 https://nytimes.com/2025/04/08/arts/music/amplifier-newsletter-sleigh-bells.html
 
-**Nuggets fire coach Malone, GM Booth in pre-playoff shakeup**\
+**Nuggets fire coach Malone, won't extend GM Booth in pre-playoff shakeup**\
 `Malone, 53, has coached the Nuggets since the 2015 season and brought Denver a championship in 2023.`\
 https://nytimes.com/athletic/6264653/2025/04/08/michael-malone-fired-nuggets-head-coach/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/08/science/king-k-holmes-dead.html
 **FIFA confirms referees will wear body cameras for Club World Cup**\
 `The new law change that aims to prevent goalkeepers from time-wasting will be introduced for the tournament.`\
 https://nytimes.com/athletic/6264483/2025/04/08/referees-club-world-cup-cameras/
-
-**Browns NFL Draft 2025 guide: Picks, predictions and key needs**\
-`Keeping you up to date on all of Cleveland's draft-related news and analysis heading into Round 1 on April 24. `\
-https://nytimes.com/athletic/6233351/2025/04/08/cleveland-browns-2025-nfl-draft-picks-needs-predictions-guide/
-
-**Commanders NFL Draft 2025 guide: Picks, predictions and key needs**\
-`Keeping you up to date on all of Washington's draft-related news and analysis heading into Round 1 on April 24. `\
-https://nytimes.com/athletic/6233463/2025/04/08/washington-commanders-2025-nfl-draft-picks-needs-predictions-guide/
 
