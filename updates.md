@@ -1,3 +1,7 @@
+**Steelers draft visit tracker: QB Shedeur Sanders visiting Thursday, per reports**\
+`Keep track of every prospect who visits the Steelers' facility between now and the 2025 NFL Draft.`\
+https://nytimes.com/athletic/6181787/2025/04/08/steelers-nfl-draft-prospect-visitors-tracker/
+
 **Bellingham says Real Madrid 'lucky' to only lose 3-0 to Arsenal**\
 `The Madrid midfielder said his side can take hope from the knowledge they are capable of producing something "crazy" in the second leg.`\
 https://nytimes.com/athletic/6265301/2025/04/08/jude-bellingham-real-madrid-arsenal/
