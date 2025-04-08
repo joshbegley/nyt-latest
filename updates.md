@@ -1,3 +1,11 @@
+**With Trump’s Return, Netanyahu Faces Fewer Restraints On Gaza Than Ever**\
+`On the war, President Trump is more aligned than his predecessor with the aims of Prime Minister Benjamin Netanyahu of Israel and his right-wing coalition.`\
+https://nytimes.com/2025/04/08/world/middleeast/trump-netanyahu-israel-gaza.html
+
+**Billie Jean King receives Hollywood Walk of Fame star for sports entertainment**\
+`King, 81, won 39 tennis Grand Slam titles overall and has blazed a trail for gender equity in sport.`\
+https://nytimes.com/athletic/6263577/2025/04/08/billie-jean-king-hollywood-walk-of-fame-star/
+
 **The Pulse: Of course it came down to the last possession**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6262171/2025/04/08/houston-florida-last-play-the-pulse/
