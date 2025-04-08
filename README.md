@@ -1,3 +1,11 @@
+**What Would You Like to Make?**\
+`A Times series features specialists who craft surfboards, piñatas, guitars, saddles, cakes, quilts and more. What craft would you most like to pursue — and why?`\
+https://nytimes.com/2025/04/08/learning/what-would-you-like-to-make.html
+
+**Theme Park**\
+`What do you like most about amusement parks?`\
+https://nytimes.com/2025/04/08/learning/theme-park.html
+
 **Global Art Sales Fell by 12% Last Year, Report Says**\
 `“Geopolitical tensions, economic volatility and trade fragmentation” drove the market down, according to the Art Basel and UBS Global Art Market Report.`\
 https://nytimes.com/2025/04/08/arts/design/art-basel-ubs-art-market-report.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/08/opinion/west-american-order-free-trade.html
 **Aston Villa's accounts explained: £86m loss, PSR problems to solve, player sales needed**\
 `Villa have posted another substantial loss but success on the pitch under Emery has raised revenue — PSR remains a significant issue, too`\
 https://nytimes.com/athletic/6261284/2025/04/08/aston-villa-accounts-explained-psr-transfers/
-
-**Picking Manchester United's XI to face Lyon: Hojlund or Zirkzee? Mount? And where to start Fernandes?**\
-`Our writers pick who they would start in arguably the most important game of Ruben Amorim's tenure so far`\
-https://nytimes.com/athletic/6262405/2025/04/08/manchester-united-team-lyon/
-
-**Tomkins interview: 'I left Palace to continue my career, but opportunities never came'**\
-`The former West Ham and Palace centre-back reflects on his career, his decision to retire and his breakthrough in east London`\
-https://nytimes.com/athletic/6260833/2025/04/08/james-tomkins-crystal-palace-west-ham-interview/
 
