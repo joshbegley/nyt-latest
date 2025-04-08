@@ -1,3 +1,11 @@
+**Florida rankled by fouls, including a technical, in second half vs. Houston**\
+`Florida was called for six fouls in less than three minutes as Houston built a 12-point lead.`\
+https://nytimes.com/athletic/6263191/2025/04/07/florida-foul-calls-technical-houston-second-half/
+
+**Joe Musgrove plays catch for first time since surgery, continues to target October**\
+`"He's worked really hard. And that's a good thing for Joe. He's got a smile on his face," Mike Shildt said.`\
+https://nytimes.com/athletic/6263168/2025/04/07/padres-joe-musgrove-plays-catch/
+
 **NCAA’s House settlement on hold, but judge expresses optimism for approval**\
 `A federal judge declined to make a final ruling on the NCAA’s $2.8 billion House settlement after hearing objections Monday.`\
 https://nytimes.com/athletic/6263102/2025/04/07/ncaa-house-settlement-hearing/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/07/theater/boop-the-musical-review-broadway.html
 **Alex Cora on Jarren Duran: 'He's going to save lives'**\
 `“Since I learned about it, me as a person, I've given him support, love, and somebody that he can talk to,” Cora said.`\
 https://nytimes.com/athletic/6263006/2025/04/07/jarren-duran-alex-cora-mental-health-netflix-documentary/
-
-**Congestion Pricing Will Live On for Several Months After Court Agreement**\
-`State and federal officials agreed to a timeline in their court dispute over the tolling program that is likely to leave it in place until the fall. Other threats to the program still loom.`\
-https://nytimes.com/2025/04/07/nyregion/mta-congestion-pricing-dot.html
-
-**At James Earl Jones Memorial, Friends Share Laughs, Tears and Moving Stories**\
-`At a gathering in the Broadway theater renamed to honor the star, speakers including Denzel Washington and Phylicia Rashad described Jones as an inspiration.`\
-https://nytimes.com/2025/04/07/theater/james-earl-jones-memorial-denzel.html
 
