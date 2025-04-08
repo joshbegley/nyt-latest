@@ -1,3 +1,27 @@
+**South Korea Sets New Presidential Election for June 3**\
+`Polls show the main opposition leader, Lee Jae-myung, is the front-runner to replace Yoon Suk Yeol, who was removed from office for declaring martial law.`\
+https://nytimes.com/2025/04/07/world/asia/south-korea-election.html
+
+**Red Sox winning streak snapped, Connor Wong headed to IL with fractured finger**\
+`After a weekend sweep, the Red Sox had a cold start to the week, losing a game to Toronto and a valuable player to the IL.`\
+https://nytimes.com/athletic/6263236/2025/04/07/red-sox-connor-wong-injured-list/
+
+**Florida rallies past Houston in thriller for first national championship since 2007**\
+`Florida produced a slew of defensive stands in crunch time to secure the school’s third national championship in men’s basketball.`\
+https://nytimes.com/athletic/6263067/2025/04/07/florida-houston-national-championship-ncaa-tournament/
+
+**Some Calm Returns to Asian Markets Even as Trade Tensions Escalate**\
+`Stocks rise in China after Beijing announces support measures a day after market plunges triggered by tariffs imposed by President Trump.`\
+https://nytimes.com/2025/04/07/business/trump-tariffs-stock-markets.html
+
+**China Says It Will ‘Fight to the End’ After Trump Threatens More Tariffs**\
+`The country’s commerce ministry called President Trump’s threat to escalate tariffs on China by another 50 percent “blackmail.”`\
+https://nytimes.com/2025/04/07/world/asia/china-trump-tariffs.html
+
+**Men's March Madness projections 2025: Who will win in the Final Four?**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/04/07/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **First-period implosion is the story of Rangers' season: 'Just kind of snowballed'**\
 `One disastrous stretch is enough to sink a game. Too many can sink a season.`\
 https://nytimes.com/athletic/6263225/2025/04/07/rangers-collapse-playoffs-chase-lightning/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6263240/2025/04/07/dodgers-shohei-ohtani-pitching-r
 **Florida overcomes 2nd-half fouls, including 2 technicals, to edge Houston**\
 `Florida was called for six fouls in less than three minutes as Houston built a 12-point lead, but the Gators rallied.`\
 https://nytimes.com/athletic/6263191/2025/04/07/florida-foul-calls-technical-houston-second-half/
-
-**Joe Musgrove plays catch for first time since surgery, continues to target October**\
-`"He's worked really hard. And that's a good thing for Joe. He's got a smile on his face," Mike Shildt said.`\
-https://nytimes.com/athletic/6263168/2025/04/07/padres-joe-musgrove-plays-catch/
-
-**NCAA’s House settlement on hold, but judge expresses optimism for approval**\
-`A federal judge declined to make a final ruling on the NCAA’s $2.8 billion House settlement after hearing objections Monday.`\
-https://nytimes.com/athletic/6263102/2025/04/07/ncaa-house-settlement-hearing/
-
-**Unassuming Home**\
-`Barbara Lin helps us out in more ways than one.`\
-https://nytimes.com/2025/04/07/crosswords/daily-puzzle-2025-04-08.html
-
-**Read the Supreme Court’s Ruling on Venezuelan Migrants**\
-`The Supreme Court ruled that the Trump administration could continue to deport Venezuelan migrants using a wartime powers act for now, overturning a lower court that had put a temporary stop to the deportations.`\
-https://nytimes.com/interactive/2025/04/07/us/supreme-court-venezuelan-migrants.html
-
-**Kyle Tucker on Guerrero's $500M extension: 'Right now, I'm here to play'  **\
-`Tucker, 28, is two years older than Guerrero and positioned to become the biggest name in the upcoming class of free agents.`\
-https://nytimes.com/athletic/6263101/2025/04/07/cubs-kyle-tucker-reaction-vladimir-guerrero-jr-extension/
-
-**Boris Johnson Has Run-In With Feisty Ostrich During Texas Trip**\
-`A video showed the former British prime minister yelping and uttering a profanity after the ostrich pecked him through a window at what appeared to be a wildlife park.`\
-https://nytimes.com/2025/04/07/us/ostrich-boris-johnson-texas-attack.html
 
