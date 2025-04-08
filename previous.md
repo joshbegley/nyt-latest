@@ -1,3 +1,11 @@
+**Aston Villa's accounts explained: £86m loss, PSR problems to solve, player sales needed**\
+`Villa have posted another substantial loss but success on the pitch under Emery has raised revenue — PSR remains a significant issue, too`\
+https://nytimes.com/athletic/6261284/2025/04/08/aston-villa-accounts-explained-psr-transfers/
+
+**Picking Manchester United's XI to face Lyon: Hojlund or Zirkzee? Mount? And where to start Fernandes?**\
+`Our writers pick who they would start in arguably the most important game of Ruben Amorim's tenure so far`\
+https://nytimes.com/athletic/6262405/2025/04/08/manchester-united-team-lyon/
+
 **Tomkins interview: 'I left Palace to continue my career, but opportunities never came'**\
 `The former West Ham and Palace centre-back reflects on his career, his decision to retire and his breakthrough in east London`\
 https://nytimes.com/athletic/6260833/2025/04/08/james-tomkins-crystal-palace-west-ham-interview/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6261447/2025/04/08/arsenal-real-madrid-thierry-henr
 **Why Bayern Munich no longer have carte blanche to sign up the Bundesliga's best**\
 `Florian Wirtz may be a long-standing target, but the cream of the German league have options these days rather than just a move to Bavaria`\
 https://nytimes.com/athletic/6261612/2025/04/08/bayern-munich-wirtz-bayer-transfers-policy/
-
-**Twins pitching struggles vex starters and bullpen. Moves made before loss to Royals**\
-`Through 10 games, Twins starters have an unseemly 6.90 ERA over 45 2/3 innings. And there's little relief from an exhausted bullpen.`\
-https://nytimes.com/athletic/6263273/2025/04/08/twins-pitching-struggles-loss-to-royals/
-
-**Daniel James: My Game In My Words**\
-`James sat down with The Athletic at Leeds's Thorp Arch training ground to discuss his game and how it has developed`\
-https://nytimes.com/athletic/6259790/2025/04/08/daniel-james-leeds-analysis-manchester-united/
 
