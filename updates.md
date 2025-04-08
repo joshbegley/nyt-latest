@@ -1,3 +1,7 @@
+**NBA Power Rankings: Revisiting some Week 1 questions as season winds down**\
+`There is one week left in the regular season. How well did every team answer its pressing concern coming into the year?`\
+https://nytimes.com/athletic/6263781/2025/04/08/nba-power-rankings-knicks-clippers-thunder-celtics/
+
 **Chris Sununu Skips a New Hampshire Senate Bid, Dashing Trump’s Hopes**\
 `The former New Hampshire governor had been seen as a top Republican recruit in the liberal-leaning yet competitive state. President Trump had said on Sunday, “I hope he runs.”`\
 https://nytimes.com/2025/04/08/us/politics/chris-sununu-trump-2026-senate-new-hampshire.html
