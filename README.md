@@ -1,3 +1,7 @@
+**Kevin De Bruyne's physical level has declined, creativity still elite**\
+`The Belgian has been linked with a move to MLS - if it happens then he should still have plenty to offer his new club`\
+https://nytimes.com/athletic/6264333/2025/04/08/kevin-de-bruyne-mls-miami-manchester-city/
+
 **Will Retaliation Work for Europe? It’s a Gamble.**\
 `Europe wants to negotiate, but it is also trying to project strength. As Trump warns nations against retaliation, that strategy could be perilous.`\
 https://nytimes.com/2025/04/08/world/europe/europe-trump-tariff-retaliation.html
@@ -26,15 +30,11 @@ https://nytimes.com/2025/04/08/us/politics/congress-house-trump-budget-resolutio
 `Scott Bessent said on television that most people kept 401(k) money in a 60 percent stock fund. It’s not quite that simple.`\
 https://nytimes.com/2025/04/08/your-money/401k-stock-market-scott-bessent.html
 
+**New York Jets NFL Draft 2025 guide: Picks, predictions and key needs**\
+`The Jets have a chance to restock the roster with eight picks in this spring's draft, including the seventh overall selection.`\
+https://nytimes.com/athletic/6237553/2025/04/08/new-york-jets-2025-nfl-draft-picks-needs-predictions-guide/
+
 **He Was Held Captive in His Room For Decades. Then He Set It on Fire.**\
 `Firefighters found a 32-year-old man who weighed 68 pounds. The police say his stepmother locked him away when he was 12.`\
 https://nytimes.com/2025/04/08/nyregion/ct-waterbury-captive.html
-
-**Matteo Berrettini earns biggest career win over top seed Alexander Zverev in Monte Carlo**\
-`It is Berrettini's first top-two win and continues Zverev's wretched record since the Australian Open.`\
-https://nytimes.com/athletic/6264268/2025/04/08/matteo-berrettini-alexander-zverev-monte-carlo/
-
-**Klopp to return to Liverpool next month**\
-`Klopp will be a guest speaker at the LFC Foundation gala dinner on May 23. His attendance at Anfield two days later is yet to be confirmed.`\
-https://nytimes.com/athletic/6264376/2025/04/08/jurgen-klopp-liverpool-return/
 
