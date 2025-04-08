@@ -1,3 +1,11 @@
+**Trump Pressed Ahead With Sweeping Tariffs**\
+`Also, a roof collapse in the Dominican Republic killed at least 58 people. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/04/08/briefing/trump-latest-tariffs-roof-collapse-dominican-republic.html
+
+**The Loose Screws, Hot Flames and Infinite Joy of William Finn**\
+`The composer and lyricist of “A New Brain,” “Falsettos” and other shows answered the pains of life with jaunty songs. He died this week at 73.`\
+https://nytimes.com/2025/04/08/theater/william-finn-appraisal.html
+
 **Yankees' rotation is showing cracks, but options to improve are limited**\
 `The Tigers teed off on Carlos Carrasco, who remains in the rotation due to injuries to Gerrit Cole, Luis Gil and Clarke Schmidt.`\
 https://nytimes.com/athletic/6264783/2025/04/08/yankees-starting-rotation-limited-options/

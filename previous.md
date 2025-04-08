@@ -1,3 +1,11 @@
+**Trump Pressed Ahead With Sweeping Tariffs**\
+`Also, a roof collapse in the Dominican Republic killed at least 58 people. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/04/08/briefing/trump-latest-tariffs-roof-collapse-dominican-republic.html
+
+**The Loose Screws, Hot Flames and Infinite Joy of William Finn**\
+`The composer and lyricist of “A New Brain,” “Falsettos” and other shows answered the pains of life with jaunty songs. He died this week at 73.`\
+https://nytimes.com/2025/04/08/theater/william-finn-appraisal.html
+
 **Yankees' rotation is showing cracks, but options to improve are limited**\
 `The Tigers teed off on Carlos Carrasco, who remains in the rotation due to injuries to Gerrit Cole, Luis Gil and Clarke Schmidt.`\
 https://nytimes.com/athletic/6264783/2025/04/08/yankees-starting-rotation-limited-options/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/08/us/politics/trump-ap-oval-office-access.html
 **Wednesday Briefing: Bracing for More Tariffs**\
 `Plus, the International Booker Prize shortlist.`\
 https://nytimes.com/2025/04/08/briefing/trump-tariffs-iran-us-congo-floods.html
-
-**Lawyers for Venezuelans Try Again to Stop Deportations, Now in New York**\
-`The Supreme Court this week allowed the administration to resume deportations, saying a case should have been filed in Texas. But the A.C.L.U. said other detainees are being held in the jail of a small New York town.`\
-https://nytimes.com/2025/04/08/nyregion/aclu-new-york-venezuelan-deportation.html
-
-**The Briefing: Bayern 1 Inter 2 - That Lautaro goal, Muller's moment, but what makes Inzaghi's men contenders?**\
-`A tight and tense evening in Munich saw the Italian side recover from conceding a late equaliser to claim a lead to take back to San Siro`\
-https://nytimes.com/athletic/6261134/2025/04/08/bayern-munich-inter-muller-lautaro-league/
 
