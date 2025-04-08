@@ -1,3 +1,15 @@
+**First-period implosion is the story of Rangers' season: 'Just kind of snowballed'**\
+`One disastrous stretch is enough to sink a game. Too many of them can sink a season.`\
+https://nytimes.com/athletic/6263225/2025/04/07/rangers-collapse-playoffs-chase-lightning/
+
+**Full Time: Trin is so back (literally)**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter. `\
+https://nytimes.com/athletic/6263224/2025/04/07/trinity-rodman-uswnt-brazil-full-time/
+
+**Shohei Ohtani says Dodgers are being 'conservative and thoughtful' with his pitching rehab**\
+`There was talk that Ohtani could face hitters before the season started. Then he went a month without throwing a bullpen session.`\
+https://nytimes.com/athletic/6263240/2025/04/07/dodgers-shohei-ohtani-pitching-rehab-approach/
+
 **Florida rankled by foul calls, including 2 technicals, in second half vs. Houston**\
 `Florida was called for six fouls in less than three minutes as Houston built a 12-point lead.`\
 https://nytimes.com/athletic/6263191/2025/04/07/florida-foul-calls-technical-houston-second-half/
