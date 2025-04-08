@@ -1,3 +1,7 @@
+**Unassuming Home**\
+`Barbara Lin helps us out in more ways than one.`\
+https://nytimes.com/2025/04/07/crosswords/daily-puzzle-2025-04-08.html
+
 **Read the Supreme Court’s Ruling on Venezuelan Migrants**\
 `The Supreme Court ruled that the Trump administration could continue to deport Venezuelan migrants using a wartime powers act for now, overturning a lower court that had put a temporary stop to the deportations.`\
 https://nytimes.com/interactive/2025/04/07/us/supreme-court-venezuelan-migrants.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/07/theater/james-earl-jones-memorial-denzel.html
 **Mandel: Monday's House v. NCAA hearing was a moment more than a decade in the making**\
 `The House settlement was not approved on Monday — but it appears very likely it will be next week.`\
 https://nytimes.com/athletic/6262954/2025/04/07/house-vs-ncaa-hearing-revenue-sharing/
-
-**Why Did So Many People Delude Themselves About Trump?**\
-`Wall Street mistook demagogy for wisdom.`\
-https://nytimes.com/2025/04/07/opinion/trump-stock-market-wall-street.html
 
