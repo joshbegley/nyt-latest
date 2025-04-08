@@ -1,4 +1,4 @@
-**Florida rankled by fouls, including a technical, in second half vs. Houston**\
+**Florida rankled by foul calls, including 2 technicals, in second half vs. Houston**\
 `Florida was called for six fouls in less than three minutes as Houston built a 12-point lead.`\
 https://nytimes.com/athletic/6263191/2025/04/07/florida-foul-calls-technical-houston-second-half/
 
