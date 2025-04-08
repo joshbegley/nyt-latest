@@ -1,3 +1,15 @@
+**Global Art Sales Fell by 12% Last Year, Report Says**\
+`“Geopolitical tensions, economic volatility and trade fragmentation” drove the market down, according to the Art Basel and UBS Global Art Market Report.`\
+https://nytimes.com/2025/04/08/arts/design/art-basel-ubs-art-market-report.html
+
+**Newcastle United, the Premier League's game-state kings**\
+`Howe's side have dropped fewest points from winning positions in the Premier League, and can also come from behind - how have they done it?`\
+https://nytimes.com/athletic/6262846/2025/04/08/newcastle-united-game-state-kings/
+
+**Word of the Day: artisanal**\
+`This word has appeared in 102 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/04/08/learning/word-of-the-day-artisanal.html
+
 **Sadness, despair and anger: A three-day road trip to the Premier League's relegation battle**\
 `For the second straight season, the three promoted sides have been swatted aside with worrying ease`\
 https://nytimes.com/athletic/6263066/2025/04/08/premier-league-relegation-battle-ipswich-southampton-leicester/
