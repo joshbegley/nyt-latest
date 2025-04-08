@@ -1,3 +1,7 @@
+**Film at Lincoln Center Chooses Daniel Battsek as Next President**\
+`At the production company Film4 he was instrumental in financing British movies. In New York, his goal is to attract a younger, more diverse audience.`\
+https://nytimes.com/2025/04/08/movies/film-at-lincoln-center-daniel-battsek-president.html
+
 **Watch: Are blue-chip prospects worth trading up for in this year's NFL Draft?**\
 `"The Athletic Football Show" discusses which teams should consider an aggressive trade up to get Travis Hunter or Abdul Carter.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/2025/04/08/books/international-booker-prize-shortlist.html
 **Ryan Smith of Utah Jazz and Utah Hockey Club launches new sports-tech investment fund**\
 `Halo Experience is another example of how sports is continuing to bring in financial capital that had previously remained out of the sector.`\
 https://nytimes.com/athletic/6261691/2025/04/08/ryan-smith-of-utah-jazz-and-hockey-club-launches-new-sports-tech-investment-fund/
-
-**How to watch 2025 women's worlds — plus, why Canada-USA is hockey's best rivalry**\
-`Everything you need to know ahead of the IIHF Women’s World World Championship, which begins Wednesday in České Budějovice, Czechia.`\
-https://nytimes.com/athletic/6262827/2025/04/08/how-to-watch-womens-world-championships-hockey/
 
