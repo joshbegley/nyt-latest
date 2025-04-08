@@ -1,3 +1,15 @@
+**Ryan Smith of Utah Jazz and Utah Hockey Club launches new sports-tech investment fund**\
+`Halo Experience is another example of how sports is continuing to bring in financial capital that had previously remained out of the sector.`\
+https://nytimes.com/athletic/6261691/2025/04/08/ryan-smith-of-utah-jazz-and-hockey-club-launches-new-sports-tech-investment-fund/
+
+**How to watch 2025 women's worlds — plus, why Canada-USA is hockey's best rivalry**\
+`Everything you need to know ahead of the IIHF Women’s World World Championship, which begins Wednesday in České Budějovice, Czechia.`\
+https://nytimes.com/athletic/6262827/2025/04/08/how-to-watch-womens-world-championships-hockey/
+
+**Dreamy Hair With Clothes to Match**\
+`Flouncy curls paired well with layers of loose pleats.`\
+https://nytimes.com/2025/04/08/style/street-style-look-curly-hair.html
+
 **Barcelona's Gavi on criticism of his style of play: 'They don't have a f****** clue'**\
 `Gavi has had to settle for a diminished role this season following his return from the ACL injury that kept him sidelined for 11 months.`\
 https://nytimes.com/athletic/6263874/2025/04/08/barcelona-gavi-champions-league-dortmund/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6262261/2025/04/08/alex-ovechkin-nhl-goals-record-a
 **The Masters concession prices: What's on the menu at Augusta National Golf Club**\
 `New this year is a tomato pie, served empanada-style and described as a savory experience by those who have had the opportunity to taste it.`\
 https://nytimes.com/athletic/6262195/2025/04/08/masters-augusta-golf-club-concession-prices/
-
-**Why 2 very different goalies could help Leafs finally make deep playoff run**\
-`For the first time in nine years, the Leafs can boast two goalies with at least 30 games played and a save percentage over .900.`\
-https://nytimes.com/athletic/6262053/2025/04/08/maple-leafs-goalies-stolarz-woll-playoff-start/
-
-**Blackhawks prospect breakdown: Pridham takes advantage of new NCAA rule**\
-`With a different development path unexpectedly on offer, 2024 third-rounder Pridham played this season a little closer to home.`\
-https://nytimes.com/athletic/6262012/2025/04/08/blackhawks-jack-pridham-prospect-breakdown/
-
-**What's next for Notre Dame's wide receivers?**\
-`Notre Dame would love greatness at wide receiver, but it probably would settle for competently good.`\
-https://nytimes.com/athletic/6262027/2025/04/08/notre-dame-football-wide-receivers/
 
