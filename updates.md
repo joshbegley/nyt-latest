@@ -1,3 +1,8 @@
+**Watch: Are blue-chip prospects worth trading up for in this year's NFL Draft?**\
+`"The Athletic Football Show" discusses which teams should consider an aggressive trade up to get Travis Hunter or Abdul Carter.
+`\
+https://nytimes.com/athletic/6260946/2025/04/08/athletic-football-show-2025-nfl-draft-trading-up/
+
 **China Criticizes JD Vance for Calling Its People ‘Peasants’**\
 `A spokesman for China’s foreign ministry denounced the vice president’s comments as “ignorant and impolite.”`\
 https://nytimes.com/2025/04/08/us/politics/jd-vance-peasants-china.html

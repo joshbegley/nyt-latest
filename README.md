@@ -1,3 +1,15 @@
+**The Bounce: How hot are NBA coaching seats this year? Let's check in on the four hottest**\
+`As the NBA postseason draws near, let's check in on which coaches have the hottest seats.`\
+https://nytimes.com/athletic/6264123/2025/04/08/nba-coaching-hot-seat-playoffs-suns-sixers-pelicans-trail-blazers-the-bounce/
+
+**I.R.S. Audits Are at a Record Low. Trump’s Cuts Could Make Them Even Rarer.**\
+`The Biden plan to increase tax revenue through more enforcement is being reversed. That means audits will be even rarer.`\
+https://nytimes.com/2025/04/08/upshot/irs-tax-audits-cuts.html
+
+**Pilots Discussed Alternate Ways to Land Before Deadly Jeju Air Crash**\
+`The pilots’ conversation with air traffic controllers, revealed in a partial transcript, could offer clues to what caused the disaster in South Korea, which killed 179 people.`\
+https://nytimes.com/2025/04/08/world/asia/jeju-crash-communications.html
+
 **China Criticizes JD Vance for Calling Its People ‘Peasants’**\
 `A spokesman for China’s foreign ministry denounced the vice president’s comments as “ignorant and impolite.”`\
 https://nytimes.com/2025/04/08/us/politics/jd-vance-peasants-china.html
@@ -25,17 +37,4 @@ https://nytimes.com/2025/04/08/us/politics/youngkin-interview-q-and-a.html
 **Glenn Youngkin, an Anti-D.E.I. Governor, Once Championed Diversity**\
 `Not long before he became Virginia’s governor, Mr. Youngkin helped lead, and spoke approvingly of, efforts to improve racial and gender diversity at his private equity firm.`\
 https://nytimes.com/2025/04/08/us/politics/glenn-youngkin-dei-carlyle-virginia.html
-
-**Man charged with assault after allegedly slapping Grealish after Manchester Derby**\
-`Greater Manchester Police have confirmed that 20-year-old that Alfie Holt will appear at Manchester Magistrates’ Court on July 14.`\
-https://nytimes.com/athletic/6262938/2025/04/08/jack-grealish-assault-arrest-manchester-derby-police/
-
-**Film at Lincoln Center Chooses Daniel Battsek as Next President**\
-`At the production company Film4 he was instrumental in financing British movies. In New York, his goal is to attract a younger, more diverse audience.`\
-https://nytimes.com/2025/04/08/movies/film-at-lincoln-center-daniel-battsek-president.html
-
-**Watch: Are blue-chip prospects worth trading up for in this year's NFL Draft?**\
-`"The Athletic Football Show" discusses which teams should consider an aggressive trade up to get Travis Hunter or Abdul Carter.
-`\
-https://nytimes.com/athletic/6260946/2025/04/08/athletic-football-show-2025-nfl-draft-trading-up/
 
