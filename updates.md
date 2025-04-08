@@ -1,3 +1,7 @@
+**Alex Cora on Jarren Duran: 'He's going to save lives'**\
+`“Since I learned about it, me as a person, I've given him support, love, and somebody that he can talk to,” Cora said.`\
+https://nytimes.com/athletic/6263006/2025/04/07/jarren-duran-alex-cora-mental-health-netflix-documentary/
+
 **Congestion Pricing Will Live On for Several Months After Court Agreement**\
 `State and federal officials agreed to a timeline in their court dispute over the tolling program that is likely to leave it in place until the fall. Other threats to the program still loom.`\
 https://nytimes.com/2025/04/07/nyregion/mta-congestion-pricing-dot.html
