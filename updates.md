@@ -1,3 +1,7 @@
+**In Trump Cases, Supreme Court Retreats From Confrontation**\
+`In a series of narrow and technical rulings, the justices have seemed to take pains to avoid a showdown with a president who has challenged the judiciary’s legitimacy.`\
+https://nytimes.com/2025/04/08/us/supreme-court-trump-confrontation.html
+
 **Demidov released from KHL contract, free to join Canadiens for home stretch**\
 `Demidov, the No. 5 pick in the 2024 NHL Draft, had 19 goals and 49 points in 65 games with SKA this season.`\
 https://nytimes.com/athletic/6264771/2025/04/08/ivan-demidov-canadiens-khl-nhl/
