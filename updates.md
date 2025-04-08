@@ -1,3 +1,15 @@
+**Demidov released from KHL contract, free to join Canadiens for home stretch**\
+`Demidov, the No. 5 pick in the 2024 NHL Draft, had 19 goals and 49 points in 65 games with SKA this season.`\
+https://nytimes.com/athletic/6264771/2025/04/08/ivan-demidov-canadiens-khl-nhl/
+
+**South Carolina lands lands nation's leading scorer, Ta'Niya Latson**\
+`Latson scored 25.2 points per game as a junior at Florida State and passed on the 2025 WNBA Draft to enter the transfer portal.`\
+https://nytimes.com/athletic/6264691/2025/04/08/taniya-latson-transfer-south-carolina-womens-basketball/
+
+**Watch: Why the Colts have to prioritize Colston Loveland in the draft**\
+`"The Athletic Football Show" discusses why Colston Loveland is a better fit for the Indianapolis Colts than Tyler Warren.`\
+https://nytimes.com/athletic/6263536/2025/04/08/athletic-football-show-indianapolis-colts-colston-loveland-draft/
+
 **Watch: Why the Colts have to prioritise Colston Loveland in the draft**\
 `"The Athletic Football Show" discusses why Colston Loveland is a better fit for the Indianapolis Colts than Tyler Warren.`\
 https://nytimes.com/athletic/6263536/2025/04/08/athletic-football-show-indianapolis-colts-colston-loveland-draft/
