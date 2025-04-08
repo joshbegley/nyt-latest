@@ -1,3 +1,15 @@
+**Concerns before Boat Race over River Thames' E. coli levels**\
+`River Action has warned that the Thames would be classified as ‘poor’ under regulations if it were designated as a ‘bathing water’ site.`\
+https://nytimes.com/athletic/6263751/2025/04/08/boat-race-thames-bacteria/
+
+**The Skin on Mysterious Medieval Books Concealed a Shaggy Surprise**\
+`The material on the covers of books from a French abbey was too hairy to have come from calves or other local mammals. Researchers identified its more distant origin.`\
+https://nytimes.com/2025/04/08/science/medieval-books-hair-binding.html
+
+**Tigers roll to a 5-game win streak despite mounting injuries**\
+`With their injured brethren unable to contribute, the Tigers have found production from unlikely sources.`\
+https://nytimes.com/athletic/6265225/2025/04/08/tigers-yankees-5-game-win-streak-injuries/
+
 **Gang War Ravaged East Harlem for Six Months, Prosecutors Say**\
 `The Manhattan district attorney charged 16 people, most of them minors, in a score of shootings. Violence among New York City’s youth has soared.`\
 https://nytimes.com/2025/04/08/nyregion/east-harlem-gang-war-charges.html
