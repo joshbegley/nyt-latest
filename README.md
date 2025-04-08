@@ -1,3 +1,7 @@
+**Reviewing the San Francisco Giants' 2025 City Connect uniforms**\
+`The Giants' new City Connects: They're fine. You don't have to like them, but you'll get used to them.`\
+https://nytimes.com/athletic/6264466/2025/04/08/sf-giants-city-connect-uniform-review/
+
 **Brazil's boring turn marks its latest footballing identity crisis**\
 `Acts of flair are being punished at the club level, while the national team's woes have the country's sporting soul thrust into question.`\
 https://nytimes.com/athletic/6264330/2025/04/08/brazil-football-boring-memphis-depay-neymar-vinicius/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/08/opinion/glp1-ozempic-mounjaro-trump.html
 **Prime Tire: The thorn in McLaren's side. Plus, Lewis Hamilton's interesting admission**\
 `Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
 https://nytimes.com/athletic/6264786/2025/04/08/f1-verstappen-mclaren-lewis-hamilton-ferrari-prime-tire/
-
-**‘Just a Mess’: Staff Cuts, Rushed Changes and Anxiety at Social Security**\
-`President Trump promised not to touch Social Security, but as Elon Musk’s team trims staff and plans cuts to phone services, the system is groaning under the pressure.`\
-https://nytimes.com/2025/04/08/us/social-security-trump.html
 
