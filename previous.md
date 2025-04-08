@@ -1,3 +1,11 @@
+**The Windup: The looming fight after Vladdy's deal**\
+`Welcome to The Windup, The Athletic's MLB newsletter. `\
+https://nytimes.com/athletic/6263403/2025/04/08/vlad-guerrero-contract-labor-the-windup/
+
+**King K. Holmes, 87, Dies; Researcher Destigmatized Study of S.T.I.s**\
+`He took a down-to-earth approach to sexually transmitted infections, a subject no one wanted to discuss, arriving at novel methods of treatment and prevention.`\
+https://nytimes.com/2025/04/08/science/king-k-holmes-dead.html
+
 **FIFA confirms referees will wear body cameras for Club World Cup**\
 `The new law change that aims to prevent goalkeepers from time-wasting will be introduced for the tournament.`\
 https://nytimes.com/athletic/6264483/2025/04/08/referees-club-world-cup-cameras/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/08/us/politics/supreme-court-probationary-workers.ht
 **Musk Calls Navarro a ‘Moron’ in Escalating Tariff Fight**\
 `The feud between two of President Trump’s top advisers is playing out as the administration’s new tariffs have caused huge losses across global financial markets.`\
 https://nytimes.com/2025/04/08/us/politics/musk-navarro-tariffs-fight.html
-
-**Luis Enrique 'delighted' Asensio can play against PSG for Villa in Champions League tie**\
-`The 29-year-old is on loan at Villa from PSG and the sides play each other in the Champions League quarter-finals.`\
-https://nytimes.com/athletic/6264034/2025/04/08/luis-enrique-marco-asensio-psg-aston-villa/
-
-**Opposition to G.O.P. Budget Plan Builds in the House**\
-`Anti-spending conservatives in the House are lining up to oppose the Senate’s budget blueprint because it would add too much to the nation’s debt, threatening President Trump’s agenda.`\
-https://nytimes.com/2025/04/08/us/politics/congress-house-trump-budget-resolution.html
 

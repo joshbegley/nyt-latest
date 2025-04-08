@@ -1,3 +1,11 @@
+**The Windup: The looming fight after Vladdy's deal**\
+`Welcome to The Windup, The Athletic's MLB newsletter. `\
+https://nytimes.com/athletic/6263403/2025/04/08/vlad-guerrero-contract-labor-the-windup/
+
+**King K. Holmes, 87, Dies; Researcher Destigmatized Study of S.T.I.s**\
+`He took a down-to-earth approach to sexually transmitted infections, a subject no one wanted to discuss, arriving at novel methods of treatment and prevention.`\
+https://nytimes.com/2025/04/08/science/king-k-holmes-dead.html
+
 **Supreme Court Pauses Ruling Requiring Rehiring of 16,000 Probationary Workers**\
 `A federal judge in California had ordered the Trump administration to rehire government employees fired as part of its efforts to slash the federal work force.`\
 https://nytimes.com/2025/04/08/us/politics/supreme-court-probationary-workers.html
