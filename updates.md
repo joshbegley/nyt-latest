@@ -1,3 +1,7 @@
+**Nuggets fire coach Malone, GM Booth in pre-playoff shakeup**\
+`Malone, 53, has coached the Nuggets since the 2015 season and brought Denver a championship in 2023.`\
+https://nytimes.com/athletic/6264653/2025/04/08/michael-malone-fired-nuggets-head-coach/
+
 **Darjeeling Kitchen & Café Offers Halal Momos in Long Island City**\
 `Leonessa serves cocktails with rooftop views, 12 Matcha caters to green-tea obsessives and more restaurant news.`\
 https://nytimes.com/2025/04/08/dining/nyc-restaurant-news.html
