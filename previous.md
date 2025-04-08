@@ -1,3 +1,7 @@
+**Man Utd confirm post-season matches in Malaysia and Hong Kong in May**\
+`The Athletic reported in December that United were planning a post-season trip to Asia that could see the club earn $10million in revenue.`\
+https://nytimes.com/athletic/6263517/2025/04/08/manchester-united-post-season-tour-asia/
+
 **On Her New Podcast, Meghan Talks Media Scrutiny, Kindness and Family**\
 `For the first episode of “Confessions of a Female Founder,” the Duchess of Sussex interviewed Whitney Wolfe Herd, the chief executive of Bumble.`\
 https://nytimes.com/2025/04/08/style/meghan-markle-podcast-confessions-female-founder.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6263436/2025/04/08/todd-golden-florida-gators-champ
 **What Would You Like to Make?**\
 `A Times series features specialists who craft surfboards, piñatas, guitars, saddles, cakes, quilts and more. What craft would you most like to pursue — and why?`\
 https://nytimes.com/2025/04/08/learning/what-would-you-like-to-make.html
-
-**Theme Park**\
-`What do you like most about amusement parks?`\
-https://nytimes.com/2025/04/08/learning/theme-park.html
 

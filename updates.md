@@ -1,3 +1,7 @@
+**Man Utd confirm post-season matches in Malaysia and Hong Kong in May**\
+`The Athletic reported in December that United were planning a post-season trip to Asia that could see the club earn $10million in revenue.`\
+https://nytimes.com/athletic/6263517/2025/04/08/manchester-united-post-season-tour-asia/
+
 **On Her New Podcast, Meghan Talks Media Scrutiny, Kindness and Family**\
 `For the first episode of “Confessions of a Female Founder,” the Duchess of Sussex interviewed Whitney Wolfe Herd, the chief executive of Bumble.`\
 https://nytimes.com/2025/04/08/style/meghan-markle-podcast-confessions-female-founder.html
