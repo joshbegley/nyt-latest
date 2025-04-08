@@ -1,3 +1,16 @@
+**Watch: Are blue-chip prospects worth trading up for in this year's NFL Draft?**\
+`"The Athletic Football Show" discusses which teams should consider an aggressive trade up to get Travis Hunter or Abdul Carter.
+`\
+https://nytimes.com/athletic/6260946/2025/04/08/athletic-football-show-2025-nfl-draft-trading-up/
+
+**Gibbs-White, Wirtz among City's options to replace De Bruyne**\
+`Kevin De Bruyne announced last week he will leave City after 10 years at the club, potentially leaving a creative void in the squad.`\
+https://nytimes.com/athletic/6263607/2025/04/08/gibbs-white-wirtz-manchester-city-transfer/
+
+**Trump Administration Opens More Public Land to Drilling and Mining**\
+`The move, focused on Nevada and New Mexico, is aimed at removing “burdensome” restrictions on energy and mineral development, a statement said.`\
+https://nytimes.com/2025/04/08/climate/trump-new-mexico-nevada-mining-drilling.html
+
 **Wall Street Bursts With Anger Over Tariff ‘Stupidity’**\
 `Billionaire investors are in an unfamiliar position, watching and cringing as tariffs roll on and the stock market reels.`\
 https://nytimes.com/2025/04/08/business/trump-tariff-wall-street-reaction.html
