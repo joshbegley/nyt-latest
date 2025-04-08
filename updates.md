@@ -1,3 +1,24 @@
+**China Criticizes JD Vance for Calling Its People ‘Peasants’**\
+`A spokesman for China’s foreign ministry denounced the vice president’s comments as “ignorant and impolite.”`\
+https://nytimes.com/2025/04/08/us/politics/jd-vance-peasants-china.html
+
+**Remembering Greg Millen, an NHLer, broadcaster and prankster who made his colleagues feel like family**\
+`The NHL Alumni Association announced Monday that Millen had passed away suddenly at age 67.`\
+https://nytimes.com/athletic/6263332/2025/04/08/greg-millen-hockey-night-in-canada/
+
+**Verstappen's Japanese GP win showed how he can exploit a tough McLaren tactic**\
+`Suzuka exposed some of McLaren’s weaknesses as its driver dilemma resurfaced`\
+https://nytimes.com/athletic/6263732/2025/04/08/max-verstappen-suzuka-japanese-gp-norris-piastri-mclaren/
+
+**Trump Officials Point to Outreach on Tariffs in a Bid to Calm Markets**\
+`Jamieson Greer, the United States trade representative, told senators the U.S. is economy is in need of “drastic, overdue change.”`\
+https://nytimes.com/2025/04/08/business/trump-tariffs-greer.html
+
+**Watch: Are blue-chip prospects worth trading up for in this year's NFL Draft?**\
+`"The Athletic Football Show" discusses which teams should consider an aggressive trade up to get Travis Hunter or Abdul Carter.
+`\
+https://nytimes.com/athletic/6260946/2025/04/08/athletic-football-show-2025-nfl-draft-trading-up/
+
 **Watch: Are blue-chip prospects worth trading up for in this year's NFL Draft?**\
 `"The Athletic Football Show" discusses which teams should consider an aggressive trade up to get Travis Hunter or Abdul Carter.
 `\
