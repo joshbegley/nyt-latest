@@ -1,3 +1,7 @@
+**Jarren Duran wants those struggling with their mental health to know they're not alone**\
+`Duran hopes to reach those who might feel alone with their mental health struggles. "Even if I can just help one person, it's meaningful."`\
+https://nytimes.com/athletic/6265406/2025/04/08/jarren-duran-red-sox-mental-health-awareness/
+
 **3 Are Killed in Shooting Near Fredericksburg, Va., Authorities Say**\
 `Three others were injured in the shooting, which occurred on a suburban street in Spotsylvania County, about 60 miles southwest of Washington, D.C.`\
 https://nytimes.com/2025/04/08/us/shooting-virginia-fredericksburg.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/08/us/politics/china-weapons-yemen-bombing.html
 **Concerns before Boat Race over River Thames' E. coli levels**\
 `River Action has warned that the Thames would be classified as ‘poor’ under regulations if it were designated as a ‘bathing water’ site.`\
 https://nytimes.com/athletic/6263751/2025/04/08/boat-race-thames-bacteria/
-
-**The Skin on Mysterious Medieval Books Concealed a Shaggy Surprise**\
-`The material on the covers of books from a French abbey was too hairy to have come from calves or other local mammals. Researchers identified its more distant origin.`\
-https://nytimes.com/2025/04/08/science/medieval-books-hair-binding.html
 
