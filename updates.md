@@ -1,3 +1,11 @@
+**‘Getting Heavier’: Climate Change Primes Storms to Drop More Rain**\
+`With rising temperatures, the atmosphere can hold more moisture, meaning precipitation has a tendency to fall at more extreme levels.`\
+https://nytimes.com/2025/04/08/climate/rain-floods-climate-change.html
+
+**The Social Security Administration Has Been Changing. Here’s What to Know.**\
+`Deep staff reductions. New policies. Spreading misinformation. Since President Trump has taken office, the agency has been in tumult.`\
+https://nytimes.com/2025/04/08/business/social-security-changes-trump-doge.html
+
 **In Trump Cases, Supreme Court Retreats From Confrontation**\
 `In a series of narrow and technical rulings, the justices have seemed to take pains to avoid a showdown with a president who has challenged the judiciary’s legitimacy.`\
 https://nytimes.com/2025/04/08/us/supreme-court-trump-confrontation.html
