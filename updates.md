@@ -1,3 +1,7 @@
+**The Pulse: Of course it came down to the last possession**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6262171/2025/04/08/houston-florida-last-play-the-pulse/
+
 **Stefanos Tsitsipas and the endless rebirth of clay-court tennis**\
 `Tsitsipas thrives at the Monte Carlo Masters, where he has won three of the past four tournaments. Much of that comes from the clay.`\
 https://nytimes.com/athletic/6250442/2025/04/08/tennis-stefanos-tsitsipas-best-surface-clay-racket/
