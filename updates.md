@@ -1,3 +1,15 @@
+**Bellingham says Real Madrid 'lucky' to only lose 3-0 to Arsenal**\
+`The Madrid midfielder said his side can take hope from the knowledge they are capable of producing something "crazy" in the second leg.`\
+https://nytimes.com/athletic/6265301/2025/04/08/jude-bellingham-real-madrid-arsenal/
+
+**Nuclear Testing Not Advised, Trump’s Nominee Says in Senate Hearing**\
+`Brandon Williams, the nominee to lead the National Nuclear Security Administration, said he would recommend reliance on “scientific information” rather than a restart of explosive testing.`\
+https://nytimes.com/2025/04/08/science/nuclear-testing-nnsa-williams.html
+
+**Rescuers Search for Survivors of Roof Collapse in Dominican Republic**\
+`The authorities said at least 58 people died after a nightclub’s roof caved in during a merengue concert in Santo Domingo.`\
+https://nytimes.com/video/world/americas/100000010099287/dominican-republic-roof-collapse-nightclub.html
+
 **Trump Pressed Ahead With Sweeping Tariffs**\
 `Also, a roof collapse in the Dominican Republic killed at least 58 people. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/04/08/briefing/trump-latest-tariffs-roof-collapse-dominican-republic.html
