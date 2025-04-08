@@ -1,3 +1,11 @@
+**Greg Millen, NHL goalie and voice of 'Hockey Night in Canada,' dies at 67**\
+`Millen's voice was familiar to a generation of Canadian hockey fans. A cause of death was not made public.`\
+https://nytimes.com/athletic/6262950/2025/04/07/hockey-night-in-canada-greg-millen-dies-at-67/
+
+**Mother and 3 Children Detained by ICE at Upstate N.Y. Farm Are Released**\
+`The family was returned to New York after being taken into custody last month and held at a detention center in Texas, officials and advocates said.`\
+https://nytimes.com/2025/04/07/nyregion/ice-family-detained-new-york.html
+
 **How Trump’s TikTok Negotiations Were Upended by China and Tariffs**\
 `The future of the popular video app is now at the center of a geopolitical tussle between Washington and Beijing.`\
 https://nytimes.com/2025/04/07/technology/trump-tiktok-china-tariffs.html

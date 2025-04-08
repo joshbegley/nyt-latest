@@ -1,3 +1,7 @@
+**Why Did So Many People Delude Themselves About Trump?**\
+`Wall Street mistook demagogy for wisdom.`\
+https://nytimes.com/2025/04/07/opinion/trump-stock-market-wall-street.html
+
 **Greg Millen, NHL goalie and voice of 'Hockey Night in Canada,' dies at 67**\
 `Millen's voice was familiar to a generation of Canadian hockey fans. A cause of death was not made public.`\
 https://nytimes.com/athletic/6262950/2025/04/07/hockey-night-in-canada-greg-millen-dies-at-67/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/07/us/politics/supreme-court-trump-venezuelan-deport
 **Texas Governor Sets November Election to Fill Heavily Democratic House Seat**\
 `Democrats have argued that Gov. Greg Abbott, a Republican, did not act faster to fill the vacant seat because he didn’t want the narrow Republicans majority in Congress to shrink.`\
 https://nytimes.com/2025/04/07/us/texas-house-seat.html
-
-**Rep. John James of Michigan Announces Bid for Governor**\
-`The Republican congressman joins a crowded field vying to replace Gov. Gretchen Whitmer, who is term-limited.`\
-https://nytimes.com/2025/04/07/us/politics/john-james-michigan-governor.html
 
