@@ -1,3 +1,15 @@
+**First-period implosion is the story of Rangers' season: 'Just kind of snowballed'**\
+`One disastrous stretch is enough to sink a game. Too many of them can sink a season.`\
+https://nytimes.com/athletic/6263225/2025/04/07/rangers-collapse-playoffs-chase-lightning/
+
+**Full Time: Trin is so back (literally)**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter. `\
+https://nytimes.com/athletic/6263224/2025/04/07/trinity-rodman-uswnt-brazil-full-time/
+
+**Shohei Ohtani says Dodgers are being 'conservative and thoughtful' with his pitching rehab**\
+`There was talk that Ohtani could face hitters before the season started. Then he went a month without throwing a bullpen session.`\
+https://nytimes.com/athletic/6263240/2025/04/07/dodgers-shohei-ohtani-pitching-rehab-approach/
+
 **Florida rankled by foul calls, including 2 technicals, in second half vs. Houston**\
 `Florida was called for six fouls in less than three minutes as Houston built a 12-point lead.`\
 https://nytimes.com/athletic/6263191/2025/04/07/florida-foul-calls-technical-houston-second-half/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6263101/2025/04/07/cubs-kyle-tucker-reaction-vladim
 **Boris Johnson Has Run-In With Feisty Ostrich During Texas Trip**\
 `A video showed the former British prime minister yelping and uttering a profanity after the ostrich pecked him through a window at what appeared to be a wildlife park.`\
 https://nytimes.com/2025/04/07/us/ostrich-boris-johnson-texas-attack.html
-
-**Astros starter Spencer Arrighetti suffers broken thumb after being struck in batting practice**\
-`Losing Arrighetti for any length is a crippling blow to a Houston rotation without much established depth.`\
-https://nytimes.com/athletic/6263098/2025/04/07/astros-spencer-arrighetti-broken-thumb-batting-practice/
-
-**‘Boop! The Musical’ Review: Betty Gets a Brand Extension**\
-`The It girl with the spit curl looks great for 100, but her Broadway musical, which feels like one big merch grab, is boop-boop-a-don’t.`\
-https://nytimes.com/2025/04/07/theater/boop-the-musical-review-broadway.html
-
-**Alex Cora on Jarren Duran: 'He's going to save lives'**\
-`“Since I learned about it, me as a person, I've given him support, love, and somebody that he can talk to,” Cora said.`\
-https://nytimes.com/athletic/6263006/2025/04/07/jarren-duran-alex-cora-mental-health-netflix-documentary/
 
