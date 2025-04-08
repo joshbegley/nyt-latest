@@ -1,3 +1,11 @@
+**Kevin De Bruyne's physical level has declined, creativity still elite**\
+`The Belgian has been linked with a move to MLS - if it happens then he should still have plenty to offer his new club`\
+https://nytimes.com/athletic/6264333/2025/04/08/kevin-de-bruyne-mls-miami-manchester-city/
+
+**New York Jets NFL Draft 2025 guide: Picks, predictions and key needs**\
+`The Jets have a chance to restock the roster with eight picks in this spring's draft, including the seventh overall selection.`\
+https://nytimes.com/athletic/6237553/2025/04/08/new-york-jets-2025-nfl-draft-picks-needs-predictions-guide/
+
 **Will Retaliation Work for Europe? It’s a Gamble.**\
 `Europe wants to negotiate, but it is also trying to project strength. As Trump warns nations against retaliation, that strategy could be perilous.`\
 https://nytimes.com/2025/04/08/world/europe/europe-trump-tariff-retaliation.html
