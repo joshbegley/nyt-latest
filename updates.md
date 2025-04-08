@@ -1,3 +1,7 @@
+**Surprise firings, shocking trades, billion-dollar sales: What's up with the NBA lately?**\
+`The past few months have seen some of the most head-scratching transactions in league history.`\
+https://nytimes.com/athletic/6265152/2025/04/08/michael-malone-firing-nba-luka-doncic-lakers/
+
 **Jenner & Block, Law Firm Targeted by Trump, Files for Permanent Relief**\
 `The firm called the president’s executive order against it “a plain violation of the First Amendment.” WilmerHale is expected to file its own action opposing the administration.`\
 https://nytimes.com/2025/04/08/business/jenner-block-trump-filing.html

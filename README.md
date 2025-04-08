@@ -1,4 +1,8 @@
-**Surprise firings, shocking trades, billion-dollar sales: What's up with the NBA lately?**\
+**Rice: 'Originally we were going to cross' first free-kick vs Real Madrid**\
+`Rice says he was convinced to shoot after a conversation with Bukayo Saka.`\
+https://nytimes.com/athletic/6265255/2025/04/08/declan-rice-free-kick-real-madrid/
+
+**Surprise firings, shocking trades, record-breaking sales: What's up with the NBA lately?**\
 `The past few months have seen some of the most head-scratching transactions in league history.`\
 https://nytimes.com/athletic/6265152/2025/04/08/michael-malone-firing-nba-luka-doncic-lakers/
 
@@ -23,7 +27,7 @@ https://nytimes.com/2025/04/08/briefing/trump-tariffs-iran-us-congo-floods.html
 https://nytimes.com/2025/04/08/nyregion/aclu-new-york-venezuelan-deportation.html
 
 **The Briefing: Bayern 1 Inter 2 - That Lautaro goal, Muller's moment, but what makes Inzaghi's men contenders?**\
-`A tight and tense evening in Bavaria saw the Italian side recover from conceding a late equaliser to claim a lead to take back to San Siro`\
+`A tight and tense evening in Munich saw the Italian side recover from conceding a late equaliser to claim a lead to take back to San Siro`\
 https://nytimes.com/athletic/6261134/2025/04/08/bayern-munich-inter-muller-lauturo-league/
 
 **The Briefing: Arsenal 3 Real Madrid 0 - Breaking down Rice's two incredible free-kicks**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6261133/2025/04/08/arsenal-3-real-madrid-0-declan-r
 **Trump and Netanyahu Steer Toward an Ugly World, Together**\
 `The president and the Israeli prime minister are following the same track toward autocratic government and an abandonment of ideals.`\
 https://nytimes.com/2025/04/08/opinion/trump-netanyahu-united-states-israel-autocracy.html
-
-**Former MLB pitcher Octavio Dotel dies in Dominican nightclub collapse**\
-`A Santo Domingo native, Dotel made his MLB debut in 1999 and retired in 2014. He won a World Series with the 2011 St. Louis Cardinals. `\
-https://nytimes.com/athletic/6265082/2025/04/08/octavio-dotel-mlb-dominican-republic-nightclub-collapse/
 
