@@ -1,3 +1,11 @@
+**Oil Spill in North Dakota Prompts Shut Down of Keystone Pipeline**\
+`The spill was confined to a field, and a nearby stream was isolated as a precaution, officials said.`\
+https://nytimes.com/2025/04/08/us/keystone-pipeline-rupture-north-dakota.html
+
+**Notre Dame transfer Olivia Miles commits to TCU: How does she fit?**\
+`Miles has one year of eligibility remaining because she missed the 2023-24 season with a torn ACL`\
+https://nytimes.com/athletic/6263756/2025/04/08/olivia-miles-tcu-notre-dame-transfer-portal/
+
 **Trump to Sign Order Aimed at Reviving a Struggling Coal Industry**\
 `The moves include loosening environmental rules, but it is unclear how much they can help reverse the sharp decline in coal power over the last two decades.`\
 https://nytimes.com/2025/04/08/climate/trump-order-coal-mining.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/08/dining/nyc-restaurant-news.html
 **The Windup: The looming fight after Vladdy's deal**\
 `Welcome to The Windup, The Athletic's MLB newsletter. `\
 https://nytimes.com/athletic/6263403/2025/04/08/vlad-guerrero-contract-labor-the-windup/
-
-**King K. Holmes, 87, Dies; Researcher Destigmatized Study of S.T.I.s**\
-`He took a down-to-earth approach to sexually transmitted infections, a subject no one wanted to discuss, arriving at novel methods of treatment and prevention.`\
-https://nytimes.com/2025/04/08/science/king-k-holmes-dead.html
-
-**FIFA confirms referees will wear body cameras for Club World Cup**\
-`The new law change that aims to prevent goalkeepers from time-wasting will be introduced for the tournament.`\
-https://nytimes.com/athletic/6264483/2025/04/08/referees-club-world-cup-cameras/
 
