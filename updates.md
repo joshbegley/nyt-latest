@@ -1,3 +1,7 @@
+**Barcelona's Gavi on criticism of his style of play: 'They don't have a f****** clue'**\
+`Gavi has had to settle for a diminished role this season following his return from the ACL injury that kept him sidelined for 11 months.`\
+https://nytimes.com/athletic/6263874/2025/04/08/barcelona-gavi-champions-league-dortmund/
+
 **Kelvin Sampson and Houston forced to deal with another cruel ending**\
 `It’s never easy to close the book on a season, especially when you're so close you can almost feel the scissors in your hand.`\
 https://nytimes.com/athletic/6263523/2025/04/08/houston-kelvin-sampson-national-championship-game/

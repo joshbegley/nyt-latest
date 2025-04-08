@@ -1,3 +1,7 @@
+**Barcelona's Gavi on criticism of his style of play: 'They don't have a f****** clue'**\
+`Gavi has had to settle for a diminished role this season following his return from the ACL injury that kept him sidelined for 11 months.`\
+https://nytimes.com/athletic/6263874/2025/04/08/barcelona-gavi-champions-league-dortmund/
+
 **U.S. tourist boards wrong boat in London, accidentally becomes fan of fifth-tier soccer club**\
 `A student from Arizona thought he was on a sightseeing tour, but instead ended up "drinking and dancing" with 150 Southend United fans.`\
 https://nytimes.com/athletic/6263629/2025/04/08/southend-boat-evan-johnston/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6262012/2025/04/08/blackhawks-jack-pridham-prospect
 **What's next for Notre Dame's wide receivers?**\
 `Notre Dame would love greatness at wide receiver, but it probably would settle for competently good.`\
 https://nytimes.com/athletic/6262027/2025/04/08/notre-dame-football-wide-receivers/
-
-**How Sidney Crosby's excellence could force Kyle Dubas to revise his rebuild**\
-`Crosby's stellar performance might compel Kyle Dubas to expedite the Penguins' plans.`\
-https://nytimes.com/athletic/6261762/2025/04/08/sidney-crosby-penguins-rebuild/
 
