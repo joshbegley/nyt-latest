@@ -1,3 +1,11 @@
+**Congestion Pricing Will Live On for Several Months After Court Agreement**\
+`State and federal officials agreed to a timeline in their court dispute over the tolling program that is likely to leave it in place until the fall. Other threats to the program still loom.`\
+https://nytimes.com/2025/04/07/nyregion/mta-congestion-pricing-dot.html
+
+**At James Earl Jones Memorial, Friends Share Laughs, Tears and Moving Stories**\
+`At a gathering in the Broadway theater renamed to honor the star, speakers including Denzel Washington and Phylicia Rashad described Jones as an inspiration.`\
+https://nytimes.com/2025/04/07/theater/james-earl-jones-memorial-denzel.html
+
 **Mandel: Monday's House v. NCAA hearing was a moment more than a decade in the making**\
 `The House settlement was not approved on Monday — but it appears very likely it will be next week.`\
 https://nytimes.com/athletic/6262954/2025/04/07/house-vs-ncaa-hearing-revenue-sharing/
