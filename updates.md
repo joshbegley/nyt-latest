@@ -1,3 +1,15 @@
+**Supreme Court Pauses Ruling Requiring Rehiring of 16,000 Probationary Workers**\
+`A federal judge in California had ordered the Trump administration to rehire government employees fired as part of its efforts to slash the federal work force.`\
+https://nytimes.com/2025/04/08/us/supreme-court-probationary-workers.html
+
+**Musk Calls Navarro a ‘Moron’ in Escalating Tariff Fight**\
+`The feud between two of President Trump’s top advisers is playing out as the administration’s new tariffs have caused huge losses across global financial markets.`\
+https://nytimes.com/2025/04/08/us/politics/musk-navarro-tariffs-fight.html
+
+**Opposition to G.O.P. Budget Plan Builds in the House**\
+`Anti-spending conservatives in the House are lining up to oppose the Senate’s budget blueprint because it would add too much to the nation’s debt, threatening President Trump’s agenda.`\
+https://nytimes.com/2025/04/08/us/politics/congress-house-trump-budget-resolution.html
+
 **Musk Calls Navarro a ‘Moron’ in Escalating Tariff Fight**\
 `The feud between two of President Trump’s top advisers is playing out as the administration’s new tariffs have caused huge losses across global financial markets.`\
 https://nytimes.com/2025/04/08/us/politics/musk-calls-navarro-a-moron-in-escalating-tariff-fight.html
