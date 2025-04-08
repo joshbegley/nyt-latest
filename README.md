@@ -1,3 +1,7 @@
+**At James Earl Jones Memorial, Friends Share Laughs, Tears and Moving Stories**\
+`At a gathering in the Broadway theater renamed to honor the star, speakers including Denzel Washington and Phylicia Rashad described Jones as an inspiration.`\
+https://nytimes.com/2025/04/07/theater/james-earl-jones-memorial-denzel.html
+
 **Mandel: Monday's House v. NCAA hearing was a moment more than a decade in the making**\
 `The House settlement was not approved on Monday — but it appears very likely it will be next week.`\
 https://nytimes.com/athletic/6262954/2025/04/07/house-vs-ncaa-hearing-revenue-sharing/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/07/us/politics/trump-administration-to-roll-back-arr
 **Trump Discusses Potential Nuclear Talks With Iran**\
 `President Trump and Prime Minister Netanyahu of Israel spoke at the White House on Monday, discussing trade policy and nuclear talks with Iran.`\
 https://nytimes.com/video/us/politics/100000010096981/trump-netanyahu-iran-nuclear-tariffs.html
-
-**Supreme Court Overturns Lower Court’s Block on Venezuelan Deportations**\
-`The Trump administration asked the justices to weigh in after a federal judge paused the president’s use of a wartime powers law to deport Venezuelans it accused of being gang members.`\
-https://nytimes.com/2025/04/07/us/politics/supreme-court-trump-venezuelan-deportations.html
 
