@@ -1,3 +1,7 @@
+**Why Bayern Munich no longer have carte blanche to sign up the Bundesliga's best**\
+`Florian Wirtz may be a long-standing target, but the cream of the German league have options these days rather than just a move to Bavaria`\
+https://nytimes.com/athletic/6261612/2025/04/08/bayern-munich-wirtz-bayer-transfers-policy/
+
 **Twins pitching struggles vex starters and bullpen. Moves made before loss to Royals**\
 `Through 10 games, Twins starters have an unseemly 6.90 ERA over 45 2/3 innings. And there's little relief from an exhausted bullpen.`\
 https://nytimes.com/athletic/6263273/2025/04/08/twins-pitching-struggles-loss-to-royals/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/07/pageoneplus/quote-of-the-day-struggling-shrimpers
 **Opening favorites for 2026 men's college basketball title revealed**\
 `Houston opened as the favorite to win the 2026 men's college basketball national title on BetMGM, just ahead of Duke.`\
 https://nytimes.com/athletic/6262760/2025/04/07/2026-mens-college-basketball-national-title-odds-duke-houston-uconn/
-
-**South Korea Sets New Presidential Election for June 3**\
-`Polls show the main opposition leader, Lee Jae-myung, is the front-runner to replace Yoon Suk Yeol, who was removed from office for declaring martial law.`\
-https://nytimes.com/2025/04/07/world/asia/south-korea-election.html
 
