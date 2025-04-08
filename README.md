@@ -1,3 +1,35 @@
+**Florida's Alijah Martin will talk about his second chance at the Final Four forever**\
+`Alijah Martin didn't talk of the painful 2023 Final Four with Florida Atlantic. But he'll share Monday's triumph with both Gators and Owls.`\
+https://nytimes.com/athletic/6263464/2025/04/08/florida-basketball-alijah-martin-fau-ncaa-title/
+
+**How Kings' Hampton 'Hammer' Slukynsky led Western Michigan to its first Frozen Four**\
+`Slukynsky, 19, will take the net against the reigning national champions from Denver at the Frozen Four on Thursday.`\
+https://nytimes.com/athletic/6249860/2025/04/08/western-michigan-hampton-slukynsky-frozen-four-kings/
+
+**Chris Paul is 'constantly learning' at age 39 — and could make more history soon**\
+`A rocky season in San Antonio is winding down, but that doesn't mean Paul's career is doing the same.`\
+https://nytimes.com/athletic/6262769/2025/04/08/chris-paul-spurs-nba-final-week/
+
+**Some Mavs fans have protested the Luka Dončić trade by wearing his ‘77’ in purple and gold**\
+`Dončić has not been forgotten in Dallas. Some are honoring him by wearing the No. 77 of his new team.`\
+https://nytimes.com/athletic/6259352/2025/04/08/luka-doncic-mavericks-lakers-trade-fans-jersey/
+
+**The man who holds the record for the worst round in Masters’ history had the best outlook**\
+`He shot the worst round in Masters history, but Charles Kunkle used the experience to inspire those around him.`\
+https://nytimes.com/athletic/6261591/2025/04/08/charles-kunkle-masters-worst-record/
+
+**At the good old (emphasis on 'old') hockey game: How 13 octogenarian skaters lived their NHL dream**\
+`An average NHL intermission typically features children. The Senators hosted a group of elderly skaters from the 80+ Hockey Hall of Fame.`\
+https://nytimes.com/athletic/6258860/2025/04/08/nhl-over-80-hockey-league-canada-senators/
+
+**Who's the Broncos' next Nik Bonitto? A look at 5 in-house breakout candidates in 2025**\
+`Why there are signs Bo Nix can author a Year 2 leap that further improves Denver's growing offense.`\
+https://nytimes.com/athletic/6262009/2025/04/08/broncos-breakout-candidates-2025/
+
+**Champions League quarter-final bets: Is there value in betting on lopsided affairs?**\
+`Sam Tighe outlines the best bets for Wednesday’s Champions League quarter-finals.`\
+https://nytimes.com/athletic/6263662/2025/04/08/wednesday-champions-league-betting-tips-predictions-odds/
+
 **The Global Sell-Off**\
 `We explore the stock market panic over tariffs.`\
 https://nytimes.com/2025/04/08/briefing/stock-market-donald-trump-tariffs.html
@@ -5,36 +37,4 @@ https://nytimes.com/2025/04/08/briefing/stock-market-donald-trump-tariffs.html
 **China Vows to “Fight” Tariffs War With the U.S. “to the End”**\
 `Lin Jian, the spokesman for the Chinese Foreign Ministry, accused the United States of “economic bullying” after President Trump threatened an additional 50 percent tariff on Chinese imports.`\
 https://nytimes.com/video/world/middleeast/100000010097626/china-us-tariffs-war-.html
-
-**With Trump’s Return, Netanyahu Faces Fewer Restraints On Gaza Than Ever**\
-`On the war, President Trump is more aligned than his predecessor with the aims of Prime Minister Benjamin Netanyahu of Israel and his right-wing coalition.`\
-https://nytimes.com/2025/04/08/world/middleeast/trump-netanyahu-israel-gaza.html
-
-**The Pulse: Of course it came down to the last possession**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6262171/2025/04/08/houston-florida-last-play-the-pulse/
-
-**Stefanos Tsitsipas and the endless rebirth of clay-court tennis**\
-`Tsitsipas thrives at the Monte Carlo Masters, where he has won three of the past four tournaments. Much of that comes from the clay.`\
-https://nytimes.com/athletic/6250442/2025/04/08/tennis-stefanos-tsitsipas-best-surface-clay-racket/
-
-**Billie Jean King receives Hollywood Walk of Fame star for sports entertainment**\
-`King, 81, won 39 tennis Grand Slam titles overall and has blazed a trail for gender equity in sport.`\
-https://nytimes.com/athletic/6263577/2025/04/08/billie-jean-king-hollywood-walk-of-fame-star/
-
-**What can the Vikings get in a trade for the 24th pick? Here's what history shows**\
-`With just four picks in the draft, the Vikings will have to get lots of bang for their buck. Trading down in the first round could help.`\
-https://nytimes.com/athletic/6262423/2025/04/08/vikings-nfl-draft-trade-down/
-
-**Spirit owner Michele Kang sees opportunity with U.S. Soccer partnership and Emma Hayes' vision**\
-`Kang has pledged a total of $55 million to U.S. Soccer for the research and development of the women's game.`\
-https://nytimes.com/athletic/6262959/2025/04/08/michele-kang-us-soccer-investment-emma-hayes/
-
-**Way-too-early men's Top 25: Who's got a shot at No. 1 for 2025-26?**\
-`Talent plus roster continuity is a winning formula, and no team has a better combination of that at this moment than Purdue.`\
-https://nytimes.com/athletic/6261827/2025/04/08/mens-college-basketball-top-25-look-ahead/
-
-**Should Jets trade Breece Hall and draft Ashton Jeanty? Exploring the possibility**\
-`Social media speculation has made its way to the star running back.`\
-https://nytimes.com/athletic/6262414/2025/04/08/jets-draft-ashton-jeanty-breece-hall/
 
