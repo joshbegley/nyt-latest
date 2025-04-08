@@ -1,3 +1,7 @@
+**Congestion Pricing Will Live On for Several Months After Court Agreement**\
+`State and federal officials agreed to a timeline in their court dispute over the tolling program that is likely to leave it in place until the fall. Other threats to the program still loom.`\
+https://nytimes.com/2025/04/07/nyregion/mta-congestion-pricing-dot.html
+
 **At James Earl Jones Memorial, Friends Share Laughs, Tears and Moving Stories**\
 `At a gathering in the Broadway theater renamed to honor the star, speakers including Denzel Washington and Phylicia Rashad described Jones as an inspiration.`\
 https://nytimes.com/2025/04/07/theater/james-earl-jones-memorial-denzel.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/04/07/us/trump-news/the-us-conference-of-catholic-
 **Trump Administration to Roll Back Array of Gun Control Measures**\
 `Taken together, they signal an abrupt reversal from efforts by the Biden administration to stem the flood of unregulated semiautomatic handguns and rifles.`\
 https://nytimes.com/2025/04/07/us/politics/trump-administration-to-roll-back-array-of-gun-control-measures.html
-
-**Trump Discusses Potential Nuclear Talks With Iran**\
-`President Trump and Prime Minister Netanyahu of Israel spoke at the White House on Monday, discussing trade policy and nuclear talks with Iran.`\
-https://nytimes.com/video/us/politics/100000010096981/trump-netanyahu-iran-nuclear-tariffs.html
 
