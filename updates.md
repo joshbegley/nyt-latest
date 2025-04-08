@@ -1,3 +1,11 @@
+**Oil Executives Are Quiet on Trump Polices. Privately, They’re Worried**\
+`Eager to stay in Mr. Trump’s good graces, oil executives refrain from publicly criticizing the president. But privately, ‘Everyone’s afraid.’`\
+https://nytimes.com/2025/04/08/business/energy-environment/oil-executives-trump-tariffs.html
+
+**Trump’s Tariffs Are Already Reducing Car Imports and Idling Factories**\
+`A few carmakers have closed factories, laid off workers or shifted production in response to the auto tariffs that took effect last week.`\
+https://nytimes.com/2025/04/08/business/trump-tariffs-cars-auto-industry.html
+
 **I.R.S. Agrees to Share Migrants’ Tax Information with ICE**\
 `The agreement is a major departure from the Internal Revenue Service’s efforts to gain the trust of migrants and encourage them to file their taxes.`\
 https://nytimes.com/2025/04/08/us/politics/irs-ice-tax-data-deal.html
