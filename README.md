@@ -1,3 +1,11 @@
+**Belgian stadium evacuated after smoke bombs, flares found under seats**\
+`An explosive detection dog and a specialised unit were called to the stadium to dispose of 14 homemade devices.`\
+https://nytimes.com/athletic/6262143/2025/04/08/charleroi-smoke-bombs-flares/
+
+**FEMA Tells New York to Fork Over Another $106 Million in Migrant Grants**\
+`Federal officials informed New York City that three previously issued grants were inconsistent with President Trump’s agenda; Mayor Eric Adams said the city would sue.`\
+https://nytimes.com/2025/04/08/nyregion/fema-migrants-money-nyc.html
+
 **Florida's Alijah Martin will talk about his second chance at the Final Four forever**\
 `Alijah Martin didn't talk of the painful 2023 Final Four with Florida Atlantic. But he'll share Monday's triumph with both Gators and Owls.`\
 https://nytimes.com/athletic/6263464/2025/04/08/florida-basketball-alijah-martin-fau-ncaa-title/
@@ -22,19 +30,11 @@ https://nytimes.com/athletic/6261591/2025/04/08/charles-kunkle-masters-worst-rec
 `An average NHL intermission typically features children. The Senators hosted a group of elderly skaters from the 80+ Hockey Hall of Fame.`\
 https://nytimes.com/athletic/6258860/2025/04/08/nhl-over-80-hockey-league-canada-senators/
 
+**The Athletic FC: A Premier League side in freefall, De Bruyne could join Messi in Miami and a league that's stopped ranking by results**\
+`Today in TAFC: Ruud van Nistelrooy and Leicester City plumb new depths and Inter Miami's De Bruyne discovery rights revealed`\
+https://nytimes.com/athletic/6263668/2025/04/08/leicester-kevin-de-bruyne-lionel-messi-inter-miami/
+
 **Who's the Broncos' next Nik Bonitto? A look at 5 in-house breakout candidates in 2025**\
 `Why there are signs Bo Nix can author a Year 2 leap that further improves Denver's growing offense.`\
 https://nytimes.com/athletic/6262009/2025/04/08/broncos-breakout-candidates-2025/
-
-**Champions League quarter-final bets: Is there value in betting on lopsided affairs?**\
-`Sam Tighe outlines the best bets for Wednesday’s Champions League quarter-finals.`\
-https://nytimes.com/athletic/6263662/2025/04/08/wednesday-champions-league-betting-tips-predictions-odds/
-
-**The Global Sell-Off**\
-`We explore the stock market panic over tariffs.`\
-https://nytimes.com/2025/04/08/briefing/stock-market-donald-trump-tariffs.html
-
-**China Vows to “Fight” Tariffs War With the U.S. “to the End”**\
-`Lin Jian, the spokesman for the Chinese Foreign Ministry, accused the United States of “economic bullying” after President Trump threatened an additional 50 percent tariff on Chinese imports.`\
-https://nytimes.com/video/world/middleeast/100000010097626/china-us-tariffs-war-.html
 
