@@ -1,3 +1,7 @@
+**Why Did So Many People Delude Themselves About Trump?**\
+`Wall Street mistook demagogy for wisdom.`\
+https://nytimes.com/2025/04/07/opinion/trump-stock-market-wall-street.html
+
 **Greg Millen, NHL goalie and voice of 'Hockey Night in Canada,' dies at 67**\
 `Millen's voice was familiar to a generation of Canadian hockey fans. A cause of death was not made public.`\
 https://nytimes.com/athletic/6262950/2025/04/07/hockey-night-in-canada-greg-millen-dies-at-67/
