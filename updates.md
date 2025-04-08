@@ -1,3 +1,15 @@
+**Opposition to G.O.P. budget plan builds in the House, threatening Trump’s agenda**\
+`By Catie Edmondson`\
+https://nytimes.com/live/2025/04/08/us/trump-news-tariffs/opposition-to-gop-budget-plan-builds-in-the-house-threatening-trumps-agenda
+
+**The Treasury Secretary Needs Better Data on How You Save for Retirement**\
+`Scott Bessent said on television that most people kept 401(k) money in a 60 percent stock fund. It’s not quite that simple.`\
+https://nytimes.com/2025/04/08/your-money/401k-stock-market-scott-bessent.html
+
+**He Was Held Captive in His Room For Decades. Then He Set It on Fire.**\
+`Firefighters found a 32-year-old man who weighed 68 pounds. The police say his stepmother locked him away when he was 12.`\
+https://nytimes.com/2025/04/08/nyregion/ct-waterbury-captive.html
+
 **Matteo Berrettini earns biggest career win over top seed Alexander Zverev in Monte Carlo**\
 `It is Berrettini's first top-two win and continues Zverev's wretched record since the Australian Open.`\
 https://nytimes.com/athletic/6264268/2025/04/08/matteo-berrettini-alexander-zverev-monte-carlo/

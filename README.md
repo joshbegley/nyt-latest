@@ -1,3 +1,7 @@
+**Luis Enrique 'delighted' Asensio can play against PSG for Villa in Champions League tie**\
+`The 29-year-old is on loan at Villa from PSG and the sides play each other in the Champions League quarter-finals.`\
+https://nytimes.com/athletic/6264034/2025/04/08/luis-enrique-marco-asensio-psg-aston-villa/
+
 **Opposition to G.O.P. budget plan builds in the House, threatening Trump’s agenda**\
 `By Catie Edmondson`\
 https://nytimes.com/live/2025/04/08/us/trump-news-tariffs/opposition-to-gop-budget-plan-builds-in-the-house-threatening-trumps-agenda
@@ -22,7 +26,7 @@ https://nytimes.com/athletic/6264376/2025/04/08/jurgen-klopp-liverpool-return/
 `Rahm, the 2023 Masters champ, said he hopes all the best players in the world can come back together.`\
 https://nytimes.com/athletic/6264347/2025/04/08/jon-rahm-masters-pga-tour-pif-deal/
 
-**Oil Executives Are Quiet on Trump Polices. Privately, They’re Worried**\
+**Oil Executives Are Quiet on Trump Policies. Privately, They’re Worried**\
 `Eager to stay in Mr. Trump’s good graces, oil executives refrain from publicly criticizing the president. But privately, ‘Everyone’s afraid.’`\
 https://nytimes.com/2025/04/08/business/energy-environment/oil-executives-trump-tariffs.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/08/business/trump-tariffs-cars-auto-industry.html
 **I.R.S. Agrees to Share Migrants’ Tax Information with ICE**\
 `The agreement is a major departure from the Internal Revenue Service’s efforts to gain the trust of migrants and encourage them to file their taxes.`\
 https://nytimes.com/2025/04/08/us/politics/irs-ice-tax-data-deal.html
-
-**Your guide to every hole at the 2025 Masters: Layout, history and betting tips**\
-`The history, challenges and betting tips for all eighteen holes at Augusta National.`\
-https://nytimes.com/athletic/6242345/2025/04/08/the-2025-masters-hole-by-hole-betting-guide-tips-history-and-predictions/
 
