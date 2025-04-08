@@ -1,3 +1,7 @@
+**Kelvin Sampson and Houston forced to deal with another cruel ending**\
+`It’s never easy to close the book on a season, especially when you're so close you can almost feel the scissors in your hand.`\
+https://nytimes.com/athletic/6263523/2025/04/08/houston-kelvin-sampson-national-championship-game/
+
 **U.S. tourist boards wrong boat in London, accidentally becomes fan of fifth-tier soccer club**\
 `A student from Arizona thought he was on a sightseeing tour, but instead ended up "drinking and dancing" with 150 Southend United fans.`\
 https://nytimes.com/athletic/6263629/2025/04/08/southend-boat-evan-johnston/

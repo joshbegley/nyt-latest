@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6263629/2025/04/08/southend-boat-evan-johnston/
 `Many Israelis were surprised when President Trump announced that the United States would engage in “direct” negotiations with Iran in an effort to rein in the country’s nuclear program.`\
 https://nytimes.com/2025/04/08/world/middleeast/israel-iran-reaction.html
 
-**Houston heartbreak: Kelvin Sampson and the Cougars forced to deal with another cruel ending**\
+**Kelvin Sampson and Houston forced to deal with another cruel ending**\
 `It’s never easy to close the book on a season, especially when you're so close you can almost feel the scissors in your hand.`\
 https://nytimes.com/athletic/6263523/2025/04/08/houston-kelvin-sampson-national-championship-game/
 
