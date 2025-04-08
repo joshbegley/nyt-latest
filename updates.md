@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6260946/2025/04/08/athletic-football-show-2025-nfl-draft-trading-up/
 
+**Watch: Are blue-chip prospects worth trading up for in this year's NFL Draft?**\
+`"The Athletic Football Show" discusses which teams should consider an aggressive trade up to get Travis Hunter or Abdul Carter.
+`\
+https://nytimes.com/athletic/6260946/2025/04/08/athletic-football-show-2025-nfl-draft-trading-up/
+
 **Gibbs-White, Wirtz among City's options to replace De Bruyne**\
 `Kevin De Bruyne announced last week he will leave City after 10 years at the club, potentially leaving a creative void in the squad.`\
 https://nytimes.com/athletic/6263607/2025/04/08/gibbs-white-wirtz-manchester-city-transfer/
