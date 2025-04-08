@@ -1,3 +1,11 @@
+**Luis Enrique 'delighted' Asensio can play against PSG for Villa in Champions League tie**\
+`The 29-year-old is on loan at Villa from PSG and the sides play each other in the Champions League quarter-finals.`\
+https://nytimes.com/athletic/6264034/2025/04/08/luis-enrique-marco-asensio-psg-aston-villa/
+
+**Oil Executives Are Quiet on Trump Policies. Privately, They’re Worried**\
+`Eager to stay in Mr. Trump’s good graces, oil executives refrain from publicly criticizing the president. But privately, ‘Everyone’s afraid.’`\
+https://nytimes.com/2025/04/08/business/energy-environment/oil-executives-trump-tariffs.html
+
 **Opposition to G.O.P. budget plan builds in the House, threatening Trump’s agenda**\
 `By Catie Edmondson`\
 https://nytimes.com/live/2025/04/08/us/trump-news-tariffs/opposition-to-gop-budget-plan-builds-in-the-house-threatening-trumps-agenda
