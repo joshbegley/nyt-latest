@@ -2,7 +2,7 @@
 `The Supreme Court ruled that the Trump administration could continue to deport Venezuelan migrants using a wartime powers act for now, overturning a lower court that had put a temporary stop to the deportations.`\
 https://nytimes.com/interactive/2025/04/07/us/supreme-court-venezuelan-migrants.html
 
-**Kyle Tucker on Vladimir Guerrero Jr.'s $500 million extension: 'Right now, I'm here to play'  **\
+**Kyle Tucker on Guerrero's $500M extension: 'Right now, I'm here to play'  **\
 `Tucker, 28, is two years older than Guerrero and positioned to become the biggest name in the upcoming class of free agents.`\
 https://nytimes.com/athletic/6263101/2025/04/07/cubs-kyle-tucker-reaction-vladimir-guerrero-jr-extension/
 
