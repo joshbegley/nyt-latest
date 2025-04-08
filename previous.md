@@ -1,3 +1,11 @@
+**Your guide to every hole at the 2025 Masters: Layout, history and betting tips**\
+`The history, challenges and betting tips for all eighteen holes at Augusta National.`\
+https://nytimes.com/athletic/6242345/2025/04/08/the-2025-masters-hole-by-hole-betting-guide-tips-history-and-predictions/
+
+**Canned Tuna Never Had It So Good**\
+`Or so tart, so satisfying and so riffable, thanks to Kristina Felix’s spicy tuna and avocado tostadas.`\
+https://nytimes.com/2025/04/08/dining/canned-tuna-never-had-it-so-good.html
+
 **NBA Power Rankings: Revisiting some Week 1 questions as season winds down**\
 `There is one week left in the regular season. How well did every team answer its pressing concern coming into the year?`\
 https://nytimes.com/athletic/6263781/2025/04/08/nba-power-rankings-knicks-clippers-thunder-celtics/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/08/world/asia/jeju-crash-communications.html
 **China Criticizes JD Vance for Calling Its People ‘Peasants’**\
 `A spokesman for China’s foreign ministry denounced the vice president’s comments as “ignorant and impolite.”`\
 https://nytimes.com/2025/04/08/us/politics/jd-vance-peasants-china.html
-
-**Remembering Greg Millen, an NHLer, broadcaster and prankster who made his colleagues feel like family**\
-`The NHL Alumni Association announced Monday that Millen had passed away suddenly at age 67.`\
-https://nytimes.com/athletic/6263332/2025/04/08/greg-millen-hockey-night-in-canada/
-
-**Verstappen's Japanese GP win showed how he can exploit a tough McLaren tactic**\
-`Suzuka exposed some of McLaren’s weaknesses as its driver dilemma resurfaced`\
-https://nytimes.com/athletic/6263732/2025/04/08/max-verstappen-suzuka-japanese-gp-norris-piastri-mclaren/
 
