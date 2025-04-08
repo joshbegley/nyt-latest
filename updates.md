@@ -1,3 +1,7 @@
+**Who Will Care for Infants With H.I.V. Overseas?**\
+`The consequences of mother-to-child transmission can be enormous, a new study suggests. But the U.S. has dismissed experts working to solve the problem.`\
+https://nytimes.com/2025/04/08/health/cdc-hiv-mothers.html
+
 **Man Utd confirm post-season matches in Malaysia and Hong Kong in May**\
 `The Athletic reported in December that United were planning a post-season trip to Asia that could see the club earn $10million in revenue.`\
 https://nytimes.com/athletic/6263517/2025/04/08/manchester-united-post-season-tour-asia/
