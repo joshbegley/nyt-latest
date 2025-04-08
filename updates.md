@@ -1,3 +1,15 @@
+**Ryan Smith of Utah Jazz and Utah Hockey Club launches new sports-tech investment fund**\
+`Halo Experience is another example of how sports is continuing to bring in financial capital that had previously remained out of the sector.`\
+https://nytimes.com/athletic/6261691/2025/04/08/ryan-smith-of-utah-jazz-and-hockey-club-launches-new-sports-tech-investment-fund/
+
+**How to watch 2025 women's worlds — plus, why Canada-USA is hockey's best rivalry**\
+`Everything you need to know ahead of the IIHF Women’s World World Championship, which begins Wednesday in České Budějovice, Czechia.`\
+https://nytimes.com/athletic/6262827/2025/04/08/how-to-watch-womens-world-championships-hockey/
+
+**Dreamy Hair With Clothes to Match**\
+`Flouncy curls paired well with layers of loose pleats.`\
+https://nytimes.com/2025/04/08/style/street-style-look-curly-hair.html
+
 **Barcelona's Gavi on criticism of his style of play: 'They don't have a f****** clue'**\
 `Gavi has had to settle for a diminished role this season following his return from the ACL injury that kept him sidelined for 11 months.`\
 https://nytimes.com/athletic/6263874/2025/04/08/barcelona-gavi-champions-league-dortmund/
