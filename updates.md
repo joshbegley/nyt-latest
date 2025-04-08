@@ -1,3 +1,7 @@
+**The Destruction of the American Ideal**\
+`Under Trump, we are becoming unrecognizable to our former selves.`\
+https://nytimes.com/2025/04/08/opinion/trump-deporation-america.html
+
 **‘Getting Heavier’: Climate Change Primes Storms to Drop More Rain**\
 `With rising temperatures, the atmosphere can hold more moisture, meaning precipitation has a tendency to fall at more extreme levels.`\
 https://nytimes.com/2025/04/08/climate/rain-floods-climate-change.html

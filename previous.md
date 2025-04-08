@@ -1,3 +1,7 @@
+**The Destruction of the American Ideal**\
+`Under Trump, we are becoming unrecognizable to our former selves.`\
+https://nytimes.com/2025/04/08/opinion/trump-deporation-america.html
+
 **‘Getting Heavier’: Climate Change Primes Storms to Drop More Rain**\
 `With rising temperatures, the atmosphere can hold more moisture, meaning precipitation has a tendency to fall at more extreme levels.`\
 https://nytimes.com/2025/04/08/climate/rain-floods-climate-change.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6263756/2025/04/08/olivia-miles-tcu-notre-dame-tran
 **Trump to Sign Order Aimed at Reviving a Struggling Coal Industry**\
 `The moves include loosening environmental rules, but it is unclear how much they can help reverse the sharp decline in coal power over the last two decades.`\
 https://nytimes.com/2025/04/08/climate/trump-order-coal-mining.html
-
-**Councilwoman Who Bit Officer Has Charges Dropped After ‘Healing’ Course**\
-`Susan Zhuang attacked a deputy chief of the Police Department during a protest last summer over a homeless shelter in Brooklyn.`\
-https://nytimes.com/2025/04/08/nyregion/nyc-councilwoman-susan-zhuang-biting-charges-dropped.html
 
