@@ -1,3 +1,7 @@
+**Sadness, despair and anger: A three-day road trip to the Premier League's relegation battle**\
+`For the second straight season, the three promoted sides have been swatted aside with worrying ease`\
+https://nytimes.com/athletic/6263066/2025/04/08/premier-league-relegation-battle-ipswich-southampton-leicester/
+
 **Tuesday Briefing**\
 `The global response to President Trump’s tariffs.`\
 https://nytimes.com/2025/04/08/briefing/tariffs-iran-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6258536/2025/04/08/when-loan-players-embarrass-thei
 **How Luis Enrique has helped PSG transform their broken culture and move on from Mbappe**\
 `PSG have transformed attitudes both within and towards the club over the last two years. Luis Enrique has played a pivotal role`\
 https://nytimes.com/athletic/6260929/2025/04/08/psg-luis-enrique-mbappe-culture-champions-league/
-
-**Shock, relief and 'smelling' the sack: What it's like to be fired as a manager**\
-`Ivan Juric is the latest Premier League casualty but there are many ways for a manager to be dismissed`\
-https://nytimes.com/athletic/6260899/2025/04/08/manager-sack-premier-league-feels-like/
 
