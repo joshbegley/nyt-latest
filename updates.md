@@ -1,3 +1,7 @@
+**Robert W. McChesney, Who Warned of Corporate Media Control, Dies at 72**\
+`In over a dozen books, he explored the failures of journalism and the internet, blaming capitalism and calling for the nationalization of Facebook and Google.`\
+https://nytimes.com/2025/04/08/business/media/robert-w-mcchesney-dead.html
+
 **Panama Official Accuses Hong Kong Port Operator of Misconduct**\
 `The controller general of Panama said CK Hutchison, a Hong Kong conglomerate, did not properly renew its license to operate two ports that are part of a $19 billion deal involving BlackRock.`\
 https://nytimes.com/2025/04/08/business/panama-ports-ck-hutchison-audit.html
