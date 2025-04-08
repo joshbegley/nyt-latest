@@ -1,3 +1,11 @@
+**Israel’s Supreme Court Considers Netanyahu’s Attempt to Fire Spy Chief**\
+`The hearing on the move opened with unruly scenes, as hecklers forced judges to pause the proceedings before resuming them without a public audience.`\
+https://nytimes.com/2025/04/08/world/middleeast/israel-supreme-court-spy-chief.html
+
+**Jalen Milroe film review: Why a potential NFL Draft gem needs extensive polishing**\
+`The Alabama QB's stunning athletic ability and big-game experience are enticing, but he has much work to do to become an NFL-caliber passer.`\
+https://nytimes.com/athletic/6259210/2025/04/08/jalen-milroe-film-review-nfl-draft/
+
 **Madonna and Elton John Make Up. (Yes, They Were Feuding.)**\
 `They made peace backstage at “Saturday Night Live.” You’d be forgiven for forgetting that their decades-old dispute had remained unresolved.`\
 https://nytimes.com/2025/04/08/arts/music/madonna-elton-john-feud.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/08/us/politics/michael-bloomberg-everytown-trump-dem
 **Villa offer Kamara new contract with talks ongoing**\
 `The France international has made 32 appearances in all competitions this season and has featured in 19 Premier League games.`\
 https://nytimes.com/athletic/6263543/2025/04/08/boubacar-kamara-contract-aston-villa/
-
-**Stop Freaking Out. Trump’s Tariffs Can Still Work.**\
-`It’s a matter of timing and communication.`\
-https://nytimes.com/2025/04/08/opinion/trump-tariffs-success-failure.html
-
-**How Climate Change Could Make Homes Disappear**\
-`In the next 15 years, the New York area could lose more than 80,000 homes to floods, worsening the housing shortage, according to a new report.`\
-https://nytimes.com/2025/04/08/nyregion/how-climate-change-could-make-homes-disappear.html
 

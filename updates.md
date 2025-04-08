@@ -1,3 +1,43 @@
+**Madonna and Elton John Make Up. (Yes, They Were Feuding.)**\
+`They made peace backstage at “Saturday Night Live.” You’d be forgiven for forgetting that their decades-old dispute had remained unresolved.`\
+https://nytimes.com/2025/04/08/arts/music/madonna-elton-john-feud.html
+
+**Patriots want Travis Hunter or Abdul Carter in the NFL Draft. But what if they're gone?**\
+`The Pats hope two QBs are taken in the first three picks, which would ensure that either Hunter or Carter falls to them at No. 4.`\
+https://nytimes.com/athletic/6261636/2025/04/08/patriots-nfl-draft-travis-hunter-abdul-carter/
+
+**Cowboys draft mailbag: Analyzing your mock draft submissions to fill roster needs in Dallas**\
+`Will the Cowboys stay at No. 12 or move back and add picks? We asked for your Dallas mock draft scenarios.`\
+https://nytimes.com/athletic/6262251/2025/04/08/cowboys-nfl-mock-draft-mailbag/
+
+**Making the jump from college hoops to the NFL: 'I was like, what? Change sports?'**\
+`Colin Granger had not played football since eighth grade. But when his basketball season at Coastal Carolina was over, he gave it a shot.`\
+https://nytimes.com/athletic/6263121/2025/04/08/panthers-basketball-tight-end-signing-colin-granger/
+
+**Market Chaos Could Inflict Its Own Economic Damage**\
+`A big hit to portfolios would be felt acutely by higher-income Americans, whose spending has recently been the biggest driver of the economy.`\
+https://nytimes.com/2025/04/08/business/economy/stock-market-economy-trump-tariffs.html
+
+**Is This America’s Liz Truss Moment?**\
+`Ms. Truss, Britain’s prime minister for 44 days, was forced out after her radical policies caused a market meltdown. But there are some key differences with President Trump.`\
+https://nytimes.com/2025/04/08/world/europe/trump-tariffs-markets-liz-truss.html
+
+**Bloomberg Pumps Cash Into the Long-Term Legal Fight Against Trump**\
+`The billionaire’s gun control group plans to spend $10 million to help elect Democratic attorneys general, who are on the front lines of legal clashes with the president.`\
+https://nytimes.com/2025/04/08/us/politics/michael-bloomberg-everytown-trump-democrats.html
+
+**Villa offer Kamara new contract with talks ongoing**\
+`The France international has made 32 appearances in all competitions this season and has featured in 19 Premier League games.`\
+https://nytimes.com/athletic/6263543/2025/04/08/boubacar-kamara-contract-aston-villa/
+
+**Stop Freaking Out. Trump’s Tariffs Can Still Work.**\
+`It’s a matter of timing and communication.`\
+https://nytimes.com/2025/04/08/opinion/trump-tariffs-success-failure.html
+
+**How Climate Change Could Make Homes Disappear**\
+`In the next 15 years, the New York area could lose more than 80,000 homes to floods, worsening the housing shortage, according to a new report.`\
+https://nytimes.com/2025/04/08/nyregion/how-climate-change-could-make-homes-disappear.html
+
 **Who Will Care for Infants With H.I.V. Overseas?**\
 `The consequences of mother-to-child transmission can be enormous, a new study suggests. But the U.S. has dismissed experts working to solve the problem.`\
 https://nytimes.com/2025/04/08/health/cdc-hiv-mothers.html
