@@ -10,7 +10,7 @@ https://nytimes.com/2025/04/08/briefing/tariffs-iran-russia.html
 ``\
 https://nytimes.com/issue/todayspaper/2025/04/08/todays-new-york-times
 
-**Who’s Afraid of the Post-American Order?**\
+**Reasons to Be Optimistic About a Post-American Order**\
 `Principles of free trade and cooperation have their roots in the non-Western world.`\
 https://nytimes.com/2025/04/08/opinion/west-american-order-free-trade.html
 
