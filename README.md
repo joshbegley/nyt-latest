@@ -1,3 +1,11 @@
+**Verstappen's Japanese GP win showed how he can exploit a tough McLaren tactic**\
+`Suzuka exposed some of McLaren’s weaknesses as its driver dilemma resurfaced`\
+https://nytimes.com/athletic/6263732/2025/04/08/max-verstappen-suzuka-japanese-gp-norris-piastri-mclaren/
+
+**Trump Officials Point to Outreach on Tariffs in a Bid to Calm Markets**\
+`Jamieson Greer, the United States trade representative, will tell senators the U.S. is economy is in need of “drastic, overdue change.”`\
+https://nytimes.com/2025/04/08/business/trump-tariffs-greer.html
+
 **Is Being Royal a Job? This Prince Says Yes, and He Wants a Pension.**\
 `A court case by the Belgian king’s younger brother argued that he was entitled to a state pension to keep his wife and adult children financially safe.`\
 https://nytimes.com/2025/04/08/world/europe/belgium-prince-social-security-benefits-ruling.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6263607/2025/04/08/gibbs-white-wirtz-manchester-cit
 **Trump Administration Opens More Public Land to Drilling and Mining**\
 `The move, focused on Nevada and New Mexico, is aimed at removing “burdensome” restrictions on energy and mineral development, a statement said.`\
 https://nytimes.com/2025/04/08/climate/trump-new-mexico-nevada-mining-drilling.html
-
-**Wall Street Bursts With Anger Over Tariff ‘Stupidity’**\
-`Billionaire investors are in an unfamiliar position, watching and cringing as tariffs roll on and the stock market reels.`\
-https://nytimes.com/2025/04/08/business/trump-tariff-wall-street-reaction.html
-
-**Slow Down and Experience Fort Myers**\
-`In one of Florida’s most charming coastal cities, time slows to a perfectly unhurried pace.`\
-https://nytimes.com/paidpost/fort-myers/slow-down-and-experience-fort-myers.html
 
