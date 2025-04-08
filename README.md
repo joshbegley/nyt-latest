@@ -1,3 +1,11 @@
+**Madonna and Elton John Make Up. (Yes, They Were Feuding.)**\
+`They made peace backstage at “Saturday Night Live.” You’d be forgiven for forgetting that their decades-old dispute had remained unresolved.`\
+https://nytimes.com/2025/04/08/arts/music/madonna-elton-john-feud.html
+
+**Patriots want Travis Hunter or Abdul Carter in the NFL Draft. But what if they're gone?**\
+`The Pats hope two QBs are taken in the first three picks, which would ensure that either Hunter or Carter falls to them at No. 4.`\
+https://nytimes.com/athletic/6261636/2025/04/08/patriots-nfl-draft-travis-hunter-abdul-carter/
+
 **Cowboys draft mailbag: Analyzing your mock draft submissions to fill roster needs in Dallas**\
 `Will the Cowboys stay at No. 12 or move back and add picks? We asked for your Dallas mock draft scenarios.`\
 https://nytimes.com/athletic/6262251/2025/04/08/cowboys-nfl-mock-draft-mailbag/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/08/opinion/trump-tariffs-success-failure.html
 **How Climate Change Could Make Homes Disappear**\
 `In the next 15 years, the New York area could lose more than 80,000 homes to floods, worsening the housing shortage, according to a new report.`\
 https://nytimes.com/2025/04/08/nyregion/how-climate-change-could-make-homes-disappear.html
-
-**I Invented a Popular Kitchen Gadget. Tariffs Will Kill My Business.**\
-`The government’s promise to re-shore the production of simple items like mine looks, from where I sit, like something of a fever dream.`\
-https://nytimes.com/2025/04/08/opinion/frywall-tariffs.html
-
-**Another Group the Democrats Should Stop Taking for Granted**\
-`Trump didn’t just defy the assumption that his demonization of immigrants would cost him Hispanic voters; he turned those expectations upside down.`\
-https://nytimes.com/2025/04/08/opinion/trump-latino-hispanic-vote.html
 
