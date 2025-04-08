@@ -1,3 +1,7 @@
+**Birmingham (feat. Tom Brady) are promoted - but this is just the start**\
+`Going up to the Championship is just the first phase for the club and their U.S. owners`\
+https://nytimes.com/athletic/6263719/2025/04/08/birmingham-city-promotion-tom-brady/
+
 **American Library Association Sues to Stop Trump Cuts**\
 `The group argues that efforts to dismantle the Institute of Museum and Library Services imperil the nation’s libraries and violate the law.`\
 https://nytimes.com/2025/04/08/arts/american-library-association-lawsuit-trump-cuts.html

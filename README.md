@@ -1,3 +1,7 @@
+**Former MLB pitcher Octavio Dotel dies in Dominican nightclub collapse**\
+`A Santo Domingo native, Dotel made his MLB debut in 1999 and retired in 2014. He won a World Series with the 2011 St. Louis Cardinals. `\
+https://nytimes.com/athletic/6265082/2025/04/08/octavio-dotel-mlb-dominican-republic-nightclub-collapse/
+
 **Birmingham (feat. Tom Brady) are promoted - but this is just the start**\
 `Going up to the Championship is just the first phase for the club and their U.S. owners`\
 https://nytimes.com/athletic/6263719/2025/04/08/birmingham-city-promotion-tom-brady/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/08/business/panama-ports-ck-hutchison-audit.html
 **Gabbard Starts a Task Force Focused on Politicization of the Intelligence Agencies**\
 `The director of national intelligence framed it as an effort to eliminate the politicization of the agencies and to investigate episodes where intelligence was “weaponized.”`\
 https://nytimes.com/2025/04/08/us/politics/tulsi-gabbard-intelligence-task-force.html
-
-**Submit your questions for upcoming Yankees mailbags**\
-`<p>Before the Yankees begin their weekend series with the San Francisco Giants, Chris Kirschner and Brendan Kuty will be answering your questions in respective mailbags.`\
-https://nytimes.com/athletic/6265004/2025/04/08/submit-your-questions-for-upcoming-yankees-mailbags/
 
