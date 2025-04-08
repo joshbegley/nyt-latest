@@ -26,7 +26,7 @@ https://nytimes.com/athletic/6262846/2025/04/08/newcastle-united-game-state-king
 `This word has appeared in 102 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/04/08/learning/word-of-the-day-artisanal.html
 
-**Sadness, despair and anger: A three-day road trip to the Premier League's relegation battle**\
+**Sadness, despair and anger: A three-day road trip to the Premier League's drop zone**\
 `For the second straight season, the three promoted sides have been swatted aside with worrying ease`\
 https://nytimes.com/athletic/6263066/2025/04/08/premier-league-relegation-battle-ipswich-southampton-leicester/
 

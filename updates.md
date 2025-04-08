@@ -1,3 +1,7 @@
+**Sadness, despair and anger: A three-day road trip to the Premier League's drop zone**\
+`For the second straight season, the three promoted sides have been swatted aside with worrying ease`\
+https://nytimes.com/athletic/6263066/2025/04/08/premier-league-relegation-battle-ipswich-southampton-leicester/
+
 **Jeremy Monga was a rare glimpse of positivity for Leicester on another bleak night**\
 `An eighth successive Premier League defeat without scoring has put Ruud van Nistelrooy and his side on the brink of a dismal relegation`\
 https://nytimes.com/athletic/6263013/2025/04/08/leicester-city-jeremy-monga-van-nistelrooy/
