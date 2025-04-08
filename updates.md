@@ -1,0 +1,40 @@
+**How Trump’s TikTok Negotiations Were Upended by China and Tariffs**\
+`The future of the popular video app is now at the center of a geopolitical tussle between Washington and Beijing.`\
+https://nytimes.com/2025/04/07/technology/trump-tiktok-china-tariffs.html
+
+**Man Questioned in Killings of 4 at Georgia Trailer Park**\
+`The authorities said that the killings appeared to have stemmed from a domestic dispute. Investigators in Perry, Ga., said the four victims, who ranged in age from 2 to 82, were related.`\
+https://nytimes.com/2025/04/07/us/georgia-trailer-park-killings.html
+
+**The U.S. Conference of Catholic Bishops says aid cuts are forcing it to end refugee and children’s services.**\
+`By Elizabeth Dias`\
+https://nytimes.com/live/2025/04/07/us/trump-news/the-us-conference-of-catholic-bishops-says-aid-cuts-are-forcing-it-to-end-refugee-and-childrens-services
+
+**Trump Administration to Roll Back Array of Gun Control Measures**\
+`Taken together, they signal an abrupt reversal from efforts by the Biden administration to stem the flood of unregulated semiautomatic handguns and rifles.`\
+https://nytimes.com/2025/04/07/us/politics/trump-administration-to-roll-back-array-of-gun-control-measures.html
+
+**Trump Discusses Potential Nuclear Talks With Iran**\
+`President Trump and Prime Minister Netanyahu of Israel spoke at the White House on Monday, discussing trade policy and nuclear talks with Iran.`\
+https://nytimes.com/video/us/politics/100000010096981/trump-netanyahu-iran-nuclear-tariffs.html
+
+**Supreme Court Overturns Lower Court’s Block on Venezuelan Deportations**\
+`The Trump administration asked the justices to weigh in after a federal judge paused the president’s use of a wartime powers law to deport Venezuelans it accused of being gang members.`\
+https://nytimes.com/2025/04/07/us/politics/supreme-court-trump-venezuelan-deportations.html
+
+**Texas Governor Sets November Election to Fill Heavily Democratic House Seat**\
+`Democrats have argued that Gov. Greg Abbott, a Republican, did not act faster to fill the vacant seat because he didn’t want the narrow Republicans majority in Congress to shrink.`\
+https://nytimes.com/2025/04/07/us/texas-house-seat.html
+
+**Rep. John James of Michigan Announces Bid for Governor**\
+`The Republican congressman joins a crowded field vying to replace Gov. Gretchen Whitmer, who is term-limited.`\
+https://nytimes.com/2025/04/07/us/politics/john-james-michigan-governor.html
+
+**Another female leader in the U.S. military is fired by the Trump administration.**\
+`Vice Adm. Shoshana Chatfield has joined a list of several leaders who have been purged from the military’s highest ranks.`\
+https://nytimes.com/live/2025/04/07/us/trump-news/another-female-leader-in-the-us-military-is-fired-by-the-trump-administration
+
+**Clem Burke, Versatile, Hard-Driving Drummer for Blondie, Dies at 70**\
+`He provided both the explosive percussion on hits like “Call Me” and the laid-back rhythm on the reggae-influenced “The Tide Is High.”`\
+https://nytimes.com/2025/04/07/arts/music/clem-burke-dead.html
+
