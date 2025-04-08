@@ -1,3 +1,7 @@
+**I.R.S. Agrees to Share Migrants’ Tax Information with ICE**\
+`The agreement is a major departure from the Internal Revenue Service’s efforts to gain the trust of migrants and encourage them to file their taxes.`\
+https://nytimes.com/2025/04/08/us/politics/irs-ice-tax-data-deal.html
+
 **Your guide to every hole at the 2025 Masters: Layout, history and betting tips**\
 `The history, challenges and betting tips for all eighteen holes at Augusta National.`\
 https://nytimes.com/athletic/6242345/2025/04/08/the-2025-masters-hole-by-hole-betting-guide-tips-history-and-predictions/

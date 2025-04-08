@@ -1,3 +1,7 @@
+**I.R.S. Agrees to Share Migrants’ Tax Information with ICE**\
+`The agreement is a major departure from the Internal Revenue Service’s efforts to gain the trust of migrants and encourage them to file their taxes.`\
+https://nytimes.com/2025/04/08/us/politics/irs-ice-tax-data-deal.html
+
 **Your guide to every hole at the 2025 Masters: Layout, history and betting tips**\
 `The history, challenges and betting tips for all eighteen holes at Augusta National.`\
 https://nytimes.com/athletic/6242345/2025/04/08/the-2025-masters-hole-by-hole-betting-guide-tips-history-and-predictions/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/08/upshot/irs-tax-audits-cuts.html
 **Pilots Discussed Alternate Ways to Land Before Deadly Jeju Air Crash**\
 `The pilots’ conversation with air traffic controllers, revealed in a partial transcript, could offer clues to what caused the disaster in South Korea, which killed 179 people.`\
 https://nytimes.com/2025/04/08/world/asia/jeju-crash-communications.html
-
-**China Criticizes JD Vance for Calling Its People ‘Peasants’**\
-`A spokesman for China’s foreign ministry denounced the vice president’s comments as “ignorant and impolite.”`\
-https://nytimes.com/2025/04/08/us/politics/jd-vance-peasants-china.html
 
