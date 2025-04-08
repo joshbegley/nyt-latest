@@ -1,3 +1,7 @@
+**Tuesday Briefing**\
+`The global response to President Trump’s tariffs.`\
+https://nytimes.com/2025/04/08/briefing/tariffs-iran-russia.html
+
 **The New York Times in Print for Tuesday, April 8, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/04/08/todays-new-york-times
