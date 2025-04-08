@@ -1,3 +1,7 @@
+**Jon Stewart Can’t Stomach Trump’s Stock Market ‘Medicine’**\
+`The “Daily Show” host said America’s economy was “in the midst of a beautiful metamorphosis, turning from a simple caterpillar into a dead caterpillar.”`\
+https://nytimes.com/2025/04/08/arts/television/jon-stewart-tariffs-stock-market.html
+
 **Weekly Student News Quiz: Global Markets, N.C.A.A. Finals, a Tortoise**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2025/04/08/learning/08StudentNewsQuiz.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/08/learning/theme-park.html
 **Global Art Sales Fell by 12% Last Year, Report Says**\
 `“Geopolitical tensions, economic volatility and trade fragmentation” drove the market down, according to the Art Basel and UBS Global Art Market Report.`\
 https://nytimes.com/2025/04/08/arts/design/art-basel-ubs-art-market-report.html
-
-**Newcastle United, the Premier League's game-state kings**\
-`Howe's side have dropped fewest points from winning positions in the Premier League, and can also come from behind - how have they done it?`\
-https://nytimes.com/athletic/6262846/2025/04/08/newcastle-united-game-state-kings/
 
