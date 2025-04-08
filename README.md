@@ -1,3 +1,7 @@
+**Robert W. McChesney, Who Warned of Corporate Media Control, Dies at 72**\
+`In over a dozen books, he explored the failures of journalism and the internet, blaming capitalism and calling for the nationalization of Facebook and Google.`\
+https://nytimes.com/2025/04/08/business/media/robert-w-mcchesney-dead.html
+
 **Panama Official Accuses Hong Kong Port Operator of Misconduct**\
 `The controller general of Panama said CK Hutchison, a Hong Kong conglomerate, did not properly renew its license to operate two ports that are part of a $19 billion deal involving BlackRock.`\
 https://nytimes.com/2025/04/08/business/panama-ports-ck-hutchison-audit.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6263758/2025/04/08/nba-daily-play-in-tournament-dis
 **Los Angeles Rams NFL Draft 2025 guide: Picks, predictions and key needs**\
 `The Rams are set to pick at No. 26 in the first round and have eight total picks in the NFL Draft.`\
 https://nytimes.com/athletic/6233149/2025/04/08/los-angeles-rams-2025-nfl-draft-picks-needs-predictions-guide/
-
-**A Salon for the Ages, at Least for Now**\
-`A woman saved a decrepit building in the 70s and turned it into, among other things, an art museum, an opera house and a jazz club. It is about to be listed for sale.`\
-https://nytimes.com/2025/04/08/realestate/rochette-parzini-house-for-sale.html
 
