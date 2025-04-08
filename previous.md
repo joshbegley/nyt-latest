@@ -1,3 +1,7 @@
+**Jeremy Monga was a rare glimpse of positivity for Leicester on another bleak night**\
+`An eighth successive Premier League defeat without scoring has put Ruud van Nistelrooy and his side on the brink of a dismal relegation`\
+https://nytimes.com/athletic/6263013/2025/04/08/leicester-city-jeremy-monga-van-nistelrooy/
+
 **Florida's Todd Golden stakes claim as a coaching star, after a season of controversy**\
 `Golden's brilliant coaching and championship run will have to contend with a certain amount of unease.`\
 https://nytimes.com/athletic/6263436/2025/04/08/todd-golden-florida-gators-championship-investigation/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/08/briefing/tariffs-iran-russia.html
 **The New York Times in Print for Tuesday, April 8, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/04/08/todays-new-york-times
-
-**Reasons to Be Optimistic About a Post-American Order**\
-`Principles of free trade and cooperation have their roots in the non-Western world.`\
-https://nytimes.com/2025/04/08/opinion/west-american-order-free-trade.html
 
