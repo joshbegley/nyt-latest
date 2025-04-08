@@ -1,3 +1,7 @@
+**Unassuming Home**\
+`Barbara Lin helps us out in more ways than one.`\
+https://nytimes.com/2025/04/07/crosswords/daily-puzzle-2025-04-08.html
+
 **Read the Supreme Court’s Ruling on Venezuelan Migrants**\
 `The Supreme Court ruled that the Trump administration could continue to deport Venezuelan migrants using a wartime powers act for now, overturning a lower court that had put a temporary stop to the deportations.`\
 https://nytimes.com/interactive/2025/04/07/us/supreme-court-venezuelan-migrants.html
