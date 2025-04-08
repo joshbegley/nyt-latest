@@ -1,3 +1,7 @@
+**Why Eastern Conference playoff teams have reason to hope — and panic**\
+`As the Eastern Conference race finally seems to be firming up, what are the strengths and weaknesses of the eight teams?`\
+https://nytimes.com/athletic/6263028/2025/04/08/nhl-eastern-playoffs-hope-concern-2025/
+
 **Roof Collapses at Dominican Republic Nightclub, Killing at Least 13**\
 `The authorities said that search and rescue operations were continuing at the Jet Set nightclub in Santo Domingo, the capital.`\
 https://nytimes.com/2025/04/08/world/americas/dominican-republic-nightclub-collapse.html

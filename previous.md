@@ -1,3 +1,7 @@
+**Why Eastern Conference playoff teams have reason to hope — and panic**\
+`As the Eastern Conference race finally seems to be firming up, what are the strengths and weaknesses of the eight teams?`\
+https://nytimes.com/athletic/6263028/2025/04/08/nhl-eastern-playoffs-hope-concern-2025/
+
 **Roof Collapses at Dominican Republic Nightclub, Killing at Least 13**\
 `The authorities said that search and rescue operations were continuing at the Jet Set nightclub in Santo Domingo, the capital.`\
 https://nytimes.com/2025/04/08/world/americas/dominican-republic-nightclub-collapse.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6262769/2025/04/08/chris-paul-spurs-nba-final-week/
 **Some Mavs fans have protested the Luka Dončić trade by wearing his ‘77’ in purple and gold**\
 `Dončić has not been forgotten in Dallas. Some are honoring him by wearing the No. 77 of his new team.`\
 https://nytimes.com/athletic/6259352/2025/04/08/luka-doncic-mavericks-lakers-trade-fans-jersey/
-
-**The man who holds the record for the worst round in Masters’ history had the best outlook**\
-`He shot the worst round in Masters history, but Charles Kunkle used the experience to inspire those around him.`\
-https://nytimes.com/athletic/6261591/2025/04/08/charles-kunkle-masters-worst-record/
 
