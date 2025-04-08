@@ -1,3 +1,7 @@
+**Opening favorites for 2026 men's college basketball title revealed**\
+`Houston opened as the favorite to win the 2026 men's college basketball national title on BetMGM, just ahead of Duke.`\
+https://nytimes.com/athletic/6262760/2025/04/07/2026-mens-college-basketball-national-title-odds-duke-houston-uconn/
+
 **South Korea Sets New Presidential Election for June 3**\
 `Polls show the main opposition leader, Lee Jae-myung, is the front-runner to replace Yoon Suk Yeol, who was removed from office for declaring martial law.`\
 https://nytimes.com/2025/04/07/world/asia/south-korea-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6263224/2025/04/07/trinity-rodman-uswnt-brazil-full
 **Shohei Ohtani says Dodgers are being 'conservative and thoughtful' with his pitching rehab**\
 `There was talk that Ohtani could face hitters before the season started. Then he went a month without throwing a bullpen session.`\
 https://nytimes.com/athletic/6263240/2025/04/07/dodgers-shohei-ohtani-pitching-rehab-approach/
-
-**How Florida overcame 2nd-half fouls, including 2 technicals, to top Houston**\
-`Florida was called for six fouls in less than three minutes as Houston built a 12-point lead, but the Gators rallied.`\
-https://nytimes.com/athletic/6263191/2025/04/07/florida-foul-calls-technical-houston-second-half/
 
