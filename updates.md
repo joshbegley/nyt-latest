@@ -1,3 +1,11 @@
+**Florida rallies past Houston in thriller for third title and first since 2007**\
+`Florida produced a slew of defensive stands in crunch time to secure the school’s third national championship in men’s basketball.`\
+https://nytimes.com/athletic/6263067/2025/04/07/florida-houston-national-championship-ncaa-tournament/
+
+**How Florida overcame 2nd-half fouls, including 2 technicals, to top Houston**\
+`Florida was called for six fouls in less than three minutes as Houston built a 12-point lead, but the Gators rallied.`\
+https://nytimes.com/athletic/6263191/2025/04/07/florida-foul-calls-technical-houston-second-half/
+
 **South Korea Sets New Presidential Election for June 3**\
 `Polls show the main opposition leader, Lee Jae-myung, is the front-runner to replace Yoon Suk Yeol, who was removed from office for declaring martial law.`\
 https://nytimes.com/2025/04/07/world/asia/south-korea-election.html
