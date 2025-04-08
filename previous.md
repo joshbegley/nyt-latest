@@ -1,3 +1,7 @@
+**NCAA’s House settlement on hold, but judge expresses optimism for approval**\
+`A federal judge declined to make a final ruling on the NCAA’s $2.8 billion House settlement after hearing objections Monday.`\
+https://nytimes.com/athletic/6263102/2025/04/07/ncaa-house-settlement-hearing/
+
 **Unassuming Home**\
 `Barbara Lin helps us out in more ways than one.`\
 https://nytimes.com/2025/04/07/crosswords/daily-puzzle-2025-04-08.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/07/nyregion/mta-congestion-pricing-dot.html
 **At James Earl Jones Memorial, Friends Share Laughs, Tears and Moving Stories**\
 `At a gathering in the Broadway theater renamed to honor the star, speakers including Denzel Washington and Phylicia Rashad described Jones as an inspiration.`\
 https://nytimes.com/2025/04/07/theater/james-earl-jones-memorial-denzel.html
-
-**Mandel: Monday's House v. NCAA hearing was a moment more than a decade in the making**\
-`The House settlement was not approved on Monday — but it appears very likely it will be next week.`\
-https://nytimes.com/athletic/6262954/2025/04/07/house-vs-ncaa-hearing-revenue-sharing/
 

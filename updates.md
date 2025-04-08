@@ -1,3 +1,7 @@
+**NCAA’s House settlement on hold, but judge expresses optimism for approval**\
+`A federal judge declined to make a final ruling on the NCAA’s $2.8 billion House settlement after hearing objections Monday.`\
+https://nytimes.com/athletic/6263102/2025/04/07/ncaa-house-settlement-hearing/
+
 **Unassuming Home**\
 `Barbara Lin helps us out in more ways than one.`\
 https://nytimes.com/2025/04/07/crosswords/daily-puzzle-2025-04-08.html
