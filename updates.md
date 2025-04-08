@@ -1,3 +1,11 @@
+**What Would You Like to Make?**\
+`A Times series features specialists who craft surfboards, piñatas, guitars, saddles, cakes, quilts and more. What craft would you most like to pursue — and why?`\
+https://nytimes.com/2025/04/08/learning/what-would-you-like-to-make.html
+
+**Theme Park**\
+`What do you like most about amusement parks?`\
+https://nytimes.com/2025/04/08/learning/theme-park.html
+
 **Global Art Sales Fell by 12% Last Year, Report Says**\
 `“Geopolitical tensions, economic volatility and trade fragmentation” drove the market down, according to the Art Basel and UBS Global Art Market Report.`\
 https://nytimes.com/2025/04/08/arts/design/art-basel-ubs-art-market-report.html
