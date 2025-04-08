@@ -1,3 +1,11 @@
+**The New York Times in Print for Tuesday, April 8, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/08/todays-new-york-times
+
+**Who’s Afraid of the Post-American Order?**\
+`Principles of free trade and cooperation have their roots in the non-Western world.`\
+https://nytimes.com/2025/04/08/opinion/west-american-order-free-trade.html
+
 **Aston Villa's accounts explained: £86m loss, PSR problems to solve, player sales needed**\
 `Villa have posted another substantial loss but success on the pitch under Emery has raised revenue — PSR remains a significant issue, too`\
 https://nytimes.com/athletic/6261284/2025/04/08/aston-villa-accounts-explained-psr-transfers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6260899/2025/04/08/manager-sack-premier-league-feel
 **Liverpool are (probably) going to win the title this season. How can they be even better next time?**\
 `Reaching the top is one thing, but staying there is another - here's how Arne Slot's side can improve on his incredible first year in charge`\
 https://nytimes.com/athletic/6259091/2025/04/08/liverpool-tactics-pressing-improvement/
-
-**The night Thierry Henry and Arsenal silenced Real Madrid's galacticos**\
-`Real had a star-studded team, Arsenal were reeling from injuries, but across both legs in 2006, Henry, Fabregas et al put on a masterclass.`\
-https://nytimes.com/athletic/6261447/2025/04/08/arsenal-real-madrid-thierry-henry/
-
-**Why Bayern Munich no longer have carte blanche to sign up the Bundesliga's best**\
-`Florian Wirtz may be a long-standing target, but the cream of the German league have options these days rather than just a move to Bavaria`\
-https://nytimes.com/athletic/6261612/2025/04/08/bayern-munich-wirtz-bayer-transfers-policy/
 

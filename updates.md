@@ -1,3 +1,11 @@
+**The New York Times in Print for Tuesday, April 8, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/08/todays-new-york-times
+
+**Who’s Afraid of the Post-American Order?**\
+`Principles of free trade and cooperation have their roots in the non-Western world.`\
+https://nytimes.com/2025/04/08/opinion/west-american-order-free-trade.html
+
 **Aston Villa's accounts explained: £86m loss, PSR problems to solve, player sales needed**\
 `Villa have posted another substantial loss but success on the pitch under Emery has raised revenue — PSR remains a significant issue, too`\
 https://nytimes.com/athletic/6261284/2025/04/08/aston-villa-accounts-explained-psr-transfers/

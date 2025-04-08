@@ -1,3 +1,7 @@
+**Tuesday Briefing**\
+`The global response to President Trump’s tariffs.`\
+https://nytimes.com/2025/04/08/briefing/tariffs-iran-russia.html
+
 **The New York Times in Print for Tuesday, April 8, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/04/08/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6260929/2025/04/08/psg-luis-enrique-mbappe-culture-
 **Shock, relief and 'smelling' the sack: What it's like to be fired as a manager**\
 `Ivan Juric is the latest Premier League casualty but there are many ways for a manager to be dismissed`\
 https://nytimes.com/athletic/6260899/2025/04/08/manager-sack-premier-league-feels-like/
-
-**Liverpool are (probably) going to win the title this season. How can they be even better next time?**\
-`Reaching the top is one thing, but staying there is another - here's how Arne Slot's side can improve on his incredible first year in charge`\
-https://nytimes.com/athletic/6259091/2025/04/08/liverpool-tactics-pressing-improvement/
 
