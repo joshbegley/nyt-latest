@@ -1,3 +1,7 @@
+**Trump to Sign Order Aimed at Reviving a Struggling Coal Industry**\
+`The moves include loosening environmental rules, but it is unclear how much they can help reverse the sharp decline in coal power over the last two decades.`\
+https://nytimes.com/2025/04/08/climate/trump-order-coal-mining.html
+
 **Councilwoman Who Bit Officer Has Charges Dropped After ‘Healing’ Course**\
 `Susan Zhuang attacked a deputy chief of the Police Department during a protest last summer over a homeless shelter in Brooklyn.`\
 https://nytimes.com/2025/04/08/nyregion/nyc-councilwoman-susan-zhuang-biting-charges-dropped.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/08/science/king-k-holmes-dead.html
 **FIFA confirms referees will wear body cameras for Club World Cup**\
 `The new law change that aims to prevent goalkeepers from time-wasting will be introduced for the tournament.`\
 https://nytimes.com/athletic/6264483/2025/04/08/referees-club-world-cup-cameras/
-
-**Browns NFL Draft 2025 guide: Picks, predictions and key needs**\
-`Keeping you up to date on all of Cleveland's draft-related news and analysis heading into Round 1 on April 24. `\
-https://nytimes.com/athletic/6233351/2025/04/08/cleveland-browns-2025-nfl-draft-picks-needs-predictions-guide/
 
