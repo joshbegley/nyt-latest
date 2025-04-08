@@ -1,3 +1,7 @@
+**International Booker Prize Shortlist: 6 Books to Talk About**\
+`The nominees for the translated fiction award “don’t shut down debate, they generate it,” said the author Max Porter, who leads the judging panel.`\
+https://nytimes.com/2025/04/08/books/international-booker-prize-shortlist.html
+
 **Ryan Smith of Utah Jazz and Utah Hockey Club launches new sports-tech investment fund**\
 `Halo Experience is another example of how sports is continuing to bring in financial capital that had previously remained out of the sector.`\
 https://nytimes.com/athletic/6261691/2025/04/08/ryan-smith-of-utah-jazz-and-hockey-club-launches-new-sports-tech-investment-fund/
