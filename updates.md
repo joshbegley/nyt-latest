@@ -1,3 +1,11 @@
+**Jenner & Block, Law Firm Targeted by Trump, Files for Permanent Relief**\
+`The firm called the president’s executive order against it “a plain violation of the First Amendment.” WilmerHale is expected to file its own action opposing the administration.`\
+https://nytimes.com/2025/04/08/business/jenner-block-trump-filing.html
+
+**The Briefing: Bayern 1 Inter 2 - That Lautaro goal, Muller's moment, but what makes Inzaghi's men contenders?**\
+`A tight and tense evening in Bavaria saw the Italian side recover from conceding a late equaliser to claim a lead to take back to San Siro`\
+https://nytimes.com/athletic/6261134/2025/04/08/bayern-munich-inter-muller-lauturo-league/
+
 **Guterres, at U.N., Denounces Israel’s Gaza Aid Blockade**\
 `“The floodgates of horror” have been opened for Palestinians since the collapse of the temporary cease-fire, Secretary General António Guterres said.`\
 https://nytimes.com/2025/04/08/world/middleeast/guterres-israel-gaza-blockade.html
