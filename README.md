@@ -1,3 +1,7 @@
+**Brazil's boring turn marks its latest footballing identity crisis**\
+`Acts of flair are being punished at the club level, while the national team's woes have the country's sporting soul thrust into question.`\
+https://nytimes.com/athletic/6264330/2025/04/08/brazil-football-boring-memphis-depay-neymar-vinicius/
+
 **Jase Richardson declares for the 2025 draft**\
 `The Athletic’s Sam Vecenie called the guard “one of the true breakout risers of this draft class.”`\
 https://nytimes.com/athletic/6264875/2025/04/08/jase-richardson-nba-2025-draft/
@@ -5,6 +9,10 @@ https://nytimes.com/athletic/6264875/2025/04/08/jase-richardson-nba-2025-draft/
 **Watch: Which teams need to avoid the NBA Play-In Tournament the most?**\
 `NBA Daily discuss the seeding battle in the Western Conference.`\
 https://nytimes.com/athletic/6263758/2025/04/08/nba-daily-play-in-tournament-discussion/
+
+**Los Angeles Rams NFL Draft 2025 guide: Picks, predictions and key needs**\
+`The Rams are set to pick at No. 26 in the first round and have eight total picks in the NFL Draft.`\
+https://nytimes.com/athletic/6233149/2025/04/08/los-angeles-rams-2025-nfl-draft-picks-needs-predictions-guide/
 
 **A Salon for the Ages, at Least for Now**\
 `A woman saved a decrepit building in the 70s and turned it into, among other things, an art museum, an opera house and a jazz club. It is about to be listed for sale.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6264786/2025/04/08/f1-verstappen-mclaren-lewis-hami
 **‘Just a Mess’: Staff Cuts, Rushed Changes and Anxiety at Social Security**\
 `President Trump promised not to touch Social Security, but as Elon Musk’s team trims staff and plans cuts to phone services, the system is groaning under the pressure.`\
 https://nytimes.com/2025/04/08/us/social-security-trump.html
-
-**The Destruction of the American Ideal**\
-`Under Trump, we are becoming unrecognizable to our former selves.`\
-https://nytimes.com/2025/04/08/opinion/trump-deporation-america.html
-
-**‘Getting Heavier’: Climate Change Primes Storms to Drop More Rain**\
-`With rising temperatures, the atmosphere can hold more moisture, meaning precipitation has a tendency to fall at more extreme levels.`\
-https://nytimes.com/2025/04/08/climate/rain-floods-climate-change.html
 
