@@ -1,3 +1,11 @@
+**The Global Sell-Off**\
+`We explore the stock market panic over tariffs.`\
+https://nytimes.com/2025/04/08/briefing/stock-market-donald-trump-tariffs.html
+
+**China Vows to “Fight” Tariffs War With the U.S. “to the End”**\
+`Lin Jian, the spokesman for the Chinese Foreign Ministry, accused the United States of “economic bullying” after President Trump threatened an additional 50 percent tariff on Chinese imports.`\
+https://nytimes.com/video/world/middleeast/100000010097626/china-us-tariffs-war-.html
+
 **With Trump’s Return, Netanyahu Faces Fewer Restraints On Gaza Than Ever**\
 `On the war, President Trump is more aligned than his predecessor with the aims of Prime Minister Benjamin Netanyahu of Israel and his right-wing coalition.`\
 https://nytimes.com/2025/04/08/world/middleeast/trump-netanyahu-israel-gaza.html

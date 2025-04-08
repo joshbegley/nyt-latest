@@ -1,3 +1,11 @@
+**The Global Sell-Off**\
+`We explore the stock market panic over tariffs.`\
+https://nytimes.com/2025/04/08/briefing/stock-market-donald-trump-tariffs.html
+
+**China Vows to “Fight” Tariffs War With the U.S. “to the End”**\
+`Lin Jian, the spokesman for the Chinese Foreign Ministry, accused the United States of “economic bullying” after President Trump threatened an additional 50 percent tariff on Chinese imports.`\
+https://nytimes.com/video/world/middleeast/100000010097626/china-us-tariffs-war-.html
+
 **With Trump’s Return, Netanyahu Faces Fewer Restraints On Gaza Than Ever**\
 `On the war, President Trump is more aligned than his predecessor with the aims of Prime Minister Benjamin Netanyahu of Israel and his right-wing coalition.`\
 https://nytimes.com/2025/04/08/world/middleeast/trump-netanyahu-israel-gaza.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6261827/2025/04/08/mens-college-basketball-top-25-l
 **Should Jets trade Breece Hall and draft Ashton Jeanty? Exploring the possibility**\
 `Social media speculation has made its way to the star running back.`\
 https://nytimes.com/athletic/6262414/2025/04/08/jets-draft-ashton-jeanty-breece-hall/
-
-**Why does Scottie Scheffler dominate the Masters? He's 'an incredible handyman'**\
-`Scheffler will try this week to become the first golfer to win back-to-back at Augusta National since Tiger Woods 23 years ago. `\
-https://nytimes.com/athletic/6261436/2025/04/08/scottie-scheffler-masters-augusta-national-course-golf/
-
-**An inside look at the start of the Bears' new era as Ryan Poles hired Ben Johnson**\
-`Bears executives share details of Poles' process that led him to hiring Johnson, who is working with the team for the first time this week.`\
-https://nytimes.com/athletic/6259669/2025/04/08/ben-johnson-hiring-ryan-poles-bears/
 
