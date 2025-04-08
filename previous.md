@@ -1,3 +1,11 @@
+**Gang War Ravaged East Harlem for Six Months, Prosecutors Say**\
+`The Manhattan district attorney charged 16 people, most of them minors, in a score of shootings. Violence among New York City’s youth has soared.`\
+https://nytimes.com/2025/04/08/nyregion/east-harlem-gang-war-charges.html
+
+**Pronouns in Bio? You May Not Get a Response From the White House.**\
+`Some Trump administration officials have declined to answer questions from several journalists on the basis of their email signatures.`\
+https://nytimes.com/2025/04/08/business/media/white-house-journalists-pronouns.html
+
 **Steelers draft visit tracker: QB Shedeur Sanders visiting Thursday, per reports**\
 `Keep track of every prospect who visits the Steelers' facility between now and the 2025 NFL Draft.`\
 https://nytimes.com/athletic/6181787/2025/04/08/steelers-nfl-draft-prospect-visitors-tracker/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6264783/2025/04/08/yankees-starting-rotation-limite
 **William Finn, Tony Winner for ‘Falsettos,’ Is Dead at 73**\
 `An acclaimed musical theater writer, he won for both his score and his book and later had a huge hit with “The 25th Annual Putnam County Spelling Bee.”`\
 https://nytimes.com/2025/04/08/theater/william-finn-dead.html
-
-**Rice: 'Originally we were going to cross' first free-kick vs Real Madrid**\
-`Rice says he was convinced to shoot after a conversation with Bukayo Saka.`\
-https://nytimes.com/athletic/6265255/2025/04/08/declan-rice-free-kick-real-madrid/
-
-**Surprise firings, shocking trades, record-breaking sales: What's up with the NBA lately?**\
-`The past few months have seen some of the most head-scratching transactions in league history.`\
-https://nytimes.com/athletic/6265152/2025/04/08/michael-malone-firing-nba-luka-doncic-lakers/
 

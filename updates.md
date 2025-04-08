@@ -1,3 +1,11 @@
+**Gang War Ravaged East Harlem for Six Months, Prosecutors Say**\
+`The Manhattan district attorney charged 16 people, most of them minors, in a score of shootings. Violence among New York City’s youth has soared.`\
+https://nytimes.com/2025/04/08/nyregion/east-harlem-gang-war-charges.html
+
+**Pronouns in Bio? You May Not Get a Response From the White House.**\
+`Some Trump administration officials have declined to answer questions from several journalists on the basis of their email signatures.`\
+https://nytimes.com/2025/04/08/business/media/white-house-journalists-pronouns.html
+
 **Steelers draft visit tracker: QB Shedeur Sanders visiting Thursday, per reports**\
 `Keep track of every prospect who visits the Steelers' facility between now and the 2025 NFL Draft.`\
 https://nytimes.com/athletic/6181787/2025/04/08/steelers-nfl-draft-prospect-visitors-tracker/
