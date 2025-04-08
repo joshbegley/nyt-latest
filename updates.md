@@ -1,3 +1,11 @@
+**Israel’s Supreme Court Considers Netanyahu’s Attempt to Fire Spy Chief**\
+`The hearing on the move opened with unruly scenes, as hecklers forced judges to pause the proceedings before resuming them without a public audience.`\
+https://nytimes.com/2025/04/08/world/middleeast/israel-supreme-court-spy-chief.html
+
+**Jalen Milroe film review: Why a potential NFL Draft gem needs extensive polishing**\
+`The Alabama QB's stunning athletic ability and big-game experience are enticing, but he has much work to do to become an NFL-caliber passer.`\
+https://nytimes.com/athletic/6259210/2025/04/08/jalen-milroe-film-review-nfl-draft/
+
 **Madonna and Elton John Make Up. (Yes, They Were Feuding.)**\
 `They made peace backstage at “Saturday Night Live.” You’d be forgiven for forgetting that their decades-old dispute had remained unresolved.`\
 https://nytimes.com/2025/04/08/arts/music/madonna-elton-john-feud.html
