@@ -1,3 +1,11 @@
+**'SEC! SEC!' Gators quiet haters with title, making this the best men’s basketball league ever**\
+`The SEC has been very good for several years. But massive tournament success has eluded the league — until now. `\
+https://nytimes.com/athletic/6263676/2025/04/08/sec-basketball-florida-national-champions/
+
+**The Athletic FC: A Premier League side in freefall, De Bruyne could join Messi in Miami**\
+`Today in TAFC: Ruud van Nistelrooy and Leicester City plumb new depths and Inter Miami's De Bruyne discovery rights revealed`\
+https://nytimes.com/athletic/6263668/2025/04/08/leicester-kevin-de-bruyne-lionel-messi-inter-miami/
+
 **Belgian stadium evacuated after smoke bombs, flares found under seats**\
 `An explosive detection dog and a specialised unit were called to the stadium to dispose of 14 homemade devices.`\
 https://nytimes.com/athletic/6262143/2025/04/08/charleroi-smoke-bombs-flares/

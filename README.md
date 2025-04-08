@@ -1,3 +1,11 @@
+**Roof Collapses at Dominican Republic Nightclub, Killing at Least 13**\
+`The authorities said that search and rescue operations were continuing at the Jet Set nightclub in Santo Domingo, the capital.`\
+https://nytimes.com/2025/04/08/world/americas/dominican-republic-nightclub-collapse.html
+
+**Walter Clayton Jr. capped an NCAA Tournament for the ages with a fitting ending**\
+`Points didn't come easy for the Final Four's most outstanding player, but in the end Clayton delivered how he always does for Florida.`\
+https://nytimes.com/athletic/6263626/2025/04/08/walter-clayton-jr-florida-national-championship/
+
 **'SEC! SEC!' Gators quiet haters with title, making this the best men’s basketball league ever**\
 `The SEC has been very good for several years. But massive tournament success has eluded the league — until now. `\
 https://nytimes.com/athletic/6263676/2025/04/08/sec-basketball-florida-national-champions/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6259352/2025/04/08/luka-doncic-mavericks-lakers-tra
 **The man who holds the record for the worst round in Masters’ history had the best outlook**\
 `He shot the worst round in Masters history, but Charles Kunkle used the experience to inspire those around him.`\
 https://nytimes.com/athletic/6261591/2025/04/08/charles-kunkle-masters-worst-record/
-
-**At the good old (emphasis on 'old') hockey game: How 13 octogenarian skaters lived their NHL dream**\
-`An average NHL intermission typically features children. The Senators hosted a group of elderly skaters from the 80+ Hockey Hall of Fame.`\
-https://nytimes.com/athletic/6258860/2025/04/08/nhl-over-80-hockey-league-canada-senators/
-
-**The Athletic FC: A Premier League side in freefall, De Bruyne could join Messi in Miami**\
-`Today in TAFC: Ruud van Nistelrooy and Leicester City plumb new depths and Inter Miami's De Bruyne discovery rights revealed`\
-https://nytimes.com/athletic/6263668/2025/04/08/leicester-kevin-de-bruyne-lionel-messi-inter-miami/
 
