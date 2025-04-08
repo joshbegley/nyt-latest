@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Wednesday, April 9, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/04/08/todays-new-york-times-international-edition
+
 **Israel’s Supreme Court Considers Netanyahu’s Attempt to Fire Spy Chief**\
 `The hearing on the move opened with unruly scenes, as hecklers forced judges to pause the proceedings before resuming them without a public audience.`\
 https://nytimes.com/2025/04/08/world/middleeast/israel-supreme-court-spy-chief.html
