@@ -1,10 +1,14 @@
+**Musk Calls Navarro a ‘Moron’ in Escalating Tariff Fight**\
+`The feud between two of President Trump’s top advisers is playing out as the administration’s new tariffs have caused huge losses across global financial markets.`\
+https://nytimes.com/2025/04/08/us/politics/musk-calls-navarro-a-moron-in-escalating-tariff-fight.html
+
 **Luis Enrique 'delighted' Asensio can play against PSG for Villa in Champions League tie**\
 `The 29-year-old is on loan at Villa from PSG and the sides play each other in the Champions League quarter-finals.`\
 https://nytimes.com/athletic/6264034/2025/04/08/luis-enrique-marco-asensio-psg-aston-villa/
 
 **Opposition to G.O.P. budget plan builds in the House, threatening Trump’s agenda**\
 `By Catie Edmondson`\
-https://nytimes.com/live/2025/04/08/us/trump-news-tariffs/opposition-to-gop-budget-plan-builds-in-the-house-threatening-trumps-agenda
+https://nytimes.com/2025/04/08/us/politics/opposition-to-gop-budget-plan-builds-in-the-house-threatening-trumps-agenda.html
 
 **The Treasury Secretary Needs Better Data on How You Save for Retirement**\
 `Scott Bessent said on television that most people kept 401(k) money in a 60 percent stock fund. It’s not quite that simple.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/08/business/energy-environment/oil-executives-trump-
 **Trump’s Tariffs Are Already Reducing Car Imports and Idling Factories**\
 `A few carmakers have closed factories, laid off workers or shifted production in response to the auto tariffs that took effect last week.`\
 https://nytimes.com/2025/04/08/business/trump-tariffs-cars-auto-industry.html
-
-**I.R.S. Agrees to Share Migrants’ Tax Information with ICE**\
-`The agreement is a major departure from the Internal Revenue Service’s efforts to gain the trust of migrants and encourage them to file their taxes.`\
-https://nytimes.com/2025/04/08/us/politics/irs-ice-tax-data-deal.html
 

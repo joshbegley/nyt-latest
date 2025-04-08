@@ -1,3 +1,11 @@
+**Musk Calls Navarro a ‘Moron’ in Escalating Tariff Fight**\
+`The feud between two of President Trump’s top advisers is playing out as the administration’s new tariffs have caused huge losses across global financial markets.`\
+https://nytimes.com/2025/04/08/us/politics/musk-calls-navarro-a-moron-in-escalating-tariff-fight.html
+
+**Opposition to G.O.P. budget plan builds in the House, threatening Trump’s agenda**\
+`By Catie Edmondson`\
+https://nytimes.com/2025/04/08/us/politics/opposition-to-gop-budget-plan-builds-in-the-house-threatening-trumps-agenda.html
+
 **Luis Enrique 'delighted' Asensio can play against PSG for Villa in Champions League tie**\
 `The 29-year-old is on loan at Villa from PSG and the sides play each other in the Champions League quarter-finals.`\
 https://nytimes.com/athletic/6264034/2025/04/08/luis-enrique-marco-asensio-psg-aston-villa/
