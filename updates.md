@@ -1,3 +1,7 @@
+**Supreme Court Pauses Ruling Requiring Rehiring of 16,000 Probationary Workers**\
+`A federal judge in California had ordered the Trump administration to rehire government employees fired as part of its efforts to slash the federal work force.`\
+https://nytimes.com/2025/04/08/us/politics/supreme-court-probationary-workers.html
+
 **FIFA confirms referees will wear body cameras for Club World Cup**\
 `The new law change that aims to prevent goalkeepers from time-wasting will be introduced for the tournament.`\
 https://nytimes.com/athletic/6264483/2025/04/08/referees-club-world-cup-cameras/
