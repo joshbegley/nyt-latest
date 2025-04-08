@@ -1,3 +1,15 @@
+**Matteo Berrettini earns biggest career win over top seed Alexander Zverev in Monte Carlo**\
+`It is Berrettini's first top-two win and continues Zverev's wretched record since the Australian Open.`\
+https://nytimes.com/athletic/6264268/2025/04/08/matteo-berrettini-alexander-zverev-monte-carlo/
+
+**Klopp to return to Liverpool next month**\
+`Klopp will be a guest speaker at the LFC Foundation gala dinner on May 23. His attendance at Anfield two days later is yet to be confirmed.`\
+https://nytimes.com/athletic/6264376/2025/04/08/jurgen-klopp-liverpool-return/
+
+**Jon Rahm on potential PGA Tour, PIF deal: 'It's not happening anytime soon'**\
+`Rahm, the 2023 Masters champ, said he hopes all the best players in the world can come back together.`\
+https://nytimes.com/athletic/6264347/2025/04/08/jon-rahm-masters-pga-tour-pif-deal/
+
 **Oil Executives Are Quiet on Trump Polices. Privately, They’re Worried**\
 `Eager to stay in Mr. Trump’s good graces, oil executives refrain from publicly criticizing the president. But privately, ‘Everyone’s afraid.’`\
 https://nytimes.com/2025/04/08/business/energy-environment/oil-executives-trump-tariffs.html

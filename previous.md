@@ -1,3 +1,15 @@
+**Matteo Berrettini earns biggest career win over top seed Alexander Zverev in Monte Carlo**\
+`It is Berrettini's first top-two win and continues Zverev's wretched record since the Australian Open.`\
+https://nytimes.com/athletic/6264268/2025/04/08/matteo-berrettini-alexander-zverev-monte-carlo/
+
+**Klopp to return to Liverpool next month**\
+`Klopp will be a guest speaker at the LFC Foundation gala dinner on May 23. His attendance at Anfield two days later is yet to be confirmed.`\
+https://nytimes.com/athletic/6264376/2025/04/08/jurgen-klopp-liverpool-return/
+
+**Jon Rahm on potential PGA Tour, PIF deal: 'It's not happening anytime soon'**\
+`Rahm, the 2023 Masters champ, said he hopes all the best players in the world can come back together.`\
+https://nytimes.com/athletic/6264347/2025/04/08/jon-rahm-masters-pga-tour-pif-deal/
+
 **Oil Executives Are Quiet on Trump Polices. Privately, They’re Worried**\
 `Eager to stay in Mr. Trump’s good graces, oil executives refrain from publicly criticizing the president. But privately, ‘Everyone’s afraid.’`\
 https://nytimes.com/2025/04/08/business/energy-environment/oil-executives-trump-tariffs.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6263781/2025/04/08/nba-power-rankings-knicks-clippe
 **Chris Sununu Skips a New Hampshire Senate Bid, Dashing Trump’s Hopes**\
 `The former New Hampshire governor had been seen as a top Republican recruit in the liberal-leaning yet competitive state. President Trump had said on Sunday, “I hope he runs.”`\
 https://nytimes.com/2025/04/08/us/politics/chris-sununu-trump-2026-senate-new-hampshire.html
-
-**Zelensky Claims Capture of 2 Chinese Citizens Fighting for Russia**\
-`The Ukrainian president did not suggest that they had been sent by Beijing’s military, but he pointed to their presence as further evidence that Moscow was not truly interested in peace.`\
-https://nytimes.com/2025/04/08/world/europe/zelensky-russia-chinese-belgorod.html
-
-**Case in Texas Could Shed More Light on Invocation of Alien Enemies Act**\
-`A case involving a Venezuelan migrant, Daniel Zacarias Matos, could explore the question of whether President Trump has used the Alien Enemies Act in a lawful manner.`\
-https://nytimes.com/2025/04/08/us/politics/case-in-texas-could-shed-more-light-on-invocation-of-alien-enemies-act.html
-
-**The Bounce: How hot are NBA coaching seats this year? Let's check in on the four hottest**\
-`As the NBA postseason draws near, let's check in on which coaches have the hottest seats.`\
-https://nytimes.com/athletic/6264123/2025/04/08/nba-coaching-hot-seat-playoffs-suns-sixers-pelicans-trail-blazers-the-bounce/
 
