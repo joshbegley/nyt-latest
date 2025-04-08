@@ -1,3 +1,7 @@
+**Commanders NFL Draft 2025 guide: Picks, predictions and key needs**\
+`Keeping you up to date on all of Washington's draft-related news and analysis heading into Round 1 on April 24. `\
+https://nytimes.com/athletic/6233463/2025/04/08/washington-commanders-2025-nfl-draft-picks-needs-predictions-guide/
+
 **Kevin De Bruyne's physical level has declined, creativity still elite**\
 `The Belgian has been linked with a move to MLS - if it happens then he should still have plenty to offer his new club`\
 https://nytimes.com/athletic/6264333/2025/04/08/kevin-de-bruyne-mls-miami-manchester-city/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/08/your-money/401k-stock-market-scott-bessent.html
 **New York Jets NFL Draft 2025 guide: Picks, predictions and key needs**\
 `The Jets have a chance to restock the roster with eight picks in this spring's draft, including the seventh overall selection.`\
 https://nytimes.com/athletic/6237553/2025/04/08/new-york-jets-2025-nfl-draft-picks-needs-predictions-guide/
-
-**He Was Held Captive in His Room For Decades. Then He Set It on Fire.**\
-`Firefighters found a 32-year-old man who weighed 68 pounds. The police say his stepmother locked him away when he was 12.`\
-https://nytimes.com/2025/04/08/nyregion/ct-waterbury-captive.html
 
