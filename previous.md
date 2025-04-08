@@ -1,4 +1,16 @@
-**Kevin De Bruyne's physical level has declined, creativity still elite**\
+**FIFA confirms referees will wear body cameras for Club World Cup**\
+`The new law change that aims to prevent goalkeepers from time-wasting will be introduced for the tournament.`\
+https://nytimes.com/athletic/6264483/2025/04/08/referees-club-world-cup-cameras/
+
+**Browns NFL Draft 2025 guide: Picks, predictions and key needs**\
+`Keeping you up to date on all of Cleveland's draft-related news and analysis heading into Round 1 on April 24. `\
+https://nytimes.com/athletic/6233351/2025/04/08/cleveland-browns-2025-nfl-draft-picks-needs-predictions-guide/
+
+**Commanders NFL Draft 2025 guide: Picks, predictions and key needs**\
+`Keeping you up to date on all of Washington's draft-related news and analysis heading into Round 1 on April 24. `\
+https://nytimes.com/athletic/6233463/2025/04/08/washington-commanders-2025-nfl-draft-picks-needs-predictions-guide/
+
+**What could Kevin De Bruyne bring to MLS? His physical level has declined - but his creativity is still elite**\
 `The Belgian has been linked with a move to MLS - if it happens then he should still have plenty to offer his new club`\
 https://nytimes.com/athletic/6264333/2025/04/08/kevin-de-bruyne-mls-miami-manchester-city/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6264034/2025/04/08/luis-enrique-marco-asensio-psg-a
 **Opposition to G.O.P. Budget Plan Builds in the House**\
 `Anti-spending conservatives in the House are lining up to oppose the Senate’s budget blueprint because it would add too much to the nation’s debt, threatening President Trump’s agenda.`\
 https://nytimes.com/2025/04/08/us/politics/congress-house-trump-budget-resolution.html
-
-**The Treasury Secretary Needs Better Data on How You Save for Retirement**\
-`Scott Bessent said on television that most people kept 401(k) money in a 60 percent stock fund. It’s not quite that simple.`\
-https://nytimes.com/2025/04/08/your-money/401k-stock-market-scott-bessent.html
-
-**New York Jets NFL Draft 2025 guide: Picks, predictions and key needs**\
-`The Jets have a chance to restock the roster with eight picks in this spring's draft, including the seventh overall selection.`\
-https://nytimes.com/athletic/6237553/2025/04/08/new-york-jets-2025-nfl-draft-picks-needs-predictions-guide/
-
-**He Was Held Captive in His Room For Decades. Then He Set It on Fire.**\
-`Firefighters found a 32-year-old man who weighed 68 pounds. The police say his stepmother locked him away when he was 12.`\
-https://nytimes.com/2025/04/08/nyregion/ct-waterbury-captive.html
 

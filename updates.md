@@ -1,3 +1,19 @@
+**FIFA confirms referees will wear body cameras for Club World Cup**\
+`The new law change that aims to prevent goalkeepers from time-wasting will be introduced for the tournament.`\
+https://nytimes.com/athletic/6264483/2025/04/08/referees-club-world-cup-cameras/
+
+**Browns NFL Draft 2025 guide: Picks, predictions and key needs**\
+`Keeping you up to date on all of Cleveland's draft-related news and analysis heading into Round 1 on April 24. `\
+https://nytimes.com/athletic/6233351/2025/04/08/cleveland-browns-2025-nfl-draft-picks-needs-predictions-guide/
+
+**Commanders NFL Draft 2025 guide: Picks, predictions and key needs**\
+`Keeping you up to date on all of Washington's draft-related news and analysis heading into Round 1 on April 24. `\
+https://nytimes.com/athletic/6233463/2025/04/08/washington-commanders-2025-nfl-draft-picks-needs-predictions-guide/
+
+**What could Kevin De Bruyne bring to MLS? His physical level has declined - but his creativity is still elite**\
+`The Belgian has been linked with a move to MLS - if it happens then he should still have plenty to offer his new club`\
+https://nytimes.com/athletic/6264333/2025/04/08/kevin-de-bruyne-mls-miami-manchester-city/
+
 **Kevin De Bruyne's physical level has declined, creativity still elite**\
 `The Belgian has been linked with a move to MLS - if it happens then he should still have plenty to offer his new club`\
 https://nytimes.com/athletic/6264333/2025/04/08/kevin-de-bruyne-mls-miami-manchester-city/
