@@ -1,3 +1,8 @@
+**Watch: Are blue-chip prospects worth trading up for in this year's NFL Draft?**\
+`"The Athletic Football Show" discusses which teams should consider an aggressive trade up to get Travis Hunter or Abdul Carter.
+`\
+https://nytimes.com/athletic/6260946/2025/04/08/athletic-football-show-2025-nfl-draft-trading-up/
+
 **Film at Lincoln Center Chooses Daniel Battsek as Next President**\
 `At the production company Film4 he was instrumental in financing British movies. In New York, his goal is to attract a younger, more diverse audience.`\
 https://nytimes.com/2025/04/08/movies/film-at-lincoln-center-daniel-battsek-president.html
