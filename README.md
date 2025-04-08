@@ -1,3 +1,7 @@
+**Darjeeling Kitchen & Café Offers Halal Momos in Long Island City**\
+`Leonessa serves cocktails with rooftop views, 12 Matcha caters to green-tea obsessives and more restaurant news.`\
+https://nytimes.com/2025/04/08/dining/nyc-restaurant-news.html
+
 **The Windup: The looming fight after Vladdy's deal**\
 `Welcome to The Windup, The Athletic's MLB newsletter. `\
 https://nytimes.com/athletic/6263403/2025/04/08/vlad-guerrero-contract-labor-the-windup/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/08/opinion/colleges-universities-politics.html
 **Supreme Court Pauses Ruling Requiring Rehiring of 16,000 Probationary Workers**\
 `A federal judge in California had ordered the Trump administration to rehire government employees fired as part of its efforts to slash the federal work force.`\
 https://nytimes.com/2025/04/08/us/politics/supreme-court-probationary-workers.html
-
-**Musk Calls Navarro a ‘Moron’ in Escalating Tariff Fight**\
-`The feud between two of President Trump’s top advisers is playing out as the administration’s new tariffs have caused huge losses across global financial markets.`\
-https://nytimes.com/2025/04/08/us/politics/musk-navarro-tariffs-fight.html
 
