@@ -1,3 +1,15 @@
+**U.S. tourist boards wrong boat in London, accidentally becomes fan of fifth-tier soccer club**\
+`A student from Arizona thought he was on a sightseeing tour, but instead ended up "drinking and dancing" with 150 Southend United fans.`\
+https://nytimes.com/athletic/6263629/2025/04/08/southend-boat-evan-johnston/
+
+**Some Israelis Favor Attacking Iran, Expressing Skepticism About Talks**\
+`Many Israelis were surprised when President Trump announced that the United States would engage in “direct” negotiations with Iran in an effort to rein in the country’s nuclear program.`\
+https://nytimes.com/2025/04/08/world/middleeast/israel-iran-reaction.html
+
+**Houston heartbreak: Kelvin Sampson and the Cougars forced to deal with another cruel ending**\
+`It’s never easy to close the book on a season, especially when you're so close you can almost feel the scissors in your hand.`\
+https://nytimes.com/athletic/6263523/2025/04/08/houston-kelvin-sampson-national-championship-game/
+
 **Former F1 Academy champion out of hospital after major crash**\
 `Former F1 Academy champion Marta Garcia released from hospital following a fiery crash in the Le Mans Cup race at Barcelona.`\
 https://nytimes.com/athletic/6263682/2025/04/08/marta-garcia-f1-academy-barcelona-crash/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6262027/2025/04/08/notre-dame-football-wide-receive
 **How Sidney Crosby's excellence could force Kyle Dubas to revise his rebuild**\
 `Crosby's stellar performance might compel Kyle Dubas to expedite the Penguins' plans.`\
 https://nytimes.com/athletic/6261762/2025/04/08/sidney-crosby-penguins-rebuild/
-
-**Should Raiders take Ashton Jeanty at No. 6 or play the NFL Draft board?**\
-`The Boise State star could be too good for the Raiders to pass up at No. 6. Or is there still value to be had at RB later in the NFL Draft?`\
-https://nytimes.com/athletic/6262810/2025/04/08/las-vegas-raiders-ashton-jeanty-nfl-draft-2025/
-
-**Only 11 projected Bruins are signed for 2025-26. There's lots of work to do**\
-`Of the team's 20 roster spots occupied on game days, only 11 project to be populated by players under contract for next season.`\
-https://nytimes.com/athletic/6262120/2025/04/08/bruins-offseason-rebuild-depth-chart/
-
-**National Park Service Restores Web Page Featuring Harriet Tubman**\
-`The page had been edited to remove material about the antislavery leader. Other government pages have been changed or deleted amid efforts to scrub references to diversity and inclusion.`\
-https://nytimes.com/2025/04/08/us/politics/national-park-service-harriet-tubman-underground-railroad-dei.html
 

@@ -1,3 +1,15 @@
+**U.S. tourist boards wrong boat in London, accidentally becomes fan of fifth-tier soccer club**\
+`A student from Arizona thought he was on a sightseeing tour, but instead ended up "drinking and dancing" with 150 Southend United fans.`\
+https://nytimes.com/athletic/6263629/2025/04/08/southend-boat-evan-johnston/
+
+**Some Israelis Favor Attacking Iran, Expressing Skepticism About Talks**\
+`Many Israelis were surprised when President Trump announced that the United States would engage in “direct” negotiations with Iran in an effort to rein in the country’s nuclear program.`\
+https://nytimes.com/2025/04/08/world/middleeast/israel-iran-reaction.html
+
+**Houston heartbreak: Kelvin Sampson and the Cougars forced to deal with another cruel ending**\
+`It’s never easy to close the book on a season, especially when you're so close you can almost feel the scissors in your hand.`\
+https://nytimes.com/athletic/6263523/2025/04/08/houston-kelvin-sampson-national-championship-game/
+
 **Former F1 Academy champion out of hospital after major crash**\
 `Former F1 Academy champion Marta Garcia released from hospital following a fiery crash in the Le Mans Cup race at Barcelona.`\
 https://nytimes.com/athletic/6263682/2025/04/08/marta-garcia-f1-academy-barcelona-crash/
