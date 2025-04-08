@@ -1,3 +1,7 @@
+**Why Bayern Munich no longer have carte blanche to sign up the Bundesliga's best**\
+`Florian Wirtz may be a long-standing target, but the cream of the German league have options these days rather than just a move to Bavaria`\
+https://nytimes.com/athletic/6261612/2025/04/08/bayern-munich-wirtz-bayer-transfers-policy/
+
 **Twins pitching struggles vex starters and bullpen. Moves made before loss to Royals**\
 `Through 10 games, Twins starters have an unseemly 6.90 ERA over 45 2/3 innings. And there's little relief from an exhausted bullpen.`\
 https://nytimes.com/athletic/6263273/2025/04/08/twins-pitching-struggles-loss-to-royals/
