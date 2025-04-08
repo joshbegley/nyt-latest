@@ -1,3 +1,7 @@
+**Astros starter Spencer Arrighetti suffers broken thumb after being struck in batting practice**\
+`Losing Arrighetti for any length is a crippling blow to a Houston rotation without much established depth.`\
+https://nytimes.com/athletic/6263098/2025/04/07/astros-spencer-arrighetti-broken-thumb-batting-practice/
+
 **‘Boop! The Musical’ Review: Betty Gets a Brand Extension**\
 `The It girl with the spit curl looks great for 100, but her Broadway musical, which feels like one big merch grab, is boop-boop-a-don’t.`\
 https://nytimes.com/2025/04/07/theater/boop-the-musical-review-broadway.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/07/nyregion/ice-family-detained-new-york.html
 **How Trump’s TikTok Negotiations Were Upended by China and Tariffs**\
 `The future of the popular video app is now at the center of a geopolitical tussle between Washington and Beijing.`\
 https://nytimes.com/2025/04/07/technology/trump-tiktok-china-tariffs.html
-
-**Man Questioned in Killings of 4 at Georgia Trailer Park**\
-`The authorities said that the killings appeared to have stemmed from a domestic dispute. Investigators in Perry, Ga., said the four victims, who ranged in age from 2 to 82, were related.`\
-https://nytimes.com/2025/04/07/us/georgia-trailer-park-killings.html
 
