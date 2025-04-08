@@ -1,3 +1,7 @@
+**Until Saturday: Colleges are about to pay players**\
+`Welcome to Until Saturday, The Athletic's college football newsletter. `\
+https://nytimes.com/athletic/6264956/2025/04/08/house-settlement-college-sports-until-saturday/
+
 **Reviewing the San Francisco Giants' 2025 City Connect uniforms**\
 `The Giants' new City Connects: They're fine. You don't have to like them, but you'll get used to them.`\
 https://nytimes.com/athletic/6264466/2025/04/08/sf-giants-city-connect-uniform-review/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/08/climate/tariffs-oil-drilling-trump.html
 **John Fetterman: This Drug Changed My Life. More Americans Need Access.**\
 `The government should make it easier to access GLP-1s.`\
 https://nytimes.com/2025/04/08/opinion/glp1-ozempic-mounjaro-trump.html
-
-**Prime Tire: The thorn in McLaren's side. Plus, Lewis Hamilton's interesting admission**\
-`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
-https://nytimes.com/athletic/6264786/2025/04/08/f1-verstappen-mclaren-lewis-hamilton-ferrari-prime-tire/
 
