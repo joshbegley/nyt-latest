@@ -1,3 +1,11 @@
+**Will Retaliation Work for Europe? It’s a Gamble.**\
+`Europe wants to negotiate, but it is also trying to project strength. As Trump warns nations against retaliation, that strategy could be perilous.`\
+https://nytimes.com/2025/04/08/world/europe/europe-trump-tariff-retaliation.html
+
+**When Politics Has a Place in the Classroom**\
+`Readers respond to a critique of colleges by Greg Weiner, the president of Assumption University. Also: The rich and the rest.`\
+https://nytimes.com/2025/04/08/opinion/colleges-universities-politics.html
+
 **Supreme Court Pauses Ruling Requiring Rehiring of 16,000 Probationary Workers**\
 `A federal judge in California had ordered the Trump administration to rehire government employees fired as part of its efforts to slash the federal work force.`\
 https://nytimes.com/2025/04/08/us/supreme-court-probationary-workers.html
