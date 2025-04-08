@@ -1,3 +1,7 @@
+**Opening favorites for 2026 men's college basketball title revealed**\
+`Houston opened as the favorite to win the 2026 men's college basketball national title on BetMGM, just ahead of Duke.`\
+https://nytimes.com/athletic/6262760/2025/04/07/2026-mens-college-basketball-national-title-odds-duke-houston-uconn/
+
 **Florida rallies past Houston in thriller for third title and first since 2007**\
 `Florida produced a slew of defensive stands in crunch time to secure the school’s third national championship in men’s basketball.`\
 https://nytimes.com/athletic/6263067/2025/04/07/florida-houston-national-championship-ncaa-tournament/
