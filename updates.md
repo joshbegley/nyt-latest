@@ -1,4 +1,12 @@
 **First-period implosion is the story of Rangers' season: 'Just kind of snowballed'**\
+`One disastrous stretch is enough to sink a game. Too many can sink a season.`\
+https://nytimes.com/athletic/6263225/2025/04/07/rangers-collapse-playoffs-chase-lightning/
+
+**Florida overcomes 2nd-half fouls, including 2 technicals, to edge Houston**\
+`Florida was called for six fouls in less than three minutes as Houston built a 12-point lead, but the Gators rallied.`\
+https://nytimes.com/athletic/6263191/2025/04/07/florida-foul-calls-technical-houston-second-half/
+
+**First-period implosion is the story of Rangers' season: 'Just kind of snowballed'**\
 `One disastrous stretch is enough to sink a game. Too many of them can sink a season.`\
 https://nytimes.com/athletic/6263225/2025/04/07/rangers-collapse-playoffs-chase-lightning/
 
