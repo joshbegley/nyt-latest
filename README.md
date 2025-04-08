@@ -1,3 +1,7 @@
+**International Booker Prize Shortlist: 6 Books to Talk About**\
+`The nominees for the translated fiction award “don’t shut down debate, they generate it,” said the author Max Porter, who leads the judging panel.`\
+https://nytimes.com/2025/04/08/books/international-booker-prize-shortlist.html
+
 **Ryan Smith of Utah Jazz and Utah Hockey Club launches new sports-tech investment fund**\
 `Halo Experience is another example of how sports is continuing to bring in financial capital that had previously remained out of the sector.`\
 https://nytimes.com/athletic/6261691/2025/04/08/ryan-smith-of-utah-jazz-and-hockey-club-launches-new-sports-tech-investment-fund/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6263682/2025/04/08/marta-garcia-f1-academy-barcelon
 **Where does Alex Ovechkin rank among NHL GOATs after claiming all-time goals record?**\
 `The Great 8's dominance is easy to grasp. More challenging is figuring out where he now fits in the context of other hockey greats.`\
 https://nytimes.com/athletic/6262261/2025/04/08/alex-ovechkin-nhl-goals-record-all-time/
-
-**The Masters concession prices: What's on the menu at Augusta National Golf Club**\
-`New this year is a tomato pie, served empanada-style and described as a savory experience by those who have had the opportunity to taste it.`\
-https://nytimes.com/athletic/6262195/2025/04/08/masters-augusta-golf-club-concession-prices/
 
