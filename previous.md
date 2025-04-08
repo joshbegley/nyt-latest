@@ -1,3 +1,7 @@
+**A Party With Floating Sculptures in an Iconic Milanese Garden**\
+`The designer Misha Kahn created fabric-covered inflatables for T’s annual Salone del Mobile celebration.`\
+https://nytimes.com/2025/04/08/t-magazine/salone-milan-design-week-party-misha-kahn.html
+
 **Pitch to Headway: What’s Your Big Idea?**\
 `Storytellers: Got a lead? Pitch Headway through this form.`\
 https://nytimes.com/2025/04/08/headway/freelancers-pitch-headway.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6264466/2025/04/08/sf-giants-city-connect-uniform-r
 **Brazil's boring turn marks its latest footballing identity crisis**\
 `Acts of flair are being punished at the club level, while the national team's woes have the country's sporting soul thrust into question.`\
 https://nytimes.com/athletic/6264330/2025/04/08/brazil-football-boring-memphis-depay-neymar-vinicius/
-
-**Jase Richardson declares for the 2025 draft**\
-`The Athletic’s Sam Vecenie called the guard “one of the true breakout risers of this draft class.”`\
-https://nytimes.com/athletic/6264875/2025/04/08/jase-richardson-nba-2025-draft/
 

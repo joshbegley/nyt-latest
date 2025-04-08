@@ -1,3 +1,7 @@
+**A Party With Floating Sculptures in an Iconic Milanese Garden**\
+`The designer Misha Kahn created fabric-covered inflatables for T’s annual Salone del Mobile celebration.`\
+https://nytimes.com/2025/04/08/t-magazine/salone-milan-design-week-party-misha-kahn.html
+
 **Pitch to Headway: What’s Your Big Idea?**\
 `Storytellers: Got a lead? Pitch Headway through this form.`\
 https://nytimes.com/2025/04/08/headway/freelancers-pitch-headway.html
