@@ -1,3 +1,19 @@
+**Weekly Student News Quiz: Global Markets, N.C.A.A. Finals, a Tortoise**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/04/08/learning/08StudentNewsQuiz.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/04/08/crosswords/spelling-bee-forum.html
+
+**What Are Microplastics Doing to Our Bodies? This Lab is Racing to Find Out.**\
+`Inside a New Mexico lab, researchers estimate there is five bottle caps worth of plastic in human brains. Now they are trying to find out its effects.`\
+https://nytimes.com/2025/04/08/well/microplastics-health.html
+
+**They Work All Day and Go Home to Shelters**\
+`Thousands of working people in New York City now live in shelters, unable to afford apartments despite holding down jobs that pay them $50,000 or more.`\
+https://nytimes.com/2025/04/08/nyregion/homeless-shelters-new-york-city.html
+
 **Sadness, despair and anger: A three-day road trip to the Premier League's drop zone**\
 `For the second straight season, the three promoted sides have been swatted aside with worrying ease`\
 https://nytimes.com/athletic/6263066/2025/04/08/premier-league-relegation-battle-ipswich-southampton-leicester/

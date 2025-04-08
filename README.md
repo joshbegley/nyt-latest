@@ -6,7 +6,7 @@ https://nytimes.com/interactive/2025/04/08/learning/08StudentNewsQuiz.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/04/08/crosswords/spelling-bee-forum.html
 
-**What Are Microplastics Doing to Our Bodies? This Lab is Racing to Find Out.**\
+**What Are Microplastics Doing to Our Bodies? This Lab Is Racing to Find Out.**\
 `Inside a New Mexico lab, researchers estimate there is five bottle caps worth of plastic in human brains. Now they are trying to find out its effects.`\
 https://nytimes.com/2025/04/08/well/microplastics-health.html
 
