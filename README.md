@@ -1,3 +1,15 @@
+**Wall Street Bursts With Anger Over Tariff ‘Stupidity’**\
+`Billionaire investors are in an unfamiliar position, watching and cringing as tariffs roll on and the stock market reels.`\
+https://nytimes.com/2025/04/08/business/trump-tariff-wall-street-reaction.html
+
+**Slow Down and Experience Fort Myers**\
+`In one of Florida’s most charming coastal cities, time slows to a perfectly unhurried pace.`\
+https://nytimes.com/paidpost/fort-myers/slow-down-and-experience-fort-myers.html
+
+**Bucks observations: Bobby Portis returns, AJ Green's passing and Kyle Kuzma's fit**\
+`Milwaukee's super sub returns against the Wolves after serving a 25-game suspension. Plus, all of the scenarios for the East's No. 5 seed.`\
+https://nytimes.com/athletic/6262328/2025/04/08/bobby-portis-bucks-kyle-kuzma/
+
 **Quinn Hughes' future, and can Elias Pettersson bounce back? Mailbag, part 2**\
 `Also: A look at why the Canucks regressed this season, and will their surplus of blue-line talent result in a trade for a young forward?`\
 https://nytimes.com/athletic/6260826/2025/04/08/canucks-quinn-hughes-elias-pettersson-future/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6263874/2025/04/08/barcelona-gavi-champions-league-
 **U.S. tourist boards wrong boat in London, accidentally becomes fan of fifth-tier soccer club**\
 `A student from Arizona thought he was on a sightseeing tour, but instead ended up "drinking and dancing" with 150 Southend United fans.`\
 https://nytimes.com/athletic/6263629/2025/04/08/southend-boat-evan-johnston/
-
-**Some Israelis Favor Attacking Iran, Expressing Skepticism About Talks**\
-`Many Israelis were surprised when President Trump announced that the United States would engage in “direct” negotiations with Iran in an effort to rein in the country’s nuclear program.`\
-https://nytimes.com/2025/04/08/world/middleeast/israel-iran-reaction.html
-
-**Kelvin Sampson and Houston forced to deal with another cruel ending**\
-`It’s never easy to close the book on a season, especially when you're so close you can almost feel the scissors in your hand.`\
-https://nytimes.com/athletic/6263523/2025/04/08/houston-kelvin-sampson-national-championship-game/
-
-**Former F1 Academy champion out of hospital after major crash**\
-`Former F1 Academy champion Marta Garcia released from hospital following a fiery crash in the Le Mans Cup race at Barcelona.`\
-https://nytimes.com/athletic/6263682/2025/04/08/marta-garcia-f1-academy-barcelona-crash/
 
