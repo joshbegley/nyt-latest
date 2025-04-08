@@ -1,3 +1,11 @@
+**Guterres, at U.N., Denounces Israel’s Gaza Aid Blockade**\
+`“The floodgates of horror” have been opened for Palestinians since the collapse of the temporary cease-fire, Secretary General António Guterres said.`\
+https://nytimes.com/2025/04/08/world/middleeast/guterres-israel-gaza-blockade.html
+
+**The Briefing: Bayern 1 Inter 2 - That Lautaro goal, Muller's moment, but what makes Inzaghe's men contenders?**\
+`A tight and tense evening in Bavaria saw the Italian side recover from conceding a late equaliser to claim a lead to take back to San Siro`\
+https://nytimes.com/athletic/6261134/2025/04/08/bayern-munich-inter-muller-lauturo-league/
+
 **Judge Sides With The Associated Press In Fight Over Access to Trump**\
 `A federal judge ordered the White House to restore the outlet’s access to certain White House events and agreed that it had been singled out over its editorial decisions.`\
 https://nytimes.com/2025/04/08/us/politics/trump-ap-oval-office-access.html
