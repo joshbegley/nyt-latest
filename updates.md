@@ -1,3 +1,7 @@
+**Former F1 Academy champion out of hospital after major crash**\
+`Former F1 Academy champion Marta Garcia released from hospital following a fiery crash in the Le Mans Cup race at Barcelona.`\
+https://nytimes.com/athletic/6263682/2025/04/08/marta-garcia-f1-academy-barcelona-crash/
+
 **Where does Alex Ovechkin rank among NHL GOATs after claiming all-time goals record?**\
 `The Great 8's dominance is easy to grasp. More challenging is figuring out where he now fits in the context of other hockey greats.`\
 https://nytimes.com/athletic/6262261/2025/04/08/alex-ovechkin-nhl-goals-record-all-time/
