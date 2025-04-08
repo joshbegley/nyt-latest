@@ -1,3 +1,7 @@
+**Jon Stewart Can’t Stomach Trump’s Stock Market ‘Medicine’**\
+`The “Daily Show” host said America’s economy was “in the midst of a beautiful metamorphosis, turning from a simple caterpillar into a dead caterpillar.”`\
+https://nytimes.com/2025/04/08/arts/television/jon-stewart-tariffs-stock-market.html
+
 **What Are Microplastics Doing to Our Bodies? This Lab Is Racing to Find Out.**\
 `Inside a New Mexico lab, researchers estimate there is five bottle caps worth of plastic in human brains. Now they are trying to find out its effects.`\
 https://nytimes.com/2025/04/08/well/microplastics-health.html
