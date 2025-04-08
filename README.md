@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6263332/2025/04/08/greg-millen-hockey-night-in-cana
 `Suzuka exposed some of McLaren’s weaknesses as its driver dilemma resurfaced`\
 https://nytimes.com/athletic/6263732/2025/04/08/max-verstappen-suzuka-japanese-gp-norris-piastri-mclaren/
 
-**Trump Officials Try to Calm Markets by Pointing to Talks on Tariffs**\
-`Jamieson Greer, the United States trade representative, told senators the U.S. economy is in need of “drastic, overdue change.”`\
+**Trump Officials Point to Outreach on Tariffs in a Bid to Calm Markets**\
+`Jamieson Greer, the United States trade representative, will tell senators the U.S. is economy is in need of “drastic, overdue change.”`\
 https://nytimes.com/2025/04/08/us/politics/trump-tariffs-greer.html
 

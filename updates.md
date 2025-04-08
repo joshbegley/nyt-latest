@@ -1,3 +1,15 @@
+**Chris Sununu Skips a New Hampshire Senate Bid, Dashing Trump’s Hopes**\
+`The former New Hampshire governor had been seen as a top Republican recruit in the liberal-leaning yet competitive state. President Trump had said on Sunday, “I hope he runs.”`\
+https://nytimes.com/2025/04/08/us/politics/chris-sununu-trump-2026-senate-new-hampshire.html
+
+**Zelensky Claims Capture of 2 Chinese Citizens Fighting for Russia**\
+`The Ukrainian president did not suggest that they had been sent by Beijing’s military, but he pointed to their presence as further evidence that Moscow was not truly interested in peace.`\
+https://nytimes.com/2025/04/08/world/europe/zelensky-russia-chinese-belgorod.html
+
+**Trump Officials Try to Calm Markets by Pointing to Talks on Tariffs**\
+`Jamieson Greer, the United States trade representative, told senators the U.S. economy is in need of “drastic, overdue change.”`\
+https://nytimes.com/2025/04/08/us/politics/trump-tariffs-greer.html
+
 **Case in Texas Could Shed More Light on Invocation of Alien Enemies Act**\
 `A case involving a Venezuelan migrant, Daniel Zacarias Matos, could explore the question of whether President Trump has used the Alien Enemies Act in a lawful manner.`\
 https://nytimes.com/2025/04/08/us/politics/case-in-texas-could-shed-more-light-on-invocation-of-alien-enemies-act.html
