@@ -1,3 +1,7 @@
+**Quinn Hughes' future, and can Elias Pettersson bounce back? Mailbag, part 2**\
+`Also: A look at why the Canucks regressed this season, and will their surplus of blue-line talent result in a trade for a young forward?`\
+https://nytimes.com/athletic/6260826/2025/04/08/canucks-quinn-hughes-elias-pettersson-future/
+
 **International Booker Prize Shortlist: 6 Books to Talk About**\
 `The nominees for the translated fiction award “don’t shut down debate, they generate it,” said the author Max Porter, who leads the judging panel.`\
 https://nytimes.com/2025/04/08/books/international-booker-prize-shortlist.html

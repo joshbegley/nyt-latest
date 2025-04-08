@@ -1,3 +1,7 @@
+**Quinn Hughes' future, and can Elias Pettersson bounce back? Mailbag, part 2**\
+`Also: A look at why the Canucks regressed this season, and will their surplus of blue-line talent result in a trade for a young forward?`\
+https://nytimes.com/athletic/6260826/2025/04/08/canucks-quinn-hughes-elias-pettersson-future/
+
 **International Booker Prize Shortlist: 6 Books to Talk About**\
 `The nominees for the translated fiction award “don’t shut down debate, they generate it,” said the author Max Porter, who leads the judging panel.`\
 https://nytimes.com/2025/04/08/books/international-booker-prize-shortlist.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6263523/2025/04/08/houston-kelvin-sampson-national-
 **Former F1 Academy champion out of hospital after major crash**\
 `Former F1 Academy champion Marta Garcia released from hospital following a fiery crash in the Le Mans Cup race at Barcelona.`\
 https://nytimes.com/athletic/6263682/2025/04/08/marta-garcia-f1-academy-barcelona-crash/
-
-**Where does Alex Ovechkin rank among NHL GOATs after claiming all-time goals record?**\
-`The Great 8's dominance is easy to grasp. More challenging is figuring out where he now fits in the context of other hockey greats.`\
-https://nytimes.com/athletic/6262261/2025/04/08/alex-ovechkin-nhl-goals-record-all-time/
 
