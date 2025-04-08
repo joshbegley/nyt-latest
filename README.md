@@ -1,3 +1,11 @@
+**Chris Sununu Skips a New Hampshire Senate Bid, Dashing Trump’s Hopes**\
+`The former New Hampshire governor had been seen as a top Republican recruit in the liberal-leaning yet competitive state. President Trump had said on Sunday, “I hope he runs.”`\
+https://nytimes.com/2025/04/08/us/politics/chris-sununu-trump-2026-senate-new-hampshire.html
+
+**Zelensky Claims Capture of 2 Chinese Citizens Fighting for Russia**\
+`The Ukrainian president did not suggest that they had been sent by Beijing’s military, but he pointed to their presence as further evidence that Moscow was not truly interested in peace.`\
+https://nytimes.com/2025/04/08/world/europe/zelensky-russia-chinese-belgorod.html
+
 **Case in Texas Could Shed More Light on Invocation of Alien Enemies Act**\
 `A case involving a Venezuelan migrant, Daniel Zacarias Matos, could explore the question of whether President Trump has used the Alien Enemies Act in a lawful manner.`\
 https://nytimes.com/2025/04/08/us/politics/case-in-texas-could-shed-more-light-on-invocation-of-alien-enemies-act.html
@@ -26,15 +34,7 @@ https://nytimes.com/athletic/6263332/2025/04/08/greg-millen-hockey-night-in-cana
 `Suzuka exposed some of McLaren’s weaknesses as its driver dilemma resurfaced`\
 https://nytimes.com/athletic/6263732/2025/04/08/max-verstappen-suzuka-japanese-gp-norris-piastri-mclaren/
 
-**Trump Officials Point to Outreach on Tariffs in a Bid to Calm Markets**\
-`Jamieson Greer, the United States trade representative, told senators the U.S. is economy is in need of “drastic, overdue change.”`\
-https://nytimes.com/2025/04/08/business/trump-tariffs-greer.html
-
-**Is Being Royal a Job? This Prince Says Yes, and He Wants a Pension.**\
-`A court case by the Belgian king’s younger brother argued that he was entitled to a state pension to keep his wife and adult children financially safe.`\
-https://nytimes.com/2025/04/08/world/europe/belgium-prince-social-security-benefits-ruling.html
-
-**Glenn Youngkin on D.E.I., Trump’s Tariffs and a Possible 2028 Run**\
-`In an interview, the Republican governor of Virginia spoke at length about his views on diversity efforts, among other subjects.`\
-https://nytimes.com/2025/04/08/us/politics/youngkin-interview-q-and-a.html
+**Trump Officials Try to Calm Markets by Pointing to Talks on Tariffs**\
+`Jamieson Greer, the United States trade representative, told senators the U.S. economy is in need of “drastic, overdue change.”`\
+https://nytimes.com/2025/04/08/us/politics/trump-tariffs-greer.html
 

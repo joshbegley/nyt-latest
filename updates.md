@@ -1,3 +1,19 @@
+**Case in Texas Could Shed More Light on Invocation of Alien Enemies Act**\
+`A case involving a Venezuelan migrant, Daniel Zacarias Matos, could explore the question of whether President Trump has used the Alien Enemies Act in a lawful manner.`\
+https://nytimes.com/2025/04/08/us/politics/case-in-texas-could-shed-more-light-on-invocation-of-alien-enemies-act.html
+
+**The Bounce: How hot are NBA coaching seats this year? Let's check in on the four hottest**\
+`As the NBA postseason draws near, let's check in on which coaches have the hottest seats.`\
+https://nytimes.com/athletic/6264123/2025/04/08/nba-coaching-hot-seat-playoffs-suns-sixers-pelicans-trail-blazers-the-bounce/
+
+**I.R.S. Audits Are at a Record Low. Trump’s Cuts Could Make Them Even Rarer.**\
+`The Biden plan to increase tax revenue through more enforcement is being reversed.`\
+https://nytimes.com/2025/04/08/upshot/irs-tax-audits-cuts.html
+
+**Pilots Discussed Alternate Ways to Land Before Deadly Jeju Air Crash**\
+`The pilots’ conversation with air traffic controllers, revealed in a partial transcript, could offer clues to what caused the disaster in South Korea, which killed 179 people.`\
+https://nytimes.com/2025/04/08/world/asia/jeju-crash-communications.html
+
 **Watch: Are blue-chip prospects worth trading up for in this year's NFL Draft?**\
 `"The Athletic Football Show" discusses which teams should consider an aggressive trade up to get Travis Hunter or Abdul Carter.
 `\
