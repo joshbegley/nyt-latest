@@ -1,3 +1,7 @@
+**Steelers draft visit tracker: QB Shedeur Sanders visiting Thursday, per reports**\
+`Keep track of every prospect who visits the Steelers' facility between now and the 2025 NFL Draft.`\
+https://nytimes.com/athletic/6181787/2025/04/08/steelers-nfl-draft-prospect-visitors-tracker/
+
 **Bellingham says Real Madrid 'lucky' to only lose 3-0 to Arsenal**\
 `The Madrid midfielder said his side can take hope from the knowledge they are capable of producing something "crazy" in the second leg.`\
 https://nytimes.com/athletic/6265301/2025/04/08/jude-bellingham-real-madrid-arsenal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6265255/2025/04/08/declan-rice-free-kick-real-madri
 **Surprise firings, shocking trades, record-breaking sales: What's up with the NBA lately?**\
 `The past few months have seen some of the most head-scratching transactions in league history.`\
 https://nytimes.com/athletic/6265152/2025/04/08/michael-malone-firing-nba-luka-doncic-lakers/
-
-**Jenner & Block, Law Firm Targeted by Trump, Files for Permanent Relief**\
-`The firm called the president’s executive order against it “a plain violation of the First Amendment.” WilmerHale is expected to file its own action opposing the administration.`\
-https://nytimes.com/2025/04/08/business/jenner-block-trump-filing.html
 
