@@ -1,3 +1,11 @@
+**Gibbs-White, Wirtz among City's options to replace De Bruyne**\
+`Kevin De Bruyne announced last week he will leave City after 10 years at the club, potentially leaving a creative void in the squad.`\
+https://nytimes.com/athletic/6263607/2025/04/08/gibbs-white-wirtz-manchester-city-transfer/
+
+**Trump Administration Opens More Public Land to Drilling and Mining**\
+`The move, focused on Nevada and New Mexico, is aimed at removing “burdensome” restrictions on energy and mineral development, a statement said.`\
+https://nytimes.com/2025/04/08/climate/trump-new-mexico-nevada-mining-drilling.html
+
 **Wall Street Bursts With Anger Over Tariff ‘Stupidity’**\
 `Billionaire investors are in an unfamiliar position, watching and cringing as tariffs roll on and the stock market reels.`\
 https://nytimes.com/2025/04/08/business/trump-tariff-wall-street-reaction.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6262827/2025/04/08/how-to-watch-womens-world-champi
 **Dreamy Hair With Clothes to Match**\
 `Flouncy curls paired well with layers of loose pleats.`\
 https://nytimes.com/2025/04/08/style/street-style-look-curly-hair.html
-
-**Barcelona's Gavi on criticism of his style of play: 'They don't have a f****** clue'**\
-`Gavi has had to settle for a diminished role this season following his return from the ACL injury that kept him sidelined for 11 months.`\
-https://nytimes.com/athletic/6263874/2025/04/08/barcelona-gavi-champions-league-dortmund/
-
-**U.S. tourist boards wrong boat in London, accidentally becomes fan of fifth-tier soccer club**\
-`A student from Arizona thought he was on a sightseeing tour, but instead ended up "drinking and dancing" with 150 Southend United fans.`\
-https://nytimes.com/athletic/6263629/2025/04/08/southend-boat-evan-johnston/
 

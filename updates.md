@@ -1,3 +1,15 @@
+**Wall Street Bursts With Anger Over Tariff ‘Stupidity’**\
+`Billionaire investors are in an unfamiliar position, watching and cringing as tariffs roll on and the stock market reels.`\
+https://nytimes.com/2025/04/08/business/trump-tariff-wall-street-reaction.html
+
+**Slow Down and Experience Fort Myers**\
+`In one of Florida’s most charming coastal cities, time slows to a perfectly unhurried pace.`\
+https://nytimes.com/paidpost/fort-myers/slow-down-and-experience-fort-myers.html
+
+**Bucks observations: Bobby Portis returns, AJ Green's passing and Kyle Kuzma's fit**\
+`Milwaukee's super sub returns against the Wolves after serving a 25-game suspension. Plus, all of the scenarios for the East's No. 5 seed.`\
+https://nytimes.com/athletic/6262328/2025/04/08/bobby-portis-bucks-kyle-kuzma/
+
 **Quinn Hughes' future, and can Elias Pettersson bounce back? Mailbag, part 2**\
 `Also: A look at why the Canucks regressed this season, and will their surplus of blue-line talent result in a trade for a young forward?`\
 https://nytimes.com/athletic/6260826/2025/04/08/canucks-quinn-hughes-elias-pettersson-future/
