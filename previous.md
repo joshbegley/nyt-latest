@@ -1,3 +1,11 @@
+**Pitch to Headway: What’s Your Big Idea?**\
+`Storytellers: Got a lead? Pitch Headway through this form.`\
+https://nytimes.com/2025/04/08/headway/freelancers-pitch-headway.html
+
+**Bears' Caleb Williams, Jaylon Johnson react to first day with Ben Johnson**\
+`Bears players returned to Halas Hall for the start of the offseason training program and are getting to know their new head coach.`\
+https://nytimes.com/athletic/6264960/2025/04/08/bears-caleb-williams-jaylon-johnson-react-to-first-day-with-ben-johnson/
+
 **Robert W. McChesney, Who Warned of Corporate Media Control, Dies at 72**\
 `In over a dozen books, he explored the failures of journalism and the internet, blaming capitalism and calling for the nationalization of Facebook and Google.`\
 https://nytimes.com/2025/04/08/business/media/robert-w-mcchesney-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6264330/2025/04/08/brazil-football-boring-memphis-d
 **Jase Richardson declares for the 2025 draft**\
 `The Athletic’s Sam Vecenie called the guard “one of the true breakout risers of this draft class.”`\
 https://nytimes.com/athletic/6264875/2025/04/08/jase-richardson-nba-2025-draft/
-
-**Watch: Which teams need to avoid the NBA Play-In Tournament the most?**\
-`NBA Daily discuss the seeding battle in the Western Conference.`\
-https://nytimes.com/athletic/6263758/2025/04/08/nba-daily-play-in-tournament-discussion/
-
-**Los Angeles Rams NFL Draft 2025 guide: Picks, predictions and key needs**\
-`The Rams are set to pick at No. 26 in the first round and have eight total picks in the NFL Draft.`\
-https://nytimes.com/athletic/6233149/2025/04/08/los-angeles-rams-2025-nfl-draft-picks-needs-predictions-guide/
 
