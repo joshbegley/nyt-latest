@@ -1,3 +1,11 @@
+**Watch: Why the Colts have to prioritise Colston Loveland in the draft**\
+`"The Athletic Football Show" discusses why Colston Loveland is a better fit for the Indianapolis Colts than Tyler Warren.`\
+https://nytimes.com/athletic/6263536/2025/04/08/athletic-football-show-indianapolis-colts-colston-loveland-draft/
+
+**The Social Security Administration Has Been Changing. Here’s What to Know.**\
+`Deep staff reductions. New policies. Spreading misinformation. Since President Trump has taken office, the agency that provides benefits to 73 million Americans each month has been in tumult.`\
+https://nytimes.com/2025/04/08/business/social-security-changes-trump-doge.html
+
 **Oil Spill in North Dakota Prompts Shut Down of Keystone Pipeline**\
 `The spill was confined to a field, and a nearby stream was isolated as a precaution, officials said.`\
 https://nytimes.com/2025/04/08/us/keystone-pipeline-rupture-north-dakota.html

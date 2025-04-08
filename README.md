@@ -1,4 +1,12 @@
-**Watch: Why the Colts have to prioritise Colston Loveland in the draft**\
+**Demidov released from KHL contract, free to join Canadiens for home stretch**\
+`Demidov, the No. 5 pick in the 2024 NHL Draft, had 19 goals and 49 points in 65 games with SKA this season.`\
+https://nytimes.com/athletic/6264771/2025/04/08/ivan-demidov-canadiens-khl-nhl/
+
+**South Carolina lands lands nation's leading scorer, Ta'Niya Latson**\
+`Latson scored 25.2 points per game as a junior at Florida State and passed on the 2025 WNBA Draft to enter the transfer portal.`\
+https://nytimes.com/athletic/6264691/2025/04/08/taniya-latson-transfer-south-carolina-womens-basketball/
+
+**Watch: Why the Colts have to prioritize Colston Loveland in the draft**\
 `"The Athletic Football Show" discusses why Colston Loveland is a better fit for the Indianapolis Colts than Tyler Warren.`\
 https://nytimes.com/athletic/6263536/2025/04/08/athletic-football-show-indianapolis-colts-colston-loveland-draft/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/08/us/kavanaugh-assassination-attempt-guilty.html
 **How a Nashville SC player and a young fan formed a bond over Pokémon**\
 `Nashville SC midfielder Eddi Tagseth shares a common interest with a young superfan, and they've generated a unique bond.`\
 https://nytimes.com/athletic/6264186/2025/04/08/nashville-sc-eddi-tagseth-pokemon-fan/
-
-**Getting Loud With Sleigh Bells and Beyond**\
-`Hear songs from the duo’s latest album, “Bunky Becky Birthday Boy,” plus predecessors and protégés.`\
-https://nytimes.com/2025/04/08/arts/music/amplifier-newsletter-sleigh-bells.html
-
-**Nuggets fire coach Malone, won't extend GM Booth in pre-playoff shakeup**\
-`Malone, 53, has coached the Nuggets since the 2015 season and brought Denver a championship in 2023.`\
-https://nytimes.com/athletic/6264653/2025/04/08/michael-malone-fired-nuggets-head-coach/
 
