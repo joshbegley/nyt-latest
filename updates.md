@@ -1,3 +1,15 @@
+**Man Pleads Guilty to Trying to Assassinate Justice Kavanaugh**\
+`Nicholas J. Roske, 29, of California, faces a maximum sentence of life in prison. He was arrested near the justice’s home in 2022, with a pistol, a knife and other weapons.`\
+https://nytimes.com/2025/04/08/us/kavanaugh-assassination-attempt-guilty.html
+
+**How a Nashville SC player and a young fan formed a bond over Pokémon**\
+`Nashville SC midfielder Eddi Tagseth shares a common interest with a young superfan, and they've generated a unique bond.`\
+https://nytimes.com/athletic/6264186/2025/04/08/nashville-sc-eddi-tagseth-pokemon-fan/
+
+**Getting Loud With Sleigh Bells and Beyond**\
+`Hear songs from the duo’s latest album, “Bunky Becky Birthday Boy,” plus predecessors and protégés.`\
+https://nytimes.com/2025/04/08/arts/music/amplifier-newsletter-sleigh-bells.html
+
 **Nuggets fire coach Malone, GM Booth in pre-playoff shakeup**\
 `Malone, 53, has coached the Nuggets since the 2015 season and brought Denver a championship in 2023.`\
 https://nytimes.com/athletic/6264653/2025/04/08/michael-malone-fired-nuggets-head-coach/

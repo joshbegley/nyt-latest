@@ -1,3 +1,15 @@
+**Man Pleads Guilty to Trying to Assassinate Justice Kavanaugh**\
+`Nicholas J. Roske, 29, of California, faces a maximum sentence of life in prison. He was arrested near the justice’s home in 2022, with a pistol, a knife and other weapons.`\
+https://nytimes.com/2025/04/08/us/kavanaugh-assassination-attempt-guilty.html
+
+**How a Nashville SC player and a young fan formed a bond over Pokémon**\
+`Nashville SC midfielder Eddi Tagseth shares a common interest with a young superfan, and they've generated a unique bond.`\
+https://nytimes.com/athletic/6264186/2025/04/08/nashville-sc-eddi-tagseth-pokemon-fan/
+
+**Getting Loud With Sleigh Bells and Beyond**\
+`Hear songs from the duo’s latest album, “Bunky Becky Birthday Boy,” plus predecessors and protégés.`\
+https://nytimes.com/2025/04/08/arts/music/amplifier-newsletter-sleigh-bells.html
+
 **Nuggets fire coach Malone, GM Booth in pre-playoff shakeup**\
 `Malone, 53, has coached the Nuggets since the 2015 season and brought Denver a championship in 2023.`\
 https://nytimes.com/athletic/6264653/2025/04/08/michael-malone-fired-nuggets-head-coach/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6233351/2025/04/08/cleveland-browns-2025-nfl-draft-
 **Commanders NFL Draft 2025 guide: Picks, predictions and key needs**\
 `Keeping you up to date on all of Washington's draft-related news and analysis heading into Round 1 on April 24. `\
 https://nytimes.com/athletic/6233463/2025/04/08/washington-commanders-2025-nfl-draft-picks-needs-predictions-guide/
-
-**What could Kevin De Bruyne bring to MLS? His physical level has declined - but his creativity is still elite**\
-`The Belgian has been linked with a move to MLS - if it happens then he should still have plenty to offer his new club`\
-https://nytimes.com/athletic/6264333/2025/04/08/kevin-de-bruyne-mls-miami-manchester-city/
-
-**Will Retaliation Work for Europe? It’s a Gamble.**\
-`Europe wants to negotiate, but it is also trying to project strength. As Trump warns nations against retaliation, that strategy could be perilous.`\
-https://nytimes.com/2025/04/08/world/europe/europe-trump-tariff-retaliation.html
-
-**When Politics Has a Place in the Classroom**\
-`Readers respond to a critique of colleges by Greg Weiner, the president of Assumption University. Also: The rich and the rest.`\
-https://nytimes.com/2025/04/08/opinion/colleges-universities-politics.html
 
