@@ -1,3 +1,11 @@
+**Greg Millen, NHL goalie and voice of 'Hockey Night in Canada,' dies at 67**\
+`Millen's voice was familiar to a generation of Canadian hockey fans. A cause of death was not made public.`\
+https://nytimes.com/athletic/6262950/2025/04/07/hockey-night-in-canada-greg-millen-dies-at-67/
+
+**Mother and 3 Children Detained by ICE at Upstate N.Y. Farm Are Released**\
+`The family was returned to New York after being taken into custody last month and held at a detention center in Texas, officials and advocates said.`\
+https://nytimes.com/2025/04/07/nyregion/ice-family-detained-new-york.html
+
 **How Trump’s TikTok Negotiations Were Upended by China and Tariffs**\
 `The future of the popular video app is now at the center of a geopolitical tussle between Washington and Beijing.`\
 https://nytimes.com/2025/04/07/technology/trump-tiktok-china-tariffs.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/07/us/texas-house-seat.html
 **Rep. John James of Michigan Announces Bid for Governor**\
 `The Republican congressman joins a crowded field vying to replace Gov. Gretchen Whitmer, who is term-limited.`\
 https://nytimes.com/2025/04/07/us/politics/john-james-michigan-governor.html
-
-**Another female leader in the U.S. military is fired by the Trump administration.**\
-`Vice Adm. Shoshana Chatfield has joined a list of several leaders who have been purged from the military’s highest ranks.`\
-https://nytimes.com/live/2025/04/07/us/trump-news/another-female-leader-in-the-us-military-is-fired-by-the-trump-administration
-
-**Clem Burke, Versatile, Hard-Driving Drummer for Blondie, Dies at 70**\
-`He provided both the explosive percussion on hits like “Call Me” and the laid-back rhythm on the reggae-influenced “The Tide Is High.”`\
-https://nytimes.com/2025/04/07/arts/music/clem-burke-dead.html
 
