@@ -1,3 +1,7 @@
+**‘Boop! The Musical’ Review: Betty Gets a Brand Extension**\
+`The It girl with the spit curl looks great for 100, but her Broadway musical, which feels like one big merch grab, is boop-boop-a-don’t.`\
+https://nytimes.com/2025/04/07/theater/boop-the-musical-review-broadway.html
+
 **Alex Cora on Jarren Duran: 'He's going to save lives'**\
 `“Since I learned about it, me as a person, I've given him support, love, and somebody that he can talk to,” Cora said.`\
 https://nytimes.com/athletic/6263006/2025/04/07/jarren-duran-alex-cora-mental-health-netflix-documentary/

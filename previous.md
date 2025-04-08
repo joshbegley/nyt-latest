@@ -1,3 +1,7 @@
+**‘Boop! The Musical’ Review: Betty Gets a Brand Extension**\
+`The It girl with the spit curl looks great for 100, but her Broadway musical, which feels like one big merch grab, is boop-boop-a-don’t.`\
+https://nytimes.com/2025/04/07/theater/boop-the-musical-review-broadway.html
+
 **Alex Cora on Jarren Duran: 'He's going to save lives'**\
 `“Since I learned about it, me as a person, I've given him support, love, and somebody that he can talk to,” Cora said.`\
 https://nytimes.com/athletic/6263006/2025/04/07/jarren-duran-alex-cora-mental-health-netflix-documentary/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/07/technology/trump-tiktok-china-tariffs.html
 **Man Questioned in Killings of 4 at Georgia Trailer Park**\
 `The authorities said that the killings appeared to have stemmed from a domestic dispute. Investigators in Perry, Ga., said the four victims, who ranged in age from 2 to 82, were related.`\
 https://nytimes.com/2025/04/07/us/georgia-trailer-park-killings.html
-
-**The U.S. Conference of Catholic Bishops says aid cuts are forcing it to end refugee and children’s services.**\
-`By Elizabeth Dias`\
-https://nytimes.com/live/2025/04/07/us/trump-news/the-us-conference-of-catholic-bishops-says-aid-cuts-are-forcing-it-to-end-refugee-and-childrens-services
 
