@@ -1,9 +1,13 @@
+**Case in Texas Could Shed More Light on Invocation of Alien Enemies Act**\
+`A case involving a Venezuelan migrant, Daniel Zacarias Matos, could explore the question of whether President Trump has used the Alien Enemies Act in a lawful manner.`\
+https://nytimes.com/2025/04/08/us/politics/case-in-texas-could-shed-more-light-on-invocation-of-alien-enemies-act.html
+
 **The Bounce: How hot are NBA coaching seats this year? Let's check in on the four hottest**\
 `As the NBA postseason draws near, let's check in on which coaches have the hottest seats.`\
 https://nytimes.com/athletic/6264123/2025/04/08/nba-coaching-hot-seat-playoffs-suns-sixers-pelicans-trail-blazers-the-bounce/
 
 **I.R.S. Audits Are at a Record Low. Trump’s Cuts Could Make Them Even Rarer.**\
-`The Biden plan to increase tax revenue through more enforcement is being reversed. That means audits will be even rarer.`\
+`The Biden plan to increase tax revenue through more enforcement is being reversed.`\
 https://nytimes.com/2025/04/08/upshot/irs-tax-audits-cuts.html
 
 **Pilots Discussed Alternate Ways to Land Before Deadly Jeju Air Crash**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/08/world/europe/belgium-prince-social-security-benef
 **Glenn Youngkin on D.E.I., Trump’s Tariffs and a Possible 2028 Run**\
 `In an interview, the Republican governor of Virginia spoke at length about his views on diversity efforts, among other subjects.`\
 https://nytimes.com/2025/04/08/us/politics/youngkin-interview-q-and-a.html
-
-**Glenn Youngkin, an Anti-D.E.I. Governor, Once Championed Diversity**\
-`Not long before he became Virginia’s governor, Mr. Youngkin helped lead, and spoke approvingly of, efforts to improve racial and gender diversity at his private equity firm.`\
-https://nytimes.com/2025/04/08/us/politics/glenn-youngkin-dei-carlyle-virginia.html
 
