@@ -1,3 +1,11 @@
+**Trump Tariffs May Rewire Market Psychology**\
+`Trade tensions have begun to force a rethink about how much investors and businesses should bet on the United States.`\
+https://nytimes.com/2025/04/08/business/dealbook/trump-tariffs-markets.html
+
+**Lucas Paqueta's spot-fixing hearing put on hold until May**\
+`Paqueta, 27, was charged in May 2024 with deliberately getting booked in four Premier League matches. He denies any wrongdoing.`\
+https://nytimes.com/athletic/6219130/2025/04/08/lucas-paqueta-west-ham-betting/
+
 **Why Eastern Conference playoff teams have reason to hope — and panic**\
 `As the Eastern Conference race finally seems to be firming up, what are the strengths and weaknesses of the eight teams?`\
 https://nytimes.com/athletic/6263028/2025/04/08/nhl-eastern-playoffs-hope-concern-2025/

@@ -1,40 +1,40 @@
-**Trump Tariffs May Rewire Market Psychology**\
-`Trade tensions have begun to force a rethink about how much investors and businesses should bet on the United States.`\
-https://nytimes.com/2025/04/08/business/dealbook/trump-tariffs-markets.html
+**Where does Alex Ovechkin rank among NHL GOATs after claiming all-time goals record?**\
+`The Great 8's dominance is easy to grasp. More challenging is figuring out where he now fits in the context of other hockey greats.`\
+https://nytimes.com/athletic/6262261/2025/04/08/alex-ovechkin-nhl-goals-record-all-time/
 
-**Lucas Paqueta's spot-fixing hearing put on hold until May**\
-`Paqueta, 27, was charged in May 2024 with deliberately getting booked in four Premier League matches. He denies any wrongdoing.`\
-https://nytimes.com/athletic/6219130/2025/04/08/lucas-paqueta-west-ham-betting/
+**The Masters concession prices: What's on the menu at Augusta National Golf Club**\
+`New this year is a tomato pie, served empanada-style and described as a savory experience by those who have had the opportunity to taste it.`\
+https://nytimes.com/athletic/6262195/2025/04/08/masters-augusta-golf-club-concession-prices/
 
-**Why Eastern Conference playoff teams have reason to hope — and panic**\
-`As the Eastern Conference race finally seems to be firming up, what are the strengths and weaknesses of the eight teams?`\
-https://nytimes.com/athletic/6263028/2025/04/08/nhl-eastern-playoffs-hope-concern-2025/
+**Why 2 very different goalies could help Leafs finally make deep playoff run**\
+`For the first time in nine years, the Leafs can boast two goalies with at least 30 games played and a save percentage over .900.`\
+https://nytimes.com/athletic/6262053/2025/04/08/maple-leafs-goalies-stolarz-woll-playoff-start/
 
-**Roof Collapses at Dominican Republic Nightclub, Killing at Least 13**\
-`The authorities said that search and rescue operations were continuing at the Jet Set nightclub in Santo Domingo, the capital.`\
-https://nytimes.com/2025/04/08/world/americas/dominican-republic-nightclub-collapse.html
+**Blackhawks prospect breakdown: Pridham takes advantage of new NCAA rule**\
+`With a different development path unexpectedly on offer, 2024 third-rounder Pridham played this season a little closer to home.`\
+https://nytimes.com/athletic/6262012/2025/04/08/blackhawks-jack-pridham-prospect-breakdown/
 
-**Walter Clayton Jr. capped an NCAA Tournament for the ages with a fitting ending**\
-`Points didn't come easy for the Final Four's most outstanding player, but in the end Clayton delivered how he always does for Florida.`\
-https://nytimes.com/athletic/6263626/2025/04/08/walter-clayton-jr-florida-national-championship/
+**What's next for Notre Dame's wide receivers?**\
+`Notre Dame would love greatness at wide receiver, but it probably would settle for competently good.`\
+https://nytimes.com/athletic/6262027/2025/04/08/notre-dame-football-wide-receivers/
 
-**'SEC! SEC!' Gators quiet haters with title, making this the best men’s basketball league ever**\
-`The SEC has been very good for several years. But massive tournament success has eluded the league — until now. `\
-https://nytimes.com/athletic/6263676/2025/04/08/sec-basketball-florida-national-champions/
+**How Sidney Crosby's excellence could force Kyle Dubas to revise his rebuild**\
+`Crosby's stellar performance might compel Kyle Dubas to expedite the Penguins' plans.`\
+https://nytimes.com/athletic/6261762/2025/04/08/sidney-crosby-penguins-rebuild/
 
-**Belgian stadium evacuated after smoke bombs, flares found under seats**\
-`An explosive detection dog and a specialised unit were called to the stadium to dispose of 14 homemade devices.`\
-https://nytimes.com/athletic/6262143/2025/04/08/charleroi-smoke-bombs-flares/
+**Should Raiders take Ashton Jeanty at No. 6 or play the NFL Draft board?**\
+`The Boise State star could be too good for the Raiders to pass up at No. 6. Or is there still value to be had at RB later in the NFL Draft?`\
+https://nytimes.com/athletic/6262810/2025/04/08/las-vegas-raiders-ashton-jeanty-nfl-draft-2025/
 
-**FEMA Tells New York to Fork Over Another $106 Million in Migrant Grants**\
-`Federal officials informed New York City that three previously issued grants were inconsistent with President Trump’s agenda; Mayor Eric Adams said the city would sue.`\
-https://nytimes.com/2025/04/08/nyregion/fema-migrants-money-nyc.html
+**Only 11 projected Bruins are signed for 2025-26. There's lots of work to do**\
+`Of the team's 20 roster spots occupied on game days, only 11 project to be populated by players under contract for next season.`\
+https://nytimes.com/athletic/6262120/2025/04/08/bruins-offseason-rebuild-depth-chart/
 
-**Florida's Alijah Martin will talk about his second chance at the Final Four forever**\
-`Alijah Martin didn't talk of the painful 2023 Final Four with Florida Atlantic. But he'll share Monday's triumph with both Gators and Owls.`\
-https://nytimes.com/athletic/6263464/2025/04/08/florida-basketball-alijah-martin-fau-ncaa-title/
+**National Park Service Restores Web Page Featuring Harriet Tubman**\
+`The page had been edited to remove material about the antislavery leader. Other government pages have been changed or deleted amid efforts to scrub references to diversity and inclusion.`\
+https://nytimes.com/2025/04/08/us/politics/national-park-service-harriet-tubman-underground-railroad-dei.html
 
-**How Kings' Hampton 'Hammer' Slukynsky led Western Michigan to its first Frozen Four**\
-`Slukynsky, 19, will take the net against the reigning national champions from Denver at the Frozen Four on Thursday.`\
-https://nytimes.com/athletic/6249860/2025/04/08/western-michigan-hampton-slukynsky-frozen-four-kings/
+**Here’s what happened on Monday.**\
+`By The New York Times`\
+https://nytimes.com/live/2025/04/08/us/trump-news/heres-what-happened-on-monday
 

@@ -1,3 +1,11 @@
+**Trump Tariffs May Rewire Market Psychology**\
+`Trade tensions have begun to force a rethink about how much investors and businesses should bet on the United States.`\
+https://nytimes.com/2025/04/08/business/dealbook/trump-tariffs-markets.html
+
+**Lucas Paqueta's spot-fixing hearing put on hold until May**\
+`Paqueta, 27, was charged in May 2024 with deliberately getting booked in four Premier League matches. He denies any wrongdoing.`\
+https://nytimes.com/athletic/6219130/2025/04/08/lucas-paqueta-west-ham-betting/
+
 **Why Eastern Conference playoff teams have reason to hope — and panic**\
 `As the Eastern Conference race finally seems to be firming up, what are the strengths and weaknesses of the eight teams?`\
 https://nytimes.com/athletic/6263028/2025/04/08/nhl-eastern-playoffs-hope-concern-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6263464/2025/04/08/florida-basketball-alijah-martin
 **How Kings' Hampton 'Hammer' Slukynsky led Western Michigan to its first Frozen Four**\
 `Slukynsky, 19, will take the net against the reigning national champions from Denver at the Frozen Four on Thursday.`\
 https://nytimes.com/athletic/6249860/2025/04/08/western-michigan-hampton-slukynsky-frozen-four-kings/
-
-**Chris Paul is 'constantly learning' at age 39 — and could make more history soon**\
-`A rocky season in San Antonio is winding down, but that doesn't mean Paul's career is doing the same.`\
-https://nytimes.com/athletic/6262769/2025/04/08/chris-paul-spurs-nba-final-week/
-
-**Some Mavs fans have protested the Luka Dončić trade by wearing his ‘77’ in purple and gold**\
-`Dončić has not been forgotten in Dallas. Some are honoring him by wearing the No. 77 of his new team.`\
-https://nytimes.com/athletic/6259352/2025/04/08/luka-doncic-mavericks-lakers-trade-fans-jersey/
 
