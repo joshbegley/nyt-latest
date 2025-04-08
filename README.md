@@ -1,3 +1,15 @@
+**NBA Draft early entry tracker: Jase Richardson declares; who else is in?**\
+`April 26 is the deadline for underclassmen to declare for the NBA Draft on June 25-26.`\
+https://nytimes.com/athletic/6251067/2025/04/08/nba-draft-early-entry-tracker-deadline/
+
+**3 Visitors to Yellowstone Get Jail Sentences for Violations**\
+`Tourists are required to stay on marked paths in thermal areas because of the dangers of the hot springs, geysers and steam vents, and to protect nature.`\
+https://nytimes.com/2025/04/08/us/yellowstone-tourists-prison-sentence.html
+
+**Death of Palestinian American Boy in West Bank Sparks Outcry**\
+`Amer Rabee, 14, was fatally shot Sunday by Israeli forces in the West Bank, according to his family. On Tuesday, community leaders gathered in New Jersey to demand justice.`\
+https://nytimes.com/2025/04/08/nyregion/nj-amer-rabee-killed-west-bank.html
+
 **Trump Officials Freeze $1 Billion for Cornell and $790 Million for Northwestern**\
 `The funding pause amid civil rights investigations into both universities sharply escalates the Trump administration’s campaign against elite colleges.`\
 https://nytimes.com/2025/04/08/us/politics/cornell-northwestern-university-funds-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/08/science/medieval-books-hair-binding.html
 **Tigers roll to a 5-game win streak despite mounting injuries**\
 `With their injured brethren unable to contribute, the Tigers have found production from unlikely sources.`\
 https://nytimes.com/athletic/6265225/2025/04/08/tigers-yankees-5-game-win-streak-injuries/
-
-**Gang War Ravaged East Harlem for Six Months, Prosecutors Say**\
-`The Manhattan district attorney charged 16 people, most of them minors, in a score of shootings. Violence among New York City’s youth has soared.`\
-https://nytimes.com/2025/04/08/nyregion/east-harlem-gang-war-charges.html
-
-**Pronouns in Bio? You May Not Get a Response From the White House.**\
-`Some Trump administration officials have declined to answer questions from several journalists on the basis of their email signatures.`\
-https://nytimes.com/2025/04/08/business/media/white-house-journalists-pronouns.html
-
-**Steelers draft visit tracker: QB Shedeur Sanders visiting Thursday, per reports**\
-`Keep track of every prospect who visits the Steelers' facility between now and the 2025 NFL Draft.`\
-https://nytimes.com/athletic/6181787/2025/04/08/steelers-nfl-draft-prospect-visitors-tracker/
 
