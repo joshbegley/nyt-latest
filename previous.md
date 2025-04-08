@@ -1,3 +1,7 @@
+**Florida's Todd Golden stakes claim as a coaching star, after a season of controversy**\
+`Golden's brilliant coaching and championship run will have to contend with a certain amount of unease.`\
+https://nytimes.com/athletic/6263436/2025/04/08/todd-golden-florida-gators-championship-investigation/
+
 **What Would You Like to Make?**\
 `A Times series features specialists who craft surfboards, piñatas, guitars, saddles, cakes, quilts and more. What craft would you most like to pursue — and why?`\
 https://nytimes.com/2025/04/08/learning/what-would-you-like-to-make.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/04/08/todays-new-york-times
 **Reasons to Be Optimistic About a Post-American Order**\
 `Principles of free trade and cooperation have their roots in the non-Western world.`\
 https://nytimes.com/2025/04/08/opinion/west-american-order-free-trade.html
-
-**Aston Villa's accounts explained: £86m loss, PSR problems to solve, player sales needed**\
-`Villa have posted another substantial loss but success on the pitch under Emery has raised revenue — PSR remains a significant issue, too`\
-https://nytimes.com/athletic/6261284/2025/04/08/aston-villa-accounts-explained-psr-transfers/
 

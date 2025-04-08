@@ -1,3 +1,7 @@
+**Florida's Todd Golden stakes claim as a coaching star, after a season of controversy**\
+`Golden's brilliant coaching and championship run will have to contend with a certain amount of unease.`\
+https://nytimes.com/athletic/6263436/2025/04/08/todd-golden-florida-gators-championship-investigation/
+
 **What Would You Like to Make?**\
 `A Times series features specialists who craft surfboards, piñatas, guitars, saddles, cakes, quilts and more. What craft would you most like to pursue — and why?`\
 https://nytimes.com/2025/04/08/learning/what-would-you-like-to-make.html
