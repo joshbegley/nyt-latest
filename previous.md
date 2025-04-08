@@ -1,3 +1,27 @@
+**Height advantage, bypass 'blockers', hit the six-yard box - how Arsenal can hurt Madrid from set pieces**\
+`One of Arsenal's greatest strengths is also Madrid's biggest weakness as their Champions League quarter-final gets started tonight`\
+https://nytimes.com/athletic/6254728/2025/04/08/how-arsenal-can-hurt-real-madrid-at-set-pieces-height-advantage-bypass-blockers-hit-the-six-yard-box/
+
+**When loan players embarrass their parent clubs (with an eye on Marco Asensio)**\
+`As Aston Villa's Marco Asensio faces PSG, a look at the history of loanees playing against their parent clubs`\
+https://nytimes.com/athletic/6258536/2025/04/08/when-loan-players-embarrass-their-parent-clubs/
+
+**How Luis Enrique has helped PSG transform their broken culture and move on from Mbappe**\
+`PSG have transformed attitudes both within and towards the club over the last two years. Luis Enrique has played a pivotal role`\
+https://nytimes.com/athletic/6260929/2025/04/08/psg-luis-enrique-mbappe-culture-champions-league/
+
+**Shock, relief and 'smelling' the sack: What it's like to be fired as a manager**\
+`Ivan Juric is the latest Premier League casualty but there are many ways for a manager to be dismissed`\
+https://nytimes.com/athletic/6260899/2025/04/08/manager-sack-premier-league-feels-like/
+
+**Liverpool are (probably) going to win the title this season. How can they be even better next time?**\
+`Reaching the top is one thing, but staying there is another - here's how Arne Slot's side can improve on his incredible first year in charge`\
+https://nytimes.com/athletic/6259091/2025/04/08/liverpool-tactics-pressing-improvement/
+
+**The night Thierry Henry and Arsenal silenced Real Madrid's galacticos**\
+`Real had a star-studded team, Arsenal were reeling from injuries, but across both legs in 2006, Henry, Fabregas et al put on a masterclass.`\
+https://nytimes.com/athletic/6261447/2025/04/08/arsenal-real-madrid-thierry-henry/
+
 **Why Bayern Munich no longer have carte blanche to sign up the Bundesliga's best**\
 `Florian Wirtz may be a long-standing target, but the cream of the German league have options these days rather than just a move to Bavaria`\
 https://nytimes.com/athletic/6261612/2025/04/08/bayern-munich-wirtz-bayer-transfers-policy/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6259790/2025/04/08/daniel-james-leeds-analysis-manc
 **Prince Harry’s Court Case Over Security in the U.K., Explained**\
 `A two-day hearing is set to begin on Tuesday in London’s Court of Appeal, as Harry challenges the government over his security protection in Britain.`\
 https://nytimes.com/2025/04/08/world/europe/prince-harry-security-hearing-court.html
-
-**How Japan Built a 3D-Printed Train Station in 6 Hours**\
-`As Japan’s population shrinks, maintaining rail service in remote small towns is becoming a challenge. Is this the answer?`\
-https://nytimes.com/2025/04/08/world/asia/japan-3d-station.html
-
-**Leaders Flex Muscles Against International Criminal Court**\
-`The leaders of Israel, Hungary and the United States have moved to neutralize the judiciary both at home and abroad.`\
-https://nytimes.com/2025/04/08/world/europe/icc-hungary-us-israel.html
-
-**Connections: Sports Edition Coach: Hints for April 8, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6263092/2025/04/08/connections-sports-edition-hints-for-april-8-2025/
-
-**Corrections: April 8, 2025**\
-`Corrections that appeared in print on Tuesday, April 8, 2025.`\
-https://nytimes.com/2025/04/08/pageoneplus/corrections-april-8-2025.html
-
-**Quote of the Day: Struggling Shrimpers See the ‘Sun Coming Out’**\
-`Quotation of the Day for Tuesday, April 8, 2025.`\
-https://nytimes.com/2025/04/07/pageoneplus/quote-of-the-day-struggling-shrimpers-see-the-sun-coming-out.html
-
-**Opening favorites for 2026 men's college basketball title revealed**\
-`Houston opened as the favorite to win the 2026 men's college basketball national title on BetMGM, just ahead of Duke.`\
-https://nytimes.com/athletic/6262760/2025/04/07/2026-mens-college-basketball-national-title-odds-duke-houston-uconn/
 
