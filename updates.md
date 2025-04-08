@@ -1,3 +1,15 @@
+**Kyle Tucker on Vladimir Guerrero Jr.'s $500 million extension: 'Right now, I'm here to play'  **\
+`Tucker, 28, is two years older than Guerrero and positioned to become the biggest name in the upcoming class of free agents.`\
+https://nytimes.com/athletic/6263101/2025/04/07/cubs-kyle-tucker-reaction-vladimir-guerrero-jr-extension/
+
+**Boris Johnson Has Run-In With Feisty Ostrich During Texas Trip**\
+`A video showed the former British prime minister yelping and uttering a profanity after the ostrich pecked him through a window at what appeared to be a wildlife park.`\
+https://nytimes.com/2025/04/07/us/ostrich-boris-johnson-texas-attack.html
+
+**Astros starter Spencer Arrighetti suffers broken thumb after being struck in batting practice**\
+`Losing Arrighetti for any length is a crippling blow to a Houston rotation without much established depth.`\
+https://nytimes.com/athletic/6263098/2025/04/07/astros-spencer-arrighetti-broken-thumb-batting-practice/
+
 **‘Boop! The Musical’ Review: Betty Gets a Brand Extension**\
 `The It girl with the spit curl looks great for 100, but her Broadway musical, which feels like one big merch grab, is boop-boop-a-don’t.`\
 https://nytimes.com/2025/04/07/theater/boop-the-musical-review-broadway.html

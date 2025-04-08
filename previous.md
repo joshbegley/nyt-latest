@@ -1,3 +1,15 @@
+**Kyle Tucker on Vladimir Guerrero Jr.'s $500 million extension: 'Right now, I'm here to play'  **\
+`Tucker, 28, is two years older than Guerrero and positioned to become the biggest name in the upcoming class of free agents.`\
+https://nytimes.com/athletic/6263101/2025/04/07/cubs-kyle-tucker-reaction-vladimir-guerrero-jr-extension/
+
+**Boris Johnson Has Run-In With Feisty Ostrich During Texas Trip**\
+`A video showed the former British prime minister yelping and uttering a profanity after the ostrich pecked him through a window at what appeared to be a wildlife park.`\
+https://nytimes.com/2025/04/07/us/ostrich-boris-johnson-texas-attack.html
+
+**Astros starter Spencer Arrighetti suffers broken thumb after being struck in batting practice**\
+`Losing Arrighetti for any length is a crippling blow to a Houston rotation without much established depth.`\
+https://nytimes.com/athletic/6263098/2025/04/07/astros-spencer-arrighetti-broken-thumb-batting-practice/
+
 **‘Boop! The Musical’ Review: Betty Gets a Brand Extension**\
 `The It girl with the spit curl looks great for 100, but her Broadway musical, which feels like one big merch grab, is boop-boop-a-don’t.`\
 https://nytimes.com/2025/04/07/theater/boop-the-musical-review-broadway.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/07/opinion/trump-stock-market-wall-street.html
 **Greg Millen, NHL goalie and voice of 'Hockey Night in Canada,' dies at 67**\
 `Millen's voice was familiar to a generation of Canadian hockey fans. A cause of death was not made public.`\
 https://nytimes.com/athletic/6262950/2025/04/07/hockey-night-in-canada-greg-millen-dies-at-67/
-
-**Mother and 3 Children Detained by ICE at Upstate N.Y. Farm Are Released**\
-`The family was returned to New York after being taken into custody last month and held at a detention center in Texas, officials and advocates said.`\
-https://nytimes.com/2025/04/07/nyregion/ice-family-detained-new-york.html
-
-**How Trump’s TikTok Negotiations Were Upended by China and Tariffs**\
-`The future of the popular video app is now at the center of a geopolitical tussle between Washington and Beijing.`\
-https://nytimes.com/2025/04/07/technology/trump-tiktok-china-tariffs.html
-
-**Man Questioned in Killings of 4 at Georgia Trailer Park**\
-`The authorities said that the killings appeared to have stemmed from a domestic dispute. Investigators in Perry, Ga., said the four victims, who ranged in age from 2 to 82, were related.`\
-https://nytimes.com/2025/04/07/us/georgia-trailer-park-killings.html
 
