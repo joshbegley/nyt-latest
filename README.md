@@ -1,4 +1,4 @@
-**Yankees' starting rotation is showing cracks, but options to improve are limited**\
+**Yankees' rotation is showing cracks, but options to improve are limited**\
 `The Tigers teed off on Carlos Carrasco, who remains in the rotation due to injuries to Gerrit Cole, Luis Gil and Clarke Schmidt.`\
 https://nytimes.com/athletic/6264783/2025/04/08/yankees-starting-rotation-limited-options/
 

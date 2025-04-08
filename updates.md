@@ -1,3 +1,15 @@
+**Yankees' starting rotation is showing cracks, but options to improve are limited**\
+`The Tigers teed off on Carlos Carrasco, who remains in the rotation due to injuries to Gerrit Cole, Luis Gil and Clarke Schmidt.`\
+https://nytimes.com/athletic/6264783/2025/04/08/yankees-starting-rotation-limited-options/
+
+**William Finn, Tony Winner for ‘Falsettos,’ Is Dead at 73**\
+`An acclaimed musical theater writer, he won for both his core and his book and later scored a huge hit with “The 25th Annual Putnam County Spelling Bee.”`\
+https://nytimes.com/2025/04/08/theater/william-finn-dead.html
+
+**The Briefing: Bayern 1 Inter 2 - That Lautaro goal, Muller's moment, but what makes Inzaghi's men contenders?**\
+`A tight and tense evening in Munich saw the Italian side recover from conceding a late equaliser to claim a lead to take back to San Siro`\
+https://nytimes.com/athletic/6261134/2025/04/08/bayern-munich-inter-muller-lautaro-league/
+
 **Rice: 'Originally we were going to cross' first free-kick vs Real Madrid**\
 `Rice says he was convinced to shoot after a conversation with Bukayo Saka.`\
 https://nytimes.com/athletic/6265255/2025/04/08/declan-rice-free-kick-real-madrid/
