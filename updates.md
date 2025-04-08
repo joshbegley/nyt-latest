@@ -1,3 +1,15 @@
+**Reviewing the San Francisco Giants' 2025 City Connect uniforms**\
+`The Giants' new City Connects: They're fine. You don't have to like them, but you'll get used to them.`\
+https://nytimes.com/athletic/6264466/2025/04/08/sf-giants-city-connect-uniform-review/
+
+**Brazil's boring turn marks its latest footballing identity crisis**\
+`Acts of flair are being punished at the club level, while the national team's woes have the country's sporting soul thrust into question.`\
+https://nytimes.com/athletic/6264330/2025/04/08/brazil-football-boring-memphis-depay-neymar-vinicius/
+
+**Los Angeles Rams NFL Draft 2025 guide: Picks, predictions and key needs**\
+`The Rams are set to pick at No. 26 in the first round and have eight total picks in the NFL Draft.`\
+https://nytimes.com/athletic/6233149/2025/04/08/los-angeles-rams-2025-nfl-draft-picks-needs-predictions-guide/
+
 **Jase Richardson declares for the 2025 draft**\
 `The Athletic’s Sam Vecenie called the guard “one of the true breakout risers of this draft class.”`\
 https://nytimes.com/athletic/6264875/2025/04/08/jase-richardson-nba-2025-draft/
