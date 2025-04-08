@@ -1,3 +1,15 @@
+**Rice: 'Originally we were going to cross' first free-kick vs Real Madrid**\
+`Rice says he was convinced to shoot after a conversation with Bukayo Saka.`\
+https://nytimes.com/athletic/6265255/2025/04/08/declan-rice-free-kick-real-madrid/
+
+**Surprise firings, shocking trades, record-breaking sales: What's up with the NBA lately?**\
+`The past few months have seen some of the most head-scratching transactions in league history.`\
+https://nytimes.com/athletic/6265152/2025/04/08/michael-malone-firing-nba-luka-doncic-lakers/
+
+**The Briefing: Bayern 1 Inter 2 - That Lautaro goal, Muller's moment, but what makes Inzaghi's men contenders?**\
+`A tight and tense evening in Munich saw the Italian side recover from conceding a late equaliser to claim a lead to take back to San Siro`\
+https://nytimes.com/athletic/6261134/2025/04/08/bayern-munich-inter-muller-lauturo-league/
+
 **Surprise firings, shocking trades, billion-dollar sales: What's up with the NBA lately?**\
 `The past few months have seen some of the most head-scratching transactions in league history.`\
 https://nytimes.com/athletic/6265152/2025/04/08/michael-malone-firing-nba-luka-doncic-lakers/
