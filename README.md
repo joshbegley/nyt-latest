@@ -1,40 +1,40 @@
-**The New York Times International Edition in Print for Wednesday, April 9, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/04/08/todays-new-york-times-international-edition
+**What can the Vikings get in a trade for the 24th pick? Here's what history shows**\
+`With just four picks in the draft, the Vikings will have to get lots of bang for their buck. Trading down in the first round could help.`\
+https://nytimes.com/athletic/6262423/2025/04/08/vikings-nfl-draft-trade-down/
 
-**Israel’s Supreme Court Considers Netanyahu’s Attempt to Fire Spy Chief**\
-`The hearing on the move opened with unruly scenes, as hecklers forced judges to pause the proceedings before resuming them without a public audience.`\
-https://nytimes.com/2025/04/08/world/middleeast/israel-supreme-court-spy-chief.html
+**Spirit owner Michele Kang sees opportunity with U.S. Soccer partnership and Emma Hayes' vision**\
+`Kang has pledged a total of $55 million to U.S. Soccer for the research and development of the women's game.`\
+https://nytimes.com/athletic/6262959/2025/04/08/michele-kang-us-soccer-investment-emma-hayes/
 
-**Jalen Milroe film review: Why a potential NFL Draft gem needs extensive polishing**\
-`The Alabama QB's stunning athletic ability and big-game experience are enticing, but he has much work to do to become an NFL-caliber passer.`\
-https://nytimes.com/athletic/6259210/2025/04/08/jalen-milroe-film-review-nfl-draft/
+**Way-too-early men's Top 25: Who's got a shot at No. 1 for 2025-26?**\
+`Talent plus roster continuity is a winning formula, and no team has a better combination of that at this moment than Purdue.`\
+https://nytimes.com/athletic/6261827/2025/04/08/mens-college-basketball-top-25-look-ahead/
 
-**Madonna and Elton John Make Up. (Yes, They Were Feuding.)**\
-`They made peace backstage at “Saturday Night Live.” You’d be forgiven for forgetting that their decades-old dispute had remained unresolved.`\
-https://nytimes.com/2025/04/08/arts/music/madonna-elton-john-feud.html
+**Should Jets trade Breece Hall and draft Ashton Jeanty? Exploring the possibility**\
+`Social media speculation has made its way to the star running back.`\
+https://nytimes.com/athletic/6262414/2025/04/08/jets-draft-ashton-jeanty-breece-hall/
 
-**Patriots want Travis Hunter or Abdul Carter in the NFL Draft. But what if they're gone?**\
-`The Pats hope two QBs are taken in the first three picks, which would ensure that either Hunter or Carter falls to them at No. 4.`\
-https://nytimes.com/athletic/6261636/2025/04/08/patriots-nfl-draft-travis-hunter-abdul-carter/
+**Why does Scottie Scheffler dominate the Masters? He's 'an incredible handyman'**\
+`Scheffler will try this week to become the first golfer to win back-to-back at Augusta National since Tiger Woods 23 years ago. `\
+https://nytimes.com/athletic/6261436/2025/04/08/scottie-scheffler-masters-augusta-national-course-golf/
 
-**Cowboys draft mailbag: Analyzing your mock draft submissions to fill roster needs in Dallas**\
-`Will the Cowboys stay at No. 12 or move back and add picks? We asked for your Dallas mock draft scenarios.`\
-https://nytimes.com/athletic/6262251/2025/04/08/cowboys-nfl-mock-draft-mailbag/
+**An inside look at the start of the Bears' new era as Ryan Poles hired Ben Johnson**\
+`Bears executives share details of Poles' process that led him to hiring Johnson, who is working with the team for the first time this week.`\
+https://nytimes.com/athletic/6259669/2025/04/08/ben-johnson-hiring-ryan-poles-bears/
 
-**Making the jump from college hoops to the NFL: 'I was like, what? Change sports?'**\
-`Colin Granger had not played football since eighth grade. But when his basketball season at Coastal Carolina was over, he gave it a shot.`\
-https://nytimes.com/athletic/6263121/2025/04/08/panthers-basketball-tight-end-signing-colin-granger/
+**Analyzing Ravens' last 6 draft classes: Where have they had most/least success?**\
+`How has Baltimore fared in the draft since Eric DeCosta took over as the team's GM in 2019? We rank each position group during that span. `\
+https://nytimes.com/athletic/6262575/2025/04/08/ravens-draft-classes-eric-decosta/
 
-**Market Chaos Could Inflict Its Own Economic Damage**\
-`A big hit to portfolios would be felt acutely by higher-income Americans, whose spending has recently been the biggest driver of the economy.`\
-https://nytimes.com/2025/04/08/business/economy/stock-market-economy-trump-tariffs.html
+**Masters odds, DFS, picks as Rory McIlroy aims to end drought**\
+`Dennis Esser mines the Masters field for insight into which players could make a run.`\
+https://nytimes.com/athletic/6262424/2025/04/08/2025-masters-tournament-odds-dfs-picks-can-rory-mcilroy-complete-career-grand-slam/
 
-**Is This America’s Liz Truss Moment?**\
-`Ms. Truss, Britain’s prime minister for 44 days, was forced out after her radical policies caused a market meltdown. But there are some key differences with President Trump.`\
-https://nytimes.com/2025/04/08/world/europe/trump-tariffs-markets-liz-truss.html
+**How Trump Wiped Out $10 Trillion in Wealth in 3 Days**\
+`A rapidly escalating trade war has socked stocks as investors weigh the fallout from President Trump’s tariff barrage.`\
+https://nytimes.com/2025/04/08/podcasts/the-daily/trump-stock-market-tariffs.html
 
-**Bloomberg Pumps Cash Into the Long-Term Legal Fight Against Trump**\
-`The billionaire’s gun control group plans to spend $10 million to help elect Democratic attorneys general, who are on the front lines of legal clashes with the president.`\
-https://nytimes.com/2025/04/08/us/politics/michael-bloomberg-everytown-trump-democrats.html
+**Supreme Court Clears Way for Deportations, and a Stock Market Fake-Out**\
+`Plus, a new push to clone ancient animals.`\
+https://nytimes.com/2025/04/08/podcasts/supreme-court-deportations-stock-market.html
 
