@@ -1,3 +1,11 @@
+**Trump Officials Freeze $1 Billion for Cornell and $790 Million for Northwestern**\
+`The funding pause amid civil rights investigations into both universities sharply escalates the Trump administration’s campaign against elite colleges.`\
+https://nytimes.com/2025/04/08/us/politics/cornell-northwestern-university-funds-trump.html
+
+**Chinese Intelligence May Be Trying to Recruit Fired U.S. Officials**\
+`An advisory says that foreign agencies are posing as consulting firms, think tanks and other organizations to connect with former government employees.`\
+https://nytimes.com/2025/04/08/us/politics/chinese-intelligence-fired-us-workers.html
+
 **An Experiment in Recklessness: Trump as Global Disrupter**\
 `The global trading system is only one example of the administration tearing something apart, only to reveal that it has no plan for how to replace it.`\
 https://nytimes.com/2025/04/08/us/politics/trump-tariffs-global-trade-war.html

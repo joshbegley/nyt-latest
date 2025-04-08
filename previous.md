@@ -1,3 +1,11 @@
+**Trump Officials Freeze $1 Billion for Cornell and $790 Million for Northwestern**\
+`The funding pause amid civil rights investigations into both universities sharply escalates the Trump administration’s campaign against elite colleges.`\
+https://nytimes.com/2025/04/08/us/politics/cornell-northwestern-university-funds-trump.html
+
+**Chinese Intelligence May Be Trying to Recruit Fired U.S. Officials**\
+`An advisory says that foreign agencies are posing as consulting firms, think tanks and other organizations to connect with former government employees.`\
+https://nytimes.com/2025/04/08/us/politics/chinese-intelligence-fired-us-workers.html
+
 **An Experiment in Recklessness: Trump as Global Disrupter**\
 `The global trading system is only one example of the administration tearing something apart, only to reveal that it has no plan for how to replace it.`\
 https://nytimes.com/2025/04/08/us/politics/trump-tariffs-global-trade-war.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/08/business/media/white-house-journalists-pronouns.h
 **Steelers draft visit tracker: QB Shedeur Sanders visiting Thursday, per reports**\
 `Keep track of every prospect who visits the Steelers' facility between now and the 2025 NFL Draft.`\
 https://nytimes.com/athletic/6181787/2025/04/08/steelers-nfl-draft-prospect-visitors-tracker/
-
-**Bellingham says Real Madrid 'lucky' to only lose 3-0 to Arsenal**\
-`The Madrid midfielder said his side can take hope from the knowledge they are capable of producing something "crazy" in the second leg.`\
-https://nytimes.com/athletic/6265301/2025/04/08/jude-bellingham-real-madrid-arsenal/
-
-**Nuclear Testing Not Advised, Trump’s Nominee Says in Senate Hearing**\
-`Brandon Williams, the nominee to lead the National Nuclear Security Administration, said he would recommend reliance on “scientific information” rather than a restart of explosive testing.`\
-https://nytimes.com/2025/04/08/science/nuclear-testing-nnsa-williams.html
 
