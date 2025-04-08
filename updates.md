@@ -1,3 +1,7 @@
+**On Her New Podcast, Meghan Talks Media Scrutiny, Kindness and Family**\
+`For the first episode of “Confessions of a Female Founder,” the Duchess of Sussex interviewed Whitney Wolfe Herd, the chief executive of Bumble.`\
+https://nytimes.com/2025/04/08/style/meghan-markle-podcast-confessions-female-founder.html
+
 **Jon Stewart Can’t Stomach Trump’s Stock Market ‘Medicine’**\
 `The “Daily Show” host said America’s economy was “in the midst of a beautiful metamorphosis, turning from a simple caterpillar into a dead caterpillar.”`\
 https://nytimes.com/2025/04/08/arts/television/jon-stewart-tariffs-stock-market.html
