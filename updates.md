@@ -1,3 +1,11 @@
+**Florida rankled by foul calls, including 2 technicals, in second half vs. Houston**\
+`Florida was called for six fouls in less than three minutes as Houston built a 12-point lead.`\
+https://nytimes.com/athletic/6263191/2025/04/07/florida-foul-calls-technical-houston-second-half/
+
+**Joe Musgrove plays catch for first time since surgery, continues to target October**\
+`"He's worked really hard. And that's a good thing for Joe. He's got a smile on his face," Mike Shildt said.`\
+https://nytimes.com/athletic/6263168/2025/04/07/padres-joe-musgrove-plays-catch/
+
 **NCAA’s House settlement on hold, but judge expresses optimism for approval**\
 `A federal judge declined to make a final ruling on the NCAA’s $2.8 billion House settlement after hearing objections Monday.`\
 https://nytimes.com/athletic/6263102/2025/04/07/ncaa-house-settlement-hearing/
