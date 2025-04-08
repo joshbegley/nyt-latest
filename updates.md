@@ -1,3 +1,7 @@
+**Darjeeling Kitchen & Café Offers Halal Momos in Long Island City**\
+`Leonessa serves cocktails with rooftop views, 12 Matcha caters to green-tea obsessives and more restaurant news.`\
+https://nytimes.com/2025/04/08/dining/nyc-restaurant-news.html
+
 **The Windup: The looming fight after Vladdy's deal**\
 `Welcome to The Windup, The Athletic's MLB newsletter. `\
 https://nytimes.com/athletic/6263403/2025/04/08/vlad-guerrero-contract-labor-the-windup/
