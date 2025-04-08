@@ -1,3 +1,11 @@
+**Oil Spill in North Dakota Prompts Shut Down of Keystone Pipeline**\
+`The spill was confined to a field, and a nearby stream was isolated as a precaution, officials said.`\
+https://nytimes.com/2025/04/08/us/keystone-pipeline-rupture-north-dakota.html
+
+**Notre Dame transfer Olivia Miles commits to TCU: How does she fit?**\
+`Miles has one year of eligibility remaining because she missed the 2023-24 season with a torn ACL`\
+https://nytimes.com/athletic/6263756/2025/04/08/olivia-miles-tcu-notre-dame-transfer-portal/
+
 **Trump to Sign Order Aimed at Reviving a Struggling Coal Industry**\
 `The moves include loosening environmental rules, but it is unclear how much they can help reverse the sharp decline in coal power over the last two decades.`\
 https://nytimes.com/2025/04/08/climate/trump-order-coal-mining.html
