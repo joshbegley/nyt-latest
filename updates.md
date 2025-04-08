@@ -1,3 +1,7 @@
+**Mandel: Monday's House v. NCAA hearing was a moment more than a decade in the making**\
+`The House settlement was not approved on Monday — but it appears very likely it will be next week.`\
+https://nytimes.com/athletic/6262954/2025/04/07/house-vs-ncaa-hearing-revenue-sharing/
+
 **Why Did So Many People Delude Themselves About Trump?**\
 `Wall Street mistook demagogy for wisdom.`\
 https://nytimes.com/2025/04/07/opinion/trump-stock-market-wall-street.html
