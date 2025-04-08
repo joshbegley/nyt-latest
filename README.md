@@ -1,3 +1,15 @@
+**Panama Official Accuses Hong Kong Port Operator of Misconduct**\
+`The controller general of Panama said CK Hutchison, a Hong Kong conglomerate, did not properly renew its license to operate two ports that are part of a $19 billion deal involving BlackRock.`\
+https://nytimes.com/2025/04/08/business/panama-ports-ck-hutchison-audit.html
+
+**Gabbard Starts a Task Force Focused on Politicization of the Intelligence Agencies**\
+`The director of national intelligence framed it as an effort to eliminate the politicization of the agencies and to investigate episodes where intelligence was “weaponized.”`\
+https://nytimes.com/2025/04/08/us/politics/tulsi-gabbard-intelligence-task-force.html
+
+**Submit your questions for upcoming Yankees mailbags**\
+`<p>Before the Yankees begin their weekend series with the San Francisco Giants, Chris Kirschner and Brendan Kuty will be answering your questions in respective mailbags.`\
+https://nytimes.com/athletic/6265004/2025/04/08/submit-your-questions-for-upcoming-yankees-mailbags/
+
 **Until Saturday: Colleges are about to pay players**\
 `Welcome to Until Saturday, The Athletic's college football newsletter. `\
 https://nytimes.com/athletic/6264956/2025/04/08/house-settlement-college-sports-until-saturday/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6233149/2025/04/08/los-angeles-rams-2025-nfl-draft-
 **A Salon for the Ages, at Least for Now**\
 `A woman saved a decrepit building in the 70s and turned it into, among other things, an art museum, an opera house and a jazz club. It is about to be listed for sale.`\
 https://nytimes.com/2025/04/08/realestate/rochette-parzini-house-for-sale.html
-
-**Justice Dept. Disbands Cryptocurrency Enforcement Unit**\
-`The Trump administration is dialing back its enforcement of cryptocurrency, and criticizing Biden-era prosecutions.`\
-https://nytimes.com/2025/04/08/us/politics/doj-disbands-crypto-unit.html
-
-**Tariffs May Make It Too Expensive to ‘Drill, Baby, Drill’**\
-`President Trump’s tariff polices have sent oil prices falling, which may push energy companies to reconsider their plans to drill.`\
-https://nytimes.com/2025/04/08/climate/tariffs-oil-drilling-trump.html
-
-**John Fetterman: This Drug Changed My Life. More Americans Need Access.**\
-`The government should make it easier to access GLP-1s.`\
-https://nytimes.com/2025/04/08/opinion/glp1-ozempic-mounjaro-trump.html
 
