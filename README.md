@@ -1,3 +1,19 @@
+**Weekly Student News Quiz: Global Markets, N.C.A.A. Finals, a Tortoise**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/04/08/learning/08StudentNewsQuiz.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/04/08/crosswords/spelling-bee-forum.html
+
+**What Are Microplastics Doing to Our Bodies? This Lab is Racing to Find Out.**\
+`Inside a New Mexico lab, researchers estimate there is five bottle caps worth of plastic in human brains. Now they are trying to find out its effects.`\
+https://nytimes.com/2025/04/08/well/microplastics-health.html
+
+**They Work All Day and Go Home to Shelters**\
+`Thousands of working people in New York City now live in shelters, unable to afford apartments despite holding down jobs that pay them $50,000 or more.`\
+https://nytimes.com/2025/04/08/nyregion/homeless-shelters-new-york-city.html
+
 **Jeremy Monga was a rare glimpse of positivity for Leicester on another bleak night**\
 `An eighth successive Premier League defeat without scoring has put Ruud van Nistelrooy and his side on the brink of a dismal relegation`\
 https://nytimes.com/athletic/6263013/2025/04/08/leicester-city-jeremy-monga-van-nistelrooy/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/04/08/arts/design/art-basel-ubs-art-market-report.html
 **Newcastle United, the Premier League's game-state kings**\
 `Howe's side have dropped fewest points from winning positions in the Premier League, and can also come from behind - how have they done it?`\
 https://nytimes.com/athletic/6262846/2025/04/08/newcastle-united-game-state-kings/
-
-**Word of the Day: artisanal**\
-`This word has appeared in 102 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/04/08/learning/word-of-the-day-artisanal.html
-
-**Sadness, despair and anger: A three-day road trip to the Premier League's drop zone**\
-`For the second straight season, the three promoted sides have been swatted aside with worrying ease`\
-https://nytimes.com/athletic/6263066/2025/04/08/premier-league-relegation-battle-ipswich-southampton-leicester/
-
-**Tuesday Briefing**\
-`The global response to President Trump’s tariffs.`\
-https://nytimes.com/2025/04/08/briefing/tariffs-iran-russia.html
-
-**The New York Times in Print for Tuesday, April 8, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/04/08/todays-new-york-times
 
