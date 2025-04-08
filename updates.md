@@ -1,3 +1,11 @@
+**Sadness, despair and anger: A three-day road trip to the Premier League's relegation battle**\
+`For the second straight season, the three promoted sides have been swatted aside with worrying ease`\
+https://nytimes.com/athletic/6263066/2025/04/08/premier-league-relegation-battle-ipswich-southampton-leicester/
+
+**Reasons to Be Optimistic About a Post-American Order**\
+`Principles of free trade and cooperation have their roots in the non-Western world.`\
+https://nytimes.com/2025/04/08/opinion/west-american-order-free-trade.html
+
 **Tuesday Briefing**\
 `The global response to President Trump’s tariffs.`\
 https://nytimes.com/2025/04/08/briefing/tariffs-iran-russia.html
