@@ -1,3 +1,7 @@
+**Stefanos Tsitsipas and the endless rebirth of clay-court tennis**\
+`Tsitsipas thrives at the Monte Carlo Masters, where he has won three of the past four tournaments. Much of that comes from the clay.`\
+https://nytimes.com/athletic/6250442/2025/04/08/tennis-stefanos-tsitsipas-best-surface-clay-racket/
+
 **What can the Vikings get in a trade for the 24th pick? Here's what history shows**\
 `With just four picks in the draft, the Vikings will have to get lots of bang for their buck. Trading down in the first round could help.`\
 https://nytimes.com/athletic/6262423/2025/04/08/vikings-nfl-draft-trade-down/
