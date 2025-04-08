@@ -1,3 +1,7 @@
+**Tomkins interview: 'I left Palace to continue my career, but opportunities never came'**\
+`The former West Ham and Palace centre-back reflects on his career, his decision to retire and his breakthrough in east London`\
+https://nytimes.com/athletic/6260833/2025/04/08/james-tomkins-crystal-palace-west-ham-interview/
+
 **Height advantage, bypass 'blockers', hit the six-yard box - how Arsenal can hurt Madrid from set pieces**\
 `One of Arsenal's greatest strengths is also Madrid's biggest weakness as their Champions League quarter-final gets started tonight`\
 https://nytimes.com/athletic/6254728/2025/04/08/how-arsenal-can-hurt-real-madrid-at-set-pieces-height-advantage-bypass-blockers-hit-the-six-yard-box/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6263273/2025/04/08/twins-pitching-struggles-loss-to
 **Daniel James: My Game In My Words**\
 `James sat down with The Athletic at Leeds's Thorp Arch training ground to discuss his game and how it has developed`\
 https://nytimes.com/athletic/6259790/2025/04/08/daniel-james-leeds-analysis-manchester-united/
-
-**Prince Harry’s Court Case Over Security in the U.K., Explained**\
-`A two-day hearing is set to begin on Tuesday in London’s Court of Appeal, as Harry challenges the government over his security protection in Britain.`\
-https://nytimes.com/2025/04/08/world/europe/prince-harry-security-hearing-court.html
 

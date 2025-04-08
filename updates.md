@@ -1,3 +1,7 @@
+**Tomkins interview: 'I left Palace to continue my career, but opportunities never came'**\
+`The former West Ham and Palace centre-back reflects on his career, his decision to retire and his breakthrough in east London`\
+https://nytimes.com/athletic/6260833/2025/04/08/james-tomkins-crystal-palace-west-ham-interview/
+
 **Height advantage, bypass 'blockers', hit the six-yard box - how Arsenal can hurt Madrid from set pieces**\
 `One of Arsenal's greatest strengths is also Madrid's biggest weakness as their Champions League quarter-final gets started tonight`\
 https://nytimes.com/athletic/6254728/2025/04/08/how-arsenal-can-hurt-real-madrid-at-set-pieces-height-advantage-bypass-blockers-hit-the-six-yard-box/
