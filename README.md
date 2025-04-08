@@ -1,3 +1,7 @@
+**Birmingham (feat. Tom Brady) are promoted - but this is just the start**\
+`Going up to the Championship is just the first phase for the club and their U.S. owners`\
+https://nytimes.com/athletic/6263719/2025/04/08/birmingham-city-promotion-tom-brady/
+
 **American Library Association Sues to Stop Trump Cuts**\
 `The group argues that efforts to dismantle the Institute of Museum and Library Services imperil the nation’s libraries and violate the law.`\
 https://nytimes.com/2025/04/08/arts/american-library-association-lawsuit-trump-cuts.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/08/us/politics/tulsi-gabbard-intelligence-task-force
 **Submit your questions for upcoming Yankees mailbags**\
 `<p>Before the Yankees begin their weekend series with the San Francisco Giants, Chris Kirschner and Brendan Kuty will be answering your questions in respective mailbags.`\
 https://nytimes.com/athletic/6265004/2025/04/08/submit-your-questions-for-upcoming-yankees-mailbags/
-
-**Until Saturday: Colleges are about to pay players**\
-`Welcome to Until Saturday, The Athletic's college football newsletter. `\
-https://nytimes.com/athletic/6264956/2025/04/08/house-settlement-college-sports-until-saturday/
 

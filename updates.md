@@ -1,3 +1,11 @@
+**American Library Association Sues to Stop Trump Cuts**\
+`The group argues that efforts to dismantle the Institute of Museum and Library Services imperil the nation’s libraries and violate the law.`\
+https://nytimes.com/2025/04/08/arts/american-library-association-lawsuit-trump-cuts.html
+
+**Dozens Die in Floods Hitting Congo’s Capital**\
+`While the Democratic Republic of Congo reels from a new rebel offensive in the east, its capital in the west, Kinshasa,  grapples with deadly floods.`\
+https://nytimes.com/2025/04/08/world/africa/congo-kinshasa-floods.html
+
 **A Party With Floating Sculptures in an Iconic Milanese Garden**\
 `The designer Misha Kahn created fabric-covered inflatables for T’s annual Salone del Mobile celebration.`\
 https://nytimes.com/2025/04/08/t-magazine/salone-milan-design-week-party-misha-kahn.html

@@ -1,3 +1,11 @@
+**American Library Association Sues to Stop Trump Cuts**\
+`The group argues that efforts to dismantle the Institute of Museum and Library Services imperil the nation’s libraries and violate the law.`\
+https://nytimes.com/2025/04/08/arts/american-library-association-lawsuit-trump-cuts.html
+
+**Dozens Die in Floods Hitting Congo’s Capital**\
+`While the Democratic Republic of Congo reels from a new rebel offensive in the east, its capital in the west, Kinshasa,  grapples with deadly floods.`\
+https://nytimes.com/2025/04/08/world/africa/congo-kinshasa-floods.html
+
 **A Party With Floating Sculptures in an Iconic Milanese Garden**\
 `The designer Misha Kahn created fabric-covered inflatables for T’s annual Salone del Mobile celebration.`\
 https://nytimes.com/2025/04/08/t-magazine/salone-milan-design-week-party-misha-kahn.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6265004/2025/04/08/submit-your-questions-for-upcomi
 **Until Saturday: Colleges are about to pay players**\
 `Welcome to Until Saturday, The Athletic's college football newsletter. `\
 https://nytimes.com/athletic/6264956/2025/04/08/house-settlement-college-sports-until-saturday/
-
-**Reviewing the San Francisco Giants' 2025 City Connect uniforms**\
-`The Giants' new City Connects: They're fine. You don't have to like them, but you'll get used to them.`\
-https://nytimes.com/athletic/6264466/2025/04/08/sf-giants-city-connect-uniform-review/
-
-**Brazil's boring turn marks its latest footballing identity crisis**\
-`Acts of flair are being punished at the club level, while the national team's woes have the country's sporting soul thrust into question.`\
-https://nytimes.com/athletic/6264330/2025/04/08/brazil-football-boring-memphis-depay-neymar-vinicius/
 
