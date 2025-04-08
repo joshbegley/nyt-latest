@@ -1,3 +1,15 @@
+**John Fetterman: This Drug Changed My Life. More Americans Need Access.**\
+`The government should make it easier to access GLP-1s.`\
+https://nytimes.com/2025/04/08/opinion/glp1-ozempic-mounjaro-trump.html
+
+**Prime Tire: The thorn in McLaren's side. Plus, Lewis Hamilton's interesting admission**\
+`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
+https://nytimes.com/athletic/6264786/2025/04/08/f1-verstappen-mclaren-lewis-hamilton-ferrari-prime-tire/
+
+**‘Just a Mess’: Staff Cuts, Rushed Changes and Anxiety at Social Security**\
+`President Trump promised not to touch Social Security, but as Elon Musk’s team trims staff and plans cuts to phone services, the system is groaning under the pressure.`\
+https://nytimes.com/2025/04/08/us/social-security-trump.html
+
 **The Destruction of the American Ideal**\
 `Under Trump, we are becoming unrecognizable to our former selves.`\
 https://nytimes.com/2025/04/08/opinion/trump-deporation-america.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6263536/2025/04/08/athletic-football-show-indianapo
 **The Social Security Administration Has Been Changing. Here’s What to Know.**\
 `Deep staff reductions. New policies. Spreading misinformation. Since President Trump has taken office, the agency has been in tumult.`\
 https://nytimes.com/2025/04/08/business/social-security-changes-trump-doge.html
-
-**Oil Spill in North Dakota Prompts Shut Down of Keystone Pipeline**\
-`The spill was confined to a field, and a nearby stream was isolated as a precaution, officials said.`\
-https://nytimes.com/2025/04/08/us/keystone-pipeline-rupture-north-dakota.html
-
-**Notre Dame transfer Olivia Miles commits to TCU: How does she fit?**\
-`Miles has one year of eligibility remaining because she missed the 2023-24 season with a torn ACL`\
-https://nytimes.com/athletic/6263756/2025/04/08/olivia-miles-tcu-notre-dame-transfer-portal/
-
-**Trump to Sign Order Aimed at Reviving a Struggling Coal Industry**\
-`The moves include loosening environmental rules, but it is unclear how much they can help reverse the sharp decline in coal power over the last two decades.`\
-https://nytimes.com/2025/04/08/climate/trump-order-coal-mining.html
 

@@ -1,3 +1,15 @@
+**John Fetterman: This Drug Changed My Life. More Americans Need Access.**\
+`The government should make it easier to access GLP-1s.`\
+https://nytimes.com/2025/04/08/opinion/glp1-ozempic-mounjaro-trump.html
+
+**Prime Tire: The thorn in McLaren's side. Plus, Lewis Hamilton's interesting admission**\
+`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
+https://nytimes.com/athletic/6264786/2025/04/08/f1-verstappen-mclaren-lewis-hamilton-ferrari-prime-tire/
+
+**‘Just a Mess’: Staff Cuts, Rushed Changes and Anxiety at Social Security**\
+`President Trump promised not to touch Social Security, but as Elon Musk’s team trims staff and plans cuts to phone services, the system is groaning under the pressure.`\
+https://nytimes.com/2025/04/08/us/social-security-trump.html
+
 **The Destruction of the American Ideal**\
 `Under Trump, we are becoming unrecognizable to our former selves.`\
 https://nytimes.com/2025/04/08/opinion/trump-deporation-america.html

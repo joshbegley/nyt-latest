@@ -1,3 +1,7 @@
+**Tariffs May Make It Too Expensive to ‘Drill, Baby, Drill’**\
+`President Trump’s tariff polices have sent oil prices falling, which may push energy companies to reconsider their plans to drill.`\
+https://nytimes.com/2025/04/08/climate/tariffs-oil-drilling-trump.html
+
 **John Fetterman: This Drug Changed My Life. More Americans Need Access.**\
 `The government should make it easier to access GLP-1s.`\
 https://nytimes.com/2025/04/08/opinion/glp1-ozempic-mounjaro-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6264691/2025/04/08/taniya-latson-transfer-south-car
 **Watch: Why the Colts have to prioritize Colston Loveland in the draft**\
 `"The Athletic Football Show" discusses why Colston Loveland is a better fit for the Indianapolis Colts than Tyler Warren.`\
 https://nytimes.com/athletic/6263536/2025/04/08/athletic-football-show-indianapolis-colts-colston-loveland-draft/
-
-**The Social Security Administration Has Been Changing. Here’s What to Know.**\
-`Deep staff reductions. New policies. Spreading misinformation. Since President Trump has taken office, the agency has been in tumult.`\
-https://nytimes.com/2025/04/08/business/social-security-changes-trump-doge.html
 
