@@ -1,3 +1,15 @@
+**Panama Official Accuses Hong Kong Port Operator of Misconduct**\
+`The controller general of Panama said CK Hutchison, a Hong Kong conglomerate, did not properly renew its license to operate two ports that are part of a $19 billion deal involving BlackRock.`\
+https://nytimes.com/2025/04/08/business/panama-ports-ck-hutchison-audit.html
+
+**Gabbard Starts a Task Force Focused on Politicization of the Intelligence Agencies**\
+`The director of national intelligence framed it as an effort to eliminate the politicization of the agencies and to investigate episodes where intelligence was “weaponized.”`\
+https://nytimes.com/2025/04/08/us/politics/tulsi-gabbard-intelligence-task-force.html
+
+**Submit your questions for upcoming Yankees mailbags**\
+`<p>Before the Yankees begin their weekend series with the San Francisco Giants, Chris Kirschner and Brendan Kuty will be answering your questions in respective mailbags.`\
+https://nytimes.com/athletic/6265004/2025/04/08/submit-your-questions-for-upcoming-yankees-mailbags/
+
 **Until Saturday: Colleges are about to pay players**\
 `Welcome to Until Saturday, The Athletic's college football newsletter. `\
 https://nytimes.com/athletic/6264956/2025/04/08/house-settlement-college-sports-until-saturday/
