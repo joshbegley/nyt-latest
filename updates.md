@@ -1,3 +1,11 @@
+**An Experiment in Recklessness: Trump as Global Disrupter**\
+`The global trading system is only one example of the administration tearing something apart, only to reveal that it has no plan for how to replace it.`\
+https://nytimes.com/2025/04/08/us/politics/trump-tariffs-global-trade-war.html
+
+**U.S. Commanders Worry Yemen Campaign Will Drain Arms Needed to Deter China**\
+`American military officials say the Pentagon might need to dip into stockpiles in Asia to replenish supplies in the Middle East, congressional aides say.`\
+https://nytimes.com/2025/04/08/us/politics/china-weapons-yemen-bombing.html
+
 **Concerns before Boat Race over River Thames' E. coli levels**\
 `River Action has warned that the Thames would be classified as ‘poor’ under regulations if it were designated as a ‘bathing water’ site.`\
 https://nytimes.com/athletic/6263751/2025/04/08/boat-race-thames-bacteria/
