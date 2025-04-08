@@ -1,3 +1,7 @@
+**'SEC! SEC!' Gators quiet haters with title, making this the best men’s basketball league ever**\
+`The SEC has been very good for several years. But massive tournament success has eluded the league — until now. `\
+https://nytimes.com/athletic/6263676/2025/04/08/sec-basketball-florida-national-champions/
+
 **Belgian stadium evacuated after smoke bombs, flares found under seats**\
 `An explosive detection dog and a specialised unit were called to the stadium to dispose of 14 homemade devices.`\
 https://nytimes.com/athletic/6262143/2025/04/08/charleroi-smoke-bombs-flares/
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/6261591/2025/04/08/charles-kunkle-masters-worst-rec
 `An average NHL intermission typically features children. The Senators hosted a group of elderly skaters from the 80+ Hockey Hall of Fame.`\
 https://nytimes.com/athletic/6258860/2025/04/08/nhl-over-80-hockey-league-canada-senators/
 
-**The Athletic FC: A Premier League side in freefall, De Bruyne could join Messi in Miami and a league that's stopped ranking by results**\
+**The Athletic FC: A Premier League side in freefall, De Bruyne could join Messi in Miami**\
 `Today in TAFC: Ruud van Nistelrooy and Leicester City plumb new depths and Inter Miami's De Bruyne discovery rights revealed`\
 https://nytimes.com/athletic/6263668/2025/04/08/leicester-kevin-de-bruyne-lionel-messi-inter-miami/
-
-**Who's the Broncos' next Nik Bonitto? A look at 5 in-house breakout candidates in 2025**\
-`Why there are signs Bo Nix can author a Year 2 leap that further improves Denver's growing offense.`\
-https://nytimes.com/athletic/6262009/2025/04/08/broncos-breakout-candidates-2025/
 

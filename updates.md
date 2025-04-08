@@ -1,3 +1,15 @@
+**Belgian stadium evacuated after smoke bombs, flares found under seats**\
+`An explosive detection dog and a specialised unit were called to the stadium to dispose of 14 homemade devices.`\
+https://nytimes.com/athletic/6262143/2025/04/08/charleroi-smoke-bombs-flares/
+
+**FEMA Tells New York to Fork Over Another $106 Million in Migrant Grants**\
+`Federal officials informed New York City that three previously issued grants were inconsistent with President Trump’s agenda; Mayor Eric Adams said the city would sue.`\
+https://nytimes.com/2025/04/08/nyregion/fema-migrants-money-nyc.html
+
+**The Athletic FC: A Premier League side in freefall, De Bruyne could join Messi in Miami and a league that's stopped ranking by results**\
+`Today in TAFC: Ruud van Nistelrooy and Leicester City plumb new depths and Inter Miami's De Bruyne discovery rights revealed`\
+https://nytimes.com/athletic/6263668/2025/04/08/leicester-kevin-de-bruyne-lionel-messi-inter-miami/
+
 **Florida's Alijah Martin will talk about his second chance at the Final Four forever**\
 `Alijah Martin didn't talk of the painful 2023 Final Four with Florida Atlantic. But he'll share Monday's triumph with both Gators and Owls.`\
 https://nytimes.com/athletic/6263464/2025/04/08/florida-basketball-alijah-martin-fau-ncaa-title/
