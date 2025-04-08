@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6264783/2025/04/08/yankees-starting-rotation-limited-options/
 
 **William Finn, Tony Winner for ‘Falsettos,’ Is Dead at 73**\
-`An acclaimed musical theater writer, he won for both his core and his book and later scored a huge hit with “The 25th Annual Putnam County Spelling Bee.”`\
+`An acclaimed musical theater writer, he won for both his score and his book and later had a huge hit with “The 25th Annual Putnam County Spelling Bee.”`\
 https://nytimes.com/2025/04/08/theater/william-finn-dead.html
 
 **Rice: 'Originally we were going to cross' first free-kick vs Real Madrid**\
