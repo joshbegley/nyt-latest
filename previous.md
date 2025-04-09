@@ -1,3 +1,7 @@
+**India’s Drug Makers Shudder as Trump Again Threatens Tariffs**\
+`The United States is India’s biggest market for pharmaceutical exports, which are its most successful industrial exports.`\
+https://nytimes.com/2025/04/09/business/trump-tariffs-pharmaceuticals-india.html
+
 **Early women's Euro 2025 betting guide: Spain favoured ahead of England**\
 `Julia Ranney applies a betting lens to this summer’s women’s European Championships, outlining the favourites and the dark horse picks. `\
 https://nytimes.com/athletic/6252014/2025/04/09/womens-euro-odds-picks-preview/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/09/arts/television/desi-lydic-trump-tariffs-china.ht
 **China Censors Hashtags Mentioning ‘104%,’ the Size of Trump’s Tariffs**\
 `State media drove social media discussions around phrases like: “America is fighting a trade war while begging for eggs.”`\
 https://nytimes.com/2025/04/09/world/asia/china-tariffs-censorship.html
-
-**Nemanja Matic interview: Facing Man Utd at 36, trophies 'not the focus' at Old Trafford and Mourinho's 'clowns' speech**\
-`Nemanja Matic speaks openly about the differences between Manchester United and Chelsea, his relationship with Mourinho and playing for Lyon`\
-https://nytimes.com/athletic/6263580/2025/04/09/nemanja-matic-manchester-united-trophies-mourinho/
 

@@ -1,3 +1,7 @@
+**India’s Drug Makers Shudder as Trump Again Threatens Tariffs**\
+`The United States is India’s biggest market for pharmaceutical exports, which are its most successful industrial exports.`\
+https://nytimes.com/2025/04/09/business/trump-tariffs-pharmaceuticals-india.html
+
 **Early women's Euro 2025 betting guide: Spain favoured ahead of England**\
 `Julia Ranney applies a betting lens to this summer’s women’s European Championships, outlining the favourites and the dark horse picks. `\
 https://nytimes.com/athletic/6252014/2025/04/09/womens-euro-odds-picks-preview/
