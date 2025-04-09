@@ -1,3 +1,11 @@
+**Family Seeks Answers After Death of American Tourist in the Bahamas**\
+`The mother of Dinari McAlmont, 23, of Bowie, Md., says that a photo that the police showed her indicated that her son had been badly beaten.`\
+https://nytimes.com/2025/04/09/world/maryland-man-death-bahamas.html
+
+**Army Secretary Replaces Patel as Head of A.T.F.**\
+`The unusual move has placed a civilian military leader in charge of a domestic law enforcement entity.`\
+https://nytimes.com/2025/04/09/us/politics/patel-army-secretary-atf.html
+
 **Trump Asks Supreme Court to Let Him Fire Agencies’ Leaders**\
 `An appeals court ordered Cathy Harris and Gwynne Wilcox reinstated to their positions at agencies protecting workers’ rights.`\
 https://nytimes.com/2025/04/09/us/politics/trump-supreme-court-agency-leaders-firings.html
@@ -26,15 +34,7 @@ https://nytimes.com/2025/04/09/science/xavier-le-pichon-dead.html
 `Mr. Huckabee’s nomination drew sharp criticism from Democrat lawmakers and some faith groups, who said his past statements on Palestinian identity were “highly incendiary.”`\
 https://nytimes.com/2025/04/09/world/americas/mike-huckabee-ambassador-israel.html
 
-**Two Theories of What’s Going on With the Bond Market**\
-`By Steven Rattner`\
+**Two Theories of What’s Going On With the Bond Market**\
+`There’s been an unusual amount of activity in the bond market this week. A likely cause is the strange behavior that can occur in times of financial stress.`\
 https://nytimes.com/live/2025/04/07/opinion/thepoint/bond-market-tariffs
-
-**House Republicans Move to Prevent Vote on Repealing Trump’s Tariffs**\
-`Under a measure the G.O.P. is working to pass on Wednesday, lawmakers would give up their ability to force a vote on undoing the president’s tariffs until October.`\
-https://nytimes.com/2025/04/09/us/politics/house-republicans-trump-tariffs-vote.html
-
-**Death Toll Continues to Climb After Dominican Nightclub Roof Collapse**\
-`People looked for signs that their missing friends and family members might have survived the deadly nightclub roof collapse in the Dominican Republic.`\
-https://nytimes.com/video/world/americas/100000010100969/dominican-roof-collapse-survivors.html
 
