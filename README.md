@@ -1,3 +1,11 @@
+**OpenAI Asks Court to Bar Elon Musk From Unfairly Attacking It**\
+`In a legal filing on Wednesday, OpenAI asked a federal court to hold Mr. Musk responsible for any damage he has caused the firm, in the latest sign of their bitter feud.`\
+https://nytimes.com/2025/04/09/technology/openai-elon-musk-lawsuit.html
+
+**Justice Dept. Bars Its Lawyers From American Bar Association Functions**\
+`The punitive move comes amid the Trump administration’s pressure campaign against big law firms.`\
+https://nytimes.com/2025/04/09/us/politics/justice-dept-bars-its-lawyers-from-american-bar-association-functions.html
+
 **Trump Administration Cuts Funding and Staff for Flagship Climate Report**\
 `The move raises concerns among scientists that the assessment, which is required by Congress, is now in jeopardy.`\
 https://nytimes.com/2025/04/09/climate/trump-national-climate-assessment.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6268090/2025/04/09/declan-rice-prince-william-free-
 **One-Third of Maternal Deaths Occur Long After Delivery, Study Finds**\
 `Pregnancy-related mortality has risen sharply, and doctors have overlooked a particularly dangerous period: from six weeks to one year after the birth.`\
 https://nytimes.com/2025/04/09/health/maternal-death-pandemic.html
-
-**These Are the Buildings You Need to See in Milan**\
-`The Italian city has a reputation for being gray, but its architecture is far from dull.`\
-https://nytimes.com/2025/04/09/t-magazine/milan-architecture-building-guide.html
-
-**Former Penguins coach Dan Bylsma mourns Ray Shero's death**\
-`A tearful Bylsma expressed his love and respect for his old boss Shero, who passed away on Thursday.`\
-https://nytimes.com/athletic/6267847/2025/04/09/ray-shero-death-dan-bylsma/
 

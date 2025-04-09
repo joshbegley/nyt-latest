@@ -1,3 +1,7 @@
+**Trump Administration Cuts Funding and Staff for Flagship Climate Report**\
+`The move raises concerns among scientists that the assessment, which is required by Congress, is now in jeopardy.`\
+https://nytimes.com/2025/04/09/climate/trump-national-climate-assessment.html
+
 **The Masters let Ángel Cabrera return. What does that say?**\
 `Cabrera is 20 months removed from a 30-month prison stint. He spent time in three different jails for domestic violence.`\
 https://nytimes.com/athletic/6268095/2025/04/09/masters-angel-cabrera-return-champion/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/09/t-magazine/milan-architecture-building-guide.html
 **Former Penguins coach Dan Bylsma mourns Ray Shero's death**\
 `A tearful Bylsma expressed his love and respect for his old boss Shero, who passed away on Thursday.`\
 https://nytimes.com/athletic/6267847/2025/04/09/ray-shero-death-dan-bylsma/
-
-**Texas Tech's Toppin returning in 2025-26, with big NIL payday expected**\
-`Toppin's return to school is emblematic of a time where some players can make more money in college basketball than the NBA.`\
-https://nytimes.com/athletic/6268061/2025/04/09/jt-toppin-texas-tech-return-nil/
 

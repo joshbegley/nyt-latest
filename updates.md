@@ -1,3 +1,7 @@
+**Trump Administration Cuts Funding and Staff for Flagship Climate Report**\
+`The move raises concerns among scientists that the assessment, which is required by Congress, is now in jeopardy.`\
+https://nytimes.com/2025/04/09/climate/trump-national-climate-assessment.html
+
 **The Masters let Ángel Cabrera return. What does that say?**\
 `Cabrera is 20 months removed from a 30-month prison stint. He spent time in three different jails for domestic violence.`\
 https://nytimes.com/athletic/6268095/2025/04/09/masters-angel-cabrera-return-champion/
