@@ -1,3 +1,5 @@
+
+
 **Submit your Falcons mock drafts for Josh Kendall’s mock draft mailbag**\
 `Submit your Falcons mock drafts — trade up, trade back, stand pat, and let us know what you think is the best route for GM Terry Fontenot.`\
 https://nytimes.com/athletic/6267638/2025/04/09/falcons-mock-draft-mailbag-submissions/
