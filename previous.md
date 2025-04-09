@@ -1,3 +1,15 @@
+**U.S. Bond Sell-Off is Another Worrisome Echo of the Liz Truss Fiasco**\
+`Yields on U.S. Treasuries rose Wednesday as investors sold government bonds, usually a haven. In Britain, a sustained version of that trend in 2022 led to a prime minister’s downfall.`\
+https://nytimes.com/2025/04/09/business/economy/us-bonds-trump-truss-treasury-yield.html
+
+**Phillies outfield adventures prove anything but routine in loss to Braves**\
+`Edmundo Sosa's bat forced the Phillies to play him in left field. He caught a would-be homer, but later was involved in a critical misplay.`\
+https://nytimes.com/athletic/6265978/2025/04/09/phillies-outfield-adventure/
+
+**'It’s not a one-man sport': Cubs are more than just the Kyle Tucker show**\
+`There are signs that Chicago's offense should be more than just a sizzle reel that Tucker’s agency can send to clubs next offseason.`\
+https://nytimes.com/athletic/6265807/2025/04/09/chicago-cubs-kyle-tucker/
+
 **At Augusta, pain lurks. Players are trying anything to beat it: 'I have been put in hypnotic states'**\
 `"So many things have happened in my career and my life that I can sort of laugh about it now. But it’s still there.”`\
 https://nytimes.com/athletic/6264958/2025/04/09/masters-mcilroy-hypnosis-spieth-loss/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6255539/2025/04/09/the-masters-cbs-jim-nantz-scotti
 **Mark Cuban sold the Mavs expecting to still make decisions. Then he heard they traded Luka Dončić**\
 `After the Luka Dončić trade went down, it became clear that Mark Cuban didn't hold the same power he had wielded for two decades in Dallas.`\
 https://nytimes.com/athletic/6265114/2025/04/09/luka-doncic-trade-mark-cuban-nico-harrison-mavericks/
-
-**WNBA mock draft: Who will go after UConn's Paige Bueckers?**\
-`With so many eligible players opting to stay in college, expect a few teams to select intriguing international prospects.`\
-https://nytimes.com/athletic/6265731/2025/04/09/wnba-mock-draft-uconn-bueckers/
-
-**The University President Willing to Fight Trump**\
-`Christopher L. Eisgruber of Princeton University talks about the administration’s move to freeze billions of dollars in funding to higher education institutions.`\
-https://nytimes.com/2025/04/09/podcasts/the-daily/princeton-university-trump.html
-
-**Wordle Review No. 1,391**\
-`Scroll down for hints and conversation about the puzzle for Thursday, April 10, 2025.`\
-https://nytimes.com/2025/04/09/crosswords/wordle-review-1391.html
 
