@@ -1,3 +1,7 @@
+**Islamic State Regains Strength in Syria**\
+`The U.S. has sent more forces to Syria, tamping down on the immediate threat, but experts warn that the extremist group could break thousands of hardened fighters out of prison.`\
+https://nytimes.com/2025/04/09/world/middleeast/syria-isis-prisoners.html
+
 **European Officials to Vote Today on First Retaliatory Tariffs**\
 `The European Union is poised to approve a plan to hit back at President Trump’s steel and aluminum levies. Further measures could come next.`\
 https://nytimes.com/2025/04/09/world/europe/eu-tariffs-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6265287/2025/04/09/cowboys-brian-schottenheimer-pla
 **The Strange Case of an Hermès Heir, an Emir and a Deal Gone Wrong**\
 `Nicolas Puech agreed to sell his multibillion-dollar stake in his family’s luxury goods empire to the royal family of Qatar, but then said he couldn’t gain access to his shares.`\
 https://nytimes.com/2025/04/09/world/europe/hermes-qatar-puech-deal.html
-
-**Would You Pay $2,000 for an iPhone? How About $3,000?**\
-`You will probably have to pay a lot more for your next iPhone. That’s bad news for Apple, for our markets and for our economy.`\
-https://nytimes.com/2025/04/09/opinion/tariffs-china-iphone-apple.html
 
