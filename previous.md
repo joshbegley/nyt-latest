@@ -1,3 +1,11 @@
+**Cavaliers clinch No. 1 seed in the East for first time without LeBron**\
+`Rout of Bulls gives Cavs four-game lead over Celtics with three games remaining in the regular season.`\
+https://nytimes.com/athletic/6265575/2025/04/08/cavaliers-clinch-top-seed-east-without-lebron/
+
+**Kepner: Octavio Dotel — the pitcher everybody wanted — left a legacy of strikeouts and smiles**\
+`Dotel, who played for 13 teams in his major-league career, died Tuesday after a roof collapse at a club in his native Dominican Republic.`\
+https://nytimes.com/athletic/6265376/2025/04/08/octavio-dotel-legacy-mlb-reliever/
+
 **Astros trade reliever Rafael Montero to Braves**\
 `The Astros tried to offload Montero this winter, but found no takers for a 34-year-old reliever with one standout major-league season.`\
 https://nytimes.com/athletic/6265587/2025/04/08/astros-braves-trade-rafael-montero/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6265424/2025/04/08/winnipeg-jets-prospect-chaz-luci
 **Ken Paxton Says He Will Challenge Senator John Cornyn in 2026**\
 `The announcement by Mr. Paxton, the attorney general of Texas and a firebrand conservative, set up what is expected to be a blockbuster showdown in Texas.`\
 https://nytimes.com/2025/04/08/us/ken-paxton-john-cornyn-senate-race.html
-
-**Jarren Duran wants those struggling with mental health to know they're not alone**\
-`Duran hopes to reach those who might feel alone with their mental health struggles. "Even if I can just help one person, it's meaningful."`\
-https://nytimes.com/athletic/6265406/2025/04/08/jarren-duran-red-sox-mental-health-awareness/
-
-**3 Are Killed in Shooting Near Fredericksburg, Va., Authorities Say**\
-`Three others were injured in the shooting, which occurred on a suburban street in Spotsylvania County, about 60 miles southwest of Washington, D.C.`\
-https://nytimes.com/2025/04/08/us/shooting-virginia-fredericksburg.html
 
