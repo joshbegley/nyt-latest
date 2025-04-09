@@ -1,3 +1,19 @@
+**Here’s the latest.**\
+`By Ana Swanson`\
+https://nytimes.com/live/2025/04/08/business/trump-tariffs-china-stock-market/heres-the-latest
+
+**Live Updates: Punishing Tariffs Set to Take Effect as Trump Shows No Signs of Backing Down**\
+`Investors braced for another rocky day of trading. South Korea and Japan are sending delegations to Washington to negotiate, while China says it will fight the latest levies.`\
+https://nytimes.com/live/2025/04/08/business/trump-tariffs-china-stock-market
+
+**Blue Jackets awaken offensively, stave off playoff elimination by beating Ottawa**\
+`The odds might be long for Columbus to make the postseason, but the Blue Jackets are determined to keep pushing.`\
+https://nytimes.com/athletic/6265839/2025/04/08/blue-jackets-wild-card-race-senators/
+
+**Here’s what happened on Tuesday.**\
+`By The New York Times`\
+https://nytimes.com/live/2025/04/08/us/trump-news-tariffs/heres-what-happened-on-tuesday
+
 **Was Dončić talking to ref or fan? Star ejected late in loss to Thunder**\
 `OKC outscored L.A. 28-13 after Lakers star was tossed. LeBron James calls finish "weird as hell."`\
 https://nytimes.com/athletic/6265843/2025/04/08/luka-doncic-ejected-lakers-lose-to-thunder/

@@ -1,3 +1,19 @@
+**Here’s the latest.**\
+`By Ana Swanson`\
+https://nytimes.com/live/2025/04/08/business/trump-tariffs-china-stock-market/heres-the-latest
+
+**Live Updates: Punishing Tariffs Set to Take Effect as Trump Shows No Signs of Backing Down**\
+`Investors braced for another rocky day of trading. South Korea and Japan are sending delegations to Washington to negotiate, while China says it will fight the latest levies.`\
+https://nytimes.com/live/2025/04/08/business/trump-tariffs-china-stock-market
+
+**Blue Jackets awaken offensively, stave off playoff elimination by beating Ottawa**\
+`The odds might be long for Columbus to make the postseason, but the Blue Jackets are determined to keep pushing.`\
+https://nytimes.com/athletic/6265839/2025/04/08/blue-jackets-wild-card-race-senators/
+
+**Here’s what happened on Tuesday.**\
+`By The New York Times`\
+https://nytimes.com/live/2025/04/08/us/trump-news-tariffs/heres-what-happened-on-tuesday
+
 **How the Ottawa Senators ended their 8-year playoff drought**\
 `The Senators will return to the Stanley Cup playoffs for the first time since 2017. What took so long, and how did they finally get here?`\
 https://nytimes.com/athletic/6256528/2025/04/08/ottawa-senators-nhl-playoffs-clinch-drought/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/04/08/business/trump-tariffs-stock-markets.html
 **Maple Leafs report cards: Not many silver linings for Toronto in loss to Panthers**\
 `Toronto consistently folded under the offensive pressure Florida applied and was outshot 37-18 on the way to a 3-1 loss.`\
 https://nytimes.com/athletic/6265404/2025/04/08/maple-leafs-panthers-score-grades/
-
-**Like a Limbo Bar**\
-`Aidan Deshong and Oren Hartstein write a set of less-than-stellar reviews.`\
-https://nytimes.com/2025/04/08/crosswords/daily-puzzle-2025-04-09.html
-
-**Sabres eliminated from playoff contention as record drought hits 14 years**\
-`The Sabres are are now tied with the New York Jets for the longest active playoff drought in pro sports.`\
-https://nytimes.com/athletic/6262306/2025/04/08/buffalo-sabres-playoff-drought-record/
-
-**Twins' Pablo López exits game with apparent hamstring injury**\
-`It interrupted his best start of the season. López grabbed the back of his right leg with two outs in the fifth inning, then left the game. `\
-https://nytimes.com/athletic/6265706/2025/04/08/pablo-lopez-leg-injury-twins-royals/
-
-**Why Ivan Demidov's entry-level contract with Canadiens includes a Conn Smythe bonus**\
-`Demidov's three-year entry-level contract includes a $525,000 bonus if he wins the Conn Smythe Trophy as MVP of the upcoming playoffs.`\
-https://nytimes.com/athletic/6265641/2025/04/08/canadiens-ivan-demidov-contract/
 
