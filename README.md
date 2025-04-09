@@ -1,3 +1,7 @@
+**Onana among 'worst goalkeepers in Man Utd history' - Matic**\
+`Matic was responding to Onana's comments that United were "way better" than Lyon ahead of their Europa League quarter-final tie.`\
+https://nytimes.com/athletic/6266741/2025/04/09/manchester-united-andre-onana-matic/
+
 **China Hits Back Again at Trump, Bringing New Tariffs on U.S. Goods to 84%**\
 `Beijing announced a new round of 50 percent tariffs in response to President Trump’s latest levies as the trade conflict between the superpowers escalates.`\
 https://nytimes.com/live/2025/04/08/business/trump-tariffs-china-stock-market/china-tariffs-us
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6266501/2025/04/09/bournemouth-ryan-christie-surger
 **Arsenal's Gabriel to miss 'four months' with hamstring injury - Arteta**\
 `After the Real Madrid victory, while praising Gabriel’s replacement Jakub Kiwior, Arteta confirmed the timescale of Gabriel’s absence.`\
 https://nytimes.com/athletic/6266319/2025/04/09/arsenal-gabriel-injury-how-long/
-
-**Emma Hayes is putting her USWNT players in the frying pan. Who can handle the heat?**\
-`Coach Hayes experimenting with her player pool as attention turns to the 2027 World Cup led to a 2-1 home loss against Brazil on Tuesday`\
-https://nytimes.com/athletic/6266623/2025/04/09/uswnt-brazil-emma-hayes-analysis/
 
