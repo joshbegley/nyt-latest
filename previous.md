@@ -1,3 +1,7 @@
+**How Arsenal came of age on a night that could change everything**\
+`An unlikely set of heroes delivered a win for the ages against Real Madrid and showed what this squad can achieve`\
+https://nytimes.com/athletic/6265516/2025/04/09/arsenal-real-madrid-champions-league-analysis/
+
 **The New York Times in Print for Wednesday, April 9, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/04/09/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6254118/2025/04/09/tottenham-hotspur-europa-league-
 **Why Nuno must be manager of the season**\
 `Nuno has led Nottingham Forest to the cusp of Champions League qualification this season`\
 https://nytimes.com/athletic/6263600/2025/04/09/nuno-nottingham-forest-manager-season/
-
-**Introducing Barcelona's secret weapon: Robert Lewandowski pointing at space**\
-`In a subtle way, Lewandowski is as crucial to his side's build-up play as ever — even if the numbers don't show it`\
-https://nytimes.com/athletic/6260972/2025/04/09/robert-lewandowski-barcelona-pointing-dortmund/
 

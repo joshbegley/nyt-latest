@@ -1,3 +1,7 @@
+**How Arsenal came of age on a night that could change everything**\
+`An unlikely set of heroes delivered a win for the ages against Real Madrid and showed what this squad can achieve`\
+https://nytimes.com/athletic/6265516/2025/04/09/arsenal-real-madrid-champions-league-analysis/
+
 **The New York Times in Print for Wednesday, April 9, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/04/09/todays-new-york-times
