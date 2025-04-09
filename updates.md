@@ -1,3 +1,7 @@
+**Kristaps Porziņģis once aimed to shoot shorter 3s, but the longer ones can't be touched**\
+`Where Porziņģis usually spots up, several feet behind the arc, only forces defenders to cover more ground to guard him.`\
+https://nytimes.com/athletic/6266087/2025/04/09/celtics-kristaps-porzingis-three-pointers/
+
 **How Arsenal came of age on a night that could change everything**\
 `An unlikely set of heroes delivered a win for the ages against Real Madrid and showed what this squad can achieve`\
 https://nytimes.com/athletic/6265516/2025/04/09/arsenal-real-madrid-champions-league-analysis/

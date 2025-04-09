@@ -1,3 +1,7 @@
+**Reeling From Trump’s Tariffs, South Korea Tries Striking a Delicate Balance**\
+`As its trade negotiators headed to Washington for talks, South Korea announced measures to support the country’s carmakers who were badly hit by the levies announced by President Trump.`\
+https://nytimes.com/2025/04/09/world/asia/south-korea-trump-tariffs-automakers.html
+
 **Kristaps Porziņģis once aimed to shoot shorter 3s, but the longer ones can't be touched**\
 `Where Porziņģis usually spots up, several feet behind the arc, only forces defenders to cover more ground to guard him.`\
 https://nytimes.com/athletic/6266087/2025/04/09/celtics-kristaps-porzingis-three-pointers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6260866/2025/04/09/brighton-europe/
 **Why winning the Conference League is more important than ever to Chelsea**\
 `Winning the Conference League would give Chelsea benefits across the board if they fail to qualify for the Champions League`\
 https://nytimes.com/athletic/6263960/2025/04/09/chelsea-conference-league-importance/
-
-**Can Europa League football inspire a better version of Tottenham Hotspur?**\
-`Is it possible for one team to be so bad in the Premier League but to step onto the European stage and become a completely different side?`\
-https://nytimes.com/athletic/6254118/2025/04/09/tottenham-hotspur-europa-league-prospects/
 
