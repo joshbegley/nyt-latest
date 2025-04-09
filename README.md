@@ -1,3 +1,11 @@
+**Trump Asks Supreme Court to Let Him Fire Agencies’ Leaders**\
+`An appeals court ordered Cathy Harris and Gwynne Wilcox reinstated to their positions at agencies protecting workers’ rights.`\
+https://nytimes.com/2025/04/09/us/politics/trump-supreme-court-agency-leaders-firings.html
+
+**Vladimir Guerrero Jr.'s Blue Jays extension includes a $325M signing bonus**\
+`The Jays will pay out 65 percent of Guerrero’s 14-year-contract in signing bonus.`\
+https://nytimes.com/athletic/6267788/2025/04/09/vladimir-guerrero-blue-jays-signing-bonus/
+
 **Israeli Strike Kills Over 20, Including Children, Gaza Officials Say**\
 `The Israeli military said it was targeting a Hamas operative who it said was responsible for planning attacks. Dozens of people were injured in the strike on a Gaza City neighborhood.`\
 https://nytimes.com/video/world/100000010100701/gaza-city-israeli-airstrike.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/09/us/politics/house-republicans-trump-tariffs-vote.
 **Death Toll Continues to Climb After Dominican Nightclub Roof Collapse**\
 `People looked for signs that their missing friends and family members might have survived the deadly nightclub roof collapse in the Dominican Republic.`\
 https://nytimes.com/video/world/americas/100000010100969/dominican-roof-collapse-survivors.html
-
-**LeBrun: How the Canadiens' deal to bring over Ivan Demidov from the KHL came together so quickly**\
-`No one involved in Demidov’s release from his KHL contract knew for sure it was happening until Tuesday. He could make his debut Monday.`\
-https://nytimes.com/athletic/6267646/2025/04/09/ivan-demidov-khl-canadiens-contract/
-
-**Tiny Love Stories: ‘This Unusual Wooing Worked’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2025/04/09/style/tiny-modern-love-stories-this-unusual-wooing-worked.html
 
