@@ -1,3 +1,7 @@
+**What Rights Do Migrants Have?**\
+`Plus, we cover the arrival of Trump’s tariffs.`\
+https://nytimes.com/2025/04/09/briefing/immigration-due-process-donald-trump.html
+
 **Brandin Podziemski got his confidence back at just the right time for Warriors**\
 `After some early-season struggles, Podziemski is starting to fulfill the potential that Golden State saw in him.`\
 https://nytimes.com/athletic/6265953/2025/04/09/brandin-podziemski-warriors-turnaround-nba/
