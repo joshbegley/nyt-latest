@@ -1,3 +1,7 @@
+**India’s Millions of New Investors Are Reeling From Tariff Turmoil**\
+`Legions of ordinary Indians have gone into stock trading, lured by easy online access and a market boom. Now many of them are getting a rude shock.`\
+https://nytimes.com/2025/04/09/world/asia/india-tariffs-stock-market.html
+
 **Scottie Barnes' poor shooting season clouds the Raptors' offensive outlook**\
 `Scottie Barnes is a complex player to build around primarily because of his low shooting numbers.`\
 https://nytimes.com/athletic/6265001/2025/04/09/scottie-barnes-poor-shooting-raptors/

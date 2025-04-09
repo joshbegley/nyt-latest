@@ -1,3 +1,7 @@
+**India’s Millions of New Investors Are Reeling From Tariff Turmoil**\
+`Legions of ordinary Indians have gone into stock trading, lured by easy online access and a market boom. Now many of them are getting a rude shock.`\
+https://nytimes.com/2025/04/09/world/asia/india-tariffs-stock-market.html
+
 **Scottie Barnes' poor shooting season clouds the Raptors' offensive outlook**\
 `Scottie Barnes is a complex player to build around primarily because of his low shooting numbers.`\
 https://nytimes.com/athletic/6265001/2025/04/09/scottie-barnes-poor-shooting-raptors/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6264979/2025/04/09/nhl-hockey-fights-punch-rangers/
 **A reinvented Matt Rhule? Not exactly, but Nebraska's coach more 'serene' in Year 3**\
 `Rhule used the word "bored" to describe himself at a recent practice. And he meant it in a good way. `\
 https://nytimes.com/athletic/6265197/2025/04/09/nebraska-coach-matt-rhule-spring-practice/
-
-**How to watch Lakers at Mavericks: Luka Dončić returns to Dallas, LeBron and AD reunite**\
-`It's a wild game Wednesday. LeBron James and Anthony Davis face off, and Luka Dončić goes revenge mode against the team that traded him.`\
-https://nytimes.com/athletic/6264571/2025/04/09/lakers-mavericks-luka-anthony-davis-how-to-watch/
 
