@@ -1,3 +1,19 @@
+**Oil Prices Tumble, Squeezing U.S. Producers**\
+`The slide in crude prices signals deteriorating confidence in the strength of the economy.`\
+https://nytimes.com/2025/04/09/business/energy-environment/oil-prices-tariffs-trump.html
+
+**LeBron James becomes first pro athlete to be turned into a Ken doll**\
+`Ahead of the 65th anniversary of the Ken doll, LeBron becomes the first "Kenbassador" `\
+https://nytimes.com/athletic/6266058/2025/04/09/lebron-james-ken-doll-barbie/
+
+**The Long, Slow Death of Celebrity Feminism**\
+`Lauren Sánchez and her celebrity rocket trip can only take us so far.`\
+https://nytimes.com/2025/04/09/opinion/celebrity-feminism-blue-origin.html
+
+**My Friend Won’t Speak to Me After I Blabbed About Her Secret Lover. Help!**\
+`A reader is frustrated to be on the outs with her friend and their roommates after telling them about her friend’s hookups with another friend’s ex.`\
+https://nytimes.com/2025/04/09/style/friend-hookup-discretion.html
+
 **Congo Repatriates 3 Americans Sentenced to Death Over Failed Coup**\
 `The men recently had their sentences commuted to life imprisonment for their role in an attempted coup last May in the central African nation.`\
 https://nytimes.com/2025/04/09/world/africa/congo-americans-coup.html
