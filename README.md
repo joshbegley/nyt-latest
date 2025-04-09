@@ -1,3 +1,19 @@
+**Why winning the Conference League is more important than ever to Chelsea**\
+`Winning the Conference League would give Chelsea benefits across the board if they fail to qualify for the Champions League`\
+https://nytimes.com/athletic/6263960/2025/04/09/chelsea-conference-league-importance/
+
+**Can Europa League football inspire a better version of Tottenham Hotspur?**\
+`Is it possible for one team to be so bad in the Premier League but to step onto the European stage and become a completely different side?`\
+https://nytimes.com/athletic/6254118/2025/04/09/tottenham-hotspur-europa-league-prospects/
+
+**Why Nuno must be manager of the season**\
+`Nuno has led Nottingham Forest to the cusp of Champions League qualification this season`\
+https://nytimes.com/athletic/6263600/2025/04/09/nuno-nottingham-forest-manager-season/
+
+**Introducing Barcelona's secret weapon: Robert Lewandowski pointing at space**\
+`In a subtle way, Lewandowski is as crucial to his side's build-up play as ever — even if the numbers don't show it`\
+https://nytimes.com/athletic/6260972/2025/04/09/robert-lewandowski-barcelona-pointing-dortmund/
+
 **Who could replace Alexander-Arnold at Liverpool?**\
 `Analysing the candidates - internal and external - to replace the right-back if he departs for Real Madrid this summer`\
 https://nytimes.com/athletic/6249195/2025/04/09/trent-alexander-arnold-liverpool-replacements/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6263808/2025/04/09/chukwuemeka-dortmund-chelsea-bar
 **Unai Emery at PSG: The historic defeat that casts a shadow over his time in Paris**\
 `The Aston Villa manager returns to the Parc des Princes with his reputation restored after a tough time with the French club`\
 https://nytimes.com/athletic/6257180/2025/04/09/unai-emery-paris-saint-germain-champions-league/
-
-**Adams Administration Will Give ICE Space to Operate on Rikers Island**\
-`An executive order says federal immigration agents would work with city officials on criminal investigations only. Critics say the move opens the door for wrongdoing.`\
-https://nytimes.com/2025/04/09/nyregion/adams-ice-rikers-island.html
-
-**Inside Southampton's relegation: 'Slow-motion car crash', Solak frustration and what comes next**\
-`In less than a year, Southampton went from a play-off winners to the first Premier League team relegated with seven games still left to play`\
-https://nytimes.com/athletic/6263658/2025/04/09/southampton-relegation-inside-premier-league/
-
-**Where Ukrainian Children Once Played, Piles of Toys Memorialize the Dead**\
-`A Russian missile strike near a playground in central Ukraine killed 19 people, including nine children. The attack was a painful reminder that a cease-fire remains as distant as ever.`\
-https://nytimes.com/2025/04/09/world/europe/ukraine-kryvyi-ri-attack.html
-
-**Trump Wants an Iran Nuclear Deal, but It Must Be Better Than Obama’s**\
-`Nuclear talks between the United States and Iran are set for Saturday. President Trump has set a high bar for success.`\
-https://nytimes.com/2025/04/09/us/politics/trump-iran-nuclear-deal.html
 
