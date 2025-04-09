@@ -1,3 +1,11 @@
+**Devastating Floods Hit Congo’s Capital, Leaving Dozens Dead**\
+`People waded through knee-deep waters after a deadly storm brought torrential rain that flooded streets and cars in the Democratic Republic of Congo’s capital.`\
+https://nytimes.com/video/world/africa/100000010099664/congo-kinshasa-floods.html
+
+**Braves' Sean Murphy returns from IL, homers off Zack Wheeler in first at-bat**\
+`The Braves came from behind to capture a series-opening win against the Philadelphia Phillies: “Everybody kind of did their job."`\
+https://nytimes.com/athletic/6266019/2025/04/09/braves-sean-murphy-zack-wheeler/
+
 **Blackhawks 'blow off some steam' in team meeting after shutout loss to Pens**\
 `Connor Murphy and Ryan Donato didn't share details but said the meeting was an important learning step for the whole team.`\
 https://nytimes.com/athletic/6265715/2025/04/09/blackhawks-team-meeting-shutout-penguins/

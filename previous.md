@@ -1,5 +1,9 @@
+**Devastating Floods Hit Congo’s Capital, Leaving Dozens Dead**\
+`People waded through knee-deep waters after a deadly storm brought torrential rain that flooded streets and cars in the Democratic Republic of Congo’s capital.`\
+https://nytimes.com/video/world/africa/100000010099664/congo-kinshasa-floods.html
+
 **Braves' Sean Murphy returns from IL, homers off Zack Wheeler in first at-bat**\
-`ATLANTA — On a night when Chris Sale looked like just another pitcher instead of the reigning NL Cy Young Award winner, the Atlanta Braves needed someone to step up and spark a moribund offense.`\
+`The Braves came from behind to capture a series-opening win against the Philadelphia Phillies: “Everybody kind of did their job."`\
 https://nytimes.com/athletic/6266019/2025/04/09/braves-sean-murphy-zack-wheeler/
 
 **Assessing Brighton's chances of Europe after a difficult fortnight**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6254763/2025/04/09/what-would-alexander-isak-really
 **Blackhawks 'blow off some steam' in team meeting after shutout loss to Pens**\
 `Connor Murphy and Ryan Donato didn't share details but said the meeting was an important learning step for the whole team.`\
 https://nytimes.com/athletic/6265715/2025/04/09/blackhawks-team-meeting-shutout-penguins/
-
-**Gibbs-White's persistent creativity makes him a smart option to replace De Bruyne at Man City**\
-`It's the high share of attacking responsibility he takes that makes Gibbs-White an attractive watch and explains Man City's interest`\
-https://nytimes.com/athletic/6264409/2025/04/09/morgan-gibbs-white-manchester-city-transfer/
 
