@@ -1,3 +1,15 @@
+**Georgia Man Sentenced for a Cache of Taxidermy Birds and Rare Eggs**\
+`John Waldrop, an orthopedic surgeon, amassed a vast collection of ornithological specimens as part of what he called an “obsessive hobby.” He’s now into wood carvings.`\
+https://nytimes.com/2025/04/09/nyregion/brooklyn-taxidermy-sentence-roseate-spoonbill.html
+
+**What Trump Just Cost America**\
+`Do you think these former close U.S. allies are ever going to trust getting into a trench with this administration again?`\
+https://nytimes.com/2025/04/09/opinion/trump-tariffs-pause-china.html
+
+**Trump Threatens Climate Policies in the States**\
+`After halting federal attempts to combat global warming, President Trump is now targeting efforts by states to reduce greenhouse gases, setting up a legal clash.`\
+https://nytimes.com/2025/04/09/climate/trump-threatens-climate-policies-in-the-states.html
+
 **House Strikes Down $5 Overdraft Fee Limit, Sending Issue to Trump**\
 `Lawmakers also struck down a rule giving the Consumer Financial Protection Bureau supervisory power over tech companies’ payments apps.`\
 https://nytimes.com/2025/04/09/business/house-strikes-down-5-overdraft-fee-limit-sending-issue-to-trump.html
