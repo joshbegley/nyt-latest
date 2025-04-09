@@ -1,3 +1,7 @@
+**Grizzlies' Jaylen Wells leaves on stretcher, taken to hospital after hard fall**\
+`Hornets guard KJ Simpson ejected after his hard foul on Wells' breakaway dunk attempt.`\
+https://nytimes.com/athletic/6265595/2025/04/08/jaylen-wells-injured-stretcher-hospital/
+
 **Padres' Jackson Merrill lands on injured list with right hamstring strain**\
 `Merrill was off to a torrid start, pacing a Padres team that entered Tuesday tied with the Dodgers for the most wins in the majors.`\
 https://nytimes.com/athletic/6265518/2025/04/08/padres-jackson-merrill-hamstring-injury/
