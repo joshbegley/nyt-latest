@@ -1,3 +1,7 @@
+**As His Chronic Disease Tour Wraps, Kennedy Hits His Stride**\
+`The health secretary seemed stoic — maybe nervous, even — at the start of his first major trip. But on a hike with Navajo Nation leaders, he was finally in his element.`\
+https://nytimes.com/2025/04/09/health/rfk-jr-maha-tour-navajo.html
+
 **Motorsport UK chairman accuses FIA of lack of transparency**\
 `David Richards wrote in a letter that the FIA is becoming "ever more opaque and concentrating power in the hands of the President alone."`\
 https://nytimes.com/athletic/6268344/2025/04/09/david-richards-motorsport-uk-fia-letter/

@@ -1,3 +1,7 @@
+**As His Chronic Disease Tour Wraps, Kennedy Hits His Stride**\
+`The health secretary seemed stoic — maybe nervous, even — at the start of his first major trip. But on a hike with Navajo Nation leaders, he was finally in his element.`\
+https://nytimes.com/2025/04/09/health/rfk-jr-maha-tour-navajo.html
+
 **Motorsport UK chairman accuses FIA of lack of transparency**\
 `David Richards wrote in a letter that the FIA is becoming "ever more opaque and concentrating power in the hands of the President alone."`\
 https://nytimes.com/athletic/6268344/2025/04/09/david-richards-motorsport-uk-fia-letter/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/09/business/house-overdraft-fee-limit-cfpb.html
 **Live Count: The House Votes on the Republican Budget**\
 `The House is preparing to vote on a budget blueprint, a first step towards passing President Trump’s plans for spending and tax cuts.`\
 https://nytimes.com/interactive/2025/04/09/us/politics/house-budget-vote.html
-
-**OpenAI Asks Court to Bar Elon Musk From Unfairly Attacking It**\
-`In a legal filing, OpenAI asked a federal court to hold Mr. Musk responsible for any damage he has caused the firm, in the latest sign of their bitter feud.`\
-https://nytimes.com/2025/04/09/technology/openai-elon-musk-lawsuit.html
 
