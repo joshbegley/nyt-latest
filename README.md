@@ -1,3 +1,7 @@
+**Grizzlies' Jaylen Wells leaves on stretcher, taken to hospital after hard fall**\
+`Hornets guard KJ Simpson ejected after his hard foul on Wells' breakaway dunk attempt.`\
+https://nytimes.com/athletic/6265595/2025/04/08/jaylen-wells-injured-stretcher-hospital/
+
 **Padres' Jackson Merrill lands on injured list with right hamstring strain**\
 `Merrill was off to a torrid start, pacing a Padres team that entered Tuesday tied with the Dodgers for the most wins in the majors.`\
 https://nytimes.com/athletic/6265518/2025/04/08/padres-jackson-merrill-hamstring-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6251067/2025/04/08/nba-draft-early-entry-tracker-de
 **3 Visitors to Yellowstone Get Jail Sentences for Violations**\
 `Tourists are required to stay on marked paths in thermal areas because of the dangers of the hot springs, geysers and steam vents, and to protect nature.`\
 https://nytimes.com/2025/04/08/us/yellowstone-tourists-prison-sentence.html
-
-**Death of Palestinian American Boy in West Bank Sparks Outcry**\
-`Amer Rabee, 14, was fatally shot Sunday by Israeli forces in the West Bank, according to his family. On Tuesday, community leaders gathered in New Jersey to demand justice.`\
-https://nytimes.com/2025/04/08/nyregion/nj-amer-rabee-killed-west-bank.html
 
