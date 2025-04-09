@@ -1,3 +1,7 @@
+**Nemanja Matic interview: Facing Man Utd at 36, trophies 'not the focus' at Old Trafford and Mourinho's 'clowns' speech**\
+`Nemanja Matic speaks openly about the differences between Manchester United and Chelsea, his relationship with Mourinho and playing for Lyon`\
+https://nytimes.com/athletic/6263580/2025/04/09/nemanja-matic-manchester-united-trophies-mourinho/
+
 **Knicks' fourth loss to Celtics, though close, doesn't come with a silver lining**\
 `To be the best, you have to show you can beat the best. And for the umpteenth time this season, the New York Knicks failed to do that.`\
 https://nytimes.com/athletic/6266032/2025/04/09/knicks-fourth-loss-to-celtics/
