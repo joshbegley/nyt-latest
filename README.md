@@ -1,3 +1,11 @@
+**Israeli Airstrike in Gaza City Leaves Many Dead, Health Officials There Say**\
+`The strike on a home left other bodies buried under the rubble, according to the Gazan authorities. The Israeli military said it had been targeting a Hamas operative.`\
+https://nytimes.com/2025/04/09/world/middleeast/israel-gaza-city-strike-hamas.html
+
+**For small Lesotho, there are few options for responding to large tariffs.**\
+`In Lesotho, which makes denim that goes into U.S.-branded jeans, both the private sector and the government were weighing their next moves.`\
+https://nytimes.com/2025/04/09/business/economy/for-small-lesotho-there-are-few-options-for-responding-to-large-tariffs.html
+
 **Oil Prices Tumble, Squeezing U.S. Producers**\
 `The slide in crude prices signals deteriorating confidence in the strength of the economy.`\
 https://nytimes.com/2025/04/09/business/energy-environment/oil-prices-tariffs-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6266741/2025/04/09/manchester-united-andre-onana-ma
 **China Hits Back Again at Trump, Bringing New Tariffs on U.S. Goods to 84%**\
 `Beijing announced a new round of 50 percent tariffs in response to President Trump’s latest levies as the trade conflict between the superpowers escalates.`\
 https://nytimes.com/2025/04/09/business/economy/china-tariffs-us-trump.html
-
-**Fernando Tatis Jr., Jake Cronenworth day to day for Padres after leaving with injuries**\
-`Manager Mike Shildt indicated the plan is for both Tatis and Cronenworth to rest for at least the next two days.`\
-https://nytimes.com/athletic/6266202/2025/04/09/padres-fernando-tatis-jr-jake-cronenworth-injuries/
-
-**Will the Jets keep Luke Schenn? Neal Pionk? What's up with the 5-on-3 power play? Mailbag**\
-`Also: Why the Jets took so long to try Morgan Barron at centre, and more on Chaz Lucius' retirement.`\
-https://nytimes.com/athletic/6260606/2025/04/09/winnipeg-jets-schenn-power-play-lucius/
 
