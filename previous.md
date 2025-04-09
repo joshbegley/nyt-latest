@@ -1,3 +1,7 @@
+**John Nelson, Conductor Who Got France to Cherish Berlioz, Dies at 83**\
+`He revived interest in a “problem child” in the pantheon of high romantic composers, bringing Berlioz overdue recognition as one of France’s greatest composers.`\
+https://nytimes.com/2025/04/09/arts/music/john-nelson-dead.html
+
 **‘Manhunt’ Is a Case Study in Fragile Masculinity**\
 `A new play by Robert Icke about a real-life police chase takes the form of an imagined trial.`\
 https://nytimes.com/2025/04/09/theater/manhunt-robert-icke-royal-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6267704/2025/04/09/justin-fields-jets-starting-quar
 **Watch: Who is the most polarizing player in the 2025 NFL Draft class?**\
 `"The Athletic Football Show" discusses Bowling Green tight end Harold Fannin Jr. and his unique draft profile.`\
 https://nytimes.com/athletic/6266293/2025/04/09/athletic-football-show-nfl-draft-polarizing-players/
-
-**Thankfully, the Democratic Base Has Revived the Resistance**\
-`The election might have cowed liberal elites, but its voters never backed down.`\
-https://nytimes.com/2025/04/09/opinion/protests-democrats-trump.html
 

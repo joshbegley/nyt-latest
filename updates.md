@@ -1,3 +1,7 @@
+**John Nelson, Conductor Who Got France to Cherish Berlioz, Dies at 83**\
+`He revived interest in a “problem child” in the pantheon of high romantic composers, bringing Berlioz overdue recognition as one of France’s greatest composers.`\
+https://nytimes.com/2025/04/09/arts/music/john-nelson-dead.html
+
 **‘Manhunt’ Is a Case Study in Fragile Masculinity**\
 `A new play by Robert Icke about a real-life police chase takes the form of an imagined trial.`\
 https://nytimes.com/2025/04/09/theater/manhunt-robert-icke-royal-court.html
