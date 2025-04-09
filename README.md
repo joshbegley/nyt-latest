@@ -1,3 +1,11 @@
+**Netanyahu Sticks By Trump’s Brazen Proposal for Gazans to Leave**\
+`Prime Minister Benjamin Netanyahu of Israel said his government was serious about “voluntary” migration, after an Oval Office meeting where President Trump appeared to have lost interest.`\
+https://nytimes.com/2025/04/09/world/middleeast/netanyahu-trump-gaza.html
+
+**William Byron on competitiveness, middle fingers and aggressiveness: 12 Questions**\
+`William Byron talks about his frustrations with losing, his use of the middle finger on the racetrack and more in the latest 12 Questions.`\
+https://nytimes.com/athletic/6264387/2025/04/09/william-byron-nascar-middle-finger-12-questions/
+
 **How Inter utilised their trademark move to edge past Bayern Munich**\
 `Simone Inzaghi's side did not panic when their opponents equalised late on - instead they turned to a tried and tested method of scoring `\
 https://nytimes.com/athletic/6266214/2025/04/09/inter-trademark-goal-champions-league/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6266059/2025/04/09/sabres-hot-streak-playoff-elimin
 **John Tavares earns the Maple Leafs' Masterton Trophy nomination**\
 `The award is given to the NHL player "who best exemplifies the qualities of perseverance, sportsmanship, and dedication to hockey."`\
 https://nytimes.com/athletic/6264500/2025/04/09/maple-leafs-masterton-trophy-nhl-john-tavares/
-
-**'A flash in the pan' or ascending: South Carolina aims to keep rising**\
-`Beamer has an edge, and that has been a big piece to the improvements within the South Carolina program.`\
-https://nytimes.com/athletic/6250855/2025/04/09/shane-beamer-south-carolina-football-program/
-
-**Fleury, Wild Masterton nominee, prepares for final home start: 'Almost over already'**\
-`After 21 seasons in the NHL, the likely Hall of Famer is within sight of his last regular-season game.`\
-https://nytimes.com/athletic/6265415/2025/04/09/wild-marc-andre-fleury-masterton-retirement/
 
