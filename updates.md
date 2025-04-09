@@ -1,4 +1,8 @@
 **Congo Repatriates 3 Americans Sentenced to Death Over Failed Coup**\
+`The men recently had their sentences commuted to life imprisonment for their role in an attempted coup last May in the central African nation.`\
+https://nytimes.com/2025/04/09/world/africa/congo-americans-coup.html
+
+**Congo Repatriates 3 Americans Sentenced to Death Over Failed Coup**\
 `The men recently had their sentences commuted to life imprisonment.`\
 https://nytimes.com/2025/04/09/world/africa/congo-americans-coup.html
 
