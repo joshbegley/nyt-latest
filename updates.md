@@ -1,3 +1,11 @@
+**Sabres eliminated from playoff contention as record drought hits 14 years**\
+`The Sabres are are now tied with the New York Jets for the longest active playoff drought in pro sports.`\
+https://nytimes.com/athletic/6262306/2025/04/08/buffalo-sabres-playoff-drought-record/
+
+**Grizzlies' Jaylen Wells leaves on stretcher, taken to hospital after hard fall**\
+`Hornets guard KJ Simpson was ejected for his hard foul on the play, on which Wells reportedly suffered a broken wrist.`\
+https://nytimes.com/athletic/6265595/2025/04/08/jaylen-wells-injured-stretcher-hospital/
+
 **Twins' Pablo López exits game with apparent leg injury**\
 `López grabbed the back of his right leg with two outs in the fifth inning, then left the game. It interrupted his best start of the season.`\
 https://nytimes.com/athletic/6265706/2025/04/08/pablo-lopez-leg-injury-twins-royals/

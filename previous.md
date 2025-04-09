@@ -1,3 +1,7 @@
+**Sabres eliminated from playoff contention as record drought hits 14 years**\
+`The Sabres are are now tied with the New York Jets for the longest active playoff drought in pro sports.`\
+https://nytimes.com/athletic/6262306/2025/04/08/buffalo-sabres-playoff-drought-record/
+
 **Twins' Pablo López exits game with apparent leg injury**\
 `López grabbed the back of his right leg with two outs in the fifth inning, then left the game. It interrupted his best start of the season.`\
 https://nytimes.com/athletic/6265706/2025/04/08/pablo-lopez-leg-injury-twins-royals/
@@ -23,7 +27,7 @@ https://nytimes.com/athletic/6265587/2025/04/08/astros-braves-trade-rafael-monte
 https://nytimes.com/2025/04/08/theater/old-friends-review-sondheim-peters-salonga.html
 
 **Grizzlies' Jaylen Wells leaves on stretcher, taken to hospital after hard fall**\
-`Hornets guard KJ Simpson was ejected after his hard foul on Wells' breakaway dunk attempt.`\
+`Hornets guard KJ Simpson was ejected for his hard foul on the play, on which Wells reportedly suffered a broken wrist.`\
 https://nytimes.com/athletic/6265595/2025/04/08/jaylen-wells-injured-stretcher-hospital/
 
 **Padres' Jackson Merrill lands on injured list with right hamstring strain**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6265518/2025/04/08/padres-jackson-merrill-hamstring
 **Mets bullpen takeaways: Reed Garrett sets the tone as relievers drive early success**\
 `Mets relievers have a 1.27 ERA this season, rescuing a rotation that has only one quality start.`\
 https://nytimes.com/athletic/6265497/2025/04/08/mets-bullpen-reed-garrett-takeaways/
-
-**Amid Tension Around H.H.S. Cuts, Kennedy Meets With Tribal Leaders**\
-`The health secretary’s appearance at a tribal self-governance conference brought collegial discussions and a bit of friction.`\
-https://nytimes.com/2025/04/08/health/rfk-jr-indian-health-tribal-leaders.html
 
