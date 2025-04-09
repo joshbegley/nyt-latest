@@ -1,3 +1,11 @@
+**What you should know about Mavericks governor Patrick Dumont**\
+`Much has been made about Mavs GM Nico Harrison, who orchestrated the Luka Dončić trade. But what about Patrick Dumont, the man in charge?`\
+https://nytimes.com/athletic/6265398/2025/04/09/who-is-patrick-dumont-mavericks-governor/
+
+**Harry’s Razor Brand Seeks to Build a Consumer Goods Empire**\
+`The founders of the upstart personal grooming company said they planned to strike more deals. A public listing may be in the future as well.`\
+https://nytimes.com/2025/04/09/business/dealbook/harrys-mammoth-consumer-goods-deals.html
+
 **After the dull Japanese GP, readers want to know why and what hurt Lewis Hamilton**\
 `The Athletic's F1 experts Luke Smith and Madeline Coleman answer your questions after the Japanese Grand Prix `\
 https://nytimes.com/athletic/6266355/2025/04/09/f1-lewis-hamilton-japanese-gp-verstappen-ferrari/

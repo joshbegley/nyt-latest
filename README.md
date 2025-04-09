@@ -1,3 +1,11 @@
+**Death Toll in Dominican Republic Roof Collapse Hits 113**\
+`The scene at a nightclub in Santo Domingo was increasingly grim, as bodies but no more survivors were recovered.`\
+https://nytimes.com/2025/04/09/world/americas/dominican-republic-roof-collapse.html
+
+**‘Explosive’ Markets Raise Uncertainty About Tariff Endgame**\
+`Another sharp sell-off in stocks and bonds greeted President Trump’s latest round of protectionist measures as fears of a U.S. recession grow.`\
+https://nytimes.com/2025/04/09/business/dealbook/markets-trump-tariffs-response.html
+
 **What you should know about Mavericks governor Patrick Dumont**\
 `Much has been made about Mavs GM Nico Harrison, who orchestrated the Luka Dončić trade. But what about Patrick Dumont, the man in charge?`\
 https://nytimes.com/athletic/6265398/2025/04/09/who-is-patrick-dumont-mavericks-governor/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6264502/2025/04/09/united-states-olympics-forwards-
 **With Gretzky's goal mark gone, how many NHL records are truly unbreakable?**\
 `What about the records that aren’t Gretzky’s? Let’s have a look at 15 of the most imposing and determine if we think they can be broken.`\
 https://nytimes.com/athletic/6262182/2025/04/09/ovechkin-goal-nhl-record-gretzky/
-
-**Rosenthal: Corbin Burnes' departure required an Orioles front office response that still hasn't come**\
-`GM Mike Elias' offer to the free-agent ace this winter was respectable. But bold action is still required to improve Baltimore's rotation.`\
-https://nytimes.com/athletic/6266192/2025/04/09/baltimore-orioles-rotation-corbin-burnes-offer/
-
-**State of Florida recruiting: Reviewing the hits, misses and hidden gems from the 2015 cycle**\
-`There were nine five-star prospects in the 2015 class from Florida, but the best player — by far — was ranked No. 58 in the state.`\
-https://nytimes.com/athletic/6264284/2025/04/09/florida-college-football-recruiting-2015/
 
