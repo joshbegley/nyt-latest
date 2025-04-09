@@ -26,7 +26,7 @@ https://nytimes.com/2025/04/09/opinion/protests-democrats-trump.html
 `The mother of Dinari McAlmont, 23, of Bowie, Md., says that a photo that the police showed her indicated that her son had been badly beaten.`\
 https://nytimes.com/2025/04/09/world/maryland-man-death-bahamas.html
 
-**Army Secretary Replaces Patel as Head of A.T.F.**\
+**Army Secretary Replaces Patel as Interim Head of A.T.F.**\
 `The unusual move has placed a civilian military leader in charge of a domestic law enforcement entity.`\
 https://nytimes.com/2025/04/09/us/politics/patel-army-secretary-atf.html
 
