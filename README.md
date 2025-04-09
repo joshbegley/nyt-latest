@@ -1,3 +1,11 @@
+**In a Storm of Tariffs, Many Companies See China as the Safest Harbor**\
+`The heavy U.S. tariffs on other Asian countries have made China a more appealing option for companies scared to make a hasty decision amid upheaval in global trade.`\
+https://nytimes.com/2025/04/09/business/trump-tariffs-china-factories.html
+
+**The Impact of the Masters on Ely Callaway**\
+`He invented the Big Bertha driver, which changed the game of golf. Bobby Jones, a creator of the tournament, was a Callaway cousin.`\
+https://nytimes.com/2025/04/09/sports/golf/masters-ely-callaway-bobby-jones.html
+
 **Four starting pitchers with the right stuff but the wrong early-season results**\
 `Bryce Miller is off to a shaky start to the 2025 MLB campaign, but he has an arsenal Eno Sarris believes in going forward.`\
 https://nytimes.com/athletic/6264962/2025/04/09/mlb-2025-starting-pitchers-good-stuff-bad-starts/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6263501/2025/04/09/lucas-bergvall-tottenham/
 **How to watch Masters 2025: Round 1 tee times, groupings, odds and info**\
 `The 2025 Masters Tournament begins Thursday, with Scottie Scheffler opening as the tournament's favorite, followed by Rory McIlroy.`\
 https://nytimes.com/athletic/6255892/2025/04/09/masters-tournament-2025-round-1-tee-times-how-to-watch/
-
-**What the Government Knows About You in Official Data Sets Trump Wants to Link Together**\
-`Databases that Elon Musk’s team is trying to access include more than 300 personal details about members of the U.S. public.`\
-https://nytimes.com/2025/04/09/us/politics/trump-musk-data-access.html
-
-**Bob McManus, Blunt Editorial Voice of The New York Post, Dies at 81**\
-`As the editor of the tabloid’s editorial page and as a columnist, he skewered those he considered phonies and symbols of failed progressivism.`\
-https://nytimes.com/2025/04/09/business/media/bob-mcmanus-dead.html
 

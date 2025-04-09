@@ -1,3 +1,15 @@
+**Four starting pitchers with the right stuff but the wrong early-season results**\
+`Bryce Miller is off to a shaky start to the 2025 MLB campaign, but he has an arsenal Eno Sarris believes in going forward.`\
+https://nytimes.com/athletic/6264962/2025/04/09/mlb-2025-starting-pitchers-good-stuff-bad-starts/
+
+**Carolina Panthers NFL Draft 2025 guide: Picks, predictions and key needs**\
+`The Panthers have the No. 8 pick in the NFL Draft and own a total of nine picks.`\
+https://nytimes.com/athletic/6227440/2025/04/09/carolina-panthers-2025-nfl-draft-picks-needs-predictions-guide/
+
+**Dallas Cowboys NFL Draft 2025 guide: Picks, predictions and key needs**\
+`The Cowboys have the 12th overall pick and 10 total selections in the NFL Draft.`\
+https://nytimes.com/athletic/6233115/2025/04/09/dallas-cowboys-2025-nfl-draft-picks-needs-predictions-guide/
+
 **This Chicken With Artichokes and Lemon is Festive and Forgiving**\
 `Use fresh or frozen artichokes. Cook it day-of in an hour, or make it ahead of time and reheat. However you prepare this lovely dish, it’s bound to delight.`\
 https://nytimes.com/2025/04/09/dining/this-chicken-with-artichokes-and-lemon-is-festive-and-forgiving.html
