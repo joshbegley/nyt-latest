@@ -1,9 +1,29 @@
+**Who could replace Alexander-Arnold at Liverpool?**\
+`Analysing the candidates - internal and external - to replace the right-back if he departs for Real Madrid this summer`\
+https://nytimes.com/athletic/6249195/2025/04/09/trent-alexander-arnold-liverpool-replacements/
+
+**Can you put a price on Alexander Isak? ‘Maybe you have Haaland, you have Mbappe, but after that…’**\
+`Newcastle have no interest in selling Isak but that might not stop some clubs for trying. Which raises the question, how much would he cost?`\
+https://nytimes.com/athletic/6254763/2025/04/09/what-would-alexander-isak-really-cost/
+
+**Blackhawks 'blow off some steam' in team meeting after shutout loss to Penguins**\
+`Connor Murphy and Ryan Donato didn't share details but said the meeting was an important learning step for the whole team.`\
+https://nytimes.com/athletic/6265715/2025/04/09/blackhawks-team-meeting-shutout-penguins/
+
+**Gibbs-White's persistent creativity makes him a smart option to replace De Bruyne at Man City**\
+`It's the high share of attacking responsibility he takes that makes Gibbs-White an attractive watch and explains Man City's interest`\
+https://nytimes.com/athletic/6264409/2025/04/09/morgan-gibbs-white-manchester-city-transfer/
+
+**Carney Chukwuemeka feels key to Borussia Dortmund's future - but can they afford to keep him?**\
+`The Chelsea loanee has only played 135 minutes in the Bundesliga, but his positivity is already bringing the best out of his new team-mates`\
+https://nytimes.com/athletic/6263808/2025/04/09/chukwuemeka-dortmund-chelsea-barcelona/
+
 **Unai Emery at PSG: The historic defeat that casts a shadow over his time in Paris**\
 `The Aston Villa manager returns to the Parc des Princes with his reputation restored after a tough time with the French club`\
 https://nytimes.com/athletic/6257180/2025/04/09/unai-emery-paris-saint-germain-champions-league/
 
 **Adams Administration Will Give ICE Space to Operate on Rikers Island**\
-`An executive order says federal immigration agents would work with city officials on criminal investigations. The order says there would be no cooperation on civil matters.`\
+`An executive order says federal immigration agents would work with city officials on criminal investigations only. Critics say the move opens the door for wrongdoing.`\
 https://nytimes.com/2025/04/09/nyregion/adams-ice-rikers-island.html
 
 **Inside Southampton's relegation: 'Slow-motion car crash', Solak frustration and what comes next**\
@@ -17,24 +37,4 @@ https://nytimes.com/2025/04/09/world/europe/ukraine-kryvyi-ri-attack.html
 **Trump Wants an Iran Nuclear Deal, but It Must Be Better Than Obama’s**\
 `Nuclear talks between the United States and Iran are set for Saturday. President Trump has set a high bar for success.`\
 https://nytimes.com/2025/04/09/us/politics/trump-iran-nuclear-deal.html
-
-**‘Totally Silly.’ Trump’s Focus on Trade Deficit Bewilders Economists.**\
-`Behind Trump’s new tariffs is a goal that is as ambitious as it is unrealistic: eliminating the bilateral trade deficit with every U.S. trading partner.`\
-https://nytimes.com/2025/04/09/business/economy/trump-trade-deficit-tariffs-economist-doubts.html
-
-**Mars Is the Priority, Trump’s Pick to Lead NASA Will Say**\
-`Jared Isaacman, a billionaire entrepreneur who has twice launched to orbit in a SpaceX vehicle, will testify before the Senate on Wednesday.`\
-https://nytimes.com/2025/04/09/science/nasa-jared-isaacman-confirmation.html
-
-**Connections: Sports Edition Coach: Hints for April 9, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6265356/2025/04/09/connections-sports-edition-hints-for-april-9-2025/
-
-**What Will Happen to the Handbags?**\
-`As tariffs on the European Union take effect, luxury goods makers are “biting their nails” over their treasured “Made in France” or “Made in Italy” products.`\
-https://nytimes.com/2025/04/09/style/tariffs-eu-luxury-fashion.html
-
-**Red Wings' playoff fate looks all but sealed as their season slips away in Montreal**\
-`Detroit's playoff drought looks destined to go to nine years after a 4-1 gutting loss to the Canadiens.`\
-https://nytimes.com/athletic/6265751/2025/04/09/red-wings-canadiens-nhl-playoff-odds/
 
