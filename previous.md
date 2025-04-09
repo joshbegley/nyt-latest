@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6268061/2025/04/09/jt-toppin-texas-tech-return-nil/
 https://nytimes.com/2025/04/09/world/canada/canada-tariffs-business-aid.html
 
 **The Briefing: Paris Saint-Germain 3 Aston Villa 1 - Kvaratskhelia magic, Villa resolve tested to limit**\
-`Paris Saint-Germain take a two-goal lead to Villa Park after an enthralling Champions League quarterfinal first leg`\
+`Paris Saint-Germain take a two-goal lead to Villa Park after an enthralling Champions League quarter-final first leg`\
 https://nytimes.com/athletic/6264440/2025/04/09/paris-saint-germain-3-aston-villa-1-kvaratskhelia-doue/
 
 **9 Masters long shots who could stun with a top-10 finish at Augusta**\

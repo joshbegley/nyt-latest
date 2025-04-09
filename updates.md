@@ -1,3 +1,7 @@
+**The Briefing: Paris Saint-Germain 3 Aston Villa 1 - Kvaratskhelia magic, Villa resolve tested to limit**\
+`Paris Saint-Germain take a two-goal lead to Villa Park after an enthralling Champions League quarter-final first leg`\
+https://nytimes.com/athletic/6264440/2025/04/09/paris-saint-germain-3-aston-villa-1-kvaratskhelia-doue/
+
 **Former Penguins coach Dan Bylsma mourns Ray Shero's death**\
 `A tearful Bylsma expressed his love and respect for Shero, his old boss who passed away on Thursday.`\
 https://nytimes.com/athletic/6267847/2025/04/09/ray-shero-death-dan-bylsma/
