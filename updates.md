@@ -1,3 +1,7 @@
+**Reeling From Trump’s Tariffs, South Korea Tries Striking a Delicate Balance**\
+`As its trade negotiators headed to Washington for talks, South Korea announced measures to support the country’s carmakers who were badly hit by the levies announced by President Trump.`\
+https://nytimes.com/2025/04/09/world/asia/south-korea-trump-tariffs-automakers.html
+
 **Kristaps Porziņģis once aimed to shoot shorter 3s, but the longer ones can't be touched**\
 `Where Porziņģis usually spots up, several feet behind the arc, only forces defenders to cover more ground to guard him.`\
 https://nytimes.com/athletic/6266087/2025/04/09/celtics-kristaps-porzingis-three-pointers/
