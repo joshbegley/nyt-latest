@@ -1,3 +1,7 @@
+**How the Ottawa Senators ended their 8-year playoff drought**\
+`The Senators will return to the Stanley Cup playoffs for the first time since 2017. What took so long, and how did they finally get here?`\
+https://nytimes.com/athletic/6256528/2025/04/08/ottawa-senators-nhl-playoffs-clinch-drought/
+
 **Luka Dončić ejected late in Lakers' 136-120 loss to Thunder**\
 `OKC outscored L.A. 28-13 after Lakers star was tossed for drawing second technical foul.`\
 https://nytimes.com/athletic/6265843/2025/04/08/luka-doncic-ejected-lakers-lose-to-thunder/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6265706/2025/04/08/pablo-lopez-leg-injury-twins-roy
 **Why Ivan Demidov's entry-level contract with Canadiens includes a Conn Smythe bonus**\
 `Demidov's three-year entry-level contract includes a $525,000 bonus if he wins the Conn Smythe Trophy as MVP of the upcoming playoffs.`\
 https://nytimes.com/athletic/6265641/2025/04/08/canadiens-ivan-demidov-contract/
-
-**Cavaliers clinch No. 1 seed in the East for first time without LeBron**\
-`Rout of Bulls gives Cavs four-game lead over Celtics with three games remaining in the regular season.`\
-https://nytimes.com/athletic/6265575/2025/04/08/cavaliers-clinch-top-seed-east-without-lebron/
 
