@@ -1,3 +1,7 @@
+**Knicks' fourth loss to Celtics, though close, doesn't come with a silver lining**\
+`To be the best, you have to show you can beat the best. And for the umpteenth time this season, the New York Knicks failed to do that.`\
+https://nytimes.com/athletic/6266032/2025/04/09/knicks-fourth-loss-to-celtics/
+
 **It felt like Leeds against the world - luckily, that's the way they like it**\
 `Leeds managed to beat Middlesbrough 1-0 on Tuesday night to climb back to the top of the Championship`\
 https://nytimes.com/athletic/6265981/2025/04/09/leeds-united-middlesbrough-analysis-promotion/
