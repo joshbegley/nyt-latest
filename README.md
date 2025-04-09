@@ -1,3 +1,7 @@
+**Cubs pitcher Justin Steele lands on injured list with elbow tendonitis**\
+`Steele said Wednesday that the injury feels similar to one he suffered late last season.`\
+https://nytimes.com/athletic/6267435/2025/04/09/cubs-pitcher-justin-steele-injured-list-elbow/
+
 **IOC approves more women's teams, new swimming events in adds to L.A. Olympics**\
 `The IOC is expanding the Olympic women's soccer and 3X3 basketball tournaments in 2028 while adding several new events in swimming and more.`\
 https://nytimes.com/athletic/6267551/2025/04/09/olympics-la-2028-new-events-swimming-soccer-basketball/
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/6267617/2025/04/09/bears-mock-draft-mailbag-submiss
 https://nytimes.com/athletic/5714851/2025/04/09/van-dijk-salah-liverpool-contract/
 
 **Analysing the technique behind Declan Rice's extraordinary free-kick double against Real Madrid**\
-`Ball-striking coach Bartek Sylwestrzak on how Arsenal's midfielder made Champions League history`\
+`Ball-striking coach Bartek Sylwestrzak on how Arsenal's midfielder made Champions League history against Madrid`\
 https://nytimes.com/athletic/6266260/2025/04/09/declan-rice-free-kick-double-real-madrid/
 
 **Ray Shero, Wild senior adviser and ex-GM of the Pens and Devils, dies at 62**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/09/climate/trump-noaa-princeton-climate-research.htm
 **Proxy Voting Defeat Reflects a House Out of Step With Modern Culture**\
 `A majority of House members backed changing the rules to allow new parents to vote remotely. But in a Congress dominated by far-right Republicans, parental leave was a bridge too far.`\
 https://nytimes.com/2025/04/09/us/politics/house-republicans-proxy-voting-parental-leave.html
-
-**House G.O.P. Leaders Press Ahead With Budget Vote as Defectors Dig In**\
-`Republicans scheduled a vote for Wednesday evening, but they were still at least a dozen votes short of a majority for their fiscal blueprint.`\
-https://nytimes.com/2025/04/09/us/politics/house-budget-vote-republicans.html
 
