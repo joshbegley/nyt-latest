@@ -1,40 +1,40 @@
-**The New York Times International Edition in Print for Thursday, April 10, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/04/09/todays-new-york-times-international-edition
+**At Augusta, pain lurks. Players are trying anything to beat it: 'I have been put in hypnotic states'**\
+`"So many things have happened in my career and my life that I can sort of laugh about it now. But it’s still there.”`\
+https://nytimes.com/athletic/6264958/2025/04/09/masters-mcilroy-hypnosis-spieth-loss/
 
-**One tip former Masters champion Zach Johnson picked up: An 'attitude of gratitude'**\
-`As Zach Johnson prepares for his 21st Masters appearance, he shares some mental skills tips and practices he's picked up along the way.`\
-https://nytimes.com/athletic/6264509/2025/04/09/one-tip-former-masters-champion-zach-johnson-picked-up-an-attitude-of-gratitude/
+**A Game of Chicken With China, and How Much Plastic Is in the Human Brain**\
+`Plus, the theme park wars heat up.`\
+https://nytimes.com/2025/04/09/podcasts/the-headlines/china-tariff-plastics-brain-epic-universe.html
 
-**Milan's Walker undergoes surgery after right elbow fracture**\
-`The 34-year-old has made 12 appearances for Milan since joining the club on loan from Manchester City in January.`\
-https://nytimes.com/athletic/6266334/2025/04/09/kyle-walker-milan-surgery/
+**NFL Draft 2025 ‘The Beast’ Guide: Dane Brugler’s scouting reports and player rankings**\
+`With more than 400 profiles and approximately 2,600 prospect rankings, this year's version of "The Beast" is bigger and better than ever.`\
+https://nytimes.com/athletic/5698361/2025/04/09/the-beast-2025-redirects/
 
-**Islamic State Regains Strength in Syria**\
-`The U.S. has sent more forces to Syria, tamping down on the immediate threat, but experts warn that the extremist group could break thousands of hardened fighters out of prison.`\
-https://nytimes.com/2025/04/09/world/middleeast/syria-isis-prisoners.html
+**'The Beast' Printable version: NFL Draft 2025 scouting reports and player prospect rankings**\
+`You also have two ways to study The Beast in 2025: our classic, printable PDF version and a new, exciting interactive version.`\
+https://nytimes.com/athletic/6259709/2025/04/09/nfl-draft-2025-the-beast-pdf-version/
 
-**European Officials to Vote Today on First Retaliatory Tariffs**\
-`The European Union is poised to approve a plan to hit back at President Trump’s steel and aluminum levies. Further measures could come next.`\
-https://nytimes.com/2025/04/09/world/europe/eu-tariffs-trump.html
+**American Is Arrested in Thailand on Charges of Criticizing Royalty**\
+`The U.S. State Department said it was alarmed at the arrest of Paul Chambers, a lecturer in civil-military relations, under Thailand’s strict lèse-majesté laws.`\
+https://nytimes.com/2025/04/09/us/paul-chambers-thailand-monarchy-arrest.html
 
-**Five Takeaways From Trump’s Plan to Rescue Coal**\
-`To help the struggling coal industry, President Trump used his executive authority to try to keep aging plants alive and burn more coal for electricity.`\
-https://nytimes.com/2025/04/09/climate/trump-executive-orders-coal.html
+**CBS prepares for its 70th straight Masters: 'It's immortality'**\
+`CBS will be airing its 70th straight year of the Masters Tournament, a unique longevity in sports TV.`\
+https://nytimes.com/athletic/6255539/2025/04/09/the-masters-cbs-jim-nantz-scottie-scheffler/
 
-**These Super Fans of Trump Are Holding Out Against His Budget**\
-`Hard-line conservatives concerned about the deficit are among President Trump’s most stalwart supporters in Congress. But they say they cannot in good conscience back the budget plan he has endorsed.`\
-https://nytimes.com/2025/04/09/us/politics/trump-budget-house-republicans-deficit.html
+**Mark Cuban sold the Mavs expecting to still make decisions. Then he heard they traded Luka Dončić**\
+`After the Luka Dončić trade went down, it became clear that Mark Cuban didn't hold the same power he had wielded for two decades in Dallas.`\
+https://nytimes.com/athletic/6265114/2025/04/09/luka-doncic-trade-mark-cuban-nico-harrison-mavericks/
 
-**‘We’re Playing With Fire’: The Risks of Trump’s Tariffs on China**\
-`Binyamin Appelbaum on the president’s rushed and rash trade war.`\
-https://nytimes.com/2025/04/09/opinion/trump-tariffs-reindustrialization.html
+**WNBA mock draft: Who will go after UConn's Paige Bueckers?**\
+`With so many eligible players opting to stay in college, expect a few teams to select intriguing international prospects.`\
+https://nytimes.com/athletic/6265731/2025/04/09/wnba-mock-draft-uconn-bueckers/
 
-**How Trump Is Putting Law Firms in a No-Win Situation**\
-`As Willkie Farr & Gallagher learned, cutting a deal with the White House can avert a financially punitive executive order. But doing so can draw internal rebukes and external criticism.`\
-https://nytimes.com/2025/04/09/us/politics/trump-law-firms-orders.html
+**The University President Willing to Fight Trump**\
+`Christopher L. Eisgruber of Princeton University talks about the administration’s move to freeze billions of dollars in funding to higher education institutions.`\
+https://nytimes.com/2025/04/09/podcasts/the-daily/princeton-university-trump.html
 
-**Fate of Congestion Pricing Is Likely to Be Decided in Fall or Later**\
-`State and federal officials have agreed to a court timeline that keeps the tolls in place for several months. The federal Transportation Department said it was still fighting to end the program.`\
-https://nytimes.com/2025/04/09/nyregion/fate-of-congestion-pricing-is-likely-to-be-decided-in-fall-or-later.html
+**Wordle Review No. 1,391**\
+`Scroll down for hints and conversation about the puzzle for Thursday, April 10, 2025.`\
+https://nytimes.com/2025/04/09/crosswords/wordle-review-1391.html
 
