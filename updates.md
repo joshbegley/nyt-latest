@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Not many silver linings for Toronto in loss to Panthers**\
+`Toronto consistently folded under the offensive pressure Florida applied and was outshot 37-18 on the way to a 3-1 loss.`\
+https://nytimes.com/athletic/6265404/2025/04/08/maple-leafs-panthers-score-grades/
+
 **Like a Limbo Bar**\
 `Aidan Deshong and Oren Hartstein write a set of less-than-stellar reviews.`\
 https://nytimes.com/2025/04/08/crosswords/daily-puzzle-2025-04-09.html

@@ -1,3 +1,15 @@
+**Hours before tariffs begin, Trump declares victory and mocks critics.**\
+`The president claimed that foreign countries would “do anything” in the hopes of getting the tariffs removed, but left unclear what if anything was open to negotiation.`\
+https://nytimes.com/live/2025/04/08/us/trump-news-tariffs/hours-before-tariffs-begin-trump-declares-victory-and-mocks-critics
+
+**Parts of Jaden Rashada fraud lawsuit against Florida coach Billy Napier can proceed, judge rules**\
+`Judge decides that UF defendants tried to "lure Rashada away from Miami, all while knowing they would never make good on the NIL promises."`\
+https://nytimes.com/athletic/6265756/2025/04/08/jayden-rashada-lawsuit-billy-napier/
+
+**Another Rocky Day in Markets Ahead: Stocks in Asia Sink**\
+`With the S&P 500 nearing a bear market, shares in Asia decline as China and other major U.S. trading partners await the start of significantly higher tariffs.`\
+https://nytimes.com/2025/04/08/business/trump-tariffs-stock-markets.html
+
 **Maple Leafs report cards: Not many silver linings for Toronto in loss to Panthers**\
 `Toronto consistently folded under the offensive pressure Florida applied and was outshot 37-18 on the way to a 3-1 loss.`\
 https://nytimes.com/athletic/6265404/2025/04/08/maple-leafs-panthers-score-grades/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6265575/2025/04/08/cavaliers-clinch-top-seed-east-w
 **Kepner: Octavio Dotel — the pitcher everybody wanted — left a legacy of strikeouts and smiles**\
 `Dotel, who played for 13 teams in his major-league career, died Tuesday after a roof collapse at a club in his native Dominican Republic.`\
 https://nytimes.com/athletic/6265376/2025/04/08/octavio-dotel-legacy-mlb-reliever/
-
-**Astros trade reliever Rafael Montero to Braves**\
-`The Astros tried to offload Montero this winter, but found no takers for a 34-year-old reliever with one standout major-league season.`\
-https://nytimes.com/athletic/6265587/2025/04/08/astros-braves-trade-rafael-montero/
-
-**Review: A Party With 17 ‘Old Friends’ and 41 Sondheim Songs**\
-`Bernadette Peters and Lea Salonga lead the festivities in a new Broadway revue of the great musical dramatist’s work.`\
-https://nytimes.com/2025/04/08/theater/old-friends-review-sondheim-peters-salonga.html
-
-**Grizzlies' Jaylen Wells leaves on stretcher, taken to hospital after hard fall**\
-`Hornets guard KJ Simpson was ejected for his hard foul on the play, on which Wells reportedly suffered a broken wrist.`\
-https://nytimes.com/athletic/6265595/2025/04/08/jaylen-wells-injured-stretcher-hospital/
 
