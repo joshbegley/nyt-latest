@@ -1,3 +1,19 @@
+**Amazon to Launch First Project Kuiper Internet Satellites: What to Know**\
+`The spacecraft are the online giant’s entry into beaming wireless service from space, but the company has much to do before it can compete with SpaceX’s Starlink.`\
+https://nytimes.com/2025/04/09/science/amazon-kuiper-satellite-launch.html
+
+**The Briefing: Barcelona 4 Dortmund 0 - Can anyone stop Lewandowski, Raphinha and Lamine Yamal?**\
+`Lewandowski scored his 40th goal of the season and Raphinha and Yamal were also on the scoresheet. Our writers analyse the talking points`\
+https://nytimes.com/athletic/6264439/2025/04/09/barcelona-raphinha-lewandowski-yamal-dortmund-champions-league/
+
+**Thursday Briefing: Trump’s Tariff Reversal**\
+`Plus, how your brain connects to ideology.`\
+https://nytimes.com/2025/04/09/briefing/tariff-reversal-syria-islamic-state-club-roof-collapse.html
+
+**Palestinian Christians Remind Us: ‘We Are Also People’**\
+`America’s religious right embraces far-right Israeli policies, leading to the repression of Palestinian Christians.`\
+https://nytimes.com/2025/04/09/opinion/palestinian-christian-us-evangelicals-gaza.html
+
 **Flying Somewhere? You May Finally Need That Real ID.**\
 `After years of postponements, the deadline to show a security-enhanced Real ID at airport security checkpoints is now just weeks away. What to know.`\
 https://nytimes.com/2025/04/09/travel/real-id-deadline-what-to-know.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6268008/2025/04/09/legacy-motor-club-obtains-restra
 **Major League Baseball exploring MLB.TV licensing deal: Sources**\
 `The move comes as baseball looks for new partners after ESPN opted out of the final three seasons of it $550 million per year contract.`\
 https://nytimes.com/athletic/6267924/2025/04/09/mlb-tv-licensing-deal-networks/
-
-**House Republicans Are Voting on a New Budget. Here’s What’s Changed.**\
-`The new resolution calls for more tax cuts and fewer reductions in spending. It would increase the federal debt by a lot more.`\
-https://nytimes.com/interactive/2025/04/09/upshot/2025-04-09-senate-vs-house-budget-index.html
-
-**U.S. Slashes Many of the Aid Programs It Had Promised to Keep**\
-`The U.N. food program said the new cuts “could amount to a death sentence” for millions of desperate people.`\
-https://nytimes.com/2025/04/09/us/politics/usaid-cuts.html
-
-**Top Pro Bono Leader Resigns from Paul Weiss, a Firm Hit in Trump’s Crackdown on Big Law**\
-`Steven Banks, a former head of New York’s social services department, said he wanted to return to defending the rights of the homeless. But he leaves within weeks of the elite firm striking a deal with President Trump.`\
-https://nytimes.com/2025/04/09/business/paul-weiss-steven-banks-trump.html
-
-**Trump Reverses Course on Global Tariffs, Announcing 90-Day Pause**\
-`The president also further raised already steep tariffs on China, saying that Beijing should not have retaliated against his earlier trade actions.`\
-https://nytimes.com/2025/04/09/us/politics/trump-tariffs-stocks-china.html
 
