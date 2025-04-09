@@ -11,7 +11,7 @@ https://nytimes.com/2025/04/08/health/rfk-jr-indian-health-tribal-leaders.html
 https://nytimes.com/athletic/6265424/2025/04/08/winnipeg-jets-prospect-chaz-lucius-retires/
 
 **Ken Paxton Says He Will Challenge Senator John Cornyn in 2026**\
-`The announcement by Mr. Paxton, the attorney general of Texas and a firebrand conservative, set up what is likely to be a blockbuster showdown in Texas.`\
+`The announcement by Mr. Paxton, the attorney general of Texas and a firebrand conservative, set up what is expected to be a blockbuster showdown in Texas.`\
 https://nytimes.com/2025/04/08/us/ken-paxton-john-cornyn-senate-race.html
 
 **Jarren Duran wants those struggling with mental health to know they're not alone**\

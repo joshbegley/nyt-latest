@@ -1,3 +1,7 @@
+**Ken Paxton Says He Will Challenge Senator John Cornyn in 2026**\
+`The announcement by Mr. Paxton, the attorney general of Texas and a firebrand conservative, set up what is expected to be a blockbuster showdown in Texas.`\
+https://nytimes.com/2025/04/08/us/ken-paxton-john-cornyn-senate-race.html
+
 **Mets bullpen takeaways: Reed Garrett sets the tone as relievers drive early success**\
 `Mets relievers have a 1.27 ERA this season, rescuing a rotation that has only one quality start.`\
 https://nytimes.com/athletic/6265497/2025/04/08/mets-bullpen-reed-garrett-takeaways/
