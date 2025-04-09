@@ -1,3 +1,11 @@
+**The New York Times in Print for Wednesday, April 9, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/09/todays-new-york-times
+
+**What Special Relationship?**\
+`Despite Winston Churchill’s coining of the phrase “special relationship,” the history of relations between the two nations shows it’s not so special.`\
+https://nytimes.com/2025/04/09/opinion/us-uk-special-relationship.html
+
 **Wednesday Briefing**\
 `President Trump’s tariffs take effect.`\
 https://nytimes.com/2025/04/09/briefing/tariffs-congo-iran.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6263600/2025/04/09/nuno-nottingham-forest-manager-s
 **Introducing Barcelona's secret weapon: Robert Lewandowski pointing at space**\
 `In a subtle way, Lewandowski is as crucial to his side's build-up play as ever — even if the numbers don't show it`\
 https://nytimes.com/athletic/6260972/2025/04/09/robert-lewandowski-barcelona-pointing-dortmund/
-
-**Who could replace Alexander-Arnold at Liverpool?**\
-`Analysing the candidates - internal and external - to replace the right-back if he departs for Real Madrid this summer`\
-https://nytimes.com/athletic/6249195/2025/04/09/trent-alexander-arnold-liverpool-replacements/
-
-**Can you put a price on Alexander Isak? ‘Maybe you have Haaland, you have Mbappe, but after that…’**\
-`Newcastle have no interest in selling Isak but that might not stop some clubs for trying. Which raises the question, how much would he cost?`\
-https://nytimes.com/athletic/6254763/2025/04/09/what-would-alexander-isak-really-cost/
 

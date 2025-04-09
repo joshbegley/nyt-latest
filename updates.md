@@ -1,3 +1,7 @@
+**Wednesday Briefing**\
+`President Trump’s tariffs take effect.`\
+https://nytimes.com/2025/04/09/briefing/tariffs-congo-iran.html
+
 **Devastating Floods Hit Congo’s Capital, Leaving Dozens Dead**\
 `People waded through knee-deep waters after a deadly storm brought torrential rain that flooded streets and cars in the Democratic Republic of Congo’s capital.`\
 https://nytimes.com/video/world/africa/100000010099664/congo-kinshasa-floods.html
