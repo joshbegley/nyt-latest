@@ -3,7 +3,7 @@
 https://nytimes.com/2025/04/09/world/europe/britain-universal-theme-park.html
 
 **Wild stars Kirill Kaprizov and Joel Eriksson Ek expected to return Wednesday night: Sources**\
-`If Kaprizov and Eriksson Ek return, the Wild’s lone missing player will be defenseman Jake Middleton, who is day-to-day.`\
+`If Kaprizov and Eriksson Ek return, the Wild’s lone missing player will be defenseman Jake Middleton, who is day to day.`\
 https://nytimes.com/athletic/6266935/2025/04/09/wild-kirill-kaprizov-joel-eriksson-ek-returns/
 
 **Coalition Deal in Germany Clears Way for Friedrich Merz to Become Chancellor**\
