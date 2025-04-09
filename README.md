@@ -1,3 +1,7 @@
+**PL's longest-serving match official to work final game**\
+`The 56-year old will be on the touchline this Saturday at the Eithad when Man City take on Crystal Palace in his 579th Premier League game. `\
+https://nytimes.com/athletic/6267036/2025/04/09/premier-league-darren-cann-final-game/
+
 **The Bounce: Luka Dončić's tense Dallas return has finally arrived. What should we expect?**\
 `Luka Dončić is finally returning to Dallas after the most shocking trade in NBA history. Zach Harper previews what could come.`\
 https://nytimes.com/athletic/6266800/2025/04/09/luka-doncic-lakers-mavericks-trade-return-nba-the-bounce/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/09/business/economy/bonds-tariffs-safe-haven.html
 **Delta Warns Trump’s Trade War Could Lead to a Recession**\
 `Delta is one of the largest U.S. companies to warn that the escalating trade war is weighing on its business and the global economy.`\
 https://nytimes.com/2025/04/09/business/delta-airlines-tariffs-recession.html
-
-**Cannavaro sacked by Dinamo Zagreb after 14 matches**\
-`Cannavaro won seven of his 14 competitive matches in charge of the Croatian club, including victory over Milan in the Champions League.`\
-https://nytimes.com/athletic/6266871/2025/04/09/fabio-cannavaro-sacked-dinamo-zagreb/
 
