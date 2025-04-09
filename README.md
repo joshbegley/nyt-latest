@@ -1,3 +1,7 @@
+**LeBrun: How the Canadiens' deal to bring over Ivan Demidov from the KHL came together so quickly**\
+`No one involved in Demidov’s release from his KHL contract knew for sure it was happening until Tuesday. He could make his debut Monday.`\
+https://nytimes.com/athletic/6267646/2025/04/09/ivan-demidov-khl-canadiens-contract/
+
 **Tiny Love Stories: ‘This Unusual Wooing Worked’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/04/09/style/tiny-modern-love-stories-this-unusual-wooing-worked.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5714851/2025/04/09/van-dijk-salah-liverpool-contrac
 **Analysing the technique behind Declan Rice's extraordinary free-kick double against Real Madrid**\
 `Ball-striking coach Bartek Sylwestrzak on how Arsenal's midfielder made Champions League history against Madrid`\
 https://nytimes.com/athletic/6266260/2025/04/09/declan-rice-free-kick-double-real-madrid/
-
-**Ray Shero, Wild senior adviser and ex-GM of the Pens and Devils, dies at 62**\
-`Shero spent three decades working in NHL front offices, including serving as GM of the Penguins and Devils and senior adviser for the Wild.`\
-https://nytimes.com/athletic/6267363/2025/04/09/ray-shero-dies-nhl-wild-penguins-devils/
 
