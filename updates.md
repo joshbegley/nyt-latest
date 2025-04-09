@@ -1,3 +1,11 @@
+**Fernando Tatis Jr., Jake Cronenworth day to day for Padres after leaving with injuries**\
+`Manager Mike Shildt indicated the plan is for both Tatis and Cronenworth to rest for at least the next two days.`\
+https://nytimes.com/athletic/6266202/2025/04/09/padres-fernando-tatis-jr-jake-cronenworth-injuries/
+
+**Will the Jets keep Luke Schenn? Neal Pionk? What's up with the 5-on-3 power play? Mailbag**\
+`Also: Why the Jets took so long to try Morgan Barron at centre, and more on Chaz Lucius' retirement.`\
+https://nytimes.com/athletic/6260606/2025/04/09/winnipeg-jets-schenn-power-play-lucius/
+
 **Netanyahu Sticks By Trump’s Brazen Proposal for Gazans to Leave**\
 `Prime Minister Benjamin Netanyahu of Israel said his government was serious about “voluntary” migration, after an Oval Office meeting where President Trump appeared to have lost interest.`\
 https://nytimes.com/2025/04/09/world/middleeast/netanyahu-trump-gaza.html
