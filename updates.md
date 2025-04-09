@@ -1,3 +1,15 @@
+**Former Penguins coach Dan Bylsma mourns Ray Shero's death**\
+`A tearful Bylsma expressed his love and respect for Shero, his old boss who passed away on Thursday.`\
+https://nytimes.com/athletic/6267847/2025/04/09/ray-shero-death-dan-bylsma/
+
+**Texas Tech's Toppin returning in 2025-26, with big NIL payday expected**\
+`Toppin's return to school is emblematic of a time where some players can make more money in college basketball than the NBA.`\
+https://nytimes.com/athletic/6268061/2025/04/09/jt-toppin-texas-tech-return-nil/
+
+**Canada Vows to Use Billions From Trade Retaliation to Aid Workers and Businesses**\
+`But exactly what the country will do remains unclear and the scale of the current disruption makes decision-making difficult.`\
+https://nytimes.com/2025/04/09/world/canada/canada-tariffs-business-aid.html
+
 **The Briefing: Paris Saint-Germain 3 Aston Villa 1 - Kvaratskhelia magic, Villa resolve tested to limit**\
 `Paris Saint-Germain take a two-goal lead to Villa Park after an enthralling Champions League quarterfinal first leg`\
 https://nytimes.com/athletic/6264440/2025/04/09/paris-saint-germain-3-aston-villa-1-kvaratskhelia-doue/
