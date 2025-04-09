@@ -1,3 +1,15 @@
+**The Legacy of the Black Caddies at the Masters**\
+`They would often form special bonds with the golfers that lasted decades. Carl Jackson caddied for Ben Crenshaw dozens of times, including for his two wins at Augusta.`\
+https://nytimes.com/2025/04/09/sports/golf/masters-black-caddies-augusta.html
+
+**Whitmer Attacks Trump’s Tariffs, but Avoids Attacking Trump**\
+`At an event in Washington, Gov. Gretchen Whitmer of Michigan struck a more measured tone on the president’s trade war than other Democrats seen as possible 2028 contenders.`\
+https://nytimes.com/2025/04/09/us/politics/gretchen-whitmer-speech-tariffs.html
+
+**Bernhard Langer Returns to the Masters to Say Goodbye**\
+`A pickleball injury sidelined him last year, but he is returning to a course he loves.`\
+https://nytimes.com/2025/04/09/sports/golf/bernhard-langer-masters.html
+
 **In a Storm of Tariffs, Many Companies See China as the Safest Harbor**\
 `The heavy U.S. tariffs on other Asian countries have made China a more appealing option for companies scared to make a hasty decision amid upheaval in global trade.`\
 https://nytimes.com/2025/04/09/business/trump-tariffs-china-factories.html

@@ -1,3 +1,15 @@
+**The Legacy of the Black Caddies at the Masters**\
+`They would often form special bonds with the golfers that lasted decades. Carl Jackson caddied for Ben Crenshaw dozens of times, including for his two wins at Augusta.`\
+https://nytimes.com/2025/04/09/sports/golf/masters-black-caddies-augusta.html
+
+**Whitmer Attacks Trump’s Tariffs, but Avoids Attacking Trump**\
+`At an event in Washington, Gov. Gretchen Whitmer of Michigan struck a more measured tone on the president’s trade war than other Democrats seen as possible 2028 contenders.`\
+https://nytimes.com/2025/04/09/us/politics/gretchen-whitmer-speech-tariffs.html
+
+**Bernhard Langer Returns to the Masters to Say Goodbye**\
+`A pickleball injury sidelined him last year, but he is returning to a course he loves.`\
+https://nytimes.com/2025/04/09/sports/golf/bernhard-langer-masters.html
+
 **In a Storm of Tariffs, Many Companies See China as the Safest Harbor**\
 `The heavy U.S. tariffs on other Asian countries have made China a more appealing option for companies scared to make a hasty decision amid upheaval in global trade.`\
 https://nytimes.com/2025/04/09/business/trump-tariffs-china-factories.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/09/science/moon-far-side-water-china.html
 **Scientists Map Miles of Wiring in a Speck of Mouse Brain**\
 `Scientists achieved “a milestone” by charting the activity and structure of 200,000 cells in a mouse brain and their 523 million connections.`\
 https://nytimes.com/2025/04/09/science/neuroscience-brain-mice-map.html
-
-**Dallas Cowboys NFL Draft 2025 guide: Picks, predictions and key needs**\
-`The Cowboys have the 12th overall pick and 10 total selections in the NFL Draft.`\
-https://nytimes.com/athletic/6233115/2025/04/09/dallas-cowboys-2025-nfl-draft-picks-needs-predictions-guide/
-
-**How Lucas Bergvall went from the bench to Tottenham's trusted 'lump' in just a few months**\
-`Lucas Bergvall’s first appearance for Tottenham nearly ended in disaster, but he has quickly grown into a key player in his first season`\
-https://nytimes.com/athletic/6263501/2025/04/09/lucas-bergvall-tottenham/
-
-**How to watch Masters 2025: Round 1 tee times, groupings, odds and info**\
-`The 2025 Masters Tournament begins Thursday, with Scottie Scheffler opening as the tournament's favorite, followed by Rory McIlroy.`\
-https://nytimes.com/athletic/6255892/2025/04/09/masters-tournament-2025-round-1-tee-times-how-to-watch/
 
