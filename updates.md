@@ -1,3 +1,11 @@
+**House Strikes Down $5 Overdraft Fee Limit, Sending Issue to Trump**\
+`Lawmakers also struck down a rule giving the Consumer Financial Protection Bureau supervisory power over tech companies’ payments apps.`\
+https://nytimes.com/2025/04/09/business/house-strikes-down-5-overdraft-fee-limit-sending-issue-to-trump.html
+
+**Live Count: The House Votes on the Republican Budget**\
+`The House is preparing to vote on a budget blueprint, a first step towards passing President Trump’s plans for spending and tax cuts.`\
+https://nytimes.com/interactive/2025/04/09/us/politics/house-budget-vote.html
+
 **OpenAI Asks Court to Bar Elon Musk From Unfairly Attacking It**\
 `In a legal filing on Wednesday, OpenAI asked a federal court to hold Mr. Musk responsible for any damage he has caused the firm, in the latest sign of their bitter feud.`\
 https://nytimes.com/2025/04/09/technology/openai-elon-musk-lawsuit.html
