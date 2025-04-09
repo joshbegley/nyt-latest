@@ -1,3 +1,11 @@
+**Pittsburgh Steelers NFL Draft 2025 guide: Picks, predictions and key needs**\
+`Everything you need to know about the Steelers ahead of the draft, from their most pressing needs to how their QB situation factors in.`\
+https://nytimes.com/athletic/6228127/2025/04/09/pittsburgh-steelers-2025-nfl-draft-picks-needs-predictions-guide/
+
+**Dwight Howard, part of 2025 Hall of Fame basketball class, signs with Ice Cube's Big3**\
+`"I can't wait to join the L.A. Riot and try to bring another championship to the city of L.A.," the eight-time All-Star said.`\
+https://nytimes.com/athletic/6265972/2025/04/09/dwight-howard-big3-nba-hall-of-fame/
+
 **Seattle Seahawks NFL Draft 2025 guide: Picks, predictions and key needs**\
 `Everything you need to know about the Seahawks ahead of the draft, as Seattle now has a host of picks to work with.`\
 https://nytimes.com/athletic/6228062/2025/04/09/seattle-seahawks-2025-nfl-draft-picks-needs-predictions-guide/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6267313/2025/04/09/nfl-quarterback-draft-history-be
 **Novak Djokovic out of Monte Carlo Masters after Alejandro Tabilo upset**\
 `Djokovic fell to Tabilo in straight sets in a bumpy start to his transition to clay-court tennis.`\
 https://nytimes.com/athletic/6267269/2025/04/09/djokovic-monte-carlo-masters-tabilo-result-analysis/
-
-**At Dance Theater of Harlem, ‘Mr. G Has a Plan’**\
-`Robert Garland has built the company’s season on the idea that varied works can be in conversation with each other — and with dancers’ bodies.`\
-https://nytimes.com/2025/04/09/arts/dance/dancer-theater-of-harlem-robert-garland-jodie-gates-forsythe.html
-
-**What’s in Our Queue? ‘Will & Harper’ and More**\
-`Text by Juliet Macur`\
-https://nytimes.com/card/2025/04/09/arts/editors-recommendations-willharper
 
