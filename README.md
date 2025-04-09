@@ -1,9 +1,17 @@
+**Seattle Seahawks NFL Draft 2025 guide: Picks, predictions and key needs**\
+`Everything you need to know about the Seahawks ahead of the draft, as Seattle now has a host of picks to work with.`\
+https://nytimes.com/athletic/6228062/2025/04/09/seattle-seahawks-2025-nfl-draft-picks-needs-predictions-guide/
+
+**A New Thomas Pynchon Novel Is Coming This Fall**\
+`Featuring a Depression-era private eye, “Shadow Ticket” will be the 87-year-old writer’s first book since 2013.`\
+https://nytimes.com/2025/04/09/books/thomas-pynchon-new-novel-shadow-ticket.html
+
 **Trump Has Targeted These Universities. Why?**\
 `President Trump has set his sights on defunding colleges, singling out some of the world’s wealthiest schools in what critics say is an attack on academic freedom.`\
 https://nytimes.com/article/trump-university-college.html
 
 **The Trump Envoy Who Got Close to the ‘World’s Coolest Dictator’**\
-`U.S. officials said Ronald Johnson’s actions during his time as ambassador to El Salvador seemed less aligned with U.S. interest and more focused on protecting the country’s president.`\
+`U.S. officials said Ronald Johnson’s actions during his time as ambassador to El Salvador seemed less aligned with U.S. interests and more focused on protecting the country’s president.`\
 https://nytimes.com/2025/04/09/world/americas/ronald-johnson-ambassador-el-salvador.html
 
 **Avalanche loan Gabriel Landeskog to AHL on conditioning assignment**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/09/arts/dance/dancer-theater-of-harlem-robert-garlan
 **What’s in Our Queue? ‘Will & Harper’ and More**\
 `Text by Juliet Macur`\
 https://nytimes.com/card/2025/04/09/arts/editors-recommendations-willharper
-
-**Aluko to continue libel case against Barton after court rules posts defamatory**\
-`Barton's social media posts about Aluko in January 2024 —including one where Barton alleged she was a "race card player" — were defamatory.`\
-https://nytimes.com/athletic/6266895/2025/04/09/joey-barton-defamation-eni-aluko/
-
-**The Legacy of the Black Caddies at the Masters**\
-`They would often form special bonds with the golfers that lasted decades. Carl Jackson caddied for Ben Crenshaw dozens of times, including for his two wins at Augusta.`\
-https://nytimes.com/2025/04/09/sports/golf/masters-black-caddies-augusta.html
 
