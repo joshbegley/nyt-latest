@@ -1,3 +1,7 @@
+**England forward Michelle Agyemang scores stunning goal 41 second into her debut**\
+`The 19-year-old Brighton forward, on loan from Arsenal, instantly made her mark on the international stage`\
+https://nytimes.com/athletic/6265399/2025/04/09/michelle-agyemang-england-debut-goal/
+
 **India’s Drug Makers Shudder as Trump Again Threatens Tariffs**\
 `The United States is India’s biggest market for pharmaceutical exports, which are its most successful industrial exports.`\
 https://nytimes.com/2025/04/09/business/trump-tariffs-pharmaceuticals-india.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/09/business/trump-tariffs-philippines.html
 **Late Night Frantically Tries to Keep Up With the Tariffs**\
 `“I’d say he’s like a bull in a china shop, but at 104 percent, I can’t afford to say that,” Desi Lydic said of President Trump on “The Daily Show.”`\
 https://nytimes.com/2025/04/09/arts/television/desi-lydic-trump-tariffs-china.html
-
-**China Censors Hashtags Mentioning ‘104%,’ the Size of Trump’s Tariffs**\
-`State media drove social media discussions around phrases like: “America is fighting a trade war while begging for eggs.”`\
-https://nytimes.com/2025/04/09/world/asia/china-tariffs-censorship.html
 

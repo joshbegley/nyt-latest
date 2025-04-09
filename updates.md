@@ -1,3 +1,7 @@
+**England forward Michelle Agyemang scores stunning goal 41 second into her debut**\
+`The 19-year-old Brighton forward, on loan from Arsenal, instantly made her mark on the international stage`\
+https://nytimes.com/athletic/6265399/2025/04/09/michelle-agyemang-england-debut-goal/
+
 **India’s Drug Makers Shudder as Trump Again Threatens Tariffs**\
 `The United States is India’s biggest market for pharmaceutical exports, which are its most successful industrial exports.`\
 https://nytimes.com/2025/04/09/business/trump-tariffs-pharmaceuticals-india.html
