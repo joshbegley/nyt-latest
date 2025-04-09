@@ -1,3 +1,11 @@
+**Proxy Voting Defeat Reflects a House Out of Step With Modern Culture**\
+`A majority of House members backed changing the rules to allow new parents to vote remotely. But in a Congress dominated by far-right Republicans, parental leave was a bridge too far.`\
+https://nytimes.com/2025/04/09/us/politics/house-republicans-proxy-voting-parental-leave.html
+
+**House G.O.P. Leaders Press Ahead With Budget Vote as Defectors Dig In**\
+`Republicans scheduled a vote for Wednesday evening, but they were still at least a dozen votes short of a majority for their fiscal blueprint.`\
+https://nytimes.com/2025/04/09/us/politics/house-budget-vote-republicans.html
+
 **Analyzing Trump’s Words and Deeds**\
 `Readers offer views on the president’s behavior. Also: Protecting our rights; shutting down a library agency.`\
 https://nytimes.com/2025/04/09/opinion/analyzing-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6267306/2025/04/09/the-masters-lebron-barbie-ken-do
 **Pittsburgh Steelers NFL Draft 2025 guide: Picks, predictions and key needs**\
 `Everything you need to know about the Steelers ahead of the draft, from their most pressing needs to how their QB situation factors in.`\
 https://nytimes.com/athletic/6228127/2025/04/09/pittsburgh-steelers-2025-nfl-draft-picks-needs-predictions-guide/
-
-**Dwight Howard, part of 2025 Hall of Fame basketball class, signs with Ice Cube's Big3**\
-`"I can't wait to join the L.A. Riot and try to bring another championship to the city of L.A.," the eight-time All-Star said.`\
-https://nytimes.com/athletic/6265972/2025/04/09/dwight-howard-big3-nba-hall-of-fame/
-
-**Seattle Seahawks NFL Draft 2025 guide: Picks, predictions and key needs**\
-`Everything you need to know about the Seahawks ahead of the draft, as Seattle now has a host of picks to work with.`\
-https://nytimes.com/athletic/6228062/2025/04/09/seattle-seahawks-2025-nfl-draft-picks-needs-predictions-guide/
 
