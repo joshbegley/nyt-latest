@@ -1,40 +1,40 @@
+**Where Ukrainian Children Once Played, Piles of Toys Memorialize the Dead**\
+`A Russian missile strike near a playground in central Ukraine killed 19 people, including nine children. The attack was a painful reminder that a cease-fire remains as distant as ever.`\
+https://nytimes.com/2025/04/09/world/europe/ukraine-kryvyi-ri-attack.html
+
+**Trump Wants an Iran Nuclear Deal, but It Must Be Better Than Obama’s**\
+`Nuclear talks between the United States and Iran are set for Saturday. President Trump has set a high bar for success.`\
+https://nytimes.com/2025/04/09/us/politics/trump-iran-nuclear-deal.html
+
+**‘Totally Silly.’ Trump’s Focus on Trade Deficit Bewilders Economists.**\
+`Behind Trump’s new tariffs is a goal that is as ambitious as it is unrealistic: eliminating the bilateral trade deficit with every U.S. trading partner.`\
+https://nytimes.com/2025/04/09/business/economy/trump-trade-deficit-tariffs-economist-doubts.html
+
+**Mars Is the Priority, Trump’s Pick to Lead NASA Will Say**\
+`Jared Isaacman, a billionaire entrepreneur who has twice launched to orbit in a SpaceX vehicle, will testify before the Senate on Wednesday.`\
+https://nytimes.com/2025/04/09/science/nasa-jared-isaacman-confirmation.html
+
+**Connections: Sports Edition Coach: Hints for April 9, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6265356/2025/04/09/connections-sports-edition-hints-for-april-9-2025/
+
+**What Will Happen to the Handbags?**\
+`As tariffs on the European Union take effect, luxury goods makers are “biting their nails” over their treasured “Made in France” or “Made in Italy” products.`\
+https://nytimes.com/2025/04/09/style/tariffs-eu-luxury-fashion.html
+
+**Red Wings' playoff fate looks all but sealed as their season slips away in Montreal**\
+`Detroit's playoff drought looks destined to go to nine years after a 4-1 gutting loss to the Canadiens.`\
+https://nytimes.com/athletic/6265751/2025/04/09/red-wings-canadiens-nhl-playoff-odds/
+
+**Corrections: April 9, 2025**\
+`Corrections that appeared in print on Wednesday, April 9, 2025.`\
+https://nytimes.com/2025/04/09/pageoneplus/corrections-april-9-2025.html
+
+**Quote of the Day: Justices Duck A Showdown**\
+`Quotation of the Day for Wednesday, April 9, 2025.`\
+https://nytimes.com/2025/04/08/pageoneplus/quote-of-the-day-justices-duck-a-showdown.html
+
 **Yohe's 10 observations: Penguins have their way with hapless Blackhawks**\
 `Erik Karlsson scored his 200th goal and the final result never looked in doubt as the Penguins cruised to a shutout victory.`\
 https://nytimes.com/athletic/6265654/2025/04/08/penguins-karlsson-mcgroarty-injury-blackhawks/
-
-**Canucks become first team in NHL history to overcome 3-goal deficit in final minute of game**\
-`Vancouver kept its slim playoff hopes alive in dramatic comeback fashion with a miracle 6-5 overtime win in Dallas.`\
-https://nytimes.com/athletic/6265762/2025/04/08/canucks-stars-nhl-comeback-playoffs/
-
-**Here’s the latest.**\
-`By Ana Swanson`\
-https://nytimes.com/live/2025/04/08/business/trump-tariffs-china-stock-market/heres-the-latest
-
-**Live Updates: Punishing Tariffs Set to Take Effect as Trump Shows No Signs of Backing Down**\
-`Investors braced for another rocky day of trading. South Korea and Japan are sending delegations to Washington to negotiate, while China says it will fight the latest levies.`\
-https://nytimes.com/live/2025/04/08/business/trump-tariffs-china-stock-market
-
-**Blue Jackets awaken offensively, stave off playoff elimination by beating Ottawa**\
-`The odds might be long for Columbus to make the postseason, but the Blue Jackets are determined to keep pushing.`\
-https://nytimes.com/athletic/6265839/2025/04/08/blue-jackets-wild-card-race-senators/
-
-**Here’s what happened on Tuesday.**\
-`By The New York Times`\
-https://nytimes.com/live/2025/04/08/us/trump-news-tariffs/heres-what-happened-on-tuesday
-
-**How the Ottawa Senators ended their 8-year playoff drought**\
-`The Senators will return to the Stanley Cup playoffs for the first time since 2017. What took so long, and how did they finally get here?`\
-https://nytimes.com/athletic/6256528/2025/04/08/ottawa-senators-nhl-playoffs-clinch-drought/
-
-**Was Dončić talking to ref or fan? Star ejected late in loss to Thunder**\
-`OKC outscored L.A. 28-13 after Lakers star was tossed. LeBron James calls finish "weird as hell."`\
-https://nytimes.com/athletic/6265843/2025/04/08/luka-doncic-ejected-lakers-lose-to-thunder/
-
-**Hours before tariffs begin, Trump declares victory and mocks critics.**\
-`The president claimed that foreign countries would “do anything” in the hopes of getting the tariffs removed, but left unclear what if anything was open to negotiation.`\
-https://nytimes.com/live/2025/04/08/us/trump-news-tariffs/hours-before-tariffs-begin-trump-declares-victory-and-mocks-critics
-
-**Parts of Jaden Rashada fraud lawsuit against Florida coach Billy Napier can proceed, judge rules**\
-`Judge decides that UF defendants tried to "lure Rashada away from Miami, all while knowing they would never make good on the NIL promises."`\
-https://nytimes.com/athletic/6265756/2025/04/08/jayden-rashada-lawsuit-billy-napier/
 
