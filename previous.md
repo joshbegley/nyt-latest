@@ -30,11 +30,11 @@ https://nytimes.com/athletic/6266871/2025/04/09/fabio-cannavaro-sacked-dinamo-za
 `Michael Salfino identifies attainable players, like José Soriano, with encouraging early-season metrics for fantasy baseball managers.`\
 https://nytimes.com/athletic/6264820/2025/04/09/fasntasy-baseball-2025-early-observations-brandon-lowe/
 
-**Green Bay Packers NFL Draft 2025 guide: Picks, predictions and key needs**\
-`What you need to know as the Packers head into, and host, the NFL Draft.`\
-https://nytimes.com/athletic/6222142/2025/04/09/green-bay-packers-2025-nfl-draft-picks-needs-predictions-guide/
-
 **Israeli Airstrike in Gaza City Leaves Many Dead, Health Officials There Say**\
 `The strike on a home left other bodies buried under the rubble, according to the Gazan authorities. The Israeli military said it had been targeting a Hamas operative.`\
 https://nytimes.com/2025/04/09/world/middleeast/israel-gaza-city-strike-hamas.html
+
+**A Small African Nation Has Few Options to Counter 50% U.S. Tariffs**\
+`In Lesotho, which makes denim that goes into U.S.-branded jeans, both the private sector and the government were weighing their next moves.`\
+https://nytimes.com/2025/04/09/business/economy/lesotho-trump-tariffs-us-denim.html
 

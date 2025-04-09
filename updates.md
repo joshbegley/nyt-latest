@@ -1,3 +1,7 @@
+**A Small African Nation Has Few Options to Counter 50% U.S. Tariffs**\
+`In Lesotho, which makes denim that goes into U.S.-branded jeans, both the private sector and the government were weighing their next moves.`\
+https://nytimes.com/2025/04/09/business/economy/lesotho-trump-tariffs-us-denim.html
+
 **Britain Lost Out on Euro Disney. Now It’s Getting a Universal Theme Park.**\
 `A yet-to-be-named Universal Studios theme park will be the country’s largest tourist attraction when it opens in 2031. But studio executives have not yet said which characters will be featured.`\
 https://nytimes.com/2025/04/09/world/europe/britain-universal-theme-park.html
