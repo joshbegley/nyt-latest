@@ -1,8 +1,16 @@
+**The Briefing: Paris Saint-Germain 3 Aston Villa 1 - Kvaratskhelia magic, Villa resolve tested to limit**\
+`Paris Saint-Germain take a two-goal lead to Villa Park after an enthralling Champions League quarterfinal first leg`\
+https://nytimes.com/athletic/6264440/2025/04/09/paris-saint-germain-3-aston-villa-1-kvaratskhelia-doue/
+
+**9 Masters long shots who could stun with a top-10 finish at Augusta**\
+`Mixing historical data and current statistics, here's a look at the best long shots to bet on at the Masters.`\
+https://nytimes.com/athletic/6267164/2025/04/09/masters-long-shots-betting-top-10/
+
 **Amazon to Launch First Project Kuiper Internet Satellites: What to Know**\
 `The spacecraft are the online giant’s entry into beaming wireless service from space, but the company has much to do before it can compete with SpaceX’s Starlink.`\
 https://nytimes.com/2025/04/09/science/amazon-kuiper-satellite-launch.html
 
-**The Briefing: Barcelona 4 Dortmund 0 - Can anyone stop Lewandowski, Raphinha and Lamine Yamal?**\
+**The Briefing: Barcelona 4 Borussia Dortmund 0 - Can anyone stop Lewandowski, Raphinha and Lamine Yamal?**\
 `Lewandowski scored his 40th goal of the season and Raphinha and Yamal were also on the scoresheet. Our writers analyse the talking points`\
 https://nytimes.com/athletic/6264439/2025/04/09/barcelona-raphinha-lewandowski-yamal-dortmund-champions-league/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/09/arts/music/rubby-perez-songs-dominican-republic-r
 **Market Chaos Brings Big Ratings to Television Business News**\
 `Viewership of Fox Business and CNBC has soared since President Trump’s tariffs created chaos in the global economy.`\
 https://nytimes.com/2025/04/09/business/media/trump-tariffs-stock-market-fox-cnbc-jamie-dimon.html
-
-**Legacy Motor Club obtains restraining order against RWR in charter suit**\
-`The order prohibits RWR "from selling, leasing, or otherwise encumbering" the charter Legacy is attempting to acquire from RWR for 10 days`\
-https://nytimes.com/athletic/6268008/2025/04/09/legacy-motor-club-obtains-restraining-order-against-rwr-in-suit-of-nascar-charter/
-
-**Major League Baseball exploring MLB.TV licensing deal: Sources**\
-`The move comes as baseball looks for new partners after ESPN opted out of the final three seasons of it $550 million per year contract.`\
-https://nytimes.com/athletic/6267924/2025/04/09/mlb-tv-licensing-deal-networks/
 
