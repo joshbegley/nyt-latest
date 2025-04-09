@@ -1,3 +1,11 @@
+**Tiny Love Stories: ‘This Unusual Wooing Worked’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/04/09/style/tiny-modern-love-stories-this-unusual-wooing-worked.html
+
+**Our Gardener Wants to Avoid Taxes. Should We Pay Him in Cash?**\
+`The magazine’s Ethicist columnist on whether to help a worker reduce his tax burden.`\
+https://nytimes.com/2025/04/09/magazine/gardener-cash-taxes-ethics.html
+
 **Lascelles has further year on Newcastle deal after unannounced extension**\
 `Lascelles has been sidelined since suffering an anterior cruciate ligament (ACL) injury in March 2024.`\
 https://nytimes.com/athletic/6267514/2025/04/09/jamaal-lascelles-newcastle-contract/

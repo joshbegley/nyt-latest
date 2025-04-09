@@ -1,3 +1,11 @@
+**Tiny Love Stories: ‘This Unusual Wooing Worked’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/04/09/style/tiny-modern-love-stories-this-unusual-wooing-worked.html
+
+**Our Gardener Wants to Avoid Taxes. Should We Pay Him in Cash?**\
+`The magazine’s Ethicist columnist on whether to help a worker reduce his tax burden.`\
+https://nytimes.com/2025/04/09/magazine/gardener-cash-taxes-ethics.html
+
 **Lascelles has further year on Newcastle deal after unannounced extension**\
 `Lascelles has been sidelined since suffering an anterior cruciate ligament (ACL) injury in March 2024.`\
 https://nytimes.com/athletic/6267514/2025/04/09/jamaal-lascelles-newcastle-contract/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6266260/2025/04/09/declan-rice-free-kick-double-rea
 **Ray Shero, Wild senior adviser and ex-GM of the Pens and Devils, dies at 62**\
 `Shero spent three decades working in NHL front offices, including serving as GM of the Penguins and Devils and senior adviser for the Wild.`\
 https://nytimes.com/athletic/6267363/2025/04/09/ray-shero-dies-nhl-wild-penguins-devils/
-
-**Pilot Sues Influencer on X in Latest Test of Defamation Law**\
-`Jo Ellis, a National Guard pilot, is suing an influencer who falsely identified her as the captain of a helicopter that collided with a passenger plane in January.`\
-https://nytimes.com/2025/04/09/technology/pilot-lawsuit-jo-ellis-matt-wallace.html
-
-**Ranking 11 recent MLB extensions: Which teams did the best deals? Who overpaid?**\
-`With so many deals this spring, I decided to rank 11 extensions from the club perspective — the best contracts to the riskiest ones.`\
-https://nytimes.com/athletic/6266310/2025/04/09/mlb-extensions-ranking-jackson-merrill-vladimir-guerrerro-jr/
 
