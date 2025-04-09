@@ -1,3 +1,15 @@
+**Former Penguins coach Dan Bylsma mourns Ray Shero's death**\
+`A tearful Bylsma expressed his love and respect for Shero, his old boss who passed away on Thursday.`\
+https://nytimes.com/athletic/6267847/2025/04/09/ray-shero-death-dan-bylsma/
+
+**Texas Tech's Toppin returning in 2025-26, with big NIL payday expected**\
+`Toppin's return to school is emblematic of a time where some players can make more money in college basketball than the NBA.`\
+https://nytimes.com/athletic/6268061/2025/04/09/jt-toppin-texas-tech-return-nil/
+
+**Canada Vows to Use Billions From Trade Retaliation to Aid Workers and Businesses**\
+`But exactly what the country will do remains unclear and the scale of the current disruption makes decision-making difficult.`\
+https://nytimes.com/2025/04/09/world/canada/canada-tariffs-business-aid.html
+
 **The Briefing: Paris Saint-Germain 3 Aston Villa 1 - Kvaratskhelia magic, Villa resolve tested to limit**\
 `Paris Saint-Germain take a two-goal lead to Villa Park after an enthralling Champions League quarterfinal first leg`\
 https://nytimes.com/athletic/6264440/2025/04/09/paris-saint-germain-3-aston-villa-1-kvaratskhelia-doue/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/09/opinion/palestinian-christian-us-evangelicals-gaz
 **Flying Somewhere? You May Finally Need That Real ID.**\
 `After years of postponements, the deadline to show a security-enhanced Real ID at airport security checkpoints is now just weeks away. What to know.`\
 https://nytimes.com/2025/04/09/travel/real-id-deadline-what-to-know.html
-
-**Trump’s Targeting of Homeless Agency Signals Sharp Shift in Policy**\
-`The president has all but shut down the United States Interagency Council on Homelessness, but his real goal appears to be a fundamental change of approach for getting people off the streets.`\
-https://nytimes.com/2025/04/09/us/politics/trump-homelessness.html
-
-**5 Songs by Rubby Pérez, the Merengue Singer Lost in the Roof Collapse**\
-`The musician, 69, got his break in the 1980s and continued releasing albums through 2022.`\
-https://nytimes.com/2025/04/09/arts/music/rubby-perez-songs-dominican-republic-roof-collapse.html
-
-**Market Chaos Brings Big Ratings to Television Business News**\
-`Viewership of Fox Business and CNBC has soared since President Trump’s tariffs created chaos in the global economy.`\
-https://nytimes.com/2025/04/09/business/media/trump-tariffs-stock-market-fox-cnbc-jamie-dimon.html
 

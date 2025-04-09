@@ -1,3 +1,15 @@
+**The Briefing: Paris Saint-Germain 3 Aston Villa 1 - Kvaratskhelia magic, Villa resolve tested to limit**\
+`Paris Saint-Germain take a two-goal lead to Villa Park after an enthralling Champions League quarterfinal first leg`\
+https://nytimes.com/athletic/6264440/2025/04/09/paris-saint-germain-3-aston-villa-1-kvaratskhelia-doue/
+
+**9 Masters long shots who could stun with a top-10 finish at Augusta**\
+`Mixing historical data and current statistics, here's a look at the best long shots to bet on at the Masters.`\
+https://nytimes.com/athletic/6267164/2025/04/09/masters-long-shots-betting-top-10/
+
+**The Briefing: Barcelona 4 Borussia Dortmund 0 - Can anyone stop Lewandowski, Raphinha and Lamine Yamal?**\
+`Lewandowski scored his 40th goal of the season and Raphinha and Yamal were also on the scoresheet. Our writers analyse the talking points`\
+https://nytimes.com/athletic/6264439/2025/04/09/barcelona-raphinha-lewandowski-yamal-dortmund-champions-league/
+
 **Amazon to Launch First Project Kuiper Internet Satellites: What to Know**\
 `The spacecraft are the online giant’s entry into beaming wireless service from space, but the company has much to do before it can compete with SpaceX’s Starlink.`\
 https://nytimes.com/2025/04/09/science/amazon-kuiper-satellite-launch.html
