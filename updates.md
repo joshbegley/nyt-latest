@@ -1,3 +1,27 @@
+**Singer Sues Met Opera Over Firing for Post-Pregnancy Vocal Problems**\
+`The mezzo-soprano Anita Rachvelishvili, who suffered vocal problems during and after pregnancy, is suing the opera company — and the union that represented her — after she lost work.`\
+https://nytimes.com/2025/04/09/arts/music/anita-rachvelishvili-sues-met-opera.html
+
+**INEOS Britannia withdraws America's Cup challenge**\
+`It has alleged the decision was due to the "protracted negotiations" with Athena Racing.`\
+https://nytimes.com/athletic/6267870/2025/04/09/ineos-britannia-americas-cup/
+
+**Trump Backed Down on Tariffs**\
+`Also, scientists mapped miles of wiring in part of a mouse brain. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/04/09/briefing/trump-tariffs-brain-science-garden-tips.html
+
+**Wild GM Bill Guerin on losing Ray Shero, adviser and mentor: 'He changed my life'**\
+`Guerin: “He's just one of those guys that everybody truly liked and loved. A lifetime in hockey, and he was one of the real good guys."`\
+https://nytimes.com/athletic/6268030/2025/04/09/ray-shero-wild-bill-guerin/
+
+**Prince William backs Rice to assume England free-kick duty after Real Madrid display**\
+`Rice scored two free-kicks in the space of 12 minutes as Arsenal beat Real Madrid 3-0 in the Champions League on Tuesday.`\
+https://nytimes.com/athletic/6268090/2025/04/09/declan-rice-prince-william-free-kicks/
+
+**Former Penguins coach Dan Bylsma mourns Ray Shero's death**\
+`A tearful Bylsma expressed his love and respect for his old boss Shero, who passed away on Thursday.`\
+https://nytimes.com/athletic/6267847/2025/04/09/ray-shero-death-dan-bylsma/
+
 **Prince William backs Rice to assume England free-kick duty after Real Madrid display**\
 `Prince William has backed Declan Rice to be England&#8217;s designated free-kick taker after his match-winning role for Arsenal against Real Madrid.`\
 https://nytimes.com/athletic/6268090/2025/04/09/declan-rice-prince-william-free-kicks/
