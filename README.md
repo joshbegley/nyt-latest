@@ -1,3 +1,7 @@
+**Yohe's 10 observations: Penguins have their way with hapless Blackhawks**\
+`Erik Karlsson scored his 200th goal and the final result never looked in doubt as the Penguins cruised to a shutout victory.`\
+https://nytimes.com/athletic/6265654/2025/04/08/penguins-karlsson-mcgroarty-injury-blackhawks/
+
 **Canucks become first team in NHL history to overcome 3-goal deficit in final minute of game**\
 `Vancouver kept its slim playoff hopes alive in dramatic comeback fashion with a miracle 6-5 overtime win in Dallas.`\
 https://nytimes.com/athletic/6265762/2025/04/08/canucks-stars-nhl-comeback-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/04/08/us/trump-news-tariffs/hours-before-tariffs-b
 **Parts of Jaden Rashada fraud lawsuit against Florida coach Billy Napier can proceed, judge rules**\
 `Judge decides that UF defendants tried to "lure Rashada away from Miami, all while knowing they would never make good on the NIL promises."`\
 https://nytimes.com/athletic/6265756/2025/04/08/jayden-rashada-lawsuit-billy-napier/
-
-**Another Rocky Day in Markets: Stocks in Asia Sink**\
-`With the S&P 500 nearing a bear market, shares in Asia decline as China and other major U.S. trading partners await the start of significantly higher tariffs.`\
-https://nytimes.com/2025/04/08/business/trump-tariffs-stock-markets.html
 
