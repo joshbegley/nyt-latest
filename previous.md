@@ -1,4 +1,8 @@
-**Luka Dončić returns to Dallas with the Lakers, compared to Babe Ruth**\
+**Why the Pistons face a unique opportunity against the Knicks, a possible playoff foe**\
+`The last time the Pistons and Knicks matched up, Cade Cunningham's 36-point night led Detroit to a win.`\
+https://nytimes.com/athletic/6268275/2025/04/09/pistons-unique-opportunity-knicks-playoffs/
+
+**Luka Dončić returns to Dallas as Laker; Jason Kidd compares trade to Babe Ruth**\
 `Lakers coach JJ Redick said his message to Dončić would be that his teammates and coaches “got your back.” `\
 https://nytimes.com/athletic/6268272/2025/04/09/luka-doncic-returns-dallas-babe-ruth/
 
@@ -23,7 +27,7 @@ https://nytimes.com/2025/04/09/business/house-overdraft-fee-limit-cfpb.html
 https://nytimes.com/interactive/2025/04/09/us/politics/house-budget-vote.html
 
 **OpenAI Asks Court to Bar Elon Musk From Unfairly Attacking It**\
-`In a legal filing on Wednesday, OpenAI asked a federal court to hold Mr. Musk responsible for any damage he has caused the firm, in the latest sign of their bitter feud.`\
+`In a legal filing, OpenAI asked a federal court to hold Mr. Musk responsible for any damage he has caused the firm, in the latest sign of their bitter feud.`\
 https://nytimes.com/2025/04/09/technology/openai-elon-musk-lawsuit.html
 
 **Justice Dept. Bars Its Lawyers From American Bar Association Functions**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/09/us/politics/justice-dept-bars-its-lawyers-from-am
 **Trump Administration Cuts Funding and Staff for Flagship Climate Report**\
 `The move raises concerns among scientists that the assessment, which is required by Congress, is now in jeopardy.`\
 https://nytimes.com/2025/04/09/climate/trump-national-climate-assessment.html
-
-**The Masters let Ángel Cabrera return. What does that say?**\
-`Cabrera is 20 months removed from a 30-month prison stint. He spent time in three different jails for domestic violence.`\
-https://nytimes.com/athletic/6268095/2025/04/09/masters-angel-cabrera-return-champion/
 
