@@ -1,3 +1,11 @@
+**The New York Times International Edition in Print for Thursday, April 10, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/04/09/todays-new-york-times-international-edition
+
+**One tip former Masters champion Zach Johnson picked up: An 'attitude of gratitude'**\
+`As Zach Johnson prepares for his 21st Masters appearance, he shares some mental skills tips and practices he's picked up along the way.`\
+https://nytimes.com/athletic/6264509/2025/04/09/one-tip-former-masters-champion-zach-johnson-picked-up-an-attitude-of-gratitude/
+
 **Milan's Walker undergoes surgery after right elbow fracture**\
 `The 34-year-old has made 12 appearances for Milan since joining the club on loan from Manchester City in January.`\
 https://nytimes.com/athletic/6266334/2025/04/09/kyle-walker-milan-surgery/

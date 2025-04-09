@@ -1,3 +1,11 @@
+**The New York Times International Edition in Print for Thursday, April 10, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/04/09/todays-new-york-times-international-edition
+
+**One tip former Masters champion Zach Johnson picked up: An 'attitude of gratitude'**\
+`As Zach Johnson prepares for his 21st Masters appearance, he shares some mental skills tips and practices he's picked up along the way.`\
+https://nytimes.com/athletic/6264509/2025/04/09/one-tip-former-masters-champion-zach-johnson-picked-up-an-attitude-of-gratitude/
+
 **Milan's Walker undergoes surgery after right elbow fracture**\
 `The 34-year-old has made 12 appearances for Milan since joining the club on loan from Manchester City in January.`\
 https://nytimes.com/athletic/6266334/2025/04/09/kyle-walker-milan-surgery/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/09/us/politics/trump-law-firms-orders.html
 **Fate of Congestion Pricing Is Likely to Be Decided in Fall or Later**\
 `State and federal officials have agreed to a court timeline that keeps the tolls in place for several months. The federal Transportation Department said it was still fighting to end the program.`\
 https://nytimes.com/2025/04/09/nyregion/fate-of-congestion-pricing-is-likely-to-be-decided-in-fall-or-later.html
-
-**New Generation of African Chocolatiers Gets Hobbled by U.S. Tariffs**\
-`The new levies come as nations on the continent continue to struggle with the fallout of the Trump administration’s dismantling of the U.S. Agency for International Development.`\
-https://nytimes.com/2025/04/09/world/africa/africa-tariffs-cocoa-chocolate.html
-
-**Brian Schottenheimer on the job: Building culture, balancing being head coach, play caller**\
-`The Cowboys' first-year coach has been prepping for the NFL Draft and "can't wait" to get his players back in the building.`\
-https://nytimes.com/athletic/6265287/2025/04/09/cowboys-brian-schottenheimer-play-caller-coach/
 
