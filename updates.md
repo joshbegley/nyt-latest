@@ -1,3 +1,15 @@
+**Seattle Seahawks NFL Draft 2025 guide: Picks, predictions and key needs**\
+`Everything you need to know about the Seahawks ahead of the draft, as Seattle now has a host of picks to work with.`\
+https://nytimes.com/athletic/6228062/2025/04/09/seattle-seahawks-2025-nfl-draft-picks-needs-predictions-guide/
+
+**A New Thomas Pynchon Novel Is Coming This Fall**\
+`Featuring a Depression-era private eye, “Shadow Ticket” will be the 87-year-old writer’s first book since 2013.`\
+https://nytimes.com/2025/04/09/books/thomas-pynchon-new-novel-shadow-ticket.html
+
+**The Trump Envoy Who Got Close to the ‘World’s Coolest Dictator’**\
+`U.S. officials said Ronald Johnson’s actions during his time as ambassador to El Salvador seemed less aligned with U.S. interests and more focused on protecting the country’s president.`\
+https://nytimes.com/2025/04/09/world/americas/ronald-johnson-ambassador-el-salvador.html
+
 **Trump Has Targeted These Universities. Why?**\
 `President Trump has set his sights on defunding colleges, singling out some of the world’s wealthiest schools in what critics say is an attack on academic freedom.`\
 https://nytimes.com/article/trump-university-college.html
