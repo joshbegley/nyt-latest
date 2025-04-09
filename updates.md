@@ -1,3 +1,11 @@
+**How to watch Masters 2025: Round 1 tee times, groupings, odds and info**\
+`The 2025 Masters Tournament begins Thursday, with Scottie Scheffler opening as the tournament's favorite, followed by Rory McIlroy.`\
+https://nytimes.com/athletic/6255892/2025/04/09/masters-tournament-2025-round-1-tee-times-how-to-watch/
+
+**What the Government Knows About You in Official Data Sets Trump Wants to Link Together**\
+`Databases that Elon Musk’s team is trying to access include more than 300 personal details about members of the U.S. public.`\
+https://nytimes.com/2025/04/09/us/politics/trump-musk-data-access.html
+
 **Bob McManus, Blunt Editorial Voice of The New York Post, Dies at 81**\
 `As the editor of the tabloid’s editorial page and as a columnist, he skewered those he considered phonies and symbols of failed progressivism.`\
 https://nytimes.com/2025/04/09/business/media/bob-mcmanus-dead.html
