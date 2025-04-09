@@ -1,3 +1,7 @@
+**It felt like Leeds against the world - luckily, that's the way they like it**\
+`Leeds managed to beat Middlesbrough 1-0 on Tuesday night to climb back to the top of the Championship`\
+https://nytimes.com/athletic/6265981/2025/04/09/leeds-united-middlesbrough-analysis-promotion/
+
 **Word of the Day: stylus**\
 `This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/04/09/learning/word-of-the-day-stylus.html
