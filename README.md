@@ -1,3 +1,11 @@
+**Twins' Pablo López exits game with apparent leg injury**\
+`López grabbed the back of his right leg with two outs in the fifth inning, then left the game. It interrupted his best start of the season.`\
+https://nytimes.com/athletic/6265706/2025/04/08/pablo-lopez-leg-injury-twins-royals/
+
+**Why Ivan Demidov's entry-level contract with Canadiens includes a Conn Smythe bonus**\
+`Demidov's three-year entry-level contract includes a $525,000 bonus if he wins the Conn Smythe Trophy as MVP of the upcoming playoffs.`\
+https://nytimes.com/athletic/6265641/2025/04/08/canadiens-ivan-demidov-contract/
+
 **Cavaliers clinch No. 1 seed in the East for first time without LeBron**\
 `Rout of Bulls gives Cavs four-game lead over Celtics with three games remaining in the regular season.`\
 https://nytimes.com/athletic/6265575/2025/04/08/cavaliers-clinch-top-seed-east-without-lebron/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6265497/2025/04/08/mets-bullpen-reed-garrett-takeaw
 **Amid Tension Around H.H.S. Cuts, Kennedy Meets With Tribal Leaders**\
 `The health secretary’s appearance at a tribal self-governance conference brought collegial discussions and a bit of friction.`\
 https://nytimes.com/2025/04/08/health/rfk-jr-indian-health-tribal-leaders.html
-
-**Jets prospect Chaz Lucius retires from hockey at 21 for medical reasons**\
-`The 2021 first-round pick announced his retirement from professional hockey Tuesday after being diagnosed with Ehlers-Danlos syndrome.`\
-https://nytimes.com/athletic/6265424/2025/04/08/winnipeg-jets-prospect-chaz-lucius-retires/
-
-**Ken Paxton Says He Will Challenge Senator John Cornyn in 2026**\
-`The announcement by Mr. Paxton, the attorney general of Texas and a firebrand conservative, set up what is expected to be a blockbuster showdown in Texas.`\
-https://nytimes.com/2025/04/08/us/ken-paxton-john-cornyn-senate-race.html
 
