@@ -1,3 +1,7 @@
+**Jarren Duran wants those struggling with mental health to know they're not alone**\
+`Duran hopes to reach those who might feel alone with their mental health struggles. "Even if I can just help one person, it's meaningful."`\
+https://nytimes.com/athletic/6265406/2025/04/08/jarren-duran-red-sox-mental-health-awareness/
+
 **Ken Paxton Says He Will Challenge Senator John Cornyn in 2026**\
 `The announcement by Mr. Paxton, the attorney general of Texas and a firebrand conservative, set up what is likely to be a blockbuster showdown in Texas.`\
 https://nytimes.com/2025/04/08/us/ken-paxton-john-cornyn-senate-race.html

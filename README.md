@@ -1,3 +1,7 @@
+**Jets prospect Chaz Lucius retires from hockey at 21 for medical reasons**\
+`The 2021 first-round pick announced his retirement from professional hockey Tuesday after being diagnosed with Ehlers-Danlos syndrome.`\
+https://nytimes.com/athletic/6265424/2025/04/08/winnipeg-jets-prospect-chaz-lucius-retires/
+
 **Ken Paxton Says He Will Challenge Senator John Cornyn in 2026**\
 `The announcement by Mr. Paxton, the attorney general of Texas and a firebrand conservative, set up what is likely to be a blockbuster showdown in Texas.`\
 https://nytimes.com/2025/04/08/us/ken-paxton-john-cornyn-senate-race.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/08/us/politics/chinese-intelligence-fired-us-workers
 **An Experiment in Recklessness: Trump as Global Disrupter**\
 `The global trading system is only one example of the administration tearing something apart, only to reveal that it has no plan for how to replace it.`\
 https://nytimes.com/2025/04/08/us/politics/trump-tariffs-global-trade-war.html
-
-**U.S. Commanders Worry Yemen Campaign Will Drain Arms Needed to Deter China**\
-`American military officials say the Pentagon might need to dip into stockpiles in Asia to replenish supplies in the Middle East, congressional aides say.`\
-https://nytimes.com/2025/04/08/us/politics/china-weapons-yemen-bombing.html
 
