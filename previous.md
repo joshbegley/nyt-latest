@@ -1,3 +1,7 @@
+**The Pulse: The best day on the NFL Draft schedule**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6265072/2025/04/09/the-beast-nfl-draft-the-pulse/
+
 **China Dismisses Ukraine’s Assertion That ‘Many’ Chinese Are Fighting for Russia**\
 `President Volodymyr Zelensky of Ukraine said that two Chinese men fighting alongside Russian troops had been captured and that there were “many more” on the battlefield.`\
 https://nytimes.com/2025/04/09/world/asia/china-ukraine-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5698361/2025/04/09/the-beast-2025-redirects/
 **'The Beast' Printable version: NFL Draft 2025 scouting reports and player prospect rankings**\
 `You also have two ways to study The Beast in 2025: our classic, printable PDF version and a new, exciting interactive version.`\
 https://nytimes.com/athletic/6259709/2025/04/09/nfl-draft-2025-the-beast-pdf-version/
-
-**American Is Arrested in Thailand on Charges of Criticizing Royalty**\
-`The U.S. State Department said it was alarmed at the arrest of Paul Chambers, a lecturer in civil-military relations, under Thailand’s strict lèse-majesté laws.`\
-https://nytimes.com/2025/04/09/us/paul-chambers-thailand-monarchy-arrest.html
 
