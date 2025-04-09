@@ -1,3 +1,19 @@
+**This Chicken With Artichokes and Lemon is Festive and Forgiving**\
+`Use fresh or frozen artichokes. Cook it day-of in an hour, or make it ahead of time and reheat. However you prepare this lovely dish, it’s bound to delight.`\
+https://nytimes.com/2025/04/09/dining/this-chicken-with-artichokes-and-lemon-is-festive-and-forgiving.html
+
+**Chinese Lunar Rocks Suggest a Thirsty Far Side of the Moon**\
+`Using samples gathered from the Chang’e-6 mission, scientists found that the interior of the moon on the half we never see from Earth might be drier than the near side.`\
+https://nytimes.com/2025/04/09/science/moon-far-side-water-china.html
+
+**Scientists Map Miles of Wiring in a Speck of Mouse Brain**\
+`Scientists achieved “a milestone” by charting the activity and structure of 200,000 cells in a mouse brain and their 523 million connections.`\
+https://nytimes.com/2025/04/09/science/neuroscience-brain-mice-map.html
+
+**How Lucas Bergvall went from the bench to Tottenham's trusted 'lump' in just a few months**\
+`Lucas Bergvall’s first appearance for Tottenham nearly ended in disaster, but he has quickly grown into a key player in his first season`\
+https://nytimes.com/athletic/6263501/2025/04/09/lucas-bergvall-tottenham/
+
 **How to watch Masters 2025: Round 1 tee times, groupings, odds and info**\
 `The 2025 Masters Tournament begins Thursday, with Scottie Scheffler opening as the tournament's favorite, followed by Rory McIlroy.`\
 https://nytimes.com/athletic/6255892/2025/04/09/masters-tournament-2025-round-1-tee-times-how-to-watch/
