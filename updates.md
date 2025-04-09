@@ -1,3 +1,15 @@
+**Mets bullpen takeaways: Reed Garrett sets the tone as relievers drive early success**\
+`Mets relievers have a 1.27 ERA this season, rescuing a rotation that has only one quality start.`\
+https://nytimes.com/athletic/6265497/2025/04/08/mets-bullpen-reed-garrett-takeaways/
+
+**Amid Tension Around H.H.S. Cuts, Kennedy Meets With Tribal Leaders**\
+`The health secretary’s appearance at a tribal self-governance conference brought collegial discussions and a bit of friction.`\
+https://nytimes.com/2025/04/08/health/rfk-jr-indian-health-tribal-leaders.html
+
+**Jets prospect Chaz Lucius retires from hockey at 21 for medical reasons**\
+`The 2021 first-round pick announced his retirement from professional hockey Tuesday after being diagnosed with Ehlers-Danlos syndrome.`\
+https://nytimes.com/athletic/6265424/2025/04/08/winnipeg-jets-prospect-chaz-lucius-retires/
+
 **Jarren Duran wants those struggling with mental health to know they're not alone**\
 `Duran hopes to reach those who might feel alone with their mental health struggles. "Even if I can just help one person, it's meaningful."`\
 https://nytimes.com/athletic/6265406/2025/04/08/jarren-duran-red-sox-mental-health-awareness/
