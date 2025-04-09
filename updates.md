@@ -1,3 +1,11 @@
+**Twins' Pablo López exits game with apparent leg injury**\
+`López grabbed the back of his right leg with two outs in the fifth inning, then left the game. It interrupted his best start of the season.`\
+https://nytimes.com/athletic/6265706/2025/04/08/pablo-lopez-leg-injury-twins-royals/
+
+**Why Ivan Demidov's entry-level contract with Canadiens includes a Conn Smythe bonus**\
+`Demidov's three-year entry-level contract includes a $525,000 bonus if he wins the Conn Smythe Trophy as MVP of the upcoming playoffs.`\
+https://nytimes.com/athletic/6265641/2025/04/08/canadiens-ivan-demidov-contract/
+
 **Cavaliers clinch No. 1 seed in the East for first time without LeBron**\
 `Rout of Bulls gives Cavs four-game lead over Celtics with three games remaining in the regular season.`\
 https://nytimes.com/athletic/6265575/2025/04/08/cavaliers-clinch-top-seed-east-without-lebron/
