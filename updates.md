@@ -1,3 +1,11 @@
+**Braves' Sean Murphy returns from IL, homers off Zack Wheeler in first at-bat**\
+`ATLANTA — On a night when Chris Sale looked like just another pitcher instead of the reigning NL Cy Young Award winner, the Atlanta Braves needed someone to step up and spark a moribund offense.`\
+https://nytimes.com/athletic/6266019/2025/04/09/braves-sean-murphy-zack-wheeler/
+
+**Assessing Brighton's chances of Europe after a difficult fortnight**\
+`Defeats to Villa and Palace in the Premier League, and FA Cup elimination by Forest, have left Brighton licking their wounds - so what next?`\
+https://nytimes.com/athletic/6260866/2025/04/09/brighton-europe/
+
 **Why winning the Conference League is more important than ever to Chelsea**\
 `Winning the Conference League would give Chelsea benefits across the board if they fail to qualify for the Champions League`\
 https://nytimes.com/athletic/6263960/2025/04/09/chelsea-conference-league-importance/

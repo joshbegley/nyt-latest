@@ -1,3 +1,11 @@
+**Braves' Sean Murphy returns from IL, homers off Zack Wheeler in first at-bat**\
+`ATLANTA — On a night when Chris Sale looked like just another pitcher instead of the reigning NL Cy Young Award winner, the Atlanta Braves needed someone to step up and spark a moribund offense.`\
+https://nytimes.com/athletic/6266019/2025/04/09/braves-sean-murphy-zack-wheeler/
+
+**Assessing Brighton's chances of Europe after a difficult fortnight**\
+`Defeats to Villa and Palace in the Premier League, and FA Cup elimination by Forest, have left Brighton licking their wounds - so what next?`\
+https://nytimes.com/athletic/6260866/2025/04/09/brighton-europe/
+
 **Why winning the Conference League is more important than ever to Chelsea**\
 `Winning the Conference League would give Chelsea benefits across the board if they fail to qualify for the Champions League`\
 https://nytimes.com/athletic/6263960/2025/04/09/chelsea-conference-league-importance/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6265715/2025/04/09/blackhawks-team-meeting-shutout-
 **Gibbs-White's persistent creativity makes him a smart option to replace De Bruyne at Man City**\
 `It's the high share of attacking responsibility he takes that makes Gibbs-White an attractive watch and explains Man City's interest`\
 https://nytimes.com/athletic/6264409/2025/04/09/morgan-gibbs-white-manchester-city-transfer/
-
-**Carney Chukwuemeka feels key to Borussia Dortmund's future - but can they afford to keep him?**\
-`The Chelsea loanee has only played 135 minutes in the Bundesliga, but his positivity is already bringing the best out of his new team-mates`\
-https://nytimes.com/athletic/6263808/2025/04/09/chukwuemeka-dortmund-chelsea-barcelona/
-
-**Unai Emery at PSG: The historic defeat that casts a shadow over his time in Paris**\
-`The Aston Villa manager returns to the Parc des Princes with his reputation restored after a tough time with the French club`\
-https://nytimes.com/athletic/6257180/2025/04/09/unai-emery-paris-saint-germain-champions-league/
 
