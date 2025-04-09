@@ -1,3 +1,7 @@
+**LeBrun: How the Canadiens' deal to bring over Ivan Demidov from the KHL came together so quickly**\
+`No one involved in Demidov’s release from his KHL contract knew for sure it was happening until Tuesday. He could make his debut Monday.`\
+https://nytimes.com/athletic/6267646/2025/04/09/ivan-demidov-khl-canadiens-contract/
+
 **Tiny Love Stories: ‘This Unusual Wooing Worked’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/04/09/style/tiny-modern-love-stories-this-unusual-wooing-worked.html
