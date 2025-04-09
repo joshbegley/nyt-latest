@@ -1,3 +1,11 @@
+**Who Is Mike Huckabee, Trump’s Ambassador to Israel?**\
+`Mr. Huckabee’s nomination drew sharp criticism from Democrat lawmakers and some faith groups, who said his past statements on Palestinian identity were “highly incendiary.”`\
+https://nytimes.com/2025/04/09/world/americas/mike-huckabee-ambassador-israel.html
+
+**Two Theories of What’s Going on With the Bond Market**\
+`By Steven Rattner`\
+https://nytimes.com/live/2025/04/07/opinion/thepoint/bond-market-tariffs
+
 **House Republicans Move to Prevent Vote on Repealing Trump’s Tariffs**\
 `Under a measure the G.O.P. is working to pass on Wednesday, lawmakers would give up their ability to force a vote on undoing the president’s tariffs until October.`\
 https://nytimes.com/2025/04/09/us/politics/house-republicans-trump-tariffs-vote.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6267638/2025/04/09/falcons-mock-draft-mailbag-submi
 **Cubs pitcher Justin Steele lands on injured list with elbow tendonitis**\
 `Steele said Wednesday that the injury feels similar to one he suffered late last season.`\
 https://nytimes.com/athletic/6267435/2025/04/09/cubs-pitcher-justin-steele-injured-list-elbow/
-
-**IOC approves more women's teams, new swimming events in adds to L.A. Olympics**\
-`The IOC is expanding the Olympic women's soccer and 3X3 basketball tournaments in 2028 while adding several new events in swimming and more.`\
-https://nytimes.com/athletic/6267551/2025/04/09/olympics-la-2028-new-events-swimming-soccer-basketball/
-
-**Submit your Bears mock drafts for Kevin Fishbain’s mock draft mailbag**\
-`Submit your Bears mock drafts — trade up, trade back, stand pat and let us know what you think is the best route for GM Ryan Poles.`\
-https://nytimes.com/athletic/6267617/2025/04/09/bears-mock-draft-mailbag-submissions-2/
 
