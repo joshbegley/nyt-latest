@@ -2,8 +2,8 @@
 `The Senators will return to the Stanley Cup playoffs for the first time since 2017. What took so long, and how did they finally get here?`\
 https://nytimes.com/athletic/6256528/2025/04/08/ottawa-senators-nhl-playoffs-clinch-drought/
 
-**Luka Dončić ejected late in Lakers' 136-120 loss to Thunder**\
-`OKC outscored L.A. 28-13 after Lakers star was tossed for drawing second technical foul.`\
+**Was Dončić talking to ref or fan? Star ejected late in loss to Thunder**\
+`OKC outscored L.A. 28-13 after Lakers star was tossed. LeBron James calls finish "weird as hell."`\
 https://nytimes.com/athletic/6265843/2025/04/08/luka-doncic-ejected-lakers-lose-to-thunder/
 
 **Hours before tariffs begin, Trump declares victory and mocks critics.**\
