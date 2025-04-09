@@ -1,3 +1,11 @@
+**Fernando Tatis Jr., Jake Cronenworth day to day for Padres after leaving with injuries**\
+`Manager Mike Shildt indicated the plan is for both Tatis and Cronenworth to rest for at least the next two days.`\
+https://nytimes.com/athletic/6266202/2025/04/09/padres-fernando-tatis-jr-jake-cronenworth-injuries/
+
+**Will the Jets keep Luke Schenn? Neal Pionk? What's up with the 5-on-3 power play? Mailbag**\
+`Also: Why the Jets took so long to try Morgan Barron at centre, and more on Chaz Lucius' retirement.`\
+https://nytimes.com/athletic/6260606/2025/04/09/winnipeg-jets-schenn-power-play-lucius/
+
 **Netanyahu Sticks By Trump’s Brazen Proposal for Gazans to Leave**\
 `Prime Minister Benjamin Netanyahu of Israel said his government was serious about “voluntary” migration, after an Oval Office meeting where President Trump appeared to have lost interest.`\
 https://nytimes.com/2025/04/09/world/middleeast/netanyahu-trump-gaza.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6266623/2025/04/09/uswnt-brazil-emma-hayes-analysis
 **'They don't like you to run': Lessons from Masters caddies young and old**\
 `If you’re an Augusta expert, you’re the most valuable caddie in the game.`\
 https://nytimes.com/athletic/6264766/2025/04/09/masters-caddies-lessons-augusta-national/
-
-**What matters (and what doesn't) about Sabres' late-season hot streak**\
-`The Sabres have won 10 of their last 13 games. After a 13-game losing streak earlier in the season, that doesn't mean much. Or does it?`\
-https://nytimes.com/athletic/6266059/2025/04/09/sabres-hot-streak-playoff-elimination/
-
-**John Tavares earns the Maple Leafs' Masterton Trophy nomination**\
-`The award is given to the NHL player "who best exemplifies the qualities of perseverance, sportsmanship, and dedication to hockey."`\
-https://nytimes.com/athletic/6264500/2025/04/09/maple-leafs-masterton-trophy-nhl-john-tavares/
 

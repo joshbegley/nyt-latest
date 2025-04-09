@@ -1,3 +1,11 @@
+**Netanyahu Sticks By Trump’s Brazen Proposal for Gazans to Leave**\
+`Prime Minister Benjamin Netanyahu of Israel said his government was serious about “voluntary” migration, after an Oval Office meeting where President Trump appeared to have lost interest.`\
+https://nytimes.com/2025/04/09/world/middleeast/netanyahu-trump-gaza.html
+
+**William Byron on competitiveness, middle fingers and aggressiveness: 12 Questions**\
+`William Byron talks about his frustrations with losing, his use of the middle finger on the racetrack and more in the latest 12 Questions.`\
+https://nytimes.com/athletic/6264387/2025/04/09/william-byron-nascar-middle-finger-12-questions/
+
 **How Inter utilised their trademark move to edge past Bayern Munich**\
 `Simone Inzaghi's side did not panic when their opponents equalised late on - instead they turned to a tried and tested method of scoring `\
 https://nytimes.com/athletic/6266214/2025/04/09/inter-trademark-goal-champions-league/
