@@ -1,3 +1,7 @@
+**Motorsport UK chairman accuses FIA of lack of transparency**\
+`David Richards wrote in a letter that the FIA is becoming "ever more opaque and concentrating power in the hands of the President alone."`\
+https://nytimes.com/athletic/6268344/2025/04/09/david-richards-motorsport-uk-fia-letter/
+
 **Brett Baty's latest chance with Mets is not going well — at all**\
 `Though Baty is not in immediate jeopardy of being sent to Triple A, time is definitely becoming a factor for the struggling second baseman.`\
 https://nytimes.com/athletic/6268364/2025/04/09/new-york-mets-brett-baty-hitting/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/04/09/us/politics/house-budget-vote.html
 **OpenAI Asks Court to Bar Elon Musk From Unfairly Attacking It**\
 `In a legal filing, OpenAI asked a federal court to hold Mr. Musk responsible for any damage he has caused the firm, in the latest sign of their bitter feud.`\
 https://nytimes.com/2025/04/09/technology/openai-elon-musk-lawsuit.html
-
-**Justice Dept. Bars Its Lawyers From American Bar Association Functions**\
-`The punitive move comes amid the Trump administration’s pressure campaign against big law firms.`\
-https://nytimes.com/2025/04/09/us/politics/justice-dept-bars-its-lawyers-from-american-bar-association-functions.html
 

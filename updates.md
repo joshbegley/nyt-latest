@@ -1,3 +1,7 @@
+**Motorsport UK chairman accuses FIA of lack of transparency**\
+`David Richards wrote in a letter that the FIA is becoming "ever more opaque and concentrating power in the hands of the President alone."`\
+https://nytimes.com/athletic/6268344/2025/04/09/david-richards-motorsport-uk-fia-letter/
+
 **Brett Baty's latest chance with Mets is not going well — at all**\
 `Though Baty is not in immediate jeopardy of being sent to Triple A, time is definitely becoming a factor for the struggling second baseman.`\
 https://nytimes.com/athletic/6268364/2025/04/09/new-york-mets-brett-baty-hitting/
