@@ -1,3 +1,7 @@
+**Paddington Returns to His Bench. Order Is Restored.**\
+`Two men vandalized a statue of England’s beloved storybook bear last month. On Wednesday, he was returned to his bench in the town of Newbury — with a marmalade sandwich, of course.`\
+https://nytimes.com/2025/04/09/world/europe/paddington-bear-statue-stolen-newbury-uk.html
+
 **Eleven games in, the Astros are in a 'process' with prospect Cam Smith**\
 `“Obviously it’s not productive,” Smith said of his at-bats. “I know I’m an elite hitter, but I have to show that.”`\
 https://nytimes.com/athletic/6266201/2025/04/09/astros-cam-smith-hitting/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/09/world/asia/india-tariffs-stock-market.html
 **Scottie Barnes' poor shooting season clouds the Raptors' offensive outlook**\
 `Scottie Barnes is a complex player to build around primarily because of his low shooting numbers.`\
 https://nytimes.com/athletic/6265001/2025/04/09/scottie-barnes-poor-shooting-raptors/
-
-**Canadiens have their most important day in years as playoffs and Ivan Demidov approach**\
-`The Canadiens are straddling a line between the future and the present. The imminent arrival of Demidov could very well address both.`\
-https://nytimes.com/athletic/6266240/2025/04/09/canadiens-demidov-red-wings-win-playoffs/
 
