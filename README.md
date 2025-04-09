@@ -1,3 +1,15 @@
+**Bob McManus, Blunt Editorial Voice of The New York Post, Dies at 81**\
+`As the editor of the tabloid’s editorial page and as a columnist, he skewered those he considered phonies and symbols of failed progressivism.`\
+https://nytimes.com/2025/04/09/business/media/bob-mcmanus-dead.html
+
+**Postecoglou accuses Spurs critics of 'turning gold into c***'**\
+`Postecoglou was asked about Mathys Tel taking a penalty instead of Brennan Johnson when the Wales international was on a hat-trick.`\
+https://nytimes.com/athletic/6266900/2025/04/09/ange-postecoglou-tottenham-achievements/
+
+**Caitlin Clark tells Letterman she scored 22 points in 2 minutes in scrimmage**\
+`Years after stories of the legendary scrimmage emerged, footage of Clark's scoring barrage circulated this week.`\
+https://nytimes.com/athletic/6266929/2025/04/09/caitlin-clark-david-letterman-iowa-scrimmage/
+
 **PL's longest-serving match official to work final game**\
 `The 56-year old will be on the touchline this Saturday at the Eithad when Man City take on Crystal Palace in his 579th Premier League game. `\
 https://nytimes.com/athletic/6267036/2025/04/09/premier-league-darren-cann-final-game/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6266935/2025/04/09/wild-kirill-kaprizov-joel-erikss
 **Coalition Deal in Germany Clears Way for Friedrich Merz to Become Chancellor**\
 `The agreement was concluded relatively quickly but still took about six and half weeks, during which the country had been virtually rudderless at a critical moment for Europe.`\
 https://nytimes.com/2025/04/09/world/europe/friedrich-merz-chancellor-coalition-deal.html
-
-**Lawyers for Venezuelans Challenge Deportations, This Time in Texas**\
-`The filing was in response to a Supreme Court decision that let the migrants challenge efforts to deport them under a wartime law, but only in the place where they were being held.`\
-https://nytimes.com/2025/04/09/us/politics/trump-deportations-venezuela-el-salvador.html
-
-**U.S. Bond Sell-Off Raises Questions About ‘Safe Haven’ Status**\
-`As the fallout from President Trump’s global trade war spreads, investors are even fleeing U.S. Treasuries.`\
-https://nytimes.com/2025/04/09/business/economy/bonds-tariffs-safe-haven.html
-
-**Delta Warns Trump’s Trade War Could Lead to a Recession**\
-`Delta is one of the largest U.S. companies to warn that the escalating trade war is weighing on its business and the global economy.`\
-https://nytimes.com/2025/04/09/business/delta-airlines-tariffs-recession.html
 
