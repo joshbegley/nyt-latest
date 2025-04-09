@@ -1,4 +1,4 @@
-**England forward Michelle Agyemang scores stunning goal 41 second into her debut**\
+**‘She has the world at her feet’ - England's Michelle Agyemang stunning international debut**\
 `The 19-year-old Brighton forward, on loan from Arsenal, instantly made her mark on the international stage`\
 https://nytimes.com/athletic/6265399/2025/04/09/michelle-agyemang-england-debut-goal/
 
