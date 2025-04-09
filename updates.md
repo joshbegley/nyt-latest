@@ -1,3 +1,19 @@
+**Who Is Mike Huckabee, Trump’s Ambassador to Israel?**\
+`Mr. Huckabee’s nomination drew sharp criticism from Democrat lawmakers and some faith groups, who said his past statements on Palestinian identity were “highly incendiary.”`\
+https://nytimes.com/2025/04/09/world/americas/mike-huckabee-ambassador-israel.html
+
+**Two Theories of What’s Going on With the Bond Market**\
+`By Steven Rattner`\
+https://nytimes.com/live/2025/04/07/opinion/thepoint/bond-market-tariffs
+
+**House Republicans Move to Prevent Vote on Repealing Trump’s Tariffs**\
+`Under a measure the G.O.P. is working to pass on Wednesday, lawmakers would give up their ability to force a vote on undoing the president’s tariffs until October.`\
+https://nytimes.com/2025/04/09/us/politics/house-republicans-trump-tariffs-vote.html
+
+**Death Toll Continues to Climb After Dominican Nightclub Roof Collapse**\
+`People looked for signs that their missing friends and family members might have survived the deadly nightclub roof collapse in the Dominican Republic.`\
+https://nytimes.com/video/world/americas/100000010100969/dominican-roof-collapse-survivors.html
+
 **LeBrun: How the Canadiens' deal to bring over Ivan Demidov from the KHL came together so quickly**\
 `No one involved in Demidov’s release from his KHL contract knew for sure it was happening until Tuesday. He could make his debut Monday.`\
 https://nytimes.com/athletic/6267646/2025/04/09/ivan-demidov-khl-canadiens-contract/
