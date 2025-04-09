@@ -1,3 +1,11 @@
+**How to watch Masters 2025: Round 1 tee times, groupings, odds and info**\
+`The 2025 Masters Tournament begins Thursday, with Scottie Scheffler opening as the tournament's favorite, followed by Rory McIlroy.`\
+https://nytimes.com/athletic/6255892/2025/04/09/masters-tournament-2025-round-1-tee-times-how-to-watch/
+
+**What the Government Knows About You in Official Data Sets Trump Wants to Link Together**\
+`Databases that Elon Musk’s team is trying to access include more than 300 personal details about members of the U.S. public.`\
+https://nytimes.com/2025/04/09/us/politics/trump-musk-data-access.html
+
 **Bob McManus, Blunt Editorial Voice of The New York Post, Dies at 81**\
 `As the editor of the tabloid’s editorial page and as a columnist, he skewered those he considered phonies and symbols of failed progressivism.`\
 https://nytimes.com/2025/04/09/business/media/bob-mcmanus-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6264040/2025/04/09/scoop-city-2025-qb-class-chase-d
 **Britain Lost Out on Euro Disney. Now It’s Getting a Universal Theme Park.**\
 `A yet-to-be-named Universal Studios theme park will be the country’s largest tourist attraction when it opens in 2031. But studio executives have not yet said which characters will be featured.`\
 https://nytimes.com/2025/04/09/world/europe/britain-universal-theme-park.html
-
-**Wild stars Kirill Kaprizov and Joel Eriksson Ek expected to return Wednesday night: Sources**\
-`If Kaprizov and Eriksson Ek return, the Wild’s lone missing player will be defenseman Jake Middleton, who is day to day.`\
-https://nytimes.com/athletic/6266935/2025/04/09/wild-kirill-kaprizov-joel-eriksson-ek-returns/
-
-**Coalition Deal in Germany Clears Way for Friedrich Merz to Become Chancellor**\
-`The agreement was concluded relatively quickly but still took about six and half weeks, during which the country had been virtually rudderless at a critical moment for Europe.`\
-https://nytimes.com/2025/04/09/world/europe/friedrich-merz-chancellor-coalition-deal.html
 

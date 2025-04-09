@@ -1,3 +1,15 @@
+**Bob McManus, Blunt Editorial Voice of The New York Post, Dies at 81**\
+`As the editor of the tabloid’s editorial page and as a columnist, he skewered those he considered phonies and symbols of failed progressivism.`\
+https://nytimes.com/2025/04/09/business/media/bob-mcmanus-dead.html
+
+**Postecoglou accuses Spurs critics of 'turning gold into c***'**\
+`Postecoglou was asked about Mathys Tel taking a penalty instead of Brennan Johnson when the Wales international was on a hat-trick.`\
+https://nytimes.com/athletic/6266900/2025/04/09/ange-postecoglou-tottenham-achievements/
+
+**Caitlin Clark tells Letterman she scored 22 points in 2 minutes in scrimmage**\
+`Years after stories of the legendary scrimmage emerged, footage of Clark's scoring barrage circulated this week.`\
+https://nytimes.com/athletic/6266929/2025/04/09/caitlin-clark-david-letterman-iowa-scrimmage/
+
 **PL's longest-serving match official to work final game**\
 `The 56-year old will be on the touchline this Saturday at the Eithad when Man City take on Crystal Palace in his 579th Premier League game. `\
 https://nytimes.com/athletic/6267036/2025/04/09/premier-league-darren-cann-final-game/
