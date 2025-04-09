@@ -1,3 +1,7 @@
+**Wild stars Kirill Kaprizov and Joel Eriksson Ek expected to return Wednesday night: Sources**\
+`If Kaprizov and Eriksson Ek return, the Wild’s lone missing player will be defenseman Jake Middleton, who is day to day.`\
+https://nytimes.com/athletic/6266935/2025/04/09/wild-kirill-kaprizov-joel-eriksson-ek-returns/
+
 **A Small African Nation Has Few Options to Counter 50% U.S. Tariffs**\
 `In Lesotho, which makes denim that goes into U.S.-branded jeans, both the private sector and the government were weighing their next moves.`\
 https://nytimes.com/2025/04/09/business/economy/lesotho-trump-tariffs-us-denim.html
