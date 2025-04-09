@@ -1,5 +1,9 @@
+**How Concerned Should We Be About the Online ‘Manosphere’?**\
+`A guest essay warns about the surge of male supremacist videos in young men’s social media feeds. What have you noticed or encountered online?`\
+https://nytimes.com/2025/04/09/learning/how-concerned-should-we-be-about-the-online-manosphere.html
+
 **‘She has the world at her feet’ - England's Michelle Agyemang stunning international debut**\
-`The 19-year-old Brighton forward, on loan from Arsenal, instantly made her mark on the international stage`\
+`The 19-year-old Brighton forward, on loan from Arsenal, instantly made her mark on the international stage with a stunning volley`\
 https://nytimes.com/athletic/6265399/2025/04/09/michelle-agyemang-england-debut-goal/
 
 **India’s Drug Makers Shudder as Trump Again Threatens Tariffs**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/09/crosswords/spelling-bee-forum.html
 **Trump’s Tariffs Will Pummel Asia. But One Country Sees Opportunity.**\
 `Factory-led economies are panicking about the steep new tariffs. Not the Philippines, which believes its role as a manufacturing alternative to China can expand.`\
 https://nytimes.com/2025/04/09/business/trump-tariffs-philippines.html
-
-**Late Night Frantically Tries to Keep Up With the Tariffs**\
-`“I’d say he’s like a bull in a china shop, but at 104 percent, I can’t afford to say that,” Desi Lydic said of President Trump on “The Daily Show.”`\
-https://nytimes.com/2025/04/09/arts/television/desi-lydic-trump-tariffs-china.html
 

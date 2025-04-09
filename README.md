@@ -1,3 +1,7 @@
+**In Asia, anxiety about the tariffs and how to negotiate with Trump.**\
+`By Zunaira Saieed`\
+https://nytimes.com/live/2025/04/08/business/trump-tariffs-china-stock-market/in-asia-anxiety-about-the-tariffs-and-how-to-negotiate-with-trump
+
 **How Concerned Should We Be About the Online ‘Manosphere’?**\
 `A guest essay warns about the surge of male supremacist videos in young men’s social media feeds. What have you noticed or encountered online?`\
 https://nytimes.com/2025/04/09/learning/how-concerned-should-we-be-about-the-online-manosphere.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/09/insider/fifty-states-climate-solutions.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/04/09/crosswords/spelling-bee-forum.html
-
-**Trump’s Tariffs Will Pummel Asia. But One Country Sees Opportunity.**\
-`Factory-led economies are panicking about the steep new tariffs. Not the Philippines, which believes its role as a manufacturing alternative to China can expand.`\
-https://nytimes.com/2025/04/09/business/trump-tariffs-philippines.html
 
