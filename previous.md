@@ -1,3 +1,7 @@
+**Brandin Podziemski got his confidence back at just the right time for Warriors**\
+`After some early-season struggles, Podziemski is starting to fulfill the potential that Golden State saw in him.`\
+https://nytimes.com/athletic/6265953/2025/04/09/brandin-podziemski-warriors-turnaround-nba/
+
 **The Pulse: The best day on the NFL Draft schedule**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6265072/2025/04/09/the-beast-nfl-draft-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/09/podcasts/the-headlines/china-tariff-plastics-brai
 **NFL Draft 2025 ‘The Beast’ Guide: Dane Brugler’s scouting reports and player rankings**\
 `With more than 400 profiles and approximately 2,600 prospect rankings, this year's version of "The Beast" is bigger and better than ever.`\
 https://nytimes.com/athletic/5698361/2025/04/09/the-beast-2025-redirects/
-
-**'The Beast' Printable version: NFL Draft 2025 scouting reports and player prospect rankings**\
-`You also have two ways to study The Beast in 2025: our classic, printable PDF version and a new, exciting interactive version.`\
-https://nytimes.com/athletic/6259709/2025/04/09/nfl-draft-2025-the-beast-pdf-version/
 

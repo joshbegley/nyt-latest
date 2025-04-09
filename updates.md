@@ -1,3 +1,7 @@
+**Brandin Podziemski got his confidence back at just the right time for Warriors**\
+`After some early-season struggles, Podziemski is starting to fulfill the potential that Golden State saw in him.`\
+https://nytimes.com/athletic/6265953/2025/04/09/brandin-podziemski-warriors-turnaround-nba/
+
 **The Pulse: The best day on the NFL Draft schedule**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6265072/2025/04/09/the-beast-nfl-draft-the-pulse/
