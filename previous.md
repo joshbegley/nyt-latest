@@ -1,3 +1,11 @@
+**China Dismisses Ukraine’s Assertion That ‘Many’ Chinese Are Fighting for Russia**\
+`President Volodymyr Zelensky of Ukraine said that two Chinese men fighting alongside Russian troops had been captured and that there were “many more” on the battlefield.`\
+https://nytimes.com/2025/04/09/world/asia/china-ukraine-russia.html
+
+**China Condemns American ‘Protectionism’**\
+`Beijing issued a lengthy denunciation of U.S. trade policies and accused Washington of violating a trade deal the countries reached in President Trump’s first term.`\
+https://nytimes.com/2025/04/09/business/economy/china-us-tariffs-protectionism.html
+
 **U.S. Bond Sell-Off is Another Worrisome Echo of the Liz Truss Fiasco**\
 `Yields on U.S. Treasuries rose Wednesday as investors sold government bonds, usually a haven. In Britain, a sustained version of that trend in 2022 led to a prime minister’s downfall.`\
 https://nytimes.com/2025/04/09/business/economy/us-bonds-trump-truss-treasury-yield.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6259709/2025/04/09/nfl-draft-2025-the-beast-pdf-ver
 **American Is Arrested in Thailand on Charges of Criticizing Royalty**\
 `The U.S. State Department said it was alarmed at the arrest of Paul Chambers, a lecturer in civil-military relations, under Thailand’s strict lèse-majesté laws.`\
 https://nytimes.com/2025/04/09/us/paul-chambers-thailand-monarchy-arrest.html
-
-**CBS prepares for its 70th straight Masters: 'It's immortality'**\
-`CBS will be airing its 70th straight year of the Masters Tournament, a unique longevity in sports TV.`\
-https://nytimes.com/athletic/6255539/2025/04/09/the-masters-cbs-jim-nantz-scottie-scheffler/
-
-**Mark Cuban sold the Mavs expecting to still make decisions. Then he heard they traded Luka Dončić**\
-`After the Luka Dončić trade went down, it became clear that Mark Cuban didn't hold the same power he had wielded for two decades in Dallas.`\
-https://nytimes.com/athletic/6265114/2025/04/09/luka-doncic-trade-mark-cuban-nico-harrison-mavericks/
 

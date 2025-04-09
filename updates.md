@@ -1,3 +1,11 @@
+**China Dismisses Ukraine’s Assertion That ‘Many’ Chinese Are Fighting for Russia**\
+`President Volodymyr Zelensky of Ukraine said that two Chinese men fighting alongside Russian troops had been captured and that there were “many more” on the battlefield.`\
+https://nytimes.com/2025/04/09/world/asia/china-ukraine-russia.html
+
+**China Condemns American ‘Protectionism’**\
+`Beijing issued a lengthy denunciation of U.S. trade policies and accused Washington of violating a trade deal the countries reached in President Trump’s first term.`\
+https://nytimes.com/2025/04/09/business/economy/china-us-tariffs-protectionism.html
+
 **U.S. Bond Sell-Off is Another Worrisome Echo of the Liz Truss Fiasco**\
 `Yields on U.S. Treasuries rose Wednesday as investors sold government bonds, usually a haven. In Britain, a sustained version of that trend in 2022 led to a prime minister’s downfall.`\
 https://nytimes.com/2025/04/09/business/economy/us-bonds-trump-truss-treasury-yield.html
