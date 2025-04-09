@@ -1,3 +1,7 @@
+**What Rights Do Migrants Have?**\
+`Plus, we cover the arrival of Trump’s tariffs.`\
+https://nytimes.com/2025/04/09/briefing/immigration-due-process-donald-trump.html
+
 **Brandin Podziemski got his confidence back at just the right time for Warriors**\
 `After some early-season struggles, Podziemski is starting to fulfill the potential that Golden State saw in him.`\
 https://nytimes.com/athletic/6265953/2025/04/09/brandin-podziemski-warriors-turnaround-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6264958/2025/04/09/masters-mcilroy-hypnosis-spieth-
 **A Game of Chicken With China, and How Much Plastic Is in the Human Brain**\
 `Plus, the theme park wars heat up.`\
 https://nytimes.com/2025/04/09/podcasts/the-headlines/china-tariff-plastics-brain-epic-universe.html
-
-**NFL Draft 2025 ‘The Beast’ Guide: Dane Brugler’s scouting reports and player rankings**\
-`With more than 400 profiles and approximately 2,600 prospect rankings, this year's version of "The Beast" is bigger and better than ever.`\
-https://nytimes.com/athletic/5698361/2025/04/09/the-beast-2025-redirects/
 
