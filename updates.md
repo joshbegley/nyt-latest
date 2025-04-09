@@ -1,3 +1,15 @@
+**U.S. Slashes Many of the Aid Programs It Had Promised to Keep**\
+`The U.N. food program said the new cuts “could amount to a death sentence” for millions of desperate people.`\
+https://nytimes.com/2025/04/09/us/politics/usaid-cuts.html
+
+**Top Pro Bono Leader Resigns from Paul Weiss, a Firm Hit in Trump’s Crackdown on Big Law**\
+`Steven Banks, a former head of New York’s social services department, said he wanted to return to defending the rights of the homeless. But he leaves within weeks of the elite firm striking a deal with President Trump.`\
+https://nytimes.com/2025/04/09/business/paul-weiss-steven-banks-trump.html
+
+**Trump Reverses Course on Global Tariffs, Announcing 90-Day Pause**\
+`The president also further raised already steep tariffs on China, saying that Beijing should not have retaliated against his earlier trade actions.`\
+https://nytimes.com/2025/04/09/us/politics/trump-tariffs-stocks-china.html
+
 **John Nelson, Conductor Who Got France to Cherish Berlioz, Dies at 83**\
 `He revived interest in a “problem child” in the pantheon of high romantic composers, bringing Berlioz overdue recognition as one of France’s greatest composers.`\
 https://nytimes.com/2025/04/09/arts/music/john-nelson-dead.html

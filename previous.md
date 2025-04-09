@@ -1,3 +1,15 @@
+**U.S. Slashes Many of the Aid Programs It Had Promised to Keep**\
+`The U.N. food program said the new cuts “could amount to a death sentence” for millions of desperate people.`\
+https://nytimes.com/2025/04/09/us/politics/usaid-cuts.html
+
+**Top Pro Bono Leader Resigns from Paul Weiss, a Firm Hit in Trump’s Crackdown on Big Law**\
+`Steven Banks, a former head of New York’s social services department, said he wanted to return to defending the rights of the homeless. But he leaves within weeks of the elite firm striking a deal with President Trump.`\
+https://nytimes.com/2025/04/09/business/paul-weiss-steven-banks-trump.html
+
+**Trump Reverses Course on Global Tariffs, Announcing 90-Day Pause**\
+`The president also further raised already steep tariffs on China, saying that Beijing should not have retaliated against his earlier trade actions.`\
+https://nytimes.com/2025/04/09/us/politics/trump-tariffs-stocks-china.html
+
 **John Nelson, Conductor Who Got France to Cherish Berlioz, Dies at 83**\
 `He revived interest in a “problem child” in the pantheon of high romantic composers, bringing Berlioz overdue recognition as one of France’s greatest composers.`\
 https://nytimes.com/2025/04/09/arts/music/john-nelson-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/09/arts/design/david-hockney-25-fondation-louis-vuit
 **A Frenzy at Trader Joe’s: ‘Everyone’s Here for the Tote Bags’**\
 `For a second year, a limited run of mini canvas tote bags had people waiting in line outside Trader Joe’s stores. At some stores, they sold out in less than an hour.`\
 https://nytimes.com/2025/04/09/business/trader-joes-tote-bags.html
-
-**Michael Jordan's race team seeks F1 financial info to boost suit against NASCAR**\
-`Jordan's team has been embroiled in an ongoing suit over NASCAR’s franchise-like “charter agreements."`\
-https://nytimes.com/athletic/6267761/2025/04/09/michael-jordan-f1-suit-nascar/
-
-**New Jets QB Justin Fields on being benched in Pittsburgh: 'I wasn’t really comfortable'**\
-`In his first public comments since signing with the Jets, Fields addressed his roller-coaster season with the Steelers.`\
-https://nytimes.com/athletic/6267704/2025/04/09/justin-fields-jets-starting-quarterback-steelers-benching/
-
-**Watch: Who is the most polarizing player in the 2025 NFL Draft class?**\
-`"The Athletic Football Show" discusses Bowling Green tight end Harold Fannin Jr. and his unique draft profile.`\
-https://nytimes.com/athletic/6266293/2025/04/09/athletic-football-show-nfl-draft-polarizing-players/
 
