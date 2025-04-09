@@ -1,3 +1,7 @@
+**Word of the Day: stylus**\
+`This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/04/09/learning/word-of-the-day-stylus.html
+
 **Bayern's squad looks underpowered - they need a big summer**\
 `After being exposed by a crippling injury list in a 2-1 defeat by Inter, Vincent Kompany urgently needs more depth`\
 https://nytimes.com/athletic/6265577/2025/04/09/bayern-munich-transfers-summer-window/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/09/briefing/tariffs-congo-iran.html
 **Devastating Floods Hit Congo’s Capital, Leaving Dozens Dead**\
 `People waded through knee-deep waters after a deadly storm brought torrential rain that flooded streets and cars in the Democratic Republic of Congo’s capital.`\
 https://nytimes.com/video/world/africa/100000010099664/congo-kinshasa-floods.html
-
-**Braves' Sean Murphy returns from IL, homers off Zack Wheeler in first at-bat**\
-`The Braves came from behind to capture a series-opening win against the Philadelphia Phillies: “Everybody kind of did their job."`\
-https://nytimes.com/athletic/6266019/2025/04/09/braves-sean-murphy-zack-wheeler/
 

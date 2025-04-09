@@ -1,3 +1,11 @@
+**Bayern's squad looks underpowered - they need a big summer**\
+`After being exposed by a crippling injury list in a 2-1 defeat by Inter, Vincent Kompany urgently needs more depth`\
+https://nytimes.com/athletic/6265577/2025/04/09/bayern-munich-transfers-summer-window/
+
+**Madrid are unsurprisingly talking about another comeback - but this time feels different**\
+`Madrid lost 3-0 against Arsenal in their Champions League first leg on Tuesday night`\
+https://nytimes.com/athletic/6265964/2025/04/09/real-madrid-arsenal-analysis/
+
 **Reeling From Trump’s Tariffs, South Korea Tries Striking a Delicate Balance**\
 `As its trade negotiators headed to Washington for talks, South Korea announced measures to support the country’s carmakers who were badly hit by the levies announced by President Trump.`\
 https://nytimes.com/2025/04/09/world/asia/south-korea-trump-tariffs-automakers.html
