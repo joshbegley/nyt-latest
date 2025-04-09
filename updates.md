@@ -1,3 +1,7 @@
+**Luka Dončić returns to Dallas with the Lakers, compared to Babe Ruth**\
+`Lakers coach JJ Redick said his message to Dončić would be that his teammates and coaches “got your back.” `\
+https://nytimes.com/athletic/6268272/2025/04/09/luka-doncic-returns-dallas-babe-ruth/
+
 **House Strikes Down $5 Overdraft Fee Limit, Sending Issue to Trump**\
 `Lawmakers also struck down a rule giving the Consumer Financial Protection Bureau supervisory power over tech companies’ payments apps.`\
 https://nytimes.com/2025/04/09/business/house-overdraft-fee-limit-cfpb.html
