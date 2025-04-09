@@ -1,3 +1,7 @@
+**Astros trade reliever Rafael Montero to Braves**\
+`The Astros tried to offload Montero this winter, but found no takers for a 34-year-old reliever with one standout major-league season.`\
+https://nytimes.com/athletic/6265587/2025/04/08/astros-braves-trade-rafael-montero/
+
 **Review: A Party With 17 ‘Old Friends’ and 41 Sondheim Songs**\
 `Bernadette Peters and Lea Salonga lead the festivities in a new Broadway revue of the great musical dramatist’s work.`\
 https://nytimes.com/2025/04/08/theater/old-friends-review-sondheim-peters-salonga.html
