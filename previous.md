@@ -1,3 +1,15 @@
+**The Windup: Are the Tigers legit?**\
+`Welcome to The Windup, The Athletic's MLB newsletter. `\
+https://nytimes.com/athletic/6266210/2025/04/09/detroit-tigers-winning-streak-the-windup/
+
+**‘BE COOL!’ Trump Says, as Tariffs Unleash Global Chaos**\
+`Amid the doom and gloom in financial markets, President Trump continues to insist he’s got a plan.`\
+https://nytimes.com/2025/04/09/business/economy/trump-tariff-comments.html
+
+**Justice Dept. Criticizes Another Federal Judge for Blocking a Trump Executive Order**\
+`Attorney General Pam Bondi relied on an increasingly common assertion: that the judge was “unelected” and denying the will of voters who put the president in office.`\
+https://nytimes.com/2025/04/09/us/politics/federal-judge-trump-executive-order.html
+
 **It’s Wet. It’s Windy. You Need an Anorak.**\
 `Functional, lightweight jackets for unpredictable spring weather.`\
 https://nytimes.com/2025/04/09/t-magazine/best-anoraks.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/09/books/thomas-pynchon-new-novel-shadow-ticket.html
 **Trump Has Targeted These Universities. Why?**\
 `President Trump has set his sights on defunding colleges, singling out some of the world’s wealthiest schools in what critics say is an attack on academic freedom.`\
 https://nytimes.com/article/trump-university-college.html
-
-**The Trump Envoy Who Got Close to the ‘World’s Coolest Dictator’**\
-`U.S. officials said Ronald Johnson’s actions during his time as ambassador to El Salvador seemed less aligned with U.S. interests and more focused on protecting the country’s president.`\
-https://nytimes.com/2025/04/09/world/americas/ronald-johnson-ambassador-el-salvador.html
-
-**Avalanche loan Gabriel Landeskog to AHL on conditioning assignment**\
-`Landeskog hasn't played since winning the Stanley Cup with the Avalanche on June 26, 2022.`\
-https://nytimes.com/athletic/6267230/2025/04/09/avalanche-gabriel-landeskog-ahl/
-
-**Did Reformation Cross a Line Into South Asian Style?**\
-`A collaboration with the influencer Devon Lee Carlson looks a lot like a lehenga, joining a list of recent incidents that inspired questions about cultural appropriation.`\
-https://nytimes.com/2025/04/09/style/reformation-devon-lee-carlson-cultural-appropriation.html
 

@@ -1,3 +1,15 @@
+**The Windup: Are the Tigers legit?**\
+`Welcome to The Windup, The Athletic's MLB newsletter. `\
+https://nytimes.com/athletic/6266210/2025/04/09/detroit-tigers-winning-streak-the-windup/
+
+**‘BE COOL!’ Trump Says, as Tariffs Unleash Global Chaos**\
+`Amid the doom and gloom in financial markets, President Trump continues to insist he’s got a plan.`\
+https://nytimes.com/2025/04/09/business/economy/trump-tariff-comments.html
+
+**Justice Dept. Criticizes Another Federal Judge for Blocking a Trump Executive Order**\
+`Attorney General Pam Bondi relied on an increasingly common assertion: that the judge was “unelected” and denying the will of voters who put the president in office.`\
+https://nytimes.com/2025/04/09/us/politics/federal-judge-trump-executive-order.html
+
 **It’s Wet. It’s Windy. You Need an Anorak.**\
 `Functional, lightweight jackets for unpredictable spring weather.`\
 https://nytimes.com/2025/04/09/t-magazine/best-anoraks.html
