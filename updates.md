@@ -1,3 +1,11 @@
+**Luka Dončić ejected late in Lakers' 136-120 loss to Thunder**\
+`OKC outscored L.A. 28-13 after Lakers star was tossed for drawing second technical foul.`\
+https://nytimes.com/athletic/6265843/2025/04/08/luka-doncic-ejected-lakers-lose-to-thunder/
+
+**Another Rocky Day in Markets: Stocks in Asia Sink**\
+`With the S&P 500 nearing a bear market, shares in Asia decline as China and other major U.S. trading partners await the start of significantly higher tariffs.`\
+https://nytimes.com/2025/04/08/business/trump-tariffs-stock-markets.html
+
 **Hours before tariffs begin, Trump declares victory and mocks critics.**\
 `The president claimed that foreign countries would “do anything” in the hopes of getting the tariffs removed, but left unclear what if anything was open to negotiation.`\
 https://nytimes.com/live/2025/04/08/us/trump-news-tariffs/hours-before-tariffs-begin-trump-declares-victory-and-mocks-critics
