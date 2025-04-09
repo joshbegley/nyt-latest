@@ -1,3 +1,11 @@
+**It’s Wet. It’s Windy. You Need an Anorak.**\
+`Functional, lightweight jackets for unpredictable spring weather.`\
+https://nytimes.com/2025/04/09/t-magazine/best-anoraks.html
+
+**MoneyCall: Can the Masters calm a disrupted golf industry? Plus: LeBron's Barbie crossover**\
+`In this week's sports business cheat sheet from The Athletic, we dig into the Masters, LeBron James' new Barbie crossover and more.`\
+https://nytimes.com/athletic/6267306/2025/04/09/the-masters-lebron-barbie-ken-doll-moneycall/
+
 **Pittsburgh Steelers NFL Draft 2025 guide: Picks, predictions and key needs**\
 `Everything you need to know about the Steelers ahead of the draft, from their most pressing needs to how their QB situation factors in.`\
 https://nytimes.com/athletic/6228127/2025/04/09/pittsburgh-steelers-2025-nfl-draft-picks-needs-predictions-guide/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6267230/2025/04/09/avalanche-gabriel-landeskog-ahl/
 **Did Reformation Cross a Line Into South Asian Style?**\
 `A collaboration with the influencer Devon Lee Carlson looks a lot like a lehenga, joining a list of recent incidents that inspired questions about cultural appropriation.`\
 https://nytimes.com/2025/04/09/style/reformation-devon-lee-carlson-cultural-appropriation.html
-
-**Scoop City: Will the first QB drafted be the best? We checked...**\
-`We unpack 25 years of data to see how often the first QB drafted is the best pro (hint: odds aren't great for Cam Ward)`\
-https://nytimes.com/athletic/6267313/2025/04/09/nfl-quarterback-draft-history-best-career-scoop-city/
-
-**Novak Djokovic out of Monte Carlo Masters after Alejandro Tabilo upset**\
-`Djokovic fell to Tabilo in straight sets in a bumpy start to his transition to clay-court tennis.`\
-https://nytimes.com/athletic/6267269/2025/04/09/djokovic-monte-carlo-masters-tabilo-result-analysis/
 
