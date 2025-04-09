@@ -1,3 +1,7 @@
+**Blackhawks 'blow off some steam' in team meeting after shutout loss to Pens**\
+`Connor Murphy and Ryan Donato didn't share details but said the meeting was an important learning step for the whole team.`\
+https://nytimes.com/athletic/6265715/2025/04/09/blackhawks-team-meeting-shutout-penguins/
+
 **Braves' Sean Murphy returns from IL, homers off Zack Wheeler in first at-bat**\
 `ATLANTA — On a night when Chris Sale looked like just another pitcher instead of the reigning NL Cy Young Award winner, the Atlanta Braves needed someone to step up and spark a moribund offense.`\
 https://nytimes.com/athletic/6266019/2025/04/09/braves-sean-murphy-zack-wheeler/

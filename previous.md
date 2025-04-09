@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6249195/2025/04/09/trent-alexander-arnold-liverpool
 `Newcastle have no interest in selling Isak but that might not stop some clubs for trying. Which raises the question, how much would he cost?`\
 https://nytimes.com/athletic/6254763/2025/04/09/what-would-alexander-isak-really-cost/
 
-**Blackhawks 'blow off some steam' in team meeting after shutout loss to Penguins**\
+**Blackhawks 'blow off some steam' in team meeting after shutout loss to Pens**\
 `Connor Murphy and Ryan Donato didn't share details but said the meeting was an important learning step for the whole team.`\
 https://nytimes.com/athletic/6265715/2025/04/09/blackhawks-team-meeting-shutout-penguins/
 
