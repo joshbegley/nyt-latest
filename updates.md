@@ -1,3 +1,7 @@
+**Word of the Day: stylus**\
+`This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/04/09/learning/word-of-the-day-stylus.html
+
 **Bayern's squad looks underpowered - they need a big summer**\
 `After being exposed by a crippling injury list in a 2-1 defeat by Inter, Vincent Kompany urgently needs more depth`\
 https://nytimes.com/athletic/6265577/2025/04/09/bayern-munich-transfers-summer-window/
