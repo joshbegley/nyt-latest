@@ -1,3 +1,7 @@
+**Trump Administration Cuts Research Funding Claiming It Creates ‘Climate Anxiety’**\
+`The cuts to a Princeton University program come as the Trump administration has been reviewing an array of research grants related to global warming.`\
+https://nytimes.com/2025/04/09/climate/trump-noaa-princeton-climate-research.html
+
 **Proxy Voting Defeat Reflects a House Out of Step With Modern Culture**\
 `A majority of House members backed changing the rules to allow new parents to vote remotely. But in a Congress dominated by far-right Republicans, parental leave was a bridge too far.`\
 https://nytimes.com/2025/04/09/us/politics/house-republicans-proxy-voting-parental-leave.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/09/t-magazine/best-anoraks.html
 **MoneyCall: Can the Masters calm a disrupted golf industry? Plus: LeBron's Barbie crossover**\
 `In this week's sports business cheat sheet from The Athletic, we dig into the Masters, LeBron James' new Barbie crossover and more.`\
 https://nytimes.com/athletic/6267306/2025/04/09/the-masters-lebron-barbie-ken-doll-moneycall/
-
-**Pittsburgh Steelers NFL Draft 2025 guide: Picks, predictions and key needs**\
-`Everything you need to know about the Steelers ahead of the draft, from their most pressing needs to how their QB situation factors in.`\
-https://nytimes.com/athletic/6228127/2025/04/09/pittsburgh-steelers-2025-nfl-draft-picks-needs-predictions-guide/
 

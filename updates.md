@@ -1,3 +1,7 @@
+**Trump Administration Cuts Research Funding Claiming It Creates ‘Climate Anxiety’**\
+`The cuts to a Princeton University program come as the Trump administration has been reviewing an array of research grants related to global warming.`\
+https://nytimes.com/2025/04/09/climate/trump-noaa-princeton-climate-research.html
+
 **Proxy Voting Defeat Reflects a House Out of Step With Modern Culture**\
 `A majority of House members backed changing the rules to allow new parents to vote remotely. But in a Congress dominated by far-right Republicans, parental leave was a bridge too far.`\
 https://nytimes.com/2025/04/09/us/politics/house-republicans-proxy-voting-parental-leave.html
