@@ -1,3 +1,15 @@
+**Tracy Schwarz, Mainstay of the New Lost City Ramblers, Dies at 86**\
+`He was the last surviving member of a retro-minded string trio whose celebration of prewar songs of the rural South put them at the heart of the folk revival.`\
+https://nytimes.com/2025/04/09/arts/music/tracy-schwarz-dead.html
+
+**Police investigated domestic disturbance involving Tyreek Hill, no charges filed**\
+`Police responded to a call on Monday and the case has since been closed by the Sunny Isles Beach Police Department.`\
+https://nytimes.com/athletic/6268078/2025/04/09/tyreek-hill-domestic-disturbance-miami-dolphins/
+
+**A Friendship Divided by Musk**\
+`Elon Musk, and the feelings that working for him can engender, can come between even the closest of pals.`\
+https://nytimes.com/2025/04/09/us/politics/musk-doge-steve-davis.html
+
 **As His Chronic Disease Tour Wraps, Kennedy Hits His Stride**\
 `The health secretary seemed stoic — maybe nervous, even — at the start of his first major trip. But on a hike with Navajo Nation leaders, he was finally in his element.`\
 https://nytimes.com/2025/04/09/health/rfk-jr-maha-tour-navajo.html
