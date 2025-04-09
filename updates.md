@@ -1,3 +1,15 @@
+**Congo Repatriates 3 Americans Sentenced to Death Over Failed Coup**\
+`The men recently had their sentences commuted to life imprisonment.`\
+https://nytimes.com/2025/04/09/world/africa/congo-americans-coup.html
+
+**Fourth-quarter collapse shows who Timberwolves are, for better and worse**\
+`With a chance to move out of Play-In Tournament range, Minnesota instead continued its baffling ways with an epic meltdown.`\
+https://nytimes.com/athletic/6265480/2025/04/09/timberwolves-loss-bucks-fourth-quarter-standings/
+
+**China Hits Back Again at Trump, Bringing New Tariffs on U.S. Goods to 84%**\
+`Beijing announced a new round of 50 percent tariffs in response to President Trump’s latest levies as the trade conflict between the superpowers escalates.`\
+https://nytimes.com/2025/04/09/business/economy/china-tariffs-us-trump.html
+
 **Onana among 'worst goalkeepers in Man Utd history' - Matic**\
 `Matic was responding to Onana's comments that United were "way better" than Lyon ahead of their Europa League quarter-final tie.`\
 https://nytimes.com/athletic/6266741/2025/04/09/manchester-united-andre-onana-matic/
