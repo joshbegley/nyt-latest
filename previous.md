@@ -1,3 +1,7 @@
+**Brett Baty's latest chance with Mets is not going well — at all**\
+`Though Baty is not in immediate jeopardy of being sent to Triple A, time is definitely becoming a factor for the struggling second baseman.`\
+https://nytimes.com/athletic/6268364/2025/04/09/new-york-mets-brett-baty-hitting/
+
 **Why the Pistons face a unique opportunity against the Knicks, a possible playoff foe**\
 `The last time the Pistons and Knicks matched up, Cade Cunningham's 36-point night led Detroit to a win.`\
 https://nytimes.com/athletic/6268275/2025/04/09/pistons-unique-opportunity-knicks-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/09/technology/openai-elon-musk-lawsuit.html
 **Justice Dept. Bars Its Lawyers From American Bar Association Functions**\
 `The punitive move comes amid the Trump administration’s pressure campaign against big law firms.`\
 https://nytimes.com/2025/04/09/us/politics/justice-dept-bars-its-lawyers-from-american-bar-association-functions.html
-
-**Trump Administration Cuts Funding and Staff for Flagship Climate Report**\
-`The move raises concerns among scientists that the assessment, which is required by Congress, is now in jeopardy.`\
-https://nytimes.com/2025/04/09/climate/trump-national-climate-assessment.html
 
