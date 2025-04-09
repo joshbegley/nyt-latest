@@ -1,3 +1,7 @@
+**PL's longest-serving match official to work final game**\
+`The 56-year old will be on the touchline this Saturday at the Eithad when Man City take on Crystal Palace in his 579th Premier League game. `\
+https://nytimes.com/athletic/6267036/2025/04/09/premier-league-darren-cann-final-game/
+
 **The Bounce: Luka Dončić's tense Dallas return has finally arrived. What should we expect?**\
 `Luka Dončić is finally returning to Dallas after the most shocking trade in NBA history. Zach Harper previews what could come.`\
 https://nytimes.com/athletic/6266800/2025/04/09/luka-doncic-lakers-mavericks-trade-return-nba-the-bounce/
