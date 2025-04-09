@@ -1,3 +1,7 @@
+**After the dull Japanese GP, readers want to know why and what hurt Lewis Hamilton**\
+`The Athletic's F1 experts Luke Smith and Madeline Coleman answer your questions after the Japanese Grand Prix `\
+https://nytimes.com/athletic/6266355/2025/04/09/f1-lewis-hamilton-japanese-gp-verstappen-ferrari/
+
 **India’s Millions of New Investors Are Reeling From Tariff Turmoil**\
 `Legions of ordinary Indians have gone into stock trading, lured by easy online access and a market boom. Now many of them are getting a rude shock.`\
 https://nytimes.com/2025/04/09/world/asia/india-tariffs-stock-market.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6249867/2025/04/09/penguins-prospect-joona-vaisanen
 **'You jumped me!': When NHL fighters become teammates — and even friends**\
 `The continued existence of fighting in the NHL forces players to occasionally join forces with people they’ve punched.`\
 https://nytimes.com/athletic/6264979/2025/04/09/nhl-hockey-fights-punch-rangers/
-
-**A reinvented Matt Rhule? Not exactly, but Nebraska's coach more 'serene' in Year 3**\
-`Rhule used the word "bored" to describe himself at a recent practice. And he meant it in a good way. `\
-https://nytimes.com/athletic/6265197/2025/04/09/nebraska-coach-matt-rhule-spring-practice/
 
