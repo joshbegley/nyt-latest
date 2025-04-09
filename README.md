@@ -1,5 +1,5 @@
 **Why the Pistons face a unique opportunity against the Knicks, a possible playoff foe**\
-`The last time Detroit and the Knicks matched up, Cade Cunningham's 36-point night led the Pistons to a win.`\
+`The last time the Pistons and Knicks matched up, Cade Cunningham's 36-point night led Detroit to a win.`\
 https://nytimes.com/athletic/6268275/2025/04/09/pistons-unique-opportunity-knicks-playoffs/
 
 **Luka Dončić returns to Dallas as Laker; Jason Kidd compares trade to Babe Ruth**\
