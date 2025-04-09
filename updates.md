@@ -1,3 +1,7 @@
+**Padres' Jackson Merrill lands on injured list with right hamstring strain**\
+`Merrill was off to a torrid start, pacing a Padres team that entered Tuesday tied with the Dodgers for the most wins in the majors.`\
+https://nytimes.com/athletic/6265518/2025/04/08/padres-jackson-merrill-hamstring-injury/
+
 **Ken Paxton Says He Will Challenge Senator John Cornyn in 2026**\
 `The announcement by Mr. Paxton, the attorney general of Texas and a firebrand conservative, set up what is expected to be a blockbuster showdown in Texas.`\
 https://nytimes.com/2025/04/08/us/ken-paxton-john-cornyn-senate-race.html

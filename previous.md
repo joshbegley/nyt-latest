@@ -1,3 +1,7 @@
+**Padres' Jackson Merrill lands on injured list with right hamstring strain**\
+`Merrill was off to a torrid start, pacing a Padres team that entered Tuesday tied with the Dodgers for the most wins in the majors.`\
+https://nytimes.com/athletic/6265518/2025/04/08/padres-jackson-merrill-hamstring-injury/
+
 **Mets bullpen takeaways: Reed Garrett sets the tone as relievers drive early success**\
 `Mets relievers have a 1.27 ERA this season, rescuing a rotation that has only one quality start.`\
 https://nytimes.com/athletic/6265497/2025/04/08/mets-bullpen-reed-garrett-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/08/us/yellowstone-tourists-prison-sentence.html
 **Death of Palestinian American Boy in West Bank Sparks Outcry**\
 `Amer Rabee, 14, was fatally shot Sunday by Israeli forces in the West Bank, according to his family. On Tuesday, community leaders gathered in New Jersey to demand justice.`\
 https://nytimes.com/2025/04/08/nyregion/nj-amer-rabee-killed-west-bank.html
-
-**Trump Officials Freeze $1 Billion for Cornell and $790 Million for Northwestern**\
-`The funding pause amid civil rights investigations into both universities sharply escalates the Trump administration’s campaign against elite colleges.`\
-https://nytimes.com/2025/04/08/us/politics/cornell-northwestern-university-funds-trump.html
 
