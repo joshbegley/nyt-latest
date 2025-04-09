@@ -1,40 +1,40 @@
-**In Asia, anxiety about the tariffs and how to negotiate with Trump.**\
-`By Zunaira Saieed`\
-https://nytimes.com/live/2025/04/08/business/trump-tariffs-china-stock-market/in-asia-anxiety-about-the-tariffs-and-how-to-negotiate-with-trump
+**European Officials to Vote Today on First Retaliatory Tariffs**\
+`The European Union is poised to approve a plan to hit back at President Trump’s steel and aluminum levies. Further measures could come next.`\
+https://nytimes.com/2025/04/09/world/europe/eu-tariffs-trump.html
 
-**How Concerned Should We Be About the Online ‘Manosphere’?**\
-`A guest essay warns about the surge of male supremacist videos in young men’s social media feeds. What have you noticed or encountered online?`\
-https://nytimes.com/2025/04/09/learning/how-concerned-should-we-be-about-the-online-manosphere.html
+**Five Takeaways From Trump’s Plan to Rescue Coal**\
+`To help the struggling coal industry, President Trump used his executive authority to try to keep aging plants alive and burn more coal for electricity.`\
+https://nytimes.com/2025/04/09/climate/trump-executive-orders-coal.html
 
-**‘She has the world at her feet’ - England's Michelle Agyemang stunning international debut**\
-`The 19-year-old Brighton forward, on loan from Arsenal, instantly made her mark on the international stage with a stunning volley`\
-https://nytimes.com/athletic/6265399/2025/04/09/michelle-agyemang-england-debut-goal/
+**These Super Fans of Trump Are Holding Out Against His Budget**\
+`Hard-line conservatives concerned about the deficit are among President Trump’s most stalwart supporters in Congress. But they say they cannot in good conscience back the budget plan he has endorsed.`\
+https://nytimes.com/2025/04/09/us/politics/trump-budget-house-republicans-deficit.html
 
-**India’s Drug Makers Shudder as Trump Again Threatens Tariffs**\
-`The United States is India’s biggest market for pharmaceutical exports, which are its most successful industrial exports.`\
-https://nytimes.com/2025/04/09/business/trump-tariffs-pharmaceuticals-india.html
+**‘We’re Playing With Fire’: The Risks of Trump’s Tariffs on China**\
+`Binyamin Appelbaum on the president’s rushed and rash trade war.`\
+https://nytimes.com/2025/04/09/opinion/trump-tariffs-reindustrialization.html
 
-**Early women's Euro 2025 betting guide: Spain favoured ahead of England**\
-`Julia Ranney applies a betting lens to this summer’s women’s European Championships, outlining the favourites and the dark horse picks. `\
-https://nytimes.com/athletic/6252014/2025/04/09/womens-euro-odds-picks-preview/
+**How Trump Is Putting Law Firms in a No-Win Situation**\
+`As Willkie Farr & Gallagher learned, cutting a deal with the White House can avert a financially punitive executive order. But doing so can draw internal rebukes and external criticism.`\
+https://nytimes.com/2025/04/09/us/politics/trump-law-firms-orders.html
 
-**Dire-Wolf Pups**\
-`Tell us a story, real or made up, about these two pups, which scientists say have dire-wolf genes.`\
-https://nytimes.com/2025/04/09/learning/dire-wolf-pups.html
+**Fate of Congestion Pricing Is Likely to Be Decided in Fall or Later**\
+`State and federal officials have agreed to a court timeline that keeps the tolls in place for several months. The federal Transportation Department said it was still fighting to end the program.`\
+https://nytimes.com/2025/04/09/nyregion/fate-of-congestion-pricing-is-likely-to-be-decided-in-fall-or-later.html
 
-**A Teachers’ Union Is Spending Millions to Elect Its Boss Governor**\
-`The candidate, Sean Spiller, is president of the union, the New Jersey Education Association. A related PAC is prepared to spend $35 million on his election.`\
-https://nytimes.com/2025/04/09/nyregion/sean-spiller-new-jersey-race-for-governor.html
+**New Generation of African Chocolatiers Gets Hobbled by U.S. Tariffs**\
+`The new levies come as nations on the continent continue to struggle with the fallout of the Trump administration’s dismantling of the U.S. Agency for International Development.`\
+https://nytimes.com/2025/04/09/world/africa/africa-tariffs-cocoa-chocolate.html
 
-**Police Commissioner, Heiress and Maybe a Future New York City Mayor**\
-`“I don’t see it,” Jessica Tisch says. It is already a complicated life overhauling the Police Department, working for Eric Adams and keeping the Trump administration at bay.`\
-https://nytimes.com/2025/04/09/nyregion/jessica-tisch.html
+**Brian Schottenheimer on the job: Building culture, balancing being head coach, play caller**\
+`The Cowboys' first-year coach has been prepping for the NFL Draft and "can't wait" to get his players back in the building.`\
+https://nytimes.com/athletic/6265287/2025/04/09/cowboys-brian-schottenheimer-play-caller-coach/
 
-**Finding Positive Climate News, One State at a Time**\
-`A new project by the Climate desk aims to recognize local climate and environmental solutions in all 50 states.`\
-https://nytimes.com/2025/04/09/insider/fifty-states-climate-solutions.html
+**The Strange Case of an Hermès Heir, an Emir and a Deal Gone Wrong**\
+`Nicolas Puech agreed to sell his multibillion-dollar stake in his family’s luxury goods empire to the royal family of Qatar, but then said he couldn’t gain access to his shares.`\
+https://nytimes.com/2025/04/09/world/europe/hermes-qatar-puech-deal.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/04/09/crosswords/spelling-bee-forum.html
+**Would You Pay $2,000 for an iPhone? How About $3,000?**\
+`You will probably have to pay a lot more for your next iPhone. That’s bad news for Apple, for our markets and for our economy.`\
+https://nytimes.com/2025/04/09/opinion/tariffs-china-iphone-apple.html
 
