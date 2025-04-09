@@ -1,3 +1,11 @@
+**The New York Times in Print for Wednesday, April 9, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/09/todays-new-york-times
+
+**What Special Relationship?**\
+`Despite Winston Churchill’s coining of the phrase “special relationship,” the history of relations between the two nations shows it’s not so special.`\
+https://nytimes.com/2025/04/09/opinion/us-uk-special-relationship.html
+
 **Wednesday Briefing**\
 `President Trump’s tariffs take effect.`\
 https://nytimes.com/2025/04/09/briefing/tariffs-congo-iran.html
