@@ -1,3 +1,15 @@
+**The Bounce: Luka Dončić's tense Dallas return has finally arrived. What should we expect?**\
+`Luka Dončić is finally returning to Dallas after the most shocking trade in NBA history. Zach Harper previews what could come.`\
+https://nytimes.com/athletic/6266800/2025/04/09/luka-doncic-lakers-mavericks-trade-return-nba-the-bounce/
+
+**How Bobby Portis inspired the most remarkable Bucks win of the season**\
+`Down 24 in the fourth quarter, Portis asked his teammates: "How do we want to go out?" The Bucks responded with an epic rally.`\
+https://nytimes.com/athletic/6266299/2025/04/09/nba-bucks-portis-porter-giannis-comeback/
+
+**Watch: The 2025 QB class: Highest ceiling, most intriguing, future Pro-Bowler**\
+`"Scoop City" discusses which quarterback in the 2025 draft class has the highest ceiling.`\
+https://nytimes.com/athletic/6264040/2025/04/09/scoop-city-2025-qb-class-chase-daniel/
+
 **Wild stars Kirill Kaprizov and Joel Eriksson Ek expected to return Wednesday night: Sources**\
 `If Kaprizov and Eriksson Ek return, the Wild’s lone missing player will be defenseman Jake Middleton, who is day to day.`\
 https://nytimes.com/athletic/6266935/2025/04/09/wild-kirill-kaprizov-joel-eriksson-ek-returns/
