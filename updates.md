@@ -1,3 +1,7 @@
+**The Masters let Ángel Cabrera return. What does that say?**\
+`Cabrera is 20 months removed from a 30-month prison stint. He spent time in three different jails for domestic violence.`\
+https://nytimes.com/athletic/6268095/2025/04/09/masters-angel-cabrera-return-champion/
+
 **Singer Sues Met Opera Over Firing for Post-Pregnancy Vocal Problems**\
 `The mezzo-soprano Anita Rachvelishvili, who suffered vocal problems during and after pregnancy, is suing the opera company — and the union that represented her — after she lost work.`\
 https://nytimes.com/2025/04/09/arts/music/anita-rachvelishvili-sues-met-opera.html
