@@ -1,3 +1,15 @@
+**The Bounce: Luka Dončić's tense Dallas return has finally arrived. What should we expect?**\
+`Luka Dončić is finally returning to Dallas after the most shocking trade in NBA history. Zach Harper previews what could come.`\
+https://nytimes.com/athletic/6266800/2025/04/09/luka-doncic-lakers-mavericks-trade-return-nba-the-bounce/
+
+**How Bobby Portis inspired the most remarkable Bucks win of the season**\
+`Down 24 in the fourth quarter, Portis asked his teammates: "How do we want to go out?" The Bucks responded with an epic rally.`\
+https://nytimes.com/athletic/6266299/2025/04/09/nba-bucks-portis-porter-giannis-comeback/
+
+**Watch: The 2025 QB class: Highest ceiling, most intriguing, future Pro-Bowler**\
+`"Scoop City" discusses which quarterback in the 2025 draft class has the highest ceiling.`\
+https://nytimes.com/athletic/6264040/2025/04/09/scoop-city-2025-qb-class-chase-daniel/
+
 **Britain Lost Out on Euro Disney. Now It’s Getting a Universal Theme Park.**\
 `A yet-to-be-named Universal Studios theme park will be the country’s largest tourist attraction when it opens in 2031. But studio executives have not yet said which characters will be featured.`\
 https://nytimes.com/2025/04/09/world/europe/britain-universal-theme-park.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/09/business/delta-airlines-tariffs-recession.html
 **Cannavaro sacked by Dinamo Zagreb after 14 matches**\
 `Cannavaro won seven of his 14 competitive matches in charge of the Croatian club, including victory over Milan in the Champions League.`\
 https://nytimes.com/athletic/6266871/2025/04/09/fabio-cannavaro-sacked-dinamo-zagreb/
-
-**Brandon Lowe merits respect, José Soriano looks elite and more fantasy baseball insights**\
-`Michael Salfino identifies attainable players, like José Soriano, with encouraging early-season metrics for fantasy baseball managers.`\
-https://nytimes.com/athletic/6264820/2025/04/09/fasntasy-baseball-2025-early-observations-brandon-lowe/
-
-**Israeli Airstrike in Gaza City Leaves Many Dead, Health Officials There Say**\
-`The strike on a home left other bodies buried under the rubble, according to the Gazan authorities. The Israeli military said it had been targeting a Hamas operative.`\
-https://nytimes.com/2025/04/09/world/middleeast/israel-gaza-city-strike-hamas.html
-
-**A Small African Nation Has Few Options to Counter 50% U.S. Tariffs**\
-`In Lesotho, which makes denim that goes into U.S.-branded jeans, both the private sector and the government were weighing their next moves.`\
-https://nytimes.com/2025/04/09/business/economy/lesotho-trump-tariffs-us-denim.html
 
