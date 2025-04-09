@@ -1,3 +1,7 @@
+**Ranking 11 recent MLB extensions: Which teams did the best deals? Who overpaid?**\
+`With so many deals this spring, I decided to rank 11 extensions from the club perspective — the best contracts to the riskiest ones.`\
+https://nytimes.com/athletic/6266310/2025/04/09/mlb-extensions-ranking-jackson-merrill-vladimir-guerrerro-jr/
+
 **Trump Administration Cuts Research Funding Claiming It Creates ‘Climate Anxiety’**\
 `The cuts to a Princeton University program come as the Trump administration has been reviewing an array of research grants related to global warming.`\
 https://nytimes.com/2025/04/09/climate/trump-noaa-princeton-climate-research.html

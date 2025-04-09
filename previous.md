@@ -1,3 +1,7 @@
+**Ranking 11 recent MLB extensions: Which teams did the best deals? Who overpaid?**\
+`With so many deals this spring, I decided to rank 11 extensions from the club perspective — the best contracts to the riskiest ones.`\
+https://nytimes.com/athletic/6266310/2025/04/09/mlb-extensions-ranking-jackson-merrill-vladimir-guerrerro-jr/
+
 **Trump Administration Cuts Research Funding Claiming It Creates ‘Climate Anxiety’**\
 `The cuts to a Princeton University program come as the Trump administration has been reviewing an array of research grants related to global warming.`\
 https://nytimes.com/2025/04/09/climate/trump-noaa-princeton-climate-research.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/09/us/politics/federal-judge-trump-executive-order.h
 **It’s Wet. It’s Windy. You Need an Anorak.**\
 `Functional, lightweight jackets for unpredictable spring weather.`\
 https://nytimes.com/2025/04/09/t-magazine/best-anoraks.html
-
-**MoneyCall: Can the Masters calm a disrupted golf industry? Plus: LeBron's Barbie crossover**\
-`In this week's sports business cheat sheet from The Athletic, we dig into the Masters, LeBron James' new Barbie crossover and more.`\
-https://nytimes.com/athletic/6267306/2025/04/09/the-masters-lebron-barbie-ken-doll-moneycall/
 
