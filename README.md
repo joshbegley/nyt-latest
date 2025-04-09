@@ -1,5 +1,5 @@
 **Trump’s Tariffs Will Pummel Asia. But One Country Sees Opportunity.**\
-`Factory-led economies are panicking about steep the new tariffs. Not the Philippines, which believes its role as a manufacturing alternative to China can expand.`\
+`Factory-led economies are panicking about the steep new tariffs. Not the Philippines, which believes its role as a manufacturing alternative to China can expand.`\
 https://nytimes.com/2025/04/09/business/trump-tariffs-philippines.html
 
 **Late Night Frantically Tries to Keep Up With the Tariffs**\

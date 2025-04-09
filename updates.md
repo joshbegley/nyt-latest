@@ -1,3 +1,15 @@
+**Trump’s Tariffs Will Pummel Asia. But One Country Sees Opportunity.**\
+`Factory-led economies are panicking about steep the new tariffs. Not the Philippines, which believes its role as a manufacturing alternative to China can expand.`\
+https://nytimes.com/2025/04/09/business/trump-tariffs-philippines.html
+
+**Late Night Frantically Tries to Keep Up With the Tariffs**\
+`“I’d say he’s like a bull in a china shop, but at 104 percent, I can’t afford to say that,” Desi Lydic said of President Trump on “The Daily Show.”`\
+https://nytimes.com/2025/04/09/arts/television/desi-lydic-trump-tariffs-china.html
+
+**China Censors Hashtags Mentioning ‘104%,’ the Size of Trump’s Tariffs**\
+`State media drove social media discussions around phrases like: “America is fighting a trade war while begging for eggs.”`\
+https://nytimes.com/2025/04/09/world/asia/china-tariffs-censorship.html
+
 **Nemanja Matic interview: Facing Man Utd at 36, trophies 'not the focus' at Old Trafford and Mourinho's 'clowns' speech**\
 `Nemanja Matic speaks openly about the differences between Manchester United and Chelsea, his relationship with Mourinho and playing for Lyon`\
 https://nytimes.com/athletic/6263580/2025/04/09/nemanja-matic-manchester-united-trophies-mourinho/
