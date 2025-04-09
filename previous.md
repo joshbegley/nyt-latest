@@ -1,3 +1,7 @@
+**Canucks become first team in NHL history to overcome 3-goal deficit in final minute of game**\
+`Vancouver kept its slim playoff hopes alive in dramatic comeback fashion with a miracle 6-5 overtime win in Dallas.`\
+https://nytimes.com/athletic/6265762/2025/04/08/canucks-stars-nhl-comeback-playoffs/
+
 **Here’s the latest.**\
 `By Ana Swanson`\
 https://nytimes.com/live/2025/04/08/business/trump-tariffs-china-stock-market/heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6265756/2025/04/08/jayden-rashada-lawsuit-billy-nap
 **Another Rocky Day in Markets: Stocks in Asia Sink**\
 `With the S&P 500 nearing a bear market, shares in Asia decline as China and other major U.S. trading partners await the start of significantly higher tariffs.`\
 https://nytimes.com/2025/04/08/business/trump-tariffs-stock-markets.html
-
-**Maple Leafs report cards: Not many silver linings for Toronto in loss to Panthers**\
-`Toronto consistently folded under the offensive pressure Florida applied and was outshot 37-18 on the way to a 3-1 loss.`\
-https://nytimes.com/athletic/6265404/2025/04/08/maple-leafs-panthers-score-grades/
 

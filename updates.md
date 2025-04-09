@@ -1,3 +1,7 @@
+**Canucks become first team in NHL history to overcome 3-goal deficit in final minute of game**\
+`Vancouver kept its slim playoff hopes alive in dramatic comeback fashion with a miracle 6-5 overtime win in Dallas.`\
+https://nytimes.com/athletic/6265762/2025/04/08/canucks-stars-nhl-comeback-playoffs/
+
 **Here’s the latest.**\
 `By Ana Swanson`\
 https://nytimes.com/live/2025/04/08/business/trump-tariffs-china-stock-market/heres-the-latest
