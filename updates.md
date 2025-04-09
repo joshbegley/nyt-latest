@@ -1,3 +1,11 @@
+**Israeli Airstrike in Gaza City Leaves Many Dead, Health Officials There Say**\
+`The strike on a home left other bodies buried under the rubble, according to the Gazan authorities. The Israeli military said it had been targeting a Hamas operative.`\
+https://nytimes.com/2025/04/09/world/middleeast/israel-gaza-city-strike-hamas.html
+
+**For small Lesotho, there are few options for responding to large tariffs.**\
+`In Lesotho, which makes denim that goes into U.S.-branded jeans, both the private sector and the government were weighing their next moves.`\
+https://nytimes.com/2025/04/09/business/economy/for-small-lesotho-there-are-few-options-for-responding-to-large-tariffs.html
+
 **Oil Prices Tumble, Squeezing U.S. Producers**\
 `The slide in crude prices signals deteriorating confidence in the strength of the economy.`\
 https://nytimes.com/2025/04/09/business/energy-environment/oil-prices-tariffs-trump.html
