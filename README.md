@@ -1,3 +1,7 @@
+**Singer Sues Met Opera Over Firing for Post-Pregnancy Vocal Problems**\
+`The mezzo-soprano Anita Rachvelishvili, who suffered vocal problems during and after pregnancy, is suing the opera company — and the union that represented her — after she lost work.`\
+https://nytimes.com/2025/04/09/arts/music/anita-rachvelishvili-sues-met-opera.html
+
 **INEOS Britannia withdraws America's Cup challenge**\
 `It has alleged the decision was due to the "protracted negotiations" with Athena Racing.`\
 https://nytimes.com/athletic/6267870/2025/04/09/ineos-britannia-americas-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6268061/2025/04/09/jt-toppin-texas-tech-return-nil/
 **Canada Vows to Use Billions From Trade Retaliation to Aid Workers and Businesses**\
 `But exactly what the country will do remains unclear and the scale of the current disruption makes decision-making difficult.`\
 https://nytimes.com/2025/04/09/world/canada/canada-tariffs-business-aid.html
-
-**The Briefing: Paris Saint-Germain 3 Aston Villa 1 - Kvaratskhelia magic, Villa resolve tested to limit**\
-`Paris Saint-Germain take a two-goal lead to Villa Park after an enthralling Champions League quarter-final first leg`\
-https://nytimes.com/athletic/6264440/2025/04/09/paris-saint-germain-3-aston-villa-1-kvaratskhelia-doue/
 
