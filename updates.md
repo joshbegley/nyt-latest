@@ -1,3 +1,11 @@
+**Like a Limbo Bar**\
+`Aidan Deshong and Oren Hartstein write a set of less-than-stellar reviews.`\
+https://nytimes.com/2025/04/08/crosswords/daily-puzzle-2025-04-09.html
+
+**Twins' Pablo López exits game with apparent hamstring injury**\
+`It interrupted his best start of the season. López grabbed the back of his right leg with two outs in the fifth inning, then left the game. `\
+https://nytimes.com/athletic/6265706/2025/04/08/pablo-lopez-leg-injury-twins-royals/
+
 **Sabres eliminated from playoff contention as record drought hits 14 years**\
 `The Sabres are are now tied with the New York Jets for the longest active playoff drought in pro sports.`\
 https://nytimes.com/athletic/6262306/2025/04/08/buffalo-sabres-playoff-drought-record/
