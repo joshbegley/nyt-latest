@@ -1,3 +1,11 @@
+**In a Storm of Tariffs, Many Companies See China as the Safest Harbor**\
+`The heavy U.S. tariffs on other Asian countries have made China a more appealing option for companies scared to make a hasty decision amid upheaval in global trade.`\
+https://nytimes.com/2025/04/09/business/trump-tariffs-china-factories.html
+
+**The Impact of the Masters on Ely Callaway**\
+`He invented the Big Bertha driver, which changed the game of golf. Bobby Jones, a creator of the tournament, was a Callaway cousin.`\
+https://nytimes.com/2025/04/09/sports/golf/masters-ely-callaway-bobby-jones.html
+
 **Four starting pitchers with the right stuff but the wrong early-season results**\
 `Bryce Miller is off to a shaky start to the 2025 MLB campaign, but he has an arsenal Eno Sarris believes in going forward.`\
 https://nytimes.com/athletic/6264962/2025/04/09/mlb-2025-starting-pitchers-good-stuff-bad-starts/
