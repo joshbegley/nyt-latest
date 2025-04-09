@@ -1,3 +1,7 @@
+**Islamic State Regains Strength in Syria**\
+`The U.S. has sent more forces to Syria, tamping down on the immediate threat, but experts warn that the extremist group could break thousands of hardened fighters out of prison.`\
+https://nytimes.com/2025/04/09/world/middleeast/syria-isis-prisoners.html
+
 **European Officials to Vote Today on First Retaliatory Tariffs**\
 `The European Union is poised to approve a plan to hit back at President Trump’s steel and aluminum levies. Further measures could come next.`\
 https://nytimes.com/2025/04/09/world/europe/eu-tariffs-trump.html
