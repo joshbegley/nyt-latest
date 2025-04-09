@@ -1,3 +1,15 @@
+**‘Manhunt’ Is a Case Study in Fragile Masculinity**\
+`A new play by Robert Icke about a real-life police chase takes the form of an imagined trial.`\
+https://nytimes.com/2025/04/09/theater/manhunt-robert-icke-royal-court.html
+
+**Pop Songs, ‘Hamilton’ and Windows 95 Chime Join National Registry**\
+`The recordings, along with works by Tracy Chapman, Elton John and the rock band Chicago, are among the 25 selected for preservation by the Library of Congress.`\
+https://nytimes.com/2025/04/09/arts/music/national-recording-registry-hamilton-windows-95.html
+
+**New York Lawmakers Want to Get Paid, Even if the Budget Is Late**\
+`The State Assembly leader says legislators should not be punished if a late budget is caused by policy disagreements unrelated to New York’s finances.`\
+https://nytimes.com/2025/04/09/nyregion/late-budget-paycheck-ny.html
+
 **The Advisers Behind Trump’s Tariff Turmoil**\
 `The roller coaster of on-again, off-again tariffs have focused attention on the people behind President Trump’s trade strategy. Rob Copeland, a New York Times finance reporter, takes us inside Trump’s tariff team.`\
 https://nytimes.com/video/us/politics/100000010097922/the-advisers-behind-trumps-tariff-turmoil.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6266293/2025/04/09/athletic-football-show-nfl-draft
 **Thankfully, the Democratic Base Has Revived the Resistance**\
 `The election might have cowed liberal elites, but its voters never backed down.`\
 https://nytimes.com/2025/04/09/opinion/protests-democrats-trump.html
-
-**Family Seeks Answers After Death of American Tourist in the Bahamas**\
-`The mother of Dinari McAlmont, 23, of Bowie, Md., says that a photo that the police showed her indicated that her son had been badly beaten.`\
-https://nytimes.com/2025/04/09/world/maryland-man-death-bahamas.html
-
-**Army Secretary Replaces Patel as Interim Head of A.T.F.**\
-`The unusual move has placed a civilian military leader in charge of a domestic law enforcement entity.`\
-https://nytimes.com/2025/04/09/us/politics/patel-army-secretary-atf.html
-
-**Trump Asks Supreme Court to Let Him Fire Agencies’ Leaders**\
-`An appeals court ordered Cathy Harris and Gwynne Wilcox reinstated to their positions at agencies protecting workers’ rights.`\
-https://nytimes.com/2025/04/09/us/politics/trump-supreme-court-agency-leaders-firings.html
 
