@@ -1,3 +1,11 @@
+**Cannavaro sacked by Dinamo Zagreb after 14 matches**\
+`Cannavaro won seven of his 14 competitive matches in charge of the Croatian club, including victory over Milan in the Champions League.`\
+https://nytimes.com/athletic/6266871/2025/04/09/fabio-cannavaro-sacked-dinamo-zagreb/
+
+**Brandon Lowe merits respect, José Soriano looks elite and more fantasy baseball insights**\
+`Michael Salfino identifies attainable players, like José Soriano, with encouraging early-season metrics for fantasy baseball managers.`\
+https://nytimes.com/athletic/6264820/2025/04/09/fasntasy-baseball-2025-early-observations-brandon-lowe/
+
 **Israeli Airstrike in Gaza City Leaves Many Dead, Health Officials There Say**\
 `The strike on a home left other bodies buried under the rubble, according to the Gazan authorities. The Israeli military said it had been targeting a Hamas operative.`\
 https://nytimes.com/2025/04/09/world/middleeast/israel-gaza-city-strike-hamas.html
