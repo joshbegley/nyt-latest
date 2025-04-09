@@ -1,3 +1,7 @@
+**House Strikes Down $5 Overdraft Fee Limit, Sending Issue to Trump**\
+`Lawmakers also struck down a rule giving the Consumer Financial Protection Bureau supervisory power over tech companies’ payments apps.`\
+https://nytimes.com/2025/04/09/business/house-overdraft-fee-limit-cfpb.html
+
 **Georgia Man Sentenced for a Cache of Taxidermy Birds and Rare Eggs**\
 `John Waldrop, an orthopedic surgeon, amassed a vast collection of ornithological specimens as part of what he called an “obsessive hobby.” He’s now into wood carvings.`\
 https://nytimes.com/2025/04/09/nyregion/brooklyn-taxidermy-sentence-roseate-spoonbill.html

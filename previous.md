@@ -12,7 +12,7 @@ https://nytimes.com/2025/04/09/climate/trump-threatens-climate-policies-in-the-s
 
 **House Strikes Down $5 Overdraft Fee Limit, Sending Issue to Trump**\
 `Lawmakers also struck down a rule giving the Consumer Financial Protection Bureau supervisory power over tech companies’ payments apps.`\
-https://nytimes.com/2025/04/09/business/house-strikes-down-5-overdraft-fee-limit-sending-issue-to-trump.html
+https://nytimes.com/2025/04/09/business/house-overdraft-fee-limit-cfpb.html
 
 **Live Count: The House Votes on the Republican Budget**\
 `The House is preparing to vote on a budget blueprint, a first step towards passing President Trump’s plans for spending and tax cuts.`\
