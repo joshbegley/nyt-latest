@@ -1,3 +1,11 @@
+**OpenAI Asks Court to Bar Elon Musk From Unfairly Attacking It**\
+`In a legal filing on Wednesday, OpenAI asked a federal court to hold Mr. Musk responsible for any damage he has caused the firm, in the latest sign of their bitter feud.`\
+https://nytimes.com/2025/04/09/technology/openai-elon-musk-lawsuit.html
+
+**Justice Dept. Bars Its Lawyers From American Bar Association Functions**\
+`The punitive move comes amid the Trump administration’s pressure campaign against big law firms.`\
+https://nytimes.com/2025/04/09/us/politics/justice-dept-bars-its-lawyers-from-american-bar-association-functions.html
+
 **Trump Administration Cuts Funding and Staff for Flagship Climate Report**\
 `The move raises concerns among scientists that the assessment, which is required by Congress, is now in jeopardy.`\
 https://nytimes.com/2025/04/09/climate/trump-national-climate-assessment.html
