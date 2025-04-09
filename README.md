@@ -1,3 +1,15 @@
+**Trump’s Tariffs Will Pummel Asia. But One Country Sees Opportunity.**\
+`Factory-led economies are panicking about steep the new tariffs. Not the Philippines, which believes its role as a manufacturing alternative to China can expand.`\
+https://nytimes.com/2025/04/09/business/trump-tariffs-philippines.html
+
+**Late Night Frantically Tries to Keep Up With the Tariffs**\
+`“I’d say he’s like a bull in a china shop, but at 104 percent, I can’t afford to say that,” Desi Lydic said of President Trump on “The Daily Show.”`\
+https://nytimes.com/2025/04/09/arts/television/desi-lydic-trump-tariffs-china.html
+
+**China Censors Hashtags Mentioning ‘104%,’ the Size of Trump’s Tariffs**\
+`State media drove social media discussions around phrases like: “America is fighting a trade war while begging for eggs.”`\
+https://nytimes.com/2025/04/09/world/asia/china-tariffs-censorship.html
+
 **Nemanja Matic interview: Facing Man Utd at 36, trophies 'not the focus' at Old Trafford and Mourinho's 'clowns' speech**\
 `Nemanja Matic speaks openly about the differences between Manchester United and Chelsea, his relationship with Mourinho and playing for Lyon`\
 https://nytimes.com/athletic/6263580/2025/04/09/nemanja-matic-manchester-united-trophies-mourinho/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6265964/2025/04/09/real-madrid-arsenal-analysis/
 **Reeling From Trump’s Tariffs, South Korea Tries Striking a Delicate Balance**\
 `As its trade negotiators headed to Washington for talks, South Korea announced measures to support the country’s carmakers who were badly hit by the levies announced by President Trump.`\
 https://nytimes.com/2025/04/09/world/asia/south-korea-trump-tariffs-automakers.html
-
-**Kristaps Porziņģis once aimed to shoot shorter 3s, but the longer ones can't be touched**\
-`Where Porziņģis usually spots up, several feet behind the arc, only forces defenders to cover more ground to guard him.`\
-https://nytimes.com/athletic/6266087/2025/04/09/celtics-kristaps-porzingis-three-pointers/
-
-**How Arsenal came of age on a night that could change everything**\
-`An unlikely set of heroes delivered a win for the ages against Real Madrid and showed what this squad can achieve`\
-https://nytimes.com/athletic/6265516/2025/04/09/arsenal-real-madrid-champions-league-analysis/
-
-**The New York Times in Print for Wednesday, April 9, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/04/09/todays-new-york-times
 
