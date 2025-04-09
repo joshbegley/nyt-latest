@@ -1,3 +1,7 @@
+**After the dull Japanese GP, readers want to know why and what hurt Lewis Hamilton**\
+`The Athletic's F1 experts Luke Smith and Madeline Coleman answer your questions after the Japanese Grand Prix `\
+https://nytimes.com/athletic/6266355/2025/04/09/f1-lewis-hamilton-japanese-gp-verstappen-ferrari/
+
 **India’s Millions of New Investors Are Reeling From Tariff Turmoil**\
 `Legions of ordinary Indians have gone into stock trading, lured by easy online access and a market boom. Now many of them are getting a rude shock.`\
 https://nytimes.com/2025/04/09/world/asia/india-tariffs-stock-market.html

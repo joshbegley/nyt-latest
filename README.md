@@ -1,3 +1,11 @@
+**What you should know about Mavericks governor Patrick Dumont**\
+`Much has been made about Mavs GM Nico Harrison, who orchestrated the Luka Dončić trade. But what about Patrick Dumont, the man in charge?`\
+https://nytimes.com/athletic/6265398/2025/04/09/who-is-patrick-dumont-mavericks-governor/
+
+**Harry’s Razor Brand Seeks to Build a Consumer Goods Empire**\
+`The founders of the upstart personal grooming company said they planned to strike more deals. A public listing may be in the future as well.`\
+https://nytimes.com/2025/04/09/business/dealbook/harrys-mammoth-consumer-goods-deals.html
+
 **After the dull Japanese GP, readers want to know why and what hurt Lewis Hamilton**\
 `The Athletic's F1 experts Luke Smith and Madeline Coleman answer your questions after the Japanese Grand Prix `\
 https://nytimes.com/athletic/6266355/2025/04/09/f1-lewis-hamilton-japanese-gp-verstappen-ferrari/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6266192/2025/04/09/baltimore-orioles-rotation-corbi
 **State of Florida recruiting: Reviewing the hits, misses and hidden gems from the 2015 cycle**\
 `There were nine five-star prospects in the 2015 class from Florida, but the best player — by far — was ranked No. 58 in the state.`\
 https://nytimes.com/athletic/6264284/2025/04/09/florida-college-football-recruiting-2015/
-
-**How Joona Vaisanen went from twice undrafted to Frozen Four and Pens prospect**\
-`Vaisanen, a 20-year-old freshman right-shot defenseman, has played a pivotal role for Western Michigan.`\
-https://nytimes.com/athletic/6249867/2025/04/09/penguins-prospect-joona-vaisanen-frozen-four/
-
-**'You jumped me!': When NHL fighters become teammates — and even friends**\
-`The continued existence of fighting in the NHL forces players to occasionally join forces with people they’ve punched.`\
-https://nytimes.com/athletic/6264979/2025/04/09/nhl-hockey-fights-punch-rangers/
 
