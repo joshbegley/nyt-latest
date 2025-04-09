@@ -1,3 +1,7 @@
+**The Masters let Ángel Cabrera return. What does that say?**\
+`Cabrera is 20 months removed from a 30-month prison stint. He spent time in three different jails for domestic violence.`\
+https://nytimes.com/athletic/6268095/2025/04/09/masters-angel-cabrera-return-champion/
+
 **Singer Sues Met Opera Over Firing for Post-Pregnancy Vocal Problems**\
 `The mezzo-soprano Anita Rachvelishvili, who suffered vocal problems during and after pregnancy, is suing the opera company — and the union that represented her — after she lost work.`\
 https://nytimes.com/2025/04/09/arts/music/anita-rachvelishvili-sues-met-opera.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6267847/2025/04/09/ray-shero-death-dan-bylsma/
 **Texas Tech's Toppin returning in 2025-26, with big NIL payday expected**\
 `Toppin's return to school is emblematic of a time where some players can make more money in college basketball than the NBA.`\
 https://nytimes.com/athletic/6268061/2025/04/09/jt-toppin-texas-tech-return-nil/
-
-**Canada Vows to Use Billions From Trade Retaliation to Aid Workers and Businesses**\
-`But exactly what the country will do remains unclear and the scale of the current disruption makes decision-making difficult.`\
-https://nytimes.com/2025/04/09/world/canada/canada-tariffs-business-aid.html
 
