@@ -1,3 +1,11 @@
+**Eleven games in, the Astros are in a 'process' with prospect Cam Smith**\
+`“Obviously it’s not productive,” Smith said of his at-bats. “I know I’m an elite hitter, but I have to show that.”`\
+https://nytimes.com/athletic/6266201/2025/04/09/astros-cam-smith-hitting/
+
+**Manchester City freeze ticket prices for 2025-26 after fan protests**\
+`The freeze comes after fan protests over what they believed were high ticket prices and a lack of engagement from the club.`\
+https://nytimes.com/athletic/6266513/2025/04/09/manchester-city-tickets-prize-freeze-protests/
+
 **Death Toll in Dominican Republic Roof Collapse Hits 113**\
 `The scene at a nightclub in Santo Domingo was increasingly grim, as bodies but no more survivors were recovered.`\
 https://nytimes.com/2025/04/09/world/americas/dominican-republic-roof-collapse.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6265001/2025/04/09/scottie-barnes-poor-shooting-rap
 **Canadiens have their most important day in years as playoffs and Ivan Demidov approach**\
 `The Canadiens are straddling a line between the future and the present. The imminent arrival of Demidov could very well address both.`\
 https://nytimes.com/athletic/6266240/2025/04/09/canadiens-demidov-red-wings-win-playoffs/
-
-**Five U.S. forwards making their case for the Olympics after 4 Nations snubs**\
-`A goal-scoring machine and a creative playmaker were among those left off of the U.S. 4 Nations roster. Could they make the Olympic team?`\
-https://nytimes.com/athletic/6264502/2025/04/09/united-states-olympics-forwards-4-nations-snubs/
-
-**With Gretzky's goal mark gone, how many NHL records are truly unbreakable?**\
-`What about the records that aren’t Gretzky’s? Let’s have a look at 15 of the most imposing and determine if we think they can be broken.`\
-https://nytimes.com/athletic/6262182/2025/04/09/ovechkin-goal-nhl-record-gretzky/
 

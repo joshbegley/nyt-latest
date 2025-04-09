@@ -1,3 +1,11 @@
+**Eleven games in, the Astros are in a 'process' with prospect Cam Smith**\
+`“Obviously it’s not productive,” Smith said of his at-bats. “I know I’m an elite hitter, but I have to show that.”`\
+https://nytimes.com/athletic/6266201/2025/04/09/astros-cam-smith-hitting/
+
+**Manchester City freeze ticket prices for 2025-26 after fan protests**\
+`The freeze comes after fan protests over what they believed were high ticket prices and a lack of engagement from the club.`\
+https://nytimes.com/athletic/6266513/2025/04/09/manchester-city-tickets-prize-freeze-protests/
+
 **Death Toll in Dominican Republic Roof Collapse Hits 113**\
 `The scene at a nightclub in Santo Domingo was increasingly grim, as bodies but no more survivors were recovered.`\
 https://nytimes.com/2025/04/09/world/americas/dominican-republic-roof-collapse.html
