@@ -1,3 +1,7 @@
+**Luka Dončić returns to Dallas with the Lakers, compared to Babe Ruth**\
+`Lakers coach JJ Redick said his message to Dončić would be that his teammates and coaches “got your back.” `\
+https://nytimes.com/athletic/6268272/2025/04/09/luka-doncic-returns-dallas-babe-ruth/
+
 **Georgia Man Sentenced for a Cache of Taxidermy Birds and Rare Eggs**\
 `John Waldrop, an orthopedic surgeon, amassed a vast collection of ornithological specimens as part of what he called an “obsessive hobby.” He’s now into wood carvings.`\
 https://nytimes.com/2025/04/09/nyregion/brooklyn-taxidermy-sentence-roseate-spoonbill.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/09/climate/trump-national-climate-assessment.html
 **The Masters let Ángel Cabrera return. What does that say?**\
 `Cabrera is 20 months removed from a 30-month prison stint. He spent time in three different jails for domestic violence.`\
 https://nytimes.com/athletic/6268095/2025/04/09/masters-angel-cabrera-return-champion/
-
-**Singer Sues Met Opera Over Firing for Post-Pregnancy Vocal Problems**\
-`The mezzo-soprano Anita Rachvelishvili, who suffered vocal problems during and after pregnancy, is suing the opera company — and the union that represented her — after she lost work.`\
-https://nytimes.com/2025/04/09/arts/music/anita-rachvelishvili-sues-met-opera.html
 
