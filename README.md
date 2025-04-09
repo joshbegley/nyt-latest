@@ -1,3 +1,7 @@
+**Like a Limbo Bar**\
+`Aidan Deshong and Oren Hartstein write a set of less-than-stellar reviews.`\
+https://nytimes.com/2025/04/08/crosswords/daily-puzzle-2025-04-09.html
+
 **Sabres eliminated from playoff contention as record drought hits 14 years**\
 `The Sabres are are now tied with the New York Jets for the longest active playoff drought in pro sports.`\
 https://nytimes.com/athletic/6262306/2025/04/08/buffalo-sabres-playoff-drought-record/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6265595/2025/04/08/jaylen-wells-injured-stretcher-h
 **Padres' Jackson Merrill lands on injured list with right hamstring strain**\
 `Merrill was off to a torrid start, pacing a Padres team that entered Tuesday tied with the Dodgers for the most wins in the majors.`\
 https://nytimes.com/athletic/6265518/2025/04/08/padres-jackson-merrill-hamstring-injury/
-
-**Mets bullpen takeaways: Reed Garrett sets the tone as relievers drive early success**\
-`Mets relievers have a 1.27 ERA this season, rescuing a rotation that has only one quality start.`\
-https://nytimes.com/athletic/6265497/2025/04/08/mets-bullpen-reed-garrett-takeaways/
 
