@@ -1,3 +1,19 @@
+**Why winning the Conference League is more important than ever to Chelsea**\
+`Winning the Conference League would give Chelsea benefits across the board if they fail to qualify for the Champions League`\
+https://nytimes.com/athletic/6263960/2025/04/09/chelsea-conference-league-importance/
+
+**Can Europa League football inspire a better version of Tottenham Hotspur?**\
+`Is it possible for one team to be so bad in the Premier League but to step onto the European stage and become a completely different side?`\
+https://nytimes.com/athletic/6254118/2025/04/09/tottenham-hotspur-europa-league-prospects/
+
+**Why Nuno must be manager of the season**\
+`Nuno has led Nottingham Forest to the cusp of Champions League qualification this season`\
+https://nytimes.com/athletic/6263600/2025/04/09/nuno-nottingham-forest-manager-season/
+
+**Introducing Barcelona's secret weapon: Robert Lewandowski pointing at space**\
+`In a subtle way, Lewandowski is as crucial to his side's build-up play as ever — even if the numbers don't show it`\
+https://nytimes.com/athletic/6260972/2025/04/09/robert-lewandowski-barcelona-pointing-dortmund/
+
 **Who could replace Alexander-Arnold at Liverpool?**\
 `Analysing the candidates - internal and external - to replace the right-back if he departs for Real Madrid this summer`\
 https://nytimes.com/athletic/6249195/2025/04/09/trent-alexander-arnold-liverpool-replacements/
