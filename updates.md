@@ -1,3 +1,7 @@
+**Army Secretary Replaces Patel as Interim Head of A.T.F.**\
+`The unusual move has placed a civilian military leader in charge of a domestic law enforcement entity.`\
+https://nytimes.com/2025/04/09/us/politics/patel-army-secretary-atf.html
+
 **It’s Springtime in Paris for David Hockney**\
 `A huge new exhibition at the Louis Vuitton Foundation is a late-career retrospective with a sense of new beginnings.`\
 https://nytimes.com/2025/04/09/arts/design/david-hockney-25-fondation-louis-vuitton-review.html
