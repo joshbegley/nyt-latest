@@ -1,3 +1,15 @@
+**Prince William backs Rice to assume England free-kick duty after Real Madrid display**\
+`Prince William has backed Declan Rice to be England&#8217;s designated free-kick taker after his match-winning role for Arsenal against Real Madrid.`\
+https://nytimes.com/athletic/6268090/2025/04/09/declan-rice-prince-william-free-kicks/
+
+**One-Third of Maternal Deaths Occur Long After Delivery, Study Finds**\
+`Pregnancy-related mortality has risen sharply, and doctors have overlooked a particularly dangerous period: from six weeks to one year after the birth.`\
+https://nytimes.com/2025/04/09/health/maternal-death-pandemic.html
+
+**These Are the Buildings You Need to See in Milan**\
+`The Italian city has a reputation for being gray, but its architecture is far from dull.`\
+https://nytimes.com/2025/04/09/t-magazine/milan-architecture-building-guide.html
+
 **The Briefing: Paris Saint-Germain 3 Aston Villa 1 - Kvaratskhelia magic, Villa resolve tested to limit**\
 `Paris Saint-Germain take a two-goal lead to Villa Park after an enthralling Champions League quarter-final first leg`\
 https://nytimes.com/athletic/6264440/2025/04/09/paris-saint-germain-3-aston-villa-1-kvaratskhelia-doue/

@@ -1,3 +1,15 @@
+**Prince William backs Rice to assume England free-kick duty after Real Madrid display**\
+`Prince William has backed Declan Rice to be England&#8217;s designated free-kick taker after his match-winning role for Arsenal against Real Madrid.`\
+https://nytimes.com/athletic/6268090/2025/04/09/declan-rice-prince-william-free-kicks/
+
+**One-Third of Maternal Deaths Occur Long After Delivery, Study Finds**\
+`Pregnancy-related mortality has risen sharply, and doctors have overlooked a particularly dangerous period: from six weeks to one year after the birth.`\
+https://nytimes.com/2025/04/09/health/maternal-death-pandemic.html
+
+**These Are the Buildings You Need to See in Milan**\
+`The Italian city has a reputation for being gray, but its architecture is far from dull.`\
+https://nytimes.com/2025/04/09/t-magazine/milan-architecture-building-guide.html
+
 **Former Penguins coach Dan Bylsma mourns Ray Shero's death**\
 `A tearful Bylsma expressed his love and respect for Shero, his old boss who passed away on Thursday.`\
 https://nytimes.com/athletic/6267847/2025/04/09/ray-shero-death-dan-bylsma/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/09/science/amazon-kuiper-satellite-launch.html
 **The Briefing: Barcelona 4 Borussia Dortmund 0 - Can anyone stop Lewandowski, Raphinha and Lamine Yamal?**\
 `Lewandowski scored his 40th goal of the season and Raphinha and Yamal were also on the scoresheet. Our writers analyse the talking points`\
 https://nytimes.com/athletic/6264439/2025/04/09/barcelona-raphinha-lewandowski-yamal-dortmund-champions-league/
-
-**Thursday Briefing: Trump’s Tariff Reversal**\
-`Plus, how your brain connects to ideology.`\
-https://nytimes.com/2025/04/09/briefing/tariff-reversal-syria-islamic-state-club-roof-collapse.html
-
-**Palestinian Christians Remind Us: ‘We Are Also People’**\
-`America’s religious right embraces far-right Israeli policies, leading to the repression of Palestinian Christians.`\
-https://nytimes.com/2025/04/09/opinion/palestinian-christian-us-evangelicals-gaza.html
-
-**Flying Somewhere? You May Finally Need That Real ID.**\
-`After years of postponements, the deadline to show a security-enhanced Real ID at airport security checkpoints is now just weeks away. What to know.`\
-https://nytimes.com/2025/04/09/travel/real-id-deadline-what-to-know.html
 
