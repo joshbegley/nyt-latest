@@ -1,3 +1,11 @@
+**Onana among 'worst goalkeepers in Man Utd history' - Matic**\
+`Matic was responding to Onana's comments that United were "way better" than Lyon ahead of their Europa League quarter-final tie.`\
+https://nytimes.com/athletic/6266741/2025/04/09/manchester-united-andre-onana-matic/
+
+**China Hits Back Again at Trump, Bringing New Tariffs on U.S. Goods to 84%**\
+`Beijing announced a new round of 50 percent tariffs in response to President Trump’s latest levies as the trade conflict between the superpowers escalates.`\
+https://nytimes.com/live/2025/04/08/business/trump-tariffs-china-stock-market/china-tariffs-us
+
 **Fernando Tatis Jr., Jake Cronenworth day to day for Padres after leaving with injuries**\
 `Manager Mike Shildt indicated the plan is for both Tatis and Cronenworth to rest for at least the next two days.`\
 https://nytimes.com/athletic/6266202/2025/04/09/padres-fernando-tatis-jr-jake-cronenworth-injuries/

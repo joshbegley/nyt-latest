@@ -1,10 +1,18 @@
+**Congo Repatriates 3 Americans Sentenced to Death Over Failed Coup**\
+`The men recently had their sentences commuted to life imprisonment.`\
+https://nytimes.com/2025/04/09/world/africa/congo-americans-coup.html
+
+**Fourth-quarter collapse shows who Timberwolves are, for better and worse**\
+`With a chance to move out of Play-In Tournament range, Minnesota instead continued its baffling ways with an epic meltdown.`\
+https://nytimes.com/athletic/6265480/2025/04/09/timberwolves-loss-bucks-fourth-quarter-standings/
+
 **Onana among 'worst goalkeepers in Man Utd history' - Matic**\
 `Matic was responding to Onana's comments that United were "way better" than Lyon ahead of their Europa League quarter-final tie.`\
 https://nytimes.com/athletic/6266741/2025/04/09/manchester-united-andre-onana-matic/
 
 **China Hits Back Again at Trump, Bringing New Tariffs on U.S. Goods to 84%**\
 `Beijing announced a new round of 50 percent tariffs in response to President Trump’s latest levies as the trade conflict between the superpowers escalates.`\
-https://nytimes.com/live/2025/04/08/business/trump-tariffs-china-stock-market/china-tariffs-us
+https://nytimes.com/2025/04/09/business/economy/china-tariffs-us-trump.html
 
 **Fernando Tatis Jr., Jake Cronenworth day to day for Padres after leaving with injuries**\
 `Manager Mike Shildt indicated the plan is for both Tatis and Cronenworth to rest for at least the next two days.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6266214/2025/04/09/inter-trademark-goal-champions-l
 **Trump Administration Live Updates: I.R.S. Chief Is Said to Resign After Data-Sharing Deal With ICE**\
 ``\
 https://nytimes.com/live/2025/04/09/us/president-trump
-
-**Bournemouth's Christie undergoes surgery, set to miss rest of the season**\
-`The club said that surgery was the "best course of action" for the 30-year-old.`\
-https://nytimes.com/athletic/6266501/2025/04/09/bournemouth-ryan-christie-surgery/
-
-**Arsenal's Gabriel to miss 'four months' with hamstring injury - Arteta**\
-`After the Real Madrid victory, while praising Gabriel’s replacement Jakub Kiwior, Arteta confirmed the timescale of Gabriel’s absence.`\
-https://nytimes.com/athletic/6266319/2025/04/09/arsenal-gabriel-injury-how-long/
 
