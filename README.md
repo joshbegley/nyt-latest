@@ -1,3 +1,11 @@
+**Corrections: April 9, 2025**\
+`Corrections that appeared in print on Wednesday, April 9, 2025.`\
+https://nytimes.com/2025/04/09/pageoneplus/corrections-april-9-2025.html
+
+**Quote of the Day: Justices Duck A Showdown**\
+`Quotation of the Day for Wednesday, April 9, 2025.`\
+https://nytimes.com/2025/04/08/pageoneplus/quote-of-the-day-justices-duck-a-showdown.html
+
 **Yohe's 10 observations: Penguins have their way with hapless Blackhawks**\
 `Erik Karlsson scored his 200th goal and the final result never looked in doubt as the Penguins cruised to a shutout victory.`\
 https://nytimes.com/athletic/6265654/2025/04/08/penguins-karlsson-mcgroarty-injury-blackhawks/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6256528/2025/04/08/ottawa-senators-nhl-playoffs-cli
 **Was Dončić talking to ref or fan? Star ejected late in loss to Thunder**\
 `OKC outscored L.A. 28-13 after Lakers star was tossed. LeBron James calls finish "weird as hell."`\
 https://nytimes.com/athletic/6265843/2025/04/08/luka-doncic-ejected-lakers-lose-to-thunder/
-
-**Hours before tariffs begin, Trump declares victory and mocks critics.**\
-`The president claimed that foreign countries would “do anything” in the hopes of getting the tariffs removed, but left unclear what if anything was open to negotiation.`\
-https://nytimes.com/live/2025/04/08/us/trump-news-tariffs/hours-before-tariffs-begin-trump-declares-victory-and-mocks-critics
-
-**Parts of Jaden Rashada fraud lawsuit against Florida coach Billy Napier can proceed, judge rules**\
-`Judge decides that UF defendants tried to "lure Rashada away from Miami, all while knowing they would never make good on the NIL promises."`\
-https://nytimes.com/athletic/6265756/2025/04/08/jayden-rashada-lawsuit-billy-napier/
 
