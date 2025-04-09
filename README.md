@@ -1,3 +1,15 @@
+**Flying Somewhere? You May Finally Need That Real ID.**\
+`After years of postponements, the deadline to show a security-enhanced Real ID at airport security checkpoints is now just weeks away. What to know.`\
+https://nytimes.com/2025/04/09/travel/real-id-deadline-what-to-know.html
+
+**Trump’s Targeting of Homeless Agency Signals Sharp Shift in Policy**\
+`The president has all but shut down the United States Interagency Council on Homelessness, but his real goal appears to be a fundamental change of approach for getting people off the streets.`\
+https://nytimes.com/2025/04/09/us/politics/trump-homelessness.html
+
+**5 Songs by Rubby Pérez, the Merengue Singer Lost in the Roof Collapse**\
+`The musician, 69, got his break in the 1980s and continued releasing albums through 2022.`\
+https://nytimes.com/2025/04/09/arts/music/rubby-perez-songs-dominican-republic-roof-collapse.html
+
 **Market Chaos Brings Big Ratings to Television Business News**\
 `Viewership of Fox Business and CNBC has soared since President Trump’s tariffs created chaos in the global economy.`\
 https://nytimes.com/2025/04/09/business/media/trump-tariffs-stock-market-fox-cnbc-jamie-dimon.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/09/business/paul-weiss-steven-banks-trump.html
 **Trump Reverses Course on Global Tariffs, Announcing 90-Day Pause**\
 `The president also further raised already steep tariffs on China, saying that Beijing should not have retaliated against his earlier trade actions.`\
 https://nytimes.com/2025/04/09/us/politics/trump-tariffs-stocks-china.html
-
-**John Nelson, Conductor Who Got France to Cherish Berlioz, Dies at 83**\
-`He revived interest in a “problem child” in the pantheon of high romantic composers, bringing Berlioz overdue recognition as one of France’s greatest composers.`\
-https://nytimes.com/2025/04/09/arts/music/john-nelson-dead.html
-
-**‘Manhunt’ Is a Case Study in Fragile Masculinity**\
-`A new play by Robert Icke about a real-life police chase takes the form of an imagined trial.`\
-https://nytimes.com/2025/04/09/theater/manhunt-robert-icke-royal-court.html
-
-**Pop Songs, ‘Hamilton’ and Windows 95 Chime Join National Registry**\
-`The recordings, along with works by Tracy Chapman, Elton John and the rock band Chicago, are among the 25 selected for preservation by the Library of Congress.`\
-https://nytimes.com/2025/04/09/arts/music/national-recording-registry-hamilton-windows-95.html
 
