@@ -1,5 +1,9 @@
+**Review: A Party With 17 ‘Old Friends’ and 41 Sondheim Songs**\
+`Bernadette Peters and Lea Salonga lead the festivities in a new Broadway revue of the great musical dramatist’s work.`\
+https://nytimes.com/2025/04/08/theater/old-friends-review-sondheim-peters-salonga.html
+
 **Grizzlies' Jaylen Wells leaves on stretcher, taken to hospital after hard fall**\
-`Hornets guard KJ Simpson ejected after his hard foul on Wells' breakaway dunk attempt.`\
+`Hornets guard KJ Simpson was ejected after his hard foul on Wells' breakaway dunk attempt.`\
 https://nytimes.com/athletic/6265595/2025/04/08/jaylen-wells-injured-stretcher-hospital/
 
 **Padres' Jackson Merrill lands on injured list with right hamstring strain**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/08/us/shooting-virginia-fredericksburg.html
 **NBA Draft early entry tracker: Jase Richardson declares; who else is in?**\
 `April 26 is the deadline for underclassmen to declare for the NBA Draft on June 25-26.`\
 https://nytimes.com/athletic/6251067/2025/04/08/nba-draft-early-entry-tracker-deadline/
-
-**3 Visitors to Yellowstone Get Jail Sentences for Violations**\
-`Tourists are required to stay on marked paths in thermal areas because of the dangers of the hot springs, geysers and steam vents, and to protect nature.`\
-https://nytimes.com/2025/04/08/us/yellowstone-tourists-prison-sentence.html
 

@@ -1,3 +1,11 @@
+**Review: A Party With 17 ‘Old Friends’ and 41 Sondheim Songs**\
+`Bernadette Peters and Lea Salonga lead the festivities in a new Broadway revue of the great musical dramatist’s work.`\
+https://nytimes.com/2025/04/08/theater/old-friends-review-sondheim-peters-salonga.html
+
+**Grizzlies' Jaylen Wells leaves on stretcher, taken to hospital after hard fall**\
+`Hornets guard KJ Simpson was ejected after his hard foul on Wells' breakaway dunk attempt.`\
+https://nytimes.com/athletic/6265595/2025/04/08/jaylen-wells-injured-stretcher-hospital/
+
 **Grizzlies' Jaylen Wells leaves on stretcher, taken to hospital after hard fall**\
 `Hornets guard KJ Simpson ejected after his hard foul on Wells' breakaway dunk attempt.`\
 https://nytimes.com/athletic/6265595/2025/04/08/jaylen-wells-injured-stretcher-hospital/

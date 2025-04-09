@@ -1,3 +1,7 @@
+**Astros trade reliever Rafael Montero to Braves**\
+`The Astros tried to offload Montero this winter, but found no takers for a 34-year-old reliever with one standout major-league season.`\
+https://nytimes.com/athletic/6265587/2025/04/08/astros-braves-trade-rafael-montero/
+
 **Review: A Party With 17 ‘Old Friends’ and 41 Sondheim Songs**\
 `Bernadette Peters and Lea Salonga lead the festivities in a new Broadway revue of the great musical dramatist’s work.`\
 https://nytimes.com/2025/04/08/theater/old-friends-review-sondheim-peters-salonga.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6265406/2025/04/08/jarren-duran-red-sox-mental-heal
 **3 Are Killed in Shooting Near Fredericksburg, Va., Authorities Say**\
 `Three others were injured in the shooting, which occurred on a suburban street in Spotsylvania County, about 60 miles southwest of Washington, D.C.`\
 https://nytimes.com/2025/04/08/us/shooting-virginia-fredericksburg.html
-
-**NBA Draft early entry tracker: Jase Richardson declares; who else is in?**\
-`April 26 is the deadline for underclassmen to declare for the NBA Draft on June 25-26.`\
-https://nytimes.com/athletic/6251067/2025/04/08/nba-draft-early-entry-tracker-deadline/
 
