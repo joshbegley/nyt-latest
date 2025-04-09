@@ -1,6 +1,10 @@
+**The Windup: Are the Tigers legit?**\
+`Welcome to The Windup, The Athletic's MLB newsletter. `\
+https://nytimes.com/athletic/6266210/2025/04/09/detroit-tigers-winning-streak-the-windup/
+
 **‘BE COOL!’ Trump Says, as Tariffs Unleash Global Chaos**\
 `Amid the doom and gloom in financial markets, President Trump continues to insist he’s got a plan.`\
-https://nytimes.com/live/2025/04/08/business/trump-tariffs-china-stock-market/be-cool-trump-says-as-tariffs-unleash-global-chaos
+https://nytimes.com/2025/04/09/business/economy/trump-tariff-comments.html
 
 **Justice Dept. Criticizes Another Federal Judge for Blocking a Trump Executive Order**\
 `Attorney General Pam Bondi relied on an increasingly common assertion: that the judge was “unelected” and denying the will of voters who put the president in office.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/09/books/thomas-pynchon-new-novel-shadow-ticket.html
 **Trump Has Targeted These Universities. Why?**\
 `President Trump has set his sights on defunding colleges, singling out some of the world’s wealthiest schools in what critics say is an attack on academic freedom.`\
 https://nytimes.com/article/trump-university-college.html
-
-**The Trump Envoy Who Got Close to the ‘World’s Coolest Dictator’**\
-`U.S. officials said Ronald Johnson’s actions during his time as ambassador to El Salvador seemed less aligned with U.S. interests and more focused on protecting the country’s president.`\
-https://nytimes.com/2025/04/09/world/americas/ronald-johnson-ambassador-el-salvador.html
 
