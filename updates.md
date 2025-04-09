@@ -1,3 +1,7 @@
+**The Advisers Behind Trump’s Tariff Turmoil**\
+`The roller coaster of on-again, off-again tariffs have focused attention on the people behind President Trump’s trade strategy. Rob Copeland, a New York Times finance reporter, takes us inside Trump’s tariff team.`\
+https://nytimes.com/video/us/politics/100000010097922/the-advisers-behind-trumps-tariff-turmoil.html
+
 **Army Secretary Replaces Patel as Interim Head of A.T.F.**\
 `The unusual move has placed a civilian military leader in charge of a domestic law enforcement entity.`\
 https://nytimes.com/2025/04/09/us/politics/patel-army-secretary-atf.html

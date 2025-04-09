@@ -1,3 +1,7 @@
+**The Advisers Behind Trump’s Tariff Turmoil**\
+`The roller coaster of on-again, off-again tariffs have focused attention on the people behind President Trump’s trade strategy. Rob Copeland, a New York Times finance reporter, takes us inside Trump’s tariff team.`\
+https://nytimes.com/video/us/politics/100000010097922/the-advisers-behind-trumps-tariff-turmoil.html
+
 **It’s Springtime in Paris for David Hockney**\
 `A huge new exhibition at the Louis Vuitton Foundation is a late-career retrospective with a sense of new beginnings.`\
 https://nytimes.com/2025/04/09/arts/design/david-hockney-25-fondation-louis-vuitton-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/09/us/politics/patel-army-secretary-atf.html
 **Trump Asks Supreme Court to Let Him Fire Agencies’ Leaders**\
 `An appeals court ordered Cathy Harris and Gwynne Wilcox reinstated to their positions at agencies protecting workers’ rights.`\
 https://nytimes.com/2025/04/09/us/politics/trump-supreme-court-agency-leaders-firings.html
-
-**Vladimir Guerrero Jr.'s Blue Jays extension includes a $325M signing bonus**\
-`The Jays will pay out 65 percent of Guerrero’s 14-year contract in signing bonus.`\
-https://nytimes.com/athletic/6267788/2025/04/09/vladimir-guerrero-blue-jays-signing-bonus/
 
