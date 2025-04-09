@@ -1,3 +1,7 @@
+**Aluko to continue libel case against Barton after court rules posts defamatory**\
+`Barton's social media posts about Aluko in January 2024 —including one where Barton alleged she was a "race card player" — were defamatory.`\
+https://nytimes.com/athletic/6266895/2025/04/09/joey-barton-defamation-eni-aluko/
+
 **The Legacy of the Black Caddies at the Masters**\
 `They would often form special bonds with the golfers that lasted decades. Carl Jackson caddied for Ben Crenshaw dozens of times, including for his two wins at Augusta.`\
 https://nytimes.com/2025/04/09/sports/golf/masters-black-caddies-augusta.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/09/dining/this-chicken-with-artichokes-and-lemon-is-
 **Chinese Lunar Rocks Suggest a Thirsty Far Side of the Moon**\
 `Using samples gathered from the Chang’e-6 mission, scientists found that the interior of the moon on the half we never see from Earth might be drier than the near side.`\
 https://nytimes.com/2025/04/09/science/moon-far-side-water-china.html
-
-**Scientists Map Miles of Wiring in a Speck of Mouse Brain**\
-`Scientists achieved “a milestone” by charting the activity and structure of 200,000 cells in a mouse brain and their 523 million connections.`\
-https://nytimes.com/2025/04/09/science/neuroscience-brain-mice-map.html
 
