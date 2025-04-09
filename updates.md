@@ -1,3 +1,7 @@
+**Milan's Walker undergoes surgery after right elbow fracture**\
+`The 34-year-old has made 12 appearances for Milan since joining the club on loan from Manchester City in January.`\
+https://nytimes.com/athletic/6266334/2025/04/09/kyle-walker-milan-surgery/
+
 **Islamic State Regains Strength in Syria**\
 `The U.S. has sent more forces to Syria, tamping down on the immediate threat, but experts warn that the extremist group could break thousands of hardened fighters out of prison.`\
 https://nytimes.com/2025/04/09/world/middleeast/syria-isis-prisoners.html

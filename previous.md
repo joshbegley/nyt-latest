@@ -1,3 +1,7 @@
+**Milan's Walker undergoes surgery after right elbow fracture**\
+`The 34-year-old has made 12 appearances for Milan since joining the club on loan from Manchester City in January.`\
+https://nytimes.com/athletic/6266334/2025/04/09/kyle-walker-milan-surgery/
+
 **Islamic State Regains Strength in Syria**\
 `The U.S. has sent more forces to Syria, tamping down on the immediate threat, but experts warn that the extremist group could break thousands of hardened fighters out of prison.`\
 https://nytimes.com/2025/04/09/world/middleeast/syria-isis-prisoners.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/09/world/africa/africa-tariffs-cocoa-chocolate.html
 **Brian Schottenheimer on the job: Building culture, balancing being head coach, play caller**\
 `The Cowboys' first-year coach has been prepping for the NFL Draft and "can't wait" to get his players back in the building.`\
 https://nytimes.com/athletic/6265287/2025/04/09/cowboys-brian-schottenheimer-play-caller-coach/
-
-**The Strange Case of an Hermès Heir, an Emir and a Deal Gone Wrong**\
-`Nicolas Puech agreed to sell his multibillion-dollar stake in his family’s luxury goods empire to the royal family of Qatar, but then said he couldn’t gain access to his shares.`\
-https://nytimes.com/2025/04/09/world/europe/hermes-qatar-puech-deal.html
 
