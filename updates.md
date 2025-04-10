@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Matthew Knies hat trick helps Toronto weather the storm**\
+`The Leafs scored twice in the first four minutes and held on against a late Tampa Bay surge for an overtime win.`\
+https://nytimes.com/athletic/6268752/2025/04/09/maple-leafs-report-cards-knies-hat-trick-lightning/
+
 **Here’s what happened on Wednesday.**\
 `By The New York Times`\
 https://nytimes.com/live/2025/04/09/us/president-trump/heres-what-happened-on-wednesday
