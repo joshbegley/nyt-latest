@@ -1,3 +1,7 @@
+**For Restaurants That Rely on Imports, the Tariff News Is Scant Relief**\
+`Confusion and uncertainty hang over an industry with thin profit margins and few domestic sources for foreign ingredients.`\
+https://nytimes.com/2025/04/10/dining/restaurants-tariffs.html
+
 **Colts release kicker Matt Gay, turn to Spencer Shrader**\
 `Gay failed to live up to expectations in Indianapolis. `\
 https://nytimes.com/athletic/6270389/2025/04/10/colts-matt-gay-released-spencer-shrader/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/10/science/neutrinos-mass-physics.html
 **A Sign Your Fish Might Be on Drugs: Risky Behavior**\
 `Researchers studying pharmaceutical pollution tracked salmon that had been exposed to anti-anxiety medication. The fish appeared to lose their inhibitions.`\
 https://nytimes.com/2025/04/10/climate/salmon-anti-anxiety-drugs.html
-
-**With a Jawbone, Scientists Expand the Ancient Range of a Mysterious Human Relative**\
-`A bone discovered in Taiwan turns out to have belonged to a Denisovan, a lineage previously identified only thousands of miles away.`\
-https://nytimes.com/2025/04/10/science/archaeology-denisovan-taiwan.html
 

@@ -1,3 +1,11 @@
+**If You See This Creepy Fish, Cut Its Head Off**\
+`The invasive northern snakehead, which has recently been appearing in Missouri and other states, must be eradicated, officials say.`\
+https://nytimes.com/2025/04/10/us/snakehead-fish-missouri.html
+
+**Can Nigeria Help Save the Pangolins Amid a Global Wildlife Crime Crisis?**\
+`The country has been known as a hub for the trade in illegal wildlife. But it has been stepping up enforcement as concerns grow about the depletion of certain species and the growing role of international crime groups in animal trafficking.`\
+https://nytimes.com/2025/04/10/world/africa/pangolins-wildlife-trafficking-nigeria.html
+
 **For Restaurants That Rely on Imports, the Tariff News Is Scant Relief**\
 `Confusion and uncertainty hang over an industry with thin profit margins and few domestic sources for foreign ingredients.`\
 https://nytimes.com/2025/04/10/dining/restaurants-tariffs.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/10/business/economy/trump-tariffs-china-farmers.html
 **Trump’s Tariff Reversal: Confusion and Relief**\
 `Readers weigh in on the effects of President Trump’s moves on tariffs. Also: The use of preferred pronouns.`\
 https://nytimes.com/2025/04/10/opinion/trump-tariffs-reversal.html
-
-**Neutrinos Are Shrinking, and That’s a Good Thing for Physics**\
-`A new estimate of the ghostly particle’s maximum possible mass brings physicists a tad closer to understanding the universe.`\
-https://nytimes.com/2025/04/10/science/neutrinos-mass-physics.html
-
-**A Sign Your Fish Might Be on Drugs: Risky Behavior**\
-`Researchers studying pharmaceutical pollution tracked salmon that had been exposed to anti-anxiety medication. The fish appeared to lose their inhibitions.`\
-https://nytimes.com/2025/04/10/climate/salmon-anti-anxiety-drugs.html
 

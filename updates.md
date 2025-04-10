@@ -1,3 +1,7 @@
+**For Restaurants That Rely on Imports, the Tariff News Is Scant Relief**\
+`Confusion and uncertainty hang over an industry with thin profit margins and few domestic sources for foreign ingredients.`\
+https://nytimes.com/2025/04/10/dining/restaurants-tariffs.html
+
 **Colts release kicker Matt Gay, turn to Spencer Shrader**\
 `Gay failed to live up to expectations in Indianapolis. `\
 https://nytimes.com/athletic/6270389/2025/04/10/colts-matt-gay-released-spencer-shrader/
