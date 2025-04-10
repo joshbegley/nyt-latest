@@ -1,3 +1,7 @@
+**Here’s what happened on Wednesday.**\
+`By The New York Times`\
+https://nytimes.com/live/2025/04/09/us/president-trump/heres-what-happened-on-wednesday
+
 **The Justice Dept. moves to deport a migrant it described as a gang leader even as it drops charges.**\
 `By Glenn Thrush`\
 https://nytimes.com/live/2025/04/09/us/president-trump/the-justice-dept-moves-to-deport-a-migrant-it-described-as-a-gang-leader-even-as-it-drops-charges
