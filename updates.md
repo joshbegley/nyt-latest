@@ -1,3 +1,23 @@
+**The great Liam Delap transfer auction - feat. Chelsea, Man Utd and half the Premier League**\
+`The Old Trafford club will be just one of a host of suitors for Ipswich's highly-rated striker this summer`\
+https://nytimes.com/athletic/6266733/2025/04/10/liam-delap-manchester-united-transfer-auction/
+
+**Madrid's board must shoulder some blame for their Arsenal thrashing - it's not all on Ancelotti**\
+`It is easy to single out the manager for Tuesday's collapse, but he has been calling for reinforcements since the middle of last season`\
+https://nytimes.com/athletic/6266892/2025/04/10/real-madrid-ancelotti-opinion/
+
+**An 'oxygen moment': Why banned Paulo Fonseca can coach Lyon against Manchester United**\
+`The story of a moment of madness and how one of Europe's top coaches is coping with the consequences`\
+https://nytimes.com/athletic/6267419/2025/04/10/paulo-fonseca-ban-manchester-united/
+
+**How Arsenal’s manager, players and supporters delivered the Emirates Stadium's greatest night (so far)**\
+`Since Mikel Arteta took over, the Emirates has begun to feel increasingly like home. Against Real Madrid, it felt like a fortress`\
+https://nytimes.com/athletic/6267212/2025/04/10/arsenal-real-madrid-emirates-stadium-greatest-night/
+
+**Tom Brady and Birmingham City can lift the EFL Trophy on Sunday. But what is it?**\
+`One of English football's less well-known prizes is up for grabs at Wembley on Sunday `\
+https://nytimes.com/athletic/6160925/2025/04/10/efl-trophy-explainer-birmingham-tom-brady/
+
 **Meet Goncalo Feio, the fiery Legia Warsaw coach facing Chelsea: 'For me, the big guy was Mourinho'**\
 `Goncalo Feio, the Portuguese head coach in charge of Legia Warsaw, is excited about his encounter with Chelsea`\
 https://nytimes.com/athletic/6266546/2025/04/10/meet-goncalo-feio-the-fiery-legia-warsaw-coach-facing-chelsea-for-me-the-big-guy-was-mourinho/
