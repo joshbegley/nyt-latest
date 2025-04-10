@@ -1,3 +1,19 @@
+**House Votes to Require Proof of Citizenship in Federal Elections**\
+`Conservatives have long argued for stronger laws to combat voter fraud, something that election experts say is exceedingly rare.`\
+https://nytimes.com/2025/04/10/us/politics/house-citizenship-elections.html
+
+**My List of 10 Movies to Understand Who Americans Once Were**\
+`Some things can be seen more clearly in black and white.`\
+https://nytimes.com/2025/04/10/opinion/movies-technology-old-america.html
+
+**What’s Going On in This Picture? | April 14, 2025**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2025/04/10/learning/whats-going-on-in-this-picture-april-14-2025.html
+
+**What’s Going On in This Graph? | April 23, 2025**\
+`What do you notice about how the pandemic changed Americans’ lives? What do you wonder about these changes?`\
+https://nytimes.com/2025/04/10/learning/whats-going-on-in-this-graph-april-23-2025.html
+
 **Climate Change Could Become a Global Economic Disaster**\
 `New warnings from financial firms and insurers point to a future defined by profound risks to the global economy from heat, storms and other disasters.`\
 https://nytimes.com/2025/04/10/climate/climate-change-economic-effects.html
