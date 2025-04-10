@@ -1,3 +1,7 @@
+**Inside Factories in China, a Struggle to Survive Trump’s Tariffs**\
+`Small factories with tiny profit margins have played a central role in China’s international competitiveness. Many could now face disaster.`\
+https://nytimes.com/2025/04/09/business/economy/guangzhou-china-exports-tariffs.html
+
 **Messi saves Inter Miami from Champions Cup exit with stirring fightback**\
 `In 2017, Lionel Messi, Luis Suarez and Javier Mascherano spearheaded one of Barcelona&#8217;s most thrilling comeback wins.`\
 https://nytimes.com/athletic/6268685/2025/04/09/messi-inter-miami-lafc-concacaf-champions-cup-fightback/
