@@ -1,3 +1,15 @@
+**China Says Its Own Consumers Will Save the Day. But They’re Not Buying.**\
+`If sky-high U.S. tariffs hurt China’s exports, domestic spending will help make up for it, Beijing says. But shoppers were skittish even before the trade war.`\
+https://nytimes.com/2025/04/10/world/asia/china-trump-tariffs-consumers.html
+
+**How a 'cold war' in Denver forced the Nuggets to clean house at a stunning moment**\
+`Why did the Nuggets choose to fire both coach Michael Malone and general manager Calvin Booth? And more importantly, why now?`\
+https://nytimes.com/athletic/6269100/2025/04/10/nuggets-firings-mike-malone-calvin-booth-nba/
+
+**U.S. and China Headed for ‘Monumental’ Split, Putting World Economy on Edge**\
+`A deepening trade war could further weaken ties between the superpowers. The effects will reverberate everywhere.`\
+https://nytimes.com/2025/04/10/business/us-china-tariffs-trade-war.html
+
 **Wild's Zeev Buium looks ready for the next level as he returns to Frozen Four: 'Reminds me a lot of Cale Makar'**\
 `One NHL scout on Buium: "The stuff he’s doing on the blue line — Makar does that, Lane Hutson does that and Quinn Hughes does that."`\
 https://nytimes.com/athletic/6236628/2025/04/10/zeev-buium-frozen-four-denver-wild/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6267554/2025/04/10/college-football-preseason-games
 **Raiders 7-round mock draft: Doubling down on the trenches and rounding out the roster**\
 `GM John Spytek and coach Pete Carroll plan to utilize a true best-player-available philosophy in the draft. So what should they look for?`\
 https://nytimes.com/athletic/6267394/2025/04/10/raiders-nfl-mock-draft-armand-membou-quinshon-judkins/
-
-**This Week in Sports Trivia: April 10, 2025**\
-`How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
-https://nytimes.com/athletic/6267005/2025/04/10/this-week-in-sports-trivia-april-10-2025/
-
-**Why I kept Octavio Dotel's baseball card in my wallet: Meisel**\
-`One of the beautiful things about sports is that sometimes, we develop connections to random athletes for reasons we can't predict.`\
-https://nytimes.com/athletic/6268662/2025/04/10/octavio-dotel-astros-mets/
-
-**Astros pitcher Hunter Brown has a backbend, flexibility and is throwing harder than ever**\
-`Backbends are a sign of Brown's six-year transformation into one of baseball’s brightest young starting pitchers.`\
-https://nytimes.com/athletic/6268603/2025/04/10/astros-hunter-brown-throwing-harder/
 

@@ -1,40 +1,40 @@
-**The Pulse: Imagine trading Luka Dončić**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6267718/2025/04/10/luka-doncic-dallas-return-mavericks-the-pulse/
+**Wild's Zeev Buium looks ready for the next level as he returns to Frozen Four: 'Reminds me a lot of Cale Makar'**\
+`One NHL scout on Buium: "The stuff he’s doing on the blue line — Makar does that, Lane Hutson does that and Quinn Hughes does that."`\
+https://nytimes.com/athletic/6236628/2025/04/10/zeev-buium-frozen-four-denver-wild/
 
-**President Trump’s Retreat**\
-`We explain the president’s pause on tariffs.`\
-https://nytimes.com/2025/04/10/briefing/president-trumps-retreat.html
+**How Sean Monahan found joy again after the death of best friend Johnny Gaudreau**\
+`Monahan wasn't sure he could play in Columbus without Gaudreau, but support from Gaudreau's wife, Meredith, has led to an impressive season.`\
+https://nytimes.com/athletic/6261949/2025/04/10/johnny-gaudreau-blue-jackets-sean-monahan/
 
-**Lyon's Fonseca says he is being made an example of with 'unbelievable' ban**\
-`Fonseca will be in the dugout for his side’s Europa League clash with Man Utd due to the sanction only applying in French competitions.`\
-https://nytimes.com/athletic/6269239/2025/04/10/lyon-manchester-united-fonseca-ban/
+**Rosenthal: The Blue Jays have Vladimir Guerrero Jr. signed through 2039. So what do they do next?**\
+`The team now has a much clearer direction with their franchise player in the fold. But many questions still remain.`\
+https://nytimes.com/athletic/6268682/2025/04/10/toronto-blue-jays-vladimir-guerrero-next-steps/
 
-**Live From London, It’s Saturday Night!**\
-`A British version of the television sketch comedy program “Saturday Night Live” is set to debut in 2026.`\
-https://nytimes.com/2025/04/10/arts/television/saturday-night-live-snl-london-uk.html
+**Air Jordan power rankings: Which signature shoe is tops in the brand's 40th anniversary?**\
+`As Jordan Brand celebrates its 40th anniversary of the Air Jordan, here are 10 of the best signature models of the shoe.`\
+https://nytimes.com/athletic/6265459/2025/04/10/air-jordan-power-rankings-40th-anniversary/
 
-**FIA deputy president resigns over 'crisis' at Formula One's governing body**\
-`Robert Reid became deputy president when Ben Sulayem won the FIA presidential election at the end of 2021.`\
-https://nytimes.com/athletic/6269294/2025/04/10/robert-reid-fia-formula-one/
+**Questions for 2025-26 women's college basketball season: Is Sarah Strong the top player?**\
+`What will USC look like? Will the same Final Four teams return next season? `\
+https://nytimes.com/athletic/6268000/2025/04/10/questions-womens-college-basketball-2025-26/
 
-**Former world snooker champion Graeme Dott charged with alleged child sex offences**\
-`Dott, 47, has been charged in relation to historic offences towards two children in Scotland between 1993 and 2010.`\
-https://nytimes.com/athletic/6267504/2025/04/10/graeme-dott-snooker-charges/
+**Should college football add preseason games?**\
+`After Deion Sanders tried to make joint spring scrimmages happen, what about preseason games instead? Kirk Ferentz is in favor of the idea.`\
+https://nytimes.com/athletic/6267554/2025/04/10/college-football-preseason-games-spring-scrimmages/
 
-**Raptors end-of-season awards featuring Jakob Poeltl's floaters and Jamal Shead's dunks**\
-`The highs, the lows and the obscure from another 50-loss season from the Raptors.`\
-https://nytimes.com/athletic/6262179/2025/04/10/raptors-awards-jakob-poeltl-jamal-shead/
+**Raiders 7-round mock draft: Doubling down on the trenches and rounding out the roster**\
+`GM John Spytek and coach Pete Carroll plan to utilize a true best-player-available philosophy in the draft. So what should they look for?`\
+https://nytimes.com/athletic/6267394/2025/04/10/raiders-nfl-mock-draft-armand-membou-quinshon-judkins/
 
-**Ashton Jeanty, Tyler Warren, Will Campbell? Bears NFL Draft takeaways from 'The Beast'**\
-`After sifting through some rankings and scouting reports in "The Beast," what can it tell us about the Bears' options in the draft?`\
-https://nytimes.com/athletic/6268041/2025/04/10/bears-nfl-draft-options-the-beast/
+**This Week in Sports Trivia: April 10, 2025**\
+`How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
+https://nytimes.com/athletic/6267005/2025/04/10/this-week-in-sports-trivia-april-10-2025/
 
-**Chiefs' Charles Omenihu vows to maximize his deal with a career year**\
-`Unable to land a multiyear deal in free agency, Omenihu returned to the Chiefs focused on staying healthy and winning a starting job.`\
-https://nytimes.com/athletic/6268315/2025/04/10/chiefs-charles-omenihu-mike-edwards/
+**Why I kept Octavio Dotel's baseball card in my wallet: Meisel**\
+`One of the beautiful things about sports is that sometimes, we develop connections to random athletes for reasons we can't predict.`\
+https://nytimes.com/athletic/6268662/2025/04/10/octavio-dotel-astros-mets/
 
-**Vikings 7-round mock draft 3.0: Using ‘The Beast’ to find the best fits**\
-`We have the Vikings trading down out of the first round to add two picks and fortifying both the offensive and defensive lines.`\
-https://nytimes.com/athletic/6267473/2025/04/10/vikings-nfl-mock-draft-beast-donovan-jackson/
+**Astros pitcher Hunter Brown has a backbend, flexibility and is throwing harder than ever**\
+`Backbends are a sign of Brown's six-year transformation into one of baseball’s brightest young starting pitchers.`\
+https://nytimes.com/athletic/6268603/2025/04/10/astros-hunter-brown-throwing-harder/
 
