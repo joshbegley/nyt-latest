@@ -8,6 +8,16 @@ https://nytimes.com/athletic/6266641/2025/04/10/kevin-de-bruyne-next-club-odds-b
 `\
 https://nytimes.com/athletic/6266592/2025/04/10/football-betting-booking-odds-tips-predictions/
 
+**Kevin De Bruyne next club odds: Miami, Munich or the Middle East?**\
+`Julia Ranney assesses the bookmakers’ predictions on which club will snap up Manchester City’s Kevin De Bruyne.
+`\
+https://nytimes.com/athletic/6266641/2025/04/10/kevin-de-bruyne-next-club-odds-betting-predictions/
+
+**Why you should stop betting on defenders to get booked**\
+`Sam Tighe debunks the myths around defenders and yellow cards, through a betting lens.
+`\
+https://nytimes.com/athletic/6266592/2025/04/10/football-betting-booking-odds-tips-predictions/
+
 **Yamal is a superstar at 17. Barca and Flick need to look after him for the run-in**\
 `Yamal shone again for Barcelona against Borussia Dortmund as they took a big step towards the Champions League semi-finals`\
 https://nytimes.com/athletic/6269078/2025/04/10/lamine-yamal-barcelona-champions-league/
