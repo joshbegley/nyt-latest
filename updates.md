@@ -1,3 +1,7 @@
+**Stunt Design Will Be Honored at the Academy Awards**\
+`Movies that are released in 2027 will be the first ones eligible for the new category honoring the people who make some of the most audience-pleasing moments.`\
+https://nytimes.com/2025/04/10/movies/oscars-stunt-design.html
+
 **Trump Escalates Use of Official Power to Intimidate and Punish His Perceived Foes**\
 `A presidential decree instructing the Justice Department to scrutinize whether a former official broke the law crosses a new line.`\
 https://nytimes.com/2025/04/10/us/politics/trump-officials-justice-department.html

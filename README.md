@@ -1,3 +1,7 @@
+**E.P.A. Is Said to Plan Deep Cuts to Greenhouse Gas Reporting Program**\
+`Officials are moving to eliminate requirements that most big polluters disclose how much carbon dioxide and other planet-warming gases they emit.`\
+https://nytimes.com/2025/04/10/climate/epa-greenhouse-gas-reporting.html
+
 **Stunt Design Will Be Honored at the Academy Awards**\
 `Movies that are released in 2027 will be the first ones eligible for the new category honoring the people who make some of the most audience-pleasing moments.`\
 https://nytimes.com/2025/04/10/movies/oscars-stunt-design.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/10/arts/music/dismissed-players-take-aim-at-new-york
 **Mariners lose starters Ryan Bliss, Victor Robles to significant injuries**\
 `The question now: What will the Mariners do to overcome early-season obstacles and try to chart a path back to the postseason?`\
 https://nytimes.com/athletic/6270892/2025/04/10/mariners-ryan-bliss-victor-robles-injuries/
-
-**Do You Receive Health Care at the V.A.? We’d Like to Hear from You.**\
-`The New York Times is covering the different ways the V.A.’s health system is changing under President Trump. We want to know if you, or someone you know, have been affected.`\
-https://nytimes.com/2025/04/10/us/politics/health-care-veterans-trump.html
 
