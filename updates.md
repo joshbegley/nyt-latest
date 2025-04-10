@@ -1,3 +1,11 @@
+**Appeals Court Clears Path for Trump to Resume Firing Probationary Workers**\
+`The U.S. Court of Appeals for the Fourth Circuit sided with the government to block a lower-court ruling that had led to the reinstatement of thousands of federal workers.`\
+https://nytimes.com/2025/04/09/us/politics/trump-federal-workers-firing.html
+
+**Dodger Details: Andy Pages finding his swing, pitching depth isn't going deep**\
+`A starting rotation that led the majors in ERA during the 8-0 start now has real question marks. Meanwhile, hitters' whiffs are surprising.`\
+https://nytimes.com/athletic/6268556/2025/04/09/los-angeles-dodgers-andy-pages-pitching/
+
 **The Case for Giving This Trade War a Chance**\
 `Oren Cass argues tariffs are worth it.`\
 https://nytimes.com/video/opinion/100000010096873/the-case-for-giving-this-trade-war-a-chance.html
