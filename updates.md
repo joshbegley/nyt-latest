@@ -1,3 +1,7 @@
+**Bengals trends and 'The Beast' 2025 Draft Guide: Profiling who fits in Cincinnati**\
+`Dane Brugler's annual draft encyclopedia gives a clearer picture of which players match the Bengals' tendencies.`\
+https://nytimes.com/athletic/6268419/2025/04/10/bengals-the-beast-nfl-draft-fits/
+
 **Falcons takeaways from 'The Beast': Edge rushers, trading down and dream scenario**\
 `Five Falcons-centric takeaways from including our favorite fourth-round prospects and a wild-card position to watch.`\
 https://nytimes.com/athletic/6267260/2025/04/10/falcons-nfl-draft-the-beast-reaction/
