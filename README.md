@@ -1,3 +1,7 @@
+**Giants still making a Splash as Mike Yastrzemski delivers third walk-off win of homestand**\
+`After being five runs down, the Giants showed once again that they're competitive with an 8-6 victory over the Reds.`\
+https://nytimes.com/athletic/6267992/2025/04/10/san-francisco-giants-mike-yastrzemski-walkoff/
+
 **Suns are now a cautionary tale and have only one card left to play**\
 `No team in the last four decades has faced a situation anywhere close to this hopeless.`\
 https://nytimes.com/athletic/6268131/2025/04/10/devin-booker-trade-suns-nba-thunder/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6266304/2025/04/10/rayan-cherki-lyon-skills-two-foo
 **Fantasy Premier League: The differentials for big gains in Double Gameweek 32**\
 `Aston Villa, Crystal Palace and Newcastle United all have low-owned options`\
 https://nytimes.com/athletic/6265085/2025/04/10/fantasy-premier-league-double-gameweek-32-differentials/
-
-**The great Liam Delap transfer auction - feat. Chelsea, Man Utd and half the Premier League**\
-`The Old Trafford club will be just one of a host of suitors for Ipswich's highly-rated striker this summer`\
-https://nytimes.com/athletic/6266733/2025/04/10/liam-delap-manchester-united-transfer-auction/
 
