@@ -1,3 +1,15 @@
+**A look at Ivan Demidov’s game beyond the highlights as his Canadiens debut awaits**\
+`Demidov's six playoff games with SKA Saint Petersburg provide a window to his NHL-readiness and what he still needs to learn.`\
+https://nytimes.com/athletic/6269116/2025/04/10/ivan-demidov-canadiens-highlights/
+
+**The most expensive Masters memorabilia ever**\
+`The Masters memorabilia is some of the most coveted in all of golf and collectors are willing to pay a premium for it`\
+https://nytimes.com/athletic/6268729/2025/04/10/masters-memorabilia-tiger-woods/
+
+**Have you seen examples of health care fraud, waste or abuse? Tell us about it.**\
+`New York Times reporters are looking into cases of unnecessary and wasteful spending in government health programs.`\
+https://nytimes.com/2025/04/10/health/healthcare-fraud-callout.html
+
 **‘The Pitt’ Captures the Real Overcrowding Crisis in E.R.’s**\
 `From the “chairs” to the hallway medicine, the show’s depiction of an emergency medicine system that is beyond capacity rings true for medical experts.`\
 https://nytimes.com/2025/04/10/health/the-pitt-max-crowded-emergency-rooms.html
