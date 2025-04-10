@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6270514/2025/04/10/penguins-ray-shero-crosby-malkin
 https://nytimes.com/2025/04/10/nyregion/nyc-bill-public-bathrooms.html
 
 **Aaron Ekblad resumes team activities with Panthers: How the NHL determined his return date**\
-`Ekblad was supended for 20 games suspension for violating the NHL/NHLPA Performance Enhancing Substances Program.`\
+`Ekblad was suspended for 20 games for violating the NHL/NHLPA Performance Enhancing Substances Program.`\
 https://nytimes.com/athletic/6270838/2025/04/10/aaron-ekblad-panthers-suspension-return/
 
 **Arch Manning's patience pays off with his chance to be Texas' starting QB**\
