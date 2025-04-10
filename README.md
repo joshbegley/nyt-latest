@@ -1,3 +1,23 @@
+**Phoenix Hits 100 Degrees as Southwest Swelters in Spring Heat**\
+`Even in a region known for heat, this week’s highs, this early in the year, are an “anomaly,” the National Weather Service said.`\
+https://nytimes.com/2025/04/10/weather/phoenix-heat-100-degrees.html
+
+**In Cabinet Meeting, Musk Seems to Drastically Lower DOGE’s Savings Goal**\
+`Musk said his group was on pace to cut $150 billion from the federal budget in one budget year. That would be a sharp drop from his previous stated goal of $1 trillion.`\
+https://nytimes.com/2025/04/10/us/politics/musk-doge-drops-goal.html
+
+**Boston’s Museum of Fine Arts Names Next Director**\
+`Pierre Terjanian, the museum’s current chief of curatorial affairs and conservation, will start in his new role in July.`\
+https://nytimes.com/2025/04/10/arts/design/museum-of-fine-arts-boston-pierre-terjanian.html
+
+**Dismissed Players Take Aim at New York Philharmonic Misconduct Inquiry**\
+`Matthew Muckey and Liang Wang, who were fired by the orchestra last fall, filed amended complaints saying an investigation by the Philharmonic was biased against them.`\
+https://nytimes.com/2025/04/10/arts/music/dismissed-players-take-aim-at-new-york-philharmonic-misconduct-inquiry.html
+
+**Mariners lose starters Ryan Bliss, Victor Robles to significant injuries**\
+`The question now: What will the Mariners do to overcome early-season obstacles and try to chart a path back to the postseason?`\
+https://nytimes.com/athletic/6270892/2025/04/10/mariners-ryan-bliss-victor-robles-injuries/
+
 **Do You Receive Health Care at the V.A.? We’d Like to Hear from You.**\
 `The New York Times is covering the different ways the V.A.’s health system is changing under President Trump. We want to know if you, or someone you know, have been affected.`\
 https://nytimes.com/2025/04/10/us/politics/health-care-veterans-trump.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/04/10/us/politics/trump-tariffs-trade-deals.html
 **If It Exists, Someone Has Left It in an Uber**\
 `The company’s annual list of items passengers have left behind includes a mannequin head with human hair, a urinal and a chain saw.`\
 https://nytimes.com/2025/04/10/style/uber-lost-and-found-list.html
-
-**Markets ‘Hanging on Every Little Bit of Tariff Talk’**\
-`As global markets tremble over President Trump’s tariff policy, the New York Times reporter Joe Rennison remembers the advice of a mentor: It’s our job to report on a crisis, not to make it worse.`\
-https://nytimes.com/2025/04/10/insider/markets-hanging-on-every-little-bit-of-tariff-talk.html
-
-**Trump Close to Winning Concessions From More Law Firms**\
-`Four or five firms could soon agree to deals that would be unveiled as a package, in an escalation of the president’s crackdown on an industry that has drawn his ire.`\
-https://nytimes.com/2025/04/10/us/politics/trump-law-firms.html
-
-**'Toughest player in the league': Why Leafs signed free-agent defenceman Blake Smith**\
-`Toronto continued adding to its prospect pool Thursday, inking Smith to a three-year, entry-level contract beginning next season.`\
-https://nytimes.com/athletic/6270906/2025/04/10/maple-leafs-sign-blake-smith/
-
-**The Briefing: Lyon 2 Manchester United 2 - Zirkzee pounces, Onana's errors, Yoro's first goal**\
-`It's game on for Manchester United in their Europa League quarter-final. We analyse the key talking points...`\
-https://nytimes.com/athletic/6264614/2025/04/10/lyon-manchester-united-result-onana-europa-league/
-
-**China to reduce imports of American films.**\
-`Hollywood’s business in China has dwindled in recent years as the country increased censorship and control of distribution.`\
-https://nytimes.com/live/2025/04/10/business/trump-tariffs-stocks/china-to-reduce-imports-of-american-films
 

@@ -1,3 +1,7 @@
+**Do You Receive Health Care at the V.A.? We’d Like to Hear from You.**\
+`The New York Times is covering the different ways the V.A.’s health system is changing under President Trump. We want to know if you, or someone you know, have been affected.`\
+https://nytimes.com/2025/04/10/us/politics/health-care-veterans-trump.html
+
 **Hall of Famer Ken Griffey Jr. is working as a photographer at The Masters**\
 `Griffey Jr., an avid golfer, said he has played at Masters events before and was excited to get to shoot this year’s tournament.`\
 https://nytimes.com/athletic/6271055/2025/04/10/ken-griffey-jr-photographer-the-masters/

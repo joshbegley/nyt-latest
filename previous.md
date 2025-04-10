@@ -1,3 +1,7 @@
+**Do You Receive Health Care at the V.A.? We’d Like to Hear from You.**\
+`The New York Times is covering the different ways the V.A.’s health system is changing under President Trump. We want to know if you, or someone you know, have been affected.`\
+https://nytimes.com/2025/04/10/us/politics/health-care-veterans-trump.html
+
 **Hall of Famer Ken Griffey Jr. is working as a photographer at The Masters**\
 `Griffey Jr., an avid golfer, said he has played at Masters events before and was excited to get to shoot this year’s tournament.`\
 https://nytimes.com/athletic/6271055/2025/04/10/ken-griffey-jr-photographer-the-masters/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6264614/2025/04/10/lyon-manchester-united-result-on
 **China to reduce imports of American films.**\
 `Hollywood’s business in China has dwindled in recent years as the country increased censorship and control of distribution.`\
 https://nytimes.com/live/2025/04/10/business/trump-tariffs-stocks/china-to-reduce-imports-of-american-films
-
-**The latest on MLS's potential change to a European calendar**\
-`MLS's owners continue to discuss changes that would radically alter the league's outlook.`\
-https://nytimes.com/athletic/6269759/2025/04/10/mls-calendar-change-europe-garber-world-cup/
 
