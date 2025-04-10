@@ -1,3 +1,7 @@
+**Kennedy Offers Qualified Support for Measles Vaccination**\
+`In an interview with CBS, the health secretary also suggested he wasn’t familiar with massive cuts to state funding for public health.`\
+https://nytimes.com/2025/04/09/health/kennedy-offers-qualified-support-for-measles-vaccination.html
+
 **From ‘Be Cool!’ to ‘Getting Yippy’: Inside Trump’s Reversal on Tariffs**\
 `Economic turmoil, particularly a rapid rise in government bond yields, caused President Trump to reverse course on the steep levies.`\
 https://nytimes.com/2025/04/09/us/politics/trump-tariff-pause-be-cool.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6268078/2025/04/09/tyreek-hill-domestic-disturbance
 **A Friendship Divided by Musk**\
 `Elon Musk, and the feelings that working for him can engender, can come between even the closest of pals.`\
 https://nytimes.com/2025/04/09/us/politics/musk-doge-steve-davis.html
-
-**As His Chronic Disease Tour Wraps, Kennedy Hits His Stride**\
-`The health secretary seemed stoic — maybe nervous, even — at the start of his first major trip. But on a hike with Navajo Nation leaders, he was finally in his element.`\
-https://nytimes.com/2025/04/09/health/rfk-jr-maha-tour-navajo.html
 

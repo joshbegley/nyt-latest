@@ -1,3 +1,7 @@
+**Kennedy Offers Qualified Support for Measles Vaccination**\
+`In an interview with CBS, the health secretary also suggested he wasn’t familiar with massive cuts to state funding for public health.`\
+https://nytimes.com/2025/04/09/health/kennedy-offers-qualified-support-for-measles-vaccination.html
+
 **From ‘Be Cool!’ to ‘Getting Yippy’: Inside Trump’s Reversal on Tariffs**\
 `Economic turmoil, particularly a rapid rise in government bond yields, caused President Trump to reverse course on the steep levies.`\
 https://nytimes.com/2025/04/09/us/politics/trump-tariff-pause-be-cool.html
