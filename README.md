@@ -1,3 +1,27 @@
+**Falcons takeaways from 'The Beast': Edge rushers, trading down and dream scenario**\
+`Five Falcons-centric takeaways from including our favorite fourth-round prospects and a wild-card position to watch.`\
+https://nytimes.com/athletic/6267260/2025/04/10/falcons-nfl-draft-the-beast-reaction/
+
+**Patriots 7-round mock draft: We use 'The Beast' to find a wide receiver, left tackle**\
+`We use "The Beast" from The Athletic NFL Draft expert Dane Brugler as a guide for our latest Patriots mock draft.`\
+https://nytimes.com/athletic/6267197/2025/04/10/patriots-nfl-mock-draft-armand-membou/
+
+**Do We Really Expect Investors to Forget What Just Happened?**\
+`The reciprocal tariffs might be gone for now, but slow growth, inflation and dings to American credibility remain.`\
+https://nytimes.com/2025/04/10/opinion/tariffs-trump-pause-reverse.html
+
+**A Honolulu Bakery That Folds In Tropical Flavors**\
+`Plus: lakeside cabins in the Berkshires, wooden lamps and more recommendations from T Magazine.`\
+https://nytimes.com/2025/04/10/t-magazine/honolulu-bakery-mille-fete.html
+
+**They Scoured the Northeast for a Space They Could Live and Work In**\
+`With about $750,000 to spend, a couple with a dream of opening a business for farm-to-table events looked at pastoral properties in New York, Vermont and Maine.`\
+https://nytimes.com/interactive/2025/04/10/realestate/new-york-vermont-maine-home-sale.html
+
+**Cowboys takeaways from 'The Beast': Options at No. 12 and chances at Ashton Jeanty**\
+`Would Dallas take Ashton Jeanty if he's there at 12? Who could be other options if he's not and what about Round 2 running backs?`\
+https://nytimes.com/athletic/6267461/2025/04/10/cowboys-nfl-draft-the-beast-takeaways-ashton-jeanty/
+
 **Who Needs Free Trade When You Can Raise Your Own Chickens?**\
 `A key faction of the Republican Party wants you to be happy with less stuff.`\
 https://nytimes.com/2025/04/10/opinion/tariffs-trump-postliberals-tradlife.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/04/10/movies/chicken-jockey-minecraft-movie.html
 **Outside His Political Base, a Canadian’s Trumpian Pitch Is a Harder Sell**\
 `Pierre Poilievre, the Conservative seeking to become prime minister, fires up the faithful in Alberta, including Trump supporters, with his anti-elitist, anti-woke message.`\
 https://nytimes.com/2025/04/10/world/americas/poilievre-populism-alberta.html
-
-**‘This Moment Is a Cataclysm,’ but We Can Still Act**\
-`The longtime activist and writer Sarah Schulman on why now is the time to stand up to people you oppose.`\
-https://nytimes.com/2025/04/10/opinion/sarah-schulman-solidarity.html
-
-**Worried About Stock Market Swings? These Young Investors Aren’t.**\
-`While retirees and others fretted about their portfolios, some members of Gen Z and younger millennials kept calm and bought the dip.`\
-https://nytimes.com/2025/04/10/business/young-investors-stock-market-swings.html
-
-**‘Everybody Is Nervous’: How Trump’s Tariffs Land in an English Carmaking Town**\
-`Jaguar Land Rover employs 9,000 people in Solihull, where residents are anxious and baffled by the 25% tariff on vehicles imported to the United States.`\
-https://nytimes.com/2025/04/10/world/europe/trump-auto-tariffs-uk-jaguar-land-rover.html
-
-**An Early Photograph With a Famous Creator Goes Up for Auction**\
-`Among a collection of daguerreotypes for sale at Christie’s is one made by Samuel F.B. Morse, the inventor of the telegraph, who briefly ran a portrait studio in New York City.`\
-https://nytimes.com/2025/04/10/nyregion/an-early-photograph-with-a-famous-creator-goes-up-for-auction.html
-
-**‘Black Mirror’ Creator Nibbles the Hand That Feeds Him**\
-`The new season, premiering Thursday on Netflix, includes the show’s most blatant satire of streaming services yet.`\
-https://nytimes.com/2025/04/10/arts/television/black-mirror-charlie-brooker-netflix.html
-
-**Inflation Expected to Have Eased in March**\
-`Policymakers and economists say the latest data is only a temporary reprieve as tariffs risk stoking higher inflation.`\
-https://nytimes.com/2025/04/10/business/inflation-cpi-tariffs-march.html
 
