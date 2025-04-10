@@ -1,3 +1,20 @@
+**'Toughest player in the league': Why Leafs signed free-agent defenceman Blake Smith**\
+`Toronto continued adding to its prospect pool Thursday, inking Smith to a three-year, entry-level contract beginning next season.`\
+https://nytimes.com/athletic/6270906/2025/04/10/maple-leafs-sign-blake-smith/
+
+**The Briefing: Lyon 2 Manchester United 2 - Zirkzee pounces, Onana's errors, Yoro's first goal**\
+`It's game on for Manchester United in their Europa League quarter-final. We analyse the key talking points...`\
+https://nytimes.com/athletic/6264614/2025/04/10/lyon-manchester-united-result-onana-europa-league/
+
+**China to reduce imports of American films.**\
+`Hollywood’s business in China has dwindled in recent years as the country increased censorship and control of distribution.`\
+https://nytimes.com/live/2025/04/10/business/trump-tariffs-stocks/china-to-reduce-imports-of-american-films
+
+**Watch: Encouraging traits? Too stiff? A debate over Shemar Stewart**\
+`"The Athletic Football Show" debates whether the Texas A&M edge rusher should be viewed as a top prospect in this year's draft.
+`\
+https://nytimes.com/athletic/6269179/2025/04/10/athletic-football-show-shemar-stewart-nfl-draft/
+
 **Watch: Encouraging traits? Too stiff? A debate over Shemar Stewart**\
 `"The Athletic Football Show" debates whether the Texas A&M edge rusher should be viewed as a top prospect in this year's draft.
 `\
