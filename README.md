@@ -1,3 +1,7 @@
+**New Jersey Devils clinch third playoff berth in last 14 seasons**\
+`The Devils secured third in the Metropolitan Division despite some major injuries on their roster this season.`\
+https://nytimes.com/athletic/6261326/2025/04/09/new-jersey-devils-nhl-playoffs-clinch-berth/
+
 **Stocks Jump in Asia After Trump’s Tariff Reprieve**\
 `Markets in Japan, South Korea and Taiwan soar after the U.S. president pauses punishing tariffs. Gains in mainland China were modest as trade hostilities heat up between Washington and Beijing.`\
 https://nytimes.com/2025/04/09/business/trump-tariffs-stocks-asia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/09/us/politics/trump-tariff-pause-be-cool.html
 **Flight Ban on Parrots Leaves Bronx Grandmother in Limbo for 4 Days**\
 `Plucky, an African gray parrot, accompanied its owner, Maria Fraterrigo, on a Frontier Airlines flight to Puerto Rico in January. But a gate agent would not let it on board the return flight.`\
 https://nytimes.com/2025/04/09/us/nyc-woman-puerto-rico-parrot-airline.html
-
-**House Votes to Curb National Injunctions, Targeting Judges Who Thwart Trump**\
-`The legislation is part of an escalating Republican campaign to take aim at judges who have moved to halt some of President Trump’s executive orders.`\
-https://nytimes.com/2025/04/09/us/politics/house-vote-federal-judges-trump.html
 
