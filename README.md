@@ -1,3 +1,7 @@
+**Connor McDavid's return to Oilers lineup wasn't planned, but it was needed**\
+`McDavid was originally supposed to return for Friday's game. But amid a slew of injuries, the captain felt his team needed him.`\
+https://nytimes.com/athletic/6269165/2025/04/10/oilers-connor-mcdavid-return/
+
 **Ask Ornstein Q&A: Our football insider answers your questions**\
 `Here is your opportunity to ask David Ornstein anything you want about the world of football`\
 https://nytimes.com/athletic/6269135/2025/04/10/ask-ornstein-qa-our-football-insider-answers-your-questions-24/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6269135/2025/04/10/ask-ornstein-qa-our-football-ins
 https://nytimes.com/athletic/6269665/2025/04/10/wood-elanga-awoniyi-nottingham-forest-injury-update/
 
 **Asian Nations, Holding Few Cards, Seek Trade Talks With Trump**\
-`Southeast Asian leaders are doubling down on trying to placate the U.S. president. “We may have to comply,” Thailand’s finance minister said of his demands.`\
+`Southeast Asian leaders, their export-driven economies in peril, are trying to placate the president. “We may have to comply,” Thailand’s finance minister said.`\
 https://nytimes.com/2025/04/10/world/asia/trump-asia-trade-leverage.html
 
 **Why Wasn’t Anyone Traumatized in the ‘White Lotus’ Finale?**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/10/us/politics/egg-prices-march.html
 **Fridrik Olafsson, Grandmaster Who Led Iceland’s Rise in Chess, Dies at 90**\
 `At a time before his country became a chess powerhouse, he defeated four world champions, including Bobby Fischer and another in an unlikely turn of events.`\
 https://nytimes.com/2025/04/10/world/europe/fridrik-olafsson-dead.html
-
-**Death Toll in Dominican Republic Nightclub Hits 218**\
-`The number of dead in a roof collapse in Santo Domingo keeps rising. Officials have not said how many people were in the club at the time of the disaster.`\
-https://nytimes.com/2025/04/10/world/americas/dominican-republic-nightclub-collapse-deaths.html
 
