@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6269007/2025/04/10/luka-doncic-mavericks-fans-first
 https://nytimes.com/athletic/6269078/2025/04/10/lamine-yamal-barcelona-champions-league/
 
 **Trump Repeals Biden-Era Limit on Water Flow in Shower Heads**\
-`President Trump, who signed an executive order about the definition of “shower head” has had a long-running crusade against low water pressure.`\
+`President Trump, who signed an executive order about the definition of “shower head,” has had a long-running crusade against low water pressure.`\
 https://nytimes.com/2025/04/10/us/politics/trump-showers-water-pressure.html
 
 **Hurt by Mavericks trade, Luka Dončić is now feeling the love in L.A. and beyond**\
