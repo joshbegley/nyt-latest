@@ -1,3 +1,7 @@
+**Why Western Conference playoff teams have reason to hope — and panic**\
+`As the Western Conference playoff race shapes up, what are the strengths and weaknesses of the eight teams?`\
+https://nytimes.com/athletic/6268537/2025/04/10/nhl-western-playoffs-hope-concern-2025/
+
 **Why are Brazilian players finding success in the NWSL? It starts with Marta**\
 `Many Brazilian players cite their women's national team record goalscorer and Orlando Pride stalwart as a reason they came to NWSL`\
 https://nytimes.com/athletic/6268839/2025/04/10/brazilians-nwsl-marta-success/
