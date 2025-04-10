@@ -1,3 +1,15 @@
+**Neutrinos Are Shrinking, and That’s a Good Thing for Physics**\
+`A new estimate of the ghostly particle’s maximum possible mass brings physicists a tad closer to understanding the universe.`\
+https://nytimes.com/2025/04/10/science/neutrinos-mass-physics.html
+
+**With a Jawbone, Scientists Expand the Ancient Range of a Mysterious Human Relative**\
+`A bone discovered in Taiwan turns out to have belonged to a Denisovan, a lineage previously identified only thousands of miles away.`\
+https://nytimes.com/2025/04/10/science/archaeology-denisovan-taiwan.html
+
+**A Sign Your Fish Might Be on Drugs: Risky Behavior**\
+`Researchers studying pharmaceutical pollution tracked salmon that had been exposed to anti-anxiety medication. The fish appeared to lose their inhibitions.`\
+https://nytimes.com/2025/04/10/climate/salmon-anti-anxiety-drugs.html
+
 **Turkey and Israel Aim to Avoid Clashes in Syria as Tensions Rise**\
 `The two sides have started talks to prevent conflicts between their troops in Syria, amid a growing rivalry for influence in the region.`\
 https://nytimes.com/2025/04/10/world/middleeast/syria-turkey-israel-talks.html
