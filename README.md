@@ -1,3 +1,11 @@
+**Why are Brazilian players finding success in the NWSL? It starts with Marta**\
+`Many Brazilian players cite their women's national team record goalscorer and Orlando Pride stalwart as a reason they came to NWSL`\
+https://nytimes.com/athletic/6268839/2025/04/10/brazilians-nwsl-marta-success/
+
+**Michelle Obama Addresses Divorce Rumors and Public Absences**\
+`The former first lady said on a podcast that people “couldn’t even fathom that I was making a choice for myself, that they had to assume that my husband and I are divorcing.”`\
+https://nytimes.com/2025/04/10/us/michelle-obama-divorce-rumors.html
+
 **Hundreds of Israeli Air Force Reservists Call for Halt to Gaza War**\
 `A letter signed by reservists and retired officers accused the government of endangering hostages held by Hamas, highlighting a growing divide over the handling of the war.`\
 https://nytimes.com/2025/04/10/world/middleeast/israel-gaza-hamas-hostages-air-force.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6236628/2025/04/10/zeev-buium-frozen-four-denver-wi
 **How Sean Monahan found joy again after the death of best friend Johnny Gaudreau**\
 `Monahan wasn't sure he could play in Columbus without Gaudreau, but support from Gaudreau's wife, Meredith, has led to an impressive season.`\
 https://nytimes.com/athletic/6261949/2025/04/10/johnny-gaudreau-blue-jackets-sean-monahan/
-
-**Rosenthal: The Blue Jays have Vladimir Guerrero Jr. signed through 2039. So what do they do next?**\
-`The team now has a much clearer direction with their franchise player in the fold. But many questions still remain.`\
-https://nytimes.com/athletic/6268682/2025/04/10/toronto-blue-jays-vladimir-guerrero-next-steps/
-
-**Air Jordan power rankings: Which signature shoe is tops in the brand's 40th anniversary?**\
-`As Jordan Brand celebrates its 40th anniversary of the Air Jordan, here are 10 of the best signature models of the shoe.`\
-https://nytimes.com/athletic/6265459/2025/04/10/air-jordan-power-rankings-40th-anniversary/
 
