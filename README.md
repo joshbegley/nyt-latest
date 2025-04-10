@@ -14,6 +14,10 @@ https://nytimes.com/athletic/6269147/2025/04/10/canucks-rick-tocchet-elias-pette
 `The Polish musician is a mainstay of streaming playlists with names like “Calm Vibes.” But she bristles at the notion that her music is therapeutic.`\
 https://nytimes.com/2025/04/10/arts/music/hania-rani.html
 
+**Champions League projections 2024-25: Who will lift the trophy in Munich on May 31?**\
+`Here's how the rest of the 2024-25 Champions League is projected to play out...`\
+https://nytimes.com/athletic/5793492/2025/04/10/champions-league-projections/
+
 **A Broccoli Pasta That Doesn’t Feel Like a Broccoli Pasta**\
 `Genevieve Ko’s brilliant (and very easy) broccoli-walnut pesto pasta turns the everyday vegetable into a luscious, complexly flavored sauce.`\
 https://nytimes.com/2025/04/10/dining/easy-broccoli-pasta.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6269206/2025/04/10/macklin-celebrini-calder-trophy-
 **The Bounce: Luka Dončić's Dallas return had everything. What's next as his Lakers chapter unfolds?**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6269593/2025/04/10/luka-doncic-lakers-mavericks-return-playoffs-the-bounce/
-
-**Luigi Mangione Death Penalty Bid May Pit Prosecutors Against Each Other**\
-`State and federal prosecutors have both accused Mr. Mangione of killing a health insurance executive. Attorney General Pam Bondi is pushing aggressively for capital punishment.`\
-https://nytimes.com/2025/04/10/nyregion/bondi-federal-death-penalty-mangione.html
 
