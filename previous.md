@@ -1,5 +1,17 @@
+**Hania Rani’s Music Is Tranquil. Please Don’t Call It ‘Soothing.’**\
+`The Polish musician is a mainstay of streaming playlists with names like “Calm Vibes.” But she bristles at the notion that her music is therapeutic.`\
+https://nytimes.com/2025/04/10/arts/music/hania-rani.html
+
+**A Broccoli Pasta That Doesn’t Feel Like a Broccoli Pasta**\
+`Genevieve Ko’s brilliant (and very easy) broccoli-walnut pesto pasta turns the everyday vegetable into a luscious, complexly flavored sauce.`\
+https://nytimes.com/2025/04/10/dining/easy-broccoli-pasta.html
+
+**Listen: ‘Meet Jensen McRae and 3 Other Artists on the Rise’**\
+`What music and musicians are you excited about this spring?`\
+https://nytimes.com/2025/04/10/learning/listen-meet-jensen-mcrae-and-3-other-artists-on-the-rise.html
+
 **Here's how the Blues' playoff chase shapes up after some wild finishes Wednesday**\
-`The Blues lost 4-3 to Edmonton on Wednesday, but could clinch a playoff berth Saturday in Seattle.`\
+`The Blues lost 4-3 to Edmonton on Wednesday but could clinch a playoff berth Saturday in Seattle.`\
 https://nytimes.com/athletic/6268720/2025/04/10/st-blues-playoff-chase/
 
 **Does Macklin Celebrini's record-setting game give him an edge in Calder Trophy race?**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6267605/2025/04/10/penn-state-hockey-frozen-four/
 **A look at Ivan Demidov’s game beyond the highlights as his Canadiens debut awaits**\
 `Demidov's six playoff games with SKA Saint Petersburg provide a window to his NHL-readiness and what he still needs to learn.`\
 https://nytimes.com/athletic/6269116/2025/04/10/ivan-demidov-canadiens-highlights/
-
-**The most expensive Masters memorabilia ever**\
-`The Masters memorabilia is some of the most coveted in all of golf and collectors are willing to pay a premium for it`\
-https://nytimes.com/athletic/6268729/2025/04/10/masters-memorabilia-tiger-woods/
-
-**Have you seen examples of health care fraud, waste or abuse? Tell us about it.**\
-`New York Times reporters are looking into cases of unnecessary and wasteful spending in government health programs.`\
-https://nytimes.com/2025/04/10/health/healthcare-fraud-callout.html
-
-**‘The Pitt’ Captures the Real Overcrowding Crisis in E.R.’s**\
-`From the “chairs” to the hallway medicine, the show’s depiction of an emergency medicine system that is beyond capacity rings true for medical experts.`\
-https://nytimes.com/2025/04/10/health/the-pitt-max-crowded-emergency-rooms.html
 

@@ -1,3 +1,19 @@
+**Hania Rani’s Music Is Tranquil. Please Don’t Call It ‘Soothing.’**\
+`The Polish musician is a mainstay of streaming playlists with names like “Calm Vibes.” But she bristles at the notion that her music is therapeutic.`\
+https://nytimes.com/2025/04/10/arts/music/hania-rani.html
+
+**A Broccoli Pasta That Doesn’t Feel Like a Broccoli Pasta**\
+`Genevieve Ko’s brilliant (and very easy) broccoli-walnut pesto pasta turns the everyday vegetable into a luscious, complexly flavored sauce.`\
+https://nytimes.com/2025/04/10/dining/easy-broccoli-pasta.html
+
+**Listen: ‘Meet Jensen McRae and 3 Other Artists on the Rise’**\
+`What music and musicians are you excited about this spring?`\
+https://nytimes.com/2025/04/10/learning/listen-meet-jensen-mcrae-and-3-other-artists-on-the-rise.html
+
+**Here's how the Blues' playoff chase shapes up after some wild finishes Wednesday**\
+`The Blues lost 4-3 to Edmonton on Wednesday but could clinch a playoff berth Saturday in Seattle.`\
+https://nytimes.com/athletic/6268720/2025/04/10/st-blues-playoff-chase/
+
 **Here's how the Blues' playoff chase shapes up after some wild finishes Wednesday**\
 `The Blues lost 4-3 to Edmonton on Wednesday, but could clinch a playoff berth Saturday in Seattle.`\
 https://nytimes.com/athletic/6268720/2025/04/10/st-blues-playoff-chase/
