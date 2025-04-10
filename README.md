@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Matthew Knies hat trick helps Toronto weather the storm**\
+`The Leafs scored twice in the first four minutes and held on against a late Tampa Bay surge for an overtime win.`\
+https://nytimes.com/athletic/6268752/2025/04/09/maple-leafs-report-cards-knies-hat-trick-lightning/
+
 **Here’s what happened on Wednesday.**\
 `By The New York Times`\
 https://nytimes.com/live/2025/04/09/us/president-trump/heres-what-happened-on-wednesday
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/09/us/politics/trump-federal-workers-firing.html
 **Dodger Details: Andy Pages finding his swing, pitching depth isn't going deep**\
 `A starting rotation that led the majors in ERA during the 8-0 start now has real question marks. Meanwhile, hitters' whiffs are surprising.`\
 https://nytimes.com/athletic/6268556/2025/04/09/los-angeles-dodgers-andy-pages-pitching/
-
-**The Case for Giving This Trade War a Chance**\
-`Oren Cass argues tariffs are worth it.`\
-https://nytimes.com/video/opinion/100000010096873/the-case-for-giving-this-trade-war-a-chance.html
 
