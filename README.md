@@ -1,3 +1,7 @@
+**Fridrik Olafsson, Grandmaster Who Led Iceland’s Rise in Chess, Dies at 90**\
+`At a time before his country became a chess powerhouse, he defeated four world champions, including one in an unlikely turn of events. He also led the game’s governing body.`\
+https://nytimes.com/2025/04/10/world/europe/fridrik-olafsson-dead.html
+
 **Death Toll in Dominican Republic Nightclub Hits 218**\
 `The number of dead in a roof collapse in Santo Domingo keeps rising. Officials have not said how many people were in the club at the time of the disaster.`\
 https://nytimes.com/2025/04/10/world/americas/dominican-republic-nightclub-collapse-deaths.html
@@ -15,7 +19,7 @@ https://nytimes.com/2025/04/10/style/prada-versace-deal.html
 https://nytimes.com/2025/04/10/business/dealbook/trump-tariff-pause-questions.html
 
 **Barcelona's front three are a ruthless counter-attacking machine - this is why**\
-`Barcelona are on course for a treble this season and owe it in part to their incredible front three`\
+`Barca are on course for a treble this season and much of that is due to the play of their incredible front three`\
 https://nytimes.com/athletic/6269412/2025/04/10/barcelona-raphinha-lewandowski-yamal-counter-attack-analysis/
 
 **NBA Awards Watch: What should and will happen with MVP, All-NBA and other honors**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6268457/2025/04/10/49ers-local-pro-day-ayomanor-nas
 **Ryan Greene chasing Frozen Four dream before Blackhawks decision**\
 `Greene is expected to sign with Chicago after his college season ends. But first, his Boston University Terriers go for NCAA glory.`\
 https://nytimes.com/athletic/6267674/2025/04/10/blackhawks-ryan-greene-nhl/
-
-**Could Fabian Lysell make the Bruins next year? Why speed and skill are not enough**\
-`Much of Lysell’s game remains a mystery. But nine varsity appearances have given Lysell belief.`\
-https://nytimes.com/athletic/6268075/2025/04/10/fabian-lysell-bruins-roster-2025-26/
 
