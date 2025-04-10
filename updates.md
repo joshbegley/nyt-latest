@@ -1,3 +1,19 @@
+**Newsmax Made Defamatory Statements About Dominion, Judge Says**\
+`The defamation case, over falsehoods spread about the 2020 election, is headed to a jury this month.`\
+https://nytimes.com/2025/04/10/business/media/newsmax-dominion-defamation.html
+
+**Liverpool's firm Dean Huijsen interest? Liam Delap's clause? — Ask Ornstein**\
+`David has pulled together some of his favourite questions and answers from his weekly Q&A`\
+https://nytimes.com/athletic/6269833/2025/04/10/liverpool-transfer-latest-dean-huijsen-liam-delap-manchester-united/
+
+**House Passes G.O.P. Budget After Conservative Revolt Collapses**\
+`A pledge from the top Senate Republican that his chamber would embrace far deeper cuts than the measure would require persuaded a critical bloc of fiscal hawks to drop its opposition.`\
+https://nytimes.com/2025/04/10/us/politics/house-budget-vote-trump-republicans.html
+
+**Champions League projections 2024-25: Who will lift the trophy in Munich on May 31?**\
+`Here's how the rest of the 2024-25 Champions League is projected to play out...`\
+https://nytimes.com/athletic/5793492/2025/04/10/champions-league-projections/
+
 **House Passes G.O.P. Budget After Conservative Revolt Collapses**\
 `A pledge from the top Senate Republican that his chamber would embrace far deeper cuts than the measure would require persuaded a critical bloc of fiscal hawks to drop their opposition.`\
 https://nytimes.com/2025/04/10/us/politics/house-budget-vote-trump-republicans.html
