@@ -1,3 +1,11 @@
+**Legal Group Funded by Conservative Megadonors Challenges Trump’s Tariffs**\
+`The legal organization behind a lawsuit challenging President Trump’s tariffs is funded by groups linked to Charles Koch and Leonard A. Leo.`\
+https://nytimes.com/2025/04/10/business/economy/trump-tariffs-challenge-megadonors.html
+
+**Relevent Sports, U.S. Soccer settle antitrust lawsuit**\
+`The settlement likely clears the way for the sports promoter to host foreign league matches on American soil.`\
+https://nytimes.com/athletic/6271264/2025/04/10/relevent-sports-us-soccer-lawsuit-settlement/
+
 **Mahmoud Khalil’s Lawyers Will Seek Testimony From Marco Rubio**\
 `Lawyers for the detained Columbia graduate said that the lack of substantive charges against him requires more information from the secretary of state. They acknowledge they are likely to fail.`\
 https://nytimes.com/2025/04/10/nyregion/khalil-rubio-testimony-deportation.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/10/movies/oscars-stunt-design.html
 **Trump Escalates Use of Official Power to Intimidate and Punish His Perceived Foes**\
 `A presidential decree instructing the Justice Department to scrutinize whether a former official broke the law crosses a new line.`\
 https://nytimes.com/2025/04/10/us/politics/trump-officials-justice-department.html
-
-**Michael Hurley, a Singer Both Eccentric and Inspirational, Dies at 83**\
-`A folk troubadour with an eclectic style, he built a devoted following for his songs about love, death, drinking and a particularly sad werewolf.`\
-https://nytimes.com/2025/04/10/arts/music/michael-hurley-dead.html
-
-**Joan Brown Campbell Dies at 93; Led Largest Ecumenical Body in U.S.**\
-`A minister who headed the National Council of Churches, she was active in liberal causes in the 1990s and sought to counter the conservative Christian Coalition.`\
-https://nytimes.com/2025/04/10/us/politics/joan-brown-campbell-dead.html
 

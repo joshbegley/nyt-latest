@@ -1,3 +1,11 @@
+**Legal Group Funded by Conservative Megadonors Challenges Trump’s Tariffs**\
+`The legal organization behind a lawsuit challenging President Trump’s tariffs is funded by groups linked to Charles Koch and Leonard A. Leo.`\
+https://nytimes.com/2025/04/10/business/economy/trump-tariffs-challenge-megadonors.html
+
+**Relevent Sports, U.S. Soccer settle antitrust lawsuit**\
+`The settlement likely clears the way for the sports promoter to host foreign league matches on American soil.`\
+https://nytimes.com/athletic/6271264/2025/04/10/relevent-sports-us-soccer-lawsuit-settlement/
+
 **Mahmoud Khalil’s Lawyers Will Seek Testimony From Marco Rubio**\
 `Lawyers for the detained Columbia graduate said that the lack of substantive charges against him requires more information from the secretary of state. They acknowledge they are likely to fail.`\
 https://nytimes.com/2025/04/10/nyregion/khalil-rubio-testimony-deportation.html
