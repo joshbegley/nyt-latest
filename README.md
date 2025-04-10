@@ -1,3 +1,7 @@
+**Does Macklin Celebrini's record-setting game give him an edge in Calder Trophy race?**\
+`Celebrini is the fifth Sharks rookie to record a hat trick and the first to have a five-point game.`\
+https://nytimes.com/athletic/6269206/2025/04/10/macklin-celebrini-calder-trophy-race/
+
 **The Bounce: Luka Dončić's Dallas return had everything. What's next as his Lakers chapter unfolds?**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6269593/2025/04/10/luka-doncic-lakers-mavericks-return-playoffs-the-bounce/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/10/health/the-pitt-max-crowded-emergency-rooms.html
 **Why Did Trump Change His Mind On Tariffs?**\
 `On Wednesday, President Trump paused the vast majority of the tariffs he had instituted for 90 days.`\
 https://nytimes.com/video/us/politics/100000010101900/trump-tariff-reversal-explainer.html
-
-**Connor McDavid's return to Oilers lineup wasn't planned, but it was needed**\
-`McDavid was originally supposed to return for Friday's game. But amid a slew of injuries, the captain felt his team needed him.`\
-https://nytimes.com/athletic/6269165/2025/04/10/oilers-connor-mcdavid-return/
 
