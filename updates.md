@@ -1,3 +1,15 @@
+**Luka Dončić, Mavs fans seek closure in Lakers star's first game in Dallas since trade**\
+`"I don't even know how I played this game," Dončić said. "So many emotions."`\
+https://nytimes.com/athletic/6269007/2025/04/10/luka-doncic-mavericks-fans-first-game-in-dallas-since-trade/
+
+**Yamal is a superstar at 17. Barcelona and Flick need to look after him for the run-in**\
+`Lamine Yamal shone for Barcelona against Borussia Dortmund as they won 4-0 on Wednesday evening`\
+https://nytimes.com/athletic/6269078/2025/04/10/lamine-yamal-barcelona-champions-league/
+
+**Trump Repeals Biden-Era Limit on Water Flow in Shower Heads**\
+`President Trump, who signed an executive order about the definition of “shower head” has had a long-running crusade against low water pressure.`\
+https://nytimes.com/2025/04/10/us/politics/trump-showers-water-pressure.html
+
 **Hurt by Mavericks trade, Luka Dončić is now feeling the love in L.A. and beyond**\
 `Two months after his trade to the Lakers, Dončić is looking like himself again — while earning the adoration of the fan base.`\
 https://nytimes.com/athletic/6268686/2025/04/10/luka-doncic-fans-lakers-mavericks-return/

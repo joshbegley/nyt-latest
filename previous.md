@@ -1,3 +1,15 @@
+**Luka Dončić, Mavs fans seek closure in Lakers star's first game in Dallas since trade**\
+`"I don't even know how I played this game," Dončić said. "So many emotions."`\
+https://nytimes.com/athletic/6269007/2025/04/10/luka-doncic-mavericks-fans-first-game-in-dallas-since-trade/
+
+**Yamal is a superstar at 17. Barcelona and Flick need to look after him for the run-in**\
+`Lamine Yamal shone for Barcelona against Borussia Dortmund as they won 4-0 on Wednesday evening`\
+https://nytimes.com/athletic/6269078/2025/04/10/lamine-yamal-barcelona-champions-league/
+
+**Trump Repeals Biden-Era Limit on Water Flow in Shower Heads**\
+`President Trump, who signed an executive order about the definition of “shower head” has had a long-running crusade against low water pressure.`\
+https://nytimes.com/2025/04/10/us/politics/trump-showers-water-pressure.html
+
 **Hurt by Mavericks trade, Luka Dončić is now feeling the love in L.A. and beyond**\
 `Two months after his trade to the Lakers, Dončić is looking like himself again — while earning the adoration of the fan base.`\
 https://nytimes.com/athletic/6268686/2025/04/10/luka-doncic-fans-lakers-mavericks-return/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/10/learning/love-of-libraries.html
 **Word of the Day: dormant**\
 `This word has appeared in 277 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/04/10/learning/word-of-the-day-dormant.html
-
-**PSG show the importance of variety after beating Villa with three very different goals**\
-`PSG beat Aston Villa 3-1 on Wednesday night in their Champions League quarter-final first leg`\
-https://nytimes.com/athletic/6268480/2025/04/10/psg-champions-league-aston-villa-analysis/
-
-**'It's not done yet': Why Unai Emery and his players still believe Aston Villa can progress vs PSG**\
-`A third Parisian goal in injury time was a cruel blow but Villa's manager is confident his team can turn it around next week`\
-https://nytimes.com/athletic/6268179/2025/04/10/aston-villa-psg-champions-league-belief/
-
-**Braves, Austin Riley waste big scoring opportunities in loss to Phillies**\
-`"We had the deck stacked in our favor a couple of times and just couldn't pierce a gap, get a big hit," Brian Snitker said of the 4-3 loss.`\
-https://nytimes.com/athletic/6268900/2025/04/10/braves-austin-riley-waste-big-scoring-opportunities-phillies-loss/
 
