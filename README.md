@@ -1,3 +1,7 @@
+**L.A. Woman Is Arrested After Pointing Gun at Officers on Unrelated Manhunt**\
+`Jillian Lauren Shriner, an author who is married to a member of the band Weezer, was charged with attempted murder, the Los Angeles Police Department said.`\
+https://nytimes.com/2025/04/10/us/weezer-scott-shriner-jillian-lauren.html
+
 **Harrison Barnes delivers Warriors potentially catastrophic late-season home loss**\
 `"We just made it a little harder on ourselves," Steph Curry said of the Warriors' hopes of avoiding the Play-In Tournament.`\
 https://nytimes.com/athletic/6269050/2025/04/10/warriors-lose-to-spurs-harrison-barnes/
@@ -22,7 +26,7 @@ https://nytimes.com/2025/04/10/style/cranes-migration-nebraska.html
 
 **In the Bronx, a Battle Over the Future of Jennifer Lopez’s Alma Mater**\
 `The religious order that owns Preston High School says it can no longer operate it. Supporters are appealing to the New York attorney general for help.`\
-https://nytimes.com/2025/04/10/nyregion/in-the-bronx-a-battle-over-the-future-of-jennifer-lopezs-alma-mater.html
+https://nytimes.com/2025/04/10/nyregion/preston-high-school-bronx-jennifer-lopez-catholic.html
 
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6269007/2025/04/10/luka-doncic-mavericks-fans-first
 **Yamal is a superstar at 17. Barca and Flick need to look after him for the run-in**\
 `Yamal shone again for Barcelona against Borussia Dortmund as they took a big step towards the Champions League semi-finals`\
 https://nytimes.com/athletic/6269078/2025/04/10/lamine-yamal-barcelona-champions-league/
-
-**Trump Repeals Biden-Era Limit on Water Flow in Shower Heads**\
-`President Trump, who signed an executive order about the definition of “shower head,” has had a long-running crusade against low water pressure.`\
-https://nytimes.com/2025/04/10/us/politics/trump-showers-water-pressure.html
 
