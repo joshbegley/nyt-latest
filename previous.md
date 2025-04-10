@@ -1,3 +1,11 @@
+**Messi saves Inter Miami from Champions Cup exit with stirring fightback**\
+`In 2017, Lionel Messi, Luis Suarez and Javier Mascherano spearheaded one of Barcelona&#8217;s most thrilling comeback wins.`\
+https://nytimes.com/athletic/6268685/2025/04/09/messi-inter-miami-lafc-concacaf-champions-cup-fightback/
+
+**Eriksson Ek scores 4 goals, Kaprizov nets OT winner in return: 3 takeaways**\
+`In their long-awaited returns, the two Wild stars wasted no time making an impact on Wednesday night in an 8-7 win over San Jose.`\
+https://nytimes.com/athletic/6268639/2025/04/09/wild-sharks-joel-eriksson-ek-kirill-kaprizov/
+
 **Maple Leafs report cards: Matthew Knies hat trick helps Toronto weather the storm**\
 `The Leafs scored twice in the first four minutes and held on against a late Tampa Bay surge for an overtime win.`\
 https://nytimes.com/athletic/6268752/2025/04/09/maple-leafs-report-cards-knies-hat-trick-lightning/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/09/crosswords/daily-puzzle-2025-04-10.html
 **Trump Signs Orders Punishing Those Who Opposed His 2020 Election Lies**\
 `The president targeted two officials from his first administration and an elite law firm as part of his campaign for retribution.`\
 https://nytimes.com/2025/04/09/us/politics/trump-executive-orders-law-firm-krebs.html
-
-**Appeals Court Clears Path for Trump to Resume Firing Probationary Workers**\
-`The U.S. Court of Appeals for the Fourth Circuit sided with the government to block a lower-court ruling that had led to the reinstatement of thousands of federal workers.`\
-https://nytimes.com/2025/04/09/us/politics/trump-federal-workers-firing.html
-
-**Dodger Details: Andy Pages finding his swing, pitching depth isn't going deep**\
-`A starting rotation that led the majors in ERA during the 8-0 start now has real question marks. Meanwhile, hitters' whiffs are surprising.`\
-https://nytimes.com/athletic/6268556/2025/04/09/los-angeles-dodgers-andy-pages-pitching/
 

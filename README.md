@@ -1,3 +1,7 @@
+**Inside Factories in China, a Struggle to Survive Trump’s Tariffs**\
+`Small factories with tiny profit margins have played a central role in China’s international competitiveness. Many could now face disaster.`\
+https://nytimes.com/2025/04/09/business/economy/guangzhou-china-exports-tariffs.html
+
 **Messi saves Inter Miami from Champions Cup exit with stirring fightback**\
 `In 2017, Lionel Messi, Luis Suarez and Javier Mascherano spearheaded one of Barcelona&#8217;s most thrilling comeback wins.`\
 https://nytimes.com/athletic/6268685/2025/04/09/messi-inter-miami-lafc-concacaf-champions-cup-fightback/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/09/business/trump-tariffs-stocks-asia.html
 **‘Just One More Story!’**\
 `Adam Wagner tells us a small tale.`\
 https://nytimes.com/2025/04/09/crosswords/daily-puzzle-2025-04-10.html
-
-**Trump Signs Orders Punishing Those Who Opposed His 2020 Election Lies**\
-`The president targeted two officials from his first administration and an elite law firm as part of his campaign for retribution.`\
-https://nytimes.com/2025/04/09/us/politics/trump-executive-orders-law-firm-krebs.html
 

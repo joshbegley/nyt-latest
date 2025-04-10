@@ -1,3 +1,11 @@
+**Messi saves Inter Miami from Champions Cup exit with stirring fightback**\
+`In 2017, Lionel Messi, Luis Suarez and Javier Mascherano spearheaded one of Barcelona&#8217;s most thrilling comeback wins.`\
+https://nytimes.com/athletic/6268685/2025/04/09/messi-inter-miami-lafc-concacaf-champions-cup-fightback/
+
+**Eriksson Ek scores 4 goals, Kaprizov nets OT winner in return: 3 takeaways**\
+`In their long-awaited returns, the two Wild stars wasted no time making an impact on Wednesday night in an 8-7 win over San Jose.`\
+https://nytimes.com/athletic/6268639/2025/04/09/wild-sharks-joel-eriksson-ek-kirill-kaprizov/
+
 **Maple Leafs report cards: Matthew Knies hat trick helps Toronto weather the storm**\
 `The Leafs scored twice in the first four minutes and held on against a late Tampa Bay surge for an overtime win.`\
 https://nytimes.com/athletic/6268752/2025/04/09/maple-leafs-report-cards-knies-hat-trick-lightning/
