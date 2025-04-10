@@ -1,3 +1,7 @@
+**PSG show the importance of variety after beating Villa with three very different goals**\
+`PSG beat Aston Villa 3-1 on Wednesday night in their Champions League quarter-final first leg`\
+https://nytimes.com/athletic/6268480/2025/04/10/psg-champions-league-aston-villa-analysis/
+
 **'It's not done yet': Why Unai Emery and his players still believe Aston Villa can progress vs PSG**\
 `A third Parisian goal in injury time was a cruel blow but Villa's manager is confident his team can turn it around next week`\
 https://nytimes.com/athletic/6268179/2025/04/10/aston-villa-psg-champions-league-belief/
