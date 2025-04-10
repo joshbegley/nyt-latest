@@ -3,6 +3,15 @@
 `\
 https://nytimes.com/athletic/6269179/2025/04/10/athletic-football-show-shemar-stewart-nfl-draft/
 
+**The Briefing: Tottenham 1 Eintracht Frankfurt 1 - Was this a good result for Postecoglou?**\
+`The big talking points analysed from the Europa League quarter-final first leg`\
+https://nytimes.com/athletic/6264616/2025/04/10/tottenham-eintracht-frankfurt-result-analysis/
+
+**Watch: Encouraging traits? Too stiff? A debate over Shemar Stewart**\
+`"The Athletic Football Show" debates whether the Texas A&M edge rusher should be viewed as a top prospect in this year's draft.
+`\
+https://nytimes.com/athletic/6269179/2025/04/10/athletic-football-show-shemar-stewart-nfl-draft/
+
 **Watch: Encouraging traits? Too stiff? A debate over Shemar Stewart**\
 `"The Athletic Football Show" debates whether the Texas A&M edge rusher should be viewed as a top prospect in this year's draft.
 `\

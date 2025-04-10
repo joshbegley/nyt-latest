@@ -1,3 +1,11 @@
+**Markets ‘Hanging on Every Little Bit of Tariff Talk’**\
+`As global markets tremble over President Trump’s tariff policy, the New York Times reporter Joe Rennison remembers the advice of a mentor: It’s our job to report on a crisis, not to make it worse.`\
+https://nytimes.com/2025/04/10/insider/markets-hanging-on-every-little-bit-of-tariff-talk.html
+
+**Trump Close to Winning Concessions From More Law Firms**\
+`Four or five firms could soon agree to deals that would be unveiled as a package in an escalation of the president’s crackdown on an industry that has drawn his ire.`\
+https://nytimes.com/2025/04/10/us/politics/trump-law-firms.html
+
 **'Toughest player in the league': Why Leafs signed free-agent defenceman Blake Smith**\
 `Toronto continued adding to its prospect pool Thursday, inking Smith to a three-year, entry-level contract beginning next season.`\
 https://nytimes.com/athletic/6270906/2025/04/10/maple-leafs-sign-blake-smith/
@@ -30,12 +38,4 @@ https://nytimes.com/2025/04/10/opinion/education-smart-thinking-reading-tariffs.
 **The Briefing: Tottenham 1 Eintracht Frankfurt 1 - Was this a good result for Postecoglou?**\
 `The big talking points analysed from the Europa League quarter-final first leg`\
 https://nytimes.com/athletic/6264616/2025/04/10/tottenham-eintracht-frankfurt-result-analysis/
-
-**Helicopter Crashes Into Hudson River**\
-`A helicopter crashed into the Hudson River in New York City on Thursday afternoon.`\
-https://nytimes.com/video/nyregion/100000010103945/helicopter-crash-hudson.html
-
-**Purdue puts Ethan Trent, brother of late fan Tyler Trent, on scholarship**\
-`Purdue coach Barry Odom gave Ethan Trent the good news with the team gathered around him Thursday.`\
-https://nytimes.com/athletic/6270883/2025/04/10/purdue-ethan-trent-tyler-trent-scholarship/
 

@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6269179/2025/04/10/athletic-football-show-shemar-st
 `To do something as stupid as Trump’s tariff plan is the result of a lifetime of incuriosity.`\
 https://nytimes.com/2025/04/10/opinion/education-smart-thinking-reading-tariffs.html
 
-**The Briefing: Tottenham 1 Eintracht 1 - Was this a good result for Postecoglou?**\
+**The Briefing: Tottenham 1 Eintracht Frankfurt 1 - Was this a good result for Postecoglou?**\
 `The big talking points analysed from the Europa League quarter-final first leg`\
 https://nytimes.com/athletic/6264616/2025/04/10/tottenham-eintracht-frankfurt-result-analysis/
 
