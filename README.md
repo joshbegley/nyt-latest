@@ -1,3 +1,15 @@
+**What Do You Tell a College Student Graduating Into This America?**\
+`We owe the next generation some measure of solace.`\
+https://nytimes.com/2025/04/10/opinion/college-commencement-students-graduation.html
+
+**The Windup: You have to see this chaotic play**\
+`Welcome to The Windup, The Athletic's MLB newsletter. `\
+https://nytimes.com/athletic/6269084/2025/04/10/cardinals-pirates-blooper-the-windup/
+
+**Breakouts or Mirages? Evaluating hot and cold fantasy baseball starts**\
+`Owen Poindexter looks around the league for players with unexpected hot or cold starts and evaluates what's on the horizon for them. `\
+https://nytimes.com/athletic/6267763/2025/04/10/fantasy-baseball-breakouts-mirages-hot-cold-starts/
+
 **Medicare Bleeds Billions on Pricey Bandages, and Doctors Get a Cut**\
 `Medicare spending on “skin substitutes” made of dried placenta has soared as doctors pocket lucrative discounts from sellers.`\
 https://nytimes.com/2025/04/10/health/skin-substitutes-medicare-costs.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/10/arts/jon-hamm-your-friends-and-neighbors.html
 **Newsmax Made Defamatory Statements About Dominion, Judge Says**\
 `The defamation case, over falsehoods spread about the 2020 election, is headed to a jury this month.`\
 https://nytimes.com/2025/04/10/business/media/newsmax-dominion-defamation.html
-
-**Dean Huijsen interest? Liam Delap's clause? — Ask Ornstein**\
-`David has pulled together some of his favourite questions and answers from his weekly Q&A`\
-https://nytimes.com/athletic/6269833/2025/04/10/liverpool-transfer-latest-dean-huijsen-liam-delap-manchester-united/
-
-**House Passes G.O.P. Budget After Conservative Revolt Collapses**\
-`A critical bloc of fiscal hawks dropped its opposition after a pledge from the top Senate Republican that his chamber would embrace far deeper cuts than the measure would require.`\
-https://nytimes.com/2025/04/10/us/politics/house-budget-vote-trump-republicans.html
-
-**Trump’s Tariff Reversal Calms Some G.O.P. Nerves, but Questions Linger**\
-`Most Republicans welcomed the unexpected three-month pause on several of President Trump’s tariffs, but some want more clarity about the president’s end game and more power for Congress over trade.`\
-https://nytimes.com/2025/04/10/us/politics/trump-tariffs-republicans-congress.html
 
