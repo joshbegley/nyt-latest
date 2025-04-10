@@ -1,3 +1,7 @@
+**Braves, Austin Riley waste big scoring opportunities in loss to Phillies**\
+`"We had the deck stacked in our favor a couple of times and just couldn't pierce a gap, get a big hit," Brian Snitker said of the 4-3 loss.`\
+https://nytimes.com/athletic/6268900/2025/04/10/braves-austin-riley-waste-big-scoring-opportunities-phillies-loss/
+
 **Thursday Briefing**\
 `A retreat on President Trump’s tariffs.`\
 https://nytimes.com/2025/04/10/briefing/trump-tariffs-syria.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6268073/2025/04/10/phoenix-suns-miss-nba-postseason
 **End of Matheus Cunha's ban brings a selection dilemma for Wolves. Do they need him?**\
 `Wolves' best player is back from his latest ban. Remarkably, Vitor Pereira now has to decide whether or not to pick him against Spurs`\
 https://nytimes.com/athletic/6264411/2025/04/10/matheus-cunha-wolves-return/
-
-**Kim Shin-jo, a Failed North Korean Assassin, Dies as a Pastor in the South**\
-`Kim Shin-jo famously said the mission of a hit squad sent by Pyongyang in 1968 was to “slit the throat” of the then South Korean dictator Park Chung-hee.`\
-https://nytimes.com/2025/04/10/world/asia/kim-shin-jo-dead.html
 

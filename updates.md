@@ -1,3 +1,7 @@
+**Braves, Austin Riley waste big scoring opportunities in loss to Phillies**\
+`"We had the deck stacked in our favor a couple of times and just couldn't pierce a gap, get a big hit," Brian Snitker said of the 4-3 loss.`\
+https://nytimes.com/athletic/6268900/2025/04/10/braves-austin-riley-waste-big-scoring-opportunities-phillies-loss/
+
 **Thursday Briefing**\
 `A retreat on President Trump’s tariffs.`\
 https://nytimes.com/2025/04/10/briefing/trump-tariffs-syria.html
