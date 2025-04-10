@@ -1,3 +1,7 @@
+**Lyon's Fonseca says he is being made an example of with 'unbelievable' ban**\
+`Fonseca will be in the dugout for his side’s Europa League clash with Man Utd due to the sanction only applying in French competitions.`\
+https://nytimes.com/athletic/6269239/2025/04/10/lyon-manchester-united-fonseca-ban/
+
 **Live From London, It’s Saturday Night!**\
 `A British version of the television sketch comedy program “Saturday Night Live” is set to debut in 2026.`\
 https://nytimes.com/2025/04/10/arts/television/saturday-night-live-snl-london-uk.html
