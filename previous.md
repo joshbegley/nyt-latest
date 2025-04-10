@@ -1,6 +1,10 @@
+**‘Just One More Story!’**\
+`Adam Wagner tells us a small tale.`\
+https://nytimes.com/2025/04/09/crosswords/daily-puzzle-2025-04-10.html
+
 **Trump Signs Orders Punishing Those Who Opposed His 2020 Election Lies**\
 `The president targeted two officials from his first administration and an elite law firm as part of his campaign for retribution.`\
-https://nytimes.com/live/2025/04/09/us/president-trump/trump-executive-orders-law-firm-krebs
+https://nytimes.com/2025/04/09/us/politics/trump-executive-orders-law-firm-krebs.html
 
 **Appeals Court Clears Path for Trump to Resume Firing Probationary Workers**\
 `The U.S. Court of Appeals for the Fourth Circuit sided with the government to block a lower-court ruling that had led to the reinstatement of thousands of federal workers.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/09/us/politics/house-vote-federal-judges-trump.html
 **De Bruyne discovery rights issue highlights puzzling MLS rule**\
 `The Manchester City star's potential switch to Inter Miami has sparked discussion about MLS' mysterious discovery rights mechanism.`\
 https://nytimes.com/athletic/6268354/2025/04/09/inter-miami-de-bruyne-discovery-rights-manchester-city/
-
-**Senate Panel Demands Information About Gaza Protest Group at Columbia**\
-`Lawmakers want the university to turn over all its records about Students for Justice in Palestine. At Northwestern University, two professors sued over a separate request.`\
-https://nytimes.com/2025/04/09/nyregion/columbia-northwestern-gaza-congress.html
 

@@ -1,3 +1,11 @@
+**‘Just One More Story!’**\
+`Adam Wagner tells us a small tale.`\
+https://nytimes.com/2025/04/09/crosswords/daily-puzzle-2025-04-10.html
+
+**Trump Signs Orders Punishing Those Who Opposed His 2020 Election Lies**\
+`The president targeted two officials from his first administration and an elite law firm as part of his campaign for retribution.`\
+https://nytimes.com/2025/04/09/us/politics/trump-executive-orders-law-firm-krebs.html
+
 **Trump Signs Orders Punishing Those Who Opposed His 2020 Election Lies**\
 `The president targeted two officials from his first administration and an elite law firm as part of his campaign for retribution.`\
 https://nytimes.com/live/2025/04/09/us/president-trump/trump-executive-orders-law-firm-krebs
