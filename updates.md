@@ -1,11 +1,3 @@
-**Senate Panel Demands Information About Gaza Protest Group at Columbia**\
-`Lawmakers want the university to turn over all its records about Students for Justice in Palestine. At Northwestern University, two professors sued over a separate request.`\
-https://nytimes.com/2025/04/09/nyregion/columbia-northwestern-gaza-congress.html
-
-**Trump Pauses “Reciprocal” Tariffs for Most Countries**\
-`President Trump decided to pause his “reciprocal” tariffs on most countries, excluding China, just hours after they went into effect.`\
-https://nytimes.com/video/us/politics/100000010101380/trump-tariff-pause-china.html
-
 **Tracy Schwarz, Mainstay of the New Lost City Ramblers, Dies at 86**\
 `He was the last surviving member of a retro-minded string trio whose celebration of prewar songs of the rural South put them at the heart of the folk revival.`\
 https://nytimes.com/2025/04/09/arts/music/tracy-schwarz-dead.html
@@ -37,4 +29,12 @@ https://nytimes.com/athletic/6268275/2025/04/09/pistons-unique-opportunity-knick
 **Luka Dončić returns to Dallas as Laker; Jason Kidd compares trade to Babe Ruth**\
 `Lakers coach JJ Redick said his message to Dončić would be that his teammates and coaches “got your back.” `\
 https://nytimes.com/athletic/6268272/2025/04/09/luka-doncic-returns-dallas-babe-ruth/
+
+**Georgia Man Sentenced for a Cache of Taxidermy Birds and Rare Eggs**\
+`John Waldrop, an orthopedic surgeon, amassed a vast collection of ornithological specimens as part of what he called an “obsessive hobby.” He’s now into wood carvings.`\
+https://nytimes.com/2025/04/09/nyregion/brooklyn-taxidermy-sentence-roseate-spoonbill.html
+
+**What Trump Just Cost America**\
+`Do you think these former close U.S. allies are ever going to trust getting into a trench with this administration again?`\
+https://nytimes.com/2025/04/09/opinion/trump-tariffs-pause-china.html
 
