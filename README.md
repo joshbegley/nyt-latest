@@ -1,3 +1,7 @@
+**Luigi Mangione Death Penalty Bid May Pit Prosecutors Against Each Other**\
+`State and federal prosecutors have both accused Mr. Mangione of killing a health insurance executive. Attorney General Pam Bondi is pushing aggressively for capital punishment.`\
+https://nytimes.com/2025/04/10/nyregion/bondi-federal-death-penalty-mangione.html
+
 **Prince William's soccer punditry assessed: 'High press' chat and earnest nodding, but a way-off prediction**\
 `The future king of the UK tried his hand at sports commentary as his team continued their march in Europe`\
 https://nytimes.com/athletic/6269449/2025/04/10/prince-william-aston-villa-tnt-punditry/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6269165/2025/04/10/oilers-connor-mcdavid-return/
 **Ask Ornstein Q&A: Our football insider answers your questions**\
 `Here is your opportunity to ask David Ornstein anything you want about the world of football`\
 https://nytimes.com/athletic/6269135/2025/04/10/ask-ornstein-qa-our-football-insider-answers-your-questions-24/
-
-**Nottingham Forest set for late calls on Wood, Elanga, Awoniyi availability**\
-`Nuno Espirito Santo says Nottingham Forest are hopeful the three players can return against Everton on Saturday.`\
-https://nytimes.com/athletic/6269665/2025/04/10/wood-elanga-awoniyi-nottingham-forest-injury-update/
 
