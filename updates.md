@@ -1,3 +1,15 @@
+**Luigi Mangione Death Penalty Bid May Pit Prosecutors Against Each Other**\
+`State and federal prosecutors have both accused Mr. Mangione of killing a health insurance executive. Attorney General Pam Bondi is pushing aggressively for capital punishment.`\
+https://nytimes.com/2025/04/10/nyregion/bondi-federal-death-penalty-mangione.html
+
+**Prince William's soccer punditry assessed: 'High press' chat and earnest nodding, but a way-off prediction**\
+`The future king of the UK tried his hand at sports commentary as his team continued their march in Europe`\
+https://nytimes.com/athletic/6269449/2025/04/10/prince-william-aston-villa-tnt-punditry/
+
+**Inside Penn State hockey's improbable rise and first trip to the Frozen Four**\
+`Just 14 years ago, Penn State hadn't had a varsity hockey team since 1947. On Thursday, the Nittany Lions will play in the Frozen Four.`\
+https://nytimes.com/athletic/6267605/2025/04/10/penn-state-hockey-frozen-four/
+
 **A look at Ivan Demidov’s game beyond the highlights as his Canadiens debut awaits**\
 `Demidov's six playoff games with SKA Saint Petersburg provide a window to his NHL-readiness and what he still needs to learn.`\
 https://nytimes.com/athletic/6269116/2025/04/10/ivan-demidov-canadiens-highlights/
