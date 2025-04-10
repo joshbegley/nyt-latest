@@ -1,3 +1,7 @@
+**For U.S. Apparel Manufacturers, Chaotic Tariff Policy Isn’t Much Help**\
+`Even companies that make clothing in America aren’t feeling great about stiff duties on their overseas competition.`\
+https://nytimes.com/2025/04/10/business/economy/tariffs-apparel-american-made.html
+
 **NWSL Denver hires Jen Millet as its first president**\
 `"People might say I'm crazy to do back-to-back builds," Millet told The Athletic on Wednesday. "But I actually love this kind of work."`\
 https://nytimes.com/athletic/6270250/2025/04/10/nwsl-denver-jen-millet/

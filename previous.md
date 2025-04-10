@@ -1,3 +1,7 @@
+**For U.S. Apparel Manufacturers, Chaotic Tariff Policy Isn’t Much Help**\
+`Even companies that make clothing in America aren’t feeling great about stiff duties on their overseas competition.`\
+https://nytimes.com/2025/04/10/business/economy/tariffs-apparel-american-made.html
+
 **NWSL Denver hires Jen Millet as its first president**\
 `"People might say I'm crazy to do back-to-back builds," Millet told The Athletic on Wednesday. "But I actually love this kind of work."`\
 https://nytimes.com/athletic/6270250/2025/04/10/nwsl-denver-jen-millet/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/04/10/us/trump-news/heres-the-budget-math-that-wor
 **How to watch the Houston Astros in 2025: Schedule, broadcast info and blackout rules**\
 `Baseball is back in Crush City — or Clutch City — and here is your explainer on RSNs, streaming and blackout rules.`\
 https://nytimes.com/athletic/6267469/2025/04/10/houston-astros-2025-how-to-watch/
-
-**On-Again, Off-Again Tariffs and Their Toll on Travelers**\
-`The travel industry doesn’t know what to expect from whipsawing U.S. policies. But concerns are hitting the bottom line, which could mean higher prices, and more confusion, for tourists.`\
-https://nytimes.com/2025/04/10/travel/tariffs-and-the-travel-industry.html
 
