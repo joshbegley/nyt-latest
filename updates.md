@@ -1,3 +1,15 @@
+**House Passes G.O.P. Budget After Conservative Revolt Collapses**\
+`A pledge from the top Senate Republican that his chamber would embrace far deeper cuts than the measure would require persuaded a critical bloc of fiscal hawks to drop their opposition.`\
+https://nytimes.com/2025/04/10/us/politics/house-budget-vote-trump-republicans.html
+
+**Trump’s Tariff Reversal Calms Some G.O.P. Nerves, but Questions Linger**\
+`Most Republicans welcomed the unexpected three-month pause on several of President Trump’s tariffs, but some want more clarity about the president’s end game and more power for Congress over trade.`\
+https://nytimes.com/2025/04/10/us/politics/trump-tariffs-republicans-congress.html
+
+**Canucks offseason to-do list: Extending Tocchet, the Pettersson decision, more**\
+`The Canucks should feel a lot of pressure to get back to competing, and ideally contending, next season.`\
+https://nytimes.com/athletic/6269147/2025/04/10/canucks-rick-tocchet-elias-pettersson-standings/
+
 **Hania Rani’s Music Is Tranquil. Please Don’t Call It ‘Soothing.’**\
 `The Polish musician is a mainstay of streaming playlists with names like “Calm Vibes.” But she bristles at the notion that her music is therapeutic.`\
 https://nytimes.com/2025/04/10/arts/music/hania-rani.html

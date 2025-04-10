@@ -1,3 +1,15 @@
+**House Passes G.O.P. Budget After Conservative Revolt Collapses**\
+`A pledge from the top Senate Republican that his chamber would embrace far deeper cuts than the measure would require persuaded a critical bloc of fiscal hawks to drop their opposition.`\
+https://nytimes.com/2025/04/10/us/politics/house-budget-vote-trump-republicans.html
+
+**Trump’s Tariff Reversal Calms Some G.O.P. Nerves, but Questions Linger**\
+`Most Republicans welcomed the unexpected three-month pause on several of President Trump’s tariffs, but some want more clarity about the president’s end game and more power for Congress over trade.`\
+https://nytimes.com/2025/04/10/us/politics/trump-tariffs-republicans-congress.html
+
+**Canucks offseason to-do list: Extending Tocchet, the Pettersson decision, more**\
+`The Canucks should feel a lot of pressure to get back to competing, and ideally contending, next season.`\
+https://nytimes.com/athletic/6269147/2025/04/10/canucks-rick-tocchet-elias-pettersson-standings/
+
 **Hania Rani’s Music Is Tranquil. Please Don’t Call It ‘Soothing.’**\
 `The Polish musician is a mainstay of streaming playlists with names like “Calm Vibes.” But she bristles at the notion that her music is therapeutic.`\
 https://nytimes.com/2025/04/10/arts/music/hania-rani.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6269593/2025/04/10/luka-doncic-lakers-mavericks-ret
 **Luigi Mangione Death Penalty Bid May Pit Prosecutors Against Each Other**\
 `State and federal prosecutors have both accused Mr. Mangione of killing a health insurance executive. Attorney General Pam Bondi is pushing aggressively for capital punishment.`\
 https://nytimes.com/2025/04/10/nyregion/bondi-federal-death-penalty-mangione.html
-
-**Prince William's soccer punditry assessed: 'High press' chat and earnest nodding, but a way-off prediction**\
-`The future king of the UK tried his hand at sports commentary as his team played in Europe`\
-https://nytimes.com/athletic/6269449/2025/04/10/prince-william-aston-villa-tnt-punditry/
-
-**Inside Penn State hockey's improbable rise and first trip to the Frozen Four**\
-`Just 14 years ago, Penn State hadn't had a varsity hockey team since 1947. On Thursday, the Nittany Lions will play in the Frozen Four.`\
-https://nytimes.com/athletic/6267605/2025/04/10/penn-state-hockey-frozen-four/
-
-**A look at Ivan Demidov’s game beyond the highlights as his Canadiens debut awaits**\
-`Demidov's six playoff games with SKA Saint Petersburg provide a window to his NHL-readiness and what he still needs to learn.`\
-https://nytimes.com/athletic/6269116/2025/04/10/ivan-demidov-canadiens-highlights/
 
