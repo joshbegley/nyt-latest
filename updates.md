@@ -1,3 +1,23 @@
+**Why Wasn’t Anyone Traumatized in the ‘White Lotus’ Finale?**\
+`After a violent climax to the third season of the hit HBO show, everyone seems A-OK. Was it a Hollywood ending, or a natural trauma response?`\
+https://nytimes.com/2025/04/10/arts/television/white-lotus-season-3-trauma.html
+
+**Sam Rosen, John Davidson reunite for one final Rangers broadcast: 'It's like a family reunion'**\
+`For 21 years, Rosen and Davidson were the voices of the Rangers. They did one final game before Rosen retires at the end of his 40th season.`\
+https://nytimes.com/athletic/6268749/2025/04/10/rangers-sam-rosen-john-davidson-nhl-broadcast/
+
+**Rio SailGP race weekend cancelled after wingsail defect found in catamarans**\
+`The Rio Grand Prix was set to take place on May 3-4 and would have been the first time for the Championship to have been held in Brazil.`\
+https://nytimes.com/athletic/6269361/2025/04/10/rio-sailgp-cancelled-wingsail-defect/
+
+**Cheaper iPhones and Pixels Are Here. They Are Pretty Good.**\
+`With tariffs threatening to drive up the costs of most things, the new entry-level phones from Apple and Google present a timely opportunity to save some bucks.`\
+https://nytimes.com/2025/04/10/technology/personaltech/iphone-16e-pixel-9a-cheaper-phone-models.html
+
+**Egg Prices Continued to Rise in March**\
+`Egg prices have reached record highs as bird flu outbreaks have hit poultry farms and forced producers to cull tens of millions of hens.`\
+https://nytimes.com/2025/04/10/us/politics/egg-prices-march.html
+
 **Egg Prices Continued to Rise in March**\
 `Egg prices have reached record highs as bird flu outbreaks have hit poultry farms and forced producers to cull tens of millions of hens.`\
 https://nytimes.com/2025/04/10/us/politics/egg-prices-continued-to-rise-in-march.html
