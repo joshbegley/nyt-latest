@@ -1,3 +1,11 @@
+**From ‘Be Cool!’ to ‘Getting Yippy’: Inside Trump’s Reversal on Tariffs**\
+`Economic turmoil, particularly a rapid rise in government bond yields, caused President Trump to reverse course on the steep levies.`\
+https://nytimes.com/2025/04/09/us/politics/trump-tariff-pause-be-cool.html
+
+**Flight Ban on Parrots Leaves Bronx Grandmother in Limbo for 4 Days**\
+`Plucky, an African gray parrot, accompanied its owner, Maria Fraterrigo, on a Frontier Airlines flight to Puerto Rico in January. But a gate agent would not let it on board the return flight.`\
+https://nytimes.com/2025/04/09/us/nyc-woman-puerto-rico-parrot-airline.html
+
 **Tyreek Hill not charged after police respond to domestic disturbance**\
 `Police responded to a call on Monday and the case has since been closed by the Sunny Isles Beach Police Department.`\
 https://nytimes.com/athletic/6268078/2025/04/09/tyreek-hill-domestic-disturbance-miami-dolphins/
