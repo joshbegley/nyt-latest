@@ -1,5 +1,5 @@
 **Messi saves Inter Miami from Champions Cup exit with stirring fightback**\
-`In 2017, Lionel Messi, Luis Suarez and Javier Mascherano spearheaded one of Barcelona’s most thrilling comeback wins.`\
+`In 2017, Lionel Messi, Luis Suarez and Javier Mascherano spearheaded one of Barcelona&#8217;s most thrilling comeback wins.`\
 https://nytimes.com/athletic/6268685/2025/04/09/messi-inter-miami-lafc-concacaf-champions-cup-fightback/
 
 **Eriksson Ek scores 4 goals, Kaprizov nets OT winner in return: 3 takeaways**\
