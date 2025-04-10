@@ -1,3 +1,7 @@
+**Trump’s Tariff Reversal: Confusion and Relief**\
+`Readers weigh in on the effects of President Trump’s moves on tariffs. Also: The use of preferred pronouns.`\
+https://nytimes.com/2025/04/10/opinion/trump-tariffs-reversal.html
+
 **Neutrinos Are Shrinking, and That’s a Good Thing for Physics**\
 `A new estimate of the ghostly particle’s maximum possible mass brings physicists a tad closer to understanding the universe.`\
 https://nytimes.com/2025/04/10/science/neutrinos-mass-physics.html
