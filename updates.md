@@ -1,3 +1,8 @@
+**Watch: Encouraging traits? Too stiff? A debate over Shemar Stewart**\
+`"The Athletic Football Show" debates whether the Texas A&M edge rusher should be viewed as a top prospect in this year's draft.
+`\
+https://nytimes.com/athletic/6269179/2025/04/10/athletic-football-show-shemar-stewart-nfl-draft/
+
 **The latest on MLS's potential change to a European calendar**\
 `MLS's owners continue to discuss changes that would radically alter the league's outlook.`\
 https://nytimes.com/athletic/6269759/2025/04/10/mls-calendar-change-europe-garber-world-cup/
