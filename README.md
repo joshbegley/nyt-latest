@@ -3,7 +3,7 @@
 https://nytimes.com/2025/04/10/arts/television/her-majesty-su-majestad-prime.html
 
 **Live Updates: Helicopter Crashes Into Hudson River Near Manhattan**\
-`Five people have been pulled from the water, according to two people briefed on the rescue efforts. Their condition was not yet known.`\
+`Five people have been pulled from the water, according to two people briefed on the rescue efforts. A sixth person, believed to be the pilot, was still unaccounted for.`\
 https://nytimes.com/live/2025/04/10/nyregion/hudson-river-helicopter-crash
 
 **Trump May Seek Judicial Oversight of Columbia, Potentially for Years**\
