@@ -1,3 +1,11 @@
+**Greenberg: Ready for Heat-Bulls, Part 3? The Play-In Tournament beckons for both teams**\
+`Yes, it would be their third straight meeting in the Play-In Tournament, but the first time the game would be in Chicago.`\
+https://nytimes.com/athletic/6268866/2025/04/10/bulls-heat-play-in-tournament/
+
+**Suns miss postseason: How NBA's most expensive team struggled so badly**\
+`Boasting the NBA's most expensive roster, Phoenix began the season with championship hopes and a new coach.`\
+https://nytimes.com/athletic/6268073/2025/04/10/phoenix-suns-miss-nba-postseason/
+
 **End of Matheus Cunha's ban brings a selection dilemma for Wolves. Do they need him?**\
 `Wolves' best player is back from his latest ban. Remarkably, Vitor Pereira now has to decide whether or not to pick him against Spurs`\
 https://nytimes.com/athletic/6264411/2025/04/10/matheus-cunha-wolves-return/
