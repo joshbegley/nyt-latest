@@ -1,3 +1,11 @@
+**New York City Council Approves Bill to Build More Public Bathrooms**\
+`The law will require the city to double its number of public restrooms by 2035.`\
+https://nytimes.com/2025/04/10/nyregion/nyc-bill-public-bathrooms.html
+
+**Aaron Ekblad resumes team activities with Panthers: How the NHL determined his return date**\
+`Ekblad was supended for 20 games suspension for violating the NHL/NHLPA Performance Enhancing Substances Program.`\
+https://nytimes.com/athletic/6270838/2025/04/10/aaron-ekblad-panthers-suspension-return/
+
 **Arch Manning's patience pays off with his chance to be Texas' starting QB**\
 `College football’s most famous quarterback sounds confident in his decision and excited about what’s to come.`\
 https://nytimes.com/athletic/6270783/2025/04/10/arch-manning-texas-football-2025/
