@@ -1,3 +1,7 @@
+**End of Matheus Cunha's ban brings a selection dilemma for Wolves. Do they need him?**\
+`Wolves' best player is back from his latest ban. Remarkably, Vitor Pereira now has to decide whether or not to pick him against Spurs`\
+https://nytimes.com/athletic/6264411/2025/04/10/matheus-cunha-wolves-return/
+
 **Kim Shin-jo, a Failed North Korean Assassin, Dies as a Pastor in the South**\
 `Kim Shin-jo famously said the mission of a hit squad sent by Pyongyang in 1968 was to “slit the throat” of the then South Korean dictator Park Chung-hee.`\
 https://nytimes.com/2025/04/10/world/asia/kim-shin-jo-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6267419/2025/04/10/paulo-fonseca-ban-manchester-uni
 **How Arsenal’s manager, players and supporters delivered the Emirates Stadium's greatest night (so far)**\
 `Since Mikel Arteta took over, the Emirates has begun to feel increasingly like home. Against Real Madrid, it felt like a fortress`\
 https://nytimes.com/athletic/6267212/2025/04/10/arsenal-real-madrid-emirates-stadium-greatest-night/
-
-**Tom Brady and Birmingham City can lift the EFL Trophy on Sunday. But what is it?**\
-`One of English football's less well-known prizes is up for grabs at Wembley on Sunday `\
-https://nytimes.com/athletic/6160925/2025/04/10/efl-trophy-explainer-birmingham-tom-brady/
 
