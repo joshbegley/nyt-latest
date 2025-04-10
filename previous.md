@@ -1,3 +1,15 @@
+**Death Toll in Night Club Roof Collapse Tragedy Passes 200**\
+`Authorities in the Dominican Republic ended their search for bodies trapped in a nightclub, where a roof collapsed during a Rubby Pérez concert, killing more than 220 people.`\
+https://nytimes.com/video/world/americas/100000010103518/dominican-repubulic-club-collapse.html
+
+**2030 World Cup: South America calls for expanded 64-team tournament**\
+`UEFA president Aleksander Ceferin dismissed the proposal as a "bad idea" earlier in April after it was raised at a FIFA Council meeting.`\
+https://nytimes.com/athletic/6270572/2025/04/10/2030-world-cup-64-team-expansion/
+
+**When His Law Firm Caved to Trump, He Quit**\
+`“It was a pivotal moment in my life — maybe just a pivotal as coming to the United States in the first place,” a former associate at Skadden said in an interview with “The Daily” podcast.`\
+https://nytimes.com/2025/04/10/podcasts/the-daily/trump-law-firms-skadden.html
+
 **House Votes to Require Proof of Citizenship in Federal Elections**\
 `Conservatives have long argued for stronger laws to combat voter fraud, something that election experts say is exceedingly rare.`\
 https://nytimes.com/2025/04/10/us/politics/house-citizenship-elections.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/10/us/congress-johnson-calendar.html
 **Chip Roy Says Promise of Deep Entitlement Cuts Won His Vote**\
 `The Texas Republican, a holdout on the plan until the end, said commitments from President Trump and G.O.P. senators to pursue deeper spending cuts persuaded him to vote yes.`\
 https://nytimes.com/2025/04/10/us/politics/chip-roy-says-promise-of-deep-entitlement-cuts-won-his-vote.html
-
-**The Briefing: Legia Warsaw 0 Chelsea 3 - George's first goal, Nkunku falters but semi-finals in sight**\
-`Liam Twomey breaks down the main talking points from Chelsea's 3-0 win over Legia Warsaw in the Conference League quarter-finals`\
-https://nytimes.com/athletic/6264499/2025/04/10/legia-warsaw-0-chelsea-3-george-madeueke-nkunku/
-
-**If You See This Creepy Fish, Cut Its Head Off**\
-`The invasive northern snakehead, which has recently been appearing in Missouri and other states, must be eradicated, officials say.`\
-https://nytimes.com/2025/04/10/us/snakehead-fish-missouri.html
-
-**Can Nigeria Help Save the Pangolins Amid a Global Wildlife Crime Crisis?**\
-`The country has been known as a hub for the trade in illegal wildlife. But it has been stepping up enforcement as concerns grow about the depletion of certain species and the growing role of international crime groups in animal trafficking.`\
-https://nytimes.com/2025/04/10/world/africa/pangolins-wildlife-trafficking-nigeria.html
 

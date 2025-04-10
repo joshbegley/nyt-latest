@@ -1,3 +1,15 @@
+**Death Toll in Night Club Roof Collapse Tragedy Passes 200**\
+`Authorities in the Dominican Republic ended their search for bodies trapped in a nightclub, where a roof collapsed during a Rubby Pérez concert, killing more than 220 people.`\
+https://nytimes.com/video/world/americas/100000010103518/dominican-repubulic-club-collapse.html
+
+**2030 World Cup: South America calls for expanded 64-team tournament**\
+`UEFA president Aleksander Ceferin dismissed the proposal as a "bad idea" earlier in April after it was raised at a FIFA Council meeting.`\
+https://nytimes.com/athletic/6270572/2025/04/10/2030-world-cup-64-team-expansion/
+
+**When His Law Firm Caved to Trump, He Quit**\
+`“It was a pivotal moment in my life — maybe just a pivotal as coming to the United States in the first place,” a former associate at Skadden said in an interview with “The Daily” podcast.`\
+https://nytimes.com/2025/04/10/podcasts/the-daily/trump-law-firms-skadden.html
+
 **House Votes to Require Proof of Citizenship in Federal Elections**\
 `Conservatives have long argued for stronger laws to combat voter fraud, something that election experts say is exceedingly rare.`\
 https://nytimes.com/2025/04/10/us/politics/house-citizenship-elections.html
