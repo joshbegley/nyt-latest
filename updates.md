@@ -1,3 +1,7 @@
+**Trump Signs Orders Punishing Those Who Opposed His 2020 Election Lies**\
+`The president targeted two officials from his first administration and an elite law firm as part of his campaign for retribution.`\
+https://nytimes.com/live/2025/04/09/us/president-trump/trump-executive-orders-law-firm-krebs
+
 **Appeals Court Clears Path for Trump to Resume Firing Probationary Workers**\
 `The U.S. Court of Appeals for the Fourth Circuit sided with the government to block a lower-court ruling that had led to the reinstatement of thousands of federal workers.`\
 https://nytimes.com/2025/04/09/us/politics/trump-federal-workers-firing.html
