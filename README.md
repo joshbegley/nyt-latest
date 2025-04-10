@@ -1,3 +1,27 @@
+**Colts release kicker Matt Gay, turn to Spencer Shrader**\
+`Gay failed to live up to expectations in Indianapolis. `\
+https://nytimes.com/athletic/6270389/2025/04/10/colts-matt-gay-released-spencer-shrader/
+
+**Police Seek Man Who They Say Violated a Corpse on an R Train**\
+`New York’s subways have been the subject of debate, with politicians using them to paint the city as out of control and dangerous to residents and visitors.`\
+https://nytimes.com/2025/04/10/nyregion/nyc-subway-corpse-sex.html
+
+**Jokić had heads up before Malone firing, says it 'changed something' in Nuggets**\
+`Jokić said he found out about the firings "a little bit before everybody," but declined to further elaborate on his talk with Josh Kroenke.`\
+https://nytimes.com/athletic/6269779/2025/04/10/nikola-jokic-michael-malone-nuggets-comments/
+
+**After Reviving Democrats in a Battleground State, He’s Moving On**\
+`Ben Wikler, who supercharged fund-raising as the leader of the Wisconsin Democratic Party, is stepping down — and weighing a run for office.`\
+https://nytimes.com/2025/04/10/us/politics/ben-wikler-wisconsin-democrats.html
+
+**Leo Beenhakker, legendary former Real Madrid manager, dies at 82**\
+`Beenhakker's coaching career spanned over five decades and included title-winning stints at Real Madrid alongside Ajax and Feyenoord.`\
+https://nytimes.com/athletic/6270475/2025/04/10/leo-beenhakker-dead-real-madrid-manager/
+
+**Deepening Trade Fight With China Poses New Threat to U.S. Farmers**\
+`Soybean producers warn that farms could go under as the Trump administration hits China with new tariffs of 145 percent.`\
+https://nytimes.com/2025/04/10/business/economy/trump-tariffs-china-farmers.html
+
 **Trump’s Tariff Reversal: Confusion and Relief**\
 `Readers weigh in on the effects of President Trump’s moves on tariffs. Also: The use of preferred pronouns.`\
 https://nytimes.com/2025/04/10/opinion/trump-tariffs-reversal.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/04/10/climate/salmon-anti-anxiety-drugs.html
 **With a Jawbone, Scientists Expand the Ancient Range of a Mysterious Human Relative**\
 `A bone discovered in Taiwan turns out to have belonged to a Denisovan, a lineage previously identified only thousands of miles away.`\
 https://nytimes.com/2025/04/10/science/archaeology-denisovan-taiwan.html
-
-**Turkey and Israel Aim to Avoid Clashes in Syria as Tensions Rise**\
-`The two sides have started talks to prevent conflicts between their troops in Syria, amid a growing rivalry for influence in the region.`\
-https://nytimes.com/2025/04/10/world/middleeast/syria-turkey-israel-talks.html
-
-**N.Y.P.D. to Deploy Teams to Fight Minor Crimes, Touching Off Skepticism**\
-`The new Quality of Life division will investigate things like homeless encampments and public urination. Critics say the program is a license to harass the poor.`\
-https://nytimes.com/2025/04/10/nyregion/nypd-quality-of-life-teams.html
-
-**Cabot Creamery Butter Is Recalled Over Fecal Contamination Risk**\
-`The company said it was voluntarily recalling 189 cases of its eight-ounce, sea-salted Extra Creamy Premium Butter after it found elevated levels of coliform bacteria.`\
-https://nytimes.com/2025/04/10/business/cabot-creamery-butter-recall.html
-
-**Top 5 phrases TV broadcasters should avoid while covering the Masters**\
-`There are no written rules, but producers and on-air talent know what Augusta National’s expectations are.`\
-https://nytimes.com/athletic/6270359/2025/04/10/top-5-phrases-tv-broadcasters-shouldnt-say-while-covering-the-masters/
-
-**Nintendo Switch Game Console Release Is Whipsawed by Tariff Threats**\
-`The company moved most of its manufacturing to Vietnam from China to avoid tariffs. But the unpredictability of President Trump’s plans have thrown Nintendo for a loop.`\
-https://nytimes.com/2025/04/10/technology/nintendo-switch-tariffs-trump.html
-
-**Secret Tunnels, Bunkers and Arsenals: The ‘Panic Industry’ Is Booming**\
-`Fortifying the American home has become big business, selling an endless supply of paranoia.`\
-https://nytimes.com/interactive/2025/04/10/magazine/bunkers-prepping.html
 
