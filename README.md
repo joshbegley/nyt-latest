@@ -1,3 +1,7 @@
+**Billie Jean King Cup Finals in Shenzhen, China moves to September**\
+`The event was previously held at the end of the tennis season in November, to align with the Davis Cup.`\
+https://nytimes.com/athletic/6269234/2025/04/10/billie-jean-king-cup-finals-2025-dates-venue/
+
 **Here’s the latest.**\
 `(No description)`\
 https://nytimes.com/live/2025/04/10/business/trump-tariffs-stocks/heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6268291/2025/04/10/baltimore-ravens-nfl-draft-the-b
 **The New York Times International Edition in Print for Friday, April 11, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/04/10/todays-new-york-times-international-edition
-
-**Bengals trends and 'The Beast' 2025 Draft Guide: Profiling who fits in Cincinnati**\
-`Dane Brugler's annual draft encyclopedia gives a clearer picture of which players match the Bengals' tendencies.`\
-https://nytimes.com/athletic/6268419/2025/04/10/bengals-the-beast-nfl-draft-fits/
 
