@@ -1,3 +1,7 @@
+**Helicopters Pack New York’s Skies, Despite Years of Noise and Air Pollution Complaints**\
+`Authorities say the industry contributes $50 million a year to the city’s tourism economy, but the number of tourist helicopter flights has halved since 2016.`\
+https://nytimes.com/2025/04/10/nyregion/helicopter-tours-noise-air-pollution.html
+
 **Legal Group Funded by Conservative Megadonors Challenges Trump’s Tariffs**\
 `The legal organization behind a lawsuit challenging President Trump’s tariffs is funded by groups linked to Charles Koch and Leonard A. Leo.`\
 https://nytimes.com/2025/04/10/business/economy/trump-tariffs-challenge-megadonors.html

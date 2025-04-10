@@ -15,7 +15,7 @@ https://nytimes.com/2025/04/10/nyregion/khalil-rubio-testimony-deportation.html
 https://nytimes.com/2025/04/10/arts/music/anna-netrebko-london-zurich.html
 
 **Helicopters Pack New York’s Skies, Despite Years of Noise and Air Pollution Complaints**\
-`Authorities say the industry has a roughly $50 million annual impact on the city, but the number of tourist helicopter flights has halved since 2016.`\
+`Authorities say the industry contributes $50 million a year to the city’s tourism economy, but the number of tourist helicopter flights has halved since 2016.`\
 https://nytimes.com/2025/04/10/nyregion/helicopter-tours-noise-air-pollution.html
 
 **Can Lane Hutson's rookie season give us a clue as to how Ivan Demidov will be coached?**\
