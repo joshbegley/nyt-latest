@@ -1,3 +1,11 @@
+**The Bounce: Luka Dončić's Dallas return had everything. What's next as his Lakers chapter unfolds?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6269593/2025/04/10/luka-doncic-lakers-mavericks-return-playoffs-the-bounce/
+
+**Prince William's soccer punditry assessed: 'High press' chat and earnest nodding, but a way-off prediction**\
+`The future king of the UK tried his hand at sports commentary as his team played in Europe`\
+https://nytimes.com/athletic/6269449/2025/04/10/prince-william-aston-villa-tnt-punditry/
+
 **Luigi Mangione Death Penalty Bid May Pit Prosecutors Against Each Other**\
 `State and federal prosecutors have both accused Mr. Mangione of killing a health insurance executive. Attorney General Pam Bondi is pushing aggressively for capital punishment.`\
 https://nytimes.com/2025/04/10/nyregion/bondi-federal-death-penalty-mangione.html

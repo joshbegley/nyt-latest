@@ -1,9 +1,13 @@
+**The Bounce: Luka Dončić's Dallas return had everything. What's next as his Lakers chapter unfolds?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6269593/2025/04/10/luka-doncic-lakers-mavericks-return-playoffs-the-bounce/
+
 **Luigi Mangione Death Penalty Bid May Pit Prosecutors Against Each Other**\
 `State and federal prosecutors have both accused Mr. Mangione of killing a health insurance executive. Attorney General Pam Bondi is pushing aggressively for capital punishment.`\
 https://nytimes.com/2025/04/10/nyregion/bondi-federal-death-penalty-mangione.html
 
 **Prince William's soccer punditry assessed: 'High press' chat and earnest nodding, but a way-off prediction**\
-`The future king of the UK tried his hand at sports commentary as his team continued their march in Europe`\
+`The future king of the UK tried his hand at sports commentary as his team played in Europe`\
 https://nytimes.com/athletic/6269449/2025/04/10/prince-william-aston-villa-tnt-punditry/
 
 **Inside Penn State hockey's improbable rise and first trip to the Frozen Four**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010101900/trump-tariff-reversal-expl
 **Connor McDavid's return to Oilers lineup wasn't planned, but it was needed**\
 `McDavid was originally supposed to return for Friday's game. But amid a slew of injuries, the captain felt his team needed him.`\
 https://nytimes.com/athletic/6269165/2025/04/10/oilers-connor-mcdavid-return/
-
-**Ask Ornstein Q&A: Our football insider answers your questions**\
-`Here is your opportunity to ask David Ornstein anything you want about the world of football`\
-https://nytimes.com/athletic/6269135/2025/04/10/ask-ornstein-qa-our-football-insider-answers-your-questions-24/
 
