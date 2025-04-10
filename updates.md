@@ -1,3 +1,19 @@
+**Mahmoud Khalil’s Lawyers Will Seek Testimony From Marco Rubio**\
+`Lawyers for the detained Columbia graduate said that the lack of substantive charges against him requires more information from the secretary of state. They acknowledge they are likely to fail.`\
+https://nytimes.com/2025/04/10/nyregion/khalil-rubio-testimony-deportation.html
+
+**Helicopters Pack New York’s Skies, Despite Years of Noise and Air Pollution Complaints**\
+`Authorities say the industry has a roughly $50 million annual impact on the city, but the number of tourist helicopter flights has halved since 2016.`\
+https://nytimes.com/2025/04/10/nyregion/helicopter-tours-noise-air-pollution.html
+
+**Can Lane Hutson's rookie season give us a clue as to how Ivan Demidov will be coached?**\
+`Canadiens coach Martin St. Louis won't talk about Demidov now, but he will talk about Hutson and there might be clues in those comments.`\
+https://nytimes.com/athletic/6271185/2025/04/10/canadiens-ivan-demidov-lane-hutson/
+
+**Supreme Court Sides With Wrongly Deported Migrant**\
+`A trial judge had ordered the Trump administration to take steps to return the migrant, Kilmar Armando Abrego Garcia, from a notorious prison in El Salvador.`\
+https://nytimes.com/2025/04/10/us/politics/supreme-court-trump-deported-migrant.html
+
 **More European Opera Houses Welcome Back Anna Netrebko**\
 `The star soprano, who lost work after Russia invaded Ukraine because of her past support of President Vladimir V. Putin of Russia, will return to the stage in Zurich and London.`\
 https://nytimes.com/2025/04/10/arts/music/anna-netrebko-london-zurich.html
