@@ -1,5 +1,9 @@
+**Egg Prices Continued to Rise in March**\
+`Egg prices have reached record highs as bird flu outbreaks have hit poultry farms and forced producers to cull tens of millions of hens.`\
+https://nytimes.com/2025/04/10/us/politics/egg-prices-continued-to-rise-in-march.html
+
 **Fridrik Olafsson, Grandmaster Who Led Iceland’s Rise in Chess, Dies at 90**\
-`At a time before his country became a chess powerhouse, he defeated four world champions, including one in an unlikely turn of events. He also led the game’s governing body.`\
+`At a time before his country became a chess powerhouse, he defeated four world champions, including Bobby Fischer and another in an unlikely turn of events.`\
 https://nytimes.com/2025/04/10/world/europe/fridrik-olafsson-dead.html
 
 **Death Toll in Dominican Republic Nightclub Hits 218**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/04/10/us/trump-news
 **Stanford WR Elic Ayomanor makes his pitch to 49ers: 'I think I'd fit well'**\
 `The headliners at Wednesday's event were a pair of receivers, Ayomanor and San Jose State's Nick Nash, who led the FBS in receiving in 2024.`\
 https://nytimes.com/athletic/6268457/2025/04/10/49ers-local-pro-day-ayomanor-nash-pole/
-
-**Ryan Greene chasing Frozen Four dream before Blackhawks decision**\
-`Greene is expected to sign with Chicago after his college season ends. But first, his Boston University Terriers go for NCAA glory.`\
-https://nytimes.com/athletic/6267674/2025/04/10/blackhawks-ryan-greene-nhl/
 
