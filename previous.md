@@ -1,3 +1,15 @@
+**Live From London, It’s Saturday Night!**\
+`A British version of the television sketch comedy program “Saturday Night Live” is set to debut in 2026.`\
+https://nytimes.com/2025/04/10/arts/television/saturday-night-live-snl-london-uk.html
+
+**FIA deputy president resigns over 'crisis' at Formula One's governing body**\
+`Robert Reid became deputy president when Ben Sulayem won the FIA presidential election at the end of 2021.`\
+https://nytimes.com/athletic/6269294/2025/04/10/robert-reid-fia-formula-one/
+
+**Former world snooker champion Graeme Dott charged with alleged child sex offences**\
+`Dott, 47, has been charged in relation to historic offences towards two children in Scotland between 1993 and 2010.`\
+https://nytimes.com/athletic/6267504/2025/04/10/graeme-dott-snooker-charges/
+
 **Raptors end-of-season awards featuring Jakob Poeltl's floaters and Jamal Shead's dunks**\
 `The highs, the lows and the obscure from another 50-loss season from the Raptors.`\
 https://nytimes.com/athletic/6262179/2025/04/10/raptors-awards-jakob-poeltl-jamal-shead/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6267535/2025/04/10/masters-2025-favorites-scottie-s
 **College baseball teams with 42- and 99-game losing streaks met in a doubleheader. Everyone left a winner**\
 `Yeshiva University entered Tuesday with 99 consecutive losses. Lehman College had lost 42 straight. Both streaks ended in a doubleheader.`\
 https://nytimes.com/athletic/6267969/2025/04/10/yeshiva-lehman-college-baseball-losing-streaks/
-
-**What went wrong with the Flyers goaltending: How can they fix it? What comes next?**\
-`The checklist to make the Flyers a better team is a long one. But the first item is plainly obvious — address the goaltending.`\
-https://nytimes.com/athletic/6267758/2025/04/10/flyers-goaltending-samuel-ersson-ivan-fedotov/
-
-**Tigers catcher Dillon Dingler spent his whole life preparing for his biggest test yet**\
-`With Jake Rogers on the IL, Dingler enters the spotlight as the Tigers' primary catcher. He seems ready for the challenge. `\
-https://nytimes.com/athletic/6268102/2025/04/10/tigers-catcher-dillon-dingler-notebook-study/
-
-**After years of 'Uncle Verne,' Frank Nobilo takes over at Masters' iconic 16th hole**\
-`Nobilo brings a Kiwi flair to the famous par-3 after 10 years on the call at August National's Amen Corner. `\
-https://nytimes.com/athletic/6259317/2025/04/10/frank-nobilo-masters-verne-lundquist/
 

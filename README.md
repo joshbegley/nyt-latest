@@ -1,3 +1,7 @@
+**Lyon's Fonseca says he is being made an example of with 'unbelievable' ban**\
+`Fonseca will be in the dugout for his side’s Europa League clash with Man Utd due to the sanction only applying in French competitions.`\
+https://nytimes.com/athletic/6269239/2025/04/10/lyon-manchester-united-fonseca-ban/
+
 **Live From London, It’s Saturday Night!**\
 `A British version of the television sketch comedy program “Saturday Night Live” is set to debut in 2026.`\
 https://nytimes.com/2025/04/10/arts/television/saturday-night-live-snl-london-uk.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6268717/2025/04/10/maple-leafs-lightning-panthers-m
 **Masters big board: Scheffler, McIlroy and the rest of the Augusta favorites**\
 `Ahead of this year's Masters, The Athletic has a big board of its top 30 contenders to win.`\
 https://nytimes.com/athletic/6267535/2025/04/10/masters-2025-favorites-scottie-scheffler-rory-mcilroy/
-
-**College baseball teams with 42- and 99-game losing streaks met in a doubleheader. Everyone left a winner**\
-`Yeshiva University entered Tuesday with 99 consecutive losses. Lehman College had lost 42 straight. Both streaks ended in a doubleheader.`\
-https://nytimes.com/athletic/6267969/2025/04/10/yeshiva-lehman-college-baseball-losing-streaks/
 

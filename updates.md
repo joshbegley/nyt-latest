@@ -1,3 +1,15 @@
+**Live From London, It’s Saturday Night!**\
+`A British version of the television sketch comedy program “Saturday Night Live” is set to debut in 2026.`\
+https://nytimes.com/2025/04/10/arts/television/saturday-night-live-snl-london-uk.html
+
+**FIA deputy president resigns over 'crisis' at Formula One's governing body**\
+`Robert Reid became deputy president when Ben Sulayem won the FIA presidential election at the end of 2021.`\
+https://nytimes.com/athletic/6269294/2025/04/10/robert-reid-fia-formula-one/
+
+**Former world snooker champion Graeme Dott charged with alleged child sex offences**\
+`Dott, 47, has been charged in relation to historic offences towards two children in Scotland between 1993 and 2010.`\
+https://nytimes.com/athletic/6267504/2025/04/10/graeme-dott-snooker-charges/
+
 **Raptors end-of-season awards featuring Jakob Poeltl's floaters and Jamal Shead's dunks**\
 `The highs, the lows and the obscure from another 50-loss season from the Raptors.`\
 https://nytimes.com/athletic/6262179/2025/04/10/raptors-awards-jakob-poeltl-jamal-shead/
