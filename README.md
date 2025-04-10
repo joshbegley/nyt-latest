@@ -1,3 +1,15 @@
+**A Champion of Oil Ends Her Bid to the Lead Bureau of Land Management**\
+`Kathleen Sgamma abruptly withdrew from consideration days after a memo surfaced in which she sharply criticized President Trump.`\
+https://nytimes.com/2025/04/10/climate/kathleen-sgamma-blm.html
+
+**8 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2025/04/10/books/review/new-books-recommendations.html
+
+**That’s a Wrap**\
+`Mushroom (or cauliflower) shawarma pitas, tofu larb and roasted vegetable burritos are too good to put down.`\
+https://nytimes.com/2025/04/10/dining/thats-a-wrap.html
+
 **At the Supreme Court, the Trump Agenda Is Always an ‘Emergency’**\
 `As legal challenges to the Trump administration mount, the justices are facing a key test — a flood of “emergency applications” asking for immediate intervention.`\
 https://nytimes.com/2025/04/10/us/politics/supreme-court-trump-emergency.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/10/business/economy/tariffs-apparel-american-made.ht
 **NWSL Denver hires Jen Millet as its first president**\
 `"People might say I'm crazy to do back-to-back builds," Millet told The Athletic on Wednesday. "But I actually love this kind of work."`\
 https://nytimes.com/athletic/6270250/2025/04/10/nwsl-denver-jen-millet/
-
-**Social Security Rolls Back Restrictions on Filing for Benefits by Phone**\
-`The agency’s plan to curtail phone services, which was expected to send tens of thousands to its offices each week, had been widely criticized.`\
-https://nytimes.com/2025/04/10/business/social-security-phone-benefits.html
-
-**Trump Has Added 145% Tariff to China, White House Clarifies**\
-`White House officials clarified on Thursday that the 125 percent tariff the president announced on Wednesday was in addition to a 20 percent added to the country since President Trump returned to office.`\
-https://nytimes.com/2025/04/10/business/economy/china-tariffs-145-percent.html
-
-**What Do You Tell a College Student Graduating Into This America?**\
-`We owe the next generation some measure of solace.`\
-https://nytimes.com/2025/04/10/opinion/college-commencement-students-graduation.html
 
