@@ -1,3 +1,15 @@
+**Trump Escalates Use of Official Power to Intimidate and Punish His Perceived Foes**\
+`A presidential decree instructing the Justice Department to scrutinize whether a former official broke the law crosses a new line.`\
+https://nytimes.com/2025/04/10/us/politics/trump-officials-justice-department.html
+
+**Michael Hurley, a Singer Both Eccentric and Inspirational, Dies at 83**\
+`A folk troubadour with an eclectic style, he built a devoted following for his songs about love, death, drinking and a particularly sad werewolf.`\
+https://nytimes.com/2025/04/10/arts/music/michael-hurley-dead.html
+
+**Joan Brown Campbell Dies at 93; Led Largest Ecumenical Body in U.S.**\
+`A minister who headed the National Council of Churches, she was active in liberal causes in the 1990s and sought to counter the conservative Christian Coalition.`\
+https://nytimes.com/2025/04/10/us/politics/joan-brown-campbell-dead.html
+
 **Phoenix Hits 100 Degrees as Southwest Swelters in Spring Heat**\
 `Even in a region known for heat, this week’s highs, this early in the year, are an “anomaly,” the National Weather Service said.`\
 https://nytimes.com/2025/04/10/weather/phoenix-heat-100-degrees.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/10/us/politics/health-care-veterans-trump.html
 **Hall of Famer Ken Griffey Jr. is working as a photographer at The Masters**\
 `Griffey Jr., an avid golfer, said he has played at Masters events before and was excited to get to shoot this year’s tournament.`\
 https://nytimes.com/athletic/6271055/2025/04/10/ken-griffey-jr-photographer-the-masters/
-
-**Tariff Angst Rises**\
-`Also, six died after helicopter crashed in the Hudson River. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2025/04/10/briefing/tariffs-wall-street-helicopter-crash-hudson-river.html
-
-**Trump, Offering Few Details, Insists ‘Everybody’ Wants to Make a Deal With the U.S.**\
-`The administration says foreign governments are racing to the United States to negotiate, but exactly which countries might strike a deal — and over what — remains unclear.`\
-https://nytimes.com/2025/04/10/us/politics/trump-tariffs-trade-deals.html
-
-**If It Exists, Someone Has Left It in an Uber**\
-`The company’s annual list of items passengers have left behind includes a mannequin head with human hair, a urinal and a chain saw.`\
-https://nytimes.com/2025/04/10/style/uber-lost-and-found-list.html
 
