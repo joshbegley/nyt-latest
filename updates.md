@@ -1,3 +1,15 @@
+**Prada to Buy Versace for Nearly $1.4 Billion**\
+`The deal is a big bet on the value of “Made In Italy.”`\
+https://nytimes.com/2025/04/10/style/prada-versace-deal.html
+
+**What to Expect After Trump’s Tariff About-Face**\
+`Global markets are rallying on President Trump’s decision to pause most of his sweeping levies. But investors remain unsettled, especially as Washington and Beijing face off.`\
+https://nytimes.com/2025/04/10/business/dealbook/trump-tariff-pause-questions.html
+
+**Barcelona's front three are a ruthless counter-attacking machine - this is why**\
+`Barcelona are on course for a treble this season and owe it in part to their incredible front three`\
+https://nytimes.com/athletic/6269412/2025/04/10/barcelona-raphinha-lewandowski-yamal-counter-attack-analysis/
+
 **NBA Awards Watch: What should and will happen with MVP, All-NBA and other honors**\
 `Some tough choices remain with less than a week to go in the regular season, especially in the Defensive Player of the Year race.`\
 https://nytimes.com/athletic/6264402/2025/04/10/nba-awards-mvp-rookie-all-defense-predictions/

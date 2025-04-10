@@ -1,3 +1,11 @@
+**Death Toll in Dominican Republic Nightclub Hits 218**\
+`The number of dead in a roof collapse in Santo Domingo keeps rising. Officials have not said how many people were in the club at the time of the disaster.`\
+https://nytimes.com/2025/04/10/world/americas/dominican-republic-nightclub-collapse-deaths.html
+
+**16 stats: Blues' turnaround, Lane Hutson's stardom and Stars' struggles**\
+`Plus, who would be the top candidates for an award for the league's best defensive defenseman this season?`\
+https://nytimes.com/athletic/6267450/2025/04/10/blues-lane-hutson-canadiens-stars-nhl/
+
 **Prada to Buy Versace for Nearly $1.4 Billion**\
 `The deal is a big bet on the value of “Made In Italy.”`\
 https://nytimes.com/2025/04/10/style/prada-versace-deal.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6267674/2025/04/10/blackhawks-ryan-greene-nhl/
 **Could Fabian Lysell make the Bruins next year? Why speed and skill are not enough**\
 `Much of Lysell’s game remains a mystery. But nine varsity appearances have given Lysell belief.`\
 https://nytimes.com/athletic/6268075/2025/04/10/fabian-lysell-bruins-roster-2025-26/
-
-**How much does a beer and a hot dog cost you at Wrigley Field or the Rate? I did the math**\
-`At a Cubs game, a beer and hot dog could run $30. The White Sox cost a little less and are known for food variety (but not their baseball).`\
-https://nytimes.com/athletic/6265773/2025/04/10/cubs-white-sox-concessions-costs/
-
-**What should we watch for in Ohio State spring game?**\
-`There are a few things we learned this spring that will be important to watch in Ohio State's spring game on Saturday.`\
-https://nytimes.com/athletic/6268273/2025/04/10/ohio-state-football-spring-game-preview-2025/
 

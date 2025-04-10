@@ -1,3 +1,15 @@
+**Prada to Buy Versace for Nearly $1.4 Billion**\
+`The deal is a big bet on the value of “Made In Italy.”`\
+https://nytimes.com/2025/04/10/style/prada-versace-deal.html
+
+**What to Expect After Trump’s Tariff About-Face**\
+`Global markets are rallying on President Trump’s decision to pause most of his sweeping levies. But investors remain unsettled, especially as Washington and Beijing face off.`\
+https://nytimes.com/2025/04/10/business/dealbook/trump-tariff-pause-questions.html
+
+**Barcelona's front three are a ruthless counter-attacking machine - this is why**\
+`Barcelona are on course for a treble this season and owe it in part to their incredible front three`\
+https://nytimes.com/athletic/6269412/2025/04/10/barcelona-raphinha-lewandowski-yamal-counter-attack-analysis/
+
 **NBA Awards Watch: What should and will happen with MVP, All-NBA and other honors**\
 `Some tough choices remain with less than a week to go in the regular season, especially in the Defensive Player of the Year race.`\
 https://nytimes.com/athletic/6264402/2025/04/10/nba-awards-mvp-rookie-all-defense-predictions/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6265773/2025/04/10/cubs-white-sox-concessions-costs
 **What should we watch for in Ohio State spring game?**\
 `There are a few things we learned this spring that will be important to watch in Ohio State's spring game on Saturday.`\
 https://nytimes.com/athletic/6268273/2025/04/10/ohio-state-football-spring-game-preview-2025/
-
-**Why Red Wings assistant Trent Yawney has been so effective developing defensemen**\
-`If history is any indication, Detroit's young defensemen seem to be in good hands.`\
-https://nytimes.com/athletic/6262695/2025/04/10/red-wings-trent-yawney-defensemen/
-
-**Chargers Mock Draft 3.0: A perfect fit at receiver, then a turn to the trenches**\
-`"The Beast" has been unleashed, meaning it's time for a fresh Chargers mock draft.`\
-https://nytimes.com/athletic/6268283/2025/04/10/los-angeles-chargers-mock-draft-tetairoa-mcmillan/
-
-**Knicks playoff predictions, evaluating the Karl-Anthony Towns trade and more: Mailbag**\
-`The Athletic's Knicks beat writer answers fan questions as the regular season closes.`\
-https://nytimes.com/athletic/6267156/2025/04/10/knicks-karl-anthony-towns-playoffs-mailbag/
 
