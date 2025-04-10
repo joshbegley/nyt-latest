@@ -1,3 +1,7 @@
+**Turkey and Israel Aim to Avoid Clashes in Syria as Tensions Rise**\
+`The two sides have started talks to prevent conflicts between their troops in Syria, amid a growing rivalry for influence in the region.`\
+https://nytimes.com/2025/04/10/world/middleeast/syria-turkey-israel-talks.html
+
 **N.Y.P.D. to Deploy Teams to Fight Minor Crimes, Touching Off Skepticism**\
 `The new Quality of Life division will investigate things like homeless encampments and public urination. Critics say the program is a license to harass the poor.`\
 https://nytimes.com/2025/04/10/nyregion/nypd-quality-of-life-teams.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/10/theater/amm-i-gone-a-mother-hecht-review.html
 **It's your chance to be Seahawks GM: Send us your mock drafts, and we'll critique them**\
 `Think you can do a better job than John Schneider? Prove it! Submit to our mock draft mailbag and see if your picks can make the cut.`\
 https://nytimes.com/athletic/6270198/2025/04/10/seahawks-nfl-mock-drafts-mailbag-submit/
-
-**Fantasy baseball bullpen report: Orioles' Yennier Canó, Padres' Robert Suarez and more**\
-`Greg Jewett provides a league-wide bullpen update so you know who to hold, drop or target on waivers and via trade. `\
-https://nytimes.com/athletic/6269703/2025/04/10/fantasy-baseball-bullpen-report-yennier-cano/
 
