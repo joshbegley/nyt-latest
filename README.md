@@ -1,3 +1,11 @@
+**Fantasy baseball bullpen report: Orioles' Yennier Canó, Padres' Robert Suarez and more**\
+`Greg Jewett provides a league-wide bullpen update so you know who to hold, drop or target on waivers and via trade. `\
+https://nytimes.com/athletic/6269703/2025/04/10/fantasy-baseball-bullpen-report-yennier-cano/
+
+**The Senators rewarded Steve Staios' faith. Now they must show what they can do together**\
+`Staios was patient with his group throughout the season, and that proved to be the right approach as the Senators enter the playoffs.`\
+https://nytimes.com/athletic/6267624/2025/04/10/senators-playoffs-staios-nhl/
+
 **Bond Market Sell-Off Prompts Bank of England to Make Unusual Move**\
 `Britain’s central bank altered a planned bond sale, citing “recent market volatility.”`\
 https://nytimes.com/2025/04/10/business/economy/bonds-uk-gilts.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/10/dining/thats-a-wrap.html
 **At the Supreme Court, the Trump Agenda Is Always an ‘Emergency’**\
 `As legal challenges to the Trump administration mount, the justices are facing a key test — a flood of “emergency applications” asking for immediate intervention.`\
 https://nytimes.com/2025/04/10/us/politics/supreme-court-trump-emergency.html
-
-**Inside Trump’s Plan to ‘Get’ Greenland: Persuasion, Not Invasion**\
-`The island’s population might not be easily convinced as the president tries to clinch what he may see as one of history’s greatest real estate deals.`\
-https://nytimes.com/2025/04/10/us/politics/trump-greenland-denmark.html
-
-**Birmingham City's promotion season set for Amazon Prime documentary**\
-`A camera crew has been with the team since pre-season after the project was conceived by Birmingham minority owner Tom Brady.`\
-https://nytimes.com/athletic/6270196/2025/04/10/birmingham-tom-brady-amazon-documentary/
 
