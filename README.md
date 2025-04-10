@@ -1,3 +1,7 @@
+**The Case for Giving This Trade War a Chance**\
+`Oren Cass argues tariffs are worth it.`\
+https://nytimes.com/video/opinion/100000010096873/the-case-for-giving-this-trade-war-a-chance.html
+
 **Kennedy Offers Qualified Support for Measles Vaccination**\
 `In an interview with CBS, the health secretary also suggested he wasn’t familiar with massive cuts to state funding for public health.`\
 https://nytimes.com/2025/04/09/health/kennedy-offers-qualified-support-for-measles-vaccination.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/09/arts/music/tracy-schwarz-dead.html
 **Tyreek Hill not charged after police respond to domestic disturbance**\
 `Police responded to a call on Monday and the case has since been closed by the Sunny Isles Beach Police Department.`\
 https://nytimes.com/athletic/6268078/2025/04/09/tyreek-hill-domestic-disturbance-miami-dolphins/
-
-**A Friendship Divided by Musk**\
-`Elon Musk, and the feelings that working for him can engender, can come between even the closest of pals.`\
-https://nytimes.com/2025/04/09/us/politics/musk-doge-steve-davis.html
 
