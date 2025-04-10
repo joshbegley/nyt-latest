@@ -1,3 +1,11 @@
+**On an emotional day for the Wild, Eriksson Ek and Kaprizov put on a show with their returns**\
+`In their long-awaited returns, Eriksson Ek and Kaprizov reminded everyone just what the Wild have been missing these past several weeks.`\
+https://nytimes.com/athletic/6268964/2025/04/10/wild-joel-eriksson-ek-kirill-kaprizov-returns/
+
+**Why Mohamed Salah and Virgil van Dijk had to be considered special cases by FSG**\
+`Don't expect Liverpool's owners to make a habit of it, but retaining two of the club's greatest players is the smart move`\
+https://nytimes.com/athletic/6267711/2025/04/10/liverpool-salah-van-dijk-contract-rationale/
+
 **Are You Overwhelmed by Trends?**\
 `Some teenagers say they are burned out by trying to keep up with all they are expected to wear, watch, eat, listen to, buy or be. Are you?`\
 https://nytimes.com/2025/04/10/learning/are-you-overwhelmed-by-trends.html

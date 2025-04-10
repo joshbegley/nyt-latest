@@ -1,3 +1,7 @@
+**Hurt by Mavericks trade, Luka Dončić is now feeling the love in L.A. and beyond**\
+`Two months after his trade to the Lakers, Dončić is looking like himself again — while earning the adoration of the fan base.`\
+https://nytimes.com/athletic/6268686/2025/04/10/luka-doncic-fans-lakers-mavericks-return/
+
 **On an emotional day for the Wild, Eriksson Ek and Kaprizov put on a show with their returns**\
 `In their long-awaited returns, Eriksson Ek and Kaprizov reminded everyone just what the Wild have been missing these past several weeks.`\
 https://nytimes.com/athletic/6268964/2025/04/10/wild-joel-eriksson-ek-kirill-kaprizov-returns/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6268179/2025/04/10/aston-villa-psg-champions-league
 **Braves, Austin Riley waste big scoring opportunities in loss to Phillies**\
 `"We had the deck stacked in our favor a couple of times and just couldn't pierce a gap, get a big hit," Brian Snitker said of the 4-3 loss.`\
 https://nytimes.com/athletic/6268900/2025/04/10/braves-austin-riley-waste-big-scoring-opportunities-phillies-loss/
-
-**Thursday Briefing**\
-`A retreat on President Trump’s tariffs.`\
-https://nytimes.com/2025/04/10/briefing/trump-tariffs-syria.html
 
