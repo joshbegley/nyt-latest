@@ -1,3 +1,7 @@
+**Stocks Jump in Asia After Trump’s Tariff Reprieve**\
+`Markets in Japan, South Korea and Taiwan soar after the U.S. president pauses punishing tariffs. Gains in mainland China were modest as trade hostilities heat up between Washington and Beijing.`\
+https://nytimes.com/2025/04/09/business/trump-tariffs-stocks-asia.html
+
 **‘Just One More Story!’**\
 `Adam Wagner tells us a small tale.`\
 https://nytimes.com/2025/04/09/crosswords/daily-puzzle-2025-04-10.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/09/us/nyc-woman-puerto-rico-parrot-airline.html
 **House Votes to Curb National Injunctions, Targeting Judges Who Thwart Trump**\
 `The legislation is part of an escalating Republican campaign to take aim at judges who have moved to halt some of President Trump’s executive orders.`\
 https://nytimes.com/2025/04/09/us/politics/house-vote-federal-judges-trump.html
-
-**De Bruyne discovery rights issue highlights puzzling MLS rule**\
-`The Manchester City star's potential switch to Inter Miami has sparked discussion about MLS' mysterious discovery rights mechanism.`\
-https://nytimes.com/athletic/6268354/2025/04/09/inter-miami-de-bruyne-discovery-rights-manchester-city/
 
