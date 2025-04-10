@@ -1,3 +1,19 @@
+**Are You Overwhelmed by Trends?**\
+`Some teenagers say they are burned out by trying to keep up with all they are expected to wear, watch, eat, listen to, buy or be. Are you?`\
+https://nytimes.com/2025/04/10/learning/are-you-overwhelmed-by-trends.html
+
+**Late Night Finds Trump to Be His Own Worst Enemy**\
+`“Yeah, Trump was, like, ‘I just saved the economy from me. You’re welcome,’” Jimmy Fallon said on “The Tonight Show.”`\
+https://nytimes.com/2025/04/10/arts/television/late-night-trump-tariffs.html
+
+**Love of Libraries**\
+`This National Library Week we want to know: What do you appreciate about these public spaces?`\
+https://nytimes.com/2025/04/10/learning/love-of-libraries.html
+
+**Word of the Day: dormant**\
+`This word has appeared in 277 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/04/10/learning/word-of-the-day-dormant.html
+
 **PSG show the importance of variety after beating Villa with three very different goals**\
 `PSG beat Aston Villa 3-1 on Wednesday night in their Champions League quarter-final first leg`\
 https://nytimes.com/athletic/6268480/2025/04/10/psg-champions-league-aston-villa-analysis/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6268923/2025/04/10/joe-ryan-dominant-twins-beat-roy
 **The New York Times in Print for Thursday, April 10, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/04/10/todays-new-york-times
-
-**This Is No Way to Stop the World’s Trumps**\
-`The proscribing of Marine Le Pen will do little to staunch support for the far right.`\
-https://nytimes.com/2025/04/10/opinion/le-pen-france-far-right.html
-
-**Giants still making a Splash as Mike Yastrzemski delivers third walk-off win of homestand**\
-`After being five runs down, the Giants showed once again that they're competitive with an 8-6 victory over the Reds.`\
-https://nytimes.com/athletic/6267992/2025/04/10/san-francisco-giants-mike-yastrzemski-walkoff/
-
-**Suns are now a cautionary tale and have only one card left to play**\
-`No team in the last four decades has faced a situation anywhere close to this hopeless.`\
-https://nytimes.com/athletic/6268131/2025/04/10/devin-booker-trade-suns-nba-thunder/
-
-**Greenberg: Ready for Heat-Bulls, Part 3? The Play-In Tournament beckons for both teams**\
-`Yes, it would be their third straight meeting in the Play-In Tournament, but the first time the game would be in Chicago.`\
-https://nytimes.com/athletic/6268866/2025/04/10/bulls-heat-play-in-tournament/
 
