@@ -1,3 +1,15 @@
+**What Do You Tell a College Student Graduating Into This America?**\
+`We owe the next generation some measure of solace.`\
+https://nytimes.com/2025/04/10/opinion/college-commencement-students-graduation.html
+
+**The Windup: You have to see this chaotic play**\
+`Welcome to The Windup, The Athletic's MLB newsletter. `\
+https://nytimes.com/athletic/6269084/2025/04/10/cardinals-pirates-blooper-the-windup/
+
+**Breakouts or Mirages? Evaluating hot and cold fantasy baseball starts**\
+`Owen Poindexter looks around the league for players with unexpected hot or cold starts and evaluates what's on the horizon for them. `\
+https://nytimes.com/athletic/6267763/2025/04/10/fantasy-baseball-breakouts-mirages-hot-cold-starts/
+
 **Medicare Bleeds Billions on Pricey Bandages, and Doctors Get a Cut**\
 `Medicare spending on “skin substitutes” made of dried placenta has soared as doctors pocket lucrative discounts from sellers.`\
 https://nytimes.com/2025/04/10/health/skin-substitutes-medicare-costs.html

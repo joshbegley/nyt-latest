@@ -1,3 +1,7 @@
+**Trump Has Added 145% Tariff to China, White House Clarifies**\
+`White House officials clarified on Thursday that the 125 percent tariff the president announced on Wednesday was in addition to a 20 percent added to the country since President Trump returned to office.`\
+https://nytimes.com/2025/04/10/business/economy/china-tariffs-145-percent.html
+
 **What Do You Tell a College Student Graduating Into This America?**\
 `We owe the next generation some measure of solace.`\
 https://nytimes.com/2025/04/10/opinion/college-commencement-students-graduation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6268811/2025/04/10/pat-mcafee-mary-kate-cornett/
 **Jon Hamm Finds His Way Back to the Hilltop**\
 `For the actor, the decade since “Mad Men” ended has been a period of personal change and mixed professional success. Suddenly, he is everywhere again.`\
 https://nytimes.com/2025/04/10/arts/jon-hamm-your-friends-and-neighbors.html
-
-**Newsmax Made Defamatory Statements About Dominion, Judge Says**\
-`The defamation case, over falsehoods spread about the 2020 election, is headed to a jury this month.`\
-https://nytimes.com/2025/04/10/business/media/newsmax-dominion-defamation.html
 
