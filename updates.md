@@ -1,3 +1,7 @@
+**The Justice Dept. moves to deport a migrant it described as a gang leader even as it drops charges.**\
+`By Glenn Thrush`\
+https://nytimes.com/live/2025/04/09/us/president-trump/the-justice-dept-moves-to-deport-a-migrant-it-described-as-a-gang-leader-even-as-it-drops-charges
+
 **Trump’s Encouragement of Stock Investors Draws Scrutiny**\
 `Was the president manipulating the market with his comments, as his critics say, or reassuring Americans, as the White House maintains?`\
 https://nytimes.com/2025/04/09/us/politics/trump-stock-market.html
