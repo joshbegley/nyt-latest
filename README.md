@@ -2,7 +2,7 @@
 `The defamation case, over falsehoods spread about the 2020 election, is headed to a jury this month.`\
 https://nytimes.com/2025/04/10/business/media/newsmax-dominion-defamation.html
 
-**Liverpool's firm Dean Huijsen interest? Liam Delap's clause? — Ask Ornstein**\
+**Dean Huijsen interest? Liam Delap's clause? — Ask Ornstein**\
 `David has pulled together some of his favourite questions and answers from his weekly Q&A`\
 https://nytimes.com/athletic/6269833/2025/04/10/liverpool-transfer-latest-dean-huijsen-liam-delap-manchester-united/
 

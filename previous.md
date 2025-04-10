@@ -7,7 +7,7 @@ https://nytimes.com/2025/04/10/business/media/newsmax-dominion-defamation.html
 https://nytimes.com/athletic/6269833/2025/04/10/liverpool-transfer-latest-dean-huijsen-liam-delap-manchester-united/
 
 **House Passes G.O.P. Budget After Conservative Revolt Collapses**\
-`A pledge from the top Senate Republican that his chamber would embrace far deeper cuts than the measure would require persuaded a critical bloc of fiscal hawks to drop its opposition.`\
+`A critical bloc of fiscal hawks dropped its opposition after a pledge from the top Senate Republican that his chamber would embrace far deeper cuts than the measure would require.`\
 https://nytimes.com/2025/04/10/us/politics/house-budget-vote-trump-republicans.html
 
 **Trump’s Tariff Reversal Calms Some G.O.P. Nerves, but Questions Linger**\

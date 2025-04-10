@@ -1,3 +1,7 @@
+**House Passes G.O.P. Budget After Conservative Revolt Collapses**\
+`A critical bloc of fiscal hawks dropped its opposition after a pledge from the top Senate Republican that his chamber would embrace far deeper cuts than the measure would require.`\
+https://nytimes.com/2025/04/10/us/politics/house-budget-vote-trump-republicans.html
+
 **Newsmax Made Defamatory Statements About Dominion, Judge Says**\
 `The defamation case, over falsehoods spread about the 2020 election, is headed to a jury this month.`\
 https://nytimes.com/2025/04/10/business/media/newsmax-dominion-defamation.html
