@@ -1,3 +1,7 @@
+**In Congress, a Day Can Last Months if Politics Demands It**\
+`House Republicans are so intent on avoiding tough votes on President Trump’s tariffs that they have rewritten the calendar.`\
+https://nytimes.com/2025/04/10/us/congress-johnson-calendar.html
+
 **Chip Roy Says Promise of Deep Entitlement Cuts Won His Vote**\
 `The Texas Republican, a holdout on the plan until the end, said commitments from President Trump and G.O.P. senators to pursue deeper spending cuts persuaded him to vote yes.`\
 https://nytimes.com/2025/04/10/us/politics/chip-roy-says-promise-of-deep-entitlement-cuts-won-his-vote.html
