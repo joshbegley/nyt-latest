@@ -1,3 +1,7 @@
+**Trump’s Encouragement of Stock Investors Draws Scrutiny**\
+`Was the president manipulating the market with his comments, as his critics say, or reassuring Americans, as the White House maintains?`\
+https://nytimes.com/2025/04/09/us/politics/trump-stock-market.html
+
 **New Jersey Devils clinch third playoff berth in last 14 seasons**\
 `The Devils secured third in the Metropolitan Division despite some major injuries on their roster this season.`\
 https://nytimes.com/athletic/6261326/2025/04/09/new-jersey-devils-nhl-playoffs-clinch-berth/

@@ -1,3 +1,7 @@
+**Trump’s Encouragement of Stock Investors Draws Scrutiny**\
+`Was the president manipulating the market with his comments, as his critics say, or reassuring Americans, as the White House maintains?`\
+https://nytimes.com/2025/04/09/us/politics/trump-stock-market.html
+
 **New Jersey Devils clinch third playoff berth in last 14 seasons**\
 `The Devils secured third in the Metropolitan Division despite some major injuries on their roster this season.`\
 https://nytimes.com/athletic/6261326/2025/04/09/new-jersey-devils-nhl-playoffs-clinch-berth/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/09/health/kennedy-offers-qualified-support-for-measl
 **From ‘Be Cool!’ to ‘Getting Yippy’: Inside Trump’s Reversal on Tariffs**\
 `Economic turmoil, particularly a rapid rise in government bond yields, caused President Trump to reverse course on the steep levies.`\
 https://nytimes.com/2025/04/09/us/politics/trump-tariff-pause-be-cool.html
-
-**Flight Ban on Parrots Leaves Bronx Grandmother in Limbo for 4 Days**\
-`Plucky, an African gray parrot, accompanied its owner, Maria Fraterrigo, on a Frontier Airlines flight to Puerto Rico in January. But a gate agent would not let it on board the return flight.`\
-https://nytimes.com/2025/04/09/us/nyc-woman-puerto-rico-parrot-airline.html
 
