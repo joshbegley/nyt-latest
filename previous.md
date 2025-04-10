@@ -1,3 +1,15 @@
+**Raptors end-of-season awards featuring Jakob Poeltl's floaters and Jamal Shead's dunks**\
+`The highs, the lows and the obscure from another 50-loss season from the Raptors.`\
+https://nytimes.com/athletic/6262179/2025/04/10/raptors-awards-jakob-poeltl-jamal-shead/
+
+**Ashton Jeanty, Tyler Warren, Will Campbell? Bears NFL Draft takeaways from 'The Beast'**\
+`After sifting through some rankings and scouting reports in "The Beast," what can it tell us about the Bears' options in the draft?`\
+https://nytimes.com/athletic/6268041/2025/04/10/bears-nfl-draft-options-the-beast/
+
+**Chiefs' Charles Omenihu vows to maximize his deal with a career year**\
+`Unable to land a multiyear deal in free agency, Omenihu returned to the Chiefs focused on staying healthy and winning a starting job.`\
+https://nytimes.com/athletic/6268315/2025/04/10/chiefs-charles-omenihu-mike-edwards/
+
 **Vikings 7-round mock draft 3.0: Using ‘The Beast’ to find the best fits**\
 `We have the Vikings trading down out of the first round to add two picks and fortifying both the offensive and defensive lines.`\
 https://nytimes.com/athletic/6267473/2025/04/10/vikings-nfl-mock-draft-beast-donovan-jackson/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6268102/2025/04/10/tigers-catcher-dillon-dingler-no
 **After years of 'Uncle Verne,' Frank Nobilo takes over at Masters' iconic 16th hole**\
 `Nobilo brings a Kiwi flair to the famous par-3 after 10 years on the call at August National's Amen Corner. `\
 https://nytimes.com/athletic/6259317/2025/04/10/frank-nobilo-masters-verne-lundquist/
-
-**Luka Dončić's return offers a reminder: Some things are bigger than titles**\
-`Emotions flowed freely for the 26-year-old superstar, and with his Lakers teammates by his side, he got what he needed: closure.`\
-https://nytimes.com/athletic/6268938/2025/04/10/luka-doncic-return-dallas-mavericks-closure/
-
-**Packers and 'The Beast': Seven NFL Draft hidden gems to watch for Green Bay**\
-`Brian Gutekunst has found a handful of diamonds in the rough late in the draft. Who could the next one be?`\
-https://nytimes.com/athletic/6268589/2025/04/10/packers-draft-the-beast-prospects/
-
-**Cubs takeaways: How to replace Justin Steele, Matt Shaw explains his batting stance**\
-`Since Jameson Taillon’s first start, he's been putting up numbers that Chicago has never seen from the pitcher.`\
-https://nytimes.com/athletic/6268045/2025/04/10/chicago-cubs-pitching-staff-matt-shaw/
 

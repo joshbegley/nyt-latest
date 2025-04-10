@@ -1,3 +1,15 @@
+**Raptors end-of-season awards featuring Jakob Poeltl's floaters and Jamal Shead's dunks**\
+`The highs, the lows and the obscure from another 50-loss season from the Raptors.`\
+https://nytimes.com/athletic/6262179/2025/04/10/raptors-awards-jakob-poeltl-jamal-shead/
+
+**Ashton Jeanty, Tyler Warren, Will Campbell? Bears NFL Draft takeaways from 'The Beast'**\
+`After sifting through some rankings and scouting reports in "The Beast," what can it tell us about the Bears' options in the draft?`\
+https://nytimes.com/athletic/6268041/2025/04/10/bears-nfl-draft-options-the-beast/
+
+**Chiefs' Charles Omenihu vows to maximize his deal with a career year**\
+`Unable to land a multiyear deal in free agency, Omenihu returned to the Chiefs focused on staying healthy and winning a starting job.`\
+https://nytimes.com/athletic/6268315/2025/04/10/chiefs-charles-omenihu-mike-edwards/
+
 **Vikings 7-round mock draft 3.0: Using ‘The Beast’ to find the best fits**\
 `We have the Vikings trading down out of the first round to add two picks and fortifying both the offensive and defensive lines.`\
 https://nytimes.com/athletic/6267473/2025/04/10/vikings-nfl-mock-draft-beast-donovan-jackson/
