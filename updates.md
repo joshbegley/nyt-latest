@@ -1,3 +1,7 @@
+**Climate Change Could Become a Global Economic Disaster**\
+`New warnings from financial firms and insurers point to a future defined by profound risks to the global economy from heat, storms and other disasters.`\
+https://nytimes.com/2025/04/10/climate/climate-change-economic-effects.html
+
 **In Congress, a Day Can Last Months if Politics Demands It**\
 `House Republicans are so intent on avoiding tough votes on President Trump’s tariffs that they have rewritten the calendar.`\
 https://nytimes.com/2025/04/10/us/congress-johnson-calendar.html
