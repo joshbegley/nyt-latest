@@ -1,3 +1,11 @@
+**Thursday Briefing**\
+`A retreat on President Trump’s tariffs.`\
+https://nytimes.com/2025/04/10/briefing/trump-tariffs-syria.html
+
+**Joe Ryan dominates Royals after Twins potentially lose Pablo López to IL**\
+`Ryan starred over seven sterling innings, providing his team the type of outing he routinely made in 2024.`\
+https://nytimes.com/athletic/6268923/2025/04/10/joe-ryan-dominant-twins-beat-royals-pablo-lopez/
+
 **The New York Times in Print for Thursday, April 10, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/04/10/todays-new-york-times
