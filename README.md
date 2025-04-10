@@ -1,3 +1,23 @@
+**Meet Goncalo Feio, the fiery Legia Warsaw coach facing Chelsea: 'For me, the big guy was Mourinho'**\
+`Goncalo Feio, the Portuguese head coach in charge of Legia Warsaw, is excited about his encounter with Chelsea`\
+https://nytimes.com/athletic/6266546/2025/04/10/meet-goncalo-feio-the-fiery-legia-warsaw-coach-facing-chelsea-for-me-the-big-guy-was-mourinho/
+
+**How a Ukrainian Teen Became a Suspected Foot Soldier for Russia**\
+`The teenager faces terrorism charges in an arson attack on an IKEA store in Lithuania. Investigators say it was part of a Russian sabotage campaign.`\
+https://nytimes.com/2025/04/10/world/europe/lithuania-ikea-fire-russia-sabotage.html
+
+**Connections: Sports Edition Coach: Hints for April 10, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6268601/2025/04/10/connections-sports-edition-hints-for-april-10-2025/
+
+**Corrections: April 10, 2025**\
+`Corrections that appeared in print on Thursday, April 10, 2025.`\
+https://nytimes.com/2025/04/10/pageoneplus/corrections-april-10-2025.html
+
+**Quote of the Day: This ‘Handyman’ Bends Augusta To His Will**\
+`Quotation of the Day for Thursday, April 10, 2025.`\
+https://nytimes.com/2025/04/09/pageoneplus/quote-of-the-day-this-handyman-bends-augusta-to-his-will.html
+
 **Reality sinks in for Rangers as New York's last playoff hopes dwindle: Takeaways**\
 `After giving up eight goals to the Flyers, the writing is on the wall for the Rangers this season.`\
 https://nytimes.com/athletic/6268810/2025/04/09/rangers-blowout-playoff-hopes-flyers/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6268639/2025/04/09/wild-sharks-joel-eriksson-ek-kir
 **Maple Leafs report cards: Matthew Knies hat trick helps Toronto weather the storm**\
 `The Leafs scored twice in the first four minutes and held on against a late Tampa Bay surge for an overtime win.`\
 https://nytimes.com/athletic/6268752/2025/04/09/maple-leafs-report-cards-knies-hat-trick-lightning/
-
-**Here’s what happened on Wednesday.**\
-`By The New York Times`\
-https://nytimes.com/live/2025/04/09/us/president-trump/heres-what-happened-on-wednesday
-
-**The Justice Dept. moves to deport a migrant it described as a gang leader even as it drops charges.**\
-`By Glenn Thrush`\
-https://nytimes.com/live/2025/04/09/us/president-trump/the-justice-dept-moves-to-deport-a-migrant-it-described-as-a-gang-leader-even-as-it-drops-charges
-
-**Trump’s Encouragement of Stock Investors Draws Scrutiny**\
-`Was the president manipulating the market with his comments, as his critics say, or reassuring Americans, as the White House maintains?`\
-https://nytimes.com/2025/04/09/us/politics/trump-stock-market.html
-
-**New Jersey Devils clinch third playoff berth in last 14 seasons**\
-`The Devils secured third in the Metropolitan Division despite some major injuries on their roster this season.`\
-https://nytimes.com/athletic/6261326/2025/04/09/new-jersey-devils-nhl-playoffs-clinch-berth/
-
-**Stocks Jump in Asia After Trump’s Tariff Reprieve**\
-`Markets in Japan, South Korea and Taiwan soar after the U.S. president pauses punishing tariffs. Gains in mainland China were modest as trade hostilities heat up between Washington and Beijing.`\
-https://nytimes.com/2025/04/09/business/trump-tariffs-stocks-asia.html
 
