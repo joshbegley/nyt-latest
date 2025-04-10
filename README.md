@@ -1,3 +1,19 @@
+**House Votes to Require Proof of Citizenship in Federal Elections**\
+`Conservatives have long argued for stronger laws to combat voter fraud, something that election experts say is exceedingly rare.`\
+https://nytimes.com/2025/04/10/us/politics/house-citizenship-elections.html
+
+**My List of 10 Movies to Understand Who Americans Once Were**\
+`Some things can be seen more clearly in black and white.`\
+https://nytimes.com/2025/04/10/opinion/movies-technology-old-america.html
+
+**What’s Going On in This Picture? | April 14, 2025**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2025/04/10/learning/whats-going-on-in-this-picture-april-14-2025.html
+
+**What’s Going On in This Graph? | April 23, 2025**\
+`What do you notice about how the pandemic changed Americans’ lives? What do you wonder about these changes?`\
+https://nytimes.com/2025/04/10/learning/whats-going-on-in-this-graph-april-23-2025.html
+
 **Climate Change Could Become a Global Economic Disaster**\
 `New warnings from financial firms and insurers point to a future defined by profound risks to the global economy from heat, storms and other disasters.`\
 https://nytimes.com/2025/04/10/climate/climate-change-economic-effects.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/04/10/us/snakehead-fish-missouri.html
 **Can Nigeria Help Save the Pangolins Amid a Global Wildlife Crime Crisis?**\
 `The country has been known as a hub for the trade in illegal wildlife. But it has been stepping up enforcement as concerns grow about the depletion of certain species and the growing role of international crime groups in animal trafficking.`\
 https://nytimes.com/2025/04/10/world/africa/pangolins-wildlife-trafficking-nigeria.html
-
-**For Restaurants That Rely on Imports, the Tariff News Is Scant Relief**\
-`Confusion and uncertainty hang over an industry with thin profit margins and few domestic sources for foreign ingredients.`\
-https://nytimes.com/2025/04/10/dining/restaurants-tariffs.html
-
-**Colts release kicker Matt Gay, turn to Spencer Shrader**\
-`Gay failed to live up to expectations in his two years with Indianapolis. `\
-https://nytimes.com/athletic/6270389/2025/04/10/colts-matt-gay-released-spencer-shrader/
-
-**Police Seek Man Who They Say Violated a Corpse on an R Train**\
-`New York’s subways have been the subject of debate, with politicians using them to paint the city as out of control and dangerous to residents and visitors.`\
-https://nytimes.com/2025/04/10/nyregion/nyc-subway-corpse-sex.html
-
-**Jokić had heads up before Malone firing, says it 'changed something' in Nuggets**\
-`Jokić said he found out about the firings "a little bit before everybody," but declined to further elaborate on his talk with Josh Kroenke.`\
-https://nytimes.com/athletic/6269779/2025/04/10/nikola-jokic-michael-malone-nuggets-comments/
 
