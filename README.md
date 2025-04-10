@@ -1,3 +1,7 @@
+**China to reduce imports of American films.**\
+`Hollywood’s business in China has dwindled in recent years as the country increased censorship and control of distribution.`\
+https://nytimes.com/live/2025/04/10/business/trump-tariffs-stocks/china-to-reduce-imports-of-american-films
+
 **The latest on MLS's potential change to a European calendar**\
 `MLS's owners continue to discuss changes that would radically alter the league's outlook.`\
 https://nytimes.com/athletic/6269759/2025/04/10/mls-calendar-change-europe-garber-world-cup/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/04/10/arts/television/her-majesty-su-majestad-prime.htm
 **Live Updates: Helicopter Crashes Into Hudson River Near Manhattan**\
 `At least three people were killed in the crash, according to law enforcement officials, and two others were pulled from the water. A sixth person, believed to be the pilot, was still unaccounted for.`\
 https://nytimes.com/live/2025/04/10/nyregion/hudson-river-helicopter-crash
-
-**Trump May Seek Judicial Oversight of Columbia, Potentially for Years**\
-`The Trump administration is discussing asking a judge to enforce any deal it reaches with the school, which the White House says has not done enough to address antisemitism.`\
-https://nytimes.com/2025/04/10/nyregion/columbia-trump-consent-decree.html
 
