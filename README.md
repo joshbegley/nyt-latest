@@ -6,7 +6,7 @@ https://nytimes.com/2025/04/10/arts/television/white-lotus-season-3-trauma.html
 `For 21 years, Rosen and Davidson were the voices of the Rangers. They did one final game before Rosen retires at the end of his 40th season.`\
 https://nytimes.com/athletic/6268749/2025/04/10/rangers-sam-rosen-john-davidson-nhl-broadcast/
 
-**Rio SailGP race weekend cancelled after wingsail defect found in boats**\
+**Rio SailGP race weekend cancelled after wingsail defect found in catamarans**\
 `The Rio Grand Prix was set to take place on May 3-4 and would have been the first time for the Championship to have been held in Brazil.`\
 https://nytimes.com/athletic/6269361/2025/04/10/rio-sailgp-cancelled-wingsail-defect/
 
