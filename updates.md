@@ -1,3 +1,7 @@
+**Trump Has Added 145% Tariff to China, White House Clarifies**\
+`White House officials clarified on Thursday that the 125 percent tariff the president announced on Wednesday was in addition to a 20 percent added to the country since President Trump returned to office.`\
+https://nytimes.com/2025/04/10/business/economy/china-tariffs-145-percent.html
+
 **What Do You Tell a College Student Graduating Into This America?**\
 `We owe the next generation some measure of solace.`\
 https://nytimes.com/2025/04/10/opinion/college-commencement-students-graduation.html
