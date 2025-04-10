@@ -1,3 +1,7 @@
+**In Congress, a Day Can Last Months if Politics Demands It**\
+`House Republicans are so intent on avoiding tough votes on President Trump’s tariffs that they have rewritten the calendar.`\
+https://nytimes.com/2025/04/10/us/congress-johnson-calendar.html
+
 **Chip Roy Says Promise of Deep Entitlement Cuts Won His Vote**\
 `The Texas Republican, a holdout on the plan until the end, said commitments from President Trump and G.O.P. senators to pursue deeper spending cuts persuaded him to vote yes.`\
 https://nytimes.com/2025/04/10/us/politics/chip-roy-says-promise-of-deep-entitlement-cuts-won-his-vote.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6269779/2025/04/10/nikola-jokic-michael-malone-nugg
 **After Reviving Democrats in a Battleground State, He’s Moving On**\
 `Ben Wikler, who supercharged fund-raising as the leader of the Wisconsin Democratic Party, is stepping down — and weighing a run for office.`\
 https://nytimes.com/2025/04/10/us/politics/ben-wikler-wisconsin-democrats.html
-
-**Leo Beenhakker, legendary former Real Madrid manager, dies at 82**\
-`Beenhakker's coaching career spanned over five decades and included title-winning stints at Real Madrid alongside Ajax and Feyenoord.`\
-https://nytimes.com/athletic/6270475/2025/04/10/leo-beenhakker-dead-real-madrid-manager/
 

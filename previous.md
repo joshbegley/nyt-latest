@@ -1,9 +1,25 @@
+**Chip Roy Says Promise of Deep Entitlement Cuts Won His Vote**\
+`The Texas Republican, a holdout on the plan until the end, said commitments from President Trump and G.O.P. senators to pursue deeper spending cuts persuaded him to vote yes.`\
+https://nytimes.com/2025/04/10/us/politics/chip-roy-says-promise-of-deep-entitlement-cuts-won-his-vote.html
+
+**The Briefing: Legia Warsaw 0 Chelsea 3 - George's first goal, Nkunku falters but semi-finals in sight**\
+`Liam Twomey breaks down the main talking points from Chelsea's 3-0 win over Legia Warsaw in the Conference League quarter-finals`\
+https://nytimes.com/athletic/6264499/2025/04/10/legia-warsaw-0-chelsea-3-george-madeueke-nkunku/
+
+**If You See This Creepy Fish, Cut Its Head Off**\
+`The invasive northern snakehead, which has recently been appearing in Missouri and other states, must be eradicated, officials say.`\
+https://nytimes.com/2025/04/10/us/snakehead-fish-missouri.html
+
+**Can Nigeria Help Save the Pangolins Amid a Global Wildlife Crime Crisis?**\
+`The country has been known as a hub for the trade in illegal wildlife. But it has been stepping up enforcement as concerns grow about the depletion of certain species and the growing role of international crime groups in animal trafficking.`\
+https://nytimes.com/2025/04/10/world/africa/pangolins-wildlife-trafficking-nigeria.html
+
 **For Restaurants That Rely on Imports, the Tariff News Is Scant Relief**\
 `Confusion and uncertainty hang over an industry with thin profit margins and few domestic sources for foreign ingredients.`\
 https://nytimes.com/2025/04/10/dining/restaurants-tariffs.html
 
 **Colts release kicker Matt Gay, turn to Spencer Shrader**\
-`Gay failed to live up to expectations in Indianapolis. `\
+`Gay failed to live up to expectations in his two years with Indianapolis. `\
 https://nytimes.com/athletic/6270389/2025/04/10/colts-matt-gay-released-spencer-shrader/
 
 **Police Seek Man Who They Say Violated a Corpse on an R Train**\
@@ -21,20 +37,4 @@ https://nytimes.com/2025/04/10/us/politics/ben-wikler-wisconsin-democrats.html
 **Leo Beenhakker, legendary former Real Madrid manager, dies at 82**\
 `Beenhakker's coaching career spanned over five decades and included title-winning stints at Real Madrid alongside Ajax and Feyenoord.`\
 https://nytimes.com/athletic/6270475/2025/04/10/leo-beenhakker-dead-real-madrid-manager/
-
-**Deepening Trade Fight With China Poses New Threat to U.S. Farmers**\
-`Soybean producers warn that farms could go under as the Trump administration hits China with new tariffs of 145 percent.`\
-https://nytimes.com/2025/04/10/business/economy/trump-tariffs-china-farmers.html
-
-**Trump’s Tariff Reversal: Confusion and Relief**\
-`Readers weigh in on the effects of President Trump’s moves on tariffs. Also: The use of preferred pronouns.`\
-https://nytimes.com/2025/04/10/opinion/trump-tariffs-reversal.html
-
-**Neutrinos Are Shrinking, and That’s a Good Thing for Physics**\
-`A new estimate of the ghostly particle’s maximum possible mass brings physicists a tad closer to understanding the universe.`\
-https://nytimes.com/2025/04/10/science/neutrinos-mass-physics.html
-
-**A Sign Your Fish Might Be on Drugs: Risky Behavior**\
-`Researchers studying pharmaceutical pollution tracked salmon that had been exposed to anti-anxiety medication. The fish appeared to lose their inhibitions.`\
-https://nytimes.com/2025/04/10/climate/salmon-anti-anxiety-drugs.html
 
