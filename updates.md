@@ -1,3 +1,11 @@
+**Senate Panel Demands Information About Gaza Protest Group at Columbia**\
+`Lawmakers want the university to turn over all its records about Students for Justice in Palestine. At Northwestern University, two professors sued over a separate request.`\
+https://nytimes.com/2025/04/09/nyregion/columbia-northwestern-gaza-congress.html
+
+**Trump Pauses “Reciprocal” Tariffs for Most Countries**\
+`President Trump decided to pause his “reciprocal” tariffs on most countries, excluding China, just hours after they went into effect.`\
+https://nytimes.com/video/us/politics/100000010101380/trump-tariff-pause-china.html
+
 **Tracy Schwarz, Mainstay of the New Lost City Ramblers, Dies at 86**\
 `He was the last surviving member of a retro-minded string trio whose celebration of prewar songs of the rural South put them at the heart of the folk revival.`\
 https://nytimes.com/2025/04/09/arts/music/tracy-schwarz-dead.html
