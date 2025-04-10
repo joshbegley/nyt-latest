@@ -1,3 +1,15 @@
+**Trump Escalates Use of Official Power to Intimidate and Punish His Perceived Foes**\
+`A presidential decree instructing the Justice Department to scrutinize whether a former official broke the law crosses a new line.`\
+https://nytimes.com/2025/04/10/us/politics/trump-officials-justice-department.html
+
+**Michael Hurley, a Singer Both Eccentric and Inspirational, Dies at 83**\
+`A folk troubadour with an eclectic style, he built a devoted following for his songs about love, death, drinking and a particularly sad werewolf.`\
+https://nytimes.com/2025/04/10/arts/music/michael-hurley-dead.html
+
+**Joan Brown Campbell Dies at 93; Led Largest Ecumenical Body in U.S.**\
+`A minister who headed the National Council of Churches, she was active in liberal causes in the 1990s and sought to counter the conservative Christian Coalition.`\
+https://nytimes.com/2025/04/10/us/politics/joan-brown-campbell-dead.html
+
 **Phoenix Hits 100 Degrees as Southwest Swelters in Spring Heat**\
 `Even in a region known for heat, this week’s highs, this early in the year, are an “anomaly,” the National Weather Service said.`\
 https://nytimes.com/2025/04/10/weather/phoenix-heat-100-degrees.html
