@@ -1,3 +1,7 @@
+**Listen: ‘Meet Jensen McRae and 3 Other Artists on the Rise’**\
+`What music and musicians are you excited about this spring?`\
+https://nytimes.com/2025/04/10/learning/listen-meet-jensen-mcrae-and-3-other-artists-on-the-rise.html
+
 **Here's how the Blues' playoff chase shapes up after some wild finishes Wednesday**\
 `The Blues lost 4-3 to Edmonton on Wednesday, but could clinch a playoff berth Saturday in Seattle.`\
 https://nytimes.com/athletic/6268720/2025/04/10/st-blues-playoff-chase/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6268729/2025/04/10/masters-memorabilia-tiger-woods/
 **Have you seen examples of health care fraud, waste or abuse? Tell us about it.**\
 `New York Times reporters are looking into cases of unnecessary and wasteful spending in government health programs.`\
 https://nytimes.com/2025/04/10/health/healthcare-fraud-callout.html
-
-**‘The Pitt’ Captures the Real Overcrowding Crisis in E.R.’s**\
-`From the “chairs” to the hallway medicine, the show’s depiction of an emergency medicine system that is beyond capacity rings true for medical experts.`\
-https://nytimes.com/2025/04/10/health/the-pitt-max-crowded-emergency-rooms.html
 

@@ -1,3 +1,7 @@
+**Here's how the Blues' playoff chase shapes up after some wild finishes Wednesday**\
+`The Blues lost 4-3 to Edmonton on Wednesday, but could clinch a playoff berth Saturday in Seattle.`\
+https://nytimes.com/athletic/6268720/2025/04/10/st-blues-playoff-chase/
+
 **Does Macklin Celebrini's record-setting game give him an edge in Calder Trophy race?**\
 `Celebrini is the fifth Sharks rookie to record a hat trick and the first to have a five-point game.`\
 https://nytimes.com/athletic/6269206/2025/04/10/macklin-celebrini-calder-trophy-race/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/10/health/healthcare-fraud-callout.html
 **‘The Pitt’ Captures the Real Overcrowding Crisis in E.R.’s**\
 `From the “chairs” to the hallway medicine, the show’s depiction of an emergency medicine system that is beyond capacity rings true for medical experts.`\
 https://nytimes.com/2025/04/10/health/the-pitt-max-crowded-emergency-rooms.html
-
-**Why Did Trump Change His Mind On Tariffs?**\
-`On Wednesday, President Trump paused the vast majority of the tariffs he had instituted for 90 days.`\
-https://nytimes.com/video/us/politics/100000010101900/trump-tariff-reversal-explainer.html
 

@@ -1,3 +1,7 @@
+**Here's how the Blues' playoff chase shapes up after some wild finishes Wednesday**\
+`The Blues lost 4-3 to Edmonton on Wednesday, but could clinch a playoff berth Saturday in Seattle.`\
+https://nytimes.com/athletic/6268720/2025/04/10/st-blues-playoff-chase/
+
 **Does Macklin Celebrini's record-setting game give him an edge in Calder Trophy race?**\
 `Celebrini is the fifth Sharks rookie to record a hat trick and the first to have a five-point game.`\
 https://nytimes.com/athletic/6269206/2025/04/10/macklin-celebrini-calder-trophy-race/
