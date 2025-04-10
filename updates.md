@@ -1,3 +1,11 @@
+**Hall of Famer Ken Griffey Jr. is working as a photographer at The Masters**\
+`Griffey Jr., an avid golfer, said he has played at Masters events before and was excited to get to shoot this year’s tournament.`\
+https://nytimes.com/athletic/6271055/2025/04/10/ken-griffey-jr-photographer-the-masters/
+
+**Trump Close to Winning Concessions From More Law Firms**\
+`Four or five firms could soon agree to deals that would be unveiled as a package, in an escalation of the president’s crackdown on an industry that has drawn his ire.`\
+https://nytimes.com/2025/04/10/us/politics/trump-law-firms.html
+
 **Tariff Angst Rises**\
 `Also, six died after helicopter crashed in the Hudson River. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/04/10/briefing/tariffs-wall-street-helicopter-crash-hudson-river.html
