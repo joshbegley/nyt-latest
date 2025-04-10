@@ -1,3 +1,7 @@
+**Does Macklin Celebrini's record-setting game give him an edge in Calder Trophy race?**\
+`Celebrini is the fifth Sharks rookie to record a hat trick and the first to have a five-point game.`\
+https://nytimes.com/athletic/6269206/2025/04/10/macklin-celebrini-calder-trophy-race/
+
 **The Bounce: Luka Dončić's Dallas return had everything. What's next as his Lakers chapter unfolds?**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6269593/2025/04/10/luka-doncic-lakers-mavericks-return-playoffs-the-bounce/
