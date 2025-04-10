@@ -1,3 +1,7 @@
+**Suns are now a cautionary tale and have only one card left to play**\
+`No team in the last four decades has faced a situation anywhere close to this hopeless.`\
+https://nytimes.com/athletic/6268131/2025/04/10/devin-booker-trade-suns-nba-thunder/
+
 **Greenberg: Ready for Heat-Bulls, Part 3? The Play-In Tournament beckons for both teams**\
 `Yes, it would be their third straight meeting in the Play-In Tournament, but the first time the game would be in Chicago.`\
 https://nytimes.com/athletic/6268866/2025/04/10/bulls-heat-play-in-tournament/
