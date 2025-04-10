@@ -1,40 +1,40 @@
-**Why Western Conference playoff teams have reason to hope — and panic**\
-`As the Western Conference playoff race shapes up, what are the strengths and weaknesses of the eight teams?`\
-https://nytimes.com/athletic/6268537/2025/04/10/nhl-western-playoffs-hope-concern-2025/
+**NBA Awards Watch: What should and will happen with MVP, All-NBA and other honors**\
+`Some tough choices remain with less than a week to go in the regular season, especially in the Defensive Player of the Year race.`\
+https://nytimes.com/athletic/6264402/2025/04/10/nba-awards-mvp-rookie-all-defense-predictions/
 
-**Why are Brazilian players finding success in the NWSL? It starts with Marta**\
-`Many Brazilian players cite their women's national team record goalscorer and Orlando Pride stalwart as a reason they came to NWSL`\
-https://nytimes.com/athletic/6268839/2025/04/10/brazilians-nwsl-marta-success/
+**Trump Administration Live Updates: Johnson to Try for Vote on G.O.P. Budget After Major Setback**\
+``\
+https://nytimes.com/live/2025/04/10/us/trump-news
 
-**Michelle Obama Addresses Divorce Rumors and Public Absences**\
-`The former first lady said on a podcast that people “couldn’t even fathom that I was making a choice for myself, that they had to assume that my husband and I are divorcing.”`\
-https://nytimes.com/2025/04/10/us/michelle-obama-divorce-rumors.html
+**Stanford WR Elic Ayomanor makes his pitch to 49ers: 'I think I'd fit well'**\
+`The headliners at Wednesday's event were a pair of receivers, Ayomanor and San Jose State's Nick Nash, who led the FBS in receiving in 2024.`\
+https://nytimes.com/athletic/6268457/2025/04/10/49ers-local-pro-day-ayomanor-nash-pole/
 
-**Hundreds of Israeli Air Force Reservists Call for Halt to Gaza War**\
-`A letter signed by reservists and retired officers accused the government of endangering hostages held by Hamas, highlighting a growing divide over the handling of the war.`\
-https://nytimes.com/2025/04/10/world/middleeast/israel-gaza-hamas-hostages-air-force.html
+**Ryan Greene chasing Frozen Four dream before Blackhawks decision**\
+`Greene is expected to sign with Chicago after his college season ends. But first, his Boston University Terriers go for NCAA glory.`\
+https://nytimes.com/athletic/6267674/2025/04/10/blackhawks-ryan-greene-nhl/
 
-**Wes Anderson and Richard Linklater to Compete at Cannes Film Festival**\
-`A sidebar to the competition will feature Scarlett Johansson’s directorial debut.`\
-https://nytimes.com/2025/04/10/movies/cannes-film-festivals-lineup.html
+**Could Fabian Lysell make the Bruins next year? Why speed and skill are not enough**\
+`Much of Lysell’s game remains a mystery. But nine varsity appearances have given Lysell belief.`\
+https://nytimes.com/athletic/6268075/2025/04/10/fabian-lysell-bruins-roster-2025-26/
 
-**Andre Onana, Nemanja Matic and why assessing goalkeepers with statistics is difficult**\
-`Why a focus on goals conceded and clean sheets alone is not a sensible way to assess a goalkeeper's ability`\
-https://nytimes.com/athletic/6268389/2025/04/10/onana-matic-goalkeeper-statistics/
+**How much does a beer and a hot dog cost you at Wrigley Field or the Rate? I did the math**\
+`At a Cubs game, a beer and hot dog could run $30. The White Sox cost a little less and are known for food variety (but not their baseball).`\
+https://nytimes.com/athletic/6265773/2025/04/10/cubs-white-sox-concessions-costs/
 
-**China Says Its Own Consumers Will Save the Day. But They’re Not Buying.**\
-`If sky-high U.S. tariffs hurt China’s exports, domestic spending will help make up for it, Beijing says. But shoppers were skittish even before the trade war.`\
-https://nytimes.com/2025/04/10/world/asia/china-trump-tariffs-consumers.html
+**What should we watch for in Ohio State spring game?**\
+`There are a few things we learned this spring that will be important to watch in Ohio State's spring game on Saturday.`\
+https://nytimes.com/athletic/6268273/2025/04/10/ohio-state-football-spring-game-preview-2025/
 
-**How a 'cold war' in Denver forced the Nuggets to clean house at a stunning moment**\
-`Why did the Nuggets choose to fire both coach Michael Malone and general manager Calvin Booth? And more importantly, why now?`\
-https://nytimes.com/athletic/6269100/2025/04/10/nuggets-firings-mike-malone-calvin-booth-nba/
+**Why Red Wings assistant Trent Yawney has been so effective developing defensemen**\
+`If history is any indication, Detroit's young defensemen seem to be in good hands.`\
+https://nytimes.com/athletic/6262695/2025/04/10/red-wings-trent-yawney-defensemen/
 
-**U.S. and China Headed for ‘Monumental’ Split, Putting World Economy on Edge**\
-`A deepening trade war could further weaken ties between the superpowers. The effects will reverberate everywhere.`\
-https://nytimes.com/2025/04/10/business/us-china-tariffs-trade-war.html
+**Chargers Mock Draft 3.0: A perfect fit at receiver, then a turn to the trenches**\
+`"The Beast" has been unleashed, meaning it's time for a fresh Chargers mock draft.`\
+https://nytimes.com/athletic/6268283/2025/04/10/los-angeles-chargers-mock-draft-tetairoa-mcmillan/
 
-**Wild's Zeev Buium looks ready for the next level as he returns to Frozen Four: 'Reminds me a lot of Cale Makar'**\
-`One NHL scout on Buium: "The stuff he’s doing on the blue line — Makar does that, Lane Hutson does that and Quinn Hughes does that."`\
-https://nytimes.com/athletic/6236628/2025/04/10/zeev-buium-frozen-four-denver-wild/
+**Knicks playoff predictions, evaluating the Karl-Anthony Towns trade and more: Mailbag**\
+`The Athletic's Knicks beat writer answers fan questions as the regular season closes.`\
+https://nytimes.com/athletic/6267156/2025/04/10/knicks-karl-anthony-towns-playoffs-mailbag/
 
