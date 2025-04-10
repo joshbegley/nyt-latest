@@ -1,3 +1,15 @@
+**A Champion of Oil Ends Her Bid to the Lead Bureau of Land Management**\
+`Kathleen Sgamma abruptly withdrew from consideration days after a memo surfaced in which she sharply criticized President Trump.`\
+https://nytimes.com/2025/04/10/climate/kathleen-sgamma-blm.html
+
+**8 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2025/04/10/books/review/new-books-recommendations.html
+
+**That’s a Wrap**\
+`Mushroom (or cauliflower) shawarma pitas, tofu larb and roasted vegetable burritos are too good to put down.`\
+https://nytimes.com/2025/04/10/dining/thats-a-wrap.html
+
 **At the Supreme Court, the Trump Agenda Is Always an ‘Emergency’**\
 `As legal challenges to the Trump administration mount, the justices are facing a key test — a flood of “emergency applications” asking for immediate intervention.`\
 https://nytimes.com/2025/04/10/us/politics/supreme-court-trump-emergency.html
