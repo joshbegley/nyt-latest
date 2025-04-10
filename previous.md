@@ -1,3 +1,19 @@
+**Billie Jean King Cup Finals in Shenzhen, China moves to September**\
+`The event was previously held at the end of the tennis season in November, to align with the Davis Cup.`\
+https://nytimes.com/athletic/6269234/2025/04/10/billie-jean-king-cup-finals-2025-dates-venue/
+
+**Here’s the latest.**\
+`(No description)`\
+https://nytimes.com/live/2025/04/10/business/trump-tariffs-stocks/heres-the-latest
+
+**Live Updates: Markets Rise After Trump Backs Down on Tariffs**\
+`Stocks in Asia and Europe rallied after President Trump paused punishing global levies. But U.S.-China trade tensions accelerated, and analysts cautioned that their full effects wouldn’t be felt for weeks.`\
+https://nytimes.com/live/2025/04/10/business/trump-tariffs-stocks
+
+**How Hamas and the U.S. Tried to Strike a Hostage Deal**\
+`Officials met Hamas three times, breaking with a policy against contacting a group the U.S. considers a terrorist organization. But Israeli opposition and shifting positions doomed the effort.`\
+https://nytimes.com/2025/04/10/world/middleeast/trump-israel-hamas-hostages.html
+
 **After Trump’s Pause, the European Union Takes a Moment to Reassess**\
 `The bloc was about to enact retaliatory tariffs when President Trump made his last-minute U-turn. What comes next is unclear.`\
 https://nytimes.com/2025/04/10/world/europe/european-union-trump-tariffs-pause.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6268291/2025/04/10/baltimore-ravens-nfl-draft-the-b
 **The New York Times International Edition in Print for Friday, April 11, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/04/10/todays-new-york-times-international-edition
-
-**Bengals trends and 'The Beast' 2025 Draft Guide: Profiling who fits in Cincinnati**\
-`Dane Brugler's annual draft encyclopedia gives a clearer picture of which players match the Bengals' tendencies.`\
-https://nytimes.com/athletic/6268419/2025/04/10/bengals-the-beast-nfl-draft-fits/
-
-**Falcons takeaways from 'The Beast': Edge rushers, trading down and dream scenario**\
-`Five Falcons-centric takeaways from including our favorite fourth-round prospects and a wild-card position to watch.`\
-https://nytimes.com/athletic/6267260/2025/04/10/falcons-nfl-draft-the-beast-reaction/
-
-**Patriots 7-round mock draft: We use 'The Beast' to find a wide receiver, left tackle**\
-`We use "The Beast" from The Athletic NFL Draft expert Dane Brugler as a guide for our latest Patriots mock draft.`\
-https://nytimes.com/athletic/6267197/2025/04/10/patriots-nfl-mock-draft-armand-membou/
-
-**Do We Really Expect Investors to Forget What Just Happened?**\
-`The reciprocal tariffs might be gone for now, but slow growth, inflation and dings to American credibility remain.`\
-https://nytimes.com/2025/04/10/opinion/tariffs-trump-pause-reverse.html
 

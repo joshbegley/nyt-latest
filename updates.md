@@ -1,3 +1,19 @@
+**Billie Jean King Cup Finals in Shenzhen, China moves to September**\
+`The event was previously held at the end of the tennis season in November, to align with the Davis Cup.`\
+https://nytimes.com/athletic/6269234/2025/04/10/billie-jean-king-cup-finals-2025-dates-venue/
+
+**Here’s the latest.**\
+`(No description)`\
+https://nytimes.com/live/2025/04/10/business/trump-tariffs-stocks/heres-the-latest
+
+**Live Updates: Markets Rise After Trump Backs Down on Tariffs**\
+`Stocks in Asia and Europe rallied after President Trump paused punishing global levies. But U.S.-China trade tensions accelerated, and analysts cautioned that their full effects wouldn’t be felt for weeks.`\
+https://nytimes.com/live/2025/04/10/business/trump-tariffs-stocks
+
+**How Hamas and the U.S. Tried to Strike a Hostage Deal**\
+`Officials met Hamas three times, breaking with a policy against contacting a group the U.S. considers a terrorist organization. But Israeli opposition and shifting positions doomed the effort.`\
+https://nytimes.com/2025/04/10/world/middleeast/trump-israel-hamas-hostages.html
+
 **After Trump’s Pause, the European Union Takes a Moment to Reassess**\
 `The bloc was about to enact retaliatory tariffs when President Trump made his last-minute U-turn. What comes next is unclear.`\
 https://nytimes.com/2025/04/10/world/europe/european-union-trump-tariffs-pause.html
