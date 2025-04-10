@@ -1,3 +1,15 @@
+**Egg Prices Continued to Rise in March**\
+`Egg prices have reached record highs as bird flu outbreaks have hit poultry farms and forced producers to cull tens of millions of hens.`\
+https://nytimes.com/2025/04/10/us/politics/egg-prices-continued-to-rise-in-march.html
+
+**Fridrik Olafsson, Grandmaster Who Led Iceland’s Rise in Chess, Dies at 90**\
+`At a time before his country became a chess powerhouse, he defeated four world champions, including Bobby Fischer and another in an unlikely turn of events.`\
+https://nytimes.com/2025/04/10/world/europe/fridrik-olafsson-dead.html
+
+**Barcelona's front three are a ruthless counter-attacking machine - this is why**\
+`Barca are on course for a treble this season and much of that is due to the play of their incredible front three`\
+https://nytimes.com/athletic/6269412/2025/04/10/barcelona-raphinha-lewandowski-yamal-counter-attack-analysis/
+
 **Death Toll in Dominican Republic Nightclub Hits 218**\
 `The number of dead in a roof collapse in Santo Domingo keeps rising. Officials have not said how many people were in the club at the time of the disaster.`\
 https://nytimes.com/2025/04/10/world/americas/dominican-republic-nightclub-collapse-deaths.html
