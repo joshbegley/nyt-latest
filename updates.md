@@ -1,3 +1,7 @@
+**New Jersey Devils clinch third playoff berth in last 14 seasons**\
+`The Devils secured third in the Metropolitan Division despite some major injuries on their roster this season.`\
+https://nytimes.com/athletic/6261326/2025/04/09/new-jersey-devils-nhl-playoffs-clinch-berth/
+
 **Stocks Jump in Asia After Trump’s Tariff Reprieve**\
 `Markets in Japan, South Korea and Taiwan soar after the U.S. president pauses punishing tariffs. Gains in mainland China were modest as trade hostilities heat up between Washington and Beijing.`\
 https://nytimes.com/2025/04/09/business/trump-tariffs-stocks-asia.html
