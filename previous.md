@@ -18,7 +18,7 @@ https://nytimes.com/video/us/politics/100000010101380/trump-tariff-pause-china.h
 `He was the last surviving member of a retro-minded string trio whose celebration of prewar songs of the rural South put them at the heart of the folk revival.`\
 https://nytimes.com/2025/04/09/arts/music/tracy-schwarz-dead.html
 
-**Police investigated domestic disturbance involving Tyreek Hill, no charges filed**\
+**Tyreek Hill not charged after police respond to domestic disturbance**\
 `Police responded to a call on Monday and the case has since been closed by the Sunny Isles Beach Police Department.`\
 https://nytimes.com/athletic/6268078/2025/04/09/tyreek-hill-domestic-disturbance-miami-dolphins/
 

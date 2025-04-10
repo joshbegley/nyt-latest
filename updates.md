@@ -1,3 +1,7 @@
+**Tyreek Hill not charged after police respond to domestic disturbance**\
+`Police responded to a call on Monday and the case has since been closed by the Sunny Isles Beach Police Department.`\
+https://nytimes.com/athletic/6268078/2025/04/09/tyreek-hill-domestic-disturbance-miami-dolphins/
+
 **House Votes to Curb National Injunctions, Targeting Judges Who Thwart Trump**\
 `The legislation is part of an escalating Republican campaign to take aim at judges who have moved to halt some of President Trump’s executive orders.`\
 https://nytimes.com/2025/04/09/us/politics/house-vote-federal-judges-trump.html
