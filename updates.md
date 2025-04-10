@@ -1,3 +1,11 @@
+**Fantasy baseball bullpen report: Orioles' Yennier Canó, Padres' Robert Suarez and more**\
+`Greg Jewett provides a league-wide bullpen update so you know who to hold, drop or target on waivers and via trade. `\
+https://nytimes.com/athletic/6269703/2025/04/10/fantasy-baseball-bullpen-report-yennier-cano/
+
+**The Senators rewarded Steve Staios' faith. Now they must show what they can do together**\
+`Staios was patient with his group throughout the season, and that proved to be the right approach as the Senators enter the playoffs.`\
+https://nytimes.com/athletic/6267624/2025/04/10/senators-playoffs-staios-nhl/
+
 **Bond Market Sell-Off Prompts Bank of England to Make Unusual Move**\
 `Britain’s central bank altered a planned bond sale, citing “recent market volatility.”`\
 https://nytimes.com/2025/04/10/business/economy/bonds-uk-gilts.html
