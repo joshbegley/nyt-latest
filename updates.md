@@ -1,3 +1,7 @@
+**The Case for Giving This Trade War a Chance**\
+`Oren Cass argues tariffs are worth it.`\
+https://nytimes.com/video/opinion/100000010096873/the-case-for-giving-this-trade-war-a-chance.html
+
 **Kennedy Offers Qualified Support for Measles Vaccination**\
 `In an interview with CBS, the health secretary also suggested he wasn’t familiar with massive cuts to state funding for public health.`\
 https://nytimes.com/2025/04/09/health/kennedy-offers-qualified-support-for-measles-vaccination.html

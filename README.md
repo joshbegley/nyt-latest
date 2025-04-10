@@ -1,3 +1,11 @@
+**Appeals Court Clears Path for Trump to Resume Firing Probationary Workers**\
+`The U.S. Court of Appeals for the Fourth Circuit sided with the government to block a lower-court ruling that had led to the reinstatement of thousands of federal workers.`\
+https://nytimes.com/2025/04/09/us/politics/trump-federal-workers-firing.html
+
+**Dodger Details: Andy Pages finding his swing, pitching depth isn't going deep**\
+`A starting rotation that led the majors in ERA during the 8-0 start now has real question marks. Meanwhile, hitters' whiffs are surprising.`\
+https://nytimes.com/athletic/6268556/2025/04/09/los-angeles-dodgers-andy-pages-pitching/
+
 **The Case for Giving This Trade War a Chance**\
 `Oren Cass argues tariffs are worth it.`\
 https://nytimes.com/video/opinion/100000010096873/the-case-for-giving-this-trade-war-a-chance.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/09/nyregion/columbia-northwestern-gaza-congress.html
 **Trump Pauses “Reciprocal” Tariffs for Most Countries**\
 `President Trump decided to pause his “reciprocal” tariffs on most countries, excluding China, just hours after they went into effect.`\
 https://nytimes.com/video/us/politics/100000010101380/trump-tariff-pause-china.html
-
-**Tracy Schwarz, Mainstay of the New Lost City Ramblers, Dies at 86**\
-`He was the last surviving member of a retro-minded string trio whose celebration of prewar songs of the rural South put them at the heart of the folk revival.`\
-https://nytimes.com/2025/04/09/arts/music/tracy-schwarz-dead.html
-
-**Tyreek Hill not charged after police respond to domestic disturbance**\
-`Police responded to a call on Monday and the case has since been closed by the Sunny Isles Beach Police Department.`\
-https://nytimes.com/athletic/6268078/2025/04/09/tyreek-hill-domestic-disturbance-miami-dolphins/
 
