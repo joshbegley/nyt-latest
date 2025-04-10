@@ -1,3 +1,19 @@
+**‘Her Majesty’ Is Glamorous and Salty Fun**\
+`A badly behaving princess is suddenly forced to take on more responsibility than she is ready for in this cynical Spanish comedy.`\
+https://nytimes.com/2025/04/10/arts/television/her-majesty-su-majestad-prime.html
+
+**Live Updates: Helicopter Crashes Into Hudson River Near Manhattan**\
+`Five people have been pulled from the water, according to two people briefed on the rescue efforts. Their condition was not yet known.`\
+https://nytimes.com/live/2025/04/10/nyregion/hudson-river-helicopter-crash
+
+**Trump May Seek Judicial Oversight of Columbia, Potentially for Years**\
+`The Trump administration is discussing asking a judge to enforce any deal it reaches with the school, which the White House says has not done enough to address antisemitism.`\
+https://nytimes.com/2025/04/10/nyregion/columbia-trump-consent-decree.html
+
+**Andrew Tate is Accused of Rape and Threatening a Woman with Gun in U.K. Lawsuit**\
+`Four women, who are suing the influencer in Britain, gave accounts of being choked and assaulted in encounters that took place between 2013 and 2015. Mr. Tate has denied the accusations.`\
+https://nytimes.com/2025/04/10/world/europe/andrew-tate-uk-court.html
+
 **Gerald Luss, Master of Midcentury-Modern Design, Dies at 98**\
 `His work on the interiors of the Time-Life Building helped set the tone for postwar office style and provided a model for the set of “Mad Men.”`\
 https://nytimes.com/2025/04/10/arts/design/gerald-luss-dead.html
