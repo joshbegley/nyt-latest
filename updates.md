@@ -1,3 +1,17 @@
+**American Scholar Accused of Insulting Thai Monarch Is Released on Bail**\
+`U.S. officials had expressed alarm at the arrest of the scholar, Paul Chambers. The Thai authorities confiscated his passport and fitted him with an ankle monitor, his lawyers said.`\
+https://nytimes.com/2025/04/10/world/asia/paul-chambers-thailand-release.html
+
+**Kevin De Bruyne next club odds: Miami, Munich or the Middle East?**\
+`Julia Ranney assesses the bookmakers’ predictions on which club will snap up Manchester City’s Kevin De Bruyne.
+`\
+https://nytimes.com/athletic/6266641/2025/04/10/kevin-de-bruyne-next-club-odds-betting-predictions/
+
+**Why you should stop betting on defenders to get booked**\
+`Sam Tighe debunks the myths around defenders and yellow cards, through a betting lens.
+`\
+https://nytimes.com/athletic/6266592/2025/04/10/football-betting-booking-odds-tips-predictions/
+
 **Kevin De Bruyne next club odds: Miami, Munich or the Middle East?**\
 `Julia Ranney assesses the bookmakers’ predictions on which club will snap up Manchester City’s Kevin De Bruyne.
 `\
