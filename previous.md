@@ -1,3 +1,15 @@
+**Pressuring Migrants to ‘Self-Deport,’ White House Moves to Cancel Social Security Numbers**\
+`By placing migrants in Social Security’s “death master file,” the Trump administration is seeking to cut off their access to credit cards, bank accounts and other financial services.`\
+https://nytimes.com/2025/04/10/us/politics/migrants-deport-social-security-doge.html
+
+**U.S. Ambassador to Ukraine Steps Down Amid Strained Ties Under Trump**\
+`The departure may complicate the already delicate relationship between Washington and Kyiv, which has been stressed by President Trump’s efforts to end the war.`\
+https://nytimes.com/2025/04/10/world/europe/us-ukraine-ambassador-resigns.html
+
+**Fred Couples, 65, shoots under par at the Masters to tie record**\
+`Couples is the second man 65 or older to shoot under par at the Masters, the first since Tom Watson in 2015.`\
+https://nytimes.com/athletic/6270702/2025/04/10/masters-fred-couples-record/
+
 **Death Toll in Night Club Roof Collapse Tragedy Passes 200**\
 `Authorities in the Dominican Republic ended their search for bodies trapped in a nightclub, where a roof collapsed during a Rubby Pérez concert, killing more than 220 people.`\
 https://nytimes.com/video/world/americas/100000010103518/dominican-repubulic-club-collapse.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/10/learning/whats-going-on-in-this-picture-april-14-
 **What’s Going On in This Graph? | April 23, 2025**\
 `What do you notice about how the pandemic changed Americans’ lives? What do you wonder about these changes?`\
 https://nytimes.com/2025/04/10/learning/whats-going-on-in-this-graph-april-23-2025.html
-
-**Climate Change Could Become a Global Economic Disaster**\
-`New warnings from financial firms and insurers point to a future defined by profound risks to the global economy from heat, storms and other disasters.`\
-https://nytimes.com/2025/04/10/climate/climate-change-economic-effects.html
-
-**In Congress, a Day Can Last Months if Politics Demands It**\
-`House Republicans are so intent on avoiding tough votes on President Trump’s tariffs that they have rewritten the calendar.`\
-https://nytimes.com/2025/04/10/us/congress-johnson-calendar.html
-
-**Chip Roy Says Promise of Deep Entitlement Cuts Won His Vote**\
-`The Texas Republican, a holdout on the plan until the end, said commitments from President Trump and G.O.P. senators to pursue deeper spending cuts persuaded him to vote yes.`\
-https://nytimes.com/2025/04/10/us/politics/chip-roy-says-promise-of-deep-entitlement-cuts-won-his-vote.html
 

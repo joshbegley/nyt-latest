@@ -1,3 +1,15 @@
+**Pressuring Migrants to ‘Self-Deport,’ White House Moves to Cancel Social Security Numbers**\
+`By placing migrants in Social Security’s “death master file,” the Trump administration is seeking to cut off their access to credit cards, bank accounts and other financial services.`\
+https://nytimes.com/2025/04/10/us/politics/migrants-deport-social-security-doge.html
+
+**U.S. Ambassador to Ukraine Steps Down Amid Strained Ties Under Trump**\
+`The departure may complicate the already delicate relationship between Washington and Kyiv, which has been stressed by President Trump’s efforts to end the war.`\
+https://nytimes.com/2025/04/10/world/europe/us-ukraine-ambassador-resigns.html
+
+**Fred Couples, 65, shoots under par at the Masters to tie record**\
+`Couples is the second man 65 or older to shoot under par at the Masters, the first since Tom Watson in 2015.`\
+https://nytimes.com/athletic/6270702/2025/04/10/masters-fred-couples-record/
+
 **Death Toll in Night Club Roof Collapse Tragedy Passes 200**\
 `Authorities in the Dominican Republic ended their search for bodies trapped in a nightclub, where a roof collapsed during a Rubby Pérez concert, killing more than 220 people.`\
 https://nytimes.com/video/world/americas/100000010103518/dominican-repubulic-club-collapse.html
