@@ -1,3 +1,15 @@
+**Ask Ornstein Q&A: Our football insider answers your questions**\
+`Here is your opportunity to ask David Ornstein anything you want about the world of football`\
+https://nytimes.com/athletic/6269135/2025/04/10/ask-ornstein-qa-our-football-insider-answers-your-questions-24/
+
+**Nottingham Forest set for late calls on Wood, Elanga, Awoniyi availability**\
+`Nuno Espirito Santo says Nottingham Forest are hopeful the three players can return against Everton on Saturday.`\
+https://nytimes.com/athletic/6269665/2025/04/10/wood-elanga-awoniyi-nottingham-forest-injury-update/
+
+**Asian Nations, Holding Few Cards, Seek Trade Talks With Trump**\
+`Southeast Asian leaders are doubling down on trying to placate the U.S. president. “We may have to comply,” Thailand’s finance minister said of his demands.`\
+https://nytimes.com/2025/04/10/world/asia/trump-asia-trade-leverage.html
+
 **Why Wasn’t Anyone Traumatized in the ‘White Lotus’ Finale?**\
 `After a violent climax to the third season of the hit HBO show, everyone seems A-OK. Was it a Hollywood ending, or a natural trauma response?`\
 https://nytimes.com/2025/04/10/arts/television/white-lotus-season-3-trauma.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/10/world/europe/fridrik-olafsson-dead.html
 **Death Toll in Dominican Republic Nightclub Hits 218**\
 `The number of dead in a roof collapse in Santo Domingo keeps rising. Officials have not said how many people were in the club at the time of the disaster.`\
 https://nytimes.com/2025/04/10/world/americas/dominican-republic-nightclub-collapse-deaths.html
-
-**16 stats: Blues' turnaround, Lane Hutson's stardom and Stars' struggles**\
-`Plus, who would be the top candidates for an award for the league's best defensive defenseman this season?`\
-https://nytimes.com/athletic/6267450/2025/04/10/blues-lane-hutson-canadiens-stars-nhl/
-
-**Prada to Buy Versace for Nearly $1.4 Billion**\
-`The deal is a big bet on the value of “Made In Italy.”`\
-https://nytimes.com/2025/04/10/style/prada-versace-deal.html
-
-**What to Expect After Trump’s Tariff About-Face**\
-`Global markets are rallying on President Trump’s decision to pause most of his sweeping levies. But investors remain unsettled, especially as Washington and Beijing face off.`\
-https://nytimes.com/2025/04/10/business/dealbook/trump-tariff-pause-questions.html
 
