@@ -1,3 +1,7 @@
+**Bengals trends and 'The Beast' 2025 Draft Guide: Profiling who fits in Cincinnati**\
+`Dane Brugler's annual draft encyclopedia gives a clearer picture of which players match the Bengals' tendencies.`\
+https://nytimes.com/athletic/6268419/2025/04/10/bengals-the-beast-nfl-draft-fits/
+
 **Falcons takeaways from 'The Beast': Edge rushers, trading down and dream scenario**\
 `Five Falcons-centric takeaways from including our favorite fourth-round prospects and a wild-card position to watch.`\
 https://nytimes.com/athletic/6267260/2025/04/10/falcons-nfl-draft-the-beast-reaction/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/10/business/trump-china-tariffs-prices-goods.html
 **‘Chicken Jockey!’: How a Crazy Catchphrase Took Over Multiplexes**\
 `When Jack Black yells that in “A Minecraft Movie,” young audiences respond raucously. The director approves, but some theaters don’t. Here’s what to know.`\
 https://nytimes.com/2025/04/10/movies/chicken-jockey-minecraft-movie.html
-
-**Outside His Political Base, a Canadian’s Trumpian Pitch Is a Harder Sell**\
-`Pierre Poilievre, the Conservative seeking to become prime minister, fires up the faithful in Alberta, including Trump supporters, with his anti-elitist, anti-woke message.`\
-https://nytimes.com/2025/04/10/world/americas/poilievre-populism-alberta.html
 
