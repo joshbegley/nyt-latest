@@ -1,3 +1,7 @@
+**At the Supreme Court, the Trump Agenda Is Always an ‘Emergency’**\
+`As legal challenges to the Trump administration mount, the justices are facing a key test — a flood of “emergency applications” asking for immediate intervention.`\
+https://nytimes.com/2025/04/10/us/politics/supreme-court-trump-emergency.html
+
 **Inside Trump’s Plan to ‘Get’ Greenland: Persuasion, Not Invasion**\
 `The island’s population might not be easily convinced as the president tries to clinch one of history’s greatest real estate deals.`\
 https://nytimes.com/2025/04/10/us/politics/trump-greenland-denmark.html
