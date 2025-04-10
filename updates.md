@@ -1,3 +1,15 @@
+**Tariff Angst Rises**\
+`Also, six died after helicopter crashed in the Hudson River. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/04/10/briefing/tariffs-wall-street-helicopter-crash-hudson-river.html
+
+**Trump, Offering Few Details, Insists ‘Everybody’ Wants to Make a Deal With the U.S.**\
+`The administration says foreign governments are racing to the United States to negotiate, but exactly which countries might strike a deal — and over what — remains unclear.`\
+https://nytimes.com/2025/04/10/us/politics/trump-tariffs-trade-deals.html
+
+**If It Exists, Someone Has Left It in an Uber**\
+`The company’s annual list of items passengers have left behind includes a mannequin head with human hair, a urinal and a chain saw.`\
+https://nytimes.com/2025/04/10/style/uber-lost-and-found-list.html
+
 **Watch: Encouraging traits? Too stiff? A debate over Shemar Stewart**\
 `"The Athletic Football Show" debates whether the Texas A&M edge rusher should be viewed as a top prospect in this year's draft.
 `\
