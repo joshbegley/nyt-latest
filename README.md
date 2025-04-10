@@ -1,3 +1,7 @@
+**PSG show the importance of variety after beating Villa with three very different goals**\
+`PSG beat Aston Villa 3-1 on Wednesday night in their Champions League quarter-final first leg`\
+https://nytimes.com/athletic/6268480/2025/04/10/psg-champions-league-aston-villa-analysis/
+
 **'It's not done yet': Why Unai Emery and his players still believe Aston Villa can progress vs PSG**\
 `A third Parisian goal in injury time was a cruel blow but Villa's manager is confident his team can turn it around next week`\
 https://nytimes.com/athletic/6268179/2025/04/10/aston-villa-psg-champions-league-belief/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6268131/2025/04/10/devin-booker-trade-suns-nba-thun
 **Greenberg: Ready for Heat-Bulls, Part 3? The Play-In Tournament beckons for both teams**\
 `Yes, it would be their third straight meeting in the Play-In Tournament, but the first time the game would be in Chicago.`\
 https://nytimes.com/athletic/6268866/2025/04/10/bulls-heat-play-in-tournament/
-
-**Suns miss postseason: How NBA's most expensive team struggled so badly**\
-`Boasting the NBA's most expensive roster, Phoenix began the season with championship hopes and a new coach.`\
-https://nytimes.com/athletic/6268073/2025/04/10/phoenix-suns-miss-nba-postseason/
 

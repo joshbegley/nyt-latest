@@ -1,3 +1,7 @@
+**'It's not done yet': Why Unai Emery and his players still believe Aston Villa can progress vs PSG**\
+`A third Parisian goal in injury time was a cruel blow but Villa's manager is confident his team can turn it around next week`\
+https://nytimes.com/athletic/6268179/2025/04/10/aston-villa-psg-champions-league-belief/
+
 **Braves, Austin Riley waste big scoring opportunities in loss to Phillies**\
 `"We had the deck stacked in our favor a couple of times and just couldn't pierce a gap, get a big hit," Brian Snitker said of the 4-3 loss.`\
 https://nytimes.com/athletic/6268900/2025/04/10/braves-austin-riley-waste-big-scoring-opportunities-phillies-loss/
