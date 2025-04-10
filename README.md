@@ -1,3 +1,7 @@
+**American Scholar Accused of Insulting Thai Monarch Is Released on Bail**\
+`U.S. officials had expressed alarm at the arrest of the scholar, Paul Chambers. The Thai authorities confiscated his passport and fitted him with an ankle monitor, his lawyers said.`\
+https://nytimes.com/2025/04/10/world/asia/paul-chambers-thailand-release.html
+
 **L.A. Woman Is Arrested After Pointing Gun at Officers, Police Say**\
 `Jillian Lauren Shriner, an author who is married to a member of the band Weezer, was charged with attempted murder, the Los Angeles Police Department said.`\
 https://nytimes.com/2025/04/10/us/weezer-scott-shriner-jillian-lauren.html
@@ -35,8 +39,4 @@ https://nytimes.com/2025/04/10/crosswords/spelling-bee-forum.html
 **'He was gonna be our guy forever': Mavs fans seek closure in Luka Dončić's return**\
 `"I don't even know how I played this game," Dončić said. "So many emotions."`\
 https://nytimes.com/athletic/6269007/2025/04/10/luka-doncic-mavericks-fans-first-game-in-dallas-since-trade/
-
-**Yamal is a superstar at 17. Barca and Flick need to look after him for the run-in**\
-`Yamal shone again for Barcelona against Borussia Dortmund as they took a big step towards the Champions League semi-finals`\
-https://nytimes.com/athletic/6269078/2025/04/10/lamine-yamal-barcelona-champions-league/
 
