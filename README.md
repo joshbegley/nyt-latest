@@ -1,3 +1,7 @@
+**Medicare Bleeds Billions on Pricey Bandages, and Doctors Get a Cut**\
+`Medicare spending on “skin substitutes” made of dried placenta has soared as doctors pocket lucrative discounts from sellers.`\
+https://nytimes.com/2025/04/10/health/skin-substitutes-medicare-costs.html
+
 **Here’s the budget math that worried House conservatives.**\
 `By Alicia Parlapiano and Margot Sanger-Katz`\
 https://nytimes.com/live/2025/04/10/us/trump-news/heres-the-budget-math-that-worried-house-conservatives
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/10/us/politics/house-budget-vote-trump-republicans.h
 **Trump’s Tariff Reversal Calms Some G.O.P. Nerves, but Questions Linger**\
 `Most Republicans welcomed the unexpected three-month pause on several of President Trump’s tariffs, but some want more clarity about the president’s end game and more power for Congress over trade.`\
 https://nytimes.com/2025/04/10/us/politics/trump-tariffs-republicans-congress.html
-
-**Canucks offseason to-do list: Extending Tocchet, the Pettersson decision, more**\
-`The Canucks should feel a lot of pressure to get back to competing, and ideally contending, next season.`\
-https://nytimes.com/athletic/6269147/2025/04/10/canucks-rick-tocchet-elias-pettersson-standings/
 
