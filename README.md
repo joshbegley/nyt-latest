@@ -1,3 +1,11 @@
+**More European Opera Houses Welcome Back Anna Netrebko**\
+`The star soprano, who lost work after Russia invaded Ukraine because of her past support of President Vladimir V. Putin of Russia, will return to the stage in Zurich and London.`\
+https://nytimes.com/2025/04/10/arts/music/anna-netrebko-london-zurich.html
+
+**Helicopters Pack New York’s Skies, Despite Years of Noise and Air Pollution Complaints**\
+`Authorities say the industry has a roughly $50 million annual impact on the city, but the number of tourist helicopter flights has halved since 2016.`\
+https://nytimes.com/2025/04/10/nyregion/helicopters-pack-new-yorks-skies-despite-years-of-noise-and-air-pollution-complaints.html
+
 **Can Lane Hutson’s rookie season give us a clue as to how Ivan Demidov will be coached?**\
 `Canadiens coach Martin St. Louis won't talk about Demidov now, but he will talk about Hutson and there might be clues in those comments.`\
 https://nytimes.com/athletic/6271185/2025/04/10/canadiens-ivan-demidov-lane-hutson/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/10/us/politics/joan-brown-campbell-dead.html
 **Phoenix Hits 100 Degrees as Southwest Swelters in Spring Heat**\
 `Even in a region known for heat, this week’s highs, this early in the year, are an “anomaly,” the National Weather Service said.`\
 https://nytimes.com/2025/04/10/weather/phoenix-heat-100-degrees.html
-
-**In Cabinet Meeting, Musk Seems to Drastically Lower DOGE’s Savings Goal**\
-`Musk said his group was on pace to cut $150 billion from the federal budget in one budget year. That would be a sharp drop from his previous stated goal of $1 trillion.`\
-https://nytimes.com/2025/04/10/us/politics/musk-doge-drops-goal.html
-
-**Boston’s Museum of Fine Arts Names Next Director**\
-`Pierre Terjanian, the museum’s current chief of curatorial affairs and conservation, will start in his new role in July.`\
-https://nytimes.com/2025/04/10/arts/design/museum-of-fine-arts-boston-pierre-terjanian.html
 
