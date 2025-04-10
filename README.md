@@ -32,8 +32,8 @@ https://nytimes.com/2025/04/10/crosswords/spelling-bee-forum.html
 `"I don't even know how I played this game," Dončić said. "So many emotions."`\
 https://nytimes.com/athletic/6269007/2025/04/10/luka-doncic-mavericks-fans-first-game-in-dallas-since-trade/
 
-**Yamal is a superstar at 17. Barcelona and Flick need to look after him for the run-in**\
-`Lamine Yamal shone for Barcelona against Borussia Dortmund as they won 4-0 on Wednesday evening`\
+**Yamal is a superstar at 17. Barca and Flick need to look after him for the run-in**\
+`Yamal shone again for Barcelona against Borussia Dortmund as they took a big step towards the Champions League semi-finals`\
 https://nytimes.com/athletic/6269078/2025/04/10/lamine-yamal-barcelona-champions-league/
 
 **Trump Repeals Biden-Era Limit on Water Flow in Shower Heads**\
