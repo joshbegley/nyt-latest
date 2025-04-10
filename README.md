@@ -1,3 +1,7 @@
+**Suns are now a cautionary tale and have only one card left to play**\
+`No team in the last four decades has faced a situation anywhere close to this hopeless.`\
+https://nytimes.com/athletic/6268131/2025/04/10/devin-booker-trade-suns-nba-thunder/
+
 **Greenberg: Ready for Heat-Bulls, Part 3? The Play-In Tournament beckons for both teams**\
 `Yes, it would be their third straight meeting in the Play-In Tournament, but the first time the game would be in Chicago.`\
 https://nytimes.com/athletic/6268866/2025/04/10/bulls-heat-play-in-tournament/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6265085/2025/04/10/fantasy-premier-league-double-ga
 **The great Liam Delap transfer auction - feat. Chelsea, Man Utd and half the Premier League**\
 `The Old Trafford club will be just one of a host of suitors for Ipswich's highly-rated striker this summer`\
 https://nytimes.com/athletic/6266733/2025/04/10/liam-delap-manchester-united-transfer-auction/
-
-**Madrid's board must shoulder some blame for their Arsenal thrashing - it's not all on Ancelotti**\
-`It is easy to single out the manager for Tuesday's collapse, but he has been calling for reinforcements since the middle of last season`\
-https://nytimes.com/athletic/6266892/2025/04/10/real-madrid-ancelotti-opinion/
 
