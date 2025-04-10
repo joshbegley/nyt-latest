@@ -1,3 +1,11 @@
+**The Pulse: Imagine trading Luka Dončić**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6267718/2025/04/10/luka-doncic-dallas-return-mavericks-the-pulse/
+
+**President Trump’s Retreat**\
+`We explain the president’s pause on tariffs.`\
+https://nytimes.com/2025/04/10/briefing/president-trumps-retreat.html
+
 **Lyon's Fonseca says he is being made an example of with 'unbelievable' ban**\
 `Fonseca will be in the dugout for his side’s Europa League clash with Man Utd due to the sanction only applying in French competitions.`\
 https://nytimes.com/athletic/6269239/2025/04/10/lyon-manchester-united-fonseca-ban/

@@ -1,3 +1,11 @@
+**The Pulse: Imagine trading Luka Dončić**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6267718/2025/04/10/luka-doncic-dallas-return-mavericks-the-pulse/
+
+**President Trump’s Retreat**\
+`We explain the president’s pause on tariffs.`\
+https://nytimes.com/2025/04/10/briefing/president-trumps-retreat.html
+
 **Lyon's Fonseca says he is being made an example of with 'unbelievable' ban**\
 `Fonseca will be in the dugout for his side’s Europa League clash with Man Utd due to the sanction only applying in French competitions.`\
 https://nytimes.com/athletic/6269239/2025/04/10/lyon-manchester-united-fonseca-ban/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6268315/2025/04/10/chiefs-charles-omenihu-mike-edwa
 **Vikings 7-round mock draft 3.0: Using ‘The Beast’ to find the best fits**\
 `We have the Vikings trading down out of the first round to add two picks and fortifying both the offensive and defensive lines.`\
 https://nytimes.com/athletic/6267473/2025/04/10/vikings-nfl-mock-draft-beast-donovan-jackson/
-
-**What we learned about the Leafs from Florida trip: Matthew Knies' maturity and more**\
-`Knies' evolution into a leader for Toronto is just one takeaway from a telling trip down South with the playoffs on the horizon.`\
-https://nytimes.com/athletic/6268717/2025/04/10/maple-leafs-lightning-panthers-matthew-knies/
-
-**Masters big board: Scheffler, McIlroy and the rest of the Augusta favorites**\
-`Ahead of this year's Masters, The Athletic has a big board of its top 30 contenders to win.`\
-https://nytimes.com/athletic/6267535/2025/04/10/masters-2025-favorites-scottie-scheffler-rory-mcilroy/
 
