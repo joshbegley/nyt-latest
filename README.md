@@ -1,3 +1,11 @@
+**From ‘Be Cool!’ to ‘Getting Yippy’: Inside Trump’s Reversal on Tariffs**\
+`Economic turmoil, particularly a rapid rise in government bond yields, caused President Trump to reverse course on the steep levies.`\
+https://nytimes.com/2025/04/09/us/politics/trump-tariff-pause-be-cool.html
+
+**Flight Ban on Parrots Leaves Bronx Grandmother in Limbo for 4 Days**\
+`Plucky, an African gray parrot, accompanied its owner, Maria Fraterrigo, on a Frontier Airlines flight to Puerto Rico in January. But a gate agent would not let it on board the return flight.`\
+https://nytimes.com/2025/04/09/us/nyc-woman-puerto-rico-parrot-airline.html
+
 **House Votes to Curb National Injunctions, Targeting Judges Who Thwart Trump**\
 `The legislation is part of an escalating Republican campaign to take aim at judges who have moved to halt some of President Trump’s executive orders.`\
 https://nytimes.com/2025/04/09/us/politics/house-vote-federal-judges-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/09/us/politics/musk-doge-steve-davis.html
 **As His Chronic Disease Tour Wraps, Kennedy Hits His Stride**\
 `The health secretary seemed stoic — maybe nervous, even — at the start of his first major trip. But on a hike with Navajo Nation leaders, he was finally in his element.`\
 https://nytimes.com/2025/04/09/health/rfk-jr-maha-tour-navajo.html
-
-**Motorsport UK chairman accuses FIA of lack of transparency**\
-`David Richards wrote in a letter that the FIA is becoming "ever more opaque and concentrating power in the hands of the President alone."`\
-https://nytimes.com/athletic/6268344/2025/04/09/david-richards-motorsport-uk-fia-letter/
-
-**Brett Baty's latest chance with Mets is not going well — at all**\
-`Though Baty is not in immediate jeopardy of being sent to Triple A, time is definitely becoming a factor for the struggling second baseman.`\
-https://nytimes.com/athletic/6268364/2025/04/09/new-york-mets-brett-baty-hitting/
 
