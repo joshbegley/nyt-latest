@@ -1,3 +1,15 @@
+**Hundreds of Israeli Air Force Reservists Call for Halt to Gaza War**\
+`A letter signed by reservists and retired officers accused the government of endangering hostages held by Hamas, highlighting a growing divide over the handling of the war.`\
+https://nytimes.com/2025/04/10/world/middleeast/israel-gaza-hamas-hostages-air-force.html
+
+**Wes Anderson and Richard Linklater to Compete at Cannes Film Festival**\
+`A sidebar to the competition will feature Scarlett Johansson’s directorial debut.`\
+https://nytimes.com/2025/04/10/movies/cannes-film-festivals-lineup.html
+
+**Andre Onana, Nemanja Matic and why assessing goalkeepers with statistics is difficult**\
+`Why a focus on goals conceded and clean sheets alone is not a sensible way to assess a goalkeeper's ability`\
+https://nytimes.com/athletic/6268389/2025/04/10/onana-matic-goalkeeper-statistics/
+
 **China Says Its Own Consumers Will Save the Day. But They’re Not Buying.**\
 `If sky-high U.S. tariffs hurt China’s exports, domestic spending will help make up for it, Beijing says. But shoppers were skittish even before the trade war.`\
 https://nytimes.com/2025/04/10/world/asia/china-trump-tariffs-consumers.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6268682/2025/04/10/toronto-blue-jays-vladimir-guerr
 **Air Jordan power rankings: Which signature shoe is tops in the brand's 40th anniversary?**\
 `As Jordan Brand celebrates its 40th anniversary of the Air Jordan, here are 10 of the best signature models of the shoe.`\
 https://nytimes.com/athletic/6265459/2025/04/10/air-jordan-power-rankings-40th-anniversary/
-
-**Questions for 2025-26 women's college basketball season: Is Sarah Strong the top player?**\
-`What will USC look like? Will the same Final Four teams return next season? `\
-https://nytimes.com/athletic/6268000/2025/04/10/questions-womens-college-basketball-2025-26/
-
-**Should college football add preseason games?**\
-`After Deion Sanders tried to make joint spring scrimmages happen, what about preseason games instead? Kirk Ferentz is in favor of the idea.`\
-https://nytimes.com/athletic/6267554/2025/04/10/college-football-preseason-games-spring-scrimmages/
-
-**Raiders 7-round mock draft: Doubling down on the trenches and rounding out the roster**\
-`GM John Spytek and coach Pete Carroll plan to utilize a true best-player-available philosophy in the draft. So what should they look for?`\
-https://nytimes.com/athletic/6267394/2025/04/10/raiders-nfl-mock-draft-armand-membou-quinshon-judkins/
 
