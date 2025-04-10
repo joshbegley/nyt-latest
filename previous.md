@@ -1,3 +1,27 @@
+**After Trump’s Pause, the European Union Takes a Moment to Reassess**\
+`The bloc was about to enact retaliatory tariffs when President Trump made his last-minute U-turn. What comes next is unclear.`\
+https://nytimes.com/2025/04/10/world/europe/european-union-trump-tariffs-pause.html
+
+**Russia Freed a Detained American, Rubio Says**\
+`The detainee, Ksenia Karelina, had been sentenced to 12 years in prison over a one-time donation to a Ukrainian charity group.`\
+https://nytimes.com/2025/04/10/world/europe/russia-us-ksenia-karelina-swap.html
+
+**Eagles 2025 NFL Draft thoughts: 10 things we learned from 'The Beast'**\
+`A strong tight end class and lots of pass rushers make for some interesting possibilities.`\
+https://nytimes.com/athletic/6266772/2025/04/10/eagles-2025-nfl-draft-thoughts-the-beast/
+
+**Using 'The Beast' to examine Commanders' potential draft needs**\
+`Edge rusher, defensive back and an offensive playmaker are three areas Washington could consider upgrading in this year's draft. `\
+https://nytimes.com/athletic/6267618/2025/04/10/washington-commanders-nfl-draft-the-beast/
+
+**Considering options for Ravens' 11 draft picks by using 'The Beast'**\
+`Where can Baltimore wait and still have high-quality options later in the draft to maximize its three-day haul? `\
+https://nytimes.com/athletic/6268291/2025/04/10/baltimore-ravens-nfl-draft-the-beast/
+
+**The New York Times International Edition in Print for Friday, April 11, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/04/10/todays-new-york-times-international-edition
+
 **Bengals trends and 'The Beast' 2025 Draft Guide: Profiling who fits in Cincinnati**\
 `Dane Brugler's annual draft encyclopedia gives a clearer picture of which players match the Bengals' tendencies.`\
 https://nytimes.com/athletic/6268419/2025/04/10/bengals-the-beast-nfl-draft-fits/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6267197/2025/04/10/patriots-nfl-mock-draft-armand-m
 **Do We Really Expect Investors to Forget What Just Happened?**\
 `The reciprocal tariffs might be gone for now, but slow growth, inflation and dings to American credibility remain.`\
 https://nytimes.com/2025/04/10/opinion/tariffs-trump-pause-reverse.html
-
-**A Honolulu Bakery That Folds In Tropical Flavors**\
-`Plus: lakeside cabins in the Berkshires, wooden lamps and more recommendations from T Magazine.`\
-https://nytimes.com/2025/04/10/t-magazine/honolulu-bakery-mille-fete.html
-
-**They Scoured the Northeast for a Space They Could Live and Work In**\
-`With about $750,000 to spend, a couple with a dream of opening a business for farm-to-table events looked at pastoral properties in New York, Vermont and Maine.`\
-https://nytimes.com/interactive/2025/04/10/realestate/new-york-vermont-maine-home-sale.html
-
-**Cowboys takeaways from 'The Beast': Options at No. 12 and chances at Ashton Jeanty**\
-`Would Dallas take Ashton Jeanty if he's there at 12? Who could be other options if he's not and what about Round 2 running backs?`\
-https://nytimes.com/athletic/6267461/2025/04/10/cowboys-nfl-draft-the-beast-takeaways-ashton-jeanty/
-
-**Who Needs Free Trade When You Can Raise Your Own Chickens?**\
-`A key faction of the Republican Party wants you to be happy with less stuff.`\
-https://nytimes.com/2025/04/10/opinion/tariffs-trump-postliberals-tradlife.html
-
-**What to Know About the Latest China Tariffs and What They Mean for Prices**\
-`A broad variety of products made in China, including toys, clothing and electronics, may cost more. Shoppers could also see an impact from other tariffs.`\
-https://nytimes.com/2025/04/10/business/trump-china-tariffs-prices-goods.html
-
-**‘Chicken Jockey!’: How a Crazy Catchphrase Took Over Multiplexes**\
-`When Jack Black yells that in “A Minecraft Movie,” young audiences respond raucously. The director approves, but some theaters don’t. Here’s what to know.`\
-https://nytimes.com/2025/04/10/movies/chicken-jockey-minecraft-movie.html
 
