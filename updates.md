@@ -1,3 +1,11 @@
+**House Votes to Curb National Injunctions, Targeting Judges Who Thwart Trump**\
+`The legislation is part of an escalating Republican campaign to take aim at judges who have moved to halt some of President Trump’s executive orders.`\
+https://nytimes.com/2025/04/09/us/politics/house-vote-federal-judges-trump.html
+
+**De Bruyne discovery rights issue highlights puzzling MLS rule**\
+`The Manchester City star's potential switch to Inter Miami has sparked discussion about MLS' mysterious discovery rights mechanism.`\
+https://nytimes.com/athletic/6268354/2025/04/09/inter-miami-de-bruyne-discovery-rights-manchester-city/
+
 **Senate Panel Demands Information About Gaza Protest Group at Columbia**\
 `Lawmakers want the university to turn over all its records about Students for Justice in Palestine. At Northwestern University, two professors sued over a separate request.`\
 https://nytimes.com/2025/04/09/nyregion/columbia-northwestern-gaza-congress.html

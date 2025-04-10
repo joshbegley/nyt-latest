@@ -1,3 +1,11 @@
+**House Votes to Curb National Injunctions, Targeting Judges Who Thwart Trump**\
+`The legislation is part of an escalating Republican campaign to take aim at judges who have moved to halt some of President Trump’s executive orders.`\
+https://nytimes.com/2025/04/09/us/politics/house-vote-federal-judges-trump.html
+
+**De Bruyne discovery rights issue highlights puzzling MLS rule**\
+`The Manchester City star's potential switch to Inter Miami has sparked discussion about MLS' mysterious discovery rights mechanism.`\
+https://nytimes.com/athletic/6268354/2025/04/09/inter-miami-de-bruyne-discovery-rights-manchester-city/
+
 **Senate Panel Demands Information About Gaza Protest Group at Columbia**\
 `Lawmakers want the university to turn over all its records about Students for Justice in Palestine. At Northwestern University, two professors sued over a separate request.`\
 https://nytimes.com/2025/04/09/nyregion/columbia-northwestern-gaza-congress.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6268344/2025/04/09/david-richards-motorsport-uk-fia
 **Brett Baty's latest chance with Mets is not going well — at all**\
 `Though Baty is not in immediate jeopardy of being sent to Triple A, time is definitely becoming a factor for the struggling second baseman.`\
 https://nytimes.com/athletic/6268364/2025/04/09/new-york-mets-brett-baty-hitting/
-
-**Why the Pistons face a unique opportunity against the Knicks, a possible playoff foe**\
-`The last time the Pistons and Knicks matched up, Cade Cunningham's 36-point night led Detroit to a win.`\
-https://nytimes.com/athletic/6268275/2025/04/09/pistons-unique-opportunity-knicks-playoffs/
-
-**Luka Dončić returns to Dallas as Laker; Jason Kidd compares trade to Babe Ruth**\
-`Lakers coach JJ Redick said his message to Dončić would be that his teammates and coaches “got your back.” `\
-https://nytimes.com/athletic/6268272/2025/04/09/luka-doncic-returns-dallas-babe-ruth/
 
