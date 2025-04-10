@@ -1,3 +1,11 @@
+**Purdue puts Ethan Trent, brother of late fan Tyler Trent, on scholarship**\
+`Purdue coach Barry Odom gave Ethan Trent the good news with the team gathered around him Thursday.`\
+https://nytimes.com/athletic/6270883/2025/04/10/purdue-ethan-trent-tyler-trent-scholarship/
+
+**Live Updates: Helicopter Crashes Into Hudson River Near Manhattan**\
+`At least three people were killed in the crash, according to law enforcement officials, and two others were pulled from the water. A sixth person, believed to be the pilot, was still unaccounted for.`\
+https://nytimes.com/live/2025/04/10/nyregion/hudson-river-helicopter-crash
+
 **‘Her Majesty’ Is Glamorous and Salty Fun**\
 `A badly behaving princess is suddenly forced to take on more responsibility than she is ready for in this cynical Spanish comedy.`\
 https://nytimes.com/2025/04/10/arts/television/her-majesty-su-majestad-prime.html
