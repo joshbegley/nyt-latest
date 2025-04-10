@@ -1,3 +1,11 @@
+**The Briefing: Tottenham 1 Eintracht 1 - Was this a good result for Postecoglou?**\
+`The big talking points analysed from the Europa League quarter-final first leg`\
+https://nytimes.com/athletic/6264616/2025/04/10/tottenham-eintracht-frankfurt-result-analysis/
+
+**Helicopter Crashes Into Hudson River**\
+`A helicopter crashed into the Hudson River in New York City on Thursday afternoon.`\
+https://nytimes.com/video/nyregion/100000010103945/helicopter-crash-hudson.html
+
 **Purdue puts Ethan Trent, brother of late fan Tyler Trent, on scholarship**\
 `Purdue coach Barry Odom gave Ethan Trent the good news with the team gathered around him Thursday.`\
 https://nytimes.com/athletic/6270883/2025/04/10/purdue-ethan-trent-tyler-trent-scholarship/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/10/business/stock-market-tariffs.html
 **James Toback Is Ordered to Pay $1.7 Billion in Sexual Assault Case**\
 `After the former Hollywood director stopped participating in the civil case against him, a jury awarded 40 accusers $42 million each.`\
 https://nytimes.com/2025/04/10/movies/james-toback-sexual-assault.html
-
-**Maine Governor, Staring Down Trump, Says She Is Unfazed by ‘Loud Men’**\
-`Observers of her political rise — and some who have sparred with her — say Gov. Janet Mills’s refusal to bow to President Trump is right in character.`\
-https://nytimes.com/2025/04/10/us/janet-mills-donald-trump-maine.html
-
-**Ray Shero was more than a GM to Penguins' Crosby, Malkin, Letang**\
-`The superstars credit Shero for their on and off ice maturity, particularly in their early years.`\
-https://nytimes.com/athletic/6270514/2025/04/10/penguins-ray-shero-crosby-malkin-letang/
 
