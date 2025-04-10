@@ -1,3 +1,21 @@
+**L.A. Woman Is Arrested After Pointing Gun at Officers on Unrelated Manhunt**\
+`Jillian Lauren Shriner, an author who is married to a member of the band Weezer, was charged with attempted murder, the Los Angeles Police Department said.`\
+https://nytimes.com/2025/04/10/us/weezer-scott-shriner-jillian-lauren.html
+
+**Kevin De Bruyne next club odds: Miami, Munich or the Middle East?**\
+`Julia Ranney assesses the bookmakers’ predictions on which club will snap up Manchester City’s Kevin De Bruyne.
+`\
+https://nytimes.com/athletic/6266641/2025/04/10/kevin-de-bruyne-next-club-odds-betting-predictions/
+
+**Why you should stop betting on defenders to get booked**\
+`Sam Tighe debunks the myths around defenders and yellow cards, through a betting lens.
+`\
+https://nytimes.com/athletic/6266592/2025/04/10/football-betting-booking-odds-tips-predictions/
+
+**In the Bronx, a Battle Over the Future of Jennifer Lopez’s Alma Mater**\
+`The religious order that owns Preston High School says it can no longer operate it. Supporters are appealing to the New York attorney general for help.`\
+https://nytimes.com/2025/04/10/nyregion/preston-high-school-bronx-jennifer-lopez-catholic.html
+
 **Kevin De Bruyne next club odds: Miami, Munich or the Middle East?**\
 `Julia Ranney assesses the bookmakers’ predictions on which club will snap up Manchester City’s Kevin De Bruyne.
 `\

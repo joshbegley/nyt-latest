@@ -1,4 +1,4 @@
-**L.A. Woman Is Arrested After Pointing Gun at Officers on Unrelated Manhunt**\
+**L.A. Woman Is Arrested After Pointing Gun at Officers, Police Say**\
 `Jillian Lauren Shriner, an author who is married to a member of the band Weezer, was charged with attempted murder, the Los Angeles Police Department said.`\
 https://nytimes.com/2025/04/10/us/weezer-scott-shriner-jillian-lauren.html
 
