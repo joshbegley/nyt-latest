@@ -1,3 +1,7 @@
+**Stocks Jump in Asia After Trump’s Tariff Reprieve**\
+`Markets in Japan, South Korea and Taiwan soar after the U.S. president pauses punishing tariffs. Gains in mainland China were modest as trade hostilities heat up between Washington and Beijing.`\
+https://nytimes.com/2025/04/09/business/trump-tariffs-stocks-asia.html
+
 **‘Just One More Story!’**\
 `Adam Wagner tells us a small tale.`\
 https://nytimes.com/2025/04/09/crosswords/daily-puzzle-2025-04-10.html
