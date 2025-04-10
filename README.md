@@ -1,3 +1,15 @@
+**Tariff Angst Rises**\
+`Also, six died after helicopter crashed in the Hudson River. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/04/10/briefing/tariffs-wall-street-helicopter-crash-hudson-river.html
+
+**Trump, Offering Few Details, Insists ‘Everybody’ Wants to Make a Deal With the U.S.**\
+`The administration says foreign governments are racing to the United States to negotiate, but exactly which countries might strike a deal — and over what — remains unclear.`\
+https://nytimes.com/2025/04/10/us/politics/trump-tariffs-trade-deals.html
+
+**If It Exists, Someone Has Left It in an Uber**\
+`The company’s annual list of items passengers have left behind includes a mannequin head with human hair, a urinal and a chain saw.`\
+https://nytimes.com/2025/04/10/style/uber-lost-and-found-list.html
+
 **Markets ‘Hanging on Every Little Bit of Tariff Talk’**\
 `As global markets tremble over President Trump’s tariff policy, the New York Times reporter Joe Rennison remembers the advice of a mentor: It’s our job to report on a crisis, not to make it worse.`\
 https://nytimes.com/2025/04/10/insider/markets-hanging-on-every-little-bit-of-tariff-talk.html
@@ -25,17 +37,4 @@ https://nytimes.com/athletic/6269759/2025/04/10/mls-calendar-change-europe-garbe
 **Friday Briefing: A Worsening Trade War**\
 `Plus, the biggest luxury deal of the year.`\
 https://nytimes.com/2025/04/10/briefing/trump-trade-war-iran-nuclear-talks-hamas-hostages.html
-
-**Watch: Encouraging traits? Too stiff? A debate over Shemar Stewart**\
-`"The Athletic Football Show" debates whether the Texas A&M edge rusher should be viewed as a top prospect in this year's draft.
-`\
-https://nytimes.com/athletic/6269179/2025/04/10/athletic-football-show-shemar-stewart-nfl-draft/
-
-**Producing Something This Stupid Is the Achievement of a Lifetime**\
-`Maybe we’re just not good at thinking anymore.`\
-https://nytimes.com/2025/04/10/opinion/education-smart-thinking-reading-tariffs.html
-
-**The Briefing: Tottenham 1 Eintracht Frankfurt 1 - Was this a good result for Postecoglou?**\
-`The big talking points analysed from the Europa League quarter-final first leg`\
-https://nytimes.com/athletic/6264616/2025/04/10/tottenham-eintracht-frankfurt-result-analysis/
 

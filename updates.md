@@ -1,3 +1,8 @@
+**Watch: Encouraging traits? Too stiff? A debate over Shemar Stewart**\
+`"The Athletic Football Show" debates whether the Texas A&M edge rusher should be viewed as a top prospect in this year's draft.
+`\
+https://nytimes.com/athletic/6269179/2025/04/10/athletic-football-show-shemar-stewart-nfl-draft/
+
 **Markets ‘Hanging on Every Little Bit of Tariff Talk’**\
 `As global markets tremble over President Trump’s tariff policy, the New York Times reporter Joe Rennison remembers the advice of a mentor: It’s our job to report on a crisis, not to make it worse.`\
 https://nytimes.com/2025/04/10/insider/markets-hanging-on-every-little-bit-of-tariff-talk.html
