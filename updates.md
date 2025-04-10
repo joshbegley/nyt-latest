@@ -1,3 +1,11 @@
+**NWSL Denver hires Jen Millet as its first president**\
+`"People might say I'm crazy to do back-to-back builds," Millet told The Athletic on Wednesday. "But I actually love this kind of work."`\
+https://nytimes.com/athletic/6270250/2025/04/10/nwsl-denver-jen-millet/
+
+**Social Security Rolls Back Restrictions on Filing for Benefits by Phone**\
+`The agency’s plan to curtail phone services, which was expected to send tens of thousands to its offices each week, had been widely criticized.`\
+https://nytimes.com/2025/04/10/business/social-security-phone-benefits.html
+
 **Trump Has Added 145% Tariff to China, White House Clarifies**\
 `White House officials clarified on Thursday that the 125 percent tariff the president announced on Wednesday was in addition to a 20 percent added to the country since President Trump returned to office.`\
 https://nytimes.com/2025/04/10/business/economy/china-tariffs-145-percent.html

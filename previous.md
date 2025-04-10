@@ -1,3 +1,11 @@
+**NWSL Denver hires Jen Millet as its first president**\
+`"People might say I'm crazy to do back-to-back builds," Millet told The Athletic on Wednesday. "But I actually love this kind of work."`\
+https://nytimes.com/athletic/6270250/2025/04/10/nwsl-denver-jen-millet/
+
+**Social Security Rolls Back Restrictions on Filing for Benefits by Phone**\
+`The agency’s plan to curtail phone services, which was expected to send tens of thousands to its offices each week, had been widely criticized.`\
+https://nytimes.com/2025/04/10/business/social-security-phone-benefits.html
+
 **Trump Has Added 145% Tariff to China, White House Clarifies**\
 `White House officials clarified on Thursday that the 125 percent tariff the president announced on Wednesday was in addition to a 20 percent added to the country since President Trump returned to office.`\
 https://nytimes.com/2025/04/10/business/economy/china-tariffs-145-percent.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6267469/2025/04/10/houston-astros-2025-how-to-watch
 **On-Again, Off-Again Tariffs and Their Toll on Travelers**\
 `The travel industry doesn’t know what to expect from whipsawing U.S. policies. But concerns are hitting the bottom line, which could mean higher prices, and more confusion, for tourists.`\
 https://nytimes.com/2025/04/10/travel/tariffs-and-the-travel-industry.html
-
-**ESPN's Pat McAfee alludes to false rumors involving Mary Kate Cornett**\
-`Cornett is a college student who was the subject of an unsubstantiated internet rumor previously amplified by McAfee and others.`\
-https://nytimes.com/athletic/6268811/2025/04/10/pat-mcafee-mary-kate-cornett/
-
-**Jon Hamm Finds His Way Back to the Hilltop**\
-`For the actor, the decade since “Mad Men” ended has been a period of personal change and mixed professional success. Suddenly, he is everywhere again.`\
-https://nytimes.com/2025/04/10/arts/jon-hamm-your-friends-and-neighbors.html
 
