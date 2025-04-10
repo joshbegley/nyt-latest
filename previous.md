@@ -6,7 +6,7 @@ https://nytimes.com/2025/04/10/arts/trump-garden-heroes-humanities.html
 `Two American Airlines jets clipped wings on a taxiway, officials said. Representative Grace Meng said that, in 10 years of flying to and from Washington, “This has never happened to me.”`\
 https://nytimes.com/2025/04/10/us/reagan-airport-planes-clip-wings.html
 
-**Pressuring Migrants to ‘Self-Deport,’ White House Moves to Cancel Social Security Numbers**\
+**Pressuring Migrants to ‘Self-Deport,’ Trump Moves to Cancel Social Security Numbers**\
 `By placing migrants in Social Security’s “death master file,” the Trump administration is seeking to cut off their access to credit cards, bank accounts and other financial services.`\
 https://nytimes.com/2025/04/10/us/politics/migrants-deport-social-security-doge.html
 

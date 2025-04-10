@@ -1,3 +1,7 @@
+**Pressuring Migrants to ‘Self-Deport,’ Trump Moves to Cancel Social Security Numbers**\
+`By placing migrants in Social Security’s “death master file,” the Trump administration is seeking to cut off their access to credit cards, bank accounts and other financial services.`\
+https://nytimes.com/2025/04/10/us/politics/migrants-deport-social-security-doge.html
+
 **Canceled Humanities Grants to Help Pay for Trump’s ‘Garden of Heroes’**\
 `The National Endowment for the Humanities, which supports museums and historical sites, will redirect funds to the president’s planned patriotic sculpture garden.`\
 https://nytimes.com/2025/04/10/arts/trump-garden-heroes-humanities.html
