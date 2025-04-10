@@ -1,3 +1,11 @@
+**What to Expect From Bravo’s Nepo Baby Reality Show**\
+`“Next Gen NYC” is a big bet on the Gen Z offspring of the cable network’s “Real Housewives” franchise.`\
+https://nytimes.com/2025/04/10/style/next-gen-nyc-bravo.html
+
+**Astronauts, New Words, Jaywalking: Students Respond to the News**\
+`Some favorite responses by teenagers to three recent Picture Prompts.`\
+https://nytimes.com/2025/04/10/learning/astronauts-new-words-jaywalking-students-respond-to-the-news.html
+
 **For U.S. Apparel Manufacturers, Chaotic Tariff Policy Isn’t Much Help**\
 `Even companies that make clothing in America aren’t feeling great about stiff duties on their overseas competition.`\
 https://nytimes.com/2025/04/10/business/economy/tariffs-apparel-american-made.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6267763/2025/04/10/fantasy-baseball-breakouts-mirag
 **Medicare Bleeds Billions on Pricey Bandages, and Doctors Get a Cut**\
 `Medicare spending on “skin substitutes” made of dried placenta has soared as doctors pocket lucrative discounts from sellers.`\
 https://nytimes.com/2025/04/10/health/skin-substitutes-medicare-costs.html
-
-**Here’s the budget math that worried House conservatives.**\
-`By Alicia Parlapiano and Margot Sanger-Katz`\
-https://nytimes.com/live/2025/04/10/us/trump-news/heres-the-budget-math-that-worried-house-conservatives
-
-**How to watch the Houston Astros in 2025: Schedule, broadcast info and blackout rules**\
-`Baseball is back in Crush City — or Clutch City — and here is your explainer on RSNs, streaming and blackout rules.`\
-https://nytimes.com/athletic/6267469/2025/04/10/houston-astros-2025-how-to-watch/
 

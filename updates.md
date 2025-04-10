@@ -1,3 +1,11 @@
+**What to Expect From Bravo’s Nepo Baby Reality Show**\
+`“Next Gen NYC” is a big bet on the Gen Z offspring of the cable network’s “Real Housewives” franchise.`\
+https://nytimes.com/2025/04/10/style/next-gen-nyc-bravo.html
+
+**Astronauts, New Words, Jaywalking: Students Respond to the News**\
+`Some favorite responses by teenagers to three recent Picture Prompts.`\
+https://nytimes.com/2025/04/10/learning/astronauts-new-words-jaywalking-students-respond-to-the-news.html
+
 **For U.S. Apparel Manufacturers, Chaotic Tariff Policy Isn’t Much Help**\
 `Even companies that make clothing in America aren’t feeling great about stiff duties on their overseas competition.`\
 https://nytimes.com/2025/04/10/business/economy/tariffs-apparel-american-made.html
