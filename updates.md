@@ -1,3 +1,11 @@
+**Inside Trump’s Plan to ‘Get’ Greenland: Persuasion, Not Invasion**\
+`The island’s population might not be easily convinced as the president tries to clinch one of history’s greatest real estate deals.`\
+https://nytimes.com/2025/04/10/us/politics/trump-greenland-denmark.html
+
+**Birmingham City's promotion season set for Amazon Prime documentary**\
+`A camera crew has been with the team since pre-season after the project was conceived by Birmingham minority owner Tom Brady.`\
+https://nytimes.com/athletic/6270196/2025/04/10/birmingham-tom-brady-amazon-documentary/
+
 **What to Expect From Bravo’s Nepo Baby Reality Show**\
 `“Next Gen NYC” is a big bet on the Gen Z offspring of the cable network’s “Real Housewives” franchise.`\
 https://nytimes.com/2025/04/10/style/next-gen-nyc-bravo.html

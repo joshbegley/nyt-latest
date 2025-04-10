@@ -1,3 +1,11 @@
+**Inside Trump’s Plan to ‘Get’ Greenland: Persuasion, Not Invasion**\
+`The island’s population might not be easily convinced as the president tries to clinch one of history’s greatest real estate deals.`\
+https://nytimes.com/2025/04/10/us/politics/trump-greenland-denmark.html
+
+**Birmingham City's promotion season set for Amazon Prime documentary**\
+`A camera crew has been with the team since pre-season after the project was conceived by Birmingham minority owner Tom Brady.`\
+https://nytimes.com/athletic/6270196/2025/04/10/birmingham-tom-brady-amazon-documentary/
+
 **What to Expect From Bravo’s Nepo Baby Reality Show**\
 `“Next Gen NYC” is a big bet on the Gen Z offspring of the cable network’s “Real Housewives” franchise.`\
 https://nytimes.com/2025/04/10/style/next-gen-nyc-bravo.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/10/opinion/college-commencement-students-graduation.
 **The Windup: You have to see this chaotic play**\
 `Welcome to The Windup, The Athletic's MLB newsletter. `\
 https://nytimes.com/athletic/6269084/2025/04/10/cardinals-pirates-blooper-the-windup/
-
-**Breakouts or Mirages? Evaluating hot and cold fantasy baseball starts**\
-`Owen Poindexter looks around the league for players with unexpected hot or cold starts and evaluates what's on the horizon for them. `\
-https://nytimes.com/athletic/6267763/2025/04/10/fantasy-baseball-breakouts-mirages-hot-cold-starts/
-
-**Medicare Bleeds Billions on Pricey Bandages, and Doctors Get a Cut**\
-`Medicare spending on “skin substitutes” made of dried placenta has soared as doctors pocket lucrative discounts from sellers.`\
-https://nytimes.com/2025/04/10/health/skin-substitutes-medicare-costs.html
 
