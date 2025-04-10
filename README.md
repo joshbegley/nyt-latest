@@ -1,3 +1,7 @@
+**N.Y.P.D. to Deploy Teams to Fight Minor Crimes, Touching Off Skepticism**\
+`The new Quality of Life division will investigate things like homeless encampments and public urination. Critics say the program is a license to harass the poor.`\
+https://nytimes.com/2025/04/10/nyregion/nypd-quality-of-life-teams.html
+
 **Cabot Creamery Butter Is Recalled Over Fecal Contamination Risk**\
 `The company said it was voluntarily recalling 189 cases of its eight-ounce, sea-salted Extra Creamy Premium Butter after it found elevated levels of coliform bacteria.`\
 https://nytimes.com/2025/04/10/business/cabot-creamery-butter-recall.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6270198/2025/04/10/seahawks-nfl-mock-drafts-mailbag
 **Fantasy baseball bullpen report: Orioles' Yennier Canó, Padres' Robert Suarez and more**\
 `Greg Jewett provides a league-wide bullpen update so you know who to hold, drop or target on waivers and via trade. `\
 https://nytimes.com/athletic/6269703/2025/04/10/fantasy-baseball-bullpen-report-yennier-cano/
-
-**The Senators rewarded Steve Staios' faith. Now they must show what they can do together**\
-`Staios was patient with his group throughout the season, and that proved to be the right approach as the Senators enter the playoffs.`\
-https://nytimes.com/athletic/6267624/2025/04/10/senators-playoffs-staios-nhl/
 
