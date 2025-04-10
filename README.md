@@ -31,8 +31,8 @@ https://nytimes.com/2025/04/10/briefing/trump-trade-war-iran-nuclear-talks-hamas
 `\
 https://nytimes.com/athletic/6269179/2025/04/10/athletic-football-show-shemar-stewart-nfl-draft/
 
-**Maybe We’re Just Not Good at Thinking Anymore**\
-`To do something as stupid as Trump’s tariff plan is the result of a lifetime of incuriosity.`\
+**Producing Something This Stupid Is the Achievement of a Lifetime**\
+`Maybe we’re just not good at thinking anymore.`\
 https://nytimes.com/2025/04/10/opinion/education-smart-thinking-reading-tariffs.html
 
 **The Briefing: Tottenham 1 Eintracht Frankfurt 1 - Was this a good result for Postecoglou?**\

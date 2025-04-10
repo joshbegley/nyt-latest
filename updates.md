@@ -1,3 +1,16 @@
+**Markets ‘Hanging on Every Little Bit of Tariff Talk’**\
+`As global markets tremble over President Trump’s tariff policy, the New York Times reporter Joe Rennison remembers the advice of a mentor: It’s our job to report on a crisis, not to make it worse.`\
+https://nytimes.com/2025/04/10/insider/markets-hanging-on-every-little-bit-of-tariff-talk.html
+
+**Trump Close to Winning Concessions From More Law Firms**\
+`Four or five firms could soon agree to deals that would be unveiled as a package in an escalation of the president’s crackdown on an industry that has drawn his ire.`\
+https://nytimes.com/2025/04/10/us/politics/trump-law-firms.html
+
+**Watch: Encouraging traits? Too stiff? A debate over Shemar Stewart**\
+`"The Athletic Football Show" debates whether the Texas A&M edge rusher should be viewed as a top prospect in this year's draft.
+`\
+https://nytimes.com/athletic/6269179/2025/04/10/athletic-football-show-shemar-stewart-nfl-draft/
+
 **Watch: Encouraging traits? Too stiff? A debate over Shemar Stewart**\
 `"The Athletic Football Show" debates whether the Texas A&M edge rusher should be viewed as a top prospect in this year's draft.
 `\
