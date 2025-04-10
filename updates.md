@@ -1,3 +1,11 @@
+**Connor McDavid's return to Oilers lineup wasn't planned, but it was needed**\
+`McDavid was originally supposed to return for Friday's game. But amid a slew of injuries, the captain felt his team needed him.`\
+https://nytimes.com/athletic/6269165/2025/04/10/oilers-connor-mcdavid-return/
+
+**Asian Nations, Holding Few Cards, Seek Trade Talks With Trump**\
+`Southeast Asian leaders, their export-driven economies in peril, are trying to placate the president. “We may have to comply,” Thailand’s finance minister said.`\
+https://nytimes.com/2025/04/10/world/asia/trump-asia-trade-leverage.html
+
 **Ask Ornstein Q&A: Our football insider answers your questions**\
 `Here is your opportunity to ask David Ornstein anything you want about the world of football`\
 https://nytimes.com/athletic/6269135/2025/04/10/ask-ornstein-qa-our-football-insider-answers-your-questions-24/
