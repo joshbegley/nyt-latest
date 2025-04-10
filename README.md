@@ -1,3 +1,15 @@
+**The great Liam Delap transfer auction - feat. Chelsea, Man Utd and half the Premier League**\
+`The Old Trafford club will be just one of a host of suitors for Ipswich's highly-rated striker this summer`\
+https://nytimes.com/athletic/6266733/2025/04/10/liam-delap-manchester-united-transfer-auction/
+
+**Madrid's board must shoulder some blame for their Arsenal thrashing - it's not all on Ancelotti**\
+`It is easy to single out the manager for Tuesday's collapse, but he has been calling for reinforcements since the middle of last season`\
+https://nytimes.com/athletic/6266892/2025/04/10/real-madrid-ancelotti-opinion/
+
+**An 'oxygen moment': Why banned Paulo Fonseca can coach Lyon against Manchester United**\
+`The story of a moment of madness and how one of Europe's top coaches is coping with the consequences`\
+https://nytimes.com/athletic/6267419/2025/04/10/paulo-fonseca-ban-manchester-united/
+
 **How Arsenal’s manager, players and supporters delivered the Emirates Stadium's greatest night (so far)**\
 `Since Mikel Arteta took over, the Emirates has begun to feel increasingly like home. Against Real Madrid, it felt like a fortress`\
 https://nytimes.com/athletic/6267212/2025/04/10/arsenal-real-madrid-emirates-stadium-greatest-night/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/10/pageoneplus/corrections-april-10-2025.html
 **Quote of the Day: This ‘Handyman’ Bends Augusta To His Will**\
 `Quotation of the Day for Thursday, April 10, 2025.`\
 https://nytimes.com/2025/04/09/pageoneplus/quote-of-the-day-this-handyman-bends-augusta-to-his-will.html
-
-**Reality sinks in for Rangers as New York's last playoff hopes dwindle: Takeaways**\
-`After giving up eight goals to the Flyers, the writing is on the wall for the Rangers this season.`\
-https://nytimes.com/athletic/6268810/2025/04/09/rangers-blowout-playoff-hopes-flyers/
-
-**Inside Factories in China, a Struggle to Survive Trump’s Tariffs**\
-`Small factories with tiny profit margins have played a central role in China’s international competitiveness. Many could now face disaster.`\
-https://nytimes.com/2025/04/09/business/economy/guangzhou-china-exports-tariffs.html
-
-**Messi saves Inter Miami from Champions Cup exit with stirring fightback**\
-`In 2017, Lionel Messi, Luis Suarez and Javier Mascherano spearheaded one of Barcelona&#8217;s most thrilling comeback wins.`\
-https://nytimes.com/athletic/6268685/2025/04/09/messi-inter-miami-lafc-concacaf-champions-cup-fightback/
 
