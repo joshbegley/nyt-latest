@@ -1,3 +1,15 @@
+**Making Sparks Fly at the New York Philharmonic**\
+`Guest conductors and the firebrand soloists Patricia Kopatchinskaja and Alisa Weilerstein brought welcome energy to David Geffen Hall.`\
+https://nytimes.com/2025/04/10/arts/music/new-york-philharmonic-alisa-weilerstein-patricia-kopatchinskaja.html
+
+**‘Amm(i)gone’ and ‘A Mother’: Sons Calling for Their Mothers**\
+`The maternal embrace of young men and their battles figures in two very different plays, one a solo work and the other a Brechtian riff starring Jessica Hecht.`\
+https://nytimes.com/2025/04/10/theater/amm-i-gone-a-mother-hecht-review.html
+
+**It's your chance to be Seahawks GM: Send us your mock drafts, and we'll critique them**\
+`Think you can do a better job than John Schneider? Prove it! Submit to our mock draft mailbag and see if your picks can make the cut.`\
+https://nytimes.com/athletic/6270198/2025/04/10/seahawks-nfl-mock-drafts-mailbag-submit/
+
 **Fantasy baseball bullpen report: Orioles' Yennier Canó, Padres' Robert Suarez and more**\
 `Greg Jewett provides a league-wide bullpen update so you know who to hold, drop or target on waivers and via trade. `\
 https://nytimes.com/athletic/6269703/2025/04/10/fantasy-baseball-bullpen-report-yennier-cano/
