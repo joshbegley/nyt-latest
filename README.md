@@ -1,3 +1,7 @@
+**Bond Market Sell-Off Prompts Bank of England to Make Unusual Move**\
+`Britain’s central bank altered a planned bond sale, citing “recent market volatility.”`\
+https://nytimes.com/2025/04/10/business/economy/bonds-uk-gilts.html
+
 **Until Saturday: How the portal changed the NFL Draft**\
 `Welcome to Until Saturday, The Athletic's college football newsletter.`\
 https://nytimes.com/athletic/6270385/2025/04/10/transfer-portal-nfl-draft-until-saturday/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/10/us/politics/trump-greenland-denmark.html
 **Birmingham City's promotion season set for Amazon Prime documentary**\
 `A camera crew has been with the team since pre-season after the project was conceived by Birmingham minority owner Tom Brady.`\
 https://nytimes.com/athletic/6270196/2025/04/10/birmingham-tom-brady-amazon-documentary/
-
-**What to Expect From Bravo’s Nepo Baby Reality Show**\
-`“Next Gen NYC” is a big bet on the Gen Z offspring of the cable network’s “Real Housewives” franchise.`\
-https://nytimes.com/2025/04/10/style/next-gen-nyc-bravo.html
 
