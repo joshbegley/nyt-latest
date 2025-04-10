@@ -1,3 +1,11 @@
+**How Arsenal’s manager, players and supporters delivered the Emirates Stadium's greatest night (so far)**\
+`Since Mikel Arteta took over, the Emirates has begun to feel increasingly like home. Against Real Madrid, it felt like a fortress`\
+https://nytimes.com/athletic/6267212/2025/04/10/arsenal-real-madrid-emirates-stadium-greatest-night/
+
+**Tom Brady and Birmingham City can lift the EFL Trophy on Sunday. But what is it?**\
+`One of English football's less well-known prizes is up for grabs at Wembley on Sunday `\
+https://nytimes.com/athletic/6160925/2025/04/10/efl-trophy-explainer-birmingham-tom-brady/
+
 **Meet Goncalo Feio, the fiery Legia Warsaw coach facing Chelsea: 'For me, the big guy was Mourinho'**\
 `Goncalo Feio, the Portuguese head coach in charge of Legia Warsaw, is excited about his encounter with Chelsea`\
 https://nytimes.com/athletic/6266546/2025/04/10/meet-goncalo-feio-the-fiery-legia-warsaw-coach-facing-chelsea-for-me-the-big-guy-was-mourinho/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/09/business/economy/guangzhou-china-exports-tariffs.
 **Messi saves Inter Miami from Champions Cup exit with stirring fightback**\
 `In 2017, Lionel Messi, Luis Suarez and Javier Mascherano spearheaded one of Barcelona&#8217;s most thrilling comeback wins.`\
 https://nytimes.com/athletic/6268685/2025/04/09/messi-inter-miami-lafc-concacaf-champions-cup-fightback/
-
-**Eriksson Ek scores 4 goals, Kaprizov nets OT winner in return: 3 takeaways**\
-`In their long-awaited returns, the two Wild stars wasted no time making an impact Wednesday night in an 8-7 win over San Jose.`\
-https://nytimes.com/athletic/6268639/2025/04/09/wild-sharks-joel-eriksson-ek-kirill-kaprizov/
-
-**Maple Leafs report cards: Matthew Knies hat trick helps Toronto weather the storm**\
-`The Leafs scored twice in the first four minutes and held on against a late Tampa Bay surge for an overtime win.`\
-https://nytimes.com/athletic/6268752/2025/04/09/maple-leafs-report-cards-knies-hat-trick-lightning/
 
