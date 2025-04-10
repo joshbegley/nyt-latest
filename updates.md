@@ -1,3 +1,11 @@
+**‘The Pitt’ Captures the Real Overcrowding Crisis in E.R.’s**\
+`From the “chairs” to the hallway medicine, the show’s depiction of an emergency medicine system that is beyond capacity rings true for medical experts.`\
+https://nytimes.com/2025/04/10/health/the-pitt-max-crowded-emergency-rooms.html
+
+**Why Did Trump Change His Mind On Tariffs?**\
+`On Wednesday, President Trump paused the vast majority of the tariffs he had instituted for 90 days.`\
+https://nytimes.com/video/us/politics/100000010101900/trump-tariff-reversal-explainer.html
+
 **Connor McDavid's return to Oilers lineup wasn't planned, but it was needed**\
 `McDavid was originally supposed to return for Friday's game. But amid a slew of injuries, the captain felt his team needed him.`\
 https://nytimes.com/athletic/6269165/2025/04/10/oilers-connor-mcdavid-return/
