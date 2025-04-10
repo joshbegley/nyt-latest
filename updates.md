@@ -8,6 +8,16 @@ https://nytimes.com/athletic/6266641/2025/04/10/kevin-de-bruyne-next-club-odds-b
 `\
 https://nytimes.com/athletic/6266592/2025/04/10/football-betting-booking-odds-tips-predictions/
 
+**Kevin De Bruyne next club odds: Miami, Munich or the Middle East?**\
+`Julia Ranney assesses the bookmakers’ predictions on which club will snap up Manchester City’s Kevin De Bruyne.
+`\
+https://nytimes.com/athletic/6266641/2025/04/10/kevin-de-bruyne-next-club-odds-betting-predictions/
+
+**Why you should stop betting on defenders to get booked**\
+`Sam Tighe debunks the myths around defenders and yellow cards, through a betting lens.
+`\
+https://nytimes.com/athletic/6266592/2025/04/10/football-betting-booking-odds-tips-predictions/
+
 **Harrison Barnes delivers Warriors potentially catastrophic late-season home loss**\
 `"We just made it a little harder on ourselves," Steph Curry said of the Warriors' hopes of avoiding the Play-In Tournament.`\
 https://nytimes.com/athletic/6269050/2025/04/10/warriors-lose-to-spurs-harrison-barnes/
