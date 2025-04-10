@@ -1,3 +1,15 @@
+**Neutrinos Are Shrinking, and That’s a Good Thing for Physics**\
+`A new estimate of the ghostly particle’s maximum possible mass brings physicists a tad closer to understanding the universe.`\
+https://nytimes.com/2025/04/10/science/neutrinos-mass-physics.html
+
+**With a Jawbone, Scientists Expand the Ancient Range of a Mysterious Human Relative**\
+`A bone discovered in Taiwan turns out to have belonged to a Denisovan, a lineage previously identified only thousands of miles away.`\
+https://nytimes.com/2025/04/10/science/archaeology-denisovan-taiwan.html
+
+**A Sign Your Fish Might Be on Drugs: Risky Behavior**\
+`Researchers studying pharmaceutical pollution tracked salmon that had been exposed to anti-anxiety medication. The fish appeared to lose their inhibitions.`\
+https://nytimes.com/2025/04/10/climate/salmon-anti-anxiety-drugs.html
+
 **Turkey and Israel Aim to Avoid Clashes in Syria as Tensions Rise**\
 `The two sides have started talks to prevent conflicts between their troops in Syria, amid a growing rivalry for influence in the region.`\
 https://nytimes.com/2025/04/10/world/middleeast/syria-turkey-israel-talks.html
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2025/04/10/magazine/bunkers-prepping.html
 **Under Trump, Gun Agency Remains Rudderless and Leaderless**\
 `The A.T.F. has been hit by the departure of key career officials, the diversion of agents from core duties to immigration enforcement and from what amounts to a campaign of indifference.`\
 https://nytimes.com/2025/04/10/us/politics/trump-atf.html
-
-**Making Sparks Fly at the New York Philharmonic**\
-`Guest conductors and the firebrand soloists Patricia Kopatchinskaja and Alisa Weilerstein brought welcome energy to David Geffen Hall.`\
-https://nytimes.com/2025/04/10/arts/music/new-york-philharmonic-alisa-weilerstein-patricia-kopatchinskaja.html
-
-**‘Amm(i)gone’ and ‘A Mother’: Sons Calling for Their Mothers**\
-`The maternal embrace of young men and their battles figures in two very different plays, one a solo work and the other a Brechtian riff starring Jessica Hecht.`\
-https://nytimes.com/2025/04/10/theater/amm-i-gone-a-mother-hecht-review.html
-
-**It's your chance to be Seahawks GM: Send us your mock drafts, and we'll critique them**\
-`Think you can do a better job than John Schneider? Prove it! Submit to our mock draft mailbag and see if your picks can make the cut.`\
-https://nytimes.com/athletic/6270198/2025/04/10/seahawks-nfl-mock-drafts-mailbag-submit/
 
