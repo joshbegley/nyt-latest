@@ -1,3 +1,7 @@
+**'It's not done yet': Why Unai Emery and his players still believe Aston Villa can progress vs PSG**\
+`A third Parisian goal in injury time was a cruel blow but Villa's manager is confident his team can turn it around next week`\
+https://nytimes.com/athletic/6268179/2025/04/10/aston-villa-psg-champions-league-belief/
+
 **Braves, Austin Riley waste big scoring opportunities in loss to Phillies**\
 `"We had the deck stacked in our favor a couple of times and just couldn't pierce a gap, get a big hit," Brian Snitker said of the 4-3 loss.`\
 https://nytimes.com/athletic/6268900/2025/04/10/braves-austin-riley-waste-big-scoring-opportunities-phillies-loss/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6268866/2025/04/10/bulls-heat-play-in-tournament/
 **Suns miss postseason: How NBA's most expensive team struggled so badly**\
 `Boasting the NBA's most expensive roster, Phoenix began the season with championship hopes and a new coach.`\
 https://nytimes.com/athletic/6268073/2025/04/10/phoenix-suns-miss-nba-postseason/
-
-**End of Matheus Cunha's ban brings a selection dilemma for Wolves. Do they need him?**\
-`Wolves' best player is back from his latest ban. Remarkably, Vitor Pereira now has to decide whether or not to pick him against Spurs`\
-https://nytimes.com/athletic/6264411/2025/04/10/matheus-cunha-wolves-return/
 
