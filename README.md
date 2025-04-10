@@ -1,3 +1,7 @@
+**Why Western Conference playoff teams have reason to hope — and panic**\
+`As the Western Conference playoff race shapes up, what are the strengths and weaknesses of the eight teams?`\
+https://nytimes.com/athletic/6268537/2025/04/10/nhl-western-playoffs-hope-concern-2025/
+
 **Why are Brazilian players finding success in the NWSL? It starts with Marta**\
 `Many Brazilian players cite their women's national team record goalscorer and Orlando Pride stalwart as a reason they came to NWSL`\
 https://nytimes.com/athletic/6268839/2025/04/10/brazilians-nwsl-marta-success/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/10/business/us-china-tariffs-trade-war.html
 **Wild's Zeev Buium looks ready for the next level as he returns to Frozen Four: 'Reminds me a lot of Cale Makar'**\
 `One NHL scout on Buium: "The stuff he’s doing on the blue line — Makar does that, Lane Hutson does that and Quinn Hughes does that."`\
 https://nytimes.com/athletic/6236628/2025/04/10/zeev-buium-frozen-four-denver-wild/
-
-**How Sean Monahan found joy again after the death of best friend Johnny Gaudreau**\
-`Monahan wasn't sure he could play in Columbus without Gaudreau, but support from Gaudreau's wife, Meredith, has led to an impressive season.`\
-https://nytimes.com/athletic/6261949/2025/04/10/johnny-gaudreau-blue-jackets-sean-monahan/
 

@@ -1,3 +1,11 @@
+**Why are Brazilian players finding success in the NWSL? It starts with Marta**\
+`Many Brazilian players cite their women's national team record goalscorer and Orlando Pride stalwart as a reason they came to NWSL`\
+https://nytimes.com/athletic/6268839/2025/04/10/brazilians-nwsl-marta-success/
+
+**Michelle Obama Addresses Divorce Rumors and Public Absences**\
+`The former first lady said on a podcast that people “couldn’t even fathom that I was making a choice for myself, that they had to assume that my husband and I are divorcing.”`\
+https://nytimes.com/2025/04/10/us/michelle-obama-divorce-rumors.html
+
 **Hundreds of Israeli Air Force Reservists Call for Halt to Gaza War**\
 `A letter signed by reservists and retired officers accused the government of endangering hostages held by Hamas, highlighting a growing divide over the handling of the war.`\
 https://nytimes.com/2025/04/10/world/middleeast/israel-gaza-hamas-hostages-air-force.html
