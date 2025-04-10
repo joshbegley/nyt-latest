@@ -1,3 +1,8 @@
+**Watch: Encouraging traits? Too stiff? A debate over Shemar Stewart**\
+`"The Athletic Football Show" debates whether the Texas A&M edge rusher should be viewed as a top prospect in this year's draft.
+`\
+https://nytimes.com/athletic/6269179/2025/04/10/athletic-football-show-shemar-stewart-nfl-draft/
+
 **'Toughest player in the league': Why Leafs signed free-agent defenceman Blake Smith**\
 `Toronto continued adding to its prospect pool Thursday, inking Smith to a three-year, entry-level contract beginning next season.`\
 https://nytimes.com/athletic/6270906/2025/04/10/maple-leafs-sign-blake-smith/
