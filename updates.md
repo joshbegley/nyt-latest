@@ -1,3 +1,7 @@
+**'He was gonna be our guy forever': Mavs fans seek closure in Luka Dončić's return**\
+`"I don't even know how I played this game," Dončić said. "So many emotions."`\
+https://nytimes.com/athletic/6269007/2025/04/10/luka-doncic-mavericks-fans-first-game-in-dallas-since-trade/
+
 **Luka Dončić, Mavs fans seek closure in Lakers star's first game in Dallas since trade**\
 `"I don't even know how I played this game," Dončić said. "So many emotions."`\
 https://nytimes.com/athletic/6269007/2025/04/10/luka-doncic-mavericks-fans-first-game-in-dallas-since-trade/
