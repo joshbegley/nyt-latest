@@ -1,3 +1,15 @@
+**The New York Times in Print for Thursday, April 10, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/10/todays-new-york-times
+
+**This Is No Way to Stop the World’s Trumps**\
+`The proscribing of Marine Le Pen will do little to staunch support for the far right.`\
+https://nytimes.com/2025/04/10/opinion/le-pen-france-far-right.html
+
+**Giants still making a Splash as Mike Yastrzemski delivers third walk-off win of homestand**\
+`After being five runs down, the Giants showed once again that they're competitive with an 8-6 victory over the Reds.`\
+https://nytimes.com/athletic/6267992/2025/04/10/san-francisco-giants-mike-yastrzemski-walkoff/
+
 **Suns are now a cautionary tale and have only one card left to play**\
 `No team in the last four decades has faced a situation anywhere close to this hopeless.`\
 https://nytimes.com/athletic/6268131/2025/04/10/devin-booker-trade-suns-nba-thunder/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6267524/2025/04/10/handbrake-off-arsenal-real-madri
 **Everton's top prospect Harrison Armstrong is thriving in the spotlight on loan at Derby**\
 `Helping one of the Championship's biggest clubs in their fight to avoid relegation is doing wonders for teenager Armstrong's development`\
 https://nytimes.com/athletic/6266773/2025/04/10/harrison-armstrong-evertons-top-prospect-is-thriving-under-the-spotlight-at-derby/
-
-**Rayan Cherki has always been special. Now there are goals and assists, too**\
-`The Lyon and France Under-21 playmaker is a mercurial genius who could torment Man United. There is far more to him than meets the eye`\
-https://nytimes.com/athletic/6266304/2025/04/10/rayan-cherki-lyon-skills-two-footed-transfer-future/
-
-**Fantasy Premier League: The differentials for big gains in Double Gameweek 32**\
-`Aston Villa, Crystal Palace and Newcastle United all have low-owned options`\
-https://nytimes.com/athletic/6265085/2025/04/10/fantasy-premier-league-double-gameweek-32-differentials/
-
-**The great Liam Delap transfer auction - feat. Chelsea, Man Utd and half the Premier League**\
-`The Old Trafford club will be just one of a host of suitors for Ipswich's highly-rated striker this summer`\
-https://nytimes.com/athletic/6266733/2025/04/10/liam-delap-manchester-united-transfer-auction/
 

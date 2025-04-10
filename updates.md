@@ -1,3 +1,15 @@
+**The New York Times in Print for Thursday, April 10, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/10/todays-new-york-times
+
+**This Is No Way to Stop the World’s Trumps**\
+`The proscribing of Marine Le Pen will do little to staunch support for the far right.`\
+https://nytimes.com/2025/04/10/opinion/le-pen-france-far-right.html
+
+**Giants still making a Splash as Mike Yastrzemski delivers third walk-off win of homestand**\
+`After being five runs down, the Giants showed once again that they're competitive with an 8-6 victory over the Reds.`\
+https://nytimes.com/athletic/6267992/2025/04/10/san-francisco-giants-mike-yastrzemski-walkoff/
+
 **Suns are now a cautionary tale and have only one card left to play**\
 `No team in the last four decades has faced a situation anywhere close to this hopeless.`\
 https://nytimes.com/athletic/6268131/2025/04/10/devin-booker-trade-suns-nba-thunder/

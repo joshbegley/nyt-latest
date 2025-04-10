@@ -1,3 +1,11 @@
+**Thursday Briefing**\
+`A retreat on President Trump’s tariffs.`\
+https://nytimes.com/2025/04/10/briefing/trump-tariffs-syria.html
+
+**Joe Ryan dominates Royals after Twins potentially lose Pablo López to IL**\
+`Ryan starred over seven sterling innings, providing his team the type of outing he routinely made in 2024.`\
+https://nytimes.com/athletic/6268923/2025/04/10/joe-ryan-dominant-twins-beat-royals-pablo-lopez/
+
 **The New York Times in Print for Thursday, April 10, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/04/10/todays-new-york-times
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6264411/2025/04/10/matheus-cunha-wolves-return/
 **Kim Shin-jo, a Failed North Korean Assassin, Dies as a Pastor in the South**\
 `Kim Shin-jo famously said the mission of a hit squad sent by Pyongyang in 1968 was to “slit the throat” of the then South Korean dictator Park Chung-hee.`\
 https://nytimes.com/2025/04/10/world/asia/kim-shin-jo-dead.html
-
-**Listen: Why Lewis-Skelly's 'coming of age' performance should be a shock to nobody**\
-`Handbrake off discuss whether Myles Lewis-Skelly’s performance against Real Madrid shows he has the potential to be a generational talent`\
-https://nytimes.com/athletic/6267524/2025/04/10/handbrake-off-arsenal-real-madrid-lewis-skelly/
-
-**Everton's top prospect Harrison Armstrong is thriving in the spotlight on loan at Derby**\
-`Helping one of the Championship's biggest clubs in their fight to avoid relegation is doing wonders for teenager Armstrong's development`\
-https://nytimes.com/athletic/6266773/2025/04/10/harrison-armstrong-evertons-top-prospect-is-thriving-under-the-spotlight-at-derby/
 
