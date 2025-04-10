@@ -1,3 +1,15 @@
+**China Says Its Own Consumers Will Save the Day. But They’re Not Buying.**\
+`If sky-high U.S. tariffs hurt China’s exports, domestic spending will help make up for it, Beijing says. But shoppers were skittish even before the trade war.`\
+https://nytimes.com/2025/04/10/world/asia/china-trump-tariffs-consumers.html
+
+**How a 'cold war' in Denver forced the Nuggets to clean house at a stunning moment**\
+`Why did the Nuggets choose to fire both coach Michael Malone and general manager Calvin Booth? And more importantly, why now?`\
+https://nytimes.com/athletic/6269100/2025/04/10/nuggets-firings-mike-malone-calvin-booth-nba/
+
+**U.S. and China Headed for ‘Monumental’ Split, Putting World Economy on Edge**\
+`A deepening trade war could further weaken ties between the superpowers. The effects will reverberate everywhere.`\
+https://nytimes.com/2025/04/10/business/us-china-tariffs-trade-war.html
+
 **Wild's Zeev Buium looks ready for the next level as he returns to Frozen Four: 'Reminds me a lot of Cale Makar'**\
 `One NHL scout on Buium: "The stuff he’s doing on the blue line — Makar does that, Lane Hutson does that and Quinn Hughes does that."`\
 https://nytimes.com/athletic/6236628/2025/04/10/zeev-buium-frozen-four-denver-wild/
