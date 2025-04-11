@@ -1,3 +1,7 @@
+**Osasuna lose appeal over eligibility of Barcelona's Martinez**\
+`Osasuna had alleged that Martinez was ineligible to play in the fixture after he withdrew from the Spain squad through injury.`\
+https://nytimes.com/athletic/6272173/2025/04/11/inigo-martinez-barcelona-osasuna-appeal/
+
 **What happened on Thursday.**\
 `By The New York Times`\
 https://nytimes.com/live/2025/04/10/us/trump-news/what-happened-on-thursday
