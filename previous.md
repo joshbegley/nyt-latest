@@ -1,3 +1,7 @@
+**Soulja Boy Is Ordered to Pay $4 Million in Sexual Assault Case**\
+`The rapper, known for songs like “Crank That (Soulja Boy),” was found liable of assaulting a woman who said she was his assistant over two years.`\
+https://nytimes.com/2025/04/11/arts/music/soulja-boy-sexual-assault-trial-verdict.html
+
 **Education Department Is Threatening to Cut All Federal Funding for Maine Schools**\
 `The Trump administration has been targeting Maine since the president sparred with Gov. Janet Mills over transgender athletes at the White House in February.`\
 https://nytimes.com/2025/04/11/us/politics/maine-school-funding-trump-education.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/11/magazine/phone-privacy-relationships-ethics.html
 **Thousands of Voters Must Verify Information in Contested Election, N.C. Supreme Court Rules**\
 `The number of ballots in question exceeds the slim margin by which the Democrat incumbent, Justice Allison Riggs, won.`\
 https://nytimes.com/2025/04/11/us/north-carolina-griffin-riggs-election-votes.html
-
-**The 12 Best Things We Saw at Salone Del Mobile**\
-`The Milan design fair returned this week with Technicolor shag rugs, teapots and an imaginary 1970s house.`\
-https://nytimes.com/2025/04/11/t-magazine/milan-design-fair-salone-highlights.html
 

@@ -1,3 +1,7 @@
+**Soulja Boy Is Ordered to Pay $4 Million in Sexual Assault Case**\
+`The rapper, known for songs like “Crank That (Soulja Boy),” was found liable of assaulting a woman who said she was his assistant over two years.`\
+https://nytimes.com/2025/04/11/arts/music/soulja-boy-sexual-assault-trial-verdict.html
+
 **Education Department Is Threatening to Cut All Federal Funding for Maine Schools**\
 `The Trump administration has been targeting Maine since the president sparred with Gov. Janet Mills over transgender athletes at the White House in February.`\
 https://nytimes.com/2025/04/11/us/politics/maine-school-funding-trump-education.html

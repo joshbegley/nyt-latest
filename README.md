@@ -1,3 +1,7 @@
+**Rory McIlroy rebounds from rocky Round 1 finish to surge into contention at The Masters**\
+`After finishing Thursday with two double bogeys in final four holes, McIlroy returned to play the round of the day Friday,`\
+https://nytimes.com/athletic/6273424/2025/04/11/rory-mcilroy-the-masters-contention/
+
 **Soulja Boy Is Ordered to Pay $4 Million in Sexual Assault Case**\
 `The rapper, known for songs like “Crank That (Soulja Boy),” was found liable of assaulting a woman who said she was his assistant over two years.`\
 https://nytimes.com/2025/04/11/arts/music/soulja-boy-sexual-assault-trial-verdict.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6273397/2025/04/11/joel-embiid-knee-surgery-76ers-2
 **My Girlfriend Keeps Looking Through My Phone. Should We Break Up?**\
 `The magazine’s Ethicist columnist on device privacy in relationships.`\
 https://nytimes.com/2025/04/11/magazine/phone-privacy-relationships-ethics.html
-
-**Thousands of Voters Must Verify Information in Contested Election, N.C. Supreme Court Rules**\
-`The number of ballots in question exceeds the slim margin by which the Democrat incumbent, Justice Allison Riggs, won.`\
-https://nytimes.com/2025/04/11/us/north-carolina-griffin-riggs-election-votes.html
 
