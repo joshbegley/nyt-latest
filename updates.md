@@ -1,3 +1,7 @@
+**Rick Levine, Who Gave Commercials Cinematic Flair, Dies at 94**\
+`An award-winning director, he created memorable ads for brands like Diet Pepsi and Wells Fargo by applying a Hollywood sensibility to the small screen.`\
+https://nytimes.com/2025/04/11/business/media/rick-levine-dead.html
+
 **A Judge Ordered the U.S. to Detail Its Efforts to Return a Deported Man**\
 `Also, some Apple employees are worried about the company. Here's the latest at the end of Friday.`\
 https://nytimes.com/2025/04/11/briefing/court-hearing-deportation-bond-markets-tariffs.html
