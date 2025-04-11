@@ -1,3 +1,23 @@
+**Premier League's failure to prevent Chelsea's latest accounting tricks shows it can't regulate its clubs**\
+`In an ideal world, self-regulation would preclude self-interest. But the interests of the game have been overtaken by owners' objectives`\
+https://nytimes.com/athletic/6269885/2025/04/11/premier-league-chelsea-regulator/
+
+**Why have Salah's goals and assists have dried up?**\
+`Circumstances on and off the field have contributed to Egyptian's dip in form in recent weeks`\
+https://nytimes.com/athletic/6266613/2025/04/11/mohamed-salah-goals-assists-form/
+
+**The best front threes in Champions League history**\
+`There's MSN, BBC and other memorable trios that weren't easily abbreviated `\
+https://nytimes.com/athletic/6270287/2025/04/11/champions-league-front-three-messi-neymar-ronaldo/
+
+**Madrid want to sign a centre-back this summer. Will it happen? And who could it be?**\
+`Madrid have problems in defence, but there are doubts whether those will be solved this summer`\
+https://nytimes.com/athletic/6270147/2025/04/11/real-madrid-centre-back-transfers/
+
+**Overanalysing the 348 teams to have appeared in the European Cup after Real Madrid's 500th game**\
+`Which countries have been represented? Which haven't? Who made the final in their only appearance? Why are Arges Pitesti special?`\
+https://nytimes.com/athletic/6252389/2025/04/11/348-clubs-in-european-cup-champions-league-tour/
+
 **Premier League top-five race: Why it's important and which teams can make it**\
 `Analysis of Nottingham Forest, Chelsea, Newcastle, Manchester City and Aston Villa as they battle to qualify for the Champions League`\
 https://nytimes.com/athletic/6267224/2025/04/11/premier-league-top-five-race-champions-league-chelsea-man-city/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6262650/2025/04/11/kevin-de-bruyne-left-foot-goals-
 **Elias Pettersson's fight, Kiefer Sherwood's breakout and more: 3 Canucks takeaways**\
 `Vancouver showed up well against the Avalanche and got terrific goaltending from Kevin Lankinen in a 4-1 win.`\
 https://nytimes.com/athletic/6271605/2025/04/11/canucks-avalanche-elias-pettersson-kiefer-sherwood/
-
-**French Soccer Icon Mbappé Battles Qatari-Owned Former Club for Millions**\
-`A long-simmering dispute pitting one of the world’s top athletes against France’s biggest soccer club has broken out into legal warfare.`\
-https://nytimes.com/2025/04/11/world/europe/kylian-mbappe-psg-qatar.html
-
-**Children Seeking Cholera Care Die After U.S. Cuts Aid, Charity Says**\
-`The victims died on a grueling three-hour walk in scorching heat as they tried to reach the nearest remaining health facility, officials of Save the Children said.`\
-https://nytimes.com/2025/04/11/world/africa/south-sudan-cholera-children-deaths.html
-
-**Hegseth to Attend Ukraine Defense Group Only Virtually**\
-`His predecessor as defense secretary, Lloyd J. Austin III, started the roughly 50-nation group to support Kyiv after Russia invaded in 2022, but Mr. Hegseth has given up leadership.`\
-https://nytimes.com/2025/04/11/us/hegseth-ukraine-defense-group.html
-
-**Has Disney+ Changed ‘Doctor Who’? U.S. and U.K. Fans Discuss.**\
-`The show has a bigger budget since the streaming behemoth got involved. Has that pleased its devotees?`\
-https://nytimes.com/2025/04/11/arts/television/doctor-who-disney-ncuti-gatwa.html
-
-**Effort to Get Starlink in South Africa Collides With Tension Over Musk**\
-`A government official is preparing to ease Black ownership rules that Elon Musk claims are racist and prevent his satellite internet provider from operating in his native country.`\
-https://nytimes.com/2025/04/11/world/africa/effort-to-get-starlink-in-south-africa-collides-with-tension-over-musk.html
 
