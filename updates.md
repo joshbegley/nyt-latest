@@ -1,3 +1,11 @@
+**Danns ruled out of Sunderland's promotion push**\
+`The striker joined Sunderland on deadline day in February but has not been able to make his debut for the Championship club.`\
+https://nytimes.com/athletic/6272786/2025/04/11/jayden-danns-injury-sunderland-liverpool/
+
+**Shopping for Wedding Dresses Off the Runway**\
+`Jerrie Johnson, a star of “Harlem,” and her fiancée, Dria Brown, attended shows and fittings during New York Bridal Fashion Week in preparation for their wedding next year.`\
+https://nytimes.com/2025/04/11/fashion/weddings/jerrie-johnson-new-york-bridal-fashion-week.html
+
 **World Cup games at MetLife need highest security ranking, says N.J. congressman**\
 `Appeals have been made to the FBI and Dept. of Homeland Security regarding the venue that will host the 2026 World Cup final.`\
 https://nytimes.com/athletic/6271162/2025/04/11/world-cup-metlife-stadium-homeland-security-fbi-fifa/
