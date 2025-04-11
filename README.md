@@ -1,3 +1,15 @@
+**Trump Administration Delays Plan to Limit Pricey Bandages**\
+`Medicare spending on “skin substitutes” reached $10 billion last year. A leading seller made a large donation to President Trump’s election campaign.`\
+https://nytimes.com/2025/04/11/health/skin-substitutes-medicare-policy-delay.html
+
+**Who Is Tate McRae?**\
+`The singer’s “Sports Car” is a hit, but why does it sound so familiar? Jon Caramanica explains in the latest “Popcast” song of the week video.`\
+https://nytimes.com/video/podcasts/100000010103378/who-is-tate-mcrae.html
+
+**Top U.S. Prosecutor in New Jersey, a Trump Loyalist, Targets Governor**\
+`Alina Habba said she was investigating Gov. Philip D. Murphy and the state’s attorney general over immigration policy. She called the inquiry a “warning for everybody.”`\
+https://nytimes.com/2025/04/11/nyregion/trump-justice-department-habba-immigration.html
+
 **Trump’s New Way to Kill Regulations: Because I Say So**\
 `The president is trying new shortcuts to eliminate energy and environmental rules, but legal experts say the efforts could face high hurdles.`\
 https://nytimes.com/2025/04/11/climate/trump-regulations.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/11/business/economy/trump-tariffs-imports-costs.html
 **'I cannot remember a single second' of career: Ex-rugby star speaks of memory loss**\
 `"When I talk about it at home with my wife, I tell her that I have the impression that it wasn't me who played rugby," Chabal said. `\
 https://nytimes.com/athletic/6272822/2025/04/11/sebastien-chabal-france-rugby-memory-loss/
-
-**Review: Dance Theater of Harlem, Reshaped and Back at City Center**\
-`Robert Garland, the company’s artistic director, has created his first work for the dancers since taking over in 2023.`\
-https://nytimes.com/2025/04/11/arts/dance/dance-theater-of-harlem-review.html
-
-**Dimitri Payet accused of 'physical, moral, psychological and sexual violence'**\
-`Larissa Natalya Ferrari told Brazilian outlet Globo that she has requested a protective measure from local police against Payet.`\
-https://nytimes.com/athletic/6272408/2025/04/11/dimitri-payet-assault-abuse-case/
-
-**Gov. Kim Reynolds of Iowa Won’t Seek Re-election, Setting Up Open Race**\
-`The move by Ms. Reynolds, a Republican, will shake up the leadership of a state that has transformed from a political battleground into safely red territory.`\
-https://nytimes.com/2025/04/11/us/politics/kim-reynolds-iowa-governor.html
 

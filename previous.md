@@ -1,3 +1,23 @@
+**Trump’s New Way to Kill Regulations: Because I Say So**\
+`The president is trying new shortcuts to eliminate energy and environmental rules, but legal experts say the efforts could face high hurdles.`\
+https://nytimes.com/2025/04/11/climate/trump-regulations.html
+
+**‘This is Not Normal’: Trump’s Tariffs Upend the Bond Market**\
+`In the usually steady government bond market, the yield on the 10-year Treasury has risen to more than 4.5 percent from less than 4 percent at the end of last week.`\
+https://nytimes.com/2025/04/11/business/economy/treasury-bonds-tariffs.html
+
+**FA updates policy on transgender women includes stricter criteria for eligibility**\
+`The FA says a new formal process will give the governing body "ultimate discretion" over eligibility of transgender and non-binary players`\
+https://nytimes.com/athletic/6272905/2025/04/11/fa-transgender-women-policy/
+
+**Morant switches to grenade gesture after fine for gun-related celebration**\
+`“That’s my celebration now until somebody else has a problem with it, and I’ll find another one,” Morant said Thursday.`\
+https://nytimes.com/athletic/6272672/2025/04/11/ja-morant-grenade-celebration-grizzlies/
+
+**Miami Art Dealer Is Charged With Selling Fraudulent Warhols**\
+`The dealer, Leslie Roberts of Miami Fine Art Gallery, was accused of using fake invoices and forged authentication documents to make the works appear legitimate.`\
+https://nytimes.com/2025/04/11/arts/design/miami-art-dealer-fraudulent-warhols.html
+
 **What to Know About Who Pays the Higher Costs of Trump’s Tariffs**\
 `President Trump’s trade policies will make imports more expensive and calculating and paying the tariffs more complicated.`\
 https://nytimes.com/2025/04/11/business/economy/trump-tariffs-imports-costs.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6272408/2025/04/11/dimitri-payet-assault-abuse-case
 **Gov. Kim Reynolds of Iowa Won’t Seek Re-election, Setting Up Open Race**\
 `The move by Ms. Reynolds, a Republican, will shake up the leadership of a state that has transformed from a political battleground into safely red territory.`\
 https://nytimes.com/2025/04/11/us/politics/kim-reynolds-iowa-governor.html
-
-**Europe Moves to Shield Itself From Trade War Fallout**\
-`The uncertainty of higher tariffs has spurred Germany, Italy, Portugal and Spain to announce financial lifelines for businesses and workers. More countries are expected to follow.`\
-https://nytimes.com/2025/04/11/business/trump-tariffs-eu.html
-
-**Shaq agrees to walk Dwight Howard into Hall of Fame, settling long feud**\
-`Though the two have had beef over a Superman cape since 2008, O'Neal immediately agreed to partake in Howard's induction ceremony.`\
-https://nytimes.com/athletic/6272835/2025/04/11/dwight-howard-shaquille-oneal-hall-of-fame-beef/
-
-**Seven former Day 1 MLB draft picks showing signs of breakthroughs early this season**\
-`These seven former first- and second-round picks have made early statements that show they might be taking big steps forward this season. `\
-https://nytimes.com/athletic/6272789/2025/04/11/mlb-former-top-draft-picks-breakouts/
-
-**May You Listen to ‘Interesting Times’**\
-`My new show will look at our strange and getting-stranger world.`\
-https://nytimes.com/2025/04/11/opinion/interesting-times.html
-
-**How to watch the Cubs at Dodgers series: Can Chicago stay hot against a tough LA team?**\
-`The Cubs and Dodgers meet again, this time in LA. After losing both games in Tokyo to the Dodgers, the Cubs will want this one. `\
-https://nytimes.com/athletic/6265319/2025/04/11/cubs-dodgers-ohtani-betts-freeman-sasaki-glasnow-how-to-watch/
 
