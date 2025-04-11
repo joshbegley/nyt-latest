@@ -1,3 +1,11 @@
+**Jon Rahm's angry Masters Thursday magnifies the truth about the former champion**\
+`For the fourth consecutive major, he did not look like the world-beating, balanced force of nature.`\
+https://nytimes.com/athletic/6271282/2025/04/10/jon-rahm-masters-round-1/
+
+**Isaiah Bond turns self in to Frisco PD for outstanding warrant: Report**\
+`A top-100 prospect in the 2025 NFL Draft, Bond spent his 2024 season as a starting wide receiver for the University of Texas `\
+https://nytimes.com/athletic/6271152/2025/04/10/isaiah-bond-warrant-frisco-nfl-draft/
+
 **Concacaf Gold Cup draw results: Groups set for summer competition**\
 `The 16-team field has its marching orders for this summer, when Concacaf will crown its newest champion.`\
 https://nytimes.com/athletic/6270285/2025/04/10/2025-concacaf-gold-cup-draw-usmnt-group-opponents/
