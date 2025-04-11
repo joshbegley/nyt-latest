@@ -1,3 +1,11 @@
+**Texans, S Jalen Pitre agree to 3-year, $39M extension: Source**\
+`Pitre, who finished fifth in Defensive Rookie of the Year voting in 2022, is now reportedly the highest-paid nickel back in the league.`\
+https://nytimes.com/athletic/6272387/2025/04/11/texans-jalen-pitre-extension/
+
+**Listen: Does Rasmus Hojlund have what it takes to be United's No 9?**\
+`Talk of the Devils discussed the 22-year-old Dane's ongoing struggles and whether he has what it takes to be United’s main man up front`\
+https://nytimes.com/athletic/6270419/2025/04/11/talk-of-the-devils-rasmus-hojlund-lyon/
+
 **Grace Lin’s Long-Awaited New Fantasy Novel Stars Her First Animal Protagonist**\
 `A mythical lion cub stuck in the modern world must harness the power of stories to save his family and return home.`\
 https://nytimes.com/2025/04/11/books/review/grace-lin-the-gate-the-girl-and-the-dragon.html

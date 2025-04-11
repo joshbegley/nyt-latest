@@ -1,3 +1,11 @@
+**Texans, S Jalen Pitre agree to 3-year, $39M extension: Source**\
+`Pitre, who finished fifth in Defensive Rookie of the Year voting in 2022, is now reportedly the highest-paid nickel back in the league.`\
+https://nytimes.com/athletic/6272387/2025/04/11/texans-jalen-pitre-extension/
+
+**Listen: Does Rasmus Hojlund have what it takes to be United's No 9?**\
+`Talk of the Devils discussed the 22-year-old Dane's ongoing struggles and whether he has what it takes to be United’s main man up front`\
+https://nytimes.com/athletic/6270419/2025/04/11/talk-of-the-devils-rasmus-hojlund-lyon/
+
 **Grace Lin’s Long-Awaited New Fantasy Novel Stars Her First Animal Protagonist**\
 `A mythical lion cub stuck in the modern world must harness the power of stories to save his family and return home.`\
 https://nytimes.com/2025/04/11/books/review/grace-lin-the-gate-the-girl-and-the-dragon.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6232970/2025/04/11/baltimore-ravens-2025-nfl-draft-
 **Man Utd considering summer moves for Cunha and Delap**\
 `Delap is high in thoughts at United to come in as striker, while Cunha is seen as potentially a good fit for one of the No 10 positions.`\
 https://nytimes.com/athletic/6270254/2025/04/11/manchester-united-transfers-delap-cunha/
-
-**What to watch in MLB this weekend: Aaron Judge-Logan Webb, Cubs-Dodgers, AL Central clash**\
-`It's an awesome MLB slate this weekend, headlined by Giants-Yankees, Cubs-Dodgers and a few intriguing divisional sets.`\
-https://nytimes.com/athletic/6269645/2025/04/11/mlb-what-to-watch-2025-aaron-judge-shohei-ohtani-cole-ragans/
-
-**She Worked in a Harvard Lab to Reverse Aging, Until ICE Jailed Her**\
-`President Trump’s immigration crackdown ensnared Kseniia Petrova, a scientist who fled Russia after protesting its invasion of Ukraine. She fears arrest if she is deported there.`\
-https://nytimes.com/2025/04/11/science/russian-scientist-ice-detained-harvard.html
 
