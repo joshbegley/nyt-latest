@@ -1,4 +1,8 @@
-**How the Rangers' final 3 games and the NHL draft lottery impact their decision on conditional first-rounder**\
+**New Pact Would Require Ships to Cut Emissions or Pay a Fee**\
+`A draft global agreement sets a fee for cargo ships, which carry the vast majority of world trade, to pay for their greenhouse gas emissions.`\
+https://nytimes.com/2025/04/11/climate/cargo-shipping-emissions.html
+
+**How the Rangers' final 3 games, draft lottery impact decision on conditional first-rounder**\
 `Should they ship out the pick they traded for J.T. Miller or roll it over to next year? Does it help to tank? Intrigue remains.`\
 https://nytimes.com/athletic/6272346/2025/04/11/rangers-conditional-pick-decision/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6272449/2025/04/11/vivianne-miedema-injury-update-m
 **Two teenager soccer fans die after clashes with police in Chile**\
 `Police general Alex Bahamondes told TVN that the victims were an 18-year-old girl and a 13-year-old boy.`\
 https://nytimes.com/athletic/6272233/2025/04/11/copa-libertadores-deaths-police-chile-colo-colo/
-
-**Texans, S Jalen Pitre agree to 3-year, $39M extension: Source**\
-`Pitre, who finished fifth in Defensive Rookie of the Year voting in 2022, is now reportedly the highest-paid nickel back in the league.`\
-https://nytimes.com/athletic/6272387/2025/04/11/texans-jalen-pitre-extension/
 
