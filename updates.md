@@ -1,3 +1,19 @@
+**Who’s In and Who’s Out at the Naval Academy’s Library?**\
+`An order by Defense Secretary Pete Hegseth’s office resulted in a purge of books critical of racism but preserved volumes defending white power.`\
+https://nytimes.com/2025/04/11/us/politics/naval-academy-banned-books.html
+
+**Trump Administration Delays Plan to Limit Pricey Bandages**\
+`Medicare spending on “skin substitutes” reached $10 billion last year. A leading seller made a large donation to President Trump’s election campaign.`\
+https://nytimes.com/2025/04/11/health/skin-substitutes-medicare-policy-delay.html
+
+**Who Is Tate McRae?**\
+`The singer’s “Sports Car” is a hit, but why does it sound so familiar? Jon Caramanica explains in the latest “Popcast” song of the week video.`\
+https://nytimes.com/video/podcasts/100000010103378/who-is-tate-mcrae.html
+
+**Top U.S. Prosecutor in New Jersey, a Trump Loyalist, Targets Governor**\
+`Alina Habba said she was investigating Gov. Philip D. Murphy and the state’s attorney general over immigration policy. She called the inquiry a “warning for everybody.”`\
+https://nytimes.com/2025/04/11/nyregion/trump-justice-department-habba-immigration.html
+
 **Trump’s New Way to Kill Regulations: Because I Say So**\
 `The president is trying new shortcuts to eliminate energy and environmental rules, but legal experts say the efforts could face high hurdles.`\
 https://nytimes.com/2025/04/11/climate/trump-regulations.html
