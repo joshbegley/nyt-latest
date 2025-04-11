@@ -1,3 +1,7 @@
+**Autoworkers Union Chief Gives Trump’s Tariffs a Mixed Review**\
+`In an address to the U.A.W., Shawn Fain said a targeted approach could help bring jobs back to the United States, but he criticized universal duties.`\
+https://nytimes.com/2025/04/10/business/uaw-shawn-fain-trump.html
+
 **Trump Threatens More Tariffs and Sanctions on Mexico Over Long-Running Water Dispute**\
 `President Trump on Thursday cited the growing water debt that Mexico owes the United States under a treaty governing the use of the countries’ shared rivers.`\
 https://nytimes.com/2025/04/10/us/politics/trump-mexico-water-dispute.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6271454/2025/04/10/scottie-scheffler-masters-green-
 **Justin Rose leads the Masters, proving to himself that he can still compete at age 44**\
 `"When the big stage is there, I can kind of bring my game and still compete with the best players in the world," Rose said.`\
 https://nytimes.com/athletic/6271295/2025/04/10/justin-rose-masters-leader/
-
-**Charter Company in Fatal Helicopter Crash Had Prior Mechanical Failures**\
-`At least twice before in the past 12 years, aircraft operated by the firm New York Helicopter Charter failed while in flight.`\
-https://nytimes.com/2025/04/10/nyregion/nyc-helicopter-crash-company-mechanical.html
 
