@@ -1,3 +1,11 @@
+**Education Department Is Threatening to Cut All Federal Funding for Maine Schools**\
+`The Trump administration has been targeting Maine since the president sparred with Gov. Janet Mills over transgender athletes at the White House in February.`\
+https://nytimes.com/2025/04/11/us/politics/maine-school-funding-trump-education.html
+
+**Derek Carr's status for 2025 in jeopardy due to shoulder injury: Sources**\
+`Carr started in all of the Saints' five wins last season before suffering a season-ending hand injury. `\
+https://nytimes.com/athletic/6273388/2025/04/11/saints-derek-carr-shoulder-injury-2025/
+
 **South Carolina Executes Second Inmate by Firing Squad**\
 `Mikal Mahdi’s execution came about a month after the first person in state history was killed in such a manner. Before that, no person had been killed by a firing squad in the United States in 15 years.`\
 https://nytimes.com/2025/04/11/us/south-carolina-execution-firing-squad.html
