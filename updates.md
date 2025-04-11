@@ -1,3 +1,11 @@
+**What to Know About Who Pays the Higher Costs of Trump’s Tariffs**\
+`President Trump’s trade policies will make imports more expensive and calculating and paying the tariffs more complicated.`\
+https://nytimes.com/2025/04/11/business/economy/trump-tariffs-imports-costs.html
+
+**'I cannot remember a single second' of career: Ex-rugby star speaks of memory loss**\
+`"When I talk about it at home with my wife, I tell her that I have the impression that it wasn't me who played rugby," Chabal said. `\
+https://nytimes.com/athletic/6272822/2025/04/11/sebastien-chabal-france-rugby-memory-loss/
+
 **Review: Dance Theater of Harlem, Reshaped and Back at City Center**\
 `Robert Garland, the company’s artistic director, has created his first work for the dancers since taking over in 2023.`\
 https://nytimes.com/2025/04/11/arts/dance/dance-theater-of-harlem-review.html
