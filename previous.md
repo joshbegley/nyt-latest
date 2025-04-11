@@ -1,3 +1,15 @@
+**Joseph Boskin, Scholar of Humor and April Fools’ Prankster, Dies at 95**\
+`To oblige an eager reporter, he invented a story about the holiday’s origin. He didn’t realize it would turn out to be his “Andy Warhol moment.”`\
+https://nytimes.com/2025/04/11/us/joseph-boskin-dead-april-fools.html
+
+**76ers star Joel Embiid undergoes successful left knee surgery**\
+`Embiid was ruled out for the remainder of the season at the end of February following a battle with his left knee`\
+https://nytimes.com/athletic/6273397/2025/04/11/joel-embiid-knee-surgery-76ers-2/
+
+**My Girlfriend Keeps Looking Through My Phone. Should We Break Up?**\
+`The magazine’s Ethicist columnist on device privacy in relationships.`\
+https://nytimes.com/2025/04/11/magazine/phone-privacy-relationships-ethics.html
+
 **Thousands of Voters Must Verify Information in Contested Election, N.C. Supreme Court Rules**\
 `The number of ballots in question exceeds the slim margin by which the Democrat incumbent, Justice Allison Riggs, won.`\
 https://nytimes.com/2025/04/11/us/north-carolina-griffin-riggs-election-votes.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/11/us/politics/immigration-enforcement-places-of-wor
 **See the Moments Leading Up to the Nightclub Roof Collapse in Santo Domingo**\
 `Video taken at the scene shows debris was already falling from the ceiling of the Jet Set nightclub before it caved in.`\
 https://nytimes.com/interactive/2025/04/11/world/americas/nightclub-dominican-republic-collapse.html
-
-**Suzanne Rand, Half of a Once-Popular Comedy Team, Dies at 75**\
-`Like Nichols and May before them, Monteith and Rand had their own Broadway show. Unlike Nichols and May, they faded from view after they broke up.`\
-https://nytimes.com/2025/04/11/theater/suzanne-rand-dead.html
-
-**A President Obsessed With Water Pressure? On Netflix and in the White House.**\
-`Paul William Davies, the creator of “The Residence,” talks about overlapping themes between his series and the actual Trump administration.`\
-https://nytimes.com/2025/04/11/style/the-residence-netflix-trump-water-pressure.html
-
-**Drew Lock set to reunite with Seattle Seahawks: Source**\
-`Lock joins a QB room that also includes Sam Darnold and Sam Howell. Will Seahawks also draft a signal caller?`\
-https://nytimes.com/athletic/6273319/2025/04/11/drew-lock-seattle-seahawks-free-agency/
 

@@ -1,3 +1,15 @@
+**Joseph Boskin, Scholar of Humor and April Fools’ Prankster, Dies at 95**\
+`To oblige an eager reporter, he invented a story about the holiday’s origin. He didn’t realize it would turn out to be his “Andy Warhol moment.”`\
+https://nytimes.com/2025/04/11/us/joseph-boskin-dead-april-fools.html
+
+**76ers star Joel Embiid undergoes successful left knee surgery**\
+`Embiid was ruled out for the remainder of the season at the end of February following a battle with his left knee`\
+https://nytimes.com/athletic/6273397/2025/04/11/joel-embiid-knee-surgery-76ers-2/
+
+**My Girlfriend Keeps Looking Through My Phone. Should We Break Up?**\
+`The magazine’s Ethicist columnist on device privacy in relationships.`\
+https://nytimes.com/2025/04/11/magazine/phone-privacy-relationships-ethics.html
+
 **Thousands of Voters Must Verify Information in Contested Election, N.C. Supreme Court Rules**\
 `The number of ballots in question exceeds the slim margin by which the Democrat incumbent, Justice Allison Riggs, won.`\
 https://nytimes.com/2025/04/11/us/north-carolina-griffin-riggs-election-votes.html
