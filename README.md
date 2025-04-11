@@ -1,3 +1,7 @@
+**Cade Cunningham's 36 points, stout defense subdue Knicks: 'That's Pistons basketball'**\
+`The Pistons' second-half defensive performance looked more like the version of Detroit that went on an 8-game win streak in February.`\
+https://nytimes.com/athletic/6271841/2025/04/11/pistons-cade-cunningham-defense-subdue-knicks/
+
 **Would You Want a Robot to Do Your Daily Chores?**\
 `A company hopes to put an A.I.-powered humanoid into homes soon. Tell us if you’re ready to share your house with a robo-butler.`\
 https://nytimes.com/2025/04/11/learning/would-you-want-a-robot-to-do-your-daily-chores.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/11/us/politics/senate-dan-caine-joint-chiefs.html
 **Andre Onana failed to prove Nemanja Matic wrong. Now Man Utd can't risk any more mistakes**\
 `Andre Onana conceded two goals that came from his own errors against Lyon on Thursday evening`\
 https://nytimes.com/athletic/5777196/2025/04/11/andre-onana-manchester-united-lyon-analysis/
-
-**Word of the Day: coniferous**\
-`This word has appeared in seven articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/04/11/learning/word-of-the-day-coniferous.html
 
