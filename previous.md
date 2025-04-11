@@ -1,3 +1,11 @@
+**Trump to Undergo First Physical Since Retaking Office**\
+`The president has often been guarded about even the most basic information about his health.`\
+https://nytimes.com/2025/04/11/us/politics/trump-physical.html
+
+**Trump Showed His Pain Point in His Standoff With China**\
+`Xi Jinping, who rules with absolute authority, has shown he is willing to let the Chinese people endure hardship. President Trump revealed he has limits.`\
+https://nytimes.com/2025/04/11/business/us-china-tariffs-trump-xi.html
+
 **Miami-Dade Mayor Vetoes Plan to Remove Fluoride From Drinking Water**\
 `The veto by Mayor Daniella Levine Cava, a Democrat, pushed back on a growing campaign against the mineral, which has been used for decades to prevent cavities.`\
 https://nytimes.com/2025/04/11/us/politics/miami-dade-fluoride-ban-veto.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/11/nyregion/us-maryland-man-deportation-delay.html
 **Experts Doubt Kennedy’s Timetable for Finding the Cause of Autism**\
 `The nation’s health secretary announced that he planned to invite scientists to provide answers by September, but specialists consider that target date unrealistic.`\
 https://nytimes.com/2025/04/11/health/rfk-jr-autism-vaccines.html
-
-**F1 commits to hybrid engines in future, V10s ‘impossible’ for next few years**\
-`FIA president Mohammed Ben Sulayem called for an evaluation of naturally-aspirated V10s as a future engine solution earlier this year.`\
-https://nytimes.com/athletic/6272602/2025/04/11/f1-hybrid-engines-2026/
-
-**Premier League predicted line-ups: Who do our writers think will start in Gameweek 32?**\
-`As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
-https://nytimes.com/athletic/6263557/2025/04/11/premier-league-predicted-lineups-gameweek-32/
 

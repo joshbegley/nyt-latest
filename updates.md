@@ -1,3 +1,11 @@
+**Trump to Undergo First Physical Since Retaking Office**\
+`The president has often been guarded about even the most basic information about his health.`\
+https://nytimes.com/2025/04/11/us/politics/trump-physical.html
+
+**Trump Showed His Pain Point in His Standoff With China**\
+`Xi Jinping, who rules with absolute authority, has shown he is willing to let the Chinese people endure hardship. President Trump revealed he has limits.`\
+https://nytimes.com/2025/04/11/business/us-china-tariffs-trump-xi.html
+
 **Miami-Dade Mayor Vetoes Plan to Remove Fluoride From Drinking Water**\
 `The veto by Mayor Daniella Levine Cava, a Democrat, pushed back on a growing campaign against the mineral, which has been used for decades to prevent cavities.`\
 https://nytimes.com/2025/04/11/us/politics/miami-dade-fluoride-ban-veto.html
