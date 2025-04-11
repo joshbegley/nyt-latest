@@ -1,3 +1,11 @@
+**The 12 Best Things We Saw at Salone Del Mobile**\
+`The Milan design fair returned this week with Technicolor shag rugs, teapots and an imaginary 1970s house.`\
+https://nytimes.com/2025/04/11/t-magazine/milan-design-fair-salone-highlights.html
+
+**Mangione Says U.S. Bid to Execute Him Is an Instagram Stunt**\
+`Lawyers for the man accused of killing a health insurance executive in Manhattan said the attorney general was trying to create content for Instagram by announcing she would pursue the death penalty.`\
+https://nytimes.com/2025/04/11/nyregion/luigi-mangione-death-penalty.html
+
 **Rick Levine, Who Gave Commercials Cinematic Flair, Dies at 94**\
 `An award-winning director, he created ads for brands like Diet Pepsi (starring Michael J. Fox) and Wells Fargo by bringing a Hollywood sensibility to the small screen.`\
 https://nytimes.com/2025/04/11/business/media/rick-levine-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6273319/2025/04/11/drew-lock-seattle-seahawks-free-
 **Marsch calls Davies truce with Bayern Munich, looks to Gold Cup**\
 `The disharmony between Canada and Bayern over Davies' injury appears to be settled. Full focus is now on this summer's tournament.`\
 https://nytimes.com/athletic/6273253/2025/04/11/marsch-davies-gold-cup-canada-bayern-munich/
-
-**Five More Big Law Firms Reach Deals With Trump**\
-`Kirkland & Ellis, Latham & Watkins, A&O Shearman, Simpson Thacher & Bartlett and Cadwalader, Wickersham & Taft agreed to do free legal work on causes the White House supports.`\
-https://nytimes.com/2025/04/11/business/trump-law-firms-kirkland-ellis-latham-watkins.html
-
-**Elected Official Is Among Dozens Charged in a Mob-Linked Gambling Case**\
-`A member of a New Jersey town council and several reputed Lucchese crime family members played roles in an illegal betting ring that netted more than $3 million, prosecutors said.`\
-https://nytimes.com/2025/04/11/nyregion/gambling-mob-nj-police.html
 
