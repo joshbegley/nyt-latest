@@ -1,3 +1,19 @@
+**Munoz signs new Palace contract**\
+`The Colombia international’s previous deal was set to expire in 2027 with the option of an additional year.`\
+https://nytimes.com/athletic/6273073/2025/04/11/daniel-munoz-crystal-palace-contract/
+
+**Fed Under Pressure as Inflation Expectations Rise**\
+`A new survey from the University of Michigan shows consumers souring sharply on the economic outlook as the trade war heats up.`\
+https://nytimes.com/2025/04/11/business/economy/fed-inflation-trade.html
+
+**The Nihilistic, Chaotic Year So Far at the N.I.H.**\
+`Efficiency is not being enhanced, nor is waste being eliminated at the N.I.H. Scientists are just left to wonder: Why?`\
+https://nytimes.com/2025/04/11/opinion/nih-scientists-staffing-cuts.html
+
+**Song of the Week: Who Is Tate McRae?**\
+`The singer’s “Sports Car” is a hit, but why does it sound so familiar? Jon Caramanica explains from his car in the latest “Popcast” song of the week video.`\
+https://nytimes.com/video/podcasts/100000010103378/who-is-tate-mcrae.html
+
 **George Bell, Considered the Tallest Man in America, Dies at 67**\
 `Being 7-foot-8 posed “a lot of challenges,” he once said. “Like how do I fit in cars, or where do I find clothes?”`\
 https://nytimes.com/2025/04/11/us/george-bell-tallest-man-dead.html
