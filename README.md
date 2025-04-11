@@ -1,3 +1,7 @@
+**Who’s In and Who’s Out at the Naval Academy’s Library?**\
+`An order by Defense Secretary Pete Hegseth’s office resulted in a purge of books critical of racism but preserved volumes defending white power.`\
+https://nytimes.com/2025/04/11/us/politics/naval-academy-banned-books.html
+
 **Trump Administration Delays Plan to Limit Pricey Bandages**\
 `Medicare spending on “skin substitutes” reached $10 billion last year. A leading seller made a large donation to President Trump’s election campaign.`\
 https://nytimes.com/2025/04/11/health/skin-substitutes-medicare-policy-delay.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/11/arts/design/miami-art-dealer-fraudulent-warhols.h
 **What to Know About Who Pays the Higher Costs of Trump’s Tariffs**\
 `President Trump’s trade policies will make imports more expensive and calculating and paying the tariffs more complicated.`\
 https://nytimes.com/2025/04/11/business/economy/trump-tariffs-imports-costs.html
-
-**'I cannot remember a single second' of career: Ex-rugby star speaks of memory loss**\
-`"When I talk about it at home with my wife, I tell her that I have the impression that it wasn't me who played rugby," Chabal said. `\
-https://nytimes.com/athletic/6272822/2025/04/11/sebastien-chabal-france-rugby-memory-loss/
 
