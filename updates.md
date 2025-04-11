@@ -1,3 +1,7 @@
+**A President Obsessed With Water Pressure? On Netflix and in the White House.**\
+`Paul William Davies, the creator of “The Residence,” talks about overlapping themes between his series and the actual Trump administration.`\
+https://nytimes.com/2025/04/11/style/the-residence-netflix-trump-water-pressure.html
+
 **Drew Lock set to reunite with Seattle Seahawks: Source**\
 `Lock joins a QB room that also includes Sam Darnold and Sam Howell. Will Seahawks also draft a signal caller?`\
 https://nytimes.com/athletic/6273319/2025/04/11/drew-lock-seattle-seahawks-free-agency/
