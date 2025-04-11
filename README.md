@@ -1,3 +1,23 @@
+**F1 commits to hybrid engines in future, V10s ‘impossible’ for next few years**\
+`FIA president Mohammed Ben Sulayem called for an evaluation of naturally-aspirated V10s as a future engine solution earlier this year.`\
+https://nytimes.com/athletic/6272602/2025/04/11/f1-hybrid-engines-2026/
+
+**Premier League predicted line-ups: Who do our writers think will start in Gameweek 32?**\
+`As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
+https://nytimes.com/athletic/6263557/2025/04/11/premier-league-predicted-lineups-gameweek-32/
+
+**Messi, Miami close to agreement over contract extension**\
+`The 37-year-old joined Miami in July 2023 on a deal that ran until the end of the 2025 MLS season.`\
+https://nytimes.com/athletic/6269451/2025/04/11/lionel-messi-inter-miami-contract-update/
+
+**How to watch the Rangers vs. Mariners series: Weekend AL West action with deGrom, Gilbert**\
+`The Mariners are looking to improve their 5-8 record as they host the 9-4 division-rival Rangers.`\
+https://nytimes.com/athletic/6265365/2025/04/11/rangers-mariners-degrom-how-to-watch/
+
+**Miedema set to miss rest of season through injury**\
+`The Netherlands forward picked up the injury on international duty.`\
+https://nytimes.com/athletic/6272449/2025/04/11/vivianne-miedema-injury-update-man-city/
+
 **Two teenager soccer fans die after clashes with police in Chile**\
 `Police general Alex Bahamondes told TVN that the victims were an 18-year-old girl and a 13-year-old boy.`\
 https://nytimes.com/athletic/6272233/2025/04/11/copa-libertadores-deaths-police-chile-colo-colo/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/04/11/books/review/grace-lin-the-gate-the-girl-and-the-
 **Billie Jean King is 'the thread that runs through women’s sports history'**\
 `The 81-year-old tennis legend continues to work on shaping the future on women's sports`\
 https://nytimes.com/athletic/6272316/2025/04/11/billie-jean-king-women-sports-history/
-
-**For Pochettino and USMNT, Gold Cup is a time to reboot, not experiment**\
-`With the USMNT in desperate need of a momentum shift as a home World Cup nears, this summer's competition should not be taken lightly.`\
-https://nytimes.com/athletic/6272404/2025/04/11/usmnt-concacaf-gold-cup-pochettino-roster-approach/
-
-**From Stan Mack: A Nightmare for These Times**\
-`The cartoonist offers a drawing in response to a guest essay.`\
-https://nytimes.com/2025/04/11/opinion/letters/stan-mack-cartoon.html
-
-**How to watch Royals vs. Guardians series: Bobby Witt Jr., José Ramírez, AL Central rivalry**\
-`Both sides are postseason aspirants with potential MVP candidates in their infields.`\
-https://nytimes.com/athletic/6265364/2025/04/11/royals-guardians-mlb-2025-how-to-watch/
-
-**How to watch the Giants-Yankees series: Aaron Judge and Jazz Chisholm Jr. face Logan Webb**\
-`The San Francisco Giants head out of town to face the Yankees in New York. With both teams off to a good start, this could be a fun one. `\
-https://nytimes.com/athletic/6265366/2025/04/11/giants-yankees-judge-webb-mlb-how-to-watch/
-
-**Ravens NFL Draft 2025 guide: Picks, predictions and key needs**\
-`Keeping you up to date on all of Baltimore's draft-related news and analysis heading into Round 1 on April 24. `\
-https://nytimes.com/athletic/6232970/2025/04/11/baltimore-ravens-2025-nfl-draft-picks-needs-predictions-guide/
 

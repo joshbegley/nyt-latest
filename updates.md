@@ -1,3 +1,7 @@
+**Two teenager soccer fans die after clashes with police in Chile**\
+`Police general Alex Bahamondes told TVN that the victims were an 18-year-old girl and a 13-year-old boy.`\
+https://nytimes.com/athletic/6272233/2025/04/11/copa-libertadores-deaths-police-chile-colo-colo/
+
 **Texans, S Jalen Pitre agree to 3-year, $39M extension: Source**\
 `Pitre, who finished fifth in Defensive Rookie of the Year voting in 2022, is now reportedly the highest-paid nickel back in the league.`\
 https://nytimes.com/athletic/6272387/2025/04/11/texans-jalen-pitre-extension/
