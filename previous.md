@@ -1,5 +1,5 @@
 **Salah signs new two-year Liverpool contract**\
-`Mohamed Salah has signed a new two-year Liverpool contract.`\
+`Salah, 32, had entered the final months of his contract but a breakthrough in negotiations was reached and he has now signed through to 2027`\
 https://nytimes.com/athletic/5980720/2025/04/11/mohamed-salah-liverpool-contract-new/
 
 **A New Luxury-Building Amenity the Whole Neighborhood Can Use: Child Care**\
