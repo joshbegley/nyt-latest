@@ -1,3 +1,7 @@
+**Stocks Waver on Latest Escalation in U.S.-China Trade War**\
+`Beijing retaliated with higher tariffs on U.S. goods, a tit-for-tat move that intensified investors’ anxiety and rattled already shaky markets.`\
+https://nytimes.com/2025/04/11/business/trump-tariffs-stock-markets.html
+
 **‘The Amateur’ | Anatomy of a Scene**\
 `The director James Hawes narrates a sequence from his film, starring Rami Malek.`\
 https://nytimes.com/video/movies/100000010103297/the-amateur-scene.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/04/11/nyregion/mayor-election-ranked-choice.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/04/11/crosswords/spelling-bee-forum.html
-
-**A Deadly Earthquake Rocks a Pillar of a Buddhist Nation: Its Monks**\
-`The people of Myanmar have often turned to the clergy for aid during natural disasters. But last month’s earthquake was also devastating for monks, many of whom died under the rubble of collapsed monasteries.`\
-https://nytimes.com/2025/04/11/world/asia/myanmar-quake-buddhism.html
 
