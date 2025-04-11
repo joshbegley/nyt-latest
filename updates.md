@@ -1,3 +1,19 @@
+**Word of the Day: coniferous**\
+`This word has appeared in seven articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/04/11/learning/word-of-the-day-coniferous.html
+
+**Five takeaways from record-setting Winnipeg Jets win that ... could win them the division?**\
+`It took a lot more than a few players to give them a decisive 4-0 win over Dallas that brings them to the precipice of Winnipeg history.`\
+https://nytimes.com/athletic/6270238/2025/04/11/winnipeg-jets-win-stars-record-setting/
+
+**Don't write off the Braves yet. The Spencers (Schwellenbach and Strider), offer hope**\
+`Schwellenbach started the marathon rain-delayed win over the Phillies and Strider looked superb in a rehab start for Triple-A Gwinnett.`\
+https://nytimes.com/athletic/6271766/2025/04/11/braves-spencer-strider-and-schwellenbach-pitched/
+
+**Chelsea's Acheampong feels the love from Maresca - and this time it's not tough**\
+`Josh Acheampong has been in and out of Enzo Maresca's first-team picture this season`\
+https://nytimes.com/athletic/6271483/2025/04/11/josh-acheampong-chelsea-legia-warsaw-analysis/
+
 **U.S. Military Removes Commander of Greenland Base After Vance Visit**\
 `Although the military did not say why the colonel had been dismissed, it said it would not tolerate any subversion of President Trump’s agenda.`\
 https://nytimes.com/2025/04/11/world/europe/greenland-pituffik-vance-miltary-commander.html
