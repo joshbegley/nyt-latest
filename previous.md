@@ -1,3 +1,7 @@
+**Eric Dane, McSteamy of ‘Grey’s Anatomy,’ Says He Has A.L.S.**\
+`The actor, who plans to return to his role on the hit show “Euphoria,” told People magazine about his diagnosis.`\
+https://nytimes.com/2025/04/11/us/eric-dane-diagnosis-als.html
+
 **'Special', 'unplayable', injured: Brighton's summer signings assessed**\
 `Brighton spent big last summer as they chase European football. Their signings have had varying fortunes at home and on loan`\
 https://nytimes.com/athletic/6253072/2025/04/11/brighton-rutter-minteh-wieffer-kadioglu/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6270287/2025/04/11/champions-league-front-three-mes
 **Madrid want to sign a centre-back this summer. Will it happen? And who could it be?**\
 `Madrid have problems in defence, but there are doubts whether those will be solved this summer`\
 https://nytimes.com/athletic/6270147/2025/04/11/real-madrid-centre-back-transfers/
-
-**Overanalysing the 348 teams to have appeared in the European Cup after Real Madrid's 500th game**\
-`Which countries have been represented? Which haven't? Who made the final in their only appearance? Why are Arges Pitesti special?`\
-https://nytimes.com/athletic/6252389/2025/04/11/348-clubs-in-european-cup-champions-league-tour/
 

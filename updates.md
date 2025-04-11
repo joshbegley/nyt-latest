@@ -1,3 +1,7 @@
+**Eric Dane, McSteamy of ‘Grey’s Anatomy,’ Says He Has A.L.S.**\
+`The actor, who plans to return to his role on the hit show “Euphoria,” told People magazine about his diagnosis.`\
+https://nytimes.com/2025/04/11/us/eric-dane-diagnosis-als.html
+
 **'Special', 'unplayable', injured: Brighton's summer signings assessed**\
 `Brighton spent big last summer as they chase European football. Their signings have had varying fortunes at home and on loan`\
 https://nytimes.com/athletic/6253072/2025/04/11/brighton-rutter-minteh-wieffer-kadioglu/
