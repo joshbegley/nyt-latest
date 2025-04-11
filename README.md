@@ -1,3 +1,7 @@
+**Lowetide: What did the Oilers' minor-league system accomplish in 2024-25?**\
+`The Oilers' development staff can point to successes even if those players didn't see much time in the NHL.`\
+https://nytimes.com/athletic/6269669/2025/04/11/oilers-ahl-2024-25-stats/
+
 **Your Car Insurance Is Likely to Go Up. Again.**\
 `New tariffs are expected to push up prices of vehicles and car parts, and that could raise premiums as much as 16 percent. Here are some tips on how to try to keep costs down.`\
 https://nytimes.com/2025/04/11/your-money/car-insurance-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6272173/2025/04/11/inigo-martinez-barcelona-osasuna
 **Trump Administration Live Updates: Senate Confirms New Joint Chiefs Chairman**\
 ``\
 https://nytimes.com/live/2025/04/11/us/trump-news
-
-**Blues' offseason plans? Interest in Mitch Marner? 2025-26 defense pairs? Mailbag, part 2**\
-`Plus the next Blues prospect to crack the NHL roster and what potential contract extensions for Broberg and Holloway might look like.`\
-https://nytimes.com/athletic/6257765/2025/04/11/blues-mailbag-marner-offseason-defense/
 

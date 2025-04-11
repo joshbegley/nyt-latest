@@ -1,3 +1,7 @@
+**Your Car Insurance Is Likely to Go Up. Again.**\
+`New tariffs are expected to push up prices of vehicles and car parts, and that could raise premiums as much as 16 percent. Here are some tips on how to try to keep costs down.`\
+https://nytimes.com/2025/04/11/your-money/car-insurance-tariffs.html
+
 **Spurs appoint ex-Arsenal CEO Venkatesham as new chief executive**\
 `Venkatesham left Arsenal at the end of last season and has since had other offers, including from other Premier League clubs.`\
 https://nytimes.com/athletic/6272230/2025/04/11/vinai-venkatesham-tottenham-arsenal/
