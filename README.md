@@ -1,3 +1,7 @@
+**Freddie Freeman, Shohei Ohtani are the bobblehead kings of MLB this season**\
+`No MLB team comes close to releasing as many bobbleheads as the Dodgers.`\
+https://nytimes.com/athletic/6273082/2025/04/11/freddie-freeman-bobblehead-dodgers/
+
 **Con Artists Scamming London Tourists Meet Their Match: Batman and Robin**\
 `The police shared video of an unconventional tactic that led to two arrests in London: Going undercover as superheroes.`\
 https://nytimes.com/2025/04/11/world/europe/batman-robin-police-undercover-scams.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/11/climate/noaa-research-budget-cuts.html
 **‘Yellowjackets’ Season 3 Finale Recap: The Wilderness Is Hungry**\
 `The episode finally revealed the full story behind the show’s very first scene. It also revealed even darker truths about Shauna.`\
 https://nytimes.com/2025/04/11/arts/television/yellowjackets-recap-season-3-finale.html
-
-**Pulp, Stereolab and Turnstile Return: Hear 10 New Songs**\
-`Listen to tracks by Bon Iver, Valerie June, Rauw Alejandro and others.`\
-https://nytimes.com/2025/04/11/arts/music/playlist-pulp-stereolab-turnstile-bon-iver.html
 
