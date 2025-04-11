@@ -1,5 +1,5 @@
 **Newcastle hopeful on Isak fitness for Man Utd match, Gordon a doubt**\
-`Alexander Isak is expected to be fit to start for Newcastle United against Manchester United on Sunday, but Anthony Gordon faces a late fitness test.`\
+`Isak has been managing a groin issue which he picked up against Brentford, while Gordon suffered a bruised hip on international duty.`\
 https://nytimes.com/athletic/6272017/2025/04/11/alexander-isak-anthony-gordon-newcastle-injury-update/
 
 **Spanish Citizen Who Died in Hudson River Helicopter Crash Was Siemens Executive**\
