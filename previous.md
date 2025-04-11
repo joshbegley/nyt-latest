@@ -10,7 +10,7 @@ https://nytimes.com/2025/04/10/nyregion/letitita-james-lawsuit-trump-pandemic-fu
 `For the fourth consecutive major, Rahm did not look like the world-beating, balanced force of nature.`\
 https://nytimes.com/athletic/6271282/2025/04/10/jon-rahm-masters-round-1/
 
-**Isaiah Bond turns self in to Frisco PD for outstanding warrant: Report**\
+**Isaiah Bond turns himself in to Frisco PD for outstanding warrant: Report**\
 `A top-100 prospect in the 2025 NFL Draft, Bond spent his 2024 season as a starting wide receiver for the University of Texas `\
 https://nytimes.com/athletic/6271152/2025/04/10/isaiah-bond-warrant-frisco-nfl-draft/
 

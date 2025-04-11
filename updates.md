@@ -1,3 +1,7 @@
+**Isaiah Bond turns himself in to Frisco PD for outstanding warrant: Report**\
+`A top-100 prospect in the 2025 NFL Draft, Bond spent his 2024 season as a starting wide receiver for the University of Texas `\
+https://nytimes.com/athletic/6271152/2025/04/10/isaiah-bond-warrant-frisco-nfl-draft/
+
 **Charter Company in Fatal Helicopter Crash Had Prior Mechanical Failures**\
 `At least twice before in the past 12 years, aircraft operated by the firm New York Helicopter Charter failed while in flight.`\
 https://nytimes.com/2025/04/10/nyregion/nyc-helicopter-crash-company-mechanical.html

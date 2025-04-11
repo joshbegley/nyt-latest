@@ -1,3 +1,7 @@
+**Can this Masters be Justin Rose's Indian summer?**\
+`"When the big stage is there, I can kind of bring my game and still compete with the best players in the world."`\
+https://nytimes.com/athletic/6271295/2025/04/10/justin-rose-masters-leader/
+
 **Charter Company in Fatal Helicopter Crash Had Prior Mechanical Failures**\
 `At least twice before in the past 12 years, aircraft operated by the firm New York Helicopter Charter failed while in flight.`\
 https://nytimes.com/2025/04/10/nyregion/nyc-helicopter-crash-company-mechanical.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6271239/2025/04/10/minnesota-twins-takeaways-royals
 **Legal Group Funded by Conservative Megadonors Challenges Trump’s Tariffs**\
 `The legal organization behind a lawsuit challenging President Trump’s tariffs is funded by groups linked to Charles Koch and Leonard A. Leo.`\
 https://nytimes.com/2025/04/10/business/economy/trump-tariffs-challenge-megadonors.html
-
-**Relevent Sports, U.S. Soccer settle antitrust lawsuit**\
-`The settlement likely clears the way for the sports promoter to host foreign league matches on American soil.`\
-https://nytimes.com/athletic/6271264/2025/04/10/relevent-sports-us-soccer-lawsuit-settlement/
 
