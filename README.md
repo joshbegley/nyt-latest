@@ -1,3 +1,7 @@
+**Chiefs and the ‘The Beast’: Left tackles, pass rushers and a Kelce understudy?**\
+`Ahead of the draft, we scoured “The Beast” to see which prospects are ideal fits for the Chiefs, including at running back and cornerback.`\
+https://nytimes.com/athletic/6271091/2025/04/11/chiefs-2025-nfl-draft-the-beast/
+
 **Four numbers that help explain how the Cubs are 9-6**\
 `Some numbers take a while to stabilize, and others can be more than just noise, indicators of what a team can be in a long season.`\
 https://nytimes.com/athletic/6270645/2025/04/11/cubs-four-numbers-start/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6270586/2025/04/11/new-york-jets-day-2-3-draft-targ
 **Discuss: Where does Mohamed Salah rank among Liverpool's all-time greats?**\
 `Salah has signed a new contract at Liverpool - join the debate alongside your fellow subscribers`\
 https://nytimes.com/athletic/6272048/2025/04/11/mohamed-salah-liverpool-contact-greats/
-
-**Shedeur Sanders' best landing spot? Surprises in 'The Beast' top 100?: NFL Draft roundtable**\
-`The 2025 NFL Draft is less than two weeks away. Our experts debate some key topics that could dictate how things play out in Green Bay. `\
-https://nytimes.com/athletic/6269719/2025/04/11/nfl-draft-2025-roundtable-shedeur-sanders/
 
