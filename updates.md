@@ -1,3 +1,7 @@
+**What to watch in MLB this weekend: Aaron Judge-Logan Webb, Cubs-Dodgers, AL Central clash**\
+`It's an awesome MLB slate this weekend, headlined by Giants-Yankees, Cubs-Dodgers and a few intriguing divisional sets.`\
+https://nytimes.com/athletic/6269645/2025/04/11/mlb-what-to-watch-2025-aaron-judge-shohei-ohtani-cole-ragans/
+
 **She Worked in a Harvard Lab to Reverse Aging, Until ICE Jailed Her**\
 `President Trump’s immigration crackdown ensnared Kseniia Petrova, a scientist who fled Russia after protesting its invasion of Ukraine. She fears arrest if she is deported there.`\
 https://nytimes.com/2025/04/11/science/russian-scientist-ice-detained-harvard.html

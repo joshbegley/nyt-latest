@@ -1,3 +1,7 @@
+**What to watch in MLB this weekend: Aaron Judge-Logan Webb, Cubs-Dodgers, AL Central clash**\
+`It's an awesome MLB slate this weekend, headlined by Giants-Yankees, Cubs-Dodgers and a few intriguing divisional sets.`\
+https://nytimes.com/athletic/6269645/2025/04/11/mlb-what-to-watch-2025-aaron-judge-shohei-ohtani-cole-ragans/
+
 **She Worked in a Harvard Lab to Reverse Aging, Until ICE Jailed Her**\
 `President Trump’s immigration crackdown ensnared Kseniia Petrova, a scientist who fled Russia after protesting its invasion of Ukraine. She fears arrest if she is deported there.`\
 https://nytimes.com/2025/04/11/science/russian-scientist-ice-detained-harvard.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6272332/2025/04/11/matheus-cunha-wolves-tottenham-t
 **Arteta cautious over Havertz injury return before end of season**\
 `The Arsenal forward suffered a hamstring injury which required surgery on Arsenal’s mid-season trip to Dubai in February.`\
 https://nytimes.com/athletic/6272383/2025/04/11/kai-havertz-injury-return-mikel-arteta/
-
-**Joe Flacco returns to Browns on 1-year, $4 million deal**\
-`Flacco, who energized Cleveland with a four-game win streak amid a playoff push in 2023, started six games for the Colts last season. `\
-https://nytimes.com/athletic/6272357/2025/04/11/cleveland-browns-sign-joe-flacco/
 
