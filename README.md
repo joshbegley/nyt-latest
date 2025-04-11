@@ -1,3 +1,7 @@
+**China Raises Tariffs on U.S. Imports to 125%**\
+`Beijing’s retaliation came after the White House had raised its tariff on Chinese goods to 125 percent, on top of an existing 20 percent tax.`\
+https://nytimes.com/2025/04/11/business/china-tariffs-125.html
+
 **Salah signs new two-year Liverpool contract**\
 `Salah, 32, had entered the final months of his contract but a breakthrough in negotiations was reached and he has now signed through to 2027`\
 https://nytimes.com/athletic/5980720/2025/04/11/mohamed-salah-liverpool-contract-new/
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6271841/2025/04/11/pistons-cade-cunningham-defense-
 **Would You Want a Robot to Do Your Daily Chores?**\
 `A company hopes to put an A.I.-powered humanoid into homes soon. Tell us if you’re ready to share your house with a robo-butler.`\
 https://nytimes.com/2025/04/11/learning/would-you-want-a-robot-to-do-your-daily-chores.html
-
-**Up and Down**\
-`What do you think this image is communicating?`\
-https://nytimes.com/2025/04/11/learning/up-and-down.html
 
