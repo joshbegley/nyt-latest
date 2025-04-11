@@ -1,3 +1,7 @@
+**Can this Masters be Justin Rose's Indian summer?**\
+`"When the big stage is there, I can kind of bring my game and still compete with the best players in the world."`\
+https://nytimes.com/athletic/6271295/2025/04/10/justin-rose-masters-leader/
+
 **Isaiah Bond turns himself in to Frisco PD for outstanding warrant: Report**\
 `A top-100 prospect in the 2025 NFL Draft, Bond spent his 2024 season as a starting wide receiver for the University of Texas `\
 https://nytimes.com/athletic/6271152/2025/04/10/isaiah-bond-warrant-frisco-nfl-draft/

@@ -1,3 +1,7 @@
+**Yes, he’s doing it again. Scottie Scheffler and the air of inevitability**\
+`After Scheffler rolled in a 62-foot birdie putt on the par-3 fourth hole Thursday, visions of another green jacket began arriving.`\
+https://nytimes.com/athletic/6271454/2025/04/10/scottie-scheffler-masters-green-jacket/
+
 **Can this Masters be Justin Rose's Indian summer?**\
 `"When the big stage is there, I can kind of bring my game and still compete with the best players in the world."`\
 https://nytimes.com/athletic/6271295/2025/04/10/justin-rose-masters-leader/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/10/us/stanford-protesters-palestine-felony.html
 **Twins takeaways after series loss to Royals: Offense stalls, pulling Ober, rotation picture**\
 `“They executed in the bigger situations more than what we did," Ryan Jeffers said after Thursday's loss, which dropped the Twins to 4-9.`\
 https://nytimes.com/athletic/6271239/2025/04/10/minnesota-twins-takeaways-royals-series-loss/
-
-**Legal Group Funded by Conservative Megadonors Challenges Trump’s Tariffs**\
-`The legal organization behind a lawsuit challenging President Trump’s tariffs is funded by groups linked to Charles Koch and Leonard A. Leo.`\
-https://nytimes.com/2025/04/10/business/economy/trump-tariffs-challenge-megadonors.html
 
