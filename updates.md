@@ -1,3 +1,11 @@
+**Matzo Ball Soup and Crispy Potato Kugel; Sesame-Chipotle Chicken and Ramen Carbonara**\
+`New favorites and Passover classics.`\
+https://nytimes.com/2025/04/11/dining/matzo-ball-soup-crispy-potato-kugel-passover-recipes.html
+
+**U.S. Continues to ‘Delay’ and ‘Flout’ Courts in Return of Deported Man, Lawyers Say**\
+`The judge, clearly frustrated, reminded the Justice Department that the administration’s act of mistakenly sending a Maryland man to El Salvador “was wholly illegal from the moment it happened.”`\
+https://nytimes.com/2025/04/11/nyregion/us-maryland-man-deportation-delay.html
+
 **Trump to Undergo First Physical Since Retaking Office**\
 `The president has often been guarded about even the most basic information about his health.`\
 https://nytimes.com/2025/04/11/us/politics/trump-physical.html

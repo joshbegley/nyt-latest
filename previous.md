@@ -1,3 +1,7 @@
+**Matzo Ball Soup and Crispy Potato Kugel; Sesame-Chipotle Chicken and Ramen Carbonara**\
+`New favorites and Passover classics.`\
+https://nytimes.com/2025/04/11/dining/matzo-ball-soup-crispy-potato-kugel-passover-recipes.html
+
 **Trump to Undergo First Physical Since Retaking Office**\
 `The president has often been guarded about even the most basic information about his health.`\
 https://nytimes.com/2025/04/11/us/politics/trump-physical.html
@@ -30,11 +34,7 @@ https://nytimes.com/2025/04/11/climate/cargo-shipping-emissions.html
 `Should they ship out the pick they traded for J.T. Miller or roll it over to next year? Does it help to tank? Intrigue remains.`\
 https://nytimes.com/athletic/6272346/2025/04/11/rangers-conditional-pick-decision/
 
-**U.S. ‘Continues to Delay, Obfuscate and Flout’ Courts in Return of Deported Man, Lawyers Say**\
+**U.S. Continues to ‘Delay’ and ‘Flout’ Courts in Return of Deported Man, Lawyers Say**\
 `The judge, clearly frustrated, reminded the Justice Department that the administration’s act of mistakenly sending a Maryland man to El Salvador “was wholly illegal from the moment it happened.”`\
 https://nytimes.com/2025/04/11/nyregion/us-maryland-man-deportation-delay.html
-
-**Experts Doubt Kennedy’s Timetable for Finding the Cause of Autism**\
-`The nation’s health secretary announced that he planned to invite scientists to provide answers by September, but specialists consider that target date unrealistic.`\
-https://nytimes.com/2025/04/11/health/rfk-jr-autism-vaccines.html
 
