@@ -1,3 +1,13 @@
+**PL weekend acca tips: More misery for Leicester? Villa to strike late?**\
+`Sam Tighe rounds up three of the best bets to add to this weekend’s Premier League accumulator. 
+`\
+https://nytimes.com/athletic/6269511/2025/04/11/premier-league-accumulator-tips-odds-betting-picks/
+
+**Premier League top five odds: Forest, City, Villa or Newcastle?**\
+`Brett Koremenos explores the odds around the teams vying for the Premier League’s top five spots. 
+`\
+https://nytimes.com/athletic/6270057/2025/04/11/premier-league-top-five-betting-predictions-odds-tips/
+
 **Here’s the latest.**\
 `(No description)`\
 https://nytimes.com/live/2025/04/11/business/trump-tariffs-stocks-china/heres-the-latest

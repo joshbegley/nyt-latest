@@ -1,3 +1,7 @@
+**‘The Amateur’ | Anatomy of a Scene**\
+`The director James Hawes narrates a sequence from his film, starring Rami Malek.`\
+https://nytimes.com/video/movies/100000010103297/the-amateur-scene.html
+
 **Here’s the latest.**\
 `(No description)`\
 https://nytimes.com/live/2025/04/11/business/trump-tariffs-stocks-china/heres-the-latest
@@ -34,9 +38,4 @@ https://nytimes.com/2025/04/11/crosswords/spelling-bee-forum.html
 **A Deadly Earthquake Rocks a Pillar of a Buddhist Nation: Its Monks**\
 `The people of Myanmar have often turned to the clergy for aid during natural disasters. But last month’s earthquake was also devastating for monks, many of whom died under the rubble of collapsed monasteries.`\
 https://nytimes.com/2025/04/11/world/asia/myanmar-quake-buddhism.html
-
-**Premier League top five odds: Forest, City, Villa or Newcastle?**\
-`Brett Koremenos explores the odds around the teams vying for the Premier League’s top five spots. 
-`\
-https://nytimes.com/athletic/6270057/2025/04/11/premier-league-top-five-betting-predictions-odds-tips/
 
