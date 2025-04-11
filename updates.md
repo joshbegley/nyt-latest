@@ -1,3 +1,11 @@
+**Drew Lock set to reunite with Seattle Seahawks: Source**\
+`Lock joins a QB room that also includes Sam Darnold and Sam Howell. Will Seahawks also draft a signal caller?`\
+https://nytimes.com/athletic/6273319/2025/04/11/drew-lock-seattle-seahawks-free-agency/
+
+**Marsch calls Davies truce with Bayern Munich, looks to Gold Cup**\
+`The disharmony between Canada and Bayern over Davies' injury seems to be settled.`\
+https://nytimes.com/athletic/6273253/2025/04/11/marsch-davies-gold-cup-canada-bayern-munich/
+
 **Marsch calls Davies truce with Bayern Munich, looks to Gold Cup**\
 `The disharmony between Canada and Bayern over Alphonso Davies' injury seems to be settled.`\
 https://nytimes.com/athletic/6273253/2025/04/11/marsch-davies-gold-cup-canada-bayern-munich/
