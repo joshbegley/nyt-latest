@@ -1,3 +1,7 @@
+**Rangers and Islanders are headed in the same direction — down and out**\
+`The Rangers have already destroyed their own season. On Thursday, they took the Islanders down with them.`\
+https://nytimes.com/athletic/6271643/2025/04/10/new-york-rangers-islanders-season/
+
 **What Is the Bell 206L Helicopter?**\
 `The helicopter that crashed in the Hudson is a widely used model.`\
 https://nytimes.com/2025/04/10/nyregion/helicopter-bell-206-l-longrange.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/10/pageoneplus/corrections-april-11-2025.html
 **Red Sox takeaways: Walk-off win over Blue Jays avoids 4-game sweep**\
 `Trevor Story's infield single with the bases loaded pushed across the winning run to make it 4-3 in the 10th inning.`\
 https://nytimes.com/athletic/6271226/2025/04/10/red-sox-win-blue-jays-walk-off/
-
-**Helicopter Crashes Into Hudson River, Killing Six**\
-`An executive from Spain, his wife and three children died in the crash, along with the helicopter’s pilot, officials said.`\
-https://nytimes.com/2025/04/10/nyregion/helicopter-hudson-crash-victims.html
 
