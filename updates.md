@@ -1,3 +1,7 @@
+**Yes, he’s doing it again. Scottie Scheffler and the air of inevitability**\
+`After Scheffler rolled in a 62-foot birdie putt on the par-3 fourth hole Thursday, visions of another green jacket began arriving.`\
+https://nytimes.com/athletic/6271454/2025/04/10/scottie-scheffler-masters-green-jacket/
+
 **Can this Masters be Justin Rose's Indian summer?**\
 `"When the big stage is there, I can kind of bring my game and still compete with the best players in the world."`\
 https://nytimes.com/athletic/6271295/2025/04/10/justin-rose-masters-leader/
