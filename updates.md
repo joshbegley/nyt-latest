@@ -1,3 +1,11 @@
+**George Bell, Considered the Tallest Man in America, Dies at 67**\
+`Being 7-foot-8 posed “a lot of challenges,” he once said. “Like how do I fit in cars, or where do I find clothes?”`\
+https://nytimes.com/2025/04/11/us/george-bell-tallest-man-dead.html
+
+**‘This is Not Normal’: Trump’s Tariffs Upend the Bond Market**\
+`In the usually steady government bond market, the yield on the 10-year Treasury has risen to about 4.5 percent from less than 4 percent at the end of last week.`\
+https://nytimes.com/2025/04/11/business/economy/treasury-bonds-tariffs.html
+
 **Who’s In and Who’s Out at the Naval Academy’s Library?**\
 `An order by Defense Secretary Pete Hegseth’s office resulted in a purge of books critical of racism but preserved volumes defending white power.`\
 https://nytimes.com/2025/04/11/us/politics/naval-academy-banned-books.html

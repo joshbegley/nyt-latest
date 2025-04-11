@@ -1,3 +1,7 @@
+**George Bell, Considered the Tallest Man in America, Dies at 67**\
+`Being 7-foot-8 posed “a lot of challenges,” he once said. “Like how do I fit in cars, or where do I find clothes?”`\
+https://nytimes.com/2025/04/11/us/george-bell-tallest-man-dead.html
+
 **Who’s In and Who’s Out at the Naval Academy’s Library?**\
 `An order by Defense Secretary Pete Hegseth’s office resulted in a purge of books critical of racism but preserved volumes defending white power.`\
 https://nytimes.com/2025/04/11/us/politics/naval-academy-banned-books.html
@@ -19,7 +23,7 @@ https://nytimes.com/2025/04/11/nyregion/trump-justice-department-habba-immigrati
 https://nytimes.com/2025/04/11/climate/trump-regulations.html
 
 **‘This is Not Normal’: Trump’s Tariffs Upend the Bond Market**\
-`In the usually steady government bond market, the yield on the 10-year Treasury has risen to more than 4.5 percent from less than 4 percent at the end of last week.`\
+`In the usually steady government bond market, the yield on the 10-year Treasury has risen to about 4.5 percent from less than 4 percent at the end of last week.`\
 https://nytimes.com/2025/04/11/business/economy/treasury-bonds-tariffs.html
 
 **FA updates policy on transgender women includes stricter criteria for eligibility**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6272672/2025/04/11/ja-morant-grenade-celebration-gr
 **Miami Art Dealer Is Charged With Selling Fraudulent Warhols**\
 `The dealer, Leslie Roberts of Miami Fine Art Gallery, was accused of using fake invoices and forged authentication documents to make the works appear legitimate.`\
 https://nytimes.com/2025/04/11/arts/design/miami-art-dealer-fraudulent-warhols.html
-
-**What to Know About Who Pays the Higher Costs of Trump’s Tariffs**\
-`President Trump’s trade policies will make imports more expensive and calculating and paying the tariffs more complicated.`\
-https://nytimes.com/2025/04/11/business/economy/trump-tariffs-imports-costs.html
 

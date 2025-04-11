@@ -1,3 +1,7 @@
+**The Nihilistic, Chaotic Year So Far at the N.I.H.**\
+`Efficiency is not being enhanced, nor is waste being eliminated at the N.I.H. Scientists are just left to wonder: Why?`\
+https://nytimes.com/2025/04/11/opinion/nih-scientists-staffing-cuts.html
+
 **George Bell, Considered the Tallest Man in America, Dies at 67**\
 `Being 7-foot-8 posed “a lot of challenges,” he once said. “Like how do I fit in cars, or where do I find clothes?”`\
 https://nytimes.com/2025/04/11/us/george-bell-tallest-man-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6272905/2025/04/11/fa-transgender-women-policy/
 **Morant switches to grenade gesture after fine for gun-related celebration**\
 `“That’s my celebration now until somebody else has a problem with it, and I’ll find another one,” Morant said Thursday.`\
 https://nytimes.com/athletic/6272672/2025/04/11/ja-morant-grenade-celebration-grizzlies/
-
-**Miami Art Dealer Is Charged With Selling Fraudulent Warhols**\
-`The dealer, Leslie Roberts of Miami Fine Art Gallery, was accused of using fake invoices and forged authentication documents to make the works appear legitimate.`\
-https://nytimes.com/2025/04/11/arts/design/miami-art-dealer-fraudulent-warhols.html
 
