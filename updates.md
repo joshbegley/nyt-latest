@@ -1,3 +1,7 @@
+**Pereira: Cunha will not start for Wolves against Tottenham**\
+`Wolves have won their last three games and gone four unbeaten in Cunha’s absence after he was sent off in the FA Cup defeat to Bournemouth.`\
+https://nytimes.com/athletic/6272332/2025/04/11/matheus-cunha-wolves-tottenham-team-news/
+
 **Arteta cautious over Havertz injury return before end of season**\
 `The Arsenal forward suffered a hamstring injury which required surgery on Arsenal’s mid-season trip to Dubai in February.`\
 https://nytimes.com/athletic/6272383/2025/04/11/kai-havertz-injury-return-mikel-arteta/

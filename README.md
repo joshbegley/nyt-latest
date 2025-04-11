@@ -1,3 +1,11 @@
+**The Windup: The rule change we can all support**\
+`Welcome to The Windup, The Athletic's MLB newsletter. `\
+https://nytimes.com/athletic/6271882/2025/04/11/mlb-service-time-cba-the-windup/
+
+**Tesla U.S. Sales Plunge as G.M. and Others Make Gains**\
+`Overall sales of electric vehicles rose almost 11 percent in the first three months of the year as traditional carmakers offered new models.`\
+https://nytimes.com/2025/04/11/business/tesla-sales-elon-musk.html
+
 **Pereira: Cunha will not start for Wolves against Tottenham**\
 `Wolves have won their last three games and gone four unbeaten in Cunha’s absence after he was sent off in the FA Cup defeat to Bournemouth.`\
 https://nytimes.com/athletic/6272332/2025/04/11/matheus-cunha-wolves-tottenham-team-news/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/11/world/europe/european-union-trade-tariffs-trump.h
 **Inside the Salah contract saga: Lawyer's concerns, Saudi interest - and a deal that pleases everyone**\
 `Agreeing a new deal with the Egyptian took almost a year and was not straightforward - this is how negotiations played out`\
 https://nytimes.com/athletic/6269638/2025/04/11/mohamed-salah-liverpool-contract-inside-story/
-
-**Growing Cannabis on the Old Family Farm**\
-`When Lucas Kerr decided to revive the farm that had been in his family for seven generations, he chose to plant weed, grown in New York and sold to New Yorkers.`\
-https://nytimes.com/2025/04/11/realestate/cannabis-farm-antiques-upstate.html
-
-**Sainz escapes FIA sanction for swearing in news conference**\
-`Sainz had sworn while explaining his lateness for the national anthem at last Sunday’s race in Japan.`\
-https://nytimes.com/athletic/6272223/2025/04/11/carlos-sainz-swearing-fia/
 
