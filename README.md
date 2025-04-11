@@ -1,3 +1,7 @@
+**Two teenager soccer fans die after clashes with police in Chile**\
+`Police general Alex Bahamondes told TVN that the victims were an 18-year-old girl and a 13-year-old boy.`\
+https://nytimes.com/athletic/6272233/2025/04/11/copa-libertadores-deaths-police-chile-colo-colo/
+
 **Texans, S Jalen Pitre agree to 3-year, $39M extension: Source**\
 `Pitre, who finished fifth in Defensive Rookie of the Year voting in 2022, is now reportedly the highest-paid nickel back in the league.`\
 https://nytimes.com/athletic/6272387/2025/04/11/texans-jalen-pitre-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6265366/2025/04/11/giants-yankees-judge-webb-mlb-ho
 **Ravens NFL Draft 2025 guide: Picks, predictions and key needs**\
 `Keeping you up to date on all of Baltimore's draft-related news and analysis heading into Round 1 on April 24. `\
 https://nytimes.com/athletic/6232970/2025/04/11/baltimore-ravens-2025-nfl-draft-picks-needs-predictions-guide/
-
-**Man Utd considering summer moves for Cunha and Delap**\
-`Delap is high in thoughts at United to come in as striker, while Cunha is seen as potentially a good fit for one of the No 10 positions.`\
-https://nytimes.com/athletic/6270254/2025/04/11/manchester-united-transfers-delap-cunha/
 
