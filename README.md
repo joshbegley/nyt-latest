@@ -1,3 +1,7 @@
+**Rick Levine, Who Gave Commercials Cinematic Flair, Dies at 94**\
+`An award-winning director, he created memorable ads for brands like Diet Pepsi and Wells Fargo by applying a Hollywood sensibility to the small screen.`\
+https://nytimes.com/2025/04/11/business/media/rick-levine-dead.html
+
 **A Judge Ordered the U.S. to Detail Its Efforts to Return a Deported Man**\
 `Also, some Apple employees are worried about the company. Here's the latest at the end of Friday.`\
 https://nytimes.com/2025/04/11/briefing/court-hearing-deportation-bond-markets-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/11/business/trump-law-firms-kirkland-ellis-latham-wa
 **Elected Official Is Among Dozens Charged in a Mob-Linked Gambling Case**\
 `A member of a New Jersey town council and several reputed Lucchese crime family members played roles in an illegal betting ring that netted more than $3 million, prosecutors said.`\
 https://nytimes.com/2025/04/11/nyregion/gambling-mob-nj-police.html
-
-**Immigration Judge Rules Khalil Can Be Deported, but Legal Hurdles Remain**\
-`The decision by a judge in Louisiana is an early victory for Secretary of State Marco Rubio, but a broader challenge is still being heard in federal court in Newark.`\
-https://nytimes.com/2025/04/11/nyregion/khalil-jena-deportation-ruling.html
 

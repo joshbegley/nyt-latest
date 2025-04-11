@@ -1,3 +1,11 @@
+**A Judge Ordered the U.S. to Detail Its Efforts to Return a Deported Man**\
+`Also, some Apple employees are worried about the company. Here's the latest at the end of Friday.`\
+https://nytimes.com/2025/04/11/briefing/court-hearing-deportation-bond-markets-tariffs.html
+
+**Judge Declines to Block Immigration Enforcement Operations in Places of Worship**\
+`The ruling cast doubt on claims by a coalition of Christian and Jewish groups that their congregations were at heightened risk of becoming targets for raids under the Trump administration.`\
+https://nytimes.com/2025/04/11/us/politics/immigration-enforcement-places-of-worship.html
+
 **See the Moments Leading Up to the Nightclub Roof Collapse in Santo Domingo**\
 `Video taken at the scene shows debris was already falling from the ceiling of the Jet Set nightclub before it caved in.`\
 https://nytimes.com/interactive/2025/04/11/world/americas/nightclub-dominican-republic-collapse.html

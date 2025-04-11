@@ -1,3 +1,11 @@
+**A Judge Ordered the U.S. to Detail Its Efforts to Return a Deported Man**\
+`Also, some Apple employees are worried about the company. Here's the latest at the end of Friday.`\
+https://nytimes.com/2025/04/11/briefing/court-hearing-deportation-bond-markets-tariffs.html
+
+**Judge Declines to Block Immigration Enforcement Operations in Places of Worship**\
+`The ruling cast doubt on claims by a coalition of Christian and Jewish groups that their congregations were at heightened risk of becoming targets for raids under the Trump administration.`\
+https://nytimes.com/2025/04/11/us/politics/immigration-enforcement-places-of-worship.html
+
 **See the Moments Leading Up to the Nightclub Roof Collapse in Santo Domingo**\
 `Video taken at the scene shows debris was already falling from the ceiling of the Jet Set nightclub before it caved in.`\
 https://nytimes.com/interactive/2025/04/11/world/americas/nightclub-dominican-republic-collapse.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/11/nyregion/gambling-mob-nj-police.html
 **Immigration Judge Rules Khalil Can Be Deported, but Legal Hurdles Remain**\
 `The decision by a judge in Louisiana is an early victory for Secretary of State Marco Rubio, but a broader challenge is still being heard in federal court in Newark.`\
 https://nytimes.com/2025/04/11/nyregion/khalil-jena-deportation-ruling.html
-
-**Kennedy Accuses F.D.A. of Drug Industry Influence That Barred Alternative Remedies**\
-`The nation’s health secretary addressed agency employees, asking them to shed any corporate influence. But he did not address the mass layoffs that have gutted oversight of tobacco and vapes, food safety and drug reviews.`\
-https://nytimes.com/2025/04/11/health/rfk-jr-fda-drug-industry-alternative-medicine.html
-
-**People Flee Eastern Gaza City After New Israeli Evacuation Orders**\
-`Since the collapse of the cease-fire in March, Israel has issued a succession of evacuation orders across Gaza, covering roughly half of the territory, displacing thousands of Palestinians.`\
-https://nytimes.com/video/world/middleeast/100000010105351/gazans-flee-homes-israels-evacuation-orders.html
 
