@@ -1,3 +1,15 @@
+**Helicopter Crash in Hudson River Kills 6**\
+`A helicopter crashed into the Hudson River near Jersey City, N.J., killing all six people on board, including the pilot.`\
+https://nytimes.com/video/nyregion/100000010104551/helicopter-crash-hudson-river.html
+
+**Stanford Protesters Charged With Felonies for Pro-Palestinian Occupation**\
+`Prosecutors filed felony charges on Thursday against 12 protesters, nearly all with ties to Stanford University, for breaking into an administration building and occupying it in 2024.`\
+https://nytimes.com/2025/04/10/us/stanford-protesters-palestine-felony.html
+
+**Twins takeaways after series loss to Royals: Offense stalls, pulling Ober, rotation picture**\
+`“They executed in the bigger situations more than what we did," Ryan Jeffers said after Thursday's loss, which dropped the Twins to 4-9.`\
+https://nytimes.com/athletic/6271239/2025/04/10/minnesota-twins-takeaways-royals-series-loss/
+
 **Legal Group Funded by Conservative Megadonors Challenges Trump’s Tariffs**\
 `The legal organization behind a lawsuit challenging President Trump’s tariffs is funded by groups linked to Charles Koch and Leonard A. Leo.`\
 https://nytimes.com/2025/04/10/business/economy/trump-tariffs-challenge-megadonors.html
