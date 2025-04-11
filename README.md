@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6273563/2025/04/11/freddie-freeman-return-injury-do
 `As Elon Musk continues to argue that Social Security drives illegal immigration, a new effort at the agency aims to curb it.`\
 https://nytimes.com/2025/04/11/us/politics/social-security-dead-migrants-list-musk-doge.html
 
-**USMNT Gold Cup schedule could get spicy, Mexico, Canada possibilities**\
+**USMNT Gold Cup schedule may get spicy with Mexico, Canada possibilities**\
 `The USMNT's campaign kicks off against Trinidad and Tobago at PayPal Park in San Jose on June 15.`\
 https://nytimes.com/athletic/6273533/2025/04/11/concacaf-gold-cup-usmnt-canada-mexico/
 

@@ -1,3 +1,7 @@
+**Freed From Prison by Trump and Now Facing the Prospect of Going Back**\
+`At a hearing this week, witnesses described behavior by Jonathan Braun that could result in his being locked up again.`\
+https://nytimes.com/2025/04/11/nyregion/jonathan-braun-arrest-trump-commute-sentence.html
+
 **Dodgers' Freddie Freeman returns from IL on his bobblehead night**\
 `Freeman played in only three games this season before going on the IL with an ankle sprain on April 3.`\
 https://nytimes.com/athletic/6273563/2025/04/11/freddie-freeman-return-injury-dodgers-bobblehead/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6273581/2025/04/11/nfl-helmet-rules-guardian-caps/
 **Isaac Howard wins Hobey Baker Award as top player in men's college hockey**\
 `Junior led Michigan State in scoring this season with 26 goals and 52 points in 37 games, 21 more points than his nearest teammate.`\
 https://nytimes.com/athletic/6236241/2025/04/11/isaac-howard-wins-hobey-baker-award-college-hockey-top-player/
-
-**Rory McIlroy rebounds from rocky Round 1 finish to surge into contention at the Masters**\
-`After finishing Thursday with two double bogeys in final four holes, McIlroy returned to play the round of the day Friday,`\
-https://nytimes.com/athletic/6273424/2025/04/11/rory-mcilroy-the-masters-contention/
 
