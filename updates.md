@@ -1,3 +1,11 @@
+**Trump Will End Temporary Protections for Afghans and Cameroonians**\
+`More than 10,000 people will be put on track for deportation in May and June as a result of the Department of Homeland Security’s action.`\
+https://nytimes.com/2025/04/11/us/politics/trump-tps-afghanistan-cameroon.html
+
+**From ‘The Last of Us’ to ‘The Walking Dead,’ How Well Do You Know Your TV Zombies?**\
+`“The Last of Us” returns on Sunday, the latest in TV’s lumbering horde of zombie shows. Can you tell one from another?`\
+https://nytimes.com/interactive/2025/04/11/arts/television/2025-04-01-zombie-quiz-index.html
+
 **Little Luxuries**\
 `Finding joy in the small pleasures of life.`\
 https://nytimes.com/spotlight/little-luxuries

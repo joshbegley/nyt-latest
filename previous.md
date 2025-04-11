@@ -1,3 +1,11 @@
+**Trump Will End Temporary Protections for Afghans and Cameroonians**\
+`More than 10,000 people will be put on track for deportation in May and June as a result of the Department of Homeland Security’s action.`\
+https://nytimes.com/2025/04/11/us/politics/trump-tps-afghanistan-cameroon.html
+
+**From ‘The Last of Us’ to ‘The Walking Dead,’ How Well Do You Know Your TV Zombies?**\
+`“The Last of Us” returns on Sunday, the latest in TV’s lumbering horde of zombie shows. Can you tell one from another?`\
+https://nytimes.com/interactive/2025/04/11/arts/television/2025-04-01-zombie-quiz-index.html
+
 **Little Luxuries**\
 `Finding joy in the small pleasures of life.`\
 https://nytimes.com/spotlight/little-luxuries
@@ -29,12 +37,4 @@ https://nytimes.com/card/2025/04/11/smarter-living/wirecutter/our-favorite-small
 **‘The Great Gatsby’ Is 100, and as Fresh as Ever**\
 `F. Scott Fitzgerald’s masterpiece has left an enduring mark on American culture.`\
 https://nytimes.com/2025/04/11/books/review/podcast-gatsby100.html
-
-**Messi's extended stay allows ambitious Miami, MLS to reach higher**\
-`David Ornstein reports that Messi and Miami are nearing completion on a new deal, which opens a world of possibilities for the club and MLS.`\
-https://nytimes.com/athletic/6272802/2025/04/11/messi-contract-inter-miami-mls-significance/
-
-**White House Plan Calls for NOAA Research Programs to Be Dismantled**\
-`A Trump administration budget proposal would essentially eliminate one of the world’s foremost Earth sciences research operations.`\
-https://nytimes.com/2025/04/11/climate/noaa-research-budget-cuts.html
 
