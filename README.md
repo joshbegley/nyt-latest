@@ -1,3 +1,7 @@
+**Playoff Ant arrives early, gives reason for Timberwolves to believe**\
+`Edwards scored 44 points against Memphis on Thursday in what Minnesota labeled a must-win game. He loves the big moments. `\
+https://nytimes.com/athletic/6271919/2025/04/11/anthony-edwards-timberwolves-believe-because-anthony-edwards-grizzlies/
+
 **Trump’s auto tariffs are causing anger in a British carmaking town.**\
 `By Lizzie Dearden`\
 https://nytimes.com/live/2025/04/11/business/trump-tariffs-stocks-china/trumps-auto-tariffs-are-causing-anger-in-a-british-carmaking-town
@@ -6,7 +10,7 @@ https://nytimes.com/live/2025/04/11/business/trump-tariffs-stocks-china/trumps-a
 `Investors are concerned about the continued escalation of the U.S.-China tariff battle — and the state of the president’s negotiating leverage.`\
 https://nytimes.com/2025/04/11/business/dealbook/trump-tariffs-trade-assets.html
 
-**Alec Bohm's rough start drags on as he and Phillies end long night at ballpark with a loss**\
+**Alec Bohm's rough start drags on as he and Phillies end long night with a loss**\
 `"He's going to come out of it." Bohm is 4-for-his-last-40 and without an extra-base hit or a walk since the second game of the season. `\
 https://nytimes.com/athletic/6271925/2025/04/11/alec-bohm-struggles-phillies-braves/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/11/world/middleeast/israel-gaza-evacuations.html
 **Rockets playoff opponents? Analyzing potential Clippers, Grizzlies or Wolves first-round series**\
 `Kelly Iko leads a reporter roundtable to discuss who the Rockets could face in the first round and how they might fare. `\
 https://nytimes.com/athletic/6269065/2025/04/11/rockets-2025-nba-playoffs-wolves-clippers-grizzlies/
-
-**Which NHL players stood out as MVP of their team in 2024-25?**\
-`Every team from the top to the bottom of the standings had individual performances worth highlighting.`\
-https://nytimes.com/athletic/6270714/2025/04/11/nhl-mvp-picks-every-team-2025/
 

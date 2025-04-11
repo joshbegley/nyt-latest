@@ -1,3 +1,7 @@
+**Trump’s auto tariffs are causing anger in a British carmaking town.**\
+`By Lizzie Dearden`\
+https://nytimes.com/live/2025/04/11/business/trump-tariffs-stocks-china/trumps-auto-tariffs-are-causing-anger-in-a-british-carmaking-town
+
 **Markets Worry About Finding an Exit From Trump’s Trade Fight**\
 `Investors are concerned about the continued escalation of the U.S.-China tariff battle — and the state of the president’s negotiating leverage.`\
 https://nytimes.com/2025/04/11/business/dealbook/trump-tariffs-trade-assets.html
