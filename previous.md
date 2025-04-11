@@ -1,3 +1,7 @@
+**Trump Threatens More Tariffs and Sanctions on Mexico Over Long-Running Water Dispute**\
+`President Trump on Thursday cited the growing water debt that Mexico owes the United States under a treaty governing the use of the countries’ shared rivers.`\
+https://nytimes.com/2025/04/10/us/politics/trump-mexico-water-dispute.html
+
 **Western Michigan defeats Denver in double OT, advances to first national championship game**\
 `Owen Michaels scored the game winner and Western Michigan beat defending champion Denver 3-2 to advance to its first Frozen Four title game.`\
 https://nytimes.com/athletic/6270877/2025/04/10/western-michigan-denver-frozen-four-semifinal-championship/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6271295/2025/04/10/justin-rose-masters-leader/
 **Charter Company in Fatal Helicopter Crash Had Prior Mechanical Failures**\
 `At least twice before in the past 12 years, aircraft operated by the firm New York Helicopter Charter failed while in flight.`\
 https://nytimes.com/2025/04/10/nyregion/nyc-helicopter-crash-company-mechanical.html
-
-**Attorneys General Sue Over Access to $1 Billion in Federal School Aid**\
-`The Trump administration abruptly cut states’ access to Covid pandemic funding for school programs, saying they’d had enough time to spend it.`\
-https://nytimes.com/2025/04/10/nyregion/letitita-james-lawsuit-trump-pandemic-funding.html
 

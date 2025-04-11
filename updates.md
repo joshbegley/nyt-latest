@@ -1,3 +1,7 @@
+**Trump Threatens More Tariffs and Sanctions on Mexico Over Long-Running Water Dispute**\
+`President Trump on Thursday cited the growing water debt that Mexico owes the United States under a treaty governing the use of the countries’ shared rivers.`\
+https://nytimes.com/2025/04/10/us/politics/trump-mexico-water-dispute.html
+
 **Western Michigan defeats Denver in double OT, advances to first national championship game**\
 `Owen Michaels scored the game winner and Western Michigan beat defending champion Denver 3-2 to advance to its first Frozen Four title game.`\
 https://nytimes.com/athletic/6270877/2025/04/10/western-michigan-denver-frozen-four-semifinal-championship/
