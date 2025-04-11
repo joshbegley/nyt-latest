@@ -1,3 +1,7 @@
+**People Flee Eastern Gaza City After New Israeli Evacuation Orders**\
+`Since the collapse of the cease-fire in March, Israel has issued a succession of evacuation orders across Gaza, covering roughly half of the territory, displacing thousands of Palestinians.`\
+https://nytimes.com/video/world/middleeast/100000010105351/gazans-flee-homes-israels-evacuation-orders.html
+
 **Investigation Into Helicopter Crash Just Getting Underway**\
 `Investigators for the National Transportation Safety Board said it would most likely be some time before a cause of the crash that killed six people could be determined.`\
 https://nytimes.com/2025/04/11/nyregion/helicopter-crash-investigation.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/04/11/arts/television/2025-04-01-zombie-qui
 **Little Luxuries**\
 `Finding joy in the small pleasures of life.`\
 https://nytimes.com/spotlight/little-luxuries
-
-**Freddie Freeman, Shohei Ohtani are the bobblehead kings of MLB this season**\
-`No MLB team comes close to releasing as many bobbleheads as the Dodgers.`\
-https://nytimes.com/athletic/6273082/2025/04/11/freddie-freeman-bobblehead-dodgers/
 
