@@ -1,3 +1,11 @@
+**World Cup games at MetLife need highest security ranking, says N.J. congressman**\
+`Appeals have been made to the FBI and Dept. of Homeland Security regarding the venue that will host the 2026 World Cup final.`\
+https://nytimes.com/athletic/6271162/2025/04/11/world-cup-metlife-stadium-homeland-security-fbi-fifa/
+
+**Kent State fires Kenni Burns 2 weeks after placing him on leave**\
+`Burns came to Kent State from an assistant job at Minnesota and went 1-23 over two seasons, including 0-12 this past fall.`\
+https://nytimes.com/athletic/6272683/2025/04/11/kent-state-fires-kenni-burns-investigation/
+
 **Matzo Ball Soup and Crispy Potato Kugel; Sesame-Chipotle Chicken and Ramen Carbonara**\
 `New favorites and Passover classics.`\
 https://nytimes.com/2025/04/11/dining/matzo-ball-soup-crispy-potato-kugel-passover-recipes.html
