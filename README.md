@@ -1,3 +1,7 @@
+**Investors Seeking Safety Look to German Government Bonds**\
+`The country’s debt is in demand amid the chaos in financial markets spurred by whipsawing U.S. tariff policies.`\
+https://nytimes.com/2025/04/11/business/economy/germany-tariffs-bonds.html
+
 **Ann Arbor Wants to Build Its Own Renewable-Energy Grid**\
 `Ann Arbor, Mich., moved forward with an ambitious plan to build its own utility that aims provide clean power outside the grid.`\
 https://nytimes.com/2025/04/11/climate/ann-arbor-michigan-renewable-energy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/11/opinion/nih-scientists-staffing-cuts.html
 **George Bell, Considered the Tallest Man in America, Dies at 67**\
 `Being 7-foot-8 posed “a lot of challenges,” he once said. “Like how do I fit in cars, or where do I find clothes?”`\
 https://nytimes.com/2025/04/11/us/george-bell-tallest-man-dead.html
-
-**Who’s In and Who’s Out at the Naval Academy’s Library?**\
-`An order by Defense Secretary Pete Hegseth’s office resulted in a purge of books critical of racism but preserved volumes defending white power.`\
-https://nytimes.com/2025/04/11/us/politics/naval-academy-banned-books.html
 
