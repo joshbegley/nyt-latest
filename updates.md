@@ -1,3 +1,7 @@
+**Suzanne Rand, Half of a Once-Popular Comedy Team, Dies at 75**\
+`Like Nichols and May before them, Monteith and Rand had their own Broadway show. Unlike Nichols and May, they faded from view after they broke up.`\
+https://nytimes.com/2025/04/11/theater/suzanne-rand-dead.html
+
 **Marsch calls Davies truce with Bayern Munich, looks to Gold Cup**\
 `The disharmony between Canada and Bayern over Davies' injury appears to be settled. Full focus is now on this summer's tournament.`\
 https://nytimes.com/athletic/6273253/2025/04/11/marsch-davies-gold-cup-canada-bayern-munich/
