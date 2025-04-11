@@ -1,3 +1,11 @@
+**How Snow Becomes Deadly**\
+`This season, more than 20 people died in avalanches in the U.S. Can mountains be safer?`\
+https://nytimes.com/interactive/2025/04/11/weather/avalanche-science.html
+
+**Justice Dept. Lobbies for Release of Ex-F.B.I. Informant Accused of Lying About Bidens**\
+`It was the latest in a series of moves to scrap or soften punishments against President Trump’s supporters, including members of the violent mob that attacked the Capitol.`\
+https://nytimes.com/2025/04/11/us/politics/trump-smirnov-fbi-biden-ukraine-bribe.html
+
 **Blue Jackets' Dean Evason clarifies comments, but goaltending mysteries persist**\
 `Why did the Blue Jackets stick with their struggling tandem of Elvis Merzlikins and Daniil Tarasov as the team faded from a playoff spot?`\
 https://nytimes.com/athletic/6272881/2025/04/11/blue-jackets-dean-evason-comments-goaltending-mysteries/

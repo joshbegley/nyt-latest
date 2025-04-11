@@ -1,3 +1,7 @@
+**Con Artists Scamming London Tourists Meet Their Match: Batman and Robin**\
+`The police shared video of an unconventional tactic that led to two arrests in London: Going undercover as superheroes.`\
+https://nytimes.com/2025/04/11/world/europe/batman-robin-police-undercover-scams.html
+
 **How Snow Becomes Deadly**\
 `This season, more than 20 people died in avalanches in the U.S. Can mountains be safer?`\
 https://nytimes.com/interactive/2025/04/11/weather/avalanche-science.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/11/arts/television/yellowjackets-recap-season-3-fina
 **Pulp, Stereolab and Turnstile Return: Hear 10 New Songs**\
 `Listen to tracks by Bon Iver, Valerie June, Rauw Alejandro and others.`\
 https://nytimes.com/2025/04/11/arts/music/playlist-pulp-stereolab-turnstile-bon-iver.html
-
-**Air Force Academy Stops Considering Class Diversity in Admissions Process**\
-`The Justice Department said in a filing Friday that the academy changed its policy to adhere to an executive order issued in January by President Trump.`\
-https://nytimes.com/2025/04/11/us/politics/air-force-dei-admissions.html
 
