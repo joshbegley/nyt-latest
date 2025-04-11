@@ -1,3 +1,11 @@
+**Alisson and Bradley set for Liverpool returns against West Ham**\
+`Alisson had missed Liverpool's last two games while Bradley is in contention to make his first start since mid-February`\
+https://nytimes.com/athletic/6272019/2025/04/11/liverpool-injuries-alisson-conor-bradley-update/
+
+**UFC 314 odds, preview, predictions: Volkanovski vs. Lopes nearly a pick'em**\
+`Brett Appley breaks down the packed card for UFC 314, with a preview and predictions for his top three fights.`\
+https://nytimes.com/athletic/6268484/2025/04/11/ufc-314-volkanovski-vs-lopes-odds-predictions/
+
 **Brighton's Kaoru Mitoma an injury doubt for Leicester fixture**\
 `The Japan left-winger suffered a heel injury in the 2-1 defeat at Crystal Palace at the weekend.`\
 https://nytimes.com/athletic/6272005/2025/04/11/kaoru-mitoma-injury-brighton-update/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/11/world/europe/ukraine-trump-witkoff-talks.html
 **Trump’s Tariffs Are Part of a ‘Tectonic Plate Shift’ in the Global Economy**\
 `Peter R. Orszag, the C.E.O. of Lazard, discusses how markets are reacting to the uncertainty of Trump’s tariffs.`\
 https://nytimes.com/video/opinion/100000010103488/trumps-tariffs-are-part-of-a-tectonic-plate-shift-in-the-global-economy.html
-
-**Marine Le Pen’s ‘Witch Hunt’ Talk Echoes Trump. Will It Work in France?**\
-`After years trying to moderate her party’s image, the far-right leader, convicted of embezzlement, now voices Trump-like outrage, at some risk.`\
-https://nytimes.com/2025/04/11/world/europe/le-pen-trump-rhetoric-france.html
-
-**The ‘China Shock’ Offers a Lesson. It Isn’t the One Trump Has Learned.**\
-`Economists say the U.S. manufacturing decline in recent decades was not mainly about free trade, but about the pace of change without time to adjust.`\
-https://nytimes.com/2025/04/11/business/economy/tariffs-trump-china-shock.html
 

@@ -1,3 +1,11 @@
+**Alisson and Bradley set for Liverpool returns against West Ham**\
+`Alisson had missed Liverpool's last two games while Bradley is in contention to make his first start since mid-February`\
+https://nytimes.com/athletic/6272019/2025/04/11/liverpool-injuries-alisson-conor-bradley-update/
+
+**UFC 314 odds, preview, predictions: Volkanovski vs. Lopes nearly a pick'em**\
+`Brett Appley breaks down the packed card for UFC 314, with a preview and predictions for his top three fights.`\
+https://nytimes.com/athletic/6268484/2025/04/11/ufc-314-volkanovski-vs-lopes-odds-predictions/
+
 **Brighton's Kaoru Mitoma an injury doubt for Leicester fixture**\
 `The Japan left-winger suffered a heel injury in the 2-1 defeat at Crystal Palace at the weekend.`\
 https://nytimes.com/athletic/6272005/2025/04/11/kaoru-mitoma-injury-brighton-update/
