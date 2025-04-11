@@ -1,3 +1,11 @@
+**Rory's collapse, Rose's hot start and more to know from the Masters Round 1**\
+`This the seventh consecutive year McIlroy has been six shots back or more after Round 1 of the Masters.`\
+https://nytimes.com/athletic/6271261/2025/04/10/masters-2025-round-1-rory-mcilroy-justin-rose/
+
+**Justin Rose leads the Masters, proving to himself that he can still compete at age 44**\
+`"When the big stage is there, I can kind of bring my game and still compete with the best players in the world," Rose said.`\
+https://nytimes.com/athletic/6271295/2025/04/10/justin-rose-masters-leader/
+
 **Yes, he’s doing it again. Scottie Scheffler and the air of inevitability**\
 `After Scheffler rolled in a 62-foot birdie putt on the par-3 fourth hole Thursday, visions of another green jacket began arriving.`\
 https://nytimes.com/athletic/6271454/2025/04/10/scottie-scheffler-masters-green-jacket/

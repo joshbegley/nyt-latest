@@ -1,9 +1,13 @@
+**Rory's collapse, Rose's hot start and more to know from the Masters Round 1**\
+`This the seventh consecutive year McIlroy has been six shots back or more after Round 1 of the Masters.`\
+https://nytimes.com/athletic/6271261/2025/04/10/masters-2025-round-1-rory-mcilroy-justin-rose/
+
 **Yes, he’s doing it again. Scottie Scheffler and the air of inevitability**\
 `After Scheffler rolled in a 62-foot birdie putt on the par-3 fourth hole Thursday, visions of another green jacket began arriving.`\
 https://nytimes.com/athletic/6271454/2025/04/10/scottie-scheffler-masters-green-jacket/
 
-**Can this Masters be Justin Rose's Indian summer?**\
-`"When the big stage is there, I can kind of bring my game and still compete with the best players in the world."`\
+**Justin Rose leads the Masters, proving to himself that he can still compete at age 44**\
+`"When the big stage is there, I can kind of bring my game and still compete with the best players in the world," Rose said.`\
 https://nytimes.com/athletic/6271295/2025/04/10/justin-rose-masters-leader/
 
 **Charter Company in Fatal Helicopter Crash Had Prior Mechanical Failures**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/nyregion/100000010104551/helicopter-crash-hudson-river
 **Stanford Protesters Charged With Felonies for Pro-Palestinian Occupation**\
 `Prosecutors filed felony charges on Thursday against 12 protesters, nearly all with ties to Stanford University, for breaking into an administration building and occupying it in 2024.`\
 https://nytimes.com/2025/04/10/us/stanford-protesters-palestine-felony.html
-
-**Twins takeaways after series loss to Royals: Offense stalls, pulling Ober, rotation picture**\
-`“They executed in the bigger situations more than what we did," Ryan Jeffers said after Thursday's loss, which dropped the Twins to 4-9.`\
-https://nytimes.com/athletic/6271239/2025/04/10/minnesota-twins-takeaways-royals-series-loss/
 
