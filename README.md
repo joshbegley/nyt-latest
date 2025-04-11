@@ -1,3 +1,11 @@
+**Quote of the Day: China Expects To Shop Itself Out of a Bind. It’ll Be Tough.**\
+`Quotation of the Day for Friday, April 11, 2025.`\
+https://nytimes.com/2025/04/10/pageoneplus/quote-of-the-day-china-expects-to-shop-itself-out-of-a-bind-itll-be-tough.html
+
+**What took so long? Jet Greaves powers Blue Jackets in must-win over Sabres**\
+`The 24-year-old goalie picked up his second win in as many days with a late NHL call-up after Elvis Merzlikins' injury.`\
+https://nytimes.com/athletic/6271624/2025/04/10/blue-jackets-jet-greaves-goalie-sabres/
+
 **Rangers and Islanders are headed in the same direction — down and out**\
 `The Rangers have already destroyed their season. Thursday, they took the Islanders down with them.`\
 https://nytimes.com/athletic/6271643/2025/04/10/new-york-rangers-islanders-season/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/10/us/politics/trump-mexico-water-dispute.html
 **Western Michigan defeats Denver in double OT, advances to first national championship game**\
 `Owen Michaels scored the game winner and Western Michigan beat defending champion Denver 3-2 to advance to its first Frozen Four title game.`\
 https://nytimes.com/athletic/6270877/2025/04/10/western-michigan-denver-frozen-four-semifinal-championship/
-
-**Corrections: April 11, 2025**\
-`Corrections that appeared in print on Friday, April 11, 2025.`\
-https://nytimes.com/2025/04/10/pageoneplus/corrections-april-11-2025.html
-
-**Red Sox takeaways: Walk-off win over Blue Jays avoids 4-game sweep**\
-`Trevor Story's infield single with the bases loaded pushed across the winning run to make it 4-3 in the 10th inning.`\
-https://nytimes.com/athletic/6271226/2025/04/10/red-sox-win-blue-jays-walk-off/
 
