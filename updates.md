@@ -1,3 +1,7 @@
+**Marsch calls Davies truce with Bayern Munich, looks to Gold Cup**\
+`The disharmony between Canada and Bayern over Davies' injury appears to be settled. Full focus is now on this summer's tournament.`\
+https://nytimes.com/athletic/6273253/2025/04/11/marsch-davies-gold-cup-canada-bayern-munich/
+
 **A President Obsessed With Water Pressure? On Netflix and in the White House.**\
 `Paul William Davies, the creator of “The Residence,” talks about overlapping themes between his series and the actual Trump administration.`\
 https://nytimes.com/2025/04/11/style/the-residence-netflix-trump-water-pressure.html
