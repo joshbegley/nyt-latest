@@ -1,3 +1,15 @@
+**How the Rangers' final 3 games and the NHL draft lottery impact their decision on conditional first-rounder**\
+`Should they ship out the pick they traded for J.T. Miller or roll it over to next year? Does it help to tank? Intrigue remains.`\
+https://nytimes.com/athletic/6272346/2025/04/11/rangers-conditional-pick-decision/
+
+**U.S. ‘Continues to Delay, Obfuscate and Flout’ Courts in Return of Deported Man, Lawyers Say**\
+`The judge, clearly frustrated, reminded the Justice Department that the administration’s act of mistakenly sending a Maryland man to El Salvador “was wholly illegal from the moment it happened.”`\
+https://nytimes.com/2025/04/11/nyregion/us-maryland-man-deportation-delay.html
+
+**Experts Doubt Kennedy’s Timetable for Finding the Cause of Autism**\
+`The nation’s health secretary announced that he planned to invite scientists to provide answers by September, but specialists consider that target date unrealistic.`\
+https://nytimes.com/2025/04/11/health/rfk-jr-autism-vaccines.html
+
 **F1 commits to hybrid engines in future, V10s ‘impossible’ for next few years**\
 `FIA president Mohammed Ben Sulayem called for an evaluation of naturally-aspirated V10s as a future engine solution earlier this year.`\
 https://nytimes.com/athletic/6272602/2025/04/11/f1-hybrid-engines-2026/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6272233/2025/04/11/copa-libertadores-deaths-police-
 **Texans, S Jalen Pitre agree to 3-year, $39M extension: Source**\
 `Pitre, who finished fifth in Defensive Rookie of the Year voting in 2022, is now reportedly the highest-paid nickel back in the league.`\
 https://nytimes.com/athletic/6272387/2025/04/11/texans-jalen-pitre-extension/
-
-**Listen: Does Rasmus Hojlund have what it takes to be United's No 9?**\
-`Talk of the Devils discussed the 22-year-old Dane's ongoing struggles and whether he has what it takes to be United’s main man up front`\
-https://nytimes.com/athletic/6270419/2025/04/11/talk-of-the-devils-rasmus-hojlund-lyon/
-
-**Grace Lin’s Long-Awaited New Fantasy Novel Stars Her First Animal Protagonist**\
-`A mythical lion cub stuck in the modern world must harness the power of stories to save his family and return home.`\
-https://nytimes.com/2025/04/11/books/review/grace-lin-the-gate-the-girl-and-the-dragon.html
-
-**Billie Jean King is 'the thread that runs through women’s sports history'**\
-`The 81-year-old tennis legend continues to work on shaping the future on women's sports`\
-https://nytimes.com/athletic/6272316/2025/04/11/billie-jean-king-women-sports-history/
 
