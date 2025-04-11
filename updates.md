@@ -1,3 +1,15 @@
+**Marsch calls Davies truce with Bayern Munich, looks to Gold Cup**\
+`The disharmony between Canada and Bayern over Alphonso Davies' injury seems to be settled.`\
+https://nytimes.com/athletic/6273253/2025/04/11/marsch-davies-gold-cup-canada-bayern-munich/
+
+**Five More Big Law Firms Reach Deals With Trump**\
+`Kirkland & Ellis, Latham & Watkins, A&O Shearman, Simpson Thacher & Bartlett and Cadwalader, Wickersham & Taft agreed to do free legal work on causes the White House supports.`\
+https://nytimes.com/2025/04/11/business/trump-law-firms-kirkland-ellis-latham-watkins.html
+
+**A Tragic End to a Helicopter Pilot’s New Adventure**\
+`Seankese Johnson, 36, was killed along with five passengers when the sightseeing helicopter he was flying suddenly crashed into the Hudson River near Jersey City.`\
+https://nytimes.com/2025/04/11/nyregion/seankese-johnson-nyc-helicopter-crash.html
+
 **Elected Official Is Among Dozens Charged in a Mob-Linked Gambling Case**\
 `A member of a New Jersey town council and several reputed Lucchese crime family members played roles in an illegal betting ring that netted more than $3 million, prosecutors said.`\
 https://nytimes.com/2025/04/11/nyregion/gambling-mob-nj-police.html

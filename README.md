@@ -1,5 +1,9 @@
+**Drew Lock set to reunite with Seattle Seahawks: Source**\
+`Lock joins a QB room that also includes Sam Darnold and Sam Howell. Will Seahawks also draft a signal caller?`\
+https://nytimes.com/athletic/6273319/2025/04/11/drew-lock-seattle-seahawks-free-agency/
+
 **Marsch calls Davies truce with Bayern Munich, looks to Gold Cup**\
-`The disharmony between Canada and Bayern over Alphonso Davies' injury seems to be settled.`\
+`The disharmony between Canada and Bayern over Davies' injury seems to be settled.`\
 https://nytimes.com/athletic/6273253/2025/04/11/marsch-davies-gold-cup-canada-bayern-munich/
 
 **Five More Big Law Firms Reach Deals With Trump**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/11/business/stock-market-tariffs-trump.html
 **What I'm hearing, seeing about the Blackhawks: Sam Rinzel's sudden impact**\
 `Early play of rookie defenseman has to have Chicago brass feeling ecstatic.`\
 https://nytimes.com/athletic/6273086/2025/04/11/around-the-blackhawks-sam-rinzel/
-
-**A Tragic End to a Helicopter Pilot’s New Adventure**\
-`Seankese Johnson, 36, was killed along with five passengers when the sightseeing helicopter he was flying suddenly crashed into the Hudson River near Jersey City.`\
-https://nytimes.com/2025/04/11/nyregion/seankese-johnson-nyc-helicopter-crash.html
 

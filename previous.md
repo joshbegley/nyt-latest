@@ -1,3 +1,11 @@
+**Marsch calls Davies truce with Bayern Munich, looks to Gold Cup**\
+`The disharmony between Canada and Bayern over Alphonso Davies' injury seems to be settled.`\
+https://nytimes.com/athletic/6273253/2025/04/11/marsch-davies-gold-cup-canada-bayern-munich/
+
+**Five More Big Law Firms Reach Deals With Trump**\
+`Kirkland & Ellis, Latham & Watkins, A&O Shearman, Simpson Thacher & Bartlett and Cadwalader, Wickersham & Taft agreed to do free legal work on causes the White House supports.`\
+https://nytimes.com/2025/04/11/business/trump-law-firms-kirkland-ellis-latham-watkins.html
+
 **Elected Official Is Among Dozens Charged in a Mob-Linked Gambling Case**\
 `A member of a New Jersey town council and several reputed Lucchese crime family members played roles in an illegal betting ring that netted more than $3 million, prosecutors said.`\
 https://nytimes.com/2025/04/11/nyregion/gambling-mob-nj-police.html
@@ -26,15 +34,7 @@ https://nytimes.com/2025/04/11/business/stock-market-tariffs-trump.html
 `Early play of rookie defenseman has to have Chicago brass feeling ecstatic.`\
 https://nytimes.com/athletic/6273086/2025/04/11/around-the-blackhawks-sam-rinzel/
 
-**A Tragic End After a Helicopter Pilot’s Fresh Start**\
+**A Tragic End to a Helicopter Pilot’s New Adventure**\
 `Seankese Johnson, 36, was killed along with five passengers when the sightseeing helicopter he was flying suddenly crashed into the Hudson River near Jersey City.`\
 https://nytimes.com/2025/04/11/nyregion/seankese-johnson-nyc-helicopter-crash.html
-
-**South Carolina star MiLaysia Fulwiley to enter transfer portal**\
-`Since arriving on campus last fall, Fulwiley was seen as one of the biggest stars in women’s college hoops`\
-https://nytimes.com/athletic/6273266/2025/04/11/south-carolina-milaysia-fulwiley-transfer-portal/
-
-**Flashback: Your Weekly History Quiz, April 12, 2025**\
-`Can you sort 8 historical events?`\
-https://nytimes.com/interactive/2025/04/11/upshot/flashback.html
 
