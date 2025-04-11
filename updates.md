@@ -1,3 +1,7 @@
+**Tesla Halts Orders in China on U.S. Imported Models**\
+`The removal of an “order” button from Tesla’s Chinese website came after Beijing raised tariffs on American imports in response to President Trump’s levies against the country.`\
+https://nytimes.com/2025/04/11/business/china-tesla-imports.html
+
 **Alisson and Bradley set for Liverpool returns against West Ham**\
 `Alisson had missed Liverpool's last two games while Bradley is in contention to make his first start since mid-February`\
 https://nytimes.com/athletic/6272019/2025/04/11/liverpool-injuries-alisson-conor-bradley-update/
