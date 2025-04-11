@@ -1,3 +1,7 @@
+**Stay or Go? Israel’s Evacuation Orders Leave Gazans Facing an Excruciating Choice.**\
+`A new declaration targeted eastern Gaza City, including several areas that had been declared evacuation zones. The United Nations said 390,000 people had been displaced in recent weeks.`\
+https://nytimes.com/2025/04/11/world/middleeast/israel-gaza-evacuations.html
+
 **Rockets playoff opponents? Analyzing potential Clippers, Grizzlies or Wolves first-round series**\
 `Kelly Iko leads a reporter roundtable to discuss who the Rockets could face in the first round and how they might fare. `\
 https://nytimes.com/athletic/6269065/2025/04/11/rockets-2025-nba-playoffs-wolves-clippers-grizzlies/
