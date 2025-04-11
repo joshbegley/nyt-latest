@@ -1,3 +1,15 @@
+**‘Yellowjackets’ Season 3 Finale Recap: The Wilderness Is Hungry**\
+`The episode finally revealed the full story behind the show’s very first scene. It also revealed even darker truths about Shauna.`\
+https://nytimes.com/2025/04/11/arts/television/yellowjackets-recap-season-3-finale.html
+
+**Pulp, Stereolab and Turnstile Return: Hear 10 New Songs**\
+`Listen to tracks by Bon Iver, Valerie June, Rauw Alejandro and others.`\
+https://nytimes.com/2025/04/11/arts/music/playlist-pulp-stereolab-turnstile-bon-iver.html
+
+**Air Force Academy Stops Considering Class Diversity in Admissions Process**\
+`The Justice Department said in a filing Friday that the academy changed its policy to adhere to an executive order issued in January by President Trump.`\
+https://nytimes.com/2025/04/11/us/politics/air-force-dei-admissions.html
+
 **Investors Seeking Safety Look to German Government Bonds**\
 `The country’s debt is in demand amid the chaos in financial markets spurred by whipsawing U.S. tariff policies.`\
 https://nytimes.com/2025/04/11/business/economy/germany-tariffs-bonds.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6272972/2025/04/11/maple-leafs-5-defencemen-injury/
 **Munoz signs new Palace contract**\
 `The Colombia international’s previous deal was set to expire in 2027 with the option of an additional year.`\
 https://nytimes.com/athletic/6273073/2025/04/11/daniel-munoz-crystal-palace-contract/
-
-**Fed Under Pressure as Inflation Expectations Surge**\
-`A new survey from the University of Michigan shows consumers souring sharply on the economic outlook as the trade war heats up.`\
-https://nytimes.com/2025/04/11/business/economy/fed-inflation-trade.html
-
-**The Nihilistic, Chaotic Year So Far at the N.I.H.**\
-`Efficiency is not being enhanced, nor is waste being eliminated at the N.I.H. Scientists are just left to wonder: Why?`\
-https://nytimes.com/2025/04/11/opinion/nih-scientists-staffing-cuts.html
-
-**George Bell, Considered the Tallest Man in America, Dies at 67**\
-`Being 7-foot-8 posed “a lot of challenges,” he once said. “Like how do I fit in cars, or where do I find clothes?”`\
-https://nytimes.com/2025/04/11/us/george-bell-tallest-man-dead.html
 
