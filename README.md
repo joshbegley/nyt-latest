@@ -1,3 +1,7 @@
+**Sainz escapes FIA sanction for swearing in news conference**\
+`Sainz had sworn while explaining his lateness for the national anthem at last Sunday’s race in Japan.`\
+https://nytimes.com/athletic/6272223/2025/04/11/carlos-sainz-swearing-fia/
+
 **What happened on Thursday.**\
 `By The New York Times`\
 https://nytimes.com/live/2025/04/10/us/trump-news/what-happened-on-thursday
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000010085458/what-marine-le-pens-convi
 **Sabres prospects update: A Kulich decision, Helenius' approach, more**\
 `Playing in the AHL playoffs is a chance for Kulich to embrace a challenge with a group of players he’s grown up with.`\
 https://nytimes.com/athletic/6270584/2025/04/11/sabres-prospects-kulich-helenius-amerks/
-
-**Hooray for Patriots Hall of Fame finalists, but Adam Vinatieri should've been in long ago**\
-`No disrespect to Julian Edelman and Logan Mankins, whose time will come, but why is Vinatieri even on this ballot? It all began with him.`\
-https://nytimes.com/athletic/6271133/2025/04/11/patriots-hall-of-fame-adam-vinatieri/
 
