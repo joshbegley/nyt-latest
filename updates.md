@@ -1,3 +1,7 @@
+**Thousands of Voters Must Verify Information in Contested Election, N.C. Supreme Court Rules**\
+`The number of ballots in question exceeds the slim margin by which the Democrat incumbent, Justice Allison Riggs, won.`\
+https://nytimes.com/2025/04/11/us/north-carolina-griffin-riggs-election-votes.html
+
 **The 12 Best Things We Saw at Salone Del Mobile**\
 `The Milan design fair returned this week with Technicolor shag rugs, teapots and an imaginary 1970s house.`\
 https://nytimes.com/2025/04/11/t-magazine/milan-design-fair-salone-highlights.html

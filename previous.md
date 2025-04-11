@@ -1,3 +1,7 @@
+**Thousands of Voters Must Verify Information in Contested Election, N.C. Supreme Court Rules**\
+`The number of ballots in question exceeds the slim margin by which the Democrat incumbent, Justice Allison Riggs, won.`\
+https://nytimes.com/2025/04/11/us/north-carolina-griffin-riggs-election-votes.html
+
 **The 12 Best Things We Saw at Salone Del Mobile**\
 `The Milan design fair returned this week with Technicolor shag rugs, teapots and an imaginary 1970s house.`\
 https://nytimes.com/2025/04/11/t-magazine/milan-design-fair-salone-highlights.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/11/style/the-residence-netflix-trump-water-pressure.
 **Drew Lock set to reunite with Seattle Seahawks: Source**\
 `Lock joins a QB room that also includes Sam Darnold and Sam Howell. Will Seahawks also draft a signal caller?`\
 https://nytimes.com/athletic/6273319/2025/04/11/drew-lock-seattle-seahawks-free-agency/
-
-**Marsch calls Davies truce with Bayern Munich, looks to Gold Cup**\
-`The disharmony between Canada and Bayern over Davies' injury appears to be settled. Full focus is now on this summer's tournament.`\
-https://nytimes.com/athletic/6273253/2025/04/11/marsch-davies-gold-cup-canada-bayern-munich/
 
