@@ -1,3 +1,7 @@
+**World Cup games at MetLife need highest security ranking, says N.J. congressman**\
+`Appeals have been made to the FBI and Dept. of Homeland Security regarding the venue that will host the 2026 World Cup final.`\
+https://nytimes.com/athletic/6271162/2025/04/11/world-cup-metlife-stadium-homeland-security-fbi-fifa/
+
 **Kent State fires Kenni Burns 2 weeks after placing him on leave**\
 `Burns came to Kent State from an assistant job at Minnesota and went 1-23 over two seasons, including 0-12 this past fall.`\
 https://nytimes.com/athletic/6272683/2025/04/11/kent-state-fires-kenni-burns-investigation/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/11/us/boca-raton-plane-crash.html
 **New Pact Would Require Ships to Cut Emissions or Pay a Fee**\
 `A draft global agreement sets a fee for cargo ships, which carry the vast majority of world trade, to pay for their greenhouse gas emissions.`\
 https://nytimes.com/2025/04/11/climate/cargo-shipping-emissions.html
-
-**How the Rangers' final 3 games, draft lottery impact decision on conditional first-rounder**\
-`Should they ship out the pick they traded for J.T. Miller or roll it over to next year? Does it help to tank? Intrigue remains.`\
-https://nytimes.com/athletic/6272346/2025/04/11/rangers-conditional-pick-decision/
 
