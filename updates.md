@@ -1,3 +1,15 @@
+**How the Rangers' final 3 games and the NHL draft lottery impact their decision on conditional first-rounder**\
+`Should they ship out the pick they traded for J.T. Miller or roll it over to next year? Does it help to tank? Intrigue remains.`\
+https://nytimes.com/athletic/6272346/2025/04/11/rangers-conditional-pick-decision/
+
+**U.S. ‘Continues to Delay, Obfuscate and Flout’ Courts in Return of Deported Man, Lawyers Say**\
+`The judge, clearly frustrated, reminded the Justice Department that the administration’s act of mistakenly sending a Maryland man to El Salvador “was wholly illegal from the moment it happened.”`\
+https://nytimes.com/2025/04/11/nyregion/us-maryland-man-deportation-delay.html
+
+**Experts Doubt Kennedy’s Timetable for Finding the Cause of Autism**\
+`The nation’s health secretary announced that he planned to invite scientists to provide answers by September, but specialists consider that target date unrealistic.`\
+https://nytimes.com/2025/04/11/health/rfk-jr-autism-vaccines.html
+
 **F1 commits to hybrid engines in future, V10s ‘impossible’ for next few years**\
 `FIA president Mohammed Ben Sulayem called for an evaluation of naturally-aspirated V10s as a future engine solution earlier this year.`\
 https://nytimes.com/athletic/6272602/2025/04/11/f1-hybrid-engines-2026/
