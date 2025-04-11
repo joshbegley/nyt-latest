@@ -1,3 +1,11 @@
+**Prince Harry Meets War Victims in Surprise Visit to Ukraine**\
+`The prince toured a rehabilitation facility in Lviv for soldiers and civilians wounded in the war. The trip came as his father, King Charles, was in Italy.`\
+https://nytimes.com/2025/04/11/world/europe/prince-harry-ukraine-visit.html
+
+**Trump Puts Wall Street Leaders in Tight Spot**\
+`Jamie Dimon of JPMorgan flagged “potential negatives” to tariffs as his and other big banks revealed their latest earnings.`\
+https://nytimes.com/2025/04/11/business/banks-tariffs-dimon-trump-trade.html
+
 **Stay or Go? Israel’s Evacuation Orders Leave Gazans Facing an Excruciating Choice.**\
 `A new declaration targeted eastern Gaza City, including several areas that had been declared evacuation zones. The United Nations said 390,000 people had been displaced in recent weeks.`\
 https://nytimes.com/2025/04/11/world/middleeast/israel-gaza-evacuations.html

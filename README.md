@@ -1,3 +1,19 @@
+**Markets Worry About Finding an Exit From Trump’s Trade Fight**\
+`Investors are concerned about the continued escalation of the U.S.-China tariff battle — and the state of the president’s negotiating leverage.`\
+https://nytimes.com/2025/04/11/business/dealbook/trump-tariffs-trade-assets.html
+
+**Alec Bohm's rough start drags on as he and Phillies end long night at ballpark with a loss**\
+`"He's going to come out of it." Bohm is 4-for-his-last-40 and without an extra-base hit or a walk since the second game of the season. `\
+https://nytimes.com/athletic/6271925/2025/04/11/alec-bohm-struggles-phillies-braves/
+
+**FPL live Q&A: FPL Gameweek 32 advice from Ben Dinnery**\
+`Join Ben Dinnery for a live Gameweek 32 FPL Q&A from 4pm-5pm UK time`\
+https://nytimes.com/athletic/6269674/2025/04/11/fantasy-premier-league-advice-gw32-tips/
+
+**Warren Urges S.E.C. to Investigate Trading Around Trump’s Tariff Pause**\
+`The president told his social media followers it was a “GREAT TIME TO BUY” hours before announcing a reversal on tariffs that sent markets soaring.`\
+https://nytimes.com/2025/04/11/business/dealbook/warren-trump-sec.html
+
 **Prince Harry Meets War Victims in Surprise Visit to Ukraine**\
 `The prince toured a rehabilitation facility in Lviv for soldiers and civilians wounded in the war. The trip came as his father, King Charles, was in Italy.`\
 https://nytimes.com/2025/04/11/world/europe/prince-harry-ukraine-visit.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6270714/2025/04/11/nhl-mvp-picks-every-team-2025/
 **How do you fix an NHL arena where the fans don't cheer? 'Play in the sandbox'**\
 `A tepid game atmosphere has become typical in Toronto and other big hockey cities. What can these teams learn from non-traditional markets?`\
 https://nytimes.com/athletic/6265474/2025/04/11/nhl-arena-fan-crowd-attendance-noise/
-
-**The Athletic’s Friday football quiz question #50**\
-`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
-https://nytimes.com/athletic/6271985/2025/04/11/the-athletics-friday-football-quiz-question-50/
-
-**Sliders: Jonathan India's mission to end the Royals' lowly leadoff woes**\
-`Plus Hunter Greene's near shutout (or walkoff), Kumar Rocker's comeback, plus more 'Sliders.'`\
-https://nytimes.com/athletic/6270905/2025/04/11/jonathan-india-royals-hunter-greene-reds-kumar-rocker-sliders/
-
-**Thunder, Wolves standouts highlight our NBA All-Perimeter-Defense Second Team**\
-`As the sport has flocked to the 3-point arc, should awards do the same?`\
-https://nytimes.com/athletic/6266788/2025/04/11/nba-all-defense-perimeter-thunder-timberwolves/
-
-**UFL quarterback Luis Perez, 'The Spring King', won't give up on his NFL dreams**\
-`Perez is back with the Arlington Renegades of the UFL, again looking for that final big break into the NFL.`\
-https://nytimes.com/athletic/6267585/2025/04/11/ufl-qb-nfl-luis-perez/
 
