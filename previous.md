@@ -1,3 +1,11 @@
+**Helicopter Crashes Into Hudson River, Killing Six**\
+`An executive from Spain, his wife and three children died in the crash, along with the helicopter’s pilot, officials said.`\
+https://nytimes.com/2025/04/10/nyregion/helicopter-hudson-crash-victims.html
+
+**Portland Thorns' Deyna Castellanos: Uncertainty over travel amid potential ban is 'very scary'**\
+`This international window saw several players decide not to travel over concerns of current U.S. policies.`\
+https://nytimes.com/athletic/6271440/2025/04/10/portland-thorns-deyna-castellanos-travel-nwsl/
+
 **Rory's collapse, Rose's hot start and more to know from the Masters Round 1**\
 `This the seventh consecutive year McIlroy has been six shots back or more after Round 1 of the Masters.`\
 https://nytimes.com/athletic/6271261/2025/04/10/masters-2025-round-1-rory-mcilroy-justin-rose/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6271152/2025/04/10/isaiah-bond-warrant-frisco-nfl-d
 **Concacaf Gold Cup draw results: Groups set for summer competition**\
 `The 16-team field has its marching orders for this summer, when Concacaf will crown its newest champion.`\
 https://nytimes.com/athletic/6270285/2025/04/10/2025-concacaf-gold-cup-draw-usmnt-group-opponents/
-
-**Helicopter Crash in Hudson River Kills 6**\
-`A helicopter crashed into the Hudson River near Jersey City, N.J., killing all six people on board, including the pilot.`\
-https://nytimes.com/video/nyregion/100000010104551/helicopter-crash-hudson-river.html
-
-**Stanford Protesters Charged With Felonies for Pro-Palestinian Occupation**\
-`Prosecutors filed felony charges on Thursday against 12 protesters, nearly all with ties to Stanford University, for breaking into an administration building and occupying it in 2024.`\
-https://nytimes.com/2025/04/10/us/stanford-protesters-palestine-felony.html
 

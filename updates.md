@@ -1,3 +1,11 @@
+**Helicopter Crashes Into Hudson River, Killing Six**\
+`An executive from Spain, his wife and three children died in the crash, along with the helicopter’s pilot, officials said.`\
+https://nytimes.com/2025/04/10/nyregion/helicopter-hudson-crash-victims.html
+
+**Portland Thorns' Deyna Castellanos: Uncertainty over travel amid potential ban is 'very scary'**\
+`This international window saw several players decide not to travel over concerns of current U.S. policies.`\
+https://nytimes.com/athletic/6271440/2025/04/10/portland-thorns-deyna-castellanos-travel-nwsl/
+
 **Rory's collapse, Rose's hot start and more to know from the Masters Round 1**\
 `This the seventh consecutive year McIlroy has been six shots back or more after Round 1 of the Masters.`\
 https://nytimes.com/athletic/6271261/2025/04/10/masters-2025-round-1-rory-mcilroy-justin-rose/
