@@ -1,3 +1,7 @@
+**Jon Rahm's angry Masters Thursday magnifies the truth about the former champion**\
+`For the fourth consecutive major, he did not look like the world-beating, balanced force of nature.`\
+https://nytimes.com/athletic/6271282/2025/04/10/jon-rahm-masters-round-1/
+
 **Isaiah Bond turns self in to Frisco PD for outstanding warrant: Report**\
 `A top-100 prospect in the 2025 NFL Draft, Bond spent his 2024 season as a starting wide receiver for the University of Texas `\
 https://nytimes.com/athletic/6271152/2025/04/10/isaiah-bond-warrant-frisco-nfl-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/10/nyregion/khalil-rubio-testimony-deportation.html
 **More European Opera Houses Welcome Back Anna Netrebko**\
 `The star soprano, who lost work after Russia invaded Ukraine because of her past support of President Vladimir V. Putin of Russia, will return to the stage in Zurich and London.`\
 https://nytimes.com/2025/04/10/arts/music/anna-netrebko-london-zurich.html
-
-**Helicopters Pack New York’s Skies, Despite Years of Noise and Air Pollution Complaints**\
-`Authorities say the industry contributes $50 million a year to the city’s tourism economy, but the number of tourist helicopter flights has halved since 2016.`\
-https://nytimes.com/2025/04/10/nyregion/helicopter-tours-noise-air-pollution.html
 
