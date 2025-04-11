@@ -1,40 +1,40 @@
-**Man Utd's style defended by Marc Skinner after Emma Hayes comments**\
-`The 28-year-old made her USWNT debut earlier this month.`\
-https://nytimes.com/athletic/6272031/2025/04/11/manchester-united-women-skinner-uswnt-emma-hayes/
+**Four numbers that help explain how the Cubs are 9-6**\
+`Some numbers take a while to stabilize, and others can be more than just noise, indicators of what a team can be in a long season.`\
+https://nytimes.com/athletic/6270645/2025/04/11/cubs-four-numbers-start/
 
-**Newcastle hopeful on Isak fitness for Man Utd match, Gordon a doubt**\
-`Isak has been managing a groin issue which he picked up against Brentford, while Gordon suffered a bruised hip on international duty.`\
-https://nytimes.com/athletic/6272017/2025/04/11/alexander-isak-anthony-gordon-newcastle-injury-update/
+**'It's a lot. It's too much': What do MLB players do with all their stuff?**\
+`For journeyman players, it can be tough to reuse or recycle anything at the next stop. So where does it all go?`\
+https://nytimes.com/athletic/6270334/2025/04/11/what-do-mlb-players-do-with-their-stuff/
 
-**Spanish Citizen Who Died in Hudson River Helicopter Crash Was Siemens Executive**\
-`Agustín Escobar was killed on Thursday along with his wife and their three children, who have not been publicly named. The pilot also died in the crash, officials said.`\
-https://nytimes.com/2025/04/11/world/europe/hudson-river-helicopter-crash-dead-spain-siemens-agustin-escobar.html
+**Liam Coen found success being himself. Will it also work with the Jaguars?**\
+`Jacksonville is hoping the 39-year-old Coen, a first-time head coach at any level, can get QB Trevor Lawrence and others back on track.`\
+https://nytimes.com/athletic/6265076/2025/04/11/jacksonville-jaguars-nfl-head-coach-liam-coen/
 
-**Steeling China for a Fight, Xi Faces His Biggest Test Since Covid**\
-`Xi Jinping has refused to back down in China’s tariff confrontation with President Trump. But he’ll have to persuade his people that the pain is worth it.`\
-https://nytimes.com/2025/04/11/world/asia/trump-china-tariffs-xi.html
+**49ers Draft Crush: After losing Dre Greenlaw, the D needs a dose of feistiness**\
+`The 49ers can replace the feistiness they lost when Dre Greenlaw signed with Denver by taking a linebacker on Day 2 of the draft.`\
+https://nytimes.com/athletic/6271191/2025/04/11/49ers-draft-crush-chris-paul-dre-greenlaw/
 
-**Scouting 'The Beast' for wide receivers the Bills could take in the NFL Draft**\
-`The Bills need another wide receiver and there are several possibilities in this year's draft class.`\
-https://nytimes.com/athletic/6270635/2025/04/11/bills-nfl-draft-2025-wide-receiver-fits/
+**The next step in the transfer portal: How teams are using data to find players**\
+`At the AFCA convention, there were at least five companies with booths advertising their ability to research for the transfer portal.`\
+https://nytimes.com/athletic/6270242/2025/04/11/college-football-2025-transfer-portal-players-data/
 
-**All in on Kyle Tucker? Is Devin Williams really a closer? Yankees mailbag, Part 2**\
-`Will Ben Rice keep a healthy Giancarlo Stanton on the bench? Will poor pitching and injuries lead to a deadline sell-off?`\
-https://nytimes.com/athletic/6268265/2025/04/11/new-york-yankees-mailbag-kyle-tucker/
+**This Week’s Sports Business Case Studies: Suns, Bears, Penn State hockey, relegation**\
+`Each week, we select a few recent stories published by The Athletic's team that might yield some insights about organizational success.`\
+https://nytimes.com/athletic/6270803/2025/04/11/sports-business-case-studies-suns-bears-penn-state-hockey-relegation/
 
-**Why the Lions could take more than one edge rusher in the NFL Draft**\
-`There is a case for the Lions to double up at a position of need.`\
-https://nytimes.com/athletic/6270925/2025/04/11/lions-nfl-draft-2025-edge-rusher/
+**Most NBA teams aren't tanking — but being on the edge of contention is no picnic, either**\
+`Most NBA teams are neither blowing games on purpose nor cutting down nets in June. Most are somewhere in the middle.`\
+https://nytimes.com/athletic/6244434/2025/04/11/nba-draft-tanking-contention/
 
-**Tyler Shough film review: Louisville QB looks more NFL-ready than some draft peers**\
-`There's a lot to like about what Shough brings, but age, injury history and a bad tendency could significantly limit his ceiling.`\
-https://nytimes.com/athletic/6270985/2025/04/11/tyler-shough-louisville-nfl-draft-film-review/
+**The Jets' draft alternatives: Day 2 and 3 prospects at positions of need**\
+`Looking at what the Jets can do beyond their first-round pick.`\
+https://nytimes.com/athletic/6270586/2025/04/11/new-york-jets-day-2-3-draft-targets/
 
-**The New York Times International Edition in Print for Saturday, April 12, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/04/11/todays-new-york-times-international-edition
+**Discuss: Where does Mohamed Salah rank among Liverpool's all-time greats?**\
+`Salah has signed a new contract at Liverpool - join the debate alongside your fellow subscribers`\
+https://nytimes.com/athletic/6272048/2025/04/11/mohamed-salah-liverpool-contact-greats/
 
-**Draft trade scenarios: If Giants move down from No. 3, what kind of haul could they get?**\
-`If the Giants pass on a QB at No. 3, a trade back into Round 1 to secure a QB feels like a distinct possibility. But what would it cost?`\
-https://nytimes.com/athletic/6270111/2025/04/11/giants-nfl-draft-trades-abdul-carter-shedeur-sanders/
+**Shedeur Sanders' best landing spot? Surprises in 'The Beast' top 100?: NFL Draft roundtable**\
+`The 2025 NFL Draft is less than two weeks away. Our experts debate some key topics that could dictate how things play out in Green Bay. `\
+https://nytimes.com/athletic/6269719/2025/04/11/nfl-draft-2025-roundtable-shedeur-sanders/
 
