@@ -1,3 +1,11 @@
+**South Carolina star MiLaysia Fulwiley to enter transfer portal**\
+`Since arriving on campus last fall, Fulwiley was seen as one of the biggest stars in women’s college hoops`\
+https://nytimes.com/athletic/6273266/2025/04/11/south-carolina-milaysia-fulwiley-transfer-portal/
+
+**Flashback: Your Weekly History Quiz, April 12, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/04/11/upshot/flashback.html
+
 **Trump Will End Temporary Protections for Afghans and Cameroonians**\
 `More than 10,000 people will be put on track for deportation in May and June as a result of the Department of Homeland Security’s action.`\
 https://nytimes.com/2025/04/11/us/politics/trump-tps-afghanistan-cameroon.html

@@ -1,3 +1,7 @@
+**A Tragic End After a Helicopter Pilot’s Fresh Start**\
+`Seankese Johnson, 36, was killed along with five passengers when the sightseeing helicopter he was flying suddenly crashed into the Hudson River near Jersey City.`\
+https://nytimes.com/2025/04/11/nyregion/seankese-johnson-nyc-helicopter-crash.html
+
 **South Carolina star MiLaysia Fulwiley to enter transfer portal**\
 `Since arriving on campus last fall, Fulwiley was seen as one of the biggest stars in women’s college hoops`\
 https://nytimes.com/athletic/6273266/2025/04/11/south-carolina-milaysia-fulwiley-transfer-portal/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/04/11/weather/avalanche-science.html
 **Justice Dept. Lobbies for Release of Ex-F.B.I. Informant Accused of Lying About Bidens**\
 `It was the latest in a series of moves to scrap or soften punishments against President Trump’s supporters, including members of the violent mob that attacked the Capitol.`\
 https://nytimes.com/2025/04/11/us/politics/trump-smirnov-fbi-biden-ukraine-bribe.html
-
-**Blue Jackets' Dean Evason clarifies comments, but goaltending mysteries persist**\
-`Why did the Blue Jackets stick with their struggling tandem of Elvis Merzlikins and Daniil Tarasov as the team faded from a playoff spot?`\
-https://nytimes.com/athletic/6272881/2025/04/11/blue-jackets-dean-evason-comments-goaltending-mysteries/
 
