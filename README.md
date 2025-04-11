@@ -1,3 +1,7 @@
+**Tesla Halts Orders in China on U.S. Imported Models**\
+`The removal of an “order” button from Tesla’s Chinese website came after Beijing raised tariffs on American imports in response to President Trump’s levies against the country.`\
+https://nytimes.com/2025/04/11/business/china-tesla-imports.html
+
 **Alisson and Bradley set for Liverpool returns against West Ham**\
 `Alisson had missed Liverpool's last two games while Bradley is in contention to make his first start since mid-February`\
 https://nytimes.com/athletic/6272019/2025/04/11/liverpool-injuries-alisson-conor-bradley-update/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/11/nyregion/a-fatal-helicopter-crash-in-the-hudson-r
 **Trump Envoy Arrives in Russia Seeking to Rekindle Ukraine War Talks**\
 `The Kremlin spokesman would not say whether the Trump aide, Steve Witkoff, would meet with President Vladimir V. Putin of Russia.`\
 https://nytimes.com/2025/04/11/world/europe/ukraine-trump-witkoff-talks.html
-
-**Trump’s Tariffs Are Part of a ‘Tectonic Plate Shift’ in the Global Economy**\
-`Peter R. Orszag, the C.E.O. of Lazard, discusses how markets are reacting to the uncertainty of Trump’s tariffs.`\
-https://nytimes.com/video/opinion/100000010103488/trumps-tariffs-are-part-of-a-tectonic-plate-shift-in-the-global-economy.html
 
