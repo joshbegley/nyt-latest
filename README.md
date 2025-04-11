@@ -1,3 +1,7 @@
+**Stay or Go? Israel’s Evacuation Orders Leave Gazans Facing an Excruciating Choice.**\
+`A new declaration targeted eastern Gaza City, including several areas that had been declared evacuation zones. The United Nations said 390,000 people had been displaced in recent weeks.`\
+https://nytimes.com/2025/04/11/world/middleeast/israel-gaza-evacuations.html
+
 **Rockets playoff opponents? Analyzing potential Clippers, Grizzlies or Wolves first-round series**\
 `Kelly Iko leads a reporter roundtable to discuss who the Rockets could face in the first round and how they might fare. `\
 https://nytimes.com/athletic/6269065/2025/04/11/rockets-2025-nba-playoffs-wolves-clippers-grizzlies/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6271005/2025/04/11/mets-daniel-nicolaisen-hitting-c
 **Raiders mailbag: Does Geno Smith's contract put them back in the mix to draft a QB?**\
 `Could the Raiders still pursue a QB in the draft? Who has final say in the draft room? And is it Ashton Jeanty or another position at No. 6?`\
 https://nytimes.com/athletic/6268381/2025/04/11/geno-smith-nfl-draft-raiders-mailbag/
-
-**'It's a benefit to the game': A rule change is bringing standout young players to MLB faster**\
-`Teams used to hold players in the minors to manipulate their service time. The prospect promotion incentive has caused that to change.`\
-https://nytimes.com/athletic/6271625/2025/04/11/prospect-promotion-initiative-mlb-rookies/
 
