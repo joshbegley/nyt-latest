@@ -1,3 +1,11 @@
+**USMNT Gold Cup schedule could get spicy, Mexico, Canada possibilities**\
+`The United States men&#8217;s national team&#8217;s Concacaf Gold Cup schedule was filled with potential intrigue after the tournament structure and dates were finalized on Friday.`\
+https://nytimes.com/athletic/6273533/2025/04/11/concacaf-gold-cup-usmnt-canada-mexico/
+
+**Pennsylvania Man Threatened to Kill Trump and Musk, U.S. Says**\
+`Shawn Monper, of Butler, Pa., also threatened immigration agents in comments on YouTube, federal prosecutors said.`\
+https://nytimes.com/2025/04/11/us/politics/trump-elon-musk-ice-threats.html
+
 **Military Judge Throws Out Sept. 11 Case Confession as Obtained Through Torture**\
 `The critical question of whether the prisoner’s 2007 interrogations could be used at his capital trial has shadowed the case for years.`\
 https://nytimes.com/2025/04/11/us/politics/sept-11-confession-torture.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/11/arts/music/soulja-boy-sexual-assault-trial-verdic
 **Education Department Is Threatening to Cut All Federal Funding for Maine Schools**\
 `The Trump administration has been targeting Maine since the president sparred with Gov. Janet Mills over transgender athletes at the White House in February.`\
 https://nytimes.com/2025/04/11/us/politics/maine-school-funding-trump-education.html
-
-**Derek Carr's status for 2025 in jeopardy due to shoulder injury: Sources**\
-`Carr started in all of the Saints' five wins last season before suffering a season-ending hand injury. `\
-https://nytimes.com/athletic/6273388/2025/04/11/saints-derek-carr-shoulder-injury-2025/
-
-**South Carolina Executes Second Inmate by Firing Squad**\
-`Mikal Mahdi’s execution came about a month after the first person in state history was killed in such a manner. Before that, no person had been killed by a firing squad in the United States in 15 years.`\
-https://nytimes.com/2025/04/11/us/south-carolina-execution-firing-squad.html
 
