@@ -1,3 +1,7 @@
+**Man Utd's style defended by Marc Skinner after Emma Hayes comments**\
+`The 28-year-old made her USWNT debut earlier this month.`\
+https://nytimes.com/athletic/6272031/2025/04/11/manchester-united-women-skinner-uswnt-emma-hayes/
+
 **Man Utd's style defended by Skinner after Emma Hayes comments**\
 `The 28-year-old made her USWNT debut earlier this month.`\
 https://nytimes.com/athletic/6272031/2025/04/11/manchester-united-women-skinner-uswnt-emma-hayes/
