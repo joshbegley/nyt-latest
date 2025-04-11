@@ -1,3 +1,23 @@
+**Review: Dance Theater of Harlem, Reshaped and Back at City Center**\
+`Robert Garland, the company’s artistic director, has created his first work for the dancers since taking over in 2023.`\
+https://nytimes.com/2025/04/11/arts/dance/dance-theater-of-harlem-review.html
+
+**Dimitri Payet accused of 'physical, moral, psychological and sexual violence'**\
+`Larissa Natalya Ferrari told Brazilian outlet Globo that she has requested a protective measure from local police against Payet.`\
+https://nytimes.com/athletic/6272408/2025/04/11/dimitri-payet-assault-abuse-case/
+
+**Gov. Kim Reynolds of Iowa Won’t Seek Re-election, Setting Up Open Race**\
+`The move by Ms. Reynolds, a Republican, will shake up the leadership of a state that has transformed from a political battleground into safely red territory.`\
+https://nytimes.com/2025/04/11/us/politics/kim-reynolds-iowa-governor.html
+
+**Europe Moves to Shield Itself From Trade War Fallout**\
+`The uncertainty of higher tariffs has spurred Germany, Italy, Portugal and Spain to announce financial lifelines for businesses and workers. More countries are expected to follow.`\
+https://nytimes.com/2025/04/11/business/trump-tariffs-eu.html
+
+**Shaq agrees to walk Dwight Howard into Hall of Fame, settling long feud**\
+`Though the two have had beef over a Superman cape since 2008, O'Neal immediately agreed to partake in Howard's induction ceremony.`\
+https://nytimes.com/athletic/6272835/2025/04/11/dwight-howard-shaquille-oneal-hall-of-fame-beef/
+
 **Seven former Day 1 MLB draft picks showing signs of breakthroughs early this season**\
 `These seven former first- and second-round picks have made early statements that show they might be taking big steps forward this season. `\
 https://nytimes.com/athletic/6272789/2025/04/11/mlb-former-top-draft-picks-breakouts/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6272704/2025/04/11/vinai-venkatesham-tottenham-hots
 **The Bounce: Why the Suns have a case to trade Devin Booker. Plus, the NBA playoffs are near!**\
 `The Suns' season was a disaster. Could trading Devin Booker be their only path forward?`\
 https://nytimes.com/athletic/6272833/2025/04/11/devin-booker-suns-nba-playoffs-the-bounce/
-
-**Pope Makes a Surprise Visit — and Style Statement — in St. Peter’s**\
-`Appearing publicly in street clothes for the first time as pontiff, Pope Francis went into St. Peter’s Basilica to pray and greet the faithful.`\
-https://nytimes.com/2025/04/11/world/europe/pope-francis-st-peters-basilica.html
-
-**Pope Makes Surprise Visit to St. Peter’s Basilica**\
-`Pope Francis made an unexpected visit to St. Peter’s Basilica on Thursday, wearing civilian clothes.`\
-https://nytimes.com/video/world/europe/100000010105660/pope-basilica-visit.html
-
-**A double bagel on clay: How Alex de Minaur did what Rafael Nadal never could**\
-`De Minaur's 6-0, 6-0 victory over Grigor Dimitrov at the Monte Carlo Masters set a record for the tournament category.`\
-https://nytimes.com/athletic/6272653/2025/04/11/de-minaur-double-bagel-dimitrov-monte-carlo-masters/
-
-**Nico Iamaleava, Tennessee’s $2 million QB, absent from practice amid NIL talks: Sources**\
-`This was to be the last season of Iamaleava's original four-year, $8 million deal, which was set to pay him $2.2 million this year. `\
-https://nytimes.com/athletic/6272776/2025/04/11/nico-iamaleava-tennessee-negotiations-nil/
-
-**Emergency Crews Respond to Small Plane Crash in Florida**\
-`Large plumes of smoke billowed into the air after a plane crashed in Boca Raton, Fla., on Friday morning.`\
-https://nytimes.com/video/us/100000010105610/boca-raton-florida-plane-crash.html
 

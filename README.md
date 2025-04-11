@@ -1,3 +1,11 @@
+**What to Know About Who Pays the Higher Costs of Trump’s Tariffs**\
+`President Trump’s trade policies will make imports more expensive and calculating and paying the tariffs more complicated.`\
+https://nytimes.com/2025/04/11/business/economy/trump-tariffs-imports-costs.html
+
+**'I cannot remember a single second' of career: Ex-rugby star speaks of memory loss**\
+`"When I talk about it at home with my wife, I tell her that I have the impression that it wasn't me who played rugby," Chabal said. `\
+https://nytimes.com/athletic/6272822/2025/04/11/sebastien-chabal-france-rugby-memory-loss/
+
 **Review: Dance Theater of Harlem, Reshaped and Back at City Center**\
 `Robert Garland, the company’s artistic director, has created his first work for the dancers since taking over in 2023.`\
 https://nytimes.com/2025/04/11/arts/dance/dance-theater-of-harlem-review.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/11/opinion/interesting-times.html
 **How to watch the Cubs at Dodgers series: Can Chicago stay hot against a tough LA team?**\
 `The Cubs and Dodgers meet again, this time in LA. After losing both games in Tokyo to the Dodgers, the Cubs will want this one. `\
 https://nytimes.com/athletic/6265319/2025/04/11/cubs-dodgers-ohtani-betts-freeman-sasaki-glasnow-how-to-watch/
-
-**Venkatesham is the ex-Arsenal executive who helped them rebuild - and will want repeat at Spurs**\
-`Vinai Venkatesham spent 14 years with Arsenal and has been a surprise appointment at Tottenham Hotspur`\
-https://nytimes.com/athletic/6272704/2025/04/11/vinai-venkatesham-tottenham-hotspur-arsenal/
-
-**The Bounce: Why the Suns have a case to trade Devin Booker. Plus, the NBA playoffs are near!**\
-`The Suns' season was a disaster. Could trading Devin Booker be their only path forward?`\
-https://nytimes.com/athletic/6272833/2025/04/11/devin-booker-suns-nba-playoffs-the-bounce/
 
