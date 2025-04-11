@@ -1,3 +1,7 @@
+**Sainz escapes FIA sanction for swearing in news conference**\
+`Sainz had sworn while explaining his lateness for the national anthem at last Sunday’s race in Japan.`\
+https://nytimes.com/athletic/6272223/2025/04/11/carlos-sainz-swearing-fia/
+
 **Osasuna lose appeal over eligibility of Barcelona's Martinez**\
 `Osasuna had alleged that Martinez was ineligible to play in the fixture after he withdrew from the Spain squad through injury.`\
 https://nytimes.com/athletic/6272173/2025/04/11/inigo-martinez-barcelona-osasuna-appeal/
