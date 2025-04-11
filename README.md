@@ -1,3 +1,7 @@
+**Moyes: Everton hold 'all the cards' on Branthwaite's future**\
+`Manchester United previously bid for Branthwaite, who is effectively under contract at Everton until 2028.`\
+https://nytimes.com/athletic/6272078/2025/04/11/jarrad-branthwaite-transfer-everton-moyes/
+
 **Weird & Wild: Jose Altuve strikes again, The 22-Walk Game, and one after another for Reds**\
 `If Terry Francona had known the Reds were planning to play a 1-0 game every freaking day, would he have come out of retirement? `\
 https://nytimes.com/athletic/6271775/2025/04/11/22-walk-game-jose-altuve-reds-weird-baseball-stats/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6265076/2025/04/11/jacksonville-jaguars-nfl-head-co
 **49ers Draft Crush: After losing Dre Greenlaw, the D needs a dose of feistiness**\
 `The 49ers can replace the feistiness they lost when Dre Greenlaw signed with Denver by taking a linebacker on Day 2 of the draft.`\
 https://nytimes.com/athletic/6271191/2025/04/11/49ers-draft-crush-chris-paul-dre-greenlaw/
-
-**The next step in the transfer portal: How teams are using data to find players**\
-`At the AFCA convention, there were at least five companies with booths advertising their ability to research for the transfer portal.`\
-https://nytimes.com/athletic/6270242/2025/04/11/college-football-2025-transfer-portal-players-data/
 
