@@ -1,3 +1,7 @@
+**South Carolina Executes Second Inmate by Firing Squad**\
+`Mikal Mahdi’s execution came about a month after the first person in state history was killed in such a manner. Before that, no person had been killed by a firing squad in the United States in 15 years.`\
+https://nytimes.com/2025/04/11/us/south-carolina-execution-firing-squad.html
+
 **F.B.I. Suspends Bureau Employee on Patel’s So-Called Enemies List**\
 `The employee was a longtime counterintelligence analyst who had worked on the F.B.I.’s investigation examining Russian meddling in the 2016 presidential election.`\
 https://nytimes.com/2025/04/11/us/politics/fbi-suspends-employee-patel-enemies.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/11/nyregion/luigi-mangione-death-penalty.html
 **Rick Levine, Who Gave Commercials Cinematic Flair, Dies at 94**\
 `An award-winning director, he created ads for brands like Diet Pepsi (starring Michael J. Fox) and Wells Fargo by bringing a Hollywood sensibility to the small screen.`\
 https://nytimes.com/2025/04/11/business/media/rick-levine-dead.html
-
-**A Judge Ordered the U.S. to Detail Its Efforts to Return a Deported Man**\
-`Also, some Apple employees are worried about the company. Here's the latest at the end of Friday.`\
-https://nytimes.com/2025/04/11/briefing/court-hearing-deportation-bond-markets-tariffs.html
 

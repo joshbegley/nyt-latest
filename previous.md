@@ -1,3 +1,11 @@
+**F.B.I. Suspends Bureau Employee on Patel’s So-Called Enemies List**\
+`The employee was a longtime counterintelligence analyst who had worked on the F.B.I.’s investigation examining Russian meddling in the 2016 presidential election.`\
+https://nytimes.com/2025/04/11/us/politics/fbi-suspends-employee-patel-enemies.html
+
+**Atlantic League to use QR codes on baseballs this season in latest test**\
+`QR codes are believed to have never appeared on a baseball in any pro league. `\
+https://nytimes.com/athletic/6273478/2025/04/11/atlantic-league-qr-codes-baseballs/
+
 **Joseph Boskin, Scholar of Humor and April Fools’ Prankster, Dies at 95**\
 `To oblige an eager reporter, he invented a story about the holiday’s origin. He didn’t realize it would turn out to be his “Andy Warhol moment.”`\
 https://nytimes.com/2025/04/11/us/joseph-boskin-dead-april-fools.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/11/business/media/rick-levine-dead.html
 **A Judge Ordered the U.S. to Detail Its Efforts to Return a Deported Man**\
 `Also, some Apple employees are worried about the company. Here's the latest at the end of Friday.`\
 https://nytimes.com/2025/04/11/briefing/court-hearing-deportation-bond-markets-tariffs.html
-
-**Judge Declines to Block Immigration Enforcement Operations in Places of Worship**\
-`The ruling cast doubt on claims by a coalition of Christian and Jewish groups that their congregations were at heightened risk of becoming targets for raids under the Trump administration.`\
-https://nytimes.com/2025/04/11/us/politics/immigration-enforcement-places-of-worship.html
-
-**See the Moments Leading Up to the Nightclub Roof Collapse in Santo Domingo**\
-`Video taken at the scene shows debris was already falling from the ceiling of the Jet Set nightclub before it caved in.`\
-https://nytimes.com/interactive/2025/04/11/world/americas/nightclub-dominican-republic-collapse.html
 

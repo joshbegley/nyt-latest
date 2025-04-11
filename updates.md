@@ -1,3 +1,11 @@
+**F.B.I. Suspends Bureau Employee on Patel’s So-Called Enemies List**\
+`The employee was a longtime counterintelligence analyst who had worked on the F.B.I.’s investigation examining Russian meddling in the 2016 presidential election.`\
+https://nytimes.com/2025/04/11/us/politics/fbi-suspends-employee-patel-enemies.html
+
+**Atlantic League to use QR codes on baseballs this season in latest test**\
+`QR codes are believed to have never appeared on a baseball in any pro league. `\
+https://nytimes.com/athletic/6273478/2025/04/11/atlantic-league-qr-codes-baseballs/
+
 **Joseph Boskin, Scholar of Humor and April Fools’ Prankster, Dies at 95**\
 `To oblige an eager reporter, he invented a story about the holiday’s origin. He didn’t realize it would turn out to be his “Andy Warhol moment.”`\
 https://nytimes.com/2025/04/11/us/joseph-boskin-dead-april-fools.html
