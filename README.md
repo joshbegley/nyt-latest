@@ -1,3 +1,19 @@
+**Late Night Taps Into Trump’s Preoccupation With Water Pressure**\
+`Jimmy Fallon said the good news is that “more powerful shower heads are on the way. Bad news: They’re all made in China.”`\
+https://nytimes.com/2025/04/11/arts/television/late-night-trump-shower-heads.html
+
+**Four reasons for Tottenham Hotspur fans to be optimistic ahead of the second leg**\
+`Tottenham Hotspur drew 1-1 with Eintracht Frankfurt in the first leg of their Europa League quarter-final on Thursday night`\
+https://nytimes.com/athletic/6271326/2025/04/11/tottenham-hotspur-eintracht-frankfurt-analysis/
+
+**After Bucks learn they can't take the fifth, their stars take an early seat in the back**\
+`With No. 5 seed out of reach Thursday, players disappeared in the third quarter after Doc Rivers decided to get a head start toward Detroit.`\
+https://nytimes.com/athletic/6271684/2025/04/11/milwaukee-bucks-nba-playoffs-pistons/
+
+**Arsenal, Newcastle, Milan to play pre-season friendlies in Singapore**\
+`The two Premier League sides will play each other at the National Stadium on Sunday July 27.`\
+https://nytimes.com/athletic/6271868/2025/04/11/arsenal-newcastle-milan-singapore/
+
 **American Returns Home After Imprisonment in Russia**\
 `Ksenia Karelina, a dual citizen of the U.S. and Russia, smiled as she stepped off a plane to meet loved ones in an emotional reunion on Thursday night.`\
 https://nytimes.com/video/us/100000010104898/russia-us-ksenia-karelina-swap.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6270238/2025/04/11/winnipeg-jets-win-stars-record-s
 **Don't write off the Braves yet. The Spencers (Schwellenbach and Strider), offer hope**\
 `Schwellenbach started the marathon rain-delayed win over the Phillies and Strider looked superb in a rehab start for Triple-A Gwinnett.`\
 https://nytimes.com/athletic/6271766/2025/04/11/braves-spencer-strider-and-schwellenbach-pitched/
-
-**Chelsea's Acheampong feels the love from Maresca - and this time it's not tough**\
-`Josh Acheampong has been in and out of Enzo Maresca's first-team picture this season`\
-https://nytimes.com/athletic/6271483/2025/04/11/josh-acheampong-chelsea-legia-warsaw-analysis/
-
-**U.S. Military Removes Commander of Greenland Base After Vance Visit**\
-`Although the military did not say why the colonel had been dismissed, it said it would not tolerate any subversion of President Trump’s agenda.`\
-https://nytimes.com/2025/04/11/world/europe/greenland-pituffik-vance-miltary-commander.html
-
-**Friday Briefing**\
-`An escalating trade war.`\
-https://nytimes.com/2025/04/11/briefing/trade-war-iran-hamas.html
-
-**The New York Times in Print for Friday, April 11, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/04/11/todays-new-york-times
 
