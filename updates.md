@@ -1,3 +1,17 @@
+**China Raises Tariffs on U.S. Imports to 125%**\
+`Beijing’s retaliation came after the White House had raised its tariff on Chinese goods to 125 percent, on top of an existing 20 percent tax.`\
+https://nytimes.com/2025/04/11/business/china-tariffs-125.html
+
+**PL weekend acca tips: More misery for Leicester? Villa to strike late?**\
+`Sam Tighe rounds up three of the best bets to add to this weekend’s Premier League accumulator. 
+`\
+https://nytimes.com/athletic/6269511/2025/04/11/premier-league-accumulator-tips-odds-betting-picks/
+
+**Premier League top five odds: Forest, City, Villa or Newcastle?**\
+`Brett Koremenos explores the odds around the teams vying for the Premier League’s top five spots. 
+`\
+https://nytimes.com/athletic/6270057/2025/04/11/premier-league-top-five-betting-predictions-odds-tips/
+
 **PL weekend acca tips: More misery for Leicester? Villa to strike late?**\
 `Sam Tighe rounds up three of the best bets to add to this weekend’s Premier League accumulator. 
 `\
