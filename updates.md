@@ -1,3 +1,11 @@
+**Alice Tan Ridley, a Subway Singer Who Dazzled on ‘America’s Got Talent,’ Dies at 72**\
+`The mother of the actress Gabourey Sidibe, she spent decades singing full time as a busker in the New York City subways.`\
+https://nytimes.com/2025/04/11/arts/alice-tan-ridley-dead.html
+
+**New York Helicopter Crash Recalls Another. And Another.**\
+`Dozens have died in accidents since helicopters were allowed in the city in 1949. Residents have complained for nearly as long, but reforms rarely stick.`\
+https://nytimes.com/2025/04/11/nyregion/nyc-helicopter-crash-history.html
+
 **New York Helicopter Crash Recalls Another. And Another.**\
 `Dozens have died in accidents since helicopters were allowed in the city in 1949. Residents have complained for nearly as long, but reforms rarely stick.`\
 https://nytimes.com/2025/04/11/nyregion/new-york-helicopter-crash-recalls-another-and-another.html

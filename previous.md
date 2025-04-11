@@ -1,6 +1,10 @@
+**Alice Tan Ridley, a Subway Singer Who Dazzled on ‘America’s Got Talent,’ Dies at 72**\
+`The mother of the actress Gabourey Sidibe, she spent decades singing full time as a busker in the New York City subways.`\
+https://nytimes.com/2025/04/11/arts/alice-tan-ridley-dead.html
+
 **New York Helicopter Crash Recalls Another. And Another.**\
 `Dozens have died in accidents since helicopters were allowed in the city in 1949. Residents have complained for nearly as long, but reforms rarely stick.`\
-https://nytimes.com/2025/04/11/nyregion/new-york-helicopter-crash-recalls-another-and-another.html
+https://nytimes.com/2025/04/11/nyregion/nyc-helicopter-crash-history.html
 
 **Why the Maple Leafs will be forced to play with only 5 defencemen this weekend**\
 `An injury to Oliver Ekman-Larsson, on top of a lingering injury to Jake McCabe and a salary-cap crunch, leaves the Leafs with no choice.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/11/health/skin-substitutes-medicare-policy-delay.htm
 **Song of the Week: Who Is Tate McRae?**\
 `The singer’s “Sports Car” is a hit, but why does it sound so familiar? Jon Caramanica explains from his car in the latest “Popcast” song of the week video.`\
 https://nytimes.com/video/podcasts/100000010103378/who-is-tate-mcrae.html
-
-**Top U.S. Prosecutor in New Jersey, a Trump Loyalist, Targets Governor**\
-`Alina Habba said she was investigating Gov. Philip D. Murphy and the state’s attorney general over immigration policy. She called the inquiry a “warning for everybody.”`\
-https://nytimes.com/2025/04/11/nyregion/trump-justice-department-habba-immigration.html
 
