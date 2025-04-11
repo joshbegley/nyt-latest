@@ -1,3 +1,15 @@
+**‘Yellowjackets’ Season 3 Finale Recap: The Wilderness Is Hungry**\
+`The episode finally revealed the full story behind the show’s very first scene. It also revealed even darker truths about Shauna.`\
+https://nytimes.com/2025/04/11/arts/television/yellowjackets-recap-season-3-finale.html
+
+**Pulp, Stereolab and Turnstile Return: Hear 10 New Songs**\
+`Listen to tracks by Bon Iver, Valerie June, Rauw Alejandro and others.`\
+https://nytimes.com/2025/04/11/arts/music/playlist-pulp-stereolab-turnstile-bon-iver.html
+
+**Air Force Academy Stops Considering Class Diversity in Admissions Process**\
+`The Justice Department said in a filing Friday that the academy changed its policy to adhere to an executive order issued in January by President Trump.`\
+https://nytimes.com/2025/04/11/us/politics/air-force-dei-admissions.html
+
 **Investors Seeking Safety Look to German Government Bonds**\
 `The country’s debt is in demand amid the chaos in financial markets spurred by whipsawing U.S. tariff policies.`\
 https://nytimes.com/2025/04/11/business/economy/germany-tariffs-bonds.html

@@ -1,3 +1,23 @@
+**Blue Jackets' Dean Evason clarifies comments, but goaltending mysteries persist**\
+`Why did the Blue Jackets stick with their struggling tandem of Elvis Merzlikins and Daniil Tarasov as the team faded from a playoff spot?`\
+https://nytimes.com/athletic/6272881/2025/04/11/blue-jackets-dean-evason-comments-goaltending-mysteries/
+
+**Our Favorite Small-Kitchen Organization Ideas**\
+`Text by Michael Sullivan`\
+https://nytimes.com/card/2025/04/11/smarter-living/wirecutter/our-favorite-small-kitchen-organization-ideas
+
+**‘The Great Gatsby’ Is 100, and as Fresh as Ever**\
+`F. Scott Fitzgerald’s masterpiece has left an enduring mark on American culture.`\
+https://nytimes.com/2025/04/11/books/review/podcast-gatsby100.html
+
+**Messi's extended stay allows ambitious Miami, MLS to reach higher**\
+`David Ornstein reports that Messi and Miami are nearing completion on a new deal, which opens a world of possibilities for the club and MLS.`\
+https://nytimes.com/athletic/6272802/2025/04/11/messi-contract-inter-miami-mls-significance/
+
+**White House Plan Calls for NOAA Research Programs to Be Dismantled**\
+`A Trump administration budget proposal would essentially eliminate the one of the world’s foremost Earth sciences research operations.`\
+https://nytimes.com/2025/04/11/climate/noaa-research-budget-cuts.html
+
 **‘Yellowjackets’ Season 3 Finale Recap: The Wilderness Is Hungry**\
 `The episode finally revealed the full story behind the show’s very first scene. It also revealed even darker truths about Shauna.`\
 https://nytimes.com/2025/04/11/arts/television/yellowjackets-recap-season-3-finale.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/04/11/business/economy/germany-tariffs-bonds.html
 **Ann Arbor Wants to Build Its Own Renewable-Energy Grid**\
 `Ann Arbor, Mich., moved forward with an ambitious plan to build its own utility that aims provide clean power outside the grid.`\
 https://nytimes.com/2025/04/11/climate/ann-arbor-michigan-renewable-energy.html
-
-**Dale Earnhardt Jr.'s new 'Throwback Classic' brings big-money event to short-track racing**\
-`To grow the expanding CARS Tour, Dale Earnhardt Jr. is partnering with FloRacing to promote the new big-money "Throwback Classic."`\
-https://nytimes.com/athletic/6272849/2025/04/11/dale-earnhardt-jr-throwback-classic-short-track-racing/
-
-**Alice Tan Ridley, a Subway Singer Who Dazzled on ‘America’s Got Talent,’ Dies at 72**\
-`The mother of the actress Gabourey Sidibe, she spent decades singing full time as a busker in the New York City subways.`\
-https://nytimes.com/2025/04/11/arts/alice-tan-ridley-dead.html
-
-**New York Helicopter Crash Recalls Another. And Another.**\
-`Dozens have died in accidents since helicopters were allowed in the city in 1949. Residents have complained for nearly as long, but reforms rarely stick.`\
-https://nytimes.com/2025/04/11/nyregion/nyc-helicopter-crash-history.html
-
-**Why the Maple Leafs will be forced to play with only 5 defencemen this weekend**\
-`An injury to Oliver Ekman-Larsson, on top of a lingering injury to Jake McCabe and a salary-cap crunch, leaves the Leafs with no choice.`\
-https://nytimes.com/athletic/6272972/2025/04/11/maple-leafs-5-defencemen-injury/
-
-**Munoz signs new Palace contract**\
-`The Colombia international’s previous deal was set to expire in 2027 with the option of an additional year.`\
-https://nytimes.com/athletic/6273073/2025/04/11/daniel-munoz-crystal-palace-contract/
 
