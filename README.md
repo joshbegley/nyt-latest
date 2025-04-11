@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`(No description)`\
+https://nytimes.com/live/2025/04/11/business/trump-tariffs-stocks-china/heres-the-latest
+
+**Live Updates: China Raises Tariffs on U.S. Imports to 125%**\
+`Beijing’s retaliation came after the White House raised its tariff on Chinese goods to 125 percent, on top of an existing 20 percent tax.`\
+https://nytimes.com/live/2025/04/11/business/trump-tariffs-stocks-china
+
 **China Raises Tariffs on U.S. Imports to 125%**\
 `Beijing’s retaliation came after the White House had raised its tariff on Chinese goods to 125 percent, on top of an existing 20 percent tax.`\
 https://nytimes.com/2025/04/11/business/china-tariffs-125.html
@@ -31,12 +39,4 @@ https://nytimes.com/2025/04/11/world/asia/myanmar-quake-buddhism.html
 `Brett Koremenos explores the odds around the teams vying for the Premier League’s top five spots. 
 `\
 https://nytimes.com/athletic/6270057/2025/04/11/premier-league-top-five-betting-predictions-odds-tips/
-
-**Cade Cunningham's 36 points, stout defense subdue Knicks: 'That's Pistons basketball'**\
-`The Pistons' second-half defensive performance looked more like the version of Detroit that went on an 8-game win streak in February.`\
-https://nytimes.com/athletic/6271841/2025/04/11/pistons-cade-cunningham-defense-subdue-knicks/
-
-**Would You Want a Robot to Do Your Daily Chores?**\
-`A company hopes to put an A.I.-powered humanoid into homes soon. Tell us if you’re ready to share your house with a robo-butler.`\
-https://nytimes.com/2025/04/11/learning/would-you-want-a-robot-to-do-your-daily-chores.html
 
