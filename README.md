@@ -1,3 +1,19 @@
+**The Bounce: Why the Suns have a case to trade Devin Booker. Plus, the NBA playoffs are near!**\
+`The Suns' season was a disaster. Could trading Devin Booker be their only path forward?`\
+https://nytimes.com/athletic/6272833/2025/04/11/devin-booker-suns-nba-playoffs-the-bounce/
+
+**Pope Makes a Surprise Visit — and Style Statement — in St. Peter’s**\
+`Appearing publicly in street clothes for the first time as pontiff, Pope Francis went into St. Peter’s Basilica to pray and greet the faithful.`\
+https://nytimes.com/2025/04/11/world/europe/pope-francis-st-peters-basilica.html
+
+**Pope Makes Surprise Visit to St. Peter’s Basilica**\
+`Pope Francis made an unexpected visit to St. Peter’s Basilica on Thursday, wearing civilian clothes.`\
+https://nytimes.com/video/world/europe/100000010105660/pope-basilica-visit.html
+
+**A double bagel on clay: How Alex de Minaur did what Rafael Nadal never could**\
+`De Minaur's 6-0, 6-0 victory over Grigor Dimitrov at the Monte Carlo Masters set a record for the tournament category.`\
+https://nytimes.com/athletic/6272653/2025/04/11/de-minaur-double-bagel-dimitrov-monte-carlo-masters/
+
 **Nico Iamaleava unexpectedly absent from Tennessee practice amid NIL talks: Source**\
 `This was to be the last season of Iamaleava's original four-year, $8 million deal, which was set to pay him $2.2 million this year. `\
 https://nytimes.com/athletic/6272776/2025/04/11/nico-iamaleava-tennessee-negotiations-nil/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6272709/2025/04/11/nfl-draft-2025-defensive-line-pa
 **Pig Kidney Removed From Alabama Woman After Organ Rejection**\
 `Towana Looney lived with the kidney longer than any other transplant patient had tolerated an organ from a genetically modified animal.`\
 https://nytimes.com/2025/04/11/health/pig-kidney-transplant-looney.html
-
-**Danns ruled out of Sunderland's promotion push**\
-`The striker joined Sunderland on deadline day in February but has not been able to make his debut for the Championship club.`\
-https://nytimes.com/athletic/6272786/2025/04/11/jayden-danns-injury-sunderland-liverpool/
-
-**Shopping for Wedding Dresses Off the Runway**\
-`Jerrie Johnson, a star of “Harlem,” and her fiancée, Dria Brown, attended shows and fittings during New York Bridal Fashion Week in preparation for their wedding next year.`\
-https://nytimes.com/2025/04/11/fashion/weddings/jerrie-johnson-new-york-bridal-fashion-week.html
-
-**World Cup games at MetLife need highest security ranking, says N.J. congressman**\
-`Appeals have been made to the FBI and Dept. of Homeland Security regarding the venue that will host the 2026 World Cup final.`\
-https://nytimes.com/athletic/6271162/2025/04/11/world-cup-metlife-stadium-homeland-security-fbi-fifa/
-
-**Kent State fires Kenni Burns 2 weeks after placing him on leave**\
-`Burns came to Kent State from an assistant job at Minnesota and went 1-23 over two seasons, including 0-12 this past fall.`\
-https://nytimes.com/athletic/6272683/2025/04/11/kent-state-fires-kenni-burns-investigation/
 

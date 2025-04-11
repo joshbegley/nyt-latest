@@ -1,3 +1,11 @@
+**Nico Iamaleava unexpectedly absent from Tennessee practice amid NIL talks: Source**\
+`This was to be the last season of Iamaleava's original four-year, $8 million deal, which was set to pay him $2.2 million this year. `\
+https://nytimes.com/athletic/6272776/2025/04/11/nico-iamaleava-tennessee-negotiations-nil/
+
+**Emergency Crews Respond to Small Plane Crash in Florida**\
+`Large plumes of smoke billowed into the air after a plane crashed in Boca Raton, Fla., on Friday morning.`\
+https://nytimes.com/video/us/100000010105610/boca-raton-florida-plane-crash.html
+
 **What Makes Korea’s Favorite Noodle Dish So Good**\
 `Many lessons can be learned from a good bowl of jjajangmyeon, supersavory black bean noodles, writes Eric Kim.`\
 https://nytimes.com/2025/04/11/dining/jjajangmyeon-korean-noodle-dish.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6271162/2025/04/11/world-cup-metlife-stadium-homela
 **Kent State fires Kenni Burns 2 weeks after placing him on leave**\
 `Burns came to Kent State from an assistant job at Minnesota and went 1-23 over two seasons, including 0-12 this past fall.`\
 https://nytimes.com/athletic/6272683/2025/04/11/kent-state-fires-kenni-burns-investigation/
-
-**Matzo Ball Soup and Crispy Potato Kugel; Sesame-Chipotle Chicken and Ramen Carbonara**\
-`New favorites and Passover classics.`\
-https://nytimes.com/2025/04/11/dining/matzo-ball-soup-crispy-potato-kugel-passover-recipes.html
-
-**Trump to Undergo First Physical Since Retaking Office**\
-`The president has often been guarded about even the most basic information about his health.`\
-https://nytimes.com/2025/04/11/us/politics/trump-physical.html
 

@@ -1,3 +1,11 @@
+**Nico Iamaleava unexpectedly absent from Tennessee practice amid NIL talks: Source**\
+`This was to be the last season of Iamaleava's original four-year, $8 million deal, which was set to pay him $2.2 million this year. `\
+https://nytimes.com/athletic/6272776/2025/04/11/nico-iamaleava-tennessee-negotiations-nil/
+
+**Emergency Crews Respond to Small Plane Crash in Florida**\
+`Large plumes of smoke billowed into the air after a plane crashed in Boca Raton, Fla., on Friday morning.`\
+https://nytimes.com/video/us/100000010105610/boca-raton-florida-plane-crash.html
+
 **What Makes Korea’s Favorite Noodle Dish So Good**\
 `Many lessons can be learned from a good bowl of jjajangmyeon, supersavory black bean noodles, writes Eric Kim.`\
 https://nytimes.com/2025/04/11/dining/jjajangmyeon-korean-noodle-dish.html
