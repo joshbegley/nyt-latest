@@ -1,5 +1,5 @@
 **Rick Levine, Who Gave Commercials Cinematic Flair, Dies at 94**\
-`An award-winning director, he created memorable ads for brands like Diet Pepsi and Wells Fargo by applying a Hollywood sensibility to the small screen.`\
+`An award-winning director, he created ads for brands like Diet Pepsi (starring Michael J. Fox) and Wells Fargo by bringing a Hollywood sensibility to the small screen.`\
 https://nytimes.com/2025/04/11/business/media/rick-levine-dead.html
 
 **A Judge Ordered the U.S. to Detail Its Efforts to Return a Deported Man**\
