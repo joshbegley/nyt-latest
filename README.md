@@ -7,7 +7,7 @@ https://nytimes.com/2025/04/11/style/the-residence-netflix-trump-water-pressure.
 https://nytimes.com/athletic/6273319/2025/04/11/drew-lock-seattle-seahawks-free-agency/
 
 **Marsch calls Davies truce with Bayern Munich, looks to Gold Cup**\
-`The disharmony between Canada and Bayern over Davies' injury seems to be settled.`\
+`The disharmony between Canada and Bayern over Davies' injury appears to be settled. Full focus is now on this summer's tournament.`\
 https://nytimes.com/athletic/6273253/2025/04/11/marsch-davies-gold-cup-canada-bayern-munich/
 
 **Five More Big Law Firms Reach Deals With Trump**\
