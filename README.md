@@ -1,3 +1,11 @@
+**Danns ruled out of Sunderland's promotion push**\
+`The striker joined Sunderland on deadline day in February but has not been able to make his debut for the Championship club.`\
+https://nytimes.com/athletic/6272786/2025/04/11/jayden-danns-injury-sunderland-liverpool/
+
+**Shopping for Wedding Dresses Off the Runway**\
+`Jerrie Johnson, a star of “Harlem,” and her fiancée, Dria Brown, attended shows and fittings during New York Bridal Fashion Week in preparation for their wedding next year.`\
+https://nytimes.com/2025/04/11/fashion/weddings/jerrie-johnson-new-york-bridal-fashion-week.html
+
 **World Cup games at MetLife need highest security ranking, says N.J. congressman**\
 `Appeals have been made to the FBI and Dept. of Homeland Security regarding the venue that will host the 2026 World Cup final.`\
 https://nytimes.com/athletic/6271162/2025/04/11/world-cup-metlife-stadium-homeland-security-fbi-fifa/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6270958/2025/04/11/masters-attire-sergio-garcia-jas
 **U.S. and Ukraine Reopen Talks on Contentious Minerals Deal**\
 `Kyiv and Washington have been haggling over a deal for resource rights that President Trump sees as a way to “recoup” past U.S. aid to Ukraine.`\
 https://nytimes.com/2025/04/11/world/europe/ukraine-minerals-deal.html
-
-**Small Plane Crashes in Boca Raton, Sending Up Plumes of Smoke**\
-`Emergency crews were responding to the crash near Boca Raton Airport in Florida, which was closed until further notice.`\
-https://nytimes.com/2025/04/11/us/boca-raton-plane-crash.html
-
-**New Pact Would Require Ships to Cut Emissions or Pay a Fee**\
-`A draft global agreement sets a fee for cargo ships, which carry the vast majority of world trade, to pay for their greenhouse gas emissions.`\
-https://nytimes.com/2025/04/11/climate/cargo-shipping-emissions.html
 
