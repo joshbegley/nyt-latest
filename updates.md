@@ -1,3 +1,11 @@
+**Quote of the Day: China Expects To Shop Itself Out of a Bind. It’ll Be Tough.**\
+`Quotation of the Day for Friday, April 11, 2025.`\
+https://nytimes.com/2025/04/10/pageoneplus/quote-of-the-day-china-expects-to-shop-itself-out-of-a-bind-itll-be-tough.html
+
+**What took so long? Jet Greaves powers Blue Jackets in must-win over Sabres**\
+`The 24-year-old goalie picked up his second win in as many days with a late NHL call-up after Elvis Merzlikins' injury.`\
+https://nytimes.com/athletic/6271624/2025/04/10/blue-jackets-jet-greaves-goalie-sabres/
+
 **Rangers and Islanders are headed in the same direction — down and out**\
 `The Rangers have already destroyed their season. Thursday, they took the Islanders down with them.`\
 https://nytimes.com/athletic/6271643/2025/04/10/new-york-rangers-islanders-season/
