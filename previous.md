@@ -1,3 +1,11 @@
+**What Is the Bell 206L Helicopter?**\
+`The helicopter that crashed in the Hudson is a widely used model.`\
+https://nytimes.com/2025/04/10/nyregion/helicopter-bell-206-l-longrange.html
+
+**What is Geekie worth on his next contract? How arbitration could frame his case**\
+`The 26-year-old scored his 31st goal of the season against the Blackhawks on Thursday.`\
+https://nytimes.com/athletic/6271628/2025/04/10/bruins-morgan-geekie-arbitration-contract/
+
 **Review: In a Musical Comedy Makeover, ‘Smash’ Lives Up to Its Name**\
 `En route to Broadway, the TV series about backstage shenanigans and Marilyn Monroe has been rejiggered, with the same great songs but a whole new plot.`\
 https://nytimes.com/2025/04/10/theater/review-smash-musical.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6271226/2025/04/10/red-sox-win-blue-jays-walk-off/
 **Helicopter Crashes Into Hudson River, Killing Six**\
 `An executive from Spain, his wife and three children died in the crash, along with the helicopter’s pilot, officials said.`\
 https://nytimes.com/2025/04/10/nyregion/helicopter-hudson-crash-victims.html
-
-**Portland Thorns' Deyna Castellanos: Uncertainty over travel amid potential ban is 'very scary'**\
-`This international window saw several players decide not to travel over concerns of current U.S. policies.`\
-https://nytimes.com/athletic/6271440/2025/04/10/portland-thorns-deyna-castellanos-travel-nwsl/
-
-**Rory's collapse, Rose's hot start and more to know from the Masters Round 1**\
-`This the seventh consecutive year McIlroy has been six shots back or more after Round 1 of the Masters.`\
-https://nytimes.com/athletic/6271261/2025/04/10/masters-2025-round-1-rory-mcilroy-justin-rose/
 

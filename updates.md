@@ -1,3 +1,11 @@
+**What Is the Bell 206L Helicopter?**\
+`The helicopter that crashed in the Hudson is a widely used model.`\
+https://nytimes.com/2025/04/10/nyregion/helicopter-bell-206-l-longrange.html
+
+**What is Geekie worth on his next contract? How arbitration could frame his case**\
+`The 26-year-old scored his 31st goal of the season against the Blackhawks on Thursday.`\
+https://nytimes.com/athletic/6271628/2025/04/10/bruins-morgan-geekie-arbitration-contract/
+
 **Review: In a Musical Comedy Makeover, ‘Smash’ Lives Up to Its Name**\
 `En route to Broadway, the TV series about backstage shenanigans and Marilyn Monroe has been rejiggered, with the same great songs but a whole new plot.`\
 https://nytimes.com/2025/04/10/theater/review-smash-musical.html
