@@ -1,3 +1,11 @@
+**How Snow Becomes Deadly**\
+`This season, more than 20 people died in avalanches in the U.S. Can mountains be safer?`\
+https://nytimes.com/interactive/2025/04/11/weather/avalanche-science.html
+
+**Justice Dept. Lobbies for Release of Ex-F.B.I. Informant Accused of Lying About Bidens**\
+`It was the latest in a series of moves to scrap or soften punishments against President Trump’s supporters, including members of the violent mob that attacked the Capitol.`\
+https://nytimes.com/2025/04/11/us/politics/trump-smirnov-fbi-biden-ukraine-bribe.html
+
 **Blue Jackets' Dean Evason clarifies comments, but goaltending mysteries persist**\
 `Why did the Blue Jackets stick with their struggling tandem of Elvis Merzlikins and Daniil Tarasov as the team faded from a playoff spot?`\
 https://nytimes.com/athletic/6272881/2025/04/11/blue-jackets-dean-evason-comments-goaltending-mysteries/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/11/arts/music/playlist-pulp-stereolab-turnstile-bon-
 **Air Force Academy Stops Considering Class Diversity in Admissions Process**\
 `The Justice Department said in a filing Friday that the academy changed its policy to adhere to an executive order issued in January by President Trump.`\
 https://nytimes.com/2025/04/11/us/politics/air-force-dei-admissions.html
-
-**Investors Seeking Safety Look to German Government Bonds**\
-`The country’s debt is in demand amid the chaos in financial markets spurred by whipsawing U.S. tariff policies.`\
-https://nytimes.com/2025/04/11/business/economy/germany-tariffs-bonds.html
-
-**Ann Arbor Wants to Build Its Own Renewable-Energy Grid**\
-`Ann Arbor, Mich., moved forward with an ambitious plan to build its own utility that aims provide clean power outside the grid.`\
-https://nytimes.com/2025/04/11/climate/ann-arbor-michigan-renewable-energy.html
 
