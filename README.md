@@ -1,3 +1,11 @@
+**Elected Official Is Among Dozens Charged in a Mob-Linked Gambling Case**\
+`A member of a New Jersey town council and several reputed Lucchese crime family members played roles in an illegal betting ring that netted more than $3 million, prosecutors said.`\
+https://nytimes.com/2025/04/11/nyregion/gambling-mob-nj-police.html
+
+**Immigration Judge Rules Khalil Can Be Deported, but Legal Hurdles Remain**\
+`The decision by a judge in Louisiana is an early victory for Secretary of State Marco Rubio, but a broader challenge is still being heard in federal court in Newark.`\
+https://nytimes.com/2025/04/11/nyregion/khalil-jena-deportation-ruling.html
+
 **Kennedy Accuses F.D.A. of Drug Industry Influence That Barred Alternative Remedies**\
 `The nation’s health secretary addressed agency employees, asking them to shed any corporate influence. But he did not address the mass layoffs that have gutted oversight of tobacco and vapes, food safety and drug reviews.`\
 https://nytimes.com/2025/04/11/health/rfk-jr-fda-drug-industry-alternative-medicine.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6273266/2025/04/11/south-carolina-milaysia-fulwiley
 **Flashback: Your Weekly History Quiz, April 12, 2025**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2025/04/11/upshot/flashback.html
-
-**Trump Will End Temporary Protections for Afghans and Cameroonians**\
-`More than 10,000 people will be put on track for deportation in May and June as a result of the Department of Homeland Security’s action.`\
-https://nytimes.com/2025/04/11/us/politics/trump-tps-afghanistan-cameroon.html
-
-**From ‘The Last of Us’ to ‘The Walking Dead,’ How Well Do You Know Your TV Zombies?**\
-`“The Last of Us” returns on Sunday, the latest in TV’s lumbering horde of zombie shows. Can you tell one from another?`\
-https://nytimes.com/interactive/2025/04/11/arts/television/zombie-quiz-last-of-us-walking-dead.html
 

@@ -1,3 +1,7 @@
+**Kennedy Accuses F.D.A. of Drug Industry Influence That Barred Alternative Remedies**\
+`The nation’s health secretary addressed agency employees, asking them to shed any corporate influence. But he did not address the mass layoffs that have gutted oversight of tobacco and vapes, food safety and drug reviews.`\
+https://nytimes.com/2025/04/11/health/rfk-jr-fda-drug-industry-alternative-medicine.html
+
 **People Flee Eastern Gaza City After New Israeli Evacuation Orders**\
 `Since the collapse of the cease-fire in March, Israel has issued a succession of evacuation orders across Gaza, covering roughly half of the territory, displacing thousands of Palestinians.`\
 https://nytimes.com/video/world/middleeast/100000010105351/gazans-flee-homes-israels-evacuation-orders.html
@@ -32,9 +36,5 @@ https://nytimes.com/2025/04/11/us/politics/trump-tps-afghanistan-cameroon.html
 
 **From ‘The Last of Us’ to ‘The Walking Dead,’ How Well Do You Know Your TV Zombies?**\
 `“The Last of Us” returns on Sunday, the latest in TV’s lumbering horde of zombie shows. Can you tell one from another?`\
-https://nytimes.com/interactive/2025/04/11/arts/television/2025-04-01-zombie-quiz-index.html
-
-**Little Luxuries**\
-`Finding joy in the small pleasures of life.`\
-https://nytimes.com/spotlight/little-luxuries
+https://nytimes.com/interactive/2025/04/11/arts/television/zombie-quiz-last-of-us-walking-dead.html
 
