@@ -1,3 +1,11 @@
+**Cooper Flagg doesn't plan on watching Duke's Final Four loss**\
+`"I haven't watched any film from the game yet," Flagg told The Athletic on Friday at the John R. Wooden Award availability.`\
+https://nytimes.com/athletic/6273410/2025/04/11/cooper-flagg-duke-wooden-award/
+
+**NFL updates helmet rules to add more ‘Guardian Cap optional’ models**\
+`The league's updates are based on “head impact severity” reviews conducted with input from the NFL Players Association.`\
+https://nytimes.com/athletic/6273581/2025/04/11/nfl-helmet-rules-guardian-caps/
+
 **Rory McIlroy rebounds from rocky Round 1 finish to surge into contention at the Masters**\
 `After finishing Thursday with two double bogeys in final four holes, McIlroy returned to play the round of the day Friday,`\
 https://nytimes.com/athletic/6273424/2025/04/11/rory-mcilroy-the-masters-contention/

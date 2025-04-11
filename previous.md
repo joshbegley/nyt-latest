@@ -1,3 +1,11 @@
+**Cooper Flagg doesn't plan on watching Duke's Final Four loss**\
+`"I haven't watched any film from the game yet," Flagg told The Athletic on Friday at the John R. Wooden Award availability.`\
+https://nytimes.com/athletic/6273410/2025/04/11/cooper-flagg-duke-wooden-award/
+
+**NFL updates helmet rules to add more ‘Guardian Cap optional’ models**\
+`The league's updates are based on “head impact severity” reviews conducted with input from the NFL Players Association.`\
+https://nytimes.com/athletic/6273581/2025/04/11/nfl-helmet-rules-guardian-caps/
+
 **Isaac Howard wins Hobey Baker Award as top player in men's college hockey**\
 `Junior led Michigan State in scoring this season with 26 goals and 52 points in 37 games, 21 more points than his nearest teammate.`\
 https://nytimes.com/athletic/6236241/2025/04/11/isaac-howard-wins-hobey-baker-award-college-hockey-top-player/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/11/us/politics/fbi-suspends-employee-patel-enemies.h
 **Atlantic League to use QR codes on baseballs this season in latest test**\
 `QR codes are believed to have never appeared on a baseball in any pro league. `\
 https://nytimes.com/athletic/6273478/2025/04/11/atlantic-league-qr-codes-baseballs/
-
-**Joseph Boskin, Scholar of Humor and April Fools’ Prankster, Dies at 95**\
-`To oblige an eager reporter, he invented a story about the holiday’s origin. He didn’t realize it would turn out to be his “Andy Warhol moment.”`\
-https://nytimes.com/2025/04/11/us/joseph-boskin-dead-april-fools.html
-
-**76ers star Joel Embiid undergoes successful left knee surgery**\
-`Embiid was ruled out for the remainder of the season at the end of February following a battle with his left knee`\
-https://nytimes.com/athletic/6273397/2025/04/11/joel-embiid-knee-surgery-76ers-2/
 
