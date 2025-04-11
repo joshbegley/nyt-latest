@@ -1,3 +1,8 @@
+**PL weekend acca tips: More misery for Leicester? Villa to strike late?**\
+`Sam Tighe rounds up three of the best bets to add to this weekend’s Premier League accumulator. 
+`\
+https://nytimes.com/athletic/6269511/2025/04/11/premier-league-accumulator-tips-odds-betting-picks/
+
 **Stocks Waver on Latest Escalation in U.S.-China Trade War**\
 `Beijing retaliated with higher tariffs on U.S. goods, a tit-for-tat move that intensified investors’ anxiety and rattled already shaky markets.`\
 https://nytimes.com/2025/04/11/business/trump-tariffs-stock-markets.html
