@@ -1,3 +1,19 @@
+**Grace Lin’s Long-Awaited New Fantasy Novel Stars Her First Animal Protagonist**\
+`A mythical lion cub stuck in the modern world must harness the power of stories to save his family and return home.`\
+https://nytimes.com/2025/04/11/books/review/grace-lin-the-gate-the-girl-and-the-dragon.html
+
+**Billie Jean King is 'the thread that runs through women’s sports history'**\
+`The 81-year-old tennis legend continues to work on shaping the future on women's sports`\
+https://nytimes.com/athletic/6272316/2025/04/11/billie-jean-king-women-sports-history/
+
+**For Pochettino and USMNT, Gold Cup is a time to reboot, not experiment**\
+`With the USMNT in desperate need of a momentum shift as a home World Cup nears, this summer's competition should not be taken lightly.`\
+https://nytimes.com/athletic/6272404/2025/04/11/usmnt-concacaf-gold-cup-pochettino-roster-approach/
+
+**From Stan Mack: A Nightmare for These Times**\
+`The cartoonist offers a drawing in response to a guest essay.`\
+https://nytimes.com/2025/04/11/opinion/letters/stan-mack-cartoon.html
+
 **How to watch Royals vs. Guardians series: Bobby Witt Jr., José Ramírez, AL Central rivalry**\
 `Both sides are postseason aspirants with potential MVP candidates in their infields.`\
 https://nytimes.com/athletic/6265364/2025/04/11/royals-guardians-mlb-2025-how-to-watch/

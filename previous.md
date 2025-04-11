@@ -1,3 +1,19 @@
+**Grace Lin’s Long-Awaited New Fantasy Novel Stars Her First Animal Protagonist**\
+`A mythical lion cub stuck in the modern world must harness the power of stories to save his family and return home.`\
+https://nytimes.com/2025/04/11/books/review/grace-lin-the-gate-the-girl-and-the-dragon.html
+
+**Billie Jean King is 'the thread that runs through women’s sports history'**\
+`The 81-year-old tennis legend continues to work on shaping the future on women's sports`\
+https://nytimes.com/athletic/6272316/2025/04/11/billie-jean-king-women-sports-history/
+
+**For Pochettino and USMNT, Gold Cup is a time to reboot, not experiment**\
+`With the USMNT in desperate need of a momentum shift as a home World Cup nears, this summer's competition should not be taken lightly.`\
+https://nytimes.com/athletic/6272404/2025/04/11/usmnt-concacaf-gold-cup-pochettino-roster-approach/
+
+**From Stan Mack: A Nightmare for These Times**\
+`The cartoonist offers a drawing in response to a guest essay.`\
+https://nytimes.com/2025/04/11/opinion/letters/stan-mack-cartoon.html
+
 **How to watch Royals vs. Guardians series: Bobby Witt Jr., José Ramírez, AL Central rivalry**\
 `Both sides are postseason aspirants with potential MVP candidates in their infields.`\
 https://nytimes.com/athletic/6265364/2025/04/11/royals-guardians-mlb-2025-how-to-watch/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6269645/2025/04/11/mlb-what-to-watch-2025-aaron-jud
 **She Worked in a Harvard Lab to Reverse Aging, Until ICE Jailed Her**\
 `President Trump’s immigration crackdown ensnared Kseniia Petrova, a scientist who fled Russia after protesting its invasion of Ukraine. She fears arrest if she is deported there.`\
 https://nytimes.com/2025/04/11/science/russian-scientist-ice-detained-harvard.html
-
-**Theater to Stream: David Tennant as ‘Macbeth,’ ‘Death of England’ and More**\
-`Take in Shakespeare, experimental theater and a three-play series on the fallout of Brexit, all available to watch at home.`\
-https://nytimes.com/2025/04/11/theater/theater-to-stream-david-tennant-macbeth.html
-
-**NHL Power Rankings: Previewing the playoffs with a playoff team draft**\
-`Our Stanley Cup preview ranking arrives a week early with a draft of the 16 playoff teams. Whose picks are better?`\
-https://nytimes.com/athletic/6271760/2025/04/11/nhl-power-rankings-playoff-draft/
-
-**Swept Out of Office by Covid, a Democratic Governor Eyes a Comeback**\
-`Steve Sisolak, the former governor of Nevada, says he is weighing a rematch against Gov. Joe Lombardo, the Republican who ousted him in 2022.`\
-https://nytimes.com/2025/04/11/us/politics/steve-sisolak-nevada-governor-joe-lombardo.html
-
-**Commanders free-agency tracker: QB Josh Johnson signs 1-year deal**\
-`Analyzing all of Washington's moves as the 2025 league year begins. `\
-https://nytimes.com/athletic/6188862/2025/04/11/commanders-free-agency-tracker-signings-trades/
 
