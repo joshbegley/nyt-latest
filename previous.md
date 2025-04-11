@@ -1,3 +1,19 @@
+**What Makes Korea’s Favorite Noodle Dish So Good**\
+`Many lessons can be learned from a good bowl of jjajangmyeon, supersavory black bean noodles, writes Eric Kim.`\
+https://nytimes.com/2025/04/11/dining/jjajangmyeon-korean-noodle-dish.html
+
+**What We Believed About America**\
+`Readers respond to a column by Bret Stephens.`\
+https://nytimes.com/2025/04/11/opinion/america-ideals.html
+
+**Scoop City: A draft loaded at defensive line**\
+`Meet five defensive prospects you should know, hear the latest trade rumors about the No. 1 pick, and learn why NFL QBs struggle`\
+https://nytimes.com/athletic/6272709/2025/04/11/nfl-draft-2025-defensive-line-pass-rush-scoop-city/
+
+**Pig Kidney Removed From Alabama Woman After Organ Rejection**\
+`Towana Looney lived with the kidney longer than any other transplant patient had tolerated an organ from a genetically modified animal.`\
+https://nytimes.com/2025/04/11/health/pig-kidney-transplant-looney.html
+
 **Danns ruled out of Sunderland's promotion push**\
 `The striker joined Sunderland on deadline day in February but has not been able to make his debut for the Championship club.`\
 https://nytimes.com/athletic/6272786/2025/04/11/jayden-danns-injury-sunderland-liverpool/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/04/11/dining/matzo-ball-soup-crispy-potato-kugel-passov
 **Trump to Undergo First Physical Since Retaking Office**\
 `The president has often been guarded about even the most basic information about his health.`\
 https://nytimes.com/2025/04/11/us/politics/trump-physical.html
-
-**Trump Showed His Pain Point in His Standoff With China**\
-`Xi Jinping, who rules with absolute authority, has shown he is willing to let the Chinese people endure hardship. President Trump revealed he has limits.`\
-https://nytimes.com/2025/04/11/business/us-china-tariffs-trump-xi.html
-
-**Miami-Dade Mayor Vetoes Plan to Remove Fluoride From Drinking Water**\
-`The veto by Mayor Daniella Levine Cava, a Democrat, pushed back on a growing campaign against the mineral, which has been used for decades to prevent cavities.`\
-https://nytimes.com/2025/04/11/us/politics/miami-dade-fluoride-ban-veto.html
-
-**The Masters fashion police blotter: Sartorial choices fans and officials are grumbling about**\
-`The Masters fashion choices that have gotten people talking and tournament officials taking action `\
-https://nytimes.com/athletic/6270958/2025/04/11/masters-attire-sergio-garcia-jason-day/
-
-**U.S. and Ukraine Reopen Talks on Contentious Minerals Deal**\
-`Kyiv and Washington have been haggling over a deal for resource rights that President Trump sees as a way to “recoup” past U.S. aid to Ukraine.`\
-https://nytimes.com/2025/04/11/world/europe/ukraine-minerals-deal.html
 

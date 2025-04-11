@@ -1,3 +1,19 @@
+**What Makes Korea’s Favorite Noodle Dish So Good**\
+`Many lessons can be learned from a good bowl of jjajangmyeon, supersavory black bean noodles, writes Eric Kim.`\
+https://nytimes.com/2025/04/11/dining/jjajangmyeon-korean-noodle-dish.html
+
+**What We Believed About America**\
+`Readers respond to a column by Bret Stephens.`\
+https://nytimes.com/2025/04/11/opinion/america-ideals.html
+
+**Scoop City: A draft loaded at defensive line**\
+`Meet five defensive prospects you should know, hear the latest trade rumors about the No. 1 pick, and learn why NFL QBs struggle`\
+https://nytimes.com/athletic/6272709/2025/04/11/nfl-draft-2025-defensive-line-pass-rush-scoop-city/
+
+**Pig Kidney Removed From Alabama Woman After Organ Rejection**\
+`Towana Looney lived with the kidney longer than any other transplant patient had tolerated an organ from a genetically modified animal.`\
+https://nytimes.com/2025/04/11/health/pig-kidney-transplant-looney.html
+
 **Danns ruled out of Sunderland's promotion push**\
 `The striker joined Sunderland on deadline day in February but has not been able to make his debut for the Championship club.`\
 https://nytimes.com/athletic/6272786/2025/04/11/jayden-danns-injury-sunderland-liverpool/
