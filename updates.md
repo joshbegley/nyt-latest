@@ -1,3 +1,7 @@
+**Go on a Full Ride**\
+`Jesse Guzman opens our solving weekend.`\
+https://nytimes.com/2025/04/10/crosswords/go-on-a-full-ride.html
+
 **Autoworkers Union Chief Gives Trump’s Tariffs a Mixed Review**\
 `In an address to the U.A.W., Shawn Fain said a targeted approach could help bring jobs back to the United States, but he criticized universal duties.`\
 https://nytimes.com/2025/04/10/business/uaw-shawn-fain-trump.html
