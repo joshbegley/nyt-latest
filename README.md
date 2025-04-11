@@ -1,3 +1,15 @@
+**Five takeaways from record-setting Winnipeg Jets win that ... could win them the division?**\
+`It took a lot more than a few players to give them a decisive 4-0 win over Dallas that brings them to the precipice of Winnipeg history.`\
+https://nytimes.com/athletic/6270238/2025/04/11/winnipeg-jets-win-stars-record-setting/
+
+**Don't write off the Braves yet. The Spencers (Schwellenbach and Strider), offer hope**\
+`Schwellenbach started the marathon rain-delayed win over the Phillies and Strider looked superb in a rehab start for Triple-A Gwinnett.`\
+https://nytimes.com/athletic/6271766/2025/04/11/braves-spencer-strider-and-schwellenbach-pitched/
+
+**Chelsea's Acheampong feels the love from Maresca - and this time it's not tough**\
+`Josh Acheampong has been in and out of Enzo Maresca's first-team picture this season`\
+https://nytimes.com/athletic/6271483/2025/04/11/josh-acheampong-chelsea-legia-warsaw-analysis/
+
 **U.S. Military Removes Commander of Greenland Base After Vance Visit**\
 `Although the military did not say why the colonel had been dismissed, it said it would not tolerate any subversion of President Trump’s agenda.`\
 https://nytimes.com/2025/04/11/world/europe/greenland-pituffik-vance-miltary-commander.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/11/us/eric-dane-diagnosis-als.html
 **'Special', 'unplayable', injured: Brighton's summer signings assessed**\
 `Brighton spent big last summer as they chase European football. Their signings have had varying fortunes at home and on loan`\
 https://nytimes.com/athletic/6253072/2025/04/11/brighton-rutter-minteh-wieffer-kadioglu/
-
-**The changes Forest and Olympiacos must make if both clubs qualify for Champions League**\
-`The rule Evangelos Marinakis must address if more than one of his clubs get into Europe's top tournament`\
-https://nytimes.com/athletic/6270007/2025/04/11/forest-olympiacos-marinakis-champions-league/
-
-**Bamford has the chance to define his narrative at Leeds - is it time for him to start?**\
-`Patrick Bamford has had an impressive pair of substitute appearances in Leeds United's last two matches`\
-https://nytimes.com/athletic/6270118/2025/04/11/patrick-bamford-leeds-united-analysis/
-
-**Livramento: Newcastle's long-term solution at right-back but thriving on the left**\
-`Tino Livramento was signed as a long-term solution at right-back but injury means he has been handed an opportunity on the left`\
-https://nytimes.com/athletic/6266576/2025/04/11/tino-livramento-newcastle-united-analysis/
 

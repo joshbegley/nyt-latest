@@ -1,3 +1,7 @@
+**U.S. Military Removes Commander of Greenland Base After Vance Visit**\
+`Although the military did not say why the colonel had been dismissed, it said it would not tolerate any subversion of President Trump’s agenda.`\
+https://nytimes.com/2025/04/11/world/europe/greenland-pituffik-vance-miltary-commander.html
+
 **Friday Briefing**\
 `An escalating trade war.`\
 https://nytimes.com/2025/04/11/briefing/trade-war-iran-hamas.html
