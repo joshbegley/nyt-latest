@@ -1,3 +1,7 @@
+**Rangers and Islanders are headed in the same direction — down and out**\
+`The Rangers have already destroyed their own season. On Thursday, they took the Islanders down with them.`\
+https://nytimes.com/athletic/6271643/2025/04/10/new-york-rangers-islanders-season/
+
 **What Is the Bell 206L Helicopter?**\
 `The helicopter that crashed in the Hudson is a widely used model.`\
 https://nytimes.com/2025/04/10/nyregion/helicopter-bell-206-l-longrange.html
