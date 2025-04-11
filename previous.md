@@ -1,3 +1,15 @@
+**Investors Seeking Safety Look to German Government Bonds**\
+`The country’s debt is in demand amid the chaos in financial markets spurred by whipsawing U.S. tariff policies.`\
+https://nytimes.com/2025/04/11/business/economy/germany-tariffs-bonds.html
+
+**Ann Arbor Wants to Build Its Own Renewable-Energy Grid**\
+`Ann Arbor, Mich., moved forward with an ambitious plan to build its own utility that aims provide clean power outside the grid.`\
+https://nytimes.com/2025/04/11/climate/ann-arbor-michigan-renewable-energy.html
+
+**Dale Earnhardt Jr.'s new 'Throwback Classic' brings big-money event to short-track racing**\
+`To grow the expanding CARS Tour, Dale Earnhardt Jr. is partnering with FloRacing to promote the new big-money "Throwback Classic."`\
+https://nytimes.com/athletic/6272849/2025/04/11/dale-earnhardt-jr-throwback-classic-short-track-racing/
+
 **Alice Tan Ridley, a Subway Singer Who Dazzled on ‘America’s Got Talent,’ Dies at 72**\
 `The mother of the actress Gabourey Sidibe, she spent decades singing full time as a busker in the New York City subways.`\
 https://nytimes.com/2025/04/11/arts/alice-tan-ridley-dead.html
@@ -14,7 +26,7 @@ https://nytimes.com/athletic/6272972/2025/04/11/maple-leafs-5-defencemen-injury/
 `The Colombia international’s previous deal was set to expire in 2027 with the option of an additional year.`\
 https://nytimes.com/athletic/6273073/2025/04/11/daniel-munoz-crystal-palace-contract/
 
-**Fed Under Pressure as Inflation Expectations Rise**\
+**Fed Under Pressure as Inflation Expectations Surge**\
 `A new survey from the University of Michigan shows consumers souring sharply on the economic outlook as the trade war heats up.`\
 https://nytimes.com/2025/04/11/business/economy/fed-inflation-trade.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/11/opinion/nih-scientists-staffing-cuts.html
 **George Bell, Considered the Tallest Man in America, Dies at 67**\
 `Being 7-foot-8 posed “a lot of challenges,” he once said. “Like how do I fit in cars, or where do I find clothes?”`\
 https://nytimes.com/2025/04/11/us/george-bell-tallest-man-dead.html
-
-**Who’s In and Who’s Out at the Naval Academy’s Library?**\
-`An order by Defense Secretary Pete Hegseth’s office resulted in a purge of books critical of racism but preserved volumes defending white power.`\
-https://nytimes.com/2025/04/11/us/politics/naval-academy-banned-books.html
-
-**Trump Administration Delays Plan to Limit Pricey Bandages**\
-`Medicare spending on “skin substitutes” reached $10 billion last year. A leading seller made a large donation to President Trump’s election campaign.`\
-https://nytimes.com/2025/04/11/health/skin-substitutes-medicare-policy-delay.html
-
-**Song of the Week: Who Is Tate McRae?**\
-`The singer’s “Sports Car” is a hit, but why does it sound so familiar? Jon Caramanica explains from his car in the latest “Popcast” song of the week video.`\
-https://nytimes.com/video/podcasts/100000010103378/who-is-tate-mcrae.html
 
