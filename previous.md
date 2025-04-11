@@ -1,40 +1,40 @@
-**Trump’s auto tariffs are causing anger in a British carmaking town.**\
-`By Lizzie Dearden`\
-https://nytimes.com/live/2025/04/11/business/trump-tariffs-stocks-china/trumps-auto-tariffs-are-causing-anger-in-a-british-carmaking-town
+**What happened on Thursday.**\
+`By The New York Times`\
+https://nytimes.com/live/2025/04/10/us/trump-news/what-happened-on-thursday
 
-**Markets Worry About Finding an Exit From Trump’s Trade Fight**\
-`Investors are concerned about the continued escalation of the U.S.-China tariff battle — and the state of the president’s negotiating leverage.`\
-https://nytimes.com/2025/04/11/business/dealbook/trump-tariffs-trade-assets.html
+**Osasuna appeal over eligibility of Barcelona's Martinez dismissed**\
+`Osasuna had alleged that Martinez was ineligible to play in the fixture after he withdrew from the Spain squad through injury.`\
+https://nytimes.com/athletic/6272173/2025/04/11/inigo-martinez-barcelona-osasuna-appeal/
 
-**Alec Bohm's rough start drags on as he and Phillies end long night at ballpark with a loss**\
-`"He's going to come out of it." Bohm is 4-for-his-last-40 and without an extra-base hit or a walk since the second game of the season. `\
-https://nytimes.com/athletic/6271925/2025/04/11/alec-bohm-struggles-phillies-braves/
+**Trump Administration Live Updates: Senate Confirms New Joint Chiefs Chairman**\
+``\
+https://nytimes.com/live/2025/04/11/us/trump-news
 
-**FPL live Q&A: FPL Gameweek 32 advice from Ben Dinnery**\
-`Join Ben Dinnery for a live Gameweek 32 FPL Q&A from 4pm-5pm UK time`\
-https://nytimes.com/athletic/6269674/2025/04/11/fantasy-premier-league-advice-gw32-tips/
+**Blues' offseason plans? Interest in Mitch Marner? 2025-26 defense pairs? Mailbag, part 2**\
+`Plus the next Blues prospect to crack the NHL roster and what potential contract extensions for Broberg and Holloway might look like.`\
+https://nytimes.com/athletic/6257765/2025/04/11/blues-mailbag-marner-offseason-defense/
 
-**Warren Urges S.E.C. to Investigate Trading Around Trump’s Tariff Pause**\
-`The president told his social media followers it was a “GREAT TIME TO BUY” hours before announcing a reversal on tariffs that sent markets soaring.`\
-https://nytimes.com/2025/04/11/business/dealbook/warren-trump-sec.html
+**Will Trump's tariffs hurt Formula One's new and existing teams? It's complicated**\
+`The sporting side could be insulated from the impact. But could the sport be susceptible to the global financial market?`\
+https://nytimes.com/athletic/6270517/2025/04/11/f1-formula-1-trump-tariffs-effect/
 
-**Prince Harry Meets War Victims in Surprise Visit to Ukraine**\
-`The prince toured a rehabilitation facility in Lviv for soldiers and civilians wounded in the war. The trip came as his father, King Charles, was in Italy.`\
-https://nytimes.com/2025/04/11/world/europe/prince-harry-ukraine-visit.html
+**Lloyd: Donovan Mitchell, Kenny Atkinson share unfamiliar territory as Cavs try for a title**\
+`There is a difference between playoff contender and title contender. Mitchell and Atkinson both came to Cleveland aiming for the latter.`\
+https://nytimes.com/athletic/6269772/2025/04/11/cleveland-cavaliers-donovan-mitchell-kenny-atkinson/
 
-**Trump Puts Wall Street Leaders in Tight Spot**\
-`Jamie Dimon of JPMorgan flagged “potential negatives” to tariffs as his and other big banks revealed their latest earnings.`\
-https://nytimes.com/2025/04/11/business/banks-tariffs-dimon-trump-trade.html
+**Ian Laperriere discusses progress of Flyers prospects, the coaching vacancy and more**\
+`Laperriere's Lehigh Valley Phantoms are in the AHL playoffs, with some help from reinforcements.`\
+https://nytimes.com/athletic/6270589/2025/04/11/laperriere-flyers-coach-prospects/
 
-**Stay or Go? Israel’s Evacuation Orders Leave Gazans Facing an Excruciating Choice.**\
-`A new declaration targeted eastern Gaza City, including several areas that had been declared evacuation zones. The United Nations said 390,000 people had been displaced in recent weeks.`\
-https://nytimes.com/2025/04/11/world/middleeast/israel-gaza-evacuations.html
+**What Marine Le Pen’s Conviction Means for France**\
+`Marine Le Pen, the French far-right leader, is barred from running in France’s 2027 presidential election after an embezzlement conviction involving her political party.`\
+https://nytimes.com/video/world/europe/100000010085458/what-marine-le-pens-conviction-means-for-france.html
 
-**Rockets playoff opponents? Analyzing potential Clippers, Grizzlies or Wolves first-round series**\
-`Kelly Iko leads a reporter roundtable to discuss who the Rockets could face in the first round and how they might fare. `\
-https://nytimes.com/athletic/6269065/2025/04/11/rockets-2025-nba-playoffs-wolves-clippers-grizzlies/
+**Sabres prospects update: A Kulich decision, Helenius' approach, more**\
+`Playing in the AHL playoffs is a chance for Kulich to embrace a challenge with a group of players he’s grown up with.`\
+https://nytimes.com/athletic/6270584/2025/04/11/sabres-prospects-kulich-helenius-amerks/
 
-**Which NHL players stood out as MVP of their team in 2024-25?**\
-`Every team from the top to the bottom of the standings had individual performances worth highlighting.`\
-https://nytimes.com/athletic/6270714/2025/04/11/nhl-mvp-picks-every-team-2025/
+**Hooray for Patriots Hall of Fame finalists, but Adam Vinatieri should've been in long ago**\
+`No disrespect to Julian Edelman and Logan Mankins, whose time will come, but why is Vinatieri even on this ballot? It all began with him.`\
+https://nytimes.com/athletic/6271133/2025/04/11/patriots-hall-of-fame-adam-vinatieri/
 
