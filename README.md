@@ -1,3 +1,11 @@
+**Spurs appoint ex-Arsenal CEO Venkatesham as new chief executive**\
+`Venkatesham left Arsenal at the end of last season and has since had other offers, including from other Premier League clubs.`\
+https://nytimes.com/athletic/6272230/2025/04/11/vinai-venkatesham-tottenham-arsenal/
+
+**World’s Friendliest Superpower? As Trump Upends Globe, Europe Positions Itself.**\
+`Ursula von der Leyen is trying to ensure that if the international trading system is remade, the E.U. is at the center of what comes next.`\
+https://nytimes.com/2025/04/11/world/europe/european-union-trade-tariffs-trump.html
+
 **Inside the Salah contract saga: Lawyer's concerns, Saudi interest - and a deal that pleases everyone**\
 `Agreeing a new deal with the Egyptian took almost a year and was not straightforward - this is how negotiations played out`\
 https://nytimes.com/athletic/6269638/2025/04/11/mohamed-salah-liverpool-contract-inside-story/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6257765/2025/04/11/blues-mailbag-marner-offseason-d
 **Will Trump's tariffs hurt Formula One's new and existing teams? It's complicated**\
 `The sporting side could be insulated from the impact. But could the sport be susceptible to the global financial market?`\
 https://nytimes.com/athletic/6270517/2025/04/11/f1-formula-1-trump-tariffs-effect/
-
-**Lloyd: Donovan Mitchell, Kenny Atkinson share unfamiliar territory as Cavs try for a title**\
-`There is a difference between playoff contender and title contender. Mitchell and Atkinson both came to Cleveland aiming for the latter.`\
-https://nytimes.com/athletic/6269772/2025/04/11/cleveland-cavaliers-donovan-mitchell-kenny-atkinson/
-
-**Ian Laperriere discusses progress of Flyers prospects, the coaching vacancy and more**\
-`Laperriere's Lehigh Valley Phantoms are in the AHL playoffs, with some help from reinforcements.`\
-https://nytimes.com/athletic/6270589/2025/04/11/laperriere-flyers-coach-prospects/
 
