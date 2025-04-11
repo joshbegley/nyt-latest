@@ -1,3 +1,7 @@
+**Stocks Post Gain for the Week, but Investors Remain Anxious**\
+`While the S&P 500 rose, other corners of the financial markets showed that investors expect big swings to continue.`\
+https://nytimes.com/2025/04/11/business/stock-market-tariffs-trump.html
+
 **What I'm hearing, seeing about the Blackhawks: Sam Rinzel's sudden impact**\
 `Early play of rookie defenseman has to have Chicago brass feeling ecstatic.`\
 https://nytimes.com/athletic/6273086/2025/04/11/around-the-blackhawks-sam-rinzel/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6273082/2025/04/11/freddie-freeman-bobblehead-dodge
 **Con Artists Scamming London Tourists Meet Their Match: Batman and Robin**\
 `The police shared video of an unconventional tactic that led to two arrests in London: Going undercover as superheroes.`\
 https://nytimes.com/2025/04/11/world/europe/batman-robin-police-undercover-scams.html
-
-**How Snow Becomes Deadly**\
-`This season, more than 20 people died in avalanches in the U.S. Can mountains be safer?`\
-https://nytimes.com/interactive/2025/04/11/weather/avalanche-science.html
 

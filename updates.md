@@ -1,3 +1,11 @@
+**What I'm hearing, seeing about the Blackhawks: Sam Rinzel's sudden impact**\
+`Early play of rookie defenseman has to have Chicago brass feeling ecstatic.`\
+https://nytimes.com/athletic/6273086/2025/04/11/around-the-blackhawks-sam-rinzel/
+
+**A Tragic End After a Helicopter Pilot’s Fresh Start**\
+`Seankese Johnson, 36, was killed along with five passengers when the sightseeing helicopter he was flying suddenly crashed into the Hudson River near Jersey City.`\
+https://nytimes.com/2025/04/11/nyregion/seankese-johnson-nyc-helicopter-crash.html
+
 **South Carolina star MiLaysia Fulwiley to enter transfer portal**\
 `Since arriving on campus last fall, Fulwiley was seen as one of the biggest stars in women’s college hoops`\
 https://nytimes.com/athletic/6273266/2025/04/11/south-carolina-milaysia-fulwiley-transfer-portal/
