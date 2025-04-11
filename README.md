@@ -1,3 +1,7 @@
+**U.S. Military Removes Commander of Greenland Base After Vance Visit**\
+`Although the military did not say why the colonel had been dismissed, it said it would not tolerate any subversion of President Trump’s agenda.`\
+https://nytimes.com/2025/04/11/world/europe/greenland-pituffik-vance-miltary-commander.html
+
 **Friday Briefing**\
 `An escalating trade war.`\
 https://nytimes.com/2025/04/11/briefing/trade-war-iran-hamas.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6270118/2025/04/11/patrick-bamford-leeds-united-ana
 **Livramento: Newcastle's long-term solution at right-back but thriving on the left**\
 `Tino Livramento was signed as a long-term solution at right-back but injury means he has been handed an opportunity on the left`\
 https://nytimes.com/athletic/6266576/2025/04/11/tino-livramento-newcastle-united-analysis/
-
-**FPL: Analysing every chip strategy for Gameweek 32 and beyond**\
-`Gameweeks 32 to 34 are the optimal time to play a chip or two in FPL. Holly Shand explores how to make the most of whichever you choose`\
-https://nytimes.com/athletic/6269191/2025/04/11/fantasy-premier-league-chip-wildcard-gw32/
 
