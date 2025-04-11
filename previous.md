@@ -1,3 +1,7 @@
+**Review: In a Musical Comedy Makeover, ‘Smash’ Lives Up to Its Name**\
+`En route to Broadway, the TV series about backstage shenanigans and Marilyn Monroe has been rejiggered, with the same great songs but a whole new plot.`\
+https://nytimes.com/2025/04/10/theater/review-smash-musical.html
+
 **Go on a Full Ride**\
 `Jesse Guzman opens our solving weekend.`\
 https://nytimes.com/2025/04/10/crosswords/go-on-a-full-ride.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6271440/2025/04/10/portland-thorns-deyna-castellano
 **Rory's collapse, Rose's hot start and more to know from the Masters Round 1**\
 `This the seventh consecutive year McIlroy has been six shots back or more after Round 1 of the Masters.`\
 https://nytimes.com/athletic/6271261/2025/04/10/masters-2025-round-1-rory-mcilroy-justin-rose/
-
-**Yes, he’s doing it again. Scottie Scheffler and the air of inevitability**\
-`After Scheffler rolled in a 62-foot birdie putt on the par-3 fourth hole Thursday, visions of another green jacket began arriving.`\
-https://nytimes.com/athletic/6271454/2025/04/10/scottie-scheffler-masters-green-jacket/
 

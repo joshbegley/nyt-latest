@@ -1,3 +1,7 @@
+**Review: In a Musical Comedy Makeover, ‘Smash’ Lives Up to Its Name**\
+`En route to Broadway, the TV series about backstage shenanigans and Marilyn Monroe has been rejiggered, with the same great songs but a whole new plot.`\
+https://nytimes.com/2025/04/10/theater/review-smash-musical.html
+
 **Go on a Full Ride**\
 `Jesse Guzman opens our solving weekend.`\
 https://nytimes.com/2025/04/10/crosswords/go-on-a-full-ride.html
