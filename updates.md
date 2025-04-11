@@ -1,3 +1,19 @@
+**USMNT Gold Cup schedule could get spicy, Mexico, Canada possibilities**\
+`The United States men&#8217;s national team&#8217;s Concacaf Gold Cup schedule was filled with potential intrigue after the tournament structure and dates were finalized on Friday.`\
+https://nytimes.com/athletic/6273533/2025/04/11/concacaf-gold-cup-usmnt-canada-mexico/
+
+**Pennsylvania Man Threatened to Kill Trump and Musk, U.S. Says**\
+`Shawn Monper, of Butler, Pa., also threatened immigration agents in comments on YouTube, federal prosecutors said.`\
+https://nytimes.com/2025/04/11/us/politics/trump-elon-musk-ice-threats.html
+
+**Military Judge Throws Out Sept. 11 Case Confession as Obtained Through Torture**\
+`The critical question of whether the prisoner’s 2007 interrogations could be used at his capital trial has shadowed the case for years.`\
+https://nytimes.com/2025/04/11/us/politics/sept-11-confession-torture.html
+
+**Padres' Jake Cronenworth on injured list with rib fracture, recovery timetable unclear**\
+`San Diego also selected the contract of Tyler Wade and transferred right-handed starter Matt Waldron to the 60-day IL.`\
+https://nytimes.com/athletic/6273477/2025/04/11/padres-jake-cronenworth-injury/
+
 **Cooper Flagg doesn't plan on watching Duke's Final Four loss**\
 `"I haven't watched any film from the game yet," Flagg told The Athletic on Friday at the John R. Wooden Award availability.`\
 https://nytimes.com/athletic/6273410/2025/04/11/cooper-flagg-duke-wooden-award/

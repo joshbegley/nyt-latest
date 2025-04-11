@@ -1,5 +1,13 @@
+**Dodgers' Freddie Freeman returns from IL on his bobblehead night**\
+`Freeman played in only three games this season before going on the IL with an ankle sprain on April 3.`\
+https://nytimes.com/athletic/6273563/2025/04/11/freddie-freeman-return-injury-dodgers-bobblehead/
+
+**A New Policy Points Up a Musk Obsession**\
+`As Elon Musk continues to argue that Social Security drives illegal immigration, a new effort at the agency aims to curb it.`\
+https://nytimes.com/2025/04/11/us/politics/social-security-dead-migrants-list-musk-doge.html
+
 **USMNT Gold Cup schedule could get spicy, Mexico, Canada possibilities**\
-`The United States men&#8217;s national team&#8217;s Concacaf Gold Cup schedule was filled with potential intrigue after the tournament structure and dates were finalized on Friday.`\
+`The USMNT's campaign kicks off against Trinidad and Tobago at PayPal Park in San Jose on June 15.`\
 https://nytimes.com/athletic/6273533/2025/04/11/concacaf-gold-cup-usmnt-canada-mexico/
 
 **Pennsylvania Man Threatened to Kill Trump and Musk, U.S. Says**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6236241/2025/04/11/isaac-howard-wins-hobey-baker-aw
 **Rory McIlroy rebounds from rocky Round 1 finish to surge into contention at the Masters**\
 `After finishing Thursday with two double bogeys in final four holes, McIlroy returned to play the round of the day Friday,`\
 https://nytimes.com/athletic/6273424/2025/04/11/rory-mcilroy-the-masters-contention/
-
-**Soulja Boy Is Ordered to Pay $4 Million in Sexual Assault Case**\
-`The rapper, known for songs like “Crank That (Soulja Boy),” was found liable of assaulting a woman who said she was his assistant over two years.`\
-https://nytimes.com/2025/04/11/arts/music/soulja-boy-sexual-assault-trial-verdict.html
-
-**Education Department Is Threatening to Cut All Federal Funding for Maine Schools**\
-`The Trump administration has been targeting Maine since the president sparred with Gov. Janet Mills over transgender athletes at the White House in February.`\
-https://nytimes.com/2025/04/11/us/politics/maine-school-funding-trump-education.html
 
