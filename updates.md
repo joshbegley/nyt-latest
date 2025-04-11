@@ -1,3 +1,7 @@
+**South Carolina Executes Second Inmate by Firing Squad**\
+`Mikal Mahdi’s execution came about a month after the first person in state history was killed in such a manner. Before that, no person had been killed by a firing squad in the United States in 15 years.`\
+https://nytimes.com/2025/04/11/us/south-carolina-execution-firing-squad.html
+
 **F.B.I. Suspends Bureau Employee on Patel’s So-Called Enemies List**\
 `The employee was a longtime counterintelligence analyst who had worked on the F.B.I.’s investigation examining Russian meddling in the 2016 presidential election.`\
 https://nytimes.com/2025/04/11/us/politics/fbi-suspends-employee-patel-enemies.html
