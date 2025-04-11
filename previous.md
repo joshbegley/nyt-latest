@@ -1,3 +1,7 @@
+**How to watch Royals vs. Guardians series: Bobby Witt Jr., José Ramírez, AL Central rivalry**\
+`Both sides are postseason aspirants with potential MVP candidates in their infields.`\
+https://nytimes.com/athletic/6265364/2025/04/11/royals-guardians-mlb-2025-how-to-watch/
+
 **How to watch the Giants-Yankees series: Aaron Judge and Jazz Chisholm Jr. face Logan Webb**\
 `The San Francisco Giants head out of town to face the Yankees in New York. With both teams off to a good start, this could be a fun one. `\
 https://nytimes.com/athletic/6265366/2025/04/11/giants-yankees-judge-webb-mlb-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/11/us/politics/steve-sisolak-nevada-governor-joe-lom
 **Commanders free-agency tracker: QB Josh Johnson signs 1-year deal**\
 `Analyzing all of Washington's moves as the 2025 league year begins. `\
 https://nytimes.com/athletic/6188862/2025/04/11/commanders-free-agency-tracker-signings-trades/
-
-**The Windup: The rule change we can all support**\
-`Welcome to The Windup, The Athletic's MLB newsletter. `\
-https://nytimes.com/athletic/6271882/2025/04/11/mlb-service-time-cba-the-windup/
 

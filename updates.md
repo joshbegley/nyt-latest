@@ -1,3 +1,7 @@
+**How to watch Royals vs. Guardians series: Bobby Witt Jr., José Ramírez, AL Central rivalry**\
+`Both sides are postseason aspirants with potential MVP candidates in their infields.`\
+https://nytimes.com/athletic/6265364/2025/04/11/royals-guardians-mlb-2025-how-to-watch/
+
 **How to watch the Giants-Yankees series: Aaron Judge and Jazz Chisholm Jr. face Logan Webb**\
 `The San Francisco Giants head out of town to face the Yankees in New York. With both teams off to a good start, this could be a fun one. `\
 https://nytimes.com/athletic/6265366/2025/04/11/giants-yankees-judge-webb-mlb-how-to-watch/
