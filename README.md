@@ -1,3 +1,7 @@
+**Concacaf Gold Cup draw results: Groups set for summer competition**\
+`The 16-team field has its marching orders for this summer, when Concacaf will crown its newest champion.`\
+https://nytimes.com/athletic/6270285/2025/04/10/2025-concacaf-gold-cup-draw-usmnt-group-opponents/
+
 **Helicopter Crash in Hudson River Kills 6**\
 `A helicopter crashed into the Hudson River near Jersey City, N.J., killing all six people on board, including the pilot.`\
 https://nytimes.com/video/nyregion/100000010104551/helicopter-crash-hudson-river.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/10/nyregion/helicopter-tours-noise-air-pollution.htm
 **Can Lane Hutson's rookie season give us a clue as to how Ivan Demidov will be coached?**\
 `Canadiens coach Martin St. Louis won't talk about Demidov now, but he will talk about Hutson and there might be clues in those comments.`\
 https://nytimes.com/athletic/6271185/2025/04/10/canadiens-ivan-demidov-lane-hutson/
-
-**Supreme Court Sides With Wrongly Deported Migrant**\
-`A trial judge had ordered the Trump administration to take steps to return the migrant, Kilmar Armando Abrego Garcia, from a notorious prison in El Salvador.`\
-https://nytimes.com/2025/04/10/us/politics/supreme-court-trump-deported-migrant.html
 
