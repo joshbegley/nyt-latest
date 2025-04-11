@@ -1,3 +1,7 @@
+**Word of the Day: coniferous**\
+`This word has appeared in seven articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/04/11/learning/word-of-the-day-coniferous.html
+
 **Five takeaways from record-setting Winnipeg Jets win that ... could win them the division?**\
 `It took a lot more than a few players to give them a decisive 4-0 win over Dallas that brings them to the precipice of Winnipeg history.`\
 https://nytimes.com/athletic/6270238/2025/04/11/winnipeg-jets-win-stars-record-setting/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6270946/2025/04/11/boston-university-penn-state-fro
 **Eric Dane, McSteamy of ‘Grey’s Anatomy,’ Says He Has A.L.S.**\
 `The actor, who plans to return to his role on the hit show “Euphoria,” told People magazine about his diagnosis.`\
 https://nytimes.com/2025/04/11/us/eric-dane-diagnosis-als.html
-
-**'Special', 'unplayable', injured: Brighton's summer signings assessed**\
-`Brighton spent big last summer as they chase European football. Their signings have had varying fortunes at home and on loan`\
-https://nytimes.com/athletic/6253072/2025/04/11/brighton-rutter-minteh-wieffer-kadioglu/
 
