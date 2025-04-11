@@ -1,3 +1,11 @@
+**Elected Official Is Among Dozens Charged in a Mob-Linked Gambling Case**\
+`A member of a New Jersey town council and several reputed Lucchese crime family members played roles in an illegal betting ring that netted more than $3 million, prosecutors said.`\
+https://nytimes.com/2025/04/11/nyregion/gambling-mob-nj-police.html
+
+**Immigration Judge Rules Khalil Can Be Deported, but Legal Hurdles Remain**\
+`The decision by a judge in Louisiana is an early victory for Secretary of State Marco Rubio, but a broader challenge is still being heard in federal court in Newark.`\
+https://nytimes.com/2025/04/11/nyregion/khalil-jena-deportation-ruling.html
+
 **Kennedy Accuses F.D.A. of Drug Industry Influence That Barred Alternative Remedies**\
 `The nation’s health secretary addressed agency employees, asking them to shed any corporate influence. But he did not address the mass layoffs that have gutted oversight of tobacco and vapes, food safety and drug reviews.`\
 https://nytimes.com/2025/04/11/health/rfk-jr-fda-drug-industry-alternative-medicine.html
