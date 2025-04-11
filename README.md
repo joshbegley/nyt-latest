@@ -1,3 +1,11 @@
+**How to watch the Cubs at Dodgers series: Can Chicago stay hot against a tough LA team?**\
+`The Cubs and Dodgers meet again, this time in LA. After losing both games in Tokyo to the Dodgers, the Cubs will want this one. `\
+https://nytimes.com/athletic/6265319/2025/04/11/cubs-dodgers-ohtani-betts-freeman-sasaki-glasnow-how-to-watch/
+
+**Venkatesham is the ex-Arsenal executive who helped them rebuild - and will want repeat at Spurs**\
+`Vinai Venkatesham spent 14 years with Arsenal and has been a surprise appointment at Tottenham Hotspur`\
+https://nytimes.com/athletic/6272704/2025/04/11/vinai-venkatesham-tottenham-hotspur-arsenal/
+
 **The Bounce: Why the Suns have a case to trade Devin Booker. Plus, the NBA playoffs are near!**\
 `The Suns' season was a disaster. Could trading Devin Booker be their only path forward?`\
 https://nytimes.com/athletic/6272833/2025/04/11/devin-booker-suns-nba-playoffs-the-bounce/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/11/dining/jjajangmyeon-korean-noodle-dish.html
 **What We Believed About America**\
 `Readers respond to a column by Bret Stephens.`\
 https://nytimes.com/2025/04/11/opinion/america-ideals.html
-
-**Scoop City: A draft loaded at defensive line**\
-`Meet five defensive prospects you should know, hear the latest trade rumors about the No. 1 pick, and learn why NFL QBs struggle`\
-https://nytimes.com/athletic/6272709/2025/04/11/nfl-draft-2025-defensive-line-pass-rush-scoop-city/
-
-**Pig Kidney Removed From Alabama Woman After Organ Rejection**\
-`Towana Looney lived with the kidney longer than any other transplant patient had tolerated an organ from a genetically modified animal.`\
-https://nytimes.com/2025/04/11/health/pig-kidney-transplant-looney.html
 
