@@ -1,3 +1,15 @@
+**Dodgers' Freddie Freeman returns from IL on his bobblehead night**\
+`Freeman played in only three games this season before going on the IL with an ankle sprain on April 3.`\
+https://nytimes.com/athletic/6273563/2025/04/11/freddie-freeman-return-injury-dodgers-bobblehead/
+
+**A New Policy Points Up a Musk Obsession**\
+`As Elon Musk continues to argue that Social Security drives illegal immigration, a new effort at the agency aims to curb it.`\
+https://nytimes.com/2025/04/11/us/politics/social-security-dead-migrants-list-musk-doge.html
+
+**USMNT Gold Cup schedule could get spicy, Mexico, Canada possibilities**\
+`The USMNT's campaign kicks off against Trinidad and Tobago at PayPal Park in San Jose on June 15.`\
+https://nytimes.com/athletic/6273533/2025/04/11/concacaf-gold-cup-usmnt-canada-mexico/
+
 **USMNT Gold Cup schedule could get spicy, Mexico, Canada possibilities**\
 `The United States men&#8217;s national team&#8217;s Concacaf Gold Cup schedule was filled with potential intrigue after the tournament structure and dates were finalized on Friday.`\
 https://nytimes.com/athletic/6273533/2025/04/11/concacaf-gold-cup-usmnt-canada-mexico/
