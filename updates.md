@@ -1,3 +1,15 @@
+**Western Michigan defeats Denver in double OT, advances to first national championship game**\
+`Owen Michaels scored the game winner and Western Michigan beat defending champion Denver 3-2 to advance to its first Frozen Four title game.`\
+https://nytimes.com/athletic/6270877/2025/04/10/western-michigan-denver-frozen-four-semifinal-championship/
+
+**Corrections: April 11, 2025**\
+`Corrections that appeared in print on Friday, April 11, 2025.`\
+https://nytimes.com/2025/04/10/pageoneplus/corrections-april-11-2025.html
+
+**Red Sox takeaways: Walk-off win over Blue Jays avoids 4-game sweep**\
+`Trevor Story's infield single with the bases loaded pushed across the winning run to make it 4-3 in the 10th inning.`\
+https://nytimes.com/athletic/6271226/2025/04/10/red-sox-win-blue-jays-walk-off/
+
 **Helicopter Crashes Into Hudson River, Killing Six**\
 `An executive from Spain, his wife and three children died in the crash, along with the helicopter’s pilot, officials said.`\
 https://nytimes.com/2025/04/10/nyregion/helicopter-hudson-crash-victims.html

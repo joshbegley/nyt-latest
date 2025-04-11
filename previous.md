@@ -1,3 +1,15 @@
+**Western Michigan defeats Denver in double OT, advances to first national championship game**\
+`Owen Michaels scored the game winner and Western Michigan beat defending champion Denver 3-2 to advance to its first Frozen Four title game.`\
+https://nytimes.com/athletic/6270877/2025/04/10/western-michigan-denver-frozen-four-semifinal-championship/
+
+**Corrections: April 11, 2025**\
+`Corrections that appeared in print on Friday, April 11, 2025.`\
+https://nytimes.com/2025/04/10/pageoneplus/corrections-april-11-2025.html
+
+**Red Sox takeaways: Walk-off win over Blue Jays avoids 4-game sweep**\
+`Trevor Story's infield single with the bases loaded pushed across the winning run to make it 4-3 in the 10th inning.`\
+https://nytimes.com/athletic/6271226/2025/04/10/red-sox-win-blue-jays-walk-off/
+
 **Helicopter Crashes Into Hudson River, Killing Six**\
 `An executive from Spain, his wife and three children died in the crash, along with the helicopter’s pilot, officials said.`\
 https://nytimes.com/2025/04/10/nyregion/helicopter-hudson-crash-victims.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/10/nyregion/nyc-helicopter-crash-company-mechanical.
 **Attorneys General Sue Over Access to $1 Billion in Federal School Aid**\
 `The Trump administration abruptly cut states’ access to Covid pandemic funding for school programs, saying they’d had enough time to spend it.`\
 https://nytimes.com/2025/04/10/nyregion/letitita-james-lawsuit-trump-pandemic-funding.html
-
-**Jon Rahm's angry Masters Thursday magnifies the truth about the former champion**\
-`For the fourth consecutive major, Rahm did not look like the world-beating, balanced force of nature.`\
-https://nytimes.com/athletic/6271282/2025/04/10/jon-rahm-masters-round-1/
-
-**Isaiah Bond turns himself in to Frisco PD for outstanding warrant: Report**\
-`A top-100 prospect in the 2025 NFL Draft, Bond spent his 2024 season as a starting wide receiver for the University of Texas `\
-https://nytimes.com/athletic/6271152/2025/04/10/isaiah-bond-warrant-frisco-nfl-draft/
-
-**Concacaf Gold Cup draw results: Groups set for summer competition**\
-`The 16-team field has its marching orders for this summer, when Concacaf will crown its newest champion.`\
-https://nytimes.com/athletic/6270285/2025/04/10/2025-concacaf-gold-cup-draw-usmnt-group-opponents/
 
