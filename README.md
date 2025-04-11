@@ -1,3 +1,7 @@
+**American Returns Home After Imprisonment in Russia**\
+`Ksenia Karelina, a dual citizen of the U.S. and Russia, smiled as she stepped off a plane to meet loved ones in an emotional reunion on Thursday night.`\
+https://nytimes.com/video/us/100000010104898/russia-us-ksenia-karelina-swap.html
+
 **Senate Confirms New Chairman of Joint Chiefs of Staff**\
 `Lt. Gen. Dan Caine will serve as the senior military adviser to President Trump and Defense Secretary Pete Hegseth.`\
 https://nytimes.com/2025/04/11/us/politics/senate-dan-caine-joint-chiefs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/11/briefing/trade-war-iran-hamas.html
 **The New York Times in Print for Friday, April 11, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/04/11/todays-new-york-times
-
-**This Exiled Leader Ruled Ecuador for 10 Years. The Nation Still Can’t Move On.**\
-`Rafael Correa’s presence is sustained not only by his supporters but also by his adversaries, who have failed to construct a compelling alternative.`\
-https://nytimes.com/2025/04/11/opinion/rafael-correa-daniel-noboa-ecuador.html
 

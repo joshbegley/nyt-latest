@@ -1,3 +1,7 @@
+**Senate Confirms New Chairman of Joint Chiefs of Staff**\
+`Lt. Gen. Dan Caine will serve as the senior military adviser to President Trump and Defense Secretary Pete Hegseth.`\
+https://nytimes.com/2025/04/11/us/politics/senate-dan-caine-joint-chiefs.html
+
 **Andre Onana failed to prove Nemanja Matic wrong. Now Man Utd can't risk any more mistakes**\
 `Andre Onana conceded two goals that came from his own errors against Lyon on Thursday evening`\
 https://nytimes.com/athletic/5777196/2025/04/11/andre-onana-manchester-united-lyon-analysis/
