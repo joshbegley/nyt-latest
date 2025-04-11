@@ -1,3 +1,11 @@
+**Prince Harry Meets War Victims in Surprise Visit to Ukraine**\
+`The prince toured a rehabilitation facility in Lviv for soldiers and civilians wounded in the war. The trip came as his father, King Charles, was in Italy.`\
+https://nytimes.com/2025/04/11/world/europe/prince-harry-ukraine-visit.html
+
+**Trump Puts Wall Street Leaders in Tight Spot**\
+`Jamie Dimon of JPMorgan flagged “potential negatives” to tariffs as his and other big banks revealed their latest earnings.`\
+https://nytimes.com/2025/04/11/business/banks-tariffs-dimon-trump-trade.html
+
 **Stay or Go? Israel’s Evacuation Orders Leave Gazans Facing an Excruciating Choice.**\
 `A new declaration targeted eastern Gaza City, including several areas that had been declared evacuation zones. The United Nations said 390,000 people had been displaced in recent weeks.`\
 https://nytimes.com/2025/04/11/world/middleeast/israel-gaza-evacuations.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6266788/2025/04/11/nba-all-defense-perimeter-thunde
 **UFL quarterback Luis Perez, 'The Spring King', won't give up on his NFL dreams**\
 `Perez is back with the Arlington Renegades of the UFL, again looking for that final big break into the NFL.`\
 https://nytimes.com/athletic/6267585/2025/04/11/ufl-qb-nfl-luis-perez/
-
-**New Mets hitting coordinator Daniel Nicolaisen has championship pedigree — in softball**\
-`Nicolaisen has had a unique journey from Denmark to a job with the Mets, thanks to his ability to grasp and explain hitting concepts.`\
-https://nytimes.com/athletic/6271005/2025/04/11/mets-daniel-nicolaisen-hitting-coordinator-softball/
-
-**Raiders mailbag: Does Geno Smith's contract put them back in the mix to draft a QB?**\
-`Could the Raiders still pursue a QB in the draft? Who has final say in the draft room? And is it Ashton Jeanty or another position at No. 6?`\
-https://nytimes.com/athletic/6268381/2025/04/11/geno-smith-nfl-draft-raiders-mailbag/
 
