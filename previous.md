@@ -1,3 +1,11 @@
+**Would You Want a Robot to Do Your Daily Chores?**\
+`A company hopes to put an A.I.-powered humanoid into homes soon. Tell us if you’re ready to share your house with a robo-butler.`\
+https://nytimes.com/2025/04/11/learning/would-you-want-a-robot-to-do-your-daily-chores.html
+
+**Up and Down**\
+`What do you think this image is communicating?`\
+https://nytimes.com/2025/04/11/learning/up-and-down.html
+
 **Late Night Taps Into Trump’s Preoccupation With Water Pressure**\
 `Jimmy Fallon said the good news is that “more powerful shower heads are on the way. Bad news: They’re all made in China.”`\
 https://nytimes.com/2025/04/11/arts/television/late-night-trump-shower-heads.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5777196/2025/04/11/andre-onana-manchester-united-ly
 **Word of the Day: coniferous**\
 `This word has appeared in seven articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/04/11/learning/word-of-the-day-coniferous.html
-
-**Five takeaways from record-setting Winnipeg Jets win that ... could win them the division?**\
-`It took a lot more than a few players to give them a decisive 4-0 win over Dallas that brings them to the precipice of Winnipeg history.`\
-https://nytimes.com/athletic/6270238/2025/04/11/winnipeg-jets-win-stars-record-setting/
-
-**Don't write off the Braves yet. The Spencers (Schwellenbach and Strider), offer hope**\
-`Schwellenbach started the marathon rain-delayed win over the Phillies and Strider looked superb in a rehab start for Triple-A Gwinnett.`\
-https://nytimes.com/athletic/6271766/2025/04/11/braves-spencer-strider-and-schwellenbach-pitched/
 

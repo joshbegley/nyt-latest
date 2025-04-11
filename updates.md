@@ -1,3 +1,11 @@
+**Would You Want a Robot to Do Your Daily Chores?**\
+`A company hopes to put an A.I.-powered humanoid into homes soon. Tell us if you’re ready to share your house with a robo-butler.`\
+https://nytimes.com/2025/04/11/learning/would-you-want-a-robot-to-do-your-daily-chores.html
+
+**Up and Down**\
+`What do you think this image is communicating?`\
+https://nytimes.com/2025/04/11/learning/up-and-down.html
+
 **Late Night Taps Into Trump’s Preoccupation With Water Pressure**\
 `Jimmy Fallon said the good news is that “more powerful shower heads are on the way. Bad news: They’re all made in China.”`\
 https://nytimes.com/2025/04/11/arts/television/late-night-trump-shower-heads.html
