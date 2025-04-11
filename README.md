@@ -1,3 +1,11 @@
+**New Talks With Iran**\
+`The U.S. will have nuclear negotiations this weekend.`\
+https://nytimes.com/2025/04/11/briefing/new-talks-with-iran.html
+
+**Will Vlad Jr. join his dad in the Hall of Fame? How his early career numbers stack up**\
+`You’d be amazed by all the Hall of Famers who weren’t even close to Vladdy through age 25.`\
+https://nytimes.com/athletic/6271587/2025/04/11/vladimir-guerrero-jr-hall-of-fame/
+
 **Moyes: Everton hold 'all the cards' on Branthwaite's future**\
 `Manchester United previously bid for Branthwaite, who is effectively under contract at Everton until 2028.`\
 https://nytimes.com/athletic/6272078/2025/04/11/jarrad-branthwaite-transfer-everton-moyes/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6270645/2025/04/11/cubs-four-numbers-start/
 **'It's a lot. It's too much': What do MLB players do with all their stuff?**\
 `For journeyman players, it can be tough to reuse or recycle anything at the next stop. So where does it all go?`\
 https://nytimes.com/athletic/6270334/2025/04/11/what-do-mlb-players-do-with-their-stuff/
-
-**Liam Coen found success being himself. Will it also work with the Jaguars?**\
-`Jacksonville is hoping the 39-year-old Coen, a first-time head coach at any level, can get QB Trevor Lawrence and others back on track.`\
-https://nytimes.com/athletic/6265076/2025/04/11/jacksonville-jaguars-nfl-head-coach-liam-coen/
-
-**49ers Draft Crush: After losing Dre Greenlaw, the D needs a dose of feistiness**\
-`The 49ers can replace the feistiness they lost when Dre Greenlaw signed with Denver by taking a linebacker on Day 2 of the draft.`\
-https://nytimes.com/athletic/6271191/2025/04/11/49ers-draft-crush-chris-paul-dre-greenlaw/
 
