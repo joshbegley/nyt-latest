@@ -1,3 +1,7 @@
+**Little Luxuries**\
+`Finding joy in the small pleasures of life.`\
+https://nytimes.com/spotlight/little-luxuries
+
 **Freddie Freeman, Shohei Ohtani are the bobblehead kings of MLB this season**\
 `No MLB team comes close to releasing as many bobbleheads as the Dodgers.`\
 https://nytimes.com/athletic/6273082/2025/04/11/freddie-freeman-bobblehead-dodgers/
@@ -31,10 +35,6 @@ https://nytimes.com/2025/04/11/books/review/podcast-gatsby100.html
 https://nytimes.com/athletic/6272802/2025/04/11/messi-contract-inter-miami-mls-significance/
 
 **White House Plan Calls for NOAA Research Programs to Be Dismantled**\
-`A Trump administration budget proposal would essentially eliminate the one of the world’s foremost Earth sciences research operations.`\
+`A Trump administration budget proposal would essentially eliminate one of the world’s foremost Earth sciences research operations.`\
 https://nytimes.com/2025/04/11/climate/noaa-research-budget-cuts.html
-
-**‘Yellowjackets’ Season 3 Finale Recap: The Wilderness Is Hungry**\
-`The episode finally revealed the full story behind the show’s very first scene. It also revealed even darker truths about Shauna.`\
-https://nytimes.com/2025/04/11/arts/television/yellowjackets-recap-season-3-finale.html
 

@@ -1,3 +1,11 @@
+**Little Luxuries**\
+`Finding joy in the small pleasures of life.`\
+https://nytimes.com/spotlight/little-luxuries
+
+**White House Plan Calls for NOAA Research Programs to Be Dismantled**\
+`A Trump administration budget proposal would essentially eliminate one of the world’s foremost Earth sciences research operations.`\
+https://nytimes.com/2025/04/11/climate/noaa-research-budget-cuts.html
+
 **Freddie Freeman, Shohei Ohtani are the bobblehead kings of MLB this season**\
 `No MLB team comes close to releasing as many bobbleheads as the Dodgers.`\
 https://nytimes.com/athletic/6273082/2025/04/11/freddie-freeman-bobblehead-dodgers/
