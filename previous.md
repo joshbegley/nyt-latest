@@ -1,3 +1,11 @@
+**Inside the Salah contract saga: Lawyer's concerns, Saudi interest - and a deal that pleases everyone**\
+`Agreeing a new deal wit the Egyptian took almost a year and was not straightforward - this is how negotiations played out`\
+https://nytimes.com/athletic/6269638/2025/04/11/mohamed-salah-liverpool-contract-inside-story/
+
+**Growing Cannabis on the Old Family Farm**\
+`When Lucas Kerr decided to revive the farm that had been in his family for seven generations, he chose to plant weed, grown in New York and sold to New Yorkers.`\
+https://nytimes.com/2025/04/11/realestate/cannabis-farm-antiques-upstate.html
+
 **Sainz escapes FIA sanction for swearing in news conference**\
 `Sainz had sworn while explaining his lateness for the national anthem at last Sunday’s race in Japan.`\
 https://nytimes.com/athletic/6272223/2025/04/11/carlos-sainz-swearing-fia/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6269772/2025/04/11/cleveland-cavaliers-donovan-mitc
 **Ian Laperriere discusses progress of Flyers prospects, the coaching vacancy and more**\
 `Laperriere's Lehigh Valley Phantoms are in the AHL playoffs, with some help from reinforcements.`\
 https://nytimes.com/athletic/6270589/2025/04/11/laperriere-flyers-coach-prospects/
-
-**What Marine Le Pen’s Conviction Means for France**\
-`Marine Le Pen, the French far-right leader, is barred from running in France’s 2027 presidential election after an embezzlement conviction involving her political party.`\
-https://nytimes.com/video/world/europe/100000010085458/what-marine-le-pens-conviction-means-for-france.html
-
-**Sabres prospects update: A Kulich decision, Helenius' approach, more**\
-`Playing in the AHL playoffs is a chance for Kulich to embrace a challenge with a group of players he’s grown up with.`\
-https://nytimes.com/athletic/6270584/2025/04/11/sabres-prospects-kulich-helenius-amerks/
 

@@ -1,5 +1,5 @@
 **Inside the Salah contract saga: Lawyer's concerns, Saudi interest - and a deal that pleases everyone**\
-`Agreeing a new deal wit the Egyptian took almost a year and was not straightforward - this is how negotiations played out`\
+`Agreeing a new deal with the Egyptian took almost a year and was not straightforward - this is how negotiations played out`\
 https://nytimes.com/athletic/6269638/2025/04/11/mohamed-salah-liverpool-contract-inside-story/
 
 **Growing Cannabis on the Old Family Farm**\

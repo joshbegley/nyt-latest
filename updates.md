@@ -1,3 +1,11 @@
+**Inside the Salah contract saga: Lawyer's concerns, Saudi interest - and a deal that pleases everyone**\
+`Agreeing a new deal wit the Egyptian took almost a year and was not straightforward - this is how negotiations played out`\
+https://nytimes.com/athletic/6269638/2025/04/11/mohamed-salah-liverpool-contract-inside-story/
+
+**Growing Cannabis on the Old Family Farm**\
+`When Lucas Kerr decided to revive the farm that had been in his family for seven generations, he chose to plant weed, grown in New York and sold to New Yorkers.`\
+https://nytimes.com/2025/04/11/realestate/cannabis-farm-antiques-upstate.html
+
 **Sainz escapes FIA sanction for swearing in news conference**\
 `Sainz had sworn while explaining his lateness for the national anthem at last Sunday’s race in Japan.`\
 https://nytimes.com/athletic/6272223/2025/04/11/carlos-sainz-swearing-fia/
