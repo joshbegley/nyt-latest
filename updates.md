@@ -1,3 +1,7 @@
+**Lowetide: What did the Oilers' minor-league system accomplish in 2024-25?**\
+`The Oilers' development staff can point to successes even if those players didn't see much time in the NHL.`\
+https://nytimes.com/athletic/6269669/2025/04/11/oilers-ahl-2024-25-stats/
+
 **Your Car Insurance Is Likely to Go Up. Again.**\
 `New tariffs are expected to push up prices of vehicles and car parts, and that could raise premiums as much as 16 percent. Here are some tips on how to try to keep costs down.`\
 https://nytimes.com/2025/04/11/your-money/car-insurance-tariffs.html
