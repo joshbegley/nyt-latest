@@ -1,3 +1,7 @@
+**See the Moments Leading Up to the Nightclub Roof Collapse in Santo Domingo**\
+`Video taken at the scene shows debris was already falling from the ceiling of the Jet Set nightclub before it caved in.`\
+https://nytimes.com/interactive/2025/04/11/world/americas/nightclub-dominican-republic-collapse.html
+
 **Suzanne Rand, Half of a Once-Popular Comedy Team, Dies at 75**\
 `Like Nichols and May before them, Monteith and Rand had their own Broadway show. Unlike Nichols and May, they faded from view after they broke up.`\
 https://nytimes.com/2025/04/11/theater/suzanne-rand-dead.html
