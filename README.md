@@ -1,3 +1,7 @@
+**What I'm hearing, seeing about the Blackhawks: Sam Rinzel's sudden impact**\
+`Early play of rookie defenseman has to have Chicago brass feeling ecstatic.`\
+https://nytimes.com/athletic/6273086/2025/04/11/around-the-blackhawks-sam-rinzel/
+
 **A Tragic End After a Helicopter Pilot’s Fresh Start**\
 `Seankese Johnson, 36, was killed along with five passengers when the sightseeing helicopter he was flying suddenly crashed into the Hudson River near Jersey City.`\
 https://nytimes.com/2025/04/11/nyregion/seankese-johnson-nyc-helicopter-crash.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/11/world/europe/batman-robin-police-undercover-scams
 **How Snow Becomes Deadly**\
 `This season, more than 20 people died in avalanches in the U.S. Can mountains be safer?`\
 https://nytimes.com/interactive/2025/04/11/weather/avalanche-science.html
-
-**Justice Dept. Lobbies for Release of Ex-F.B.I. Informant Accused of Lying About Bidens**\
-`It was the latest in a series of moves to scrap or soften punishments against President Trump’s supporters, including members of the violent mob that attacked the Capitol.`\
-https://nytimes.com/2025/04/11/us/politics/trump-smirnov-fbi-biden-ukraine-bribe.html
 
