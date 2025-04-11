@@ -1,3 +1,7 @@
+**Arteta cautious over Havertz injury return before end of season**\
+`The Arsenal forward suffered a hamstring injury which required surgery on Arsenal’s mid-season trip to Dubai in February.`\
+https://nytimes.com/athletic/6272383/2025/04/11/kai-havertz-injury-return-mikel-arteta/
+
 **Joe Flacco returns to Browns on 1-year, $4 million deal**\
 `Flacco, who energized Cleveland with a four-game win streak amid a playoff push in 2023, started six games for the Colts last season. `\
 https://nytimes.com/athletic/6272357/2025/04/11/cleveland-browns-sign-joe-flacco/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6272223/2025/04/11/carlos-sainz-swearing-fia/
 **What happened on Thursday.**\
 `By The New York Times`\
 https://nytimes.com/live/2025/04/10/us/trump-news/what-happened-on-thursday
-
-**Osasuna lose appeal over eligibility of Barcelona's Martinez**\
-`Osasuna had alleged that Martinez was ineligible to play in the fixture after he withdrew from the Spain squad through injury.`\
-https://nytimes.com/athletic/6272173/2025/04/11/inigo-martinez-barcelona-osasuna-appeal/
 

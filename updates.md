@@ -1,3 +1,7 @@
+**Joe Flacco returns to Browns on 1-year, $4 million deal**\
+`Flacco, who energized Cleveland with a four-game win streak amid a playoff push in 2023, started six games for the Colts last season. `\
+https://nytimes.com/athletic/6272357/2025/04/11/cleveland-browns-sign-joe-flacco/
+
 **Lowetide: What did the Oilers' minor-league system accomplish in 2024-25?**\
 `The Oilers' development staff can point to successes even if those players didn't see much time in the NHL.`\
 https://nytimes.com/athletic/6269669/2025/04/11/oilers-ahl-2024-25-stats/
