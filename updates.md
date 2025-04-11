@@ -1,3 +1,11 @@
+**Investigation Into Helicopter Crash Just Getting Underway**\
+`Investigators for the National Transportation Safety Board said it would most likely be some time before a cause of the crash that killed six people could be determined.`\
+https://nytimes.com/2025/04/11/nyregion/helicopter-crash-investigation.html
+
+**Stocks Post Gain for the Week, but Investors Remain Anxious**\
+`While the S&P 500 rose, other corners of the financial markets showed that investors expect big swings to continue.`\
+https://nytimes.com/2025/04/11/business/stock-market-tariffs-trump.html
+
 **What I'm hearing, seeing about the Blackhawks: Sam Rinzel's sudden impact**\
 `Early play of rookie defenseman has to have Chicago brass feeling ecstatic.`\
 https://nytimes.com/athletic/6273086/2025/04/11/around-the-blackhawks-sam-rinzel/
