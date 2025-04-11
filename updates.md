@@ -1,3 +1,11 @@
+**The 12 Best Things We Saw at Salone Del Mobile**\
+`The Milan design fair returned this week with Technicolor shag rugs, teapots and an imaginary 1970s house.`\
+https://nytimes.com/2025/04/11/t-magazine/milan-design-fair-salone-highlights.html
+
+**Mangione Says U.S. Bid to Execute Him Is an Instagram Stunt**\
+`Lawyers for the man accused of killing a health insurance executive in Manhattan said the attorney general was trying to create content for Instagram by announcing she would pursue the death penalty.`\
+https://nytimes.com/2025/04/11/nyregion/luigi-mangione-death-penalty.html
+
 **Rick Levine, Who Gave Commercials Cinematic Flair, Dies at 94**\
 `An award-winning director, he created ads for brands like Diet Pepsi (starring Michael J. Fox) and Wells Fargo by bringing a Hollywood sensibility to the small screen.`\
 https://nytimes.com/2025/04/11/business/media/rick-levine-dead.html
