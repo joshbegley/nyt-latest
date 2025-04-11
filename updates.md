@@ -1,3 +1,7 @@
+**Man Utd's style defended by Skinner after Emma Hayes comments**\
+`The 28-year-old made her USWNT debut earlier this month.`\
+https://nytimes.com/athletic/6272031/2025/04/11/manchester-united-women-skinner-uswnt-emma-hayes/
+
 **Newcastle hopeful on Isak fitness for Man Utd match, Gordon a doubt**\
 `Isak has been managing a groin issue which he picked up against Brentford, while Gordon suffered a bruised hip on international duty.`\
 https://nytimes.com/athletic/6272017/2025/04/11/alexander-isak-anthony-gordon-newcastle-injury-update/

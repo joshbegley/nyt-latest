@@ -1,3 +1,7 @@
+**Man Utd's style defended by Skinner after Emma Hayes comments**\
+`The 28-year-old made her USWNT debut earlier this month.`\
+https://nytimes.com/athletic/6272031/2025/04/11/manchester-united-women-skinner-uswnt-emma-hayes/
+
 **Newcastle hopeful on Isak fitness for Man Utd match, Gordon a doubt**\
 `Isak has been managing a groin issue which he picked up against Brentford, while Gordon suffered a bruised hip on international duty.`\
 https://nytimes.com/athletic/6272017/2025/04/11/alexander-isak-anthony-gordon-newcastle-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todaysinyt/2025/04/11/todays-new-york-times-internatio
 **Draft trade scenarios: If Giants move down from No. 3, what kind of haul could they get?**\
 `If the Giants pass on a QB at No. 3, a trade back into Round 1 to secure a QB feels like a distinct possibility. But what would it cost?`\
 https://nytimes.com/athletic/6270111/2025/04/11/giants-nfl-draft-trades-abdul-carter-shedeur-sanders/
-
-**Tesla Halts Orders in China on U.S. Imported Models**\
-`The removal of an “order” button from Tesla’s Chinese website came after Beijing raised tariffs on American imports in response to President Trump’s levies against the country.`\
-https://nytimes.com/2025/04/11/business/china-tesla-imports.html
 
