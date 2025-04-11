@@ -1,40 +1,40 @@
-**New Talks With Iran**\
-`The U.S. will have nuclear negotiations this weekend.`\
-https://nytimes.com/2025/04/11/briefing/new-talks-with-iran.html
+**Rockets playoff opponents? Analyzing potential Clippers, Grizzlies or Wolves first-round series**\
+`Kelly Iko leads a reporter roundtable to discuss who the Rockets could face in the first round and how they might fare. `\
+https://nytimes.com/athletic/6269065/2025/04/11/rockets-2025-nba-playoffs-wolves-clippers-grizzlies/
 
-**Will Vlad Jr. join his dad in the Hall of Fame? How his early career numbers stack up**\
-`You’d be amazed by all the Hall of Famers who weren’t even close to Vladdy through age 25.`\
-https://nytimes.com/athletic/6271587/2025/04/11/vladimir-guerrero-jr-hall-of-fame/
+**Which NHL players stood out as MVP of their team in 2024-25?**\
+`Every team from the top to the bottom of the standings had individual performances worth highlighting.`\
+https://nytimes.com/athletic/6270714/2025/04/11/nhl-mvp-picks-every-team-2025/
 
-**Moyes: Everton hold 'all the cards' on Branthwaite's future**\
-`Manchester United previously bid for Branthwaite, who is effectively under contract at Everton until 2028.`\
-https://nytimes.com/athletic/6272078/2025/04/11/jarrad-branthwaite-transfer-everton-moyes/
+**How do you fix an NHL arena where the fans don't cheer? 'Play in the sandbox'**\
+`A tepid game atmosphere has become typical in Toronto and other big hockey cities. What can these teams learn from non-traditional markets?`\
+https://nytimes.com/athletic/6265474/2025/04/11/nhl-arena-fan-crowd-attendance-noise/
 
-**Weird & Wild: Jose Altuve strikes again, The 22-Walk Game, and one after another for Reds**\
-`If Terry Francona had known the Reds were planning to play a 1-0 game every freaking day, would he have come out of retirement? `\
-https://nytimes.com/athletic/6271775/2025/04/11/22-walk-game-jose-altuve-reds-weird-baseball-stats/
+**The Athletic’s Friday football quiz question #50**\
+`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
+https://nytimes.com/athletic/6271985/2025/04/11/the-athletics-friday-football-quiz-question-50/
 
-**Weird & Wild: Mariners double down on Luis Castillo(s) in back-to-back starts**\
-`In addition to the starting duo, the M's also have another Julio Rodríguez in the organization "We are duplicating names left and right.”`\
-https://nytimes.com/athletic/6271650/2025/04/11/luis-castillo-mariners-pitchers-same-name/
+**Sliders: Jonathan India's mission to end the Royals' lowly leadoff woes**\
+`Plus Hunter Greene's near shutout (or walkoff), Kumar Rocker's comeback, plus more 'Sliders.'`\
+https://nytimes.com/athletic/6270905/2025/04/11/jonathan-india-royals-hunter-greene-reds-kumar-rocker-sliders/
 
-**Ingebrigtsen and Kerr to race 1,500m at London Diamond League**\
-`Ingebrigtsen has not raced in the UK since 2021, in Gateshead, and described the London meet as “a perfect fit" for his schedule.`\
-https://nytimes.com/athletic/6272067/2025/04/11/jakob-ingebrigtsen-josh-kerr-london-diamond-league/
+**Thunder, Wolves standouts highlight our NBA All-Perimeter-Defense Second Team**\
+`As the sport has flocked to the 3-point arc, should awards do the same?`\
+https://nytimes.com/athletic/6266788/2025/04/11/nba-all-defense-perimeter-thunder-timberwolves/
 
-**The Pulse: A … funny first round of the Masters?**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6269787/2025/04/11/odd-things-are-happening-at-the-masters-and-ja-morant-is-doing-his-thing/
+**UFL quarterback Luis Perez, 'The Spring King', won't give up on his NFL dreams**\
+`Perez is back with the Arlington Renegades of the UFL, again looking for that final big break into the NFL.`\
+https://nytimes.com/athletic/6267585/2025/04/11/ufl-qb-nfl-luis-perez/
 
-**Chiefs and the ‘The Beast’: Left tackles, pass rushers and a Kelce understudy?**\
-`Ahead of the draft, we scoured “The Beast” to see which prospects are ideal fits for the Chiefs, including at running back and cornerback.`\
-https://nytimes.com/athletic/6271091/2025/04/11/chiefs-2025-nfl-draft-the-beast/
+**New Mets hitting coordinator Daniel Nicolaisen has championship pedigree — in softball**\
+`Nicolaisen has had a unique journey from Denmark to a job with the Mets, thanks to his ability to grasp and explain hitting concepts.`\
+https://nytimes.com/athletic/6271005/2025/04/11/mets-daniel-nicolaisen-hitting-coordinator-softball/
 
-**Four numbers that help explain how the Cubs are 9-6**\
-`Some numbers take a while to stabilize, and others can be more than just noise, indicators of what a team can be in a long season.`\
-https://nytimes.com/athletic/6270645/2025/04/11/cubs-four-numbers-start/
+**Raiders mailbag: Does Geno Smith's contract put them back in the mix to draft a QB?**\
+`Could the Raiders still pursue a QB in the draft? Who has final say in the draft room? And is it Ashton Jeanty or another position at No. 6?`\
+https://nytimes.com/athletic/6268381/2025/04/11/geno-smith-nfl-draft-raiders-mailbag/
 
-**'It's a lot. It's too much': What do MLB players do with all their stuff?**\
-`For journeyman players, it can be tough to reuse or recycle anything at the next stop. So where does it all go?`\
-https://nytimes.com/athletic/6270334/2025/04/11/what-do-mlb-players-do-with-their-stuff/
+**'It's a benefit to the game': A rule change is bringing standout young players to MLB faster**\
+`Teams used to hold players in the minors to manipulate their service time. The prospect promotion incentive has caused that to change.`\
+https://nytimes.com/athletic/6271625/2025/04/11/prospect-promotion-initiative-mlb-rookies/
 

@@ -1,3 +1,11 @@
+**New Talks With Iran**\
+`The U.S. will have nuclear negotiations this weekend.`\
+https://nytimes.com/2025/04/11/briefing/new-talks-with-iran.html
+
+**Will Vlad Jr. join his dad in the Hall of Fame? How his early career numbers stack up**\
+`You’d be amazed by all the Hall of Famers who weren’t even close to Vladdy through age 25.`\
+https://nytimes.com/athletic/6271587/2025/04/11/vladimir-guerrero-jr-hall-of-fame/
+
 **Moyes: Everton hold 'all the cards' on Branthwaite's future**\
 `Manchester United previously bid for Branthwaite, who is effectively under contract at Everton until 2028.`\
 https://nytimes.com/athletic/6272078/2025/04/11/jarrad-branthwaite-transfer-everton-moyes/
