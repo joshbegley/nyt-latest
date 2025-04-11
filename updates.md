@@ -1,3 +1,7 @@
+**Rory McIlroy rebounds from rocky Round 1 finish to surge into contention at the Masters**\
+`After finishing Thursday with two double bogeys in final four holes, McIlroy returned to play the round of the day Friday,`\
+https://nytimes.com/athletic/6273424/2025/04/11/rory-mcilroy-the-masters-contention/
+
 **Isaac Howard wins Hobey Baker Award as top player in men's college hockey**\
 `Junior led Michigan State in scoring this season with 26 goals and 52 points in 37 games, 21 more points than his nearest teammate.`\
 https://nytimes.com/athletic/6236241/2025/04/11/isaac-howard-wins-hobey-baker-award-college-hockey-top-player/
