@@ -1,3 +1,7 @@
+**Isaac Howard wins Hobey Baker Award as top player in men's college hockey**\
+`Junior led Michigan State in scoring this season with 26 goals and 52 points in 37 games, 21 more points than his nearest teammate.`\
+https://nytimes.com/athletic/6236241/2025/04/11/isaac-howard-wins-hobey-baker-award-college-hockey-top-player/
+
 **Rory McIlroy rebounds from rocky Round 1 finish to surge into contention at The Masters**\
 `After finishing Thursday with two double bogeys in final four holes, McIlroy returned to play the round of the day Friday,`\
 https://nytimes.com/athletic/6273424/2025/04/11/rory-mcilroy-the-masters-contention/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/11/us/joseph-boskin-dead-april-fools.html
 **76ers star Joel Embiid undergoes successful left knee surgery**\
 `Embiid was ruled out for the remainder of the season at the end of February following a battle with his left knee`\
 https://nytimes.com/athletic/6273397/2025/04/11/joel-embiid-knee-surgery-76ers-2/
-
-**My Girlfriend Keeps Looking Through My Phone. Should We Break Up?**\
-`The magazine’s Ethicist columnist on device privacy in relationships.`\
-https://nytimes.com/2025/04/11/magazine/phone-privacy-relationships-ethics.html
 
