@@ -1,3 +1,7 @@
+**Friday Briefing**\
+`An escalating trade war.`\
+https://nytimes.com/2025/04/11/briefing/trade-war-iran-hamas.html
+
 **The New York Times in Print for Friday, April 11, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/04/11/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6266576/2025/04/11/tino-livramento-newcastle-united
 **FPL: Analysing every chip strategy for Gameweek 32 and beyond**\
 `Gameweeks 32 to 34 are the optimal time to play a chip or two in FPL. Holly Shand explores how to make the most of whichever you choose`\
 https://nytimes.com/athletic/6269191/2025/04/11/fantasy-premier-league-chip-wildcard-gw32/
-
-**Premier League's failure to prevent Chelsea's latest accounting tricks shows it can't regulate its clubs**\
-`In an ideal world, self-regulation would preclude self-interest. But the interests of the game have been overtaken by owners' objectives`\
-https://nytimes.com/athletic/6269885/2025/04/11/premier-league-chelsea-regulator/
 

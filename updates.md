@@ -1,3 +1,7 @@
+**Friday Briefing**\
+`An escalating trade war.`\
+https://nytimes.com/2025/04/11/briefing/trade-war-iran-hamas.html
+
 **The New York Times in Print for Friday, April 11, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/04/11/todays-new-york-times
