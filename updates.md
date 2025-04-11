@@ -1,3 +1,7 @@
+**Chiefs and the ‘The Beast’: Left tackles, pass rushers and a Kelce understudy?**\
+`Ahead of the draft, we scoured “The Beast” to see which prospects are ideal fits for the Chiefs, including at running back and cornerback.`\
+https://nytimes.com/athletic/6271091/2025/04/11/chiefs-2025-nfl-draft-the-beast/
+
 **Four numbers that help explain how the Cubs are 9-6**\
 `Some numbers take a while to stabilize, and others can be more than just noise, indicators of what a team can be in a long season.`\
 https://nytimes.com/athletic/6270645/2025/04/11/cubs-four-numbers-start/
