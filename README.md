@@ -34,7 +34,7 @@ https://nytimes.com/2025/04/11/climate/cargo-shipping-emissions.html
 `Should they ship out the pick they traded for J.T. Miller or roll it over to next year? Does it help to tank? Intrigue remains.`\
 https://nytimes.com/athletic/6272346/2025/04/11/rangers-conditional-pick-decision/
 
-**U.S. ‘Continues to Delay, Obfuscate and Flout’ Courts in Return of Deported Man, Lawyers Say**\
+**U.S. Continues to ‘Delay’ and ‘Flout’ Courts in Return of Deported Man, Lawyers Say**\
 `The judge, clearly frustrated, reminded the Justice Department that the administration’s act of mistakenly sending a Maryland man to El Salvador “was wholly illegal from the moment it happened.”`\
 https://nytimes.com/2025/04/11/nyregion/us-maryland-man-deportation-delay.html
 
