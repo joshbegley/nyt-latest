@@ -1,3 +1,7 @@
+**Arteta cautious over Havertz injury return before end of season**\
+`The Arsenal forward suffered a hamstring injury which required surgery on Arsenal’s mid-season trip to Dubai in February.`\
+https://nytimes.com/athletic/6272383/2025/04/11/kai-havertz-injury-return-mikel-arteta/
+
 **Joe Flacco returns to Browns on 1-year, $4 million deal**\
 `Flacco, who energized Cleveland with a four-game win streak amid a playoff push in 2023, started six games for the Colts last season. `\
 https://nytimes.com/athletic/6272357/2025/04/11/cleveland-browns-sign-joe-flacco/
