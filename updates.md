@@ -1,4 +1,8 @@
 **Rangers and Islanders are headed in the same direction — down and out**\
+`The Rangers have already destroyed their season. Thursday, they took the Islanders down with them.`\
+https://nytimes.com/athletic/6271643/2025/04/10/new-york-rangers-islanders-season/
+
+**Rangers and Islanders are headed in the same direction — down and out**\
 `The Rangers have already destroyed their own season. On Thursday, they took the Islanders down with them.`\
 https://nytimes.com/athletic/6271643/2025/04/10/new-york-rangers-islanders-season/
 
