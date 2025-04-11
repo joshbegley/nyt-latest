@@ -3,7 +3,7 @@
 https://nytimes.com/2025/04/11/climate/trump-regulations.html
 
 **‘This is Not Normal’: Trump’s Tariffs Upend the Bond Market**\
-`In the usually steady government bond market, the yield on the 10-year Treasury has risen from less than 4 percent at the end of last week to more than 4.5 percent.`\
+`In the usually steady government bond market, the yield on the 10-year Treasury has risen to more than 4.5 percent from less than 4 percent at the end of last week.`\
 https://nytimes.com/2025/04/11/business/economy/treasury-bonds-tariffs.html
 
 **FA updates policy on transgender women includes stricter criteria for eligibility**\
