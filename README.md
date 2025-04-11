@@ -34,7 +34,7 @@ https://nytimes.com/2025/04/11/business/stock-market-tariffs-trump.html
 `Early play of rookie defenseman has to have Chicago brass feeling ecstatic.`\
 https://nytimes.com/athletic/6273086/2025/04/11/around-the-blackhawks-sam-rinzel/
 
-**A Tragic End After a Helicopter Pilot’s Fresh Start**\
+**A Tragic End to a Helicopter Pilot’s New Adventure**\
 `Seankese Johnson, 36, was killed along with five passengers when the sightseeing helicopter he was flying suddenly crashed into the Hudson River near Jersey City.`\
 https://nytimes.com/2025/04/11/nyregion/seankese-johnson-nyc-helicopter-crash.html
 
