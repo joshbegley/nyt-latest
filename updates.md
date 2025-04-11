@@ -1,3 +1,7 @@
+**Concacaf Gold Cup draw results: Groups set for summer competition**\
+`The 16-team field has its marching orders for this summer, when Concacaf will crown its newest champion.`\
+https://nytimes.com/athletic/6270285/2025/04/10/2025-concacaf-gold-cup-draw-usmnt-group-opponents/
+
 **Helicopter Crash in Hudson River Kills 6**\
 `A helicopter crashed into the Hudson River near Jersey City, N.J., killing all six people on board, including the pilot.`\
 https://nytimes.com/video/nyregion/100000010104551/helicopter-crash-hudson-river.html
