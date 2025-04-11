@@ -1,3 +1,15 @@
+**Charter Company in Fatal Helicopter Crash Had Prior Mechanical Failures**\
+`At least twice before in the past 12 years, aircraft operated by the firm New York Helicopter Charter failed while in flight.`\
+https://nytimes.com/2025/04/10/nyregion/nyc-helicopter-crash-company-mechanical.html
+
+**Attorneys General Sue Over Access to $1 Billion in Federal School Aid**\
+`The Trump administration abruptly cut states’ access to Covid pandemic funding for school programs, saying they’d had enough time to spend it.`\
+https://nytimes.com/2025/04/10/nyregion/letitita-james-lawsuit-trump-pandemic-funding.html
+
+**Jon Rahm's angry Masters Thursday magnifies the truth about the former champion**\
+`For the fourth consecutive major, Rahm did not look like the world-beating, balanced force of nature.`\
+https://nytimes.com/athletic/6271282/2025/04/10/jon-rahm-masters-round-1/
+
 **Jon Rahm's angry Masters Thursday magnifies the truth about the former champion**\
 `For the fourth consecutive major, he did not look like the world-beating, balanced force of nature.`\
 https://nytimes.com/athletic/6271282/2025/04/10/jon-rahm-masters-round-1/

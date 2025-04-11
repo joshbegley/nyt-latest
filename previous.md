@@ -1,5 +1,13 @@
+**Charter Company in Fatal Helicopter Crash Had Prior Mechanical Failures**\
+`At least twice before in the past 12 years, aircraft operated by the firm New York Helicopter Charter failed while in flight.`\
+https://nytimes.com/2025/04/10/nyregion/nyc-helicopter-crash-company-mechanical.html
+
+**Attorneys General Sue Over Access to $1 Billion in Federal School Aid**\
+`The Trump administration abruptly cut states’ access to Covid pandemic funding for school programs, saying they’d had enough time to spend it.`\
+https://nytimes.com/2025/04/10/nyregion/letitita-james-lawsuit-trump-pandemic-funding.html
+
 **Jon Rahm's angry Masters Thursday magnifies the truth about the former champion**\
-`For the fourth consecutive major, he did not look like the world-beating, balanced force of nature.`\
+`For the fourth consecutive major, Rahm did not look like the world-beating, balanced force of nature.`\
 https://nytimes.com/athletic/6271282/2025/04/10/jon-rahm-masters-round-1/
 
 **Isaiah Bond turns self in to Frisco PD for outstanding warrant: Report**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/10/business/economy/trump-tariffs-challenge-megadono
 **Relevent Sports, U.S. Soccer settle antitrust lawsuit**\
 `The settlement likely clears the way for the sports promoter to host foreign league matches on American soil.`\
 https://nytimes.com/athletic/6271264/2025/04/10/relevent-sports-us-soccer-lawsuit-settlement/
-
-**Mahmoud Khalil’s Lawyers Will Seek Testimony From Marco Rubio**\
-`Lawyers for the detained Columbia graduate said that the lack of substantive charges against him requires more information from the secretary of state. They acknowledge they are likely to fail.`\
-https://nytimes.com/2025/04/10/nyregion/khalil-rubio-testimony-deportation.html
-
-**More European Opera Houses Welcome Back Anna Netrebko**\
-`The star soprano, who lost work after Russia invaded Ukraine because of her past support of President Vladimir V. Putin of Russia, will return to the stage in Zurich and London.`\
-https://nytimes.com/2025/04/10/arts/music/anna-netrebko-london-zurich.html
 
