@@ -1,3 +1,15 @@
+**The New York Times in Print for Friday, April 11, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/11/todays-new-york-times
+
+**This Exiled Leader Ruled Ecuador for 10 Years. The Nation Still Can’t Move On.**\
+`Rafael Correa’s presence is sustained not only by his supporters but also by his adversaries, who have failed to construct a compelling alternative.`\
+https://nytimes.com/2025/04/11/opinion/rafael-correa-daniel-noboa-ecuador.html
+
+**Boston University defeats Penn State, advances to national championship game**\
+`The Terriers finally made it to the title game in their third consecutive Frozen Four appearance.`\
+https://nytimes.com/athletic/6270946/2025/04/11/boston-university-penn-state-frozen-four-semifinal/
+
 **Eric Dane, McSteamy of ‘Grey’s Anatomy,’ Says He Has A.L.S.**\
 `The actor, who plans to return to his role on the hit show “Euphoria,” told People magazine about his diagnosis.`\
 https://nytimes.com/2025/04/11/us/eric-dane-diagnosis-als.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6269191/2025/04/11/fantasy-premier-league-chip-wild
 **Premier League's failure to prevent Chelsea's latest accounting tricks shows it can't regulate its clubs**\
 `In an ideal world, self-regulation would preclude self-interest. But the interests of the game have been overtaken by owners' objectives`\
 https://nytimes.com/athletic/6269885/2025/04/11/premier-league-chelsea-regulator/
-
-**Why have Salah's goals and assists have dried up?**\
-`Circumstances on and off the field have contributed to Egyptian's dip in form in recent weeks`\
-https://nytimes.com/athletic/6266613/2025/04/11/mohamed-salah-goals-assists-form/
-
-**The best front threes in Champions League history**\
-`There's MSN, BBC and other memorable trios that weren't easily abbreviated `\
-https://nytimes.com/athletic/6270287/2025/04/11/champions-league-front-three-messi-neymar-ronaldo/
-
-**Madrid want to sign a centre-back this summer. Will it happen? And who could it be?**\
-`Madrid have problems in defence, but there are doubts whether those will be solved this summer`\
-https://nytimes.com/athletic/6270147/2025/04/11/real-madrid-centre-back-transfers/
 

@@ -1,3 +1,15 @@
+**The New York Times in Print for Friday, April 11, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/11/todays-new-york-times
+
+**This Exiled Leader Ruled Ecuador for 10 Years. The Nation Still Can’t Move On.**\
+`Rafael Correa’s presence is sustained not only by his supporters but also by his adversaries, who have failed to construct a compelling alternative.`\
+https://nytimes.com/2025/04/11/opinion/rafael-correa-daniel-noboa-ecuador.html
+
+**Boston University defeats Penn State, advances to national championship game**\
+`The Terriers finally made it to the title game in their third consecutive Frozen Four appearance.`\
+https://nytimes.com/athletic/6270946/2025/04/11/boston-university-penn-state-frozen-four-semifinal/
+
 **Eric Dane, McSteamy of ‘Grey’s Anatomy,’ Says He Has A.L.S.**\
 `The actor, who plans to return to his role on the hit show “Euphoria,” told People magazine about his diagnosis.`\
 https://nytimes.com/2025/04/11/us/eric-dane-diagnosis-als.html
