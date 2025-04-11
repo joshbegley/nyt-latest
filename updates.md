@@ -1,3 +1,19 @@
+**Markets Worry About Finding an Exit From Trump’s Trade Fight**\
+`Investors are concerned about the continued escalation of the U.S.-China tariff battle — and the state of the president’s negotiating leverage.`\
+https://nytimes.com/2025/04/11/business/dealbook/trump-tariffs-trade-assets.html
+
+**Alec Bohm's rough start drags on as he and Phillies end long night at ballpark with a loss**\
+`"He's going to come out of it." Bohm is 4-for-his-last-40 and without an extra-base hit or a walk since the second game of the season. `\
+https://nytimes.com/athletic/6271925/2025/04/11/alec-bohm-struggles-phillies-braves/
+
+**FPL live Q&A: FPL Gameweek 32 advice from Ben Dinnery**\
+`Join Ben Dinnery for a live Gameweek 32 FPL Q&A from 4pm-5pm UK time`\
+https://nytimes.com/athletic/6269674/2025/04/11/fantasy-premier-league-advice-gw32-tips/
+
+**Warren Urges S.E.C. to Investigate Trading Around Trump’s Tariff Pause**\
+`The president told his social media followers it was a “GREAT TIME TO BUY” hours before announcing a reversal on tariffs that sent markets soaring.`\
+https://nytimes.com/2025/04/11/business/dealbook/warren-trump-sec.html
+
 **Prince Harry Meets War Victims in Surprise Visit to Ukraine**\
 `The prince toured a rehabilitation facility in Lviv for soldiers and civilians wounded in the war. The trip came as his father, King Charles, was in Italy.`\
 https://nytimes.com/2025/04/11/world/europe/prince-harry-ukraine-visit.html

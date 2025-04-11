@@ -1,3 +1,7 @@
+**Trump’s auto tariffs are causing anger in a British carmaking town.**\
+`By Lizzie Dearden`\
+https://nytimes.com/live/2025/04/11/business/trump-tariffs-stocks-china/trumps-auto-tariffs-are-causing-anger-in-a-british-carmaking-town
+
 **Markets Worry About Finding an Exit From Trump’s Trade Fight**\
 `Investors are concerned about the continued escalation of the U.S.-China tariff battle — and the state of the president’s negotiating leverage.`\
 https://nytimes.com/2025/04/11/business/dealbook/trump-tariffs-trade-assets.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6269065/2025/04/11/rockets-2025-nba-playoffs-wolves
 **Which NHL players stood out as MVP of their team in 2024-25?**\
 `Every team from the top to the bottom of the standings had individual performances worth highlighting.`\
 https://nytimes.com/athletic/6270714/2025/04/11/nhl-mvp-picks-every-team-2025/
-
-**How do you fix an NHL arena where the fans don't cheer? 'Play in the sandbox'**\
-`A tepid game atmosphere has become typical in Toronto and other big hockey cities. What can these teams learn from non-traditional markets?`\
-https://nytimes.com/athletic/6265474/2025/04/11/nhl-arena-fan-crowd-attendance-noise/
 
