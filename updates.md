@@ -1,3 +1,7 @@
+**Warriors' situation clarified: Beat the Clippers, and face the Lakers in first round**\
+`Stephen Curry aggravated a thumb sprain Friday in Portland but plans to play in Sunday's season finale.`\
+https://nytimes.com/athletic/6273828/2025/04/12/warriors-nba-playoffs-matchup-lakers/
+
 **Kloke: How to fix quiet atmosphere at Maple Leafs games? Take lessons from soccer**\
 `Toronto's home arena is notoriously lacking in atmosphere. Could soccer stadiums hold the solution?`\
 https://nytimes.com/athletic/6272353/2025/04/12/kloke-leafs-atmosphere-nhl-soccer/
