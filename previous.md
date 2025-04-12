@@ -1,5 +1,5 @@
-**Nico Iamaleava’s holdout ends in a breakup with Tennessee as Vols move on**\
-`The news comes after attempts to re-negotiate his NIL went public, creating what essentially became an NFL-style holdout.`\
+**Nico Iamaleava's holdout ends in a breakup with Tennessee as Vols move on**\
+`The news comes after attempts to renegotiate his NIL went public, creating what essentially became an NFL-style holdout.`\
 https://nytimes.com/athletic/6274390/2025/04/12/tennessee-qb-transferring-nico-iamaleava-college-football/
 
 **Both Sides Now**\
@@ -23,7 +23,7 @@ https://nytimes.com/2025/04/12/us/idaho-abortion-medical-ban-exceptions-ruling.h
 https://nytimes.com/interactive/2025/04/12/upshot/measles-herd-immunity-explainer.html
 
 **Spencer Arrighetti says he never saw the ball that broke his thumb during BP**\
-`The Astros' righty heard someone yell that a ball was coming it hit him as he tried to protect himself: "A really, really freak accident."`\
+`The Astros righty heard someone yell that a ball was coming. It hit him as he tried to protect himself: "A really, really freak accident."`\
 https://nytimes.com/athletic/6274812/2025/04/12/astros-spencer-arrighetti-injury-batting-practice/
 
 **F1's Lando Norris feels ‘clueless’ in Bahrain. Oscar Piastri has chance to take advantage**\
