@@ -1,3 +1,7 @@
+**Trump Exempts Many Electronics From New Tariffs**\
+`Products including smartphones and computers appeared to be getting a reprieve from at least some of the levies on China, which had been expected to take a big toll on tech companies like Apple.`\
+https://nytimes.com/2025/04/12/us/politics/trump-electronics-tariffs.html
+
 **'It's a blessing': Giannis dominates in Bucks' win over Pistons and teammates are grateful**\
 `"If anyone's a fan of basketball and you get to watch — every night —  the dominance of what Giannis does, it's unbelievable."`\
 https://nytimes.com/athletic/6274047/2025/04/12/bucks-giannis-antetokounmpo-pistons-triple-double/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6270790/2025/04/12/jaden-mcdaniels-timberwolves-def
 **Their Space Suit, Their Way**\
 `Lauren Sánchez teamed up with Monse to redesign the Blue Origin flight suits with its all-female launch in mind.`\
 https://nytimes.com/2025/04/12/style/lauren-sanchez-blue-origin-spacesuit-monse.html
-
-**Milan's Maignan leaves hospital following head collision**\
-`The Milan captain suffered a clash of heads with team-mate Alex Jimenez in the 51st minute of Friday's Serie A match at Udinese.`\
-https://nytimes.com/athletic/6274319/2025/04/12/mike-maignan-milan-head-injury/
 

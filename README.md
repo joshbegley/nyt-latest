@@ -1,3 +1,7 @@
+**The 2025 Masters**\
+`The weekend weather at the Masters Tournament is expected to be perfect for golf, and the third round began with the leader Justin Rose in a familiar position.`\
+https://nytimes.com/2025/04/12/us/masters-tournament-golf.html
+
 **Trump Exempts Many Electronics From New Tariffs**\
 `Products including smartphones and computers appeared to be getting a reprieve from at least some of the levies on China, which had been expected to take a big toll on tech companies like Apple.`\
 https://nytimes.com/2025/04/12/us/politics/trump-electronics-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/04/12/us/trump-administration-news
 **Jaden McDaniels has become a more versatile defender in Year 5**\
 `The 6-foot-10 McDaniels "makes it tough on everybody" as Minnesota pushes for a top-six spot in the West.`\
 https://nytimes.com/athletic/6270790/2025/04/12/jaden-mcdaniels-timberwolves-defense-nba/
-
-**Their Space Suit, Their Way**\
-`Lauren Sánchez teamed up with Monse to redesign the Blue Origin flight suits with its all-female launch in mind.`\
-https://nytimes.com/2025/04/12/style/lauren-sanchez-blue-origin-spacesuit-monse.html
 
