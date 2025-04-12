@@ -1,3 +1,7 @@
+**Cubs' Justin Steele reviewing all options after left elbow flare-up**\
+`The initial injury designation — left elbow tendinitis — was the same one that Steele experienced late last season. `\
+https://nytimes.com/athletic/6273209/2025/04/11/chicago-cubs-justin-steele-injury-2025/
+
 **Get on the Board**\
 `Jesse Cohn’s Saturday debut puzzle is full of sneak attacks.`\
 https://nytimes.com/2025/04/11/crosswords/daily-puzzle-2025-04-12.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6273679/2025/04/11/masters-2025-fred-couples-age/
 **Freed From Prison by Trump and Now Facing the Prospect of Going Back**\
 `At a hearing this week, witnesses described behavior by Jonathan Braun that could result in his being locked up again.`\
 https://nytimes.com/2025/04/11/nyregion/jonathan-braun-arrest-trump-commute-sentence.html
-
-**Dodgers' Freddie Freeman returns from IL on his bobblehead night**\
-`Freeman played in only three games this season before going on the IL with an ankle sprain on April 3.`\
-https://nytimes.com/athletic/6273563/2025/04/11/freddie-freeman-return-injury-dodgers-bobblehead/
 
