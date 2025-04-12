@@ -1,5 +1,5 @@
 **Nuno warns Forest on CL spot: 'Nobody will give us anything'**\
-`Forest were dealt a blow to their hopes as Abdoulaye Doucoure scored a 94th minute winner for Everton on Saturday at the City Ground.`\
+`Forest were dealt a blow to their hopes as Abdoulaye Doucoure scored a 94th-minute winner for Everton on Saturday at the City Ground.`\
 https://nytimes.com/athletic/6274662/2025/04/12/nuno-nottingham-forest-champions-league/
 
 **Hurzeler: Brighton 'shouldn't talk about Europe' after Leicester draw**\
