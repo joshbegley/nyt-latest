@@ -1,3 +1,7 @@
+**At Least One Dead After Private Plane Crashes in Upstate New York**\
+`The plane, a Mitsubishi MU-2B carrying two passengers, went down Saturday in the town of Copake close to the Massachusetts border, according to the authorities.`\
+https://nytimes.com/2025/04/12/nyregion/ny-copake-fatal-plane-crash.html
+
 **Tyson Foerster, Jakob Pelletier among players leading Flyers' post-John Tortorella surge**\
 `Foerster has been Philadelphia’s most dangerous forward lately, scoring twice on Saturday in the team’s 4-3 shootout win over the Islanders.`\
 https://nytimes.com/athletic/6274952/2025/04/12/flyers-tyson-foerster-jakob-pelletier-john-tortorella/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6274812/2025/04/12/astros-spencer-arrighetti-injury
 **F1's Lando Norris feels ‘clueless’ in Bahrain. Oscar Piastri has chance to take advantage**\
 `On a weekend that McLaren was tipped to dominate by its rivals, it was a shock that it didn't lock out the front row.`\
 https://nytimes.com/athletic/6274815/2025/04/12/f1-formula-1-bahrain-lando-norris-oscar-piastri/
-
-**Ohio State spring game notes: Julian Sayin's QB battle edge, WR depth on display**\
-`With over 40,000 people in attendance at Ohio Stadium, the offense won 50-31, a more convincing win from the 1-point victory last season. `\
-https://nytimes.com/athletic/6274480/2025/04/12/ohio-state-spring-game-notes/
 
