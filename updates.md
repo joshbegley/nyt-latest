@@ -1,3 +1,11 @@
+**What can 'ferocious' Alexander Nikishin do for the Hurricanes’ defense?**\
+`Carolina's top prospect has the potential to be a Chris Pronger-like force on the blue line.`\
+https://nytimes.com/athletic/6274179/2025/04/12/alexander-nikishin-hurricanes-prospect/
+
+**Tennessee, QB Nico Iamaleava splitting up after public NIL disputes: Sources**\
+`The news comes after attempts to re-negotiate his NIL went public, creating what essentially became an NFL-style holdout.`\
+https://nytimes.com/athletic/6274390/2025/04/12/tennessee-qb-transferring-nico-iamaleava-college-football/
+
 **The Briefing: Man City 5 Crystal Palace 2 - De Bruyne inspires a remarkable comeback**\
 `City were 2-0 down within 21 minutes, level by half-time and then comfortable winners. Sam Lee dissects the key talking points…`\
 https://nytimes.com/athletic/6266578/2025/04/12/manchester-city-crystal-palace-de-bruyne-comeback-result/
