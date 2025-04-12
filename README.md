@@ -1,3 +1,7 @@
+**Corrections: April 12, 2025**\
+`Corrections that appeared in print on Saturday, April 12, 2025.`\
+https://nytimes.com/2025/04/11/pageoneplus/corrections-april-12-2025.html
+
 **White House Moves Obama Portrait to Make Room for New One of Trump**\
 `While the shuffling of artwork in the president’s residence drew criticism, that kind of rotation is common with the change of administrations.`\
 https://nytimes.com/2025/04/11/us/politics/trump-obama-portrait-assassination.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6273760/2025/04/11/ottawa-senators-owner-nhl-draft-
 **How to watch Masters 2025: Round 3 tee times, groupings, odds, info for Saturday**\
 `Round 3 of the Masters goes down Saturday morning and afternoon. The major tournament runs through Sunday at Augusta National.`\
 https://nytimes.com/athletic/6272729/2025/04/11/masters-2025-round-3-how-to-watch/
-
-**Efforts to Resentence Menendez Brothers Can Proceed, Judge Says**\
-`The men, who killed their parents in 1989, are pursuing several efforts to be released after decades in prison.`\
-https://nytimes.com/2025/04/11/arts/menendez-brothers-resentencing.html
 

@@ -1,3 +1,11 @@
+**White House Moves Obama Portrait to Make Room for New One of Trump**\
+`While the shuffling of artwork in the president’s residence drew criticism, that kind of rotation is common with the change of administrations.`\
+https://nytimes.com/2025/04/11/us/politics/trump-obama-portrait-assassination.html
+
+**Trump Directive Calls to Turn Border Land Into ‘Military Installation’**\
+`The plan would put a strip along the southern border under Pentagon control, allowing the military to detain migrants for trespassing on a military base until Border Patrol agents could arrest them.`\
+https://nytimes.com/2025/04/11/us/politics/trump-military-border.html
+
 **Cubs' Justin Steele reviewing all options after left elbow flare-up**\
 `The initial injury designation — left elbow tendinitis — was the same one that Steele experienced late last season. `\
 https://nytimes.com/athletic/6273209/2025/04/11/chicago-cubs-justin-steele-injury-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6272729/2025/04/11/masters-2025-round-3-how-to-watc
 **Efforts to Resentence Menendez Brothers Can Proceed, Judge Says**\
 `The men, who killed their parents in 1989, are pursuing several efforts to be released after decades in prison.`\
 https://nytimes.com/2025/04/11/arts/menendez-brothers-resentencing.html
-
-**Fred Couples is timeless. We can all learn something from him**\
-`Watching him, one thought tolled over and over in my head: Take your time, but don’t go slow.`\
-https://nytimes.com/athletic/6273679/2025/04/11/masters-2025-fred-couples-age/
-
-**Freed From Prison by Trump and Now Facing the Prospect of Going Back**\
-`At a hearing this week, witnesses described behavior by Jonathan Braun that could result in his being locked up again.`\
-https://nytimes.com/2025/04/11/nyregion/jonathan-braun-arrest-trump-commute-sentence.html
 
