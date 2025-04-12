@@ -1,3 +1,15 @@
+**Nikola Jokić averages triple-double in NBA season, achieving rare feat**\
+`Jokić became the third player in NBA history with the mark, joining Oscar Robertson and Russell Westbrook.`\
+https://nytimes.com/athletic/6274099/2025/04/12/nikola-jokic-triple-double-nba-season/
+
+**Yankees face 2 injury scares amid 'worst' weather conditions**\
+`Driving rain, heavy wind and bitter cold forced umpires to end Friday's game in the top of the sixth inning, handing the Yankees a 9-1 loss.`\
+https://nytimes.com/athletic/6274064/2025/04/12/yankees-injury-scares-weather-giants-stroman-gomez/
+
+**The New York Times in Print for Saturday, April 12, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/12/todays-new-york-times
+
 **Yankees' Marcus Stroman says he's a starter, but his days should be numbered**\
 `Yankees manager Aaron Boone pulled Stroman after the Giants batted around in the first inning of New York's 9-1 loss. `\
 https://nytimes.com/athletic/6273936/2025/04/12/yankees-lose-giants-marcus-stroman-pulled/
