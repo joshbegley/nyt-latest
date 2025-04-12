@@ -1,6 +1,10 @@
+**The Digestible Politics of the Message Tee**\
+`Some elected officials and those in power are making use of a classic bit of fashion to deliver big ideas.`\
+https://nytimes.com/2025/04/12/style/eric-adams-tee-shirt-political-message.html
+
 **The Pulse: LIV is a disruptor without any juice**\
 `Welcome to The Pulse, The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/6274029/2025/04/12/6274029-masters-live/
+https://nytimes.com/athletic/6274029/2025/04/12/6274029-masters-liv/
 
 **Mercedes newbie Antonelli is still finishing school even as he makes Formula 1 history**\
 `New Mercedes driver Kimi Antonelli is still sitting his school exams, even as he begins a career racing in Formula One`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6273681/2025/04/12/nhl-regular-season-2024-2025-dis
 **I’m Not a ‘Gatsby’ Scholar. I’m a ‘Gatsby’ Weirdo.**\
 `Five years ago I decided to listen to ‘The Great Gatsby.’ I haven’t stopped.`\
 https://nytimes.com/2025/04/12/opinion/great-gatsby-on-repeat.html
-
-**Trump vs. the Law Firms**\
-`Readers discuss the firms that capitulated to the president’s demands, and those that didn’t.`\
-https://nytimes.com/2025/04/12/opinion/trump-law-firms-resistance.html
 

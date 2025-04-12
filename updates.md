@@ -1,3 +1,11 @@
+**The Digestible Politics of the Message Tee**\
+`Some elected officials and those in power are making use of a classic bit of fashion to deliver big ideas.`\
+https://nytimes.com/2025/04/12/style/eric-adams-tee-shirt-political-message.html
+
+**The Pulse: LIV is a disruptor without any juice**\
+`Welcome to The Pulse, The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/6274029/2025/04/12/6274029-masters-liv/
+
 **The Pulse: LIV is a disruptor without any juice**\
 `Welcome to The Pulse, The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/6274029/2025/04/12/6274029-masters-live/
