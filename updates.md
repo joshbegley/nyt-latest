@@ -1,3 +1,11 @@
+**Hostages Still Held in Gaza Cast Shadow Over Passover in Israel**\
+`The holiday is usually a celebration of the liberation of ancient Israelites from slavery in Egypt. But for many Israelis, the suffering of the captives still in Gaza is tempering the joy.`\
+https://nytimes.com/2025/04/12/world/middleeast/israel-gaza-passover.html
+
+**Andrew Painter returns, touches 100 mph: How the Phillies will manage his buildup to majors**\
+`His season began Friday with 37 pitches at Low-A Clearwater. Now, every week with a few innings at a time, the Phillies can begin to dream. `\
+https://nytimes.com/athletic/6273816/2025/04/12/andrew-painter-return-phillies-prospect-mlb-path/
+
 **Brain Trust**\
 `Fan gatherings present opportunities to geek out with fellow enthusiasts. Can we cultivate some of that energy in everyday life?`\
 https://nytimes.com/2025/04/12/briefing/crossword-tournament.html
