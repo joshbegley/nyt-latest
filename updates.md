@@ -1,3 +1,15 @@
+**Why now might be a good time for the Bills to draft a backup quarterback**\
+`Josh Allen doesn't need to learn from a veteran QB anymore.`\
+https://nytimes.com/athletic/6272162/2025/04/12/bills-nfl-draft-2025-backup-quarterback/
+
+**Ramy Youssef Is Just Trying to Be ‘Emotionally Correct’**\
+`The creator and comedian discusses his penchant for self-reflection, how politics fits into his work and why he’s not interested in representing anyone but himself.`\
+https://nytimes.com/2025/04/12/magazine/ramy-youssef-interview.html
+
+**Ramy Youssef Is Just Trying to Be “Emotionally Correct”**\
+`The creator and comedian discusses his penchant for self-reflection, how politics fits into his work and why he’s not interested in representing anyone but himself.`\
+https://nytimes.com/video/podcasts/100000010083562/ramy-youssef-is-just-trying-to-be-emotionally-correct.html
+
 **NASCAR Cup Series at Bristol odds, predictions: Hamlin goes for three straight**\
 `Our NASCAR reporters are back to answer our questions about NASCAR's legal dramas, tire wear, favorites at Bristol and more.`\
 https://nytimes.com/athletic/6272876/2025/04/12/nascar-cup-series-bristol-odds-expert-picks-how-to-watch/
