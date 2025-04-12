@@ -1,3 +1,7 @@
+**Spencer Arrighetti says he never saw the ball that broke his thumb during BP**\
+`The Astros' righty heard someone yell that a ball was coming it hit him as he tried to protect himself: "A really, really freak accident."`\
+https://nytimes.com/athletic/6274812/2025/04/12/astros-spencer-arrighetti-injury-batting-practice/
+
 **F1's Lando Norris feels ‘clueless’ in Bahrain. Oscar Piastri has chance to take advantage**\
 `On a weekend that McLaren was tipped to dominate by its rivals, it was a shock that it didn't lock out the front row.`\
 https://nytimes.com/athletic/6274815/2025/04/12/f1-formula-1-bahrain-lando-norris-oscar-piastri/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/04/12/us/politics/harvard-professors-trump-lawsuit-fund
 **Sudanese Paramilitaries Kill Entire Clinic Staff in Famine-Struck Camp**\
 `Relief International said nine employees were killed when gunmen stormed the Zamzam camp in El Fasher, in the western Darfur region.`\
 https://nytimes.com/2025/04/12/world/africa/sudan-zamzam-clinic-staff-killed.html
-
-**Manchester Arena Bomber’s Brother Is Accused of Attack on Prison Guards**\
-`Hashem Abedi allegedly stabbed the officers with homemade weapons inside a high-security prison.`\
-https://nytimes.com/2025/04/12/world/europe/manchester-arena-bomber-attack-prison.html
 
