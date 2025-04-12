@@ -1,3 +1,8 @@
+**Timberwolves' Anthony Edwards has 18th technical foul rescinded by NBA**\
+`The star guard’s likely absence against Utah could complicate Minnesota's pursuit of a top-six seed in the West.
+`\
+https://nytimes.com/athletic/6273889/2025/04/12/anthony-edwards-timberwolves-technical-rescinded/
+
 **'Fire, passion and energy': How Georgia aims to restore itself to glory**\
 `Coach Kirby Smart mentioned "fire, passion, energy" constantly in practices, meetings and news conferences this spring.`\
 https://nytimes.com/athletic/6274908/2025/04/12/georgia-football-spring-game-2025/

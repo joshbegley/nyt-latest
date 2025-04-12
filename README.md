@@ -1,3 +1,7 @@
+**Rangers eliminated from playoff contention a year after winning Presidents' Trophy**\
+`The Rangers' 2024-25 season will end Thursday with a home game against the Tampa Bay Lightning.`\
+https://nytimes.com/athletic/6273537/2025/04/12/ny-rangers-2025-nhl-playoffs-eliminated/
+
 **'Fire, passion and energy': How Georgia aims to restore itself to glory**\
 `Coach Kirby Smart mentioned "fire, passion, energy" constantly in practices, meetings and news conferences this spring.`\
 https://nytimes.com/athletic/6274908/2025/04/12/georgia-football-spring-game-2025/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6273889/2025/04/12/anthony-edwards-timberwolves-tec
 **Martinelli: Norgaard deserved red card, challenge 'could have broken my leg'**\
 `Norgaard received a yellow card for the tackle during Brentford's 1-1 draw with Arsenal on Saturday.`\
 https://nytimes.com/athletic/6274774/2025/04/12/arsenal-brentford-martinelli-norgaard-tackle/
-
-**Spring Snow Hits the Northeast**\
-`As much as five inches of snow fell across an area stretching from Albany, N.Y., to Maine on Saturday.`\
-https://nytimes.com/video/weather/100000010107545/snow-spring-northeast.html
 
