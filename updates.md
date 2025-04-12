@@ -1,3 +1,7 @@
+**Cardinals place Masyn Winn on IL but believe shortstop won't miss much time**\
+`While back injuries are finicky, the Cardinals do not believe Winn will miss much time based on his prior stints.`\
+https://nytimes.com/athletic/6274698/2025/04/12/cardinals-masyn-winn-il-injury/
+
 **The agony and ecstasy of watching Leeds move to within touching distance of promotion**\
 `Daniel Farke's side are five points clear of third-placed Sheffield United but, as ever, they are not making life easy for themselves`\
 https://nytimes.com/athletic/6274595/2025/04/12/leeds-preston-championship-promotion/
