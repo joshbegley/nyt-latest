@@ -1,3 +1,11 @@
+**What can 'ferocious' Alexander Nikishin do for the Hurricanes’ defense?**\
+`Carolina's top prospect has the potential to be a Chris Pronger-like force on the blue line.`\
+https://nytimes.com/athletic/6274179/2025/04/12/alexander-nikishin-hurricanes-prospect/
+
+**Tennessee, QB Nico Iamaleava splitting up after public NIL disputes: Sources**\
+`The news comes after attempts to re-negotiate his NIL went public, creating what essentially became an NFL-style holdout.`\
+https://nytimes.com/athletic/6274390/2025/04/12/tennessee-qb-transferring-nico-iamaleava-college-football/
+
 **Coaches and GMs across the NFL are wondering: What are the Giants going to do?**\
 `Is Abdul Carter too good to pass up?`\
 https://nytimes.com/athletic/6272358/2025/04/12/new-york-giants-draft-plans-quarterbacks-abdul-carter/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6274319/2025/04/12/mike-maignan-milan-head-injury/
 **Warriors' situation clarified: Beat the Clippers, and face the Lakers in first round**\
 `Stephen Curry aggravated a thumb sprain Friday in Portland but plans to play in Sunday's season finale.`\
 https://nytimes.com/athletic/6273828/2025/04/12/warriors-nba-playoffs-matchup-lakers/
-
-**Kloke: How to fix quiet atmosphere at Maple Leafs games? Take lessons from soccer**\
-`Toronto's home arena is notoriously lacking in atmosphere. Could soccer stadiums hold the solution?`\
-https://nytimes.com/athletic/6272353/2025/04/12/kloke-leafs-atmosphere-nhl-soccer/
-
-**How a Deal to Shape Golf’s Future Went Cold**\
-`Despite interventions by President Trump, talks to combine the PGA Tour and LIV Golf have come to a standstill.`\
-https://nytimes.com/2025/04/12/business/dealbook/liv-pga-deal.html
 
