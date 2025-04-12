@@ -1,3 +1,11 @@
+**The 2025 Masters**\
+`The weekend weather at the Masters Tournament is expected to be perfect for golf, and the third round began with the leader Justin Rose in a familiar position.`\
+https://nytimes.com/2025/04/12/us/masters-tournament-golf.html
+
+**Trump Administration Live Updates: New Rule Exempts Smartphones and Other Electronics From Most Tariffs**\
+``\
+https://nytimes.com/live/2025/04/12/us/trump-administration-news
+
 **Trump Exempts Many Electronics From New Tariffs**\
 `Products including smartphones and computers appeared to be getting a reprieve from at least some of the levies on China, which had been expected to take a big toll on tech companies like Apple.`\
 https://nytimes.com/2025/04/12/us/politics/trump-electronics-tariffs.html
