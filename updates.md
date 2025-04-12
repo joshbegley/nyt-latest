@@ -1,3 +1,12 @@
+**Judge’s Ruling Expands Medical Exceptions in Idaho Abortion Ban**\
+`In situations where a mother faces risk of death, the decision allows for abortions even when death isn’t imminent.`\
+https://nytimes.com/2025/04/12/us/idaho-abortion-medical-ban-exceptions-ruling.html
+
+**Timberwolves' Anthony Edwards has 18th technical foul rescinded by NBA**\
+`The star guard’s likely absence against Utah could complicate Minnesota's pursuit of a top-six seed in the West.
+`\
+https://nytimes.com/athletic/6273889/2025/04/12/anthony-edwards-timberwolves-technical-rescinded/
+
 **Timberwolves' Anthony Edwards has 18th technical foul rescinded by NBA**\
 `The star guard’s likely absence against Utah could complicate Minnesota's pursuit of a top-six seed in the West.
 `\
