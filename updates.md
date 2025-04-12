@@ -1,3 +1,16 @@
+**F1's Lando Norris feels ‘clueless’ in Bahrain. Oscar Piastri has chance to take advantage**\
+`On a weekend that McLaren was tipped to dominate by its rivals, it was a shock that it didn't lock out the front row.`\
+https://nytimes.com/athletic/6274815/2025/04/12/f1-formula-1-bahrain-lando-norris-oscar-piastri/
+
+**Ohio State spring game notes: Julian Sayin's QB battle edge, WR depth on display**\
+`With over 40,000 people in attendance at Ohio Stadium, the offense won 50-31, a more convincing win from the 1-point victory last season. `\
+https://nytimes.com/athletic/6274480/2025/04/12/ohio-state-spring-game-notes/
+
+**Timberwolves' Anthony Edwards has 18th technical foul rescinded by NBA**\
+`The star guard’s likely absence against Utah could complicate Minnesota's pursuit of a top-six seed in the West.
+`\
+https://nytimes.com/athletic/6273889/2025/04/12/anthony-edwards-timberwolves-technical-rescinded/
+
 **Hamilton says he's 'not doing a good enough job' at Ferrari**\
 `Hamilton qualified almost a second behind polesitter Oscar Piastri and six tenths behind Ferrari teammate Charles Leclerc.`\
 https://nytimes.com/athletic/6274768/2025/04/12/lewis-hamilton-ferrari-bahrain-qualifying/
