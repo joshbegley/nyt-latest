@@ -1,3 +1,7 @@
+**Cam Smith hits first major-league home run as Astros rout Angels**\
+`The 22-year-old also hit a double and raised his OPS to .747 on the season.`\
+https://nytimes.com/athletic/6273958/2025/04/11/astros-cam-smith-first-career-home-run/
+
 **Appeals Court Scales Back Freeze on Firing Consumer Bureau Employees**\
 `The order reversed some parts of an injunction a federal judge said was needed to prevent the Consumer Financial Protection Bureau from being illegally dismantled.`\
 https://nytimes.com/2025/04/11/business/cfpb-ruling-appeals-court.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/04/11/crosswords/daily-puzzle-2025-04-12.html
 **Bryson DeChambeau's surge, Justin Rose's staying power, more to know from Masters Round 2**\
 `Should he win, Rose would set Masters records for oldest first-time winner and most starts (20) before earning a first green jacket.`\
 https://nytimes.com/athletic/6273568/2025/04/11/masters-2025-round-2-dechambeau-rose-mcilroy/
-
-**Sacramento River Cats abruptly end 'Gold Diggers' campaign: 'Our approach was wrong'**\
-`The River Cats took down a video from their social media pages after its sexist tropes created a backlash.`\
-https://nytimes.com/athletic/6273697/2025/04/11/sacramento-river-cats-gold-diggers/
 
