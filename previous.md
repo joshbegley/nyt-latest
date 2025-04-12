@@ -1,4 +1,8 @@
-**DeChambeau's surge, Rose's staying power and more to know from the Masters Round 2**\
+**Get on the Board**\
+`Jesse Cohn’s Saturday debut puzzle is full of sneak attacks.`\
+https://nytimes.com/2025/04/11/crosswords/daily-puzzle-2025-04-12.html
+
+**Bryson DeChambeau's surge, Justin Rose's staying power, more to know from Masters Round 2**\
 `Should he win, Rose would set Masters records for oldest first-time winner and most starts (20) before earning a first green jacket.`\
 https://nytimes.com/athletic/6273568/2025/04/11/masters-2025-round-2-dechambeau-rose-mcilroy/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/11/nyregion/jonathan-braun-arrest-trump-commute-sent
 **Dodgers' Freddie Freeman returns from IL on his bobblehead night**\
 `Freeman played in only three games this season before going on the IL with an ankle sprain on April 3.`\
 https://nytimes.com/athletic/6273563/2025/04/11/freddie-freeman-return-injury-dodgers-bobblehead/
-
-**A New Policy Points Up a Musk Obsession**\
-`As Elon Musk continues to argue that Social Security drives illegal immigration, a new effort at the agency aims to curb it.`\
-https://nytimes.com/2025/04/11/us/politics/social-security-dead-migrants-list-musk-doge.html
 
