@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6273889/2025/04/11/anthony-edwards-timberwolves-tec
 `\
 https://nytimes.com/athletic/6273889/2025/04/11/anthony-edwards-timberwolves-technical/
 
+**Timberwolves' Anthony Edwards facing 1-game suspension after 18th technical foul**\
+`The star guard’s likely absence against Utah could complicate Minnesota's pursuit of a top-six seed in the West.
+`\
+https://nytimes.com/athletic/6273889/2025/04/11/anthony-edwards-timberwolves-technical/
+
 **Cam Smith hits first major-league home run as Astros rout Angels**\
 `The 22-year-old also hit a double and raised his OPS to .747 on the season.`\
 https://nytimes.com/athletic/6273958/2025/04/11/astros-cam-smith-first-career-home-run/
