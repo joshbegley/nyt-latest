@@ -1,5 +1,9 @@
+**CJ Carr shines in Notre Dame spring game, rising to the top of the QB competition**\
+`All three quarterbacks looked like college starters. That doesn't mean they all looked the same.`\
+https://nytimes.com/athletic/6275029/2025/04/12/qb-cj-carr-shines-notre-dame-spring-game/
+
 **A's-Mets game in Sacramento interrupted by medical cart malfunction**\
-`Mets broadcasters Gary Cohen and Ron Darling poked fun at the situation, saying, "This is something out of 'Keystone Cops.'"`\
+`Mets broadcasters Gary Cohen and Ron Darling poked fun at the situation, saying, "This is something out of 'Keystone Cops.’"`\
 https://nytimes.com/athletic/6274999/2025/04/12/athletics-mets-cart-pushed-off-field/
 
 **State Dept. says wrongfully deported Maryland man is alive and in El Salvador.**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6273537/2025/04/12/ny-rangers-2025-nhl-playoffs-eli
 **'Fire, passion and energy': How Georgia aims to restore itself to glory**\
 `Coach Kirby Smart mentioned "fire, passion, energy" constantly in practices, meetings and news conferences this spring.`\
 https://nytimes.com/athletic/6274908/2025/04/12/georgia-football-spring-game-2025/
-
-**Judge’s Ruling Expands Medical Exceptions in Idaho Abortion Ban**\
-`In situations where a mother faces risk of death, the decision allows for abortions even when death isn’t imminent.`\
-https://nytimes.com/2025/04/12/us/idaho-abortion-medical-ban-exceptions-ruling.html
 

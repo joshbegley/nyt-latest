@@ -1,3 +1,7 @@
+**Twins demote struggling Jose Miranda to minors after base-running blunder: Source**\
+`Brooks Lee is expected to come off the injured list to replace Miranda in the Twins' underperforming lineup.`\
+https://nytimes.com/athletic/6275086/2025/04/12/twins-jose-miranda-demoted-base-running-blunder/
+
 **CJ Carr shines in Notre Dame spring game, rising to the top of the QB competition**\
 `All three quarterbacks looked like college starters. That doesn't mean they all looked the same.`\
 https://nytimes.com/athletic/6275029/2025/04/12/qb-cj-carr-shines-notre-dame-spring-game/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/12/crosswords/daily-puzzle-2025-04-13.html
 **Rangers eliminated from playoff contention a year after winning Presidents' Trophy**\
 `The Rangers' 2024-25 season will end Thursday with a home game against the Tampa Bay Lightning.`\
 https://nytimes.com/athletic/6273537/2025/04/12/ny-rangers-2025-nhl-playoffs-eliminated/
-
-**'Fire, passion and energy': How Georgia aims to restore itself to glory**\
-`Coach Kirby Smart mentioned "fire, passion, energy" constantly in practices, meetings and news conferences this spring.`\
-https://nytimes.com/athletic/6274908/2025/04/12/georgia-football-spring-game-2025/
 

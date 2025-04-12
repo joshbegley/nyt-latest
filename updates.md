@@ -1,3 +1,11 @@
+**CJ Carr shines in Notre Dame spring game, rising to the top of the QB competition**\
+`All three quarterbacks looked like college starters. That doesn't mean they all looked the same.`\
+https://nytimes.com/athletic/6275029/2025/04/12/qb-cj-carr-shines-notre-dame-spring-game/
+
+**A's-Mets game in Sacramento interrupted by medical cart malfunction**\
+`Mets broadcasters Gary Cohen and Ron Darling poked fun at the situation, saying, "This is something out of 'Keystone Cops.’"`\
+https://nytimes.com/athletic/6274999/2025/04/12/athletics-mets-cart-pushed-off-field/
+
 **A's-Mets game in Sacramento interrupted by medical cart malfunction**\
 `Mets broadcasters Gary Cohen and Ron Darling poked fun at the situation, saying, "This is something out of 'Keystone Cops.'"`\
 https://nytimes.com/athletic/6274999/2025/04/12/athletics-mets-cart-pushed-off-field/
