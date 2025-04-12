@@ -3,6 +3,15 @@
 `\
 https://nytimes.com/athletic/6273889/2025/04/12/anthony-edwards-timberwolves-technical-rescinded/
 
+**Sudanese Paramilitaries Kill Entire Clinic Staff in Famine-Struck Camp**\
+`Relief International said nine employees were killed when gunmen stormed the Zamzam camp in El Fasher, in the western Darfur region.`\
+https://nytimes.com/2025/04/12/world/africa/sudan-zamzam-clinic-staff-killed.html
+
+**Timberwolves' Anthony Edwards has 18th technical foul rescinded by NBA**\
+`The star guard’s likely absence against Utah could complicate Minnesota's pursuit of a top-six seed in the West.
+`\
+https://nytimes.com/athletic/6273889/2025/04/12/anthony-edwards-timberwolves-technical-rescinded/
+
 **Timberwolves' Anthony Edwards has 18th technical foul rescinded by NBA**\
 `The star guard’s likely absence against Utah could complicate Minnesota's pursuit of a top-six seed in the West.
 `\

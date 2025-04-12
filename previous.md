@@ -32,7 +32,7 @@ https://nytimes.com/athletic/6274763/2025/04/12/tennessee-nico-iamaleava-transfe
 https://nytimes.com/2025/04/12/us/politics/harvard-professors-trump-lawsuit-funding.html
 
 **Sudanese Paramilitaries Kill Entire Clinic Staff in Famine-Struck Camp**\
-`Refugees International said nine employees were killed when gunmen stormed the Zamzam camp in El Fasher, in the western Darfur region.`\
+`Relief International said nine employees were killed when gunmen stormed the Zamzam camp in El Fasher, in the western Darfur region.`\
 https://nytimes.com/2025/04/12/world/africa/sudan-zamzam-clinic-staff-killed.html
 
 **Manchester Arena Bomber’s Brother Is Accused of Attack on Prison Guards**\
