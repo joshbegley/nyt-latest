@@ -1,3 +1,23 @@
+**Before a Fatal Helicopter Crash, 2 Midair Breakdowns and Unpaid Bills**\
+`The charter firm whose helicopter plunged into the Hudson River, killing the pilot and a family of five, had been struggling financially, records show.`\
+https://nytimes.com/2025/04/12/nyregion/nyc-helicopter-family-crash.html
+
+**Endorsement by Mayor Adams Appears to Lift Sales of Kash Patel’s Book**\
+`The F.B.I. director saw sales of his book about the government’s “deep state” rise by nearly 800 percent after Mayor Eric Adams lavished praise on it.`\
+https://nytimes.com/2025/04/12/nyregion/adams-book-kash-patel.html
+
+**After Police Chase and Fiery Crash, an Agonizing Wait to Learn the Worst**\
+`Francisco Guzman Parra’s relatives worried that he was the driver killed when a stolen car rammed into an Upper Manhattan building. It took several days to find out.`\
+https://nytimes.com/2025/04/12/nyregion/guzman-inwood-crash-police.html
+
+**How an American Sign Language Artist Spends Their Sundays**\
+`Branden Kazen-Maddox makes time for mud massages, meditation and aerial hoop adventures.`\
+https://nytimes.com/2025/04/12/nyregion/brandon-kazen-maddox-asl.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/04/12/crosswords/spelling-bee-forum.html
+
 **Shocking effort by Wild on a night they could have made the playoffs: 4 takeaways**\
 `The Flames outworked and outplayed the Wild from start to finish en route to a 4-2 victory at the Saddledome.`\
 https://nytimes.com/athletic/6273383/2025/04/12/wild-lose-flames-playoff-chance/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6274099/2025/04/12/nikola-jokic-triple-double-nba-s
 **Yankees face 2 injury scares amid 'worst' weather conditions**\
 `Driving rain, heavy wind and bitter cold forced umpires to end Friday's game in the top of the sixth inning, handing the Yankees a 9-1 loss.`\
 https://nytimes.com/athletic/6274064/2025/04/12/yankees-injury-scares-weather-giants-stroman-gomez/
-
-**The New York Times in Print for Saturday, April 12, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/04/12/todays-new-york-times
-
-**Yankees' Marcus Stroman says he's a starter, but his days should be numbered**\
-`Yankees manager Aaron Boone pulled Stroman after the Giants batted around in the first inning of New York's 9-1 loss. `\
-https://nytimes.com/athletic/6273936/2025/04/12/yankees-lose-giants-marcus-stroman-pulled/
-
-**Oilers clinch playoffs for sixth straight season, but injuries mount**\
-`The Oilers are limping toward the playoffs, figuratively and literally.`\
-https://nytimes.com/athletic/6272732/2025/04/12/oilers-playoffs-clinch-2025/
-
-**West Ham are eyeing David for their summer rebuild. It's no surprise given their squad age**\
-`West Ham have the joint-oldest team in the Premier League. Going for the Canada forward points towards a more youthful future`\
-https://nytimes.com/athletic/6262005/2025/04/12/west-ham-jonathan-david-transfer-squad/
-
-**Arsenal are forging 'football heritage' in both the men's and women's Champions Leagues**\
-`Both Arsenal's men's and women's teams are marching on in the Champions League, laying the foundations for sustained success along the way`\
-https://nytimes.com/athletic/6269137/2025/04/12/arsenal-champions-league-europe/
 
