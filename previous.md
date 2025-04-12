@@ -1,3 +1,11 @@
+**Pistons' loss to Bucks cements sixth seed and a playoff meeting with the Knicks**\
+`Cade Cunningham and his Detroit teammates are eager to take the lessons they learned down the stretch into the playoffs.`\
+https://nytimes.com/athletic/6274194/2025/04/12/detroit-pistons-nba-playoffs-knicks/
+
+**Strong Winds Uproot Trees and Rattle Windows in Northern China**\
+`The city of Beijing advised residents to stay home as forecasters said the winds could be the city’s strongest in April in 70 years.`\
+https://nytimes.com/2025/04/12/world/asia/china-beijing-wind.html
+
 **Before a Fatal Helicopter Crash, 2 Midair Breakdowns and Unpaid Bills**\
 `The charter firm whose helicopter plunged into the Hudson River, killing the pilot and a family of five, had been struggling financially, records show.`\
 https://nytimes.com/2025/04/12/nyregion/nyc-helicopter-family-crash.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6271635/2025/04/12/twins-lose-tigers-david-festa-by
 **Why the Canadiens needed a loss to the Senators to learn a lesson winning has prevented**\
 `The Canadiens have been winning despite terrible starts, so it was appropriate they didn't clinch a playoff spot because of the same issue.`\
 https://nytimes.com/athletic/6274127/2025/04/12/canadiens-loss-senators-playoffs/
-
-**Nikola Jokić averages triple-double in NBA season, achieving rare feat**\
-`Jokić became the third player in NBA history with the mark, joining Oscar Robertson and Russell Westbrook.`\
-https://nytimes.com/athletic/6274099/2025/04/12/nikola-jokic-triple-double-nba-season/
-
-**Yankees face 2 injury scares amid 'worst' weather conditions**\
-`Driving rain, heavy wind and bitter cold forced umpires to end Friday's game in the top of the sixth inning, handing the Yankees a 9-1 loss.`\
-https://nytimes.com/athletic/6274064/2025/04/12/yankees-injury-scares-weather-giants-stroman-gomez/
 
