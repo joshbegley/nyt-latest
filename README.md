@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6266578/2025/04/12/manchester-city-crystal-palace-d
 `Sonia Bampostor's side are top of the WSL and into the semi-finals of the Champions League, having already won the League Cup.`\
 https://nytimes.com/athletic/6274349/2025/04/12/chelsea-women-quadruple-fa-cup-final/
 
-**Trump Administration Live Updates: Trump Seeks to Turn Border Land Into ‘Military Installation’**\
+**Trump Administration Live Updates: New Rule Exempts Smartphones and Other Electronics From Most Tariffs**\
 ``\
 https://nytimes.com/live/2025/04/12/us/trump-administration-news
 
