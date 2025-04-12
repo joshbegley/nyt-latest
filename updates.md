@@ -1,3 +1,15 @@
+**Nico Iamaleava’s holdout ends in a breakup with Tennessee as Vols move on**\
+`The news comes after attempts to re-negotiate his NIL went public, creating what essentially became an NFL-style holdout.`\
+https://nytimes.com/athletic/6274390/2025/04/12/tennessee-qb-transferring-nico-iamaleava-college-football/
+
+**Both Sides Now**\
+`John Kugelman’s latest Sunday puzzle is here! Are you for or against?`\
+https://nytimes.com/2025/04/12/crosswords/daily-puzzle-2025-04-13.html
+
+**Rangers eliminated from playoff contention a year after winning Presidents' Trophy**\
+`The Rangers' 2024-25 season will end Thursday with a home game against the Tampa Bay Lightning.`\
+https://nytimes.com/athletic/6273537/2025/04/12/ny-rangers-2025-nhl-playoffs-eliminated/
+
 **Timberwolves' Anthony Edwards has 18th technical foul rescinded by NBA**\
 `The star guard’s likely absence against Utah could complicate Minnesota's pursuit of a top-six seed in the West.
 `\
