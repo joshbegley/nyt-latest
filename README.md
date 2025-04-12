@@ -1,3 +1,7 @@
+**Senators owner Michael Andlauer talks draft-pick penalty, playoff preparations**\
+`The Senators owner was also asked about the possibility of playing the Toronto Maple Leafs in the opening round of the postseason.`\
+https://nytimes.com/athletic/6273760/2025/04/11/ottawa-senators-owner-nhl-draft-playoffs/
+
 **How to watch Masters 2025: Round 3 tee times, groupings, odds, info for Saturday**\
 `Round 3 of the Masters goes down Saturday morning and afternoon. The major tournament runs through Sunday at Augusta National.`\
 https://nytimes.com/athletic/6272729/2025/04/11/masters-2025-round-3-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/11/us/politics/trump-elon-musk-ice-threats.html
 **Military Judge Throws Out Sept. 11 Case Confession as Obtained Through Torture**\
 `The critical question of whether the prisoner’s 2007 interrogations could be used at his capital trial has shadowed the case for years.`\
 https://nytimes.com/2025/04/11/us/politics/sept-11-confession-torture.html
-
-**Padres' Jake Cronenworth on injured list with rib fracture, recovery timetable unclear**\
-`San Diego also selected the contract of Tyler Wade and transferred right-handed starter Matt Waldron to the 60-day IL.`\
-https://nytimes.com/athletic/6273477/2025/04/11/padres-jake-cronenworth-injury/
 
