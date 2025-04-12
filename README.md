@@ -1,3 +1,7 @@
+**'Fire, passion and energy': How Georgia aims to restore itself to glory**\
+`Coach Kirby Smart mentioned "fire, passion, energy" constantly in practices, meetings and news conferences this spring.`\
+https://nytimes.com/athletic/6274908/2025/04/12/georgia-football-spring-game-2025/
+
 **Judge’s Ruling Expands Medical Exceptions in Idaho Abortion Ban**\
 `In situations where a mother faces risk of death, the decision allows for abortions even when death isn’t imminent.`\
 https://nytimes.com/2025/04/12/us/idaho-abortion-medical-ban-exceptions-ruling.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6274774/2025/04/12/arsenal-brentford-martinelli-nor
 **Spring Snow Hits the Northeast**\
 `As much as five inches of snow fell across an area stretching from Albany, N.Y., to Maine on Saturday.`\
 https://nytimes.com/video/weather/100000010107545/snow-spring-northeast.html
-
-**What does Nico Iamaleava-Tennessee divorce mean for college sports, NIL?**\
-`Iamaleava’s name will go down in college football history as one that created a turning point for players, in multiple ways.`\
-https://nytimes.com/athletic/6274763/2025/04/12/tennessee-nico-iamaleava-transfer-portal-nil-contract/
 
