@@ -1,3 +1,7 @@
+**Harvard Professors Sue Trump Administration Over Threat to Cut Funding**\
+`The administration is reviewing about $9 billion in federal funding that the university receives.`\
+https://nytimes.com/2025/04/12/us/politics/harvard-professors-trump-lawsuit-funding.html
+
 **Sudanese Paramilitaries Kill Entire Clinic Staff in Famine-Struck Camp**\
 `Refugees International said nine employees were killed when gunmen stormed the Zamzam camp in El Fasher, in the western Darfur region.`\
 https://nytimes.com/2025/04/12/world/africa/sudan-zamzam-clinic-staff-killed.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6274611/2025/04/12/bahrain-grand-prix-qualifying-os
 **Nuno warns Forest on CL spot: 'Nobody will give us anything'**\
 `Forest were dealt a blow to their hopes as Abdoulaye Doucoure scored a 94th-minute winner for Everton on Saturday at the City Ground.`\
 https://nytimes.com/athletic/6274662/2025/04/12/nuno-nottingham-forest-champions-league/
-
-**Hurzeler: Brighton 'shouldn't talk about Europe' after Leicester draw**\
-`Brighton led twice against Leicester through Joao Pedro penalties in both halves.`\
-https://nytimes.com/athletic/6274652/2025/04/12/fabian-hurzeler-brighton-leicester-europe/
 
