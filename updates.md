@@ -1,3 +1,7 @@
+**The Briefing: Arsenal 1 Brentford 1 - Arteta's side held to a fourth league draw in six**\
+`Art de Roche and Liam Tharme analyse the main talking points from Arsenal's draw against Brentford`\
+https://nytimes.com/athletic/6266580/2025/04/12/arsenal-brentford-analysis-premier-league/
+
 **Cardinals place Masyn Winn on IL but believe shortstop won't miss much time**\
 `While back injuries are finicky, the Cardinals do not believe Winn will miss much time based on his prior stints.`\
 https://nytimes.com/athletic/6274698/2025/04/12/cardinals-masyn-winn-il-injury/
