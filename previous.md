@@ -1,3 +1,11 @@
+**A's-Mets game in Sacramento interrupted by medical cart malfunction**\
+`Mets broadcasters Gary Cohen and Ron Darling poked fun at the situation, saying, "This is something out of 'Keystone Cops.'"`\
+https://nytimes.com/athletic/6274999/2025/04/12/athletics-mets-cart-pushed-off-field/
+
+**State Dept. says wrongfully deported Maryland man is alive and in El Salvador.**\
+`By Tim Balk`\
+https://nytimes.com/live/2025/04/12/us/trump-administration-news/state-dept-says-wrongfully-deported-maryland-man-is-alive-and-in-el-salvador
+
 **With 2 goals and 1 powerful shift, Adam Fantilli helps Blue Jackets keep playoff hopes alive**\
 `Columbus can still cling to its faint playoff hopes after a 7-0 win over Washington on Saturday.`\
 https://nytimes.com/athletic/6274821/2025/04/12/blue-jackets-nhl-playoff-hopes-adam-fantilli/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6274908/2025/04/12/georgia-football-spring-game-202
 **Judge’s Ruling Expands Medical Exceptions in Idaho Abortion Ban**\
 `In situations where a mother faces risk of death, the decision allows for abortions even when death isn’t imminent.`\
 https://nytimes.com/2025/04/12/us/idaho-abortion-medical-ban-exceptions-ruling.html
-
-**Can You Stop an Outbreak of a Contagious Disease?**\
-`An interactive explanation of outbreaks, vaccines and herd immunity.`\
-https://nytimes.com/interactive/2025/04/12/upshot/measles-herd-immunity-explainer.html
-
-**Spencer Arrighetti says he never saw the ball that broke his thumb during BP**\
-`The Astros righty heard someone yell that a ball was coming. It hit him as he tried to protect himself: "A really, really freak accident."`\
-https://nytimes.com/athletic/6274812/2025/04/12/astros-spencer-arrighetti-injury-batting-practice/
 

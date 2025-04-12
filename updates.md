@@ -1,3 +1,11 @@
+**A's-Mets game in Sacramento interrupted by medical cart malfunction**\
+`Mets broadcasters Gary Cohen and Ron Darling poked fun at the situation, saying, "This is something out of 'Keystone Cops.'"`\
+https://nytimes.com/athletic/6274999/2025/04/12/athletics-mets-cart-pushed-off-field/
+
+**State Dept. says wrongfully deported Maryland man is alive and in El Salvador.**\
+`By Tim Balk`\
+https://nytimes.com/live/2025/04/12/us/trump-administration-news/state-dept-says-wrongfully-deported-maryland-man-is-alive-and-in-el-salvador
+
 **With 2 goals and 1 powerful shift, Adam Fantilli helps Blue Jackets keep playoff hopes alive**\
 `Columbus can still cling to its faint playoff hopes after a 7-0 win over Washington on Saturday.`\
 https://nytimes.com/athletic/6274821/2025/04/12/blue-jackets-nhl-playoff-hopes-adam-fantilli/
