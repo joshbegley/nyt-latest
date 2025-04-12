@@ -1,3 +1,7 @@
+**Trump cutbacks force layoffs at U.S.-backed broadcaster in the Middle East.**\
+`By Tim Balk`\
+https://nytimes.com/live/2025/04/12/us/trump-administration-news/trump-cutbacks-force-layoffs-at-us-backed-broadcaster-in-the-middle-east
+
 **The Briefing: Arsenal 1 Brentford 1 - Arteta's side held to a fourth league draw in six**\
 `Art de Roche and Liam Tharme analyse the main talking points from Arsenal's draw against Brentford`\
 https://nytimes.com/athletic/6266580/2025/04/12/arsenal-brentford-analysis-premier-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6274032/2025/04/12/nuggets-grizzlies-nikola-jokic-a
 **Newcastle head coach Howe hospitalised; to miss Man Utd game**\
 `Jason Tindall will be on the touchline for Newcastle on Sunday alongside fellow assistant head coach Graeme Jones.`\
 https://nytimes.com/athletic/6274579/2025/04/12/eddie-howe-newcastle-man-united-illness/
-
-**Who should succeed Paul Mullin as Wrexham's player of the season?**\
-`The striker has won the trophy for three years in a row but it will go to a different player this time`\
-https://nytimes.com/athletic/6269255/2025/04/12/wrexham-player-of-the-season/
 
