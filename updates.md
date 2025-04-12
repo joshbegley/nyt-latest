@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6273889/2025/04/12/anthony-edwards-timberwolves-technical-rescinded/
 
+**Timberwolves' Anthony Edwards has 18th technical foul rescinded by NBA**\
+`The star guard’s likely absence against Utah could complicate Minnesota's pursuit of a top-six seed in the West.
+`\
+https://nytimes.com/athletic/6273889/2025/04/12/anthony-edwards-timberwolves-technical-rescinded/
+
 **F1's Lando Norris feels ‘clueless’ in Bahrain. Oscar Piastri has chance to take advantage**\
 `On a weekend that McLaren was tipped to dominate by its rivals, it was a shock that it didn't lock out the front row.`\
 https://nytimes.com/athletic/6274815/2025/04/12/f1-formula-1-bahrain-lando-norris-oscar-piastri/
