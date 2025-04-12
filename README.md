@@ -1,3 +1,11 @@
+**Newcastle head coach Howe hospitalised; to miss Man Utd game**\
+`Jason Tindall will be on the touchline for Newcastle on Sunday alongside fellow assistant head coach Graeme Jones.`\
+https://nytimes.com/athletic/6274579/2025/04/12/eddie-howe-newcastle-man-united-illness/
+
+**Who should succeed Paul Mullin as Wrexham's player of the season?**\
+`The striker has won the trophy for three years in a row but it will go to a different player this time`\
+https://nytimes.com/athletic/6269255/2025/04/12/wrexham-player-of-the-season/
+
 **Max Kozloff, Art Critic Who Became an Artist Himself, Dies at 91**\
 `He wrote extensively about the New York art scene in the 1960s and ’70s, then shifted to become a prominent street photographer.`\
 https://nytimes.com/2025/04/12/arts/max-kozloff-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/12/us/masters-tournament-golf.html
 **Trump exempts smartphones and computers from new tariffs.**\
 `A long list of electronic products appeared to get a reprieve from at least some of the levies on China, which had been expected to take a toll on tech giants like Apple.`\
 https://nytimes.com/live/2025/04/12/us/trump-administration-news/trump-electronics-tariffs
-
-**'It's a blessing': Giannis dominates in Bucks' win over Pistons and teammates are grateful**\
-`"If anyone's a fan of basketball and you get to watch — every night —  the dominance of what Giannis does, it's unbelievable."`\
-https://nytimes.com/athletic/6274047/2025/04/12/bucks-giannis-antetokounmpo-pistons-triple-double/
-
-**What can 'ferocious' Alexander Nikishin do for the Hurricanes’ defense?**\
-`Carolina's top prospect has the potential to be a Chris Pronger-like force on the blue line.`\
-https://nytimes.com/athletic/6274179/2025/04/12/alexander-nikishin-hurricanes-prospect/
 
