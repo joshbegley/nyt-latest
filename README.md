@@ -1,3 +1,7 @@
+**How to watch Masters 2025: Round 3 tee times, groupings, odds, info for Saturday**\
+`Round 3 of the Masters goes down Saturday morning and afternoon. The major tournament runs through Sunday at Augusta National.`\
+https://nytimes.com/athletic/6272729/2025/04/11/masters-2025-round-3-how-to-watch/
+
 **Efforts to Resentence Menendez Brothers Can Proceed, Judge Says**\
 `The men, who killed their parents in 1989, are pursuing several efforts to be released after decades in prison.`\
 https://nytimes.com/2025/04/11/arts/menendez-brothers-resentencing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/11/us/politics/sept-11-confession-torture.html
 **Padres' Jake Cronenworth on injured list with rib fracture, recovery timetable unclear**\
 `San Diego also selected the contract of Tyler Wade and transferred right-handed starter Matt Waldron to the 60-day IL.`\
 https://nytimes.com/athletic/6273477/2025/04/11/padres-jake-cronenworth-injury/
-
-**Cooper Flagg doesn't plan on watching Duke's Final Four loss**\
-`"I haven't watched any film from the game yet," Flagg told The Athletic on Friday at the John R. Wooden Award availability.`\
-https://nytimes.com/athletic/6273410/2025/04/11/cooper-flagg-duke-wooden-award/
 
