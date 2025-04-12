@@ -1,3 +1,8 @@
+**Timberwolves' Anthony Edwards has 18th technical foul rescinded by NBA**\
+`The star guard’s likely absence against Utah could complicate Minnesota's pursuit of a top-six seed in the West.
+`\
+https://nytimes.com/athletic/6273889/2025/04/12/anthony-edwards-timberwolves-technical-rescinded/
+
 **Martinelli: Norgaard deserved red card, challenge 'could have broken my leg'**\
 `Norgaard received a yellow card for the tackle during Brentford's 1-1 draw with Arsenal on Saturday.`\
 https://nytimes.com/athletic/6274774/2025/04/12/arsenal-brentford-martinelli-norgaard-tackle/
@@ -33,8 +38,4 @@ https://nytimes.com/athletic/6266580/2025/04/12/arsenal-brentford-analysis-premi
 **Cardinals place Masyn Winn on IL but believe shortstop won't miss much time**\
 `While back injuries are finicky, the Cardinals do not believe Winn will miss much time based on his prior stints.`\
 https://nytimes.com/athletic/6274698/2025/04/12/cardinals-masyn-winn-il-injury/
-
-**The agony and ecstasy of watching Leeds move to within touching distance of promotion**\
-`Daniel Farke's side are five points clear of third-placed Sheffield United but, as ever, they are not making life easy for themselves`\
-https://nytimes.com/athletic/6274595/2025/04/12/leeds-preston-championship-promotion/
 
