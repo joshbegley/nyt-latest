@@ -1,3 +1,7 @@
+**Efforts to Resentence Menendez Brothers Can Proceed, Judge Says**\
+`The men, who killed their parents in 1989, are pursuing several efforts to be released after decades in prison.`\
+https://nytimes.com/2025/04/11/arts/menendez-brothers-resentencing.html
+
 **Fred Couples is timeless. We can all learn something from him**\
 `Watching him, one thought tolled over and over in my head: Take your time, but don’t go slow.`\
 https://nytimes.com/athletic/6273679/2025/04/11/masters-2025-fred-couples-age/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6273477/2025/04/11/padres-jake-cronenworth-injury/
 **Cooper Flagg doesn't plan on watching Duke's Final Four loss**\
 `"I haven't watched any film from the game yet," Flagg told The Athletic on Friday at the John R. Wooden Award availability.`\
 https://nytimes.com/athletic/6273410/2025/04/11/cooper-flagg-duke-wooden-award/
-
-**NFL updates helmet rules to add more ‘Guardian Cap optional’ models**\
-`The league's updates are based on “head impact severity” reviews conducted with input from the NFL Players Association.`\
-https://nytimes.com/athletic/6273581/2025/04/11/nfl-helmet-rules-guardian-caps/
 

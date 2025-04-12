@@ -1,3 +1,7 @@
+**Fred Couples is timeless. We can all learn something from him**\
+`Watching him, one thought tolled over and over in my head: Take your time, but don’t go slow.`\
+https://nytimes.com/athletic/6273679/2025/04/11/masters-2025-fred-couples-age/
+
 **Freed From Prison by Trump and Now Facing the Prospect of Going Back**\
 `At a hearing this week, witnesses described behavior by Jonathan Braun that could result in his being locked up again.`\
 https://nytimes.com/2025/04/11/nyregion/jonathan-braun-arrest-trump-commute-sentence.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6273410/2025/04/11/cooper-flagg-duke-wooden-award/
 **NFL updates helmet rules to add more ‘Guardian Cap optional’ models**\
 `The league's updates are based on “head impact severity” reviews conducted with input from the NFL Players Association.`\
 https://nytimes.com/athletic/6273581/2025/04/11/nfl-helmet-rules-guardian-caps/
-
-**Isaac Howard wins Hobey Baker Award as top player in men's college hockey**\
-`Junior led Michigan State in scoring this season with 26 goals and 52 points in 37 games, 21 more points than his nearest teammate.`\
-https://nytimes.com/athletic/6236241/2025/04/11/isaac-howard-wins-hobey-baker-award-college-hockey-top-player/
 

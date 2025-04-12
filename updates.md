@@ -1,3 +1,7 @@
+**Fred Couples is timeless. We can all learn something from him**\
+`Watching him, one thought tolled over and over in my head: Take your time, but don’t go slow.`\
+https://nytimes.com/athletic/6273679/2025/04/11/masters-2025-fred-couples-age/
+
 **USMNT Gold Cup schedule may get spicy with Mexico, Canada possibilities**\
 `The USMNT's campaign kicks off against Trinidad and Tobago at PayPal Park in San Jose on June 15.`\
 https://nytimes.com/athletic/6273533/2025/04/11/concacaf-gold-cup-usmnt-canada-mexico/
