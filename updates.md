@@ -1,3 +1,12 @@
+**Hamilton says he's 'not doing a good enough job' at Ferrari**\
+`Hamilton qualified almost a second behind polesitter Oscar Piastri and six tenths behind Ferrari teammate Charles Leclerc.`\
+https://nytimes.com/athletic/6274768/2025/04/12/lewis-hamilton-ferrari-bahrain-qualifying/
+
+**Timberwolves' Anthony Edwards has 18th technical foul rescinded by NBA**\
+`The star guard’s likely absence against Utah could complicate Minnesota's pursuit of a top-six seed in the West.
+`\
+https://nytimes.com/athletic/6273889/2025/04/12/anthony-edwards-timberwolves-technical-rescinded/
+
 **Timberwolves' Anthony Edwards has 18th technical foul rescinded by NBA**\
 `The star guard’s likely absence against Utah could complicate Minnesota's pursuit of a top-six seed in the West.
 `\
