@@ -1,3 +1,7 @@
+**Trump cutbacks force layoffs at U.S.-backed broadcaster in the Middle East.**\
+`By Tim Balk`\
+https://nytimes.com/live/2025/04/12/us/trump-administration-news/trump-cutbacks-force-layoffs-at-us-backed-broadcaster-in-the-middle-east
+
 **The Briefing: Arsenal 1 Brentford 1 - Arteta's side held to a fourth league draw in six**\
 `Art de Roche and Liam Tharme analyse the main talking points from Arsenal's draw against Brentford`\
 https://nytimes.com/athletic/6266580/2025/04/12/arsenal-brentford-analysis-premier-league/
