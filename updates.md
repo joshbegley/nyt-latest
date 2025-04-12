@@ -1,3 +1,7 @@
+**The agony and ecstasy of watching Leeds move to within touching distance of promotion**\
+`Daniel Farke's side are five points clear of third-placed Sheffield United but, as ever, they are not making life easy for themselves`\
+https://nytimes.com/athletic/6274595/2025/04/12/leeds-preston-championship-promotion/
+
 **Piastri pole, Ocon's heavy crash and stewards get involved - Bahrain GP qualifying briefing**\
 `McLaren's Oscar Piastri secures pole for the Bahrain Grand Prix while teammate Lando Norris starts sixth on the grid`\
 https://nytimes.com/athletic/6274611/2025/04/12/bahrain-grand-prix-qualifying-oscar-piastri-mclaren-pole/
