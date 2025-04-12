@@ -1,3 +1,8 @@
+**Timberwolves' Anthony Edwards facing 1-game suspension after 18th technical foul**\
+`The star guard’s likely absence against Utah could complicate Minnesota's pursuit of a top-six seed in the West.
+`\
+https://nytimes.com/athletic/6273889/2025/04/11/anthony-edwards-timberwolves-technical/
+
 **Quote of the Day: No-Nonsense Heiress Leading New York’s Police**\
 `Quotation of the Day for Saturday, April 12, 2025.`\
 https://nytimes.com/2025/04/11/pageoneplus/quote-of-the-day-no-nonsense-heiress-leading-new-yorks-police.html
