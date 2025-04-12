@@ -1,3 +1,15 @@
+**Martinelli: Norgaard deserved red card, challenge 'could have broken my leg'**\
+`Norgaard received a yellow card for the tackle during Brentford's 1-1 draw with Arsenal on Saturday.`\
+https://nytimes.com/athletic/6274774/2025/04/12/arsenal-brentford-martinelli-norgaard-tackle/
+
+**Spring Snow Hits the Northeast**\
+`As much as five inches of snow fell across an area stretching from Albany, N.Y., to Maine on Saturday.`\
+https://nytimes.com/video/weather/100000010107545/snow-spring-northeast.html
+
+**What does Nico Iamaleava-Tennessee divorce mean for college sports, NIL?**\
+`Iamaleava’s name will go down in college football history as one that created a turning point for players, in multiple ways.`\
+https://nytimes.com/athletic/6274763/2025/04/12/tennessee-nico-iamaleava-transfer-portal-nil-contract/
+
 **Harvard Professors Sue Trump Administration Over Threat to Cut Funding**\
 `The administration is reviewing about $9 billion in federal funding that the university receives.`\
 https://nytimes.com/2025/04/12/us/politics/harvard-professors-trump-lawsuit-funding.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6274698/2025/04/12/cardinals-masyn-winn-il-injury/
 **The agony and ecstasy of watching Leeds move to within touching distance of promotion**\
 `Daniel Farke's side are five points clear of third-placed Sheffield United but, as ever, they are not making life easy for themselves`\
 https://nytimes.com/athletic/6274595/2025/04/12/leeds-preston-championship-promotion/
-
-**British Government Takes Control of Country’s Last Major Steel Mill**\
-`London says it acted to prevent the plant’s Chinese owners from closing the plant, threatening jobs and national security.`\
-https://nytimes.com/2025/04/12/business/british-government-steel-mill.html
-
-**Piastri pole, Ocon's heavy crash and stewards get involved - Bahrain GP qualifying briefing**\
-`McLaren's Oscar Piastri secures pole for the Bahrain Grand Prix while teammate Lando Norris starts sixth on the grid`\
-https://nytimes.com/athletic/6274611/2025/04/12/bahrain-grand-prix-qualifying-oscar-piastri-mclaren-pole/
-
-**Nuno warns Forest on CL spot: 'Nobody will give us anything'**\
-`Forest were dealt a blow to their hopes as Abdoulaye Doucoure scored a 94th-minute winner for Everton on Saturday at the City Ground.`\
-https://nytimes.com/athletic/6274662/2025/04/12/nuno-nottingham-forest-champions-league/
 
