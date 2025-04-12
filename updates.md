@@ -1,3 +1,7 @@
+**Cubs' Justin Steele reviewing all options after left elbow flare-up**\
+`The initial injury designation — left elbow tendinitis — was the same one that Steele experienced late last season. `\
+https://nytimes.com/athletic/6273209/2025/04/11/chicago-cubs-justin-steele-injury-2025/
+
 **Get on the Board**\
 `Jesse Cohn’s Saturday debut puzzle is full of sneak attacks.`\
 https://nytimes.com/2025/04/11/crosswords/daily-puzzle-2025-04-12.html
