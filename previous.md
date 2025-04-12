@@ -1,3 +1,7 @@
+**With 2 goals and 1 powerful shift, Adam Fantilli helps Blue Jackets keep playoff hopes alive**\
+`Columbus can still cling to its faint playoff hopes after a 7-0 win over Washington on Saturday.`\
+https://nytimes.com/athletic/6274821/2025/04/12/blue-jackets-nhl-playoff-hopes-adam-fantilli/
+
 **At Least One Dead After Private Plane Crashes in Upstate New York**\
 `The plane, a Mitsubishi MU-2B carrying two passengers, went down Saturday in the town of Copake close to the Massachusetts border, according to the authorities.`\
 https://nytimes.com/2025/04/12/nyregion/ny-copake-fatal-plane-crash.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/04/12/upshot/measles-herd-immunity-explaine
 **Spencer Arrighetti says he never saw the ball that broke his thumb during BP**\
 `The Astros righty heard someone yell that a ball was coming. It hit him as he tried to protect himself: "A really, really freak accident."`\
 https://nytimes.com/athletic/6274812/2025/04/12/astros-spencer-arrighetti-injury-batting-practice/
-
-**F1's Lando Norris feels ‘clueless’ in Bahrain. Oscar Piastri has chance to take advantage**\
-`On a weekend that McLaren was tipped to dominate by its rivals, it was a shock that it didn't lock out the front row.`\
-https://nytimes.com/athletic/6274815/2025/04/12/f1-formula-1-bahrain-lando-norris-oscar-piastri/
 
