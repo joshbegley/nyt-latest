@@ -1,3 +1,7 @@
+**How to watch Masters 2025: Round 3 tee times, groupings, odds, info for Saturday**\
+`Round 3 of the Masters goes down Saturday morning and afternoon. The major tournament runs through Sunday at Augusta National.`\
+https://nytimes.com/athletic/6272729/2025/04/11/masters-2025-round-3-how-to-watch/
+
 **Efforts to Resentence Menendez Brothers Can Proceed, Judge Says**\
 `The men, who killed their parents in 1989, are pursuing several efforts to be released after decades in prison.`\
 https://nytimes.com/2025/04/11/arts/menendez-brothers-resentencing.html
