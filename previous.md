@@ -1,3 +1,7 @@
+**What Spring? Snow Blankets the Northeast.**\
+`Two to five inches of snow fell over an area stretching from Albany, N.Y., to Maine overnight Friday into Saturday morning, forecasters said.`\
+https://nytimes.com/2025/04/12/us/snow-northeast-spring.html
+
 **I’m Powerless Against This Flourless Chocolate Cake**\
 `Genevieve Ko’s recipe is special-feeling, elegant and so simple to make — no fancy equipment or advanced baking skills required.`\
 https://nytimes.com/2025/04/12/dining/passover-flourless-chocolate-cake.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6272358/2025/04/12/new-york-giants-draft-plans-quar
 **The Briefing: Man City 5 Crystal Palace 2 - De Bruyne inspires a remarkable comeback**\
 `City were 2-0 down within 21 minutes, level by half-time and then comfortable winners. Sam Lee dissects the key talking points…`\
 https://nytimes.com/athletic/6266578/2025/04/12/manchester-city-crystal-palace-de-bruyne-comeback-result/
-
-**Chelsea Women keep quadruple hopes alive with FA Cup SF win vs Liverpool**\
-`Sonia Bampostor's side are top of the WSL and into the semi-finals of the Champions League, having already won the League Cup.`\
-https://nytimes.com/athletic/6274349/2025/04/12/chelsea-women-quadruple-fa-cup-final/
 

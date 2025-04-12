@@ -1,3 +1,7 @@
+**What Spring? Snow Blankets the Northeast.**\
+`Two to five inches of snow fell over an area stretching from Albany, N.Y., to Maine overnight Friday into Saturday morning, forecasters said.`\
+https://nytimes.com/2025/04/12/us/snow-northeast-spring.html
+
 **I’m Powerless Against This Flourless Chocolate Cake**\
 `Genevieve Ko’s recipe is special-feeling, elegant and so simple to make — no fancy equipment or advanced baking skills required.`\
 https://nytimes.com/2025/04/12/dining/passover-flourless-chocolate-cake.html
