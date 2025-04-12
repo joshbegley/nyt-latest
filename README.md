@@ -1,3 +1,7 @@
+**Twins notes: David Festa's first start, Byron Buxton's legs and Austin Martin injured**\
+`Plus the Twins' plans for Zebby Matthews and an update on Brooks Lee's rehab assignment at Triple-A St. Paul.`\
+https://nytimes.com/athletic/6271635/2025/04/12/twins-lose-tigers-david-festa-byron-buxton-austin-martin/
+
 **Why the Canadiens needed a loss to the Senators to learn a lesson winning has prevented**\
 `The Canadiens have been winning despite terrible starts, so it was appropriate they didn't clinch a playoff spot because of the same issue.`\
 https://nytimes.com/athletic/6274127/2025/04/12/canadiens-loss-senators-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6269137/2025/04/12/arsenal-champions-league-europe/
 **The bizarre story of a football prodigy, a stolen Ming vase and a Japanese extradition row**\
 `The life of Kaine Wright, once a promising player at West Ham, has the feel of a true crime documentary - this is his story`\
 https://nytimes.com/athletic/6266735/2025/04/12/kaine-wright-japan-extradition/
-
-**Mohamed Salah is already in the pantheon of Premier League greats - with more to come**\
-`The bad news for Liverpool's opponents is that Salah has a legacy to cement and plenty more records to break`\
-https://nytimes.com/athletic/6272292/2025/04/12/mohamed-salah-premier-league-goal-records/
 
