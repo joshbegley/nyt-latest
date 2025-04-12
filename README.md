@@ -1,3 +1,11 @@
+**Sudanese Paramilitaries Kill Entire Clinic Staff in Famine-Struck Camp**\
+`Refugees International said nine employees were killed when gunmen stormed the Zamzam camp in El Fasher, in the western Darfur region.`\
+https://nytimes.com/2025/04/12/world/africa/sudan-zamzam-clinic-staff-killed.html
+
+**Manchester Arena Bomber’s Brother Is Accused of Attack on Prison Guards**\
+`Hashem Abedi allegedly stabbed the officers with homemade weapons inside a high-security prison.`\
+https://nytimes.com/2025/04/12/world/europe/manchester-arena-bomber-attack-prison.html
+
 **Trump cutbacks force layoffs at U.S.-backed broadcaster in the Middle East.**\
 `By Tim Balk`\
 https://nytimes.com/live/2025/04/12/us/trump-administration-news/trump-cutbacks-force-layoffs-at-us-backed-broadcaster-in-the-middle-east
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6274662/2025/04/12/nuno-nottingham-forest-champions
 **Hurzeler: Brighton 'shouldn't talk about Europe' after Leicester draw**\
 `Brighton led twice against Leicester through Joao Pedro penalties in both halves.`\
 https://nytimes.com/athletic/6274652/2025/04/12/fabian-hurzeler-brighton-leicester-europe/
-
-**Nuggets find playoff-level intensity in win over Grizzlies after a tumultuous week**\
-`After firing their head coach and GM on Tuesday, the Nuggets rebounded with two wins this week, including a crucial one on Friday.`\
-https://nytimes.com/athletic/6274032/2025/04/12/nuggets-grizzlies-nikola-jokic-aaron-gordon/
-
-**Newcastle head coach Howe hospitalised; to miss Man Utd game**\
-`Jason Tindall will be on the touchline for Newcastle on Sunday alongside fellow assistant head coach Graeme Jones.`\
-https://nytimes.com/athletic/6274579/2025/04/12/eddie-howe-newcastle-man-united-illness/
 
