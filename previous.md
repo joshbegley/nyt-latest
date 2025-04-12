@@ -1,3 +1,7 @@
+**Nuggets find playoff-level intensity in win over Grizzlies after a tumultuous week**\
+`After firing their head coach and GM on Tuesday, the Nuggets rebounded with two wins this week, including a crucial one on Friday.`\
+https://nytimes.com/athletic/6274032/2025/04/12/nuggets-grizzlies-nikola-jokic-aaron-gordon/
+
 **Newcastle head coach Howe hospitalised; to miss Man Utd game**\
 `Jason Tindall will be on the touchline for Newcastle on Sunday alongside fellow assistant head coach Graeme Jones.`\
 https://nytimes.com/athletic/6274579/2025/04/12/eddie-howe-newcastle-man-united-illness/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6274444/2025/04/12/carlo-ancelotti-real-madrid-futu
 **The 2025 Masters**\
 `The weekend weather at the Masters Tournament is expected to be perfect for golf, and the third round began with the leader Justin Rose in a familiar position.`\
 https://nytimes.com/2025/04/12/us/masters-tournament-golf.html
-
-**Trump exempts smartphones and computers from new tariffs.**\
-`A long list of electronic products appeared to get a reprieve from at least some of the levies on China, which had been expected to take a toll on tech giants like Apple.`\
-https://nytimes.com/live/2025/04/12/us/trump-administration-news/trump-electronics-tariffs
 

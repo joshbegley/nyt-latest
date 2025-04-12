@@ -1,3 +1,7 @@
+**Nuggets find playoff-level intensity in win over Grizzlies after a tumultuous week**\
+`After firing their head coach and GM on Tuesday, the Nuggets rebounded with two wins this week, including a crucial one on Friday.`\
+https://nytimes.com/athletic/6274032/2025/04/12/nuggets-grizzlies-nikola-jokic-aaron-gordon/
+
 **Newcastle head coach Howe hospitalised; to miss Man Utd game**\
 `Jason Tindall will be on the touchline for Newcastle on Sunday alongside fellow assistant head coach Graeme Jones.`\
 https://nytimes.com/athletic/6274579/2025/04/12/eddie-howe-newcastle-man-united-illness/
