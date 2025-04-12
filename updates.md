@@ -1,3 +1,7 @@
+**Efforts to Resentence Menendez Brothers Can Proceed, Judge Says**\
+`The men, who killed their parents in 1989, are pursuing several efforts to be released after decades in prison.`\
+https://nytimes.com/2025/04/11/arts/menendez-brothers-resentencing.html
+
 **Fred Couples is timeless. We can all learn something from him**\
 `Watching him, one thought tolled over and over in my head: Take your time, but don’t go slow.`\
 https://nytimes.com/athletic/6273679/2025/04/11/masters-2025-fred-couples-age/
