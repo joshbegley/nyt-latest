@@ -1,3 +1,7 @@
+**Fear and Loyalty in the Trump Administration**\
+`The New York Times reporters Zolan Kanno-Youngs, Jonathan Swan and Hamed Aleaziz discuss how fear is driving President Trump’s policy agenda in his second term.`\
+https://nytimes.com/video/podcasts/100000010101453/trump-administration-fear-loyalty.html
+
 **Alanna Kennedy, toughest player in women's soccer?**\
 `'I guess I learned to be resilient pretty early on,' says Kennedy`\
 https://nytimes.com/athletic/6273407/2025/04/12/alanna-kennedy-australia-soccer-nwsl/
