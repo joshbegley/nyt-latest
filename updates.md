@@ -1,3 +1,8 @@
+**Timberwolves' Anthony Edwards has 18th technical foul rescinded by NBA**\
+`The star guard’s likely absence against Utah could complicate Minnesota's pursuit of a top-six seed in the West.
+`\
+https://nytimes.com/athletic/6273889/2025/04/12/anthony-edwards-timberwolves-technical-rescinded/
+
 **Martinelli: Norgaard deserved red card, challenge 'could have broken my leg'**\
 `Norgaard received a yellow card for the tackle during Brentford's 1-1 draw with Arsenal on Saturday.`\
 https://nytimes.com/athletic/6274774/2025/04/12/arsenal-brentford-martinelli-norgaard-tackle/
