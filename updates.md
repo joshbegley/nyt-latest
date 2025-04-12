@@ -1,3 +1,11 @@
+**Nuno warns Forest on CL spot: 'Nobody will give us anything'**\
+`Forest were dealt a blow to their hopes as Abdoulaye Doucoure scored a 94th-minute winner for Everton on Saturday at the City Ground.`\
+https://nytimes.com/athletic/6274662/2025/04/12/nuno-nottingham-forest-champions-league/
+
+**Hurzeler: Brighton 'shouldn't talk about Europe' after Leicester draw**\
+`Brighton led twice against Leicester through Joao Pedro penalties in both halves.`\
+https://nytimes.com/athletic/6274652/2025/04/12/fabian-hurzeler-brighton-leicester-europe/
+
 **Nuggets find playoff-level intensity in win over Grizzlies after a tumultuous week**\
 `After firing their head coach and GM on Tuesday, the Nuggets rebounded with two wins this week, including a crucial one on Friday.`\
 https://nytimes.com/athletic/6274032/2025/04/12/nuggets-grizzlies-nikola-jokic-aaron-gordon/
