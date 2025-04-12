@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6256019/2025/04/12/sabres-owen-power-nhl-chris-pron
 `President Trump should not forget the Iranian people’s resolve when his administration sits down with Iran over its nuclear program.`\
 https://nytimes.com/2025/04/12/opinion/iran-human-rights-middle-east-trump.html
 
-**Stop Fetishizing the Stock Market**\
+**Stock Ownership Is What Really Divides Americans**\
 `It is not synonymous with the health of the country.`\
 https://nytimes.com/2025/04/12/opinion/stock-market-tariffs.html
 
