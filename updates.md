@@ -1,3 +1,11 @@
+**The Briefing: Manchester City 5 Crystal Palace 2 - De Bruyne inspires a remarkable comeback**\
+`City were 2-0 down within 21 minutes, level by half time and then comfortable winners. Sam Lee dissects the key talking points...`\
+https://nytimes.com/athletic/6266578/2025/04/12/manchester-city-4-crystal-palace-2-de-bruyne-comeback-result/
+
+**Chelsea Women keep quadruple hopes alive with FA Cup SF win vs Liverpool**\
+`Sonia Bampostor's side are top of the WSL and into the semi-finals of the Champions League, having already won the League Cup.`\
+https://nytimes.com/athletic/6274349/2025/04/12/chelsea-women-quadruple-fa-cup-final/
+
 **Trump Administration Live Updates: Trump Seeks to Turn Border Land Into ‘Military Installation’**\
 ``\
 https://nytimes.com/live/2025/04/12/us/trump-administration-news

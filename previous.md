@@ -1,3 +1,11 @@
+**The Briefing: Manchester City 5 Crystal Palace 2 - De Bruyne inspires a remarkable comeback**\
+`City were 2-0 down within 21 minutes, level by half time and then comfortable winners. Sam Lee dissects the key talking points...`\
+https://nytimes.com/athletic/6266578/2025/04/12/manchester-city-4-crystal-palace-2-de-bruyne-comeback-result/
+
+**Chelsea Women keep quadruple hopes alive with FA Cup SF win vs Liverpool**\
+`Sonia Bampostor's side are top of the WSL and into the semi-finals of the Champions League, having already won the League Cup.`\
+https://nytimes.com/athletic/6274349/2025/04/12/chelsea-women-quadruple-fa-cup-final/
+
 **Trump Administration Live Updates: Trump Seeks to Turn Border Land Into ‘Military Installation’**\
 ``\
 https://nytimes.com/live/2025/04/12/us/trump-administration-news
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/12/business/dealbook/liv-pga-deal.html
 **The Digestible Politics of the Message Tee**\
 `Some elected officials and those in power are making use of a classic bit of fashion to deliver big ideas.`\
 https://nytimes.com/2025/04/12/style/eric-adams-tee-shirt-political-message.html
-
-**The Pulse: LIV is a disruptor without any juice**\
-`Welcome to The Pulse, The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/6274029/2025/04/12/6274029-masters-liv/
-
-**Mercedes newbie Antonelli is still finishing school even as he makes Formula 1 history**\
-`New Mercedes driver Kimi Antonelli is still sitting his school exams, even as he begins a career racing in Formula One`\
-https://nytimes.com/athletic/6273087/2025/04/12/f1-formula-1-mercedes-kimi-antonelli/
 
