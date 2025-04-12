@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Trump Seeks to Turn Border Land Into ‘Military Installation’**\
+``\
+https://nytimes.com/live/2025/04/12/us/trump-administration-news
+
 **Jaden McDaniels has become a more versatile defender in Year 5**\
 `The 6-foot-10 McDaniels "makes it tough on everybody" as Minnesota pushes for a top-six spot in the West.`\
 https://nytimes.com/athletic/6270790/2025/04/12/jaden-mcdaniels-timberwolves-defense-nba/
