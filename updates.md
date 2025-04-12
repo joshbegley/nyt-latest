@@ -1,3 +1,15 @@
+**Martinelli: Norgaard deserved red card, challenge 'could have broken my leg'**\
+`Norgaard received a yellow card for the tackle during Brentford's 1-1 draw with Arsenal on Saturday.`\
+https://nytimes.com/athletic/6274774/2025/04/12/arsenal-brentford-martinelli-norgaard-tackle/
+
+**Spring Snow Hits the Northeast**\
+`As much as five inches of snow fell across an area stretching from Albany, N.Y., to Maine on Saturday.`\
+https://nytimes.com/video/weather/100000010107545/snow-spring-northeast.html
+
+**What does Nico Iamaleava-Tennessee divorce mean for college sports, NIL?**\
+`Iamaleava’s name will go down in college football history as one that created a turning point for players, in multiple ways.`\
+https://nytimes.com/athletic/6274763/2025/04/12/tennessee-nico-iamaleava-transfer-portal-nil-contract/
+
 **Harvard Professors Sue Trump Administration Over Threat to Cut Funding**\
 `The administration is reviewing about $9 billion in federal funding that the university receives.`\
 https://nytimes.com/2025/04/12/us/politics/harvard-professors-trump-lawsuit-funding.html
