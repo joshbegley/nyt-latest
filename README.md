@@ -8,7 +8,7 @@ https://nytimes.com/2025/04/12/us/masters-tournament-golf.html
 
 **Trump Exempts Many Electronics From New Tariffs**\
 `Products including smartphones and computers appeared to be getting a reprieve from at least some of the levies on China, which had been expected to take a big toll on tech companies like Apple.`\
-https://nytimes.com/2025/04/12/us/politics/trump-electronics-tariffs.html
+https://nytimes.com/live/2025/04/12/us/trump-administration-news/trump-electronics-tariffs
 
 **'It's a blessing': Giannis dominates in Bucks' win over Pistons and teammates are grateful**\
 `"If anyone's a fan of basketball and you get to watch — every night —  the dominance of what Giannis does, it's unbelievable."`\

@@ -1,3 +1,7 @@
+**Ancelotti says his Madrid future will be discussed at end of season**\
+`Ancelotti's contract at Madrid runs through to 2026 but Brazil are interested in appointing him as their head coach.`\
+https://nytimes.com/athletic/6274444/2025/04/12/carlo-ancelotti-real-madrid-future-contract/
+
 **The 2025 Masters**\
 `The weekend weather at the Masters Tournament is expected to be perfect for golf, and the third round began with the leader Justin Rose in a familiar position.`\
 https://nytimes.com/2025/04/12/us/masters-tournament-golf.html
