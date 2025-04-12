@@ -1,3 +1,11 @@
+**Appeals Court Scales Back Freeze on Firing Consumer Bureau Employees**\
+`The order reversed some parts of an injunction a federal judge said was needed to prevent the Consumer Financial Protection Bureau from being illegally dismantled.`\
+https://nytimes.com/2025/04/11/business/cfpb-ruling-appeals-court.html
+
+**After L.A. Fires, Edison Wants to Bury Power Lines in Altadena and Malibu**\
+`Southern California Edison is echoing calls from homeowners to move spark-prone electrical equipment underground. Company officials estimated the cost at more than $650 million.`\
+https://nytimes.com/2025/04/11/us/la-fires-southern-california-edison.html
+
 **Timberwolves' Anthony Edwards facing 1-game suspension after 18th technical foul**\
 `The star guard’s likely absence against Utah could complicate Minnesota's pursuit of a top-six seed in the West.
 `\
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6273568/2025/04/11/masters-2025-round-2-dechambeau-
 **Sacramento River Cats abruptly end 'Gold Diggers' campaign: 'Our approach was wrong'**\
 `The River Cats took down a video from their social media pages after its sexist tropes created a backlash.`\
 https://nytimes.com/athletic/6273697/2025/04/11/sacramento-river-cats-gold-diggers/
-
-**Judge Says One DOGE Member Can Access Sensitive Treasury Dept. Data**\
-`Nineteen state attorneys general had sued to block Elon Musk’s government efficiency team from accessing Treasury systems that include Americans’ bank account and Social Security information.`\
-https://nytimes.com/2025/04/11/nyregion/doge-treasury-lawsuit.html
-
-**Senators owner Michael Andlauer talks draft-pick penalty, playoff preparations**\
-`The Senators owner was also asked about the possibility of playing the Toronto Maple Leafs in the opening round of the postseason.`\
-https://nytimes.com/athletic/6273760/2025/04/11/ottawa-senators-owner-nhl-draft-playoffs/
 
