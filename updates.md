@@ -1,3 +1,7 @@
+**Yankees' Marcus Stroman says he's a starter, but his days should be numbered**\
+`Yankees manager Aaron Boone pulled Stroman after the Giants batted around in the first inning of New York's 9-1 loss. `\
+https://nytimes.com/athletic/6273936/2025/04/12/yankees-lose-giants-marcus-stroman-pulled/
+
 **How many games have Manchester United actually played?**\
 `The 2-2 Europa League draw with Lyon was reported as being Manchester United's 6,000th game as a club - but was it actually? `\
 https://nytimes.com/athletic/6269785/2025/04/12/how-many-games-have-manchester-united-actually-played/
