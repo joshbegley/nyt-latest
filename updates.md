@@ -1,3 +1,7 @@
+**Why the Canadiens needed a loss to the Senators learn a lesson winning has prevented**\
+`The Canadiens have been winning despite terrible starts, so it was appropriate they didn't clinch a playoff spot because of the same issue.`\
+https://nytimes.com/athletic/6274127/2025/04/12/canadiens-loss-senators-playoffs/
+
 **Nikola Jokić averages triple-double in NBA season, achieving rare feat**\
 `Jokić became the third player in NBA history with the mark, joining Oscar Robertson and Russell Westbrook.`\
 https://nytimes.com/athletic/6274099/2025/04/12/nikola-jokic-triple-double-nba-season/
