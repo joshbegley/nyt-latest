@@ -1,3 +1,11 @@
+**Jaden McDaniels has become a more versatile defender in Year 5**\
+`The 6-foot-10 McDaniels "makes it tough on everybody" as Minnesota pushes for a top-six spot in the West.`\
+https://nytimes.com/athletic/6270790/2025/04/12/jaden-mcdaniels-timberwolves-defense-nba/
+
+**Their Space Suit, Their Way**\
+`Lauren Sánchez teamed up with Monse to redesign the Blue Origin flight suits with its all-female launch in mind.`\
+https://nytimes.com/2025/04/12/style/lauren-sanchez-blue-origin-spacesuit-monse.html
+
 **Milan's Maignan leaves hospital following head collision**\
 `The Milan captain suffered a clash of heads with team-mate Alex Jimenez in the 51st minute of Friday's Serie A match at Udinese.`\
 https://nytimes.com/athletic/6274319/2025/04/12/mike-maignan-milan-head-injury/

@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Trump Seeks to Turn Border Land Into ‘Military Installation’**\
+``\
+https://nytimes.com/live/2025/04/12/us/trump-administration-news
+
 **Jaden McDaniels has become a more versatile defender in Year 5**\
 `The 6-foot-10 McDaniels "makes it tough on everybody" as Minnesota pushes for a top-six spot in the West.`\
 https://nytimes.com/athletic/6270790/2025/04/12/jaden-mcdaniels-timberwolves-defense-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6274029/2025/04/12/6274029-masters-liv/
 **Mercedes newbie Antonelli is still finishing school even as he makes Formula 1 history**\
 `New Mercedes driver Kimi Antonelli is still sitting his school exams, even as he begins a career racing in Formula One`\
 https://nytimes.com/athletic/6273087/2025/04/12/f1-formula-1-mercedes-kimi-antonelli/
-
-**A Lot About Trump Doesn’t Add Up**\
-`A very petty man in a very powerful job.`\
-https://nytimes.com/2025/04/12/opinion/trump-presidency-multitasking.html
 
