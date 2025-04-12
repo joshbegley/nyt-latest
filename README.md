@@ -1,3 +1,7 @@
+**Yankees' Marcus Stroman says he's a starter, but his days should be numbered**\
+`Yankees manager Aaron Boone pulled Stroman after the Giants batted around in the first inning of New York's 9-1 loss. `\
+https://nytimes.com/athletic/6273936/2025/04/12/yankees-lose-giants-marcus-stroman-pulled/
+
 **How many games have Manchester United actually played?**\
 `The 2-2 Europa League draw with Lyon was reported as being Manchester United's 6,000th game as a club - but was it actually? `\
 https://nytimes.com/athletic/6269785/2025/04/12/how-many-games-have-manchester-united-actually-played/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6272857/2025/04/12/oxford-cambridge-boat-race-expla
 **Explained: Chelsea holding company's £1bn+ 'debt' - and why it's unlikely to cause problems**\
 `Chelsea's owners have borrowed more than £1bn through a revolving credit facility and a redeemable preferred equity agreement`\
 https://nytimes.com/athletic/6266543/2025/04/12/chelsea-debt-analysis-billion/
-
-**For Taiwan’s Small Exporters, the Uncertainty’s as Bad as the Tariffs**\
-`The island’s many small factories have thrived by being frugal — and flexible. But President Trump’s unpredictability is testing their limits.`\
-https://nytimes.com/2025/04/12/world/asia/taiwan-exporters-tariffs.html
 
