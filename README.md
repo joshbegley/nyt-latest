@@ -1,3 +1,7 @@
+**The bizarre story of a football prodigy, a stolen Ming vase and a Japanese extradition row**\
+`The life of Kaine Wright, once a promising player at West Ham, has the feel of a true crime documentary - this is his story`\
+https://nytimes.com/athletic/6266735/2025/04/12/kaine-wright-japan-extradition/
+
 **Mohamed Salah is already in the pantheon of Premier League greats - with more to come**\
 `The bad news for Liverpool's opponents is that Salah has a legacy to cement and plenty more records to break`\
 https://nytimes.com/athletic/6272292/2025/04/12/mohamed-salah-premier-league-goal-records/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/12/world/africa/gabon-presidential-election.html
 **Connections: Sports Edition Coach: Hints for April 12, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6272792/2025/04/12/connections-sports-edition-hints-for-april-12-2025/
-
-**Quote of the Day: No-Nonsense Heiress Leading New York’s Police**\
-`Quotation of the Day for Saturday, April 12, 2025.`\
-https://nytimes.com/2025/04/11/pageoneplus/quote-of-the-day-no-nonsense-heiress-leading-new-yorks-police.html
 
