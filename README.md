@@ -1,3 +1,7 @@
+**'It's a blessing': Giannis dominates in Bucks' win over Pistons and teammates are grateful**\
+`"If anyone's a fan of basketball and you get to watch — every night —  the dominance of what Giannis does, it's unbelievable."`\
+https://nytimes.com/athletic/6274047/2025/04/12/bucks-giannis-antetokounmpo-pistons-triple-double/
+
 **What can 'ferocious' Alexander Nikishin do for the Hurricanes’ defense?**\
 `Carolina's top prospect has the potential to be a Chris Pronger-like force on the blue line.`\
 https://nytimes.com/athletic/6274179/2025/04/12/alexander-nikishin-hurricanes-prospect/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/12/style/lauren-sanchez-blue-origin-spacesuit-monse.
 **Milan's Maignan leaves hospital following head collision**\
 `The Milan captain suffered a clash of heads with team-mate Alex Jimenez in the 51st minute of Friday's Serie A match at Udinese.`\
 https://nytimes.com/athletic/6274319/2025/04/12/mike-maignan-milan-head-injury/
-
-**Warriors' situation clarified: Beat the Clippers, and face the Lakers in first round**\
-`Stephen Curry aggravated a thumb sprain Friday in Portland but plans to play in Sunday's season finale.`\
-https://nytimes.com/athletic/6273828/2025/04/12/warriors-nba-playoffs-matchup-lakers/
 
