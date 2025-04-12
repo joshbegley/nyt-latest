@@ -1,3 +1,7 @@
+**The Pulse: LIV is a disruptor without any juice**\
+`Welcome to The Pulse, The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/6274029/2025/04/12/6274029-masters-live/
+
 **Mercedes newbie Antonelli is still finishing school even as he makes Formula 1 history**\
 `New Mercedes driver Kimi Antonelli is still sitting his school exams, even as he begins a career racing in Formula One`\
 https://nytimes.com/athletic/6273087/2025/04/12/f1-formula-1-mercedes-kimi-antonelli/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/12/opinion/great-gatsby-on-repeat.html
 **Trump vs. the Law Firms**\
 `Readers discuss the firms that capitulated to the president’s demands, and those that didn’t.`\
 https://nytimes.com/2025/04/12/opinion/trump-law-firms-resistance.html
-
-**The NFL trading card set that has challenged collectors for decades**\
-`It's one of the most difficult sets to complete, but a select few have done it — including one boy who had help from his grandmother `\
-https://nytimes.com/athletic/6273767/2025/04/12/1977-topps-mexican-cards-nfl/
 
