@@ -1,3 +1,7 @@
+**Stock Ownership Is What Really Divides Americans**\
+`It is not synonymous with the health of the country.`\
+https://nytimes.com/2025/04/12/opinion/stock-market-tariffs.html
+
 **Warriors' situation clarified: Beat the Clippers, and face the Lakers in first round**\
 `Stephen Curry aggravated a thumb sprain Friday in Portland but plans to play in Sunday's season finale.`\
 https://nytimes.com/athletic/6273828/2025/04/12/warriors-nba-playoffs-matchup-lakers/
