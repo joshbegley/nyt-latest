@@ -1,3 +1,7 @@
+**Can You Stop an Outbreak of a Contagious Disease?**\
+`An interactive explanation of outbreaks, vaccines and herd immunity.`\
+https://nytimes.com/interactive/2025/04/12/upshot/measles-herd-immunity-explainer.html
+
 **Spencer Arrighetti says he never saw the ball that broke his thumb during BP**\
 `The Astros' righty heard someone yell that a ball was coming it hit him as he tried to protect himself: "A really, really freak accident."`\
 https://nytimes.com/athletic/6274812/2025/04/12/astros-spencer-arrighetti-injury-batting-practice/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6274763/2025/04/12/tennessee-nico-iamaleava-transfe
 **Harvard Professors Sue Trump Administration Over Threat to Cut Funding**\
 `The administration is reviewing about $9 billion in federal funding that the university receives.`\
 https://nytimes.com/2025/04/12/us/politics/harvard-professors-trump-lawsuit-funding.html
-
-**Sudanese Paramilitaries Kill Entire Clinic Staff in Famine-Struck Camp**\
-`Relief International said nine employees were killed when gunmen stormed the Zamzam camp in El Fasher, in the western Darfur region.`\
-https://nytimes.com/2025/04/12/world/africa/sudan-zamzam-clinic-staff-killed.html
 
