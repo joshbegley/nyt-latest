@@ -1,3 +1,11 @@
+**NBA East playoffs set: Knicks to face Pistons, Bucks get Pacers rematch**\
+`The Athletic has you covered with the Eastern Conference's playoff matchups and what to expect from each team.`\
+https://nytimes.com/athletic/6273863/2025/04/11/nba-playoffs-east-matchups-seeds/
+
+**Missed chances early doom Braves in another loss, but at least they maybe won a trade**\
+`The Braves will hope for a big boost from starter Spencer Strider, who is expected to come off the IL and start Wednesday.`\
+https://nytimes.com/athletic/6273947/2025/04/11/braves-lose-rays-rafael-montero-trade/
+
 **Cam Smith hits first major-league home run as Astros rout Angels**\
 `The 22-year-old also hit a double and raised his OPS to .747 on the season.`\
 https://nytimes.com/athletic/6273958/2025/04/11/astros-cam-smith-first-career-home-run/
@@ -30,12 +38,4 @@ https://nytimes.com/2025/04/11/us/politics/trump-military-border.html
 **Cubs' Justin Steele reviewing all options after left elbow flare-up**\
 `The initial injury designation — left elbow tendinitis — was the same one that Steele experienced late last season. `\
 https://nytimes.com/athletic/6273209/2025/04/11/chicago-cubs-justin-steele-injury-2025/
-
-**Get on the Board**\
-`Jesse Cohn’s Saturday debut puzzle is full of sneak attacks.`\
-https://nytimes.com/2025/04/11/crosswords/daily-puzzle-2025-04-12.html
-
-**Bryson DeChambeau's surge, Justin Rose's staying power, more to know from Masters Round 2**\
-`Should he win, Rose would set Masters records for oldest first-time winner and most starts (20) before earning a first green jacket.`\
-https://nytimes.com/athletic/6273568/2025/04/11/masters-2025-round-2-dechambeau-rose-mcilroy/
 
