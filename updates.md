@@ -1,3 +1,7 @@
+**Everything that's at stake on the last day of the NBA regular season**\
+`Here are, we hope, the easiest ways to follow how all the action could unfold out West on the final day of the NBA season.`\
+https://nytimes.com/athletic/6274465/2025/04/12/nba-2025-playoff-scenarios-seeding-regular-season/
+
 **What Spring? Snow Blankets the Northeast.**\
 `Two to five inches of snow fell over an area stretching from Albany, N.Y., to Maine overnight Friday into Saturday morning, forecasters said.`\
 https://nytimes.com/2025/04/12/us/snow-northeast-spring.html

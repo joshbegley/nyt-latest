@@ -1,3 +1,7 @@
+**Everything that's at stake on the last day of the NBA regular season**\
+`Here are, we hope, the easiest ways to follow how all the action could unfold out West on the final day of the NBA season.`\
+https://nytimes.com/athletic/6274465/2025/04/12/nba-2025-playoff-scenarios-seeding-regular-season/
+
 **What Spring? Snow Blankets the Northeast.**\
 `Two to five inches of snow fell over an area stretching from Albany, N.Y., to Maine overnight Friday into Saturday morning, forecasters said.`\
 https://nytimes.com/2025/04/12/us/snow-northeast-spring.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6274390/2025/04/12/tennessee-qb-transferring-nico-i
 **Coaches and GMs across the NFL are wondering: What are the Giants going to do?**\
 `Is Abdul Carter too good to pass up?`\
 https://nytimes.com/athletic/6272358/2025/04/12/new-york-giants-draft-plans-quarterbacks-abdul-carter/
-
-**The Briefing: Man City 5 Crystal Palace 2 - De Bruyne inspires a remarkable comeback**\
-`City were 2-0 down within 21 minutes, level by half-time and then comfortable winners. Sam Lee dissects the key talking points…`\
-https://nytimes.com/athletic/6266578/2025/04/12/manchester-city-crystal-palace-de-bruyne-comeback-result/
 
