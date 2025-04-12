@@ -1,3 +1,19 @@
+**How many games have Manchester United actually played?**\
+`The 2-2 Europa League draw with Lyon was reported as being Manchester United's 6,000th game as a club - but was it actually? `\
+https://nytimes.com/athletic/6269785/2025/04/12/how-many-games-have-manchester-united-actually-played/
+
+**Oilers clinch playoffs for sixth straight season, but injuries mount**\
+`The Oilers are limping toward the playoffs, figuratively and literally.`\
+https://nytimes.com/athletic/6272732/2025/04/12/oilers-playoffs-clinch-2025/
+
+**West Ham are eyeing David for their summer rebuild. It's no surprise given their squad age**\
+`West Ham have the joint-oldest team in the Premier League. Going for the Canada forward points towards a more youthful future`\
+https://nytimes.com/athletic/6262005/2025/04/12/west-ham-jonathan-david-transfer-squad/
+
+**Arsenal are forging 'football heritage' in both the men's and women's Champions Leagues**\
+`Both Arsenal's men's and women's teams are marching on in the Champions League, laying the foundations for sustained success along the way`\
+https://nytimes.com/athletic/6269137/2025/04/12/arsenal-champions-league-europe/
+
 **The bizarre story of a football prodigy, a stolen Ming vase and a Japanese extradition row**\
 `The life of Kaine Wright, once a promising player at West Ham, has the feel of a true crime documentary - this is his story`\
 https://nytimes.com/athletic/6266735/2025/04/12/kaine-wright-japan-extradition/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6266543/2025/04/12/chelsea-debt-analysis-billion/
 **For Taiwan’s Small Exporters, the Uncertainty’s as Bad as the Tariffs**\
 `The island’s many small factories have thrived by being frugal — and flexible. But President Trump’s unpredictability is testing their limits.`\
 https://nytimes.com/2025/04/12/world/asia/taiwan-exporters-tariffs.html
-
-**What to Know About U.S. Talks With Iran Over Its Nuclear Program**\
-`The two sides are set to negotiate on Saturday, though expectations for a breakthrough are modest, and distrust high.`\
-https://nytimes.com/2025/04/12/world/middleeast/iran-nuclear-talks-whats-at-stake.html
-
-**Boeing Helped Power Russia’s Economy. Could It Return?**\
-`Moscow is hinting that the company would be welcome back as part of a thaw under President Trump. Industry skepticism runs deep.`\
-https://nytimes.com/2025/04/12/world/europe/russia-boeing-aviation-airlines.html
-
-**Coup Leader Is Favored in Gabon Election After Ruling Family’s Fall**\
-`A military officer who seized power but promised to step down is expected to win the presidential vote on Saturday.`\
-https://nytimes.com/2025/04/12/world/africa/gabon-presidential-election.html
-
-**Connections: Sports Edition Coach: Hints for April 12, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6272792/2025/04/12/connections-sports-edition-hints-for-april-12-2025/
 

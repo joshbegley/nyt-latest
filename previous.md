@@ -1,3 +1,15 @@
+**The bizarre story of a football prodigy, a stolen Ming vase and a Japanese extradition row**\
+`The life of Kaine Wright, once a promising player at West Ham, has the feel of a true crime documentary - this is his story`\
+https://nytimes.com/athletic/6266735/2025/04/12/kaine-wright-japan-extradition/
+
+**Mohamed Salah is already in the pantheon of Premier League greats - with more to come**\
+`The bad news for Liverpool's opponents is that Salah has a legacy to cement and plenty more records to break`\
+https://nytimes.com/athletic/6272292/2025/04/12/mohamed-salah-premier-league-goal-records/
+
+**Rating the favourites to win the 2025 Ballon d'Or: Is Raphinha now in pole position?**\
+`With six months to go until this year's award is given out, we assess the top 10 candidates as it stands in a new regular feature`\
+https://nytimes.com/athletic/6270607/2025/04/12/ballon-dor-rankings-april-2025/
+
 **The Boat Race: Why has Oxford and Cambridge's annual river rivalry endured for almost 200 years?**\
 `Teams from the two universities have to deal with dirty tricks and dirty water - but it remains a key part of the British sporting calendar`\
 https://nytimes.com/athletic/6272857/2025/04/12/oxford-cambridge-boat-race-explained/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/12/world/africa/gabon-presidential-election.html
 **Connections: Sports Edition Coach: Hints for April 12, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6272792/2025/04/12/connections-sports-edition-hints-for-april-12-2025/
-
-**Quote of the Day: No-Nonsense Heiress Leading New York’s Police**\
-`Quotation of the Day for Saturday, April 12, 2025.`\
-https://nytimes.com/2025/04/11/pageoneplus/quote-of-the-day-no-nonsense-heiress-leading-new-yorks-police.html
-
-**NBA East playoffs set: Knicks to face Pistons, Bucks get Pacers rematch**\
-`The Athletic has you covered with the Eastern Conference's playoff matchups and what to expect from each team.`\
-https://nytimes.com/athletic/6273863/2025/04/11/nba-playoffs-east-matchups-seeds/
-
-**Missed chances early doom Braves in another loss, but at least they maybe won a trade**\
-`The Braves will hope for a big boost from starter Spencer Strider, who is expected to come off the IL and start Wednesday.`\
-https://nytimes.com/athletic/6273947/2025/04/11/braves-lose-rays-rafael-montero-trade/
 
