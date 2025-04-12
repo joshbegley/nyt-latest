@@ -1,3 +1,11 @@
+**Coaches and GMs across the NFL are wondering: What are the Giants going to do?**\
+`Is Abdul Carter too good to pass up?`\
+https://nytimes.com/athletic/6272358/2025/04/12/new-york-giants-draft-plans-quarterbacks-abdul-carter/
+
+**The Briefing: Manchester City 5 Crystal Palace 2 - De Bruyne inspires a remarkable comeback**\
+`City were 2-0 down within 21 minutes, level by half-time and then comfortable winners. Sam Lee dissects the key talking points…`\
+https://nytimes.com/athletic/6266578/2025/04/12/manchester-city-crystal-palace-de-bruyne-comeback-result/
+
 **The Briefing: Manchester City 5 Crystal Palace 2 - De Bruyne inspires a remarkable comeback**\
 `City were 2-0 down within 21 minutes, level by half time and then comfortable winners. Sam Lee dissects the key talking points...`\
 https://nytimes.com/athletic/6266578/2025/04/12/manchester-city-4-crystal-palace-2-de-bruyne-comeback-result/
