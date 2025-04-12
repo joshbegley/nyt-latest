@@ -1,3 +1,7 @@
+**'It's a blessing': Giannis dominates in Bucks' win over Pistons and teammates are grateful**\
+`"If anyone's a fan of basketball and you get to watch — every night —  the dominance of what Giannis does, it's unbelievable."`\
+https://nytimes.com/athletic/6274047/2025/04/12/bucks-giannis-antetokounmpo-pistons-triple-double/
+
 **What can 'ferocious' Alexander Nikishin do for the Hurricanes’ defense?**\
 `Carolina's top prospect has the potential to be a Chris Pronger-like force on the blue line.`\
 https://nytimes.com/athletic/6274179/2025/04/12/alexander-nikishin-hurricanes-prospect/
