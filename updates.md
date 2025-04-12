@@ -1,3 +1,11 @@
+**Kloke: How to fix quiet atmosphere at Maple Leafs games? Take lessons from soccer**\
+`Toronto's home arena is notoriously lacking in atmosphere. Could soccer stadiums hold the solution?`\
+https://nytimes.com/athletic/6272353/2025/04/12/kloke-leafs-atmosphere-nhl-soccer/
+
+**How a Deal to Shape Golf’s Future Went Cold**\
+`Despite interventions by President Trump, talks to combine the PGA Tour and LIV Golf have come to a standstill.`\
+https://nytimes.com/2025/04/12/business/dealbook/liv-pga-deal.html
+
 **The Digestible Politics of the Message Tee**\
 `Some elected officials and those in power are making use of a classic bit of fashion to deliver big ideas.`\
 https://nytimes.com/2025/04/12/style/eric-adams-tee-shirt-political-message.html

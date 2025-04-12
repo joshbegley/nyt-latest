@@ -1,3 +1,11 @@
+**Kloke: How to fix quiet atmosphere at Maple Leafs games? Take lessons from soccer**\
+`Toronto's home arena is notoriously lacking in atmosphere. Could soccer stadiums hold the solution?`\
+https://nytimes.com/athletic/6272353/2025/04/12/kloke-leafs-atmosphere-nhl-soccer/
+
+**How a Deal to Shape Golf’s Future Went Cold**\
+`Despite interventions by President Trump, talks to combine the PGA Tour and LIV Golf have come to a standstill.`\
+https://nytimes.com/2025/04/12/business/dealbook/liv-pga-deal.html
+
 **The Digestible Politics of the Message Tee**\
 `Some elected officials and those in power are making use of a classic bit of fashion to deliver big ideas.`\
 https://nytimes.com/2025/04/12/style/eric-adams-tee-shirt-political-message.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/12/opinion/stock-market-tariffs.html
 **Free Trade’s Bounty Went to the Rich. Trump’s Sloppy Tariffs Won’t Fix That.**\
 `The president extols tariffs as a miracle cure, but using them indiscriminately will only make the economic pain worse.`\
 https://nytimes.com/2025/04/12/opinion/trump-tariffs-free-trade-economy.html
-
-**Every NHL team’s most disappointing player in 2024-25**\
-`The Athletic asked its NHL staff for a disappointing player, and several big names appeared.`\
-https://nytimes.com/athletic/6273681/2025/04/12/nhl-regular-season-2024-2025-disappointing-players/
-
-**I’m Not a ‘Gatsby’ Scholar. I’m a ‘Gatsby’ Weirdo.**\
-`Five years ago I decided to listen to ‘The Great Gatsby.’ I haven’t stopped.`\
-https://nytimes.com/2025/04/12/opinion/great-gatsby-on-repeat.html
 
