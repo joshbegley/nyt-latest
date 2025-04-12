@@ -1,4 +1,4 @@
-**DeChambeau's surge, Rose's staying power and more to know from the Masters Round 2**\
+**Bryson DeChambeau's surge, Justin Rose's staying power, more to know from Masters Round 2**\
 `Should he win, Rose would set Masters records for oldest first-time winner and most starts (20) before earning a first green jacket.`\
 https://nytimes.com/athletic/6273568/2025/04/11/masters-2025-round-2-dechambeau-rose-mcilroy/
 

@@ -1,3 +1,11 @@
+**DeChambeau's surge, Rose's staying power and more to know from the Masters Round 2**\
+`Should he win, Rose would set Masters records for oldest first-time winner and most starts (20) before earning a first green jacket.`\
+https://nytimes.com/athletic/6273568/2025/04/11/masters-2025-round-2-dechambeau-rose-mcilroy/
+
+**Sacramento River Cats abruptly end 'Gold Diggers' campaign: 'Our approach was wrong'**\
+`The River Cats took down a video from their social media pages after its sexist tropes created a backlash.`\
+https://nytimes.com/athletic/6273697/2025/04/11/sacramento-river-cats-gold-diggers/
+
 **Judge Says One DOGE Member Can Access Sensitive Treasury Dept. Data**\
 `Nineteen state attorneys general had sued to block Elon Musk’s government efficiency team from accessing Treasury systems that include Americans’ bank account and Social Security information.`\
 https://nytimes.com/2025/04/11/nyregion/doge-treasury-lawsuit.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6273563/2025/04/11/freddie-freeman-return-injury-do
 **A New Policy Points Up a Musk Obsession**\
 `As Elon Musk continues to argue that Social Security drives illegal immigration, a new effort at the agency aims to curb it.`\
 https://nytimes.com/2025/04/11/us/politics/social-security-dead-migrants-list-musk-doge.html
-
-**USMNT Gold Cup schedule may get spicy with Mexico, Canada possibilities**\
-`The USMNT's campaign kicks off against Trinidad and Tobago at PayPal Park in San Jose on June 15.`\
-https://nytimes.com/athletic/6273533/2025/04/11/concacaf-gold-cup-usmnt-canada-mexico/
-
-**Pennsylvania Man Threatened to Kill Trump and Musk, U.S. Says**\
-`Shawn Monper, of Butler, Pa., also threatened immigration agents in comments on YouTube, federal prosecutors said.`\
-https://nytimes.com/2025/04/11/us/politics/trump-elon-musk-ice-threats.html
 
