@@ -1,5 +1,5 @@
-**Nico Iamaleava’s holdout ends in a breakup with Tennessee as Vols move on**\
-`The news comes after attempts to re-negotiate his NIL went public, creating what essentially became an NFL-style holdout.`\
+**Nico Iamaleava's holdout ends in a breakup with Tennessee as Vols move on**\
+`The news comes after attempts to renegotiate his NIL went public, creating what essentially became an NFL-style holdout.`\
 https://nytimes.com/athletic/6274390/2025/04/12/tennessee-qb-transferring-nico-iamaleava-college-football/
 
 **Both Sides Now**\
