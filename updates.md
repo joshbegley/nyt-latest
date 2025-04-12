@@ -1,3 +1,11 @@
+**I’m Powerless Against This Flourless Chocolate Cake**\
+`Genevieve Ko’s recipe is special-feeling, elegant and so simple to make — no fancy equipment or advanced baking skills required.`\
+https://nytimes.com/2025/04/12/dining/passover-flourless-chocolate-cake.html
+
+**Trump exempts smartphones and computers from new tariffs.**\
+`A long list of electronic products appeared to get a reprieve from at least some of the levies on China, which had been expected to take a toll on tech giants like Apple.`\
+https://nytimes.com/live/2025/04/12/us/trump-administration-news/trump-electronics-tariffs
+
 **Ancelotti says his Madrid future will be discussed at end of season**\
 `Ancelotti's contract at Madrid runs through to 2026 but Brazil are interested in appointing him as their head coach.`\
 https://nytimes.com/athletic/6274444/2025/04/12/carlo-ancelotti-real-madrid-future-contract/

@@ -1,3 +1,7 @@
+**I’m Powerless Against This Flourless Chocolate Cake**\
+`Genevieve Ko’s recipe is special-feeling, elegant and so simple to make — no fancy equipment or advanced baking skills required.`\
+https://nytimes.com/2025/04/12/dining/passover-flourless-chocolate-cake.html
+
 **Ancelotti says his Madrid future will be discussed at end of season**\
 `Ancelotti's contract at Madrid runs through to 2026 but Brazil are interested in appointing him as their head coach.`\
 https://nytimes.com/athletic/6274444/2025/04/12/carlo-ancelotti-real-madrid-future-contract/
@@ -6,9 +10,9 @@ https://nytimes.com/athletic/6274444/2025/04/12/carlo-ancelotti-real-madrid-futu
 `The weekend weather at the Masters Tournament is expected to be perfect for golf, and the third round began with the leader Justin Rose in a familiar position.`\
 https://nytimes.com/2025/04/12/us/masters-tournament-golf.html
 
-**Trump Exempts Many Electronics From New Tariffs**\
-`Products including smartphones and computers appeared to be getting a reprieve from at least some of the levies on China, which had been expected to take a big toll on tech companies like Apple.`\
-https://nytimes.com/2025/04/12/us/politics/trump-electronics-tariffs.html
+**Trump exempts smartphones and computers from new tariffs.**\
+`A long list of electronic products appeared to get a reprieve from at least some of the levies on China, which had been expected to take a toll on tech giants like Apple.`\
+https://nytimes.com/live/2025/04/12/us/trump-administration-news/trump-electronics-tariffs
 
 **'It's a blessing': Giannis dominates in Bucks' win over Pistons and teammates are grateful**\
 `"If anyone's a fan of basketball and you get to watch — every night —  the dominance of what Giannis does, it's unbelievable."`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6266578/2025/04/12/manchester-city-crystal-palace-d
 **Chelsea Women keep quadruple hopes alive with FA Cup SF win vs Liverpool**\
 `Sonia Bampostor's side are top of the WSL and into the semi-finals of the Champions League, having already won the League Cup.`\
 https://nytimes.com/athletic/6274349/2025/04/12/chelsea-women-quadruple-fa-cup-final/
-
-**Trump Administration Live Updates: New Rule Exempts Smartphones and Other Electronics From Most Tariffs**\
-``\
-https://nytimes.com/live/2025/04/12/us/trump-administration-news
 
