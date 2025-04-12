@@ -1,3 +1,16 @@
+**Quote of the Day: No-Nonsense Heiress Leading New York’s Police**\
+`Quotation of the Day for Saturday, April 12, 2025.`\
+https://nytimes.com/2025/04/11/pageoneplus/quote-of-the-day-no-nonsense-heiress-leading-new-yorks-police.html
+
+**Cam Smith hits first major-league home run as Astros rout Angels**\
+`Coaches have been working with Smith on his hitting approach and he saw positive results in a 14-3 win.`\
+https://nytimes.com/athletic/6273958/2025/04/11/astros-cam-smith-first-career-home-run/
+
+**Timberwolves' Anthony Edwards facing 1-game suspension after 18th technical foul**\
+`The star guard’s likely absence against Utah could complicate Minnesota's pursuit of a top-six seed in the West.
+`\
+https://nytimes.com/athletic/6273889/2025/04/11/anthony-edwards-timberwolves-technical/
+
 **NBA East playoffs set: Knicks to face Pistons, Bucks get Pacers rematch**\
 `The Athletic has you covered with the Eastern Conference's playoff matchups and what to expect from each team.`\
 https://nytimes.com/athletic/6273863/2025/04/11/nba-playoffs-east-matchups-seeds/
