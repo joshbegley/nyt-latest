@@ -1,3 +1,7 @@
+**Corrections: April 12, 2025**\
+`Corrections that appeared in print on Saturday, April 12, 2025.`\
+https://nytimes.com/2025/04/11/pageoneplus/corrections-april-12-2025.html
+
 **White House Moves Obama Portrait to Make Room for New One of Trump**\
 `While the shuffling of artwork in the president’s residence drew criticism, that kind of rotation is common with the change of administrations.`\
 https://nytimes.com/2025/04/11/us/politics/trump-obama-portrait-assassination.html
