@@ -1,3 +1,7 @@
+**Milan's Maignan leaves hospital following head collision**\
+`The Milan captain suffered a clash of heads with team-mate Alex Jimenez in the 51st minute of Friday's Serie A match at Udinese.`\
+https://nytimes.com/athletic/6274319/2025/04/12/mike-maignan-milan-head-injury/
+
 **Stock Ownership Is What Really Divides Americans**\
 `It is not synonymous with the health of the country.`\
 https://nytimes.com/2025/04/12/opinion/stock-market-tariffs.html

@@ -1,3 +1,11 @@
+**Jaden McDaniels has become a more versatile defender in Year 5**\
+`The 6-foot-10 McDaniels "makes it tough on everybody" as Minnesota pushes for a top-six spot in the West.`\
+https://nytimes.com/athletic/6270790/2025/04/12/jaden-mcdaniels-timberwolves-defense-nba/
+
+**Their Space Suit, Their Way**\
+`Lauren Sánchez teamed up with Monse to redesign the Blue Origin flight suits with its all-female launch in mind.`\
+https://nytimes.com/2025/04/12/style/lauren-sanchez-blue-origin-spacesuit-monse.html
+
 **Milan's Maignan leaves hospital following head collision**\
 `The Milan captain suffered a clash of heads with team-mate Alex Jimenez in the 51st minute of Friday's Serie A match at Udinese.`\
 https://nytimes.com/athletic/6274319/2025/04/12/mike-maignan-milan-head-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6273087/2025/04/12/f1-formula-1-mercedes-kimi-anton
 **A Lot About Trump Doesn’t Add Up**\
 `A very petty man in a very powerful job.`\
 https://nytimes.com/2025/04/12/opinion/trump-presidency-multitasking.html
-
-**Chris Pronger, other top defensemen weigh in on challenges facing Owen Power**\
-`How much time should it take for a defenseman with Power's pedigree to hit his stride in the NHL?`\
-https://nytimes.com/athletic/6256019/2025/04/12/sabres-owen-power-nhl-chris-pronger/
-
-**It’s a Mistake to Leave Human Rights Out of Iran Talks**\
-`President Trump should not forget the Iranian people’s resolve when his administration sits down with Iran over its nuclear program.`\
-https://nytimes.com/2025/04/12/opinion/iran-human-rights-middle-east-trump.html
 

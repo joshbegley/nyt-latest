@@ -1,3 +1,7 @@
+**Milan's Maignan leaves hospital following head collision**\
+`The Milan captain suffered a clash of heads with team-mate Alex Jimenez in the 51st minute of Friday's Serie A match at Udinese.`\
+https://nytimes.com/athletic/6274319/2025/04/12/mike-maignan-milan-head-injury/
+
 **Warriors' situation clarified: Beat the Clippers, and face the Lakers in first round**\
 `Stephen Curry aggravated a thumb sprain Friday in Portland but plans to play in Sunday's season finale.`\
 https://nytimes.com/athletic/6273828/2025/04/12/warriors-nba-playoffs-matchup-lakers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6256019/2025/04/12/sabres-owen-power-nhl-chris-pron
 **It’s a Mistake to Leave Human Rights Out of Iran Talks**\
 `President Trump should not forget the Iranian people’s resolve when his administration sits down with Iran over its nuclear program.`\
 https://nytimes.com/2025/04/12/opinion/iran-human-rights-middle-east-trump.html
-
-**Stock Ownership Is What Really Divides Americans**\
-`It is not synonymous with the health of the country.`\
-https://nytimes.com/2025/04/12/opinion/stock-market-tariffs.html
 
