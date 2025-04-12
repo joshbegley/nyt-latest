@@ -1,3 +1,7 @@
+**Twins notes: David Festa's first start, Byron Buxton's legs and Austin Martin injured**\
+`Plus the Twins' plans for Zebby Matthews and an update on Brooks Lee's rehab assignment at Triple-A St. Paul.`\
+https://nytimes.com/athletic/6271635/2025/04/12/twins-lose-tigers-david-festa-byron-buxton-austin-martin/
+
 **Why the Canadiens needed a loss to the Senators to learn a lesson winning has prevented**\
 `The Canadiens have been winning despite terrible starts, so it was appropriate they didn't clinch a playoff spot because of the same issue.`\
 https://nytimes.com/athletic/6274127/2025/04/12/canadiens-loss-senators-playoffs/
