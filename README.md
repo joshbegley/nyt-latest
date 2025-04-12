@@ -1,3 +1,15 @@
+**Nikola Jokić averages triple-double in NBA season, achieving rare feat**\
+`Jokić became the third player in NBA history with the mark, joining Oscar Robertson and Russell Westbrook.`\
+https://nytimes.com/athletic/6274099/2025/04/12/nikola-jokic-triple-double-nba-season/
+
+**Yankees face 2 injury scares amid 'worst' weather conditions**\
+`Driving rain, heavy wind and bitter cold forced umpires to end Friday's game in the top of the sixth inning, handing the Yankees a 9-1 loss.`\
+https://nytimes.com/athletic/6274064/2025/04/12/yankees-injury-scares-weather-giants-stroman-gomez/
+
+**The New York Times in Print for Saturday, April 12, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/12/todays-new-york-times
+
 **Yankees' Marcus Stroman says he's a starter, but his days should be numbered**\
 `Yankees manager Aaron Boone pulled Stroman after the Giants batted around in the first inning of New York's 9-1 loss. `\
 https://nytimes.com/athletic/6273936/2025/04/12/yankees-lose-giants-marcus-stroman-pulled/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6266735/2025/04/12/kaine-wright-japan-extradition/
 **Mohamed Salah is already in the pantheon of Premier League greats - with more to come**\
 `The bad news for Liverpool's opponents is that Salah has a legacy to cement and plenty more records to break`\
 https://nytimes.com/athletic/6272292/2025/04/12/mohamed-salah-premier-league-goal-records/
-
-**Rating the favourites to win the 2025 Ballon d'Or: Is Raphinha now in pole position?**\
-`With six months to go until this year's award is given out, we assess the top 10 candidates as it stands in a new regular feature`\
-https://nytimes.com/athletic/6270607/2025/04/12/ballon-dor-rankings-april-2025/
-
-**The Boat Race: Why has Oxford and Cambridge's annual river rivalry endured for almost 200 years?**\
-`Teams from the two universities have to deal with dirty tricks and dirty water - but it remains a key part of the British sporting calendar`\
-https://nytimes.com/athletic/6272857/2025/04/12/oxford-cambridge-boat-race-explained/
-
-**Explained: Chelsea holding company's £1bn+ 'debt' - and why it's unlikely to cause problems**\
-`Chelsea's owners have borrowed more than £1bn through a revolving credit facility and a redeemable preferred equity agreement`\
-https://nytimes.com/athletic/6266543/2025/04/12/chelsea-debt-analysis-billion/
 
