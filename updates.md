@@ -1,3 +1,7 @@
+**Judge Says One DOGE Member Can Access Sensitive Treasury Dept. Data**\
+`Nineteen state attorneys general had sued to block Elon Musk’s government efficiency team from accessing Treasury systems that include Americans’ bank account and Social Security information.`\
+https://nytimes.com/2025/04/11/nyregion/doge-treasury-lawsuit.html
+
 **Senators owner Michael Andlauer talks draft-pick penalty, playoff preparations**\
 `The Senators owner was also asked about the possibility of playing the Toronto Maple Leafs in the opening round of the postseason.`\
 https://nytimes.com/athletic/6273760/2025/04/11/ottawa-senators-owner-nhl-draft-playoffs/
