@@ -1,3 +1,11 @@
+**Hostages Still Held in Gaza Cast Shadow Over Passover in Israel**\
+`The holiday is usually a celebration of the liberation of ancient Israelites from slavery in Egypt. But for many Israelis, the suffering of the captives still in Gaza is tempering the joy.`\
+https://nytimes.com/2025/04/12/world/middleeast/israel-gaza-passover.html
+
+**Andrew Painter returns, touches 100 mph: How the Phillies will manage his buildup to majors**\
+`His season began Friday with 37 pitches at Low-A Clearwater. Now, every week with a few innings at a time, the Phillies can begin to dream. `\
+https://nytimes.com/athletic/6273816/2025/04/12/andrew-painter-return-phillies-prospect-mlb-path/
+
 **Brain Trust**\
 `Fan gatherings present opportunities to geek out with fellow enthusiasts. Can we cultivate some of that energy in everyday life?`\
 https://nytimes.com/2025/04/12/briefing/crossword-tournament.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/12/world/canada/trump-tariffs-muddle-campaigning-for
 **Wordle Review No. 1,394**\
 `Scroll down for hints and conversation about the puzzle for Sunday, April 13, 2025.`\
 https://nytimes.com/2025/04/12/crosswords/wordle-review-1394.html
-
-**Connections Companion No. 672**\
-`Scroll down for hints and conversation about the puzzle for Sunday, April 13, 2025.`\
-https://nytimes.com/2025/04/12/crosswords/connections-companion-672.html
-
-**Why now might be a good time for the Bills to draft a backup quarterback**\
-`Josh Allen doesn't need to learn from a veteran QB anymore.`\
-https://nytimes.com/athletic/6272162/2025/04/12/bills-nfl-draft-2025-backup-quarterback/
 

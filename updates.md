@@ -1,3 +1,7 @@
+**Brain Trust**\
+`Fan gatherings present opportunities to geek out with fellow enthusiasts. Can we cultivate some of that energy in everyday life?`\
+https://nytimes.com/2025/04/12/briefing/crossword-tournament.html
+
 **Fear and Loyalty in the Trump Administration**\
 `The New York Times reporters Zolan Kanno-Youngs, Jonathan Swan and Hamed Aleaziz discuss how fear is driving President Trump’s policy agenda in his second term.`\
 https://nytimes.com/video/podcasts/100000010101453/trump-administration-fear-loyalty.html

@@ -1,3 +1,7 @@
+**Brain Trust**\
+`Fan gatherings present opportunities to geek out with fellow enthusiasts. Can we cultivate some of that energy in everyday life?`\
+https://nytimes.com/2025/04/12/briefing/crossword-tournament.html
+
 **Fear and Loyalty in the Trump Administration**\
 `The New York Times reporters Zolan Kanno-Youngs, Jonathan Swan and Hamed Aleaziz discuss how fear is driving President Trump’s policy agenda in his second term.`\
 https://nytimes.com/video/podcasts/100000010101453/trump-administration-fear-loyalty.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/12/crosswords/connections-companion-672.html
 **Why now might be a good time for the Bills to draft a backup quarterback**\
 `Josh Allen doesn't need to learn from a veteran QB anymore.`\
 https://nytimes.com/athletic/6272162/2025/04/12/bills-nfl-draft-2025-backup-quarterback/
-
-**Ramy Youssef Is Just Trying to Be ‘Emotionally Correct’**\
-`The creator and comedian discusses his penchant for self-reflection, how politics fits into his work and why he’s not interested in representing anyone but himself.`\
-https://nytimes.com/2025/04/12/magazine/ramy-youssef-interview.html
 
