@@ -1,3 +1,43 @@
+**NASCAR Cup Series at Bristol odds, predictions: Hamlin goes for three straight**\
+`Our NASCAR reporters are back to answer our questions about NASCAR's legal dramas, tire wear, favorites at Bristol and more.`\
+https://nytimes.com/athletic/6272876/2025/04/12/nascar-cup-series-bristol-odds-expert-picks-how-to-watch/
+
+**‘The Last of Us’: What to Remember Ahead of Season 2**\
+`Where did we last leave Joel and Ellie? Well, it was a little complicated. It was also over two years ago. Here’s a refresher.`\
+https://nytimes.com/2025/04/12/arts/television/last-of-us-season-2-primer.html
+
+**Musk’s Latest Fraud Finding Isn’t What It Seems**\
+`His team found cases of seemingly fake people receiving unemployment benefits. But that fake data exists for a reason.`\
+https://nytimes.com/2025/04/12/upshot/musk-doge-fraud-claims.html
+
+**An Unfinished Opera Is Finished in Time to Be Newly Resonant**\
+`Mussorgsky’s “Khovanshchina” has been added onto by Rimsky-Korsakov, Stravinsky and Shostakovich. Now, another composer gets to have his say.`\
+https://nytimes.com/2025/04/12/arts/music/khovanshchina-opera-salzburg-easter-festival.html
+
+**Jewish Groups and Synagogues Defend Students Detained by ICE**\
+`More than two dozen are joining a legal effort to free a Tufts University student the Trump administration is trying to deport because of her pro-Palestinian views.`\
+https://nytimes.com/2025/04/12/us/jewish-groups-synagogues-ice-student-detentions.html
+
+**How Much Are Tariffs on Chinese Goods? It’s Trickier Than You Think.**\
+`The tariff rate on Chinese imports can be as high as 245% or zero, depending on the type of product that is being imported.`\
+https://nytimes.com/interactive/2025/04/12/business/economy/china-tariff-product-costs.html
+
+**Whitmer Shows How Democrats Are Playing With Fire in Cozying Up to Trump**\
+`The Michigan governor’s awkward Oval Office appearance reflected how several Democratic state leaders are cultivating cordial but politically risky relationships with the president.`\
+https://nytimes.com/2025/04/12/us/politics/gretchen-whitmer-trump-democrats.html
+
+**Raise Prices? Eat Higher Costs? Retailers Face Tough Questions.**\
+`A trade war with China and tariff threats on other countries are ramping up pressure on stores that sell products from overseas — which, for some categories, is just about all of them.`\
+https://nytimes.com/2025/04/12/business/retailers-tariffs-uncertainty.html
+
+**A Masterpiece Doesn’t Have to End at the Borders of the Frame**\
+`An artist finds there’s more to admire if you approach everything in a museum with an eye for things beyond the art.`\
+https://nytimes.com/2025/04/12/arts/design/museums-art-lovers.html
+
+**How Trump’s Shifting Tariffs Could Accelerate a Recession**\
+`U.S. banks have raised their recession forecasts this month because of President Trump’s tariffs. Ben Casselman, the chief economics correspondent for The New York Times, explains how Mr. Trump’s shifting trade policy could accelerate an economic downturn.`\
+https://nytimes.com/video/us/politics/100000010102777/how-trumps-shifting-tariffs-could-accelerate-a-recession.html
+
 **Pistons' loss to Bucks cements sixth seed and a playoff meeting with the Knicks**\
 `Cade Cunningham and his Detroit teammates are eager to take the lessons they learned down the stretch into the playoffs.`\
 https://nytimes.com/athletic/6274194/2025/04/12/detroit-pistons-nba-playoffs-knicks/
