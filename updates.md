@@ -1,3 +1,7 @@
+**The Pulse: LIV is a disruptor without any juice**\
+`Welcome to The Pulse, The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/6274029/2025/04/12/6274029-masters-live/
+
 **Mercedes newbie Antonelli is still finishing school even as he makes Formula 1 history**\
 `New Mercedes driver Kimi Antonelli is still sitting his school exams, even as he begins a career racing in Formula One`\
 https://nytimes.com/athletic/6273087/2025/04/12/f1-formula-1-mercedes-kimi-antonelli/
