@@ -1,3 +1,12 @@
+**Can You Stop an Outbreak of a Contagious Disease?**\
+`An interactive explanation of outbreaks, vaccines and herd immunity.`\
+https://nytimes.com/interactive/2025/04/12/upshot/measles-herd-immunity-explainer.html
+
+**Timberwolves' Anthony Edwards has 18th technical foul rescinded by NBA**\
+`The star guard’s likely absence against Utah could complicate Minnesota's pursuit of a top-six seed in the West.
+`\
+https://nytimes.com/athletic/6273889/2025/04/12/anthony-edwards-timberwolves-technical-rescinded/
+
 **Timberwolves' Anthony Edwards has 18th technical foul rescinded by NBA**\
 `The star guard’s likely absence against Utah could complicate Minnesota's pursuit of a top-six seed in the West.
 `\
