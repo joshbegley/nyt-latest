@@ -1,3 +1,11 @@
+**Sudanese Paramilitaries Kill Entire Clinic Staff in Famine-Struck Camp**\
+`Refugees International said nine employees were killed when gunmen stormed the Zamzam camp in El Fasher, in the western Darfur region.`\
+https://nytimes.com/2025/04/12/world/africa/sudan-zamzam-clinic-staff-killed.html
+
+**Manchester Arena Bomber’s Brother Is Accused of Attack on Prison Guards**\
+`Hashem Abedi allegedly stabbed the officers with homemade weapons inside a high-security prison.`\
+https://nytimes.com/2025/04/12/world/europe/manchester-arena-bomber-attack-prison.html
+
 **Trump cutbacks force layoffs at U.S.-backed broadcaster in the Middle East.**\
 `By Tim Balk`\
 https://nytimes.com/live/2025/04/12/us/trump-administration-news/trump-cutbacks-force-layoffs-at-us-backed-broadcaster-in-the-middle-east
