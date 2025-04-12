@@ -1,3 +1,16 @@
+**NBA East playoffs set: Knicks to face Pistons, Bucks get Pacers rematch**\
+`The Athletic has you covered with the Eastern Conference's playoff matchups and what to expect from each team.`\
+https://nytimes.com/athletic/6273863/2025/04/11/nba-playoffs-east-matchups-seeds/
+
+**Missed chances early doom Braves in another loss, but at least they maybe won a trade**\
+`The Braves will hope for a big boost from starter Spencer Strider, who is expected to come off the IL and start Wednesday.`\
+https://nytimes.com/athletic/6273947/2025/04/11/braves-lose-rays-rafael-montero-trade/
+
+**Timberwolves' Anthony Edwards facing 1-game suspension after 18th technical foul**\
+`The star guard’s likely absence against Utah could complicate Minnesota's pursuit of a top-six seed in the West.
+`\
+https://nytimes.com/athletic/6273889/2025/04/11/anthony-edwards-timberwolves-technical/
+
 **Timberwolves' Anthony Edwards facing 1-game suspension after 18th technical foul**\
 `The star guard’s likely absence against Utah could complicate Minnesota's pursuit of a top-six seed in the West.
 `\

@@ -1,3 +1,7 @@
+**Quote of the Day: No-Nonsense Heiress Leading New York’s Police**\
+`Quotation of the Day for Saturday, April 12, 2025.`\
+https://nytimes.com/2025/04/11/pageoneplus/quote-of-the-day-no-nonsense-heiress-leading-new-yorks-police.html
+
 **NBA East playoffs set: Knicks to face Pistons, Bucks get Pacers rematch**\
 `The Athletic has you covered with the Eastern Conference's playoff matchups and what to expect from each team.`\
 https://nytimes.com/athletic/6273863/2025/04/11/nba-playoffs-east-matchups-seeds/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6273863/2025/04/11/nba-playoffs-east-matchups-seeds
 https://nytimes.com/athletic/6273947/2025/04/11/braves-lose-rays-rafael-montero-trade/
 
 **Cam Smith hits first major-league home run as Astros rout Angels**\
-`The 22-year-old also hit a double and raised his OPS to .747 on the season.`\
+`Coaches have been working with Smith on his hitting approach and he saw positive results in a 14-3 win.`\
 https://nytimes.com/athletic/6273958/2025/04/11/astros-cam-smith-first-career-home-run/
 
 **Appeals Court Scales Back Freeze on Firing Consumer Bureau Employees**\
@@ -34,8 +38,4 @@ https://nytimes.com/2025/04/11/us/politics/trump-obama-portrait-assassination.ht
 **Trump Directive Calls to Turn Border Land Into ‘Military Installation’**\
 `The plan would put a strip along the southern border under Pentagon control, allowing the military to detain migrants for trespassing on a military base until Border Patrol agents could arrest them.`\
 https://nytimes.com/2025/04/11/us/politics/trump-military-border.html
-
-**Cubs' Justin Steele reviewing all options after left elbow flare-up**\
-`The initial injury designation — left elbow tendinitis — was the same one that Steele experienced late last season. `\
-https://nytimes.com/athletic/6273209/2025/04/11/chicago-cubs-justin-steele-injury-2025/
 
