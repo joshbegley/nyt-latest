@@ -1,3 +1,7 @@
+**Wirtz has 'very high chance' of Leverkusen stay this summer - club CEO**\
+`The 21-year-old has scored a combined 21 goals and provided 14 direct assists this season for Leverkusen and Germany.`\
+https://nytimes.com/athletic/6274509/2025/04/12/florian-wirtz-transfer-leverkusen-bayern/
+
 **Everything that's at stake on the last day of the NBA regular season**\
 `Here are, we hope, the easiest ways to follow how all the action could unfold out West on the final day of the NBA season.`\
 https://nytimes.com/athletic/6274465/2025/04/12/nba-2025-playoff-scenarios-seeding-regular-season/
