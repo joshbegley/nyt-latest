@@ -1,3 +1,7 @@
+**Judge’s Ruling Expands Medical Exceptions in Idaho Abortion Ban**\
+`In situations where a mother faces risk of death, the decision allows for abortions even when death isn’t imminent.`\
+https://nytimes.com/2025/04/12/us/idaho-abortion-medical-ban-exceptions-ruling.html
+
 **Can You Stop an Outbreak of a Contagious Disease?**\
 `An interactive explanation of outbreaks, vaccines and herd immunity.`\
 https://nytimes.com/interactive/2025/04/12/upshot/measles-herd-immunity-explainer.html
@@ -34,8 +38,4 @@ https://nytimes.com/video/weather/100000010107545/snow-spring-northeast.html
 **What does Nico Iamaleava-Tennessee divorce mean for college sports, NIL?**\
 `Iamaleava’s name will go down in college football history as one that created a turning point for players, in multiple ways.`\
 https://nytimes.com/athletic/6274763/2025/04/12/tennessee-nico-iamaleava-transfer-portal-nil-contract/
-
-**Harvard Professors Sue Trump Administration Over Threat to Cut Funding**\
-`The administration is reviewing about $9 billion in federal funding that the university receives.`\
-https://nytimes.com/2025/04/12/us/politics/harvard-professors-trump-lawsuit-funding.html
 
