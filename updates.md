@@ -1,3 +1,7 @@
+**Max Kozloff, Art Critic Who Became an Artist Himself, Dies at 91**\
+`He wrote extensively about the New York art scene in the 1960s and ’70s, then shifted to become a prominent street photographer.`\
+https://nytimes.com/2025/04/12/arts/max-kozloff-dead.html
+
 **Wirtz has 'very high chance' of Leverkusen stay this summer - club CEO**\
 `The 21-year-old has scored a combined 21 goals and provided 14 direct assists this season for Leverkusen and Germany.`\
 https://nytimes.com/athletic/6274509/2025/04/12/florian-wirtz-transfer-leverkusen-bayern/
