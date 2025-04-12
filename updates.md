@@ -1,3 +1,7 @@
+**Shocking effort by Wild on a night they could have made the playoffs: 4 takeaways**\
+`The Flames outworked and outplayed the Wild from start to finish en route to a 4-2 victory at the Saddledome.`\
+https://nytimes.com/athletic/6273383/2025/04/12/wild-lose-flames-playoff-chance/
+
 **Twins notes: David Festa's first start, Byron Buxton's legs and Austin Martin injured**\
 `Plus the Twins' plans for Zebby Matthews and an update on Brooks Lee's rehab assignment at Triple-A St. Paul.`\
 https://nytimes.com/athletic/6271635/2025/04/12/twins-lose-tigers-david-festa-byron-buxton-austin-martin/
