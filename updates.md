@@ -1,3 +1,16 @@
+**Appeals Court Scales Back Freeze on Firing Consumer Bureau Employees**\
+`The order reversed some parts of an injunction a federal judge said was needed to prevent the Consumer Financial Protection Bureau from being illegally dismantled.`\
+https://nytimes.com/2025/04/11/business/cfpb-ruling-appeals-court.html
+
+**After L.A. Fires, Edison Wants to Bury Power Lines in Altadena and Malibu**\
+`Southern California Edison is echoing calls from homeowners to move spark-prone electrical equipment underground. Company officials estimated the cost at more than $650 million.`\
+https://nytimes.com/2025/04/11/us/la-fires-southern-california-edison.html
+
+**Timberwolves' Anthony Edwards facing 1-game suspension after 18th technical foul**\
+`The star guard’s likely absence against Utah could complicate Minnesota's pursuit of a top-six seed in the West.
+`\
+https://nytimes.com/athletic/6273889/2025/04/11/anthony-edwards-timberwolves-technical/
+
 **Timberwolves' Anthony Edwards facing 1-game suspension after 18th technical foul**\
 `The star guard’s likely absence against Utah could complicate Minnesota's pursuit of a top-six seed in the West.
 `\
