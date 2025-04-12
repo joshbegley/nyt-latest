@@ -1,3 +1,7 @@
+**Tyson Foerster, Jakob Pelletier among players leading Flyers' post-John Tortorella surge**\
+`Foerster has been Philadelphia’s most dangerous forward lately, scoring twice on Saturday in the team’s 4-3 shootout win over the Islanders.`\
+https://nytimes.com/athletic/6274952/2025/04/12/flyers-tyson-foerster-jakob-pelletier-john-tortorella/
+
 **Nico Iamaleava's holdout ends in a breakup with Tennessee as Vols move on**\
 `The news comes after attempts to renegotiate his NIL went public, creating what essentially became an NFL-style holdout.`\
 https://nytimes.com/athletic/6274390/2025/04/12/tennessee-qb-transferring-nico-iamaleava-college-football/

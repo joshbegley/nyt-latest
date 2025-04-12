@@ -1,3 +1,7 @@
+**Tyson Foerster, Jakob Pelletier among players leading Flyers' post-John Tortorella surge**\
+`Foerster has been Philadelphia’s most dangerous forward lately, scoring twice on Saturday in the team’s 4-3 shootout win over the Islanders.`\
+https://nytimes.com/athletic/6274952/2025/04/12/flyers-tyson-foerster-jakob-pelletier-john-tortorella/
+
 **Nico Iamaleava's holdout ends in a breakup with Tennessee as Vols move on**\
 `The news comes after attempts to renegotiate his NIL went public, creating what essentially became an NFL-style holdout.`\
 https://nytimes.com/athletic/6274390/2025/04/12/tennessee-qb-transferring-nico-iamaleava-college-football/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6274815/2025/04/12/f1-formula-1-bahrain-lando-norri
 **Ohio State spring game notes: Julian Sayin's QB battle edge, WR depth on display**\
 `With over 40,000 people in attendance at Ohio Stadium, the offense won 50-31, a more convincing win from the 1-point victory last season. `\
 https://nytimes.com/athletic/6274480/2025/04/12/ohio-state-spring-game-notes/
-
-**Hamilton says he's 'not doing a good enough job' at Ferrari**\
-`Hamilton qualified almost a second behind polesitter Oscar Piastri and six tenths behind Ferrari teammate Charles Leclerc.`\
-https://nytimes.com/athletic/6274768/2025/04/12/lewis-hamilton-ferrari-bahrain-qualifying/
 
