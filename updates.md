@@ -1,3 +1,7 @@
+**USMNT Gold Cup schedule may get spicy with Mexico, Canada possibilities**\
+`The USMNT's campaign kicks off against Trinidad and Tobago at PayPal Park in San Jose on June 15.`\
+https://nytimes.com/athletic/6273533/2025/04/11/concacaf-gold-cup-usmnt-canada-mexico/
+
 **Freed From Prison by Trump and Now Facing the Prospect of Going Back**\
 `At a hearing this week, witnesses described behavior by Jonathan Braun that could result in his being locked up again.`\
 https://nytimes.com/2025/04/11/nyregion/jonathan-braun-arrest-trump-commute-sentence.html
