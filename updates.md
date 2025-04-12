@@ -1,3 +1,11 @@
+**British Government Takes Control of Country’s Last Major Steel Mill**\
+`London says it acted to prevent the plant’s Chinese owners from closing the plant, threatening jobs and national security.`\
+https://nytimes.com/2025/04/12/business/british-government-steel-mill.html
+
+**Oscar Piastri secures Bahrain Grand Prix pole as Lando Norris qualifies shock sixth**\
+`McLaren's Oscar Piastri secures pole for the Bahrain Grand Prix while teammate Lando Norris starts sixth on the grid`\
+https://nytimes.com/athletic/6274611/2025/04/12/bahrain-grand-prix-qualifying-oscar-piastri-mclaren-pole/
+
 **Nuno warns Forest on CL spot: 'Nobody will give us anything'**\
 `Forest were dealt a blow to their hopes as Abdoulaye Doucoure scored a 94th-minute winner for Everton on Saturday at the City Ground.`\
 https://nytimes.com/athletic/6274662/2025/04/12/nuno-nottingham-forest-champions-league/

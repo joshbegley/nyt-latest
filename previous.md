@@ -1,3 +1,11 @@
+**British Government Takes Control of Country’s Last Major Steel Mill**\
+`London says it acted to prevent the plant’s Chinese owners from closing the plant, threatening jobs and national security.`\
+https://nytimes.com/2025/04/12/business/british-government-steel-mill.html
+
+**Oscar Piastri secures Bahrain Grand Prix pole as Lando Norris qualifies shock sixth**\
+`McLaren's Oscar Piastri secures pole for the Bahrain Grand Prix while teammate Lando Norris starts sixth on the grid`\
+https://nytimes.com/athletic/6274611/2025/04/12/bahrain-grand-prix-qualifying-oscar-piastri-mclaren-pole/
+
 **Nuno warns Forest on CL spot: 'Nobody will give us anything'**\
 `Forest were dealt a blow to their hopes as Abdoulaye Doucoure scored a 94th-minute winner for Everton on Saturday at the City Ground.`\
 https://nytimes.com/athletic/6274662/2025/04/12/nuno-nottingham-forest-champions-league/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6274509/2025/04/12/florian-wirtz-transfer-leverkuse
 **Everything that's at stake on the last day of the NBA regular season**\
 `Here are, we hope, the easiest ways to follow how all the action could unfold out West on the final day of the NBA season.`\
 https://nytimes.com/athletic/6274465/2025/04/12/nba-2025-playoff-scenarios-seeding-regular-season/
-
-**What Spring? Snow Blankets the Northeast.**\
-`Two to five inches of snow fell over an area stretching from Albany, N.Y., to Maine overnight Friday into Saturday morning, forecasters said.`\
-https://nytimes.com/2025/04/12/us/snow-northeast-spring.html
-
-**I’m Powerless Against This Flourless Chocolate Cake**\
-`Genevieve Ko’s recipe is special-feeling, elegant and so simple to make — no fancy equipment or advanced baking skills required.`\
-https://nytimes.com/2025/04/12/dining/passover-flourless-chocolate-cake.html
 

@@ -2,7 +2,7 @@
 `London says it acted to prevent the plant’s Chinese owners from closing the plant, threatening jobs and national security.`\
 https://nytimes.com/2025/04/12/business/british-government-steel-mill.html
 
-**Oscar Piastri secures Bahrain Grand Prix pole as Lando Norris qualifies shock sixth**\
+**Piastri pole, Ocon's heavy crash and stewards get involved - Bahrain GP qualifying briefing**\
 `McLaren's Oscar Piastri secures pole for the Bahrain Grand Prix while teammate Lando Norris starts sixth on the grid`\
 https://nytimes.com/athletic/6274611/2025/04/12/bahrain-grand-prix-qualifying-oscar-piastri-mclaren-pole/
 
