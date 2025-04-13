@@ -1,3 +1,7 @@
+**Israeli Strike Heavily Damages One of Gaza’s Last Major Hospitals**\
+`No one was killed in the attack on the Ahli Arab Hospital, but a child being treated for a head injury died from the rushed evacuation, according to the Anglican Church in Jerusalem, which oversees the medical center.`\
+https://nytimes.com/video/world/middleeast/100000010108438/gaza-city-hospital-israeli-airstrike.html
+
 **Cubs' Justin Steele to have season-ending surgery on elbow, forearm**\
 `The Cubs do not have a way to immediately and seamlessly replace Steele, who underwent Tommy John surgery in 2017.`\
 https://nytimes.com/athletic/6276721/2025/04/13/cubs-justin-steele-injury-elbow-surgery/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/13/arts/nicky-katt-dead.html
 **Knicks, victims of expectations, enter playoffs under immense pressure**\
 `Regular-season expectations are one thing. Postseason expectations are another. Can the Knicks get it together in time?`\
 https://nytimes.com/athletic/6276210/2025/04/13/new-york-knicks-playoffs-pressure/
-
-**Rangers' de Haan frustrated by healthy scratches, says treatment has been 'f---ed'**\
-`The Rangers have made the veteran defenseman a healthy scratch the past 18 games. “Just wasting time,” de Haan said.`\
-https://nytimes.com/athletic/6276423/2025/04/13/rangers-calvin-de-haan-nhl/
 
