@@ -1,3 +1,7 @@
+**Understanding A.D.H.D.**\
+`What’s behind the surge in cases in the U.S.?`\
+https://nytimes.com/2025/04/13/briefing/adhd-cases-us.html
+
 **How 'uber talent' Sascha Boumedienne re-emerged as a top 2025 draft prospect**\
 `Boumedienne's bet on himself to make the jump to Boston University in his draft year has paid off.`\
 https://nytimes.com/athletic/6253714/2025/04/13/sascha-boumedienne-boston-university-nhl-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6274700/2025/04/13/masters-green-jacket-value/
 **Once worried for his roster spot, Zach McKinstry is now central to the Tigers' mission**\
 `Zach McKinstry entered Saturday hitting .298 with a 131 wRC+ since Aug. 1 of last season.`\
 https://nytimes.com/athletic/6274944/2025/04/13/once-worried-for-his-roster-spot-zach-mckinstry-is-now-central-to-the-tigers-mission/
-
-**What's the spring transfer portal market for Nico Iamaleava?**\
-`What will the market look like for the 6-foot-6, 215-pound quarterback who helped lead Tennessee to the College Football Playoff?`\
-https://nytimes.com/athletic/6274910/2025/04/13/tennessee-qb-nico-iamaleava-college-football-transfer-portal/
 

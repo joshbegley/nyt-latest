@@ -1,3 +1,7 @@
+**Understanding A.D.H.D.**\
+`What’s behind the surge in cases in the U.S.?`\
+https://nytimes.com/2025/04/13/briefing/adhd-cases-us.html
+
 **How 'uber talent' Sascha Boumedienne re-emerged as a top 2025 draft prospect**\
 `Boumedienne's bet on himself to make the jump to Boston University in his draft year has paid off.`\
 https://nytimes.com/athletic/6253714/2025/04/13/sascha-boumedienne-boston-university-nhl-draft/
