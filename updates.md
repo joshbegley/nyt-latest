@@ -1,3 +1,11 @@
+**5 Takeaways From New Research About A.D.H.D.**\
+`Scientists who study the condition are wrestling with some fundamental questions about the way we define and treat it.`\
+https://nytimes.com/2025/04/13/magazine/adhd-children-research-takeaways.html
+
+**Israel Strikes Hospital in Gaza’s North and Captures Key Part of South**\
+`No one was killed but the attack hit the Ahli Arab Hospital, a mainstay of Gaza’s decimated health care system. Separately, Israel said its troops had expanded their occupation of southern Gaza.`\
+https://nytimes.com/2025/04/13/world/middleeast/gaza-israel-hospital.html
+
 **Israel Strikes Hospital in Gaza’s North and Captures Key Part of South**\
 `No one was killed but the attack the Ahli Arab Hospital, a mainstay of Gaza’s decimated health care system. Separately, Israel said its troops had expanded their occupation of southern Gaza.`\
 https://nytimes.com/2025/04/13/world/middleeast/gaza-israel-hospital.html
