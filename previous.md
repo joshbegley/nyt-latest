@@ -1,3 +1,16 @@
+**Western Michigan rises to 'biggest stage,' wins first NCAA hockey national championship**\
+`Western Michigan secured its first Frozen Four title in the program's history with a 6-2 victory over Boston University on Saturday night.
+`\
+https://nytimes.com/athletic/6275450/2025/04/13/western-michigan-ncaa-hockey-national-championship/
+
+**Trump and Some of His Cabinet Members Attend U.F.C. Fight in Miami**\
+`The spectacle at the mixed martial arts event was emblematic of an emboldened president who increasingly encourages displays of force to carry out his agenda.`\
+https://nytimes.com/2025/04/13/us/politics/trump-ufc-fight-reyes.html
+
+**Crystal Palace receive a chilling look at a life without Marc Guehi**\
+`Palace’s captain was a significant miss in defence after receiving a one-match suspension for picking up two yellow cards last week`\
+https://nytimes.com/athletic/6257603/2025/04/13/crystal-palace-manchester-city-guehi/
+
 **Bompastor and Chelsea take another major step in their quadruple pursuit**\
 `A late winner to secure a place in the Women's FA Cup final is another sign Chelsea are determined to win on all fronts this season`\
 https://nytimes.com/athletic/6274601/2025/04/13/sonia-bompastor-chelsea-quadruple/
@@ -25,16 +38,4 @@ https://nytimes.com/athletic/6252531/2025/04/13/football-fat-and-players-under-p
 **How Brexit, a Startling Act of Economic Self-Harm, Foreshadowed Trump’s Tariffs**\
 `Britain’s decision to leave the European Union in 2016 was sold to voters as a magic bullet that would revitalize the country’s economy. Its impact is still reverberating.`\
 https://nytimes.com/2025/04/13/world/europe/how-brexit-a-startling-act-of-economic-self-harm-foreshadowed-trumps-tariffs.html
-
-**Quote of the Day: The One Western Company That Russia May Miss the Most: Boeing**\
-`Quotation of the Day for Sunday, April 13, 2025`\
-https://nytimes.com/2025/04/13/pageoneplus/quote-of-the-day-the-one-western-company-that-russia-may-miss-the-most-boeing.html
-
-**Rookie Oliver Moore moving up lineup, living it up in NHL: Blackhawks observations**\
-`Plus, three-time Stanley Cup champions Alec Martinez and Pat Maroon played their final game in the NHL Saturday.`\
-https://nytimes.com/athletic/6275366/2025/04/13/blackhawks-jets-oliver-moore-nhl/
-
-**Connections: Sports Edition Coach: Hints for April 13, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6274609/2025/04/13/connections-sports-edition-hints-for-april-13-2025/
 

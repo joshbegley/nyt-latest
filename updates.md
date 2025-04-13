@@ -1,3 +1,16 @@
+**Western Michigan rises to 'biggest stage,' wins first NCAA hockey national championship**\
+`Western Michigan secured its first Frozen Four title in the program's history with a 6-2 victory over Boston University on Saturday night.
+`\
+https://nytimes.com/athletic/6275450/2025/04/13/western-michigan-ncaa-hockey-national-championship/
+
+**Trump and Some of His Cabinet Members Attend U.F.C. Fight in Miami**\
+`The spectacle at the mixed martial arts event was emblematic of an emboldened president who increasingly encourages displays of force to carry out his agenda.`\
+https://nytimes.com/2025/04/13/us/politics/trump-ufc-fight-reyes.html
+
+**Crystal Palace receive a chilling look at a life without Marc Guehi**\
+`Palace’s captain was a significant miss in defence after receiving a one-match suspension for picking up two yellow cards last week`\
+https://nytimes.com/athletic/6257603/2025/04/13/crystal-palace-manchester-city-guehi/
+
 **Bompastor and Chelsea take another major step in their quadruple pursuit**\
 `A late winner to secure a place in the Women's FA Cup final is another sign Chelsea are determined to win on all fronts this season`\
 https://nytimes.com/athletic/6274601/2025/04/13/sonia-bompastor-chelsea-quadruple/
