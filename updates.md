@@ -1,3 +1,15 @@
+**Bernie Sanders, a Surprise Guest at Coachella, Urges Opposition to Trump’s Policies**\
+`The senator appeared onstage at the music festival on Saturday night, appealing to young people to oppose President Trump.`\
+https://nytimes.com/2025/04/13/us/politics/bernie-sanders-coachella.html
+
+**Nico Iamaleava lost the support of the pro-athlete folks, so where does that lead?**\
+`The only reasonable conclusion from here? Actual contracts and collective bargaining, `\
+https://nytimes.com/athletic/6275411/2025/04/13/nico-iamaleava-tennessee-collective-bargaining/
+
+**Shapiro and Family Evacuated From Pennsylvania Governor’s Home After Arson Attack**\
+`The governor said the State Police banged on the door early on Sunday to wake him and his family after an arsonist set fire to the governor’s residence in Harrisburg.`\
+https://nytimes.com/2025/04/13/us/politics/josh-shapiro-arson-attack-pennsylvania.html
+
 **Trump Aides Signal New Tariffs on Chips, Calling Exclusions Temporary**\
 `On Friday, the administration carved out an exception for a variety of electronics from the steep taxes now applied to Chinese imports.`\
 https://nytimes.com/2025/04/13/us/politics/trump-tariffs-china-chips-technology.html
