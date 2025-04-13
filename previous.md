@@ -1,5 +1,5 @@
 **A day-by-day look at what needs to happen for Blues to make NHL playoffs**\
-`The Blues' 4-3 shootout loss to Seattle Thursday made their path to the playoffs a little more difficult, but it's still within reach.`\
+`The Blues' 4-3 shootout loss to Seattle on Thursday made their path to the playoffs a little more difficult, but it's still within reach.`\
 https://nytimes.com/athletic/6275081/2025/04/13/st-louis-blues-nhl-playoffs-chances/
 
 **Ukraine tennis team dedicates Billie Jean King Cup qualification to nation's soldiers**\
