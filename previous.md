@@ -1,3 +1,11 @@
+**Bompastor and Chelsea take another major step in their quadruple pursuit**\
+`A late winner to secure a place in the Women's FA Cup final is another sign Chelsea are determined to win on all fronts this season`\
+https://nytimes.com/athletic/6274601/2025/04/13/sonia-bompastor-chelsea-quadruple/
+
+**The rise of Cesc Fabregas's Serie A upstarts Como: 'The ambition here is maximum'**\
+`Pepe Reina and Sergi Roberto were both drawn to the grand aspirations that drive Como and their head coach Cesc Fabregas`\
+https://nytimes.com/athletic/6272507/2025/04/13/cesc-fabregas-como-serie-a-reina-sergi-roberto/
+
 **Salah's Liverpool career (so far) in extremely niche and obscure stats**\
 `Mohamed Salah's new contract with Liverpool was announced on Friday, giving him the chance to add more niche stats to his resume`\
 https://nytimes.com/athletic/6272084/2025/04/13/mohamed-salah-liverpool-stats/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6275366/2025/04/13/blackhawks-jets-oliver-moore-nhl
 **Connections: Sports Edition Coach: Hints for April 13, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6274609/2025/04/13/connections-sports-edition-hints-for-april-13-2025/
-
-**Cubs, Pete Crow-Armstrong table contract talks for now: Sources**\
-`With Crow-Armstrong still in the early stages of his big-league career, neither side felt an urgent need to agree to an extension.`\
-https://nytimes.com/athletic/6275428/2025/04/12/cubs-pete-crow-armstrong-extension-talks/
-
-**Maple Leafs report cards: Mitch Marner plays defenceman and overtime hero**\
-`With a 1-0 overtime win over Montreal, Toronto clinched home ice for the first round in the playoffs.`\
-https://nytimes.com/athletic/6275370/2025/04/12/maple-leafs-canadiens-mitch-marner/
 

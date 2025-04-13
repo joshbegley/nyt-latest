@@ -1,3 +1,11 @@
+**Bompastor and Chelsea take another major step in their quadruple pursuit**\
+`A late winner to secure a place in the Women's FA Cup final is another sign Chelsea are determined to win on all fronts this season`\
+https://nytimes.com/athletic/6274601/2025/04/13/sonia-bompastor-chelsea-quadruple/
+
+**The rise of Cesc Fabregas's Serie A upstarts Como: 'The ambition here is maximum'**\
+`Pepe Reina and Sergi Roberto were both drawn to the grand aspirations that drive Como and their head coach Cesc Fabregas`\
+https://nytimes.com/athletic/6272507/2025/04/13/cesc-fabregas-como-serie-a-reina-sergi-roberto/
+
 **Salah's Liverpool career (so far) in extremely niche and obscure stats**\
 `Mohamed Salah's new contract with Liverpool was announced on Friday, giving him the chance to add more niche stats to his resume`\
 https://nytimes.com/athletic/6272084/2025/04/13/mohamed-salah-liverpool-stats/

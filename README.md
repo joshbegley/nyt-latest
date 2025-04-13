@@ -1,3 +1,7 @@
+**Crystal Palace receive a chilling look at a life without Marc Guehi**\
+`Palace’s captain was a significant miss in defence after receiving a one-match suspension for picking up two yellow cards last week`\
+https://nytimes.com/athletic/6257603/2025/04/13/crystal-palace-manchester-city-guehi/
+
 **Bompastor and Chelsea take another major step in their quadruple pursuit**\
 `A late winner to secure a place in the Women's FA Cup final is another sign Chelsea are determined to win on all fronts this season`\
 https://nytimes.com/athletic/6274601/2025/04/13/sonia-bompastor-chelsea-quadruple/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/13/pageoneplus/quote-of-the-day-the-one-western-comp
 **Rookie Oliver Moore moving up lineup, living it up in NHL: Blackhawks observations**\
 `Plus, three-time Stanley Cup champions Alec Martinez and Pat Maroon played their final game in the NHL Saturday.`\
 https://nytimes.com/athletic/6275366/2025/04/13/blackhawks-jets-oliver-moore-nhl/
-
-**Connections: Sports Edition Coach: Hints for April 13, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6274609/2025/04/13/connections-sports-edition-hints-for-april-13-2025/
 
