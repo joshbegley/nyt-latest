@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Monday, April 14, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/04/13/todays-new-york-times-international-edition
+
 **A Chapter Closes: Hong Kong’s Democratic Party to Disband**\
 `The party, once the city’s largest opposition force, long championed a moderate approach. It ended up squeezed between a discontented populace and a repressive Beijing.`\
 https://nytimes.com/2025/04/13/world/asia/hong-kong-democratic-party-disbanding.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/13/business/529-investments-stock-market.html
 **A Devastating Trade Spat With China Shows Few Signs of Abating**\
 `The Trump administration is in a standoff with the Chinese government as trade tensions escalate, leaving U.S. businesses in the cross hairs`\
 https://nytimes.com/2025/04/13/us/politics/trump-tariffs-trade-war-china.html
-
-**As Ukraine’s Politics Heat Back Up, a Former President Sees an Opening**\
-`Petro O. Poroshenko, who led the country before Volodymyr Zelensky, said that peace talks could be smoothed if opposition figures were included in the government.`\
-https://nytimes.com/2025/04/13/world/europe/ukraine-petro-poroshenko-zelensky-politics.html
 
