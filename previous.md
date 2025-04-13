@@ -1,3 +1,7 @@
+**A day-by-day look at what needs to happen for Blues to make NHL playoffs**\
+`The Blues' 4-3 shootout loss to Seattle Thursday made their path to the playoffs a little more difficult, but it's still within reach.`\
+https://nytimes.com/athletic/6275081/2025/04/13/st-louis-blues-nhl-playoffs-chances/
+
 **Ukraine tennis team dedicates Billie Jean King Cup qualification to nation's soldiers**\
 `Ukrainian tennis player Elina Svitolina is one of the country's most prominent campaigners against Russia's invasion of the country.`\
 https://nytimes.com/athletic/6275705/2025/04/13/tennis-ukraine-war-billie-jean-king-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/13/arts/brad-holland-dead.html
 **Alcaraz surges to Monte Carlo Masters title, reclaiming No. 2 world ranking**\
 `After a loose first set, Alcaraz eased past an ailing Musetti, first with brilliance and then with focus.`\
 https://nytimes.com/athletic/6275715/2025/04/13/carlos-alcaraz-monte-carlo-masters-result-analysis-lorenzo-musetti/
-
-**Barcelona's Balde suffers hamstring injury; doubt for Copa final**\
-`The left-back suffered the injury in Saturday's La Liga victory at Leganes, having to be replaced in the 41st minute by Gerard Martin.`\
-https://nytimes.com/athletic/6275709/2025/04/13/barcelona-alejandro-balde-injury-update/
 
