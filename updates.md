@@ -1,3 +1,7 @@
+**Victor Wembanyama confident he 'will be ready' for next season after blood clot**\
+`Though Wemby played only 46 games, he finished the season as the league leader in total blocks.`\
+https://nytimes.com/athletic/6276915/2025/04/13/spurs-victor-wembanyama-blood-clot-ready-next-season/
+
 **Nighttime Problem**\
 `Ken Cohen and Stacy Cooper make their New York Times Crossword debuts.`\
 https://nytimes.com/2025/04/13/crosswords/daily-puzzle-2025-04-14.html
