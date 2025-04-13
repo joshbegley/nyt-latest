@@ -1,3 +1,7 @@
+**This Masters is now Rory McIlroy's biggest test**\
+`Sunday at Augusta National will be McIlroy versus McIlroy.`\
+https://nytimes.com/athletic/6275155/2025/04/12/masters-2025-rory-mcilroy-mental/
+
 **Deep into Giants career, Wilmer Flores shows San Francisco he’ll be there for them, too**\
 `Flores is only 25 games away from playing as many games with the Giants as he did with the Mets, whose fans still remember him fondly.`\
 https://nytimes.com/athletic/6274870/2025/04/12/sf-giants-wilmer-flores-new-york-return/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6274999/2025/04/12/athletics-mets-cart-pushed-off-f
 **State Dept. says wrongfully deported Maryland man is alive and in El Salvador.**\
 `By Tim Balk`\
 https://nytimes.com/live/2025/04/12/us/trump-administration-news/state-dept-says-wrongfully-deported-maryland-man-is-alive-and-in-el-salvador
-
-**With 2 goals and 1 powerful shift, Adam Fantilli helps Blue Jackets keep playoff hopes alive**\
-`Columbus can still cling to its faint playoff hopes after a 7-0 win over Washington on Saturday.`\
-https://nytimes.com/athletic/6274821/2025/04/12/blue-jackets-nhl-playoff-hopes-adam-fantilli/
 
