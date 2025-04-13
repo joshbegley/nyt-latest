@@ -1,3 +1,7 @@
+**Russian Strike on Ukrainian City Kills and Wounds Dozens**\
+`At least 34 people were killed after two ballistic missiles struck Sumy, Ukraine, a city near the Russian border, on Palm Sunday.`\
+https://nytimes.com/video/world/europe/100000010108327/ukraine-russia-strikes-sumy.html
+
 **Rangers' de Haan frustrated by healthy scratches, says treatment has been 'f---ed'**\
 `The Rangers have made the veteran defenseman a healthy scratch the past 18 games. “Just wasting time,” de Haan said.`\
 https://nytimes.com/athletic/6276423/2025/04/13/rangers-calvin-de-haan-nhl/

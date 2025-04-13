@@ -1,3 +1,7 @@
+**Russian Strike on Ukrainian City Kills and Wounds Dozens**\
+`At least 34 people were killed after two ballistic missiles struck Sumy, Ukraine, a city near the Russian border, on Palm Sunday.`\
+https://nytimes.com/video/world/europe/100000010108327/ukraine-russia-strikes-sumy.html
+
 **Man Utd in a ‘desperate situation’ after Newcastle defeat — Neville**\
 `United are 14th in the table, only three points ahead of 17th-placed Wolverhampton Wanderers, and 17 points off the top five.`\
 https://nytimes.com/athletic/6276534/2025/04/13/manchester-united-newcastle-gary-neville/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/13/us/politics/rubio-deportions-el-salvador-trump-bu
 **Several Parts of Helicopter That Crashed in Hudson Are Still Missing**\
 `The helicopter did not have any flight recorders, officials said. The investigation into the cause of the crash, which killed six people, is continuing.`\
 https://nytimes.com/2025/04/13/nyregion/helicopter-crash-nyc-parts-missing.html
-
-**Blue Jackets Sunday Gathering: Is goaltender Jet Greaves seizing his NHL opportunity?**\
-`Greaves recently led the Blue Jackets to two must-wins and is certainly making the case for an NHL roster spot next season.`\
-https://nytimes.com/athletic/6275396/2025/04/13/blue-jackets-goaltender-jet-greaves-nhl/
 
