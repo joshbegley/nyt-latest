@@ -1,3 +1,7 @@
+**Democrats Widely Blast Trump’s Tariffs, but Not Necessarily Tariffs**\
+`While Democrats have widely criticized President Trump’s whipsawing trade strategy as chaotic, they’ve displayed little consensus on where the party stands on tariffs overall.`\
+https://nytimes.com/2025/04/13/us/politics/democrats-trump-tariffs-policy.html
+
 **Oscar Piastri wins as Lewis Hamilton enjoys best season finish**\
 `Oscar Piastri wins Bahrain Grand Prix from pole to close the gap on championship leader Lando Norris`\
 https://nytimes.com/athletic/6276007/2025/04/13/bahrain-grand-prix-oscar-piastri-wins-lewis-hamilton-ferrari/
@@ -10,7 +14,7 @@ https://nytimes.com/2025/04/13/obituaries/jean-marsh-dead.html
 `The report is the first public accounting of the president’s health since January, when he became the oldest man ever sworn into his office. His previous medical disclosures have drawn scrutiny.`\
 https://nytimes.com/2025/04/13/us/politics/trump-physical-exam-results.html
 
-**Trail Blazers coach Chauncey Billups agrees to multiyear extension**\
+**Trail Blazers, Chauncey Billups agree to multiyear contract extension**\
 `Billups has a 116-211 record since taking over the team in June 2021.`\
 https://nytimes.com/athletic/6276086/2025/04/13/trail-blazers-chauncey-billups-contract-extension/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/13/us/politics/trump-tariffs-china-chips-technology.
 **U.S. Revives Talks With Saudi Arabia on Transfer of Nuclear Technology**\
 `Energy Secretary Chris Wright said he sees a “pathway” to a deal that would allow the kingdom to develop a commercial nuclear power industry and potentially enrich uranium.`\
 https://nytimes.com/2025/04/13/world/middleeast/saudi-arabia-nuclear-talks-trump.html
-
-**Gov. Shapiro and Family Evacuated After Arson at Pennsylvania Residence**\
-`The governor said the State Police banged on the door early on Sunday to wake him and his family after an arsonist set fire to the governor’s official residence in Harrisburg.`\
-https://nytimes.com/2025/04/13/us/politics/josh-shapiro-arson-attack-pennsylvania.html
 
