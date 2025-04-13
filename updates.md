@@ -1,3 +1,11 @@
+**USC spring practice thoughts: Portal needs, safety depth, Ja’Kobi Lane's development**\
+`Things could always change, but USC does not seem interested in pursuing Tennessee quarterback Nico Iamaleava.`\
+https://nytimes.com/athletic/6275713/2025/04/13/usc-spring-practice-quarterback-jakobi-lane/
+
+**Medic Missing After Gaza Attack Is in Israeli Custody, Aid Groups Say**\
+`Asaad al-Nasasra has not been heard from since the March 23 ambush by Israeli forces, which left 15 aid workers dead and drew international condemnation.`\
+https://nytimes.com/2025/04/13/world/middleeast/israel-gaza-aid-worker-captured.html
+
 **Brad Holland, 81, Dies; His Subversive Art Reinvented Illustration**\
 `His stark and stunning work for Playboy, The New York Times and Manhattan’s underground papers heralded a new era of conceptual illustration.`\
 https://nytimes.com/2025/04/13/arts/brad-holland-dead.html

@@ -1,3 +1,11 @@
+**USC spring practice thoughts: Portal needs, safety depth, Ja’Kobi Lane's development**\
+`Things could always change, but USC does not seem interested in pursuing Tennessee quarterback Nico Iamaleava.`\
+https://nytimes.com/athletic/6275713/2025/04/13/usc-spring-practice-quarterback-jakobi-lane/
+
+**Medic Missing After Gaza Attack Is in Israeli Custody, Aid Groups Say**\
+`Asaad al-Nasasra has not been heard from since the March 23 ambush by Israeli forces, which left 15 aid workers dead and drew international condemnation.`\
+https://nytimes.com/2025/04/13/world/middleeast/israel-gaza-aid-worker-captured.html
+
 **Brad Holland, 81, Dies; His Subversive Art Reinvented Illustration**\
 `His stark and stunning work for Playboy, The New York Times and Manhattan’s underground papers heralded a new era of conceptual illustration.`\
 https://nytimes.com/2025/04/13/arts/brad-holland-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6275690/2025/04/13/gout-gout-sprinter-record-200m/
 **Understanding A.D.H.D.**\
 `What’s behind the surge in cases in the U.S.?`\
 https://nytimes.com/2025/04/13/briefing/adhd-cases-us.html
-
-**How 'uber talent' Sascha Boumedienne re-emerged as a top 2025 draft prospect**\
-`Boumedienne's bet on himself to make the jump to Boston University in his draft year has paid off.`\
-https://nytimes.com/athletic/6253714/2025/04/13/sascha-boumedienne-boston-university-nhl-draft/
-
-**How to Be a Happy 85-Year-Old (Like Me)**\
-`Ten rules for getting very, very old.`\
-https://nytimes.com/2025/04/13/opinion/aging-tips-getting-older.html
 
