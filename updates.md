@@ -1,3 +1,7 @@
+**Cyclist Van der Poel hit by bottle en route to Paris-Roubaix victory**\
+`The Dutchman remained on his bike to secure his third successive victory at the race, also surviving a puncture with just 15km left.`\
+https://nytimes.com/athletic/6276303/2025/04/13/mathieu-van-der-poel-bottle-paris-roubaix/
+
 **The Briefing – Paris-Roubaix: All eyes on Pogacar as Van der Poel and Ferrand-Prevot make history on the cobbles**\
 `The key storylines from a weekend of physical brutality and spectator misdemeanour on the cobbled roads of northern France`\
 https://nytimes.com/athletic/6275938/2025/04/13/paris-roubaix-pogacar-van-der-poel-briefing/
