@@ -1,3 +1,7 @@
+**Nighttime Problem**\
+`Ken Cohen and Stacy Cooper make their New York Times Crossword debuts.`\
+https://nytimes.com/2025/04/13/crosswords/daily-puzzle-2025-04-14.html
+
 **Israeli Strike Heavily Damages One of Gaza’s Last Major Hospitals**\
 `No one was killed in the attack on the Ahli Arab Hospital, but a child being treated for a head injury died from the rushed evacuation, according to the Anglican Church in Jerusalem, which oversees the medical center.`\
 https://nytimes.com/video/world/middleeast/100000010108438/gaza-city-hospital-israeli-airstrike.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6276520/2025/04/13/canada-usa-womens-world-champion
 **Nicky Katt, Character Actor on TV and in Film, Dies at 54**\
 `He began his career as a child actor and later played tough guys and henchmen. He was best known for “Boston Public” and “Dazed and Confused.”`\
 https://nytimes.com/2025/04/13/arts/nicky-katt-dead.html
-
-**Knicks, victims of expectations, enter playoffs under immense pressure**\
-`Regular-season expectations are one thing. Postseason expectations are another. Can the Knicks get it together in time?`\
-https://nytimes.com/athletic/6276210/2025/04/13/new-york-knicks-playoffs-pressure/
 
