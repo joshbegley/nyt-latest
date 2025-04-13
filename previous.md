@@ -1,3 +1,7 @@
+**Davide Ancelotti: Mbappe 'asks for forgiveness' after Madrid red card challenge**\
+`Mbappe was sent off for a late, forceful tackle on Alaves’ Antonio Blanco, catching the midfielder high on the leg with his studs.`\
+https://nytimes.com/athletic/6276428/2025/04/13/kylian-mbappe-real-madrid-red-card/
+
 **Rubio Says 10 More People Have Been Expelled to El Salvador**\
 `Secretary of State Marco Rubio said on Sunday that “the alliance” between President Trump and President Nayib Bukele of El Salvador had “become an example for security and prosperity in our hemisphere.”`\
 https://nytimes.com/2025/04/13/us/politics/rubio-deportions-el-salvador-trump-bukele.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6272151/2025/04/13/newcastle-man-utd-analysis-premi
 **Red Sox place Fitts on IL, call up former All-Star RHP Michael Fulmer**\
 `Fulmer, the 2016 AL ROY and 2017 All-Star, hasn’t pitched in the big leagues since 2023, when he had Tommy John surgery.`\
 https://nytimes.com/athletic/6276222/2025/04/13/boston-red-sox-richard-fitts-il-michael-fulmer/
-
-**Palin v. New York Times Heads Back to Trial**\
-`The case centers on the former Alaska governor’s claim that an editorial published in 2017 defamed her.`\
-https://nytimes.com/2025/04/13/business/palin-v-new-york-times-defamation-trial.html
 

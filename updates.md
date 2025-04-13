@@ -1,3 +1,7 @@
+**Davide Ancelotti: Mbappe 'asks for forgiveness' after Madrid red card challenge**\
+`Mbappe was sent off for a late, forceful tackle on Alaves’ Antonio Blanco, catching the midfielder high on the leg with his studs.`\
+https://nytimes.com/athletic/6276428/2025/04/13/kylian-mbappe-real-madrid-red-card/
+
 **Rubio Says 10 More People Have Been Expelled to El Salvador**\
 `Secretary of State Marco Rubio said on Sunday that “the alliance” between President Trump and President Nayib Bukele of El Salvador had “become an example for security and prosperity in our hemisphere.”`\
 https://nytimes.com/2025/04/13/us/politics/rubio-deportions-el-salvador-trump-bukele.html
