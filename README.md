@@ -1,3 +1,7 @@
+**Ukraine tennis team dedicates Billie Jean King Cup qualification to nation's soldiers**\
+`Ukrainian tennis player Elina Svitolina is one of the country's most prominent campaigners against Russia's invasion of the country.`\
+https://nytimes.com/athletic/6275705/2025/04/13/tennis-ukraine-war-billie-jean-king-cup/
+
 **‘S.N.L.’: Laughing All the Way to Financial Chaos**\
 `Among the sources of all the fun is ‘The White POTUS,” a parody that casts members of the administration in their own twisted playground for the privileged.`\
 https://nytimes.com/2025/04/13/arts/snl-financial-chaos-white-lotus.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6275715/2025/04/13/carlos-alcaraz-monte-carlo-maste
 **Barcelona's Balde suffers hamstring injury; doubt for Copa final**\
 `The left-back suffered the injury in Saturday's La Liga victory at Leganes, having to be replaced in the 41st minute by Gerard Martin.`\
 https://nytimes.com/athletic/6275709/2025/04/13/barcelona-alejandro-balde-injury-update/
-
-**The Pulse: Today is McIlroy vs. McIlroy**\
-`Welcome to The Pulse, The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/6275324/2025/04/13/rory-mcilroy-the-masters-the-pulse/
 
