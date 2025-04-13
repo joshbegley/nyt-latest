@@ -1,3 +1,11 @@
+**Man Utd in a ‘desperate situation’ after Newcastle defeat — Neville**\
+`United are 14th in the table, only three points ahead of 17th-placed Wolverhampton Wanderers, and 17 points off the top five.`\
+https://nytimes.com/athletic/6276534/2025/04/13/manchester-united-newcastle-gary-neville/
+
+**USA defeats Canada in IIHF Women’s World Championship prelim matchup: Takeaways**\
+`Team USA defeated Team Canada 2-1 in their preliminary round matchup at the 2025 IIHF Women’s World Championship on Sunday night.`\
+https://nytimes.com/athletic/6276520/2025/04/13/canada-usa-womens-world-championship-hockey-2025/
+
 **Nicky Katt, Character Actor on TV and in Film, Dies at 54**\
 `He began his career as a child actor and later played tough guys and henchmen. He was best known for “Boston Public” and “Dazed and Confused.”`\
 https://nytimes.com/2025/04/13/arts/nicky-katt-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/13/nyregion/helicopter-crash-nyc-parts-missing.html
 **Blue Jackets Sunday Gathering: Is goaltender Jet Greaves seizing his NHL opportunity?**\
 `Greaves recently led the Blue Jackets to two must-wins and is certainly making the case for an NHL roster spot next season.`\
 https://nytimes.com/athletic/6275396/2025/04/13/blue-jackets-goaltender-jet-greaves-nhl/
-
-**Irmgard Furchner, Secretary at a Hub of Nazi Atrocities, Dies at 99**\
-`Her work for the commandant of a concentration camp in German-occupied Poland led to her conviction as an accessory to more than 10,000 murders.`\
-https://nytimes.com/2025/04/13/world/europe/irmgard-furchner-dead.html
-
-**Cyclist Van der Poel hit by bottle en route to Paris-Roubaix victory**\
-`The Dutchman remained on his bike to secure his third successive victory at the race, also surviving a puncture with just 15km left.`\
-https://nytimes.com/athletic/6276303/2025/04/13/mathieu-van-der-poel-bottle-paris-roubaix/
 
