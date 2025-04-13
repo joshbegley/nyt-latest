@@ -14,7 +14,7 @@ https://nytimes.com/2025/04/13/arts/nicky-katt-dead.html
 `Regular-season expectations are one thing. Postseason expectations are another. Can the Knicks get it together in time?`\
 https://nytimes.com/athletic/6276210/2025/04/13/new-york-knicks-playoffs-pressure/
 
-**Calvin de Haan frustrated by healthy scratches, says treatment from Rangers has been 'f---ed'**\
+**Rangers' de Haan frustrated by healthy scratches, says treatment has been 'f---ed'**\
 `The Rangers have made the veteran defenseman a healthy scratch the past 18 games. “Just wasting time,” de Haan said.`\
 https://nytimes.com/athletic/6276423/2025/04/13/rangers-calvin-de-haan-nhl/
 
