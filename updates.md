@@ -1,3 +1,11 @@
+**Trail Blazers coach Chauncey Billups agrees to multiyear extension**\
+`Billups has a 116-211 record since taking over the team in June 2021.`\
+https://nytimes.com/athletic/6276086/2025/04/13/trail-blazers-chauncey-billups-contract-extension/
+
+**The Briefing: Chelsea 2 Ipswich Town 2 - Madueke shines but Maresca's side drop vital points**\
+`All the key talking points from Chelsea's 2-2 draw with Ipswich Town analysed and evaluated `\
+https://nytimes.com/athletic/6269341/2025/04/13/chelsea-2-ipswich-2-the-briefing/
+
 **Man Utd Women reach FA Cup final again with victory over Man City**\
 `Early goals from Celin Bizet and Grace Clinton were enough for United to set up the May 18 showpiece against Chelsea at Wembley.`\
 https://nytimes.com/athletic/6276051/2025/04/13/manchester-united-fa-cup-final-women/

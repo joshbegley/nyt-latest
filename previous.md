@@ -1,3 +1,7 @@
+**Trail Blazers coach Chauncey Billups agrees to multiyear extension**\
+`Billups has a 116-211 record since taking over the team in June 2021.`\
+https://nytimes.com/athletic/6276086/2025/04/13/trail-blazers-chauncey-billups-contract-extension/
+
 **Man Utd Women reach FA Cup final again with victory over Man City**\
 `Early goals from Celin Bizet and Grace Clinton were enough for United to set up the May 18 showpiece against Chelsea at Wembley.`\
 https://nytimes.com/athletic/6276051/2025/04/13/manchester-united-fa-cup-final-women/
@@ -22,7 +26,7 @@ https://nytimes.com/2025/04/13/world/middleeast/saudi-arabia-nuclear-talks-trump
 `The governor said the State Police banged on the door early on Sunday to wake him and his family after an arsonist set fire to the governor’s residence in Harrisburg.`\
 https://nytimes.com/2025/04/13/us/politics/josh-shapiro-arson-attack-pennsylvania.html
 
-**The Briefing: Chelsea 2 Ipswich 2 - Madueke shines but Maresca's side drop vital points**\
+**The Briefing: Chelsea 2 Ipswich Town 2 - Madueke shines but Maresca's side drop vital points**\
 `All the key talking points from Chelsea's 2-2 draw with Ipswich Town analysed and evaluated `\
 https://nytimes.com/athletic/6269341/2025/04/13/chelsea-2-ipswich-2-the-briefing/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6275934/2025/04/13/lsu-kyren-lacy-death/
 **The Briefing: Liverpool 2 West Ham 1 - Van Dijk's winner, Salah's pass and another step closer to title glory**\
 `Daniel Taylor and Conor O'Neill break down the main talking points from Liverpool's dramatic 2-1 win over West Ham`\
 https://nytimes.com/athletic/6267396/2025/04/13/liverpool-2-west-ham-1-van-dijk-diaz-robertson-salah/
-
-**The Briefing: Wolves 4 Tottenham 2 - Vicario shaky as Spurs suffer yet more away day woe**\
-`Spurs slumped to a 17th defeat of the Premier League season, shipping four goals to 17th-place Wolves`\
-https://nytimes.com/athletic/6272150/2025/04/13/wolves-4-tottenham-2/
 
