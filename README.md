@@ -1,5 +1,9 @@
+**5 Takeaways From New Research About A.D.H.D.**\
+`Scientists who study the condition are wrestling with some fundamental questions about the way we define and treat it.`\
+https://nytimes.com/2025/04/13/magazine/adhd-children-research-takeaways.html
+
 **Israel Strikes Hospital in Gaza’s North and Captures Key Part of South**\
-`No one was killed but the attack the Ahli Arab Hospital, a mainstay of Gaza’s decimated health care system. Separately, Israel said its troops had expanded their occupation of southern Gaza.`\
+`No one was killed but the attack hit the Ahli Arab Hospital, a mainstay of Gaza’s decimated health care system. Separately, Israel said its troops had expanded their occupation of southern Gaza.`\
 https://nytimes.com/2025/04/13/world/middleeast/gaza-israel-hospital.html
 
 **Gout, 17, breaks 20-second barrier to win 200m**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/13/world/europe/us-nuclear-talks-iran.html
 **Sevilla sack head coach Garcia Pimienta**\
 `Garcia Pimienta leaves Sevilla 13th in La Liga, with only nine wins from 31 league matches this season and seven points above the drop zone.`\
 https://nytimes.com/athletic/6273470/2025/04/13/sevilla-manager-sacked-garcia-pimienta/
-
-**How new Celtics' owner Bill Chisholm was shaped by Dartmouth soccer — and 'Melrose Place'**\
-`"Excuse my French, but he was a f---ing competitor," says former Big Green teammate Richie Graham.`\
-https://nytimes.com/athletic/6270659/2025/04/13/celtics-owner-bill-chisholm-dartmouth-soccer/
 
