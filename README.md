@@ -1,40 +1,40 @@
-**Gavi isn't a regular starter for Barcelona right now but is embracing his role**\
-`The 20-year-old has been on the bench for consecutive games but is contributing to Barcelona's cause despite his reduced minutes`\
-https://nytimes.com/athletic/6275569/2025/04/13/gavi-barcelona-hansi-flick-minutes/
+**Trump Has Added Risk to the Surest Bet in Global Finance**\
+`Shocked by Trump’s trade war, foreign investors are selling U.S. government bonds, long the world’s safe haven.`\
+https://nytimes.com/2025/04/13/business/trump-risk-us-bonds.html
 
-**Andre Onana rested for Man United game at Newcastle**\
-`Onana has played every minute of United's 69 Premier League matches since joining from Inter in the summer of 2023.`\
-https://nytimes.com/athletic/6275614/2025/04/13/andre-onana-manchester-united-newcastle/
+**Why Elon Musk Hasn’t Come Close to Finding $1 Trillion in Cuts**\
+`He seems to be realizing something that budget nerds have long known.`\
+https://nytimes.com/interactive/2025/04/13/upshot/musk-doge-1-trillion-goal.html
 
-**Mats Zuccarello talks the talk, then caps comeback win with biggest goal of Wild's season**\
-`"Big-time players make big plays," Brock Faber said of Zuccarello, "and he just seems to always be there in the big moments."`\
-https://nytimes.com/athletic/6275255/2025/04/13/wild-canucks-mats-zuccarello-biggest-goal-of-season/
+**Did Trump Manipulate the Stock Market?**\
+`President Trump’s post on social media caused the stock market to respond in an unusual way. Rob Copeland, a finance reporter for The New York Times, explains whether this could be considered market manipulation by the president.`\
+https://nytimes.com/video/business/economy/100000010106635/did-trump-manipulate-the-stock-market.html
 
-**The Last Flight of Helicopter N216MH**\
-`The aircraft had flown tourists in New York City thousands of times before crashing Thursday with a Spanish family aboard. Passengers who had flown earlier that day are processing the shock.`\
-https://nytimes.com/2025/04/13/nyregion/nyc-hudson-river-helicopter-crash-escobar.html
+**What to Know About Ecuador’s Presidential Election**\
+`Voters are in a standoff over which candidate can better address persistent violence linked to drug trafficking.`\
+https://nytimes.com/2025/04/13/world/americas/ecuador-presidential-election-what-to-know.html
 
-**A Word on Washington ‘Secrets’**\
-`After the Nixon White House sued to stop The New York Times from publishing the Pentagon Papers, an editor wrote a memo explaining how the information trade really worked.`\
-https://nytimes.com/2025/04/13/pageoneplus/max-frankel-memo.html
+**How Should You Invest for College During Market Swings?**\
+`Parents who put money into 529 plans may find it tricky to find the right investment strategies while the stock market is in turmoil.`\
+https://nytimes.com/2025/04/13/business/529-investments-stock-market.html
 
-**‘She Said She Lived in Las Vegas Now but Loved New York’**\
-`Help with a heavy door, a grocery spill on the subway and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2025/04/13/nyregion/metropolitan-diary.html
+**A Devastating Trade Spat With China Shows Few Signs of Abating**\
+`The Trump administration is in a standoff with the Chinese government as trade tensions escalate, leaving U.S. businesses in the cross hairs`\
+https://nytimes.com/2025/04/13/us/politics/trump-tariffs-trade-war-china.html
 
-**Kathryn Garcia Was Nearly Elected Mayor in 2021. Who Gets Her Votes Now?**\
-`Ms. Garcia finished second in the 2021 Democratic mayoral primary in New York City. Her supporters could be an important factor in this year’s race.`\
-https://nytimes.com/2025/04/13/nyregion/kathryn-garcia-voters-cuomo-mayor.html
+**As Ukraine’s Politics Heat Back Up, a Former President Sees an Opening**\
+`Petro O. Poroshenko, who led the country before Volodymyr Zelensky, said that peace talks could be smoothed if opposition figures were included in the government.`\
+https://nytimes.com/2025/04/13/world/europe/ukraine-petro-poroshenko-zelensky-politics.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/04/13/crosswords/spelling-bee-forum.html
+**A Basketball Star Is Born**\
+`Paige Bueckers became a college sensation for her skill and her style. Now she’s about to join the W.N.B.A.’s growing constellation of stars.`\
+https://nytimes.com/2025/04/13/style/paige-bueckers-uconn-huskies-wnba-draft.html
 
-**Why Canucks' loss to Wild is a microcosm of a disappointing season**\
-`With the opportunity to play spoiler, Vancouver was up to the task — at least until the third period.`\
-https://nytimes.com/athletic/6275471/2025/04/13/canucks-lose-wild-disappointing-season-takeaways/
+**Untouchable sports records and why they might never be broken**\
+`Some sporting records seem otherworldly in that no matter what technological or scientific advancements may be made, they feel out of reach`\
+https://nytimes.com/athletic/6272993/2025/04/13/lebron-james-alex-ovechkin-unbreakable-sports-records/
 
-**Canadiens captain Nick Suzuki recovers from worst game in months to play one of his best**\
-`Suzuki was disappointed with how his line played Friday in Ottawa and came back the next night to dominate its matchup with Auston Matthews.`\
-https://nytimes.com/athletic/6275502/2025/04/13/canadiens-lose-leafs-nick-suzuki-performance/
+**What to Know About Trump’s Antitrust Efforts Against Tech Giants**\
+`The Trump administration will take Meta to court this week, continuing an aggressive effort to rein in the power of the biggest tech companies. Here’s what to know.`\
+https://nytimes.com/2025/04/13/technology/trump-tech-antitrust-cases.html
 
