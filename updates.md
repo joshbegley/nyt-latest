@@ -1,3 +1,11 @@
+**Several Parts of Helicopter That Crashed in Hudson Are Still Missing**\
+`The helicopter did not have any flight recorders, officials said. The investigation into the cause of the crash, which killed six people, is continuing.`\
+https://nytimes.com/2025/04/13/nyregion/helicopter-crash-nyc-parts-missing.html
+
+**Blue Jackets Sunday Gathering: Is goaltender Jet Greaves seizing his NHL opportunity?**\
+`Greaves recently led the Blue Jackets to two must-wins and is certainly making the case for an NHL roster spot next season.`\
+https://nytimes.com/athletic/6275396/2025/04/13/blue-jackets-goaltender-jet-greaves-nhl/
+
 **Irmgard Furchner, Secretary at a Hub of Nazi Atrocities, Dies at 99**\
 `Her work for the commandant of a concentration camp in German-occupied Poland led to her conviction as an accessory to more than 10,000 murders.`\
 https://nytimes.com/2025/04/13/world/europe/irmgard-furchner-dead.html
