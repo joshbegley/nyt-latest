@@ -1,3 +1,7 @@
+**Explosion in Austin Damages 24 Houses and Injures 6 People**\
+`The cause of the enormous explosion at a house on Sunday, which could be heard miles away, was not immediately known. Officials described it as an “isolated incident.”`\
+https://nytimes.com/2025/04/13/us/austin-house-explosion.html
+
 **Lando Norris' mistakes and a ‘flawless’ Oscar Piastri swings title momentum**\
 `Bahrain showed just how costly anything less than perfect from Lando Norris can be when it comes to shipping points`\
 https://nytimes.com/athletic/6276496/2025/04/13/lando-norris-oscar-piastri-bahrain-grand-prix-mclaren/
