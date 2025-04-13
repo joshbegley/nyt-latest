@@ -1,3 +1,11 @@
+**Canadiens captain Nick Suzuki recovers from worst game in months to play one of his best**\
+`Suzuki was disappointed with how his line played Friday in Ottawa and came back the next night to dominate its matchup with Auston Matthews.`\
+https://nytimes.com/athletic/6275502/2025/04/13/canadiens-lose-leafs-nick-suzuki-performance/
+
+**Xi’s Visit Highlights Dilemma for Southeast Asia in U.S.-China Trade War**\
+`China’s leader is on a charm offensive in the region, but some of Beijing’s neighbors are wary of being caught in the crossfire of a superpower rivalry.`\
+https://nytimes.com/2025/04/13/world/asia/china-xi-us-trade-war-southeast-asia.html
+
 **Roki Sasaki completes 5 innings and continues to course-correct for the Dodgers**\
 `Sasaki completed five innings for the first time in the big leagues with just one run in a laugher of a 16-0 loss to the Cubs.`\
 https://nytimes.com/athletic/6275497/2025/04/13/roki-sasaki-dodgers-cubs/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6257603/2025/04/13/crystal-palace-manchester-city-g
 **Bompastor and Chelsea take another major step in their quadruple pursuit**\
 `A late winner to secure a place in the Women's FA Cup final is another sign Chelsea are determined to win on all fronts this season`\
 https://nytimes.com/athletic/6274601/2025/04/13/sonia-bompastor-chelsea-quadruple/
-
-**The rise of Cesc Fabregas's Serie A upstarts Como: 'The ambition here is maximum'**\
-`Pepe Reina and Sergi Roberto were both drawn to the grand aspirations that drive Como and their head coach Cesc Fabregas`\
-https://nytimes.com/athletic/6272507/2025/04/13/cesc-fabregas-como-serie-a-reina-sergi-roberto/
-
-**Salah's Liverpool career (so far) in extremely niche and obscure stats**\
-`Mohamed Salah's new contract with Liverpool was announced on Friday, giving him the chance to add more niche stats to his resume`\
-https://nytimes.com/athletic/6272084/2025/04/13/mohamed-salah-liverpool-stats/
 
