@@ -1,3 +1,11 @@
+**Daryl Morey admits 76ers came up short, again: 'We know we've let you down'**\
+`The 76ers finished a horrendous season with 58 losses, and what was left of Philly's roster fell 122-102 to the Chicago Bulls on Sunday.`\
+https://nytimes.com/athletic/6276310/2025/04/13/daryl-morey-76ers-season-woes/
+
+**NBA season's thrilling final day sets stage for postseason, draft lottery**\
+`A season marked by shocking trades and stunning coach firings came down to the final day for six Western teams to learn their fates.`\
+https://nytimes.com/athletic/6276999/2025/04/13/nba-regular-season-final-day-playoff-matchups-lottery/
+
 **U.S. Renews Opposition to Bringing Back Maryland Man Wrongly Deported to El Salvador**\
 `The Justice Department’s latest legal filing asserted that courts cannot direct President Trump’s foreign policy by forcing the return of a man unlawfully sent to a Salvadoran prison.`\
 https://nytimes.com/2025/04/13/us/politics/trump-courts-deportation-el-salvador.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6276721/2025/04/13/cubs-justin-steele-injury-elbow-
 **Explosion in Austin Damages 24 Houses and Injures 6 People**\
 `The cause of the enormous explosion at a house on Sunday, which could be heard miles away, was not immediately known. Officials described it as an “isolated incident.”`\
 https://nytimes.com/2025/04/13/us/austin-house-explosion.html
-
-**Lando Norris' mistakes and a ‘flawless’ Oscar Piastri swings title momentum**\
-`Bahrain showed just how costly anything less than perfect from Lando Norris can be when it comes to shipping points`\
-https://nytimes.com/athletic/6276496/2025/04/13/lando-norris-oscar-piastri-bahrain-grand-prix-mclaren/
-
-**Monday Briefing: China Pauses Crucial Exports**\
-`Plus, an art forest in Thailand.`\
-https://nytimes.com/2025/04/13/briefing/china-exports-russia-airstrike-ukraine-saudi-nuclear-deal.html
 
