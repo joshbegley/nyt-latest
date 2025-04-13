@@ -1,3 +1,7 @@
+**Pennsylvania Governor’s Residence Targeted in Arson**\
+`The governor, Josh Shapiro, said the State Police banged on the door early on Sunday to wake him and his family after an arsonist set fire to the governor’s residence in Harrisburg.`\
+https://nytimes.com/2025/04/13/us/politics/josh-shapiro-arson-attack-pennsylvania.html
+
 **The Briefing: Chelsea 2 Ipswich 2 - Madueke shines but Maresca's side drop vital points**\
 `All the key talking points from Chelsea's 2-2 draw with Ipswich Town analysed and evaluated `\
 https://nytimes.com/athletic/6269341/2025/04/13/chelsea-2-ipswich-2-the-briefing/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/13/arts/television/the-last-of-us-review.html
 **Read the Report on President Trump’s Annual Physical Exam**\
 `The White House released the results of President Trump’s annual physical examination on Sunday.`\
 https://nytimes.com/interactive/2025/04/13/us/1.html
-
-**Rece Davis to stay with ESPN after being heavily pursued by Fox Sports**\
-`Davis has agreed to a new seven-year deal with ESPN worth tens of millions of dollars, according to sources briefed on the deal.`\
-https://nytimes.com/athletic/6275759/2025/04/13/rece-davis-espn-fox-sports/
 
