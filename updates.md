@@ -18,6 +18,11 @@ https://nytimes.com/athletic/6275450/2025/04/13/western-michigan-ncaa-hockey-nat
 `\
 https://nytimes.com/athletic/6275450/2025/04/13/western-michigan-ncaa-hockey-national-championship/
 
+**Western Michigan rises to 'biggest stage,' wins first NCAA hockey national championship**\
+`Western Michigan secured its first Frozen Four title in the program's history with a 6-2 victory over Boston University on Saturday night.
+`\
+https://nytimes.com/athletic/6275450/2025/04/13/western-michigan-ncaa-hockey-national-championship/
+
 **Trump and Some of His Cabinet Members Attend U.F.C. Fight in Miami**\
 `The spectacle at the mixed martial arts event was emblematic of an emboldened president who increasingly encourages displays of force to carry out his agenda.`\
 https://nytimes.com/2025/04/13/us/politics/trump-ufc-fight-reyes.html
