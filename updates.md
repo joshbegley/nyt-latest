@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Monday, April 14, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/04/13/todays-new-york-times-international-edition
+
 **A Chapter Closes: Hong Kong’s Democratic Party to Disband**\
 `The party, once the city’s largest opposition force, long championed a moderate approach. It ended up squeezed between a discontented populace and a repressive Beijing.`\
 https://nytimes.com/2025/04/13/world/asia/hong-kong-democratic-party-disbanding.html
