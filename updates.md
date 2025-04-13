@@ -1,3 +1,7 @@
+**This Masters is now Rory McIlroy's biggest test**\
+`Sunday at Augusta National will be McIlroy versus McIlroy.`\
+https://nytimes.com/athletic/6275155/2025/04/12/masters-2025-rory-mcilroy-mental/
+
 **'Dangerous' Ben Rice is helping the Yankees solve their leadoff mystery**\
 `Rice is the latest Yankee to prove the leadoff spot might be a strength for New York this season.`\
 https://nytimes.com/athletic/6275201/2025/04/12/ben-rice-yankees-leadoff-mystery/
