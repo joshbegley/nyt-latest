@@ -1,3 +1,7 @@
+**Victor Wembanyama confident he 'will be ready' for next season after blood clot**\
+`Though Wemby played only 46 games, he finished the season as the league leader in total blocks.`\
+https://nytimes.com/athletic/6276915/2025/04/13/spurs-victor-wembanyama-blood-clot-ready-next-season/
+
 **Nighttime Problem**\
 `Ken Cohen and Stacy Cooper make their New York Times Crossword debuts.`\
 https://nytimes.com/2025/04/13/crosswords/daily-puzzle-2025-04-14.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6276534/2025/04/13/manchester-united-newcastle-gary
 **USA defeats Canada in IIHF Women’s World Championship prelim matchup: Takeaways**\
 `Team USA defeated Team Canada 2-1 in their preliminary round matchup at the 2025 IIHF Women’s World Championship on Sunday night.`\
 https://nytimes.com/athletic/6276520/2025/04/13/canada-usa-womens-world-championship-hockey-2025/
-
-**Nicky Katt, Character Actor on TV and in Film, Dies at 54**\
-`He began his career as a child actor and later played tough guys and henchmen. He was best known for “Boston Public” and “Dazed and Confused.”`\
-https://nytimes.com/2025/04/13/arts/nicky-katt-dead.html
 
