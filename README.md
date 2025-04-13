@@ -1,40 +1,40 @@
-**The New York Times International Edition in Print for Monday, April 14, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/04/13/todays-new-york-times-international-edition
+**How new Celtics' owner Bill Chisholm was shaped by Dartmouth soccer — and 'Melrose Place'**\
+`"Excuse my French, but he was a f---ing competitor," says former Big Green teammate Richie Graham.`\
+https://nytimes.com/athletic/6270659/2025/04/13/celtics-owner-bill-chisholm-dartmouth-soccer/
 
-**A Chapter Closes: Hong Kong’s Democratic Party to Disband**\
-`The party, once the city’s largest opposition force, long championed a moderate approach. It ended up squeezed between a discontented populace and a repressive Beijing.`\
-https://nytimes.com/2025/04/13/world/asia/hong-kong-democratic-party-disbanding.html
+**The Masters' green jacket: The history, value, and who owns them**\
+`One green jacket was found in a Toronto thrift store and another attempted sale was thwarted by the FBI. `\
+https://nytimes.com/athletic/6274700/2025/04/13/masters-green-jacket-value/
 
-**Russian Missile Strikes in Sumy Kill at Least 21, Ukrainian Officials Say**\
-`The strikes were the latest in a string of attacks on urban centers that have caused heavy civilian casualties even as the Trump administration pushes for a cease-fire.`\
-https://nytimes.com/2025/04/13/world/europe/sumy-ukraine-russia-strikes.html
+**Once worried for his roster spot, Zach McKinstry is now central to the Tigers' mission**\
+`Zach McKinstry entered Saturday hitting .298 with a 131 wRC+ since Aug. 1 of last season.`\
+https://nytimes.com/athletic/6274944/2025/04/13/once-worried-for-his-roster-spot-zach-mckinstry-is-now-central-to-the-tigers-mission/
 
-**Palace fan group contact club over FA Cup SF tickets concern**\
-`CPISA made a statement to the club after complaints from fans about the selling phases for the FA Cup semi-final with Aston Villa this month`\
-https://nytimes.com/athletic/6274707/2025/04/13/crystal-palace-fa-cup-tickets/
+**What's the spring transfer portal market for Nico Iamaleava?**\
+`What will the market look like for the 6-foot-6, 215-pound quarterback who helped lead Tennessee to the College Football Playoff?`\
+https://nytimes.com/athletic/6274910/2025/04/13/tennessee-qb-nico-iamaleava-college-football-transfer-portal/
 
-**Trump Has Added Risk to the Surest Bet in Global Finance**\
-`Shocked by Trump’s trade war, foreign investors are selling U.S. government bonds, long the world’s safe haven.`\
-https://nytimes.com/2025/04/13/business/trump-risk-us-bonds.html
+**The Sunday Read: ‘Unburying the Remains of the Third Reich’**\
+`As the German right ascends, the nation is still grappling with its fascist past — and how to handle its remains.`\
+https://nytimes.com/2025/04/13/podcasts/the-daily/germany-nazi-bones-remains.html
 
-**Why Elon Musk Hasn’t Come Close to Finding $1 Trillion in Cuts**\
-`He seems to be realizing something that budget nerds have long known.`\
-https://nytimes.com/interactive/2025/04/13/upshot/musk-doge-1-trillion-goal.html
+**Palm Sunday Was a Protest, Not a Procession**\
+`Jesus’ procession was a parody of imperial power — a deliberate mockery of Roman spectacle and a prophetic enactment of a kingdom not built on violence but on justice.`\
+https://nytimes.com/2025/04/13/opinion/palm-sunday-protest.html
 
-**Did Trump Manipulate the Stock Market?**\
-`President Trump’s post on social media caused the stock market to respond in an unusual way. Rob Copeland, a finance reporter for The New York Times, explains whether this could be considered market manipulation by the president.`\
-https://nytimes.com/video/business/economy/100000010106635/did-trump-manipulate-the-stock-market.html
+**The Supreme Court Ruled. Trump and the A.C.L.U. Both Claimed Victory. Huh?**\
+`The administration won a narrow procedural victory, but it took a substantial constitutional loss.`\
+https://nytimes.com/2025/04/13/opinion/trump-deportations-supreme-court.html
 
-**What to Know About Ecuador’s Presidential Election**\
-`Voters are in a standoff over which candidate can better address persistent violence linked to drug trafficking.`\
-https://nytimes.com/2025/04/13/world/americas/ecuador-presidential-election-what-to-know.html
+**'I've got a lot of support': Mike Trout knows the baseball world is rooting for his comeback**\
+`Trout, once the game's greatest player, knows he must re-prove his ability to play at a high level.`\
+https://nytimes.com/athletic/6275100/2025/04/13/angels-mike-trout-baseball-world-rooting-for-comeback/
 
-**How Should You Invest for College During Market Swings?**\
-`Parents who put money into 529 plans may find it tricky to find the right investment strategies while the stock market is in turmoil.`\
-https://nytimes.com/2025/04/13/business/529-investments-stock-market.html
+**Is 82 regular-season games too much? Warriors coach Steve Kerr thinks so**\
+`“I’m concerned about the product because I think we are asking way too much of our players,” Kerr said.`\
+https://nytimes.com/athletic/6198109/2025/04/13/warriors-coach-steve-kerr-nba-82-game-season/
 
-**A Devastating Trade Spat With China Shows Few Signs of Abating**\
-`The Trump administration is in a standoff with the Chinese government as trade tensions escalate, leaving U.S. businesses in the cross hairs`\
-https://nytimes.com/2025/04/13/us/politics/trump-tariffs-trade-war-china.html
+**Wordle Review No. 1,395**\
+`Scroll down for hints and conversation about the puzzle for Monday, April 14, 2025.`\
+https://nytimes.com/2025/04/13/crosswords/wordle-review-1395.html
 
