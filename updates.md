@@ -1,3 +1,15 @@
+**Red Sox place Fitts on IL, call up former All-Star RHP Michael Fulmer**\
+`Fulmer, the 2016 AL ROY and 2017 All-Star, hasn’t pitched in the big leagues since 2023, when he had Tommy John surgery.`\
+https://nytimes.com/athletic/6276222/2025/04/13/boston-red-sox-richard-fitts-il-michael-fulmer/
+
+**Palin v. New York Times Heads Back to Trial**\
+`The case centers on the former Alaska governor’s claim that an editorial published in 2017 defamed her.`\
+https://nytimes.com/2025/04/13/business/palin-v-new-york-times-defamation-trial.html
+
+**Bahrain Grand Prix: Submit your questions for our F1 mailbag**\
+`What questions do you have for our writers after the Bahrain Grand Prix?`\
+https://nytimes.com/athletic/6276079/2025/04/13/f1-mailbag-bahrain-grand-prix/
+
 **Democrats Widely Blast Trump’s Tariffs, but Not Necessarily Tariffs**\
 `While Democrats have widely criticized President Trump’s whipsawing trade strategy as chaotic, they’ve displayed little consensus on where the party stands on tariffs overall.`\
 https://nytimes.com/2025/04/13/us/politics/democrats-trump-tariffs-policy.html
