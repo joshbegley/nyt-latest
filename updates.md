@@ -1,3 +1,15 @@
+**The Briefing: Chelsea 2 Ipswich 2 - Madueke shines but Maresca's side drop vital points**\
+`All the key talking points from Chelsea's 2-2 draw with Ipswich Town analysed and evaluated `\
+https://nytimes.com/athletic/6269341/2025/04/13/chelsea-2-ipswich-2-the-briefing/
+
+**Former LSU WR Kyren Lacy passes away at 24**\
+`Lacy was facing charges of negligent homicide, felony hit-and-run and reckless operation of a vehicle after a Dec. 17 car crash.`\
+https://nytimes.com/athletic/6275934/2025/04/13/lsu-kyren-lacy-death/
+
+**The Briefing: Wolves 4 Tottenham 2 - Vicario shaky as Spurs suffer yet more away day woe**\
+`Spurs slumped to a 17th defeat of the Premier League season, shipping four goals to 17th-place Wolves`\
+https://nytimes.com/athletic/6272150/2025/04/13/wolves-4-tottenham-2/
+
 **The Briefing: Liverpool 2 West Ham 1 - Van Dijk's winner, Salah's pass and another step closer to title glory**\
 `Daniel Taylor and Conor O'Neill break down the main talking points from Liverpool's dramatic 2-1 win over West Ham`\
 https://nytimes.com/athletic/6267396/2025/04/13/liverpool-2-west-ham-1-van-dijk-diaz-robertson-salah/
