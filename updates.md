@@ -1,3 +1,7 @@
+**Sevilla sack head coach Garcia Pimienta**\
+`Garcia Pimienta leaves Sevilla 13th in La Liga, with only nine wins from 31 league matches this season and seven points above the drop zone.`\
+https://nytimes.com/athletic/6273470/2025/04/13/sevilla-manager-sacked-garcia-pimienta/
+
 **How new Celtics' owner Bill Chisholm was shaped by Dartmouth soccer — and 'Melrose Place'**\
 `"Excuse my French, but he was a f---ing competitor," says former Big Green teammate Richie Graham.`\
 https://nytimes.com/athletic/6270659/2025/04/13/celtics-owner-bill-chisholm-dartmouth-soccer/

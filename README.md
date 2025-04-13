@@ -1,3 +1,7 @@
+**U.S. Nuclear Talks With Iran Move Forward, but Many Pitfalls Lie Ahead**\
+`In a first meeting, the United States and Iran show signs of pragmatism and limited aims, which would make success more likely. But hard-liners on both sides — and Israel — are bound to balk.`\
+https://nytimes.com/2025/04/13/world/europe/us-nuclear-talks-iran.html
+
 **Sevilla sack head coach Garcia Pimienta**\
 `Garcia Pimienta leaves Sevilla 13th in La Liga, with only nine wins from 31 league matches this season and seven points above the drop zone.`\
 https://nytimes.com/athletic/6273470/2025/04/13/sevilla-manager-sacked-garcia-pimienta/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/13/opinion/trump-deportations-supreme-court.html
 **'I've got a lot of support': Mike Trout knows the baseball world is rooting for his comeback**\
 `Trout, once the game's greatest player, knows he must re-prove his ability to play at a high level.`\
 https://nytimes.com/athletic/6275100/2025/04/13/angels-mike-trout-baseball-world-rooting-for-comeback/
-
-**Is 82 regular-season games too much? Warriors coach Steve Kerr thinks so**\
-`“I’m concerned about the product because I think we are asking way too much of our players,” Kerr said.`\
-https://nytimes.com/athletic/6198109/2025/04/13/warriors-coach-steve-kerr-nba-82-game-season/
 

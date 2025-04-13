@@ -1,3 +1,7 @@
+**Sevilla sack head coach Garcia Pimienta**\
+`Garcia Pimienta leaves Sevilla 13th in La Liga, with only nine wins from 31 league matches this season and seven points above the drop zone.`\
+https://nytimes.com/athletic/6273470/2025/04/13/sevilla-manager-sacked-garcia-pimienta/
+
 **How new Celtics' owner Bill Chisholm was shaped by Dartmouth soccer — and 'Melrose Place'**\
 `"Excuse my French, but he was a f---ing competitor," says former Big Green teammate Richie Graham.`\
 https://nytimes.com/athletic/6270659/2025/04/13/celtics-owner-bill-chisholm-dartmouth-soccer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6275100/2025/04/13/angels-mike-trout-baseball-world
 **Is 82 regular-season games too much? Warriors coach Steve Kerr thinks so**\
 `“I’m concerned about the product because I think we are asking way too much of our players,” Kerr said.`\
 https://nytimes.com/athletic/6198109/2025/04/13/warriors-coach-steve-kerr-nba-82-game-season/
-
-**Wordle Review No. 1,395**\
-`Scroll down for hints and conversation about the puzzle for Monday, April 14, 2025.`\
-https://nytimes.com/2025/04/13/crosswords/wordle-review-1395.html
 
