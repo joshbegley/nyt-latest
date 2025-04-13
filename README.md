@@ -1,5 +1,13 @@
+**Sean Murphy homers twice, Braves get their first late-innings comeback and first road win**\
+`The Braves overcame a 3-1 deficit after seven innings to beat the Tampa Bay Rays 5-4.`\
+https://nytimes.com/athletic/6275249/2025/04/12/braves-comeback-win-rays-sean-murphy/
+
+**Rory McIlroy vs. Bryson DeChambeau: The Masters showdown golf cannot wait for**\
+`The gods already smiled upon these parts of Georgia this week, but now comes a Sunday that can only be described as too good to be true.`\
+https://nytimes.com/athletic/6275137/2025/04/12/rory-mcilroy-bryson-dechambeau-masters-golf/
+
 **Jets' Nikolaj Ehlers injured vs. Blackhawks after collision with linesman**\
-`Ehlers is the league-leading Jets’ third-leading scorer with 63 points in 68 games.`\
+`The Jets are leading the league in points, and Ehlers is their third-leading scorer with 63 points in 69 games.`\
 https://nytimes.com/athletic/6275260/2025/04/12/jets-nikolaj-ehlers-injury-collision-nhl-linesman/
 
 **This Masters is now Rory McIlroy's biggest test**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6275143/2025/04/12/masters-2025-rory-mcilroy-august
 **Twins demote struggling Jose Miranda to minors after base-running blunder: Source**\
 `Brooks Lee is expected to come off the injured list to replace Miranda in the Twins' underperforming lineup.`\
 https://nytimes.com/athletic/6275086/2025/04/12/twins-jose-miranda-demoted-base-running-blunder/
-
-**CJ Carr shines in Notre Dame spring game, rising to the top of the QB competition**\
-`All three quarterbacks looked like college starters. That doesn't mean they all looked the same.`\
-https://nytimes.com/athletic/6275029/2025/04/12/qb-cj-carr-shines-notre-dame-spring-game/
-
-**A's-Mets game in Sacramento interrupted by medical cart malfunction**\
-`Mets broadcasters Gary Cohen and Ron Darling poked fun at the situation, saying, "This is something out of 'Keystone Cops.’"`\
-https://nytimes.com/athletic/6274999/2025/04/12/athletics-mets-cart-pushed-off-field/
 
