@@ -1,3 +1,8 @@
+**Frozen Four takeaways: Western Michigan's depth delivers first national championship, signings loom**\
+`Western Michigan defeated Boston University 6-2 in the Frozen Four final for the school's first NCAA hockey title.
+`\
+https://nytimes.com/athletic/6274747/2025/04/12/western-michigan-boston-university-frozen-four-championship/
+
 **Sean Murphy homers twice, Braves get their first late-innings comeback and first road win**\
 `The Braves overcame a 3-1 deficit after seven innings to beat the Tampa Bay Rays 5-4.`\
 https://nytimes.com/athletic/6275249/2025/04/12/braves-comeback-win-rays-sean-murphy/
@@ -33,8 +38,4 @@ https://nytimes.com/athletic/6275187/2025/04/12/astros-fan-interference-mike-tro
 **Rory McIlroy faced down his ghost and made Augusta National roar**\
 `If McIlroy wins this Masters — he leads Bryson DeChambeau by two shots with 18 holes to go — this might be the lasting image.`\
 https://nytimes.com/athletic/6275143/2025/04/12/masters-2025-rory-mcilroy-augusta-national-15-roar/
-
-**Twins demote struggling Jose Miranda to minors after base-running blunder: Source**\
-`Brooks Lee is expected to come off the injured list to replace Miranda in the Twins' underperforming lineup.`\
-https://nytimes.com/athletic/6275086/2025/04/12/twins-jose-miranda-demoted-base-running-blunder/
 
