@@ -1,3 +1,7 @@
+**White House Releases Results of Trump’s Annual Physical Exam**\
+`The report is the first public accounting of the president’s health since January, when he became the oldest man ever sworn into his office. His previous medical disclosures have drawn scrutiny.`\
+https://nytimes.com/2025/04/13/us/politics/trump-physical-exam-results.html
+
 **Trail Blazers coach Chauncey Billups agrees to multiyear extension**\
 `Billups has a 116-211 record since taking over the team in June 2021.`\
 https://nytimes.com/athletic/6276086/2025/04/13/trail-blazers-chauncey-billups-contract-extension/

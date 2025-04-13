@@ -1,3 +1,7 @@
+**White House Releases Results of Trump’s Annual Physical Exam**\
+`The report is the first public accounting of the president’s health since January, when he became the oldest man ever sworn into his office. His previous medical disclosures have drawn scrutiny.`\
+https://nytimes.com/2025/04/13/us/politics/trump-physical-exam-results.html
+
 **Trail Blazers coach Chauncey Billups agrees to multiyear extension**\
 `Billups has a 116-211 record since taking over the team in June 2021.`\
 https://nytimes.com/athletic/6276086/2025/04/13/trail-blazers-chauncey-billups-contract-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6269341/2025/04/13/chelsea-2-ipswich-2-the-briefing
 **Former LSU WR Kyren Lacy dead at 24**\
 `Lacy was facing charges of negligent homicide, felony hit-and-run and reckless operation of a vehicle after a Dec. 17 car crash.`\
 https://nytimes.com/athletic/6275934/2025/04/13/lsu-kyren-lacy-death/
-
-**The Briefing: Liverpool 2 West Ham 1 - Van Dijk's winner, Salah's pass and another step closer to title glory**\
-`Daniel Taylor and Conor O'Neill break down the main talking points from Liverpool's dramatic 2-1 win over West Ham`\
-https://nytimes.com/athletic/6267396/2025/04/13/liverpool-2-west-ham-1-van-dijk-diaz-robertson-salah/
 

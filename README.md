@@ -1,3 +1,7 @@
+**Jean Marsh, Actress Who Co-Created ‘Upstairs, Downstairs,’ Dies at 90**\
+`She not only helped develop the hit 1970s show, but also acted in it, and had a decades-long career in film, TV and theater.`\
+https://nytimes.com/2025/04/13/obituaries/jean-marsh-dead.html
+
 **White House Releases Results of Trump’s Annual Physical Exam**\
 `The report is the first public accounting of the president’s health since January, when he became the oldest man ever sworn into his office. His previous medical disclosures have drawn scrutiny.`\
 https://nytimes.com/2025/04/13/us/politics/trump-physical-exam-results.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/13/us/politics/josh-shapiro-arson-attack-pennsylvani
 **The Briefing: Chelsea 2 Ipswich Town 2 - Madueke shines but Maresca's side drop vital points**\
 `All the key talking points from Chelsea's 2-2 draw with Ipswich Town analysed and evaluated `\
 https://nytimes.com/athletic/6269341/2025/04/13/chelsea-2-ipswich-2-the-briefing/
-
-**Former LSU WR Kyren Lacy dead at 24**\
-`Lacy was facing charges of negligent homicide, felony hit-and-run and reckless operation of a vehicle after a Dec. 17 car crash.`\
-https://nytimes.com/athletic/6275934/2025/04/13/lsu-kyren-lacy-death/
 
