@@ -1,3 +1,7 @@
+**Barca's Leon handed two-game ban for 'unsporting conduct' with Caracas**\
+`Video footage widely circulated on social media appeared to show Barcelona defender Leon, 29, inappropriately touching Caracas.`\
+https://nytimes.com/athletic/6129480/2025/04/13/mapi-leon-barcelona-caracas-espanyol/
+
 **U.S. Nuclear Talks With Iran Move Forward, but Many Pitfalls Lie Ahead**\
 `In a first meeting, the United States and Iran show signs of pragmatism and limited aims, which would make success more likely. But hard-liners on both sides — and Israel — are bound to balk.`\
 https://nytimes.com/2025/04/13/world/europe/us-nuclear-talks-iran.html

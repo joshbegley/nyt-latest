@@ -1,3 +1,7 @@
+**Barca's Leon handed two-game ban for 'unsporting conduct' with Caracas**\
+`Video footage widely circulated on social media appeared to show Barcelona defender Leon, 29, inappropriately touching Caracas.`\
+https://nytimes.com/athletic/6129480/2025/04/13/mapi-leon-barcelona-caracas-espanyol/
+
 **U.S. Nuclear Talks With Iran Move Forward, but Many Pitfalls Lie Ahead**\
 `In a first meeting, the United States and Iran show signs of pragmatism and limited aims, which would make success more likely. But hard-liners on both sides — and Israel — are bound to balk.`\
 https://nytimes.com/2025/04/13/world/europe/us-nuclear-talks-iran.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/13/opinion/palm-sunday-protest.html
 **The Supreme Court Ruled. Trump and the A.C.L.U. Both Claimed Victory. Huh?**\
 `The administration won a narrow procedural victory, but it took a substantial constitutional loss.`\
 https://nytimes.com/2025/04/13/opinion/trump-deportations-supreme-court.html
-
-**'I've got a lot of support': Mike Trout knows the baseball world is rooting for his comeback**\
-`Trout, once the game's greatest player, knows he must re-prove his ability to play at a high level.`\
-https://nytimes.com/athletic/6275100/2025/04/13/angels-mike-trout-baseball-world-rooting-for-comeback/
 
