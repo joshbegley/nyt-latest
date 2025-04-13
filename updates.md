@@ -1,3 +1,8 @@
+**Western Michigan rises to 'biggest stage,' wins first NCAA hockey national championship**\
+`Western Michigan secured its first Frozen Four title in the program's history with a 6-2 victory over Boston University on Saturday night.
+`\
+https://nytimes.com/athletic/6275450/2025/04/13/western-michigan-ncaa-hockey-national-championship/
+
 **Roki Sasaki completes 5 innings and continues to course-correct for the Dodgers**\
 `Sasaki completed five innings for the first time in the big leagues with just one run in a laugher of a 16-0 loss to the Cubs.`\
 https://nytimes.com/athletic/6275497/2025/04/13/roki-sasaki-dodgers-cubs/

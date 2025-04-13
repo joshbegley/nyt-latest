@@ -1,3 +1,7 @@
+**Why Canucks' loss to Wild is a microcosm of a disappointing season**\
+`With the opportunity to play spoiler, Vancouver was up to the task — at least until the third period.`\
+https://nytimes.com/athletic/6275471/2025/04/13/canucks-lose-wild-disappointing-season-takeaways/
+
 **Canadiens captain Nick Suzuki recovers from worst game in months to play one of his best**\
 `Suzuki was disappointed with how his line played Friday in Ottawa and came back the next night to dominate its matchup with Auston Matthews.`\
 https://nytimes.com/athletic/6275502/2025/04/13/canadiens-lose-leafs-nick-suzuki-performance/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/04/13/us/politics/trump-ufc-fight-reyes.html
 **Crystal Palace receive a chilling look at a life without Marc Guehi**\
 `Palace’s captain was a significant miss in defence after receiving a one-match suspension for picking up two yellow cards last week`\
 https://nytimes.com/athletic/6257603/2025/04/13/crystal-palace-manchester-city-guehi/
-
-**Bompastor and Chelsea take another major step in their quadruple pursuit**\
-`A late winner to secure a place in the Women's FA Cup final is another sign Chelsea are determined to win on all fronts this season`\
-https://nytimes.com/athletic/6274601/2025/04/13/sonia-bompastor-chelsea-quadruple/
 
