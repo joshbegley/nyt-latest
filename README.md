@@ -1,3 +1,7 @@
+**British Laws Are Not Fit for Social Media Age, Says Report on U.K. Riots**\
+`Outdated legislation prevented the police from rapidly correcting misinformation after a stabbing attack on a Taylor Swift-themed dance class last summer, lawmakers said.`\
+https://nytimes.com/2025/04/13/world/europe/uk-riots-social-media-contempt.html
+
 **Victor Wembanyama confident he 'will be ready' for next season after blood clot**\
 `Though Wemby played only 46 games, he finished the season as the league leader in total blocks.`\
 https://nytimes.com/athletic/6276915/2025/04/13/spurs-victor-wembanyama-blood-clot-ready-next-season/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000010108327/ukraine-russia-strikes-su
 **Man Utd in a ‘desperate situation’ after Newcastle defeat — Neville**\
 `United are 14th in the table, only three points ahead of 17th-placed Wolverhampton Wanderers, and 17 points off the top five.`\
 https://nytimes.com/athletic/6276534/2025/04/13/manchester-united-newcastle-gary-neville/
-
-**USA defeats Canada in IIHF Women’s World Championship prelim matchup: Takeaways**\
-`Team USA defeated Team Canada 2-1 in their preliminary round matchup at the 2025 IIHF Women’s World Championship on Sunday night.`\
-https://nytimes.com/athletic/6276520/2025/04/13/canada-usa-womens-world-championship-hockey-2025/
 
