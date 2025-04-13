@@ -1,3 +1,11 @@
+**Brad Holland, 81, Dies; His Subversive Art Reinvented Illustration**\
+`His stark and stunning work for Playboy, The New York Times and Manhattan’s underground papers heralded a new era of conceptual illustration.`\
+https://nytimes.com/2025/04/13/arts/brad-holland-dead.html
+
+**Alcaraz surges to Monte Carlo Masters title, reclaiming No. 2 world ranking**\
+`After a loose first set, Alcaraz eased past an ailing Musetti, first with brilliance and then with focus.`\
+https://nytimes.com/athletic/6275715/2025/04/13/carlos-alcaraz-monte-carlo-masters-result-analysis-lorenzo-musetti/
+
 **Barcelona's Balde suffers hamstring injury; doubt for Copa final**\
 `The left-back suffered the injury in Saturday's La Liga victory at Leganes, having to be replaced in the 41st minute by Gerard Martin.`\
 https://nytimes.com/athletic/6275709/2025/04/13/barcelona-alejandro-balde-injury-update/
