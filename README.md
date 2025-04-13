@@ -1,3 +1,7 @@
+**Andre Onana rested for Man United game at Newcastle**\
+`Onana has played every minute of United's 69 Premier League matches since joining from Inter in the summer of 2023.`\
+https://nytimes.com/athletic/6275614/2025/04/13/andre-onana-manchester-united-newcastle/
+
 **Mats Zuccarello talks the talk, then caps comeback win with biggest goal of Wild's season**\
 `"Big-time players make big plays," Brock Faber said of Zuccarello, "and he just seems to always be there in the big moments."`\
 https://nytimes.com/athletic/6275255/2025/04/13/wild-canucks-mats-zuccarello-biggest-goal-of-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6275502/2025/04/13/canadiens-lose-leafs-nick-suzuki
 **Xi’s Visit Highlights Dilemma for Southeast Asia in U.S.-China Trade War**\
 `China’s leader is on a charm offensive in the region, but some of Beijing’s neighbors are wary of being caught in the crossfire of a superpower rivalry.`\
 https://nytimes.com/2025/04/13/world/asia/china-xi-us-trade-war-southeast-asia.html
-
-**Roki Sasaki completes 5 innings and continues to course-correct for the Dodgers**\
-`Sasaki completed five innings for the first time in the big leagues with just one run in a laugher of a 16-0 loss to the Cubs.`\
-https://nytimes.com/athletic/6275497/2025/04/13/roki-sasaki-dodgers-cubs/
 
