@@ -1,3 +1,7 @@
+**Gout, 17, breaks 20-second barrier to win 200m**\
+`Gout's 19.84-second run on Sunday surpasses Usain Bolt’s 19.93 in 2004 and Justin Gatlin’s 19.86 in 2001.`\
+https://nytimes.com/athletic/6275690/2025/04/13/gout-gout-sprinter-record-200m/
+
 **Understanding A.D.H.D.**\
 `What’s behind the surge in cases in the U.S.?`\
 https://nytimes.com/2025/04/13/briefing/adhd-cases-us.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6270659/2025/04/13/celtics-owner-bill-chisholm-dart
 **The Masters' green jacket: The history, value, and who owns them**\
 `One green jacket was found in a Toronto thrift store and another attempted sale was thwarted by the FBI. `\
 https://nytimes.com/athletic/6274700/2025/04/13/masters-green-jacket-value/
-
-**Once worried for his roster spot, Zach McKinstry is now central to the Tigers' mission**\
-`Zach McKinstry entered Saturday hitting .298 with a 131 wRC+ since Aug. 1 of last season.`\
-https://nytimes.com/athletic/6274944/2025/04/13/once-worried-for-his-roster-spot-zach-mckinstry-is-now-central-to-the-tigers-mission/
 

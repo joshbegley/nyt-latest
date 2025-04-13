@@ -1,3 +1,7 @@
+**Gout, 17, breaks 20-second barrier to win 200m**\
+`Gout's 19.84-second run on Sunday surpasses Usain Bolt’s 19.93 in 2004 and Justin Gatlin’s 19.86 in 2001.`\
+https://nytimes.com/athletic/6275690/2025/04/13/gout-gout-sprinter-record-200m/
+
 **Understanding A.D.H.D.**\
 `What’s behind the surge in cases in the U.S.?`\
 https://nytimes.com/2025/04/13/briefing/adhd-cases-us.html
