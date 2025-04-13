@@ -1,3 +1,7 @@
+**Rece Davis to stay with ESPN after being heavily pursued by Fox Sports**\
+`Davis has agreed to a new seven-year deal with ESPN worth tens of millions of dollars, according to sources briefed on the deal.`\
+https://nytimes.com/athletic/6275759/2025/04/13/rece-davis-espn-fox-sports/
+
 **A day-by-day look at what needs to happen for Blues to make NHL playoffs**\
 `The Blues' 4-3 shootout loss to Seattle on Thursday made their path to the playoffs a little more difficult, but it's still within reach.`\
 https://nytimes.com/athletic/6275081/2025/04/13/st-louis-blues-nhl-playoffs-chances/

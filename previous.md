@@ -1,3 +1,7 @@
+**Rece Davis to stay with ESPN after being heavily pursued by Fox Sports**\
+`Davis has agreed to a new seven-year deal with ESPN worth tens of millions of dollars, according to sources briefed on the deal.`\
+https://nytimes.com/athletic/6275759/2025/04/13/rece-davis-espn-fox-sports/
+
 **A day-by-day look at what needs to happen for Blues to make NHL playoffs**\
 `The Blues' 4-3 shootout loss to Seattle on Thursday made their path to the playoffs a little more difficult, but it's still within reach.`\
 https://nytimes.com/athletic/6275081/2025/04/13/st-louis-blues-nhl-playoffs-chances/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/13/world/middleeast/israel-gaza-aid-worker-captured.
 **Brad Holland, 81, Dies; His Subversive Art Reinvented Illustration**\
 `His stark and stunning work for Playboy, The New York Times and Manhattan’s underground papers heralded a new era of conceptual illustration.`\
 https://nytimes.com/2025/04/13/arts/brad-holland-dead.html
-
-**Alcaraz surges to Monte Carlo Masters title, reclaiming No. 2 world ranking**\
-`After a loose first set, Alcaraz eased past an ailing Musetti, first with brilliance and then with focus.`\
-https://nytimes.com/athletic/6275715/2025/04/13/carlos-alcaraz-monte-carlo-masters-result-analysis-lorenzo-musetti/
 
