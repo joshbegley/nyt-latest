@@ -1,3 +1,7 @@
+**Explosion in Austin Damages 24 Houses and Injures 6 People**\
+`The cause of the enormous explosion at a house on Sunday, which could be heard miles away, was not immediately known. Officials described it as an “isolated incident.”`\
+https://nytimes.com/2025/04/13/us/austin-house-explosion.html
+
 **Lando Norris' mistakes and a ‘flawless’ Oscar Piastri swings title momentum**\
 `Bahrain showed just how costly anything less than perfect from Lando Norris can be when it comes to shipping points`\
 https://nytimes.com/athletic/6276496/2025/04/13/lando-norris-oscar-piastri-bahrain-grand-prix-mclaren/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6276423/2025/04/13/rangers-calvin-de-haan-nhl/
 **Man Pleads Guilty to Selling Sperm Whale Teeth and Bones**\
 `Lauren H. DeLoach of South Carolina admitted to importing more than $18,000 worth of sperm whale parts from Australia, Latvia, Norway and Ukraine, prosecutors said.`\
 https://nytimes.com/2025/04/13/us/whale-sperm-bones-sale-illegal-guilty.html
-
-**Davide Ancelotti: Mbappe 'asks for forgiveness' after Madrid red card challenge**\
-`Mbappe was sent off for a late, forceful tackle on Alaves’ Antonio Blanco, catching the midfielder high on the leg with his studs.`\
-https://nytimes.com/athletic/6276428/2025/04/13/kylian-mbappe-real-madrid-red-card/
 

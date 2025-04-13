@@ -1,3 +1,11 @@
+**Lando Norris' mistakes and a ‘flawless’ Oscar Piastri swings title momentum**\
+`Bahrain showed just how costly anything less than perfect from Lando Norris can be when it comes to shipping points`\
+https://nytimes.com/athletic/6276496/2025/04/13/lando-norris-oscar-piastri-bahrain-grand-prix-mclaren/
+
+**Monday Briefing: China Pauses Crucial Exports**\
+`Plus, an art forest in Thailand.`\
+https://nytimes.com/2025/04/13/briefing/china-exports-russia-airstrike-ukraine-saudi-nuclear-deal.html
+
 **Russian Strike on Ukrainian City Kills and Wounds Dozens**\
 `At least 34 people were killed after two ballistic missiles struck Sumy, Ukraine, a city near the Russian border, on Palm Sunday.`\
 https://nytimes.com/video/world/europe/100000010108327/ukraine-russia-strikes-sumy.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/13/us/whale-sperm-bones-sale-illegal-guilty.html
 **Davide Ancelotti: Mbappe 'asks for forgiveness' after Madrid red card challenge**\
 `Mbappe was sent off for a late, forceful tackle on Alaves’ Antonio Blanco, catching the midfielder high on the leg with his studs.`\
 https://nytimes.com/athletic/6276428/2025/04/13/kylian-mbappe-real-madrid-red-card/
-
-**Rubio Says 10 More People Have Been Expelled to El Salvador**\
-`Secretary of State Marco Rubio said on Sunday that “the alliance” between President Trump and President Nayib Bukele of El Salvador had “become an example for security and prosperity in our hemisphere.”`\
-https://nytimes.com/2025/04/13/us/politics/rubio-deportions-el-salvador-trump-bukele.html
-
-**Several Parts of Helicopter That Crashed in Hudson Are Still Missing**\
-`The helicopter did not have any flight recorders, officials said. The investigation into the cause of the crash, which killed six people, is continuing.`\
-https://nytimes.com/2025/04/13/nyregion/helicopter-crash-nyc-parts-missing.html
 
