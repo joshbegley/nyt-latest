@@ -1,3 +1,7 @@
+**Gavi isn't a regular starter for Barcelona right now but is embracing his role**\
+`The 20-year-old has been on the bench for consecutive games but is contributing to Barcelona's cause despite his reduced minutes`\
+https://nytimes.com/athletic/6275569/2025/04/13/gavi-barcelona-hansi-flick-minutes/
+
 **Andre Onana rested for Man United game at Newcastle**\
 `Onana has played every minute of United's 69 Premier League matches since joining from Inter in the summer of 2023.`\
 https://nytimes.com/athletic/6275614/2025/04/13/andre-onana-manchester-united-newcastle/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6275471/2025/04/13/canucks-lose-wild-disappointing-
 **Canadiens captain Nick Suzuki recovers from worst game in months to play one of his best**\
 `Suzuki was disappointed with how his line played Friday in Ottawa and came back the next night to dominate its matchup with Auston Matthews.`\
 https://nytimes.com/athletic/6275502/2025/04/13/canadiens-lose-leafs-nick-suzuki-performance/
-
-**Xi’s Visit Highlights Dilemma for Southeast Asia in U.S.-China Trade War**\
-`China’s leader is on a charm offensive in the region, but some of Beijing’s neighbors are wary of being caught in the crossfire of a superpower rivalry.`\
-https://nytimes.com/2025/04/13/world/asia/china-xi-us-trade-war-southeast-asia.html
 

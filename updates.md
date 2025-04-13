@@ -1,3 +1,7 @@
+**Gavi isn't a regular starter for Barcelona right now but is embracing his role**\
+`The 20-year-old has been on the bench for consecutive games but is contributing to Barcelona's cause despite his reduced minutes`\
+https://nytimes.com/athletic/6275569/2025/04/13/gavi-barcelona-hansi-flick-minutes/
+
 **Andre Onana rested for Man United game at Newcastle**\
 `Onana has played every minute of United's 69 Premier League matches since joining from Inter in the summer of 2023.`\
 https://nytimes.com/athletic/6275614/2025/04/13/andre-onana-manchester-united-newcastle/
