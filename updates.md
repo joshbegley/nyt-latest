@@ -1,3 +1,11 @@
+**Salah's Liverpool career (so far) in extremely niche and obscure stats**\
+`Mohamed Salah's new contract with Liverpool was announced on Friday, giving him the chance to add more niche stats to his resume`\
+https://nytimes.com/athletic/6272084/2025/04/13/mohamed-salah-liverpool-stats/
+
+**The Englishman who founded AC Milan and the people keeping his legacy alive**\
+`Herbert Kilpin was a figure of relative obscurity but his legacy is now receiving the treatment it deserves`\
+https://nytimes.com/athletic/6266856/2025/04/13/herbert-kilpin-ac-milan-england/
+
 **Guardiola's long search to identify Man City's problems may finally be over**\
 `The City manager spoke in detail about the issues affecting his side this season, tracing them all the way back to a game five months ago`\
 https://nytimes.com/athletic/6274538/2025/04/13/manchester-city-pep-guardiola-crystal-palace/
