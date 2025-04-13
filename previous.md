@@ -1,3 +1,7 @@
+**Cubs' Justin Steele to have season-ending surgery on elbow, forearm**\
+`The Cubs do not have a way to immediately and seamlessly replace Steele, who underwent Tommy John surgery in 2017.`\
+https://nytimes.com/athletic/6276721/2025/04/13/cubs-justin-steele-injury-elbow-surgery/
+
 **Explosion in Austin Damages 24 Houses and Injures 6 People**\
 `The cause of the enormous explosion at a house on Sunday, which could be heard miles away, was not immediately known. Officials described it as an “isolated incident.”`\
 https://nytimes.com/2025/04/13/us/austin-house-explosion.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6276210/2025/04/13/new-york-knicks-playoffs-pressur
 **Rangers' de Haan frustrated by healthy scratches, says treatment has been 'f---ed'**\
 `The Rangers have made the veteran defenseman a healthy scratch the past 18 games. “Just wasting time,” de Haan said.`\
 https://nytimes.com/athletic/6276423/2025/04/13/rangers-calvin-de-haan-nhl/
-
-**Man Pleads Guilty to Selling Sperm Whale Teeth and Bones**\
-`Lauren H. DeLoach of South Carolina admitted to importing more than $18,000 worth of sperm whale parts from Australia, Latvia, Norway and Ukraine, prosecutors said.`\
-https://nytimes.com/2025/04/13/us/whale-sperm-bones-sale-illegal-guilty.html
 

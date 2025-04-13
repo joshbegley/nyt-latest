@@ -1,3 +1,7 @@
+**Cubs' Justin Steele to have season-ending surgery on elbow, forearm**\
+`The Cubs do not have a way to immediately and seamlessly replace Steele, who underwent Tommy John surgery in 2017.`\
+https://nytimes.com/athletic/6276721/2025/04/13/cubs-justin-steele-injury-elbow-surgery/
+
 **Explosion in Austin Damages 24 Houses and Injures 6 People**\
 `The cause of the enormous explosion at a house on Sunday, which could be heard miles away, was not immediately known. Officials described it as an “isolated incident.”`\
 https://nytimes.com/2025/04/13/us/austin-house-explosion.html
