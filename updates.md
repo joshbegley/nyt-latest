@@ -1,3 +1,7 @@
+**Andre Onana rested for Man United game at Newcastle**\
+`Onana has played every minute of United's 69 Premier League matches since joining from Inter in the summer of 2023.`\
+https://nytimes.com/athletic/6275614/2025/04/13/andre-onana-manchester-united-newcastle/
+
 **Mats Zuccarello talks the talk, then caps comeback win with biggest goal of Wild's season**\
 `"Big-time players make big plays," Brock Faber said of Zuccarello, "and he just seems to always be there in the big moments."`\
 https://nytimes.com/athletic/6275255/2025/04/13/wild-canucks-mats-zuccarello-biggest-goal-of-season/
