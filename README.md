@@ -1,3 +1,7 @@
+**Israel Strikes Hospital in Gaza’s North and Captures Key Part of South**\
+`No one was killed but the attack the Ahli Arab Hospital, a mainstay of Gaza’s decimated health care system. Separately, Israel said its troops had expanded their occupation of southern Gaza.`\
+https://nytimes.com/2025/04/13/world/middleeast/gaza-israel-hospital.html
+
 **Gout, 17, breaks 20-second barrier to win 200m**\
 `Gout's 19.84-second run on Sunday surpasses Usain Bolt’s 19.93 in 2004 and Justin Gatlin’s 19.86 in 2001.`\
 https://nytimes.com/athletic/6275690/2025/04/13/gout-gout-sprinter-record-200m/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6273470/2025/04/13/sevilla-manager-sacked-garcia-pi
 **How new Celtics' owner Bill Chisholm was shaped by Dartmouth soccer — and 'Melrose Place'**\
 `"Excuse my French, but he was a f---ing competitor," says former Big Green teammate Richie Graham.`\
 https://nytimes.com/athletic/6270659/2025/04/13/celtics-owner-bill-chisholm-dartmouth-soccer/
-
-**The Masters' green jacket: The history, value, and who owns them**\
-`One green jacket was found in a Toronto thrift store and another attempted sale was thwarted by the FBI. `\
-https://nytimes.com/athletic/6274700/2025/04/13/masters-green-jacket-value/
 
