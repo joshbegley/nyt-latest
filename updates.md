@@ -1,3 +1,7 @@
+**Ukraine tennis team dedicates Billie Jean King Cup qualification to nation's soldiers**\
+`Ukrainian tennis player Elina Svitolina is one of the country's most prominent campaigners against Russia's invasion of the country.`\
+https://nytimes.com/athletic/6275705/2025/04/13/tennis-ukraine-war-billie-jean-king-cup/
+
 **‘S.N.L.’: Laughing All the Way to Financial Chaos**\
 `Among the sources of all the fun is ‘The White POTUS,” a parody that casts members of the administration in their own twisted playground for the privileged.`\
 https://nytimes.com/2025/04/13/arts/snl-financial-chaos-white-lotus.html
