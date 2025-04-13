@@ -1,3 +1,7 @@
+**‘The Last of Us’ Review: On the Road Again**\
+`Season 2 of HBO’s zombie drama begins with Joel and Ellie safe and settled. One guess how long that lasts.`\
+https://nytimes.com/2025/04/13/arts/television/the-last-of-us-review.html
+
 **Read the document**\
 `The White House released the results of President Trump’s annual physical examination on Sunday.`\
 https://nytimes.com/interactive/2025/04/13/us/1.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/13/opinion/campus-speech.html
 **USC spring practice thoughts: Portal needs, safety depth, Ja’Kobi Lane's development**\
 `Things could always change, but USC does not seem interested in pursuing Tennessee quarterback Nico Iamaleava.`\
 https://nytimes.com/athletic/6275713/2025/04/13/usc-spring-practice-quarterback-jakobi-lane/
-
-**Medic Missing After Gaza Attack Is in Israeli Custody, Aid Groups Say**\
-`Asaad al-Nasasra has not been heard from since the March 23 ambush by Israeli forces, which left 15 aid workers dead and drew international condemnation.`\
-https://nytimes.com/2025/04/13/world/middleeast/israel-gaza-aid-worker-captured.html
 

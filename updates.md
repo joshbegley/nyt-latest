@@ -1,3 +1,7 @@
+**Read the document**\
+`The White House released the results of President Trump’s annual physical examination on Sunday.`\
+https://nytimes.com/interactive/2025/04/13/us/1.html
+
 **Rece Davis to stay with ESPN after being heavily pursued by Fox Sports**\
 `Davis has agreed to a new seven-year deal with ESPN worth tens of millions of dollars, according to sources briefed on the deal.`\
 https://nytimes.com/athletic/6275759/2025/04/13/rece-davis-espn-fox-sports/
