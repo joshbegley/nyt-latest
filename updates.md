@@ -1,3 +1,23 @@
+**The Last Flight of Helicopter N216MH**\
+`The aircraft had flown tourists in New York City thousands of times before crashing Thursday with a Spanish family aboard. Passengers who had flown earlier that day are processing the shock.`\
+https://nytimes.com/2025/04/13/nyregion/nyc-hudson-river-helicopter-crash-escobar.html
+
+**A Word on Washington ‘Secrets’**\
+`After the Nixon White House sued to stop The New York Times from publishing the Pentagon Papers, an editor wrote a memo explaining how the information trade really worked.`\
+https://nytimes.com/2025/04/13/pageoneplus/max-frankel-memo.html
+
+**‘She Said She Lived in Las Vegas Now but Loved New York’**\
+`Help with a heavy door, a grocery spill on the subway and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2025/04/13/nyregion/metropolitan-diary.html
+
+**Kathryn Garcia Was Nearly Elected Mayor in 2021. Who Gets Her Votes Now?**\
+`Ms. Garcia finished second in the 2021 Democratic mayoral primary in New York City. Her supporters could be an important factor in this year’s race.`\
+https://nytimes.com/2025/04/13/nyregion/kathryn-garcia-voters-cuomo-mayor.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/04/13/crosswords/spelling-bee-forum.html
+
 **Western Michigan rises to 'biggest stage,' wins first NCAA hockey national championship**\
 `Western Michigan secured its first Frozen Four title in the program's history with a 6-2 victory over Boston University on Saturday night.
 `\

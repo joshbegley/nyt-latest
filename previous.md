@@ -1,3 +1,23 @@
+**The Last Flight of Helicopter N216MH**\
+`The aircraft had flown tourists in New York City thousands of times before crashing Thursday with a Spanish family aboard. Passengers who had flown earlier that day are processing the shock.`\
+https://nytimes.com/2025/04/13/nyregion/nyc-hudson-river-helicopter-crash-escobar.html
+
+**A Word on Washington ‘Secrets’**\
+`After the Nixon White House sued to stop The New York Times from publishing the Pentagon Papers, an editor wrote a memo explaining how the information trade really worked.`\
+https://nytimes.com/2025/04/13/pageoneplus/max-frankel-memo.html
+
+**‘She Said She Lived in Las Vegas Now but Loved New York’**\
+`Help with a heavy door, a grocery spill on the subway and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2025/04/13/nyregion/metropolitan-diary.html
+
+**Kathryn Garcia Was Nearly Elected Mayor in 2021. Who Gets Her Votes Now?**\
+`Ms. Garcia finished second in the 2021 Democratic mayoral primary in New York City. Her supporters could be an important factor in this year’s race.`\
+https://nytimes.com/2025/04/13/nyregion/kathryn-garcia-voters-cuomo-mayor.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/04/13/crosswords/spelling-bee-forum.html
+
 **Why Canucks' loss to Wild is a microcosm of a disappointing season**\
 `With the opportunity to play spoiler, Vancouver was up to the task — at least until the third period.`\
 https://nytimes.com/athletic/6275471/2025/04/13/canucks-lose-wild-disappointing-season-takeaways/
@@ -17,25 +37,4 @@ https://nytimes.com/athletic/6275497/2025/04/13/roki-sasaki-dodgers-cubs/
 **‘You Try to Build Anything, and You’re Stepping Into Quicksand’**\
 `Speed is a progressive virtue.`\
 https://nytimes.com/2025/04/13/opinion/doge-abundance-government-bulding.html
-
-**The New York Times in Print for Sunday, April 13, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/04/13/todays-new-york-times
-
-**America Is Learning the Wrong Lesson from Elon Musk’s Success**\
-`Intimidation doesn’t elevate performance; it undermines people.`\
-https://nytimes.com/2025/04/13/opinion/elon-musk-leadership-business-education.html
-
-**Western Michigan rises to 'biggest stage,' wins first NCAA hockey national championship**\
-`Western Michigan secured its first Frozen Four title in the program's history with a 6-2 victory over Boston University on Saturday night.
-`\
-https://nytimes.com/athletic/6275450/2025/04/13/western-michigan-ncaa-hockey-national-championship/
-
-**Trump and Some of His Cabinet Members Attend U.F.C. Fight in Miami**\
-`The spectacle at the mixed martial arts event was emblematic of an emboldened president who increasingly encourages displays of force to carry out his agenda.`\
-https://nytimes.com/2025/04/13/us/politics/trump-ufc-fight-reyes.html
-
-**Crystal Palace receive a chilling look at a life without Marc Guehi**\
-`Palace’s captain was a significant miss in defence after receiving a one-match suspension for picking up two yellow cards last week`\
-https://nytimes.com/athletic/6257603/2025/04/13/crystal-palace-manchester-city-guehi/
 
