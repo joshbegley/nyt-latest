@@ -1,3 +1,7 @@
+**Rory McIlroy wins the Masters in dramatic playoff, completes career Grand Slam**\
+`McIlroy's 4 foot birdie putt in the first playoff hole beat Justin Rose, the Northern Irishman falling to his knees in an emotional moment.`\
+https://nytimes.com/athletic/6276762/2025/04/13/rory-mcilroy-wins-masters-2025-augusta/
+
 **British Laws Are Not Fit for Social Media Age, Says Report on U.K. Riots**\
 `Outdated legislation prevented the police from rapidly correcting misinformation after a stabbing attack on a Taylor Swift-themed dance class last summer, lawmakers said.`\
 https://nytimes.com/2025/04/13/world/europe/uk-riots-social-media-contempt.html

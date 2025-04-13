@@ -1,5 +1,9 @@
+**U.S. Renews Opposition to Bringing Back Maryland Man Wrongly Deported to El Salvador**\
+`The Justice Department’s latest legal filing asserted that courts cannot direct President Trump’s foreign policy by forcing the return of a man unlawfully sent to a Salvadoran prison.`\
+https://nytimes.com/2025/04/13/us/politics/trump-courts-deportation-el-salvador.html
+
 **Rory McIlroy wins the Masters in dramatic playoff, completes career Grand Slam**\
-`McIlroy's 4 foot birdie putt in the first playoff hole beat Justin Rose, the Northern Irishman falling to his knees in an emotional moment.`\
+`McIlroy's 4-foot birdie putt on the first playoff hole beat Justin Rose, the Northern Irishman falling to his knees in an emotional moment.`\
 https://nytimes.com/athletic/6276762/2025/04/13/rory-mcilroy-wins-masters-2025-augusta/
 
 **British Laws Are Not Fit for Social Media Age, Says Report on U.K. Riots**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6276496/2025/04/13/lando-norris-oscar-piastri-bahra
 **Monday Briefing: China Pauses Crucial Exports**\
 `Plus, an art forest in Thailand.`\
 https://nytimes.com/2025/04/13/briefing/china-exports-russia-airstrike-ukraine-saudi-nuclear-deal.html
-
-**Russian Strike on Ukrainian City Kills and Wounds Dozens**\
-`At least 34 people were killed after two ballistic missiles struck Sumy, Ukraine, a city near the Russian border, on Palm Sunday.`\
-https://nytimes.com/video/world/europe/100000010108327/ukraine-russia-strikes-sumy.html
 
