@@ -1,3 +1,7 @@
+**Rubio Says 10 More People Have Been Expelled to El Salvador**\
+`Secretary of State Marco Rubio said on Sunday that “the alliance” between President Trump and President Nayib Bukele of El Salvador had “become an example for security and prosperity in our hemisphere.”`\
+https://nytimes.com/2025/04/13/us/politics/rubio-deportions-el-salvador-trump-bukele.html
+
 **Several Parts of Helicopter That Crashed in Hudson Are Still Missing**\
 `The helicopter did not have any flight recorders, officials said. The investigation into the cause of the crash, which killed six people, is continuing.`\
 https://nytimes.com/2025/04/13/nyregion/helicopter-crash-nyc-parts-missing.html

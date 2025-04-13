@@ -1,3 +1,7 @@
+**Rubio Says 10 More People Have Been Expelled to El Salvador**\
+`Secretary of State Marco Rubio said on Sunday that “the alliance” between President Trump and President Nayib Bukele of El Salvador had “become an example for security and prosperity in our hemisphere.”`\
+https://nytimes.com/2025/04/13/us/politics/rubio-deportions-el-salvador-trump-bukele.html
+
 **Several Parts of Helicopter That Crashed in Hudson Are Still Missing**\
 `The helicopter did not have any flight recorders, officials said. The investigation into the cause of the crash, which killed six people, is continuing.`\
 https://nytimes.com/2025/04/13/nyregion/helicopter-crash-nyc-parts-missing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6276222/2025/04/13/boston-red-sox-richard-fitts-il-
 **Palin v. New York Times Heads Back to Trial**\
 `The case centers on the former Alaska governor’s claim that an editorial published in 2017 defamed her.`\
 https://nytimes.com/2025/04/13/business/palin-v-new-york-times-defamation-trial.html
-
-**Bahrain Grand Prix: Submit your questions for our F1 mailbag**\
-`What questions do you have for our writers after the Bahrain Grand Prix?`\
-https://nytimes.com/athletic/6276079/2025/04/13/f1-mailbag-bahrain-grand-prix/
 
