@@ -1,3 +1,20 @@
+**‘You Try to Build Anything, and You’re Stepping Into Quicksand’**\
+`Speed is a progressive virtue.`\
+https://nytimes.com/2025/04/13/opinion/doge-abundance-government-bulding.html
+
+**The New York Times in Print for Sunday, April 13, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/13/todays-new-york-times
+
+**America Is Learning the Wrong Lesson from Elon Musk’s Success**\
+`Intimidation doesn’t elevate performance; it undermines people.`\
+https://nytimes.com/2025/04/13/opinion/elon-musk-leadership-business-education.html
+
+**Western Michigan rises to 'biggest stage,' wins first NCAA hockey national championship**\
+`Western Michigan secured its first Frozen Four title in the program's history with a 6-2 victory over Boston University on Saturday night.
+`\
+https://nytimes.com/athletic/6275450/2025/04/13/western-michigan-ncaa-hockey-national-championship/
+
 **Western Michigan rises to 'biggest stage,' wins first NCAA hockey national championship**\
 `Western Michigan secured its first Frozen Four title in the program's history with a 6-2 victory over Boston University on Saturday night.
 `\
