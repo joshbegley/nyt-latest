@@ -1,3 +1,7 @@
+**Oscar Piastri wins as Lewis Hamilton enjoys best season finish**\
+`Oscar Piastri wins Bahrain Grand Prix from pole to close the gap on championship leader Lando Norris`\
+https://nytimes.com/athletic/6276007/2025/04/13/bahrain-grand-prix-oscar-piastri-wins-lewis-hamilton-ferrari/
+
 **Jean Marsh, Actress Who Co-Created ‘Upstairs, Downstairs,’ Dies at 90**\
 `She not only helped develop the hit 1970s show, but also acted in it, and had a decades-long career in film, TV and theater.`\
 https://nytimes.com/2025/04/13/obituaries/jean-marsh-dead.html
@@ -30,11 +34,7 @@ https://nytimes.com/2025/04/13/us/politics/trump-tariffs-china-chips-technology.
 `Energy Secretary Chris Wright said he sees a “pathway” to a deal that would allow the kingdom to develop a commercial nuclear power industry and potentially enrich uranium.`\
 https://nytimes.com/2025/04/13/world/middleeast/saudi-arabia-nuclear-talks-trump.html
 
-**Shapiro and Family Evacuated From Pennsylvania Governor’s Home After Arson Attack**\
-`The governor said the State Police banged on the door early on Sunday to wake him and his family after an arsonist set fire to the governor’s residence in Harrisburg.`\
+**Gov. Shapiro and Family Evacuated After Arson at Pennsylvania Residence**\
+`The governor said the State Police banged on the door early on Sunday to wake him and his family after an arsonist set fire to the governor’s official residence in Harrisburg.`\
 https://nytimes.com/2025/04/13/us/politics/josh-shapiro-arson-attack-pennsylvania.html
-
-**The Briefing: Chelsea 2 Ipswich Town 2 - Madueke shines but Maresca's side drop vital points**\
-`All the key talking points from Chelsea's 2-2 draw with Ipswich Town analysed and evaluated `\
-https://nytimes.com/athletic/6269341/2025/04/13/chelsea-2-ipswich-2-the-briefing/
 
