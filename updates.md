@@ -1,3 +1,7 @@
+**Man Pleads Guilty to Selling Sperm Whale Teeth and Bones**\
+`Lauren H. DeLoach of South Carolina admitted to importing more than $18,000 worth of sperm whale parts from Australia, Latvia, Norway and Ukraine, prosecutors said.`\
+https://nytimes.com/2025/04/13/us/whale-sperm-bones-sale-illegal-guilty.html
+
 **Davide Ancelotti: Mbappe 'asks for forgiveness' after Madrid red card challenge**\
 `Mbappe was sent off for a late, forceful tackle on Alaves’ Antonio Blanco, catching the midfielder high on the leg with his studs.`\
 https://nytimes.com/athletic/6276428/2025/04/13/kylian-mbappe-real-madrid-red-card/

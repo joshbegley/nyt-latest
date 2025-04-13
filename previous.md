@@ -1,3 +1,7 @@
+**Man Pleads Guilty to Selling Sperm Whale Teeth and Bones**\
+`Lauren H. DeLoach of South Carolina admitted to importing more than $18,000 worth of sperm whale parts from Australia, Latvia, Norway and Ukraine, prosecutors said.`\
+https://nytimes.com/2025/04/13/us/whale-sperm-bones-sale-illegal-guilty.html
+
 **Davide Ancelotti: Mbappe 'asks for forgiveness' after Madrid red card challenge**\
 `Mbappe was sent off for a late, forceful tackle on Alaves’ Antonio Blanco, catching the midfielder high on the leg with his studs.`\
 https://nytimes.com/athletic/6276428/2025/04/13/kylian-mbappe-real-madrid-red-card/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/13/business/china-rare-earths-exports.html
 **The Briefing: Newcastle 4 Man Utd 1 - hosts boost top-five hopes and Amorim's big calls analysed**\
 `Chris Waugh, Mark Critchley and Conor O'Neill analyse the main talking points from Newcastle's dominant win over Manchester United`\
 https://nytimes.com/athletic/6272151/2025/04/13/newcastle-man-utd-analysis-premier-league/
-
-**Red Sox place Fitts on IL, call up former All-Star RHP Michael Fulmer**\
-`Fulmer, the 2016 AL ROY and 2017 All-Star, hasn’t pitched in the big leagues since 2023, when he had Tommy John surgery.`\
-https://nytimes.com/athletic/6276222/2025/04/13/boston-red-sox-richard-fitts-il-michael-fulmer/
 
