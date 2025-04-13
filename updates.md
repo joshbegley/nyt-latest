@@ -48,6 +48,11 @@ https://nytimes.com/athletic/6275450/2025/04/13/western-michigan-ncaa-hockey-nat
 `\
 https://nytimes.com/athletic/6275450/2025/04/13/western-michigan-ncaa-hockey-national-championship/
 
+**Western Michigan rises to 'biggest stage,' wins first NCAA hockey national championship**\
+`Western Michigan secured its first Frozen Four title in the program's history with a 6-2 victory over Boston University on Saturday night.
+`\
+https://nytimes.com/athletic/6275450/2025/04/13/western-michigan-ncaa-hockey-national-championship/
+
 **Why Canucks' loss to Wild is a microcosm of a disappointing season**\
 `With the opportunity to play spoiler, Vancouver was up to the task — at least until the third period.`\
 https://nytimes.com/athletic/6275471/2025/04/13/canucks-lose-wild-disappointing-season-takeaways/
