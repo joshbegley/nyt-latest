@@ -1,3 +1,7 @@
+**Irmgard Furchner, Secretary at a Hub of Nazi Atrocities, Dies at 99**\
+`Her work for the commandant of a concentration camp in German-occupied Poland led to her conviction as an accessory to more than 10,000 murders.`\
+https://nytimes.com/2025/04/13/world/europe/irmgard-furchner-dead.html
+
 **Cyclist Van der Poel hit by bottle en route to Paris-Roubaix victory**\
 `The Dutchman remained on his bike to secure his third successive victory at the race, also surviving a puncture with just 15km left.`\
 https://nytimes.com/athletic/6276303/2025/04/13/mathieu-van-der-poel-bottle-paris-roubaix/
