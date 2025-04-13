@@ -1,3 +1,11 @@
+**Man Utd in a ‘desperate situation’ after Newcastle defeat — Neville**\
+`United are 14th in the table, only three points ahead of 17th-placed Wolverhampton Wanderers, and 17 points off the top five.`\
+https://nytimes.com/athletic/6276534/2025/04/13/manchester-united-newcastle-gary-neville/
+
+**USA defeats Canada in IIHF Women’s World Championship prelim matchup: Takeaways**\
+`Team USA defeated Team Canada 2-1 in their preliminary round matchup at the 2025 IIHF Women’s World Championship on Sunday night.`\
+https://nytimes.com/athletic/6276520/2025/04/13/canada-usa-womens-world-championship-hockey-2025/
+
 **Nicky Katt, Character Actor on TV and in Film, Dies at 54**\
 `He began his career as a child actor and later played tough guys and henchmen. He was best known for “Boston Public” and “Dazed and Confused.”`\
 https://nytimes.com/2025/04/13/arts/nicky-katt-dead.html
