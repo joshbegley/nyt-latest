@@ -1,3 +1,7 @@
+**The Pulse: Today is McIlroy vs. McIlroy**\
+`Welcome to The Pulse, The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/6275324/2025/04/13/rory-mcilroy-the-masters-the-pulse/
+
 **5 Takeaways From New Research About A.D.H.D.**\
 `Scientists who study the condition are wrestling with some fundamental questions about the way we define and treat it.`\
 https://nytimes.com/2025/04/13/magazine/adhd-children-research-takeaways.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6129480/2025/04/13/mapi-leon-barcelona-caracas-espa
 **U.S. Nuclear Talks With Iran Move Forward, but Many Pitfalls Lie Ahead**\
 `In a first meeting, the United States and Iran show signs of pragmatism and limited aims, which would make success more likely. But hard-liners on both sides — and Israel — are bound to balk.`\
 https://nytimes.com/2025/04/13/world/europe/us-nuclear-talks-iran.html
-
-**Sevilla sack head coach Garcia Pimienta**\
-`Garcia Pimienta leaves Sevilla 13th in La Liga, with only nine wins from 31 league matches this season and seven points above the drop zone.`\
-https://nytimes.com/athletic/6273470/2025/04/13/sevilla-manager-sacked-garcia-pimienta/
 

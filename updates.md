@@ -1,3 +1,7 @@
+**The Pulse: Today is McIlroy vs. McIlroy**\
+`Welcome to The Pulse, The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/6275324/2025/04/13/rory-mcilroy-the-masters-the-pulse/
+
 **5 Takeaways From New Research About A.D.H.D.**\
 `Scientists who study the condition are wrestling with some fundamental questions about the way we define and treat it.`\
 https://nytimes.com/2025/04/13/magazine/adhd-children-research-takeaways.html
