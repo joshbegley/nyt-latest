@@ -1,3 +1,8 @@
+**Frozen Four takeaways: Western Michigan's depth delivers first national championship, signings loom**\
+`Western Michigan defeated Boston University 6-2 in the Frozen Four final for the school's first NCAA hockey title.
+`\
+https://nytimes.com/athletic/6274747/2025/04/12/western-michigan-boston-university-frozen-four-championship/
+
 **Cubs, Pete Crow-Armstrong table contract talks for now: Sources**\
 `With Crow-Armstrong still in the early stages of his big-league career, neither side felt an urgent need to agree to an extension.`\
 https://nytimes.com/athletic/6275428/2025/04/12/cubs-pete-crow-armstrong-extension-talks/
