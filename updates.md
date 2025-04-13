@@ -1,3 +1,7 @@
+**British Laws Are Not Fit for Social Media Age, Says Report on U.K. Riots**\
+`Outdated legislation prevented the police from rapidly correcting misinformation after a stabbing attack on a Taylor Swift-themed dance class last summer, lawmakers said.`\
+https://nytimes.com/2025/04/13/world/europe/uk-riots-social-media-contempt.html
+
 **Victor Wembanyama confident he 'will be ready' for next season after blood clot**\
 `Though Wemby played only 46 games, he finished the season as the league leader in total blocks.`\
 https://nytimes.com/athletic/6276915/2025/04/13/spurs-victor-wembanyama-blood-clot-ready-next-season/
