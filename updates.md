@@ -1,3 +1,7 @@
+**Jets' Nikolaj Ehlers injured vs. Blackhawks after collision with linesman**\
+`Ehlers is the league-leading Jets’ third-leading scorer with 63 points in 68 games.`\
+https://nytimes.com/athletic/6275260/2025/04/12/jets-nikolaj-ehlers-injury-collision-nhl-linesman/
+
 **Rory McIlroy faced down his ghost and made Augusta National roar**\
 `If McIlroy wins this Masters — he leads Bryson DeChambeau by two shots with 18 holes to go — this might be the lasting image.`\
 https://nytimes.com/athletic/6275143/2025/04/12/masters-2025-rory-mcilroy-augusta-national-15-roar/

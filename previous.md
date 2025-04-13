@@ -1,3 +1,7 @@
+**Jets' Nikolaj Ehlers injured vs. Blackhawks after collision with linesman**\
+`Ehlers is the league-leading Jets’ third-leading scorer with 63 points in 68 games.`\
+https://nytimes.com/athletic/6275260/2025/04/12/jets-nikolaj-ehlers-injury-collision-nhl-linesman/
+
 **This Masters is now Rory McIlroy's biggest test**\
 `Sunday at Augusta National will be McIlroy versus McIlroy.`\
 https://nytimes.com/athletic/6275155/2025/04/12/masters-2025-rory-mcilroy-mental/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6275029/2025/04/12/qb-cj-carr-shines-notre-dame-spr
 **A's-Mets game in Sacramento interrupted by medical cart malfunction**\
 `Mets broadcasters Gary Cohen and Ron Darling poked fun at the situation, saying, "This is something out of 'Keystone Cops.’"`\
 https://nytimes.com/athletic/6274999/2025/04/12/athletics-mets-cart-pushed-off-field/
-
-**State Dept. says wrongfully deported Maryland man is alive and in El Salvador.**\
-`By Tim Balk`\
-https://nytimes.com/live/2025/04/12/us/trump-administration-news/state-dept-says-wrongfully-deported-maryland-man-is-alive-and-in-el-salvador
 
