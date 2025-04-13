@@ -1,4 +1,8 @@
-**The Briefing: Wolves 4 Tottenham 2 - Vicario looks shaky as Spurs suffer yet more away day woe**\
+**The Briefing: Liverpool 2 West Ham 1 - Van Dijk's winner, Salah's pass and another step closer to title glory**\
+`Daniel Taylor and Conor O'Neill break down the main talking points from Liverpool's dramatic 2-1 win over West Ham`\
+https://nytimes.com/athletic/6267396/2025/04/13/liverpool-2-west-ham-1-van-dijk-diaz-robertson-salah/
+
+**The Briefing: Wolves 4 Tottenham 2 - Vicario shaky as Spurs suffer yet more away day woe**\
 `Spurs slumped to a seventeenth defeat of the Premier League season, shipping four goals to 17th-place Wolves`\
 https://nytimes.com/athletic/6272150/2025/04/13/wolves-4-tottenham-2/
 
@@ -11,14 +15,14 @@ https://nytimes.com/athletic/6236175/2025/04/13/zeev-buium-wild-ncaa-tournament/
 https://nytimes.com/2025/04/13/dining/baked-fish-and-chips-recipe.html
 
 **Prospect Ryan Greene signs with Blackhawks after Frozen Four**\
-`Green, a 6-foot-1, 195-pound center, is expected to make his NHL debut on Monday.`\
+`Green, a 6-foot-1, 195-pound two-way center, is expected to make his NHL debut on Monday.`\
 https://nytimes.com/athletic/6270002/2025/04/13/blackhawks-ryan-greene-nhl-contract/
 
 **‘The Last of Us’ Review: On the Road Again**\
 `Season 2 of HBO’s zombie drama begins with Joel and Ellie safe and settled. One guess how long that lasts.`\
 https://nytimes.com/2025/04/13/arts/television/the-last-of-us-review.html
 
-**Read the Results of President Trump’s Medical Report**\
+**Read the Report on President Trump’s Annual Physical Exam**\
 `The White House released the results of President Trump’s annual physical examination on Sunday.`\
 https://nytimes.com/interactive/2025/04/13/us/1.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6275081/2025/04/13/st-louis-blues-nhl-playoffs-chan
 **Ukraine tennis team dedicates Billie Jean King Cup qualification to nation's soldiers**\
 `Ukrainian tennis player Elina Svitolina is one of the country's most prominent campaigners against Russia's invasion of the country.`\
 https://nytimes.com/athletic/6275705/2025/04/13/tennis-ukraine-war-billie-jean-king-cup/
-
-**‘S.N.L.’: Laughing All the Way to Financial Chaos**\
-`Among the sources of all the fun is ‘The White POTUS,” a parody that casts members of the administration in their own twisted playground for the privileged.`\
-https://nytimes.com/2025/04/13/arts/snl-financial-chaos-white-lotus.html
 
