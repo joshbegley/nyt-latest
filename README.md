@@ -1,3 +1,11 @@
+**China Halts Critical Exports as Trade War Intensifies**\
+`Beijing has suspended exports of certain rare earth minerals and magnets that are crucial for the world’s car, semiconductor and aerospace industries.`\
+https://nytimes.com/2025/04/13/business/china-rare-earths-exports.html
+
+**The Briefing: Newcastle 4 Man Utd 1 - hosts boost top-five hopes and Amorim's big calls analysed**\
+`Chris Waugh, Mark Critchley and Conor O'Neill analyse the main talking points from Newcastle's dominant win over Manchester United`\
+https://nytimes.com/athletic/6272151/2025/04/13/newcastle-man-utd-analysis-premier-league/
+
 **Red Sox place Fitts on IL, call up former All-Star RHP Michael Fulmer**\
 `Fulmer, the 2016 AL ROY and 2017 All-Star, hasn’t pitched in the big leagues since 2023, when he had Tommy John surgery.`\
 https://nytimes.com/athletic/6276222/2025/04/13/boston-red-sox-richard-fitts-il-michael-fulmer/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/13/us/politics/trump-physical-exam-results.html
 **Trail Blazers, Chauncey Billups agree to multiyear contract extension**\
 `Billups has a 116-211 record since taking over the team in June 2021.`\
 https://nytimes.com/athletic/6276086/2025/04/13/trail-blazers-chauncey-billups-contract-extension/
-
-**Man Utd Women reach FA Cup final again with victory over Man City**\
-`Early goals from Celin Bizet and Grace Clinton were enough for United to set up the May 18 showpiece against Chelsea at Wembley.`\
-https://nytimes.com/athletic/6276051/2025/04/13/manchester-united-fa-cup-final-women/
-
-**Bernie Sanders, a Surprise Guest at Coachella, Urges Opposition to Trump’s Policies**\
-`The senator appeared onstage at the music festival on Saturday night, appealing to young people to oppose President Trump.`\
-https://nytimes.com/2025/04/13/us/politics/bernie-sanders-coachella.html
 
