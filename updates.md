@@ -1,3 +1,7 @@
+**'Dangerous' Ben Rice is helping the Yankees solve their leadoff mystery**\
+`Rice is the latest Yankee to prove the leadoff spot might be a strength for New York this season.`\
+https://nytimes.com/athletic/6275201/2025/04/12/ben-rice-yankees-leadoff-mystery/
+
 **Deep into Giants career, Wilmer Flores shows San Francisco he’ll be there for them, too**\
 `Flores is only 25 games away from playing as many games with the Giants as he did with the Mets, whose fans still remember him fondly.`\
 https://nytimes.com/athletic/6274870/2025/04/12/sf-giants-wilmer-flores-new-york-return/

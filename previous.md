@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6274870/2025/04/12/sf-giants-wilmer-flores-new-york-return/
 
 **'Dangerous' Ben Rice is helping the Yankees solve their leadoff mystery**\
-`Rice is the latest Yankee to prove the leadoff spot may be a strength for New York this season.`\
+`Rice is the latest Yankee to prove the leadoff spot might be a strength for New York this season.`\
 https://nytimes.com/athletic/6275201/2025/04/12/ben-rice-yankees-leadoff-mystery/
 
 **Masters 2025 Round 3: How Bryson DeChambeau, Rory McIlroy took over**\
