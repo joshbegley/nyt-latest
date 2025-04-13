@@ -1,3 +1,7 @@
+**Blue Jackets Sunday Gathering: Is goaltender Jet Greaves seizing his NHL opportunity?**\
+`Greaves recently led the Blue Jackets to two must-wins and is certainly making the case for an NHL roster spot next season.`\
+https://nytimes.com/athletic/6275396/2025/04/13/blue-jackets-goaltender-jet-greaves-nhl/
+
 **Irmgard Furchner, Secretary at a Hub of Nazi Atrocities, Dies at 99**\
 `Her work for the commandant of a concentration camp in German-occupied Poland led to her conviction as an accessory to more than 10,000 murders.`\
 https://nytimes.com/2025/04/13/world/europe/irmgard-furchner-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6276079/2025/04/13/f1-mailbag-bahrain-grand-prix/
 **Democrats Widely Blast Trump’s Tariffs, but Not Necessarily Tariffs**\
 `While Democrats have widely criticized President Trump’s whipsawing trade strategy as chaotic, they’ve displayed little consensus on where the party stands on tariffs overall.`\
 https://nytimes.com/2025/04/13/us/politics/democrats-trump-tariffs-policy.html
-
-**Oscar Piastri wins as Lewis Hamilton enjoys best season finish**\
-`Oscar Piastri wins Bahrain Grand Prix from pole to close the gap on championship leader Lando Norris`\
-https://nytimes.com/athletic/6276007/2025/04/13/bahrain-grand-prix-oscar-piastri-wins-lewis-hamilton-ferrari/
 
