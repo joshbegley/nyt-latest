@@ -1,3 +1,15 @@
+**A Chapter Closes: Hong Kong’s Democratic Party to Disband**\
+`The party, once the city’s largest opposition force, long championed a moderate approach. It ended up squeezed between a discontented populace and a repressive Beijing.`\
+https://nytimes.com/2025/04/13/world/asia/hong-kong-democratic-party-disbanding.html
+
+**Russian Missile Strikes in Sumy Kill at Least 21, Ukrainian Officials Say**\
+`The strikes were the latest in a string of attacks on urban centers that have caused heavy civilian casualties even as the Trump administration pushes for a cease-fire.`\
+https://nytimes.com/2025/04/13/world/europe/sumy-ukraine-russia-strikes.html
+
+**Palace fan group contact club over FA Cup SF tickets concern**\
+`CPISA made a statement to the club after complaints from fans about the selling phases for the FA Cup semi-final with Aston Villa this month`\
+https://nytimes.com/athletic/6274707/2025/04/13/crystal-palace-fa-cup-tickets/
+
 **Trump Has Added Risk to the Surest Bet in Global Finance**\
 `Shocked by Trump’s trade war, foreign investors are selling U.S. government bonds, long the world’s safe haven.`\
 https://nytimes.com/2025/04/13/business/trump-risk-us-bonds.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/13/us/politics/trump-tariffs-trade-war-china.html
 **As Ukraine’s Politics Heat Back Up, a Former President Sees an Opening**\
 `Petro O. Poroshenko, who led the country before Volodymyr Zelensky, said that peace talks could be smoothed if opposition figures were included in the government.`\
 https://nytimes.com/2025/04/13/world/europe/ukraine-petro-poroshenko-zelensky-politics.html
-
-**A Basketball Star Is Born**\
-`Paige Bueckers became a college sensation for her skill and her style. Now she’s about to join the W.N.B.A.’s growing constellation of stars.`\
-https://nytimes.com/2025/04/13/style/paige-bueckers-uconn-huskies-wnba-draft.html
-
-**Untouchable sports records and why they might never be broken**\
-`Some sporting records seem otherworldly in that no matter what technological or scientific advancements may be made, they feel out of reach`\
-https://nytimes.com/athletic/6272993/2025/04/13/lebron-james-alex-ovechkin-unbreakable-sports-records/
-
-**What to Know About Trump’s Antitrust Efforts Against Tech Giants**\
-`The Trump administration will take Meta to court this week, continuing an aggressive effort to rein in the power of the biggest tech companies. Here’s what to know.`\
-https://nytimes.com/2025/04/13/technology/trump-tech-antitrust-cases.html
 

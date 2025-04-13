@@ -1,3 +1,15 @@
+**A Chapter Closes: Hong Kong’s Democratic Party to Disband**\
+`The party, once the city’s largest opposition force, long championed a moderate approach. It ended up squeezed between a discontented populace and a repressive Beijing.`\
+https://nytimes.com/2025/04/13/world/asia/hong-kong-democratic-party-disbanding.html
+
+**Russian Missile Strikes in Sumy Kill at Least 21, Ukrainian Officials Say**\
+`The strikes were the latest in a string of attacks on urban centers that have caused heavy civilian casualties even as the Trump administration pushes for a cease-fire.`\
+https://nytimes.com/2025/04/13/world/europe/sumy-ukraine-russia-strikes.html
+
+**Palace fan group contact club over FA Cup SF tickets concern**\
+`CPISA made a statement to the club after complaints from fans about the selling phases for the FA Cup semi-final with Aston Villa this month`\
+https://nytimes.com/athletic/6274707/2025/04/13/crystal-palace-fa-cup-tickets/
+
 **Trump Has Added Risk to the Surest Bet in Global Finance**\
 `Shocked by Trump’s trade war, foreign investors are selling U.S. government bonds, long the world’s safe haven.`\
 https://nytimes.com/2025/04/13/business/trump-risk-us-bonds.html
