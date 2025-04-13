@@ -1,3 +1,7 @@
+**Man Utd Women reach FA Cup final again with victory over Man City**\
+`Early goals from Celin Bizet and Grace Clinton were enough for United to set up the May 18 showpiece against Chelsea at Wembley.`\
+https://nytimes.com/athletic/6276051/2025/04/13/manchester-united-fa-cup-final-women/
+
 **Bernie Sanders, a Surprise Guest at Coachella, Urges Opposition to Trump’s Policies**\
 `The senator appeared onstage at the music festival on Saturday night, appealing to young people to oppose President Trump.`\
 https://nytimes.com/2025/04/13/us/politics/bernie-sanders-coachella.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6267396/2025/04/13/liverpool-2-west-ham-1-van-dijk-
 **The Briefing: Wolves 4 Tottenham 2 - Vicario shaky as Spurs suffer yet more away day woe**\
 `Spurs slumped to a 17th defeat of the Premier League season, shipping four goals to 17th-place Wolves`\
 https://nytimes.com/athletic/6272150/2025/04/13/wolves-4-tottenham-2/
-
-**Zeev Buium signs with the Wild after Denver University's exit from NCAA Tournament**\
-`Buium, 19, who was a finalist for the Hobey Baker Award as college hockey's top player, is coming off a dominant season.`\
-https://nytimes.com/athletic/6236175/2025/04/13/zeev-buium-wild-ncaa-tournament/
 
