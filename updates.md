@@ -1,3 +1,15 @@
+**Trump Aides Signal New Tariffs on Chips, Calling Exclusions Temporary**\
+`On Friday, the administration carved out an exception for a variety of electronics from the steep taxes now applied to Chinese imports.`\
+https://nytimes.com/2025/04/13/us/politics/trump-tariffs-china-chips-technology.html
+
+**U.S. Revives Talks With Saudi Arabia on Transfer of Nuclear Technology**\
+`Energy Secretary Chris Wright said he sees a “pathway” to a deal that would allow the kingdom to develop a commercial nuclear power industry and potentially enrich uranium.`\
+https://nytimes.com/2025/04/13/world/middleeast/saudi-arabia-nuclear-talks-trump.html
+
+**Former LSU WR Kyren Lacy dead at 24**\
+`Lacy was facing charges of negligent homicide, felony hit-and-run and reckless operation of a vehicle after a Dec. 17 car crash.`\
+https://nytimes.com/athletic/6275934/2025/04/13/lsu-kyren-lacy-death/
+
 **Pennsylvania Governor’s Residence Targeted in Arson**\
 `The governor, Josh Shapiro, said the State Police banged on the door early on Sunday to wake him and his family after an arsonist set fire to the governor’s residence in Harrisburg.`\
 https://nytimes.com/2025/04/13/us/politics/josh-shapiro-arson-attack-pennsylvania.html

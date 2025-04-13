@@ -1,3 +1,11 @@
+**Trump Aides Signal New Tariffs on Chips, Calling Exclusions Temporary**\
+`On Friday, the administration carved out an exception for a variety of electronics from the steep taxes now applied to Chinese imports.`\
+https://nytimes.com/2025/04/13/us/politics/trump-tariffs-china-chips-technology.html
+
+**U.S. Revives Talks With Saudi Arabia on Transfer of Nuclear Technology**\
+`Energy Secretary Chris Wright said he sees a “pathway” to a deal that would allow the kingdom to develop a commercial nuclear power industry and potentially enrich uranium.`\
+https://nytimes.com/2025/04/13/world/middleeast/saudi-arabia-nuclear-talks-trump.html
+
 **Pennsylvania Governor’s Residence Targeted in Arson**\
 `The governor, Josh Shapiro, said the State Police banged on the door early on Sunday to wake him and his family after an arsonist set fire to the governor’s residence in Harrisburg.`\
 https://nytimes.com/2025/04/13/us/politics/josh-shapiro-arson-attack-pennsylvania.html
@@ -6,7 +14,7 @@ https://nytimes.com/2025/04/13/us/politics/josh-shapiro-arson-attack-pennsylvani
 `All the key talking points from Chelsea's 2-2 draw with Ipswich Town analysed and evaluated `\
 https://nytimes.com/athletic/6269341/2025/04/13/chelsea-2-ipswich-2-the-briefing/
 
-**Former LSU WR Kyren Lacy passes away at 24**\
+**Former LSU WR Kyren Lacy dead at 24**\
 `Lacy was facing charges of negligent homicide, felony hit-and-run and reckless operation of a vehicle after a Dec. 17 car crash.`\
 https://nytimes.com/athletic/6275934/2025/04/13/lsu-kyren-lacy-death/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/13/dining/baked-fish-and-chips-recipe.html
 **Prospect Ryan Greene signs with Blackhawks after Frozen Four**\
 `Green, a 6-foot-1, 195-pound two-way center, is expected to make his NHL debut on Monday.`\
 https://nytimes.com/athletic/6270002/2025/04/13/blackhawks-ryan-greene-nhl-contract/
-
-**‘The Last of Us’ Review: On the Road Again**\
-`Season 2 of HBO’s zombie drama begins with Joel and Ellie safe and settled. One guess how long that lasts.`\
-https://nytimes.com/2025/04/13/arts/television/the-last-of-us-review.html
-
-**Read the Report on President Trump’s Annual Physical Exam**\
-`The White House released the results of President Trump’s annual physical examination on Sunday.`\
-https://nytimes.com/interactive/2025/04/13/us/1.html
 

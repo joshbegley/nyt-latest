@@ -1,3 +1,7 @@
+**Nico Iamaleava lost the support of the pro-athlete folks, so where does that lead?**\
+`The only reasonable conclusion from here? Actual contracts and collective bargaining, `\
+https://nytimes.com/athletic/6275411/2025/04/13/nico-iamaleava-tennessee-collective-bargaining/
+
 **Trump Aides Signal New Tariffs on Chips, Calling Exclusions Temporary**\
 `On Friday, the administration carved out an exception for a variety of electronics from the steep taxes now applied to Chinese imports.`\
 https://nytimes.com/2025/04/13/us/politics/trump-tariffs-china-chips-technology.html
@@ -6,8 +10,8 @@ https://nytimes.com/2025/04/13/us/politics/trump-tariffs-china-chips-technology.
 `Energy Secretary Chris Wright said he sees a “pathway” to a deal that would allow the kingdom to develop a commercial nuclear power industry and potentially enrich uranium.`\
 https://nytimes.com/2025/04/13/world/middleeast/saudi-arabia-nuclear-talks-trump.html
 
-**Pennsylvania Governor’s Residence Targeted in Arson**\
-`The governor, Josh Shapiro, said the State Police banged on the door early on Sunday to wake him and his family after an arsonist set fire to the governor’s residence in Harrisburg.`\
+**Shapiro and Family Evacuated From Pennsylvania Governor’s Home After Arson Attack**\
+`The governor said the State Police banged on the door early on Sunday to wake him and his family after an arsonist set fire to the governor’s residence in Harrisburg.`\
 https://nytimes.com/2025/04/13/us/politics/josh-shapiro-arson-attack-pennsylvania.html
 
 **The Briefing: Chelsea 2 Ipswich 2 - Madueke shines but Maresca's side drop vital points**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6236175/2025/04/13/zeev-buium-wild-ncaa-tournament/
 **If You’re Fried, Try No-Fry Fish and Chips**\
 `Weekends can wear you out. Melissa Clark’s easy take on a classic dish revives and restores.`\
 https://nytimes.com/2025/04/13/dining/baked-fish-and-chips-recipe.html
-
-**Prospect Ryan Greene signs with Blackhawks after Frozen Four**\
-`Green, a 6-foot-1, 195-pound two-way center, is expected to make his NHL debut on Monday.`\
-https://nytimes.com/athletic/6270002/2025/04/13/blackhawks-ryan-greene-nhl-contract/
 
