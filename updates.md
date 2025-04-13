@@ -1,3 +1,7 @@
+**Rory McIlroy faced down his ghost and made Augusta National roar**\
+`If McIlroy wins this Masters — he leads Bryson DeChambeau by two shots with 18 holes to go — this might be the lasting image.`\
+https://nytimes.com/athletic/6275143/2025/04/12/masters-2025-rory-mcilroy-augusta-national-15-roar/
+
 **This Masters is now Rory McIlroy's biggest test**\
 `Sunday at Augusta National will be McIlroy versus McIlroy.`\
 https://nytimes.com/athletic/6275155/2025/04/12/masters-2025-rory-mcilroy-mental/
