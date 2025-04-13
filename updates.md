@@ -1,3 +1,11 @@
+**Democrats Widely Blast Trump’s Tariffs, but Not Necessarily Tariffs**\
+`While Democrats have widely criticized President Trump’s whipsawing trade strategy as chaotic, they’ve displayed little consensus on where the party stands on tariffs overall.`\
+https://nytimes.com/2025/04/13/us/politics/democrats-trump-tariffs-policy.html
+
+**Trail Blazers, Chauncey Billups agree to multiyear contract extension**\
+`Billups has a 116-211 record since taking over the team in June 2021.`\
+https://nytimes.com/athletic/6276086/2025/04/13/trail-blazers-chauncey-billups-contract-extension/
+
 **Oscar Piastri wins as Lewis Hamilton enjoys best season finish**\
 `Oscar Piastri wins Bahrain Grand Prix from pole to close the gap on championship leader Lando Norris`\
 https://nytimes.com/athletic/6276007/2025/04/13/bahrain-grand-prix-oscar-piastri-wins-lewis-hamilton-ferrari/
