@@ -1,3 +1,15 @@
+**How 'uber talent' Sascha Boumedienne re-emerged as a top 2025 draft prospect**\
+`Boumedienne's bet on himself to make the jump to Boston University in his draft year has paid off.`\
+https://nytimes.com/athletic/6253714/2025/04/13/sascha-boumedienne-boston-university-nhl-draft/
+
+**How to Be a Happy 85-Year-Old (Like Me)**\
+`Ten rules for getting very, very old.`\
+https://nytimes.com/2025/04/13/opinion/aging-tips-getting-older.html
+
+**Arsenal are becoming devastating in transition - it's a weapon they should embrace**\
+`Mikel Arteta likes to play with control and to prevent opposition counter-attacks, but his own team can be a real threat on the break`\
+https://nytimes.com/athletic/6274883/2025/04/13/arsenal-counter-attacks-transition/
+
 **Barca's Leon handed two-game ban for 'unsporting conduct' with Caracas**\
 `Video footage widely circulated on social media appeared to show Barcelona defender Leon, 29, inappropriately touching Caracas.`\
 https://nytimes.com/athletic/6129480/2025/04/13/mapi-leon-barcelona-caracas-espanyol/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6274944/2025/04/13/once-worried-for-his-roster-spot
 **What's the spring transfer portal market for Nico Iamaleava?**\
 `What will the market look like for the 6-foot-6, 215-pound quarterback who helped lead Tennessee to the College Football Playoff?`\
 https://nytimes.com/athletic/6274910/2025/04/13/tennessee-qb-nico-iamaleava-college-football-transfer-portal/
-
-**The Sunday Read: ‘Unburying the Remains of the Third Reich’**\
-`As the German right ascends, the nation is still grappling with its fascist past — and how to handle its remains.`\
-https://nytimes.com/2025/04/13/podcasts/the-daily/germany-nazi-bones-remains.html
-
-**Palm Sunday Was a Protest, Not a Procession**\
-`Jesus’ procession was a parody of imperial power — a deliberate mockery of Roman spectacle and a prophetic enactment of a kingdom not built on violence but on justice.`\
-https://nytimes.com/2025/04/13/opinion/palm-sunday-protest.html
-
-**The Supreme Court Ruled. Trump and the A.C.L.U. Both Claimed Victory. Huh?**\
-`The administration won a narrow procedural victory, but it took a substantial constitutional loss.`\
-https://nytimes.com/2025/04/13/opinion/trump-deportations-supreme-court.html
 

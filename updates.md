@@ -1,3 +1,15 @@
+**How 'uber talent' Sascha Boumedienne re-emerged as a top 2025 draft prospect**\
+`Boumedienne's bet on himself to make the jump to Boston University in his draft year has paid off.`\
+https://nytimes.com/athletic/6253714/2025/04/13/sascha-boumedienne-boston-university-nhl-draft/
+
+**How to Be a Happy 85-Year-Old (Like Me)**\
+`Ten rules for getting very, very old.`\
+https://nytimes.com/2025/04/13/opinion/aging-tips-getting-older.html
+
+**Arsenal are becoming devastating in transition - it's a weapon they should embrace**\
+`Mikel Arteta likes to play with control and to prevent opposition counter-attacks, but his own team can be a real threat on the break`\
+https://nytimes.com/athletic/6274883/2025/04/13/arsenal-counter-attacks-transition/
+
 **Barca's Leon handed two-game ban for 'unsporting conduct' with Caracas**\
 `Video footage widely circulated on social media appeared to show Barcelona defender Leon, 29, inappropriately touching Caracas.`\
 https://nytimes.com/athletic/6129480/2025/04/13/mapi-leon-barcelona-caracas-espanyol/
