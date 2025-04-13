@@ -1,3 +1,7 @@
+**Read the document**\
+`The White House released the results of President Trump’s annual physical examination on Sunday.`\
+https://nytimes.com/interactive/2025/04/13/us/1.html
+
 **Rece Davis to stay with ESPN after being heavily pursued by Fox Sports**\
 `Davis has agreed to a new seven-year deal with ESPN worth tens of millions of dollars, according to sources briefed on the deal.`\
 https://nytimes.com/athletic/6275759/2025/04/13/rece-davis-espn-fox-sports/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6275713/2025/04/13/usc-spring-practice-quarterback-
 **Medic Missing After Gaza Attack Is in Israeli Custody, Aid Groups Say**\
 `Asaad al-Nasasra has not been heard from since the March 23 ambush by Israeli forces, which left 15 aid workers dead and drew international condemnation.`\
 https://nytimes.com/2025/04/13/world/middleeast/israel-gaza-aid-worker-captured.html
-
-**Brad Holland, 81, Dies; His Subversive Art Reinvented Illustration**\
-`His stark and stunning work for Playboy, The New York Times and Manhattan’s underground papers heralded a new era of conceptual illustration.`\
-https://nytimes.com/2025/04/13/arts/brad-holland-dead.html
 
