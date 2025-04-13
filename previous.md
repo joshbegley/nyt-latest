@@ -1,3 +1,7 @@
+**Rory McIlroy faced down his ghost and made Augusta National roar**\
+`If Rory McIlroy does win this Masters — he leads Bryson DeChambeau by two shots with 18 holes to go — this may be the lasting image.`\
+https://nytimes.com/athletic/6275143/2025/04/12/masters-2025-rory-mcilroy-augusta-national-15-roar/
+
 **Twins demote struggling Jose Miranda to minors after base-running blunder: Source**\
 `Brooks Lee is expected to come off the injured list to replace Miranda in the Twins' underperforming lineup.`\
 https://nytimes.com/athletic/6275086/2025/04/12/twins-jose-miranda-demoted-base-running-blunder/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6274390/2025/04/12/tennessee-qb-transferring-nico-i
 **Both Sides Now**\
 `John Kugelman’s latest Sunday puzzle is here! Are you for or against?`\
 https://nytimes.com/2025/04/12/crosswords/daily-puzzle-2025-04-13.html
-
-**Rangers eliminated from playoff contention a year after winning Presidents' Trophy**\
-`The Rangers' 2024-25 season will end Thursday with a home game against the Tampa Bay Lightning.`\
-https://nytimes.com/athletic/6273537/2025/04/12/ny-rangers-2025-nhl-playoffs-eliminated/
 

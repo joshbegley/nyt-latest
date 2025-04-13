@@ -1,3 +1,7 @@
+**Rory McIlroy faced down his ghost and made Augusta National roar**\
+`If Rory McIlroy does win this Masters — he leads Bryson DeChambeau by two shots with 18 holes to go — this may be the lasting image.`\
+https://nytimes.com/athletic/6275143/2025/04/12/masters-2025-rory-mcilroy-augusta-national-15-roar/
+
 **Twins demote struggling Jose Miranda to minors after base-running blunder: Source**\
 `Brooks Lee is expected to come off the injured list to replace Miranda in the Twins' underperforming lineup.`\
 https://nytimes.com/athletic/6275086/2025/04/12/twins-jose-miranda-demoted-base-running-blunder/
