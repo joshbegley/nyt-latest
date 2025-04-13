@@ -1,3 +1,11 @@
+**Salah's Liverpool career (so far) in extremely niche and obscure stats**\
+`Mohamed Salah's new contract with Liverpool was announced on Friday, giving him the chance to add more niche stats to his resume`\
+https://nytimes.com/athletic/6272084/2025/04/13/mohamed-salah-liverpool-stats/
+
+**The Englishman who founded AC Milan and the people keeping his legacy alive**\
+`Herbert Kilpin was a figure of relative obscurity but his legacy is now receiving the treatment it deserves`\
+https://nytimes.com/athletic/6266856/2025/04/13/herbert-kilpin-ac-milan-england/
+
 **Guardiola's long search to identify Man City's problems may finally be over**\
 `The City manager spoke in detail about the issues affecting his side this season, tracing them all the way back to a game five months ago`\
 https://nytimes.com/athletic/6274538/2025/04/13/manchester-city-pep-guardiola-crystal-palace/
@@ -29,13 +37,4 @@ https://nytimes.com/athletic/6275428/2025/04/12/cubs-pete-crow-armstrong-extensi
 **Maple Leafs report cards: Mitch Marner plays defenceman and overtime hero**\
 `With a 1-0 overtime win over Montreal, Toronto clinched home ice for the first round in the playoffs.`\
 https://nytimes.com/athletic/6275370/2025/04/12/maple-leafs-canadiens-mitch-marner/
-
-**Frozen Four takeaways: Western Michigan's depth delivers first national championship, signings loom**\
-`Western Michigan defeated Boston University 6-2 in the Frozen Four final for the school's first NCAA hockey title.
-`\
-https://nytimes.com/athletic/6274747/2025/04/12/western-michigan-boston-university-frozen-four-championship/
-
-**Sean Murphy homers twice, Braves get their first late-innings comeback and first road win**\
-`The Braves overcame a 3-1 deficit after seven innings to beat the Tampa Bay Rays 5-4.`\
-https://nytimes.com/athletic/6275249/2025/04/12/braves-comeback-win-rays-sean-murphy/
 
