@@ -1,3 +1,19 @@
+**‘S.N.L.’: Laughing All the Way to Financial Chaos**\
+`Among the sources of all the fun is ‘The White POTUS,” a parody that casts members of the administration in their own twisted playground for the privileged.`\
+https://nytimes.com/2025/04/13/arts/snl-financial-chaos-white-lotus.html
+
+**Trump Administration Live Updates: State Dept. Ignores Order to Detail Return of Wrongly Deported Migrant**\
+``\
+https://nytimes.com/live/2025/04/13/us/trump-news
+
+**Lowetide: Why Oilers prospect Sam O'Reilly is checking all the boxes**\
+`The choice of O'Reilly, a two-way centre heralded more for defensive play, is unusual based on the Oilers' past.`\
+https://nytimes.com/athletic/6274617/2025/04/13/sam-oreilly-oilers-london-knights/
+
+**Caution and Courage on Campus Speech**\
+`Readers respond to a guest essay by Michael I. Kotlikoff, the president of Cornell University. Also: Fired in a quake zone.`\
+https://nytimes.com/2025/04/13/opinion/campus-speech.html
+
 **USC spring practice thoughts: Portal needs, safety depth, Ja’Kobi Lane's development**\
 `Things could always change, but USC does not seem interested in pursuing Tennessee quarterback Nico Iamaleava.`\
 https://nytimes.com/athletic/6275713/2025/04/13/usc-spring-practice-quarterback-jakobi-lane/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6275709/2025/04/13/barcelona-alejandro-balde-injury
 **The Pulse: Today is McIlroy vs. McIlroy**\
 `Welcome to The Pulse, The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/6275324/2025/04/13/rory-mcilroy-the-masters-the-pulse/
-
-**5 Takeaways From New Research About A.D.H.D.**\
-`Scientists who study the condition are wrestling with some fundamental questions about the way we define and treat it.`\
-https://nytimes.com/2025/04/13/magazine/adhd-children-research-takeaways.html
-
-**Israel Strikes Hospital in Gaza’s North and Captures Key Part of South**\
-`No one was killed but the attack hit the Ahli Arab Hospital, a mainstay of Gaza’s decimated health care system. Separately, Israel said its troops had expanded their occupation of southern Gaza.`\
-https://nytimes.com/2025/04/13/world/middleeast/gaza-israel-hospital.html
-
-**Gout, 17, breaks 20-second barrier to win 200m**\
-`Gout's 19.84-second run on Sunday surpasses Usain Bolt’s 19.93 in 2004 and Justin Gatlin’s 19.86 in 2001.`\
-https://nytimes.com/athletic/6275690/2025/04/13/gout-gout-sprinter-record-200m/
-
-**Understanding A.D.H.D.**\
-`What’s behind the surge in cases in the U.S.?`\
-https://nytimes.com/2025/04/13/briefing/adhd-cases-us.html
 
