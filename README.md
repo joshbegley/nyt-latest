@@ -1,3 +1,15 @@
+**Nicky Katt, Character Actor on TV and in Film, Dies at 54**\
+`He began his career as a child actor and later played tough guys and henchmen. He was best known for “Boston Public” and “Dazed and Confused.”`\
+https://nytimes.com/2025/04/13/arts/nicky-katt-dead.html
+
+**Knicks, victims of expectations, enter playoffs under immense pressure**\
+`Regular-season expectations are one thing. Postseason expectations are another. Can the Knicks get it together in time?`\
+https://nytimes.com/athletic/6276210/2025/04/13/new-york-knicks-playoffs-pressure/
+
+**Calvin de Haan frustrated by healthy scratches, says treatment from Rangers has been 'f---ed'**\
+`The Rangers have made the veteran defenseman a healthy scratch the past 18 games. “Just wasting time,” de Haan said.`\
+https://nytimes.com/athletic/6276423/2025/04/13/rangers-calvin-de-haan-nhl/
+
 **Man Pleads Guilty to Selling Sperm Whale Teeth and Bones**\
 `Lauren H. DeLoach of South Carolina admitted to importing more than $18,000 worth of sperm whale parts from Australia, Latvia, Norway and Ukraine, prosecutors said.`\
 https://nytimes.com/2025/04/13/us/whale-sperm-bones-sale-illegal-guilty.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/13/world/europe/irmgard-furchner-dead.html
 **Cyclist Van der Poel hit by bottle en route to Paris-Roubaix victory**\
 `The Dutchman remained on his bike to secure his third successive victory at the race, also surviving a puncture with just 15km left.`\
 https://nytimes.com/athletic/6276303/2025/04/13/mathieu-van-der-poel-bottle-paris-roubaix/
-
-**The Briefing – Paris-Roubaix: All eyes on Pogacar as Van der Poel and Ferrand-Prevot make history on the cobbles**\
-`The key storylines from a weekend of physical brutality and spectator misdemeanour on the cobbled roads of northern France`\
-https://nytimes.com/athletic/6275938/2025/04/13/paris-roubaix-pogacar-van-der-poel-briefing/
-
-**China Halts Critical Exports as Trade War Intensifies**\
-`Beijing has suspended exports of certain rare earth minerals and magnets that are crucial for the world’s car, semiconductor and aerospace industries.`\
-https://nytimes.com/2025/04/13/business/china-rare-earths-exports.html
-
-**The Briefing: Newcastle 4 Man Utd 1 - hosts boost top-five hopes and Amorim's big calls analysed**\
-`Chris Waugh, Mark Critchley and Conor O'Neill analyse the main talking points from Newcastle's dominant win over Manchester United`\
-https://nytimes.com/athletic/6272151/2025/04/13/newcastle-man-utd-analysis-premier-league/
 
