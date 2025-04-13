@@ -1,3 +1,7 @@
+**Barcelona's Balde suffers hamstring injury; doubt for Copa final**\
+`The left-back suffered the injury in Saturday's La Liga victory at Leganes, having to be replaced in the 41st minute by Gerard Martin.`\
+https://nytimes.com/athletic/6275709/2025/04/13/barcelona-alejandro-balde-injury-update/
+
 **The Pulse: Today is McIlroy vs. McIlroy**\
 `Welcome to The Pulse, The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/6275324/2025/04/13/rory-mcilroy-the-masters-the-pulse/
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/6253714/2025/04/13/sascha-boumedienne-boston-univer
 `Ten rules for getting very, very old.`\
 https://nytimes.com/2025/04/13/opinion/aging-tips-getting-older.html
 
-**Arsenal are becoming devastating in transition - it's a weapon they should embrace**\
+**Arsenal are becoming devastating in transition. It's a weapon they should embrace**\
 `Mikel Arteta likes to play with control and to prevent opposition counter-attacks, but his own team can be a real threat on the break`\
 https://nytimes.com/athletic/6274883/2025/04/13/arsenal-counter-attacks-transition/
 
 **Barca's Leon handed two-game ban for 'unsporting conduct' with Caracas**\
 `Video footage widely circulated on social media appeared to show Barcelona defender Leon, 29, inappropriately touching Caracas.`\
 https://nytimes.com/athletic/6129480/2025/04/13/mapi-leon-barcelona-caracas-espanyol/
-
-**U.S. Nuclear Talks With Iran Move Forward, but Many Pitfalls Lie Ahead**\
-`In a first meeting, the United States and Iran show signs of pragmatism and limited aims, which would make success more likely. But hard-liners on both sides — and Israel — are bound to balk.`\
-https://nytimes.com/2025/04/13/world/europe/us-nuclear-talks-iran.html
 

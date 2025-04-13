@@ -1,3 +1,11 @@
+**Barcelona's Balde suffers hamstring injury; doubt for Copa final**\
+`The left-back suffered the injury in Saturday's La Liga victory at Leganes, having to be replaced in the 41st minute by Gerard Martin.`\
+https://nytimes.com/athletic/6275709/2025/04/13/barcelona-alejandro-balde-injury-update/
+
+**Arsenal are becoming devastating in transition. It's a weapon they should embrace**\
+`Mikel Arteta likes to play with control and to prevent opposition counter-attacks, but his own team can be a real threat on the break`\
+https://nytimes.com/athletic/6274883/2025/04/13/arsenal-counter-attacks-transition/
+
 **The Pulse: Today is McIlroy vs. McIlroy**\
 `Welcome to The Pulse, The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/6275324/2025/04/13/rory-mcilroy-the-masters-the-pulse/
