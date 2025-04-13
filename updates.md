@@ -1,3 +1,12 @@
+**Maple Leafs report cards: Mitch Marner plays defenceman and overtime hero**\
+`With a 1-0 overtime win over Montreal, Toronto clinched home ice for the first round in the playoffs.`\
+https://nytimes.com/athletic/6275370/2025/04/12/maple-leafs-canadiens-mitch-marner/
+
+**Frozen Four takeaways: Western Michigan's depth delivers first national championship, signings loom**\
+`Western Michigan defeated Boston University 6-2 in the Frozen Four final for the school's first NCAA hockey title.
+`\
+https://nytimes.com/athletic/6274747/2025/04/12/western-michigan-boston-university-frozen-four-championship/
+
 **Frozen Four takeaways: Western Michigan's depth delivers first national championship, signings loom**\
 `Western Michigan defeated Boston University 6-2 in the Frozen Four final for the school's first NCAA hockey title.
 `\

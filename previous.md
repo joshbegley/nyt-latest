@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Mitch Marner plays defenceman and overtime hero**\
+`With a 1-0 overtime win over Montreal, Toronto clinched home ice for the first round in the playoffs.`\
+https://nytimes.com/athletic/6275370/2025/04/12/maple-leafs-canadiens-mitch-marner/
+
 **Frozen Four takeaways: Western Michigan's depth delivers first national championship, signings loom**\
 `Western Michigan defeated Boston University 6-2 in the Frozen Four final for the school's first NCAA hockey title.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6275149/2025/04/12/masters-2025-round-3-dechambeau-
 **Astros fan says he ripped ball out of Trout's glove trying to protect son**\
 `“I didn’t realize it was a play, it was coming at my son’s face. I just reached out,” the Astros fan, Jared Whalen, told The Athletic.`\
 https://nytimes.com/athletic/6275187/2025/04/12/astros-fan-interference-mike-trout/
-
-**Rory McIlroy faced down his ghost and made Augusta National roar**\
-`If McIlroy wins this Masters — he leads Bryson DeChambeau by two shots with 18 holes to go — this might be the lasting image.`\
-https://nytimes.com/athletic/6275143/2025/04/12/masters-2025-rory-mcilroy-augusta-national-15-roar/
 
