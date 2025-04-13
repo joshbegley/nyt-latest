@@ -1,3 +1,7 @@
+**Mats Zuccarello talks the talk, then caps comeback win with biggest goal of Wild's season**\
+`"Big-time players make big plays," Brock Faber said of Zuccarello, "and he just seems to always be there in the big moments."`\
+https://nytimes.com/athletic/6275255/2025/04/13/wild-canucks-mats-zuccarello-biggest-goal-of-season/
+
 **The Last Flight of Helicopter N216MH**\
 `The aircraft had flown tourists in New York City thousands of times before crashing Thursday with a Spanish family aboard. Passengers who had flown earlier that day are processing the shock.`\
 https://nytimes.com/2025/04/13/nyregion/nyc-hudson-river-helicopter-crash-escobar.html
