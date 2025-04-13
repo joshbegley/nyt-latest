@@ -1,3 +1,7 @@
+**Pennsylvania Governor’s Residence Targeted in Arson**\
+`The governor, Josh Shapiro, said the State Police banged on the door early on Sunday to wake him and his family after an arsonist set fire to the governor’s residence in Harrisburg.`\
+https://nytimes.com/2025/04/13/us/politics/josh-shapiro-arson-attack-pennsylvania.html
+
 **The Briefing: Chelsea 2 Ipswich 2 - Madueke shines but Maresca's side drop vital points**\
 `All the key talking points from Chelsea's 2-2 draw with Ipswich Town analysed and evaluated `\
 https://nytimes.com/athletic/6269341/2025/04/13/chelsea-2-ipswich-2-the-briefing/
