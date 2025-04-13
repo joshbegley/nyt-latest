@@ -1,3 +1,7 @@
+**Bernie Sanders, a Surprise Guest at Coachella, Urges Opposition to Trump’s Policies**\
+`The senator appeared onstage at the music festival on Saturday night, appealing to young people to oppose President Trump.`\
+https://nytimes.com/2025/04/13/us/politics/bernie-sanders-coachella.html
+
 **Nico Iamaleava lost the support of the pro-athlete folks, so where does that lead?**\
 `The only reasonable conclusion from here? Actual contracts and collective bargaining, `\
 https://nytimes.com/athletic/6275411/2025/04/13/nico-iamaleava-tennessee-collective-bargaining/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6272150/2025/04/13/wolves-4-tottenham-2/
 **Zeev Buium signs with the Wild after Denver University's exit from NCAA Tournament**\
 `Buium, 19, who was a finalist for the Hobey Baker Award as college hockey's top player, is coming off a dominant season.`\
 https://nytimes.com/athletic/6236175/2025/04/13/zeev-buium-wild-ncaa-tournament/
-
-**If You’re Fried, Try No-Fry Fish and Chips**\
-`Weekends can wear you out. Melissa Clark’s easy take on a classic dish revives and restores.`\
-https://nytimes.com/2025/04/13/dining/baked-fish-and-chips-recipe.html
 
