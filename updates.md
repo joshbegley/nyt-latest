@@ -1,3 +1,27 @@
+**The Briefing: Liverpool 2 West Ham 1 - Van Dijk's winner, Salah's pass and another step closer to title glory**\
+`Daniel Taylor and Conor O'Neill break down the main talking points from Liverpool's dramatic 2-1 win over West Ham`\
+https://nytimes.com/athletic/6267396/2025/04/13/liverpool-2-west-ham-1-van-dijk-diaz-robertson-salah/
+
+**The Briefing: Wolves 4 Tottenham 2 - Vicario shaky as Spurs suffer yet more away day woe**\
+`Spurs slumped to a seventeenth defeat of the Premier League season, shipping four goals to 17th-place Wolves`\
+https://nytimes.com/athletic/6272150/2025/04/13/wolves-4-tottenham-2/
+
+**Zeev Buium signs with the Wild after Denver University's exit from NCAA Tournament**\
+`Buium, 19, who was a finalist for the Hobey Baker Award as college hockey's top player, is coming off a dominant season.`\
+https://nytimes.com/athletic/6236175/2025/04/13/zeev-buium-wild-ncaa-tournament/
+
+**If You’re Fried, Try No-Fry Fish and Chips**\
+`Weekends can wear you out. Melissa Clark’s easy take on a classic dish revives and restores.`\
+https://nytimes.com/2025/04/13/dining/baked-fish-and-chips-recipe.html
+
+**Prospect Ryan Greene signs with Blackhawks after Frozen Four**\
+`Green, a 6-foot-1, 195-pound two-way center, is expected to make his NHL debut on Monday.`\
+https://nytimes.com/athletic/6270002/2025/04/13/blackhawks-ryan-greene-nhl-contract/
+
+**Read the Report on President Trump’s Annual Physical Exam**\
+`The White House released the results of President Trump’s annual physical examination on Sunday.`\
+https://nytimes.com/interactive/2025/04/13/us/1.html
+
 **Read the Results of President Trump’s Medical Report**\
 `The White House released the results of President Trump’s annual physical examination on Sunday.`\
 https://nytimes.com/interactive/2025/04/13/us/1.html
