@@ -1,3 +1,7 @@
+**Cubs, Pete Crow-Armstrong table contract talks for now: Sources**\
+`With Crow-Armstrong still in the early stages of his big-league career, neither side felt an urgent need to agree to an extension.`\
+https://nytimes.com/athletic/6275428/2025/04/12/cubs-pete-crow-armstrong-extension-talks/
+
 **Maple Leafs report cards: Mitch Marner plays defenceman and overtime hero**\
 `With a 1-0 overtime win over Montreal, Toronto clinched home ice for the first round in the playoffs.`\
 https://nytimes.com/athletic/6275370/2025/04/12/maple-leafs-canadiens-mitch-marner/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6275201/2025/04/12/ben-rice-yankees-leadoff-mystery
 **Masters 2025 Round 3: How Bryson DeChambeau, Rory McIlroy took over**\
 `One of the most thrilling Saturdays in recent Masters Tournament memory has set an unbelievable championship stage.`\
 https://nytimes.com/athletic/6275149/2025/04/12/masters-2025-round-3-dechambeau-mcilroy/
-
-**Astros fan says he ripped ball out of Trout's glove trying to protect son**\
-`“I didn’t realize it was a play, it was coming at my son’s face. I just reached out,” the Astros fan, Jared Whalen, told The Athletic.`\
-https://nytimes.com/athletic/6275187/2025/04/12/astros-fan-interference-mike-trout/
 
