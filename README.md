@@ -1,3 +1,19 @@
+**The Briefing: Wolves 4 Tottenham 2 - Vicario looks shaky as Spurs suffer yet more away day woe**\
+`Spurs slumped to a seventeenth defeat of the Premier League season, shipping four goals to 17th-place Wolves`\
+https://nytimes.com/athletic/6272150/2025/04/13/wolves-4-tottenham-2/
+
+**Zeev Buium signs with the Wild after Denver University's exit from NCAA Tournament**\
+`Buium, 19, who was a finalist for the Hobey Baker Award as college hockey's top player, is coming off a dominant season.`\
+https://nytimes.com/athletic/6236175/2025/04/13/zeev-buium-wild-ncaa-tournament/
+
+**If You’re Fried, Try No-Fry Fish and Chips**\
+`Weekends can wear you out. Melissa Clark’s easy take on a classic dish revives and restores.`\
+https://nytimes.com/2025/04/13/dining/baked-fish-and-chips-recipe.html
+
+**Prospect Ryan Greene signs with Blackhawks after Frozen Four**\
+`Green, a 6-foot-1, 195-pound center, is expected to make his NHL debut on Monday.`\
+https://nytimes.com/athletic/6270002/2025/04/13/blackhawks-ryan-greene-nhl-contract/
+
 **‘The Last of Us’ Review: On the Road Again**\
 `Season 2 of HBO’s zombie drama begins with Joel and Ellie safe and settled. One guess how long that lasts.`\
 https://nytimes.com/2025/04/13/arts/television/the-last-of-us-review.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6275705/2025/04/13/tennis-ukraine-war-billie-jean-k
 **‘S.N.L.’: Laughing All the Way to Financial Chaos**\
 `Among the sources of all the fun is ‘The White POTUS,” a parody that casts members of the administration in their own twisted playground for the privileged.`\
 https://nytimes.com/2025/04/13/arts/snl-financial-chaos-white-lotus.html
-
-**Trump Administration Live Updates: State Dept. Ignores Order to Detail Return of Wrongly Deported Migrant**\
-``\
-https://nytimes.com/live/2025/04/13/us/trump-news
-
-**Lowetide: Why Oilers prospect Sam O'Reilly is checking all the boxes**\
-`The choice of O'Reilly, a two-way centre heralded more for defensive play, is unusual based on the Oilers' past.`\
-https://nytimes.com/athletic/6274617/2025/04/13/sam-oreilly-oilers-london-knights/
-
-**Caution and Courage on Campus Speech**\
-`Readers respond to a guest essay by Michael I. Kotlikoff, the president of Cornell University. Also: Fired in a quake zone.`\
-https://nytimes.com/2025/04/13/opinion/campus-speech.html
-
-**USC spring practice thoughts: Portal needs, safety depth, Ja’Kobi Lane's development**\
-`Things could always change, but USC does not seem interested in pursuing Tennessee quarterback Nico Iamaleava.`\
-https://nytimes.com/athletic/6275713/2025/04/13/usc-spring-practice-quarterback-jakobi-lane/
 
