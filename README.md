@@ -1,3 +1,7 @@
+**Several Parts of Helicopter That Crashed in Hudson Are Still Missing**\
+`The helicopter did not have any flight recorders, officials said. The investigation into the cause of the crash, which killed six people, is continuing.`\
+https://nytimes.com/2025/04/13/nyregion/helicopter-crash-nyc-parts-missing.html
+
 **Blue Jackets Sunday Gathering: Is goaltender Jet Greaves seizing his NHL opportunity?**\
 `Greaves recently led the Blue Jackets to two must-wins and is certainly making the case for an NHL roster spot next season.`\
 https://nytimes.com/athletic/6275396/2025/04/13/blue-jackets-goaltender-jet-greaves-nhl/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/13/business/palin-v-new-york-times-defamation-trial.
 **Bahrain Grand Prix: Submit your questions for our F1 mailbag**\
 `What questions do you have for our writers after the Bahrain Grand Prix?`\
 https://nytimes.com/athletic/6276079/2025/04/13/f1-mailbag-bahrain-grand-prix/
-
-**Democrats Widely Blast Trump’s Tariffs, but Not Necessarily Tariffs**\
-`While Democrats have widely criticized President Trump’s whipsawing trade strategy as chaotic, they’ve displayed little consensus on where the party stands on tariffs overall.`\
-https://nytimes.com/2025/04/13/us/politics/democrats-trump-tariffs-policy.html
 
