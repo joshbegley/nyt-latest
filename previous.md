@@ -1,3 +1,7 @@
+**The Briefing – Paris-Roubaix: All eyes on Pogacar as Van der Poel and Ferrand-Prevot make history on the cobbles**\
+`The key storylines from a weekend of physical brutality and spectator misdemeanour on the cobbled roads of northern France`\
+https://nytimes.com/athletic/6275938/2025/04/13/paris-roubaix-pogacar-van-der-poel-briefing/
+
 **China Halts Critical Exports as Trade War Intensifies**\
 `Beijing has suspended exports of certain rare earth minerals and magnets that are crucial for the world’s car, semiconductor and aerospace industries.`\
 https://nytimes.com/2025/04/13/business/china-rare-earths-exports.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/13/obituaries/jean-marsh-dead.html
 **White House Releases Results of Trump’s Annual Physical Exam**\
 `The report is the first public accounting of the president’s health since January, when he became the oldest man ever sworn into his office. His previous medical disclosures have drawn scrutiny.`\
 https://nytimes.com/2025/04/13/us/politics/trump-physical-exam-results.html
-
-**Trail Blazers, Chauncey Billups agree to multiyear contract extension**\
-`Billups has a 116-211 record since taking over the team in June 2021.`\
-https://nytimes.com/athletic/6276086/2025/04/13/trail-blazers-chauncey-billups-contract-extension/
 

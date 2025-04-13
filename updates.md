@@ -1,3 +1,7 @@
+**The Briefing – Paris-Roubaix: All eyes on Pogacar as Van der Poel and Ferrand-Prevot make history on the cobbles**\
+`The key storylines from a weekend of physical brutality and spectator misdemeanour on the cobbled roads of northern France`\
+https://nytimes.com/athletic/6275938/2025/04/13/paris-roubaix-pogacar-van-der-poel-briefing/
+
 **China Halts Critical Exports as Trade War Intensifies**\
 `Beijing has suspended exports of certain rare earth minerals and magnets that are crucial for the world’s car, semiconductor and aerospace industries.`\
 https://nytimes.com/2025/04/13/business/china-rare-earths-exports.html
