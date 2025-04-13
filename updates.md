@@ -1,3 +1,7 @@
+**Man Utd Women reach FA Cup final again with victory over Man City**\
+`Early goals from Celin Bizet and Grace Clinton were enough for United to set up the May 18 showpiece against Chelsea at Wembley.`\
+https://nytimes.com/athletic/6276051/2025/04/13/manchester-united-fa-cup-final-women/
+
 **Bernie Sanders, a Surprise Guest at Coachella, Urges Opposition to Trump’s Policies**\
 `The senator appeared onstage at the music festival on Saturday night, appealing to young people to oppose President Trump.`\
 https://nytimes.com/2025/04/13/us/politics/bernie-sanders-coachella.html
