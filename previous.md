@@ -1,3 +1,35 @@
+**Settled Wolves side offers a glimpse of a happy post-Cunha future**\
+`If Cunha is to leave this summer, this was clear encouragement that the Wolves attack can function without him`\
+https://nytimes.com/athletic/6276224/2025/04/14/wolves-tottenham-strand-larsen/
+
+**Declan Rice's surges upfield have long-awaited shades of Yaya Toure**\
+`Rice taking flight against Brentford was reminiscent of a midfielder he has openly idolised since his West Ham days`\
+https://nytimes.com/athletic/6274756/2025/04/14/declan-rice-yaya-toure/
+
+**European qualification will be key for Brighton if Mitoma is a wanted man again this summer**\
+`Brighton rejected two bids for Mitoma in January. Their ability to resist further interest in the summer may rest on their European status`\
+https://nytimes.com/athletic/6274348/2025/04/14/brighton-kaoru-mitoma-future-europe/
+
+**Four days out from the defining match of their season, Spurs do little to inspire confidence**\
+`Spurs blundered their way to a 4-2 defeat at Wolves, and now head to Frankfurt, where the home side are yet to lose in Europe this season`\
+https://nytimes.com/athletic/6276317/2025/04/14/tottenham-wolves-postecoglou/
+
+**Everton can afford to dream of better days. Their recruitment needs to match that ambition**\
+`Abdoulaye Doucoure's match-winning celebration was a reminder of the size of the rebuild facing Everton's new hierarchy this summer`\
+https://nytimes.com/athletic/6275591/2025/04/14/everton-recruitment-nottingham-forest/
+
+**How emotional but laser-focused Newcastle managed the weekend without Eddie Howe**\
+`The team delivered a performance their absent manager will have been proud of and in doing so secured a rare double over Manchester United`\
+https://nytimes.com/athletic/6271954/2025/04/14/newcastle-manchester-united-howe/
+
+**Vital dropped points may haunt Maresca as he assesses Chelsea's daunting run-in**\
+`The London club couldn't secure victory in the easiest game they had left and it could cost them qualification for the Champions League`\
+https://nytimes.com/athletic/6276026/2025/04/14/chelsea-run-in-maresca-dropped-points/
+
+**Paqueta's swashbuckling performance shows West Ham what they will miss if he is banned**\
+`The Brazilian stood out for Graham Potter's team at Anfield - in a game that they were unlucky not to get something from`\
+https://nytimes.com/athletic/6275731/2025/04/14/paqueta-west-ham-premier-league/
+
 **Will the real Nottingham Forest please stand up?**\
 `Forest looked woefully out of sorts against Everton. But they have time to rediscover their identity ahead of facing Spurs next`\
 https://nytimes.com/athletic/6275641/2025/04/14/nottingham-forest-everton-identity/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/6275641/2025/04/14/nottingham-forest-everton-identi
 **The Briefing: Two seasons hang by a thread, Forest's top-five wobble and a managerial masterstroke**\
 `Manchester United and Tottenham Hotspur are ever-more reliant on the Europa League, while Nottingham Forest are dropping valuable points`\
 https://nytimes.com/athletic/6276564/2025/04/14/the-briefing-tottenham-man-utd-forest/
-
-**Sluggish offense dooms Dodgers for third straight series: 'Haven't been synced up'**\
-`L.A.'s offense is more talented than the last 10 days have indicated, which makes this stretch all the more perplexing.`\
-https://nytimes.com/athletic/6277564/2025/04/14/dodgers-lose-third-straight-series/
-
-**Forty years of dominance and a 55th title on ice, but Scottish football is more than just Rangers and Celtic**\
-`Celtic will have to wait a little longer to draw level with Rangers on 55 league titles after late drama at Aberdeen delayed the inevitable`\
-https://nytimes.com/athletic/6272482/2025/04/14/celtic-rangers-55-scotland-premiership/
-
-**Champagne, 200,000 fans, and a lot of beige trousers - walking the Boat Race route**\
-`It attracts a crowd of more than 200,000 — so what is the appeal of the Boat Race and what is it like to attend?`\
-https://nytimes.com/athletic/6276241/2025/04/14/boat-race-walking-the-route/
-
-**It is now official - this is the worst Manchester United team in Premier League history**\
-`Ruben Amorim's side will finish with a lower Premier League points total than any Manchester United team`\
-https://nytimes.com/athletic/6276766/2025/04/14/manchester-united-lowest-points-premier-league/
-
-**Van Dijk's badge-kiss tells of a Liverpool love affair set to be continued**\
-`The captain scored a late winner against West Ham but the expected announcement of his new contract could have even greater significance`\
-https://nytimes.com/athletic/6275782/2025/04/14/virgil-van-dijk-liverpool-contract-goal/
-
-**Gyokeres, Delap, Sesko, Osimhen: Which clubs are the best fit for Europe's in-demand strikers?**\
-`The identities of the forwards who will define this summer's transfer market are known - but where should they go?`\
-https://nytimes.com/athletic/6272122/2025/04/14/strikers-transfer-window-best-fit-delap-isak-gyokeres/
-
-**A tale of two Manchesters: United's FA Cup win over City shows a growing divide**\
-`A year ago, the narratives were flipped between Manchester United and City`\
-https://nytimes.com/athletic/6276606/2025/04/14/manchester-united-women-return-to-fa-cup-final-increasing-separation-from-city/
-
-**Leicester score (twice!) to prove there is still hope to be found in desperate times**\
-`Leicester's season is almost certain to end in the misery of relegation but they plundered two moments to cherish against Brighton`\
-https://nytimes.com/athletic/6274284/2025/04/14/leicester-city-brighton-okoli-mavididi/
 

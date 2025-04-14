@@ -1,3 +1,7 @@
+**Morgan Rogers plays and plays and plays - even with PSG decider on the horizon**\
+`Like Youri Tielemans and Emiliano Martinez, Rogers is indispensable in Unai Emery's eyes, even with a huge Champions League game next`\
+https://nytimes.com/athletic/6274300/2025/04/14/morgan-rogers-aston-villa-southampton-psg/
+
 **Settled Wolves side offers a glimpse of a happy post-Cunha future**\
 `If Cunha is to leave this summer, this was clear encouragement that the Wolves attack can function without him`\
 https://nytimes.com/athletic/6276224/2025/04/14/wolves-tottenham-strand-larsen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6275731/2025/04/14/paqueta-west-ham-premier-league/
 **Will the real Nottingham Forest please stand up?**\
 `Forest looked woefully out of sorts against Everton. But they have time to rediscover their identity ahead of facing Spurs next`\
 https://nytimes.com/athletic/6275641/2025/04/14/nottingham-forest-everton-identity/
-
-**The Briefing: Two seasons hang by a thread, Forest's top-five wobble and a managerial masterstroke**\
-`Manchester United and Tottenham Hotspur are ever-more reliant on the Europa League, while Nottingham Forest are dropping valuable points`\
-https://nytimes.com/athletic/6276564/2025/04/14/the-briefing-tottenham-man-utd-forest/
 
