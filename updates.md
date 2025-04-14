@@ -1,3 +1,12 @@
+**Mark Zuckerberg Is Back in the Hot Seat in a Crucial Trial**\
+`Mark Zuckerberg has appeared before Congress more times than any other tech leader.`\
+https://nytimes.com/video/business/100000010103020/mark-zuckerberg-is-back-in-the-hot-seat-in-a-crucial-trial.html
+
+**Champions League quarter-final best bets: Can Villa and Dortmund turn the tide?**\
+`Brett Koremenos outlines the best bets for Tuesday’s Champions League quarter-final second-legs.
+`\
+https://nytimes.com/athletic/6277914/2025/04/14/champions-league-quarter-final-second-leg-betting-tips-predictions-odds/
+
 **L.A. County Expects $2 Billion in Fire Costs, Adding to Budget Woes**\
 `County leaders said that layoffs of public workers were so far unlikely, but that the region’s financial challenges multiplied after the wildfires in January.`\
 https://nytimes.com/2025/04/14/us/budget-crisis-los-angeles-county.html

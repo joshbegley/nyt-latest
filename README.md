@@ -1,3 +1,15 @@
+**Orban Escalates Culture War in Hungary by Mandating Two Genders Only**\
+`The governing Fidesz party passed a constitutional amendment stating that all Hungarians are either male or female, and another protecting the “moral development” of children.`\
+https://nytimes.com/2025/04/14/world/europe/hungary-two-genders-constitution.html
+
+**Former Sheriff’s Deputy Is Sentenced to 3 Years in Killing of Colorado Man**\
+`Andrew Buen was found guilty of criminally negligent homicide in February in the 2022 killing of Christian Glass, who was experiencing a mental health crisis on a mountain road.`\
+https://nytimes.com/2025/04/14/us/colorado-deputy-christian-glass-sentencing.html
+
+**Scoop City: Re-drafting No. 1 picks from 2010 to 2020**\
+`We're redrafting No. 1 picks from 2010 to 2020, explaining New Orleans' QB situation and Caleb Williams' first impressions of Ben Johnson`\
+https://nytimes.com/athletic/6278736/2025/04/14/redrafting-nfl-2010-2020-draft-pick-history-scoop-city/
+
 **Mark Zuckerberg Is Back in the Hot Seat in a Crucial Trial**\
 `Mark Zuckerberg has appeared before Congress more times than any other tech leader.`\
 https://nytimes.com/video/business/100000010103020/mark-zuckerberg-is-back-in-the-hot-seat-in-a-crucial-trial.html
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/6278631/2025/04/14/eddie-howe-illness-newcastle-tin
 **Why SGA is the MVP, and a surprise pick for Defensive Player of the Year**\
 `This season is arguably the most contentious award season in league annals, and not many choices are clear no-brainers.`\
 https://nytimes.com/athletic/6277601/2025/04/14/nba-awards-sga-mvp-amen-thompson-rockets-hollinger/
-
-**Good Luck Getting Goldman Sachs to Even Say the Word ‘Tariff’**\
-`Wall Street’s top firms have been reticent to criticize President Trump’s trade policy, but Goldman took it to a new level on Monday.`\
-https://nytimes.com/2025/04/14/business/good-luck-getting-goldman-sachs-to-even-say-the-word-tariff.html
-
-**The Colorful Cult of Le Creuset**\
-`The weighty cookware, which just turned 100, has inspired generations of home chefs and fans who feverishly hunt for their favorite shapes and shades.`\
-https://nytimes.com/2025/04/14/dining/le-creuset.html
-
-**Fugitive Jeweler Wanted by India Is Arrested in Belgium**\
-`The fugitive, Mehul Choksi, is wanted in connection with a major financial scandal at a publicly owned Indian bank. The police in Antwerp, Belgium, arrested him over the weekend.`\
-https://nytimes.com/2025/04/14/world/asia/mehul-choksi-arrest-belgium-nirav-modi.html
 
