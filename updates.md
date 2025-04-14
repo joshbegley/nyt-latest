@@ -1,3 +1,15 @@
+**Eating Frog Legs During Charli XCX’s Coachella Set**\
+`Outstanding in the Field offers an unexpected festival experience, hosting a four-course dinner as the bands play.`\
+https://nytimes.com/2025/04/14/style/coachella-dinners-outstanding-in-the-field.html
+
+**Read the Trump Administration’s Letter to Harvard**\
+`A letter sent to Harvard on Friday by the Trump administration demanded that the university make a series of policy changes in order to continue to receive federal funding.`\
+https://nytimes.com/interactive/2025/04/14/us/trump-harvard-demands.html
+
+**Read Harvard’s Response to the Trump Administration**\
+`Harvard University’s lawyers responded on Monday to the Trump Administration’s letter demanding a series of policy changes, saying the demands were unlawful and that Harvard would not comply.`\
+https://nytimes.com/interactive/2025/04/14/us/harvard-letter.html
+
 **Bueckers vs. Clark and the names women's basketball card collectors need to know**\
 `Bueckers, Watkins, and Clark are the biggest names in the hobby, but other names might present better buys`\
 https://nytimes.com/athletic/6278366/2025/04/14/paige-bueckers-caitlin-clark-cards-wnba/

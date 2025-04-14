@@ -1,3 +1,11 @@
+**North Dakota Lawmakers Pass Bill Restricting Library Books Deemed Obscene**\
+`The bill, which applies to public and school libraries, is part of a national push by Republicans to crack down on content they consider inappropriate for children.`\
+https://nytimes.com/2025/04/14/us/north-dakota-books-obscene.html
+
+**Salvadoran President Says He Won’t Return Wrongly Deported Man**\
+`During a bilateral meeting in the Oval Office, President Trump also said that he was open to sending American citizens convicted of violent crimes to President Nayib Bukele’s prison in El Salvador.`\
+https://nytimes.com/video/world/americas/100000010110367/bukele-trump-deported-man.html
+
 **Eating Frog Legs During Charli XCX’s Coachella Set**\
 `Outstanding in the Field offers an unexpected festival experience, hosting a four-course dinner as the bands play.`\
 https://nytimes.com/2025/04/14/style/coachella-dinners-outstanding-in-the-field.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/14/style/coachella-2025-lady-gaga-jennie-bernie-sand
 **Tuesday Briefing: El Salvador Won’t Return Deportee**\
 `Plus, remembering Mario Vargas Llosa.`\
 https://nytimes.com/2025/04/14/briefing/el-salvador-deportee-meta-trial-xi-asia-tour.html
-
-**Questions for The Morning**\
-`What’s on your mind?`\
-https://nytimes.com/2025/04/14/briefing/questions-for-the-morning.html
-
-**5 Migrants Feared Dead After Boat Capsizes Off Florida Coast**\
-`One person died and four others were rescued on Sunday, two days after the boat capsized off the state’s Atlantic coast, the authorities said.`\
-https://nytimes.com/2025/04/14/us/florida-boat-capsize-coast-guard.html
 
