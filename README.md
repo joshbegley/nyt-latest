@@ -1,3 +1,7 @@
+**What to Know About the Mistaken Deportation of a Maryland Man to El Salvador**\
+`President Trump’s aides abruptly said the man, Kilmar Armando Abrego Garcia, had been lawfully sent to a prison in El Salvador, contradicting what officials themselves have said in court filings.`\
+https://nytimes.com/2025/04/14/us/politics/abrego-garcia-trump-deportations-el-salvador.html
+
 **NBA champion odds: Thunder open playoffs as title favorite ahead of Celtics, Cavs**\
 `The Oklahoma City Thunder are the favorites to win the NBA title as the postseason nears. `\
 https://nytimes.com/athletic/6278809/2025/04/14/nba-playoffs-champion-odds-thunder-celtics-cavs/
@@ -10,8 +14,8 @@ https://nytimes.com/athletic/6271084/2025/04/14/ducks-free-agent-tim-washe/
 `Monday night's draft commences the 2025 WNBA campaign, which comes on the heels of an all-time wild offseason.`\
 https://nytimes.com/athletic/6278837/2025/04/14/wnba-draft-2025-paige-bueckers-how-to-watch/
 
-**Older People Seeking Care for Cannabis Use at Greater Risk for Dementia**\
-`Users needing emergency care or hospitalization were at much greater risk of later dementia, researchers reported. That does not prove cannabis was the cause.`\
+**Older People Seeking Care for Cannabis Use at Greater Risk for Dementia, Study Finds**\
+`Users needing emergency care or hospitalization were more likely to later develop dementia, researchers reported. That does not prove cannabis was the cause.`\
 https://nytimes.com/2025/04/14/health/cannabis-marijuana-dementia.html
 
 **Asparagus Dresses Up for This Springy Dinner Party**\
@@ -31,10 +35,6 @@ https://nytimes.com/video/science/space/100000010109285/blue-origin-launches-fem
 https://nytimes.com/2025/04/14/us/migrants-trump.html
 
 **Harvard Says It Will Not Comply With Trump Administration’s Demands**\
-`Federal officials said Harvard must enact “merit-based reform” in hiring and admissions, among other things. Harvard called the demands unlawful.`\
+`Federal officials said Harvard must enact “merit-based reform” in hiring and admissions and report international students who broke rules, among other steps. Harvard called the demands unlawful.`\
 https://nytimes.com/2025/04/14/us/harvard-trump-reject-demands.html
-
-**At Bristol, NASCAR's ongoing short-track tire conundrum takes another turn**\
-`Many expected another high-tire-wear race at Bristol on Sunday. It never materialized, and it reignited the ongoing tire debate in NASCAR.`\
-https://nytimes.com/athletic/6278611/2025/04/14/bristol-nascar-tires-wear-kyle-larson/
 
