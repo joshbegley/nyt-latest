@@ -1,3 +1,7 @@
+**Word of the Day: vermilion**\
+`This word has appeared in 24 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/04/14/learning/word-of-the-day-vermilion.html
+
 **'I want to see young guys maximise their potential' - Tom Brady and Birmingham are not done yet**\
 `A mixed weekend saw Birmingham win the League One title, then lose the EFL Trophy final - but the owners say they have loftier ambitions...`\
 https://nytimes.com/athletic/6276447/2025/04/14/tom-brady-birmingham-city-efl-trophy/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6274756/2025/04/14/declan-rice-yaya-toure/
 **European qualification will be key for Brighton if Mitoma is a wanted man again this summer**\
 `Brighton rejected two bids for Mitoma in January. Their ability to resist further interest in the summer may rest on their European status`\
 https://nytimes.com/athletic/6274348/2025/04/14/brighton-kaoru-mitoma-future-europe/
-
-**Four days out from the defining match of their season, Spurs do little to inspire confidence**\
-`Spurs blundered their way to a 4-2 defeat at Wolves, and now head to Frankfurt, where the home side are yet to lose in Europe this season`\
-https://nytimes.com/athletic/6276317/2025/04/14/tottenham-wolves-postecoglou/
 

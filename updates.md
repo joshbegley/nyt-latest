@@ -1,3 +1,7 @@
+**'I want to see young guys maximise their potential' - Tom Brady and Birmingham are not done yet**\
+`A mixed weekend saw Birmingham win the League One title, then lose the EFL Trophy final - but the owners say they have loftier ambitions...`\
+https://nytimes.com/athletic/6276447/2025/04/14/tom-brady-birmingham-city-efl-trophy/
+
 **The New York Times in Print for Monday, April 14, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/04/14/todays-new-york-times
