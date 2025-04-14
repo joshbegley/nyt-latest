@@ -1,3 +1,7 @@
+**Paige Bueckers signing 3-year deal with Unrivaled: Source**\
+`Bueckers' first-year Unrivaled salary will exceed what she can earn in all four years of an WNBA rookie contract, a source said.`\
+https://nytimes.com/athletic/6277307/2025/04/13/paige-bueckers-unrivaled-contract/
+
 **Stocks Notch Gains After More Tariff Whiplash**\
 `After exempting Chinese imports of smartphones, chips and other electronics, President Trump said on Sunday the carve outs were only temporary.`\
 https://nytimes.com/2025/04/13/business/stock-market-trump-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6277046/2025/04/13/atlanta-braves-chris-sale-spence
 **Yohe's 10 observations: Penguins lose and, along the way, may have helped draft pick slot**\
 `The Penguins lost 4-1 to the Bruins on Sunday but may have won in a different way.`\
 https://nytimes.com/athletic/6276211/2025/04/13/penguins-bruins-nhl-draft-lottery-pick/
-
-**Maple Leafs report cards: Unexceptional but patient effort holds off Carolina comeback**\
-`Craig Berube will be happy with the Leafs' team defence as they held off the Hurricanes while resting some of the blue line.`\
-https://nytimes.com/athletic/6276702/2025/04/13/maple-leafs-report-cards-holmberg-woll-defence/
 

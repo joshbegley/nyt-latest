@@ -1,3 +1,7 @@
+**Paige Bueckers signing 3-year deal with Unrivaled: Source**\
+`Bueckers' first-year Unrivaled salary will exceed what she can earn in all four years of an WNBA rookie contract, a source said.`\
+https://nytimes.com/athletic/6277307/2025/04/13/paige-bueckers-unrivaled-contract/
+
 **Stocks Notch Gains After More Tariff Whiplash**\
 `After exempting Chinese imports of smartphones, chips and other electronics, President Trump said on Sunday the carve outs were only temporary.`\
 https://nytimes.com/2025/04/13/business/stock-market-trump-tariffs.html

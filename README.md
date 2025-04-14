@@ -1,3 +1,7 @@
+**Gotham FC's Midge Purce returns, Esther scores twice in win over Courage**\
+`With Purce's return, how will head coach Juan Carlos Amorós reshape his starting XI?`\
+https://nytimes.com/athletic/6277415/2025/04/13/gotham-midge-purce-return-win-nwsl/
+
 **Paige Bueckers signing 3-year deal with Unrivaled: Source**\
 `Bueckers' first-year Unrivaled salary will exceed what she can earn in all four years of an WNBA rookie contract, a source said.`\
 https://nytimes.com/athletic/6277307/2025/04/13/paige-bueckers-unrivaled-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6277179/2025/04/13/kyler-gordon-bears-extension/
 **Braves takeaways: Chris Sale frustrated; Spencer Strider and Alex Verdugo coming soon**\
 `In Sale's past two starts, he’s given up 15 hits and nine runs (eight earned) in nine innings. The offense isn't helping him.`\
 https://nytimes.com/athletic/6277046/2025/04/13/atlanta-braves-chris-sale-spencer-strider/
-
-**Yohe's 10 observations: Penguins lose and, along the way, may have helped draft pick slot**\
-`The Penguins lost 4-1 to the Bruins on Sunday but may have won in a different way.`\
-https://nytimes.com/athletic/6276211/2025/04/13/penguins-bruins-nhl-draft-lottery-pick/
 
