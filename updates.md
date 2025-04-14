@@ -1,3 +1,11 @@
+**Does French teen phenom Dominique Malonga have the biggest upside in the WNBA Draft?**\
+`"No Offseason" discuss why Dominique Malonga might have the highest upside of any player in the 2025 WNBA Draft.`\
+https://nytimes.com/athletic/6272924/2025/04/14/no-offseason-wnba-draft-dominique-malonga-teen/
+
+**Tennis Briefing: Ben Shelton's doubles drama and a battle between entertainment and etiquette**\
+`The American took flak from an opponent for hitting him with a shot - but making players targets is an accepted aspect of doubles`\
+https://nytimes.com/athletic/6275838/2025/04/14/tennis-etiquette-doubles-ben-shelton-vavassori-monte-carlo/
+
 **Tennis Briefing: Ben Shelton's doubles drama and a battle between entertainment and etiquette**\
 `The American took flak from an opponent for hitting him with a shot - but making players targets is an accepted aspect of doubles`\
 https://nytimes.com/athletic/6275838/2025/04/14/ben-sheltons-tennis-drama-and-a-doubles-battle-between-good-strategy-and-etiquette/
