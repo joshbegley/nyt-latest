@@ -1,3 +1,15 @@
+**Van Dijk's badge-kiss tells of a Liverpool love affair set to be continued**\
+`The captain scored a late winner against West Ham but the expected announcement of his new contract could have even greater significance`\
+https://nytimes.com/athletic/6275782/2025/04/14/virgil-van-dijk-liverpool-contract-goal/
+
+**A tale of two Manchesters: United's FA Cup win over City shows a growing divide**\
+`A year ago, the narratives were flipped between Manchester United and City`\
+https://nytimes.com/athletic/6276606/2025/04/14/manchester-united-women-return-to-fa-cup-final-increasing-separation-from-city/
+
+**Leicester score (twice!) to prove there is still hope to be found in desperate times**\
+`Leicester's season is almost certain to end in the misery of relegation but they plundered two moments to cherish against Brighton`\
+https://nytimes.com/athletic/6274284/2025/04/14/leicester-city-brighton-okoli-mavididi/
+
 **Trump’s Tariffs Leave No Safe Harbor for American Importers**\
 `For companies that have shifted factory production from China to other countries, the latest tariffs have undermined their strategy while sowing paralysis.`\
 https://nytimes.com/2025/04/14/business/trumps-tariffs-us-imports.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6277418/2025/04/13/rory-mcilroy-masters-roar-august
 **Monday Briefing: China Pauses Crucial Exports**\
 `Plus, an art forest in Thailand.`\
 https://nytimes.com/2025/04/13/briefing/china-us-tariff-ukraine-russia-saudi-arabia-trump.html
-
-**Javier Mascherano 'can't tell' whether Lionel Messi will play World Cup**\
-`Messi's friend and Inter Miami coach still isn't sure whether the superstar will make it to one last World Cup.`\
-https://nytimes.com/athletic/6277506/2025/04/13/messi-world-cup-mascherano-inter-miami/
-
-**‘The Last of Us’ Season 2, Episode 1: Meanwhile, Back at the Ranch**\
-`It seems this season will be driven by one simple idea: that when Joel saved Ellie at the end of Season 1 and then lied to her, he made a mess.`\
-https://nytimes.com/2025/04/13/arts/television/the-last-of-us-season-2-premiere-recap.html
-
-**Rory McIlroy 'has his masterpiece,' and CBS can celebrate a memorable broadcast**\
-`"We wanted the fans at home to react like we would in the truck," said Sellers Shy, the lead producer of the event for CBS Sports.`\
-https://nytimes.com/athletic/6277061/2025/04/13/rory-mcilroy-wins-masters-cbs-memorable-broadcast/
 

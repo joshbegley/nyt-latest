@@ -1,3 +1,15 @@
+**Van Dijk's badge-kiss tells of a Liverpool love affair set to be continued**\
+`The captain scored a late winner against West Ham but the expected announcement of his new contract could have even greater significance`\
+https://nytimes.com/athletic/6275782/2025/04/14/virgil-van-dijk-liverpool-contract-goal/
+
+**A tale of two Manchesters: United's FA Cup win over City shows a growing divide**\
+`A year ago, the narratives were flipped between Manchester United and City`\
+https://nytimes.com/athletic/6276606/2025/04/14/manchester-united-women-return-to-fa-cup-final-increasing-separation-from-city/
+
+**Leicester score (twice!) to prove there is still hope to be found in desperate times**\
+`Leicester's season is almost certain to end in the misery of relegation but they plundered two moments to cherish against Brighton`\
+https://nytimes.com/athletic/6274284/2025/04/14/leicester-city-brighton-okoli-mavididi/
+
 **Trump’s Tariffs Leave No Safe Harbor for American Importers**\
 `For companies that have shifted factory production from China to other countries, the latest tariffs have undermined their strategy while sowing paralysis.`\
 https://nytimes.com/2025/04/14/business/trumps-tariffs-us-imports.html
