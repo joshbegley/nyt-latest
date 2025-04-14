@@ -1,3 +1,15 @@
+**DOGE Cuts Hobble Office That Would Aid NASA and SpaceX Mars Landings**\
+`The Astrogeology Science Center, which has helped astronauts and robots reach other worlds safely, is facing a substantial number of job reductions.`\
+https://nytimes.com/2025/04/14/science/astrogeology-mars-maps-spacex.html
+
+**U.S. Argues Meta Built a Social Media Monopoly**\
+`The tech giant went to court on Monday in an antitrust trial focused on its acquisitions of Instagram and WhatsApp. The case could reshape its business.`\
+https://nytimes.com/2025/04/14/technology/meta-antitrust-trial-ftc.html
+
+**Pete Marocco, Who Helped Gut Foreign Aid for Trump, Leaves State Department**\
+`Pete Marocco oversaw the cutting of thousands of contracts at U.S.A.I.D. and the firing of most of its roughly 10,000 workers. Aid agency employees have accused him of mismanagement.`\
+https://nytimes.com/2025/04/14/us/politics/pete-marocco-usaid-trump-state-department.html
+
 **Submit your Ohio State football questions for Cameron Teague Robinson’s mailbag**\
 `<p>Spring practice is over. The transfer portal opens Wednesday. What&#8217;s on your mind? Submit your Ohio State questions below.</p>
 `\
