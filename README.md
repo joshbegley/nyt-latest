@@ -1,3 +1,7 @@
+**What I'm hearing about the Penguins' trade plans, free agency and next season**\
+`At look at some of the Penguins' concerns — and what they're excited about — as the season comes to an end and summer becomes the focus.`\
+https://nytimes.com/athletic/6278379/2025/04/14/penguins-trades-nhl-free-agency-draft/
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>It has been a nice, quiet offseason &#8230; and then Nico happened. What should we talk about this week?</p>
 <p>Leave your questions here. Please include your city.</p>
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6276967/2025/04/14/bucks-pacers-playoffs-transition
 **Submit your NFL Draft mailbag questions for Patriots reporter Chad Graff**\
 `At long last, the 2025 NFL Draft is just over a week away. With it comes the biggest decisions of the Mike Vrabel era so far.`\
 https://nytimes.com/athletic/6278475/2025/04/14/patriots-mailbag-nfl-draft-chad-graff/
-
-**Cuomo Wins Backing of 2 Major Unions That Once Pushed Him to Resign**\
-`Former Gov. Andrew M. Cuomo’s bid for New York City mayor was endorsed by two of the city’s largest unions, Local 32BJ and the Hotel and Gaming Trades Council.`\
-https://nytimes.com/2025/04/14/nyregion/cuomo-endorsed-unions-32bj-hotels.html
 
