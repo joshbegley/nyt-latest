@@ -1,3 +1,12 @@
+**Submit your Ohio State football questions for Cameron Teague Robinson’s mailbag**\
+`<p>Spring practice is over. The transfer portal opens Wednesday. What&#8217;s on your mind? Submit your Ohio State questions below.</p>
+`\
+https://nytimes.com/athletic/6278259/2025/04/14/submit-your-ohio-state-football-questions-for-cameron-teague-robinsons-mailbag/
+
+**Kevin Campbell inquest: Hospital cleared of blame for former player's death**\
+`Campbell died from multi-organ failure on June 15 last year, aged 54 after being admitted to Manchester Royal Infirmary.`\
+https://nytimes.com/athletic/6278058/2025/04/14/kevin-campbell-inquest-no-blame/
+
 **How the Jets built the best regular-season team in the NHL**\
 `The Jets have clinched the 2025 Presidents' Trophy, cementing their status as the top regular-season team in the league. What comes next?`\
 https://nytimes.com/athletic/6275280/2025/04/14/winnipeg-jets-presidents-trophy-nhl-playoffs/
