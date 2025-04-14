@@ -1,40 +1,40 @@
-**Ecuador Re-elects Daniel Noboa**\
-`President Noboa addressed the nation as his supporters celebrated his re-election on Sunday.`\
-https://nytimes.com/video/world/americas/100000010108855/ecuador-election.html
+**A Small City That Lost Big in the Dominican Nightclub Tragedy**\
+`Haina, a city just outside the Dominican capital, lost 25 people in the Jet Set disaster, including community leaders and cultural icons.`\
+https://nytimes.com/2025/04/14/world/americas/haina-dominican-republic-nightclub.html
 
-**What We Know About the Arson Attack on the Governor’s House in Pennsylvania**\
-`Gov. Josh Shapiro was forced to evacuate with his family. The authorities have charged a man with attempted murder, arson and terrorism.`\
-https://nytimes.com/2025/04/14/us/governor-josh-shapiro-arson-attack-cody-balmer.html
+**James Carville: How to Turn Trump’s Economic Chaos Against Him**\
+`Tie the president to the people’s pain, and make the message local.`\
+https://nytimes.com/2025/04/14/opinion/trump-tariffs-economy-carville.html
 
-**China’s Leader Courts Vietnam as Trade War With the U.S. Mounts**\
-`Xi Jinping is in Southeast Asia to build bonds with countries that also face U.S. tariffs and have come under pressure from Washington to curb the transshipment of Chinese goods.`\
-https://nytimes.com/2025/04/14/world/asia/china-vietnam-tariffs-trump.html
+**Federal Work Force Prepares for Another Round of Mass Firings as Deadline Nears**\
+`The Trump administration’s drive to slash and overhaul the government, led by Elon Musk, has already led to tens of thousands of departures.`\
+https://nytimes.com/2025/04/14/us/politics/federal-workers-layoff-doge-trump.html
 
-**Blue Origin Flight Will Take 6 Women, Including Gayle King and Katy Perry, to Space**\
-`The women were set to travel on Blue Origin’s New Shepard rocket, as part of the first all-female space crew in more than 60 years.`\
-https://nytimes.com/2025/04/14/science/blue-origin-katy-perry-gayle-king.html
+**Did Derek Carr's shoulder impact Panthers' draft? What could they get for No. 8 pick?**\
+`Carolina has the No. 8 pick and New Orleans sits at No. 9. Will teams eyeing a QB come to the Panthers looking to make a deal?`\
+https://nytimes.com/athletic/6276175/2025/04/14/panthers-nfl-draft-first-round-derek-carr-saints/
 
-**How Real Madrid won as Carlo Ancelotti vaped in the stands**\
-`Led by Ancelotti's son, Madrid overcame their manager's suspension and Kylian Mbappe's red card to beat Alaves`\
-https://nytimes.com/athletic/6277317/2025/04/14/real-madrid-carlo-davide-ancelotti-mbappe/
+**Why Developers Think Child Care Is Good for Business**\
+`Placing a preschool or day care center in a building can help sell the development to the community. It also makes the city stronger.`\
+https://nytimes.com/2025/04/14/nyregion/why-developers-think-child-care-is-good-for-business.html
 
-**How a Private Health Crisis Has Loomed Over 2 Very Public Trials**\
-`Nadine Menendez’s breast cancer diagnosis has held a powerful grip on the government’s bribery case against her and her husband, Robert Menendez, New Jersey’s disgraced former senator.`\
-https://nytimes.com/2025/04/14/nyregion/nadine-menendez-breast-cancer-bribery-trial.html
+**Are My Pants Really Supposed to Drag on the Ground?**\
+`Puddle pants, or trousers with floor length, pooling hems, are everywhere right now. Our critic offers tips for wearing them without tracking dirt around with you.`\
+https://nytimes.com/2025/04/14/fashion/long-pants-puddle.html
 
-**Outdoor Dining Is Back in New York City. Sort Of.**\
-`Only a small portion of the city’s restaurants have applied for permits to set up dining structures under new regulations. Owners say the process is complex and expensive.`\
-https://nytimes.com/2025/04/14/nyregion/nyc-restaurants-outdoor-seating.html
+**This Is How Universities Can Escape Trump’s Trap, If They Dare**\
+`It’s been tried in other countries facing authoritarian crackdowns. It works.`\
+https://nytimes.com/2025/04/14/opinion/trump-higher-education.html
 
-**A History Tour, With Lessons for the Future**\
-`I wanted to write a story about the changing perceptions of the United States among Europeans. I didn’t know that I would find an example as pointed as Henri Mignon.`\
-https://nytimes.com/2025/04/14/insider/a-history-tour-with-lessons-for-the-future.html
+**How to Evade Taxes in Ancient Rome? A 1,900-Year-Old Papyrus Offers a Guide.**\
+`A manuscript discovered in the Judean desert contains trial notes on an intricate tax-evasion scheme that involved forgery, fiscal fraud and the false sale of slaves.`\
+https://nytimes.com/2025/04/14/science/archaeology-papyrus-tax-fraud-trial.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/04/14/crosswords/spelling-bee-forum.html
+**Trump to Meet President of El Salvador, Where Deportees Face Prison**\
+`Mr. Trump has found in President Nayib Bukele a willing partner in a plan to step up the removal of migrants from the United States with little or no due process.`\
+https://nytimes.com/2025/04/14/us/politics/trump-bukele-prison-deported-migrants.html
 
-**Warriors lose to Clippers, stumble into dangerous Play-In game against Grizzlies**\
-`A series of unfortunate events thwarted the Warriors' quest for the sixth seed. Instead, they'll face Ja Morant and Memphis.`\
-https://nytimes.com/athletic/6276963/2025/04/14/warriors-lose-face-grizzlies-play-in/
+**Larry Summers on Trump: ‘The First Rule of Holes Is Stop Digging’**\
+`The former treasury secretary on the president’s chaotic trade war.`\
+https://nytimes.com/2025/04/14/opinion/larry-summers-trump-trade-war.html
 
