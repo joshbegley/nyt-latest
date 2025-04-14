@@ -1,3 +1,15 @@
+**Submit your NFL Draft mailbag questions for Patriots reporter Chad Graff**\
+`At long last, the 2025 NFL Draft is just over a week away. With it comes the biggest decisions of the Mike Vrabel era so far.`\
+https://nytimes.com/athletic/6278475/2025/04/14/patriots-mailbag-nfl-draft-chad-graff/
+
+**Cuomo Wins Backing of 2 Major Unions That Once Pushed Him to Resign**\
+`Former Gov. Andrew M. Cuomo’s bid for New York City mayor was endorsed by two of the city’s largest unions, Local 32BJ and the Hotel and Gaming Trades Council.`\
+https://nytimes.com/2025/04/14/nyregion/cuomo-endorsed-unions-32bj-hotels.html
+
+**Two Postscripts on a Column**\
+`Two deeper histories on people mentioned in a recent column: a famous orator and a mother and son who survived the Holocaust.`\
+https://nytimes.com/live/2025/04/07/opinion/thepoint/sojourner-truth-america-deportations
+
 **Chelsea top spend on agent fees for 2024-25 Premier League season**\
 `Manchester City, Manchester United and Aston Villa round out the top four spenders for the period including the last two transfer windows.`\
 https://nytimes.com/athletic/6278439/2025/04/14/premier-league-agent-fees-chelsea-how-much/
@@ -11,10 +23,10 @@ https://nytimes.com/2025/04/14/business/economy/trump-semiconductor-tariffs-chin
 https://nytimes.com/2025/04/14/arts/blue-origin-lauren-sanchez-katy-perry.html
 
 **Pelicans fire executive VP David Griffin after another playoff miss**\
-`Griffin’s dismissal means the Pelicans will have a new voice in their front office as they approach a crossroads this offseason.`\
+`Willie Green will remain Pelicans coach, per a league source. However, the new Pelicans' GM will make the final decision on Green's future.`\
 https://nytimes.com/athletic/6278311/2025/04/14/pelicans-vp-david-griffin-fired/
 
-**Judge to make Team USA debut in 2026 World Baseball Classic**\
+**Aaron Judge to make Team USA debut in 2026 World Baseball Classic**\
 `Judge will take over the mantle of Team USA's captain from Mike Trout on the 2026 roster.`\
 https://nytimes.com/athletic/6276383/2025/04/14/yankees-aaron-judge-team-usa-world-baseball-classic/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6278168/2025/04/14/wnba-draft-paige-bueckers-odds-v
 **The Clippers enter the playoffs as the NBA's hottest team. The goal? 'Stay the course'**\
 `The Clippers enter the postseason having won 18 of their last 21 games.`\
 https://nytimes.com/athletic/6277766/2025/04/14/clippers-nba-playoffs-kawhi-harden/
-
-**Canucks notebook: A new Tom Willander comparable and a bleak 25-game stretch run**\
-`Could Zeev Buium's new contract with the Wild impact Vancouver's talks with Willander? `\
-https://nytimes.com/athletic/6277748/2025/04/14/canucks-tom-willander-nhl-season/
-
-**Dumbledore and Others Are Cast for ‘Harry Potter’ TV Series**\
-`John Lithgow will play the Hogwarts headmaster in the HBO show, with Paapa Essiedu filling the role of Severus Snape.`\
-https://nytimes.com/2025/04/14/arts/television/harry-potter-casting-hbo.html
-
-**Marko has 'great concern' over Verstappen's Red Bull future**\
-`Verstappen finished sixth at the Bahrain Grand Prix, more than 34 seconds behind winner Oscar Piastri.`\
-https://nytimes.com/athletic/6278331/2025/04/14/max-verstappen-red-bull-future-marko/
 
