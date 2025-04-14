@@ -1,3 +1,11 @@
+**Trump Administration Memo Proposes Cutting State Department Funding by Nearly Half**\
+`The draft plan is part of a process involving the agency and the White House. It would eliminate almost all funding for international organizations that include the United Nations and NATO.`\
+https://nytimes.com/2025/04/14/us/politics/trump-state-department-budget-cuts.html
+
+**White House to Ask Congress to Claw Back Funding From NPR and PBS**\
+`Trump administration officials want legislators to rescind $1.1 billion for the Corporation for Public Broadcasting, which provides some support for public media.`\
+https://nytimes.com/2025/04/14/business/media/trump-npr-pbs-funding.html
+
 **Suspect in Arson at Pennsylvania Governor’s Mansion Had Troubled Past**\
 `A man charged with setting fire to the residence of Gov. Josh Shapiro had faced previous charges of assaulting his family. He was arraigned on attempted murder and arson charges on Monday.`\
 https://nytimes.com/2025/04/14/us/pennsylvania-shapiro-attacker.html
