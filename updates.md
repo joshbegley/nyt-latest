@@ -1,3 +1,7 @@
+**Trump Says He Was Told Russia’s Deadly Strike Was a ‘Mistake’**\
+`It was not immediately clear what President Trump meant when he said he had been told Russia “made a mistake” with its missile strike on the Ukrainian city of Sumy.`\
+https://nytimes.com/video/world/europe/100000010109163/trump-russia-ukraine-attack.html
+
 **DOGE Cuts Hobble Office That Would Aid NASA and SpaceX Mars Landings**\
 `The Astrogeology Science Center, which has helped astronauts and robots reach other worlds safely, is facing a substantial number of job reductions.`\
 https://nytimes.com/2025/04/14/science/astrogeology-mars-maps-spacex.html
