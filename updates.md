@@ -1,3 +1,7 @@
+**Former NHLer Chris Simon had 'severe' CTE when he died**\
+`A gritty left winger, Simon fought more than 100 times and accumulated 1,824 penalty minutes as a professional.`\
+https://nytimes.com/athletic/6278639/2025/04/14/nhl-chris-simon-cte-diagnosis/
+
 **Former NHLer Chris Simon had stage 3 CTE when he died**\
 `Chris Simon, a two-time NHL All-Star who won a Stanley Cup with the Colorado Avalanche in 1996, had stage 3 chronic traumatic encephalopathy (CTE) when he died by suicide in 2024, according to a post-mortem brain tissue analysis released by his family and the Concussion Legacy Foundation (CLF) on Monday.`\
 https://nytimes.com/athletic/6278639/2025/04/14/nhl-chris-simon-cte-diagnosis/
