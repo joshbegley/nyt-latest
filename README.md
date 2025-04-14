@@ -1,3 +1,27 @@
+**Harvard Says It Will Not Comply With Trump Administration’s Demands**\
+`Federal officials said Harvard must enact “merit-based reform” in hiring and admissions, among other things. Harvard called the demands unlawful.`\
+https://nytimes.com/2025/04/14/us/harvard-trump-reject-demands.html
+
+**At Bristol, NASCAR's ongoing short-track tire conundrum takes another turn**\
+`Many expected another high-tire-wear race at Bristol on Sunday. It never materialized, and it reignited the ongoing tire debate in NASCAR.`\
+https://nytimes.com/athletic/6278611/2025/04/14/bristol-nascar-tires-wear-kyle-larson/
+
+**Bills mailbag: Submit your questions to Joe Buscaglia**\
+`Send your Bills questions to Joe Buscaglia`\
+https://nytimes.com/athletic/6278880/2025/04/14/bills-mailbag-submit-questions-joe-buscaglia/
+
+**Steelers draft visit tracker: Shemar Stewart the highest-rated player to visit so far**\
+`Keep track of every prospect who visits the Steelers' facility between now and the 2025 NFL Draft.`\
+https://nytimes.com/athletic/6181787/2025/04/14/steelers-nfl-draft-prospect-visitors-tracker/
+
+**To Fight Federal Job Cuts, Energy Experts and States Try a New Argument**\
+`In letters to multiple agencies, the focus is on how job reductions at E.P.A., Interior and other agencies would hurt President Trump’s “energy dominance” agenda.`\
+https://nytimes.com/2025/04/14/climate/federal-job-cuts-epa-interior-energy.html
+
+**Notre Dame spring game final thoughts: Non-QB risers across the roster**\
+`Saturday offered a look at where the Irish are headed into the offseason and how much deeper the roster has become under Marcus Freeman.`\
+https://nytimes.com/athletic/6278714/2025/04/14/notre-dame-spring-game-final-thoughts/
+
 **Tariff-Induced Inflation Surge May Be Temporary, Fed Official Says**\
 `Christopher J. Waller argued that the effect of tariffs on prices could be short-lived, but he warned about a bigger hit to growth.`\
 https://nytimes.com/2025/04/14/us/politics/fed-tariffs-inflation.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6278403/2025/04/14/fantasy-basketball-biggest-x-fac
 **Cuomo Announces New Housing Plan, With a Hint of ChatGPT**\
 `Former Gov. Andrew Cuomo’s 29-page housing plan included a garbled section with incomplete sentences and a link to a citation retrieved by ChatGPT.`\
 https://nytimes.com/2025/04/14/nyregion/cuomo-chatgpt-housing-ai.html
-
-**An Orange Fish With Arms and Legs, and a Song You Can’t Escape**\
-`How Steve, a French cartoon with a catchy theme song, became a TikTok star.`\
-https://nytimes.com/2025/04/14/style/le-poisson-steve-tiktok.html
-
-**Watch: Can the Warriors bounce back in the Play-In Tournament?**\
-`"NBA Daily" discusses the Golden State Warriors’ chances against the Memphis Grizzlies in the Play-In Tournament.`\
-https://nytimes.com/athletic/6277961/2025/04/14/warriors-play-in-tournament-nba-daily/
-
-**Expelled From the Navy: 381 Banned Books**\
-`Readers object to the Naval Academy’s removal of books from its library. Also: Measles vaccines; cutting the E.P.A.; a cost to farmers; a plea to our leaders.`\
-https://nytimes.com/2025/04/14/opinion/navy-banned-books.html
-
-**Map: 5.2-Magnitude Earthquake Strikes Southern California**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/04/14/us/southern-california-earthquake.html
-
-**Submit a question for Jordan Bianchi's NASCAR mailbag**\
-`If you have a question for NASCAR reporter Jordan Bianchi's mailbag, submit it here.`\
-https://nytimes.com/athletic/6278790/2025/04/14/submit-a-question-for-jordan-bianchis-latest-nascar-mailbag-2/
-
-**Orban Escalates Culture War in Hungary by Mandating Two Genders Only**\
-`The governing Fidesz party passed a constitutional amendment stating that all Hungarians are either male or female, and another protecting the “moral development” of children.`\
-https://nytimes.com/2025/04/14/world/europe/hungary-two-genders-constitution.html
 
