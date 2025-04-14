@@ -1,3 +1,19 @@
+**Trump’s Tariffs Leave No Safe Harbor for American Importers**\
+`For companies that have shifted factory production from China to other countries, the latest tariffs have undermined their strategy while sowing paralysis.`\
+https://nytimes.com/2025/04/14/business/trumps-tariffs-us-imports.html
+
+**Rewiring Britain for an Era of Clean Energy**\
+`National Grid, which owns the high-voltage electricity grid in England and Wales, is rebuilding it in a government-backed drive to attract investment and tackle climate change.`\
+https://nytimes.com/2025/04/14/business/energy-environment/britain-clean-energy-national-grid.html
+
+**Connections: Sports Edition Coach: Hints for April 14, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6277209/2025/04/14/connections-sports-edition-hints-for-april-14-2025/
+
+**The Musicians Who Knew a Malian Rock Star Pay Tribute to His Legacy**\
+`Amadou Bagayoko and his wife, the singer Mariam Doumbia, rose from icons in Mali to international success over the last two decades. After Mr. Bagayoko’s death, those who knew him chose a few of their favorite songs.`\
+https://nytimes.com/2025/04/14/world/africa/amadou-mariam-bagayoko-songs.html
+
 **N.Y.C. Helicopter Company Shuts Operations After Deadly Crash, F.A.A. Says**\
 `All six people on board the craft, operated by New York Helicopter Tours, died when it crashed into the Hudson River on Thursday.`\
 https://nytimes.com/2025/04/13/nyregion/ny-helicopter-tours-shut-down.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/04/13/arts/television/the-last-of-us-season-2-premiere-
 **Rory McIlroy 'has his masterpiece,' and CBS can celebrate a memorable broadcast**\
 `"We wanted the fans at home to react like we would in the truck," said Sellers Shy, the lead producer of the event for CBS Sports.`\
 https://nytimes.com/athletic/6277061/2025/04/13/rory-mcilroy-wins-masters-cbs-memorable-broadcast/
-
-**Ecuador’s President Wins Re-Election in Nation Rocked by Drug Violence**\
-`In a divisive election season, Daniel Noboa pledged to bring law and order. His opponent immediately contested the results.`\
-https://nytimes.com/2025/04/13/world/americas/ecuador-election.html
-
-**Quotation of the Day: A Bunch of Penny Pinchers Banking Big League Money**\
-`Quotation of the Day for Monday, April 14, 2025.`\
-https://nytimes.com/2025/04/13/pageoneplus/quotation-of-the-day-a-bunch-of-penny-pinchers-banking-big-league-money.html
-
-**Greaves keeps rolling, Fantilli keeps scoring in crucial win for Blue Jackets**\
-`The Blue Jackets won the second game of a back-to-back for the first time all season.`\
-https://nytimes.com/athletic/6277367/2025/04/13/blue-jackets-jet-greaves-fantilli-capitals/
-
-**Farewell to the Last Writer of the Latin American Boom**\
-`The Peruvian author Mario Vargas Llosa was the world’s savviest and most accomplished political novelist.`\
-https://nytimes.com/2025/04/13/books/review/mario-vargas-llosa-appraisal.html
 
