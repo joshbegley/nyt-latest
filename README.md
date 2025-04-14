@@ -1,3 +1,7 @@
+**Yohe's 10 observations: Penguins lose and, along the way, may have helped draft pick slot**\
+`The Penguins lost 4-1 to the Bruins on Sunday but may have won in a different way.`\
+https://nytimes.com/athletic/6276211/2025/04/13/penguins-bruins-nhl-draft-lottery-pick/
+
 **Maple Leafs report cards: Unexceptional but patient effort holds off Carolina comeback**\
 `Craig Berube will be happy with the Leafs' team defence as they held off the Hurricanes while resting some of the blue line.`\
 https://nytimes.com/athletic/6276702/2025/04/13/maple-leafs-report-cards-holmberg-woll-defence/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6276999/2025/04/13/nba-regular-season-final-day-pla
 **U.S. Renews Opposition to Bringing Back Maryland Man Wrongly Deported to El Salvador**\
 `The Justice Department’s latest legal filing asserted that courts cannot direct President Trump’s foreign policy by forcing the return of a man unlawfully sent to a Salvadoran prison.`\
 https://nytimes.com/2025/04/13/us/politics/trump-courts-deportation-el-salvador.html
-
-**Rory McIlroy wins the Masters in dramatic playoff, completes career Grand Slam**\
-`McIlroy's 4-foot birdie putt on the first playoff hole beat Justin Rose, the Northern Irishman falling to his knees in an emotional moment.`\
-https://nytimes.com/athletic/6276762/2025/04/13/rory-mcilroy-wins-masters-2025-augusta/
 
