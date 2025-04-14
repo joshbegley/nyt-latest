@@ -1,3 +1,7 @@
+**Early NHL free agent big board: The 15 top UFA targets to watch this offseason**\
+`From Mitch Marner and Sam Bennett to the top defensemen and thin goalie market, here are the players to keep an eye on this summer.`\
+https://nytimes.com/athletic/6272500/2025/04/14/nhl-free-agency-rankings-big-board-2025/
+
 **Cardinals takeaways: Evaluating 3 pitching performances from series win over Phillies**\
 `As St. Louis rides the highs and lows of the early season, its starting rotation is one of the areas under the most scrutiny.`\
 https://nytimes.com/athletic/6276367/2025/04/14/cardinals-takeaways-series-win-phillies/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6276737/2025/04/14/cowboys-nfl-draft-first-round-re
 **Four possible solutions to stop the Nico Iamaleava situation from repeating itself**\
 `The Iamaleava news could be a flashpoint that results in action, or it could be just another in a long list of headaches for college sports.`\
 https://nytimes.com/athletic/6276273/2025/04/14/nico-iamaleava-tennessee-dispute/
-
-**What a blind résumé test can tell us about the Guardians**\
-`Early numbers might not tell the whole story for several Guardians.`\
-https://nytimes.com/athletic/6273678/2025/04/14/cleveland-gaurdians-blind-resume-test/
 
