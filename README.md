@@ -1,3 +1,15 @@
+**Ducks sign NCAA free agent Tim Washe fresh off national championship run**\
+`Western Michigan star Alex Bump calls his teammate “the most reliable (center) in college hockey."`\
+https://nytimes.com/athletic/6271084/2025/04/14/ducks-free-agent-tim-washe/
+
+**How to watch the 2025 WNBA Draft: Paige Bueckers expected to go first to Dallas**\
+`Monday night's draft commences the 2025 WNBA campaign, which comes on the heels of an all-time wild offseason.`\
+https://nytimes.com/athletic/6278837/2025/04/14/wnba-draft-2025-paige-bueckers-how-to-watch/
+
+**Older People Seeking Care for Cannabis Use at Greater Risk for Dementia**\
+`Users needing emergency care or hospitalization were at much greater risk of later dementia, researchers reported. That does not prove cannabis was the cause.`\
+https://nytimes.com/2025/04/14/health/cannabis-marijuana-dementia.html
+
 **Asparagus Dresses Up for This Springy Dinner Party**\
 `Drape those stalks with beets, herbs and a little egg, then follow it all up with a luxurious lamb braise and stunning lemon cake.`\
 https://nytimes.com/2025/04/14/dining/spring-menu-lamb-asparagus-lemon-cake.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6278611/2025/04/14/bristol-nascar-tires-wear-kyle-l
 **Bills mailbag: Submit your questions to Joe Buscaglia**\
 `Send your Bills questions to Joe Buscaglia`\
 https://nytimes.com/athletic/6278880/2025/04/14/bills-mailbag-submit-questions-joe-buscaglia/
-
-**Steelers draft visit tracker: Shemar Stewart the highest-rated player to visit so far**\
-`Keep track of every prospect who visits the Steelers' facility between now and the 2025 NFL Draft.`\
-https://nytimes.com/athletic/6181787/2025/04/14/steelers-nfl-draft-prospect-visitors-tracker/
-
-**To Fight Federal Job Cuts, Energy Experts and States Try a New Argument**\
-`In letters to multiple agencies, the focus is on how job reductions at E.P.A., Interior and other agencies would hurt President Trump’s “energy dominance” agenda.`\
-https://nytimes.com/2025/04/14/climate/federal-job-cuts-epa-interior-energy.html
-
-**Notre Dame spring game final thoughts: Non-QB risers across the roster**\
-`Saturday offered a look at where the Irish are headed into the offseason and how much deeper the roster has become under Marcus Freeman.`\
-https://nytimes.com/athletic/6278714/2025/04/14/notre-dame-spring-game-final-thoughts/
 
