@@ -1,3 +1,7 @@
+**El Salvador Won’t Return Wrongly Deported Man**\
+`Also, Harvard said it would not comply with Trump’s demands.`\
+https://nytimes.com/2025/04/14/briefing/el-salvador-deportations-harvard-university-trump.html
+
 **Brad Holland’s Disruptive Vision**\
 `His work pushed the boundaries of political cartoons, expanding the possibilities of illustration everywhere.`\
 https://nytimes.com/2025/04/14/arts/brad-holland-illustrations.html
