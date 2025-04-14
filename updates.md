@@ -1,15 +1,3 @@
-**The Trail Blazers are excited about finally being mediocre. Here's why**\
-`The Blazers saw a 15-win improvement but still must find a star and deal with dead-weight contracts while hoping their youth develops.`\
-https://nytimes.com/athletic/6276928/2025/04/13/trail-blazers-contract-extensions-nba-offseason/
-
-**Teenager Charged With Killing Mother and Stepfather in a Plan to Assassinate Trump**\
-`A Wisconsin teenager was arrested last month on several charges, including two counts of first-degree murder. Federal investigators said he had a broader plot to kill the president.`\
-https://nytimes.com/2025/04/13/us/politics/wisconsin-teen-trump-assassination-plot.html
-
-**Yankees takeaways: Carlos Rodón underwhelms with Gerrit Cole out, Jazz Chisholm Jr. freezes**\
-`The Yankees had a two-run lead, but it evaporated in New York's 5-4 loss to the San Francisco Giants on Sunday at Yankee Stadium.`\
-https://nytimes.com/athletic/6276916/2025/04/13/yankees-lose-giants-carlos-rodon-jazz-chisholm-jr/
-
 **Daryl Morey admits 76ers came up short, again: 'We know we've let you down'**\
 `The 76ers finished a horrendous season with 58 losses, and what was left of Philly's roster fell 122-102 to the Chicago Bulls on Sunday.`\
 https://nytimes.com/athletic/6276310/2025/04/13/daryl-morey-76ers-season-woes/
@@ -37,4 +25,16 @@ https://nytimes.com/athletic/6276915/2025/04/13/spurs-victor-wembanyama-blood-cl
 **Nighttime Problem**\
 `Ken Cohen and Stacy Cooper make their New York Times Crossword debuts.`\
 https://nytimes.com/2025/04/13/crosswords/daily-puzzle-2025-04-14.html
+
+**Israeli Strike Heavily Damages One of Gaza’s Last Major Hospitals**\
+`No one was killed in the attack on the Ahli Arab Hospital, but a child being treated for a head injury died from the rushed evacuation, according to the Anglican Church in Jerusalem, which oversees the medical center.`\
+https://nytimes.com/video/world/middleeast/100000010108438/gaza-city-hospital-israeli-airstrike.html
+
+**Cubs' Justin Steele to have season-ending surgery on elbow, forearm**\
+`The Cubs do not have a way to immediately and seamlessly replace Steele, who underwent Tommy John surgery in 2017.`\
+https://nytimes.com/athletic/6276721/2025/04/13/cubs-justin-steele-injury-elbow-surgery/
+
+**Explosion in Austin Damages 24 Houses and Injures 6 People**\
+`The cause of the enormous explosion at a house on Sunday, which could be heard miles away, was not immediately known. Officials described it as an “isolated incident.”`\
+https://nytimes.com/2025/04/13/us/austin-house-explosion.html
 
