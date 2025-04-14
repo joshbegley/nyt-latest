@@ -1,3 +1,19 @@
+**Trump’s Tariffs Leave No Safe Harbor for American Importers**\
+`For companies that have shifted factory production from China to other countries, the latest tariffs have undermined their strategy while sowing paralysis.`\
+https://nytimes.com/2025/04/14/business/trumps-tariffs-us-imports.html
+
+**Rewiring Britain for an Era of Clean Energy**\
+`National Grid, which owns the high-voltage electricity grid in England and Wales, is rebuilding it in a government-backed drive to attract investment and tackle climate change.`\
+https://nytimes.com/2025/04/14/business/energy-environment/britain-clean-energy-national-grid.html
+
+**Connections: Sports Edition Coach: Hints for April 14, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6277209/2025/04/14/connections-sports-edition-hints-for-april-14-2025/
+
+**The Musicians Who Knew a Malian Rock Star Pay Tribute to His Legacy**\
+`Amadou Bagayoko and his wife, the singer Mariam Doumbia, rose from icons in Mali to international success over the last two decades. After Mr. Bagayoko’s death, those who knew him chose a few of their favorite songs.`\
+https://nytimes.com/2025/04/14/world/africa/amadou-mariam-bagayoko-songs.html
+
 **N.Y.C. Helicopter Company Shuts Operations After Deadly Crash, F.A.A. Says**\
 `All six people on board the craft, operated by New York Helicopter Tours, died when it crashed into the Hudson River on Thursday.`\
 https://nytimes.com/2025/04/13/nyregion/ny-helicopter-tours-shut-down.html
