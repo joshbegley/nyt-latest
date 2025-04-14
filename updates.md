@@ -1,3 +1,19 @@
+**How a Private Health Crisis Has Loomed Over 2 Very Public Trials**\
+`Nadine Menendez’s breast cancer diagnosis has held a powerful grip on the government’s bribery case against her and her husband, Robert Menendez, New Jersey’s disgraced former senator.`\
+https://nytimes.com/2025/04/14/nyregion/nadine-menendez-breast-cancer-bribery-trial.html
+
+**Outdoor Dining Is Back in New York City. Sort Of.**\
+`Only a small portion of the city’s restaurants have applied for permits to set up dining structures under new regulations. Owners say the process is complex and expensive.`\
+https://nytimes.com/2025/04/14/nyregion/nyc-restaurants-outdoor-seating.html
+
+**A History Tour, With Lessons for the Future**\
+`I wanted to write a story about the changing perceptions of the United States among Europeans. I didn’t know that I would find an example as pointed as Henri Mignon.`\
+https://nytimes.com/2025/04/14/insider/a-history-tour-with-lessons-for-the-future.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/04/14/crosswords/spelling-bee-forum.html
+
 **Warriors lose to Clippers, stumble into dangerous Play-In game against Grizzlies**\
 `A series of unfortunate events thwarted the Warriors' quest for the sixth seed. Instead, they'll face Ja Morant and Memphis.`\
 https://nytimes.com/athletic/6276963/2025/04/14/warriors-lose-face-grizzlies-play-in/
