@@ -1,3 +1,7 @@
+**Easter Desserts Anyone Can Make**\
+`Mix up chocolate treats in minutes or build a cake over a few hours with these smart tips.`\
+https://nytimes.com/2025/04/14/dining/easter-cakes.html
+
 **Oilers' Mattias Ekholm ruled out for first-round matchup vs. Kings**\
 `Losing top defenceman is a big blow for Edmonton, but the team did get some positive news on the injury front.`\
 https://nytimes.com/athletic/6279213/2025/04/14/oilers-mattias-ekholm-ruled-out-for-first-round-kings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6278918/2025/04/14/maxx-crosby-eastern-michigan-ass
 **Villa working to close deal to sign midfielder Nypan**\
 `18-year-old Nypan, who has been a target for the likes of Arsenal and Girona, opted against leaving Rosenborg in January.`\
 https://nytimes.com/athletic/6279156/2025/04/14/nypan-transfer-update-aston-villa-arsenal/
-
-**Vladimir Guerrero Jr. becomes Blue Jay for life, cementing legacy in Canada**\
-`You could not miss the symbolism Monday: This is truly Guerrero's house.`\
-https://nytimes.com/athletic/6275053/2025/04/14/vladimir-guerrero-jr-contract-extension-toronto-blue-jays/
 
