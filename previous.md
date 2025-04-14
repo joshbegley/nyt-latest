@@ -1,3 +1,15 @@
+**Bills mock draft: Which players are most appealing a week before the NFL Draft**\
+`There's not much time before the Bills will need to make their picks.`\
+https://nytimes.com/athletic/6273291/2025/04/14/buffalo-bills-mock-draft-nfl-2025-prospects/
+
+**Browns QB tracker: The 4 passers Cleveland should consider in NFL Draft**\
+`Which rookie passer will join Joe Flacco and Kenny Pickett in Cleveland's QB room? We list them in order of most likely to least likely. `\
+https://nytimes.com/athletic/6276013/2025/04/14/browns-quarterback-tracker-nfl-draft/
+
+**The New York Times International Edition in Print for Tuesday, April 15, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/04/14/todays-new-york-times-international-edition
+
 **In Ukraine, Porn Is Illegal. So Why Are Its Creators Paying Taxes?**\
 `Ukraine makes tax revenue off the creators of pornographic content, but also threatens them with prosecution. A draft law aims to fix what many say is an unfair contradiction.`\
 https://nytimes.com/2025/04/14/world/europe/ukraine-pornography-onlyfans.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/14/nyregion/why-developers-think-child-care-is-good-
 **Are My Pants Really Supposed to Drag on the Ground?**\
 `Puddle pants, or trousers with floor length, pooling hems, are everywhere right now. Our critic offers tips for wearing them without tracking dirt around with you.`\
 https://nytimes.com/2025/04/14/fashion/long-pants-puddle.html
-
-**This Is How Universities Can Escape Trump’s Trap, If They Dare**\
-`It’s been tried in other countries facing authoritarian crackdowns. It works.`\
-https://nytimes.com/2025/04/14/opinion/trump-higher-education.html
-
-**How to Evade Taxes in Ancient Rome? A 1,900-Year-Old Papyrus Offers a Guide.**\
-`A manuscript discovered in the Judean desert contains trial notes on an intricate tax-evasion scheme that involved forgery, fiscal fraud and the false sale of slaves.`\
-https://nytimes.com/2025/04/14/science/archaeology-papyrus-tax-fraud-trial.html
-
-**Trump to Meet President of El Salvador, Where Deportees Face Prison**\
-`Mr. Trump has found in President Nayib Bukele a willing partner in a plan to step up the removal of migrants from the United States with little or no due process.`\
-https://nytimes.com/2025/04/14/us/politics/trump-bukele-prison-deported-migrants.html
 
