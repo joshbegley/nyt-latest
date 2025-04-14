@@ -1,3 +1,11 @@
+**Asparagus Dresses Up for This Springy Dinner Party**\
+`Drape those stalks with beets, herbs and a little egg, then follow it all up with a luxurious lamb braise and stunning lemon cake.`\
+https://nytimes.com/2025/04/14/dining/spring-menu-lamb-asparagus-lemon-cake.html
+
+**When will Masters champion Rory McIlroy return to the PGA Tour?**\
+`McIlroy is likely to play in the Zurich Classic in New Orleans from April 24-27.`\
+https://nytimes.com/athletic/6278915/2025/04/14/masters-champion-rory-mcilroy-pga-tour-return-golf/
+
 **Blue Origin Launches All-Female Celebrity Crew into Space**\
 `The first all-female space crew in more than 60 years included six celebrity women in a 10-minute flight on Blue Origin’s New Shepard rocket, the latest launch in the wave of growing space tourism.`\
 https://nytimes.com/video/science/space/100000010109285/blue-origin-launches-female-celebrity-space-crew.html
