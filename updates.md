@@ -1,3 +1,15 @@
+**Questions for The Morning**\
+`What’s on your mind?`\
+https://nytimes.com/2025/04/14/briefing/questions-for-the-morning.html
+
+**5 Migrants Assumed Dead After Boat Capsizes Off Florida Coast**\
+`One person died and four others were rescued on Sunday, two days after the boat capsized off the state’s Atlantic coast, the authorities said.`\
+https://nytimes.com/2025/04/14/us/florida-boat-capsize-coast-guard.html
+
+**Easter Desserts Anyone Can Make**\
+`Mix up chocolate treats in minutes or build a cake over a few hours with these smart tips.`\
+https://nytimes.com/2025/04/14/dining/easter-desserts-cakes.html
+
 **Oilers' Mattias Ekholm ruled out for first-round matchup vs. Kings**\
 `Losing top defenceman is a big blow for Edmonton, but the team did get some positive news on the injury front.`\
 https://nytimes.com/athletic/6279213/2025/04/14/oilers-mattias-ekholm-ruled-out-for-first-round-kings/
