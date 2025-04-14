@@ -1,3 +1,7 @@
+**Tiger Woods, Gary Player welcome Rory McIlroy to Grand Slam club after Masters win**\
+`McIlroy is the sixth Grand Slam winner in men's golf history, joining Woods as the only two men to achieve the feat since 1966.`\
+https://nytimes.com/athletic/6278353/2025/04/14/rory-mcilroy-tiger-woods-masters-win-congratulation-posts/
+
 **Republicans Ponder the Unthinkable: Taxing the Rich**\
 `The idea of raising taxes on rich Americans has caught the Republican Party between its populist ambitions and low-tax instincts.`\
 https://nytimes.com/2025/04/14/business/tax-hike-republicans-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/14/arts/blue-origin-lauren-sanchez-katy-perry.html
 **Pelicans fire executive VP David Griffin after another playoff miss**\
 `Green will remain coach, per a league source. However, the Pelicans' new lead executive will make the final decision on Green's future.`\
 https://nytimes.com/athletic/6278311/2025/04/14/pelicans-vp-david-griffin-fired/
-
-**Aaron Judge to make Team USA debut in 2026 World Baseball Classic**\
-`Judge will take over the mantle of Team USA's captain from Mike Trout on the 2026 roster.`\
-https://nytimes.com/athletic/6276383/2025/04/14/yankees-aaron-judge-team-usa-world-baseball-classic/
 

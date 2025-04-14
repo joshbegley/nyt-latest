@@ -1,3 +1,7 @@
+**Republicans Ponder the Unthinkable: Taxing the Rich**\
+`The idea of raising taxes on rich Americans has caught the Republican Party between its populist ambitions and low-tax instincts.`\
+https://nytimes.com/2025/04/14/business/tax-hike-republicans-trump.html
+
 **Bucks can’t get lost in transition against the Pacers if they want to stay in the playoffs**\
 `The Bucks can't have momentary lapses in fast break defense, even for a few possessions, in their first-round series against the Pacers.`\
 https://nytimes.com/athletic/6276967/2025/04/14/bucks-pacers-playoffs-transition-defense/
