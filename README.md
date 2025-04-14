@@ -1,3 +1,7 @@
+**Farewell to the Last Writer of the Latin American Boom**\
+`The Peruvian author Mario Vargas Llosa was the world’s savviest and most accomplished political novelist.`\
+https://nytimes.com/2025/04/13/books/review/mario-vargas-llosa-appraisal.html
+
 **Gotham FC's Midge Purce returns, Esther scores twice in win over Courage**\
 `With Purce's return, how will head coach Juan Carlos Amorós reshape his starting XI?`\
 https://nytimes.com/athletic/6277415/2025/04/13/gotham-midge-purce-return-win-nwsl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6277123/2025/04/13/bruins-elias-lindholm-david-past
 **Bears, Kyler Gordon agree to 3-year, $40 million extension**\
 `Gordon has established himself as one of the game’s best slot corners, and this contract is paying him that way.`\
 https://nytimes.com/athletic/6277179/2025/04/13/kyler-gordon-bears-extension/
-
-**Braves takeaways: Chris Sale frustrated; Spencer Strider and Alex Verdugo coming soon**\
-`In Sale's past two starts, he’s given up 15 hits and nine runs (eight earned) in nine innings. The offense isn't helping him.`\
-https://nytimes.com/athletic/6277046/2025/04/13/atlanta-braves-chris-sale-spencer-strider/
 
