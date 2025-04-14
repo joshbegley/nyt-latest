@@ -1,3 +1,7 @@
+**This Week in Mets: Three early thoughts for the first 15 games**\
+`The Mets are winning, even when their purported strength — their offense — has been in a bit of a slump.`\
+https://nytimes.com/athletic/6277444/2025/04/14/this-week-in-mets-three-early-thoughts/
+
 **Joe Mazzulla says Celtics' great regular season doesn't matter with playoffs here**\
 `"The season goes by fast, but it’s been fun so far,” Jayson Tatum said as the Celtics prepare for the playoffs. `\
 https://nytimes.com/athletic/6276995/2025/04/14/boston-celtics-nba-playoffs-joe-mazzulla/
