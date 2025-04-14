@@ -1,3 +1,7 @@
+**Kyle Larson's Bristol win a fitting tribute to late Hendrick PR director Jon Edwards**\
+`Kyle Larson dedicated Sunday's win to the late Jon Edwards, whose smiling face rode on the side of the No. 5 car and a handful of others.`\
+https://nytimes.com/athletic/6277421/2025/04/14/kyle-larson-bristol-win-jon-edwards-hendrick-nascar/
+
 **Trump Describes Russia’s Deadly Strike on Ukrainian City as ‘Horrible’**\
 `At least 34 people were killed in the attack on Sumy, which came as Ukraine’s leader urged President Trump to come witness the realities of war firsthand.`\
 https://nytimes.com/2025/04/14/world/europe/trump-ukraine-sumy-russia-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/14/business/dealbook/corporate-gloom-trump-tariffs.h
 **Why Europe Fears a Flood of Cheap Goods From China**\
 `President Trump’s tariffs on China could lead to a hazardous scenario for European countries: the dumping of artificially cheap products that would undermine local industries.`\
 https://nytimes.com/2025/04/14/world/europe/europe-china-dumping-tariffs.html
-
-**How Jackson LaCombe leapfrogged others to become the Ducks' No. 1 defenseman**\
-`On an Anaheim team with plenty of talented blueliners, LaCombe made a statement this season.`\
-https://nytimes.com/athletic/6277048/2025/04/14/jackson-lacombe-ducks-defense/
 
