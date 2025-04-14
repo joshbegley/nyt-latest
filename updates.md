@@ -1,3 +1,7 @@
+**What I'm hearing about the Penguins' trade plans, free agency and next season**\
+`At look at some of the Penguins' concerns — and what they're excited about — as the season comes to an end and summer becomes the focus.`\
+https://nytimes.com/athletic/6278379/2025/04/14/penguins-trades-nhl-free-agency-draft/
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>It has been a nice, quiet offseason &#8230; and then Nico happened. What should we talk about this week?</p>
 <p>Leave your questions here. Please include your city.</p>
