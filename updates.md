@@ -1,3 +1,7 @@
+**Warriors lose to Clippers, stumble into dangerous Play-In game against Grizzlies**\
+`A series of unfortunate events thwarted the Warriors' quest for the sixth seed. Instead, they'll face Ja Morant and Memphis.`\
+https://nytimes.com/athletic/6276963/2025/04/14/warriors-lose-face-grizzlies-play-in/
+
 **Word of the Day: vermilion**\
 `This word has appeared in 24 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/04/14/learning/word-of-the-day-vermilion.html

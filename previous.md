@@ -1,3 +1,7 @@
+**Warriors lose to Clippers, stumble into dangerous Play-In game against Grizzlies**\
+`A series of unfortunate events thwarted the Warriors' quest for the sixth seed. Instead, they'll face Ja Morant and Memphis.`\
+https://nytimes.com/athletic/6276963/2025/04/14/warriors-lose-face-grizzlies-play-in/
+
 **Word of the Day: vermilion**\
 `This word has appeared in 24 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/04/14/learning/word-of-the-day-vermilion.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6276224/2025/04/14/wolves-tottenham-strand-larsen/
 **Declan Rice's surges upfield have long-awaited shades of Yaya Toure**\
 `Rice taking flight against Brentford was reminiscent of a midfielder he has openly idolised since his West Ham days`\
 https://nytimes.com/athletic/6274756/2025/04/14/declan-rice-yaya-toure/
-
-**European qualification will be key for Brighton if Mitoma is a wanted man again this summer**\
-`Brighton rejected two bids for Mitoma in January. Their ability to resist further interest in the summer may rest on their European status`\
-https://nytimes.com/athletic/6274348/2025/04/14/brighton-kaoru-mitoma-future-europe/
 
