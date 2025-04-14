@@ -1,3 +1,11 @@
+**Javier Mascherano 'can't tell' whether Lionel Messi will play World Cup**\
+`Messi's friend and Inter Miami coach still isn't sure whether the superstar will make it to one last World Cup.`\
+https://nytimes.com/athletic/6277506/2025/04/13/messi-world-cup-mascherano-inter-miami/
+
+**‘The Last of Us’ Season 2, Episode 1: Meanwhile, Back at the Ranch**\
+`It seems this season will be driven by one simple idea: that when Joel saved Ellie at the end of Season 1 and then lied to her, he made a mess.`\
+https://nytimes.com/2025/04/13/arts/television/the-last-of-us-season-2-premiere-recap.html
+
 **Rory McIlroy 'has his masterpiece,' and CBS can celebrate a memorable broadcast**\
 `"We wanted the fans at home to react like we would in the truck," said Sellers Shy, the lead producer of the event for CBS Sports.`\
 https://nytimes.com/athletic/6277061/2025/04/13/rory-mcilroy-wins-masters-cbs-memorable-broadcast/
