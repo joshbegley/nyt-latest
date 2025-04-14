@@ -1,3 +1,7 @@
+**The Pulse: Rory's tears win the day**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6277364/2025/04/14/rory-mcilroy-masters-the-pulse/
+
 **This Week in Mets: Three early thoughts for the first 15 games**\
 `The Mets are winning, even when their purported strength — their offense — has been in a bit of a slump.`\
 https://nytimes.com/athletic/6277444/2025/04/14/this-week-in-mets-three-early-thoughts/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6274650/2025/04/14/packers-nfl-wide-receiver-first-
 **At last, Rory McIlroy has his seat at the table**\
 `Catharsis, thy name is Rory.`\
 https://nytimes.com/athletic/6277429/2025/04/14/rory-mcilroy-masters-green-jacket/
-
-**2025 NFL Draft QB matchmaker: What are best fits for Cam Ward, Shedeur Sanders, others?**\
-`Which teams should select each of the top 10 QB prospects in this year's draft? We take a shot at finding ideal landing spots.`\
-https://nytimes.com/athletic/6272307/2025/04/14/nfl-draft-2025-quarterbacks-best-fits/
 
