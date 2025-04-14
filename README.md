@@ -1,3 +1,11 @@
+**Former NHLer Chris Simon had stage 3 CTE when he died**\
+`Chris Simon, a two-time NHL All-Star who won a Stanley Cup with the Colorado Avalanche in 1996, had stage 3 chronic traumatic encephalopathy (CTE) when he died by suicide in 2024, according to a post-mortem brain tissue analysis released by his family and the Concussion Legacy Foundation (CLF) on Monday.`\
+https://nytimes.com/athletic/6278639/2025/04/14/nhl-chris-simon-cte-diagnosis/
+
+**Paolo Banchero, Stephon Castle and more X-factors for fantasy basketball 2025-26**\
+`Eric Wong identifies his top players, including Orlando's Paolo Banchero, who could make or break you in fantasy basketball next season.`\
+https://nytimes.com/athletic/6278403/2025/04/14/fantasy-basketball-biggest-x-factors-2025-26/
+
 **Cuomo Announces New Housing Plan, With a Hint of ChatGPT**\
 `Former Gov. Andrew Cuomo’s 29-page housing plan included a garbled section with incomplete sentences and a link to a citation retrieved by ChatGPT.`\
 https://nytimes.com/2025/04/14/nyregion/cuomo-chatgpt-housing-ai.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/14/world/europe/hungary-two-genders-constitution.htm
 **Former Sheriff’s Deputy Is Sentenced to 3 Years in Killing of Colorado Man**\
 `Andrew Buen was found guilty of criminally negligent homicide in February in the 2022 killing of Christian Glass, who was experiencing a mental health crisis on a mountain road.`\
 https://nytimes.com/2025/04/14/us/colorado-deputy-christian-glass-sentencing.html
-
-**Scoop City: Re-drafting No. 1 picks from 2010 to 2020**\
-`We're redrafting No. 1 picks from 2010 to 2020, explaining New Orleans' QB situation and Caleb Williams' first impressions of Ben Johnson`\
-https://nytimes.com/athletic/6278736/2025/04/14/redrafting-nfl-2010-2020-draft-pick-history-scoop-city/
-
-**Mark Zuckerberg Is Back in the Hot Seat in a Crucial Trial**\
-`Mark Zuckerberg has appeared before Congress more times than any other tech leader.`\
-https://nytimes.com/video/business/100000010103020/mark-zuckerberg-is-back-in-the-hot-seat-in-a-crucial-trial.html
 

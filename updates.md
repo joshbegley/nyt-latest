@@ -1,3 +1,27 @@
+**Cuomo Announces New Housing Plan, With a Hint of ChatGPT**\
+`Former Gov. Andrew Cuomo’s 29-page housing plan included a garbled section with incomplete sentences and a link to a citation retrieved by ChatGPT.`\
+https://nytimes.com/2025/04/14/nyregion/cuomo-chatgpt-housing-ai.html
+
+**An Orange Fish With Arms and Legs, and a Song You Can’t Escape**\
+`How Steve, a French cartoon with a catchy theme song, became a TikTok star.`\
+https://nytimes.com/2025/04/14/style/le-poisson-steve-tiktok.html
+
+**Watch: Can the Warriors bounce back in the Play-In Tournament?**\
+`"NBA Daily" discusses the Golden State Warriors’ chances against the Memphis Grizzlies in the Play-In Tournament.`\
+https://nytimes.com/athletic/6277961/2025/04/14/warriors-play-in-tournament-nba-daily/
+
+**Expelled From the Navy: 381 Banned Books**\
+`Readers object to the Naval Academy’s removal of books from its library. Also: Measles vaccines; cutting the E.P.A.; a cost to farmers; a plea to our leaders.`\
+https://nytimes.com/2025/04/14/opinion/navy-banned-books.html
+
+**Map: 5.2-Magnitude Earthquake Strikes Southern California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/04/14/us/southern-california-earthquake.html
+
+**Submit a question for Jordan Bianchi's NASCAR mailbag**\
+`If you have a question for NASCAR reporter Jordan Bianchi's mailbag, submit it here.`\
+https://nytimes.com/athletic/6278790/2025/04/14/submit-a-question-for-jordan-bianchis-latest-nascar-mailbag-2/
+
 **Champions League quarter-final best bets: Can Villa and Dortmund turn the tide?**\
 `Brett Koremenos outlines the best bets for Tuesday’s Champions League quarter-final second-legs.
 `\
