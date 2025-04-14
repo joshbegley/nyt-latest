@@ -1,3 +1,11 @@
+**Oilers' Mattias Ekholm ruled out for first-round matchup vs. Kings**\
+`Losing top defenceman is a big blow for Edmonton, but the team did get some positive news on the injury front.`\
+https://nytimes.com/athletic/6279213/2025/04/14/oilers-mattias-ekholm-ruled-out-for-first-round-kings/
+
+**Sverre Nypan is the mighty Norway prospect Aston Villa hope to sign**\
+`All you need to know about Sverre Nypan`\
+https://nytimes.com/athletic/6279214/2025/04/14/sverre-nypan-transfer/
+
 **Rory McIlroy's Masters win pays off for bettors to chagrin of sportsbooks**\
 `Rory's big win at the Masters was a tough pill to swallow for the sportsbooks, but bettors were smiling after his historic victory.`\
 https://nytimes.com/athletic/6278727/2025/04/14/rory-mcilroy-masters-win-good-for-bettors/
@@ -10,7 +18,7 @@ https://nytimes.com/live/2025/04/07/opinion/thepoint/china-tiktok-luxury-goods-m
 `In 13 seasons, Peterson recorded 36 interceptions, earned All-Pro honors on three occasions and made eight Pro Bowl selections.`\
 https://nytimes.com/athletic/6278910/2025/04/14/patrick-peterson-retirement-cardinals/
 
-**Wild insider: Zeev Buium's first day with the team, missing out on Tim Washe, injury updates, more**\
+**Wild insider: Buium's first day with the team, missing out on Washe, injury updates, more**\
 `Goalie Marc-Andre Fleury has already made his new teammate, Buium, a prank victim — at least twice.`\
 https://nytimes.com/athletic/6278933/2025/04/14/zeev-buiums-tim-washe-wild-insider/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6279156/2025/04/14/nypan-transfer-update-aston-vill
 **Vladimir Guerrero Jr. becomes Blue Jay for life, cementing legacy in Canada**\
 `You could not miss the symbolism Monday: This is truly Guerrero's house.`\
 https://nytimes.com/athletic/6275053/2025/04/14/vladimir-guerrero-jr-contract-extension-toronto-blue-jays/
-
-**Antoni Gaudí Was a Venerated Architect. Now He May Become a Saint.**\
-`Pope Francis on Monday signed a decree that recognized the 20th-century visionary’s “heroic virtues” and put him on the path to possible sainthood.`\
-https://nytimes.com/2025/04/14/world/europe/antoni-gaudi-architect-saint.html
-
-**Attack on Shapiro Raises New Fears About Threats to U.S. Politicians**\
-`While political violence has not surged overall, a series of high-profile attempts on American leaders have shaken a public already worried about the country’s toxic political environment.`\
-https://nytimes.com/2025/04/14/us/politics/josh-shapiro-pa-governor-fire-threats.html
 
