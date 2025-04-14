@@ -1,3 +1,11 @@
+**How the Jets built the best regular-season team in the NHL**\
+`The Jets have clinched the 2025 Presidents' Trophy, cementing their status as the top regular-season team in the league. What comes next?`\
+https://nytimes.com/athletic/6275280/2025/04/14/winnipeg-jets-presidents-trophy-nhl-playoffs/
+
+**The Athletic college baseball Top 25: Texas takes its turn at No. 1**\
+`The Longhorns become the fourth SEC team to hold the No. 1 ranking, joining Texas A&M, Tennessee and Arkansas.`\
+https://nytimes.com/athletic/6278214/2025/04/14/college-baseball-rankings-texas-arkansas-tennessee-georgia/
+
 **College baseball week in review: How are the former Pac-12 schools faring in their new leagues?**\
 `Georgia outlasts Arkansas in thrilling series. TCU, West Virginia rolling in the Big 12. Yeshiva snaps 100-game losing streak!`\
 https://nytimes.com/athletic/6276587/2025/04/14/college-baseball-realignment-pac-12-big-ten-big-12/
