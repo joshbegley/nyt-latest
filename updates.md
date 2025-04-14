@@ -1,3 +1,15 @@
+**Ecuador’s President Wins Re-Election in Nation Rocked by Drug Violence**\
+`In a divisive election season, Daniel Noboa pledged to bring law and order. His opponent immediately contested the results.`\
+https://nytimes.com/2025/04/13/world/americas/ecuador-election.html
+
+**Quotation of the Day: A Bunch of Penny Pinchers Banking Big League Money**\
+`Quotation of the Day for Monday, April 14, 2025.`\
+https://nytimes.com/2025/04/13/pageoneplus/quotation-of-the-day-a-bunch-of-penny-pinchers-banking-big-league-money.html
+
+**Greaves keeps rolling, Fantilli keeps scoring in crucial win for Blue Jackets**\
+`The Blue Jackets won the second game of a back-to-back for the first time all season.`\
+https://nytimes.com/athletic/6277367/2025/04/13/blue-jackets-jet-greaves-fantilli-capitals/
+
 **Gotham FC's Midge Purce returns, Esther scores twice in win over Courage**\
 `With Purce's return, how will coach Juan Carlos Amorós reshape his starting XI?`\
 https://nytimes.com/athletic/6277415/2025/04/13/gotham-midge-purce-return-win-nwsl/

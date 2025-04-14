@@ -1,3 +1,15 @@
+**Ecuador’s President Wins Re-Election in Nation Rocked by Drug Violence**\
+`In a divisive election season, Daniel Noboa pledged to bring law and order. His opponent immediately contested the results.`\
+https://nytimes.com/2025/04/13/world/americas/ecuador-election.html
+
+**Quotation of the Day: A Bunch of Penny Pinchers Banking Big League Money**\
+`Quotation of the Day for Monday, April 14, 2025.`\
+https://nytimes.com/2025/04/13/pageoneplus/quotation-of-the-day-a-bunch-of-penny-pinchers-banking-big-league-money.html
+
+**Greaves keeps rolling, Fantilli keeps scoring in crucial win for Blue Jackets**\
+`The Blue Jackets won the second game of a back-to-back for the first time all season.`\
+https://nytimes.com/athletic/6277367/2025/04/13/blue-jackets-jet-greaves-fantilli-capitals/
+
 **Farewell to the Last Writer of the Latin American Boom**\
 `The Peruvian author Mario Vargas Llosa was the world’s savviest and most accomplished political novelist.`\
 https://nytimes.com/2025/04/13/books/review/mario-vargas-llosa-appraisal.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6276947/2025/04/13/jung-hoo-lee-sf-giants-hot-start
 **Mario Vargas Llosa, Nobel-Winning Peruvian Novelist, Dies at 89**\
 `Mr. Vargas Llosa, who ran for Peru’s presidency in 1990 and won the Nobel Prize in Literature in 2010, transformed episodes from his personal life into books that reverberated far beyond the borders of his native country.`\
 https://nytimes.com/2025/04/13/obituaries/mario-vargas-llosa-dead.html
-
-**Washington Wizards made their own luck this season, but now they need more**\
-`Washington successfully controlled all it could control during its regular season. That's a good sign.  `\
-https://nytimes.com/athletic/6277117/2025/04/13/washington-wizards-2024-25-season-assessment/
-
-**It flopped once. Could an Elias Lindholm-David Pastrnak reunion go better next year?**\
-`Lindholm and Pastrnak seem to finally be finding chemistry, which could be good news for the Bruins next season.`\
-https://nytimes.com/athletic/6277123/2025/04/13/bruins-elias-lindholm-david-pastrnak-reunion-penguins/
-
-**Bears, Kyler Gordon agree to 3-year, $40 million extension**\
-`Gordon has established himself as one of the game’s best slot corners, and this contract is paying him that way.`\
-https://nytimes.com/athletic/6277179/2025/04/13/kyler-gordon-bears-extension/
 
