@@ -1,3 +1,7 @@
+**How Real Madrid won as Carlo Ancelotti vaped in the stands**\
+`Led by Ancelotti's son, Madrid overcame their manager's suspension and Kylian Mbappe's red card to beat Alaves`\
+https://nytimes.com/athletic/6277317/2025/04/14/real-madrid-carlo-davide-ancelotti-mbappe/
+
 **How a Private Health Crisis Has Loomed Over 2 Very Public Trials**\
 `Nadine Menendez’s breast cancer diagnosis has held a powerful grip on the government’s bribery case against her and her husband, Robert Menendez, New Jersey’s disgraced former senator.`\
 https://nytimes.com/2025/04/14/nyregion/nadine-menendez-breast-cancer-bribery-trial.html
