@@ -1,5 +1,9 @@
+**Suspect in Arson at Pennsylvania Governor’s Mansion Had Troubled Past**\
+`A man charged with setting fire to the residence of Gov. Josh Shapiro had faced previous charges of assaulting his family. He was arraigned on attempted murder and arson charges on Monday.`\
+https://nytimes.com/2025/04/14/us/pennsylvania-shapiro-attacker.html
+
 **Cam Ward, Travis Hunter highlight 17 players attending 2025 NFL Draft**\
-`Three quarterbacks are among those prospects who will be at next week's draft in Green Bay. `\
+`Three quarterbacks but not Shedeur Sanders are among the prospects who will be at next week's draft in Green Bay. `\
 https://nytimes.com/athletic/6279487/2025/04/14/nfl-draft-attendees-2025/
 
 **No Jail Time for Queens Man Convicted of Spying for China**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/14/briefing/el-salvador-deportations-harvard-univers
 **Brad Holland’s Disruptive Vision**\
 `His work pushed the boundaries of political cartoons, expanding the possibilities of illustration everywhere.`\
 https://nytimes.com/2025/04/14/arts/brad-holland-illustrations.html
-
-**Sharks captain Logan Couture to announce end of career due to injury**\
-`Couture, who has 701 points in 933 regular-season games, hasn't played since Jan. 2024.`\
-https://nytimes.com/athletic/6279432/2025/04/14/logan-couture-sharks-injury/
 
