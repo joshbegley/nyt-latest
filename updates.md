@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6277914/2025/04/14/champions-league-quarter-final-second-leg-betting-tips-predictions-odds/
 
+**Champions League quarter-final best bets: Can Villa and Dortmund turn the tide?**\
+`Brett Koremenos outlines the best bets for Tuesday’s Champions League quarter-final second-legs.
+`\
+https://nytimes.com/athletic/6277914/2025/04/14/champions-league-quarter-final-second-leg-betting-tips-predictions-odds/
+
 **Orban Escalates Culture War in Hungary by Mandating Two Genders Only**\
 `The governing Fidesz party passed a constitutional amendment stating that all Hungarians are either male or female, and another protecting the “moral development” of children.`\
 https://nytimes.com/2025/04/14/world/europe/hungary-two-genders-constitution.html
