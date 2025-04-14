@@ -1,3 +1,7 @@
+**Free of distractions, Crow-Armstrong powers Cubs over Dodgers: 'I'm here to play baseball'**\
+`Crow-Armstrong hit his first two home runs of the season and added a triple as the Cubs took a three-game series against the Dodgers.`\
+https://nytimes.com/athletic/6277646/2025/04/14/pete-crow-armstrong-cubs-win/
+
 **Morgan Rogers plays and plays and plays - even with PSG decider on the horizon**\
 `Like Youri Tielemans and Emiliano Martinez, Rogers is indispensable in Unai Emery's eyes, even with a huge Champions League game next`\
 https://nytimes.com/athletic/6274300/2025/04/14/morgan-rogers-aston-villa-southampton-psg/
