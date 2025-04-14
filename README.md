@@ -1,3 +1,11 @@
+**L.A. County Expects $2 Billion in Fire Costs, Adding to Budget Woes**\
+`County leaders said that layoffs of public workers were so far unlikely, but that the region’s financial challenges multiplied after the wildfires in January.`\
+https://nytimes.com/2025/04/14/us/budget-crisis-los-angeles-county.html
+
+**Szczesny: Barca goalkeeper situation 'delicate' after Ter Stegen return**\
+`Ter Stegen is back in training after surgery on a knee injury and said last week he is "hungry to play soon".`\
+https://nytimes.com/athletic/6278607/2025/04/14/wojciech-szczesny-barcelona-ter-stegen/
+
 **Does Love Mean Having to Share Your Location?**\
 `Tell us how location sharing has affected your relationship, and you might hear yourself in an episode of the Modern Love podcast.`\
 https://nytimes.com/2025/04/14/podcasts/location-sharing-relationships-modern-love.html
@@ -29,14 +37,4 @@ https://nytimes.com/athletic/6273412/2025/04/14/vontae-davis-cause-death-undeter
 **What I'm hearing about the Penguins' trade plans, free agency and next season**\
 `At look at some of the Penguins' concerns — and what they're excited about — as the season comes to an end and summer becomes the focus.`\
 https://nytimes.com/athletic/6278379/2025/04/14/penguins-trades-nhl-free-agency-draft/
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>It has been a nice, quiet offseason &#8230; and then Nico happened. What should we talk about this week?</p>
-<p>Leave your questions here. Please include your city.</p>
-`\
-https://nytimes.com/athletic/6278597/2025/04/14/submit-a-question-for-stewart-mandels-college-football-mailbag-298/
-
-**Sources: Mike Budenholzer out as Suns coach after just one season**\
-`Mat Ishbia has made coaching changes in each of the three offseasons since he took ownership of the Suns.`\
-https://nytimes.com/athletic/6262672/2025/04/14/mike-budenholzer-fired-phoenix-suns-nba-head-coach/
 
