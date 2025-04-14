@@ -1,3 +1,7 @@
+**Jung Hoo Lee is playing like the superstars the Giants have long coveted**\
+`It's too early to know if Lee can maintain this level of production, but his performance is a reminder of why superstars are in demand.`\
+https://nytimes.com/athletic/6276947/2025/04/13/jung-hoo-lee-sf-giants-hot-start/
+
 **Mario Vargas Llosa, Nobel-Winning Peruvian Novelist, Dies at 89**\
 `Mr. Vargas Llosa, who ran for Peru’s presidency in 1990 and won the Nobel Prize in Literature in 2010, transformed episodes from his personal life into books that reverberated far beyond the borders of his native country.`\
 https://nytimes.com/2025/04/13/obituaries/mario-vargas-llosa-dead.html
