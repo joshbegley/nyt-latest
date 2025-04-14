@@ -1,3 +1,7 @@
+**Kyle Larson's Bristol win a fitting tribute to late Hendrick PR director Jon Edwards**\
+`Kyle Larson dedicated Sunday's win to the late Jon Edwards, whose smiling face rode on the side of the No. 5 car and a handful of others.`\
+https://nytimes.com/athletic/6277421/2025/04/14/kyle-larson-bristol-win-jon-edwards-hendrick-nascar/
+
 **Trump Describes Russia’s Deadly Strike on Ukrainian City as ‘Horrible’**\
 `At least 34 people were killed in the attack on Sumy, which came as Ukraine’s leader urged President Trump to come witness the realities of war firsthand.`\
 https://nytimes.com/2025/04/14/world/europe/trump-ukraine-sumy-russia-attack.html

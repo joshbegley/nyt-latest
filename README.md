@@ -1,3 +1,7 @@
+**No Corrections: April 14, 2025**\
+`No corrections appeared in print on Monday, April 14, 2025.`\
+https://nytimes.com/2025/04/14/pageoneplus/no-corrections-april-14-2025.html
+
 **Kyle Larson's Bristol win a fitting tribute to late Hendrick PR director Jon Edwards**\
 `Kyle Larson dedicated Sunday's win to the late Jon Edwards, whose smiling face rode on the side of the No. 5 car and a handful of others.`\
 https://nytimes.com/athletic/6277421/2025/04/14/kyle-larson-bristol-win-jon-edwards-hendrick-nascar/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/04/14/us/trump-news-tariffs
 **‘Simply Bad Business’: Corporate Gloom Rises Over Trump’s Tariffs**\
 `Global markets are bouncing back, but a new survey of company chiefs finds that they’re on edge and are looking to cut back on investment.`\
 https://nytimes.com/2025/04/14/business/dealbook/corporate-gloom-trump-tariffs.html
-
-**Why Europe Fears a Flood of Cheap Goods From China**\
-`President Trump’s tariffs on China could lead to a hazardous scenario for European countries: the dumping of artificially cheap products that would undermine local industries.`\
-https://nytimes.com/2025/04/14/world/europe/europe-china-dumping-tariffs.html
 
