@@ -1,3 +1,11 @@
+**Stocks Notch Gains After More Tariff Whiplash**\
+`After exempting Chinese imports of smartphones, chips and other electronics, President Trump said on Sunday the carve outs were only temporary.`\
+https://nytimes.com/2025/04/13/business/stock-market-trump-tariffs.html
+
+**Masters 2025 Round 4: How Rory McIlroy finally won at Augusta National**\
+`McIlroy is the first European player in men’s golf history to complete the slam.`\
+https://nytimes.com/athletic/6277338/2025/04/13/masters-2025-round-4-rory-mcilroy-won-augusta-national/
+
 **Jung Hoo Lee is playing like the superstars the Giants have long coveted**\
 `It's too early to know if Lee can maintain this level of production, but his performance is a reminder of why superstars are in demand.`\
 https://nytimes.com/athletic/6276947/2025/04/13/jung-hoo-lee-sf-giants-hot-start/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6276211/2025/04/13/penguins-bruins-nhl-draft-lotter
 **Maple Leafs report cards: Unexceptional but patient effort holds off Carolina comeback**\
 `Craig Berube will be happy with the Leafs' team defence as they held off the Hurricanes while resting some of the blue line.`\
 https://nytimes.com/athletic/6276702/2025/04/13/maple-leafs-report-cards-holmberg-woll-defence/
-
-**Pennsylvania Governor Condemns Arson Attack on His Residence**\
-`The man who set fire to the residence of Gov. Josh Shapiro of Pennsylvania in Harrisburg, Pa., early Sunday was arrested. The authorities said they could not provide a motive.`\
-https://nytimes.com/video/us/politics/100000010108555/shapiro-pennsylvania-mansion-arson-attack.html
-
-**How to Tell a Dumb American Story**\
-`A couple devises a strategy to get their daughter’s killer prosecuted and to get attention for other Native American families.`\
-https://nytimes.com/2025/04/13/podcasts/how-to-tell-a-dumb-american-story-this-american-life-nyt-audio.html
 

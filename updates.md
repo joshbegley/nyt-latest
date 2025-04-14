@@ -1,3 +1,11 @@
+**Stocks Notch Gains After More Tariff Whiplash**\
+`After exempting Chinese imports of smartphones, chips and other electronics, President Trump said on Sunday the carve outs were only temporary.`\
+https://nytimes.com/2025/04/13/business/stock-market-trump-tariffs.html
+
+**Masters 2025 Round 4: How Rory McIlroy finally won at Augusta National**\
+`McIlroy is the first European player in men’s golf history to complete the slam.`\
+https://nytimes.com/athletic/6277338/2025/04/13/masters-2025-round-4-rory-mcilroy-won-augusta-national/
+
 **Jung Hoo Lee is playing like the superstars the Giants have long coveted**\
 `It's too early to know if Lee can maintain this level of production, but his performance is a reminder of why superstars are in demand.`\
 https://nytimes.com/athletic/6276947/2025/04/13/jung-hoo-lee-sf-giants-hot-start/
