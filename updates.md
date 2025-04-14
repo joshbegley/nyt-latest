@@ -1,3 +1,7 @@
+**Word of the Day: vermilion**\
+`This word has appeared in 24 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/04/14/learning/word-of-the-day-vermilion.html
+
 **'I want to see young guys maximise their potential' - Tom Brady and Birmingham are not done yet**\
 `A mixed weekend saw Birmingham win the League One title, then lose the EFL Trophy final - but the owners say they have loftier ambitions...`\
 https://nytimes.com/athletic/6276447/2025/04/14/tom-brady-birmingham-city-efl-trophy/
