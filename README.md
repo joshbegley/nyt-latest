@@ -1,3 +1,15 @@
+**DOGE Cuts Hobble Office That Would Aid NASA and SpaceX Mars Landings**\
+`The Astrogeology Science Center, which has helped astronauts and robots reach other worlds safely, is facing a substantial number of job reductions.`\
+https://nytimes.com/2025/04/14/science/astrogeology-mars-maps-spacex.html
+
+**U.S. Argues Meta Built a Social Media Monopoly**\
+`The tech giant went to court on Monday in an antitrust trial focused on its acquisitions of Instagram and WhatsApp. The case could reshape its business.`\
+https://nytimes.com/2025/04/14/technology/meta-antitrust-trial-ftc.html
+
+**Pete Marocco, Who Helped Gut Foreign Aid for Trump, Leaves State Department**\
+`Pete Marocco oversaw the cutting of thousands of contracts at U.S.A.I.D. and the firing of most of its roughly 10,000 workers. Aid agency employees have accused him of mismanagement.`\
+https://nytimes.com/2025/04/14/us/politics/pete-marocco-usaid-trump-state-department.html
+
 **Submit your Ohio State football questions for Cameron Teague Robinson’s mailbag**\
 `<p>Spring practice is over. The transfer portal opens Wednesday. What&#8217;s on your mind? Submit your Ohio State questions below.</p>
 `\
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/6277724/2025/04/14/red-sox-white-sox-garrett-croche
 **The Padres might be the best team in baseball. So might multiple NL West rivals**\
 `For the Padres, the 13-3 start to this season has been both auspicious and reminiscent.`\
 https://nytimes.com/athletic/6277294/2025/04/14/san-diego-padres-nl-west-mlb-best/
-
-**Can You Uncover the Hidden Titles of a Dozen Recent Best Sellers?**\
-`Test your knowledge of the best-selling books (so far) in 2025 and build a reading list along the way.`\
-https://nytimes.com/interactive/2025/04/14/books/review/hidden-title-books.html
-
-**Corrections: April 13, 2025**\
-`Corrections that appeared in print on Sunday, April 13, 2025.`\
-https://nytimes.com/2025/04/14/pageoneplus/corrections-april-13-2025.html
-
-**No Corrections: April 14, 2025**\
-`No corrections appeared in print on Monday, April 14, 2025.`\
-https://nytimes.com/2025/04/14/pageoneplus/no-corrections-april-14-2025.html
 
