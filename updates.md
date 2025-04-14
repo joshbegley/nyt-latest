@@ -1,3 +1,7 @@
+**The Pulse: Rory's tears win the day**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6277364/2025/04/14/rory-mcilroy-masters-the-pulse/
+
 **This Week in Mets: Three early thoughts for the first 15 games**\
 `The Mets are winning, even when their purported strength — their offense — has been in a bit of a slump.`\
 https://nytimes.com/athletic/6277444/2025/04/14/this-week-in-mets-three-early-thoughts/
