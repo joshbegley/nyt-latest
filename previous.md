@@ -1,4 +1,8 @@
-**Vladimir Guerrero Jr. becomes a Blue Jay for life, cementing a legacy in Canada**\
+**Villa working to close deal to sign midfielder Nypan**\
+`18-year-old Nypan, who has been a target for the likes of Arsenal and Girona, opted against leaving Rosenborg in January.`\
+https://nytimes.com/athletic/6279156/2025/04/14/nypan-transfer-update-aston-villa-arsenal/
+
+**Vladimir Guerrero Jr. becomes Blue Jay for life, cementing legacy in Canada**\
 `You could not miss the symbolism Monday: This is truly Guerrero's house.`\
 https://nytimes.com/athletic/6275053/2025/04/14/vladimir-guerrero-jr-contract-extension-toronto-blue-jays/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6278837/2025/04/14/wnba-draft-2025-paige-bueckers-h
 **Older People Seeking Care for Cannabis Use at Greater Risk for Dementia, Study Finds**\
 `Users needing emergency care or hospitalization were more likely to later develop dementia, researchers reported. That does not prove cannabis was the cause.`\
 https://nytimes.com/2025/04/14/health/cannabis-marijuana-dementia.html
-
-**Asparagus Dresses Up for This Springy Dinner Party**\
-`Drape those stalks with beets, herbs and a little egg, then follow it all up with a luxurious lamb braise and stunning lemon cake.`\
-https://nytimes.com/2025/04/14/dining/spring-menu-lamb-asparagus-lemon-cake.html
 

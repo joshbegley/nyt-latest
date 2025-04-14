@@ -1,3 +1,11 @@
+**Villa working to close deal to sign midfielder Nypan**\
+`18-year-old Nypan, who has been a target for the likes of Arsenal and Girona, opted against leaving Rosenborg in January.`\
+https://nytimes.com/athletic/6279156/2025/04/14/nypan-transfer-update-aston-villa-arsenal/
+
+**Vladimir Guerrero Jr. becomes Blue Jay for life, cementing legacy in Canada**\
+`You could not miss the symbolism Monday: This is truly Guerrero's house.`\
+https://nytimes.com/athletic/6275053/2025/04/14/vladimir-guerrero-jr-contract-extension-toronto-blue-jays/
+
 **Vladimir Guerrero Jr. becomes a Blue Jay for life, cementing a legacy in Canada**\
 `You could not miss the symbolism Monday: This is truly Guerrero's house.`\
 https://nytimes.com/athletic/6275053/2025/04/14/vladimir-guerrero-jr-contract-extension-toronto-blue-jays/
