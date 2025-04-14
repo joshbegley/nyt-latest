@@ -1,3 +1,7 @@
+**The Moving Goal Posts in Musk’s DOGE Cuts**\
+`Why Elon Musk and his team have struggled to make the spending cuts they promised.`\
+https://nytimes.com/2025/04/14/us/politics/elon-musk-doge-cuts.html
+
 **China’s Halt of Critical Minerals Poses Risk for U.S. Military Programs**\
 `The Pentagon and defense contractors are heavily reliant on magnets and rare earth minerals mined or processed in China, which has suspended exports of the materials in an escalating trade war.`\
 https://nytimes.com/2025/04/14/us/politics/china-critical-minerals-risk-military-programs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/14/nyregion/columbia-student-palestinian-arrested-ic
 **Brentford owner Matthew Benham close to agreeing deal to buy Spanish third side**\
 `Merida AD are currently fifth in the Primera Federacion’s group 2 with six games to play.`\
 https://nytimes.com/athletic/6279459/2025/04/14/brentford-benham-merida-ad/
-
-**North Dakota Lawmakers Pass Bill Restricting Library Books Deemed Obscene**\
-`The bill, which applies to public and school libraries, is part of a national push by Republicans to crack down on content they consider inappropriate for children.`\
-https://nytimes.com/2025/04/14/us/north-dakota-books-obscene.html
 
