@@ -1,3 +1,15 @@
+**Suspect in Arson at Pennsylvania Governor’s Mansion Had Troubled Past**\
+`A man charged with setting fire to the residence of Gov. Josh Shapiro had faced previous charges of assaulting his family. He was arraigned on attempted murder and arson charges on Monday.`\
+https://nytimes.com/2025/04/14/us/pennsylvania-shapiro-attacker.html
+
+**Cam Ward, Travis Hunter highlight 17 players attending 2025 NFL Draft**\
+`Three quarterbacks but not Shedeur Sanders are among the prospects who will be at next week's draft in Green Bay. `\
+https://nytimes.com/athletic/6279487/2025/04/14/nfl-draft-attendees-2025/
+
+**No Jail Time for Queens Man Convicted of Spying for China**\
+`Shujun Wang worked for a pro-democracy organization while passing information about dissidents to China, prosecutors said. He was sentenced to three years of supervised release.`\
+https://nytimes.com/2025/04/14/nyregion/shujun-wang-chinese-spy-sentence.html
+
 **The Moving Goal Posts in Musk’s DOGE Cuts**\
 `Why Elon Musk and his team have struggled to make the spending cuts they promised.`\
 https://nytimes.com/2025/04/14/us/politics/elon-musk-doge-cuts.html
