@@ -1,3 +1,7 @@
+**Monday Briefing: China Pauses Crucial Exports**\
+`Plus, an art forest in Thailand.`\
+https://nytimes.com/2025/04/13/briefing/china-us-tariff-ukraine-russia-saudi-arabia-trump.html
+
 **Javier Mascherano 'can't tell' whether Lionel Messi will play World Cup**\
 `Messi's friend and Inter Miami coach still isn't sure whether the superstar will make it to one last World Cup.`\
 https://nytimes.com/athletic/6277506/2025/04/13/messi-world-cup-mascherano-inter-miami/
