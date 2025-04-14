@@ -1,3 +1,7 @@
+**Inside Trump’s Pressure Campaign on Universities**\
+`The opaque process, part of a strategy by conservatives to realign the liberal tilt of elite universities, has upended higher education.`\
+https://nytimes.com/2025/04/14/us/politics/trump-pressure-universities.html
+
 **The Bounce: As NBA Play-In games await, here is your quick NBA playoffs preview**\
 `The NBA regular season is officially over. Let's preview established playoff matchups as the Play-In Tournament nears`\
 https://nytimes.com/athletic/6278224/2025/04/14/nba-play-in-playoffs-luka-doncic-lebron-james-anthony-edwards-lakers-timberwolves-nba-the-bounce/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/04/14/us/politics/pete-marocco-usaid-trump-state-depart
 `<p>Spring practice is over. The transfer portal opens Wednesday. What&#8217;s on your mind? Submit your Ohio State questions below.</p>
 `\
 https://nytimes.com/athletic/6278259/2025/04/14/submit-your-ohio-state-football-questions-for-cameron-teague-robinsons-mailbag/
-
-**Kevin Campbell inquest: Hospital cleared of blame for former player's death**\
-`Campbell died from multi-organ failure on June 15 last year, aged 54 after being admitted to Manchester Royal Infirmary.`\
-https://nytimes.com/athletic/6278058/2025/04/14/kevin-campbell-inquest-no-blame/
 
