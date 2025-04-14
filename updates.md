@@ -1,3 +1,11 @@
+**Former NHLer Chris Simon had stage 3 CTE when he died**\
+`Chris Simon, a two-time NHL All-Star who won a Stanley Cup with the Colorado Avalanche in 1996, had stage 3 chronic traumatic encephalopathy (CTE) when he died by suicide in 2024, according to a post-mortem brain tissue analysis released by his family and the Concussion Legacy Foundation (CLF) on Monday.`\
+https://nytimes.com/athletic/6278639/2025/04/14/nhl-chris-simon-cte-diagnosis/
+
+**Paolo Banchero, Stephon Castle and more X-factors for fantasy basketball 2025-26**\
+`Eric Wong identifies his top players, including Orlando's Paolo Banchero, who could make or break you in fantasy basketball next season.`\
+https://nytimes.com/athletic/6278403/2025/04/14/fantasy-basketball-biggest-x-factors-2025-26/
+
 **Cuomo Announces New Housing Plan, With a Hint of ChatGPT**\
 `Former Gov. Andrew Cuomo’s 29-page housing plan included a garbled section with incomplete sentences and a link to a citation retrieved by ChatGPT.`\
 https://nytimes.com/2025/04/14/nyregion/cuomo-chatgpt-housing-ai.html
