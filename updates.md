@@ -1,3 +1,11 @@
+**The Moving Goal Posts in Musk’s DOGE Cuts**\
+`Why Elon Musk and his team have struggled to make the spending cuts they promised.`\
+https://nytimes.com/2025/04/14/us/politics/elon-musk-doge-cuts.html
+
+**China’s Halt of Critical Minerals Poses Risk for U.S. Military Programs**\
+`The Pentagon and defense contractors are heavily reliant on magnets and rare earth minerals mined or processed in China, which has suspended exports of the materials in an escalating trade war.`\
+https://nytimes.com/2025/04/14/us/politics/china-critical-minerals-risk-military-programs.html
+
 **White House to Ask Congress to Claw Back Funding From NPR and PBS**\
 `The Trump administration plans to ask Congress to rescind $1.1 billion in federal funding for the Corporation for Public Broadcasting, which provides some funding for public media in the United States.`\
 https://nytimes.com/2025/04/14/business/media/trump-npr-pbs-funding.html
