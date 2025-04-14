@@ -1,3 +1,15 @@
+**The Padres might be the best team in baseball. So might multiple NL West rivals**\
+`For the Padres, the 13-3 start to this season has been both auspicious and reminiscent.`\
+https://nytimes.com/athletic/6277294/2025/04/14/san-diego-padres-nl-west-mlb-best/
+
+**Can You Uncover the Hidden Titles of a Dozen Recent Best Sellers?**\
+`Test your knowledge of the best-selling books (so far) in 2025 and build a reading list along the way.`\
+https://nytimes.com/interactive/2025/04/14/books/review/hidden-title-books.html
+
+**Corrections: April 13, 2025**\
+`Corrections that appeared in print on Sunday, April 13, 2025.`\
+https://nytimes.com/2025/04/14/pageoneplus/corrections-april-13-2025.html
+
 **No Corrections: April 14, 2025**\
 `No corrections appeared in print on Monday, April 14, 2025.`\
 https://nytimes.com/2025/04/14/pageoneplus/no-corrections-april-14-2025.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6276356/2025/04/14/nhl-weekend-rankings-gold-plan-o
 **Military Leader Wins Presidential Election in Gabon**\
 `Brice Oligui Nguema had promised to relinquish power after he led a coup in 2023. He now is set to lead the oil-rich country for the next seven years.`\
 https://nytimes.com/2025/04/14/world/africa/gabon-presidential-election-nguema.html
-
-**Canadiens weekly notebook: The power play is far too dependant on Patrik Laine**\
-`Also in the notebook, the disappearance of Angry Slaf, Matheson's unique usage, a chat with Moritz Seider that relates to David Reinbacher.`\
-https://nytimes.com/athletic/6277762/2025/04/14/canadiens-power-play-patrik-laine/
-
-**Trump Administration Live Updates: President to Meet Salvadoran Leader as U.S. Ramps Up Deportations**\
-``\
-https://nytimes.com/live/2025/04/14/us/trump-news-tariffs
-
-**‘Simply Bad Business’: Corporate Gloom Rises Over Trump’s Tariffs**\
-`Global markets are bouncing back, but a new survey of company chiefs finds that they’re on edge and are looking to cut back on investment.`\
-https://nytimes.com/2025/04/14/business/dealbook/corporate-gloom-trump-tariffs.html
 
