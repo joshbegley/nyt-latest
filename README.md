@@ -1,3 +1,19 @@
+**Sources: Mike Budenholzer out as Suns coach after just one season**\
+`Mat Ishbia has made coaching changes in each of the three offseasons since he took ownership of the Suns.`\
+https://nytimes.com/athletic/6262672/2025/04/14/mike-budenholzer-fired-phoenix-suns-nba-head-coach/
+
+**In This French ‘Gypsy,’ Mama’s Got the Stuff. Daughter Too.**\
+`The soprano Natalie Dessay and her daughter, Neïma Naouri, team up to explore one of theater’s most toxic mother-daughter relationships.`\
+https://nytimes.com/2025/04/14/arts/dance/gypsy-france-natalie-dessay.html
+
+**USMNT Player Tracker: Carter-Vickers' piledriver, Pulisic the assist king and Richards consolation**\
+`Malik Tillman's encouraging return from injury continued, but there was another wasted afternoon for Gio Reyna on the bench at Dortmund`\
+https://nytimes.com/athletic/6278109/2025/04/14/usmnt-carter-vickers-pulisic-richards-celtic-tracker/
+
+**Luka Dončić becomes first international NBA player with top-selling jersey**\
+`Dončić's league-leading sales this season account for both Mavericks and Lakers jerseys sold.`\
+https://nytimes.com/athletic/6278555/2025/04/14/luka-doncic-nba-best-selling-jersey/
+
 **Tiger Woods, Gary Player welcome Rory McIlroy to Grand Slam club after Masters win**\
 `McIlroy is the sixth Grand Slam winner in men's golf history, joining Woods as the only two men to achieve the feat since 1966.`\
 https://nytimes.com/athletic/6278353/2025/04/14/rory-mcilroy-tiger-woods-masters-win-congratulation-posts/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/04/14/nyregion/cuomo-endorsed-unions-32bj-hotels.html
 **Two Postscripts on a Column**\
 `Two deeper histories on people mentioned in a recent column: a famous orator and a mother and son who survived the Holocaust.`\
 https://nytimes.com/2025/04/14/opinion/sojourner-truth-america-deportations.html
-
-**Chelsea top spend on agent fees for 2024-25 Premier League season**\
-`Manchester City, Manchester United and Aston Villa round out the top four spenders for the period including the last two transfer windows.`\
-https://nytimes.com/athletic/6278439/2025/04/14/premier-league-agent-fees-chelsea-how-much/
-
-**Trump Signals Semiconductor Tariffs Are Coming ‘Very Soon’**\
-`The president has suggested that he will move forward with a national security investigation this week that is likely to result in tariffs on chips.`\
-https://nytimes.com/2025/04/14/business/economy/trump-semiconductor-tariffs-china.html
-
-**One Giant Stunt for Womankind**\
-`Blue Origin’s all-female flight proves that women are now free to enjoy capitalism’s most extravagant spoils alongside rich men.`\
-https://nytimes.com/2025/04/14/arts/blue-origin-lauren-sanchez-katy-perry.html
-
-**Pelicans fire executive VP David Griffin after another playoff miss**\
-`Green will remain coach, per a league source. However, the Pelicans' new lead executive will make the final decision on Green's future.`\
-https://nytimes.com/athletic/6278311/2025/04/14/pelicans-vp-david-griffin-fired/
 
