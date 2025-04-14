@@ -1,3 +1,7 @@
+**'I want to see young guys maximise their potential' - Tom Brady and Birmingham are not done yet**\
+`A mixed weekend saw Birmingham win the League One title, then lose the EFL Trophy final - but the owners say they have loftier ambitions...`\
+https://nytimes.com/athletic/6276447/2025/04/14/tom-brady-birmingham-city-efl-trophy/
+
 **The New York Times in Print for Monday, April 14, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/04/14/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6274348/2025/04/14/brighton-kaoru-mitoma-future-eur
 **Four days out from the defining match of their season, Spurs do little to inspire confidence**\
 `Spurs blundered their way to a 4-2 defeat at Wolves, and now head to Frankfurt, where the home side are yet to lose in Europe this season`\
 https://nytimes.com/athletic/6276317/2025/04/14/tottenham-wolves-postecoglou/
-
-**Everton can afford to dream of better days. Their recruitment needs to match that ambition**\
-`Abdoulaye Doucoure's match-winning celebration was a reminder of the size of the rebuild facing Everton's new hierarchy this summer`\
-https://nytimes.com/athletic/6275591/2025/04/14/everton-recruitment-nottingham-forest/
 
