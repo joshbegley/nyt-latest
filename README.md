@@ -1,3 +1,7 @@
+**Trump Administration Memo Proposes Cutting State Department Funding by Nearly Half**\
+`The draft plan is part of a process involving the agency and the White House. It would eliminate almost all funding for international organizations that include the United Nations and NATO.`\
+https://nytimes.com/2025/04/14/us/politics/trump-state-department-budget-cuts.html
+
 **Suspect in Arson at Pennsylvania Governor’s Mansion Had Troubled Past**\
 `A man charged with setting fire to the residence of Gov. Josh Shapiro had faced previous charges of assaulting his family. He was arraigned on attempted murder and arson charges on Monday.`\
 https://nytimes.com/2025/04/14/us/pennsylvania-shapiro-attacker.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/14/us/politics/trump-deportations-oval-office.html
 **El Salvador Won’t Return Wrongly Deported Man**\
 `Also, Harvard said it would not comply with Trump’s demands.`\
 https://nytimes.com/2025/04/14/briefing/el-salvador-deportations-harvard-university-trump.html
-
-**Brad Holland’s Disruptive Vision**\
-`His work pushed the boundaries of political cartoons, expanding the possibilities of illustration everywhere.`\
-https://nytimes.com/2025/04/14/arts/brad-holland-illustrations.html
 
