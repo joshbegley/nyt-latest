@@ -1,3 +1,12 @@
+**Mark Zuckerberg Is Back in the Hot Seat in a Crucial Trial**\
+`Mark Zuckerberg has appeared before Congress more times than any other tech leader.`\
+https://nytimes.com/video/business/100000010103020/mark-zuckerberg-is-back-in-the-hot-seat-in-a-crucial-trial.html
+
+**Champions League quarter-final best bets: Can Villa and Dortmund turn the tide?**\
+`Brett Koremenos outlines the best bets for Tuesday’s Champions League quarter-final second-legs.
+`\
+https://nytimes.com/athletic/6277914/2025/04/14/champions-league-quarter-final-second-leg-betting-tips-predictions-odds/
+
 **L.A. County Expects $2 Billion in Fire Costs, Adding to Budget Woes**\
 `County leaders said that layoffs of public workers were so far unlikely, but that the region’s financial challenges multiplied after the wildfires in January.`\
 https://nytimes.com/2025/04/14/us/budget-crisis-los-angeles-county.html
@@ -29,12 +38,4 @@ https://nytimes.com/2025/04/14/dining/le-creuset.html
 **Fugitive Jeweler Wanted by India Is Arrested in Belgium**\
 `The fugitive, Mehul Choksi, is wanted in connection with a major financial scandal at a publicly owned Indian bank. The police in Antwerp, Belgium, arrested him over the weekend.`\
 https://nytimes.com/2025/04/14/world/asia/mehul-choksi-arrest-belgium-nirav-modi.html
-
-**Ex-NFL CB Vontae Davis' cause of death ruled undetermined, per autopsy report**\
-`Davis was found dead on the floor inside his home gym in Southwest Ranches, Fla. in April 2024`\
-https://nytimes.com/athletic/6273412/2025/04/14/vontae-davis-cause-death-undetermined-nfl/
-
-**What I'm hearing about the Penguins' trade plans, free agency and next season**\
-`At look at some of the Penguins' concerns — and what they're excited about — as the season comes to an end and summer becomes the focus.`\
-https://nytimes.com/athletic/6278379/2025/04/14/penguins-trades-nhl-free-agency-draft/
 

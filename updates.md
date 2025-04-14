@@ -1,3 +1,11 @@
+**L.A. County Expects $2 Billion in Fire Costs, Adding to Budget Woes**\
+`County leaders said that layoffs of public workers were so far unlikely, but that the region’s financial challenges multiplied after the wildfires in January.`\
+https://nytimes.com/2025/04/14/us/budget-crisis-los-angeles-county.html
+
+**Szczesny: Barca goalkeeper situation 'delicate' after Ter Stegen return**\
+`Ter Stegen is back in training after surgery on a knee injury and said last week he is "hungry to play soon".`\
+https://nytimes.com/athletic/6278607/2025/04/14/wojciech-szczesny-barcelona-ter-stegen/
+
 **Does Love Mean Having to Share Your Location?**\
 `Tell us how location sharing has affected your relationship, and you might hear yourself in an episode of the Modern Love podcast.`\
 https://nytimes.com/2025/04/14/podcasts/location-sharing-relationships-modern-love.html
