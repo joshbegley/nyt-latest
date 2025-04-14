@@ -1,3 +1,7 @@
+**NBA champion odds: Thunder open playoffs as title favorite ahead of Celtics, Cavs**\
+`The Oklahoma City Thunder are the favorites to win the NBA title as the postseason nears. `\
+https://nytimes.com/athletic/6278809/2025/04/14/nba-playoffs-champion-odds-thunder-celtics-cavs/
+
 **Ducks sign NCAA free agent Tim Washe fresh off national championship run**\
 `Western Michigan star Alex Bump calls his teammate “the most reliable (center) in college hockey."`\
 https://nytimes.com/athletic/6271084/2025/04/14/ducks-free-agent-tim-washe/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/14/us/harvard-trump-reject-demands.html
 **At Bristol, NASCAR's ongoing short-track tire conundrum takes another turn**\
 `Many expected another high-tire-wear race at Bristol on Sunday. It never materialized, and it reignited the ongoing tire debate in NASCAR.`\
 https://nytimes.com/athletic/6278611/2025/04/14/bristol-nascar-tires-wear-kyle-larson/
-
-**Bills mailbag: Submit your questions to Joe Buscaglia**\
-`Send your Bills questions to Joe Buscaglia`\
-https://nytimes.com/athletic/6278880/2025/04/14/bills-mailbag-submit-questions-joe-buscaglia/
 

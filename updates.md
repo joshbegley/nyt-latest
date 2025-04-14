@@ -1,3 +1,7 @@
+**NBA champion odds: Thunder open playoffs as title favorite ahead of Celtics, Cavs**\
+`The Oklahoma City Thunder are the favorites to win the NBA title as the postseason nears. `\
+https://nytimes.com/athletic/6278809/2025/04/14/nba-playoffs-champion-odds-thunder-celtics-cavs/
+
 **Ducks sign NCAA free agent Tim Washe fresh off national championship run**\
 `Western Michigan star Alex Bump calls his teammate “the most reliable (center) in college hockey."`\
 https://nytimes.com/athletic/6271084/2025/04/14/ducks-free-agent-tim-washe/
