@@ -1,3 +1,11 @@
+**N.Y.C. Helicopter Company Shuts Operations After Deadly Crash, F.A.A. Says**\
+`All six people on board the craft, operated by New York Helicopter Tours, died when it crashed into the Hudson River on Thursday.`\
+https://nytimes.com/2025/04/13/nyregion/ny-helicopter-tours-shut-down.html
+
+**Rory McIlroy won the Masters, finally. The roars told the story**\
+`It might have been an internal waging of the wars for McIlroy, but all of Augusta National felt it with him.`\
+https://nytimes.com/athletic/6277418/2025/04/13/rory-mcilroy-masters-roar-augusta-national/
+
 **Monday Briefing: China Pauses Crucial Exports**\
 `Plus, an art forest in Thailand.`\
 https://nytimes.com/2025/04/13/briefing/china-us-tariff-ukraine-russia-saudi-arabia-trump.html
