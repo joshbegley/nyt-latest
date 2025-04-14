@@ -1,3 +1,7 @@
+**Trump Says He Was Told Russia’s Deadly Strike Was a ‘Mistake’**\
+`It was not immediately clear what President Trump meant when he said he had been told Russia “made a mistake” with its missile strike on the Ukrainian city of Sumy.`\
+https://nytimes.com/video/world/europe/100000010109163/trump-russia-ukraine-attack.html
+
 **DOGE Cuts Hobble Office That Would Aid NASA and SpaceX Mars Landings**\
 `The Astrogeology Science Center, which has helped astronauts and robots reach other worlds safely, is facing a substantial number of job reductions.`\
 https://nytimes.com/2025/04/14/science/astrogeology-mars-maps-spacex.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6276587/2025/04/14/college-baseball-realignment-pac
 **The Windup: Who won this revenge game?**\
 `Welcome to The Windup, The Athletic's daily MLB newsletter.`\
 https://nytimes.com/athletic/6277724/2025/04/14/red-sox-white-sox-garrett-crochet-the-windup/
-
-**The Padres might be the best team in baseball. So might multiple NL West rivals**\
-`For the Padres, the 13-3 start to this season has been both auspicious and reminiscent.`\
-https://nytimes.com/athletic/6277294/2025/04/14/san-diego-padres-nl-west-mlb-best/
 
