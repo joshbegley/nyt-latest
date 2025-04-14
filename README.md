@@ -1,3 +1,15 @@
+**Newcastle confirm Howe's pneumonia diagnosis, Tindall to lead next two games**\
+`Howe missed Sunday's win over Manchester United and will be absent when Newcastle face Crystal Palace and Aston Villa.`\
+https://nytimes.com/athletic/6278631/2025/04/14/eddie-howe-illness-newcastle-tindall/
+
+**Why SGA is the MVP, and a surprise pick for Defensive Player of the Year**\
+`This season is arguably the most contentious award season in league annals, and not many choices are clear no-brainers.`\
+https://nytimes.com/athletic/6277601/2025/04/14/nba-awards-sga-mvp-amen-thompson-rockets-hollinger/
+
+**Good Luck Getting Goldman Sachs to Even Say the Word ‘Tariff’**\
+`Wall Street’s top firms have been reticent to criticize President Trump’s trade policy, but Goldman took it to a new level on Monday.`\
+https://nytimes.com/2025/04/14/business/good-luck-getting-goldman-sachs-to-even-say-the-word-tariff.html
+
 **The Colorful Cult of Le Creuset**\
 `The weighty cookware, which just turned 100, has inspired generations of home chefs and fans who feverishly hunt for their favorite shapes and shades.`\
 https://nytimes.com/2025/04/14/dining/le-creuset.html
@@ -27,16 +39,4 @@ https://nytimes.com/athletic/6262672/2025/04/14/mike-budenholzer-fired-phoenix-s
 **In This French ‘Gypsy,’ Mama’s Got the Stuff. Daughter Too.**\
 `The soprano Natalie Dessay and her daughter, Neïma Naouri, team up to explore one of theater’s most toxic mother-daughter relationships.`\
 https://nytimes.com/2025/04/14/arts/music/gypsy-france-natalie-dessay.html
-
-**USMNT Player Tracker: Carter-Vickers' piledriver, Pulisic the assist king and Richards consolation**\
-`Malik Tillman's encouraging return from injury continued, but there was another wasted afternoon for Gio Reyna on the bench at Dortmund`\
-https://nytimes.com/athletic/6278109/2025/04/14/usmnt-carter-vickers-pulisic-richards-celtic-tracker/
-
-**Luka Dončić becomes first international NBA player with top-selling jersey**\
-`Dončić's league-leading sales this season account for both Mavericks and Lakers jerseys sold.`\
-https://nytimes.com/athletic/6278555/2025/04/14/luka-doncic-nba-best-selling-jersey/
-
-**Tiger Woods, Gary Player welcome Rory McIlroy to Grand Slam club after Masters win**\
-`McIlroy is the sixth Grand Slam winner in men's golf history, joining Woods as the only two men to achieve the feat since 1966.`\
-https://nytimes.com/athletic/6278353/2025/04/14/rory-mcilroy-tiger-woods-masters-win-congratulation-posts/
 

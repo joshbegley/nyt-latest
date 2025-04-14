@@ -1,3 +1,19 @@
+**The Colorful Cult of Le Creuset**\
+`The weighty cookware, which just turned 100, has inspired generations of home chefs and fans who feverishly hunt for their favorite shapes and shades.`\
+https://nytimes.com/2025/04/14/dining/le-creuset.html
+
+**Fugitive Jeweler Wanted by India Is Arrested in Belgium**\
+`The fugitive, Mehul Choksi, is wanted in connection with a major financial scandal at a publicly owned Indian bank. The police in Antwerp, Belgium, arrested him over the weekend.`\
+https://nytimes.com/2025/04/14/world/asia/mehul-choksi-arrest-belgium-nirav-modi.html
+
+**Ex-NFL CB Vontae Davis' cause of death ruled undetermined, per autopsy report**\
+`Davis was found dead on the floor inside his home gym in Southwest Ranches, Fla. in April 2024`\
+https://nytimes.com/athletic/6273412/2025/04/14/vontae-davis-cause-death-undetermined-nfl/
+
+**In This French ‘Gypsy,’ Mama’s Got the Stuff. Daughter Too.**\
+`The soprano Natalie Dessay and her daughter, Neïma Naouri, team up to explore one of theater’s most toxic mother-daughter relationships.`\
+https://nytimes.com/2025/04/14/arts/music/gypsy-france-natalie-dessay.html
+
 **What I'm hearing about the Penguins' trade plans, free agency and next season**\
 `At look at some of the Penguins' concerns — and what they're excited about — as the season comes to an end and summer becomes the focus.`\
 https://nytimes.com/athletic/6278379/2025/04/14/penguins-trades-nhl-free-agency-draft/

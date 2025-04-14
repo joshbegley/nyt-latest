@@ -1,3 +1,15 @@
+**The Colorful Cult of Le Creuset**\
+`The weighty cookware, which just turned 100, has inspired generations of home chefs and fans who feverishly hunt for their favorite shapes and shades.`\
+https://nytimes.com/2025/04/14/dining/le-creuset.html
+
+**Fugitive Jeweler Wanted by India Is Arrested in Belgium**\
+`The fugitive, Mehul Choksi, is wanted in connection with a major financial scandal at a publicly owned Indian bank. The police in Antwerp, Belgium, arrested him over the weekend.`\
+https://nytimes.com/2025/04/14/world/asia/mehul-choksi-arrest-belgium-nirav-modi.html
+
+**Ex-NFL CB Vontae Davis' cause of death ruled undetermined, per autopsy report**\
+`Davis was found dead on the floor inside his home gym in Southwest Ranches, Fla. in April 2024`\
+https://nytimes.com/athletic/6273412/2025/04/14/vontae-davis-cause-death-undetermined-nfl/
+
 **What I'm hearing about the Penguins' trade plans, free agency and next season**\
 `At look at some of the Penguins' concerns — and what they're excited about — as the season comes to an end and summer becomes the focus.`\
 https://nytimes.com/athletic/6278379/2025/04/14/penguins-trades-nhl-free-agency-draft/
@@ -14,7 +26,7 @@ https://nytimes.com/athletic/6262672/2025/04/14/mike-budenholzer-fired-phoenix-s
 
 **In This French ‘Gypsy,’ Mama’s Got the Stuff. Daughter Too.**\
 `The soprano Natalie Dessay and her daughter, Neïma Naouri, team up to explore one of theater’s most toxic mother-daughter relationships.`\
-https://nytimes.com/2025/04/14/arts/dance/gypsy-france-natalie-dessay.html
+https://nytimes.com/2025/04/14/arts/music/gypsy-france-natalie-dessay.html
 
 **USMNT Player Tracker: Carter-Vickers' piledriver, Pulisic the assist king and Richards consolation**\
 `Malik Tillman's encouraging return from injury continued, but there was another wasted afternoon for Gio Reyna on the bench at Dortmund`\
@@ -27,16 +39,4 @@ https://nytimes.com/athletic/6278555/2025/04/14/luka-doncic-nba-best-selling-jer
 **Tiger Woods, Gary Player welcome Rory McIlroy to Grand Slam club after Masters win**\
 `McIlroy is the sixth Grand Slam winner in men's golf history, joining Woods as the only two men to achieve the feat since 1966.`\
 https://nytimes.com/athletic/6278353/2025/04/14/rory-mcilroy-tiger-woods-masters-win-congratulation-posts/
-
-**Republicans Ponder the Unthinkable: Taxing the Rich**\
-`The idea of raising taxes on rich Americans has caught the Republican Party between its populist ambitions and low-tax instincts.`\
-https://nytimes.com/2025/04/14/business/tax-hike-republicans-trump.html
-
-**Bucks can’t get lost in transition against the Pacers if they want to stay in the playoffs**\
-`The Bucks can't have momentary lapses in fast break defense, even for a few possessions, in their first-round series against the Pacers.`\
-https://nytimes.com/athletic/6276967/2025/04/14/bucks-pacers-playoffs-transition-defense/
-
-**Submit your NFL Draft mailbag questions for Patriots reporter Chad Graff**\
-`At long last, the 2025 NFL Draft is just over a week away. With it comes the biggest decisions of the Mike Vrabel era so far.`\
-https://nytimes.com/athletic/6278475/2025/04/14/patriots-mailbag-nfl-draft-chad-graff/
 
