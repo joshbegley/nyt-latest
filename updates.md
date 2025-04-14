@@ -1,3 +1,7 @@
+**Brad Holland’s Disruptive Vision**\
+`His work pushed the boundaries of political cartoons, expanding the possibilities of illustration everywhere.`\
+https://nytimes.com/2025/04/14/arts/brad-holland-illustrations.html
+
 **Sharks captain Logan Couture to announce end of career due to injury**\
 `Couture, who has 701 points in 933 regular-season games, hasn't played since Jan. 2024.`\
 https://nytimes.com/athletic/6279432/2025/04/14/logan-couture-sharks-injury/

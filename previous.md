@@ -1,3 +1,7 @@
+**Brad Holland’s Disruptive Vision**\
+`His work pushed the boundaries of political cartoons, expanding the possibilities of illustration everywhere.`\
+https://nytimes.com/2025/04/14/arts/brad-holland-illustrations.html
+
 **Sharks captain Logan Couture to announce end of career due to injury**\
 `Couture, who has 701 points in 933 regular-season games, hasn't played since Jan. 2024.`\
 https://nytimes.com/athletic/6279432/2025/04/14/logan-couture-sharks-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/04/14/us/harvard-letter.html
 **Bueckers vs. Clark and the names women's basketball card collectors need to know**\
 `Bueckers, Watkins, and Clark are the biggest names in the hobby, but other names might present better buys`\
 https://nytimes.com/athletic/6278366/2025/04/14/paige-bueckers-caitlin-clark-cards-wnba/
-
-**Braden Smith will return to Purdue: What it means for him, college hoops**\
-`Purdue is 87-23 during Smith's tenure, reaching the NCAA Tournament in all three seasons.`\
-https://nytimes.com/athletic/6279332/2025/04/14/purdue-all-american-braden-smith-will-return-senior-season/
 
