@@ -1,3 +1,15 @@
+**Tennis Briefing: Ben Shelton's doubles drama and a battle between entertainment and etiquette**\
+`The American took flak from an opponent for hitting him with a shot - but making players targets is an accepted aspect of doubles`\
+https://nytimes.com/athletic/6275838/2025/04/14/ben-sheltons-tennis-drama-and-a-doubles-battle-between-good-strategy-and-etiquette/
+
+**‘Transformative’ Design That Celebrates Differences**\
+`An architect in Southern California wanted to create a larger home for her family. She was inspired, in part, by West African textiles and a dress she wore as a teenager.`\
+https://nytimes.com/2025/04/14/realestate/susan-nwankpa-gillespie-architect-home.html
+
+**Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
+`Post your questions and Chris Waugh will endeavour to answer as many as possible between 2pm and 3pm BST (9am and 10am ET)`\
+https://nytimes.com/athletic/6277808/2025/04/14/inside-newcastle-questions-answers-howe/
+
 **Liverpool 'planning a big summer' in transfer market - Van Dijk**\
 `The Dutch defender's late winner against West Ham United on Sunday edged Arne Slot's side closer to Premier League title glory.`\
 https://nytimes.com/athletic/6277939/2025/04/14/liverpool-transfers-virgil-van-dijk/

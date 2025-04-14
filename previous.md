@@ -1,3 +1,15 @@
+**Tennis Briefing: Ben Shelton's doubles drama and a battle between entertainment and etiquette**\
+`The American took flak from an opponent for hitting him with a shot - but making players targets is an accepted aspect of doubles`\
+https://nytimes.com/athletic/6275838/2025/04/14/ben-sheltons-tennis-drama-and-a-doubles-battle-between-good-strategy-and-etiquette/
+
+**‘Transformative’ Design That Celebrates Differences**\
+`An architect in Southern California wanted to create a larger home for her family. She was inspired, in part, by West African textiles and a dress she wore as a teenager.`\
+https://nytimes.com/2025/04/14/realestate/susan-nwankpa-gillespie-architect-home.html
+
+**Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
+`Post your questions and Chris Waugh will endeavour to answer as many as possible between 2pm and 3pm BST (9am and 10am ET)`\
+https://nytimes.com/athletic/6277808/2025/04/14/inside-newcastle-questions-answers-howe/
+
 **Liverpool 'planning a big summer' in transfer market - Van Dijk**\
 `The Dutch defender's late winner against West Ham United on Sunday edged Arne Slot's side closer to Premier League title glory.`\
 https://nytimes.com/athletic/6277939/2025/04/14/liverpool-transfers-virgil-van-dijk/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6275442/2025/04/14/panthers-bill-zito-cancer-resear
 **Garrett Crochet's near no-hit return a reminder of White Sox's 'blessing and a curse'**\
 `Crochet's final line of 11 strikeouts, one hit and one walk allowed in 7 1/3 innings correctly represented how dominant he was.`\
 https://nytimes.com/athletic/6277489/2025/04/14/white-sox-red-sox-garrett-crochet/
-
-**Would the Broncos make a first-round trade? What Sean Payton's draft history says**\
-`The Broncos coach has only moved up for players since taking over Denver's football operation. Will he do so once again in the first round?`\
-https://nytimes.com/athletic/6272743/2025/04/14/sean-payton-broncos-first-round-trade/
-
-**If all college players were WNBA Draft-eligible, would Paige Bueckers still be No. 1?**\
-`College stars Sarah Strong, Madison Booker and even the injured JuJu Watkins would be tantalizing options if they could enter the draft.`\
-https://nytimes.com/athletic/6275146/2025/04/14/wnba-draft-eligibility-sarah-strong-paige-bueckers/
-
-**In reversal, Angels now paying for legal costs of Eric Kay, convicted in Tyler Skaggs' death**\
-`The Angels and the man convicted of helping to cause the death of one of their players now appear to be working together. `\
-https://nytimes.com/athletic/6277283/2025/04/14/angels-legal-defense-eric-kay-tyler-skaggs/
 
