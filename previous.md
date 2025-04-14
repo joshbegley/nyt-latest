@@ -1,3 +1,7 @@
+**China’s Leader Courts Vietnam as Trade War With the U.S. Mounts**\
+`Xi Jinping is in Southeast Asia to build bonds with countries that also face U.S. tariffs and have come under pressure from Washington to curb the transshipment of Chinese goods.`\
+https://nytimes.com/2025/04/14/world/asia/china-vietnam-tariffs-trump.html
+
 **Blue Origin Flight Will Take 6 Women, Including Gayle King and Katy Perry, to Space**\
 `The women were set to travel on Blue Origin’s New Shepard rocket, as part of the first all-female space crew in more than 60 years.`\
 https://nytimes.com/2025/04/14/science/blue-origin-katy-perry-gayle-king.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/14/learning/word-of-the-day-vermilion.html
 **'I want to see young guys maximise their potential' - Tom Brady and Birmingham are not done yet**\
 `A mixed weekend saw Birmingham win the League One title, then lose the EFL Trophy final - but the owners say they have loftier ambitions...`\
 https://nytimes.com/athletic/6276447/2025/04/14/tom-brady-birmingham-city-efl-trophy/
-
-**The New York Times in Print for Monday, April 14, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/04/14/todays-new-york-times
 

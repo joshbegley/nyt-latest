@@ -1,3 +1,7 @@
+**China’s Leader Courts Vietnam as Trade War With the U.S. Mounts**\
+`Xi Jinping is in Southeast Asia to build bonds with countries that also face U.S. tariffs and have come under pressure from Washington to curb the transshipment of Chinese goods.`\
+https://nytimes.com/2025/04/14/world/asia/china-vietnam-tariffs-trump.html
+
 **Blue Origin Flight Will Take 6 Women, Including Gayle King and Katy Perry, to Space**\
 `The women were set to travel on Blue Origin’s New Shepard rocket, as part of the first all-female space crew in more than 60 years.`\
 https://nytimes.com/2025/04/14/science/blue-origin-katy-perry-gayle-king.html
