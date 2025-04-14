@@ -1,3 +1,15 @@
+**Ducks sign NCAA free agent Tim Washe fresh off national championship run**\
+`Western Michigan star Alex Bump calls his teammate “the most reliable (center) in college hockey."`\
+https://nytimes.com/athletic/6271084/2025/04/14/ducks-free-agent-tim-washe/
+
+**How to watch the 2025 WNBA Draft: Paige Bueckers expected to go first to Dallas**\
+`Monday night's draft commences the 2025 WNBA campaign, which comes on the heels of an all-time wild offseason.`\
+https://nytimes.com/athletic/6278837/2025/04/14/wnba-draft-2025-paige-bueckers-how-to-watch/
+
+**Older People Seeking Care for Cannabis Use at Greater Risk for Dementia**\
+`Users needing emergency care or hospitalization were at much greater risk of later dementia, researchers reported. That does not prove cannabis was the cause.`\
+https://nytimes.com/2025/04/14/health/cannabis-marijuana-dementia.html
+
 **Asparagus Dresses Up for This Springy Dinner Party**\
 `Drape those stalks with beets, herbs and a little egg, then follow it all up with a luxurious lamb braise and stunning lemon cake.`\
 https://nytimes.com/2025/04/14/dining/spring-menu-lamb-asparagus-lemon-cake.html
