@@ -1,3 +1,15 @@
+**Bucks can’t get lost in transition against the Pacers if they want to stay in the playoffs**\
+`The Bucks can't have momentary lapses in fast break defense, even for a few possessions, in their first-round series against the Pacers.`\
+https://nytimes.com/athletic/6276967/2025/04/14/bucks-pacers-playoffs-transition-defense/
+
+**Two Postscripts on a Column**\
+`Two deeper histories on people mentioned in a recent column: a famous orator and a mother and son who survived the Holocaust.`\
+https://nytimes.com/2025/04/14/opinion/sojourner-truth-america-deportations.html
+
+**Pelicans fire executive VP David Griffin after another playoff miss**\
+`Green will remain coach, per a league source. However, the Pelicans' new lead executive will make the final decision on Green's future.`\
+https://nytimes.com/athletic/6278311/2025/04/14/pelicans-vp-david-griffin-fired/
+
 **Submit your NFL Draft mailbag questions for Patriots reporter Chad Graff**\
 `At long last, the 2025 NFL Draft is just over a week away. With it comes the biggest decisions of the Mike Vrabel era so far.`\
 https://nytimes.com/athletic/6278475/2025/04/14/patriots-mailbag-nfl-draft-chad-graff/

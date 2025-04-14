@@ -1,3 +1,7 @@
+**Republicans Ponder the Unthinkable: Taxing the Rich**\
+`The idea of raising taxes on rich Americans has caught the Republican Party between its populist ambitions and low-tax instincts.`\
+https://nytimes.com/2025/04/14/business/tax-hike-republicans-trump.html
+
 **Bucks can’t get lost in transition against the Pacers if they want to stay in the playoffs**\
 `The Bucks can't have momentary lapses in fast break defense, even for a few possessions, in their first-round series against the Pacers.`\
 https://nytimes.com/athletic/6276967/2025/04/14/bucks-pacers-playoffs-transition-defense/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6278311/2025/04/14/pelicans-vp-david-griffin-fired/
 **Aaron Judge to make Team USA debut in 2026 World Baseball Classic**\
 `Judge will take over the mantle of Team USA's captain from Mike Trout on the 2026 roster.`\
 https://nytimes.com/athletic/6276383/2025/04/14/yankees-aaron-judge-team-usa-world-baseball-classic/
-
-**WNBA Draft: 'Bueckers is a clear lock for No. 1,' but what happens next?**\
-`Paige Bueckers' No. 1 pick odds are off the board at certain books. But where will Hailey Van Lith and other big names land? `\
-https://nytimes.com/athletic/6278168/2025/04/14/wnba-draft-paige-bueckers-odds-van-lith/
 
