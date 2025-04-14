@@ -1,3 +1,20 @@
+**Orban Escalates Culture War in Hungary by Mandating Two Genders Only**\
+`The governing Fidesz party passed a constitutional amendment stating that all Hungarians are either male or female, and another protecting the “moral development” of children.`\
+https://nytimes.com/2025/04/14/world/europe/hungary-two-genders-constitution.html
+
+**Former Sheriff’s Deputy Is Sentenced to 3 Years in Killing of Colorado Man**\
+`Andrew Buen was found guilty of criminally negligent homicide in February in the 2022 killing of Christian Glass, who was experiencing a mental health crisis on a mountain road.`\
+https://nytimes.com/2025/04/14/us/colorado-deputy-christian-glass-sentencing.html
+
+**Scoop City: Re-drafting No. 1 picks from 2010 to 2020**\
+`We're redrafting No. 1 picks from 2010 to 2020, explaining New Orleans' QB situation and Caleb Williams' first impressions of Ben Johnson`\
+https://nytimes.com/athletic/6278736/2025/04/14/redrafting-nfl-2010-2020-draft-pick-history-scoop-city/
+
+**Champions League quarter-final best bets: Can Villa and Dortmund turn the tide?**\
+`Brett Koremenos outlines the best bets for Tuesday’s Champions League quarter-final second-legs.
+`\
+https://nytimes.com/athletic/6277914/2025/04/14/champions-league-quarter-final-second-leg-betting-tips-predictions-odds/
+
 **Mark Zuckerberg Is Back in the Hot Seat in a Crucial Trial**\
 `Mark Zuckerberg has appeared before Congress more times than any other tech leader.`\
 https://nytimes.com/video/business/100000010103020/mark-zuckerberg-is-back-in-the-hot-seat-in-a-crucial-trial.html
