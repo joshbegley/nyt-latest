@@ -1,3 +1,11 @@
+**Democratic lawmakers denounce Trump and El Salvador’s president.**\
+`By Talya Minsberg`\
+https://nytimes.com/live/2025/04/14/us/trump-news-tariffs/trump-el-salvador-deportations-abrego-garcia
+
+**As Trump Makes His Case, He Turns to the Oval Office Set Piece**\
+`Once again, the president used the gilded room as a place to flex his executive muscle while recasting the narrative around a consequential policy.`\
+https://nytimes.com/2025/04/14/us/politics/trump-deportations-oval-office.html
+
 **El Salvador Won’t Return Wrongly Deported Man**\
 `Also, Harvard said it would not comply with Trump’s demands.`\
 https://nytimes.com/2025/04/14/briefing/el-salvador-deportations-harvard-university-trump.html

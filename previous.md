@@ -1,3 +1,11 @@
+**Democratic lawmakers denounce Trump and El Salvador’s president.**\
+`By Talya Minsberg`\
+https://nytimes.com/live/2025/04/14/us/trump-news-tariffs/trump-el-salvador-deportations-abrego-garcia
+
+**As Trump Makes His Case, He Turns to the Oval Office Set Piece**\
+`Once again, the president used the gilded room as a place to flex his executive muscle while recasting the narrative around a consequential policy.`\
+https://nytimes.com/2025/04/14/us/politics/trump-deportations-oval-office.html
+
 **El Salvador Won’t Return Wrongly Deported Man**\
 `Also, Harvard said it would not comply with Trump’s demands.`\
 https://nytimes.com/2025/04/14/briefing/el-salvador-deportations-harvard-university-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/americas/100000010110367/bukele-trump-deported-m
 **Eating Frog Legs During Charli XCX’s Coachella Set**\
 `Outstanding in the Field offers an unexpected festival experience, hosting a four-course dinner as the bands play.`\
 https://nytimes.com/2025/04/14/style/coachella-dinners-outstanding-in-the-field.html
-
-**Read the Trump Administration’s Letter to Harvard**\
-`A letter sent to Harvard on Friday by the Trump administration demanded that the university make a series of policy changes in order to continue to receive federal funding.`\
-https://nytimes.com/interactive/2025/04/14/us/trump-harvard-demands.html
-
-**Read Harvard’s Response to the Trump Administration**\
-`Harvard University’s lawyers responded on Monday to the Trump Administration’s letter demanding a series of policy changes, saying the demands were unlawful and that Harvard would not comply.`\
-https://nytimes.com/interactive/2025/04/14/us/harvard-letter.html
 
