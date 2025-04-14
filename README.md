@@ -1,6 +1,10 @@
+**Does French teen phenom Dominique Malonga have the biggest upside in the WNBA Draft?**\
+`"No Offseason" discuss why Dominique Malonga might have the highest upside of any player in the 2025 WNBA Draft.`\
+https://nytimes.com/athletic/6272924/2025/04/14/no-offseason-wnba-draft-dominique-malonga-teen/
+
 **Tennis Briefing: Ben Shelton's doubles drama and a battle between entertainment and etiquette**\
 `The American took flak from an opponent for hitting him with a shot - but making players targets is an accepted aspect of doubles`\
-https://nytimes.com/athletic/6275838/2025/04/14/ben-sheltons-tennis-drama-and-a-doubles-battle-between-good-strategy-and-etiquette/
+https://nytimes.com/athletic/6275838/2025/04/14/tennis-etiquette-doubles-ben-shelton-vavassori-monte-carlo/
 
 **‘Transformative’ Design That Celebrates Differences**\
 `An architect in Southern California wanted to create a larger home for her family. She was inspired, in part, by West African textiles and a dress she wore as a teenager.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6277665/2025/04/14/lakers-nba-playoffs-timberwolves
 **Panthers everywhere in South Florida: Inside GM Bill Zito's new campaign for cancer research**\
 `The Florida Panthers GM drew inspiration from Cows on Parade with the ultimate goal of raising $1 million to fight cancer.`\
 https://nytimes.com/athletic/6275442/2025/04/14/panthers-bill-zito-cancer-research/
-
-**Garrett Crochet's near no-hit return a reminder of White Sox's 'blessing and a curse'**\
-`Crochet's final line of 11 strikeouts, one hit and one walk allowed in 7 1/3 innings correctly represented how dominant he was.`\
-https://nytimes.com/athletic/6277489/2025/04/14/white-sox-red-sox-garrett-crochet/
 
