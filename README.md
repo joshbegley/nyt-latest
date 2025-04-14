@@ -1,3 +1,7 @@
+**Sharks captain Logan Couture to announce end of career due to injury**\
+`Couture, who has 701 points in 933 regular-season games, hasn't played since Jan. 2024.`\
+https://nytimes.com/athletic/6279432/2025/04/14/logan-couture-sharks-injury/
+
 **Columbia Activist Arrested by ICE at His Appointment for Citizenship**\
 `Mohsen Mahdawi, a legal permanent resident, has lived in the United States for 10 years and was arrested in Vermont. He has not been charged with a crime.`\
 https://nytimes.com/2025/04/14/nyregion/columbia-student-palestinian-arrested-ice.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6278366/2025/04/14/paige-bueckers-caitlin-clark-car
 **Braden Smith will return to Purdue: What it means for him, college hoops**\
 `Purdue is 87-23 during Smith's tenure, reaching the NCAA Tournament in all three seasons.`\
 https://nytimes.com/athletic/6279332/2025/04/14/purdue-all-american-braden-smith-will-return-senior-season/
-
-**Immigration Officials Detain Columbia Student**\
-`A witness filmed Mohsen Mahdawi, a student protest organizer at Columbia and legal permanent resident, being detained by immigration officials before his citizenship interview in Vermont.`\
-https://nytimes.com/video/us/politics/100000010110239/mohsen-mahdawi-protest-columbia-arrested.html
 
