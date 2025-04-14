@@ -1,3 +1,7 @@
+**Rory McIlroy 'has his masterpiece,' and CBS can celebrate a memorable broadcast**\
+`"We wanted the fans at home to react like we would in the truck," said Sellers Shy, the lead producer of the event for CBS Sports.`\
+https://nytimes.com/athletic/6277061/2025/04/13/rory-mcilroy-wins-masters-cbs-memorable-broadcast/
+
 **Ecuador’s President Wins Re-Election in Nation Rocked by Drug Violence**\
 `In a divisive election season, Daniel Noboa pledged to bring law and order. His opponent immediately contested the results.`\
 https://nytimes.com/2025/04/13/world/americas/ecuador-election.html
