@@ -1,3 +1,19 @@
+**The Padres might be the best team in baseball. So might multiple NL West rivals**\
+`For the Padres, the 13-3 start to this season has been both auspicious and reminiscent.`\
+https://nytimes.com/athletic/6277294/2025/04/14/san-diego-padres-nl-west-mlb-best/
+
+**Can You Uncover the Hidden Titles of a Dozen Recent Best Sellers?**\
+`Test your knowledge of the best-selling books (so far) in 2025 and build a reading list along the way.`\
+https://nytimes.com/interactive/2025/04/14/books/review/hidden-title-books.html
+
+**Corrections: April 13, 2025**\
+`Corrections that appeared in print on Sunday, April 13, 2025.`\
+https://nytimes.com/2025/04/14/pageoneplus/corrections-april-13-2025.html
+
+**No Corrections: April 14, 2025**\
+`No corrections appeared in print on Monday, April 14, 2025.`\
+https://nytimes.com/2025/04/14/pageoneplus/no-corrections-april-14-2025.html
+
 **Kyle Larson's Bristol win a fitting tribute to late Hendrick PR director Jon Edwards**\
 `Kyle Larson dedicated Sunday's win to the late Jon Edwards, whose smiling face rode on the side of the No. 5 car and a handful of others.`\
 https://nytimes.com/athletic/6277421/2025/04/14/kyle-larson-bristol-win-jon-edwards-hendrick-nascar/
