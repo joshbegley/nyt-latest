@@ -1,3 +1,7 @@
+**Gotham FC's Midge Purce returns, Esther scores twice in win over Courage**\
+`With Purce's return, how will coach Juan Carlos Amorós reshape his starting XI?`\
+https://nytimes.com/athletic/6277415/2025/04/13/gotham-midge-purce-return-win-nwsl/
+
 **Farewell to the Last Writer of the Latin American Boom**\
 `The Peruvian author Mario Vargas Llosa was the world’s savviest and most accomplished political novelist.`\
 https://nytimes.com/2025/04/13/books/review/mario-vargas-llosa-appraisal.html
