@@ -1,3 +1,15 @@
+**Columbia Activist Arrested by ICE at His Appointment for Citizenship**\
+`Mohsen Mahdawi, a legal permanent resident, has lived in the United States for 10 years and was arrested in Vermont. He has not been charged with a crime.`\
+https://nytimes.com/2025/04/14/nyregion/columbia-student-palestinian-arrested-ice.html
+
+**Brentford owner Matthew Benham close to agreeing deal to buy Spanish third side**\
+`Merida AD are currently fifth in the Primera Federacion’s group 2 with six games to play.`\
+https://nytimes.com/athletic/6279459/2025/04/14/brentford-benham-merida-ad/
+
+**Braden Smith will return to Purdue: What it means for him, college hoops**\
+`Purdue is 87-23 during Smith's tenure, reaching the NCAA Tournament in all three seasons.`\
+https://nytimes.com/athletic/6279332/2025/04/14/purdue-all-american-braden-smith-will-return-senior-season/
+
 **North Dakota Lawmakers Pass Bill Restricting Library Books Deemed Obscene**\
 `The bill, which applies to public and school libraries, is part of a national push by Republicans to crack down on content they consider inappropriate for children.`\
 https://nytimes.com/2025/04/14/us/north-dakota-books-obscene.html

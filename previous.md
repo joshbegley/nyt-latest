@@ -1,3 +1,11 @@
+**Columbia Activist Arrested by ICE at His Appointment for Citizenship**\
+`Mohsen Mahdawi, a legal permanent resident, has lived in the United States for 10 years and was arrested in Vermont. He has not been charged with a crime.`\
+https://nytimes.com/2025/04/14/nyregion/columbia-student-palestinian-arrested-ice.html
+
+**Brentford owner Matthew Benham close to agreeing deal to buy Spanish third side**\
+`Merida AD are currently fifth in the Primera Federacion’s group 2 with six games to play.`\
+https://nytimes.com/athletic/6279459/2025/04/14/brentford-benham-merida-ad/
+
 **North Dakota Lawmakers Pass Bill Restricting Library Books Deemed Obscene**\
 `The bill, which applies to public and school libraries, is part of a national push by Republicans to crack down on content they consider inappropriate for children.`\
 https://nytimes.com/2025/04/14/us/north-dakota-books-obscene.html
@@ -22,19 +30,11 @@ https://nytimes.com/interactive/2025/04/14/us/harvard-letter.html
 `Bueckers, Watkins, and Clark are the biggest names in the hobby, but other names might present better buys`\
 https://nytimes.com/athletic/6278366/2025/04/14/paige-bueckers-caitlin-clark-cards-wnba/
 
-**All-American guard Braden Smith will return to Purdue for senior season**\
+**Braden Smith will return to Purdue: What it means for him, college hoops**\
 `Purdue is 87-23 during Smith's tenure, reaching the NCAA Tournament in all three seasons.`\
 https://nytimes.com/athletic/6279332/2025/04/14/purdue-all-american-braden-smith-will-return-senior-season/
 
 **Immigration Officials Detain Columbia Student**\
 `A witness filmed Mohsen Mahdawi, a student protest organizer at Columbia and legal permanent resident, being detained by immigration officials before his citizenship interview in Vermont.`\
 https://nytimes.com/video/us/politics/100000010110239/mohsen-mahdawi-protest-columbia-arrested.html
-
-**13 Unforgettable Looks at Coachella**\
-`Nearly naked gowns, glow-in-the-dark bodices, metal armor and more.`\
-https://nytimes.com/2025/04/14/style/coachella-2025-lady-gaga-jennie-bernie-sanders.html
-
-**Tuesday Briefing: El Salvador Won’t Return Deportee**\
-`Plus, remembering Mario Vargas Llosa.`\
-https://nytimes.com/2025/04/14/briefing/el-salvador-deportee-meta-trial-xi-asia-tour.html
 
