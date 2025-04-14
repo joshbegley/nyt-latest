@@ -1,3 +1,11 @@
+**N.Y.C. Helicopter Company Shuts Operations After Deadly Crash, F.A.A. Says**\
+`All six people on board the craft, operated by New York Helicopter Tours, died when it crashed into the Hudson River on Thursday.`\
+https://nytimes.com/2025/04/13/nyregion/ny-helicopter-tours-shut-down.html
+
+**Rory McIlroy won the Masters, finally. The roars told the story**\
+`It might have been an internal waging of the wars for McIlroy, but all of Augusta National felt it with him.`\
+https://nytimes.com/athletic/6277418/2025/04/13/rory-mcilroy-masters-roar-augusta-national/
+
 **Monday Briefing: China Pauses Crucial Exports**\
 `Plus, an art forest in Thailand.`\
 https://nytimes.com/2025/04/13/briefing/china-us-tariff-ukraine-russia-saudi-arabia-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6277367/2025/04/13/blue-jackets-jet-greaves-fantill
 **Farewell to the Last Writer of the Latin American Boom**\
 `The Peruvian author Mario Vargas Llosa was the world’s savviest and most accomplished political novelist.`\
 https://nytimes.com/2025/04/13/books/review/mario-vargas-llosa-appraisal.html
-
-**Gotham FC's Midge Purce returns, Esther scores twice in win over Courage**\
-`With Purce's return, how will coach Juan Carlos Amorós reshape his starting XI?`\
-https://nytimes.com/athletic/6277415/2025/04/13/gotham-midge-purce-return-win-nwsl/
-
-**Paige Bueckers signing 3-year deal with Unrivaled: Source**\
-`Bueckers' first-year Unrivaled salary will exceed what she can earn in all four years of an WNBA rookie contract, a source said.`\
-https://nytimes.com/athletic/6277307/2025/04/13/paige-bueckers-unrivaled-contract/
 
