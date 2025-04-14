@@ -1,3 +1,15 @@
+**What to Know About the Mistaken Deportation of a Maryland Man to El Salvador**\
+`President Trump’s aides abruptly said the man, Kilmar Armando Abrego Garcia, had been lawfully sent to a prison in El Salvador, contradicting what officials themselves have said in court filings.`\
+https://nytimes.com/2025/04/14/us/politics/abrego-garcia-trump-deportations-el-salvador.html
+
+**Older People Seeking Care for Cannabis Use at Greater Risk for Dementia, Study Finds**\
+`Users needing emergency care or hospitalization were more likely to later develop dementia, researchers reported. That does not prove cannabis was the cause.`\
+https://nytimes.com/2025/04/14/health/cannabis-marijuana-dementia.html
+
+**Harvard Says It Will Not Comply With Trump Administration’s Demands**\
+`Federal officials said Harvard must enact “merit-based reform” in hiring and admissions and report international students who broke rules, among other steps. Harvard called the demands unlawful.`\
+https://nytimes.com/2025/04/14/us/harvard-trump-reject-demands.html
+
 **NBA champion odds: Thunder open playoffs as title favorite ahead of Celtics, Cavs**\
 `The Oklahoma City Thunder are the favorites to win the NBA title as the postseason nears. `\
 https://nytimes.com/athletic/6278809/2025/04/14/nba-playoffs-champion-odds-thunder-celtics-cavs/
