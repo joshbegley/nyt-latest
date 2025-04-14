@@ -1,3 +1,11 @@
+**Tuesday Briefing: El Salvador Won’t Return Deportee**\
+`Plus, remembering Mario Vargas Llosa.`\
+https://nytimes.com/2025/04/14/briefing/el-salvador-deportee-meta-trial-xi-asia-tour.html
+
+**5 Migrants Feared Dead After Boat Capsizes Off Florida Coast**\
+`One person died and four others were rescued on Sunday, two days after the boat capsized off the state’s Atlantic coast, the authorities said.`\
+https://nytimes.com/2025/04/14/us/florida-boat-capsize-coast-guard.html
+
 **Questions for The Morning**\
 `What’s on your mind?`\
 https://nytimes.com/2025/04/14/briefing/questions-for-the-morning.html
