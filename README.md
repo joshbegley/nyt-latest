@@ -1,3 +1,7 @@
+**What We Know About the Arson Attack on the Governor’s House in Pennsylvania**\
+`Gov. Josh Shapiro was forced to evacuate with his family. The authorities have charged a man with attempted murder, arson and terrorism.`\
+https://nytimes.com/2025/04/14/us/governor-josh-shapiro-arson-attack-cody-balmer.html
+
 **China’s Leader Courts Vietnam as Trade War With the U.S. Mounts**\
 `Xi Jinping is in Southeast Asia to build bonds with countries that also face U.S. tariffs and have come under pressure from Washington to curb the transshipment of Chinese goods.`\
 https://nytimes.com/2025/04/14/world/asia/china-vietnam-tariffs-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6276963/2025/04/14/warriors-lose-face-grizzlies-pla
 **Word of the Day: vermilion**\
 `This word has appeared in 24 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/04/14/learning/word-of-the-day-vermilion.html
-
-**'I want to see young guys maximise their potential' - Tom Brady and Birmingham are not done yet**\
-`A mixed weekend saw Birmingham win the League One title, then lose the EFL Trophy final - but the owners say they have loftier ambitions...`\
-https://nytimes.com/athletic/6276447/2025/04/14/tom-brady-birmingham-city-efl-trophy/
 
