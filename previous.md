@@ -1,3 +1,11 @@
+**College baseball week in review: How are the former Pac-12 schools faring in their new leagues?**\
+`Georgia outlasts Arkansas in thrilling series. TCU, West Virginia rolling in the Big 12. Yeshiva snaps 100-game losing streak!`\
+https://nytimes.com/athletic/6276587/2025/04/14/college-baseball-realignment-pac-12-big-ten-big-12/
+
+**The Windup: Who won this revenge game?**\
+`Welcome to The Windup, The Athletic's daily MLB newsletter.`\
+https://nytimes.com/athletic/6277724/2025/04/14/red-sox-white-sox-garrett-crochet-the-windup/
+
 **The Padres might be the best team in baseball. So might multiple NL West rivals**\
 `For the Padres, the 13-3 start to this season has been both auspicious and reminiscent.`\
 https://nytimes.com/athletic/6277294/2025/04/14/san-diego-padres-nl-west-mlb-best/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6277813/2025/04/14/jimmy-butler-golden-state-warrio
 **When Elected Leaders Pursue Risky Policies, What Can Stop Them?**\
 `President Trump issued a partial, temporary reprieve on tariffs that had sent the stock market tumbling. He did so only after U.S. government bonds showed signs of distress.`\
 https://nytimes.com/2025/04/14/world/americas/trump-tariffs-bond-market.html
-
-**Weekend NHL rankings: A top 16, oddly specific predictions and Gold Plan standings**\
-`In the last Weekend Rankings of the season, a primer on each playoff team's chances and a wonky year for the Gold Plan.`\
-https://nytimes.com/athletic/6276356/2025/04/14/nhl-weekend-rankings-gold-plan-oddly-specific-predictions/
-
-**Military Leader Wins Presidential Election in Gabon**\
-`Brice Oligui Nguema had promised to relinquish power after he led a coup in 2023. He now is set to lead the oil-rich country for the next seven years.`\
-https://nytimes.com/2025/04/14/world/africa/gabon-presidential-election-nguema.html
 

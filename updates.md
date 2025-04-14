@@ -1,3 +1,11 @@
+**College baseball week in review: How are the former Pac-12 schools faring in their new leagues?**\
+`Georgia outlasts Arkansas in thrilling series. TCU, West Virginia rolling in the Big 12. Yeshiva snaps 100-game losing streak!`\
+https://nytimes.com/athletic/6276587/2025/04/14/college-baseball-realignment-pac-12-big-ten-big-12/
+
+**The Windup: Who won this revenge game?**\
+`Welcome to The Windup, The Athletic's daily MLB newsletter.`\
+https://nytimes.com/athletic/6277724/2025/04/14/red-sox-white-sox-garrett-crochet-the-windup/
+
 **The Padres might be the best team in baseball. So might multiple NL West rivals**\
 `For the Padres, the 13-3 start to this season has been both auspicious and reminiscent.`\
 https://nytimes.com/athletic/6277294/2025/04/14/san-diego-padres-nl-west-mlb-best/
