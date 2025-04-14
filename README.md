@@ -2,7 +2,7 @@
 `Gordon has established himself as one of the game’s best slot corners, and this contract is paying him that way.`\
 https://nytimes.com/athletic/6277179/2025/04/13/kyler-gordon-bears-extension/
 
-**Braves takeaways: Chris Sale frustrated, Spencer Strider and Alex Verdugo coming soon**\
+**Braves takeaways: Chris Sale frustrated; Spencer Strider and Alex Verdugo coming soon**\
 `In Sale's past two starts, he’s given up 15 hits and nine runs (eight earned) in nine innings. The offense isn't helping him.`\
 https://nytimes.com/athletic/6277046/2025/04/13/atlanta-braves-chris-sale-spencer-strider/
 
