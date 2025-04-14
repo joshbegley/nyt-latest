@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>It has been a nice, quiet offseason &#8230; and then Nico happened. What should we talk about this week?</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6278597/2025/04/14/submit-a-question-for-stewart-mandels-college-football-mailbag-298/
+
 **Sources: Mike Budenholzer out as Suns coach after just one season**\
 `Mat Ishbia has made coaching changes in each of the three offseasons since he took ownership of the Suns.`\
 https://nytimes.com/athletic/6262672/2025/04/14/mike-budenholzer-fired-phoenix-suns-nba-head-coach/
@@ -33,8 +39,4 @@ https://nytimes.com/athletic/6278475/2025/04/14/patriots-mailbag-nfl-draft-chad-
 **Cuomo Wins Backing of 2 Major Unions That Once Pushed Him to Resign**\
 `Former Gov. Andrew M. Cuomo’s bid for New York City mayor was endorsed by two of the city’s largest unions, Local 32BJ and the Hotel and Gaming Trades Council.`\
 https://nytimes.com/2025/04/14/nyregion/cuomo-endorsed-unions-32bj-hotels.html
-
-**Two Postscripts on a Column**\
-`Two deeper histories on people mentioned in a recent column: a famous orator and a mother and son who survived the Holocaust.`\
-https://nytimes.com/2025/04/14/opinion/sojourner-truth-america-deportations.html
 
