@@ -1,3 +1,19 @@
+**Bueckers vs. Clark and the names women's basketball card collectors need to know**\
+`Bueckers, Watkins, and Clark are the biggest names in the hobby, but other names might present better buys`\
+https://nytimes.com/athletic/6278366/2025/04/14/paige-bueckers-caitlin-clark-cards-wnba/
+
+**All-American guard Braden Smith will return to Purdue for senior season**\
+`Purdue is 87-23 during Smith's tenure, reaching the NCAA Tournament in all three seasons.`\
+https://nytimes.com/athletic/6279332/2025/04/14/purdue-all-american-braden-smith-will-return-senior-season/
+
+**Immigration Officials Detain Columbia Student**\
+`A witness filmed Mohsen Mahdawi, a student protest organizer at Columbia and legal permanent resident, being detained by immigration officials before his citizenship interview in Vermont.`\
+https://nytimes.com/video/us/politics/100000010110239/mohsen-mahdawi-protest-columbia-arrested.html
+
+**13 Unforgettable Looks at Coachella**\
+`Nearly naked gowns, glow-in-the-dark bodices, metal armor and more.`\
+https://nytimes.com/2025/04/14/style/coachella-2025-lady-gaga-jennie-bernie-sanders.html
+
 **Tuesday Briefing: El Salvador Won’t Return Deportee**\
 `Plus, remembering Mario Vargas Llosa.`\
 https://nytimes.com/2025/04/14/briefing/el-salvador-deportee-meta-trial-xi-asia-tour.html
