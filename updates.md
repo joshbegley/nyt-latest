@@ -1,3 +1,11 @@
+**Cardinals takeaways: Evaluating 3 pitching performances from series win over Phillies**\
+`As St. Louis rides the highs and lows of the early season, its starting rotation is one of the areas under the most scrutiny.`\
+https://nytimes.com/athletic/6276367/2025/04/14/cardinals-takeaways-series-win-phillies/
+
+**What's the WNBA Draft order? Who are the likely first-round picks?**\
+`How to watch, who to watch and everything else you need to know about Monday's draft. `\
+https://nytimes.com/athletic/6276872/2025/04/14/wnba-draft-order-first-round-picks/
+
 **The Pulse: Rory's tears win the day**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6277364/2025/04/14/rory-mcilroy-masters-the-pulse/

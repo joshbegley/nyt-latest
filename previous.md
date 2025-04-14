@@ -1,3 +1,11 @@
+**Cardinals takeaways: Evaluating 3 pitching performances from series win over Phillies**\
+`As St. Louis rides the highs and lows of the early season, its starting rotation is one of the areas under the most scrutiny.`\
+https://nytimes.com/athletic/6276367/2025/04/14/cardinals-takeaways-series-win-phillies/
+
+**What's the WNBA Draft order? Who are the likely first-round picks?**\
+`How to watch, who to watch and everything else you need to know about Monday's draft. `\
+https://nytimes.com/athletic/6276872/2025/04/14/wnba-draft-order-first-round-picks/
+
 **The Pulse: Rory's tears win the day**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6277364/2025/04/14/rory-mcilroy-masters-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6276273/2025/04/14/nico-iamaleava-tennessee-dispute
 **What a blind résumé test can tell us about the Guardians**\
 `Early numbers might not tell the whole story for several Guardians.`\
 https://nytimes.com/athletic/6273678/2025/04/14/cleveland-gaurdians-blind-resume-test/
-
-**Why the Packers might finally draft a wide receiver in the first round**\
-`There are four wide receivers in this year's draft whom the Packers would realistically select in the first round.`\
-https://nytimes.com/athletic/6274650/2025/04/14/packers-nfl-wide-receiver-first-round/
-
-**At last, Rory McIlroy has his seat at the table**\
-`Catharsis, thy name is Rory.`\
-https://nytimes.com/athletic/6277429/2025/04/14/rory-mcilroy-masters-green-jacket/
 
