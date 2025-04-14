@@ -1,3 +1,7 @@
+**Sharks captain Logan Couture to announce end of career due to injury**\
+`Couture, who has 701 points in 933 regular-season games, hasn't played since Jan. 2024.`\
+https://nytimes.com/athletic/6279432/2025/04/14/logan-couture-sharks-injury/
+
 **Columbia Activist Arrested by ICE at His Appointment for Citizenship**\
 `Mohsen Mahdawi, a legal permanent resident, has lived in the United States for 10 years and was arrested in Vermont. He has not been charged with a crime.`\
 https://nytimes.com/2025/04/14/nyregion/columbia-student-palestinian-arrested-ice.html
