@@ -1,3 +1,7 @@
+**This Week in Mets: Three early thoughts for the first 15 games**\
+`The Mets are winning, even when their purported strength — their offense — has been in a bit of a slump.`\
+https://nytimes.com/athletic/6277444/2025/04/14/this-week-in-mets-three-early-thoughts/
+
 **Joe Mazzulla says Celtics' great regular season doesn't matter with playoffs here**\
 `"The season goes by fast, but it’s been fun so far,” Jayson Tatum said as the Celtics prepare for the playoffs. `\
 https://nytimes.com/athletic/6276995/2025/04/14/boston-celtics-nba-playoffs-joe-mazzulla/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6277429/2025/04/14/rory-mcilroy-masters-green-jacke
 **2025 NFL Draft QB matchmaker: What are best fits for Cam Ward, Shedeur Sanders, others?**\
 `Which teams should select each of the top 10 QB prospects in this year's draft? We take a shot at finding ideal landing spots.`\
 https://nytimes.com/athletic/6272307/2025/04/14/nfl-draft-2025-quarterbacks-best-fits/
-
-**Inside 72 hours at Tennessee: How did it fall apart for Vols and their $2 million QB?**\
-`After three days of drama and spring ball at Tennessee, head coach Josh Heupel reiterated: "No one's bigger than the Power T."`\
-https://nytimes.com/athletic/6275827/2025/04/14/tennessee-football-nico-iamaleava-holdout-transfer/
 

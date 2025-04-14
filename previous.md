@@ -1,40 +1,40 @@
-**Bills mock draft: Which players are most appealing a week before the NFL Draft**\
-`There's not much time before the Bills will need to make their picks.`\
-https://nytimes.com/athletic/6273291/2025/04/14/buffalo-bills-mock-draft-nfl-2025-prospects/
+**Joe Mazzulla says Celtics' great regular season doesn't matter with playoffs here**\
+`"The season goes by fast, but it’s been fun so far,” Jayson Tatum said as the Celtics prepare for the playoffs. `\
+https://nytimes.com/athletic/6276995/2025/04/14/boston-celtics-nba-playoffs-joe-mazzulla/
 
-**Browns QB tracker: The 4 passers Cleveland should consider in NFL Draft**\
-`Which rookie passer will join Joe Flacco and Kenny Pickett in Cleveland's QB room? We list them in order of most likely to least likely. `\
-https://nytimes.com/athletic/6276013/2025/04/14/browns-quarterback-tracker-nfl-draft/
+**Reds' Hunter Greene 'awesome' in first career W against Pirates: C. Notes**\
+`Greene allowed just two hits, had eight strikeouts and just one walk over seven shutout innings as the Reds swept the Pirates at home.`\
+https://nytimes.com/athletic/6276839/2025/04/14/c-notes-reds-hunter-greene/
 
-**The New York Times International Edition in Print for Tuesday, April 15, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/04/14/todays-new-york-times-international-edition
+**Five things to remember about L.A. Rams' unique draft strategy**\
+`The Rams have the No. 26 pick — an area Les Snead calls "purgatory" — in Round 1 of the NFL Draft. Here's insight into the team's process.`\
+https://nytimes.com/athletic/6271231/2025/04/14/la-rams-nfl-draft-strategy-sean-mcvay/
 
-**In Ukraine, Porn Is Illegal. So Why Are Its Creators Paying Taxes?**\
-`Ukraine makes tax revenue off the creators of pornographic content, but also threatens them with prosecution. A draft law aims to fix what many say is an unfair contradiction.`\
-https://nytimes.com/2025/04/14/world/europe/ukraine-pornography-onlyfans.html
+**Taking a WR in Round 1 makes most sense for Cowboys in the NFL Draft**\
+`Dallas has CeeDee Lamb at No. 1 and have options at receivers three through six. Who's the Cowboys' best option at No. 12 if they go WR?`\
+https://nytimes.com/athletic/6276737/2025/04/14/cowboys-nfl-draft-first-round-receiver-options/
 
-**A Small City That Lost Big in the Dominican Nightclub Tragedy**\
-`Haina, a city just outside the Dominican capital, lost 25 people in the Jet Set disaster, including community leaders and cultural icons.`\
-https://nytimes.com/2025/04/14/world/americas/haina-dominican-republic-nightclub.html
+**Four possible solutions to stop the Nico Iamaleava situation from repeating itself**\
+`The Iamaleava news could be a flashpoint that results in action, or it could be just another in a long list of headaches for college sports.`\
+https://nytimes.com/athletic/6276273/2025/04/14/nico-iamaleava-tennessee-dispute/
 
-**James Carville: How to Turn Trump’s Economic Chaos Against Him**\
-`Tie the president to the people’s pain, and make the message local.`\
-https://nytimes.com/2025/04/14/opinion/trump-tariffs-economy-carville.html
+**What a blind résumé test can tell us about the Guardians**\
+`Early numbers might not tell the whole story for several Guardians.`\
+https://nytimes.com/athletic/6273678/2025/04/14/cleveland-gaurdians-blind-resume-test/
 
-**Federal Work Force Prepares for Another Round of Mass Firings as Deadline Nears**\
-`The Trump administration’s drive to slash and overhaul the government, led by Elon Musk, has already led to tens of thousands of departures.`\
-https://nytimes.com/2025/04/14/us/politics/federal-workers-layoff-doge-trump.html
+**Why the Packers might finally draft a wide receiver in the first round**\
+`There are four wide receivers in this year's draft whom the Packers would realistically select in the first round.`\
+https://nytimes.com/athletic/6274650/2025/04/14/packers-nfl-wide-receiver-first-round/
 
-**Did Derek Carr's shoulder impact Panthers' draft? What could they get for No. 8 pick?**\
-`Carolina has the No. 8 pick and New Orleans sits at No. 9. Will teams eyeing a QB come to the Panthers looking to make a deal?`\
-https://nytimes.com/athletic/6276175/2025/04/14/panthers-nfl-draft-first-round-derek-carr-saints/
+**At last, Rory McIlroy has his seat at the table**\
+`Catharsis, thy name is Rory.`\
+https://nytimes.com/athletic/6277429/2025/04/14/rory-mcilroy-masters-green-jacket/
 
-**Why Developers Think Child Care Is Good for Business**\
-`Placing a preschool or day care center in a building can help sell the development to the community. It also makes the city stronger.`\
-https://nytimes.com/2025/04/14/nyregion/why-developers-think-child-care-is-good-for-business.html
+**2025 NFL Draft QB matchmaker: What are best fits for Cam Ward, Shedeur Sanders, others?**\
+`Which teams should select each of the top 10 QB prospects in this year's draft? We take a shot at finding ideal landing spots.`\
+https://nytimes.com/athletic/6272307/2025/04/14/nfl-draft-2025-quarterbacks-best-fits/
 
-**Are My Pants Really Supposed to Drag on the Ground?**\
-`Puddle pants, or trousers with floor length, pooling hems, are everywhere right now. Our critic offers tips for wearing them without tracking dirt around with you.`\
-https://nytimes.com/2025/04/14/fashion/long-pants-puddle.html
+**Inside 72 hours at Tennessee: How did it fall apart for Vols and their $2 million QB?**\
+`After three days of drama and spring ball at Tennessee, head coach Josh Heupel reiterated: "No one's bigger than the Power T."`\
+https://nytimes.com/athletic/6275827/2025/04/14/tennessee-football-nico-iamaleava-holdout-transfer/
 
