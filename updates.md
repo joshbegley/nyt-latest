@@ -1,3 +1,7 @@
+**In Ukraine, Porn Is Illegal. So Why Are Its Creators Paying Taxes?**\
+`Ukraine makes tax revenue off the creators of pornographic content, but also threatens them with prosecution. A draft law aims to fix what many say is an unfair contradiction.`\
+https://nytimes.com/2025/04/14/world/europe/ukraine-pornography-onlyfans.html
+
 **A Small City That Lost Big in the Dominican Nightclub Tragedy**\
 `Haina, a city just outside the Dominican capital, lost 25 people in the Jet Set disaster, including community leaders and cultural icons.`\
 https://nytimes.com/2025/04/14/world/americas/haina-dominican-republic-nightclub.html

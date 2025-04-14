@@ -1,3 +1,7 @@
+**In Ukraine, Porn Is Illegal. So Why Are Its Creators Paying Taxes?**\
+`Ukraine makes tax revenue off the creators of pornographic content, but also threatens them with prosecution. A draft law aims to fix what many say is an unfair contradiction.`\
+https://nytimes.com/2025/04/14/world/europe/ukraine-pornography-onlyfans.html
+
 **A Small City That Lost Big in the Dominican Nightclub Tragedy**\
 `Haina, a city just outside the Dominican capital, lost 25 people in the Jet Set disaster, including community leaders and cultural icons.`\
 https://nytimes.com/2025/04/14/world/americas/haina-dominican-republic-nightclub.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/14/science/archaeology-papyrus-tax-fraud-trial.html
 **Trump to Meet President of El Salvador, Where Deportees Face Prison**\
 `Mr. Trump has found in President Nayib Bukele a willing partner in a plan to step up the removal of migrants from the United States with little or no due process.`\
 https://nytimes.com/2025/04/14/us/politics/trump-bukele-prison-deported-migrants.html
-
-**Larry Summers on Trump: ‘The First Rule of Holes Is Stop Digging’**\
-`The former treasury secretary on the president’s chaotic trade war.`\
-https://nytimes.com/2025/04/14/opinion/larry-summers-trump-trade-war.html
 
