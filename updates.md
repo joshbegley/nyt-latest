@@ -1,3 +1,7 @@
+**Mario Vargas Llosa, Nobel-Winning Peruvian Novelist, Dies at 89**\
+`Mr. Vargas Llosa, who ran for Peru’s presidency in 1990 and won the Nobel Prize in Literature in 2010, transformed episodes from his personal life into books that reverberated far beyond the borders of his native country.`\
+https://nytimes.com/2025/04/13/obituaries/mario-vargas-llosa-dead.html
+
 **Washington Wizards made their own luck this season, but now they need more**\
 `Washington successfully controlled all it could control during its regular season. That's a good sign.  `\
 https://nytimes.com/athletic/6277117/2025/04/13/washington-wizards-2024-25-season-assessment/
