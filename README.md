@@ -1,8 +1,12 @@
+**Tuesday Briefing: El Salvador Won’t Return Deportee**\
+`Plus, remembering Mario Vargas Llosa.`\
+https://nytimes.com/2025/04/14/briefing/el-salvador-deportee-meta-trial-xi-asia-tour.html
+
 **Questions for The Morning**\
 `What’s on your mind?`\
 https://nytimes.com/2025/04/14/briefing/questions-for-the-morning.html
 
-**5 Migrants Assumed Dead After Boat Capsizes Off Florida Coast**\
+**5 Migrants Feared Dead After Boat Capsizes Off Florida Coast**\
 `One person died and four others were rescued on Sunday, two days after the boat capsized off the state’s Atlantic coast, the authorities said.`\
 https://nytimes.com/2025/04/14/us/florida-boat-capsize-coast-guard.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6278910/2025/04/14/patrick-peterson-retirement-card
 **Wild insider: Buium's first day with the team, missing out on Washe, injury updates, more**\
 `Goalie Marc-Andre Fleury has already made his new teammate, Buium, a prank victim — at least twice.`\
 https://nytimes.com/athletic/6278933/2025/04/14/zeev-buiums-tim-washe-wild-insider/
-
-**The Dollar Keeps Falling as Its ‘Safe Haven’ Status Is Questioned**\
-`President Trump’s tariff blitz has rattled investors and shaken their faith in one of the most reliable and ubiquitous assets in the world economy.`\
-https://nytimes.com/2025/04/14/business/us-dollar-trump-tariffs.html
 
