@@ -1,3 +1,7 @@
+**Washington Wizards made their own luck this season, but now they need more**\
+`Washington successfully controlled all it could control during its regular season. That's a good sign.  `\
+https://nytimes.com/athletic/6277117/2025/04/13/washington-wizards-2024-25-season-assessment/
+
 **It flopped once. Could an Elias Lindholm-David Pastrnak reunion go better next year?**\
 `Lindholm and Pastrnak seem to finally be finding chemistry, which could be good news for the Bruins next season.`\
 https://nytimes.com/athletic/6277123/2025/04/13/bruins-elias-lindholm-david-pastrnak-reunion-penguins/

@@ -1,3 +1,7 @@
+**Washington Wizards made their own luck this season, but now they need more**\
+`Washington successfully controlled all it could control during its regular season. That's a good sign.  `\
+https://nytimes.com/athletic/6277117/2025/04/13/washington-wizards-2024-25-season-assessment/
+
 **It flopped once. Could an Elias Lindholm-David Pastrnak reunion go better next year?**\
 `Lindholm and Pastrnak seem to finally be finding chemistry, which could be good news for the Bruins next season.`\
 https://nytimes.com/athletic/6277123/2025/04/13/bruins-elias-lindholm-david-pastrnak-reunion-penguins/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6276928/2025/04/13/trail-blazers-contract-extension
 **Teenager Charged With Killing Mother and Stepfather in a Plan to Assassinate Trump**\
 `A Wisconsin teenager was arrested last month on several charges, including two counts of first-degree murder. Federal investigators said he had a broader plot to kill the president.`\
 https://nytimes.com/2025/04/13/us/politics/wisconsin-teen-trump-assassination-plot.html
-
-**Yankees takeaways: Carlos Rodón underwhelms with Gerrit Cole out, Jazz Chisholm Jr. freezes**\
-`The Yankees had a two-run lead, but it evaporated in New York's 5-4 loss to the San Francisco Giants on Sunday at Yankee Stadium.`\
-https://nytimes.com/athletic/6276916/2025/04/13/yankees-lose-giants-carlos-rodon-jazz-chisholm-jr/
 
