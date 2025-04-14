@@ -1,3 +1,7 @@
+**White House to Ask Congress to Claw Back Funding From NPR and PBS**\
+`The Trump administration plans to ask Congress to rescind $1.1 billion in federal funding for the Corporation for Public Broadcasting, which provides some funding for public media in the United States.`\
+https://nytimes.com/2025/04/14/business/media/trump-npr-pbs-funding.html
+
 **Democratic lawmakers denounce Trump and El Salvador’s president.**\
 `By Talya Minsberg`\
 https://nytimes.com/live/2025/04/14/us/trump-news-tariffs/trump-el-salvador-deportations-abrego-garcia
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/14/us/north-dakota-books-obscene.html
 **Salvadoran President Says He Won’t Return Wrongly Deported Man**\
 `During a bilateral meeting in the Oval Office, President Trump also said that he was open to sending American citizens convicted of violent crimes to President Nayib Bukele’s prison in El Salvador.`\
 https://nytimes.com/video/world/americas/100000010110367/bukele-trump-deported-man.html
-
-**Eating Frog Legs During Charli XCX’s Coachella Set**\
-`Outstanding in the Field offers an unexpected festival experience, hosting a four-course dinner as the bands play.`\
-https://nytimes.com/2025/04/14/style/coachella-dinners-outstanding-in-the-field.html
 
