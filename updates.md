@@ -1,3 +1,11 @@
+**Aimee Lou Wood Criticizes S.N.L. For ‘Mean’ Sketch**\
+`The actress in HBO’s “The White Lotus,” said she had received thousands of messages of support after “Saturday Night Live” mocked her smile.`\
+https://nytimes.com/2025/04/14/arts/television/aimee-lou-wood-snl-white-lotus.html
+
+**Timberwolves have come a long way. Their nemesis awaits in Round 1 of the playoffs**\
+`Minnesota powered through a bumpy regular season to get here. Can it get past Luka Dončić and the Lakers?`\
+https://nytimes.com/athletic/6276602/2025/04/14/timberwolves-nba-playoffs-lakers-anthony-edwards-luka-doncic/
+
 **The Astros' first 15 games have been defined by these 15 numbers**\
 `The Astros are 7-8, tied for third in the AL West. What can the numbers tell us about what this team might be?`\
 https://nytimes.com/athletic/6276857/2025/04/14/astros-numbers-first-fifteen-games/

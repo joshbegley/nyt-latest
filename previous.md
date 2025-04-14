@@ -1,3 +1,11 @@
+**Aimee Lou Wood Criticizes S.N.L. For ‘Mean’ Sketch**\
+`The actress in HBO’s “The White Lotus,” said she had received thousands of messages of support after “Saturday Night Live” mocked her smile.`\
+https://nytimes.com/2025/04/14/arts/television/aimee-lou-wood-snl-white-lotus.html
+
+**Timberwolves have come a long way. Their nemesis awaits in Round 1 of the playoffs**\
+`Minnesota powered through a bumpy regular season to get here. Can it get past Luka Dončić and the Lakers?`\
+https://nytimes.com/athletic/6276602/2025/04/14/timberwolves-nba-playoffs-lakers-anthony-edwards-luka-doncic/
+
 **The Astros' first 15 games have been defined by these 15 numbers**\
 `The Astros are 7-8, tied for third in the AL West. What can the numbers tell us about what this team might be?`\
 https://nytimes.com/athletic/6276857/2025/04/14/astros-numbers-first-fifteen-games/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6277283/2025/04/14/angels-legal-defense-eric-kay-ty
 **NBA Player Tiers 2025: Tier 5 features some former champions and known veterans**\
 `This year, our Player Tiers project has a familiar feel, but we're also introducing a new way to break it all down.`\
 https://nytimes.com/athletic/6270371/2025/04/14/nba-players-tiers-top-champions-quality/
-
-**Roger Maris jersey worn in key game of his 61 home run season up for sale**\
-`The jersey could fetch more than $2 million`\
-https://nytimes.com/athletic/6277362/2025/04/14/roger-maris-jersey-61/
-
-**Behind the scenes for Zeev Buium's final days with Denver before joining the Wild**\
-`The Athletic spent last week shadowing Buium during his final days in college and saw his impact on Denver — and what he brings to the Wild.`\
-https://nytimes.com/athletic/6274742/2025/04/14/zeev-buium-denver-final-days/
 
