@@ -1,3 +1,7 @@
+**Liverpool 'planning a big summer' in transfer market - Van Dijk**\
+`The Dutch defender's late winner against West Ham United on Sunday edged Arne Slot's side closer to Premier League title glory.`\
+https://nytimes.com/athletic/6277939/2025/04/14/liverpool-transfers-virgil-van-dijk/
+
 **Aimee Lou Wood Criticizes S.N.L. For ‘Mean’ Sketch**\
 `The actress in HBO’s “The White Lotus,” said she had received thousands of messages of support after “Saturday Night Live” mocked her smile.`\
 https://nytimes.com/2025/04/14/arts/television/aimee-lou-wood-snl-white-lotus.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6275146/2025/04/14/wnba-draft-eligibility-sarah-str
 **In reversal, Angels now paying for legal costs of Eric Kay, convicted in Tyler Skaggs' death**\
 `The Angels and the man convicted of helping to cause the death of one of their players now appear to be working together. `\
 https://nytimes.com/athletic/6277283/2025/04/14/angels-legal-defense-eric-kay-tyler-skaggs/
-
-**NBA Player Tiers 2025: Tier 5 features some former champions and known veterans**\
-`This year, our Player Tiers project has a familiar feel, but we're also introducing a new way to break it all down.`\
-https://nytimes.com/athletic/6270371/2025/04/14/nba-players-tiers-top-champions-quality/
 

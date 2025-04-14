@@ -1,3 +1,7 @@
+**Liverpool 'planning a big summer' in transfer market - Van Dijk**\
+`The Dutch defender's late winner against West Ham United on Sunday edged Arne Slot's side closer to Premier League title glory.`\
+https://nytimes.com/athletic/6277939/2025/04/14/liverpool-transfers-virgil-van-dijk/
+
 **Aimee Lou Wood Criticizes S.N.L. For ‘Mean’ Sketch**\
 `The actress in HBO’s “The White Lotus,” said she had received thousands of messages of support after “Saturday Night Live” mocked her smile.`\
 https://nytimes.com/2025/04/14/arts/television/aimee-lou-wood-snl-white-lotus.html
