@@ -1,6 +1,14 @@
+**Questions for The Morning**\
+`What’s on your mind?`\
+https://nytimes.com/2025/04/14/briefing/questions-for-the-morning.html
+
+**5 Migrants Assumed Dead After Boat Capsizes Off Florida Coast**\
+`One person died and four others were rescued on Sunday, two days after the boat capsized off the state’s Atlantic coast, the authorities said.`\
+https://nytimes.com/2025/04/14/us/florida-boat-capsize-coast-guard.html
+
 **Easter Desserts Anyone Can Make**\
 `Mix up chocolate treats in minutes or build a cake over a few hours with these smart tips.`\
-https://nytimes.com/2025/04/14/dining/easter-cakes.html
+https://nytimes.com/2025/04/14/dining/easter-desserts-cakes.html
 
 **Oilers' Mattias Ekholm ruled out for first-round matchup vs. Kings**\
 `Losing top defenceman is a big blow for Edmonton, but the team did get some positive news on the injury front.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6278933/2025/04/14/zeev-buiums-tim-washe-wild-insid
 **The Dollar Keeps Falling as Its ‘Safe Haven’ Status Is Questioned**\
 `President Trump’s tariff blitz has rattled investors and shaken their faith in one of the most reliable and ubiquitous assets in the world economy.`\
 https://nytimes.com/2025/04/14/business/us-dollar-trump-tariffs.html
-
-**Raiders' Maxx Crosby joins Eastern Michigan as assistant GM**\
-`Crosby becomes the first active NFL player to take on the assistant GM title, joining the likes of NBA stars Steph Curry and Trae Young.`\
-https://nytimes.com/athletic/6278918/2025/04/14/maxx-crosby-eastern-michigan-assistant-general-manager/
-
-**Villa working to close deal to sign midfielder Nypan**\
-`18-year-old Nypan, who has been a target for the likes of Arsenal and Girona, opted against leaving Rosenborg in January.`\
-https://nytimes.com/athletic/6279156/2025/04/14/nypan-transfer-update-aston-villa-arsenal/
 
