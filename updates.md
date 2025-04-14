@@ -1,3 +1,7 @@
+**Ecuador Re-elects Daniel Noboa**\
+`President Noboa addressed the nation as his supporters celebrated his re-election on Sunday.`\
+https://nytimes.com/video/world/americas/100000010108855/ecuador-election.html
+
 **What We Know About the Arson Attack on the Governor’s House in Pennsylvania**\
 `Gov. Josh Shapiro was forced to evacuate with his family. The authorities have charged a man with attempted murder, arson and terrorism.`\
 https://nytimes.com/2025/04/14/us/governor-josh-shapiro-arson-attack-cody-balmer.html
