@@ -1,3 +1,15 @@
+**Oilers' Mattias Ekholm ruled out for first-round matchup vs. Kings**\
+`Losing top defenceman is a big blow for Edmonton, but the team did get some positive news on the injury front.`\
+https://nytimes.com/athletic/6279213/2025/04/14/oilers-mattias-ekholm-ruled-out-for-first-round-kings/
+
+**Sverre Nypan is the mighty Norway prospect Aston Villa hope to sign**\
+`All you need to know about Sverre Nypan`\
+https://nytimes.com/athletic/6279214/2025/04/14/sverre-nypan-transfer/
+
+**Wild insider: Buium's first day with the team, missing out on Washe, injury updates, more**\
+`Goalie Marc-Andre Fleury has already made his new teammate, Buium, a prank victim — at least twice.`\
+https://nytimes.com/athletic/6278933/2025/04/14/zeev-buiums-tim-washe-wild-insider/
+
 **Rory McIlroy's Masters win pays off for bettors to chagrin of sportsbooks**\
 `Rory's big win at the Masters was a tough pill to swallow for the sportsbooks, but bettors were smiling after his historic victory.`\
 https://nytimes.com/athletic/6278727/2025/04/14/rory-mcilroy-masters-win-good-for-bettors/
