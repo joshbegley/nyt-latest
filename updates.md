@@ -1,3 +1,7 @@
+**Military Leader Wins Presidential Election in Gabon**\
+`Brice Oligui Nguema had promised to relinquish power after he led a coup in 2023. He now is set to lead the oil-rich country for the next seven years.`\
+https://nytimes.com/2025/04/14/world/africa/gabon-presidential-election-nguema.html
+
 **Canadiens weekly notebook: The power play is far too dependant on Patrik Laine**\
 `Also in the notebook, the disappearance of Angry Slaf, Matheson's unique usage, a chat with Moritz Seider that relates to David Reinbacher.`\
 https://nytimes.com/athletic/6277762/2025/04/14/canadiens-power-play-patrik-laine/
