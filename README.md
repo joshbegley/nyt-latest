@@ -1,3 +1,7 @@
+**Monday Briefing: China Pauses Crucial Exports**\
+`Plus, an art forest in Thailand.`\
+https://nytimes.com/2025/04/13/briefing/china-us-tariff-ukraine-russia-saudi-arabia-trump.html
+
 **Javier Mascherano 'can't tell' whether Lionel Messi will play World Cup**\
 `Messi's friend and Inter Miami coach still isn't sure whether the superstar will make it to one last World Cup.`\
 https://nytimes.com/athletic/6277506/2025/04/13/messi-world-cup-mascherano-inter-miami/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6277415/2025/04/13/gotham-midge-purce-return-win-nw
 **Paige Bueckers signing 3-year deal with Unrivaled: Source**\
 `Bueckers' first-year Unrivaled salary will exceed what she can earn in all four years of an WNBA rookie contract, a source said.`\
 https://nytimes.com/athletic/6277307/2025/04/13/paige-bueckers-unrivaled-contract/
-
-**Stocks Notch Gains After More Tariff Whiplash**\
-`After exempting Chinese imports of smartphones, chips and other electronics, President Trump said on Sunday the carve outs were only temporary.`\
-https://nytimes.com/2025/04/13/business/stock-market-trump-tariffs.html
 
