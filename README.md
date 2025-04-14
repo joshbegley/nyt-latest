@@ -1,3 +1,19 @@
+**Vladimir Guerrero Jr. becomes a Blue Jay for life, cementing a legacy in Canada**\
+`You could not miss the symbolism Monday: This is truly Guerrero's house.`\
+https://nytimes.com/athletic/6275053/2025/04/14/vladimir-guerrero-jr-contract-extension-toronto-blue-jays/
+
+**Antoni Gaudí Was a Venerated Architect. Now He May Become a Saint.**\
+`Pope Francis on Monday signed a decree that recognized the 20th-century visionary’s “heroic virtues” and put him on the path to possible sainthood.`\
+https://nytimes.com/2025/04/14/world/europe/antoni-gaudi-architect-saint.html
+
+**Attack on Shapiro Raises New Fears About Threats to U.S. Politicians**\
+`While political violence has not surged overall, a series of high-profile attempts on American leaders have shaken a public already worried about the country’s toxic political environment.`\
+https://nytimes.com/2025/04/14/us/politics/josh-shapiro-pa-governor-fire-threats.html
+
+**Greene Bought Market Dip Before Trump Paused Tariffs, Profiting From the Rally**\
+`The Georgia congresswoman purchased at least tens of thousands of dollars in stock the day before and the day of President Trump’s pause of a sweeping set of tariffs that sent the market soaring.`\
+https://nytimes.com/2025/04/14/us/politics/marjorie-taylor-greene-bought-stock-trump-tariffs-pause.html
+
 **What to Know About the Mistaken Deportation of a Maryland Man to El Salvador**\
 `President Trump’s aides abruptly said the man, Kilmar Armando Abrego Garcia, had been lawfully sent to a prison in El Salvador, contradicting what officials themselves have said in court filings.`\
 https://nytimes.com/2025/04/14/us/politics/abrego-garcia-trump-deportations-el-salvador.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/04/14/health/cannabis-marijuana-dementia.html
 **Asparagus Dresses Up for This Springy Dinner Party**\
 `Drape those stalks with beets, herbs and a little egg, then follow it all up with a luxurious lamb braise and stunning lemon cake.`\
 https://nytimes.com/2025/04/14/dining/spring-menu-lamb-asparagus-lemon-cake.html
-
-**When will Masters champion Rory McIlroy return to the PGA Tour?**\
-`McIlroy is likely to play in the Zurich Classic in New Orleans from April 24-27.`\
-https://nytimes.com/athletic/6278915/2025/04/14/masters-champion-rory-mcilroy-pga-tour-return-golf/
-
-**Blue Origin Launches All-Female Celebrity Crew into Space**\
-`The first all-female space crew in more than 60 years included six celebrity women in a 10-minute flight on Blue Origin’s New Shepard rocket, the latest launch in the wave of growing space tourism.`\
-https://nytimes.com/video/science/space/100000010109285/blue-origin-launches-female-celebrity-space-crew.html
-
-**They Followed the Rules. Now Thousands of Migrants Are Told, ‘Leave.’**\
-`The Biden administration allowed 900,000 people to use an app to schedule appointments to cross the border. Emails over the last few days told them to leave or face deportation.`\
-https://nytimes.com/2025/04/14/us/migrants-trump.html
-
-**Harvard Says It Will Not Comply With Trump Administration’s Demands**\
-`Federal officials said Harvard must enact “merit-based reform” in hiring and admissions and report international students who broke rules, among other steps. Harvard called the demands unlawful.`\
-https://nytimes.com/2025/04/14/us/harvard-trump-reject-demands.html
 
