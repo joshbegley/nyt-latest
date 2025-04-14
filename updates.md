@@ -1,3 +1,7 @@
+**Britain Cuts Tariffs on Dozens of Products as Global Trade Tensions Rise**\
+`British officials also announced more financing for exporters as the country sought to protect firms hurt by tariffs.`\
+https://nytimes.com/2025/04/14/business/trump-tariffs-uk.html
+
 **Trump Says He Was Told Russia’s Deadly Strike Was a ‘Mistake’**\
 `It was not immediately clear what President Trump meant when he said he had been told Russia “made a mistake” with its missile strike on the Ukrainian city of Sumy.`\
 https://nytimes.com/video/world/europe/100000010109163/trump-russia-ukraine-attack.html
