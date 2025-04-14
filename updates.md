@@ -1,3 +1,11 @@
+**Bears, Kyler Gordon agree to 3-year, $40 million extension**\
+`Gordon has established himself as one of the game’s best slot corners, and this contract is paying him that way.`\
+https://nytimes.com/athletic/6277179/2025/04/13/kyler-gordon-bears-extension/
+
+**Braves takeaways: Chris Sale frustrated, Spencer Strider and Alex Verdugo coming soon**\
+`In Sale's past two starts, he’s given up 15 hits and nine runs (eight earned) in nine innings. The offense isn't helping him.`\
+https://nytimes.com/athletic/6277046/2025/04/13/atlanta-braves-chris-sale-spencer-strider/
+
 **Yohe's 10 observations: Penguins lose and, along the way, may have helped draft pick slot**\
 `The Penguins lost 4-1 to the Bruins on Sunday but may have won in a different way.`\
 https://nytimes.com/athletic/6276211/2025/04/13/penguins-bruins-nhl-draft-lottery-pick/
