@@ -1,3 +1,7 @@
+**At Bristol, NASCAR's ongoing short-track tire conundrum takes another turn**\
+`Many expected another high-tire-wear race at Bristol on Sunday. It never materialized, and it reignited the ongoing tire debate in NASCAR.`\
+https://nytimes.com/athletic/6278611/2025/04/14/bristol-nascar-tires-wear-kyle-larson/
+
 **Bills mailbag: Submit your questions to Joe Buscaglia**\
 `Send your Bills questions to Joe Buscaglia`\
 https://nytimes.com/athletic/6278880/2025/04/14/bills-mailbag-submit-questions-joe-buscaglia/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/14/nyregion/cuomo-chatgpt-housing-ai.html
 **An Orange Fish With Arms and Legs, and a Song You Can’t Escape**\
 `How Steve, a French cartoon with a catchy theme song, became a TikTok star.`\
 https://nytimes.com/2025/04/14/style/le-poisson-steve-tiktok.html
-
-**Watch: Can the Warriors bounce back in the Play-In Tournament?**\
-`"NBA Daily" discusses the Golden State Warriors’ chances against the Memphis Grizzlies in the Play-In Tournament.`\
-https://nytimes.com/athletic/6277961/2025/04/14/warriors-play-in-tournament-nba-daily/
 
