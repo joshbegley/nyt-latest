@@ -1,3 +1,15 @@
+**The Bounce: As NBA Play-In games await, here is your quick NBA playoffs preview**\
+`The NBA regular season is officially over. Let's preview established playoff matchups as the Play-In Tournament nears`\
+https://nytimes.com/athletic/6278224/2025/04/14/nba-play-in-playoffs-luka-doncic-lebron-james-anthony-edwards-lakers-timberwolves-nba-the-bounce/
+
+**What if Mark Zuckerberg Had Not Bought Instagram and WhatsApp?**\
+`Meta’s antitrust trial, in which the government contends the company killed competition by buying young rivals, hinges on unknowable alternate versions of Silicon Valley history.`\
+https://nytimes.com/2025/04/14/technology/mark-zuckerberg-facebook-instagram-whatsapp.html
+
+**Lowetide: Will there be playoff redemption for Oilers' July 1 shopping spree?**\
+`Several of the Oilers' veteran free-agent signings have been trending positive in recent weeks.`\
+https://nytimes.com/athletic/6276230/2025/04/14/edmonton-oilers-players-playoffs-2025-signings/
+
 **Britain Cuts Tariffs on Dozens of Products as Global Trade Tensions Rise**\
 `British officials also announced more financing for exporters as the country sought to protect firms hurt by tariffs.`\
 https://nytimes.com/2025/04/14/business/trump-tariffs-uk.html
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/6278259/2025/04/14/submit-your-ohio-state-football-
 **Kevin Campbell inquest: Hospital cleared of blame for former player's death**\
 `Campbell died from multi-organ failure on June 15 last year, aged 54 after being admitted to Manchester Royal Infirmary.`\
 https://nytimes.com/athletic/6278058/2025/04/14/kevin-campbell-inquest-no-blame/
-
-**How the Jets built the best regular-season team in the NHL**\
-`The Jets have clinched the 2025 Presidents' Trophy, cementing their status as the top regular-season team in the league. What comes next?`\
-https://nytimes.com/athletic/6275280/2025/04/14/winnipeg-jets-presidents-trophy-nhl-playoffs/
-
-**The Athletic college baseball Top 25: Texas takes its turn at No. 1**\
-`The Longhorns become the fourth SEC team to hold the No. 1 ranking, joining Texas A&M, Tennessee and Arkansas.`\
-https://nytimes.com/athletic/6278214/2025/04/14/college-baseball-rankings-texas-arkansas-tennessee-georgia/
-
-**College baseball week in review: How are the former Pac-12 schools faring in their new leagues?**\
-`Georgia outlasts Arkansas in thrilling series. TCU, West Virginia rolling in the Big 12. Yeshiva snaps 100-game losing streak!`\
-https://nytimes.com/athletic/6276587/2025/04/14/college-baseball-realignment-pac-12-big-ten-big-12/
 

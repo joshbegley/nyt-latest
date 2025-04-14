@@ -1,3 +1,15 @@
+**The Bounce: As NBA Play-In games await, here is your quick NBA playoffs preview**\
+`The NBA regular season is officially over. Let's preview established playoff matchups as the Play-In Tournament nears`\
+https://nytimes.com/athletic/6278224/2025/04/14/nba-play-in-playoffs-luka-doncic-lebron-james-anthony-edwards-lakers-timberwolves-nba-the-bounce/
+
+**What if Mark Zuckerberg Had Not Bought Instagram and WhatsApp?**\
+`Meta’s antitrust trial, in which the government contends the company killed competition by buying young rivals, hinges on unknowable alternate versions of Silicon Valley history.`\
+https://nytimes.com/2025/04/14/technology/mark-zuckerberg-facebook-instagram-whatsapp.html
+
+**Lowetide: Will there be playoff redemption for Oilers' July 1 shopping spree?**\
+`Several of the Oilers' veteran free-agent signings have been trending positive in recent weeks.`\
+https://nytimes.com/athletic/6276230/2025/04/14/edmonton-oilers-players-playoffs-2025-signings/
+
 **Britain Cuts Tariffs on Dozens of Products as Global Trade Tensions Rise**\
 `British officials also announced more financing for exporters as the country sought to protect firms hurt by tariffs.`\
 https://nytimes.com/2025/04/14/business/trump-tariffs-uk.html
