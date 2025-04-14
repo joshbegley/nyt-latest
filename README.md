@@ -1,3 +1,7 @@
+**Military Leader Wins Presidential Election in Gabon**\
+`Brice Oligui Nguema had promised to relinquish power after he led a coup in 2023. He now is set to lead the oil-rich country for the next seven years.`\
+https://nytimes.com/2025/04/14/world/africa/gabon-presidential-election-nguema.html
+
 **Canadiens weekly notebook: The power play is far too dependant on Patrik Laine**\
 `Also in the notebook, the disappearance of Angry Slaf, Matheson's unique usage, a chat with Moritz Seider that relates to David Reinbacher.`\
 https://nytimes.com/athletic/6277762/2025/04/14/canadiens-power-play-patrik-laine/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6277154/2025/04/14/maple-leafs-anthony-stolarz-play
 **Does French teen phenom Dominique Malonga have the biggest upside in the WNBA Draft?**\
 `"No Offseason" discuss why Dominique Malonga might have the highest upside of any player in the 2025 WNBA Draft.`\
 https://nytimes.com/athletic/6272924/2025/04/14/no-offseason-wnba-draft-dominique-malonga-teen/
-
-**Tennis Briefing: Ben Shelton's doubles drama and a battle between entertainment and etiquette**\
-`The American took flak from an opponent for hitting him with a shot - but making players targets is an accepted aspect of doubles`\
-https://nytimes.com/athletic/6275838/2025/04/14/tennis-etiquette-doubles-ben-shelton-vavassori-monte-carlo/
 
