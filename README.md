@@ -1,3 +1,7 @@
+**Free of distractions, Crow-Armstrong powers Cubs over Dodgers: 'I'm here to play baseball'**\
+`Crow-Armstrong hit his first two home runs of the season and added a triple as the Cubs took a three-game series against the Dodgers.`\
+https://nytimes.com/athletic/6277646/2025/04/14/pete-crow-armstrong-cubs-win/
+
 **Morgan Rogers plays and plays and plays - even with PSG decider on the horizon**\
 `Like Youri Tielemans and Emiliano Martinez, Rogers is indispensable in Unai Emery's eyes, even with a huge Champions League game next`\
 https://nytimes.com/athletic/6274300/2025/04/14/morgan-rogers-aston-villa-southampton-psg/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6276026/2025/04/14/chelsea-run-in-maresca-dropped-p
 **Paqueta's swashbuckling performance shows West Ham what they will miss if he is banned**\
 `The Brazilian stood out for Graham Potter's team at Anfield - in a game that they were unlucky not to get something from`\
 https://nytimes.com/athletic/6275731/2025/04/14/paqueta-west-ham-premier-league/
-
-**Will the real Nottingham Forest please stand up?**\
-`Forest looked woefully out of sorts against Everton. But they have time to rediscover their identity ahead of facing Spurs next`\
-https://nytimes.com/athletic/6275641/2025/04/14/nottingham-forest-everton-identity/
 
