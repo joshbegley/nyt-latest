@@ -1,3 +1,11 @@
+**Wild insider: Zeev Buium's first day with the team, missing out on Tim Washe, injury updates, more**\
+`Goalie Marc-Andre Fleury has already made his new teammate, Buium, a prank victim — at least twice.`\
+https://nytimes.com/athletic/6278933/2025/04/14/zeev-buiums-tim-washe-wild-insider/
+
+**The Dollar Keeps Falling as ‘Safe Haven’ Status Is Questioned**\
+`President Trump’s tariff blitz has rattled investors and shaken their faith in one of the most reliable and ubiquitous assets in the world economy.`\
+https://nytimes.com/2025/04/14/business/us-dollar-trump-tariffs.html
+
 **Dollar Keeps Falling as ‘Safe Haven’ Status Is Questioned**\
 `President Trump’s tariff blitz has rattled investors and shaken their faith in one of the most reliable and ubiquitous assets in the world economy.`\
 https://nytimes.com/2025/04/14/business/us-dollar-trump-tariffs.html

@@ -1,4 +1,8 @@
-**Dollar Keeps Falling as ‘Safe Haven’ Status Is Questioned**\
+**Wild insider: Zeev Buium's first day with the team, missing out on Tim Washe, injury updates, more**\
+`Goalie Marc-Andre Fleury has already made his new teammate, Buium, a prank victim — at least twice.`\
+https://nytimes.com/athletic/6278933/2025/04/14/zeev-buiums-tim-washe-wild-insider/
+
+**The Dollar Keeps Falling as ‘Safe Haven’ Status Is Questioned**\
 `President Trump’s tariff blitz has rattled investors and shaken their faith in one of the most reliable and ubiquitous assets in the world economy.`\
 https://nytimes.com/2025/04/14/business/us-dollar-trump-tariffs.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/14/us/politics/abrego-garcia-trump-deportations-el-s
 **NBA champion odds: Thunder open playoffs as title favorite ahead of Celtics, Cavs**\
 `The Oklahoma City Thunder are the favorites to win the NBA title as the postseason nears. `\
 https://nytimes.com/athletic/6278809/2025/04/14/nba-playoffs-champion-odds-thunder-celtics-cavs/
-
-**Ducks sign NCAA free agent Tim Washe fresh off national championship run**\
-`Western Michigan star Alex Bump calls his teammate “the most reliable (center) in college hockey."`\
-https://nytimes.com/athletic/6271084/2025/04/14/ducks-free-agent-tim-washe/
 
