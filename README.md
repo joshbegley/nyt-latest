@@ -1,3 +1,7 @@
+**Javier Mascherano 'can't tell' whether Lionel Messi will play World Cup**\
+`Messi's friend and Inter Miami coach still isn't sure whether the superstar will make it to one last World Cup.`\
+https://nytimes.com/athletic/6277506/2025/04/13/messi-world-cup-mascherano-inter-miami/
+
 **‘The Last of Us’ Season 2, Episode 1: Meanwhile, Back at the Ranch**\
 `It seems this season will be driven by one simple idea: that when Joel saved Ellie at the end of Season 1 and then lied to her, he made a mess.`\
 https://nytimes.com/2025/04/13/arts/television/the-last-of-us-season-2-premiere-recap.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6277307/2025/04/13/paige-bueckers-unrivaled-contrac
 **Stocks Notch Gains After More Tariff Whiplash**\
 `After exempting Chinese imports of smartphones, chips and other electronics, President Trump said on Sunday the carve outs were only temporary.`\
 https://nytimes.com/2025/04/13/business/stock-market-trump-tariffs.html
-
-**Masters 2025 Round 4: How Rory McIlroy finally won at Augusta National**\
-`McIlroy is the first European player in men’s golf history to complete the slam.`\
-https://nytimes.com/athletic/6277338/2025/04/13/masters-2025-round-4-rory-mcilroy-won-augusta-national/
 
