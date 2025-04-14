@@ -1,3 +1,7 @@
+**Tariff-Induced Inflation Surge May Be Temporary, Fed Official Says**\
+`Christopher J. Waller argued that the effect of tariffs on prices could be short-lived, but he warned about a bigger hit to growth.`\
+https://nytimes.com/2025/04/14/us/politics/fed-tariffs-inflation.html
+
 **Former NHLer Chris Simon had 'severe' CTE when he died**\
 `A gritty left winger, Simon fought more than 100 times and accumulated 1,824 penalty minutes as a professional.`\
 https://nytimes.com/athletic/6278639/2025/04/14/nhl-chris-simon-cte-diagnosis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6278790/2025/04/14/submit-a-question-for-jordan-bia
 **Orban Escalates Culture War in Hungary by Mandating Two Genders Only**\
 `The governing Fidesz party passed a constitutional amendment stating that all Hungarians are either male or female, and another protecting the “moral development” of children.`\
 https://nytimes.com/2025/04/14/world/europe/hungary-two-genders-constitution.html
-
-**Former Sheriff’s Deputy Is Sentenced to 3 Years in Killing of Colorado Man**\
-`Andrew Buen was found guilty of criminally negligent homicide in February in the 2022 killing of Christian Glass, who was experiencing a mental health crisis on a mountain road.`\
-https://nytimes.com/2025/04/14/us/colorado-deputy-christian-glass-sentencing.html
 
