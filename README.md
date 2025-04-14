@@ -1,3 +1,15 @@
+**The New York Times in Print for Monday, April 14, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/14/todays-new-york-times
+
+**Israeli Dominance Will Make Mideast Deal-Making All the Harder**\
+`Israel, more powerful than ever, has few incentives to make deals with its neighbors.`\
+https://nytimes.com/2025/04/14/opinion/israel-palestinians-syria-lebanon.html
+
+**‘WrestleMania 41,’ Plus 8 Things to Watch on TV this Week**\
+`John Cena continues his farewell tour, and ‘Abbott Elementary’ concludes its fourth season.`\
+https://nytimes.com/2025/04/14/arts/television/wrestlemania-41-plus-8-things-to-watch-on-tv-this-week.html
+
 **Free of distractions, Crow-Armstrong powers Cubs over Dodgers: 'I'm here to play baseball'**\
 `Crow-Armstrong hit his first two home runs of the season and added a triple as the Cubs took a three-game series against the Dodgers.`\
 https://nytimes.com/athletic/6277646/2025/04/14/pete-crow-armstrong-cubs-win/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6276317/2025/04/14/tottenham-wolves-postecoglou/
 **Everton can afford to dream of better days. Their recruitment needs to match that ambition**\
 `Abdoulaye Doucoure's match-winning celebration was a reminder of the size of the rebuild facing Everton's new hierarchy this summer`\
 https://nytimes.com/athletic/6275591/2025/04/14/everton-recruitment-nottingham-forest/
-
-**How emotional but laser-focused Newcastle managed the weekend without Eddie Howe**\
-`The team delivered a performance their absent manager will have been proud of and in doing so secured a rare double over Manchester United`\
-https://nytimes.com/athletic/6271954/2025/04/14/newcastle-manchester-united-howe/
-
-**Vital dropped points may haunt Maresca as he assesses Chelsea's daunting run-in**\
-`The London club couldn't secure victory in the easiest game they had left and it could cost them qualification for the Champions League`\
-https://nytimes.com/athletic/6276026/2025/04/14/chelsea-run-in-maresca-dropped-points/
-
-**Paqueta's swashbuckling performance shows West Ham what they will miss if he is banned**\
-`The Brazilian stood out for Graham Potter's team at Anfield - in a game that they were unlucky not to get something from`\
-https://nytimes.com/athletic/6275731/2025/04/14/paqueta-west-ham-premier-league/
 
