@@ -1,3 +1,7 @@
+**Rory McIlroy's Masters win pays off for bettors to chagrin of sportsbooks**\
+`Rory's big win at the Masters was a tough pill to swallow for the sportsbooks, but bettors were smiling after his historic victory.`\
+https://nytimes.com/athletic/6278727/2025/04/14/rory-mcilroy-masters-win-good-for-bettors/
+
 **China Is Taking the Gloves Off. The Luxury Leather Gloves.**\
 `Forget, for a moment, what Trump’s tariff war is going to do to our economies. Think of what it will do to our identities.`\
 https://nytimes.com/live/2025/04/07/opinion/thepoint/china-tiktok-luxury-goods-manufacturing
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/6278910/2025/04/14/patrick-peterson-retirement-card
 `Goalie Marc-Andre Fleury has already made his new teammate, Buium, a prank victim — at least twice.`\
 https://nytimes.com/athletic/6278933/2025/04/14/zeev-buiums-tim-washe-wild-insider/
 
-**The Dollar Keeps Falling as ‘Safe Haven’ Status Is Questioned**\
+**The Dollar Keeps Falling as Its ‘Safe Haven’ Status Is Questioned**\
 `President Trump’s tariff blitz has rattled investors and shaken their faith in one of the most reliable and ubiquitous assets in the world economy.`\
 https://nytimes.com/2025/04/14/business/us-dollar-trump-tariffs.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/14/world/europe/antoni-gaudi-architect-saint.html
 **Attack on Shapiro Raises New Fears About Threats to U.S. Politicians**\
 `While political violence has not surged overall, a series of high-profile attempts on American leaders have shaken a public already worried about the country’s toxic political environment.`\
 https://nytimes.com/2025/04/14/us/politics/josh-shapiro-pa-governor-fire-threats.html
-
-**Greene Bought Market Dip Before Trump Paused Tariffs, Profiting From the Rally**\
-`The Georgia congresswoman purchased at least tens of thousands of dollars in stock the day before and the day of President Trump’s pause of a sweeping set of tariffs that sent the market soaring.`\
-https://nytimes.com/2025/04/14/us/politics/marjorie-taylor-greene-bought-stock-trump-tariffs-pause.html
 
