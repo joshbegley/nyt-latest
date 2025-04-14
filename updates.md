@@ -1,3 +1,7 @@
+**Tiger Woods, Gary Player welcome Rory McIlroy to Grand Slam club after Masters win**\
+`McIlroy is the sixth Grand Slam winner in men's golf history, joining Woods as the only two men to achieve the feat since 1966.`\
+https://nytimes.com/athletic/6278353/2025/04/14/rory-mcilroy-tiger-woods-masters-win-congratulation-posts/
+
 **Republicans Ponder the Unthinkable: Taxing the Rich**\
 `The idea of raising taxes on rich Americans has caught the Republican Party between its populist ambitions and low-tax instincts.`\
 https://nytimes.com/2025/04/14/business/tax-hike-republicans-trump.html
