@@ -1,3 +1,11 @@
+**Chelsea top spend on agent fees for 2024-25 Premier League season**\
+`Manchester City, Manchester United and Aston Villa round out the top four spenders for the period including the last two transfer windows.`\
+https://nytimes.com/athletic/6278439/2025/04/14/premier-league-agent-fees-chelsea-how-much/
+
+**Trump Signals Semiconductor Tariffs Are Coming ‘Very Soon’**\
+`The president has suggested that he will move forward with a national security investigation this week that is likely to result in tariffs on chips.`\
+https://nytimes.com/2025/04/14/business/economy/trump-semiconductor-tariffs-china.html
+
 **One Giant Stunt for Womankind**\
 `Blue Origin’s all-female flight proves that women are now free to enjoy capitalism’s most extravagant spoils alongside rich men.`\
 https://nytimes.com/2025/04/14/arts/blue-origin-lauren-sanchez-katy-perry.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/14/arts/television/harry-potter-casting-hbo.html
 **Marko has 'great concern' over Verstappen's Red Bull future**\
 `Verstappen finished sixth at the Bahrain Grand Prix, more than 34 seconds behind winner Oscar Piastri.`\
 https://nytimes.com/athletic/6278331/2025/04/14/max-verstappen-red-bull-future-marko/
-
-**Little Plastic Bricks Fetch Thousands of Dollars in the Lego Black Market**\
-`Some Lego sets have skyrocketed in value but behind the eye-popping price tags is a dark side: an underground market that fuels brazen thefts.`\
-https://nytimes.com/2025/04/14/business/lego-minifigures-black-market.html
-
-**An Electric Chicken Breast Dinner With the Salad Built In**\
-`Yewande Komolafe’s ginger chicken with crisp napa salad is assertively seasoned and super speedy.`\
-https://nytimes.com/2025/04/14/dining/chicken-breast-salad-dinner.html
 
