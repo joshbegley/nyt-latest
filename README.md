@@ -1,3 +1,11 @@
+**Bears, Kyler Gordon agree to 3-year, $40 million extension**\
+`Gordon has established himself as one of the game’s best slot corners, and this contract is paying him that way.`\
+https://nytimes.com/athletic/6277179/2025/04/13/kyler-gordon-bears-extension/
+
+**Braves takeaways: Chris Sale frustrated, Spencer Strider and Alex Verdugo coming soon**\
+`In Sale's past two starts, he’s given up 15 hits and nine runs (eight earned) in nine innings. The offense isn't helping him.`\
+https://nytimes.com/athletic/6277046/2025/04/13/atlanta-braves-chris-sale-spencer-strider/
+
 **Yohe's 10 observations: Penguins lose and, along the way, may have helped draft pick slot**\
 `The Penguins lost 4-1 to the Bruins on Sunday but may have won in a different way.`\
 https://nytimes.com/athletic/6276211/2025/04/13/penguins-bruins-nhl-draft-lottery-pick/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6276916/2025/04/13/yankees-lose-giants-carlos-rodon
 **Daryl Morey admits 76ers came up short, again: 'We know we've let you down'**\
 `The 76ers finished a horrendous season with 58 losses, and what was left of Philly's roster fell 122-102 to the Chicago Bulls on Sunday.`\
 https://nytimes.com/athletic/6276310/2025/04/13/daryl-morey-76ers-season-woes/
-
-**NBA season's thrilling final day sets stage for postseason, draft lottery**\
-`A season marked by shocking trades and stunning coach firings came down to the final day for six Western teams to learn their fates.`\
-https://nytimes.com/athletic/6276999/2025/04/13/nba-regular-season-final-day-playoff-matchups-lottery/
-
-**U.S. Renews Opposition to Bringing Back Maryland Man Wrongly Deported to El Salvador**\
-`The Justice Department’s latest legal filing asserted that courts cannot direct President Trump’s foreign policy by forcing the return of a man unlawfully sent to a Salvadoran prison.`\
-https://nytimes.com/2025/04/13/us/politics/trump-courts-deportation-el-salvador.html
 

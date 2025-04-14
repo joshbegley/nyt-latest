@@ -1,3 +1,7 @@
+**Yohe's 10 observations: Penguins lose and, along the way, may have helped draft pick slot**\
+`The Penguins lost 4-1 to the Bruins on Sunday but may have won in a different way.`\
+https://nytimes.com/athletic/6276211/2025/04/13/penguins-bruins-nhl-draft-lottery-pick/
+
 **Maple Leafs report cards: Unexceptional but patient effort holds off Carolina comeback**\
 `Craig Berube will be happy with the Leafs' team defence as they held off the Hurricanes while resting some of the blue line.`\
 https://nytimes.com/athletic/6276702/2025/04/13/maple-leafs-report-cards-holmberg-woll-defence/
