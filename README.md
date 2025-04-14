@@ -1,3 +1,15 @@
+**Little Plastic Bricks Fetch Thousands of Dollars in the Lego Black Market**\
+`Some Lego sets have skyrocketed in value but behind the eye-popping price tags is a dark side: an underground market that fuels brazen thefts.`\
+https://nytimes.com/2025/04/14/business/lego-minifigures-black-market.html
+
+**An Electric Chicken Breast Dinner With the Salad Built In**\
+`Yewande Komolafe’s ginger chicken with crisp napa salad is assertively seasoned and super speedy.`\
+https://nytimes.com/2025/04/14/dining/chicken-breast-salad-dinner.html
+
+**The Creator of ‘Cowboy Bebop’ Thinks Reality Is More Dystopian Than Sci-Fi**\
+`In an interview, Shinichiro Watanabe discusses his latest anime, “Lazarus,” a pharmaceutical mystery set in the near future.`\
+https://nytimes.com/2025/04/14/arts/television/shinichiro-watanabe-lazarus.html
+
 **Another Lawsuit, This Time in Colorado, Over Trump’s Use of the Alien Enemies Act**\
 `The president’s efforts to invoke a wartime statute to deport scores of Venezuelan immigrants have set off one of the most contentious legal battles of his second term.`\
 https://nytimes.com/2025/04/14/us/politics/aclu-lawsuit-trump-colorado-venezuela-alien-enemies-act.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6276230/2025/04/14/edmonton-oilers-players-playoffs
 **Britain Cuts Tariffs on Dozens of Products as Global Trade Tensions Rise**\
 `British officials also announced more financing for exporters as the country sought to protect firms hurt by tariffs.`\
 https://nytimes.com/2025/04/14/business/trump-tariffs-uk.html
-
-**Trump Says He Was Told Russia’s Deadly Strike Was a ‘Mistake’**\
-`It was not immediately clear what President Trump meant when he said he had been told Russia “made a mistake” with its missile strike on the Ukrainian city of Sumy.`\
-https://nytimes.com/video/world/europe/100000010109163/trump-russia-ukraine-attack.html
-
-**DOGE Cuts Hobble Office That Would Aid NASA and SpaceX Mars Landings**\
-`The Astrogeology Science Center, which has helped astronauts and robots reach other worlds safely, is facing a substantial number of job reductions.`\
-https://nytimes.com/2025/04/14/science/astrogeology-mars-maps-spacex.html
-
-**U.S. Argues Meta Built a Social Media Monopoly**\
-`The tech giant went to court on Monday in an antitrust trial focused on its acquisitions of Instagram and WhatsApp. The case could reshape its business.`\
-https://nytimes.com/2025/04/14/technology/meta-antitrust-trial-ftc.html
 

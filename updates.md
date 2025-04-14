@@ -1,3 +1,11 @@
+**Another Lawsuit, This Time in Colorado, Over Trump’s Use of the Alien Enemies Act**\
+`The president’s efforts to invoke a wartime statute to deport scores of Venezuelan immigrants have set off one of the most contentious legal battles of his second term.`\
+https://nytimes.com/2025/04/14/us/politics/aclu-lawsuit-trump-colorado-venezuela-alien-enemies-act.html
+
+**Michael Boxall's hero turn and a New Zealand lifer's final World Cup shot**\
+`The New Zealand veteran's first international goal effectively punched the ticket for 2026. Now the All Whites are thinking bigger.`\
+https://nytimes.com/athletic/6263069/2025/04/14/michael-boxall-new-zealand-world-cup-2026-minnesota-united/
+
 **Inside Trump’s Pressure Campaign on Universities**\
 `The opaque process, part of a strategy by conservatives to realign the liberal tilt of elite universities, has upended higher education.`\
 https://nytimes.com/2025/04/14/us/politics/trump-pressure-universities.html
