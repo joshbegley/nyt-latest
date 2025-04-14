@@ -1,3 +1,7 @@
+**Blue Origin Flight Will Take 6 Women, Including Gayle King and Katy Perry, to Space**\
+`The women were set to travel on Blue Origin’s New Shepard rocket, as part of the first all-female space crew in more than 60 years.`\
+https://nytimes.com/2025/04/14/science/blue-origin-katy-perry-gayle-king.html
+
 **How Real Madrid won as Carlo Ancelotti vaped in the stands**\
 `Led by Ancelotti's son, Madrid overcame their manager's suspension and Kylian Mbappe's red card to beat Alaves`\
 https://nytimes.com/athletic/6277317/2025/04/14/real-madrid-carlo-davide-ancelotti-mbappe/
