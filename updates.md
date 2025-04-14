@@ -1,3 +1,7 @@
+**Tariff-Induced Inflation Surge May Be Temporary, Fed Official Says**\
+`Christopher J. Waller argued that the effect of tariffs on prices could be short-lived, but he warned about a bigger hit to growth.`\
+https://nytimes.com/2025/04/14/us/politics/fed-tariffs-inflation.html
+
 **Former NHLer Chris Simon had 'severe' CTE when he died**\
 `A gritty left winger, Simon fought more than 100 times and accumulated 1,824 penalty minutes as a professional.`\
 https://nytimes.com/athletic/6278639/2025/04/14/nhl-chris-simon-cte-diagnosis/
