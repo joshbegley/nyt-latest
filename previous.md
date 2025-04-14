@@ -1,3 +1,19 @@
+**Trump Describes Russia’s Deadly Strike on Ukrainian City as ‘Horrible’**\
+`At least 34 people were killed in the attack on Sumy, which came as Ukraine’s leader urged President Trump to come witness the realities of war firsthand.`\
+https://nytimes.com/2025/04/14/world/europe/trump-ukraine-sumy-russia-attack.html
+
+**Thompson: Playoff Jimmy arrives for the Warriors, just when they'll need him most**\
+`Back in the Play-In grind, the Warriors will need more than Steph Curry to make any kind of run. Good thing Playoff Jimmy is here.`\
+https://nytimes.com/athletic/6277813/2025/04/14/jimmy-butler-golden-state-warriors-play-in-playoffs/
+
+**When Elected Leaders Pursue Risky Policies, What Can Stop Them?**\
+`President Trump issued a partial, temporary reprieve on tariffs that had sent the stock market tumbling. He did so only after U.S. government bonds showed signs of distress.`\
+https://nytimes.com/2025/04/14/world/americas/trump-tariffs-bond-market.html
+
+**Weekend NHL rankings: A top 16, oddly specific predictions and Gold Plan standings**\
+`In the last Weekend Rankings of the season, a primer on each playoff team's chances and a wonky year for the Gold Plan.`\
+https://nytimes.com/athletic/6276356/2025/04/14/nhl-weekend-rankings-gold-plan-oddly-specific-predictions/
+
 **Military Leader Wins Presidential Election in Gabon**\
 `Brice Oligui Nguema had promised to relinquish power after he led a coup in 2023. He now is set to lead the oil-rich country for the next seven years.`\
 https://nytimes.com/2025/04/14/world/africa/gabon-presidential-election-nguema.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/04/14/world/europe/europe-china-dumping-tariffs.html
 **How Jackson LaCombe leapfrogged others to become the Ducks' No. 1 defenseman**\
 `On an Anaheim team with plenty of talented blueliners, LaCombe made a statement this season.`\
 https://nytimes.com/athletic/6277048/2025/04/14/jackson-lacombe-ducks-defense/
-
-**How one week in Florida helped Ryan Donato score 31 goals this season**\
-`It's rare for players approaching their 30s to suddenly have a stellar offensive season. For Donato, it's proof his hard work is paying off.`\
-https://nytimes.com/athletic/6277256/2025/04/14/blackhawks-ryan-donato-career-season-skating/
-
-**Red Wings prospects thoughts: New Griffins make an impact with more on the way**\
-`Thoughts and observations on the Red Wings prospects in the AHL, and two more who could join the Griffins soon. `\
-https://nytimes.com/athletic/6276396/2025/04/14/red-wings-prospects-ahl-playoffs-griffins/
-
-**Anthony Stolarz has never started a playoff game. Will it matter?**\
-`The battle for Leafs starter in Game 1 looks all but over. How will it turn out once the playoffs actually start?`\
-https://nytimes.com/athletic/6277154/2025/04/14/maple-leafs-anthony-stolarz-playoff-experience/
-
-**Does French teen phenom Dominique Malonga have the biggest upside in the WNBA Draft?**\
-`"No Offseason" discuss why Dominique Malonga might have the highest upside of any player in the 2025 WNBA Draft.`\
-https://nytimes.com/athletic/6272924/2025/04/14/no-offseason-wnba-draft-dominique-malonga-teen/
 
