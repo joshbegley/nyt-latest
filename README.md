@@ -1,3 +1,19 @@
+**How a Private Health Crisis Has Loomed Over 2 Very Public Trials**\
+`Nadine Menendez’s breast cancer diagnosis has held a powerful grip on the government’s bribery case against her and her husband, Robert Menendez, New Jersey’s disgraced former senator.`\
+https://nytimes.com/2025/04/14/nyregion/nadine-menendez-breast-cancer-bribery-trial.html
+
+**Outdoor Dining Is Back in New York City. Sort Of.**\
+`Only a small portion of the city’s restaurants have applied for permits to set up dining structures under new regulations. Owners say the process is complex and expensive.`\
+https://nytimes.com/2025/04/14/nyregion/nyc-restaurants-outdoor-seating.html
+
+**A History Tour, With Lessons for the Future**\
+`I wanted to write a story about the changing perceptions of the United States among Europeans. I didn’t know that I would find an example as pointed as Henri Mignon.`\
+https://nytimes.com/2025/04/14/insider/a-history-tour-with-lessons-for-the-future.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/04/14/crosswords/spelling-bee-forum.html
+
 **Warriors lose to Clippers, stumble into dangerous Play-In game against Grizzlies**\
 `A series of unfortunate events thwarted the Warriors' quest for the sixth seed. Instead, they'll face Ja Morant and Memphis.`\
 https://nytimes.com/athletic/6276963/2025/04/14/warriors-lose-face-grizzlies-play-in/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/04/14/opinion/israel-palestinians-syria-lebanon.html
 **‘WrestleMania 41,’ Plus 8 Things to Watch on TV this Week**\
 `John Cena continues his farewell tour, and ‘Abbott Elementary’ concludes its fourth season.`\
 https://nytimes.com/2025/04/14/arts/television/wrestlemania-41-plus-8-things-to-watch-on-tv-this-week.html
-
-**Free of distractions, Crow-Armstrong powers Cubs over Dodgers: 'I'm here to play baseball'**\
-`Crow-Armstrong hit his first two home runs of the season and added a triple as the Cubs took a three-game series against the Dodgers.`\
-https://nytimes.com/athletic/6277646/2025/04/14/pete-crow-armstrong-cubs-win/
-
-**Morgan Rogers plays and plays and plays - even with PSG decider on the horizon**\
-`Like Youri Tielemans and Emiliano Martinez, Rogers is indispensable in Unai Emery's eyes, even with a huge Champions League game next`\
-https://nytimes.com/athletic/6274300/2025/04/14/morgan-rogers-aston-villa-southampton-psg/
-
-**Settled Wolves side offers a glimpse of a happy post-Cunha future**\
-`If Cunha is to leave this summer, this was clear encouragement that the Wolves attack can function without him`\
-https://nytimes.com/athletic/6276224/2025/04/14/wolves-tottenham-strand-larsen/
-
-**Declan Rice's surges upfield have long-awaited shades of Yaya Toure**\
-`Rice taking flight against Brentford was reminiscent of a midfielder he has openly idolised since his West Ham days`\
-https://nytimes.com/athletic/6274756/2025/04/14/declan-rice-yaya-toure/
 
