@@ -1,3 +1,7 @@
+**Does Love Mean Having to Share Your Location?**\
+`Tell us how location sharing has affected your relationship, and you might hear yourself in an episode of the Modern Love podcast.`\
+https://nytimes.com/2025/04/14/podcasts/location-sharing-relationships-modern-love.html
+
 **Newcastle confirm Howe's pneumonia diagnosis, Tindall to lead next two games**\
 `Howe missed Sunday's win over Manchester United and will be absent when Newcastle face Crystal Palace and Aston Villa.`\
 https://nytimes.com/athletic/6278631/2025/04/14/eddie-howe-illness-newcastle-tindall/
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6278597/2025/04/14/submit-a-question-for-stewart-ma
 **Sources: Mike Budenholzer out as Suns coach after just one season**\
 `Mat Ishbia has made coaching changes in each of the three offseasons since he took ownership of the Suns.`\
 https://nytimes.com/athletic/6262672/2025/04/14/mike-budenholzer-fired-phoenix-suns-nba-head-coach/
-
-**In This French ‘Gypsy,’ Mama’s Got the Stuff. Daughter Too.**\
-`The soprano Natalie Dessay and her daughter, Neïma Naouri, team up to explore one of theater’s most toxic mother-daughter relationships.`\
-https://nytimes.com/2025/04/14/arts/music/gypsy-france-natalie-dessay.html
 
