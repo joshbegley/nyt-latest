@@ -1,3 +1,7 @@
+**Does Love Mean Having to Share Your Location?**\
+`Tell us how location sharing has affected your relationship, and you might hear yourself in an episode of the Modern Love podcast.`\
+https://nytimes.com/2025/04/14/podcasts/location-sharing-relationships-modern-love.html
+
 **Newcastle confirm Howe's pneumonia diagnosis, Tindall to lead next two games**\
 `Howe missed Sunday's win over Manchester United and will be absent when Newcastle face Crystal Palace and Aston Villa.`\
 https://nytimes.com/athletic/6278631/2025/04/14/eddie-howe-illness-newcastle-tindall/
