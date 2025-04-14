@@ -1,3 +1,11 @@
+**Dollar Keeps Falling as ‘Safe Haven’ Status Is Questioned**\
+`President Trump’s tariff blitz has rattled investors and shaken their faith in one of the most reliable and ubiquitous assets in the world economy.`\
+https://nytimes.com/2025/04/14/business/us-dollar-trump-tariffs.html
+
+**Raiders' Maxx Crosby joins Eastern Michigan as assistant GM**\
+`Crosby becomes the first active NFL player to take on the assistant GM title, joining the likes of NBA stars Steph Curry and Trae Young.`\
+https://nytimes.com/athletic/6278918/2025/04/14/maxx-crosby-eastern-michigan-assistant-general-manager/
+
 **Villa working to close deal to sign midfielder Nypan**\
 `18-year-old Nypan, who has been a target for the likes of Arsenal and Girona, opted against leaving Rosenborg in January.`\
 https://nytimes.com/athletic/6279156/2025/04/14/nypan-transfer-update-aston-villa-arsenal/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6278809/2025/04/14/nba-playoffs-champion-odds-thund
 **Ducks sign NCAA free agent Tim Washe fresh off national championship run**\
 `Western Michigan star Alex Bump calls his teammate “the most reliable (center) in college hockey."`\
 https://nytimes.com/athletic/6271084/2025/04/14/ducks-free-agent-tim-washe/
-
-**How to watch the 2025 WNBA Draft: Paige Bueckers expected to go first to Dallas**\
-`Monday night's draft commences the 2025 WNBA campaign, which comes on the heels of an all-time wild offseason.`\
-https://nytimes.com/athletic/6278837/2025/04/14/wnba-draft-2025-paige-bueckers-how-to-watch/
-
-**Older People Seeking Care for Cannabis Use at Greater Risk for Dementia, Study Finds**\
-`Users needing emergency care or hospitalization were more likely to later develop dementia, researchers reported. That does not prove cannabis was the cause.`\
-https://nytimes.com/2025/04/14/health/cannabis-marijuana-dementia.html
 

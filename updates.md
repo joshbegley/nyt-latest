@@ -1,3 +1,11 @@
+**Dollar Keeps Falling as ‘Safe Haven’ Status Is Questioned**\
+`President Trump’s tariff blitz has rattled investors and shaken their faith in one of the most reliable and ubiquitous assets in the world economy.`\
+https://nytimes.com/2025/04/14/business/us-dollar-trump-tariffs.html
+
+**Raiders' Maxx Crosby joins Eastern Michigan as assistant GM**\
+`Crosby becomes the first active NFL player to take on the assistant GM title, joining the likes of NBA stars Steph Curry and Trae Young.`\
+https://nytimes.com/athletic/6278918/2025/04/14/maxx-crosby-eastern-michigan-assistant-general-manager/
+
 **Villa working to close deal to sign midfielder Nypan**\
 `18-year-old Nypan, who has been a target for the likes of Arsenal and Girona, opted against leaving Rosenborg in January.`\
 https://nytimes.com/athletic/6279156/2025/04/14/nypan-transfer-update-aston-villa-arsenal/
