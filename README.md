@@ -1,3 +1,12 @@
+**Submit your Ohio State football questions for Cameron Teague Robinson’s mailbag**\
+`<p>Spring practice is over. The transfer portal opens Wednesday. What&#8217;s on your mind? Submit your Ohio State questions below.</p>
+`\
+https://nytimes.com/athletic/6278259/2025/04/14/submit-your-ohio-state-football-questions-for-cameron-teague-robinsons-mailbag/
+
+**Kevin Campbell inquest: Hospital cleared of blame for former player's death**\
+`Campbell died from multi-organ failure on June 15 last year, aged 54 after being admitted to Manchester Royal Infirmary.`\
+https://nytimes.com/athletic/6278058/2025/04/14/kevin-campbell-inquest-no-blame/
+
 **How the Jets built the best regular-season team in the NHL**\
 `The Jets have clinched the 2025 Presidents' Trophy, cementing their status as the top regular-season team in the league. What comes next?`\
 https://nytimes.com/athletic/6275280/2025/04/14/winnipeg-jets-presidents-trophy-nhl-playoffs/
@@ -29,12 +38,4 @@ https://nytimes.com/2025/04/14/pageoneplus/corrections-april-13-2025.html
 **No Corrections: April 14, 2025**\
 `No corrections appeared in print on Monday, April 14, 2025.`\
 https://nytimes.com/2025/04/14/pageoneplus/no-corrections-april-14-2025.html
-
-**Kyle Larson's Bristol win a fitting tribute to late Hendrick PR director Jon Edwards**\
-`Kyle Larson dedicated Sunday's win to the late Jon Edwards, whose smiling face rode on the side of the No. 5 car and a handful of others.`\
-https://nytimes.com/athletic/6277421/2025/04/14/kyle-larson-bristol-win-jon-edwards-hendrick-nascar/
-
-**Trump Describes Russia’s Deadly Strike on Ukrainian City as ‘Horrible’**\
-`At least 34 people were killed in the attack on Sumy, which came as Ukraine’s leader urged President Trump to come witness the realities of war firsthand.`\
-https://nytimes.com/2025/04/14/world/europe/trump-ukraine-sumy-russia-attack.html
 
