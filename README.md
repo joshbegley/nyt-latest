@@ -7,8 +7,8 @@ https://nytimes.com/2025/04/14/style/coachella-dinners-outstanding-in-the-field.
 https://nytimes.com/interactive/2025/04/14/us/trump-harvard-demands.html
 
 **Read Harvard’s Response to the Trump Administration**\
-`Harvard University responded on Monday to the Trump Administration’s letter demanding a series of policy changes, saying the demands were unlawful and that Harvard would not comply.`\
-https://nytimes.com/interactive/2025/04/14/us/harvard-trump-response.html
+`Harvard University’s lawyers responded on Monday to the Trump Administration’s letter demanding a series of policy changes, saying the demands were unlawful and that Harvard would not comply.`\
+https://nytimes.com/interactive/2025/04/14/us/harvard-letter.html
 
 **Bueckers vs. Clark and the names women's basketball card collectors need to know**\
 `Bueckers, Watkins, and Clark are the biggest names in the hobby, but other names might present better buys`\
