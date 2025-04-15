@@ -1,3 +1,15 @@
+**Ivan Demidov needed one period to show how he can benefit Canadiens in present and future**\
+`Demidov's debut was more impactful than the Canadiens could have hoped, and should they reach the playoffs, he will make a difference.`\
+https://nytimes.com/athletic/6280303/2025/04/15/ivan-demidov-canadiens-nhl-blackhawks/
+
+**Concacaf president voices opposition to 64-team World Cup proposal**\
+`The proposed plan would see 128 matches played, double the amount at the last World Cup in Qatar in 2022.`\
+https://nytimes.com/athletic/6280478/2025/04/15/world-cup-64-teams-2030-concacaf/
+
+**Director of Field Hospital in Southern Gaza Says Israeli Strike Killed a Guard**\
+`Israel’s military did not immediately comment on the report, which came two days after it attacked the Ahli Arab Hospital in Gaza City.`\
+https://nytimes.com/2025/04/15/world/middleeast/gaza-hospital-israel-military.html
+
 **Trump’s Give-and-Take Tariff Strategy**\
 `The president has watered down some of his trade demands, but that’s created confusion in the markets and has forced his administration to adapt its messaging.`\
 https://nytimes.com/2025/04/15/business/dealbook/trump-tariffs-exemptions-bessent.html
@@ -23,18 +35,6 @@ https://nytimes.com/athletic/6279466/2025/04/15/spring-transfer-portal-window-co
 https://nytimes.com/athletic/6279710/2025/04/15/flames-nhl-playoffs-craig-conroy/
 
 **A war of words adds fuel to upcoming Oilers-Kings series**\
-`A night of bad blood added a little more juice to the imminent playoff matchup – not that it needed it.`\
+`A night of bad blood added a little more juice to the imminent playoff matchup — not that it needed it.`\
 https://nytimes.com/athletic/6280292/2025/04/15/oilers-kings-playoffs-war-of-words/
-
-**Why Rory McIlroy's Masters win means just as much for his caddie, Harry Diamond**\
-`There is one topic of change that McIlroy has no time for: His caddie and lifelong friend.`\
-https://nytimes.com/athletic/6278943/2025/04/15/harry-diamond-caddie-rory-mcilroy-masters-augusta/
-
-**NBA's sneakiest pickpocket Dyson Daniels breaks down his greatest steals**\
-`The Great Barrier Thief, as they call the Aussie guard who is up for Most Improved and All-Defense, did not float to the top by accident.`\
-https://nytimes.com/athletic/6279706/2025/04/15/dyson-daniels-hawks-all-defense-contender-nba/
-
-**After 'very strange season,' Magic have something to prove in Play-In Tournament**\
-`This wasn't the season Magic players expected, largely because of injuries and shooting woes. There's still time for something positive.`\
-https://nytimes.com/athletic/6277465/2025/04/15/orlando-magic-play-in-preview/
 
