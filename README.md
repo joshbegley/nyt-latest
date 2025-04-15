@@ -1,3 +1,11 @@
+**Palin Libel Retrial Against The New York Times Begins**\
+`In opening statements, lawyers for Sarah Palin and The Times each presented arguments on whether the editorial board had published a statement knowing it was false.`\
+https://nytimes.com/2025/04/15/business/media/sarah-palin-new-york-times-trial.html
+
+**Hilary Knight breaks assist record at IIHF Women's World Championship**\
+`After three assists against Switzerland on Tuesday, Knight stands alone at the top with 50 career assists at women’s worlds.`\
+https://nytimes.com/athletic/6281641/2025/04/15/hilary-knight-assist-record-womens-world-championship/
+
 **Premier League amends PSR rules amid Leicester dispute**\
 `The league's handbook was updated last week after the decision was made to tighten the language around PSR.`\
 https://nytimes.com/athletic/6281172/2025/04/15/premier-league-psr-leicester/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/15/health/ai-therapist-mental-health.html
 **Nico Harrison has 'no regrets' on Dončić trade: 'Defense wins championships'**\
 `Harrison said Tuesday that he has three years remaining on his contract, and he intends to remain in Dallas for the entirety of it.`\
 https://nytimes.com/athletic/6281436/2025/04/15/mavericks-gm-nico-harrison-news-press-conference/
-
-**Rangers have fallen behind young teams on the rise — a huge concern for the future**\
-`Watching young stars in Montreal, Ottawa and Columbus in the playoff chase makes the Rangers' hole seem even harder to climb out of.`\
-https://nytimes.com/athletic/6281440/2025/04/15/rangers-east-contenders-rising/
-
-**Tyron Smith to sign a 1-day contract with Cowboys, announce retirement**\
-`Smith made two first-team All-Pro rosters, eight Pro Bowls and the 2010s All-Decade team as a member of the Cowboys. `\
-https://nytimes.com/athletic/6281381/2025/04/15/tyron-smith-dallas-cowboys-retirement/
 
