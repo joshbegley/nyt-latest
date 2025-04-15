@@ -1,3 +1,15 @@
+**In Showdowns With the Courts, Trump Is Increasingly Combative**\
+`Scholars say that the Trump administration is now flirting with lawless defiance of court orders, a path with an uncertain end.`\
+https://nytimes.com/2025/04/15/us/politics/trump-defy-courts.html
+
+**‘We Don’t Have a Day or Night of Calm’**\
+`People in the Ukrainian city struck on Palm Sunday have little hope of a cease-fire.`\
+https://nytimes.com/2025/04/15/world/europe/ukraine-sumy-palm-sunday-russia-war.html
+
+**Lincoln Center Summer Festival to Bring Back Some Classical Music**\
+`Summer for the City will feature a dozen productions by the American Modern Opera Company, a Sanskrit epic, a celebration of Brazil and more.`\
+https://nytimes.com/2025/04/15/arts/music/lincoln-center-summer-for-the-city.html
+
 **Tracking Tropical Cyclone Errol**\
 `See the likely path and wind arrival times for Errol.`\
 https://nytimes.com/interactive/2025/04/15/weather/errol-map-path-tracker.html

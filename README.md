@@ -1,3 +1,7 @@
+**Watch: Which WNBA Draft players are the best fit with their new teams?**\
+`No Offseason discusses which of the players drafted could fit best with their new teams.`\
+https://nytimes.com/athletic/6280871/2025/04/15/no-offseason-wnba-draft-best-players/
+
 **In Showdowns With the Courts, Trump Is Increasingly Combative**\
 `Scholars say that the Trump administration is now flirting with lawless defiance of court orders, a path with an uncertain end.`\
 https://nytimes.com/2025/04/15/us/politics/trump-defy-courts.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6280009/2025/04/15/fifa-gianni-infantino-club-world
 **NBA Power Rankings: Final grades are in as the race to the finals begins**\
 `Which teams are feeling good going into the playoffs, and which ones are simply glad the season is over?`\
 https://nytimes.com/athletic/6280692/2025/04/15/nba-power-rankings-thunder-celtics-cavaliers-lakers/
-
-**Until Saturday: What we learned from Nico drama**\
-`Until Saturday is The Athletic's college football newsletter.`\
-https://nytimes.com/athletic/6280955/2025/04/15/nico-iamaleava-tennessee-holdout-nil-until-saturday/
 
