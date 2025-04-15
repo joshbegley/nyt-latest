@@ -1,3 +1,11 @@
+**Motion to dismiss charges against man accused of killing Gaudreau brothers denied**\
+`Johnny and Matthew Gaudreau died after being struck by a Jeep while they were bicycling home the night before their sister’s wedding.`\
+https://nytimes.com/athletic/6281368/2025/04/15/johnny-gaudrea-dismiss-charges-denied-trial/
+
+**Concern over Maple Leafs' injuries heading into playoffs appears to be growing**\
+`The mood around the Leafs should be positive. But head coach Craig Berube projected the opposite after Tuesday’s morning skate.`\
+https://nytimes.com/athletic/6281328/2025/04/15/maple-leafs-injuries-nhl-playoffs/
+
 **Ligue 1 left without domestic TV deal with DAZN contract to end**\
 `It leaves Ligue 1, Europe’s fifth biggest league in revenue, without a domestic media-rights partner for the second time in five years.`\
 https://nytimes.com/athletic/6281404/2025/04/15/ligue-1-tv-rights-dazn-contract/
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/europe/100000010111457/moose-migration-sweden-li
 **American Airlines Will Offer Free Wi-Fi on Most Flights Next Year**\
 `Starting in January, members of the airline’s AAdvantage loyalty program will have free access to wireless internet on 90 percent of its fleet, the company said.`\
 https://nytimes.com/2025/04/15/business/american-airlines-free-wifi.html
-
-**More Than 20,000 I.R.S. Employees Offer to Resign**\
-`The I.R.S. had about 100,000 employees before President Trump took office. Between resignations and layoffs, the I.R.S. is on track to lose about a third of its staff this year.`\
-https://nytimes.com/2025/04/15/us/politics/irs-resignations-trump.html
-
-**Jordan Says It Foiled a Plot Against the Kingdom**\
-`The country’s main intelligence branch said the plans, apparently years in the making, involved rockets, weapons manufacturing and drones.`\
-https://nytimes.com/2025/04/15/world/middleeast/jordan-plot-arrests.html
 
