@@ -1,3 +1,7 @@
+**Quote of the Day: CAREER SLAM AT LAST**\
+`Quotation of the Day for Tuesday, April 15, 2025.`\
+https://nytimes.com/2025/04/14/pageoneplus/quote-of-the-day-career-slam-at-last.html
+
 **For Yankees' Jasson Domínguez, left field may be starting to fit like a glove**\
 `The rookie, who has been working to become a defensive asset, made a couple of stellar plays in Monday's 4-1 victory over the Royals.`\
 https://nytimes.com/athletic/6280094/2025/04/14/yankees-jasson-dominguez-left-field-2/
