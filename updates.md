@@ -1,3 +1,11 @@
+**More Than 20,000 I.R.S. Employees Offer to Resign**\
+`The I.R.S. had about 100,000 employees before President Trump took office. Between resignations and layoffs, the I.R.S. is on track to lose about a third of its staff this year.`\
+https://nytimes.com/2025/04/15/us/politics/irs-resignations-trump.html
+
+**Jordan Says It Foiled a Plot Against the Kingdom**\
+`The country’s main intelligence branch said the plans, apparently years in the making, involved rockets, weapons manufacturing and drones.`\
+https://nytimes.com/2025/04/15/world/middleeast/jordan-plot-arrests.html
+
 **At Trial, Zuckerberg Dodges Questions on Why He Bought Instagram and WhatsApp**\
 `The Meta chief executive, testifying in a landmark antitrust trial, denied he was trying to snuff out competitors.`\
 https://nytimes.com/2025/04/15/technology/meta-antitrust-trial-mark-zuckerberg.html
