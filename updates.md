@@ -1,3 +1,15 @@
+**Why Zeev Buium won't make his NHL debut for the Wild on Tuesday**\
+`Buium on the decision: "These guys have been through everything with each other. Obviously, the season is on the line. I get it."`\
+https://nytimes.com/athletic/6281327/2025/04/15/zeev-buium-wild-scratched/
+
+**A Tax Day Jam Session**\
+`File your 1040 to tunes by Destiny’s Child, Dr. John, Big Tymers and more.`\
+https://nytimes.com/2025/04/15/arts/music/amplifier-newsletter-tax-day-songs.html
+
+**Columbia Vows to Reject Any Trump Deal That Erodes Its Independence**\
+`A message from the university’s acting president said that talks with the Trump administration were continuing as the White House is seeking to place the school under judicial oversight.`\
+https://nytimes.com/2025/04/15/nyregion/columbia-trump-president-response.html
+
 **Motion to dismiss charges against man accused of killing Gaudreau brothers denied**\
 `Johnny and Matthew Gaudreau died after being struck by a Jeep while they were bicycling home the night before their sister’s wedding.`\
 https://nytimes.com/athletic/6281368/2025/04/15/johnny-gaudrea-dismiss-charges-denied-trial/

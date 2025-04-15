@@ -1,3 +1,11 @@
+**Why Zeev Buium won't make his NHL debut for the Wild on Tuesday**\
+`Buium on the decision: "These guys have been through everything with each other. Obviously, the season is on the line. I get it."`\
+https://nytimes.com/athletic/6281327/2025/04/15/zeev-buium-wild-scratched/
+
+**A Tax Day Jam Session**\
+`File your 1040 to tunes by Destiny’s Child, Dr. John, Big Tymers and more.`\
+https://nytimes.com/2025/04/15/arts/music/amplifier-newsletter-tax-day-songs.html
+
 **Motion to dismiss charges against man accused of killing Gaudreau brothers denied**\
 `Johnny and Matthew Gaudreau died after being struck by a Jeep while they were bicycling home the night before their sister’s wedding.`\
 https://nytimes.com/athletic/6281368/2025/04/15/johnny-gaudrea-dismiss-charges-denied-trial/
@@ -10,7 +18,7 @@ https://nytimes.com/athletic/6281328/2025/04/15/maple-leafs-injuries-nhl-playoff
 `It leaves Ligue 1, Europe’s fifth biggest league in revenue, without a domestic media-rights partner for the second time in five years.`\
 https://nytimes.com/athletic/6281404/2025/04/15/ligue-1-tv-rights-dazn-contract/
 
-**Columbia Vows to Reject Any Trump Deal That Threatens Its Independence**\
+**Columbia Vows to Reject Any Trump Deal That Erodes Its Independence**\
 `A message from the university’s acting president said that talks with the Trump administration were continuing as the White House is seeking to place the school under judicial oversight.`\
 https://nytimes.com/2025/04/15/nyregion/columbia-trump-president-response.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6280658/2025/04/15/jd-vance-ohio-state-cfb-champion
 **Mbappe handed one-game La Liga ban after Alaves red card**\
 `Mbappe was shown a straight red card at Alaves for his lunge on Alaves midfielder Antonio Blanco.`\
 https://nytimes.com/athletic/6277825/2025/04/15/kylian-mbappe-suspension-real-madrid/
-
-**Fans of ‘The Great Moose Migration’ Prep for a Weekslong Binge Watch**\
-`The popular annual livestream that follows the migration of Sweden’s moose population began on Tuesday.`\
-https://nytimes.com/video/world/europe/100000010111457/moose-migration-sweden-livestream.html
-
-**American Airlines Will Offer Free Wi-Fi on Most Flights Next Year**\
-`Starting in January, members of the airline’s AAdvantage loyalty program will have free access to wireless internet on 90 percent of its fleet, the company said.`\
-https://nytimes.com/2025/04/15/business/american-airlines-free-wifi.html
 
