@@ -1,3 +1,7 @@
+**C.I.A. Director’s Messages in Leaked Chat Were Deleted, Agency Says**\
+`A watchdog group has said the exchanges on the Signal app were federal records, and sued in an effort to preserve them.`\
+https://nytimes.com/2025/04/15/us/politics/cia-director-leaked-chat.html
+
 **Judge Rebukes Trump Administration’s Effort to Return Wrongly Deported Man**\
 `The judge also said she planned to force Trump officials to reveal what they had done behind the scenes to seek the return of the man, Kilmar Armando Abrego Garcia.`\
 https://nytimes.com/2025/04/15/us/trump-abrego-garcia-deported-hearing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6282035/2025/04/15/vikings-2025-nfl-draft-mailbag/
 **The Briefing: Villa 3 PSG 2 (4-5 agg) - Comeback win not quite enough for Emery's side in Champions League classic**\
 `Analysis of Tuesday's dramatic Champions League quarter-final second leg at Villa Park`\
 https://nytimes.com/athletic/6278131/2025/04/15/aston-villa-paris-saint-germain-champions-league-analysis/
-
-**Wednesday Briefing: A Trump-Harvard Showdown**\
-`Plus, the fight over Van Gogh’s roots.`\
-https://nytimes.com/2025/04/15/briefing/trump-harvard-sumy-ukraine-gaza-autopsies.html
 
