@@ -1,3 +1,15 @@
+**Tarik Skubal's changeup altered his career. Now it looks better than ever**\
+`The changeup has evolved since Skubal's younger days. The Brewers found out Monday as the pitcher delivered another scoreless gem.`\
+https://nytimes.com/athletic/6280127/2025/04/15/tarik-skubal-detroit-tigers-changeup/
+
+**Aristotle? Hulk Hogan? What we can learn from Dan Campbell’s locker room speeches**\
+`Campbell's speeches combine physicality, authenticity, swearing and classical rhetoric to produce moments that go viral like clockwork.`\
+https://nytimes.com/athletic/6050050/2025/04/15/url-dan-campbell-locker-room-speeches-experts-explain/
+
+**The New York Times International Edition in Print for Wednesday, April 16, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/04/15/todays-new-york-times-international-edition
+
 **Falcons mock draft mailbag: Lots of edges and corners, plus Mike Green momentum**\
 `We asked for your Falcons mock drafts. You responded with some creative possibilities, and we learned a few things along the way.`\
 https://nytimes.com/athletic/6279149/2025/04/15/falcons-mock-draft-mailbag-mike-green/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6279465/2025/04/15/indianapolis-colts-the-beast-nfl
 **Debbie Millman and Roxane Gay on Pink Elephants and Gardening**\
 `Enter the L.A. Home They Have Turned Into a Gallery`\
 https://nytimes.com/interactive/2025/04/15/realestate/roxane-gay-debbie-millman-home.html
-
-**Tom Friedman Thinks We’re Getting China Dangerously Wrong**\
-`The Times Opinion columnist discusses what he thinks Trump — and American policymakers — misunderstand about China in the escalating trade war.`\
-https://nytimes.com/video/opinion/100000010106387/tom-friedman-thinks-were-getting-china-dangerously-wrong.html
-
-**Housewares Retailers Brace for Tariffs**\
-`Consumers may be unwilling to pay more for pottery, pillows and the other stuff that makes homes feel homey, leaving home décor store owners worried.`\
-https://nytimes.com/2025/04/15/realestate/housewares-home-decor-retailers-tariffs.html
-
-**What Is Your Favorite Poem?**\
-`In honor of National Poetry Month, tell us about that poem and what it means to you.`\
-https://nytimes.com/2025/04/15/learning/what-is-your-favorite-poem.html
 
