@@ -1,3 +1,7 @@
+**Stocks Edge Higher as Investors Assess Tariff Scenarios**\
+`The Trump administration’s chaotic tariff rollout continues to spur volatility in the markets.`\
+https://nytimes.com/2025/04/15/business/stocks-bonds-dollar-markets-tariffs.html
+
 **gws-agility-workout-aging**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/agility-workout-aging
@@ -33,8 +37,4 @@ https://nytimes.com/newsgraphics/card-story/historic-train-trips-canada-mexico-u
 **Our Best Passover Recipes**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/passover-recipes
-
-**Mavericks trying to avoid another bad memory against Kings in must-win game**\
-`"It'll be just like college. One and done. One game. Win or go home. We have to have that mindset," Anthony Davis said about the Play-In.`\
-https://nytimes.com/athletic/6279471/2025/04/15/mavericks-trying-to-avoid-another-bad-memory-against-kings-in-must-win-game/
 

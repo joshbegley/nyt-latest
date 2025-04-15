@@ -1,3 +1,7 @@
+**Stocks Edge Higher as Investors Assess Tariff Scenarios**\
+`The Trump administration’s chaotic tariff rollout continues to spur volatility in the markets.`\
+https://nytimes.com/2025/04/15/business/stocks-bonds-dollar-markets-tariffs.html
+
 **gws-agility-workout-aging**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/agility-workout-aging
