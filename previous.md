@@ -1,3 +1,7 @@
+**For Yankees' Jasson Domínguez, left field may be starting to fit like a glove**\
+`The rookie, who has been working to become a defensive asset, made a couple of stellar plays in Monday's 4-1 victory over the Royals.`\
+https://nytimes.com/athletic/6280094/2025/04/14/yankees-jasson-dominguez-left-field-2/
+
 **Blackhawks pull off memorable comeback win in playoff-like atmosphere: 15 thoughts**\
 `In a thunderous away arena, the Blackhawks overcame an early deficit with the help of a commanding performance by Frank Nazar.`\
 https://nytimes.com/athletic/6280028/2025/04/14/blackhawks-comeback-nazar-shootout-canadiens/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/14/nyregion/nyc-helicopter-crash-rotor-hudson.html
 **Cal RB Jaydn Ott enters transfer portal**\
 `The move comes four months after Ott announced his return to Berkeley for his senior season.`\
 https://nytimes.com/athletic/6279923/2025/04/14/jaydn-ott-transfer-portal-cal/
-
-**Anatomical Pouch**\
-`Per Bykodorov makes his New York Times Crossword debut.`\
-https://nytimes.com/2025/04/14/crosswords/daily-puzzle-2025-04-15.html
 
