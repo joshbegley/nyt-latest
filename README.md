@@ -1,3 +1,7 @@
+**The Pulse: The secret wrinkle of this WNBA Draft**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6278759/2025/04/15/paige-bueckers-wnba-draft-the-pulse/
+
 **Astoria the Celebrity Turkey Returns to Ritzy Midtown Manhattan**\
 `Is she seeking excitement? Danger? A date? The birders who look after her just want her to go home.`\
 https://nytimes.com/2025/04/15/us/manhattan-astoria-roosevelt-island-turkey.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/15/podcasts/the-daily/deported-man-el-salvador-bukel
 **Connections Companion No. 675**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, April 16, 2025.`\
 https://nytimes.com/2025/04/15/crosswords/connections-companion-675.html
-
-**Harvard vs. Trump, and Your (Shrinking) Chance of Being Audited**\
-`Plus, black market Lego.`\
-https://nytimes.com/2025/04/15/podcasts/the-headlines/harvard-trump-irs-auditing-lego.html
 

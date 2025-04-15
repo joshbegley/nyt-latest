@@ -1,3 +1,15 @@
+**Astoria the Celebrity Turkey Returns to Ritzy Midtown Manhattan**\
+`Is she seeking excitement? Danger? A date? The birders who look after her just want her to go home.`\
+https://nytimes.com/2025/04/15/us/manhattan-astoria-roosevelt-island-turkey.html
+
+**Wild Turkey Struts in New York**\
+`Astoria, a wild turkey, seen living free on Roosevelt Island in New York.`\
+https://nytimes.com/video/nyregion/100000010111062/astoria-wild-turkey-new-york.html
+
+**Bears mock draft mailbag: Plenty of ways for Ryan Poles to go at No. 10**\
+`There's no consensus among fans for how they want the Bears to use the No. 10 pick. The mock draft mailbag reflects many options.`\
+https://nytimes.com/athletic/6279083/2025/04/15/bears-2025-mock-draft-mailbag/
+
 **Champions League quarter-final odds: Inter on the up and misfiring Madridistas**\
 `Brett Koremenos outlines the best bets for Wednesday’s Champions League quarter-final second-legs.
 `\
