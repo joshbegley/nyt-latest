@@ -1,5 +1,5 @@
-**Rempe shows growth, Pärssinen's quest for consistency, more: Rangers takeaways**\
-`Matt Rempe found chemistry with Chris Kreider as the Rangers beat the Panthers in their penultimate game of the season.`\
+**Matt Rempe shows growth, Juuso Pärssinen's quest for consistency, more: Rangers takeaways**\
+`Rempe found chemistry with Chris Kreider as the Rangers beat the Panthers in their penultimate game of the season.`\
 https://nytimes.com/athletic/6280015/2025/04/14/rangers-rempe-kreider-parssinen-panthers/
 
 **Paige Bueckers' arrival to the Dallas Wings as No. 1 WNBA Draft pick marks a new era**\
