@@ -1,3 +1,7 @@
+**Mets' Jose Siri will be out 'a while' with a fractured left tibia**\
+`The Mets had acquired Siri from the Rays, hopeful he would bring his superb defense and improve his contact skills. `\
+https://nytimes.com/athletic/6280073/2025/04/14/mets-jose-siri-left-tibia-fracture/
+
 **Matt Rempe shows growth, Juuso Pärssinen's quest for consistency, more: Rangers takeaways**\
 `Rempe found chemistry with Chris Kreider as the Rangers beat the Panthers in their penultimate game of the season.`\
 https://nytimes.com/athletic/6280015/2025/04/14/rangers-rempe-kreider-parssinen-panthers/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/14/crosswords/daily-puzzle-2025-04-15.html
 **Corrections: April 15, 2025**\
 `Corrections that appeared in print on Tuesday, April 15, 2025.`\
 https://nytimes.com/2025/04/14/pageoneplus/corrections-april-15-2025.html
-
-**The Vibe Shifts Against the Right**\
-`People who once found right-wing ideas scintillating are having second thoughts as they watch Trump put those ideas into practice.`\
-https://nytimes.com/2025/04/14/opinion/dissident-right-trump.html
 
