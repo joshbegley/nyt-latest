@@ -1,3 +1,19 @@
+**Late Night Weighs In on Trump’s Perfect Physical**\
+`“The doctor said Trump’s BMI is 28,” Jimmy Kimmel said. “Right, and so is his next wife, by the way.”`\
+https://nytimes.com/2025/04/15/arts/television/late-night-trump-physical.html
+
+**Spring Break**\
+`How would you spend your dream spring vacation?`\
+https://nytimes.com/2025/04/15/learning/spring-break.html
+
+**Harvey Weinstein, Facing New Charge, Returns to Court in New York**\
+`The disgraced Hollywood producer will face a new trial for sex crimes in New York after a previous conviction was reversed last year.`\
+https://nytimes.com/2025/04/15/nyregion/harvey-weinstein-trial-new-york.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/04/15/crosswords/spelling-bee-forum.html
+
 **'He's gotten a lot better': Dustin May's return to Dodgers makes for a great story**\
 `May defeated the Rockies for his first major league win in 709 days. “It’s huge just to be able to go out and pitch,” he said.`\
 https://nytimes.com/athletic/6280266/2025/04/15/dodgers-dustin-may/
