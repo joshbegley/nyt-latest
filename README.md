@@ -1,3 +1,7 @@
+**Judge Rebukes Trump Administration’s Effort to Return Wrongly Deported Man**\
+`The judge also said she planned to force Trump officials to reveal what they had done behind the scenes to seek the return of the man, Kilmar Armando Abrego Garcia.`\
+https://nytimes.com/2025/04/15/us/trump-abrego-garcia-deported-hearing.html
+
 **Carli Lloyd on Hall of Fame honor: 'I played purely for the love of the game'**\
 `Despite all of her accolades, Lloyd says she was still surprised to get the Hall of Fame honor`\
 https://nytimes.com/athletic/6281956/2025/04/15/carli-lloyd-reflects-uswnt-soccer-hall-of-fame/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6278131/2025/04/15/aston-villa-paris-saint-germain-
 **Wednesday Briefing: A Trump-Harvard Showdown**\
 `Plus, the fight over Van Gogh’s roots.`\
 https://nytimes.com/2025/04/15/briefing/trump-harvard-sumy-ukraine-gaza-autopsies.html
-
-**What we learned about the Patriots' NFL Draft plans from Mike Vrabel**\
-`The Patriots coach spoke about Abdul Carter, finding a left tackle and what they're likely to do with the fourth pick in the draft.`\
-https://nytimes.com/athletic/6281790/2025/04/15/mike-vrabel-patriots-nfl-draft-plans/
 
