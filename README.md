@@ -1,3 +1,7 @@
+**Blackhawks pull off memorable comeback win in playoff-like atmosphere: 15 thoughts**\
+`In a thunderous away arena, the Blackhawks overcame an early deficit with the help of a commanding performance by Frank Nazar.`\
+https://nytimes.com/athletic/6280028/2025/04/14/blackhawks-comeback-nazar-shootout-canadiens/
+
 **Mets' Jose Siri will be out 'a while' with a fractured left tibia**\
 `The Mets had acquired Siri from the Rays, hopeful he would bring his superb defense and improve his contact skills. `\
 https://nytimes.com/athletic/6280073/2025/04/14/mets-jose-siri-left-tibia-fracture/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6279923/2025/04/14/jaydn-ott-transfer-portal-cal/
 **Anatomical Pouch**\
 `Per Bykodorov makes his New York Times Crossword debut.`\
 https://nytimes.com/2025/04/14/crosswords/daily-puzzle-2025-04-15.html
-
-**Corrections: April 15, 2025**\
-`Corrections that appeared in print on Tuesday, April 15, 2025.`\
-https://nytimes.com/2025/04/14/pageoneplus/corrections-april-15-2025.html
 

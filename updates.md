@@ -1,3 +1,7 @@
+**Mets' Jose Siri will be out 'a while' with a fractured left tibia**\
+`The Mets had acquired Siri from the Rays, hopeful he would bring his superb defense and improve his contact skills. `\
+https://nytimes.com/athletic/6280073/2025/04/14/mets-jose-siri-left-tibia-fracture/
+
 **Matt Rempe shows growth, Juuso Pärssinen's quest for consistency, more: Rangers takeaways**\
 `Rempe found chemistry with Chris Kreider as the Rangers beat the Panthers in their penultimate game of the season.`\
 https://nytimes.com/athletic/6280015/2025/04/14/rangers-rempe-kreider-parssinen-panthers/
