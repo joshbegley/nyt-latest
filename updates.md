@@ -1,3 +1,7 @@
+**The Bounce: Can Jimmy Butler, Steph Curry lead Warriors out of NBA Play-In Tournament?**\
+`Can the Warriors correct their bad luck in the NBA Play-In Tournament? There's only one way to find out.`\
+https://nytimes.com/athletic/6280746/2025/04/15/jimmy-butler-steph-curry-warriors-play-in-playoffs-nba-the-bounce/
+
 **Topps announces WWE Debut, Wrestlemania patches**\
 `Topps' Debut Patch program is coming to WWE and being expanded to include another milestone event`\
 https://nytimes.com/athletic/6280095/2025/04/15/topps-wwe-debut-patch-wrestlemania/
