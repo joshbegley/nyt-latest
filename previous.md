@@ -1,3 +1,15 @@
+**Paige Bueckers and the Importance of Dressing to Impress at the W.N.B.A. Draft**\
+`What 15 draft picks wore to meet fans, their new teammates and — not insignificantly — potential sponsors.`\
+https://nytimes.com/2025/04/15/style/2025-wnba-draft-paige-bueckers-morrow.html
+
+**Caitlin Clark, Fever's exhibition game in Iowa to be broadcast on ESPN**\
+`It is the first nationally televised WNBA preseason game on ESPN.`\
+https://nytimes.com/athletic/6280881/2025/04/15/caitlin-clark-fever-iowa-espn/
+
+**Trump’s Tariff Threat for Imported Medicines Poses Political Risks**\
+`Levies on Americans’ daily prescriptions and other medicines could raise costs, spur rationing and lead to shortages of critical drugs.`\
+https://nytimes.com/2025/04/15/health/trump-tariffs-drug-imports-china-india-ireland.html
+
 **The Bounce: Can Jimmy Butler, Steph Curry lead Warriors out of NBA Play-In Tournament?**\
 `Can the Warriors correct their bad luck in the NBA Play-In Tournament? There's only one way to find out.`\
 https://nytimes.com/athletic/6280746/2025/04/15/jimmy-butler-steph-curry-warriors-play-in-playoffs-nba-the-bounce/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/15/world/europe/france-prison-attacks.html
 **Stocks Edge Higher as Investors Assess Tariff Scenarios**\
 `The Trump administration’s chaotic tariff rollout continues to spur volatility in the markets.`\
 https://nytimes.com/2025/04/15/business/stocks-bonds-dollar-markets-tariffs.html
-
-**gws-agility-workout-aging**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/agility-workout-aging
-
-**gws-meghan-markle-kitchen-as-eve**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/meghan-markle-kitchen-as-eve
-
-**gws-casablanca-without-a-phone-digital-detox**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/casablanca-without-a-phone-digital-detox
 
