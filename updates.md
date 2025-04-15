@@ -1,3 +1,7 @@
+**4 Surprising Truths I Learned While Testing Dozens of Mascaras**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/wc-surprising-mascara-tips
+
 **This Isn’t the First Time Trump Has Mistakenly Deported Someone**\
 `President Trump says he is powerless to retrieve a Salvadoran man who was deported because of an administrative error. But he has done so before.`\
 https://nytimes.com/2025/04/15/us/politics/trump-deportation-maryland-man.html

@@ -1,3 +1,15 @@
+**Travis Hunter says he'll quit football if not allowed to play both ways**\
+`"I've been doing it my whole life," the Heisman winner said. "I feel like I could dominate on each side of the ball."`\
+https://nytimes.com/athletic/6281867/2025/04/15/travis-hunter-nfl-draft-quit-football/
+
+**Watch: Who should the Chargers select with their first draft pick?**\
+`"The Athletic Football Show" discusses why the Los Angeles Chargers should draft Ohio State wide receiver Emeka Egbuka with the 22nd pick.`\
+https://nytimes.com/athletic/6280340/2025/04/15/athletic-football-show-nfl-draft-2025-la-chargers/
+
+**Heat Today: It's April, but Miami feels 'March Madness' vibes ahead of Play-In**\
+`Miami's up-and-down season comes down to one game in Chicago (and maybe more). What will the Heat need to reach the playoffs?`\
+https://nytimes.com/athletic/6281124/2025/04/15/bulls-heat-nba-play-in-tournament/
+
 **4 Surprising Truths I Learned While Testing Dozens of Mascaras**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/wc-surprising-mascara-tips
@@ -21,16 +33,4 @@ https://nytimes.com/2025/04/15/nyregion/rubio-mahdawi-deportation-letter.html
 **Richard L. Armitage, 79, Dies; State Department Official in a Turbulent Era**\
 `While serving as Colin Powell’s deputy during the Iraq war, he found himself at the center of a scandal when he leaked a C.I.A. operative’s name.`\
 https://nytimes.com/2025/04/15/us/politics/richard-l-armitage-dead.html
-
-**Bo Bichette, Nick Lodolo among ideal trade targets in fantasy baseball right now**\
-`Michael Salfino looks at players with better expected stats than actual stats who are prime targets via a trade or the waiver wire.`\
-https://nytimes.com/athletic/6281612/2025/04/15/fantasy-baseball-2025-top-trade-targets/
-
-**How to watch Mariners at Reds: Both enter on winning runs behind strong pitching**\
-`The Mariners go on the road to face the Reds in a three-game series running Tuesday through Thursday. `\
-https://nytimes.com/athletic/6281653/2025/04/15/mariners-reds-mlb-how-to-watch/
-
-**Sperm Donors in the Netherlands Fathered More Than 25 Children Each, New Data Reveals**\
-`The numbers raise concerns about the risk of genetic anomalies as those children eventually seek partners and give birth.`\
-https://nytimes.com/2025/04/15/world/europe/dutch-sperm-donors-netherlands-children.html
 
