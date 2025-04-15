@@ -1,3 +1,15 @@
+**The Briefing: Villa 3 PSG 2 (4-5 agg) - Comeback win not quite enough for Emery's side in Champions League classic**\
+`Analysis of Tuesday's dramatic Champions League quarter-final second leg at Villa Park`\
+https://nytimes.com/athletic/6278131/2025/04/15/aston-villa-paris-saint-germain-champions-league-analysis/
+
+**Wednesday Briefing: A Trump-Harvard Showdown**\
+`Plus, the fight over Van Gogh’s roots.`\
+https://nytimes.com/2025/04/15/briefing/trump-harvard-sumy-ukraine-gaza-autopsies.html
+
+**What we learned about the Patriots' NFL Draft plans from Mike Vrabel**\
+`The Patriots coach spoke about Abdul Carter, finding a left tackle and what they're likely to do with the fourth pick in the draft.`\
+https://nytimes.com/athletic/6281790/2025/04/15/mike-vrabel-patriots-nfl-draft-plans/
+
 **Judge Blocks Trump From Retaliating Against Another Top Law Firm**\
 `It’s the latest setback to the president’s efforts to wield government power to punish the legal industry. A federal judge called it “a shocking abuse of power.”`\
 https://nytimes.com/2025/04/15/us/politics/trump-susman-godfrey-law-firm.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/15/us/politics/trump-deportation-maryland-man.html
 **19 Big Cats Rescued in Spain as Police Raid Animal Smuggling Ring**\
 `With a demand for exotic felines on the rise, often driven by social media, endangered and protected populations are under even more threat.`\
 https://nytimes.com/2025/04/15/world/europe/spain-big-cats-smuggling.html
-
-**How to Solve the Iran Problem**\
-`An olive branch is easier to accept when it is offered from the tip of a sword.`\
-https://nytimes.com/2025/04/15/opinion/iran-trump-nuclear-deal.html
-
-**U.S. Cites Mideast Peace Process to Justify Move to Deport Student**\
-`Mohsen Mahdawi, who led Columbia protests, engaged in activities that could threaten attempts to end the war in Gaza, a memo from Secretary of State Marco Rubio said.`\
-https://nytimes.com/2025/04/15/nyregion/rubio-mahdawi-deportation-letter.html
-
-**Richard L. Armitage, 79, Dies; State Department Official in a Turbulent Era**\
-`While serving as Colin Powell’s deputy during the Iraq war, he found himself at the center of a scandal when he leaked a C.I.A. operative’s name.`\
-https://nytimes.com/2025/04/15/us/politics/richard-l-armitage-dead.html
 
