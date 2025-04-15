@@ -1,3 +1,7 @@
+**Dart apologizes after requesting opponent wears deodorant: ‘She smells really bad’**\
+`Courtside microphones picked up Dart's complaint over her opponent's personal hygiene during a changeover in the second set.`\
+https://nytimes.com/athletic/6282206/2025/04/15/harriet-dart-deodorant-smell-wta-rouen/
+
 **Ravens GM Eric DeCosta sees value in the depth of this year's draft class**\
 `DeCosta also touched on Mark Andrews' future in Baltimore and some of the team's other offseason questions at his pre-draft luncheon. `\
 https://nytimes.com/athletic/6281966/2025/04/15/ravens-eric-decosta-nfl-draft-plans/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/15/us/trump-abrego-garcia-deported-hearing.html
 **Carli Lloyd on Hall of Fame honor: 'I played purely for the love of the game'**\
 `Despite all of her accolades, Lloyd says she was still surprised to get the Hall of Fame honor`\
 https://nytimes.com/athletic/6281956/2025/04/15/carli-lloyd-reflects-uswnt-soccer-hall-of-fame/
-
-**Trump Turned Up the Pressure on Harvard**\
-`Also, the I.R.S. is downsizing. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2025/04/15/briefing/trump-harvard-tax-status-irs-resignations.html
 
