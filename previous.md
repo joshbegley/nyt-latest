@@ -1,3 +1,7 @@
+**Mets scratch Griffin Canning. Does this open the door later this week for Brandon Sproat?**\
+`The Mets' rotation is in flux. They have multiple ways to address it, including a chance to bring up their top pitching prospect.`\
+https://nytimes.com/athletic/6282280/2025/04/15/mets-rotation-brandon-sproat-debut-possibility/
+
 **Top Pentagon Adviser Placed on Leave in Leak Investigation**\
 `Dan Caldwell, who has accompanied Defense Secretary Pete Hegseth to meetings with foreign officials, was escorted from the Pentagon.`\
 https://nytimes.com/2025/04/15/us/politics/pentagon-leak-investigation.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/04/15/us/trump-white-house-briefing-room-ne
 **C.I.A. Director’s Messages in Leaked Chat Were Deleted, Agency Says**\
 `A watchdog group has said the exchanges on the Signal app were federal records, and sued in an effort to preserve them.`\
 https://nytimes.com/2025/04/15/us/politics/cia-director-leaked-chat.html
-
-**Judge Rebukes Trump Administration’s Effort to Return Wrongly Deported Man**\
-`The judge also said she planned to force Trump officials to reveal what they have done behind the scenes to seek the return of the man, Kilmar Armando Abrego Garcia.`\
-https://nytimes.com/2025/04/15/us/trump-abrego-garcia-deported-hearing.html
 

@@ -1,3 +1,7 @@
+**Mets scratch Griffin Canning. Does this open the door later this week for Brandon Sproat?**\
+`The Mets' rotation is in flux. They have multiple ways to address it, including a chance to bring up their top pitching prospect.`\
+https://nytimes.com/athletic/6282280/2025/04/15/mets-rotation-brandon-sproat-debut-possibility/
+
 **Top Pentagon Adviser Placed on Leave in Leak Investigation**\
 `Dan Caldwell, who has accompanied Defense Secretary Pete Hegseth to meetings with foreign officials, was escorted from the Pentagon.`\
 https://nytimes.com/2025/04/15/us/politics/pentagon-leak-investigation.html
