@@ -1,3 +1,19 @@
+**Ivan Demidov needed one period to show how he can benefit Canadiens in present and future**\
+`Demidov's debut was more impactful than the Canadiens could have hoped, and should they reach the playoffs, he will make a difference.`\
+https://nytimes.com/athletic/6280303/2025/04/15/ivan-demidov-canadiens-nhl-blackhawks/
+
+**Concacaf president voices opposition to 64-team World Cup proposal**\
+`The proposed plan would see 128 matches played, double the amount at the last World Cup in Qatar in 2022.`\
+https://nytimes.com/athletic/6280478/2025/04/15/world-cup-64-teams-2030-concacaf/
+
+**Director of Field Hospital in Southern Gaza Says Israeli Strike Killed a Guard**\
+`Israel’s military did not immediately comment on the report, which came two days after it attacked the Ahli Arab Hospital in Gaza City.`\
+https://nytimes.com/2025/04/15/world/middleeast/gaza-hospital-israel-military.html
+
+**A war of words adds fuel to upcoming Oilers-Kings series**\
+`A night of bad blood added a little more juice to the imminent playoff matchup — not that it needed it.`\
+https://nytimes.com/athletic/6280292/2025/04/15/oilers-kings-playoffs-war-of-words/
+
 **Trump’s Give-and-Take Tariff Strategy**\
 `The president has watered down some of his trade demands, but that’s created confusion in the markets and has forced his administration to adapt its messaging.`\
 https://nytimes.com/2025/04/15/business/dealbook/trump-tariffs-exemptions-bessent.html
