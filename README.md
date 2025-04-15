@@ -1,3 +1,11 @@
+**Paige Bueckers' arrival to the Dallas Wings as No. 1 WNBA Draft pick marks a new era**\
+`Can Bueckers finally get the Wings over the playoff hump? `\
+https://nytimes.com/athletic/6280044/2025/04/14/paige-bueckers-wnba-draft-dallas-wings-top-pick/
+
+**Review: In ‘John Proctor Is the Villain,’ It’s the Girls vs. the Men**\
+`Kimberly Belflower’s play, on Broadway starring Sadie Sink, gives high school students a chance to prosecute a #MeToo case against “The Crucible.”`\
+https://nytimes.com/2025/04/14/theater/john-proctor-is-the-villain-review-sink.html
+
 **Blue Jackets still have playoff hopes heading into must-win game vs. Philadelphia**\
 `Thanks to a Montreal shootout loss to Chicago on Monday, the Blue Jackets — despite everything — still have a shot at the postseason.`\
 https://nytimes.com/athletic/6279885/2025/04/14/blue-jackets-nhl-playoffs-flyers-canadiens/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/14/opinion/dissident-right-trump.html
 **How Blues can clinch wild-card spot in season finale vs. Utah: 6 storylines to know**\
 `Beat Utah in regulation Tuesday night and the Blues are in. Anything else makes it a little dicey.`\
 https://nytimes.com/athletic/6277448/2025/04/14/blues-season-finale-utah-wild-card-playoffs/
-
-**Court Temporarily Blocks Trump’s Shuttering of Migrant Entry Program**\
-`The Biden-era program has allowed hundreds of thousands of migrants from Cuba, Nicaragua, Venezuela and Haiti to enter the United States and work legally.`\
-https://nytimes.com/2025/04/14/us/politics/trump-administration-parole-migrant.html
-
-**Harvard’s Strength and How Far We’ve Fallen So Quickly**\
-`The thrill over its response to the Trump administration is a measure of how low, and how fast, our expectations have fallen.`\
-https://nytimes.com/live/2025/04/07/opinion/thepoint/harvard-trump-administration-statement
 
