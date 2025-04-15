@@ -1,3 +1,7 @@
+**Onstage and Off, Whitney White Is Everywhere This Spring**\
+`An actor, musician and writer, White is also now an in-demand stage director. “I am looking, I am hungry, I am searching,” she said.`\
+https://nytimes.com/2025/04/15/theater/whitney-white-macbeth-bam.html
+
 **Buchanan signs Chelsea contract extension**\
 `The Canada international, 29, has won two Women's Super League titles in her two seasons at the club.`\
 https://nytimes.com/athletic/6280638/2025/04/15/kadeisha-buchanan-chelsea-contract-new/

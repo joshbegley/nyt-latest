@@ -1,3 +1,7 @@
+**Onstage and Off, Whitney White Is Everywhere This Spring**\
+`An actor, musician and writer, White is also now an in-demand stage director. “I am looking, I am hungry, I am searching,” she said.`\
+https://nytimes.com/2025/04/15/theater/whitney-white-macbeth-bam.html
+
 **Buchanan signs Chelsea contract extension**\
 `The Canada international, 29, has won two Women's Super League titles in her two seasons at the club.`\
 https://nytimes.com/athletic/6280638/2025/04/15/kadeisha-buchanan-chelsea-contract-new/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6267443/2025/04/15/knicks-nba-playoffs-expectations
 **Potential offer-sheet targets for the Flyers — plus 3 Flyers who might get targeted**\
 `Offer-sheet compensation thresholds won’t be revealed until June, but there's already plenty of chatter.`\
 https://nytimes.com/athletic/6279166/2025/04/15/flyers-offer-sheet-candidates/
-
-**Fantasy football and the 2025 NFL Draft: Ranking the Top 85 rookies**\
-`Are you ready for the NFL Draft? You will be if you read Jake Ciely's insights on the Top 85 rookies at skill positions. `\
-https://nytimes.com/athletic/6270641/2025/04/15/2025-nfl-draft-rookies-fantasy-football-rankings/
 
