@@ -1,3 +1,15 @@
+**Tracking Tropical Cyclone Errol**\
+`See the likely path and wind arrival times for Errol.`\
+https://nytimes.com/interactive/2025/04/15/weather/errol-map-path-tracker.html
+
+**Algeria Expels 12 French Officials as Tensions Rise**\
+`The expulsions came after an Algerian official was accused of kidnapping an influencer who had been granted political asylum in France.`\
+https://nytimes.com/2025/04/15/world/europe/france-algeria-expulsions-relations.html
+
+**Schaefer, Frondell lead NHL Central Scouting's final 2025 NHL Draft rankings**\
+`NHL Central Scouting released its final rankings for the 2025 NHL Draft class on Tuesday morning.`\
+https://nytimes.com/athletic/6278986/2025/04/15/nhl-central-scouting-2025-ranking-final/
+
 **Trump Threatens Harvard’s Tax Status, Escalating Billion-Dollar Feud**\
 `Harvard has rejected an effort by the White House to exert more control over its programs and policies.`\
 https://nytimes.com/2025/04/15/us/politics/trump-harvard-tax-status.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6280711/2025/04/15/mlb-bryce-harper-baby-gender-rev
 **Bellingham says UCL remontada 'tailor-made' for Real Madrid**\
 `The Spanish side trail 3-0 following last week's first leg defeat in London but will still believe they can progress to the semi-final stage`\
 https://nytimes.com/athletic/6281050/2025/04/15/bellingham-real-madrid-arsenal-champions-league/
-
-**Why a Tariff-Inflated $2,000 iPhone Is Nothing to Fear**\
-`Even if gadget prices surge, we have plenty of cheaper options, like buying last year’s phone model instead of the latest and greatest.`\
-https://nytimes.com/2025/04/15/technology/personaltech/trump-tariffs-iphone-cost.html
-
-**Projecting the 2025-26 Canucks roster: Who stays, who goes?**\
-`With one game left in an odd and disappointing season, let's set the stakes of the offseason by doing our best to project the 2025-26 team.`\
-https://nytimes.com/athletic/6280339/2025/04/15/canucks-roster-2025-26-season-projection/
-
-**Santa Lives in Rovaniemi, Finland. Some of His Neighbors Are Not Thrilled.**\
-`A tourist season that stretches from October to March has been anything but jolly for some residents of the “Official Hometown of Santa Claus.”`\
-https://nytimes.com/2025/04/15/world/asia/santa-finland-rovaniemi.html
 

@@ -1,3 +1,7 @@
+**Trump Threatens Harvard’s Tax Status, Escalating Billion-Dollar Feud**\
+`Harvard has rejected an effort by the White House to exert more control over its programs and policies.`\
+https://nytimes.com/2025/04/15/us/politics/trump-harvard-tax-status.html
+
 **FIFA, Infantino's U.S. Club World Cup tour is a grand indicator**\
 `FIFA's president has been making the rounds, underscoring the significance of this summer, the U.S. market – and the work needed to be done`\
 https://nytimes.com/athletic/6280009/2025/04/15/fifa-gianni-infantino-club-world-cup-usa-tour/
