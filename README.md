@@ -1,3 +1,7 @@
+**JD Vance Sees ‘Good Chance’ of Trade Deal With Britain**\
+`The vice president did not offer details, but his comments may offer British leaders some comfort after the Trump administration imposed tariffs.`\
+https://nytimes.com/2025/04/15/us/politics/trump-tariffs-uk-jd-vance-trade-deal.html
+
 **Questions persist, but for now, the Phillies need to make this outfield work**\
 `The Phillies entered this season with questions about their outfield, which have persisted. But they lack viable outfield alternatives.`\
 https://nytimes.com/athletic/6280076/2025/04/15/phillies-outfield-brandon-marsh-struggles/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6279684/2025/04/15/bobby-jenks-terminal-cancer-whit
 **What's NFL Draft day like for waiting prospects? 'One of the worst and best days of my life'**\
 `For prospects waiting for a phone call, Day 3 stirs up all kinds of emotions. "I felt embarrassed," Rams Pro Bowl RB Kyren Williams recalls.`\
 https://nytimes.com/athletic/6278962/2025/04/15/nfl-draft-prospects-waiting-game/
-
-**Trapped Abroad: The Man at the Center of a Constitutional Standoff**\
-`The case of a man mistakenly deported to a brutal prison in El Salvador is a test for the limits of presidential power — and the rule of law.`\
-https://nytimes.com/2025/04/15/podcasts/the-daily/deported-man-el-salvador-bukele-trump.html
 
