@@ -1,3 +1,7 @@
+**Carli Lloyd on Hall of Fame honor: 'I played purely for the love of the game'**\
+`Despite all of her accolades, Lloyd says she was still surprised to get the Hall of Fame honor`\
+https://nytimes.com/athletic/6281956/2025/04/15/carli-lloyd-reflects-uswnt-soccer-hall-of-fame/
+
 **Trump Turned Up the Pressure on Harvard**\
 `Also, the I.R.S. is downsizing. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/04/15/briefing/trump-harvard-tax-status-irs-resignations.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/15/briefing/trump-harvard-sumy-ukraine-gaza-autopsie
 **What we learned about the Patriots' NFL Draft plans from Mike Vrabel**\
 `The Patriots coach spoke about Abdul Carter, finding a left tackle and what they're likely to do with the fourth pick in the draft.`\
 https://nytimes.com/athletic/6281790/2025/04/15/mike-vrabel-patriots-nfl-draft-plans/
-
-**Judge Blocks Trump From Retaliating Against Another Top Law Firm**\
-`It’s the latest setback to the president’s efforts to wield government power to punish the legal industry. A federal judge called it “a shocking abuse of power.”`\
-https://nytimes.com/2025/04/15/us/politics/trump-susman-godfrey-law-firm.html
 
