@@ -1,3 +1,15 @@
+**Tarik Skubal's changeup altered his career. Now it looks better than ever**\
+`The changeup has evolved since Skubal's younger days. The Brewers found out Monday as the pitcher delivered another scoreless gem.`\
+https://nytimes.com/athletic/6280127/2025/04/15/tarik-skubal-detroit-tigers-changeup/
+
+**Aristotle? Hulk Hogan? What we can learn from Dan Campbell’s locker room speeches**\
+`Campbell's speeches combine physicality, authenticity, swearing and classical rhetoric to produce moments that go viral like clockwork.`\
+https://nytimes.com/athletic/6050050/2025/04/15/url-dan-campbell-locker-room-speeches-experts-explain/
+
+**The New York Times International Edition in Print for Wednesday, April 16, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/04/15/todays-new-york-times-international-edition
+
 **Falcons mock draft mailbag: Lots of edges and corners, plus Mike Green momentum**\
 `We asked for your Falcons mock drafts. You responded with some creative possibilities, and we learned a few things along the way.`\
 https://nytimes.com/athletic/6279149/2025/04/15/falcons-mock-draft-mailbag-mike-green/
