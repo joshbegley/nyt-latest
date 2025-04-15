@@ -1,3 +1,15 @@
+**Mbappe handed one-game La Liga ban after Alaves red card**\
+`Mbappe was shown a straight red card at Alaves for his lunge on Alaves midfielder Antonio Blanco.`\
+https://nytimes.com/athletic/6277825/2025/04/15/kylian-mbappe-suspension-real-madrid/
+
+**Fans of the ‘Great Moose Migration’ Prep for a Weekslong Binge Watch**\
+`The popular annual livestream that follows the migration of Sweden’s entire moose population began on Tuesday.`\
+https://nytimes.com/video/world/europe/100000010111457/moose-migration-sweden-livestream.html
+
+**American Airlines Will Offer Free Wi-Fi on Most Flights Next Year**\
+`Starting in January, members of the airline’s AAdvantage loyalty program will have free access to wireless internet on 90 percent of its fleet, the company said.`\
+https://nytimes.com/2025/04/15/business/american-airlines-free-wifi.html
+
 **More Than 20,000 I.R.S. Employees Offer to Resign**\
 `The I.R.S. had about 100,000 employees before President Trump took office. Between resignations and layoffs, the I.R.S. is on track to lose about a third of its staff this year.`\
 https://nytimes.com/2025/04/15/us/politics/irs-resignations-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/15/business/antitrust-structure-deals-challenge.html
 **Commanders NFL Draft 2025 guide: Picks, predictions and key needs**\
 `Keeping you up to date on all of Washington's draft-related news and analysis heading into Round 1 on April 24. `\
 https://nytimes.com/athletic/6233463/2025/04/15/washington-commanders-2025-nfl-draft-picks-needs-predictions-guide/
-
-**Marvin Levy, Oscar-Winning Publicist to Spielberg, Dies at 96**\
-`For 42 years, Mr. Levy strategized behind the scenes to promote Steven Spielberg’s movies and ensure that the director was seen as Hollywood’s de facto head of state.`\
-https://nytimes.com/2025/04/15/business/media/marvin-levy-dead.html
-
-**Two Defiant Presidents vs. a Deported Immigrant**\
-`Readers discuss the case of the immigrant wrongly deported to El Salvador. Also: Harvard’s battle against President Trump.`\
-https://nytimes.com/2025/04/15/opinion/deported-immigrant-el-salvador.html
-
-**In ‘Towards Zero,’ Agatha Christie Gets Steamy**\
-`A new three-part TV mini-series streaming on BritBox amps up the themes of forbidden desire and psychological distress in the detective novelist’s 1944 book.`\
-https://nytimes.com/2025/04/15/arts/television/towards-zero-agatha-christie-anjelica-huston.html
 
