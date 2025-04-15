@@ -1,3 +1,7 @@
+**Watch: Which WNBA Draft players are the best fit with their new teams?**\
+`No Offseason discusses which of the players drafted could fit best with their new teams.`\
+https://nytimes.com/athletic/6280871/2025/04/15/no-offseason-wnba-draft-best-players/
+
 **In Showdowns With the Courts, Trump Is Increasingly Combative**\
 `Scholars say that the Trump administration is now flirting with lawless defiance of court orders, a path with an uncertain end.`\
 https://nytimes.com/2025/04/15/us/politics/trump-defy-courts.html
