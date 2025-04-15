@@ -1,3 +1,31 @@
+**What I think, and what I know, about the Red Wings as offseason nears**\
+`With two games left in the season, Detroit's offseason storylines are coming into view. Let's break it down.`\
+https://nytimes.com/athletic/6278818/2025/04/15/red-wings-offseason-storylines-marco-kasper-patrick-kane/
+
+**Last year, Knicks fans reveled in a playoff run. This year, expectations are more measured**\
+`The Knicks have been here before and so have their fans. This time, expectations of a deep playoff run are tempered.`\
+https://nytimes.com/athletic/6267443/2025/04/15/knicks-nba-playoffs-expectations-fans/
+
+**Potential offer-sheet targets for the Flyers — plus 3 Flyers who might get targeted**\
+`Offer-sheet compensation thresholds won’t be revealed until June, but there's already plenty of chatter.`\
+https://nytimes.com/athletic/6279166/2025/04/15/flyers-offer-sheet-candidates/
+
+**Fantasy football and the 2025 NFL Draft: Ranking the Top 85 rookies**\
+`Are you ready for the NFL Draft? You will be if you read Jake Ciely's insights on the Top 85 rookies at skill positions. `\
+https://nytimes.com/athletic/6270641/2025/04/15/2025-nfl-draft-rookies-fantasy-football-rankings/
+
+**Seahawks fans have spoken. Here’s who they would draft if they were GM**\
+`Readers submitted 80 mock drafts, some more plausible than others. We broke down the consensus choices and our favorite submissions.`\
+https://nytimes.com/athletic/6279961/2025/04/15/seahawks-mock-draft-mailbag-john-schneider/
+
+**Trump Administration Live Updates: Vance Predicts Trump Will Make Trade Deal With U.K.**\
+``\
+https://nytimes.com/live/2025/04/15/us/trump-news
+
+**Ten offseason questions for Sabres after yet another year missing playoffs**\
+`The questions facing the Sabres this summer are heavy, and they start right at the top of the organization.`\
+https://nytimes.com/athletic/6278715/2025/04/15/buffalo-sabres-kevyn-adams-alex-tuch/
+
 **Weekly Student News Quiz: Tariffs, Roof Collapse, 'A Minecraft Movie'**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2025/04/15/learning/15StudentNewsQuiz.html
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6280303/2025/04/15/ivan-demidov-canadiens-nhl-black
 **Concacaf president voices opposition to 64-team World Cup proposal**\
 `The proposed plan would see 128 matches played, double the amount at the last World Cup in Qatar in 2022.`\
 https://nytimes.com/athletic/6280478/2025/04/15/world-cup-64-teams-2030-concacaf/
-
-**Director of Field Hospital in Southern Gaza Says Israeli Strike Killed a Guard**\
-`Israel’s military did not immediately comment on the report, which came two days after it attacked the Ahli Arab Hospital in Gaza City.`\
-https://nytimes.com/2025/04/15/world/middleeast/gaza-hospital-israel-military.html
-
-**Trump’s Give-and-Take Tariff Strategy**\
-`The president has watered down some of his trade demands, but that’s created confusion in the markets and has forced his administration to adapt its messaging.`\
-https://nytimes.com/2025/04/15/business/dealbook/trump-tariffs-exemptions-bessent.html
-
-**Jaren Jackson Jr. has had a career season, but can he help save the Grizzlies?**\
-`In an uneven year in Memphis, Jaren Jackson Jr. has been the closest thing to a constant for the Grizzlies. `\
-https://nytimes.com/athletic/6278965/2025/04/15/jaren-jackson-jr-grizzlies-warriors-play-in-nba/
-
-**Nico Iamaleava provides a jolt to a usually dry spring quarterback transfer market**\
-`In the 2024 cycle, more than 80 Division I QBs entered the portal after April 1. Only a dozen ended up starting an FBS game last fall. `\
-https://nytimes.com/athletic/6278524/2025/04/15/nico-iamaleava-quarterback-spring-portal-window/
-
-**Dream Team: Building a USA roster around Aaron Judge for the 2026 World Baseball Classic**\
-`Judge was named the USA's WBC team captain Monday. Who should join him on the 2026 squad?  `\
-https://nytimes.com/athletic/6279449/2025/04/15/building-team-usa-wbc-roster/
-
-**Lessons learned from the spring transfer portal window: 'I think teams panic'**\
-`“We did a study of everyone we took in the spring, and I don’t know that any one of them was a major contributor,” said a personnel staffer.`\
-https://nytimes.com/athletic/6279466/2025/04/15/spring-transfer-portal-window-college-football/
-
-**How the Flames gave themselves a chance to shock the NHL, and what comes next: Catching up with Craig Conroy**\
-`If the Flames win their final two games and get some help from the Blues or Wild, they can complete an improbable run to the playoffs.`\
-https://nytimes.com/athletic/6279710/2025/04/15/flames-nhl-playoffs-craig-conroy/
 

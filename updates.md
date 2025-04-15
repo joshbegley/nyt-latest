@@ -1,3 +1,7 @@
+**Weekly Student News Quiz: Tariffs, Roof Collapse, 'A Minecraft Movie'**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/04/15/learning/15StudentNewsQuiz.html
+
 **Ivan Demidov needed one period to show how he can benefit Canadiens in present and future**\
 `Demidov's debut was more impactful than the Canadiens could have hoped, and should they reach the playoffs, he will make a difference.`\
 https://nytimes.com/athletic/6280303/2025/04/15/ivan-demidov-canadiens-nhl-blackhawks/
