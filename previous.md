@@ -1,3 +1,7 @@
+**Blue Jackets still have playoff hopes heading into must-win game vs. Philadelphia**\
+`Thanks to a Montreal shootout loss to Chicago on Monday, the Blue Jackets — despite everything — still have a shot at the postseason.`\
+https://nytimes.com/athletic/6279885/2025/04/14/blue-jackets-nhl-playoffs-flyers-canadiens/
+
 **After another embarrassing loss, it's fair to wonder what's wrong with the Red Sox**\
 `Garrett Crochet's gem on Sunday was supposed to give the Red Sox momentum. Instead, they fell flat in a 16-1 drubbing in Tampa.`\
 https://nytimes.com/athletic/6280008/2025/04/14/red-sox-early-season-struggles/
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/6277448/2025/04/14/blues-season-finale-utah-wild-ca
 `The Biden-era program has allowed hundreds of thousands of migrants from Cuba, Nicaragua, Venezuela and Haiti to enter the United States and work legally.`\
 https://nytimes.com/2025/04/14/us/politics/trump-administration-parole-migrant.html
 
-**Harvard’s Decision Was the Only Decision**\
+**Harvard’s Strength and How Far We’ve Fallen So Quickly**\
 `The thrill over its response to the Trump administration is a measure of how low, and how fast, our expectations have fallen.`\
 https://nytimes.com/live/2025/04/07/opinion/thepoint/harvard-trump-administration-statement
-
-**Harvard’s Decision to Resist Trump is ‘of Momentous Significance’**\
-`But a fight with the nation’s oldest, richest and most elite university is a battle that President Trump and his powerful aide, Stephen Miller, want to have.`\
-https://nytimes.com/2025/04/14/us/politics/harvard-trump.html
 

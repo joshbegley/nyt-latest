@@ -1,3 +1,11 @@
+**Blue Jackets still have playoff hopes heading into must-win game vs. Philadelphia**\
+`Thanks to a Montreal shootout loss to Chicago on Monday, the Blue Jackets — despite everything — still have a shot at the postseason.`\
+https://nytimes.com/athletic/6279885/2025/04/14/blue-jackets-nhl-playoffs-flyers-canadiens/
+
+**Harvard’s Strength and How Far We’ve Fallen So Quickly**\
+`The thrill over its response to the Trump administration is a measure of how low, and how fast, our expectations have fallen.`\
+https://nytimes.com/live/2025/04/07/opinion/thepoint/harvard-trump-administration-statement
+
 **After another embarrassing loss, it's fair to wonder what's wrong with the Red Sox**\
 `Garrett Crochet's gem on Sunday was supposed to give the Red Sox momentum. Instead, they fell flat in a 16-1 drubbing in Tampa.`\
 https://nytimes.com/athletic/6280008/2025/04/14/red-sox-early-season-struggles/
