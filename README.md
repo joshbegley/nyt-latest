@@ -1,3 +1,7 @@
+**Changing the Rules**\
+`We cover a White House plan to slash regulations.`\
+https://nytimes.com/2025/04/15/briefing/trump-deregulation.html
+
 **JD Vance Sees ‘Good Chance’ of Trade Deal With Britain**\
 `The vice president did not offer details, but his comments may offer British leaders some comfort after the Trump administration imposed tariffs.`\
 https://nytimes.com/2025/04/15/us/politics/trump-tariffs-uk-jd-vance-trade-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6279486/2025/04/15/bill-belichick-jordon-hudson-unc
 **Former White Sox closer Bobby Jenks opens up on terminal diagnosis: ‘I’m going to be here fighting'**\
 `The former White Sox closer lost his home in the Palisades fires in January. Then, the cancer diagnosis came. `\
 https://nytimes.com/athletic/6279684/2025/04/15/bobby-jenks-terminal-cancer-white-sox/
-
-**What's NFL Draft day like for waiting prospects? 'One of the worst and best days of my life'**\
-`For prospects waiting for a phone call, Day 3 stirs up all kinds of emotions. "I felt embarrassed," Rams Pro Bowl RB Kyren Williams recalls.`\
-https://nytimes.com/athletic/6278962/2025/04/15/nfl-draft-prospects-waiting-game/
 
