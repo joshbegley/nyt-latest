@@ -1,3 +1,11 @@
+**This Isn’t the First Time Trump Has Mistakenly Deported Someone**\
+`President Trump says he is powerless to retrieve a Salvadoran man who was deported because of an administrative error. But he has done so before.`\
+https://nytimes.com/2025/04/15/us/politics/trump-deportation-maryland-man.html
+
+**19 Big Cats Rescued in Spain as Police Raid Animal Smuggling Ring**\
+`With a demand for exotic felines on the rise, often driven by social media, endangered and protected populations are under even more threat.`\
+https://nytimes.com/2025/04/15/world/europe/spain-big-cats-smuggling.html
+
 **How to Solve the Iran Problem**\
 `An olive branch is easier to accept when it is offered from the tip of a sword.`\
 https://nytimes.com/2025/04/15/opinion/iran-trump-nuclear-deal.html
@@ -9,10 +17,6 @@ https://nytimes.com/2025/04/15/nyregion/rubio-mahdawi-deportation-letter.html
 **Richard L. Armitage, 79, Dies; State Department Official in a Turbulent Era**\
 `While serving as Colin Powell’s deputy during the Iraq war, he found himself at the center of a scandal when he leaked a C.I.A. operative’s name.`\
 https://nytimes.com/2025/04/15/us/politics/richard-l-armitage-dead.html
-
-**Our 17 Most Lemony Recipes**\
-`Pucker up, buttercup.`\
-https://nytimes.com/2025/04/15/dining/lemon-recipes.html
 
 **Bo Bichette, Nick Lodolo among ideal trade targets in fantasy baseball right now**\
 `Michael Salfino looks at players with better expected stats than actual stats who are prime targets via a trade or the waiver wire.`\
@@ -27,14 +31,6 @@ https://nytimes.com/athletic/6281653/2025/04/15/mariners-reds-mlb-how-to-watch/
 https://nytimes.com/2025/04/15/world/europe/dutch-sperm-donors-netherlands-children.html
 
 **It Took a Century to Find This Colossal Squid**\
-`An expedition spotted a juvenile of the species in the South Sandwich Islands. This cephalopod can grow to more than 20 feet and has proved elusive in its deep-sea environs.`\
+`An expedition spotted a baby of the species in the South Sandwich Islands. This cephalopod can grow to more than 20 feet and has proved elusive in its deep-sea environs.`\
 https://nytimes.com/2025/04/15/science/squid-colossal-deep-sea-exploration.html
-
-**Prime Tire: An F1 driver of the day quibble. Plus: Early championship standings takeaways**\
-`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
-https://nytimes.com/athletic/6281644/2025/04/15/f1-bahrain-grand-prix-prime-tire/
-
-**Dodger Stadium to host baseball among new venues revealed for L.A. Olympics**\
-`LA28 on Tuesday revealed a series of new venues for the next Summer Olympics, highlighted by baseball's return to Dodger Stadium.`\
-https://nytimes.com/athletic/6281451/2025/04/15/la-olympics-2028-baseball-dodger-stadium-venues/
 

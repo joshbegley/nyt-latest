@@ -1,6 +1,10 @@
+**4 Surprising Truths I Learned While Testing Dozens of Mascaras**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/wc-surprising-mascara-tips
+
 **This Isn’t the First Time Trump Has Mistakenly Deported Someone**\
 `President Trump says he is powerless to retrieve a Salvadoran man who was deported because of an administrative error. But he has done so before.`\
-https://nytimes.com/2025/04/15/us/politics/trump-deportation-maryland-man.html
+https://nytimes.com/live/2025/04/15/us/trump-news/trump-deportation-maryland-man
 
 **19 Big Cats Rescued in Spain as Police Raid Animal Smuggling Ring**\
 `With a demand for exotic felines on the rise, often driven by social media, endangered and protected populations are under even more threat.`\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6281653/2025/04/15/mariners-reds-mlb-how-to-watch/
 **Sperm Donors in the Netherlands Fathered More Than 25 Children Each, New Data Reveals**\
 `The numbers raise concerns about the risk of genetic anomalies as those children eventually seek partners and give birth.`\
 https://nytimes.com/2025/04/15/world/europe/dutch-sperm-donors-netherlands-children.html
-
-**It Took a Century to Find This Colossal Squid**\
-`An expedition spotted a baby of the species in the South Sandwich Islands. This cephalopod can grow to more than 20 feet and has proved elusive in its deep-sea environs.`\
-https://nytimes.com/2025/04/15/science/squid-colossal-deep-sea-exploration.html
 
