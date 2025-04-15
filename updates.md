@@ -1,3 +1,7 @@
+**England assistant Veurink to become Netherlands head coach after Euro 2025**\
+`Veurink has prior experience with the Dutch national team, having served as an assistant under Sarina Wiegman from 2017 to 2021.`\
+https://nytimes.com/athletic/6280351/2025/04/15/arjan-veurink-england-netherlands-head-coach/
+
 **Late Night Weighs In on Trump’s Perfect Physical**\
 `“The doctor said Trump’s BMI is 28,” Jimmy Kimmel said. “Right, and so is his next wife, by the way.”`\
 https://nytimes.com/2025/04/15/arts/television/late-night-trump-physical.html
