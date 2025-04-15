@@ -1,3 +1,11 @@
+**D.C. Mayor Prepares City for Cuts After Congress Goes on Break**\
+`The House of Representatives went on recess without acting on a measure to avert a possible billion-dollar budget cut in Washington, D.C.`\
+https://nytimes.com/2025/04/15/us/washington-dc-budget-freeze-congress.html
+
+**I Have Never Been More Afraid for My Country’s Future**\
+`Trump’s worldview is stuck in the 1970s, and his whole administration is a cruel farce.`\
+https://nytimes.com/2025/04/15/opinion/trump-administration-china.html
+
 **How a Nifty Government Tool Knows About Earthquakes Before You Feel Them**\
 `Even a few seconds’ notice gives people time to prepare before the shaking.`\
 https://nytimes.com/2025/04/15/us/earthquake-alerts-california.html
