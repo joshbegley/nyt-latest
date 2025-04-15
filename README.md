@@ -1,3 +1,11 @@
+**FIFA, Infantino's U.S. Club World Cup tour is a grand indicator**\
+`FIFA's president has been making the rounds, underscoring the significance of this summer, the U.S. market – and the work needed to be done`\
+https://nytimes.com/athletic/6280009/2025/04/15/fifa-gianni-infantino-club-world-cup-usa-tour/
+
+**NBA Power Rankings: Final grades are in as the race to the finals begins**\
+`Which teams are feeling good going into the playoffs, and which ones are simply glad the season is over?`\
+https://nytimes.com/athletic/6280692/2025/04/15/nba-power-rankings-thunder-celtics-cavaliers-lakers/
+
 **Until Saturday: What we learned from Nico drama**\
 `Until Saturday is The Athletic's college football newsletter.`\
 https://nytimes.com/athletic/6280955/2025/04/15/nico-iamaleava-tennessee-holdout-nil-until-saturday/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/15/world/asia/santa-finland-rovaniemi.html
 **Join Keith Law for a live MLB Draft rankings Q&A at 1 pm ET!**\
 `Law chats about his most recent MLB Draft rankings`\
 https://nytimes.com/athletic/6279458/2025/04/15/keith-law-mlb-draft-rankings-chat/
-
-**After an Earthquake, These Elephants Knew Exactly Who to Follow: Mom**\
-`A video from the San Diego Zoo taken during an earthquake put complex elephant herd dynamics on display.`\
-https://nytimes.com/2025/04/15/us/elephants-san-diego-zoo-earthquake.html
-
-**Elephants Huddle to Protect Their Young During Earthquake**\
-`A tremor from a 5.2-magnitude earthquake that struck about 60 miles away prompted a herd of elephants at the San Diego Zoo to form a tight circle to protect the calves.`\
-https://nytimes.com/video/us/100000010111355/elephants-san-diego-zoo.html
 

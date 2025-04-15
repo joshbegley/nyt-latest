@@ -1,3 +1,19 @@
+**Until Saturday: What we learned from Nico drama**\
+`Until Saturday is The Athletic's college football newsletter.`\
+https://nytimes.com/athletic/6280955/2025/04/15/nico-iamaleava-tennessee-holdout-nil-until-saturday/
+
+**Elsa Honig Fine, 94, Dies; Historian Promoted Black and Female Artists**\
+`As the founder of Woman’s Art Journal and the author of influential textbooks, she documented the work of many accomplished artists who had been ignored.`\
+https://nytimes.com/2025/04/15/arts/elsa-honig-fine-dead.html
+
+**Bryce Harper's custom bat reveals sex of next child during plate appearance**\
+`Phillies shortstop Trea Turner helped Harper pull off the surprise with pink and blue bats.`\
+https://nytimes.com/athletic/6280711/2025/04/15/mlb-bryce-harper-baby-gender-reveal-bat/
+
+**Bellingham says UCL remontada 'tailor-made' for Real Madrid**\
+`The Spanish side trail 3-0 following last week's first leg defeat in London but will still believe they can progress to the semi-final stage`\
+https://nytimes.com/athletic/6281050/2025/04/15/bellingham-real-madrid-arsenal-champions-league/
+
 **Why a Tariff-Inflated $2,000 iPhone Is Nothing to Fear**\
 `Even if gadget prices surge, we have plenty of cheaper options, like buying last year’s phone model instead of the latest and greatest.`\
 https://nytimes.com/2025/04/15/technology/personaltech/trump-tariffs-iphone-cost.html
