@@ -4,7 +4,7 @@ https://nytimes.com/newsgraphics/card-story/wc-surprising-mascara-tips
 
 **This Isn’t the First Time Trump Has Mistakenly Deported Someone**\
 `President Trump says he is powerless to retrieve a Salvadoran man who was deported because of an administrative error. But he has done so before.`\
-https://nytimes.com/live/2025/04/15/us/trump-news/trump-deportation-maryland-man
+https://nytimes.com/2025/04/15/us/politics/trump-deportation-maryland-man.html
 
 **19 Big Cats Rescued in Spain as Police Raid Animal Smuggling Ring**\
 `With a demand for exotic felines on the rise, often driven by social media, endangered and protected populations are under even more threat.`\
