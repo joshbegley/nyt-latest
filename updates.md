@@ -1,3 +1,7 @@
+**Questions persist, but for now, the Phillies need to make this outfield work**\
+`The Phillies entered this season with questions about their outfield, which have persisted. But they lack viable outfield alternatives.`\
+https://nytimes.com/athletic/6280076/2025/04/15/phillies-outfield-brandon-marsh-struggles/
+
 **The Pulse: The secret wrinkle of this WNBA Draft**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6278759/2025/04/15/paige-bueckers-wnba-draft-the-pulse/

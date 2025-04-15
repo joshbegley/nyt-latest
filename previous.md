@@ -1,3 +1,7 @@
+**Questions persist, but for now, the Phillies need to make this outfield work**\
+`The Phillies entered this season with questions about their outfield, which have persisted. But they lack viable outfield alternatives.`\
+https://nytimes.com/athletic/6280076/2025/04/15/phillies-outfield-brandon-marsh-struggles/
+
 **The Pulse: The secret wrinkle of this WNBA Draft**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6278759/2025/04/15/paige-bueckers-wnba-draft-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6278962/2025/04/15/nfl-draft-prospects-waiting-game
 **Trapped Abroad: The Man at the Center of a Constitutional Standoff**\
 `The case of a man mistakenly deported to a brutal prison in El Salvador is a test for the limits of presidential power — and the rule of law.`\
 https://nytimes.com/2025/04/15/podcasts/the-daily/deported-man-el-salvador-bukele-trump.html
-
-**Connections Companion No. 675**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, April 16, 2025.`\
-https://nytimes.com/2025/04/15/crosswords/connections-companion-675.html
 
