@@ -1,3 +1,7 @@
+**Dallas Wings draft Paige Bueckers with No. 1 pick in 2025 WNBA Draft**\
+`Bueckers enters the professional ranks at an important moment for both Dallas and the WNBA.`\
+https://nytimes.com/athletic/6274988/2025/04/14/paige-bueckers-dallas-wings-wnba-draft/
+
 **Colorado to retire Travis Hunter's, Shedeur Sanders' jersey numbers**\
 `Colorado has retired just four jersey numbers in the program’s 122-year history before Hunter and Sanders.`\
 https://nytimes.com/athletic/6279642/2025/04/14/shedeur-sanders-travis-hunter-jersey-numbers-retired-colorado/
