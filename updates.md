@@ -1,3 +1,11 @@
+**Topps announces WWE Debut, Wrestlemania patches**\
+`Topps' Debut Patch program is coming to WWE and being expanded to include another milestone event`\
+https://nytimes.com/athletic/6280095/2025/04/15/topps-wwe-debut-patch-wrestlemania/
+
+**New York Giants NFL Draft 2025 guide: Picks, predictions and key needs**\
+`The Giants own the No. 3 pick and eight picks total in the NFL Draft. After signing two veterans, should they still draft a QB early?`\
+https://nytimes.com/athletic/6227397/2025/04/15/new-york-giants-2025-nfl-draft-picks-needs-predictions-guide/
+
 **Sharks' Will Smith reflects on NHL success — and failure — as strong rookie season wraps up**\
 `Smith saw what success and failure look like in the NHL with the last-place Sharks and proved he can be key in the club's revival.`\
 https://nytimes.com/athletic/6280326/2025/04/15/sharks-will-smith-nhl-rookie-season/
