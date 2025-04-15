@@ -1,3 +1,7 @@
+**Colorado to retire Travis Hunter's, Shedeur Sanders' jersey numbers**\
+`Colorado has retired just four jersey numbers in the program’s 122-year history before Hunter and Sanders.`\
+https://nytimes.com/athletic/6279642/2025/04/14/shedeur-sanders-travis-hunter-jersey-numbers-retired-colorado/
+
 **Trump Administration Memo Proposes Cutting State Department Funding by Nearly Half**\
 `The draft plan is part of a process involving the agency and the White House. It would eliminate almost all funding for international organizations that include the United Nations and NATO.`\
 https://nytimes.com/2025/04/14/us/politics/trump-state-department-budget-cuts.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/04/14/us/trump-news-tariffs/trump-el-salvador-depo
 **As Trump Makes His Case, He Turns to the Oval Office Set Piece**\
 `Once again, the president used the gilded room as a place to flex his executive muscle while recasting the narrative around a consequential policy.`\
 https://nytimes.com/2025/04/14/us/politics/trump-deportations-oval-office.html
-
-**El Salvador Won’t Return Wrongly Deported Man**\
-`Also, Harvard said it would not comply with Trump’s demands.`\
-https://nytimes.com/2025/04/14/briefing/el-salvador-deportations-harvard-university-trump.html
 

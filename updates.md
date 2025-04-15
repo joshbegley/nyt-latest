@@ -1,3 +1,7 @@
+**Colorado to retire Travis Hunter's, Shedeur Sanders' jersey numbers**\
+`Colorado has retired just four jersey numbers in the program’s 122-year history before Hunter and Sanders.`\
+https://nytimes.com/athletic/6279642/2025/04/14/shedeur-sanders-travis-hunter-jersey-numbers-retired-colorado/
+
 **Trump Administration Memo Proposes Cutting State Department Funding by Nearly Half**\
 `The draft plan is part of a process involving the agency and the White House. It would eliminate almost all funding for international organizations that include the United Nations and NATO.`\
 https://nytimes.com/2025/04/14/us/politics/trump-state-department-budget-cuts.html

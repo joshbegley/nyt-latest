@@ -1,3 +1,7 @@
+**Dallas Wings draft Paige Bueckers with No. 1 pick in 2025 WNBA Draft**\
+`Bueckers enters the professional ranks at an important moment for both Dallas and the WNBA.`\
+https://nytimes.com/athletic/6274988/2025/04/14/paige-bueckers-dallas-wings-wnba-draft/
+
 **Colorado to retire Travis Hunter's, Shedeur Sanders' jersey numbers**\
 `Colorado has retired just four jersey numbers in the program’s 122-year history before Hunter and Sanders.`\
 https://nytimes.com/athletic/6279642/2025/04/14/shedeur-sanders-travis-hunter-jersey-numbers-retired-colorado/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/14/business/media/trump-npr-pbs-funding.html
 **Democratic lawmakers denounce Trump and El Salvador’s president.**\
 `By Talya Minsberg`\
 https://nytimes.com/live/2025/04/14/us/trump-news-tariffs/trump-el-salvador-deportations-abrego-garcia
-
-**As Trump Makes His Case, He Turns to the Oval Office Set Piece**\
-`Once again, the president used the gilded room as a place to flex his executive muscle while recasting the narrative around a consequential policy.`\
-https://nytimes.com/2025/04/14/us/politics/trump-deportations-oval-office.html
 
