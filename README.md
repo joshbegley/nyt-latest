@@ -1,3 +1,15 @@
+**Astoria the Celebrity Turkey Returns to Ritzy Midtown Manhattan**\
+`Is she seeking excitement? Danger? A date? The birders who look after her just want her to go home.`\
+https://nytimes.com/2025/04/15/us/manhattan-astoria-roosevelt-island-turkey.html
+
+**Wild Turkey Struts in New York**\
+`Astoria, a wild turkey, seen living free on Roosevelt Island in New York.`\
+https://nytimes.com/video/nyregion/100000010111062/astoria-wild-turkey-new-york.html
+
+**Bears mock draft mailbag: Plenty of ways for Ryan Poles to go at No. 10**\
+`There's no consensus among fans for how they want the Bears to use the No. 10 pick. The mock draft mailbag reflects many options.`\
+https://nytimes.com/athletic/6279083/2025/04/15/bears-2025-mock-draft-mailbag/
+
 **Why the Vikings could draft an interior offensive lineman in the first round**\
 `The Vikings could go in any number of directions with their first pick in the NFL Draft, but IOL might just make the most sense.`\
 https://nytimes.com/athletic/6278846/2025/04/15/vikings-nfl-draft-interior-offensive-line/
@@ -25,17 +37,4 @@ https://nytimes.com/2025/04/15/crosswords/connections-companion-675.html
 **Harvard vs. Trump, and Your (Shrinking) Chance of Being Audited**\
 `Plus, black market Lego.`\
 https://nytimes.com/2025/04/15/podcasts/the-headlines/harvard-trump-irs-auditing-lego.html
-
-**Wordle Review No. 1,397**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, April 16, 2025.`\
-https://nytimes.com/2025/04/15/crosswords/wordle-review-1397.html
-
-**Which rosters are one piece away from title contention? Five teams to watch**\
-`These teams have a clear All-America candidate, plus continuity and upside in the supporting cast, but they all could use one more piece.`\
-https://nytimes.com/athletic/6279324/2025/04/15/college-basketball-rosters-one-piece-title-contention/
-
-**Champions League quarter-final odds: Inter on the up and misfiring Madridistas**\
-`Brett Koremenos outlines the best bets for Wednesday’s Champions League quarter-final second-legs.
-`\
-https://nytimes.com/athletic/6280430/2025/04/15/champions-league-quarter-final-wednesday-second-leg-betting-tips-predictions-odds/
 
