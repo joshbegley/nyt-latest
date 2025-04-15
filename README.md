@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6279721/2025/04/14/kris-bryant-injury-degenerative-
 https://nytimes.com/2025/04/14/us/politics/jd-vance-ohio-state-football-trophy.html
 
 **Gabby Herzig played Augusta National. Ask her your question about the experience**\
-`The Athletic's Gabby Herzig, covering her second Masters, was lucky enough to be picked in the media lottery.`\
+`Gabby won the media lottery. What do you want to know about the course, the experience or her round? Ask away for a future mailbag.`\
 https://nytimes.com/athletic/6279820/2025/04/14/gabby-herzig-played-augusta-national-ask-her-your-question-about-the-experience/
 
 **Suspect Arrested in Attacks on New Mexico G.O.P. Office and a Tesla Dealer**\
