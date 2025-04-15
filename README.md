@@ -1,3 +1,7 @@
+**Have the Lions left clues about their 2025 NFL Draft plans?**\
+`Past comments could offer insight into who the Lions might be targeting in the draft.`\
+https://nytimes.com/athletic/6279500/2025/04/15/detroit-lions-2025-nfl-draft-plans/
+
 **Hughes signs new Palace contract through to 2027**\
 `Hughes’ previous deal was set to expire this summer.`\
 https://nytimes.com/athletic/6280566/2025/04/15/will-hughes-crystal-palace-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6278715/2025/04/15/buffalo-sabres-kevyn-adams-alex-
 **Weekly Student News Quiz: Tariffs, Roof Collapse, 'A Minecraft Movie'**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2025/04/15/learning/15StudentNewsQuiz.html
-
-**Ivan Demidov needed one period to show how he can benefit Canadiens in present and future**\
-`Demidov's debut was more impactful than the Canadiens could have hoped, and should they reach the playoffs, he will make a difference.`\
-https://nytimes.com/athletic/6280303/2025/04/15/ivan-demidov-canadiens-nhl-blackhawks/
 
