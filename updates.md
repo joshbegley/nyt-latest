@@ -1,3 +1,19 @@
+**Judge Blocks Trump From Retaliating Against Another Top Law Firm**\
+`It’s the latest setback to the president’s efforts to wield government power to punish the legal industry. A federal judge called it “a shocking abuse of power.”`\
+https://nytimes.com/2025/04/15/us/politics/trump-susman-godfrey-law-firm.html
+
+**Travis Hunter says he'll quit football if not allowed to play both ways**\
+`"I've been doing it my whole life," the Heisman winner said. "I feel like I could dominate on each side of the ball."`\
+https://nytimes.com/athletic/6281867/2025/04/15/travis-hunter-nfl-draft-quit-football/
+
+**Watch: Who should the Chargers select with their first draft pick?**\
+`"The Athletic Football Show" discusses why the Los Angeles Chargers should draft Ohio State wide receiver Emeka Egbuka with the 22nd pick.`\
+https://nytimes.com/athletic/6280340/2025/04/15/athletic-football-show-nfl-draft-2025-la-chargers/
+
+**Heat Today: It's April, but Miami feels 'March Madness' vibes ahead of Play-In**\
+`Miami's up-and-down season comes down to one game in Chicago (and maybe more). What will the Heat need to reach the playoffs?`\
+https://nytimes.com/athletic/6281124/2025/04/15/bulls-heat-nba-play-in-tournament/
+
 **4 Surprising Truths I Learned While Testing Dozens of Mascaras**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/wc-surprising-mascara-tips
