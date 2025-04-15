@@ -1,3 +1,7 @@
+**Trump’s Dilemma: A Trade War That Threatens Every Other Negotiation With China**\
+`President Trump is staking everything on winning by imposing tariffs on China. But the fight threatens to choke off negotiations about other issues like Taiwan, fentanyl, TikTok and more.`\
+https://nytimes.com/2025/04/14/us/politics/trump-trade-war-china-dilemma.html
+
 **Dallas Wings draft Paige Bueckers with No. 1 pick in 2025 WNBA Draft**\
 `Bueckers enters the professional ranks at an important moment for both Dallas and the WNBA.`\
 https://nytimes.com/athletic/6274988/2025/04/14/paige-bueckers-dallas-wings-wnba-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/14/us/politics/china-critical-minerals-risk-military
 **White House to Ask Congress to Claw Back Funding From NPR and PBS**\
 `Trump administration officials want legislators to rescind $1.1 billion for the Corporation for Public Broadcasting, which provides some support for public media.`\
 https://nytimes.com/2025/04/14/business/media/trump-npr-pbs-funding.html
-
-**Democratic lawmakers denounce Trump and El Salvador’s president.**\
-`By Talya Minsberg`\
-https://nytimes.com/live/2025/04/14/us/trump-news-tariffs/trump-el-salvador-deportations-abrego-garcia
 
