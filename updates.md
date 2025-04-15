@@ -1,3 +1,19 @@
+**Tuesday Briefing: El Salvador Will Not Return Deportee**\
+`Plus, remembering Mario Vargas Llosa.`\
+https://nytimes.com/2025/04/15/briefing/el-salvador-trump-deportation-meta-zuckerberg-xi-china-vietnam.html
+
+**The New York Times in Print for Tuesday, April 15, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/15/todays-new-york-times
+
+**Haiti’s Gangs Have Evolved. The United States Will Pay the Price.**\
+`If the Trump administration is serious about making the United States safer and more prosperous, it cannot stop engaging in places like Haiti.`\
+https://nytimes.com/2025/04/15/opinion/haiti-gangs-usaid.html
+
+**Denmark Fought Alongside You, America. Why Doubt Us Now?**\
+`Danes want our partnership with Americans to continue, but we will stand firm on our principles.`\
+https://nytimes.com/2025/04/15/opinion/denmark-vance-trump-nato.html
+
 **Vance Fumbles College Football Championship Trophy**\
 `Vice President JD Vance attempted to lift college football’s biggest prize but dropped the base as players for the Ohio State Buckeyes secured the trophy.`\
 https://nytimes.com/video/us/politics/100000010110965/jd-vance-ohio-state-football-trophy.html

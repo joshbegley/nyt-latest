@@ -1,3 +1,7 @@
+**'It feels exactly like last year': Sloppy Twins drop series opener to Mets**\
+`Only 17 games in, the listless Twins are already being tested. They produced another clunker, losing 5-1 to the Mets in the series opener.`\
+https://nytimes.com/athletic/6280182/2025/04/15/twins-drop-series-opener-to-mets/
+
 **Tuesday Briefing: El Salvador Will Not Return Deportee**\
 `Plus, remembering Mario Vargas Llosa.`\
 https://nytimes.com/2025/04/15/briefing/el-salvador-trump-deportation-meta-zuckerberg-xi-china-vietnam.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6279000/2025/04/15/andre-onana-manchester-united-fu
 **How Raphinha became a world-beater for Barcelona**\
 `The forward has 20 goals and 28 assists in 2024-25 as Barcelona chase a La Liga, Copa del Rey and Champions League treble`\
 https://nytimes.com/athletic/6258741/2025/04/15/raphinha-barcelona-form-goals-assists-brazil/
-
-**Eureka! Why Liverpool - and their elite rivals - love hiring physicists**\
-`The Anfield club's data department is crammed with analysts boasting a scientific background, and they are not alone`\
-https://nytimes.com/athletic/6266432/2025/04/15/liverpool-physicist-analyst-data/
 
