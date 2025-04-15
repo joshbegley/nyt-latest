@@ -1,3 +1,15 @@
+**Browns NFL Draft 2025 guide: Picks, predictions and key needs**\
+`Keeping you up to date on all of Cleveland's draft-related news and analysis heading into Round 1 on April 24. `\
+https://nytimes.com/athletic/6233351/2025/04/15/cleveland-browns-2025-nfl-draft-picks-needs-predictions-guide/
+
+**The U.S. Wants to Break Up Google and Meta. That Could Be Hard.**\
+`For the first time since the late 1990s Microsoft case, federal trials are weighing antitrust breakups, a tactic that harks back to Standard Oil.`\
+https://nytimes.com/2025/04/15/business/antitrust-structure-deals-challenge.html
+
+**Commanders NFL Draft 2025 guide: Picks, predictions and key needs**\
+`Keeping you up to date on all of Washington's draft-related news and analysis heading into Round 1 on April 24. `\
+https://nytimes.com/athletic/6233463/2025/04/15/washington-commanders-2025-nfl-draft-picks-needs-predictions-guide/
+
 **Zuckerberg Says He Bought Instagram and WhatsApp Because Building Apps Is Hard**\
 `The Meta chief executive, testifying in a landmark antitrust trial, evaded questions about whether he was trying to snuff out competitive threats.`\
 https://nytimes.com/2025/04/15/technology/meta-antitrust-trial-mark-zuckerberg.html
