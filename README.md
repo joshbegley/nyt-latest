@@ -1,3 +1,7 @@
+**Bartrip: Lacking energy in games was 'reality check' in dealing with anorexia**\
+`Bartrip spoke about her experiences with mental health issues, after she was diagnosed with anorexia at the age of 14.`\
+https://nytimes.com/athletic/6280532/2025/04/15/molly-bartrip-tottenham-mental-health/
+
 **PWHL announces draft in Ottawa, Casey O’Brien leads top prospects**\
 `The 2025 Professional Women’s Hockey League draft is heading to Ottawa this summer, the league announced on Tuesday morning.`\
 https://nytimes.com/athletic/6279558/2025/04/15/pwhl-draft-ottawa-top-prospects/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6279961/2025/04/15/seahawks-mock-draft-mailbag-john
 **Trump Administration Live Updates: Vance Predicts Trump Will Make Trade Deal With U.K.**\
 ``\
 https://nytimes.com/live/2025/04/15/us/trump-news
-
-**Ten offseason questions for Sabres after yet another year missing playoffs**\
-`The questions facing the Sabres this summer are heavy, and they start right at the top of the organization.`\
-https://nytimes.com/athletic/6278715/2025/04/15/buffalo-sabres-kevyn-adams-alex-tuch/
 

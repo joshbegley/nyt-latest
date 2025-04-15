@@ -1,3 +1,7 @@
+**PWHL announces draft in Ottawa, Casey O’Brien leads top prospects**\
+`The 2025 Professional Women’s Hockey League draft is heading to Ottawa this summer, the league announced on Tuesday morning.`\
+https://nytimes.com/athletic/6279558/2025/04/15/pwhl-draft-ottawa-top-prospects/
+
 **Have the Lions left clues about their 2025 NFL Draft plans?**\
 `Past comments could offer insight into who the Lions might be targeting in the draft.`\
 https://nytimes.com/athletic/6279500/2025/04/15/detroit-lions-2025-nfl-draft-plans/

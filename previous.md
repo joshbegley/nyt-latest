@@ -1,3 +1,7 @@
+**PWHL announces draft in Ottawa, Casey O’Brien leads top prospects**\
+`The 2025 Professional Women’s Hockey League draft is heading to Ottawa this summer, the league announced on Tuesday morning.`\
+https://nytimes.com/athletic/6279558/2025/04/15/pwhl-draft-ottawa-top-prospects/
+
 **Have the Lions left clues about their 2025 NFL Draft plans?**\
 `Past comments could offer insight into who the Lions might be targeting in the draft.`\
 https://nytimes.com/athletic/6279500/2025/04/15/detroit-lions-2025-nfl-draft-plans/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/04/15/us/trump-news
 **Ten offseason questions for Sabres after yet another year missing playoffs**\
 `The questions facing the Sabres this summer are heavy, and they start right at the top of the organization.`\
 https://nytimes.com/athletic/6278715/2025/04/15/buffalo-sabres-kevyn-adams-alex-tuch/
-
-**Weekly Student News Quiz: Tariffs, Roof Collapse, 'A Minecraft Movie'**\
-`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
-https://nytimes.com/interactive/2025/04/15/learning/15StudentNewsQuiz.html
 
