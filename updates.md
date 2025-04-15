@@ -1,3 +1,7 @@
+**How Blues can clinch wild-card spot in season finale vs. Utah: 6 storylines to know**\
+`Beat Utah in regulation Tuesday night and the Blues are in. Anything else makes it a little dicey.`\
+https://nytimes.com/athletic/6277448/2025/04/14/blues-season-finale-utah-wild-card-playoffs/
+
 **Corrections: April 15, 2025**\
 `Corrections that appeared in print on Tuesday, April 15, 2025.`\
 https://nytimes.com/2025/04/14/pageoneplus/corrections-april-15-2025.html
