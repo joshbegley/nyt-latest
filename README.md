@@ -1,3 +1,11 @@
+**D.C. Mayor Prepares City for Cuts After Congress Goes on Break**\
+`The House of Representatives went on recess without acting on a measure to avert a possible billion-dollar budget cut in Washington, D.C.`\
+https://nytimes.com/2025/04/15/us/washington-dc-budget-freeze-congress.html
+
+**I Have Never Been More Afraid for My Country’s Future**\
+`Trump’s worldview is stuck in the 1970s, and his whole administration is a cruel farce.`\
+https://nytimes.com/2025/04/15/opinion/trump-administration-china.html
+
 **How a Nifty Government Tool Knows About Earthquakes Before You Feel Them**\
 `Even a few seconds’ notice gives people time to prepare before the shaking.`\
 https://nytimes.com/2025/04/15/us/earthquake-alerts-california.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/15/briefing/trump-harvard-tax-status-irs-resignation
 **A.I. Action Figures Flood Social Media (Accessories Included)**\
 `Amid the rush to take part in a recent trend, some artists, concerned about the use of ChatGPT, are hand-drawing their own versions.`\
 https://nytimes.com/2025/04/15/style/ai-barbie-dolls-action-figures.html
-
-**Yankees' Aaron Judge responds to Juan Soto's pitching comments**\
-`"He just needs to keep being himself. He's going to be just fine," Judge said about Soto.`\
-https://nytimes.com/athletic/6281842/2025/04/15/yankees-aaron-judge-responds-juan-soto-pitching-comments/
-
-**Bucks 'hopeful' Damian Lillard can return during series against Pacers**\
-`Lillard, 33, missed the final 14 games of the regular season and was diagnosed with blood clots in his calf in late March.`\
-https://nytimes.com/athletic/6281968/2025/04/15/bucks-damian-lillard-injury-update-blood-clots/
 

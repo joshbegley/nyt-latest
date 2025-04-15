@@ -1,3 +1,19 @@
+**How a Nifty Government Tool Knows About Earthquakes Before You Feel Them**\
+`Even a few seconds’ notice gives people time to prepare before the shaking.`\
+https://nytimes.com/2025/04/15/us/earthquake-alerts-california.html
+
+**Autism Rate Continues to Rise Among Children, C.D.C. Reports**\
+`While the agency stressed that increased screening was most likely behind much of the increase, the health secretary, Robert F. Kennedy Jr., called it an “epidemic.”`\
+https://nytimes.com/2025/04/15/health/autism-children-cdc.html
+
+**Inside the Changing White House Briefing Room**\
+`The Trump administration has given more time to “new media” and outlets that are more supportive of the president’s policies.`\
+https://nytimes.com/interactive/2025/04/15/us/trump-white-house-briefing-room-new-media.html
+
+**Judge Rebukes Trump Administration’s Effort to Return Wrongly Deported Man**\
+`The judge also said she planned to force Trump officials to reveal what they have done behind the scenes to seek the return of the man, Kilmar Armando Abrego Garcia.`\
+https://nytimes.com/2025/04/15/us/trump-abrego-garcia-deported-hearing.html
+
 **C.I.A. Director’s Messages in Leaked Chat Were Deleted, Agency Says**\
 `A watchdog group has said the exchanges on the Signal app were federal records, and sued in an effort to preserve them.`\
 https://nytimes.com/2025/04/15/us/politics/cia-director-leaked-chat.html
