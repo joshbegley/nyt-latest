@@ -1,3 +1,7 @@
+**Anatomical Pouch**\
+`Per Bykodorov makes his New York Times Crossword debut.`\
+https://nytimes.com/2025/04/14/crosswords/daily-puzzle-2025-04-15.html
+
 **Corrections: April 15, 2025**\
 `Corrections that appeared in print on Tuesday, April 15, 2025.`\
 https://nytimes.com/2025/04/14/pageoneplus/corrections-april-15-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6279682/2025/04/14/shedeur-sanders-giants-workout-n
 **Rockies place Kris Bryant on 10-day IL with degenerative back condition**\
 `This is Bryant's fifth stint on the IL with a back-related injury during his time with the Rockies.`\
 https://nytimes.com/athletic/6279721/2025/04/14/kris-bryant-injury-degenerative-disc-disease/
-
-**Vance Drops Ohio State’s Championship Trophy During White House Celebration**\
-`The vice president, a former senator from Ohio who graduated from Ohio State, joked about the mishap on social media.`\
-https://nytimes.com/2025/04/14/us/politics/jd-vance-ohio-state-football-trophy.html
 
