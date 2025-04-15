@@ -1,3 +1,7 @@
+**Ravens GM Eric DeCosta sees value in the depth of this year's draft class**\
+`DeCosta also touched on Mark Andrews' future in Baltimore and some of the team's other offseason questions at his pre-draft luncheon. `\
+https://nytimes.com/athletic/6281966/2025/04/15/ravens-eric-decosta-nfl-draft-plans/
+
 **D.C. Mayor Prepares City for Cuts After Congress Goes on Break**\
 `The House of Representatives went on recess without acting on a measure to avert a possible billion-dollar budget cut in Washington, D.C.`\
 https://nytimes.com/2025/04/15/us/washington-dc-budget-freeze-congress.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6281956/2025/04/15/carli-lloyd-reflects-uswnt-socce
 **Trump Turned Up the Pressure on Harvard**\
 `Also, the I.R.S. is downsizing. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/04/15/briefing/trump-harvard-tax-status-irs-resignations.html
-
-**A.I. Action Figures Flood Social Media (Accessories Included)**\
-`Amid the rush to take part in a recent trend, some artists, concerned about the use of ChatGPT, are hand-drawing their own versions.`\
-https://nytimes.com/2025/04/15/style/ai-barbie-dolls-action-figures.html
 
