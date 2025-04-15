@@ -1,3 +1,11 @@
+**Buchanan signs Chelsea contract extension**\
+`The Canada international, 29, has won two Women's Super League titles in her two seasons at the club.`\
+https://nytimes.com/athletic/6280638/2025/04/15/kadeisha-buchanan-chelsea-contract-new/
+
+**Elegantly Swaddled in Neutral Shades**\
+`An ensemble of soft garments exuded cozy sophistication.`\
+https://nytimes.com/2025/04/15/style/street-style-look-beige-tonal-outfit.html
+
 **Bartrip: Lacking energy in games was 'reality check' in dealing with anorexia**\
 `Bartrip spoke about her experiences with mental health issues, after she was diagnosed with anorexia at the age of 14.`\
 https://nytimes.com/athletic/6280532/2025/04/15/molly-bartrip-tottenham-mental-health/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6279166/2025/04/15/flyers-offer-sheet-candidates/
 **Fantasy football and the 2025 NFL Draft: Ranking the Top 85 rookies**\
 `Are you ready for the NFL Draft? You will be if you read Jake Ciely's insights on the Top 85 rookies at skill positions. `\
 https://nytimes.com/athletic/6270641/2025/04/15/2025-nfl-draft-rookies-fantasy-football-rankings/
-
-**Seahawks fans have spoken. Here’s who they would draft if they were GM**\
-`Readers submitted 80 mock drafts, some more plausible than others. We broke down the consensus choices and our favorite submissions.`\
-https://nytimes.com/athletic/6279961/2025/04/15/seahawks-mock-draft-mailbag-john-schneider/
-
-**Trump Administration Live Updates: Vance Predicts Trump Will Make Trade Deal With U.K.**\
-``\
-https://nytimes.com/live/2025/04/15/us/trump-news
 
