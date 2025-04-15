@@ -1,3 +1,7 @@
+**Cal RB Jaydn Ott enters transfer portal**\
+`The move comes four months after Ott announced his return to Berkeley for his senior season.`\
+https://nytimes.com/athletic/6279923/2025/04/14/jaydn-ott-transfer-portal-cal/
+
 **Anatomical Pouch**\
 `Per Bykodorov makes his New York Times Crossword debut.`\
 https://nytimes.com/2025/04/14/crosswords/daily-puzzle-2025-04-15.html
