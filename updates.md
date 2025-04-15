@@ -1,3 +1,7 @@
+**Full Time: A surprise contender in NWSL**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6279711/2025/04/14/angel-city-nwsl-standings-full-time/
+
 **Trump’s Dilemma: A Trade War That Threatens Every Other Negotiation With China**\
 `President Trump is staking everything on winning by imposing tariffs on China. But the fight threatens to choke off negotiations about other issues like Taiwan, fentanyl, TikTok and more.`\
 https://nytimes.com/2025/04/14/us/politics/trump-trade-war-china-dilemma.html

@@ -1,3 +1,7 @@
+**Full Time: A surprise contender in NWSL**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6279711/2025/04/14/angel-city-nwsl-standings-full-time/
+
 **Trump’s Dilemma: A Trade War That Threatens Every Other Negotiation With China**\
 `President Trump is staking everything on winning by imposing tariffs on China. But the fight threatens to choke off negotiations about other issues like Taiwan, fentanyl, TikTok and more.`\
 https://nytimes.com/2025/04/14/us/politics/trump-trade-war-china-dilemma.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/14/us/politics/elon-musk-doge-cuts.html
 **China’s Halt of Critical Minerals Poses Risk for U.S. Military Programs**\
 `The Pentagon and defense contractors are heavily reliant on magnets and rare earth minerals mined or processed in China, which has suspended exports of the materials in an escalating trade war.`\
 https://nytimes.com/2025/04/14/us/politics/china-critical-minerals-risk-military-programs.html
-
-**White House to Ask Congress to Claw Back Funding From NPR and PBS**\
-`Trump administration officials want legislators to rescind $1.1 billion for the Corporation for Public Broadcasting, which provides some support for public media.`\
-https://nytimes.com/2025/04/14/business/media/trump-npr-pbs-funding.html
 
