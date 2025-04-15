@@ -1,3 +1,15 @@
+**Tracking Tropical Cyclone Errol**\
+`See the likely path and wind arrival times for Errol.`\
+https://nytimes.com/interactive/2025/04/15/weather/errol-map-path-tracker.html
+
+**Algeria Expels 12 French Officials as Tensions Rise**\
+`The expulsions came after an Algerian official was accused of kidnapping an influencer who had been granted political asylum in France.`\
+https://nytimes.com/2025/04/15/world/europe/france-algeria-expulsions-relations.html
+
+**Schaefer, Frondell lead NHL Central Scouting's final 2025 NHL Draft rankings**\
+`NHL Central Scouting released its final rankings for the 2025 NHL Draft class on Tuesday morning.`\
+https://nytimes.com/athletic/6278986/2025/04/15/nhl-central-scouting-2025-ranking-final/
+
 **Trump Threatens Harvard’s Tax Status, Escalating Billion-Dollar Feud**\
 `Harvard has rejected an effort by the White House to exert more control over its programs and policies.`\
 https://nytimes.com/2025/04/15/us/politics/trump-harvard-tax-status.html
