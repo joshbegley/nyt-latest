@@ -1,3 +1,7 @@
+**Canada Conditionally Waives Retaliatory Tariffs on U.S.-Made Cars and Trucks**\
+`Companies that make cars in Canada will be exempted provided they keep up production.`\
+https://nytimes.com/2025/04/15/us/politics/canada-auto-tariffs.html
+
 **Why Zeev Buium won't make his NHL debut for the Wild on Tuesday**\
 `Buium on the decision: "These guys have been through everything with each other. Obviously, the season is on the line. I get it."`\
 https://nytimes.com/athletic/6281327/2025/04/15/zeev-buium-wild-scratched/

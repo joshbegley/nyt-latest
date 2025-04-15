@@ -1,3 +1,7 @@
+**Canada Conditionally Waives Retaliatory Tariffs on U.S.-Made Cars and Trucks**\
+`Companies that make cars in Canada will be exempted provided they keep up production.`\
+https://nytimes.com/2025/04/15/us/politics/canada-auto-tariffs.html
+
 **Why Zeev Buium won't make his NHL debut for the Wild on Tuesday**\
 `Buium on the decision: "These guys have been through everything with each other. Obviously, the season is on the line. I get it."`\
 https://nytimes.com/athletic/6281327/2025/04/15/zeev-buium-wild-scratched/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/04/07/opinion/thepoint/andrew-cuomo-secrecy-signal
 **Examining trophy mishaps after Vance drops CFP award during Buckeyes' visit**\
 `There have been a fair few college and non-college trophy calamities. Here's an overview of those mishaps.`\
 https://nytimes.com/athletic/6280658/2025/04/15/jd-vance-ohio-state-cfb-championship-trophy/
-
-**Mbappe handed one-game La Liga ban after Alaves red card**\
-`Mbappe was shown a straight red card at Alaves for his lunge on Alaves midfielder Antonio Blanco.`\
-https://nytimes.com/athletic/6277825/2025/04/15/kylian-mbappe-suspension-real-madrid/
 
