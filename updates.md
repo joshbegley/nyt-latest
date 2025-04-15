@@ -1,3 +1,15 @@
+**White House Ends a Regular Reporting Slot for Independent Newswires**\
+`The move, which affects The Associated Press, Bloomberg News and Reuters, is another effort by the Trump administration to exert more control over the press corps that covers it.`\
+https://nytimes.com/2025/04/15/business/media/trump-white-house-newswire-press.html
+
+**Cubs option struggling Matt Shaw to Triple A among a flurry of roster moves**\
+`The Cubs seemed prepared to deal with Shaw's inevitable growing pains but he wound up hitting .172 (10-for-58) in 18 games.`\
+https://nytimes.com/athletic/6282359/2025/04/15/cubs-option-matt-shaw-triple-a-struggles/
+
+**State Dept. Expands Plans for Closing Embassies and Consulates**\
+`A departmental memo describes paring back the American diplomatic presence on every continent.`\
+https://nytimes.com/2025/04/15/us/politics/state-dept-expands-plans-for-closing-embassies-and-consulates.html
+
 **WNBA Draft draws 1.25 million viewers, its second largest audience ever**\
 `No. 1 pick Paige Bueckers drew a significant audience, though she didn't top Caitlin Clark, who drew 2.4 million to the 2024 draft.`\
 https://nytimes.com/athletic/6282297/2025/04/15/wnba-draft-viewership-second-largest/

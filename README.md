@@ -1,3 +1,7 @@
+**A.C.L.U. Sues Defense Department Schools Over Book Bans**\
+`Schools run by the Defense Department removed books and made other changes in response to orders from President Trump and his secretary of defense.`\
+https://nytimes.com/2025/04/15/us/aclu-sues-defense-department-schools-over-book-bans.html
+
 **White House Ends a Regular Reporting Slot for Independent Newswires**\
 `The move, which affects The Associated Press, Bloomberg News and Reuters, is another effort by the Trump administration to exert more control over the press corps that covers it.`\
 https://nytimes.com/2025/04/15/business/media/trump-white-house-newswire-press.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/15/movies/gene-hackman-betsy-arakawa-deaths.html
 **Mets scratch Griffin Canning. Does this open the door for Brandon Sproat later this week?**\
 `The Mets' rotation is in flux. They have multiple ways to address it, including a chance to bring up their top pitching prospect.`\
 https://nytimes.com/athletic/6282280/2025/04/15/mets-rotation-brandon-sproat-debut-possibility/
-
-**Top Pentagon Adviser Placed on Leave in Leak Investigation**\
-`Dan Caldwell, who has accompanied Defense Secretary Pete Hegseth to meetings with foreign officials, was escorted from the Pentagon.`\
-https://nytimes.com/2025/04/15/us/politics/pentagon-leak-investigation.html
 
