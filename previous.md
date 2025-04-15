@@ -1,3 +1,11 @@
+**Premier League amends PSR rules amid Leicester dispute**\
+`The league's handbook was updated last week after the decision was made to tighten the language around PSR.`\
+https://nytimes.com/athletic/6281172/2025/04/15/premier-league-psr-leicester/
+
+**Adams Is Letting ICE Into Rikers. The City Council Is Suing to Stop Him.**\
+`A lawsuit argues that an executive order that City Hall issued last week is “part of a corrupt quid pro quo bargain” between Mayor Eric Adams of New York and President Trump.`\
+https://nytimes.com/2025/04/15/nyregion/rikers-ice-new-york-city-council-lawsuit-adams.html
+
 **Dolphins GM says team looking to move Ramsey, not pursuing Hill trade**\
 `Ramsey, 30, has been a seven-time Pro Bowl selection and three-time All-Pro in nine NFL seasons with the Jaguars, Rams and Dolphins.`\
 https://nytimes.com/athletic/6281498/2025/04/15/jalen-ramsey-miami-dolphins-news/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6281440/2025/04/15/rangers-east-contenders-rising/
 **Tyron Smith to sign a 1-day contract with Cowboys, announce retirement**\
 `Smith made two first-team All-Pro rosters, eight Pro Bowls and the 2010s All-Decade team as a member of the Cowboys. `\
 https://nytimes.com/athletic/6281381/2025/04/15/tyron-smith-dallas-cowboys-retirement/
-
-**What's next for Rory McIlroy? How many more majors can he win this year?**\
-`Can Rory McIlroy complete the single-season grand slam by winning all four majors in 2025? Jason Sobel breaks down the odds and the stats.`\
-https://nytimes.com/athletic/6280784/2025/04/15/rory-mcilroy-2025-grand-slam-betting-odds/
-
-**In Milan, an Artist’s Surreal ‘Playhouse’ Filled With Weeping Statues**\
-`Francesco Vezzoli’s apartment and studio are tributes to his lifelong fascination with the Memphis Group design collective.`\
-https://nytimes.com/2025/04/15/t-magazine/francesco-vezzoli-milan-apartment-studio.html
 
