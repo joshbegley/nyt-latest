@@ -1,3 +1,15 @@
+**Two Defiant Presidents vs. a Deported Immigrant**\
+`Readers discuss the case of the immigrant wrongly deported to El Salvador. Also: Harvard’s battle against President Trump.`\
+https://nytimes.com/2025/04/15/opinion/deported-immigrant-el-salvador.html
+
+**In ‘Towards Zero,’ Agatha Christie Gets Steamy**\
+`A new three-part TV mini-series streaming on BritBox amps up the themes of forbidden desire and psychological distress in the detective novelist’s 1944 book.`\
+https://nytimes.com/2025/04/15/arts/television/towards-zero-agatha-christie-anjelica-huston.html
+
+**Diego Dedura-Palomero becomes first 2008-born tennis player to win ATP Tour main-draw match**\
+`Dedura-Palomero, 17, won the first set and was 3-0 up against Denis Shapovalov when the Canadian retired with illness.`\
+https://nytimes.com/athletic/6280969/2025/04/15/diego-dedura-palomero-munich-open-result-shapovalov/
+
 **Steelers draft visit tracker: RB TreVeyon Henderson highlights final visitors**\
 `Keep track of every prospect who visits the Steelers' facility between now and the 2025 NFL Draft.`\
 https://nytimes.com/athletic/6181787/2025/04/15/steelers-nfl-draft-prospect-visitors-tracker/

@@ -1,3 +1,15 @@
+**Two Defiant Presidents vs. a Deported Immigrant**\
+`Readers discuss the case of the immigrant wrongly deported to El Salvador. Also: Harvard’s battle against President Trump.`\
+https://nytimes.com/2025/04/15/opinion/deported-immigrant-el-salvador.html
+
+**In ‘Towards Zero,’ Agatha Christie Gets Steamy**\
+`A new three-part TV mini-series streaming on BritBox amps up the themes of forbidden desire and psychological distress in the detective novelist’s 1944 book.`\
+https://nytimes.com/2025/04/15/arts/television/towards-zero-agatha-christie-anjelica-huston.html
+
+**Diego Dedura-Palomero becomes first 2008-born tennis player to win ATP Tour main-draw match**\
+`Dedura-Palomero, 17, won the first set and was 3-0 up against Denis Shapovalov when the Canadian retired with illness.`\
+https://nytimes.com/athletic/6280969/2025/04/15/diego-dedura-palomero-munich-open-result-shapovalov/
+
 **Steelers draft visit tracker: RB TreVeyon Henderson highlights final visitors**\
 `Keep track of every prospect who visits the Steelers' facility between now and the 2025 NFL Draft.`\
 https://nytimes.com/athletic/6181787/2025/04/15/steelers-nfl-draft-prospect-visitors-tracker/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6281112/2025/04/15/espn-savannah-bananas-broadcast/
 **Watch: Which WNBA Draft players are the best fit with their new teams?**\
 `No Offseason discusses which of the players drafted could fit best with their new teams.`\
 https://nytimes.com/athletic/6280871/2025/04/15/no-offseason-wnba-draft-best-players/
-
-**In Showdowns With the Courts, Trump Is Increasingly Combative**\
-`Scholars say that the Trump administration is now flirting with lawless defiance of court orders, a path with an uncertain end.`\
-https://nytimes.com/2025/04/15/us/politics/trump-defy-courts.html
-
-**‘We Don’t Have a Day or Night of Calm’**\
-`People in the Ukrainian city struck on Palm Sunday have little hope of a cease-fire.`\
-https://nytimes.com/2025/04/15/world/europe/ukraine-sumy-palm-sunday-russia-war.html
-
-**Lincoln Center Summer Festival to Bring Back Some Classical Music**\
-`Summer for the City will feature a dozen productions by the American Modern Opera Company, a Sanskrit epic, a celebration of Brazil and more.`\
-https://nytimes.com/2025/04/15/arts/music/lincoln-center-summer-for-the-city.html
 
