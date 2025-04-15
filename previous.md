@@ -1,3 +1,23 @@
+**Ex-Man Utd football director John Murtough joins Atalanta**\
+`Murtough left United in April 2024 after more than 10 years of service at the club and was instrumental in Erik ten Hag's 2022 appointment.`\
+https://nytimes.com/athletic/6281166/2025/04/15/man-united-john-murtough-atalanta/
+
+**‘#1 Happy Family USA’ Is a Bittersweet Coming-of-Age Sitcom**\
+`This animated comedy, cocreated by Ramy Youssef, depicts a Muslim family in New Jersey during the fraught period after Sept. 11, 2001.`\
+https://nytimes.com/2025/04/15/arts/television/1-happy-family-usa-ramy-youssef-animated.html
+
+**Senators Investigate Private Equity Role in Soaring Fire-Truck Costs**\
+`Fire departments say prices for new engines have soared and orders are backlogged for years. Two senators are investigating whether investors who have disrupted the industry are the reason.`\
+https://nytimes.com/2025/04/15/us/private-equity-fire-trucks-congress-investigation.html
+
+**Everton, Brian Sorensen in advanced talks over new contract**\
+`Sorensen’s assistant, Stephen Neligan, is also close to extending his stay on Merseyside.`\
+https://nytimes.com/athletic/6281119/2025/04/15/brian-sorensen-everton-contract/
+
+**ESPN to broadcast 10 Savannah Bananas games this summer on heels of MLB opt out**\
+`At a moment when ESPN is divesting from MLB, it is at least notable that the network will enthusiastically deliver airtime to Bananaball.`\
+https://nytimes.com/athletic/6281112/2025/04/15/espn-savannah-bananas-broadcast/
+
 **Watch: Which WNBA Draft players are the best fit with their new teams?**\
 `No Offseason discusses which of the players drafted could fit best with their new teams.`\
 https://nytimes.com/athletic/6280871/2025/04/15/no-offseason-wnba-draft-best-players/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/04/15/arts/music/lincoln-center-summer-for-the-city.htm
 **Tracking Tropical Cyclone Errol**\
 `See the likely path and wind arrival times for Errol.`\
 https://nytimes.com/interactive/2025/04/15/weather/errol-map-path-tracker.html
-
-**Algeria Expels 12 French Officials as Tensions Rise**\
-`The expulsions came after an Algerian official was accused of kidnapping an influencer who had been granted political asylum in France.`\
-https://nytimes.com/2025/04/15/world/europe/france-algeria-expulsions-relations.html
-
-**Schaefer, Frondell lead NHL Central Scouting's final 2025 NHL Draft rankings**\
-`NHL Central Scouting released its final rankings for the 2025 NHL Draft class on Tuesday morning.`\
-https://nytimes.com/athletic/6278986/2025/04/15/nhl-central-scouting-2025-ranking-final/
-
-**Trump Threatens Harvard’s Tax Status, Escalating Billion-Dollar Feud**\
-`Harvard has rejected an effort by the White House to exert more control over its programs and policies.`\
-https://nytimes.com/2025/04/15/us/politics/trump-harvard-tax-status.html
-
-**FIFA, Infantino's U.S. Club World Cup tour is a grand indicator**\
-`FIFA's president has been making the rounds, underscoring the significance of this summer, the U.S. market – and the work needed to be done`\
-https://nytimes.com/athletic/6280009/2025/04/15/fifa-gianni-infantino-club-world-cup-usa-tour/
-
-**NBA Power Rankings: Final grades are in as the race to the finals begins**\
-`Which teams are feeling good going into the playoffs, and which ones are simply glad the season is over?`\
-https://nytimes.com/athletic/6280692/2025/04/15/nba-power-rankings-thunder-celtics-cavaliers-lakers/
 
