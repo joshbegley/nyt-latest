@@ -1,3 +1,7 @@
+**At Trial, Zuckerberg Dodges Questions on Why He Bought Instagram and WhatsApp**\
+`The Meta chief executive, testifying in a landmark antitrust trial, denied he was trying to snuff out competitors.`\
+https://nytimes.com/2025/04/15/technology/meta-antitrust-trial-mark-zuckerberg.html
+
 **Some Online Scam Victims Can Now Seek Tax Relief on Firmer Ground**\
 `The Internal Revenue Service issued a memo last month that said victims of certain impersonation and investment schemes might be eligible for a tax break.`\
 https://nytimes.com/2025/04/15/business/scam-tax-deduction-irs.html

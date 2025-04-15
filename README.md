@@ -1,3 +1,7 @@
+**Jordan Says It Foiled a Plot Against the Kingdom**\
+`The country’s main intelligence branch said the plans, apparently years in the making, involved rockets, weapons manufacturing and drones.`\
+https://nytimes.com/2025/04/15/world/middleeast/jordan-plot-arrests.html
+
 **At Trial, Zuckerberg Dodges Questions on Why He Bought Instagram and WhatsApp**\
 `The Meta chief executive, testifying in a landmark antitrust trial, denied he was trying to snuff out competitors.`\
 https://nytimes.com/2025/04/15/technology/meta-antitrust-trial-mark-zuckerberg.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/15/arts/television/towards-zero-agatha-christie-anje
 **Diego Dedura-Palomero becomes first 2008-born tennis player to win ATP Tour main-draw match**\
 `Dedura-Palomero, 17, won the first set and was 3-0 up against Denis Shapovalov when the Canadian retired with illness.`\
 https://nytimes.com/athletic/6280969/2025/04/15/diego-dedura-palomero-munich-open-result-shapovalov/
-
-**Steelers draft visit tracker: RB TreVeyon Henderson highlights final visitors**\
-`Keep track of every prospect who visits the Steelers' facility between now and the 2025 NFL Draft.`\
-https://nytimes.com/athletic/6181787/2025/04/15/steelers-nfl-draft-prospect-visitors-tracker/
 
