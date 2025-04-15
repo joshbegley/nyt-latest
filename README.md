@@ -1,3 +1,7 @@
+**A.I. Action Figures Flood Social Media (Accessories Included)**\
+`Amid the rush to take part in a recent trend, some artists, concerned about the use of ChatGPT, are hand-drawing their own versions.`\
+https://nytimes.com/2025/04/15/style/ai-barbie-dolls-action-figures.html
+
 **Yankees' Aaron Judge responds to Juan Soto's pitching comments**\
 `"He just needs to keep being himself. He's going to be just fine," Judge said about Soto.`\
 https://nytimes.com/athletic/6281842/2025/04/15/yankees-aaron-judge-responds-juan-soto-pitching-comments/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/15/us/politics/trump-susman-godfrey-law-firm.html
 **Travis Hunter says he'll quit football if not allowed to play both ways**\
 `"I've been doing it my whole life," the Heisman winner said. "I feel like I could dominate on each side of the ball."`\
 https://nytimes.com/athletic/6281867/2025/04/15/travis-hunter-nfl-draft-quit-football/
-
-**Watch: Who should the Chargers select with their first draft pick?**\
-`"The Athletic Football Show" discusses why the Los Angeles Chargers should draft Ohio State wide receiver Emeka Egbuka with the 22nd pick.`\
-https://nytimes.com/athletic/6280340/2025/04/15/athletic-football-show-nfl-draft-2025-la-chargers/
 
