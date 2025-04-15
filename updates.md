@@ -1,3 +1,7 @@
+**Harvard’s Decision Was the Only Decision**\
+`The thrill over its response to the Trump administration is a measure of how low, and how fast, our expectations have fallen.`\
+https://nytimes.com/live/2025/04/07/opinion/thepoint/harvard-trump-administration-statement
+
 **Harvard’s Decision to Resist Trump is ‘of Momentous Significance’**\
 `But a fight with the nation’s oldest, richest and most elite university is a battle that President Trump and his powerful aide, Stephen Miller, want to have.`\
 https://nytimes.com/2025/04/14/us/politics/harvard-trump.html
