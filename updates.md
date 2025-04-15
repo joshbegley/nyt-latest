@@ -1,3 +1,7 @@
+**JD Vance Sees ‘Good Chance’ of Trade Deal With Britain**\
+`The vice president did not offer details, but his comments may offer British leaders some comfort after the Trump administration imposed tariffs.`\
+https://nytimes.com/2025/04/15/us/politics/trump-tariffs-uk-jd-vance-trade-deal.html
+
 **Questions persist, but for now, the Phillies need to make this outfield work**\
 `The Phillies entered this season with questions about their outfield, which have persisted. But they lack viable outfield alternatives.`\
 https://nytimes.com/athletic/6280076/2025/04/15/phillies-outfield-brandon-marsh-struggles/
