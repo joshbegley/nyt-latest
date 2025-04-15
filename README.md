@@ -1,3 +1,7 @@
+**Nolan Arenado said no to Astros after Kyle Tucker trade made him 'a little uncomfortable'**\
+`"When you see a team trade (Tucker), 99 out of 100 players would probably be wondering, ‘What does that mean?’"`\
+https://nytimes.com/athletic/6279726/2025/04/14/astros-nolan-arenado-trade-veto-kyle-tucker/
+
 **Shedeur Sanders to take part in private workout with Giants: Sources**\
 `The Giants hold the No. 3 pick in next week's NFL Draft and have already added two veteran quarterbacks this offseason.`\
 https://nytimes.com/athletic/6279682/2025/04/14/shedeur-sanders-giants-workout-nfl-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6274988/2025/04/14/paige-bueckers-dallas-wings-wnba
 **Colorado to retire Travis Hunter's, Shedeur Sanders' jersey numbers**\
 `Colorado has retired just four jersey numbers in the program’s 122-year history before Hunter and Sanders.`\
 https://nytimes.com/athletic/6279642/2025/04/14/shedeur-sanders-travis-hunter-jersey-numbers-retired-colorado/
-
-**Trump Administration Memo Proposes Cutting State Department Funding by Nearly Half**\
-`The draft plan is part of a process involving the agency and the White House. It would eliminate almost all funding for international organizations that include the United Nations and NATO.`\
-https://nytimes.com/2025/04/14/us/politics/trump-state-department-budget-cuts.html
 
