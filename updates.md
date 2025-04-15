@@ -1,3 +1,7 @@
+**Tatis Jr. expecting to make Dominican national team debut in 2026 WBC**\
+`For Tatis there is only one priority more important than playing for his native country in the sport’s top international tournament.`\
+https://nytimes.com/athletic/6280291/2025/04/15/world-baseball-classic-fernando-tatis-jr/
+
 **England assistant Veurink to become Netherlands head coach after Euro 2025**\
 `Veurink has prior experience with the Dutch national team, having served as an assistant under Sarina Wiegman from 2017 to 2021.`\
 https://nytimes.com/athletic/6280351/2025/04/15/arjan-veurink-england-netherlands-head-coach/
