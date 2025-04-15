@@ -1,3 +1,7 @@
+**'It feels exactly like last year': Sloppy Twins drop series opener to Mets**\
+`Only 17 games in, the listless Twins are already being tested. They produced another clunker, losing 5-1 to the Mets in the series opener.`\
+https://nytimes.com/athletic/6280182/2025/04/15/twins-drop-series-opener-to-mets/
+
 **Tuesday Briefing: El Salvador Will Not Return Deportee**\
 `Plus, remembering Mario Vargas Llosa.`\
 https://nytimes.com/2025/04/15/briefing/el-salvador-trump-deportation-meta-zuckerberg-xi-china-vietnam.html
