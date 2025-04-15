@@ -1,3 +1,19 @@
+**Late Night Weighs In on Trump’s Perfect Physical**\
+`“The doctor said Trump’s BMI is 28,” Jimmy Kimmel said. “Right, and so is his next wife, by the way.”`\
+https://nytimes.com/2025/04/15/arts/television/late-night-trump-physical.html
+
+**Spring Break**\
+`How would you spend your dream spring vacation?`\
+https://nytimes.com/2025/04/15/learning/spring-break.html
+
+**Harvey Weinstein, Facing New Charge, Returns to Court in New York**\
+`The disgraced Hollywood producer will face a new trial for sex crimes in New York after a previous conviction was reversed last year.`\
+https://nytimes.com/2025/04/15/nyregion/harvey-weinstein-trial-new-york.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/04/15/crosswords/spelling-bee-forum.html
+
 **'He's gotten a lot better': Dustin May's return to Dodgers makes for a great story**\
 `May defeated the Rockies for his first major league win in 709 days. “It’s huge just to be able to go out and pitch,” he said.`\
 https://nytimes.com/athletic/6280266/2025/04/15/dodgers-dustin-may/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6280182/2025/04/15/twins-drop-series-opener-to-mets
 **Tuesday Briefing: El Salvador Will Not Return Deportee**\
 `Plus, remembering Mario Vargas Llosa.`\
 https://nytimes.com/2025/04/15/briefing/el-salvador-trump-deportation-meta-zuckerberg-xi-china-vietnam.html
-
-**The New York Times in Print for Tuesday, April 15, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/04/15/todays-new-york-times
-
-**Haiti’s Gangs Have Evolved. The United States Will Pay the Price.**\
-`If the Trump administration is serious about making the United States safer and more prosperous, it cannot stop engaging in places like Haiti.`\
-https://nytimes.com/2025/04/15/opinion/haiti-gangs-usaid.html
-
-**Denmark Fought Alongside You, America. Why Doubt Us Now?**\
-`Danes want our partnership with Americans to continue, but we will stand firm on our principles.`\
-https://nytimes.com/2025/04/15/opinion/denmark-vance-trump-nato.html
-
-**Vance Fumbles College Football Championship Trophy**\
-`Vice President JD Vance attempted to lift college football’s biggest prize but dropped the base as players for the Ohio State Buckeyes secured the trophy.`\
-https://nytimes.com/video/us/politics/100000010110965/jd-vance-ohio-state-football-trophy.html
 
