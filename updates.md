@@ -1,3 +1,7 @@
+**Court Temporarily Blocks Trump’s Shuttering of Migrant Entry Program**\
+`The Biden-era program has allowed hundreds of thousands of migrants from Cuba, Nicaragua, Venezuela and Haiti to enter the United States and work legally.`\
+https://nytimes.com/2025/04/14/us/politics/trump-administration-parole-migrant.html
+
 **Harvard’s Decision Was the Only Decision**\
 `The thrill over its response to the Trump administration is a measure of how low, and how fast, our expectations have fallen.`\
 https://nytimes.com/live/2025/04/07/opinion/thepoint/harvard-trump-administration-statement
