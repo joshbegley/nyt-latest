@@ -1,3 +1,7 @@
+**WNBA Draft draws 1.25 million viewers, its second largest audience ever**\
+`No. 1 pick Paige Bueckers drew a significant audience, though she didn't top Caitlin Clark, who drew 2.4 million to the 2024 draft.`\
+https://nytimes.com/athletic/6282297/2025/04/15/wnba-draft-viewership-second-largest/
+
 **Trump Seeks to Lower Drug Prices Through Medicare and Some Imports**\
 `President Trump directed his administration to help states import drugs from Canada. But a proposal to alter a Medicare program to reduce costs could wind up raising prices.`\
 https://nytimes.com/2025/04/15/health/trump-executive-order-prescription-drug-pricing.html
