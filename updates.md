@@ -1,3 +1,15 @@
+**Mbappe handed one-game La Liga ban after Alaves red card**\
+`Mbappe was shown a straight red card at Alaves for his lunge on Alaves midfielder Antonio Blanco.`\
+https://nytimes.com/athletic/6277825/2025/04/15/kylian-mbappe-suspension-real-madrid/
+
+**Fans of the ‘Great Moose Migration’ Prep for a Weekslong Binge Watch**\
+`The popular annual livestream that follows the migration of Sweden’s entire moose population began on Tuesday.`\
+https://nytimes.com/video/world/europe/100000010111457/moose-migration-sweden-livestream.html
+
+**American Airlines Will Offer Free Wi-Fi on Most Flights Next Year**\
+`Starting in January, members of the airline’s AAdvantage loyalty program will have free access to wireless internet on 90 percent of its fleet, the company said.`\
+https://nytimes.com/2025/04/15/business/american-airlines-free-wifi.html
+
 **More Than 20,000 I.R.S. Employees Offer to Resign**\
 `The I.R.S. had about 100,000 employees before President Trump took office. Between resignations and layoffs, the I.R.S. is on track to lose about a third of its staff this year.`\
 https://nytimes.com/2025/04/15/us/politics/irs-resignations-trump.html
