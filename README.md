@@ -1,3 +1,7 @@
+**Judge Blocks Trump From Retaliating Against Another Top Law Firm**\
+`It’s the latest setback to the president’s efforts to wield government power to punish the legal industry. A federal judge called it “a shocking abuse of power.”`\
+https://nytimes.com/2025/04/15/us/politics/trump-susman-godfrey-law-firm.html
+
 **Travis Hunter says he'll quit football if not allowed to play both ways**\
 `"I've been doing it my whole life," the Heisman winner said. "I feel like I could dominate on each side of the ball."`\
 https://nytimes.com/athletic/6281867/2025/04/15/travis-hunter-nfl-draft-quit-football/
