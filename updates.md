@@ -1,3 +1,7 @@
+**The Pulse: The secret wrinkle of this WNBA Draft**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6278759/2025/04/15/paige-bueckers-wnba-draft-the-pulse/
+
 **Astoria the Celebrity Turkey Returns to Ritzy Midtown Manhattan**\
 `Is she seeking excitement? Danger? A date? The birders who look after her just want her to go home.`\
 https://nytimes.com/2025/04/15/us/manhattan-astoria-roosevelt-island-turkey.html
