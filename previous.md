@@ -1,3 +1,11 @@
+**Grassley Heckled by Constituents During Town Hall**\
+`Senator Chuck Grassley, Republican of Iowa, was confronted by constituents who demanded that he help secure the return of Kilmar Armando Abrego Garcia, the Maryland man who was deported last month.`\
+https://nytimes.com/video/us/politics/100000010112874/chuck-grassley-iowa-townhall.html
+
+**Wife of Gene Hackman Asked About Flulike Symptoms Before Their Deaths**\
+`Videos, photographs and police reports released by the Santa Fe County Sheriff’s Office in New Mexico offered a look into the days before Betsy Arakawa and Mr. Hackman died.`\
+https://nytimes.com/2025/04/15/movies/gene-hackman-betsy-arakawa-deaths.html
+
 **Mets scratch Griffin Canning. Does this open the door later this week for Brandon Sproat?**\
 `The Mets' rotation is in flux. They have multiple ways to address it, including a chance to bring up their top pitching prospect.`\
 https://nytimes.com/athletic/6282280/2025/04/15/mets-rotation-brandon-sproat-debut-possibility/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/15/us/earthquake-alerts-california.html
 **Autism Rate Continues to Rise Among Children, C.D.C. Reports**\
 `While the agency stressed that increased screening was most likely behind much of the increase, the health secretary, Robert F. Kennedy Jr., called it an “epidemic.”`\
 https://nytimes.com/2025/04/15/health/autism-children-cdc.html
-
-**Inside the Changing White House Briefing Room**\
-`The Trump administration has given more time to “new media” and outlets that are more supportive of the president’s policies.`\
-https://nytimes.com/interactive/2025/04/15/us/trump-white-house-briefing-room-new-media.html
-
-**C.I.A. Director’s Messages in Leaked Chat Were Deleted, Agency Says**\
-`A watchdog group has said the exchanges on the Signal app were federal records, and sued in an effort to preserve them.`\
-https://nytimes.com/2025/04/15/us/politics/cia-director-leaked-chat.html
 

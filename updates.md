@@ -1,3 +1,11 @@
+**Grassley Heckled by Constituents During Town Hall**\
+`Senator Chuck Grassley, Republican of Iowa, was confronted by constituents who demanded that he help secure the return of Kilmar Armando Abrego Garcia, the Maryland man who was deported last month.`\
+https://nytimes.com/video/us/politics/100000010112874/chuck-grassley-iowa-townhall.html
+
+**Wife of Gene Hackman Asked About Flulike Symptoms Before Their Deaths**\
+`Videos, photographs and police reports released by the Santa Fe County Sheriff’s Office in New Mexico offered a look into the days before Betsy Arakawa and Mr. Hackman died.`\
+https://nytimes.com/2025/04/15/movies/gene-hackman-betsy-arakawa-deaths.html
+
 **Mets scratch Griffin Canning. Does this open the door later this week for Brandon Sproat?**\
 `The Mets' rotation is in flux. They have multiple ways to address it, including a chance to bring up their top pitching prospect.`\
 https://nytimes.com/athletic/6282280/2025/04/15/mets-rotation-brandon-sproat-debut-possibility/
