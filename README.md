@@ -1,3 +1,7 @@
+**How the Cubs plan to regroup without Justin Steele**\
+`There are some encouraging signs after the Cubs made pitching depth a top offseason priority, constantly thinking about what could go wrong.`\
+https://nytimes.com/athletic/6280203/2025/04/15/cubs-plan-without-justin-steele/
+
 **What I'm hearing about Tom Willander and the Canucks: 3 takeaways**\
 `There's a well-established hiccup in the negotiations. Meanwhile, Quinn Hughes made history Monday.`\
 https://nytimes.com/athletic/6280005/2025/04/15/vancouver-canucks-tom-willander-quinn-hughes/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010110965/jd-vance-ohio-state-footba
 **Selhurst Park redevelopment latest: A new option on the table but costs could edge beyond £200m**\
 `The club remains committed to redeveloping their home of over a century despite delays and rising costs`\
 https://nytimes.com/athletic/6274627/2025/04/15/selhurst-park-redevelopment-crystal-palace/
-
-**Inside Newcastle Q&A: Howe's importance, the Tonali rumour - and will they need to sell a star?**\
-`Chris Waugh answers subscribers' questions`\
-https://nytimes.com/athletic/6277786/2025/04/15/inside-newcastle-qa-tonali-howe-isak/
 
