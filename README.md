@@ -1,3 +1,7 @@
+**Rempe shows growth, Pärssinen's quest for consistency, more: Rangers takeaways**\
+`Matt Rempe found chemistry with Chris Kreider as the Rangers beat the Panthers in their penultimate game of the season.`\
+https://nytimes.com/athletic/6280015/2025/04/14/rangers-rempe-kreider-parssinen-panthers/
+
 **Paige Bueckers' arrival to the Dallas Wings as No. 1 WNBA Draft pick marks a new era**\
 `Can Bueckers finally get the Wings over the playoff hump? `\
 https://nytimes.com/athletic/6280044/2025/04/14/paige-bueckers-wnba-draft-dallas-wings-top-pick/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/14/pageoneplus/corrections-april-15-2025.html
 **The Vibe Shifts Against the Right**\
 `People who once found right-wing ideas scintillating are having second thoughts as they watch Trump put those ideas into practice.`\
 https://nytimes.com/2025/04/14/opinion/dissident-right-trump.html
-
-**How Blues can clinch wild-card spot in season finale vs. Utah: 6 storylines to know**\
-`Beat Utah in regulation Tuesday night and the Blues are in. Anything else makes it a little dicey.`\
-https://nytimes.com/athletic/6277448/2025/04/14/blues-season-finale-utah-wild-card-playoffs/
 
