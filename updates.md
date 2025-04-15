@@ -1,3 +1,7 @@
+**Changing the Rules**\
+`We cover a White House plan to slash regulations.`\
+https://nytimes.com/2025/04/15/briefing/trump-deregulation.html
+
 **JD Vance Sees ‘Good Chance’ of Trade Deal With Britain**\
 `The vice president did not offer details, but his comments may offer British leaders some comfort after the Trump administration imposed tariffs.`\
 https://nytimes.com/2025/04/15/us/politics/trump-tariffs-uk-jd-vance-trade-deal.html
