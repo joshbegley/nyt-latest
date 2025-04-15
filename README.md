@@ -1,3 +1,7 @@
+**WNBA Draft draws 1.25 million viewers, its second largest audience ever**\
+`No. 1 pick Paige Bueckers drew a significant audience, though she didn't top Caitlin Clark, who drew 2.4 million to the 2024 draft.`\
+https://nytimes.com/athletic/6282297/2025/04/15/wnba-draft-viewership-second-largest/
+
 **Trump Seeks to Lower Drug Prices Through Medicare and Some Imports**\
 `President Trump directed his administration to help states import drugs from Canada. But a proposal to alter a Medicare program to reduce costs could wind up raising prices.`\
 https://nytimes.com/2025/04/15/health/trump-executive-order-prescription-drug-pricing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6281966/2025/04/15/ravens-eric-decosta-nfl-draft-pl
 **D.C. Mayor Prepares City for Cuts After Congress Goes on Break**\
 `The House of Representatives went on recess without acting on a measure to avert a possible billion-dollar budget cut in Washington, D.C.`\
 https://nytimes.com/2025/04/15/us/washington-dc-budget-freeze-congress.html
-
-**I Have Never Been More Afraid for My Country’s Future**\
-`Trump’s worldview is stuck in the 1970s, and his whole administration is a cruel farce.`\
-https://nytimes.com/2025/04/15/opinion/trump-administration-china.html
 
