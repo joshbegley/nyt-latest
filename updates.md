@@ -1,3 +1,15 @@
+**Arteta insists no Arsenal fear for Madrid trip: 'We will try to win'**\
+`Arsenal won last week's first leg in London 3-0 ahead of the return leg against the competition's record 15-time winners.`\
+https://nytimes.com/athletic/6281603/2025/04/15/arteta-arsenal-real-madrid-champions-league/
+
+**This Therapist Helped Clients Feel Better. It Was A.I.**\
+`In the first clinical trial of its kind, an A.I. chatbot eased mental health symptoms among participants. The technology may someday help solve the provider shortage.`\
+https://nytimes.com/2025/04/15/health/ai-therapist-mental-health.html
+
+**Nico Harrison has 'no regrets' on Dončić trade: 'Defense wins championships'**\
+`Harrison said Tuesday that he has three years remaining on his contract, and he intends to remain in Dallas for the entirety of it.`\
+https://nytimes.com/athletic/6281436/2025/04/15/mavericks-gm-nico-harrison-news-press-conference/
+
 **Rangers have fallen behind young teams on the rise — a huge concern for the future**\
 `Watching young stars in Montreal, Ottawa and Columbus in the playoff chase makes the Rangers' hole seem even harder to climb out of.`\
 https://nytimes.com/athletic/6281440/2025/04/15/rangers-east-contenders-rising/
