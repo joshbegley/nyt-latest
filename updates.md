@@ -1,3 +1,7 @@
+**How the Cubs plan to regroup without Justin Steele**\
+`There are some encouraging signs after the Cubs made pitching depth a top offseason priority, constantly thinking about what could go wrong.`\
+https://nytimes.com/athletic/6280203/2025/04/15/cubs-plan-without-justin-steele/
+
 **What I'm hearing about Tom Willander and the Canucks: 3 takeaways**\
 `There's a well-established hiccup in the negotiations. Meanwhile, Quinn Hughes made history Monday.`\
 https://nytimes.com/athletic/6280005/2025/04/15/vancouver-canucks-tom-willander-quinn-hughes/
