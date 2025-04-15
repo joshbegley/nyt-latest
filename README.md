@@ -1,3 +1,7 @@
+**Reds activate Alexis Díaz, Matt McLain and Austin Hays from IL**\
+`The Reds activated a pair of starting position players and their closer from the injured list before Tuesday’s game against the Mariners.`\
+https://nytimes.com/athletic/6281531/2025/04/15/reds-activate-diaz-mclain-hays/
+
 **How Iamaleava drama adds to 2023's blue-chip QB shuffle (for everyone but Arch)**\
 `What happened to all these quarterbacks, and what does it say about the state of college football? Here's a case-by-case look.`\
 https://nytimes.com/athletic/6281315/2025/04/15/nico-iamaleavea-arch-manning-qb-transfer-2023/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/15/nyregion/rikers-ice-new-york-city-council-lawsuit
 **Dolphins GM says team looking to move Ramsey, not pursuing Hill trade**\
 `Ramsey, 30, has been a seven-time Pro Bowl selection and three-time All-Pro in nine NFL seasons with the Jaguars, Rams and Dolphins.`\
 https://nytimes.com/athletic/6281498/2025/04/15/jalen-ramsey-miami-dolphins-news/
-
-**How Trump Might Unwittingly Cut Emissions From Online Shopping**\
-`Fast fashion retailers rely heavily on shipping by air. The president’s tariffs could change that.`\
-https://nytimes.com/2025/04/15/climate/trump-tariffs-online-shopping.html
 
