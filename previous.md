@@ -1,3 +1,7 @@
+**Corrections: April 15, 2025**\
+`Corrections that appeared in print on Tuesday, April 15, 2025.`\
+https://nytimes.com/2025/04/14/pageoneplus/corrections-april-15-2025.html
+
 **The Vibe Shifts Against the Right**\
 `People who once found right-wing ideas scintillating are having second thoughts as they watch Trump put those ideas into practice.`\
 https://nytimes.com/2025/04/14/opinion/dissident-right-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6279721/2025/04/14/kris-bryant-injury-degenerative-
 **Vance Drops Ohio State’s Championship Trophy During White House Celebration**\
 `The vice president, a former senator from Ohio who graduated from Ohio State, joked about the mishap on social media.`\
 https://nytimes.com/2025/04/14/us/politics/jd-vance-ohio-state-football-trophy.html
-
-**Gabby Herzig played Augusta National. Ask her your question about the experience**\
-`Gabby won the media lottery. What do you want to know about the course, the experience or her round? Ask away for a future mailbag.`\
-https://nytimes.com/athletic/6279820/2025/04/14/gabby-herzig-played-augusta-national-ask-her-your-question-about-the-experience/
 

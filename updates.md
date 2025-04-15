@@ -1,3 +1,7 @@
+**Corrections: April 15, 2025**\
+`Corrections that appeared in print on Tuesday, April 15, 2025.`\
+https://nytimes.com/2025/04/14/pageoneplus/corrections-april-15-2025.html
+
 **The Vibe Shifts Against the Right**\
 `People who once found right-wing ideas scintillating are having second thoughts as they watch Trump put those ideas into practice.`\
 https://nytimes.com/2025/04/14/opinion/dissident-right-trump.html
