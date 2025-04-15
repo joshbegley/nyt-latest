@@ -1,3 +1,11 @@
+**Why Willy Adames, Patrick Bailey and other struggling Giants look poised for turnarounds**\
+`The Giants are scoring runs without contributions from some of their top hitters. That could change soon.`\
+https://nytimes.com/athletic/6279891/2025/04/15/sf-giants-early-season-hitting-willy-adames/
+
+**The Windup: A new Captain America**\
+`Welcome to The Windup, The Athletic's MLB newsletter. `\
+https://nytimes.com/athletic/6280271/2025/04/15/aaron-judge-wbc-usa-the-windup/
+
 **Onstage and Off, Whitney White Is Everywhere This Spring**\
 `An actor, musician and writer, White is also now an in-demand stage director. “I am looking, I am hungry, I am searching,” she said.`\
 https://nytimes.com/2025/04/15/theater/whitney-white-macbeth-bam.html
@@ -10,7 +18,7 @@ https://nytimes.com/athletic/6280638/2025/04/15/kadeisha-buchanan-chelsea-contra
 `An ensemble of soft garments exuded cozy sophistication.`\
 https://nytimes.com/2025/04/15/style/street-style-look-beige-tonal-outfit.html
 
-**Bartrip: Lacking energy in games was 'reality check' in dealing with anorexia**\
+**Spurs captain Bartrip speaks about anorexia 'reality check'**\
 `Bartrip spoke about her experiences with mental health issues, after she was diagnosed with anorexia at the age of 14.`\
 https://nytimes.com/athletic/6280532/2025/04/15/molly-bartrip-tottenham-mental-health/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6280566/2025/04/15/will-hughes-crystal-palace-contr
 **What I think, and what I know, about the Red Wings as offseason nears**\
 `With two games left in the season, Detroit's offseason storylines are coming into view. Let's break it down.`\
 https://nytimes.com/athletic/6278818/2025/04/15/red-wings-offseason-storylines-marco-kasper-patrick-kane/
-
-**Last year, Knicks fans reveled in a playoff run. This year, expectations are more measured**\
-`The Knicks have been here before and so have their fans. This time, expectations of a deep playoff run are tempered.`\
-https://nytimes.com/athletic/6267443/2025/04/15/knicks-nba-playoffs-expectations-fans/
-
-**Potential offer-sheet targets for the Flyers — plus 3 Flyers who might get targeted**\
-`Offer-sheet compensation thresholds won’t be revealed until June, but there's already plenty of chatter.`\
-https://nytimes.com/athletic/6279166/2025/04/15/flyers-offer-sheet-candidates/
 
