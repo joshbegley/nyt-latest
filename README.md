@@ -1,3 +1,7 @@
+**The Vibe Shifts Against the Right**\
+`People who once found right-wing ideas scintillating are having second thoughts as they watch Trump put those ideas into practice.`\
+https://nytimes.com/2025/04/14/opinion/dissident-right-trump.html
+
 **How Blues can clinch wild-card spot in season finale vs. Utah: 5 storylines to know**\
 `Beat Utah in regulation Tuesday night and the Blues are in. Anything else makes it a little dicey.`\
 https://nytimes.com/athletic/6277448/2025/04/14/blues-season-finale-utah-wild-card-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/14/us/politics/jd-vance-ohio-state-football-trophy.h
 **Gabby Herzig played Augusta National. Ask her your question about the experience**\
 `Gabby won the media lottery. What do you want to know about the course, the experience or her round? Ask away for a future mailbag.`\
 https://nytimes.com/athletic/6279820/2025/04/14/gabby-herzig-played-augusta-national-ask-her-your-question-about-the-experience/
-
-**Suspect Arrested in Attacks on New Mexico G.O.P. Office and a Tesla Dealer**\
-`Jamison Wagner, 40, of Albuquerque, faces up to 40 years in prison if convicted, the authorities said.`\
-https://nytimes.com/2025/04/14/us/tesla-arson-arrest-new-mexico.html
 

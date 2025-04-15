@@ -1,3 +1,7 @@
+**How Blues can clinch wild-card spot in season finale vs. Utah: 5 storylines to know**\
+`Beat Utah in regulation Tuesday night and the Blues are in. Anything else makes it a little dicey.`\
+https://nytimes.com/athletic/6277448/2025/04/14/blues-season-finale-utah-wild-card-playoffs/
+
 **Court Temporarily Blocks Trump’s Shuttering of Migrant Entry Program**\
 `The Biden-era program has allowed hundreds of thousands of migrants from Cuba, Nicaragua, Venezuela and Haiti to enter the United States and work legally.`\
 https://nytimes.com/2025/04/14/us/politics/trump-administration-parole-migrant.html
