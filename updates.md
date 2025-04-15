@@ -1,3 +1,8 @@
+**Champions League quarter-final odds: Inter on the up and misfiring Madridistas**\
+`Brett Koremenos outlines the best bets for Wednesday’s Champions League quarter-final second-legs.
+`\
+https://nytimes.com/athletic/6280430/2025/04/15/champions-league-quarter-final-wednesday-second-leg-betting-tips-predictions-odds/
+
 **Why the Vikings could draft an interior offensive lineman in the first round**\
 `The Vikings could go in any number of directions with their first pick in the NFL Draft, but IOL might just make the most sense.`\
 https://nytimes.com/athletic/6278846/2025/04/15/vikings-nfl-draft-interior-offensive-line/
