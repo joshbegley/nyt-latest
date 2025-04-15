@@ -1,3 +1,7 @@
+**Trump Turned Up the Pressure on Harvard**\
+`Also, the I.R.S. is downsizing. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/04/15/briefing/trump-harvard-tax-status-irs-resignations.html
+
 **A.I. Action Figures Flood Social Media (Accessories Included)**\
 `Amid the rush to take part in a recent trend, some artists, concerned about the use of ChatGPT, are hand-drawing their own versions.`\
 https://nytimes.com/2025/04/15/style/ai-barbie-dolls-action-figures.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6281790/2025/04/15/mike-vrabel-patriots-nfl-draft-p
 **Judge Blocks Trump From Retaliating Against Another Top Law Firm**\
 `It’s the latest setback to the president’s efforts to wield government power to punish the legal industry. A federal judge called it “a shocking abuse of power.”`\
 https://nytimes.com/2025/04/15/us/politics/trump-susman-godfrey-law-firm.html
-
-**Travis Hunter says he'll quit football if not allowed to play both ways**\
-`"I've been doing it my whole life," the Heisman winner said. "I feel like I could dominate on each side of the ball."`\
-https://nytimes.com/athletic/6281867/2025/04/15/travis-hunter-nfl-draft-quit-football/
 
