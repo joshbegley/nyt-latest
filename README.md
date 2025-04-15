@@ -1,3 +1,7 @@
+**Harvard’s Decision to Resist Trump is ‘of Momentous Significance’**\
+`But a fight with the nation’s oldest, richest and most elite university is a battle that President Trump and his powerful aide, Stephen Miller, want to have.`\
+https://nytimes.com/2025/04/14/us/politics/harvard-trump.html
+
 **Nolan Arenado said no to Astros after Kyle Tucker trade made him 'a little uncomfortable'**\
 `"When you see a team trade (Tucker), 99 out of 100 players would probably be wondering, ‘What does that mean?’"`\
 https://nytimes.com/athletic/6279726/2025/04/14/astros-nolan-arenado-trade-veto-kyle-tucker/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6279726/2025/04/14/astros-nolan-arenado-trade-veto-
 https://nytimes.com/athletic/6279682/2025/04/14/shedeur-sanders-giants-workout-nfl-draft/
 
 **Rockies place Kris Bryant on 10-day IL with degenerative back condition**\
-`It is Bryant's fifth stint on the IL due to some back injury, all with the Rockies.`\
+`This is Bryant's fifth stint on the IL with a back-related injury during his time with the Rockies.`\
 https://nytimes.com/athletic/6279721/2025/04/14/kris-bryant-injury-degenerative-disc-disease/
 
 **Vance Drops Ohio State’s Championship Trophy During White House Celebration**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/14/us/politics/trump-trade-war-china-dilemma.html
 **Dallas Wings draft Paige Bueckers with No. 1 pick in 2025 WNBA Draft**\
 `Bueckers enters the professional ranks at an important moment for both Dallas and the WNBA.`\
 https://nytimes.com/athletic/6274988/2025/04/14/paige-bueckers-dallas-wings-wnba-draft/
-
-**Colorado to retire Travis Hunter's, Shedeur Sanders' jersey numbers**\
-`Colorado has retired just four jersey numbers in the program’s 122-year history before Hunter and Sanders.`\
-https://nytimes.com/athletic/6279642/2025/04/14/shedeur-sanders-travis-hunter-jersey-numbers-retired-colorado/
 
