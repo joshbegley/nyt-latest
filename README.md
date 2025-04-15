@@ -1,3 +1,7 @@
+**Cal RB Jaydn Ott enters transfer portal**\
+`The move comes four months after Ott announced his return to Berkeley for his senior season.`\
+https://nytimes.com/athletic/6279923/2025/04/14/jaydn-ott-transfer-portal-cal/
+
 **Anatomical Pouch**\
 `Per Bykodorov makes his New York Times Crossword debut.`\
 https://nytimes.com/2025/04/14/crosswords/daily-puzzle-2025-04-15.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6279726/2025/04/14/astros-nolan-arenado-trade-veto-
 **Shedeur Sanders to take part in private workout with Giants: Sources**\
 `The Giants hold the No. 3 pick in next week's NFL Draft and have already added two veteran quarterbacks this offseason.`\
 https://nytimes.com/athletic/6279682/2025/04/14/shedeur-sanders-giants-workout-nfl-draft/
-
-**Rockies place Kris Bryant on 10-day IL with degenerative back condition**\
-`This is Bryant's fifth stint on the IL with a back-related injury during his time with the Rockies.`\
-https://nytimes.com/athletic/6279721/2025/04/14/kris-bryant-injury-degenerative-disc-disease/
 
