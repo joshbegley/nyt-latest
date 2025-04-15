@@ -1,3 +1,7 @@
+**Have the Lions left clues about their 2025 NFL Draft plans?**\
+`Past comments could offer insight into who the Lions might be targeting in the draft.`\
+https://nytimes.com/athletic/6279500/2025/04/15/detroit-lions-2025-nfl-draft-plans/
+
 **Hughes signs new Palace contract through to 2027**\
 `Hughes’ previous deal was set to expire this summer.`\
 https://nytimes.com/athletic/6280566/2025/04/15/will-hughes-crystal-palace-contract/
