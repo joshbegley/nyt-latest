@@ -1,6 +1,6 @@
 **Ex-Man Utd football director John Murtough joins Atalanta**\
 `Murtough left United in April 2024 after more than 10 years of service at the club and was instrumental in Erik ten Hag's 2022 appointment.`\
-https://nytimes.com/athletic/6281166/2025/04/15/ex-manchester-united-football-director-john-murtough-joins-atalanta/
+https://nytimes.com/athletic/6281166/2025/04/15/man-united-john-murtough-atalanta/
 
 **‘#1 Happy Family USA’ Is a Bittersweet Coming-of-Age Sitcom**\
 `This animated comedy, cocreated by Ramy Youssef, depicts a Muslim family in New Jersey during the fraught period after Sept. 11, 2001.`\
