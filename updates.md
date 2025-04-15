@@ -1,3 +1,15 @@
+**Selhurst Park redevelopment latest: A new option on the table but costs could edge beyond £200m**\
+`The club remains committed to redeveloping their home of over a century despite delays and rising costs`\
+https://nytimes.com/athletic/6274627/2025/04/15/selhurst-park-redevelopment-crystal-palace/
+
+**Inside Newcastle Q&A: Howe's importance, the Tonali rumour - and will they need to sell a star?**\
+`Chris Waugh answers subscribers' questions`\
+https://nytimes.com/athletic/6277786/2025/04/15/inside-newcastle-qa-tonali-howe-isak/
+
+**What now for Onana and his Manchester United future?**\
+`The 29-year-old was left out of the club's most recent game, and it raises the question of whether his future lies away from Old Trafford`\
+https://nytimes.com/athletic/6279000/2025/04/15/andre-onana-manchester-united-future/
+
 **How Raphinha became a world-beater for Barcelona**\
 `The forward has 20 goals and 28 assists in 2024-25 as Barcelona chase a La Liga, Copa del Rey and Champions League treble`\
 https://nytimes.com/athletic/6258741/2025/04/15/raphinha-barcelona-form-goals-assists-brazil/

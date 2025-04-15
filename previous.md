@@ -1,3 +1,15 @@
+**Selhurst Park redevelopment latest: A new option on the table but costs could edge beyond £200m**\
+`The club remains committed to redeveloping their home of over a century despite delays and rising costs`\
+https://nytimes.com/athletic/6274627/2025/04/15/selhurst-park-redevelopment-crystal-palace/
+
+**Inside Newcastle Q&A: Howe's importance, the Tonali rumour - and will they need to sell a star?**\
+`Chris Waugh answers subscribers' questions`\
+https://nytimes.com/athletic/6277786/2025/04/15/inside-newcastle-qa-tonali-howe-isak/
+
+**What now for Onana and his Manchester United future?**\
+`The 29-year-old was left out of the club's most recent game, and it raises the question of whether his future lies away from Old Trafford`\
+https://nytimes.com/athletic/6279000/2025/04/15/andre-onana-manchester-united-future/
+
 **How Raphinha became a world-beater for Barcelona**\
 `The forward has 20 goals and 28 assists in 2024-25 as Barcelona chase a La Liga, Copa del Rey and Champions League treble`\
 https://nytimes.com/athletic/6258741/2025/04/15/raphinha-barcelona-form-goals-assists-brazil/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6269812/2025/04/15/psg-pressing-enrique/
 **Borussia Dortmund have lost their identity on and off the pitch. How can they retrieve it?**\
 `Facing a European exit, Dortmund are off the pace in the Bundesliga - and other clubs have a greater claim to their unique selling point`\
 https://nytimes.com/athletic/6278081/2025/04/15/borussia-dortmund-identity-ucl-kovac/
-
-**Airport Was Repeatedly Warned on Bird Strikes Before Deadly South Korea Crash**\
-`Operators of the airport where Jeju Air Flight 2216 crashed in December, killing 179, failed to meet both international and South Korean guidelines intended to prevent such strikes.`\
-https://nytimes.com/2025/04/15/world/asia/south-korea-plane-crash-warnings.html
-
-**A Crisis at a British Steel Mill Has Cast a Shadow Over U.K.-China Relations**\
-`Britain was edging closer to China, but a dispute at a Chinese-owned steel company in the U.K. may prompt a rethink.`\
-https://nytimes.com/2025/04/15/world/europe/a-crisis-at-a-british-steel-mill-has-cast-a-shadow-over-uk-china-relations.html
-
-**Trump’s Trade War With China Could Be Good for India. But Is It Ready?**\
-`While India dreams of becoming a new factory to the world, its manufacturers are struggling to find skilled workers, secure components and overcome red tape.`\
-https://nytimes.com/2025/04/15/business/trump-tariffs-india-manufacturing.html
 
