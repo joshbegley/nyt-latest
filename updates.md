@@ -1,3 +1,11 @@
+**C.I.A. Director’s Messages in Leaked Chat Were Deleted, Agency Says**\
+`A watchdog group has said the exchanges on the Signal app were federal records, and sued in an effort to preserve them.`\
+https://nytimes.com/2025/04/15/us/politics/cia-director-leaked-chat.html
+
+**Judge Rebukes Trump Administration’s Effort to Return Wrongly Deported Man**\
+`The judge also said she planned to force Trump officials to reveal what they had done behind the scenes to seek the return of the man, Kilmar Armando Abrego Garcia.`\
+https://nytimes.com/2025/04/15/us/trump-abrego-garcia-deported-hearing.html
+
 **Carli Lloyd on Hall of Fame honor: 'I played purely for the love of the game'**\
 `Despite all of her accolades, Lloyd says she was still surprised to get the Hall of Fame honor`\
 https://nytimes.com/athletic/6281956/2025/04/15/carli-lloyd-reflects-uswnt-soccer-hall-of-fame/
