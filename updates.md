@@ -1,3 +1,7 @@
+**Matt Rempe shows growth, Juuso Pärssinen's quest for consistency, more: Rangers takeaways**\
+`Rempe found chemistry with Chris Kreider as the Rangers beat the Panthers in their penultimate game of the season.`\
+https://nytimes.com/athletic/6280015/2025/04/14/rangers-rempe-kreider-parssinen-panthers/
+
 **Blue Jackets still have playoff hopes heading into must-win game vs. Flyers**\
 `Thanks to a Montreal shootout loss to Chicago on Monday, the Blue Jackets — despite everything — still have a shot at the postseason.`\
 https://nytimes.com/athletic/6279885/2025/04/14/blue-jackets-nhl-playoffs-flyers-canadiens/
