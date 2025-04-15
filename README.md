@@ -4,7 +4,7 @@ https://nytimes.com/athletic/6280339/2025/04/15/canucks-roster-2025-26-season-pr
 
 **Santa Lives in Rovaniemi, Finland. Some of His Neighbors Are Not Thrilled.**\
 `A tourist season that stretches from October to March has been anything but jolly for some residents of the “Official Hometown of Santa Claus.”`\
-https://nytimes.com/2025/04/15/world/asia/santa-lives-in-rovaniemi-finland-some-of-his-neighbors-are-not-thrilled.html
+https://nytimes.com/2025/04/15/world/asia/santa-finland-rovaniemi.html
 
 **Join Keith Law for a live MLB Draft rankings Q&A at 1 pm ET!**\
 `Law chats about his most recent MLB Draft rankings`\
