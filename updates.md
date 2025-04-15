@@ -1,3 +1,11 @@
+**Paige Bueckers' arrival to the Dallas Wings as No. 1 WNBA Draft pick marks a new era**\
+`Can Bueckers finally get the Wings over the playoff hump? `\
+https://nytimes.com/athletic/6280044/2025/04/14/paige-bueckers-wnba-draft-dallas-wings-top-pick/
+
+**Review: In ‘John Proctor Is the Villain,’ It’s the Girls vs. the Men**\
+`Kimberly Belflower’s play, on Broadway starring Sadie Sink, gives high school students a chance to prosecute a #MeToo case against “The Crucible.”`\
+https://nytimes.com/2025/04/14/theater/john-proctor-is-the-villain-review-sink.html
+
 **Blue Jackets still have playoff hopes heading into must-win game vs. Philadelphia**\
 `Thanks to a Montreal shootout loss to Chicago on Monday, the Blue Jackets — despite everything — still have a shot at the postseason.`\
 https://nytimes.com/athletic/6279885/2025/04/14/blue-jackets-nhl-playoffs-flyers-canadiens/
