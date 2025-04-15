@@ -1,3 +1,15 @@
+**Why Willy Adames, Patrick Bailey and other struggling Giants look poised for turnarounds**\
+`The Giants are scoring runs without contributions from some of their top hitters. That could change soon.`\
+https://nytimes.com/athletic/6279891/2025/04/15/sf-giants-early-season-hitting-willy-adames/
+
+**The Windup: A new Captain America**\
+`Welcome to The Windup, The Athletic's MLB newsletter. `\
+https://nytimes.com/athletic/6280271/2025/04/15/aaron-judge-wbc-usa-the-windup/
+
+**Spurs captain Bartrip speaks about anorexia 'reality check'**\
+`Bartrip spoke about her experiences with mental health issues, after she was diagnosed with anorexia at the age of 14.`\
+https://nytimes.com/athletic/6280532/2025/04/15/molly-bartrip-tottenham-mental-health/
+
 **Onstage and Off, Whitney White Is Everywhere This Spring**\
 `An actor, musician and writer, White is also now an in-demand stage director. “I am looking, I am hungry, I am searching,” she said.`\
 https://nytimes.com/2025/04/15/theater/whitney-white-macbeth-bam.html
