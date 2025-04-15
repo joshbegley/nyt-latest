@@ -1,3 +1,7 @@
+**Some Online Scam Victims Can Now Seek Tax Relief on Firmer Ground**\
+`The Internal Revenue Service issued a memo last month that said victims of certain impersonation and investment schemes might be eligible for a tax break.`\
+https://nytimes.com/2025/04/15/business/scam-tax-deduction-irs.html
+
 **Browns NFL Draft 2025 guide: Picks, predictions and key needs**\
 `Keeping you up to date on all of Cleveland's draft-related news and analysis heading into Round 1 on April 24. `\
 https://nytimes.com/athletic/6233351/2025/04/15/cleveland-browns-2025-nfl-draft-picks-needs-predictions-guide/

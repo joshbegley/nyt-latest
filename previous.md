@@ -1,3 +1,7 @@
+**Some Online Scam Victims Can Now Seek Tax Relief on Firmer Ground**\
+`The Internal Revenue Service issued a memo last month that said victims of certain impersonation and investment schemes might be eligible for a tax break.`\
+https://nytimes.com/2025/04/15/business/scam-tax-deduction-irs.html
+
 **Browns NFL Draft 2025 guide: Picks, predictions and key needs**\
 `Keeping you up to date on all of Cleveland's draft-related news and analysis heading into Round 1 on April 24. `\
 https://nytimes.com/athletic/6233351/2025/04/15/cleveland-browns-2025-nfl-draft-picks-needs-predictions-guide/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6280969/2025/04/15/diego-dedura-palomero-munich-ope
 **Steelers draft visit tracker: RB TreVeyon Henderson highlights final visitors**\
 `Keep track of every prospect who visits the Steelers' facility between now and the 2025 NFL Draft.`\
 https://nytimes.com/athletic/6181787/2025/04/15/steelers-nfl-draft-prospect-visitors-tracker/
-
-**Ex-Man Utd football director John Murtough joins Atalanta**\
-`Murtough left United in April 2024 after more than 10 years of service at the club and was instrumental in Erik ten Hag's 2022 appointment.`\
-https://nytimes.com/athletic/6281166/2025/04/15/man-united-john-murtough-atalanta/
 
