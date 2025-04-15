@@ -1,3 +1,11 @@
+**Ovechkin has the record, but Lemieux is the greatest scorer ever**\
+`Ovechkin isn't the greatest goal scorer in NHL history just because he's scored the most goals. `\
+https://nytimes.com/athletic/6280051/2025/04/15/alex-ovechkin-nhl-goals-record-mario-lemieux/
+
+**Fedora Returns to the West Village for an Encore. Again.**\
+`After closing in 2020 following a revival by Gabriel Stulman, it’s now backed by the partners of St. Jardim.`\
+https://nytimes.com/2025/04/15/dining/nyc-restaurant-news.html
+
 **Paige Bueckers and the Importance of Dressing to Impress at the W.N.B.A. Draft**\
 `What 15 draft picks wore to meet fans, their new teammates and — not insignificantly — potential sponsors.`\
 https://nytimes.com/2025/04/15/style/2025-wnba-draft-paige-bueckers-morrow.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6280326/2025/04/15/sharks-will-smith-nhl-rookie-sea
 **Indianapolis Colts NFL Draft 2025 guide: Picks, predictions and key needs**\
 `The Colts own the No. 14 pick and seven picks total in the NFL Draft. Will they add a TE in Round 1 or target another need?`\
 https://nytimes.com/athletic/6227667/2025/04/15/indianapolis-colts-2025-nfl-draft-picks-needs-predictions-guide/
-
-**Attackers Target Prisons in France, Burning Vehicles and Firing Shots**\
-`The office of France’s counterterrorism prosecutor said it would begin an investigation into the violence. The justice minister blamed drug traffickers.`\
-https://nytimes.com/2025/04/15/world/europe/france-prison-attacks.html
-
-**Stocks Edge Higher as Investors Assess Tariff Scenarios**\
-`The Trump administration’s chaotic tariff rollout continues to spur volatility in the markets.`\
-https://nytimes.com/2025/04/15/business/stocks-bonds-dollar-markets-tariffs.html
 

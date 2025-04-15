@@ -1,3 +1,11 @@
+**Ovechkin has the record, but Lemieux is the greatest scorer ever**\
+`Ovechkin isn't the greatest goal scorer in NHL history just because he's scored the most goals. `\
+https://nytimes.com/athletic/6280051/2025/04/15/alex-ovechkin-nhl-goals-record-mario-lemieux/
+
+**Fedora Returns to the West Village for an Encore. Again.**\
+`After closing in 2020 following a revival by Gabriel Stulman, it’s now backed by the partners of St. Jardim.`\
+https://nytimes.com/2025/04/15/dining/nyc-restaurant-news.html
+
 **Paige Bueckers and the Importance of Dressing to Impress at the W.N.B.A. Draft**\
 `What 15 draft picks wore to meet fans, their new teammates and — not insignificantly — potential sponsors.`\
 https://nytimes.com/2025/04/15/style/2025-wnba-draft-paige-bueckers-morrow.html
