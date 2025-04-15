@@ -1,3 +1,23 @@
+**Motion to dismiss charges against man accused of killing Gaudreau brothers denied**\
+`Johnny and Matthew Gaudreau died after being struck by a Jeep while they were bicycling home the night before their sister’s wedding.`\
+https://nytimes.com/athletic/6281368/2025/04/15/johnny-gaudrea-dismiss-charges-denied-trial/
+
+**Concern over Maple Leafs' injuries heading into playoffs appears to be growing**\
+`The mood around the Leafs should be positive. But head coach Craig Berube projected the opposite after Tuesday’s morning skate.`\
+https://nytimes.com/athletic/6281328/2025/04/15/maple-leafs-injuries-nhl-playoffs/
+
+**Ligue 1 left without domestic TV deal with DAZN contract to end**\
+`It leaves Ligue 1, Europe’s fifth biggest league in revenue, without a domestic media-rights partner for the second time in five years.`\
+https://nytimes.com/athletic/6281404/2025/04/15/ligue-1-tv-rights-dazn-contract/
+
+**Columbia Vows to Reject Any Trump Deal That Threatens Its Independence**\
+`A message from the university’s acting president said that talks with the Trump administration were continuing as the White House is seeking to place the school under judicial oversight.`\
+https://nytimes.com/2025/04/15/nyregion/columbia-trump-president-response.html
+
+**The ‘Great Moose Migration’ Livestream Captivates Sweden**\
+`Moose fans are following the weekslong moose migration, which airs live on the national broadcaster. “This is reality TV at its finest,” a moderator of a zealous Facebook group said.`\
+https://nytimes.com/2025/04/15/world/europe/sweden-moose-livestream.html
+
 **If the Signal Chat Bothered You, Recall Andrew Cuomo’s Talent for Secrecy**\
 `Like the Signal chat participants, Cuomo never seemed to think much was wrong with hiding internal government messaging from the public.`\
 https://nytimes.com/live/2025/04/07/opinion/thepoint/andrew-cuomo-secrecy-signal

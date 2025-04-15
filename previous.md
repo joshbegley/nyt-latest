@@ -1,3 +1,23 @@
+**Motion to dismiss charges against man accused of killing Gaudreau brothers denied**\
+`Johnny and Matthew Gaudreau died after being struck by a Jeep while they were bicycling home the night before their sister’s wedding.`\
+https://nytimes.com/athletic/6281368/2025/04/15/johnny-gaudrea-dismiss-charges-denied-trial/
+
+**Concern over Maple Leafs' injuries heading into playoffs appears to be growing**\
+`The mood around the Leafs should be positive. But head coach Craig Berube projected the opposite after Tuesday’s morning skate.`\
+https://nytimes.com/athletic/6281328/2025/04/15/maple-leafs-injuries-nhl-playoffs/
+
+**Ligue 1 left without domestic TV deal with DAZN contract to end**\
+`It leaves Ligue 1, Europe’s fifth biggest league in revenue, without a domestic media-rights partner for the second time in five years.`\
+https://nytimes.com/athletic/6281404/2025/04/15/ligue-1-tv-rights-dazn-contract/
+
+**Columbia Vows to Reject Any Trump Deal That Threatens Its Independence**\
+`A message from the university’s acting president said that talks with the Trump administration were continuing as the White House is seeking to place the school under judicial oversight.`\
+https://nytimes.com/2025/04/15/nyregion/columbia-trump-president-response.html
+
+**The ‘Great Moose Migration’ Livestream Captivates Sweden**\
+`Moose fans are following the weekslong moose migration, which airs live on the national broadcaster. “This is reality TV at its finest,” a moderator of a zealous Facebook group said.`\
+https://nytimes.com/2025/04/15/world/europe/sweden-moose-livestream.html
+
 **If the Signal Chat Bothered You, Recall Andrew Cuomo’s Talent for Secrecy**\
 `Like the Signal chat participants, Cuomo never seemed to think much was wrong with hiding internal government messaging from the public.`\
 https://nytimes.com/live/2025/04/07/opinion/thepoint/andrew-cuomo-secrecy-signal
@@ -17,24 +37,4 @@ https://nytimes.com/video/world/europe/100000010111457/moose-migration-sweden-li
 **American Airlines Will Offer Free Wi-Fi on Most Flights Next Year**\
 `Starting in January, members of the airline’s AAdvantage loyalty program will have free access to wireless internet on 90 percent of its fleet, the company said.`\
 https://nytimes.com/2025/04/15/business/american-airlines-free-wifi.html
-
-**More Than 20,000 I.R.S. Employees Offer to Resign**\
-`The I.R.S. had about 100,000 employees before President Trump took office. Between resignations and layoffs, the I.R.S. is on track to lose about a third of its staff this year.`\
-https://nytimes.com/2025/04/15/us/politics/irs-resignations-trump.html
-
-**Jordan Says It Foiled a Plot Against the Kingdom**\
-`The country’s main intelligence branch said the plans, apparently years in the making, involved rockets, weapons manufacturing and drones.`\
-https://nytimes.com/2025/04/15/world/middleeast/jordan-plot-arrests.html
-
-**At Trial, Zuckerberg Dodges Questions on Why He Bought Instagram and WhatsApp**\
-`The Meta chief executive, testifying in a landmark antitrust trial, denied he was trying to snuff out competitors.`\
-https://nytimes.com/2025/04/15/technology/meta-antitrust-trial-mark-zuckerberg.html
-
-**Some Online Scam Victims Can Now Seek Tax Relief on Firmer Ground**\
-`The Internal Revenue Service issued a memo last month that said victims of certain impersonation and investment schemes might be eligible for a tax break.`\
-https://nytimes.com/2025/04/15/business/scam-tax-deduction-irs.html
-
-**Browns NFL Draft 2025 guide: Picks, predictions and key needs**\
-`Keeping you up to date on all of Cleveland's draft-related news and analysis heading into Round 1 on April 24. `\
-https://nytimes.com/athletic/6233351/2025/04/15/cleveland-browns-2025-nfl-draft-picks-needs-predictions-guide/
 
