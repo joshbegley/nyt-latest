@@ -1,3 +1,7 @@
+**Santa Lives in Rovaniemi, Finland. Some of His Neighbors Are Not Thrilled.**\
+`A tourist season that stretches from October to March has been anything but jolly for some residents of the “Official Hometown of Santa Claus.”`\
+https://nytimes.com/2025/04/15/world/asia/santa-finland-rovaniemi.html
+
 **Projecting the 2025-26 Canucks roster: Who stays, who goes?**\
 `With one game left in an odd and disappointing season, let's set the stakes of the offseason by doing our best to project the 2025-26 team.`\
 https://nytimes.com/athletic/6280339/2025/04/15/canucks-roster-2025-26-season-projection/
