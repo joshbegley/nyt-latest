@@ -1,3 +1,11 @@
+**Rangers have fallen behind young teams on the rise — a huge concern for the future**\
+`Watching young stars in Montreal, Ottawa and Columbus in the playoff chase makes the Rangers' hole seem even harder to climb out of.`\
+https://nytimes.com/athletic/6281440/2025/04/15/rangers-east-contenders-rising/
+
+**Tyron Smith to sign a 1-day contract with Cowboys, announce retirement**\
+`Smith made two first-team All-Pro rosters, eight Pro Bowls and the 2010s All-Decade team as a member of the Cowboys. `\
+https://nytimes.com/athletic/6281381/2025/04/15/tyron-smith-dallas-cowboys-retirement/
+
 **What's next for Rory McIlroy? How many more majors can he win this year?**\
 `Can Rory McIlroy complete the single-season grand slam by winning all four majors in 2025? Jason Sobel breaks down the odds and the stats.`\
 https://nytimes.com/athletic/6280784/2025/04/15/rory-mcilroy-2025-grand-slam-betting-odds/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6281368/2025/04/15/johnny-gaudrea-dismiss-charges-d
 **Concern over Maple Leafs' injuries heading into playoffs appears to be growing**\
 `The mood around the Leafs should be positive. But head coach Craig Berube projected the opposite after Tuesday’s morning skate.`\
 https://nytimes.com/athletic/6281328/2025/04/15/maple-leafs-injuries-nhl-playoffs/
-
-**Ligue 1 left without domestic TV deal with DAZN contract to end**\
-`It leaves Ligue 1, Europe’s fifth biggest league in revenue, without a domestic media-rights partner for the second time in five years.`\
-https://nytimes.com/athletic/6281404/2025/04/15/ligue-1-tv-rights-dazn-contract/
-
-**Columbia Vows to Reject Any Trump Deal That Erodes Its Independence**\
-`A message from the university’s acting president said that talks with the Trump administration were continuing as the White House is seeking to place the school under judicial oversight.`\
-https://nytimes.com/2025/04/15/nyregion/columbia-trump-president-response.html
 

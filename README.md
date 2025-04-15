@@ -1,3 +1,11 @@
+**This Therapist Helped Clients Feel Better. It Was A.I.**\
+`In the first clinical trial of its kind, an A.I. chatbot eased mental health symptoms among participants. The technology may someday help solve the provider shortage.`\
+https://nytimes.com/2025/04/15/health/ai-therapist-mental-health.html
+
+**Nico Harrison has 'no regrets' on Dončić trade: 'Defense wins championships'**\
+`Harrison said Tuesday that he has three years remaining on his contract, and he intends to remain in Dallas for the entirety of it.`\
+https://nytimes.com/athletic/6281436/2025/04/15/mavericks-gm-nico-harrison-news-press-conference/
+
 **Rangers have fallen behind young teams on the rise — a huge concern for the future**\
 `Watching young stars in Montreal, Ottawa and Columbus in the playoff chase makes the Rangers' hole seem even harder to climb out of.`\
 https://nytimes.com/athletic/6281440/2025/04/15/rangers-east-contenders-rising/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6281327/2025/04/15/zeev-buium-wild-scratched/
 **A Tax Day Jam Session**\
 `File your 1040 to tunes by Destiny’s Child, Dr. John, Big Tymers and more.`\
 https://nytimes.com/2025/04/15/arts/music/amplifier-newsletter-tax-day-songs.html
-
-**Motion to dismiss charges against man accused of killing Gaudreau brothers denied**\
-`Johnny and Matthew Gaudreau died after being struck by a Jeep while they were bicycling home the night before their sister’s wedding.`\
-https://nytimes.com/athletic/6281368/2025/04/15/johnny-gaudrea-dismiss-charges-denied-trial/
-
-**Concern over Maple Leafs' injuries heading into playoffs appears to be growing**\
-`The mood around the Leafs should be positive. But head coach Craig Berube projected the opposite after Tuesday’s morning skate.`\
-https://nytimes.com/athletic/6281328/2025/04/15/maple-leafs-injuries-nhl-playoffs/
 
