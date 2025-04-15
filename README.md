@@ -1,3 +1,15 @@
+**In Showdowns With the Courts, Trump Is Increasingly Combative**\
+`Scholars say that the Trump administration is now flirting with lawless defiance of court orders, a path with an uncertain end.`\
+https://nytimes.com/2025/04/15/us/politics/trump-defy-courts.html
+
+**‘We Don’t Have a Day or Night of Calm’**\
+`People in the Ukrainian city struck on Palm Sunday have little hope of a cease-fire.`\
+https://nytimes.com/2025/04/15/world/europe/ukraine-sumy-palm-sunday-russia-war.html
+
+**Lincoln Center Summer Festival to Bring Back Some Classical Music**\
+`Summer for the City will feature a dozen productions by the American Modern Opera Company, a Sanskrit epic, a celebration of Brazil and more.`\
+https://nytimes.com/2025/04/15/arts/music/lincoln-center-summer-for-the-city.html
+
 **Tracking Tropical Cyclone Errol**\
 `See the likely path and wind arrival times for Errol.`\
 https://nytimes.com/interactive/2025/04/15/weather/errol-map-path-tracker.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6280692/2025/04/15/nba-power-rankings-thunder-celti
 **Until Saturday: What we learned from Nico drama**\
 `Until Saturday is The Athletic's college football newsletter.`\
 https://nytimes.com/athletic/6280955/2025/04/15/nico-iamaleava-tennessee-holdout-nil-until-saturday/
-
-**Elsa Honig Fine, 94, Dies; Historian Promoted Black and Female Artists**\
-`As the founder of Woman’s Art Journal and the author of influential textbooks, she documented the work of many accomplished artists who had been ignored.`\
-https://nytimes.com/2025/04/15/arts/elsa-honig-fine-dead.html
-
-**Bryce Harper's custom bat reveals sex of next child during plate appearance**\
-`Phillies shortstop Trea Turner helped Harper pull off the surprise with pink and blue bats.`\
-https://nytimes.com/athletic/6280711/2025/04/15/mlb-bryce-harper-baby-gender-reveal-bat/
-
-**Bellingham says UCL remontada 'tailor-made' for Real Madrid**\
-`The Spanish side trail 3-0 following last week's first leg defeat in London but will still believe they can progress to the semi-final stage`\
-https://nytimes.com/athletic/6281050/2025/04/15/bellingham-real-madrid-arsenal-champions-league/
 
