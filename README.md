@@ -1,3 +1,7 @@
+**Top Pentagon Adviser Placed on Leave in Leak Investigation**\
+`Dan Caldwell, who has accompanied Defense Secretary Pete Hegseth to meetings with foreign officials, was escorted from the Pentagon.`\
+https://nytimes.com/2025/04/15/us/politics/pentagon-leak-investigation.html
+
 **Dart apologizes after requesting opponent wears deodorant: ‘She smells really bad’**\
 `Courtside microphones picked up Dart's complaint over her opponent's personal hygiene during a changeover in the second set.`\
 https://nytimes.com/athletic/6282206/2025/04/15/harriet-dart-deodorant-smell-wta-rouen/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/15/us/politics/cia-director-leaked-chat.html
 **Judge Rebukes Trump Administration’s Effort to Return Wrongly Deported Man**\
 `The judge also said she planned to force Trump officials to reveal what they have done behind the scenes to seek the return of the man, Kilmar Armando Abrego Garcia.`\
 https://nytimes.com/2025/04/15/us/trump-abrego-garcia-deported-hearing.html
-
-**Carli Lloyd on Hall of Fame honor: 'I played purely for the love of the game'**\
-`Despite all of her accolades, Lloyd says she was still surprised to get the Hall of Fame honor`\
-https://nytimes.com/athletic/6281956/2025/04/15/carli-lloyd-reflects-uswnt-soccer-hall-of-fame/
 
