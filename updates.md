@@ -1,3 +1,7 @@
+**Why a Tariff-Inflated $2,000 iPhone Is Nothing to Fear**\
+`Even if gadget prices surge, we have plenty of cheaper options, like buying last year’s phone model instead of the latest and greatest.`\
+https://nytimes.com/2025/04/15/technology/personaltech/trump-tariffs-iphone-cost.html
+
 **Santa Lives in Rovaniemi, Finland. Some of His Neighbors Are Not Thrilled.**\
 `A tourist season that stretches from October to March has been anything but jolly for some residents of the “Official Hometown of Santa Claus.”`\
 https://nytimes.com/2025/04/15/world/asia/santa-finland-rovaniemi.html

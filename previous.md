@@ -1,3 +1,7 @@
+**Why a Tariff-Inflated $2,000 iPhone Is Nothing to Fear**\
+`Even if gadget prices surge, we have plenty of cheaper options, like buying last year’s phone model instead of the latest and greatest.`\
+https://nytimes.com/2025/04/15/technology/personaltech/trump-tariffs-iphone-cost.html
+
 **Projecting the 2025-26 Canucks roster: Who stays, who goes?**\
 `With one game left in an odd and disappointing season, let's set the stakes of the offseason by doing our best to project the 2025-26 team.`\
 https://nytimes.com/athletic/6280339/2025/04/15/canucks-roster-2025-26-season-projection/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6280051/2025/04/15/alex-ovechkin-nhl-goals-record-m
 **Fedora Returns to the West Village for an Encore. Again.**\
 `After closing in 2020 following a revival by Gabriel Stulman, it’s now backed by the partners of St. Jardim.`\
 https://nytimes.com/2025/04/15/dining/nyc-restaurant-news.html
-
-**Paige Bueckers and the Importance of Dressing to Impress at the W.N.B.A. Draft**\
-`What 15 draft picks wore to meet fans, their new teammates and — not insignificantly — potential sponsors.`\
-https://nytimes.com/2025/04/15/style/2025-wnba-draft-paige-bueckers-morrow.html
 
