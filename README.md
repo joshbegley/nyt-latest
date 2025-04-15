@@ -1,3 +1,15 @@
+**Dolphins GM says team looking to move Ramsey, not pursuing Hill trade**\
+`Ramsey, 30, has been a seven-time Pro Bowl selection and three-time All-Pro in nine NFL seasons with the Jaguars, Rams and Dolphins.`\
+https://nytimes.com/athletic/6281498/2025/04/15/jalen-ramsey-miami-dolphins-news/
+
+**How Trump Might Unwittingly Cut Emissions From Online Shopping**\
+`Fast fashion retailers rely heavily on shipping by air. The president’s tariffs could change that.`\
+https://nytimes.com/2025/04/15/climate/trump-tariffs-online-shopping.html
+
+**Autopsies of Gaza Medics Killed by Israeli Troops Show Some Were Shot in the Head**\
+`The New York Times obtained autopsy reports for 14 of the 15 people killed in a March 23 attack on an ambulance and fire truck.`\
+https://nytimes.com/2025/04/15/world/middleeast/gaza-medics-autopsies-israel.html
+
 **Arteta insists no Arsenal fear for Madrid trip: 'We will try to win'**\
 `Arsenal won last week's first leg in London 3-0 ahead of the return leg against the competition's record 15-time winners.`\
 https://nytimes.com/athletic/6281603/2025/04/15/arteta-arsenal-real-madrid-champions-league/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6280784/2025/04/15/rory-mcilroy-2025-grand-slam-bet
 **In Milan, an Artist’s Surreal ‘Playhouse’ Filled With Weeping Statues**\
 `Francesco Vezzoli’s apartment and studio are tributes to his lifelong fascination with the Memphis Group design collective.`\
 https://nytimes.com/2025/04/15/t-magazine/francesco-vezzoli-milan-apartment-studio.html
-
-**House Tour | Francesco Vezzoli**\
-`The artist’s apartment and studio in Milan display his large collection of Memphis Group furniture, as well as midcentury vases by the designer and sculptor Giovanni Gariboldi.`\
-https://nytimes.com/video/t-magazine/100000010086077/house-tour-francesco-vezzoli.html
-
-**Canada Conditionally Waives Retaliatory Tariffs on U.S.-Made Cars and Trucks**\
-`Companies that make cars in Canada will be exempted provided they keep up production.`\
-https://nytimes.com/2025/04/15/us/politics/canada-auto-tariffs.html
-
-**Why Zeev Buium won't make his NHL debut for the Wild on Tuesday**\
-`Buium on the decision: "These guys have been through everything with each other. Obviously, the season is on the line. I get it."`\
-https://nytimes.com/athletic/6281327/2025/04/15/zeev-buium-wild-scratched/
 
