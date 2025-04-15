@@ -1,40 +1,40 @@
-**Tatis Jr. expecting to make Dominican national team debut in 2026 WBC**\
-`For Tatis there is only one priority more important than playing for his native country in the sport’s top international tournament.`\
-https://nytimes.com/athletic/6280291/2025/04/15/world-baseball-classic-fernando-tatis-jr/
+**Falcons mock draft mailbag: Lots of edges and corners, plus Mike Green momentum**\
+`We asked for your Falcons mock drafts. You responded with some creative possibilities, and we learned a few things along the way.`\
+https://nytimes.com/athletic/6279149/2025/04/15/falcons-mock-draft-mailbag-mike-green/
 
-**England assistant Veurink to become Netherlands head coach after Euro 2025**\
-`Veurink has prior experience with the Dutch national team, having served as an assistant under Sarina Wiegman from 2017 to 2021.`\
-https://nytimes.com/athletic/6280351/2025/04/15/arjan-veurink-england-netherlands-head-coach/
+**Tom Friedman Thinks We’re Getting China Dangerously Wrong**\
+`The Times Opinion columnist discusses what he thinks Trump — and American policymakers — misunderstand about China in the escalating trade war.`\
+https://nytimes.com/2025/04/15/opinion/ezra-klein-podcast-thomas-friedman.html
 
-**Late Night Weighs In on Trump’s Perfect Physical**\
-`“The doctor said Trump’s BMI is 28,” Jimmy Kimmel said. “Right, and so is his next wife, by the way.”`\
-https://nytimes.com/2025/04/15/arts/television/late-night-trump-physical.html
+**Recent draft whiffs put pressure on Cowboys' 2025 class to shape the present, future**\
+`The Cowboys' 2023 draft class has left a lot to be desired and that class's best player, DeMarvion Overshown, suffered two major injuries.`\
+https://nytimes.com/athletic/6276613/2025/04/15/cowboys-nfl-draft-misses-2025-class/
 
-**Spring Break**\
-`How would you spend your dream spring vacation?`\
-https://nytimes.com/2025/04/15/learning/spring-break.html
+**Inside Trump’s Plan to Deregulate America**\
+`The Trump administration wants to get rid of rules that affect health, food, workplace safety, transportation and more.`\
+https://nytimes.com/video/us/politics/100000010108652/inside-trumps-plan-to-deregulate-america.html
 
-**Harvey Weinstein, Facing New Charge, Returns to Court in New York**\
-`The disgraced Hollywood producer will face a new trial for sex crimes in New York after a previous conviction was reversed last year.`\
-https://nytimes.com/2025/04/15/nyregion/harvey-weinstein-trial-new-york.html
+**For Idyllic Village, Van Gogh’s Roots Pose a Knotty Problem**\
+`It was recently determined that the artist painted his last work, “Tree Roots,” in Auvers-sur-Oise. The roots still exist, and that has ignited a nasty fight over their preservation.`\
+https://nytimes.com/2025/04/15/world/europe/for-idyllic-village-van-goghs-roots-pose-a-knotty-problem.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/04/15/crosswords/spelling-bee-forum.html
+**Colts and 'The Beast': Dream picks, sleepers, fun facts about Indy's potential draft targets**\
+`"The Beast" reveals more about potential NFL draft targets for the Colts.`\
+https://nytimes.com/athletic/6279465/2025/04/15/indianapolis-colts-the-beast-nfl-draft-2025/
 
-**'He's gotten a lot better': Dustin May's return to Dodgers makes for a great story**\
-`May defeated the Rockies for his first major league win in 709 days. “It’s huge just to be able to go out and pitch,” he said.`\
-https://nytimes.com/athletic/6280266/2025/04/15/dodgers-dustin-may/
+**Debbie Millman and Roxane Gay on Pink Elephants and Gardening**\
+`Enter the L.A. Home They Have Turned Into a Gallery`\
+https://nytimes.com/interactive/2025/04/15/realestate/roxane-gay-debbie-millman-home.html
 
-**How the Cubs plan to regroup without Justin Steele**\
-`There are some encouraging signs after the Cubs made pitching depth a top offseason priority, constantly thinking about what could go wrong.`\
-https://nytimes.com/athletic/6280203/2025/04/15/cubs-plan-without-justin-steele/
+**Tom Friedman Thinks We’re Getting China Dangerously Wrong**\
+`The Times Opinion columnist discusses what he thinks Trump — and American policymakers — misunderstand about China in the escalating trade war.`\
+https://nytimes.com/video/opinion/100000010106387/tom-friedman-thinks-were-getting-china-dangerously-wrong.html
 
-**What I'm hearing about Tom Willander and the Canucks: 3 takeaways**\
-`There's a well-established hiccup in the negotiations. Meanwhile, Quinn Hughes made history Monday.`\
-https://nytimes.com/athletic/6280005/2025/04/15/vancouver-canucks-tom-willander-quinn-hughes/
+**Housewares Retailers Brace for Tariffs**\
+`Consumers may be unwilling to pay more for pottery, pillows and the other stuff that makes homes feel homey, leaving home décor store owners worried.`\
+https://nytimes.com/2025/04/15/realestate/housewares-home-decor-retailers-tariffs.html
 
-**Word of the Day: invective**\
-`This word has appeared in 64 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/04/15/learning/word-of-the-day-invective.html
+**What Is Your Favorite Poem?**\
+`In honor of National Poetry Month, tell us about that poem and what it means to you.`\
+https://nytimes.com/2025/04/15/learning/what-is-your-favorite-poem.html
 
