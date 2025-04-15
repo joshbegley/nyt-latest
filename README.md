@@ -1,3 +1,7 @@
+**Vikings mailbag: Submit your 2025 NFL Draft questions for reporter Alec Lewis**\
+`Fewer than 10 days remain until the 2025 NFL Draft. The Vikings don't have any glaring needs, so what will they do with their four picks?`\
+https://nytimes.com/athletic/6282035/2025/04/15/vikings-2025-nfl-draft-mailbag/
+
 **The Briefing: Villa 3 PSG 2 (4-5 agg) - Comeback win not quite enough for Emery's side in Champions League classic**\
 `Analysis of Tuesday's dramatic Champions League quarter-final second leg at Villa Park`\
 https://nytimes.com/athletic/6278131/2025/04/15/aston-villa-paris-saint-germain-champions-league-analysis/
@@ -31,10 +35,6 @@ https://nytimes.com/athletic/6281124/2025/04/15/bulls-heat-nba-play-in-tournamen
 https://nytimes.com/newsgraphics/card-story/wc-surprising-mascara-tips
 
 **This Isn’t the First Time Trump Has Mistakenly Deported Someone**\
-`President Trump says he is powerless to retrieve a Salvadoran man who was deported because of an administrative error. But he has done so before.`\
+`President Trump says he is powerless to retrieve a man who was deported because of an administrative error. But he has done so before.`\
 https://nytimes.com/2025/04/15/us/politics/trump-deportation-maryland-man.html
-
-**19 Big Cats Rescued in Spain as Police Raid Animal Smuggling Ring**\
-`With a demand for exotic felines on the rise, often driven by social media, endangered and protected populations are under even more threat.`\
-https://nytimes.com/2025/04/15/world/europe/spain-big-cats-smuggling.html
 
