@@ -1,3 +1,11 @@
+**Trump Turned Up the Pressure on Harvard**\
+`Also, the I.R.S. is downsizing. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/04/15/briefing/trump-harvard-tax-status-irs-resignations.html
+
+**A.I. Action Figures Flood Social Media (Accessories Included)**\
+`Amid the rush to take part in a recent trend, some artists, concerned about the use of ChatGPT, are hand-drawing their own versions.`\
+https://nytimes.com/2025/04/15/style/ai-barbie-dolls-action-figures.html
+
 **Yankees' Aaron Judge responds to Juan Soto's pitching comments**\
 `"He just needs to keep being himself. He's going to be just fine," Judge said about Soto.`\
 https://nytimes.com/athletic/6281842/2025/04/15/yankees-aaron-judge-responds-juan-soto-pitching-comments/
