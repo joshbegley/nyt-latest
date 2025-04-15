@@ -1,3 +1,7 @@
+**'He's gotten a lot better': Dustin May's return to Dodgers makes for a great story**\
+`May defeated the Rockies for his first major league win in 709 days. “It’s huge just to be able to go out and pitch,” he said.`\
+https://nytimes.com/athletic/6280266/2025/04/15/dodgers-dustin-may/
+
 **How the Cubs plan to regroup without Justin Steele**\
 `There are some encouraging signs after the Cubs made pitching depth a top offseason priority, constantly thinking about what could go wrong.`\
 https://nytimes.com/athletic/6280203/2025/04/15/cubs-plan-without-justin-steele/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/15/opinion/denmark-vance-trump-nato.html
 **Vance Fumbles College Football Championship Trophy**\
 `Vice President JD Vance attempted to lift college football’s biggest prize but dropped the base as players for the Ohio State Buckeyes secured the trophy.`\
 https://nytimes.com/video/us/politics/100000010110965/jd-vance-ohio-state-football-trophy.html
-
-**Selhurst Park redevelopment latest: A new option on the table but costs could edge beyond £200m**\
-`The club remains committed to redeveloping their home of over a century despite delays and rising costs`\
-https://nytimes.com/athletic/6274627/2025/04/15/selhurst-park-redevelopment-crystal-palace/
 

@@ -1,3 +1,7 @@
+**'He's gotten a lot better': Dustin May's return to Dodgers makes for a great story**\
+`May defeated the Rockies for his first major league win in 709 days. “It’s huge just to be able to go out and pitch,” he said.`\
+https://nytimes.com/athletic/6280266/2025/04/15/dodgers-dustin-may/
+
 **How the Cubs plan to regroup without Justin Steele**\
 `There are some encouraging signs after the Cubs made pitching depth a top offseason priority, constantly thinking about what could go wrong.`\
 https://nytimes.com/athletic/6280203/2025/04/15/cubs-plan-without-justin-steele/
