@@ -1,3 +1,7 @@
+**Top Pentagon Adviser Placed on Leave in Leak Investigation**\
+`Dan Caldwell, who has accompanied Defense Secretary Pete Hegseth to meetings with foreign officials, was escorted from the Pentagon.`\
+https://nytimes.com/2025/04/15/us/politics/pentagon-leak-investigation.html
+
 **Dart apologizes after requesting opponent wears deodorant: ‘She smells really bad’**\
 `Courtside microphones picked up Dart's complaint over her opponent's personal hygiene during a changeover in the second set.`\
 https://nytimes.com/athletic/6282206/2025/04/15/harriet-dart-deodorant-smell-wta-rouen/
