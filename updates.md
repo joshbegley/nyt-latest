@@ -1,3 +1,15 @@
+**If the Signal Chat Bothered You, Recall Andrew Cuomo’s Talent for Secrecy**\
+`Like the Signal chat participants, Cuomo never seemed to think much was wrong with hiding internal government messaging from the public.`\
+https://nytimes.com/live/2025/04/07/opinion/thepoint/andrew-cuomo-secrecy-signal
+
+**Examining trophy mishaps after Vance drops CFP award during Buckeyes' visit**\
+`There have been a fair few college and non-college trophy calamities. Here's an overview of those mishaps.`\
+https://nytimes.com/athletic/6280658/2025/04/15/jd-vance-ohio-state-cfb-championship-trophy/
+
+**Fans of ‘The Great Moose Migration’ Prep for a Weekslong Binge Watch**\
+`The popular annual livestream that follows the migration of Sweden’s moose population began on Tuesday.`\
+https://nytimes.com/video/world/europe/100000010111457/moose-migration-sweden-livestream.html
+
 **Mbappe handed one-game La Liga ban after Alaves red card**\
 `Mbappe was shown a straight red card at Alaves for his lunge on Alaves midfielder Antonio Blanco.`\
 https://nytimes.com/athletic/6277825/2025/04/15/kylian-mbappe-suspension-real-madrid/
