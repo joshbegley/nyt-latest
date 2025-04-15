@@ -1,3 +1,7 @@
+**Weekly Student News Quiz: Tariffs, Roof Collapse, 'A Minecraft Movie'**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/04/15/learning/15StudentNewsQuiz.html
+
 **Ivan Demidov needed one period to show how he can benefit Canadiens in present and future**\
 `Demidov's debut was more impactful than the Canadiens could have hoped, and should they reach the playoffs, he will make a difference.`\
 https://nytimes.com/athletic/6280303/2025/04/15/ivan-demidov-canadiens-nhl-blackhawks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6279466/2025/04/15/spring-transfer-portal-window-co
 **How the Flames gave themselves a chance to shock the NHL, and what comes next: Catching up with Craig Conroy**\
 `If the Flames win their final two games and get some help from the Blues or Wild, they can complete an improbable run to the playoffs.`\
 https://nytimes.com/athletic/6279710/2025/04/15/flames-nhl-playoffs-craig-conroy/
-
-**A war of words adds fuel to upcoming Oilers-Kings series**\
-`A night of bad blood added a little more juice to the imminent playoff matchup — not that it needed it.`\
-https://nytimes.com/athletic/6280292/2025/04/15/oilers-kings-playoffs-war-of-words/
 
