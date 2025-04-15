@@ -1,3 +1,11 @@
+**Buchanan signs Chelsea contract extension**\
+`The Canada international, 29, has won two Women's Super League titles in her two seasons at the club.`\
+https://nytimes.com/athletic/6280638/2025/04/15/kadeisha-buchanan-chelsea-contract-new/
+
+**Elegantly Swaddled in Neutral Shades**\
+`An ensemble of soft garments exuded cozy sophistication.`\
+https://nytimes.com/2025/04/15/style/street-style-look-beige-tonal-outfit.html
+
 **Bartrip: Lacking energy in games was 'reality check' in dealing with anorexia**\
 `Bartrip spoke about her experiences with mental health issues, after she was diagnosed with anorexia at the age of 14.`\
 https://nytimes.com/athletic/6280532/2025/04/15/molly-bartrip-tottenham-mental-health/
