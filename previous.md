@@ -1,3 +1,11 @@
+**After another embarrassing loss, it's fair to wonder what's wrong with the Red Sox**\
+`Crochet's gem on Sunday was supposed to give the Red Sox momentum. Instead, they fell flat in a 16-1 drubbing in Tampa.`\
+https://nytimes.com/athletic/6280008/2025/04/14/red-sox-early-season-struggles/
+
+**Missing Rotor Is Recovered From Site of Helicopter Crash in Hudson River**\
+`The aircraft was on a sightseeing flight when it suddenly broke apart in midair, its rotor blades falling separately toward the water.`\
+https://nytimes.com/2025/04/14/nyregion/nyc-helicopter-crash-rotor-hudson.html
+
 **Cal RB Jaydn Ott enters transfer portal**\
 `The move comes four months after Ott announced his return to Berkeley for his senior season.`\
 https://nytimes.com/athletic/6279923/2025/04/14/jaydn-ott-transfer-portal-cal/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/04/07/opinion/thepoint/harvard-trump-administratio
 **Harvard’s Decision to Resist Trump is ‘of Momentous Significance’**\
 `But a fight with the nation’s oldest, richest and most elite university is a battle that President Trump and his powerful aide, Stephen Miller, want to have.`\
 https://nytimes.com/2025/04/14/us/politics/harvard-trump.html
-
-**Nolan Arenado said no to Astros after Kyle Tucker trade made him 'a little uncomfortable'**\
-`"When you see a team trade (Tucker), 99 out of 100 players would probably be wondering, ‘What does that mean?’"`\
-https://nytimes.com/athletic/6279726/2025/04/14/astros-nolan-arenado-trade-veto-kyle-tucker/
-
-**Shedeur Sanders to take part in private workout with Giants: Sources**\
-`The Giants hold the No. 3 pick in next week's NFL Draft and have already added two veteran quarterbacks this offseason.`\
-https://nytimes.com/athletic/6279682/2025/04/14/shedeur-sanders-giants-workout-nfl-draft/
 
