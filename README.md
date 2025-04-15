@@ -1,4 +1,8 @@
-**Caitlin Clark, Fever's exhibition game in Iowa to be broadcast on ESPN: Sources**\
+**Paige Bueckers and the Importance of Dressing to Impress at the W.N.B.A. Draft**\
+`What 15 draft picks wore to meet fans, their new teammates and — not insignificantly — potential sponsors.`\
+https://nytimes.com/2025/04/15/style/2025-wnba-draft-paige-bueckers-morrow.html
+
+**Caitlin Clark, Fever's exhibition game in Iowa to be broadcast on ESPN**\
 `It is the first nationally televised WNBA preseason game on ESPN.`\
 https://nytimes.com/athletic/6280881/2025/04/15/caitlin-clark-fever-iowa-espn/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/15/world/europe/france-prison-attacks.html
 **Stocks Edge Higher as Investors Assess Tariff Scenarios**\
 `The Trump administration’s chaotic tariff rollout continues to spur volatility in the markets.`\
 https://nytimes.com/2025/04/15/business/stocks-bonds-dollar-markets-tariffs.html
-
-**gws-agility-workout-aging**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/agility-workout-aging
 
