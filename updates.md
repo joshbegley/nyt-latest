@@ -1,3 +1,11 @@
+**Zuckerberg Says He Bought Instagram and WhatsApp Because Building Apps Is Hard**\
+`The Meta chief executive, testifying in a landmark antitrust trial, evaded questions about whether he was trying to snuff out competitive threats.`\
+https://nytimes.com/2025/04/15/technology/meta-antitrust-trial-mark-zuckerberg.html
+
+**Marvin Levy, Oscar-Winning Publicist to Spielberg, Dies at 96**\
+`For 42 years, Mr. Levy strategized behind the scenes to promote Steven Spielberg’s movies and ensure that the director was seen as Hollywood’s de facto head of state.`\
+https://nytimes.com/2025/04/15/business/media/marvin-levy-dead.html
+
 **Two Defiant Presidents vs. a Deported Immigrant**\
 `Readers discuss the case of the immigrant wrongly deported to El Salvador. Also: Harvard’s battle against President Trump.`\
 https://nytimes.com/2025/04/15/opinion/deported-immigrant-el-salvador.html
