@@ -1,4 +1,8 @@
 **After another embarrassing loss, it's fair to wonder what's wrong with the Red Sox**\
+`Garrett Crochet's gem on Sunday was supposed to give the Red Sox momentum. Instead, they fell flat in a 16-1 drubbing in Tampa.`\
+https://nytimes.com/athletic/6280008/2025/04/14/red-sox-early-season-struggles/
+
+**After another embarrassing loss, it's fair to wonder what's wrong with the Red Sox**\
 `Crochet's gem on Sunday was supposed to give the Red Sox momentum. Instead, they fell flat in a 16-1 drubbing in Tampa.`\
 https://nytimes.com/athletic/6280008/2025/04/14/red-sox-early-season-struggles/
 
