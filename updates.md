@@ -1,3 +1,11 @@
+**FIFA, Infantino's U.S. Club World Cup tour is a grand indicator**\
+`FIFA's president has been making the rounds, underscoring the significance of this summer, the U.S. market – and the work needed to be done`\
+https://nytimes.com/athletic/6280009/2025/04/15/fifa-gianni-infantino-club-world-cup-usa-tour/
+
+**NBA Power Rankings: Final grades are in as the race to the finals begins**\
+`Which teams are feeling good going into the playoffs, and which ones are simply glad the season is over?`\
+https://nytimes.com/athletic/6280692/2025/04/15/nba-power-rankings-thunder-celtics-cavaliers-lakers/
+
 **Until Saturday: What we learned from Nico drama**\
 `Until Saturday is The Athletic's college football newsletter.`\
 https://nytimes.com/athletic/6280955/2025/04/15/nico-iamaleava-tennessee-holdout-nil-until-saturday/
