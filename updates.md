@@ -1,3 +1,19 @@
+**How to Solve the Iran Problem**\
+`An olive branch is easier to accept when it is offered from the tip of a sword.`\
+https://nytimes.com/2025/04/15/opinion/iran-trump-nuclear-deal.html
+
+**U.S. Cites Mideast Peace Process to Justify Move to Deport Student**\
+`Mohsen Mahdawi, who led Columbia protests, engaged in activities that could threaten attempts to end the war in Gaza, a memo from Secretary of State Marco Rubio said.`\
+https://nytimes.com/2025/04/15/nyregion/rubio-mahdawi-deportation-letter.html
+
+**Richard L. Armitage, 79, Dies; State Department Official in a Turbulent Era**\
+`While serving as Colin Powell’s deputy during the Iraq war, he found himself at the center of a scandal when he leaked a C.I.A. operative’s name.`\
+https://nytimes.com/2025/04/15/us/politics/richard-l-armitage-dead.html
+
+**Our 17 Most Lemony Recipes**\
+`Pucker up, buttercup.`\
+https://nytimes.com/2025/04/15/dining/lemon-recipes.html
+
 **Bo Bichette, Nick Lodolo among ideal trade targets in fantasy baseball right now**\
 `Michael Salfino looks at players with better expected stats than actual stats who are prime targets via a trade or the waiver wire.`\
 https://nytimes.com/athletic/6281612/2025/04/15/fantasy-baseball-2025-top-trade-targets/
