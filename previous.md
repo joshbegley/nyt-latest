@@ -1,3 +1,19 @@
+**Bo Bichette, Nick Lodolo among ideal trade targets in fantasy baseball right now**\
+`Michael Salfino looks at players with better expected stats than actual stats who are prime targets via a trade or the waiver wire.`\
+https://nytimes.com/athletic/6281612/2025/04/15/fantasy-baseball-2025-top-trade-targets/
+
+**How to watch Mariners at Reds: Both enter on winning runs behind strong pitching**\
+`The Mariners go on the road to face the Reds in a three-game series running Tuesday through Thursday. `\
+https://nytimes.com/athletic/6281653/2025/04/15/mariners-reds-mlb-how-to-watch/
+
+**Sperm Donors in the Netherlands Fathered More Than 25 Children Each, New Data Reveals**\
+`The numbers raise concerns about the risk of genetic anomalies as those children eventually seek partners and give birth.`\
+https://nytimes.com/2025/04/15/world/europe/dutch-sperm-donors-netherlands-children.html
+
+**It Took a Century to Find This Colossal Squid**\
+`An expedition spotted a juvenile of the species in the South Sandwich Islands. This cephalopod can grow to more than 20 feet and has proved elusive in its deep-sea environs.`\
+https://nytimes.com/2025/04/15/science/squid-colossal-deep-sea-exploration.html
+
 **Prime Tire: An F1 driver of the day quibble. Plus: Early championship standings takeaways**\
 `Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
 https://nytimes.com/athletic/6281644/2025/04/15/f1-bahrain-grand-prix-prime-tire/
@@ -21,20 +37,4 @@ https://nytimes.com/article/met-gala-2025-theme-hosts-watch.html
 **As the Border Wars Recede, a Park on the Rio Grande Reopens to the Public**\
 `Shelby Park in Eagle Pass, Texas, was a backdrop for immigration fights during the Biden administration, but as the battle has moved inland some of the state’s troops have decamped.`\
 https://nytimes.com/2025/04/15/us/eagle-pass-texas-shelby-park-immigration.html
-
-**Our Best Cabbage Recipes**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/best-cabbage-recipes
-
-**Palin Libel Retrial Against The New York Times Begins**\
-`In opening statements, lawyers for Sarah Palin and The Times each presented arguments on whether the editorial board had published a statement knowing it was false.`\
-https://nytimes.com/2025/04/15/business/media/sarah-palin-new-york-times-trial.html
-
-**Hilary Knight breaks assist record at IIHF Women's World Championship**\
-`After three assists against Switzerland on Tuesday, Knight stands alone at the top with 50 career assists at women’s worlds.`\
-https://nytimes.com/athletic/6281641/2025/04/15/hilary-knight-assist-record-womens-world-championship/
-
-**Premier League amends PSR rules amid Leicester dispute**\
-`The league's handbook was updated last week after the decision was made to tighten the language around PSR.`\
-https://nytimes.com/athletic/6281172/2025/04/15/premier-league-psr-leicester/
 
