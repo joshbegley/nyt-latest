@@ -1,3 +1,7 @@
+**Wild clinch playoff spot, give Fleury one more appearance — will play Golden Knights in first round**\
+`Minnesota earned the top wild card in the West and will face the Pacific champs. The series is expected to start in Las Vegas on Sunday.`\
+https://nytimes.com/athletic/6282767/2025/04/15/wild-fleury-nhl-playoffs-golden-knights/
+
 **Kareem Abdul-Jabbar speaks out on anti-DEI policies on Jackie Robinson Day**\
 `The Lakers legend joined players from the Dodgers and Rockies in front of Dodger Stadium on Tuesday.`\
 https://nytimes.com/athletic/6282515/2025/04/15/jackie-robinson-day-kareem-abdul-jabbar-dodgers/

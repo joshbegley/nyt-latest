@@ -1,5 +1,9 @@
-**Wild clinch playoff spot, give Fleury one more appearance — will play Golden Knights in first round**\
-`Minnesota earned the top wild card in the West and will face the Pacific champs. The series is expected to start in Las Vegas on Sunday.`\
+**Marner hits 100 for the first time in his career: 'It's a special thing, for sure'**\
+`After twice coming agonizingly close, Marner finally topped 100 points in the Leafs' penultimate game of the season.`\
+https://nytimes.com/athletic/6282733/2025/04/15/mitch-marner-100-points-maple-leafs/
+
+**Wild clinch playoff spot, will play Golden Knights — as Fleury earns one last victory**\
+`Minnesota earned the top wild card in the West and will face the Pacific champs. The series is expected to start Sunday in Las Vegas.`\
 https://nytimes.com/athletic/6282767/2025/04/15/wild-fleury-nhl-playoffs-golden-knights/
 
 **Kareem Abdul-Jabbar speaks out on anti-DEI policies on Jackie Robinson Day**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/15/us/politics/marjorie-taylor-greene-protesters.htm
 **China Girds for Economic Stress of Trump’s Tariffs**\
 `The economy grew steadily from January through March, but U.S. tariffs pose a risk for China in the coming weeks and months.`\
 https://nytimes.com/2025/04/15/business/china-economy-gdp-q1.html
-
-**Damage, So to Speak**\
-`Life may flash before your eyes as you solve Kathy Bloomer’s puzzle.`\
-https://nytimes.com/2025/04/15/crosswords/daily-puzzle-2025-04-16.html
 
