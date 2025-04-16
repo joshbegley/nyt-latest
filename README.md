@@ -1,3 +1,11 @@
+**Hong Kong Suspends Packages to the U.S., Wading Into the Trade War**\
+`The move comes before President Trump’s planned imposition of new tariffs on small packages sent to the United States from Hong Kong and China.`\
+https://nytimes.com/2025/04/15/business/hong-kong-post-trade-war.html
+
+**Carlos Correa, Matt Wallner exit Tuesday's game with injuries in latest blow to Twins**\
+`The injuries are the latest obstacle for the Twins, who entered Tuesday at 5-12, tied for the worst start in franchise history.`\
+https://nytimes.com/athletic/6282544/2025/04/15/carlos-correa-matt-wallner-injuries-twins-mets/
+
 **Battle of Ontario is set — a 'goosebumps' series, even for those on the wrong side: 'Best games of my life'**\
 `Patrick Lalime was involved in all four memorable series between the Senators and Maple Leafs, as the losing goalie in the last three.`\
 https://nytimes.com/athletic/6275929/2025/04/15/patrick-lalime-maple-leafs-senators/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/15/arts/television/wink-martindale-dead.html
 **What Trump’s Meeting With Bukele Means**\
 `President Nayib Bukele of El Salvador has found a spot on the global stage by opening the doors of his prison system to President Trump.`\
 https://nytimes.com/video/us/politics/100000010110423/what-trumps-meeting-with-bukele-means.html
-
-**4 Injured in Dallas School Shooting, Authorities Say**\
-`Three students were wounded by gunfire and a fourth also was injured when gunfire erupted at Wilmer-Hutchins High School on Tuesday afternoon, officials said.`\
-https://nytimes.com/2025/04/15/us/dallas-school-shooting-wilmer-hutchins.html
-
-**Trump picks a Hunter Biden whistle-blower to temporarily lead the I.R.S.**\
-`Gary Shapley is a veteran I.R.S. agent who raised concerns that the tax investigation into Hunter Biden was being slow-walked.`\
-https://nytimes.com/live/2025/04/15/us/trump-news/trump-picks-a-hunter-biden-whistle-blower-to-temporarily-lead-the-irs
 

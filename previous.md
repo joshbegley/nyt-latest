@@ -1,3 +1,7 @@
+**Battle of Ontario is set — a 'goosebumps' series, even for those on the wrong side: 'Best games of my life'**\
+`Patrick Lalime was involved in all four memorable series between the Senators and Maple Leafs, as the losing goalie in the last three.`\
+https://nytimes.com/athletic/6275929/2025/04/15/patrick-lalime-maple-leafs-senators/
+
 **Corrections: April 16, 2025**\
 `Corrections that appeared in print on Wednesday, April 16, 2025.`\
 https://nytimes.com/2025/04/15/pageoneplus/corrections-april-16-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/15/us/dallas-school-shooting-wilmer-hutchins.html
 **Trump picks a Hunter Biden whistle-blower to temporarily lead the I.R.S.**\
 `Gary Shapley is a veteran I.R.S. agent who raised concerns that the tax investigation into Hunter Biden was being slow-walked.`\
 https://nytimes.com/live/2025/04/15/us/trump-news/trump-picks-a-hunter-biden-whistle-blower-to-temporarily-lead-the-irs
-
-**Trump Gives Conflicting Signals and Mixed Messages on Iran Nuclear Talks**\
-`The Trump administration started with an simple goal: Make Iran dismantle its nuclear and missile programs. Then its top negotiator started softening his tone, and had to retreat.`\
-https://nytimes.com/2025/04/15/us/politics/trump-iran-nuclear-negotations.html
 
