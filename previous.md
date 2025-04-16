@@ -1,3 +1,7 @@
+**F1 mailbag: Where is Lando Norris' 'killer instinct'? And ranking the rookies so far**\
+`Before we get into the new race weekend, we answered a few of your questions for our post-Bahrain GP mailbag.`\
+https://nytimes.com/athletic/6281780/2025/04/16/f1-mailbag-lando-norris-mclaren-red-bull-haas/
+
 **Police Tase Hecklers at Marjorie Taylor Greene Town Hall**\
 `Protesters booed and shouted at the Georgia representative, prompting police to forcibly remove several people. Three were arrested, two of whom were subdued with stun guns.`\
 https://nytimes.com/video/us/politics/100000010113250/police-tase-hecklers-at-marjorie-taylor-greene-town-hall.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6279437/2025/04/16/blues-unlikely-nhl-playoffs-come
 **'That felt so good': Cole Anthony propels his Magic teammates to the playoffs**\
 `Orlando's fifth-year guard has endured a rocky season. But in an East Play-In game, he made a huge difference.`\
 https://nytimes.com/athletic/6283101/2025/04/16/orlando-magic-cole-anthony-nba-playoffs/
-
-**FIFA eyes Las Vegas for 2026 World Cup draw – as it did for 1994**\
-`Las Vegas is FIFA's preferred destination – if a venue can be found among likely Mariah Carey concerts and the National Finals Rodeo`\
-https://nytimes.com/athletic/6281620/2025/04/16/2026-world-cup-draw-las-vegas-host-fifa/
 

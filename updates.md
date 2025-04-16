@@ -1,3 +1,7 @@
+**F1 mailbag: Where is Lando Norris' 'killer instinct'? And ranking the rookies so far**\
+`Before we get into the new race weekend, we answered a few of your questions for our post-Bahrain GP mailbag.`\
+https://nytimes.com/athletic/6281780/2025/04/16/f1-mailbag-lando-norris-mclaren-red-bull-haas/
+
 **Police Tase Hecklers at Marjorie Taylor Greene Town Hall**\
 `Protesters booed and shouted at the Georgia representative, prompting police to forcibly remove several people. Three were arrested, two of whom were subdued with stun guns.`\
 https://nytimes.com/video/us/politics/100000010113250/police-tase-hecklers-at-marjorie-taylor-greene-town-hall.html
