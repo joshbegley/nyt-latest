@@ -1,40 +1,40 @@
-**Capybaras Make Posh Argentine Neighborhood Their Home**\
-`Over the past two years, biologists estimate the capybara population has tripled to nearly 1,000 in this gated community in Argentina.`\
-https://nytimes.com/video/world/americas/100000010107341/capybaras-argentina-neighborhood.html
+**The Briefing: Inter 2 Bayern Munich 2 (4-3 agg) - Lautaro an inspiration as Inzaghi's side weather the storm**\
+`These sides traded second-half blows in a blustery San Siro with the hosts eventually booking themselves a semi-final against Barcelona`\
+https://nytimes.com/athletic/6278172/2025/04/16/inter-bayern-munich-lautaro-inzaghi-kane-dier/
 
-**Six candidates for Bruins’ full-time coach: David Carle? Jay Leach? Marco Sturm?**\
-`Current interim coach Joe Sacco will be under consideration to see what he could do with a better roster than he had this season.`\
-https://nytimes.com/athletic/6284784/2025/04/16/bruins-coaching-candidates-sacco-carle/
+**Thursday Briefing: A Judge’s Pushback Against Trump**\
+`Plus, a look at the Grand Egyptian Museum.`\
+https://nytimes.com/2025/04/16/briefing/trump-contempt-chipmakers-trade-war-israel-gaza-escalation.html
 
-**Kennedy Calls Autism ‘Preventable,’ Drawing Ire From Researchers**\
-`The health secretary said he would prioritize studies into environmental causes while harshly discounting other factors scientists say are likely contributing to rising rates of the condition.`\
-https://nytimes.com/2025/04/16/us/politics/rfk-jr-autism.html
+**It’s Time to Protect America From America’s President**\
+`Trump’s authoritarian actions are vandalizing the American project.`\
+https://nytimes.com/2025/04/16/opinion/trump-harvard-abrego-garcia.html
 
-**Umpire Hunter Wendelstedt struck in head by batted ball during Mets-Twins game**\
-`Wendelstedt lay on the ground while being tended to by the Minnesota training staff but was able to walk off under his own power.`\
-https://nytimes.com/athletic/6284895/2025/04/16/umpire-hunter-wendelstedt-hit-ball/
+**Fed Chair Says Trump Tariffs Could Worsen Inflation**\
+`Jerome H. Powell, the chair of the Federal Reserve, stressed that the tariffs announced so far go well beyond what the Fed had expected even in its worst-case scenario.`\
+https://nytimes.com/video/business/economy/100000010114757/powell-trump-tariffs-inflation.html
 
-**Facing Confirmation Fight, Trump-Allied Prosecutor Hires ‘Smashmouth Politician’**\
-`Ed Martin, the interim U.S. attorney in Washington criticized for using his office to target President Trump’s critics, has enlisted the longtime Trump ally Michael R. Caputo as an adviser.`\
-https://nytimes.com/2025/04/16/us/politics/martin-caputo-prosecutor-confirmation.html
+**Maryland Senator Visits El Salvador to Check on Deported Man**\
+`Senator Chris Van Hollen, Democrat of Maryland, said that the Salvadoran vice president told him the U.S. government is paying his country to keep Kilmar Armando Abrego Garcia, a Salvadoran immigrant and Maryland resident, in the nation’s maximum security prison.`\
+https://nytimes.com/video/us/politics/100000010114617/maryland-van-hollen-el-salvador-garcia.html
 
-**Long lines and record sales for LeBron James Ken doll**\
-`Some fans waited in line for two days in order to secure one of the first dolls made available`\
-https://nytimes.com/athletic/6284618/2025/04/16/lebron-james-ken-doll-barbie-sales/
+**Nico Iamaleava expected to transfer to UCLA after departure from Tennessee: Source**\
+`Iamaleava officially entered the transfer portal Wednesday with a “do not contact" label.`\
+https://nytimes.com/athletic/6285117/2025/04/16/nico-iamaleava-ucla-tennessee-transfer/
 
-**Adams Cancels Preschool Cuts as Child Care Emerges as Election Issue**\
-`Mayor Eric Adams reversed $167 million in cuts to preschool programs, as some of his rivals in the competitive New York City mayor’s race criticize him for doing too little to help families.`\
-https://nytimes.com/2025/04/16/nyregion/new-york-child-care-costs-adams.html
+**What consensus NFL 2025 mock draft landing spots would mean for fantasy football rookies**\
+`If the consensus of industry mock drafts were to become a reality, what would it mean for fantasy football? Michael Salfino breaks it down.`\
+https://nytimes.com/athletic/6284633/2025/04/16/nfl-draft-mock-consensus-fantasy-football-rookies/
 
-**Andrew A. Beveridge, Who Found the Unexpected in Census Data, Dies at 79**\
-`With his own research group and as a professor at Queens College, he plumbed raw data for often-surprising insights about the way the country was changing.`\
-https://nytimes.com/2025/04/16/us/politics/andrew-a-beveridge-dead.html
+**Ontario Premier Orders Review of Major Toronto Waterfront Lease**\
+`Doug Ford said he had asked his government to look into the contract that granted a 95-year lease to a European wellness company following a New York Times investigation into the deal.`\
+https://nytimes.com/2025/04/16/world/canada/toronto-spa-therme-lease.html
 
-**Trump Administration Directs Judges to Deny Asylum Without Hearings**\
-`A directive from the Justice Department, which says the move is intended to reduce a backlog in immigration court, would result in rapid deportation orders in many cases.`\
-https://nytimes.com/2025/04/16/us/immigration-asylum-judges-policy.html
+**De Bruyne: Inter Miami, Chicago, NYCFC, DC interested in midfielder**\
+`The chase to land De Bruyne appears to be heating up around Major League Soccer.`\
+https://nytimes.com/athletic/6284674/2025/04/16/kevin-de-bruyne-mls-manchester-city/
 
-**Trump Administration Announces Lawsuit Against Maine**\
-`Attorney General Pam Bondi announced the Trump administration’s plan to sue Maine over policies that allow some transgender athletes to compete in women’s sports.`\
-https://nytimes.com/video/us/politics/100000010114219/pam-bondi-maine-transgender-athletes.html
+**The A.P. Says White House Is Defying Court Order to Restore Its Access**\
+`The wire service on Wednesday accused The White House of continuing to bar its reporters from the press pool despite a judge’s order that called the restriction a violation of the First Amendment.`\
+https://nytimes.com/2025/04/16/us/politics/trump-ap-white-house-access.html
 

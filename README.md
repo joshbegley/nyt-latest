@@ -1,3 +1,7 @@
+**Giants GM: Drafting a QB 'not mandatory. We don't have our feet to the fire'**\
+`Schoen won't force a pick at QB. "When you’re in position to get the right one at the right time, then you pull the trigger."`\
+https://nytimes.com/athletic/6284875/2025/04/16/new-york-giants-nfl-draft-quarterback-russell-wilson-jameis-winston/
+
 **The Briefing: Inter 2 Bayern Munich 2 (4-3 agg) - Lautaro an inspiration as Inzaghi's side weather the storm**\
 `These sides traded second-half blows in a blustery San Siro with the hosts eventually booking themselves a semi-final against Barcelona`\
 https://nytimes.com/athletic/6278172/2025/04/16/inter-bayern-munich-lautaro-inzaghi-kane-dier/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/16/world/canada/toronto-spa-therme-lease.html
 **De Bruyne: Inter Miami, Chicago, NYCFC, DC interested in midfielder**\
 `The chase to land De Bruyne appears to be heating up around Major League Soccer.`\
 https://nytimes.com/athletic/6284674/2025/04/16/kevin-de-bruyne-mls-manchester-city/
-
-**The A.P. Says White House Is Defying Court Order to Restore Its Access**\
-`The wire service on Wednesday accused The White House of continuing to bar its reporters from the press pool despite a judge’s order that called the restriction a violation of the First Amendment.`\
-https://nytimes.com/2025/04/16/us/politics/trump-ap-white-house-access.html
 
