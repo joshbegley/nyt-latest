@@ -1,3 +1,11 @@
+**As Luis Castillo returns to Cincinnati, how does the big trade look in rearview mirror?**\
+`"I spent five years here, and being able to pitch here on that mound again was special," Castillo said Tuesday night.`\
+https://nytimes.com/athletic/6282807/2025/04/16/cincinnati-reds-seattle-mariners-luis-castillo/
+
+**Roommates Alec Bohm and Brandon Marsh work to put slumps behind them in Phillies win**\
+`After suffering bad games in a loss Monday, Bohm and Marsh experienced progress in Tuesday's 6-4 win over the Giants.`\
+https://nytimes.com/athletic/6282802/2025/04/16/alec-bohm-brandon-marsh-phillies-win/
+
 **U.K. Top Court Says Trans Women Do Not Meet Legal Definition of Women Under Equality Act**\
 `Britain’s Supreme Court was asked to rule on whether trans women can be defined as female under a British law that aims to protect against discrimination.`\
 https://nytimes.com/2025/04/16/world/europe/uk-supreme-court-woman-definition-trans.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/16/business/media/tariffs-economy-recession-advertis
 **A Bold New History Highlights Latin America’s Humanist Ideals**\
 `A new book by the Pulitzer Prize-winning historian Greg Grandin offers a fresh account of the region as an incubator of internationalism and commitment to the common good.`\
 https://nytimes.com/2025/04/16/books/review/america-america-greg-grandin.html
-
-**Michael B. Jordan, Ryan Coogler and a Dozen Years of Collaborations**\
-`The star and the director of “Sinners” have risen in parallel since first working together over a decade ago. In a joint interview, they explain their connection.`\
-https://nytimes.com/2025/04/16/arts/michael-b-jordan-ryan-coogler-interview-sinners.html
-
-**How the White House Press Briefing Is Changing**\
-`The Trump administration is considering taking control of the seating in the White House press briefing room from the independent White House Correspondents’ Association.`\
-https://nytimes.com/video/us/100000010101470/white-house-press-room-changes.html
 

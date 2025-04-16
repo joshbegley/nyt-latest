@@ -1,3 +1,11 @@
+**As Luis Castillo returns to Cincinnati, how does the big trade look in rearview mirror?**\
+`"I spent five years here, and being able to pitch here on that mound again was special," Castillo said Tuesday night.`\
+https://nytimes.com/athletic/6282807/2025/04/16/cincinnati-reds-seattle-mariners-luis-castillo/
+
+**Roommates Alec Bohm and Brandon Marsh work to put slumps behind them in Phillies win**\
+`After suffering bad games in a loss Monday, Bohm and Marsh experienced progress in Tuesday's 6-4 win over the Giants.`\
+https://nytimes.com/athletic/6282802/2025/04/16/alec-bohm-brandon-marsh-phillies-win/
+
 **U.K. Top Court Says Trans Women Do Not Meet Legal Definition of Women Under Equality Act**\
 `Britain’s Supreme Court was asked to rule on whether trans women can be defined as female under a British law that aims to protect against discrimination.`\
 https://nytimes.com/2025/04/16/world/europe/uk-supreme-court-woman-definition-trans.html
