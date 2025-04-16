@@ -1,3 +1,7 @@
+**Man Who Sent Bomb Threat to a Cruise His Girlfriend Was On Is Sentenced**\
+`The Michigan man said he was upset because his girlfriend went on a Caribbean cruise with her family, leaving him to care for their pets, according to court filings.`\
+https://nytimes.com/2025/04/16/us/michigan-man-bomb-threat-cruise.html
+
 **Celebrity Homes**\
 `News about celebrities and how their are designed, bought, sold and lived in, renovated and decorated.`\
 https://nytimes.com/spotlight/celebrity-homes
