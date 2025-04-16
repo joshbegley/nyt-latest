@@ -1,3 +1,11 @@
+**Palliative Care Doctor Is Charged With Serial Murder of 15 Patients in Germany**\
+`The Berlin doctor, who was not named because of privacy laws, is also accused of setting fire to some of the patients’ homes to hide evidence.`\
+https://nytimes.com/2025/04/16/world/europe/germany-doctor-patients-murder.html
+
+**2025 NHL playoff preview: Dallas Stars vs. Colorado Avalanche**\
+`The Stars aren’t just a favorite in this series, they're a favorite to win the Cup. But don't count out the Avs' star power and spite.`\
+https://nytimes.com/athletic/6279989/2025/04/16/nhl-playoffs-2025-stars-avalanche/
+
 **The Bounce: NBA Play-In takeaways: Trae Young's tantrum vs. Magic, spaghetti on the sidelines and more**\
 `The first day of NBA Play-In basketball saw Trae Young throw a tantrum, a plate of spaghetti become a star and more`\
 https://nytimes.com/athletic/6284030/2025/04/16/nba-play-in-takeaways-trae-youngs-tantrum-vs-magic-spaghetti-on-the-sidelines-and-more/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6283956/2025/04/16/enzo-maresca-chelsea-fans-trust/
 **W.T.O. Projects Sharp Pullback in Global Trade, Citing Trump’s Tariffs**\
 `The World Trade Organization warned that tariffs would push down both U.S. exports and imports and that trade wars could put poorer countries at risk.`\
 https://nytimes.com/2025/04/16/us/politics/wto-trump-tariffs-trade.html
-
-**The Concert Cold War in a Quiet Enclave**\
-`Designed to be an idyllic neighborhood more than a century ago, Forest Hills Gardens is now a hub for music — and noise complaints.`\
-https://nytimes.com/2025/04/16/arts/music/forest-hills-stadium-concerts-noise.html
-
-**On the Stand, Zuckerberg Says TikTok Is a Major Competitive Threat**\
-`The Meta chief executive testified for a third day in a landmark antitrust trial accusing his company of quashing competition through acquisitions.`\
-https://nytimes.com/2025/04/16/technology/zuckerberg-meta-antitrust-trial.html
 
