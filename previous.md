@@ -1,3 +1,7 @@
+**Kennedy Calls Autism ‘Preventable,’ Drawing Ire From Researchers**\
+`The health secretary said he would prioritize studies into environmental causes while harshly discounting other factors scientists say are likely contributing to rising rates of the condition.`\
+https://nytimes.com/2025/04/16/us/politics/kennedy-calls-autism-preventable.html
+
 **Umpire Hunter Wendelstedt struck in head by batted ball during Mets-Twins game**\
 `Wendelstedt lay on the ground while being tended to by the Minnesota training staff but was able to walk off under his own power.`\
 https://nytimes.com/athletic/6284895/2025/04/16/umpire-hunter-wendelstedt-hit-ball/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/16/world/europe/russia-kursk-arrest-former-governor.
 **Inside Canada's new women's professional soccer league**\
 `NSL is a new Canadian professional soccer league created with the aim of growing the sport in the country.`\
 https://nytimes.com/athletic/6283324/2025/04/16/canada-womens-soccer-northern-super-league/
-
-**It’s Not Hard to Imagine a Chinese-Led Global Economy**\
-`It has simmering problems of its own, but China is ready to take center stage.`\
-https://nytimes.com/2025/04/16/opinion/china-trade-economy.html
 
