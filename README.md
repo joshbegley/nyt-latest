@@ -1,3 +1,7 @@
+**'That felt so good': Cole Anthony propels his Magic teammates to the playoffs**\
+`Orlando's fifth-year guard has endured a rocky season. But in an East Play-In game, he made a huge difference.`\
+https://nytimes.com/athletic/6283101/2025/04/16/orlando-magic-cole-anthony-nba-playoffs/
+
 **FIFA eyes Las Vegas for 2026 World Cup draw – as it did for 1994**\
 `Las Vegas is FIFA's preferred destination – if a venue can be found among likely Mariah Carey concerts and the National Finals Rodeo`\
 https://nytimes.com/athletic/6281620/2025/04/16/2026-world-cup-draw-las-vegas-host-fifa/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6278632/2025/04/16/aston-villa-marcus-rashford-psg/
 **Stocks Tumble in Asia as Tech Investors Pull Back**\
 `Nvidia, the American semiconductor giant, announced that it had been blocked by the Trump administration from selling chips to China without a license.`\
 https://nytimes.com/2025/04/16/business/stocks-trump-tariffs.html
-
-**Long Live Comrade Trump’s Tariffs**\
-`China’s e-commerce ecosystem illustrates how Trump’s tariffs only strengthen that country’s hand.`\
-https://nytimes.com/2025/04/16/opinion/trump-tariffs-china-ecommerce.html
 
