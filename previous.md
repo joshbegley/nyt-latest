@@ -1,3 +1,27 @@
+**2 Guards Charged With Murder in Beating Death of Prisoner in New York**\
+`Ten officers were charged in connection with the vicious beating of Messiah Nantwi, 22, at the Mid-State Correctional Facility, which left him bloodied and unrecognizable.`\
+https://nytimes.com/2025/04/16/nyregion/messiah-nantwi-beating-death-charges.html
+
+**Ravens NFL Draft 2025 guide: Picks, predictions and key needs**\
+`Keeping you up to date on all of Baltimore's draft-related news and analysis heading into Round 1 on April 24. `\
+https://nytimes.com/athletic/6232970/2025/04/16/baltimore-ravens-2025-nfl-draft-picks-needs-predictions-guide/
+
+**Everton ban man, 62, who stole food at first Bramley-Moore Dock test event**\
+`A club spokesperson said the video on social media showed a "clear theft of food during the first test event at Everton Stadium."`\
+https://nytimes.com/athletic/6284372/2025/04/16/everton-ban-food-theft-new-stadium-test/
+
+**Fed Chair Lays Out Game Plan for a Stagflationary Shock**\
+`Jerome H. Powell warned that Trump’s tariffs could lead to a “challenging scenario” for the central bank of higher inflation and slower growth.`\
+https://nytimes.com/2025/04/16/business/economy/jerome-powell-federal-reserve-inflation-interest-rates.html
+
+**Doubts About Trump’s Pitch to Jews**\
+`Responses to a guest essay by Michael S. Roth, the president of Wesleyan University. Also: Older workers and brain health; cattle and pain.`\
+https://nytimes.com/2025/04/16/opinion/trump-jews-college.html
+
+**For the 2028 L.A. Olympics, an increasingly common strategy behind the sprawl**\
+`In setting the 2028 Olympic venues, L.A. is embracing its expansive geography — a trend toward sprawl that's becoming the Olympic norm.`\
+https://nytimes.com/athletic/6284224/2025/04/16/olympics-la-2028-venues-strategy-sprawl/
+
 **Judge Finds Probable Cause to Hold Trump Officials in Contempt Over Deportations**\
 `The move was a remarkable attempt by a jurist to hold the White House accountable for its apparent willingness to flout court orders.`\
 https://nytimes.com/2025/04/16/us/politics/trump-probable-cause-contempt-deportation-flights.html
@@ -13,28 +37,4 @@ https://nytimes.com/video/world/europe/100000010113720/pope-thanks-heathcare-wor
 **How to Throw Your Own Birthday Party**\
 `The chef Karina Garcia of the New York restaurant Cocina Consuelo celebrated by cooking for family and friends, and even making her own cake.`\
 https://nytimes.com/2025/04/16/t-magazine/cocina-consuelo-birthday.html
-
-**Trump Aides Close State Dept. Office on Foreign Disinformation**\
-`Secretary of State Marco Rubio put about 40 employees on leave who had tracked disinformation by China, Russia, Iran and terrorist groups.`\
-https://nytimes.com/2025/04/16/us/politics/trump-rubio-state-department-foreign-disinformation.html
-
-**Latvia Exits Land Mine Convention Amid Fears of Russian Aggression**\
-`The government, along with two other Baltic nations and Poland, agreed last month to quit the 1997 accord that prohibits from using anti-personnel mines. Russia’s invasion of Ukraine was cited as a key reason.`\
-https://nytimes.com/2025/04/16/world/europe/latvia-land-mine-convention-russia-ukraine.html
-
-**What Harvard Has Set the Stage For**\
-`The university’s willingness to stand up to the Trump administration can be a model.`\
-https://nytimes.com/2025/04/16/opinion/harvard-university-trump.html
-
-**Trump Administration Sues Maine in Standoff Over Transgender Athletes**\
-`The lawsuit came just days after the administration threatened to cut off funding to the state’s public schools and lunch programs through grants from the Education and Agriculture Departments.`\
-https://nytimes.com/2025/04/16/us/politics/trump-sues-maine-trans-athletes-womens-sports.html
-
-**2 Judges Order Federal Agencies to Unfreeze Climate Money**\
-`The rulings are setbacks to Trump’s efforts to halt climate and environmental funding approved under the Biden administration.`\
-https://nytimes.com/2025/04/16/climate/trump-court-epa-funding-freeze.html
-
-**Court Scraps $8 Credit Card Late Fee Limit, at Consumer Bureau’s Request**\
-`The Consumer Financial Protection Bureau switched sides and backed a federal lawsuit by banks and business groups seeking to eliminate a fee cap the bureau set last year.`\
-https://nytimes.com/2025/04/16/business/credit-card-late-fee-limit-cfpb.html
 
