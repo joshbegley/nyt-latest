@@ -1,3 +1,11 @@
+**Jimmy Butler helps Warriors extend shelf life of their remarkable era of contention**\
+`Butler starred against the Grizzlies in the Play-In, showing why his addition gives Golden State a chance at yet another playoff run.`\
+https://nytimes.com/athletic/6283210/2025/04/16/warriors-jimmy-butler-nba-playoffs/
+
+**El Salvador’s Hard-Line Leader Is Linchpin in Trump’s Deportation Plans**\
+`Experts say President Nayib Bukele has the power but not the interest to return a man deported from Maryland to El Salvador in error.`\
+https://nytimes.com/2025/04/16/world/americas/el-salvador-bukele-abrego-garcia.html
+
 **The 20 most interesting players of college football's spring transfer window**\
 `What many personnel directors across the country figured would be a relatively tame spring portal window has quickly become intriguing.`\
 https://nytimes.com/athletic/6282864/2025/04/16/college-football-spring-transfer-portal-best-players/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6282227/2025/04/16/f1-williams-alex-albon-carlos-sa
 **Kepner: For the Yankees, Clarke Schmidt's return is a sight for sore arms**\
 `The 29-year-old righty will make his season debut versus the Royals on Wednesday, rejoining a rotation currently without three starters. `\
 https://nytimes.com/athletic/6282727/2025/04/16/clarke-schmidt-new-york-yankees-season-debut/
-
-**Cedric Mullins has become a fixture in Baltimore, but for how much longer?**\
-`The longtime Oriole has been a huge part of the team's resurgence. But he's also a free agent-to-be with potential in-house replacements.`\
-https://nytimes.com/athletic/6282436/2025/04/16/cedric-mullins-baltimore-orioles-free-agency/
-
-**The best and worst year of Nolan Jones' life, and what the public doesn't see**\
-`After a difficult year on and off the field in 2024, Jones returned to the game in 2025 with a stronger sense of  perspective.`\
-https://nytimes.com/athletic/6275078/2025/04/16/nolan-jones-guardians/
 

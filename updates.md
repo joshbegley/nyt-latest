@@ -1,3 +1,11 @@
+**Jimmy Butler helps Warriors extend shelf life of their remarkable era of contention**\
+`Butler starred against the Grizzlies in the Play-In, showing why his addition gives Golden State a chance at yet another playoff run.`\
+https://nytimes.com/athletic/6283210/2025/04/16/warriors-jimmy-butler-nba-playoffs/
+
+**El Salvador’s Hard-Line Leader Is Linchpin in Trump’s Deportation Plans**\
+`Experts say President Nayib Bukele has the power but not the interest to return a man deported from Maryland to El Salvador in error.`\
+https://nytimes.com/2025/04/16/world/americas/el-salvador-bukele-abrego-garcia.html
+
 **The 20 most interesting players of college football's spring transfer window**\
 `What many personnel directors across the country figured would be a relatively tame spring portal window has quickly become intriguing.`\
 https://nytimes.com/athletic/6282864/2025/04/16/college-football-spring-transfer-portal-best-players/
