@@ -1,3 +1,15 @@
+**Celebrity Homes**\
+`News about celebrities and how their are designed, bought, sold and lived in, renovated and decorated.`\
+https://nytimes.com/spotlight/celebrity-homes
+
+**OpenAI Unveils Technology That Can ‘Reason’ With Images**\
+`The company also introduced a new tool that helps computer programmers use chatbots when writing code.`\
+https://nytimes.com/2025/04/16/technology/openai-reasoning-models-o3-o4-mini.html
+
+**Fed Chair Lays Out Game Plan in Case of High Inflation and Slower Growth**\
+`Jerome H. Powell warned that Trump’s tariffs could lead to a “challenging scenario” for the central bank.`\
+https://nytimes.com/2025/04/16/business/economy/jerome-powell-federal-reserve-inflation-interest-rates.html
+
 **Washington Takes Aim at DeepSeek and Its American Chip Supplier, Nvidia**\
 `China’s success in artificial intelligence has the Trump administration and lawmakers weighing rules and investigations to slow Beijing’s progress in the industry.`\
 https://nytimes.com/2025/04/16/technology/nvidia-deepseek-china-ai-trump.html

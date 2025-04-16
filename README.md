@@ -1,3 +1,7 @@
+**Man Who Sent Bomb Threat to a Cruise His Girlfriend Was On Is Sentenced**\
+`The Michigan man said he was upset because his girlfriend went on a Caribbean cruise with her family, leaving him to care for their pets, according to court filings.`\
+https://nytimes.com/2025/04/16/us/michigan-man-bomb-threat-cruise.html
+
 **Celebrity Homes**\
 `News about celebrities and how their are designed, bought, sold and lived in, renovated and decorated.`\
 https://nytimes.com/spotlight/celebrity-homes
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6284372/2025/04/16/everton-ban-food-theft-new-stadi
 **Fed Chair Lays Out Game Plan in Case of High Inflation and Slower Growth**\
 `Jerome H. Powell warned that Trump’s tariffs could lead to a “challenging scenario” for the central bank.`\
 https://nytimes.com/2025/04/16/business/economy/jerome-powell-federal-reserve-inflation-interest-rates.html
-
-**Doubts About Trump’s Pitch to Jews**\
-`Responses to a guest essay by Michael S. Roth, the president of Wesleyan University. Also: Older workers and brain health; cattle and pain.`\
-https://nytimes.com/2025/04/16/opinion/trump-jews-college.html
 
