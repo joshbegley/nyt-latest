@@ -1,3 +1,15 @@
+**Iran Says Shifting U.S. Messages on Nuclear Talks Are ‘Not Helpful’**\
+`But Iran’s foreign minister said Tehran planned to participate “calmly and coolly” in the negotiations. Both sides will meet in Rome on Saturday for a second round, Iran’s Foreign Ministry said.`\
+https://nytimes.com/2025/04/16/world/middleeast/iran-trump-nuclear-talks.html
+
+**Astronomers Detect a Possible Signature of Life on a Distant Planet**\
+`Further studies are needed to determine whether K2-18b, which orbits a star 120 light-years away, is inhabited, or even habitable.`\
+https://nytimes.com/2025/04/16/science/astronomy-exoplanets-habitable-k218b.html
+
+**Trump Is Relying More on Tattoos to Identify Gang Members. Experts Say That’s Unreliable.**\
+`The administration appears to be using little more than body art to deport people that it says are members of Tren de Aragua, a move that critics say ignores decades of protocol.`\
+https://nytimes.com/2025/04/16/us/tattoos-gangs-tren-de-aragua-immigration.html
+
 **Michelle Trachtenberg, ‘Buffy’ Actress, Died From Complications of Diabetes**\
 `The New York City medical examiner’s office determined the cause and manner of her death after reviewing toxicology test results, a spokeswoman said.`\
 https://nytimes.com/2025/04/16/us/michelle-trachtenberg-cause-of-death-diabetes.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/16/us/alberto-carvalho-superintendent-los-angeles-pu
 **Ancelotti unsure on Madrid future after Champions League exit**\
 `Madrid were beaten 5-1 on aggregate by Arsenal in the Champions League quarter-finals.`\
 https://nytimes.com/athletic/6285471/2025/04/16/carlo-ancelotti-real-madrid-future-champions-league/
-
-**Climate Change Is Stressing the World’s Blood Supplies**\
-`Extreme weather disasters, increasing as the planet warms, can curb blood donations while increasing demand, a new analysis found.`\
-https://nytimes.com/2025/04/16/climate/climate-emergency-blood-supply.html
-
-**3 People Believed to Have Drowned in Missouri River**\
-`The three, an 11-year-old girl and two 18-year-olds, went into the water after fishing on Tuesday evening, fire officials in Nebraska said.`\
-https://nytimes.com/2025/04/16/us/missouri-river-girls-missing-omaha.html
-
-**A Bridal Collection From Rihanna Teases Fans Yet Again**\
-`Savage x Fenty’s new collection is the latest entry on a list of times the singer and her partner, ASAP Rocky, have alluded to being engaged.`\
-https://nytimes.com/2025/04/16/style/rihanna-savage-fenty-bridal-collection-asap-rocky.html
 
