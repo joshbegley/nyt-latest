@@ -1,3 +1,15 @@
+**Countries Agree on Treaty Aimed at Preventing Global Health Crises**\
+`The World Health Organization finally reached a compromise on a pandemic treaty after three years of talks. The United States withdrew from negotiations after President Trump took office.`\
+https://nytimes.com/2025/04/16/health/pandemic-treaty-who.html
+
+**A senator says a Salvadoran official cited U.S. payment as the reason for not releasing a wrongly deported man.**\
+`The White House has said it is paying El Salvador $6 million to hold its detainees. It has not said whether that sum covers the cost of holding the deported Salvadoran.`\
+https://nytimes.com/live/2025/04/16/us/trump-news/us-paying-el-salvador-detained-deportees
+
+**Tigers' Riley Greene, Colt Keith and the anatomy of a slump**\
+`As Greene battles a 1-for-32 skid, Keith struggles to find his power. The Tigers are 10-8 but need these two hitters to get going.`\
+https://nytimes.com/athletic/6285190/2025/04/16/tigers-riley-greene-colt-keith-slump/
+
 **Christian Walker knows his offense is 'not good enough' for struggling Astros**\
 `No offense entered Wednesday with fewer RBIs from the four-hole than the two Walker has produced as an Astro.`\
 https://nytimes.com/athletic/6285255/2025/04/16/christian-walker-struggling-offense-astros/
