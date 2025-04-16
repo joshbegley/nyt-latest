@@ -1,3 +1,15 @@
+**Aaron Donald granted temporary restraining order, claims harassment, stalking**\
+`Donald, who was a Pro Bowl selection in each of his 10 seasons, played his entire NFL career with the Rams. `\
+https://nytimes.com/athletic/6285165/2025/04/16/aaron-donald-granted-restraining-order/
+
+**Why the Cardinals hope a six-man rotation will help keep their starting pitchers healthy**\
+`In the early part of the season, giving starters more time between outings has been beneficial to their performance.`\
+https://nytimes.com/athletic/6282318/2025/04/16/cardinals-six-man-rotation-plan-benefits/
+
+**The Champions League semi-final line-up is set - here's everything you need to know**\
+`As the Champions League reaches its crucial stages, find out who is involved, when the semi-finals are happening and how to watch.`\
+https://nytimes.com/athletic/6280615/2025/04/16/champions-league-semi-finals-tv-date-when/
+
 **Adams’s Legal Debt Rises to $3 Million as Donors Fade Away**\
 `The federal charges against Mayor Eric Adams were dropped. Now he owes millions in legal expenses and must navigate a complex relationship with President Trump.`\
 https://nytimes.com/2025/04/16/nyregion/adams-legal-defense-fund.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6278172/2025/04/16/inter-bayern-munich-lautaro-inza
 **Thursday Briefing: A Judge’s Pushback Against Trump**\
 `Plus, a look at the Grand Egyptian Museum.`\
 https://nytimes.com/2025/04/16/briefing/trump-contempt-chipmakers-trade-war-israel-gaza-escalation.html
-
-**It’s Time to Protect America From America’s President**\
-`Trump’s authoritarian actions are vandalizing the American project.`\
-https://nytimes.com/2025/04/16/opinion/trump-harvard-abrego-garcia.html
-
-**Fed Chair Says Trump Tariffs Could Worsen Inflation**\
-`Jerome H. Powell, the chair of the Federal Reserve, stressed that the tariffs announced so far go well beyond what the Fed had expected even in its worst-case scenario.`\
-https://nytimes.com/video/business/economy/100000010114757/powell-trump-tariffs-inflation.html
-
-**Maryland Senator Visits El Salvador to Check on Deported Man**\
-`Senator Chris Van Hollen, Democrat of Maryland, said that the Salvadoran vice president told him the U.S. government is paying his country to keep Kilmar Armando Abrego Garcia, a Salvadoran immigrant and Maryland resident, in the nation’s maximum security prison.`\
-https://nytimes.com/video/us/politics/100000010114617/maryland-van-hollen-el-salvador-garcia.html
 

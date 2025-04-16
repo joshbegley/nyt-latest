@@ -1,3 +1,15 @@
+**Aaron Donald granted temporary restraining order, claims harassment, stalking**\
+`Donald, who was a Pro Bowl selection in each of his 10 seasons, played his entire NFL career with the Rams. `\
+https://nytimes.com/athletic/6285165/2025/04/16/aaron-donald-granted-restraining-order/
+
+**Why the Cardinals hope a six-man rotation will help keep their starting pitchers healthy**\
+`In the early part of the season, giving starters more time between outings has been beneficial to their performance.`\
+https://nytimes.com/athletic/6282318/2025/04/16/cardinals-six-man-rotation-plan-benefits/
+
+**The Champions League semi-final line-up is set - here's everything you need to know**\
+`As the Champions League reaches its crucial stages, find out who is involved, when the semi-finals are happening and how to watch.`\
+https://nytimes.com/athletic/6280615/2025/04/16/champions-league-semi-finals-tv-date-when/
+
 **Adams’s Legal Debt Rises to $3 Million as Donors Fade Away**\
 `The federal charges against Mayor Eric Adams were dropped. Now he owes millions in legal expenses and must navigate a complex relationship with President Trump.`\
 https://nytimes.com/2025/04/16/nyregion/adams-legal-defense-fund.html
