@@ -1,3 +1,11 @@
+**Five offseason questions for Kyle Davidson and the Blackhawks**\
+`From finding their next coach to getting Connor Bedard some help, the Blackhawks have their work cut out for themselves.`\
+https://nytimes.com/athletic/6283916/2025/04/16/blackhawks-offseason-priorities/
+
+**Is It Wrong to Remove a Card From Monopoly?**\
+`The magazine’s Ethicist columnist on altering board games to teach children ethical behavior.`\
+https://nytimes.com/2025/04/16/magazine/monopoly-games-children-ethics.html
+
 **Palliative Care Doctor Is Charged With Serial Murder of 15 Patients in Germany**\
 `The Berlin doctor, who was not named because of privacy laws, is also accused of setting fire to some of the patients’ homes to hide evidence.`\
 https://nytimes.com/2025/04/16/world/europe/germany-doctor-patients-murder.html

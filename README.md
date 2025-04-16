@@ -1,3 +1,15 @@
+**Ousted Stanford coach Troy Taylor criticizes coverage of firing as 'unfair'**\
+`Taylor said investigations into his conduct with female athletic department administrators should not have been shared with media outlets.`\
+https://nytimes.com/athletic/6284211/2025/04/16/stanford-troy-taylor-investigations-coverage/
+
+**‘Government Cheese’ Review: Moving on Up, to the Surreal Side**\
+`The comedy, starring David Oyelowo, straddles a border between the pioneering Black sitcoms of the 1970s and dreamy modern dramedies like “Lodge 49.”`\
+https://nytimes.com/2025/04/16/arts/television/government-cheese-review.html
+
+**Musk’s Team Is Building a System to Sell ‘Gold Card’ Immigrant Visas**\
+`The project represents something of a shift in mission for Elon Musk’s initiative, from cutting government costs toward a new goal of generating revenue.`\
+https://nytimes.com/2025/04/16/us/politics/gold-card-visa-trump-musk.html
+
 **Five offseason questions for Kyle Davidson and the Blackhawks**\
 `From finding their next coach to getting Connor Bedard some help, the Blackhawks have their work cut out for themselves.`\
 https://nytimes.com/athletic/6283916/2025/04/16/blackhawks-offseason-priorities/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6228062/2025/04/16/seattle-seahawks-2025-nfl-draft-
 **Pittsburgh Steelers NFL Draft 2025 guide: Picks, predictions and key needs**\
 `Everything you need to know about the Steelers ahead of the draft, from their most pressing needs to how their QB situation factors in.`\
 https://nytimes.com/athletic/6228127/2025/04/16/pittsburgh-steelers-2025-nfl-draft-picks-needs-predictions-guide/
-
-**Suspect in Pa. Governor’s Mansion Arson Cited Treatment of Palestinians, Police Say**\
-`The man charged in the attack on Gov. Josh Shapiro’s residence told the police he was seeking to “stop having my friends killed.”`\
-https://nytimes.com/2025/04/16/us/cody-balmer-motive-arson-gaza-palestinian-shapiro.html
-
-**Who belongs in the Maple Leafs’ ideal Game 1 playoff lineup?**\
-`Let’s sort through the varying decisions facing Maple Leafs coach Craig Berube and his staff and make some picks.`\
-https://nytimes.com/athletic/6283603/2025/04/16/maple-leafs-nhl-playoffs-game-1-lineup/
-
-**Scoop City: Eye-popping quote from Travis Hunter, praise for Tyler Shough**\
-`Sharing an explosive quote from Travis Hunter, one QB prospect a coach said was better than Cam Ward and exploring AFC draft guides`\
-https://nytimes.com/athletic/6283991/2025/04/16/travis-hunter-tyler-shough-nfl-draft-comments-scoop-city/
 

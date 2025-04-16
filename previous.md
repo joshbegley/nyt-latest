@@ -1,3 +1,11 @@
+**Five offseason questions for Kyle Davidson and the Blackhawks**\
+`From finding their next coach to getting Connor Bedard some help, the Blackhawks have their work cut out for themselves.`\
+https://nytimes.com/athletic/6283916/2025/04/16/blackhawks-offseason-priorities/
+
+**Is It Wrong to Remove a Card From Monopoly?**\
+`The magazine’s Ethicist columnist on altering board games to teach children ethical behavior.`\
+https://nytimes.com/2025/04/16/magazine/monopoly-games-children-ethics.html
+
 **Palliative Care Doctor Is Charged With Serial Murder of 15 Patients in Germany**\
 `The Berlin doctor, who was not named because of privacy laws, is also accused of setting fire to some of the patients’ homes to hide evidence.`\
 https://nytimes.com/2025/04/16/world/europe/germany-doctor-patients-murder.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6283603/2025/04/16/maple-leafs-nhl-playoffs-game-1-
 **Scoop City: Eye-popping quote from Travis Hunter, praise for Tyler Shough**\
 `Sharing an explosive quote from Travis Hunter, one QB prospect a coach said was better than Cam Ward and exploring AFC draft guides`\
 https://nytimes.com/athletic/6283991/2025/04/16/travis-hunter-tyler-shough-nfl-draft-comments-scoop-city/
-
-**Maresca calls on Chelsea fans to 'trust' his methods**\
-`Maresca told Chelsea supporters the club is heading in the right direction compared to the previous two seasons.`\
-https://nytimes.com/athletic/6283956/2025/04/16/enzo-maresca-chelsea-fans-trust/
-
-**W.T.O. Projects Sharp Pullback in Global Trade, Citing Trump’s Tariffs**\
-`The World Trade Organization warned that tariffs would push down both U.S. exports and imports and that trade wars could put poorer countries at risk.`\
-https://nytimes.com/2025/04/16/us/politics/wto-trump-tariffs-trade.html
 
