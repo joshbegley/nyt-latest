@@ -1,3 +1,23 @@
+**Ollie Scarles had a tough time against Liverpool. He will hope to react, just like Ferdinand and Rice did**\
+`The 19-year-old left-back struggled to contain Mohamed Salah's threat in the narrow 2-1 defeat to Liverpool on Sunday`\
+https://nytimes.com/athletic/6277878/2025/04/16/ollie-scarles-west-ham-analysis/
+
+**'Ruben Amorim, he’ll bring the glory days again' - Man Utd fans explain their song of defiance**\
+`United fans have turned to Bonnie Tyler in a season of heartache`\
+https://nytimes.com/athletic/6281793/2025/04/16/bonnie-tyler-manchester-united-fans/
+
+**Scott Munn could be a victim of another summer of change at Tottenham Hotspur**\
+`The arrival of Vinai Venkatesham, joining as the new chief executive officer, is unlikely to be the end of the changes to executive roles`\
+https://nytimes.com/athletic/6263996/2025/04/16/scott-munn-tottenham-venkatesham-paratici/
+
+**Jayden Bogle is Leeds' driving force who has more than justified his £5m arrival**\
+`The right-back has been a key player for Daniel Farke as his side have pushed for promotion from the Championship`\
+https://nytimes.com/athletic/6281059/2025/04/16/jayden-bogle-leeds-united-championship/
+
+**David Pastrnak and Morgan Geekie were sure things this year. Are there more to come?**\
+`For the first time since 2015-16, Pastrnak will not be playing on following the conclusion of the regular season.`\
+https://nytimes.com/athletic/6282771/2025/04/16/bruins-david-pastrnak-morgan-geekie/
+
 **European football's biggest comebacks - and the task facing Real Madrid**\
 `Real Madrid need a 'remontada' - or comeback - if they are to advance in the Champions League. History shows it is possible`\
 https://nytimes.com/athletic/6280504/2025/04/16/real-madrid-barcelona-roma-champions-league-comebacks/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6282661/2025/04/16/senators-maple-leafs-nhl-playoff
 **'It's already outrageous': Man City fans' successful ticket protests can inspire all supporters**\
 `Recent protests by City fans have made a tangible impact on the club's ticketing policies`\
 https://nytimes.com/athletic/6280483/2025/04/16/manchester-city-fan-protests-tickets/
-
-**A U.S.-China Trade War With Students and Tourists as Potential Pawns**\
-`With travel warnings and revoked visas, the two superpowers locked in a bruising trade war may make students and tourists their bargaining chips.`\
-https://nytimes.com/2025/04/16/world/asia/china-trump-tariffs-students.html
-
-**Both Admired and Resented by Trump, Japan Scrambles to Stay Close**\
-`The president at turns praises and criticizes Japan, a U.S. ally that decades ago stirred his anger over the unequal balance of trade and his penchant for tariffs.`\
-https://nytimes.com/2025/04/16/world/asia/japan-trump-tariffs.html
-
-**Schumer Moves to Block Trump Picks for Two Key Prosecutor Positions**\
-`An arcane Senate tradition effectively gives senators veto power over nominees for U.S. attorney in their home states, providing Democrats a potential opening to stop President Trump’s picks.`\
-https://nytimes.com/2025/04/16/us/schumer-trump-new-york-prosecutors.html
-
-**Connections: Sports Edition Coach: Hints for April 16, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6282467/2025/04/16/connections-sports-edition-hints-for-april-16-2025/
-
-**Even Without Add-Ons, Trump’s 10% Tariffs Will Have a Sting**\
-`The blanket tariffs, once considered extreme, still threaten to harm world trade and make everything more expensive for businesses and consumers.`\
-https://nytimes.com/2025/04/16/business/economy/trump-tariffs-global-economy.html
 
