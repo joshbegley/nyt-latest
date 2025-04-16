@@ -22,7 +22,7 @@ https://nytimes.com/video/business/economy/100000010114757/powell-trump-tariffs-
 `Senator Chris Van Hollen, Democrat of Maryland, said that the Salvadoran vice president told him the U.S. government is paying his country to keep Kilmar Armando Abrego Garcia, a Salvadoran immigrant and Maryland resident, in the nation’s maximum security prison.`\
 https://nytimes.com/video/us/politics/100000010114617/maryland-van-hollen-el-salvador-garcia.html
 
-**Nico Iamaleava expected to transfer to UCLA after departure from Tennessee: Source**\
+**Nico Iamaleava expected to transfer to UCLA after departure from Tennessee**\
 `Iamaleava officially entered the transfer portal Wednesday with a “do not contact" label.`\
 https://nytimes.com/athletic/6285117/2025/04/16/nico-iamaleava-ucla-tennessee-transfer/
 
