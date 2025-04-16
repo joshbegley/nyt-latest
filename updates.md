@@ -1,3 +1,11 @@
+**Lowetide: Why signing Trent Frederic before free agency is a risk for Oilers**\
+`The Oilers acquired Frederic at the trade deadline, and he's been hurt for almost the entire time.`\
+https://nytimes.com/athletic/6280768/2025/04/16/oilers-trent-frederic-stats-contract/
+
+**Sudanese Paramilitary Group Declares Parallel Government as 400,000 Flee Offensive**\
+`The United Nations said that at least 300 people were killed when the armed group, the Rapid Support Forces, stormed a camp in Darfur.`\
+https://nytimes.com/2025/04/16/world/africa/sudan-rsf-zamzam.html
+
 **The six minutes that proved just how vital Pedri is to Barcelona**\
 `Hansi Flick's side initially struggled against Borussia Dortmund without their midfield general. Once he was brought on, they took control`\
 https://nytimes.com/athletic/6283380/2025/04/16/pedri-barcelona-champions-league-hopes/
