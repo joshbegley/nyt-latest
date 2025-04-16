@@ -1,3 +1,15 @@
+**Trump says he will attend tariff talks with Japan’s negotiator.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2025/04/16/us/trump-news/trump-says-he-will-attend-tariff-talks-with-japans-negotiator
+
+**Trump Administration Live Updates: President Will Meet With Japan’s Negotiator on Tariffs**\
+``\
+https://nytimes.com/live/2025/04/16/us/trump-news
+
+**The transfer portal is open: What to watch at Michigan**\
+`There will be options for teams that want to upgrade at a position or two coming out of spring practice. Is Michigan among them?`\
+https://nytimes.com/athletic/6281269/2025/04/16/michigan-football-transfer-portal-preview/
+
 **Julian Sayin or Lincoln Kienholz? Projecting Ohio State's post-spring depth chart**\
 `Ohio State's QB race is tight but other positions are more clear. Let's take a look at where things stand with the two-deep depth chart.`\
 https://nytimes.com/athletic/6281535/2025/04/16/julian-sayin-lincoln-kienholz-ohio-state-post-spring-depth-chart/

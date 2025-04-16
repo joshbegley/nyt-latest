@@ -1,3 +1,15 @@
+**Trump says he will attend tariff talks with Japan’s negotiator.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2025/04/16/us/trump-news/trump-says-he-will-attend-tariff-talks-with-japans-negotiator
+
+**Trump Administration Live Updates: President Will Meet With Japan’s Negotiator on Tariffs**\
+``\
+https://nytimes.com/live/2025/04/16/us/trump-news
+
+**The transfer portal is open: What to watch at Michigan**\
+`There will be options for teams that want to upgrade at a position or two coming out of spring practice. Is Michigan among them?`\
+https://nytimes.com/athletic/6281269/2025/04/16/michigan-football-transfer-portal-preview/
+
 **Julian Sayin or Lincoln Kienholz? Projecting Ohio State's post-spring depth chart**\
 `Ohio State's QB race is tight but other positions are more clear. Let's take a look at where things stand with the two-deep depth chart.`\
 https://nytimes.com/athletic/6281535/2025/04/16/julian-sayin-lincoln-kienholz-ohio-state-post-spring-depth-chart/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6281903/2025/04/16/chargers-nfl-draft-trade-scenari
 **Knicks-Pistons playoffs preview: Predictions, X-factors, keys to series and more**\
 `The NBA is better when Detroit and New York are good. And for the first time in a long time, both franchises are.`\
 https://nytimes.com/athletic/6276960/2025/04/16/knicks-pistons-nba-playoffs-preview-2025/
-
-**Why Pat Ferschweiler might fit as Flyers' next coach: 'Not a fake bone in (his) body'**\
-`Ferschweiler just coached Western Michigan to its first-ever NCAA championship.`\
-https://nytimes.com/athletic/6281647/2025/04/16/ferschweiler-flyers-coach-western-michigan/
-
-**The Winnipeg Whiteout is almost here: What we know about Round 1 vs. St. Louis**\
-`The Blues clinched the second wild-card spot on Tuesday night. Here's where things stand ahead of the Round 1 matchup.`\
-https://nytimes.com/athletic/6281495/2025/04/16/winnipeg-jets-nhl-playoffs-blues/
-
-**Leeds' Kristensen to complete permanent Frankfurt move**\
-`The 28-year-old, who has spent the season on loan at the German club, will complete the permanent transfer in June.`\
-https://nytimes.com/athletic/6281971/2025/04/16/leeds-kristensen-frankfurt-transfer/
 
