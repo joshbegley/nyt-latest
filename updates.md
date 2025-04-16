@@ -1,3 +1,11 @@
+**‘Massive Blackout’ Leaves All of Puerto Rico Without Power**\
+`It was not immediately clear why every generating plant on the island went offline Wednesday. Puerto Rico has a history of problems with its electricity supply.`\
+https://nytimes.com/2025/04/16/us/puerto-rico-power-blackout-electricity.html
+
+**Kris Letang's teammates don't expect him to retire anytime soon**\
+`The Penguins have no doubt that Letang will be back next season following heart surgery.`\
+https://nytimes.com/athletic/6284612/2025/04/16/penguins-kris-letang-heart-surgery-retirement/
+
 **Trump Official Scrutinizes N.Y.’s Attorney General Over Real Estate**\
 `The head of a U.S. housing agency told prosecutors that Letitia James appeared to have falsified real estate records, a move that could be the start of an investigation of a key Trump adversary.`\
 https://nytimes.com/2025/04/16/nyregion/trump-letitia-james-mortgage-fraud.html
