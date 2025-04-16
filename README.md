@@ -1,3 +1,15 @@
+**Trump Official Scrutinizes N.Y.’s Attorney General Over Real Estate**\
+`The head of a U.S. housing agency told prosecutors that Letitia James appeared to have falsified real estate records, a move that could be the start of an investigation of a key Trump adversary.`\
+https://nytimes.com/2025/04/16/nyregion/trump-letitia-james-mortgage-fraud.html
+
+**The Mine Is American. The Minerals Are China’s.**\
+`A Brazilian rare earths mine backed by American investors illustrates China’s grip over the strategic minerals that underpin the modern economy.`\
+https://nytimes.com/2025/04/16/world/americas/brazil-mine-rare-earths-china.html
+
+**How We Can Help Stop Reckless Drivers From Killing Pedestrians**\
+`New York’s red-light and speed camera data tell us something urgent: A minority of bad drivers persistently engage in aberrant behavior. There’s a fix.`\
+https://nytimes.com/live/2025/04/07/opinion/thepoint/brooklyn-pedestrian-deaths-bad-drivers
+
 **Songs for Situationships, Movies for the Middle Seat and More: The Winners of Our ‘My List’ Contest**\
 `Entertain and inform yourself with these teen-curated lists that suggest TV, film, books, music, art and dance to enjoy — or to avoid.`\
 https://nytimes.com/2025/04/16/learning/songs-for-situationships-movies-for-the-middle-seat-and-more-the-winners-of-our-my-list-contest.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/16/climate/national-weather-service-forecast-doge-tr
 **Stefanik, a Trump Ally, Might Run Against Gov. Hochul Next Year**\
 `Representative Elise Stefanik, a six-term congresswoman, has talked with Republicans about a 2026 bid for governor of New York.`\
 https://nytimes.com/2025/04/16/nyregion/elise-stefanik-governor-ny.html
-
-**Duke guard Kon Knueppel declares for 2025 NBA Draft**\
-`In 39 games, Knueppel averaged 14.4 points, 4.0 rebounds and 2.7 assists on a solid 47.9 percent shooting in 30 minutes per game`\
-https://nytimes.com/athletic/6284382/2025/04/16/duke-kon-knueppel-declares-nba-draft/
-
-**Sanders and Ocasio-Cortez Electrify Democrats Who Want to Fight Trump**\
-`Bernie Sanders and his chosen heir, Alexandria Ocasio-Cortez, have drawn enormous crowds on their “Fighting Oligarchy” tour, energizing a beaten-down Democratic Party.`\
-https://nytimes.com/2025/04/16/us/politics/bernie-sanders-aoc-trump-democrats.html
-
-**Serena Williams 'doesn't know' if she regrets Super Bowl appearance**\
-`Williams reflected on her appearance at Super Bowl LIX during Kendrick Lamar's halftime show, in which she danced to “Not Like Us.”`\
-https://nytimes.com/athletic/6284494/2025/04/16/serena-williams-super-bowl-kendrick-lamar-not-like-us-halftime-show/
 
