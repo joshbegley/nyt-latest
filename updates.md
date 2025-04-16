@@ -1,3 +1,23 @@
+**Ranking the 10 most memorable Crosby vs. Ovechkin moments**\
+`Crosby and Ovechkin have shared the ice for some unforgettable moments. Here are the best.`\
+https://nytimes.com/athletic/6282565/2025/04/16/alex-ovechkin-sidney-crosby-rivalry-highlights/
+
+**Your Kids Are Big Tech’s Guinea Pigs**\
+`We waited too long to make laws around social media. A.I. has similar problems.`\
+https://nytimes.com/2025/04/16/opinion/teens-chatbot-threat.html
+
+**How Do I Tell My Old Friend That His New Partner Is a Dud?**\
+`A reader is struggling to reconcile a friend’s partner’s fussy diet and aversion to walking with a planned gastronomic tour of Europe.`\
+https://nytimes.com/2025/04/16/style/dislike-friends-new-partner.html
+
+**Colts mock draft analysis: Does TE still make the most sense in Round1? A QB on Day 3?**\
+`Dane Brugler's final seven-round mock draft has Indy filling its major needs on the first two days of the draft. `\
+https://nytimes.com/athletic/6281858/2025/04/16/colts-nfl-draft-mock-dane-brugler/
+
+**Zirkzee out for the season but Amad could return next month**\
+`The 23-year-old has scored seven goals and provided three assists in 48 games for United this season.`\
+https://nytimes.com/athletic/6276227/2025/04/16/zirkzee-manchester-united-injury-amad/
+
 **Inside a New York City Museum: Flirting, Fund-Raising and Fraud**\
 `Heather McGowan’s novel “Friends of the Museum” takes place over a single, chaotic day in the lead-up to a Met-inspired costume gala.`\
 https://nytimes.com/2025/04/16/books/review/friends-of-the-museum-heather-mcgowan.html

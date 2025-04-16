@@ -1,3 +1,11 @@
+**Unions Form Pro Bono Legal Network for Federal Workers Targeted by Trump**\
+`Organized labor has taken a leading role in challenging the Trump administration’s downsizing agenda in court. A new service will offer more individualized representation.`\
+https://nytimes.com/2025/04/16/us/politics/federal-workers-trump-network-unions.html
+
+**Stephen Silas reflects on Rockets' growth, Ime Udoka's coaching and player development**\
+`"I'm thankful for the time I had with them," says the Rockets' former head coach.`\
+https://nytimes.com/athletic/6278574/2025/04/16/houston-rockets-coach-ime-udoka-stephen-silas/
+
 **Ranking the 10 most memorable Crosby vs. Ovechkin moments**\
 `Crosby and Ovechkin have shared the ice for some unforgettable moments. Here are the best.`\
 https://nytimes.com/athletic/6282565/2025/04/16/alex-ovechkin-sidney-crosby-rivalry-highlights/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6283502/2025/04/16/linkin-park-champions-league-fin
 **Having left MLB behind, ex-Marlins GM Kim Ng named commissioner of new pro softball league**\
 `Ng, who left the Marlins abruptly in 2023, says she is following her passion and believes this is the perfect time for softball to take off.`\
 https://nytimes.com/athletic/6282422/2025/04/16/kim-ng-marlins-pro-softball-league-commissioner/
-
-**Zirkzee out for the season but Amad could return next month**\
-`The 23-year-old has scored seven goals and provided three assists in 48 games for United this season.`\
-https://nytimes.com/athletic/6276227/2025/04/16/zirkzee-manchester-united-injury-amad/
-
-**Onana to start for Man United vs. Lyon**\
-`The Cameroon international faced criticism over both goals conceded in the first leg against Lyon.`\
-https://nytimes.com/athletic/6277929/2025/04/16/manchester-united-team-news-onana-lyon/
 
