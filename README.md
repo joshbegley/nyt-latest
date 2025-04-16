@@ -1,3 +1,7 @@
+**Agreement to bring Commanders' stadium to D.C. taking shape**\
+`A framework has emerged that indicates the Commanders would pay most of the cost of the mixed-use project on the 174-acre federal land site.`\
+https://nytimes.com/athletic/6285519/2025/04/16/commanders-stadium-dc-location-agreement/
+
 **What Is Happening With Fyre Festival 2?**\
 `After weeks of confusion, the organizers of the event have scrapped its location once again.`\
 https://nytimes.com/2025/04/16/style/fyre-festival-2-location.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/16/science/astronomy-exoplanets-habitable-k218b.html
 **Trump Is Relying More on Tattoos to Identify Gang Members. Experts Say That’s Unreliable.**\
 `The administration appears to be using little more than body art to deport people that it says are members of Tren de Aragua, a move that critics say ignores decades of protocol.`\
 https://nytimes.com/2025/04/16/us/tattoos-gangs-tren-de-aragua-immigration.html
-
-**Michelle Trachtenberg, ‘Buffy’ Actress, Died From Complications of Diabetes**\
-`The New York City medical examiner’s office determined the cause and manner of her death after reviewing toxicology test results, a spokeswoman said.`\
-https://nytimes.com/2025/04/16/us/michelle-trachtenberg-cause-of-death-diabetes.html
 

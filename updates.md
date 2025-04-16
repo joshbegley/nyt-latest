@@ -1,3 +1,7 @@
+**What Is Happening With Fyre Festival 2?**\
+`After weeks of confusion, the organizers of the event have scrapped its location once again.`\
+https://nytimes.com/2025/04/16/style/fyre-festival-2-location.html
+
 **Trump Administration Halts Building of Giant Wind Farm Off N.Y. Coast**\
 `Gov. Kathy Hochul quickly responded that she would “fight this decision every step of the way.”`\
 https://nytimes.com/2025/04/16/nyregion/empire-wind-farm-trump-ny.html
