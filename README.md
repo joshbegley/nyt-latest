@@ -1,3 +1,7 @@
+**Biden Says Trump Is ‘Breaking Things,’ Including the Safety Net**\
+`In Joseph R. Biden Jr.’s first extensive speech since he left office, he accused the Trump administration of “taking a hatchet” to the Social Security Administration.`\
+https://nytimes.com/2025/04/15/us/joe-biden-speech.html
+
 **Here’s what happened on Tuesday.**\
 `By The New York Times`\
 https://nytimes.com/live/2025/04/15/us/trump-news/heres-what-happened-on-tuesday
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/04/15/us/trump-news/trump-administration-places-st
 **New York Leaders Agree to Ease Evidence Requirements for Prosecutors**\
 `The contentious issue has delayed an already late state budget, with Gov. Kathy Hochul insisting that it be resolved before budget talks could advance.`\
 https://nytimes.com/2025/04/15/nyregion/discovery-judges-law-ny.html
-
-**Nvidia Says U.S. Will Restrict Sales of More of Its A.I. Chips to China**\
-`The restrictions are the first major limits the Trump administration has put on semiconductor sales outside the United States, toughening rules created by the Biden administration.`\
-https://nytimes.com/2025/04/15/technology/nvidia-h20-chip-china-restrictions.html
 
