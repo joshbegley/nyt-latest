@@ -1,3 +1,11 @@
+**Connor Bedard ready to 'attack' offseason after two goals in season finale**\
+`Bedard's first two-goal game of the season had him contemplating where he'd like to improve next.`\
+https://nytimes.com/athletic/6282511/2025/04/15/blackhawks-connor-bedard-offseason-senators/
+
+**2 Protesters at Marjorie Taylor Greene Town Hall Are Subdued With Stun Guns**\
+`Three people, including the two who were subdued with stun guns, were arrested.`\
+https://nytimes.com/2025/04/15/us/politics/marjorie-taylor-greene-protesters.html
+
 **China Girds for Economic Stress of Trump’s Tariffs**\
 `The economy grew steadily from January through March, but U.S. tariffs pose a risk for China in the coming weeks and months.`\
 https://nytimes.com/2025/04/15/business/china-economy-gdp-q1.html
