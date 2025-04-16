@@ -1,3 +1,11 @@
+**Michelle Trachtenberg, ‘Buffy’ Actress, Died From Complications of Diabetes**\
+`The New York City medical examiner’s office determined the cause and manner of her death after reviewing toxicology test results, a spokeswoman said.`\
+https://nytimes.com/2025/04/16/us/michelle-trachtenberg-cause-of-death-diabetes.html
+
+**Trump Administration Aims to Redefine ‘Harm’ for Endangered Species**\
+`Federal agencies have proposed changing a longstanding interpretation, weakening wildlife protections under the Endangered Species Act.`\
+https://nytimes.com/2025/04/16/climate/trump-endangered-species-act-harm.html
+
 **The Next Phase of DOGE**\
 `A new “gold card” visa reveals how Elon Musk’s group has seemingly expanded its functional power.`\
 https://nytimes.com/2025/04/16/us/politics/doge-musk-gold-card-visa.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/16/us/missouri-river-girls-missing-omaha.html
 **A Bridal Collection From Rihanna Teases Fans Yet Again**\
 `Savage x Fenty’s new collection is the latest entry on a list of times the singer and her partner, ASAP Rocky, have alluded to being engaged.`\
 https://nytimes.com/2025/04/16/style/rihanna-savage-fenty-bridal-collection-asap-rocky.html
-
-**Leading Nutrition Scientist Departs N.I.H., Citing Censorship**\
-`Kevin Hall said his work on ultraprocessed foods has been “hobbled” under the Trump administration. Scientists have been raising such concerns for months.`\
-https://nytimes.com/2025/04/16/well/kevin-hall-nutrition-retirement-nih-censorship-rfk-maha.html
-
-**NFL Draft prospect Isaiah Bond files federal complaint against accuser**\
-`The lawsuit comes less than a week after the Texas wide receiver turned himself in to Frisco police.`\
-https://nytimes.com/athletic/6284966/2025/04/16/isaiah-bond-federal-complaint-nfl-draft/
 

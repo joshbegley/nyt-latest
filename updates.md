@@ -1,3 +1,11 @@
+**Michelle Trachtenberg, ‘Buffy’ Actress, Died From Complications of Diabetes**\
+`The New York City medical examiner’s office determined the cause and manner of her death after reviewing toxicology test results, a spokeswoman said.`\
+https://nytimes.com/2025/04/16/us/michelle-trachtenberg-cause-of-death-diabetes.html
+
+**Trump Administration Aims to Redefine ‘Harm’ for Endangered Species**\
+`Federal agencies have proposed changing a longstanding interpretation, weakening wildlife protections under the Endangered Species Act.`\
+https://nytimes.com/2025/04/16/climate/trump-endangered-species-act-harm.html
+
 **The Next Phase of DOGE**\
 `A new “gold card” visa reveals how Elon Musk’s group has seemingly expanded its functional power.`\
 https://nytimes.com/2025/04/16/us/politics/doge-musk-gold-card-visa.html
