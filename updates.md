@@ -1,3 +1,19 @@
+**Songs for Situationships, Movies for the Middle Seat and More: The Winners of Our ‘My List’ Contest**\
+`Entertain and inform yourself with these teen-curated lists that suggest TV, film, books, music, art and dance to enjoy — or to avoid.`\
+https://nytimes.com/2025/04/16/learning/songs-for-situationships-movies-for-the-middle-seat-and-more-the-winners-of-our-my-list-contest.html
+
+**Watch: Do the Warriors have enough to see off the Rockets?**\
+`NBA Daily discusses Golden State’s Play-In win over Memphis and how well they match up against the Houston Rockets in the first round.`\
+https://nytimes.com/athletic/6283525/2025/04/16/nba-daily-playoffs-warriors-rockets/
+
+**Two-Student Team Stuns the Competition at U.S. Constitution Contest**\
+`Matthew Meyers and Colin Williams of Oregon won first place at the national U.S. Constitution Team competition. Then came the recount that threatened to unravel their achievement.`\
+https://nytimes.com/2025/04/16/us/we-the-people-constitution-competition-sprague-high-school.html
+
+**Notre Dame transfer portal primer: Where the Irish stand at every position as spring window begins**\
+`Notre Dame head coach Marcus Freeman doesn’t expect to add in the spring portal, barring an unexpected rash of departures.`\
+https://nytimes.com/athletic/6284328/2025/04/16/notre-dame-transfer-portal/
+
 **Read Judge Boasberg’s Ruling**\
 `A federal judge in Washington said the Trump administration had shown a “willful disregard” for his order to halt deportations under the Alien Enemies Act.`\
 https://nytimes.com/interactive/2025/04/16/us/boasberg-ruling-document.html
