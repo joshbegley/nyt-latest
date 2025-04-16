@@ -1,3 +1,11 @@
+**‘Massive Blackout’ Leaves All of Puerto Rico Without Power**\
+`It was not immediately clear why every generating plant on the island went offline Wednesday. Puerto Rico has a history of problems with its electricity supply.`\
+https://nytimes.com/2025/04/16/us/puerto-rico-power-blackout-electricity.html
+
+**Kris Letang's teammates don't expect him to retire anytime soon**\
+`The Penguins have no doubt that Letang will be back next season following heart surgery.`\
+https://nytimes.com/athletic/6284612/2025/04/16/penguins-kris-letang-heart-surgery-retirement/
+
 **Trump Official Scrutinizes N.Y.’s Attorney General Over Real Estate**\
 `The head of a U.S. housing agency told prosecutors that Letitia James appeared to have falsified real estate records, a move that could be the start of an investigation of a key Trump adversary.`\
 https://nytimes.com/2025/04/16/nyregion/trump-letitia-james-mortgage-fraud.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6284328/2025/04/16/notre-dame-transfer-portal/
 **Read Judge Boasberg’s Ruling**\
 `A federal judge in Washington said the Trump administration had shown a “willful disregard” for his order to halt deportations under the Alien Enemies Act.`\
 https://nytimes.com/interactive/2025/04/16/us/boasberg-ruling-document.html
-
-**Weather Service Prepares for ‘Degraded Operations’ Amid Trump Cuts**\
-`An internal document describes how severe shortages of meteorologists and other staff members could affect forecasts and other operations.`\
-https://nytimes.com/2025/04/16/climate/national-weather-service-forecast-doge-trump.html
-
-**Stefanik, a Trump Ally, Might Run Against Gov. Hochul Next Year**\
-`Representative Elise Stefanik, a six-term congresswoman, has talked with Republicans about a 2026 bid for governor of New York.`\
-https://nytimes.com/2025/04/16/nyregion/elise-stefanik-governor-ny.html
 
