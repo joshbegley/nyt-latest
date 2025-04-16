@@ -1,3 +1,7 @@
+**Trump administration places staff of homelessness agency on leave.**\
+`The move accelerates the administration’s push to dismantle the United States Interagency Council on Homelessness.`\
+https://nytimes.com/live/2025/04/15/us/trump-news/trump-administration-places-staff-of-homelessness-agency-on-leave
+
 **New York Leaders Agree to Ease Evidence Requirements for Prosecutors**\
 `The contentious issue has delayed an already late state budget, with Gov. Kathy Hochul insisting that it be resolved before budget talks could advance.`\
 https://nytimes.com/2025/04/15/nyregion/discovery-judges-law-ny.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6282297/2025/04/15/wnba-draft-viewership-second-lar
 **Trump Seeks to Lower Drug Prices Through Medicare and Some Imports**\
 `President Trump directed his administration to help states import drugs from Canada. But a proposal to alter a Medicare program to reduce costs could wind up raising prices.`\
 https://nytimes.com/2025/04/15/health/trump-executive-order-prescription-drug-pricing.html
-
-**Grassley Draws Jeers From Constituents at Raucous Town Hall**\
-`The Iowa Republican was pressed on President Trump’s policies, including the case of a Salvadoran immigrant who his administration has admitted it mistakenly sent to a prison in El Salvador.`\
-https://nytimes.com/2025/04/15/us/politics/chuck-grassley-town-hall-iowa.html
 
