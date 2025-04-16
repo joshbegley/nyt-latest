@@ -1,3 +1,7 @@
+**Amorim invites McIlroy to Old Trafford after historic Masters victory**\
+`Amorim said McIlroy winning the Masters seemed 'impossible', adding 'we want that feeling' at Old Trafford.`\
+https://nytimes.com/athletic/6283462/2025/04/16/manchester-united-amorim-mcilroy-masters/
+
 **Trump says he will attend tariff talks with Japan’s negotiator.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2025/04/16/us/trump-news/trump-says-he-will-attend-tariff-talks-with-japans-negotiator
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6281178/2025/04/16/bruins-2024-25-season-what-went-
 **Can Chargers' Joe Hortiz deliver draft-day trade magic again? Assessing potential scenarios**\
 `Last year, the Chargers GM made one of the best deals any team made. He could have a chance to go 2-for-2.`\
 https://nytimes.com/athletic/6281903/2025/04/16/chargers-nfl-draft-trade-scenarios/
-
-**Knicks-Pistons playoffs preview: Predictions, X-factors, keys to series and more**\
-`The NBA is better when Detroit and New York are good. And for the first time in a long time, both franchises are.`\
-https://nytimes.com/athletic/6276960/2025/04/16/knicks-pistons-nba-playoffs-preview-2025/
 
