@@ -1,3 +1,15 @@
+**Thompson: Steph Curry's Warriors have done it all, but Tuesday was different**\
+`The Warriors' Play-In win Tuesday over the Grizzlies brought out a new kind of emotion for the decorated dynasty — exhilarating relief.`\
+https://nytimes.com/athletic/6284401/2025/04/16/stephen-curry-warriors-grizzlies-play-in-playoffs/
+
+**Trump administration suing Maine over state's transgender athlete policy**\
+`The lawsuit alleges the state is violating Title IX and follows an attempt to cut all federal education funding for Maine's public schools.`\
+https://nytimes.com/athletic/6283805/2025/04/16/maine-trump-administration-lawsuit-transgender-athletes/
+
+**American Pastor Kidnapped in South Africa Is Rescued After Shootout**\
+`Three suspects were killed as the police moved in on a safe house where the pastor from Tennessee was being held.`\
+https://nytimes.com/2025/04/16/world/africa/south-africa-pastor-kidnapping-rescue-josh-sullivan.html
+
 **Seth Rogen’s Trump Jokes Are Edited Out of Awards Broadcast**\
 `While presenting an award at the Breakthrough Prize ceremony this month, Mr. Rogen said President Trump had “single-handedly destroyed all of American science.”`\
 https://nytimes.com/2025/04/16/arts/seth-rogen-breakthrough-prize-ceremony.html
