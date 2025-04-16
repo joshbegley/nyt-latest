@@ -1,3 +1,11 @@
+**Thompson: Steph Curry's Warriors have done it all, but Tuesday was different**\
+`The Warriors' Play-In win Tuesday over the Grizzlies brought out a new kind of emotion for the decorated dynasty — exhilarating relief.`\
+https://nytimes.com/athletic/6284401/2025/04/16/stephen-curry-warriors-grizzlies-play-in-playoffs/
+
+**Trump administration suing Maine over state's transgender athlete policy**\
+`The lawsuit alleges the state is violating Title IX and follows an attempt to cut all federal education funding for Maine's public schools.`\
+https://nytimes.com/athletic/6283805/2025/04/16/maine-trump-administration-lawsuit-transgender-athletes/
+
 **American Pastor Kidnapped in South Africa Is Rescued After Shootout**\
 `Three suspects were killed as the police moved in on a safe house where the pastor from Tennessee was being held.`\
 https://nytimes.com/2025/04/16/world/africa/south-africa-pastor-kidnapping-rescue-josh-sullivan.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/16/technology/nvidia-deepseek-china-ai-trump.html
 **Peru’s Former First Lady Flees as She and Ex-President Are Sentenced to Prison**\
 `Former President Ollanta Humala and his wife, Nadine Heredia, were sentenced on Tuesday to 15 years in prison for money laundering. Brazil granted her diplomatic asylum, officials said.`\
 https://nytimes.com/2025/04/16/world/americas/peru-president-first-lady-prison.html
-
-**Spurs captain Son to miss Europa League second leg against Frankfurt**\
-`Son started the 1-1 draw in the first leg but was left out of the squad for Tottenham's 4-2 defeat against Wolves on Sunday.`\
-https://nytimes.com/athletic/6284511/2025/04/16/son-heung-min-tottenham-injury-update/
-
-**2 Guards Charged With Murder in Beating Death of Prisoner in New York**\
-`Ten officers were charged in connection with the vicious beating of Messiah Nantwi, 22, at the Mid-State Correctional Facility, which left him bloodied and unrecognizable.`\
-https://nytimes.com/2025/04/16/nyregion/messiah-nantwi-beating-death-charges.html
 
