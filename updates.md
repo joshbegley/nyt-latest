@@ -1,3 +1,7 @@
+**Rashford started Aston Villa's transformation. Against PSG he almost finished it**\
+`Aston Villa came very close to a comeback against PSG, inspired in part by Marcus Rashford`\
+https://nytimes.com/athletic/6278632/2025/04/16/aston-villa-marcus-rashford-psg/
+
 **Stocks Tumble in Asia as Tech Investors Pull Back**\
 `Nvidia, the American semiconductor giant, announced that it had been blocked by the Trump administration from selling chips to China without a license.`\
 https://nytimes.com/2025/04/16/business/stocks-trump-tariffs.html
