@@ -1,3 +1,23 @@
+**China Girds for Economic Stress of Trump’s Tariffs**\
+`The economy grew steadily from January through March, but U.S. tariffs pose a risk for China in the coming weeks and months.`\
+https://nytimes.com/2025/04/15/business/china-economy-gdp-q1.html
+
+**Damage, So to Speak**\
+`Life may flash before your eyes as you solve Kathy Bloomer’s puzzle.`\
+https://nytimes.com/2025/04/15/crosswords/daily-puzzle-2025-04-16.html
+
+**How the Maple Leafs won their first Atlantic Division title**\
+`The Leafs' first division title in an 82-game season since 2000 sets up a Battle of Ontario against the Ottawa Senators.`\
+https://nytimes.com/athletic/6274490/2025/04/15/maple-leafs-atlantic-division-nhl-playoffs/
+
+**Twins' Carlos Correa, Matt Wallner exit Tuesday's game with injuries**\
+`The injuries are the latest obstacle for the Twins, who entered Tuesday at 5-12, tied for the worst start in franchise history.`\
+https://nytimes.com/athletic/6282544/2025/04/15/carlos-correa-matt-wallner-injuries-twins-mets/
+
+**A Top Democratic Official Plots to Take Down Party Incumbents**\
+`David Hogg, a young liberal activist and now a vice chair of the Democratic National Committee, is leading an effort to unseat the party’s older lawmakers in primaries.`\
+https://nytimes.com/2025/04/15/us/politics/david-hogg-dnc-leaders-we-deserve.html
+
 **Why Harvard Decided to Fight Trump**\
 `The Trump administration will freeze over $2 billion in federal funds because Harvard refused to comply with a list of demands. Harvard leaders believed saying no was worth the risk.`\
 https://nytimes.com/2025/04/15/us/why-harvard-resisted-trumps-demands.html
