@@ -1,3 +1,7 @@
+**Agreement to bring Commanders' stadium to D.C. taking shape**\
+`A framework has emerged that indicates the Commanders would pay most of the cost of the mixed-use project on the 174-acre federal land site.`\
+https://nytimes.com/athletic/6285519/2025/04/16/commanders-stadium-dc-location-agreement/
+
 **What Is Happening With Fyre Festival 2?**\
 `After weeks of confusion, the organizers of the event have scrapped its location once again.`\
 https://nytimes.com/2025/04/16/style/fyre-festival-2-location.html
