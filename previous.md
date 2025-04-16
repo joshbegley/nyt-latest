@@ -1,3 +1,11 @@
+**'Make it last, boys': How Fleury's surprising swan song stole the show in season-saving win**\
+`"It was fun to just go one more time out there and play the game I love," Fleury said of his final regular-season game before retirement.`\
+https://nytimes.com/athletic/6282965/2025/04/16/wild-clinch-playoff-berth-ducks-marc-andre-fleury/
+
+**Word of the Day: soporific**\
+`This word has appeared in 14 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/04/16/learning/word-of-the-day-soporific.html
+
 **PSG need to hold their nerve when Champions League chaos strikes to be true contenders**\
 `PSG were firmly in control of their Champions League quarter-final against Villa until the game became chaotic`\
 https://nytimes.com/athletic/6282696/2025/04/16/psg-champions-league-contenders/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/16/briefing/harvard-trump-ukraine-gaza-medics.html
 **The New York Times in Print for Wednesday, April 16, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/04/16/todays-new-york-times
-
-**What next for Armando Broja, Everton and Chelsea?**\
-`The Albania striker has a £30m clause in his Everton loan deal - but with injury problems ruining his spell at Goodison, what comes next?`\
-https://nytimes.com/athletic/6280549/2025/04/16/what-next-for-armando-broja-everton-and-chelsea/
-
-**Matt O'Riley: 'I don't think about competition - just how I get better'**\
-`The 24-year-old midfielder has not completed 90 minutes since signing for £25m but says he can thrive wherever Fabian Hurzeler plays him`\
-https://nytimes.com/athletic/6277822/2025/04/16/matt-oriley-brighton-first-season-interview/
 

@@ -1,3 +1,11 @@
+**'Make it last, boys': How Fleury's surprising swan song stole the show in season-saving win**\
+`"It was fun to just go one more time out there and play the game I love," Fleury said of his final regular-season game before retirement.`\
+https://nytimes.com/athletic/6282965/2025/04/16/wild-clinch-playoff-berth-ducks-marc-andre-fleury/
+
+**Word of the Day: soporific**\
+`This word has appeared in 14 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/04/16/learning/word-of-the-day-soporific.html
+
 **PSG need to hold their nerve when Champions League chaos strikes to be true contenders**\
 `PSG were firmly in control of their Champions League quarter-final against Villa until the game became chaotic`\
 https://nytimes.com/athletic/6282696/2025/04/16/psg-champions-league-contenders/
