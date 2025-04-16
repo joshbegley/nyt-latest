@@ -1,3 +1,7 @@
+**Former FC Cincinnati striker Aaron Boupendza dies aged 28**\
+`Boupendza scored seven goals in MLS, while he netted eight times in 35 appearances for Gabon.`\
+https://nytimes.com/athletic/6283709/2025/04/16/aaron-boupendza-death-died-gabon/
+
 **Alexander-Arnold steps up injury recovery with return to Liverpool training**\
 `The England international has missed the past four games since limping out of last month's Champions League defeat to PSG.`\
 https://nytimes.com/athletic/6283767/2025/04/16/alexander-arnold-injury-update-liverpool/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6281858/2025/04/16/colts-nfl-draft-mock-dane-brugle
 **Inside a New York City Museum: Flirting, Fund-Raising and Fraud**\
 `Heather McGowan’s novel “Friends of the Museum” takes place over a single, chaotic day in the lead-up to a Met-inspired costume gala.`\
 https://nytimes.com/2025/04/16/books/review/friends-of-the-museum-heather-mcgowan.html
-
-**Why Europe Is Less Panicked About the Stock Market**\
-`Europeans tend to keep more of their money in cash, gaining some protection from the recent market volatility. But President Trump’s tariffs will have an effect, experts said.`\
-https://nytimes.com/2025/04/16/world/europe/european-stock-market-investing.html
 
