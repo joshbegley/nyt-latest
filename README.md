@@ -1,3 +1,7 @@
+**Hawks' Trae Young ejected vs. Magic for 'making a mockery of the game,' ref says**\
+`Young was ejected from Atlanta's 120-95 loss in the first game of the Play-In round.`\
+https://nytimes.com/athletic/6282888/2025/04/16/hawks-trae-young-ejected-vs-magic-play-in/
+
 **Rashford started Aston Villa's transformation. Against PSG he almost finished it**\
 `Aston Villa came very close to a comeback against PSG, inspired in part by Marcus Rashford`\
 https://nytimes.com/athletic/6278632/2025/04/16/aston-villa-marcus-rashford-psg/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6277878/2025/04/16/ollie-scarles-west-ham-analysis/
 **'Ruben Amorim, he’ll bring the glory days again' - Man Utd fans explain their song of defiance**\
 `United fans have turned to Bonnie Tyler in a season of heartache`\
 https://nytimes.com/athletic/6281793/2025/04/16/bonnie-tyler-manchester-united-fans/
-
-**Scott Munn could be a victim of another summer of change at Tottenham Hotspur**\
-`The arrival of Vinai Venkatesham, joining as the new chief executive officer, is unlikely to be the end of the changes to executive roles`\
-https://nytimes.com/athletic/6263996/2025/04/16/scott-munn-tottenham-venkatesham-paratici/
 
