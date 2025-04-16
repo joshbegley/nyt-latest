@@ -1,10 +1,14 @@
+**The six minutes that proved just how vital Pedri is to Barcelona**\
+`Hansi Flick's side initially struggled against Borussia Dortmund without their midfield general. Once he was brought on, they took control`\
+https://nytimes.com/athletic/6283380/2025/04/16/pedri-barcelona-champions-league-hopes/
+
 **Penguins' Kris Letang has surgery to repair hole in heart**\
-`PITTSBURGH — Pittsburgh Penguins defenseman Kris Letang had successful surgery to repair a hole in his heart, the team&#8217;s president of hockey operations, Kyle Dubas, said in a news release Wednesday morning.`\
+`The hole was discovered after Letang's first stroke in January 2014. Letang suffered a second stroke in 2022.`\
 https://nytimes.com/athletic/6283746/2025/04/16/kris-letang-heart-surgery-penguins/
 
 **Maryland Senator Heads to El Salvador to Check on Man Deported From His State**\
 `Senator Chris Van Hollen said he would press for the release of Kilmar Armando Abrego Garcia, a Salvadoran immigrant who was mistakenly deported by the Trump administration and imprisoned.`\
-https://nytimes.com/live/2025/04/16/us/trump-news/maryland-el-salvador-senator-van-hollen-abrego-garcia-deportation
+https://nytimes.com/2025/04/16/us/politics/maryland-el-salvador-senator-van-hollen-abrego-garcia-deportation.html
 
 **How China Took Over the World’s Rare Earths Industry**\
 `China seized mines and built factories. Japan took note and invested in Australia. But the United States did little despite concerns about control of supplies.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6283154/2025/04/16/kim-ng-softball-mlb-the-windup/
 **Unions Form Pro Bono Legal Network for Federal Workers Targeted by Trump**\
 `Organized labor has taken a leading role in challenging the Trump administration’s downsizing agenda in court. A new service will offer more individualized representation.`\
 https://nytimes.com/2025/04/16/us/politics/federal-workers-trump-network-unions.html
-
-**Stephen Silas reflects on Rockets' growth, Ime Udoka's coaching and player development**\
-`"I'm thankful for the time I had with them," says the Rockets' former head coach.`\
-https://nytimes.com/athletic/6278574/2025/04/16/houston-rockets-coach-ime-udoka-stephen-silas/
 
