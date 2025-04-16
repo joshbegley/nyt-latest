@@ -1,40 +1,41 @@
-**Canada Reschedules Political Debate That Conflicted With a Hockey Game**\
-`An important game, but still.`\
-https://nytimes.com/2025/04/16/world/americas/canada-election-debate-canadiens-game-montreal.html
+**Mandel's mailbag: Is Nico Iamaleava worth it? Which schools are possible suitors?**\
+`Stewart Mandel, the editor-in-chief of The Athletic's college football coverage, answers reader questions. `\
+https://nytimes.com/athletic/6281869/2025/04/16/nico-iamaleava-ncaa-mandel-mailbag/
 
-**City's Fowler sustains ACL injury**\
-`The Australian had stepped up for City this season, registering six goals and seven assists in 17 WSL matches.`\
-https://nytimes.com/athletic/6283248/2025/04/16/mary-fowler-injury-acl-manchester-city/
+**With Rory, Bryson and Scottie as its leads, golf is finally ready for the spotlight**\
+`For all of the outside messes diluting the overall product, the golf itself has never been more captivating than these four weeks a year.`\
+https://nytimes.com/athletic/6282153/2025/04/16/golf-rory-bryson-scottie-masters-impact/
 
-**What can we learn from Gene Hackman and Hoosiers? More than you might think**\
-`Professors use the late Gene Hackman's performance as Norman Dale, a small-town high school basketball coach, to teach leadership lessons.`\
-https://nytimes.com/athletic/6255533/2025/04/16/leadership-gene-hackman-hoosiers/
+**Who will be the best players in the 2026 WNBA Draft? Our big board examines the options**\
+`Where does our expert Sabreena Merchant rank the talent that will be available next season? `\
+https://nytimes.com/athletic/6282604/2025/04/16/wnba-2026-big-board-draft/
 
-**Inside Bobby Witt Jr.'s one day playing with the Yankees: 'I still have that hat'**\
-`Witt remembers fondly the day he played for the Yankees’ scout team, donning navy and gray against a Boston Red Sox scout team.`\
-https://nytimes.com/athletic/6282573/2025/04/16/bobby-witt-jr-yankees-royals-red-sox/
+**'The Jokić Bump': How the three-time MVP helps teammates level up**\
+`“The Jokić bump” describes how the three-time MVP boosts teammates. Somehow, anyone who pairs with Jokić experiences a jump in production.`\
+https://nytimes.com/athletic/6276862/2025/04/16/nikola-jokic-christian-braun-mentorship-nba-mvp-denver-nuggets/
 
-**The New York Times International Edition in Print for Thursday, April 17, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/04/16/todays-new-york-times-international-edition
+**Jets' trade-back possibilities: possible partners, potential draft targets**\
+`Aaron Glenn and Darren Mougey both worked for franchises that were active trading on draft weekend.`\
+https://nytimes.com/athletic/6279137/2025/04/16/jets-draft-trade-back-possibilities/
 
-**As Luis Castillo returns to Cincinnati, how does the big trade look in rearview mirror?**\
-`"I spent five years here, and being able to pitch here on that mound again was special," Castillo said Tuesday night.`\
-https://nytimes.com/athletic/6282807/2025/04/16/cincinnati-reds-seattle-mariners-luis-castillo/
+**How Jaire Alexander's future impacts the Packers' draft plans**\
+`The two-time All-Pro cornerback is still a Packer eight days before the draft comes to Green Bay.`\
+https://nytimes.com/athletic/6281564/2025/04/16/green-bay-packers-jaire-alexanders-nfl-draft/
 
-**Roommates Alec Bohm and Brandon Marsh work to put slumps behind them in Phillies win**\
-`After suffering bad games in a loss Monday, Bohm and Marsh experienced progress in Tuesday's 6-4 win over the Giants.`\
-https://nytimes.com/athletic/6282802/2025/04/16/alec-bohm-brandon-marsh-phillies-win/
+**What's it like to play Augusta National the day after Rory's Masters win? I found out**\
+`I have post-round depression, and in an attempt to alleviate it, here are answers to your questions about my day at Augusta National.`\
+https://nytimes.com/athletic/6282545/2025/04/16/play-augusta-national-masters/
 
-**U.K. Top Court Says Trans Women Do Not Meet Legal Definition of Women Under Equality Act**\
-`Britain’s Supreme Court was asked to rule on whether trans women can be defined as female under a British law that aims to protect against discrimination.`\
-https://nytimes.com/2025/04/16/world/europe/uk-supreme-court-woman-definition-trans.html
+**Signs keep pointing to Panthers' picking Jalon Walker at No. 8**\
+`The Georgia hybrid linebacker rates as the No. 5 draft prospect in "The Beast" and signs seem to be pointing to the N.C. native coming home.`\
+https://nytimes.com/athletic/6281859/2025/04/16/carolina-panthers-nfl-draft-2025-jalon-walker/
 
-**Do You Like Old Movies?**\
-`An Opinion writer argues that younger people are missing out on Hollywood classics like “Singin’ in the Rain” and “Casablanca.” Is his case convincing?`\
-https://nytimes.com/2025/04/16/learning/do-you-like-old-movies.html
+**2025 NHL Draft ranking: Schaefer leads Pronman’s April list, Misa follows**\
+`The 2025 NHL Draft picture is becoming clearer, with a stronger forward group but less depth of talent on defense. 
+`\
+https://nytimes.com/athletic/6278808/2025/04/16/nhl-draft-2025-ranking-schaefer-misa/
 
-**Olivia Munn’s 5 Favorite Places in Tokyo**\
-`The actress, who stars in the new Apple TV+ series “Your Friends & Neighbors,” guides a treasure hunt though the city where she spent much of her childhood.`\
-https://nytimes.com/2025/04/16/travel/olivia-munn-tokyo.html
+**What are the top 10 front offices in MLB in 2025? Here’s how 40 executives voted**\
+`For the second year in a row, The Athletic canvassed 40 executives across baseball to build our front office rankings.`\
+https://nytimes.com/athletic/6273808/2025/04/16/mlb-top-10-front-offices-executive-vote/
 
