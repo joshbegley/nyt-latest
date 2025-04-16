@@ -1,3 +1,7 @@
+**FIFA eyes Las Vegas for 2026 World Cup draw – as it did for 1994**\
+`Las Vegas is FIFA's preferred destination – if a venue can be found among likely Mariah Carey concerts and the National Finals Rodeo`\
+https://nytimes.com/athletic/6281620/2025/04/16/2026-world-cup-draw-las-vegas-host-fifa/
+
 **Barcelona's unbeaten run ended but could this be a good way to lose?**\
 `Barcelona are through to the semi-final stage of the Champions League despite a first loss in 24 games`\
 https://nytimes.com/athletic/6282414/2025/04/16/barcelona-borussia-dortmund-analysis/
