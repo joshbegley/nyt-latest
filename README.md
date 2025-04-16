@@ -1,3 +1,15 @@
+**4 Injured in Dallas School Shooting, Authorities Say**\
+`Three students were wounded by gunfire and a fourth also was injured when gunfire erupted at Wilmer-Hutchins High School on Tuesday afternoon, officials said.`\
+https://nytimes.com/2025/04/15/us/dallas-school-shooting-wilmer-hutchins.html
+
+**Trump picks a Hunter Biden whistle-blower to temporarily lead the I.R.S.**\
+`Gary Shapley is a veteran I.R.S. agent who raised concerns that the tax investigation into Hunter Biden was being slow-walked.`\
+https://nytimes.com/live/2025/04/15/us/trump-news/trump-picks-a-hunter-biden-whistle-blower-to-temporarily-lead-the-irs
+
+**Trump Gives Conflicting Signals and Mixed Messages on Iran Nuclear Talks**\
+`The Trump administration started with an simple goal: Make Iran dismantle its nuclear and missile programs. Then its top negotiator started softening his tone, and had to retreat.`\
+https://nytimes.com/2025/04/15/us/politics/trump-iran-nuclear-negotations.html
+
 **Trump administration places staff of homelessness agency on leave.**\
 `The move accelerates the administration’s push to dismantle the United States Interagency Council on Homelessness.`\
 https://nytimes.com/live/2025/04/15/us/trump-news/trump-administration-places-staff-of-homelessness-agency-on-leave
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/15/business/media/trump-white-house-newswire-press.h
 **Cubs option struggling Matt Shaw to Triple A among a flurry of roster moves**\
 `The Cubs seemed prepared to deal with Shaw's inevitable growing pains but he wound up hitting .172 (10-for-58) in 18 games.`\
 https://nytimes.com/athletic/6282359/2025/04/15/cubs-option-matt-shaw-triple-a-struggles/
-
-**State Dept. Expands Plans for Closing Embassies and Consulates**\
-`A departmental memo describes paring back the American diplomatic presence on every continent.`\
-https://nytimes.com/2025/04/15/us/politics/state-dept-expands-plans-for-closing-embassies-and-consulates.html
-
-**WNBA Draft draws 1.25 million viewers, its second largest audience ever**\
-`No. 1 pick Paige Bueckers drew a significant audience, though she didn't top Caitlin Clark, who drew 2.4 million to the 2024 draft.`\
-https://nytimes.com/athletic/6282297/2025/04/15/wnba-draft-viewership-second-largest/
-
-**Trump Seeks to Lower Drug Prices Through Medicare and Some Imports**\
-`President Trump directed his administration to help states import drugs from Canada. But a proposal to alter a Medicare program to reduce costs could wind up raising prices.`\
-https://nytimes.com/2025/04/15/health/trump-executive-order-prescription-drug-pricing.html
 
