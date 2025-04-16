@@ -1,3 +1,19 @@
+**Leading Nutrition Scientist Departs N.I.H., Citing Censorship**\
+`Kevin Hall said his work on ultraprocessed foods has been “hobbled” under the Trump administration. Scientists have been raising such concerns for months.`\
+https://nytimes.com/2025/04/16/well/kevin-hall-nutrition-retirement-nih-censorship-rfk-maha.html
+
+**NFL Draft prospect Isaiah Bond files federal complaint against accuser**\
+`The lawsuit comes less than a week after the Texas wide receiver turned himself in to Frisco police.`\
+https://nytimes.com/athletic/6284966/2025/04/16/isaiah-bond-federal-complaint-nfl-draft/
+
+**Arteta: Arsenal win vs Madrid 'one of the best nights in my football career'**\
+`Arsenal won 2-1 in Madrid on Wednesday to secure a 5-1 aggregate victory over the defending European champions.`\
+https://nytimes.com/athletic/6285316/2025/04/16/arsenal-champions-league-madrid-mikel-arteta/
+
+**Christian Walker knows his offense is 'not good enough' to help Astros**\
+`No offense entered Wednesday with fewer RBIs from the four-hole than the two Walker has produced as an Astro.`\
+https://nytimes.com/athletic/6285255/2025/04/16/christian-walker-struggling-offense-astros/
+
 **Countries Agree on Treaty Aimed at Preventing Global Health Crises**\
 `The World Health Organization finally reached a compromise on a pandemic treaty after three years of talks. The United States withdrew from negotiations after President Trump took office.`\
 https://nytimes.com/2025/04/16/health/pandemic-treaty-who.html
