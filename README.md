@@ -1,3 +1,23 @@
+**Trump Administration Announces Lawsuit Against Maine**\
+`Attorney General Pam Bondi announced the Trump administration’s plan to sue Maine over policies that allow some transgender athletes to compete in women’s sports.`\
+https://nytimes.com/video/us/politics/100000010114219/pam-bondi-maine-transgender-athletes.html
+
+**Russia Arrests Former Governor of Ukraine-Occupied Region**\
+`Aleksei B. Smirnov, together with his deputy and other accomplices, was accused of embezzling money earmarked for building defenses that failed to prevent a Ukrainian attack in Kursk.`\
+https://nytimes.com/2025/04/16/world/europe/russia-kursk-arrest-former-governor.html
+
+**Inside Canada's new women's professional soccer league**\
+`NSL is a new Canadian professional soccer league created to grow the sport in the country.`\
+https://nytimes.com/athletic/6283324/2025/04/16/canada-womens-soccer-northern-super-league/
+
+**It’s Not Hard to Imagine a Chinese-Led Global Economy**\
+`It has simmering problems of its own, but China is ready to take center stage.`\
+https://nytimes.com/2025/04/16/opinion/china-trade-economy.html
+
+**In Grueling Ranger Competition, Gender Proves No Obstacle**\
+`A female Army Ranger, in a first, competed in one of the military’s toughest tests of physical fitness. She bested many of her opponents.`\
+https://nytimes.com/2025/04/16/us/gabrielle-white-army-ranger-competition.html
+
 **‘Massive Blackout’ Leaves All of Puerto Rico Without Power**\
 `It was not immediately clear why every generating plant on the island went offline Wednesday. Puerto Rico has a history of problems with its electricity supply.`\
 https://nytimes.com/2025/04/16/us/puerto-rico-power-blackout-electricity.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/04/16/world/americas/brazil-mine-rare-earths-china.html
 **How We Can Help Stop Reckless Drivers From Killing Pedestrians**\
 `New York’s red-light and speed camera data tell us something urgent: A minority of bad drivers persistently engage in aberrant behavior. There’s a fix.`\
 https://nytimes.com/live/2025/04/07/opinion/thepoint/brooklyn-pedestrian-deaths-bad-drivers
-
-**Songs for Situationships, Movies for the Middle Seat and More: The Winners of Our ‘My List’ Contest**\
-`Entertain and inform yourself with these teen-curated lists that suggest TV, film, books, music, art and dance to enjoy — or to avoid.`\
-https://nytimes.com/2025/04/16/learning/songs-for-situationships-movies-for-the-middle-seat-and-more-the-winners-of-our-my-list-contest.html
-
-**Watch: Do the Warriors have enough to see off the Rockets?**\
-`NBA Daily discusses Golden State’s Play-In win over Memphis and how well they match up against the Houston Rockets in the first round.`\
-https://nytimes.com/athletic/6283525/2025/04/16/nba-daily-playoffs-warriors-rockets/
-
-**Two-Student Team Stuns the Competition at U.S. Constitution Contest**\
-`Matthew Meyers and Colin Williams of Oregon won first place at the national U.S. Constitution Team competition. Then came the recount that threatened to unravel their achievement.`\
-https://nytimes.com/2025/04/16/us/we-the-people-constitution-competition-sprague-high-school.html
-
-**Notre Dame transfer portal primer: Where the Irish stand at every position as spring window begins**\
-`Notre Dame head coach Marcus Freeman doesn’t expect to add in the spring portal, barring an unexpected rash of departures.`\
-https://nytimes.com/athletic/6284328/2025/04/16/notre-dame-transfer-portal/
-
-**Read Judge Boasberg’s Ruling**\
-`A federal judge in Washington said the Trump administration had shown a “willful disregard” for his order to halt deportations under the Alien Enemies Act.`\
-https://nytimes.com/interactive/2025/04/16/us/boasberg-ruling-document.html
 
