@@ -1,40 +1,40 @@
-**Judges’ Dilemma**\
-`Trump administration lawyers are saying some astonishing things in court, creating a conundrum for the judiciary.`\
-https://nytimes.com/2025/04/16/briefing/trump-lawyers-judiciary.html
+**Which NHL contenders pass the Cup Checklist going into the playoffs?**\
+`Here's a look at the 16 teams separated into five tiers based on how many boxes they tick on the new-and-improved Cup Checklist.`\
+https://nytimes.com/athletic/6276669/2025/04/16/nhl-playoffs-contenders-stanley-cup-checklist/
 
-**Breaking down the greatest Champions League comeback that never was**\
-`Aston Villa were down and out against PSG… until they weren't. They came inches from a remarkable comeback`\
-https://nytimes.com/athletic/6283221/2025/04/16/aston-villa-comeback-psg/
+**In Boston, the one constant through all the months has been the Celtics**\
+`The Celtics have an excellent chance to repeat as NBA champions, but let's not get ahead of ourselves.`\
+https://nytimes.com/athletic/6282390/2025/04/16/boston-celtics-nba-playoffs-magic-column/
 
-**British Court Rules Legal Definition of Women is Based on Biological Sex**\
-`Britain’s Supreme Court ruled on Wednesday that trans women do not meet the legal definition of female under the country’s Equality Act.`\
-https://nytimes.com/video/world/europe/100000010113380/britain-supreme-court-transgender-ruling.html
+**NBA Player Tiers 2025: With Zion, LaMelo and more, durability worries throughout Tier 3**\
+`Having multiple players in this group is almost always going to be helpful for a team to be good.`\
+https://nytimes.com/athletic/6278925/2025/04/16/nba-player-tiers-2025-zion-lamelo-ball-injuries/
 
-**Roommates Alec Bohm and Brandon Marsh work to put slumps behind them in Phillies win**\
-`They aren't back. Not yet. But, for a night, the roommates didn't need to talk about work once they left the office. `\
-https://nytimes.com/athletic/6282802/2025/04/16/alec-bohm-brandon-marsh-phillies-win/
+**In F1's tight midfield battle, Alex Albon - not Carlos Sainz - leads Williams' charge**\
+`It has been the 29-year-old's strongest start to a Formula One season for Williams, up against his highly rated new teammate`\
+https://nytimes.com/athletic/6282227/2025/04/16/f1-williams-alex-albon-carlos-sainz-midfield/
 
-**Mandel's mailbag: Is Nico Iamaleava worth it? Which schools are possible suitors?**\
-`Stewart Mandel, the editor-in-chief of The Athletic's college football coverage, answers reader questions. `\
-https://nytimes.com/athletic/6281869/2025/04/16/nico-iamaleava-ncaa-mandel-mailbag/
+**Kepner: For the Yankees, Clarke Schmidt's return is a sight for sore arms**\
+`The 29-year-old righty will make his season debut versus the Royals on Wednesday, rejoining a rotation currently without three starters. `\
+https://nytimes.com/athletic/6282727/2025/04/16/clarke-schmidt-new-york-yankees-season-debut/
 
-**With Rory, Bryson and Scottie as its leads, golf is finally ready for the spotlight**\
-`For all of the outside messes diluting the overall product, the golf itself has never been more captivating than these four weeks a year.`\
-https://nytimes.com/athletic/6282153/2025/04/16/golf-rory-bryson-scottie-masters-impact/
+**The best and worst year of Nolan Jones' life, and what the public doesn't see**\
+`After a difficult year on and off the field in 2024, Jones returned to the game in 2025 with a stronger sense of  perspective.`\
+https://nytimes.com/athletic/6275078/2025/04/16/nolan-jones-guardians/
 
-**Who will be the best players in the 2026 WNBA Draft? Our big board examines the options**\
-`Where does our expert Sabreena Merchant rank the talent that will be available next season? `\
-https://nytimes.com/athletic/6282604/2025/04/16/wnba-2026-big-board-draft/
+**Why is Laila Edwards, one of the top young forwards in the world, playing defense?**\
+`Edwards, a Patty Kazmaier Award finalist, led the NCAA in scoring this season. Why is she playing out of position at women's worlds?`\
+https://nytimes.com/athletic/6282294/2025/04/16/usa-womens-hockey-laila-edwards-world-championships/
 
-**'The Jokić Bump': How the three-time MVP helps teammates level up**\
-`“The Jokić bump” describes how the three-time MVP boosts teammates. Somehow, anyone who pairs with Jokić experiences a jump in production.`\
-https://nytimes.com/athletic/6276862/2025/04/16/nikola-jokic-christian-braun-mentorship-nba-mvp-denver-nuggets/
+**Women's college basketball transfer portal tracker: Where will MiLaysia Fulwiley land?**\
+`Where will Cotie McMahon go? What about the bevy of UCLA freshmen? `\
+https://nytimes.com/athletic/6245401/2025/04/16/womens-basketball-transfer-portal-olivia-miles-cotie-mcmahon/
 
-**Jets' trade-back possibilities: possible partners, potential draft targets**\
-`Aaron Glenn and Darren Mougey both worked for franchises that were active trading on draft weekend.`\
-https://nytimes.com/athletic/6279137/2025/04/16/jets-draft-trade-back-possibilities/
+**Recruiting thoughts: USC's staying power, Clemson's hot start, UNC's in-state struggles**\
+`Bill Belichick has 13 commitments, but his first full class at North Carolina doesn't include any of the top 12 players in the state. `\
+https://nytimes.com/athletic/6281134/2025/04/16/college-football-recruiting-usc-clemson-north-carolina/
 
-**How Jaire Alexander's future impacts the Packers' draft plans**\
-`The two-time All-Pro cornerback is still a Packer eight days before the draft comes to Green Bay.`\
-https://nytimes.com/athletic/6281564/2025/04/16/green-bay-packers-jaire-alexanders-nfl-draft/
+**MLB Draft notes: Why Jamie Arnold is a possible 1-1 pick, but Seth Hernandez likely isn't**\
+`Notes on Arnold, Hernandez, Billy Carlson, Alex Lodise, Aaron Watson, Josh Hammond and more.`\
+https://nytimes.com/athletic/6280052/2025/04/16/mlb-draft-scouting-reports-jamie-arnold-seth-hernandez-alex-lodise/
 

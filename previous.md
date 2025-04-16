@@ -1,5 +1,9 @@
+**Judges’ Dilemma**\
+`Trump administration lawyers are saying some astonishing things in court, creating a conundrum for the judiciary.`\
+https://nytimes.com/2025/04/16/briefing/trump-lawyers-judiciary.html
+
 **Breaking down the greatest Champions League comeback that never was**\
-`Aston Villa were down and out against PSG — until they weren't. They came inches from a remarkable comeback`\
+`Aston Villa were down and out against PSG… until they weren't. They came inches from a remarkable comeback`\
 https://nytimes.com/athletic/6283221/2025/04/16/aston-villa-comeback-psg/
 
 **British Court Rules Legal Definition of Women is Based on Biological Sex**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6279137/2025/04/16/jets-draft-trade-back-possibilit
 **How Jaire Alexander's future impacts the Packers' draft plans**\
 `The two-time All-Pro cornerback is still a Packer eight days before the draft comes to Green Bay.`\
 https://nytimes.com/athletic/6281564/2025/04/16/green-bay-packers-jaire-alexanders-nfl-draft/
-
-**What's it like to play Augusta National the day after Rory's Masters win? I found out**\
-`I have post-round depression, and in an attempt to alleviate it, here are answers to your questions about my day at Augusta National.`\
-https://nytimes.com/athletic/6282545/2025/04/16/play-augusta-national-masters/
 
