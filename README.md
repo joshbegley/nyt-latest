@@ -1,3 +1,7 @@
+**Breaking down the greatest Champions League comeback that never was**\
+`Aston Villa were down and out against PSG — until they weren't. They came inches from a remarkable comeback`\
+https://nytimes.com/athletic/6283221/2025/04/16/aston-villa-comeback-psg/
+
 **British Court Rules Legal Definition of Women is Based on Biological Sex**\
 `Britain’s Supreme Court ruled on Wednesday that trans women do not meet the legal definition of female under the country’s Equality Act.`\
 https://nytimes.com/video/world/europe/100000010113380/britain-supreme-court-transgender-ruling.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6281564/2025/04/16/green-bay-packers-jaire-alexande
 **What's it like to play Augusta National the day after Rory's Masters win? I found out**\
 `I have post-round depression, and in an attempt to alleviate it, here are answers to your questions about my day at Augusta National.`\
 https://nytimes.com/athletic/6282545/2025/04/16/play-augusta-national-masters/
-
-**Signs keep pointing to Panthers' picking Jalon Walker at No. 8**\
-`The Georgia hybrid linebacker rates as the No. 5 draft prospect in "The Beast" and signs seem to be pointing to the N.C. native coming home.`\
-https://nytimes.com/athletic/6281859/2025/04/16/carolina-panthers-nfl-draft-2025-jalon-walker/
 
