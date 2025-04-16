@@ -1,3 +1,7 @@
+**James could return for Leeds at weekend; Rothwell definitely out**\
+`The Wales winger, 27, finished the 1-0 win over Middlesbrough on April 8 with a hamstring injury.`\
+https://nytimes.com/athletic/6283782/2025/04/16/dan-james-leeds-injury-rothwell/
+
 **Former FC Cincinnati striker Aaron Boupendza dies aged 28**\
 `Boupendza scored seven goals in MLS, while he netted eight times in 35 appearances for Gabon.`\
 https://nytimes.com/athletic/6283709/2025/04/16/aaron-boupendza-death-died-gabon/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/16/style/dislike-friends-new-partner.html
 **Colts mock draft analysis: Does TE still make the most sense in Round1? A QB on Day 3?**\
 `Dane Brugler's final seven-round mock draft has Indy filling its major needs on the first two days of the draft. `\
 https://nytimes.com/athletic/6281858/2025/04/16/colts-nfl-draft-mock-dane-brugler/
-
-**Inside a New York City Museum: Flirting, Fund-Raising and Fraud**\
-`Heather McGowan’s novel “Friends of the Museum” takes place over a single, chaotic day in the lead-up to a Met-inspired costume gala.`\
-https://nytimes.com/2025/04/16/books/review/friends-of-the-museum-heather-mcgowan.html
 

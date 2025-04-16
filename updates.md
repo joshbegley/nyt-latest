@@ -1,3 +1,7 @@
+**Former FC Cincinnati striker Aaron Boupendza dies aged 28**\
+`Boupendza scored seven goals in MLS, while he netted eight times in 35 appearances for Gabon.`\
+https://nytimes.com/athletic/6283709/2025/04/16/aaron-boupendza-death-died-gabon/
+
 **Alexander-Arnold steps up injury recovery with return to Liverpool training**\
 `The England international has missed the past four games since limping out of last month's Champions League defeat to PSG.`\
 https://nytimes.com/athletic/6283767/2025/04/16/alexander-arnold-injury-update-liverpool/
