@@ -1,3 +1,11 @@
+**Alexander-Arnold steps up injury recovery with return to Liverpool training**\
+`The England international has missed the past four games since limping out of last month's Champions League defeat to PSG.`\
+https://nytimes.com/athletic/6283767/2025/04/16/alexander-arnold-injury-update-liverpool/
+
+**The Windup: MLB trailblazer lands a new gig**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6283154/2025/04/16/kim-ng-softball-mlb-the-windup/
+
 **Unions Form Pro Bono Legal Network for Federal Workers Targeted by Trump**\
 `Organized labor has taken a leading role in challenging the Trump administration’s downsizing agenda in court. A new service will offer more individualized representation.`\
 https://nytimes.com/2025/04/16/us/politics/federal-workers-trump-network-unions.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/16/books/review/friends-of-the-museum-heather-mcgowa
 **Why Europe Is Less Panicked About the Stock Market**\
 `Europeans tend to keep more of their money in cash, gaining some protection from the recent market volatility. But President Trump’s tariffs will have an effect, experts said.`\
 https://nytimes.com/2025/04/16/world/europe/european-stock-market-investing.html
-
-**Linkin Park to headline Champions League final pre-match show in Munich**\
-`The rock band said they are 'excited to share some of our favourite songs from the past and present' at the Allianz Arena.`\
-https://nytimes.com/athletic/6283502/2025/04/16/linkin-park-champions-league-final-munich/
-
-**Having left MLB behind, ex-Marlins GM Kim Ng named commissioner of new pro softball league**\
-`Ng, who left the Marlins abruptly in 2023, says she is following her passion and believes this is the perfect time for softball to take off.`\
-https://nytimes.com/athletic/6282422/2025/04/16/kim-ng-marlins-pro-softball-league-commissioner/
 

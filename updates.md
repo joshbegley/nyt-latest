@@ -1,3 +1,11 @@
+**Unions Form Pro Bono Legal Network for Federal Workers Targeted by Trump**\
+`Organized labor has taken a leading role in challenging the Trump administration’s downsizing agenda in court. A new service will offer more individualized representation.`\
+https://nytimes.com/2025/04/16/us/politics/federal-workers-trump-network-unions.html
+
+**Stephen Silas reflects on Rockets' growth, Ime Udoka's coaching and player development**\
+`"I'm thankful for the time I had with them," says the Rockets' former head coach.`\
+https://nytimes.com/athletic/6278574/2025/04/16/houston-rockets-coach-ime-udoka-stephen-silas/
+
 **Ranking the 10 most memorable Crosby vs. Ovechkin moments**\
 `Crosby and Ovechkin have shared the ice for some unforgettable moments. Here are the best.`\
 https://nytimes.com/athletic/6282565/2025/04/16/alex-ovechkin-sidney-crosby-rivalry-highlights/
