@@ -1,3 +1,11 @@
+**Ancelotti unsure on Madrid future after Champions League exit**\
+`Madrid were beaten 5-1 on aggregate by Arsenal in the Champions League quarter-finals.`\
+https://nytimes.com/athletic/6285471/2025/04/16/carlo-ancelotti-real-madrid-future-champions-league/
+
+**Climate Change Is Stressing the World’s Blood Supplies**\
+`Extreme weather disasters, increasing as the planet warms, can curb blood donations while increasing demand, a new analysis found.`\
+https://nytimes.com/2025/04/16/climate/climate-emergency-blood-supply.html
+
 **3 People Believed to Have Drowned in Missouri River**\
 `The three, an 11-year-old girl and two 18-year-olds, went into the water after fishing on Tuesday evening, fire officials in Nebraska said.`\
 https://nytimes.com/2025/04/16/us/missouri-river-girls-missing-omaha.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/04/16/us/trump-news/us-paying-el-salvador-detained
 **Tigers' Riley Greene, Colt Keith and the anatomy of a slump**\
 `As Greene battles a 1-for-32 skid, Keith struggles to find his power. The Tigers are 10-8 but need these two hitters to get going.`\
 https://nytimes.com/athletic/6285190/2025/04/16/tigers-riley-greene-colt-keith-slump/
-
-**Christian Walker knows his offense is 'not good enough' to help Astros**\
-`No offense entered Wednesday with fewer RBIs from the four-hole than the two Walker has produced as an Astro.`\
-https://nytimes.com/athletic/6285255/2025/04/16/christian-walker-struggling-offense-astros/
-
-**A Judge Threatened to Hold Trump Officials in Contempt**\
-`Also, Americans are being cut off from cheaper obesity drugs. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2025/04/16/briefing/trump-officials-court-contempt.html
 
