@@ -1,3 +1,7 @@
+**Stocks Tumble in Asia as Tech Investors Pull Back**\
+`Nvidia, the American semiconductor giant, announced that it had been blocked by the Trump administration from selling chips to China without a license.`\
+https://nytimes.com/2025/04/16/business/stocks-trump-tariffs.html
+
 **Long Live Comrade Trump’s Tariffs**\
 `China’s e-commerce ecosystem illustrates how Trump’s tariffs only strengthen that country’s hand.`\
 https://nytimes.com/2025/04/16/opinion/trump-tariffs-china-ecommerce.html

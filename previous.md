@@ -1,3 +1,7 @@
+**Stocks Tumble in Asia as Tech Investors Pull Back**\
+`Nvidia, the American semiconductor giant, announced that it had been blocked by the Trump administration from selling chips to China without a license.`\
+https://nytimes.com/2025/04/16/business/stocks-trump-tariffs.html
+
 **Long Live Comrade Trump’s Tariffs**\
 `China’s e-commerce ecosystem illustrates how Trump’s tariffs only strengthen that country’s hand.`\
 https://nytimes.com/2025/04/16/opinion/trump-tariffs-china-ecommerce.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6263996/2025/04/16/scott-munn-tottenham-venkatesham
 **Jayden Bogle is Leeds' driving force who has more than justified his £5m arrival**\
 `The right-back has been a key player for Daniel Farke as his side have pushed for promotion from the Championship`\
 https://nytimes.com/athletic/6281059/2025/04/16/jayden-bogle-leeds-united-championship/
-
-**David Pastrnak and Morgan Geekie were sure things this year. Are there more to come?**\
-`For the first time since 2015-16, Pastrnak will not be playing on following the conclusion of the regular season.`\
-https://nytimes.com/athletic/6282771/2025/04/16/bruins-david-pastrnak-morgan-geekie/
 

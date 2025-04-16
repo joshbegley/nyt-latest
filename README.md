@@ -1,3 +1,7 @@
+**Rashford started Aston Villa's transformation. Against PSG he almost finished it**\
+`Aston Villa came very close to a comeback against PSG, inspired in part by Marcus Rashford`\
+https://nytimes.com/athletic/6278632/2025/04/16/aston-villa-marcus-rashford-psg/
+
 **Stocks Tumble in Asia as Tech Investors Pull Back**\
 `Nvidia, the American semiconductor giant, announced that it had been blocked by the Trump administration from selling chips to China without a license.`\
 https://nytimes.com/2025/04/16/business/stocks-trump-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6281793/2025/04/16/bonnie-tyler-manchester-united-f
 **Scott Munn could be a victim of another summer of change at Tottenham Hotspur**\
 `The arrival of Vinai Venkatesham, joining as the new chief executive officer, is unlikely to be the end of the changes to executive roles`\
 https://nytimes.com/athletic/6263996/2025/04/16/scott-munn-tottenham-venkatesham-paratici/
-
-**Jayden Bogle is Leeds' driving force who has more than justified his £5m arrival**\
-`The right-back has been a key player for Daniel Farke as his side have pushed for promotion from the Championship`\
-https://nytimes.com/athletic/6281059/2025/04/16/jayden-bogle-leeds-united-championship/
 
