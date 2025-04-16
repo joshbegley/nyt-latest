@@ -1,3 +1,11 @@
+**Maresca calls on Chelsea fans to 'trust' his methods**\
+`Maresca told Chelsea supporters the club is heading in the right direction compared to the previous two seasons.`\
+https://nytimes.com/athletic/6283956/2025/04/16/enzo-maresca-chelsea-fans-trust/
+
+**W.T.O. Projects Sharp Pullback in Global Trade, Citing Trump’s Tariffs**\
+`The World Trade Organization warned that tariffs would push down both U.S. exports and imports and that trade wars could put poorer countries at risk.`\
+https://nytimes.com/2025/04/16/us/politics/wto-trump-tariffs-trade.html
+
 **The Concert Cold War in a Quiet Enclave**\
 `Designed to be an idyllic neighborhood more than a century ago, Forest Hills Gardens is now a hub for music — and noise complaints.`\
 https://nytimes.com/2025/04/16/arts/music/forest-hills-stadium-concerts-noise.html

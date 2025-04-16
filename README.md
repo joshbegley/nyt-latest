@@ -1,3 +1,7 @@
+**Scoop City: Eye-popping quote from Travis Hunter, praise for Tyler Shough**\
+`Sharing an explosive quote from Travis Hunter, one QB prospect a coach said was better than Cam Ward and exploring AFC draft guides`\
+https://nytimes.com/athletic/6283991/2025/04/16/travis-hunter-tyler-shough-nfl-draft-comments-scoop-city/
+
 **Maresca calls on Chelsea fans to 'trust' his methods**\
 `Maresca told Chelsea supporters the club is heading in the right direction compared to the previous two seasons.`\
 https://nytimes.com/athletic/6283956/2025/04/16/enzo-maresca-chelsea-fans-trust/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6283081/2025/04/16/denver-nuggets-la-clippers-playo
 **They Sell Party Supplies on Amazon. New Tariffs Threaten Their Future.**\
 `An Illinois couple who sell party supplies on Amazon have been frantically trying to understand and adapt to new costs caused by President Trump’s tariffs.`\
 https://nytimes.com/2025/04/16/technology/amazon-sellers-china-tariffs.html
-
-**Patients Cut Off From Cheaper Obesity Drugs as the F.D.A. Halts Sales of Copycats**\
-`U.S. regulators are trying to shut down the industry for compounded weight-loss drugs, which could result in higher costs or suspend treatment for patients.`\
-https://nytimes.com/2025/04/16/health/obesity-drugs-fda-compounding-wegovy-zepbound.html
 
