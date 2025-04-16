@@ -1,9 +1,13 @@
+**Blues clinch playoff spot, ending 2-year drought — will face Jets in first round**\
+`The Blues finish the regular season with 96 points, taking the second wild-card slot in the Western Conference.`\
+https://nytimes.com/athletic/6282426/2025/04/15/blues-clinch-playoffs-nhl-jets/
+
 **Maple Leafs report cards: All-around effort helps Toronto clinch division title**\
 `Mitch Marner got his 100th point of the season and Auston Matthews scored his 400th career goal against the Sabres.`\
 https://nytimes.com/athletic/6282666/2025/04/15/maple-leafs-report-cards-marner-matthews-division-sabres/
 
-**Oilers' Nurse suspended 1 game for cross-checking Quinton Byfield**\
-`Nurse is eligible for a return to Edmonton's lineup for the opening game of their first-round series against the Kings.`\
+**Oilers' Darnell Nurse suspended 1 game for cross-checking Quinton Byfield**\
+`Nurse is eligible for a return to Edmonton's lineup for the opening game of its first-round series against Los Angeles.`\
 https://nytimes.com/athletic/6281367/2025/04/15/oilers-darnell-nurse-suspension-kings/
 
 **NBA Play-In Tournament takeaways: Magic stifle Hawks, Warriors host Grizzlies**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6274490/2025/04/15/maple-leafs-atlantic-division-nh
 **Why Harvard Decided to Fight Trump**\
 `The Trump administration will freeze over $2 billion in federal funds because Harvard refused to comply with a list of demands. Harvard leaders believed saying no was worth the risk.`\
 https://nytimes.com/2025/04/15/us/why-harvard-resisted-trumps-demands.html
-
-**Hong Kong Suspends Packages to the U.S., Wading Into the Trade War**\
-`The move comes before President Trump’s planned imposition of new tariffs on small packages sent to the United States from Hong Kong and China.`\
-https://nytimes.com/2025/04/15/business/hong-kong-post-trade-war.html
 
