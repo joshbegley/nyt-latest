@@ -1,3 +1,15 @@
+**The 20 most interesting players of college football's spring transfer window**\
+`What many personnel directors across the country figured would be a relatively tame spring portal window has quickly become intriguing.`\
+https://nytimes.com/athletic/6282864/2025/04/16/college-football-spring-transfer-portal-best-players/
+
+**California Is Preparing to Take Trump to Court to Stop His Tariffs**\
+`State officials argue in a lawsuit that the U.S. Constitution expressly gives the authority to impose tariffs to Congress.`\
+https://nytimes.com/2025/04/16/us/california-trump-tariffs-lawsuit-newsom-bonta.html
+
+**The Chipmakers Caught in the Trade War Crossfire**\
+`Nvidia and others are the latest casualties of escalating tensions between Washington and Beijing, as analysts press business leaders about the tariffs fallout.`\
+https://nytimes.com/2025/04/16/business/dealbook/nvidia-chips-china-trade-war.html
+
 **Which NHL contenders pass the Cup Checklist going into the playoffs?**\
 `Here's a look at the 16 teams separated into five tiers based on how many boxes they tick on the new-and-improved Cup Checklist.`\
 https://nytimes.com/athletic/6276669/2025/04/16/nhl-playoffs-contenders-stanley-cup-checklist/
@@ -18,23 +30,11 @@ https://nytimes.com/athletic/6282227/2025/04/16/f1-williams-alex-albon-carlos-sa
 `The 29-year-old righty will make his season debut versus the Royals on Wednesday, rejoining a rotation currently without three starters. `\
 https://nytimes.com/athletic/6282727/2025/04/16/clarke-schmidt-new-york-yankees-season-debut/
 
+**Cedric Mullins has become a fixture in Baltimore, but for how much longer?**\
+`The longtime Oriole has been a huge part of the team's resurgence. But he's also a free agent-to-be with potential in-house replacements.`\
+https://nytimes.com/athletic/6282436/2025/04/16/cedric-mullins-baltimore-orioles-free-agency/
+
 **The best and worst year of Nolan Jones' life, and what the public doesn't see**\
 `After a difficult year on and off the field in 2024, Jones returned to the game in 2025 with a stronger sense of  perspective.`\
 https://nytimes.com/athletic/6275078/2025/04/16/nolan-jones-guardians/
-
-**Why is Laila Edwards, one of the top young forwards in the world, playing defense?**\
-`Edwards, a Patty Kazmaier Award finalist, led the NCAA in scoring this season. Why is she playing out of position at women's worlds?`\
-https://nytimes.com/athletic/6282294/2025/04/16/usa-womens-hockey-laila-edwards-world-championships/
-
-**Women's college basketball transfer portal tracker: Where will MiLaysia Fulwiley land?**\
-`Where will Cotie McMahon go? What about the bevy of UCLA freshmen? `\
-https://nytimes.com/athletic/6245401/2025/04/16/womens-basketball-transfer-portal-olivia-miles-cotie-mcmahon/
-
-**Recruiting thoughts: USC's staying power, Clemson's hot start, UNC's in-state struggles**\
-`Bill Belichick has 13 commitments, but his first full class at North Carolina doesn't include any of the top 12 players in the state. `\
-https://nytimes.com/athletic/6281134/2025/04/16/college-football-recruiting-usc-clemson-north-carolina/
-
-**MLB Draft notes: Why Jamie Arnold is a possible 1-1 pick, but Seth Hernandez likely isn't**\
-`Notes on Arnold, Hernandez, Billy Carlson, Alex Lodise, Aaron Watson, Josh Hammond and more.`\
-https://nytimes.com/athletic/6280052/2025/04/16/mlb-draft-scouting-reports-jamie-arnold-seth-hernandez-alex-lodise/
 
