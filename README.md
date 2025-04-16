@@ -1,3 +1,7 @@
+**Trump Administration Directs Judges to Deny Asylum Without Hearings**\
+`A directive from the Justice Department, which says the move is intended to reduce a backlog in immigration court, would result in rapid deportation orders in many cases.`\
+https://nytimes.com/2025/04/16/us/immigration-asylum-judges-policy.html
+
 **Trump Administration Announces Lawsuit Against Maine**\
 `Attorney General Pam Bondi announced the Trump administration’s plan to sue Maine over policies that allow some transgender athletes to compete in women’s sports.`\
 https://nytimes.com/video/us/politics/100000010114219/pam-bondi-maine-transgender-athletes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/16/nyregion/trump-letitia-james-mortgage-fraud.html
 **The Mine Is American. The Minerals Are China’s.**\
 `A Brazilian rare earths mine backed by American investors illustrates China’s grip over the strategic minerals that underpin the modern economy.`\
 https://nytimes.com/2025/04/16/world/americas/brazil-mine-rare-earths-china.html
-
-**How We Can Help Stop Reckless Drivers From Killing Pedestrians**\
-`New York’s red-light and speed camera data tell us something urgent: A minority of bad drivers persistently engage in aberrant behavior. There’s a fix.`\
-https://nytimes.com/live/2025/04/07/opinion/thepoint/brooklyn-pedestrian-deaths-bad-drivers
 
