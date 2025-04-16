@@ -1,3 +1,11 @@
+**Marner hits 100 for the first time in his career: 'It's a special thing, for sure'**\
+`After twice coming agonizingly close, Marner finally topped 100 points in the Leafs' penultimate game of the season.`\
+https://nytimes.com/athletic/6282733/2025/04/15/mitch-marner-100-points-maple-leafs/
+
+**Wild clinch playoff spot, will play Golden Knights — as Fleury earns one last victory**\
+`Minnesota earned the top wild card in the West and will face the Pacific champs. The series is expected to start Sunday in Las Vegas.`\
+https://nytimes.com/athletic/6282767/2025/04/15/wild-fleury-nhl-playoffs-golden-knights/
+
 **Wild clinch playoff spot, give Fleury one more appearance — will play Golden Knights in first round**\
 `Minnesota earned the top wild card in the West and will face the Pacific champs. The series is expected to start in Las Vegas on Sunday.`\
 https://nytimes.com/athletic/6282767/2025/04/15/wild-fleury-nhl-playoffs-golden-knights/
