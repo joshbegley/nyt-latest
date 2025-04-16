@@ -1,3 +1,11 @@
+**Denver Nuggets playoff primer: Russell Westbrook returns, guarding Kawhi Leonard and more**\
+`The Nuggets are 3-0 since their organizational upheaval, but the LA Clippers are hotter, having won eight in a row coming into the playoffs.`\
+https://nytimes.com/athletic/6283081/2025/04/16/denver-nuggets-la-clippers-playoffs/
+
+**They Sell Party Supplies on Amazon. New Tariffs Threaten Their Future.**\
+`An Illinois couple who sell party supplies on Amazon have been frantically trying to understand and adapt to new costs caused by President Trump’s tariffs.`\
+https://nytimes.com/2025/04/16/technology/amazon-sellers-china-tariffs.html
+
 **Patients Cut Off From Cheaper Obesity Drugs as the F.D.A. Halts Sales of Copycats**\
 `U.S. regulators are trying to shut down the industry for compounded weight-loss drugs, which could result in higher costs or suspend treatment for patients.`\
 https://nytimes.com/2025/04/16/health/obesity-drugs-fda-compounding-wegovy-zepbound.html
