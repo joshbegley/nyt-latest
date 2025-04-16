@@ -34,7 +34,7 @@ https://nytimes.com/2025/04/16/us/tattoos-gangs-tren-de-aragua-immigration.html
 `The New York City medical examiner’s office determined the cause and manner of her death after reviewing toxicology test results, a spokeswoman said.`\
 https://nytimes.com/2025/04/16/us/michelle-trachtenberg-cause-of-death-diabetes.html
 
-**Trump Administration Aims to Redefine ‘Harm’ for Endangered Species**\
-`Federal agencies have proposed changing a longstanding interpretation, weakening wildlife protections under the Endangered Species Act.`\
+**By Redefining ‘Harm,’ Agencies Aim to End Longstanding Wildlife Protections**\
+`Trump officials have proposed changing adecades-old interpretation of a key word in the Endangered Species Act, which would make it much easier to log, build or drill for oil.`\
 https://nytimes.com/2025/04/16/climate/trump-endangered-species-act-harm.html
 
