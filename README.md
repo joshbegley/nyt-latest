@@ -1,3 +1,7 @@
+**The Briefing: Real Madrid 1 Arsenal 2 (1-5 agg) -  Exceptional Arsenal, Saka strikes back and Madrid's 42 crosses...**\
+`Saka missed a Panenka penalty but scored a superb goal, and Martinelli was on target too as Arsenal advanced to the semi-finals to face PSG`\
+https://nytimes.com/athletic/6278171/2025/04/16/real-madrid-arsenal-champions-league-analysis-talking-points/
+
 **Giants GM: Drafting a QB 'not mandatory. We don't have our feet to the fire'**\
 `Schoen won't force a pick at QB. "When you’re in position to get the right one at the right time, then you pull the trigger."`\
 https://nytimes.com/athletic/6284875/2025/04/16/new-york-giants-nfl-draft-quarterback-russell-wilson-jameis-winston/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6284633/2025/04/16/nfl-draft-mock-consensus-fantasy
 **Ontario Premier Orders Review of Major Toronto Waterfront Lease**\
 `Doug Ford said he had asked his government to look into the contract that granted a 95-year lease to a European wellness company following a New York Times investigation into the deal.`\
 https://nytimes.com/2025/04/16/world/canada/toronto-spa-therme-lease.html
-
-**De Bruyne: Inter Miami, Chicago, NYCFC, DC interested in midfielder**\
-`The chase to land De Bruyne appears to be heating up around Major League Soccer.`\
-https://nytimes.com/athletic/6284674/2025/04/16/kevin-de-bruyne-mls-manchester-city/
 

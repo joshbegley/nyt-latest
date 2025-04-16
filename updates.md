@@ -1,3 +1,11 @@
+**Giants GM: Drafting a QB 'not mandatory. We don't have our feet to the fire'**\
+`Schoen won't force a pick at QB. "When you’re in position to get the right one at the right time, then you pull the trigger."`\
+https://nytimes.com/athletic/6284875/2025/04/16/new-york-giants-nfl-draft-quarterback-russell-wilson-jameis-winston/
+
+**Nico Iamaleava expected to transfer to UCLA after departure from Tennessee**\
+`Iamaleava officially entered the transfer portal Wednesday with a “do not contact" label.`\
+https://nytimes.com/athletic/6285117/2025/04/16/nico-iamaleava-ucla-tennessee-transfer/
+
 **The Briefing: Inter 2 Bayern Munich 2 (4-3 agg) - Lautaro an inspiration as Inzaghi's side weather the storm**\
 `These sides traded second-half blows in a blustery San Siro with the hosts eventually booking themselves a semi-final against Barcelona`\
 https://nytimes.com/athletic/6278172/2025/04/16/inter-bayern-munich-lautaro-inzaghi-kane-dier/
