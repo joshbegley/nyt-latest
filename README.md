@@ -1,4 +1,8 @@
-**The Briefing: Real Madrid 1 Arsenal 2 (1-5 agg) -  Exceptional Arsenal, Saka strikes back and Madrid's 42 crosses...**\
+**Ex-N.Y.P.D. Detective Gets 18 Months for Stalking Man on China’s Behalf**\
+`Michael McMahon was convicted in 2023 of acting as an unregistered foreign agent, stalking and conspiracy. His case was among several in Brooklyn linked to Chinese repression.`\
+https://nytimes.com/2025/04/16/nyregion/nypd-detective-sentence-china.html
+
+**The Briefing: Real Madrid 1 Arsenal 2 (1-5 agg) -  Exceptional Arsenal, Saka strikes back and Madrid's 42 crosses**\
 `Saka missed a Panenka penalty but scored a superb goal, and Martinelli was on target too as Arsenal advanced to the semi-finals to face PSG`\
 https://nytimes.com/athletic/6278171/2025/04/16/real-madrid-arsenal-champions-league-analysis-talking-points/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6285117/2025/04/16/nico-iamaleava-ucla-tennessee-tr
 **What consensus NFL 2025 mock draft landing spots would mean for fantasy football rookies**\
 `If the consensus of industry mock drafts were to become a reality, what would it mean for fantasy football? Michael Salfino breaks it down.`\
 https://nytimes.com/athletic/6284633/2025/04/16/nfl-draft-mock-consensus-fantasy-football-rookies/
-
-**Ontario Premier Orders Review of Major Toronto Waterfront Lease**\
-`Doug Ford said he had asked his government to look into the contract that granted a 95-year lease to a European wellness company following a New York Times investigation into the deal.`\
-https://nytimes.com/2025/04/16/world/canada/toronto-spa-therme-lease.html
 
