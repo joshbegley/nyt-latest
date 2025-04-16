@@ -1,40 +1,40 @@
+**Senators set to renew playoff hostilities with Leafs: 'Everyone wants the Battle of Ontario'**\
+`It's official. The Ottawa Senators will meet the Toronto Maple Leafs in the Stanley Cup playoffs for the first time since 2004.`\
+https://nytimes.com/athletic/6282661/2025/04/16/senators-maple-leafs-nhl-playoffs-battle-of-ontario/
+
+**'It's already outrageous': Man City fans' successful ticket protests can inspire all supporters**\
+`Recent protests by City fans have made a tangible impact on the club's ticketing policies`\
+https://nytimes.com/athletic/6280483/2025/04/16/manchester-city-fan-protests-tickets/
+
+**A U.S.-China Trade War With Students and Tourists as Potential Pawns**\
+`With travel warnings and revoked visas, the two superpowers locked in a bruising trade war may make students and tourists their bargaining chips.`\
+https://nytimes.com/2025/04/16/world/asia/china-trump-tariffs-students.html
+
+**Both Admired and Resented by Trump, Japan Scrambles to Stay Close**\
+`The president at turns praises and criticizes Japan, a U.S. ally that decades ago stirred his anger over the unequal balance of trade and his penchant for tariffs.`\
+https://nytimes.com/2025/04/16/world/asia/japan-trump-tariffs.html
+
+**Schumer Moves to Block Trump Picks for Two Key Prosecutor Positions**\
+`An arcane Senate tradition effectively gives senators veto power over nominees for U.S. attorney in their home states, providing Democrats a potential opening to stop President Trump’s picks.`\
+https://nytimes.com/2025/04/16/us/schumer-trump-new-york-prosecutors.html
+
+**Connections: Sports Edition Coach: Hints for April 16, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6282467/2025/04/16/connections-sports-edition-hints-for-april-16-2025/
+
+**Even Without Add-Ons, Trump’s 10% Tariffs Will Have a Sting**\
+`The blanket tariffs, once considered extreme, still threaten to harm world trade and make everything more expensive for businesses and consumers.`\
+https://nytimes.com/2025/04/16/business/economy/trump-tariffs-global-economy.html
+
+**Taiwan’s Chip Companies Are Caught in the U.S.-China Tariff War**\
+`President Trump has threatened tariffs on Taiwan and the chip industry. China has signaled it will not let the trade war keep it from the technology it needs.`\
+https://nytimes.com/2025/04/16/business/china-taiwan-tariffs-chips.html
+
+**Quote of the Day: Trump Flirts With Defying Court Orders**\
+`Quotation of the Day for Wednesday, April 16, 2025.`\
+https://nytimes.com/2025/04/15/pageoneplus/quote-of-the-day-trump-flirts-with-defying-court-orders.html
+
 **Lindy Ruff will be back, Owen Power's injury and more: Sabres thoughts**\
 `GM Kevyn Adams announced in a radio appearance that Ruff will return as Sabres coach next season.`\
 https://nytimes.com/athletic/6282803/2025/04/15/sabres-ruff-return-power-luukkonen-leafs/
-
-**2 U.S. Soldiers Killed in Vehicle Accident Near Mexico Border**\
-`Another soldier was seriously wounded, the military said. The cause of the accident is under investigation.`\
-https://nytimes.com/2025/04/15/us/soldiers-dead-crash-mexico-border.html
-
-**Takeaways on the approach to Juan Soto and the Mets' issues with runners on base**\
-`Under the hood, the Mets offense looks solid.`\
-https://nytimes.com/athletic/6282800/2025/04/15/mets-offense-juan-soto-approach/
-
-**Blue Jackets' playoff dreams extend another day, thanks to Jet Greaves**\
-`Greaves made 29 saves for his second shutout in three games — and now all eyes turn to Montreal.`\
-https://nytimes.com/athletic/6282598/2025/04/15/blue-jackets-playoffs-greaves/
-
-**Marner hits 100 for the first time in his career: 'It's a special thing, for sure'**\
-`After twice coming agonizingly close, Marner finally topped 100 points in the Leafs' penultimate game of the season.`\
-https://nytimes.com/athletic/6282733/2025/04/15/mitch-marner-100-points-maple-leafs/
-
-**Wild clinch playoff spot, will play Golden Knights — as Fleury earns one last victory**\
-`Minnesota earned the top wild card in the West and will face the Pacific champs. The series is expected to start Sunday in Las Vegas.`\
-https://nytimes.com/athletic/6282767/2025/04/15/wild-fleury-nhl-playoffs-golden-knights/
-
-**Kareem Abdul-Jabbar speaks out on anti-DEI policies on Jackie Robinson Day**\
-`The Lakers legend joined players from the Dodgers and Rockies in front of Dodger Stadium on Tuesday.`\
-https://nytimes.com/athletic/6282515/2025/04/15/jackie-robinson-day-kareem-abdul-jabbar-dodgers/
-
-**Blues clinch playoff spot, ending 2-year drought — will face Jets in first round**\
-`The Blues finish the regular season with 96 points, taking the second wild-card slot in the Western Conference.`\
-https://nytimes.com/athletic/6282426/2025/04/15/blues-clinch-playoffs-nhl-jets/
-
-**Maple Leafs report cards: All-around effort helps Toronto clinch division title**\
-`Mitch Marner got his 100th point of the season and Auston Matthews scored his 400th career goal against the Sabres.`\
-https://nytimes.com/athletic/6282666/2025/04/15/maple-leafs-report-cards-marner-matthews-division-sabres/
-
-**Oilers' Darnell Nurse suspended 1 game for cross-checking Quinton Byfield**\
-`Nurse is eligible for a return to Edmonton's lineup for the opening game of its first-round series against Los Angeles.`\
-https://nytimes.com/athletic/6281367/2025/04/15/oilers-darnell-nurse-suspension-kings/
 
