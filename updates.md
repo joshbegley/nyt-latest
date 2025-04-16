@@ -1,3 +1,7 @@
+**Onana to start for Man United vs. Lyon**\
+`The Cameroon international faced criticism over both goals conceded in the first leg against Lyon.`\
+https://nytimes.com/athletic/6277929/2025/04/16/manchester-united-team-news-onana-lyon/
+
 **Amorim invites McIlroy to Old Trafford after historic Masters victory**\
 `Amorim said McIlroy winning the Masters seemed 'impossible', adding 'we want that feeling' at Old Trafford.`\
 https://nytimes.com/athletic/6283462/2025/04/16/manchester-united-amorim-mcilroy-masters/
