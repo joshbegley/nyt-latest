@@ -1,3 +1,11 @@
+**Patients Cut Off From Cheaper Obesity Drugs as the F.D.A. Halts Sales of Copycats**\
+`U.S. regulators are trying to shut down the industry for compounded weight-loss drugs, which could result in higher costs or suspend treatment for patients.`\
+https://nytimes.com/2025/04/16/health/obesity-drugs-fda-compounding-wegovy-zepbound.html
+
+**Pope Francis Thanks Doctors and Nurses for His Recovery**\
+`Although the pontiff has begun meeting with more people, he remains frail and will not lead important Easter events, the Vatican announced.`\
+https://nytimes.com/2025/04/16/world/europe/pope-francis-recovery-health.html
+
 **Will Americans Eat a $100 Tariff on Shein Packages?**\
 `The Trump administration’s plan to add steep fees to packages from China will deal a blow to Temu, Shein and some TikTok Shop sellers, worrying American consumers.`\
 https://nytimes.com/2025/04/16/business/tariffs-china-shein-temu.html

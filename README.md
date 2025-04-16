@@ -1,3 +1,11 @@
+**Denver Nuggets playoff primer: Russell Westbrook returns, guarding Kawhi Leonard and more**\
+`The Nuggets are 3-0 since their organizational upheaval, but the LA Clippers are hotter, having won eight in a row coming into the playoffs.`\
+https://nytimes.com/athletic/6283081/2025/04/16/denver-nuggets-la-clippers-playoffs/
+
+**They Sell Party Supplies on Amazon. New Tariffs Threaten Their Future.**\
+`An Illinois couple who sell party supplies on Amazon have been frantically trying to understand and adapt to new costs caused by President Trump’s tariffs.`\
+https://nytimes.com/2025/04/16/technology/amazon-sellers-china-tariffs.html
+
 **Patients Cut Off From Cheaper Obesity Drugs as the F.D.A. Halts Sales of Copycats**\
 `U.S. regulators are trying to shut down the industry for compounded weight-loss drugs, which could result in higher costs or suspend treatment for patients.`\
 https://nytimes.com/2025/04/16/health/obesity-drugs-fda-compounding-wegovy-zepbound.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6283380/2025/04/16/pedri-barcelona-champions-league
 **Penguins' Kris Letang has surgery to repair hole in heart**\
 `The hole was discovered after Letang's first stroke in January 2014. Letang suffered a second stroke in 2022.`\
 https://nytimes.com/athletic/6283746/2025/04/16/kris-letang-heart-surgery-penguins/
-
-**Maryland Senator Heads to El Salvador to Check on Man Deported From His State**\
-`Senator Chris Van Hollen said he would press for the release of Kilmar Armando Abrego Garcia, a Salvadoran immigrant who was mistakenly deported by the Trump administration and imprisoned.`\
-https://nytimes.com/2025/04/16/us/politics/maryland-el-salvador-senator-van-hollen-abrego-garcia-deportation.html
-
-**How China Took Over the World’s Rare Earths Industry**\
-`China seized mines and built factories. Japan took note and invested in Australia. But the United States did little despite concerns about control of supplies.`\
-https://nytimes.com/2025/04/16/business/china-rare-earths-us.html
 

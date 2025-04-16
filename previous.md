@@ -1,3 +1,11 @@
+**Patients Cut Off From Cheaper Obesity Drugs as the F.D.A. Halts Sales of Copycats**\
+`U.S. regulators are trying to shut down the industry for compounded weight-loss drugs, which could result in higher costs or suspend treatment for patients.`\
+https://nytimes.com/2025/04/16/health/obesity-drugs-fda-compounding-wegovy-zepbound.html
+
+**Pope Francis Thanks Doctors and Nurses for His Recovery**\
+`Although the pontiff has begun meeting with more people, he remains frail and will not lead important Easter events, the Vatican announced.`\
+https://nytimes.com/2025/04/16/world/europe/pope-francis-recovery-health.html
+
 **Will Americans Eat a $100 Tariff on Shein Packages?**\
 `The Trump administration’s plan to add steep fees to packages from China will deal a blow to Temu, Shein and some TikTok Shop sellers, worrying American consumers.`\
 https://nytimes.com/2025/04/16/business/tariffs-china-shein-temu.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/16/us/politics/maryland-el-salvador-senator-van-holl
 **How China Took Over the World’s Rare Earths Industry**\
 `China seized mines and built factories. Japan took note and invested in Australia. But the United States did little despite concerns about control of supplies.`\
 https://nytimes.com/2025/04/16/business/china-rare-earths-us.html
-
-**'I just keep being myself': Coby White discovers his leadership role with the Bulls**\
-`In his sixth season with the Bulls, White has taken his game to another level after multiple trades changed the team's makeup.`\
-https://nytimes.com/athletic/6278381/2025/04/16/chicago-bulls-nba-coby-white-basketball/
-
-**James could return for Leeds at weekend; Rothwell definitely out**\
-`The Wales winger, 27, finished the 1-0 win over Middlesbrough on April 8 with a hamstring injury.`\
-https://nytimes.com/athletic/6283782/2025/04/16/dan-james-leeds-injury-rothwell/
 
