@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6278808/2025/04/16/nhl-draft-2025-ranking-schaefer-
 `\
 https://nytimes.com/athletic/6278808/2025/04/16/nhl-draft-2025-ranking-schaefer-misa/
 
+**2025 NHL Draft ranking: Schaefer leads Pronman’s April list, Misa follows**\
+`The 2025 NHL Draft picture is becoming clearer, with a stronger forward group but less depth of talent on defense. 
+`\
+https://nytimes.com/athletic/6278808/2025/04/16/nhl-draft-2025-ranking-schaefer-misa/
+
 **Mandel's mailbag: Is Nico Iamaleava worth it? Which schools are possible suitors?**\
 `Stewart Mandel, the editor-in-chief of The Athletic's college football coverage, answers reader questions. `\
 https://nytimes.com/athletic/6281869/2025/04/16/nico-iamaleava-ncaa-mandel-mailbag/
