@@ -1,3 +1,7 @@
+**Ja Morant’s ankle injury is the latest hurdle for snakebitten Grizzlies**\
+`Morant insisted he will play in Friday's win-or-go home Play-In game, but it's fair to wonder how much more Memphis can withstand.`\
+https://nytimes.com/athletic/6283201/2025/04/16/ja-morants-ankle-injury-grizzlies-nba-play-in/
+
 **'Weather doping': Discus records tumble but not without controversy**\
 `Mykolas Alekna, the Paris 2024 silver medallist from Lithuania, broke his own world record twice on Sunday.`\
 https://nytimes.com/athletic/6283317/2025/04/16/discus-oklahoma-weather-wind/
