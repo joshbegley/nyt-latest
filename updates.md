@@ -1,3 +1,8 @@
+**Europa League quarter-final odds: United's and Spurs’ seasons hang in the balance**\
+`Sam Tighe has a look at the key betting angles ahead of this Thursday’s Europa League quarter-finals.
+`\
+https://nytimes.com/athletic/6283433/2025/04/16/europa-league-quarter-final-betting-odds-predictions/
+
 **Court Scraps $8 Credit Card Late Fee Limit, at Consumer Bureau’s Request**\
 `The Consumer Financial Protection Bureau switched sides and backed a federal lawsuit by banks and business groups seeking to eliminate a fee cap the bureau set last year.`\
 https://nytimes.com/2025/04/16/business/credit-card-late-fee-limit-cfpb.html

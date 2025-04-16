@@ -1,3 +1,7 @@
+**Two Judges Order Federal Agencies to Unfreeze Climate Money**\
+`The rulings are setbacks to Trump’s efforts to halt climate and environmental funding approved under the Biden administration.`\
+https://nytimes.com/2025/04/16/climate/trump-court-epa-funding-freeze.html
+
 **Court Scraps $8 Credit Card Late Fee Limit, at Consumer Bureau’s Request**\
 `The Consumer Financial Protection Bureau switched sides and backed a federal lawsuit by banks and business groups seeking to eliminate a fee cap the bureau set last year.`\
 https://nytimes.com/2025/04/16/business/credit-card-late-fee-limit-cfpb.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6283433/2025/04/16/europa-league-quarter-final-bett
 **Pelicans hire Joe Dumars as EVP of basketball operations**\
 `Dumars replaces David Griffin, who New Orleans fired Monday after the team missed the playoffs for the fourth time in six seasons.`\
 https://nytimes.com/athletic/6280948/2025/04/16/joe-dumars-pelicans-nba-president-of-basketball-ops/
-
-**Ousted Stanford coach Troy Taylor criticizes coverage of firing as 'unfair'**\
-`Taylor said investigations into his conduct with female athletic department administrators should not have been shared with media outlets.`\
-https://nytimes.com/athletic/6284211/2025/04/16/stanford-troy-taylor-investigations-coverage/
 
