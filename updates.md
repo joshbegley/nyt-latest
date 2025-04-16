@@ -1,3 +1,11 @@
+**Corrections: April 16, 2025**\
+`Corrections that appeared in print on Wednesday, April 16, 2025.`\
+https://nytimes.com/2025/04/15/pageoneplus/corrections-april-16-2025.html
+
+**A Top Democratic Official Plots to Take Down Party Incumbents**\
+`David Hogg, a young liberal activist and now a vice chair of the Democratic National Committee, is leading an effort to unseat the party’s older lawmakers in primaries.`\
+https://nytimes.com/2025/04/15/us/politics/david-hogg-dnc-leaders-we-deserve.html
+
 **Biden Says Trump Is ‘Breaking Things,’ Including the Safety Net**\
 `In Joseph R. Biden Jr.’s first extensive speech since he left office, he accused the Trump administration of “taking a hatchet” to the Social Security Administration.`\
 https://nytimes.com/2025/04/15/us/joe-biden-speech.html

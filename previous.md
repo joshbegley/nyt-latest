@@ -1,3 +1,11 @@
+**Corrections: April 16, 2025**\
+`Corrections that appeared in print on Wednesday, April 16, 2025.`\
+https://nytimes.com/2025/04/15/pageoneplus/corrections-april-16-2025.html
+
+**A Top Democratic Official Plots to Take Down Party Incumbents**\
+`David Hogg, a young liberal activist and now a vice chair of the Democratic National Committee, is leading an effort to unseat the party’s older lawmakers in primaries.`\
+https://nytimes.com/2025/04/15/us/politics/david-hogg-dnc-leaders-we-deserve.html
+
 **Biden Says Trump Is ‘Breaking Things,’ Including the Safety Net**\
 `In Joseph R. Biden Jr.’s first extensive speech since he left office, he accused the Trump administration of “taking a hatchet” to the Social Security Administration.`\
 https://nytimes.com/2025/04/15/us/joe-biden-speech.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/04/15/us/trump-news/trump-picks-a-hunter-biden-whi
 **Trump Gives Conflicting Signals and Mixed Messages on Iran Nuclear Talks**\
 `The Trump administration started with an simple goal: Make Iran dismantle its nuclear and missile programs. Then its top negotiator started softening his tone, and had to retreat.`\
 https://nytimes.com/2025/04/15/us/politics/trump-iran-nuclear-negotations.html
-
-**Trump administration places staff of homelessness agency on leave.**\
-`The move accelerates the administration’s push to dismantle the United States Interagency Council on Homelessness.`\
-https://nytimes.com/live/2025/04/15/us/trump-news/trump-administration-places-staff-of-homelessness-agency-on-leave
-
-**New York Leaders Agree to Ease Evidence Requirements for Prosecutors**\
-`The contentious issue has delayed an already late state budget, with Gov. Kathy Hochul insisting that it be resolved before budget talks could advance.`\
-https://nytimes.com/2025/04/15/nyregion/discovery-judges-law-ny.html
 
