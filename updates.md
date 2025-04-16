@@ -1,3 +1,11 @@
+**Adams’s Legal Debt Rises to $3 Million as Donors Fade Away**\
+`The federal charges against Mayor Eric Adams were dropped. Now he owes millions in legal expenses and must navigate a complex relationship with President Trump.`\
+https://nytimes.com/2025/04/16/nyregion/adams-legal-defense-fund.html
+
+**Finding 314 Things the Government Might Know About You**\
+`Two reporters spent over a month compiling and analyzing information about the reams of data the U.S. government collects about Americans.`\
+https://nytimes.com/2025/04/16/insider/trump-musk-data-access.html
+
 **Ex-N.Y.P.D. Detective Gets 18 Months for Stalking Man on China’s Behalf**\
 `Michael McMahon was convicted in 2023 of acting as an unregistered foreign agent, stalking and conspiracy. His case was among several in Brooklyn linked to Chinese repression.`\
 https://nytimes.com/2025/04/16/nyregion/nypd-detective-sentence-china.html
