@@ -1,3 +1,11 @@
+**Wink Martindale, Popular and Durable Game Show Host, Dies at 91**\
+`He was involved in more than 20 game shows, most memorably as the host of “Gambit” and “Tic-Tac-Dough” in the 1970s and ’80s.`\
+https://nytimes.com/2025/04/15/arts/television/wink-martindale-dead.html
+
+**What Trump’s Meeting With Bukele Means**\
+`President Nayib Bukele of El Salvador has found a spot on the global stage by opening the doors of his prison system to President Trump.`\
+https://nytimes.com/video/us/politics/100000010110423/what-trumps-meeting-with-bukele-means.html
+
 **4 Injured in Dallas School Shooting, Authorities Say**\
 `Three students were wounded by gunfire and a fourth also was injured when gunfire erupted at Wilmer-Hutchins High School on Tuesday afternoon, officials said.`\
 https://nytimes.com/2025/04/15/us/dallas-school-shooting-wilmer-hutchins.html

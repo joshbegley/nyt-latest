@@ -1,3 +1,11 @@
+**Wink Martindale, Popular and Durable Game Show Host, Dies at 91**\
+`He was involved in more than 20 game shows, most memorably as the host of “Gambit” and “Tic-Tac-Dough” in the 1970s and ’80s.`\
+https://nytimes.com/2025/04/15/arts/television/wink-martindale-dead.html
+
+**What Trump’s Meeting With Bukele Means**\
+`President Nayib Bukele of El Salvador has found a spot on the global stage by opening the doors of his prison system to President Trump.`\
+https://nytimes.com/video/us/politics/100000010110423/what-trumps-meeting-with-bukele-means.html
+
 **4 Injured in Dallas School Shooting, Authorities Say**\
 `Three students were wounded by gunfire and a fourth also was injured when gunfire erupted at Wilmer-Hutchins High School on Tuesday afternoon, officials said.`\
 https://nytimes.com/2025/04/15/us/dallas-school-shooting-wilmer-hutchins.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/politics/100000010112873/biden-social-security-trum
 **A.C.L.U. Sues Defense Department Schools Over Book Bans**\
 `Schools run by the Defense Department removed books and made other changes in response to orders from President Trump and his secretary of defense.`\
 https://nytimes.com/2025/04/15/us/aclu-sues-defense-department-schools-over-book-bans.html
-
-**White House Ends a Regular Reporting Slot for Independent Newswires**\
-`The move, which affects The Associated Press, Bloomberg News and Reuters, is another effort by the Trump administration to exert more control over the press corps that covers it.`\
-https://nytimes.com/2025/04/15/business/media/trump-white-house-newswire-press.html
-
-**Cubs option struggling Matt Shaw to Triple A among a flurry of roster moves**\
-`The Cubs seemed prepared to deal with Shaw's inevitable growing pains but he wound up hitting .172 (10-for-58) in 18 games.`\
-https://nytimes.com/athletic/6282359/2025/04/15/cubs-option-matt-shaw-triple-a-struggles/
 
