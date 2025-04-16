@@ -1,3 +1,7 @@
+**Israel Threatens Further Escalation in Gaza War**\
+`The United Nations warned that the humanitarian situation in Gaza was likely at its worst since the conflict began and that the population was again on the brink of famine.`\
+https://nytimes.com/2025/04/16/world/middleeast/israel-threatens-gaza-escalation.html
+
 **Jimmy Butler helps Warriors extend shelf life of their remarkable era of contention**\
 `Butler starred against the Grizzlies in the Play-In, showing why his addition gives Golden State a chance at yet another playoff run.`\
 https://nytimes.com/athletic/6283210/2025/04/16/warriors-jimmy-butler-nba-playoffs/
