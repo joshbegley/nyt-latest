@@ -1,3 +1,11 @@
+**Takeaways on the approach to Juan Soto and the Mets' issues with runners on base**\
+`Under the hood, the Mets' offense looks solid.`\
+https://nytimes.com/athletic/6282800/2025/04/15/mets-offense-juan-soto-approach/
+
+**Blue Jackets' playoff dreams extend another day, thanks to Jet Greaves**\
+`Greaves made 29 saves for his second shutout in three games — and now all eyes turn to Montreal.`\
+https://nytimes.com/athletic/6282598/2025/04/15/blue-jackets-playoffs-greaves/
+
 **Marner hits 100 for the first time in his career: 'It's a special thing, for sure'**\
 `After twice coming agonizingly close, Marner finally topped 100 points in the Leafs' penultimate game of the season.`\
 https://nytimes.com/athletic/6282733/2025/04/15/mitch-marner-100-points-maple-leafs/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6282251/2025/04/15/nba-play-in-warriors-grizzlies-m
 **Connor Bedard ready to 'attack' offseason after two goals in season finale**\
 `Bedard's first two-goal game of the season had him contemplating where he'd like to improve next.`\
 https://nytimes.com/athletic/6282511/2025/04/15/blackhawks-connor-bedard-offseason-senators/
-
-**2 Protesters at Marjorie Taylor Greene Town Hall Are Subdued With Stun Guns**\
-`Three people, including the two who were subdued with stun guns, were arrested.`\
-https://nytimes.com/2025/04/15/us/politics/marjorie-taylor-greene-protesters.html
-
-**China Girds for Economic Stress of Trump’s Tariffs**\
-`The economy grew steadily from January through March, but U.S. tariffs pose a risk for China in the coming weeks and months.`\
-https://nytimes.com/2025/04/15/business/china-economy-gdp-q1.html
 
