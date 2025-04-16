@@ -1,3 +1,15 @@
+**Washington Takes Aim at DeepSeek and Its American Chip Supplier, Nvidia**\
+`China’s success in artificial intelligence has the Trump administration and lawmakers weighing rules and investigations to slow Beijing’s progress in the industry.`\
+https://nytimes.com/2025/04/16/technology/nvidia-deepseek-china-ai-trump.html
+
+**Peru’s Former First Lady Flees as She and Ex-President Are Sentenced to Prison**\
+`Former President Ollanta Humala and his wife, Nadine Heredia, were sentenced on Tuesday to 15 years in prison for money laundering. Brazil granted her diplomatic asylum, officials said.`\
+https://nytimes.com/2025/04/16/world/americas/peru-president-first-lady-prison.html
+
+**Spurs captain Son to miss Europa League second leg against Frankfurt**\
+`Son started the 1-1 draw in the first leg but was left out of the squad for Tottenham's 4-2 defeat against Wolves on Sunday.`\
+https://nytimes.com/athletic/6284511/2025/04/16/son-heung-min-tottenham-injury-update/
+
 **2 Guards Charged With Murder in Beating Death of Prisoner in New York**\
 `Ten officers were charged in connection with the vicious beating of Messiah Nantwi, 22, at the Mid-State Correctional Facility, which left him bloodied and unrecognizable.`\
 https://nytimes.com/2025/04/16/nyregion/messiah-nantwi-beating-death-charges.html
