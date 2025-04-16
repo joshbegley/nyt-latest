@@ -1,3 +1,19 @@
+**The Concert Cold War in a Quiet Enclave**\
+`Designed to be an idyllic neighborhood more than a century ago, Forest Hills Gardens is now a hub for music — and noise complaints.`\
+https://nytimes.com/2025/04/16/arts/music/forest-hills-stadium-concerts-noise.html
+
+**On the Stand, Zuckerberg Says TikTok Is a Major Competitive Threat**\
+`The Meta chief executive testified for a third day in a landmark antitrust trial accusing his company of quashing competition through acquisitions.`\
+https://nytimes.com/2025/04/16/technology/zuckerberg-meta-antitrust-trial.html
+
+**England to play Jamaica in final pre-Euro 2025 friendly**\
+`The match will be the first meeting between the Lionesses and Jamaica, and will take place on Sunday, June 29.`\
+https://nytimes.com/athletic/6283996/2025/04/16/england-women-jamaica-friendly/
+
+**‘Absolutely Delicious! 6 Stars Would Not Be Enough.’**\
+`Readers love this Korean fried chicken recipe, and so do I.`\
+https://nytimes.com/2025/04/16/dining/absolutely-delicious-6-stars-would-not-be-enough.html
+
 **Help Preserve Your Vision Longer**\
 `IZERVAY™ May Slow the Progression of Geographic Atrophy`\
 https://nytimes.com/paidpost/astellas/help-preserve-your-vision-longer.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/04/16/world/europe/pope-francis-recovery-health.html
 **Will Americans Eat a $100 Tariff on Shein Packages?**\
 `The Trump administration’s plan to add steep fees to packages from China will deal a blow to Temu, Shein and some TikTok Shop sellers, worrying American consumers.`\
 https://nytimes.com/2025/04/16/business/tariffs-china-shein-temu.html
-
-**Law Firms Made Deals With Trump. Now He Wants More From Them.**\
-`To avoid retribution, big firms agreed to provide free legal services for uncontroversial causes. To the White House, that could mean negotiating trade deals — or even defending the president and his allies.`\
-https://nytimes.com/2025/04/16/us/politics/law-firms-deals-trump.html
-
-**Lowetide: Why signing Trent Frederic before free agency is a risk for Oilers**\
-`The Oilers acquired Frederic at the trade deadline, and he's been hurt for almost the entire time.`\
-https://nytimes.com/athletic/6280768/2025/04/16/oilers-trent-frederic-stats-contract/
-
-**Sudanese Paramilitary Group Declares Parallel Government as 400,000 Flee Offensive**\
-`The United Nations said that at least 300 people were killed when the armed group, the Rapid Support Forces, stormed a camp in Darfur.`\
-https://nytimes.com/2025/04/16/world/africa/sudan-rsf-zamzam.html
-
-**The six minutes that proved just how vital Pedri is to Barcelona**\
-`Hansi Flick's side initially struggled against Borussia Dortmund without their midfield general. Once he was brought on, they took control`\
-https://nytimes.com/athletic/6283380/2025/04/16/pedri-barcelona-champions-league-hopes/
 
