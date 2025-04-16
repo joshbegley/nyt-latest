@@ -1,3 +1,7 @@
+**Why Premier League teams (yes, especially Liverpool) are so dangerous after defending corners**\
+`Goals from corners are down and counter-attacks from corners are up`\
+https://nytimes.com/athletic/6278419/2025/04/16/counter-attacks-from-defending-corners-premier-league/
+
 **Senators set to renew playoff hostilities with Leafs: 'Everyone wants the Battle of Ontario'**\
 `It's official. The Ottawa Senators will meet the Toronto Maple Leafs in the Stanley Cup playoffs for the first time since 2004.`\
 https://nytimes.com/athletic/6282661/2025/04/16/senators-maple-leafs-nhl-playoffs-battle-of-ontario/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/16/business/china-taiwan-tariffs-chips.html
 **Quote of the Day: Trump Flirts With Defying Court Orders**\
 `Quotation of the Day for Wednesday, April 16, 2025.`\
 https://nytimes.com/2025/04/15/pageoneplus/quote-of-the-day-trump-flirts-with-defying-court-orders.html
-
-**Lindy Ruff will be back, Owen Power's injury and more: Sabres thoughts**\
-`GM Kevyn Adams announced in a radio appearance that Ruff will return as Sabres coach next season.`\
-https://nytimes.com/athletic/6282803/2025/04/15/sabres-ruff-return-power-luukkonen-leafs/
 
