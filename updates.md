@@ -1,3 +1,11 @@
+**Alexander-Arnold steps up injury recovery with return to Liverpool training**\
+`The England international has missed the past four games since limping out of last month's Champions League defeat to PSG.`\
+https://nytimes.com/athletic/6283767/2025/04/16/alexander-arnold-injury-update-liverpool/
+
+**The Windup: MLB trailblazer lands a new gig**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6283154/2025/04/16/kim-ng-softball-mlb-the-windup/
+
 **Unions Form Pro Bono Legal Network for Federal Workers Targeted by Trump**\
 `Organized labor has taken a leading role in challenging the Trump administration’s downsizing agenda in court. A new service will offer more individualized representation.`\
 https://nytimes.com/2025/04/16/us/politics/federal-workers-trump-network-unions.html
