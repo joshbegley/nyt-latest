@@ -1,3 +1,27 @@
+**Read Judge Boasberg’s Ruling**\
+`A federal judge in Washington said the Trump administration had shown a “willful disregard” for his order to halt deportations under the Alien Enemies Act.`\
+https://nytimes.com/interactive/2025/04/16/us/boasberg-ruling-document.html
+
+**Weather Service Prepares for ‘Degraded Operations’ Amid Trump Cuts**\
+`An internal document describes how severe shortages of meteorologists and other staff members could affect forecasts and other operations.`\
+https://nytimes.com/2025/04/16/climate/national-weather-service-forecast-doge-trump.html
+
+**Stefanik, a Trump Ally, Might Run Against Gov. Hochul Next Year**\
+`Representative Elise Stefanik, a six-term congresswoman, has talked with Republicans about a 2026 bid for governor of New York.`\
+https://nytimes.com/2025/04/16/nyregion/elise-stefanik-governor-ny.html
+
+**Duke guard Kon Knueppel declares for 2025 NBA Draft**\
+`In 39 games, Knueppel averaged 14.4 points, 4.0 rebounds and 2.7 assists on a solid 47.9 percent shooting in 30 minutes per game`\
+https://nytimes.com/athletic/6284382/2025/04/16/duke-kon-knueppel-declares-nba-draft/
+
+**Sanders and Ocasio-Cortez Electrify Democrats Who Want to Fight Trump**\
+`Bernie Sanders and his chosen heir, Alexandria Ocasio-Cortez, have drawn enormous crowds on their “Fighting Oligarchy” tour, energizing a beaten-down Democratic Party.`\
+https://nytimes.com/2025/04/16/us/politics/bernie-sanders-aoc-trump-democrats.html
+
+**Serena Williams 'doesn't know' if she regrets Super Bowl appearance**\
+`Williams reflected on her appearance at Super Bowl LIX during Kendrick Lamar's halftime show, in which she danced to “Not Like Us.”`\
+https://nytimes.com/athletic/6284494/2025/04/16/serena-williams-super-bowl-kendrick-lamar-not-like-us-halftime-show/
+
 **Thompson: Steph Curry's Warriors have done it all, but Tuesday was different**\
 `The Warriors' Play-In win Tuesday over the Grizzlies brought out a new kind of emotion for the decorated dynasty — exhilarating relief.`\
 https://nytimes.com/athletic/6284401/2025/04/16/stephen-curry-warriors-grizzlies-play-in-playoffs/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/04/16/world/africa/south-africa-pastor-kidnapping-rescu
 **Seth Rogen’s Trump Jokes Are Edited Out of Awards Broadcast**\
 `While presenting an award at the Breakthrough Prize ceremony this month, Mr. Rogen said President Trump had “single-handedly destroyed all of American science.”`\
 https://nytimes.com/2025/04/16/arts/seth-rogen-breakthrough-prize-ceremony.html
-
-**What does Rory McIlroy's resilience reveal for the rest of us? This week's MoneyCall**\
-`In this week's MoneyCall, how Rory McIlroy's resilience dovetails with an exciting new coverage initiative from The Athletic.`\
-https://nytimes.com/athletic/6284559/2025/04/16/rory-mcilroy-peak-paige-bueckers-wnba/
-
-**Man Who Sent Bomb Threat to a Cruise His Girlfriend Was On Is Sentenced**\
-`The Michigan man said he was upset because his girlfriend went on a Caribbean cruise with her family, leaving him to care for their pets, according to court filings.`\
-https://nytimes.com/2025/04/16/us/michigan-man-bomb-threat-cruise.html
-
-**Celebrity Homes**\
-`News about celebrities and how their are designed, bought, sold and lived in, renovated and decorated.`\
-https://nytimes.com/spotlight/celebrity-homes
-
-**OpenAI Unveils Technology That Can ‘Reason’ With Images**\
-`The company also introduced a new tool that helps computer programmers use chatbots when writing code.`\
-https://nytimes.com/2025/04/16/technology/openai-reasoning-models-o3-o4-mini.html
-
-**Washington Takes Aim at DeepSeek and Its American Chip Supplier, Nvidia**\
-`China’s success in artificial intelligence has the Trump administration and lawmakers weighing rules and investigations to slow Beijing’s progress in the industry.`\
-https://nytimes.com/2025/04/16/technology/nvidia-deepseek-china-ai-trump.html
-
-**Peru’s Former First Lady Flees as She and Ex-President Are Sentenced to Prison**\
-`Former President Ollanta Humala and his wife, Nadine Heredia, were sentenced on Tuesday to 15 years in prison for money laundering. Brazil granted her diplomatic asylum, officials said.`\
-https://nytimes.com/2025/04/16/world/americas/peru-president-first-lady-prison.html
 
