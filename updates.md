@@ -1,3 +1,11 @@
+**Here’s what happened on Tuesday.**\
+`By The New York Times`\
+https://nytimes.com/live/2025/04/15/us/trump-news/heres-what-happened-on-tuesday
+
+**What to Know as Trump Freezes Federal Funds for Harvard and Other Universities**\
+`President Trump is trying to influence which colleges receive federal financial support, a practice that began around the time of World War II.`\
+https://nytimes.com/2025/04/15/us/politics/trump-university-funding-harvard.html
+
 **Wink Martindale, Popular and Durable Game Show Host, Dies at 91**\
 `He was involved in more than 20 game shows, most memorably as the host of “Gambit” and “Tic-Tac-Dough” in the 1970s and ’80s.`\
 https://nytimes.com/2025/04/15/arts/television/wink-martindale-dead.html
