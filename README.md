@@ -1,3 +1,7 @@
+**Why Harvard Decided to Fight Trump**\
+`The Trump administration will freeze over $2 billion in federal funds because Harvard refused to comply with a list of demands. Harvard leaders believed saying no was worth the risk.`\
+https://nytimes.com/2025/04/15/us/why-harvard-resisted-trumps-demands.html
+
 **Hong Kong Suspends Packages to the U.S., Wading Into the Trade War**\
 `The move comes before President Trump’s planned imposition of new tariffs on small packages sent to the United States from Hong Kong and China.`\
 https://nytimes.com/2025/04/15/business/hong-kong-post-trade-war.html
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/6275929/2025/04/15/patrick-lalime-maple-leafs-senat
 `Corrections that appeared in print on Wednesday, April 16, 2025.`\
 https://nytimes.com/2025/04/15/pageoneplus/corrections-april-16-2025.html
 
-**A Top Democratic Official Plots to Take Down Party Incumbents**\
+**A Top Democratic Officer Plots to Take Down Party Incumbents**\
 `David Hogg, a young liberal activist and now a vice chair of the Democratic National Committee, is leading an effort to unseat the party’s older lawmakers in primaries.`\
 https://nytimes.com/2025/04/15/us/politics/david-hogg-dnc-leaders-we-deserve.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/15/us/politics/trump-university-funding-harvard.html
 **Wink Martindale, Popular and Durable Game Show Host, Dies at 91**\
 `He was involved in more than 20 game shows, most memorably as the host of “Gambit” and “Tic-Tac-Dough” in the 1970s and ’80s.`\
 https://nytimes.com/2025/04/15/arts/television/wink-martindale-dead.html
-
-**What Trump’s Meeting With Bukele Means**\
-`President Nayib Bukele of El Salvador has found a spot on the global stage by opening the doors of his prison system to President Trump.`\
-https://nytimes.com/video/us/politics/100000010110423/what-trumps-meeting-with-bukele-means.html
 
