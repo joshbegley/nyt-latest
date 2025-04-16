@@ -1,3 +1,11 @@
+**European football's biggest comebacks - and the task facing Real Madrid**\
+`Real Madrid need a 'remontada' - or comeback - if they are to advance in the Champions League. History shows it is possible`\
+https://nytimes.com/athletic/6280504/2025/04/16/real-madrid-barcelona-roma-champions-league-comebacks/
+
+**Saliba and Madrid may have a ring to it, but it would be a war of attrition to sign him**\
+`The Spanish club are long-term admirers of the centre-back, but he has unfinished business at Arsenal and an imminent move is unlikely`\
+https://nytimes.com/athletic/6279036/2025/04/16/william-saliba-arsenal-real-madrid/
+
 **Why Premier League teams (yes, especially Liverpool) are so dangerous after defending corners**\
 `Goals from corners are down and counter-attacks from corners are up`\
 https://nytimes.com/athletic/6278419/2025/04/16/counter-attacks-from-defending-corners-premier-league/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6282467/2025/04/16/connections-sports-edition-hints
 **Even Without Add-Ons, Trump’s 10% Tariffs Will Have a Sting**\
 `The blanket tariffs, once considered extreme, still threaten to harm world trade and make everything more expensive for businesses and consumers.`\
 https://nytimes.com/2025/04/16/business/economy/trump-tariffs-global-economy.html
-
-**Taiwan’s Chip Companies Are Caught in the U.S.-China Tariff War**\
-`President Trump has threatened tariffs on Taiwan and the chip industry. China has signaled it will not let the trade war keep it from the technology it needs.`\
-https://nytimes.com/2025/04/16/business/china-taiwan-tariffs-chips.html
-
-**Quote of the Day: Trump Flirts With Defying Court Orders**\
-`Quotation of the Day for Wednesday, April 16, 2025.`\
-https://nytimes.com/2025/04/15/pageoneplus/quote-of-the-day-trump-flirts-with-defying-court-orders.html
 
