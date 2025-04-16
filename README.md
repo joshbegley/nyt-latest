@@ -1,3 +1,7 @@
+**American Pastor Kidnapped in South Africa Is Rescued After Shootout**\
+`Three suspects were killed as the police moved in on a safe house where the pastor from Tennessee was being held.`\
+https://nytimes.com/2025/04/16/world/africa/south-africa-pastor-kidnapping-rescue-josh-sullivan.html
+
 **Seth Rogen’s Trump Jokes Are Edited Out of Awards Broadcast**\
 `While presenting an award at the Breakthrough Prize ceremony this month, Mr. Rogen said President Trump had “single-handedly destroyed all of American science.”`\
 https://nytimes.com/2025/04/16/arts/seth-rogen-breakthrough-prize-ceremony.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6284511/2025/04/16/son-heung-min-tottenham-injury-u
 **2 Guards Charged With Murder in Beating Death of Prisoner in New York**\
 `Ten officers were charged in connection with the vicious beating of Messiah Nantwi, 22, at the Mid-State Correctional Facility, which left him bloodied and unrecognizable.`\
 https://nytimes.com/2025/04/16/nyregion/messiah-nantwi-beating-death-charges.html
-
-**Ravens NFL Draft 2025 guide: Picks, predictions and key needs**\
-`Keeping you up to date on all of Baltimore's draft-related news and analysis heading into Round 1 on April 24. `\
-https://nytimes.com/athletic/6232970/2025/04/16/baltimore-ravens-2025-nfl-draft-picks-needs-predictions-guide/
 

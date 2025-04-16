@@ -1,3 +1,11 @@
+**Seth Rogen’s Trump Jokes Are Edited Out of Awards Broadcast**\
+`While presenting an award at the Breakthrough Prize ceremony this month, Mr. Rogen said President Trump had “single-handedly destroyed all of American science.”`\
+https://nytimes.com/2025/04/16/arts/seth-rogen-breakthrough-prize-ceremony.html
+
+**What does Rory McIlroy's resilience reveal for the rest of us? This week's MoneyCall**\
+`In this week's MoneyCall, how Rory McIlroy's resilience dovetails with an exciting new coverage initiative from The Athletic.`\
+https://nytimes.com/athletic/6284559/2025/04/16/rory-mcilroy-peak-paige-bueckers-wnba/
+
 **Man Who Sent Bomb Threat to a Cruise His Girlfriend Was On Is Sentenced**\
 `The Michigan man said he was upset because his girlfriend went on a Caribbean cruise with her family, leaving him to care for their pets, according to court filings.`\
 https://nytimes.com/2025/04/16/us/michigan-man-bomb-threat-cruise.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/16/nyregion/messiah-nantwi-beating-death-charges.htm
 **Ravens NFL Draft 2025 guide: Picks, predictions and key needs**\
 `Keeping you up to date on all of Baltimore's draft-related news and analysis heading into Round 1 on April 24. `\
 https://nytimes.com/athletic/6232970/2025/04/16/baltimore-ravens-2025-nfl-draft-picks-needs-predictions-guide/
-
-**Everton ban man, 62, who stole food at first Bramley-Moore Dock test event**\
-`A club spokesperson said the video on social media showed a "clear theft of food during the first test event at Everton Stadium."`\
-https://nytimes.com/athletic/6284372/2025/04/16/everton-ban-food-theft-new-stadium-test/
-
-**Fed Chair Lays Out Game Plan in Case of High Inflation and Slower Growth**\
-`Jerome H. Powell warned that Trump’s tariffs could lead to a “challenging scenario” for the central bank.`\
-https://nytimes.com/2025/04/16/business/economy/jerome-powell-federal-reserve-inflation-interest-rates.html
 

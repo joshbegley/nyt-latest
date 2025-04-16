@@ -1,3 +1,11 @@
+**Seth Rogen’s Trump Jokes Are Edited Out of Awards Broadcast**\
+`While presenting an award at the Breakthrough Prize ceremony this month, Mr. Rogen said President Trump had “single-handedly destroyed all of American science.”`\
+https://nytimes.com/2025/04/16/arts/seth-rogen-breakthrough-prize-ceremony.html
+
+**What does Rory McIlroy's resilience reveal for the rest of us? This week's MoneyCall**\
+`In this week's MoneyCall, how Rory McIlroy's resilience dovetails with an exciting new coverage initiative from The Athletic.`\
+https://nytimes.com/athletic/6284559/2025/04/16/rory-mcilroy-peak-paige-bueckers-wnba/
+
 **Man Who Sent Bomb Threat to a Cruise His Girlfriend Was On Is Sentenced**\
 `The Michigan man said he was upset because his girlfriend went on a Caribbean cruise with her family, leaving him to care for their pets, according to court filings.`\
 https://nytimes.com/2025/04/16/us/michigan-man-bomb-threat-cruise.html
