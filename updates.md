@@ -1,3 +1,7 @@
+**L.A.’s Schools Chief Knows What It’s Like to Be Undocumented**\
+`A visit by federal agents to two elementary schools drew an angry, impassioned response from the superintendent, Alberto Carvalho, a Portuguese immigrant.`\
+https://nytimes.com/2025/04/16/us/alberto-carvalho-superintendent-los-angeles-public-schools.html
+
 **Ancelotti unsure on Madrid future after Champions League exit**\
 `Madrid were beaten 5-1 on aggregate by Arsenal in the Champions League quarter-finals.`\
 https://nytimes.com/athletic/6285471/2025/04/16/carlo-ancelotti-real-madrid-future-champions-league/
