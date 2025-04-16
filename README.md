@@ -1,3 +1,7 @@
+**What Is Happening With Fyre Festival 2?**\
+`After weeks of confusion, the organizers of the event have scrapped its location once again.`\
+https://nytimes.com/2025/04/16/style/fyre-festival-2-location.html
+
 **Trump Administration Halts Building of Giant Wind Farm Off N.Y. Coast**\
 `Gov. Kathy Hochul quickly responded that she would “fight this decision every step of the way.”`\
 https://nytimes.com/2025/04/16/nyregion/empire-wind-farm-trump-ny.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/16/us/tattoos-gangs-tren-de-aragua-immigration.html
 **Michelle Trachtenberg, ‘Buffy’ Actress, Died From Complications of Diabetes**\
 `The New York City medical examiner’s office determined the cause and manner of her death after reviewing toxicology test results, a spokeswoman said.`\
 https://nytimes.com/2025/04/16/us/michelle-trachtenberg-cause-of-death-diabetes.html
-
-**By Redefining ‘Harm,’ Agencies Aim to End Longstanding Wildlife Protections**\
-`Trump officials have proposed changing adecades-old interpretation of a key word in the Endangered Species Act, which would make it much easier to log, build or drill for oil.`\
-https://nytimes.com/2025/04/16/climate/trump-endangered-species-act-harm.html
 
