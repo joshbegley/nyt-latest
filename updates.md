@@ -1,3 +1,15 @@
+**The six minutes that proved just how vital Pedri is to Barcelona**\
+`Hansi Flick's side initially struggled against Borussia Dortmund without their midfield general. Once he was brought on, they took control`\
+https://nytimes.com/athletic/6283380/2025/04/16/pedri-barcelona-champions-league-hopes/
+
+**Penguins' Kris Letang has surgery to repair hole in heart**\
+`The hole was discovered after Letang's first stroke in January 2014. Letang suffered a second stroke in 2022.`\
+https://nytimes.com/athletic/6283746/2025/04/16/kris-letang-heart-surgery-penguins/
+
+**Maryland Senator Heads to El Salvador to Check on Man Deported From His State**\
+`Senator Chris Van Hollen said he would press for the release of Kilmar Armando Abrego Garcia, a Salvadoran immigrant who was mistakenly deported by the Trump administration and imprisoned.`\
+https://nytimes.com/2025/04/16/us/politics/maryland-el-salvador-senator-van-hollen-abrego-garcia-deportation.html
+
 **Penguins' Kris Letang has surgery to repair hole in heart**\
 `PITTSBURGH — Pittsburgh Penguins defenseman Kris Letang had successful surgery to repair a hole in his heart, the team&#8217;s president of hockey operations, Kyle Dubas, said in a news release Wednesday morning.`\
 https://nytimes.com/athletic/6283746/2025/04/16/kris-letang-heart-surgery-penguins/
