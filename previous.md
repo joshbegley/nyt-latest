@@ -1,5 +1,9 @@
+**2 U.S. Soldiers Killed in Vehicle Accident Near Mexico Border**\
+`Another soldier was seriously wounded, the military said. The cause of the accident is under investigation.`\
+https://nytimes.com/2025/04/15/us/soldiers-dead-crash-mexico-border.html
+
 **Takeaways on the approach to Juan Soto and the Mets' issues with runners on base**\
-`Under the hood, the Mets' offense looks solid.`\
+`Under the hood, the Mets offense looks solid.`\
 https://nytimes.com/athletic/6282800/2025/04/15/mets-offense-juan-soto-approach/
 
 **Blue Jackets' playoff dreams extend another day, thanks to Jet Greaves**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6281367/2025/04/15/oilers-darnell-nurse-suspension-
 **NBA Play-In Tournament takeaways: Magic stifle Hawks, Warriors host Grizzlies**\
 `The NBA Play-In Tournament kicks off Tuesday night. The Athletic has you covered with the key moments and takeaways.`\
 https://nytimes.com/athletic/6282251/2025/04/15/nba-play-in-warriors-grizzlies-magic-hawks-takeaways/
-
-**Connor Bedard ready to 'attack' offseason after two goals in season finale**\
-`Bedard's first two-goal game of the season had him contemplating where he'd like to improve next.`\
-https://nytimes.com/athletic/6282511/2025/04/15/blackhawks-connor-bedard-offseason-senators/
 

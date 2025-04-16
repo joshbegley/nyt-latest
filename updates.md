@@ -1,3 +1,11 @@
+**2 U.S. Soldiers Killed in Vehicle Accident Near Mexico Border**\
+`Another soldier was seriously wounded, the military said. The cause of the accident is under investigation.`\
+https://nytimes.com/2025/04/15/us/soldiers-dead-crash-mexico-border.html
+
+**Takeaways on the approach to Juan Soto and the Mets' issues with runners on base**\
+`Under the hood, the Mets offense looks solid.`\
+https://nytimes.com/athletic/6282800/2025/04/15/mets-offense-juan-soto-approach/
+
 **Takeaways on the approach to Juan Soto and the Mets' issues with runners on base**\
 `Under the hood, the Mets' offense looks solid.`\
 https://nytimes.com/athletic/6282800/2025/04/15/mets-offense-juan-soto-approach/
