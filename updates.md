@@ -1,3 +1,23 @@
+**Long lines and record sales for LeBron James Ken doll**\
+`Some fans waited in line for two days in order to secure one of the first dolls made available`\
+https://nytimes.com/athletic/6284618/2025/04/16/lebron-james-ken-doll-barbie-sales/
+
+**Adams Cancels Preschool Cuts as Child Care Emerges as Election Issue**\
+`Mayor Eric Adams reversed $167 million in cuts to preschool programs, as some of his rivals in the competitive New York City mayor’s race criticize him for doing too little to help families.`\
+https://nytimes.com/2025/04/16/nyregion/new-york-child-care-costs-adams.html
+
+**Andrew A. Beveridge, Who Found the Unexpected in Census Data, Dies at 79**\
+`With his own research group and as a professor at Queens College, he plumbed raw data for often-surprising insights about the way the country was changing.`\
+https://nytimes.com/2025/04/16/us/politics/andrew-a-beveridge-dead.html
+
+**Trump Administration Directs Judges to Deny Asylum Without Hearings**\
+`A directive from the Justice Department, which says the move is intended to reduce a backlog in immigration court, would result in rapid deportation orders in many cases.`\
+https://nytimes.com/2025/04/16/us/immigration-asylum-judges-policy.html
+
+**Inside Canada's new women's professional soccer league**\
+`NSL is a new Canadian professional soccer league created with the aim of growing the sport in the country.`\
+https://nytimes.com/athletic/6283324/2025/04/16/canada-womens-soccer-northern-super-league/
+
 **Trump Administration Announces Lawsuit Against Maine**\
 `Attorney General Pam Bondi announced the Trump administration’s plan to sue Maine over policies that allow some transgender athletes to compete in women’s sports.`\
 https://nytimes.com/video/us/politics/100000010114219/pam-bondi-maine-transgender-athletes.html

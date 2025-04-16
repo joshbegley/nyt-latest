@@ -1,3 +1,19 @@
+**Long lines and record sales for LeBron James Ken doll**\
+`Some fans waited in line for two days in order to secure one of the first dolls made available`\
+https://nytimes.com/athletic/6284618/2025/04/16/lebron-james-ken-doll-barbie-sales/
+
+**Adams Cancels Preschool Cuts as Child Care Emerges as Election Issue**\
+`Mayor Eric Adams reversed $167 million in cuts to preschool programs, as some of his rivals in the competitive New York City mayor’s race criticize him for doing too little to help families.`\
+https://nytimes.com/2025/04/16/nyregion/new-york-child-care-costs-adams.html
+
+**Andrew A. Beveridge, Who Found the Unexpected in Census Data, Dies at 79**\
+`With his own research group and as a professor at Queens College, he plumbed raw data for often-surprising insights about the way the country was changing.`\
+https://nytimes.com/2025/04/16/us/politics/andrew-a-beveridge-dead.html
+
+**Trump Administration Directs Judges to Deny Asylum Without Hearings**\
+`A directive from the Justice Department, which says the move is intended to reduce a backlog in immigration court, would result in rapid deportation orders in many cases.`\
+https://nytimes.com/2025/04/16/us/immigration-asylum-judges-policy.html
+
 **Trump Administration Announces Lawsuit Against Maine**\
 `Attorney General Pam Bondi announced the Trump administration’s plan to sue Maine over policies that allow some transgender athletes to compete in women’s sports.`\
 https://nytimes.com/video/us/politics/100000010114219/pam-bondi-maine-transgender-athletes.html
@@ -7,7 +23,7 @@ https://nytimes.com/video/us/politics/100000010114219/pam-bondi-maine-transgende
 https://nytimes.com/2025/04/16/world/europe/russia-kursk-arrest-former-governor.html
 
 **Inside Canada's new women's professional soccer league**\
-`NSL is a new Canadian professional soccer league created to grow the sport in the country.`\
+`NSL is a new Canadian professional soccer league created with the aim of growing the sport in the country.`\
 https://nytimes.com/athletic/6283324/2025/04/16/canada-womens-soccer-northern-super-league/
 
 **It’s Not Hard to Imagine a Chinese-Led Global Economy**\
@@ -21,20 +37,4 @@ https://nytimes.com/2025/04/16/us/gabrielle-white-army-ranger-competition.html
 **‘Massive Blackout’ Leaves All of Puerto Rico Without Power**\
 `It was not immediately clear why every generating plant on the island went offline Wednesday. Puerto Rico has a history of problems with its electricity supply.`\
 https://nytimes.com/2025/04/16/us/puerto-rico-power-blackout-electricity.html
-
-**Kris Letang's teammates don't expect him to retire anytime soon**\
-`The Penguins have no doubt that Letang will be back next season following heart surgery.`\
-https://nytimes.com/athletic/6284612/2025/04/16/penguins-kris-letang-heart-surgery-retirement/
-
-**Trump Official Scrutinizes N.Y.’s Attorney General Over Real Estate**\
-`The head of a U.S. housing agency told prosecutors that Letitia James appeared to have falsified real estate records, a move that could be the start of an investigation of a key Trump adversary.`\
-https://nytimes.com/2025/04/16/nyregion/trump-letitia-james-mortgage-fraud.html
-
-**The Mine Is American. The Minerals Are China’s.**\
-`A Brazilian rare earths mine backed by American investors illustrates China’s grip over the strategic minerals that underpin the modern economy.`\
-https://nytimes.com/2025/04/16/world/americas/brazil-mine-rare-earths-china.html
-
-**How We Can Help Stop Reckless Drivers From Killing Pedestrians**\
-`New York’s red-light and speed camera data tell us something urgent: A minority of bad drivers persistently engage in aberrant behavior. There’s a fix.`\
-https://nytimes.com/live/2025/04/07/opinion/thepoint/brooklyn-pedestrian-deaths-bad-drivers
 

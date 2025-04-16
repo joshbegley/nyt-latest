@@ -1,3 +1,11 @@
+**Umpire Hunter Wendelstedt struck in head by batted ball during Mets-Twins game**\
+`Wendelstedt lay on the ground while being tended to by the Minnesota training staff but was able to walk off under his own power.`\
+https://nytimes.com/athletic/6284895/2025/04/16/umpire-hunter-wendelstedt-hit-ball/
+
+**Facing Confirmation Fight, Trump-Allied Prosecutor Hires ‘Smashmouth Politician’**\
+`Ed Martin, the interim U.S. attorney in Washington criticized for using his office to target President Trump’s critics, has enlisted the longtime Trump ally Michael R. Caputo as an adviser.`\
+https://nytimes.com/2025/04/16/us/politics/martin-caputo-prosecutor-confirmation.html
+
 **Long lines and record sales for LeBron James Ken doll**\
 `Some fans waited in line for two days in order to secure one of the first dolls made available`\
 https://nytimes.com/athletic/6284618/2025/04/16/lebron-james-ken-doll-barbie-sales/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6283324/2025/04/16/canada-womens-soccer-northern-su
 **It’s Not Hard to Imagine a Chinese-Led Global Economy**\
 `It has simmering problems of its own, but China is ready to take center stage.`\
 https://nytimes.com/2025/04/16/opinion/china-trade-economy.html
-
-**In Grueling Ranger Competition, Gender Proves No Obstacle**\
-`A female Army Ranger, in a first, competed in one of the military’s toughest tests of physical fitness. She bested many of her opponents.`\
-https://nytimes.com/2025/04/16/us/gabrielle-white-army-ranger-competition.html
-
-**‘Massive Blackout’ Leaves All of Puerto Rico Without Power**\
-`It was not immediately clear why every generating plant on the island went offline Wednesday. Puerto Rico has a history of problems with its electricity supply.`\
-https://nytimes.com/2025/04/16/us/puerto-rico-power-blackout-electricity.html
 
