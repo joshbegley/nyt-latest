@@ -1,3 +1,11 @@
+**Ancelotti unsure on Madrid future after Champions League exit**\
+`Madrid were beaten 5-1 on aggregate by Arsenal in the Champions League quarter-finals.`\
+https://nytimes.com/athletic/6285471/2025/04/16/carlo-ancelotti-real-madrid-future-champions-league/
+
+**Climate Change Is Stressing the World’s Blood Supplies**\
+`Extreme weather disasters, increasing as the planet warms, can curb blood donations while increasing demand, a new analysis found.`\
+https://nytimes.com/2025/04/16/climate/climate-emergency-blood-supply.html
+
 **3 People Believed to Have Drowned in Missouri River**\
 `The three, an 11-year-old girl and two 18-year-olds, went into the water after fishing on Tuesday evening, fire officials in Nebraska said.`\
 https://nytimes.com/2025/04/16/us/missouri-river-girls-missing-omaha.html
