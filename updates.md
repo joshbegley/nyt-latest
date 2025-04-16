@@ -1,3 +1,15 @@
+**Trump Official Scrutinizes N.Y.’s Attorney General Over Real Estate**\
+`The head of a U.S. housing agency told prosecutors that Letitia James appeared to have falsified real estate records, a move that could be the start of an investigation of a key Trump adversary.`\
+https://nytimes.com/2025/04/16/nyregion/trump-letitia-james-mortgage-fraud.html
+
+**The Mine Is American. The Minerals Are China’s.**\
+`A Brazilian rare earths mine backed by American investors illustrates China’s grip over the strategic minerals that underpin the modern economy.`\
+https://nytimes.com/2025/04/16/world/americas/brazil-mine-rare-earths-china.html
+
+**How We Can Help Stop Reckless Drivers From Killing Pedestrians**\
+`New York’s red-light and speed camera data tell us something urgent: A minority of bad drivers persistently engage in aberrant behavior. There’s a fix.`\
+https://nytimes.com/live/2025/04/07/opinion/thepoint/brooklyn-pedestrian-deaths-bad-drivers
+
 **Songs for Situationships, Movies for the Middle Seat and More: The Winners of Our ‘My List’ Contest**\
 `Entertain and inform yourself with these teen-curated lists that suggest TV, film, books, music, art and dance to enjoy — or to avoid.`\
 https://nytimes.com/2025/04/16/learning/songs-for-situationships-movies-for-the-middle-seat-and-more-the-winners-of-our-my-list-contest.html
