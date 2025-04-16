@@ -1,3 +1,11 @@
+**Police Tase Hecklers at Marjorie Taylor Greene Town Hall**\
+`Protesters booed and shouted at the Georgia representative, prompting police to forcibly remove several people. Three were arrested, two of whom were subdued with stun guns.`\
+https://nytimes.com/video/us/politics/100000010113250/police-tase-hecklers-at-marjorie-taylor-greene-town-hall.html
+
+**Late Night Revels in Harvard’s Rejection of Trump’s Demand**\
+`“I don’t usually root for Harvard, because they’re Harvard. They’ve got everything. It’s like rooting for Jeff Bezos to win the lottery,” Ronny Chieng said on “The Daily Show.”`\
+https://nytimes.com/2025/04/16/arts/television/late-night-trump-harvard.html
+
 **Congresswoman and Allies Endorse 3 Mayoral Candidates to Stop Cuomo**\
 `Nydia Velázquez and six other Democrats framed the endorsements of Adrienne Adams, Brad Lander and Zohran Mamdani as a way of electing a “steady hand” to lead New York City.`\
 https://nytimes.com/2025/04/16/nyregion/nydia-velazquez-endorsement-mayor.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6283101/2025/04/16/orlando-magic-cole-anthony-nba-p
 **FIFA eyes Las Vegas for 2026 World Cup draw – as it did for 1994**\
 `Las Vegas is FIFA's preferred destination – if a venue can be found among likely Mariah Carey concerts and the National Finals Rodeo`\
 https://nytimes.com/athletic/6281620/2025/04/16/2026-world-cup-draw-las-vegas-host-fifa/
-
-**Barcelona's unbeaten run ended but could this be a good way to lose?**\
-`Barcelona are through to the semi-final stage of the Champions League despite a first loss in 24 games`\
-https://nytimes.com/athletic/6282414/2025/04/16/barcelona-borussia-dortmund-analysis/
-
-**'Make it last, boys': How Fleury's surprising swan song stole the show in season-saving win**\
-`"It was fun to just go one more time out there and play the game I love," Fleury said of his final regular-season game before retirement.`\
-https://nytimes.com/athletic/6282965/2025/04/16/wild-clinch-playoff-berth-ducks-marc-andre-fleury/
 

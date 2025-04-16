@@ -1,3 +1,11 @@
+**Police Tase Hecklers at Marjorie Taylor Greene Town Hall**\
+`Protesters booed and shouted at the Georgia representative, prompting police to forcibly remove several people. Three were arrested, two of whom were subdued with stun guns.`\
+https://nytimes.com/video/us/politics/100000010113250/police-tase-hecklers-at-marjorie-taylor-greene-town-hall.html
+
+**Late Night Revels in Harvard’s Rejection of Trump’s Demand**\
+`“I don’t usually root for Harvard, because they’re Harvard. They’ve got everything. It’s like rooting for Jeff Bezos to win the lottery,” Ronny Chieng said on “The Daily Show.”`\
+https://nytimes.com/2025/04/16/arts/television/late-night-trump-harvard.html
+
 **Congresswoman and Allies Endorse 3 Mayoral Candidates to Stop Cuomo**\
 `Nydia Velázquez and six other Democrats framed the endorsements of Adrienne Adams, Brad Lander and Zohran Mamdani as a way of electing a “steady hand” to lead New York City.`\
 https://nytimes.com/2025/04/16/nyregion/nydia-velazquez-endorsement-mayor.html
