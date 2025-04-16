@@ -1,3 +1,11 @@
+**Canada Reschedules Political Debate That Conflicted With a Hockey Game**\
+`An important game, but still.`\
+https://nytimes.com/2025/04/16/world/americas/canada-election-debate-canadiens-game-montreal.html
+
+**City's Fowler sustains ACL injury**\
+`The Australian had stepped up for City this season, registering six goals and seven assists in 17 WSL matches.`\
+https://nytimes.com/athletic/6283248/2025/04/16/mary-fowler-injury-acl-manchester-city/
+
 **What can we learn from Gene Hackman and Hoosiers? More than you might think**\
 `Professors use the late Gene Hackman's performance as Norman Dale, a small-town high school basketball coach, to teach leadership lessons.`\
 https://nytimes.com/athletic/6255533/2025/04/16/leadership-gene-hackman-hoosiers/

@@ -1,3 +1,11 @@
+**Canada Reschedules Political Debate That Conflicted With a Hockey Game**\
+`An important game, but still.`\
+https://nytimes.com/2025/04/16/world/americas/canada-election-debate-canadiens-game-montreal.html
+
+**City's Fowler sustains ACL injury**\
+`The Australian had stepped up for City this season, registering six goals and seven assists in 17 WSL matches.`\
+https://nytimes.com/athletic/6283248/2025/04/16/mary-fowler-injury-acl-manchester-city/
+
 **What can we learn from Gene Hackman and Hoosiers? More than you might think**\
 `Professors use the late Gene Hackman's performance as Norman Dale, a small-town high school basketball coach, to teach leadership lessons.`\
 https://nytimes.com/athletic/6255533/2025/04/16/leadership-gene-hackman-hoosiers/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/16/learning/do-you-like-old-movies.html
 **Olivia Munn’s 5 Favorite Places in Tokyo**\
 `The actress, who stars in the new Apple TV+ series “Your Friends & Neighbors,” guides a treasure hunt though the city where she spent much of her childhood.`\
 https://nytimes.com/2025/04/16/travel/olivia-munn-tokyo.html
-
-**$275,00 Homes in New Jersey, Louisiana and Arkansas**\
-`A rowhouse in Bordentown, a cottage in New Orleans and a Craftsman bungalow in Little Rock.`\
-https://nytimes.com/2025/04/16/realestate/27500-dollar-homes-in-new-jersey-louisiana-arkansas.html
-
-**Gen X? More Like Gen Sex.**\
-`At 46, Mireille Silcoff divorced her partner of 21 years, and went on to have more sex and better sex than she’d ever had before. She soon realized she wasn’t the only woman her age in the midst of a sexual renaissance.`\
-https://nytimes.com/2025/04/16/podcasts/gen-x-women-sex.html
 
