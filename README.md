@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6283502/2025/04/16/linkin-park-champions-league-fin
 `Ng, who left the Marlins abruptly in 2023, says she is following her passion and believes this is the perfect time for softball to take off.`\
 https://nytimes.com/athletic/6282422/2025/04/16/kim-ng-marlins-pro-softball-league-commissioner/
 
-**Zirzkee out for the season but Amad could return next month**\
+**Zirkzee out for the season but Amad could return next month**\
 `The 23-year-old has scored seven goals and provided three assists in 48 games for United this season.`\
 https://nytimes.com/athletic/6276227/2025/04/16/zirkzee-manchester-united-injury-amad/
 
