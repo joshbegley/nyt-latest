@@ -1,3 +1,11 @@
+**British Court Rules Legal Definition of Women is Based on Biological Sex**\
+`Britain’s Supreme Court ruled on Wednesday that trans women do not meet the legal definition of female under the country’s Equality Act.`\
+https://nytimes.com/video/world/europe/100000010113380/britain-supreme-court-transgender-ruling.html
+
+**Roommates Alec Bohm and Brandon Marsh work to put slumps behind them in Phillies win**\
+`They aren't back. Not yet. But, for a night, the roommates didn't need to talk about work once they left the office. `\
+https://nytimes.com/athletic/6282802/2025/04/16/alec-bohm-brandon-marsh-phillies-win/
+
 **Mandel's mailbag: Is Nico Iamaleava worth it? Which schools are possible suitors?**\
 `Stewart Mandel, the editor-in-chief of The Athletic's college football coverage, answers reader questions. `\
 https://nytimes.com/athletic/6281869/2025/04/16/nico-iamaleava-ncaa-mandel-mailbag/
@@ -29,13 +37,4 @@ https://nytimes.com/athletic/6282545/2025/04/16/play-augusta-national-masters/
 **Signs keep pointing to Panthers' picking Jalon Walker at No. 8**\
 `The Georgia hybrid linebacker rates as the No. 5 draft prospect in "The Beast" and signs seem to be pointing to the N.C. native coming home.`\
 https://nytimes.com/athletic/6281859/2025/04/16/carolina-panthers-nfl-draft-2025-jalon-walker/
-
-**2025 NHL Draft ranking: Schaefer leads Pronman’s April list, Misa follows**\
-`The 2025 NHL Draft picture is becoming clearer, with a stronger forward group but less depth of talent on defense. 
-`\
-https://nytimes.com/athletic/6278808/2025/04/16/nhl-draft-2025-ranking-schaefer-misa/
-
-**What are the top 10 front offices in MLB in 2025? Here’s how 40 executives voted**\
-`For the second year in a row, The Athletic canvassed 40 executives across baseball to build our front office rankings.`\
-https://nytimes.com/athletic/6273808/2025/04/16/mlb-top-10-front-offices-executive-vote/
 

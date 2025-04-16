@@ -1,3 +1,11 @@
+**British Court Rules Legal Definition of Women is Based on Biological Sex**\
+`Britain’s Supreme Court ruled on Wednesday that trans women do not meet the legal definition of female under the country’s Equality Act.`\
+https://nytimes.com/video/world/europe/100000010113380/britain-supreme-court-transgender-ruling.html
+
+**Roommates Alec Bohm and Brandon Marsh work to put slumps behind them in Phillies win**\
+`They aren't back. Not yet. But, for a night, the roommates didn't need to talk about work once they left the office. `\
+https://nytimes.com/athletic/6282802/2025/04/16/alec-bohm-brandon-marsh-phillies-win/
+
 **2025 NHL Draft ranking: Schaefer leads Pronman’s April list, Misa follows**\
 `The 2025 NHL Draft picture is becoming clearer, with a stronger forward group but less depth of talent on defense. 
 `\
