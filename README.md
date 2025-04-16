@@ -1,5 +1,5 @@
 **Breaking down the greatest Champions League comeback that never was**\
-`Aston Villa were down and out against PSG — until they weren't. They came inches from a remarkable comeback`\
+`Aston Villa were down and out against PSG… until they weren't. They came inches from a remarkable comeback`\
 https://nytimes.com/athletic/6283221/2025/04/16/aston-villa-comeback-psg/
 
 **British Court Rules Legal Definition of Women is Based on Biological Sex**\
