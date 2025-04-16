@@ -1,3 +1,7 @@
+**Biden Says Trump Is ‘Breaking Things,’ Including the Safety Net**\
+`In Joseph R. Biden Jr.’s first extensive speech since he left office, he accused the Trump administration of “taking a hatchet” to the Social Security Administration.`\
+https://nytimes.com/2025/04/15/us/joe-biden-speech.html
+
 **Here’s what happened on Tuesday.**\
 `By The New York Times`\
 https://nytimes.com/live/2025/04/15/us/trump-news/heres-what-happened-on-tuesday
