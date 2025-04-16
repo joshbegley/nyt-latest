@@ -1,3 +1,19 @@
+**Pelicans hire Joe Dumars as EVP of basketball operations**\
+`Dumars replaces David Griffin, who New Orleans fired Monday after the team missed the playoffs for the fourth time in six seasons.`\
+https://nytimes.com/athletic/6280948/2025/04/16/joe-dumars-pelicans-nba-president-of-basketball-ops/
+
+**Ousted Stanford coach Troy Taylor criticizes coverage of firing as 'unfair'**\
+`Taylor said investigations into his conduct with female athletic department administrators should not have been shared with media outlets.`\
+https://nytimes.com/athletic/6284211/2025/04/16/stanford-troy-taylor-investigations-coverage/
+
+**‘Government Cheese’ Review: Moving on Up, to the Surreal Side**\
+`The comedy, starring David Oyelowo, straddles a border between the pioneering Black sitcoms of the 1970s and dreamy modern dramedies like “Lodge 49.”`\
+https://nytimes.com/2025/04/16/arts/television/government-cheese-review.html
+
+**Musk’s Team Is Building a System to Sell ‘Gold Card’ Immigrant Visas**\
+`The project represents something of a shift in mission for Elon Musk’s initiative, from cutting government costs toward a new goal of generating revenue.`\
+https://nytimes.com/2025/04/16/us/politics/gold-card-visa-trump-musk.html
+
 **Five offseason questions for Kyle Davidson and the Blackhawks**\
 `From finding their next coach to getting Connor Bedard some help, the Blackhawks have their work cut out for themselves.`\
 https://nytimes.com/athletic/6283916/2025/04/16/blackhawks-offseason-priorities/
