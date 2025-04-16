@@ -1,3 +1,7 @@
+**Aaron Donald granted temporary restraining order, claims harassment, stalking**\
+`Donald, who was a Pro Bowl selection in each of his 10 seasons, played his entire NFL career with the Rams. `\
+https://nytimes.com/athletic/6285165/2025/04/16/aaron-donald-granted-restraining-order/
+
 **Why the Cardinals hope a six-man rotation will help keep their starting pitchers healthy**\
 `In the early part of the season, giving starters more time between outings has been beneficial to their performance.`\
 https://nytimes.com/athletic/6282318/2025/04/16/cardinals-six-man-rotation-plan-benefits/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6278172/2025/04/16/inter-bayern-munich-lautaro-inza
 **Thursday Briefing: A Judge’s Pushback Against Trump**\
 `Plus, a look at the Grand Egyptian Museum.`\
 https://nytimes.com/2025/04/16/briefing/trump-contempt-chipmakers-trade-war-israel-gaza-escalation.html
-
-**It’s Time to Protect America From America’s President**\
-`Trump’s authoritarian actions are vandalizing the American project.`\
-https://nytimes.com/2025/04/16/opinion/trump-harvard-abrego-garcia.html
 
