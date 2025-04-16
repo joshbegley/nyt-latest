@@ -1,3 +1,11 @@
+**Adams’s Legal Debt Rises to $3 Million as Donors Fade Away**\
+`The federal charges against Mayor Eric Adams were dropped. Now he owes millions in legal expenses and must navigate a complex relationship with President Trump.`\
+https://nytimes.com/2025/04/16/nyregion/adams-legal-defense-fund.html
+
+**Finding 314 Things the Government Might Know About You**\
+`Two reporters spent over a month compiling and analyzing information about the reams of data the U.S. government collects about Americans.`\
+https://nytimes.com/2025/04/16/insider/trump-musk-data-access.html
+
 **Ex-N.Y.P.D. Detective Gets 18 Months for Stalking Man on China’s Behalf**\
 `Michael McMahon was convicted in 2023 of acting as an unregistered foreign agent, stalking and conspiracy. His case was among several in Brooklyn linked to Chinese repression.`\
 https://nytimes.com/2025/04/16/nyregion/nypd-detective-sentence-china.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/business/economy/100000010114757/powell-trump-tariffs-
 **Maryland Senator Visits El Salvador to Check on Deported Man**\
 `Senator Chris Van Hollen, Democrat of Maryland, said that the Salvadoran vice president told him the U.S. government is paying his country to keep Kilmar Armando Abrego Garcia, a Salvadoran immigrant and Maryland resident, in the nation’s maximum security prison.`\
 https://nytimes.com/video/us/politics/100000010114617/maryland-van-hollen-el-salvador-garcia.html
-
-**Nico Iamaleava expected to transfer to UCLA after departure from Tennessee**\
-`Iamaleava officially entered the transfer portal Wednesday with a “do not contact" label.`\
-https://nytimes.com/athletic/6285117/2025/04/16/nico-iamaleava-ucla-tennessee-transfer/
-
-**What consensus NFL 2025 mock draft landing spots would mean for fantasy football rookies**\
-`If the consensus of industry mock drafts were to become a reality, what would it mean for fantasy football? Michael Salfino breaks it down.`\
-https://nytimes.com/athletic/6284633/2025/04/16/nfl-draft-mock-consensus-fantasy-football-rookies/
 
