@@ -1,3 +1,7 @@
+**Aggressive base running, clutch hitting lifts wounded Twins over Mets in 10 innings**\
+`The series win was the byproduct of aggressive base running, productive outs and good defense from a team looking for signs of life.`\
+https://nytimes.com/athletic/6285608/2025/04/16/twins-beat-mets-extra-innings-takeaways/
+
 **Agreement to bring Commanders' stadium to D.C. taking shape**\
 `A framework has emerged that indicates the Commanders would pay most of the cost of the mixed-use project on the 174-acre federal land site.`\
 https://nytimes.com/athletic/6285519/2025/04/16/commanders-stadium-dc-location-agreement/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/16/world/middleeast/iran-trump-nuclear-talks.html
 **Astronomers Detect a Possible Signature of Life on a Distant Planet**\
 `Further studies are needed to determine whether K2-18b, which orbits a star 120 light-years away, is inhabited, or even habitable.`\
 https://nytimes.com/2025/04/16/science/astronomy-exoplanets-habitable-k218b.html
-
-**Trump Is Relying More on Tattoos to Identify Gang Members. Experts Say That’s Unreliable.**\
-`The administration appears to be using little more than body art to deport people that it says are members of Tren de Aragua, a move that critics say ignores decades of protocol.`\
-https://nytimes.com/2025/04/16/us/tattoos-gangs-tren-de-aragua-immigration.html
 
