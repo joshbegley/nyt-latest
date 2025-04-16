@@ -1,3 +1,15 @@
+**Maple Leafs report cards: All-around effort helps Toronto clinch division title**\
+`Mitch Marner got his 100th point of the season and Auston Matthews scored his 400th career goal against the Sabres.`\
+https://nytimes.com/athletic/6282666/2025/04/15/maple-leafs-report-cards-marner-matthews-division-sabres/
+
+**Oilers' Nurse suspended 1 game for cross-checking Quinton Byfield**\
+`Nurse is eligible for a return to Edmonton's lineup for the opening game of their first-round series against the Kings.`\
+https://nytimes.com/athletic/6281367/2025/04/15/oilers-darnell-nurse-suspension-kings/
+
+**NBA Play-In Tournament takeaways: Magic stifle Hawks, Warriors host Grizzlies**\
+`The NBA Play-In Tournament kicks off Tuesday night. The Athletic has you covered with the key moments and takeaways.`\
+https://nytimes.com/athletic/6282251/2025/04/15/nba-play-in-warriors-grizzlies-magic-hawks-takeaways/
+
 **Connor Bedard ready to 'attack' offseason after two goals in season finale**\
 `Bedard's first two-goal game of the season had him contemplating where he'd like to improve next.`\
 https://nytimes.com/athletic/6282511/2025/04/15/blackhawks-connor-bedard-offseason-senators/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/15/us/why-harvard-resisted-trumps-demands.html
 **Hong Kong Suspends Packages to the U.S., Wading Into the Trade War**\
 `The move comes before President Trump’s planned imposition of new tariffs on small packages sent to the United States from Hong Kong and China.`\
 https://nytimes.com/2025/04/15/business/hong-kong-post-trade-war.html
-
-**Twins' Carlos Correa, Matt Wallner exit Tuesday's game with injuries**\
-`The injuries are the latest obstacle for the Twins, who entered Tuesday at 5-12, tied for the worst start in franchise history.`\
-https://nytimes.com/athletic/6282544/2025/04/15/carlos-correa-matt-wallner-injuries-twins-mets/
-
-**Battle of Ontario is set — a 'goosebumps' series, even for those on the wrong side: 'Best games of my life'**\
-`Patrick Lalime was involved in all four memorable series between the Senators and Maple Leafs, as the losing goalie in the last three.`\
-https://nytimes.com/athletic/6275929/2025/04/15/patrick-lalime-maple-leafs-senators/
-
-**Corrections: April 16, 2025**\
-`Corrections that appeared in print on Wednesday, April 16, 2025.`\
-https://nytimes.com/2025/04/15/pageoneplus/corrections-april-16-2025.html
 

@@ -1,3 +1,15 @@
+**Maple Leafs report cards: All-around effort helps Toronto clinch division title**\
+`Mitch Marner got his 100th point of the season and Auston Matthews scored his 400th career goal against the Sabres.`\
+https://nytimes.com/athletic/6282666/2025/04/15/maple-leafs-report-cards-marner-matthews-division-sabres/
+
+**Oilers' Nurse suspended 1 game for cross-checking Quinton Byfield**\
+`Nurse is eligible for a return to Edmonton's lineup for the opening game of their first-round series against the Kings.`\
+https://nytimes.com/athletic/6281367/2025/04/15/oilers-darnell-nurse-suspension-kings/
+
+**NBA Play-In Tournament takeaways: Magic stifle Hawks, Warriors host Grizzlies**\
+`The NBA Play-In Tournament kicks off Tuesday night. The Athletic has you covered with the key moments and takeaways.`\
+https://nytimes.com/athletic/6282251/2025/04/15/nba-play-in-warriors-grizzlies-magic-hawks-takeaways/
+
 **Connor Bedard ready to 'attack' offseason after two goals in season finale**\
 `Bedard's first two-goal game of the season had him contemplating where he'd like to improve next.`\
 https://nytimes.com/athletic/6282511/2025/04/15/blackhawks-connor-bedard-offseason-senators/
