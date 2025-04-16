@@ -1,3 +1,15 @@
+**The Next Phase of DOGE**\
+`A new “gold card” visa reveals how Elon Musk’s group has seemingly expanded its functional power.`\
+https://nytimes.com/2025/04/16/us/politics/doge-musk-gold-card-visa.html
+
+**Tim Mohr, Berlin D.J. Turned Award-Winning Translator, Dies at 55**\
+`An American who had lived abroad, he sought out books by up-and-coming German writers, while ghostwriting memoirs for rock stars like Paul Stanley.`\
+https://nytimes.com/2025/04/16/books/tim-mohr-dead.html
+
+**Carolina Panthers NFL Draft 2025 guide: Picks, predictions and key needs**\
+`The Panthers have the No. 8 pick in the NFL Draft and own a total of nine picks.`\
+https://nytimes.com/athletic/6227440/2025/04/16/carolina-panthers-2025-nfl-draft-picks-needs-predictions-guide/
+
 **L.A.’s Schools Chief Knows What It’s Like to Be Undocumented**\
 `A visit by federal agents to two elementary schools drew an angry, impassioned response from the superintendent, Alberto Carvalho, a Portuguese immigrant.`\
 https://nytimes.com/2025/04/16/us/alberto-carvalho-superintendent-los-angeles-public-schools.html

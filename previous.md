@@ -1,3 +1,15 @@
+**The Next Phase of DOGE**\
+`A new “gold card” visa reveals how Elon Musk’s group has seemingly expanded its functional power.`\
+https://nytimes.com/2025/04/16/us/politics/doge-musk-gold-card-visa.html
+
+**Tim Mohr, Berlin D.J. Turned Award-Winning Translator, Dies at 55**\
+`An American who had lived abroad, he sought out books by up-and-coming German writers, while ghostwriting memoirs for rock stars like Paul Stanley.`\
+https://nytimes.com/2025/04/16/books/tim-mohr-dead.html
+
+**Carolina Panthers NFL Draft 2025 guide: Picks, predictions and key needs**\
+`The Panthers have the No. 8 pick in the NFL Draft and own a total of nine picks.`\
+https://nytimes.com/athletic/6227440/2025/04/16/carolina-panthers-2025-nfl-draft-picks-needs-predictions-guide/
+
 **L.A.’s Schools Chief Knows What It’s Like to Be Undocumented**\
 `A visit by federal agents to two elementary schools drew an angry, impassioned response from the superintendent, Alberto Carvalho, a Portuguese immigrant.`\
 https://nytimes.com/2025/04/16/us/alberto-carvalho-superintendent-los-angeles-public-schools.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/16/well/kevin-hall-nutrition-retirement-nih-censorsh
 **NFL Draft prospect Isaiah Bond files federal complaint against accuser**\
 `The lawsuit comes less than a week after the Texas wide receiver turned himself in to Frisco police.`\
 https://nytimes.com/athletic/6284966/2025/04/16/isaiah-bond-federal-complaint-nfl-draft/
-
-**Arteta: Arsenal win vs Madrid 'one of the best nights in my football career'**\
-`Arsenal won 2-1 in Madrid on Wednesday to secure a 5-1 aggregate victory over the defending European champions.`\
-https://nytimes.com/athletic/6285316/2025/04/16/arsenal-champions-league-madrid-mikel-arteta/
-
-**Countries Agree on Treaty Aimed at Preventing Global Health Crises**\
-`The World Health Organization finally reached a compromise on a pandemic treaty after three years of talks. The United States withdrew from negotiations after President Trump took office.`\
-https://nytimes.com/2025/04/16/health/pandemic-treaty-who.html
-
-**A senator says a Salvadoran official cited U.S. payment as the reason for not releasing a wrongly deported man.**\
-`The White House has said it is paying El Salvador $6 million to hold its detainees. It has not said whether that sum covers the cost of holding the deported Salvadoran.`\
-https://nytimes.com/live/2025/04/16/us/trump-news/us-paying-el-salvador-detained-deportees
 
