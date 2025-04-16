@@ -1,3 +1,15 @@
+**Leading Nutrition Scientist Departs N.I.H., Citing Censorship**\
+`Kevin Hall said his work on ultraprocessed foods has been “hobbled” under the Trump administration. Scientists have been raising such concerns for months.`\
+https://nytimes.com/2025/04/16/well/kevin-hall-nutrition-retirement-nih-censorship-rfk-maha.html
+
+**NFL Draft prospect Isaiah Bond files federal complaint against accuser**\
+`The lawsuit comes less than a week after the Texas wide receiver turned himself in to Frisco police.`\
+https://nytimes.com/athletic/6284966/2025/04/16/isaiah-bond-federal-complaint-nfl-draft/
+
+**Arteta: Arsenal win vs Madrid 'one of the best nights in my football career'**\
+`Arsenal won 2-1 in Madrid on Wednesday to secure a 5-1 aggregate victory over the defending European champions.`\
+https://nytimes.com/athletic/6285316/2025/04/16/arsenal-champions-league-madrid-mikel-arteta/
+
 **Countries Agree on Treaty Aimed at Preventing Global Health Crises**\
 `The World Health Organization finally reached a compromise on a pandemic treaty after three years of talks. The United States withdrew from negotiations after President Trump took office.`\
 https://nytimes.com/2025/04/16/health/pandemic-treaty-who.html
@@ -10,7 +22,7 @@ https://nytimes.com/live/2025/04/16/us/trump-news/us-paying-el-salvador-detained
 `As Greene battles a 1-for-32 skid, Keith struggles to find his power. The Tigers are 10-8 but need these two hitters to get going.`\
 https://nytimes.com/athletic/6285190/2025/04/16/tigers-riley-greene-colt-keith-slump/
 
-**Christian Walker knows his offense is 'not good enough' for struggling Astros**\
+**Christian Walker knows his offense is 'not good enough' to help Astros**\
 `No offense entered Wednesday with fewer RBIs from the four-hole than the two Walker has produced as an Astro.`\
 https://nytimes.com/athletic/6285255/2025/04/16/christian-walker-struggling-offense-astros/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6285165/2025/04/16/aaron-donald-granted-restraining
 **Why the Cardinals hope a six-man rotation will help keep their starting pitchers healthy**\
 `In the early part of the season, giving starters more time between outings has been beneficial to their performance.`\
 https://nytimes.com/athletic/6282318/2025/04/16/cardinals-six-man-rotation-plan-benefits/
-
-**The Champions League semi-final line-up is set - here's everything you need to know**\
-`As the Champions League reaches its crucial stages, find out who is involved, when the semi-finals are happening and how to watch.`\
-https://nytimes.com/athletic/6280615/2025/04/16/champions-league-semi-finals-tv-date-when/
-
-**Adams’s Legal Debt Rises to $3 Million as Donors Fade Away**\
-`The federal charges against Mayor Eric Adams were dropped. Now he owes millions in legal expenses and must navigate a complex relationship with President Trump.`\
-https://nytimes.com/2025/04/16/nyregion/adams-legal-defense-fund.html
-
-**Finding 314 Things the Government Might Know About You**\
-`Two reporters spent over a month compiling and analyzing information about the reams of data the U.S. government collects about Americans.`\
-https://nytimes.com/2025/04/16/insider/trump-musk-data-access.html
 
