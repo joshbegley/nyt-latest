@@ -1,3 +1,11 @@
+**Here’s what happened on Tuesday.**\
+`By The New York Times`\
+https://nytimes.com/live/2025/04/15/us/trump-news/heres-what-happened-on-tuesday
+
+**What to Know as Trump Freezes Federal Funds for Harvard and Other Universities**\
+`President Trump is trying to influence which colleges receive federal financial support, a practice that began around the time of World War II.`\
+https://nytimes.com/2025/04/15/us/politics/trump-university-funding-harvard.html
+
 **Wink Martindale, Popular and Durable Game Show Host, Dies at 91**\
 `He was involved in more than 20 game shows, most memorably as the host of “Gambit” and “Tic-Tac-Dough” in the 1970s and ’80s.`\
 https://nytimes.com/2025/04/15/arts/television/wink-martindale-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/15/nyregion/discovery-judges-law-ny.html
 **Nvidia Says U.S. Will Restrict Sales of More of Its A.I. Chips to China**\
 `The restrictions are the first major limits the Trump administration has put on semiconductor sales outside the United States, toughening rules created by the Biden administration.`\
 https://nytimes.com/2025/04/15/technology/nvidia-h20-chip-china-restrictions.html
-
-**Biden Condemns Trump’s Cuts to Social Security Administration**\
-`In his first expansive public comments since leaving the White House, former President Joseph R. Biden Jr. spoke out against the Trump administration’s cuts to the Social Security Administration.`\
-https://nytimes.com/video/us/politics/100000010112873/biden-social-security-trump-cuts.html
-
-**A.C.L.U. Sues Defense Department Schools Over Book Bans**\
-`Schools run by the Defense Department removed books and made other changes in response to orders from President Trump and his secretary of defense.`\
-https://nytimes.com/2025/04/15/us/aclu-sues-defense-department-schools-over-book-bans.html
 
