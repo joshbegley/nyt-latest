@@ -1,3 +1,7 @@
+**2 Judges Order Federal Agencies to Unfreeze Climate Money**\
+`The rulings are setbacks to Trump’s efforts to halt climate and environmental funding approved under the Biden administration.`\
+https://nytimes.com/2025/04/16/climate/trump-court-epa-funding-freeze.html
+
 **Latvia Exits Land Mine Convention Amid Fears of Russian Aggression**\
 `The government, along with two other Baltic nations and Poland, agreed last month to quit the 1997 accord that prohibits from using anti-personnel mines. Russia’s invasion of Ukraine was cited as a key reason.`\
 https://nytimes.com/2025/04/16/world/europe/latvia-land-mine-convention-russia-ukraine.html

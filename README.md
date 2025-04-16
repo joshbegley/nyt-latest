@@ -1,3 +1,23 @@
+**Judge Finds Probable Cause to Hold Trump Officials in Contempt Over Deportations**\
+`The move was a remarkable attempt by a jurist to hold the White House accountable for its apparent willingness to flout court orders.`\
+https://nytimes.com/2025/04/16/us/politics/trump-probable-cause-contempt-deportation-flights.html
+
+**Leo Beenhakker, Soccer Coach Without Borders, Dies at 82**\
+`Among many other accomplishments, he led tiny Trinidad and Tobago to the World Cup and Poland to its first appearance in the European championships.`\
+https://nytimes.com/2025/04/16/sports/soccer/leo-beenhakker-dead.html
+
+**Pope Francis Thanks Health Care Workers**\
+`Pope Francis met with dozens of doctors, nurses, and hospital staff on Wednesday and thanked them for helping him recover from bronchial infections and double pneumonia, which had put his life at risk.`\
+https://nytimes.com/video/world/europe/100000010113720/pope-thanks-heathcare-workers.html
+
+**How to Throw Your Own Birthday Party**\
+`The chef Karina Garcia of the New York restaurant Cocina Consuelo celebrated by cooking for family and friends, and even making her own cake.`\
+https://nytimes.com/2025/04/16/t-magazine/cocina-consuelo-birthday.html
+
+**Trump Aides Close State Dept. Office on Foreign Disinformation**\
+`Secretary of State Marco Rubio put about 40 employees on leave who had tracked disinformation by China, Russia, Iran and terrorist groups.`\
+https://nytimes.com/2025/04/16/us/politics/trump-rubio-state-department-foreign-disinformation.html
+
 **Latvia Exits Land Mine Convention Amid Fears of Russian Aggression**\
 `The government, along with two other Baltic nations and Poland, agreed last month to quit the 1997 accord that prohibits from using anti-personnel mines. Russia’s invasion of Ukraine was cited as a key reason.`\
 https://nytimes.com/2025/04/16/world/europe/latvia-land-mine-convention-russia-ukraine.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/04/16/climate/trump-court-epa-funding-freeze.html
 **Court Scraps $8 Credit Card Late Fee Limit, at Consumer Bureau’s Request**\
 `The Consumer Financial Protection Bureau switched sides and backed a federal lawsuit by banks and business groups seeking to eliminate a fee cap the bureau set last year.`\
 https://nytimes.com/2025/04/16/business/credit-card-late-fee-limit-cfpb.html
-
-**Florida A&M to hire Charlie Ward, Heisman winner turned NBAer, as men's basketball coach**\
-`Florida A&M is just minutes from where Ward starred in both football and basketball at Florida State from 1989 to 1994.`\
-https://nytimes.com/athletic/6283886/2025/04/16/florida-am-charlie-ward-mens-basketball-coach-hire/
-
-**What’s in Our Queue? ‘Bass’ and More**\
-`Text by Graham Dickie`\
-https://nytimes.com/card/2025/04/16/arts/editors-recommendations-diabeacon
-
-**2025 NHL playoff preview: Carolina Hurricanes vs. New Jersey Devils**\
-`The Hurricanes' depth, experience and demonstrated five-on-five dominance mean that smart money is on them.`\
-https://nytimes.com/athletic/6279347/2025/04/16/2025-nhl-playoff-preview-carolina-hurricanes-vs-new-jersey-devils/
-
-**Submit a question for Pete Sampson's Notre Dame football mailbag**\
-`Notre Dame's spring practice is over, and the spring transfer portal window has only just begun. What's on your mind?`\
-https://nytimes.com/athletic/6284373/2025/04/16/submit-a-question-for-pete-sampsons-notre-dame-football-mailbag/
-
-**Is This Show a Big Watch Ad?**\
-`“Your Friends & Neighbors” strives to comment on the vacuousness of wealth while simultaneously glorifying the spoils of being really, really rich.`\
-https://nytimes.com/2025/04/16/style/your-friends-and-neighbors-watches.html
 
