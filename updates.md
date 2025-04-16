@@ -1,3 +1,11 @@
+**Umpire Hunter Wendelstedt struck in head by batted ball during Mets-Twins game**\
+`Wendelstedt lay on the ground while being tended to by the Minnesota training staff but was able to walk off under his own power.`\
+https://nytimes.com/athletic/6284895/2025/04/16/umpire-hunter-wendelstedt-hit-ball/
+
+**Facing Confirmation Fight, Trump-Allied Prosecutor Hires ‘Smashmouth Politician’**\
+`Ed Martin, the interim U.S. attorney in Washington criticized for using his office to target President Trump’s critics, has enlisted the longtime Trump ally Michael R. Caputo as an adviser.`\
+https://nytimes.com/2025/04/16/us/politics/martin-caputo-prosecutor-confirmation.html
+
 **Long lines and record sales for LeBron James Ken doll**\
 `Some fans waited in line for two days in order to secure one of the first dolls made available`\
 https://nytimes.com/athletic/6284618/2025/04/16/lebron-james-ken-doll-barbie-sales/
