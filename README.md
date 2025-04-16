@@ -1,3 +1,19 @@
+**Penguins' Kris Letang has surgery to repair hole in heart**\
+`PITTSBURGH — Pittsburgh Penguins defenseman Kris Letang had successful surgery to repair a hole in his heart, the team&#8217;s president of hockey operations, Kyle Dubas, said in a news release Wednesday morning.`\
+https://nytimes.com/athletic/6283746/2025/04/16/kris-letang-heart-surgery-penguins/
+
+**Maryland Senator Heads to El Salvador to Check on Man Deported From His State**\
+`Senator Chris Van Hollen said he would press for the release of Kilmar Armando Abrego Garcia, a Salvadoran immigrant who was mistakenly deported by the Trump administration and imprisoned.`\
+https://nytimes.com/live/2025/04/16/us/trump-news/maryland-el-salvador-senator-van-hollen-abrego-garcia-deportation
+
+**How China Took Over the World’s Rare Earths Industry**\
+`China seized mines and built factories. Japan took note and invested in Australia. But the United States did little despite concerns about control of supplies.`\
+https://nytimes.com/2025/04/16/business/china-rare-earths-us.html
+
+**'I just keep being myself': Coby White discovers his leadership role with the Bulls**\
+`In his sixth season with the Bulls, White has taken his game to another level after multiple trades changed the team's makeup.`\
+https://nytimes.com/athletic/6278381/2025/04/16/chicago-bulls-nba-coby-white-basketball/
+
 **James could return for Leeds at weekend; Rothwell definitely out**\
 `The Wales winger, 27, finished the 1-0 win over Middlesbrough on April 8 with a hamstring injury.`\
 https://nytimes.com/athletic/6283782/2025/04/16/dan-james-leeds-injury-rothwell/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/04/16/us/politics/federal-workers-trump-network-unions.
 **Stephen Silas reflects on Rockets' growth, Ime Udoka's coaching and player development**\
 `"I'm thankful for the time I had with them," says the Rockets' former head coach.`\
 https://nytimes.com/athletic/6278574/2025/04/16/houston-rockets-coach-ime-udoka-stephen-silas/
-
-**Ranking the 10 most memorable Crosby vs. Ovechkin moments**\
-`Crosby and Ovechkin have shared the ice for some unforgettable moments. Here are the best.`\
-https://nytimes.com/athletic/6282565/2025/04/16/alex-ovechkin-sidney-crosby-rivalry-highlights/
-
-**Your Kids Are Big Tech’s Guinea Pigs**\
-`We waited too long to make laws around social media. A.I. has similar problems.`\
-https://nytimes.com/2025/04/16/opinion/teens-chatbot-threat.html
-
-**How Do I Tell My Old Friend That His New Partner Is a Dud?**\
-`A reader is struggling to reconcile a friend’s partner’s fussy diet and aversion to walking with a planned gastronomic tour of Europe.`\
-https://nytimes.com/2025/04/16/style/dislike-friends-new-partner.html
-
-**Colts mock draft analysis: Does TE still make the most sense in Round1? A QB on Day 3?**\
-`Dane Brugler's final seven-round mock draft has Indy filling its major needs on the first two days of the draft. `\
-https://nytimes.com/athletic/6281858/2025/04/16/colts-nfl-draft-mock-dane-brugler/
 
