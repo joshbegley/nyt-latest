@@ -1,3 +1,11 @@
+**Capybaras Make Posh Argentine Neighborhood Their Home**\
+`Over the past two years, biologists estimate the capybara population has tripled to nearly 1,000 in this gated community in Argentina.`\
+https://nytimes.com/video/world/americas/100000010107341/capybaras-argentina-neighborhood.html
+
+**Six candidates for Bruins’ full-time coach: David Carle? Jay Leach? Marco Sturm?**\
+`Current interim coach Joe Sacco will be under consideration to see what he could do with a better roster than he had this season.`\
+https://nytimes.com/athletic/6284784/2025/04/16/bruins-coaching-candidates-sacco-carle/
+
 **Kennedy Calls Autism ‘Preventable,’ Drawing Ire From Researchers**\
 `The health secretary said he would prioritize studies into environmental causes while harshly discounting other factors scientists say are likely contributing to rising rates of the condition.`\
 https://nytimes.com/2025/04/16/us/politics/rfk-jr-autism.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/16/us/immigration-asylum-judges-policy.html
 **Trump Administration Announces Lawsuit Against Maine**\
 `Attorney General Pam Bondi announced the Trump administration’s plan to sue Maine over policies that allow some transgender athletes to compete in women’s sports.`\
 https://nytimes.com/video/us/politics/100000010114219/pam-bondi-maine-transgender-athletes.html
-
-**Russia Arrests Former Governor of Ukraine-Occupied Region**\
-`Aleksei B. Smirnov, together with his deputy and other accomplices, was accused of embezzling money earmarked for building defenses that failed to prevent a Ukrainian attack in Kursk.`\
-https://nytimes.com/2025/04/16/world/europe/russia-kursk-arrest-former-governor.html
-
-**Inside Canada's new women's professional soccer league**\
-`NSL is a new Canadian professional soccer league created with the aim of growing the sport in the country.`\
-https://nytimes.com/athletic/6283324/2025/04/16/canada-womens-soccer-northern-super-league/
 
