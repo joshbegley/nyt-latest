@@ -1,3 +1,7 @@
+**Blues complete unlikely comeback to NHL playoffs: From long shots to wild cards**\
+`With a 6-1 trouncing of the Utah Hockey Club, the Blues secured the No. 2 wild card in the Western Conference playoffs.`\
+https://nytimes.com/athletic/6279437/2025/04/16/blues-unlikely-nhl-playoffs-comeback/
+
 **'That felt so good': Cole Anthony propels his Magic teammates to the playoffs**\
 `Orlando's fifth-year guard has endured a rocky season. But in an East Play-In game, he made a huge difference.`\
 https://nytimes.com/athletic/6283101/2025/04/16/orlando-magic-cole-anthony-nba-playoffs/
@@ -19,7 +23,7 @@ https://nytimes.com/athletic/6282965/2025/04/16/wild-clinch-playoff-berth-ducks-
 https://nytimes.com/2025/04/16/learning/word-of-the-day-soporific.html
 
 **PSG need to hold their nerve when Champions League chaos strikes to be true contenders**\
-`PSG were firmly in control of their Champions League quarter-final against Villa until the game became chaotic`\
+`The French champions were firmly in control of their Champions League quarter-final against Villa until the game became chaotic`\
 https://nytimes.com/athletic/6282696/2025/04/16/psg-champions-league-contenders/
 
 **Grizzlies blow chance for Play-In Tournament win vs. Warriors on 5-second violation**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6282888/2025/04/16/hawks-trae-young-ejected-vs-magi
 **Rashford started Aston Villa's transformation. Against PSG he almost finished it**\
 `Aston Villa came very close to a comeback against PSG, inspired in part by Marcus Rashford`\
 https://nytimes.com/athletic/6278632/2025/04/16/aston-villa-marcus-rashford-psg/
-
-**Stocks Tumble in Asia as Tech Investors Pull Back**\
-`Nvidia, the American semiconductor giant, announced that it had been blocked by the Trump administration from selling chips to China without a license.`\
-https://nytimes.com/2025/04/16/business/stocks-trump-tariffs.html
 

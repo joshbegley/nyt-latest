@@ -1,3 +1,7 @@
+**'That felt so good': Cole Anthony propels his Magic teammates to the playoffs**\
+`Orlando's fifth-year guard has endured a rocky season. But in an East Play-In game, he made a huge difference.`\
+https://nytimes.com/athletic/6283101/2025/04/16/orlando-magic-cole-anthony-nba-playoffs/
+
 **FIFA eyes Las Vegas for 2026 World Cup draw – as it did for 1994**\
 `Las Vegas is FIFA's preferred destination – if a venue can be found among likely Mariah Carey concerts and the National Finals Rodeo`\
 https://nytimes.com/athletic/6281620/2025/04/16/2026-world-cup-draw-las-vegas-host-fifa/
