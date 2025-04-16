@@ -1,3 +1,7 @@
+**Zirzkee out for the season but Amad could return next month**\
+`The 23-year-old has scored seven goals and provided three assists in 48 games for United this season.`\
+https://nytimes.com/athletic/6276227/2025/04/16/zirkzee-manchester-united-injury-amad/
+
 **Onana to start for Man United vs. Lyon**\
 `The Cameroon international faced criticism over both goals conceded in the first leg against Lyon.`\
 https://nytimes.com/athletic/6277929/2025/04/16/manchester-united-team-news-onana-lyon/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6281938/2025/04/16/darko-rajakovic-raptors-coaching
 **Bulls anchor Nikola Vučević has quietly become one of the NBA's most consistent players**\
 `The 14-year NBA veteran averaged a double-double this season and is part of a Bulls team that has won 15 of its last 20 games.`\
 https://nytimes.com/athletic/6282396/2025/04/16/nikola-vucevic-bulls-nba-consistency/
-
-**What went wrong for the Bruins in 2024-25 — and what comes next**\
-`The Bruins finished at the bottom of the Eastern Conference after a lengthy run of playoff appearances.`\
-https://nytimes.com/athletic/6281178/2025/04/16/bruins-2024-25-season-what-went-wrong/
 

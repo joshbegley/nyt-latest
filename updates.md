@@ -1,3 +1,7 @@
+**Zirzkee out for the season but Amad could return next month**\
+`The 23-year-old has scored seven goals and provided three assists in 48 games for United this season.`\
+https://nytimes.com/athletic/6276227/2025/04/16/zirkzee-manchester-united-injury-amad/
+
 **Onana to start for Man United vs. Lyon**\
 `The Cameroon international faced criticism over both goals conceded in the first leg against Lyon.`\
 https://nytimes.com/athletic/6277929/2025/04/16/manchester-united-team-news-onana-lyon/
