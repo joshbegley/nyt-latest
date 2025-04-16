@@ -1,3 +1,7 @@
+**Law Firms Made Deals With Trump. Now He Wants More From Them.**\
+`To avoid retribution, big firms agreed to provide free legal services for uncontroversial causes. To the White House, that could mean negotiating trade deals — or even defending the president and his allies.`\
+https://nytimes.com/2025/04/16/us/politics/law-firms-deals-trump.html
+
 **Lowetide: Why signing Trent Frederic before free agency is a risk for Oilers**\
 `The Oilers acquired Frederic at the trade deadline, and he's been hurt for almost the entire time.`\
 https://nytimes.com/athletic/6280768/2025/04/16/oilers-trent-frederic-stats-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6283782/2025/04/16/dan-james-leeds-injury-rothwell/
 **Former FC Cincinnati striker Aaron Boupendza dies aged 28**\
 `Boupendza scored seven goals in MLS, while he netted eight times in 35 appearances for Gabon.`\
 https://nytimes.com/athletic/6283709/2025/04/16/aaron-boupendza-death-died-gabon/
-
-**Alexander-Arnold steps up injury recovery with return to Liverpool training**\
-`The England international has missed the past four games since limping out of last month's Champions League defeat to PSG.`\
-https://nytimes.com/athletic/6283767/2025/04/16/alexander-arnold-injury-update-liverpool/
 
