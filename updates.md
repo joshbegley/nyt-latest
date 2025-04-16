@@ -1,3 +1,11 @@
+**Will Americans Eat a $100 Tariff on Shein Packages?**\
+`The Trump administration’s plan to add steep fees to packages from China will deal a blow to Temu, Shein and some TikTok Shop sellers, worrying American consumers.`\
+https://nytimes.com/2025/04/16/business/tariffs-china-shein-temu.html
+
+**Law Firms Made Deals With Trump. Now He Wants More From Them.**\
+`To avoid retribution, big firms agreed to provide free legal services for uncontroversial causes. To the White House, that could mean negotiating trade deals — or even defending the president and his allies.`\
+https://nytimes.com/2025/04/16/us/politics/law-firms-deals-trump.html
+
 **Lowetide: Why signing Trent Frederic before free agency is a risk for Oilers**\
 `The Oilers acquired Frederic at the trade deadline, and he's been hurt for almost the entire time.`\
 https://nytimes.com/athletic/6280768/2025/04/16/oilers-trent-frederic-stats-contract/
