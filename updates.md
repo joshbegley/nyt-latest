@@ -1,3 +1,12 @@
+**Two Judges Order Federal Agencies to Unfreeze Climate Money**\
+`The rulings are setbacks to Trump’s efforts to halt climate and environmental funding approved under the Biden administration.`\
+https://nytimes.com/2025/04/16/climate/trump-court-epa-funding-freeze.html
+
+**Europa League quarter-final odds: United's and Spurs’ seasons hang in the balance**\
+`Sam Tighe has a look at the key betting angles ahead of this Thursday’s Europa League quarter-finals.
+`\
+https://nytimes.com/athletic/6283433/2025/04/16/europa-league-quarter-final-betting-odds-predictions/
+
 **Europa League quarter-final odds: United's and Spurs’ seasons hang in the balance**\
 `Sam Tighe has a look at the key betting angles ahead of this Thursday’s Europa League quarter-finals.
 `\

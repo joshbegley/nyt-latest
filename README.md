@@ -1,3 +1,15 @@
+**Latvia Exits Land Mine Convention Amid Fears of Russian Aggression**\
+`The government, along with two other Baltic nations and Poland, agreed last month to quit the 1997 accord that prohibits from using anti-personnel mines. Russia’s invasion of Ukraine was cited as a key reason.`\
+https://nytimes.com/2025/04/16/world/europe/latvia-land-mine-convention-russia-ukraine.html
+
+**What Harvard Has Set the Stage For**\
+`The university’s willingness to stand up to the Trump administration can be a model.`\
+https://nytimes.com/2025/04/16/opinion/harvard-university-trump.html
+
+**Trump Administration Sues Maine in Standoff Over Transgender Athletes**\
+`The lawsuit came just days after the administration threatened to cut off funding to the state’s public schools and lunch programs through grants from the Education and Agriculture Departments.`\
+https://nytimes.com/2025/04/16/us/politics/trump-sues-maine-trans-athletes-womens-sports.html
+
 **Two Judges Order Federal Agencies to Unfreeze Climate Money**\
 `The rulings are setbacks to Trump’s efforts to halt climate and environmental funding approved under the Biden administration.`\
 https://nytimes.com/2025/04/16/climate/trump-court-epa-funding-freeze.html
@@ -25,17 +37,4 @@ https://nytimes.com/athletic/6284373/2025/04/16/submit-a-question-for-pete-samps
 **Is This Show a Big Watch Ad?**\
 `“Your Friends & Neighbors” strives to comment on the vacuousness of wealth while simultaneously glorifying the spoils of being really, really rich.`\
 https://nytimes.com/2025/04/16/style/your-friends-and-neighbors-watches.html
-
-**Tiny Love Stories: ‘Young, Headstrong and Wrong’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2025/04/16/style/tiny-modern-love-stories-young-headstrong-and-wrong.html
-
-**Europa League quarter-final odds: United's and Spurs’ seasons hang in the balance**\
-`Sam Tighe has a look at the key betting angles ahead of this Thursday’s Europa League quarter-finals.
-`\
-https://nytimes.com/athletic/6283433/2025/04/16/europa-league-quarter-final-betting-odds-predictions/
-
-**Pelicans hire Joe Dumars as EVP of basketball operations**\
-`Dumars replaces David Griffin, who New Orleans fired Monday after the team missed the playoffs for the fourth time in six seasons.`\
-https://nytimes.com/athletic/6280948/2025/04/16/joe-dumars-pelicans-nba-president-of-basketball-ops/
 
