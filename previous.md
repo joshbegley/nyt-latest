@@ -1,3 +1,15 @@
+**What can we learn from Gene Hackman and Hoosiers? More than you might think**\
+`Professors use the late Gene Hackman's performance as Norman Dale, a small-town high school basketball coach, to teach leadership lessons.`\
+https://nytimes.com/athletic/6255533/2025/04/16/leadership-gene-hackman-hoosiers/
+
+**Inside Bobby Witt Jr.'s one day playing with the Yankees: 'I still have that hat'**\
+`Witt remembers fondly the day he played for the Yankees’ scout team, donning navy and gray against a Boston Red Sox scout team.`\
+https://nytimes.com/athletic/6282573/2025/04/16/bobby-witt-jr-yankees-royals-red-sox/
+
+**The New York Times International Edition in Print for Thursday, April 17, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/04/16/todays-new-york-times-international-edition
+
 **As Luis Castillo returns to Cincinnati, how does the big trade look in rearview mirror?**\
 `"I spent five years here, and being able to pitch here on that mound again was special," Castillo said Tuesday night.`\
 https://nytimes.com/athletic/6282807/2025/04/16/cincinnati-reds-seattle-mariners-luis-castillo/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/16/realestate/27500-dollar-homes-in-new-jersey-louis
 **Gen X? More Like Gen Sex.**\
 `At 46, Mireille Silcoff divorced her partner of 21 years, and went on to have more sex and better sex than she’d ever had before. She soon realized she wasn’t the only woman her age in the midst of a sexual renaissance.`\
 https://nytimes.com/2025/04/16/podcasts/gen-x-women-sex.html
-
-**Its Journalism Challenged Autocrats. Trump Wants to Silence It.**\
-`Journalists at Radio Free Europe/Radio Liberty who have been imprisoned for their work are dismayed by the effort to close the outlet.`\
-https://nytimes.com/2025/04/16/world/europe/trump-radio-free-europe-liberty.html
-
-**Tariff Confusion Leaves Advertisers ‘Paralyzed’ and ‘Somber’**\
-`Hundreds of billions of marketing dollars are in flux as companies struggle to plan. For some sectors, the timing “couldn’t be worse.”`\
-https://nytimes.com/2025/04/16/business/media/tariffs-economy-recession-advertisers.html
-
-**A Bold New History Highlights Latin America’s Humanist Ideals**\
-`A new book by the Pulitzer Prize-winning historian Greg Grandin offers a fresh account of the region as an incubator of internationalism and commitment to the common good.`\
-https://nytimes.com/2025/04/16/books/review/america-america-greg-grandin.html
 

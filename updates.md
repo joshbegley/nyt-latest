@@ -1,3 +1,15 @@
+**What can we learn from Gene Hackman and Hoosiers? More than you might think**\
+`Professors use the late Gene Hackman's performance as Norman Dale, a small-town high school basketball coach, to teach leadership lessons.`\
+https://nytimes.com/athletic/6255533/2025/04/16/leadership-gene-hackman-hoosiers/
+
+**Inside Bobby Witt Jr.'s one day playing with the Yankees: 'I still have that hat'**\
+`Witt remembers fondly the day he played for the Yankees’ scout team, donning navy and gray against a Boston Red Sox scout team.`\
+https://nytimes.com/athletic/6282573/2025/04/16/bobby-witt-jr-yankees-royals-red-sox/
+
+**The New York Times International Edition in Print for Thursday, April 17, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/04/16/todays-new-york-times-international-edition
+
 **As Luis Castillo returns to Cincinnati, how does the big trade look in rearview mirror?**\
 `"I spent five years here, and being able to pitch here on that mound again was special," Castillo said Tuesday night.`\
 https://nytimes.com/athletic/6282807/2025/04/16/cincinnati-reds-seattle-mariners-luis-castillo/
