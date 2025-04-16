@@ -1,3 +1,16 @@
+**Court Scraps $8 Credit Card Late Fee Limit, at Consumer Bureau’s Request**\
+`The Consumer Financial Protection Bureau switched sides and backed a federal lawsuit by banks and business groups seeking to eliminate a fee cap the bureau set last year.`\
+https://nytimes.com/2025/04/16/business/credit-card-late-fee-limit-cfpb.html
+
+**Florida A&M to hire Charlie Ward, Heisman winner turned NBAer, as men's basketball coach**\
+`Florida A&M is just minutes from where Ward starred in both football and basketball at Florida State from 1989 to 1994.`\
+https://nytimes.com/athletic/6283886/2025/04/16/florida-am-charlie-ward-mens-basketball-coach-hire/
+
+**Europa League quarter-final odds: United's and Spurs’ seasons hang in the balance**\
+`Sam Tighe has a look at the key betting angles ahead of this Thursday’s Europa League quarter-finals.
+`\
+https://nytimes.com/athletic/6283433/2025/04/16/europa-league-quarter-final-betting-odds-predictions/
+
 **What’s in Our Queue? ‘Bass’ and More**\
 `Text by Graham Dickie`\
 https://nytimes.com/card/2025/04/16/arts/editors-recommendations-diabeacon
