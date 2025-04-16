@@ -1,3 +1,8 @@
+**Europa League quarter-final odds: United's and Spurs’ seasons hang in the balance**\
+`Sam Tighe has a look at the key betting angles ahead of this Thursday’s Europa League quarter-finals.
+`\
+https://nytimes.com/athletic/6283433/2025/04/16/europa-league-quarter-final-betting-odds-predictions/
+
 **Pelicans hire Joe Dumars as EVP of basketball operations**\
 `Dumars replaces David Griffin, who New Orleans fired Monday after the team missed the playoffs for the fourth time in six seasons.`\
 https://nytimes.com/athletic/6280948/2025/04/16/joe-dumars-pelicans-nba-president-of-basketball-ops/
@@ -33,8 +38,4 @@ https://nytimes.com/athletic/6279989/2025/04/16/nhl-playoffs-2025-stars-avalanch
 **The Bounce: NBA Play-In takeaways: Trae Young's tantrum vs. Magic, spaghetti on the sidelines and more**\
 `The first day of NBA Play-In basketball saw Trae Young throw a tantrum, a plate of spaghetti become a star and more`\
 https://nytimes.com/athletic/6284030/2025/04/16/nba-play-in-takeaways-trae-youngs-tantrum-vs-magic-spaghetti-on-the-sidelines-and-more/
-
-**Seattle Seahawks NFL Draft 2025 guide: Picks, predictions and key needs**\
-`Everything you need to know about the Seahawks ahead of the draft, as Seattle now has a host of picks to work with.`\
-https://nytimes.com/athletic/6228062/2025/04/16/seattle-seahawks-2025-nfl-draft-picks-needs-predictions-guide/
 
