@@ -1,3 +1,11 @@
+**Lowetide: Why signing Trent Frederic before free agency is a risk for Oilers**\
+`The Oilers acquired Frederic at the trade deadline, and he's been hurt for almost the entire time.`\
+https://nytimes.com/athletic/6280768/2025/04/16/oilers-trent-frederic-stats-contract/
+
+**Sudanese Paramilitary Group Declares Parallel Government as 400,000 Flee Offensive**\
+`The United Nations said that at least 300 people were killed when the armed group, the Rapid Support Forces, stormed a camp in Darfur.`\
+https://nytimes.com/2025/04/16/world/africa/sudan-rsf-zamzam.html
+
 **The six minutes that proved just how vital Pedri is to Barcelona**\
 `Hansi Flick's side initially struggled against Borussia Dortmund without their midfield general. Once he was brought on, they took control`\
 https://nytimes.com/athletic/6283380/2025/04/16/pedri-barcelona-champions-league-hopes/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6283709/2025/04/16/aaron-boupendza-death-died-gabon
 **Alexander-Arnold steps up injury recovery with return to Liverpool training**\
 `The England international has missed the past four games since limping out of last month's Champions League defeat to PSG.`\
 https://nytimes.com/athletic/6283767/2025/04/16/alexander-arnold-injury-update-liverpool/
-
-**The Windup: MLB trailblazer lands a new gig**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6283154/2025/04/16/kim-ng-softball-mlb-the-windup/
-
-**Unions Form Pro Bono Legal Network for Federal Workers Targeted by Trump**\
-`Organized labor has taken a leading role in challenging the Trump administration’s downsizing agenda in court. A new service will offer more individualized representation.`\
-https://nytimes.com/2025/04/16/us/politics/federal-workers-trump-network-unions.html
 
