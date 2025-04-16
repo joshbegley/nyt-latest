@@ -1,5 +1,9 @@
 **Kennedy Calls Autism ‘Preventable,’ Drawing Ire From Researchers**\
 `The health secretary said he would prioritize studies into environmental causes while harshly discounting other factors scientists say are likely contributing to rising rates of the condition.`\
+https://nytimes.com/2025/04/16/us/politics/rfk-jr-autism.html
+
+**Kennedy Calls Autism ‘Preventable,’ Drawing Ire From Researchers**\
+`The health secretary said he would prioritize studies into environmental causes while harshly discounting other factors scientists say are likely contributing to rising rates of the condition.`\
 https://nytimes.com/2025/04/16/us/politics/kennedy-calls-autism-preventable.html
 
 **Umpire Hunter Wendelstedt struck in head by batted ball during Mets-Twins game**\
