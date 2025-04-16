@@ -1,3 +1,7 @@
+**Help Preserve Your Vision Longer**\
+`IZERVAY™ May Slow the Progression of Geographic Atrophy`\
+https://nytimes.com/paidpost/astellas/help-preserve-your-vision-longer.html
+
 **Denver Nuggets playoff primer: Russell Westbrook returns, guarding Kawhi Leonard and more**\
 `The Nuggets are 3-0 since their organizational upheaval, but the LA Clippers are hotter, having won eight in a row coming into the playoffs.`\
 https://nytimes.com/athletic/6283081/2025/04/16/denver-nuggets-la-clippers-playoffs/
