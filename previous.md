@@ -1,3 +1,11 @@
+**What next for Armando Broja, Everton and Chelsea?**\
+`The Albania striker has a £30m clause in his Everton loan deal - but with injury problems ruining his spell at Goodison, what comes next?`\
+https://nytimes.com/athletic/6280549/2025/04/16/what-next-for-armando-broja-everton-and-chelsea/
+
+**Matt O'Riley: 'I don't think about competition - just how I get better'**\
+`The 24-year-old midfielder has not completed 90 minutes since signing for £25m but says he can thrive wherever Fabian Hurzeler plays him`\
+https://nytimes.com/athletic/6277822/2025/04/16/matt-oriley-brighton-first-season-interview/
+
 **Ollie Scarles had a tough time against Liverpool. He will hope to react, just like Ferdinand and Rice did**\
 `The 19-year-old left-back struggled to contain Mohamed Salah's threat in the narrow 2-1 defeat to Liverpool on Sunday`\
 https://nytimes.com/athletic/6277878/2025/04/16/ollie-scarles-west-ham-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6279036/2025/04/16/william-saliba-arsenal-real-madr
 **Why Premier League teams (yes, especially Liverpool) are so dangerous after defending corners**\
 `Goals from corners are down and counter-attacks from corners are up`\
 https://nytimes.com/athletic/6278419/2025/04/16/counter-attacks-from-defending-corners-premier-league/
-
-**Senators set to renew playoff hostilities with Leafs: 'Everyone wants the Battle of Ontario'**\
-`It's official. The Ottawa Senators will meet the Toronto Maple Leafs in the Stanley Cup playoffs for the first time since 2004.`\
-https://nytimes.com/athletic/6282661/2025/04/16/senators-maple-leafs-nhl-playoffs-battle-of-ontario/
-
-**'It's already outrageous': Man City fans' successful ticket protests can inspire all supporters**\
-`Recent protests by City fans have made a tangible impact on the club's ticketing policies`\
-https://nytimes.com/athletic/6280483/2025/04/16/manchester-city-fan-protests-tickets/
 

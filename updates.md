@@ -1,3 +1,11 @@
+**What next for Armando Broja, Everton and Chelsea?**\
+`The Albania striker has a £30m clause in his Everton loan deal - but with injury problems ruining his spell at Goodison, what comes next?`\
+https://nytimes.com/athletic/6280549/2025/04/16/what-next-for-armando-broja-everton-and-chelsea/
+
+**Matt O'Riley: 'I don't think about competition - just how I get better'**\
+`The 24-year-old midfielder has not completed 90 minutes since signing for £25m but says he can thrive wherever Fabian Hurzeler plays him`\
+https://nytimes.com/athletic/6277822/2025/04/16/matt-oriley-brighton-first-season-interview/
+
 **Ollie Scarles had a tough time against Liverpool. He will hope to react, just like Ferdinand and Rice did**\
 `The 19-year-old left-back struggled to contain Mohamed Salah's threat in the narrow 2-1 defeat to Liverpool on Sunday`\
 https://nytimes.com/athletic/6277878/2025/04/16/ollie-scarles-west-ham-analysis/
