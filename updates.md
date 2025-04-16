@@ -1,3 +1,15 @@
+**Suspect in Pa. Governor’s Mansion Arson Cited Treatment of Palestinians, Police Say**\
+`The man charged in the attack on Gov. Josh Shapiro’s residence told the police he was seeking to “stop having my friends killed.”`\
+https://nytimes.com/2025/04/16/us/cody-balmer-motive-arson-gaza-palestinian-shapiro.html
+
+**Who belongs in the Maple Leafs’ ideal Game 1 playoff lineup?**\
+`Let’s sort through the varying decisions facing Maple Leafs coach Craig Berube and his staff and make some picks.`\
+https://nytimes.com/athletic/6283603/2025/04/16/maple-leafs-nhl-playoffs-game-1-lineup/
+
+**Scoop City: Eye-popping quote from Travis Hunter, praise for Tyler Shough**\
+`Sharing an explosive quote from Travis Hunter, one QB prospect a coach said was better than Cam Ward and exploring AFC draft guides`\
+https://nytimes.com/athletic/6283991/2025/04/16/travis-hunter-tyler-shough-nfl-draft-comments-scoop-city/
+
 **Maresca calls on Chelsea fans to 'trust' his methods**\
 `Maresca told Chelsea supporters the club is heading in the right direction compared to the previous two seasons.`\
 https://nytimes.com/athletic/6283956/2025/04/16/enzo-maresca-chelsea-fans-trust/
