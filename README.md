@@ -1,3 +1,7 @@
+**L.A.’s Schools Chief Knows What It’s Like to Be Undocumented**\
+`A visit by federal agents to two elementary schools drew an angry, impassioned response from the superintendent, Alberto Carvalho, a Portuguese immigrant.`\
+https://nytimes.com/2025/04/16/us/alberto-carvalho-superintendent-los-angeles-public-schools.html
+
 **Ancelotti unsure on Madrid future after Champions League exit**\
 `Madrid were beaten 5-1 on aggregate by Arsenal in the Champions League quarter-finals.`\
 https://nytimes.com/athletic/6285471/2025/04/16/carlo-ancelotti-real-madrid-future-champions-league/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/16/health/pandemic-treaty-who.html
 **A senator says a Salvadoran official cited U.S. payment as the reason for not releasing a wrongly deported man.**\
 `The White House has said it is paying El Salvador $6 million to hold its detainees. It has not said whether that sum covers the cost of holding the deported Salvadoran.`\
 https://nytimes.com/live/2025/04/16/us/trump-news/us-paying-el-salvador-detained-deportees
-
-**Tigers' Riley Greene, Colt Keith and the anatomy of a slump**\
-`As Greene battles a 1-for-32 skid, Keith struggles to find his power. The Tigers are 10-8 but need these two hitters to get going.`\
-https://nytimes.com/athletic/6285190/2025/04/16/tigers-riley-greene-colt-keith-slump/
 
