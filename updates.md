@@ -1,3 +1,7 @@
+**Amorim invites McIlroy to Old Trafford after historic Masters victory**\
+`Amorim said McIlroy winning the Masters seemed 'impossible', adding 'we want that feeling' at Old Trafford.`\
+https://nytimes.com/athletic/6283462/2025/04/16/manchester-united-amorim-mcilroy-masters/
+
 **Trump says he will attend tariff talks with Japan’s negotiator.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2025/04/16/us/trump-news/trump-says-he-will-attend-tariff-talks-with-japans-negotiator

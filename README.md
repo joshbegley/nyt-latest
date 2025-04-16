@@ -1,3 +1,7 @@
+**Onana to start for Man United vs. Lyon**\
+`The Cameroon international faced criticism over both goals conceded in the first leg against Lyon.`\
+https://nytimes.com/athletic/6277929/2025/04/16/manchester-united-team-news-onana-lyon/
+
 **Amorim invites McIlroy to Old Trafford after historic Masters victory**\
 `Amorim said McIlroy winning the Masters seemed 'impossible', adding 'we want that feeling' at Old Trafford.`\
 https://nytimes.com/athletic/6283462/2025/04/16/manchester-united-amorim-mcilroy-masters/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6282396/2025/04/16/nikola-vucevic-bulls-nba-consist
 **What went wrong for the Bruins in 2024-25 — and what comes next**\
 `The Bruins finished at the bottom of the Eastern Conference after a lengthy run of playoff appearances.`\
 https://nytimes.com/athletic/6281178/2025/04/16/bruins-2024-25-season-what-went-wrong/
-
-**Can Chargers' Joe Hortiz deliver draft-day trade magic again? Assessing potential scenarios**\
-`Last year, the Chargers GM made one of the best deals any team made. He could have a chance to go 2-for-2.`\
-https://nytimes.com/athletic/6281903/2025/04/16/chargers-nfl-draft-trade-scenarios/
 
