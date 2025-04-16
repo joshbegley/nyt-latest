@@ -1,3 +1,15 @@
+**Long Live Comrade Trump’s Tariffs**\
+`China’s e-commerce ecosystem illustrates how Trump’s tariffs only strengthen that country’s hand.`\
+https://nytimes.com/2025/04/16/opinion/trump-tariffs-china-ecommerce.html
+
+**Wednesday Briefing: A Trump-Harvard Showdown**\
+`Plus, a fight over Van Gogh’s roots.`\
+https://nytimes.com/2025/04/16/briefing/harvard-trump-ukraine-gaza-medics.html
+
+**The New York Times in Print for Wednesday, April 16, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/16/todays-new-york-times
+
 **What next for Armando Broja, Everton and Chelsea?**\
 `The Albania striker has a £30m clause in his Everton loan deal - but with injury problems ruining his spell at Goodison, what comes next?`\
 https://nytimes.com/athletic/6280549/2025/04/16/what-next-for-armando-broja-everton-and-chelsea/
