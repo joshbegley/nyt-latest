@@ -1,3 +1,23 @@
+**What’s in Our Queue? ‘Bass’ and More**\
+`Text by Graham Dickie`\
+https://nytimes.com/card/2025/04/16/arts/editors-recommendations-diabeacon
+
+**2025 NHL playoff preview: Carolina Hurricanes vs. New Jersey Devils**\
+`The Hurricanes' depth, experience and demonstrated five-on-five dominance mean that smart money is on them.`\
+https://nytimes.com/athletic/6279347/2025/04/16/2025-nhl-playoff-preview-carolina-hurricanes-vs-new-jersey-devils/
+
+**Submit a question for Pete Sampson's Notre Dame football mailbag**\
+`Notre Dame's spring practice is over, and the spring transfer portal window has only just begun. What's on your mind?`\
+https://nytimes.com/athletic/6284373/2025/04/16/submit-a-question-for-pete-sampsons-notre-dame-football-mailbag/
+
+**Is This Show a Big Watch Ad?**\
+`“Your Friends & Neighbors” strives to comment on the vacuousness of wealth while simultaneously glorifying the spoils of being really, really rich.`\
+https://nytimes.com/2025/04/16/style/your-friends-and-neighbors-watches.html
+
+**Tiny Love Stories: ‘Young, Headstrong and Wrong’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/04/16/style/tiny-modern-love-stories-young-headstrong-and-wrong.html
+
 **Europa League quarter-final odds: United's and Spurs’ seasons hang in the balance**\
 `Sam Tighe has a look at the key betting angles ahead of this Thursday’s Europa League quarter-finals.
 `\
@@ -18,24 +38,4 @@ https://nytimes.com/2025/04/16/arts/television/government-cheese-review.html
 **Musk’s Team Is Building a System to Sell ‘Gold Card’ Immigrant Visas**\
 `The project represents something of a shift in mission for Elon Musk’s initiative, from cutting government costs toward a new goal of generating revenue.`\
 https://nytimes.com/2025/04/16/us/politics/gold-card-visa-trump-musk.html
-
-**Five offseason questions for Kyle Davidson and the Blackhawks**\
-`From finding their next coach to getting Connor Bedard some help, the Blackhawks have their work cut out for themselves.`\
-https://nytimes.com/athletic/6283916/2025/04/16/blackhawks-offseason-priorities/
-
-**Is It Wrong to Remove a Card From Monopoly?**\
-`The magazine’s Ethicist columnist on altering board games to teach children ethical behavior.`\
-https://nytimes.com/2025/04/16/magazine/monopoly-games-children-ethics.html
-
-**Palliative Care Doctor Is Charged With Serial Murder of 15 Patients in Germany**\
-`The Berlin doctor, who was not named because of privacy laws, is also accused of setting fire to some of the patients’ homes to hide evidence.`\
-https://nytimes.com/2025/04/16/world/europe/germany-doctor-patients-murder.html
-
-**2025 NHL playoff preview: Dallas Stars vs. Colorado Avalanche**\
-`The Stars aren’t just a favorite in this series, they're a favorite to win the Cup. But don't count out the Avs' star power and spite.`\
-https://nytimes.com/athletic/6279989/2025/04/16/nhl-playoffs-2025-stars-avalanche/
-
-**The Bounce: NBA Play-In takeaways: Trae Young's tantrum vs. Magic, spaghetti on the sidelines and more**\
-`The first day of NBA Play-In basketball saw Trae Young throw a tantrum, a plate of spaghetti become a star and more`\
-https://nytimes.com/athletic/6284030/2025/04/16/nba-play-in-takeaways-trae-youngs-tantrum-vs-magic-spaghetti-on-the-sidelines-and-more/
 
