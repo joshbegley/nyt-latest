@@ -1,3 +1,11 @@
+**3 People Believed to Have Drowned in Missouri River**\
+`The three, an 11-year-old girl and two 18-year-olds, went into the water after fishing on Tuesday evening, fire officials in Nebraska said.`\
+https://nytimes.com/2025/04/16/us/missouri-river-girls-missing-omaha.html
+
+**A Bridal Collection From Rihanna Teases Fans Yet Again**\
+`Savage x Fenty’s new collection is the latest entry on a list of times the singer and her partner, ASAP Rocky, have alluded to being engaged.`\
+https://nytimes.com/2025/04/16/style/rihanna-savage-fenty-bridal-collection-asap-rocky.html
+
 **Leading Nutrition Scientist Departs N.I.H., Citing Censorship**\
 `Kevin Hall said his work on ultraprocessed foods has been “hobbled” under the Trump administration. Scientists have been raising such concerns for months.`\
 https://nytimes.com/2025/04/16/well/kevin-hall-nutrition-retirement-nih-censorship-rfk-maha.html

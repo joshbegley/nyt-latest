@@ -1,3 +1,11 @@
+**3 People Believed to Have Drowned in Missouri River**\
+`The three, an 11-year-old girl and two 18-year-olds, went into the water after fishing on Tuesday evening, fire officials in Nebraska said.`\
+https://nytimes.com/2025/04/16/us/missouri-river-girls-missing-omaha.html
+
+**A Bridal Collection From Rihanna Teases Fans Yet Again**\
+`Savage x Fenty’s new collection is the latest entry on a list of times the singer and her partner, ASAP Rocky, have alluded to being engaged.`\
+https://nytimes.com/2025/04/16/style/rihanna-savage-fenty-bridal-collection-asap-rocky.html
+
 **Leading Nutrition Scientist Departs N.I.H., Citing Censorship**\
 `Kevin Hall said his work on ultraprocessed foods has been “hobbled” under the Trump administration. Scientists have been raising such concerns for months.`\
 https://nytimes.com/2025/04/16/well/kevin-hall-nutrition-retirement-nih-censorship-rfk-maha.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6285255/2025/04/16/christian-walker-struggling-offe
 **A Judge Threatened to Hold Trump Officials in Contempt**\
 `Also, Americans are being cut off from cheaper obesity drugs. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/04/16/briefing/trump-officials-court-contempt.html
-
-**Aaron Donald granted temporary restraining order, claims harassment, stalking**\
-`Donald, who was a Pro Bowl selection in each of his 10 seasons, played his entire NFL career with the Rams. `\
-https://nytimes.com/athletic/6285165/2025/04/16/aaron-donald-granted-restraining-order/
-
-**Why the Cardinals hope a six-man rotation will help keep their starting pitchers healthy**\
-`In the early part of the season, giving starters more time between outings has been beneficial to their performance.`\
-https://nytimes.com/athletic/6282318/2025/04/16/cardinals-six-man-rotation-plan-benefits/
 
