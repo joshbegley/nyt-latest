@@ -1,3 +1,7 @@
+**Play-In Jimmy? Warriors get postseason version of their new star to beat Grizzlies**\
+`Jimmy Butler had his most productive night with Golden State in the team's first postseason game. "That's the beauty of Jimmy." `\
+https://nytimes.com/athletic/6282667/2025/04/16/jimmy-butler-warriors-play-in-win-grizzlies/
+
 **Israel Threatens Further Escalation in Gaza War**\
 `The United Nations warned that the humanitarian situation in Gaza was likely at its worst since the conflict began and that the population was again on the brink of famine.`\
 https://nytimes.com/2025/04/16/world/middleeast/israel-threatens-gaza-escalation.html
