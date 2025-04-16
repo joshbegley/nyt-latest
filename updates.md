@@ -1,3 +1,15 @@
+**Latvia Exits Land Mine Convention Amid Fears of Russian Aggression**\
+`The government, along with two other Baltic nations and Poland, agreed last month to quit the 1997 accord that prohibits from using anti-personnel mines. Russia’s invasion of Ukraine was cited as a key reason.`\
+https://nytimes.com/2025/04/16/world/europe/latvia-land-mine-convention-russia-ukraine.html
+
+**What Harvard Has Set the Stage For**\
+`The university’s willingness to stand up to the Trump administration can be a model.`\
+https://nytimes.com/2025/04/16/opinion/harvard-university-trump.html
+
+**Trump Administration Sues Maine in Standoff Over Transgender Athletes**\
+`The lawsuit came just days after the administration threatened to cut off funding to the state’s public schools and lunch programs through grants from the Education and Agriculture Departments.`\
+https://nytimes.com/2025/04/16/us/politics/trump-sues-maine-trans-athletes-womens-sports.html
+
 **Two Judges Order Federal Agencies to Unfreeze Climate Money**\
 `The rulings are setbacks to Trump’s efforts to halt climate and environmental funding approved under the Biden administration.`\
 https://nytimes.com/2025/04/16/climate/trump-court-epa-funding-freeze.html

@@ -10,7 +10,7 @@ https://nytimes.com/2025/04/16/opinion/harvard-university-trump.html
 `The lawsuit came just days after the administration threatened to cut off funding to the state’s public schools and lunch programs through grants from the Education and Agriculture Departments.`\
 https://nytimes.com/2025/04/16/us/politics/trump-sues-maine-trans-athletes-womens-sports.html
 
-**Two Judges Order Federal Agencies to Unfreeze Climate Money**\
+**2 Judges Order Federal Agencies to Unfreeze Climate Money**\
 `The rulings are setbacks to Trump’s efforts to halt climate and environmental funding approved under the Biden administration.`\
 https://nytimes.com/2025/04/16/climate/trump-court-epa-funding-freeze.html
 
