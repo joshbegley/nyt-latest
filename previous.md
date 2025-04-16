@@ -1,3 +1,11 @@
+**Christian Walker knows his offense is 'not good enough' for struggling Astros**\
+`No offense entered Wednesday with fewer RBIs from the four-hole than the two Walker has produced as an Astro.`\
+https://nytimes.com/athletic/6285255/2025/04/16/christian-walker-struggling-offense-astros/
+
+**A Judge Threatened to Hold Trump Officials in Contempt**\
+`Also, Americans are being cut off from cheaper obesity drugs. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/04/16/briefing/trump-officials-court-contempt.html
+
 **Aaron Donald granted temporary restraining order, claims harassment, stalking**\
 `Donald, who was a Pro Bowl selection in each of his 10 seasons, played his entire NFL career with the Rams. `\
 https://nytimes.com/athletic/6285165/2025/04/16/aaron-donald-granted-restraining-order/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6278171/2025/04/16/real-madrid-arsenal-champions-le
 **Giants GM: Drafting a QB 'not mandatory. We don't have our feet to the fire'**\
 `Schoen won't force a pick at QB. "When you’re in position to get the right one at the right time, then you pull the trigger."`\
 https://nytimes.com/athletic/6284875/2025/04/16/new-york-giants-nfl-draft-quarterback-russell-wilson-jameis-winston/
-
-**The Briefing: Inter 2 Bayern Munich 2 (4-3 agg) - Lautaro an inspiration as Inzaghi's side weather the storm**\
-`These sides traded second-half blows in a blustery San Siro with the hosts eventually booking themselves a semi-final against Barcelona`\
-https://nytimes.com/athletic/6278172/2025/04/16/inter-bayern-munich-lautaro-inzaghi-kane-dier/
-
-**Thursday Briefing: A Judge’s Pushback Against Trump**\
-`Plus, a look at the Grand Egyptian Museum.`\
-https://nytimes.com/2025/04/16/briefing/trump-contempt-chipmakers-trade-war-israel-gaza-escalation.html
 

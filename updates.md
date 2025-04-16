@@ -1,3 +1,11 @@
+**Christian Walker knows his offense is 'not good enough' for struggling Astros**\
+`No offense entered Wednesday with fewer RBIs from the four-hole than the two Walker has produced as an Astro.`\
+https://nytimes.com/athletic/6285255/2025/04/16/christian-walker-struggling-offense-astros/
+
+**A Judge Threatened to Hold Trump Officials in Contempt**\
+`Also, Americans are being cut off from cheaper obesity drugs. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/04/16/briefing/trump-officials-court-contempt.html
+
 **Aaron Donald granted temporary restraining order, claims harassment, stalking**\
 `Donald, who was a Pro Bowl selection in each of his 10 seasons, played his entire NFL career with the Rams. `\
 https://nytimes.com/athletic/6285165/2025/04/16/aaron-donald-granted-restraining-order/
