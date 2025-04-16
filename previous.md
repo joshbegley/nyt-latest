@@ -1,3 +1,7 @@
+**Lindy Ruff will be back, Owen Power's injury and more: Sabres thoughts**\
+`GM Kevyn Adams announced in a radio appearance that Ruff will return as Sabres coach next season.`\
+https://nytimes.com/athletic/6282803/2025/04/15/sabres-ruff-return-power-luukkonen-leafs/
+
 **2 U.S. Soldiers Killed in Vehicle Accident Near Mexico Border**\
 `Another soldier was seriously wounded, the military said. The cause of the accident is under investigation.`\
 https://nytimes.com/2025/04/15/us/soldiers-dead-crash-mexico-border.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6282666/2025/04/15/maple-leafs-report-cards-marner-
 **Oilers' Darnell Nurse suspended 1 game for cross-checking Quinton Byfield**\
 `Nurse is eligible for a return to Edmonton's lineup for the opening game of its first-round series against Los Angeles.`\
 https://nytimes.com/athletic/6281367/2025/04/15/oilers-darnell-nurse-suspension-kings/
-
-**NBA Play-In Tournament takeaways: Magic stifle Hawks, Warriors host Grizzlies**\
-`The NBA Play-In Tournament kicks off Tuesday night. The Athletic has you covered with the key moments and takeaways.`\
-https://nytimes.com/athletic/6282251/2025/04/15/nba-play-in-warriors-grizzlies-magic-hawks-takeaways/
 

@@ -1,3 +1,7 @@
+**Lindy Ruff will be back, Owen Power's injury and more: Sabres thoughts**\
+`GM Kevyn Adams announced in a radio appearance that Ruff will return as Sabres coach next season.`\
+https://nytimes.com/athletic/6282803/2025/04/15/sabres-ruff-return-power-luukkonen-leafs/
+
 **2 U.S. Soldiers Killed in Vehicle Accident Near Mexico Border**\
 `Another soldier was seriously wounded, the military said. The cause of the accident is under investigation.`\
 https://nytimes.com/2025/04/15/us/soldiers-dead-crash-mexico-border.html
