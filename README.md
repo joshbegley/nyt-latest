@@ -1,3 +1,11 @@
+**Connor Bedard ready to 'attack' offseason after two goals in season finale**\
+`Bedard's first two-goal game of the season had him contemplating where he'd like to improve next.`\
+https://nytimes.com/athletic/6282511/2025/04/15/blackhawks-connor-bedard-offseason-senators/
+
+**2 Protesters at Marjorie Taylor Greene Town Hall Are Subdued With Stun Guns**\
+`Three people, including the two who were subdued with stun guns, were arrested.`\
+https://nytimes.com/2025/04/15/us/politics/marjorie-taylor-greene-protesters.html
+
 **China Girds for Economic Stress of Trump’s Tariffs**\
 `The economy grew steadily from January through March, but U.S. tariffs pose a risk for China in the coming weeks and months.`\
 https://nytimes.com/2025/04/15/business/china-economy-gdp-q1.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6275929/2025/04/15/patrick-lalime-maple-leafs-senat
 **Corrections: April 16, 2025**\
 `Corrections that appeared in print on Wednesday, April 16, 2025.`\
 https://nytimes.com/2025/04/15/pageoneplus/corrections-april-16-2025.html
-
-**A Top Democratic Official Plots to Take Down Party Incumbents**\
-`David Hogg, a young liberal activist and now a vice chair of the Democratic National Committee, is leading an effort to unseat the party’s older lawmakers in primaries.`\
-https://nytimes.com/2025/04/15/us/politics/david-hogg-dnc-leaders-we-deserve.html
-
-**Biden Says Trump Is ‘Breaking Things,’ Including the Safety Net**\
-`In Joseph R. Biden Jr.’s first extensive speech since he left office, he accused the Trump administration of “taking a hatchet” to the Social Security Administration.`\
-https://nytimes.com/2025/04/15/us/joe-biden-speech.html
 
