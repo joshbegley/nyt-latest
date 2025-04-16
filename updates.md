@@ -1,3 +1,43 @@
+**Julian Sayin or Lincoln Kienholz? Projecting Ohio State's post-spring depth chart**\
+`Ohio State's QB race is tight but other positions are more clear. Let's take a look at where things stand with the two-deep depth chart.`\
+https://nytimes.com/athletic/6281535/2025/04/16/julian-sayin-lincoln-kienholz-ohio-state-post-spring-depth-chart/
+
+**Pacers-Bucks series preview: Familiar foes meet for a first-round postseason rematch**\
+`The Pacers and Bucks know each other well, having played each other 15 times during the regular seasons and playoffs the last two seasons.`\
+https://nytimes.com/athletic/6282470/2025/04/16/bucks-pacers-playoff-preview/
+
+**Darko Rajaković's soft skills are excellent, but can he nail the hard choices?**\
+`The Raptors coach has earned buy-in from his players, but he must drill down on the little things to help Raptors win.`\
+https://nytimes.com/athletic/6281938/2025/04/16/darko-rajakovic-raptors-coaching-offseason-nba/
+
+**Bulls anchor Nikola Vučević has quietly become one of the NBA's most consistent players**\
+`The 14-year NBA veteran averaged a double-double this season and is part of a Bulls team that has won 15 of its last 20 games.`\
+https://nytimes.com/athletic/6282396/2025/04/16/nikola-vucevic-bulls-nba-consistency/
+
+**What went wrong for the Bruins in 2024-25 — and what comes next**\
+`The Bruins finished at the bottom of the Eastern Conference after a lengthy run of playoff appearances.`\
+https://nytimes.com/athletic/6281178/2025/04/16/bruins-2024-25-season-what-went-wrong/
+
+**Can Chargers' Joe Hortiz deliver draft-day trade magic again? Assessing potential scenarios**\
+`Last year, the Chargers GM made one of the best deals any team made. He could have a chance to go 2-for-2.`\
+https://nytimes.com/athletic/6281903/2025/04/16/chargers-nfl-draft-trade-scenarios/
+
+**Knicks-Pistons playoffs preview: Predictions, X-factors, keys to series and more**\
+`The NBA is better when Detroit and New York are good. And for the first time in a long time, both franchises are.`\
+https://nytimes.com/athletic/6276960/2025/04/16/knicks-pistons-nba-playoffs-preview-2025/
+
+**Why Pat Ferschweiler might fit as Flyers' next coach: 'Not a fake bone in (his) body'**\
+`Ferschweiler just coached Western Michigan to its first-ever NCAA championship.`\
+https://nytimes.com/athletic/6281647/2025/04/16/ferschweiler-flyers-coach-western-michigan/
+
+**The Winnipeg Whiteout is almost here: What we know about Round 1 vs. St. Louis**\
+`The Blues clinched the second wild-card spot on Tuesday night. Here's where things stand ahead of the Round 1 matchup.`\
+https://nytimes.com/athletic/6281495/2025/04/16/winnipeg-jets-nhl-playoffs-blues/
+
+**Leeds' Kristensen to complete permanent Frankfurt move**\
+`The 28-year-old, who has spent the season on loan at the German club, will complete the permanent transfer in June.`\
+https://nytimes.com/athletic/6281971/2025/04/16/leeds-kristensen-frankfurt-transfer/
+
 **Ja Morant’s ankle injury is the latest hurdle for snakebitten Grizzlies**\
 `Morant insisted he will play in Friday's win-or-go home Play-In game, but it's fair to wonder how much more Memphis can withstand.`\
 https://nytimes.com/athletic/6283201/2025/04/16/ja-morants-ankle-injury-grizzlies-nba-play-in/

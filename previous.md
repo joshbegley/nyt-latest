@@ -1,40 +1,40 @@
-**Ja Morant’s ankle injury is the latest hurdle for snakebitten Grizzlies**\
-`Morant insisted he will play in Friday's win-or-go home Play-In game, but it's fair to wonder how much more Memphis can withstand.`\
-https://nytimes.com/athletic/6283201/2025/04/16/ja-morants-ankle-injury-grizzlies-nba-play-in/
+**Julian Sayin or Lincoln Kienholz? Projecting Ohio State's post-spring depth chart**\
+`Ohio State's QB race is tight but other positions are more clear. Let's take a look at where things stand with the two-deep depth chart.`\
+https://nytimes.com/athletic/6281535/2025/04/16/julian-sayin-lincoln-kienholz-ohio-state-post-spring-depth-chart/
 
-**'Weather doping': Discus records tumble but not without controversy**\
-`Mykolas Alekna, the Paris 2024 silver medallist from Lithuania, broke his own world record twice on Sunday.`\
-https://nytimes.com/athletic/6283317/2025/04/16/discus-oklahoma-weather-wind/
+**Pacers-Bucks series preview: Familiar foes meet for a first-round postseason rematch**\
+`The Pacers and Bucks know each other well, having played each other 15 times during the regular seasons and playoffs the last two seasons.`\
+https://nytimes.com/athletic/6282470/2025/04/16/bucks-pacers-playoff-preview/
 
-**Play-In Jimmy? Warriors get postseason version of their new star to beat Grizzlies**\
-`Jimmy Butler had his most productive night with Golden State in the team's first postseason game. "That's the beauty of Jimmy." `\
-https://nytimes.com/athletic/6282667/2025/04/16/jimmy-butler-warriors-play-in-win-grizzlies/
+**Darko Rajaković's soft skills are excellent, but can he nail the hard choices?**\
+`The Raptors coach has earned buy-in from his players, but he must drill down on the little things to help Raptors win.`\
+https://nytimes.com/athletic/6281938/2025/04/16/darko-rajakovic-raptors-coaching-offseason-nba/
 
-**Israel Threatens Further Escalation in Gaza War**\
-`The United Nations warned that the humanitarian situation in Gaza was likely at its worst since the conflict began and that the population was again on the brink of famine.`\
-https://nytimes.com/2025/04/16/world/middleeast/israel-threatens-gaza-escalation.html
+**Bulls anchor Nikola Vučević has quietly become one of the NBA's most consistent players**\
+`The 14-year NBA veteran averaged a double-double this season and is part of a Bulls team that has won 15 of its last 20 games.`\
+https://nytimes.com/athletic/6282396/2025/04/16/nikola-vucevic-bulls-nba-consistency/
 
-**Jimmy Butler helps Warriors extend shelf life of their remarkable era of contention**\
-`Butler starred against the Grizzlies in the Play-In, showing why his addition gives Golden State a chance at yet another playoff run.`\
-https://nytimes.com/athletic/6283210/2025/04/16/warriors-jimmy-butler-nba-playoffs/
+**What went wrong for the Bruins in 2024-25 — and what comes next**\
+`The Bruins finished at the bottom of the Eastern Conference after a lengthy run of playoff appearances.`\
+https://nytimes.com/athletic/6281178/2025/04/16/bruins-2024-25-season-what-went-wrong/
 
-**El Salvador’s Hard-Line Leader Is Linchpin in Trump’s Deportation Plans**\
-`Experts say President Nayib Bukele has the power but not the interest to return a man deported from Maryland to El Salvador in error.`\
-https://nytimes.com/2025/04/16/world/americas/el-salvador-bukele-abrego-garcia.html
+**Can Chargers' Joe Hortiz deliver draft-day trade magic again? Assessing potential scenarios**\
+`Last year, the Chargers GM made one of the best deals any team made. He could have a chance to go 2-for-2.`\
+https://nytimes.com/athletic/6281903/2025/04/16/chargers-nfl-draft-trade-scenarios/
 
-**The 20 most interesting players of college football's spring transfer window**\
-`What many personnel directors across the country figured would be a relatively tame spring portal window has quickly become intriguing.`\
-https://nytimes.com/athletic/6282864/2025/04/16/college-football-spring-transfer-portal-best-players/
+**Knicks-Pistons playoffs preview: Predictions, X-factors, keys to series and more**\
+`The NBA is better when Detroit and New York are good. And for the first time in a long time, both franchises are.`\
+https://nytimes.com/athletic/6276960/2025/04/16/knicks-pistons-nba-playoffs-preview-2025/
 
-**California Is Preparing to Take Trump to Court to Stop His Tariffs**\
-`State officials argue in a lawsuit that the U.S. Constitution expressly gives the authority to impose tariffs to Congress.`\
-https://nytimes.com/2025/04/16/us/california-trump-tariffs-lawsuit-newsom-bonta.html
+**Why Pat Ferschweiler might fit as Flyers' next coach: 'Not a fake bone in (his) body'**\
+`Ferschweiler just coached Western Michigan to its first-ever NCAA championship.`\
+https://nytimes.com/athletic/6281647/2025/04/16/ferschweiler-flyers-coach-western-michigan/
 
-**The Chipmakers Caught in the Trade War Crossfire**\
-`Nvidia and others are the latest casualties of escalating tensions between Washington and Beijing, as analysts press business leaders about the tariffs fallout.`\
-https://nytimes.com/2025/04/16/business/dealbook/nvidia-chips-china-trade-war.html
+**The Winnipeg Whiteout is almost here: What we know about Round 1 vs. St. Louis**\
+`The Blues clinched the second wild-card spot on Tuesday night. Here's where things stand ahead of the Round 1 matchup.`\
+https://nytimes.com/athletic/6281495/2025/04/16/winnipeg-jets-nhl-playoffs-blues/
 
-**Which NHL contenders pass the Cup Checklist going into the playoffs?**\
-`Here's a look at the 16 teams separated into five tiers based on how many boxes they tick on the new-and-improved Cup Checklist.`\
-https://nytimes.com/athletic/6276669/2025/04/16/nhl-playoffs-contenders-stanley-cup-checklist/
+**Leeds' Kristensen to complete permanent Frankfurt move**\
+`The 28-year-old, who has spent the season on loan at the German club, will complete the permanent transfer in June.`\
+https://nytimes.com/athletic/6281971/2025/04/16/leeds-kristensen-frankfurt-transfer/
 
