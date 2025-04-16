@@ -1,3 +1,19 @@
+**Trump administration places staff of homelessness agency on leave.**\
+`The move accelerates the administration’s push to dismantle the United States Interagency Council on Homelessness.`\
+https://nytimes.com/live/2025/04/15/us/trump-news/trump-administration-places-staff-of-homelessness-agency-on-leave
+
+**New York Leaders Agree to Ease Evidence Requirements for Prosecutors**\
+`The contentious issue has delayed an already late state budget, with Gov. Kathy Hochul insisting that it be resolved before budget talks could advance.`\
+https://nytimes.com/2025/04/15/nyregion/discovery-judges-law-ny.html
+
+**Nvidia Says U.S. Will Restrict Sales of More of Its A.I. Chips to China**\
+`The restrictions are the first major limits the Trump administration has put on semiconductor sales outside the United States, toughening rules created by the Biden administration.`\
+https://nytimes.com/2025/04/15/technology/nvidia-h20-chip-china-restrictions.html
+
+**Biden Condemns Trump’s Cuts to Social Security Administration**\
+`In his first expansive public comments since leaving the White House, former President Joseph R. Biden Jr. spoke out against the Trump administration’s cuts to the Social Security Administration.`\
+https://nytimes.com/video/us/politics/100000010112873/biden-social-security-trump-cuts.html
+
 **A.C.L.U. Sues Defense Department Schools Over Book Bans**\
 `Schools run by the Defense Department removed books and made other changes in response to orders from President Trump and his secretary of defense.`\
 https://nytimes.com/2025/04/15/us/aclu-sues-defense-department-schools-over-book-bans.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6282297/2025/04/15/wnba-draft-viewership-second-lar
 **Trump Seeks to Lower Drug Prices Through Medicare and Some Imports**\
 `President Trump directed his administration to help states import drugs from Canada. But a proposal to alter a Medicare program to reduce costs could wind up raising prices.`\
 https://nytimes.com/2025/04/15/health/trump-executive-order-prescription-drug-pricing.html
-
-**Grassley Draws Jeers From Constituents at Raucous Town Hall**\
-`The Iowa Republican was pressed on President Trump’s policies, including the case of a Salvadoran immigrant who his administration has admitted it mistakenly sent to a prison in El Salvador.`\
-https://nytimes.com/2025/04/15/us/politics/chuck-grassley-town-hall-iowa.html
-
-**Grassley Heckled by Constituents During Town Hall**\
-`Senator Chuck Grassley, Republican of Iowa, was confronted by constituents who demanded that he help secure the return of Kilmar Armando Abrego Garcia, the Maryland man who was deported last month.`\
-https://nytimes.com/video/us/politics/100000010112874/chuck-grassley-iowa-townhall.html
-
-**Wife of Gene Hackman Asked About Flulike Symptoms Before Their Deaths**\
-`Videos, photographs and police reports released by the Santa Fe County Sheriff’s Office in New Mexico offered a look into the days before Betsy Arakawa and Mr. Hackman died.`\
-https://nytimes.com/2025/04/15/movies/gene-hackman-betsy-arakawa-deaths.html
-
-**Mets scratch Griffin Canning. Does this open the door for Brandon Sproat later this week?**\
-`The Mets' rotation is in flux. They have multiple ways to address it, including a chance to bring up their top pitching prospect.`\
-https://nytimes.com/athletic/6282280/2025/04/15/mets-rotation-brandon-sproat-debut-possibility/
 
