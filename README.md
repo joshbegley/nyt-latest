@@ -1,3 +1,7 @@
+**Barcelona's unbeaten run ended but could this be a good way to lose?**\
+`Barcelona are through to the semi-final stage of the Champions League despite a first loss in 24 games`\
+https://nytimes.com/athletic/6282414/2025/04/16/barcelona-borussia-dortmund-analysis/
+
 **'Make it last, boys': How Fleury's surprising swan song stole the show in season-saving win**\
 `"It was fun to just go one more time out there and play the game I love," Fleury said of his final regular-season game before retirement.`\
 https://nytimes.com/athletic/6282965/2025/04/16/wild-clinch-playoff-berth-ducks-marc-andre-fleury/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/16/opinion/trump-tariffs-china-ecommerce.html
 **Wednesday Briefing: A Trump-Harvard Showdown**\
 `Plus, a fight over Van Gogh’s roots.`\
 https://nytimes.com/2025/04/16/briefing/harvard-trump-ukraine-gaza-medics.html
-
-**The New York Times in Print for Wednesday, April 16, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/04/16/todays-new-york-times
 
