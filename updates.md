@@ -1,3 +1,7 @@
+**Leo Beenhakker, Winning Soccer Coach Without Borders, Dies at 82**\
+`Among many other accomplishments, he led tiny Trinidad and Tobago to the World Cup and Poland to its first appearance in the European championships.`\
+https://nytimes.com/2025/04/16/sports/soccer/leo-beenhakker-dead.html
+
 **Judge Finds Probable Cause to Hold Trump Officials in Contempt Over Deportations**\
 `The move was a remarkable attempt by a jurist to hold the White House accountable for its apparent willingness to flout court orders.`\
 https://nytimes.com/2025/04/16/us/politics/trump-probable-cause-contempt-deportation-flights.html
