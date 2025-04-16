@@ -1,3 +1,7 @@
+**Kareem Abdul-Jabbar speaks out on anti-DEI policies on Jackie Robinson Day**\
+`The Lakers legend joined players from the Dodgers and Rockies in front of Dodger Stadium on Tuesday.`\
+https://nytimes.com/athletic/6282515/2025/04/15/jackie-robinson-day-kareem-abdul-jabbar-dodgers/
+
 **Blues clinch playoff spot, ending 2-year drought — will face Jets in first round**\
 `The Blues finish the regular season with 96 points, taking the second wild-card slot in the Western Conference.`\
 https://nytimes.com/athletic/6282426/2025/04/15/blues-clinch-playoffs-nhl-jets/

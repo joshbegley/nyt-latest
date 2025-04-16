@@ -1,3 +1,7 @@
+**Kareem Abdul-Jabbar speaks out on anti-DEI policies on Jackie Robinson Day**\
+`The Lakers legend joined players from the Dodgers and Rockies in front of Dodger Stadium on Tuesday.`\
+https://nytimes.com/athletic/6282515/2025/04/15/jackie-robinson-day-kareem-abdul-jabbar-dodgers/
+
 **Blues clinch playoff spot, ending 2-year drought — will face Jets in first round**\
 `The Blues finish the regular season with 96 points, taking the second wild-card slot in the Western Conference.`\
 https://nytimes.com/athletic/6282426/2025/04/15/blues-clinch-playoffs-nhl-jets/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/15/crosswords/daily-puzzle-2025-04-16.html
 **How the Maple Leafs won their first Atlantic Division title**\
 `The Leafs' first division title in an 82-game season since 2000 sets up a Battle of Ontario against the Ottawa Senators.`\
 https://nytimes.com/athletic/6274490/2025/04/15/maple-leafs-atlantic-division-nhl-playoffs/
-
-**Why Harvard Decided to Fight Trump**\
-`The Trump administration will freeze over $2 billion in federal funds because Harvard refused to comply with a list of demands. Harvard leaders believed saying no was worth the risk.`\
-https://nytimes.com/2025/04/15/us/why-harvard-resisted-trumps-demands.html
 
