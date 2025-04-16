@@ -1,3 +1,7 @@
+**Pelicans hire Joe Dumars as EVP of basketball operations**\
+`Dumars replaces David Griffin, who New Orleans fired Monday after the team missed the playoffs for the fourth time in six seasons.`\
+https://nytimes.com/athletic/6280948/2025/04/16/joe-dumars-pelicans-nba-president-of-basketball-ops/
+
 **Ousted Stanford coach Troy Taylor criticizes coverage of firing as 'unfair'**\
 `Taylor said investigations into his conduct with female athletic department administrators should not have been shared with media outlets.`\
 https://nytimes.com/athletic/6284211/2025/04/16/stanford-troy-taylor-investigations-coverage/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6284030/2025/04/16/nba-play-in-takeaways-trae-young
 **Seattle Seahawks NFL Draft 2025 guide: Picks, predictions and key needs**\
 `Everything you need to know about the Seahawks ahead of the draft, as Seattle now has a host of picks to work with.`\
 https://nytimes.com/athletic/6228062/2025/04/16/seattle-seahawks-2025-nfl-draft-picks-needs-predictions-guide/
-
-**Pittsburgh Steelers NFL Draft 2025 guide: Picks, predictions and key needs**\
-`Everything you need to know about the Steelers ahead of the draft, from their most pressing needs to how their QB situation factors in.`\
-https://nytimes.com/athletic/6228127/2025/04/16/pittsburgh-steelers-2025-nfl-draft-picks-needs-predictions-guide/
 
