@@ -1,3 +1,7 @@
+**'Weather doping': Discus records tumble but not without controversy**\
+`Mykolas Alekna, the Paris 2024 silver medallist from Lithuania, broke his own world record twice on Sunday.`\
+https://nytimes.com/athletic/6283317/2025/04/16/discus-oklahoma-weather-wind/
+
 **Play-In Jimmy? Warriors get postseason version of their new star to beat Grizzlies**\
 `Jimmy Butler had his most productive night with Golden State in the team's first postseason game. "That's the beauty of Jimmy." `\
 https://nytimes.com/athletic/6282667/2025/04/16/jimmy-butler-warriors-play-in-win-grizzlies/

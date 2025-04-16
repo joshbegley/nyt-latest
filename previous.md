@@ -1,3 +1,7 @@
+**'Weather doping': Discus records tumble but not without controversy**\
+`Mykolas Alekna, the Paris 2024 silver medallist from Lithuania, broke his own world record twice on Sunday.`\
+https://nytimes.com/athletic/6283317/2025/04/16/discus-oklahoma-weather-wind/
+
 **Play-In Jimmy? Warriors get postseason version of their new star to beat Grizzlies**\
 `Jimmy Butler had his most productive night with Golden State in the team's first postseason game. "That's the beauty of Jimmy." `\
 https://nytimes.com/athletic/6282667/2025/04/16/jimmy-butler-warriors-play-in-win-grizzlies/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6276669/2025/04/16/nhl-playoffs-contenders-stanley-
 **In Boston, the one constant through all the months has been the Celtics**\
 `The Celtics have an excellent chance to repeat as NBA champions, but let's not get ahead of ourselves.`\
 https://nytimes.com/athletic/6282390/2025/04/16/boston-celtics-nba-playoffs-magic-column/
-
-**NBA Player Tiers 2025: With Zion, LaMelo and more, durability worries throughout Tier 3**\
-`Having multiple players in this group is almost always going to be helpful for a team to be good.`\
-https://nytimes.com/athletic/6278925/2025/04/16/nba-player-tiers-2025-zion-lamelo-ball-injuries/
 
