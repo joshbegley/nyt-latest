@@ -1,3 +1,7 @@
+**Play-In Jimmy? Warriors get postseason version of their new star to beat Grizzlies**\
+`Jimmy Butler had his most productive night with Golden State in the team's first postseason game. "That's the beauty of Jimmy." `\
+https://nytimes.com/athletic/6282667/2025/04/16/jimmy-butler-warriors-play-in-win-grizzlies/
+
 **Israel Threatens Further Escalation in Gaza War**\
 `The United Nations warned that the humanitarian situation in Gaza was likely at its worst since the conflict began and that the population was again on the brink of famine.`\
 https://nytimes.com/2025/04/16/world/middleeast/israel-threatens-gaza-escalation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6282390/2025/04/16/boston-celtics-nba-playoffs-magi
 **NBA Player Tiers 2025: With Zion, LaMelo and more, durability worries throughout Tier 3**\
 `Having multiple players in this group is almost always going to be helpful for a team to be good.`\
 https://nytimes.com/athletic/6278925/2025/04/16/nba-player-tiers-2025-zion-lamelo-ball-injuries/
-
-**In F1's tight midfield battle, Alex Albon - not Carlos Sainz - leads Williams' charge**\
-`It has been the 29-year-old's strongest start to a Formula One season for Williams, up against his highly rated new teammate`\
-https://nytimes.com/athletic/6282227/2025/04/16/f1-williams-alex-albon-carlos-sainz-midfield/
 
