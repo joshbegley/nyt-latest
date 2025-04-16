@@ -1,3 +1,11 @@
+**Blues complete unlikely comeback to NHL playoffs: From long shots to wild cards**\
+`With a 6-1 trouncing of the Utah Hockey Club, the Blues secured the No. 2 wild card in the Western Conference playoffs.`\
+https://nytimes.com/athletic/6279437/2025/04/16/blues-unlikely-nhl-playoffs-comeback/
+
+**PSG need to hold their nerve when Champions League chaos strikes to be true contenders**\
+`The French champions were firmly in control of their Champions League quarter-final against Villa until the game became chaotic`\
+https://nytimes.com/athletic/6282696/2025/04/16/psg-champions-league-contenders/
+
 **'That felt so good': Cole Anthony propels his Magic teammates to the playoffs**\
 `Orlando's fifth-year guard has endured a rocky season. But in an East Play-In game, he made a huge difference.`\
 https://nytimes.com/athletic/6283101/2025/04/16/orlando-magic-cole-anthony-nba-playoffs/
