@@ -1,3 +1,7 @@
+**Help Preserve Your Vision Longer**\
+`IZERVAY™ May Slow the Progression of Geographic Atrophy`\
+https://nytimes.com/paidpost/astellas/help-preserve-your-vision-longer.html
+
 **Denver Nuggets playoff primer: Russell Westbrook returns, guarding Kawhi Leonard and more**\
 `The Nuggets are 3-0 since their organizational upheaval, but the LA Clippers are hotter, having won eight in a row coming into the playoffs.`\
 https://nytimes.com/athletic/6283081/2025/04/16/denver-nuggets-la-clippers-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/16/world/africa/sudan-rsf-zamzam.html
 **The six minutes that proved just how vital Pedri is to Barcelona**\
 `Hansi Flick's side initially struggled against Borussia Dortmund without their midfield general. Once he was brought on, they took control`\
 https://nytimes.com/athletic/6283380/2025/04/16/pedri-barcelona-champions-league-hopes/
-
-**Penguins' Kris Letang has surgery to repair hole in heart**\
-`The hole was discovered after Letang's first stroke in January 2014. Letang suffered a second stroke in 2022.`\
-https://nytimes.com/athletic/6283746/2025/04/16/kris-letang-heart-surgery-penguins/
 
