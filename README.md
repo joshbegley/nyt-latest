@@ -1,3 +1,7 @@
+**Songs for Situationships, Movies for the Middle Seat and More: The Winners of Our ‘My List’ Contest**\
+`Entertain and inform yourself with these teen-curated lists that suggest TV, film, books, music, art and dance to enjoy — or to avoid.`\
+https://nytimes.com/2025/04/16/learning/songs-for-situationships-movies-for-the-middle-seat-and-more-the-winners-of-our-my-list-contest.html
+
 **Watch: Do the Warriors have enough to see off the Rockets?**\
 `NBA Daily discusses Golden State’s Play-In win over Memphis and how well they match up against the Houston Rockets in the first round.`\
 https://nytimes.com/athletic/6283525/2025/04/16/nba-daily-playoffs-warriors-rockets/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/16/us/politics/bernie-sanders-aoc-trump-democrats.ht
 **Serena Williams 'doesn't know' if she regrets Super Bowl appearance**\
 `Williams reflected on her appearance at Super Bowl LIX during Kendrick Lamar's halftime show, in which she danced to “Not Like Us.”`\
 https://nytimes.com/athletic/6284494/2025/04/16/serena-williams-super-bowl-kendrick-lamar-not-like-us-halftime-show/
-
-**Thompson: Steph Curry's Warriors have done it all, but Tuesday was different**\
-`The Warriors' Play-In win Tuesday over the Grizzlies brought out a new kind of emotion for the decorated dynasty — exhilarating relief.`\
-https://nytimes.com/athletic/6284401/2025/04/16/stephen-curry-warriors-grizzlies-play-in-playoffs/
 
