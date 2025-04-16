@@ -1,3 +1,15 @@
+**The Bounce: NBA Play-In takeaways: Trae Young's tantrum vs. Magic, spaghetti on the sidelines and more**\
+`The first day of NBA Play-In basketball saw Trae Young throw a tantrum, a plate of spaghetti become a star and more`\
+https://nytimes.com/athletic/6284030/2025/04/16/nba-play-in-takeaways-trae-youngs-tantrum-vs-magic-spaghetti-on-the-sidelines-and-more/
+
+**Seattle Seahawks NFL Draft 2025 guide: Picks, predictions and key needs**\
+`Everything you need to know about the Seahawks ahead of the draft, as Seattle now has a host of picks to work with.`\
+https://nytimes.com/athletic/6228062/2025/04/16/seattle-seahawks-2025-nfl-draft-picks-needs-predictions-guide/
+
+**Pittsburgh Steelers NFL Draft 2025 guide: Picks, predictions and key needs**\
+`Everything you need to know about the Steelers ahead of the draft, from their most pressing needs to how their QB situation factors in.`\
+https://nytimes.com/athletic/6228127/2025/04/16/pittsburgh-steelers-2025-nfl-draft-picks-needs-predictions-guide/
+
 **Suspect in Pa. Governor’s Mansion Arson Cited Treatment of Palestinians, Police Say**\
 `The man charged in the attack on Gov. Josh Shapiro’s residence told the police he was seeking to “stop having my friends killed.”`\
 https://nytimes.com/2025/04/16/us/cody-balmer-motive-arson-gaza-palestinian-shapiro.html
