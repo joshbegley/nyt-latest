@@ -1,3 +1,7 @@
+**Hawks' Trae Young ejected vs. Magic for 'making a mockery of the game,' ref says**\
+`Young was ejected from Atlanta's 120-95 loss in the first game of the Play-In round.`\
+https://nytimes.com/athletic/6282888/2025/04/16/hawks-trae-young-ejected-vs-magic-play-in/
+
 **Rashford started Aston Villa's transformation. Against PSG he almost finished it**\
 `Aston Villa came very close to a comeback against PSG, inspired in part by Marcus Rashford`\
 https://nytimes.com/athletic/6278632/2025/04/16/aston-villa-marcus-rashford-psg/

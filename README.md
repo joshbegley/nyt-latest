@@ -1,3 +1,11 @@
+**PSG need to hold their nerve when Champions League chaos strikes to be true contenders**\
+`PSG were firmly in control of their Champions League quarter-final against Villa until the game became chaotic`\
+https://nytimes.com/athletic/6282696/2025/04/16/psg-champions-league-contenders/
+
+**Grizzlies blow chance for Play-In Tournament win vs. Warriors on 5-second violation**\
+`Steph Curry, who had hit two free throws to put the Warriors up three, was fouled on the next play and hit another pair to finish the game.`\
+https://nytimes.com/athletic/6283014/2025/04/16/grizzlies-warriors-five-second-violation/
+
 **Hawks' Trae Young ejected vs. Magic for 'making a mockery of the game,' ref says**\
 `Young was ejected from Atlanta's 120-95 loss in the first game of the Play-In round.`\
 https://nytimes.com/athletic/6282888/2025/04/16/hawks-trae-young-ejected-vs-magic-play-in/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6280549/2025/04/16/what-next-for-armando-broja-ever
 **Matt O'Riley: 'I don't think about competition - just how I get better'**\
 `The 24-year-old midfielder has not completed 90 minutes since signing for £25m but says he can thrive wherever Fabian Hurzeler plays him`\
 https://nytimes.com/athletic/6277822/2025/04/16/matt-oriley-brighton-first-season-interview/
-
-**Ollie Scarles had a tough time against Liverpool. He will hope to react, just like Ferdinand and Rice did**\
-`The 19-year-old left-back struggled to contain Mohamed Salah's threat in the narrow 2-1 defeat to Liverpool on Sunday`\
-https://nytimes.com/athletic/6277878/2025/04/16/ollie-scarles-west-ham-analysis/
-
-**'Ruben Amorim, he’ll bring the glory days again' - Man Utd fans explain their song of defiance**\
-`United fans have turned to Bonnie Tyler in a season of heartache`\
-https://nytimes.com/athletic/6281793/2025/04/16/bonnie-tyler-manchester-united-fans/
 
