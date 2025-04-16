@@ -1,3 +1,19 @@
+**Inside a New York City Museum: Flirting, Fund-Raising and Fraud**\
+`Heather McGowan’s novel “Friends of the Museum” takes place over a single, chaotic day in the lead-up to a Met-inspired costume gala.`\
+https://nytimes.com/2025/04/16/books/review/friends-of-the-museum-heather-mcgowan.html
+
+**Why Europe Is Less Panicked About the Stock Market**\
+`Europeans tend to keep more of their money in cash, gaining some protection from the recent market volatility. But President Trump’s tariffs will have an effect, experts said.`\
+https://nytimes.com/2025/04/16/world/europe/european-stock-market-investing.html
+
+**Linkin Park to headline Champions League final pre-match show in Munich**\
+`The rock band said they are 'excited to share some of our favourite songs from the past and present' at the Allianz Arena.`\
+https://nytimes.com/athletic/6283502/2025/04/16/linkin-park-champions-league-final-munich/
+
+**Having left MLB behind, ex-Marlins GM Kim Ng named commissioner of new pro softball league**\
+`Ng, who left the Marlins abruptly in 2023, says she is following her passion and believes this is the perfect time for softball to take off.`\
+https://nytimes.com/athletic/6282422/2025/04/16/kim-ng-marlins-pro-softball-league-commissioner/
+
 **Zirzkee out for the season but Amad could return next month**\
 `The 23-year-old has scored seven goals and provided three assists in 48 games for United this season.`\
 https://nytimes.com/athletic/6276227/2025/04/16/zirkzee-manchester-united-injury-amad/
@@ -21,20 +37,4 @@ https://nytimes.com/live/2025/04/16/us/trump-news
 **The transfer portal is open: What to watch at Michigan**\
 `There will be options for teams that want to upgrade at a position or two coming out of spring practice. Is Michigan among them?`\
 https://nytimes.com/athletic/6281269/2025/04/16/michigan-football-transfer-portal-preview/
-
-**Julian Sayin or Lincoln Kienholz? Projecting Ohio State's post-spring depth chart**\
-`Ohio State's QB race is tight but other positions are more clear. Let's take a look at where things stand with the two-deep depth chart.`\
-https://nytimes.com/athletic/6281535/2025/04/16/julian-sayin-lincoln-kienholz-ohio-state-post-spring-depth-chart/
-
-**Pacers-Bucks series preview: Familiar foes meet for a first-round postseason rematch**\
-`The Pacers and Bucks know each other well, having played each other 15 times during the regular seasons and playoffs the last two seasons.`\
-https://nytimes.com/athletic/6282470/2025/04/16/bucks-pacers-playoff-preview/
-
-**Darko Rajaković's soft skills are excellent, but can he nail the hard choices?**\
-`The Raptors coach has earned buy-in from his players, but he must drill down on the little things to help Raptors win.`\
-https://nytimes.com/athletic/6281938/2025/04/16/darko-rajakovic-raptors-coaching-offseason-nba/
-
-**Bulls anchor Nikola Vučević has quietly become one of the NBA's most consistent players**\
-`The 14-year NBA veteran averaged a double-double this season and is part of a Bulls team that has won 15 of its last 20 games.`\
-https://nytimes.com/athletic/6282396/2025/04/16/nikola-vucevic-bulls-nba-consistency/
 
