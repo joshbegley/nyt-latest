@@ -1,3 +1,11 @@
+**PSG need to hold their nerve when Champions League chaos strikes to be true contenders**\
+`PSG were firmly in control of their Champions League quarter-final against Villa until the game became chaotic`\
+https://nytimes.com/athletic/6282696/2025/04/16/psg-champions-league-contenders/
+
+**Grizzlies blow chance for Play-In Tournament win vs. Warriors on 5-second violation**\
+`Steph Curry, who had hit two free throws to put the Warriors up three, was fouled on the next play and hit another pair to finish the game.`\
+https://nytimes.com/athletic/6283014/2025/04/16/grizzlies-warriors-five-second-violation/
+
 **Hawks' Trae Young ejected vs. Magic for 'making a mockery of the game,' ref says**\
 `Young was ejected from Atlanta's 120-95 loss in the first game of the Play-In round.`\
 https://nytimes.com/athletic/6282888/2025/04/16/hawks-trae-young-ejected-vs-magic-play-in/
