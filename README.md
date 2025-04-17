@@ -1,3 +1,27 @@
+**Thursday Briefing: A Judge’s Pushback Against Trump**\
+`Plus, a look at the Grand Egyptian Museum.`\
+https://nytimes.com/2025/04/17/briefing/judge-trump-contempt-iran-nvidia.html
+
+**South Korea Hopes Shipbuilding Will Give It an Edge in Trade Talks**\
+`As it faces the possibility of a 25 percent tariff on its exports, South Korea has taken notice of President Trump’s stated goal to revive U.S. shipbuilding.`\
+https://nytimes.com/2025/04/17/world/asia/skorea-trump-tariffs-ships.html
+
+**Europe Seeks a Direct Line to Trump, Skeptical That Aides Speak for Him**\
+`Despite Europe’s size, economic might and longstanding alliances with Washington, Trump officials have made clear it is not a priority, European officials say.`\
+https://nytimes.com/2025/04/17/world/europe/europe-trump-trade-defense.html
+
+**China Wants Countries to Unite Against Trump, but Is Met With Wariness**\
+`Beijing is using a mix of carrots and sticks to try to prevent other countries from siding with the United States in isolating China.`\
+https://nytimes.com/2025/04/17/world/asia/china-trump-tariffs-trade.html
+
+**Connections: Sports Edition Coach: Hints for April 17, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6285894/2025/04/17/connections-sports-edition-hints-for-april-17-2025/
+
+**Quote of the Day: It Challenged Autocrats. Trump Wants to Silence It.**\
+`Quotation of the Day for Thursday, April 17, 2025.`\
+https://nytimes.com/2025/04/16/pageoneplus/quote-of-the-day-it-challenged-autocrats-trump-wants-to-silence-it.html
+
 **Phillies need reliable Aaron Nola back from 'the worst start' he's ever had**\
 `"I mean, it's unacceptable," Nola said after an 11-4 demolition by the San Francisco Giants.`\
 https://nytimes.com/athletic/6286012/2025/04/16/phillies-lose-giants-aaron-nola-worst-start/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6285897/2025/04/16/nationals-pirates-benches-clear-
 **Wednesday's NBA Play-In takeaways: Heat dominate Bulls, Kings host Mavs**\
 `NBA Play-In action continues with two postseason elimination games.`\
 https://nytimes.com/athletic/6285785/2025/04/16/nba-play-in-heat-bulls-mavericks-kings/
-
-**I.R.S. Is Said to Be Considering Whether to Revoke Harvard’s Tax-Exempt Status**\
-`The move would be a major escalation of the Trump administration’s attempts to choke off federal money and support for the leading research university.`\
-https://nytimes.com/2025/04/16/us/politics/trump-irs-harvard.html
-
-**Review: Caryl Churchill Times Four Makes an Infinity of Worlds**\
-`“Glass. Kill. What If If Only. Imp,” a new collection of one-acts by the great British playwright, is a cause for celebration, wonderment and grief.`\
-https://nytimes.com/2025/04/16/arts/review-caryl-churchill-glass-kill-what-if-only-imp.html
-
-**Bit of Ballet Wear**\
-`Ilan and Shimon Kolkowitz give us good advice as they make their New York Times Crossword debut.`\
-https://nytimes.com/2025/04/16/crosswords/daily-puzzle-2025-04-17.html
-
-**Power Outage in Puerto Rico Leaves Train Passengers Stranded**\
-`The passengers had to evacuate onto the overpass where their train lost power. More than 1.4 million customers on the island lost power.`\
-https://nytimes.com/video/world/americas/100000010115065/puerto-rico-power-blackout-electricity.html
-
-**Canadiens clinch first playoff berth since reaching Cup Final in 2021**\
-`Montreal, led by its young core, completed a late-season push to the playoffs that bodes well for what the future might bring.`\
-https://nytimes.com/athletic/6275067/2025/04/16/montreal-canadiens-clinch-2025-nhl-playoffs/
-
-**With no big trades yet, Cubs get through West Coast trip vs. National League powerhouses**\
-`The Cubs' energy could be seen throughout this Southern California swing, where they split two series against the Padres and Dodgers.`\
-https://nytimes.com/athletic/6285822/2025/04/16/cubs-split-padres-dodgers-series-no-trades-yet/
 
