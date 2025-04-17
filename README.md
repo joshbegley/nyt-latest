@@ -1,3 +1,11 @@
+**Play-In Tournament woes continue to haunt Bulls: 'We've got to be better'**\
+`“The disappointing part was that we didn’t play to our identity,” Billy Donovan said of the Bulls' Play-In Tournament loss to the Heat.`\
+https://nytimes.com/athletic/6286148/2025/04/17/bulls-nba-play-in-tournament-heat/
+
+**MLB bat path metrics, speed training, fitting tech: Is hitting finally catching up?**\
+`With hitting arguably harder than ever, teams are looking at data, technology drills and, yes, new bat shapes to get an edge.`\
+https://nytimes.com/athletic/6270614/2025/04/17/mlb-bat-path-metrics-speed-training-tech/
+
 **Vikings mailbag: Draft options at No. 24, trade possibilities and J.J. McCarthy's readiness**\
 `Vikings spent the last two weeks finalizing their draft board. They only have four picks (for now). Here's a brief primer on what's to come.`\
 https://nytimes.com/athletic/6284677/2025/04/17/vikings-mailbag-nfl-draft-jj-mccarthy/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6282502/2025/04/17/giants-nfl-draft-mock-draft-abdu
 **Van Dijk signs new two-year contract at Liverpool**\
 `The centre-back's extension comes after Mohamed Salah also signed a new two-year contract at Anfield.`\
 https://nytimes.com/athletic/6269382/2025/04/17/van-dijk-contract-liverpool/
-
-**Top 10 quarterbacks of the 2025 NFL Draft: Strengths, flaws and scheme fits**\
-`A break down of a class that includes one potentially elite QB, a couple immediate starters and a few intriguing talents who need work.`\
-https://nytimes.com/athletic/6270971/2025/04/17/nfl-draft-qb-rankings-film-breakdown/
-
-**Meet the young coach making some of Timberwolves' toughest calls: 'I just trust him'**\
-`"I trust him with everything," Timberwolves coach Chris Finch said of 33-year-old assistant Jeff Newton.`\
-https://nytimes.com/athletic/6216258/2025/04/17/jeff-newton-timberwolves-assistant-nba-replay-review/
 
