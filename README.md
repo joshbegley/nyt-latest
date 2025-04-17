@@ -1,3 +1,15 @@
+**I.R.S. Said to Be Considering Whether to Revoke Harvard’s Tax-Exempt Status**\
+`The move would be a major escalation of the Trump administration’s attempts to choke off federal money and support for the leading research university.`\
+https://nytimes.com/2025/04/16/us/politics/trump-irs-harvard.html
+
+**Review: Caryl Churchill Times Four Makes an Infinity of Worlds**\
+`“Glass. Kill. What If If Only. Imp,” a new collection of one-acts by the great British playwright, is a cause for celebration, wonderment and grief.`\
+https://nytimes.com/2025/04/16/arts/review-caryl-churchill-glass-kill-what-if-only-imp.html
+
+**Bit of Ballet Wear**\
+`Ilan and Shimon Kolkowitz give us good advice as they make their New York Times Crossword debut.`\
+https://nytimes.com/2025/04/16/crosswords/daily-puzzle-2025-04-17.html
+
 **Power Outage in Puerto Rico Leaves Train Passengers Stranded**\
 `The passengers had to evacuate onto the overpass where their train lost power. More than 1.4 million customers on the island lost power.`\
 https://nytimes.com/video/world/americas/100000010115065/puerto-rico-power-blackout-electricity.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6285775/2025/04/16/syracuse-football-trebor-pena-tr
 **Bears, T.J. Edwards agree to 2-year, $20 million extension**\
 `Edwards set career-high marks in sacks (four) and tackles for loss (12) last season.`\
 https://nytimes.com/athletic/6285815/2025/04/16/tj-edwards-bears-extension/
-
-**Trump Names Interim U.S. Attorney for Manhattan, Bypassing Schumer**\
-`Senator Chuck Schumer had said he would block the permanent appointment of Jay Clayton, the president’s choice to head one of the nation’s most prestigious prosecutor’s offices.`\
-https://nytimes.com/2025/04/16/nyregion/trump-clayton-schumer-sdny-interim-appointment.html
-
-**Raiders left tackle Kolton Miller wants contract extension: Source**\
-`Miller, who has played for the team for seven seasons, is entering the final year of his contract. `\
-https://nytimes.com/athletic/6285677/2025/04/16/raiders-kolton-miller-extension-offseason-program/
-
-**Mother of Woman Killed by Immigrant Speaks at White House Briefing**\
-`The appearance by Patty Morin came as a federal judge threatened the Trump administration with a contempt-of-court investigation over its deportation flights to El Salvador.`\
-https://nytimes.com/2025/04/16/us/politics/immigrant-killing-deportations-leavitt-garcia.html
 

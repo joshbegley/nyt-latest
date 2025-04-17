@@ -1,3 +1,11 @@
+**Power Outage in Puerto Rico Leaves Train Passengers Stranded**\
+`The passengers had to evacuate onto the overpass where their train lost power. More than 1.4 million customers on the island lost power.`\
+https://nytimes.com/video/world/americas/100000010115065/puerto-rico-power-blackout-electricity.html
+
+**Canadiens clinch first playoff berth since reaching Cup Final in 2021**\
+`Montreal, led by its young core, completed a late-season push to the playoffs that bodes well for what the future might bring.`\
+https://nytimes.com/athletic/6275067/2025/04/16/montreal-canadiens-clinch-2025-nhl-playoffs/
+
 **With no big trades yet, Cubs get through West Coast trip vs. National League powerhouses**\
 `The Cubs' energy could be seen throughout this Southern California swing, where they split two series against the Padres and Dodgers.`\
 https://nytimes.com/athletic/6285822/2025/04/16/cubs-split-padres-dodgers-series-no-trades-yet/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6285677/2025/04/16/raiders-kolton-miller-extension-
 **Mother of Woman Killed by Immigrant Speaks at White House Briefing**\
 `The appearance by Patty Morin came as a federal judge threatened the Trump administration with a contempt-of-court investigation over its deportation flights to El Salvador.`\
 https://nytimes.com/2025/04/16/us/politics/immigrant-killing-deportations-leavitt-garcia.html
-
-**Kent State fired Kenni Burns after probe into 6-figure loan from booster**\
-`The documents also listed $16,000 in questionable expenses made or authorized by Burns on his university purchasing card.`\
-https://nytimes.com/athletic/6285693/2025/04/16/kenni-burns-fired-kent-state-investigation/
-
-**3 Drown After Boat Crash During Fishing Tournament in Alabama**\
-`The men were thrown overboard when two boats collided in Lewis Smith Lake on Wednesday morning, the authorities said.`\
-https://nytimes.com/2025/04/16/us/major-league-fishing-boat-accident-smith-lake.html
 

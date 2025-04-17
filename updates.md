@@ -1,3 +1,11 @@
+**Power Outage in Puerto Rico Leaves Train Passengers Stranded**\
+`The passengers had to evacuate onto the overpass where their train lost power. More than 1.4 million customers on the island lost power.`\
+https://nytimes.com/video/world/americas/100000010115065/puerto-rico-power-blackout-electricity.html
+
+**Canadiens clinch first playoff berth since reaching Cup Final in 2021**\
+`Montreal, led by its young core, completed a late-season push to the playoffs that bodes well for what the future might bring.`\
+https://nytimes.com/athletic/6275067/2025/04/16/montreal-canadiens-clinch-2025-nhl-playoffs/
+
 **With no big trades yet, Cubs get through West Coast trip vs. National League powerhouses**\
 `The Cubs' energy could be seen throughout this Southern California swing, where they split two series against the Padres and Dodgers.`\
 https://nytimes.com/athletic/6285822/2025/04/16/cubs-split-padres-dodgers-series-no-trades-yet/
