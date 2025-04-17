@@ -1,3 +1,11 @@
+**What Is Tax-Exempt Status and Can the I.R.S. Revoke It From Harvard?**\
+`The university, like many colleges and charities, is exempt from federal income and property taxes, saving it billions of dollars. President Trump has questioned whether it should enjoy that status.`\
+https://nytimes.com/2025/04/17/us/tax-exempt-status-irs-harvard.html
+
+**Trump Says Fed Chair’s ‘Termination Cannot Come Fast Enough’**\
+`The president said that Jerome Powell has been too hesitant to cut interest rates, and “he should certainly lower them now.”`\
+https://nytimes.com/2025/04/17/business/economy/trump-jerome-powell-fed.html
+
 **Ukrainian tennis player files lawsuit against WTA Tour over response to Russian invasion**\
 `Tsurenko alleges that the WTA Tour and its chairman, Steve Simon, have breached contract and caused “emotional distress.”`\
 https://nytimes.com/athletic/6286454/2025/04/17/lesia-tsurenko-lawsuit-wta-tour-steve-simon/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6284088/2025/04/17/donovan-mitchell-cleveland-caval
 **Pistons' physicality helped get them to playoffs but don't call them Bad Boys yet**\
 `Thanks to a newfound physical toughness, the Pistons have a young nucleus that is no longer a guaranteed win on opposing teams' calendars.`\
 https://nytimes.com/athletic/6285223/2025/04/17/detroit-pistons-nba-playoffs-2025-game-planning/
-
-**Why Oilers are the 'mystery team' of this year's NHL playoffs**\
-`Thanks to injuries and uneven play, the Oilers enter the playoffs under a shroud of doubt from outside their dressing room.`\
-https://nytimes.com/athletic/6282214/2025/04/17/oilers-nhl-playoffs-2025/
-
-**Cold showers, wash your own kit: life at the top of US minor league soccer**\
-`Turbulent times at minor league Loudoun United, where player say they have succeeded despite uncertainty and upheaval.`\
-https://nytimes.com/athletic/6281237/2025/04/17/loudoun-united-usl-championship-washing-jerseys/
 
