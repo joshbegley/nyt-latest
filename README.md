@@ -1,3 +1,15 @@
+**Israel Strikes Area With Large Tent Camps for Displaced Gazans**\
+`The attack on the Mawasi area killed at least several people, including children, according to Gaza’s emergency rescue service. Israel did not confirm the location of the attack.`\
+https://nytimes.com/2025/04/17/world/middleeast/israel-gaza-strike-mawasi.html
+
+**'You don't need to buy your team:' How smart NFL front offices navigate dead money restraints**\
+`Hitting on draft picks, as teams like the Broncos proved last year, is a big part of the equation for navigating tough financial waters.`\
+https://nytimes.com/athletic/6281048/2025/04/17/nfl-teams-dead-cap-money-navigation/
+
+**Twins' declining attendance has turned Target Field into the Land of 10,000 Fans**\
+`Monday's game set a new low for Target Field attendance, as the Twins' on-field struggles and "business decisions" sink fan morale.`\
+https://nytimes.com/athletic/6281284/2025/04/17/minnesota-twins-target-field-attendance-drop/
+
 **What Is Tax-Exempt Status and Can the I.R.S. Revoke It From Harvard?**\
 `The university, like many colleges and charities, is exempt from federal income and property taxes, saving it billions of dollars. President Trump has questioned whether it should enjoy that status.`\
 https://nytimes.com/2025/04/17/us/tax-exempt-status-irs-harvard.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6284936/2025/04/17/masai-ujiri-raptors-season-end-n
 **2025 NHL playoff preview: Los Angeles Kings vs. Edmonton Oilers**\
 `The Kings' depth and all-around game are stronger than ever, but can they contain dynamic Oilers duo Connor McDavid and Leon Draisaitl?`\
 https://nytimes.com/athletic/6281771/2025/04/17/nhl-playoffs-2025-kings-oilers/
-
-**Transfer portal update: Slim pickings on the QB market, FCS stars on the move**\
-`Cal's backfield decimated by departures. Wisconsin loses a key pass-catcher. Ole Miss adds another defensive back. `\
-https://nytimes.com/athletic/6285277/2025/04/17/url-college-football-spring-transfer-portal-qb-market/
-
-**Donovan Mitchell’s self-sacrifice charted the Cavs’ course to dominance**\
-`"Unselfish MVP" — that's how one teammate described the six-time All-Star who fueled Cleveland to the East's best record.`\
-https://nytimes.com/athletic/6284088/2025/04/17/donovan-mitchell-cleveland-cavaliers-2025-nba-playoffs/
-
-**Pistons' physicality helped get them to playoffs but don't call them Bad Boys yet**\
-`Thanks to a newfound physical toughness, the Pistons have a young nucleus that is no longer a guaranteed win on opposing teams' calendars.`\
-https://nytimes.com/athletic/6285223/2025/04/17/detroit-pistons-nba-playoffs-2025-game-planning/
 

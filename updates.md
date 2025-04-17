@@ -1,3 +1,11 @@
+**What Is Tax-Exempt Status and Can the I.R.S. Revoke It From Harvard?**\
+`The university, like many colleges and charities, is exempt from federal income and property taxes, saving it billions of dollars. President Trump has questioned whether it should enjoy that status.`\
+https://nytimes.com/2025/04/17/us/tax-exempt-status-irs-harvard.html
+
+**Trump Says Fed Chair’s ‘Termination Cannot Come Fast Enough’**\
+`The president said that Jerome Powell has been too hesitant to cut interest rates, and “he should certainly lower them now.”`\
+https://nytimes.com/2025/04/17/business/economy/trump-jerome-powell-fed.html
+
 **Ukrainian tennis player files lawsuit against WTA Tour over response to Russian invasion**\
 `Tsurenko alleges that the WTA Tour and its chairman, Steve Simon, have breached contract and caused “emotional distress.”`\
 https://nytimes.com/athletic/6286454/2025/04/17/lesia-tsurenko-lawsuit-wta-tour-steve-simon/
