@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6287087/2025/04/17/champions-league-outright-odds-betting-predictions/
 
+**Champions League outright odds: Barca and PSG favourites, Inter outsiders?**\
+`Sam Tighe explores the changing outright betting markets in the aftermath of the Champions League quarter-finals. 
+`\
+https://nytimes.com/athletic/6287087/2025/04/17/champions-league-outright-odds-betting-predictions/
+
 **The Windup: How do MLB GMs assess their rivals?**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6286383/2025/04/17/mlb-front-office-rankings-the-windup/

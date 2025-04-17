@@ -1,3 +1,19 @@
+**Watch: Have the Mavs found their winning formula at the right time?**\
+`"The Athletic NBA Daily" discuss the Mavericks’ Play-In win over Sacramento and how they match up against Memphis.`\
+https://nytimes.com/athletic/6286841/2025/04/17/nba-daily-dallas-mavericks-playoffs/
+
+**The Bounce: Nikola Jokić's no-look mastery highlights the NBA's annual Bouncies awards**\
+`The 2024-25 NBA regular season is done-zo! That means it's time for your annual Bouncies awards!`\
+https://nytimes.com/athletic/6287056/2025/04/17/nikola-jokic-nuggets-no-look-pass-nba-playoffs-bouncies-the-bounce/
+
+**Israeli Strike Kills at Least a Dozen in ‘Humanitarian Zone,’ Gazan Officials Say**\
+`Gaza’s Civil Defense, the local emergency rescue service, reported that an Israeli strike overnight into Thursday in the Mawasi encampment area killed at least a dozen people, including children. The Israeli military did not immediately respond to a request for comment.`\
+https://nytimes.com/video/world/middleeast/100000010115594/gaza-israeli-strike-humanitarian-zone-mawasi.html
+
+**Google Is a Monopolist in Online Advertising Tech, Judge Says**\
+`The ruling was the second time in a year that a federal court had found that Google had acted illegally to maintain its dominance.`\
+https://nytimes.com/2025/04/17/technology/google-ad-tech-antitrust-ruling.html
+
 **Champions League outright odds: Barca and PSG favourites, Inter outsiders?**\
 `Sam Tighe explores the changing outright betting markets in the aftermath of the Champions League quarter-finals. 
 `\
@@ -22,20 +38,4 @@ https://nytimes.com/athletic/6285429/2025/04/17/fantasy-baseball-k-rate-buy-low-
 **Lee Corso to retire from 'College GameDay' after Week 1 after 38 years, hundreds of headgear picks**\
 `Corso's weekly headgear selections have been a staple of college football Saturday's for nearly three decades.`\
 https://nytimes.com/athletic/5867913/2025/04/17/lee-corso-college-gameday-retirement/
-
-**White House Eyes Overhaul of Federal Housing Aid to the Poor**\
-`The Trump administration has considered sharply curtailing vouchers as part of its budget for the 2026 fiscal year.`\
-https://nytimes.com/2025/04/17/us/politics/housing-aid-hud-federal-budget.html
-
-**LVMH Abruptly Puts Dior Men in Jonathan Anderson’s Hands**\
-`A one-sentence statement served as the notice that Mr. Anderson, who reimagined LVMH’s Loewe brand, would lead men’s wear design at Dior.`\
-https://nytimes.com/2025/04/17/style/jonathan-anderson-dior-men-lvmh.html
-
-**Trade War to Weaken Global Growth and Increase Inflation, I.M.F. Warns**\
-`Kristalina Georgieva, the managing director of the International Monetary Fund, warned in a speech that protectionism erodes productivity.`\
-https://nytimes.com/2025/04/17/business/economy/imf-trump-tariffs-global-economy.html
-
-**Charles Lee stayed steady during a tumultuous Hornets season. Next season, can he elevate them?**\
-`As injuries ruined Lee's debut season, he remained steady throughout the turmoil. Can he elevate the Hornets — and Ball?`\
-https://nytimes.com/athletic/6282258/2025/04/17/hornets-coach-charles-lee-lamelo-ball-nba/
 
