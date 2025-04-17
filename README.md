@@ -1,40 +1,40 @@
-**Texas Is Poised to Create a $1 Billion Private School Voucher Program**\
-`The Texas House approved the plan, part of a push by President Trump’s allies to offer up to about $10,000 for private school, home-school or virtual learning.`\
-https://nytimes.com/2025/04/17/us/texas-trump-private-school-vouchers.html
+**From Deportations to Firings: Trump’s ‘Moonshot on Executive Power’**\
+`And how this could all go down in the courts.`\
+https://nytimes.com/2025/04/17/opinion/ross-douthat-interesting-times-jack-goldsmith.html
 
-**The Hidden Torments of the Firefighter With O.C.D.**\
-`For years, Timmy Reen hid his mental illness from everyone at his New York City firehouse — until his secret was forced out in the open.`\
-https://nytimes.com/2025/04/17/nyregion/firefighter-mental-health-ocd.html
+**What does the perfect Cowboys' NFL Draft look like? RB1 early, a Day 2 starting CB**\
+`The Cowboys should make their pick at No. 12 if things play out the way they would like and the best player available is their move.`\
+https://nytimes.com/athletic/6279529/2025/04/17/cowboys-perfect-nfl-draft-scenario/
 
-**Brick Wall**\
-`What do you think this image is communicating?`\
-https://nytimes.com/2025/04/17/learning/brick-wall.html
+**The Emergency Is Here**\
+`Trump is disappearing people to a Salvadoran prison for terrorists. And he says he wants to send “homegrown” Americans there next.`\
+https://nytimes.com/video/opinion/100000010113473/the-emergency-is-here.html
 
-**The Child Care Crisis Is Motivating These New York City Voters**\
-`Parents are fed up, and the candidates for mayor appear to be paying attention. Many have built campaigns on a promise to make New York more affordable, with child care as a centerpiece.`\
-https://nytimes.com/2025/04/17/nyregion/new-york-child-care-voters.html
+**A Harlem Youth Center Still Thrives in an Uncertain Moment**\
+`Three years after opening its visual jolt of a new headquarters, the Brotherhood Sister Sol has become even more of a haven for the young people it serves.`\
+https://nytimes.com/2025/04/17/arts/design/brotherhood-sister-sol-harlem.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/04/17/crosswords/spelling-bee-forum.html
+**From Deportations to Firings: Trump’s ‘Moonshot on Executive Power’**\
+`And how this could all go down in the courts.`\
+https://nytimes.com/video/opinion/100000010110030/from-deportations-to-firings-trumps-moonshot-on-executive-power.html
 
-**Watching Oliver Glasner's emotions during 90 stressful minutes at St James' Park**\
-`The Crystal Palace manager is an emotional figure — as a tough week at the office has demonstrated `\
-https://nytimes.com/athletic/6278253/2025/04/17/crystal-palace-glasner-emotions-watch/
+**How Will Cuts to Climate Research Funding Affect Our Health?**\
+`The National Institutes of Health is set to cut funding for research that seeks to understand the health effects of climate change.`\
+https://nytimes.com/video/well/100000010104115/how-will-cuts-to-climate-research-funding-affect-our-health.html
 
-**Stephen Colbert Defends PBS and NPR Against Trump’s Defunding Plan**\
-`Colbert said both public media entities are “already operating on a shoestring budget — Daniel Tiger can’t even afford to wear pants.”`\
-https://nytimes.com/2025/04/17/arts/television/stephen-colbert-pbs-npr-trump.html
+**Five numbers that define the Padres' best-in-baseball 15-4 season start**\
+`Fernando Tatis Jr. is striking out less, Manny Machado is stealing bases and other factors have helped the Padres build an early cushion.`\
+https://nytimes.com/athletic/6285929/2025/04/17/padres-15-4-start-5-numbers/
 
-**Word of the Day: tureen**\
-`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/04/17/learning/word-of-the-day-tureen.html
+**Homes for Sale in Manhattan and Queens**\
+`This week’s properties are in the financial district, the Upper West Side and Woodside.`\
+https://nytimes.com/2025/04/17/realestate/housing-market-nyc.html
 
-**Kings, GM Monte McNair agree to part ways after Play-In loss to Mavericks**\
-`McNair's departure follows the Kings' 120-106 loss to the Mavericks, which bounced Sacramento from the postseason.`\
-https://nytimes.com/athletic/6286283/2025/04/17/kings-general-manager-monte-mcnair-fired/
+**To Understand Global Migration, You Have to See It First**\
+`These estimates, drawn from the location data of three billion Facebook users, provide a view of human migration in extraordinary detail.`\
+https://nytimes.com/interactive/2025/04/17/opinion/global-migration-facebook-data.html
 
-**Rudiger on the rampage, rugby tackles, and Rice vs Bellingham – breaking down the chaos at the Bernabeu**\
-`Analysing all the needle, scrapping and referee controversy from Arsenal's outstanding Champions League win against Real Madrid`\
-https://nytimes.com/athletic/6284944/2025/04/17/real-madrid-arsenal-rudiger-rice-saka-bellingham-referee-controversy/
+**A New Picture of Global Migration**\
+`Dive into a new data set released by Meta, charting immigration flows among 181 countries over four years.`\
+https://nytimes.com/interactive/2025/04/17/opinion/global-migration-facebook-data-interactive-tool.html
 
