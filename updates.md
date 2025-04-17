@@ -1,3 +1,7 @@
+**What to Know About the Court Cases Challenging Trump’s Immigration Agenda**\
+`The Trump administration is on course for a potential constitutional clash with the judiciary branch, which has issued several rulings countering executive orders.`\
+https://nytimes.com/2025/04/17/us/politics/trump-immigration-cases-explained.html
+
 **Oklahoma, Missouri heading to NCAA women's gymnastics final**\
 `A clutch 9.9875 from beam star Helen Hu secured Missouri the upset over Florida.`\
 https://nytimes.com/athletic/6288757/2025/04/17/ncaa-gymnastics-semifinal-results-teams/
