@@ -1,3 +1,7 @@
+**New CFB rules to charge timeout for fake injury, close Oregon 12-men loophole**\
+`The changes were proposed by the football rules committee in February and approved by the NCAA’s Playing Rules Oversight Panel on Wednesday.`\
+https://nytimes.com/athletic/6284462/2025/04/17/college-football-rules-changes-fake-injuries-timeouts/
+
 **European Central Bank Cuts Rates Amid Tariff Uncertainty**\
 `Policymakers lowered rates a quarter point and said that the region’s growth outlook had “deteriorated” because of rising trade tensions.`\
 https://nytimes.com/2025/04/17/business/european-central-bank-rates-tariffs-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6284840/2025/04/17/canucks-hughes-boeser-pettersson
 **Win our playoffs prediction contest by getting one easy question right (you won't)**\
 `It's time for the annual playoff prediction contest, an incredibly simple single-question test that you will almost certainly fail.`\
 https://nytimes.com/athletic/6281448/2025/04/17/nhl-playoffs-prediction-contest-2025/
-
-**49ers’ pre-draft visit list: Team appears poised to take a tackle in Round 2**\
-`Two interesting prospects who visited the 49ers: Bowling Green tight end Harold Fannin and Central Arkansas edge rusher David Walker.`\
-https://nytimes.com/athletic/6285484/2025/04/17/49ers-nfl-draft-visits-2025/
 
