@@ -1,40 +1,40 @@
-**From Deportations to Firings: Trump’s ‘Moonshot on Executive Power’**\
-`And how this could all go down in the courts.`\
-https://nytimes.com/2025/04/17/opinion/ross-douthat-interesting-times-jack-goldsmith.html
+**The Supreme Court Can’t Save America, but Here’s What It Can Do**\
+`The justices and the American people must hold the line together.`\
+https://nytimes.com/2025/04/17/opinion/supreme-court-trump-abrego-garcia.html
 
-**What does the perfect Cowboys' NFL Draft look like? RB1 early, a Day 2 starting CB**\
-`The Cowboys should make their pick at No. 12 if things play out the way they would like and the best player available is their move.`\
-https://nytimes.com/athletic/6279529/2025/04/17/cowboys-perfect-nfl-draft-scenario/
+**Seeking a Hudson Valley Homestead That Could House Three Generations**\
+`After growing up in Beacon, N.Y., and drifting apart as adults, two siblings plotted their return — and brought their mother and kids along, too.`\
+https://nytimes.com/interactive/2025/04/17/realestate/hudson-valley-kingston-saugerties-homes.html
+
+**Michigan’s Newest Senate Candidate Urges Tougher Stance on Trump**\
+`Dr. Abdul El-Sayed, a progressive former public health official, is joining the Democratic race to succeed Senator Gary Peters, who is retiring.`\
+https://nytimes.com/2025/04/17/us/politics/michigan-senate-race-abdul-el-sayed.html
+
+**Even Levitating in Space, Katy Perry Manages to Get Dunked On**\
+`The maker of numerous pop hits has always had trouble getting respect.`\
+https://nytimes.com/2025/04/17/style/katy-perry-blue-origin.html
+
+**Republican Lawmakers Face Fresh Backlash to Trump at Home**\
+`Despite some attempts to create controlled environments aimed at thwarting disruptions by protesters, congressional Republicans who are holding town halls are catching continued heat from their constituents.`\
+https://nytimes.com/2025/04/17/us/politics/republican-lawmakers-trump-backlash.html
+
+**A Baritone Walks in Bernstein’s and Mahler’s Footsteps**\
+`Thomas Oliemans came to New York to sing at the Metropolitan Opera. While he was here, he took a musical walking tour.`\
+https://nytimes.com/2025/04/17/nyregion/bernstein-mahler-thomas-oliemans.html
+
+**How Is Economic Uncertainty Affecting You and Your Family?**\
+`President Trump’s latest wave of on-again, off-again tariffs has created anxiety for global markets, businesses and consumers.`\
+https://nytimes.com/2025/04/17/learning/how-is-economic-uncertainty-affecting-you-and-your-family.html
 
 **The Emergency Is Here**\
 `Trump is disappearing people to a Salvadoran prison for terrorists. And he says he wants to send “homegrown” Americans there next.`\
-https://nytimes.com/video/opinion/100000010113473/the-emergency-is-here.html
+https://nytimes.com/2025/04/17/opinion/ezra-klein-podcast-asha-rangappa.html
 
-**A Harlem Youth Center Still Thrives in an Uncertain Moment**\
-`Three years after opening its visual jolt of a new headquarters, the Brotherhood Sister Sol has become even more of a haven for the young people it serves.`\
-https://nytimes.com/2025/04/17/arts/design/brotherhood-sister-sol-harlem.html
+**Bret Stephens on What Trump Gets Right, Wrong and Really, Really Wrong**\
+`The columnist on the value of acknowledging the president’s wins.`\
+https://nytimes.com/2025/04/17/opinion/trump-critic-conservatism.html
 
-**From Deportations to Firings: Trump’s ‘Moonshot on Executive Power’**\
-`And how this could all go down in the courts.`\
-https://nytimes.com/video/opinion/100000010110030/from-deportations-to-firings-trumps-moonshot-on-executive-power.html
-
-**How Will Cuts to Climate Research Funding Affect Our Health?**\
-`The National Institutes of Health is set to cut funding for research that seeks to understand the health effects of climate change.`\
-https://nytimes.com/video/well/100000010104115/how-will-cuts-to-climate-research-funding-affect-our-health.html
-
-**Five numbers that define the Padres' best-in-baseball 15-4 season start**\
-`Fernando Tatis Jr. is striking out less, Manny Machado is stealing bases and other factors have helped the Padres build an early cushion.`\
-https://nytimes.com/athletic/6285929/2025/04/17/padres-15-4-start-5-numbers/
-
-**Homes for Sale in Manhattan and Queens**\
-`This week’s properties are in the financial district, the Upper West Side and Woodside.`\
-https://nytimes.com/2025/04/17/realestate/housing-market-nyc.html
-
-**To Understand Global Migration, You Have to See It First**\
-`These estimates, drawn from the location data of three billion Facebook users, provide a view of human migration in extraordinary detail.`\
-https://nytimes.com/interactive/2025/04/17/opinion/global-migration-facebook-data.html
-
-**A New Picture of Global Migration**\
-`Dive into a new data set released by Meta, charting immigration flows among 181 countries over four years.`\
-https://nytimes.com/interactive/2025/04/17/opinion/global-migration-facebook-data-interactive-tool.html
+**Patriots mailbag: Is Will Campbell a done deal? Who will have final say in the draft?**\
+`How legit are the arm-length concerns with Campbell, and can he really be an NFL left tackle? Could the Pats still trade back in Round 1?`\
+https://nytimes.com/athletic/6284442/2025/04/17/patriots-nfl-draft-mailbag-will-campbell/
 
