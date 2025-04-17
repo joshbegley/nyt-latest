@@ -1,3 +1,15 @@
+**Using strikeout rate to uncover surging hitters and buy-low candidates in fantasy baseball**\
+`Owen Poindexter examines year-over-year volatility in K rate, unearthing some hot starts to believe in, like the Athletics' Shea Langeliers.`\
+https://nytimes.com/athletic/6285429/2025/04/17/fantasy-baseball-k-rate-buy-low-hot-starts/
+
+**Lee Corso to retire from 'College GameDay' after Week 1 after 38 years, hundreds of headgear picks**\
+`Corso's weekly headgear selections have been a staple of college football Saturday's for nearly three decades.`\
+https://nytimes.com/athletic/5867913/2025/04/17/lee-corso-college-gameday-retirement/
+
+**White House Eyes Overhaul of Federal Housing Aid to the Poor**\
+`The Trump administration has considered sharply curtailing vouchers as part of its budget for the 2026 fiscal year.`\
+https://nytimes.com/2025/04/17/us/politics/housing-aid-hud-federal-budget.html
+
 **LVMH Abruptly Puts Dior Men in Jonathan Anderson’s Hands**\
 `A one-sentence statement served as the notice that Mr. Anderson, who reimagined LVMH’s Loewe brand, would lead men’s wear design at Dior.`\
 https://nytimes.com/2025/04/17/style/jonathan-anderson-dior-men-lvmh.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/17/pageoneplus/no-corrections-april-17-2025.html
 **The Pulse: Klay Thompson's poetic Play-In arc.**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6286351/2025/04/17/klay-thompson-play-in-the-pulse/
-
-**More Than Half of Puerto Rico Remains Without Power**\
-`It will take at least another day to fully restore service after a series of failures blacked out the whole island on Wednesday, officials said.`\
-https://nytimes.com/2025/04/17/us/puerto-rico-blackout-power.html
-
-**Sculpture Museum in Dallas Names a New Director**\
-`Carlos Basualdo, a veteran curator who has spent most of his career at the Philadelphia Museum of Art, will take over the Nasher Sculpture Center next month.`\
-https://nytimes.com/2025/04/17/arts/design/nasher-sculpture-center-carlos-basualdo.html
-
-**WNBPA says All-Star skills challenge, 3-point shootout earnings to increase**\
-`The payouts will be equivalent to what NBA players receive for winning the 3-point shootout and the skills challenge.`\
-https://nytimes.com/athletic/6285537/2025/04/17/wnbpa-2025-all-star-weekend-prize-pool-increase/
 

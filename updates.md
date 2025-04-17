@@ -1,3 +1,15 @@
+**Using strikeout rate to uncover surging hitters and buy-low candidates in fantasy baseball**\
+`Owen Poindexter examines year-over-year volatility in K rate, unearthing some hot starts to believe in, like the Athletics' Shea Langeliers.`\
+https://nytimes.com/athletic/6285429/2025/04/17/fantasy-baseball-k-rate-buy-low-hot-starts/
+
+**Lee Corso to retire from 'College GameDay' after Week 1 after 38 years, hundreds of headgear picks**\
+`Corso's weekly headgear selections have been a staple of college football Saturday's for nearly three decades.`\
+https://nytimes.com/athletic/5867913/2025/04/17/lee-corso-college-gameday-retirement/
+
+**White House Eyes Overhaul of Federal Housing Aid to the Poor**\
+`The Trump administration has considered sharply curtailing vouchers as part of its budget for the 2026 fiscal year.`\
+https://nytimes.com/2025/04/17/us/politics/housing-aid-hud-federal-budget.html
+
 **LVMH Abruptly Puts Dior Men in Jonathan Anderson’s Hands**\
 `A one-sentence statement served as the notice that Mr. Anderson, who reimagined LVMH’s Loewe brand, would lead men’s wear design at Dior.`\
 https://nytimes.com/2025/04/17/style/jonathan-anderson-dior-men-lvmh.html
