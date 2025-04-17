@@ -1,3 +1,7 @@
+**Nationals' López ejected after throwing pitch near McCutchen's head**\
+`Jorge López threw a slider high and inside to Andrew McCutchen, who fell to the ground to avoid the ball.`\
+https://nytimes.com/athletic/6285897/2025/04/16/nationals-pirates-benches-clear-mccutchen-lopez/
+
 **Wednesday's NBA Play-In takeaways: Heat dominate Bulls, Kings host Mavs**\
 `NBA Play-In action continues Wednesday with two postseason elimination games.`\
 https://nytimes.com/athletic/6285785/2025/04/16/nba-play-in-heat-bulls-mavericks-kings/
