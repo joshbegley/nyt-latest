@@ -1,3 +1,11 @@
+**Ask Ornstein Q&A: Our football insider answers your questions**\
+`Here is your opportunity to ask David Ornstein anything you want about the world of football`\
+https://nytimes.com/athletic/6286506/2025/04/17/ask-ornstein-qa-david-ornstein/
+
+**No Corrections: April 17, 2025**\
+`No corrections appeared in print on Thursday, April 17, 2025.`\
+https://nytimes.com/2025/04/17/pageoneplus/no-corrections-april-17-2025.html
+
 **The Pulse: Klay Thompson's poetic Play-In arc.**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6286351/2025/04/17/klay-thompson-play-in-the-pulse/
