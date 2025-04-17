@@ -1,3 +1,7 @@
+**Charles Lee stayed steady during a tumultuous Hornets season. Next year, can he elevate them?**\
+`As injuries ruined Charles Lee's debut season, he remained steady throughout the turmoil. Can he elevate the Hornets — and LaMelo Ball?`\
+https://nytimes.com/athletic/6282258/2025/04/17/hornets-coach-charles-lee-lamelo-ball-nba/
+
 **Alexander Straus to become Angel City head coach at end of May**\
 `Straus will leave his role as Bayern Munich head coach one year early to facilitate the move to NWSL.`\
 https://nytimes.com/athletic/6284622/2025/04/17/alexander-straus-angel-city-bayern/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6284214/2025/04/17/inter-outswinging-corners-champi
 **New CFB rules to charge timeout for fake injury, close Oregon 12-men loophole**\
 `The changes were proposed by the football rules committee in February and approved by the NCAA’s Playing Rules Oversight Panel on Wednesday.`\
 https://nytimes.com/athletic/6284462/2025/04/17/college-football-rules-changes-fake-injuries-timeouts/
-
-**European Central Bank Cuts Rates Amid Tariff Uncertainty**\
-`Policymakers lowered rates a quarter point and said that the region’s growth outlook had “deteriorated” because of rising trade tensions.`\
-https://nytimes.com/2025/04/17/business/european-central-bank-rates-tariffs-trump.html
 

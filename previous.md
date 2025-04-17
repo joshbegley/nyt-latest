@@ -1,3 +1,7 @@
+**Alexander Straus to become Angel City head coach at end of May**\
+`Straus will leave his role as Bayern Munich head coach one year early to facilitate the move to NWSL.`\
+https://nytimes.com/athletic/6284622/2025/04/17/alexander-straus-angel-city-bayern/
+
 **Ask Ornstein Q&A: Our football insider answers your questions**\
 `Here is your opportunity to ask David Ornstein anything you want about the world of football`\
 https://nytimes.com/athletic/6286506/2025/04/17/ask-ornstein-qa-david-ornstein/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6284462/2025/04/17/college-football-rules-changes-f
 **European Central Bank Cuts Rates Amid Tariff Uncertainty**\
 `Policymakers lowered rates a quarter point and said that the region’s growth outlook had “deteriorated” because of rising trade tensions.`\
 https://nytimes.com/2025/04/17/business/european-central-bank-rates-tariffs-trump.html
-
-**Magnolias Are in Bloom. It’s Time to Eat Them.**\
-`Plus: a boutique hotel near Joshua Tree, the rise of Japanese wine and more recommendations from T Magazine.`\
-https://nytimes.com/2025/04/17/t-magazine/magnolia-blossoms-food-season.html
 

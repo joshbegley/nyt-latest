@@ -1,3 +1,7 @@
+**Alexander Straus to become Angel City head coach at end of May**\
+`Straus will leave his role as Bayern Munich head coach one year early to facilitate the move to NWSL.`\
+https://nytimes.com/athletic/6284622/2025/04/17/alexander-straus-angel-city-bayern/
+
 **Ask Ornstein Q&A: Our football insider answers your questions**\
 `Here is your opportunity to ask David Ornstein anything you want about the world of football`\
 https://nytimes.com/athletic/6286506/2025/04/17/ask-ornstein-qa-david-ornstein/
