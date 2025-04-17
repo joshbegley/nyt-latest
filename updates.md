@@ -1,3 +1,11 @@
+**Rashford's Manchester United future? Wirtz to City? - Ask Ornstein**\
+`David Ornstein has compiled some of his favourite answers from his most recent Q&A session`\
+https://nytimes.com/athletic/6287083/2025/04/17/manchester-united-transfer-latest-arsenal-manchester-city-david-ornstein/
+
+**All the President’s Flatterers**\
+`For Trump’s fawning enablers, Abrego Garcia’s imprisonment is just another feat to applaud.`\
+https://nytimes.com/2025/04/17/opinion/trump-bukele-abrego-garcia.html
+
 **Champions League outright odds: Barca and PSG favourites, Inter outsiders?**\
 `Sam Tighe explores the changing outright betting markets in the aftermath of the Champions League quarter-finals. 
 `\
