@@ -1,3 +1,7 @@
+**Picking Manchester United's XI for Lyon - and what they must do to win**\
+`Looking at who Ruben Amorim has fit to choose from against Lyon at Old Trafford and what United must do to make a Europa League semi-final`\
+https://nytimes.com/athletic/6284240/2025/04/17/manchester-united-lyon-team-news/
+
 **Tonali's redeployment has taken Newcastle to next level. He's now their central cog**\
 `The Italian is not a holding midfielder or an attacking midfielder; he is both rolled into one - and Tyneside is in love with him`\
 https://nytimes.com/athletic/6283176/2025/04/17/sandro-tonali-newcastle-position-central-cog/

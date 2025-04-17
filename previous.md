@@ -1,3 +1,7 @@
+**Picking Manchester United's XI for Lyon - and what they must do to win**\
+`Looking at who Ruben Amorim has fit to choose from against Lyon at Old Trafford and what United must do to make a Europa League semi-final`\
+https://nytimes.com/athletic/6284240/2025/04/17/manchester-united-lyon-team-news/
+
 **Tonali's redeployment has taken Newcastle to next level. He's now their central cog**\
 `The Italian is not a holding midfielder or an attacking midfielder; he is both rolled into one - and Tyneside is in love with him`\
 https://nytimes.com/athletic/6283176/2025/04/17/sandro-tonali-newcastle-position-central-cog/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6280492/2025/04/17/dean-huijsen-transfer-liverpool-
 **We watched only Morgan Gibbs-White for an entire match. Here's what we learned**\
 `For 90 minutes, Nick Miller focused only on Forest's star player to better understand his skill, mentality and importance to Nuno`\
 https://nytimes.com/athletic/6280515/2025/04/17/watching-morgan-gibbs-white-forest/
-
-**Animal cruelty charges against Isaiah Buggs dismissed**\
-`The charges of second-degree cruelty to dogs was dismissed with prejudice in a Tuscaloosa, Ala., court.`\
-https://nytimes.com/athletic/6286052/2025/04/17/isaiah-buggs-animal-cruelty-charges-dismissed/
 
