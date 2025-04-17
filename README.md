@@ -1,3 +1,11 @@
+**Columbia Activists Are Being Detained. Protesters Demand Answers.**\
+`Demonstrators rallied on Columbia’s campus and marched in Manhattan, three days after Mohsen Mahdawi was detained by immigration officials after arriving for a U.S. citizenship appointment.`\
+https://nytimes.com/2025/04/17/nyregion/columbia-protest-khalil-mahdawi.html
+
+**Ukraine and U.S. Sign Agreement in Lead-Up to a Full Minerals Deal**\
+`The signed memorandum of understanding was thin on details, and the White House did not comment. But President Trump has said he expects to sign a full minerals deal with Kyiv soon.`\
+https://nytimes.com/2025/04/17/world/europe/ukraine-us-minerals-agreement.html
+
 **Mass Layoffs Hit Consumer Financial Protection Bureau**\
 `The agency, which has returned $21 billion to consumers since its inception, could lose 1,500 of its 1,700 employees, a union warned.`\
 https://nytimes.com/2025/04/17/us/politics/consumer-financial-protection-bureau-layoffs.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/17/us/menendez-brothers-resentencing-hearing.html
 **What we learned about the Chargers from Joe Hortiz's pre-NFL Draft news conference**\
 `Despite a measured approach during free agency, the Chargers GM feels the roster has already improved ahead of the NFL Draft.`\
 https://nytimes.com/athletic/6288734/2025/04/17/joe-hortiz-chargers-nfl-draft-2025/
-
-**Postecoglou: Maddison 'fine' after being forced off with injury vs Frankfurt**\
-`Maddison was substituted after a heavy clash with Frankfurt goalkeeper Kaua Santos on Thursday`\
-https://nytimes.com/athletic/6288786/2025/04/17/james-maddison-injury-update-tottenham/
-
-**Amorim: Old Trafford 'the best sound I've ever heard' after late Maguire winner**\
-`Maguire headed home in the 121st minute as United came from 4-2 down to win 5-4.`\
-https://nytimes.com/athletic/6288743/2025/04/17/ruben-amorim-harry-magure-manchester-united-lyon/
 
