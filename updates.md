@@ -1,3 +1,11 @@
+**As Cubs' Ryan Pressly settles with new team, Chicago's closer panic level is dropping**\
+`“You get a little bit more comfortable on the mound,” Pressly said, “and things start to click.”`\
+https://nytimes.com/athletic/6288567/2025/04/17/chicago-cubs-ryan-pressly-closer-role/
+
+**Former Times Editor Testifies in Defamation Suit Filed by Sarah Palin**\
+`James Bennet, the former New York Times Opinion editor, took responsibility for an error in an editorial at the center of the case.`\
+https://nytimes.com/2025/04/17/business/media/sarah-palin-new-york-times.html
+
 **WATCH: When is good not good enough? The pressure these Knicks face**\
 `In this video essay, I explain why the Knicks, despite posting their best season in a decade, are under immense pressure in these playoffs.`\
 https://nytimes.com/athletic/6287841/2025/04/17/knicks-nba-playoffs-preview-video/
