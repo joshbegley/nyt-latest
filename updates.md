@@ -1,3 +1,7 @@
+**NBA Player Tiers 2025: Jalen Brunson, Kawhi Leonard and more All-Star standouts in Tier 2**\
+`If you don’t have a player in this tier, it’s probably going to be a challenge to contend consistently.`\
+https://nytimes.com/athletic/6281588/2025/04/17/jalen-brunson-kawhi-leonard-nba-player-tiers-2025/
+
 **U.K. Court Ruling on Trans Women Is Part of Wider Debate on Sex and Gender**\
 `President Trump and right-wing politicians in Europe have railed against trans rights. Britain’s top court has now added its voice to the discussion.`\
 https://nytimes.com/2025/04/17/world/europe/uk-trans-hungary-germany-us.html
