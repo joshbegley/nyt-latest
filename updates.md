@@ -1,3 +1,11 @@
+**Trump Targets K-12**\
+`We explain why the president is taking on public schools, and how officials are responding.`\
+https://nytimes.com/2025/04/17/briefing/trump-targets-k-12.html
+
+**Nine early MLB takes on Braves' start, NL dominance, AL East race — on point or overreactions?**\
+`Here are nine statements I’ve heard around baseball so far this season and my takes on whether they are on point or overreactions.`\
+https://nytimes.com/athletic/6286118/2025/04/17/mlb-early-2025-season-takeaways-overreactions/
+
 **Nick Suzuki and the young Canadiens are out to prove more people wrong in the playoffs**\
 `The Canadiens were always an unlikely playoff team, but a group that is young and hungry and defiant makes for a tough playoff opponent.`\
 https://nytimes.com/athletic/6286365/2025/04/17/canadiens-nhl-playoffs-nick-suzuki/

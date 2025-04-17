@@ -1,3 +1,11 @@
+**Trump Targets K-12**\
+`We explain why the president is taking on public schools, and how officials are responding.`\
+https://nytimes.com/2025/04/17/briefing/trump-targets-k-12.html
+
+**Nine early MLB takes on Braves' start, NL dominance, AL East race — on point or overreactions?**\
+`Here are nine statements I’ve heard around baseball so far this season and my takes on whether they are on point or overreactions.`\
+https://nytimes.com/athletic/6286118/2025/04/17/mlb-early-2025-season-takeaways-overreactions/
+
 **Nick Suzuki and the young Canadiens are out to prove more people wrong in the playoffs**\
 `The Canadiens were always an unlikely playoff team, but a group that is young and hungry and defiant makes for a tough playoff opponent.`\
 https://nytimes.com/athletic/6286365/2025/04/17/canadiens-nhl-playoffs-nick-suzuki/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6115307/2025/04/17/virgil-van-dijk-liverpool-contra
 **Play-In Tournament woes continue to haunt Bulls: 'We've got to be better'**\
 `“The disappointing part was that we didn’t play to our identity,” Billy Donovan said of the Bulls' Play-In Tournament loss to the Heat.`\
 https://nytimes.com/athletic/6286148/2025/04/17/bulls-nba-play-in-tournament-heat/
-
-**MLB bat path metrics, speed training, fitting tech: Is hitting finally catching up?**\
-`With hitting arguably harder than ever, teams are looking at data, technology drills and, yes, new bat shapes to get an edge.`\
-https://nytimes.com/athletic/6270614/2025/04/17/mlb-bat-path-metrics-speed-training-tech/
-
-**Vikings mailbag: Draft options at No. 24, trade possibilities and J.J. McCarthy's readiness**\
-`Vikings spent the last two weeks finalizing their draft board. They only have four picks (for now). Here's a brief primer on what's to come.`\
-https://nytimes.com/athletic/6284677/2025/04/17/vikings-mailbag-nfl-draft-jj-mccarthy/
 
