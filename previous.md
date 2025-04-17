@@ -1,3 +1,23 @@
+**Blackhawks' coaching search, contract talks and more takeaways from locker clean-out day**\
+`Plus, Connor Bedard dismissed any assumptions that he’s unhappy in Chicago and looking to leave.`\
+https://nytimes.com/athletic/6288198/2025/04/17/blackhawks-coach-contract-locker-room-clean-out/
+
+**A Judge Ruled That Google Acted Illegally to Dominate Ad Tech**\
+`Also, a daily pill may work as well as Ozempic. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/04/17/briefing/judge-google-ad-tech-obesity-pill.html
+
+**Nino Tempo, Who Topped the Charts With ‘Deep Purple,’ Dies at 90**\
+`He was a busy session saxophonist, but he is probably best known for the Grammy-winning pop hit that he sang in 1963 as half of a duo act with his sister, April Stevens.`\
+https://nytimes.com/2025/04/17/arts/music/nino-tempo-dead.html
+
+**Revisit Lee Corso's best 'College GameDay' moments ahead of his retirement**\
+`If you've watched college football on a Saturday, odds are you've also watched Lee Corso.`\
+https://nytimes.com/athletic/6288323/2025/04/17/lee-corso-espn-college-gameday-best-moments/
+
+**Twins calling up top-100 prospect Luke Keaschall: Source**\
+`Matt Wallner joins Royce Lewis on the injured list, and the Twins are in wait-and-see mode with Willi Castro and Carlos Correa.`\
+https://nytimes.com/athletic/6288337/2025/04/17/twins-luke-keaschall-call-up/
+
 **A Startling Admission From a G.O.P. Senator: ‘We Are All Afraid’**\
 `Lisa Murkowski, a longtime senator from Alaska and an independent voice in an increasingly tribal party, has been the rare Republican on Capitol Hill willing to criticize President Trump’s actions.`\
 https://nytimes.com/2025/04/17/us/politics/lisa-murkowski-trump.html
@@ -17,24 +37,4 @@ https://nytimes.com/video/podcasts/100000010111380/doechii-anxiety-nosebleeds.ht
 **Overlooked No More: Ethel Lina White, Master of Suspense Who Inspired Hitchcock**\
 `A powerhouse of the genre, she published around 100 short stories and 17 novels, one of which was adapted into the acclaimed film “The Lady Vanishes.”`\
 https://nytimes.com/2025/04/17/obituaries/ethel-lina-white-overlooked.html
-
-**What Browns GM Andrew Berry did and didn't say in pre-draft news conference**\
-`Cleveland holds the No. 2 pick in next week's NFL Draft and won't force a QB pick "if we don't think the value is necessarily there."`\
-https://nytimes.com/athletic/6287826/2025/04/17/browns-gm-nfl-draft-2025-travis-hunter/
-
-**In 2014, Florida State University Reeled From Another Shooting**\
-`The campus, where a gunman killed two people on Thursday, experienced another shooting over a decade ago that left three people injured.`\
-https://nytimes.com/2025/04/17/us/fsu-shooting-library-2014.html
-
-**The Briefing: Chelsea 1 Legia Warsaw 2 (4-2 agg) - Semi-finals secured but boos as Maresca's side lose**\
-`Simon Johnson and Dan Sheldon break down the main talking points from Chelsea's 2-1 loss to Legia Warsaw`\
-https://nytimes.com/athletic/6283980/2025/04/17/chelsea-1-legia-warsaw-2-cucurella-conference-league/
-
-**Friday Briefing: Trump’s Tariff Bargaining**\
-`Plus, Argentina’s capybara problem.`\
-https://nytimes.com/2025/04/17/briefing/trump-meloni-tariffs-iran-us-nuclear-syria-troops.html
-
-**The Briefing: Frankfurt 0 Spurs 1 (1-2 agg) - Was this vindication for Postecoglou?**\
-`The major talking points analysed from the Europa League quarter-final second leg in Germany`\
-https://nytimes.com/athletic/6283978/2025/04/17/eintracht-frankfurt-tottenham-europa-league-result-analysis/
 
