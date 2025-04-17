@@ -1,3 +1,11 @@
+**Greenberg: 'Cancun' Bulls didn't throw in beach towel, but where do they go from here?**\
+`In the end, the only playoff experience the young Bulls players got was the kind they already had — losing to the Heat in a Play-In game. `\
+https://nytimes.com/athletic/6286115/2025/04/17/bulls-heat-nba-play-in-tournament-loss/
+
+**It's still early, but the Giants are rolling past their opponents in impressive fashion**\
+`The Giants are outscoring their opponents 100-64, and what's more impressive, it's come against the toughest schedule in the league.`\
+https://nytimes.com/athletic/6285762/2025/04/17/sf-giants-early-season-pythagorean-record/
+
 **Picking Manchester United's XI for Lyon - and what they must do to win**\
 `Looking at who Ruben Amorim has fit to choose from against Lyon at Old Trafford and what United must do to make a Europa League semi-final`\
 https://nytimes.com/athletic/6284240/2025/04/17/manchester-united-lyon-team-news/
