@@ -1,3 +1,7 @@
+**Is it Josh Simmons or bust for the Chiefs in Round 1 of the NFL Draft?**\
+`In his pre-draft news conference, GM Brett Veach said the Chiefs have just 13 prospects with a first-round grade on their board.`\
+https://nytimes.com/athletic/6287618/2025/04/17/chiefs-nfl-draft-brett-veach-josh-simmons/
+
 **Live Updates: At Least 6 People Injured in Florida State University Shooting**\
 `Gunshots were reported at the student union building on the university’s campus in Tallahassee shortly after noon on Thursday.`\
 https://nytimes.com/live/2025/04/17/us/fsu-shooting-tallahassee
