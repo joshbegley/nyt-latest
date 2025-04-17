@@ -1,3 +1,11 @@
+**With no big trades yet, Cubs get through West Coast trip vs. National League powerhouses**\
+`The Cubs' energy could be seen throughout this Southern California swing, where they split two series against the Padres and Dodgers.`\
+https://nytimes.com/athletic/6285822/2025/04/16/cubs-split-padres-dodgers-series-no-trades-yet/
+
+**A Columbia Activist Sought Middle Ground on Gaza. The U.S. Detained Him.**\
+`Mohsen Mahdawi was arrested at a citizenship interview in Vermont. He had spent a decade trying to understand the conflict that shaped his life, his supporters say.`\
+https://nytimes.com/2025/04/16/nyregion/columbia-activist-mahdawi-ice-palestinian.html
+
 **Twins takeaways: Mounting injuries, aggressive base running, Julien's defense**\
 `The series win was the byproduct of aggressive base running, productive outs and good defense from a team looking for signs of life.`\
 https://nytimes.com/athletic/6285608/2025/04/16/twins-beat-mets-extra-innings-takeaways/

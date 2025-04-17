@@ -1,3 +1,11 @@
+**With no big trades yet, Cubs get through West Coast trip vs. National League powerhouses**\
+`The Cubs' energy could be seen throughout this Southern California swing, where they split two series against the Padres and Dodgers.`\
+https://nytimes.com/athletic/6285822/2025/04/16/cubs-split-padres-dodgers-series-no-trades-yet/
+
+**A Columbia Activist Sought Middle Ground on Gaza. The U.S. Detained Him.**\
+`Mohsen Mahdawi was arrested at a citizenship interview in Vermont. He had spent a decade trying to understand the conflict that shaped his life, his supporters say.`\
+https://nytimes.com/2025/04/16/nyregion/columbia-activist-mahdawi-ice-palestinian.html
+
 **As a Mets rookie makes his long-shot MLB debut, the scout who signed him is beating his own odds**\
 `Justin Hagenman was a 23rd round pick in 2018. The Dodgers scout who signed him, Jonah Rosenthal, is recovering from a stroke in December.`\
 https://nytimes.com/athletic/6285741/2025/04/16/mets-justin-hagenman-mlb-debut-scout-stroke/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6285693/2025/04/16/kenni-burns-fired-kent-state-inv
 **3 Drown After Boat Crash During Fishing Tournament in Alabama**\
 `The men were thrown overboard when two boats collided in Lewis Smith Lake on Wednesday morning, the authorities said.`\
 https://nytimes.com/2025/04/16/us/major-league-fishing-boat-accident-smith-lake.html
-
-**Here’s what happened on Wednesday.**\
-`By The New York Times`\
-https://nytimes.com/live/2025/04/16/us/trump-news/heres-what-happened-on-wednesday
-
-**Twins takeaways: Mounting injuries, aggressive base running, Julien's defense**\
-`The series win was the byproduct of aggressive base running, productive outs and good defense from a team looking for signs of life.`\
-https://nytimes.com/athletic/6285608/2025/04/16/twins-beat-mets-extra-innings-takeaways/
 
