@@ -1,3 +1,7 @@
+**Watching Oliver Glasner's emotions during 90 stressful minutes at St James' Park**\
+`The Crystal Palace manager is an emotional figure — as a tough week at the office has demonstrated `\
+https://nytimes.com/athletic/6278253/2025/04/17/crystal-palace-glasner-emotions-watch/
+
 **Where does Champions League elimination leave Bayern Munich and Vincent Kompany?**\
 `Bayern should regain the Bundesliga but have stumbled out of the Champions League. So has Kompany's first season been a success or failure?`\
 https://nytimes.com/athletic/6285509/2025/04/17/bayern-champions-league-exit-kompany/
