@@ -1,3 +1,11 @@
+**Former death row prisoners fight attempt to move them to one of the nation’s harshest prisons.**\
+`The men had their death sentences commuted under the Biden administration, but say they are being punished by being transferred from a prison in Indiana to a restrictive federal prison in Colorado.`\
+https://nytimes.com/2025/04/17/us/politics/former-death-row-prisoners-fight-attempt-to-move-them-to-one-of-the-nations-harshest-prisons.html
+
+**What’s Going On in This Picture? | April 21, 2025**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2025/04/17/learning/whats-going-on-in-this-picture-april-21-2025.html
+
 **Measles Outbreaks in Canada and Mexico Bring Grim Prognosis**\
 `Surges in Mennonite communities near the U.S. border may complicate containment efforts, experts say.`\
 https://nytimes.com/2025/04/17/health/measles-texas-mexico-canada.html

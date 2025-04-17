@@ -1,3 +1,11 @@
+**Michelle Williams, Sofia Coppola and Fran Lebowitz Get a Seat at Donald Judd’s Table**\
+`The Judd Foundation’s benefit dinner was a rare chance to step into the artist’s world.`\
+https://nytimes.com/2025/04/17/style/donald-judd-foundation-michelle-wiliams.html
+
+**Florida State shooting prompts cancellations; suspect in custody**\
+`The Associated Press reports one suspect is currently in custody. `\
+https://nytimes.com/athletic/6287700/2025/04/17/florida-state-mass-shooting-sports-postponed/
+
 **Former death row prisoners fight attempt to move them to one of the nation’s harshest prisons.**\
 `The men had their death sentences commuted under the Biden administration, but say they are being punished by being transferred from a prison in Indiana to a restrictive federal prison in Colorado.`\
 https://nytimes.com/2025/04/17/us/politics/former-death-row-prisoners-fight-attempt-to-move-them-to-one-of-the-nations-harshest-prisons.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/100000010116364/active-shooter-florida-state-univer
 **Notre Dame's Steve Angeli to enter transfer portal: Reports**\
 `If the spring game was a referendum on who slotted where at QB, it’s not clear if Angeli lost the starting job, but he didn't win it.`\
 https://nytimes.com/athletic/6287706/2025/04/17/notre-dame-steve-angeli-transfer-portal/
-
-**Supreme Court to Hear Arguments on Trump Plan to End Birthright Citizenship**\
-`The Trump administration had asked the justices to lift a nationwide pause on the policy as lower court challenges continue.`\
-https://nytimes.com/2025/04/17/us/politics/supreme-court-birthright-citizenship.html
-
-**France’s Richest Man Counted Trump as a Friend. He Still Faces Tariffs.**\
-`The trade war has hurt the Louis Vuitton Moët Hennessy luxury empire. Bernard Arnault, head of the company, said a failure to strike a deal with President Trump would be “the fault of Brussels.”`\
-https://nytimes.com/2025/04/17/business/trump-tariffs-lvmh-bernard-arnault.html
 
