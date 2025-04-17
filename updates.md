@@ -1,3 +1,7 @@
+**U.K. Court Ruling on Trans Women Is Part of Wider Debate on Sex and Gender**\
+`President Trump and right-wing politicians in Europe have railed against trans rights. Britain’s top court has now added its voice to the discussion.`\
+https://nytimes.com/2025/04/17/world/europe/uk-trans-hungary-germany-us.html
+
 **Mandel: 5 takeaways from UNC's Belichick era through spring ball (Note: Info is sparse)**\
 `Did spring ball prove me wrong about Bill Belichick yet? `\
 https://nytimes.com/athletic/6282388/2025/04/17/bill-belichick-north-carolina-football-recruiting-girlfriend/
