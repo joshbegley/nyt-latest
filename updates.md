@@ -1,3 +1,7 @@
+**Three Villa fans arrested in connection with hate crime offences at PSG game**\
+`Police confirmed two were arrested on suspicion of racist chanting and one for an alleged racially aggravated public order offence.`\
+https://nytimes.com/athletic/6286541/2025/04/17/aston-villa-psg-arrests-racism/
+
 **NFL projection model ranks all 32 rosters ahead of the draft: Why are Bears so low?**\
 `The Eagles at No. 1 should surprise no one, but do the Buccaneers and 49ers really belong inside the top 10? `\
 https://nytimes.com/athletic/6280729/2025/04/17/nfl-draft-2025-roster-rankings-projections/
