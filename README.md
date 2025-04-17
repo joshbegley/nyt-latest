@@ -1,3 +1,7 @@
+**White House Eyes Overhaul of Federal Housing Aid to the Poor**\
+`The Trump administration has considered sharply curtailing vouchers as part of its budget for the 2026 fiscal year.`\
+https://nytimes.com/2025/04/17/us/politics/housing-aid-hud-federal-budget.html
+
 **LVMH Abruptly Puts Dior Men in Jonathan Anderson’s Hands**\
 `A one-sentence statement served as the notice that Mr. Anderson, who reimagined LVMH’s Loewe brand, would lead men’s wear design at Dior.`\
 https://nytimes.com/2025/04/17/style/jonathan-anderson-dior-men-lvmh.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/17/us/puerto-rico-blackout-power.html
 **Sculpture Museum in Dallas Names a New Director**\
 `Carlos Basualdo, a veteran curator who has spent most of his career at the Philadelphia Museum of Art, will take over the Nasher Sculpture Center next month.`\
 https://nytimes.com/2025/04/17/arts/design/nasher-sculpture-center-carlos-basualdo.html
-
-**WNBPA says All-Star skills challenge, 3-point shootout earnings to increase**\
-`The payouts will be equivalent to what NBA players receive for winning the 3-point shootout and the skills challenge.`\
-https://nytimes.com/athletic/6285537/2025/04/17/wnbpa-2025-all-star-weekend-prize-pool-increase/
 
