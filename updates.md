@@ -1,3 +1,15 @@
+**Francis Davis, Sharp-Eared Jazz Critic, Is Dead at 78**\
+`He wrote prolifically about various aspects of the arts and popular culture. But he kept his focus on jazz, celebrating its past while worrying about its future.`\
+https://nytimes.com/2025/04/17/arts/music/francis-davis-dead.html
+
+**Sloppy Reds give away game, and series, to Mariners: 'We made a lot of mistakes'**\
+`Closer Emilio Pagán, after a blown save, wanted to answer the postgame questions from reporters.`\
+https://nytimes.com/athletic/6288538/2025/04/17/sloppy-reds-lose-series-mariners-emilio-pagan/
+
+**Elaine Wynn, Billionaire Arts Patron Who Helped Modernize Las Vegas, Dies at 82**\
+`She and Steve Wynn were known as the king and queen of Las Vegas. After their divorce, Ms. Wynn became a force in her own right.`\
+https://nytimes.com/2025/04/17/business/elaine-wynn-dead.html
+
 **As Cubs' Ryan Pressly settles with new team, Chicago's closer panic level is dropping**\
 `“You get a little bit more comfortable on the mound,” Pressly said, “and things start to click.”`\
 https://nytimes.com/athletic/6288567/2025/04/17/chicago-cubs-ryan-pressly-closer-role/

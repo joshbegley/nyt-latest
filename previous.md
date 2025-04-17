@@ -1,3 +1,15 @@
+**Francis Davis, Sharp-Eared Jazz Critic, Is Dead at 78**\
+`He wrote prolifically about various aspects of the arts and popular culture. But he kept his focus on jazz, celebrating its past while worrying about its future.`\
+https://nytimes.com/2025/04/17/arts/music/francis-davis-dead.html
+
+**Sloppy Reds give away game, and series, to Mariners: 'We made a lot of mistakes'**\
+`Closer Emilio Pagán, after a blown save, wanted to answer the postgame questions from reporters.`\
+https://nytimes.com/athletic/6288538/2025/04/17/sloppy-reds-lose-series-mariners-emilio-pagan/
+
+**Elaine Wynn, Billionaire Arts Patron Who Helped Modernize Las Vegas, Dies at 82**\
+`She and Steve Wynn were known as the king and queen of Las Vegas. After their divorce, Ms. Wynn became a force in her own right.`\
+https://nytimes.com/2025/04/17/business/elaine-wynn-dead.html
+
 **As Cubs' Ryan Pressly settles with new team, Chicago's closer panic level is dropping**\
 `“You get a little bit more comfortable on the mound,” Pressly said, “and things start to click.”`\
 https://nytimes.com/athletic/6288567/2025/04/17/chicago-cubs-ryan-pressly-closer-role/
@@ -25,16 +37,4 @@ https://nytimes.com/video/science/space/100000010117037/meteor-over-mexico-city.
 **PWHL to announce Vancouver as first expansion team, could start play in 2025-26**\
 `The Professional Women’s Hockey League is set to announce a new team in Vancouver next week, according to sources briefed on the matter.`\
 https://nytimes.com/athletic/6288167/2025/04/17/pwhl-vancouver-expansion-professional-womens-hockey-league/
-
-**Fantasy baseball waiver wire pickups featuring Ben Rice, Kyren Paris and more**\
-`John Laghezza likes the look of Austin Hays in Cincinnati as he crunches the data and shares his top fantasy baseball pickups of the week.`\
-https://nytimes.com/athletic/6284493/2025/04/17/fantasy-baseball-waiver-wire-pickups-featuring-austin-hays-grant-holmes-and-more/
-
-**The Briefing: Manchester United 5 Lyon 4 (7-6 agg) - United reach Europa League semi-finals… somehow!**\
-`A remarkable comeback at Old Trafford has put Manchester United in the Europa League semi finals`\
-https://nytimes.com/athletic/6283976/2025/04/17/manchester-united-lyon-europa-league-5-4/
-
-**Blackhawks' coaching search, contract talks and more takeaways from locker clean-out day**\
-`Plus, Connor Bedard dismissed any assumptions that he’s unhappy in Chicago and looking to leave.`\
-https://nytimes.com/athletic/6288198/2025/04/17/blackhawks-coach-contract-locker-room-clean-out/
 
