@@ -1,3 +1,7 @@
+**Rudiger on the rampage, rugby tackles and Rice vs Bellingham — breaking down the chaos at the Bernabeu**\
+`Analysing all the needle, scrapping and referee controversy from Arsenal's outstanding Champions League win against Real Madrid`\
+https://nytimes.com/athletic/6284944/2025/04/17/real-madrid-arsenal-rudiger-rice-saka-bellingham-referee-controversy/
+
 **Playoff Herro was leader Heat needed to dismantle Bulls, advance in Play-in Tournament**\
 `Tyler Herro spoke to The Athletic about his dominant performance in the Heat's Play-In Tournament win.`\
 https://nytimes.com/athletic/6286219/2025/04/17/tyler-herro-heat-leader-play-in-tournament/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6283176/2025/04/17/sandro-tonali-newcastle-position
 **Dominic Solanke is not scoring. Obviously. But who's to blame?**\
 `Spurs' star striker is going through a dry spell that's now up to 11 games, but he is contributing in other ways`\
 https://nytimes.com/athletic/6284198/2025/04/17/dominic-solanke-is-not-scoring/
-
-**Wolves mailbag: Stadium plans, summer spending, season tickets and Fosun's future**\
-`Steve Madeley answers subscribers' questions on a range of topics, covering issues on and off the pitch`\
-https://nytimes.com/athletic/6279415/2025/04/17/wolves-mailbag-wolves-stadium-transfers-fosun/
 

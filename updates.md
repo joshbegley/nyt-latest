@@ -1,3 +1,7 @@
+**Rudiger on the rampage, rugby tackles and Rice vs Bellingham — breaking down the chaos at the Bernabeu**\
+`Analysing all the needle, scrapping and referee controversy from Arsenal's outstanding Champions League win against Real Madrid`\
+https://nytimes.com/athletic/6284944/2025/04/17/real-madrid-arsenal-rudiger-rice-saka-bellingham-referee-controversy/
+
 **Playoff Herro was leader Heat needed to dismantle Bulls, advance in Play-in Tournament**\
 `Tyler Herro spoke to The Athletic about his dominant performance in the Heat's Play-In Tournament win.`\
 https://nytimes.com/athletic/6286219/2025/04/17/tyler-herro-heat-leader-play-in-tournament/
