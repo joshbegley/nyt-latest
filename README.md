@@ -1,6 +1,30 @@
+**Dominic Solanke is not scoring. Obviously. But who's to blame?**\
+`Spurs' star striker is going through a dry spell that's now up to 11 games, but he is contributing in other ways`\
+https://nytimes.com/athletic/6284198/2025/04/17/dominic-solanke-is-not-scoring/
+
+**Wolves mailbag: Stadium plans, summer spending, season tickets and Fosun's future**\
+`Steve Madeley answers subscribers' questions on a range of topics, covering issues on and off the pitch`\
+https://nytimes.com/athletic/6279415/2025/04/17/wolves-mailbag-wolves-stadium-transfers-fosun/
+
+**Meet Matthew Harding's son Pat, chairman of a title-winning club: 'I like to think he'd be proud'**\
+`Pat is the son of former Chelsea vice-chairman Matthew Harding, and is succeeding as chairman of Hassocks FC`\
+https://nytimes.com/athletic/6283189/2025/04/17/pat-harding-matthew-harding-chelsea/
+
+**Inzaghi's Inter are Champions League contenders who ally old-school quality with progression**\
+`The Italian side will start their semi-final as underdogs but, having seen off Bayern, their unique approach can unsettle Barcelona`\
+https://nytimes.com/athletic/6285513/2025/04/17/inzaghis-inter-are-champions-league-contenders-who-ally-old-school-quality-with-progression/
+
+**Jason Robertson leaves Stars' regular-season finale with injury**\
+`Dallas said Robertson suffered a lower-body injury during Wednesday's game.`\
+https://nytimes.com/athletic/6286169/2025/04/17/jason-robertson-injury-dallas-stars/
+
 **Slot, Liverpool and a 'remarkable' - and very exclusive - managerial club**\
 `The Dutchman is set to become only the ninth manager to win the title in their first season working in England's top flight`\
 https://nytimes.com/athletic/6272564/2025/04/17/arne-slot-liverpool-title-first-season/
+
+**Huijsen is a wanted man in the Premier League. But who would he suit best?**\
+`The Bournemouth defender has a £50m release clause, with Liverpool, Chelsea, Arsenal, Newcastle and Tottenham Hotspur all interested`\
+https://nytimes.com/athletic/6280492/2025/04/17/dean-huijsen-transfer-liverpool-arsenal-analysis/
 
 **We watched only Morgan Gibbs-White for an entire match. Here's what we learned**\
 `For 90 minutes, Nick Miller focused only on Forest's star player to better understand his skill, mentality and importance to Nuno`\
@@ -13,29 +37,4 @@ https://nytimes.com/athletic/6286052/2025/04/17/isaiah-buggs-animal-cruelty-char
 **The £85m Champions League payday Manchester United miss if they exit the Europa League**\
 `"Champions League can change everything,” said Ruben Amorim of Manchester United's budget - this is how`\
 https://nytimes.com/athletic/6266306/2025/04/17/cost-manchester-united-europa-league-exit/
-
-**Listen: What is Old Trafford's most famous European night?**\
-`Talk of the Devils discusses Manchester United’s greatest European nights at Old Trafford
-`\
-https://nytimes.com/athletic/6284213/2025/04/17/talk-of-the-devils-manchester-united-old-trafford-europe/
-
-**Chelsea await the bad boys of Europe: Why Legia Warsaw have become a headache for UEFA**\
-`The Polish side travel to London with restricted ticket numbers. Here's why`\
-https://nytimes.com/athletic/6282263/2025/04/17/chelsea-await-the-bad-boys-of-europe-why-legia-warsaw-have-become-a-headache-for-uefa/
-
-**Pierre Sage interview: Lyon sacking, working with Textor and Cherki's talent**\
-`The 45-year-old was sacked by Lyon in January but believes his former side have what it takes to end Manchester United's Europe League hopes`\
-https://nytimes.com/athletic/6283217/2025/04/17/pierre-sage-interview-lyon-cherki-textor/
-
-**Thursday Briefing: A Judge’s Pushback Against Trump**\
-`Plus, a look at the Grand Egyptian Museum.`\
-https://nytimes.com/2025/04/17/briefing/judge-trump-contempt-iran-nvidia.html
-
-**South Korea Hopes Shipbuilding Will Give It an Edge in Trade Talks**\
-`As it faces the possibility of a 25 percent tariff on its exports, South Korea has taken notice of President Trump’s stated goal to revive U.S. shipbuilding.`\
-https://nytimes.com/2025/04/17/world/asia/skorea-trump-tariffs-ships.html
-
-**Europe Seeks a Direct Line to Trump, Skeptical That Aides Speak for Him**\
-`Despite Europe’s size, economic might and longstanding alliances with Washington, Trump officials have made clear it is not a priority, European officials say.`\
-https://nytimes.com/2025/04/17/world/europe/europe-trump-trade-defense.html
 
