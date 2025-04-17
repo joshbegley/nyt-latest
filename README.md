@@ -1,5 +1,13 @@
-**Charles Lee stayed steady during a tumultuous Hornets season. Next year, can he elevate them?**\
-`As injuries ruined Charles Lee's debut season, he remained steady throughout the turmoil. Can he elevate the Hornets — and LaMelo Ball?`\
+**LVMH Abruptly Puts Dior Men in Jonathan Anderson’s Hands**\
+`A one-sentence statement served as the notice that Mr. Anderson, who reimagined LVMH’s Loewe brand, would lead men’s wear design at Dior.`\
+https://nytimes.com/2025/04/17/style/jonathan-anderson-dior-men-lvmh.html
+
+**Trade War to Weaken Global Growth and Increase Inflation, I.M.F. Warns**\
+`Kristalina Georgieva, the managing director of the International Monetary Fund, warned in a speech that protectionism erodes productivity.`\
+https://nytimes.com/2025/04/17/business/economy/imf-trump-tariffs-global-economy.html
+
+**Charles Lee stayed steady during a tumultuous Hornets season. Next season, can he elevate them?**\
+`As injuries ruined Lee's debut season, he remained steady throughout the turmoil. Can he elevate the Hornets — and Ball?`\
 https://nytimes.com/athletic/6282258/2025/04/17/hornets-coach-charles-lee-lamelo-ball-nba/
 
 **Alexander Straus to become Angel City head coach at end of May**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/17/arts/design/nasher-sculpture-center-carlos-basual
 **WNBPA says All-Star skills challenge, 3-point shootout earnings to increase**\
 `The payouts will be equivalent to what NBA players receive for winning the 3-point shootout and the skills challenge.`\
 https://nytimes.com/athletic/6285537/2025/04/17/wnbpa-2025-all-star-weekend-prize-pool-increase/
-
-**How Inter's outswinging corners have become a routine part of their success in 2024-25**\
-`Bayern Munich are just the latest side to be undone by Inter's set-piece prowess this season`\
-https://nytimes.com/athletic/6284214/2025/04/17/inter-outswinging-corners-champions-league/
-
-**New CFB rules to charge timeout for fake injury, close Oregon 12-men loophole**\
-`The changes were proposed by the football rules committee in February and approved by the NCAA’s Playing Rules Oversight Panel on Wednesday.`\
-https://nytimes.com/athletic/6284462/2025/04/17/college-football-rules-changes-fake-injuries-timeouts/
 
