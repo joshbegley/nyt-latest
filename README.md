@@ -1,3 +1,11 @@
+**School Vouchers Won in Texas. Next Up, the Nation.**\
+`Choice laws have now passed in every major Republican state. Congress and President Trump are now aiming at blue states that have resisted vouchers for decades.`\
+https://nytimes.com/2025/04/17/us/school-choice-trump.html
+
+**Aaron Rodgers’ words for Aaron Glenn are a reminder: The Jets were right to move on**\
+`The quarterback didn't fit the new timeline or the new culture, and the coach made that clear to him, face-to-face.`\
+https://nytimes.com/athletic/6288047/2025/04/17/aaron-rodgers-aaron-glenn-jets-criticism/
+
 **Rockies fire Hensley Meulens, name Clint Hurdle as new hitting coach**\
 `The Rockies will turn to a former manager to fix an offense that has scored the fewest runs in Major League Baseball.`\
 https://nytimes.com/athletic/6288098/2025/04/17/rockies-fire-hensley-meulens-clint-hurdle-hitting-coach/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/17/us/politics/appeals-court-white-house-deportee.ht
 **Suns owner vows to change team culture after 'embarrassing' season**\
 `Ishbia vowed to change the culture and identity of a Suns team that failed to make the postseason with the NBA's most expensive roster.`\
 https://nytimes.com/athletic/6288060/2025/04/17/suns-owner-mat-ishbia-change-culture-embarrassing-season/
-
-**Will a Manhattan Garden’s Famous Fans Tank a Plan to Build Housing?**\
-`The Elizabeth Street Garden in Lower Manhattan was going to be razed to make way for affordable housing for older New Yorkers. Now the plan may be on hold.`\
-https://nytimes.com/2025/04/17/nyregion/elizabeth-street-garden.html
-
-**Trump Administration Says It Will Take Over Renovation of Penn Station**\
-`The head of the federal Department of Transportation promised on Thursday to take away control from the Metropolitan Transportation Authority.`\
-https://nytimes.com/2025/04/17/nyregion/trump-penn-station-nyc.html
 
