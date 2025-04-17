@@ -1,3 +1,11 @@
+**The New York Times in Print for Thursday, April 17, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/17/todays-new-york-times
+
+**China Knows How to ‘Eat Bitterness.’ America, Not So Much.**\
+`Trump thinks he holds all the cards in this high-stakes game, but he’s wrong.`\
+https://nytimes.com/2025/04/17/opinion/china-us-trump-xi-tariffs.html
+
 **Greenberg: 'Cancun' Bulls didn't throw in beach towel, but where do they go from here?**\
 `In the end, the only playoff experience the young Bulls players got was the kind they already had — losing to the Heat in a Play-In game. `\
 https://nytimes.com/athletic/6286115/2025/04/17/bulls-heat-nba-play-in-tournament-loss/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6283189/2025/04/17/pat-harding-matthew-harding-chel
 **Inzaghi's Inter are Champions League contenders who ally old-school quality with progression**\
 `The Italian side will start their semi-final as underdogs but, having seen off Bayern, their unique approach can unsettle Barcelona`\
 https://nytimes.com/athletic/6285513/2025/04/17/inzaghis-inter-are-champions-league-contenders-who-ally-old-school-quality-with-progression/
-
-**Jason Robertson leaves Stars' regular-season finale with injury**\
-`Dallas said Robertson suffered a lower-body injury during Wednesday's game.`\
-https://nytimes.com/athletic/6286169/2025/04/17/jason-robertson-injury-dallas-stars/
-
-**Slot, Liverpool and a 'remarkable' - and very exclusive - managerial club**\
-`The Dutchman is set to become only the ninth manager to win the title in their first season working in England's top flight`\
-https://nytimes.com/athletic/6272564/2025/04/17/arne-slot-liverpool-title-first-season/
 
