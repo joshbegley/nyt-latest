@@ -1,3 +1,11 @@
+**Rockies fire Hensley Meulens, name Clint Hurdle as new hitting coach**\
+`The Rockies will turn to a former manager to fix an offense that has scored the fewest runs in Major League Baseball.`\
+https://nytimes.com/athletic/6288098/2025/04/17/rockies-fire-hensley-meulens-clint-hurdle-hitting-coach/
+
+**Maryland Senator Turned Away From El Salvador Prison by Military**\
+`Armed officials stopped Senator Chris Van Hollen from trying to visit the prison where Kilmar Armando Abrego Garcia has been held for over a month.`\
+https://nytimes.com/2025/04/17/us/politics/senator-chris-van-hollen-el-salvador-prison.html
+
 **Deion Sanders addresses jersey retirement debate ahead of spring game**\
 `Colorado will host its annual Black & Gold Day spring game in Boulder on Saturday, which will air nationally on ESPN2.`\
 https://nytimes.com/athletic/6288027/2025/04/17/colorado-football-deion-sanders-jersey-retirement-debate/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/17/nyregion/elizabeth-street-garden.html
 **Trump Administration Says It Will Take Over Renovation of Penn Station**\
 `The head of the federal Department of Transportation promised on Thursday to take away control from the Metropolitan Transportation Authority.`\
 https://nytimes.com/2025/04/17/nyregion/trump-penn-station-nyc.html
-
-**Dual Orders From Judges Edge Courts Closer to Confrontation With White House**\
-`The threat of investigations into whether the administration violated the judges’ orders comes as President Trump and his advisers are increasingly butting heads with the courts.`\
-https://nytimes.com/2025/04/17/us/politics/trump-el-salvador-deportations-immigrants.html
-
-**Cable Car Falls and Breaks Apart in Italy, Killing at Least 4 People**\
-`A fifth person was in critical condition after the cable car rolled down a mountainside. Nine others were trapped in a different cable car because of the crash and had to be rescued.`\
-https://nytimes.com/2025/04/17/world/europe/italy-cable-car-crash.html
 
