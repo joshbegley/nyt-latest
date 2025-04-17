@@ -1,3 +1,7 @@
+**What to Know About Eli Lilly’s Daily Pill for Weight Loss**\
+`Eli Lilly reported promising results from a study of its experimental oral drug that could rival popular injections to treat obesity and diabetes.`\
+https://nytimes.com/2025/04/17/health/weight-loss-pill-eli-lilly.html
+
 **Embattled Congestion Pricing Program Gets Boost From Federal Judge**\
 `Judge Lewis J. Liman struck down several arguments in various lawsuits seeking to undo the New York City tolling program. Though weakened, the court cases continue.`\
 https://nytimes.com/2025/04/17/nyregion/congestion-pricing-lawsuits-judge.html

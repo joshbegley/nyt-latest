@@ -1,3 +1,7 @@
+**What to Know About Eli Lilly’s Daily Pill for Weight Loss**\
+`Eli Lilly reported promising results from a study of its experimental oral drug that could rival popular injections to treat obesity and diabetes.`\
+https://nytimes.com/2025/04/17/health/weight-loss-pill-eli-lilly.html
+
 **Embattled Congestion Pricing Program Gets Boost From Federal Judge**\
 `Judge Lewis J. Liman struck down several arguments in various lawsuits seeking to undo the New York City tolling program. Though weakened, the court cases continue.`\
 https://nytimes.com/2025/04/17/nyregion/congestion-pricing-lawsuits-judge.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6283978/2025/04/17/eintracht-frankfurt-tottenham-eu
 **Time for a Civic Uprising**\
 `It will take a concerted effort by every sector of our society to respond to Trumpism’s threat.`\
 https://nytimes.com/2025/04/17/opinion/trump-harvard-law-firms.html
-
-**Canada's Marsch handed extra ban for 'unacceptable conduct' after U.S. red card**\
-`Concacaf sanctioned Marsch for "unacceptable conduct towards the match officials and "delaying the restart of the match".`\
-https://nytimes.com/athletic/6288177/2025/04/17/jesse-marsch-canada-ban-usmnt/
 

@@ -1,3 +1,7 @@
+**A Startling Admission From a G.O.P. Senator: ‘We Are All Afraid’**\
+`Lisa Murkowski, a longtime senator from Alaska and an independent voice in an increasingly tribal party, has been the rare Republican on Capitol Hill willing to criticize President Trump’s actions.`\
+https://nytimes.com/2025/04/17/us/politics/lisa-murkowski-trump.html
+
 **What to Know About Eli Lilly’s Daily Pill for Weight Loss**\
 `Eli Lilly reported promising results from a study of its experimental oral drug that could rival popular injections to treat obesity and diabetes.`\
 https://nytimes.com/2025/04/17/health/weight-loss-pill-eli-lilly.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/17/briefing/trump-meloni-tariffs-iran-us-nuclear-syr
 **The Briefing: Frankfurt 0 Spurs 1 (1-2 agg) - Was this vindication for Postecoglou?**\
 `The major talking points analysed from the Europa League quarter-final second leg in Germany`\
 https://nytimes.com/athletic/6283978/2025/04/17/eintracht-frankfurt-tottenham-europa-league-result-analysis/
-
-**Time for a Civic Uprising**\
-`It will take a concerted effort by every sector of our society to respond to Trumpism’s threat.`\
-https://nytimes.com/2025/04/17/opinion/trump-harvard-law-firms.html
 
