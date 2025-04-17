@@ -1,3 +1,19 @@
+**Here’s What to Know About Rare Earth Minerals and Renewable Energy**\
+`The shift to cleaner power needs resources from China. An export ban just cut off some supplies.`\
+https://nytimes.com/2025/04/17/climate/rare-earth-minerals-renewable-energy.html
+
+**Leaving the U.S. for College or Grad School? Tell Us More.**\
+`The New York Times is looking to hear from students who are considering attending schools abroad because of Trump administration policies.`\
+https://nytimes.com/2025/04/17/us/college-universities-trump-mood.html
+
+**Court, in Strong Words, Presses White House to Play Active Role in Freeing Maryland Man**\
+`Regardless of whether the man, Kilmar Armando Abrego Garcia, is a member of MS-13, the appeals court wrote, he is entitled to due process.`\
+https://nytimes.com/live/2025/04/17/us/trump-news-updates/appeals-court-white-house-deportee
+
+**Suns owner vows to change team culture after 'embarrassing' season**\
+`Ishbia vowed to change the culture and identity of a Suns team that failed to make the postseason with the NBA's most expensive roster.`\
+https://nytimes.com/athletic/6288060/2025/04/17/suns-owner-mat-ishbia-change-culture-embarrassing-season/
+
 **Will a Manhattan Garden’s Famous Fans Tank a Plan to Build Housing?**\
 `The Elizabeth Street Garden in Lower Manhattan was going to be razed to make way for affordable housing for older New Yorkers. Now the plan may be on hold.`\
 https://nytimes.com/2025/04/17/nyregion/elizabeth-street-garden.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/04/17/us/politics/trump-administration-proposes-health-
 **Netflix Beats First-Quarter Forecasts**\
 `The streaming giant brought in $10.5 billion in revenue in the first three months of the year. For the first time, it didn’t disclose its quarterly subscriber figures.`\
 https://nytimes.com/2025/04/17/business/media/netflix-earnings.html
-
-**Why 'College GameDay' institution Lee Corso can never be replaced**\
-`When Corso whipped out his Ticonderoga No. 2 pencil or dropped a “not so fast, my friend,” we were home.`\
-https://nytimes.com/athletic/6287937/2025/04/17/lee-corso-espn-college-gameday-tribute/
-
-**One week before draft, Brad Holmes talks trade history, development and red flags**\
-`Lions general manager Brad Holmes talks all things draft, trades and team building. `\
-https://nytimes.com/athletic/6287705/2025/04/17/detroit-lions-brad-holmes-nfl-draft/
-
-**Where to Cry, and Other Restaurant Requests**\
-`Lunch for a courthouse wedding? Fresh cookies after 6 p.m.? We have answers.`\
-https://nytimes.com/2025/04/17/dining/where-to-cry-and-other-restaurant-requests.html
-
-**‘The Rehearsal’ Is an Awkward, Dazzling Ride**\
-`For Season 2, Nathan Fielder’s focus is commercial airline safety, hardly a typical topic for comedy. But his approach is never typical.`\
-https://nytimes.com/2025/04/17/arts/television/the-rehearsal-season-2.html
 
