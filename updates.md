@@ -1,3 +1,7 @@
+**Charles Lee stayed steady during a tumultuous Hornets season. Next year, can he elevate them?**\
+`As injuries ruined Charles Lee's debut season, he remained steady throughout the turmoil. Can he elevate the Hornets — and LaMelo Ball?`\
+https://nytimes.com/athletic/6282258/2025/04/17/hornets-coach-charles-lee-lamelo-ball-nba/
+
 **Alexander Straus to become Angel City head coach at end of May**\
 `Straus will leave his role as Bayern Munich head coach one year early to facilitate the move to NWSL.`\
 https://nytimes.com/athletic/6284622/2025/04/17/alexander-straus-angel-city-bayern/
