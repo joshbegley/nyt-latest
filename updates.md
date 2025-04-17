@@ -1,3 +1,11 @@
+**Live Updates: At Least 6 People Injured in Florida State University Shooting**\
+`Gunshots were reported at the student union building on the university’s campus in Tallahassee shortly after noon on Thursday.`\
+https://nytimes.com/live/2025/04/17/us/fsu-shooting-tallahassee
+
+**Here’s the latest.**\
+`Gunshots were reported at the student union building on the university’s campus in Tallahassee shortly after noon on Thursday.`\
+https://nytimes.com/live/2025/04/17/us/fsu-shooting-tallahassee/fsu-shooting-tallahassee
+
 **Democrats Step Up Trump Resistance as Base Hungers for More of a Fight**\
 `Out of power in Congress, Democrats who were slow to fight back against President Trump are increasingly finding ways to do so. But activists want much more.`\
 https://nytimes.com/2025/04/17/us/politics/democrats-trump-resistance.html

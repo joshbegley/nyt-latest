@@ -1,3 +1,7 @@
+**Live Updates: At Least 6 People Injured in Florida State University Shooting**\
+`Gunshots were reported at the student union building on the university’s campus in Tallahassee shortly after noon on Thursday.`\
+https://nytimes.com/live/2025/04/17/us/fsu-shooting-tallahassee
+
 **Democrats Step Up Trump Resistance as Base Hungers for More of a Fight**\
 `Out of power in Congress, Democrats who were slow to fight back against President Trump are increasingly finding ways to do so. But activists want much more.`\
 https://nytimes.com/2025/04/17/us/politics/democrats-trump-resistance.html
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/6285949/2025/04/17/nhl-playoff-schedule-2025/
 `The artist’s first major museum survey fills Frank Lloyd Wright’s spiral with a rich mix of media, a view of the polymathic flux of a 25-year career, and a sense of healing.`\
 https://nytimes.com/2025/04/17/arts/design/rashid-johnson-guggenheim.html
 
-**At Least 6 People Injured in Florida State University Shooting**\
+**Here’s the latest.**\
 `Gunshots were reported at the student union building on the university’s campus in Tallahassee shortly after noon on Thursday.`\
-https://nytimes.com/2025/04/17/us/fsu-shooting-tallahassee.html
-
-**Neal Pionk signs extension to stay with Winnipeg Jets for six more years**\
-`Pionk is another pending UFA who has opted to remain in Winnipeg rather than test the open market.`\
-https://nytimes.com/athletic/6287547/2025/04/17/neal-pionk-winnipeg-jets-extension/
+https://nytimes.com/live/2025/04/17/us/fsu-shooting-tallahassee/fsu-shooting-tallahassee
 
