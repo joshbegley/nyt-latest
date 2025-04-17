@@ -1,3 +1,7 @@
+**Measles Outbreaks in Canada and Mexico Bring Grim Prognosis**\
+`Surges in Mennonite communities near the U.S. border may complicate containment efforts, experts say.`\
+https://nytimes.com/2025/04/17/health/measles-texas-mexico-canada.html
+
 **Trump Administration Aims to Sell Housing Department Headquarters**\
 `The building has been added to a list of properties that the administration says it is trying to offload in order to eliminate waste.`\
 https://nytimes.com/2025/04/17/us/politics/trump-housing-urban-development-building.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6287618/2025/04/17/chiefs-nfl-draft-brett-veach-jos
 **Live Updates: At Least 6 People Injured in Florida State University Shooting**\
 `Gunshots were reported at the student union building on the university’s campus in Tallahassee shortly after noon on Thursday.`\
 https://nytimes.com/live/2025/04/17/us/fsu-shooting-tallahassee
-
-**Democrats Step Up Trump Resistance as Base Hungers for More of a Fight**\
-`Out of power in Congress, Democrats who were slow to fight back against President Trump are increasingly finding ways to do so. But activists want much more.`\
-https://nytimes.com/2025/04/17/us/politics/democrats-trump-resistance.html
 
