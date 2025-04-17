@@ -1,3 +1,19 @@
+**Webcams Catch Fireball Lighting Up Sky Near Mexico City**\
+`The bright object that streaked across the sky is called a bolide.`\
+https://nytimes.com/video/science/space/100000010117037/meteor-over-mexico-city.html
+
+**PWHL to announce Vancouver as first expansion team, could start play in 2025-26: Sources**\
+`The Professional Women’s Hockey League is set to announce a new team in Vancouver next week, according to sources briefed on the matter.`\
+https://nytimes.com/athletic/6288167/2025/04/17/pwhl-vancouver-expansion-professional-womens-hockey-league/
+
+**Fantasy baseball waiver wire pickups featuring Ben Rice, Kyren Paris and more**\
+`John Laghezza likes the look of Austin Hays in Cincinnati as he crunches the data and shares his top fantasy baseball pickups of the week.`\
+https://nytimes.com/athletic/6284493/2025/04/17/fantasy-baseball-waiver-wire-pickups-featuring-austin-hays-grant-holmes-and-more/
+
+**The Briefing: Manchester United 5 Lyon 4 (7-6 agg) - United reach Europa League semi-finals... somehow!**\
+`A remarkable comeback has put Manchester United in the Europa League semi finals`\
+https://nytimes.com/athletic/6283976/2025/04/17/manchester-united-lyon-europa-league-5-4/
+
 **Blackhawks' coaching search, contract talks and more takeaways from locker clean-out day**\
 `Plus, Connor Bedard dismissed any assumptions that he’s unhappy in Chicago and looking to leave.`\
 https://nytimes.com/athletic/6288198/2025/04/17/blackhawks-coach-contract-locker-room-clean-out/
