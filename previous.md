@@ -1,5 +1,5 @@
 **Rashford's Manchester United future? Wirtz to City? - Ask Ornstein**\
-`David Ornstein has compiled some of his favourite answers from his most recent Q&A session`\
+`Once a week, The Athletic’s subscribers can ask David Ornstein for his views on anything from the football world. Here are his answers`\
 https://nytimes.com/athletic/6287083/2025/04/17/manchester-united-transfer-latest-arsenal-manchester-city-david-ornstein/
 
 **All the President’s Flatterers**\
