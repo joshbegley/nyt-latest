@@ -1,3 +1,11 @@
+**Kings, GM Monte McNair agree to part ways after Play-In loss to Mavericks**\
+`McNair's departure follows the Kings' 120-106 loss to the Mavericks, which bounced Sacramento from the postseason.`\
+https://nytimes.com/athletic/6286283/2025/04/17/kings-general-manager-monte-mcnair-fired/
+
+**Real Madrid have superstar talent - but that doesn't make them a good team**\
+`There was ‘remontada’ talk before the second leg against Arsenal — but none of spirit, organisation or quality required to pull it off`\
+https://nytimes.com/athletic/6274415/2025/04/17/real-madrid-stars-teamwork-champions-league/
+
 **Rudiger on the rampage, rugby tackles and Rice vs Bellingham — breaking down the chaos at the Bernabeu**\
 `Analysing all the needle, scrapping and referee controversy from Arsenal's outstanding Champions League win against Real Madrid`\
 https://nytimes.com/athletic/6284944/2025/04/17/real-madrid-arsenal-rudiger-rice-saka-bellingham-referee-controversy/

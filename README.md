@@ -1,3 +1,7 @@
+**Word of the Day: tureen**\
+`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/04/17/learning/word-of-the-day-tureen.html
+
 **Kings, GM Monte McNair agree to part ways after Play-In loss to Mavericks**\
 `McNair's departure follows the Kings' 120-106 loss to the Mavericks, which bounced Sacramento from the postseason.`\
 https://nytimes.com/athletic/6286283/2025/04/17/kings-general-manager-monte-mcnair-fired/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6286115/2025/04/17/bulls-heat-nba-play-in-tournamen
 **It's still early, but the Giants are rolling past their opponents in impressive fashion**\
 `The Giants are outscoring their opponents 100-64, and what's more impressive, it's come against the toughest schedule in the league.`\
 https://nytimes.com/athletic/6285762/2025/04/17/sf-giants-early-season-pythagorean-record/
-
-**Picking Manchester United's XI for Lyon - and what they must do to win**\
-`Looking at who Ruben Amorim has fit to choose from against Lyon at Old Trafford and what United must do to make a Europa League semi-final`\
-https://nytimes.com/athletic/6284240/2025/04/17/manchester-united-lyon-team-news/
 
