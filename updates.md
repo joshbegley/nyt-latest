@@ -1,3 +1,19 @@
+**The Hidden Torments of the Firefighter With O.C.D.**\
+`For years, Timmy Reen hid his mental illness from everyone at his New York City firehouse — until his secret was forced out in the open.`\
+https://nytimes.com/2025/04/17/nyregion/firefighter-mental-health-ocd.html
+
+**Brick Wall**\
+`What do you think this image is communicating?`\
+https://nytimes.com/2025/04/17/learning/brick-wall.html
+
+**The Child Care Crisis Is Motivating These New York City Voters**\
+`Parents are fed up, and the candidates for mayor appear to be paying attention. Many have built campaigns on a promise to make New York more affordable, with child care as a centerpiece.`\
+https://nytimes.com/2025/04/17/nyregion/new-york-child-care-voters.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/04/17/crosswords/spelling-bee-forum.html
+
 **Watching Oliver Glasner's emotions during 90 stressful minutes at St James' Park**\
 `The Crystal Palace manager is an emotional figure — as a tough week at the office has demonstrated `\
 https://nytimes.com/athletic/6278253/2025/04/17/crystal-palace-glasner-emotions-watch/
