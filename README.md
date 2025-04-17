@@ -1,3 +1,7 @@
+**Former death row prisoners fight attempt to move them to one of the nation’s harshest prisons.**\
+`The men had their death sentences commuted under the Biden administration, but say they are being punished by being transferred from a prison in Indiana to a restrictive federal prison in Colorado.`\
+https://nytimes.com/2025/04/17/us/politics/former-death-row-prisoners-fight-attempt-to-move-them-to-one-of-the-nations-harshest-prisons.html
+
 **What’s Going On in This Picture? | April 21, 2025**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2025/04/17/learning/whats-going-on-in-this-picture-april-21-2025.html
@@ -8,7 +12,7 @@ https://nytimes.com/2025/04/17/health/measles-texas-mexico-canada.html
 
 **Trump Administration Aims to Sell Housing Department Headquarters**\
 `The building has been added to a list of properties that the administration says it is trying to offload in order to eliminate waste.`\
-https://nytimes.com/live/2025/04/17/us/trump-news-updates/trump-housing-urban-development-building
+https://nytimes.com/2025/04/17/us/politics/trump-housing-urban-development-building.html
 
 **A witness heard gunfire and hid under a stool.**\
 `By Valerie Crowder`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/17/us/politics/supreme-court-birthright-citizenship.
 **France’s Richest Man Counted Trump as a Friend. He Still Faces Tariffs.**\
 `The trade war has hurt the Louis Vuitton Moët Hennessy luxury empire. Bernard Arnault, head of the company, said a failure to strike a deal with President Trump would be “the fault of Brussels.”`\
 https://nytimes.com/2025/04/17/business/trump-tariffs-lvmh-bernard-arnault.html
-
-**Is it Josh Simmons or bust for the Chiefs in Round 1 of the NFL Draft?**\
-`In his pre-draft news conference, GM Brett Veach said the Chiefs have just 13 prospects with a first-round grade on their board.`\
-https://nytimes.com/athletic/6287618/2025/04/17/chiefs-nfl-draft-brett-veach-josh-simmons/
 
