@@ -1,3 +1,7 @@
+**Phillies need reliable Aaron Nola back from 'the worst start' he's ever had**\
+`"I mean, it's unacceptable," Nola said after an 11-4 demolition by the San Francisco Giants.`\
+https://nytimes.com/athletic/6286012/2025/04/16/phillies-lose-giants-aaron-nola-worst-start/
+
 **Oilers' McDavid reaches 100 points, hitting milestone for eighth time**\
 `McDavid has hit the century mark in all but two of his 10 NHL seasons.`\
 https://nytimes.com/athletic/6284943/2025/04/16/connor-mcdavid-100-points-stats-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6275067/2025/04/16/montreal-canadiens-clinch-2025-n
 **With no big trades yet, Cubs get through West Coast trip vs. National League powerhouses**\
 `The Cubs' energy could be seen throughout this Southern California swing, where they split two series against the Padres and Dodgers.`\
 https://nytimes.com/athletic/6285822/2025/04/16/cubs-split-padres-dodgers-series-no-trades-yet/
-
-**A Columbia Activist Sought Middle Ground on Gaza. The U.S. Detained Him.**\
-`Mohsen Mahdawi was arrested at a citizenship interview in Vermont. He had spent a decade trying to understand the conflict that shaped his life, his supporters say.`\
-https://nytimes.com/2025/04/16/nyregion/columbia-activist-mahdawi-ice-palestinian.html
 
