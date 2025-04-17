@@ -1,3 +1,15 @@
+**Deion Sanders addresses jersey retirement debate ahead of spring game**\
+`Colorado will host its annual Black & Gold Day spring game in Boulder on Saturday, which will air nationally on ESPN2.`\
+https://nytimes.com/athletic/6288027/2025/04/17/colorado-football-deion-sanders-jersey-retirement-debate/
+
+**Katie Perry Is Suing Katy Perry in Australia. Wait, What?**\
+`The case between the two Perrys could set a precedent leaving some Australian businesses vulnerable to overseas brands.`\
+https://nytimes.com/2025/04/17/world/australia/katie-perry-suing-katy-perry-australia.html
+
+**Court, in Strong Words, Presses White House to Play Active Role in Freeing Maryland Man**\
+`Regardless of whether the man, Kilmar Armando Abrego Garcia, is a member of MS-13, the appeals court wrote, he is entitled to due process.`\
+https://nytimes.com/2025/04/17/us/politics/appeals-court-white-house-deportee.html
+
 **Here’s What to Know About Rare Earth Minerals and Renewable Energy**\
 `The shift to cleaner power needs resources from China. An export ban just cut off some supplies.`\
 https://nytimes.com/2025/04/17/climate/rare-earth-minerals-renewable-energy.html
