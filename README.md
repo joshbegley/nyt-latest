@@ -1,3 +1,11 @@
+**WATCH: When is good not good enough? The pressure these Knicks face**\
+`In this video essay, I explain why the Knicks, despite posting their best season in a decade, are under immense pressure in these playoffs.`\
+https://nytimes.com/athletic/6287841/2025/04/17/knicks-nba-playoffs-preview-video/
+
+**The Broncos are willing to fill their RB need with a 1st-round pick — but will they?**\
+`The Broncos won't shy from using top pick (currently No. 20) on a RB if they can create "a real clear vision" for instant and future impact.`\
+https://nytimes.com/athletic/6287824/2025/04/17/broncos-nfl-draft-sean-payton-george-paton/
+
 **U.S. Indicts Luigi Mangione in Killing of Health Insurance Executive**\
 `Attorney General Pam Bondi moved forward aggressively and ordered prosecutors to seek the death penalty. Mangione also faces state charges in the Manhattan shooting.`\
 https://nytimes.com/2025/04/17/nyregion/luigi-mangione-indictment-death-penalty.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/17/briefing/judge-google-ad-tech-obesity-pill.html
 **Nino Tempo, Who Topped the Charts With ‘Deep Purple,’ Dies at 90**\
 `He was a busy session saxophonist, but he is probably best known for the Grammy-winning pop hit that he sang in 1963 as half of a duo act with his sister, April Stevens.`\
 https://nytimes.com/2025/04/17/arts/music/nino-tempo-dead.html
-
-**Revisit Lee Corso's best 'College GameDay' moments ahead of his retirement**\
-`If you've watched college football on a Saturday, odds are you've also watched Lee Corso.`\
-https://nytimes.com/athletic/6288323/2025/04/17/lee-corso-espn-college-gameday-best-moments/
-
-**Twins calling up top-100 prospect Luke Keaschall: Source**\
-`Matt Wallner joins Royce Lewis on the injured list, and the Twins are in wait-and-see mode with Willi Castro and Carlos Correa.`\
-https://nytimes.com/athletic/6288337/2025/04/17/twins-luke-keaschall-call-up/
 
