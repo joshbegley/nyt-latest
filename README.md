@@ -1,3 +1,7 @@
+**Watching Oliver Glasner's emotions during 90 stressful minutes at St James' Park**\
+`The Crystal Palace manager is an emotional figure — as a tough week at the office has demonstrated `\
+https://nytimes.com/athletic/6278253/2025/04/17/crystal-palace-glasner-emotions-watch/
+
 **Stephen Colbert Defends PBS and NPR Against Trump’s Defunding Plan**\
 `Colbert said both public media entities are “already operating on a shoestring budget — Daniel Tiger can’t even afford to wear pants.”`\
 https://nytimes.com/2025/04/17/arts/television/stephen-colbert-pbs-npr-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6285509/2025/04/17/bayern-champions-league-exit-kom
 **The New York Times in Print for Thursday, April 17, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/04/17/todays-new-york-times
-
-**China Knows How to ‘Eat Bitterness.’ America, Not So Much.**\
-`Trump thinks he holds all the cards in this high-stakes game, but he’s wrong.`\
-https://nytimes.com/2025/04/17/opinion/china-us-trump-xi-tariffs.html
 
