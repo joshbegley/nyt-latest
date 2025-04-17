@@ -1,3 +1,7 @@
+**Katie Perry Is Suing Katy Perry in Australia. Wait, What?**\
+`The case between the two Perrys could set a precedent leaving some Australian businesses vulnerable to overseas brands.`\
+https://nytimes.com/2025/04/17/world/australia/katie-perry-suing-katy-perry-australia.html
+
 **Here’s What to Know About Rare Earth Minerals and Renewable Energy**\
 `The shift to cleaner power needs resources from China. An export ban just cut off some supplies.`\
 https://nytimes.com/2025/04/17/climate/rare-earth-minerals-renewable-energy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/17/world/europe/italy-cable-car-crash.html
 **Trump Administration Proposes Sharp Budget Cuts for H.H.S.**\
 `An internal memo proposes carving out $40 billion from federal health agencies while eliminating dozens of programs. Congress has ultimate appropriation authority.`\
 https://nytimes.com/2025/04/17/us/politics/trump-administration-proposes-health-department-cuts.html
-
-**Netflix Beats First-Quarter Forecasts**\
-`The streaming giant brought in $10.5 billion in revenue in the first three months of the year. For the first time, it didn’t disclose its quarterly subscriber figures.`\
-https://nytimes.com/2025/04/17/business/media/netflix-earnings.html
 

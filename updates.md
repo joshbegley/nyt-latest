@@ -1,3 +1,19 @@
+**Here’s What to Know About Rare Earth Minerals and Renewable Energy**\
+`The shift to cleaner power needs resources from China. An export ban just cut off some supplies.`\
+https://nytimes.com/2025/04/17/climate/rare-earth-minerals-renewable-energy.html
+
+**Leaving the U.S. for College or Grad School? Tell Us More.**\
+`The New York Times is looking to hear from students who are considering attending schools abroad because of Trump administration policies.`\
+https://nytimes.com/2025/04/17/us/college-universities-trump-mood.html
+
+**Court, in Strong Words, Presses White House to Play Active Role in Freeing Maryland Man**\
+`Regardless of whether the man, Kilmar Armando Abrego Garcia, is a member of MS-13, the appeals court wrote, he is entitled to due process.`\
+https://nytimes.com/live/2025/04/17/us/trump-news-updates/appeals-court-white-house-deportee
+
+**Suns owner vows to change team culture after 'embarrassing' season**\
+`Ishbia vowed to change the culture and identity of a Suns team that failed to make the postseason with the NBA's most expensive roster.`\
+https://nytimes.com/athletic/6288060/2025/04/17/suns-owner-mat-ishbia-change-culture-embarrassing-season/
+
 **Will a Manhattan Garden’s Famous Fans Tank a Plan to Build Housing?**\
 `The Elizabeth Street Garden in Lower Manhattan was going to be razed to make way for affordable housing for older New Yorkers. Now the plan may be on hold.`\
 https://nytimes.com/2025/04/17/nyregion/elizabeth-street-garden.html
