@@ -1,3 +1,15 @@
+**Michelle Williams, Sofia Coppola and Fran Lebowitz Get a Seat at Donald Judd’s Table**\
+`The Judd Foundation’s benefit dinner was a rare chance to step into the artist’s world.`\
+https://nytimes.com/2025/04/17/style/donald-judd-foundation-michelle-wiliams.html
+
+**Florida State shooting prompts cancellations; suspect in custody**\
+`The Associated Press reports one suspect is currently in custody. `\
+https://nytimes.com/athletic/6287700/2025/04/17/florida-state-mass-shooting-sports-canceled/
+
+**Former death row prisoners fight attempt to move them to one of the nation’s harshest prisons.**\
+`The men had their death sentences commuted under the Biden administration, but say they are being punished by being transferred from a prison in Indiana to a restrictive federal prison in Colorado.`\
+https://nytimes.com/live/2025/04/17/us/trump-news-updates/former-death-row-prisoners-fight-attempt-to-move-them-to-one-of-the-nations-harshest-prisons
+
 **Former death row prisoners fight attempt to move them to one of the nation’s harshest prisons.**\
 `The men had their death sentences commuted under the Biden administration, but say they are being punished by being transferred from a prison in Indiana to a restrictive federal prison in Colorado.`\
 https://nytimes.com/2025/04/17/us/politics/former-death-row-prisoners-fight-attempt-to-move-them-to-one-of-the-nations-harshest-prisons.html
