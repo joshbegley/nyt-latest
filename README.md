@@ -1,3 +1,11 @@
+**Will a Manhattan Garden’s Famous Fans Tank a Plan to Build Housing?**\
+`The Elizabeth Street Garden in Lower Manhattan was going to be razed to make way for affordable housing for older New Yorkers. Now the plan may be on hold.`\
+https://nytimes.com/2025/04/17/nyregion/elizabeth-street-garden.html
+
+**Trump Administration Says It Will Take Over Renovation of Penn Station**\
+`The head of the federal Department of Transportation promised on Thursday to take away control from the Metropolitan Transportation Authority.`\
+https://nytimes.com/2025/04/17/nyregion/trump-penn-station-nyc.html
+
 **Dual Orders From Judges Edge Courts Closer to Confrontation With White House**\
 `The threat of investigations into whether the administration violated the judges’ orders comes as President Trump and his advisers are increasingly butting heads with the courts.`\
 https://nytimes.com/2025/04/17/us/politics/trump-el-salvador-deportations-immigrants.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/17/dining/where-to-cry-and-other-restaurant-requests
 **‘The Rehearsal’ Is an Awkward, Dazzling Ride**\
 `For Season 2, Nathan Fielder’s focus is commercial airline safety, hardly a typical topic for comedy. But his approach is never typical.`\
 https://nytimes.com/2025/04/17/arts/television/the-rehearsal-season-2.html
-
-**What Students Are Saying About Reading for Fun**\
-`We asked teenagers: When was the last time you read a whole book? Here is what they told us.`\
-https://nytimes.com/2025/04/17/learning/what-students-are-saying-about-reading-for-fun.html
-
-**U.S. Is Withdrawing Hundreds of Troops From Syria**\
-`The end of the Assad era has reduced some threats, but the Islamic State has shown renewed strength in the country.`\
-https://nytimes.com/2025/04/17/us/politics/us-withdrawing-troops-syria.html
 
