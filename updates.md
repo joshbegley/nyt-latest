@@ -1,3 +1,15 @@
+**4 Men Charged With Trying to Smuggle Thousands of Ants From Kenya**\
+`The men, including two Belgian teenagers, pleaded guilty to smuggling thousands of live queen ants, which the Kenyan authorities said were destined for markets in Europe and Asia.`\
+https://nytimes.com/2025/04/17/world/africa/kenya-ants-smuggling.html
+
+**Champions League projections 2024-25: Who will lift the trophy in Munich on May 31?**\
+`Here's how the rest of the 2024-25 Champions League is projected to play out...`\
+https://nytimes.com/athletic/5793492/2025/04/17/champions-league-projections/
+
+**Win our playoffs prediction contest by getting one easy question right (you won't)**\
+`It's time for the annual playoff prediction contest, an incredibly simple single-question test that you will almost certainly fail.`\
+https://nytimes.com/athletic/6281448/2025/04/17/nhl-playoffs-prediction-contest-2025/
+
 **How Angels' Tyler Anderson channeled his 'controlled rage' into success on mound**\
 `A perfectionist on the mound, Anderson is no hothead, but sometimes his intensity elicits an audible curse word that serves to center him.`\
 https://nytimes.com/athletic/6285779/2025/04/17/angels-tyler-anderson/
