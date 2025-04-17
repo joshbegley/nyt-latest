@@ -34,7 +34,7 @@ https://nytimes.com/2025/04/16/us/major-league-fishing-boat-accident-smith-lake.
 `By The New York Times`\
 https://nytimes.com/live/2025/04/16/us/trump-news/heres-what-happened-on-wednesday
 
-**Twins takeaways: Mounting injuries, aggressive base running, Edouard Julien's defense**\
+**Twins takeaways: Mounting injuries, aggressive base running, Julien's defense**\
 `The series win was the byproduct of aggressive base running, productive outs and good defense from a team looking for signs of life.`\
 https://nytimes.com/athletic/6285608/2025/04/16/twins-beat-mets-extra-innings-takeaways/
 
