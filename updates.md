@@ -1,3 +1,11 @@
+**Play-In Tournament woes continue to haunt Bulls: 'We've got to be better'**\
+`“The disappointing part was that we didn’t play to our identity,” Billy Donovan said of the Bulls' Play-In Tournament loss to the Heat.`\
+https://nytimes.com/athletic/6286148/2025/04/17/bulls-nba-play-in-tournament-heat/
+
+**MLB bat path metrics, speed training, fitting tech: Is hitting finally catching up?**\
+`With hitting arguably harder than ever, teams are looking at data, technology drills and, yes, new bat shapes to get an edge.`\
+https://nytimes.com/athletic/6270614/2025/04/17/mlb-bat-path-metrics-speed-training-tech/
+
 **Vikings mailbag: Draft options at No. 24, trade possibilities and J.J. McCarthy's readiness**\
 `Vikings spent the last two weeks finalizing their draft board. They only have four picks (for now). Here's a brief primer on what's to come.`\
 https://nytimes.com/athletic/6284677/2025/04/17/vikings-mailbag-nfl-draft-jj-mccarthy/
