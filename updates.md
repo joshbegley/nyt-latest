@@ -1,3 +1,7 @@
+**Phillies need reliable Aaron Nola back from 'the worst start' he's ever had**\
+`"I mean, it's unacceptable," Nola said after an 11-4 demolition by the San Francisco Giants.`\
+https://nytimes.com/athletic/6286012/2025/04/16/phillies-lose-giants-aaron-nola-worst-start/
+
 **Oilers' McDavid reaches 100 points, hitting milestone for eighth time**\
 `McDavid has hit the century mark in all but two of his 10 NHL seasons.`\
 https://nytimes.com/athletic/6284943/2025/04/16/connor-mcdavid-100-points-stats-2025/
