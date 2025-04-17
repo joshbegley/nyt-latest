@@ -1,3 +1,7 @@
+**Playoff Herro was leader Heat needed to dismantle Bulls, advance in Play-in Tournament**\
+`Tyler Herro spoke to The Athletic about his dominant performance in the Heat's Play-In Tournament win.`\
+https://nytimes.com/athletic/6286219/2025/04/17/tyler-herro-heat-leader-play-in-tournament/
+
 **Arsenal's systematic dismantling of Real Madrid showed a team that is coming of age**\
 `Knocking out the Champions League holders is a major milestone in the club's upward trajectory`\
 https://nytimes.com/athletic/6285812/2025/04/17/arsenal-real-madrid-champions-league-performance/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6284198/2025/04/17/dominic-solanke-is-not-scoring/
 **Wolves mailbag: Stadium plans, summer spending, season tickets and Fosun's future**\
 `Steve Madeley answers subscribers' questions on a range of topics, covering issues on and off the pitch`\
 https://nytimes.com/athletic/6279415/2025/04/17/wolves-mailbag-wolves-stadium-transfers-fosun/
-
-**Meet Matthew Harding's son Pat, chairman of a title-winning club: 'I like to think he'd be proud'**\
-`Pat is the son of former Chelsea vice-chairman Matthew Harding, and is succeeding as chairman of Hassocks FC`\
-https://nytimes.com/athletic/6283189/2025/04/17/pat-harding-matthew-harding-chelsea/
 

@@ -1,3 +1,7 @@
+**Playoff Herro was leader Heat needed to dismantle Bulls, advance in Play-in Tournament**\
+`Tyler Herro spoke to The Athletic about his dominant performance in the Heat's Play-In Tournament win.`\
+https://nytimes.com/athletic/6286219/2025/04/17/tyler-herro-heat-leader-play-in-tournament/
+
 **Arsenal's systematic dismantling of Real Madrid showed a team that is coming of age**\
 `Knocking out the Champions League holders is a major milestone in the club's upward trajectory`\
 https://nytimes.com/athletic/6285812/2025/04/17/arsenal-real-madrid-champions-league-performance/
