@@ -1,3 +1,7 @@
+**Tonali's redeployment has taken Newcastle to next level. He's now their central cog**\
+`The Italian is not a holding midfielder or an attacking midfielder; he is both rolled into one - and Tyneside is in love with him`\
+https://nytimes.com/athletic/6283176/2025/04/17/sandro-tonali-newcastle-position-central-cog/
+
 **Dominic Solanke is not scoring. Obviously. But who's to blame?**\
 `Spurs' star striker is going through a dry spell that's now up to 11 games, but he is contributing in other ways`\
 https://nytimes.com/athletic/6284198/2025/04/17/dominic-solanke-is-not-scoring/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6280515/2025/04/17/watching-morgan-gibbs-white-fore
 **Animal cruelty charges against Isaiah Buggs dismissed**\
 `The charges of second-degree cruelty to dogs was dismissed with prejudice in a Tuscaloosa, Ala., court.`\
 https://nytimes.com/athletic/6286052/2025/04/17/isaiah-buggs-animal-cruelty-charges-dismissed/
-
-**The £85m Champions League payday Manchester United miss if they exit the Europa League**\
-`"Champions League can change everything,” said Ruben Amorim of Manchester United's budget - this is how`\
-https://nytimes.com/athletic/6266306/2025/04/17/cost-manchester-united-europa-league-exit/
 

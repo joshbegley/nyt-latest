@@ -1,3 +1,8 @@
+**Listen: What is Old Trafford's most famous European night?**\
+`Talk of the Devils discusses Manchester United’s greatest European nights at Old Trafford
+`\
+https://nytimes.com/athletic/6284213/2025/04/17/talk-of-the-devils-manchester-united-old-trafford-europe/
+
 **Slot, Liverpool and a 'remarkable' - and very exclusive - managerial club**\
 `The Dutchman is set to become only the ninth manager to win the title in their first season working in England's top flight`\
 https://nytimes.com/athletic/6272564/2025/04/17/arne-slot-liverpool-title-first-season/
