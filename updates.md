@@ -1,3 +1,11 @@
+**Rams to draft from Los Angeles Fire Department Air Operations**\
+`The Rams will renovate the LAFD Air Operations recreation room in tandem with their ongoing efforts in the community following the fires.`\
+https://nytimes.com/athletic/6286910/2025/04/17/rams-draft-headquarters-los-angeles-fire-department-air-operations/
+
+**A Pantry Clean-Out, Vegetarian Mains for Easter and Passover and More Soups**\
+`Welcome to Recipe Matchmaker, Part 1.`\
+https://nytimes.com/2025/04/17/dining/easter-passover-vegetarian-recipes.html
+
 **Read the Letter From Kristi Noem to Harvard**\
 `In a letter sent to the university on Wednesday, Kristi Noem, the homeland security secretary, demanded “relevant information” regarding each student visa holder at Harvard who has been involved with “known illegal” or “dangerous” activity.`\
 https://nytimes.com/interactive/2025/04/17/us/harvard-letter-signed.html

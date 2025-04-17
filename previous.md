@@ -1,3 +1,11 @@
+**Rams to draft from Los Angeles Fire Department Air Operations**\
+`The Rams will renovate the LAFD Air Operations recreation room in tandem with their ongoing efforts in the community following the fires.`\
+https://nytimes.com/athletic/6286910/2025/04/17/rams-draft-headquarters-los-angeles-fire-department-air-operations/
+
+**A Pantry Clean-Out, Vegetarian Mains for Easter and Passover and More Soups**\
+`Welcome to Recipe Matchmaker, Part 1.`\
+https://nytimes.com/2025/04/17/dining/easter-passover-vegetarian-recipes.html
+
 **Read the Letter From Kristi Noem to Harvard**\
 `In a letter sent to the university on Wednesday, Kristi Noem, the homeland security secretary, demanded “relevant information” regarding each student visa holder at Harvard who has been involved with “known illegal” or “dangerous” activity.`\
 https://nytimes.com/interactive/2025/04/17/us/harvard-letter-signed.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6287291/2025/04/17/referees-warriors-grizzlies-play
 **A pick-by-pick guide to the first round of a dynasty league SuperFlex rookie draft**\
 `Jeff Haverlack walks you through his strategy and the rookie to target with each selection in the first round of a SuperFlex dynasty draft.`\
 https://nytimes.com/athletic/6287178/2025/04/17/fantasy-football-dynasty-superflex-rookie-draft-strategy-guide/
-
-**Meloni Meets With Trump, With Tariffs on the Agenda**\
-`Giorgia Meloni has come to the White House representing Italy, but in many ways on behalf of the rest of Europe.`\
-https://nytimes.com/2025/04/17/us/politics/meloni-trump-tariffs.html
-
-**At Trial, Sheryl Sandberg Says Meta Nurtured Instagram and Did Not Stifle It**\
-`In her second day on the stand of a landmark antitrust trial over Meta’s power, Ms. Sandberg, the former chief operating officer, also said the company faced plenty of competition from TikTok.`\
-https://nytimes.com/2025/04/17/technology/meta-antitrust-trial-sheryl-sandberg.html
 
