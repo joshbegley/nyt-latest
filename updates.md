@@ -1,3 +1,7 @@
+**Oilers' McDavid reaches 100 points, hitting milestone for eighth time**\
+`McDavid has hit the century mark in all but two of his 10 NHL seasons.`\
+https://nytimes.com/athletic/6284943/2025/04/16/connor-mcdavid-100-points-stats-2025/
+
 **I.R.S. Is Said to Be Considering Whether to Revoke Harvard’s Tax-Exempt Status**\
 `The move would be a major escalation of the Trump administration’s attempts to choke off federal money and support for the leading research university.`\
 https://nytimes.com/2025/04/16/us/politics/trump-irs-harvard.html
