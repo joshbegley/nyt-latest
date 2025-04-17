@@ -1,3 +1,7 @@
+**What to Know About the Court Cases Challenging Trump’s Immigration Agenda**\
+`The Trump administration is on course for a potential constitutional clash with the judiciary branch, which has issued several rulings countering executive orders.`\
+https://nytimes.com/2025/04/17/us/politics/trump-immigration-cases-explained.html
+
 **Oklahoma, Missouri heading to NCAA women's gymnastics final**\
 `A clutch 9.9875 from beam star Helen Hu secured Missouri the upset over Florida.`\
 https://nytimes.com/athletic/6288757/2025/04/17/ncaa-gymnastics-semifinal-results-teams/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/17/arts/music/francis-davis-dead.html
 **Sloppy Reds give away game, and series, to Mariners: 'We made a lot of mistakes'**\
 `Closer Emilio Pagán, after a blown save, wanted to answer the postgame questions from reporters.`\
 https://nytimes.com/athletic/6288538/2025/04/17/sloppy-reds-lose-series-mariners-emilio-pagan/
-
-**Elaine Wynn, Billionaire Arts Patron Who Helped Modernize Las Vegas, Dies at 82**\
-`She and Steve Wynn were known as the king and queen of Las Vegas. After their divorce, Ms. Wynn became a force in her own right.`\
-https://nytimes.com/2025/04/17/business/elaine-wynn-dead.html
 

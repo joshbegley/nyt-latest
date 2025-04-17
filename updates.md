@@ -1,3 +1,19 @@
+**Oklahoma, Missouri heading to NCAA women's gymnastics final**\
+`A clutch 9.9875 from beam star Helen Hu secured Missouri the upset over Florida.`\
+https://nytimes.com/athletic/6288757/2025/04/17/ncaa-gymnastics-semifinal-results-teams/
+
+**Costa Rica Violated Rights of 81 Migrant Children Deported by U.S., Lawsuit Says**\
+`A legal challenge filed Thursday aims to encourage Central American countries to push back against the Trump administration’s immigration policies.`\
+https://nytimes.com/2025/04/17/world/americas/costa-rica-migrants-lawsuit.html
+
+**Judge Delays a Resentencing Hearing for the Menendez Brothers**\
+`The proceedings were pushed back for three weeks over the issue of whether a key report on Erik and Lyle Menendez was admissible.`\
+https://nytimes.com/2025/04/17/us/menendez-brothers-resentencing-hearing.html
+
+**What we learned about the Chargers from Joe Hortiz's pre-NFL Draft news conference**\
+`Despite a measured approach during free agency, the Chargers GM feels the roster has already improved ahead of the NFL Draft.`\
+https://nytimes.com/athletic/6288734/2025/04/17/joe-hortiz-chargers-nfl-draft-2025/
+
 **Postecoglou: Maddison 'fine' after being forced off with injury vs Frankfurt**\
 `Maddison was substituted after a heavy clash with Frankfurt goalkeeper Kaua Santos on Thursday`\
 https://nytimes.com/athletic/6288786/2025/04/17/james-maddison-injury-update-tottenham/

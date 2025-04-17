@@ -1,3 +1,19 @@
+**Oklahoma, Missouri heading to NCAA women's gymnastics final**\
+`A clutch 9.9875 from beam star Helen Hu secured Missouri the upset over Florida.`\
+https://nytimes.com/athletic/6288757/2025/04/17/ncaa-gymnastics-semifinal-results-teams/
+
+**Costa Rica Violated Rights of 81 Migrant Children Deported by U.S., Lawsuit Says**\
+`A legal challenge filed Thursday aims to encourage Central American countries to push back against the Trump administration’s immigration policies.`\
+https://nytimes.com/2025/04/17/world/americas/costa-rica-migrants-lawsuit.html
+
+**Judge Delays a Resentencing Hearing for the Menendez Brothers**\
+`The proceedings were pushed back for three weeks over the issue of whether a key report on Erik and Lyle Menendez was admissible.`\
+https://nytimes.com/2025/04/17/us/menendez-brothers-resentencing-hearing.html
+
+**What we learned about the Chargers from Joe Hortiz's pre-NFL Draft news conference**\
+`Despite a measured approach during free agency, the Chargers GM feels the roster has already improved ahead of the NFL Draft.`\
+https://nytimes.com/athletic/6288734/2025/04/17/joe-hortiz-chargers-nfl-draft-2025/
+
 **Postecoglou: Maddison 'fine' after being forced off with injury vs Frankfurt**\
 `Maddison was substituted after a heavy clash with Frankfurt goalkeeper Kaua Santos on Thursday`\
 https://nytimes.com/athletic/6288786/2025/04/17/james-maddison-injury-update-tottenham/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6288538/2025/04/17/sloppy-reds-lose-series-mariners
 **Elaine Wynn, Billionaire Arts Patron Who Helped Modernize Las Vegas, Dies at 82**\
 `She and Steve Wynn were known as the king and queen of Las Vegas. After their divorce, Ms. Wynn became a force in her own right.`\
 https://nytimes.com/2025/04/17/business/elaine-wynn-dead.html
-
-**As Cubs' Ryan Pressly settles with new team, Chicago's closer panic level is dropping**\
-`“You get a little bit more comfortable on the mound,” Pressly said, “and things start to click.”`\
-https://nytimes.com/athletic/6288567/2025/04/17/chicago-cubs-ryan-pressly-closer-role/
-
-**Former Times Editor Testifies in Defamation Suit Filed by Sarah Palin**\
-`James Bennet, the former New York Times Opinion editor, took responsibility for an error in an editorial at the center of the case.`\
-https://nytimes.com/2025/04/17/business/media/sarah-palin-new-york-times.html
-
-**WATCH: When is good not good enough? The pressure these Knicks face**\
-`In this video essay, I explain why the Knicks, despite posting their best season in a decade, are under immense pressure in these playoffs.`\
-https://nytimes.com/athletic/6287841/2025/04/17/knicks-nba-playoffs-preview-video/
-
-**The Broncos are willing to fill their RB need with a 1st-round pick — but will they?**\
-`The Broncos won't shy from using top pick (currently No. 20) on a RB if they can create "a real clear vision" for instant and future impact.`\
-https://nytimes.com/athletic/6287824/2025/04/17/broncos-nfl-draft-sean-payton-george-paton/
 
