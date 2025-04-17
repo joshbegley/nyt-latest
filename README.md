@@ -1,3 +1,7 @@
+**Police Respond to Active Shooter Incident at Florida State University**\
+`Police responded to reports of a shooting at the student union building shortly before noon at the Florida State University campus in Tallahassee on Thursday.`\
+https://nytimes.com/video/us/100000010116364/active-shooter-florida-state-university.html
+
 **Notre Dame's Steve Angeli to enter transfer portal: Reports**\
 `If the spring game was a referendum on who slotted where at QB, it’s not clear if Angeli lost the starting job, but he didn't win it.`\
 https://nytimes.com/athletic/6287706/2025/04/17/notre-dame-steve-angeli-transfer-portal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6287523/2025/04/17/bruins-charlie-mcavoy-infection/
 **Release of E.P.A. Climate Grants Is Paused by New Court Ruling**\
 `After a federal judge on Wednesday ordered the release of up to $650 million in frozen grants, an appeals court temporarily halted the payouts.`\
 https://nytimes.com/2025/04/17/climate/epa-climate-grants-green-bank.html
-
-**8 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2025/04/17/books/review/new-books-recommendations.html
 
