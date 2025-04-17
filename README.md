@@ -1,3 +1,7 @@
+**Trump Names Interim U.S. Attorney for Manhattan, Bypassing Schumer**\
+`Senator Chuck Schumer had said he would block the permanent appointment of Jay Clayton, the president’s choice to head one of the nation’s most prestigious prosecutor’s offices.`\
+https://nytimes.com/2025/04/16/nyregion/trump-clayton-schumer-sdny-interim-appointment.html
+
 **Raiders left tackle Kolton Miller wants contract extension: Source**\
 `Miller, who has played for the team for seven seasons, is entering the final year of his contract. `\
 https://nytimes.com/athletic/6285677/2025/04/16/raiders-kolton-miller-extension-offseason-program/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/16/style/fyre-festival-2-location.html
 **Trump Administration Halts Building of Giant Wind Farm Off N.Y. Coast**\
 `Gov. Kathy Hochul quickly responded that she would “fight this decision every step of the way.”`\
 https://nytimes.com/2025/04/16/nyregion/empire-wind-farm-trump-ny.html
-
-**Space Travel and Tuberculosis Research Are Hit by Trump’s Harvard Cuts**\
-`Researchers who have lost funds warned of long-term repercussions, but several said their school should still refuse to comply with the federal government.`\
-https://nytimes.com/2025/04/16/us/trump-harvard-cuts-sarah-fortune-tuberculosis.html
 
