@@ -1,3 +1,7 @@
+**Neymar leaves pitch in tears after sustaining left thigh injury**\
+`Neymar was making his 100th home appearance for Santos, who he rejoined on a short-term deal in January.`\
+https://nytimes.com/athletic/6286508/2025/04/17/neymar-jr-injury-santos/
+
 **Commanders mock draft scenarios: Navigating needs, trades and desire for more picks**\
 `We give you six ways GM Adam Peters and Washington could approach this year's draft. `\
 https://nytimes.com/athletic/6280014/2025/04/17/commanders-2025-mock-draft-scenarios/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/17/learning/how-is-economic-uncertainty-affecting-yo
 **The Emergency Is Here**\
 `Trump is disappearing people to a Salvadoran prison for terrorists. And he says he wants to send “homegrown” Americans there next.`\
 https://nytimes.com/2025/04/17/opinion/ezra-klein-podcast-asha-rangappa.html
-
-**Bret Stephens on What Trump Gets Right, Wrong and Really, Really Wrong**\
-`The columnist on the value of acknowledging the president’s wins.`\
-https://nytimes.com/2025/04/17/opinion/trump-critic-conservatism.html
 

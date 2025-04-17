@@ -1,3 +1,7 @@
+**Commanders mock draft scenarios: Navigating needs, trades and desire for more picks**\
+`We give you six ways GM Adam Peters and Washington could approach this year's draft. `\
+https://nytimes.com/athletic/6280014/2025/04/17/commanders-2025-mock-draft-scenarios/
+
 **The Supreme Court Can’t Save America, but Here’s What It Can Do**\
 `The justices and the American people must hold the line together.`\
 https://nytimes.com/2025/04/17/opinion/supreme-court-trump-abrego-garcia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/17/opinion/ezra-klein-podcast-asha-rangappa.html
 **Bret Stephens on What Trump Gets Right, Wrong and Really, Really Wrong**\
 `The columnist on the value of acknowledging the president’s wins.`\
 https://nytimes.com/2025/04/17/opinion/trump-critic-conservatism.html
-
-**Patriots mailbag: Is Will Campbell a done deal? Who will have final say in the draft?**\
-`How legit are the arm-length concerns with Campbell, and can he really be an NFL left tackle? Could the Pats still trade back in Round 1?`\
-https://nytimes.com/athletic/6284442/2025/04/17/patriots-nfl-draft-mailbag-will-campbell/
 

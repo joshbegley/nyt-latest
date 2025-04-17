@@ -1,3 +1,7 @@
+**Commanders mock draft scenarios: Navigating needs, trades and desire for more picks**\
+`We give you six ways GM Adam Peters and Washington could approach this year's draft. `\
+https://nytimes.com/athletic/6280014/2025/04/17/commanders-2025-mock-draft-scenarios/
+
 **The Supreme Court Can’t Save America, but Here’s What It Can Do**\
 `The justices and the American people must hold the line together.`\
 https://nytimes.com/2025/04/17/opinion/supreme-court-trump-abrego-garcia.html
