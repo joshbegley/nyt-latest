@@ -1,3 +1,19 @@
+**Columbia Activists Are Being Detained. Protesters Demand Answers.**\
+`Demonstrators rallied on Columbia’s campus and marched in Manhattan, three days after Mohsen Mahdawi was detained by immigration officials after arriving for a U.S. citizenship appointment.`\
+https://nytimes.com/2025/04/17/nyregion/columbia-protest-khalil-mahdawi.html
+
+**Ukraine and U.S. Sign Agreement in Lead-Up to a Full Minerals Deal**\
+`The signed memorandum of understanding was thin on details, and the White House did not comment. But President Trump has said he expects to sign a full minerals deal with Kyiv soon.`\
+https://nytimes.com/2025/04/17/world/europe/ukraine-us-minerals-agreement.html
+
+**Mass Layoffs Hit Consumer Financial Protection Bureau**\
+`The agency, which has returned $21 billion to consumers since its inception, could lose 1,500 of its 1,700 employees, a union warned.`\
+https://nytimes.com/2025/04/17/us/politics/consumer-financial-protection-bureau-layoffs.html
+
+**They Endured the Parkland Shooting. Then Came Florida State.**\
+`For some, the sight of law enforcement officers in tactical gear on Thursday, sweeping campus for a gunman, was familiar.`\
+https://nytimes.com/2025/04/17/us/fsu-parkland-school-shooting.html
+
 **‘This Should Be Shocking:’ Read a Federal Appeals Panel’s Sharp Rebuke Of The Trump Administration**\
 `A federal appeals court in Virginia issued a striking opinion on Thursday, reaffirming that the Trump administration had to take a more active approach in seeking the release of a Maryland man, Kilmar Armando Abrego Garcia.`\
 https://nytimes.com/interactive/2025/04/17/us/fourth-circuit-kilmar-abrego-garcia-annotation.html
