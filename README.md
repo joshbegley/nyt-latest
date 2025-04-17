@@ -1,3 +1,11 @@
+**Ask Ornstein Q&A: Our football insider answers your questions**\
+`Here is your opportunity to ask David Ornstein anything you want about the world of football`\
+https://nytimes.com/athletic/6286506/2025/04/17/ask-ornstein-qa-david-ornstein/
+
+**No Corrections: April 17, 2025**\
+`No corrections appeared in print on Thursday, April 17, 2025.`\
+https://nytimes.com/2025/04/17/pageoneplus/no-corrections-april-17-2025.html
+
 **The Pulse: Klay Thompson's poetic Play-In arc.**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6286351/2025/04/17/klay-thompson-play-in-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/17/business/european-central-bank-rates-tariffs-trum
 **Magnolias Are in Bloom. It’s Time to Eat Them.**\
 `Plus: a boutique hotel near Joshua Tree, the rise of Japanese wine and more recommendations from T Magazine.`\
 https://nytimes.com/2025/04/17/t-magazine/magnolia-blossoms-food-season.html
-
-**4 Men Charged With Trying to Smuggle Thousands of Ants From Kenya**\
-`The men, including two Belgian teenagers, pleaded guilty to smuggling thousands of live queen ants, which the Kenyan authorities said were destined for markets in Europe and Asia.`\
-https://nytimes.com/2025/04/17/world/africa/kenya-ants-smuggling.html
-
-**Champions League projections 2024-25: Who will lift the trophy in Munich on May 31?**\
-`Here's how the rest of the 2024-25 Champions League is projected to play out...`\
-https://nytimes.com/athletic/5793492/2025/04/17/champions-league-projections/
 
