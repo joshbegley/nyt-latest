@@ -1,3 +1,19 @@
+**Meloni Meets With Trump, With Tariffs on the Agenda**\
+`Giorgia Meloni has come to the White House representing Italy, but in many ways on behalf of the rest of Europe.`\
+https://nytimes.com/2025/04/17/us/politics/meloni-trump-tariffs.html
+
+**At Trial, Sheryl Sandberg Says Meta Nurtured Instagram and Did Not Stifle It**\
+`In her second day on the stand of a landmark antitrust trial over Meta’s power, Ms. Sandberg, the former chief operating officer, also said the company faced plenty of competition from TikTok.`\
+https://nytimes.com/2025/04/17/technology/meta-antitrust-trial-sheryl-sandberg.html
+
+**Europe and America, at Odds Over Ukraine, Try Talking to Each Other**\
+`President Emmanuel Macron of France hosted a lunch with Secretary of State Marco Rubio and Steve Witkoff, President Trump’s envoy, as European delegations converged on Paris.`\
+https://nytimes.com/2025/04/17/world/europe/europe-france-ukraine-talks.html
+
+**Read the Ruling**\
+`Google violated the Sherman Antitrust Act “by willfully acquiring and maintaining monopoly power” in the online technology ad industry, the court said.`\
+https://nytimes.com/interactive/2025/04/17/technology/google-ads-antrust-ruling.html
+
 **Robert E. McGinnis, Whose Lusty Illustrations Defined an Era, Dies at 99**\
 `In the 1960s and ’70s, his leggy femmes fatales beckoned from paperback covers and posters for movies like “Breakfast at Tiffany’s” and “Thunderball.”`\
 https://nytimes.com/2025/04/17/arts/robert-e-mcginnis-dead.html
