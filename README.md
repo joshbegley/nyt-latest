@@ -1,3 +1,12 @@
+**Champions League outright odds: Barca and PSG favourites, Inter outsiders?**\
+`Sam Tighe explores the changing outright betting markets in the aftermath of the Champions League quarter-finals. 
+`\
+https://nytimes.com/athletic/6287087/2025/04/17/champions-league-outright-odds-betting-predictions/
+
+**The Windup: How do MLB GMs assess their rivals?**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6286383/2025/04/17/mlb-front-office-rankings-the-windup/
+
 **NASCAR Mailbag: Chicago Street Race's future, Trackhouse's decision and more**\
 `With NASCAR on hiatus for the week, we take time out to answer your latest questions on the Chicago Street Race, Trackhouse Racing and more.`\
 https://nytimes.com/athletic/6286681/2025/04/17/nascar-chicago-street-race-trackhouse-suarez-mailbag/
@@ -29,12 +38,4 @@ https://nytimes.com/2025/04/17/business/economy/imf-trump-tariffs-global-economy
 **Charles Lee stayed steady during a tumultuous Hornets season. Next season, can he elevate them?**\
 `As injuries ruined Lee's debut season, he remained steady throughout the turmoil. Can he elevate the Hornets — and Ball?`\
 https://nytimes.com/athletic/6282258/2025/04/17/hornets-coach-charles-lee-lamelo-ball-nba/
-
-**Alexander Straus to become Angel City head coach at end of May**\
-`Straus will leave his role as Bayern Munich head coach one year early to facilitate the move to NWSL.`\
-https://nytimes.com/athletic/6284622/2025/04/17/alexander-straus-angel-city-bayern/
-
-**Ask Ornstein Q&A: Our football insider answers your questions**\
-`Here is your opportunity to ask David Ornstein anything you want about the world of football`\
-https://nytimes.com/athletic/6286506/2025/04/17/ask-ornstein-qa-david-ornstein/
 
