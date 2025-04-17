@@ -1,4 +1,24 @@
-**NHL playoff schedule set: Here are all the dates for all 8 first-round series**\
+**The Choice That a Politician Needs to Make**\
+`Find common ground with President Trump, or resist? Also: Medical decisions; climate research cuts; deep sea mining risks; a gift to Harvard.`\
+https://nytimes.com/2025/04/17/opinion/trump-democrats-republicans.html
+
+**‘It cost me my season’: Charlie McAvoy on decision to play against Canada and scary infection details**\
+`Nobody knows why the infection happened. McAvoy: “It could have been my Under Armour that was dirty, or my gear or this or that."`\
+https://nytimes.com/athletic/6287523/2025/04/17/bruins-charlie-mcavoy-infection/
+
+**Release of E.P.A. Climate Grants Is Paused by New Court Ruling**\
+`After a federal judge on Wednesday ordered the release of up to $650 million in frozen grants, an appeals court temporarily halted the payouts.`\
+https://nytimes.com/2025/04/17/climate/epa-climate-grants-green-bank.html
+
+**8 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2025/04/17/books/review/new-books-recommendations.html
+
+**Chelsea vs Man Utd moved to Friday, avoids clash with Women's FA Cup final**\
+`The game had been scheduled for Sunday, May 18 at 3pm (BST) but has been brought forward after being selected for television broadcast.`\
+https://nytimes.com/athletic/6287436/2025/04/17/chelsea-manchester-united-fixture-rearrangement/
+
+**NHL playoff schedule set: Here are the dates and TV networks for all 8 first-round series**\
 `The playoffs will begin this weekend with some high-profile matchups.`\
 https://nytimes.com/athletic/6285949/2025/04/17/nhl-playoff-schedule-2025/
 
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6287547/2025/04/17/neal-pionk-winnipeg-jets-extensi
 **Discord App Exposes Children to Abuse and Graphic Content, Lawsuit Says**\
 `The messaging platform misled parents about its safety settings and turned a blind eye to explicit content, New Jersey prosecutors said.`\
 https://nytimes.com/2025/04/17/nyregion/discord-lawsuit-new-jersey.html
-
-**Rams to draft from Los Angeles Fire Department Air Operations**\
-`The Rams will renovate the LAFD Air Operations recreation room in tandem with their ongoing efforts in the community following the fires.`\
-https://nytimes.com/athletic/6286910/2025/04/17/rams-draft-headquarters-los-angeles-fire-department-air-operations/
-
-**A Pantry Clean-Out, Vegetarian Mains for Easter and Passover and More Soups**\
-`Welcome to Recipe Matchmaker, Part 1.`\
-https://nytimes.com/2025/04/17/dining/easter-passover-vegetarian-recipes.html
-
-**Read the Letter From Kristi Noem to Harvard**\
-`In a letter sent to the university on Wednesday, Kristi Noem, the homeland security secretary, demanded “relevant information” regarding each student visa holder at Harvard who has been involved with “known illegal” or “dangerous” activity.`\
-https://nytimes.com/interactive/2025/04/17/us/harvard-letter-signed.html
-
-**Fantasy baseball bullpen report featuring Tanner Scott, Jeff Hoffman and more**\
-`Tracking the constant changes in the relief ranks, Greg Jewett's bullpen report helps you stay ahead of your fantasy baseball competition.`\
-https://nytimes.com/athletic/6287096/2025/04/17/fantasy-baseball-bullpen-report-featuring-tanner-scott-jeff-hoffman-and-more/
-
-**Harris Will Help Democrats Raise Cash as She Steps Back Into Politics**\
-`Still weighing her next moves, former Vice President Kamala Harris is set to headline a fund-raiser for the Democratic National Committee next month in New York.`\
-https://nytimes.com/2025/04/17/us/politics/kamala-harris-dnc-fundraiser.html
 
