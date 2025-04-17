@@ -1,3 +1,19 @@
+**The Hidden Torments of the Firefighter With O.C.D.**\
+`For years, Timmy Reen hid his mental illness from everyone at his New York City firehouse — until his secret was forced out in the open.`\
+https://nytimes.com/2025/04/17/nyregion/firefighter-mental-health-ocd.html
+
+**Brick Wall**\
+`What do you think this image is communicating?`\
+https://nytimes.com/2025/04/17/learning/brick-wall.html
+
+**The Child Care Crisis Is Motivating These New York City Voters**\
+`Parents are fed up, and the candidates for mayor appear to be paying attention. Many have built campaigns on a promise to make New York more affordable, with child care as a centerpiece.`\
+https://nytimes.com/2025/04/17/nyregion/new-york-child-care-voters.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/04/17/crosswords/spelling-bee-forum.html
+
 **Watching Oliver Glasner's emotions during 90 stressful minutes at St James' Park**\
 `The Crystal Palace manager is an emotional figure — as a tough week at the office has demonstrated `\
 https://nytimes.com/athletic/6278253/2025/04/17/crystal-palace-glasner-emotions-watch/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6284944/2025/04/17/real-madrid-arsenal-rudiger-rice
 **Real Madrid have superstar talent - but that doesn't make them a good team**\
 `There was ‘remontada’ talk before the second leg against Arsenal — but none of spirit, organisation or quality required to pull it off`\
 https://nytimes.com/athletic/6274415/2025/04/17/real-madrid-stars-teamwork-champions-league/
-
-**Arsenal's systematic dismantling of Real Madrid showed a team that is coming of age**\
-`Knocking out the Champions League holders is a major milestone in the club's upward trajectory`\
-https://nytimes.com/athletic/6285812/2025/04/17/arsenal-real-madrid-champions-league-performance/
-
-**Playoff Herro was leader Heat needed to dismantle Bulls, advance in Play-in Tournament**\
-`Tyler Herro spoke to The Athletic about his dominant performance in the Heat's Play-In Tournament win.`\
-https://nytimes.com/athletic/6286219/2025/04/17/tyler-herro-heat-leader-play-in-tournament/
-
-**Where does Champions League elimination leave Bayern Munich and Vincent Kompany?**\
-`Bayern should regain the Bundesliga but have stumbled out of the Champions League. So has Kompany's first season been a success or failure?`\
-https://nytimes.com/athletic/6285509/2025/04/17/bayern-champions-league-exit-kompany/
-
-**The New York Times in Print for Thursday, April 17, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/04/17/todays-new-york-times
 
