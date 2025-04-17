@@ -1,3 +1,11 @@
+**European Central Bank Cuts Rates Amid Tariff Uncertainty**\
+`Optimism has rapidly given ways to fears that the region is at risk of recession if business investment and consumer spending is suppressed by economic worries.`\
+https://nytimes.com/2025/04/17/business/european-central-bank-rates-tariffs-trump.html
+
+**Magnolias Are in Bloom. It’s Time to Eat Them.**\
+`Plus: a boutique hotel near Joshua Tree, the rise of Japanese wine and more recommendations from T Magazine.`\
+https://nytimes.com/2025/04/17/t-magazine/magnolia-blossoms-food-season.html
+
 **4 Men Charged With Trying to Smuggle Thousands of Ants From Kenya**\
 `The men, including two Belgian teenagers, pleaded guilty to smuggling thousands of live queen ants, which the Kenyan authorities said were destined for markets in Europe and Asia.`\
 https://nytimes.com/2025/04/17/world/africa/kenya-ants-smuggling.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6281448/2025/04/17/nhl-playoffs-prediction-contest-
 **49ers’ pre-draft visit list: Team appears poised to take a tackle in Round 2**\
 `Two interesting prospects who visited the 49ers: Bowling Green tight end Harold Fannin and Central Arkansas edge rusher David Walker.`\
 https://nytimes.com/athletic/6285484/2025/04/17/49ers-nfl-draft-visits-2025/
-
-**Seahawks draft targets: Which wide receivers would fit Seattle best?**\
-`Many see Arizona's Tetairoa McMillan as WR1, but there might be other options who fit Seattle's scheme and needs better.`\
-https://nytimes.com/athletic/6285073/2025/04/17/seahawks-nfl-draft-wide-receivers/
-
-**Michigan's spring game isn't entirely about Bryce Underwood: 10 other Wolverines to watch**\
-`The first player drafted for the spring game might surprise you. There are plenty of freshmen and transfers to watch, along with returners.`\
-https://nytimes.com/athletic/6285265/2025/04/17/michigan-football-spring-game-players-to-watch/
 

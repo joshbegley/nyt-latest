@@ -1,3 +1,11 @@
+**European Central Bank Cuts Rates Amid Tariff Uncertainty**\
+`Optimism has rapidly given ways to fears that the region is at risk of recession if business investment and consumer spending is suppressed by economic worries.`\
+https://nytimes.com/2025/04/17/business/european-central-bank-rates-tariffs-trump.html
+
+**Magnolias Are in Bloom. It’s Time to Eat Them.**\
+`Plus: a boutique hotel near Joshua Tree, the rise of Japanese wine and more recommendations from T Magazine.`\
+https://nytimes.com/2025/04/17/t-magazine/magnolia-blossoms-food-season.html
+
 **4 Men Charged With Trying to Smuggle Thousands of Ants From Kenya**\
 `The men, including two Belgian teenagers, pleaded guilty to smuggling thousands of live queen ants, which the Kenyan authorities said were destined for markets in Europe and Asia.`\
 https://nytimes.com/2025/04/17/world/africa/kenya-ants-smuggling.html
