@@ -1,3 +1,11 @@
+**Postecoglou: Maddison 'fine' after being forced off with injury vs Frankfurt**\
+`Maddison was substituted after a heavy clash with Frankfurt goalkeeper Kaua Santos on Thursday`\
+https://nytimes.com/athletic/6288786/2025/04/17/james-maddison-injury-update-tottenham/
+
+**Amorim: Old Trafford 'the best sound I've ever heard' after late Maguire winner**\
+`Maguire headed home in the 121st minute as United came from 4-2 down to win 5-4.`\
+https://nytimes.com/athletic/6288743/2025/04/17/ruben-amorim-harry-magure-manchester-united-lyon/
+
 **Sheriff vows to do ‘everything we can to prosecute’ after identifying the gunman as a deputy’s son.**\
 `The 20-year-old gunman used his mother’s service weapon, which she had bought for personal use, said the sheriff of Leon County, Fla.`\
 https://nytimes.com/live/2025/04/17/us/fsu-shooting-tallahassee/fsu-shooting-sheriff-gunman

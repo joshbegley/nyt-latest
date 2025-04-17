@@ -1,3 +1,11 @@
+**Postecoglou: Maddison 'fine' after being forced off with injury vs Frankfurt**\
+`Maddison was substituted after a heavy clash with Frankfurt goalkeeper Kaua Santos on Thursday`\
+https://nytimes.com/athletic/6288786/2025/04/17/james-maddison-injury-update-tottenham/
+
+**Amorim: Old Trafford 'the best sound I've ever heard' after late Maguire winner**\
+`Maguire headed home in the 121st minute as United came from 4-2 down to win 5-4.`\
+https://nytimes.com/athletic/6288743/2025/04/17/ruben-amorim-harry-magure-manchester-united-lyon/
+
 **Sheriff vows to do ‘everything we can to prosecute’ after identifying the gunman as a deputy’s son.**\
 `The 20-year-old gunman used his mother’s service weapon, which she had bought for personal use, said the sheriff of Leon County, Fla.`\
 https://nytimes.com/live/2025/04/17/us/fsu-shooting-tallahassee/fsu-shooting-sheriff-gunman
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6287841/2025/04/17/knicks-nba-playoffs-preview-vide
 **The Broncos are willing to fill their RB need with a 1st-round pick — but will they?**\
 `The Broncos won't shy from using top pick (currently No. 20) on a RB if they can create "a real clear vision" for instant and future impact.`\
 https://nytimes.com/athletic/6287824/2025/04/17/broncos-nfl-draft-sean-payton-george-paton/
-
-**U.S. Indicts Luigi Mangione in Killing of Health Insurance Executive**\
-`Attorney General Pam Bondi moved forward aggressively and ordered prosecutors to seek the death penalty. Mangione also faces state charges in the Manhattan shooting.`\
-https://nytimes.com/2025/04/17/nyregion/luigi-mangione-indictment-death-penalty.html
-
-**Webcams Catch Fireball Lighting Up Sky Near Mexico City**\
-`The bright object that streaked across the sky is called a bolide.`\
-https://nytimes.com/video/science/space/100000010117037/meteor-over-mexico-city.html
 
