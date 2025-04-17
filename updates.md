@@ -1,3 +1,11 @@
+**'This has been an incredible run': Blue Jackets close a season filled with grief, inspiration and hope**\
+`Columbus' late, dramatic push for the playoffs fell short, but the team will hold a special place in fans' hearts.`\
+https://nytimes.com/athletic/6286151/2025/04/17/blue-jackets-playoffs-gaudreau/
+
+**Trump Lashes Out at Fed Chair for Not Cutting Rates Faster**\
+`The president said that Jerome Powell has been too hesitant to cut interest rates, and “he should certainly lower them now.”`\
+https://nytimes.com/2025/04/17/business/economy/trump-jerome-powell-fed.html
+
 **Israel Strikes Area With Large Tent Camps for Displaced Gazans**\
 `The attack on the Mawasi area killed at least several people, including children, according to Gaza’s emergency rescue service. Israel did not confirm the location of the attack.`\
 https://nytimes.com/2025/04/17/world/middleeast/israel-gaza-strike-mawasi.html
