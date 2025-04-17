@@ -1,3 +1,7 @@
+**Canada's Marsch handed extra ban for 'unacceptable conduct' after U.S. red card**\
+`Concacaf sanctioned Marsch for "unacceptable conduct towards the match officials and "delaying the restart of the match".`\
+https://nytimes.com/athletic/6288177/2025/04/17/jesse-marsch-canada-ban-usmnt/
+
 **School Vouchers Won in Texas. Next Up, the Nation.**\
 `Choice laws have now passed in every major Republican state. Congress and President Trump are now aiming at blue states that have resisted vouchers for decades.`\
 https://nytimes.com/2025/04/17/us/school-choice-trump.html
@@ -6,7 +10,7 @@ https://nytimes.com/2025/04/17/us/school-choice-trump.html
 `The quarterback didn't fit the new timeline or the new culture, and the coach made that clear to him, face-to-face.`\
 https://nytimes.com/athletic/6288047/2025/04/17/aaron-rodgers-aaron-glenn-jets-criticism/
 
-**Rockies fire Hensley Meulens, name Clint Hurdle as new hitting coach**\
+**Rockies fire hitting coach Hensley Meulens, tap Clint Hurdle as replacement**\
 `The Rockies will turn to a former manager to fix an offense that has scored the fewest runs in Major League Baseball.`\
 https://nytimes.com/athletic/6288098/2025/04/17/rockies-fire-hensley-meulens-clint-hurdle-hitting-coach/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/17/us/college-universities-trump-mood.html
 **Court, in Strong Words, Presses White House to Play Active Role in Freeing Maryland Man**\
 `Regardless of whether the man, Kilmar Armando Abrego Garcia, is a member of MS-13, the appeals court wrote, he is entitled to due process.`\
 https://nytimes.com/2025/04/17/us/politics/appeals-court-white-house-deportee.html
-
-**Suns owner vows to change team culture after 'embarrassing' season**\
-`Ishbia vowed to change the culture and identity of a Suns team that failed to make the postseason with the NBA's most expensive roster.`\
-https://nytimes.com/athletic/6288060/2025/04/17/suns-owner-mat-ishbia-change-culture-embarrassing-season/
 
