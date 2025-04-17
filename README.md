@@ -1,3 +1,11 @@
+**As Cubs' Ryan Pressly settles with new team, Chicago's closer panic level is dropping**\
+`“You get a little bit more comfortable on the mound,” Pressly said, “and things start to click.”`\
+https://nytimes.com/athletic/6288567/2025/04/17/chicago-cubs-ryan-pressly-closer-role/
+
+**Former Times Editor Testifies in Defamation Suit Filed by Sarah Palin**\
+`James Bennet, the former New York Times Opinion editor, took responsibility for an error in an editorial at the center of the case.`\
+https://nytimes.com/2025/04/17/business/media/sarah-palin-new-york-times.html
+
 **WATCH: When is good not good enough? The pressure these Knicks face**\
 `In this video essay, I explain why the Knicks, despite posting their best season in a decade, are under immense pressure in these playoffs.`\
 https://nytimes.com/athletic/6287841/2025/04/17/knicks-nba-playoffs-preview-video/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6283976/2025/04/17/manchester-united-lyon-europa-le
 **Blackhawks' coaching search, contract talks and more takeaways from locker clean-out day**\
 `Plus, Connor Bedard dismissed any assumptions that he’s unhappy in Chicago and looking to leave.`\
 https://nytimes.com/athletic/6288198/2025/04/17/blackhawks-coach-contract-locker-room-clean-out/
-
-**A Judge Ruled That Google Acted Illegally to Dominate Ad Tech**\
-`Also, a daily pill may work as well as Ozempic. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2025/04/17/briefing/judge-google-ad-tech-obesity-pill.html
-
-**Nino Tempo, Who Topped the Charts With ‘Deep Purple,’ Dies at 90**\
-`He was a busy session saxophonist, but he is probably best known for the Grammy-winning pop hit that he sang in 1963 as half of a duo act with his sister, April Stevens.`\
-https://nytimes.com/2025/04/17/arts/music/nino-tempo-dead.html
 
