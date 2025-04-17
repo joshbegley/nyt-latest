@@ -1,3 +1,7 @@
+**Word of the Day: tureen**\
+`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/04/17/learning/word-of-the-day-tureen.html
+
 **Kings, GM Monte McNair agree to part ways after Play-In loss to Mavericks**\
 `McNair's departure follows the Kings' 120-106 loss to the Mavericks, which bounced Sacramento from the postseason.`\
 https://nytimes.com/athletic/6286283/2025/04/17/kings-general-manager-monte-mcnair-fired/
