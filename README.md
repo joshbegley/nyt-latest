@@ -1,3 +1,7 @@
+**'This has been an incredible run': Blue Jackets close a season filled with grief, inspiration and hope**\
+`Columbus' late, dramatic push for the playoffs fell short, but the team will hold a special place in fans' hearts.`\
+https://nytimes.com/athletic/6286151/2025/04/17/blue-jackets-playoffs-gaudreau/
+
 **Israel Strikes Area With Large Tent Camps for Displaced Gazans**\
 `The attack on the Mawasi area killed at least several people, including children, according to Gaza’s emergency rescue service. Israel did not confirm the location of the attack.`\
 https://nytimes.com/2025/04/17/world/middleeast/israel-gaza-strike-mawasi.html
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/6281284/2025/04/17/minnesota-twins-target-field-att
 `The university, like many colleges and charities, is exempt from federal income and property taxes, saving it billions of dollars. President Trump has questioned whether it should enjoy that status.`\
 https://nytimes.com/2025/04/17/us/tax-exempt-status-irs-harvard.html
 
-**Trump Says Fed Chair’s ‘Termination Cannot Come Fast Enough’**\
+**Trump Lashes Out at Fed Chair for Not Cutting Rates Faster**\
 `The president said that Jerome Powell has been too hesitant to cut interest rates, and “he should certainly lower them now.”`\
 https://nytimes.com/2025/04/17/business/economy/trump-jerome-powell-fed.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6285443/2025/04/17/celtics-magic-nba-playoffs-2025/
 **Masai Ujiri is back where he started with Raptors, trying to reclaim his reputation**\
 `The Raptors president's plan of attack has changed, but his ambitions have not. `\
 https://nytimes.com/athletic/6284936/2025/04/17/masai-ujiri-raptors-season-end-nba/
-
-**2025 NHL playoff preview: Los Angeles Kings vs. Edmonton Oilers**\
-`The Kings' depth and all-around game are stronger than ever, but can they contain dynamic Oilers duo Connor McDavid and Leon Draisaitl?`\
-https://nytimes.com/athletic/6281771/2025/04/17/nhl-playoffs-2025-kings-oilers/
 
