@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6287087/2025/04/17/champions-league-outright-odds-betting-predictions/
 
+**Champions League outright odds: Barca and PSG favourites, Inter outsiders?**\
+`Sam Tighe explores the changing outright betting markets in the aftermath of the Champions League quarter-finals. 
+`\
+https://nytimes.com/athletic/6287087/2025/04/17/champions-league-outright-odds-betting-predictions/
+
 **The Dutch Love Their Bicycles. Helmets? Not So Much.**\
 `Cyclists comprise the highest number of road fatalities in the Netherlands. The country has introduced a campaign to promote helmets, but many cyclists are not convinced.`\
 https://nytimes.com/2025/04/17/world/europe/bicycles-helmets-dutch.html
