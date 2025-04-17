@@ -1,3 +1,11 @@
+**Rashford's Manchester United future? Wirtz to City? - Ask Ornstein**\
+`David Ornstein has compiled some of his favourite answers from his most recent Q&A session`\
+https://nytimes.com/athletic/6287083/2025/04/17/manchester-united-transfer-latest-arsenal-manchester-city-david-ornstein/
+
+**All the President’s Flatterers**\
+`For Trump’s fawning enablers, Abrego Garcia’s imprisonment is just another feat to applaud.`\
+https://nytimes.com/2025/04/17/opinion/trump-bukele-abrego-garcia.html
+
 **The Dutch Love Their Bicycles. Helmets? Not So Much.**\
 `Cyclists comprise the highest number of road fatalities in the Netherlands. The country has introduced a campaign to promote helmets, but many cyclists are not convinced.`\
 https://nytimes.com/2025/04/17/world/europe/bicycles-helmets-dutch.html
@@ -29,13 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010115594/gaza-israeli-strike-h
 **Google Is a Monopolist in Online Advertising Tech, Judge Says**\
 `The ruling was the second time in a year that a federal court had found that Google had acted illegally to maintain its dominance.`\
 https://nytimes.com/2025/04/17/technology/google-ad-tech-antitrust-ruling.html
-
-**Champions League outright odds: Barca and PSG favourites, Inter outsiders?**\
-`Sam Tighe explores the changing outright betting markets in the aftermath of the Champions League quarter-finals. 
-`\
-https://nytimes.com/athletic/6287087/2025/04/17/champions-league-outright-odds-betting-predictions/
-
-**The Windup: How do MLB GMs assess their rivals?**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6286383/2025/04/17/mlb-front-office-rankings-the-windup/
 
