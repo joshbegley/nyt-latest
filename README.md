@@ -1,3 +1,11 @@
+**The Choice That a Politician Needs to Make**\
+`Find common ground with President Trump, or resist? Also: Medical decisions; climate research cuts; deep sea mining risks; a gift to Harvard.`\
+https://nytimes.com/2025/04/17/opinion/trump-democrats-republicans.html
+
+**‘It cost me my season’: Charlie McAvoy on decision to play against Canada and scary infection details**\
+`Nobody knows why the infection happened. McAvoy: “It could have been my Under Armour that was dirty, or my gear or this or that."`\
+https://nytimes.com/athletic/6287523/2025/04/17/bruins-charlie-mcavoy-infection/
+
 **Release of E.P.A. Climate Grants Is Paused by New Court Ruling**\
 `After a federal judge on Wednesday ordered the release of up to $650 million in frozen grants, an appeals court temporarily halted the payouts.`\
 https://nytimes.com/2025/04/17/climate/epa-climate-grants-green-bank.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6287547/2025/04/17/neal-pionk-winnipeg-jets-extensi
 **Discord App Exposes Children to Abuse and Graphic Content, Lawsuit Says**\
 `The messaging platform misled parents about its safety settings and turned a blind eye to explicit content, New Jersey prosecutors said.`\
 https://nytimes.com/2025/04/17/nyregion/discord-lawsuit-new-jersey.html
-
-**Rams to draft from Los Angeles Fire Department Air Operations**\
-`The Rams will renovate the LAFD Air Operations recreation room in tandem with their ongoing efforts in the community following the fires.`\
-https://nytimes.com/athletic/6286910/2025/04/17/rams-draft-headquarters-los-angeles-fire-department-air-operations/
-
-**A Pantry Clean-Out, Vegetarian Mains for Easter and Passover and More Soups**\
-`Welcome to Recipe Matchmaker, Part 1.`\
-https://nytimes.com/2025/04/17/dining/easter-passover-vegetarian-recipes.html
 
