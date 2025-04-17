@@ -1,3 +1,15 @@
+**Nick Suzuki and the young Canadiens are out to prove more people wrong in the playoffs**\
+`The Canadiens were always an unlikely playoff team, but a group that is young and hungry and defiant makes for a tough playoff opponent.`\
+https://nytimes.com/athletic/6286365/2025/04/17/canadiens-nhl-playoffs-nick-suzuki/
+
+**Nvidia C.E.O. Meets With Chinese Trade Officials in Beijing**\
+`The day before the visit by Jensen Huang, lawmakers in Washington said they were investigating whether the chipmaker’s sales in China violated U.S. rules.`\
+https://nytimes.com/2025/04/17/business/nvidia-china-tariffs-chips-jensen-huang.html
+
+**Daily Pill May Work as Well as Ozempic for Weight Loss and Blood Sugar**\
+`Clinical results of a GLP-1 in pill form showed safety and efficacy data similar to blockbuster injectable drugs.`\
+https://nytimes.com/2025/04/17/health/pill-glp-1-eli-lilly.html
+
 **NBA Player Tiers 2025: Jalen Brunson, Kawhi Leonard and more All-Star standouts in Tier 2**\
 `If you don’t have a player in this tier, it’s probably going to be a challenge to contend consistently.`\
 https://nytimes.com/athletic/6281588/2025/04/17/jalen-brunson-kawhi-leonard-nba-player-tiers-2025/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6270614/2025/04/17/mlb-bat-path-metrics-speed-train
 **Vikings mailbag: Draft options at No. 24, trade possibilities and J.J. McCarthy's readiness**\
 `Vikings spent the last two weeks finalizing their draft board. They only have four picks (for now). Here's a brief primer on what's to come.`\
 https://nytimes.com/athletic/6284677/2025/04/17/vikings-mailbag-nfl-draft-jj-mccarthy/
-
-**Reds starter Nick Martinez 'close' to his old form, but falls to 0-3 on the season**\
-`Anyone who has been around Martinez stresses that he's a pro's pro. His slow start this season is no different.`\
-https://nytimes.com/athletic/6286003/2025/04/17/nick-martinez-reds-lose-mariners/
-
-**Arsenal live Q&A: Art de Roche answers your questions**\
-`Get your questions in now and and I will be with you between 2pm and 3pm BST (9am to 10am ET) to answer as many as I can`\
-https://nytimes.com/athletic/6283448/2025/04/17/arsenal-champions-league-questions/
-
-**Is the FIA finally learning that sanitizing language is a losing battle for any sport?**\
-`There are signs more common sense and understanding have arrived at last over controversial FIA policy of fining F1 drivers for swearing`\
-https://nytimes.com/athletic/6281781/2025/04/17/f1-swearing-fia-carlos-sainz/
 
