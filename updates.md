@@ -1,3 +1,12 @@
+**Champions League outright odds: Barca and PSG favourites, Inter outsiders?**\
+`Sam Tighe explores the changing outright betting markets in the aftermath of the Champions League quarter-finals. 
+`\
+https://nytimes.com/athletic/6287087/2025/04/17/champions-league-outright-odds-betting-predictions/
+
+**The Windup: How do MLB GMs assess their rivals?**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6286383/2025/04/17/mlb-front-office-rankings-the-windup/
+
 **NASCAR Mailbag: Chicago Street Race's future, Trackhouse's decision and more**\
 `With NASCAR on hiatus for the week, we take time out to answer your latest questions on the Chicago Street Race, Trackhouse Racing and more.`\
 https://nytimes.com/athletic/6286681/2025/04/17/nascar-chicago-street-race-trackhouse-suarez-mailbag/
