@@ -1,3 +1,11 @@
+**The Dutch Love Their Bicycles. Helmets? Not So Much.**\
+`Cyclists comprise the highest number of road fatalities in the Netherlands. The country has introduced a campaign to promote helmets, but many cyclists are not convinced.`\
+https://nytimes.com/2025/04/17/world/europe/bicycles-helmets-dutch.html
+
+**Saddle Up and Ride … to Walmart?**\
+`Four men casually rode their horses up and down the aisles in Louisiana.`\
+https://nytimes.com/2025/04/17/us/horses-walmart-louisiana.html
+
 **Playboi Carti and His Offspring Ponder Life After Rage-Rap**\
 `As rap continues to move in chaotic directions, the Atlanta M.C. Ken Carson and the electro-pop singer 2hollis are harnessing the power of music that moves bodies.`\
 https://nytimes.com/2025/04/17/arts/music/playboi-carti-ken-carson-2hollis.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6287087/2025/04/17/champions-league-outright-odds-b
 **The Windup: How do MLB GMs assess their rivals?**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6286383/2025/04/17/mlb-front-office-rankings-the-windup/
-
-**NASCAR Mailbag: Chicago Street Race's future, Trackhouse's decision and more**\
-`With NASCAR on hiatus for the week, we take time out to answer your latest questions on the Chicago Street Race, Trackhouse Racing and more.`\
-https://nytimes.com/athletic/6286681/2025/04/17/nascar-chicago-street-race-trackhouse-suarez-mailbag/
-
-**Watch: Who is a mid-round gem in the 2025 NFL Draft class?**\
-`"The Athletic Football Show" discusses what makes Colorado State wide receiver Tory Horton an intriguing mid-round draft prospect. `\
-https://nytimes.com/athletic/6283230/2025/04/17/athletic-football-show-nfl-draft-mid-round-gems/
 
