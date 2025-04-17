@@ -1,3 +1,7 @@
+**‘The Rehearsal’ Is an Awkward, Dazzling Ride**\
+`For Season 2, Nathan Fielder’s focus is commercial airline safety, hardly a typical topic for comedy. But his approach is never typical.`\
+https://nytimes.com/2025/04/17/arts/television/the-rehearsal-season-2.html
+
 **What Students Are Saying About Reading for Fun**\
 `We asked teenagers: When was the last time you read a whole book? Here is what they told us.`\
 https://nytimes.com/2025/04/17/learning/what-students-are-saying-about-reading-for-fun.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6287700/2025/04/17/florida-state-mass-shooting-spor
 **Former death row prisoners fight attempt to move them to one of the nation’s harshest prisons.**\
 `The men had their death sentences commuted under the Biden administration, but say they are being punished by being transferred from a prison in Indiana to a restrictive federal prison in Colorado.`\
 https://nytimes.com/2025/04/17/us/politics/former-death-row-prisoners-fight-attempt-to-move-them-to-one-of-the-nations-harshest-prisons.html
-
-**What’s Going On in This Picture? | April 21, 2025**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2025/04/17/learning/whats-going-on-in-this-picture-april-21-2025.html
 

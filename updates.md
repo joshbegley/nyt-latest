@@ -1,3 +1,7 @@
+**‘The Rehearsal’ Is an Awkward, Dazzling Ride**\
+`For Season 2, Nathan Fielder’s focus is commercial airline safety, hardly a typical topic for comedy. But his approach is never typical.`\
+https://nytimes.com/2025/04/17/arts/television/the-rehearsal-season-2.html
+
 **What Students Are Saying About Reading for Fun**\
 `We asked teenagers: When was the last time you read a whole book? Here is what they told us.`\
 https://nytimes.com/2025/04/17/learning/what-students-are-saying-about-reading-for-fun.html
