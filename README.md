@@ -1,9 +1,13 @@
+**Mass Layoffs Hit Consumer Financial Protection Bureau**\
+`The agency, which has returned $21 billion to consumers since its inception, could lose 1,500 of its 1,700 employees, a union warned.`\
+https://nytimes.com/2025/04/17/us/politics/consumer-financial-protection-bureau-layoffs.html
+
 **‘This Should Be Shocking:’ Read a Federal Appeals Panel’s Sharp Rebuke Of The Trump Administration**\
 `A federal appeals court in Virginia issued a striking opinion on Thursday, reaffirming that the Trump administration had to take a more active approach in seeking the release of a Maryland man, Kilmar Armando Abrego Garcia.`\
 https://nytimes.com/interactive/2025/04/17/us/fourth-circuit-kilmar-abrego-garcia-annotation.html
 
-**They endured the Parkland, Fla., school shooting. Then came F.S.U.**\
-`By Neil Vigdor and Adeel Hassan`\
+**They Endured the Parkland Shooting. Then Came Florida State.**\
+`For some, the sight of law enforcement officers in tactical gear on Thursday, sweeping campus for a gunman, was familiar.`\
 https://nytimes.com/2025/04/17/us/fsu-parkland-school-shooting.html
 
 **What to Know About the Court Cases Challenging Trump’s Immigration Agenda**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6288786/2025/04/17/james-maddison-injury-update-tot
 **Amorim: Old Trafford 'the best sound I've ever heard' after late Maguire winner**\
 `Maguire headed home in the 121st minute as United came from 4-2 down to win 5-4.`\
 https://nytimes.com/athletic/6288743/2025/04/17/ruben-amorim-harry-magure-manchester-united-lyon/
-
-**Sheriff vows to do ‘everything we can to prosecute’ after identifying the gunman as a deputy’s son.**\
-`The 20-year-old gunman used his mother’s service weapon, which she had bought for personal use, said the sheriff of Leon County, Fla.`\
-https://nytimes.com/live/2025/04/17/us/fsu-shooting-tallahassee/fsu-shooting-sheriff-gunman
 

@@ -1,3 +1,11 @@
+**‘This Should Be Shocking:’ Read a Federal Appeals Panel’s Sharp Rebuke Of The Trump Administration**\
+`A federal appeals court in Virginia issued a striking opinion on Thursday, reaffirming that the Trump administration had to take a more active approach in seeking the release of a Maryland man, Kilmar Armando Abrego Garcia.`\
+https://nytimes.com/interactive/2025/04/17/us/fourth-circuit-kilmar-abrego-garcia-annotation.html
+
+**They endured the Parkland, Fla., school shooting. Then came F.S.U.**\
+`By Neil Vigdor and Adeel Hassan`\
+https://nytimes.com/2025/04/17/us/fsu-parkland-school-shooting.html
+
 **What to Know About the Court Cases Challenging Trump’s Immigration Agenda**\
 `The Trump administration is on course for a potential constitutional clash with the judiciary branch, which has issued several rulings countering executive orders.`\
 https://nytimes.com/2025/04/17/us/politics/trump-immigration-cases-explained.html
