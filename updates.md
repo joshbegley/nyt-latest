@@ -1,3 +1,11 @@
+**3 Drown After Boat Crash During Fishing Tournament in Alabama**\
+`The men were thrown overboard when two boats collided in Lewis Smith Lake on Wednesday morning, the authorities said.`\
+https://nytimes.com/2025/04/16/us/major-league-fishing-boat-accident-smith-lake.html
+
+**Space Travel and Tuberculosis Research Are Hit by Trump’s Harvard Cuts**\
+`Researchers who have lost funds warned of long-term repercussions, but several said their school should still refuse to comply with the federal government.`\
+https://nytimes.com/2025/04/16/us/trump-harvard-cuts-sarah-fortune-tuberculosis.html
+
 **Here’s what happened on Wednesday.**\
 `By The New York Times`\
 https://nytimes.com/live/2025/04/16/us/trump-news/heres-what-happened-on-wednesday
