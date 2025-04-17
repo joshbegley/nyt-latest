@@ -26,6 +26,10 @@ https://nytimes.com/athletic/6285812/2025/04/17/arsenal-real-madrid-champions-le
 `Tyler Herro spoke to The Athletic about his dominant performance in the Heat's Play-In Tournament win.`\
 https://nytimes.com/athletic/6286219/2025/04/17/tyler-herro-heat-leader-play-in-tournament/
 
+**Where does Champions League elimination leave Bayern Munich and Vincent Kompany?**\
+`Bayern should regain the Bundesliga but have stumbled out of the Champions League. So has Kompany's first season been a success or failure?`\
+https://nytimes.com/athletic/6285509/2025/04/17/bayern-champions-league-exit-kompany/
+
 **The New York Times in Print for Thursday, April 17, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/04/17/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/04/17/todays-new-york-times
 **China Knows How to ‘Eat Bitterness.’ America, Not So Much.**\
 `Trump thinks he holds all the cards in this high-stakes game, but he’s wrong.`\
 https://nytimes.com/2025/04/17/opinion/china-us-trump-xi-tariffs.html
-
-**Greenberg: 'Cancun' Bulls didn't throw in beach towel, but where do they go from here?**\
-`In the end, the only playoff experience the Bulls players got was the kind many already had — losing to the Heat in a Play-In game. `\
-https://nytimes.com/athletic/6286115/2025/04/17/bulls-heat-nba-play-in-tournament-loss/
 
