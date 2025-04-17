@@ -1,3 +1,11 @@
+**Trump Administration Aims to Sell Housing Department Headquarters**\
+`The building has been added to a list of properties that the administration says it is trying to offload in order to eliminate waste.`\
+https://nytimes.com/2025/04/17/us/politics/trump-housing-urban-development-building.html
+
+**A witness heard gunfire and hid under a stool.**\
+`By Valerie Crowder`\
+https://nytimes.com/live/2025/04/17/us/fsu-shooting-tallahassee/a-witness-heard-gunfire-and-hid-under-a-stool
+
 **Bucks' Lillard cleared of blood clots, returns to practice**\
 `Lillard remains out for Game 1 of the Bucks' first-round series against the Pacers, but his status for Game 2 is unclear.`\
 https://nytimes.com/athletic/6287761/2025/04/17/damian-lillard-blood-clots-bucks-playoffs/
