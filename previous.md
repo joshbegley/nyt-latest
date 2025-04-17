@@ -1,3 +1,7 @@
+**Where to Cry, and Other Restaurant Requests**\
+`Lunch for a courthouse wedding? Fresh cookies after 6 p.m.? We have answers.`\
+https://nytimes.com/2025/04/17/dining/where-to-cry-and-other-restaurant-requests.html
+
 **‘The Rehearsal’ Is an Awkward, Dazzling Ride**\
 `For Season 2, Nathan Fielder’s focus is commercial airline safety, hardly a typical topic for comedy. But his approach is never typical.`\
 https://nytimes.com/2025/04/17/arts/television/the-rehearsal-season-2.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/17/style/donald-judd-foundation-michelle-wiliams.htm
 **Florida State shooting prompts cancellations; suspect in custody**\
 `The new York Times reports a spokesperson for Tallahassee Memorial HealthCare said the shooting injured at least six people.`\
 https://nytimes.com/athletic/6287700/2025/04/17/florida-state-mass-shooting-sports-canceled/
-
-**Former death row prisoners fight attempt to move them to one of the nation’s harshest prisons.**\
-`The men had their death sentences commuted under the Biden administration, but say they are being punished by being transferred from a prison in Indiana to a restrictive federal prison in Colorado.`\
-https://nytimes.com/2025/04/17/us/politics/former-death-row-prisoners-fight-attempt-to-move-them-to-one-of-the-nations-harshest-prisons.html
 

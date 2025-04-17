@@ -1,3 +1,7 @@
+**One week before draft, Brad Holmes talks trade history, development and red flags**\
+`Lions general manager Brad Holmes talks all things draft, trades and team building. `\
+https://nytimes.com/athletic/6287705/2025/04/17/detroit-lions-brad-holmes-nfl-draft/
+
 **Where to Cry, and Other Restaurant Requests**\
 `Lunch for a courthouse wedding? Fresh cookies after 6 p.m.? We have answers.`\
 https://nytimes.com/2025/04/17/dining/where-to-cry-and-other-restaurant-requests.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/17/us/politics/trump-irs-audit-lindell.html
 **Michelle Williams, Sofia Coppola and Fran Lebowitz Get a Seat at Donald Judd’s Table**\
 `The Judd Foundation’s benefit dinner was a rare chance to step into the artist’s world.`\
 https://nytimes.com/2025/04/17/style/donald-judd-foundation-michelle-wiliams.html
-
-**Florida State shooting prompts cancellations; suspect in custody**\
-`The new York Times reports a spokesperson for Tallahassee Memorial HealthCare said the shooting injured at least six people.`\
-https://nytimes.com/athletic/6287700/2025/04/17/florida-state-mass-shooting-sports-canceled/
 
