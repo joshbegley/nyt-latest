@@ -1,3 +1,11 @@
+**Greenberg: 'Cancun' Bulls didn't throw in beach towel, but where do they go from here?**\
+`In the end, the only playoff experience the young Bulls players got was the kind they already had — losing to the Heat in a Play-In game. `\
+https://nytimes.com/athletic/6286115/2025/04/17/bulls-heat-nba-play-in-tournament-loss/
+
+**It's still early, but the Giants are rolling past their opponents in impressive fashion**\
+`The Giants are outscoring their opponents 100-64, and what's more impressive, it's come against the toughest schedule in the league.`\
+https://nytimes.com/athletic/6285762/2025/04/17/sf-giants-early-season-pythagorean-record/
+
 **Picking Manchester United's XI for Lyon - and what they must do to win**\
 `Looking at who Ruben Amorim has fit to choose from against Lyon at Old Trafford and what United must do to make a Europa League semi-final`\
 https://nytimes.com/athletic/6284240/2025/04/17/manchester-united-lyon-team-news/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6286169/2025/04/17/jason-robertson-injury-dallas-st
 **Slot, Liverpool and a 'remarkable' - and very exclusive - managerial club**\
 `The Dutchman is set to become only the ninth manager to win the title in their first season working in England's top flight`\
 https://nytimes.com/athletic/6272564/2025/04/17/arne-slot-liverpool-title-first-season/
-
-**Huijsen is a wanted man in the Premier League. But who would he suit best?**\
-`The Bournemouth defender has a £50m release clause, with Liverpool, Chelsea, Arsenal, Newcastle and Tottenham Hotspur all interested`\
-https://nytimes.com/athletic/6280492/2025/04/17/dean-huijsen-transfer-liverpool-arsenal-analysis/
-
-**We watched only Morgan Gibbs-White for an entire match. Here's what we learned**\
-`For 90 minutes, Nick Miller focused only on Forest's star player to better understand his skill, mentality and importance to Nuno`\
-https://nytimes.com/athletic/6280515/2025/04/17/watching-morgan-gibbs-white-forest/
 
