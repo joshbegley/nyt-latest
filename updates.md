@@ -1,3 +1,11 @@
+**What Students Are Saying About Reading for Fun**\
+`We asked teenagers: When was the last time you read a whole book? Here is what they told us.`\
+https://nytimes.com/2025/04/17/learning/what-students-are-saying-about-reading-for-fun.html
+
+**Trump Official Asked I.R.S. About Audit of ‘High-Profile Friend of the President’**\
+`A Treasury Department official wrote to the I.R.S. that Mike Lindell, the pillow entrepreneur, was “concerned he may have been inappropriately targeted.”`\
+https://nytimes.com/2025/04/17/us/politics/trump-irs-audit-lindell.html
+
 **U.S. Is Withdrawing Hundreds of Troops From Syria**\
 `The end of the Assad era has reduced some threats, but the Islamic State has shown renewed strength in the country.`\
 https://nytimes.com/2025/04/17/us/politics/us-withdrawing-troops-syria.html

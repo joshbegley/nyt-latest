@@ -1,3 +1,7 @@
+**What Students Are Saying About Reading for Fun**\
+`We asked teenagers: When was the last time you read a whole book? Here is what they told us.`\
+https://nytimes.com/2025/04/17/learning/what-students-are-saying-about-reading-for-fun.html
+
 **U.S. Is Withdrawing Hundreds of Troops From Syria**\
 `The end of the Assad era has reduced some threats, but the Islamic State has shown renewed strength in the country.`\
 https://nytimes.com/2025/04/17/us/politics/us-withdrawing-troops-syria.html
@@ -15,7 +19,7 @@ https://nytimes.com/2025/04/17/us/politics/harvard-trump-irs-liberals.html
 https://nytimes.com/athletic/6287395/2025/04/17/aaron-rodgers-pat-mcafee-jets-steelers-free-agency/
 
 **Trump Official Asked I.R.S. About Audit of ‘High-Profile Friend of the President’**\
-`The Treasury Department official wrote to the I.R.S. that Mike Lindell, the pillow entrepreneur, was “concerned he may have been inappropriately targeted.”`\
+`A Treasury Department official wrote to the I.R.S. that Mike Lindell, the pillow entrepreneur, was “concerned he may have been inappropriately targeted.”`\
 https://nytimes.com/2025/04/17/us/politics/trump-irs-audit-lindell.html
 
 **Michelle Williams, Sofia Coppola and Fran Lebowitz Get a Seat at Donald Judd’s Table**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/17/us/politics/former-death-row-prisoners-fight-atte
 **What’s Going On in This Picture? | April 21, 2025**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2025/04/17/learning/whats-going-on-in-this-picture-april-21-2025.html
-
-**Measles Outbreaks in Canada and Mexico Bring Grim Prognosis**\
-`Surges in Mennonite communities near the U.S. border may complicate containment efforts, experts say.`\
-https://nytimes.com/2025/04/17/health/measles-texas-mexico-canada.html
 
