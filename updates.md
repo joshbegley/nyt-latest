@@ -1,3 +1,12 @@
+**This Miso-Sesame Vinaigrette Is Dinner Insurance**\
+`Toss it with noodles, toss it with greens, spoon it on fish or steak or chicken or tofu. It’s so good and so versatile.`\
+https://nytimes.com/2025/04/17/dining/this-miso-sesame-vinaigrette-is-dinner-insurance.html
+
+**Champions League outright odds: Barca and PSG favourites, Inter outsiders?**\
+`Sam Tighe explores the changing outright betting markets in the aftermath of the Champions League quarter-finals. 
+`\
+https://nytimes.com/athletic/6287087/2025/04/17/champions-league-outright-odds-betting-predictions/
+
 **Watch: Have the Mavs found their winning formula at the right time?**\
 `"The Athletic NBA Daily" discuss the Mavericks’ Play-In win over Sacramento and how they match up against Memphis.`\
 https://nytimes.com/athletic/6286841/2025/04/17/nba-daily-dallas-mavericks-playoffs/
