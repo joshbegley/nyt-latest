@@ -1,3 +1,15 @@
+**Nick Suzuki and the young Canadiens are out to prove more people wrong in the playoffs**\
+`The Canadiens were always an unlikely playoff team, but a group that is young and hungry and defiant makes for a tough playoff opponent.`\
+https://nytimes.com/athletic/6286365/2025/04/17/canadiens-nhl-playoffs-nick-suzuki/
+
+**Nvidia C.E.O. Meets With Chinese Trade Officials in Beijing**\
+`The day before the visit by Jensen Huang, lawmakers in Washington said they were investigating whether the chipmaker’s sales in China violated U.S. rules.`\
+https://nytimes.com/2025/04/17/business/nvidia-china-tariffs-chips-jensen-huang.html
+
+**Daily Pill May Work as Well as Ozempic for Weight Loss and Blood Sugar**\
+`Clinical results of a GLP-1 in pill form showed safety and efficacy data similar to blockbuster injectable drugs.`\
+https://nytimes.com/2025/04/17/health/pill-glp-1-eli-lilly.html
+
 **NBA Player Tiers 2025: Jalen Brunson, Kawhi Leonard and more All-Star standouts in Tier 2**\
 `If you don’t have a player in this tier, it’s probably going to be a challenge to contend consistently.`\
 https://nytimes.com/athletic/6281588/2025/04/17/jalen-brunson-kawhi-leonard-nba-player-tiers-2025/
