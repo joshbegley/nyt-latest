@@ -1,3 +1,11 @@
+**The Briefing: Chelsea 1 Legia Warsaw 2 (4-2 agg) - Semi-finals secured but boos as Maresca's side lose at home**\
+`Simon Johnson and Dan Sheldon break down the main talking points from Chelsea's 2-1 loss to Legia Warsaw`\
+https://nytimes.com/athletic/6283980/2025/04/17/chelsea-1-legia-warsaw-2-cucurella-conference-league/
+
+**Friday Briefing: Trump’s Tariff Bargaining**\
+`Plus, Argentina’s capybara problem.`\
+https://nytimes.com/2025/04/17/briefing/trump-meloni-tariffs-iran-us-nuclear-syria-troops.html
+
 **The Briefing: Frankfurt 0 Spurs 1 (1-2 agg) - Was this vindication for Postecoglou?**\
 `The major talking points analysed from the Europa League quarter-final second leg in Germany`\
 https://nytimes.com/athletic/6283978/2025/04/17/eintracht-frankfurt-tottenham-europa-league-result-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/17/us/politics/senator-chris-van-hollen-el-salvador-
 **Deion Sanders addresses jersey retirement debate ahead of spring game**\
 `Colorado will host its annual Black & Gold Day spring game in Boulder on Saturday, which will air nationally on ESPN2.`\
 https://nytimes.com/athletic/6288027/2025/04/17/colorado-football-deion-sanders-jersey-retirement-debate/
-
-**Katie Perry Is Suing Katy Perry in Australia. Wait, What?**\
-`The case between the two Perrys could set a precedent leaving some Australian businesses vulnerable to overseas brands.`\
-https://nytimes.com/2025/04/17/world/australia/katie-perry-suing-katy-perry-australia.html
-
-**Here’s What to Know About Rare Earth Minerals and Renewable Energy**\
-`The shift to cleaner power needs resources from China. An export ban just cut off some supplies.`\
-https://nytimes.com/2025/04/17/climate/rare-earth-minerals-renewable-energy.html
 
