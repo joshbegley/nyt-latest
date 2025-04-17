@@ -1,3 +1,7 @@
+**U.K. Court Ruling on Trans Women Is Part of Wider Debate on Sex and Gender**\
+`President Trump and right-wing politicians in Europe have railed against trans rights. Britain’s top court has now added its voice to the discussion.`\
+https://nytimes.com/2025/04/17/world/europe/uk-trans-hungary-germany-us.html
+
 **Mandel: 5 takeaways from UNC's Belichick era through spring ball (Note: Info is sparse)**\
 `Did spring ball prove me wrong about Bill Belichick yet? `\
 https://nytimes.com/athletic/6282388/2025/04/17/bill-belichick-north-carolina-football-recruiting-girlfriend/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6281781/2025/04/17/f1-swearing-fia-carlos-sainz/
 **This Week in Sports Trivia: April 17, 2025**\
 `How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
 https://nytimes.com/athletic/6282617/2025/04/17/this-week-in-sports-trivia-april-17-2025/
-
-**How a sexual assault allegation decades ago rocked a city and upended a life**\
-`After the girl was acquitted, the judge called the incident "degrading and disgusting by any reasonable person’s standards."`\
-https://nytimes.com/athletic/6284797/2025/04/17/swift-current-broncos-sexual-assault-allegations/
 

@@ -1,3 +1,11 @@
+**Mandel: 5 takeaways from UNC's Belichick era through spring ball (Note: Info is sparse)**\
+`Did spring ball prove me wrong about Bill Belichick yet? `\
+https://nytimes.com/athletic/6282388/2025/04/17/bill-belichick-north-carolina-football-recruiting-girlfriend/
+
+**Van Dijk is Liverpool's defensive GOAT but his legend extends beyond Merseyside**\
+`The Dutchman is the complete package and his new two-year contract should not just be welcomed at Anfield`\
+https://nytimes.com/athletic/6115307/2025/04/17/virgil-van-dijk-liverpool-contract-legacy/
+
 **Play-In Tournament woes continue to haunt Bulls: 'We've got to be better'**\
 `“The disappointing part was that we didn’t play to our identity,” Billy Donovan said of the Bulls' Play-In Tournament loss to the Heat.`\
 https://nytimes.com/athletic/6286148/2025/04/17/bulls-nba-play-in-tournament-heat/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6282617/2025/04/17/this-week-in-sports-trivia-april
 **How a sexual assault allegation decades ago rocked a city and upended a life**\
 `After the girl was acquitted, the judge called the incident "degrading and disgusting by any reasonable person’s standards."`\
 https://nytimes.com/athletic/6284797/2025/04/17/swift-current-broncos-sexual-assault-allegations/
-
-**Giants mock draft analysis: What would Abdul Carter mean for Kayvon Thibodeaux's future?**\
-`If the Giants pass on a quarterback at No. 3, that means they have to target a QB with their next pick, right?`\
-https://nytimes.com/athletic/6282502/2025/04/17/giants-nfl-draft-mock-draft-abdul-carter-kayvon-thibodeaux/
-
-**Van Dijk signs new two-year contract at Liverpool**\
-`The centre-back's extension comes after Mohamed Salah also signed a new two-year contract at Anfield.`\
-https://nytimes.com/athletic/6269382/2025/04/17/van-dijk-contract-liverpool/
 
