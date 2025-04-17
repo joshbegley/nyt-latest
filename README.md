@@ -1,4 +1,8 @@
-**I.R.S. Said to Be Considering Whether to Revoke Harvard’s Tax-Exempt Status**\
+**Wednesday's NBA Play-In takeaways: Heat dominate Bulls, Kings host Mavs**\
+`NBA Play-In action continues Wednesday with two postseason elimination games.`\
+https://nytimes.com/athletic/6285785/2025/04/16/nba-play-in-heat-bulls-mavericks-kings/
+
+**I.R.S. Is Said to Be Considering Whether to Revoke Harvard’s Tax-Exempt Status**\
 `The move would be a major escalation of the Trump administration’s attempts to choke off federal money and support for the leading research university.`\
 https://nytimes.com/2025/04/16/us/politics/trump-irs-harvard.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6285741/2025/04/16/mets-justin-hagenman-mlb-debut-s
 **Syracuse coach Fran Brown on top WR Trebor Pena's transfer: 'We paid him enough'**\
 `Brown said his leading receiver entered the transfer portal after he asked for a larger NIL deal Brown wasn't comfortable granting.`\
 https://nytimes.com/athletic/6285775/2025/04/16/syracuse-football-trebor-pena-transfer/
-
-**Bears, T.J. Edwards agree to 2-year, $20 million extension**\
-`Edwards set career-high marks in sacks (four) and tackles for loss (12) last season.`\
-https://nytimes.com/athletic/6285815/2025/04/16/tj-edwards-bears-extension/
 
