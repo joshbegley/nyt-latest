@@ -1,3 +1,7 @@
+**The Pulse: Klay Thompson's poetic Play-In arc.**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6286351/2025/04/17/klay-thompson-play-in-the-pulse/
+
 **More Than Half of Puerto Rico Remains Without Power**\
 `It will take at least another day to fully restore service after a series of failures blacked out the whole island on Wednesday, officials said.`\
 https://nytimes.com/2025/04/17/us/puerto-rico-blackout-power.html

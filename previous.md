@@ -1,3 +1,7 @@
+**The Pulse: Klay Thompson's poetic Play-In arc.**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6286351/2025/04/17/klay-thompson-play-in-the-pulse/
+
 **More Than Half of Puerto Rico Remains Without Power**\
 `It will take at least another day to fully restore service after a series of failures blacked out the whole island on Wednesday, officials said.`\
 https://nytimes.com/2025/04/17/us/puerto-rico-blackout-power.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/17/world/africa/kenya-ants-smuggling.html
 **Champions League projections 2024-25: Who will lift the trophy in Munich on May 31?**\
 `Here's how the rest of the 2024-25 Champions League is projected to play out...`\
 https://nytimes.com/athletic/5793492/2025/04/17/champions-league-projections/
-
-**How Angels' Tyler Anderson channeled his 'controlled rage' into success on mound**\
-`A perfectionist on the mound, Anderson is no hothead, but sometimes his intensity elicits an audible curse word that serves to center him.`\
-https://nytimes.com/athletic/6285779/2025/04/17/angels-tyler-anderson/
 
