@@ -1,3 +1,15 @@
+**Rodgers criticizes Aaron Glenn, says he's 'open to anything' for NFL future**\
+`Four-time NFL MVP discusses his free agency, playing future and departure from Jets in appearance on "The Pat McAfee Show."`\
+https://nytimes.com/athletic/6287395/2025/04/17/aaron-rodgers-pat-mcafee-jets-steelers-free-agency/
+
+**Trump Official Asked I.R.S. About Audit of ‘High-Profile Friend of the President’**\
+`The Treasury Department official wrote to the I.R.S. that Mike Lindell, the pillow entrepreneur, was “concerned he may have been inappropriately targeted.”`\
+https://nytimes.com/2025/04/17/us/politics/trump-irs-audit-lindell.html
+
+**Former death row prisoners fight attempt to move them to one of the nation’s harshest prisons.**\
+`The men had their death sentences commuted under the Biden administration, but say they are being punished by being transferred from a prison in Indiana to a restrictive federal prison in Colorado.`\
+https://nytimes.com/2025/04/17/us/politics/former-death-row-prisoners-fight-attempt-to-move-them-to-one-of-the-nations-harshest-prisons.html
+
 **Michelle Williams, Sofia Coppola and Fran Lebowitz Get a Seat at Donald Judd’s Table**\
 `The Judd Foundation’s benefit dinner was a rare chance to step into the artist’s world.`\
 https://nytimes.com/2025/04/17/style/donald-judd-foundation-michelle-wiliams.html

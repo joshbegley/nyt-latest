@@ -1,3 +1,15 @@
+**U.S. Is Withdrawing Hundreds of Troops From Syria**\
+`The end of the Assad era has reduced some threats, but the Islamic State has shown renewed strength in the country.`\
+https://nytimes.com/2025/04/17/us/politics/us-withdrawing-troops-syria.html
+
+**France Acknowledges Devastating Effect of Debt Imposed on Haiti for Freedom**\
+`After two centuries, a contrite tone from President Emmanuel Macron, though no talk of reparations for French actions that thwarted the development of its former colony.`\
+https://nytimes.com/2025/04/17/world/europe/france-haiti-debt-macron.html
+
+**After Harvard, Liberal Donors and Groups Fear New Scrutiny From Trump**\
+`Some worried liberal donors and the nonprofit groups they support are getting “legal teams on speed dial, crisis plans dusted off, reserves lined up.”`\
+https://nytimes.com/2025/04/17/us/politics/harvard-trump-irs-liberals.html
+
 **Rodgers criticizes Aaron Glenn, says he's 'open to anything' for NFL future**\
 `Four-time NFL MVP discusses his free agency, playing future and departure from Jets in appearance on "The Pat McAfee Show."`\
 https://nytimes.com/athletic/6287395/2025/04/17/aaron-rodgers-pat-mcafee-jets-steelers-free-agency/
@@ -11,7 +23,7 @@ https://nytimes.com/2025/04/17/us/politics/trump-irs-audit-lindell.html
 https://nytimes.com/2025/04/17/style/donald-judd-foundation-michelle-wiliams.html
 
 **Florida State shooting prompts cancellations; suspect in custody**\
-`The Associated Press reports one suspect is currently in custody. `\
+`The new York Times reports a spokesperson for Tallahassee Memorial HealthCare said the shooting injured at least six people.`\
 https://nytimes.com/athletic/6287700/2025/04/17/florida-state-mass-shooting-sports-canceled/
 
 **Former death row prisoners fight attempt to move them to one of the nation’s harshest prisons.**\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/17/learning/whats-going-on-in-this-picture-april-21-
 **Measles Outbreaks in Canada and Mexico Bring Grim Prognosis**\
 `Surges in Mennonite communities near the U.S. border may complicate containment efforts, experts say.`\
 https://nytimes.com/2025/04/17/health/measles-texas-mexico-canada.html
-
-**Trump Administration Aims to Sell Housing Department Headquarters**\
-`The building has been added to a list of properties that the administration says it is trying to offload in order to eliminate waste.`\
-https://nytimes.com/2025/04/17/us/politics/trump-housing-urban-development-building.html
-
-**A witness heard gunfire and hid under a stool.**\
-`By Valerie Crowder`\
-https://nytimes.com/live/2025/04/17/us/fsu-shooting-tallahassee/a-witness-heard-gunfire-and-hid-under-a-stool
-
-**Bucks' Lillard cleared of blood clots, returns to practice**\
-`Lillard remains out for Game 1 of the Bucks' first-round series against the Pacers, but his status for Game 2 is unclear.`\
-https://nytimes.com/athletic/6287761/2025/04/17/damian-lillard-blood-clots-bucks-playoffs/
 

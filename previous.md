@@ -1,3 +1,11 @@
+**Rodgers criticizes Aaron Glenn, says he's 'open to anything' for NFL future**\
+`Four-time NFL MVP discusses his free agency, playing future and departure from Jets in appearance on "The Pat McAfee Show."`\
+https://nytimes.com/athletic/6287395/2025/04/17/aaron-rodgers-pat-mcafee-jets-steelers-free-agency/
+
+**Trump Official Asked I.R.S. About Audit of ‘High-Profile Friend of the President’**\
+`The Treasury Department official wrote to the I.R.S. that Mike Lindell, the pillow entrepreneur, was “concerned he may have been inappropriately targeted.”`\
+https://nytimes.com/2025/04/17/us/politics/trump-irs-audit-lindell.html
+
 **Michelle Williams, Sofia Coppola and Fran Lebowitz Get a Seat at Donald Judd’s Table**\
 `The Judd Foundation’s benefit dinner was a rare chance to step into the artist’s world.`\
 https://nytimes.com/2025/04/17/style/donald-judd-foundation-michelle-wiliams.html
@@ -8,7 +16,7 @@ https://nytimes.com/athletic/6287700/2025/04/17/florida-state-mass-shooting-spor
 
 **Former death row prisoners fight attempt to move them to one of the nation’s harshest prisons.**\
 `The men had their death sentences commuted under the Biden administration, but say they are being punished by being transferred from a prison in Indiana to a restrictive federal prison in Colorado.`\
-https://nytimes.com/live/2025/04/17/us/trump-news-updates/former-death-row-prisoners-fight-attempt-to-move-them-to-one-of-the-nations-harshest-prisons
+https://nytimes.com/2025/04/17/us/politics/former-death-row-prisoners-fight-attempt-to-move-them-to-one-of-the-nations-harshest-prisons.html
 
 **What’s Going On in This Picture? | April 21, 2025**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/04/17/us/fsu-shooting-tallahassee/a-witness-heard-
 **Bucks' Lillard cleared of blood clots, returns to practice**\
 `Lillard remains out for Game 1 of the Bucks' first-round series against the Pacers, but his status for Game 2 is unclear.`\
 https://nytimes.com/athletic/6287761/2025/04/17/damian-lillard-blood-clots-bucks-playoffs/
-
-**Police Respond to Active Shooter Incident at Florida State University**\
-`Police responded to reports of a shooting at the student union building shortly before noon at the Florida State University campus in Tallahassee on Thursday.`\
-https://nytimes.com/video/us/100000010116364/active-shooter-florida-state-university.html
-
-**Notre Dame's Steve Angeli to enter transfer portal: Reports**\
-`If the spring game was a referendum on who slotted where at QB, it’s not clear if Angeli lost the starting job, but he didn't win it.`\
-https://nytimes.com/athletic/6287706/2025/04/17/notre-dame-steve-angeli-transfer-portal/
 
