@@ -1,3 +1,7 @@
+**Oilers' McDavid reaches 100 points, hitting milestone for eighth time**\
+`McDavid has hit the century mark in all but two of his 10 NHL seasons.`\
+https://nytimes.com/athletic/6284943/2025/04/16/connor-mcdavid-100-points-stats-2025/
+
 **Nationals' López ejected after throwing pitch near McCutchen's head**\
 `Jorge López threw a slider high and inside to Andrew McCutchen, who fell to the ground to avoid the ball.`\
 https://nytimes.com/athletic/6285897/2025/04/16/nationals-pirates-benches-clear-mccutchen-lopez/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6285822/2025/04/16/cubs-split-padres-dodgers-series
 **A Columbia Activist Sought Middle Ground on Gaza. The U.S. Detained Him.**\
 `Mohsen Mahdawi was arrested at a citizenship interview in Vermont. He had spent a decade trying to understand the conflict that shaped his life, his supporters say.`\
 https://nytimes.com/2025/04/16/nyregion/columbia-activist-mahdawi-ice-palestinian.html
-
-**As a Mets rookie makes his long-shot MLB debut, the scout who signed him is beating his own odds**\
-`Justin Hagenman was a 23rd round pick in 2018. The Dodgers scout who signed him, Jonah Rosenthal, is recovering from a stroke in December.`\
-https://nytimes.com/athletic/6285741/2025/04/16/mets-justin-hagenman-mlb-debut-scout-stroke/
 
