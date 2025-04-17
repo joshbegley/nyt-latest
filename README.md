@@ -1,3 +1,7 @@
+**Playboi Carti and His Offspring Ponder Life After Rage-Rap**\
+`As rap continues to move in chaotic directions, the Atlanta M.C. Ken Carson and the electro-pop singer 2hollis are harnessing the power of music that moves bodies.`\
+https://nytimes.com/2025/04/17/arts/music/playboi-carti-ken-carson-2hollis.html
+
 **This Miso-Sesame Vinaigrette Is Dinner Insurance**\
 `Toss it with noodles, toss it with greens, spoon it on fish or steak or chicken or tofu. It’s so good and so versatile.`\
 https://nytimes.com/2025/04/17/dining/this-miso-sesame-vinaigrette-is-dinner-insurance.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6286681/2025/04/17/nascar-chicago-street-race-track
 **Watch: Who is a mid-round gem in the 2025 NFL Draft class?**\
 `"The Athletic Football Show" discusses what makes Colorado State wide receiver Tory Horton an intriguing mid-round draft prospect. `\
 https://nytimes.com/athletic/6283230/2025/04/17/athletic-football-show-nfl-draft-mid-round-gems/
-
-**Using strikeout rate to uncover surging hitters and buy-low candidates in fantasy baseball**\
-`Owen Poindexter examines year-over-year volatility in K rate, unearthing some hot starts to believe in, like the Athletics' Shea Langeliers.`\
-https://nytimes.com/athletic/6285429/2025/04/17/fantasy-baseball-k-rate-buy-low-hot-starts/
 
