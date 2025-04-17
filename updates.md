@@ -1,3 +1,15 @@
+**Israel Strikes Area With Large Tent Camps for Displaced Gazans**\
+`The attack on the Mawasi area killed at least several people, including children, according to Gaza’s emergency rescue service. Israel did not confirm the location of the attack.`\
+https://nytimes.com/2025/04/17/world/middleeast/israel-gaza-strike-mawasi.html
+
+**'You don't need to buy your team:' How smart NFL front offices navigate dead money restraints**\
+`Hitting on draft picks, as teams like the Broncos proved last year, is a big part of the equation for navigating tough financial waters.`\
+https://nytimes.com/athletic/6281048/2025/04/17/nfl-teams-dead-cap-money-navigation/
+
+**Twins' declining attendance has turned Target Field into the Land of 10,000 Fans**\
+`Monday's game set a new low for Target Field attendance, as the Twins' on-field struggles and "business decisions" sink fan morale.`\
+https://nytimes.com/athletic/6281284/2025/04/17/minnesota-twins-target-field-attendance-drop/
+
 **What Is Tax-Exempt Status and Can the I.R.S. Revoke It From Harvard?**\
 `The university, like many colleges and charities, is exempt from federal income and property taxes, saving it billions of dollars. President Trump has questioned whether it should enjoy that status.`\
 https://nytimes.com/2025/04/17/us/tax-exempt-status-irs-harvard.html
