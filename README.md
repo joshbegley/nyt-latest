@@ -23,7 +23,7 @@ https://nytimes.com/2025/04/16/style/fyre-festival-2-location.html
 https://nytimes.com/2025/04/16/nyregion/empire-wind-farm-trump-ny.html
 
 **Space Travel and Tuberculosis Research Are Hit by Trump’s Harvard Cuts**\
-`Researchers who have lost funds warned of long-term repercussions, but several said their schools should still refuse to comply with the federal government.`\
+`Researchers who have lost funds warned of long-term repercussions, but several said their school should still refuse to comply with the federal government.`\
 https://nytimes.com/2025/04/16/us/trump-harvard-cuts-sarah-fortune-tuberculosis.html
 
 **Trump Waved Off Israeli Strike After Divisions Emerged in His Administration**\
