@@ -1,3 +1,11 @@
+**NASCAR Mailbag: Chicago Street Race's future, Trackhouse's decision and more**\
+`With NASCAR on hiatus for the week, we take time out to answer your latest questions on the Chicago Street Race, Trackhouse Racing and more.`\
+https://nytimes.com/athletic/6286681/2025/04/17/nascar-chicago-street-race-trackhouse-suarez-mailbag/
+
+**Watch: Who is a mid-round gem in the 2025 NFL Draft class?**\
+`"The Athletic Football Show" discusses what makes Colorado State wide receiver Tory Horton an intriguing mid-round draft prospect. `\
+https://nytimes.com/athletic/6283230/2025/04/17/athletic-football-show-nfl-draft-mid-round-gems/
+
 **Using strikeout rate to uncover surging hitters and buy-low candidates in fantasy baseball**\
 `Owen Poindexter examines year-over-year volatility in K rate, unearthing some hot starts to believe in, like the Athletics' Shea Langeliers.`\
 https://nytimes.com/athletic/6285429/2025/04/17/fantasy-baseball-k-rate-buy-low-hot-starts/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6284622/2025/04/17/alexander-straus-angel-city-baye
 **Ask Ornstein Q&A: Our football insider answers your questions**\
 `Here is your opportunity to ask David Ornstein anything you want about the world of football`\
 https://nytimes.com/athletic/6286506/2025/04/17/ask-ornstein-qa-david-ornstein/
-
-**No Corrections: April 17, 2025**\
-`No corrections appeared in print on Thursday, April 17, 2025.`\
-https://nytimes.com/2025/04/17/pageoneplus/no-corrections-april-17-2025.html
-
-**The Pulse: Klay Thompson's poetic Play-In arc.**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6286351/2025/04/17/klay-thompson-play-in-the-pulse/
 
