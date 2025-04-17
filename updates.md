@@ -1,3 +1,7 @@
+**Neymar leaves pitch in tears after sustaining left thigh injury**\
+`Neymar was making his 100th home appearance for Santos, who he rejoined on a short-term deal in January.`\
+https://nytimes.com/athletic/6286508/2025/04/17/neymar-jr-injury-santos/
+
 **Commanders mock draft scenarios: Navigating needs, trades and desire for more picks**\
 `We give you six ways GM Adam Peters and Washington could approach this year's draft. `\
 https://nytimes.com/athletic/6280014/2025/04/17/commanders-2025-mock-draft-scenarios/
