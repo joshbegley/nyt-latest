@@ -1,3 +1,7 @@
+**Bucks' Lillard cleared of blood clots, returns to practice**\
+`Lillard remains out for Game 1 of the Bucks' first-round series against the Pacers, but his status for Game 2 is unclear.`\
+https://nytimes.com/athletic/6287761/2025/04/17/damian-lillard-blood-clots-bucks-playoffs/
+
 **Police Respond to Active Shooter Incident at Florida State University**\
 `Police responded to reports of a shooting at the student union building shortly before noon at the Florida State University campus in Tallahassee on Thursday.`\
 https://nytimes.com/video/us/100000010116364/active-shooter-florida-state-university.html
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/6287706/2025/04/17/notre-dame-steve-angeli-transfer
 https://nytimes.com/2025/04/17/us/politics/supreme-court-birthright-citizenship.html
 
 **France’s Richest Man Counted Trump as a Friend. He Still Faces Tariffs.**\
-`The trade war has hurt the Louis Vuitton Moët Hennessy luxury empire. Bernard Arnault, head of the company, said a failure to strike a deal with Mr. Trump would be “the fault of Brussels.”`\
+`The trade war has hurt the Louis Vuitton Moët Hennessy luxury empire. Bernard Arnault, head of the company, said a failure to strike a deal with President Trump would be “the fault of Brussels.”`\
 https://nytimes.com/2025/04/17/business/trump-tariffs-lvmh-bernard-arnault.html
 
 **Is it Josh Simmons or bust for the Chiefs in Round 1 of the NFL Draft?**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/17/opinion/trump-democrats-republicans.html
 **‘It cost me my season’: Charlie McAvoy on decision to play against Canada and scary infection details**\
 `Nobody knows why the infection happened. McAvoy: “It could have been my Under Armour that was dirty, or my gear or this or that."`\
 https://nytimes.com/athletic/6287523/2025/04/17/bruins-charlie-mcavoy-infection/
-
-**Release of E.P.A. Climate Grants Is Paused by New Court Ruling**\
-`After a federal judge on Wednesday ordered the release of up to $650 million in frozen grants, an appeals court temporarily halted the payouts.`\
-https://nytimes.com/2025/04/17/climate/epa-climate-grants-green-bank.html
 

@@ -1,3 +1,11 @@
+**Bucks' Lillard cleared of blood clots, returns to practice**\
+`Lillard remains out for Game 1 of the Bucks' first-round series against the Pacers, but his status for Game 2 is unclear.`\
+https://nytimes.com/athletic/6287761/2025/04/17/damian-lillard-blood-clots-bucks-playoffs/
+
+**France’s Richest Man Counted Trump as a Friend. He Still Faces Tariffs.**\
+`The trade war has hurt the Louis Vuitton Moët Hennessy luxury empire. Bernard Arnault, head of the company, said a failure to strike a deal with President Trump would be “the fault of Brussels.”`\
+https://nytimes.com/2025/04/17/business/trump-tariffs-lvmh-bernard-arnault.html
+
 **Police Respond to Active Shooter Incident at Florida State University**\
 `Police responded to reports of a shooting at the student union building shortly before noon at the Florida State University campus in Tallahassee on Thursday.`\
 https://nytimes.com/video/us/100000010116364/active-shooter-florida-state-university.html

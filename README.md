@@ -1,3 +1,11 @@
+**Trump Administration Aims to Sell Housing Department Headquarters**\
+`The building has been added to a list of properties that the administration says it is trying to offload in order to eliminate waste.`\
+https://nytimes.com/2025/04/17/us/politics/trump-housing-urban-development-building.html
+
+**A witness heard gunfire and hid under a stool.**\
+`By Valerie Crowder`\
+https://nytimes.com/live/2025/04/17/us/fsu-shooting-tallahassee/a-witness-heard-gunfire-and-hid-under-a-stool
+
 **Bucks' Lillard cleared of blood clots, returns to practice**\
 `Lillard remains out for Game 1 of the Bucks' first-round series against the Pacers, but his status for Game 2 is unclear.`\
 https://nytimes.com/athletic/6287761/2025/04/17/damian-lillard-blood-clots-bucks-playoffs/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/04/17/us/fsu-shooting-tallahassee
 **Democrats Step Up Trump Resistance as Base Hungers for More of a Fight**\
 `Out of power in Congress, Democrats who were slow to fight back against President Trump are increasingly finding ways to do so. But activists want much more.`\
 https://nytimes.com/2025/04/17/us/politics/democrats-trump-resistance.html
-
-**The Choice That a Politician Needs to Make**\
-`Find common ground with President Trump, or resist? Also: Medical decisions; climate research cuts; deep sea mining risks; a gift to Harvard.`\
-https://nytimes.com/2025/04/17/opinion/trump-democrats-republicans.html
-
-**‘It cost me my season’: Charlie McAvoy on decision to play against Canada and scary infection details**\
-`Nobody knows why the infection happened. McAvoy: “It could have been my Under Armour that was dirty, or my gear or this or that."`\
-https://nytimes.com/athletic/6287523/2025/04/17/bruins-charlie-mcavoy-infection/
 
