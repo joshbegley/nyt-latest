@@ -1,3 +1,7 @@
+**Elaine Wynn, Billionaire Arts Patron Who Helped Modernize Las Vegas, Dies at 82**\
+`She and Steve Wynn were known as the king and queen of Las Vegas. After their divorce, Ms. Wynn became a force in her own right.`\
+https://nytimes.com/2025/04/17/business/elaine-wynn-dead.html
+
 **As Cubs' Ryan Pressly settles with new team, Chicago's closer panic level is dropping**\
 `“You get a little bit more comfortable on the mound,” Pressly said, “and things start to click.”`\
 https://nytimes.com/athletic/6288567/2025/04/17/chicago-cubs-ryan-pressly-closer-role/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6284493/2025/04/17/fantasy-baseball-waiver-wire-pic
 **The Briefing: Manchester United 5 Lyon 4 (7-6 agg) - United reach Europa League semi-finals… somehow!**\
 `A remarkable comeback at Old Trafford has put Manchester United in the Europa League semi finals`\
 https://nytimes.com/athletic/6283976/2025/04/17/manchester-united-lyon-europa-league-5-4/
-
-**Blackhawks' coaching search, contract talks and more takeaways from locker clean-out day**\
-`Plus, Connor Bedard dismissed any assumptions that he’s unhappy in Chicago and looking to leave.`\
-https://nytimes.com/athletic/6288198/2025/04/17/blackhawks-coach-contract-locker-room-clean-out/
 
