@@ -1,3 +1,11 @@
+**Arsenal's systematic dismantling of Real Madrid showed a team that is coming of age**\
+`Knocking out the Champions League holders is a major milestone in the club's upward trajectory`\
+https://nytimes.com/athletic/6285812/2025/04/17/arsenal-real-madrid-champions-league-performance/
+
+**Greenberg: 'Cancun' Bulls didn't throw in beach towel, but where do they go from here?**\
+`In the end, the only playoff experience the Bulls players got was the kind many already had — losing to the Heat in a Play-In game. `\
+https://nytimes.com/athletic/6286115/2025/04/17/bulls-heat-nba-play-in-tournament-loss/
+
 **The New York Times in Print for Thursday, April 17, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/04/17/todays-new-york-times

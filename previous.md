@@ -1,3 +1,7 @@
+**Arsenal's systematic dismantling of Real Madrid showed a team that is coming of age**\
+`Knocking out the Champions League holders is a major milestone in the club's upward trajectory`\
+https://nytimes.com/athletic/6285812/2025/04/17/arsenal-real-madrid-champions-league-performance/
+
 **The New York Times in Print for Thursday, April 17, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/04/17/todays-new-york-times
@@ -7,7 +11,7 @@ https://nytimes.com/issue/todayspaper/2025/04/17/todays-new-york-times
 https://nytimes.com/2025/04/17/opinion/china-us-trump-xi-tariffs.html
 
 **Greenberg: 'Cancun' Bulls didn't throw in beach towel, but where do they go from here?**\
-`In the end, the only playoff experience the young Bulls players got was the kind they already had — losing to the Heat in a Play-In game. `\
+`In the end, the only playoff experience the Bulls players got was the kind many already had — losing to the Heat in a Play-In game. `\
 https://nytimes.com/athletic/6286115/2025/04/17/bulls-heat-nba-play-in-tournament-loss/
 
 **It's still early, but the Giants are rolling past their opponents in impressive fashion**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6279415/2025/04/17/wolves-mailbag-wolves-stadium-tr
 **Meet Matthew Harding's son Pat, chairman of a title-winning club: 'I like to think he'd be proud'**\
 `Pat is the son of former Chelsea vice-chairman Matthew Harding, and is succeeding as chairman of Hassocks FC`\
 https://nytimes.com/athletic/6283189/2025/04/17/pat-harding-matthew-harding-chelsea/
-
-**Inzaghi's Inter are Champions League contenders who ally old-school quality with progression**\
-`The Italian side will start their semi-final as underdogs but, having seen off Bayern, their unique approach can unsettle Barcelona`\
-https://nytimes.com/athletic/6285513/2025/04/17/inzaghis-inter-are-champions-league-contenders-who-ally-old-school-quality-with-progression/
 
