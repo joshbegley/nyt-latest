@@ -1,3 +1,7 @@
+**Deion Sanders addresses jersey retirement debate ahead of spring game**\
+`Colorado will host its annual Black & Gold Day spring game in Boulder on Saturday, which will air nationally on ESPN2.`\
+https://nytimes.com/athletic/6288027/2025/04/17/colorado-football-deion-sanders-jersey-retirement-debate/
+
 **Katie Perry Is Suing Katy Perry in Australia. Wait, What?**\
 `The case between the two Perrys could set a precedent leaving some Australian businesses vulnerable to overseas brands.`\
 https://nytimes.com/2025/04/17/world/australia/katie-perry-suing-katy-perry-australia.html
@@ -12,7 +16,7 @@ https://nytimes.com/2025/04/17/us/college-universities-trump-mood.html
 
 **Court, in Strong Words, Presses White House to Play Active Role in Freeing Maryland Man**\
 `Regardless of whether the man, Kilmar Armando Abrego Garcia, is a member of MS-13, the appeals court wrote, he is entitled to due process.`\
-https://nytimes.com/live/2025/04/17/us/trump-news-updates/appeals-court-white-house-deportee
+https://nytimes.com/2025/04/17/us/politics/appeals-court-white-house-deportee.html
 
 **Suns owner vows to change team culture after 'embarrassing' season**\
 `Ishbia vowed to change the culture and identity of a Suns team that failed to make the postseason with the NBA's most expensive roster.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/17/us/politics/trump-el-salvador-deportations-immigr
 **Cable Car Falls and Breaks Apart in Italy, Killing at Least 4 People**\
 `A fifth person was in critical condition after the cable car rolled down a mountainside. Nine others were trapped in a different cable car because of the crash and had to be rescued.`\
 https://nytimes.com/2025/04/17/world/europe/italy-cable-car-crash.html
-
-**Trump Administration Proposes Sharp Budget Cuts for H.H.S.**\
-`An internal memo proposes carving out $40 billion from federal health agencies while eliminating dozens of programs. Congress has ultimate appropriation authority.`\
-https://nytimes.com/2025/04/17/us/politics/trump-administration-proposes-health-department-cuts.html
 
