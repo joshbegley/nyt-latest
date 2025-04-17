@@ -1,40 +1,40 @@
-**Trump Targets K-12**\
-`We explain why the president is taking on public schools, and how officials are responding.`\
-https://nytimes.com/2025/04/17/briefing/trump-targets-k-12.html
+**2025 NHL playoff preview: Los Angeles Kings vs. Edmonton Oilers**\
+`The Kings' depth and all-around game are stronger than ever, but can they contain dynamic Oilers duo Connor McDavid and Leon Draisaitl?`\
+https://nytimes.com/athletic/6281771/2025/04/17/nhl-playoffs-2025-kings-oilers/
 
-**Nine early MLB takes on Braves' start, NL dominance, AL East race — on point or overreactions?**\
-`Here are nine statements I’ve heard around baseball so far this season and my takes on whether they are on point or overreactions.`\
-https://nytimes.com/athletic/6286118/2025/04/17/mlb-early-2025-season-takeaways-overreactions/
+**Transfer portal update: Slim pickings on the QB market, FCS stars on the move**\
+`Cal's backfield decimated by departures. Wisconsin loses a key pass-catcher. Ole Miss adds another defensive back. `\
+https://nytimes.com/athletic/6285277/2025/04/17/url-college-football-spring-transfer-portal-qb-market/
 
-**Nick Suzuki and the young Canadiens are out to prove more people wrong in the playoffs**\
-`The Canadiens were always an unlikely playoff team, but a group that is young and hungry and defiant makes for a tough playoff opponent.`\
-https://nytimes.com/athletic/6286365/2025/04/17/canadiens-nhl-playoffs-nick-suzuki/
+**Donovan Mitchell’s self-sacrifice charted the Cavs’ course to dominance**\
+`"Unselfish MVP" — that's how one teammate described the six-time All-Star who fueled Cleveland to the East's best record.`\
+https://nytimes.com/athletic/6284088/2025/04/17/donovan-mitchell-cleveland-cavaliers-2025-nba-playoffs/
 
-**Nvidia C.E.O. Meets With Chinese Trade Officials in Beijing**\
-`The day before the visit by Jensen Huang, lawmakers in Washington said they were investigating whether the chipmaker’s sales in China violated U.S. rules.`\
-https://nytimes.com/2025/04/17/business/nvidia-china-tariffs-chips-jensen-huang.html
+**Pistons' physicality helped get them to playoffs but don't call them Bad Boys yet**\
+`Thanks to a newfound physical toughness, the Pistons have a young nucleus that is no longer a guaranteed win on opposing teams' calendars.`\
+https://nytimes.com/athletic/6285223/2025/04/17/detroit-pistons-nba-playoffs-2025-game-planning/
 
-**Daily Pill May Work as Well as Ozempic for Weight Loss and Blood Sugar**\
-`Clinical results of a GLP-1 in pill form showed safety and efficacy data similar to blockbuster injectable drugs.`\
-https://nytimes.com/2025/04/17/health/pill-glp-1-eli-lilly.html
+**Why Oilers are the 'mystery team' of this year's NHL playoffs**\
+`Thanks to injuries and uneven play, the Oilers enter the playoffs under a shroud of doubt from outside their dressing room.`\
+https://nytimes.com/athletic/6282214/2025/04/17/oilers-nhl-playoffs-2025/
 
-**NBA Player Tiers 2025: Jalen Brunson, Kawhi Leonard and more All-Star standouts in Tier 2**\
-`If you don’t have a player in this tier, it’s probably going to be a challenge to contend consistently.`\
-https://nytimes.com/athletic/6281588/2025/04/17/jalen-brunson-kawhi-leonard-nba-player-tiers-2025/
+**Cold showers, wash your own kit: life at the top of US minor league soccer**\
+`Turbulent times at minor league Loudoun United, where player say they have succeeded despite uncertainty and upheaval.`\
+https://nytimes.com/athletic/6281237/2025/04/17/loudoun-united-usl-championship-washing-jerseys/
 
-**U.K. Court Ruling on Trans Women Is Part of Wider Debate on Sex and Gender**\
-`President Trump and right-wing politicians in Europe have railed against trans rights. Britain’s top court has now added its voice to the discussion.`\
-https://nytimes.com/2025/04/17/world/europe/uk-trans-hungary-germany-us.html
+**Inside the Yankees' old-school, 'no data' discovery of Ben Rice, their biggest surprise**\
+`Rice has been a revelation for the Yankees in the first three weeks of the 2025 season, compiling a 186 OPS+ in 16 games.`\
+https://nytimes.com/athletic/6285782/2025/04/17/new-york-yankees-ben-rice-scouting/
 
-**Mandel: 5 takeaways from UNC's Belichick era through spring ball (Note: Info is sparse)**\
-`Did spring ball prove me wrong about Bill Belichick yet? `\
-https://nytimes.com/athletic/6282388/2025/04/17/bill-belichick-north-carolina-football-recruiting-girlfriend/
+**Has the NFL stopped caring about college football opt-outs?**\
+`If a team thinks a player opts out based mostly on draft preparation rather than a medical decision, “it’s not a good look,” said one scout.`\
+https://nytimes.com/athletic/6284468/2025/04/17/nfl-draft-college-football-opt-outs/
 
-**Van Dijk is Liverpool's defensive GOAT but his legend extends beyond Merseyside**\
-`The Dutchman is the complete package and his new two-year contract should not just be welcomed at Anfield`\
-https://nytimes.com/athletic/6115307/2025/04/17/virgil-van-dijk-liverpool-contract-legacy/
+**Why Rory McIlroy may not be close to done winning majors**\
+`Now, McIlroy can combine his most complete arsenal of tricks with a renewed confidence. Or at least a lack of fear.`\
+https://nytimes.com/athletic/6285061/2025/04/17/rory-mcilroy-win-major-golf-tournaments/
 
-**Play-In Tournament woes continue to haunt Bulls: 'We've got to be better'**\
-`“The disappointing part was that we didn’t play to our identity,” Billy Donovan said of the Bulls' Play-In Tournament loss to the Heat.`\
-https://nytimes.com/athletic/6286148/2025/04/17/bulls-nba-play-in-tournament-heat/
+**2025 NHL playoff preview: Vegas Golden Knights vs. Minnesota Wild**\
+`The last time Minnesota and Vegas faced each other, it went to seven games. That seems less likely this time around.`\
+https://nytimes.com/athletic/6285560/2025/04/17/2025-nhl-playoff-preview-vegas-golden-knights-vs-minnesota-wild/
 
