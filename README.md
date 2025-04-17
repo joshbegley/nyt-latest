@@ -1,3 +1,11 @@
+**Syracuse coach Fran Brown on top WR Trebor Pena's transfer: 'We paid him enough'**\
+`Brown said his leading receiver entered the transfer portal after he asked for a larger NIL deal Brown wasn't comfortable granting.`\
+https://nytimes.com/athletic/6285775/2025/04/16/syracuse-football-trebor-pena-transfer/
+
+**Bears, T.J. Edwards agree to 2-year, $20 million extension**\
+`Edwards set career-high marks in sacks (four) and tackles for loss (12) last season.`\
+https://nytimes.com/athletic/6285815/2025/04/16/tj-edwards-bears-extension/
+
 **Trump Names Interim U.S. Attorney for Manhattan, Bypassing Schumer**\
 `Senator Chuck Schumer had said he would block the permanent appointment of Jay Clayton, the president’s choice to head one of the nation’s most prestigious prosecutor’s offices.`\
 https://nytimes.com/2025/04/16/nyregion/trump-clayton-schumer-sdny-interim-appointment.html
@@ -22,19 +30,11 @@ https://nytimes.com/2025/04/16/us/major-league-fishing-boat-accident-smith-lake.
 `By The New York Times`\
 https://nytimes.com/live/2025/04/16/us/trump-news/heres-what-happened-on-wednesday
 
-**Aggressive base running, clutch hitting lifts wounded Twins over Mets in 10 innings**\
+**Twins takeaways: Mounting injuries, aggressive base running, Edouard Julien's defense**\
 `The series win was the byproduct of aggressive base running, productive outs and good defense from a team looking for signs of life.`\
 https://nytimes.com/athletic/6285608/2025/04/16/twins-beat-mets-extra-innings-takeaways/
 
 **Agreement to bring Commanders' stadium to D.C. taking shape**\
 `A framework has emerged that indicates the Commanders would pay most of the cost of the mixed-use project on the 174-acre federal land site.`\
 https://nytimes.com/athletic/6285519/2025/04/16/commanders-stadium-dc-location-agreement/
-
-**What Is Happening With Fyre Festival 2?**\
-`After weeks of confusion, the organizers of the event have scrapped its location once again.`\
-https://nytimes.com/2025/04/16/style/fyre-festival-2-location.html
-
-**Trump Administration Halts Building of Giant Wind Farm Off N.Y. Coast**\
-`Gov. Kathy Hochul quickly responded that she would “fight this decision every step of the way.”`\
-https://nytimes.com/2025/04/16/nyregion/empire-wind-farm-trump-ny.html
 
