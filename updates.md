@@ -1,3 +1,7 @@
+**Rudiger on the rampage, rugby tackles, and Rice vs Bellingham – breaking down the chaos at the Bernabeu**\
+`Analysing all the needle, scrapping and referee controversy from Arsenal's outstanding Champions League win against Real Madrid`\
+https://nytimes.com/athletic/6284944/2025/04/17/real-madrid-arsenal-rudiger-rice-saka-bellingham-referee-controversy/
+
 **Texas Is Poised to Create a $1 Billion Private School Voucher Program**\
 `The Texas House approved the plan, part of a push by President Trump’s allies to offer up to about $10,000 for private school, home-school or virtual learning.`\
 https://nytimes.com/2025/04/17/us/texas-trump-private-school-vouchers.html
