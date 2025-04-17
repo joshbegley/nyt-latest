@@ -1,3 +1,11 @@
+**Canada's Marsch handed extra ban for 'unacceptable conduct' after U.S. red card**\
+`Concacaf sanctioned Marsch for "unacceptable conduct towards the match officials and "delaying the restart of the match".`\
+https://nytimes.com/athletic/6288177/2025/04/17/jesse-marsch-canada-ban-usmnt/
+
+**Rockies fire hitting coach Hensley Meulens, tap Clint Hurdle as replacement**\
+`The Rockies will turn to a former manager to fix an offense that has scored the fewest runs in Major League Baseball.`\
+https://nytimes.com/athletic/6288098/2025/04/17/rockies-fire-hensley-meulens-clint-hurdle-hitting-coach/
+
 **School Vouchers Won in Texas. Next Up, the Nation.**\
 `Choice laws have now passed in every major Republican state. Congress and President Trump are now aiming at blue states that have resisted vouchers for decades.`\
 https://nytimes.com/2025/04/17/us/school-choice-trump.html

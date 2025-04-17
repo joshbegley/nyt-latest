@@ -1,3 +1,11 @@
+**The Briefing: Frankfurt 0 Spurs 1 (1-2 agg) - Was this vindication for Postecoglou?**\
+`The major talking points analysed from the Europa League quarter-final second leg in Germany`\
+https://nytimes.com/athletic/6283978/2025/04/17/eintracht-frankfurt-tottenham-europa-league-result-analysis/
+
+**Time for a Civic Uprising**\
+`It will take a concerted effort by every sector of our society to respond to Trumpism’s threat.`\
+https://nytimes.com/2025/04/17/opinion/trump-harvard-law-firms.html
+
 **Canada's Marsch handed extra ban for 'unacceptable conduct' after U.S. red card**\
 `Concacaf sanctioned Marsch for "unacceptable conduct towards the match officials and "delaying the restart of the match".`\
 https://nytimes.com/athletic/6288177/2025/04/17/jesse-marsch-canada-ban-usmnt/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/17/world/australia/katie-perry-suing-katy-perry-aust
 **Here’s What to Know About Rare Earth Minerals and Renewable Energy**\
 `The shift to cleaner power needs resources from China. An export ban just cut off some supplies.`\
 https://nytimes.com/2025/04/17/climate/rare-earth-minerals-renewable-energy.html
-
-**Leaving the U.S. for College or Grad School? Tell Us More.**\
-`The New York Times is looking to hear from students who are considering attending schools abroad because of Trump administration policies.`\
-https://nytimes.com/2025/04/17/us/college-universities-trump-mood.html
-
-**Court, in Strong Words, Presses White House to Play Active Role in Freeing Maryland Man**\
-`Regardless of whether the man, Kilmar Armando Abrego Garcia, is a member of MS-13, the appeals court wrote, he is entitled to due process.`\
-https://nytimes.com/2025/04/17/us/politics/appeals-court-white-house-deportee.html
 
