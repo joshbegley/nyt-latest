@@ -1,3 +1,7 @@
+**Power Outage in Puerto Rico Leaves Train Passengers Stranded**\
+`The passengers had to evacuate onto the overpass where their train lost power. More than 1.4 million customers on the island lost power.`\
+https://nytimes.com/video/world/americas/100000010115065/puerto-rico-power-blackout-electricity.html
+
 **Canadiens clinch first playoff berth since reaching Cup Final in 2021**\
 `Montreal, led by its young core, completed a late-season push to the playoffs that bodes well for what the future might bring.`\
 https://nytimes.com/athletic/6275067/2025/04/16/montreal-canadiens-clinch-2025-nhl-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6285677/2025/04/16/raiders-kolton-miller-extension-
 **Mother of Woman Killed by Immigrant Speaks at White House Briefing**\
 `The appearance by Patty Morin came as a federal judge threatened the Trump administration with a contempt-of-court investigation over its deportation flights to El Salvador.`\
 https://nytimes.com/2025/04/16/us/politics/immigrant-killing-deportations-leavitt-garcia.html
-
-**Kent State fired Kenni Burns after probe into 6-figure loan from booster**\
-`The documents also listed $16,000 in questionable expenses made or authorized by Burns on his university purchasing card.`\
-https://nytimes.com/athletic/6285693/2025/04/16/kenni-burns-fired-kent-state-investigation/
 
