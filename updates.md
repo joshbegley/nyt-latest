@@ -1,3 +1,15 @@
+**I.R.S. Said to Be Considering Whether to Revoke Harvard’s Tax-Exempt Status**\
+`The move would be a major escalation of the Trump administration’s attempts to choke off federal money and support for the leading research university.`\
+https://nytimes.com/2025/04/16/us/politics/trump-irs-harvard.html
+
+**Review: Caryl Churchill Times Four Makes an Infinity of Worlds**\
+`“Glass. Kill. What If If Only. Imp,” a new collection of one-acts by the great British playwright, is a cause for celebration, wonderment and grief.`\
+https://nytimes.com/2025/04/16/arts/review-caryl-churchill-glass-kill-what-if-only-imp.html
+
+**Bit of Ballet Wear**\
+`Ilan and Shimon Kolkowitz give us good advice as they make their New York Times Crossword debut.`\
+https://nytimes.com/2025/04/16/crosswords/daily-puzzle-2025-04-17.html
+
 **Power Outage in Puerto Rico Leaves Train Passengers Stranded**\
 `The passengers had to evacuate onto the overpass where their train lost power. More than 1.4 million customers on the island lost power.`\
 https://nytimes.com/video/world/americas/100000010115065/puerto-rico-power-blackout-electricity.html
