@@ -1,3 +1,7 @@
+**One week before draft, Brad Holmes talks trade history, development and red flags**\
+`Lions general manager Brad Holmes talks all things draft, trades and team building. `\
+https://nytimes.com/athletic/6287705/2025/04/17/detroit-lions-brad-holmes-nfl-draft/
+
 **Where to Cry, and Other Restaurant Requests**\
 `Lunch for a courthouse wedding? Fresh cookies after 6 p.m.? We have answers.`\
 https://nytimes.com/2025/04/17/dining/where-to-cry-and-other-restaurant-requests.html
