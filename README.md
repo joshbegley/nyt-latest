@@ -1,5 +1,5 @@
 **Texas Is Poised to Create a $1 Billion Private School Voucher Program**\
-`Students would receive as much as $10,000 for tuition or home-schooling. The Texas House passed the plan Thursday, after a well-financed campaign by President Trump’s allies.`\
+`The Texas House approved the plan, part of a push by President Trump’s allies to offer up to $10,000 for private school, home-school or virtual learning.`\
 https://nytimes.com/2025/04/17/us/texas-trump-private-school-vouchers.html
 
 **The Hidden Torments of the Firefighter With O.C.D.**\
