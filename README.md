@@ -1,3 +1,7 @@
+**As a Mets rookie makes his long-shot MLB debut, the scout who signed him is beating his own odds**\
+`Justin Hagenman was a 23rd round pick in 2018. The Dodgers scout who signed him, Jonah Rosenthal, is recovering from a stroke in December.`\
+https://nytimes.com/athletic/6285741/2025/04/16/mets-justin-hagenman-mlb-debut-scout-stroke/
+
 **Syracuse coach Fran Brown on top WR Trebor Pena's transfer: 'We paid him enough'**\
 `Brown said his leading receiver entered the transfer portal after he asked for a larger NIL deal Brown wasn't comfortable granting.`\
 https://nytimes.com/athletic/6285775/2025/04/16/syracuse-football-trebor-pena-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/04/16/us/trump-news/heres-what-happened-on-wednesd
 **Twins takeaways: Mounting injuries, aggressive base running, Edouard Julien's defense**\
 `The series win was the byproduct of aggressive base running, productive outs and good defense from a team looking for signs of life.`\
 https://nytimes.com/athletic/6285608/2025/04/16/twins-beat-mets-extra-innings-takeaways/
-
-**Agreement to bring Commanders' stadium to D.C. taking shape**\
-`A framework has emerged that indicates the Commanders would pay most of the cost of the mixed-use project on the 174-acre federal land site.`\
-https://nytimes.com/athletic/6285519/2025/04/16/commanders-stadium-dc-location-agreement/
 
