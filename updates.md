@@ -1,4 +1,8 @@
 **European Central Bank Cuts Rates Amid Tariff Uncertainty**\
+`Policymakers lowered rates a quarter point and said that the region’s growth outlook had “deteriorated” because of rising trade tensions.`\
+https://nytimes.com/2025/04/17/business/european-central-bank-rates-tariffs-trump.html
+
+**European Central Bank Cuts Rates Amid Tariff Uncertainty**\
 `Optimism has rapidly given ways to fears that the region is at risk of recession if business investment and consumer spending is suppressed by economic worries.`\
 https://nytimes.com/2025/04/17/business/european-central-bank-rates-tariffs-trump.html
 
