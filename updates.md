@@ -1,3 +1,12 @@
+**Playboi Carti and His Offspring Ponder Life After Rage-Rap**\
+`As rap continues to move in chaotic directions, the Atlanta M.C. Ken Carson and the electro-pop singer 2hollis are harnessing the power of music that moves bodies.`\
+https://nytimes.com/2025/04/17/arts/music/playboi-carti-ken-carson-2hollis.html
+
+**Champions League outright odds: Barca and PSG favourites, Inter outsiders?**\
+`Sam Tighe explores the changing outright betting markets in the aftermath of the Champions League quarter-finals. 
+`\
+https://nytimes.com/athletic/6287087/2025/04/17/champions-league-outright-odds-betting-predictions/
+
 **Champions League outright odds: Barca and PSG favourites, Inter outsiders?**\
 `Sam Tighe explores the changing outright betting markets in the aftermath of the Champions League quarter-finals. 
 `\
