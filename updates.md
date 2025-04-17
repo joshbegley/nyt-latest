@@ -1,3 +1,7 @@
+**Twins takeaways: Mounting injuries, aggressive base running, Julien's defense**\
+`The series win was the byproduct of aggressive base running, productive outs and good defense from a team looking for signs of life.`\
+https://nytimes.com/athletic/6285608/2025/04/16/twins-beat-mets-extra-innings-takeaways/
+
 **As a Mets rookie makes his long-shot MLB debut, the scout who signed him is beating his own odds**\
 `Justin Hagenman was a 23rd round pick in 2018. The Dodgers scout who signed him, Jonah Rosenthal, is recovering from a stroke in December.`\
 https://nytimes.com/athletic/6285741/2025/04/16/mets-justin-hagenman-mlb-debut-scout-stroke/
