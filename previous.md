@@ -1,3 +1,19 @@
+**Police Respond to Active Shooter Incident at Florida State University**\
+`Police responded to reports of a shooting at the student union building shortly before noon at the Florida State University campus in Tallahassee on Thursday.`\
+https://nytimes.com/video/us/100000010116364/active-shooter-florida-state-university.html
+
+**Notre Dame's Steve Angeli to enter transfer portal: Reports**\
+`If the spring game was a referendum on who slotted where at QB, it’s not clear if Angeli lost the starting job, but he didn't win it.`\
+https://nytimes.com/athletic/6287706/2025/04/17/notre-dame-steve-angeli-transfer-portal/
+
+**Supreme Court to Hear Arguments on Trump Plan to End Birthright Citizenship**\
+`The Trump administration had asked the justices to lift a nationwide pause on the policy as lower court challenges continue.`\
+https://nytimes.com/2025/04/17/us/politics/supreme-court-birthright-citizenship.html
+
+**France’s Richest Man Counted Trump as a Friend. He Still Faces Tariffs.**\
+`The trade war has hurt the Louis Vuitton Moët Hennessy luxury empire. Bernard Arnault, head of the company, said a failure to strike a deal with Mr. Trump would be “the fault of Brussels.”`\
+https://nytimes.com/2025/04/17/business/trump-tariffs-lvmh-bernard-arnault.html
+
 **Is it Josh Simmons or bust for the Chiefs in Round 1 of the NFL Draft?**\
 `In his pre-draft news conference, GM Brett Veach said the Chiefs have just 13 prospects with a first-round grade on their board.`\
 https://nytimes.com/athletic/6287618/2025/04/17/chiefs-nfl-draft-brett-veach-josh-simmons/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6287523/2025/04/17/bruins-charlie-mcavoy-infection/
 **Release of E.P.A. Climate Grants Is Paused by New Court Ruling**\
 `After a federal judge on Wednesday ordered the release of up to $650 million in frozen grants, an appeals court temporarily halted the payouts.`\
 https://nytimes.com/2025/04/17/climate/epa-climate-grants-green-bank.html
-
-**8 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2025/04/17/books/review/new-books-recommendations.html
-
-**Chelsea vs Man Utd moved to Friday, avoids clash with Women's FA Cup final**\
-`The game had been scheduled for Sunday, May 18 at 3pm (BST) but has been brought forward after being selected for television broadcast.`\
-https://nytimes.com/athletic/6287436/2025/04/17/chelsea-manchester-united-fixture-rearrangement/
-
-**NHL playoff schedule set: Here are the dates and TV networks for all 8 first-round series**\
-`The playoffs will begin this weekend with some high-profile matchups.`\
-https://nytimes.com/athletic/6285949/2025/04/17/nhl-playoff-schedule-2025/
-
-**Rashid Johnson Finds His Promised Land at the Guggenheim**\
-`The artist’s first major museum survey fills Frank Lloyd Wright’s spiral with a rich mix of media, a view of the polymathic flux of a 25-year career, and a sense of healing.`\
-https://nytimes.com/2025/04/17/arts/design/rashid-johnson-guggenheim.html
 
