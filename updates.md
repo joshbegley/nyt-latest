@@ -1,3 +1,19 @@
+**Ukrainian tennis player files lawsuit against WTA Tour over response to Russian invasion**\
+`Tsurenko alleges that the WTA Tour and its chairman, Steve Simon, have breached contract and caused “emotional distress.”`\
+https://nytimes.com/athletic/6286454/2025/04/17/lesia-tsurenko-lawsuit-wta-tour-steve-simon/
+
+**Powell Faces Pressure From the Markets and Trump Over Rates**\
+`The Fed chair signaled the central bank will stand pat on borrowing costs despite President Trump’s trade fight. Investors and the president aren’t happy.`\
+https://nytimes.com/2025/04/17/business/dealbook/powell-fed-rates-markets-trump.html
+
+**Celtics-Magic NBA playoff series: Whom to watch, X-factors and predictions**\
+`Celtics writer Jay King and Magic writer Josh Robbins discuss what they expect from this first-round series. `\
+https://nytimes.com/athletic/6285443/2025/04/17/celtics-magic-nba-playoffs-2025/
+
+**Masai Ujiri is back where he started with Raptors, trying to reclaim his reputation**\
+`The Raptors president's plan of attack has changed, but his ambitions have not. `\
+https://nytimes.com/athletic/6284936/2025/04/17/masai-ujiri-raptors-season-end-nba/
+
 **2025 NHL playoff preview: Los Angeles Kings vs. Edmonton Oilers**\
 `The Kings' depth and all-around game are stronger than ever, but can they contain dynamic Oilers duo Connor McDavid and Leon Draisaitl?`\
 https://nytimes.com/athletic/6281771/2025/04/17/nhl-playoffs-2025-kings-oilers/
