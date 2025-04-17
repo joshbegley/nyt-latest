@@ -1,3 +1,19 @@
+**NHL playoff schedule set: Here are all the dates for all 8 first-round series**\
+`The playoffs will begin this weekend with some high-profile matchups.`\
+https://nytimes.com/athletic/6285949/2025/04/17/nhl-playoff-schedule-2025/
+
+**Rashid Johnson Finds His Promised Land at the Guggenheim**\
+`The artist’s first major museum survey fills Frank Lloyd Wright’s spiral with a rich mix of media, a view of the polymathic flux of a 25-year career, and a sense of healing.`\
+https://nytimes.com/2025/04/17/arts/design/rashid-johnson-guggenheim.html
+
+**Multiple People Are Injured in Florida State University Shooting**\
+`Gunshots were reported at the student union building on the university’s campus in Tallahassee shortly after noon on Thursday.`\
+https://nytimes.com/2025/04/17/us/fsu-shooting-tallahassee.html
+
+**Neal Pionk signs extension to stay with Winnipeg Jets for six more years**\
+`Pionk is another pending UFA who has opted to remain in Winnipeg rather than test the open market.`\
+https://nytimes.com/athletic/6287547/2025/04/17/neal-pionk-winnipeg-jets-extension/
+
 **Discord App Exposes Children to Abuse and Graphic Content, Lawsuit Says**\
 `The messaging platform misled parents about its safety settings and turned a blind eye to explicit content, New Jersey prosecutors said.`\
 https://nytimes.com/2025/04/17/nyregion/discord-lawsuit-new-jersey.html

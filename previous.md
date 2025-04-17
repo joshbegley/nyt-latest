@@ -1,3 +1,19 @@
+**NHL playoff schedule set: Here are all the dates for all 8 first-round series**\
+`The playoffs will begin this weekend with some high-profile matchups.`\
+https://nytimes.com/athletic/6285949/2025/04/17/nhl-playoff-schedule-2025/
+
+**Rashid Johnson Finds His Promised Land at the Guggenheim**\
+`The artist’s first major museum survey fills Frank Lloyd Wright’s spiral with a rich mix of media, a view of the polymathic flux of a 25-year career, and a sense of healing.`\
+https://nytimes.com/2025/04/17/arts/design/rashid-johnson-guggenheim.html
+
+**Multiple People Are Injured in Florida State University Shooting**\
+`Gunshots were reported at the student union building on the university’s campus in Tallahassee shortly after noon on Thursday.`\
+https://nytimes.com/2025/04/17/us/fsu-shooting-tallahassee.html
+
+**Neal Pionk signs extension to stay with Winnipeg Jets for six more years**\
+`Pionk is another pending UFA who has opted to remain in Winnipeg rather than test the open market.`\
+https://nytimes.com/athletic/6287547/2025/04/17/neal-pionk-winnipeg-jets-extension/
+
 **Discord App Exposes Children to Abuse and Graphic Content, Lawsuit Says**\
 `The messaging platform misled parents about its safety settings and turned a blind eye to explicit content, New Jersey prosecutors said.`\
 https://nytimes.com/2025/04/17/nyregion/discord-lawsuit-new-jersey.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6287096/2025/04/17/fantasy-baseball-bullpen-report-
 **Harris Will Help Democrats Raise Cash as She Steps Back Into Politics**\
 `Still weighing her next moves, former Vice President Kamala Harris is set to headline a fund-raiser for the Democratic National Committee next month in New York.`\
 https://nytimes.com/2025/04/17/us/politics/kamala-harris-dnc-fundraiser.html
-
-**Kings hiring longtime NBA executive Scott Perry as next general manager**\
-`Perry fills Sacramento's GM role after the Kings parted ways with former manager Monte McNair`\
-https://nytimes.com/athletic/6287430/2025/04/17/scott-perry-kings-gm-hired/
-
-**This Spicy Clam Chowder Is St. Augustine’s Best-Kept Secret**\
-`Mary Ellen Masters and her crew serve Florida history, with a fiery kick, at the St. Ambrose Spring Fair.`\
-https://nytimes.com/2025/04/17/dining/spicy-clam-chowder.html
-
-**Tyler Shough is the quarterback everyone in NFL circles is talking about**\
-`If you're looking for a surprise first-round pick among this year's QBs, Shough is probably your guy.`\
-https://nytimes.com/athletic/6281349/2025/04/17/tyler-shough-nfl-draft-first-round-buzz/
-
-**Refs missed 4 late calls in Warriors' Play-In win over Grizzlies, NBA says**\
-`Among the most significant errors was a missed foul on Draymond Green, who should have earned a sixth and exited the game with 1:29 left.`\
-https://nytimes.com/athletic/6287291/2025/04/17/referees-warriors-grizzlies-play-in-missed-calls/
 
