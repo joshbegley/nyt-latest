@@ -1,40 +1,40 @@
-**Texas Is Poised to Create a $1 Billion Private School Voucher Program**\
-`The Texas House approved the plan, part of a push by President Trump’s allies to offer up to about $10,000 for private school, home-school or virtual learning.`\
-https://nytimes.com/2025/04/17/us/texas-trump-private-school-vouchers.html
+**The Supreme Court Can’t Save America, but Here’s What It Can Do**\
+`The justices and the American people must hold the line together.`\
+https://nytimes.com/2025/04/17/opinion/supreme-court-trump-abrego-garcia.html
 
-**The Hidden Torments of the Firefighter With O.C.D.**\
-`For years, Timmy Reen hid his mental illness from everyone at his New York City firehouse — until his secret was forced out in the open.`\
-https://nytimes.com/2025/04/17/nyregion/firefighter-mental-health-ocd.html
+**Seeking a Hudson Valley Homestead That Could House Three Generations**\
+`After growing up in Beacon, N.Y., and drifting apart as adults, two siblings plotted their return — and brought their mother and kids along, too.`\
+https://nytimes.com/interactive/2025/04/17/realestate/hudson-valley-kingston-saugerties-homes.html
 
-**Brick Wall**\
-`What do you think this image is communicating?`\
-https://nytimes.com/2025/04/17/learning/brick-wall.html
+**Michigan’s Newest Senate Candidate Urges Tougher Stance on Trump**\
+`Dr. Abdul El-Sayed, a progressive former public health official, is joining the Democratic race to succeed Senator Gary Peters, who is retiring.`\
+https://nytimes.com/2025/04/17/us/politics/michigan-senate-race-abdul-el-sayed.html
 
-**The Child Care Crisis Is Motivating These New York City Voters**\
-`Parents are fed up, and the candidates for mayor appear to be paying attention. Many have built campaigns on a promise to make New York more affordable, with child care as a centerpiece.`\
-https://nytimes.com/2025/04/17/nyregion/new-york-child-care-voters.html
+**Even Levitating in Space, Katy Perry Manages to Get Dunked On**\
+`The maker of numerous pop hits has always had trouble getting respect.`\
+https://nytimes.com/2025/04/17/style/katy-perry-blue-origin.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/04/17/crosswords/spelling-bee-forum.html
+**Republican Lawmakers Face Fresh Backlash to Trump at Home**\
+`Despite some attempts to create controlled environments aimed at thwarting disruptions by protesters, congressional Republicans who are holding town halls are catching continued heat from their constituents.`\
+https://nytimes.com/2025/04/17/us/politics/republican-lawmakers-trump-backlash.html
 
-**Watching Oliver Glasner's emotions during 90 stressful minutes at St James' Park**\
-`The Crystal Palace manager is an emotional figure — as a tough week at the office has demonstrated `\
-https://nytimes.com/athletic/6278253/2025/04/17/crystal-palace-glasner-emotions-watch/
+**A Baritone Walks in Bernstein’s and Mahler’s Footsteps**\
+`Thomas Oliemans came to New York to sing at the Metropolitan Opera. While he was here, he took a musical walking tour.`\
+https://nytimes.com/2025/04/17/nyregion/bernstein-mahler-thomas-oliemans.html
 
-**Stephen Colbert Defends PBS and NPR Against Trump’s Defunding Plan**\
-`Colbert said both public media entities are “already operating on a shoestring budget — Daniel Tiger can’t even afford to wear pants.”`\
-https://nytimes.com/2025/04/17/arts/television/stephen-colbert-pbs-npr-trump.html
+**How Is Economic Uncertainty Affecting You and Your Family?**\
+`President Trump’s latest wave of on-again, off-again tariffs has created anxiety for global markets, businesses and consumers.`\
+https://nytimes.com/2025/04/17/learning/how-is-economic-uncertainty-affecting-you-and-your-family.html
 
-**Word of the Day: tureen**\
-`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/04/17/learning/word-of-the-day-tureen.html
+**The Emergency Is Here**\
+`Trump is disappearing people to a Salvadoran prison for terrorists. And he says he wants to send “homegrown” Americans there next.`\
+https://nytimes.com/2025/04/17/opinion/ezra-klein-podcast-asha-rangappa.html
 
-**Kings, GM Monte McNair agree to part ways after Play-In loss to Mavericks**\
-`McNair's departure follows the Kings' 120-106 loss to the Mavericks, which bounced Sacramento from the postseason.`\
-https://nytimes.com/athletic/6286283/2025/04/17/kings-general-manager-monte-mcnair-fired/
+**Bret Stephens on What Trump Gets Right, Wrong and Really, Really Wrong**\
+`The columnist on the value of acknowledging the president’s wins.`\
+https://nytimes.com/2025/04/17/opinion/trump-critic-conservatism.html
 
-**Rudiger on the rampage, rugby tackles, and Rice vs Bellingham – breaking down the chaos at the Bernabeu**\
-`Analysing all the needle, scrapping and referee controversy from Arsenal's outstanding Champions League win against Real Madrid`\
-https://nytimes.com/athletic/6284944/2025/04/17/real-madrid-arsenal-rudiger-rice-saka-bellingham-referee-controversy/
+**Patriots mailbag: Is Will Campbell a done deal? Who will have final say in the draft?**\
+`How legit are the arm-length concerns with Campbell, and can he really be an NFL left tackle? Could the Pats still trade back in Round 1?`\
+https://nytimes.com/athletic/6284442/2025/04/17/patriots-nfl-draft-mailbag-will-campbell/
 
