@@ -1,3 +1,7 @@
+**Measles Outbreaks in Canada and Mexico Bring Grim Prognosis**\
+`Surges in Mennonite communities near the U.S. border may complicate containment efforts, experts say.`\
+https://nytimes.com/2025/04/17/health/measles-texas-mexico-canada.html
+
 **Trump Administration Aims to Sell Housing Department Headquarters**\
 `The building has been added to a list of properties that the administration says it is trying to offload in order to eliminate waste.`\
 https://nytimes.com/2025/04/17/us/politics/trump-housing-urban-development-building.html
