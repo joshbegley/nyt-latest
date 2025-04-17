@@ -1,3 +1,11 @@
+**What Browns GM Andrew Berry did and didn't say in pre-draft news conference**\
+`Cleveland holds the No. 2 pick in next week's NFL Draft and has not tipped its hand about the direction it is going to go in. `\
+https://nytimes.com/athletic/6287826/2025/04/17/browns-gm-nfl-draft-2025-travis-hunter/
+
+**In 2014, Florida State University Reeled From Another Shooting**\
+`The campus, where a gunman killed two people on Thursday, experienced another shooting over a decade ago that left three people injured.`\
+https://nytimes.com/2025/04/17/us/fsu-shooting-library-2014.html
+
 **The Briefing: Chelsea 1 Legia Warsaw 2 (4-2 agg) - Semi-finals secured but boos as Maresca's side lose at home**\
 `Simon Johnson and Dan Sheldon break down the main talking points from Chelsea's 2-1 loss to Legia Warsaw`\
 https://nytimes.com/athletic/6283980/2025/04/17/chelsea-1-legia-warsaw-2-cucurella-conference-league/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6288047/2025/04/17/aaron-rodgers-aaron-glenn-jets-c
 **Rockies fire hitting coach Hensley Meulens, tap Clint Hurdle as replacement**\
 `The Rockies will turn to a former manager to fix an offense that has scored the fewest runs in Major League Baseball.`\
 https://nytimes.com/athletic/6288098/2025/04/17/rockies-fire-hensley-meulens-clint-hurdle-hitting-coach/
-
-**Maryland Senator Turned Away From El Salvador Prison by Military**\
-`Armed officials stopped Senator Chris Van Hollen from trying to visit the prison where Kilmar Armando Abrego Garcia has been held for over a month.`\
-https://nytimes.com/2025/04/17/us/politics/senator-chris-van-hollen-el-salvador-prison.html
-
-**Deion Sanders addresses jersey retirement debate ahead of spring game**\
-`Colorado will host its annual Black & Gold Day spring game in Boulder on Saturday, which will air nationally on ESPN2.`\
-https://nytimes.com/athletic/6288027/2025/04/17/colorado-football-deion-sanders-jersey-retirement-debate/
 
