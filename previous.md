@@ -1,3 +1,7 @@
+**Here’s what happened on Wednesday.**\
+`By The New York Times`\
+https://nytimes.com/live/2025/04/16/us/trump-news/heres-what-happened-on-wednesday
+
 **Aggressive base running, clutch hitting lifts wounded Twins over Mets in 10 innings**\
 `The series win was the byproduct of aggressive base running, productive outs and good defense from a team looking for signs of life.`\
 https://nytimes.com/athletic/6285608/2025/04/16/twins-beat-mets-extra-innings-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/16/us/politics/trump-universities-law-firms-deals.ht
 **Iran Says Shifting U.S. Messages on Nuclear Talks Are ‘Not Helpful’**\
 `But Iran’s foreign minister said Tehran planned to participate “calmly and coolly” in the negotiations. Both sides will meet in Rome on Saturday for a second round, Iran’s Foreign Ministry said.`\
 https://nytimes.com/2025/04/16/world/middleeast/iran-trump-nuclear-talks.html
-
-**Astronomers Detect a Possible Signature of Life on a Distant Planet**\
-`Further studies are needed to determine whether K2-18b, which orbits a star 120 light-years away, is inhabited, or even habitable.`\
-https://nytimes.com/2025/04/16/science/astronomy-exoplanets-habitable-k218b.html
 

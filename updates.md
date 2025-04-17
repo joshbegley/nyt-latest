@@ -1,3 +1,7 @@
+**Here’s what happened on Wednesday.**\
+`By The New York Times`\
+https://nytimes.com/live/2025/04/16/us/trump-news/heres-what-happened-on-wednesday
+
 **Aggressive base running, clutch hitting lifts wounded Twins over Mets in 10 innings**\
 `The series win was the byproduct of aggressive base running, productive outs and good defense from a team looking for signs of life.`\
 https://nytimes.com/athletic/6285608/2025/04/16/twins-beat-mets-extra-innings-takeaways/
