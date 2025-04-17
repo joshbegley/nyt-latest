@@ -1,3 +1,11 @@
+**Democrats Step Up Trump Resistance as Base Hungers for More of a Fight**\
+`Out of power in Congress, Democrats who were slow to fight back against President Trump are increasingly finding ways to do so. But activists want much more.`\
+https://nytimes.com/2025/04/17/us/politics/democrats-trump-resistance.html
+
+**At Least 6 People Injured in Florida State University Shooting**\
+`Gunshots were reported at the student union building on the university’s campus in Tallahassee shortly after noon on Thursday.`\
+https://nytimes.com/2025/04/17/us/fsu-shooting-tallahassee.html
+
 **The Choice That a Politician Needs to Make**\
 `Find common ground with President Trump, or resist? Also: Medical decisions; climate research cuts; deep sea mining risks; a gift to Harvard.`\
 https://nytimes.com/2025/04/17/opinion/trump-democrats-republicans.html
