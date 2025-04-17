@@ -1,3 +1,24 @@
+**Watch: Have the Mavs found their winning formula at the right time?**\
+`"The Athletic NBA Daily" discuss the Mavericks’ Play-In win over Sacramento and how they match up against Memphis.`\
+https://nytimes.com/athletic/6286841/2025/04/17/nba-daily-dallas-mavericks-playoffs/
+
+**The Bounce: Nikola Jokić's no-look mastery highlights the NBA's annual Bouncies awards**\
+`The 2024-25 NBA regular season is done-zo! That means it's time for your annual Bouncies awards!`\
+https://nytimes.com/athletic/6287056/2025/04/17/nikola-jokic-nuggets-no-look-pass-nba-playoffs-bouncies-the-bounce/
+
+**Israeli Strike Kills at Least a Dozen in ‘Humanitarian Zone,’ Gazan Officials Say**\
+`Gaza’s Civil Defense, the local emergency rescue service, reported that an Israeli strike overnight into Thursday in the Mawasi encampment area killed at least a dozen people, including children. The Israeli military did not immediately respond to a request for comment.`\
+https://nytimes.com/video/world/middleeast/100000010115594/gaza-israeli-strike-humanitarian-zone-mawasi.html
+
+**Google Is a Monopolist in Online Advertising Tech, Judge Says**\
+`The ruling was the second time in a year that a federal court had found that Google had acted illegally to maintain its dominance.`\
+https://nytimes.com/2025/04/17/technology/google-ad-tech-antitrust-ruling.html
+
+**Champions League outright odds: Barca and PSG favourites, Inter outsiders?**\
+`Sam Tighe explores the changing outright betting markets in the aftermath of the Champions League quarter-finals. 
+`\
+https://nytimes.com/athletic/6287087/2025/04/17/champions-league-outright-odds-betting-predictions/
+
 **Champions League outright odds: Barca and PSG favourites, Inter outsiders?**\
 `Sam Tighe explores the changing outright betting markets in the aftermath of the Champions League quarter-finals. 
 `\

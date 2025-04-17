@@ -1,3 +1,7 @@
+**This Miso-Sesame Vinaigrette Is Dinner Insurance**\
+`Toss it with noodles, toss it with greens, spoon it on fish or steak or chicken or tofu. It’s so good and so versatile.`\
+https://nytimes.com/2025/04/17/dining/this-miso-sesame-vinaigrette-is-dinner-insurance.html
+
 **Watch: Have the Mavs found their winning formula at the right time?**\
 `"The Athletic NBA Daily" discuss the Mavericks’ Play-In win over Sacramento and how they match up against Memphis.`\
 https://nytimes.com/athletic/6286841/2025/04/17/nba-daily-dallas-mavericks-playoffs/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6283230/2025/04/17/athletic-football-show-nfl-draft
 **Using strikeout rate to uncover surging hitters and buy-low candidates in fantasy baseball**\
 `Owen Poindexter examines year-over-year volatility in K rate, unearthing some hot starts to believe in, like the Athletics' Shea Langeliers.`\
 https://nytimes.com/athletic/6285429/2025/04/17/fantasy-baseball-k-rate-buy-low-hot-starts/
-
-**Lee Corso to retire from 'College GameDay' after Week 1 after 38 years, hundreds of headgear picks**\
-`Corso's weekly headgear selections have been a staple of college football Saturday's for nearly three decades.`\
-https://nytimes.com/athletic/5867913/2025/04/17/lee-corso-college-gameday-retirement/
 
