@@ -1,3 +1,7 @@
+**Sheriff vows to do ‘everything we can to prosecute’ after identifying the gunman as a deputy’s son.**\
+`The 20-year-old gunman used his mother’s service weapon, which she had bought for personal use, said the sheriff of Leon County, Fla.`\
+https://nytimes.com/live/2025/04/17/us/fsu-shooting-tallahassee/fsu-shooting-sheriff-gunman
+
 **Francis Davis, Sharp-Eared Jazz Critic, Is Dead at 78**\
 `He wrote prolifically about various aspects of the arts and popular culture. But he kept his focus on jazz, celebrating its past while worrying about its future.`\
 https://nytimes.com/2025/04/17/arts/music/francis-davis-dead.html
