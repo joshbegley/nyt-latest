@@ -3,10 +3,10 @@
 https://nytimes.com/athletic/6285897/2025/04/16/nationals-pirates-benches-clear-mccutchen-lopez/
 
 **Wednesday's NBA Play-In takeaways: Heat dominate Bulls, Kings host Mavs**\
-`NBA Play-In action continues Wednesday with two postseason elimination games.`\
+`NBA Play-In action continues with two postseason elimination games.`\
 https://nytimes.com/athletic/6285785/2025/04/16/nba-play-in-heat-bulls-mavericks-kings/
 
-**I.R.S. Is Said to Be Considering Whether to Revoke Harvard’s Tax-Exempt Status**\
+**I.R.S. Said to Be Considering Whether to Revoke Harvard’s Tax-Exempt Status**\
 `The move would be a major escalation of the Trump administration’s attempts to choke off federal money and support for the leading research university.`\
 https://nytimes.com/2025/04/16/us/politics/trump-irs-harvard.html
 
