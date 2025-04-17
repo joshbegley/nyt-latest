@@ -1,3 +1,7 @@
+**Pierre Sage interview: Lyon sacking, working with Textor and Cherki's talent**\
+`The 45-year-old was sacked by Lyon in January but believes his former side have what it takes to end Manchester United's Europe League hopes`\
+https://nytimes.com/athletic/6283217/2025/04/17/pierre-sage-interview-lyon-cherki-textor/
+
 **Thursday Briefing: A Judge’s Pushback Against Trump**\
 `Plus, a look at the Grand Egyptian Museum.`\
 https://nytimes.com/2025/04/17/briefing/judge-trump-contempt-iran-nvidia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6284943/2025/04/16/connor-mcdavid-100-points-stats-
 **Nationals' López ejected after throwing pitch near McCutchen's head**\
 `Jorge López threw a slider high and inside to Andrew McCutchen, who fell to the ground to avoid the ball.`\
 https://nytimes.com/athletic/6285897/2025/04/16/nationals-pirates-benches-clear-mccutchen-lopez/
-
-**Wednesday's NBA Play-In takeaways: Heat dominate Bulls, Kings host Mavs**\
-`NBA Play-In action continues with two postseason elimination games.`\
-https://nytimes.com/athletic/6285785/2025/04/16/nba-play-in-heat-bulls-mavericks-kings/
 
