@@ -1,3 +1,11 @@
+**Raiders left tackle Kolton Miller wants contract extension: Source**\
+`Miller, who has played for the team for seven seasons, is entering the final year of his contract. `\
+https://nytimes.com/athletic/6285677/2025/04/16/raiders-kolton-miller-extension-offseason-program/
+
+**Mother of Woman Killed by Immigrant Speaks at White House Briefing**\
+`The appearance by Patty Morin came as a federal judge threatened the Trump administration with a contempt-of-court investigation over its deportation flights to El Salvador.`\
+https://nytimes.com/2025/04/16/us/politics/immigrant-killing-deportations-leavitt-garcia.html
+
 **Kent State fired Kenni Burns after probe into 6-figure loan from booster**\
 `The documents also listed $16,000 in questionable expenses made or authorized by Burns on his university purchasing card.`\
 https://nytimes.com/athletic/6285693/2025/04/16/kenni-burns-fired-kent-state-investigation/

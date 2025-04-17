@@ -1,3 +1,11 @@
+**Raiders left tackle Kolton Miller wants contract extension: Source**\
+`Miller, who has played for the team for seven seasons, is entering the final year of his contract. `\
+https://nytimes.com/athletic/6285677/2025/04/16/raiders-kolton-miller-extension-offseason-program/
+
+**Mother of Woman Killed by Immigrant Speaks at White House Briefing**\
+`The appearance by Patty Morin came as a federal judge threatened the Trump administration with a contempt-of-court investigation over its deportation flights to El Salvador.`\
+https://nytimes.com/2025/04/16/us/politics/immigrant-killing-deportations-leavitt-garcia.html
+
 **Kent State fired Kenni Burns after probe into 6-figure loan from booster**\
 `The documents also listed $16,000 in questionable expenses made or authorized by Burns on his university purchasing card.`\
 https://nytimes.com/athletic/6285693/2025/04/16/kenni-burns-fired-kent-state-investigation/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/16/nyregion/empire-wind-farm-trump-ny.html
 **Space Travel and Tuberculosis Research Are Hit by Trump’s Harvard Cuts**\
 `Researchers who have lost funds warned of long-term repercussions, but several said their school should still refuse to comply with the federal government.`\
 https://nytimes.com/2025/04/16/us/trump-harvard-cuts-sarah-fortune-tuberculosis.html
-
-**Trump Waved Off Israeli Strike After Divisions Emerged in His Administration**\
-`Israel developed plans for attacking Iranian nuclear facilities that would have required U.S. assistance. But some administration officials had doubts.`\
-https://nytimes.com/2025/04/16/us/politics/trump-israel-iran-nuclear.html
-
-**School Shooting Suspect Slipped Past Security via Unsecured Door, Police Say**\
-`Five students were wounded in the shooting at Wilmer-Hutchins High School in Dallas, the second one there in just over a year, the authorities said.`\
-https://nytimes.com/2025/04/16/us/dallas-school-shooting-wilmer-hutchins.html
 
