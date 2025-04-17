@@ -1,3 +1,19 @@
+**More Than Half of Puerto Rico Remains Without Power**\
+`It will take at least another day to fully restore service after a series of failures blacked out the whole island on Wednesday, officials said.`\
+https://nytimes.com/2025/04/17/us/puerto-rico-blackout-power.html
+
+**Sculpture Museum in Dallas Names a New Director**\
+`Carlos Basualdo, a veteran curator who has spent most of his career at the Philadelphia Museum of Art, will take over the Nasher Sculpture Center next month.`\
+https://nytimes.com/2025/04/17/arts/design/nasher-sculpture-center-carlos-basualdo.html
+
+**WNBPA says All-Star skills challenge, 3-point shootout earnings to increase**\
+`The payouts will be equivalent to what NBA players receive for winning the 3-point shootout and the skills challenge.`\
+https://nytimes.com/athletic/6285537/2025/04/17/wnbpa-2025-all-star-weekend-prize-pool-increase/
+
+**How Inter's outswinging corners have become a routine part of their success in 2024-25**\
+`Bayern Munich are just the latest side to be undone by Inter's set-piece prowess this season`\
+https://nytimes.com/athletic/6284214/2025/04/17/inter-outswinging-corners-champions-league/
+
 **New CFB rules to charge timeout for fake injury, close Oregon 12-men loophole**\
 `The changes were proposed by the football rules committee in February and approved by the NCAA’s Playing Rules Oversight Panel on Wednesday.`\
 https://nytimes.com/athletic/6284462/2025/04/17/college-football-rules-changes-fake-injuries-timeouts/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5793492/2025/04/17/champions-league-projections/
 **How Angels' Tyler Anderson channeled his 'controlled rage' into success on mound**\
 `A perfectionist on the mound, Anderson is no hothead, but sometimes his intensity elicits an audible curse word that serves to center him.`\
 https://nytimes.com/athletic/6285779/2025/04/17/angels-tyler-anderson/
-
-**Declan Rice was cooking: How Arsenal's all-action midfielder dominated Real Madrid - twice**\
-`On the biggest stage against Madrid, and up against his England team-mate Bellingham, Rice was outstanding to lead his team to the last four`\
-https://nytimes.com/athletic/6283756/2025/04/17/declan-rice-arsenal-real-madrid-champions-league-analysis/
-
-**The new Battle of Ontario: Ridly Greig, Morgan Rielly and the play that reignited a rivalry**\
-`Ridly Greig’s 2024 empty-net slap shot and Morgan Rielly’s cross-check are still fresh for the Leafs and Senators as Round 1 looms.`\
-https://nytimes.com/athletic/6278747/2025/04/17/rielly-greig-leafs-senators-nhl-playoffs/
-
-**What comes next for Canucks after season of dysfunction and disappointment?**\
-`The Canucks will face a series of gut-wrenching decisions as management must pick up the pieces and figure out how to move forward.`\
-https://nytimes.com/athletic/6284840/2025/04/17/canucks-hughes-boeser-pettersson-tocchet/
-
-**Win our playoffs prediction contest by getting one easy question right (you won't)**\
-`It's time for the annual playoff prediction contest, an incredibly simple single-question test that you will almost certainly fail.`\
-https://nytimes.com/athletic/6281448/2025/04/17/nhl-playoffs-prediction-contest-2025/
 

@@ -1,3 +1,7 @@
+**New CFB rules to charge timeout for fake injury, close Oregon 12-men loophole**\
+`The changes were proposed by the football rules committee in February and approved by the NCAA’s Playing Rules Oversight Panel on Wednesday.`\
+https://nytimes.com/athletic/6284462/2025/04/17/college-football-rules-changes-fake-injuries-timeouts/
+
 **European Central Bank Cuts Rates Amid Tariff Uncertainty**\
 `Policymakers lowered rates a quarter point and said that the region’s growth outlook had “deteriorated” because of rising trade tensions.`\
 https://nytimes.com/2025/04/17/business/european-central-bank-rates-tariffs-trump.html
