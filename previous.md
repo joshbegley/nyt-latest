@@ -1,3 +1,7 @@
+**Until Saturday: Flag football can save spring football**\
+`Until Saturday is The Athletic's college football newsletter.`\
+https://nytimes.com/athletic/6287177/2025/04/17/college-flag-football-until-saturday/
+
 **Rashford's Manchester United future? Wirtz to City? - Ask Ornstein**\
 `Once a week, The Athletic’s subscribers can ask David Ornstein for his views on anything from the football world. Here are his answers`\
 https://nytimes.com/athletic/6287083/2025/04/17/manchester-united-transfer-latest-arsenal-manchester-city-david-ornstein/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6287056/2025/04/17/nikola-jokic-nuggets-no-look-pas
 **Israeli Strike Kills at Least a Dozen in ‘Humanitarian Zone,’ Gazan Officials Say**\
 `Gaza’s Civil Defense, the local emergency rescue service, reported that an Israeli strike overnight into Thursday in the Mawasi encampment area killed at least a dozen people, including children. The Israeli military did not immediately respond to a request for comment.`\
 https://nytimes.com/video/world/middleeast/100000010115594/gaza-israeli-strike-humanitarian-zone-mawasi.html
-
-**Google Is a Monopolist in Online Advertising Tech, Judge Says**\
-`The ruling was the second time in a year that a federal court had found that Google had acted illegally to maintain its dominance.`\
-https://nytimes.com/2025/04/17/technology/google-ad-tech-antitrust-ruling.html
 
