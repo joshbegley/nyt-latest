@@ -1,3 +1,7 @@
+**Texas Is Poised to Create a $1 Billion Private School Voucher Program**\
+`Students would receive as much as $10,000 for tuition or home-schooling. The Texas House passed the plan Thursday, after a well-financed campaign by President Trump’s allies.`\
+https://nytimes.com/2025/04/17/us/texas-trump-private-school-vouchers.html
+
 **The Hidden Torments of the Firefighter With O.C.D.**\
 `For years, Timmy Reen hid his mental illness from everyone at his New York City firehouse — until his secret was forced out in the open.`\
 https://nytimes.com/2025/04/17/nyregion/firefighter-mental-health-ocd.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6286283/2025/04/17/kings-general-manager-monte-mcna
 **Rudiger on the rampage, rugby tackles and Rice vs Bellingham — breaking down the chaos at the Bernabeu**\
 `Analysing all the needle, scrapping and referee controversy from Arsenal's outstanding Champions League win against Real Madrid`\
 https://nytimes.com/athletic/6284944/2025/04/17/real-madrid-arsenal-rudiger-rice-saka-bellingham-referee-controversy/
-
-**Real Madrid have superstar talent - but that doesn't make them a good team**\
-`There was ‘remontada’ talk before the second leg against Arsenal — but none of spirit, organisation or quality required to pull it off`\
-https://nytimes.com/athletic/6274415/2025/04/17/real-madrid-stars-teamwork-champions-league/
 
