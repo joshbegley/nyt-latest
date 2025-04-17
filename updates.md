@@ -1,3 +1,15 @@
+**NFL projection model ranks all 32 rosters ahead of the draft: Why are Bears so low?**\
+`The Eagles at No. 1 should surprise no one, but do the Buccaneers and 49ers really belong inside the top 10? `\
+https://nytimes.com/athletic/6280729/2025/04/17/nfl-draft-2025-roster-rankings-projections/
+
+**Central U.S. Faces the Return of Severe Storms and Flooding Threats**\
+`Forecasters warned of heavy rain and thunderstorms, raising the risk of floods through the weekend.`\
+https://nytimes.com/2025/04/17/weather/severe-storms-forecast-easter-weekend.html
+
+**The New York Times International Edition in Print for Friday, April 18, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/04/17/todays-new-york-times-international-edition
+
 **Neymar leaves pitch in tears after sustaining left thigh injury**\
 `Neymar was making his 100th home appearance for Santos, who he rejoined on a short-term deal in January.`\
 https://nytimes.com/athletic/6286508/2025/04/17/neymar-jr-injury-santos/
