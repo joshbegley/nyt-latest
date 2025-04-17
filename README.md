@@ -1,10 +1,14 @@
+**What’s Going On in This Picture? | April 21, 2025**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2025/04/17/learning/whats-going-on-in-this-picture-april-21-2025.html
+
 **Measles Outbreaks in Canada and Mexico Bring Grim Prognosis**\
 `Surges in Mennonite communities near the U.S. border may complicate containment efforts, experts say.`\
 https://nytimes.com/2025/04/17/health/measles-texas-mexico-canada.html
 
 **Trump Administration Aims to Sell Housing Department Headquarters**\
 `The building has been added to a list of properties that the administration says it is trying to offload in order to eliminate waste.`\
-https://nytimes.com/2025/04/17/us/politics/trump-housing-urban-development-building.html
+https://nytimes.com/live/2025/04/17/us/trump-news-updates/trump-housing-urban-development-building
 
 **A witness heard gunfire and hid under a stool.**\
 `By Valerie Crowder`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/17/business/trump-tariffs-lvmh-bernard-arnault.html
 **Is it Josh Simmons or bust for the Chiefs in Round 1 of the NFL Draft?**\
 `In his pre-draft news conference, GM Brett Veach said the Chiefs have just 13 prospects with a first-round grade on their board.`\
 https://nytimes.com/athletic/6287618/2025/04/17/chiefs-nfl-draft-brett-veach-josh-simmons/
-
-**Live Updates: At Least 6 People Injured in Florida State University Shooting**\
-`Gunshots were reported at the student union building on the university’s campus in Tallahassee shortly after noon on Thursday.`\
-https://nytimes.com/live/2025/04/17/us/fsu-shooting-tallahassee
 
