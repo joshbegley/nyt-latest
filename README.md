@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6287826/2025/04/17/browns-gm-nfl-draft-2025-travis-
 `The campus, where a gunman killed two people on Thursday, experienced another shooting over a decade ago that left three people injured.`\
 https://nytimes.com/2025/04/17/us/fsu-shooting-library-2014.html
 
-**The Briefing: Chelsea 1 Legia Warsaw 2 (4-2 agg) - Semi-finals secured but boos as Maresca's side lose at home**\
+**The Briefing: Chelsea 1 Legia Warsaw 2 (4-2 agg) - Semi-finals secured but boos as Maresca's side lose**\
 `Simon Johnson and Dan Sheldon break down the main talking points from Chelsea's 2-1 loss to Legia Warsaw`\
 https://nytimes.com/athletic/6283980/2025/04/17/chelsea-1-legia-warsaw-2-cucurella-conference-league/
 
