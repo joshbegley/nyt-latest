@@ -1,3 +1,19 @@
+**Meloni Meets With Trump, With Tariffs on the Agenda**\
+`Giorgia Meloni has come to the White House representing Italy, but in many ways on behalf of the rest of Europe.`\
+https://nytimes.com/2025/04/17/us/politics/meloni-trump-tariffs.html
+
+**At Trial, Sheryl Sandberg Says Meta Nurtured Instagram and Did Not Stifle It**\
+`In her second day on the stand of a landmark antitrust trial over Meta’s power, Ms. Sandberg, the former chief operating officer, also said the company faced plenty of competition from TikTok.`\
+https://nytimes.com/2025/04/17/technology/meta-antitrust-trial-sheryl-sandberg.html
+
+**Europe and America, at Odds Over Ukraine, Try Talking to Each Other**\
+`President Emmanuel Macron of France hosted a lunch with Secretary of State Marco Rubio and Steve Witkoff, President Trump’s envoy, as European delegations converged on Paris.`\
+https://nytimes.com/2025/04/17/world/europe/europe-france-ukraine-talks.html
+
+**Read the Ruling**\
+`Google violated the Sherman Antitrust Act “by willfully acquiring and maintaining monopoly power” in the online technology ad industry, the court said.`\
+https://nytimes.com/interactive/2025/04/17/technology/google-ads-antrust-ruling.html
+
 **Robert E. McGinnis, Whose Lusty Illustrations Defined an Era, Dies at 99**\
 `In the 1960s and ’70s, his leggy femmes fatales beckoned from paperback covers and posters for movies like “Breakfast at Tiffany’s” and “Thunderball.”`\
 https://nytimes.com/2025/04/17/arts/robert-e-mcginnis-dead.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6284142/2025/04/17/nitro-tuggle-marques-easley-geor
 **Until Saturday: Flag football can save spring football**\
 `Until Saturday is The Athletic's college football newsletter.`\
 https://nytimes.com/athletic/6287177/2025/04/17/college-flag-football-until-saturday/
-
-**Rashford's Manchester United future? Wirtz to City? - Ask Ornstein**\
-`Once a week, The Athletic’s subscribers can ask David Ornstein for his views on anything from the football world. Here are his answers`\
-https://nytimes.com/athletic/6287083/2025/04/17/manchester-united-transfer-latest-arsenal-manchester-city-david-ornstein/
-
-**All the President’s Flatterers**\
-`For Trump’s fawning enablers, Abrego Garcia’s imprisonment is just another feat to applaud.`\
-https://nytimes.com/2025/04/17/opinion/trump-bukele-abrego-garcia.html
-
-**The Dutch Love Their Bicycles. Helmets? Not So Much.**\
-`Cyclists comprise the highest number of road fatalities in the Netherlands. The country has introduced a campaign to promote helmets, but many cyclists are not convinced.`\
-https://nytimes.com/2025/04/17/world/europe/bicycles-helmets-dutch.html
-
-**Saddle Up and Ride … to Walmart?**\
-`Four men casually rode their horses up and down the aisles in Louisiana.`\
-https://nytimes.com/2025/04/17/us/horses-walmart-louisiana.html
 
