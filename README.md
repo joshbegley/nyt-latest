@@ -1,3 +1,7 @@
+**Kent State fired Kenni Burns after probe into 6-figure loan from booster**\
+`The documents also listed $16,000 in questionable expenses made or authorized by Burns on his university purchasing card.`\
+https://nytimes.com/athletic/6285693/2025/04/16/kenni-burns-fired-kent-state-investigation/
+
 **3 Drown After Boat Crash During Fishing Tournament in Alabama**\
 `The men were thrown overboard when two boats collided in Lewis Smith Lake on Wednesday morning, the authorities said.`\
 https://nytimes.com/2025/04/16/us/major-league-fishing-boat-accident-smith-lake.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/16/us/politics/trump-israel-iran-nuclear.html
 **School Shooting Suspect Slipped Past Security via Unsecured Door, Police Say**\
 `Five students were wounded in the shooting at Wilmer-Hutchins High School in Dallas, the second one there in just over a year, the authorities said.`\
 https://nytimes.com/2025/04/16/us/dallas-school-shooting-wilmer-hutchins.html
-
-**Trump’s Threats Force Institutions to Choose: Cut a Deal or Fight Back**\
-`In a hint of a shift in strategy, some of the country’s most powerful institutions have started choosing to resist.`\
-https://nytimes.com/2025/04/16/us/politics/trump-universities-law-firms-deals.html
 
