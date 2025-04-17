@@ -1,3 +1,7 @@
+**Discord App Exposes Children to Abuse and Graphic Content, Lawsuit Says**\
+`The messaging platform misled parents about its safety settings and turned a blind eye to explicit content, New Jersey prosecutors said.`\
+https://nytimes.com/2025/04/17/nyregion/discord-lawsuit-new-jersey.html
+
 **Rams to draft from Los Angeles Fire Department Air Operations**\
 `The Rams will renovate the LAFD Air Operations recreation room in tandem with their ongoing efforts in the community following the fires.`\
 https://nytimes.com/athletic/6286910/2025/04/17/rams-draft-headquarters-los-angeles-fire-department-air-operations/

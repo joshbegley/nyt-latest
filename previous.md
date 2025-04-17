@@ -1,3 +1,7 @@
+**Discord App Exposes Children to Abuse and Graphic Content, Lawsuit Says**\
+`The messaging platform misled parents about its safety settings and turned a blind eye to explicit content, New Jersey prosecutors said.`\
+https://nytimes.com/2025/04/17/nyregion/discord-lawsuit-new-jersey.html
+
 **Rams to draft from Los Angeles Fire Department Air Operations**\
 `The Rams will renovate the LAFD Air Operations recreation room in tandem with their ongoing efforts in the community following the fires.`\
 https://nytimes.com/athletic/6286910/2025/04/17/rams-draft-headquarters-los-angeles-fire-department-air-operations/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6281349/2025/04/17/tyler-shough-nfl-draft-first-rou
 **Refs missed 4 late calls in Warriors' Play-In win over Grizzlies, NBA says**\
 `Among the most significant errors was a missed foul on Draymond Green, who should have earned a sixth and exited the game with 1:29 left.`\
 https://nytimes.com/athletic/6287291/2025/04/17/referees-warriors-grizzlies-play-in-missed-calls/
-
-**A pick-by-pick guide to the first round of a dynasty league SuperFlex rookie draft**\
-`Jeff Haverlack walks you through his strategy and the rookie to target with each selection in the first round of a SuperFlex dynasty draft.`\
-https://nytimes.com/athletic/6287178/2025/04/17/fantasy-football-dynasty-superflex-rookie-draft-strategy-guide/
 
