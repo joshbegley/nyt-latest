@@ -1,3 +1,11 @@
+**Harvard’s Stand Against Trump Is Helping It Raise More Money**\
+`The Trump administration said it would take $2.2 billion in research funds from the school. Some small donors are doing their best to make up for the shortfall.`\
+https://nytimes.com/2025/04/17/us/harvard-donors-trump.html
+
+**Demonstrators brought coffins to the State Dept. to protest cuts to an H.I.V. program.**\
+`By Talya Minsberg and Allison Robbert`\
+https://nytimes.com/live/2025/04/17/us/trump-news-updates/demonstrators-brought-coffins-to-the-state-dept-to-protest-cuts-to-an-hiv-program
+
 **Trump Opens a Huge Marine Protected Zone to Commercial Fishing**\
 `The president said the move was aimed at making the United States the world’s “dominant seafood leader.”`\
 https://nytimes.com/2025/04/17/climate/trump-fishing-marine-protected-zone.html
@@ -6,7 +14,7 @@ https://nytimes.com/2025/04/17/climate/trump-fishing-marine-protected-zone.html
 `Students evacuated after an active shooter opened fire near the university’s student union building on Thursday. Officials identified the shooter as a 20-year-old student at the university and son of a county sheriff’s deputy.`\
 https://nytimes.com/video/us/100000010117166/florida-state-university-mass-shooting.html
 
-**Buium quarterbacks top power play in practice, could debut in Game 1**\
+**Wild's Zeev Buium quarterbacks top power play in practice, could debut in playoff opener**\
 `The 19-year-old had his first practice with the full team alongside Zach Bogosian on the third pair.`\
 https://nytimes.com/athletic/6288867/2025/04/17/wild-buium-power-play-kaprizov-nhl-playoffs/
 
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/04/17/us/fourth-circuit-kilmar-abrego-garci
 **They Endured the Parkland Shooting. Then Came Florida State.**\
 `For some, the sight of law enforcement officers in tactical gear on Thursday, sweeping campus for a gunman, was familiar.`\
 https://nytimes.com/2025/04/17/us/fsu-parkland-school-shooting.html
-
-**What to Know About the Court Cases Challenging Trump’s Immigration Agenda**\
-`The Trump administration is on course for a potential constitutional clash with the judiciary branch, which has issued several rulings countering executive orders.`\
-https://nytimes.com/2025/04/17/us/politics/trump-immigration-cases-explained.html
-
-**Oklahoma, Missouri heading to NCAA women's gymnastics final**\
-`A clutch 9.9875 from beam star Helen Hu secured Missouri the upset over Florida.`\
-https://nytimes.com/athletic/6288757/2025/04/17/ncaa-gymnastics-semifinal-results-teams/
 

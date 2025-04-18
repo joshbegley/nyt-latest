@@ -1,3 +1,15 @@
+**Harvard’s Stand Against Trump Is Helping It Raise More Money**\
+`The Trump administration said it would take $2.2 billion in research funds from the school. Some small donors are doing their best to make up for the shortfall.`\
+https://nytimes.com/2025/04/17/us/harvard-donors-trump.html
+
+**Demonstrators brought coffins to the State Dept. to protest cuts to an H.I.V. program.**\
+`By Talya Minsberg and Allison Robbert`\
+https://nytimes.com/live/2025/04/17/us/trump-news-updates/demonstrators-brought-coffins-to-the-state-dept-to-protest-cuts-to-an-hiv-program
+
+**Wild's Zeev Buium quarterbacks top power play in practice, could debut in playoff opener**\
+`The 19-year-old had his first practice with the full team alongside Zach Bogosian on the third pair.`\
+https://nytimes.com/athletic/6288867/2025/04/17/wild-buium-power-play-kaprizov-nhl-playoffs/
+
 **Trump Opens a Huge Marine Protected Zone to Commercial Fishing**\
 `The president said the move was aimed at making the United States the world’s “dominant seafood leader.”`\
 https://nytimes.com/2025/04/17/climate/trump-fishing-marine-protected-zone.html
