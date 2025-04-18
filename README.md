@@ -1,3 +1,7 @@
+**MLB's Rob Manfred met with Donald Trump to talk 'issues pertaining to baseball'**\
+`In February, Trump said he would posthumously pardon MLB's hits leader Pete Rose, who was banned from baseball for gambling on his team.`\
+https://nytimes.com/athletic/6289210/2025/04/17/rob-manfred-trump-meeting-mlb/
+
 **Rangers' disappointing season is finally over. Now they must pick up the pieces**\
 `A season that at times felt cursed for New York is finally over. But what comes next for the team won't be easy.`\
 https://nytimes.com/athletic/6289294/2025/04/17/rangers-2024-25-season-end/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/17/crosswords/daily-puzzle-2025-04-18.html
 **Sabres' Ruff becomes fifth NHL coach to reach 900-win milestone**\
 `Ruff joined Scotty Bowman, Joel Quenneville, Paul Maurice and Barry Trotz as the only coaches in NHL history with 900 wins.`\
 https://nytimes.com/athletic/6270624/2025/04/17/sabres-lindy-ruff-900-wins/
-
-**What We Know About the Florida State University Shooting**\
-`Two people were killed and six others were injured when a 20-year-old gunman opened fire near the student union building, the police said.`\
-https://nytimes.com/2025/04/17/us/florida-state-university-shooting-explainer.html
 

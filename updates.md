@@ -1,3 +1,7 @@
+**Rangers' disappointing season is finally over. Now they must pick up the pieces**\
+`A season that at times felt cursed for New York is finally over. But what comes next for the team won't be easy.`\
+https://nytimes.com/athletic/6289294/2025/04/17/rangers-2024-25-season-end/
+
 **Yohe's 10 observations: Sid, Ovi put on a show in second period to remember**\
 `Two of the greatest to do it made even a meaningless game memorable in the Penguins' season finale.`\
 https://nytimes.com/athletic/6283135/2025/04/17/penguins-crosby-ovechkin-rust-season-finale-capitals/
