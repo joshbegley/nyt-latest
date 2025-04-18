@@ -1,3 +1,7 @@
+**Clippers-Nuggets playoff preview: Can LA find an answer against Nikola Jokić?**\
+`The Clippers have been hot and have several statistical advantages. But Denver still has arguably the best player in the world.`\
+https://nytimes.com/athletic/6289715/2025/04/18/clippers-nuggets-playoff-preview-nba/
+
 **Arsenal's Russo, Kelly available vs Lyon, Slegers confirms**\
 `Both players withdrew from April's England squad through injury.`\
 https://nytimes.com/athletic/6290087/2025/04/18/alessia-russo-chloe-kelly-arsenal-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6289529/2025/04/18/lee-corso-retirement-gameday-the
 **How many Premier League sides can qualify for European football next season?**\
 `All the permutations for qualifying for next season's competitions explained`\
 https://nytimes.com/athletic/6289647/2025/04/18/how-many-premier-league-sides-can-qualify-for-european-football-next-season/
-
-**Newcastle agree deal for Malaga winger Cordero**\
-`Barcelona and Real Madrid were both interested in the winger, who will join Newcastle in the summer on a free transfer.`\
-https://nytimes.com/athletic/6280393/2025/04/18/newcastle-antonio-cordero-transfer/
 
