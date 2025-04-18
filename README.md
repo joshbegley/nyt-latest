@@ -1,3 +1,7 @@
+**Cherundolo to step down as LAFC manager after 2025 MLS season**\
+`Cherundolo, who has won MLS Cup, the Supporters' Shield and U.S. Open Cup as LAFC manager, will leave at season's end.`\
+https://nytimes.com/athletic/6290782/2025/04/18/steve-cherundolo-step-down-lafc-manager-mls-2025/
+
 **The Draymond Green-Alperen Şengün chess match could decide the Warriors-Rockets series**\
 `There could be moments between Şengün and Green that decide the first-round series. How will the Warriors prepare?`\
 https://nytimes.com/athletic/6290403/2025/04/18/draymond-green-alperen-sengun-warriors-rockets-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/18/world/asia/abdullah-ahmad-badawi-dead.html
 **U.S. Chipmakers Fear They Are Ceding China’s A.I. Market to Huawei**\
 `New restrictions on semiconductor exports to China are scrambling sales and fueling concerns that the Chinese tech giant will become a chip-making powerhouse.`\
 https://nytimes.com/2025/04/18/technology/ai-chips-china-huawei.html
-
-**Jason Robertson out week to week with injury, will miss start of playoffs**\
-`The 25-year-old, Dallas' second-leading scorer this season, will not play Saturday in Game 1 vs. Colorado.`\
-https://nytimes.com/athletic/6290580/2025/04/18/stars-jason-robertson-injury-nhl-playoffs/
 

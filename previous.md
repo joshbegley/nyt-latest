@@ -1,3 +1,7 @@
+**The Draymond Green-Alperen Şengün chess match could decide the Warriors-Rockets series**\
+`There could be moments between Şengün and Green that decide the first-round series. How will the Warriors prepare?`\
+https://nytimes.com/athletic/6290403/2025/04/18/draymond-green-alperen-sengun-warriors-rockets-playoffs/
+
 **Jake Paul returning to boxing in June, will face Julio Cesar Chavez Jr.**\
 `Chávez, the son of boxing legend Julio César Chávez, is 39 years old and 13 years removed from being a world champion.`\
 https://nytimes.com/athletic/6290626/2025/04/18/jake-paul-boxing-julio-chavez-jr/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/18/technology/ai-chips-china-huawei.html
 **Jason Robertson out week to week with injury, will miss start of playoffs**\
 `The 25-year-old, Dallas' second-leading scorer this season, will not play Saturday in Game 1 vs. Colorado.`\
 https://nytimes.com/athletic/6290580/2025/04/18/stars-jason-robertson-injury-nhl-playoffs/
-
-**How ‘The White Lotus’ Ran Aground**\
-`The HBO hit’s theological problems.`\
-https://nytimes.com/2025/04/18/opinion/white-lotus.html
 
