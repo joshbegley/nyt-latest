@@ -1,3 +1,8 @@
+**Yohe: Sullivan candid about future, Malkin M.I.A., more takeaways from locker clean-out day**\
+`Sullivan spoke frankly about his future with Pittsburgh, while Malkin was nowhere to be found as the team heads for the offseason.
+`\
+https://nytimes.com/athletic/6290691/2025/04/18/penguins-mike-sullivan-evgeni-malkin/
+
 **Spurs' Gregg Popovich back home after medical emergency at restaurant**\
 `Coach had stepped away from the Spurs after suffering a stroke in November.`\
 https://nytimes.com/athletic/6290802/2025/04/18/gregg-popovich-health-ambulance-stroke-spurs-coach/
