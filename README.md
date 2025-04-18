@@ -1,3 +1,7 @@
+**What It Was Like to Edit the ‘Wolf Hall’ Books**\
+`The final novel in Hilary Mantel’s great trilogy has been adapted for TV. Her editor joins us this week to discuss working with Mantel on the books.`\
+https://nytimes.com/2025/04/18/books/review/podcast-wolf-hall-hillary-mantel-editor.html
+
 **Kennedy Claimed Autism ‘Destroys’ Lives. Autistic People Disagree.**\
 `People in the community called the remarks dehumanizing and warned they could perpetuate harmful stigma.`\
 https://nytimes.com/2025/04/18/well/autism-kennedy-reaction.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/18/dining/easter-easy-lamb-meatballs.html
 **Five Action Movies to Stream Now**\
 `This month’s picks include brave siblings and violent young men.`\
 https://nytimes.com/2025/04/18/movies/action-movies-streaming.html
-
-**Five Free Movies to Stream Now**\
-`In films like Andrew Haigh’s “Weekend,” you’ll find new beginnings in time for spring. Here’s a rundown of what’s currently on Tubi, Plex and PlutoTV.`\
-https://nytimes.com/2025/04/18/arts/five-free-movies-to-stream-now.html
 
