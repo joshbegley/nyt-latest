@@ -1,3 +1,7 @@
+**A Fireball Near Mexico City Lit Up the Sky and the Internet**\
+`The glowing object was a bolide, fireballs that explode in a bright flash, according to experts. It streaked across Mexico’s predawn skies on Wednesday.`\
+https://nytimes.com/2025/04/18/science/mexico-city-bolide-meteor.html
+
 **Joe Nickell, Paranormal Investigator and ‘Real-Life Scully,’ Dies at 80**\
 `A professional skeptic, he took on hundreds of mysteries, offering rational explanations for the Loch Ness monster, the Shroud of Turin and countless hauntings.`\
 https://nytimes.com/2025/04/18/science/joe-nickell-dead.html

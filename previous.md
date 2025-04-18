@@ -1,3 +1,7 @@
+**A Fireball Near Mexico City Lit Up the Sky and the Internet**\
+`The glowing object was a bolide, fireballs that explode in a bright flash, according to experts. It streaked across Mexico’s predawn skies on Wednesday.`\
+https://nytimes.com/2025/04/18/science/mexico-city-bolide-meteor.html
+
 **Joe Nickell, Paranormal Investigator and ‘Real-Life Scully,’ Dies at 80**\
 `A professional skeptic, he took on hundreds of mysteries, offering rational explanations for the Loch Ness monster, the Shroud of Turin and countless hauntings.`\
 https://nytimes.com/2025/04/18/science/joe-nickell-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/18/us/trump-deportations-venezuelans-el-salvador.htm
 **On New Website, Trump Declares Lab Leak as ‘True Origins’ of Covid**\
 `Government websites that once provided basic information about the virus now redirect to a page citing a number of misleading or heavily contested claims.`\
 https://nytimes.com/2025/04/18/science/trump-covid-website-lab-leak.html
-
-**How Universities Became So Dependent on the Federal Government**\
-`For decades, universities got billions in federal dollars for research. The relationship was mutually beneficial, until President Trump decided it wasn’t.`\
-https://nytimes.com/2025/04/18/us/trump-universities.html
 
