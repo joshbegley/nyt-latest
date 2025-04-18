@@ -1,3 +1,7 @@
+**Watch: How Nikola Jokić, 3-time NBA MVP, continues to elevate Nuggets**\
+`The Athletic NBA Daily discusses Fred Katz's recent piece on Nikola Jokić and previews the most exciting playoff matchups.`\
+https://nytimes.com/athletic/6290007/2025/04/18/how-nikola-jokic-3-time-nba-mvp-continues-to-elevate-his-nuggets-teammates/
+
 **Risk of Financial Panic Tempers Trump on Firing Powell**\
 `President Trump again attacked the chair of the Federal Reserve this week, but advisers say the president has turned more cautious on policies that could stoke extreme financial volatility again.`\
 https://nytimes.com/2025/04/18/business/trump-powell-fed-markets.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6290351/2025/04/18/richard-deitsch-sports-media-mai
 **Top DOGE Officials Moved From Social Security Administration to Justice Dept.**\
 `The Elon Musk operatives were abruptly shifted to the department’s immigration enforcement unit as part of an expanding effort to use personal data in deportation cases, one official said.`\
 https://nytimes.com/2025/04/18/us/politics/doge-musk-social-security-justice-department.html
-
-**Head of I.R.S. Being Ousted Amid Treasury’s Power Struggle With Elon Musk**\
-`Treasury Secretary Scott Bessent complained to President Trump that the acting commissioner had been installed without his knowledge.`\
-https://nytimes.com/2025/04/18/us/politics/irs-scott-bessent-elon-musk.html
 
