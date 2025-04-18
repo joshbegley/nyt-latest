@@ -1,3 +1,15 @@
+**Maybe Musk Isn’t All-Powerful, After All**\
+`A series of setbacks have raised questions about Elon Musk’s enduring influence in the White House.`\
+https://nytimes.com/2025/04/18/us/politics/musk-doge-irs-bessent.html
+
+**Ex-Harvard Medical School Morgue Chief to Plead Guilty in Sale of Body Parts**\
+`Cedric Lodge stole organs from cadavers that had been donated for medical research, prosecutors said. The university fired him in 2023.`\
+https://nytimes.com/2025/04/18/us/harvard-morgue-stolen-body-parts-guilty.html
+
+**Trump-Allied Prosecutor Sends Letters to Medical Journals Alleging Bias**\
+`An interim U.S. attorney is demanding information about the selection of research articles and the role of N.I.H. Experts worry this will have a chilling effect on publications.`\
+https://nytimes.com/2025/04/18/health/trump-martin-us-attorney-medical-journals.html
+
 **A Fireball Near Mexico City Lit Up the Sky and the Internet**\
 `The glowing object was a bolide, fireballs that explode in a bright flash, according to experts. It streaked across Mexico’s predawn skies on Wednesday.`\
 https://nytimes.com/2025/04/18/science/mexico-city-bolide-meteor.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/18/us/politics/trump-deportations-venezuelans.html
 **Former Cuomo Aide Settles Sexual Harassment Claim for $450,000**\
 `New York State will pay to resolve a lawsuit filed by Charlotte Bennett over accusations that former Gov. Andrew Cuomo sexually harassed her when she worked in his executive office.`\
 https://nytimes.com/2025/04/18/nyregion/cuomo-charlotte-bennett-settlement.html
-
-**Luka Dončić cracked his phone after hearing Mavs-Lakers trade: 'My heart was broken honestly'**\
-`Dončić told ESPN he was in bed watching a movie when he was informed the Mavericks were moving on from him`\
-https://nytimes.com/athletic/6290968/2025/04/18/luka-doncic-interview-malika-andrews-nba-today/
-
-**Lawyers Warn of Imminent Deportation of Migrants Under Rarely Invoked Wartime Law**\
-`More than 50 Venezuelans are believed to be scheduled to be flown out of the country, presumably to El Salvador, from an immigration detention center in Anson, Texas.`\
-https://nytimes.com/2025/04/18/us/trump-deportations-venezuelans-el-salvador.html
-
-**On New Website, Trump Declares Lab Leak as ‘True Origins’ of Covid**\
-`Government websites that once provided basic information about the virus now redirect to a page citing a number of misleading or heavily contested claims.`\
-https://nytimes.com/2025/04/18/science/trump-covid-website-lab-leak.html
 

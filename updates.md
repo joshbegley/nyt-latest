@@ -1,3 +1,15 @@
+**Maybe Musk Isn’t All-Powerful, After All**\
+`A series of setbacks have raised questions about Elon Musk’s enduring influence in the White House.`\
+https://nytimes.com/2025/04/18/us/politics/musk-doge-irs-bessent.html
+
+**Ex-Harvard Medical School Morgue Chief to Plead Guilty in Sale of Body Parts**\
+`Cedric Lodge stole organs from cadavers that had been donated for medical research, prosecutors said. The university fired him in 2023.`\
+https://nytimes.com/2025/04/18/us/harvard-morgue-stolen-body-parts-guilty.html
+
+**Trump-Allied Prosecutor Sends Letters to Medical Journals Alleging Bias**\
+`An interim U.S. attorney is demanding information about the selection of research articles and the role of N.I.H. Experts worry this will have a chilling effect on publications.`\
+https://nytimes.com/2025/04/18/health/trump-martin-us-attorney-medical-journals.html
+
 **A Fireball Near Mexico City Lit Up the Sky and the Internet**\
 `The glowing object was a bolide, fireballs that explode in a bright flash, according to experts. It streaked across Mexico’s predawn skies on Wednesday.`\
 https://nytimes.com/2025/04/18/science/mexico-city-bolide-meteor.html
