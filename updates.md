@@ -1,3 +1,7 @@
+**Judge Rejects A.P.’s Challenge to New White House Press Policy, for Now**\
+`The judge said that he needed more time to determine whether the new policy was discriminatory, but said that the elimination of rotating access for newswires was “facially neutral.”`\
+https://nytimes.com/2025/04/18/us/politics/ap-white-house-press-policy.html
+
 **2025 Stanley Cup odds: Avs, defending champion Panthers lead tight race**\
 `The Stanley Cup Playoffs appear to be wide open with the betting odds showing a balanced field and no clear favorites.`\
 https://nytimes.com/athletic/6290373/2025/04/18/stanley-cup-odds-avalanche-panthers/
