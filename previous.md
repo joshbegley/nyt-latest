@@ -1,3 +1,7 @@
+**Stephen Colbert Translates Trump’s Italian Tariff Talk**\
+`“The Late Show” host said Italy’s prime minister, Giorgia Meloni, is “seen as something of a Trump whisperer” after she visited the White House on Thursday.`\
+https://nytimes.com/2025/04/18/arts/television/stephen-colbert-trump-meloni.html
+
 **Word of the Day: chortle**\
 `This word has appeared in nine articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/04/18/learning/word-of-the-day-chortle.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/18/world/canada/election-debate-takeaways.html
 **Why is Virgil van Dijk so difficult to dribble past?**\
 `Strikers get spooked by the aura of world-class defenders and tend to avoid them altogether — especially Van Dijk`\
 https://nytimes.com/athletic/6100392/2025/04/18/virgil-van-dijk-dribble-past/
-
-**Manchester United and a portrait of pandemonium**\
-`United's win over Lyon was a ridiculous football match engineered by a ridiculous football club. It was a night to savour than scrutinise`\
-https://nytimes.com/athletic/6289350/2025/04/18/manchester-united-lyon-old-trafford-pandemonium/
 

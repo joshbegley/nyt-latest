@@ -1,3 +1,7 @@
+**Stephen Colbert Translates Trump’s Italian Tariff Talk**\
+`“The Late Show” host said Italy’s prime minister, Giorgia Meloni, is “seen as something of a Trump whisperer” after she visited the White House on Thursday.`\
+https://nytimes.com/2025/04/18/arts/television/stephen-colbert-trump-meloni.html
+
 **Manchester United and a portrait of pandemonium**\
 `United's win over Lyon was a ridiculous football match engineered by a ridiculous football club. It was a night to savour than scrutinise`\
 https://nytimes.com/athletic/6289350/2025/04/18/manchester-united-lyon-old-trafford-pandemonium/
