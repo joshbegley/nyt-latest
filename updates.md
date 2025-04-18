@@ -1,3 +1,11 @@
+**Live Q&A: Talking baseball with Eno Sarris on Friday 4/18 at 2 p.m. ET**\
+`Submit your questions for Eno Sarris' latest Q&A about all things fantasy baseball and MLB.`\
+https://nytimes.com/athletic/6288326/2025/04/18/sarris-live-chat-mlb-fantasy-baseball-4-18/
+
+**Man Sinks in Quicksand and Emerges With a Girlfriend**\
+`A Michigan man who ended up waist-deep on an unstable beach was rescued, and found himself in a relationship.`\
+https://nytimes.com/2025/04/18/us/lake-michigan-quicksand.html
+
 **Scoop City: What are the Giants plotting?**\
 `Inside: The respite from Aaron Rodgers&#8217; headlines was shorter than we all hoped.`\
 https://nytimes.com/athletic/6290478/2025/04/18/giants-panthers-draft-guide-aaron-rodgers-scoop-city/
