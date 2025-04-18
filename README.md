@@ -1,3 +1,7 @@
+**Senators playoff mailbag: What lineup will the Senators use for Game 1 against Toronto?**\
+`Also, will the Ottawa Senators go for a big splash in the offseason with over $18 million in cap space? `\
+https://nytimes.com/athletic/6249990/2025/04/18/senators-mailbag-nhl-playoffs/
+
 **Breaking down the 11 minutes of chaos at the end of Manchester United's 5-4 win over Lyon**\
 `In a chaotic finale at Old Trafford, United threw caution to the wind and profited via Leny Yoro, Casemiro and Kobbie Mainoo's composure`\
 https://nytimes.com/athletic/6289723/2025/04/18/manchester-united-5-4-lyon-analysis-maguire/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6278842/2025/04/18/knicks-jalen-brunson-nba-playoff
 **Maresca says he still has full support of Chelsea board after Legia defeat**\
 `Chelsea were booed off despite progressing to the UEFA Conference League semi-finals 4-2 on aggregate.`\
 https://nytimes.com/athletic/6289638/2025/04/18/enzo-maresca-chelsea-board-support/
-
-**'Whatever he needs': Gustavsson and Fleury's bond shapes Wild's future in net**\
-`From moving past rough games to naming animals from A to Z, the Wild's goalie tandem spent this season working together.`\
-https://nytimes.com/athletic/6288205/2025/04/18/wild-filip-gustavsson-marc-andre-fleury-goalie-bond/
 
