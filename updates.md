@@ -1,3 +1,11 @@
+**Wisconsin Supreme Court Says Governor’s 400-Year Edit Was Within Veto Authority**\
+`Gov. Tony Evers, a Democrat, used his veto power to increase school funding limits for four centuries longer than Republican lawmakers in the state had intended.`\
+https://nytimes.com/2025/04/18/us/wisconsin-supreme-court-veto.html
+
+**Premier League predicted line-ups: Who do our writers think will start in Gameweek 33?**\
+`As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
+https://nytimes.com/athletic/6283828/2025/04/18/premier-league-predicted-line-ups-gameweek-33/
+
 **In Upstate New York, Where Even the Opera Is Locavore**\
 `At Hudson Hall, the director R.B. Schlather leans on artists and musicians from the community. The results have made for better opera.`\
 https://nytimes.com/2025/04/18/arts/music/hudson-hall-handel-opera.html

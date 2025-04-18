@@ -1,3 +1,7 @@
+**Kennedy Claimed Autism ‘Destroys’ Lives. Autistic People Disagree.**\
+`People in the community called the remarks dehumanizing and warned they could perpetuate harmful stigma.`\
+https://nytimes.com/2025/04/18/well/autism-kennedy-reaction.html
+
 **Wisconsin Supreme Court Says Governor’s 400-Year Edit Was Within Veto Authority**\
 `Gov. Tony Evers, a Democrat, used his veto power to increase school funding limits for four centuries longer than Republican lawmakers in the state had intended.`\
 https://nytimes.com/2025/04/18/us/wisconsin-supreme-court-veto.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/18/movies/action-movies-streaming.html
 **Five Free Movies to Stream Now**\
 `In films like Andrew Haigh’s “Weekend,” you’ll find new beginnings in time for spring. Here’s a rundown of what’s currently on Tubi, Plex and PlutoTV.`\
 https://nytimes.com/2025/04/18/arts/five-free-movies-to-stream-now.html
-
-**Nuggets find normalcy is the 'best medicine' in preparing for Clippers after tumultuous week**\
-`"Sometimes, you just have to go and play and clear your mind of things and enjoy what you love doing," interim coach David Adelman said.`\
-https://nytimes.com/athletic/6289489/2025/04/18/nuggets-clippers-first-round-series-preparation/
 
