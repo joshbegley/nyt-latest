@@ -1,40 +1,41 @@
-**U.S. Gas Exports to China Stopped After Beijing Imposed Tariffs**\
-`The United States accounted for only 3 percent of China’s natural gas imports last year. Those purchases could now dry up entirely in the trade war.`\
-https://nytimes.com/2025/04/18/business/china-us-lng-trump-tariffs.html
+**For the Devils, the Stanley Cup playoffs are about setting a new standard: 'Something to build upon'**\
+`New Jersey has made the playoffs only three times in the past 13 seasons but expects to kick off a new era — even without Jack Hughes.`\
+https://nytimes.com/athletic/6286851/2025/04/18/devils-nhl-playoffs-preview/
 
-**NBA Player Tiers 2025: Tier 1 features MVP front-runners, future Hall-of-Famers**\
-`You'll notice familiar faces and some bright young stars in this group, which is capped at 10 players.`\
-https://nytimes.com/athletic/6286882/2025/04/18/nba-player-tiers-jokic-lebron-sga-giannis/
+**The bandwagon-hopper’s guide to the 2025 NHL playoffs**\
+`An annual look at all 16 playoff teams, ranked from the worst bandwagon options to the very best.
+`\
+https://nytimes.com/athletic/6284399/2025/04/18/nhl-playoffs-bandwagon-guide-stanley-cup/
 
-**Christianity in the White House**\
-`President Trump has significantly expanded the power and influence of conservative Christians in government.`\
-https://nytimes.com/2025/04/18/briefing/christianity-in-the-white-house.html
+**NHL execs and coaches pick the playoffs' 3 monster first-round matchups**\
+`Who will win Senators-Leafs, Avs-Stars and Panthers-Lightning? We polled seven execs and six coaches for the predictions and analysis.`\
+https://nytimes.com/athletic/6287106/2025/04/18/coaches-execs-predictions-nhl-playoffs/
 
-**Trump Calls Florida Shooting a ‘Shame,’ but Signals No Shift in Gun Laws**\
-`Speaking to reporters in the Oval Office, the president said he would “always protect the Second Amendment.”`\
-https://nytimes.com/2025/04/18/us/politics/trump-florida-shooting-gun-laws.html
+**Maguire: Lyon win was 'strangest, maddest game' but Man Utd must improve**\
+`The England international scored the 121st-minute match-winner in a 5-4 comeback win at Old Trafford.`\
+https://nytimes.com/athletic/6289668/2025/04/18/manchester-united-lyon-harry-maguire-goal/
 
-**Former Rochdale and Man Utd academy player Joe Thompson dies aged 36**\
-`Thompson was diagnosed with cancer for the third time in 2024 after four years in remission.`\
-https://nytimes.com/athletic/6289711/2025/04/18/joe-thompson-dies-rochdale/
+**How Red Wings’ latest playoff miss revealed their fatal flaws**\
+`The story of the 2024-25 Detroit Red Wings is complete. And it is complicated.`\
+https://nytimes.com/athletic/6281795/2025/04/18/detroit-red-wings-nhl-playoff-drought/
 
-**G.O.P. Lawmakers Visit Syria to Assess Situation Under New Government**\
-`The two Republican congressmen were expected to meet with the country’s new leadership and visit areas destroyed during the long civil war.`\
-https://nytimes.com/2025/04/18/world/middleeast/gop-congressmen-visit-syria.html
+**Is Griffin Canning the Mets' next reclamation project? 'Tonight is the blueprint'**\
+`Canning adjusted on the fly against the Cardinals, demonstrating a greater comfort and confidence in his arsenal.`\
+https://nytimes.com/athletic/6289323/2025/04/18/mets-griffin-canning-mlb-blueprint/
 
-**China-Built Airport in Nepal Was Littered With Corruption, Inquiry Finds**\
-`A Nepali investigation blamed lawmakers and officials for looking the other way. The $216 million airport receives only one international flight a week.`\
-https://nytimes.com/2025/04/18/business/china-nepal-airport.html
+**Sliders: For MLB umpire Mark Ripperger, a 'very good' game turned out to be perfect**\
+`Plus base-stealing tips from a speedy Royals rookie, a rare starting pitcher win and more timely and timeless elements of baseball.`\
+https://nytimes.com/athletic/6287047/2025/04/18/umpire-perfect-game-mlb-mark-ripperger-sliders/
 
-**Chiefs 7-round NFL mock draft: Trading up for an ascending pass rusher**\
-`Just days before the draft, we have our final Chiefs mock draft, which includes two trades in the first three rounds.`\
-https://nytimes.com/athletic/6287643/2025/04/18/chiefs-2025-nfl-mock-draft-mykel-williams/
+**Buckley: It's nice that Charlie Jacobs feels Bruins fans' pain. That's not nearly enough**\
+`The Bruins haven't played meaningful hockey in a long time, and CEO should know that homespun assurances can't replace a Cup contender.`\
+https://nytimes.com/athletic/6288132/2025/04/18/boston-bruins-nhl-season-wrap/
 
-**Will Vikings trade back from No. 24 or pick? GM Kwesi Adofo-Mensah weighs the decision**\
-`Should the Vikings trade back in the first round to recoup some draft capital? Adofo-Mensah now has some experience to look back on.`\
-https://nytimes.com/athletic/6288573/2025/04/18/vikings-nfl-draft-trade-kwesi-adofo-mensah/
+**The Athletic’s Friday football quiz question #51**\
+`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
+https://nytimes.com/athletic/6287600/2025/04/18/the-athletics-friday-football-quiz-question-51/
 
-**‘Psychological Torture’: London Bans Busking in a Famed Tourist Hub**\
-`Noise complaints led the authorities to halt street performances in Leicester Square. Some miss the music. Others found the noise “bloody annoying.”`\
-https://nytimes.com/2025/04/18/world/europe/london-busking-street-performers-leicester-square-ban.html
+**Inside David Carle's University of Denver hockey program and what comes next: 'Window is still wide open'**\
+`The Athletic goes behind the scenes with DU to see how its "proscess" made it the NCAA standard — and brought NHL attention for its coach.`\
+https://nytimes.com/athletic/6275152/2025/04/18/denver-hockey-ncaa-david-carle/
 
