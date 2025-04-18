@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Saturday, April 19, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/04/18/todays-new-york-times-international-edition
+
 **Joe Montemurro ‘thriving in this pressure’ as he returns to Arsenal with Lyon**\
 `Joe Montemurro's biggest challenge of the season so far awaits against his boyhood club Arsenal on Saturday`\
 https://nytimes.com/athletic/6284516/2025/04/18/joe-montemurro-lyon-arsenal-womens-champions-league/
