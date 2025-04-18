@@ -1,3 +1,11 @@
+**G.O.P. Lawmakers Visit Syria to Assess Situation Under New Government**\
+`The two Republican congressmen were expected to meet with the country’s new leadership and visit areas destroyed during the long civil war.`\
+https://nytimes.com/2025/04/18/world/middleeast/gop-congressmen-visit-syria.html
+
+**China-Built Airport in Nepal Was Littered With Corruption, Inquiry Finds**\
+`A Nepali investigation blamed lawmakers and officials for looking the other way. The $216 million airport receives only one international flight a week.`\
+https://nytimes.com/2025/04/18/business/china-nepal-airport.html
+
 **Chiefs 7-round NFL mock draft: Trading up for an ascending pass rusher**\
 `Just days before the draft, we have our final Chiefs mock draft, which includes two trades in the first three rounds.`\
 https://nytimes.com/athletic/6287643/2025/04/18/chiefs-2025-nfl-mock-draft-mykel-williams/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6285832/2025/04/18/nba-cards-doncic-sga-giannis-cun
 **Weird & Wild: The 3-run walk, a bizarre strikeout and the baseball gods bless Manny Machado**\
 `Some of the strangest things you'll see on a baseball field happened this week. Here's how it all looked through the broadcasters' eyes.`\
 https://nytimes.com/athletic/6289021/2025/04/18/isotopes-three-runs-walk-manny-machado-dropped-foul-balls/
-
-**Will fans take it easy on Ryan Day if the Buckeyes lose to Michigan? Ohio State mailbag**\
-`You have questions about Ohio State, and college football writer Cameron Teague Robinson answers some of them.`\
-https://nytimes.com/athletic/6287455/2025/04/18/ohio-state-ryan-day-michigan-mailbag/
-
-**NBA playoffs preview and predictions: Thunder will prevail, but against whom?**\
-`Who should be on upset alert? Which potential matchups are the best? And who will still be standing in June?`\
-https://nytimes.com/athletic/6287360/2025/04/18/nba-playoffs-2025-preview-predictions-celtics-warriors/
 
