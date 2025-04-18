@@ -1,3 +1,7 @@
+**Merger of Capital One and Discover, Two Credit Card Giants, Wins Approval**\
+`Two regulators signed off on the $35 billion deal, which the banks say will create a competitor to Visa and Mastercard. But consumer advocates warn that the deal may raise costs.`\
+https://nytimes.com/2025/04/18/business/capital-one-discover-merger.html
+
 **Live Q&A: Talking baseball with Eno Sarris on Friday 4/18 at 2 p.m. ET**\
 `Submit your questions for Eno Sarris' latest Q&A about all things fantasy baseball and MLB.`\
 https://nytimes.com/athletic/6288326/2025/04/18/sarris-live-chat-mlb-fantasy-baseball-4-18/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6290007/2025/04/18/how-nikola-jokic-3-time-nba-mvp-
 **Risk of Financial Panic Tempers Trump on Firing Powell**\
 `President Trump again attacked the chair of the Federal Reserve this week, but advisers say the president has turned more cautious on policies that could stoke extreme financial volatility again.`\
 https://nytimes.com/2025/04/18/business/trump-powell-fed-markets.html
-
-**Trump Shifted on Tariffs After Bond Holders Got Jittery. He Held Millions Himself.**\
-`As of August, the president’s investment portfolio showed significantly more in bonds than in stocks. It is unclear if his personal holdings had any bearing on his decisions regarding tariffs.`\
-https://nytimes.com/2025/04/18/us/politics/trump-bonds-tariffs.html
 
