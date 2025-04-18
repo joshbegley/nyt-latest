@@ -1,3 +1,12 @@
+**Yohe: Sullivan candid about future, Malkin M.I.A., more takeaways from locker clean-out day**\
+`Sullivan spoke frankly about his future with Pittsburgh, while Malkin was nowhere to be found as the team heads for the offseason.
+`\
+https://nytimes.com/athletic/6290691/2025/04/18/penguins-mike-sullivan-evgeni-malkin/
+
+**How Gross Can Guys Get in the Kitchen?**\
+`A ruling on two connected food-handling disputes.`\
+https://nytimes.com/interactive/2025/04/18/magazine/magazine-email/20mag-hodgmanquiz.html
+
 **A Simple Slogan Creates a Shirt and a Sensation**\
 `The designer Conner Ives hoped to do some good with his “Protect the Dolls” T-shirt. Worn by celebrities, and sold out online, the shirts are raising money for a trans cause.`\
 https://nytimes.com/2025/04/18/style/protect-the-dolls-shirt-conner-ives.html
@@ -29,12 +38,4 @@ https://nytimes.com/athletic/6290626/2025/04/18/jake-paul-boxing-julio-chavez-jr
 **Judge Rejects A.P.’s Challenge to New White House Press Policy, for Now**\
 `The judge said that he needed more time to determine whether the new policy was discriminatory, but said that the elimination of rotating access for newswires was “facially neutral.”`\
 https://nytimes.com/2025/04/18/us/politics/ap-white-house-press-policy.html
-
-**2025 Stanley Cup odds: Avs, defending champion Panthers lead tight race**\
-`The Stanley Cup Playoffs appear to be wide open with the betting odds showing a balanced field and no clear favorites.`\
-https://nytimes.com/athletic/6290373/2025/04/18/stanley-cup-odds-avalanche-panthers/
-
-**Lana Del Rey’s Foreboding Lullaby, and 7 More New Songs**\
-`Hear tracks by Madison McFerrin, Ana Tijoux, Matmos and others.`\
-https://nytimes.com/2025/04/18/arts/music/playlist-lana-del-rel-morgan-wallen-post-malone.html
 
