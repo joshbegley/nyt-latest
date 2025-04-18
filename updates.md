@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6286985/2025/04/18/premier-league-top-five-odds-betting-predictions/
 
+**Premier League top-five odds shifts: Newcastle rise, Forest fall**\
+`Sam Tighe looks at the changing odds around team’s vying for a top-five Premier League place and thus a Champions League berth.
+`\
+https://nytimes.com/athletic/6286985/2025/04/18/premier-league-top-five-odds-betting-predictions/
+
 **Chelsea and a pursuit of positivity - but where will they find it?**\
 `Chelsea are into the last four of the Conference League - you would not have known it from players and fans' reaction at Stamford Bridge`\
 https://nytimes.com/athletic/6288968/2025/04/18/chelsea-mood-maresca-palmer-james/
