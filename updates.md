@@ -1,3 +1,7 @@
+**Jake Paul returning to boxing in June, will face Julio Cesar Chavez Jr.**\
+`Chávez, the son of boxing legend Julio César Chávez, is 39 years old and 13 years removed from being a world champion.`\
+https://nytimes.com/athletic/6290626/2025/04/18/jake-paul-boxing-julio-chavez-jr/
+
 **Judge Rejects A.P.’s Challenge to New White House Press Policy, for Now**\
 `The judge said that he needed more time to determine whether the new policy was discriminatory, but said that the elimination of rotating access for newswires was “facially neutral.”`\
 https://nytimes.com/2025/04/18/us/politics/ap-white-house-press-policy.html
