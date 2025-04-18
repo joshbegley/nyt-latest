@@ -1,3 +1,7 @@
+**Dodgers place Shohei Ohtani on paternity list as star awaits first child**\
+`Ohtani can be on the list for up to three days, but could be back by the end of the Dodgers’ weekend series against the Texas Rangers`\
+https://nytimes.com/athletic/6291175/2025/04/18/dodgers-shohei-ohtani-paternity-list-child-birth/
+
 **Maybe Musk Isn’t All-Powerful, After All**\
 `A series of setbacks have raised questions about Elon Musk’s enduring influence in the White House.`\
 https://nytimes.com/2025/04/18/us/politics/musk-doge-irs-bessent.html

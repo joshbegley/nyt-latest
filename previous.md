@@ -1,3 +1,7 @@
+**Dodgers place Shohei Ohtani on paternity list as star awaits first child**\
+`Ohtani can be on the list for up to three days, but could be back by the end of the Dodgers’ weekend series against the Texas Rangers`\
+https://nytimes.com/athletic/6291175/2025/04/18/dodgers-shohei-ohtani-paternity-list-child-birth/
+
 **Maybe Musk Isn’t All-Powerful, After All**\
 `A series of setbacks have raised questions about Elon Musk’s enduring influence in the White House.`\
 https://nytimes.com/2025/04/18/us/politics/musk-doge-irs-bessent.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/18/briefing/irs-leadership-lead-wisconsin-schools-jo
 **Appeals Court Denies Trump Administration’s Bid to End Deportation Protections for Venezuelans**\
 `The case is one of several challenging moves by the Trump administration to cancel the temporary legal status of hundreds of thousands of people.`\
 https://nytimes.com/2025/04/18/us/politics/trump-deportations-venezuelans.html
-
-**Former Cuomo Aide Settles Sexual Harassment Claim for $450,000**\
-`New York State will pay to resolve a lawsuit filed by Charlotte Bennett over accusations that former Gov. Andrew Cuomo sexually harassed her when she worked in his executive office.`\
-https://nytimes.com/2025/04/18/nyregion/cuomo-charlotte-bennett-settlement.html
 
