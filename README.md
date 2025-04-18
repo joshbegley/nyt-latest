@@ -1,3 +1,7 @@
+**Bucks’ Damian Lillard reflects on blood clot diagnosis ahead of playoffs**\
+`Lillard was diagnosed with a blood clot on March 25 and missed the final 14 games of the regular season `\
+https://nytimes.com/athletic/6290890/2025/04/18/bucks-damian-lillard-blood-clot-diagnosis-playoffs/
+
 **Spurs' Gregg Popovich back home after medical emergency at restaurant**\
 `Coach had stepped away from the Spurs after suffering a stroke in November.`\
 https://nytimes.com/athletic/6290802/2025/04/18/gregg-popovich-health-ambulance-stroke-spurs-coach/
@@ -31,11 +35,7 @@ https://nytimes.com/interactive/2025/04/18/magazine/magazine-email/20mag-hodgman
 `The designer Conner Ives hoped to do some good with his “Protect the Dolls” T-shirt. Worn by celebrities, and sold out online, the shirts are raising money for a trans cause.`\
 https://nytimes.com/2025/04/18/style/protect-the-dolls-shirt-conner-ives.html
 
-**Justice Dept. Pushes Trump’s Culture War Agenda**\
-`The head of the civil rights division directed its staff to focus on enforcing edicts on transgender women in sports and other issues, shifting from its founding purpose of fighting race-based discrimination.`\
+**Justice Dept.’s Civil Rights Division Pushes Trump’s Culture War Agenda**\
+`The head of the division directed its staff to focus on enforcing edicts on transgender women in sports and other issues, shifting from its founding purpose of fighting race-based discrimination.`\
 https://nytimes.com/2025/04/18/us/politics/trump-doj-civil-rights.html
-
-**Riding Paul Revere’s Route 250 Years Later, Here’s What We Saw**\
-`We followed the route of Revere’s famous midnight ride. Along the way we spoke to many Americans who felt a sense of wonder about that April night.`\
-https://nytimes.com/2025/04/18/us/paul-revere-ride-250-anniversary.html
 
