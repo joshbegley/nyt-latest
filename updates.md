@@ -1,3 +1,7 @@
+**Jason Robertson out week to week with injury, will miss start of playoffs**\
+`The 25-year-old, Dallas' second-leading scorer this season, will not play Saturday in Game 1 vs. Colorado.`\
+https://nytimes.com/athletic/6290580/2025/04/18/stars-jason-robertson-injury-nhl-playoffs/
+
 **The Trick to Less Laundry? Doing It the Right Way. **\
 `Text by Wirecutter Staff`\
 https://nytimes.com/card/2025/04/18/smarter-living/wirecutter/clean-everything-how-to-do-laundry-better
