@@ -2,8 +2,8 @@
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6289566/2025/04/18/astros-first-base-christian-walker-the-windup/
 
-**John J. LaFalce, Congressman Who Fought Financial Fraud, Dies at 85**\
-`A 14-term Democrat from Western New York, he sponsored reforms in banking and corporate governance and pressed Washington to clean up toxic sites like the one at Love Canal.`\
+**John J. LaFalce, 85, Congressman Who Pushed for Love Canal Cleanup, Dies**\
+`A 14-term Democrat from Western New York, he sponsored financial reforms to aid consumers and pressed Washington to protect Americans from environmental hazards.`\
 https://nytimes.com/2025/04/18/nyregion/john-j-lafalce-dead.html
 
 **Winnipeg Jets player poll: On the eve of the playoffs, player defend the food scene**\
