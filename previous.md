@@ -1,3 +1,7 @@
+**After Weeks of Attacking Judges, Trump Administration Blames Judge for Escalating Tensions**\
+`The administration cast the threat by the judge, James E. Boasberg, to open criminal contempt proceedings as another salvo in an increasingly bitter battle between the White House and the courts.`\
+https://nytimes.com/2025/04/18/us/boasberg-trump-administration-tensions.html
+
 **The Giants have a good but potentially confusing problem brewing in their rotation**\
 `It's hard to nit-pick a team on a 110-win pace, but if there has been a "soft" spot so far, it's been with three of their veteran starters.`\
 https://nytimes.com/athletic/6289203/2025/04/18/sf-giants-early-season-rotation-status/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/18/style/ralph-lauren-fall-2025-fashion-show.html
 **Senators playoff mailbag: What lineup will the Senators use for Game 1 against Toronto?**\
 `Also, will the Ottawa Senators go for a big splash in the offseason with over $18 million in cap space? `\
 https://nytimes.com/athletic/6249990/2025/04/18/senators-mailbag-nhl-playoffs/
-
-**Breaking down the 11 minutes of chaos at the end of Manchester United's 5-4 win over Lyon**\
-`In a chaotic finale at Old Trafford, United threw caution to the wind and profited via Leny Yoro, Casemiro and Kobbie Mainoo's composure`\
-https://nytimes.com/athletic/6289723/2025/04/18/manchester-united-5-4-lyon-analysis-maguire/
 
