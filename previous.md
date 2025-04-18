@@ -34,7 +34,7 @@ https://nytimes.com/2025/04/18/world/canada/election-debate-takeaways.html
 `Strikers get spooked by the aura of world-class defenders and tend to avoid them altogether — especially Van Dijk`\
 https://nytimes.com/athletic/6100392/2025/04/18/virgil-van-dijk-dribble-past/
 
-**Football, feelings and friendships - and a day to savour for Arsenal fans in Madrid**\
-`You might not know their name, or what they do, or where they live. But for match days you live together, you are connected. `\
-https://nytimes.com/athletic/6287445/2025/04/18/arsenal-real-madrid-champions-league-friendship/
+**Manchester United and a portrait of pandemonium**\
+`United's win over Lyon was a ridiculous football match engineered by a ridiculous football club. It was a night to savour than scrutinise`\
+https://nytimes.com/athletic/6289350/2025/04/18/manchester-united-lyon-old-trafford-pandemonium/
 
