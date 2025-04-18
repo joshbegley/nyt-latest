@@ -1,3 +1,7 @@
+**'I'll take it day by day': Messi yet to decide on 2026 World Cup**\
+`Messi will turn 38 during the tournament in the United States, Canada and Mexico next summer.`\
+https://nytimes.com/athletic/6289601/2025/04/18/lionel-messi-world-cup-2026-argentina/
+
 **Slot praises new Van Dijk deal; 'Let's see what the future brings' for Alexander-Arnold**\
 `Van Dijk signed a new two-year deal on Thursday.`\
 https://nytimes.com/athletic/6289630/2025/04/18/van-dijk-alexander-arnold-liverpool-contract/
