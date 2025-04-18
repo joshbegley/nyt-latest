@@ -1,3 +1,7 @@
+**Head of I.R.S. Being Ousted Amid Treasury’s Power Struggle With Elon Musk**\
+`Treasury Secretary Scott Bessent complained to President Trump that the acting commissioner had been installed without his knowledge.`\
+https://nytimes.com/2025/04/18/us/politics/irs-scott-bessent-elon-musk.html
+
 **The 4.20.25 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/04/18/the-42025-issue
@@ -11,7 +15,7 @@ https://nytimes.com/2025/04/18/us/politics/trump-harvard-foreign-donations.html
 https://nytimes.com/2025/04/18/world/europe/trump-tariffs-italy-cheese.html
 
 **Most Power Is Restored in Puerto Rico After Islandwide Blackout**\
-`The power outage, which began on Wednesday, was the latest to hit the island, which has long suffered from electricity blackouts.`\
+`The power outage, which began on Wednesday, was the latest to hit the island, which has long suffered from blackouts.`\
 https://nytimes.com/2025/04/18/us/puerto-rico-power-restored.html
 
 **NBA playoff trends I'm watching: Knicks-Pistons matchups, Lakers-Wolves contrast and more**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/18/well/autism-kennedy-reaction.html
 **Wisconsin Supreme Court Says Governor’s 400-Year Edit Was Within Veto Authority**\
 `Gov. Tony Evers, a Democrat, used his veto power to increase school funding limits for four centuries longer than Republican lawmakers in the state had intended.`\
 https://nytimes.com/2025/04/18/us/wisconsin-supreme-court-veto.html
-
-**In Upstate New York, Where Even the Opera Is Locavore**\
-`At Hudson Hall, the director R.B. Schlather leans on artists and musicians from the community. The results have made for better opera.`\
-https://nytimes.com/2025/04/18/arts/music/hudson-hall-handel-opera.html
 

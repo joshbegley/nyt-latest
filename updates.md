@@ -1,3 +1,11 @@
+**Head of I.R.S. Being Ousted Amid Treasury’s Power Struggle With Elon Musk**\
+`Treasury Secretary Scott Bessent complained to President Trump that the acting commissioner had been installed without his knowledge.`\
+https://nytimes.com/2025/04/18/us/politics/irs-scott-bessent-elon-musk.html
+
+**Most Power Is Restored in Puerto Rico After Islandwide Blackout**\
+`The power outage, which began on Wednesday, was the latest to hit the island, which has long suffered from blackouts.`\
+https://nytimes.com/2025/04/18/us/puerto-rico-power-restored.html
+
 **The 4.20.25 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/04/18/the-42025-issue

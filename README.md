@@ -1,3 +1,11 @@
+**Submit questions for Richard Deitsch’s next Sports Media Mailbag**\
+`Have questions about anything in sports media? Leave them below and senior writer Richard Deitsch will answer some in an upcoming mailbag.`\
+https://nytimes.com/athletic/6290351/2025/04/18/richard-deitsch-sports-media-mailbag-nfl-draft-2025/
+
+**Top DOGE Officials Moved From Social Security Administration to Justice Dept.**\
+`The Elon Musk operatives were abruptly shifted to the department’s immigration enforcement unit as part of an expanding effort to use personal data in deportation cases, one official said.`\
+https://nytimes.com/2025/04/18/us/politics/doge-musk-social-security-justice-department.html
+
 **Head of I.R.S. Being Ousted Amid Treasury’s Power Struggle With Elon Musk**\
 `Treasury Secretary Scott Bessent complained to President Trump that the acting commissioner had been installed without his knowledge.`\
 https://nytimes.com/2025/04/18/us/politics/irs-scott-bessent-elon-musk.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6289980/2025/04/18/senators-leafs-ottawa-tickets-nh
 **What It Was Like to Edit the ‘Wolf Hall’ Books**\
 `The final novel in Hilary Mantel’s great trilogy has been adapted for TV. Her editor joins us this week to discuss working with Mantel on the books.`\
 https://nytimes.com/2025/04/18/books/review/podcast-wolf-hall-hillary-mantel-editor.html
-
-**Kennedy Claimed Autism ‘Destroys’ Lives. Autistic People Disagree.**\
-`People in the community called the remarks dehumanizing and warned they could perpetuate harmful stigma.`\
-https://nytimes.com/2025/04/18/well/autism-kennedy-reaction.html
-
-**Wisconsin Supreme Court Says Governor’s 400-Year Edit Was Within Veto Authority**\
-`Gov. Tony Evers, a Democrat, used his veto power to increase school funding limits for four centuries longer than Republican lawmakers in the state had intended.`\
-https://nytimes.com/2025/04/18/us/wisconsin-supreme-court-veto.html
 
