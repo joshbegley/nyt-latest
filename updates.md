@@ -1,3 +1,15 @@
+**The Trick to Less Laundry? Doing It the Right Way. **\
+`Text by Wirecutter Staff`\
+https://nytimes.com/card/2025/04/18/smarter-living/wirecutter/clean-everything-how-to-do-laundry-better
+
+**Cable Car Victims in Italian Crash Were British and Israeli Tourists**\
+`Italian officials have identified the four people who died in a cable car accident on Thursday. The ride was popular with locals and visitors because of its breathtaking views.`\
+https://nytimes.com/2025/04/18/world/europe/italy-cable-car-crash-victims-tourists.html
+
+**Stars' Jason Robertson will miss start of NHL playoffs with lower-body injury**\
+`The 25-year-old, Dallas' second-leading scorer this season, will not play Saturday in Game 1 vs. Colorado.`\
+https://nytimes.com/athletic/6290580/2025/04/18/stars-jason-robertson-injury-nhl-playoffs/
+
 **Cable Car Victims in Italian Crash Were British And Israeli Tourists**\
 `Italian officials have identified the four people who died in a cable car accident on Thursday. The ride was popular with locals and visitors because of  its breathtaking views.`\
 https://nytimes.com/2025/04/18/world/europe/italy-cable-car-crash-victims-tourists.html
