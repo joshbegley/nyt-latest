@@ -1,41 +1,40 @@
-**Rubio Says U.S. to Decide in Days if End to Ukraine War Is ‘Doable’**\
-`“If it is not possible to end the war in Ukraine, we need to move on,” the American secretary of state said as he departed meetings in Paris.`\
-https://nytimes.com/2025/04/18/world/europe/rubio-ukraine-russia-war-paris.html
+**The Downside of Getting What You Want**\
+`The good-news blues are real.`\
+https://nytimes.com/2025/04/18/well/grief-loss-life-transitions.html
 
-**Chelsea and a pursuit of positivity - but where will they find it?**\
-`Chelsea are into the last four of the Conference League - you would not have known it from players and fans' reaction at Stamford Bridge`\
-https://nytimes.com/athletic/6288968/2025/04/18/chelsea-mood-maresca-palmer-james/
+**The New York Times News Quiz, April 18, 2025**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2025/04/18/briefing/trump-shapiro-meta-news-quiz.html
 
-**How Does a Nation Charm China? Name a Boulevard After Xi Jinping.**\
-`China is the biggest foreign patron of Cambodia, where Mr. Xi concluded a tour of Southeast Asia. But the region also needs to curry favor with President Trump.`\
-https://nytimes.com/2025/04/18/world/asia/china-xi-trump-cambodia.html
+**Miley Cyrus Greets the Apocalypse With a Smile**\
+`Plus new tracks from Galactic, Stereolab and more.`\
+https://nytimes.com/2025/04/18/podcasts/miley-cyrus-greets-the-apocalypse-with-a-smile.html
 
-**Premier League top-five odds shifts: Newcastle rise, Forest fall**\
-`Sam Tighe looks at the changing odds around team’s vying for a top-five Premier League place and thus a Champions League berth.
-`\
-https://nytimes.com/athletic/6286985/2025/04/18/premier-league-top-five-odds-betting-predictions/
+**Do Not Sleepwalk Through Trump’s Attack on the Fed’s Independence**\
+`The president’s threat to fire Jerome Powell is more than a personal spat. It’s a direct challenge to the economic foundation that has helped America prosper.`\
+https://nytimes.com/2025/04/18/opinion/federal-reserve-powell-trump.html
 
-**An ‘Army of Child Laborers’ Enriches Shen Yun, Ex-Dancers Say in Suit**\
-`The group performing traditional Chinese dance has been under scrutiny for its treatment of performers and financial practices.`\
-https://nytimes.com/2025/04/18/nyregion/shen-yun-abuse-lawsuit.html
+**With Harvard Threat, Trump Tries to Bend the I.R.S. to His Will**\
+`Since the post-Nixon era, the Internal Revenue Service has had a degree of independence from the White House. President Trump is seeking to change that.`\
+https://nytimes.com/2025/04/18/us/politics/trump-irs.html
 
-**Car Keys**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2025/04/18/learning/car-keys.html
+**What’s Your Reaction to the All-Female Blue Origin Flight?**\
+`A Blue Origin rocket launched the first all-female space crew in decades. Was it a significant moment of progress for women or just a publicity stunt?`\
+https://nytimes.com/2025/04/18/learning/whats-your-reaction-to-the-all-female-blue-origin-flight.html
 
-**A Reporter Gets a Buzz From Thousands of Bees**\
-`The plight of American honeybees drew a journalist away from his usual beat covering energy.`\
-https://nytimes.com/2025/04/18/insider/a-reporter-gets-a-buzz-from-thousands-of-bees.html
+**13 Trump Voters on the Highs and Lows of His Term So Far**\
+`The participants discuss how they think Trump’s second term is going.`\
+https://nytimes.com/interactive/2025/04/18/opinion/trump-approval-focus-group.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/04/18/crosswords/spelling-bee-forum.html
+**The ‘Pride & Prejudice’ Hand Flex: One Gesture and the Web Is Still Swooning**\
+`The subtle expression of longing in the 2005 adaptation wasn’t meant to be a key moment. Even the director is surprised it took on a life of its own.`\
+https://nytimes.com/2025/04/18/movies/pride-and-prejudice-hand-flex-joe-wright.html
 
-**Streetwise, mature, defensively solid: This was a different Spurs**\
-`Everything was on the line for Tottenham in Frankfurt and the under-pressure Postecoglou managed it perfectly `\
-https://nytimes.com/athletic/6288963/2025/04/18/ange-postecoglou-tottenham-europa-league-streetwise/
+**How the Radio Program ‘New Sounds’ Was Saved**\
+`The music program had been on WNYC for four decades. Listener contributions spared it from the ax.`\
+https://nytimes.com/2025/04/18/nyregion/wnyc-public-radio-new-sounds.html
 
-**Stephen Colbert Translates Trump’s Italian Tariff Talk**\
-`“The Late Show” host said Italy’s prime minister, Giorgia Meloni, is “seen as something of a Trump whisperer” after she visited the White House on Thursday.`\
-https://nytimes.com/2025/04/18/arts/television/stephen-colbert-trump-meloni.html
+**8 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://nytimes.com/2025/04/18/movies/new-movies-this-week-critics.html
 
