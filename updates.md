@@ -1,3 +1,7 @@
+**U.S. Adds Fees for Chinese Ships in Effort to Boost Shipbuilding**\
+`The new fees are aimed at countering China’s dominance of the shipbuilding industry, but critics say they will simply raise prices for American consumers.`\
+https://nytimes.com/2025/04/18/business/trump-chinese-ships-fees.html
+
 **Under Trump, Kennedy Center Fires More Staff Members**\
 `At least a half-dozen workers were dismissed as the Trump administration strengthens its control of the cultural institution.`\
 https://nytimes.com/2025/04/18/arts/music/kennedy-center-firings.html
