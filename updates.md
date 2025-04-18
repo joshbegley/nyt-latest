@@ -1,3 +1,8 @@
+**The bandwagon-hopper’s guide to the 2025 NHL playoffs**\
+`An annual look at all 16 playoff teams, ranked from the worst bandwagon options to the very best.
+`\
+https://nytimes.com/athletic/6284399/2025/04/18/nhl-playoffs-bandwagon-guide-stanley-cup/
+
 **Why Anthony Edwards can 'grow up right in front of us' against the Lakers**\
 `LA will try to lure the young superstar into hero ball. Edwards must continue to stay patient and make all the right decisions. `\
 https://nytimes.com/athletic/6289512/2025/04/18/anthony-edwards-timberwolves-nba-playoffs-lakers/
