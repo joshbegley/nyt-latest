@@ -1,3 +1,11 @@
+**Spurs' Gregg Popovich back home after medical emergency at restaurant**\
+`Coach had stepped away from the Spurs after suffering a stroke in November.`\
+https://nytimes.com/athletic/6290802/2025/04/18/gregg-popovich-health-ambulance-stroke-spurs-coach/
+
+**Mayland Deportee Told Senator He Had Been in Isolation in El Salvador Prison**\
+`Senator Chris Van Hollen said Kilmar Abrego Garcia, an immigrant who was deported and incarcerated in El Salvador, reported having been transferred after weeks in a notorious maximum security prison.`\
+https://nytimes.com/2025/04/18/us/politics/abrego-garcia-chris-van-hollen-el-salvador.html
+
 **Lakers reward GM Rob Pelinka with multiyear extension, new title**\
 `Pelinka promoted to president of basketball operations and general manager in wake of Luka Dončić trade, Lakers earning No. 3 seed in West.`\
 https://nytimes.com/athletic/6290778/2025/04/18/lakers-gm-rob-pelinka-contract-extension/
@@ -30,12 +38,4 @@ https://nytimes.com/2025/04/18/us/politics/trump-doj-civil-rights.html
 **Riding Paul Revere’s Route 250 Years Later, Here’s What We Saw**\
 `We followed the route of Revere’s famous midnight ride. Along the way we spoke to many Americans who felt a sense of wonder about that April night.`\
 https://nytimes.com/2025/04/18/us/paul-revere-ride-250-anniversary.html
-
-**Flashback: Your Weekly History Quiz, April 19, 2025**\
-`Can you sort 8 historical events?`\
-https://nytimes.com/interactive/2025/04/18/upshot/flashback.html
-
-**Cherundolo to step down as LAFC manager after 2025 MLS season**\
-`Cherundolo, who has won MLS Cup, the Supporters' Shield and U.S. Open Cup as LAFC manager, will leave at season's end.`\
-https://nytimes.com/athletic/6290782/2025/04/18/steve-cherundolo-step-down-lafc-manager-mls-2025/
 
