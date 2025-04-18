@@ -1,3 +1,7 @@
+**U.S. Adds Fees for Chinese Ships in Effort to Boost Shipbuilding**\
+`The new fees are aimed at countering China’s dominance of the shipbuilding industry, but critics say they will simply raise prices for American consumers.`\
+https://nytimes.com/2025/04/18/business/trump-chinese-ships-fees.html
+
 **Under Trump, Kennedy Center Fires More Staff Members**\
 `At least a half-dozen workers were dismissed as the Trump administration strengthens its control of the cultural institution.`\
 https://nytimes.com/2025/04/18/arts/music/kennedy-center-firings.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/18/us/trump-universities.html
 **Trump Administration Bolsters Putin With Hint of Abandoning Ukraine Talks**\
 `President Trump and Secretary of State Marco Rubio both suggested Friday that the United States might wash its hands of the peace effort.`\
 https://nytimes.com/2025/04/18/us/politics/trump-rubio-putin-ukraine.html
-
-**Mac Gayden, Stellar Nashville Guitarist and Songwriter, Dies at 83**\
-`Heard on Bob Dylan’s “Blonde on Blonde” among other albums, he also sang and was a writer of the perennial “Everlasting Love.”`\
-https://nytimes.com/2025/04/18/arts/music/mac-gayden-dead.html
 
