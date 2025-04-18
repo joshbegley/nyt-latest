@@ -1,3 +1,7 @@
+**MLB's Rob Manfred met with Donald Trump to talk 'issues pertaining to baseball'**\
+`In February, Trump said he would posthumously pardon MLB's hits leader Pete Rose, who was banned from baseball for gambling on his team.`\
+https://nytimes.com/athletic/6289210/2025/04/17/rob-manfred-trump-meeting-mlb/
+
 **Rangers' disappointing season is finally over. Now they must pick up the pieces**\
 `A season that at times felt cursed for New York is finally over. But what comes next for the team won't be easy.`\
 https://nytimes.com/athletic/6289294/2025/04/17/rangers-2024-25-season-end/
