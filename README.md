@@ -1,3 +1,7 @@
+**Why Is It So Hard to Talk About God?**\
+`An interview with Krista Tippett on how people talk — and struggle to talk — about religion and spirituality.`\
+https://nytimes.com/2025/04/18/style/krista-tippett-interview.html
+
 **T's April 27 Culture Issue**\
 ``\
 https://nytimes.com/issue/t-magazine/2025/04/18/ts-april-27-culture-issue-2025
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6290778/2025/04/18/lakers-gm-rob-pelinka-contract-e
 **Mum's the word from Pete Carroll, John Spytek as Raiders prepare for draft**\
 `Will the Raiders take Ashton Jeanty at No. 6? Could they go after a quarterback soon after? The coach and GM didn't disclose much on Friday.`\
 https://nytimes.com/athletic/6290758/2025/04/18/raiders-nfl-draft-pete-carroll-john-spytek/
-
-**In Face of Trump’s Hostility, Hochul Responds With Barbed Gratitude**\
-`President Trump said he was taking over the Penn Station project. Gov. Kathy Hochul, who has at times aggressively criticized Mr. Trump, went a different route.`\
-https://nytimes.com/2025/04/18/nyregion/penn-station-hochul-trump.html
 
