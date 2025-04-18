@@ -1,3 +1,28 @@
+**Premier League top-five odds shifts: Newcastle rise, Forest fall**\
+`Sam Tighe looks at the changing odds around team’s vying for a top-five Premier League place and thus a Champions League berth.
+`\
+https://nytimes.com/athletic/6286985/2025/04/18/premier-league-top-five-odds-betting-predictions/
+
+**An ‘Army of Child Laborers’ Enriches Shen Yun, Ex-Dancers Say in Suit**\
+`The group performing traditional Chinese dance has been under scrutiny for its treatment of performers and financial practices.`\
+https://nytimes.com/2025/04/18/nyregion/shen-yun-abuse-lawsuit.html
+
+**Car Keys**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2025/04/18/learning/car-keys.html
+
+**A Reporter Gets a Buzz From Thousands of Bees**\
+`The plight of American honeybees drew a journalist away from his usual beat covering energy.`\
+https://nytimes.com/2025/04/18/insider/a-reporter-gets-a-buzz-from-thousands-of-bees.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/04/18/crosswords/spelling-bee-forum.html
+
+**Streetwise, mature, defensively solid - this was a different Spurs**\
+`Everything was on the line for Tottenham in Frankfurt and the under-pressure Postecoglou managed it perfectly `\
+https://nytimes.com/athletic/6288963/2025/04/18/ange-postecoglou-tottenham-europa-league-streetwise/
+
 **Stephen Colbert Translates Trump’s Italian Tariff Talk**\
 `“The Late Show” host said Italy’s prime minister, Giorgia Meloni, is “seen as something of a Trump whisperer” after she visited the White House on Thursday.`\
 https://nytimes.com/2025/04/18/arts/television/stephen-colbert-trump-meloni.html
@@ -10,31 +35,7 @@ https://nytimes.com/2025/04/18/learning/word-of-the-day-chortle.html
 `Indian authorities said that Harpreet Singh, who was arrested on Thursday, was linked to a Sikh separatist movement and to an attack on a retired police officer.`\
 https://nytimes.com/2025/04/18/world/asia/us-india-fbi-arrest.html
 
-**Tariffs Won’t Fix Our Trade Imbalance. This Will.**\
-`We should be laser-focused on raising our export capacity.`\
-https://nytimes.com/2025/04/18/opinion/trump-tariffs-trade-exports.html
-
 **The New York Times in Print for Friday, April 18, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/04/18/todays-new-york-times
-
-**Potter at West Ham: The first 100 days and how he prepared for them**\
-`Potter believes he is the best version of himself after his break from coaching. Only time will tell how it will help West Ham.`\
-https://nytimes.com/athletic/6180511/2025/04/18/graham-potter-west-ham-100-days/
-
-**How Newcastle’s season was built on their dramatically improved away form**\
-`If Newcastle get into the Champions League next season, it will be thanks to their resilience and defensive work on the road`\
-https://nytimes.com/athletic/6283179/2025/04/18/newcastle-away-form/
-
-**Nottingham Forest, Edu and what his role could be in the Marinakis football empire**\
-`Edu played a leading role in helping Arsenal become challengers once more. Now he's hoping to help Marinakis' clubs pursue similar success`\
-https://nytimes.com/athletic/6281402/2025/04/18/edu-nottingham-forest-arsenal/
-
-**5 Takeaways From Canada’s Election Debate**\
-`Prime Minister Mark Carney was repeatedly the target of his opponents. President Trump’s threats on Canada loomed over the debate.`\
-https://nytimes.com/2025/04/18/world/canada/election-debate-takeaways.html
-
-**Why is Virgil van Dijk so difficult to dribble past?**\
-`Strikers get spooked by the aura of world-class defenders and tend to avoid them altogether — especially Van Dijk`\
-https://nytimes.com/athletic/6100392/2025/04/18/virgil-van-dijk-dribble-past/
 
