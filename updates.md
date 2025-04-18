@@ -1,3 +1,11 @@
+**Keys to Bucks slowing Pacers in the playoffs: Getting back on defense, limiting turnovers, more**\
+`While they received good news about Lillard on Thursday, the Bucks continued to prepare for Tyrese Haliburton and the Pacers.`\
+https://nytimes.com/athletic/6285062/2025/04/18/bucks-playoffs-strategy-defense-turnovers-pacers/
+
+**Ralph Lauren Introduces the Big Pants Index**\
+`You might not guess what it is, but it makes a lot of sense.`\
+https://nytimes.com/2025/04/18/style/ralph-lauren-fall-2025-fashion-show.html
+
 **Senators playoff mailbag: What lineup will the Senators use for Game 1 against Toronto?**\
 `Also, will the Ottawa Senators go for a big splash in the offseason with over $18 million in cap space? `\
 https://nytimes.com/athletic/6249990/2025/04/18/senators-mailbag-nhl-playoffs/

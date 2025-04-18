@@ -1,3 +1,15 @@
+**How many Premier League sides can qualify for European football next season?**\
+`All the permutations for qualifying for next season's competitions explained`\
+https://nytimes.com/athletic/6289647/2025/04/18/how-many-premier-league-sides-can-qualify-for-european-football-next-season/
+
+**Newcastle agree deal for Malaga winger Cordero**\
+`Barcelona and Real Madrid were both interested in the winger, who will join Newcastle in the summer on a free transfer.`\
+https://nytimes.com/athletic/6280393/2025/04/18/newcastle-antonio-cordero-transfer/
+
+**The $5 Limit on Overdraft Fees May Soon Be Struck Down**\
+`The cap, approved last year, never took effect, though some banks voluntarily lowered or eliminated their fees. Here are some tips on how to avoid or reduce your costs.`\
+https://nytimes.com/2025/04/18/your-money/overdraft-fees-limit.html
+
 **Keys to Bucks slowing Pacers in the playoffs: Getting back on defense, limiting turnovers, more**\
 `While they received good news about Lillard on Thursday, the Bucks continued to prepare for Tyrese Haliburton and the Pacers.`\
 https://nytimes.com/athletic/6285062/2025/04/18/bucks-playoffs-strategy-defense-turnovers-pacers/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/18/world/middleeast/us-yemen-houthis.html
 **Trump Administration Live Updates: Senator to Speak After Meeting With Wrongly Deported Man in El Salvador**\
 ``\
 https://nytimes.com/live/2025/04/18/us/trump-news
-
-**Ange Postecoglou and a Spurs win that could change perceptions more than any other**\
-`This was a win that transforms perception and flips the narrative, more than any other game during Postecoglou's tenure`\
-https://nytimes.com/athletic/6281376/2025/04/18/tottenham-frankfurt-postecoglou/
-
-**Offseason priorities: Coaching search, top pick, free agents**\
-`There is a lot of work for team president Cam Neely and GM Don Sweeney to oversee this summer. Here are nine items they must check off.`\
-https://nytimes.com/athletic/6288276/2025/04/18/bruins-offseason-priorities-coach-draft-free-agency/
-
-**Bukayo Saka: The torturer of Real Madrid**\
-`It was no surprise to see a Spanish newspaper label Bukayo Saka 'a torturer' after the first leg. His performance against Madrid merited it`\
-https://nytimes.com/athletic/6286349/2025/04/18/bukayo-saka-real-madrid-analysis/
 
