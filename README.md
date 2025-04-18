@@ -1,3 +1,7 @@
+**Buium quarterbacks top power play in practice, could debut in Game 1**\
+`The 19-year-old had his first practice with the full team alongside Zach Bogosian on the third pair.`\
+https://nytimes.com/athletic/6288867/2025/04/17/wild-buium-power-play-kaprizov-nhl-playoffs/
+
 **Columbia Activists Are Being Detained. Protesters Demand Answers.**\
 `Demonstrators rallied on Columbia’s campus and marched in Manhattan, three days after Mohsen Mahdawi was detained by immigration officials after arriving for a U.S. citizenship appointment.`\
 https://nytimes.com/2025/04/17/nyregion/columbia-protest-khalil-mahdawi.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/17/world/americas/costa-rica-migrants-lawsuit.html
 **Judge Delays a Resentencing Hearing for the Menendez Brothers**\
 `The proceedings were pushed back for three weeks over the issue of whether a key report on Erik and Lyle Menendez was admissible.`\
 https://nytimes.com/2025/04/17/us/menendez-brothers-resentencing-hearing.html
-
-**What we learned about the Chargers from Joe Hortiz's pre-NFL Draft news conference**\
-`Despite a measured approach during free agency, the Chargers GM feels the roster has already improved ahead of the NFL Draft.`\
-https://nytimes.com/athletic/6288734/2025/04/17/joe-hortiz-chargers-nfl-draft-2025/
 

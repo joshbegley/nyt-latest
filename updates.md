@@ -1,3 +1,7 @@
+**Ukraine and U.S. Sign Agreement in Lead-Up to a Full Minerals Deal**\
+`The signed memorandum of understanding was thin on details, and the White House did not comment. But President Trump has said he expects to sign a minerals deal with Kyiv soon.`\
+https://nytimes.com/2025/04/17/world/europe/ukraine-us-minerals-agreement.html
+
 **Columbia Activists Are Being Detained. Protesters Demand Answers.**\
 `Demonstrators rallied on Columbia’s campus and marched in Manhattan, three days after Mohsen Mahdawi was detained by immigration officials after arriving for a U.S. citizenship appointment.`\
 https://nytimes.com/2025/04/17/nyregion/columbia-protest-khalil-mahdawi.html
