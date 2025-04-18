@@ -1,3 +1,11 @@
+**Bills, Tre'Davious White agree to 1-year deal, adding depth at CB**\
+`The cornerback returns to Buffalo after spending the first seven seasons of his NFL career with the team.`\
+https://nytimes.com/athletic/6289097/2025/04/17/tredavious-white-bills-contract-return/
+
+**Corrections: April 18, 2025**\
+`Corrections that appeared in print on Friday, April 18, 2025.`\
+https://nytimes.com/2025/04/17/pageoneplus/corrections-april-18-2025.html
+
 **Phillies takeaways: Cristopher Sánchez's start, outfield injuries, a bullpen jumble**\
 `Sánchez threw his changeup 50 times in a 6-4 Philadelphia win over the San Francisco Giants.`\
 https://nytimes.com/athletic/6289024/2025/04/17/phillies-win-giants-cristopher-sanchez-outfield-bullpen/

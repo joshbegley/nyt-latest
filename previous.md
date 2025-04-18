@@ -1,3 +1,11 @@
+**Bills, Tre'Davious White agree to 1-year deal, adding depth at CB**\
+`The cornerback returns to Buffalo after spending the first seven seasons of his NFL career with the team.`\
+https://nytimes.com/athletic/6289097/2025/04/17/tredavious-white-bills-contract-return/
+
+**Corrections: April 18, 2025**\
+`Corrections that appeared in print on Friday, April 18, 2025.`\
+https://nytimes.com/2025/04/17/pageoneplus/corrections-april-18-2025.html
+
 **Phillies takeaways: Cristopher Sánchez's start, outfield injuries, a bullpen jumble**\
 `Sánchez threw his changeup 50 times in a 6-4 Philadelphia win over the San Francisco Giants.`\
 https://nytimes.com/athletic/6289024/2025/04/17/phillies-win-giants-cristopher-sanchez-outfield-bullpen/
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/100000010117166/florida-state-university-mass-shoot
 **Wild's Zeev Buium quarterbacks top power play in practice, could debut in playoff opener**\
 `The 19-year-old had his first practice with the full team alongside Zach Bogosian on the third pair.`\
 https://nytimes.com/athletic/6288867/2025/04/17/wild-buium-power-play-kaprizov-nhl-playoffs/
-
-**Columbia Activists Are Being Detained. Protesters Demand Answers.**\
-`Demonstrators rallied on Columbia’s campus and marched in Manhattan, three days after Mohsen Mahdawi was detained by immigration officials after arriving for a U.S. citizenship appointment.`\
-https://nytimes.com/2025/04/17/nyregion/columbia-protest-khalil-mahdawi.html
-
-**Ukraine and U.S. Sign Agreement in Lead-Up to a Full Minerals Deal**\
-`The signed memorandum of understanding was thin on details, and the White House did not comment. But President Trump has said he expects to sign a minerals deal with Kyiv soon.`\
-https://nytimes.com/2025/04/17/world/europe/ukraine-us-minerals-agreement.html
 
