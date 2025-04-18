@@ -1,3 +1,20 @@
+**Lakers reward GM Rob Pelinka with multiyear extension, new title**\
+`Pelinka promoted to president of basketball operations and general manager in wake of Luka Dončić trade, Lakers earning No. 3 seed in West.`\
+https://nytimes.com/athletic/6290778/2025/04/18/lakers-gm-rob-pelinka-contract-extension/
+
+**Mum's the word from Pete Carroll, John Spytek as Raiders prepare for draft**\
+`Will the Raiders take Ashton Jeanty at No. 6? Could they go after a quarterback soon after? The coach and GM didn't disclose much on Friday.`\
+https://nytimes.com/athletic/6290758/2025/04/18/raiders-nfl-draft-pete-carroll-john-spytek/
+
+**In Face of Trump’s Hostility, Hochul Responds With Barbed Gratitude**\
+`President Trump said he was taking over the Penn Station project. Gov. Kathy Hochul, who has at times aggressively criticized Mr. Trump, went a different route.`\
+https://nytimes.com/2025/04/18/nyregion/penn-station-hochul-trump.html
+
+**Yohe: Sullivan candid about future, Malkin M.I.A., more takeaways from locker clean-out day**\
+`Sullivan spoke frankly about his future with Pittsburgh, while Malkin was nowhere to be found as the team heads for the offseason.
+`\
+https://nytimes.com/athletic/6290691/2025/04/18/penguins-mike-sullivan-evgeni-malkin/
+
 **Yohe: Sullivan candid about future, Malkin M.I.A., more takeaways from locker clean-out day**\
 `Sullivan spoke frankly about his future with Pittsburgh, while Malkin was nowhere to be found as the team heads for the offseason.
 `\

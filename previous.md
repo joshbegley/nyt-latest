@@ -1,3 +1,15 @@
+**Lakers reward GM Rob Pelinka with multiyear extension, new title**\
+`Pelinka promoted to president of basketball operations and general manager in wake of Luka Dončić trade, Lakers earning No. 3 seed in West.`\
+https://nytimes.com/athletic/6290778/2025/04/18/lakers-gm-rob-pelinka-contract-extension/
+
+**Mum's the word from Pete Carroll, John Spytek as Raiders prepare for draft**\
+`Will the Raiders take Ashton Jeanty at No. 6? Could they go after a quarterback soon after? The coach and GM didn't disclose much on Friday.`\
+https://nytimes.com/athletic/6290758/2025/04/18/raiders-nfl-draft-pete-carroll-john-spytek/
+
+**In Face of Trump’s Hostility, Hochul Responds With Barbed Gratitude**\
+`President Trump said he was taking over the Penn Station project. Gov. Kathy Hochul, who has at times aggressively criticized Mr. Trump, went a different route.`\
+https://nytimes.com/2025/04/18/nyregion/penn-station-hochul-trump.html
+
 **Yohe: Sullivan candid about future, Malkin M.I.A., more takeaways from locker clean-out day**\
 `Sullivan spoke frankly about his future with Pittsburgh, while Malkin was nowhere to be found as the team heads for the offseason.
 `\
@@ -26,16 +38,4 @@ https://nytimes.com/interactive/2025/04/18/upshot/flashback.html
 **Cherundolo to step down as LAFC manager after 2025 MLS season**\
 `Cherundolo, who has won MLS Cup, the Supporters' Shield and U.S. Open Cup as LAFC manager, will leave at season's end.`\
 https://nytimes.com/athletic/6290782/2025/04/18/steve-cherundolo-step-down-lafc-manager-mls-2025/
-
-**The Draymond Green-Alperen Şengün chess match could decide the Warriors-Rockets series**\
-`There could be moments between Şengün and Green that decide the first-round series. How will the Warriors prepare?`\
-https://nytimes.com/athletic/6290403/2025/04/18/draymond-green-alperen-sengun-warriors-rockets-playoffs/
-
-**Jake Paul to return to boxing in June to face Julio Cesar Chavez Jr.**\
-`Chávez, the son of boxing legend Julio César Chávez, is 39 years old and 13 years removed from being a world champion.`\
-https://nytimes.com/athletic/6290626/2025/04/18/jake-paul-boxing-julio-chavez-jr/
-
-**Judge Rejects A.P.’s Challenge to New White House Press Policy, for Now**\
-`The judge said that he needed more time to determine whether the new policy was discriminatory, but said that the elimination of rotating access for newswires was “facially neutral.”`\
-https://nytimes.com/2025/04/18/us/politics/ap-white-house-press-policy.html
 
