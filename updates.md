@@ -1,3 +1,7 @@
+**Why Is It So Hard to Talk About God?**\
+`An interview with Krista Tippett on how people talk — and struggle to talk — about religion and spirituality.`\
+https://nytimes.com/2025/04/18/style/krista-tippett-interview.html
+
 **T's April 27 Culture Issue**\
 ``\
 https://nytimes.com/issue/t-magazine/2025/04/18/ts-april-27-culture-issue-2025
