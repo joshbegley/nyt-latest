@@ -1,8 +1,20 @@
+**Arsenal's Russo, Kelly available vs Lyon, Slegers confirms**\
+`Both players withdrew from April's England squad through injury.`\
+https://nytimes.com/athletic/6290087/2025/04/18/alessia-russo-chloe-kelly-arsenal-injury-update/
+
+**Anatomy of a decline: Inside Elias Pettersson's fall and how likely he is to bounce back**\
+`It's rare for a player in his mid-20s to fall this dramatically for more than a full calendar year. What's going on with Elias Pettersson?`\
+https://nytimes.com/athletic/6279930/2025/04/18/canucks-elias-pettersson-nhl-decline/
+
+**Miller family buys MLS's RSL, NWSL's Utah Royals in $600M deal**\
+`A few years after selling the NBA's Utah Jazz, the Millers are back in the game of local sports franchise stewardship, both in MLS and NWSL.`\
+https://nytimes.com/athletic/6289981/2025/04/18/real-salt-lake-utah-royals-sale-blitzer-miller-mls-nwsl/
+
 **Mercedes' F1 'space jackets' explained: A shiny new way the sport fights extreme heat﻿**\
 `Mercedes drivers George Russell and Kimi Antonelli have been wearing a dedicated new cooling device to help during hot Formula One races`\
 https://nytimes.com/athletic/6288295/2025/04/18/mercedes-f1-shiny-jackets-explained-extreme-heat/
 
-**After Weeks of Attacking Judges, Trump Administration Blames Judge for Escalating Tensions**\
+**After Attacking Judges, Trump Administration Blames Judge for Escalating Tensions**\
 `The administration cast the threat by the judge, James E. Boasberg, to open criminal contempt proceedings as another salvo in an increasingly bitter battle between the White House and the courts.`\
 https://nytimes.com/2025/04/18/us/boasberg-trump-administration-tensions.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6289647/2025/04/18/how-many-premier-league-sides-ca
 **Newcastle agree deal for Malaga winger Cordero**\
 `Barcelona and Real Madrid were both interested in the winger, who will join Newcastle in the summer on a free transfer.`\
 https://nytimes.com/athletic/6280393/2025/04/18/newcastle-antonio-cordero-transfer/
-
-**The $5 Limit on Overdraft Fees May Soon Be Struck Down**\
-`The cap, approved last year, never took effect, though some banks voluntarily lowered or eliminated their fees. Here are some tips on how to avoid or reduce your costs.`\
-https://nytimes.com/2025/04/18/your-money/overdraft-fees-limit.html
-
-**Keys to Bucks slowing Pacers in the playoffs: Getting back on defense, limiting turnovers, more**\
-`While they received good news about Lillard on Thursday, the Bucks continued to prepare for Tyrese Haliburton and the Pacers.`\
-https://nytimes.com/athletic/6285062/2025/04/18/bucks-playoffs-strategy-defense-turnovers-pacers/
-
-**Ralph Lauren Introduces the Big Pants Index**\
-`You might not guess what it is, but it makes a lot of sense.`\
-https://nytimes.com/2025/04/18/style/ralph-lauren-fall-2025-fashion-show.html
 
