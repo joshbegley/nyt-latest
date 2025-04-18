@@ -1,3 +1,8 @@
+**Premier League top-five odds shifts: Newcastle rise, Forest fall**\
+`Sam Tighe looks at the changing odds around team’s vying for a top-five Premier League place and thus a Champions League berth.
+`\
+https://nytimes.com/athletic/6286985/2025/04/18/premier-league-top-five-odds-betting-predictions/
+
 **How Does a Nation Charm China? Name a Boulevard After Xi Jinping.**\
 `China is the biggest foreign patron of Cambodia, where Mr. Xi concluded a tour of Southeast Asia. But the region also needs to curry favor with President Trump.`\
 https://nytimes.com/2025/04/18/world/asia/china-xi-trump-cambodia.html
