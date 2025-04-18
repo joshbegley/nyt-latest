@@ -1,3 +1,11 @@
+**Under Trump, Kennedy Center Fires More Staff Members**\
+`At least a half-dozen workers were dismissed as the Trump administration strengthens its control of the cultural institution.`\
+https://nytimes.com/2025/04/18/arts/music/kennedy-center-firings.html
+
+**The Head of the I.R.S. Was Ousted**\
+`Also, Milwaukee is facing a lead crisis in its schools. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/04/18/briefing/irs-leadership-lead-wisconsin-schools-john-cena.html
+
 **Appeals Court Denies Trump Administration’s Bid to End Deportation Protections for Venezuelans**\
 `The case is one of several challenging moves by the Trump administration to cancel the temporary legal status of hundreds of thousands of people.`\
 https://nytimes.com/2025/04/18/us/politics/trump-deportations-venezuelans.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/18/us/politics/trump-rubio-putin-ukraine.html
 **Mac Gayden, Stellar Nashville Guitarist and Songwriter, Dies at 83**\
 `Heard on Bob Dylan’s “Blonde on Blonde” among other albums, he also sang and was a writer of the perennial “Everlasting Love.”`\
 https://nytimes.com/2025/04/18/arts/music/mac-gayden-dead.html
-
-**Jazz Chisholm Jr. suspended 1 game after ejection, social media post**\
-`Chisholm will appeal the suspension, according to Yankees manager Aaron Boone: "He understands that he's got to do better in those moments."`\
-https://nytimes.com/athletic/6291022/2025/04/18/yankees-jazz-chisholm-jr-suspended-social-media-post/
-
-**Inside the ‘Tropical Gulag’ in El Salvador Where U.S. Detainees Are Being Held**\
-`A U.S. senator was denied entry to a prison holding Kilmar Armando Abrego Garcia and other deportees. The authorities arranged a meeting at a hotel instead. Here’s what to know.`\
-https://nytimes.com/2025/04/18/world/americas/bukele-abrego-garcia-elsalvador-prison.html
 
