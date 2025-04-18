@@ -1,3 +1,11 @@
+**Tariffs Won’t Fix Our Trade Imbalance. This Will.**\
+`We should be laser-focused on raising our export capacity.`\
+https://nytimes.com/2025/04/18/opinion/trump-tariffs-trade-exports.html
+
+**The New York Times in Print for Friday, April 18, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/18/todays-new-york-times
+
 **Potter at West Ham: The first 100 days and how he prepared for them**\
 `Potter believes he is the best version of himself after his break from coaching. Only time will tell how it will help West Ham.`\
 https://nytimes.com/athletic/6180511/2025/04/18/graham-potter-west-ham-100-days/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6270209/2025/04/18/thomas-fairfoul-liverpool-manche
 **Premier League top-five race: Newcastle aim for second, a big week for Villa, and are Forest slipping?**\
 `Updates from Newcastle, Nottingham Forest, Manchester City, Chelsea and Aston Villa as they battle to qualify for the Champions League`\
 https://nytimes.com/athletic/6286783/2025/04/18/premier-league-race-for-fifth-chelsea-man-city/
-
-**Yankuba Minteh exclusive interview: 'I have nothing against Newcastle, but I have fallen in love with Brighton'**\
-`The Gambia winger was oblivious to the Profit and Sustainability Rules that forced his summer sale, but he is loving life on the south coast`\
-https://nytimes.com/athletic/6278525/2025/04/18/minteh-brighton-newcastle-psr-interview/
-
-**Camp Nou delays may force Barcelona to ask La Liga to start 2025-26 season with away games**\
-`Some at the club now expect Barcelona to return to the Camp Nou in September, meaning a 10-month delay to their initial move-in date`\
-https://nytimes.com/athletic/6286682/2025/04/18/barcelona-camp-nou-delays-next-season-away-games-la-liga/
 

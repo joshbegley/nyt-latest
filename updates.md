@@ -1,3 +1,11 @@
+**Tariffs Won’t Fix Our Trade Imbalance. This Will.**\
+`We should be laser-focused on raising our export capacity.`\
+https://nytimes.com/2025/04/18/opinion/trump-tariffs-trade-exports.html
+
+**The New York Times in Print for Friday, April 18, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/18/todays-new-york-times
+
 **Potter at West Ham: The first 100 days and how he prepared for them**\
 `Potter believes he is the best version of himself after his break from coaching. Only time will tell how it will help West Ham.`\
 https://nytimes.com/athletic/6180511/2025/04/18/graham-potter-west-ham-100-days/
