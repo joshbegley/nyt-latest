@@ -1,3 +1,7 @@
+**2025 Stanley Cup odds: Avs, defending champion Panthers lead tight race**\
+`The Stanley Cup Playoffs appear to be wide open with the betting odds showing a balanced field and no clear favorites.`\
+https://nytimes.com/athletic/6290373/2025/04/18/stanley-cup-odds-avalanche-panthers/
+
 **Lana Del Rey’s Foreboding Lullaby, and 7 More New Songs**\
 `Hear tracks by Madison McFerrin, Ana Tijoux, Matmos and others.`\
 https://nytimes.com/2025/04/18/arts/music/playlist-lana-del-rel-morgan-wallen-post-malone.html
