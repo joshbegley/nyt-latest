@@ -1,3 +1,15 @@
+**In Trump Attack on Harvard, Punishment Precedes Due Process**\
+`The legal underpinnings of the administration’s broadsides against universities and schools stretch precedents and cut corners.`\
+https://nytimes.com/2025/04/18/us/trump-harvard-legal-process.html
+
+**Sean Couturier, Cam York move forward after not seeing eye-to-eye with John Tortorella**\
+`Tortorella continues to be viewed in a positive light by some Flyers, but others such as Couturier and York had different experiences.`\
+https://nytimes.com/athletic/6291161/2025/04/18/flyers-sean-couturier-cam-york-john-tortorella/
+
+**Guns, Extreme Views and Chaotic Childhood Shaped Suspect in Florida State Shooting**\
+`His biological mother said in an interview on Friday that she was bewildered by the attack, and had been against the presence of firearms in her son’s life.`\
+https://nytimes.com/2025/04/18/us/fsu-shooting-suspect-victims.html
+
 **Dodgers place Shohei Ohtani on paternity list as star awaits first child**\
 `Ohtani can be on the list for up to three days, but could be back by the end of the Dodgers’ weekend series against the Texas Rangers`\
 https://nytimes.com/athletic/6291175/2025/04/18/dodgers-shohei-ohtani-paternity-list-child-birth/
