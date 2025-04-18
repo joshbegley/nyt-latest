@@ -1,3 +1,11 @@
+**Trump Calls Florida Shooting a ‘Shame,’ but Signals No Shift in Gun Laws**\
+`Speaking to reporters in the Oval Office, the president said he would “always protect the Second Amendment.”`\
+https://nytimes.com/2025/04/18/us/politics/trump-florida-shooting-gun-laws.html
+
+**Former Rochdale and Man Utd academy player Joe Thompson dies aged 36**\
+`Thompson was diagnosed with cancer for the third time in 2024 after four years in remission.`\
+https://nytimes.com/athletic/6289711/2025/04/18/joe-thompson-dies-rochdale/
+
 **G.O.P. Lawmakers Visit Syria to Assess Situation Under New Government**\
 `The two Republican congressmen were expected to meet with the country’s new leadership and visit areas destroyed during the long civil war.`\
 https://nytimes.com/2025/04/18/world/middleeast/gop-congressmen-visit-syria.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6285055/2025/04/18/college-football-general-manager
 **Michael McLeod was a product of Canada’s star-making system. Now, they're both on trial**\
 `Filmmaker who featured a young Mikey McLeod wonders about the connection between Canada's junior hockey system and "problematic behavior."`\
 https://nytimes.com/athletic/6287799/2025/04/18/michael-mcleod-sexual-assault-hockey-canada/
-
-**Four players who could see a jump in card values during the NBA Playoffs**\
-`An impressive playoff run can do wonders for a player's card values and these are four to watch `\
-https://nytimes.com/athletic/6285832/2025/04/18/nba-cards-doncic-sga-giannis-cunningham/
-
-**Weird & Wild: The 3-run walk, a bizarre strikeout and the baseball gods bless Manny Machado**\
-`Some of the strangest things you'll see on a baseball field happened this week. Here's how it all looked through the broadcasters' eyes.`\
-https://nytimes.com/athletic/6289021/2025/04/18/isotopes-three-runs-walk-manny-machado-dropped-foul-balls/
 
