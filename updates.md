@@ -1,3 +1,7 @@
+**What We Know About the Gunman in the Florida State Shooting**\
+`The authorities identified the attacker as a 20-year-old student at the university, and said he appeared to have been acting alone.`\
+https://nytimes.com/2025/04/17/us/fsu-shooting-gunman-phoenix-ikner.html
+
 **Suns owner Mat Ishbia, infamously defiant last year, strikes new tone this time**\
 `While it wasn't the confession many may have wanted to hear, Thursday's comments were a positive step for an owner still finding his way.`\
 https://nytimes.com/athletic/6288708/2025/04/17/phoenix-suns-mat-ishbia-owner-offseason/

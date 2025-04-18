@@ -1,3 +1,7 @@
+**What We Know About the Gunman in the Florida State Shooting**\
+`The authorities identified the attacker as a 20-year-old student at the university, and said he appeared to have been acting alone.`\
+https://nytimes.com/2025/04/17/us/fsu-shooting-gunman-phoenix-ikner.html
+
 **Suns owner Mat Ishbia, infamously defiant last year, strikes new tone this time**\
 `While it wasn't the confession many may have wanted to hear, Thursday's comments were a positive step for an owner still finding his way.`\
 https://nytimes.com/athletic/6288708/2025/04/17/phoenix-suns-mat-ishbia-owner-offseason/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/04/17/us/trump-news-updates/demonstrators-brought-
 **Trump Opens a Huge Marine Protected Zone to Commercial Fishing**\
 `The president said the move was aimed at making the United States the world’s “dominant seafood leader.”`\
 https://nytimes.com/2025/04/17/climate/trump-fishing-marine-protected-zone.html
-
-**Shooting at Florida State University Leaves 2 Dead and 6 Injured**\
-`Students evacuated after an active shooter opened fire near the university’s student union building on Thursday. Officials identified the shooter as a 20-year-old student at the university and son of a county sheriff’s deputy.`\
-https://nytimes.com/video/us/100000010117166/florida-state-university-mass-shooting.html
 

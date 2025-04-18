@@ -1,3 +1,15 @@
+**‘Easy There, Buddy!’**\
+`Greg Snitkin and Glenn Davis open our solving weekend with a spirited themeless puzzle.`\
+https://nytimes.com/2025/04/17/crosswords/daily-puzzle-2025-04-18.html
+
+**Sabres' Ruff becomes fifth NHL coach to reach 900-win milestone**\
+`Ruff joined Scotty Bowman, Joel Quenneville, Paul Maurice and Barry Trotz as the only coaches in NHL history with 900 wins.`\
+https://nytimes.com/athletic/6270624/2025/04/17/sabres-lindy-ruff-900-wins/
+
+**What We Know About the Florida State University Shooting**\
+`Two people were killed and six others were injured when a 20-year-old gunman opened fire near the student union building, the police said.`\
+https://nytimes.com/2025/04/17/us/florida-state-university-shooting-explainer.html
+
 **What We Know About the Gunman in the Florida State Shooting**\
 `The authorities identified the attacker as a 20-year-old student at the university, and said he appeared to have been acting alone.`\
 https://nytimes.com/2025/04/17/us/fsu-shooting-gunman-phoenix-ikner.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/17/us/politics/harvard-trump.html
 **DOGE Guts Agency That Organizes Community Service Programs**\
 `Employees of AmeriCorps who were put on administrative leave include all those who work for a national disaster response program.`\
 https://nytimes.com/2025/04/17/us/politics/doge-cost-americorps-community-service.html
-
-**Harvard’s Stand Against Trump Is Helping It Raise More Money**\
-`The Trump administration said it would take $2.2 billion in research funds from the school. Some small donors are doing their best to make up for the shortfall.`\
-https://nytimes.com/2025/04/17/us/harvard-donors-trump.html
-
-**Demonstrators brought coffins to the State Dept. to protest cuts to an H.I.V. program.**\
-`By Talya Minsberg and Allison Robbert`\
-https://nytimes.com/live/2025/04/17/us/trump-news-updates/demonstrators-brought-coffins-to-the-state-dept-to-protest-cuts-to-an-hiv-program
-
-**Trump Opens a Huge Marine Protected Zone to Commercial Fishing**\
-`The president said the move was aimed at making the United States the world’s “dominant seafood leader.”`\
-https://nytimes.com/2025/04/17/climate/trump-fishing-marine-protected-zone.html
 
