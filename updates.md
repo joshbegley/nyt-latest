@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6286985/2025/04/18/premier-league-top-five-odds-bet
 `\
 https://nytimes.com/athletic/6286985/2025/04/18/premier-league-top-five-odds-betting-predictions/
 
+**Premier League top-five odds shifts: Newcastle rise, Forest fall**\
+`Sam Tighe looks at the changing odds around team’s vying for a top-five Premier League place and thus a Champions League berth.
+`\
+https://nytimes.com/athletic/6286985/2025/04/18/premier-league-top-five-odds-betting-predictions/
+
 **Rubio Says U.S. to Decide in Days if End to Ukraine War Is ‘Doable’**\
 `“If it is not possible to end the war in Ukraine, we need to move on,” the American secretary of state said as he departed meetings in Paris.`\
 https://nytimes.com/2025/04/18/world/europe/rubio-ukraine-russia-war-paris.html
