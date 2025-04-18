@@ -1,3 +1,7 @@
+**Cherundolo to step down as LAFC manager after 2025 MLS season**\
+`Cherundolo, who has won MLS Cup, the Supporters' Shield and U.S. Open Cup as LAFC manager, will leave at season's end.`\
+https://nytimes.com/athletic/6290782/2025/04/18/steve-cherundolo-step-down-lafc-manager-mls-2025/
+
 **The Draymond Green-Alperen Şengün chess match could decide the Warriors-Rockets series**\
 `There could be moments between Şengün and Green that decide the first-round series. How will the Warriors prepare?`\
 https://nytimes.com/athletic/6290403/2025/04/18/draymond-green-alperen-sengun-warriors-rockets-playoffs/
