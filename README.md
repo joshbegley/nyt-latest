@@ -1,3 +1,7 @@
+**Demonstrators brought coffins to the State Dept. to protest cuts to an H.I.V. program.**\
+`By Talya Minsberg and Allison Robbert`\
+https://nytimes.com/live/2025/04/17/us/trump-news-updates/demonstrators-brought-coffins-to-the-state-dept-to-protest-cuts-to-an-hiv-program
+
 **Trump Opens a Huge Marine Protected Zone to Commercial Fishing**\
 `The president said the move was aimed at making the United States the world’s “dominant seafood leader.”`\
 https://nytimes.com/2025/04/17/climate/trump-fishing-marine-protected-zone.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/17/us/fsu-parkland-school-shooting.html
 **What to Know About the Court Cases Challenging Trump’s Immigration Agenda**\
 `The Trump administration is on course for a potential constitutional clash with the judiciary branch, which has issued several rulings countering executive orders.`\
 https://nytimes.com/2025/04/17/us/politics/trump-immigration-cases-explained.html
-
-**Oklahoma, Missouri heading to NCAA women's gymnastics final**\
-`A clutch 9.9875 from beam star Helen Hu secured Missouri the upset over Florida.`\
-https://nytimes.com/athletic/6288757/2025/04/17/ncaa-gymnastics-semifinal-results-teams/
 
