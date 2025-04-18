@@ -19,7 +19,7 @@ https://nytimes.com/2025/04/18/insider/a-reporter-gets-a-buzz-from-thousands-of-
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/04/18/crosswords/spelling-bee-forum.html
 
-**Streetwise, mature, defensively solid: this was a different Spurs**\
+**Streetwise, mature, defensively solid: This was a different Spurs**\
 `Everything was on the line for Tottenham in Frankfurt and the under-pressure Postecoglou managed it perfectly `\
 https://nytimes.com/athletic/6288963/2025/04/18/ange-postecoglou-tottenham-europa-league-streetwise/
 
