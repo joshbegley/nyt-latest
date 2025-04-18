@@ -1,3 +1,11 @@
+**The Giants have a good but potentially confusing problem brewing in their rotation**\
+`It's hard to nit-pick a team on a 110-win pace, but if there has been a "soft" spot so far, it's been with three of their veteran starters.`\
+https://nytimes.com/athletic/6289203/2025/04/18/sf-giants-early-season-rotation-status/
+
+**House Democrats Criticize Trump’s Smithsonian Order**\
+`In a letter to Vice President JD Vance, four U.S. representatives on a committee that oversees the cultural institution urged him to reject President Trump’s push to reshape it.`\
+https://nytimes.com/2025/04/18/arts/design/smithsonian-letter-vance-trump.html
+
 **The Pulse: ESPN losing a true icon**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6289529/2025/04/18/lee-corso-retirement-gameday-the-pulse/
