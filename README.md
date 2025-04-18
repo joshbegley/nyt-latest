@@ -1,3 +1,15 @@
+**Why Anthony Edwards can 'grow up right in front of us' against the Lakers**\
+`LA will try to lure the young superstar into hero ball. Edwards must continue to stay patient and make all the right decisions. `\
+https://nytimes.com/athletic/6289512/2025/04/18/anthony-edwards-timberwolves-nba-playoffs-lakers/
+
+**TAFC: The craziest game of the season? Plus a 110-year-old match-fixing mystery**\
+`Friday's The Athletic FC newsletter reflects on a night of chaos in the Europa League`\
+https://nytimes.com/athletic/6289695/2025/04/18/tafc-mancester-united-lyon-europa-league/
+
+**Garrett Crochet — ever the perfectionist — still looking to improve despite a sub 2.00 ERA**\
+`Crochet has a 1.38 ERA and a 0.88 WHIP in four starts, but believes he has room to improve. It begs the question: How much better can he be?`\
+https://nytimes.com/athletic/6278963/2025/04/18/garrett-crochet-red-sox-perfectionist/
+
 **Did the Orlando Magic's tough season make them stronger? We'll find out soon**\
 `As the Magic prepare to face the defending champion Celtics, they are reminded of what they've faced and how much they've overcome. `\
 https://nytimes.com/athletic/6288598/2025/04/18/orlando-magic-offense-season-review/
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/6287106/2025/04/18/coaches-execs-predictions-nhl-pl
 **Maguire: Lyon win was 'strangest, maddest game' but Man Utd must improve**\
 `The England international scored the 121st-minute match-winner in a 5-4 comeback win at Old Trafford.`\
 https://nytimes.com/athletic/6289668/2025/04/18/manchester-united-lyon-harry-maguire-goal/
-
-**How Red Wings’ latest playoff miss revealed their fatal flaws**\
-`The story of the 2024-25 Detroit Red Wings is complete. And it is complicated.`\
-https://nytimes.com/athletic/6281795/2025/04/18/detroit-red-wings-nhl-playoff-drought/
-
-**Is Griffin Canning the Mets' next reclamation project? 'Tonight is the blueprint'**\
-`Canning adjusted on the fly against the Cardinals, demonstrating a greater comfort and confidence in his arsenal.`\
-https://nytimes.com/athletic/6289323/2025/04/18/mets-griffin-canning-mlb-blueprint/
-
-**Sliders: For MLB umpire Mark Ripperger, a 'very good' game turned out to be perfect**\
-`Plus base-stealing tips from a speedy Royals rookie, a rare starting pitcher win and more timely and timeless elements of baseball.`\
-https://nytimes.com/athletic/6287047/2025/04/18/umpire-perfect-game-mlb-mark-ripperger-sliders/
 
