@@ -1,3 +1,7 @@
+**Buium quarterbacks top power play in practice, could debut in Game 1**\
+`The 19-year-old had his first practice with the full team alongside Zach Bogosian on the third pair.`\
+https://nytimes.com/athletic/6288867/2025/04/17/wild-buium-power-play-kaprizov-nhl-playoffs/
+
 **Ukraine and U.S. Sign Agreement in Lead-Up to a Full Minerals Deal**\
 `The signed memorandum of understanding was thin on details, and the White House did not comment. But President Trump has said he expects to sign a minerals deal with Kyiv soon.`\
 https://nytimes.com/2025/04/17/world/europe/ukraine-us-minerals-agreement.html
