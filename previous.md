@@ -30,7 +30,7 @@ https://nytimes.com/2025/04/17/world/europe/ukraine-us-minerals-agreement.html
 `The agency, which has returned $21 billion to consumers since its inception, could lose 1,500 of its 1,700 employees, a union warned.`\
 https://nytimes.com/2025/04/17/us/politics/consumer-financial-protection-bureau-layoffs.html
 
-**‘This Should Be Shocking:’ Read a Federal Appeals Panel’s Sharp Rebuke Of The Trump Administration**\
+**‘This Should Be Shocking:’ Read a Federal Appeals Panel’s Sharp Rebuke of the Trump Administration**\
 `A federal appeals court in Virginia issued a striking opinion on Thursday, reaffirming that the Trump administration had to take a more active approach in seeking the release of a Maryland man, Kilmar Armando Abrego Garcia.`\
 https://nytimes.com/interactive/2025/04/17/us/fourth-circuit-kilmar-abrego-garcia-annotation.html
 

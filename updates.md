@@ -1,3 +1,7 @@
+**‘This Should Be Shocking:’ Read a Federal Appeals Panel’s Sharp Rebuke of the Trump Administration**\
+`A federal appeals court in Virginia issued a striking opinion on Thursday, reaffirming that the Trump administration had to take a more active approach in seeking the release of a Maryland man, Kilmar Armando Abrego Garcia.`\
+https://nytimes.com/interactive/2025/04/17/us/fourth-circuit-kilmar-abrego-garcia-annotation.html
+
 **Harvard’s Stand Against Trump Is Helping It Raise More Money**\
 `The Trump administration said it would take $2.2 billion in research funds from the school. Some small donors are doing their best to make up for the shortfall.`\
 https://nytimes.com/2025/04/17/us/harvard-donors-trump.html
