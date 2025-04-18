@@ -1,3 +1,11 @@
+**The Giants have a good but potentially confusing problem brewing in their rotation**\
+`It's hard to nit-pick a team on a 110-win pace, but if there has been a "soft" spot so far, it's been with three of their veteran starters.`\
+https://nytimes.com/athletic/6289203/2025/04/18/sf-giants-early-season-rotation-status/
+
+**House Democrats Criticize Trump’s Smithsonian Order**\
+`In a letter to Vice President JD Vance, four U.S. representatives on a committee that oversees the cultural institution urged him to reject President Trump’s push to reshape it.`\
+https://nytimes.com/2025/04/18/arts/design/smithsonian-letter-vance-trump.html
+
 **The Pulse: ESPN losing a true icon**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6289529/2025/04/18/lee-corso-retirement-gameday-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6249990/2025/04/18/senators-mailbag-nhl-playoffs/
 **Breaking down the 11 minutes of chaos at the end of Manchester United's 5-4 win over Lyon**\
 `In a chaotic finale at Old Trafford, United threw caution to the wind and profited via Leny Yoro, Casemiro and Kobbie Mainoo's composure`\
 https://nytimes.com/athletic/6289723/2025/04/18/manchester-united-5-4-lyon-analysis-maguire/
-
-**13 Songs You Didn’t Know Were Big Hits Right Now**\
-`A tour of the more surprising — and kind of anonymous — corners of the current Billboard Hot 100 singles chart.`\
-https://nytimes.com/2025/04/18/arts/music/13-songs-you-didnt-know-were-big-hits-right-now.html
-
-**U.S. Strikes on Yemeni Port Kill Dozens, Houthis Say**\
-`President Trump has vowed the Iran-backed Houthi militia will be “completely annihilated.” But forceful American strikes do not seem to have deterred the Yemeni fighters.`\
-https://nytimes.com/2025/04/18/world/middleeast/us-yemen-houthis.html
 

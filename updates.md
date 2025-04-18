@@ -1,3 +1,7 @@
+**The Pulse: ESPN losing a true icon**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6289529/2025/04/18/lee-corso-retirement-gameday-the-pulse/
+
 **How many Premier League sides can qualify for European football next season?**\
 `All the permutations for qualifying for next season's competitions explained`\
 https://nytimes.com/athletic/6289647/2025/04/18/how-many-premier-league-sides-can-qualify-for-european-football-next-season/
