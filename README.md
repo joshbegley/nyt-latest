@@ -1,3 +1,7 @@
+**Judge Rejects A.P.’s Challenge to New White House Press Policy, for Now**\
+`The judge said that he needed more time to determine whether the new policy was discriminatory, but said that the elimination of rotating access for newswires was “facially neutral.”`\
+https://nytimes.com/2025/04/18/us/politics/ap-white-house-press-policy.html
+
 **2025 Stanley Cup odds: Avs, defending champion Panthers lead tight race**\
 `The Stanley Cup Playoffs appear to be wide open with the betting odds showing a balanced field and no clear favorites.`\
 https://nytimes.com/athletic/6290373/2025/04/18/stanley-cup-odds-avalanche-panthers/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/18/opinion/white-lotus.html
 **Calls for Mass Resistance to Trump**\
 `Readers respond to a column by David Brooks. Also: The C.D.C.’s Injury Center; slashing the government; a retreat from D.E.I. in private schools.`\
 https://nytimes.com/2025/04/18/opinion/trump-resistance.html
-
-**Merger of Capital One and Discover, Two Credit Card Giants, Wins Approval**\
-`Two regulators signed off on the $35 billion deal, which the banks say will create a competitor to Visa and Mastercard. But consumer advocates warn that the deal may raise costs.`\
-https://nytimes.com/2025/04/18/business/capital-one-discover-merger.html
 
