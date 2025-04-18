@@ -1,3 +1,7 @@
+**Chelsea and a pursuit of positivity - but where will they find it?**\
+`Chelsea are into the last four of the Conference League - you would not have known it from players and fans' reaction at Stamford Bridge`\
+https://nytimes.com/athletic/6288968/2025/04/18/chelsea-mood-maresca-palmer-james/
+
 **How Does a Nation Charm China? Name a Boulevard After Xi Jinping.**\
 `China is the biggest foreign patron of Cambodia, where Mr. Xi concluded a tour of Southeast Asia. But the region also needs to curry favor with President Trump.`\
 https://nytimes.com/2025/04/18/world/asia/china-xi-trump-cambodia.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/04/18/arts/television/stephen-colbert-trump-meloni.html
 **Word of the Day: chortle**\
 `This word has appeared in nine articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/04/18/learning/word-of-the-day-chortle.html
-
-**U.S. Arrests Man Wanted in India for Grenade Attack**\
-`Indian authorities said that Harpreet Singh, who was arrested on Thursday, was linked to a Sikh separatist movement and to an attack on a retired police officer.`\
-https://nytimes.com/2025/04/18/world/asia/us-india-fbi-arrest.html
 

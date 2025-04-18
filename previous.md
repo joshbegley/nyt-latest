@@ -1,3 +1,7 @@
+**How Does a Nation Charm China? Name a Boulevard After Xi Jinping.**\
+`China is the biggest foreign patron of Cambodia, where Mr. Xi concluded a tour of Southeast Asia. But the region also needs to curry favor with President Trump.`\
+https://nytimes.com/2025/04/18/world/asia/china-xi-trump-cambodia.html
+
 **Premier League top-five odds shifts: Newcastle rise, Forest fall**\
 `Sam Tighe looks at the changing odds around team’s vying for a top-five Premier League place and thus a Champions League berth.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/2025/04/18/learning/word-of-the-day-chortle.html
 **U.S. Arrests Man Wanted in India for Grenade Attack**\
 `Indian authorities said that Harpreet Singh, who was arrested on Thursday, was linked to a Sikh separatist movement and to an attack on a retired police officer.`\
 https://nytimes.com/2025/04/18/world/asia/us-india-fbi-arrest.html
-
-**The New York Times in Print for Friday, April 18, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/04/18/todays-new-york-times
 
