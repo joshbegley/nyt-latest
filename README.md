@@ -1,3 +1,15 @@
+**Risk of Financial Panic Tempers Trump on Firing Powell**\
+`President Trump again attacked the chair of the Federal Reserve this week, but advisers say the president has turned more cautious on policies that could stoke extreme financial volatility again.`\
+https://nytimes.com/2025/04/18/business/trump-powell-fed-markets.html
+
+**Trump Shifted on Tariffs After Bond Holders Got Jittery. He Held Millions Himself.**\
+`As of August, the president’s investment portfolio showed significantly more in bonds than in stocks. It is unclear if his personal holdings had any bearing on his decisions regarding tariffs.`\
+https://nytimes.com/2025/04/18/us/politics/trump-bonds-tariffs.html
+
+**New Pornographers Drummer Is Charged With Possession of Child Sexual Abuse Imagery**\
+`Joseph Seiders, who joined the band in 2014, is accused of recording boys who were using a restaurant bathroom.`\
+https://nytimes.com/2025/04/18/arts/music/new-pornographers-joe-seiders-arrested-child-pornography.html
+
 **Messi dismisses Mexico as Argentina rival, other interview takeaways**\
 `The Argentina legend's comments about Mexico in a rare interview added spice to a rivalry that he says doesn't exist. `\
 https://nytimes.com/athletic/6290314/2025/04/18/lionel-messi-mexico-miami-argentina-interview/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/18/us/politics/doge-musk-social-security-justice-dep
 **Head of I.R.S. Being Ousted Amid Treasury’s Power Struggle With Elon Musk**\
 `Treasury Secretary Scott Bessent complained to President Trump that the acting commissioner had been installed without his knowledge.`\
 https://nytimes.com/2025/04/18/us/politics/irs-scott-bessent-elon-musk.html
-
-**The 4.20.25 Issue**\
-``\
-https://nytimes.com/issue/magazine/2025/04/18/the-42025-issue
-
-**Trump Administration Steps Up Pressure on Harvard With New Records Demand**\
-`The Education Department accused the university of failing to report large foreign donations to the government, as required by law. Harvard disputed the claim.`\
-https://nytimes.com/2025/04/18/us/politics/trump-harvard-foreign-donations.html
-
-**A Shadow Hanging Over Europe: ‘A Taste of Italy’ From New Jersey**\
-`Italian food producers worry that tariffs may price them out of the American market amid competition from U.S. goods that look and sound as if they are from Italy.`\
-https://nytimes.com/2025/04/18/world/europe/trump-tariffs-italy-cheese.html
 
