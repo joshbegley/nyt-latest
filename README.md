@@ -1,3 +1,15 @@
+**New York Giants NFL Draft 2025 guide: Picks, predictions and key needs**\
+`The Giants own the No. 3 pick and eight picks total in the NFL Draft. After signing two veterans, should they still draft a QB early?`\
+https://nytimes.com/athletic/6227397/2025/04/18/new-york-giants-2025-nfl-draft-picks-needs-predictions-guide/
+
+**Can We Ask a Disabled Woman to Leave Our Pickleball Group?**\
+`The magazine’s Ethicist columnist on whether to exclude a player who can’t keep up.`\
+https://nytimes.com/2025/04/18/magazine/disability-pickleball-group-ethics.html
+
+**Indianapolis Colts NFL Draft 2025 guide: Picks, predictions and key needs**\
+`The Colts own the No. 14 pick and seven picks total in the NFL Draft. Will they add a TE in Round 1 or target another need?`\
+https://nytimes.com/athletic/6227667/2025/04/18/indianapolis-colts-2025-nfl-draft-picks-needs-predictions-guide/
+
 **Pacers thrilled to have home-court advantage vs. Bucks and their stars**\
 `Indiana spent the last week preparing to face both Giannis Antetokounmpo and Damian Lillard.`\
 https://nytimes.com/athletic/6290726/2025/04/18/pacers-bucks-playoffs-first-round/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/18/style/religion-america.html
 **250 Years and 16 Miles: Following Paul Revere’s Footsteps**\
 `For the 250th anniversary of Revere’s midnight ride, a reporter set out to learn what the route revealed about Boston’s political past and present.`\
 https://nytimes.com/2025/04/18/insider/250-years-and-16-miles-following-paul-reveres-footsteps.html
-
-**Why Is It So Hard to Talk About God?**\
-`An interview with Krista Tippett on how people talk — and struggle to talk — about religion and spirituality.`\
-https://nytimes.com/2025/04/18/style/krista-tippett-interview.html
-
-**T's April 27 Culture Issue**\
-``\
-https://nytimes.com/issue/t-magazine/2025/04/18/ts-april-27-culture-issue-2025
-
-**Rays call up speedy outfielder Chandler Simpson**\
-`The 24-year-old center fielder stole 104 bases in the minors in 2024.`\
-https://nytimes.com/athletic/6290870/2025/04/18/rays-call-up-speedy-outfielder-chandler-simpson/
 
