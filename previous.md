@@ -1,8 +1,12 @@
+**Trump extends hiring freeze into July as a culling of the work force continues.**\
+`By Tim Balk`\
+https://nytimes.com/live/2025/04/17/us/trump-news-updates/trump-extends-hiring-freeze-into-july-as-a-culling-of-the-work-force-continues
+
 **Maple Leafs report cards: Lackadaisical effort in meaningless game still nets win**\
 `Philippe Myers scored a beauty goal and the Leafs avoided injuries in an overtime win against Detroit.`\
 https://nytimes.com/athletic/6289200/2025/04/17/maple-leafs-report-cards-regular-season-finale/
 
-**Flyers failed to meet low expectations this season. What went wrong, and what's next?**\
+**Flyers couldn't even meet low expectations this season. What went wrong, and what's next?**\
 `A high draft pick would ease the sting, but the Flyers have a long way to go.`\
 https://nytimes.com/athletic/6287724/2025/04/17/flyers-offseason-2025-roster/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/17/us/fsu-shooting-gunman-phoenix-ikner.html
 **Suns owner Mat Ishbia, infamously defiant last year, strikes new tone this time**\
 `While it wasn't the confession many may have wanted to hear, Thursday's comments were a positive step for an owner still finding his way.`\
 https://nytimes.com/athletic/6288708/2025/04/17/phoenix-suns-mat-ishbia-owner-offseason/
-
-**Bills, Tre'Davious White agree to 1-year deal, adding depth at CB**\
-`The cornerback returns to Buffalo after spending the first seven seasons of his NFL career with the team.`\
-https://nytimes.com/athletic/6289097/2025/04/17/tredavious-white-bills-contract-return/
 
