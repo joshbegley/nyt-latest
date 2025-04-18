@@ -1,3 +1,7 @@
+**Flashback: Your Weekly History Quiz, April 19, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/04/18/upshot/flashback.html
+
 **Cherundolo to step down as LAFC manager after 2025 MLS season**\
 `Cherundolo, who has won MLS Cup, the Supporters' Shield and U.S. Open Cup as LAFC manager, will leave at season's end.`\
 https://nytimes.com/athletic/6290782/2025/04/18/steve-cherundolo-step-down-lafc-manager-mls-2025/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/6290782/2025/04/18/steve-cherundolo-step-down-lafc-
 `There could be moments between Şengün and Green that decide the first-round series. How will the Warriors prepare?`\
 https://nytimes.com/athletic/6290403/2025/04/18/draymond-green-alperen-sengun-warriors-rockets-playoffs/
 
-**Jake Paul returning to boxing in June, will face Julio Cesar Chavez Jr.**\
+**Jake Paul to return to boxing in June to face Julio Cesar Chavez Jr.**\
 `Chávez, the son of boxing legend Julio César Chávez, is 39 years old and 13 years removed from being a world champion.`\
 https://nytimes.com/athletic/6290626/2025/04/18/jake-paul-boxing-julio-chavez-jr/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/18/world/europe/italy-cable-car-crash-victims-touris
 **Abdullah Ahmad Badawi, a Calming Prime Minister of Malaysia, Dies at 85**\
 `From 2003 to 2009, he brought a quiet style of leadership to his Southeast Asia nation after the strongman rule of Mahathir Mohamad.`\
 https://nytimes.com/2025/04/18/world/asia/abdullah-ahmad-badawi-dead.html
-
-**U.S. Chipmakers Fear They Are Ceding China’s A.I. Market to Huawei**\
-`New restrictions on semiconductor exports to China are scrambling sales and fueling concerns that the Chinese tech giant will become a chip-making powerhouse.`\
-https://nytimes.com/2025/04/18/technology/ai-chips-china-huawei.html
 

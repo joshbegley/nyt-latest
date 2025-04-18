@@ -1,3 +1,11 @@
+**Flashback: Your Weekly History Quiz, April 19, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/04/18/upshot/flashback.html
+
+**Jake Paul to return to boxing in June to face Julio Cesar Chavez Jr.**\
+`Chávez, the son of boxing legend Julio César Chávez, is 39 years old and 13 years removed from being a world champion.`\
+https://nytimes.com/athletic/6290626/2025/04/18/jake-paul-boxing-julio-chavez-jr/
+
 **Cherundolo to step down as LAFC manager after 2025 MLS season**\
 `Cherundolo, who has won MLS Cup, the Supporters' Shield and U.S. Open Cup as LAFC manager, will leave at season's end.`\
 https://nytimes.com/athletic/6290782/2025/04/18/steve-cherundolo-step-down-lafc-manager-mls-2025/
