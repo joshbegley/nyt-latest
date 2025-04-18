@@ -1,3 +1,7 @@
+**Maybe Musk Isn’t All-Powerful, After All**\
+`A series of setbacks have raised questions about Elon Musk’s enduring influence in the White House.`\
+https://nytimes.com/2025/04/18/us/politics/musk-doge-irs-bessent.html
+
 **Ex-Harvard Medical School Morgue Chief to Plead Guilty in Sale of Body Parts**\
 `Cedric Lodge stole organs from cadavers that had been donated for medical research, prosecutors said. The university fired him in 2023.`\
 https://nytimes.com/2025/04/18/us/harvard-morgue-stolen-body-parts-guilty.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/18/us/politics/trump-deportations-venezuelans.html
 **Former Cuomo Aide Settles Sexual Harassment Claim for $450,000**\
 `New York State will pay to resolve a lawsuit filed by Charlotte Bennett over accusations that former Gov. Andrew Cuomo sexually harassed her when she worked in his executive office.`\
 https://nytimes.com/2025/04/18/nyregion/cuomo-charlotte-bennett-settlement.html
-
-**Luka Dončić cracked his phone after hearing Mavs-Lakers trade: 'My heart was broken honestly'**\
-`Dončić told ESPN he was in bed watching a movie when he was informed the Mavericks were moving on from him`\
-https://nytimes.com/athletic/6290968/2025/04/18/luka-doncic-interview-malika-andrews-nba-today/
 
