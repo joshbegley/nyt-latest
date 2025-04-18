@@ -1,3 +1,7 @@
+**Potter at West Ham: The first 100 days and how he prepared for them**\
+`Potter believes he is the best version of himself after his break from coaching. Only time will tell how it will help West Ham.`\
+https://nytimes.com/athletic/6180511/2025/04/18/graham-potter-west-ham-100-days/
+
 **How Newcastle’s season was built on their dramatically improved away form**\
 `If Newcastle get into the Champions League next season, it will be thanks to their resilience and defensive work on the road`\
 https://nytimes.com/athletic/6283179/2025/04/18/newcastle-away-form/
