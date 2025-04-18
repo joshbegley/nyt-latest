@@ -1,3 +1,7 @@
+**Yohe's 10 observations: Sid, Ovi put on a show in second period to remember**\
+`Two of the greatest to do it made even a meaningless game memorable in the Penguins' season finale.`\
+https://nytimes.com/athletic/6283135/2025/04/17/penguins-crosby-ovechkin-rust-season-finale-capitals/
+
 **Trump extends hiring freeze into July as a culling of the work force continues.**\
 `By Tim Balk`\
 https://nytimes.com/live/2025/04/17/us/trump-news-updates/trump-extends-hiring-freeze-into-july-as-a-culling-of-the-work-force-continues
