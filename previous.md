@@ -1,3 +1,7 @@
+**UNC lands ex-South Alabama QB Gio Lopez**\
+`North Carolina coach Bill Belichick and GM Michael Lombardi may have found the Tar Heels’ next quarterback.`\
+https://nytimes.com/athletic/6289395/2025/04/17/gio-lopez-unc-transfer-belichick/
+
 **MLB's Rob Manfred met with Donald Trump to talk 'issues pertaining to baseball'**\
 `In February, Trump said he would posthumously pardon MLB's hits leader Pete Rose, who was banned from baseball for gambling on his team.`\
 https://nytimes.com/athletic/6289210/2025/04/17/rob-manfred-trump-meeting-mlb/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6289099/2025/04/17/mets-center-field-jeff-mcneil-ty
 **‘Easy There, Buddy!’**\
 `Greg Snitkin and Glenn Davis open our solving weekend with a spirited themeless puzzle.`\
 https://nytimes.com/2025/04/17/crosswords/daily-puzzle-2025-04-18.html
-
-**Sabres' Ruff becomes fifth NHL coach to reach 900-win milestone**\
-`Ruff joined Scotty Bowman, Joel Quenneville, Paul Maurice and Barry Trotz as the only coaches in NHL history with 900 wins.`\
-https://nytimes.com/athletic/6270624/2025/04/17/sabres-lindy-ruff-900-wins/
 

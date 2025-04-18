@@ -1,3 +1,7 @@
+**UNC lands ex-South Alabama QB Gio Lopez**\
+`North Carolina coach Bill Belichick and GM Michael Lombardi may have found the Tar Heels’ next quarterback.`\
+https://nytimes.com/athletic/6289395/2025/04/17/gio-lopez-unc-transfer-belichick/
+
 **MLB's Rob Manfred met with Donald Trump to talk 'issues pertaining to baseball'**\
 `In February, Trump said he would posthumously pardon MLB's hits leader Pete Rose, who was banned from baseball for gambling on his team.`\
 https://nytimes.com/athletic/6289210/2025/04/17/rob-manfred-trump-meeting-mlb/
