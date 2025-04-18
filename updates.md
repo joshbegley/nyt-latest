@@ -1,3 +1,7 @@
+**Judge Temporarily Halts Mass Firings at Consumer Bureau**\
+`The court barred the Trump administration from laying off nearly 1,500 workers at the agency until at least April 28.`\
+https://nytimes.com/2025/04/18/us/politics/cfpb-firings-trump-administration.html
+
 **In Trump Attack on Harvard, Punishment Precedes Due Process**\
 `The legal underpinnings of the administration’s broadsides against universities and schools stretch precedents and cut corners.`\
 https://nytimes.com/2025/04/18/us/trump-harvard-legal-process.html

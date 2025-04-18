@@ -1,3 +1,7 @@
+**Judge Temporarily Halts Mass Firings at Consumer Bureau**\
+`The court barred the Trump administration from laying off nearly 1,500 workers at the agency until at least April 28.`\
+https://nytimes.com/2025/04/18/us/politics/cfpb-firings-trump-administration.html
+
 **In Trump Attack on Harvard, Punishment Precedes Due Process**\
 `The legal underpinnings of the administration’s broadsides against universities and schools stretch precedents and cut corners.`\
 https://nytimes.com/2025/04/18/us/trump-harvard-legal-process.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/18/science/mexico-city-bolide-meteor.html
 **Joe Nickell, Paranormal Investigator and ‘Real-Life Scully,’ Dies at 80**\
 `A professional skeptic, he took on hundreds of mysteries, offering rational explanations for the Loch Ness monster, the Shroud of Turin and countless hauntings.`\
 https://nytimes.com/2025/04/18/science/joe-nickell-dead.html
-
-**U.S. Adds Fees for Chinese Ships in Effort to Boost Shipbuilding**\
-`The new fees are aimed at countering China’s dominance of the shipbuilding industry, but critics say they will simply raise prices for American consumers.`\
-https://nytimes.com/2025/04/18/business/trump-chinese-ships-fees.html
 
