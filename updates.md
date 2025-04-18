@@ -1,3 +1,11 @@
+**What It Was Like to Edit the ‘Wolf Hall’ Books**\
+`The final novel in Hilary Mantel’s great trilogy has been adapted for TV. Her editor joins us this week to discuss working with Mantel on the books.`\
+https://nytimes.com/2025/04/18/books/review/podcast-wolf-hall-hillary-mantel-editor.html
+
+**Kennedy Claimed Autism ‘Destroys’ Lives. Autistic People Disagree.**\
+`People in the community called the remarks dehumanizing and warned they could perpetuate harmful stigma.`\
+https://nytimes.com/2025/04/18/well/autism-kennedy-reaction.html
+
 **Wisconsin Supreme Court Says Governor’s 400-Year Edit Was Within Veto Authority**\
 `Gov. Tony Evers, a Democrat, used his veto power to increase school funding limits for four centuries longer than Republican lawmakers in the state had intended.`\
 https://nytimes.com/2025/04/18/us/wisconsin-supreme-court-veto.html
