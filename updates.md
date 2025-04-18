@@ -1,3 +1,20 @@
+**Did the Orlando Magic's tough season make them stronger? We'll find out soon**\
+`As the Magic prepare to face the defending champion Celtics, they are reminded of what they've faced and how much they've overcome. `\
+https://nytimes.com/athletic/6288598/2025/04/18/orlando-magic-offense-season-review/
+
+**Five MLB starters who look like they are breaking out ... are the signs real?**\
+`Let's dive inside the numbers and see if these starting pitchers are worthy of a spot on your fantasy team.`\
+https://nytimes.com/athletic/6288319/2025/04/18/mlb-starting-pitchers-breakout-candidates/
+
+**Rockets vets' advice to younger teammates ahead of huge playoffs: 'Be in the moment'**\
+`Rockets veterans Fred VanVleet, Dillon Brooks, Jeff Green and Steven Adams talk to The Athletic about their playoff experiences. `\
+https://nytimes.com/athletic/6277162/2025/04/18/nba-playoffs-2025-houston-rockets-warriors/
+
+**The bandwagon-hopper’s guide to the 2025 NHL playoffs**\
+`An annual look at all 16 playoff teams, ranked from the worst bandwagon options to the very best.
+`\
+https://nytimes.com/athletic/6284399/2025/04/18/nhl-playoffs-bandwagon-guide-stanley-cup/
+
 **The bandwagon-hopper’s guide to the 2025 NHL playoffs**\
 `An annual look at all 16 playoff teams, ranked from the worst bandwagon options to the very best.
 `\
