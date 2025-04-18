@@ -1,3 +1,11 @@
+**Maple Leafs report cards: Lackadaisical effort in meaningless game still nets win**\
+`Philippe Myers scored a beauty goal and the Leafs avoided injuries in an overtime win against Detroit.`\
+https://nytimes.com/athletic/6289200/2025/04/17/maple-leafs-report-cards-regular-season-finale/
+
+**Yankees' Jazz Chisholm Jr. rips umpire on X after being ejected, breaking MLB rules**\
+`Chisholm argued balls and strikes, was ejected, then posted on social media during the game against league and MLBPA policies.`\
+https://nytimes.com/athletic/6289163/2025/04/17/yankees-jazz-chisholm-jr-ejection-social-media-post-rules/
+
 **Flyers failed to meet low expectations this season. What went wrong, and what's next?**\
 `A high draft pick would ease the sting, but the Flyers have a long way to go.`\
 https://nytimes.com/athletic/6287724/2025/04/17/flyers-offseason-2025-roster/
