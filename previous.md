@@ -1,3 +1,7 @@
+**Slot praises new Van Dijk deal; 'Let's see what the future brings' for Alexander-Arnold**\
+`Van Dijk signed a new two-year deal on Thursday.`\
+https://nytimes.com/athletic/6289630/2025/04/18/van-dijk-alexander-arnold-liverpool-contract/
+
 **The New York Times International Edition in Print for Saturday, April 19, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/04/18/todays-new-york-times-international-edition
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/18/learning/whats-your-reaction-to-the-all-female-bl
 **13 Trump Voters on the Highs and Lows of His Term So Far**\
 `The participants discuss how they think Trump’s second term is going.`\
 https://nytimes.com/interactive/2025/04/18/opinion/trump-approval-focus-group.html
-
-**The ‘Pride & Prejudice’ Hand Flex: One Gesture and the Web Is Still Swooning**\
-`The subtle expression of longing in the 2005 adaptation wasn’t meant to be a key moment. Even the director is surprised it took on a life of its own.`\
-https://nytimes.com/2025/04/18/movies/pride-and-prejudice-hand-flex-joe-wright.html
 

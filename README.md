@@ -1,3 +1,7 @@
+**'I'll take it day by day': Messi yet to decide on 2026 World Cup**\
+`Messi will turn 38 during the tournament in the United States, Canada and Mexico next summer.`\
+https://nytimes.com/athletic/6289601/2025/04/18/lionel-messi-world-cup-2026-argentina/
+
 **Slot praises new Van Dijk deal; 'Let's see what the future brings' for Alexander-Arnold**\
 `Van Dijk signed a new two-year deal on Thursday.`\
 https://nytimes.com/athletic/6289630/2025/04/18/van-dijk-alexander-arnold-liverpool-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/18/us/politics/trump-irs.html
 **What’s Your Reaction to the All-Female Blue Origin Flight?**\
 `A Blue Origin rocket launched the first all-female space crew in decades. Was it a significant moment of progress for women or just a publicity stunt?`\
 https://nytimes.com/2025/04/18/learning/whats-your-reaction-to-the-all-female-blue-origin-flight.html
-
-**13 Trump Voters on the Highs and Lows of His Term So Far**\
-`The participants discuss how they think Trump’s second term is going.`\
-https://nytimes.com/interactive/2025/04/18/opinion/trump-approval-focus-group.html
 

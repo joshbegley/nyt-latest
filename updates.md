@@ -1,3 +1,7 @@
+**Slot praises new Van Dijk deal; 'Let's see what the future brings' for Alexander-Arnold**\
+`Van Dijk signed a new two-year deal on Thursday.`\
+https://nytimes.com/athletic/6289630/2025/04/18/van-dijk-alexander-arnold-liverpool-contract/
+
 **The New York Times International Edition in Print for Saturday, April 19, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/04/18/todays-new-york-times-international-edition
