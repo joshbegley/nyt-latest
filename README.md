@@ -1,3 +1,7 @@
+**Yohe's 10 observations: Sid, Ovi put on a show in second period to remember**\
+`Two of the greatest to do it made even a meaningless game memorable in the Penguins' season finale.`\
+https://nytimes.com/athletic/6283135/2025/04/17/penguins-crosby-ovechkin-rust-season-finale-capitals/
+
 **Trump extends hiring freeze into July as a culling of the work force continues.**\
 `By Tim Balk`\
 https://nytimes.com/live/2025/04/17/us/trump-news-updates/trump-extends-hiring-freeze-into-july-as-a-culling-of-the-work-force-continues
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/17/us/florida-state-university-shooting-explainer.ht
 **What We Know About the Gunman in the Florida State Shooting**\
 `The authorities identified the attacker as a 20-year-old student at the university, and said he appeared to have been acting alone.`\
 https://nytimes.com/2025/04/17/us/fsu-shooting-gunman-phoenix-ikner.html
-
-**Suns owner Mat Ishbia, infamously defiant last year, strikes new tone this time**\
-`While it wasn't the confession many may have wanted to hear, Thursday's comments were a positive step for an owner still finding his way.`\
-https://nytimes.com/athletic/6288708/2025/04/17/phoenix-suns-mat-ishbia-owner-offseason/
 
