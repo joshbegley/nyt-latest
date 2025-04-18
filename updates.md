@@ -1,3 +1,7 @@
+**Ranking the 2026 FIFA World Cup city posters**\
+`Another World Cup means another set of accompanying art, and the 2026 North American edition comes with a wide range of efforts.`\
+https://nytimes.com/athletic/6290320/2025/04/18/2026-world-cup-city-posters-ranking-usa-mexico-canada-fifa/
+
 **Who Is J. Harvie Wilkinson, the Judge Behind a Scathing Rebuke of the White House?**\
 `The judge, a conservative Reagan appointee, wrote a blistering opinion accusing the administration of failing to give a man wrongly deported to El Salvador any semblance of due process.`\
 https://nytimes.com/2025/04/18/us/politics/harvie-wilkinson-conservative-judge.html
