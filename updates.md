@@ -1,3 +1,11 @@
+**Mac Gayden, Stellar Nashville Guitarist and Songwriter, Dies at 83**\
+`Heard on Bob Dylan’s “Blonde on Blonde” among other albums, he also sang and was a writer of the perennial “Everlasting Love.”`\
+https://nytimes.com/2025/04/18/arts/music/mac-gayden-dead.html
+
+**Inside the ‘Tropical Gulag’ in El Salvador Where U.S. Detainees Are Being Held**\
+`A U.S. senator was denied entry to a prison holding Kilmar Armando Abrego Garcia and other deportees. The authorities arranged a meeting at a hotel instead. Here’s what to know.`\
+https://nytimes.com/2025/04/18/world/americas/bukele-abrego-garcia-elsalvador-prison.html
+
 **New York Giants NFL Draft 2025 guide: Picks, predictions and key needs**\
 `The Giants own the No. 3 pick and eight picks total in the NFL Draft. After signing two veterans, should they still draft a QB early?`\
 https://nytimes.com/athletic/6227397/2025/04/18/new-york-giants-2025-nfl-draft-picks-needs-predictions-guide/
