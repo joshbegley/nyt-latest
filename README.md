@@ -1,3 +1,7 @@
+**Messi dismisses Mexico as Argentina rival, other interview takeaways**\
+`The Argentina legend's comments about Mexico in a rare interview added spice to a rivalry that he says doesn't exist. `\
+https://nytimes.com/athletic/6290314/2025/04/18/lionel-messi-mexico-miami-argentina-interview/
+
 **The Windup: Astros cursed at first base?**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6289566/2025/04/18/astros-first-base-christian-walker-the-windup/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/18/us/politics/trump-harvard-foreign-donations.html
 **A Shadow Hanging Over Europe: ‘A Taste of Italy’ From New Jersey**\
 `Italian food producers worry that tariffs may price them out of the American market amid competition from U.S. goods that look and sound as if they are from Italy.`\
 https://nytimes.com/2025/04/18/world/europe/trump-tariffs-italy-cheese.html
-
-**Most Power Is Restored in Puerto Rico After Islandwide Blackout**\
-`The power outage, which began on Wednesday, was the latest to hit the island, which has long suffered from blackouts.`\
-https://nytimes.com/2025/04/18/us/puerto-rico-power-restored.html
 
