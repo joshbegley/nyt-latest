@@ -1,3 +1,7 @@
+**Under Trump, National Security Guardrails Vanish**\
+`America’s adversaries have more room to operate, at least in the disinformation space, cybersecurity experts say.`\
+https://nytimes.com/2025/04/18/us/politics/trump-national-security.html
+
 **Clippers-Nuggets playoff preview: Can LA find an answer against Nikola Jokić?**\
 `The Clippers have been hot and have several statistical advantages. But Denver still has arguably the best player in the world.`\
 https://nytimes.com/athletic/6289715/2025/04/18/clippers-nuggets-playoff-preview-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/18/arts/design/smithsonian-letter-vance-trump.html
 **The Pulse: ESPN losing a true icon**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6289529/2025/04/18/lee-corso-retirement-gameday-the-pulse/
-
-**How many Premier League sides can qualify for European football next season?**\
-`All the permutations for qualifying for next season's competitions explained`\
-https://nytimes.com/athletic/6289647/2025/04/18/how-many-premier-league-sides-can-qualify-for-european-football-next-season/
 

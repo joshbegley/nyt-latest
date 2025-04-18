@@ -1,3 +1,7 @@
+**Under Trump, National Security Guardrails Vanish**\
+`America’s adversaries have more room to operate, at least in the disinformation space, cybersecurity experts say.`\
+https://nytimes.com/2025/04/18/us/politics/trump-national-security.html
+
 **Clippers-Nuggets playoff preview: Can LA find an answer against Nikola Jokić?**\
 `The Clippers have been hot and have several statistical advantages. But Denver still has arguably the best player in the world.`\
 https://nytimes.com/athletic/6289715/2025/04/18/clippers-nuggets-playoff-preview-nba/
