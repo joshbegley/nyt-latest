@@ -1,3 +1,15 @@
+**Flyers failed to meet low expectations this season. What went wrong, and what's next?**\
+`A high draft pick would ease the sting, but the Flyers have a long way to go.`\
+https://nytimes.com/athletic/6287724/2025/04/17/flyers-offseason-2025-roster/
+
+**Yankees’ Jazz Chisholm Jr. rips umpire on X after being ejected, breaking MLB rules**\
+`Chisholm believed argued balls and strikes, was ejected, then posted on social media against league and MLBPA policies.`\
+https://nytimes.com/athletic/6289163/2025/04/17/yankees-jazz-chisholm-jr-ejection-social-media-post-rules/
+
+**New York Mets exploring creative options in center field: Is Jeff McNeil the answer?**\
+`McNeil has played 3 major-league games in center field, but the Mets need help with Jose Siri out.`\
+https://nytimes.com/athletic/6289099/2025/04/17/mets-center-field-jeff-mcneil-tyrone-taylor/
+
 **‘Easy There, Buddy!’**\
 `Greg Snitkin and Glenn Davis open our solving weekend with a spirited themeless puzzle.`\
 https://nytimes.com/2025/04/17/crosswords/daily-puzzle-2025-04-18.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6289097/2025/04/17/tredavious-white-bills-contract-
 **Corrections: April 18, 2025**\
 `Corrections that appeared in print on Friday, April 18, 2025.`\
 https://nytimes.com/2025/04/17/pageoneplus/corrections-april-18-2025.html
-
-**Phillies takeaways: Cristopher Sánchez's start, outfield injuries, a bullpen jumble**\
-`Sánchez threw his changeup 50 times in a 6-4 Philadelphia win over the San Francisco Giants.`\
-https://nytimes.com/athletic/6289024/2025/04/17/phillies-win-giants-cristopher-sanchez-outfield-bullpen/
-
-**Pride and Dread in Harvard Yard as Trump Wars With the University**\
-`Students on Thursday protested the president’s attacks on Harvard, but at town hall meetings, defiance mixed with uncertainty as faculty members examined the toll of the White House’s actions.`\
-https://nytimes.com/2025/04/17/us/politics/harvard-trump.html
-
-**DOGE Guts Agency That Organizes Community Service Programs**\
-`Employees of AmeriCorps who were put on administrative leave include all those who work for a national disaster response program.`\
-https://nytimes.com/2025/04/17/us/politics/doge-cost-americorps-community-service.html
 
