@@ -1,3 +1,7 @@
+**How the Blues became the NHL's hottest team: An in-season minicamp, Jobu and 'more fun'**\
+`The Blues have the NHL's best record since the 4 Nations Face-Off. How did they turn their season around so completely?`\
+https://nytimes.com/athletic/6253065/2025/04/18/blues-nhl-playoffs-hottest-team/
+
 **Why Anthony Edwards can 'grow up right in front of us' against the Lakers**\
 `LA will try to lure the young superstar into hero ball. Edwards must continue to stay patient and make all the right decisions. `\
 https://nytimes.com/athletic/6289512/2025/04/18/anthony-edwards-timberwolves-nba-playoffs-lakers/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6284399/2025/04/18/nhl-playoffs-bandwagon-guide-sta
 **NHL execs and coaches pick the playoffs' 3 monster first-round matchups**\
 `Who will win Senators-Leafs, Avs-Stars and Panthers-Lightning? We polled seven execs and six coaches for the predictions and analysis.`\
 https://nytimes.com/athletic/6287106/2025/04/18/coaches-execs-predictions-nhl-playoffs/
-
-**Maguire: Lyon win was 'strangest, maddest game' but Man Utd must improve**\
-`The England international scored the 121st-minute match-winner in a 5-4 comeback win at Old Trafford.`\
-https://nytimes.com/athletic/6289668/2025/04/18/manchester-united-lyon-harry-maguire-goal/
 

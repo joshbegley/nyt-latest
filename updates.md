@@ -1,3 +1,20 @@
+**Why Anthony Edwards can 'grow up right in front of us' against the Lakers**\
+`LA will try to lure the young superstar into hero ball. Edwards must continue to stay patient and make all the right decisions. `\
+https://nytimes.com/athletic/6289512/2025/04/18/anthony-edwards-timberwolves-nba-playoffs-lakers/
+
+**TAFC: The craziest game of the season? Plus a 110-year-old match-fixing mystery**\
+`Friday's The Athletic FC newsletter reflects on a night of chaos in the Europa League`\
+https://nytimes.com/athletic/6289695/2025/04/18/tafc-mancester-united-lyon-europa-league/
+
+**Garrett Crochet — ever the perfectionist — still looking to improve despite a sub 2.00 ERA**\
+`Crochet has a 1.38 ERA and a 0.88 WHIP in four starts, but believes he has room to improve. It begs the question: How much better can he be?`\
+https://nytimes.com/athletic/6278963/2025/04/18/garrett-crochet-red-sox-perfectionist/
+
+**The bandwagon-hopper’s guide to the 2025 NHL playoffs**\
+`An annual look at all 16 playoff teams, ranked from the worst bandwagon options to the very best.
+`\
+https://nytimes.com/athletic/6284399/2025/04/18/nhl-playoffs-bandwagon-guide-stanley-cup/
+
 **The bandwagon-hopper’s guide to the 2025 NHL playoffs**\
 `An annual look at all 16 playoff teams, ranked from the worst bandwagon options to the very best.
 `\
