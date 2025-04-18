@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6290691/2025/04/18/penguins-mike-sullivan-evgeni-malkin/
 
+**Yohe: Sullivan candid about future, Malkin M.I.A., more takeaways from locker clean-out day**\
+`Sullivan spoke frankly about his future with Pittsburgh, while Malkin was nowhere to be found as the team heads for the offseason.
+`\
+https://nytimes.com/athletic/6290691/2025/04/18/penguins-mike-sullivan-evgeni-malkin/
+
 **How Gross Can Guys Get in the Kitchen?**\
 `A ruling on two connected food-handling disputes.`\
 https://nytimes.com/interactive/2025/04/18/magazine/magazine-email/20mag-hodgmanquiz.html
