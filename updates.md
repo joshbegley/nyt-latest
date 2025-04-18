@@ -1,3 +1,7 @@
+**Word of the Day: chortle**\
+`This word has appeared in nine articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/04/18/learning/word-of-the-day-chortle.html
+
 **U.S. Arrests Man Wanted in India for Grenade Attack**\
 `Indian authorities said that Harpreet Singh, who was arrested on Thursday, was linked to a Sikh separatist movement and to an attack on a retired police officer.`\
 https://nytimes.com/2025/04/18/world/asia/us-india-fbi-arrest.html
