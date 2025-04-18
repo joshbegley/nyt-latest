@@ -1,3 +1,23 @@
+**5 Takeaways From Canada’s Election Debate**\
+`Prime Minister Mark Carney was repeatedly the target of his opponents. President Trump’s threats on Canada loomed over the debate.`\
+https://nytimes.com/2025/04/18/world/canada/election-debate-takeaways.html
+
+**Why is Virgil van Dijk so difficult to dribble past?**\
+`Strikers get spooked by the aura of world-class defenders and tend to avoid them altogether — especially Van Dijk`\
+https://nytimes.com/athletic/6100392/2025/04/18/virgil-van-dijk-dribble-past/
+
+**Football, feelings and friendships - and a day to savour for Arsenal fans in Madrid**\
+`You might not know their name, or what they do, or where they live. But for match days you live together, you are connected. `\
+https://nytimes.com/athletic/6287445/2025/04/18/arsenal-real-madrid-champions-league-friendship/
+
+**The mystery of Thomas Fairfoul, an unmarked grave and England's biggest fixing scandal**\
+`Four Liverpool players were involved in the 1915 betting scandal that rocked the sport but many questions remain unanswered`\
+https://nytimes.com/athletic/6270209/2025/04/18/thomas-fairfoul-liverpool-manchester-united-fixing/
+
+**Premier League top-five race: Newcastle aim for second, a big week for Villa, and are Forest slipping?**\
+`Updates from Newcastle, Nottingham Forest, Manchester City, Chelsea and Aston Villa as they battle to qualify for the Champions League`\
+https://nytimes.com/athletic/6286783/2025/04/18/premier-league-race-for-fifth-chelsea-man-city/
+
 **Yankuba Minteh exclusive interview: 'I have nothing against Newcastle, but I have fallen in love with Brighton'**\
 `The Gambia winger was oblivious to the Profit and Sustainability Rules that forced his summer sale, but he is loving life on the south coast`\
 https://nytimes.com/athletic/6278525/2025/04/18/minteh-brighton-newcastle-psr-interview/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6283712/2025/04/18/fpl-double-gameweek-33-strategy-
 **Sabres final thoughts: Buffalo can't sell status quo after another step backward**\
 `For the 10th time in the Sabres' 14-year playoff drought, they failed to hit 80 points in a season.`\
 https://nytimes.com/athletic/6289409/2025/04/18/sabres-nhl-playoff-drought-2024-25-season/
-
-**Friday Briefing: Trump’s Tariff Bargaining**\
-`Plus, Argentina’s capybara problem.`\
-https://nytimes.com/2025/04/18/briefing/europe-trump-tariffs-google-syria.html
-
-**He Saw Her on a Billboard. Then Fate Brought Them Together.**\
-`When Chike Ozah and Kellie Brown crossed paths in person, she wasn’t ready for a romantic relationship, but Mr. Ozah remained persistent.`\
-https://nytimes.com/2025/04/18/style/kellie-brown-chike-ozah-wedding.html
-
-**Their Love ‘Moved the Earth’**\
-`Ten minutes into Gregg Bonti and Alex Randall’s first date, Mr. Bonti was smitten. “I’m going to marry this man or he’s going to ruin my life,” he said.`\
-https://nytimes.com/2025/04/18/style/gregg-bonti-alex-randall-wedding.html
-
-**How to watch the Saudi Arabian Grand Prix: F1 concludes Middle East doubleheader**\
-`F1's fifth race of the season takes place on Sunday. Oscar Piastri is the favorite to win, followed closely by Lando Norris. `\
-https://nytimes.com/athletic/6282945/2025/04/18/saudi-arabian-grand-prix-f1-how-to-watch/
-
-**A Match Reveals a Secret History**\
-`Did I want to expose my mother’s past, or bury it?`\
-https://nytimes.com/2025/04/18/style/modern-love-23andme-dna-match-reveals-a-secret-history.html
 
