@@ -1,3 +1,19 @@
+**As doubters write off Stars for stumbling into the playoffs, Dallas is just getting started**\
+`Limping and losing their way into the postseason, the Stars are not counting themselves out against the Avalanche. `\
+https://nytimes.com/athletic/6290872/2025/04/18/dallas-stars-nhl-playoffs-injury/
+
+**The Moments That Shape Our Beliefs**\
+`By Lauren Jackson`\
+https://nytimes.com/interactive/2025/04/18/style/religion-faith-belief.html
+
+**Americans Haven’t Found a Satisfying Alternative to Religion**\
+`Is it any wonder the country is revisiting faith?`\
+https://nytimes.com/2025/04/18/style/religion-america.html
+
+**250 Years and 16 Miles: Following Paul Revere’s Footsteps**\
+`For the 250th anniversary of Revere’s midnight ride, a reporter set out to learn what the route revealed about Boston’s political past and present.`\
+https://nytimes.com/2025/04/18/insider/250-years-and-16-miles-following-paul-reveres-footsteps.html
+
 **Why Is It So Hard to Talk About God?**\
 `An interview with Krista Tippett on how people talk — and struggle to talk — about religion and spirituality.`\
 https://nytimes.com/2025/04/18/style/krista-tippett-interview.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6290727/2025/04/18/drake-defemation-lawsuit-umg-sup
 **Bucks’ Damian Lillard reflects on blood clot diagnosis ahead of playoffs**\
 `Lillard was diagnosed with a blood clot on March 25 and missed the final 14 games of the regular season `\
 https://nytimes.com/athletic/6290890/2025/04/18/bucks-damian-lillard-blood-clot-diagnosis-playoffs/
-
-**Spurs' Gregg Popovich back home after medical emergency at restaurant**\
-`Coach had stepped away from the Spurs after suffering a stroke in November.`\
-https://nytimes.com/athletic/6290802/2025/04/18/gregg-popovich-health-ambulance-stroke-spurs-coach/
-
-**Maryland Deportee Told Senator He Had Been in Isolation in El Salvador Prison**\
-`Senator Chris Van Hollen said Kilmar Abrego Garcia, an immigrant who was deported and incarcerated in El Salvador, reported having been transferred after weeks in a notorious maximum security prison.`\
-https://nytimes.com/2025/04/18/us/politics/abrego-garcia-chris-van-hollen-el-salvador.html
-
-**Lakers reward GM Rob Pelinka with multiyear extension, new title**\
-`Pelinka promoted to president of basketball operations and general manager in wake of Luka Dončić trade, Lakers earning No. 3 seed in West.`\
-https://nytimes.com/athletic/6290778/2025/04/18/lakers-gm-rob-pelinka-contract-extension/
-
-**Mum's the word from Pete Carroll, John Spytek as Raiders prepare for draft**\
-`Will the Raiders take Ashton Jeanty at No. 6? Could they go after a quarterback soon after? The coach and GM didn't disclose much on Friday.`\
-https://nytimes.com/athletic/6290758/2025/04/18/raiders-nfl-draft-pete-carroll-john-spytek/
 

@@ -1,3 +1,19 @@
+**As doubters write off Stars for stumbling into the playoffs, Dallas is just getting started**\
+`Limping and losing their way into the postseason, the Stars are not counting themselves out against the Avalanche. `\
+https://nytimes.com/athletic/6290872/2025/04/18/dallas-stars-nhl-playoffs-injury/
+
+**The Moments That Shape Our Beliefs**\
+`By Lauren Jackson`\
+https://nytimes.com/interactive/2025/04/18/style/religion-faith-belief.html
+
+**Americans Haven’t Found a Satisfying Alternative to Religion**\
+`Is it any wonder the country is revisiting faith?`\
+https://nytimes.com/2025/04/18/style/religion-america.html
+
+**250 Years and 16 Miles: Following Paul Revere’s Footsteps**\
+`For the 250th anniversary of Revere’s midnight ride, a reporter set out to learn what the route revealed about Boston’s political past and present.`\
+https://nytimes.com/2025/04/18/insider/250-years-and-16-miles-following-paul-reveres-footsteps.html
+
 **Why Is It So Hard to Talk About God?**\
 `An interview with Krista Tippett on how people talk — and struggle to talk — about religion and spirituality.`\
 https://nytimes.com/2025/04/18/style/krista-tippett-interview.html

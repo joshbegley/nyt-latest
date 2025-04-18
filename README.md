@@ -1,3 +1,15 @@
+**Pacers thrilled to have home-court advantage vs. Bucks and their stars**\
+`Indiana spent the last week preparing to face both Giannis Antetokounmpo and Damian Lillard.`\
+https://nytimes.com/athletic/6290726/2025/04/18/pacers-bucks-playoffs-first-round/
+
+**Leafs, Senators, history and pressure: What success means in the Battle of Ontario**\
+`The Athletic Hockey Show discusses the Battle of Ontario between the Toronto Maple Leafs and the Ottawa Senators.`\
+https://nytimes.com/athletic/6288941/2025/04/18/leafs-senators-athletic-hockey-show-nhl-playoffs/
+
+**Don Mischer, Master of Live Television, Is Dead at 85**\
+`He produced and directed major events like the Oscars, Emmys and Tonys, as well as Super Bowl halftime shows and Olympic opening ceremonies.`\
+https://nytimes.com/2025/04/18/business/media/don-mischer-dead.html
+
 **As doubters write off Stars for stumbling into the playoffs, Dallas is just getting started**\
 `Limping and losing their way into the postseason, the Stars are not counting themselves out against the Avalanche. `\
 https://nytimes.com/athletic/6290872/2025/04/18/dallas-stars-nhl-playoffs-injury/
@@ -25,16 +37,4 @@ https://nytimes.com/issue/t-magazine/2025/04/18/ts-april-27-culture-issue-2025
 **Rays call up speedy outfielder Chandler Simpson**\
 `The 24-year-old center fielder stole 104 bases in the minors in 2024.`\
 https://nytimes.com/athletic/6290870/2025/04/18/rays-call-up-speedy-outfielder-chandler-simpson/
-
-**Columbia Journalism Review Fires Its Editor**\
-`Sewell Chan, who started as executive editor of the publication in September, said his firing after several staff complaints was “baffling.”`\
-https://nytimes.com/2025/04/18/business/media/cjr-sewell-chan-fired.html
-
-**Drake amends defamation suit against UMG to include Super Bowl LIX performance**\
-`Drake says Lamar's halftime performance at February's Super Bowl revitalized attention to false and defamatory allegations against him.`\
-https://nytimes.com/athletic/6290727/2025/04/18/drake-defemation-lawsuit-umg-super-bowl-lix/
-
-**Bucks’ Damian Lillard reflects on blood clot diagnosis ahead of playoffs**\
-`Lillard was diagnosed with a blood clot on March 25 and missed the final 14 games of the regular season `\
-https://nytimes.com/athletic/6290890/2025/04/18/bucks-damian-lillard-blood-clot-diagnosis-playoffs/
 
