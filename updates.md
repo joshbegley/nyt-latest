@@ -1,3 +1,15 @@
+**Nuggets find normalcy is the 'best medicine' in preparing for Clippers after tumultuous week**\
+`"Sometimes, you just have to go and play and clear your mind of things and enjoy what you love doing," interim coach David Adelman said.`\
+https://nytimes.com/athletic/6289489/2025/04/18/nuggets-clippers-first-round-series-preparation/
+
+**The Bounce: The NBA playoffs tip off this weekend. How could each first-round series go?**\
+`With the NBA playoffs beginning tomorrow, let's preview every first-round matchup`\
+https://nytimes.com/athletic/6290196/2025/04/18/nba-playoffs-thunder-lakers-cavaliers-celtics-nba-the-bounce/
+
+**Battling ‘Eat and Flee’ Tourists, Venice Brings Its Entrance Fee Back**\
+`A measure to limit day tourism on peak days began for the second year on Friday, charging day trippers five euros (or 10 for the spontaneous traveler).`\
+https://nytimes.com/2025/04/18/world/europe/venice-entrance-fee-tourists.html
+
 **Google Makes History With Rapid-Fire Antitrust Losses**\
 `Within a year, two federal judges declared the tech giant a monopoly in search and ad technology. The tide may be turning for antitrust.`\
 https://nytimes.com/2025/04/18/technology/google-antitrust-losses-history.html
