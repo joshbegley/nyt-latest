@@ -1,3 +1,15 @@
+**Phillies takeaways: Cristopher Sánchez's start, outfield injuries, a bullpen jumble**\
+`Sánchez threw his changeup 50 times in a 6-4 Philadelphia win over the San Francisco Giants.`\
+https://nytimes.com/athletic/6289024/2025/04/17/phillies-win-giants-cristopher-sanchez-outfield-bullpen/
+
+**Pride and Dread in Harvard Yard as Trump Wars With the University**\
+`Students on Thursday protested the president’s attacks on Harvard, but at town hall meetings, defiance mixed with uncertainty as faculty members examined the toll of the White House’s actions.`\
+https://nytimes.com/2025/04/17/us/politics/harvard-trump.html
+
+**DOGE Guts Agency That Organizes Community Service Programs**\
+`Employees of AmeriCorps who were put on administrative leave include all those who work for a national disaster response program.`\
+https://nytimes.com/2025/04/17/us/politics/doge-cost-americorps-community-service.html
+
 **Harvard’s Stand Against Trump Is Helping It Raise More Money**\
 `The Trump administration said it would take $2.2 billion in research funds from the school. Some small donors are doing their best to make up for the shortfall.`\
 https://nytimes.com/2025/04/17/us/harvard-donors-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/17/nyregion/columbia-protest-khalil-mahdawi.html
 **Ukraine and U.S. Sign Agreement in Lead-Up to a Full Minerals Deal**\
 `The signed memorandum of understanding was thin on details, and the White House did not comment. But President Trump has said he expects to sign a minerals deal with Kyiv soon.`\
 https://nytimes.com/2025/04/17/world/europe/ukraine-us-minerals-agreement.html
-
-**Mass Layoffs Hit Consumer Financial Protection Bureau**\
-`The agency, which has returned $21 billion to consumers since its inception, could lose 1,500 of its 1,700 employees, a union warned.`\
-https://nytimes.com/2025/04/17/us/politics/consumer-financial-protection-bureau-layoffs.html
-
-**‘This Should Be Shocking:’ Read a Federal Appeals Panel’s Sharp Rebuke of the Trump Administration**\
-`A federal appeals court in Virginia issued a striking opinion on Thursday, reaffirming that the Trump administration had to take a more active approach in seeking the release of a Maryland man, Kilmar Armando Abrego Garcia.`\
-https://nytimes.com/interactive/2025/04/17/us/fourth-circuit-kilmar-abrego-garcia-annotation.html
-
-**They Endured the Parkland Shooting. Then Came Florida State.**\
-`For some, the sight of law enforcement officers in tactical gear on Thursday, sweeping campus for a gunman, was familiar.`\
-https://nytimes.com/2025/04/17/us/fsu-parkland-school-shooting.html
 

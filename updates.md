@@ -1,3 +1,15 @@
+**Phillies takeaways: Cristopher Sánchez's start, outfield injuries, a bullpen jumble**\
+`Sánchez threw his changeup 50 times in a 6-4 Philadelphia win over the San Francisco Giants.`\
+https://nytimes.com/athletic/6289024/2025/04/17/phillies-win-giants-cristopher-sanchez-outfield-bullpen/
+
+**Pride and Dread in Harvard Yard as Trump Wars With the University**\
+`Students on Thursday protested the president’s attacks on Harvard, but at town hall meetings, defiance mixed with uncertainty as faculty members examined the toll of the White House’s actions.`\
+https://nytimes.com/2025/04/17/us/politics/harvard-trump.html
+
+**DOGE Guts Agency That Organizes Community Service Programs**\
+`Employees of AmeriCorps who were put on administrative leave include all those who work for a national disaster response program.`\
+https://nytimes.com/2025/04/17/us/politics/doge-cost-americorps-community-service.html
+
 **‘This Should Be Shocking:’ Read a Federal Appeals Panel’s Sharp Rebuke of the Trump Administration**\
 `A federal appeals court in Virginia issued a striking opinion on Thursday, reaffirming that the Trump administration had to take a more active approach in seeking the release of a Maryland man, Kilmar Armando Abrego Garcia.`\
 https://nytimes.com/interactive/2025/04/17/us/fourth-circuit-kilmar-abrego-garcia-annotation.html
