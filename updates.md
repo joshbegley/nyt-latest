@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6284399/2025/04/18/nhl-playoffs-bandwagon-guide-sta
 `\
 https://nytimes.com/athletic/6284399/2025/04/18/nhl-playoffs-bandwagon-guide-stanley-cup/
 
+**The bandwagon-hopper’s guide to the 2025 NHL playoffs**\
+`An annual look at all 16 playoff teams, ranked from the worst bandwagon options to the very best.
+`\
+https://nytimes.com/athletic/6284399/2025/04/18/nhl-playoffs-bandwagon-guide-stanley-cup/
+
 **Did the Orlando Magic's tough season make them stronger? We'll find out soon**\
 `As the Magic prepare to face the defending champion Celtics, they are reminded of what they've faced and how much they've overcome. `\
 https://nytimes.com/athletic/6288598/2025/04/18/orlando-magic-offense-season-review/
