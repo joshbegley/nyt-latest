@@ -1,3 +1,15 @@
+**Nuggets find normalcy is the 'best medicine' in preparing for Clippers after tumultuous week**\
+`"Sometimes, you just have to go and play and clear your mind of things and enjoy what you love doing," interim coach David Adelman said.`\
+https://nytimes.com/athletic/6289489/2025/04/18/nuggets-clippers-first-round-series-preparation/
+
+**The Bounce: The NBA playoffs tip off this weekend. How could each first-round series go?**\
+`With the NBA playoffs beginning tomorrow, let's preview every first-round matchup`\
+https://nytimes.com/athletic/6290196/2025/04/18/nba-playoffs-thunder-lakers-cavaliers-celtics-nba-the-bounce/
+
+**Battling ‘Eat and Flee’ Tourists, Venice Brings Its Entrance Fee Back**\
+`A measure to limit day tourism on peak days began for the second year on Friday, charging day trippers five euros (or 10 for the spontaneous traveler).`\
+https://nytimes.com/2025/04/18/world/europe/venice-entrance-fee-tourists.html
+
 **Google Makes History With Rapid-Fire Antitrust Losses**\
 `Within a year, two federal judges declared the tech giant a monopoly in search and ad technology. The tide may be turning for antitrust.`\
 https://nytimes.com/2025/04/18/technology/google-antitrust-losses-history.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6289715/2025/04/18/clippers-nuggets-playoff-preview
 **Arsenal's Russo, Kelly available vs Lyon, Slegers confirms**\
 `Both players withdrew from April's England squad through injury.`\
 https://nytimes.com/athletic/6290087/2025/04/18/alessia-russo-chloe-kelly-arsenal-injury-update/
-
-**Anatomy of a decline: Inside Elias Pettersson's fall and how likely he is to bounce back**\
-`It's rare for a player in his mid-20s to fall this dramatically for more than a full calendar year. What's going on with Elias Pettersson?`\
-https://nytimes.com/athletic/6279930/2025/04/18/canucks-elias-pettersson-nhl-decline/
-
-**Miller family buys MLS's RSL, NWSL's Utah Royals in $600M deal**\
-`A few years after selling the NBA's Utah Jazz, the Millers are back in the game of local sports franchise stewardship, both in MLS and NWSL.`\
-https://nytimes.com/athletic/6289981/2025/04/18/real-salt-lake-utah-royals-sale-blitzer-miller-mls-nwsl/
-
-**Mercedes' F1 'space jackets' explained: A shiny new way the sport fights extreme heat﻿**\
-`Mercedes drivers George Russell and Kimi Antonelli have been wearing a dedicated new cooling device to help during hot Formula One races`\
-https://nytimes.com/athletic/6288295/2025/04/18/mercedes-f1-shiny-jackets-explained-extreme-heat/
 
