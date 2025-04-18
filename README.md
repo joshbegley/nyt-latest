@@ -1,3 +1,7 @@
+**2025 Stanley Cup odds: Avs, defending champion Panthers lead tight race**\
+`The Stanley Cup Playoffs appear to be wide open with the betting odds showing a balanced field and no clear favorites.`\
+https://nytimes.com/athletic/6290373/2025/04/18/stanley-cup-odds-avalanche-panthers/
+
 **Lana Del Rey’s Foreboding Lullaby, and 7 More New Songs**\
 `Hear tracks by Madison McFerrin, Ana Tijoux, Matmos and others.`\
 https://nytimes.com/2025/04/18/arts/music/playlist-lana-del-rel-morgan-wallen-post-malone.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/18/opinion/trump-resistance.html
 **Merger of Capital One and Discover, Two Credit Card Giants, Wins Approval**\
 `Two regulators signed off on the $35 billion deal, which the banks say will create a competitor to Visa and Mastercard. But consumer advocates warn that the deal may raise costs.`\
 https://nytimes.com/2025/04/18/business/capital-one-discover-merger.html
-
-**Live Q&A: Talking baseball with Eno Sarris on Friday 4/18 at 2 p.m. ET**\
-`Submit your questions for Eno Sarris' latest Q&A about all things fantasy baseball and MLB.`\
-https://nytimes.com/athletic/6288326/2025/04/18/sarris-live-chat-mlb-fantasy-baseball-4-18/
 
