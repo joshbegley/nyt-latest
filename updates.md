@@ -1,3 +1,11 @@
+**Trump Calls Florida Shooting a ‘Shame,’ but Signals No Shift in Gun Laws**\
+`Speaking to reporters in the Oval Office, the president said he would “always protect the Second Amendment.”`\
+https://nytimes.com/2025/04/18/us/politics/trump-florida-shooting-gun-laws.html
+
+**Former Rochdale and Man Utd academy player Joe Thompson dies aged 36**\
+`Thompson was diagnosed with cancer for the third time in 2024 after four years in remission.`\
+https://nytimes.com/athletic/6289711/2025/04/18/joe-thompson-dies-rochdale/
+
 **G.O.P. Lawmakers Visit Syria to Assess Situation Under New Government**\
 `The two Republican congressmen were expected to meet with the country’s new leadership and visit areas destroyed during the long civil war.`\
 https://nytimes.com/2025/04/18/world/middleeast/gop-congressmen-visit-syria.html
