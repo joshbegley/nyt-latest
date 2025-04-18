@@ -1,3 +1,7 @@
+**U.S. Arrests Man Wanted in India for Grenade Attack**\
+`Indian authorities said that Harpreet Singh, who was arrested on Thursday, was linked to a Sikh separatist movement and to an attack on a retired police officer.`\
+https://nytimes.com/2025/04/18/world/asia/us-india-fbi-arrest.html
+
 **Tariffs Won’t Fix Our Trade Imbalance. This Will.**\
 `We should be laser-focused on raising our export capacity.`\
 https://nytimes.com/2025/04/18/opinion/trump-tariffs-trade-exports.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6287445/2025/04/18/arsenal-real-madrid-champions-le
 **The mystery of Thomas Fairfoul, an unmarked grave and England's biggest fixing scandal**\
 `Four Liverpool players were involved in the 1915 betting scandal that rocked the sport but many questions remain unanswered`\
 https://nytimes.com/athletic/6270209/2025/04/18/thomas-fairfoul-liverpool-manchester-united-fixing/
-
-**Premier League top-five race: Newcastle aim for second, a big week for Villa, and are Forest slipping?**\
-`Updates from Newcastle, Nottingham Forest, Manchester City, Chelsea and Aston Villa as they battle to qualify for the Champions League`\
-https://nytimes.com/athletic/6286783/2025/04/18/premier-league-race-for-fifth-chelsea-man-city/
 
