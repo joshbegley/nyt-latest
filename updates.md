@@ -1,3 +1,7 @@
+**Quote of the Day: Giant Reproducing Rodents Are Dividing Ritzy Town Over Sterilization**\
+`Quotation of the Day for Friday, April 18, 2025.`\
+https://nytimes.com/2025/04/17/pageoneplus/quote-of-the-day-giant-reproducing-rodents-are-dividing-ritzy-town-over-sterilization.html
+
 **UNC lands ex-South Alabama QB Gio Lopez**\
 `North Carolina coach Bill Belichick and GM Michael Lombardi may have found the Tar Heels’ next quarterback.`\
 https://nytimes.com/athletic/6289395/2025/04/17/gio-lopez-unc-transfer-belichick/

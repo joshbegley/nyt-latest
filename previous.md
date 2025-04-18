@@ -1,3 +1,7 @@
+**Quote of the Day: Giant Reproducing Rodents Are Dividing Ritzy Town Over Sterilization**\
+`Quotation of the Day for Friday, April 18, 2025.`\
+https://nytimes.com/2025/04/17/pageoneplus/quote-of-the-day-giant-reproducing-rodents-are-dividing-ritzy-town-over-sterilization.html
+
 **UNC lands ex-South Alabama QB Gio Lopez**\
 `North Carolina coach Bill Belichick and GM Michael Lombardi may have found the Tar Heels’ next quarterback.`\
 https://nytimes.com/athletic/6289395/2025/04/17/gio-lopez-unc-transfer-belichick/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6289163/2025/04/17/yankees-jazz-chisholm-jr-ejectio
 **New York Mets exploring creative options in center field: Is Jeff McNeil the answer?**\
 `McNeil has played 3 major-league games in center field, but the Mets need help with Jose Siri out.`\
 https://nytimes.com/athletic/6289099/2025/04/17/mets-center-field-jeff-mcneil-tyrone-taylor/
-
-**‘Easy There, Buddy!’**\
-`Greg Snitkin and Glenn Davis open our solving weekend with a spirited themeless puzzle.`\
-https://nytimes.com/2025/04/17/crosswords/daily-puzzle-2025-04-18.html
 
