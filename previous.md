@@ -1,3 +1,7 @@
+**In Upstate New York, Where Even the Opera Is Locavore**\
+`At Hudson Hall, the director R.B. Schlather leans on artists and musicians from the community. The results have made for better opera.`\
+https://nytimes.com/2025/04/18/arts/music/hudson-hall-handel-opera.html
+
 **Red Light: Stanley Cup playoff picks and intrigue**\
 `Welcome to Red Light, The Athletic's hockey newsletter.`\
 https://nytimes.com/athletic/6287379/2025/04/18/nhl-playoffs-red-light-newsletter/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6290196/2025/04/18/nba-playoffs-thunder-lakers-cava
 **Battling ‘Eat and Flee’ Tourists, Venice Brings Its Entrance Fee Back**\
 `A measure to limit day tourism on peak days began for the second year on Friday, charging day trippers five euros (or 10 for the spontaneous traveler).`\
 https://nytimes.com/2025/04/18/world/europe/venice-entrance-fee-tourists.html
-
-**Google Makes History With Rapid-Fire Antitrust Losses**\
-`Within a year, two federal judges declared the tech giant a monopoly in search and ad technology. The tide may be turning for antitrust.`\
-https://nytimes.com/2025/04/18/technology/google-antitrust-losses-history.html
 

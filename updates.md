@@ -1,3 +1,7 @@
+**In Upstate New York, Where Even the Opera Is Locavore**\
+`At Hudson Hall, the director R.B. Schlather leans on artists and musicians from the community. The results have made for better opera.`\
+https://nytimes.com/2025/04/18/arts/music/hudson-hall-handel-opera.html
+
 **Red Light: Stanley Cup playoff picks and intrigue**\
 `Welcome to Red Light, The Athletic's hockey newsletter.`\
 https://nytimes.com/athletic/6287379/2025/04/18/nhl-playoffs-red-light-newsletter/
