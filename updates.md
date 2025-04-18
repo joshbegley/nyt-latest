@@ -1,3 +1,7 @@
+**Mercedes' F1 'space jackets' explained: A shiny new way the sport fights extreme heat﻿**\
+`Mercedes drivers George Russell and Kimi Antonelli have been wearing a dedicated new cooling device to help during hot Formula One races`\
+https://nytimes.com/athletic/6288295/2025/04/18/mercedes-f1-shiny-jackets-explained-extreme-heat/
+
 **After Weeks of Attacking Judges, Trump Administration Blames Judge for Escalating Tensions**\
 `The administration cast the threat by the judge, James E. Boasberg, to open criminal contempt proceedings as another salvo in an increasingly bitter battle between the White House and the courts.`\
 https://nytimes.com/2025/04/18/us/boasberg-trump-administration-tensions.html
