@@ -1,3 +1,11 @@
+**Scoop City: What are the Giants plotting?**\
+`Inside: The respite from Aaron Rodgers&#8217; headlines was shorter than we all hoped.`\
+https://nytimes.com/athletic/6290478/2025/04/18/giants-panthers-draft-guide-aaron-rodgers-scoop-city/
+
+**Rating the 2026 FIFA World Cup city posters**\
+`Another World Cup means another set of accompanying art, and the 2026 North American edition comes with a wide range of efforts.`\
+https://nytimes.com/athletic/6290320/2025/04/18/2026-world-cup-city-posters-ranking-usa-mexico-canada-fifa/
+
 **Ranking the 2026 FIFA World Cup city posters**\
 `Another World Cup means another set of accompanying art, and the 2026 North American edition comes with a wide range of efforts.`\
 https://nytimes.com/athletic/6290320/2025/04/18/2026-world-cup-city-posters-ranking-usa-mexico-canada-fifa/
