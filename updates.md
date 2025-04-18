@@ -1,3 +1,11 @@
+**Cable Car Victims in Italian Crash Were British And Israeli Tourists**\
+`Italian officials have identified the four people who died in a cable car accident on Thursday. The ride was popular with locals and visitors because of  its breathtaking views.`\
+https://nytimes.com/2025/04/18/world/europe/italy-cable-car-crash-victims-tourists.html
+
+**Abdullah Ahmad Badawi, a Calming Prime Minister of Malaysia, Dies at 85**\
+`From 2003 to 2009, he brought a quiet style of leadership to his Southeast Asia nation after the strongman rule of Mahathir Mohamad.`\
+https://nytimes.com/2025/04/18/world/asia/abdullah-ahmad-badawi-dead.html
+
 **U.S. Chipmakers Fear They Are Ceding China’s A.I. Market to Huawei**\
 `New restrictions on semiconductor exports to China are scrambling sales and fueling concerns that the Chinese tech giant will become a chip-making powerhouse.`\
 https://nytimes.com/2025/04/18/technology/ai-chips-china-huawei.html

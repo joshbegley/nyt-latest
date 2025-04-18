@@ -1,3 +1,7 @@
+**The Trick to Less Laundry? Doing It the Right Way. **\
+`Text by Wirecutter Staff`\
+https://nytimes.com/card/2025/04/18/smarter-living/wirecutter/clean-everything-how-to-do-laundry-better
+
 **Cable Car Victims in Italian Crash Were British And Israeli Tourists**\
 `Italian officials have identified the four people who died in a cable car accident on Thursday. The ride was popular with locals and visitors because of  its breathtaking views.`\
 https://nytimes.com/2025/04/18/world/europe/italy-cable-car-crash-victims-tourists.html
@@ -11,7 +15,7 @@ https://nytimes.com/2025/04/18/world/asia/abdullah-ahmad-badawi-dead.html
 https://nytimes.com/2025/04/18/technology/ai-chips-china-huawei.html
 
 **Jason Robertson out week to week with injury, will miss start of playoffs**\
-`The 25-year-old, who was Dallas' second-leading scorer this season, will not play in Game 1 vs. Colorado.`\
+`The 25-year-old, Dallas' second-leading scorer this season, will not play Saturday in Game 1 vs. Colorado.`\
 https://nytimes.com/athletic/6290580/2025/04/18/stars-jason-robertson-injury-nhl-playoffs/
 
 **How ‘The White Lotus’ Ran Aground**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6288326/2025/04/18/sarris-live-chat-mlb-fantasy-bas
 **Man Sinks in Quicksand and Emerges With a Girlfriend**\
 `A Michigan man who ended up waist-deep on an unstable beach was rescued, and found himself in a relationship.`\
 https://nytimes.com/2025/04/18/us/lake-michigan-quicksand.html
-
-**Scoop City: What are the Giants plotting?**\
-`Inside: The respite from Aaron Rodgers&#8217; headlines was shorter than we all hoped.`\
-https://nytimes.com/athletic/6290478/2025/04/18/giants-panthers-draft-guide-aaron-rodgers-scoop-city/
 
