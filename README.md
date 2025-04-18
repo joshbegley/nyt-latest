@@ -1,3 +1,7 @@
+**Potter at West Ham: The first 100 days and how he prepared for them**\
+`Potter believes he is the best version of himself after his break from coaching. Only time will tell how it will help West Ham.`\
+https://nytimes.com/athletic/6180511/2025/04/18/graham-potter-west-ham-100-days/
+
 **How Newcastle’s season was built on their dramatically improved away form**\
 `If Newcastle get into the Champions League next season, it will be thanks to their resilience and defensive work on the road`\
 https://nytimes.com/athletic/6283179/2025/04/18/newcastle-away-form/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6278525/2025/04/18/minteh-brighton-newcastle-psr-in
 **Camp Nou delays may force Barcelona to ask La Liga to start 2025-26 season with away games**\
 `Some at the club now expect Barcelona to return to the Camp Nou in September, meaning a 10-month delay to their initial move-in date`\
 https://nytimes.com/athletic/6286682/2025/04/18/barcelona-camp-nou-delays-next-season-away-games-la-liga/
-
-**Row Z: Chelsea and the notion of trust, ruffled Riza and Nuno's succinct programme notes**\
-`Our weekly look at the bonkers side of the game explores the relationships between clubs and their fans - and it goes horribly wrong`\
-https://nytimes.com/athletic/6286855/2025/04/18/maresca-riza-chelsea-nuno-row-z/
 

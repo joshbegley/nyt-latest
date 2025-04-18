@@ -1,3 +1,11 @@
+**How Newcastle’s season was built on their dramatically improved away form**\
+`If Newcastle get into the Champions League next season, it will be thanks to their resilience and defensive work on the road`\
+https://nytimes.com/athletic/6283179/2025/04/18/newcastle-away-form/
+
+**Nottingham Forest, Edu and what his role could be in the Marinakis football empire**\
+`Edu played a leading role in helping Arsenal become challengers once more. Now he's hoping to help Marinakis' clubs pursue similar success`\
+https://nytimes.com/athletic/6281402/2025/04/18/edu-nottingham-forest-arsenal/
+
 **5 Takeaways From Canada’s Election Debate**\
 `Prime Minister Mark Carney was repeatedly the target of his opponents. President Trump’s threats on Canada loomed over the debate.`\
 https://nytimes.com/2025/04/18/world/canada/election-debate-takeaways.html
