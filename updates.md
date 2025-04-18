@@ -1,3 +1,7 @@
+**John J. LaFalce, 85, Congressman Who Pushed for Love Canal Cleanup, Dies**\
+`A 14-term Democrat from Western New York, he sponsored financial reforms to aid consumers and pressed Washington to protect Americans from environmental hazards.`\
+https://nytimes.com/2025/04/18/nyregion/john-j-lafalce-dead.html
+
 **The Windup: Astros cursed at first base?**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6289566/2025/04/18/astros-first-base-christian-walker-the-windup/
