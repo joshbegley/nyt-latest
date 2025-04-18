@@ -1,3 +1,11 @@
+**Senator Says Abrego Garcia Was Denied Phone Call During Deportation**\
+`Senator Chris Van Hollen, Democrat of Maryland, shared details of his visit with Kilmar Armando Abrego Garcia, the Maryland man who was wrongly deported to El Salvador last month.`\
+https://nytimes.com/video/us/politics/100000010119405/van-hollen-maryland-abrego-garcia.html
+
+**What we heard about Tocchet, Pettersson and unsettled Canucks at locker cleanout day**\
+`There was a sense on Friday of questions unanswered surrounding the Canucks ahead of a critical offseason.`\
+https://nytimes.com/athletic/6291017/2025/04/18/vancouver-canucks-rick-tocchet-elias-pettersson/
+
 **Trump moves to make tens of thousands of federal workers easier to fire.**\
 `The White House said that about 50,000 federal workers with “policymaking” duties would be moved to a category of workers who could be fired for any reason.`\
 https://nytimes.com/live/2025/04/18/us/trump-news/trump-moves-to-make-tens-of-thousands-of-federal-workers-easier-to-fire
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6291175/2025/04/18/dodgers-shohei-ohtani-paternity-
 **Maybe Musk Isn’t All-Powerful, After All**\
 `A series of setbacks have raised questions about Elon Musk’s enduring influence in the White House.`\
 https://nytimes.com/2025/04/18/us/politics/musk-doge-irs-bessent.html
-
-**Ex-Harvard Medical School Morgue Chief to Plead Guilty in Sale of Body Parts**\
-`Cedric Lodge stole organs from cadavers that had been donated for medical research, prosecutors said. The university fired him in 2023.`\
-https://nytimes.com/2025/04/18/us/harvard-morgue-stolen-body-parts-guilty.html
-
-**Trump-Allied Prosecutor Sends Letters to Medical Journals Alleging Bias**\
-`An interim U.S. attorney is demanding information about the selection of research articles and the role of N.I.H. Experts worry this will have a chilling effect on publications.`\
-https://nytimes.com/2025/04/18/health/trump-martin-us-attorney-medical-journals.html
 

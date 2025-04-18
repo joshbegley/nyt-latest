@@ -1,3 +1,7 @@
+**In Trump Attack on Harvard, Punishment Before Proof**\
+`The legal underpinnings of the administration’s broadsides against universities and schools stretch precedents and cut corners.`\
+https://nytimes.com/2025/04/18/us/trump-harvard-legal-process.html
+
 **Trump moves to make tens of thousands of federal workers easier to fire.**\
 `The White House said that about 50,000 federal workers with “policymaking” duties would be moved to a category of workers who could be fired for any reason.`\
 https://nytimes.com/live/2025/04/18/us/trump-news/trump-moves-to-make-tens-of-thousands-of-federal-workers-easier-to-fire
