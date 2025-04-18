@@ -1,3 +1,12 @@
+**Meloni and Trump: An Oval Office Meeting With Rapport and Banter**\
+`In their meeting, President Trump made clear that he had special regard for Prime Minister Giorgia Meloni of Italy. She said he had accepted an invitation to go to Rome.`\
+https://nytimes.com/2025/04/18/world/europe/meloni-trump-tariffs-italy.html
+
+**The bandwagon-hopper’s guide to the 2025 NHL playoffs**\
+`An annual look at all 16 playoff teams, ranked from the worst bandwagon options to the very best.
+`\
+https://nytimes.com/athletic/6284399/2025/04/18/nhl-playoffs-bandwagon-guide-stanley-cup/
+
 **How the Blues became the NHL's hottest team: An in-season minicamp, Jobu and 'more fun'**\
 `The Blues have the NHL's best record since the 4 Nations Face-Off. How did they turn their season around so completely?`\
 https://nytimes.com/athletic/6253065/2025/04/18/blues-nhl-playoffs-hottest-team/
