@@ -1,3 +1,11 @@
+**Trump moves to make tens of thousands of federal workers easier to fire.**\
+`The White House said that about 50,000 federal workers with “policymaking” duties would be moved to a category of workers who could be fired for any reason.`\
+https://nytimes.com/live/2025/04/18/us/trump-news/trump-moves-to-make-tens-of-thousands-of-federal-workers-easier-to-fire
+
+**Judge Rules Against Trump Administration on Passport Changes**\
+`A group of transgender plaintiffs sued President Trump and the State Department over a new rule prohibiting passports from including a gender different from the sex listed on an original birth certificate.`\
+https://nytimes.com/2025/04/18/us/judge-rules-against-trump-administration-on-passport-changes.html
+
 **Judge Temporarily Halts Mass Firings at Consumer Bureau**\
 `The court barred the Trump administration from laying off nearly 1,500 workers at the agency until at least April 28.`\
 https://nytimes.com/2025/04/18/us/politics/cfpb-firings-trump-administration.html
