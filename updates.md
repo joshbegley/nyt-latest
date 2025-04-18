@@ -1,3 +1,7 @@
+**Senators playoff mailbag: What lineup will the Senators use for Game 1 against Toronto?**\
+`Also, will the Ottawa Senators go for a big splash in the offseason with over $18 million in cap space? `\
+https://nytimes.com/athletic/6249990/2025/04/18/senators-mailbag-nhl-playoffs/
+
 **Breaking down the 11 minutes of chaos at the end of Manchester United's 5-4 win over Lyon**\
 `In a chaotic finale at Old Trafford, United threw caution to the wind and profited via Leny Yoro, Casemiro and Kobbie Mainoo's composure`\
 https://nytimes.com/athletic/6289723/2025/04/18/manchester-united-5-4-lyon-analysis-maguire/

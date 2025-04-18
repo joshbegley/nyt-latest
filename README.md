@@ -1,3 +1,11 @@
+**Keys to Bucks slowing Pacers in the playoffs: Getting back on defense, limiting turnovers, more**\
+`While they received good news about Lillard on Thursday, the Bucks continued to prepare for Tyrese Haliburton and the Pacers.`\
+https://nytimes.com/athletic/6285062/2025/04/18/bucks-playoffs-strategy-defense-turnovers-pacers/
+
+**Ralph Lauren Introduces the Big Pants Index**\
+`You might not guess what it is, but it makes a lot of sense.`\
+https://nytimes.com/2025/04/18/style/ralph-lauren-fall-2025-fashion-show.html
+
 **Senators playoff mailbag: What lineup will the Senators use for Game 1 against Toronto?**\
 `Also, will the Ottawa Senators go for a big splash in the offseason with over $18 million in cap space? `\
 https://nytimes.com/athletic/6249990/2025/04/18/senators-mailbag-nhl-playoffs/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6288276/2025/04/18/bruins-offseason-priorities-coac
 **Bukayo Saka: The torturer of Real Madrid**\
 `It was no surprise to see a Spanish newspaper label Bukayo Saka 'a torturer' after the first leg. His performance against Madrid merited it`\
 https://nytimes.com/athletic/6286349/2025/04/18/bukayo-saka-real-madrid-analysis/
-
-**Don't forget about Jalen Brunson. The Knicks need him more than ever**\
-`The Knicks' star guard has been nothing but consistent. A team lacking consistency needs him more than ever.`\
-https://nytimes.com/athletic/6278842/2025/04/18/knicks-jalen-brunson-nba-playoffs/
-
-**Maresca says he still has full support of Chelsea board after Legia defeat**\
-`Chelsea were booed off despite progressing to the UEFA Conference League semi-finals 4-2 on aggregate.`\
-https://nytimes.com/athletic/6289638/2025/04/18/enzo-maresca-chelsea-board-support/
 
