@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Saturday, April 19, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/04/18/todays-new-york-times-international-edition
+
 **Joe Montemurro ‘thriving in this pressure’ as he returns to Arsenal with Lyon**\
 `Joe Montemurro's biggest challenge of the season so far awaits against his boyhood club Arsenal on Saturday`\
 https://nytimes.com/athletic/6284516/2025/04/18/joe-montemurro-lyon-arsenal-womens-champions-league/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/04/18/opinion/trump-approval-focus-group.ht
 **The ‘Pride & Prejudice’ Hand Flex: One Gesture and the Web Is Still Swooning**\
 `The subtle expression of longing in the 2005 adaptation wasn’t meant to be a key moment. Even the director is surprised it took on a life of its own.`\
 https://nytimes.com/2025/04/18/movies/pride-and-prejudice-hand-flex-joe-wright.html
-
-**How the Radio Program ‘New Sounds’ Was Saved**\
-`The music program had been on WNYC for four decades. Listener contributions spared it from the ax.`\
-https://nytimes.com/2025/04/18/nyregion/wnyc-public-radio-new-sounds.html
 
