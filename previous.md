@@ -1,3 +1,7 @@
+**Suns owner Mat Ishbia, infamously defiant last year, strikes new tone this time**\
+`While it wasn't the confession many may have wanted to hear, Thursday's comments were a positive step for an owner still finding his way.`\
+https://nytimes.com/athletic/6288708/2025/04/17/phoenix-suns-mat-ishbia-owner-offseason/
+
 **Bills, Tre'Davious White agree to 1-year deal, adding depth at CB**\
 `The cornerback returns to Buffalo after spending the first seven seasons of his NFL career with the team.`\
 https://nytimes.com/athletic/6289097/2025/04/17/tredavious-white-bills-contract-return/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/17/climate/trump-fishing-marine-protected-zone.html
 **Shooting at Florida State University Leaves 2 Dead and 6 Injured**\
 `Students evacuated after an active shooter opened fire near the university’s student union building on Thursday. Officials identified the shooter as a 20-year-old student at the university and son of a county sheriff’s deputy.`\
 https://nytimes.com/video/us/100000010117166/florida-state-university-mass-shooting.html
-
-**Wild's Zeev Buium quarterbacks top power play in practice, could debut in playoff opener**\
-`The 19-year-old had his first practice with the full team alongside Zach Bogosian on the third pair.`\
-https://nytimes.com/athletic/6288867/2025/04/17/wild-buium-power-play-kaprizov-nhl-playoffs/
 

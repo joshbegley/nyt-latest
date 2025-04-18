@@ -1,3 +1,7 @@
+**Suns owner Mat Ishbia, infamously defiant last year, strikes new tone this time**\
+`While it wasn't the confession many may have wanted to hear, Thursday's comments were a positive step for an owner still finding his way.`\
+https://nytimes.com/athletic/6288708/2025/04/17/phoenix-suns-mat-ishbia-owner-offseason/
+
 **Bills, Tre'Davious White agree to 1-year deal, adding depth at CB**\
 `The cornerback returns to Buffalo after spending the first seven seasons of his NFL career with the team.`\
 https://nytimes.com/athletic/6289097/2025/04/17/tredavious-white-bills-contract-return/
