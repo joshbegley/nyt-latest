@@ -1,3 +1,19 @@
+**Google Makes History With Rapid-Fire Antitrust Losses**\
+`Within a year, two federal judges declared the tech giant a monopoly in search and ad technology. The tide may be turning for antitrust.`\
+https://nytimes.com/2025/04/18/technology/google-antitrust-losses-history.html
+
+**Rangers P Corbin notches win days after suspected spider bite**\
+`Corbin struck out six and allowed just one run, securing the 3-1 win over Los Angeles.`\
+https://nytimes.com/athletic/6290043/2025/04/18/texas-rangers-pitcher-patrick-corbin-spider-bite/
+
+**Bryce James, LeBron's youngest son, officially signs with Arizona**\
+`James, who will turn 18 in June, is a three-star recruit and the No. 257 player in the Class of 2025, per the 247Sports Composite.`\
+https://nytimes.com/athletic/6290058/2025/04/18/bryce-james-arizona-commit-sign/
+
+**The Complete Data Behind the Global Migration Map**\
+`We hope that researchers will be able to use the data to better understand the flows and patterns in human migration.`\
+https://nytimes.com/live/2025/04/07/opinion/thepoint/global-migration-data-meta
+
 **Under Trump, National Security Guardrails Vanish**\
 `America’s adversaries have more room to operate, at least in the disinformation space, cybersecurity experts say.`\
 https://nytimes.com/2025/04/18/us/politics/trump-national-security.html

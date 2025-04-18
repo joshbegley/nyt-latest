@@ -1,3 +1,19 @@
+**Google Makes History With Rapid-Fire Antitrust Losses**\
+`Within a year, two federal judges declared the tech giant a monopoly in search and ad technology. The tide may be turning for antitrust.`\
+https://nytimes.com/2025/04/18/technology/google-antitrust-losses-history.html
+
+**Rangers P Corbin notches win days after suspected spider bite**\
+`Corbin struck out six and allowed just one run, securing the 3-1 win over Los Angeles.`\
+https://nytimes.com/athletic/6290043/2025/04/18/texas-rangers-pitcher-patrick-corbin-spider-bite/
+
+**Bryce James, LeBron's youngest son, officially signs with Arizona**\
+`James, who will turn 18 in June, is a three-star recruit and the No. 257 player in the Class of 2025, per the 247Sports Composite.`\
+https://nytimes.com/athletic/6290058/2025/04/18/bryce-james-arizona-commit-sign/
+
+**The Complete Data Behind the Global Migration Map**\
+`We hope that researchers will be able to use the data to better understand the flows and patterns in human migration.`\
+https://nytimes.com/live/2025/04/07/opinion/thepoint/global-migration-data-meta
+
 **Under Trump, National Security Guardrails Vanish**\
 `America’s adversaries have more room to operate, at least in the disinformation space, cybersecurity experts say.`\
 https://nytimes.com/2025/04/18/us/politics/trump-national-security.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6289981/2025/04/18/real-salt-lake-utah-royals-sale-
 **Mercedes' F1 'space jackets' explained: A shiny new way the sport fights extreme heat﻿**\
 `Mercedes drivers George Russell and Kimi Antonelli have been wearing a dedicated new cooling device to help during hot Formula One races`\
 https://nytimes.com/athletic/6288295/2025/04/18/mercedes-f1-shiny-jackets-explained-extreme-heat/
-
-**After Attacking Judges, Trump Administration Blames Judge for Escalating Tensions**\
-`The administration cast the threat by the judge, James E. Boasberg, to open criminal contempt proceedings as another salvo in an increasingly bitter battle between the White House and the courts.`\
-https://nytimes.com/2025/04/18/us/boasberg-trump-administration-tensions.html
-
-**The Giants have a good but potentially confusing problem brewing in their rotation**\
-`It's hard to nit-pick a team on a 110-win pace, but if there has been a "soft" spot so far, it's been with three of their veteran starters.`\
-https://nytimes.com/athletic/6289203/2025/04/18/sf-giants-early-season-rotation-status/
-
-**House Democrats Criticize Trump’s Smithsonian Order**\
-`In a letter to Vice President JD Vance, four U.S. representatives on a committee that oversees the cultural institution urged him to reject President Trump’s push to reshape it.`\
-https://nytimes.com/2025/04/18/arts/design/smithsonian-letter-vance-trump.html
-
-**The Pulse: ESPN losing a true icon**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6289529/2025/04/18/lee-corso-retirement-gameday-the-pulse/
 
