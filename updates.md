@@ -1,3 +1,7 @@
+**Joe Nickell, Paranormal Investigator and ‘Real-Life Scully,’ Dies at 80**\
+`A professional skeptic, he took on hundreds of mysteries, offering rational explanations for the Loch Ness monster, the Shroud of Turin and countless hauntings.`\
+https://nytimes.com/2025/04/18/science/joe-nickell-dead.html
+
 **U.S. Adds Fees for Chinese Ships in Effort to Boost Shipbuilding**\
 `The new fees are aimed at countering China’s dominance of the shipbuilding industry, but critics say they will simply raise prices for American consumers.`\
 https://nytimes.com/2025/04/18/business/trump-chinese-ships-fees.html

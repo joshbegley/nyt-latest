@@ -1,3 +1,7 @@
+**Joe Nickell, Paranormal Investigator and ‘Real-Life Scully,’ Dies at 80**\
+`A professional skeptic, he took on hundreds of mysteries, offering rational explanations for the Loch Ness monster, the Shroud of Turin and countless hauntings.`\
+https://nytimes.com/2025/04/18/science/joe-nickell-dead.html
+
 **U.S. Adds Fees for Chinese Ships in Effort to Boost Shipbuilding**\
 `The new fees are aimed at countering China’s dominance of the shipbuilding industry, but critics say they will simply raise prices for American consumers.`\
 https://nytimes.com/2025/04/18/business/trump-chinese-ships-fees.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/18/science/trump-covid-website-lab-leak.html
 **How Universities Became So Dependent on the Federal Government**\
 `For decades, universities got billions in federal dollars for research. The relationship was mutually beneficial, until President Trump decided it wasn’t.`\
 https://nytimes.com/2025/04/18/us/trump-universities.html
-
-**Trump Administration Bolsters Putin With Hint of Abandoning Ukraine Talks**\
-`President Trump and Secretary of State Marco Rubio both suggested Friday that the United States might wash its hands of the peace effort.`\
-https://nytimes.com/2025/04/18/us/politics/trump-rubio-putin-ukraine.html
 
