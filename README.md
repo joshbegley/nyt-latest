@@ -1,3 +1,7 @@
+**Trump Opens a Huge Marine Protected Zone to Commercial Fishing**\
+`The president said the move was aimed at making the United States the world’s “dominant seafood leader.”`\
+https://nytimes.com/2025/04/17/climate/trump-fishing-marine-protected-zone.html
+
 **Shooting at Florida State University Leaves 2 Dead and 6 Injured**\
 `Students evacuated after an active shooter opened fire near the university’s student union building on Thursday. Officials identified the shooter as a 20-year-old student at the university and son of a county sheriff’s deputy.`\
 https://nytimes.com/video/us/100000010117166/florida-state-university-mass-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/17/us/politics/trump-immigration-cases-explained.htm
 **Oklahoma, Missouri heading to NCAA women's gymnastics final**\
 `A clutch 9.9875 from beam star Helen Hu secured Missouri the upset over Florida.`\
 https://nytimes.com/athletic/6288757/2025/04/17/ncaa-gymnastics-semifinal-results-teams/
-
-**Costa Rica Violated Rights of 81 Migrant Children Deported by U.S., Lawsuit Says**\
-`A legal challenge filed Thursday aims to encourage Central American countries to push back against the Trump administration’s immigration policies.`\
-https://nytimes.com/2025/04/17/world/americas/costa-rica-migrants-lawsuit.html
 
