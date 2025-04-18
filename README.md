@@ -1,3 +1,11 @@
+**Cable Car Victims in Italian Crash Were British And Israeli Tourists**\
+`Italian officials have identified the four people who died in a cable car accident on Thursday. The ride was popular with locals and visitors because of  its breathtaking views.`\
+https://nytimes.com/2025/04/18/world/europe/italy-cable-car-crash-victims-tourists.html
+
+**Abdullah Ahmad Badawi, a Calming Prime Minister of Malaysia, Dies at 85**\
+`From 2003 to 2009, he brought a quiet style of leadership to his Southeast Asia nation after the strongman rule of Mahathir Mohamad.`\
+https://nytimes.com/2025/04/18/world/asia/abdullah-ahmad-badawi-dead.html
+
 **U.S. Chipmakers Fear They Are Ceding China’s A.I. Market to Huawei**\
 `New restrictions on semiconductor exports to China are scrambling sales and fueling concerns that the Chinese tech giant will become a chip-making powerhouse.`\
 https://nytimes.com/2025/04/18/technology/ai-chips-china-huawei.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/18/us/lake-michigan-quicksand.html
 **Scoop City: What are the Giants plotting?**\
 `Inside: The respite from Aaron Rodgers&#8217; headlines was shorter than we all hoped.`\
 https://nytimes.com/athletic/6290478/2025/04/18/giants-panthers-draft-guide-aaron-rodgers-scoop-city/
-
-**Rating the 2026 FIFA World Cup city posters**\
-`Another World Cup means another set of accompanying art, and the 2026 North American edition comes with a wide range of efforts.`\
-https://nytimes.com/athletic/6290320/2025/04/18/2026-world-cup-city-posters-ranking-usa-mexico-canada-fifa/
-
-**Who Is J. Harvie Wilkinson, the Judge Behind a Scathing Rebuke of the White House?**\
-`The judge, a conservative Reagan appointee, wrote a blistering opinion accusing the administration of failing to give a man wrongly deported to El Salvador any semblance of due process.`\
-https://nytimes.com/2025/04/18/us/politics/harvie-wilkinson-conservative-judge.html
 

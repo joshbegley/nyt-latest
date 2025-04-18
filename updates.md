@@ -1,3 +1,7 @@
+**U.S. Chipmakers Fear They Are Ceding China’s A.I. Market to Huawei**\
+`New restrictions on semiconductor exports to China are scrambling sales and fueling concerns that the Chinese tech giant will become a chip-making powerhouse.`\
+https://nytimes.com/2025/04/18/technology/ai-chips-china-huawei.html
+
 **Jason Robertson out week to week with injury, will miss start of playoffs**\
 `The 25-year-old, who was Dallas' second-leading scorer this season, will not play in Game 1 vs. Colorado.`\
 https://nytimes.com/athletic/6290580/2025/04/18/stars-jason-robertson-injury-nhl-playoffs/
