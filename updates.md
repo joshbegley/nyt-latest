@@ -1,3 +1,7 @@
+**Joe Montemurro ‘thriving in this pressure’ as he returns to Arsenal with Lyon**\
+`Joe Montemurro's biggest challenge of the season so far awaits against his boyhood club Arsenal on Saturday`\
+https://nytimes.com/athletic/6284516/2025/04/18/joe-montemurro-lyon-arsenal-womens-champions-league/
+
 **The Downside of Getting What You Want**\
 `The good-news blues are real.`\
 https://nytimes.com/2025/04/18/well/grief-loss-life-transitions.html
