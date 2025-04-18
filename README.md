@@ -1,3 +1,7 @@
+**Breaking down the 11 minutes of chaos at the end of Manchester United's 5-4 win over Lyon**\
+`In a chaotic finale at Old Trafford, United threw caution to the wind and profited via Leny Yoro, Casemiro and Kobbie Mainoo's composure`\
+https://nytimes.com/athletic/6289723/2025/04/18/manchester-united-5-4-lyon-analysis-maguire/
+
 **13 Songs You Didn’t Know Were Big Hits Right Now**\
 `A tour of the more surprising — and kind of anonymous — corners of the current Billboard Hot 100 singles chart.`\
 https://nytimes.com/2025/04/18/arts/music/13-songs-you-didnt-know-were-big-hits-right-now.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6289638/2025/04/18/enzo-maresca-chelsea-board-suppo
 **'Whatever he needs': Gustavsson and Fleury's bond shapes Wild's future in net**\
 `From moving past rough games to naming animals from A to Z, the Wild's goalie tandem spent this season working together.`\
 https://nytimes.com/athletic/6288205/2025/04/18/wild-filip-gustavsson-marc-andre-fleury-goalie-bond/
-
-**Man City goalkeeper Ederson to miss Everton game with injury**\
-`The Brazil international was substituted 71 minutes into City's 5-2 win over Crystal Palace on Saturday and was replaced by Stefan Ortega.`\
-https://nytimes.com/athletic/6274848/2025/04/18/ederson-injury-update-manchester-city/
 
