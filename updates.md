@@ -1,3 +1,7 @@
+**U.S. Arrests Man Wanted in India for Grenade Attack**\
+`Indian authorities said that Harpreet Singh, who was arrested on Thursday, was linked to a Sikh separatist movement and to an attack on a retired police officer.`\
+https://nytimes.com/2025/04/18/world/asia/us-india-fbi-arrest.html
+
 **Tariffs Won’t Fix Our Trade Imbalance. This Will.**\
 `We should be laser-focused on raising our export capacity.`\
 https://nytimes.com/2025/04/18/opinion/trump-tariffs-trade-exports.html
