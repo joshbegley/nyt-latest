@@ -1,3 +1,7 @@
+**Messi dismisses Mexico as Argentina rival, other interview takeaways**\
+`The Argentina legend's comments about Mexico in a rare interview added spice to a rivalry that he says doesn't exist. `\
+https://nytimes.com/athletic/6290314/2025/04/18/lionel-messi-mexico-miami-argentina-interview/
+
 **John J. LaFalce, 85, Congressman Who Pushed for Love Canal Cleanup, Dies**\
 `A 14-term Democrat from Western New York, he sponsored financial reforms to aid consumers and pressed Washington to protect Americans from environmental hazards.`\
 https://nytimes.com/2025/04/18/nyregion/john-j-lafalce-dead.html
