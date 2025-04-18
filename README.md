@@ -1,3 +1,7 @@
+**Rubio Says U.S. to Decide in Days if End to Ukraine War Is ‘Doable’**\
+`“If it is not possible to end the war in Ukraine, we need to move on,” the American secretary of state said as he departed meetings in Paris.`\
+https://nytimes.com/2025/04/18/world/europe/rubio-ukraine-russia-war-paris.html
+
 **Chelsea and a pursuit of positivity - but where will they find it?**\
 `Chelsea are into the last four of the Conference League - you would not have known it from players and fans' reaction at Stamford Bridge`\
 https://nytimes.com/athletic/6288968/2025/04/18/chelsea-mood-maresca-palmer-james/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6288963/2025/04/18/ange-postecoglou-tottenham-europ
 **Stephen Colbert Translates Trump’s Italian Tariff Talk**\
 `“The Late Show” host said Italy’s prime minister, Giorgia Meloni, is “seen as something of a Trump whisperer” after she visited the White House on Thursday.`\
 https://nytimes.com/2025/04/18/arts/television/stephen-colbert-trump-meloni.html
-
-**Word of the Day: chortle**\
-`This word has appeared in nine articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/04/18/learning/word-of-the-day-chortle.html
 
