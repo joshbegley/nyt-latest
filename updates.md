@@ -3,6 +3,15 @@
 `\
 https://nytimes.com/athletic/6286985/2025/04/18/premier-league-top-five-odds-betting-predictions/
 
+**Streetwise, mature, defensively solid: This was a different Spurs**\
+`Everything was on the line for Tottenham in Frankfurt and the under-pressure Postecoglou managed it perfectly `\
+https://nytimes.com/athletic/6288963/2025/04/18/ange-postecoglou-tottenham-europa-league-streetwise/
+
+**Premier League top-five odds shifts: Newcastle rise, Forest fall**\
+`Sam Tighe looks at the changing odds around team’s vying for a top-five Premier League place and thus a Champions League berth.
+`\
+https://nytimes.com/athletic/6286985/2025/04/18/premier-league-top-five-odds-betting-predictions/
+
 **Streetwise, mature, defensively solid: this was a different Spurs**\
 `Everything was on the line for Tottenham in Frankfurt and the under-pressure Postecoglou managed it perfectly `\
 https://nytimes.com/athletic/6288963/2025/04/18/ange-postecoglou-tottenham-europa-league-streetwise/
