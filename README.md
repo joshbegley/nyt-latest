@@ -1,3 +1,7 @@
+**Lana Del Rey’s Foreboding Lullaby, and 7 More New Songs**\
+`Hear tracks by Madison McFerrin, Ana Tijoux, Matmos and others.`\
+https://nytimes.com/2025/04/18/arts/music/playlist-lana-del-rel-morgan-wallen-post-malone.html
+
 **The Trick to Less Laundry? Doing It the Right Way. **\
 `Text by Wirecutter Staff`\
 https://nytimes.com/card/2025/04/18/smarter-living/wirecutter/clean-everything-how-to-do-laundry-better
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/18/business/capital-one-discover-merger.html
 **Live Q&A: Talking baseball with Eno Sarris on Friday 4/18 at 2 p.m. ET**\
 `Submit your questions for Eno Sarris' latest Q&A about all things fantasy baseball and MLB.`\
 https://nytimes.com/athletic/6288326/2025/04/18/sarris-live-chat-mlb-fantasy-baseball-4-18/
-
-**Man Sinks in Quicksand and Emerges With a Girlfriend**\
-`A Michigan man who ended up waist-deep on an unstable beach was rescued, and found himself in a relationship.`\
-https://nytimes.com/2025/04/18/us/lake-michigan-quicksand.html
 
