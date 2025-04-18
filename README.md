@@ -1,3 +1,15 @@
+**U.S. Gas Exports to China Stopped After Beijing Imposed Tariffs**\
+`The United States accounted for only 3 percent of China’s natural gas imports last year. Those purchases could now dry up entirely in the trade war.`\
+https://nytimes.com/2025/04/18/business/china-us-lng-trump-tariffs.html
+
+**NBA Player Tiers 2025: Tier 1 features MVP front-runners, future Hall-of-Famers**\
+`You'll notice familiar faces and some bright young stars in this group, which is capped at 10 players.`\
+https://nytimes.com/athletic/6286882/2025/04/18/nba-player-tiers-jokic-lebron-sga-giannis/
+
+**Christianity in the White House**\
+`President Trump has significantly expanded the power and influence of conservative Christians in government.`\
+https://nytimes.com/2025/04/18/briefing/christianity-in-the-white-house.html
+
 **Trump Calls Florida Shooting a ‘Shame,’ but Signals No Shift in Gun Laws**\
 `Speaking to reporters in the Oval Office, the president said he would “always protect the Second Amendment.”`\
 https://nytimes.com/2025/04/18/us/politics/trump-florida-shooting-gun-laws.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6288573/2025/04/18/vikings-nfl-draft-trade-kwesi-ad
 **‘Psychological Torture’: London Bans Busking in a Famed Tourist Hub**\
 `Noise complaints led the authorities to halt street performances in Leicester Square. Some miss the music. Others found the noise “bloody annoying.”`\
 https://nytimes.com/2025/04/18/world/europe/london-busking-street-performers-leicester-square-ban.html
-
-**Maple Leafs end-of-season report cards: Grades for coaching, front office and players**\
-`With the regular season behind us and the playoffs around the corner, individual performances are due for review.`\
-https://nytimes.com/athletic/6288969/2025/04/18/maple-leafs-regular-season-grades-nhl-playoffs/
-
-**How college football general managers rose from consiglieres to celebrities**\
-`In a rapidly evolving sport, the once-anonymous role of college football GM is quickly gaining name recognition and influence.`\
-https://nytimes.com/athletic/6285055/2025/04/18/college-football-general-manager-responsibilities/
-
-**Michael McLeod was a product of Canada’s star-making system. Now, they're both on trial**\
-`Filmmaker who featured a young Mikey McLeod wonders about the connection between Canada's junior hockey system and "problematic behavior."`\
-https://nytimes.com/athletic/6287799/2025/04/18/michael-mcleod-sexual-assault-hockey-canada/
 
