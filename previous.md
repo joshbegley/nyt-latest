@@ -1,3 +1,15 @@
+**Most Power Is Restored in Puerto Rico After Islandwide Blackout**\
+`The power outage, which began on Wednesday, was the latest to hit the island, which has long suffered from electricity blackouts.`\
+https://nytimes.com/2025/04/18/us/puerto-rico-power-restored.html
+
+**NBA playoff trends I'm watching: Knicks-Pistons matchups, Lakers-Wolves contrast and more**\
+`Will Detroit break its routine? How small is too small for L.A.? And what's the Clippers' plan for the Joker?`\
+https://nytimes.com/athletic/6290018/2025/04/18/nba-playoff-trends-im-watching-knicks-pistons-matchups-lakers-wolves-contrast-and-more/
+
+**Ottawa vs. Leafs fans: How the Senators are trying to stop a blue-and-white takeover**\
+`Toronto fans often take over the Senators' home rink. Ahead of the Battle of Ontario, Sens supporters are making a stand.`\
+https://nytimes.com/athletic/6289980/2025/04/18/senators-leafs-ottawa-tickets-nhl-playoffs/
+
 **What It Was Like to Edit the ‘Wolf Hall’ Books**\
 `The final novel in Hilary Mantel’s great trilogy has been adapted for TV. Her editor joins us this week to discuss working with Mantel on the books.`\
 https://nytimes.com/2025/04/18/books/review/podcast-wolf-hall-hillary-mantel-editor.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/18/business/easter-baskets-kids-items-tiktok.html
 **Premier League predicted line-ups: Who do our writers think will start in Gameweek 33?**\
 `As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
 https://nytimes.com/athletic/6283828/2025/04/18/premier-league-predicted-line-ups-gameweek-33/
-
-**Taking ‘Love Island’ to the Mainland**\
-`Trying to capitalize on the success of the sixth season of “Love Island USA,” Peacock announced a series that would follow former islanders around Los Angeles.`\
-https://nytimes.com/2025/04/18/style/love-island-beyond-the-villa.html
-
-**Easter With a Chance of Meatballs**\
-`My lamb meatballs in spiced tomato sauce, that is, a five-star recipe I adapted from one by Suzanne Goin.`\
-https://nytimes.com/2025/04/18/dining/easter-easy-lamb-meatballs.html
-
-**Five Action Movies to Stream Now**\
-`This month’s picks include brave siblings and violent young men.`\
-https://nytimes.com/2025/04/18/movies/action-movies-streaming.html
 

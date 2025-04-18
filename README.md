@@ -1,3 +1,15 @@
+**The 4.20.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/04/18/the-42025-issue
+
+**Trump Administration Steps Up Pressure on Harvard With New Records Demand**\
+`The Education Department accused the university of failing to report large foreign donations to the government, as required by law. Harvard disputed the claim.`\
+https://nytimes.com/2025/04/18/us/politics/trump-harvard-foreign-donations.html
+
+**A Shadow Hanging Over Europe: ‘A Taste of Italy’ Made in New Jersey**\
+`Italian food producers worry that tariffs may price them out of the American market amid competition from U.S. goods that look and sound as if they are from Italy.`\
+https://nytimes.com/2025/04/18/world/europe/trump-tariffs-italy-cheese.html
+
 **Most Power Is Restored in Puerto Rico After Islandwide Blackout**\
 `The power outage, which began on Wednesday, was the latest to hit the island, which has long suffered from electricity blackouts.`\
 https://nytimes.com/2025/04/18/us/puerto-rico-power-restored.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/18/us/wisconsin-supreme-court-veto.html
 **In Upstate New York, Where Even the Opera Is Locavore**\
 `At Hudson Hall, the director R.B. Schlather leans on artists and musicians from the community. The results have made for better opera.`\
 https://nytimes.com/2025/04/18/arts/music/hudson-hall-handel-opera.html
-
-**Red Light: Stanley Cup playoff picks and intrigue**\
-`Welcome to Red Light, The Athletic's hockey newsletter.`\
-https://nytimes.com/athletic/6287379/2025/04/18/nhl-playoffs-red-light-newsletter/
-
-**Are Easter Baskets Getting Out of Hand?**\
-`Social media feeds are awash in images of lavish baskets overflowing with expensive gifts. Some parents are giving their children bikes. Others are pushing back.`\
-https://nytimes.com/2025/04/18/business/easter-baskets-kids-items-tiktok.html
-
-**Premier League predicted line-ups: Who do our writers think will start in Gameweek 33?**\
-`As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
-https://nytimes.com/athletic/6283828/2025/04/18/premier-league-predicted-line-ups-gameweek-33/
 

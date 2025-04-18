@@ -1,3 +1,15 @@
+**Most Power Is Restored in Puerto Rico After Islandwide Blackout**\
+`The power outage, which began on Wednesday, was the latest to hit the island, which has long suffered from electricity blackouts.`\
+https://nytimes.com/2025/04/18/us/puerto-rico-power-restored.html
+
+**NBA playoff trends I'm watching: Knicks-Pistons matchups, Lakers-Wolves contrast and more**\
+`Will Detroit break its routine? How small is too small for L.A.? And what's the Clippers' plan for the Joker?`\
+https://nytimes.com/athletic/6290018/2025/04/18/nba-playoff-trends-im-watching-knicks-pistons-matchups-lakers-wolves-contrast-and-more/
+
+**Ottawa vs. Leafs fans: How the Senators are trying to stop a blue-and-white takeover**\
+`Toronto fans often take over the Senators' home rink. Ahead of the Battle of Ontario, Sens supporters are making a stand.`\
+https://nytimes.com/athletic/6289980/2025/04/18/senators-leafs-ottawa-tickets-nhl-playoffs/
+
 **What It Was Like to Edit the ‘Wolf Hall’ Books**\
 `The final novel in Hilary Mantel’s great trilogy has been adapted for TV. Her editor joins us this week to discuss working with Mantel on the books.`\
 https://nytimes.com/2025/04/18/books/review/podcast-wolf-hall-hillary-mantel-editor.html
