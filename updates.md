@@ -1,3 +1,7 @@
+**13 Songs You Didn’t Know Were Big Hits Right Now**\
+`A tour of the more surprising — and kind of anonymous — corners of the current Billboard Hot 100 singles chart.`\
+https://nytimes.com/2025/04/18/arts/music/13-songs-you-didnt-know-were-big-hits-right-now.html
+
 **U.S. Strikes on Yemeni Port Kill Dozens, Houthis Say**\
 `President Trump has vowed the Iran-backed Houthi militia will be “completely annihilated.” But forceful American strikes do not seem to have deterred the Yemeni fighters.`\
 https://nytimes.com/2025/04/18/world/middleeast/us-yemen-houthis.html

@@ -1,3 +1,7 @@
+**13 Songs You Didn’t Know Were Big Hits Right Now**\
+`A tour of the more surprising — and kind of anonymous — corners of the current Billboard Hot 100 singles chart.`\
+https://nytimes.com/2025/04/18/arts/music/13-songs-you-didnt-know-were-big-hits-right-now.html
+
 **U.S. Strikes on Yemeni Port Kill Dozens, Houthis Say**\
 `President Trump has vowed the Iran-backed Houthi militia will be “completely annihilated.” But forceful American strikes do not seem to have deterred the Yemeni fighters.`\
 https://nytimes.com/2025/04/18/world/middleeast/us-yemen-houthis.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6288205/2025/04/18/wild-filip-gustavsson-marc-andre
 **Man City goalkeeper Ederson to miss Everton game with injury**\
 `The Brazil international was substituted 71 minutes into City's 5-2 win over Crystal Palace on Saturday and was replaced by Stefan Ortega.`\
 https://nytimes.com/athletic/6274848/2025/04/18/ederson-injury-update-manchester-city/
-
-**Weird & Wild: Twins' Jose Miranda summons his inner 'Hamilton'**\
-`After getting demoted to the minors, Lin-Manuel Miranda's cousin became an early leader in our annual Injury of the Year competition.`\
-https://nytimes.com/athletic/6287152/2025/04/18/jose-miranda-twins-target-injury-hamilton/
 
