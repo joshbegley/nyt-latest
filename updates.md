@@ -1,3 +1,7 @@
+**Breaking down the 11 minutes of chaos at the end of Manchester United's 5-4 win over Lyon**\
+`In a chaotic finale at Old Trafford, United threw caution to the wind and profited via Leny Yoro, Casemiro and Kobbie Mainoo's composure`\
+https://nytimes.com/athletic/6289723/2025/04/18/manchester-united-5-4-lyon-analysis-maguire/
+
 **13 Songs You Didn’t Know Were Big Hits Right Now**\
 `A tour of the more surprising — and kind of anonymous — corners of the current Billboard Hot 100 singles chart.`\
 https://nytimes.com/2025/04/18/arts/music/13-songs-you-didnt-know-were-big-hits-right-now.html
