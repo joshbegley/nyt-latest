@@ -2,8 +2,8 @@
 `Text by Wirecutter Staff`\
 https://nytimes.com/card/2025/04/18/smarter-living/wirecutter/clean-everything-how-to-do-laundry-better
 
-**Cable Car Victims in Italian Crash Were British And Israeli Tourists**\
-`Italian officials have identified the four people who died in a cable car accident on Thursday. The ride was popular with locals and visitors because of  its breathtaking views.`\
+**Cable Car Victims in Italian Crash Were British and Israeli Tourists**\
+`Italian officials have identified the four people who died in a cable car accident on Thursday. The ride was popular with locals and visitors because of its breathtaking views.`\
 https://nytimes.com/2025/04/18/world/europe/italy-cable-car-crash-victims-tourists.html
 
 **Abdullah Ahmad Badawi, a Calming Prime Minister of Malaysia, Dies at 85**\
@@ -14,7 +14,7 @@ https://nytimes.com/2025/04/18/world/asia/abdullah-ahmad-badawi-dead.html
 `New restrictions on semiconductor exports to China are scrambling sales and fueling concerns that the Chinese tech giant will become a chip-making powerhouse.`\
 https://nytimes.com/2025/04/18/technology/ai-chips-china-huawei.html
 
-**Jason Robertson out week to week with injury, will miss start of playoffs**\
+**Stars' Jason Robertson will miss start of NHL playoffs with lower-body injury**\
 `The 25-year-old, Dallas' second-leading scorer this season, will not play Saturday in Game 1 vs. Colorado.`\
 https://nytimes.com/athletic/6290580/2025/04/18/stars-jason-robertson-injury-nhl-playoffs/
 
