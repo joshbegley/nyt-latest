@@ -1,3 +1,15 @@
+**Who Is J. Harvie Wilkinson, the Judge Behind a Scathing Rebuke of the White House?**\
+`The judge, a conservative Reagan appointee, wrote a blistering opinion accusing the administration of failing to give a man wrongly deported to El Salvador any semblance of due process.`\
+https://nytimes.com/2025/04/18/us/politics/harvie-wilkinson-conservative-judge.html
+
+**Trump’s Trade War Puts Bromance With Xi Beyond Reach**\
+`President Trump says he wants Xi Jinping, China’s leader, to call him to talk tariffs. Mr. Xi is ghosting Mr. Trump, and markets are plummeting.`\
+https://nytimes.com/2025/04/18/us/politics/china-trump-trade-war.html
+
+**Why the Bond Market Holds Sway Over Trump**\
+`The bond market has emerged as one of the few brakes on the White House at it pursues its agenda on trade, taxes, personnel and more.`\
+https://nytimes.com/2025/04/18/business/bond-market-tariffs-trump.html
+
 **Watch: How Nikola Jokić, 3-time NBA MVP, continues to elevate Nuggets**\
 `The Athletic NBA Daily discusses Fred Katz's recent piece on Nikola Jokić and previews the most exciting playoff matchups.`\
 https://nytimes.com/athletic/6290007/2025/04/18/how-nikola-jokic-3-time-nba-mvp-continues-to-elevate-his-nuggets-teammates/
