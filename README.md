@@ -1,3 +1,15 @@
+**Did the Orlando Magic's tough season make them stronger? We'll find out soon**\
+`As the Magic prepare to face the defending champion Celtics, they are reminded of what they've faced and how much they've overcome. `\
+https://nytimes.com/athletic/6288598/2025/04/18/orlando-magic-offense-season-review/
+
+**Five MLB starters who look like they are breaking out ... are the signs real?**\
+`Let's dive inside the numbers and see if these starting pitchers are worthy of a spot on your fantasy team.`\
+https://nytimes.com/athletic/6288319/2025/04/18/mlb-starting-pitchers-breakout-candidates/
+
+**Rockets vets' advice to younger teammates ahead of huge playoffs: 'Be in the moment'**\
+`Rockets veterans Fred VanVleet, Dillon Brooks, Jeff Green and Steven Adams talk to The Athletic about their playoff experiences. `\
+https://nytimes.com/athletic/6277162/2025/04/18/nba-playoffs-2025-houston-rockets-warriors/
+
 **For the Devils, the Stanley Cup playoffs are about setting a new standard: 'Something to build upon'**\
 `New Jersey has made the playoffs only three times in the past 13 seasons but expects to kick off a new era — even without Jack Hughes.`\
 https://nytimes.com/athletic/6286851/2025/04/18/devils-nhl-playoffs-preview/
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/6289323/2025/04/18/mets-griffin-canning-mlb-bluepri
 **Sliders: For MLB umpire Mark Ripperger, a 'very good' game turned out to be perfect**\
 `Plus base-stealing tips from a speedy Royals rookie, a rare starting pitcher win and more timely and timeless elements of baseball.`\
 https://nytimes.com/athletic/6287047/2025/04/18/umpire-perfect-game-mlb-mark-ripperger-sliders/
-
-**Buckley: It's nice that Charlie Jacobs feels Bruins fans' pain. That's not nearly enough**\
-`The Bruins haven't played meaningful hockey in a long time, and CEO should know that homespun assurances can't replace a Cup contender.`\
-https://nytimes.com/athletic/6288132/2025/04/18/boston-bruins-nhl-season-wrap/
-
-**The Athletic’s Friday football quiz question #51**\
-`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
-https://nytimes.com/athletic/6287600/2025/04/18/the-athletics-friday-football-quiz-question-51/
-
-**Inside David Carle's University of Denver hockey program and what comes next: 'Window is still wide open'**\
-`The Athletic goes behind the scenes with DU to see how its "proscess" made it the NCAA standard — and brought NHL attention for its coach.`\
-https://nytimes.com/athletic/6275152/2025/04/18/denver-hockey-ncaa-david-carle/
 

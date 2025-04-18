@@ -1,3 +1,8 @@
+**The bandwagon-hopper’s guide to the 2025 NHL playoffs**\
+`An annual look at all 16 playoff teams, ranked from the worst bandwagon options to the very best.
+`\
+https://nytimes.com/athletic/6284399/2025/04/18/nhl-playoffs-bandwagon-guide-stanley-cup/
+
 **For the Devils, the Stanley Cup playoffs are about setting a new standard: 'Something to build upon'**\
 `New Jersey has made the playoffs only three times in the past 13 seasons but expects to kick off a new era — even without Jack Hughes.`\
 https://nytimes.com/athletic/6286851/2025/04/18/devils-nhl-playoffs-preview/
