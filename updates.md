@@ -1,3 +1,8 @@
+**Yohe: Sullivan candid about future, Malkin M.I.A., more takeaways from locker clean-out day**\
+`Sullivan spoke frankly about his future with Pittsburgh, while Malkin was nowhere to be found as the team heads for the offseason.
+`\
+https://nytimes.com/athletic/6290691/2025/04/18/penguins-mike-sullivan-evgeni-malkin/
+
 **Lakers reward GM Rob Pelinka with multiyear extension, new title**\
 `Pelinka promoted to president of basketball operations and general manager in wake of Luka Dončić trade, Lakers earning No. 3 seed in West.`\
 https://nytimes.com/athletic/6290778/2025/04/18/lakers-gm-rob-pelinka-contract-extension/
