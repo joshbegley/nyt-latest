@@ -1,3 +1,8 @@
+**Red Wings' locker clean-out day: Kane's future, Larkin's injuries, fixing March woes**\
+`After a disappointing 2024-25 season for Detroit, players gave their final thoughts and reflections and began to look ahead.
+`\
+https://nytimes.com/athletic/6292481/2025/04/19/red-wings-patrick-kane-dylan-larkin/
+
 **Tigers' Casey Mize, Spencer Torkelson finally fulfilling draft prophecies**\
 `Casey Mize and Spencer Torkelson, both No. 1 overall picks with winding routes to success, are powering the Tigers through April.`\
 https://nytimes.com/athletic/6292778/2025/04/19/tigers-casey-mize-and-spencer-torkelson-are-finally-fulfilling-draft-prophecies/
@@ -33,8 +38,4 @@ https://nytimes.com/video/us/politics/100000010119917/protesters-around-the-us-r
 **Barbara Lee Wins Oakland Mayor’s Race in Her Return Home**\
 `The former congresswoman, a progressive Democrat, campaigned on a promise to unite residents in the beleaguered California city. Her challenger, Loren Taylor, conceded on Saturday.`\
 https://nytimes.com/2025/04/19/us/barbara-lee-oakland-mayor.html
-
-**Cavs-Heat series preview: Can Cleveland make Miami look like a No. 10 seed?**\
-`On the surface, Cavs-Heat looks like a mismatch of a series. But when you dig deeper, you see a different story.`\
-https://nytimes.com/athletic/6292607/2025/04/19/cavaliers-heat-series-preview/
 

@@ -1,3 +1,7 @@
+**Tigers' Casey Mize, Spencer Torkelson finally fulfilling draft prophecies**\
+`Casey Mize and Spencer Torkelson, both No. 1 overall picks with winding routes to success, are powering the Tigers through April.`\
+https://nytimes.com/athletic/6292778/2025/04/19/tigers-casey-mize-and-spencer-torkelson-are-finally-fulfilling-draft-prophecies/
+
 **Michigan looks all in on Bryce Underwood. Should we be all in on Michigan?**\
 `Michigan looks like a slightly better version of last year’s team, with a lot of the same strengths and a lot of the same questions.`\
 https://nytimes.com/athletic/6292845/2025/04/19/michigan-bryce-underwood-spring-game/
