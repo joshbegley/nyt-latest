@@ -1,3 +1,7 @@
+**Putin Declares One-Day Easter Truce in Ukraine War**\
+`President Vladimir V. Putin of Russia said that from Saturday evening through Sunday, he had ordered his forces to “stop all military activity” against Ukraine.`\
+https://nytimes.com/2025/04/19/world/europe/russia-ukraine-easter-truce.html
+
 **Ramsey named Cardiff interim manager following Riza exit**\
 `Cardiff have announced that Ramsey, 34, will oversee the club's final three league fixtures.`\
 https://nytimes.com/athletic/6292006/2025/04/19/aaron-ramsey-cardiff-manager/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6290981/2025/04/19/kaprizov-wild-injury-playoffs/
 **5 burning questions for the Wild and Golden Knights — Which players have the most to prove?**\
 `Also, when will we know when each team is in trouble? What are the toughest lineup decisions?`\
 https://nytimes.com/athletic/6290566/2025/04/19/wild-golden-knights-playoffs/
-
-**Russians Wonder: Can Trump Really Negotiate Peace in Ukraine?**\
-`Many thought President Trump would be able to finish the war. Now they are not so sure.`\
-https://nytimes.com/2025/04/19/world/europe/russia-ukraine-putin-trump.html
 

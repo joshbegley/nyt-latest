@@ -1,3 +1,7 @@
+**Putin Declares One-Day Easter Truce in Ukraine War**\
+`President Vladimir V. Putin of Russia said that from Saturday evening through Sunday, he had ordered his forces to “stop all military activity” against Ukraine.`\
+https://nytimes.com/2025/04/19/world/europe/russia-ukraine-easter-truce.html
+
 **Ramsey named Cardiff interim manager following Riza exit**\
 `Cardiff have announced that Ramsey, 34, will oversee the club's final three league fixtures.`\
 https://nytimes.com/athletic/6292006/2025/04/19/aaron-ramsey-cardiff-manager/
