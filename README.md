@@ -1,3 +1,11 @@
+**Blue Jackets head into the offseason with a mixture of frustration and optimism**\
+`GM Don Waddell says he didn't come to Columbus to oversee a roster rebuild. He wants to win immediately.`\
+https://nytimes.com/athletic/6291863/2025/04/19/blue-jackets-offseason-frustration-optimism/
+
+**Anaheim Ducks fire coach Greg Cronin after 2 seasons**\
+`Greg Cronin has been fired as coach of the Anaheim Ducks after two seasons, the team announced on Saturday morning.`\
+https://nytimes.com/athletic/6292123/2025/04/19/ducks-fire-coach-greg-cronin/
+
 **This Is How Far Vance Will Go to Sell a Lie**\
 `Unfortunately for his argument, the Constitution is the Constitution.`\
 https://nytimes.com/2025/04/19/opinion/vance-abrego-garcia-immigration.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6289138/2025/04/19/nhl-playoffs-lightning-panthers/
 **Vance, whose views have clashed with the pope’s, spends Holy Week in Rome.**\
 `By Emma Bubola`\
 https://nytimes.com/live/2025/04/19/us/trump-news/vance-whose-views-have-clashed-with-the-popes-spends-holy-week-in-rome
-
-**Former Trump Staff Members Liken His Actions to Those of ‘Royal Despot’**\
-`In an open letter, prominent Republicans criticized President Trump for using his power to punish two former administration officials who criticized him.`\
-https://nytimes.com/2025/04/19/us/politics/trump-letter-ty-cobb.html
-
-**Trump Administration Live Updates: Supreme Court, for Now, Blocks Deportations of Venezuelan Migrants**\
-`Justices Clarence Thomas and Samuel A. Alito Jr. dissented. A group of migrants had been scheduled to be flown out of the country, according to people familiar with the matter.`\
-https://nytimes.com/live/2025/04/19/us/trump-news
 
