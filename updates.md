@@ -1,3 +1,15 @@
+**Dodgers' Blake Treinen hits IL with right forearm inflammation**\
+`The Dodgers re-signed Treinen to a two-year, $18 million deal this offseason as part of an overall investment in their bullpen.`\
+https://nytimes.com/athletic/6292645/2025/04/19/dodgers-blake-treinen-arm-injury/
+
+**NBA playoff takeaways: Pacers flex home-court muscles, handle Bucks**\
+`The Pacers routed the Bucks in the first of four NBA playoff games Saturday, taking a 1-0 series lead.`\
+https://nytimes.com/athletic/6292216/2025/04/19/nba-playoff-pacers-bucks-clippers-nuggets-knicks-pistons-lakers-wolves/
+
+**Chris Drury on firing Peter Laviolette, his own job security and a 'wide open' coaching search**\
+`Drury met with the media Saturday, saying: “Quite simply, we fell short across the board. Nobody here takes it lightly."`\
+https://nytimes.com/athletic/6292531/2025/04/19/chris-drury-peter-laviolette-firing/
+
 **USA, Canada to face off in Women's World Championship gold medal game**\
 `Team USA and Team Canada will play for gold at the 2025 IIHF Women’s World Championship on Sunday.`\
 https://nytimes.com/athletic/6292592/2025/04/19/usa-canada-womens-worlds-2025/

@@ -1,3 +1,15 @@
+**Dodgers' Blake Treinen hits IL with right forearm inflammation**\
+`The Dodgers re-signed Treinen to a two-year, $18 million deal this offseason as part of an overall investment in their bullpen.`\
+https://nytimes.com/athletic/6292645/2025/04/19/dodgers-blake-treinen-arm-injury/
+
+**NBA playoff takeaways: Pacers flex home-court muscles, handle Bucks**\
+`The Pacers routed the Bucks in the first of four NBA playoff games Saturday, taking a 1-0 series lead.`\
+https://nytimes.com/athletic/6292216/2025/04/19/nba-playoff-pacers-bucks-clippers-nuggets-knicks-pistons-lakers-wolves/
+
+**Chris Drury on firing Peter Laviolette, his own job security and a 'wide open' coaching search**\
+`Drury met with the media Saturday, saying: “Quite simply, we fell short across the board. Nobody here takes it lightly."`\
+https://nytimes.com/athletic/6292531/2025/04/19/chris-drury-peter-laviolette-firing/
+
 **USA, Canada to face off in Women's World Championship gold medal game**\
 `Team USA and Team Canada will play for gold at the 2025 IIHF Women’s World Championship on Sunday.`\
 https://nytimes.com/athletic/6292592/2025/04/19/usa-canada-womens-worlds-2025/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/19/us/politics/court-venezuela-deport-protocol.html
 **Max Verstappen is on Saudi Arabian GP pole; Lando Norris crashes in Q3**\
 `Verstappen barely beat Oscar Piastri for pole in Jeddah, as the McLaren vs. Verstappen title fight heats up.`\
 https://nytimes.com/athletic/6292249/2025/04/19/saudi-arabian-grand-prix-qualifying-oscar-verstappen-red-bull-pole/
-
-**Celtics' Jaylen Brown doesn't expect minutes restriction vs. Magic**\
-`Boston star says that late-season management of his knee has prepared him for the postseason.`\
-https://nytimes.com/athletic/6292448/2025/04/19/celtics-jaylen-brown-no-minutes-restrictions-magic/
-
-**Maple Leafs Game 1 lineup: Who’s in, who’s out, who’s playing where**\
-`Craig Berube warned that he could still change some things around, but the likely Leafs lines appear set.`\
-https://nytimes.com/athletic/6292317/2025/04/19/maple-leafs-game-1-lineup-senators-nhl-playoffs/
-
-**Rangers coaching candidates: Mike Sullivan? John Tortorella? Back to the college ranks?**\
-`Here are 12 candidates in what should be a thorough Rangers coaching search, with one caveat: If the top name is available, he's the guy.`\
-https://nytimes.com/athletic/6289839/2025/04/19/rangers-coaching-candidates-sullivan-tortorella/
 
