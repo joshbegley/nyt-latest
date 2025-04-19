@@ -1,3 +1,7 @@
+**Cavs-Heat series preview: Can Cleveland make Miami look like a 10-seed?**\
+`On the surface, Cavs-Heat looks like a mismatch of a series. But when you dig deeper, you see a different story.`\
+https://nytimes.com/athletic/6292607/2025/04/19/cavaliers-heat-series-preview/
+
 **Dodgers' Blake Treinen hits IL with right forearm inflammation**\
 `The Dodgers re-signed Treinen to a two-year, $18 million deal this offseason as part of an overall investment in their bullpen.`\
 https://nytimes.com/athletic/6292645/2025/04/19/dodgers-blake-treinen-arm-injury/
@@ -6,8 +10,8 @@ https://nytimes.com/athletic/6292645/2025/04/19/dodgers-blake-treinen-arm-injury
 `The Pacers routed the Bucks in the first of four NBA playoff games Saturday, taking a 1-0 series lead.`\
 https://nytimes.com/athletic/6292216/2025/04/19/nba-playoff-pacers-bucks-clippers-nuggets-knicks-pistons-lakers-wolves/
 
-**Chris Drury on firing Peter Laviolette, his own job security and a 'wide open' coaching search**\
-`Drury met with the media Saturday, saying: “Quite simply, we fell short across the board. Nobody here takes it lightly."`\
+**Chris Drury on firing Peter Laviolette, his job security and a 'wide open' coaching search**\
+`Drury met with the media Saturday saying, “We fell short across the board. Nobody here takes it lightly."`\
 https://nytimes.com/athletic/6292531/2025/04/19/chris-drury-peter-laviolette-firing/
 
 **USA, Canada to face off in Women's World Championship gold-medal game**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6284417/2025/04/19/aston-villa-4-newcastle-1-watkin
 **An Urgent Supreme Court Order Protecting Migrants Was Built for Speed**\
 `In an overnight ruling blocking the Trump administration from deporting a group of Venezuelans, the justices ignored some of their protocols.`\
 https://nytimes.com/2025/04/19/us/politics/court-venezuela-deport-protocol.html
-
-**Max Verstappen is on Saudi Arabian GP pole; Lando Norris crashes in Q3**\
-`Verstappen barely beat Oscar Piastri for pole in Jeddah, as the McLaren vs. Verstappen title fight heats up.`\
-https://nytimes.com/athletic/6292249/2025/04/19/saudi-arabian-grand-prix-qualifying-oscar-verstappen-red-bull-pole/
 
