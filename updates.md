@@ -1,3 +1,7 @@
+**Wolff ‘didn’t have any conversations’ with Verstappen over Mercedes F1 2026 move**\
+`Verstappen is under contract at Red Bull through to 2028, but the team’s car struggles have led to fresh scrutiny over his future.`\
+https://nytimes.com/athletic/6291802/2025/04/19/formula-1-verstappen-wolff-mercedes-move/
+
 **USWNT captain Heaps says salary cap issue to blame for NWSL departures**\
 `Heaps called the cap an “ongoing issue,” when asked why Americans are coming to Europe.`\
 https://nytimes.com/athletic/6291805/2025/04/19/uswnt-nwsl-salary-cap-2/
