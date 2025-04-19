@@ -1,3 +1,19 @@
+**This Is How Far Vance Will Go to Sell a Lie**\
+`Unfortunately for his argument, the Constitution is the Constitution.`\
+https://nytimes.com/2025/04/19/opinion/vance-abrego-garcia-immigration.html
+
+**An Image of Coretta Scott King, Poster in Hand**\
+`In 1963, Mrs. King helped lead a march commemorating the second anniversary of Women Strike for Peace.`\
+https://nytimes.com/2025/04/19/insider/coretta-scott-king-poster.html
+
+**Just Look at This Carrot Cake**\
+`Dorie Greenspan’s recipe, with five stars and nearly 10,000 reviews, is a New York Times Cooking classic.`\
+https://nytimes.com/2025/04/19/dining/carrot-cake-easter.html
+
+**Putin Declares One-Day Easter Truce in Ukraine War**\
+`President Vladimir V. Putin of Russia said that from Saturday evening through Sunday, he had ordered his forces to “stop all military activity.” Ukraine’s leader said he was trying to “play with people’s lives.”`\
+https://nytimes.com/2025/04/19/world/europe/russia-ukraine-easter-truce.html
+
 **Arsenal edged out by Lyon in first leg of Women's UCL semi**\
 `Melchie Dumornay's 82nd-minute winner gives the French side the advantage of next week's second leg in Lyon.`\
 https://nytimes.com/athletic/6291921/2025/04/19/arsenal-lyon-champions-league-semi-final/

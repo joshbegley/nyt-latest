@@ -1,9 +1,21 @@
+**This Is How Far Vance Will Go to Sell a Lie**\
+`Unfortunately for his argument, the Constitution is the Constitution.`\
+https://nytimes.com/2025/04/19/opinion/vance-abrego-garcia-immigration.html
+
+**An Image of Coretta Scott King, Poster in Hand**\
+`In 1963, Mrs. King helped lead a march commemorating the second anniversary of Women Strike for Peace.`\
+https://nytimes.com/2025/04/19/insider/coretta-scott-king-poster.html
+
+**Just Look at This Carrot Cake**\
+`Dorie Greenspan’s recipe, with five stars and nearly 10,000 reviews, is a New York Times Cooking classic.`\
+https://nytimes.com/2025/04/19/dining/carrot-cake-easter.html
+
 **Arsenal edged out by Lyon in first leg of Women's UCL semi**\
 `Melchie Dumornay's 82nd-minute winner gives the French side the advantage of next week's second leg in Lyon.`\
 https://nytimes.com/athletic/6291921/2025/04/19/arsenal-lyon-champions-league-semi-final/
 
 **Putin Declares One-Day Easter Truce in Ukraine War**\
-`President Vladimir V. Putin of Russia said that from Saturday evening through Sunday, he had ordered his forces to “stop all military activity” against Ukraine.`\
+`President Vladimir V. Putin of Russia said that from Saturday evening through Sunday, he had ordered his forces to “stop all military activity.” Ukraine’s leader said he was trying to “play with people’s lives.”`\
 https://nytimes.com/2025/04/19/world/europe/russia-ukraine-easter-truce.html
 
 **Ramsey named Cardiff interim manager following Riza exit**\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/19/us/politics/trump-letter-ty-cobb.html
 **Trump Administration Live Updates: Supreme Court, for Now, Blocks Deportations of Venezuelan Migrants**\
 `Justices Clarence Thomas and Samuel A. Alito Jr. dissented. A group of migrants had been scheduled to be flown out of the country, according to people familiar with the matter.`\
 https://nytimes.com/live/2025/04/19/us/trump-news
-
-**The Pulse: An expensive blitz to save a coach**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6291642/2025/04/19/the-expensive-blitz-to-save-an-embattled-coach-plus-playoffs-all-over/
-
-**It's time to believe: Why not the Winnipeg Jets? Why not now?**\
-`The playoffs upon which everything Winnipeg has done this year will be judged could end in 10 days or two months. But the Jets believe.`\
-https://nytimes.com/athletic/6291325/2025/04/19/nhl-playoffs-winnipeg-jets-believe/
-
-**Kirill Kaprizov on losing the Hart, his health and returning to do 'some damage’ in the playoffs**\
-`For the first time since November, the Wild have their full lineup available, led by the bubbly Kaprizov.`\
-https://nytimes.com/athletic/6290981/2025/04/19/kaprizov-wild-injury-playoffs/
 
