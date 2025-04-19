@@ -1,3 +1,11 @@
+**Trinity Rodman stepping away from Washington Spirit to address back issues**\
+`Rodman is expected to meet with the Spirit's team doctor in London. Her team says she will return "when she’s healthy."`\
+https://nytimes.com/athletic/6292310/2025/04/19/trinity-rodman-spirit-steps-away-back-issues/
+
+**How could UCLA afford to pay Nico Iamaleava amid 'revenue challenge?'**\
+`UCLA’s athletic department has a robust tradition in sports outside of football, which makes the pay scale more reliant on outside funding.`\
+https://nytimes.com/athletic/6292313/2025/04/19/ucla-nico-iamaleava-transfer-money/
+
 **Tampa Bay's Oliver Bjorkstrand out for series, Matthew Tkachuk nears return for Panthers**\
 `While Tkachuk might be ready for Game 1 against Tampa Bay, the Lightning will be without a key forward for the entire series.`\
 https://nytimes.com/athletic/6292385/2025/04/19/oliver-bjorkstrand-injury-nhl-playoffs-matthew-tkachuk/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/04/19/us/trump-news/supreme-court-orders-in-the-mi
 **The Briefing: Everton 0 Manchester City 2 - O'Reilly the hero again; big step towards a top-five finish**\
 `Sam Lee analyses Manchester City's win on their last-ever trip to Goodison Park`\
 https://nytimes.com/athletic/6284415/2025/04/19/everton-manchester-city-analysis-premier-league/
-
-**Szczesny 'very likely' to stay at Barcelona for 2025-26 - Deco**\
-`The Polish goalkeeper has made 24 appearances for Barca this season, having come out of retirement to join the Catalan club in October.`\
-https://nytimes.com/athletic/6292116/2025/04/19/wojciech-szczesny-barcelona-contract/
-
-**In the Cradle of the American Revolution, Telling History Her Way**\
-`A teenager in Lexington, Mass., has for years been teaching people about the battle that started the war 250 years ago this weekend. Her entertaining website has drawn praise and raised eyebrows.`\
-https://nytimes.com/2025/04/19/us/battle-of-lexington-250th-anniversary.html
 
