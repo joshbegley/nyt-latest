@@ -10,8 +10,8 @@ https://nytimes.com/athletic/6284417/2025/04/19/aston-villa-4-newcastle-1-watkin
 `In an overnight ruling blocking the Trump administration from deporting a group of Venezuelans, the justices ignored some of their protocols.`\
 https://nytimes.com/2025/04/19/us/politics/court-venezuela-deport-protocol.html
 
-**Max Verstappen on Saudi Arabian GP pole; Lando Norris crashes in Q3**\
-`Max Verstappen barely beat Oscar Piastri for pole in Jeddah, as the McLaren vs. Verstappen title fight heats up.`\
+**Max Verstappen is on Saudi Arabian GP pole; Lando Norris crashes in Q3**\
+`Verstappen barely beat Oscar Piastri for pole in Jeddah, as the McLaren vs. Verstappen title fight heats up.`\
 https://nytimes.com/athletic/6292249/2025/04/19/saudi-arabian-grand-prix-qualifying-oscar-verstappen-red-bull-pole/
 
 **Celtics' Jaylen Brown doesn't expect minutes restriction vs. Magic**\

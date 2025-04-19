@@ -1,3 +1,7 @@
+**Max Verstappen is on Saudi Arabian GP pole; Lando Norris crashes in Q3**\
+`Verstappen barely beat Oscar Piastri for pole in Jeddah, as the McLaren vs. Verstappen title fight heats up.`\
+https://nytimes.com/athletic/6292249/2025/04/19/saudi-arabian-grand-prix-qualifying-oscar-verstappen-red-bull-pole/
+
 **An Urgent Supreme Court Order Protecting Migrants Was Built for Speed**\
 `In an overnight ruling blocking the Trump administration from deporting a group of Venezuelans, the justices ignored some of their protocols.`\
 https://nytimes.com/2025/04/19/us/politics/court-venezuela-deport-protocol.html
