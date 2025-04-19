@@ -1,3 +1,8 @@
+**Red Wings' locker clean-out day: Kane's future, Larkin's injuries, fixing March woes**\
+`After a disappointing 2024-25 season for Detroit, players gave their final thoughts and reflections and began to look ahead.
+`\
+https://nytimes.com/athletic/6292481/2025/04/19/red-wings-patrick-kane-dylan-larkin/
+
 **Stanford-Cal breaks college softball attendance record with 13,207 fans**\
 `The previous record of 12,566 was set at last year’s College World Series in Oklahoma City.`\
 https://nytimes.com/athletic/6291222/2025/04/19/stanford-softball-attendance-record-cal/
