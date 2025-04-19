@@ -1,3 +1,7 @@
+**Max Verstappen on Saudi Arabian GP pole; Lando Norris crashes in Q3**\
+`Max Verstappen barely beat Oscar Piastri for pole in Jeddah, as the McLaren vs. Verstappen title fight heats up.`\
+https://nytimes.com/athletic/6292249/2025/04/19/saudi-arabian-grand-prix-qualifying-oscar-verstappen-red-bull-pole/
+
 **Celtics' Jaylen Brown doesn't expect minutes restriction vs. Magic**\
 `Boston star says that late-season management of his knee has prepared him for the postseason.`\
 https://nytimes.com/athletic/6292448/2025/04/19/celtics-jaylen-brown-no-minutes-restrictions-magic/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6292385/2025/04/19/oliver-bjorkstrand-injury-nhl-pl
 **Thompson: How Moses Moody became the Warriors' go-to player for a pivotal defensive role**\
 `Moses Moody putting it all together has been a boon to the Warriors' defense — and it's key to their hopes in these playoffs.`\
 https://nytimes.com/athletic/6292195/2025/04/19/moses-moody-golden-state-warriors-defense-playoffs/
-
-**3 Dead After Small Plane Crashes Into a Nebraska River**\
-`The plane was traveling along the Platte River when it crashed into the water south of Fremont, Neb., on Friday night, officials said.`\
-https://nytimes.com/2025/04/19/us/plane-crash-nebraska-fremont.html
 
