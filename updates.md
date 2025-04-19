@@ -1,3 +1,7 @@
+**Former England coach Holland sacked by Marinos after just four months in charge**\
+`Holland, 54, won just one of his 11 league games in charge of the side, leaving them Japanese side in 19th position in the 20-team J-League.`\
+https://nytimes.com/athletic/6291836/2025/04/19/england-holland-sacked-yokohama/
+
 **The Battle of Ontario — as told by the Maple Leafs and Senators who've lived it**\
 `What made those four series between 1999 and 2004 so special? And why are they fuel for many fans heading into the 2025 playoffs?`\
 https://nytimes.com/athletic/6287231/2025/04/19/leafs-senators-battle-of-ontario-history-nhl-playoffs/
