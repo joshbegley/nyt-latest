@@ -1,3 +1,7 @@
+**A Timeline of the Trump Administration’s Use of the Alien Enemies Act**\
+`Legal challenges over the powerful wartime law have gone all the way to the Supreme Court.`\
+https://nytimes.com/2025/04/19/us/politics/alien-enemies-act-timeline.html
+
 **Protesters Around the U.S. Rally Against Trump’s Policies**\
 `Thousands turned out to protest the Trump administration’s handling of immigration, civil liberties and federal job cuts.`\
 https://nytimes.com/video/us/politics/100000010119917/protesters-around-the-us-rally-against-trumps-policies.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6292554/2025/04/19/ollie-watkins-aston-villa-droppe
 **Ancelotti expected to leave Real Madrid with preference to join Brazil**\
 `Ancelotti is understood to be interested in the Brazil position and is open to leaving the Spanish capital.`\
 https://nytimes.com/athletic/6292242/2025/04/19/carlo-ancelotti-real-madrid-manager-brazil/
-
-**Max Romeo, Leading Voice in the Heyday of Roots Reggae, Dies at 80**\
-`His early hits were filled with sexual innuendo. But he later switched to a soulful political message that resonated in 1970s Jamaica and beyond.`\
-https://nytimes.com/2025/04/19/arts/music/max-romeo-dead.html
 
