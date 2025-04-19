@@ -1,3 +1,11 @@
+**Braves notch a comeback win, hope Alex Verdugo provides 'edge' they've lacked**\
+`The fiery Verdugo is just going to be himself, which is something teammates have gravitated toward in the past.`\
+https://nytimes.com/athletic/6291614/2025/04/19/atlanta-braves-comeback-alex-verdugo/
+
+**How Ederson has more assists than Haaland, Foden or Grealish this season**\
+`Manchester City's goalkeeper has four assists this season, pushing his top-flight total for them by up to seven - a Premier League record`\
+https://nytimes.com/athletic/6283872/2025/04/19/ederson-assists-manchester-city/
+
 **The Premier League's Underrated XI: Our writers pick their teams for 2024-25**\
 `There was one rule: the player cannot have been Premier League Player of the Month this season…`\
 https://nytimes.com/athletic/6288193/2025/04/19/premier-league-most-underrated-players/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6286625/2025/04/19/title-races-around-europe/
 **Trump’s Aid Cuts Hit the Hungry in a City of Shellfire and Starvation**\
 `The stark consequences of the rollback are evident in few places as clearly as in Sudan, where a brutal civil war has combined with a staggering humanitarian catastrophe.`\
 https://nytimes.com/2025/04/19/world/africa/sudan-usaid-famine.html
-
-**Trevor Story, healthy and ready to produce, powers Red Sox with 2 home runs**\
-`Story slammed a pair of three-run homers to propel the Red Sox past the White Sox 10-3 on Friday.`\
-https://nytimes.com/athletic/6291594/2025/04/19/trevor-story-red-sox-home-runs-2/
-
-**U.S. and Iran to Meet Again for Nuclear Talks, as Israel Watches Closely**\
-`The Trump administration has sent mixed messages about its goal for the negotiations.`\
-https://nytimes.com/2025/04/19/world/middleeast/us-iran-nuclear-talks.html
 

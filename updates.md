@@ -1,3 +1,11 @@
+**Braves notch a comeback win, hope Alex Verdugo provides 'edge' they've lacked**\
+`The fiery Verdugo is just going to be himself, which is something teammates have gravitated toward in the past.`\
+https://nytimes.com/athletic/6291614/2025/04/19/atlanta-braves-comeback-alex-verdugo/
+
+**How Ederson has more assists than Haaland, Foden or Grealish this season**\
+`Manchester City's goalkeeper has four assists this season, pushing his top-flight total for them by up to seven - a Premier League record`\
+https://nytimes.com/athletic/6283872/2025/04/19/ederson-assists-manchester-city/
+
 **The Premier League's Underrated XI: Our writers pick their teams for 2024-25**\
 `There was one rule: the player cannot have been Premier League Player of the Month this season…`\
 https://nytimes.com/athletic/6288193/2025/04/19/premier-league-most-underrated-players/

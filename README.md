@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6283872/2025/04/19/ederson-assists-manchester-city/
 `There was one rule: the player cannot have been Premier League Player of the Month this season…`\
 https://nytimes.com/athletic/6288193/2025/04/19/premier-league-most-underrated-players/
 
-**Francisco Lindor hits his first walk-off homer as a Met, his 250th all-time**\
+**Francisco Lindor hits his first walk-off homer as a Met, his 250th homer**\
 `Lindor became the fifth shortstop in MLB history to reach 250 home runs.`\
 https://nytimes.com/athletic/6291641/2025/04/19/francisco-lindor-walk-off-home-run-250/
 
