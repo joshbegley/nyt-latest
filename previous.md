@@ -1,40 +1,40 @@
-**Tunisia Hands Heavy Sentences to Prominent Opposition Figures**\
-`As the North African nation continues to slide toward authoritarianism, a court sentenced about 40 people, including high-profile rivals of the president, to up to 66 years in prison.`\
-https://nytimes.com/2025/04/19/world/middleeast/tunisia-opposition-prison.html
+**The Battle of Ontario — as told by the Maple Leafs and Senators who've lived it**\
+`What made those four series between 1999 and 2004 so special? And why are they fuel for many fans heading into the 2025 playoffs?`\
+https://nytimes.com/athletic/6287231/2025/04/19/leafs-senators-battle-of-ontario-history-nhl-playoffs/
 
-**Once a Blues lightning rod, Jordan Kyrou (and his +23) won over fans going into playoffs**\
-`The Blues' leading scorer the last three years has made major improvements defensively. `\
-https://nytimes.com/athletic/6264908/2025/04/19/blues-jordan-kyrou-won-over-fans-playoffs/
+**NHL playoff predictions: First-round winners, disappointments, dark horse, Cup champion**\
+`The Athletic's NHL staff picks first-round winners, dark horse, biggest disappointment, conference champs, Cup champ and Conn Smythe.`\
+https://nytimes.com/athletic/6291054/2025/04/19/nhl-playoffs-2025-predictions-first-round/
 
-**Say, Old Sport**\
-`“The Great Gatsby” is important, of course, but it’s also all kinds of fun.`\
-https://nytimes.com/2025/04/19/briefing/say-old-sport.html
+**Defending McDavid and Draisaitl: Top centers dish on what makes duo special**\
+`Together or apart, here's why McDavid and Draisaitl are a nightmare matchup for opponents.`\
+https://nytimes.com/athletic/6289391/2025/04/19/mcdavid-draisaitl-oilers-stats-nhl-playoffs/
 
-**Legacy lookahead: 9 players (and a coach) who have the most to gain in NBA playoffs**\
-`For some, more winning will add to existing lore. For others, an unexpected setback may raise some questions.`\
-https://nytimes.com/athletic/6279829/2025/04/19/nba-playoffs-legacies-sga-jokic-luka/
+**Stanley Cup tiers: Anonymous GM and executives rate every playoff team**\
+`Fans, media and statistical models are all giving their takes and projections, but what do people inside the league think?`\
+https://nytimes.com/athletic/6288017/2025/04/19/nhl-playoffs-stanley-cup-tiers/
 
-**At a Time of Crisis, Canadians Rush to Vote**\
-`The first day of advance voting brought long waits in many parts of Canada.`\
-https://nytimes.com/2025/04/19/world/canada/canada-election-first-day.html
+**What did it cost to be an NHL fan in the 2024-25 season?**\
+`The Athletic set out to find out the average cost, per city, for an NHL fan for the 2024-2025 season.`\
+https://nytimes.com/athletic/6267214/2025/04/19/nhl-fan-expenses-cost-2025-season/
 
-**Wordle Review No. 1,401**\
-`Scroll down for hints and conversation about the puzzle for Sunday, April 20, 2025.`\
-https://nytimes.com/2025/04/19/crosswords/wordle-review-1401.html
+**Brace Yourself. Trump’s Trade War With China Will Get Even Uglier.**\
+`What happens if we run out of rare-earth metals or bond prices collapse?`\
+https://nytimes.com/2025/04/19/opinion/trump-china-trade-war.html
 
-**Connections Companion No. 679**\
-`Scroll down for hints and conversation about the puzzle for Sunday, April 20, 2025.`\
-https://nytimes.com/2025/04/19/crosswords/connections-companion-679.html
+**Trump Just Scrapped My Anti-Kremlin Streaming Platform**\
+`We called it Votvot — Russian for “any minute now.”`\
+https://nytimes.com/2025/04/19/opinion/trump-defund-votvot-kremlin-russia.html
 
-**Storms May Hinder Travel on Easter Weekend**\
-`Forecasters warned of heavy rain and thunderstorms, raising the risk of flash floods through the weekend.`\
-https://nytimes.com/2025/04/19/weather/easter-travel-storms-tornado-us.html
+**The Naval Academy Thinks Midshipmen Can’t Handle the Truth**\
+`How a lecture to the U.S. Naval Academy on censorship was censored.`\
+https://nytimes.com/2025/04/19/opinion/naval-academy-speech-censorship.html
 
-**Wolff ‘didn’t have any conversations’ with Verstappen over Mercedes F1 2026 move**\
-`Verstappen is under contract at Red Bull through to 2028, but the team’s car struggles have led to fresh scrutiny over his future.`\
-https://nytimes.com/athletic/6291802/2025/04/19/formula-1-verstappen-wolff-mercedes-move/
+**The Emergency Is Here (Part 2)**\
+`Trump is disappearing people to a Salvadoran prison for terrorists. Asha Rangappa, a former F.B.I. agent and an assistant dean at the Yale Jackson School of Global Affairs, discusses the “constitutional black hole” these deportations could open up.`\
+https://nytimes.com/video/opinion/100000010106564/the-emergency-is-here-part-2.html
 
-**USWNT captain Heaps says salary cap issue to blame for NWSL departures**\
-`Heaps called the cap an “ongoing issue,” when asked why Americans are coming to Europe.`\
-https://nytimes.com/athletic/6291805/2025/04/19/uswnt-nwsl-salary-cap-2/
+**The True Cost of Eggs**\
+`I have raised and loved so many hens from the time they were chicks. Why did I never think to ask about the fate of their brothers?`\
+https://nytimes.com/2025/04/19/opinion/eggs-chicken-in-ovo-sexing.html
 
