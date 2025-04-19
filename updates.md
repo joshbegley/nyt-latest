@@ -1,3 +1,11 @@
+**Yoshinobu Yamamoto is pitching like 'one of the best pitchers in our game' right now**\
+`"He's been a man on a mission," Tommy Edman said of Yamamoto, who lowered his ERA to 0.93 on Friday. "He's been unstoppable."`\
+https://nytimes.com/athletic/6291643/2025/04/19/dodgers-yoshinobu-yamamoto-one-of-best-pitchers-in-game/
+
+**The New York Times in Print for Saturday, April 19, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/19/todays-new-york-times
+
 **Lawsuit Aims to Broadly Halt Deportations of Foreign Students**\
 `A suit challenges the Trump administration’s campaign in four states and Puerto Rico, and seeks the reinstatement of terminated student visas.`\
 https://nytimes.com/2025/04/19/us/politics/lawsuit-trump-student-visa-deportation.html
