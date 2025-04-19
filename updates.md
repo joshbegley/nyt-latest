@@ -1,3 +1,8 @@
+**Red Wings' locker clean-out day: Kane's future, Larkin's injuries, fixing March woes**\
+`After a disappointing 2024-25 season for Detroit, players gave their final thoughts and reflections and began to look ahead.
+`\
+https://nytimes.com/athletic/6292481/2025/04/19/red-wings-patrick-kane-dylan-larkin/
+
 **Oklahoma wins seventh NCAA gymnastics final in 11 years; UCLA finishes second**\
 `Missouri finished third after a successful inquiry to nudge past Utah.`\
 https://nytimes.com/athletic/6292902/2025/04/19/oklahoma-ncaa-gymnastics-championship-ucla/
