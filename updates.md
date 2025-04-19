@@ -1,3 +1,20 @@
+**Pacers run to early lead, leave Bucks behind in convincing Game 1 win**\
+`Pascal Siakam led all Pacers scorers with 25 points, shooting 10-for-15 from the field and 3-for-5 from 3.`\
+https://nytimes.com/athletic/6292937/2025/04/19/indiana-pacers-milwaukee-bucks-nba-game-1/
+
+**Three Pentagon officials fired in leak inquiry proclaim their innocence.**\
+`By Greg Jaffe`\
+https://nytimes.com/live/2025/04/19/us/trump-news/three-pentagon-officials-fired-in-leak-inquiry-proclaim-their-innocence
+
+**Mother and Son, 8, Found Dead in Bronx Home With Daughter, 4, Left Alone**\
+`It was not immediately clear how long the two had been dead or how long the younger daughter had been surviving alone in the apartment.`\
+https://nytimes.com/2025/04/19/nyregion/bronx-mother-and-son-dead.html
+
+**'He's here for a reason': Wild prospect Zeev Buium to make NHL debut in playoffs**\
+`In Game 1 vs. Vegas on Sunday, the 19-year-old will become the first player in Wild history to make his NHL debut in a playoff game.
+`\
+https://nytimes.com/athletic/6292873/2025/04/19/wild-prospect-zeev-buium-nhl-playoffs/
+
 **'He's here for a reason': Wild prospect Zeev Buium to make NHL debut in playoffs**\
 `In Game 1 vs. Vegas on Sunday, the 19-year-old will become the first player in Wild history to make his NHL debut in a playoff game.
 `\
