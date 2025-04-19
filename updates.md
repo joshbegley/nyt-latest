@@ -1,3 +1,11 @@
+**Max Romeo, Leading Voice in the Heyday of Roots Reggae, Dies at 80**\
+`His early hits were filled with sexual innuendo. But he later switched to a soulful political message that resonated in 1970s Jamaica and beyond.`\
+https://nytimes.com/2025/04/19/arts/music/max-romeo-dead.html
+
+**An Urgent Supreme Court Order Protecting Migrants Was Built for Speed**\
+`In an overnight ruling blocking the Trump administration from deporting a group of Venezuelans, the justices ignored some of their protocols.`\
+https://nytimes.com/live/2025/04/19/us/trump-news/court-venezuela-deport-protocol
+
 **The Briefing: Aston Villa 4 Newcastle 1 - Watkins shows his value, lack of rotation costs Newcastle**\
 `Aston Villa romped to a big win over Newcastle, striking a hefty blow in the race for Champions League qualification`\
 https://nytimes.com/athletic/6284417/2025/04/19/aston-villa-4-newcastle-1-watkins/

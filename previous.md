@@ -1,10 +1,14 @@
+**Max Romeo, Leading Voice in the Heyday of Roots Reggae, Dies at 80**\
+`His early hits were filled with sexual innuendo. But he later switched to a soulful political message that resonated in 1970s Jamaica and beyond.`\
+https://nytimes.com/2025/04/19/arts/music/max-romeo-dead.html
+
 **The Briefing: Aston Villa 4 Newcastle 1 - Watkins shows his value, lack of rotation costs Newcastle**\
 `Aston Villa romped to a big win over Newcastle, striking a hefty blow in the race for Champions League qualification`\
 https://nytimes.com/athletic/6284417/2025/04/19/aston-villa-4-newcastle-1-watkins/
 
 **An Urgent Supreme Court Order Protecting Migrants Was Built for Speed**\
 `In an overnight ruling blocking the Trump administration from deporting a group of Venezuelans, the justices ignored some of their protocols.`\
-https://nytimes.com/2025/04/19/us/politics/court-venezuela-deport-protocol.html
+https://nytimes.com/live/2025/04/19/us/trump-news/court-venezuela-deport-protocol
 
 **Max Verstappen on Saudi Arabian GP pole; Lando Norris crashes in Q3**\
 `Max Verstappen barely beat Oscar Piastri for pole in Jeddah, as the McLaren vs. Verstappen title fight heats up.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6291942/2025/04/19/marie-philip-poulin-hayley-wicke
 **Trinity Rodman stepping away from Washington Spirit to address back issues**\
 `Rodman is expected to meet with the Spirit's team doctor in London. Her team says she will return "when she’s healthy."`\
 https://nytimes.com/athletic/6292310/2025/04/19/trinity-rodman-spirit-steps-away-back-issues/
-
-**How could UCLA afford to pay Nico Iamaleava amid 'revenue challenge?'**\
-`UCLA’s athletic department has a robust tradition in sports outside of football, which makes the pay scale more reliant on outside funding.`\
-https://nytimes.com/athletic/6292313/2025/04/19/ucla-nico-iamaleava-transfer-money/
 
