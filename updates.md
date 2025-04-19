@@ -1,3 +1,7 @@
+**Protesters Nationwide Rally Again to Condemn Trump Policies**\
+`More than 700 events were planned for Saturday, as people turned out to speak against the administration’s handling of immigration, civil liberties and federal job cuts.`\
+https://nytimes.com/2025/04/19/us/politics/trump-protests-nyc-florida-la.html
+
 **Mike Wood, Whose LeapFrog Toys Taught a Generation, Dies at 72**\
 `His LeapPad tablets, which helped children read, found their way into tens of millions of homes beginning in 1999.`\
 https://nytimes.com/2025/04/19/business/michael-c-wood-dead.html
