@@ -1,3 +1,11 @@
+**'Not very happy with my result': Michkov dissatisfied with rookie season, even if no one else is**\
+`The 20-year-old led the league in goals among rookies this season, but still thinks he "could have scored a lot more."`\
+https://nytimes.com/athletic/6292677/2025/04/19/flyers-matvei-michkov-rookie-season/
+
+**Lowetide: What to expect from Oilers' recent free-agent additions**\
+`The Oilers are signing players who have delivered in Europe and in the NCAA to NHL deals.`\
+https://nytimes.com/athletic/6292182/2025/04/19/oilers-free-agents-quinn-hutson/
+
 **‘I let myself down’: Lando Norris’ F1 qualifying crash tests his championship resolve**\
 `Norris crashed out of Saudi Arabia qualifying just when he was looking the favorite for pole. But he can still salvage a good result`\
 https://nytimes.com/athletic/6292695/2025/04/19/lando-norris-f1-saudi-arabia-qualifying-crash/
