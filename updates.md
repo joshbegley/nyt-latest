@@ -1,3 +1,19 @@
+**Many Have Tried to Fix Penn Station. Can Trump Get the Job Done?**\
+`Transportation experts say a thorough renovation is likely to take several years to complete — unless emergency measures are employed.`\
+https://nytimes.com/2025/04/19/nyregion/many-have-tried-to-fix-penn-station-can-trump-get-the-job-done.html
+
+**New York City’s Hottest Hangout Is a 500-Person Board Game Night**\
+`At Richard Ye’s enormous monthly gatherings, where people play Exploding Kittens, Hues and Clues, and mahjong, New Yorkers find real-life connections and a little free fun.`\
+https://nytimes.com/2025/04/19/nyregion/new-york-city-giant-game-night.html
+
+**How a Fashion Designer and Sewing Teacher Spends Her Sundays**\
+`Hekima Hapa runs around with her four children, teaches a sewing class in Brooklyn and ends her day by burning a little sage.`\
+https://nytimes.com/2025/04/19/nyregion/hekima-hapa-black-girls-sew.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/04/19/crosswords/spelling-bee-forum.html
+
 **A celebration of Joe Rodon, the warrior king of Leeds United's defence**\
 `While others have come and gone with fitness or form, the former Tottenham Hotspur man is the cornerstone of this team`\
 https://nytimes.com/athletic/6291218/2025/04/19/joe-rodon-leeds-united-oxford-championship/
