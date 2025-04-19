@@ -1,3 +1,16 @@
+**Russians Wonder: Can Trump Really Negotiate Peace in Ukraine?**\
+`Many thought President Trump would be able to finish the war. Now they are not so sure.`\
+https://nytimes.com/2025/04/19/world/europe/russia-ukraine-putin-trump.html
+
+**Ancelotti says he and Real Madrid players remain united: 'We are on the same line'**\
+`Ancelotti’s future at Real Madrid has come under pressure following his side’s exit from the Champions League earlier this week.`\
+https://nytimes.com/athletic/6291885/2025/04/19/real-madrid-ancelotti-future-perez/
+
+**The Maple Leafs’ ultimate last stand: Will these playoffs be it?**\
+`It feels like it could be the final chance for the core that’s remained together through thick and thin to chase the Stanley Cup together.
+`\
+https://nytimes.com/athletic/6289951/2025/04/19/maple-leafs-nhl-playoffs-last-stand/
+
 **The Maple Leafs’ ultimate last stand: Will these playoffs be it?**\
 `It feels like it could be the final chance for the core that’s remained together through thick and thin to chase the Stanley Cup together.
 `\

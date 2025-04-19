@@ -1,3 +1,11 @@
+**Russians Wonder: Can Trump Really Negotiate Peace in Ukraine?**\
+`Many thought President Trump would be able to finish the war. Now they are not so sure.`\
+https://nytimes.com/2025/04/19/world/europe/russia-ukraine-putin-trump.html
+
+**Ancelotti says he and Real Madrid players remain united: 'We are on the same line'**\
+`Ancelotti’s future at Real Madrid has come under pressure following his side’s exit from the Champions League earlier this week.`\
+https://nytimes.com/athletic/6291885/2025/04/19/real-madrid-ancelotti-future-perez/
+
 **Nico Harrison once said the Mavericks were a Klay away. Then he traded their best player**\
 `Friday's Play-In loss has the Mavs now reflecting on their franchise-derailing trade and the calamitous sequence of events that followed.`\
 https://nytimes.com/athletic/6291753/2025/04/19/nico-harrison-mavericks-nba-playoffs-klay-luka/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6290981/2025/04/19/kaprizov-wild-injury-playoffs/
 `It feels like it could be the final chance for the core that’s remained together through thick and thin to chase the Stanley Cup together.
 `\
 https://nytimes.com/athletic/6289951/2025/04/19/maple-leafs-nhl-playoffs-last-stand/
-
-**Hurricanes have big advantages in series vs. Devils — and big reasons for concern**\
-`Carolina has health, home ice, Alexander Nikishin and more going for it — but also a situation in net that never inspires confidence.`\
-https://nytimes.com/athletic/6291055/2025/04/19/hurricanes-advantages-concerns-nhl-playoffs/
-
-**'I try to be myself every day': Cade Cunningham's leadership has been on display all season**\
-`Cunningham's leadership has helped lead the Pistons to a top-six seed in the Eastern Conference playoffs for the first time since 2008.`\
-https://nytimes.com/athletic/6291208/2025/04/19/cade-cunningham-leadership-pistons-knicks/
 
