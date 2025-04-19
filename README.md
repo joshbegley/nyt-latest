@@ -15,7 +15,7 @@ https://nytimes.com/2025/04/19/dining/carrot-cake-easter.html
 https://nytimes.com/athletic/6291921/2025/04/19/arsenal-lyon-champions-league-semi-final/
 
 **Putin Declares One-Day Easter Truce in Ukraine War**\
-`President Vladimir V. Putin of Russia said that from Saturday evening through Sunday, he had ordered his forces to “stop all military activity” against Ukraine.`\
+`President Vladimir V. Putin of Russia said that from Saturday evening through Sunday, he had ordered his forces to “stop all military activity.” Ukraine’s leader said he was trying to “play with people’s lives.”`\
 https://nytimes.com/2025/04/19/world/europe/russia-ukraine-easter-truce.html
 
 **Ramsey named Cardiff interim manager following Riza exit**\
