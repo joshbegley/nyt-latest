@@ -1,3 +1,11 @@
+**The Pulse: An expensive blitz to save a coach**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6291642/2025/04/19/the-expensive-blitz-to-save-an-embattled-coach-plus-playoffs-all-over/
+
+**It's time to believe: Why not the Winnipeg Jets? Why not now?**\
+`The playoffs upon which everything Winnipeg has done this year will be judged could end in 10 days or two months. But the Jets believe.`\
+https://nytimes.com/athletic/6291325/2025/04/19/nhl-playoffs-winnipeg-jets-believe/
+
 **5 burning questions for the Wild and Golden Knights — Which players have the most to prove?**\
 `Also, when will we know when each team is in trouble? What are the toughest lineup decisions?`\
 https://nytimes.com/athletic/6290566/2025/04/19/wild-golden-knights-playoffs/
