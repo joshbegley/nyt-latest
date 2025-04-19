@@ -1,3 +1,7 @@
+**Friday’s NBA Play-In Tournament takeaways: Heat escape Hawks in OT thriller**\
+`Miami becomes the first No. 10 seed in Play-In Tournament history to clinch a playoff berth.`\
+https://nytimes.com/athletic/6291319/2025/04/18/nba-play-in-heat-hawks-grizzlies-mavericks/
+
 **Trail of Evidence**\
 `Alex Tomlinson’s second puzzle for the Times rewards close inspection.`\
 https://nytimes.com/2025/04/18/crosswords/daily-puzzle-2025-04-19.html

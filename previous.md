@@ -1,3 +1,7 @@
+**Friday’s NBA Play-In Tournament takeaways: Heat escape Hawks in OT thriller**\
+`Miami becomes the first No. 10 seed in Play-In Tournament history to clinch a playoff berth.`\
+https://nytimes.com/athletic/6291319/2025/04/18/nba-play-in-heat-hawks-grizzlies-mavericks/
+
 **Trail of Evidence**\
 `Alex Tomlinson’s second puzzle for the Times rewards close inspection.`\
 https://nytimes.com/2025/04/18/crosswords/daily-puzzle-2025-04-19.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010119405/van-hollen-maryland-abrego
 **What we heard about Tocchet, Pettersson and unsettled Canucks at locker cleanout day**\
 `There was a sense of questions unanswered surrounding the Canucks ahead of a critical offseason.`\
 https://nytimes.com/athletic/6291017/2025/04/18/vancouver-canucks-rick-tocchet-elias-pettersson/
-
-**Trump moves to make tens of thousands of federal workers easier to fire.**\
-`The White House said that about 50,000 federal workers with “policymaking” duties would be moved to a category of workers who could be fired for any reason.`\
-https://nytimes.com/live/2025/04/18/us/trump-news/trump-moves-to-make-tens-of-thousands-of-federal-workers-easier-to-fire
 
