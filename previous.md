@@ -1,3 +1,7 @@
+**What I like and don't like about the Timberwolves' playoff series against the Lakers**\
+`There are ghosts and specters and nemeses all over this series.`\
+https://nytimes.com/athletic/6290722/2025/04/19/timberwolves-lakers-nba-playoffs-preview/
+
 **Preview: Can the Rockets finally get past Steph Curry, Jimmy Butler and the Warriors?**\
 `Kelly Iko and Anthony Slater discuss the series between the Houston Rockets and Golden State Warriors. `\
 https://nytimes.com/athletic/6290683/2025/04/19/rockets-steph-curry-jimmy-butler-warriors-playoffs/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6291208/2025/04/19/cade-cunningham-leadership-pisto
 **Israeli Attacks Kill Dozens in Gaza, Health Ministry Says**\
 `Israel was keeping up its intense bombing campaign in the enclave, which has exacted a heavy price on civilians struggling to find safe places to shelter.`\
 https://nytimes.com/2025/04/19/world/middleeast/israel-gaza-strikes-death-toll.html
-
-**Ja Morant saved Grizzlies from Play-In disaster, but Thunder pose a historic challenge**\
-`Memphis deserves credit for digging itself out, but OKC is the prize it gets for falling into this hole in the first place.`\
-https://nytimes.com/athletic/6291796/2025/04/19/ja-morant-grizzlies-mavericks-thunder-nba-playoffs/
 
