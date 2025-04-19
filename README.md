@@ -1,3 +1,15 @@
+**The Pulse: An expensive blitz to save a coach**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6291642/2025/04/19/the-expensive-blitz-to-save-an-embattled-coach-plus-playoffs-all-over/
+
+**It's time to believe: Why not the Winnipeg Jets? Why not now?**\
+`The playoffs upon which everything Winnipeg has done this year will be judged could end in 10 days or two months. But the Jets believe.`\
+https://nytimes.com/athletic/6291325/2025/04/19/nhl-playoffs-winnipeg-jets-believe/
+
+**Wild walking taller with the prospect of a healthy Kirill Kaprizov 'excited to do some damage'**\
+`For the first time since November, the Wild have their full lineup available, led by the bubbly Kaprizov.`\
+https://nytimes.com/athletic/6290981/2025/04/19/kaprizov-wild-injury-playoffs/
+
 **5 burning questions for the Wild and Golden Knights — Which players have the most to prove?**\
 `Also, when will we know when each team is in trouble? What are the toughest lineup decisions?`\
 https://nytimes.com/athletic/6290566/2025/04/19/wild-golden-knights-playoffs/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6290683/2025/04/19/rockets-steph-curry-jimmy-butler
 **Penguins season report cards: From A (Sidney Crosby) to awful (Tristan Jarry)**\
 `It wasn't a pretty picture for the blue line in the annual Penguins report card, starting with Erik Karlsson.`\
 https://nytimes.com/athletic/6283145/2025/04/19/pittsburgh-penguins-report-card-sidney-crosby-kris-letang/
-
-**Bruins 2025-26 roster tiers: Who stays and who goes this offseason?**\
-`Who's a sure thing to return for 2025-26, who's a coin flip and who's a goner? Breaking down the roster headed into a busy summer.`\
-https://nytimes.com/athletic/6290711/2025/04/19/bruins-roster-tiers-offseason-moves/
-
-**Five key questions for Kings entering another playoff series vs. Oilers**\
-`What will shape the best-of-seven series that begins Monday night in Los Angeles?`\
-https://nytimes.com/athletic/6291514/2025/04/19/kings-oilers-series-nhl-playoffs/
-
-**Wild walking taller with the prospect of a healthy Kirill Kaprizov 'excited to do some damage'**\
-`For the first time since November, the Wild have their full lineup available, led by the bubbly Kaprizov.`\
-https://nytimes.com/athletic/6290981/2025/04/19/kaprizov-wild-injury-playoffs/
 

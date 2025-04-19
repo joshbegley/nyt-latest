@@ -1,3 +1,7 @@
+**5 burning questions for the Wild and Golden Knights — Which players have the most to prove?**\
+`Also, when will we know when each team is in trouble? What are the toughest lineup decisions?`\
+https://nytimes.com/athletic/6290566/2025/04/19/wild-golden-knights-playoffs/
+
 **Russians Wonder: Can Trump Really Negotiate Peace in Ukraine?**\
 `Many thought President Trump would be able to finish the war. Now they are not so sure.`\
 https://nytimes.com/2025/04/19/world/europe/russia-ukraine-putin-trump.html
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/6291514/2025/04/19/kings-oilers-series-nhl-playoffs
 **Wild walking taller with the prospect of a healthy Kirill Kaprizov 'excited to do some damage'**\
 `For the first time since November, the Wild have their full lineup available, led by the bubbly Kaprizov.`\
 https://nytimes.com/athletic/6290981/2025/04/19/kaprizov-wild-injury-playoffs/
-
-**The Maple Leafs’ ultimate last stand: Will these playoffs be it?**\
-`It feels like it could be the final chance for the core that’s remained together through thick and thin to chase the Stanley Cup together.
-`\
-https://nytimes.com/athletic/6289951/2025/04/19/maple-leafs-nhl-playoffs-last-stand/
 
