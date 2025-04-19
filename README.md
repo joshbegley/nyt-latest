@@ -1,3 +1,7 @@
+**Cubs pull off wild win in back-and-forth game at windy Wrigley Field**\
+`In an inning and a half, the Cubs and Diamondbacks combined for 21 runs on 20 hits, including six home runs.`\
+https://nytimes.com/athletic/6291268/2025/04/18/cubs-wild-win-diamondbacks-wrigley/
+
 **Hope isn't a strategy, Alex Tuch's contract and more from Sabres locker cleanout day**\
 `Buffalo's veterans have been here for enough losing to start feeling the weight of the playoff drought.`\
 https://nytimes.com/athletic/6291236/2025/04/18/sabres-alex-tuch-contract-rasmus-dahlin/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/18/us/trump-harvard-legal-process.html
 **Sean Couturier, Cam York move forward after not seeing eye-to-eye with John Tortorella**\
 `Tortorella continues to be viewed in a positive light by some Flyers, but others such as Couturier and York had different experiences.`\
 https://nytimes.com/athletic/6291161/2025/04/18/flyers-sean-couturier-cam-york-john-tortorella/
-
-**Guns, Extreme Views and Chaotic Childhood Shaped Suspect in Florida State Shooting**\
-`His biological mother said in an interview on Friday that she was bewildered by the attack, and had been against the presence of firearms in her son’s life.`\
-https://nytimes.com/2025/04/18/us/fsu-shooting-suspect-victims.html
 
