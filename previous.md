@@ -1,3 +1,23 @@
+**Say, Old Sport**\
+`“The Great Gatsby” is important, of course, but it’s also all kinds of fun.`\
+https://nytimes.com/2025/04/19/briefing/say-old-sport.html
+
+**Legacy lookahead: 9 players (and a coach) who have the most to gain in NBA playoffs**\
+`For some, more winning will add to existing lore. For others, an unexpected setback may raise some questions.`\
+https://nytimes.com/athletic/6279829/2025/04/19/nba-playoffs-legacies-sga-jokic-luka/
+
+**At a Time of Crisis, Canadians Rush to Vote**\
+`The first day of advance voting brought long waits in many parts of Canada.`\
+https://nytimes.com/2025/04/19/world/canada/canada-election-first-day.html
+
+**Wordle Review No. 1,401**\
+`Scroll down for hints and conversation about the puzzle for Sunday, April 20, 2025.`\
+https://nytimes.com/2025/04/19/crosswords/wordle-review-1401.html
+
+**Connections Companion No. 679**\
+`Scroll down for hints and conversation about the puzzle for Sunday, April 20, 2025.`\
+https://nytimes.com/2025/04/19/crosswords/connections-companion-679.html
+
 **Storms May Hinder Travel on Easter Weekend**\
 `Forecasters warned of heavy rain and thunderstorms, raising the risk of flash floods through the weekend.`\
 https://nytimes.com/2025/04/19/weather/easter-travel-storms-tornado-us.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/04/19/magazine/nate-bargatze-interview.html
 **Nate Bargatze Doesn’t Mind If You Think He’s an Idiot**\
 `The stand-up comic discusses having a magician for a father, the challenge of mainstream comedy and his aspirations to build the next Disneyland.`\
 https://nytimes.com/video/podcasts/100000010083583/nate-bargatze-doesnt-mind-if-you-think-hes-an-idiot.html
-
-**Defying the Law and the Courts, Trump Seeks to Shift the Focus**\
-`The president is trying to rewrite the narrative of Kilmar Armando Abrego Garcia’s wrongful deportation as a dispute about illegal immigration rather than the rule of law.`\
-https://nytimes.com/2025/04/19/us/politics/deportation-trump-abrego-garcia-el-salvador.html
-
-**Trump’s American History Revolution**\
-`As the 250th anniversary of America’s independence approaches, the president is moving to put his stamp on how the nation’s story is told, in Washington and beyond.`\
-https://nytimes.com/2025/04/19/arts/trump-american-history-250th.html
-
-**Losing International Students Could Devastate Many Colleges**\
-`Students could bypass the United States for friendlier countries as the Trump administration attacks universities and revokes visas. Their loss could hurt schools and the economy.`\
-https://nytimes.com/2025/04/19/us/losing-international-students-could-devastate-many-colleges.html
-
-**Despite His Shaky French, Canada’s Prime Minister Is a Hit in Quebec**\
-`Voters are overlooking Mark Carney’s linguistic gaffes and lack of knowledge about the French-speaking province, viewing him as the most capable candidate to deal with President Trump.`\
-https://nytimes.com/2025/04/19/world/americas/canada-carney-quebec-french.html
-
-**The Banker vs. the Politician: The Men Vying to Become Canada’s Next Prime Minister**\
-`The April 28 election will come down to two candidates with starkly different personalities and experience: Mark Carney and Pierre Poilievre.`\
-https://nytimes.com/2025/04/19/world/canada/elections-mark-carney-pierre-poilievre.html
 
