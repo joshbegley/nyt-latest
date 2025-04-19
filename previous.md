@@ -1,4 +1,8 @@
-**Cavs-Heat series preview: Can Cleveland make Miami look like a 10-seed?**\
+**Barbara Lee Wins Oakland Mayor’s Race in Her Return Home**\
+`The former congresswoman, a progressive Democrat, campaigned on a promise to unite residents in the beleaguered California city. Her challenger, Loren Taylor, conceded on Saturday.`\
+https://nytimes.com/2025/04/19/us/barbara-lee-oakland-mayor.html
+
+**Cavs-Heat series preview: Can Cleveland make Miami look like a No. 10 seed?**\
 `On the surface, Cavs-Heat looks like a mismatch of a series. But when you dig deeper, you see a different story.`\
 https://nytimes.com/athletic/6292607/2025/04/19/cavaliers-heat-series-preview/
 
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/6292645/2025/04/19/dodgers-blake-treinen-arm-injury
 `The Pacers routed the Bucks in the first of four NBA playoff games Saturday, taking a 1-0 series lead.`\
 https://nytimes.com/athletic/6292216/2025/04/19/nba-playoff-pacers-bucks-clippers-nuggets-knicks-pistons-lakers-wolves/
 
-**Chris Drury on firing Peter Laviolette, his job security and a 'wide open' coaching search**\
+**Chris Drury on firing Peter Laviolette, his own job security and Rangers' 'wide open' coaching search**\
 `Drury met with the media Saturday saying, “We fell short across the board. Nobody here takes it lightly."`\
 https://nytimes.com/athletic/6292531/2025/04/19/chris-drury-peter-laviolette-firing/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/19/arts/music/max-romeo-dead.html
 **The Briefing: Aston Villa 4 Newcastle 1 - Watkins shows his value; visitors' lack of rotation is costly**\
 `Villa romped to a big win over Newcastle, striking a hefty blow on one of their rivals in the race for Champions League qualification`\
 https://nytimes.com/athletic/6284417/2025/04/19/aston-villa-4-newcastle-1-watkins/
-
-**An Urgent Supreme Court Order Protecting Migrants Was Built for Speed**\
-`In an overnight ruling blocking the Trump administration from deporting a group of Venezuelans, the justices ignored some of their protocols.`\
-https://nytimes.com/2025/04/19/us/politics/court-venezuela-deport-protocol.html
 

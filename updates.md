@@ -1,3 +1,15 @@
+**Barbara Lee Wins Oakland Mayor’s Race in Her Return Home**\
+`The former congresswoman, a progressive Democrat, campaigned on a promise to unite residents in the beleaguered California city. Her challenger, Loren Taylor, conceded on Saturday.`\
+https://nytimes.com/2025/04/19/us/barbara-lee-oakland-mayor.html
+
+**Cavs-Heat series preview: Can Cleveland make Miami look like a No. 10 seed?**\
+`On the surface, Cavs-Heat looks like a mismatch of a series. But when you dig deeper, you see a different story.`\
+https://nytimes.com/athletic/6292607/2025/04/19/cavaliers-heat-series-preview/
+
+**Chris Drury on firing Peter Laviolette, his own job security and Rangers' 'wide open' coaching search**\
+`Drury met with the media Saturday saying, “We fell short across the board. Nobody here takes it lightly."`\
+https://nytimes.com/athletic/6292531/2025/04/19/chris-drury-peter-laviolette-firing/
+
 **Cavs-Heat series preview: Can Cleveland make Miami look like a 10-seed?**\
 `On the surface, Cavs-Heat looks like a mismatch of a series. But when you dig deeper, you see a different story.`\
 https://nytimes.com/athletic/6292607/2025/04/19/cavaliers-heat-series-preview/
