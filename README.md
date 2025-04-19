@@ -1,3 +1,7 @@
+**Oklahoma wins seventh NCAA gymnastics final in 11 years; UCLA finishes second**\
+`Missouri finished third after a successful inquiry to nudge past Utah.`\
+https://nytimes.com/athletic/6292902/2025/04/19/oklahoma-ncaa-gymnastics-championship-ucla/
+
 **Red Wings' locker clean-out day: Kane's future, Larkin's injuries, fixing March woes**\
 `After a disappointing 2024-25 season for Detroit, players gave their final thoughts and reflections and began to look ahead.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/2025/04/19/us/politics/alien-enemies-act-timeline.html
 **Protesters Around the U.S. Rally Against Trump’s Policies**\
 `Thousands turned out to protest the Trump administration’s handling of immigration, civil liberties and federal job cuts.`\
 https://nytimes.com/video/us/politics/100000010119917/protesters-around-the-us-rally-against-trumps-policies.html
-
-**Barbara Lee Wins Oakland Mayor’s Race in Her Return Home**\
-`The former congresswoman, a progressive Democrat, campaigned on a promise to unite residents in the beleaguered California city. Her challenger, Loren Taylor, conceded on Saturday.`\
-https://nytimes.com/2025/04/19/us/barbara-lee-oakland-mayor.html
 
