@@ -1,3 +1,11 @@
+**Thompson: How Moses Moody became the Warriors' go-to player for a pivotal defensive role**\
+`Moses Moody putting it all together has been a boon to the Warriors' defense — and it's key to their hopes in these playoffs.`\
+https://nytimes.com/athletic/6292195/2025/04/19/moses-moody-golden-state-warriors-defense-playoffs/
+
+**3 Dead After Small Plane Crashes Into a Nebraska River**\
+`The plane was traveling along the Platte River when it crashed into the water south of Fremont, Neb., on Friday night, officials said.`\
+https://nytimes.com/2025/04/19/us/plane-crash-nebraska-fremont.html
+
 **Rangers fire coach Peter Laviolette a year after winning Presidents' Trophy**\
 `New York entered the season with Stanley Cup aspirations following a run to the 2024 Eastern Conference final and Presidents’ Trophy win.`\
 https://nytimes.com/athletic/6289026/2025/04/19/rangers-fire-coach-peter-laviolette/
