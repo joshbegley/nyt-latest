@@ -1,3 +1,11 @@
+**Quote of the Day: Long-Scarred Knicks Fans Lower Expectations, if Not Voices**\
+`Quotation of the Day for Saturday, April 19, 2025.`\
+https://nytimes.com/2025/04/18/pageoneplus/quote-of-the-day-long-scarred-knicks-fans-lower-expectations-if-not-voices.html
+
+**Nick Castellanos decided to take a pitch or two and has discovered a whole new world**\
+`Castellanos has looked more in control of his at-bats this season. "I feel like I'm relaxed a little bit more," he said.`\
+https://nytimes.com/athletic/6291600/2025/04/18/phillies-marlins-nick-castellanos/
+
 **Friday’s NBA Play-In Tournament takeaways: Heat escape Hawks in OT thriller**\
 `Miami becomes the first No. 10 seed in Play-In Tournament history to clinch a playoff berth.`\
 https://nytimes.com/athletic/6291319/2025/04/18/nba-play-in-heat-hawks-grizzlies-mavericks/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6291236/2025/04/18/sabres-alex-tuch-contract-rasmus
 **David Savard will end his NHL career wearing a Canadiens sweater in the playoffs**\
 `After 870 games with the Blue Jackets, Lightning and Canadiens, Savard will put a perfect bow on his NHL career in the playoffs.`\
 https://nytimes.com/athletic/6291219/2025/04/18/david-savard-end-nhl-career-canadiens-playoffs/
-
-**Senator Says Abrego Garcia Was Denied Phone Call During Deportation**\
-`Senator Chris Van Hollen, Democrat of Maryland, shared details of his visit with Kilmar Armando Abrego Garcia, the Maryland man who was wrongly deported to El Salvador last month.`\
-https://nytimes.com/video/us/politics/100000010119405/van-hollen-maryland-abrego-garcia.html
-
-**What we heard about Tocchet, Pettersson and unsettled Canucks at locker cleanout day**\
-`There was a sense of questions unanswered surrounding the Canucks ahead of a critical offseason.`\
-https://nytimes.com/athletic/6291017/2025/04/18/vancouver-canucks-rick-tocchet-elias-pettersson/
 
