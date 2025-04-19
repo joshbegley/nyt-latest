@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6291219/2025/04/18/david-savard-end-nhl-career-cana
 https://nytimes.com/video/us/politics/100000010119405/van-hollen-maryland-abrego-garcia.html
 
 **What we heard about Tocchet, Pettersson and unsettled Canucks at locker cleanout day**\
-`There was a sense on Friday of questions unanswered surrounding the Canucks ahead of a critical offseason.`\
+`There was a sense of questions unanswered surrounding the Canucks ahead of a critical offseason.`\
 https://nytimes.com/athletic/6291017/2025/04/18/vancouver-canucks-rick-tocchet-elias-pettersson/
 
 **Trump moves to make tens of thousands of federal workers easier to fire.**\
