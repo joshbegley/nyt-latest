@@ -1,3 +1,8 @@
+**The Maple Leafs’ ultimate last stand: Will these playoffs be it?**\
+`It feels like it could be the final chance for the core that’s remained together through thick and thin to chase the Stanley Cup together.
+`\
+https://nytimes.com/athletic/6289951/2025/04/19/maple-leafs-nhl-playoffs-last-stand/
+
 **Preview: Can the Rockets finally get past Steph Curry, Jimmy Butler and the Warriors?**\
 `Kelly Iko and Anthony Slater discuss the series between the Houston Rockets and Golden State Warriors. `\
 https://nytimes.com/athletic/6290683/2025/04/19/rockets-steph-curry-jimmy-butler-warriors-playoffs/
