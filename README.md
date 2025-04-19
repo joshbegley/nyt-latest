@@ -1,3 +1,15 @@
+**Israeli Attacks Kill Dozens in Gaza, Health Ministry Says**\
+`Israel was keeping up its intense bombing campaign in the enclave, which has exacted a heavy price on civilians struggling to find safe places to shelter.`\
+https://nytimes.com/2025/04/19/world/middleeast/israel-gaza-strikes-death-toll.html
+
+**Ja Morant saved Grizzlies from Play-In disaster, but Thunder pose a historic challenge**\
+`Memphis deserves credit for digging itself out, but OKC is the prize it gets for falling into this hole in the first place.`\
+https://nytimes.com/athletic/6291796/2025/04/19/ja-morant-grizzlies-mavericks-thunder-nba-playoffs/
+
+**2 Memoirs by Rock ’n’ Roll Muses Who Were So Much More**\
+`Marianne Faithfull was a star in her own right; Peggy Caserta was a hippie tastemaker. Their memoirs are riveting.`\
+https://nytimes.com/2025/04/19/books/read-like-wind-recommendations.html
+
 **Former England coach Holland sacked by Marinos after just four months in charge**\
 `Holland, 54, won just one of his 11 league games in charge of the side, leaving them Japanese side in 19th position in the 20-team J-League.`\
 https://nytimes.com/athletic/6291836/2025/04/19/england-holland-sacked-yokohama/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6267214/2025/04/19/nhl-fan-expenses-cost-2025-seaso
 **Brace Yourself. Trump’s Trade War With China Will Get Even Uglier.**\
 `What happens if we run out of rare-earth metals or bond prices collapse?`\
 https://nytimes.com/2025/04/19/opinion/trump-china-trade-war.html
-
-**Trump Just Scrapped My Anti-Kremlin Streaming Platform**\
-`We called it Votvot — Russian for “any minute now.”`\
-https://nytimes.com/2025/04/19/opinion/trump-defund-votvot-kremlin-russia.html
-
-**The Naval Academy Thinks Midshipmen Can’t Handle the Truth**\
-`How a lecture to the U.S. Naval Academy on censorship was censored.`\
-https://nytimes.com/2025/04/19/opinion/naval-academy-speech-censorship.html
-
-**The Emergency Is Here (Part 2)**\
-`Trump is disappearing people to a Salvadoran prison for terrorists. Asha Rangappa, a former F.B.I. agent and an assistant dean at the Yale Jackson School of Global Affairs, discusses the “constitutional black hole” these deportations could open up.`\
-https://nytimes.com/video/opinion/100000010106564/the-emergency-is-here-part-2.html
 
