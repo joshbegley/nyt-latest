@@ -1,3 +1,11 @@
+**Arsenal edged out by Lyon in first leg of Women's UCL semi**\
+`Melchie Dumornay's 82nd-minute winner gives the French side the advantage of next week's second leg in Lyon.`\
+https://nytimes.com/athletic/6291921/2025/04/19/arsenal-lyon-champions-league-semi-final/
+
+**Kirill Kaprizov on losing the Hart, his health and returning to do 'some damage’ in the playoffs**\
+`For the first time since November, the Wild have their full lineup available, led by the bubbly Kaprizov.`\
+https://nytimes.com/athletic/6290981/2025/04/19/kaprizov-wild-injury-playoffs/
+
 **Putin Declares One-Day Easter Truce in Ukraine War**\
 `President Vladimir V. Putin of Russia said that from Saturday evening through Sunday, he had ordered his forces to “stop all military activity” against Ukraine.`\
 https://nytimes.com/2025/04/19/world/europe/russia-ukraine-easter-truce.html
