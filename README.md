@@ -1,3 +1,7 @@
+**Tampa Bay's Oliver Bjorkstrand out for series, Matthew Tkachuk nears return for Panthers**\
+`While Tkachuk might be ready for Game 1 against Tampa Bay, the Lightning will be without a key forward for the entire series.`\
+https://nytimes.com/athletic/6292385/2025/04/19/oliver-bjorkstrand-injury-nhl-playoffs-matthew-tkachuk/
+
 **Thompson: How Moses Moody became the Warriors' go-to player for a pivotal defensive role**\
 `Moses Moody putting it all together has been a boon to the Warriors' defense — and it's key to their hopes in these playoffs.`\
 https://nytimes.com/athletic/6292195/2025/04/19/moses-moody-golden-state-warriors-defense-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6292116/2025/04/19/wojciech-szczesny-barcelona-cont
 **In the Cradle of the American Revolution, Telling History Her Way**\
 `A teenager in Lexington, Mass., has for years been teaching people about the battle that started the war 250 years ago this weekend. Her entertaining website has drawn praise and raised eyebrows.`\
 https://nytimes.com/2025/04/19/us/battle-of-lexington-250th-anniversary.html
-
-**Blue Jackets head into the offseason with a mixture of frustration and optimism**\
-`GM Don Waddell says he didn't come to Columbus to oversee a roster rebuild. He wants to win immediately.`\
-https://nytimes.com/athletic/6291863/2025/04/19/blue-jackets-offseason-frustration-optimism/
 
