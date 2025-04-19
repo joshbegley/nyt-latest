@@ -1,3 +1,7 @@
+**Trump Officials Blame Mistake for Setting Off Confrontation With Harvard**\
+`An official on the administration’s antisemitism task force told the university that a letter of demands had been sent without authorization.`\
+https://nytimes.com/2025/04/18/business/trump-harvard-letter-mistake.html
+
 **Appeals Court Pauses for Now Contempt Proposal by Trial Judge**\
 `Judge James E. Boasberg had threatened to open contempt proceedings to determine whether the Trump administration had violated his order not to deport Venezuelan migrants to El Salvador.`\
 https://nytimes.com/2025/04/18/us/politics/court-contempt-trump-deportations.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/18/us/trump-passport-changes-transgender.html
 **Judge Temporarily Halts Mass Firings at Consumer Bureau**\
 `The court barred the Trump administration from laying off nearly 1,500 workers at the agency until at least April 28.`\
 https://nytimes.com/2025/04/18/us/politics/cfpb-firings-trump-administration.html
-
-**In Trump Attack on Harvard, Punishment Before Proof**\
-`The legal underpinnings of the administration’s broadsides against universities and schools stretch precedents and cut corners.`\
-https://nytimes.com/2025/04/18/us/trump-harvard-legal-process.html
 
