@@ -1,3 +1,7 @@
+**The Briefing: Everton 0 Manchester City 2 - O'Reilly the hero again; big step towards top-five finish**\
+`Sam Lee analyses Manchester City's last-ever trip to Goodison Park`\
+https://nytimes.com/athletic/6284415/2025/04/19/everton-manchester-city-analysis-premier-league/
+
 **The Briefing: Everton 0 Manchester City 2 - O'Reilly the hero again as City take big step towards top-five finish**\
 `Sam Lee analyses Manchester City's last-ever trip to Goodison Park`\
 https://nytimes.com/athletic/6284415/2025/04/19/everton-manchester-city-analysis-premier-league/
