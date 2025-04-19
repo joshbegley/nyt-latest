@@ -1,3 +1,7 @@
+**Hawks' fourth-quarter comeback falls short as Heat dominate overtime, advance to playoffs**\
+`The Miami Heat are heading to the playoffs after overtime heroics from Tyler Herro and Davion Mitchell ended the Hawks' season.`\
+https://nytimes.com/athletic/6291502/2025/04/19/hawks-fourth-quarter-comeback-falls-short-heat-advance-to-playoffs/
+
 **'I feel like me again': Astros' Cam Smith homers twice, steals the show**\
 `In franchise history, only five Astros younger than the 22-year-old Smith hit multiple home runs in a game.`\
 https://nytimes.com/athletic/6291695/2025/04/19/cam-smith-two-homers-astros-padres/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6291614/2025/04/19/atlanta-braves-comeback-alex-ver
 **How Ederson has more assists than Haaland, Foden or Grealish this season**\
 `Manchester City's goalkeeper has four assists this season, pushing his top-flight total for them by up to seven - a Premier League record`\
 https://nytimes.com/athletic/6283872/2025/04/19/ederson-assists-manchester-city/
-
-**The Premier League's Underrated XI: Our writers pick their teams for 2024-25**\
-`There was one rule: the player cannot have been Premier League Player of the Month this season…`\
-https://nytimes.com/athletic/6288193/2025/04/19/premier-league-most-underrated-players/
 
