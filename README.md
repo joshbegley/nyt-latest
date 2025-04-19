@@ -1,3 +1,19 @@
+**Many Have Tried to Fix Penn Station. Can Trump Get the Job Done?**\
+`Transportation experts say a thorough renovation is likely to take several years to complete — unless emergency measures are employed.`\
+https://nytimes.com/2025/04/19/nyregion/many-have-tried-to-fix-penn-station-can-trump-get-the-job-done.html
+
+**New York City’s Hottest Hangout Is a 500-Person Board Game Night**\
+`At Richard Ye’s enormous monthly gatherings, where people play Exploding Kittens, Hues and Clues, and mahjong, New Yorkers find real-life connections and a little free fun.`\
+https://nytimes.com/2025/04/19/nyregion/new-york-city-giant-game-night.html
+
+**How a Fashion Designer and Sewing Teacher Spends Her Sundays**\
+`Hekima Hapa runs around with her four children, teaches a sewing class in Brooklyn and ends her day by burning a little sage.`\
+https://nytimes.com/2025/04/19/nyregion/hekima-hapa-black-girls-sew.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/04/19/crosswords/spelling-bee-forum.html
+
 **A celebration of Joe Rodon, the warrior king of Leeds United's defence**\
 `While others have come and gone with fitness or form, the former Tottenham Hotspur man is the cornerstone of this team`\
 https://nytimes.com/athletic/6291218/2025/04/19/joe-rodon-leeds-united-oxford-championship/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6291643/2025/04/19/dodgers-yoshinobu-yamamoto-one-o
 **The New York Times in Print for Saturday, April 19, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/04/19/todays-new-york-times
-
-**Lawsuit Aims to Broadly Halt Deportations of Foreign Students**\
-`A suit challenges the Trump administration’s campaign in four states and Puerto Rico, and seeks the reinstatement of terminated student visas.`\
-https://nytimes.com/2025/04/19/us/politics/lawsuit-trump-student-visa-deportation.html
-
-**Yankees' scouting department strikes again with pitcher who 'doesn't even make sense'**\
-`The secret to Fernando Cruz’s success is his split-finger fastball, a pitch that is among the most unhittable in baseball.`\
-https://nytimes.com/athletic/6291568/2025/04/19/yankees-pitcher-fernando-cruz-rays/
-
-**Wrexham, Wycombe and the day League One's promotion race flipped on its head - again**\
-`The race for the Championship has taken another twist as the run-in looms - and Charlton Athletic are threatening to gatecrash the party`\
-https://nytimes.com/athletic/6286502/2025/04/19/wrexham-wycombe-promotion-charlton-bristol-rovers/
-
-**Braves notch a comeback win, hope Alex Verdugo provides 'edge' they've lacked**\
-`The fiery Verdugo is just going to be himself, which is something teammates have gravitated toward in the past.`\
-https://nytimes.com/athletic/6291614/2025/04/19/atlanta-braves-comeback-alex-verdugo/
 
