@@ -1,3 +1,7 @@
+**Francisco Lindor hits his first walk-off homer as a Met, his 250th homer**\
+`Lindor became the fifth shortstop in MLB history to reach 250 home runs.`\
+https://nytimes.com/athletic/6291641/2025/04/19/francisco-lindor-walk-off-home-run-250/
+
 **Braves notch a comeback win, hope Alex Verdugo provides 'edge' they've lacked**\
 `The fiery Verdugo is just going to be himself, which is something teammates have gravitated toward in the past.`\
 https://nytimes.com/athletic/6291614/2025/04/19/atlanta-braves-comeback-alex-verdugo/
