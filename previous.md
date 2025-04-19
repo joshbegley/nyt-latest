@@ -1,3 +1,7 @@
+**Rangers fire coach Peter Laviolette a year after winning Presidents' Trophy**\
+`New York entered the season with Stanley Cup aspirations following a run to the 2024 Eastern Conference final and Presidents’ Trophy win.`\
+https://nytimes.com/athletic/6289026/2025/04/19/rangers-fire-coach-peter-laviolette/
+
 **Protesters Nationwide Rally Again to Condemn Trump Policies**\
 `More than 700 events were planned for Saturday, as people turned out to speak against the administration’s handling of immigration, civil liberties and federal job cuts.`\
 https://nytimes.com/2025/04/19/us/politics/trump-protests-nyc-florida-la.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6292123/2025/04/19/ducks-fire-coach-greg-cronin/
 **This Is How Far Vance Will Go to Sell a Lie**\
 `Unfortunately for his argument, the Constitution is the Constitution.`\
 https://nytimes.com/2025/04/19/opinion/vance-abrego-garcia-immigration.html
-
-**An Image of Coretta Scott King, Poster in Hand**\
-`In 1963, Mrs. King helped lead a march commemorating the second anniversary of Women Strike for Peace.`\
-https://nytimes.com/2025/04/19/insider/coretta-scott-king-poster.html
 

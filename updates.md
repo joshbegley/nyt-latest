@@ -1,3 +1,7 @@
+**Rangers fire coach Peter Laviolette a year after winning Presidents' Trophy**\
+`New York entered the season with Stanley Cup aspirations following a run to the 2024 Eastern Conference final and Presidents’ Trophy win.`\
+https://nytimes.com/athletic/6289026/2025/04/19/rangers-fire-coach-peter-laviolette/
+
 **Protesters Nationwide Rally Again to Condemn Trump Policies**\
 `More than 700 events were planned for Saturday, as people turned out to speak against the administration’s handling of immigration, civil liberties and federal job cuts.`\
 https://nytimes.com/2025/04/19/us/politics/trump-protests-nyc-florida-la.html
