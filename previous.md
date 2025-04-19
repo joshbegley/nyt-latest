@@ -1,3 +1,7 @@
+**Mike Wood, Whose LeapFrog Toys Taught a Generation, Dies at 72**\
+`His LeapPad tablets, which helped children read, found their way into tens of millions of homes beginning in 1999.`\
+https://nytimes.com/2025/04/19/business/michael-c-wood-dead.html
+
 **Supreme Court orders in the middle of the night are rare these days.**\
 `Such rulings, more common a few years ago, seem to now be reserved for authentic emergencies.`\
 https://nytimes.com/live/2025/04/19/us/trump-news/supreme-court-orders-in-the-middle-of-the-night-are-rare-these-days
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/19/insider/coretta-scott-king-poster.html
 **Just Look at This Carrot Cake**\
 `Dorie Greenspan’s recipe, with five stars and nearly 10,000 reviews, is a New York Times Cooking classic.`\
 https://nytimes.com/2025/04/19/dining/carrot-cake-easter.html
-
-**Arsenal edged out by Lyon in first leg of Women's UCL semi**\
-`Melchie Dumornay's 82nd-minute winner gives the French side the advantage of next week's second leg in Lyon.`\
-https://nytimes.com/athletic/6291921/2025/04/19/arsenal-lyon-champions-league-semi-final/
 

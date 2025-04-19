@@ -1,3 +1,7 @@
+**Protesters Nationwide Rally Again to Condemn Trump Policies**\
+`More than 700 events were planned for Saturday, as people turned out to speak against the administration’s handling of immigration, civil liberties and federal job cuts.`\
+https://nytimes.com/2025/04/19/us/politics/trump-protests-nyc-florida-la.html
+
 **Mike Wood, Whose LeapFrog Toys Taught a Generation, Dies at 72**\
 `His LeapPad tablets, which helped children read, found their way into tens of millions of homes beginning in 1999.`\
 https://nytimes.com/2025/04/19/business/michael-c-wood-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/19/opinion/vance-abrego-garcia-immigration.html
 **An Image of Coretta Scott King, Poster in Hand**\
 `In 1963, Mrs. King helped lead a march commemorating the second anniversary of Women Strike for Peace.`\
 https://nytimes.com/2025/04/19/insider/coretta-scott-king-poster.html
-
-**Just Look at This Carrot Cake**\
-`Dorie Greenspan’s recipe, with five stars and nearly 10,000 reviews, is a New York Times Cooking classic.`\
-https://nytimes.com/2025/04/19/dining/carrot-cake-easter.html
 

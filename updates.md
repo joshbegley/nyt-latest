@@ -1,3 +1,7 @@
+**Mike Wood, Whose LeapFrog Toys Taught a Generation, Dies at 72**\
+`His LeapPad tablets, which helped children read, found their way into tens of millions of homes beginning in 1999.`\
+https://nytimes.com/2025/04/19/business/michael-c-wood-dead.html
+
 **The Briefing: Everton 0 Manchester City 2 - O'Reilly the hero again; big step towards a top-five finish**\
 `Sam Lee analyses Manchester City's win on their last-ever trip to Goodison Park`\
 https://nytimes.com/athletic/6284415/2025/04/19/everton-manchester-city-analysis-premier-league/
