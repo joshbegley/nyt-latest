@@ -1,3 +1,7 @@
+**Double Vision**\
+`Victor Schmitt and Tracy Bennett hit us with a knuckle sandwich of a Sunday puzzle.`\
+https://nytimes.com/2025/04/19/crosswords/daily-puzzle-2025-04-20.html
+
 **'Not very happy with my result': Michkov dissatisfied with rookie season, even if no one else is**\
 `The 20-year-old led the league in goals among rookies this season, but still thinks he "could have scored a lot more."`\
 https://nytimes.com/athletic/6292677/2025/04/19/flyers-matvei-michkov-rookie-season/
