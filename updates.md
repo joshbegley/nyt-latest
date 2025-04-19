@@ -1,3 +1,12 @@
+**Oklahoma wins seventh NCAA gymnastics final in 11 years; UCLA finishes second**\
+`Missouri finished third after a successful inquiry to nudge past Utah.`\
+https://nytimes.com/athletic/6292902/2025/04/19/oklahoma-ncaa-gymnastics-championship-ucla/
+
+**Red Wings' locker clean-out day: Kane's future, Larkin's injuries, fixing March woes**\
+`After a disappointing 2024-25 season for Detroit, players gave their final thoughts and reflections and began to look ahead.
+`\
+https://nytimes.com/athletic/6292481/2025/04/19/red-wings-patrick-kane-dylan-larkin/
+
 **Tigers' Casey Mize, Spencer Torkelson finally fulfilling draft prophecies**\
 `Casey Mize and Spencer Torkelson, both No. 1 overall picks with winding routes to success, are powering the Tigers through April.`\
 https://nytimes.com/athletic/6292778/2025/04/19/tigers-casey-mize-and-spencer-torkelson-are-finally-fulfilling-draft-prophecies/
