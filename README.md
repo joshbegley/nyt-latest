@@ -1,3 +1,11 @@
+**The Briefing: Aston Villa 4 Newcastle 1 - Watkins shows his value, lack of rotation costs Newcastle**\
+`Aston Villa romped to a big win over Newcastle, striking a hefty blow in the race for Champions League qualification`\
+https://nytimes.com/athletic/6284417/2025/04/19/aston-villa-4-newcastle-1-watkins/
+
+**An Urgent Supreme Court Order Protecting Migrants Was Built for Speed**\
+`In an overnight ruling blocking the Trump administration from deporting a group of Venezuelans, the justices ignored some of their protocols.`\
+https://nytimes.com/2025/04/19/us/politics/court-venezuela-deport-protocol.html
+
 **Max Verstappen on Saudi Arabian GP pole; Lando Norris crashes in Q3**\
 `Max Verstappen barely beat Oscar Piastri for pole in Jeddah, as the McLaren vs. Verstappen title fight heats up.`\
 https://nytimes.com/athletic/6292249/2025/04/19/saudi-arabian-grand-prix-qualifying-oscar-verstappen-red-bull-pole/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6292310/2025/04/19/trinity-rodman-spirit-steps-away
 **How could UCLA afford to pay Nico Iamaleava amid 'revenue challenge?'**\
 `UCLA’s athletic department has a robust tradition in sports outside of football, which makes the pay scale more reliant on outside funding.`\
 https://nytimes.com/athletic/6292313/2025/04/19/ucla-nico-iamaleava-transfer-money/
-
-**Tampa Bay's Oliver Bjorkstrand out for series; Matthew Tkachuk nears return for Panthers**\
-`While Tkachuk might be ready for Game 1 against Tampa Bay, the Lightning will be without a key forward for the entire series.`\
-https://nytimes.com/athletic/6292385/2025/04/19/oliver-bjorkstrand-injury-nhl-playoffs-matthew-tkachuk/
-
-**Thompson: How Moses Moody became the Warriors' go-to player for a pivotal defensive role**\
-`Moses Moody putting it all together has been a boon to the Warriors' defense — and it's key to their hopes in these playoffs.`\
-https://nytimes.com/athletic/6292195/2025/04/19/moses-moody-golden-state-warriors-defense-playoffs/
 
