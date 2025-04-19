@@ -1,3 +1,7 @@
+**Angel City's Casey Phair, youngest World Cup competitor, makes NWSL debut**\
+`Phair, now 17, previously made history as the youngest player to ever debut in a World Cup at 16 years, 26 days old.`\
+https://nytimes.com/athletic/6291709/2025/04/19/casey-phair-angel-city-nwsl-debut/
+
 **Yoshinobu Yamamoto is pitching like 'one of the best pitchers in our game' right now**\
 `"He's been a man on a mission," Tommy Edman said of Yamamoto, who lowered his ERA to 0.93 on Friday. "He's been unstoppable."`\
 https://nytimes.com/athletic/6291643/2025/04/19/dodgers-yoshinobu-yamamoto-one-of-best-pitchers-in-game/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6288193/2025/04/19/premier-league-most-underrated-p
 **Francisco Lindor hits his first walk-off homer as a Met, his 250th homer**\
 `Lindor became the fifth shortstop in MLB history to reach 250 home runs.`\
 https://nytimes.com/athletic/6291641/2025/04/19/francisco-lindor-walk-off-home-run-250/
-
-**Life After Arsenal: Alfie Matthews - coming up with Saka, rondos with Ozil and EFL hopes**\
-`After being released by Arsenal, he dropped down the pyramid but is trying to make his way back, as well as playing in the Baller League`\
-https://nytimes.com/athletic/6240150/2025/04/19/life-after-arsenal-alfie-matthews-baller-league/
 
