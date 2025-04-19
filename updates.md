@@ -1,3 +1,15 @@
+**USWNT captain Heaps says salary cap issue to blame for NWSL departures**\
+`Heaps called the cap an “ongoing issue,” when asked why Americans are coming to Europe.`\
+https://nytimes.com/athletic/6291805/2025/04/19/uswnt-nwsl-salary-cap-2/
+
+**Nate Bargatze Doesn’t Mind if You Think He’s an Idiot**\
+`The stand-up comic discusses having a magician for a father, the challenge of mainstream comedy and his aspirations to build the next Disneyland.`\
+https://nytimes.com/2025/04/19/magazine/nate-bargatze-interview.html
+
+**Nate Bargatze Doesn’t Mind If You Think He’s an Idiot**\
+`The stand-up comic discusses having a magician for a father, the challenge of mainstream comedy and his aspirations to build the next Disneyland.`\
+https://nytimes.com/video/podcasts/100000010083583/nate-bargatze-doesnt-mind-if-you-think-hes-an-idiot.html
+
 **Defying the Law and the Courts, Trump Seeks to Shift the Focus**\
 `The president is trying to rewrite the narrative of Kilmar Armando Abrego Garcia’s wrongful deportation as a dispute about illegal immigration rather than the rule of law.`\
 https://nytimes.com/2025/04/19/us/politics/deportation-trump-abrego-garcia-el-salvador.html
