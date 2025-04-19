@@ -1,3 +1,7 @@
+**The Cubs may have the best offense in baseball. How are they doing it?**\
+`Three key reasons the Cubs' offense is humming through 23 games.`\
+https://nytimes.com/athletic/6292876/2025/04/19/chicago-cubs-best-offense-in-baseball-how/
+
 **Stanford-Cal breaks college softball attendance record with 13,207 fans**\
 `The previous record of 12,566 was set at last year’s College World Series in Oklahoma City.`\
 https://nytimes.com/athletic/6291222/2025/04/19/stanford-softball-attendance-record-cal/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6292182/2025/04/19/oilers-free-agents-quinn-hutson/
 **‘I let myself down’: Lando Norris’ F1 qualifying crash tests his championship resolve**\
 `Norris crashed out of Saudi Arabia qualifying just when he was looking the favorite for pole. But he can still salvage a good result`\
 https://nytimes.com/athletic/6292695/2025/04/19/lando-norris-f1-saudi-arabia-qualifying-crash/
-
-**A Timeline of the Trump Administration’s Use of the Alien Enemies Act**\
-`Legal challenges over the powerful wartime law have gone all the way to the Supreme Court.`\
-https://nytimes.com/2025/04/19/us/politics/alien-enemies-act-timeline.html
 

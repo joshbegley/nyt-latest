@@ -1,3 +1,7 @@
+**Padres prospect Tirso Ornelas gets first call-up as Jason Heyward lands on IL**\
+`Ornelas was hitting .281/.418/.359 with one home run in 17 games with El Paso.`\
+https://nytimes.com/athletic/6292946/2025/04/19/padres-prospect-tirso-ornelas-call-up-jason-heyward-il/
+
 **The Cubs may have the best offense in baseball. How are they doing it?**\
 `Three key reasons the Cubs' offense is humming through 23 games.`\
 https://nytimes.com/athletic/6292876/2025/04/19/chicago-cubs-best-offense-in-baseball-how/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6292677/2025/04/19/flyers-matvei-michkov-rookie-sea
 **Lowetide: What to expect from Oilers' recent free-agent additions**\
 `The Oilers are signing players who have delivered in Europe and in the NCAA to NHL deals.`\
 https://nytimes.com/athletic/6292182/2025/04/19/oilers-free-agents-quinn-hutson/
-
-**‘I let myself down’: Lando Norris’ F1 qualifying crash tests his championship resolve**\
-`Norris crashed out of Saudi Arabia qualifying just when he was looking the favorite for pole. But he can still salvage a good result`\
-https://nytimes.com/athletic/6292695/2025/04/19/lando-norris-f1-saudi-arabia-qualifying-crash/
 

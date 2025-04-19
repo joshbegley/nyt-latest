@@ -1,3 +1,12 @@
+**The Cubs may have the best offense in baseball. How are they doing it?**\
+`Three key reasons the Cubs' offense is humming through 23 games.`\
+https://nytimes.com/athletic/6292876/2025/04/19/chicago-cubs-best-offense-in-baseball-how/
+
+**Red Wings' locker clean-out day: Kane's future, Larkin's injuries, fixing March woes**\
+`After a disappointing 2024-25 season for Detroit, players gave their final thoughts and reflections and began to look ahead.
+`\
+https://nytimes.com/athletic/6292481/2025/04/19/red-wings-patrick-kane-dylan-larkin/
+
 **Red Wings' locker clean-out day: Kane's future, Larkin's injuries, fixing March woes**\
 `After a disappointing 2024-25 season for Detroit, players gave their final thoughts and reflections and began to look ahead.
 `\
