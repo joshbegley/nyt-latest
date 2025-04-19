@@ -1,3 +1,7 @@
+**Once a Blues lightning rod, Jordan Kyrou (and his +23) won over fans going into playoffs**\
+`The Blues' leading scorer the last three years has made major improvements defensively. `\
+https://nytimes.com/athletic/6264908/2025/04/19/blues-jordan-kyrou-won-over-fans-playoffs/
+
 **Say, Old Sport**\
 `“The Great Gatsby” is important, of course, but it’s also all kinds of fun.`\
 https://nytimes.com/2025/04/19/briefing/say-old-sport.html
