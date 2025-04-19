@@ -1,3 +1,7 @@
+**Stanford-Cal breaks college softball attendance record with 13,207 fans**\
+`The previous record of 12,566 was set at last year’s College World Series in Oklahoma City.`\
+https://nytimes.com/athletic/6291222/2025/04/19/stanford-softball-attendance-record-cal/
+
 **Oklahoma wins seventh NCAA gymnastics final in 11 years; UCLA finishes second**\
 `Missouri finished third after a successful inquiry to nudge past Utah.`\
 https://nytimes.com/athletic/6292902/2025/04/19/oklahoma-ncaa-gymnastics-championship-ucla/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6292695/2025/04/19/lando-norris-f1-saudi-arabia-qua
 **A Timeline of the Trump Administration’s Use of the Alien Enemies Act**\
 `Legal challenges over the powerful wartime law have gone all the way to the Supreme Court.`\
 https://nytimes.com/2025/04/19/us/politics/alien-enemies-act-timeline.html
-
-**Protesters Around the U.S. Rally Against Trump’s Policies**\
-`Thousands turned out to protest the Trump administration’s handling of immigration, civil liberties and federal job cuts.`\
-https://nytimes.com/video/us/politics/100000010119917/protesters-around-the-us-rally-against-trumps-policies.html
 
