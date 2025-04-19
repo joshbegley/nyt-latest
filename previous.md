@@ -1,3 +1,7 @@
+**‘I let myself down’: Lando Norris’ F1 qualifying crash tests his championship resolve**\
+`Norris crashed out of Saudi Arabia qualifying just when he was looking the favorite for pole. But he can still salvage a good result`\
+https://nytimes.com/athletic/6292695/2025/04/19/lando-norris-f1-saudi-arabia-qualifying-crash/
+
 **A Timeline of the Trump Administration’s Use of the Alien Enemies Act**\
 `Legal challenges over the powerful wartime law have gone all the way to the Supreme Court.`\
 https://nytimes.com/2025/04/19/us/politics/alien-enemies-act-timeline.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6292592/2025/04/19/usa-canada-womens-worlds-2025/
 **Villa's Watkins was 'fuming' over PSG exclusion: 'I let Unai Emery know'**\
 `Watkins has scored 23 goals across all competitions this season but Marcus Rashford was selected ahead of him for both quarter-final legs.`\
 https://nytimes.com/athletic/6292554/2025/04/19/ollie-watkins-aston-villa-dropped/
-
-**Ancelotti expected to leave Real Madrid with preference to join Brazil**\
-`Ancelotti is understood to be interested in the Brazil position and is open to leaving the Spanish capital.`\
-https://nytimes.com/athletic/6292242/2025/04/19/carlo-ancelotti-real-madrid-manager-brazil/
 
