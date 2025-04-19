@@ -1,3 +1,7 @@
+**The Briefing: Aston Villa 4 Newcastle 1 - Watkins shows his value; visitors' lack of rotation is costly**\
+`Villa romped to a big win over Newcastle, striking a hefty blow on one of their rivals in the race for Champions League qualification`\
+https://nytimes.com/athletic/6284417/2025/04/19/aston-villa-4-newcastle-1-watkins/
+
 **Max Verstappen is on Saudi Arabian GP pole; Lando Norris crashes in Q3**\
 `Verstappen barely beat Oscar Piastri for pole in Jeddah, as the McLaren vs. Verstappen title fight heats up.`\
 https://nytimes.com/athletic/6292249/2025/04/19/saudi-arabian-grand-prix-qualifying-oscar-verstappen-red-bull-pole/
