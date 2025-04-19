@@ -1,3 +1,15 @@
+**USWNT captain Heaps says salary cap issue to blame for NWSL departures**\
+`Heaps called the cap an “ongoing issue,” when asked why Americans are coming to Europe.`\
+https://nytimes.com/athletic/6291805/2025/04/19/uswnt-nwsl-salary-cap-2/
+
+**Nate Bargatze Doesn’t Mind if You Think He’s an Idiot**\
+`The stand-up comic discusses having a magician for a father, the challenge of mainstream comedy and his aspirations to build the next Disneyland.`\
+https://nytimes.com/2025/04/19/magazine/nate-bargatze-interview.html
+
+**Nate Bargatze Doesn’t Mind If You Think He’s an Idiot**\
+`The stand-up comic discusses having a magician for a father, the challenge of mainstream comedy and his aspirations to build the next Disneyland.`\
+https://nytimes.com/video/podcasts/100000010083583/nate-bargatze-doesnt-mind-if-you-think-hes-an-idiot.html
+
 **Defying the Law and the Courts, Trump Seeks to Shift the Focus**\
 `The president is trying to rewrite the narrative of Kilmar Armando Abrego Garcia’s wrongful deportation as a dispute about illegal immigration rather than the rule of law.`\
 https://nytimes.com/2025/04/19/us/politics/deportation-trump-abrego-garcia-el-salvador.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/19/us/politics/trump-musk-billionaires-economy.html
 **So, Why’d You Leave That Job?**\
 `Sometimes you just have to be OK with being vague. Plus, what to do when a co-worker has a challenging personality.`\
 https://nytimes.com/2025/04/19/business/nda-explain-work-advice.html
-
-**Carmakers Highlight American Roots in Bid to Influence Trump**\
-`Wary of directly criticizing the president’s trade policies, automakers are emphasizing how much they have already invested in U.S. manufacturing.`\
-https://nytimes.com/2025/04/19/business/cars-trump-tariffs-us-manufacturing.html
-
-**David Cronenberg Lost His Wife and the Will to Make Movies. Then Came ‘The Shrouds’**\
-`The acclaimed filmmaker discusses bringing death to the forefront in his latest picture.`\
-https://nytimes.com/2025/04/19/movies/ddavid-cronenberg-interview.html
-
-**Walton Goggins on the Song in His ‘White Lotus’ Character’s Head**\
-`The actor, also seen in “The Righteous Gemstones” and the new movie “The Uninvited,” on dirt biking, his father’s clothing advice and the music that makes him think of Rick Hatchett.`\
-https://nytimes.com/2025/04/19/arts/television/walton-goggins-white-lotus-righteous-gemstones.html
 
