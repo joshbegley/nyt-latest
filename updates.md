@@ -1,3 +1,11 @@
+**'I feel like me again': Astros' Cam Smith homers twice, steals the show**\
+`In franchise history, only five Astros younger than the 22-year-old Smith hit multiple home runs in a game.`\
+https://nytimes.com/athletic/6291695/2025/04/19/cam-smith-two-homers-astros-padres/
+
+**Angel City's Casey Phair, youngest World Cup competitor, makes NWSL debut**\
+`Phair, now 17, previously made history as the youngest player to debut in a World Cup at 16 years, 26 days old.`\
+https://nytimes.com/athletic/6291709/2025/04/19/casey-phair-angel-city-nwsl-debut/
+
 **Angel City's Casey Phair, youngest World Cup competitor, makes NWSL debut**\
 `Phair, now 17, previously made history as the youngest player to ever debut in a World Cup at 16 years, 26 days old.`\
 https://nytimes.com/athletic/6291709/2025/04/19/casey-phair-angel-city-nwsl-debut/
