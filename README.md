@@ -1,3 +1,15 @@
+**Pacers run to early lead, leave Bucks behind in convincing Game 1 win**\
+`Pascal Siakam led all Pacers scorers with 25 points, shooting 10-for-15 from the field and 3-for-5 from 3.`\
+https://nytimes.com/athletic/6292937/2025/04/19/indiana-pacers-milwaukee-bucks-nba-game-1/
+
+**Three Pentagon officials fired in leak inquiry proclaim their innocence.**\
+`By Greg Jaffe`\
+https://nytimes.com/live/2025/04/19/us/trump-news/three-pentagon-officials-fired-in-leak-inquiry-proclaim-their-innocence
+
+**Mother and Son, 8, Found Dead in Bronx Home With Daughter, 4, Left Alone**\
+`It was not immediately clear how long the two had been dead or how long the younger daughter had been surviving alone in the apartment.`\
+https://nytimes.com/2025/04/19/nyregion/bronx-mother-and-son-dead.html
+
 **Small Plane With 4 Aboard Crashes in Illinois**\
 `The authorities said they were conducting a “fatal aircraft investigation” but did not provide details about the number of people who died.`\
 https://nytimes.com/2025/04/19/us/plane-crash-illinois.html
@@ -26,17 +38,4 @@ https://nytimes.com/athletic/6291222/2025/04/19/stanford-softball-attendance-rec
 **Oklahoma wins seventh NCAA gymnastics final in 11 years; UCLA finishes second**\
 `Missouri finished third after a successful inquiry to nudge past Utah.`\
 https://nytimes.com/athletic/6292902/2025/04/19/oklahoma-ncaa-gymnastics-championship-ucla/
-
-**Red Wings' locker clean-out day: Kane's future, Larkin's injuries, fixing March woes**\
-`After a disappointing 2024-25 season for Detroit, players gave their final thoughts and reflections and began to look ahead.
-`\
-https://nytimes.com/athletic/6292481/2025/04/19/red-wings-patrick-kane-dylan-larkin/
-
-**Tigers' Casey Mize, Spencer Torkelson finally fulfilling draft prophecies**\
-`Casey Mize and Spencer Torkelson, both No. 1 overall picks with winding routes to success, are powering the Tigers through April.`\
-https://nytimes.com/athletic/6292778/2025/04/19/tigers-casey-mize-and-spencer-torkelson-are-finally-fulfilling-draft-prophecies/
-
-**Michigan looks all in on Bryce Underwood. Should we be all in on Michigan?**\
-`Michigan looks like a slightly better version of last year’s team, with a lot of the same strengths and a lot of the same questions.`\
-https://nytimes.com/athletic/6292845/2025/04/19/michigan-bryce-underwood-spring-game/
 
