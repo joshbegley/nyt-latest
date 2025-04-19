@@ -1,3 +1,7 @@
+**An Urgent Supreme Court Order Protecting Migrants Was Built for Speed**\
+`In an overnight ruling blocking the Trump administration from deporting a group of Venezuelans, the justices ignored some of their protocols.`\
+https://nytimes.com/2025/04/19/us/politics/court-venezuela-deport-protocol.html
+
 **Max Romeo, Leading Voice in the Heyday of Roots Reggae, Dies at 80**\
 `His early hits were filled with sexual innuendo. But he later switched to a soulful political message that resonated in 1970s Jamaica and beyond.`\
 https://nytimes.com/2025/04/19/arts/music/max-romeo-dead.html

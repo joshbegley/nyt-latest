@@ -8,7 +8,7 @@ https://nytimes.com/athletic/6284417/2025/04/19/aston-villa-4-newcastle-1-watkin
 
 **An Urgent Supreme Court Order Protecting Migrants Was Built for Speed**\
 `In an overnight ruling blocking the Trump administration from deporting a group of Venezuelans, the justices ignored some of their protocols.`\
-https://nytimes.com/live/2025/04/19/us/trump-news/court-venezuela-deport-protocol
+https://nytimes.com/2025/04/19/us/politics/court-venezuela-deport-protocol.html
 
 **Max Verstappen on Saudi Arabian GP pole; Lando Norris crashes in Q3**\
 `Max Verstappen barely beat Oscar Piastri for pole in Jeddah, as the McLaren vs. Verstappen title fight heats up.`\
