@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6292873/2025/04/19/wild-prospect-zeev-buium-nhl-playoffs/
 
+**'He's here for a reason': Wild prospect Zeev Buium to make NHL debut in playoffs**\
+`In Game 1 vs. Vegas on Sunday, the 19-year-old will become the first player in Wild history to make his NHL debut in a playoff game.
+`\
+https://nytimes.com/athletic/6292873/2025/04/19/wild-prospect-zeev-buium-nhl-playoffs/
+
 **Pacers run to early lead, leave Bucks behind in convincing Game 1 win**\
 `Pascal Siakam led all Pacers scorers with 25 points, shooting 10-for-15 from the field and 3-for-5 from 3.`\
 https://nytimes.com/athletic/6292937/2025/04/19/indiana-pacers-milwaukee-bucks-nba-game-1/

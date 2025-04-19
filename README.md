@@ -1,3 +1,7 @@
+**Trump Administration Asks Justices to Reject A.C.L.U. Request to Pause Deportations**\
+`The solicitor general asked the Supreme Court to ‘dissolve’ their temporary block on the deportations of Venezuelans and to allow lower courts to consider the case.`\
+https://nytimes.com/2025/04/19/us/politics/trump-administration-scotus-deportations.html
+
 **Pacers run to early lead, leave Bucks behind in convincing Game 1 win**\
 `Pascal Siakam led all Pacers scorers with 25 points, shooting 10-for-15 from the field and 3-for-5 from 3.`\
 https://nytimes.com/athletic/6292937/2025/04/19/indiana-pacers-milwaukee-bucks-nba-game-1/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6292876/2025/04/19/chicago-cubs-best-offense-in-bas
 **Stanford-Cal breaks college softball attendance record with 13,207 fans**\
 `The previous record of 12,566 was set at last year’s College World Series in Oklahoma City.`\
 https://nytimes.com/athletic/6291222/2025/04/19/stanford-softball-attendance-record-cal/
-
-**Oklahoma wins seventh NCAA gymnastics final in 11 years; UCLA finishes second**\
-`Missouri finished third after a successful inquiry to nudge past Utah.`\
-https://nytimes.com/athletic/6292902/2025/04/19/oklahoma-ncaa-gymnastics-championship-ucla/
 
