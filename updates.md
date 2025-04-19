@@ -1,3 +1,5 @@
+
+
 **Barbara Lee Wins Oakland Mayor’s Race in Her Return Home**\
 `The former congresswoman, a progressive Democrat, campaigned on a promise to unite residents in the beleaguered California city. Her challenger, Loren Taylor, conceded on Saturday.`\
 https://nytimes.com/2025/04/19/us/barbara-lee-oakland-mayor.html
