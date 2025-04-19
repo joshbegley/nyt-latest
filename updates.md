@@ -1,3 +1,7 @@
+**Villa's Watkins was 'fuming' over PSG exclusion: 'I let Unai Emery know'**\
+`Watkins has scored 23 goals across all competitions this season but Marcus Rashford was selected ahead of him for both quarter-final legs.`\
+https://nytimes.com/athletic/6292554/2025/04/19/ollie-watkins-aston-villa-dropped/
+
 **Ancelotti expected to leave Real Madrid with preference to join Brazil**\
 `Ancelotti is understood to be interested in the Brazil position and is open to leaving the Spanish capital.`\
 https://nytimes.com/athletic/6292242/2025/04/19/carlo-ancelotti-real-madrid-manager-brazil/
