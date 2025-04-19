@@ -1,3 +1,7 @@
+**Lawsuit Aims to Broadly Halt Deportations of Foreign Students**\
+`A suit challenges the Trump administration’s campaign in four states and Puerto Rico, and seeks the reinstatement of terminated student visas.`\
+https://nytimes.com/2025/04/19/us/politics/lawsuit-trump-student-visa-deportation.html
+
 **Yankees' scouting department strikes again with pitcher who 'doesn't even make sense'**\
 `The secret to Fernando Cruz’s success is his split-finger fastball, a pitch that is among the most unhittable in baseball.`\
 https://nytimes.com/athletic/6291568/2025/04/19/yankees-pitcher-fernando-cruz-rays/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6289906/2025/04/19/amorim-manchester-united-kids/
 **Why Virgil van Dijk and Mo Salah are as valuable off the field as on it for Liverpool**\
 `The Premier League champions elect will benefit from the global appeal that goes hand in hand with their star players for the next two years`\
 https://nytimes.com/athletic/6289600/2025/04/19/salah-van-dijk-liverpool-off-field-instagram/
-
-**Explained: How Chelsea have sold their women's team for £200m - to themselves**\
-`The Athletic answers the key questions about the transaction that has raised eyebrows across football `\
-https://nytimes.com/athletic/6289798/2025/04/19/chelsea-women-valuation-200m-explained/
 

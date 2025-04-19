@@ -1,3 +1,11 @@
+**Yoshinobu Yamamoto is pitching like 'one of the best pitchers in our game' right now**\
+`"He's been a man on a mission," Tommy Edman said of Yamamoto, who lowered his ERA to 0.93 on Friday. "He's been unstoppable."`\
+https://nytimes.com/athletic/6291643/2025/04/19/dodgers-yoshinobu-yamamoto-one-of-best-pitchers-in-game/
+
+**The New York Times in Print for Saturday, April 19, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/19/todays-new-york-times
+
 **Lawsuit Aims to Broadly Halt Deportations of Foreign Students**\
 `A suit challenges the Trump administration’s campaign in four states and Puerto Rico, and seeks the reinstatement of terminated student visas.`\
 https://nytimes.com/2025/04/19/us/politics/lawsuit-trump-student-visa-deportation.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6291641/2025/04/19/francisco-lindor-walk-off-home-r
 **Life After Arsenal: Alfie Matthews - coming up with Saka, rondos with Ozil and EFL hopes**\
 `After being released by Arsenal, he dropped down the pyramid but is trying to make his way back, as well as playing in the Baller League`\
 https://nytimes.com/athletic/6240150/2025/04/19/life-after-arsenal-alfie-matthews-baller-league/
-
-**Amorim's kids - the players Man United might use in the Premier League while chasing European glory**\
-`Who Ruben Amorim might turn to for the run-in and what it means for other Premier League clubs`\
-https://nytimes.com/athletic/6289906/2025/04/19/amorim-manchester-united-kids/
-
-**Why Virgil van Dijk and Mo Salah are as valuable off the field as on it for Liverpool**\
-`The Premier League champions elect will benefit from the global appeal that goes hand in hand with their star players for the next two years`\
-https://nytimes.com/athletic/6289600/2025/04/19/salah-van-dijk-liverpool-off-field-instagram/
 

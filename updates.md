@@ -1,3 +1,7 @@
+**Lawsuit Aims to Broadly Halt Deportations of Foreign Students**\
+`A suit challenges the Trump administration’s campaign in four states and Puerto Rico, and seeks the reinstatement of terminated student visas.`\
+https://nytimes.com/2025/04/19/us/politics/lawsuit-trump-student-visa-deportation.html
+
 **Yankees' scouting department strikes again with pitcher who 'doesn't even make sense'**\
 `The secret to Fernando Cruz’s success is his split-finger fastball, a pitch that is among the most unhittable in baseball.`\
 https://nytimes.com/athletic/6291568/2025/04/19/yankees-pitcher-fernando-cruz-rays/
