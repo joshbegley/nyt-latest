@@ -1,3 +1,15 @@
+**Hope isn't a strategy, Tuch's contract and more from Sabres locker cleanout day**\
+`Buffalo's veterans have been here for enough losing to start feeling the weight of the team's playoff drought.`\
+https://nytimes.com/athletic/6291236/2025/04/18/sabres-alex-tuch-contract-rasmus-dahlin/
+
+**David Savard will end his NHL career wearing a Canadiens sweater in the playoffs**\
+`After 870 games with the Blue Jackets, Lightning and Canadiens, Savard will put a perfect bow on his NHL career in the playoffs.`\
+https://nytimes.com/athletic/6291219/2025/04/18/david-savard-end-nhl-career-canadiens-playoffs/
+
+**Judge Rules Against Trump Administration on Passport Changes**\
+`A group of transgender plaintiffs sued President Trump and the State Department over a new rule prohibiting passports from including a gender different from the sex listed on an original birth certificate.`\
+https://nytimes.com/2025/04/18/us/trump-passport-changes-transgender.html
+
 **Senator Says Abrego Garcia Was Denied Phone Call During Deportation**\
 `Senator Chris Van Hollen, Democrat of Maryland, shared details of his visit with Kilmar Armando Abrego Garcia, the Maryland man who was wrongly deported to El Salvador last month.`\
 https://nytimes.com/video/us/politics/100000010119405/van-hollen-maryland-abrego-garcia.html
