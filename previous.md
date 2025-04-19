@@ -1,3 +1,19 @@
+**2025 NHL playoff preview: Tampa Bay Lightning vs. Florida Panthers**\
+`For the third time in four seasons, the Panthers and Lightning are meeting in the playoffs. This one might be the best yet.`\
+https://nytimes.com/athletic/6289138/2025/04/19/nhl-playoffs-lightning-panthers/
+
+**Vance, whose views have clashed with the pope’s, spends Holy Week in Rome.**\
+`By Emma Bubola`\
+https://nytimes.com/live/2025/04/19/us/trump-news/vance-whose-views-have-clashed-with-the-popes-spends-holy-week-in-rome
+
+**Former Trump Staff Members Liken His Actions to Those of ‘Royal Despot’**\
+`In an open letter, prominent Republicans criticized President Trump for using his power to punish two former administration officials who criticized him.`\
+https://nytimes.com/2025/04/19/us/politics/trump-letter-ty-cobb.html
+
+**Trump Administration Live Updates: Supreme Court, for Now, Blocks Deportations of Venezuelan Migrants**\
+`Justices Clarence Thomas and Samuel A. Alito Jr. dissented. A group of migrants had been scheduled to be flown out of the country, according to people familiar with the matter.`\
+https://nytimes.com/live/2025/04/19/us/trump-news
+
 **The Pulse: An expensive blitz to save a coach**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6291642/2025/04/19/the-expensive-blitz-to-save-an-embattled-coach-plus-playoffs-all-over/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/04/19/world/europe/russia-ukraine-putin-trump.html
 **Ancelotti says he and Real Madrid players remain united: 'We are on the same line'**\
 `Ancelotti’s future at Real Madrid has come under pressure following his side’s exit from the Champions League earlier this week.`\
 https://nytimes.com/athletic/6291885/2025/04/19/real-madrid-ancelotti-future-perez/
-
-**Nico Harrison once said the Mavericks were a Klay away. Then he traded their best player**\
-`Friday's Play-In loss has the Mavs now reflecting on their franchise-derailing trade and the calamitous sequence of events that followed.`\
-https://nytimes.com/athletic/6291753/2025/04/19/nico-harrison-mavericks-nba-playoffs-klay-luka/
-
-**What I like and don't like about the Timberwolves' playoff series against the Lakers**\
-`There are ghosts and specters and nemeses all over this series.`\
-https://nytimes.com/athletic/6290722/2025/04/19/timberwolves-lakers-nba-playoffs-preview/
-
-**Preview: Can the Rockets finally get past Steph Curry, Jimmy Butler and the Warriors?**\
-`Kelly Iko and Anthony Slater discuss the series between the Houston Rockets and Golden State Warriors. `\
-https://nytimes.com/athletic/6290683/2025/04/19/rockets-steph-curry-jimmy-butler-warriors-playoffs/
-
-**Penguins season report cards: From A (Sidney Crosby) to awful (Tristan Jarry)**\
-`It wasn't a pretty picture for the blue line in the annual Penguins report card, starting with Erik Karlsson.`\
-https://nytimes.com/athletic/6283145/2025/04/19/pittsburgh-penguins-report-card-sidney-crosby-kris-letang/
 

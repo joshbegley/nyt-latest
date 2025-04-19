@@ -1,3 +1,19 @@
+**2025 NHL playoff preview: Tampa Bay Lightning vs. Florida Panthers**\
+`For the third time in four seasons, the Panthers and Lightning are meeting in the playoffs. This one might be the best yet.`\
+https://nytimes.com/athletic/6289138/2025/04/19/nhl-playoffs-lightning-panthers/
+
+**Vance, whose views have clashed with the pope’s, spends Holy Week in Rome.**\
+`By Emma Bubola`\
+https://nytimes.com/live/2025/04/19/us/trump-news/vance-whose-views-have-clashed-with-the-popes-spends-holy-week-in-rome
+
+**Former Trump Staff Members Liken His Actions to Those of ‘Royal Despot’**\
+`In an open letter, prominent Republicans criticized President Trump for using his power to punish two former administration officials who criticized him.`\
+https://nytimes.com/2025/04/19/us/politics/trump-letter-ty-cobb.html
+
+**Trump Administration Live Updates: Supreme Court, for Now, Blocks Deportations of Venezuelan Migrants**\
+`Justices Clarence Thomas and Samuel A. Alito Jr. dissented. A group of migrants had been scheduled to be flown out of the country, according to people familiar with the matter.`\
+https://nytimes.com/live/2025/04/19/us/trump-news
+
 **The Pulse: An expensive blitz to save a coach**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6291642/2025/04/19/the-expensive-blitz-to-save-an-embattled-coach-plus-playoffs-all-over/
