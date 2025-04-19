@@ -1,3 +1,7 @@
+**Tunisia Hands Heavy Sentences to Prominent Opposition Figures**\
+`As the North African nation continues to slide toward authoritarianism, a court sentenced about 40 people, including high-profile rivals of the president, to up to 66 years in prison.`\
+https://nytimes.com/2025/04/19/world/middleeast/tunisia-opposition-prison.html
+
 **Once a Blues lightning rod, Jordan Kyrou (and his +23) won over fans going into playoffs**\
 `The Blues' leading scorer the last three years has made major improvements defensively. `\
 https://nytimes.com/athletic/6264908/2025/04/19/blues-jordan-kyrou-won-over-fans-playoffs/
