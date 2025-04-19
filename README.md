@@ -2,8 +2,8 @@
 `His early hits were filled with sexual innuendo. But he later switched to a soulful political message that resonated in 1970s Jamaica and beyond.`\
 https://nytimes.com/2025/04/19/arts/music/max-romeo-dead.html
 
-**The Briefing: Aston Villa 4 Newcastle 1 - Watkins shows his value, lack of rotation costs Newcastle**\
-`Aston Villa romped to a big win over Newcastle, striking a hefty blow in the race for Champions League qualification`\
+**The Briefing: Aston Villa 4 Newcastle 1 - Watkins shows his value; visitors' lack of rotation is costly**\
+`Villa romped to a big win over Newcastle, striking a hefty blow on one of their rivals in the race for Champions League qualification`\
 https://nytimes.com/athletic/6284417/2025/04/19/aston-villa-4-newcastle-1-watkins/
 
 **An Urgent Supreme Court Order Protecting Migrants Was Built for Speed**\
