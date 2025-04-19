@@ -1,3 +1,7 @@
+**Small Plane With 4 Aboard Crashes in Illinois**\
+`The authorities said they were conducting a “fatal aircraft investigation” but did not provide details about the number of people who died.`\
+https://nytimes.com/2025/04/19/us/plane-crash-illinois.html
+
 **'He's here for a reason': Wild prospect Zeev Buium to make NHL debut in playoffs**\
 `In Game 1 vs. Vegas on Sunday, the 19-year-old will become the first player in Wild history to make his NHL debut in a playoff game.
 `\
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6292778/2025/04/19/tigers-casey-mize-and-spencer-to
 **Michigan looks all in on Bryce Underwood. Should we be all in on Michigan?**\
 `Michigan looks like a slightly better version of last year’s team, with a lot of the same strengths and a lot of the same questions.`\
 https://nytimes.com/athletic/6292845/2025/04/19/michigan-bryce-underwood-spring-game/
-
-**Double Vision**\
-`Victor Schmitt and Tracy Bennett hit us with a knuckle sandwich of a Sunday puzzle.`\
-https://nytimes.com/2025/04/19/crosswords/daily-puzzle-2025-04-20.html
 

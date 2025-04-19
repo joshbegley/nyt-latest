@@ -1,3 +1,21 @@
+**'He's here for a reason': Wild prospect Zeev Buium to make NHL debut in playoffs**\
+`In Game 1 vs. Vegas on Sunday, the 19-year-old will become the first player in Wild history to make his NHL debut in a playoff game.
+`\
+https://nytimes.com/athletic/6292873/2025/04/19/wild-prospect-zeev-buium-nhl-playoffs/
+
+**Arizona governor vetoes bill that would have supported federal immigration efforts.**\
+`By Christina Morales`\
+https://nytimes.com/live/2025/04/19/us/trump-news/arizona-governor-vetoes-bill-that-would-have-supported-federal-immigration-efforts
+
+**Padres prospect Tirso Ornelas gets first call-up as Jason Heyward lands on IL**\
+`Ornelas was hitting .281/.418/.359 with one home run in 17 games with El Paso.`\
+https://nytimes.com/athletic/6292946/2025/04/19/padres-prospect-tirso-ornelas-call-up-jason-heyward-il/
+
+**Red Wings' locker clean-out day: Kane's future, Larkin's injuries, fixing March woes**\
+`After a disappointing 2024-25 season for Detroit, players gave their final thoughts and reflections and began to look ahead.
+`\
+https://nytimes.com/athletic/6292481/2025/04/19/red-wings-patrick-kane-dylan-larkin/
+
 **Red Wings' locker clean-out day: Kane's future, Larkin's injuries, fixing March woes**\
 `After a disappointing 2024-25 season for Detroit, players gave their final thoughts and reflections and began to look ahead.
 `\
