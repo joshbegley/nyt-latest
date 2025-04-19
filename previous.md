@@ -1,5 +1,5 @@
-**Hope isn't a strategy, Tuch's contract and more from Sabres locker cleanout day**\
-`Buffalo's veterans have been here for enough losing to start feeling the weight of the team's playoff drought.`\
+**Hope isn't a strategy, Alex Tuch's contract and more from Sabres locker cleanout day**\
+`Buffalo's veterans have been here for enough losing to start feeling the weight of the playoff drought.`\
 https://nytimes.com/athletic/6291236/2025/04/18/sabres-alex-tuch-contract-rasmus-dahlin/
 
 **David Savard will end his NHL career wearing a Canadiens sweater in the playoffs**\

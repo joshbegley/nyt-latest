@@ -1,3 +1,7 @@
+**Hope isn't a strategy, Alex Tuch's contract and more from Sabres locker cleanout day**\
+`Buffalo's veterans have been here for enough losing to start feeling the weight of the playoff drought.`\
+https://nytimes.com/athletic/6291236/2025/04/18/sabres-alex-tuch-contract-rasmus-dahlin/
+
 **What we heard about Tocchet, Pettersson and unsettled Canucks at locker cleanout day**\
 `There was a sense of questions unanswered surrounding the Canucks ahead of a critical offseason.`\
 https://nytimes.com/athletic/6291017/2025/04/18/vancouver-canucks-rick-tocchet-elias-pettersson/
