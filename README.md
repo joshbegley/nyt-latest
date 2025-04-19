@@ -1,3 +1,7 @@
+**Celtics' Jaylen Brown doesn't expect minutes restriction vs. Magic**\
+`Boston star says that late-season management of his knee has prepared him for the postseason.`\
+https://nytimes.com/athletic/6292448/2025/04/19/celtics-jaylen-brown-no-minutes-restrictions-magic/
+
 **Maple Leafs Game 1 lineup: Who’s in, who’s out, who’s playing where**\
 `Craig Berube warned that he could still change some things around, but the likely Leafs lines appear set.`\
 https://nytimes.com/athletic/6292317/2025/04/19/maple-leafs-game-1-lineup-senators-nhl-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6292195/2025/04/19/moses-moody-golden-state-warrior
 **3 Dead After Small Plane Crashes Into a Nebraska River**\
 `The plane was traveling along the Platte River when it crashed into the water south of Fremont, Neb., on Friday night, officials said.`\
 https://nytimes.com/2025/04/19/us/plane-crash-nebraska-fremont.html
-
-**Rangers fire coach Peter Laviolette a year after winning Presidents' Trophy**\
-`New York entered the season with Stanley Cup aspirations following a run to the 2024 Eastern Conference final and Presidents’ Trophy win.`\
-https://nytimes.com/athletic/6289026/2025/04/19/rangers-fire-coach-peter-laviolette/
 
