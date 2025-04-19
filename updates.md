@@ -1,3 +1,7 @@
+**Celtics' Jaylen Brown doesn't expect minutes restriction vs. Magic**\
+`Boston star says that late-season management of his knee has prepared him for the postseason.`\
+https://nytimes.com/athletic/6292448/2025/04/19/celtics-jaylen-brown-no-minutes-restrictions-magic/
+
 **Maple Leafs Game 1 lineup: Who’s in, who’s out, who’s playing where**\
 `Craig Berube warned that he could still change some things around, but the likely Leafs lines appear set.`\
 https://nytimes.com/athletic/6292317/2025/04/19/maple-leafs-game-1-lineup-senators-nhl-playoffs/
