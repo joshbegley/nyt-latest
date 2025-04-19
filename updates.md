@@ -1,3 +1,7 @@
+**Ancelotti expected to leave Real Madrid with preference to join Brazil**\
+`Ancelotti is understood to be interested in the Brazil position and is open to leaving the Spanish capital.`\
+https://nytimes.com/athletic/6292242/2025/04/19/carlo-ancelotti-real-madrid-manager-brazil/
+
 **The Briefing: Aston Villa 4 Newcastle 1 - Watkins shows his value; visitors' lack of rotation is costly**\
 `Villa romped to a big win over Newcastle, striking a hefty blow on one of their rivals in the race for Champions League qualification`\
 https://nytimes.com/athletic/6284417/2025/04/19/aston-villa-4-newcastle-1-watkins/

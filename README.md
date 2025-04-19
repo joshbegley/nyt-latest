@@ -1,3 +1,7 @@
+**Villa's Watkins was 'fuming' over PSG exclusion: 'I let Unai Emery know'**\
+`Watkins has scored 23 goals across all competitions this season but Marcus Rashford was selected ahead of him for both quarter-final legs.`\
+https://nytimes.com/athletic/6292554/2025/04/19/ollie-watkins-aston-villa-dropped/
+
 **Ancelotti expected to leave Real Madrid with preference to join Brazil**\
 `Ancelotti is understood to be interested in the Brazil position and is open to leaving the Spanish capital.`\
 https://nytimes.com/athletic/6292242/2025/04/19/carlo-ancelotti-real-madrid-manager-brazil/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6289839/2025/04/19/rangers-coaching-candidates-sull
 **More Than 400,000 Wireless Phone Chargers Recalled Over Fire Hazard**\
 `Casely, a company in Brooklyn, received 51 reports of lithium-ion batteries overheating, expanding or catching fire, resulting in six minor burn injuries.`\
 https://nytimes.com/2025/04/19/business/casely-power-banks-charger-recall.html
-
-**Marie-Philip Poulin passes Hayley Wickenheiser as Canada's all-time leading scorer at women's worlds**\
-`Poulin scored her 87th career point at the IIHF Women's World Championship, making her the highest-scoring Canadian ever at the tournament.`\
-https://nytimes.com/athletic/6291942/2025/04/19/marie-philip-poulin-hayley-wickenheiser-career-points/
 

@@ -1,3 +1,7 @@
+**Ancelotti expected to leave Real Madrid with preference to join Brazil**\
+`Ancelotti is understood to be interested in the Brazil position and is open to leaving the Spanish capital.`\
+https://nytimes.com/athletic/6292242/2025/04/19/carlo-ancelotti-real-madrid-manager-brazil/
+
 **Max Romeo, Leading Voice in the Heyday of Roots Reggae, Dies at 80**\
 `His early hits were filled with sexual innuendo. But he later switched to a soulful political message that resonated in 1970s Jamaica and beyond.`\
 https://nytimes.com/2025/04/19/arts/music/max-romeo-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/19/business/casely-power-banks-charger-recall.html
 **Marie-Philip Poulin passes Hayley Wickenheiser as Canada's all-time leading scorer at women's worlds**\
 `Poulin scored her 87th career point at the IIHF Women's World Championship, making her the highest-scoring Canadian ever at the tournament.`\
 https://nytimes.com/athletic/6291942/2025/04/19/marie-philip-poulin-hayley-wickenheiser-career-points/
-
-**Trinity Rodman stepping away from Washington Spirit to address back issues**\
-`Rodman is expected to meet with the Spirit's team doctor in London. Her team says she will return "when she’s healthy."`\
-https://nytimes.com/athletic/6292310/2025/04/19/trinity-rodman-spirit-steps-away-back-issues/
 
