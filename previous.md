@@ -1,3 +1,7 @@
+**USA, Canada to face off in Women's World Championship gold medal game**\
+`Team USA and Team Canada will play for gold at the 2025 IIHF Women’s World Championship on Sunday.`\
+https://nytimes.com/athletic/6292592/2025/04/19/usa-canada-womens-worlds-2025/
+
 **Villa's Watkins was 'fuming' over PSG exclusion: 'I let Unai Emery know'**\
 `Watkins has scored 23 goals across all competitions this season but Marcus Rashford was selected ahead of him for both quarter-final legs.`\
 https://nytimes.com/athletic/6292554/2025/04/19/ollie-watkins-aston-villa-dropped/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6292317/2025/04/19/maple-leafs-game-1-lineup-senato
 **Rangers coaching candidates: Mike Sullivan? John Tortorella? Back to the college ranks?**\
 `Here are 12 candidates in what should be a thorough Rangers coaching search, with one caveat: If the top name is available, he's the guy.`\
 https://nytimes.com/athletic/6289839/2025/04/19/rangers-coaching-candidates-sullivan-tortorella/
-
-**More Than 400,000 Wireless Phone Chargers Recalled Over Fire Hazard**\
-`Casely, a company in Brooklyn, received 51 reports of lithium-ion batteries overheating, expanding or catching fire, resulting in six minor burn injuries.`\
-https://nytimes.com/2025/04/19/business/casely-power-banks-charger-recall.html
 

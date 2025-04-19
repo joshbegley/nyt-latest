@@ -1,3 +1,7 @@
+**USA, Canada to face off in Women's World Championship gold medal game**\
+`Team USA and Team Canada will play for gold at the 2025 IIHF Women’s World Championship on Sunday.`\
+https://nytimes.com/athletic/6292592/2025/04/19/usa-canada-womens-worlds-2025/
+
 **Villa's Watkins was 'fuming' over PSG exclusion: 'I let Unai Emery know'**\
 `Watkins has scored 23 goals across all competitions this season but Marcus Rashford was selected ahead of him for both quarter-final legs.`\
 https://nytimes.com/athletic/6292554/2025/04/19/ollie-watkins-aston-villa-dropped/
