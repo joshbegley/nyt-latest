@@ -1,3 +1,7 @@
+**Former England coach Holland sacked by Marinos after just four months in charge**\
+`Holland, 54, won just one of his 11 league games in charge of the side, leaving them Japanese side in 19th position in the 20-team J-League.`\
+https://nytimes.com/athletic/6291836/2025/04/19/england-holland-sacked-yokohama/
+
 **The Battle of Ontario — as told by the Maple Leafs and Senators who've lived it**\
 `What made those four series between 1999 and 2004 so special? And why are they fuel for many fans heading into the 2025 playoffs?`\
 https://nytimes.com/athletic/6287231/2025/04/19/leafs-senators-battle-of-ontario-history-nhl-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/19/opinion/naval-academy-speech-censorship.html
 **The Emergency Is Here (Part 2)**\
 `Trump is disappearing people to a Salvadoran prison for terrorists. Asha Rangappa, a former F.B.I. agent and an assistant dean at the Yale Jackson School of Global Affairs, discusses the “constitutional black hole” these deportations could open up.`\
 https://nytimes.com/video/opinion/100000010106564/the-emergency-is-here-part-2.html
-
-**The True Cost of Eggs**\
-`I have raised and loved so many hens from the time they were chicks. Why did I never think to ask about the fate of their brothers?`\
-https://nytimes.com/2025/04/19/opinion/eggs-chicken-in-ovo-sexing.html
 
