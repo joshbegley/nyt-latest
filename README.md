@@ -1,3 +1,7 @@
+**Dodgers' Blake Treinen hits IL with right forearm inflammation**\
+`The Dodgers re-signed Treinen to a two-year, $18 million deal this offseason as part of an overall investment in their bullpen.`\
+https://nytimes.com/athletic/6292645/2025/04/19/dodgers-blake-treinen-arm-injury/
+
 **NBA playoff takeaways: Pacers flex home-court muscles, handle Bucks**\
 `The Pacers routed the Bucks in the first of four NBA playoff games Saturday, taking a 1-0 series lead.`\
 https://nytimes.com/athletic/6292216/2025/04/19/nba-playoff-pacers-bucks-clippers-nuggets-knicks-pistons-lakers-wolves/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/19/us/politics/court-venezuela-deport-protocol.html
 **Max Verstappen is on Saudi Arabian GP pole; Lando Norris crashes in Q3**\
 `Verstappen barely beat Oscar Piastri for pole in Jeddah, as the McLaren vs. Verstappen title fight heats up.`\
 https://nytimes.com/athletic/6292249/2025/04/19/saudi-arabian-grand-prix-qualifying-oscar-verstappen-red-bull-pole/
-
-**Celtics' Jaylen Brown doesn't expect minutes restriction vs. Magic**\
-`Boston star says that late-season management of his knee has prepared him for the postseason.`\
-https://nytimes.com/athletic/6292448/2025/04/19/celtics-jaylen-brown-no-minutes-restrictions-magic/
 
