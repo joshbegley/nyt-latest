@@ -1,3 +1,11 @@
+**Blue Jackets head into the offseason with a mixture of frustration and optimism**\
+`GM Don Waddell says he didn't come to Columbus to oversee a roster rebuild. He wants to win immediately.`\
+https://nytimes.com/athletic/6291863/2025/04/19/blue-jackets-offseason-frustration-optimism/
+
+**Anaheim Ducks fire coach Greg Cronin after 2 seasons**\
+`Greg Cronin has been fired as coach of the Anaheim Ducks after two seasons, the team announced on Saturday morning.`\
+https://nytimes.com/athletic/6292123/2025/04/19/ducks-fire-coach-greg-cronin/
+
 **This Is How Far Vance Will Go to Sell a Lie**\
 `Unfortunately for his argument, the Constitution is the Constitution.`\
 https://nytimes.com/2025/04/19/opinion/vance-abrego-garcia-immigration.html
