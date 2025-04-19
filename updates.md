@@ -1,3 +1,7 @@
+**Angel City's Casey Phair, youngest World Cup competitor, makes NWSL debut**\
+`Phair, now 17, previously made history as the youngest player to ever debut in a World Cup at 16 years, 26 days old.`\
+https://nytimes.com/athletic/6291709/2025/04/19/casey-phair-angel-city-nwsl-debut/
+
 **Yoshinobu Yamamoto is pitching like 'one of the best pitchers in our game' right now**\
 `"He's been a man on a mission," Tommy Edman said of Yamamoto, who lowered his ERA to 0.93 on Friday. "He's been unstoppable."`\
 https://nytimes.com/athletic/6291643/2025/04/19/dodgers-yoshinobu-yamamoto-one-of-best-pitchers-in-game/
