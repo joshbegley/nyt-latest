@@ -1,3 +1,15 @@
+**Trinity Rodman stepping away from Washington Spirit to address back issues**\
+`Rodman is expected to meet with the Spirit's team doctor in London. Her team says she will return "when she’s healthy."`\
+https://nytimes.com/athletic/6292310/2025/04/19/trinity-rodman-spirit-steps-away-back-issues/
+
+**How could UCLA afford to pay Nico Iamaleava amid 'revenue challenge?'**\
+`UCLA’s athletic department has a robust tradition in sports outside of football, which makes the pay scale more reliant on outside funding.`\
+https://nytimes.com/athletic/6292313/2025/04/19/ucla-nico-iamaleava-transfer-money/
+
+**Tampa Bay's Oliver Bjorkstrand out for series, Matthew Tkachuk nears return for Panthers**\
+`While Tkachuk might be ready for Game 1 against Tampa Bay, the Lightning will be without a key forward for the entire series.`\
+https://nytimes.com/athletic/6292385/2025/04/19/oliver-bjorkstrand-injury-nhl-playoffs-matthew-tkachuk/
+
 **Thompson: How Moses Moody became the Warriors' go-to player for a pivotal defensive role**\
 `Moses Moody putting it all together has been a boon to the Warriors' defense — and it's key to their hopes in these playoffs.`\
 https://nytimes.com/athletic/6292195/2025/04/19/moses-moody-golden-state-warriors-defense-playoffs/
