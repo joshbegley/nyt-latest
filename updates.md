@@ -1,3 +1,7 @@
+**Storms May Hinder Travel on Easter Weekend**\
+`Forecasters warned of heavy rain and thunderstorms, raising the risk of flash floods through the weekend.`\
+https://nytimes.com/2025/04/19/weather/easter-travel-storms-tornado-us.html
+
 **Wolff ‘didn’t have any conversations’ with Verstappen over Mercedes F1 2026 move**\
 `Verstappen is under contract at Red Bull through to 2028, but the team’s car struggles have led to fresh scrutiny over his future.`\
 https://nytimes.com/athletic/6291802/2025/04/19/formula-1-verstappen-wolff-mercedes-move/

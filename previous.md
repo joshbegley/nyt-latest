@@ -1,3 +1,7 @@
+**Storms May Hinder Travel on Easter Weekend**\
+`Forecasters warned of heavy rain and thunderstorms, raising the risk of flash floods through the weekend.`\
+https://nytimes.com/2025/04/19/weather/easter-travel-storms-tornado-us.html
+
 **Wolff ‘didn’t have any conversations’ with Verstappen over Mercedes F1 2026 move**\
 `Verstappen is under contract at Red Bull through to 2028, but the team’s car struggles have led to fresh scrutiny over his future.`\
 https://nytimes.com/athletic/6291802/2025/04/19/formula-1-verstappen-wolff-mercedes-move/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/19/world/americas/canada-carney-quebec-french.html
 **The Banker vs. the Politician: The Men Vying to Become Canada’s Next Prime Minister**\
 `The April 28 election will come down to two candidates with starkly different personalities and experience: Mark Carney and Pierre Poilievre.`\
 https://nytimes.com/2025/04/19/world/canada/elections-mark-carney-pierre-poilievre.html
-
-**The Trump Billionaires Who Run the Economy and the Things They Say**\
-`“You have to laugh to keep from crying,” one Republican pollster said about recent comments by the billionaires on the stock market, retirement funds and Social Security.`\
-https://nytimes.com/2025/04/19/us/politics/trump-musk-billionaires-economy.html
 
