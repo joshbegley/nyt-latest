@@ -1,3 +1,11 @@
+**Yankees' scouting department strikes again with pitcher who 'doesn't even make sense'**\
+`The secret to Fernando Cruz’s success is his split-finger fastball, a pitch that is among the most unhittable in baseball.`\
+https://nytimes.com/athletic/6291568/2025/04/19/yankees-pitcher-fernando-cruz-rays/
+
+**Wrexham, Wycombe and the day League One's promotion race flipped on its head - again**\
+`The race for the Championship has taken another twist as the run-in looms - and Charlton Athletic are threatening to gatecrash the party`\
+https://nytimes.com/athletic/6286502/2025/04/19/wrexham-wycombe-promotion-charlton-bristol-rovers/
+
 **Francisco Lindor hits his first walk-off homer as a Met, his 250th homer**\
 `Lindor became the fifth shortstop in MLB history to reach 250 home runs.`\
 https://nytimes.com/athletic/6291641/2025/04/19/francisco-lindor-walk-off-home-run-250/

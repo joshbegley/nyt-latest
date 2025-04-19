@@ -1,3 +1,11 @@
+**Yankees' scouting department strikes again with pitcher who 'doesn't even make sense'**\
+`The secret to Fernando Cruz’s success is his split-finger fastball, a pitch that is among the most unhittable in baseball.`\
+https://nytimes.com/athletic/6291568/2025/04/19/yankees-pitcher-fernando-cruz-rays/
+
+**Wrexham, Wycombe and the day League One's promotion race flipped on its head - again**\
+`The race for the Championship has taken another twist as the run-in looms - and Charlton Athletic are threatening to gatecrash the party`\
+https://nytimes.com/athletic/6286502/2025/04/19/wrexham-wycombe-promotion-charlton-bristol-rovers/
+
 **Braves notch a comeback win, hope Alex Verdugo provides 'edge' they've lacked**\
 `The fiery Verdugo is just going to be himself, which is something teammates have gravitated toward in the past.`\
 https://nytimes.com/athletic/6291614/2025/04/19/atlanta-braves-comeback-alex-verdugo/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6289600/2025/04/19/salah-van-dijk-liverpool-off-fie
 **Explained: How Chelsea have sold their women's team for £200m - to themselves**\
 `The Athletic answers the key questions about the transaction that has raised eyebrows across football `\
 https://nytimes.com/athletic/6289798/2025/04/19/chelsea-women-valuation-200m-explained/
-
-**Premier League all sewn up? This is where to look for drama in the coming weeks…**\
-`The title race might be all but done in England, but there is plenty of excitement to be had elsewhere in Europe`\
-https://nytimes.com/athletic/6286625/2025/04/19/title-races-around-europe/
-
-**Trump’s Aid Cuts Hit the Hungry in a City of Shellfire and Starvation**\
-`The stark consequences of the rollback are evident in few places as clearly as in Sudan, where a brutal civil war has combined with a staggering humanitarian catastrophe.`\
-https://nytimes.com/2025/04/19/world/africa/sudan-usaid-famine.html
 
