@@ -1,3 +1,7 @@
+**Tigers' Casey Mize, Spencer Torkelson finally fulfilling draft prophecies**\
+`Casey Mize and Spencer Torkelson, both No. 1 overall picks with winding routes to success, are powering the Tigers through April.`\
+https://nytimes.com/athletic/6292778/2025/04/19/tigers-casey-mize-and-spencer-torkelson-are-finally-fulfilling-draft-prophecies/
+
 **Michigan looks all in on Bryce Underwood. Should we be all in on Michigan?**\
 `Michigan looks like a slightly better version of last year’s team, with a lot of the same strengths and a lot of the same questions.`\
 https://nytimes.com/athletic/6292845/2025/04/19/michigan-bryce-underwood-spring-game/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/19/us/barbara-lee-oakland-mayor.html
 **Cavs-Heat series preview: Can Cleveland make Miami look like a No. 10 seed?**\
 `On the surface, Cavs-Heat looks like a mismatch of a series. But when you dig deeper, you see a different story.`\
 https://nytimes.com/athletic/6292607/2025/04/19/cavaliers-heat-series-preview/
-
-**Dodgers' Blake Treinen hits IL with right forearm inflammation**\
-`The Dodgers re-signed Treinen to a two-year, $18 million deal this offseason as part of an overall investment in their bullpen.`\
-https://nytimes.com/athletic/6292645/2025/04/19/dodgers-blake-treinen-arm-injury/
 

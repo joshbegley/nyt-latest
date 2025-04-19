@@ -1,3 +1,7 @@
+**Michigan looks all in on Bryce Underwood. Should we be all in on Michigan?**\
+`Michigan looks like a slightly better version of last year’s team, with a lot of the same strengths and a lot of the same questions.`\
+https://nytimes.com/athletic/6292845/2025/04/19/michigan-bryce-underwood-spring-game/
+
 **'Not very happy with my result': Matvei Michkov dissatisfied with rookie year, even if no one else is**\
 `The 20-year-old led the league in goals among rookies this season but still thinks he "could have scored a lot more."`\
 https://nytimes.com/athletic/6292677/2025/04/19/flyers-matvei-michkov-rookie-season/

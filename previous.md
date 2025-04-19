@@ -1,3 +1,7 @@
+**Michigan looks all in on Bryce Underwood. Should we be all in on Michigan?**\
+`Michigan looks like a slightly better version of last year’s team, with a lot of the same strengths and a lot of the same questions.`\
+https://nytimes.com/athletic/6292845/2025/04/19/michigan-bryce-underwood-spring-game/
+
 **Double Vision**\
 `Victor Schmitt and Tracy Bennett hit us with a knuckle sandwich of a Sunday puzzle.`\
 https://nytimes.com/2025/04/19/crosswords/daily-puzzle-2025-04-20.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6292607/2025/04/19/cavaliers-heat-series-preview/
 **Dodgers' Blake Treinen hits IL with right forearm inflammation**\
 `The Dodgers re-signed Treinen to a two-year, $18 million deal this offseason as part of an overall investment in their bullpen.`\
 https://nytimes.com/athletic/6292645/2025/04/19/dodgers-blake-treinen-arm-injury/
-
-**NBA playoff takeaways: Pacers flex home-court muscles, handle Bucks**\
-`The Pacers routed the Bucks in the first of four NBA playoff games Saturday, taking a 1-0 series lead.`\
-https://nytimes.com/athletic/6292216/2025/04/19/nba-playoff-pacers-bucks-clippers-nuggets-knicks-pistons-lakers-wolves/
 
