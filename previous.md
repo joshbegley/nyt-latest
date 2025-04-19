@@ -1,3 +1,7 @@
+**Appeals Court Pauses for Now Contempt Proposal by Trial Judge**\
+`Judge James E. Boasberg had threatened to open contempt proceedings to determine whether the Trump administration had violated his order not to deport Venezuelan migrants to El Salvador.`\
+https://nytimes.com/2025/04/18/us/politics/court-contempt-trump-deportations.html
+
 **Cubs pull off wild win in back-and-forth game at windy Wrigley Field**\
 `In an inning and a half, the Cubs and Diamondbacks combined for 21 runs on 20 hits, including six home runs.`\
 https://nytimes.com/athletic/6291268/2025/04/18/cubs-wild-win-diamondbacks-wrigley/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/18/us/politics/cfpb-firings-trump-administration.htm
 **In Trump Attack on Harvard, Punishment Before Proof**\
 `The legal underpinnings of the administration’s broadsides against universities and schools stretch precedents and cut corners.`\
 https://nytimes.com/2025/04/18/us/trump-harvard-legal-process.html
-
-**Sean Couturier, Cam York move forward after not seeing eye-to-eye with John Tortorella**\
-`Tortorella continues to be viewed in a positive light by some Flyers, but others such as Couturier and York had different experiences.`\
-https://nytimes.com/athletic/6291161/2025/04/18/flyers-sean-couturier-cam-york-john-tortorella/
 

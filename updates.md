@@ -1,3 +1,7 @@
+**Appeals Court Pauses for Now Contempt Proposal by Trial Judge**\
+`Judge James E. Boasberg had threatened to open contempt proceedings to determine whether the Trump administration had violated his order not to deport Venezuelan migrants to El Salvador.`\
+https://nytimes.com/2025/04/18/us/politics/court-contempt-trump-deportations.html
+
 **Cubs pull off wild win in back-and-forth game at windy Wrigley Field**\
 `In an inning and a half, the Cubs and Diamondbacks combined for 21 runs on 20 hits, including six home runs.`\
 https://nytimes.com/athletic/6291268/2025/04/18/cubs-wild-win-diamondbacks-wrigley/
