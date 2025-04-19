@@ -1,3 +1,8 @@
+**The Maple Leafs’ ultimate last stand: Will these playoffs be it?**\
+`It feels like it could be the final chance for the core that’s remained together through thick and thin to chase the Stanley Cup together.
+`\
+https://nytimes.com/athletic/6289951/2025/04/19/maple-leafs-nhl-playoffs-last-stand/
+
 **What I like and don't like about the Timberwolves' playoff series against the Lakers**\
 `There are ghosts and specters and nemeses all over this series.`\
 https://nytimes.com/athletic/6290722/2025/04/19/timberwolves-lakers-nba-playoffs-preview/
