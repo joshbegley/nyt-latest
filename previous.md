@@ -1,3 +1,7 @@
+**Nico Harrison once said the Mavericks were a Klay away. Then he traded their best player**\
+`Friday's Play-In loss has the Mavs now reflecting on their franchise-derailing trade and the calamitous sequence of events that followed.`\
+https://nytimes.com/athletic/6291753/2025/04/19/nico-harrison-mavericks-nba-playoffs-klay-luka/
+
 **What I like and don't like about the Timberwolves' playoff series against the Lakers**\
 `There are ghosts and specters and nemeses all over this series.`\
 https://nytimes.com/athletic/6290722/2025/04/19/timberwolves-lakers-nba-playoffs-preview/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6291055/2025/04/19/hurricanes-advantages-concerns-n
 **'I try to be myself every day': Cade Cunningham's leadership has been on display all season**\
 `Cunningham's leadership has helped lead the Pistons to a top-six seed in the Eastern Conference playoffs for the first time since 2008.`\
 https://nytimes.com/athletic/6291208/2025/04/19/cade-cunningham-leadership-pistons-knicks/
-
-**Israeli Attacks Kill Dozens in Gaza, Health Ministry Says**\
-`Israel was keeping up its intense bombing campaign in the enclave, which has exacted a heavy price on civilians struggling to find safe places to shelter.`\
-https://nytimes.com/2025/04/19/world/middleeast/israel-gaza-strikes-death-toll.html
 

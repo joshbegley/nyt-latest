@@ -1,3 +1,12 @@
+**Nico Harrison once said the Mavericks were a Klay away. Then he traded their best player**\
+`Friday's Play-In loss has the Mavs now reflecting on their franchise-derailing trade and the calamitous sequence of events that followed.`\
+https://nytimes.com/athletic/6291753/2025/04/19/nico-harrison-mavericks-nba-playoffs-klay-luka/
+
+**The Maple Leafs’ ultimate last stand: Will these playoffs be it?**\
+`It feels like it could be the final chance for the core that’s remained together through thick and thin to chase the Stanley Cup together.
+`\
+https://nytimes.com/athletic/6289951/2025/04/19/maple-leafs-nhl-playoffs-last-stand/
+
 **The Maple Leafs’ ultimate last stand: Will these playoffs be it?**\
 `It feels like it could be the final chance for the core that’s remained together through thick and thin to chase the Stanley Cup together.
 `\
