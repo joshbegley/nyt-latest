@@ -1,3 +1,7 @@
+**Trail of Evidence**\
+`Alex Tomlinson’s second puzzle for the Times rewards close inspection.`\
+https://nytimes.com/2025/04/18/crosswords/daily-puzzle-2025-04-19.html
+
 **Corrections: April 19, 2025**\
 `Corrections that appeared in print on Saturday, April 19, 2025.`\
 https://nytimes.com/2025/04/18/pageoneplus/corrections-april-19-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6291017/2025/04/18/vancouver-canucks-rick-tocchet-e
 **Trump moves to make tens of thousands of federal workers easier to fire.**\
 `The White House said that about 50,000 federal workers with “policymaking” duties would be moved to a category of workers who could be fired for any reason.`\
 https://nytimes.com/live/2025/04/18/us/trump-news/trump-moves-to-make-tens-of-thousands-of-federal-workers-easier-to-fire
-
-**Judge Rules Against Trump Administration on Passport Changes**\
-`A group of transgender plaintiffs sued President Trump and the State Department over a new rule prohibiting passports from including a gender different from the sex listed on an original birth certificate.`\
-https://nytimes.com/2025/04/18/us/trump-passport-changes-transgender.html
 

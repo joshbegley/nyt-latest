@@ -1,3 +1,7 @@
+**Trail of Evidence**\
+`Alex Tomlinson’s second puzzle for the Times rewards close inspection.`\
+https://nytimes.com/2025/04/18/crosswords/daily-puzzle-2025-04-19.html
+
 **Corrections: April 19, 2025**\
 `Corrections that appeared in print on Saturday, April 19, 2025.`\
 https://nytimes.com/2025/04/18/pageoneplus/corrections-april-19-2025.html
