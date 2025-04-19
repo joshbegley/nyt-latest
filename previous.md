@@ -1,3 +1,7 @@
+**The Briefing: Everton 0 Manchester City 2 - O'Reilly the hero again as City take big step towards top-five finish**\
+`Sam Lee analyses Manchester City's last-ever trip to Goodison Park`\
+https://nytimes.com/athletic/6284415/2025/04/19/everton-manchester-city-analysis-premier-league/
+
 **Szczesny 'very likely' to stay at Barcelona for 2025-26 - Deco**\
 `The Polish goalkeeper has made 24 appearances for Barca this season, having come out of retirement to join the Catalan club in October.`\
 https://nytimes.com/athletic/6292116/2025/04/19/wojciech-szczesny-barcelona-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6291921/2025/04/19/arsenal-lyon-champions-league-se
 **Putin Declares One-Day Easter Truce in Ukraine War**\
 `President Vladimir V. Putin of Russia said that from Saturday evening through Sunday, he had ordered his forces to “stop all military activity.” Ukraine’s leader said he was trying to “play with people’s lives.”`\
 https://nytimes.com/2025/04/19/world/europe/russia-ukraine-easter-truce.html
-
-**Ramsey named Cardiff interim manager following Riza exit**\
-`Cardiff have announced that Ramsey, 34, will oversee the club's final three league fixtures.`\
-https://nytimes.com/athletic/6292006/2025/04/19/aaron-ramsey-cardiff-manager/
 

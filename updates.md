@@ -1,3 +1,7 @@
+**The Briefing: Everton 0 Manchester City 2 - O'Reilly the hero again as City take big step towards top-five finish**\
+`Sam Lee analyses Manchester City's last-ever trip to Goodison Park`\
+https://nytimes.com/athletic/6284415/2025/04/19/everton-manchester-city-analysis-premier-league/
+
 **Szczesny 'very likely' to stay at Barcelona for 2025-26 - Deco**\
 `The Polish goalkeeper has made 24 appearances for Barca this season, having come out of retirement to join the Catalan club in October.`\
 https://nytimes.com/athletic/6292116/2025/04/19/wojciech-szczesny-barcelona-contract/
