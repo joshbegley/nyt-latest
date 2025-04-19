@@ -1,3 +1,5 @@
+
+
 **Trump Officials Blame Mistake for Setting Off Confrontation With Harvard**\
 `An official on the administration’s antisemitism task force told the university that a letter of demands had been sent without authorization.`\
 https://nytimes.com/2025/04/18/business/trump-harvard-letter-mistake.html
