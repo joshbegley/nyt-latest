@@ -14,8 +14,8 @@ https://nytimes.com/2025/04/19/nyregion/hekima-hapa-black-girls-sew.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/04/19/crosswords/spelling-bee-forum.html
 
-**A celebration of Joe Rodon, the warrior king of Leeds United's defence**\
-`While others have come and gone with fitness or form, the former Tottenham Hotspur man is the cornerstone of this team`\
+**A celebration of Joe Rodon, the warrior king of Leeds' defence**\
+`While others have come and gone with fitness or form, the former Tottenham Hotspur man is the cornerstone of this Leeds team`\
 https://nytimes.com/athletic/6291218/2025/04/19/joe-rodon-leeds-united-oxford-championship/
 
 **Hawks' fourth-quarter comeback falls short as Heat dominate overtime, advance to playoffs**\
