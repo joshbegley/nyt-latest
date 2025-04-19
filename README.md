@@ -1,3 +1,7 @@
+**Wolff ‘didn’t have any conversations’ with Verstappen over Mercedes F1 2026 move**\
+`Verstappen is under contract at Red Bull through to 2028, but the team’s car struggles have led to fresh scrutiny over his future.`\
+https://nytimes.com/athletic/6291802/2025/04/19/formula-1-verstappen-wolff-mercedes-move/
+
 **USWNT captain Heaps says salary cap issue to blame for NWSL departures**\
 `Heaps called the cap an “ongoing issue,” when asked why Americans are coming to Europe.`\
 https://nytimes.com/athletic/6291805/2025/04/19/uswnt-nwsl-salary-cap-2/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/19/world/canada/elections-mark-carney-pierre-poiliev
 **The Trump Billionaires Who Run the Economy and the Things They Say**\
 `“You have to laugh to keep from crying,” one Republican pollster said about recent comments by the billionaires on the stock market, retirement funds and Social Security.`\
 https://nytimes.com/2025/04/19/us/politics/trump-musk-billionaires-economy.html
-
-**So, Why’d You Leave That Job?**\
-`Sometimes you just have to be OK with being vague. Plus, what to do when a co-worker has a challenging personality.`\
-https://nytimes.com/2025/04/19/business/nda-explain-work-advice.html
 
