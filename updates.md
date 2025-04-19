@@ -1,3 +1,11 @@
+**Szczesny 'very likely' to stay at Barcelona for 2025-26 - Deco**\
+`The Polish goalkeeper has made 24 appearances for Barca this season, having come out of retirement to join the Catalan club in October.`\
+https://nytimes.com/athletic/6292116/2025/04/19/wojciech-szczesny-barcelona-contract/
+
+**In the Cradle of the American Revolution, Telling History Her Way**\
+`A teenager in Lexington, Mass., has for years been teaching people about the battle that started the war 250 years ago this weekend. Her entertaining website has drawn praise and raised eyebrows.`\
+https://nytimes.com/2025/04/19/us/battle-of-lexington-250th-anniversary.html
+
 **Blue Jackets head into the offseason with a mixture of frustration and optimism**\
 `GM Don Waddell says he didn't come to Columbus to oversee a roster rebuild. He wants to win immediately.`\
 https://nytimes.com/athletic/6291863/2025/04/19/blue-jackets-offseason-frustration-optimism/
