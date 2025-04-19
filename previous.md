@@ -1,3 +1,7 @@
+**A celebration of Joe Rodon, the warrior king of Leeds United's defence**\
+`While others have come and gone with fitness or form, the former Tottenham Hotspur man is the cornerstone of this team`\
+https://nytimes.com/athletic/6291218/2025/04/19/joe-rodon-leeds-united-oxford-championship/
+
 **Hawks' fourth-quarter comeback falls short as Heat dominate overtime, advance to playoffs**\
 `The Miami Heat are heading to the playoffs after overtime heroics from Tyler Herro and Davion Mitchell ended the Hawks' season.`\
 https://nytimes.com/athletic/6291502/2025/04/19/hawks-fourth-quarter-comeback-falls-short-heat-advance-to-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6286502/2025/04/19/wrexham-wycombe-promotion-charlt
 **Braves notch a comeback win, hope Alex Verdugo provides 'edge' they've lacked**\
 `The fiery Verdugo is just going to be himself, which is something teammates have gravitated toward in the past.`\
 https://nytimes.com/athletic/6291614/2025/04/19/atlanta-braves-comeback-alex-verdugo/
-
-**How Ederson has more assists than Haaland, Foden or Grealish this season**\
-`Manchester City's goalkeeper has four assists this season, pushing his top-flight total for them by up to seven - a Premier League record`\
-https://nytimes.com/athletic/6283872/2025/04/19/ederson-assists-manchester-city/
 
