@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6292216/2025/04/19/nba-playoff-pacers-bucks-clipper
 `Drury met with the media Saturday, saying: “Quite simply, we fell short across the board. Nobody here takes it lightly."`\
 https://nytimes.com/athletic/6292531/2025/04/19/chris-drury-peter-laviolette-firing/
 
-**USA, Canada to face off in Women's World Championship gold medal game**\
+**USA, Canada to face off in Women's World Championship gold-medal game**\
 `Team USA and Team Canada will play for gold at the 2025 IIHF Women’s World Championship on Sunday.`\
 https://nytimes.com/athletic/6292592/2025/04/19/usa-canada-womens-worlds-2025/
 

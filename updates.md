@@ -1,3 +1,7 @@
+**USA, Canada to face off in Women's World Championship gold-medal game**\
+`Team USA and Team Canada will play for gold at the 2025 IIHF Women’s World Championship on Sunday.`\
+https://nytimes.com/athletic/6292592/2025/04/19/usa-canada-womens-worlds-2025/
+
 **Dodgers' Blake Treinen hits IL with right forearm inflammation**\
 `The Dodgers re-signed Treinen to a two-year, $18 million deal this offseason as part of an overall investment in their bullpen.`\
 https://nytimes.com/athletic/6292645/2025/04/19/dodgers-blake-treinen-arm-injury/
