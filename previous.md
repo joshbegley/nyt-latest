@@ -2,8 +2,8 @@
 `Such rulings, more common a few years ago, seem to now be reserved for authentic emergencies.`\
 https://nytimes.com/live/2025/04/19/us/trump-news/supreme-court-orders-in-the-middle-of-the-night-are-rare-these-days
 
-**The Briefing: Everton 0 Manchester City 2 - O'Reilly the hero again; big step towards top-five finish**\
-`Sam Lee analyses Manchester City's last-ever trip to Goodison Park`\
+**The Briefing: Everton 0 Manchester City 2 - O'Reilly the hero again; big step towards a top-five finish**\
+`Sam Lee analyses Manchester City's win on their last-ever trip to Goodison Park`\
 https://nytimes.com/athletic/6284415/2025/04/19/everton-manchester-city-analysis-premier-league/
 
 **Szczesny 'very likely' to stay at Barcelona for 2025-26 - Deco**\
