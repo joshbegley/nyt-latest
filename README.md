@@ -1,3 +1,11 @@
+**'Not very happy with my result': Michkov dissatisfied with rookie season, even if no one else is**\
+`The 20-year-old led the league in goals among rookies this season, but still thinks he "could have scored a lot more."`\
+https://nytimes.com/athletic/6292677/2025/04/19/flyers-matvei-michkov-rookie-season/
+
+**Lowetide: What to expect from Oilers' recent free-agent additions**\
+`The Oilers are signing players who have delivered in Europe and in the NCAA to NHL deals.`\
+https://nytimes.com/athletic/6292182/2025/04/19/oilers-free-agents-quinn-hutson/
+
 **‘I let myself down’: Lando Norris’ F1 qualifying crash tests his championship resolve**\
 `Norris crashed out of Saudi Arabia qualifying just when he was looking the favorite for pole. But he can still salvage a good result`\
 https://nytimes.com/athletic/6292695/2025/04/19/lando-norris-f1-saudi-arabia-qualifying-crash/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6292216/2025/04/19/nba-playoff-pacers-bucks-clipper
 **Chris Drury on firing Peter Laviolette, his own job security and Rangers' 'wide open' coaching search**\
 `Drury met with the media Saturday saying, “We fell short across the board. Nobody here takes it lightly."`\
 https://nytimes.com/athletic/6292531/2025/04/19/chris-drury-peter-laviolette-firing/
-
-**USA, Canada to face off in Women's World Championship gold-medal game**\
-`Team USA and Team Canada will play for gold at the 2025 IIHF Women’s World Championship on Sunday.`\
-https://nytimes.com/athletic/6292592/2025/04/19/usa-canada-womens-worlds-2025/
-
-**Villa's Watkins was 'fuming' over PSG exclusion: 'I let Unai Emery know'**\
-`Watkins has scored 23 goals across all competitions this season but Marcus Rashford was selected ahead of him for both quarter-final legs.`\
-https://nytimes.com/athletic/6292554/2025/04/19/ollie-watkins-aston-villa-dropped/
 
