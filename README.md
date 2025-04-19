@@ -1,3 +1,7 @@
+**Once a Blues lightning rod, Jordan Kyrou (and his +23) won over fans going into playoffs**\
+`The Blues' leading scorer the last three years has made major improvements defensively. `\
+https://nytimes.com/athletic/6264908/2025/04/19/blues-jordan-kyrou-won-over-fans-playoffs/
+
 **Say, Old Sport**\
 `“The Great Gatsby” is important, of course, but it’s also all kinds of fun.`\
 https://nytimes.com/2025/04/19/briefing/say-old-sport.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6291805/2025/04/19/uswnt-nwsl-salary-cap-2/
 **Nate Bargatze Doesn’t Mind if You Think He’s an Idiot**\
 `The stand-up comic discusses having a magician for a father, the challenge of mainstream comedy and his aspirations to build the next Disneyland.`\
 https://nytimes.com/2025/04/19/magazine/nate-bargatze-interview.html
-
-**Nate Bargatze Doesn’t Mind If You Think He’s an Idiot**\
-`The stand-up comic discusses having a magician for a father, the challenge of mainstream comedy and his aspirations to build the next Disneyland.`\
-https://nytimes.com/video/podcasts/100000010083583/nate-bargatze-doesnt-mind-if-you-think-hes-an-idiot.html
 
