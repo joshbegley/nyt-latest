@@ -1,3 +1,7 @@
+**A Timeline of the Trump Administration’s Use of the Alien Enemies Act**\
+`Legal challenges over the powerful wartime law have gone all the way to the Supreme Court.`\
+https://nytimes.com/2025/04/19/us/politics/alien-enemies-act-timeline.html
+
 **Protesters Around the U.S. Rally Against Trump’s Policies**\
 `Thousands turned out to protest the Trump administration’s handling of immigration, civil liberties and federal job cuts.`\
 https://nytimes.com/video/us/politics/100000010119917/protesters-around-the-us-rally-against-trumps-policies.html
