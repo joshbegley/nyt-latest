@@ -1,3 +1,12 @@
+**'He's here for a reason': Wild prospect Zeev Buium to make NHL debut in playoffs**\
+`In Game 1 vs. Vegas on Sunday, the 19-year-old will become the first player in Wild history to make his NHL debut in a playoff game.
+`\
+https://nytimes.com/athletic/6292873/2025/04/19/wild-prospect-zeev-buium-nhl-playoffs/
+
+**Arizona governor vetoes bill that would have supported federal immigration efforts.**\
+`By Christina Morales`\
+https://nytimes.com/live/2025/04/19/us/trump-news/arizona-governor-vetoes-bill-that-would-have-supported-federal-immigration-efforts
+
 **Padres prospect Tirso Ornelas gets first call-up as Jason Heyward lands on IL**\
 `Ornelas was hitting .281/.418/.359 with one home run in 17 games with El Paso.`\
 https://nytimes.com/athletic/6292946/2025/04/19/padres-prospect-tirso-ornelas-call-up-jason-heyward-il/
@@ -30,12 +39,4 @@ https://nytimes.com/athletic/6292845/2025/04/19/michigan-bryce-underwood-spring-
 **Double Vision**\
 `Victor Schmitt and Tracy Bennett hit us with a knuckle sandwich of a Sunday puzzle.`\
 https://nytimes.com/2025/04/19/crosswords/daily-puzzle-2025-04-20.html
-
-**'Not very happy with my result': Matvei Michkov dissatisfied with rookie year, even if no one else is**\
-`The 20-year-old led the league in goals among rookies this season but still thinks he "could have scored a lot more."`\
-https://nytimes.com/athletic/6292677/2025/04/19/flyers-matvei-michkov-rookie-season/
-
-**Lowetide: What to expect from Oilers' recent free-agent additions**\
-`The Oilers are signing players who have delivered in Europe and in the NCAA to NHL deals.`\
-https://nytimes.com/athletic/6292182/2025/04/19/oilers-free-agents-quinn-hutson/
 
