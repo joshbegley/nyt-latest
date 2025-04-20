@@ -1,3 +1,11 @@
+**How Jamal Murray found the best version of himself in Nuggets' OT win over Clippers**\
+`For one half and an overtime, Murray was exactly the player the Nuggets needed him to be to pull off a Game 1 win.`\
+https://nytimes.com/athletic/6292865/2025/04/20/jamal-murray-nuggets-overtime-win-clippers/
+
+**Will This Conservative Legal Doctrine Undo Trump’s First Months in Office?**\
+`What goes around, comes around. And it is not likely to be good for the White House.`\
+https://nytimes.com/2025/04/20/opinion/trump-challenge-supreme-court.html
+
 **How Jamal Murray found the best version of himself in Nuggets' overtime win over Clippers**\
 `For one half and an overtime, Murray was exactly the player the Nuggets needed him to be to pull off a Game 1 win.`\
 https://nytimes.com/athletic/6292865/2025/04/20/jamal-murray-nuggets-overtime-win-clippers/
