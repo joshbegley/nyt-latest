@@ -1,3 +1,7 @@
+**Jaden McDaniels' clinical Game 1 brilliance is exactly how Wolves should attack Lakers**\
+`Showing no deference to Luka Dončić and LeBron James, Minnesota dismantled LA to open their first-round series.`\
+https://nytimes.com/athletic/6292929/2025/04/20/jaden-mcdaniels-and-timberwolves-make-statement-against-lakers-in-game-1/
+
 **The Pulse: Surprise! MLB's early top team**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6293449/2025/04/20/mlb-season-san-diego-padres-the-pulse/
