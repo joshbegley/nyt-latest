@@ -1,3 +1,7 @@
+**Saudi Arabia Opposed Obama’s Deal With Iran. It Supports Trump’s. Why?**\
+`The agreements are shaping up to be very similar. But Gulf support for a nuclear deal shows how much the region has changed.`\
+https://nytimes.com/2025/04/20/world/middleeast/gulf-saudi-support-trump-iran-nuclear-deal.html
+
 **How the Cardinals are evaluating Miles Mikolas as he works to regain trust**\
 `Friday's start against the Mets illustrated where manager Oli Marmol's trust level lies with the veteran Mikolas.`\
 https://nytimes.com/athletic/6291197/2025/04/20/cardinals-miles-mikolas-regain-trust-rotation/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/20/crosswords/connections-companion-680.html
 **Sherrod Brown: What Worries Me Most About Trump’s Failing Economy**\
 `Democrats should not confuse Trump’s tariff disaster for a trade policy that helps workers.`\
 https://nytimes.com/2025/04/20/opinion/sherrod-brown-tariffs-trade-trump-workers.html
-
-**Wordle Review No. 1,402**\
-`Scroll down for hints and conversation about the puzzle for Monday, April 21, 2025.`\
-https://nytimes.com/2025/04/20/crosswords/wordle-review-1402.html
 
