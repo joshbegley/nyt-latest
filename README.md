@@ -1,3 +1,7 @@
+**Barcelona's epic comeback at their worst — and the message it sends to their title rivals**\
+`Barcelona were 3-1 down against Celta Vigo but managed to respond and win the game 4-3 in stoppage time`\
+https://nytimes.com/athletic/6292924/2025/04/20/barcelona-celta-vigo-analysis/
+
 **Frank deserves more credit for making Mbeumo and Wissa Brentford's post-Toney solution**\
 `Mbeumo and Wissa have a total of 34 combined goals this term (18 for Mbeumo, 16 for Wissa) for Brentford`\
 https://nytimes.com/athletic/6292798/2025/04/20/brentford-bryan-mbuemo-yoanne-wissa-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6293371/2025/04/20/knicks-defense-wins-game-1-pisto
 **Sam Rak-Sakyi and a very familiar Chelsea dilemma: Should he stay or should he go?**\
 `The 20-year-old has been at Chelsea since under-eight level but has seen his big brother Jesurun kick on since leaving for Crystal Palace`\
 https://nytimes.com/athletic/6290083/2025/04/20/rak-sakyi-chelsea-contract/
-
-**Why Liverpool's title win is more impressive than some people are giving it credit for**\
-`A lack of tension at the end of the season shouldn't obscure the quality of Liverpool's performance under a new head coach`\
-https://nytimes.com/athletic/6291760/2025/04/20/liverpool-title-bid-context-premier-league/
 
