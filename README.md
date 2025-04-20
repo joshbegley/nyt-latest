@@ -1,40 +1,40 @@
+**Maple Leafs vs. Senators: 5 burning questions for the first round**\
+`The five things to watch closest as we get set for Game 1 of the best rivalry series in Round 1 of the playoffs this year.`\
+https://nytimes.com/athletic/6293238/2025/04/20/maple-leafs-senators-nhl-playoffs/
+
+**Five key Oilers questions entering first-round series with Kings**\
+`Concerns about health, even if they’re slowly fading, aren’t the only things to ponder with the Oilers.`\
+https://nytimes.com/athletic/6292395/2025/04/20/oilers-kings-series-nhl-playoffs/
+
+**A model, upside and a draft-day slide: How the Devils landed Jesper Bratt before he was a star**\
+`Bratt — the No. 162 pick in 2016 — has rewarded the team that took a chance on drafting him. And he'll continue that in the playoffs. `\
+https://nytimes.com/athletic/6293050/2025/04/20/devils-jesper-bratt-nhl-playoffs/
+
+**Kings coach Jim Hiller proved he's more than just a career assistant — but there's one big step to go**\
+`The Kings enjoyed one of the best regular seasons in franchise history, but now here come the Oilers (again).`\
+https://nytimes.com/athletic/6285955/2025/04/20/kings-coach-hiller-oilers/
+
+**Mitch Marner and the playoffs: A new beginning or the end of the line?**\
+`These playoffs have the potential to alter not only the course of Marner's career, but the course of the Leafs along with it.`\
+https://nytimes.com/athletic/6291973/2025/04/20/maple-leafs-mitch-marner-nhl-playoffs/
+
+**Revisiting Bruins bold predictions: A lot more wrong than right**\
+`From Jeremy Swayman’s slow start to Charlie Coyle’s 30-goal year, most of these preseason predictions didn't age well.`\
+https://nytimes.com/athletic/6292772/2025/04/20/bruins-2024-25-bold-predictions-revisited/
+
+**Could the Wild's season-long resilience help them upset Vegas? 'We have nothing to lose'**\
+`The Wild, following their season-long theme of “choose your hard,” didn’t take the easy route to the playoffs.`\
+https://nytimes.com/athletic/6292875/2025/04/20/wild-golden-knights-game-1/
+
+**Yohe: Kyle Dubas should do himself a favor and trade Erik Karlsson this summer**\
+`If Dubas is serious about Pittsburgh winning, his biggest offseason priority should be finding a trade partner for Karlsson. `\
+https://nytimes.com/athletic/6283159/2025/04/20/penguins-erik-karlsson-trade-kyle-dubas/
+
 **America Wants a God**\
-`Today, we’re sharing “Believing,” a yearlong project from The Times exploring how people experience religion and spirituality now.`\
+`Today, we’re introducing “Believing,” a yearlong project from The Times exploring how people experience religion and spirituality now.`\
 https://nytimes.com/2025/04/20/briefing/easter-america-religion-spirituality.html
 
 **Pope Francis Blesses Faithful at Easter Mass**\
 `The pontiff, appearing frail from a balcony at St. Peter’s Basilica, blessed a crowd gathered on the square outside. But a Vatican aide delivered a papal address that focused on global conflicts.`\
 https://nytimes.com/2025/04/20/world/europe/pope-francis-easter.html
-
-**Lewandowski an injury doubt for Copa del Rey final, UCL semi-final**\
-`The striker sustained a left hamstring injury on Saturday. He is Barcelona's top scorer this season with 40 goals in 48 games.`\
-https://nytimes.com/athletic/6293748/2025/04/20/robert-lewandowski-injury-barcelona/
-
-**Kyle Connor and Mark Scheifele put Jets on their backs in Game 1 win over Blues**\
-`Saturday's Game 1 comeback win took patience, aggression and top-end talent from Winnipeg's biggest forward stars.`\
-https://nytimes.com/athletic/6292861/2025/04/20/kyle-connor-mark-scheifele-jets-win-game-one/
-
-**When They Don’t Recognize You Anymore**\
-`People with dementia often forget even close family members as the disease advances. “It can throw people into an existential crisis,” one expert said.`\
-https://nytimes.com/2025/04/20/health/dementia-family-recognition.html
-
-**Bad news for all NHL scorers: Andrei Vasilevskiy believes 'my best games are ahead of me'**\
-`Vasilevskiy, at age 30, is coming off the best statistical regular season of his remarkable career.`\
-https://nytimes.com/athletic/6287562/2025/04/20/vasilevskiy-lightning-goalie-playoffs/
-
-**2025 NHL playoff preview: Washington Capitals vs. Montreal Canadiens**\
-`Despite what appears to be a lopsided series on paper, this matchup brings a whole bunch of juice.`\
-https://nytimes.com/athletic/6290536/2025/04/20/nhl-playoffs-capitals-canadiens/
-
-**Fullkrug was angry at his West Ham team-mates. Did it reflect a difficult truth?**\
-`Niclas Fullkrug gave an impassioned post-match interview after West Ham's 1-1 draw with Southampton`\
-https://nytimes.com/athletic/6292005/2025/04/20/niclas-fullkrug-west-ham-angry-analysis/
-
-**An Ivy League scientist became an NHL GM — and built the most unique front office in hockey**\
-`A Harvard grad with a PhD from UC Berkeley, Eric Tulsky is not a typical NHL GM. Is what he's building in Carolina the future of hockey?`\
-https://nytimes.com/athletic/6286244/2025/04/20/carolina-hurricanes-gm-eric-tulsky-nhl-playoffs/
-
-**After years of watching, it's Brady Tkachuk's time to be 'unleashed' in the NHL playoffs**\
-`After playing more than 500 regular-season games, and watching brother Matthew win the Cup, Tkachuk starts his adventure Sunday. He's ready.`\
-https://nytimes.com/athletic/6230595/2025/04/20/senators-brady-tkachuk-nhl-playoffs/
 
