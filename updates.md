@@ -1,3 +1,7 @@
+**Acuña Jr. on Braves' reaction to Kelenic mistake: 'They would take me out'**\
+`Saturday's base-running gaffe with Jarred Kelenic was similar to one in August 2019 when Acuña was removed from a game by Snitker.`\
+https://nytimes.com/athletic/6294714/2025/04/20/ronald-acuna-jr-jarred-kelenic-braves-reaction-hustle/
+
 **Max Verstappen says he can't speak his mind for fear of penalties in F1**\
 `Verstappen received a five-second time penalty for an incident but refused to speak much about his objections`\
 https://nytimes.com/athletic/6294780/2025/04/20/max-verstappen-f1-saudi-arabia-penalty-opinion/
