@@ -1,3 +1,19 @@
+**Cases challenging the Trump administration’s deportations hinge on two key legal terms.**\
+`Two concepts — due process and habeas corpus — are central to cases challenging the Trump administration’s deportations. Here’s what they mean and why they matter.`\
+https://nytimes.com/live/2025/04/20/us/trump-news/due-process-habeas-corpus
+
+**Trump Administration Live Updates: Draft Executive Order Calls for Restructuring of State Department**\
+``\
+https://nytimes.com/live/2025/04/20/us/trump-news
+
+**In Trump’s America, There Are No Rules, Only Access**\
+`The real story about Trump’s tariffs may not be about trade. In many ways, it’s about power.`\
+https://nytimes.com/2025/04/20/opinion/trump-tariffs-authoritarianism.html
+
+**Undercutting Our Scientists and Our Progress**\
+`Readers worry about the Trump administration’s cuts to research funding.`\
+https://nytimes.com/2025/04/20/opinion/trump-science-cuts.html
+
 **Flattened in Game 1, the Lakers need to find their fight against Timberwolves**\
 `"I’m not sure physically we were ready," coach JJ Redick said after LA's 117-95 loss to Minnesota in Game 1.`\
 https://nytimes.com/athletic/6293431/2025/04/20/lakers-loss-playoffs-adjustments-game-1/

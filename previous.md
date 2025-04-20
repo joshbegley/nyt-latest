@@ -1,3 +1,19 @@
+**Cases challenging the Trump administration’s deportations hinge on two key legal terms.**\
+`Two concepts — due process and habeas corpus — are central to cases challenging the Trump administration’s deportations. Here’s what they mean and why they matter.`\
+https://nytimes.com/live/2025/04/20/us/trump-news/due-process-habeas-corpus
+
+**Trump Administration Live Updates: Draft Executive Order Calls for Restructuring of State Department**\
+``\
+https://nytimes.com/live/2025/04/20/us/trump-news
+
+**In Trump’s America, There Are No Rules, Only Access**\
+`The real story about Trump’s tariffs may not be about trade. In many ways, it’s about power.`\
+https://nytimes.com/2025/04/20/opinion/trump-tariffs-authoritarianism.html
+
+**Undercutting Our Scientists and Our Progress**\
+`Readers worry about the Trump administration’s cuts to research funding.`\
+https://nytimes.com/2025/04/20/opinion/trump-science-cuts.html
+
 **Flattened in Game 1, the Lakers need to find their fight against Timberwolves**\
 `"I’m not sure physically we were ready," coach JJ Redick said after LA's 117-95 loss to Minnesota in Game 1.`\
 https://nytimes.com/athletic/6293431/2025/04/20/lakers-loss-playoffs-adjustments-game-1/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6293238/2025/04/20/maple-leafs-senators-nhl-playoff
 **Five key Oilers questions entering first-round series with Kings**\
 `Concerns about health, even if they’re slowly fading, aren’t the only things to ponder with the Oilers.`\
 https://nytimes.com/athletic/6292395/2025/04/20/oilers-kings-series-nhl-playoffs/
-
-**A model, upside and a draft-day slide: How the Devils landed Jesper Bratt before he was a star**\
-`Bratt — the No. 162 pick in 2016 — has rewarded the team that took a chance on drafting him. And he'll continue that in the playoffs. `\
-https://nytimes.com/athletic/6293050/2025/04/20/devils-jesper-bratt-nhl-playoffs/
-
-**Kings coach Jim Hiller proved he's more than just a career assistant — but there's one big step to go**\
-`The Kings enjoyed one of the best regular seasons in franchise history, but now here come the Oilers (again).`\
-https://nytimes.com/athletic/6285955/2025/04/20/kings-coach-hiller-oilers/
-
-**Mitch Marner and the playoffs: A new beginning or the end of the line?**\
-`These playoffs have the potential to alter not only the course of Marner's career, but the course of the Leafs along with it.`\
-https://nytimes.com/athletic/6291973/2025/04/20/maple-leafs-mitch-marner-nhl-playoffs/
-
-**Revisiting Bruins bold predictions: A lot more wrong than right**\
-`From Jeremy Swayman’s slow start to Charlie Coyle’s 30-goal year, most of these preseason predictions didn't age well.`\
-https://nytimes.com/athletic/6292772/2025/04/20/bruins-2024-25-bold-predictions-revisited/
 
