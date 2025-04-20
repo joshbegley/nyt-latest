@@ -1,3 +1,11 @@
+**Inside the Urgent Fight Over the Trump Administration’s New Deportation Effort**\
+`The push to deport a group of Venezuelans raises questions about whether the government is following a Supreme Court order requiring that migrants receive due process.`\
+https://nytimes.com/2025/04/19/us/politics/trump-deportation-courts-venezuelan-migrants-texas.html
+
+**Messi and Miami defeat Crew to stay unbeaten amid fresh injury concern**\
+`Miami coach Javier Mascherano claimed to be unaware of any Messi injury, but TV commentators thought different.`\
+https://nytimes.com/athletic/6293019/2025/04/19/lionel-messi-inter-miami-columbus-crew-mls/
+
 **Trump Administration Asks Justices to Reject A.C.L.U. Request to Pause Deportations**\
 `The solicitor general asked the Supreme Court to ‘dissolve’ their temporary block on the deportations of Venezuelans and to allow lower courts to consider the case.`\
 https://nytimes.com/2025/04/19/us/politics/trump-administration-scotus-deportations.html
@@ -30,12 +38,4 @@ https://nytimes.com/live/2025/04/19/us/trump-news/arizona-governor-vetoes-bill-t
 **Padres prospect Tirso Ornelas gets first call-up as Jason Heyward lands on IL**\
 `Ornelas was hitting .281/.418/.359 with one home run in 17 games with El Paso.`\
 https://nytimes.com/athletic/6292946/2025/04/19/padres-prospect-tirso-ornelas-call-up-jason-heyward-il/
-
-**The Cubs may have the best offense in baseball. How are they doing it?**\
-`Three key reasons the Cubs' offense is humming through 23 games.`\
-https://nytimes.com/athletic/6292876/2025/04/19/chicago-cubs-best-offense-in-baseball-how/
-
-**Stanford-Cal breaks college softball attendance record with 13,207 fans**\
-`The previous record of 12,566 was set at last year’s College World Series in Oklahoma City.`\
-https://nytimes.com/athletic/6291222/2025/04/19/stanford-softball-attendance-record-cal/
 
