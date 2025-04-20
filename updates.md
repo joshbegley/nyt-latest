@@ -1,3 +1,19 @@
+**Arsenal endure their reminder of Lyon's pedigree but still go to France with hope**\
+`The French club had the X factor at the Emirates, yet there were still grounds for encouragement for Renee Slegers’ side ahead of the return`\
+https://nytimes.com/athletic/6292111/2025/04/20/arsenal-lyon-women-champions-league/
+
+**Carlos Vicente: From rugby roots to a meteoric La Liga rise and being mesmerised by Yamal**\
+`The Alaves winger is making a name for himself in La Liga but fancies playing in England - he loves US sport and is studying a degree, too`\
+https://nytimes.com/athletic/6289789/2025/04/20/carlos-vicente-interview-alaves-lamine-yamal-la-liga/
+
+**Taylor Swift, Norwegian pop and a lot of Coldplay: What music do Premier League managers listen to?**\
+`We found an odd mix of musical tastes among a selection of Premier League managers...`\
+https://nytimes.com/athletic/6263867/2025/04/20/premier-league-managers-music/
+
+**How Italy won the 1938 World Cup: Piola magic and a missing Brazilian**\
+`The third in our series looking at the teams who won each World Cup`\
+https://nytimes.com/athletic/6287375/2025/04/20/world-cup-winners-italy-1938/
+
 **Pat Verbeek's decision to fire Greg Cronin was bold. Now it's on the Ducks GM to deliver**\
 `Verbeek made his move. Now he has to not only find a new coach, but find a way to give that coach a better roster.
 `\

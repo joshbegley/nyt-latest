@@ -1,3 +1,19 @@
+**Arsenal endure their reminder of Lyon's pedigree but still go to France with hope**\
+`The French club had the X factor at the Emirates, yet there were still grounds for encouragement for Renee Slegers’ side ahead of the return`\
+https://nytimes.com/athletic/6292111/2025/04/20/arsenal-lyon-women-champions-league/
+
+**Carlos Vicente: From rugby roots to a meteoric La Liga rise and being mesmerised by Yamal**\
+`The Alaves winger is making a name for himself in La Liga but fancies playing in England - he loves US sport and is studying a degree, too`\
+https://nytimes.com/athletic/6289789/2025/04/20/carlos-vicente-interview-alaves-lamine-yamal-la-liga/
+
+**Taylor Swift, Norwegian pop and a lot of Coldplay: What music do Premier League managers listen to?**\
+`We found an odd mix of musical tastes among a selection of Premier League managers...`\
+https://nytimes.com/athletic/6263867/2025/04/20/premier-league-managers-music/
+
+**How Italy won the 1938 World Cup: Piola magic and a missing Brazilian**\
+`The third in our series looking at the teams who won each World Cup`\
+https://nytimes.com/athletic/6287375/2025/04/20/world-cup-winners-italy-1938/
+
 **At World Expo, Japan Recalls a Faded Dynamism**\
 `The event is stirring memories of an exhibition in 1970, when the postwar Japanese economy was taking off and “you could have dreams about the future.”`\
 https://nytimes.com/2025/04/20/business/japan-osaka-world-expo.html
@@ -21,21 +37,4 @@ https://nytimes.com/athletic/6291878/2025/04/20/connections-sports-edition-hints
 **Stars lose eighth consecutive Game 1 as Avalanche take convincing road win: Takeaways**\
 `Goaltender Mackenzie Blackwood was nearly perfect in the Avs' 5-1 victory in Game 1 of their first-round series with the Dallas Stars.`\
 https://nytimes.com/athletic/6293205/2025/04/19/avalanche-stars-nhl-playoffs-game-1/
-
-**How Knicks rode a 21-0 fourth-quarter run to surge past Pistons in Game 1**\
-`New York now lead the series, closing out a 123-112 victory Saturday.`\
-https://nytimes.com/athletic/6293245/2025/04/19/knicks-pistons-nba-playoffs-result/
-
-**Clippers get quick reminder that expectations are different in the playoffs**\
-`The Clippers watched yet another double-digit lead disappear in Denver, this time in Game 1.`\
-https://nytimes.com/athletic/6293089/2025/04/19/la-clippers-denver-nuggets-nba-game-1/
-
-**Pat Verbeek's decision to fire Greg Cronin was bold. Now it's on the Ducks GM to deliver**\
-`Verbeek made his move. Now he has to not only find a new coach, but find a way to give that coach a better roster.
-`\
-https://nytimes.com/athletic/6293131/2025/04/19/ducks-fire-greg-cronin-pat-verbeek/
-
-**Washington Spirit hand reigning NWSL champion Orlando Pride first loss of the season**\
-`The Spirit had listed eleven players as unavailable due to injury before the match. `\
-https://nytimes.com/athletic/6293207/2025/04/19/washington-spirit-defeat-orlando-pride-injury-soccer/
 
