@@ -18,7 +18,7 @@ https://nytimes.com/2025/04/20/crosswords/spelling-bee-forum.html
 `Barcelona were 3-1 down against Celta Vigo but managed to respond and win the game 4-3 in stoppage time`\
 https://nytimes.com/athletic/6292924/2025/04/20/barcelona-celta-vigo-analysis/
 
-**Frank deserves more credit for making Mbeumo and Wissa Brentford's post-Toney solution**\
+**Life after Toney: How Frank has used Mbeumo and Wissa to improve Brentford**\
 `Mbeumo and Wissa have a total of 34 combined goals this term (18 for Mbeumo, 16 for Wissa) for Brentford`\
 https://nytimes.com/athletic/6292798/2025/04/20/brentford-bryan-mbuemo-yoanne-wissa-analysis/
 

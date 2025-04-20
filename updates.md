@@ -1,3 +1,7 @@
+**Barcelona's epic comeback at their worst - and the message it sends to their title rivals**\
+`Barcelona were 3-1 down against Celta Vigo but managed to respond and win the game 4-3 in stoppage time`\
+https://nytimes.com/athletic/6292924/2025/04/20/barcelona-celta-vigo-analysis/
+
 **The Trade Adviser Who Hates Trade**\
 `Once sidelined, President Trump’s counselor Peter Navarro has returned to Washington and quickly upended the global trading system.`\
 https://nytimes.com/2025/04/20/business/economy/peter-navarro-trump-tariffs.html
