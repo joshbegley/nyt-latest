@@ -1,3 +1,7 @@
+**Clippers get quick reminder that expectations are different in the playoffs**\
+`The Clippers watched yet another double-digit lead disappear in Denver, this time in Game 1.`\
+https://nytimes.com/athletic/6293089/2025/04/19/la-clippers-denver-nuggets-nba-game-1/
+
 **Pat Verbeek's decision to fire Greg Cronin was bold. Now it's on the Ducks GM to deliver**\
 `Verbeek made his move. Now he has to not only find a new coach, but find a way to give that coach a better roster.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6293044/2025/04/19/roki-sasaki-dodgers-fastball-bul
 **Patrik Laine, Ivan Demidov give Canadiens 2 X-factors in playoff series against Capitals**\
 `Both the rookie Demidov and the veteran Laine could benefit from the new start the playoffs provide.`\
 https://nytimes.com/athletic/6293056/2025/04/19/canadiens-capitals-nhl-playoffs-laine-demidov/
-
-**Inside the Urgent Fight Over the Trump Administration’s New Deportation Effort**\
-`The push to deport a group of Venezuelans raises questions about whether the government is following a Supreme Court order requiring that migrants receive due process.`\
-https://nytimes.com/2025/04/19/us/politics/trump-deportation-courts-venezuelan-migrants-texas.html
 
