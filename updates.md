@@ -1,3 +1,15 @@
+**Max Verstappen says he can't speak his mind for fear of penalties in F1**\
+`Verstappen received a five-second time penalty for an incident but refused to speak much about his objections`\
+https://nytimes.com/athletic/6294780/2025/04/20/max-verstappen-f1-saudi-arabia-penalty-opinion/
+
+**Dodgers pitcher Tyler Glasnow leaves game with apparent injury**\
+`The pitcher pointed at his ankle before being pulled from the game, though it has not been specified what bothered him.`\
+https://nytimes.com/athletic/6294760/2025/04/20/dodgers-pitcher-tyler-glasnow-leaves-apparent-injury/
+
+**Bunnies, Bonnets, Brights and Blooms at New York’s Easter Parade**\
+`Time for revelry, and a celebration of spring, on a Sunday in the city.`\
+https://nytimes.com/2025/04/20/style/nyc-easter-parade-bonnet-festival.html
+
 **Max Fried's no-hit bid ends in 8th after controversial scoring change**\
 `"I made a decision," Rays official scorer Bill Mathews said about the change.`\
 https://nytimes.com/athletic/6294733/2025/04/20/max-fried-no-hitter-ended-error/

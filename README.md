@@ -10,8 +10,8 @@ https://nytimes.com/athletic/6294733/2025/04/20/max-fried-no-hitter-ended-error/
 `The pitcher pointed at his ankle before being pulled from the game, though it has not been specified what bothered him.`\
 https://nytimes.com/athletic/6294760/2025/04/20/dodgers-pitcher-tyler-glasnow-leaves-apparent-injury/
 
-**Ronald Acuña Jr. on Braves' reaction to Jarred Kelenic mistake: 'They would take me out'**\
-`Saturday's base running gaffe with Jarred Kelenic was similar to one in August 2019 when Acuña was removed from a game by Snitker.`\
+**Acuña Jr. on Braves' reaction to Kelenic mistake: 'They would take me out'**\
+`Saturday's base-running gaffe with Jarred Kelenic was similar to one in August 2019 when Acuña was removed from a game by Snitker.`\
 https://nytimes.com/athletic/6294714/2025/04/20/ronald-acuna-jr-jarred-kelenic-braves-reaction-hustle/
 
 **Bunnies, Bonnets, Brights and Blooms at New York’s Easter Parade**\
