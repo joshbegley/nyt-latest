@@ -1,3 +1,7 @@
+**In Game 1, Timberwolves show signs of confidence needed to upset Lakers**\
+`"Most teams have your top two, three guys who may have a night. But here, we have eight guys who can have a night," said Donte DiVincenzo.`\
+https://nytimes.com/athletic/6293663/2025/04/20/timberwolves-lakers-nba-playoffs-game-1/
+
 **Cases challenging the Trump administration’s deportations hinge on two key legal terms.**\
 `Two concepts — due process and habeas corpus — are central to cases challenging the Trump administration’s deportations. Here’s what they mean and why they matter.`\
 https://nytimes.com/live/2025/04/20/us/trump-news/due-process-habeas-corpus
@@ -10,7 +14,7 @@ https://nytimes.com/live/2025/04/20/us/trump-news
 `The real story about Trump’s tariffs may not be about trade. In many ways, it’s about power.`\
 https://nytimes.com/2025/04/20/opinion/trump-tariffs-authoritarianism.html
 
-**Undercutting Our Scientists and Our Progress**\
+**Undercutting the Progress of American Science**\
 `Readers worry about the Trump administration’s cuts to research funding.`\
 https://nytimes.com/2025/04/20/opinion/trump-science-cuts.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6285500/2025/04/20/jalen-green-rockets-warriors-202
 **Maple Leafs vs. Senators: 5 burning questions for the first round**\
 `The five things to watch closest as we get set for Game 1 of the best rivalry series in Round 1 of the playoffs this year.`\
 https://nytimes.com/athletic/6293238/2025/04/20/maple-leafs-senators-nhl-playoffs/
-
-**Five key Oilers questions entering first-round series with Kings**\
-`Concerns about health, even if they’re slowly fading, aren’t the only things to ponder with the Oilers.`\
-https://nytimes.com/athletic/6292395/2025/04/20/oilers-kings-series-nhl-playoffs/
 

@@ -1,3 +1,11 @@
+**In Game 1, Timberwolves show signs of confidence needed to upset Lakers**\
+`"Most teams have your top two, three guys who may have a night. But here, we have eight guys who can have a night," said Donte DiVincenzo.`\
+https://nytimes.com/athletic/6293663/2025/04/20/timberwolves-lakers-nba-playoffs-game-1/
+
+**Undercutting the Progress of American Science**\
+`Readers worry about the Trump administration’s cuts to research funding.`\
+https://nytimes.com/2025/04/20/opinion/trump-science-cuts.html
+
 **Cases challenging the Trump administration’s deportations hinge on two key legal terms.**\
 `Two concepts — due process and habeas corpus — are central to cases challenging the Trump administration’s deportations. Here’s what they mean and why they matter.`\
 https://nytimes.com/live/2025/04/20/us/trump-news/due-process-habeas-corpus
