@@ -1,3 +1,8 @@
+**Pat Verbeek's decision to fire Greg Cronin was bold. Now it's on the Ducks GM to deliver**\
+`Verbeek made his move. Now he has to not only find a new coach, but find a way to give that coach a better roster.
+`\
+https://nytimes.com/athletic/6293131/2025/04/19/ducks-fire-greg-cronin-pat-verbeek/
+
 **Washington Spirit hand reigning NWSL champion Orlando Pride first loss of the season**\
 `The Spirit had listed eleven players as unavailable due to injury before the match. `\
 https://nytimes.com/athletic/6293207/2025/04/19/washington-spirit-defeat-orlando-pride-injury-soccer/
@@ -33,8 +38,4 @@ https://nytimes.com/athletic/6293056/2025/04/19/canadiens-capitals-nhl-playoffs-
 **Inside the Urgent Fight Over the Trump Administration’s New Deportation Effort**\
 `The push to deport a group of Venezuelans raises questions about whether the government is following a Supreme Court order requiring that migrants receive due process.`\
 https://nytimes.com/2025/04/19/us/politics/trump-deportation-courts-venezuelan-migrants-texas.html
-
-**Messi and Miami defeat Crew to stay unbeaten amid fresh injury concern**\
-`Miami coach Javier Mascherano claimed to be unaware of any Messi injury, but TV commentators thought different.`\
-https://nytimes.com/athletic/6293019/2025/04/19/lionel-messi-inter-miami-columbus-crew-mls/
 
