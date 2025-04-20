@@ -1,3 +1,7 @@
+**USA defeats Canada in wild gold medal showdown at Women’s World Championship**\
+`Team USA beat Canada 4-3 in overtime to claim gold at the 2025 Women's World Championship.`\
+https://nytimes.com/athletic/6294426/2025/04/20/usa-canada-gold-medal-womens-world-championship/
+
 **After meeting wrongly deported man, Van Hollen accuses Trump of defying courts.**\
 `By Minho Kim`\
 https://nytimes.com/live/2025/04/20/us/trump-news/after-meeting-wrongly-deported-man-van-hollen-accuses-trump-of-defying-courts
