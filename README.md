@@ -1,3 +1,15 @@
+**Max Fried's no-hit bid ends in 8th after controversial scoring change**\
+`"I made a decision," Rays official scorer Bill Mathews said about the change.`\
+https://nytimes.com/athletic/6294733/2025/04/20/max-fried-no-hitter-ended-error/
+
+**Dodgers pitcher Tyler Glasnow leaves game with apparent injury**\
+`Pitcher pointed at his ankle before being pulled from game, though team has not specified what was bothering right-hander.`\
+https://nytimes.com/athletic/6294760/2025/04/20/dodgers-pitcher-tyler-glasnow-leaves-apparent-injury/
+
+**Ronald Acuña Jr. on Braves' reaction to Jarred Kelenic mistake: 'They would take me out'**\
+`Saturday's base running gaffe with Jarred Kelenic was similar to one in August 2019 when Acuña was removed from a game by Snitker.`\
+https://nytimes.com/athletic/6294714/2025/04/20/ronald-acuna-jr-jarred-kelenic-braves-reaction-hustle/
+
 **Bunnies, Bonnets, Brights and Blooms at New York’s Easter Parade**\
 `Time for revelry, and a celebration of spring, Sunday in the city.`\
 https://nytimes.com/2025/04/20/style/nyc-easter-parade-bonnet-festival.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/world/europe/100000010120464/pope-francis-blessing-eas
 **Saudi Arabian Grand Prix briefing: Oscar Piastri wins, Ferrari secures first season podium**\
 `Oscar Piastri secured his third win of the season to take the lead in the drivers' championship`\
 https://nytimes.com/athletic/6294371/2025/04/20/saudi-arabian-grand-prix-briefing-oscar-piastri-wins-mclaren/
-
-**Blue Jackets Sunday Gathering: The good, bad and ugly of our 'bold' preseason predictions**\
-`Looking back on our early Blue Jackets predictions, here's what we saw coming and where we hit and missed.`\
-https://nytimes.com/athletic/6292311/2025/04/20/blue-jackets-season-predictions-2024-25/
-
-**Alexander-Arnold savouring 'special' Liverpool days, won't comment on Madrid move**\
-`Madrid are widely expected to complete the signing of the right-back at the end of the season, when his Liverpool contract expires`\
-https://nytimes.com/athletic/6294385/2025/04/20/trent-alexander-arnold-real-madrid-transfer-liverpool/
-
-**Kevin De Bruyne would happily be part of City's rebuild. Should he be?**\
-`De Bruyne will leave City in the summer at age 34 after 10 success-packed years - and he has now spoken about his departure`\
-https://nytimes.com/athletic/6292725/2025/04/20/kevin-de-bruyne-manchester-city-exit-latest/
 
