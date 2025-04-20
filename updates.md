@@ -1,3 +1,7 @@
+**Kevin De Bruyne would happily be part of City's rebuild. Should he be?**\
+`De Bruyne will leave City in the summer at age 34 after 10 success-packed years - and he has now spoken about his departure`\
+https://nytimes.com/athletic/6292725/2025/04/20/kevin-de-bruyne-manchester-city-exit-latest/
+
 **A New Conductor Isn’t Daunted by the Size of the Met**\
 `Joana Mallwitz is in calm, stylish command making her debut with Mozart’s “The Marriage of Figaro,” running in repertory with “The Magic Flute.”`\
 https://nytimes.com/2025/04/20/arts/music/joana-mallwitz-marriage-of-figaro-magic-flute-met.html
