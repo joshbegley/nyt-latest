@@ -1,3 +1,11 @@
+**Sam Rak-Sakyi and a very familiar Chelsea dilemma: Should he stay or should he go?**\
+`The 20-year-old has been at Chelsea since under-eight level but has seen his big brother Jesurun kick on since leaving for Crystal Palace`\
+https://nytimes.com/athletic/6290083/2025/04/20/rak-sakyi-chelsea-contract/
+
+**Why Liverpool's title win is more impressive than some people are giving it credit for**\
+`A lack of tension at the end of the season shouldn't obscure the quality of Liverpool's performance under a new head coach`\
+https://nytimes.com/athletic/6291760/2025/04/20/liverpool-title-bid-context-premier-league/
+
 **Where does Manchester United's Lyon win rank among the club's greatest European comebacks?**\
 `Where does United 5-4 Lyon rank among the club's most memorable come-from-behind triumphs in Europe?`\
 https://nytimes.com/athletic/6292130/2025/04/20/manchester-united-lyon-champions-league-europa/
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010089625/how-violence-erupted-
 **Inside a City Swept by Roving Gunmen, Deadly Grudges and Fear**\
 `A sectarian-fueled killing spree exposed how fragile peace is in Syria, where the government’s control is limited and tension runs deep after nearly 14 years of civil war.`\
 https://nytimes.com/2025/04/20/world/middleeast/syria-alawite-massacre.html
-
-**Strawberries Aren’t Ripe for Africa? His Farms Disprove That, Deliciously.**\
-`Thierno Agne left behind studying law to grow strawberries, a shocking move in Senegal, where farming is considered work for the old, poor and uneducated. His success is making the profession “sexy.”`\
-https://nytimes.com/2025/04/20/world/africa/senegal-strawberry-farmer-profile.html
-
-**Connections: Sports Edition Coach: Hints for April 20, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6291878/2025/04/20/connections-sports-edition-hints-for-april-20-2025/
 

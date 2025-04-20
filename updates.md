@@ -1,3 +1,11 @@
+**Sam Rak-Sakyi and a very familiar Chelsea dilemma: Should he stay or should he go?**\
+`The 20-year-old has been at Chelsea since under-eight level but has seen his big brother Jesurun kick on since leaving for Crystal Palace`\
+https://nytimes.com/athletic/6290083/2025/04/20/rak-sakyi-chelsea-contract/
+
+**Why Liverpool's title win is more impressive than some people are giving it credit for**\
+`A lack of tension at the end of the season shouldn't obscure the quality of Liverpool's performance under a new head coach`\
+https://nytimes.com/athletic/6291760/2025/04/20/liverpool-title-bid-context-premier-league/
+
 **Where does Manchester United's Lyon win rank among the club's greatest European comebacks?**\
 `Where does United 5-4 Lyon rank among the club's most memorable come-from-behind triumphs in Europe?`\
 https://nytimes.com/athletic/6292130/2025/04/20/manchester-united-lyon-champions-league-europa/
