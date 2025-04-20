@@ -1,3 +1,11 @@
+**Blue Jackets Sunday Gathering: The good, bad and ugly of our 'bold' preseason predictions**\
+`Looking back on our early Blue Jackets predictions, here's what we saw coming and where we hit and missed.`\
+https://nytimes.com/athletic/6292311/2025/04/20/blue-jackets-season-predictions-2024-25/
+
+**Alexander-Arnold savouring 'special' Liverpool days, won't comment on Madrid move**\
+`Madrid are widely expected to complete the signing of the right-back at the end of the season, when his Liverpool contract expires`\
+https://nytimes.com/athletic/6294385/2025/04/20/trent-alexander-arnold-real-madrid-transfer-liverpool/
+
 **Kevin De Bruyne would happily be part of City's rebuild. Should he be?**\
 `De Bruyne will leave City in the summer at age 34 after 10 success-packed years - and he has now spoken about his departure`\
 https://nytimes.com/athletic/6292725/2025/04/20/kevin-de-bruyne-manchester-city-exit-latest/

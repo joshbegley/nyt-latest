@@ -1,3 +1,11 @@
+**Blue Jackets Sunday Gathering: The good, bad and ugly of our 'bold' preseason predictions**\
+`Looking back on our early Blue Jackets predictions, here's what we saw coming and where we hit and missed.`\
+https://nytimes.com/athletic/6292311/2025/04/20/blue-jackets-season-predictions-2024-25/
+
+**Alexander-Arnold savouring 'special' Liverpool days, won't comment on Madrid move**\
+`Madrid are widely expected to complete the signing of the right-back at the end of the season, when his Liverpool contract expires`\
+https://nytimes.com/athletic/6294385/2025/04/20/trent-alexander-arnold-real-madrid-transfer-liverpool/
+
 **Kevin De Bruyne would happily be part of City's rebuild. Should he be?**\
 `De Bruyne will leave City in the summer at age 34 after 10 success-packed years - and he has now spoken about his departure`\
 https://nytimes.com/athletic/6292725/2025/04/20/kevin-de-bruyne-manchester-city-exit-latest/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6294210/2025/04/20/rasmus-hojlund-manchester-united
 **2 Dead in Oklahoma Flooding as Severe Weather Threatens the Midwest**\
 `Two people died after their vehicle was trapped in floodwaters. Hail and strong winds were possible in parts of Arkansas, Missouri and Oklahoma on Sunday, forecasters said.`\
 https://nytimes.com/2025/04/20/weather/storms-flood-tornado-oklahoma-texas.html
-
-**Flipping the script: Knicks player once 'hated' by his teammates is Game 1's unlikely hero**\
-`Jalen Brunson and Cam Payne combined for the greatest four minutes of the Knicks’ season. "Everybody’s on my side this time,” Payne said.`\
-https://nytimes.com/athletic/6293560/2025/04/20/cameron-payne-knicks-sixers-nba-playoffs/
-
-**The Briefing: Ipswich 0 Arsenal 4 - Arteta PSG plans take shape, Saka unscathed, Martinelli landmark**\
-`Jordan Campbell looks at what Arteta learnt from a straightforward Premier League win ahead of that Champions League semi-final with PSG `\
-https://nytimes.com/athletic/6291826/2025/04/20/arsenal-saka-martinelli-trossard/
 
