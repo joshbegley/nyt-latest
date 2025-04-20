@@ -1,3 +1,7 @@
+**How the Knicks' defense won Game 1 against the Pistons and Cade Cunningham**\
+`New York stayed disciplined even when things got dicey, and it got them a Game 1 win over the Pistons.`\
+https://nytimes.com/athletic/6293371/2025/04/20/knicks-defense-wins-game-1-pistons-cade-cunningham/
+
 **Sam Rak-Sakyi and a very familiar Chelsea dilemma: Should he stay or should he go?**\
 `The 20-year-old has been at Chelsea since under-eight level but has seen his big brother Jesurun kick on since leaving for Crystal Palace`\
 https://nytimes.com/athletic/6290083/2025/04/20/rak-sakyi-chelsea-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/20/business/japan-osaka-world-expo.html
 **How Violence Erupted On Syria’s Coast**\
 `Massacres have spread across once-quiet towns on Syria’s Mediterranean coast, in the deadliest outbreak of sectarian violence since rebels toppled the dictator Bashar al-Assad. Christina Goldbaum, The New York Times’s bureau chief in Syria, traveled to the area to get a sense of who was responsible.`\
 https://nytimes.com/video/world/middleeast/100000010089625/how-violence-erupted-on-syrias-coast.html
-
-**Inside a City Swept by Roving Gunmen, Deadly Grudges and Fear**\
-`A sectarian-fueled killing spree exposed how fragile peace is in Syria, where the government’s control is limited and tension runs deep after nearly 14 years of civil war.`\
-https://nytimes.com/2025/04/20/world/middleeast/syria-alawite-massacre.html
 

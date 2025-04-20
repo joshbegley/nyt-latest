@@ -1,3 +1,7 @@
+**How the Knicks' defense won Game 1 against the Pistons and Cade Cunningham**\
+`New York stayed disciplined even when things got dicey, and it got them a Game 1 win over the Pistons.`\
+https://nytimes.com/athletic/6293371/2025/04/20/knicks-defense-wins-game-1-pistons-cade-cunningham/
+
 **Sam Rak-Sakyi and a very familiar Chelsea dilemma: Should he stay or should he go?**\
 `The 20-year-old has been at Chelsea since under-eight level but has seen his big brother Jesurun kick on since leaving for Crystal Palace`\
 https://nytimes.com/athletic/6290083/2025/04/20/rak-sakyi-chelsea-contract/
