@@ -1,3 +1,7 @@
+**Acuña Jr. on Braves' reaction to Kelenic mistake: 'They would take me out'**\
+`Saturday's base running gaffe with Jarred Kelenic was similar to one in August 2019 when Acuña was removed from a game by Snitker.`\
+https://nytimes.com/athletic/6294714/2025/04/20/ronald-acuna-jr-jarred-kelenic-braves-reaction-hustle/
+
 **Saudi Arabian Grand Prix: Submit your questions for our F1 mailbag**\
 `What questions do you have for our writers after the Saudi Arabian Grand Prix?`\
 https://nytimes.com/athletic/6294903/2025/04/20/saudi-arabian-grand-prix-submit-your-questions-for-our-f1-mailbag/
