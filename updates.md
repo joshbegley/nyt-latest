@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6293131/2025/04/19/ducks-fire-greg-cronin-pat-verbe
 `\
 https://nytimes.com/athletic/6293131/2025/04/19/ducks-fire-greg-cronin-pat-verbeek/
 
+**Pat Verbeek's decision to fire Greg Cronin was bold. Now it's on the Ducks GM to deliver**\
+`Verbeek made his move. Now he has to not only find a new coach, but find a way to give that coach a better roster.
+`\
+https://nytimes.com/athletic/6293131/2025/04/19/ducks-fire-greg-cronin-pat-verbeek/
+
 **Clippers get quick reminder that expectations are different in the playoffs**\
 `The Clippers watched yet another double-digit lead disappear in Denver, this time in Game 1.`\
 https://nytimes.com/athletic/6293089/2025/04/19/la-clippers-denver-nuggets-nba-game-1/
