@@ -1,3 +1,23 @@
+**At World Expo, Japan Recalls a Faded Dynamism**\
+`The event is stirring memories of an exhibition in 1970, when the postwar Japanese economy was taking off and “you could have dreams about the future.”`\
+https://nytimes.com/2025/04/20/business/japan-osaka-world-expo.html
+
+**How Violence Erupted On Syria’s Coast**\
+`Massacres have spread across once-quiet towns on Syria’s Mediterranean coast, in the deadliest outbreak of sectarian violence since rebels toppled the dictator Bashar al-Assad. Christina Goldbaum, The New York Times’s bureau chief in Syria, traveled to the area to get a sense of who was responsible.`\
+https://nytimes.com/video/world/middleeast/100000010089625/how-violence-erupted-on-syrias-coast.html
+
+**Inside a City Swept by Roving Gunmen, Deadly Grudges and Fear**\
+`A sectarian-fueled killing spree exposed how fragile peace is in Syria, where the government’s control is limited and tension runs deep after nearly 14 years of civil war.`\
+https://nytimes.com/2025/04/20/world/middleeast/syria-alawite-massacre.html
+
+**Strawberries Aren’t Ripe for Africa? His Farms Disprove That, Deliciously.**\
+`Thierno Agne left behind studying law to grow strawberries, a shocking move in Senegal, where farming is considered work for the old, poor and uneducated. His success is making the profession “sexy.”`\
+https://nytimes.com/2025/04/20/world/africa/senegal-strawberry-farmer-profile.html
+
+**Connections: Sports Edition Coach: Hints for April 20, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6291878/2025/04/20/connections-sports-edition-hints-for-april-20-2025/
+
 **Stars lose eighth consecutive Game 1 as Avalanche take convincing road win: Takeaways**\
 `Goaltender Mackenzie Blackwood was nearly perfect in the Avs' 5-1 victory in Game 1 of their first-round series with the Dallas Stars.`\
 https://nytimes.com/athletic/6293205/2025/04/19/avalanche-stars-nhl-playoffs-game-1/
@@ -18,24 +38,4 @@ https://nytimes.com/athletic/6293131/2025/04/19/ducks-fire-greg-cronin-pat-verbe
 **Washington Spirit hand reigning NWSL champion Orlando Pride first loss of the season**\
 `The Spirit had listed eleven players as unavailable due to injury before the match. `\
 https://nytimes.com/athletic/6293207/2025/04/19/washington-spirit-defeat-orlando-pride-injury-soccer/
-
-**How the Yankees are explaining Devin Williams' early-season struggles**\
-`Williams' ERA is up to 9.00 after blowing an 8-4 lead in Saturday's 10-8 extra-innings loss to the Tampa Bay Rays.`\
-https://nytimes.com/athletic/6293116/2025/04/19/yankees-devin-williams-struggles/
-
-**After struggling at the plate, Triston Casas sparks Red Sox walk-off win**\
-`Manager Alex Cora had moved Casas down in the order, which may have helped him at the plate. Garrett Crochet delivered another solid start.`\
-https://nytimes.com/athletic/6293163/2025/04/19/triston-casas-red-sox-walk-off-win/
-
-**Jets score late winner to down Blues in Game 1: Takeaways**\
-`The Jets tied the game midway through the third and scored the winner late to rally back for a 5-3 Game 1 win.`\
-https://nytimes.com/athletic/6293156/2025/04/19/jets-blues-nhl-playoffs-2025-game-1-takeaways/
-
-**Colorado retires Travis Hunter, Shedeur Sanders jerseys**\
-`The Buffaloes also announced plans for a statue of former coach Bill McCartney, who coached Colorado to the 1990 national title.`\
-https://nytimes.com/athletic/6293077/2025/04/19/travis-hunter-shedeur-sanders-jersey-retirement-colorado/
-
-**'Our offense was awful': Giannis needs help for Bucks to recover in Pacers series**\
-`Giannis Antetokounmpo's massive effort wasn't enough as his teammates were unable to match the roster-wide contributions of the Pacers.`\
-https://nytimes.com/athletic/6292811/2025/04/19/bucks-pacers-game-1-nba-playoffs-giannis-antetokounmpo/
 
