@@ -1,3 +1,7 @@
+**Padres' Luis Arraez leaves game on cart after colliding with Astros' Mauricio Dubón**\
+`Dubón’s shoulder appeared to make contact with the head of Arraez, who was motionless on the field as trainers rushed to his aid.`\
+https://nytimes.com/athletic/6295133/2025/04/20/padres-luis-arraez-collision-mauricio-dubon/
+
 **Liam Hendriks is back in the bigs after 681 days: 'It's been a long and arduous journey'**\
 `Hendriks didn't have the results he wanted in his first MLB game since June 2023, but that he was back at all was worth celebrating.`\
 https://nytimes.com/athletic/6294984/2025/04/20/liam-hendriks-red-sox-return/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6294805/2025/04/20/capitals-nhl-playoffs-canadiens-
 **Contents of a Sleeve**\
 `Thomas van Geel’s second crossword is set in the ol’ factory.`\
 https://nytimes.com/2025/04/20/crosswords/daily-puzzle-2025-04-21.html
-
-**Logan Stankoven scores 2 as Hurricanes show big edge over Devils in Game 1 rout: 5 takeaways**\
-`Almost every concern surrounding the Devils’ playoff chances appeared warranted in Game 1.`\
-https://nytimes.com/athletic/6294914/2025/04/20/devils-hurricanes-nhl-playoffs-game-1/
 
