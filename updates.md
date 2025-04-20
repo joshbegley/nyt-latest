@@ -1,3 +1,15 @@
+**The Darfur Genocide Never Ended**\
+`As Sudan’s soldiers and rebels continue to fight, the one constant seems to be that Sudanese civilians bear the brunt of their abuse.`\
+https://nytimes.com/2025/04/20/opinion/sudan-darfur-genocide.html
+
+**The New York Times in Print for Sunday, April 20, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/20/todays-new-york-times
+
+**The Conservative Legal Doctrine That Could Undo Trump’s Agenda**\
+`What goes around, comes around. And it is not likely to be good for the White House.`\
+https://nytimes.com/2025/04/20/opinion/trump-challenge-supreme-court.html
+
 **Pistons learn hard playoff lesson from Knicks. Now they have to respond**\
 `Inexperienced Detroit looked good for three quarters, but New York went on a 21-0 run in the fourth to earn the Game 1 win.`\
 https://nytimes.com/athletic/6293443/2025/04/20/detroit-pistons-new-york-knicks-nba-game-1/
