@@ -1,3 +1,12 @@
+**Stars lose eighth consecutive Game 1 as Avalanche take convincing road win: Takeaways**\
+`Goaltender Mackenzie Blackwood was nearly perfect in the Avs' 5-1 victory in Game 1 of their first-round series with the Dallas Stars.`\
+https://nytimes.com/athletic/6293205/2025/04/19/avalanche-stars-nhl-playoffs-game-1/
+
+**Pat Verbeek's decision to fire Greg Cronin was bold. Now it's on the Ducks GM to deliver**\
+`Verbeek made his move. Now he has to not only find a new coach, but find a way to give that coach a better roster.
+`\
+https://nytimes.com/athletic/6293131/2025/04/19/ducks-fire-greg-cronin-pat-verbeek/
+
 **Pat Verbeek's decision to fire Greg Cronin was bold. Now it's on the Ducks GM to deliver**\
 `Verbeek made his move. Now he has to not only find a new coach, but find a way to give that coach a better roster.
 `\

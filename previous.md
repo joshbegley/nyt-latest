@@ -1,4 +1,4 @@
-**Stars lose 8th consecutive Game 1 as Avalanche take convincing road win: Takeaways**\
+**Stars lose eighth consecutive Game 1 as Avalanche take convincing road win: Takeaways**\
 `Goaltender Mackenzie Blackwood was nearly perfect in the Avs' 5-1 victory in Game 1 of their first-round series with the Dallas Stars.`\
 https://nytimes.com/athletic/6293205/2025/04/19/avalanche-stars-nhl-playoffs-game-1/
 
