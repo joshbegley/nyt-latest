@@ -1,3 +1,19 @@
+**The Briefing: Ipswich 0 Arsenal 4 - Arteta PSG plans take shape, Saka unscathed, Martinelli landmark**\
+`Jordan Campbell looks at what Arteta learnt ahead of PSG from a straightforward Premier League win.`\
+https://nytimes.com/athletic/6291826/2025/04/20/arsenal-saka-martinelli-trossard/
+
+**The Briefing: Man Utd 0 Wolves 1 - Yet another defeat but does it even matter?**\
+`Analysing the major talking points from Sunday's Premier League defeat at Old Trafford`\
+https://nytimes.com/athletic/6291827/2025/04/20/man-utd-wolves-premier-league-result-analysis/
+
+**You’ll Want to Make Extra of These Deviled Eggs**\
+`They’re always a hit, and they always go fast.`\
+https://nytimes.com/2025/04/20/dining/deviled-eggs-recipe-for-crowd.html
+
+**The Briefing: Fulham 1 Chelsea 2 - How important was this win? Did Maresca's changes fix attack?**\
+`Chelsea picked up an important three points after coming from behind to beat Fulham 2-1`\
+https://nytimes.com/athletic/6291825/2025/04/20/fulham-chelsea-result-report-analysis/
+
 **Israel’s Military Cites ‘Professional Failures’ in Killings of Gaza Medics**\
 `In a statement summarizing its investigation into the deadly episode, the military said a deputy commander would be dismissed.`\
 https://nytimes.com/2025/04/20/world/middleeast/israel-gaza-medics.html
