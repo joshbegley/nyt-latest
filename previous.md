@@ -1,3 +1,7 @@
+**How Knicks rode a 21-0 fourth-quarter run to surge past Pistons in Game 1**\
+`New York now lead the series, closing out a 123-112 victory Saturday.`\
+https://nytimes.com/athletic/6293245/2025/04/19/knicks-pistons-nba-playoffs-result/
+
 **Clippers get quick reminder that expectations are different in the playoffs**\
 `The Clippers watched yet another double-digit lead disappear in Denver, this time in Game 1.`\
 https://nytimes.com/athletic/6293089/2025/04/19/la-clippers-denver-nuggets-nba-game-1/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6292811/2025/04/19/bucks-pacers-game-1-nba-playoffs
 **Dodgers' Roki Sasaki loses velocity but still gets Rangers out. Bullpen does not**\
 `Despite not having his usual fastball, Sasaki allowed just two runs on two hits in a career-best six innings.`\
 https://nytimes.com/athletic/6293044/2025/04/19/roki-sasaki-dodgers-fastball-bullpen-rangers/
-
-**Patrik Laine, Ivan Demidov give Canadiens 2 X-factors in playoff series against Capitals**\
-`Both the rookie Demidov and the veteran Laine could benefit from the new start the playoffs provide.`\
-https://nytimes.com/athletic/6293056/2025/04/19/canadiens-capitals-nhl-playoffs-laine-demidov/
 
