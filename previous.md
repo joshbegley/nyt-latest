@@ -1,3 +1,11 @@
+**How Jamal Murray found the best version of himself in Nuggets' overtime win over Clippers**\
+`For one half and an overtime, Murray was exactly the player the Nuggets needed him to be to pull off a Game 1 win.`\
+https://nytimes.com/athletic/6292865/2025/04/20/jamal-murray-nuggets-overtime-win-clippers/
+
+**Mackenzie Blackwood, revamped Avalanche leave slow-starting Stars with no margin for error**\
+`The Stars, who lost an eighth consecutive Game 1 on Saturday night, are good. But are they good enough to handle the Avalanche? `\
+https://nytimes.com/athletic/6293526/2025/04/20/dallas-stars-nhl-playoffs-game-1-avalanche/
+
 **The Darfur Genocide Never Ended**\
 `As Sudan’s soldiers and rebels continue to fight, the one constant seems to be that Sudanese civilians bear the brunt of their abuse.`\
 https://nytimes.com/2025/04/20/opinion/sudan-darfur-genocide.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6291760/2025/04/20/liverpool-title-bid-context-prem
 **Where does Manchester United's Lyon win rank among the club's greatest European comebacks?**\
 `Where does United 5-4 Lyon rank among the club's most memorable come-from-behind triumphs in Europe?`\
 https://nytimes.com/athletic/6292130/2025/04/20/manchester-united-lyon-champions-league-europa/
-
-**Arsenal endure their reminder of Lyon's pedigree but still go to France with hope**\
-`The French club had the X factor at the Emirates, yet there were still grounds for encouragement for Renee Slegers’ side ahead of the return`\
-https://nytimes.com/athletic/6292111/2025/04/20/arsenal-lyon-women-champions-league/
-
-**Carlos Vicente: From rugby roots to a meteoric La Liga rise and being mesmerised by Yamal**\
-`The Alaves winger is making a name for himself in La Liga but fancies playing in England - he loves US sport and is studying a degree, too`\
-https://nytimes.com/athletic/6289789/2025/04/20/carlos-vicente-interview-alaves-lamine-yamal-la-liga/
 
