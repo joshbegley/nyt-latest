@@ -1,3 +1,7 @@
+**Justin Thomas wins RBC Heritage for first PGA Tour win in nearly 3 years**\
+`After beating Andrew Novak in a playoff, the two-time major winner is back in the winner's circle.`\
+https://nytimes.com/athletic/6294998/2025/04/20/justin-thomas-rbc-heritage-results/
+
 **Mets' Brandon Nimmo explains aggressive new approach: 'I can't stop taking my shots'**\
 `Nimmo drove in the go-ahead run against the Cardinals a few hours after a Q&A breaking down his evolution as a hitter. `\
 https://nytimes.com/athletic/6294946/2025/04/20/mets-brandon-nimmo-interview-first-pitch/
