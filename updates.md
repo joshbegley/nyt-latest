@@ -1,3 +1,11 @@
+**Mets' Brandon Nimmo explains aggressive new approach: 'I can't stop taking my shots'**\
+`Nimmo drove in the go-ahead run against the Cardinals a few hours after a Q&A breaking down his evolution as a hitter. `\
+https://nytimes.com/athletic/6294946/2025/04/20/mets-brandon-nimmo-interview-first-pitch/
+
+**NBA awards finalists: Shai Gilgeous-Alexander, Nikola Jokić up for MVP**\
+`Jokić is the reigning MVP who’s won the award three times, while Gilgeous-Alexander was the NBA's top scorer this season.`\
+https://nytimes.com/athletic/6294904/2025/04/20/nba-awards-finalists-mvp-sga-jokic/
+
 **A rough weekend raises familiar concerns tor the Phillies' bullpen**\
 `The Phillies would be in great shape if everyone could be like José Alvarado right now.`\
 https://nytimes.com/athletic/6295030/2025/04/20/phillies-bullpen-rough-weekend-concerns/
