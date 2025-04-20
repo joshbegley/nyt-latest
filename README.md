@@ -11,7 +11,7 @@ https://nytimes.com/2025/04/20/weather/storms-flood-tornado-oklahoma-texas.html
 https://nytimes.com/athletic/6293560/2025/04/20/cameron-payne-knicks-sixers-nba-playoffs/
 
 **The Briefing: Ipswich 0 Arsenal 4 - Arteta PSG plans take shape, Saka unscathed, Martinelli landmark**\
-`Jordan Campbell looks at what Arteta learnt ahead of PSG from a straightforward Premier League win.`\
+`Jordan Campbell looks at what Arteta learnt from a straightforward Premier League win ahead of that Champions League semi-final with PSG `\
 https://nytimes.com/athletic/6291826/2025/04/20/arsenal-saka-martinelli-trossard/
 
 **The Briefing: Man Utd 0 Wolves 1 - Yet another defeat but does it even matter?**\
