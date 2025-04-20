@@ -14,7 +14,7 @@ https://nytimes.com/2025/04/20/nyregion/metropolitan-diary.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/04/20/crosswords/spelling-bee-forum.html
 
-**Barcelona's epic comeback at their worst — and the message it sends to their title rivals**\
+**Barcelona's epic comeback at their worst - and the message it sends to their title rivals**\
 `Barcelona were 3-1 down against Celta Vigo but managed to respond and win the game 4-3 in stoppage time`\
 https://nytimes.com/athletic/6292924/2025/04/20/barcelona-celta-vigo-analysis/
 
