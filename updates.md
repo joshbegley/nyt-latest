@@ -1,3 +1,11 @@
+**Jets score late winner to down Blues in Game 1: Takeaways**\
+`The Jets tied the game midway through the third and scored the winner late to rally back for a 5-3 Game 1 win.`\
+https://nytimes.com/athletic/6293156/2025/04/19/jets-blues-nhl-playoffs-2025-game-1-takeaways/
+
+**Colorado retires Travis Hunter, Shedeur Sanders jerseys**\
+`The Buffaloes also announced plans for a statue of former coach Bill McCartney, who coached Colorado to the 1990 national title.`\
+https://nytimes.com/athletic/6293077/2025/04/19/travis-hunter-shedeur-sanders-jersey-retirement-colorado/
+
 **'Our offense was awful': Giannis needs help for Bucks to recover in Pacers series**\
 `Giannis Antetokounmpo's massive effort wasn't enough as his teammates were unable to match the roster-wide contributions of the Pacers.`\
 https://nytimes.com/athletic/6292811/2025/04/19/bucks-pacers-game-1-nba-playoffs-giannis-antetokounmpo/
