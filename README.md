@@ -1,3 +1,7 @@
+**3 Men Die in Fire in Overcrowded House in Queens**\
+`The house in the Jamaica Estates neighborhood had no working smoke detectors and was crammed with tenants, fire officials said.`\
+https://nytimes.com/2025/04/20/nyregion/house-fire-queens-3-dead.html
+
 **Hegseth Said to Have Shared Attack Details in Second Signal Chat**\
 `The defense secretary sent sensitive information about strikes in Yemen to an encrypted group chat that included his wife and brother, people familiar with the matter said.`\
 https://nytimes.com/2025/04/20/us/politics/hegseth-yemen-attack-second-signal-chat.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/20/style/nyc-easter-parade-bonnet-festival.html
 **NBA playoffs takeaways: Thunder stifle Grizzlies in 51-point rout**\
 `The Thunder rolled over the Grizzlies in the first of four NBA playoff games Sunday. Here is our analysis of the action.`\
 https://nytimes.com/athletic/6294255/2025/04/20/nba-playoffs-score-results-takeaways/
-
-**USA defeats Canada in wild gold medal showdown at Women’s World Championship**\
-`Team USA beat Canada 4-3 in overtime to claim gold at the 2025 Women's World Championship.`\
-https://nytimes.com/athletic/6294426/2025/04/20/hockey-usa-canada-gold-medal-womens-world-championship/
 
