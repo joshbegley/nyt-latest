@@ -1,8 +1,20 @@
+**Hegseth Said to Have Shared Attack Details in Second Signal Chat**\
+`The defense secretary sent sensitive information about strikes in Yemen to an encrypted group chat that included his wife and brother, people familiar with the matter said.`\
+https://nytimes.com/2025/04/20/us/politics/hegseth-yemen-attack-second-signal-chat.html
+
+**Lewis Hamilton warns of 'painful' year ahead if his Ferrari struggles continue**\
+`Hamilton finished 31 seconds down on teammate Charles Leclerc in Saudi Arabia on Sunday`\
+https://nytimes.com/athletic/6294833/2025/04/20/lewis-hamilton-explains-ferrari-struggles-f1/
+
+**Monday Briefing: A Broken Truce in Ukraine**\
+`Plus, a Senegalese strawberry farmer on a mission.`\
+https://nytimes.com/2025/04/20/briefing/ukraine-easter-truce-syria-massacre-state-department-africa.html
+
 **Max Verstappen says he can't speak his mind for fear of penalties in F1**\
 `Verstappen received a five-second time penalty for an incident at the 2025 Jeddah race but refused to speak much about his objections`\
 https://nytimes.com/athletic/6294780/2025/04/20/max-verstappen-f1-saudi-arabia-penalty-opinion/
 
-**Max Fried's no-hit bid ends in 8th after controversial scoring change**\
+**Yankees' Max Fried's no-hitter ends in 8th inning after scorekeeper change**\
 `"I made a decision," Rays official scorer Bill Mathews said about the change.`\
 https://nytimes.com/athletic/6294733/2025/04/20/max-fried-no-hitter-ended-error/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6294255/2025/04/20/nba-playoffs-score-results-takea
 **USA defeats Canada in wild gold medal showdown at Women’s World Championship**\
 `Team USA beat Canada 4-3 in overtime to claim gold at the 2025 Women's World Championship.`\
 https://nytimes.com/athletic/6294426/2025/04/20/hockey-usa-canada-gold-medal-womens-world-championship/
-
-**After Meeting Wrongly Deported Man, Van Hollen Accuses Trump of Defying Courts**\
-`“Facilitating his return means something more than doing nothing, and they are doing nothing,” Senator Chris Van Hollen said after his trip to El Salvador.`\
-https://nytimes.com/2025/04/20/us/politics/van-hollen-deportation-trump-courts.html
-
-**Barcelona take three-goal lead vs Chelsea in Women’s CL semi**\
-`The UCL leading scorer, Claudia Pina, scored twice as Barca scored three goals in the final 20 minutes to take a commanding first-leg lead.`\
-https://nytimes.com/athletic/6294471/2025/04/20/barcelona-chelsea-womens-champions-league-semi/
-
-**Pope Francis Blesses Easter Sunday Crowd**\
-`Pope Francis, appearing from a balcony overlooking St. Peter’s Square, blessed those present after a Vatican aide delivered a papal speech on his behalf.`\
-https://nytimes.com/video/world/europe/100000010120464/pope-francis-blessing-easter.html
 
