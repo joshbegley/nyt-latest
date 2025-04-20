@@ -1,3 +1,15 @@
+**Capitals look past late-season struggles, enjoy family time ahead of Game 1**\
+`Capitals coach Spencer Carbery suggested players bring their families to practice on Sunday as they prepare for Game 1 against Montreal.`\
+https://nytimes.com/athletic/6294805/2025/04/20/capitals-nhl-playoffs-canadiens-family/
+
+**Contents of a Sleeve**\
+`Thomas van Geel’s second crossword is set in the ol’ factory.`\
+https://nytimes.com/2025/04/20/crosswords/daily-puzzle-2025-04-21.html
+
+**Logan Stankoven scores 2 as Hurricanes show big edge over Devils in Game 1 rout: 5 takeaways**\
+`Almost every concern surrounding the Devils’ playoff chances appeared warranted in Game 1.`\
+https://nytimes.com/athletic/6294914/2025/04/20/devils-hurricanes-nhl-playoffs-game-1/
+
 **Logan Stankoven scores 2 as Hurricanes show big edge over Devils in Game 1 rout**\
 `Almost every concern surrounding the Devils’ playoff chances appeared warranted in Game 1.`\
 https://nytimes.com/athletic/6294914/2025/04/20/devils-hurricanes-nhl-playoffs-game-1/
