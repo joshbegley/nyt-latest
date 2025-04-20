@@ -1,3 +1,11 @@
+**Mets' Brandon Nimmo explains aggressive new approach: 'I can't stop taking my shots'**\
+`Nimmo drove in the go-ahead run against the Cardinals a few hours after a Q&A breaking down his evolution as a hitter. `\
+https://nytimes.com/athletic/6294946/2025/04/20/mets-brandon-nimmo-interview-first-pitch/
+
+**NBA awards finalists: Shai Gilgeous-Alexander, Nikola Jokić up for MVP**\
+`Jokić is the reigning MVP who’s won the award three times, while Gilgeous-Alexander was the NBA's top scorer this season.`\
+https://nytimes.com/athletic/6294904/2025/04/20/nba-awards-finalists-mvp-sga-jokic/
+
 **A rough weekend raises familiar concerns tor the Phillies' bullpen**\
 `The Phillies would be in great shape if everyone could be like José Alvarado right now.`\
 https://nytimes.com/athletic/6295030/2025/04/20/phillies-bullpen-rough-weekend-concerns/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6294867/2025/04/20/nico-iamaleava-transfer-ucla-ten
 **3 Men Die in Fire in Overcrowded House in Queens**\
 `The house in the Jamaica Estates neighborhood had no working smoke detectors and was crammed with tenants, fire officials said.`\
 https://nytimes.com/2025/04/20/nyregion/house-fire-queens-3-dead.html
-
-**Hegseth Said to Have Shared Attack Details in Second Signal Chat**\
-`The defense secretary sent sensitive information about strikes in Yemen to an encrypted group chat that included his wife and brother, people familiar with the matter said.`\
-https://nytimes.com/2025/04/20/us/politics/hegseth-yemen-attack-second-signal-chat.html
-
-**Lewis Hamilton warns of 'painful' year ahead if his Ferrari struggles continue**\
-`Hamilton finished 31 seconds down on teammate Charles Leclerc in Saudi Arabia on Sunday`\
-https://nytimes.com/athletic/6294833/2025/04/20/lewis-hamilton-explains-ferrari-struggles-f1/
 
