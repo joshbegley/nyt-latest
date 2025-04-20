@@ -1,3 +1,7 @@
+**NBA playoffs takeaways: Thunder stifle Grizzlies in 51-point rout**\
+`The Thunder rolled over the Grizzlies in the first of four NBA playoff games Sunday. Here is our analysis of the action.`\
+https://nytimes.com/athletic/6294255/2025/04/20/nba-playoffs-score-results-takeaways/
+
 **USA defeats Canada in wild gold medal showdown at Women’s World Championship**\
 `Team USA beat Canada 4-3 in overtime to claim gold at the 2025 Women's World Championship.`\
 https://nytimes.com/athletic/6294426/2025/04/20/usa-canada-gold-medal-womens-world-championship/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6292725/2025/04/20/kevin-de-bruyne-manchester-city-
 **A New Conductor Isn’t Daunted by the Size of the Met**\
 `Joana Mallwitz is in calm, stylish command making her debut with Mozart’s “The Marriage of Figaro,” running in repertory with “The Magic Flute.”`\
 https://nytimes.com/2025/04/20/arts/music/joana-mallwitz-marriage-of-figaro-magic-flute-met.html
-
-**The Briefing: Leicester 0 Liverpool 1 - Alexander-Arnold sets up a title party**\
-`The big talking points analysed from Sunday's Premier League game at the King Power Stadium`\
-https://nytimes.com/athletic/6291828/2025/04/20/leicester-liverpool-premier-league-analysis/
 
