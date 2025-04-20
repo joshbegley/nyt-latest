@@ -1,3 +1,7 @@
+**A New Conductor Isn’t Daunted by the Size of the Met**\
+`Joana Mallwitz is in calm, stylish command making her debut with Mozart’s “The Marriage of Figaro,” running in repertory with “The Magic Flute.”`\
+https://nytimes.com/2025/04/20/arts/music/joana-mallwitz-marriage-of-figaro-magic-flute-met.html
+
 **The Briefing: Leicester 0 Liverpool 1 - Alexander-Arnold sets up a title party**\
 `The big talking points analysed from Sunday's Premier League game at the King Power Stadium`\
 https://nytimes.com/athletic/6291828/2025/04/20/leicester-liverpool-premier-league-analysis/
