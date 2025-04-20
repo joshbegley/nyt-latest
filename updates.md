@@ -1,3 +1,7 @@
+**Alito Releases Dissent in Supreme Court Decision Blocking Deportations**\
+`Justice Samuel A. Alito Jr. wrote that the court’s overnight order blocking the Trump administration from deporting a group of Venezuelans under a wartime law was not “necessary or appropriate.”`\
+https://nytimes.com/2025/04/20/us/politics/alito-supreme-court-dissent-alien-enemies-act.html
+
 **Jaden McDaniels' clinical Game 1 brilliance is exactly how Wolves should attack Lakers**\
 `Showing no deference to Luka Dončić and LeBron James, Minnesota dismantled LA to open their first-round series.`\
 https://nytimes.com/athletic/6292929/2025/04/20/jaden-mcdaniels-and-timberwolves-make-statement-against-lakers-in-game-1/
