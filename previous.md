@@ -1,3 +1,7 @@
+**Phillies place Brandon Marsh on IL with 'mild' hamstring injury**\
+`It's been 21 days since Brandon Marsh last collected a hit, the worst slump of his career.`\
+https://nytimes.com/athletic/6294265/2025/04/20/phillies-brandon-marsh-injured-list-mild-hamstring-injury/
+
 **Holger Rune outlasts Carlos Alcaraz in Barcelona for first title since 2023**\
 `The win takes Rune back to the top 10 of the ATP Tour rankings.`\
 https://nytimes.com/athletic/6294220/2025/04/20/holger-rune-barcelona-open-result-analysis-alcaraz/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6291825/2025/04/20/fulham-chelsea-result-report-ana
 **Israel’s Military Cites ‘Professional Failures’ in Killings of Gaza Medics**\
 `In a statement summarizing its investigation into the deadly episode, the military said a deputy commander would be dismissed.`\
 https://nytimes.com/2025/04/20/world/middleeast/israel-gaza-medics.html
-
-**Alito Releases Dissent in Supreme Court Decision Blocking Deportations**\
-`Justice Samuel A. Alito Jr. wrote that the court’s overnight order blocking the Trump administration from deporting a group of Venezuelans under a wartime law was not “necessary or appropriate.”`\
-https://nytimes.com/2025/04/20/us/politics/alito-supreme-court-dissent-alien-enemies-act.html
 

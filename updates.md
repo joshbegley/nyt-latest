@@ -1,3 +1,7 @@
+**Phillies place Brandon Marsh on IL with 'mild' hamstring injury**\
+`It's been 21 days since Brandon Marsh last collected a hit, the worst slump of his career.`\
+https://nytimes.com/athletic/6294265/2025/04/20/phillies-brandon-marsh-injured-list-mild-hamstring-injury/
+
 **Holger Rune outlasts Carlos Alcaraz in Barcelona for first title since 2023**\
 `The win takes Rune back to the top 10 of the ATP Tour rankings.`\
 https://nytimes.com/athletic/6294220/2025/04/20/holger-rune-barcelona-open-result-analysis-alcaraz/
