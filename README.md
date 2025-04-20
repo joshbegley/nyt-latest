@@ -14,7 +14,7 @@ https://nytimes.com/2025/04/20/opinion/sudan-darfur-genocide.html
 ``\
 https://nytimes.com/issue/todayspaper/2025/04/20/todays-new-york-times
 
-**The Conservative Legal Doctrine That Could Undo Trump’s Agenda**\
+**Will This Conservative Legal Doctrine Undo Trump’s First Months in Office?**\
 `What goes around, comes around. And it is not likely to be good for the White House.`\
 https://nytimes.com/2025/04/20/opinion/trump-challenge-supreme-court.html
 
