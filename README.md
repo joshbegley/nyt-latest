@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6291827/2025/04/20/man-utd-wolves-premier-league-re
 `They’re always a hit, and they always go fast.`\
 https://nytimes.com/2025/04/20/dining/deviled-eggs-recipe-for-crowd.html
 
-**The Briefing: Fulham 1 Chelsea 2 - How important was this win? Did Maresca's changes fix attack?**\
+**The Briefing: Fulham 1 Chelsea 2 - How important was this win? Did Enzo Maresca's changes fix the attack?**\
 `Chelsea picked up an important three points after coming from behind to beat Fulham 2-1`\
 https://nytimes.com/athletic/6291825/2025/04/20/fulham-chelsea-result-report-analysis/
 
