@@ -1,3 +1,7 @@
+**Saudi Arabian Grand Prix briefing: Oscar Piastri wins to take championship lead**\
+`Oscar Piastri secured his third win of the season to take the lead in the drivers' championship`\
+https://nytimes.com/athletic/6294371/2025/04/20/saudi-arabian-grand-prix-briefing-oscar-piastri-wins-mclaren/
+
 **Blue Jackets Sunday Gathering: The good, bad and ugly of our 'bold' preseason predictions**\
 `Looking back on our early Blue Jackets predictions, here's what we saw coming and where we hit and missed.`\
 https://nytimes.com/athletic/6292311/2025/04/20/blue-jackets-season-predictions-2024-25/
