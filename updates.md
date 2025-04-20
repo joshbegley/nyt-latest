@@ -1,3 +1,7 @@
+**Lewandowski an injury doubt for Copa del Rey final, UCL semi-final**\
+`The striker sustained a left hamstring injury on Saturday. He is Barcelona's top scorer this season with 40 goals in 48 games.`\
+https://nytimes.com/athletic/6293748/2025/04/20/robert-lewandowski-injury-barcelona/
+
 **Kyle Connor and Mark Scheifele put Jets on their backs in Game 1 win over Blues**\
 `Saturday's Game 1 comeback win took patience, aggression and top-end talent from Winnipeg's biggest forward stars.`\
 https://nytimes.com/athletic/6292861/2025/04/20/kyle-connor-mark-scheifele-jets-win-game-one/
