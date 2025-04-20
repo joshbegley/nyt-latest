@@ -1,3 +1,19 @@
+**The Trade Adviser Who Hates Trade**\
+`Once sidelined, President Trump’s counselor Peter Navarro has returned to Washington and quickly upended the global trading system.`\
+https://nytimes.com/2025/04/20/business/economy/peter-navarro-trump-tariffs.html
+
+**An Inside Look at the Subway’s Archaic Signal System**\
+`Vast swaths of the subway still rely on signal equipment from the Great Depression. A multibillion dollar plan, now at risk, hopes to bring the system into the 21st century`\
+https://nytimes.com/interactive/2025/04/20/nyregion/nyc-subway-signals.html
+
+**‘When a Seat Freed Up at the Next Stop, He Sat Back Down’**\
+`An up-and-down routine on the E, a pretzel and a Playbill, and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2025/04/20/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/04/20/crosswords/spelling-bee-forum.html
+
 **Barcelona's epic comeback at their worst — and the message it sends to their title rivals**\
 `Barcelona were 3-1 down against Celta Vigo but managed to respond and win the game 4-3 in stoppage time`\
 https://nytimes.com/athletic/6292924/2025/04/20/barcelona-celta-vigo-analysis/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/04/20/opinion/sudan-darfur-genocide.html
 **The New York Times in Print for Sunday, April 20, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/04/20/todays-new-york-times
-
-**Will This Conservative Legal Doctrine Undo Trump’s First Months in Office?**\
-`What goes around, comes around. And it is not likely to be good for the White House.`\
-https://nytimes.com/2025/04/20/opinion/trump-challenge-supreme-court.html
-
-**Pistons learn hard playoff lesson from Knicks. Now they have to respond**\
-`Inexperienced Detroit looked good for three quarters, but New York went on a 21-0 run in the fourth to earn the Game 1 win.`\
-https://nytimes.com/athletic/6293443/2025/04/20/detroit-pistons-new-york-knicks-nba-game-1/
-
-**How the Knicks' defense won Game 1 against the Pistons and Cade Cunningham**\
-`New York stayed disciplined even when things got dicey, and it got them a Game 1 win over the Pistons.`\
-https://nytimes.com/athletic/6293371/2025/04/20/knicks-defense-wins-game-1-pistons-cade-cunningham/
-
-**Sam Rak-Sakyi and a very familiar Chelsea dilemma: Should he stay or should he go?**\
-`The 20-year-old has been at Chelsea since under-eight level but has seen his big brother Jesurun kick on since leaving for Crystal Palace`\
-https://nytimes.com/athletic/6290083/2025/04/20/rak-sakyi-chelsea-contract/
 
