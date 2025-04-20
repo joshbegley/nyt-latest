@@ -1,3 +1,11 @@
+**Taylor Swift, Norwegian pop and a lot of Coldplay: What music do Premier League managers listen to?**\
+`We found an odd mix of musical tastes among a selection of Premier League managers...`\
+https://nytimes.com/athletic/6263867/2025/04/20/premier-league-managers-music/
+
+**How Italy won the 1938 World Cup: Piola magic and a missing Brazilian**\
+`The third in our series looking at the teams who won each World Cup`\
+https://nytimes.com/athletic/6287375/2025/04/20/world-cup-winners-italy-1938/
+
 **At World Expo, Japan Recalls a Faded Dynamism**\
 `The event is stirring memories of an exhibition in 1970, when the postwar Japanese economy was taking off and “you could have dreams about the future.”`\
 https://nytimes.com/2025/04/20/business/japan-osaka-world-expo.html
@@ -29,13 +37,4 @@ https://nytimes.com/athletic/6293245/2025/04/19/knicks-pistons-nba-playoffs-resu
 **Clippers get quick reminder that expectations are different in the playoffs**\
 `The Clippers watched yet another double-digit lead disappear in Denver, this time in Game 1.`\
 https://nytimes.com/athletic/6293089/2025/04/19/la-clippers-denver-nuggets-nba-game-1/
-
-**Pat Verbeek's decision to fire Greg Cronin was bold. Now it's on the Ducks GM to deliver**\
-`Verbeek made his move. Now he has to not only find a new coach, but find a way to give that coach a better roster.
-`\
-https://nytimes.com/athletic/6293131/2025/04/19/ducks-fire-greg-cronin-pat-verbeek/
-
-**Washington Spirit hand reigning NWSL champion Orlando Pride first loss of the season**\
-`The Spirit had listed eleven players as unavailable due to injury before the match. `\
-https://nytimes.com/athletic/6293207/2025/04/19/washington-spirit-defeat-orlando-pride-injury-soccer/
 
