@@ -1,3 +1,7 @@
+**Flipping the script: Knicks player once 'hated' by his teammates is Game 1's unlikely hero**\
+`Jalen Brunson and Cam Payne combined for the greatest four minutes of the Knicks’ season. "Everybody’s on my side this time,” Payne said.`\
+https://nytimes.com/athletic/6293560/2025/04/20/cameron-payne-knicks-sixers-nba-playoffs/
+
 **The Briefing: Ipswich 0 Arsenal 4 - Arteta PSG plans take shape, Saka unscathed, Martinelli landmark**\
 `Jordan Campbell looks at what Arteta learnt ahead of PSG from a straightforward Premier League win.`\
 https://nytimes.com/athletic/6291826/2025/04/20/arsenal-saka-martinelli-trossard/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6293449/2025/04/20/mlb-season-san-diego-padres-the-
 **Read Justice Alito’s Dissent**\
 `Justice Samuel A. Alito Jr. wrote that the Supreme Court’s decision to block the Trump administration from deporting Venezuelan migrants under a wartime law was premature.`\
 https://nytimes.com/interactive/2025/04/20/us/politics/24a1007-dissent.html
-
-**In Game 1, Timberwolves show signs of confidence needed to upset Lakers**\
-`"Most teams have your top two, three guys who may have a night. But here, we have eight guys who can have a night," said Donte DiVincenzo.`\
-https://nytimes.com/athletic/6293663/2025/04/20/timberwolves-lakers-nba-playoffs-game-1/
 
