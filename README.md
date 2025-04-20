@@ -1,3 +1,7 @@
+**The Grizzlies were embarrassed in OKC. Do they have enough to recover?**\
+`“We’ll never play that bad again,” Ja Morant said after Sunday's humiliating loss to the Thunder. `\
+https://nytimes.com/athletic/6295022/2025/04/20/grizzlies-loss-game-1-thunder-nba-playoffs/
+
 **Padres' Luis Arraez leaves game on cart after colliding with Astros' Mauricio Dubón**\
 `Dubón’s shoulder appeared to make contact with the head of Arraez, who was motionless on the field as trainers rushed to his aid.`\
 https://nytimes.com/athletic/6295133/2025/04/20/padres-luis-arraez-collision-mauricio-dubon/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/20/world/middleeast/syria-easter.html
 **Capitals look past late-season struggles, enjoy family time ahead of Game 1**\
 `Capitals coach Spencer Carbery suggested players bring their families to practice on Sunday as they prepare for Game 1 against Montreal.`\
 https://nytimes.com/athletic/6294805/2025/04/20/capitals-nhl-playoffs-canadiens-family/
-
-**Contents of a Sleeve**\
-`Thomas van Geel’s second crossword is set in the ol’ factory.`\
-https://nytimes.com/2025/04/20/crosswords/daily-puzzle-2025-04-21.html
 

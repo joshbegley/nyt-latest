@@ -1,3 +1,7 @@
+**Padres' Luis Arraez leaves game on cart after colliding with Astros' Mauricio Dubón**\
+`Dubón’s shoulder appeared to make contact with the head of Arraez, who was motionless on the field as trainers rushed to his aid.`\
+https://nytimes.com/athletic/6295133/2025/04/20/padres-luis-arraez-collision-mauricio-dubon/
+
 **Liam Hendriks is back in the bigs after 681 days: 'It's been a long and arduous journey'**\
 `Hendriks didn't have the results he wanted in his first MLB game since June 2023, but that he was back at all was worth celebrating.`\
 https://nytimes.com/athletic/6294984/2025/04/20/liam-hendriks-red-sox-return/
