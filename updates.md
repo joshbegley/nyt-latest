@@ -1,3 +1,7 @@
+**3 Men Die in Fire in Overcrowded House in Queens**\
+`The house in the Jamaica Estates neighborhood had no working smoke detectors and was crammed with tenants, fire officials said.`\
+https://nytimes.com/2025/04/20/nyregion/house-fire-queens-3-dead.html
+
 **Hegseth Said to Have Shared Attack Details in Second Signal Chat**\
 `The defense secretary sent sensitive information about strikes in Yemen to an encrypted group chat that included his wife and brother, people familiar with the matter said.`\
 https://nytimes.com/2025/04/20/us/politics/hegseth-yemen-attack-second-signal-chat.html
