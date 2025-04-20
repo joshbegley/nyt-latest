@@ -1,3 +1,19 @@
+**The Briefing: Ipswich 0 Arsenal 4 - Arteta PSG plans take shape, Saka unscathed, Martinelli landmark**\
+`Jordan Campbell looks at what Arteta learnt ahead of PSG from a straightforward Premier League win.`\
+https://nytimes.com/athletic/6291826/2025/04/20/arsenal-saka-martinelli-trossard/
+
+**The Briefing: Man Utd 0 Wolves 1 - Yet another defeat but does it even matter?**\
+`Analysing the major talking points from Sunday's Premier League defeat at Old Trafford`\
+https://nytimes.com/athletic/6291827/2025/04/20/man-utd-wolves-premier-league-result-analysis/
+
+**You’ll Want to Make Extra of These Deviled Eggs**\
+`They’re always a hit, and they always go fast.`\
+https://nytimes.com/2025/04/20/dining/deviled-eggs-recipe-for-crowd.html
+
+**The Briefing: Fulham 1 Chelsea 2 - How important was this win? Did Maresca's changes fix attack?**\
+`Chelsea picked up an important three points after coming from behind to beat Fulham 2-1`\
+https://nytimes.com/athletic/6291825/2025/04/20/fulham-chelsea-result-report-analysis/
+
 **Israel’s Military Cites ‘Professional Failures’ in Killings of Gaza Medics**\
 `In a statement summarizing its investigation into the deadly episode, the military said a deputy commander would be dismissed.`\
 https://nytimes.com/2025/04/20/world/middleeast/israel-gaza-medics.html
@@ -21,20 +37,4 @@ https://nytimes.com/interactive/2025/04/20/us/politics/24a1007-dissent.html
 **In Game 1, Timberwolves show signs of confidence needed to upset Lakers**\
 `"Most teams have your top two, three guys who may have a night. But here, we have eight guys who can have a night," said Donte DiVincenzo.`\
 https://nytimes.com/athletic/6293663/2025/04/20/timberwolves-lakers-nba-playoffs-game-1/
-
-**Cases challenging the Trump administration’s deportations hinge on two key legal terms.**\
-`Two concepts — due process and habeas corpus — are central to cases challenging the Trump administration’s deportations. Here’s what they mean and why they matter.`\
-https://nytimes.com/live/2025/04/20/us/trump-news/due-process-habeas-corpus
-
-**Trump Administration Live Updates: Draft Executive Order Calls for Restructuring of State Department**\
-``\
-https://nytimes.com/live/2025/04/20/us/trump-news
-
-**In Trump’s America, There Are No Rules, Only Access**\
-`The real story about Trump’s tariffs may not be about trade. In many ways, it’s about power.`\
-https://nytimes.com/2025/04/20/opinion/trump-tariffs-authoritarianism.html
-
-**Undercutting the Progress of American Science**\
-`Readers worry about the Trump administration’s cuts to research funding.`\
-https://nytimes.com/2025/04/20/opinion/trump-science-cuts.html
 
