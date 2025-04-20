@@ -1,3 +1,7 @@
+**Ukraine Says Russia Broke Its Own Easter Truce Vow**\
+`President Zelensky of Ukraine said the front lines had seen artillery fire and drone attacks, and that his troops were responding in kind.`\
+https://nytimes.com/2025/04/20/world/europe/ukraine-russia-easter-truce.html
+
 **The Trade Adviser Who Hates Trade**\
 `Once sidelined, President Trump’s counselor Peter Navarro has returned to Washington and quickly upended the global trading system.`\
 https://nytimes.com/2025/04/20/business/economy/peter-navarro-trump-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6293526/2025/04/20/dallas-stars-nhl-playoffs-game-1
 **The Darfur Genocide Never Ended**\
 `As Sudan’s soldiers and rebels continue to fight, the one constant seems to be that Sudanese civilians bear the brunt of their abuse.`\
 https://nytimes.com/2025/04/20/opinion/sudan-darfur-genocide.html
-
-**The New York Times in Print for Sunday, April 20, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/04/20/todays-new-york-times
 
