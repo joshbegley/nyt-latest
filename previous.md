@@ -1,3 +1,7 @@
+**A rough weekend raises familiar concerns tor the Phillies' bullpen**\
+`The Phillies would be in great shape if everyone could be like José Alvarado right now.`\
+https://nytimes.com/athletic/6295030/2025/04/20/phillies-bullpen-rough-weekend-concerns/
+
 **Syria’s Easter Celebrations Pass Peacefully, in Early Test of New Government**\
 `At least in the capital, Damascus, the Christian holiday festivities were protected and joyfully observed. Religious minorities are still wary, however, about the new leaders’ commitment to inclusivity.`\
 https://nytimes.com/2025/04/20/world/middleeast/syria-easter.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/20/us/politics/hegseth-yemen-attack-second-signal-ch
 **Lewis Hamilton warns of 'painful' year ahead if his Ferrari struggles continue**\
 `Hamilton finished 31 seconds down on teammate Charles Leclerc in Saudi Arabia on Sunday`\
 https://nytimes.com/athletic/6294833/2025/04/20/lewis-hamilton-explains-ferrari-struggles-f1/
-
-**Monday Briefing: A Broken Truce in Ukraine**\
-`Plus, a Senegalese strawberry farmer on a mission.`\
-https://nytimes.com/2025/04/20/briefing/ukraine-easter-truce-syria-massacre-state-department-africa.html
 

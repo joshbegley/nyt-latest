@@ -1,3 +1,7 @@
+**A rough weekend raises familiar concerns tor the Phillies' bullpen**\
+`The Phillies would be in great shape if everyone could be like José Alvarado right now.`\
+https://nytimes.com/athletic/6295030/2025/04/20/phillies-bullpen-rough-weekend-concerns/
+
 **Syria’s Easter Celebrations Pass Peacefully, in Early Test of New Government**\
 `At least in the capital, Damascus, the Christian holiday festivities were protected and joyfully observed. Religious minorities are still wary, however, about the new leaders’ commitment to inclusivity.`\
 https://nytimes.com/2025/04/20/world/middleeast/syria-easter.html
