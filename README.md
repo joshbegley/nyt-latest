@@ -1,3 +1,7 @@
+**America Wants a God**\
+`Today, we’re sharing “Believing,” a yearlong project from The Times exploring how people experience religion and spirituality now.`\
+https://nytimes.com/2025/04/20/briefing/easter-america-religion-spirituality.html
+
 **Pope Francis Blesses Faithful at Easter Mass**\
 `The pontiff, appearing frail from a balcony at St. Peter’s Basilica, blessed a crowd gathered on the square outside. But a Vatican aide delivered a papal address that focused on global conflicts.`\
 https://nytimes.com/2025/04/20/world/europe/pope-francis-easter.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6286244/2025/04/20/carolina-hurricanes-gm-eric-tuls
 **After years of watching, it's Brady Tkachuk's time to be 'unleashed' in the NHL playoffs**\
 `After playing more than 500 regular-season games, and watching brother Matthew win the Cup, Tkachuk starts his adventure Sunday. He's ready.`\
 https://nytimes.com/athletic/6230595/2025/04/20/senators-brady-tkachuk-nhl-playoffs/
-
-**After firing 3rd coach in 4 years, Rangers GM Chris Drury stands alone — and is running out of cards to play**\
-`This can't be the way to run a team, where coaches and players and even staffers are fearful of what's coming next.`\
-https://nytimes.com/athletic/6292581/2025/04/20/chris-drury-rangers-coach-firing/
 
