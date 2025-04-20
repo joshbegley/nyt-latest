@@ -1,3 +1,11 @@
+**Liam Hendriks is back in the bigs after 681 days: 'It's been a long and arduous journey'**\
+`Hendriks didn't have the results he wanted in his first MLB game since June 2023, but that he was back at all was worth celebrating.`\
+https://nytimes.com/athletic/6294984/2025/04/20/liam-hendriks-red-sox-return/
+
+**Why Oilers will go as far as McDavid and Draisaitl can take them**\
+`As usual, the Oilers’ two best players feel a strong sense of ownership for leading the way in the playoffs.`\
+https://nytimes.com/athletic/6295093/2025/04/20/oilers-mcdavid-draisaitl-nhl-playoffs/
+
 **Justin Thomas wins RBC Heritage for first PGA Tour win in nearly 3 years**\
 `After beating Andrew Novak in a playoff, the two-time major winner is back in the winner's circle.`\
 https://nytimes.com/athletic/6294998/2025/04/20/justin-thomas-rbc-heritage-results/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/20/crosswords/daily-puzzle-2025-04-21.html
 **Logan Stankoven scores 2 as Hurricanes show big edge over Devils in Game 1 rout: 5 takeaways**\
 `Almost every concern surrounding the Devils’ playoff chances appeared warranted in Game 1.`\
 https://nytimes.com/athletic/6294914/2025/04/20/devils-hurricanes-nhl-playoffs-game-1/
-
-**Saudi Arabian Grand Prix: Submit your questions for our F1 mailbag**\
-`What questions do you have for our writers after the Saudi Arabian Grand Prix?`\
-https://nytimes.com/athletic/6294903/2025/04/20/saudi-arabian-grand-prix-submit-your-questions-for-our-f1-mailbag/
-
-**Nico Iamaleava announces transfer to UCLA, reflects on time at Tennessee**\
-`UCLA was the expected landing spot for Iamaleava, who split with Tennessee amid attempts to renegotiate his NIL contract.`\
-https://nytimes.com/athletic/6294867/2025/04/20/nico-iamaleava-transfer-ucla-tennessee/
 

@@ -1,3 +1,11 @@
+**Liam Hendriks is back in the bigs after 681 days: 'It's been a long and arduous journey'**\
+`Hendriks didn't have the results he wanted in his first MLB game since June 2023, but that he was back at all was worth celebrating.`\
+https://nytimes.com/athletic/6294984/2025/04/20/liam-hendriks-red-sox-return/
+
+**Why Oilers will go as far as McDavid and Draisaitl can take them**\
+`As usual, the Oilers’ two best players feel a strong sense of ownership for leading the way in the playoffs.`\
+https://nytimes.com/athletic/6295093/2025/04/20/oilers-mcdavid-draisaitl-nhl-playoffs/
+
 **Justin Thomas wins RBC Heritage for first PGA Tour win in nearly 3 years**\
 `After beating Andrew Novak in a playoff, the two-time major winner is back in the winner's circle.`\
 https://nytimes.com/athletic/6294998/2025/04/20/justin-thomas-rbc-heritage-results/
