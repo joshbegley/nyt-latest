@@ -1,3 +1,7 @@
+**Read Justice Alito’s Dissent**\
+`Justice Samuel A. Alito Jr. wrote that the Supreme Court’s decision to block the Trump administration from deporting Venezuelan migrants under a wartime law was premature.`\
+https://nytimes.com/interactive/2025/04/20/us/politics/24a1007-dissent.html
+
 **In Game 1, Timberwolves show signs of confidence needed to upset Lakers**\
 `"Most teams have your top two, three guys who may have a night. But here, we have eight guys who can have a night," said Donte DiVincenzo.`\
 https://nytimes.com/athletic/6293663/2025/04/20/timberwolves-lakers-nba-playoffs-game-1/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6292777/2025/04/20/kevin-de-bruyne-next-club-manche
 **How Rockets can use Jalen Green's playmaking as X-factor against Warriors**\
 `Despite being the No. 2 seed, the Houston Rockets are still considered the underdog by many. Jalen Green could change that. `\
 https://nytimes.com/athletic/6285500/2025/04/20/jalen-green-rockets-warriors-2025-nba-playoffs/
-
-**Maple Leafs vs. Senators: 5 burning questions for the first round**\
-`The five things to watch closest as we get set for Game 1 of the best rivalry series in Round 1 of the playoffs this year.`\
-https://nytimes.com/athletic/6293238/2025/04/20/maple-leafs-senators-nhl-playoffs/
 
