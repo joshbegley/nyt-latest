@@ -1,3 +1,11 @@
+**How the Yankees are explaining Devin Williams' early-season struggles**\
+`Williams' ERA is up to 9.00 after blowing an 8-4 lead in Saturday's 10-8 extra-innings loss to the Tampa Bay Rays.`\
+https://nytimes.com/athletic/6293116/2025/04/19/yankees-devin-williams-struggles/
+
+**After struggling at the plate, Triston Casas sparks Red Sox walk-off win**\
+`Manager Alex Cora had moved Casas down in the order, which may have helped him at the plate. Garrett Crochet delivered another solid start.`\
+https://nytimes.com/athletic/6293163/2025/04/19/triston-casas-red-sox-walk-off-win/
+
 **Jets score late winner to down Blues in Game 1: Takeaways**\
 `The Jets tied the game midway through the third and scored the winner late to rally back for a 5-3 Game 1 win.`\
 https://nytimes.com/athletic/6293156/2025/04/19/jets-blues-nhl-playoffs-2025-game-1-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6293019/2025/04/19/lionel-messi-inter-miami-columbu
 **Trump Administration Asks Justices to Reject A.C.L.U. Request to Pause Deportations**\
 `The solicitor general asked the Supreme Court to ‘dissolve’ their temporary block on the deportations of Venezuelans and to allow lower courts to consider the case.`\
 https://nytimes.com/2025/04/19/us/politics/trump-administration-scotus-deportations.html
-
-**Pascal Siakam, Andrew Nembhard push Pacers to convincing Game 1 win vs. Bucks**\
-`Pascal Siakam led all Pacers scorers with 25 points, shooting 10-for-15 from the field and 3-for-5 from 3.`\
-https://nytimes.com/athletic/6292937/2025/04/19/indiana-pacers-milwaukee-bucks-nba-game-1/
-
-**Three Pentagon officials fired in leak inquiry proclaim their innocence.**\
-`By Greg Jaffe`\
-https://nytimes.com/live/2025/04/19/us/trump-news/three-pentagon-officials-fired-in-leak-inquiry-proclaim-their-innocence
 

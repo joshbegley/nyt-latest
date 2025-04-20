@@ -1,3 +1,11 @@
+**How the Yankees are explaining Devin Williams' early-season struggles**\
+`Williams' ERA is up to 9.00 after blowing an 8-4 lead in Saturday's 10-8 extra-innings loss to the Tampa Bay Rays.`\
+https://nytimes.com/athletic/6293116/2025/04/19/yankees-devin-williams-struggles/
+
+**After struggling at the plate, Triston Casas sparks Red Sox walk-off win**\
+`Manager Alex Cora had moved Casas down in the order, which may have helped him at the plate. Garrett Crochet delivered another solid start.`\
+https://nytimes.com/athletic/6293163/2025/04/19/triston-casas-red-sox-walk-off-win/
+
 **Jets score late winner to down Blues in Game 1: Takeaways**\
 `The Jets tied the game midway through the third and scored the winner late to rally back for a 5-3 Game 1 win.`\
 https://nytimes.com/athletic/6293156/2025/04/19/jets-blues-nhl-playoffs-2025-game-1-takeaways/
