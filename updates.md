@@ -1,3 +1,7 @@
+**Washington Spirit hand reigning NWSL champion Orlando Pride first loss of the season**\
+`The Spirit had listed eleven players as unavailable due to injury before the match. `\
+https://nytimes.com/athletic/6293207/2025/04/19/washington-spirit-defeat-orlando-pride-injury-soccer/
+
 **How the Yankees are explaining Devin Williams' early-season struggles**\
 `Williams' ERA is up to 9.00 after blowing an 8-4 lead in Saturday's 10-8 extra-innings loss to the Tampa Bay Rays.`\
 https://nytimes.com/athletic/6293116/2025/04/19/yankees-devin-williams-struggles/
