@@ -1,3 +1,7 @@
+**Logan Stankoven scores 2 as Hurricanes show big edge over Devils in Game 1 rout**\
+`Almost every concern surrounding the Devils’ playoff chances appeared warranted in Game 1.`\
+https://nytimes.com/athletic/6294914/2025/04/20/devils-hurricanes-nhl-playoffs-game-1/
+
 **Saudi Arabian Grand Prix: Submit your questions for our F1 mailbag**\
 `What questions do you have for our writers after the Saudi Arabian Grand Prix?`\
 https://nytimes.com/athletic/6294903/2025/04/20/saudi-arabian-grand-prix-submit-your-questions-for-our-f1-mailbag/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6294733/2025/04/20/max-fried-no-hitter-ended-error/
 **Dodgers pitcher Tyler Glasnow leaves game with lower leg cramps**\
 `Pitcher struck out six in four scoreless innings before leaving game.`\
 https://nytimes.com/athletic/6294760/2025/04/20/dodgers-pitcher-tyler-glasnow-leaves-apparent-injury/
-
-**Acuña Jr. on Braves' reaction to Kelenic mistake: 'They would take me out'**\
-`Saturday's base running gaffe with Jarred Kelenic was similar to one in August 2019 when Acuña was removed from a game by Snitker.`\
-https://nytimes.com/athletic/6294714/2025/04/20/ronald-acuna-jr-jarred-kelenic-braves-reaction-hustle/
 
