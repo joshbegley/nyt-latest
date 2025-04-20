@@ -1,3 +1,7 @@
+**Holger Rune outlasts Carlos Alcaraz in Barcelona for first title since 2023**\
+`The win takes Rune back to the top 10 of the ATP Tour rankings.`\
+https://nytimes.com/athletic/6294220/2025/04/20/holger-rune-barcelona-open-result-analysis-alcaraz/
+
 **Hojlund's Man Utd goal tally defended by Ruben Amorim: 'It is a team issue'**\
 `Hojlund has scored just once in his last 28 appearances for the club across all competitions, dating back to December 12.`\
 https://nytimes.com/athletic/6294210/2025/04/20/rasmus-hojlund-manchester-united-amorim/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/20/world/middleeast/israel-gaza-medics.html
 **Alito Releases Dissent in Supreme Court Decision Blocking Deportations**\
 `Justice Samuel A. Alito Jr. wrote that the court’s overnight order blocking the Trump administration from deporting a group of Venezuelans under a wartime law was not “necessary or appropriate.”`\
 https://nytimes.com/2025/04/20/us/politics/alito-supreme-court-dissent-alien-enemies-act.html
-
-**Jaden McDaniels' clinical Game 1 brilliance is exactly how Wolves should attack Lakers**\
-`Showing no deference to Luka Dončić and LeBron James, Minnesota dismantled LA to open their first-round series.`\
-https://nytimes.com/athletic/6292929/2025/04/20/jaden-mcdaniels-and-timberwolves-make-statement-against-lakers-in-game-1/
 
