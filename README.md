@@ -1,3 +1,7 @@
+**Syria’s Easter Celebrations Pass Peacefully, in Early Test of New Government**\
+`At least in the capital, Damascus, the Christian holiday festivities were protected and joyfully observed. Religious minorities are still wary, however, about the new leaders’ commitment to inclusivity.`\
+https://nytimes.com/2025/04/20/world/middleeast/syria-easter.html
+
 **Capitals look past late-season struggles, enjoy family time ahead of Game 1**\
 `Capitals coach Spencer Carbery suggested players bring their families to practice on Sunday as they prepare for Game 1 against Montreal.`\
 https://nytimes.com/athletic/6294805/2025/04/20/capitals-nhl-playoffs-canadiens-family/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6294833/2025/04/20/lewis-hamilton-explains-ferrari-
 **Monday Briefing: A Broken Truce in Ukraine**\
 `Plus, a Senegalese strawberry farmer on a mission.`\
 https://nytimes.com/2025/04/20/briefing/ukraine-easter-truce-syria-massacre-state-department-africa.html
-
-**Max Verstappen says he can't speak his mind for fear of penalties in F1**\
-`Verstappen received a five-second time penalty for an incident at the 2025 Jeddah race but refused to speak much about his objections`\
-https://nytimes.com/athletic/6294780/2025/04/20/max-verstappen-f1-saudi-arabia-penalty-opinion/
 
