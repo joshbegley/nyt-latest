@@ -1,8 +1,12 @@
+**Barcelona take three-goal lead vs Chelsea in Women’s CL semi**\
+`The UCL leading scorer, Claudia Pina, scored twice as Barca scored three goals in the final 20 minutes to take a commanding first-leg lead.`\
+https://nytimes.com/athletic/6294471/2025/04/20/barcelona-chelsea-womens-champions-league-semi/
+
 **Pope Francis Blesses Easter Sunday Crowd**\
 `Pope Francis, appearing from a balcony overlooking St. Peter’s Square, blessed those present after a Vatican aide delivered a papal speech on his behalf.`\
 https://nytimes.com/video/world/europe/100000010120464/pope-francis-blessing-easter.html
 
-**Saudi Arabian Grand Prix briefing: Oscar Piastri wins to take championship lead**\
+**Saudi Arabian Grand Prix briefing: Oscar Piastri wins, Ferrari secures first season podium**\
 `Oscar Piastri secured his third win of the season to take the lead in the drivers' championship`\
 https://nytimes.com/athletic/6294371/2025/04/20/saudi-arabian-grand-prix-briefing-oscar-piastri-wins-mclaren/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6277782/2025/04/20/leicester-city-relegated-premier
 **Phillies place Brandon Marsh on IL with 'mild' hamstring injury**\
 `It's been 21 days since Brandon Marsh last collected a hit, the worst slump of his career.`\
 https://nytimes.com/athletic/6294265/2025/04/20/phillies-brandon-marsh-injured-list-mild-hamstring-injury/
-
-**Holger Rune outlasts Carlos Alcaraz in Barcelona for first title since 2023**\
-`The win takes Rune back to the top 10 of the ATP Tour rankings.`\
-https://nytimes.com/athletic/6294220/2025/04/20/holger-rune-barcelona-open-result-analysis-alcaraz/
 
