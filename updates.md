@@ -1,3 +1,7 @@
+**Logan Stankoven scores 2 as Hurricanes show big edge over Devils in Game 1 rout**\
+`Almost every concern surrounding the Devils’ playoff chances appeared warranted in Game 1.`\
+https://nytimes.com/athletic/6294914/2025/04/20/devils-hurricanes-nhl-playoffs-game-1/
+
 **Acuña Jr. on Braves' reaction to Kelenic mistake: 'They would take me out'**\
 `Saturday's base running gaffe with Jarred Kelenic was similar to one in August 2019 when Acuña was removed from a game by Snitker.`\
 https://nytimes.com/athletic/6294714/2025/04/20/ronald-acuna-jr-jarred-kelenic-braves-reaction-hustle/
