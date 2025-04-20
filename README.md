@@ -1,9 +1,13 @@
+**Max Verstappen says he can't speak his mind for fear of penalties in F1**\
+`Verstappen received a five-second time penalty for an incident but refused to speak much about his objections`\
+https://nytimes.com/athletic/6294780/2025/04/20/max-verstappen-f1-saudi-arabia-penalty-opinion/
+
 **Max Fried's no-hit bid ends in 8th after controversial scoring change**\
 `"I made a decision," Rays official scorer Bill Mathews said about the change.`\
 https://nytimes.com/athletic/6294733/2025/04/20/max-fried-no-hitter-ended-error/
 
 **Dodgers pitcher Tyler Glasnow leaves game with apparent injury**\
-`Pitcher pointed at his ankle before being pulled from game, though team has not specified what was bothering right-hander.`\
+`The pitcher pointed at his ankle before being pulled from the game, though it has not been specified what bothered him.`\
 https://nytimes.com/athletic/6294760/2025/04/20/dodgers-pitcher-tyler-glasnow-leaves-apparent-injury/
 
 **Ronald Acuña Jr. on Braves' reaction to Jarred Kelenic mistake: 'They would take me out'**\
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/6294760/2025/04/20/dodgers-pitcher-tyler-glasnow-le
 https://nytimes.com/athletic/6294714/2025/04/20/ronald-acuna-jr-jarred-kelenic-braves-reaction-hustle/
 
 **Bunnies, Bonnets, Brights and Blooms at New York’s Easter Parade**\
-`Time for revelry, and a celebration of spring, Sunday in the city.`\
+`Time for revelry, and a celebration of spring, on a Sunday in the city.`\
 https://nytimes.com/2025/04/20/style/nyc-easter-parade-bonnet-festival.html
 
 **NBA playoffs takeaways: Thunder stifle Grizzlies in 51-point rout**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6294471/2025/04/20/barcelona-chelsea-womens-champio
 **Pope Francis Blesses Easter Sunday Crowd**\
 `Pope Francis, appearing from a balcony overlooking St. Peter’s Square, blessed those present after a Vatican aide delivered a papal speech on his behalf.`\
 https://nytimes.com/video/world/europe/100000010120464/pope-francis-blessing-easter.html
-
-**Saudi Arabian Grand Prix briefing: Oscar Piastri wins, Ferrari secures first season podium**\
-`Oscar Piastri secured his third win of the season to take the lead in the drivers' championship`\
-https://nytimes.com/athletic/6294371/2025/04/20/saudi-arabian-grand-prix-briefing-oscar-piastri-wins-mclaren/
 
