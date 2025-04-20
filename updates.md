@@ -1,3 +1,7 @@
+**Flattened in Game 1, the Lakers need to find their fight against Timberwolves**\
+`"I’m not sure physically we were ready," coach JJ Redick said after LA's 117-95 loss to Minnesota in Game 1.`\
+https://nytimes.com/athletic/6293431/2025/04/20/lakers-loss-playoffs-adjustments-game-1/
+
 **Pope Meets With JD Vance After Criticism of Trump Administration**\
 `Francis and the vice president briefly exchanged Easter wishes, the Vatican said. An earlier meeting between Mr. Vance and church officials involved “an exchange of opinions” on migration.`\
 https://nytimes.com/2025/04/20/us/politics/pope-francis-meets-with-jd-vance.html
