@@ -1,3 +1,7 @@
+**Where does Manchester United's Lyon win rank among the club's greatest European comebacks?**\
+`Where does United 5-4 Lyon rank among the club's most memorable come-from-behind triumphs in Europe?`\
+https://nytimes.com/athletic/6292130/2025/04/20/manchester-united-lyon-champions-league-europa/
+
 **Arsenal endure their reminder of Lyon's pedigree but still go to France with hope**\
 `The French club had the X factor at the Emirates, yet there were still grounds for encouragement for Renee Slegers’ side ahead of the return`\
 https://nytimes.com/athletic/6292111/2025/04/20/arsenal-lyon-women-champions-league/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/20/world/africa/senegal-strawberry-farmer-profile.ht
 **Connections: Sports Edition Coach: Hints for April 20, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6291878/2025/04/20/connections-sports-edition-hints-for-april-20-2025/
-
-**Stars lose eighth consecutive Game 1 as Avalanche take convincing road win: Takeaways**\
-`Goaltender Mackenzie Blackwood was nearly perfect in the Avs' 5-1 victory in Game 1 of their first-round series with the Dallas Stars.`\
-https://nytimes.com/athletic/6293205/2025/04/19/avalanche-stars-nhl-playoffs-game-1/
 

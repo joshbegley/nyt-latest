@@ -1,3 +1,7 @@
+**Where does Manchester United's Lyon win rank among the club's greatest European comebacks?**\
+`Where does United 5-4 Lyon rank among the club's most memorable come-from-behind triumphs in Europe?`\
+https://nytimes.com/athletic/6292130/2025/04/20/manchester-united-lyon-champions-league-europa/
+
 **Arsenal endure their reminder of Lyon's pedigree but still go to France with hope**\
 `The French club had the X factor at the Emirates, yet there were still grounds for encouragement for Renee Slegers’ side ahead of the return`\
 https://nytimes.com/athletic/6292111/2025/04/20/arsenal-lyon-women-champions-league/
