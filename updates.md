@@ -1,3 +1,7 @@
+**Saudi Arabia Opposed Obama’s Deal With Iran. It Supports Trump’s. Why?**\
+`The agreements are shaping up to be very similar. But Gulf support for a nuclear deal shows how much the region has changed.`\
+https://nytimes.com/2025/04/20/world/middleeast/gulf-saudi-support-trump-iran-nuclear-deal.html
+
 **How the Cardinals are evaluating Miles Mikolas as he works to regain trust**\
 `Friday's start against the Mets illustrated where manager Oli Marmol's trust level lies with the veteran Mikolas.`\
 https://nytimes.com/athletic/6291197/2025/04/20/cardinals-miles-mikolas-regain-trust-rotation/
