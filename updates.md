@@ -1,3 +1,7 @@
+**Pope Francis Blesses Faithful at Easter Mass**\
+`The pontiff, appearing frail from a balcony at St. Peter’s Basilica, blessed a crowd gathered on the square outside. But a Vatican aide delivered a papal address that focused on global conflicts.`\
+https://nytimes.com/2025/04/20/world/europe/pope-francis-easter.html
+
 **Lewandowski an injury doubt for Copa del Rey final, UCL semi-final**\
 `The striker sustained a left hamstring injury on Saturday. He is Barcelona's top scorer this season with 40 goals in 48 games.`\
 https://nytimes.com/athletic/6293748/2025/04/20/robert-lewandowski-injury-barcelona/
