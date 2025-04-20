@@ -1,3 +1,7 @@
+**USA defeats Canada in wild gold medal showdown at Women’s World Championship**\
+`Team USA beat Canada 4-3 in overtime to claim gold at the 2025 Women's World Championship.`\
+https://nytimes.com/athletic/6294426/2025/04/20/usa-canada-gold-medal-womens-world-championship/
+
 **After meeting wrongly deported man, Van Hollen accuses Trump of defying courts.**\
 `By Minho Kim`\
 https://nytimes.com/live/2025/04/20/us/trump-news/after-meeting-wrongly-deported-man-van-hollen-accuses-trump-of-defying-courts
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/20/arts/music/joana-mallwitz-marriage-of-figaro-magi
 **The Briefing: Leicester 0 Liverpool 1 - Alexander-Arnold sets up a title party**\
 `The big talking points analysed from Sunday's Premier League game at the King Power Stadium`\
 https://nytimes.com/athletic/6291828/2025/04/20/leicester-liverpool-premier-league-analysis/
-
-**Leicester relegated from PL with five games remaining**\
-`Ruud van Nistelrooy's side have lost each of their most recent nine Premier League home matches without finding the net.`\
-https://nytimes.com/athletic/6277782/2025/04/20/leicester-city-relegated-premier-league/
 
