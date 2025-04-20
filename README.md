@@ -1,40 +1,40 @@
-**6 Killed as Giant Waves Batter Australia**\
-`The victims fell or were swept into the ocean, according to the police, as swells pounded Sydney and other places along the country’s east coast. At least two others were missing.`\
-https://nytimes.com/2025/04/20/world/asia/australia-waves-queensland-sydney.html
+**How the Cardinals are evaluating Miles Mikolas as he works to regain trust**\
+`Friday's start against the Mets illustrated where manager Oli Marmol's trust level lies with the veteran Mikolas.`\
+https://nytimes.com/athletic/6291197/2025/04/20/cardinals-miles-mikolas-regain-trust-rotation/
 
-**The New York Times International Edition in Print for Monday, April 21, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/04/20/todays-new-york-times-international-edition
+**Players in Stanley Cup playoffs may be called to testify in Hockey Canada trial**\
+`Members of Canada's 2018 World Juniors team currently playing in the NHL playoffs could be called to testify during a sexual assault trial.`\
+https://nytimes.com/athletic/6293138/2025/04/20/nhl-playoffs-2025-hockey-canada-trial-witnesses/
 
-**Saudi Arabia 'more than happy' to host 64-team World Cup in 2034**\
-`The presidents of UEFA, Concacaf and the AFC have criticised the proposal, which has been put forward by South American soccer officials.`\
-https://nytimes.com/athletic/6292513/2025/04/20/saudi-2034-world-cup-64-team/
+**NHL playoffs daily: Jets rally to beat Blues, Avalanche rout Stars**\
+`The Jets and Avalanche won their Game 1s as the NHL playoffs began Saturday. Here are our takeaways.`\
+https://nytimes.com/athletic/6293094/2025/04/20/nhl-playoffs-jets-blues-avalanche-stars/
 
-**With Only Bad Options, Businesses Scramble for a Tariff Chaos Playbook**\
-`President Trump’s trade war is forcing companies to cut costs, raise prices, shrink profits, discontinue products and find other suppliers.`\
-https://nytimes.com/2025/04/20/business/economy/tariffs-business-strategy.html
+**To Embrace a Resurrection Faith, Choose a Love-Your-Neighbor Church**\
+`As anger and fear dominate the public square, a church that follows a resurrected savior should be a balm, not a blowtorch.`\
+https://nytimes.com/2025/04/20/opinion/easter-christianity-jesus-trump.html
 
-**‘Sinners’ Is a Box Office Success (With a Big Asterisk)**\
-`Ryan Coogler’s original horror film was expected to sell a strong $40 million-plus in tickets over the weekend. But its profitability remains a long way off.`\
-https://nytimes.com/2025/04/20/business/media/sinners-box-office.html
+**The Sunday Read: ‘How Analytics Marginalized Baseball’s Superstar Pitchers’**\
+`Why has professional baseball made it so hard for today’s pitchers to achieve greatness?`\
+https://nytimes.com/2025/04/20/podcasts/the-daily/the-sunday-read-how-analytics-marginalized-baseballs-superstar-pitchers.html
 
-**A Cartoonist Who Tapped His Own Psyche and Found America’s Unruly Id**\
-`R. Crumb’s underground comics were instrumental in shaping the counterculture of the 1960s and beyond, Dan Nadel shows in an exemplary new biography.`\
-https://nytimes.com/2025/04/20/books/review/crumb-a-cartoonists-life-dan-nadel.html
+**‘A Huge Negative Shock’: Three Experts Game Out Recession Odds and Economic Uncertainty**\
+`A look at tariffs, the Fed, the dollar and how uncertainty is wreaking havoc on financial markets.`\
+https://nytimes.com/2025/04/20/opinion/trump-economy-recession-uncertainty.html
 
-**Inside a Union’s Fight Against Trump’s Federal Job Cuts**\
-`Leaders of the union representing government workers say their battle is galvanizing but also alarming. “It’s insulting to say,” one said, “that we are lazy.”`\
-https://nytimes.com/2025/04/20/business/economy/government-union-trump-musk.html
+**A Good Doctor Knows When to Bend the Rules**\
+`Some physicians agree to patients’ requests for unproven treatment or altered vaccine schedules.`\
+https://nytimes.com/2025/04/20/opinion/doctors-vaccines-patients.html
 
-**A Different Kind of F.B.I. Chief: Jet-Setting Patel Loves the Limelight**\
-`Kash Patel’s embrace of the spotlight appears to be a break from the recent past, as his predecessors typically did the job with little fanfare.`\
-https://nytimes.com/2025/04/20/us/politics/kash-patel-spotlight-fbi-director.html
+**Connections Companion No. 680**\
+`Scroll down for hints and conversation about the puzzle for Monday, April 21, 2025.`\
+https://nytimes.com/2025/04/20/crosswords/connections-companion-680.html
 
-**How the War Over Trans Athletes Tore a Volleyball Team Apart**\
-`Blaire Fleming was a little-known college player. Then she suddenly became a symbol of injustice — to both sides of the controversy.`\
-https://nytimes.com/2025/04/20/magazine/trans-athletes-women-college-sports.html
+**Sherrod Brown: What Worries Me Most About Trump’s Failing Economy**\
+`Democrats should not confuse Trump’s tariff disaster for a trade policy that helps workers.`\
+https://nytimes.com/2025/04/20/opinion/sherrod-brown-tariffs-trade-trump-workers.html
 
-**NHL playoff picks, odds, viewing info for all 3 of Sunday's games including Sens-Leafs**\
-`The Stanley Cup Playoffs continue Monday with the Devils at Hurricanes, Senators at Maple Leafs and Wild at Golden Knights. `\
-https://nytimes.com/athletic/6291958/2025/04/20/nhl-playoff-picks-odds-how-to-watch-devils-hurricanes-senators-maple-leafs-wild-golden-knights/
+**Wordle Review No. 1,402**\
+`Scroll down for hints and conversation about the puzzle for Monday, April 21, 2025.`\
+https://nytimes.com/2025/04/20/crosswords/wordle-review-1402.html
 
