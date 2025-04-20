@@ -1,3 +1,15 @@
+**The Darfur Genocide Never Ended**\
+`As Sudan’s soldiers and rebels continue to fight, the one constant seems to be that Sudanese civilians bear the brunt of their abuse.`\
+https://nytimes.com/2025/04/20/opinion/sudan-darfur-genocide.html
+
+**The New York Times in Print for Sunday, April 20, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/20/todays-new-york-times
+
+**The Conservative Legal Doctrine That Could Undo Trump’s Agenda**\
+`What goes around, comes around. And it is not likely to be good for the White House.`\
+https://nytimes.com/2025/04/20/opinion/trump-challenge-supreme-court.html
+
 **Pistons learn hard playoff lesson from Knicks. Now they have to respond**\
 `Inexperienced Detroit looked good for three quarters, but New York went on a 21-0 run in the fourth to earn the Game 1 win.`\
 https://nytimes.com/athletic/6293443/2025/04/20/detroit-pistons-new-york-knicks-nba-game-1/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6292111/2025/04/20/arsenal-lyon-women-champions-lea
 **Carlos Vicente: From rugby roots to a meteoric La Liga rise and being mesmerised by Yamal**\
 `The Alaves winger is making a name for himself in La Liga but fancies playing in England - he loves US sport and is studying a degree, too`\
 https://nytimes.com/athletic/6289789/2025/04/20/carlos-vicente-interview-alaves-lamine-yamal-la-liga/
-
-**Taylor Swift, Norwegian pop and a lot of Coldplay: What music do Premier League managers listen to?**\
-`We found an odd mix of musical tastes among a selection of Premier League managers...`\
-https://nytimes.com/athletic/6263867/2025/04/20/premier-league-managers-music/
-
-**How Italy won the 1938 World Cup: Piola magic and a missing Brazilian**\
-`The third in our series looking at the teams who won each World Cup`\
-https://nytimes.com/athletic/6287375/2025/04/20/world-cup-winners-italy-1938/
-
-**At World Expo, Japan Recalls a Faded Dynamism**\
-`The event is stirring memories of an exhibition in 1970, when the postwar Japanese economy was taking off and “you could have dreams about the future.”`\
-https://nytimes.com/2025/04/20/business/japan-osaka-world-expo.html
 

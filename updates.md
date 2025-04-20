@@ -1,3 +1,7 @@
+**Pistons learn hard playoff lesson from Knicks. Now they have to respond**\
+`Inexperienced Detroit looked good for three quarters, but New York went on a 21-0 run in the fourth to earn the Game 1 win.`\
+https://nytimes.com/athletic/6293443/2025/04/20/detroit-pistons-new-york-knicks-nba-game-1/
+
 **How the Knicks' defense won Game 1 against the Pistons and Cade Cunningham**\
 `New York stayed disciplined even when things got dicey, and it got them a Game 1 win over the Pistons.`\
 https://nytimes.com/athletic/6293371/2025/04/20/knicks-defense-wins-game-1-pistons-cade-cunningham/

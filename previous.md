@@ -1,3 +1,7 @@
+**Pistons learn hard playoff lesson from Knicks. Now they have to respond**\
+`Inexperienced Detroit looked good for three quarters, but New York went on a 21-0 run in the fourth to earn the Game 1 win.`\
+https://nytimes.com/athletic/6293443/2025/04/20/detroit-pistons-new-york-knicks-nba-game-1/
+
 **How the Knicks' defense won Game 1 against the Pistons and Cade Cunningham**\
 `New York stayed disciplined even when things got dicey, and it got them a Game 1 win over the Pistons.`\
 https://nytimes.com/athletic/6293371/2025/04/20/knicks-defense-wins-game-1-pistons-cade-cunningham/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6287375/2025/04/20/world-cup-winners-italy-1938/
 **At World Expo, Japan Recalls a Faded Dynamism**\
 `The event is stirring memories of an exhibition in 1970, when the postwar Japanese economy was taking off and “you could have dreams about the future.”`\
 https://nytimes.com/2025/04/20/business/japan-osaka-world-expo.html
-
-**How Violence Erupted On Syria’s Coast**\
-`Massacres have spread across once-quiet towns on Syria’s Mediterranean coast, in the deadliest outbreak of sectarian violence since rebels toppled the dictator Bashar al-Assad. Christina Goldbaum, The New York Times’s bureau chief in Syria, traveled to the area to get a sense of who was responsible.`\
-https://nytimes.com/video/world/middleeast/100000010089625/how-violence-erupted-on-syrias-coast.html
 
