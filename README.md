@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6292311/2025/04/20/blue-jackets-season-predictions-2024-25/
 
 **Alexander-Arnold savouring 'special' Liverpool days, won't comment on Madrid move**\
-`Madrid are widely expected to complete the signing of the right-back at the end of the season, when his Liverpool contract expires.`\
+`Madrid are widely expected to complete the signing of the right-back at the end of the season, when his Liverpool contract expires`\
 https://nytimes.com/athletic/6294385/2025/04/20/trent-alexander-arnold-real-madrid-transfer-liverpool/
 
 **Kevin De Bruyne would happily be part of City's rebuild. Should he be?**\
