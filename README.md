@@ -1,3 +1,7 @@
+**Flattened in Game 1, the Lakers need to find their fight against Timberwolves**\
+`"I’m not sure physically we were ready," coach JJ Redick said after LA's 117-95 loss to Minnesota in Game 1.`\
+https://nytimes.com/athletic/6293431/2025/04/20/lakers-loss-playoffs-adjustments-game-1/
+
 **Pope Meets With JD Vance After Criticism of Trump Administration**\
 `Francis and the vice president briefly exchanged Easter wishes, the Vatican said. An earlier meeting between Mr. Vance and church officials involved “an exchange of opinions” on migration.`\
 https://nytimes.com/2025/04/20/us/politics/pope-francis-meets-with-jd-vance.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6291973/2025/04/20/maple-leafs-mitch-marner-nhl-pla
 **Revisiting Bruins bold predictions: A lot more wrong than right**\
 `From Jeremy Swayman’s slow start to Charlie Coyle’s 30-goal year, most of these preseason predictions didn't age well.`\
 https://nytimes.com/athletic/6292772/2025/04/20/bruins-2024-25-bold-predictions-revisited/
-
-**Could the Wild's season-long resilience help them upset Vegas? 'We have nothing to lose'**\
-`The Wild, following their season-long theme of “choose your hard,” didn’t take the easy route to the playoffs.`\
-https://nytimes.com/athletic/6292875/2025/04/20/wild-golden-knights-game-1/
 
