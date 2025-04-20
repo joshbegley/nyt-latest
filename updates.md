@@ -1,3 +1,11 @@
+**'Our offense was awful': Giannis needs help for Bucks to recover in Pacers series**\
+`Giannis Antetokounmpo's massive effort wasn't enough as his teammates were unable to match the roster-wide contributions of the Pacers.`\
+https://nytimes.com/athletic/6292811/2025/04/19/bucks-pacers-game-1-nba-playoffs-giannis-antetokounmpo/
+
+**Pascal Siakam, Andrew Nembhard push Pacers to convincing Game 1 win vs. Bucks**\
+`Pascal Siakam led all Pacers scorers with 25 points, shooting 10-for-15 from the field and 3-for-5 from 3.`\
+https://nytimes.com/athletic/6292937/2025/04/19/indiana-pacers-milwaukee-bucks-nba-game-1/
+
 **'Our offense was awful': Bucks drop Game 1 to Pacers**\
 `Giannis Antetokounmpo's massive effort wasn't enough as his teammates were unable to match the roster-wide contributions of the Pacers.`\
 https://nytimes.com/athletic/6292811/2025/04/19/bucks-pacers-game-1-nba-playoffs-giannis-antetokounmpo/

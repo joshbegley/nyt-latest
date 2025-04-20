@@ -1,3 +1,11 @@
+**Jets score late winner to down Blues in Game 1: Takeaways**\
+`The Jets tied the game midway through the third and scored the winner late to rally back for a 5-3 Game 1 win.`\
+https://nytimes.com/athletic/6293156/2025/04/19/jets-blues-nhl-playoffs-2025-game-1-takeaways/
+
+**Colorado retires Travis Hunter, Shedeur Sanders jerseys**\
+`The Buffaloes also announced plans for a statue of former coach Bill McCartney, who coached Colorado to the 1990 national title.`\
+https://nytimes.com/athletic/6293077/2025/04/19/travis-hunter-shedeur-sanders-jersey-retirement-colorado/
+
 **'Our offense was awful': Giannis needs help for Bucks to recover in Pacers series**\
 `Giannis Antetokounmpo's massive effort wasn't enough as his teammates were unable to match the roster-wide contributions of the Pacers.`\
 https://nytimes.com/athletic/6292811/2025/04/19/bucks-pacers-game-1-nba-playoffs-giannis-antetokounmpo/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6292937/2025/04/19/indiana-pacers-milwaukee-bucks-n
 **Three Pentagon officials fired in leak inquiry proclaim their innocence.**\
 `By Greg Jaffe`\
 https://nytimes.com/live/2025/04/19/us/trump-news/three-pentagon-officials-fired-in-leak-inquiry-proclaim-their-innocence
-
-**Mother and Son, 8, Found Dead in Bronx Home With Daughter, 4, Left Alone**\
-`It was not immediately clear how long the two had been dead or how long the younger daughter had been surviving alone in the apartment.`\
-https://nytimes.com/2025/04/19/nyregion/bronx-mother-and-son-dead.html
-
-**Small Plane With 4 Aboard Crashes in Illinois**\
-`The authorities said they were conducting a “fatal aircraft investigation” but did not provide details about the number of people who died.`\
-https://nytimes.com/2025/04/19/us/plane-crash-illinois.html
 
