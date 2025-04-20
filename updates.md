@@ -1,3 +1,11 @@
+**Holger Rune outlasts Carlos Alcaraz in Barcelona for first title since 2023**\
+`The win takes Rune back to the top 10 of the ATP Tour rankings.`\
+https://nytimes.com/athletic/6294220/2025/04/20/holger-rune-barcelona-open-result-analysis-alcaraz/
+
+**The Briefing: Ipswich 0 Arsenal 4 - Arteta PSG plans take shape, Saka unscathed, Martinelli landmark**\
+`Jordan Campbell looks at what Arteta learnt from a straightforward Premier League win ahead of that Champions League semi-final with PSG `\
+https://nytimes.com/athletic/6291826/2025/04/20/arsenal-saka-martinelli-trossard/
+
 **Hojlund's Man Utd goal tally defended by Ruben Amorim: 'It is a team issue'**\
 `Hojlund has scored just once in his last 28 appearances for the club across all competitions, dating back to December 12.`\
 https://nytimes.com/athletic/6294210/2025/04/20/rasmus-hojlund-manchester-united-amorim/
