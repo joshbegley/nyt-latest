@@ -1,3 +1,7 @@
+**The Pulse: Surprise! MLB's early top team**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6293449/2025/04/20/mlb-season-san-diego-padres-the-pulse/
+
 **Read Justice Alito’s Dissent**\
 `Justice Samuel A. Alito Jr. wrote that the Supreme Court’s decision to block the Trump administration from deporting Venezuelan migrants under a wartime law was premature.`\
 https://nytimes.com/interactive/2025/04/20/us/politics/24a1007-dissent.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/20/us/politics/pope-francis-meets-with-jd-vance.html
 **De Bruyne 'open' to Premier League stay**\
 `The Belgian announced earlier this month that he will leave City when his contract runs out at the end of the season.`\
 https://nytimes.com/athletic/6292777/2025/04/20/kevin-de-bruyne-next-club-manchester-city/
-
-**How Rockets can use Jalen Green's playmaking as X-factor against Warriors**\
-`Despite being the No. 2 seed, the Houston Rockets are still considered the underdog by many. Jalen Green could change that. `\
-https://nytimes.com/athletic/6285500/2025/04/20/jalen-green-rockets-warriors-2025-nba-playoffs/
 

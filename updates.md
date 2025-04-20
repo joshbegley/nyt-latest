@@ -1,3 +1,7 @@
+**The Pulse: Surprise! MLB's early top team**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6293449/2025/04/20/mlb-season-san-diego-padres-the-pulse/
+
 **Read Justice Alito’s Dissent**\
 `Justice Samuel A. Alito Jr. wrote that the Supreme Court’s decision to block the Trump administration from deporting Venezuelan migrants under a wartime law was premature.`\
 https://nytimes.com/interactive/2025/04/20/us/politics/24a1007-dissent.html
