@@ -1,3 +1,8 @@
+**Pat Verbeek's decision to fire Greg Cronin was bold. Now it's on the Ducks GM to deliver**\
+`Verbeek made his move. Now he has to not only find a new coach, but find a way to give that coach a better roster.
+`\
+https://nytimes.com/athletic/6293131/2025/04/19/ducks-fire-greg-cronin-pat-verbeek/
+
 **At World Expo, Japan Recalls a Faded Dynamism**\
 `The event is stirring memories of an exhibition in 1970, when the postwar Japanese economy was taking off and “you could have dreams about the future.”`\
 https://nytimes.com/2025/04/20/business/japan-osaka-world-expo.html

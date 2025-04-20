@@ -1,3 +1,11 @@
+**Arsenal endure their reminder of Lyon's pedigree but still go to France with hope**\
+`The French club had the X factor at the Emirates, yet there were still grounds for encouragement for Renee Slegers’ side ahead of the return`\
+https://nytimes.com/athletic/6292111/2025/04/20/arsenal-lyon-women-champions-league/
+
+**Carlos Vicente: From rugby roots to a meteoric La Liga rise and being mesmerised by Yamal**\
+`The Alaves winger is making a name for himself in La Liga but fancies playing in England - he loves US sport and is studying a degree, too`\
+https://nytimes.com/athletic/6289789/2025/04/20/carlos-vicente-interview-alaves-lamine-yamal-la-liga/
+
 **Taylor Swift, Norwegian pop and a lot of Coldplay: What music do Premier League managers listen to?**\
 `We found an odd mix of musical tastes among a selection of Premier League managers...`\
 https://nytimes.com/athletic/6263867/2025/04/20/premier-league-managers-music/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6291878/2025/04/20/connections-sports-edition-hints
 **Stars lose eighth consecutive Game 1 as Avalanche take convincing road win: Takeaways**\
 `Goaltender Mackenzie Blackwood was nearly perfect in the Avs' 5-1 victory in Game 1 of their first-round series with the Dallas Stars.`\
 https://nytimes.com/athletic/6293205/2025/04/19/avalanche-stars-nhl-playoffs-game-1/
-
-**How Knicks rode a 21-0 fourth-quarter run to surge past Pistons in Game 1**\
-`New York now lead the series, closing out a 123-112 victory Saturday.`\
-https://nytimes.com/athletic/6293245/2025/04/19/knicks-pistons-nba-playoffs-result/
-
-**Clippers get quick reminder that expectations are different in the playoffs**\
-`The Clippers watched yet another double-digit lead disappear in Denver, this time in Game 1.`\
-https://nytimes.com/athletic/6293089/2025/04/19/la-clippers-denver-nuggets-nba-game-1/
 
