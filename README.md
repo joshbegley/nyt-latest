@@ -1,3 +1,7 @@
+**Stars lose 8th consecutive Game 1 as Avalanche take convincing road win: Takeaways**\
+`Goaltender Mackenzie Blackwood was nearly perfect in the Avs' 5-1 victory in Game 1 of their first-round series with the Dallas Stars.`\
+https://nytimes.com/athletic/6293205/2025/04/19/avalanche-stars-nhl-playoffs-game-1/
+
 **How Knicks rode a 21-0 fourth-quarter run to surge past Pistons in Game 1**\
 `New York now lead the series, closing out a 123-112 victory Saturday.`\
 https://nytimes.com/athletic/6293245/2025/04/19/knicks-pistons-nba-playoffs-result/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6293077/2025/04/19/travis-hunter-shedeur-sanders-je
 **'Our offense was awful': Giannis needs help for Bucks to recover in Pacers series**\
 `Giannis Antetokounmpo's massive effort wasn't enough as his teammates were unable to match the roster-wide contributions of the Pacers.`\
 https://nytimes.com/athletic/6292811/2025/04/19/bucks-pacers-game-1-nba-playoffs-giannis-antetokounmpo/
-
-**Dodgers' Roki Sasaki loses velocity but still gets Rangers out. Bullpen does not**\
-`Despite not having his usual fastball, Sasaki allowed just two runs on two hits in a career-best six innings.`\
-https://nytimes.com/athletic/6293044/2025/04/19/roki-sasaki-dodgers-fastball-bullpen-rangers/
 
