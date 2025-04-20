@@ -1,3 +1,7 @@
+**6 Killed as Giant Waves Batter Australia**\
+`The victims fell or were swept into the ocean, according to the police, as swells pounded Sydney and other places along the country’s east coast. At least two others were missing.`\
+https://nytimes.com/2025/04/20/world/asia/australia-waves-queensland-sydney.html
+
 **The New York Times International Edition in Print for Monday, April 21, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/04/20/todays-new-york-times-international-edition
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/20/magazine/trans-athletes-women-college-sports.html
 **NHL playoff picks, odds, viewing info for all 3 of Sunday's games including Sens-Leafs**\
 `The Stanley Cup Playoffs continue Monday with the Devils at Hurricanes, Senators at Maple Leafs and Wild at Golden Knights. `\
 https://nytimes.com/athletic/6291958/2025/04/20/nhl-playoff-picks-odds-how-to-watch-devils-hurricanes-senators-maple-leafs-wild-golden-knights/
-
-**Why R. Crumb Worked With a Biographer: ‘I Guess I Felt Sorry For You’**\
-`Dan Nadel’s “Crumb: A Cartoonist’s Life” takes on the good, the bad, the ugly and the weird. Over punk rock vegetarian food, subject and writer compared notes.`\
-https://nytimes.com/2025/04/20/books/review/r-crumb-feature-molly-young.html
 

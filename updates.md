@@ -1,3 +1,7 @@
+**6 Killed as Giant Waves Batter Australia**\
+`The victims fell or were swept into the ocean, according to the police, as swells pounded Sydney and other places along the country’s east coast. At least two others were missing.`\
+https://nytimes.com/2025/04/20/world/asia/australia-waves-queensland-sydney.html
+
 **The New York Times International Edition in Print for Monday, April 21, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/04/20/todays-new-york-times-international-edition
