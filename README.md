@@ -1,3 +1,7 @@
+**Israel’s Military Cites ‘Professional Failures’ in Killings of Gaza Medics**\
+`In a statement summarizing its investigation into the deadly episode, the military said a deputy commander would be dismissed.`\
+https://nytimes.com/2025/04/20/world/middleeast/israel-gaza-medics.html
+
 **Alito Releases Dissent in Supreme Court Decision Blocking Deportations**\
 `Justice Samuel A. Alito Jr. wrote that the court’s overnight order blocking the Trump administration from deporting a group of Venezuelans under a wartime law was not “necessary or appropriate.”`\
 https://nytimes.com/2025/04/20/us/politics/alito-supreme-court-dissent-alien-enemies-act.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/20/opinion/trump-tariffs-authoritarianism.html
 **Undercutting the Progress of American Science**\
 `Readers worry about the Trump administration’s cuts to research funding.`\
 https://nytimes.com/2025/04/20/opinion/trump-science-cuts.html
-
-**Flattened in Game 1, the Lakers need to find their fight against Timberwolves**\
-`"I’m not sure physically we were ready," coach JJ Redick said after LA's 117-95 loss to Minnesota in Game 1.`\
-https://nytimes.com/athletic/6293431/2025/04/20/lakers-loss-playoffs-adjustments-game-1/
 
