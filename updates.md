@@ -1,3 +1,7 @@
+**Nico Iamaleava announces transfer to UCLA, reflects on time at Tennessee**\
+`UCLA was the expected landing spot for Iamaleava, who split with Tennessee amid attempts to renegotiate his NIL contract.`\
+https://nytimes.com/athletic/6294867/2025/04/20/nico-iamaleava-transfer-ucla-tennessee/
+
 **3 Men Die in Fire in Overcrowded House in Queens**\
 `The house in the Jamaica Estates neighborhood had no working smoke detectors and was crammed with tenants, fire officials said.`\
 https://nytimes.com/2025/04/20/nyregion/house-fire-queens-3-dead.html

@@ -1,3 +1,7 @@
+**Nico Iamaleava announces transfer to UCLA, reflects on time at Tennessee**\
+`UCLA was the expected landing spot for Iamaleava, who split with Tennessee amid attempts to renegotiate his NIL contract.`\
+https://nytimes.com/athletic/6294867/2025/04/20/nico-iamaleava-transfer-ucla-tennessee/
+
 **3 Men Die in Fire in Overcrowded House in Queens**\
 `The house in the Jamaica Estates neighborhood had no working smoke detectors and was crammed with tenants, fire officials said.`\
 https://nytimes.com/2025/04/20/nyregion/house-fire-queens-3-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6294714/2025/04/20/ronald-acuna-jr-jarred-kelenic-b
 **Bunnies, Bonnets, Brights and Blooms at New York’s Easter Parade**\
 `Time for revelry, and a celebration of spring, on a Sunday in the city.`\
 https://nytimes.com/2025/04/20/style/nyc-easter-parade-bonnet-festival.html
-
-**NBA playoffs takeaways: Thunder stifle Grizzlies in 51-point rout**\
-`The Thunder rolled over the Grizzlies in the first of four NBA playoff games Sunday. Here is our analysis of the action.`\
-https://nytimes.com/athletic/6294255/2025/04/20/nba-playoffs-score-results-takeaways/
 
