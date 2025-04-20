@@ -1,3 +1,11 @@
+**De Bruyne 'open' to Premier League stay**\
+`The Belgian announced earlier this month that he will leave City when his contract runs out at the end of the season.`\
+https://nytimes.com/athletic/6292777/2025/04/20/kevin-de-bruyne-next-club-manchester-city/
+
+**How Rockets can use Jalen Green's playmaking as X-factor against Warriors**\
+`Despite being the No. 2 seed, the Houston Rockets are still considered the underdog by many. Jalen Green could change that. `\
+https://nytimes.com/athletic/6285500/2025/04/20/jalen-green-rockets-warriors-2025-nba-playoffs/
+
 **Maple Leafs vs. Senators: 5 burning questions for the first round**\
 `The five things to watch closest as we get set for Game 1 of the best rivalry series in Round 1 of the playoffs this year.`\
 https://nytimes.com/athletic/6293238/2025/04/20/maple-leafs-senators-nhl-playoffs/
