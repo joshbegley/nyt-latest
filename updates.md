@@ -1,3 +1,7 @@
+**After Meeting Wrongly Deported Man, Van Hollen Accuses Trump of Defying Courts.**\
+`By Minho Kim`\
+https://nytimes.com/2025/04/20/us/politics/van-hollen-deportation-trump-courts.html
+
 **USA defeats Canada in wild gold medal showdown at Women’s World Championship**\
 `Team USA beat Canada 4-3 in overtime to claim gold at the 2025 Women's World Championship.`\
 https://nytimes.com/athletic/6294426/2025/04/20/hockey-usa-canada-gold-medal-womens-world-championship/

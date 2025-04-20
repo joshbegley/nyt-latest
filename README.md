@@ -6,8 +6,8 @@ https://nytimes.com/athletic/6294255/2025/04/20/nba-playoffs-score-results-takea
 `Team USA beat Canada 4-3 in overtime to claim gold at the 2025 Women's World Championship.`\
 https://nytimes.com/athletic/6294426/2025/04/20/hockey-usa-canada-gold-medal-womens-world-championship/
 
-**After Meeting Wrongly Deported Man, Van Hollen Accuses Trump of Defying Courts.**\
-`By Minho Kim`\
+**After Meeting Wrongly Deported Man, Van Hollen Accuses Trump of Defying Courts**\
+`“Facilitating his return means something more than doing nothing, and they are doing nothing,” Senator Chris Van Hollen said after his trip to El Salvador.`\
 https://nytimes.com/2025/04/20/us/politics/van-hollen-deportation-trump-courts.html
 
 **Barcelona take three-goal lead vs Chelsea in Women’s CL semi**\
