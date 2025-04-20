@@ -1,3 +1,7 @@
+**After Meeting Wrongly Deported Man, Van Hollen Accuses Trump of Defying Courts**\
+`“Facilitating his return means something more than doing nothing, and they are doing nothing,” Senator Chris Van Hollen said after his trip to El Salvador.`\
+https://nytimes.com/2025/04/20/us/politics/van-hollen-deportation-trump-courts.html
+
 **After Meeting Wrongly Deported Man, Van Hollen Accuses Trump of Defying Courts.**\
 `By Minho Kim`\
 https://nytimes.com/2025/04/20/us/politics/van-hollen-deportation-trump-courts.html
