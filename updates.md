@@ -1,3 +1,7 @@
+**Ukraine Says Russia Broke Its Own Easter Truce Vow**\
+`President Zelensky of Ukraine said the front lines had seen artillery fire and drone attacks, and that his troops were responding in kind.`\
+https://nytimes.com/2025/04/20/world/europe/ukraine-russia-easter-truce.html
+
 **Life after Toney: How Frank has used Mbeumo and Wissa to improve Brentford**\
 `Mbeumo and Wissa have a total of 34 combined goals this term (18 for Mbeumo, 16 for Wissa) for Brentford`\
 https://nytimes.com/athletic/6292798/2025/04/20/brentford-bryan-mbuemo-yoanne-wissa-analysis/
