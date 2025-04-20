@@ -1,3 +1,7 @@
+**Trump Administration Draft Order Calls for Drastic Overhaul of State Department**\
+`The draft executive order to be signed by President Trump would eliminate Africa operations and shut down bureaus working on democracy, human rights and refugee issues.`\
+https://nytimes.com/2025/04/20/us/politics/trump-state-department-overhaul.html
+
 **Ukraine Says Russia Broke Its Own Easter Truce Vow**\
 `President Zelensky of Ukraine said the front lines had seen artillery fire and drone attacks, and that his troops were responding in kind.`\
 https://nytimes.com/2025/04/20/world/europe/ukraine-russia-easter-truce.html

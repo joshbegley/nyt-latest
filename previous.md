@@ -1,3 +1,7 @@
+**Trump Administration Draft Order Calls for Drastic Overhaul of State Department**\
+`The draft executive order to be signed by President Trump would eliminate Africa operations and shut down bureaus working on democracy, human rights and refugee issues.`\
+https://nytimes.com/2025/04/20/us/politics/trump-state-department-overhaul.html
+
 **Ukraine Says Russia Broke Its Own Easter Truce Vow**\
 `President Zelensky of Ukraine said the front lines had seen artillery fire and drone attacks, and that his troops were responding in kind.`\
 https://nytimes.com/2025/04/20/world/europe/ukraine-russia-easter-truce.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6292865/2025/04/20/jamal-murray-nuggets-overtime-wi
 **Mackenzie Blackwood, revamped Avalanche leave slow-starting Stars with no margin for error**\
 `The Stars, who lost an eighth consecutive Game 1 on Saturday night, are good. But are they good enough to handle the Avalanche? `\
 https://nytimes.com/athletic/6293526/2025/04/20/dallas-stars-nhl-playoffs-game-1-avalanche/
-
-**The Darfur Genocide Never Ended**\
-`As Sudan’s soldiers and rebels continue to fight, the one constant seems to be that Sudanese civilians bear the brunt of their abuse.`\
-https://nytimes.com/2025/04/20/opinion/sudan-darfur-genocide.html
 
