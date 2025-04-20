@@ -1,3 +1,7 @@
+**Jaden McDaniels' clinical Game 1 brilliance is exactly how Wolves should attack Lakers**\
+`Showing no deference to Luka Dončić and LeBron James, Minnesota dismantled LA to open their first-round series.`\
+https://nytimes.com/athletic/6292929/2025/04/20/jaden-mcdaniels-and-timberwolves-make-statement-against-lakers-in-game-1/
+
 **The Pulse: Surprise! MLB's early top team**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6293449/2025/04/20/mlb-season-san-diego-padres-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6293431/2025/04/20/lakers-loss-playoffs-adjustments
 **Pope Meets With JD Vance After Criticism of Trump Administration**\
 `Francis and the vice president briefly exchanged Easter wishes, the Vatican said. An earlier meeting between Mr. Vance and church officials involved “an exchange of opinions” on migration.`\
 https://nytimes.com/2025/04/20/us/politics/pope-francis-meets-with-jd-vance.html
-
-**De Bruyne 'open' to Premier League stay**\
-`The Belgian announced earlier this month that he will leave City when his contract runs out at the end of the season.`\
-https://nytimes.com/athletic/6292777/2025/04/20/kevin-de-bruyne-next-club-manchester-city/
 
