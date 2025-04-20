@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Monday, April 21, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/04/20/todays-new-york-times-international-edition
+
 **Saudi Arabia 'more than happy' to host 64-team World Cup in 2034**\
 `The presidents of UEFA, Concacaf and the AFC have criticised the proposal, which has been put forward by South American soccer officials.`\
 https://nytimes.com/athletic/6292513/2025/04/20/saudi-2034-world-cup-64-team/

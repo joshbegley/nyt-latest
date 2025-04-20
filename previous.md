@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Monday, April 21, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/04/20/todays-new-york-times-international-edition
+
 **Saudi Arabia 'more than happy' to host 64-team World Cup in 2034**\
 `The presidents of UEFA, Concacaf and the AFC have criticised the proposal, which has been put forward by South American soccer officials.`\
 https://nytimes.com/athletic/6292513/2025/04/20/saudi-2034-world-cup-64-team/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6291958/2025/04/20/nhl-playoff-picks-odds-how-to-wa
 **Why R. Crumb Worked With a Biographer: ‘I Guess I Felt Sorry For You’**\
 `Dan Nadel’s “Crumb: A Cartoonist’s Life” takes on the good, the bad, the ugly and the weird. Over punk rock vegetarian food, subject and writer compared notes.`\
 https://nytimes.com/2025/04/20/books/review/r-crumb-feature-molly-young.html
-
-**The Face of Catholicism in the United States Has Changed. Here’s How.**\
-`For decades, the share of American Catholics declined in the face in secularization. But in recent years, those numbers have stabilized, buoyed by growing communities and broader societal changes.`\
-https://nytimes.com/2025/04/20/us/us-catholic-identity.html
 
