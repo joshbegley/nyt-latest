@@ -1,3 +1,11 @@
+**De Bruyne 'open' to Premier League stay**\
+`The Belgian announced earlier this month that he will leave City when his contract runs out at the end of the season.`\
+https://nytimes.com/athletic/6292777/2025/04/20/kevin-de-bruyne-next-club-manchester-city/
+
+**How Rockets can use Jalen Green's playmaking as X-factor against Warriors**\
+`Despite being the No. 2 seed, the Houston Rockets are still considered the underdog by many. Jalen Green could change that. `\
+https://nytimes.com/athletic/6285500/2025/04/20/jalen-green-rockets-warriors-2025-nba-playoffs/
+
 **Maple Leafs vs. Senators: 5 burning questions for the first round**\
 `The five things to watch closest as we get set for Game 1 of the best rivalry series in Round 1 of the playoffs this year.`\
 https://nytimes.com/athletic/6293238/2025/04/20/maple-leafs-senators-nhl-playoffs/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6292875/2025/04/20/wild-golden-knights-game-1/
 **Yohe: Kyle Dubas should do himself a favor and trade Erik Karlsson this summer**\
 `If Dubas is serious about Pittsburgh winning, his biggest offseason priority should be finding a trade partner for Karlsson. `\
 https://nytimes.com/athletic/6283159/2025/04/20/penguins-erik-karlsson-trade-kyle-dubas/
-
-**America Wants a God**\
-`Today, we’re introducing “Believing,” a yearlong project from The Times exploring how people experience religion and spirituality now.`\
-https://nytimes.com/2025/04/20/briefing/easter-america-religion-spirituality.html
-
-**Pope Francis Blesses Faithful at Easter Mass**\
-`The pontiff, appearing frail from a balcony at St. Peter’s Basilica, blessed a crowd gathered on the square outside. But a Vatican aide delivered a papal address that focused on global conflicts.`\
-https://nytimes.com/2025/04/20/world/europe/pope-francis-easter.html
 
