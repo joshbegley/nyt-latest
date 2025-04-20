@@ -1,3 +1,11 @@
+**The Briefing: Leicester 0 Liverpool 1 - Alexander-Arnold sets up a title party**\
+`The big talking points analysed from Sunday's Premier League game at the King Power Stadium`\
+https://nytimes.com/athletic/6291828/2025/04/20/leicester-liverpool-premier-league-analysis/
+
+**Leicester relegated from PL with five games remaining**\
+`Ruud van Nistelrooy's side have lost each of their most recent nine Premier League home matches without finding the net.`\
+https://nytimes.com/athletic/6277782/2025/04/20/leicester-city-relegated-premier-league/
+
 **Phillies place Brandon Marsh on IL with 'mild' hamstring injury**\
 `It's been 21 days since Brandon Marsh last collected a hit, the worst slump of his career.`\
 https://nytimes.com/athletic/6294265/2025/04/20/phillies-brandon-marsh-injured-list-mild-hamstring-injury/

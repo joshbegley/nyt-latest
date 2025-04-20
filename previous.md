@@ -1,3 +1,11 @@
+**The Briefing: Leicester 0 Liverpool 1 - Alexander-Arnold sets up a title party**\
+`The big talking points analysed from Sunday's Premier League game at the King Power Stadium`\
+https://nytimes.com/athletic/6291828/2025/04/20/leicester-liverpool-premier-league-analysis/
+
+**Leicester relegated from PL with five games remaining**\
+`Ruud van Nistelrooy's side have lost each of their most recent nine Premier League home matches without finding the net.`\
+https://nytimes.com/athletic/6277782/2025/04/20/leicester-city-relegated-premier-league/
+
 **Phillies place Brandon Marsh on IL with 'mild' hamstring injury**\
 `It's been 21 days since Brandon Marsh last collected a hit, the worst slump of his career.`\
 https://nytimes.com/athletic/6294265/2025/04/20/phillies-brandon-marsh-injured-list-mild-hamstring-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6291827/2025/04/20/man-utd-wolves-premier-league-re
 **You’ll Want to Make Extra of These Deviled Eggs**\
 `They’re always a hit, and they always go fast.`\
 https://nytimes.com/2025/04/20/dining/deviled-eggs-recipe-for-crowd.html
-
-**The Briefing: Fulham 1 Chelsea 2 - How important was this win? Did Enzo Maresca's changes fix the attack?**\
-`Chelsea picked up an important three points after coming from behind to beat Fulham 2-1`\
-https://nytimes.com/athletic/6291825/2025/04/20/fulham-chelsea-result-report-analysis/
-
-**Israel’s Military Cites ‘Professional Failures’ in Killings of Gaza Medics**\
-`In a statement summarizing its investigation into the deadly episode, the military said a deputy commander would be dismissed.`\
-https://nytimes.com/2025/04/20/world/middleeast/israel-gaza-medics.html
 
