@@ -1,3 +1,7 @@
+**Pope Meets With JD Vance After Criticism of Trump Administration**\
+`Francis and the vice president briefly exchanged Easter wishes, the Vatican said. An earlier meeting between Mr. Vance and church officials involved “an exchange of opinions” on migration.`\
+https://nytimes.com/2025/04/20/us/politics/pope-francis-meets-with-jd-vance.html
+
 **De Bruyne 'open' to Premier League stay**\
 `The Belgian announced earlier this month that he will leave City when his contract runs out at the end of the season.`\
 https://nytimes.com/athletic/6292777/2025/04/20/kevin-de-bruyne-next-club-manchester-city/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6292772/2025/04/20/bruins-2024-25-bold-predictions-
 **Could the Wild's season-long resilience help them upset Vegas? 'We have nothing to lose'**\
 `The Wild, following their season-long theme of “choose your hard,” didn’t take the easy route to the playoffs.`\
 https://nytimes.com/athletic/6292875/2025/04/20/wild-golden-knights-game-1/
-
-**Yohe: Kyle Dubas should do himself a favor and trade Erik Karlsson this summer**\
-`If Dubas is serious about Pittsburgh winning, his biggest offseason priority should be finding a trade partner for Karlsson. `\
-https://nytimes.com/athletic/6283159/2025/04/20/penguins-erik-karlsson-trade-kyle-dubas/
 

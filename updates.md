@@ -1,3 +1,7 @@
+**Pope Meets With JD Vance After Criticism of Trump Administration**\
+`Francis and the vice president briefly exchanged Easter wishes, the Vatican said. An earlier meeting between Mr. Vance and church officials involved “an exchange of opinions” on migration.`\
+https://nytimes.com/2025/04/20/us/politics/pope-francis-meets-with-jd-vance.html
+
 **De Bruyne 'open' to Premier League stay**\
 `The Belgian announced earlier this month that he will leave City when his contract runs out at the end of the season.`\
 https://nytimes.com/athletic/6292777/2025/04/20/kevin-de-bruyne-next-club-manchester-city/
