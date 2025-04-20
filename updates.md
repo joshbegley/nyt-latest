@@ -1,3 +1,7 @@
+**USA defeats Canada in wild gold medal showdown at Women’s World Championship**\
+`Team USA beat Canada 4-3 in overtime to claim gold at the 2025 Women's World Championship.`\
+https://nytimes.com/athletic/6294426/2025/04/20/hockey-usa-canada-gold-medal-womens-world-championship/
+
 **NBA playoffs takeaways: Thunder stifle Grizzlies in 51-point rout**\
 `The Thunder rolled over the Grizzlies in the first of four NBA playoff games Sunday. Here is our analysis of the action.`\
 https://nytimes.com/athletic/6294255/2025/04/20/nba-playoffs-score-results-takeaways/
