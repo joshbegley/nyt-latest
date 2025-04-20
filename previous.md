@@ -1,40 +1,40 @@
-**Trump Administration Draft Order Calls for Drastic Overhaul of State Department**\
-`The draft executive order to be signed by President Trump would eliminate Africa operations and shut down bureaus working on democracy, human rights and refugee issues.`\
-https://nytimes.com/2025/04/20/us/politics/trump-state-department-overhaul.html
+**Saudi Arabia 'more than happy' to host 64-team World Cup in 2034**\
+`The presidents of UEFA, Concacaf and the AFC have criticised the proposal, which has been put forward by South American soccer officials.`\
+https://nytimes.com/athletic/6292513/2025/04/20/saudi-2034-world-cup-64-team/
 
-**Ukraine Says Russia Broke Its Own Easter Truce Vow**\
-`President Zelensky of Ukraine said the front lines had seen artillery fire and drone attacks, and that his troops were responding in kind.`\
-https://nytimes.com/2025/04/20/world/europe/ukraine-russia-easter-truce.html
+**With Only Bad Options, Businesses Scramble for a Tariff Chaos Playbook**\
+`President Trump’s trade war is forcing companies to cut costs, raise prices, shrink profits, discontinue products and find other suppliers.`\
+https://nytimes.com/2025/04/20/business/economy/tariffs-business-strategy.html
 
-**The Trade Adviser Who Hates Trade**\
-`Once sidelined, President Trump’s counselor Peter Navarro has returned to Washington and quickly upended the global trading system.`\
-https://nytimes.com/2025/04/20/business/economy/peter-navarro-trump-tariffs.html
+**‘Sinners’ Is a Box Office Success (With a Big Asterisk)**\
+`Ryan Coogler’s original horror film was expected to sell a strong $40 million-plus in tickets over the weekend. But its profitability remains a long way off.`\
+https://nytimes.com/2025/04/20/business/media/sinners-box-office.html
 
-**An Inside Look at the Subway’s Archaic Signal System**\
-`Vast swaths of the subway still rely on signal equipment from the Great Depression. A multibillion dollar plan, now at risk, hopes to bring the system into the 21st century`\
-https://nytimes.com/interactive/2025/04/20/nyregion/nyc-subway-signals.html
+**A Cartoonist Who Tapped His Own Psyche and Found America’s Unruly Id**\
+`R. Crumb’s underground comics were instrumental in shaping the counterculture of the 1960s and beyond, Dan Nadel shows in an exemplary new biography.`\
+https://nytimes.com/2025/04/20/books/review/crumb-a-cartoonists-life-dan-nadel.html
 
-**‘When a Seat Freed Up at the Next Stop, He Sat Back Down’**\
-`An up-and-down routine on the E, a pretzel and a Playbill, and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2025/04/20/nyregion/metropolitan-diary.html
+**Inside a Union’s Fight Against Trump’s Federal Job Cuts**\
+`Leaders of the union representing government workers say their battle is galvanizing but also alarming. “It’s insulting to say,” one said, “that we are lazy.”`\
+https://nytimes.com/2025/04/20/business/economy/government-union-trump-musk.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/04/20/crosswords/spelling-bee-forum.html
+**A Different Kind of F.B.I. Chief: Jet-Setting Patel Loves the Limelight**\
+`Kash Patel’s embrace of the spotlight appears to be a break from the recent past, as his predecessors typically did the job with little fanfare.`\
+https://nytimes.com/2025/04/20/us/politics/kash-patel-spotlight-fbi-director.html
 
-**Barcelona's epic comeback at their worst - and the message it sends to their title rivals**\
-`Barcelona were 3-1 down against Celta Vigo but managed to respond and win the game 4-3 in stoppage time`\
-https://nytimes.com/athletic/6292924/2025/04/20/barcelona-celta-vigo-analysis/
+**How the War Over Trans Athletes Tore a Volleyball Team Apart**\
+`Blaire Fleming was a little-known college player. Then she suddenly became a symbol of injustice — to both sides of the controversy.`\
+https://nytimes.com/2025/04/20/magazine/trans-athletes-women-college-sports.html
 
-**Life after Toney: How Frank has used Mbeumo and Wissa to improve Brentford**\
-`Mbeumo and Wissa have a total of 34 combined goals this term (18 for Mbeumo, 16 for Wissa) for Brentford`\
-https://nytimes.com/athletic/6292798/2025/04/20/brentford-bryan-mbuemo-yoanne-wissa-analysis/
+**NHL playoff picks, odds, viewing info for all 3 of Sunday's games including Sens-Leafs**\
+`The Stanley Cup Playoffs continue Monday with the Devils at Hurricanes, Senators at Maple Leafs and Wild at Golden Knights. `\
+https://nytimes.com/athletic/6291958/2025/04/20/nhl-playoff-picks-odds-how-to-watch-devils-hurricanes-senators-maple-leafs-wild-golden-knights/
 
-**How Jamal Murray found the best version of himself in Nuggets' OT win over Clippers**\
-`For one half and an overtime, Murray was exactly the player the Nuggets needed him to be to pull off a Game 1 win.`\
-https://nytimes.com/athletic/6292865/2025/04/20/jamal-murray-nuggets-overtime-win-clippers/
+**Why R. Crumb Worked With a Biographer: ‘I Guess I Felt Sorry For You’**\
+`Dan Nadel’s “Crumb: A Cartoonist’s Life” takes on the good, the bad, the ugly and the weird. Over punk rock vegetarian food, subject and writer compared notes.`\
+https://nytimes.com/2025/04/20/books/review/r-crumb-feature-molly-young.html
 
-**Mackenzie Blackwood, revamped Avalanche leave slow-starting Stars with no margin for error**\
-`The Stars, who lost an eighth consecutive Game 1 on Saturday night, are good. But are they good enough to handle the Avalanche? `\
-https://nytimes.com/athletic/6293526/2025/04/20/dallas-stars-nhl-playoffs-game-1-avalanche/
+**The Face of Catholicism in the United States Has Changed. Here’s How.**\
+`For decades, the share of American Catholics declined in the face in secularization. But in recent years, those numbers have stabilized, buoyed by growing communities and broader societal changes.`\
+https://nytimes.com/2025/04/20/us/us-catholic-identity.html
 
