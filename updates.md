@@ -1,3 +1,7 @@
+**Syria’s Easter Celebrations Pass Peacefully, in Early Test of New Government**\
+`At least in the capital, Damascus, the Christian holiday festivities were protected and joyfully observed. Religious minorities are still wary, however, about the new leaders’ commitment to inclusivity.`\
+https://nytimes.com/2025/04/20/world/middleeast/syria-easter.html
+
 **Capitals look past late-season struggles, enjoy family time ahead of Game 1**\
 `Capitals coach Spencer Carbery suggested players bring their families to practice on Sunday as they prepare for Game 1 against Montreal.`\
 https://nytimes.com/athletic/6294805/2025/04/20/capitals-nhl-playoffs-canadiens-family/
