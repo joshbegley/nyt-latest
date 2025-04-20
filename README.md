@@ -1,3 +1,7 @@
+**Pope Francis Blesses Faithful at Easter Mass**\
+`The pontiff, appearing frail from a balcony at St. Peter’s Basilica, blessed a crowd gathered on the square outside. But a Vatican aide delivered a papal address that focused on global conflicts.`\
+https://nytimes.com/2025/04/20/world/europe/pope-francis-easter.html
+
 **Lewandowski an injury doubt for Copa del Rey final, UCL semi-final**\
 `The striker sustained a left hamstring injury on Saturday. He is Barcelona's top scorer this season with 40 goals in 48 games.`\
 https://nytimes.com/athletic/6293748/2025/04/20/robert-lewandowski-injury-barcelona/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6230595/2025/04/20/senators-brady-tkachuk-nhl-playo
 **After firing 3rd coach in 4 years, Rangers GM Chris Drury stands alone — and is running out of cards to play**\
 `This can't be the way to run a team, where coaches and players and even staffers are fearful of what's coming next.`\
 https://nytimes.com/athletic/6292581/2025/04/20/chris-drury-rangers-coach-firing/
-
-**Saudi Arabia Opposed Obama’s Deal With Iran. It Supports Trump’s. Why?**\
-`The agreements are shaping up to be very similar. But Gulf support for a nuclear deal shows how much the region has changed.`\
-https://nytimes.com/2025/04/20/world/middleeast/gulf-saudi-support-trump-iran-nuclear-deal.html
 
