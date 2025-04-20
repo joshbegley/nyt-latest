@@ -1,3 +1,7 @@
+**Pope Francis Blesses Easter Sunday Crowd**\
+`Pope Francis, appearing from a balcony overlooking St. Peter’s Square, blessed those present after a Vatican aide delivered a papal speech on his behalf.`\
+https://nytimes.com/video/world/europe/100000010120464/pope-francis-blessing-easter.html
+
 **Saudi Arabian Grand Prix briefing: Oscar Piastri wins to take championship lead**\
 `Oscar Piastri secured his third win of the season to take the lead in the drivers' championship`\
 https://nytimes.com/athletic/6294371/2025/04/20/saudi-arabian-grand-prix-briefing-oscar-piastri-wins-mclaren/

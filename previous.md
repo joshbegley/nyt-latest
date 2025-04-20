@@ -1,3 +1,7 @@
+**Pope Francis Blesses Easter Sunday Crowd**\
+`Pope Francis, appearing from a balcony overlooking St. Peter’s Square, blessed those present after a Vatican aide delivered a papal speech on his behalf.`\
+https://nytimes.com/video/world/europe/100000010120464/pope-francis-blessing-easter.html
+
 **Saudi Arabian Grand Prix briefing: Oscar Piastri wins to take championship lead**\
 `Oscar Piastri secured his third win of the season to take the lead in the drivers' championship`\
 https://nytimes.com/athletic/6294371/2025/04/20/saudi-arabian-grand-prix-briefing-oscar-piastri-wins-mclaren/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6294265/2025/04/20/phillies-brandon-marsh-injured-l
 **Holger Rune outlasts Carlos Alcaraz in Barcelona for first title since 2023**\
 `The win takes Rune back to the top 10 of the ATP Tour rankings.`\
 https://nytimes.com/athletic/6294220/2025/04/20/holger-rune-barcelona-open-result-analysis-alcaraz/
-
-**Hojlund's Man Utd goal tally defended by Ruben Amorim: 'It is a team issue'**\
-`Hojlund has scored just once in his last 28 appearances for the club across all competitions, dating back to December 12.`\
-https://nytimes.com/athletic/6294210/2025/04/20/rasmus-hojlund-manchester-united-amorim/
 
