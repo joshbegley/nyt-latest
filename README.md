@@ -1,3 +1,7 @@
+**Lewandowski an injury doubt for Copa del Rey final, UCL semi-final**\
+`The striker sustained a left hamstring injury on Saturday. He is Barcelona's top scorer this season with 40 goals in 48 games.`\
+https://nytimes.com/athletic/6293748/2025/04/20/robert-lewandowski-injury-barcelona/
+
 **Kyle Connor and Mark Scheifele put Jets on their backs in Game 1 win over Blues**\
 `Saturday's Game 1 comeback win took patience, aggression and top-end talent from Winnipeg's biggest forward stars.`\
 https://nytimes.com/athletic/6292861/2025/04/20/kyle-connor-mark-scheifele-jets-win-game-one/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6292581/2025/04/20/chris-drury-rangers-coach-firing
 **Saudi Arabia Opposed Obama’s Deal With Iran. It Supports Trump’s. Why?**\
 `The agreements are shaping up to be very similar. But Gulf support for a nuclear deal shows how much the region has changed.`\
 https://nytimes.com/2025/04/20/world/middleeast/gulf-saudi-support-trump-iran-nuclear-deal.html
-
-**How the Cardinals are evaluating Miles Mikolas as he works to regain trust**\
-`Friday's start against the Mets illustrated where manager Oli Marmol's trust level lies with the veteran Mikolas.`\
-https://nytimes.com/athletic/6291197/2025/04/20/cardinals-miles-mikolas-regain-trust-rotation/
 
