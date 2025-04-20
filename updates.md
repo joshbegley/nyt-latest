@@ -1,3 +1,15 @@
+**'Our offense was awful': Bucks drop Game 1 to Pacers**\
+`Giannis Antetokounmpo's massive effort wasn't enough as his teammates were unable to match the roster-wide contributions of the Pacers.`\
+https://nytimes.com/athletic/6292811/2025/04/19/bucks-pacers-game-1-nba-playoffs-giannis-antetokounmpo/
+
+**Dodgers' Roki Sasaki loses velocity but still gets Rangers out. Bullpen does not**\
+`Despite not having his usual fastball, Sasaki allowed just two runs on two hits in a career-best six innings.`\
+https://nytimes.com/athletic/6293044/2025/04/19/roki-sasaki-dodgers-fastball-bullpen-rangers/
+
+**Patrik Laine, Ivan Demidov give Canadiens 2 X-factors in playoff series against Capitals**\
+`Both the rookie Demidov and the veteran Laine could benefit from the new start the playoffs provide.`\
+https://nytimes.com/athletic/6293056/2025/04/19/canadiens-capitals-nhl-playoffs-laine-demidov/
+
 **'He's here for a reason': Wild prospect Zeev Buium to make NHL debut in playoffs**\
 `In Game 1 vs. Vegas on Sunday, the 19-year-old will become the first player in Wild history to make his NHL debut in a playoff game.
 `\

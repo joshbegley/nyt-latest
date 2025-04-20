@@ -1,3 +1,15 @@
+**'Our offense was awful': Bucks drop Game 1 to Pacers**\
+`Giannis Antetokounmpo's massive effort wasn't enough as his teammates were unable to match the roster-wide contributions of the Pacers.`\
+https://nytimes.com/athletic/6292811/2025/04/19/bucks-pacers-game-1-nba-playoffs-giannis-antetokounmpo/
+
+**Dodgers' Roki Sasaki loses velocity but still gets Rangers out. Bullpen does not**\
+`Despite not having his usual fastball, Sasaki allowed just two runs on two hits in a career-best six innings.`\
+https://nytimes.com/athletic/6293044/2025/04/19/roki-sasaki-dodgers-fastball-bullpen-rangers/
+
+**Patrik Laine, Ivan Demidov give Canadiens 2 X-factors in playoff series against Capitals**\
+`Both the rookie Demidov and the veteran Laine could benefit from the new start the playoffs provide.`\
+https://nytimes.com/athletic/6293056/2025/04/19/canadiens-capitals-nhl-playoffs-laine-demidov/
+
 **Inside the Urgent Fight Over the Trump Administration’s New Deportation Effort**\
 `The push to deport a group of Venezuelans raises questions about whether the government is following a Supreme Court order requiring that migrants receive due process.`\
 https://nytimes.com/2025/04/19/us/politics/trump-deportation-courts-venezuelan-migrants-texas.html
@@ -25,17 +37,4 @@ https://nytimes.com/2025/04/19/nyregion/bronx-mother-and-son-dead.html
 **Small Plane With 4 Aboard Crashes in Illinois**\
 `The authorities said they were conducting a “fatal aircraft investigation” but did not provide details about the number of people who died.`\
 https://nytimes.com/2025/04/19/us/plane-crash-illinois.html
-
-**'He's here for a reason': Wild prospect Zeev Buium to make NHL debut in playoffs**\
-`In Game 1 vs. Vegas on Sunday, the 19-year-old will become the first player in Wild history to make his NHL debut in a playoff game.
-`\
-https://nytimes.com/athletic/6292873/2025/04/19/wild-prospect-zeev-buium-nhl-playoffs/
-
-**Arizona governor vetoes bill that would have supported federal immigration efforts.**\
-`By Christina Morales`\
-https://nytimes.com/live/2025/04/19/us/trump-news/arizona-governor-vetoes-bill-that-would-have-supported-federal-immigration-efforts
-
-**Padres prospect Tirso Ornelas gets first call-up as Jason Heyward lands on IL**\
-`Ornelas was hitting .281/.418/.359 with one home run in 17 games with El Paso.`\
-https://nytimes.com/athletic/6292946/2025/04/19/padres-prospect-tirso-ornelas-call-up-jason-heyward-il/
 
