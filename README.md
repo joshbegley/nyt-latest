@@ -1,3 +1,7 @@
+**Saudi Arabian Grand Prix: Submit your questions for our F1 mailbag**\
+`What questions do you have for our writers after the Saudi Arabian Grand Prix?`\
+https://nytimes.com/athletic/6294903/2025/04/20/saudi-arabian-grand-prix-submit-your-questions-for-our-f1-mailbag/
+
 **Nico Iamaleava announces transfer to UCLA, reflects on time at Tennessee**\
 `UCLA was the expected landing spot for Iamaleava, who split with Tennessee amid attempts to renegotiate his NIL contract.`\
 https://nytimes.com/athletic/6294867/2025/04/20/nico-iamaleava-transfer-ucla-tennessee/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6294760/2025/04/20/dodgers-pitcher-tyler-glasnow-le
 **Acuña Jr. on Braves' reaction to Kelenic mistake: 'They would take me out'**\
 `Saturday's base-running gaffe with Jarred Kelenic was similar to one in August 2019 when Acuña was removed from a game by Snitker.`\
 https://nytimes.com/athletic/6294714/2025/04/20/ronald-acuna-jr-jarred-kelenic-braves-reaction-hustle/
-
-**Bunnies, Bonnets, Brights and Blooms at New York’s Easter Parade**\
-`Time for revelry, and a celebration of spring, on a Sunday in the city.`\
-https://nytimes.com/2025/04/20/style/nyc-easter-parade-bonnet-festival.html
 
