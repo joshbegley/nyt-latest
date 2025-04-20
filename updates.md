@@ -1,3 +1,15 @@
+**Max Fried's no-hit bid ends in 8th after controversial scoring change**\
+`"I made a decision," Rays official scorer Bill Mathews said about the change.`\
+https://nytimes.com/athletic/6294733/2025/04/20/max-fried-no-hitter-ended-error/
+
+**Dodgers pitcher Tyler Glasnow leaves game with apparent injury**\
+`Pitcher pointed at his ankle before being pulled from game, though team has not specified what was bothering right-hander.`\
+https://nytimes.com/athletic/6294760/2025/04/20/dodgers-pitcher-tyler-glasnow-leaves-apparent-injury/
+
+**Ronald Acuña Jr. on Braves' reaction to Jarred Kelenic mistake: 'They would take me out'**\
+`Saturday's base running gaffe with Jarred Kelenic was similar to one in August 2019 when Acuña was removed from a game by Snitker.`\
+https://nytimes.com/athletic/6294714/2025/04/20/ronald-acuna-jr-jarred-kelenic-braves-reaction-hustle/
+
 **Bunnies, Bonnets, Brights and Blooms at New York’s Easter Parade**\
 `Time for revelry, and a celebration of spring, Sunday in the city.`\
 https://nytimes.com/2025/04/20/style/nyc-easter-parade-bonnet-festival.html
