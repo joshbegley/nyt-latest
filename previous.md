@@ -1,3 +1,7 @@
+**2 Dead in Oklahoma Flooding as Severe Weather Threatens the Midwest**\
+`Two people died after their vehicle was trapped in floodwaters. Hail and strong winds were possible in parts of Arkansas, Missouri and Oklahoma on Sunday, forecasters said.`\
+https://nytimes.com/2025/04/20/weather/storms-flood-tornado-oklahoma-texas.html
+
 **Flipping the script: Knicks player once 'hated' by his teammates is Game 1's unlikely hero**\
 `Jalen Brunson and Cam Payne combined for the greatest four minutes of the Knicks’ season. "Everybody’s on my side this time,” Payne said.`\
 https://nytimes.com/athletic/6293560/2025/04/20/cameron-payne-knicks-sixers-nba-playoffs/
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/6291827/2025/04/20/man-utd-wolves-premier-league-re
 `They’re always a hit, and they always go fast.`\
 https://nytimes.com/2025/04/20/dining/deviled-eggs-recipe-for-crowd.html
 
-**The Briefing: Fulham 1 Chelsea 2 - How important was this win? Did Maresca's changes fix attack?**\
+**The Briefing: Fulham 1 Chelsea 2 - How important was this win? Did Enzo Maresca's changes fix the attack?**\
 `Chelsea picked up an important three points after coming from behind to beat Fulham 2-1`\
 https://nytimes.com/athletic/6291825/2025/04/20/fulham-chelsea-result-report-analysis/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6292929/2025/04/20/jaden-mcdaniels-and-timberwolves
 **The Pulse: Surprise! MLB's early top team**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6293449/2025/04/20/mlb-season-san-diego-padres-the-pulse/
-
-**Read Justice Alito’s Dissent**\
-`Justice Samuel A. Alito Jr. wrote that the Supreme Court’s decision to block the Trump administration from deporting Venezuelan migrants under a wartime law was premature.`\
-https://nytimes.com/interactive/2025/04/20/us/politics/24a1007-dissent.html
 

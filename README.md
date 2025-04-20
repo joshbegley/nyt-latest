@@ -1,3 +1,7 @@
+**Hojlund's Man Utd goal tally defended by Ruben Amorim: 'It is a team issue'**\
+`Hojlund has scored just once in his last 28 appearances for the club across all competitions, dating back to December 12.`\
+https://nytimes.com/athletic/6294210/2025/04/20/rasmus-hojlund-manchester-united-amorim/
+
 **2 Dead in Oklahoma Flooding as Severe Weather Threatens the Midwest**\
 `Two people died after their vehicle was trapped in floodwaters. Hail and strong winds were possible in parts of Arkansas, Missouri and Oklahoma on Sunday, forecasters said.`\
 https://nytimes.com/2025/04/20/weather/storms-flood-tornado-oklahoma-texas.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/20/us/politics/alito-supreme-court-dissent-alien-ene
 **Jaden McDaniels' clinical Game 1 brilliance is exactly how Wolves should attack Lakers**\
 `Showing no deference to Luka Dončić and LeBron James, Minnesota dismantled LA to open their first-round series.`\
 https://nytimes.com/athletic/6292929/2025/04/20/jaden-mcdaniels-and-timberwolves-make-statement-against-lakers-in-game-1/
-
-**The Pulse: Surprise! MLB's early top team**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6293449/2025/04/20/mlb-season-san-diego-padres-the-pulse/
 

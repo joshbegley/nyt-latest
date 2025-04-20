@@ -1,3 +1,11 @@
+**2 Dead in Oklahoma Flooding as Severe Weather Threatens the Midwest**\
+`Two people died after their vehicle was trapped in floodwaters. Hail and strong winds were possible in parts of Arkansas, Missouri and Oklahoma on Sunday, forecasters said.`\
+https://nytimes.com/2025/04/20/weather/storms-flood-tornado-oklahoma-texas.html
+
+**The Briefing: Fulham 1 Chelsea 2 - How important was this win? Did Enzo Maresca's changes fix the attack?**\
+`Chelsea picked up an important three points after coming from behind to beat Fulham 2-1`\
+https://nytimes.com/athletic/6291825/2025/04/20/fulham-chelsea-result-report-analysis/
+
 **Flipping the script: Knicks player once 'hated' by his teammates is Game 1's unlikely hero**\
 `Jalen Brunson and Cam Payne combined for the greatest four minutes of the Knicks’ season. "Everybody’s on my side this time,” Payne said.`\
 https://nytimes.com/athletic/6293560/2025/04/20/cameron-payne-knicks-sixers-nba-playoffs/
