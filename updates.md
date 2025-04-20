@@ -1,3 +1,8 @@
+**'He's here for a reason': Wild prospect Zeev Buium to make NHL debut in playoffs**\
+`In Game 1 vs. Vegas on Sunday, the 19-year-old will become the first player in Wild history to make his NHL debut in a playoff game.
+`\
+https://nytimes.com/athletic/6292873/2025/04/19/wild-prospect-zeev-buium-nhl-playoffs/
+
 **Trump Administration Asks Justices to Reject A.C.L.U. Request to Pause Deportations**\
 `The solicitor general asked the Supreme Court to ‘dissolve’ their temporary block on the deportations of Venezuelans and to allow lower courts to consider the case.`\
 https://nytimes.com/2025/04/19/us/politics/trump-administration-scotus-deportations.html
