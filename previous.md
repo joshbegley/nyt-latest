@@ -1,3 +1,15 @@
+**U.S. Catholics, and some Protestants, mourn a pope who ‘tried to understand.’**\
+`By Patricia Mazzei, Shayla Colon and Robert Chiarito`\
+https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/us-catholics-reaction-mourn
+
+**‘Conclave’ Offers a Glimpse Inside the Secretive Process of Choosing a Pope**\
+`Papal experts have lauded the Oscar-nominated film as one of the more accurate depictions of the closed-door Vatican gathering.`\
+https://nytimes.com/2025/04/21/world/europe/pope-francis-conclave-film.html
+
+**Israeli Security Chief Accuses Netanyahu of Making Improper Requests**\
+`In a scathing court affidavit, the head of the Shin Bet said that Prime Minister Benjamin Netanyahu pressed him to spy on anti-government protesters.`\
+https://nytimes.com/2025/04/21/world/middleeast/israel-security-chief-netanyahu-accusations.html
+
 **GWS-the-studio-seth-rogen-evan-goldberg**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/the-studio-seth-rogen-evan-goldberg
@@ -6,7 +18,7 @@ https://nytimes.com/newsgraphics/card-story/the-studio-seth-rogen-evan-goldberg
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/shocking-tv-deaths-last-of-us
 
-**In Congestion Pricing Fight, Trump Administration Ratchets Up the Threats**\
+**In Congestion Pricing Fight, Trump Administration Ratchets Up Threats**\
 `The administration has demanded the tolling program end by late May, arguing that it unfairly burdens working class commuters.`\
 https://nytimes.com/2025/04/21/nyregion/trump-nyc-congestion-pricing-threats.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6296437/2025/04/21/jamie-vardy-leicester-relegation
 **Trump Tells Hegseth He Stands Behind Him Despite 2nd Signal Chat Episode**\
 `Defense Secretary Pete Hegseth called President Trump hours after The New York Times reported that Mr. Hegseth had shared details about a military strike in a group chat.`\
 https://nytimes.com/2025/04/21/us/politics/trump-hegseth-signal-chat-leak.html
-
-**En su discurso final, Francisco se centró en un tema importante de su papado: los migrantes**\
-`“Cuánto desprecio se tiene a veces hacia los más débiles, los marginados y los migrantes”, escribió Francisco en un discurso papal del Domingo de Resurrección.`\
-https://nytimes.com/live/2025/04/21/espanol/muere-papa-francisco/papa-francisco-discurso-final-migrantes
-
-**Eagles, Cam Jurgens agree to four-year, $68 million extension**\
-`The Eagles now have four of their starting five linemen on long-term extensions.`\
-https://nytimes.com/athletic/6296398/2025/04/21/eagles-cam-jurgens-extension/
-
-**Boston Marathon: John Korir wins men's elite division with**\
-`Hug won the marathon for a third consecutive time while Scaroni snagged her second career victory in Boston.`\
-https://nytimes.com/athletic/6296201/2025/04/21/boston-marathon-results-winners-2025/
 

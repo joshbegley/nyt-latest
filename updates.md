@@ -1,3 +1,19 @@
+**U.S. Catholics, and some Protestants, mourn a pope who ‘tried to understand.’**\
+`By Patricia Mazzei, Shayla Colon and Robert Chiarito`\
+https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/us-catholics-reaction-mourn
+
+**‘Conclave’ Offers a Glimpse Inside the Secretive Process of Choosing a Pope**\
+`Papal experts have lauded the Oscar-nominated film as one of the more accurate depictions of the closed-door Vatican gathering.`\
+https://nytimes.com/2025/04/21/world/europe/pope-francis-conclave-film.html
+
+**Israeli Security Chief Accuses Netanyahu of Making Improper Requests**\
+`In a scathing court affidavit, the head of the Shin Bet said that Prime Minister Benjamin Netanyahu pressed him to spy on anti-government protesters.`\
+https://nytimes.com/2025/04/21/world/middleeast/israel-security-chief-netanyahu-accusations.html
+
+**In Congestion Pricing Fight, Trump Administration Ratchets Up Threats**\
+`The administration has demanded the tolling program end by late May, arguing that it unfairly burdens working class commuters.`\
+https://nytimes.com/2025/04/21/nyregion/trump-nyc-congestion-pricing-threats.html
+
 **GWS-the-studio-seth-rogen-evan-goldberg**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/the-studio-seth-rogen-evan-goldberg
