@@ -1,3 +1,15 @@
+**'He’s a horse out there' – Tomas Hertl gives Golden Knights the playoff performance they envisioned**\
+`The power forward thrives in playoff hockey, where open ice and offensive opportunities are hard to come by.  `\
+https://nytimes.com/athletic/6295750/2025/04/21/golden-knights-wild-hertl/
+
+**It's now or never: Kings face best chance in years to finally beat Oilers**\
+`The best Kings team of recent years will face one of the weaker Oilers teams of recent years. If not now, when?`\
+https://nytimes.com/athletic/6295425/2025/04/21/kings-nhl-playoffs-oilers-first-round/
+
+**Tanner Scott working through tweaks during first month with Dodgers**\
+`Six of his 20 hardest-thrown fastballs this season came in his save on Sunday against the Rangers.`\
+https://nytimes.com/athletic/6295370/2025/04/21/dodgers-tanner-scott-closer-adjustments/
+
 **No Corrections: April 21, 2025**\
 `No corrections appeared in print on Monday, April 21, 2025.`\
 https://nytimes.com/2025/04/21/pageoneplus/no-corrections-april-21-2025.html
