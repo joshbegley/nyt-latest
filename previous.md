@@ -1,3 +1,7 @@
+**'We’ve got to do a better job': Magic's role players didn't do enough in Game 1**\
+`Paolo Banchero and Franz Wagner accounted for 59 points Sunday. The rest of the Magic scored 27.`\
+https://nytimes.com/athletic/6295292/2025/04/20/magic-celtics-game-1-nba-playoffs-orlando-role-players/
+
 **El Salvador’s president proposes repatriating Venezuelans sent by Trump, but wants Venezuela to free prisoners in return.**\
 `On`\
 https://nytimes.com/live/2025/04/20/us/trump-news/el-salvadors-president-proposes-repatriating-venezuelans-sent-by-trump-but-wants-venezuela-to-free-prisoners-in-return
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6295133/2025/04/20/padres-luis-arraez-collision-mau
 **Liam Hendriks is back in the bigs after 681 days: 'It's been a long and arduous journey'**\
 `Hendriks didn't have the results he wanted in his first MLB game since June 2023, but that he was back at all was worth celebrating.`\
 https://nytimes.com/athletic/6294984/2025/04/20/liam-hendriks-red-sox-return/
-
-**Why Oilers will go as far as McDavid and Draisaitl can take them**\
-`As usual, the Oilers’ two best players feel a strong sense of ownership for leading the way in the playoffs.`\
-https://nytimes.com/athletic/6295093/2025/04/20/oilers-mcdavid-draisaitl-nhl-playoffs/
 
