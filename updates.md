@@ -1,3 +1,11 @@
+**Can a Judge Hold the White House in Contempt of Court?**\
+`The Trump administration has arrived at the cusp of what a judge suspects is outright defiance of court orders. Adam Liptak, who covers the Supreme Court for The New York Times, explores what could come next.`\
+https://nytimes.com/video/us/100000010115269/can-a-judge-hold-the-white-house-in-contempt-of-court.html
+
+**In Congestion Pricing Fight, Trump Administration Ratchets Up Threats**\
+`The administration has demanded the tolling program end by late May, arguing that it unfairly burdens working-class commuters.`\
+https://nytimes.com/2025/04/21/nyregion/trump-nyc-congestion-pricing-threats.html
+
 **Chelsea fans: Drop in your questions now for our writers**\
 `The Athletic's Chelsea writers are poised. Drop your questions in for them to answer and we will be back with answers later in the week`\
 https://nytimes.com/athletic/6296576/2025/04/21/chelsea-fans-drop-in-your-questions-now-for-our-writers/
