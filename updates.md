@@ -1,3 +1,7 @@
+**South Korean Police Seek Arsonist After Deadly Apartment Fire in Seoul**\
+`The fire in a 21-story building in southern Seoul killed one person and injured several others, two of them seriously.`\
+https://nytimes.com/2025/04/20/world/asia/south-korea-apartment-fire.html
+
 **'That's the Jrue I love': Holiday takes over for Celtics in Game 1 win**\
 `"Offensively and defensively, he totally changed the game," Al Horford said of Jrue Holiday.`\
 https://nytimes.com/athletic/6295375/2025/04/20/jrue-holiday-celtics-win-magic-game-1/
