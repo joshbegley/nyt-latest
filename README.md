@@ -1,6 +1,10 @@
+**In Seattle, a Deep Dive into the Provocative and Creative World of Ai Weiwei**\
+`A show now at the Seattle Art Museum is the largest in the U.S. in the 40-year career of the renowned Chinese artist.`\
+https://nytimes.com/2025/04/21/arts/design/ai-weiwei-seattle-exhibition.html
+
 **Pope’s Will Says He Wants to Be Buried in a Simple Tomb in Rome**\
 `Pope Francis stipulated that he be laid to rest at the Papal Basilica of St. Mary Major, where six other popes are buried.`\
-https://nytimes.com/2025/04/21/world/europe/will-released.html
+https://nytimes.com/2025/04/21/world/europe/pope-francis-will-released.html
 
 **U.S. Airstrike Hits Yemeni Capital, Killing 12, Houthi Health Officials Say**\
 `Witnesses said an airstrike on Sunday hit a densely populated area adjacent to the Old City in Houthi-dominated Sana.`\
@@ -34,8 +38,4 @@ https://nytimes.com/2025/04/21/nyregion/nadine-bob-menendez-wife-guilty-bribery-
 **Red Sox takeaways: Walker Buehler pitching well, offense still searching for consistency**\
 `The Red Sox offense is still searching for its optimal gear, while the rotation will be welcoming back a key member on Tuesday.`\
 https://nytimes.com/athletic/6297003/2025/04/21/red-sox-takeaways-walker-buelher-offensive-inconsistency/
-
-**Biles wins Laureus sportswoman of 2024, Madrid's team award, Yamal recognised**\
-`Mondo Duplantis was crowned sportsman of the year following his success at the Paris Olympics and setting multiple pole vault world records.`\
-https://nytimes.com/athletic/6296767/2025/04/21/simone-biles-award-duplantis-real-madrid-lamine-yamal/
 
