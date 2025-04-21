@@ -1,5 +1,5 @@
 **Battle of Ontario reignited as Leafs rout Senators: 5 takeaways from Game 1**\
-`Toronto Maple Leafs dominant in 6-2 win, take 1-0 series lead over the Ottawa Senators.`\
+`The Toronto Maple Leafs looked dominant in 6-2 win and take 1-0 series lead over the Ottawa Senators.`\
 https://nytimes.com/athletic/6295283/2025/04/20/leafs-senators-game-1-takeaways-nhl-playoffs/
 
 **'We’ve got to do a better job': Magic's role players didn't do enough in Game 1**\
