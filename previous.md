@@ -1,3 +1,15 @@
+**Inside Nabil Bentaleb's incredible comeback after cardiac arrest: 'It’s not about how you fall, but how you get up'**\
+`Bentaleb suffered a cardiac arrest while playing football last June. The Athletic spoke to those close to him about his remarkable return`\
+https://nytimes.com/athletic/6272086/2025/04/21/nabil-bentaleb-lille-comeback-cardiac-arrest-football/
+
+**What next for Kieran McKenna?**\
+`When Ipswich Town return to the Championship, what will happen to the manager so in demand a year ago?`\
+https://nytimes.com/athletic/6291046/2025/04/21/kieran-mckenna-ipswich-relegation/
+
+**What went wrong at Leicester: Catastrophic decisions, bad recruitment and toxicity that turned into despair**\
+`Disjointed, dejected, demotivated and defeated. It was a miserable end to a horrendous campaign. Here we break down where it went wrong`\
+https://nytimes.com/athletic/6272009/2025/04/21/leicester-relegation-cooper-van-nistelrooy/
+
 **How Vitor Pereira saved Wolves' season: Tactical clarity, dealing with problem players and meeting fans in the pub**\
 `The Portuguese boss is riding a wave of adulation and respect, having arrived in December and rescued a team spiralling out of control`\
 https://nytimes.com/athletic/6290969/2025/04/21/how-vitor-pereira-saved-wolves-season/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6294041/2025/04/21/connections-sports-edition-hints
 **Quote of the Day: Tax Relief for Victims of Scams**\
 `Quotation of the Day for Monday, April 21, 2025.`\
 https://nytimes.com/2025/04/20/pageoneplus/quote-of-the-day-tax-relief-for-victims-of-scams.html
-
-**Cases challenging the Trump administration’s deportations hinge on two key legal terms.**\
-`Two concepts — due process and habeas corpus — are central to cases challenging the Trump administration’s deportations. Here’s what they mean and why they matter.`\
-https://nytimes.com/live/2025/04/20/us/trump-news/due-process-habeas-corpus-trump
-
-**South Korean Police Seek Arsonist After Deadly Apartment Fire in Seoul**\
-`The fire in a 21-story building in southern Seoul killed one person and injured several others, two of them seriously.`\
-https://nytimes.com/2025/04/20/world/asia/south-korea-apartment-fire.html
-
-**'That's the Jrue I love': Holiday takes over for Celtics in Game 1 win**\
-`"Offensively and defensively, he totally changed the game," Al Horford said of Jrue Holiday.`\
-https://nytimes.com/athletic/6295375/2025/04/20/jrue-holiday-celtics-win-magic-game-1/
 

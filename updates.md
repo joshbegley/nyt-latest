@@ -1,3 +1,15 @@
+**Inside Nabil Bentaleb's incredible comeback after cardiac arrest: 'It’s not about how you fall, but how you get up'**\
+`Bentaleb suffered a cardiac arrest while playing football last June. The Athletic spoke to those close to him about his remarkable return`\
+https://nytimes.com/athletic/6272086/2025/04/21/nabil-bentaleb-lille-comeback-cardiac-arrest-football/
+
+**What next for Kieran McKenna?**\
+`When Ipswich Town return to the Championship, what will happen to the manager so in demand a year ago?`\
+https://nytimes.com/athletic/6291046/2025/04/21/kieran-mckenna-ipswich-relegation/
+
+**What went wrong at Leicester: Catastrophic decisions, bad recruitment and toxicity that turned into despair**\
+`Disjointed, dejected, demotivated and defeated. It was a miserable end to a horrendous campaign. Here we break down where it went wrong`\
+https://nytimes.com/athletic/6272009/2025/04/21/leicester-relegation-cooper-van-nistelrooy/
+
 **How Vitor Pereira saved Wolves' season: Tactical clarity, dealing with problem players and meeting fans in the pub**\
 `The Portuguese boss is riding a wave of adulation and respect, having arrived in December and rescued a team spiralling out of control`\
 https://nytimes.com/athletic/6290969/2025/04/21/how-vitor-pereira-saved-wolves-season/

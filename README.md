@@ -1,40 +1,40 @@
-**Inside Nabil Bentaleb's incredible comeback after cardiac arrest: 'It’s not about how you fall, but how you get up'**\
-`Bentaleb suffered a cardiac arrest while playing football last June. The Athletic spoke to those close to him about his remarkable return`\
-https://nytimes.com/athletic/6272086/2025/04/21/nabil-bentaleb-lille-comeback-cardiac-arrest-football/
+**Man City defeat shows that Everton's revival can only continue with more depth**\
+`The potential loss of James Tarkowski to a rare injury serves as a reminder that this squad needs bolstering`\
+https://nytimes.com/athletic/6292684/2025/04/21/everton-tarkowski-man-city-injury/
 
-**What next for Kieran McKenna?**\
-`When Ipswich Town return to the Championship, what will happen to the manager so in demand a year ago?`\
-https://nytimes.com/athletic/6291046/2025/04/21/kieran-mckenna-ipswich-relegation/
+**Newcastle have been served a warning for next season: This squad needs more depth**\
+`Newcastle named the same starting line-up when they lost 4-1 against Aston Villa on Saturday`\
+https://nytimes.com/athletic/6292084/2025/04/21/newcastle-united-aston-villa-analysis/
 
-**What went wrong at Leicester: Catastrophic decisions, bad recruitment and toxicity that turned into despair**\
-`Disjointed, dejected, demotivated and defeated. It was a miserable end to a horrendous campaign. Here we break down where it went wrong`\
-https://nytimes.com/athletic/6272009/2025/04/21/leicester-relegation-cooper-van-nistelrooy/
+**Maresca may have lost Chelsea's fans, but he has clearly not lost the players**\
+`The head coach was booed before a comeback brought three points. Will fans ever take to him?`\
+https://nytimes.com/athletic/6294389/2025/04/21/chelsea-fulham-maresca-fans-players/
 
-**How Vitor Pereira saved Wolves' season: Tactical clarity, dealing with problem players and meeting fans in the pub**\
-`The Portuguese boss is riding a wave of adulation and respect, having arrived in December and rescued a team spiralling out of control`\
-https://nytimes.com/athletic/6290969/2025/04/21/how-vitor-pereira-saved-wolves-season/
+**Arsenal's original right side is back (plus Trossard) - but is it too soon to use it against PSG?**\
+`Arteta still has decisions to make before the Champions League semi-final starts next week, but this more fluid performance bodes well`\
+https://nytimes.com/athletic/6294029/2025/04/21/arsenals-saka-white-odegaard-trossard-psg/
 
-**Have the Maple Leafs unlocked a new weapon for playoff success?**\
-`The Leafs historically don't always do well with the man advantage in the playoffs. Sunday night might mark a new era.`\
-https://nytimes.com/athletic/6295476/2025/04/21/maple-leafs-power-play-nhl-playoffs-senators-game-1/
+**Crystal Palace rediscovered their resilience in time for when they need it most**\
+`Crystal Palace managed a 0-0 draw against Bournemouth despite going down to 10 men against Bournemouth`\
+https://nytimes.com/athletic/6292991/2025/04/21/crystal-palace-bournemouth-analysis/
 
-**‘The Last of Us’ Season 2, Episode 2 Recap: Revenge**\
-`The shocking twist in this week’s episode is sure to have all kinds of fallout. One consequence is certain: The show will never be the same.`\
-https://nytimes.com/2025/04/21/arts/television/the-last-of-us-recap-season-2-episode-2-joel.html
+**Watkins used his anger to prove a point. What next for the Villa striker?**\
+`Watkins started both games against PSG on the bench. He sent a message on Saturday against Newcastle`\
+https://nytimes.com/athletic/6292213/2025/04/21/ollie-watkins-aston-villa-newcastle-analysis/
 
-**Peeking Into Joan Didion’s Years of Psychological Thinking**\
-`Drawn from her previously unpublished reflections on sessions with a therapist, “Notes to John” is at once slightly sordid and utterly fascinating.`\
-https://nytimes.com/2025/04/21/books/review/joan-didion-notes-to-john.html
+**Jota Silva is exactly the sort of versatile performer Nottingham Forest's squad needs**\
+`The forward has had to be patient, both this season with new club Forest and throughout a career where he's risen from amateur level`\
+https://nytimes.com/athletic/6289826/2025/04/21/jota-silva-versatile-performer/
 
-**Monday Briefing: A Broken Truce in Ukraine**\
-`Plus, a strawberry farmer on a mission.`\
-https://nytimes.com/2025/04/21/briefing/monday-briefing-a-broken-truce-in-ukraine.html
+**Brighton were the biggest net spenders in Europe last summer, so have they underachieved?**\
+`The club shelled out the best part of £200m, but with little sign of a return yet. But, this being Brighton, there is a longer-term plan`\
+https://nytimes.com/athletic/6291999/2025/04/21/brighton-transfer-spending-progress/
 
-**Connections: Sports Edition Coach: Hints for April 21, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6294041/2025/04/21/connections-sports-edition-hints-for-april-21-2025/
+**Rasmus Hojlund, Manchester United's suffering striker they cannot afford to drop**\
+`He looks burdened by it all, as he has for months now, but sometimes the only way out of a dry spell is through it.`\
+https://nytimes.com/athletic/6294677/2025/04/21/rasmus-hojlund-manchester-united/
 
-**Quote of the Day: Tax Relief for Victims of Scams**\
-`Quotation of the Day for Monday, April 21, 2025.`\
-https://nytimes.com/2025/04/20/pageoneplus/quote-of-the-day-tax-relief-for-victims-of-scams.html
+**The Briefing: Arsenal's huge regret, big spenders keep sinking and who should sign De Bruyne?**\
+`Dissecting the weekend's top-flight football - featuring Arteta's missed opportunity, unlikely strugglers and De Bruyne's future `\
+https://nytimes.com/athletic/6294039/2025/04/21/arsenal-premier-league-title-regret/
 
