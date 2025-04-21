@@ -35,6 +35,6 @@ https://nytimes.com/2025/04/21/science/art-rome-maratta-frescoes.html
 https://nytimes.com/athletic/6295396/2025/04/21/barcelona-chelsea-champions-league/
 
 **The Bernabeu booed Kylian Mbappe but embraced Real Madrid after their tough week**\
-`Real Madrid managed a last-minute victory against Athletic Bilbao on Sunday evening`\
+`After Champions League elimination to Arsenal, there was a lot of expectation about how the Madrid fans would react to their team`\
 https://nytimes.com/athletic/6295379/2025/04/21/real-madrid-bernabeu-kylian-mbappe-boo/
 
