@@ -1,3 +1,7 @@
+**Quote of the Day: Tax Relief for Victims of Scams**\
+`Quotation of the Day for Monday, April 21, 2025.`\
+https://nytimes.com/2025/04/20/pageoneplus/quote-of-the-day-tax-relief-for-victims-of-scams.html
+
 **Cases challenging the Trump administration’s deportations hinge on two key legal terms.**\
 `Two concepts — due process and habeas corpus — are central to cases challenging the Trump administration’s deportations. Here’s what they mean and why they matter.`\
 https://nytimes.com/live/2025/04/20/us/trump-news/due-process-habeas-corpus-trump

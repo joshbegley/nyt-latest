@@ -1,3 +1,7 @@
+**Quote of the Day: Tax Relief for Victims of Scams**\
+`Quotation of the Day for Monday, April 21, 2025.`\
+https://nytimes.com/2025/04/20/pageoneplus/quote-of-the-day-tax-relief-for-victims-of-scams.html
+
 **Cases challenging the Trump administration’s deportations hinge on two key legal terms.**\
 `Two concepts — due process and habeas corpus — are central to cases challenging the Trump administration’s deportations. Here’s what they mean and why they matter.`\
 https://nytimes.com/live/2025/04/20/us/trump-news/due-process-habeas-corpus-trump
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6295223/2025/04/20/thunder-near-historic-game-1-blo
 **Jameson Taillon is feeling locked in physically, and his four-seamer proves it**\
 `After a dreadful 2023 season, Taillon adjusted, and results were better in 2024, but in 2025, his four-seamer has been a revelation.`\
 https://nytimes.com/athletic/6295180/2025/04/20/cubs-jameson-taillon-fastball/
-
-**Braves takeaways: Alex Verdugo's instant impact, team's turnaround, Drake Baldwin to stay?**\
-`Verdugo provided a spark atop the order in his first three games with the Braves: "He likes being in that leadoff spot and jumped right in."`\
-https://nytimes.com/athletic/6295176/2025/04/20/braves-alex-verdugo-drake-baldwin/
 
