@@ -1,3 +1,7 @@
+**Cases challenging the Trump administration’s deportations hinge on two key legal terms.**\
+`Two concepts — due process and habeas corpus — are central to cases challenging the Trump administration’s deportations. Here’s what they mean and why they matter.`\
+https://nytimes.com/live/2025/04/20/us/trump-news/due-process-habeas-corpus-trump
+
 **South Korean Police Seek Arsonist After Deadly Apartment Fire in Seoul**\
 `The fire in a 21-story building in southern Seoul killed one person and injured several others, two of them seriously.`\
 https://nytimes.com/2025/04/20/world/asia/south-korea-apartment-fire.html

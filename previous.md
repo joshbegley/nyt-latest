@@ -1,3 +1,7 @@
+**Cases challenging the Trump administration’s deportations hinge on two key legal terms.**\
+`Two concepts — due process and habeas corpus — are central to cases challenging the Trump administration’s deportations. Here’s what they mean and why they matter.`\
+https://nytimes.com/live/2025/04/20/us/trump-news/due-process-habeas-corpus-trump
+
 **South Korean Police Seek Arsonist After Deadly Apartment Fire in Seoul**\
 `The fire in a 21-story building in southern Seoul killed one person and injured several others, two of them seriously.`\
 https://nytimes.com/2025/04/20/world/asia/south-korea-apartment-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6295180/2025/04/20/cubs-jameson-taillon-fastball/
 **Braves takeaways: Alex Verdugo's instant impact, team's turnaround, Drake Baldwin to stay?**\
 `Verdugo provided a spark atop the order in his first three games with the Braves: "He likes being in that leadoff spot and jumped right in."`\
 https://nytimes.com/athletic/6295176/2025/04/20/braves-alex-verdugo-drake-baldwin/
-
-**The Ten Commandments**\
-`Stories of people struggling to follow those old, primal rules of life.`\
-https://nytimes.com/2025/04/20/podcasts/the-ten-commandments-this-american-life-nyt-audio.html
 
