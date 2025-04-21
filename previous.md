@@ -1,3 +1,19 @@
+**Oilers' Jeff Skinner set to end record 15-season NHL playoff drought**\
+`Skinner owns the NHL record for most regular-season games played without a postseason appearance at 1,078.`\
+https://nytimes.com/athletic/6296925/2025/04/21/jeff-skinner-oilers-nhl-playoffs-record/
+
+**J Is for Japan**\
+`The country that changed modern culture and design, from A to Z.`\
+https://nytimes.com/series/j-is-for-japan
+
+**How ‘Miss Chief’ Can Help Us Rethink Art History**\
+`Denver hosts the first U.S. museum survey of Kent Monkman, a member of the Fisher River Cree Nation whose large paintings are inspired in part by old masters.`\
+https://nytimes.com/2025/04/21/arts/design/kent-monkman-denver-art-museum.html
+
+**A Painter Famed for Recreating What She Lost, in the Spotlight**\
+`In 1999 Ann Craven lost nearly everything in a studio fire. Since then, she has made “revisitation” paintings. Next month, these works will be shown across Maine.`\
+https://nytimes.com/2025/04/21/arts/design/ann-craven-farnsworth-museum.html
+
 **F.T.C. Sues Uber Over Billing for Its Premium Subscription Service**\
 `The suit is an indication that the commission’s close scrutiny of the tech industry will continue in the Trump administration.`\
 https://nytimes.com/2025/04/21/technology/uber-one-lawsuit-ftc.html
@@ -18,24 +34,7 @@ https://nytimes.com/2025/04/21/arts/design/ai-weiwei-seattle-exhibition.html
 `Pope Francis stipulated that he be laid to rest at the Papal Basilica of St. Mary Major, where six other popes are buried.`\
 https://nytimes.com/2025/04/21/world/europe/pope-francis-will-released.html
 
-**U.S. Airstrike Hits Yemeni Capital, Killing 12, Houthi Health Officials Say**\
+**U.S. Airstrike Hits Yemeni Capital, Killing 12, Local Health Officials Say**\
 `Witnesses said an airstrike on Sunday hit a densely populated area adjacent to the Old City in Houthi-dominated Sana.`\
 https://nytimes.com/2025/04/21/world/middleeast/us-airstrikes-yemen-houthis.html
-
-**A Symbol of Hope in St. Louis Is Now One of Renewal, Too**\
-`The 19th-century Old Courthouse, part of the city’s downtown and Gateway Arch National Park, is set to reopen in May after a $27.5 million renovation.`\
-https://nytimes.com/2025/04/21/arts/design/st-louis-courthouse-gateway-arch.html
-
-**E.P.A. Set to Cancel Grants Aimed at Protecting Children From Toxic Chemicals**\
-`The cancellations, set to apply to pending and active grants, also affect research into “forever chemicals” contaminating the food supply.`\
-https://nytimes.com/2025/04/21/climate/epa-cuts-forever-chemicals-grants.html
-
-**Submit your questions for Grace Raynor’s recruiting mailbag**\
-`<p>Official visits have started for the Class of 2026. Submit your recruiting questions for Grace below. We will post her answers later in the week.</p>
-`\
-https://nytimes.com/athletic/6297191/2025/04/21/submit-your-questions-for-grace-raynors-recruiting-mailbag-21/
-
-**Six Men Are Charged After Woman Was Dragged From Idaho Town Hall**\
-`The plainclothes guards were involved in the forcible removal of a woman from a meeting hosted by local Republicans in Coeur d’Alene, prosecutors said.`\
-https://nytimes.com/2025/04/21/us/idaho-coeur-dalene-town-hall-charges.html
 
