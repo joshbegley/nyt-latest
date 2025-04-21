@@ -1,3 +1,11 @@
+**GWS-the-studio-seth-rogen-evan-goldberg**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/the-studio-seth-rogen-evan-goldberg
+
+**Boston Marathon: John Korir wins men's elite division with**\
+`Hug won the marathon for a third consecutive time while Scaroni snagged her second career victory in Boston.`\
+https://nytimes.com/athletic/6296201/2025/04/21/boston-marathon-results-winners-2025/
+
 **GWS-shocking-tv-deaths-last-of-us**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/shocking-tv-deaths-last-of-us
