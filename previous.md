@@ -1,3 +1,11 @@
+**Patriots 7-round mock draft: Can they fix the offensive line and help the pass rush?**\
+`If neither Travis Hunter nor Abdul Carter is available at No. 4, we predict the Patriots will begin to bolster their offensive line.`\
+https://nytimes.com/athletic/6287754/2025/04/21/patriots-nfl-mock-draft-2025-will-campbell/
+
+**Falcons final mock draft: Trading down, finding an edge and taking a tight end**\
+`The Falcons have three picks in the first six rounds of the NFL Draft. Adding more via trade should be their top priority.`\
+https://nytimes.com/athletic/6290295/2025/04/21/falcons-2025-nfl-mock-draft/
+
 **Only 1,370 Days to Go**\
 `This is giving the people what they want?`\
 https://nytimes.com/2025/04/21/opinion/trump-powell-ocasio-cortez-birthright.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/21/opinion/puerto-rico-blackout.html
 **How Have DOGE Cuts Affected Prince George’s and Charles Counties?**\
 `A Times reporting team is looking for reader input on how the reduction in the federal work force has affected the two Maryland communities.`\
 https://nytimes.com/2025/04/21/realestate/black-federal-workers-prince-georges-charles-county.html
-
-**Supreme Court Story Time: Justices Consider Children’s Books With L.G.B.T.Q. Themes**\
-`Parents in Maryland say they have a religious right to withdraw their children from classes on days that storybooks with gay and transgender themes are discussed.`\
-https://nytimes.com/2025/04/21/us/politics/supreme-court-childrens-books-gay-trans.html
-
-**The Magic of Ballet Captured by a Master’s Camera**\
-`Alexey Brodovitch, the transformative art director of Harper’s Bazaar, made one book, “Ballet,” a photographic landmark that has been reprinted for its 80th anniversary.`\
-https://nytimes.com/2025/04/21/arts/dance/alexey-brodovitch-ballet-photography.html
 

@@ -1,3 +1,11 @@
+**Patriots 7-round mock draft: Can they fix the offensive line and help the pass rush?**\
+`If neither Travis Hunter nor Abdul Carter is available at No. 4, we predict the Patriots will begin to bolster their offensive line.`\
+https://nytimes.com/athletic/6287754/2025/04/21/patriots-nfl-mock-draft-2025-will-campbell/
+
+**Falcons final mock draft: Trading down, finding an edge and taking a tight end**\
+`The Falcons have three picks in the first six rounds of the NFL Draft. Adding more via trade should be their top priority.`\
+https://nytimes.com/athletic/6290295/2025/04/21/falcons-2025-nfl-mock-draft/
+
 **Only 1,370 Days to Go**\
 `This is giving the people what they want?`\
 https://nytimes.com/2025/04/21/opinion/trump-powell-ocasio-cortez-birthright.html
