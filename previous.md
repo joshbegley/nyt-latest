@@ -1,3 +1,11 @@
+**Así se celebrará el cónclave para elegir a un nuevo papa**\
+`Se convocará a los cardenales en Roma para elegir al sucesor de Francisco por medio de una votación secreta.`\
+https://nytimes.com/live/2025/04/21/espanol/muere-papa-francisco/conclave-nuevo-papa-cuando
+
+**Romans Mourn Francis, Their Bishop, Their Inspiration, Their ‘Man of Peace’**\
+`The faithful converged on Francis’ other spiritual home, St. John Lateran, to pay their respects and process the passing of their diocesan leader.`\
+https://nytimes.com/2025/04/21/world/europe/rome-pope-francis-bishop.html
+
 **How Pope Francis Helped Inspire the Global Movement Against Climate Change**\
 `Francis framed climate change as an urgent spiritual issue and helped push the world to take action.`\
 https://nytimes.com/2025/04/21/climate/pope-francis-climate-change.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/21/us/el-paso-walmart-shooting-sentencing.html
 **Francis transformed the inner workings of the church.**\
 `By Jason Horowitz and Jim Yardley`\
 https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/francis-church-inner-workings
-
-**Supreme Court Declines to Hear Case on Age Limits for Carrying Guns**\
-`An appeals court had struck down a Minnesota law that applied to 18- to 20-year olds, saying it violated a new Second Amendment test focusing on history.`\
-https://nytimes.com/2025/04/21/us/supreme-court-guns-age.html
-
-**Hawks fire general manager Landry Fields, Onsi Saleh to assume GM duties**\
-`The team also announced it will begin a search for a new president of basketball operations.`\
-https://nytimes.com/athletic/6296613/2025/04/21/hawks-fire-general-manager-landry-fields-onsi-saleh/
 

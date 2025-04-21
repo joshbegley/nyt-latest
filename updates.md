@@ -1,3 +1,11 @@
+**Así se celebrará el cónclave para elegir a un nuevo papa**\
+`Se convocará a los cardenales en Roma para elegir al sucesor de Francisco por medio de una votación secreta.`\
+https://nytimes.com/live/2025/04/21/espanol/muere-papa-francisco/conclave-nuevo-papa-cuando
+
+**Romans Mourn Francis, Their Bishop, Their Inspiration, Their ‘Man of Peace’**\
+`The faithful converged on Francis’ other spiritual home, St. John Lateran, to pay their respects and process the passing of their diocesan leader.`\
+https://nytimes.com/2025/04/21/world/europe/rome-pope-francis-bishop.html
+
 **How Pope Francis Helped Inspire the Global Movement Against Climate Change**\
 `Francis framed climate change as an urgent spiritual issue and helped push the world to take action.`\
 https://nytimes.com/2025/04/21/climate/pope-francis-climate-change.html
