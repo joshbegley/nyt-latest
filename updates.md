@@ -1,3 +1,7 @@
+**'That's the Jrue I love': Holiday takes over for Celtics in Game 1 win**\
+`"Offensively and defensively, he totally changed the game," Al Horford said of Jrue Holiday.`\
+https://nytimes.com/athletic/6295375/2025/04/20/jrue-holiday-celtics-win-magic-game-1/
+
 **Battle of Ontario reignited as Leafs rout Senators: 5 takeaways from Game 1**\
 `The Toronto Maple Leafs looked dominant in 6-2 win and take 1-0 series lead over the Ottawa Senators.`\
 https://nytimes.com/athletic/6295283/2025/04/20/leafs-senators-game-1-takeaways-nhl-playoffs/
