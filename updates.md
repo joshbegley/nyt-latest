@@ -1,3 +1,7 @@
+**El Salvador’s president proposes repatriating Venezuelans sent by Trump, but wants Venezuela to free prisoners in return.**\
+`On`\
+https://nytimes.com/2025/04/20/us/el-salvadors-president-proposes-repatriating-venezuelans-sent-by-trump-but-wants-venezuela-to-free-prisoners-in-return.html
+
 **'We’ve got to do a better job': Magic's role players didn't do enough in Game 1**\
 `Paolo Banchero and Franz Wagner accounted for 59 points Sunday. The rest of the Magic scored 27.`\
 https://nytimes.com/athletic/6295292/2025/04/20/magic-celtics-game-1-nba-playoffs-orlando-role-players/
