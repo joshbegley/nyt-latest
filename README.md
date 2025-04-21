@@ -1,3 +1,7 @@
+**'That's the Jrue I love': Holiday takes over for Celtics in Game 1 win**\
+`"Offensively and defensively, he totally changed the game," Al Horford said of Jrue Holiday.`\
+https://nytimes.com/athletic/6295375/2025/04/20/jrue-holiday-celtics-win-magic-game-1/
+
 **Battle of Ontario reignited as Leafs rout Senators: 5 takeaways from Game 1**\
 `The Toronto Maple Leafs looked dominant in 6-2 win and take 1-0 series lead over the Ottawa Senators.`\
 https://nytimes.com/athletic/6295283/2025/04/20/leafs-senators-game-1-takeaways-nhl-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/20/podcasts/the-ten-commandments-this-american-life-
 **The Grizzlies were embarrassed in OKC. Do they have enough to recover?**\
 `“We’ll never play that bad again,” Ja Morant said after Sunday's humiliating loss to the Thunder. `\
 https://nytimes.com/athletic/6295022/2025/04/20/grizzlies-loss-game-1-thunder-nba-playoffs/
-
-**Padres’ Luis Arraez stable after leaving game on cart post-collision**\
-`Dubón’s shoulder appeared to make contact with the head of Arraez, who was motionless on the field as trainers rushed to his aid.`\
-https://nytimes.com/athletic/6295133/2025/04/20/padres-luis-arraez-collision-mauricio-dubon/
 
