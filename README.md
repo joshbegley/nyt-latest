@@ -3,7 +3,7 @@
 https://nytimes.com/2025/04/20/us/politics/trump-inauguration-donors.html
 
 **Thunder show relentlessness in near-historic Game 1 blowout of Grizzlies**\
-`If there were questions whether OKC's dominant regular season would translate to the postseason, Game 1 was their official notice.`\
+`If there were questions whether OKC's dominant regular season would translate to the postseason, Game 1 was its official notice.`\
 https://nytimes.com/athletic/6295223/2025/04/20/thunder-near-historic-game-1-blowout-grizzlies/
 
 **Jameson Taillon is feeling locked in physically, and his four-seamer proves it**\
