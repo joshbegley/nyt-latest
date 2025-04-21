@@ -1,3 +1,11 @@
+**Francine Tint Is Finally ‘Having Her Time’**\
+`At 82, the widely admired artist is getting the higher level of recognition she has sought for decades.`\
+https://nytimes.com/2025/04/21/arts/design/francine-tint-new-york.html
+
+**Avalanche activate Gabriel Landeskog from injured reserve after 3-year absence**\
+`Landeskog last suited up for Colorado in June 2022. Since then, it’s been nothing but surgeries and pain and setbacks.`\
+https://nytimes.com/athletic/6297053/2025/04/21/gabriel-landeskog-colorado-avalanche-nhl-playoffs/
+
 **In Seattle, a Deep Dive into the Provocative and Creative World of Ai Weiwei**\
 `A show now at the Seattle Art Museum is the largest in the U.S. in the 40-year career of the renowned Chinese artist.`\
 https://nytimes.com/2025/04/21/arts/design/ai-weiwei-seattle-exhibition.html

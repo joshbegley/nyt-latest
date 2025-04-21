@@ -1,3 +1,7 @@
+**Francine Tint Is Finally ‘Having Her Time’**\
+`At 82, the widely admired artist is getting the higher level of recognition she has sought for decades.`\
+https://nytimes.com/2025/04/21/arts/design/francine-tint-new-york.html
+
 **In Seattle, a Deep Dive into the Provocative and Creative World of Ai Weiwei**\
 `A show now at the Seattle Art Museum is the largest in the U.S. in the 40-year career of the renowned Chinese artist.`\
 https://nytimes.com/2025/04/21/arts/design/ai-weiwei-seattle-exhibition.html
@@ -27,15 +31,11 @@ https://nytimes.com/athletic/6297191/2025/04/21/submit-your-questions-for-grace-
 `The plainclothes guards were involved in the forcible removal of a woman from a meeting hosted by local Republicans in Coeur d’Alene, prosecutors said.`\
 https://nytimes.com/2025/04/21/us/idaho-coeur-dalene-town-hall-charges.html
 
-**Avalanche activate Gabriel Landeskog from injured reserve after 3-year NHL absence**\
-`Landeskog last suited up for Colorado in June 2022. Since then it’s been nothing but surgeries and pain and setbacks.`\
+**Avalanche activate Gabriel Landeskog from injured reserve after 3-year absence**\
+`Landeskog last suited up for Colorado in June 2022. Since then, it’s been nothing but surgeries and pain and setbacks.`\
 https://nytimes.com/athletic/6297053/2025/04/21/gabriel-landeskog-colorado-avalanche-nhl-playoffs/
 
 **Nadine Menendez Is Found Guilty of Taking Bribes and Obstructing Justice**\
 `Ms. Menendez had been charged with her husband, Robert Menendez, a former New Jersey senator convicted in July of trading his political influence for gold, cash and a Mercedes-Benz.`\
 https://nytimes.com/2025/04/21/nyregion/nadine-bob-menendez-wife-guilty-bribery-trial.html
-
-**Red Sox takeaways: Walker Buehler pitching well, offense still searching for consistency**\
-`The Red Sox offense is still searching for its optimal gear, while the rotation will be welcoming back a key member on Tuesday.`\
-https://nytimes.com/athletic/6297003/2025/04/21/red-sox-takeaways-walker-buelher-offensive-inconsistency/
 
