@@ -1,3 +1,11 @@
+**The Legacy of Pope Francis**\
+`Pope Francis passed away after leading the Roman Catholic Church for 12 years. His supporters remembered the first Latin American pontiff for his inclusive leadership style, while conservative Catholics accused him of diluting church teachings.`\
+https://nytimes.com/video/world/europe/100000009997580/pope-francis-obituary.html
+
+**‘I love opposition’: How Francis opened space for debate within the church.**\
+`By Jason Horowitz and Jim Yardley`\
+https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/i-love-opposition-how-francis-opened-space-for-debate-within-the-church
+
 **Bears mock draft 3.0: Offensive tackle, tight end, running back or edge at No. 10?**\
 `Our final Bears mock draft assumes that Will Campbell, Ashton Jeanty and Mason Graham will all be gone before the 10th pick.`\
 https://nytimes.com/athletic/6287127/2025/04/21/bears-2025-nfl-mock-draft/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6291216/2025/04/21/guardians-takeaways-emmanuel-cla
 **Linus Ullmark overcame his early-season struggles. Next up? Getting playoff wins**\
 `Ullmark's record in postseason games is now 3-7, dating back to the 2022 playoffs when he was a member of the Boston Bruins.`\
 https://nytimes.com/athletic/6294605/2025/04/21/senators-linus-ullmark-nhl-playoffs-game-1-leafs/
-
-**Packers 7-round mock draft 3.0: A bold move for Arizona WR Tetairoa McMillan**\
-`The Packers haven't quite made waves this offseason, but a first round like this on Thursday night would change that.`\
-https://nytimes.com/athletic/6292215/2025/04/21/packers-7-round-mock-draft-tetairoa-mcmillan/
-
-**In Anthony Stolarz, the Maple Leafs may finally have their advantage in goal**\
-`It's just one game. But given the season he's had, Stolarz feels like one of the biggest sure things in this series right now.`\
-https://nytimes.com/athletic/6295473/2025/04/21/anthony-stolarz-maple-leafs-nhl-playoffs/
 
