@@ -1,3 +1,7 @@
+**Leafs open Battle of Ontario with intriguing lack of past playoff woes**\
+`The Leafs' six goals in Game 1 were their most in a playoff game since Tampa Bay in 2023 – a series they won.`\
+https://nytimes.com/athletic/6295585/2025/04/21/maple-leafs-nhl-playoff-demons-senators/
+
 **Man City defeat shows that Everton's revival can only continue with more depth**\
 `The potential loss of James Tarkowski to a rare injury serves as a reminder that this squad needs bolstering`\
 https://nytimes.com/athletic/6292684/2025/04/21/everton-tarkowski-man-city-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6291999/2025/04/21/brighton-transfer-spending-progr
 **Rasmus Hojlund, Manchester United's suffering striker they cannot afford to drop**\
 `He looks burdened by it all, as he has for months now, but sometimes the only way out of a dry spell is through it.`\
 https://nytimes.com/athletic/6294677/2025/04/21/rasmus-hojlund-manchester-united/
-
-**The Briefing: Arsenal's huge regret, big spenders keep sinking and who should sign De Bruyne?**\
-`Dissecting the weekend's top-flight football - featuring Arteta's missed opportunity, unlikely strugglers and De Bruyne's future `\
-https://nytimes.com/athletic/6294039/2025/04/21/arsenal-premier-league-title-regret/
 
