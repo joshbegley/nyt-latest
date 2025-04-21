@@ -1,6 +1,10 @@
+**Trump Raised $239 Million for Inauguration, More Than Doubling His Own Record**\
+`The staggering amount, disclosed in a filing with the Federal Election Commission, was driven by corporate America’s eagerness to win the president’s favor.`\
+https://nytimes.com/2025/04/20/us/politics/trump-inauguration-donors.html
+
 **Thunder show relentlessness in near-historic Game 1 blowout of Grizzlies**\
-`OKLAHOMA CITY — One of the most revealing sequences in the Oklahoma City Thunder’s near-historic 131-80 dismantling of the Memphis Grizzlies in Game 1 came just before halftime.`\
-https://nytimes.com/athletic/6295223/2025/04/20/thunder-show-relentlessness-in-near-historic-game-1-blowout-of-grizzlies/
+`If there were questions whether OKC's dominant regular season would translate to the postseason, Game 1 was its official notice.`\
+https://nytimes.com/athletic/6295223/2025/04/20/thunder-near-historic-game-1-blowout-grizzlies/
 
 **Jameson Taillon is feeling locked in physically, and his four-seamer proves it**\
 `After a dreadful 2023 season, Taillon adjusted, and results were better in 2024, but in 2025, his four-seamer has been a revelation.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6295093/2025/04/20/oilers-mcdavid-draisaitl-nhl-pla
 **Justin Thomas wins RBC Heritage for first PGA Tour win in nearly 3 years**\
 `After beating Andrew Novak in a playoff, the two-time major winner is back in the winner's circle.`\
 https://nytimes.com/athletic/6294998/2025/04/20/justin-thomas-rbc-heritage-results/
-
-**Mets' Brandon Nimmo explains aggressive new approach: 'I can't stop taking my shots'**\
-`Nimmo drove in the go-ahead run against the Cardinals a few hours after a Q&A breaking down his evolution as a hitter. `\
-https://nytimes.com/athletic/6294946/2025/04/20/mets-brandon-nimmo-interview-first-pitch/
 

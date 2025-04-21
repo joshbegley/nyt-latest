@@ -1,3 +1,11 @@
+**Trump Raised $239 Million for Inauguration, More Than Doubling His Own Record**\
+`The staggering amount, disclosed in a filing with the Federal Election Commission, was driven by corporate America’s eagerness to win the president’s favor.`\
+https://nytimes.com/2025/04/20/us/politics/trump-inauguration-donors.html
+
+**Thunder show relentlessness in near-historic Game 1 blowout of Grizzlies**\
+`If there were questions whether OKC's dominant regular season would translate to the postseason, Game 1 was its official notice.`\
+https://nytimes.com/athletic/6295223/2025/04/20/thunder-near-historic-game-1-blowout-grizzlies/
+
 **Thunder show relentlessness in near-historic Game 1 blowout of Grizzlies**\
 `OKLAHOMA CITY — One of the most revealing sequences in the Oklahoma City Thunder’s near-historic 131-80 dismantling of the Memphis Grizzlies in Game 1 came just before halftime.`\
 https://nytimes.com/athletic/6295223/2025/04/20/thunder-show-relentlessness-in-near-historic-game-1-blowout-of-grizzlies/
