@@ -1,3 +1,7 @@
+**Word of the Day: quasi**\
+`This word has appeared in 324 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/04/21/learning/word-of-the-day-quasi.html
+
 **Alexander-Arnold's parting gift for Liverpool — and a final moment for him to savour**\
 `Alexander-Arnold, who is widely expected to join Real Madrid, scored Liverpool's winner against Leicester City`\
 https://nytimes.com/athletic/6295011/2025/04/21/trent-alexander-arnold-liverpool-leicester-goal/

@@ -1,3 +1,7 @@
+**Word of the Day: quasi**\
+`This word has appeared in 324 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/04/21/learning/word-of-the-day-quasi.html
+
 **Alexander-Arnold's parting gift for Liverpool — and a final moment for him to savour**\
 `Alexander-Arnold, who is widely expected to join Real Madrid, scored Liverpool's winner against Leicester City`\
 https://nytimes.com/athletic/6295011/2025/04/21/trent-alexander-arnold-liverpool-leicester-goal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6295520/2025/04/21/ty-jerome-cleveland-cavaliers-nb
 **Leafs open Battle of Ontario with intriguing lack of past playoff woes**\
 `The Leafs' six goals in Game 1 were their most in a playoff game since Tampa Bay in 2023 — a series they won.`\
 https://nytimes.com/athletic/6295585/2025/04/21/maple-leafs-nhl-playoff-demons-senators/
-
-**Man City defeat shows that Everton's revival can only continue with more depth**\
-`The potential loss of James Tarkowski to a rare injury serves as a reminder that this squad needs bolstering`\
-https://nytimes.com/athletic/6292684/2025/04/21/everton-tarkowski-man-city-injury/
 
