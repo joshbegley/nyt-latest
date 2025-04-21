@@ -1,3 +1,7 @@
+**Thailand Arrests Executive Linked to Bangkok Tower Felled by Earthquake**\
+`The collapse has brought scrutiny of the Chinese state-owned company that was putting up the doomed building.`\
+https://nytimes.com/2025/04/21/world/asia/bangkok-tower-collapse-arrest.html
+
 **Pope Francis’ Life**\
 `Selected photographs from the life and papacy of Pope Francis.`\
 https://nytimes.com/2025/04/21/world/europe/pope-francis-life-photos.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/04/21/nyregion/nyc-mayor-democratic-candida
 **Will a Federal Judge Break Up Google?**\
 `On Monday, the tech giant and the U.S. government face off in court over how to fix the company’s online search monopoly. The outcome could alter Google and Silicon Valley.`\
 https://nytimes.com/2025/04/21/technology/google-search-antitrust-hearing-breakup.html
-
-**Jacqui Oatley made Match of the Day history but the experience was 'isolating'**\
-`Jacqui Oatley recalls the stomach-drop moment when she realised that she had, in fact, become the story`\
-https://nytimes.com/athletic/6294245/2025/04/21/jacqui-oatley-match-of-the-day-debut-2007/
 
