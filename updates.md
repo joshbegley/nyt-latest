@@ -1,3 +1,7 @@
+**Rob McElhenney celebrates with fans in Blackpool. Wrexham could be promoted next weekend**\
+`One of Wrexham's celebrity owners joined fans in the stands for their win over Blackpool`\
+https://nytimes.com/athletic/6293739/2025/04/21/blackpool-wrexham-seaside-mcelhenney/
+
 **Every NFL Draft No. 1 pick's most valuable trading card: Joe Burrow reigns**\
 `Out of all the No. 1 picks since the merger, one stands far above the others in the realm of trading card sales`\
 https://nytimes.com/athletic/6296531/2025/04/21/nfl-draft-most-valuable-cards/

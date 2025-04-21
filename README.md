@@ -1,3 +1,11 @@
+**How to fix Tanner Houck, Jung Hoo Lee's positive plate adjustments and more**\
+`Andrea Arcadipane dives deep into the pitch mix of a struggling Tanner Houck and also notes positive changes made by three breakout hitters.`\
+https://nytimes.com/athletic/6296463/2025/04/21/fantasy-baseball-scouting-notebook-tanner-houck/
+
+**Chelsea’s obligation to buy Sancho triggered — but move not guaranteed**\
+`Chelsea can escape the obligation to sign Sancho by paying Manchester United a £5million penalty fee to return him to Old Trafford.`\
+https://nytimes.com/athletic/6296419/2025/04/21/jadon-sancho-transfer-chelsea-manchester-united/
+
 **Rob McElhenney celebrates with fans in Blackpool. Wrexham could be promoted next weekend**\
 `One of Wrexham's celebrity owners joined fans in the stands for their win over Blackpool`\
 https://nytimes.com/athletic/6293739/2025/04/21/blackpool-wrexham-seaside-mcelhenney/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6278113/2025/04/21/burnley-promoted-premier-league-
 **El último día del papa Francisco**\
 `A pesar de haber estado a punto de morir dos veces por crisis respiratorias a principios de este año, el pontífice se había mantenido sorprendentemente activo.`\
 https://nytimes.com/2025/04/21/espanol/mundo/papa-francisco-ultimo-dia.html
-
-**gws-restaurant-leftovers**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/restaurant-leftovers
-
-**gws-coachella-2025-lady-gaga-jennie-bernie-sanders**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/coachella-2025-lady-gaga-jennie-bernie-sanders
 
