@@ -1,3 +1,15 @@
+**Here’s the latest.**\
+`By Jason Horowitz`\
+https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/heres-the-latest
+
+**Live Updates: Pope Francis Dies at 88**\
+`His groundbreaking pontificate worked to make the Catholic Church more inclusive. Cardinals will now decide whether to continue his approach or restore more doctrinaire leadership.`\
+https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican
+
+**Francis, the First Latin American Pope, Dies at 88**\
+`After decades of conservative leadership, Francis tried to reset the course of the Roman Catholic Church, emphasizing inclusion and care for the marginalized over doctrinal purity.`\
+https://nytimes.com/2025/04/21/world/europe/pope-francis-dead.html
+
 **Fan arrested after object strikes assistant referee in Saint-Etienne vs. Lyon**\
 `The game was reportedly suspended for almost 45 minutes after the incident.`\
 https://nytimes.com/athletic/6295792/2025/04/21/saint-etienne-lyon-arrest/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/21/crosswords/spelling-bee-forum.html
 **What to Know About Broker Fees in New York City**\
 `A new law that will require many landlords, and not renters, to cover broker fees is set to take effect in less than two months. It may change how New Yorkers move.`\
 https://nytimes.com/2025/04/21/nyregion/nyc-broker-fees-law.html
-
-**He Was a Prophet of Space Travel. His Ashes Were Found in a Basement.**\
-`During his life, Willy Ley predicted the dawn of the Space Age with remarkable accuracy. How did his remains end up forgotten in a co-op on the Upper West Side?`\
-https://nytimes.com/2025/04/21/nyregion/willy-ley-rocket-ashes.html
-
-**Hidden Above a Trap Door, 17th-Century Frescoes Come to Light**\
-`While inspecting a sumptuous villa in Rome, an electrician stumbled across long lost works by the Baroque painter Carlo Maratta.`\
-https://nytimes.com/2025/04/21/science/art-rome-maratta-frescoes.html
-
-**Barcelona were right to fear Chelsea, but proved they are still Europe's most dominant side**\
-`Barcelona managed a 4-1 win over Chelsea in their Champions League semi-final on Sunday`\
-https://nytimes.com/athletic/6295396/2025/04/21/barcelona-chelsea-champions-league/
 
