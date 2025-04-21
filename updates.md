@@ -1,3 +1,7 @@
+**Pope Francis’ Life in Photos**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/pope-francis-life-photos
+
 **gws-romanian-deadlift-technique**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/romanian-deadlift-technique

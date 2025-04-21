@@ -1,3 +1,19 @@
+**The Athletic college baseball Top 25: Clemson climbs to No. 2, Vanderbilt crashes top 10**\
+`Clemson, which has not lost a series all season, is 35-7 overall and 13-5 in the ACC. `\
+https://nytimes.com/athletic/6296174/2025/04/21/college-baseball-rankings-clemson-texas-vanderbilt/
+
+**Who Is Cardinal Kevin Farrell, the Vatican’s New De Facto Administrator?**\
+`Cardinal Farrell, who holds the position of cardinal chamberlain, or camerlengo in Italian, will run the Holy See’s affairs until a new pope is chosen.`\
+https://nytimes.com/2025/04/21/world/europe/kevin-farrell-cardinal-vatican-pope-francis.html
+
+**How Will a New Pope Be Chosen After Francis’ Death?**\
+`Many of the rituals and procedures of selecting a new pope — designed to ensure secrecy and an orderly transition — have remained unchanged for centuries.`\
+https://nytimes.com/2025/04/21/world/europe/how-is-a-new-pope-chosen.html
+
+**Senators' Ridly Greig won't face suspension for cross-check on Leafs' John Tavares: source**\
+`'Call the league!' Leafs coach Craig Berube said regarding play that was downgraded to a two-minute minor penalty.`\
+https://nytimes.com/athletic/6296221/2025/04/21/greig-suspension-tavares-leafs-senators-nhl-playoffs/
+
 **Pope Francis’ Life in Photos**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/pope-francis-life-photos
@@ -21,20 +37,4 @@ https://nytimes.com/2025/04/21/opinion/pope-francis-successor-cardinals-conclave
 **'He’s a horse out there' – Tomas Hertl gives Golden Knights the playoff performance they envisioned**\
 `The power forward thrives in playoff hockey, where open ice and offensive opportunities are hard to come by.  `\
 https://nytimes.com/athletic/6295750/2025/04/21/golden-knights-wild-hertl/
-
-**It's now or never: Kings face best chance in years to finally beat Oilers**\
-`The best Kings team of recent years will face one of the weaker Oilers teams of recent years. If not now, when?`\
-https://nytimes.com/athletic/6295425/2025/04/21/kings-nhl-playoffs-oilers-first-round/
-
-**Tanner Scott working through tweaks during first month with Dodgers**\
-`Six of his 20 hardest-thrown fastballs this season came in his save on Sunday against the Rangers.`\
-https://nytimes.com/athletic/6295370/2025/04/21/dodgers-tanner-scott-closer-adjustments/
-
-**No Corrections: April 21, 2025**\
-`No corrections appeared in print on Monday, April 21, 2025.`\
-https://nytimes.com/2025/04/21/pageoneplus/no-corrections-april-21-2025.html
-
-**Corrections: April 20, 2025**\
-`Corrections that appeared in print on Sunday, April 20, 2025.`\
-https://nytimes.com/2025/04/21/pageoneplus/corrections-april-20-2025.html
 

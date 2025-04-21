@@ -1,3 +1,7 @@
+**Pope Francis’ Life in Photos**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/pope-francis-life-photos
+
 **gws-romanian-deadlift-technique**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/romanian-deadlift-technique
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/21/pageoneplus/no-corrections-april-21-2025.html
 **Corrections: April 20, 2025**\
 `Corrections that appeared in print on Sunday, April 20, 2025.`\
 https://nytimes.com/2025/04/21/pageoneplus/corrections-april-20-2025.html
-
-**Even after a lengthy illness, Francis’ death came as a surprise.**\
-`By Jason Horowitz`\
-https://nytimes.com/2025/04/21/world/europe/even-after-a-lengthy-illness-francis-death-came-as-a-surprise.html
 
