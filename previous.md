@@ -1,3 +1,7 @@
+**Flames Erupt From Delta Plane Engine at Orlando Airport**\
+`Footage from an eyewitness shows passengers evacuating onto the tarmac at Orlando International Airport after the engine of a Delta Air Lines plane headed for Atlanta caught on fire Monday morning.`\
+https://nytimes.com/video/travel/100000010122006/delta-fire-plane-orlando-evacuation.html
+
 **Trump and Francis Had Sharply Different Views, and Sharp Disagreements**\
 `The pope and the president remade the Catholic church and American politics in their outsider images, but their relationship was defined by their remarkable clashes.`\
 https://nytimes.com/2025/04/21/world/europe/trump-pope-francis.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/21/espanol/mundo/papa-francisco-trump-sheinbaum-reac
 **People Gather to Mourn, and Honor, Pope Francis**\
 `As church bells tolled across the world, Catholics and non-Catholics alike mourned a pontiff who pushed for change.`\
 https://nytimes.com/2025/04/21/world/europe/pope-francis-photos-mourning-reaction.html
-
-**How to watch the Phillies at Mets series: Can Pete Alonso stay hot against Nola, Wheeler?**\
-`The NL East's two leading squads square off in Queens this week, with the Philadelphia Phillies and New York Mets both riding strong starts.`\
-https://nytimes.com/athletic/6296311/2025/04/21/mets-phillies-soto-alonso-lindor-harper-wheeler-how-to-watch/
 

@@ -1,3 +1,7 @@
+**Flames Erupt From Delta Plane Engine at Orlando Airport**\
+`Footage from an eyewitness shows passengers evacuating onto the tarmac at Orlando International Airport after the engine of a Delta Air Lines plane headed for Atlanta caught on fire Monday morning.`\
+https://nytimes.com/video/travel/100000010122006/delta-fire-plane-orlando-evacuation.html
+
 **Trump and Francis Had Sharply Different Views, and Sharp Disagreements**\
 `The pope and the president remade the Catholic church and American politics in their outsider images, but their relationship was defined by their remarkable clashes.`\
 https://nytimes.com/2025/04/21/world/europe/trump-pope-francis.html
