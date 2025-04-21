@@ -1,3 +1,15 @@
+**Remembering Pope Francis**\
+`The pontiff has died at 88. We look at his life and his influence on more than one billion Catholics.`\
+https://nytimes.com/2025/04/21/briefing/pope-francis-dead-88.html
+
+**Warriors are confident they've solved the Rockets — if they can limit mistakes**\
+`Houston's offense might not be efficient enough to keep up, which is why Steve Kerr says, "We don't need to take chances in this series."`\
+https://nytimes.com/athletic/6295332/2025/04/21/warriors-playoffs-game-1-rockets-defense/
+
+**Pope Francis Defied Doctors’ Orders and Kept Busy Until His Last Day**\
+`The pontiff met with Vice President JD Vance on Sunday and blessed Catholics gathered for Easter. His doctors had urged him to rest.`\
+https://nytimes.com/2025/04/21/world/europe/pope-francis-easter-last-day.html
+
 **Serie A postpones fixtures after Pope Francis' death**\
 `Juventus' trip to Parma was one of four scheduled fixtures that have been postponed.`\
 https://nytimes.com/athletic/6295881/2025/04/21/pope-francis-death-serie-a-fixtures/
