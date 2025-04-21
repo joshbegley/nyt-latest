@@ -1,3 +1,7 @@
+**Thunder show relentlessness in near-historic Game 1 blowout of Grizzlies**\
+`OKLAHOMA CITY — One of the most revealing sequences in the Oklahoma City Thunder’s near-historic 131-80 dismantling of the Memphis Grizzlies in Game 1 came just before halftime.`\
+https://nytimes.com/athletic/6295223/2025/04/20/thunder-show-relentlessness-in-near-historic-game-1-blowout-of-grizzlies/
+
 **Jameson Taillon is feeling locked in physically, and his four-seamer proves it**\
 `After a dreadful 2023 season, Taillon adjusted, and results were better in 2024, but in 2025, his four-seamer has been a revelation.`\
 https://nytimes.com/athletic/6295180/2025/04/20/cubs-jameson-taillon-fastball/

@@ -1,3 +1,7 @@
+**Thunder show relentlessness in near-historic Game 1 blowout of Grizzlies**\
+`OKLAHOMA CITY — One of the most revealing sequences in the Oklahoma City Thunder’s near-historic 131-80 dismantling of the Memphis Grizzlies in Game 1 came just before halftime.`\
+https://nytimes.com/athletic/6295223/2025/04/20/thunder-show-relentlessness-in-near-historic-game-1-blowout-of-grizzlies/
+
 **Jameson Taillon is feeling locked in physically, and his four-seamer proves it**\
 `After a dreadful 2023 season, Taillon adjusted, and results were better in 2024, but in 2025, his four-seamer has been a revelation.`\
 https://nytimes.com/athletic/6295180/2025/04/20/cubs-jameson-taillon-fastball/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6294998/2025/04/20/justin-thomas-rbc-heritage-resul
 **Mets' Brandon Nimmo explains aggressive new approach: 'I can't stop taking my shots'**\
 `Nimmo drove in the go-ahead run against the Cardinals a few hours after a Q&A breaking down his evolution as a hitter. `\
 https://nytimes.com/athletic/6294946/2025/04/20/mets-brandon-nimmo-interview-first-pitch/
-
-**NBA awards finalists: Shai Gilgeous-Alexander, Nikola Jokić up for MVP**\
-`Jokić is the reigning MVP who’s won the award three times, while Gilgeous-Alexander was the NBA's top scorer this season.`\
-https://nytimes.com/athletic/6294904/2025/04/20/nba-awards-finalists-mvp-sga-jokic/
 
