@@ -1,3 +1,11 @@
+**Pacers 'expect hard' as they prepare for Game 2 against the Bucks**\
+`"When you win Game 1 in the series, particularly as the home team, Game 2 is always exponentially tougher," Pacers coach Rick Carlisle said.`\
+https://nytimes.com/athletic/6297102/2025/04/21/pacers-bucks-playoffs-game-2/
+
+**The World Mourned Pope Francis**\
+`Also, the U.S. asked a judge to break up Google. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/04/21/briefing/pope-francis-dead-google-antitrust-hearing.html
+
 **Francis Had Health Issues That Can Increase the Risk of Stroke**\
 `The declaration of death said the pope had Type 2 diabetes and high blood pressure, along with bronchiectasis, a chronic lung condition.`\
 https://nytimes.com/2025/04/21/world/europe/pope-francis-stroke-death.html
