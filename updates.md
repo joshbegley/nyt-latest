@@ -1,3 +1,7 @@
+**The Bernabeu booed Kylian Mbappe but embraced Real Madrid after their tough week**\
+`After Champions League elimination to Arsenal, there was a lot of expectation about how the Madrid fans would react to their team`\
+https://nytimes.com/athletic/6295379/2025/04/21/real-madrid-bernabeu-kylian-mbappe-boo/
+
 **Harvey Weinstein Becomes an Unlikely Voice in the Push to Close Rikers**\
 `The disgraced producer has complained volubly about his treatment in jail on Rikers Island. Advocates for detainees say any attention to conditions there can’t hurt.`\
 https://nytimes.com/2025/04/21/nyregion/harvey-weinstein-rikers-island.html
