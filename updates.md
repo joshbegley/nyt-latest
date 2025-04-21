@@ -1,3 +1,7 @@
+**Jace Jung's promotion, Kerry Carpenter's hamstring and the Tigers' CF conundrum**\
+`Jung talked mostly about his new goal: having fun while simultaneously reclaiming his dirtbag identity.`\
+https://nytimes.com/athletic/6297441/2025/04/21/jace-jung-kerry-carpenter-tigers-center-field/
+
 **What we learned about Canucks' offseason plan from Rutherford and Allvin**\
 `What will the Canucks to do to pick up the pieces as they enter a deeply unsettled offseason?`\
 https://nytimes.com/athletic/6296874/2025/04/21/canucks-rutherford-allvin-tocchet-hughes/

@@ -1,3 +1,7 @@
+**Jace Jung's promotion, Kerry Carpenter's hamstring and the Tigers' CF conundrum**\
+`Jung talked mostly about his new goal: having fun while simultaneously reclaiming his dirtbag identity.`\
+https://nytimes.com/athletic/6297441/2025/04/21/jace-jung-kerry-carpenter-tigers-center-field/
+
 **What we learned about Canucks' offseason plan from Rutherford and Allvin**\
 `What will the Canucks to do to pick up the pieces as they enter a deeply unsettled offseason?`\
 https://nytimes.com/athletic/6296874/2025/04/21/canucks-rutherford-allvin-tocchet-hughes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6297493/2025/04/21/braves-spencer-strider-hamstring
 **Pacers 'expect hard' as they prepare for Game 2 against the Bucks**\
 `"When you win Game 1 in the series, particularly as the home team, Game 2 is always exponentially tougher," Pacers coach Rick Carlisle said.`\
 https://nytimes.com/athletic/6297102/2025/04/21/pacers-bucks-playoffs-game-2/
-
-**The World Mourned Pope Francis**\
-`Also, the U.S. asked a judge to break up Google. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2025/04/21/briefing/pope-francis-dead-google-antitrust-hearing.html
 
