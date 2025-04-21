@@ -1,3 +1,11 @@
+**Des Linden gives Boston Marathon a surprise — and a fond farewell worthy of a 'shoey'**\
+`Linden, who in 2018 became the first U.S. women's runner to win at Boston in 33 years, announced she is stepping away before Monday's race.`\
+https://nytimes.com/athletic/6297280/2025/04/21/boston-marathon-des-linden-women-column/
+
+**Triston McKenzie's fall from grace continues as Guardians designate him for assignment**\
+`It’s been an eye-opening fall from grace for one of the most beloved players in the clubhouse.`\
+https://nytimes.com/athletic/6297227/2025/04/21/guardians-triston-mckenzie-designated-for-assignment/
+
 **How the Golden Knights' goal with 0.1 seconds left had major implications for bettors**\
 `Brett Howden's last-second goal was meaningless to some, but had huge betting implications.`\
 https://nytimes.com/athletic/6297192/2025/04/21/bad-beat-nhl-golden-knights-wild-betting/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6297335/2025/04/21/blackhawks-chsn-viewership/
 **Colts takeaways: Indy won't 'chase' TE early in NFL Draft: 'That's when you make mistakes'**\
 `The Colts have looking for a long-term answer at TE ever since Jack Doyle retired. Will they find one in the draft?`\
 https://nytimes.com/athletic/6297090/2025/04/21/colts-nfl-draft-tight-end-tyler-warren-colston-loveland/
-
-**Padres' Luis Arraez placed on 7-day IL after on-field collision**\
-`Luis Arraez was transported Sunday to a local hospital following a grisly collision at first base and is now in concussion protocol.`\
-https://nytimes.com/athletic/6297125/2025/04/21/padres-luis-arraez-collision-injured-list/
-
-**Seattle Kraken fire coach Dan Bylsma after 1 season: Sources**\
-`The Kraken finished seventh in the Pacific Division this season, with 76 points.`\
-https://nytimes.com/athletic/6293478/2025/04/21/seattle-kraken-bylsma-fired-coach/
 
