@@ -1,3 +1,7 @@
+**Markets Slump on Persistent Concern That Tariffs Will Hurt Growth**\
+`Trump’s tariffs continued to jar investors on Monday as stocks in Asia mostly fell and the U.S. dollar weakened.`\
+https://nytimes.com/2025/04/21/business/trump-tariffs-stock-markets.html
+
 **The New York Times in Print for Monday, April 21, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/04/21/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6292084/2025/04/21/newcastle-united-aston-villa-ana
 **Maresca may have lost Chelsea's fans, but he has clearly not lost the players**\
 `The head coach was booed before a comeback brought three points. Will fans ever take to him?`\
 https://nytimes.com/athletic/6294389/2025/04/21/chelsea-fulham-maresca-fans-players/
-
-**Arsenal's original right side is back (plus Trossard) - but is it too soon to use it against PSG?**\
-`Arteta still has decisions to make before the Champions League semi-final starts next week, but this more fluid performance bodes well`\
-https://nytimes.com/athletic/6294029/2025/04/21/arsenals-saka-white-odegaard-trossard-psg/
 
