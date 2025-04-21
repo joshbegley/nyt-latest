@@ -1,3 +1,19 @@
+**How the Golden Knights' goal with 0.1 seconds left had major implications for bettors**\
+`Brett Howden's last-second goal was meaningless to some, but had huge betting implications.`\
+https://nytimes.com/athletic/6297192/2025/04/21/bad-beat-nhl-golden-knights-wild-betting/
+
+**Steve Hilton, Former Fox News Host, Is Running for California Governor**\
+`Mr. Hilton is the second prominent Republican to enter the wide-open race. He faces difficult odds in the Democratic-led state.`\
+https://nytimes.com/2025/04/21/us/politics/steve-hilton-former-fox-news-host-is-running-for-california-governor.html
+
+**Pope Francis, the Unlikely Movie Star: 6 Films Show His Cinematic Appeal**\
+`In fictional tales and documentaries, directors approached him as a screen character who was both admired and controversial.`\
+https://nytimes.com/2025/04/21/movies/pope-francis-conclave-movies.html
+
+**Falcons sign former Chargers backup QB Easton Stick**\
+`Stick could compete for the backup job behind Michael Penix Jr. if Kirk Cousins is released or traded.`\
+https://nytimes.com/athletic/6297376/2025/04/21/falcons-sign-qb-easton-stick/
+
 **Watchdog Group Asks Judge to Preserve Signal Chats by Top Trump Officials**\
 `The request by American Oversight came after revelations that Defense Secretary Pete Hegseth shared information on upcoming strikes in more than one group chat.`\
 https://nytimes.com/2025/04/21/us/politics/trump-officials-signal-chats-hegseth-leak.html
