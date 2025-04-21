@@ -1,3 +1,15 @@
+**Kristi Noem’s Bag, With Security Badge and $3,000, Is Stolen**\
+`The homeland security secretary was dining at a Washington, D.C., restaurant. She also lost her passport and keys.`\
+https://nytimes.com/2025/04/21/us/politics/kristi-noem-purse-stolen.html
+
+**Líderes mundiales rinden homenaje al papa Francisco**\
+`Gobernantes y funcionarios de todo el mundo ofrecieron sus condolencias al pueblo católico y elogiaron el compromiso del pontífice con los pobres y marginados.`\
+https://nytimes.com/2025/04/21/espanol/mundo/papa-francisco-trump-sheinbaum-reacciones-lideres-mundo.html
+
+**People Gather to Mourn, and Honor, Pope Francis**\
+`As church bells tolled across the world, Catholics and non-Catholics alike mourned a pontiff who pushed for change.`\
+https://nytimes.com/2025/04/21/world/europe/pope-francis-photos-mourning-reaction.html
+
 **How to watch the Phillies at Mets series: Can Pete Alonso stay hot against Nola, Wheeler?**\
 `The NL East's two leading squads square off in Queens this week, with the Philadelphia Phillies and New York Mets both riding strong starts.`\
 https://nytimes.com/athletic/6296311/2025/04/21/mets-phillies-soto-alonso-lindor-harper-wheeler-how-to-watch/
