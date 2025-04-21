@@ -1,3 +1,7 @@
+**G.O.P. Leader Asks Attorney General Pam Bondi to Prosecute Andrew Cuomo**\
+`A Republican House chairman renewed a request to the Justice Department to prosecute Mr. Cuomo for allegedly making false statements to Congress.`\
+https://nytimes.com/2025/04/21/nyregion/cuomo-criminal-referral-covid.html
+
 **White House Birthrate Boosters See an Ally in Musk**\
 `Elon Musk talks a lot about the birthrate. The Trump administration is looking for ways to raise it.`\
 https://nytimes.com/2025/04/21/us/politics/elon-musk-trump-birthrate.html
