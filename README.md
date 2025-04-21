@@ -1,3 +1,11 @@
+**Adam Schiff asks the National Archives to review the Trump administration’s use of Signal.**\
+`The California Democrat’s request came the day after it was revealed that Defense Secretary Pete Hegseth discussed sensitive military operations in a second Signal chat including family members.`\
+https://nytimes.com/live/2025/04/21/us/trump-administration-news/adam-schiff-asks-the-national-archives-to-review-the-trump-administrations-use-of-signal
+
+**Lightning ride swagger, star power into Panthers rematch**\
+`Quietly, the Tampa Bay Lightning might be back, and that might be trouble for the rest of the NHL. `\
+https://nytimes.com/athletic/6296689/2025/04/21/lightning-panthers-nhl-playoffs/
+
 **Oscars OK the Use of A.I., With Caveats**\
 `The Academy of Motion Picture Arts and Sciences said using the technology wouldn’t disqualify a movie. But it also said that it favored films with more human involvement.`\
 https://nytimes.com/2025/04/21/business/oscars-rules-ai.html
@@ -29,12 +37,4 @@ https://nytimes.com/newsgraphics/card-story/best-bathroom-design
 **Penguins need to ‘execute our butts off’: Dubas sets expectations for long road back**\
 `Dubas spoke to Pittsburgh media on Monday and said the Penguins "just have to stick to a very concise plan."`\
 https://nytimes.com/athletic/6296778/2025/04/21/penguins-kyle-dubas-rebuild-nhl-playoffs/
-
-**In the Land of the Jaguars**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/brazil-jaguars-pantanal-tours
-
-**Inside Leeds United's promotion: Play-off wake, captain Ampadu's impact and 49ers' Farke faith**\
-`Leeds have managed to win promotion to the Premier League, ending a two-year spell in the Championship`\
-https://nytimes.com/athletic/6290234/2025/04/21/leeds-united-promotion-promoted-premier-league-inside/
 
