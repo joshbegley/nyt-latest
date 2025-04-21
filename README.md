@@ -1,3 +1,11 @@
+**Warriors are confident they've solved the Rockets — if they can limit mistakes**\
+`Houston's offense might not be efficient enough to keep up, which is why Steve Kerr says, "We don't need to take chances in this series."`\
+https://nytimes.com/athletic/6295332/2025/04/21/warriors-playoffs-game-1-rockets-defense/
+
+**Pope Francis Defied Doctors’ Orders and Kept Busy Until His Last Day**\
+`The pontiff met with Vice President JD Vance on Sunday and blessed Catholics gathered for Easter. His doctors had urged him to rest.`\
+https://nytimes.com/2025/04/21/world/europe/pope-francis-easter-last-day.html
+
 **Serie A postpones fixtures after Pope Francis' death**\
 `Juventus' trip to Parma was one of four scheduled fixtures that have been postponed.`\
 https://nytimes.com/athletic/6295881/2025/04/21/pope-francis-death-serie-a-fixtures/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6295148/2025/04/21/nhl-playoffs-score-results-takea
 **Inside Wild top prospect Zeev Buium's eventful NHL debut: 'A dream come true'**\
 `The Wild experienced the risk-reward and reality that comes with a 19-year-old playing in his first game on the biggest stage.`\
 https://nytimes.com/athletic/6295798/2025/04/21/zeev-buium-nhl-debut-wild/
-
-**From Kobe Bryant to Hockey Canada: Athletes and the pursuit of 'consent' in the digital age**\
-`While the effort to record consent before sexual encounters is on the rise, one expert cautions those videos "may be misleading."`\
-https://nytimes.com/athletic/6292187/2025/04/21/hockey-canada-sexual-assault-trial-digital-consent/
-
-**Guardians weekend sweep takeaways: Emmanuel Clase, Steven Kwan and Triston McKenzie**\
-`Manzardo was the first Cleveland hitter since PNC Park opened in 2001 to deposit a home run into the Allegheny River.`\
-https://nytimes.com/athletic/6291216/2025/04/21/guardians-takeaways-emmanuel-clase-steven-kwan-triston-mckenzie/
 

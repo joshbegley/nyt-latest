@@ -1,3 +1,7 @@
+**Serie A postpones fixtures after Pope Francis' death**\
+`Juventus' trip to Parma was one of four scheduled fixtures that have been postponed.`\
+https://nytimes.com/athletic/6295881/2025/04/21/pope-francis-death-serie-a-fixtures/
+
 **The Legacy of Pope Francis**\
 `Pope Francis passed away after leading the Roman Catholic Church for 12 years. His supporters remembered the first Latin American pontiff for his inclusive leadership style, while conservative Catholics accused him of diluting church teachings.`\
 https://nytimes.com/video/world/europe/100000009997580/pope-francis-obituary.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6292187/2025/04/21/hockey-canada-sexual-assault-tri
 **Guardians weekend sweep takeaways: Emmanuel Clase, Steven Kwan and Triston McKenzie**\
 `Manzardo was the first Cleveland hitter since PNC Park opened in 2001 to deposit a home run into the Allegheny River.`\
 https://nytimes.com/athletic/6291216/2025/04/21/guardians-takeaways-emmanuel-clase-steven-kwan-triston-mckenzie/
-
-**Linus Ullmark overcame his early-season struggles. Next up? Getting playoff wins**\
-`Ullmark's record in postseason games is now 3-7, dating back to the 2022 playoffs when he was a member of the Boston Bruins.`\
-https://nytimes.com/athletic/6294605/2025/04/21/senators-linus-ullmark-nhl-playoffs-game-1-leafs/
 

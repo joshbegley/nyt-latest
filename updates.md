@@ -1,3 +1,7 @@
+**Serie A postpones fixtures after Pope Francis' death**\
+`Juventus' trip to Parma was one of four scheduled fixtures that have been postponed.`\
+https://nytimes.com/athletic/6295881/2025/04/21/pope-francis-death-serie-a-fixtures/
+
 **The Legacy of Pope Francis**\
 `Pope Francis passed away after leading the Roman Catholic Church for 12 years. His supporters remembered the first Latin American pontiff for his inclusive leadership style, while conservative Catholics accused him of diluting church teachings.`\
 https://nytimes.com/video/world/europe/100000009997580/pope-francis-obituary.html
