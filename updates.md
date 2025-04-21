@@ -1,3 +1,15 @@
+**Oscars OK the Use of A.I., With Caveats**\
+`The Academy of Motion Picture Arts and Sciences said using the technology wouldn’t disqualify a movie. But it also said that it favored films with more human involvement.`\
+https://nytimes.com/2025/04/21/business/oscars-rules-ai.html
+
+**Applications Open! The New York Times Illustration Portfolio Review**\
+`We’re inviting illustrators from around the world to share their work with art directors from The New York Times. Apply by June 1, 2025.`\
+https://nytimes.com/2025/04/21/arts/illustration-portfolio-review2025.html
+
+**Rob McElhenney celebrates with fans in Blackpool. Wrexham could be promoted on Saturday**\
+`One of Wrexham's celebrity owners joined fans in the stands for their win over Blackpool`\
+https://nytimes.com/athletic/6293739/2025/04/21/blackpool-wrexham-seaside-mcelhenney/
+
 **How to fix Tanner Houck, Jung Hoo Lee's positive plate adjustments and more**\
 `Andrea Arcadipane dives deep into the pitch mix of a struggling Tanner Houck and also notes positive changes made by three breakout hitters.`\
 https://nytimes.com/athletic/6296463/2025/04/21/fantasy-baseball-scouting-notebook-tanner-houck/
