@@ -32,7 +32,7 @@ https://nytimes.com/athletic/6294446/2025/04/21/college-baseball-vanderbilt-miam
 
 **How Francis Changed the Symbols of a Pope’s Funeral**\
 `In life and death, Francis wanted the symbols of his papacy to be humbler.`\
-https://nytimes.com/live/2025/04/21/opinion/thepoint/how-francis-changed-the-symbols-of-a-popes-funeral
+https://nytimes.com/2025/04/21/opinion/how-francis-changed-the-symbols-of-a-popes-funeral.html
 
 **Cardinals' growing pains on display in 4-game sweep by Mets**\
 `Oli Marmol learned to keep his temper in check as he deals with players still learning the game's nuances.`\
