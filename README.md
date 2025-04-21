@@ -1,3 +1,7 @@
+**Remembering Pope Francis**\
+`The pontiff has died at 88. We look at his life and his influence on more than one billion Catholics.`\
+https://nytimes.com/2025/04/21/briefing/pope-francis-dead-88.html
+
 **Warriors are confident they've solved the Rockets — if they can limit mistakes**\
 `Houston's offense might not be efficient enough to keep up, which is why Steve Kerr says, "We don't need to take chances in this series."`\
 https://nytimes.com/athletic/6295332/2025/04/21/warriors-playoffs-game-1-rockets-defense/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6295508/2025/04/21/framber-valdez-sinker-bullpen-ba
 **NHL playoffs daily: Hurricanes down Devils, Maple Leafs rout Senators**\
 `Day 2 of the NHL playoffs took place Sunday with three more Game 1s. The Athletic has takeaways for all the action.`\
 https://nytimes.com/athletic/6295148/2025/04/21/nhl-playoffs-score-results-takeaways/
-
-**Inside Wild top prospect Zeev Buium's eventful NHL debut: 'A dream come true'**\
-`The Wild experienced the risk-reward and reality that comes with a 19-year-old playing in his first game on the biggest stage.`\
-https://nytimes.com/athletic/6295798/2025/04/21/zeev-buium-nhl-debut-wild/
 
