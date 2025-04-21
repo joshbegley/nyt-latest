@@ -1,3 +1,7 @@
+**What’s Involved in a Papal Funeral?**\
+`The timing of Pope Francis’ funeral, which will span several days, has yet to be announced.`\
+https://nytimes.com/2025/04/21/world/europe/pope-francis-funeral-arrangements.html
+
 **World Leaders Praise Pope Francis and His Legacy**\
 `Global leaders offered condolences to the world’s Catholics and praised the pontiff’s commitment to the poor and marginalized.`\
 https://nytimes.com/2025/04/21/world/europe/pope-francis-death-reactions.html
