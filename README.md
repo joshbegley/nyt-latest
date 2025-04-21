@@ -1,3 +1,24 @@
+**Pope’s Will Says He Wants to Be Buried in a Simple Tomb in Rome**\
+`Pope Francis stipulated that he be laid to rest at the Papal Basilica of St. Mary Major, where six other popes are buried.`\
+https://nytimes.com/2025/04/21/world/europe/will-released.html
+
+**U.S. Airstrike Hits Yemeni Capital, Killing 12, Houthi Health Officials Say**\
+`Witnesses said an airstrike on Sunday hit a densely populated area adjacent to the Old City in Houthi-dominated Sana.`\
+https://nytimes.com/2025/04/21/world/middleeast/us-airstrikes-yemen-houthis.html
+
+**A Symbol of Hope in St. Louis Is Now One of Renewal, Too**\
+`The 19th-century Old Courthouse, part of the city’s downtown and Gateway Arch National Park, is set to reopen in May after a $27.5 million renovation.`\
+https://nytimes.com/2025/04/21/arts/design/st-louis-courthouse-gateway-arch.html
+
+**E.P.A. Set to Cancel Grants Aimed at Protecting Children From Toxic Chemicals**\
+`The cancellations, set to apply to pending and active grants, also affect research into “forever chemicals” contaminating the food supply.`\
+https://nytimes.com/2025/04/21/climate/epa-cuts-forever-chemicals-grants.html
+
+**Submit your questions for Grace Raynor’s recruiting mailbag**\
+`<p>Official visits have started for the Class of 2026. Submit your recruiting questions for Grace below. We will post her answers later in the week.</p>
+`\
+https://nytimes.com/athletic/6297191/2025/04/21/submit-your-questions-for-grace-raynors-recruiting-mailbag-21/
+
 **Six Men Are Charged After Woman Was Dragged From Idaho Town Hall**\
 `The plainclothes guards were involved in the forcible removal of a woman from a meeting hosted by local Republicans in Coeur d’Alene, prosecutors said.`\
 https://nytimes.com/2025/04/21/us/idaho-coeur-dalene-town-hall-charges.html
@@ -17,24 +38,4 @@ https://nytimes.com/athletic/6297003/2025/04/21/red-sox-takeaways-walker-buelher
 **Biles wins Laureus sportswoman of 2024, Madrid's team award, Yamal recognised**\
 `Mondo Duplantis was crowned sportsman of the year following his success at the Paris Olympics and setting multiple pole vault world records.`\
 https://nytimes.com/athletic/6296767/2025/04/21/simone-biles-award-duplantis-real-madrid-lamine-yamal/
-
-**Supreme Court Wrestles With Challenge to Affordable Care Act Over Free Preventive Care**\
-`The justices heard arguments in a constitutional challenge to a task force that decides what treatments are covered at no cost.`\
-https://nytimes.com/2025/04/21/us/politics/supreme-court-preventive-care.html
-
-**Blue Jackets make several changes to support staff, re-sign assistant coaches**\
-`Three staffers who had been with the team for at least 15 years each will not return, president and GM Don Waddell said.`\
-https://nytimes.com/athletic/6296948/2025/04/21/blue-jackets-coaches-staff/
-
-**Red Light: No playoff upsets ... yet**\
-`Welcome to Red Light, The Athletic's NHL newsletter.`\
-https://nytimes.com/athletic/6297059/2025/04/21/nhl-playoffs-womens-worlds-hockey-red-light/
-
-**It’s All Sunshine as the Vance Family Arrives in India**\
-`Those tariff clouds? Indians wish them away as they welcome Vice President JD Vance for a four-day visit.`\
-https://nytimes.com/2025/04/21/world/asia/trump-tariffs-vance-modi-india.html
-
-**Pope Francis Was a Champion, if an Imperfect One, for L.G.B.T.Q. People**\
-`He helped L.G.B.T.Q. Catholics feel more at home in their church. And that also meant that their families and friends also felt more at home.`\
-https://nytimes.com/2025/04/21/opinion/pope-francis-lgbtq-gay-people.html
 

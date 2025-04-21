@@ -1,3 +1,7 @@
+**Six Men Are Charged After Woman Was Dragged From Idaho Town Hall**\
+`The plainclothes guards were involved in the forcible removal of a woman from a meeting hosted by local Republicans in Coeur d’Alene, prosecutors said.`\
+https://nytimes.com/2025/04/21/us/idaho-coeur-dalene-town-hall-charges.html
+
 **Avalanche activate Gabriel Landeskog from injured reserve after 3-year NHL absence**\
 `Landeskog last suited up for Colorado in June 2022. Since then it’s been nothing but surgeries and pain and setbacks.`\
 https://nytimes.com/athletic/6297053/2025/04/21/gabriel-landeskog-colorado-avalanche-nhl-playoffs/
