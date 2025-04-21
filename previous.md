@@ -2,7 +2,7 @@
 `The staggering amount, disclosed in a filing with the Federal Election Commission, was driven by corporate America’s eagerness to win the president’s favor.`\
 https://nytimes.com/2025/04/20/us/politics/trump-inauguration-donors.html
 
-**Thunder show relentlessness in near-historic Game 1 blowout of Grizzlies**\
+**Thunder show relentlessness in near-historic Game 1 blowout**\
 `If there were questions whether OKC's dominant regular season would translate to the postseason, Game 1 was its official notice.`\
 https://nytimes.com/athletic/6295223/2025/04/20/thunder-near-historic-game-1-blowout-grizzlies/
 
