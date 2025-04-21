@@ -1,3 +1,7 @@
+**Fan arrested after object strikes assistant referee in Saint-Etienne vs. Lyon**\
+`The game was reportedly suspended for almost 45 minutes after the incident.`\
+https://nytimes.com/athletic/6295792/2025/04/21/saint-etienne-lyon-arrest/
+
 **Harvey Weinstein Becomes an Unlikely Voice in the Push to Close Rikers**\
 `The disgraced producer has complained volubly about his treatment in jail on Rikers Island. Advocates for detainees say any attention to conditions there can’t hurt.`\
 https://nytimes.com/2025/04/21/nyregion/harvey-weinstein-rikers-island.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/21/science/art-rome-maratta-frescoes.html
 **Barcelona were right to fear Chelsea, but proved they are still Europe's most dominant side**\
 `Barcelona managed a 4-1 win over Chelsea in their Champions League semi-final on Sunday`\
 https://nytimes.com/athletic/6295396/2025/04/21/barcelona-chelsea-champions-league/
-
-**The Bernabeu booed Kylian Mbappe but embraced Real Madrid after their tough week**\
-`After Champions League elimination to Arsenal, there was a lot of expectation about how the Madrid fans would react to their team`\
-https://nytimes.com/athletic/6295379/2025/04/21/real-madrid-bernabeu-kylian-mbappe-boo/
 

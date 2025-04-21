@@ -1,3 +1,7 @@
+**Fan arrested after object strikes assistant referee in Saint-Etienne vs. Lyon**\
+`The game was reportedly suspended for almost 45 minutes after the incident.`\
+https://nytimes.com/athletic/6295792/2025/04/21/saint-etienne-lyon-arrest/
+
 **The Bernabeu booed Kylian Mbappe but embraced Real Madrid after their tough week**\
 `After Champions League elimination to Arsenal, there was a lot of expectation about how the Madrid fans would react to their team`\
 https://nytimes.com/athletic/6295379/2025/04/21/real-madrid-bernabeu-kylian-mbappe-boo/
