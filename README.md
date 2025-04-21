@@ -1,3 +1,15 @@
+**Biles wins Laureus sportswoman of 2024, Madrid's team award, Yamal recognised**\
+`Mondo Duplantis was crowned sportsman of the year following his success at the Paris Olympics and setting multiple pole vault world records.`\
+https://nytimes.com/athletic/6296767/2025/04/21/simone-biles-award-duplantis-real-madrid-lamine-yamal/
+
+**Supreme Court Wrestles With Challenge to Affordable Care Act Over Free Preventive Care**\
+`The justices heard arguments in a constitutional challenge to a task force that decides what treatments are covered at no cost.`\
+https://nytimes.com/2025/04/21/us/politics/supreme-court-preventive-care.html
+
+**Blue Jackets make several changes to support staff, re-sign assistant coaches**\
+`Three staffers who had been with the team for at least 15 years each will not return, president and GM Don Waddell said.`\
+https://nytimes.com/athletic/6296948/2025/04/21/blue-jackets-coaches-staff/
+
 **Red Light: No playoff upsets ... yet**\
 `Welcome to Red Light, The Athletic's NHL newsletter.`\
 https://nytimes.com/athletic/6297059/2025/04/21/nhl-playoffs-womens-worlds-hockey-red-light/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/21/nyregion/eric-adams-ice-rikers.html
 **Melania Trump’s Easter Surprise**\
 `For the White House Easter Egg Roll, the first lady opted for, of all things, a trench coat.`\
 https://nytimes.com/2025/04/21/style/melania-trump-white-house-easter-egg-roll-coat.html
-
-**Tony Mowbray sacked by West Brom after three months in charge**\
-`After a run of poor results, including a 3-1 defeat at home to Derby on Monday, Mowbray departs with the club 10th in the Championship.`\
-https://nytimes.com/athletic/6296974/2025/04/21/tony-mowbray-sacked-west-brom-manager/
-
-**How to watch Brewers at Giants series: Four-game set stars Jung Hoo Lee, Jackson Chourio**\
-`The San Francisco Giants host a four-game swing with the Milwaukee Brewers, starting Monday and concluding Thursday.`\
-https://nytimes.com/athletic/6296711/2025/04/21/giants-brewers-mlb-how-to-watch/
-
-**Adam Schiff asks the National Archives to review the Trump administration’s use of Signal.**\
-`The California Democrat’s request came the day after it was revealed that Defense Secretary Pete Hegseth discussed sensitive military operations in a second Signal chat including family members.`\
-https://nytimes.com/live/2025/04/21/us/trump-administration-news/adam-schiff-asks-the-national-archives-to-review-the-trump-administrations-use-of-signal
 
