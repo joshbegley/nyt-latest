@@ -1,3 +1,7 @@
+**Six Men Are Charged After Woman Was Dragged From Idaho Town Hall**\
+`The plainclothes guards were involved in the forcible removal of a woman from a meeting hosted by local Republicans in Coeur d’Alene, prosecutors said.`\
+https://nytimes.com/2025/04/21/us/idaho-coeur-dalene-town-hall-charges.html
+
 **Avalanche activate Gabriel Landeskog from injured reserve after 3-year NHL absence**\
 `Landeskog last suited up for Colorado in June 2022. Since then it’s been nothing but surgeries and pain and setbacks.`\
 https://nytimes.com/athletic/6297053/2025/04/21/gabriel-landeskog-colorado-avalanche-nhl-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/21/world/asia/trump-tariffs-vance-modi-india.html
 **Pope Francis Was a Champion, if an Imperfect One, for L.G.B.T.Q. People**\
 `He helped L.G.B.T.Q. Catholics feel more at home in their church. And that also meant that their families and friends also felt more at home.`\
 https://nytimes.com/2025/04/21/opinion/pope-francis-lgbtq-gay-people.html
-
-**Bucks' Lillard questionable for Game 2: How his return could impact series**\
-`All-Star guard has not played since late March when he was diagnosed with a deep vein thrombosis (DVT) blood clot in his right calf.`\
-https://nytimes.com/athletic/6296972/2025/04/21/bucks-damian-lillard-questionable-pacers-game-2/
 

@@ -1,3 +1,15 @@
+**Avalanche activate Gabriel Landeskog from injured reserve after 3-year NHL absence**\
+`Landeskog last suited up for Colorado in June 2022. Since then it’s been nothing but surgeries and pain and setbacks.`\
+https://nytimes.com/athletic/6297053/2025/04/21/gabriel-landeskog-colorado-avalanche-nhl-playoffs/
+
+**Nadine Menendez Is Found Guilty of Taking Bribes and Obstructing Justice**\
+`Ms. Menendez had been charged with her husband, Robert Menendez, a former New Jersey senator convicted in July of trading his political influence for gold, cash and a Mercedes-Benz.`\
+https://nytimes.com/2025/04/21/nyregion/nadine-bob-menendez-wife-guilty-bribery-trial.html
+
+**Red Sox takeaways: Walker Buehler pitching well, offense still searching for consistency**\
+`The Red Sox offense is still searching for its optimal gear, while the rotation will be welcoming back a key member on Tuesday.`\
+https://nytimes.com/athletic/6297003/2025/04/21/red-sox-takeaways-walker-buelher-offensive-inconsistency/
+
 **Biles wins Laureus sportswoman of 2024, Madrid's team award, Yamal recognised**\
 `Mondo Duplantis was crowned sportsman of the year following his success at the Paris Olympics and setting multiple pole vault world records.`\
 https://nytimes.com/athletic/6296767/2025/04/21/simone-biles-award-duplantis-real-madrid-lamine-yamal/
