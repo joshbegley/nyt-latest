@@ -3,7 +3,7 @@
 https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/remembering-francis-visit-to-indonesia-and-east-timor
 
 **Giants relievers have been effective — Sunday's loss aside — and handled well thus far**\
-`The Giants' bullpen suffered a frustrating loss on Sunday, but they've been effective and their usage suggests they haven't been overworked.`\
+`The bullpen suffered a frustrating loss on Sunday, but they've been effective and their usage suggests they haven't been overworked.`\
 https://nytimes.com/athletic/6295492/2025/04/21/sf-giants-bullpen-usage/
 
 **The Cardinals Must Now Decide on Francis’ Legacy**\
