@@ -1,3 +1,11 @@
+**Argentinians React to Pope Francis’ Death**\
+`In Buenos Aires, where Pope Francis was once archbishop, people lit candles and filled church pews to pray for him.`\
+https://nytimes.com/video/world/americas/100000010122767/pope-francis-death-argentina.html
+
+**NCAA passes proposals that would allow schools to pay athletes, pending settlement**\
+`A federal judge granted preliminary approval of the settlement in October and hinted two weeks ago she seems likely to grant final approval.`\
+https://nytimes.com/athletic/6297444/2025/04/21/ncaa-athlete-pay-house-settlement/
+
 **Herbert J. Gans, 97, Dies; Upended Myths on Urban and Suburban Life**\
 `A leading sociologist, he explored American society up close — living in a Levittown at one point — to gain insight into issues of race, class, the media and even the Yankees.`\
 https://nytimes.com/2025/04/21/books/herbert-j-gans-dead.html
