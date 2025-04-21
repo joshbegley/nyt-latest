@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6296463/2025/04/21/fantasy-baseball-scouting-notebo
 `Chelsea can escape the obligation to sign Sancho by paying Manchester United a £5million penalty fee to return him to Old Trafford.`\
 https://nytimes.com/athletic/6296419/2025/04/21/jadon-sancho-transfer-chelsea-manchester-united/
 
-**Rob McElhenney celebrates with fans in Blackpool. Wrexham could be promoted next weekend**\
+**Rob McElhenney celebrates with fans in Blackpool. Wrexham could be promoted on Saturday**\
 `One of Wrexham's celebrity owners joined fans in the stands for their win over Blackpool`\
 https://nytimes.com/athletic/6293739/2025/04/21/blackpool-wrexham-seaside-mcelhenney/
 
