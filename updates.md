@@ -1,3 +1,11 @@
+**Boston Marathon: Marcel Hug claims third straight win in men's wheelchair division**\
+`Hug won the marathon for a third consecutive time while Scaroni snagged her second career victory in Boston.`\
+https://nytimes.com/athletic/6296201/2025/04/21/boston-marathon-results-winners-2025/
+
+**U.S. Asks Judge to Break Up Google**\
+`The Justice Department said that the best way to address the tech company’s monopoly in internet search was to force it to sell Chrome, among other measures.`\
+https://nytimes.com/2025/04/21/technology/google-search-remedies-hearing.html
+
 **Man City vs Villa betting tips: Gvardiol's magic or visitors to force a draw?**\
 `Brett Koremenos has a look at the best bets around Manchester City’s midweek clash with Aston Villa.
 `\
