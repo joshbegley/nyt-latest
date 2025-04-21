@@ -1,3 +1,11 @@
+**Springy, Speedy Skillet Gnocchi**\
+`Ali Slagle’s new recipe combines golden gnocchi, crisp asparagus and buttery miso brightened with vinegar.`\
+https://nytimes.com/2025/04/21/dining/skillet-gnocchi-asparagus-quick-dinner.html
+
+**Do You Know These Books That Became Disaster Movies?**\
+`Many blockbuster films were inspired by literature and this short quiz tests your knowledge about five of them.`\
+https://nytimes.com/interactive/2025/04/21/books/review/disaster-book-movies.html
+
 **Who Will Be the Next Pope? Here Are Some Possible Contenders.**\
 `Experts say there isn’t a single front-runner, but several names have been floated as indications of which direction the Roman Catholic Church might take.`\
 https://nytimes.com/2025/04/21/world/europe/next-pope-francis-candidates.html
@@ -30,12 +38,4 @@ https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/in-pictur
 **Lowetide: Will Kris Knoblauch continue to find answers in the playoffs?**\
 `As the postseason begins, there is much worry about the Oilers' ability to make a deep run.`\
 https://nytimes.com/athletic/6293014/2025/04/21/oilers-coach-kris-knoblauch-nhl-playoffs/
-
-**Francis and the End of the Imperial Papacy**\
-`Papal weakness has also opened up new possibilities for Christian and Catholic witness.`\
-https://nytimes.com/2025/04/21/opinion/pope-francis-catholic-church-weakness.html
-
-**Francis made climate change a central concern of his papacy.**\
-`By Somini Sengupta`\
-https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/francis-made-climate-change-a-central-concern-of-his-papacy
 

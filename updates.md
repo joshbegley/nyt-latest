@@ -1,3 +1,8 @@
+**Man City vs Villa betting tips: Gvardiol's magic or visitors to force a draw?**\
+`Brett Koremenos has a look at the best bets around Manchester City’s midweek clash with Aston Villa.
+`\
+https://nytimes.com/athletic/6296209/2025/04/21/manchester-city-vs-aston-villa-odds-is-josko-gvardiol-pep-guardiolas-secret-weapon/
+
 **Who Will Be the Next Pope? Here Are Some Possible Contenders.**\
 `Experts say there isn’t a single front-runner, but several names have been floated as indications of which direction the Roman Catholic Church might take.`\
 https://nytimes.com/2025/04/21/world/europe/next-pope-francis-candidates.html
