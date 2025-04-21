@@ -1,3 +1,7 @@
+**China Warns Countries Not to Team Up With U.S. Against It on Trade**\
+`Curbing trade with China to curry favor with the United States would be “selfish and shortsighted,” the government said, promising to retaliate.`\
+https://nytimes.com/2025/04/21/world/asia/china-tariffs-trade-warning.html
+
 **Thailand Arrests Executive Linked to Bangkok Tower Felled by Earthquake**\
 `The collapse has brought scrutiny of the Chinese state-owned company that was putting up the doomed building.`\
 https://nytimes.com/2025/04/21/world/asia/bangkok-tower-collapse-arrest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/21/nyregion/harvey-weinstein-rikers-island.html
 **Where Do the Democrats Running for Mayor of New York City Stand on the Issues?**\
 `The New York Times sent a wide-ranging survey to candidates in the Democratic primary for mayor of New York City about affordability, public safety, President Trump, homelessness, congestion pricing, immigration, schools and their one big idea.`\
 https://nytimes.com/interactive/2025/04/21/nyregion/nyc-mayor-democratic-candidates-issues.html
-
-**Will a Federal Judge Break Up Google?**\
-`On Monday, the tech giant and the U.S. government face off in court over how to fix the company’s online search monopoly. The outcome could alter Google and Silicon Valley.`\
-https://nytimes.com/2025/04/21/technology/google-search-antitrust-hearing-breakup.html
 
