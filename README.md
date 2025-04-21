@@ -1,3 +1,7 @@
+**The Pulse: The most expected upset**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6295067/2025/04/21/warriors-rockets-nba-playoffs-the-pulse/
+
 **Major Advances in E.V. Batteries Announced by Chinese Company**\
 `CATL, the world’s largest maker of batteries for electric vehicles, described breakthroughs that could make E.V.s more competitive with gasoline-powered cars.`\
 https://nytimes.com/2025/04/21/business/catl-battery-china.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6295399/2025/04/21/tennessee-football-transfer-port
 **New Bears coaches Al Harris, Antwaan Randle El and Eric Bieniemy bring winning mentality**\
 `Position coaches like Harris, Randle El and Bieniemy — all former NFL players — have the players’ ears. And those three have seen a lot.`\
 https://nytimes.com/athletic/6295267/2025/04/21/chicago-bears-new-assistant-coaches/
-
-**Alexander-Arnold will 'be remembered for good things' if he leaves Liverpool -Van Dijk**\
-`Van Dijk believes his team-mate will be remembered positively at Liverpool even if he leaves for Real Madrid this summer.`\
-https://nytimes.com/athletic/6294880/2025/04/21/trent-alexander-arnold-liverpool-van-dijk/
 
