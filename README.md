@@ -1,3 +1,11 @@
+**Video Shows Passengers Evacuating Delta Plane on Slides After Engine Fire**\
+`Flames erupted around the plane on the tarmac at Orlando International Airport on Monday. There were no reported injuries after passengers fled by emergency slides.`\
+https://nytimes.com/2025/04/21/business/delta-fire-orlando-evacuation.html
+
+**Kennedy Plans to Phase Out 8 Commonly Used Food Dyes**\
+`The petroleum-based dyes are used in hundreds of thousands of items including cereals and sports drinks. The health secretary is expected to release more details on Tuesday.`\
+https://nytimes.com/2025/04/21/dining/rfk-jr-food-dyes.html
+
 **What to watch this week: NBA and NHL Playoffs, NFL Draft, Copa del Rey and Dodgers-Cubs**\
 `It's one of the best sports-watching weeks of the year. Here's everything to look out for from Monday through Sunday.`\
 https://nytimes.com/athletic/6290267/2025/04/21/what-to-watch-on-tv-nba-playoffs-nfl-draft-copa-del-rey/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/21/climate/pope-francis-climate-change.html
 **Requiems and Tears for Pope Francis**\
 `An initial sampling of reaction to the death of Pope Francis. Also: A books case before the Supreme Court; protecting our democracy.`\
 https://nytimes.com/2025/04/21/opinion/pope-francis-dead.html
-
-**Kristi Noem’s Bag, With Security Badge and $3,000, Is Stolen**\
-`The homeland security secretary was dining at a Washington, D.C., restaurant. She also lost her passport and keys.`\
-https://nytimes.com/2025/04/21/us/politics/kristi-noem-purse-stolen.html
-
-**Líderes mundiales rinden homenaje al papa Francisco**\
-`Gobernantes y funcionarios de todo el mundo ofrecieron sus condolencias al pueblo católico y elogiaron el compromiso del pontífice con los pobres y marginados.`\
-https://nytimes.com/2025/04/21/espanol/mundo/papa-francisco-trump-sheinbaum-reacciones-lideres-mundo.html
 

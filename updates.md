@@ -1,3 +1,7 @@
+**What to watch this week: NBA and NHL Playoffs, NFL Draft, Copa del Rey and Dodgers-Cubs**\
+`It's one of the best sports-watching weeks of the year. Here's everything to look out for from Monday through Sunday.`\
+https://nytimes.com/athletic/6290267/2025/04/21/what-to-watch-on-tv-nba-playoffs-nfl-draft-copa-del-rey/
+
 **Flames Erupt From Delta Plane Engine at Orlando Airport**\
 `Footage from an eyewitness shows passengers evacuating onto the tarmac at Orlando International Airport after the engine of a Delta Air Lines plane headed for Atlanta caught on fire Monday morning.`\
 https://nytimes.com/video/travel/100000010122006/delta-fire-plane-orlando-evacuation.html
