@@ -1,3 +1,7 @@
+**White House Birthrate Boosters See an Ally in Musk**\
+`Elon Musk talks a lot about the birthrate. The Trump administration is looking for ways to raise it.`\
+https://nytimes.com/2025/04/21/us/politics/elon-musk-trump-birthrate.html
+
 **Mahmoud Khalil’s Wife Gives Birth as ICE Bars Him From Being There**\
 `Mr. Khalil, a permanent resident detained in Louisiana, had requested a monitored furlough for the birth. His request was denied in less than an hour.`\
 https://nytimes.com/2025/04/21/nyregion/mahmoud-khalil-denied-baby-birth.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/21/business/media/sarah-palin-new-york-times-trial.h
 **Chuck Connelly, Combative Neo-Expressionist Artist, Dies at 70**\
 `His heavily textured paintings brought him renown in the 1980s. In the ’90s, Nick Nolte played a character inspired by him in a Martin Scorsese film.`\
 https://nytimes.com/2025/04/21/arts/chuck-connelly-dead.html
-
-**A's set to promote top prospect Nick Kurtz, the No. 4 draft pick last year: Source**\
-`The first baseman will be the third player from last year’s draft to debut in the major leagues.`\
-https://nytimes.com/athletic/6297505/2025/04/21/athletics-promote-nick-kurtz-major-league-debut/
 
