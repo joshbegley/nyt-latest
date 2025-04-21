@@ -1,3 +1,7 @@
+**Alexander-Arnold's parting gift for Liverpool — and a final moment for him to savour**\
+`Alexander-Arnold, who is widely expected to join Real Madrid, scored Liverpool's winner against Leicester City`\
+https://nytimes.com/athletic/6295011/2025/04/21/trent-alexander-arnold-liverpool-leicester-goal/
+
 **Heat's plan to be 'disruptive' doesn't get the job done against Cavs**\
 `Cleveland's guards got exactly what they wanted, and Miami couldn't get Tyler Herro the ball in crunchtime in the Game 1 loss.`\
 https://nytimes.com/athletic/6295597/2025/04/21/heat-struggle-tyler-herro-game-1-loss/
