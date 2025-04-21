@@ -1,3 +1,7 @@
+**Larry David Imagines a Private Dinner With Hitler**\
+`In a guest essay, the comedian warns that we should see people for who they really are.`\
+https://nytimes.com/2025/04/21/opinion/larry-david-dinner.html
+
 **FPL: What we learnt from Gameweek 33 (so far) - Arsenal decisions to make**\
 `There are still three games to go in Double Gameweek 33, but it has been an underwhelming one for most FPL managers`\
 https://nytimes.com/athletic/6294824/2025/04/21/fantasy-premier-league-gameweek-33-fpl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6290286/2025/04/21/college-basketball-transfer-port
 **The Rockets' dismal Game 1 performance against the Warriors raises alarm bells**\
 `Everything Golden State did to slow down Houston was expected. The lack of answers on offense in a 95-85 loss was troubling.`\
 https://nytimes.com/athletic/6295667/2025/04/21/rockets-playoffs-game-1-loss-warriors/
-
-**MLB Draft 2025: Scouting Ethan Holliday, Eli Willits, JoJo Parker, other top HS talents**\
-`Scouting looks from this past week on several top high school draft prospects, including the Parker brothers of Purvis, Miss.`\
-https://nytimes.com/athletic/6295045/2025/04/21/mlb-draft-ethan-holliday-eli-willits-scouting/
 
