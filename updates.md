@@ -1,3 +1,43 @@
+**Man City defeat shows that Everton's revival can only continue with more depth**\
+`The potential loss of James Tarkowski to a rare injury serves as a reminder that this squad needs bolstering`\
+https://nytimes.com/athletic/6292684/2025/04/21/everton-tarkowski-man-city-injury/
+
+**Newcastle have been served a warning for next season: This squad needs more depth**\
+`Newcastle named the same starting line-up when they lost 4-1 against Aston Villa on Saturday`\
+https://nytimes.com/athletic/6292084/2025/04/21/newcastle-united-aston-villa-analysis/
+
+**Maresca may have lost Chelsea's fans, but he has clearly not lost the players**\
+`The head coach was booed before a comeback brought three points. Will fans ever take to him?`\
+https://nytimes.com/athletic/6294389/2025/04/21/chelsea-fulham-maresca-fans-players/
+
+**Arsenal's original right side is back (plus Trossard) - but is it too soon to use it against PSG?**\
+`Arteta still has decisions to make before the Champions League semi-final starts next week, but this more fluid performance bodes well`\
+https://nytimes.com/athletic/6294029/2025/04/21/arsenals-saka-white-odegaard-trossard-psg/
+
+**Crystal Palace rediscovered their resilience in time for when they need it most**\
+`Crystal Palace managed a 0-0 draw against Bournemouth despite going down to 10 men against Bournemouth`\
+https://nytimes.com/athletic/6292991/2025/04/21/crystal-palace-bournemouth-analysis/
+
+**Watkins used his anger to prove a point. What next for the Villa striker?**\
+`Watkins started both games against PSG on the bench. He sent a message on Saturday against Newcastle`\
+https://nytimes.com/athletic/6292213/2025/04/21/ollie-watkins-aston-villa-newcastle-analysis/
+
+**Jota Silva is exactly the sort of versatile performer Nottingham Forest's squad needs**\
+`The forward has had to be patient, both this season with new club Forest and throughout a career where he's risen from amateur level`\
+https://nytimes.com/athletic/6289826/2025/04/21/jota-silva-versatile-performer/
+
+**Brighton were the biggest net spenders in Europe last summer, so have they underachieved?**\
+`The club shelled out the best part of £200m, but with little sign of a return yet. But, this being Brighton, there is a longer-term plan`\
+https://nytimes.com/athletic/6291999/2025/04/21/brighton-transfer-spending-progress/
+
+**Rasmus Hojlund, Manchester United's suffering striker they cannot afford to drop**\
+`He looks burdened by it all, as he has for months now, but sometimes the only way out of a dry spell is through it.`\
+https://nytimes.com/athletic/6294677/2025/04/21/rasmus-hojlund-manchester-united/
+
+**The Briefing: Arsenal's huge regret, big spenders keep sinking and who should sign De Bruyne?**\
+`Dissecting the weekend's top-flight football - featuring Arteta's missed opportunity, unlikely strugglers and De Bruyne's future `\
+https://nytimes.com/athletic/6294039/2025/04/21/arsenal-premier-league-title-regret/
+
 **Inside Nabil Bentaleb's incredible comeback after cardiac arrest: 'It’s not about how you fall, but how you get up'**\
 `Bentaleb suffered a cardiac arrest while playing football last June. The Athletic spoke to those close to him about his remarkable return`\
 https://nytimes.com/athletic/6272086/2025/04/21/nabil-bentaleb-lille-comeback-cardiac-arrest-football/
