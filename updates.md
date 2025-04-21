@@ -1,3 +1,11 @@
+**The Ten Commandments**\
+`Stories of people struggling to follow those old, primal rules of life.`\
+https://nytimes.com/2025/04/20/podcasts/the-ten-commandments-this-american-life-nyt-audio.html
+
+**Padres’ Luis Arraez stable after leaving game on cart post-collision**\
+`Dubón’s shoulder appeared to make contact with the head of Arraez, who was motionless on the field as trainers rushed to his aid.`\
+https://nytimes.com/athletic/6295133/2025/04/20/padres-luis-arraez-collision-mauricio-dubon/
+
 **The Grizzlies were embarrassed in OKC. Do they have enough to recover?**\
 `“We’ll never play that bad again,” Ja Morant said after Sunday's humiliating loss to the Thunder. `\
 https://nytimes.com/athletic/6295022/2025/04/20/grizzlies-loss-game-1-thunder-nba-playoffs/
