@@ -1,40 +1,40 @@
-**Clippers need to clean up multiple game-plan mistakes to even series against Denver**\
-`Turnovers and miscommunications on double teams against Nikola Jokić cost LA dearly in the Game 1 overtime loss.`\
-https://nytimes.com/athletic/6295418/2025/04/21/clippers-nuggets-playoffs-game-2-preview/
+**The Lyrids Meteor Shower Is Peaking. Here’s How to Watch.**\
+`Active since last week, the shower is formed from a comet’s debris and is forecast to produce the most fireballs overnight.`\
+https://nytimes.com/2025/04/21/science/lyrid-meteor-shower.html
 
-**The Legacy of Pope Francis’s Business Diplomacy**\
-`As pontiff, Francis sought to build bridges with global corporate leaders, who sought audiences with him — but also to remind them about the need to look out for the poor.`\
-https://nytimes.com/2025/04/21/business/dealbook/pope-francis-business-poor.html
+**Seahawks final mock draft: Two trades, OL in Round 1 and a haul of talent on Day 2**\
+`The team's biggest need is clear, but who would fit best? On Day 2, Seattle finds playmakers on both sides of the ball.`\
+https://nytimes.com/athletic/6289536/2025/04/21/seahawks-nfl-mock-draft-2025/
 
-**A conclave will be held to choose a new pope. Here’s how it will work.**\
-`By Elisabetta Povoledo and Jason Horowitz`\
-https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/a-conclave-will-be-held-to-choose-a-new-pope-heres-how-it-will-work
+**49ers 7-round mock draft: Adding Williams — 2 of them — to bolster the D-line**\
+`The 49ers add size and physicality to the trenches in this seven-round mock draft.`\
+https://nytimes.com/athletic/6288551/2025/04/21/49ers-mock-nfl-draft-mykel-williams/
 
-**The Athletic FC: Brazil wait for Ancelotti as Real Madrid win, ranking World Cup city posters**\
-`Today in TAFC: Real Madrid win just as Ancelotti's reign seemingly nears its end, but Alexander-Arnold will likely be there next season..`\
-https://nytimes.com/athletic/6295752/2025/04/21/ancelotti-brazil-real-madrid/
+**Bruins season grades: Two first-liners hit highest mark in disappointing year**\
+`A player-by-player breakdown of a tough season, from the best performers to the worst.`\
+https://nytimes.com/athletic/6295039/2025/04/21/bruins-season-grades-2024-25/
 
-**Conversations and insights about the moment.**\
-``\
-https://nytimes.com/live/2025/04/21/opinion/thepoint
+**Red Wings' offseason priorities: Fix the PK, find top-line winger and more**\
+`A look at the Red Wings' biggest offseason needs, on and off the ice, as another summer begins in April.`\
+https://nytimes.com/athletic/6294403/2025/04/21/red-wings-offseason-priorities-penalty-kill-prospects/
 
-**Israeli Minister Says Freeing Hostages Not ‘Most Important’ Aim of the War**\
-`The far-right finance minister, Bezalel Smotrich, said the more crucial goal was ensuring that Hamas no longer ruled the Gaza Strip.`\
-https://nytimes.com/2025/04/21/world/middleeast/israel-finance-minister-hostages-bezalel-smotrich-gaza-hamas.html
+**Canadiens playoff notebook: Deja vu for Caps, Anderson beast mode to come, Slafkovský too?**\
+`In this first edition of the Canadiens playoff notebook, Josh Anderson as an example for Juraj Slafkovský to follow and much more.`\
+https://nytimes.com/athletic/6295581/2025/04/21/canadiens-nhl-playoffs-anderson-slafkovsky-capitals/
 
-**Opinion Today: Larry David Imagines a Private Dinner With Hitler**\
-`In a guest essay, the comedian warns that we should see people for who they really are.`\
-https://nytimes.com/2025/04/21/opinion/larry-david-dinner.html
+**Homestead-Miami Speedway expected to host NASCAR championship race in 2026: Sources**\
+`Another track will be selected to host in 2027, beginning a rotation in which a different venue is chosen each year, per multiple sources.`\
+https://nytimes.com/athletic/6294160/2025/04/21/nascar-homestead-miami-speedway-championship-race-2026/
 
-**FPL: What we learnt from Gameweek 33 (so far) - Arsenal decisions to make**\
-`There are still three games to go in Double Gameweek 33, but it has been an underwhelming one for most FPL managers`\
-https://nytimes.com/athletic/6294824/2025/04/21/fantasy-premier-league-gameweek-33-fpl/
+**Film breakdown: Bucks need 'urgency' on defense after multiple lapses against Pacers**\
+`While Doc Rivers lamented the Bucks' offense in their series opener, they weren't much better on defense. Let's look at why.`\
+https://nytimes.com/athletic/6294020/2025/04/21/bucks-pacers-defense-nba-playoffs-game-1/
 
-**In his final remarks, Francis focused on a hallmark theme of his papacy: migrants.**\
-`By Patricia Mazzei`\
-https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/in-his-final-remarks-francis-focused-on-a-hallmark-theme-of-his-papacy-migrants
+**Breaking down Big Ten QB outlooks, from Julian Sayin to Nico Iamaleava**\
+`From potential Heisman Trophy contenders to youthful prospects, there is no shortage of intrigue among Big Ten quarterbacks.`\
+https://nytimes.com/athletic/6294275/2025/04/21/big-ten-quarterbacks-nico-iamaleava-julian-sayin/
 
-**Tah confirms he will leave Leverkusen this summer**\
-`“Definitely,” Tah responded when asked by BILD if he was playing his final games for Leverkusen.`\
-https://nytimes.com/athletic/6295957/2025/04/21/jonathan-tah-transfer-next-club-leverkusen/
+**Blues balancing playoff expectations with valuable experience for first-timers**\
+`The Blues go into Game 2 against the Jets looking for a better performance from all, not just those making their first playoff appearance.`\
+https://nytimes.com/athletic/6294124/2025/04/21/blues-nhl-playoffs-jets-expectations/
 
