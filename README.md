@@ -1,3 +1,11 @@
+**Pacers 'expect hard' as they prepare for Game 2 against the Bucks**\
+`"When you win Game 1 in the series, particularly as the home team, Game 2 is always exponentially tougher," Pacers coach Rick Carlisle said.`\
+https://nytimes.com/athletic/6297102/2025/04/21/pacers-bucks-playoffs-game-2/
+
+**The World Mourned Pope Francis**\
+`Also, the U.S. asked a judge to break up Google. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/04/21/briefing/pope-francis-dead-google-antitrust-hearing.html
+
 **Francis Had Health Issues That Can Increase the Risk of Stroke**\
 `The declaration of death said the pope had Type 2 diabetes and high blood pressure, along with bronchiectasis, a chronic lung condition.`\
 https://nytimes.com/2025/04/21/world/europe/pope-francis-stroke-death.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/21/us/politics/steve-hilton-former-fox-news-host-is-
 **Pope Francis, the Unlikely Movie Star: 6 Films Show His Cinematic Appeal**\
 `In fictional tales and documentaries, directors approached him as a screen character who was both admired and controversial.`\
 https://nytimes.com/2025/04/21/movies/pope-francis-conclave-movies.html
-
-**Falcons sign former Chargers backup QB Easton Stick**\
-`Stick could compete for the backup job behind Michael Penix Jr. if Kirk Cousins is released or traded.`\
-https://nytimes.com/athletic/6297376/2025/04/21/falcons-sign-qb-easton-stick/
-
-**Watchdog Group Asks Judge to Preserve Signal Chats by Top Trump Officials**\
-`The request by American Oversight came after revelations that Defense Secretary Pete Hegseth shared information on upcoming strikes in more than one group chat.`\
-https://nytimes.com/2025/04/21/us/politics/trump-officials-signal-chats-hegseth-leak.html
 

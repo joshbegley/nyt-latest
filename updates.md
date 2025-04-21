@@ -1,3 +1,11 @@
+**Francis Had Health Issues That Can Increase the Risk of Stroke**\
+`The declaration of death said the pope had Type 2 diabetes and high blood pressure, along with bronchiectasis, a chronic lung condition.`\
+https://nytimes.com/2025/04/21/world/europe/pope-francis-stroke-death.html
+
+**Rangers reflect on disappointing season, Drury's trade memo and accountability: 'Something broke'**\
+`After a season of underperformance, a third coach firing in four years and “a lot of noise,” the Rangers gave their exit interviews Monday.`\
+https://nytimes.com/athletic/6297271/2025/04/21/rangers-accountability-exit-interviews/
+
 **What Do You Want to Know About the Pope?**\
 `Send us your questions about the death of Pope Francis. We’ll find Times reporters to answer them.`\
 https://nytimes.com/2025/04/21/briefing/what-do-you-want-to-know-about-the-pope.html
