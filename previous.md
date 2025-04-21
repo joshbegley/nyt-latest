@@ -1,40 +1,40 @@
-**What’s Involved in a Papal Funeral?**\
-`The timing of Pope Francis’ funeral, which will span several days, has yet to be announced.`\
-https://nytimes.com/2025/04/21/world/europe/pope-francis-funeral-arrangements.html
+**Astros takeaways: Framber Valdez's sinker, a low-velocity bullpen, aggressive baserunning**\
+`Five starts into his platform season, Valdez is still searching for that signature pitch.`\
+https://nytimes.com/athletic/6295508/2025/04/21/framber-valdez-sinker-bullpen-baserunning-astros-takeaways/
 
-**World Leaders Praise Pope Francis and His Legacy**\
-`Global leaders offered condolences to the world’s Catholics and praised the pontiff’s commitment to the poor and marginalized.`\
-https://nytimes.com/2025/04/21/world/europe/pope-francis-death-reactions.html
+**NHL playoffs daily: Hurricanes down Devils, Maple Leafs rout Senators**\
+`Day 2 of the NHL playoffs took place Sunday with three more Game 1s. The Athletic has takeaways for all the action.`\
+https://nytimes.com/athletic/6295148/2025/04/21/nhl-playoffs-score-results-takeaways/
 
-**Browns 7-round mock draft: With Travis Hunter at No. 2, when will they select a QB?**\
-`In our final Cleveland mock ahead of the draft, we have the two-way Heisman winner going early. But which QB will the team take a chance on?`\
-https://nytimes.com/athletic/6284687/2025/04/21/browns-nfl-mock-draft-2025-travis-hunter/
+**Inside Wild top prospect Zeev Buium's eventful NHL debut: 'A dream come true'**\
+`The Wild experienced the risk-reward and reality that comes with a 19-year-old playing in his first game on the biggest stage.`\
+https://nytimes.com/athletic/6295798/2025/04/21/zeev-buium-nhl-debut-wild/
 
-**Eagles 7-round 2025 mock draft: In search of rookie contracts to balance the defending champions**\
-`The Eagles have some money matters to consider. `\
-https://nytimes.com/athletic/6288234/2025/04/21/eagles-nfl-mock-draft-2025-walter-nolen/
+**From Kobe Bryant to Hockey Canada: Athletes and the pursuit of 'consent' in the digital age**\
+`While the effort to record consent before sexual encounters is on the rise, one expert cautions those videos "may be misleading."`\
+https://nytimes.com/athletic/6292187/2025/04/21/hockey-canada-sexual-assault-trial-digital-consent/
 
-**Bills 7-round 2025 mock draft: Trades, and cornerback moves up the priority list**\
-`Certain defensive tackles may not be available for the Bills in round 1.`\
-https://nytimes.com/athletic/6288039/2025/04/21/bills-nfl-mock-draft-2025-trey-amos/
+**Guardians weekend sweep takeaways: Emmanuel Clase, Steven Kwan and Triston McKenzie**\
+`Manzardo was the first Cleveland hitter since PNC Park opened in 2001 to deposit a home run into the Allegheny River.`\
+https://nytimes.com/athletic/6291216/2025/04/21/guardians-takeaways-emmanuel-clase-steven-kwan-triston-mckenzie/
 
-**Lions 7-round 2025 mock draft: Focus on adding to homegrown core of Super Bowl contender**\
-`The Lions have drafted significant pieces in recent years.`\
-https://nytimes.com/athletic/6292842/2025/04/21/lions-nfl-mock-draft-2025-mykel-williams/
+**Linus Ullmark overcame his early-season struggles. Next up? Getting playoff wins**\
+`Ullmark's record in postseason games is now 3-7, dating back to the 2022 playoffs when he was a member of the Boston Bruins.`\
+https://nytimes.com/athletic/6294605/2025/04/21/senators-linus-ullmark-nhl-playoffs-game-1-leafs/
 
-**Ravens 7-round mock draft: Beefing up the trenches, adding secondary depth**\
-`While most of Baltimore's question marks are on defense, GM Eric DeCosta said the team will stick to its board and not chase needs. `\
-https://nytimes.com/athletic/6285818/2025/04/21/ravens-nfl-mock-draft-2025-tyler-booker/
+**Packers 7-round mock draft 3.0: A bold move for Arizona WR Tetairoa McMillan**\
+`The Packers haven't quite made waves this offseason, but a first round like this on Thursday night would change that.`\
+https://nytimes.com/athletic/6292215/2025/04/21/packers-7-round-mock-draft-tetairoa-mcmillan/
 
-**Final Bengals 7-round mock draft: Why players in the trenches will lead the way**\
-`There's a heavy focus on defense with three of the first four selections offering an assist to new defensive coordinator Al Golden.`\
-https://nytimes.com/athletic/6290672/2025/04/21/final-bengals-7-round-mock-draft/
+**In Anthony Stolarz, the Maple Leafs may finally have their advantage in goal**\
+`It's just one game. But given the season he's had, Stolarz feels like one of the biggest sure things in this series right now.`\
+https://nytimes.com/athletic/6295473/2025/04/21/anthony-stolarz-maple-leafs-nhl-playoffs/
 
-**The New York Times International Edition in Print for Tuesday, April 22, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/04/21/todays-new-york-times-international-edition
+**Twins takeaways: Swept in Atlanta, Luke Keaschall's debut, Pablo López is close**\
+`Plus, the return of Brock Stewart, the numbers behind the Twins' "opener" usage and sinking to 19-42 since last season's collapse.`\
+https://nytimes.com/athletic/6293826/2025/04/21/twins-takeaways-swept-in-atlanta/
 
-**A Soccer Field Can Be Sacred**\
-`For millions of people, it represents familiarity, comfort and belonging.`\
-https://nytimes.com/2025/04/21/style/a-soccer-field-can-be-sacred.html
+**This Week in Mets: Is Pete Alonso having the best April in team history?**\
+`Alonso is on the verge of breaking several team records for the opening month, including several marks he already owns.`\
+https://nytimes.com/athletic/6295437/2025/04/21/mets-pete-alonso-best-april/
 
