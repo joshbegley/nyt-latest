@@ -1,3 +1,7 @@
+**Jameson Taillon is feeling locked in physically, and his four-seamer proves it**\
+`After a dreadful 2023 season, Taillon adjusted, and results were better in 2024, but in 2025, his four-seamer has been a revelation.`\
+https://nytimes.com/athletic/6295180/2025/04/20/cubs-jameson-taillon-fastball/
+
 **Braves takeaways: Alex Verdugo's instant impact, team's turnaround, Drake Baldwin to stay?**\
 `Verdugo provided a spark atop the order in his first three games with the Braves: "He likes being in that leadoff spot and jumped right in."`\
 https://nytimes.com/athletic/6295176/2025/04/20/braves-alex-verdugo-drake-baldwin/
