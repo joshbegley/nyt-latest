@@ -1,3 +1,7 @@
+**Francis made climate change a central concern of his papacy.**\
+`By Somini Sengupta`\
+https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/francis-made-climate-change-a-central-concern-of-his-papacy
+
 **The Athletic college baseball Top 25: Clemson climbs to No. 2, Vanderbilt crashes top 10**\
 `Clemson, which has not lost a series all season, is 35-7 overall and 13-5 in the ACC. `\
 https://nytimes.com/athletic/6296174/2025/04/21/college-baseball-rankings-clemson-texas-vanderbilt/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6295492/2025/04/21/sf-giants-bullpen-usage/
 **The Cardinals Must Now Decide on Francis’ Legacy**\
 `Cardinals prepare to gather in Rome for the conclave to decide on Francis’ successor and the direction they want the church to take.`\
 https://nytimes.com/2025/04/21/opinion/pope-francis-successor-cardinals-conclave.html
-
-**'He’s a horse out there' – Tomas Hertl gives Golden Knights the playoff performance they envisioned**\
-`The power forward thrives in playoff hockey, where open ice and offensive opportunities are hard to come by.  `\
-https://nytimes.com/athletic/6295750/2025/04/21/golden-knights-wild-hertl/
 

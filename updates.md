@@ -1,3 +1,7 @@
+**Francis made climate change a central concern of his papacy.**\
+`By Somini Sengupta`\
+https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/francis-made-climate-change-a-central-concern-of-his-papacy
+
 **Senators' Ridly Greig won't face suspension for cross-check on Leafs' John Tavares: Source**\
 `'Call the league!' Leafs coach Craig Berube said regarding play that was downgraded to a two-minute minor penalty.`\
 https://nytimes.com/athletic/6296221/2025/04/21/greig-suspension-tavares-leafs-senators-nhl-playoffs/
