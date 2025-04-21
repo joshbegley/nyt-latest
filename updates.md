@@ -1,3 +1,11 @@
+**gws-romanian-deadlift-technique**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/romanian-deadlift-technique
+
+**Even after a lengthy illness, Francis’ death came as a surprise.**\
+`By Jason Horowitz`\
+https://nytimes.com/2025/04/21/world/europe/even-after-a-lengthy-illness-francis-death-came-as-a-surprise.html
+
 **Giants relievers have been effective — Sunday's loss aside — and handled well thus far**\
 `The bullpen suffered a frustrating loss on Sunday, but they've been effective and their usage suggests they haven't been overworked.`\
 https://nytimes.com/athletic/6295492/2025/04/21/sf-giants-bullpen-usage/

@@ -1,3 +1,7 @@
+**gws-romanian-deadlift-technique**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/romanian-deadlift-technique
+
 **Remembering Francis’ visit to Indonesia and East Timor.**\
 `By Sui-Lee Wee`\
 https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/remembering-francis-visit-to-indonesia-and-east-timor
@@ -32,9 +36,5 @@ https://nytimes.com/2025/04/21/pageoneplus/corrections-april-20-2025.html
 
 **Even after a lengthy illness, Francis’ death came as a surprise.**\
 `By Jason Horowitz`\
-https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/even-after-a-lengthy-illness-francis-death-came-as-a-surprise
-
-**Jelena Ostapenko stuns Aryna Sabalenka to win Tennis Grand Prix in Stuttgart**\
-`It is the Latvian's first clay-court title since she won the French Open in 2017.`\
-https://nytimes.com/athletic/6295962/2025/04/21/jelena-ostapenko-stuttgart-tennis-grand-prix-sabalenka-result-analysis/
+https://nytimes.com/2025/04/21/world/europe/even-after-a-lengthy-illness-francis-death-came-as-a-surprise.html
 
