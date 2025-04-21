@@ -1,3 +1,21 @@
+**The Briefing: Tottenham 1 Nottingham Forest 2 - a vital win for Nuno, another setback for Postecoglou**\
+`Elias Burke and Paul Taylor analyse the main talking points from Nottingham Forest's victory at Tottenham Hotspur`\
+https://nytimes.com/athletic/6292413/2025/04/21/tottenham-nottingham-forest-analysis/
+
+**Lo que hay que saber sobre la muerte del papa y lo que sigue en los próximos días**\
+`By Jason Horowitz`\
+https://nytimes.com/live/2025/04/21/espanol/muere-papa-francisco/lo-que-hay-que-saber-sobre-la-muerte-del-papa-y-lo-que-sigue-en-los-proximos-dias
+
+**What Happens After the Pope Dies?**\
+`After Pope Francis’ funeral, 135 cardinals will gather for a conclave to elect a new pope. The traditions include oaths of secrecy, paper ballots and white smoke from a chimney of the Sistine Chapel.`\
+https://nytimes.com/2025/04/21/world/europe/what-happens-after-the-pope-dies.html
+
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>April has become a surprisingly busy time in college football, what with the spring portal window and spring practices colliding.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6297324/2025/04/21/submit-a-question-for-stewart-mandels-college-football-mailbag-299/
+
 **Argentines mourn a ‘humble’ pope and a native son.**\
 `Across Argentina, many people flocked to churches to mourn Pope Francis. Some recalled personal encounters before he became pontiff.`\
 https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/argentines-mourn-a-humble-pope-and-a-native-son
@@ -21,20 +39,4 @@ https://nytimes.com/athletic/6296925/2025/04/21/jeff-skinner-oilers-nhl-playoffs
 **J Is for Japan**\
 `The country that changed modern culture and design, from A to Z.`\
 https://nytimes.com/series/j-is-for-japan
-
-**How ‘Miss Chief’ Can Help Us Rethink Art History**\
-`Denver hosts the first U.S. museum survey of Kent Monkman, a member of the Fisher River Cree Nation whose large paintings are inspired in part by old masters.`\
-https://nytimes.com/2025/04/21/arts/design/kent-monkman-denver-art-museum.html
-
-**A Painter Famed for Recreating What She Lost, in the Spotlight**\
-`In 1999 Ann Craven lost nearly everything in a studio fire. Since then, she has made “revisitation” paintings. Next month, these works will be shown across Maine.`\
-https://nytimes.com/2025/04/21/arts/design/ann-craven-farnsworth-museum.html
-
-**F.T.C. Sues Uber Over Billing for Its Premium Subscription Service**\
-`The suit is an indication that the commission’s close scrutiny of the tech industry will continue in the Trump administration.`\
-https://nytimes.com/2025/04/21/technology/uber-one-lawsuit-ftc.html
-
-**Lindelof left Man Utd-Lyon early after learning son 'split entire head open'**\
-`The centre-back left the stadium after the first half when learning his son was badly wounded falling into a glass staircase at home.`\
-https://nytimes.com/athletic/6296835/2025/04/21/victor-lindelof-manchester-united-son-accident/
 
