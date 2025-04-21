@@ -1,3 +1,7 @@
+**The Ten Commandments**\
+`Stories of people struggling to follow those old, primal rules of life.`\
+https://nytimes.com/2025/04/20/podcasts/the-ten-commandments-this-american-life-nyt-audio.html
+
 **The Grizzlies were embarrassed in OKC. Do they have enough to recover?**\
 `“We’ll never play that bad again,” Ja Morant said after Sunday's humiliating loss to the Thunder. `\
 https://nytimes.com/athletic/6295022/2025/04/20/grizzlies-loss-game-1-thunder-nba-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6295030/2025/04/20/phillies-bullpen-rough-weekend-c
 **Syria’s Easter Celebrations Pass Peacefully, in Early Test of New Government**\
 `At least in the capital, Damascus, the Christian holiday festivities were protected and joyfully observed. Religious minorities are still wary, however, about the new leaders’ commitment to inclusivity.`\
 https://nytimes.com/2025/04/20/world/middleeast/syria-easter.html
-
-**Capitals look past late-season struggles, enjoy family time ahead of Game 1**\
-`Capitals coach Spencer Carbery suggested players bring their families to practice on Sunday as they prepare for Game 1 against Montreal.`\
-https://nytimes.com/athletic/6294805/2025/04/20/capitals-nhl-playoffs-canadiens-family/
 
