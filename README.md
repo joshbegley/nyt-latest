@@ -1,40 +1,40 @@
-**Remembering Pope Francis**\
-`The pontiff has died at 88. We look at his life and his influence on more than one billion Catholics.`\
-https://nytimes.com/2025/04/21/briefing/pope-francis-dead-88.html
+**Major Advances in E.V. Batteries Announced by Chinese Company**\
+`CATL, the world’s largest maker of batteries for electric vehicles, described breakthroughs that could make E.V.s more competitive with gasoline-powered cars.`\
+https://nytimes.com/2025/04/21/business/catl-battery-china.html
 
-**Warriors are confident they've solved the Rockets — if they can limit mistakes**\
-`Houston's offense might not be efficient enough to keep up, which is why Steve Kerr says, "We don't need to take chances in this series."`\
-https://nytimes.com/athletic/6295332/2025/04/21/warriors-playoffs-game-1-rockets-defense/
+**Francis faced defiant, conservative U.S. Catholic leaders.**\
+`By Ruth Graham`\
+https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/francis-faced-defiant-conservative-us-catholic-leaders
 
-**Pope Francis Defied Doctors’ Orders and Kept Busy Until His Last Day**\
-`The pontiff met with Vice President JD Vance on Sunday and blessed Catholics gathered for Easter. His doctors had urged him to rest.`\
-https://nytimes.com/2025/04/21/world/europe/pope-francis-easter-last-day.html
+**Best college basketball transfer portal fits: UConn, Michigan and more make top matches**\
+`Emphasis on fit, because these are not the five most-talented players. These are situations most beneficial to both player and his new team.`\
+https://nytimes.com/athletic/6290286/2025/04/21/college-basketball-transfer-portal-best-fits/
 
-**Serie A postpones fixtures after Pope Francis' death**\
-`Juventus' trip to Parma was one of four scheduled fixtures that have been postponed.`\
-https://nytimes.com/athletic/6295881/2025/04/21/pope-francis-death-serie-a-fixtures/
+**The Rockets' dismal Game 1 performance against the Warriors raises alarm bells**\
+`Everything Golden State did to slow down Houston was expected. The lack of answers on offense in a 95-85 loss was troubling.`\
+https://nytimes.com/athletic/6295667/2025/04/21/rockets-playoffs-game-1-loss-warriors/
 
-**The Legacy of Pope Francis**\
-`Pope Francis passed away after leading the Roman Catholic Church for 12 years. His supporters remembered the first Latin American pontiff for his inclusive leadership style, while conservative Catholics accused him of diluting church teachings.`\
-https://nytimes.com/video/world/europe/100000009997580/pope-francis-obituary.html
+**MLB Draft 2025: Scouting Ethan Holliday, Eli Willits, JoJo Parker, other top HS talents**\
+`Scouting looks from this past week on several top high school draft prospects, including the Parker brothers of Purvis, Miss.`\
+https://nytimes.com/athletic/6295045/2025/04/21/mlb-draft-ethan-holliday-eli-willits-scouting/
 
-**‘I love opposition’: How Francis opened space for debate within the church.**\
-`By Jason Horowitz and Jim Yardley`\
-https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/i-love-opposition-how-francis-opened-space-for-debate-within-the-church
+**Lloyd: Cavs know rugged games against the Heat are just what they need to make them better**\
+`Against a physical and savvy team, Donovan Mitchell was aggressive getting to the paint and converted 7 of 8 shots around the basket.`\
+https://nytimes.com/athletic/6295605/2025/04/21/cavaliers-heat-nba-playoff-game-1-test/
 
-**Bears mock draft 3.0: Offensive tackle, tight end, running back or edge at No. 10?**\
-`Our final Bears mock draft assumes that Will Campbell, Ashton Jeanty and Mason Graham will all be gone before the 10th pick.`\
-https://nytimes.com/athletic/6287127/2025/04/21/bears-2025-nfl-mock-draft/
+**Raiders 7-round 2025 mock draft: Las Vegas can't pass on Ashton Jeanty**\
+`We predict Pete Carroll and John Spytek will pounce on the bellcow running back who is already being compared to some NFL legends.`\
+https://nytimes.com/athletic/6291177/2025/04/21/raiders-nfl-mock-draft-2025-ashton-jeanty/
 
-**Vikings 7-round mock draft: Final predictions on who they'll pick and where**\
-`Will the Vikings stick and pick at 24? Will they trade back? Which positions will they draft? We provide answers in our final mock draft.`\
-https://nytimes.com/athletic/6290518/2025/04/21/vikings-nfl-mock-draft-2025-grey-zabel/
+**Tennessee's best transfer portal quarterback options after Nico Iamaleava**\
+`Signing a QB with legitimate experience is critical. But if the Vols can't swipe someone else's starter, who remains in the portal for them?`\
+https://nytimes.com/athletic/6295399/2025/04/21/tennessee-football-transfer-portal-quarterbacks/
 
-**Astros takeaways: Framber Valdez's sinker, a low-velocity bullpen, aggressive baserunning**\
-`Five starts into his platform season, Valdez is still searching for that signature pitch.`\
-https://nytimes.com/athletic/6295508/2025/04/21/framber-valdez-sinker-bullpen-baserunning-astros-takeaways/
+**New Bears coaches Al Harris, Antwaan Randle El and Eric Bieniemy bring winning mentality**\
+`Position coaches like Harris, Randle El and Bieniemy — all former NFL players — have the players’ ears. And those three have seen a lot.`\
+https://nytimes.com/athletic/6295267/2025/04/21/chicago-bears-new-assistant-coaches/
 
-**NHL playoffs daily: Hurricanes down Devils, Maple Leafs rout Senators**\
-`Day 2 of the NHL playoffs took place Sunday with three more Game 1s. The Athletic has takeaways for all the action.`\
-https://nytimes.com/athletic/6295148/2025/04/21/nhl-playoffs-score-results-takeaways/
+**Alexander-Arnold will 'be remembered for good things' if he leaves Liverpool -Van Dijk**\
+`Van Dijk believes his team-mate will be remembered positively at Liverpool even if he leaves for Real Madrid this summer.`\
+https://nytimes.com/athletic/6294880/2025/04/21/trent-alexander-arnold-liverpool-van-dijk/
 
