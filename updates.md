@@ -1,3 +1,7 @@
+**Senators' Ridly Greig won't face suspension for cross-check on Leafs' John Tavares: Source**\
+`'Call the league!' Leafs coach Craig Berube said regarding play that was downgraded to a two-minute minor penalty.`\
+https://nytimes.com/athletic/6296221/2025/04/21/greig-suspension-tavares-leafs-senators-nhl-playoffs/
+
 **The Athletic college baseball Top 25: Clemson climbs to No. 2, Vanderbilt crashes top 10**\
 `Clemson, which has not lost a series all season, is 35-7 overall and 13-5 in the ACC. `\
 https://nytimes.com/athletic/6296174/2025/04/21/college-baseball-rankings-clemson-texas-vanderbilt/
