@@ -1,3 +1,7 @@
+**How Meta’s News Ban Could Disrupt Canada’s Election**\
+`After Meta blocked news from its platforms in Canada, hyperpartisan and misleading content from popular right-wing Facebook pages such as Canada Proud have filled the gap. Our Canada bureau chief explains the effect on voters.`\
+https://nytimes.com/video/world/canada/100000010113524/how-metas-news-ban-could-disrupt-canadas-election.html
+
 **Vardy apologises to Leicester fans for 's*** show' relegation season**\
 `The club's drop from the Premier League back to Championship was confirmed on Sunday after a 1-0 defeat at home to Liverpool.`\
 https://nytimes.com/athletic/6296437/2025/04/21/jamie-vardy-leicester-relegation/
