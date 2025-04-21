@@ -1,3 +1,11 @@
+**Conversations and insights about the moment.**\
+``\
+https://nytimes.com/live/2025/04/21/opinion/thepoint
+
+**Israeli Minister Says Freeing Hostages Not ‘Most Important’ Aim of the War**\
+`The far-right finance minister, Bezalel Smotrich, said the more crucial goal was ensuring that Hamas no longer ruled the Gaza Strip.`\
+https://nytimes.com/2025/04/21/world/middleeast/israel-finance-minister-hostages-bezalel-smotrich-gaza-hamas.html
+
 **Larry David Imagines a Private Dinner With Hitler**\
 `In a guest essay, the comedian warns that we should see people for who they really are.`\
 https://nytimes.com/2025/04/21/opinion/larry-david-dinner.html

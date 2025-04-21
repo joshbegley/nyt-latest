@@ -1,3 +1,11 @@
+**Conversations and insights about the moment.**\
+``\
+https://nytimes.com/live/2025/04/21/opinion/thepoint
+
+**Israeli Minister Says Freeing Hostages Not ‘Most Important’ Aim of the War**\
+`The far-right finance minister, Bezalel Smotrich, said the more crucial goal was ensuring that Hamas no longer ruled the Gaza Strip.`\
+https://nytimes.com/2025/04/21/world/middleeast/israel-finance-minister-hostages-bezalel-smotrich-gaza-hamas.html
+
 **Larry David Imagines a Private Dinner With Hitler**\
 `In a guest essay, the comedian warns that we should see people for who they really are.`\
 https://nytimes.com/2025/04/21/opinion/larry-david-dinner.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/21/business/catl-battery-china.html
 **Francis faced defiant, conservative U.S. Catholic leaders.**\
 `By Ruth Graham`\
 https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/francis-faced-defiant-conservative-us-catholic-leaders
-
-**Best college basketball transfer portal fits: UConn, Michigan and more make top matches**\
-`Emphasis on fit, because these are not the five most-talented players. These are situations most beneficial to both player and his new team.`\
-https://nytimes.com/athletic/6290286/2025/04/21/college-basketball-transfer-portal-best-fits/
-
-**The Rockets' dismal Game 1 performance against the Warriors raises alarm bells**\
-`Everything Golden State did to slow down Houston was expected. The lack of answers on offense in a 95-85 loss was troubling.`\
-https://nytimes.com/athletic/6295667/2025/04/21/rockets-playoffs-game-1-loss-warriors/
 
