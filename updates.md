@@ -1,3 +1,11 @@
+**El Paso Gunman in Walmart Shooting Sentenced Again to Life in Prison**\
+`Both federal and state prosecutors took the death penalty out of consideration for a self-described white supremacist who carried out one of the deadliest attacks on Hispanic people in U.S. history.`\
+https://nytimes.com/2025/04/21/us/el-paso-walmart-shooting-sentencing.html
+
+**Francis transformed the inner workings of the church.**\
+`By Jason Horowitz and Jim Yardley`\
+https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/francis-church-inner-workings
+
 **Supreme Court Declines to Hear Case on Age Limits for Carrying Guns**\
 `An appeals court had struck down a Minnesota law that applied to 18- to 20-year olds, saying it violated a new Second Amendment test focusing on history.`\
 https://nytimes.com/2025/04/21/us/supreme-court-guns-age.html

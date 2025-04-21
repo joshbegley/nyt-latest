@@ -1,3 +1,11 @@
+**El Paso Gunman in Walmart Shooting Sentenced Again to Life in Prison**\
+`Both federal and state prosecutors took the death penalty out of consideration for a self-described white supremacist who carried out one of the deadliest attacks on Hispanic people in U.S. history.`\
+https://nytimes.com/2025/04/21/us/el-paso-walmart-shooting-sentencing.html
+
+**Francis transformed the inner workings of the church.**\
+`By Jason Horowitz and Jim Yardley`\
+https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/francis-church-inner-workings
+
 **Supreme Court Declines to Hear Case on Age Limits for Carrying Guns**\
 `An appeals court had struck down a Minnesota law that applied to 18- to 20-year olds, saying it violated a new Second Amendment test focusing on history.`\
 https://nytimes.com/2025/04/21/us/supreme-court-guns-age.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/21/espanol/mundo/papa-francisco-iglesia-apertura-div
 **How to Go Gray Confidently**\
 `The actress Andie MacDowell, the colorist Lena Ott and the model JoAni Johnson share their tips for embracing silver hair.`\
 https://nytimes.com/2025/04/21/t-magazine/going-gray-hair-guide.html
-
-**U.S. Catholics, and some Protestants, mourn a pope who ‘tried to understand.’**\
-`By Patricia Mazzei, Shayla Colon and Robert Chiarito`\
-https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/us-catholics-reaction-mourn
-
-**‘Conclave’ Offers a Glimpse Inside the Secretive Process of Choosing a Pope**\
-`Papal experts have lauded the Oscar-nominated film as one of the more accurate depictions of the closed-door Vatican gathering.`\
-https://nytimes.com/2025/04/21/world/europe/pope-francis-conclave-film.html
 
