@@ -1,3 +1,23 @@
+**Biles wins Laureus sportswoman of 2024, Madrid's team award, Yamal recognised**\
+`Mondo Duplantis was crowned sportsman of the year following his success at the Paris Olympics and setting multiple pole vault world records.`\
+https://nytimes.com/athletic/6296767/2025/04/21/simone-biles-award-duplantis-real-madrid-lamine-yamal/
+
+**Supreme Court Wrestles With Challenge to Affordable Care Act Over Free Preventive Care**\
+`The justices heard arguments in a constitutional challenge to a task force that decides what treatments are covered at no cost.`\
+https://nytimes.com/2025/04/21/us/politics/supreme-court-preventive-care.html
+
+**Blue Jackets make several changes to support staff, re-sign assistant coaches**\
+`Three staffers who had been with the team for at least 15 years each will not return, president and GM Don Waddell said.`\
+https://nytimes.com/athletic/6296948/2025/04/21/blue-jackets-coaches-staff/
+
+**Red Light: No playoff upsets ... yet**\
+`Welcome to Red Light, The Athletic's NHL newsletter.`\
+https://nytimes.com/athletic/6297059/2025/04/21/nhl-playoffs-womens-worlds-hockey-red-light/
+
+**Bucks' Lillard questionable for Game 2: How his return could impact series**\
+`All-Star guard has not played since late March when he was diagnosed with a deep vein thrombosis (DVT) blood clot in his right calf.`\
+https://nytimes.com/athletic/6296972/2025/04/21/bucks-damian-lillard-questionable-pacers-game-2/
+
 **It’s All Sunshine as the Vance Family Arrives in India**\
 `Those tariff clouds? Indians wish them away as they welcome Vice President JD Vance for a four-day visit.`\
 https://nytimes.com/2025/04/21/world/asia/trump-tariffs-vance-modi-india.html
