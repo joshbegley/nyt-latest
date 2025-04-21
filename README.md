@@ -1,3 +1,15 @@
+**'He’s a horse out there' – Tomas Hertl gives Golden Knights the playoff performance they envisioned**\
+`The power forward thrives in playoff hockey, where open ice and offensive opportunities are hard to come by.  `\
+https://nytimes.com/athletic/6295750/2025/04/21/golden-knights-wild-hertl/
+
+**It's now or never: Kings face best chance in years to finally beat Oilers**\
+`The best Kings team of recent years will face one of the weaker Oilers teams of recent years. If not now, when?`\
+https://nytimes.com/athletic/6295425/2025/04/21/kings-nhl-playoffs-oilers-first-round/
+
+**Tanner Scott working through tweaks during first month with Dodgers**\
+`Six of his 20 hardest-thrown fastballs this season came in his save on Sunday against the Rangers.`\
+https://nytimes.com/athletic/6295370/2025/04/21/dodgers-tanner-scott-closer-adjustments/
+
 **No Corrections: April 21, 2025**\
 `No corrections appeared in print on Monday, April 21, 2025.`\
 https://nytimes.com/2025/04/21/pageoneplus/no-corrections-april-21-2025.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/04/21/opinion/thepoint/how-francis-changed-the-sym
 **Cardinals' growing pains on display in 4-game sweep by Mets**\
 `Oli Marmol learned to keep his temper in check as he deals with players still learning the game's nuances.`\
 https://nytimes.com/athletic/6294421/2025/04/21/cardinals-oli-marmol-growing-pains/
-
-**‘We feel abandoned’: Mourners gather outside the Vatican.**\
-`A day after Pope Francis had blessed Catholics at Easter Mass, crowds gathered again in St. Peter’s Square in somber mood.`\
-https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/pope-francis-vatican-mourners
-
-**Trump Administration Live Updates: Democratic Lawmakers Demand Release of Maryland Man in Visit to El Salvador**\
-``\
-https://nytimes.com/live/2025/04/21/us/trump-administration-news
-
-**The Lyrids Meteor Shower Is Peaking. Here’s How to Watch.**\
-`Active since last week, the shower is formed from a comet’s debris and is forecast to produce the most fireballs overnight.`\
-https://nytimes.com/2025/04/21/science/lyrid-meteor-shower.html
 
