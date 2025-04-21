@@ -1,3 +1,7 @@
+**Remembering Francis’ visit to Indonesia and East Timor.**\
+`By Sui-Lee Wee`\
+https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/remembering-francis-visit-to-indonesia-and-east-timor
+
 **Giants relievers have been effective — Sunday's loss aside — and handled well thus far**\
 `The Giants' bullpen suffered a frustrating loss on Sunday, but they've been effective and their usage suggests they haven't been overworked.`\
 https://nytimes.com/athletic/6295492/2025/04/21/sf-giants-bullpen-usage/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/even-afte
 **Jelena Ostapenko stuns Aryna Sabalenka to win Tennis Grand Prix in Stuttgart**\
 `It is the Latvian's first clay-court title since she won the French Open in 2017.`\
 https://nytimes.com/athletic/6295962/2025/04/21/jelena-ostapenko-stuttgart-tennis-grand-prix-sabalenka-result-analysis/
-
-**College baseball week in review: Statement sweep by Vanderbilt, Miami on the move**\
-`Vanderbilt's pitching slows down powerful Georgia. Miami has won seven of its last nine ACC games and is back to .500 in the league. `\
-https://nytimes.com/athletic/6294446/2025/04/21/college-baseball-vanderbilt-miami-georgia/
 
