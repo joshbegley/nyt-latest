@@ -1,3 +1,7 @@
+**Battle of Ontario reignited as Leafs rout Senators: 5 takeaways from Game 1**\
+`Toronto Maple Leafs dominant in 6-2 win, take 1-0 series lead over the Ottawa Senators.`\
+https://nytimes.com/athletic/6295283/2025/04/20/leafs-senators-game-1-takeaways-nhl-playoffs/
+
 **El Salvador’s president proposes repatriating Venezuelans sent by Trump, but wants Venezuela to free prisoners in return.**\
 `On`\
 https://nytimes.com/2025/04/20/us/el-salvadors-president-proposes-repatriating-venezuelans-sent-by-trump-but-wants-venezuela-to-free-prisoners-in-return.html
