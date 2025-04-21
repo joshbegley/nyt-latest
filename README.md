@@ -1,3 +1,7 @@
+**GWS-the-studio-seth-rogen-evan-goldberg**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/the-studio-seth-rogen-evan-goldberg
+
 **GWS-shocking-tv-deaths-last-of-us**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/shocking-tv-deaths-last-of-us
@@ -30,11 +34,7 @@ https://nytimes.com/live/2025/04/21/espanol/muere-papa-francisco/papa-francisco-
 `The Eagles now have four of their starting five linemen on long-term extensions.`\
 https://nytimes.com/athletic/6296398/2025/04/21/eagles-cam-jurgens-extension/
 
-**Boston Marathon: Marcel Hug claims third straight win in men's wheelchair division**\
+**Boston Marathon: John Korir wins men's elite division with**\
 `Hug won the marathon for a third consecutive time while Scaroni snagged her second career victory in Boston.`\
 https://nytimes.com/athletic/6296201/2025/04/21/boston-marathon-results-winners-2025/
-
-**U.S. Asks Judge to Break Up Google**\
-`The Justice Department said that the best way to address the tech company’s monopoly in internet search was to force it to sell Chrome, among other measures.`\
-https://nytimes.com/2025/04/21/technology/google-search-remedies-hearing.html
 

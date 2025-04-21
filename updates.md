@@ -1,3 +1,11 @@
+**GWS-shocking-tv-deaths-last-of-us**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/shocking-tv-deaths-last-of-us
+
+**In Congestion Pricing Fight, Trump Administration Ratchets Up the Threats**\
+`The administration has demanded the tolling program end by late May, arguing that it unfairly burdens working class commuters.`\
+https://nytimes.com/2025/04/21/nyregion/trump-nyc-congestion-pricing-threats.html
+
 **What will the Flyers' offseason look like? Here is Daniel Briere's to-do list**\
 `Philadelphia needs a coach, of course, but there also are plenty of interesting roster decisions.`\
 https://nytimes.com/athletic/6296424/2025/04/21/flyers-offseason-coach-roster/
