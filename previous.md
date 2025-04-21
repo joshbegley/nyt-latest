@@ -1,3 +1,19 @@
+**Vardy apologises to Leicester fans for 's*** show' relegation season**\
+`The club's drop from the Premier League back to Championship was confirmed on Sunday after a 1-0 defeat at home to Liverpool.`\
+https://nytimes.com/athletic/6296437/2025/04/21/jamie-vardy-leicester-relegation/
+
+**Trump Tells Hegseth He Stands Behind Him Despite 2nd Signal Chat Episode**\
+`Defense Secretary Pete Hegseth called President Trump hours after The New York Times reported that Mr. Hegseth had shared details about a military strike in a group chat.`\
+https://nytimes.com/2025/04/21/us/politics/trump-hegseth-signal-chat-leak.html
+
+**En su discurso final, Francisco se centró en un tema importante de su papado: los migrantes**\
+`“Cuánto desprecio se tiene a veces hacia los más débiles, los marginados y los migrantes”, escribió Francisco en un discurso papal del Domingo de Resurrección.`\
+https://nytimes.com/live/2025/04/21/espanol/muere-papa-francisco/papa-francisco-discurso-final-migrantes
+
+**Eagles, Cam Jurgens agree to four-year, $68 million extension**\
+`Drafted to be Jason Kelce's successor, the Eagles now have four of their starting five linemen on long-term extensions.`\
+https://nytimes.com/athletic/6296398/2025/04/21/eagles-cam-jurgens-extension/
+
 **Boston Marathon: Marcel Hug claims third straight win in men's wheelchair division**\
 `Hug won the marathon for a third consecutive time while Scaroni snagged her second career victory in Boston.`\
 https://nytimes.com/athletic/6296201/2025/04/21/boston-marathon-results-winners-2025/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/04/21/dining/skillet-gnocchi-asparagus-quick-dinner.htm
 **Do You Know These Books That Became Disaster Movies?**\
 `Many blockbuster films were inspired by literature and this short quiz tests your knowledge about five of them.`\
 https://nytimes.com/interactive/2025/04/21/books/review/disaster-book-movies.html
-
-**Who Will Be the Next Pope? Here Are Some Possible Contenders.**\
-`Experts say there isn’t a single front-runner, but several names have been floated as indications of which direction the Roman Catholic Church might take.`\
-https://nytimes.com/2025/04/21/world/europe/next-pope-francis-candidates.html
-
-**The Bounce: The NBA postseason has arrived, so it's time for the Playoff Panic Meter!**\
-`Every Game 1 for the first round is in the books, and it’s never too early to panic. Which team should be most worried so far?`\
-https://nytimes.com/athletic/6296366/2025/04/21/nba-playoffs-lakers-timberwolves-luka-doncic-lebron-james-anthony-edwards-nba-the-bounce/
-
-**How Francis, a Progressive Pope, Catalyzed the Catholic Right in the U.S.**\
-`His critics were fellow clergy as well as elected officials in the ascendant wing of the American Catholic political realm.`\
-https://nytimes.com/2025/04/21/us/pope-francis-catholic-right.html
-
-**Leverkusen expect Alonso 'decision to be made in three to four weeks'**\
-`The 43-year-old Spaniard is favoured by Real Madrid to take over from Carlo Ancelotti at the Bernabeu.`\
-https://nytimes.com/athletic/6296267/2025/04/21/xabi-alonso-leverkusen-real-madrid-future/
 
