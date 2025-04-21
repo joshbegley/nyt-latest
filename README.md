@@ -4,7 +4,7 @@ https://nytimes.com/athletic/6295292/2025/04/20/magic-celtics-game-1-nba-playoff
 
 **El Salvador’s president proposes repatriating Venezuelans sent by Trump, but wants Venezuela to free prisoners in return.**\
 `On`\
-https://nytimes.com/live/2025/04/20/us/trump-news/el-salvadors-president-proposes-repatriating-venezuelans-sent-by-trump-but-wants-venezuela-to-free-prisoners-in-return
+https://nytimes.com/2025/04/20/us/el-salvadors-president-proposes-repatriating-venezuelans-sent-by-trump-but-wants-venezuela-to-free-prisoners-in-return.html
 
 **Trump Raised $239 Million for Inauguration, More Than Doubling His Own Record**\
 `The staggering amount, disclosed in a filing with the Federal Election Commission, was driven by corporate America’s eagerness to win the president’s favor.`\
