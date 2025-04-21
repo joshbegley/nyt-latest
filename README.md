@@ -1,3 +1,11 @@
+**Oscars OK the Use of A.I., With Caveats**\
+`The Academy of Motion Picture Arts and Sciences said using the technology wouldn’t disqualify a movie. But it also said that it favored films with more human involvement.`\
+https://nytimes.com/2025/04/21/business/oscars-rules-ai.html
+
+**Applications Open! The New York Times Illustration Portfolio Review**\
+`We’re inviting illustrators from around the world to share their work with art directors from The New York Times. Apply by June 1, 2025.`\
+https://nytimes.com/2025/04/21/arts/illustration-portfolio-review2025.html
+
 **How to fix Tanner Houck, Jung Hoo Lee's positive plate adjustments and more**\
 `Andrea Arcadipane dives deep into the pitch mix of a struggling Tanner Houck and also notes positive changes made by three breakout hitters.`\
 https://nytimes.com/athletic/6296463/2025/04/21/fantasy-baseball-scouting-notebook-tanner-houck/
@@ -29,12 +37,4 @@ https://nytimes.com/newsgraphics/card-story/brazil-jaguars-pantanal-tours
 **Inside Leeds United's promotion: Play-off wake, captain Ampadu's impact and 49ers' Farke faith**\
 `Leeds have managed to win promotion to the Premier League, ending a two-year spell in the Championship`\
 https://nytimes.com/athletic/6290234/2025/04/21/leeds-united-promotion-promoted-premier-league-inside/
-
-**Burnley promoted to Premier League with victory vs Sheffield United**\
-`The result moved Burnley an insurmountable eight points clear of third-place Sheffield United with two matches remaining.`\
-https://nytimes.com/athletic/6278113/2025/04/21/burnley-promoted-premier-league-return/
-
-**El último día del papa Francisco**\
-`A pesar de haber estado a punto de morir dos veces por crisis respiratorias a principios de este año, el pontífice se había mantenido sorprendentemente activo.`\
-https://nytimes.com/2025/04/21/espanol/mundo/papa-francisco-ultimo-dia.html
 
