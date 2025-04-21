@@ -1,3 +1,7 @@
+**What’s Involved in a Papal Funeral?**\
+`The timing of Pope Francis’ funeral, which will span several days, has yet to be announced.`\
+https://nytimes.com/2025/04/21/world/europe/pope-francis-funeral-arrangements.html
+
 **World Leaders Praise Pope Francis and His Legacy**\
 `Global leaders offered condolences to the world’s Catholics and praised the pontiff’s commitment to the poor and marginalized.`\
 https://nytimes.com/2025/04/21/world/europe/pope-francis-death-reactions.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todaysinyt/2025/04/21/todays-new-york-times-internatio
 **A Soccer Field Can Be Sacred**\
 `For millions of people, it represents familiarity, comfort and belonging.`\
 https://nytimes.com/2025/04/21/style/a-soccer-field-can-be-sacred.html
-
-**Francis had made several public appearances in the past week.**\
-`By Elisabetta Povoledo`\
-https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/francis-had-made-several-public-appearances-in-the-past-week
 
