@@ -1,3 +1,11 @@
+**Pope Francis Was a Champion, if an Imperfect One, for L.G.B.T.Q. People**\
+`He helped L.G.B.T.Q. Catholics feel more at home in their church. And that also meant that their families and friends also felt more at home.`\
+https://nytimes.com/2025/04/21/opinion/pope-francis-lgbtq-gay-people.html
+
+**Bucks star Damian Lillard listed as questionable for Game 2 vs. Pacers**\
+`All-Star guard has not played since late March when he was diagnosed with a deep vein thrombosis (DVT) blood clot in his right calf.`\
+https://nytimes.com/athletic/6296972/2025/04/21/bucks-damian-lillard-questionable-pacers-game-2/
+
 **For a Times Reporter Who Covered Him, Francis Was Always a Surprise**\
 `An unlikely choice to be pope championed causes and challenged orthodoxy, keeping allies and critics alike on their toes.`\
 https://nytimes.com/2025/04/21/world/europe/for-a-times-reporter-who-covered-him-pope-francis-was-always-a-surprise.html
@@ -23,18 +31,10 @@ https://nytimes.com/athletic/6296711/2025/04/21/giants-brewers-mlb-how-to-watch/
 https://nytimes.com/live/2025/04/21/us/trump-administration-news/adam-schiff-asks-the-national-archives-to-review-the-trump-administrations-use-of-signal
 
 **Lightning ride swagger, star power into Panthers rematch**\
-`Quietly, the Tampa Bay Lightning might be back, and that might be trouble for the rest of the NHL. `\
+`Quietly, Tampa Bay might be back, and that might be trouble for the rest of the NHL. `\
 https://nytimes.com/athletic/6296689/2025/04/21/lightning-panthers-nhl-playoffs/
 
 **Oscars OK the Use of A.I., With Caveats**\
 `The Academy of Motion Picture Arts and Sciences said using the technology wouldn’t disqualify a movie. But it also said that it favored films with more human involvement.`\
 https://nytimes.com/2025/04/21/business/oscars-rules-ai.html
-
-**Applications Open! The New York Times Illustration Portfolio Review**\
-`We’re inviting illustrators from around the world to share their work with art directors from The New York Times. Apply by June 1, 2025.`\
-https://nytimes.com/2025/04/21/arts/illustration-portfolio-review2025.html
-
-**How to fix Tanner Houck, Jung Hoo Lee's positive plate adjustments and more**\
-`Andrea Arcadipane dives deep into the pitch mix of a struggling Tanner Houck and also notes positive changes made by three breakout hitters.`\
-https://nytimes.com/athletic/6296463/2025/04/21/fantasy-baseball-scouting-notebook-tanner-houck/
 

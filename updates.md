@@ -1,3 +1,15 @@
+**Pope Francis Was a Champion, if an Imperfect One, for L.G.B.T.Q. People**\
+`He helped L.G.B.T.Q. Catholics feel more at home in their church. And that also meant that their families and friends also felt more at home.`\
+https://nytimes.com/2025/04/21/opinion/pope-francis-lgbtq-gay-people.html
+
+**Bucks star Damian Lillard listed as questionable for Game 2 vs. Pacers**\
+`All-Star guard has not played since late March when he was diagnosed with a deep vein thrombosis (DVT) blood clot in his right calf.`\
+https://nytimes.com/athletic/6296972/2025/04/21/bucks-damian-lillard-questionable-pacers-game-2/
+
+**Lightning ride swagger, star power into Panthers rematch**\
+`Quietly, Tampa Bay might be back, and that might be trouble for the rest of the NHL. `\
+https://nytimes.com/athletic/6296689/2025/04/21/lightning-panthers-nhl-playoffs/
+
 **For a Times Reporter Who Covered Him, Francis Was Always a Surprise**\
 `An unlikely choice to be pope championed causes and challenged orthodoxy, keeping allies and critics alike on their toes.`\
 https://nytimes.com/2025/04/21/world/europe/for-a-times-reporter-who-covered-him-pope-francis-was-always-a-surprise.html

@@ -1,3 +1,7 @@
+**It’s All Sunshine as the Vance Family Arrives in India**\
+`Those tariff clouds? Indians wish them away as they welcome Vice President JD Vance for a four-day visit.`\
+https://nytimes.com/2025/04/21/world/asia/trump-tariffs-vance-modi-india.html
+
 **Pope Francis Was a Champion, if an Imperfect One, for L.G.B.T.Q. People**\
 `He helped L.G.B.T.Q. Catholics feel more at home in their church. And that also meant that their families and friends also felt more at home.`\
 https://nytimes.com/2025/04/21/opinion/pope-francis-lgbtq-gay-people.html
@@ -8,7 +12,7 @@ https://nytimes.com/athletic/6296972/2025/04/21/bucks-damian-lillard-questionabl
 
 **For a Times Reporter Who Covered Him, Francis Was Always a Surprise**\
 `An unlikely choice to be pope championed causes and challenged orthodoxy, keeping allies and critics alike on their toes.`\
-https://nytimes.com/2025/04/21/world/europe/for-a-times-reporter-who-covered-him-pope-francis-was-always-a-surprise.html
+https://nytimes.com/2025/04/21/world/europe/pope-francis-new-york-times.html
 
 **ICE Can’t Enter Rikers for Now, Judge Rules**\
 `After meeting with President Trump’s border czar, Mayor Eric Adams supported allowing U.S. immigration authorities to reopen offices at Rikers Island.`\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/04/21/us/trump-administration-news/adam-schiff-ask
 **Lightning ride swagger, star power into Panthers rematch**\
 `Quietly, Tampa Bay might be back, and that might be trouble for the rest of the NHL. `\
 https://nytimes.com/athletic/6296689/2025/04/21/lightning-panthers-nhl-playoffs/
-
-**Oscars OK the Use of A.I., With Caveats**\
-`The Academy of Motion Picture Arts and Sciences said using the technology wouldn’t disqualify a movie. But it also said that it favored films with more human involvement.`\
-https://nytimes.com/2025/04/21/business/oscars-rules-ai.html
 
