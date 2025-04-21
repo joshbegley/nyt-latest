@@ -1,3 +1,11 @@
+**How Pope Francis Helped Inspire the Global Movement Against Climate Change**\
+`Francis framed climate change as an urgent spiritual issue and helped push the world to take action.`\
+https://nytimes.com/2025/04/21/climate/pope-francis-climate-change.html
+
+**Requiems and Tears for Pope Francis**\
+`An initial sampling of reaction to the death of Pope Francis. Also: A books case before the Supreme Court; protecting our democracy.`\
+https://nytimes.com/2025/04/21/opinion/pope-francis-dead.html
+
 **Kristi Noem’s Bag, With Security Badge and $3,000, Is Stolen**\
 `The homeland security secretary was dining at a Washington, D.C., restaurant. She also lost her passport and keys.`\
 https://nytimes.com/2025/04/21/us/politics/kristi-noem-purse-stolen.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/21/us/supreme-court-guns-age.html
 **Hawks fire general manager Landry Fields, Onsi Saleh to assume GM duties**\
 `The team also announced it will begin a search for a new president of basketball operations.`\
 https://nytimes.com/athletic/6296613/2025/04/21/hawks-fire-general-manager-landry-fields-onsi-saleh/
-
-**What does UK Supreme Court's ruling on legal definition of a woman mean for sport?**\
-`In a historic ruling last week, judges at the UK’s highest court ruled that the legal definition of a woman is based on biological sex`\
-https://nytimes.com/athletic/6287102/2025/04/21/uk-supreme-court-ruling-legal-definition-woman/
-
-**Joey Aguilar set to enter portal following Nico Iamaleava's arrival at UCLA: Source**\
-`Could the former App State starter end up at Tennessee? What are some other potential fits?`\
-https://nytimes.com/athletic/6296637/2025/04/21/joey-aguilar-nico-iamaleava-ucla-qb/
 

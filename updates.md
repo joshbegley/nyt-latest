@@ -1,3 +1,11 @@
+**How Pope Francis Helped Inspire the Global Movement Against Climate Change**\
+`Francis framed climate change as an urgent spiritual issue and helped push the world to take action.`\
+https://nytimes.com/2025/04/21/climate/pope-francis-climate-change.html
+
+**Requiems and Tears for Pope Francis**\
+`An initial sampling of reaction to the death of Pope Francis. Also: A books case before the Supreme Court; protecting our democracy.`\
+https://nytimes.com/2025/04/21/opinion/pope-francis-dead.html
+
 **Kristi Noem’s Bag, With Security Badge and $3,000, Is Stolen**\
 `The homeland security secretary was dining at a Washington, D.C., restaurant. She also lost her passport and keys.`\
 https://nytimes.com/2025/04/21/us/politics/kristi-noem-purse-stolen.html
