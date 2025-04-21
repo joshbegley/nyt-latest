@@ -1,3 +1,11 @@
+**Lowetide: Will Kris Knoblauch continue to find answers in the playoffs?**\
+`As the postseason begins, there is much worry about the Oilers' ability to make a deep run.`\
+https://nytimes.com/athletic/6293014/2025/04/21/oilers-coach-kris-knoblauch-nhl-playoffs/
+
+**Francis and the End of the Imperial Papacy**\
+`Papal weakness has also opened up new possibilities for Christian and Catholic witness.`\
+https://nytimes.com/2025/04/21/opinion/pope-francis-catholic-church-weakness.html
+
 **Francis made climate change a central concern of his papacy.**\
 `By Somini Sengupta`\
 https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/francis-made-climate-change-a-central-concern-of-his-papacy

@@ -1,3 +1,11 @@
+**Lowetide: Will Kris Knoblauch continue to find answers in the playoffs?**\
+`As the postseason begins, there is much worry about the Oilers' ability to make a deep run.`\
+https://nytimes.com/athletic/6293014/2025/04/21/oilers-coach-kris-knoblauch-nhl-playoffs/
+
+**Francis and the End of the Imperial Papacy**\
+`Papal weakness has also opened up new possibilities for Christian and Catholic witness.`\
+https://nytimes.com/2025/04/21/opinion/pope-francis-catholic-church-weakness.html
+
 **Francis made climate change a central concern of his papacy.**\
 `By Somini Sengupta`\
 https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/francis-made-climate-change-a-central-concern-of-his-papacy
@@ -29,12 +37,4 @@ https://nytimes.com/newsgraphics/card-story/romanian-deadlift-technique
 **Remembering Francis’ visit to Indonesia and East Timor.**\
 `By Sui-Lee Wee`\
 https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/remembering-francis-visit-to-indonesia-and-east-timor
-
-**Giants relievers have been effective — Sunday's loss aside — and handled well thus far**\
-`The bullpen suffered a frustrating loss on Sunday, but they've been effective and their usage suggests they haven't been overworked.`\
-https://nytimes.com/athletic/6295492/2025/04/21/sf-giants-bullpen-usage/
-
-**The Cardinals Must Now Decide on Francis’ Legacy**\
-`Cardinals prepare to gather in Rome for the conclave to decide on Francis’ successor and the direction they want the church to take.`\
-https://nytimes.com/2025/04/21/opinion/pope-francis-successor-cardinals-conclave.html
 
