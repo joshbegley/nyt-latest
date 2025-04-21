@@ -1,3 +1,7 @@
+**Herbert J. Gans, 97, Dies; Upended Myths on Urban and Suburban Life**\
+`A leading sociologist, he explored American society up close — living in a Levittown at one point — to gain insight into issues of race, class, the media and even the Yankees.`\
+https://nytimes.com/2025/04/21/books/herbert-j-gans-dead.html
+
 **In New Trial, Palin Says New York Times Editorial Damaged Her Reputation**\
 `Closing arguments in the libel case are expected on Tuesday, after which the nine jurors will begin deliberations.`\
 https://nytimes.com/2025/04/21/business/media/sarah-palin-new-york-times-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6297271/2025/04/21/rangers-accountability-exit-inte
 **What Do You Want to Know About the Pope?**\
 `Send us your questions about the death of Pope Francis. We’ll find Times reporters to answer them.`\
 https://nytimes.com/2025/04/21/briefing/what-do-you-want-to-know-about-the-pope.html
-
-**Des Linden gives Boston Marathon a surprise — and a fond farewell worthy of a 'shoey'**\
-`Linden, who in 2018 became the first U.S. women's runner to win at Boston in 33 years, announced she is stepping away before Monday's race.`\
-https://nytimes.com/athletic/6297280/2025/04/21/boston-marathon-des-linden-women-column/
 

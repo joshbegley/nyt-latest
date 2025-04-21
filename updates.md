@@ -1,3 +1,7 @@
+**Herbert J. Gans, 97, Dies; Upended Myths on Urban and Suburban Life**\
+`A leading sociologist, he explored American society up close — living in a Levittown at one point — to gain insight into issues of race, class, the media and even the Yankees.`\
+https://nytimes.com/2025/04/21/books/herbert-j-gans-dead.html
+
 **In New Trial, Palin Says New York Times Editorial Damaged Her Reputation**\
 `Closing arguments in the libel case are expected on Tuesday, after which the nine jurors will begin deliberations.`\
 https://nytimes.com/2025/04/21/business/media/sarah-palin-new-york-times-trial.html
