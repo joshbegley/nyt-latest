@@ -1,3 +1,7 @@
+**Battle of Ontario reignited as Leafs rout Senators: 5 takeaways from Game 1**\
+`Toronto Maple Leafs dominant in 6-2 win, take 1-0 series lead over the Ottawa Senators.`\
+https://nytimes.com/athletic/6295283/2025/04/20/leafs-senators-game-1-takeaways-nhl-playoffs/
+
 **'We’ve got to do a better job': Magic's role players didn't do enough in Game 1**\
 `Paolo Banchero and Franz Wagner accounted for 59 points Sunday. The rest of the Magic scored 27.`\
 https://nytimes.com/athletic/6295292/2025/04/20/magic-celtics-game-1-nba-playoffs-orlando-role-players/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6295022/2025/04/20/grizzlies-loss-game-1-thunder-nb
 **Padres’ Luis Arraez stable after leaving game on cart post-collision**\
 `Dubón’s shoulder appeared to make contact with the head of Arraez, who was motionless on the field as trainers rushed to his aid.`\
 https://nytimes.com/athletic/6295133/2025/04/20/padres-luis-arraez-collision-mauricio-dubon/
-
-**Liam Hendriks is back in the bigs after 681 days: 'It's been a long and arduous journey'**\
-`Hendriks didn't have the results he wanted in his first MLB game since June 2023, but that he was back at all was worth celebrating.`\
-https://nytimes.com/athletic/6294984/2025/04/20/liam-hendriks-red-sox-return/
 
