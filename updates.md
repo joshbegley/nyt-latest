@@ -1,3 +1,7 @@
+**The Bernabeu booed Kylian Mbappe but embraced Real Madrid after their tough week**\
+`Real Madrid managed a last-minute victory against Athletic Bilbao on Sunday evening`\
+https://nytimes.com/athletic/6295379/2025/04/21/real-madrid-bernabeu-kylian-mbappe-boo/
+
 **Word of the Day: quasi**\
 `This word has appeared in 324 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/04/21/learning/word-of-the-day-quasi.html
