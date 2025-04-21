@@ -1,3 +1,7 @@
+**El Salvador’s president proposes repatriating Venezuelans sent by Trump, but wants Venezuela to free prisoners in return.**\
+`On`\
+https://nytimes.com/live/2025/04/20/us/trump-news/el-salvadors-president-proposes-repatriating-venezuelans-sent-by-trump-but-wants-venezuela-to-free-prisoners-in-return
+
 **Thunder show relentlessness in near-historic Game 1 blowout**\
 `If there were questions whether OKC's dominant regular season would translate to the postseason, Game 1 was its official notice.`\
 https://nytimes.com/athletic/6295223/2025/04/20/thunder-near-historic-game-1-blowout-grizzlies/
