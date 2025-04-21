@@ -1,3 +1,7 @@
+**A Soccer Field Can Be Sacred**\
+`For millions of people, it represents familiarity, comfort and belonging.`\
+https://nytimes.com/2025/04/21/style/a-soccer-field-can-be-sacred.html
+
 **Francis had made several public appearances in the past week.**\
 `By Elisabetta Povoledo`\
 https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/francis-had-made-several-public-appearances-in-the-past-week
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/21/style/spring-business-casual-clothing.html
 **Welcome to Trump’s Mafia State**\
 `“Nice university you got there. Shame if something happened to it.”`\
 https://nytimes.com/2025/04/21/opinion/trump-universities-mafia-state.html
-
-**Larry David: My Dinner With Adolf**\
-`When a private meeting goes unexpectedly.`\
-https://nytimes.com/2025/04/21/opinion/larry-david-hitler-dinner.html
 

@@ -1,3 +1,11 @@
+**Francis had made several public appearances in the past week.**\
+`By Elisabetta Povoledo`\
+https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/francis-had-made-several-public-appearances-in-the-past-week
+
+**Pope Francis’ Calling Came as a Boy in Argentina, and It Led Him to the Vatican**\
+`Francis was a deeply religious child in Buenos Aires. The first pontiff from Latin America tried to create a more welcoming church.`\
+https://nytimes.com/2025/04/21/world/europe/pope-francis-life-timeline.html
+
 **Patriots 7-round mock draft: Can they fix the offensive line and help the pass rush?**\
 `If neither Travis Hunter nor Abdul Carter is available at No. 4, we predict the Patriots will begin to bolster their offensive line.`\
 https://nytimes.com/athletic/6287754/2025/04/21/patriots-nfl-mock-draft-2025-will-campbell/
