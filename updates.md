@@ -1,3 +1,7 @@
+**Bukele Proposes Deal That Would Free Deported Venezuelans**\
+`President Nayib Bukele said he would free the Venezuelans that the Trump administration deported to El Salvador if Venezuela releases the same number of prisoners, including members of the opposition.`\
+https://nytimes.com/2025/04/20/us/venezuela-bukele-maduro-prisoners-deported-immigration.html
+
 **Battle of Ontario reignited as Leafs rout Senators: 5 takeaways from Game 1**\
 `Toronto Maple Leafs dominant in 6-2 win, take 1-0 series lead over the Ottawa Senators.`\
 https://nytimes.com/athletic/6295283/2025/04/20/leafs-senators-game-1-takeaways-nhl-playoffs/
