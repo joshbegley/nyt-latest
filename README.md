@@ -1,3 +1,7 @@
+**‘We feel abandoned’: Mourners gather outside the Vatican.**\
+`A day after Pope Francis had blessed Catholics at Easter Mass, crowds gathered again in St. Peter’s Square in somber mood.`\
+https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/pope-francis-vatican-mourners
+
 **Trump Administration Live Updates: Democratic Lawmakers Demand Release of Maryland Man in Visit to El Salvador**\
 ``\
 https://nytimes.com/live/2025/04/21/us/trump-administration-news
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6294160/2025/04/21/nascar-homestead-miami-speedway-
 **Film breakdown: Bucks need 'urgency' on defense after multiple lapses against Pacers**\
 `While Doc Rivers lamented the Bucks' offense in their series opener, they weren't much better on defense. Let's look at why.`\
 https://nytimes.com/athletic/6294020/2025/04/21/bucks-pacers-defense-nba-playoffs-game-1/
-
-**Breaking down Big Ten QB outlooks, from Julian Sayin to Nico Iamaleava**\
-`From potential Heisman Trophy contenders to youthful prospects, there is no shortage of intrigue among Big Ten quarterbacks.`\
-https://nytimes.com/athletic/6294275/2025/04/21/big-ten-quarterbacks-nico-iamaleava-julian-sayin/
 
