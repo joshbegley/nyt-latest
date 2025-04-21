@@ -1,3 +1,11 @@
+**The Legacy of Pope Francis**\
+`Pope Francis passed away after leading the Roman Catholic Church for 12 years. His supporters remembered the first Latin American pontiff for his inclusive leadership style, while conservative Catholics accused him of diluting church teachings.`\
+https://nytimes.com/video/world/europe/100000009997580/pope-francis-obituary.html
+
+**‘I love opposition’: How Francis opened space for debate within the church.**\
+`By Jason Horowitz and Jim Yardley`\
+https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/i-love-opposition-how-francis-opened-space-for-debate-within-the-church
+
 **Bears mock draft 3.0: Offensive tackle, tight end, running back or edge at No. 10?**\
 `Our final Bears mock draft assumes that Will Campbell, Ashton Jeanty and Mason Graham will all be gone before the 10th pick.`\
 https://nytimes.com/athletic/6287127/2025/04/21/bears-2025-nfl-mock-draft/
