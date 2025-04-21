@@ -1,3 +1,11 @@
+**Pope Francis’ Life**\
+`Selected photographs from the life and papacy of Pope Francis.`\
+https://nytimes.com/2025/04/21/world/europe/pope-francis-life-photos.html
+
+**Francis Worked to Make Catholic Church More Inclusive**\
+`Pope Francis sought to make the church more welcoming, global and collegial, after his predecessors adopted more doctrinaire and traditional approaches.`\
+https://nytimes.com/2025/04/21/world/europe/pope-francis-catholic-church-legacy.html
+
 **Here’s the latest.**\
 `By Jason Horowitz`\
 https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/heres-the-latest

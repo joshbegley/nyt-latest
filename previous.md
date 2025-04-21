@@ -1,3 +1,11 @@
+**Pope Francis’ Life**\
+`Selected photographs from the life and papacy of Pope Francis.`\
+https://nytimes.com/2025/04/21/world/europe/pope-francis-life-photos.html
+
+**Francis Worked to Make Catholic Church More Inclusive**\
+`Pope Francis sought to make the church more welcoming, global and collegial, after his predecessors adopted more doctrinaire and traditional approaches.`\
+https://nytimes.com/2025/04/21/world/europe/pope-francis-catholic-church-legacy.html
+
 **Here’s the latest.**\
 `By Jason Horowitz`\
 https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/heres-the-latest
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/21/technology/google-search-antitrust-hearing-breaku
 **Jacqui Oatley made Match of the Day history but the experience was 'isolating'**\
 `Jacqui Oatley recalls the stomach-drop moment when she realised that she had, in fact, become the story`\
 https://nytimes.com/athletic/6294245/2025/04/21/jacqui-oatley-match-of-the-day-debut-2007/
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/04/21/crosswords/spelling-bee-forum.html
-
-**What to Know About Broker Fees in New York City**\
-`A new law that will require many landlords, and not renters, to cover broker fees is set to take effect in less than two months. It may change how New Yorkers move.`\
-https://nytimes.com/2025/04/21/nyregion/nyc-broker-fees-law.html
 
