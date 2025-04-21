@@ -1,3 +1,7 @@
+**Braves takeaways: Alex Verdugo's instant impact, team's turnaround, Drake Baldwin to stay?**\
+`Verdugo provided a spark atop the order in his first three games with the Braves: "He likes being in that leadoff spot and jumped right in."`\
+https://nytimes.com/athletic/6295176/2025/04/20/braves-alex-verdugo-drake-baldwin/
+
 **The Ten Commandments**\
 `Stories of people struggling to follow those old, primal rules of life.`\
 https://nytimes.com/2025/04/20/podcasts/the-ten-commandments-this-american-life-nyt-audio.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6294904/2025/04/20/nba-awards-finalists-mvp-sga-jok
 **A rough weekend raises familiar concerns tor the Phillies' bullpen**\
 `The Phillies would be in great shape if everyone could be like José Alvarado right now.`\
 https://nytimes.com/athletic/6295030/2025/04/20/phillies-bullpen-rough-weekend-concerns/
-
-**Syria’s Easter Celebrations Pass Peacefully, in Early Test of New Government**\
-`At least in the capital, Damascus, the Christian holiday festivities were protected and joyfully observed. Religious minorities are still wary, however, about the new leaders’ commitment to inclusivity.`\
-https://nytimes.com/2025/04/20/world/middleeast/syria-easter.html
 

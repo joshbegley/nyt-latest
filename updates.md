@@ -1,3 +1,7 @@
+**Braves takeaways: Alex Verdugo's instant impact, team's turnaround, Drake Baldwin to stay?**\
+`Verdugo provided a spark atop the order in his first three games with the Braves: "He likes being in that leadoff spot and jumped right in."`\
+https://nytimes.com/athletic/6295176/2025/04/20/braves-alex-verdugo-drake-baldwin/
+
 **The Ten Commandments**\
 `Stories of people struggling to follow those old, primal rules of life.`\
 https://nytimes.com/2025/04/20/podcasts/the-ten-commandments-this-american-life-nyt-audio.html

@@ -1,3 +1,7 @@
+**Jameson Taillon is feeling locked in physically, and his four-seamer proves it**\
+`After a dreadful 2023 season, Taillon adjusted, and results were better in 2024, but in 2025, his four-seamer has been a revelation.`\
+https://nytimes.com/athletic/6295180/2025/04/20/cubs-jameson-taillon-fastball/
+
 **Braves takeaways: Alex Verdugo's instant impact, team's turnaround, Drake Baldwin to stay?**\
 `Verdugo provided a spark atop the order in his first three games with the Braves: "He likes being in that leadoff spot and jumped right in."`\
 https://nytimes.com/athletic/6295176/2025/04/20/braves-alex-verdugo-drake-baldwin/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6294946/2025/04/20/mets-brandon-nimmo-interview-fir
 **NBA awards finalists: Shai Gilgeous-Alexander, Nikola Jokić up for MVP**\
 `Jokić is the reigning MVP who’s won the award three times, while Gilgeous-Alexander was the NBA's top scorer this season.`\
 https://nytimes.com/athletic/6294904/2025/04/20/nba-awards-finalists-mvp-sga-jokic/
-
-**A rough weekend raises familiar concerns tor the Phillies' bullpen**\
-`The Phillies would be in great shape if everyone could be like José Alvarado right now.`\
-https://nytimes.com/athletic/6295030/2025/04/20/phillies-bullpen-rough-weekend-concerns/
 
