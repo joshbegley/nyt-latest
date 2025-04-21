@@ -1,3 +1,7 @@
+**How Francis Changed the Symbols of a Pope’s Funeral**\
+`In life and death, Francis wanted the symbols of his papacy to be humbler.`\
+https://nytimes.com/live/2025/04/21/opinion/thepoint/how-francis-changed-the-symbols-of-a-popes-funeral
+
 **Cardinals' growing pains on display in 4-game sweep by Mets**\
 `Oli Marmol learned to keep his temper in check as he deals with players still learning the game's nuances.`\
 https://nytimes.com/athletic/6294421/2025/04/21/cardinals-oli-marmol-growing-pains/

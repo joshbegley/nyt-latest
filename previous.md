@@ -1,3 +1,7 @@
+**How Francis Changed the Symbols of a Pope’s Funeral**\
+`In life and death, Francis wanted the symbols of his papacy to be humbler.`\
+https://nytimes.com/live/2025/04/21/opinion/thepoint/how-francis-changed-the-symbols-of-a-popes-funeral
+
 **Cardinals' growing pains on display in 4-game sweep by Mets**\
 `Oli Marmol learned to keep his temper in check as he deals with players still learning the game's nuances.`\
 https://nytimes.com/athletic/6294421/2025/04/21/cardinals-oli-marmol-growing-pains/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6294403/2025/04/21/red-wings-offseason-priorities-p
 **Canadiens playoff notebook: Deja vu for Caps, Anderson beast mode to come, Slafkovský too?**\
 `In this first edition of the Canadiens playoff notebook, Josh Anderson as an example for Juraj Slafkovský to follow and much more.`\
 https://nytimes.com/athletic/6295581/2025/04/21/canadiens-nhl-playoffs-anderson-slafkovsky-capitals/
-
-**Homestead-Miami Speedway expected to host NASCAR championship race in 2026: Sources**\
-`Another track will be selected to host in 2027, beginning a rotation in which a different venue is chosen each year, per multiple sources.`\
-https://nytimes.com/athletic/6294160/2025/04/21/nascar-homestead-miami-speedway-championship-race-2026/
 
