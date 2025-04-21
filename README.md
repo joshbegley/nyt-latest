@@ -1,3 +1,7 @@
+**G.O.P. Leader Asks Attorney General Pam Bondi to Prosecute Andrew Cuomo**\
+`A Republican House chairman renewed a request to the Justice Department to prosecute Mr. Cuomo for allegedly making false statements to Congress.`\
+https://nytimes.com/2025/04/21/nyregion/cuomo-criminal-referral-covid.html
+
 **White House Birthrate Boosters See an Ally in Musk**\
 `Elon Musk talks a lot about the birthrate. The Trump administration is looking for ways to raise it.`\
 https://nytimes.com/2025/04/21/us/politics/elon-musk-trump-birthrate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/21/books/herbert-j-gans-dead.html
 **In New Trial, Palin Says New York Times Editorial Damaged Her Reputation**\
 `Closing arguments in the libel case are expected on Tuesday, after which the nine jurors will begin deliberations.`\
 https://nytimes.com/2025/04/21/business/media/sarah-palin-new-york-times-trial.html
-
-**Chuck Connelly, Combative Neo-Expressionist Artist, Dies at 70**\
-`His heavily textured paintings brought him renown in the 1980s. In the ’90s, Nick Nolte played a character inspired by him in a Martin Scorsese film.`\
-https://nytimes.com/2025/04/21/arts/chuck-connelly-dead.html
 
