@@ -1,3 +1,15 @@
+**In New Trial, Palin Says New York Times Editorial Damaged Her Reputation**\
+`Closing arguments in the libel case are expected on Tuesday, after which the nine jurors will begin deliberations.`\
+https://nytimes.com/2025/04/21/business/media/sarah-palin-new-york-times-trial.html
+
+**Chuck Connelly, Combative Neo-Expressionist Artist, Dies at 70**\
+`His heavily textured paintings brought him renown in the 1980s. In the ’90s, Nick Nolte played a character inspired by him in a Martin Scorsese film.`\
+https://nytimes.com/2025/04/21/arts/chuck-connelly-dead.html
+
+**A's set to promote top prospect Nick Kurtz, the No. 4 draft pick last year: Source**\
+`The first baseman will be the third player from last year’s draft to debut in the major leagues.`\
+https://nytimes.com/athletic/6297505/2025/04/21/athletics-promote-nick-kurtz-major-league-debut/
+
 **Braves' Spencer Strider placed on IL after injuring hamstring playing catch**\
 `Strider notified a team official soon after the incident that he wouldn’t be able to make his scheduled start Tuesday against the Cardinals.`\
 https://nytimes.com/athletic/6297493/2025/04/21/braves-spencer-strider-hamstring-injury-catch/
