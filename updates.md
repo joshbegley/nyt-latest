@@ -1,3 +1,7 @@
+**Heat's plan to be 'disruptive' doesn't get the job done against Cavs**\
+`Cleveland's guards got exactly what they wanted, and Miami couldn't get Tyler Herro the ball in crunchtime in the Game 1 loss.`\
+https://nytimes.com/athletic/6295597/2025/04/21/heat-struggle-tyler-herro-game-1-loss/
+
 **Markets Slump on Persistent Concern That Tariffs Will Hurt Growth**\
 `Trump’s tariffs continued to jar investors on Monday as stocks in Asia mostly fell and the U.S. dollar weakened.`\
 https://nytimes.com/2025/04/21/business/trump-tariffs-stock-markets.html
