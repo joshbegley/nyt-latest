@@ -1,3 +1,11 @@
+**It’s All Sunshine as the Vance Family Arrives in India**\
+`Those tariff clouds? Indians wish them away as they welcome Vice President JD Vance for a four-day visit.`\
+https://nytimes.com/2025/04/21/world/asia/trump-tariffs-vance-modi-india.html
+
+**For a Times Reporter Who Covered Him, Francis Was Always a Surprise**\
+`An unlikely choice to be pope championed causes and challenged orthodoxy, keeping allies and critics alike on their toes.`\
+https://nytimes.com/2025/04/21/world/europe/pope-francis-new-york-times.html
+
 **Pope Francis Was a Champion, if an Imperfect One, for L.G.B.T.Q. People**\
 `He helped L.G.B.T.Q. Catholics feel more at home in their church. And that also meant that their families and friends also felt more at home.`\
 https://nytimes.com/2025/04/21/opinion/pope-francis-lgbtq-gay-people.html

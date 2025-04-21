@@ -1,3 +1,7 @@
+**Red Light: No playoff upsets ... yet**\
+`Welcome to Red Light, The Athletic's NHL newsletter.`\
+https://nytimes.com/athletic/6297059/2025/04/21/nhl-playoffs-womens-worlds-hockey-red-light/
+
 **It’s All Sunshine as the Vance Family Arrives in India**\
 `Those tariff clouds? Indians wish them away as they welcome Vice President JD Vance for a four-day visit.`\
 https://nytimes.com/2025/04/21/world/asia/trump-tariffs-vance-modi-india.html
@@ -6,7 +10,7 @@ https://nytimes.com/2025/04/21/world/asia/trump-tariffs-vance-modi-india.html
 `He helped L.G.B.T.Q. Catholics feel more at home in their church. And that also meant that their families and friends also felt more at home.`\
 https://nytimes.com/2025/04/21/opinion/pope-francis-lgbtq-gay-people.html
 
-**Bucks star Damian Lillard listed as questionable for Game 2 vs. Pacers**\
+**Bucks' Lillard questionable for Game 2: How his return could impact series**\
 `All-Star guard has not played since late March when he was diagnosed with a deep vein thrombosis (DVT) blood clot in his right calf.`\
 https://nytimes.com/athletic/6296972/2025/04/21/bucks-damian-lillard-questionable-pacers-game-2/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6296711/2025/04/21/giants-brewers-mlb-how-to-watch/
 **Adam Schiff asks the National Archives to review the Trump administration’s use of Signal.**\
 `The California Democrat’s request came the day after it was revealed that Defense Secretary Pete Hegseth discussed sensitive military operations in a second Signal chat including family members.`\
 https://nytimes.com/live/2025/04/21/us/trump-administration-news/adam-schiff-asks-the-national-archives-to-review-the-trump-administrations-use-of-signal
-
-**Lightning ride swagger, star power into Panthers rematch**\
-`Quietly, Tampa Bay might be back, and that might be trouble for the rest of the NHL. `\
-https://nytimes.com/athletic/6296689/2025/04/21/lightning-panthers-nhl-playoffs/
 
