@@ -1,3 +1,11 @@
+**Cavaliers' Ty Jerome puts his game where his mouth is: 'He was backing it up'**\
+`Jerome was Star 1A in Cleveland’s 121-100 win over Miami in Game 1, scoring 28 points in his playoff debut — and letting everyone know.`\
+https://nytimes.com/athletic/6295520/2025/04/21/ty-jerome-cleveland-cavaliers-nba-playoffs-miami/
+
+**Leafs open Battle of Ontario with intriguing lack of past playoff woes**\
+`The Leafs' six goals in Game 1 were their most in a playoff game since Tampa Bay in 2023 — a series they won.`\
+https://nytimes.com/athletic/6295585/2025/04/21/maple-leafs-nhl-playoff-demons-senators/
+
 **Leafs open Battle of Ontario with intriguing lack of past playoff woes**\
 `The Leafs' six goals in Game 1 were their most in a playoff game since Tampa Bay in 2023 – a series they won.`\
 https://nytimes.com/athletic/6295585/2025/04/21/maple-leafs-nhl-playoff-demons-senators/
