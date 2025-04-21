@@ -1,3 +1,15 @@
+**Kristi Noem’s Bag, With Security Badge and $3,000, Is Stolen**\
+`The homeland security secretary was dining at a Washington, D.C., restaurant. She also lost her passport and keys.`\
+https://nytimes.com/2025/04/21/us/politics/kristi-noem-purse-stolen.html
+
+**Líderes mundiales rinden homenaje al papa Francisco**\
+`Gobernantes y funcionarios de todo el mundo ofrecieron sus condolencias al pueblo católico y elogiaron el compromiso del pontífice con los pobres y marginados.`\
+https://nytimes.com/2025/04/21/espanol/mundo/papa-francisco-trump-sheinbaum-reacciones-lideres-mundo.html
+
+**People Gather to Mourn, and Honor, Pope Francis**\
+`As church bells tolled across the world, Catholics and non-Catholics alike mourned a pontiff who pushed for change.`\
+https://nytimes.com/2025/04/21/world/europe/pope-francis-photos-mourning-reaction.html
+
 **How to watch the Phillies at Mets series: Can Pete Alonso stay hot against Nola, Wheeler?**\
 `The NL East's two leading squads square off in Queens this week, with the Philadelphia Phillies and New York Mets both riding strong starts.`\
 https://nytimes.com/athletic/6296311/2025/04/21/mets-phillies-soto-alonso-lindor-harper-wheeler-how-to-watch/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6287102/2025/04/21/uk-supreme-court-ruling-legal-de
 **Joey Aguilar set to enter portal following Nico Iamaleava's arrival at UCLA: Source**\
 `Could the former App State starter end up at Tennessee? What are some other potential fits?`\
 https://nytimes.com/athletic/6296637/2025/04/21/joey-aguilar-nico-iamaleava-ucla-qb/
-
-**Can a Judge Hold the White House in Contempt of Court?**\
-`The Trump administration has arrived at the cusp of what a judge suspects is outright defiance of court orders. Adam Liptak, who covers the Supreme Court for The New York Times, explores what could come next.`\
-https://nytimes.com/video/us/100000010115269/can-a-judge-hold-the-white-house-in-contempt-of-court.html
-
-**Chelsea fans: Drop in your questions now for our writers**\
-`The Athletic's Chelsea writers are poised. Drop your questions in for them to answer and we will be back with answers later in the week`\
-https://nytimes.com/athletic/6296576/2025/04/21/chelsea-fans-drop-in-your-questions-now-for-our-writers/
-
-**El papa Francisco abrió un espacio para el debate dentro de la Iglesia católica**\
-`Francisco no reprimía las opiniones con las que no estaba de acuerdo y creía en un proceso paciente en el que las ideas y las propuestas pudieran sopesarse antes de avanzar.`\
-https://nytimes.com/2025/04/21/espanol/mundo/papa-francisco-iglesia-apertura-diversidad.html
 
