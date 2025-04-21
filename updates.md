@@ -1,3 +1,7 @@
+**Thailand Arrests Executive Linked to Bangkok Tower Felled by Earthquake**\
+`The collapse has brought scrutiny of the Chinese state-owned company that was putting up the doomed building.`\
+https://nytimes.com/2025/04/21/world/asia/bangkok-tower-collapse-arrest.html
+
 **Pope Francis’ Life**\
 `Selected photographs from the life and papacy of Pope Francis.`\
 https://nytimes.com/2025/04/21/world/europe/pope-francis-life-photos.html
