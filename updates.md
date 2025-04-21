@@ -1,3 +1,7 @@
+**What Do You Want to Know About the Pope?**\
+`Send us your questions about the death of Pope Francis. We’ll find Times reporters to answer them.`\
+https://nytimes.com/2025/04/21/briefing/what-do-you-want-to-know-about-the-pope.html
+
 **Des Linden gives Boston Marathon a surprise — and a fond farewell worthy of a 'shoey'**\
 `Linden, who in 2018 became the first U.S. women's runner to win at Boston in 33 years, announced she is stepping away before Monday's race.`\
 https://nytimes.com/athletic/6297280/2025/04/21/boston-marathon-des-linden-women-column/
