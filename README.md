@@ -1,3 +1,7 @@
+**gws-coachella-2025-lady-gaga-jennie-bernie-sanders**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/coachella-2025-lady-gaga-jennie-bernie-sanders
+
 **Video Shows Passengers Evacuating Delta Plane on Slides After Engine Fire**\
 `Flames erupted around the plane on the tarmac at Orlando International Airport on Monday. There were no reported injuries after passengers fled by emergency slides.`\
 https://nytimes.com/2025/04/21/business/delta-fire-orlando-evacuation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/21/world/europe/rome-pope-francis-bishop.html
 **How Pope Francis Helped Inspire the Global Movement Against Climate Change**\
 `Francis framed climate change as an urgent spiritual issue and helped push the world to take action.`\
 https://nytimes.com/2025/04/21/climate/pope-francis-climate-change.html
-
-**Requiems and Tears for Pope Francis**\
-`An initial sampling of reaction to the death of Pope Francis. Also: A books case before the Supreme Court; protecting our democracy.`\
-https://nytimes.com/2025/04/21/opinion/pope-francis-dead.html
 
