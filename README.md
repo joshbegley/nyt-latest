@@ -1,3 +1,7 @@
+**What will the Flyers' offseason look like? Here is Daniel Briere's to-do list**\
+`Philadelphia needs a coach, of course, but there also are plenty of interesting roster decisions.`\
+https://nytimes.com/athletic/6296424/2025/04/21/flyers-offseason-coach-roster/
+
 **How Meta’s News Ban Could Disrupt Canada’s Election**\
 `After Meta blocked news from its platforms in Canada, hyperpartisan and misleading content from popular right-wing Facebook pages such as Canada Proud have filled the gap. Our Canada bureau chief explains the effect on voters.`\
 https://nytimes.com/video/world/canada/100000010113524/how-metas-news-ban-could-disrupt-canadas-election.html
@@ -15,7 +19,7 @@ https://nytimes.com/2025/04/21/us/politics/trump-hegseth-signal-chat-leak.html
 https://nytimes.com/live/2025/04/21/espanol/muere-papa-francisco/papa-francisco-discurso-final-migrantes
 
 **Eagles, Cam Jurgens agree to four-year, $68 million extension**\
-`Drafted to be Jason Kelce's successor, the Eagles now have four of their starting five linemen on long-term extensions.`\
+`The Eagles now have four of their starting five linemen on long-term extensions.`\
 https://nytimes.com/athletic/6296398/2025/04/21/eagles-cam-jurgens-extension/
 
 **Boston Marathon: Marcel Hug claims third straight win in men's wheelchair division**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/21/technology/canada-election-facebook-instagram-met
 **Cooper Flagg, projected No. 1 pick, declares for 2025 NBA Draft**\
 `The Duke forward had one of the best statistical freshman seasons in college basketball history to earn National Player of the Year honors.`\
 https://nytimes.com/athletic/6286051/2025/04/21/cooper-flagg-nba-draft-declares-duke/
-
-**Springy, Speedy Skillet Gnocchi**\
-`Ali Slagle’s new recipe combines golden gnocchi, crisp asparagus and buttery miso brightened with vinegar.`\
-https://nytimes.com/2025/04/21/dining/skillet-gnocchi-asparagus-quick-dinner.html
 
