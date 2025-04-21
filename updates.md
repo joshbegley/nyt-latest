@@ -1,3 +1,11 @@
+**Chelsea fans: Drop in your questions now for our writers**\
+`The Athletic's Chelsea writers are poised. Drop your questions in for them to answer and we will be back with answers later in the week`\
+https://nytimes.com/athletic/6296576/2025/04/21/chelsea-fans-drop-in-your-questions-now-for-our-writers/
+
+**In Congestion Pricing Fight, Trump Administration Ratchets Up the Threats**\
+`The administration has demanded the tolling program end by late May, arguing that it unfairly burdens working-class commuters.`\
+https://nytimes.com/2025/04/21/nyregion/trump-nyc-congestion-pricing-threats.html
+
 **El papa Francisco abrió un espacio para el debate dentro de la Iglesia católica**\
 `Francisco no reprimía las opiniones con las que no estaba de acuerdo y creía en un proceso paciente en el que las ideas y las propuestas pudieran sopesarse antes de avanzar.`\
 https://nytimes.com/2025/04/21/espanol/mundo/papa-francisco-iglesia-apertura-diversidad.html
