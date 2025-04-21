@@ -1,3 +1,7 @@
+**Cardinals' growing pains on display in 4-game sweep by Mets**\
+`Oli Marmol learned to keep his temper in check as he deals with players still learning the game's nuances.`\
+https://nytimes.com/athletic/6294421/2025/04/21/cardinals-oli-marmol-growing-pains/
+
 **‘We feel abandoned’: Mourners gather outside the Vatican.**\
 `A day after Pope Francis had blessed Catholics at Easter Mass, crowds gathered again in St. Peter’s Square in somber mood.`\
 https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/pope-francis-vatican-mourners

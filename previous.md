@@ -1,3 +1,7 @@
+**Cardinals' growing pains on display in 4-game sweep by Mets**\
+`Oli Marmol learned to keep his temper in check as he deals with players still learning the game's nuances.`\
+https://nytimes.com/athletic/6294421/2025/04/21/cardinals-oli-marmol-growing-pains/
+
 **‘We feel abandoned’: Mourners gather outside the Vatican.**\
 `A day after Pope Francis had blessed Catholics at Easter Mass, crowds gathered again in St. Peter’s Square in somber mood.`\
 https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/pope-francis-vatican-mourners
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6295581/2025/04/21/canadiens-nhl-playoffs-anderson-
 **Homestead-Miami Speedway expected to host NASCAR championship race in 2026: Sources**\
 `Another track will be selected to host in 2027, beginning a rotation in which a different venue is chosen each year, per multiple sources.`\
 https://nytimes.com/athletic/6294160/2025/04/21/nascar-homestead-miami-speedway-championship-race-2026/
-
-**Film breakdown: Bucks need 'urgency' on defense after multiple lapses against Pacers**\
-`While Doc Rivers lamented the Bucks' offense in their series opener, they weren't much better on defense. Let's look at why.`\
-https://nytimes.com/athletic/6294020/2025/04/21/bucks-pacers-defense-nba-playoffs-game-1/
 
