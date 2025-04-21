@@ -1,3 +1,11 @@
+**As Election Nears, Canadians Confront a News Void on Facebook and Instagram**\
+`After Meta blocked news from its platforms in Canada, hyperpartisan and misleading content from popular right-wing Facebook pages such as Canada Proud has filled the gap.`\
+https://nytimes.com/2025/04/21/technology/canada-election-facebook-instagram-meta.html
+
+**Cooper Flagg, projected No. 1 pick, declares for 2025 NBA Draft**\
+`The Duke forward had one of the best statistical freshman seasons in college basketball history to earn National Player of the Year honors.`\
+https://nytimes.com/athletic/6286051/2025/04/21/cooper-flagg-nba-draft-declares-duke/
+
 **Springy, Speedy Skillet Gnocchi**\
 `Ali Slagle’s new recipe combines golden gnocchi, crisp asparagus and buttery miso brightened with vinegar.`\
 https://nytimes.com/2025/04/21/dining/skillet-gnocchi-asparagus-quick-dinner.html
@@ -30,12 +38,4 @@ https://nytimes.com/2025/04/21/us/pope-francis-legacy-in-the-us.html
 `Brett Koremenos has a look at the best bets around Manchester City’s midweek clash with Aston Villa.
 `\
 https://nytimes.com/athletic/6296209/2025/04/21/manchester-city-vs-aston-villa-odds-is-josko-gvardiol-pep-guardiolas-secret-weapon/
-
-**In pictures: Looking back at Francis’ life.**\
-`(No description)`\
-https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/in-pictures-looking-back-at-francis-life
-
-**Lowetide: Will Kris Knoblauch continue to find answers in the playoffs?**\
-`As the postseason begins, there is much worry about the Oilers' ability to make a deep run.`\
-https://nytimes.com/athletic/6293014/2025/04/21/oilers-coach-kris-knoblauch-nhl-playoffs/
 

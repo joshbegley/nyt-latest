@@ -1,3 +1,16 @@
+**Springy, Speedy Skillet Gnocchi**\
+`Ali Slagle’s new recipe combines golden gnocchi, crisp asparagus and buttery miso brightened with vinegar.`\
+https://nytimes.com/2025/04/21/dining/skillet-gnocchi-asparagus-quick-dinner.html
+
+**Do You Know These Books That Became Disaster Movies?**\
+`Many blockbuster films were inspired by literature and this short quiz tests your knowledge about five of them.`\
+https://nytimes.com/interactive/2025/04/21/books/review/disaster-book-movies.html
+
+**Man City vs Villa betting tips: Gvardiol's magic or visitors to force a draw?**\
+`Brett Koremenos has a look at the best bets around Manchester City’s midweek clash with Aston Villa.
+`\
+https://nytimes.com/athletic/6296209/2025/04/21/manchester-city-vs-aston-villa-odds-is-josko-gvardiol-pep-guardiolas-secret-weapon/
+
 **Man City vs Villa betting tips: Gvardiol's magic or visitors to force a draw?**\
 `Brett Koremenos has a look at the best bets around Manchester City’s midweek clash with Aston Villa.
 `\
