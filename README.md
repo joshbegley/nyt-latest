@@ -1,3 +1,11 @@
+**Boston Marathon: Marcel Hug claims third straight win in men's wheelchair division**\
+`Hug won the marathon for a third consecutive time while Scaroni snagged her second career victory in Boston.`\
+https://nytimes.com/athletic/6296201/2025/04/21/boston-marathon-results-winners-2025/
+
+**U.S. Asks Judge to Break Up Google**\
+`The Justice Department said that the best way to address the tech company’s monopoly in internet search was to force it to sell Chrome, among other measures.`\
+https://nytimes.com/2025/04/21/technology/google-search-remedies-hearing.html
+
 **As Election Nears, Canadians Confront a News Void on Facebook and Instagram**\
 `After Meta blocked news from its platforms in Canada, hyperpartisan and misleading content from popular right-wing Facebook pages such as Canada Proud has filled the gap.`\
 https://nytimes.com/2025/04/21/technology/canada-election-facebook-instagram-meta.html
@@ -29,13 +37,4 @@ https://nytimes.com/2025/04/21/us/pope-francis-catholic-right.html
 **Leverkusen expect Alonso 'decision to be made in three to four weeks'**\
 `The 43-year-old Spaniard is favoured by Real Madrid to take over from Carlo Ancelotti at the Bernabeu.`\
 https://nytimes.com/athletic/6296267/2025/04/21/xabi-alonso-leverkusen-real-madrid-future/
-
-**Pope Francis’ Legacy in the U.S.: A More Open, and Then Divided, Church**\
-`Pope Francis’ transformative vision for the American church made it more open, but also energized conservative resistance that further divided it.`\
-https://nytimes.com/2025/04/21/us/pope-francis-legacy-in-the-us.html
-
-**Man City vs Villa betting tips: Gvardiol's magic or visitors to force a draw?**\
-`Brett Koremenos has a look at the best bets around Manchester City’s midweek clash with Aston Villa.
-`\
-https://nytimes.com/athletic/6296209/2025/04/21/manchester-city-vs-aston-villa-odds-is-josko-gvardiol-pep-guardiolas-secret-weapon/
 

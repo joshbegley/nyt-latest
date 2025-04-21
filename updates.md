@@ -1,3 +1,8 @@
+**Man City vs Villa betting tips: Gvardiol's magic or visitors to force a draw?**\
+`Brett Koremenos has a look at the best bets around Manchester City’s midweek clash with Aston Villa.
+`\
+https://nytimes.com/athletic/6296209/2025/04/21/manchester-city-vs-aston-villa-odds-is-josko-gvardiol-pep-guardiolas-secret-weapon/
+
 **As Election Nears, Canadians Confront a News Void on Facebook and Instagram**\
 `After Meta blocked news from its platforms in Canada, hyperpartisan and misleading content from popular right-wing Facebook pages such as Canada Proud has filled the gap.`\
 https://nytimes.com/2025/04/21/technology/canada-election-facebook-instagram-meta.html
