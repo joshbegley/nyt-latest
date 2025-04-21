@@ -1,3 +1,15 @@
+**FPL: What we learnt from Gameweek 33 (so far) - Arsenal decisions to make**\
+`There are still three games to go in Double Gameweek 33, but it has been an underwhelming one for most FPL managers`\
+https://nytimes.com/athletic/6294824/2025/04/21/fantasy-premier-league-gameweek-33-fpl/
+
+**In his final remarks, Francis focused on a hallmark theme of his papacy: migrants.**\
+`By Patricia Mazzei`\
+https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/in-his-final-remarks-francis-focused-on-a-hallmark-theme-of-his-papacy-migrants
+
+**Tah confirms he will leave Leverkusen this summer**\
+`“Definitely,” Tah responded when asked by BILD if he was playing his final games for Leverkusen.`\
+https://nytimes.com/athletic/6295957/2025/04/21/jonathan-tah-transfer-next-club-leverkusen/
+
 **En vivo: muere el papa Francisco**\
 `Su pontificado pionero trabajó para que la Iglesia católica fuera más integradora. Los cardenales decidirán ahora si continúan su enfoque o restauran un liderazgo más doctrinario.`\
 https://nytimes.com/live/2025/04/21/espanol/muere-papa-francisco
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6295667/2025/04/21/rockets-playoffs-game-1-loss-war
 **MLB Draft 2025: Scouting Ethan Holliday, Eli Willits, JoJo Parker, other top HS talents**\
 `Scouting looks from this past week on several top high school draft prospects, including the Parker brothers of Purvis, Miss.`\
 https://nytimes.com/athletic/6295045/2025/04/21/mlb-draft-ethan-holliday-eli-willits-scouting/
-
-**Lloyd: Cavs know rugged games against the Heat are just what they need to make them better**\
-`Against a physical and savvy team, Donovan Mitchell was aggressive getting to the paint and converted 7 of 8 shots around the basket.`\
-https://nytimes.com/athletic/6295605/2025/04/21/cavaliers-heat-nba-playoff-game-1-test/
-
-**Raiders 7-round 2025 mock draft: Las Vegas can't pass on Ashton Jeanty**\
-`We predict Pete Carroll and John Spytek will pounce on the bellcow running back who is already being compared to some NFL legends.`\
-https://nytimes.com/athletic/6291177/2025/04/21/raiders-nfl-mock-draft-2025-ashton-jeanty/
-
-**Tennessee's best transfer portal quarterback options after Nico Iamaleava**\
-`Signing a QB with legitimate experience is critical. But if the Vols can't swipe someone else's starter, who remains in the portal for them?`\
-https://nytimes.com/athletic/6295399/2025/04/21/tennessee-football-transfer-portal-quarterbacks/
 

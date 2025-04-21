@@ -1,3 +1,7 @@
+**En vivo: muere el papa Francisco**\
+`Su pontificado pionero trabajó para que la Iglesia católica fuera más integradora. Los cardenales decidirán ahora si continúan su enfoque o restauran un liderazgo más doctrinario.`\
+https://nytimes.com/live/2025/04/21/espanol/muere-papa-francisco
+
 **The Pulse: The most expected upset**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6295067/2025/04/21/warriors-rockets-nba-playoffs-the-pulse/

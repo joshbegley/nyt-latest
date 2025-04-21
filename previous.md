@@ -1,3 +1,7 @@
+**En vivo: muere el papa Francisco**\
+`Su pontificado pionero trabajó para que la Iglesia católica fuera más integradora. Los cardenales decidirán ahora si continúan su enfoque o restauran un liderazgo más doctrinario.`\
+https://nytimes.com/live/2025/04/21/espanol/muere-papa-francisco
+
 **The Pulse: The most expected upset**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6295067/2025/04/21/warriors-rockets-nba-playoffs-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6291177/2025/04/21/raiders-nfl-mock-draft-2025-asht
 **Tennessee's best transfer portal quarterback options after Nico Iamaleava**\
 `Signing a QB with legitimate experience is critical. But if the Vols can't swipe someone else's starter, who remains in the portal for them?`\
 https://nytimes.com/athletic/6295399/2025/04/21/tennessee-football-transfer-portal-quarterbacks/
-
-**New Bears coaches Al Harris, Antwaan Randle El and Eric Bieniemy bring winning mentality**\
-`Position coaches like Harris, Randle El and Bieniemy — all former NFL players — have the players’ ears. And those three have seen a lot.`\
-https://nytimes.com/athletic/6295267/2025/04/21/chicago-bears-new-assistant-coaches/
 
