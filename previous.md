@@ -1,3 +1,7 @@
+**The Athletic FC: Brazil wait for Ancelotti as Real Madrid win, ranking World Cup city posters**\
+`Today in TAFC: Real Madrid win just as Ancelotti's reign seemingly nears its end, but Alexander-Arnold will likely be there next season..`\
+https://nytimes.com/athletic/6295752/2025/04/21/ancelotti-brazil-real-madrid/
+
 **Conversations and insights about the moment.**\
 ``\
 https://nytimes.com/live/2025/04/21/opinion/thepoint
@@ -6,7 +10,7 @@ https://nytimes.com/live/2025/04/21/opinion/thepoint
 `The far-right finance minister, Bezalel Smotrich, said the more crucial goal was ensuring that Hamas no longer ruled the Gaza Strip.`\
 https://nytimes.com/2025/04/21/world/middleeast/israel-finance-minister-hostages-bezalel-smotrich-gaza-hamas.html
 
-**Larry David Imagines a Private Dinner With Hitler**\
+**Opinion Today: Larry David Imagines a Private Dinner With Hitler**\
 `In a guest essay, the comedian warns that we should see people for who they really are.`\
 https://nytimes.com/2025/04/21/opinion/larry-david-dinner.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6295067/2025/04/21/warriors-rockets-nba-playoffs-th
 **Major Advances in E.V. Batteries Announced by Chinese Company**\
 `CATL, the world’s largest maker of batteries for electric vehicles, described breakthroughs that could make E.V.s more competitive with gasoline-powered cars.`\
 https://nytimes.com/2025/04/21/business/catl-battery-china.html
-
-**Francis faced defiant, conservative U.S. Catholic leaders.**\
-`By Ruth Graham`\
-https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/francis-faced-defiant-conservative-us-catholic-leaders
 

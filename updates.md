@@ -1,3 +1,11 @@
+**The Athletic FC: Brazil wait for Ancelotti as Real Madrid win, ranking World Cup city posters**\
+`Today in TAFC: Real Madrid win just as Ancelotti's reign seemingly nears its end, but Alexander-Arnold will likely be there next season..`\
+https://nytimes.com/athletic/6295752/2025/04/21/ancelotti-brazil-real-madrid/
+
+**Opinion Today: Larry David Imagines a Private Dinner With Hitler**\
+`In a guest essay, the comedian warns that we should see people for who they really are.`\
+https://nytimes.com/2025/04/21/opinion/larry-david-dinner.html
+
 **Conversations and insights about the moment.**\
 ``\
 https://nytimes.com/live/2025/04/21/opinion/thepoint
