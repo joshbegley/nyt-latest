@@ -1,3 +1,7 @@
+**Braves' Spencer Strider placed on IL after injuring hamstring playing catch**\
+`Strider notified a team official soon after the incident that he wouldn’t be able to make his scheduled start Tuesday against the Cardinals.`\
+https://nytimes.com/athletic/6297493/2025/04/21/braves-spencer-strider-hamstring-injury-catch/
+
 **Pacers 'expect hard' as they prepare for Game 2 against the Bucks**\
 `"When you win Game 1 in the series, particularly as the home team, Game 2 is always exponentially tougher," Pacers coach Rick Carlisle said.`\
 https://nytimes.com/athletic/6297102/2025/04/21/pacers-bucks-playoffs-game-2/
