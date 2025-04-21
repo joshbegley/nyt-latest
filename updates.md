@@ -1,3 +1,7 @@
+**The Pulse: The most expected upset**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6295067/2025/04/21/warriors-rockets-nba-playoffs-the-pulse/
+
 **Major Advances in E.V. Batteries Announced by Chinese Company**\
 `CATL, the world’s largest maker of batteries for electric vehicles, described breakthroughs that could make E.V.s more competitive with gasoline-powered cars.`\
 https://nytimes.com/2025/04/21/business/catl-battery-china.html
