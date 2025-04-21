@@ -1,3 +1,15 @@
+**Here’s the latest.**\
+`By Jason Horowitz`\
+https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/heres-the-latest
+
+**Live Updates: Pope Francis Dies at 88**\
+`His groundbreaking pontificate worked to make the Catholic Church more inclusive. Cardinals will now decide whether to continue his approach or restore more doctrinaire leadership.`\
+https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican
+
+**Francis, the First Latin American Pope, Dies at 88**\
+`After decades of conservative leadership, Francis tried to reset the course of the Roman Catholic Church, emphasizing inclusion and care for the marginalized over doctrinal purity.`\
+https://nytimes.com/2025/04/21/world/europe/pope-francis-dead.html
+
 **Fan arrested after object strikes assistant referee in Saint-Etienne vs. Lyon**\
 `The game was reportedly suspended for almost 45 minutes after the incident.`\
 https://nytimes.com/athletic/6295792/2025/04/21/saint-etienne-lyon-arrest/
