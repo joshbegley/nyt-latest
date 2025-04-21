@@ -1,3 +1,7 @@
+**How to watch the Phillies at Mets series: Can Pete Alonso stay hot against Nola, Wheeler?**\
+`The NL East's two leading squads square off in Queens this week, with the Philadelphia Phillies and New York Mets both riding strong starts.`\
+https://nytimes.com/athletic/6296311/2025/04/21/mets-phillies-soto-alonso-lindor-harper-wheeler-how-to-watch/
+
 **El Paso Gunman in Walmart Shooting Sentenced Again to Life in Prison**\
 `Both federal and state prosecutors took the death penalty out of consideration for a self-described white supremacist who carried out one of the deadliest attacks on Hispanic people in U.S. history.`\
 https://nytimes.com/2025/04/21/us/el-paso-walmart-shooting-sentencing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6296576/2025/04/21/chelsea-fans-drop-in-your-questi
 **El papa Francisco abrió un espacio para el debate dentro de la Iglesia católica**\
 `Francisco no reprimía las opiniones con las que no estaba de acuerdo y creía en un proceso paciente en el que las ideas y las propuestas pudieran sopesarse antes de avanzar.`\
 https://nytimes.com/2025/04/21/espanol/mundo/papa-francisco-iglesia-apertura-diversidad.html
-
-**How to Go Gray Confidently**\
-`The actress Andie MacDowell, the colorist Lena Ott and the model JoAni Johnson share their tips for embracing silver hair.`\
-https://nytimes.com/2025/04/21/t-magazine/going-gray-hair-guide.html
 
