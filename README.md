@@ -1,3 +1,11 @@
+**GWS-shocking-tv-deaths-last-of-us**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/shocking-tv-deaths-last-of-us
+
+**In Congestion Pricing Fight, Trump Administration Ratchets Up the Threats**\
+`The administration has demanded the tolling program end by late May, arguing that it unfairly burdens working class commuters.`\
+https://nytimes.com/2025/04/21/nyregion/trump-nyc-congestion-pricing-threats.html
+
 **What will the Flyers' offseason look like? Here is Daniel Briere's to-do list**\
 `Philadelphia needs a coach, of course, but there also are plenty of interesting roster decisions.`\
 https://nytimes.com/athletic/6296424/2025/04/21/flyers-offseason-coach-roster/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6296201/2025/04/21/boston-marathon-results-winners-
 **U.S. Asks Judge to Break Up Google**\
 `The Justice Department said that the best way to address the tech company’s monopoly in internet search was to force it to sell Chrome, among other measures.`\
 https://nytimes.com/2025/04/21/technology/google-search-remedies-hearing.html
-
-**As Election Nears, Canadians Confront a News Void on Facebook and Instagram**\
-`After Meta blocked news from its platforms in Canada, hyperpartisan and misleading content from popular right-wing Facebook pages such as Canada Proud has filled the gap.`\
-https://nytimes.com/2025/04/21/technology/canada-election-facebook-instagram-meta.html
-
-**Cooper Flagg, projected No. 1 pick, declares for 2025 NBA Draft**\
-`The Duke forward had one of the best statistical freshman seasons in college basketball history to earn National Player of the Year honors.`\
-https://nytimes.com/athletic/6286051/2025/04/21/cooper-flagg-nba-draft-declares-duke/
 
