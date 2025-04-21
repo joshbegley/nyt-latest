@@ -1,3 +1,7 @@
+**In pictures: Looking back at Francis’ life.**\
+`(No description)`\
+https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/in-pictures-looking-back-at-francis-life
+
 **Lowetide: Will Kris Knoblauch continue to find answers in the playoffs?**\
 `As the postseason begins, there is much worry about the Oilers' ability to make a deep run.`\
 https://nytimes.com/athletic/6293014/2025/04/21/oilers-coach-kris-knoblauch-nhl-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/newsgraphics/card-story/pope-francis-life-photos
 **gws-romanian-deadlift-technique**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/romanian-deadlift-technique
-
-**Remembering Francis’ visit to Indonesia and East Timor.**\
-`By Sui-Lee Wee`\
-https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/remembering-francis-visit-to-indonesia-and-east-timor
 
