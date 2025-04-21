@@ -1,3 +1,16 @@
+**As Election Nears, Canadians Confront a News Void on Facebook and Instagram**\
+`After Meta blocked news from its platforms in Canada, hyperpartisan and misleading content from popular right-wing Facebook pages such as Canada Proud has filled the gap.`\
+https://nytimes.com/2025/04/21/technology/canada-election-facebook-instagram-meta.html
+
+**Cooper Flagg, projected No. 1 pick, declares for 2025 NBA Draft**\
+`The Duke forward had one of the best statistical freshman seasons in college basketball history to earn National Player of the Year honors.`\
+https://nytimes.com/athletic/6286051/2025/04/21/cooper-flagg-nba-draft-declares-duke/
+
+**Man City vs Villa betting tips: Gvardiol's magic or visitors to force a draw?**\
+`Brett Koremenos has a look at the best bets around Manchester City’s midweek clash with Aston Villa.
+`\
+https://nytimes.com/athletic/6296209/2025/04/21/manchester-city-vs-aston-villa-odds-is-josko-gvardiol-pep-guardiolas-secret-weapon/
+
 **Springy, Speedy Skillet Gnocchi**\
 `Ali Slagle’s new recipe combines golden gnocchi, crisp asparagus and buttery miso brightened with vinegar.`\
 https://nytimes.com/2025/04/21/dining/skillet-gnocchi-asparagus-quick-dinner.html
