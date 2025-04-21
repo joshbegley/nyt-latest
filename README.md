@@ -14,6 +14,10 @@ https://nytimes.com/athletic/6288234/2025/04/21/eagles-nfl-mock-draft-2025-walte
 `Certain defensive tackles may not be available for the Bills in round 1.`\
 https://nytimes.com/athletic/6288039/2025/04/21/bills-nfl-mock-draft-2025-trey-amos/
 
+**Lions 7-round 2025 mock draft: Focus on adding to homegrown core of Super Bowl contender**\
+`The Lions have drafted significant pieces in recent years.`\
+https://nytimes.com/athletic/6292842/2025/04/21/lions-nfl-mock-draft-2025-mykel-williams/
+
 **Ravens 7-round mock draft: Beefing up the trenches, adding secondary depth**\
 `While most of Baltimore's question marks are on defense, GM Eric DeCosta said the team will stick to its board and not chase needs. `\
 https://nytimes.com/athletic/6285818/2025/04/21/ravens-nfl-mock-draft-2025-tyler-booker/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/21/style/a-soccer-field-can-be-sacred.html
 **Francis had made several public appearances in the past week.**\
 `By Elisabetta Povoledo`\
 https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/francis-had-made-several-public-appearances-in-the-past-week
-
-**Pope Francis’ Calling Came as a Boy in Argentina, and It Led Him to the Vatican**\
-`Francis was a deeply religious child in Buenos Aires. The first pontiff from Latin America tried to create a more welcoming church.`\
-https://nytimes.com/2025/04/21/world/europe/pope-francis-life-timeline.html
 
