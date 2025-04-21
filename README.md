@@ -1,3 +1,11 @@
+**Francis Had Health Issues That Can Increase the Risk of Stroke**\
+`The declaration of death said the pope had Type 2 diabetes and high blood pressure, along with bronchiectasis, a chronic lung condition.`\
+https://nytimes.com/2025/04/21/world/europe/pope-francis-stroke-death.html
+
+**Rangers reflect on disappointing season, Drury's trade memo and accountability: 'Something broke'**\
+`After a season of underperformance, a third coach firing in four years and “a lot of noise,” the Rangers gave their exit interviews Monday.`\
+https://nytimes.com/athletic/6297271/2025/04/21/rangers-accountability-exit-interviews/
+
 **What Do You Want to Know About the Pope?**\
 `Send us your questions about the death of Pope Francis. We’ll find Times reporters to answer them.`\
 https://nytimes.com/2025/04/21/briefing/what-do-you-want-to-know-about-the-pope.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6297376/2025/04/21/falcons-sign-qb-easton-stick/
 **Watchdog Group Asks Judge to Preserve Signal Chats by Top Trump Officials**\
 `The request by American Oversight came after revelations that Defense Secretary Pete Hegseth shared information on upcoming strikes in more than one group chat.`\
 https://nytimes.com/2025/04/21/us/politics/trump-officials-signal-chats-hegseth-leak.html
-
-**Nico Harrison admits he underestimated ties between Luka Dončić, Mavericks fans**\
-`“I did know that Luka was important to the fan base,” Harrison said. “I didn’t quite know to what level.”`\
-https://nytimes.com/athletic/6296898/2025/04/21/mavericks-fans-nico-harrison-luka-doncic/
-
-**Blackhawks chairman: CHSN viewership nosedive is 'unacceptable'**\
-`Wirtz: "I am focused on finding potential solutions for next season with our partners at CHSN."`\
-https://nytimes.com/athletic/6297335/2025/04/21/blackhawks-chsn-viewership/
 
