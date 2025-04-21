@@ -1,3 +1,7 @@
+**How Francis Changed the Symbols of a Pope’s Funeral**\
+`In life and death, Francis wanted the symbols of his papacy to be humbler.`\
+https://nytimes.com/2025/04/21/opinion/how-francis-changed-the-symbols-of-a-popes-funeral.html
+
 **'He’s a horse out there' – Tomas Hertl gives Golden Knights the playoff performance they envisioned**\
 `The power forward thrives in playoff hockey, where open ice and offensive opportunities are hard to come by.  `\
 https://nytimes.com/athletic/6295750/2025/04/21/golden-knights-wild-hertl/

@@ -1,3 +1,11 @@
+**Giants relievers have been effective — Sunday's loss aside — and handled well thus far**\
+`The Giants' bullpen suffered a frustrating loss on Sunday, but they've been effective and their usage suggests they haven't been overworked.`\
+https://nytimes.com/athletic/6295492/2025/04/21/sf-giants-bullpen-usage/
+
+**The Cardinals Must Now Decide on Francis’ Legacy**\
+`Cardinals prepare to gather in Rome for the conclave to decide on Francis’ successor and the direction they want the church to take.`\
+https://nytimes.com/2025/04/21/opinion/pope-francis-successor-cardinals-conclave.html
+
 **'He’s a horse out there' – Tomas Hertl gives Golden Knights the playoff performance they envisioned**\
 `The power forward thrives in playoff hockey, where open ice and offensive opportunities are hard to come by.  `\
 https://nytimes.com/athletic/6295750/2025/04/21/golden-knights-wild-hertl/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6295962/2025/04/21/jelena-ostapenko-stuttgart-tenni
 **College baseball week in review: Statement sweep by Vanderbilt, Miami on the move**\
 `Vanderbilt's pitching slows down powerful Georgia. Miami has won seven of its last nine ACC games and is back to .500 in the league. `\
 https://nytimes.com/athletic/6294446/2025/04/21/college-baseball-vanderbilt-miami-georgia/
-
-**How Francis Changed the Symbols of a Pope’s Funeral**\
-`In life and death, Francis wanted the symbols of his papacy to be humbler.`\
-https://nytimes.com/2025/04/21/opinion/how-francis-changed-the-symbols-of-a-popes-funeral.html
-
-**Cardinals' growing pains on display in 4-game sweep by Mets**\
-`Oli Marmol learned to keep his temper in check as he deals with players still learning the game's nuances.`\
-https://nytimes.com/athletic/6294421/2025/04/21/cardinals-oli-marmol-growing-pains/
 
