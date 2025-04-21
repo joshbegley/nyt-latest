@@ -10,7 +10,7 @@ https://nytimes.com/live/2025/04/21/opinion/thepoint
 `The far-right finance minister, Bezalel Smotrich, said the more crucial goal was ensuring that Hamas no longer ruled the Gaza Strip.`\
 https://nytimes.com/2025/04/21/world/middleeast/israel-finance-minister-hostages-bezalel-smotrich-gaza-hamas.html
 
-**Larry David Imagines a Private Dinner With Hitler**\
+**Opinion Today: Larry David Imagines a Private Dinner With Hitler**\
 `In a guest essay, the comedian warns that we should see people for who they really are.`\
 https://nytimes.com/2025/04/21/opinion/larry-david-dinner.html
 
@@ -27,7 +27,7 @@ https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/in-his-fi
 https://nytimes.com/athletic/6295957/2025/04/21/jonathan-tah-transfer-next-club-leverkusen/
 
 **En vivo: muere el papa Francisco**\
-`Su pontificado pionero trabajó para que la Iglesia católica fuera más integradora. Los cardenales decidirán ahora si continúan su enfoque o restauran un liderazgo más doctrinario`\
+`Su pontificado pionero trabajó para que la Iglesia católica fuera más integradora. Los cardenales decidirán ahora si continúan su enfoque o restauran un liderazgo más doctrinario.`\
 https://nytimes.com/live/2025/04/21/espanol/muere-papa-francisco
 
 **The Pulse: The most expected upset**\
