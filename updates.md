@@ -1,3 +1,7 @@
+**‘We feel abandoned’: Mourners gather outside the Vatican.**\
+`A day after Pope Francis had blessed Catholics at Easter Mass, crowds gathered again in St. Peter’s Square in somber mood.`\
+https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/pope-francis-vatican-mourners
+
 **Trump Administration Live Updates: Democratic Lawmakers Demand Release of Maryland Man in Visit to El Salvador**\
 ``\
 https://nytimes.com/live/2025/04/21/us/trump-administration-news
