@@ -1,3 +1,35 @@
+**Harvey Weinstein Becomes an Unlikely Voice in the Push to Close Rikers**\
+`The disgraced producer has complained volubly about his treatment in jail on Rikers Island. Advocates for detainees say any attention to conditions there can’t hurt.`\
+https://nytimes.com/2025/04/21/nyregion/harvey-weinstein-rikers-island.html
+
+**Where Do the Democrats Running for Mayor of New York City Stand on the Issues?**\
+`The New York Times sent a wide-ranging survey to candidates in the Democratic primary for mayor of New York City about affordability, public safety, President Trump, homelessness, congestion pricing, immigration, schools and their one big idea.`\
+https://nytimes.com/interactive/2025/04/21/nyregion/nyc-mayor-democratic-candidates-issues.html
+
+**Will a Federal Judge Break Up Google?**\
+`On Monday, the tech giant and the U.S. government face off in court over how to fix the company’s online search monopoly. The outcome could alter Google and Silicon Valley.`\
+https://nytimes.com/2025/04/21/technology/google-search-antitrust-hearing-breakup.html
+
+**Jacqui Oatley made Match of the Day history but the experience was 'isolating'**\
+`Jacqui Oatley recalls the stomach-drop moment when she realised that she had, in fact, become the story`\
+https://nytimes.com/athletic/6294245/2025/04/21/jacqui-oatley-match-of-the-day-debut-2007/
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/04/21/crosswords/spelling-bee-forum.html
+
+**What to Know About Broker Fees in New York City**\
+`A new law that will require many landlords, and not renters, to cover broker fees is set to take effect in less than two months. It may change how New Yorkers move.`\
+https://nytimes.com/2025/04/21/nyregion/nyc-broker-fees-law.html
+
+**He Was a Prophet of Space Travel. His Ashes Were Found in a Basement.**\
+`During his life, Willy Ley predicted the dawn of the Space Age with remarkable accuracy. How did his remains end up forgotten in a co-op on the Upper West Side?`\
+https://nytimes.com/2025/04/21/nyregion/willy-ley-rocket-ashes.html
+
+**Hidden Above a Trap Door, 17th-Century Frescoes Come to Light**\
+`While inspecting a sumptuous villa in Rome, an electrician stumbled across long lost works by the Baroque painter Carlo Maratta.`\
+https://nytimes.com/2025/04/21/science/art-rome-maratta-frescoes.html
+
 **Barcelona were right to fear Chelsea, but proved they are still Europe's most dominant side**\
 `Barcelona managed a 4-1 win over Chelsea in their Champions League semi-final on Sunday`\
 https://nytimes.com/athletic/6295396/2025/04/21/barcelona-chelsea-champions-league/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/6295396/2025/04/21/barcelona-chelsea-champions-leag
 **The Bernabeu booed Kylian Mbappe but embraced Real Madrid after their tough week**\
 `Real Madrid managed a last-minute victory against Athletic Bilbao on Sunday evening`\
 https://nytimes.com/athletic/6295379/2025/04/21/real-madrid-bernabeu-kylian-mbappe-boo/
-
-**Word of the Day: quasi**\
-`This word has appeared in 324 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/04/21/learning/word-of-the-day-quasi.html
-
-**Alexander-Arnold's parting gift for Liverpool — and a final moment for him to savour**\
-`Alexander-Arnold, who is widely expected to join Real Madrid, scored Liverpool's winner against Leicester City`\
-https://nytimes.com/athletic/6295011/2025/04/21/trent-alexander-arnold-liverpool-leicester-goal/
-
-**Heat's plan to be 'disruptive' doesn't get the job done against Cavs**\
-`Cleveland's guards got exactly what they wanted, and Miami couldn't get Tyler Herro the ball in crunchtime in the Game 1 loss.`\
-https://nytimes.com/athletic/6295597/2025/04/21/heat-struggle-tyler-herro-game-1-loss/
-
-**Markets Slump on Persistent Concern That Tariffs Will Hurt Growth**\
-`Trump’s tariffs continued to jar investors on Monday as stocks in Asia mostly fell and the U.S. dollar weakened.`\
-https://nytimes.com/2025/04/21/business/trump-tariffs-stock-markets.html
-
-**The New York Times in Print for Monday, April 21, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/04/21/todays-new-york-times
-
-**There’s a Reason the World Is Such a Mess**\
-`Global economic stagnation underlies today’s disarray.`\
-https://nytimes.com/2025/04/21/opinion/trump-tariffs-global-economy.html
-
-**‘Étoile,’ Plus 8 Things to Watch on TV This Week**\
-`Amy Sherman-Palladino’s new dramedy, about ballet companies in New York and Paris, comes to Prime Video. And two sports documentaries air.`\
-https://nytimes.com/2025/04/21/arts/television/etoile-plus-8-things-to-watch-on-tv-this-week.html
-
-**Golden Knights beat Wild in tight-checking Game 1 by taking control in third period: Takeaways**\
-`Tomas Hertl opened the scoring for the Golden Knights, who never trailed.`\
-https://nytimes.com/athletic/6295613/2025/04/21/wild-game-1-golden-knights/
 
