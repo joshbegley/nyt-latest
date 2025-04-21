@@ -1,3 +1,15 @@
+**gws-coachella-2025-lady-gaga-jennie-bernie-sanders**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/coachella-2025-lady-gaga-jennie-bernie-sanders
+
+**Video Shows Passengers Evacuating Delta Plane on Slides After Engine Fire**\
+`Flames erupted around the plane on the tarmac at Orlando International Airport on Monday. There were no reported injuries after passengers fled by emergency slides.`\
+https://nytimes.com/2025/04/21/business/delta-fire-orlando-evacuation.html
+
+**Kennedy Plans to Phase Out 8 Commonly Used Food Dyes**\
+`The petroleum-based dyes are used in hundreds of thousands of items including cereals and sports drinks. The health secretary is expected to release more details on Tuesday.`\
+https://nytimes.com/2025/04/21/dining/rfk-jr-food-dyes.html
+
 **What to watch this week: NBA and NHL Playoffs, NFL Draft, Copa del Rey and Dodgers-Cubs**\
 `It's one of the best sports-watching weeks of the year. Here's everything to look out for from Monday through Sunday.`\
 https://nytimes.com/athletic/6290267/2025/04/21/what-to-watch-on-tv-nba-playoffs-nfl-draft-copa-del-rey/
