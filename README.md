@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Democratic Lawmakers Demand Release of Maryland Man in Visit to El Salvador**\
+``\
+https://nytimes.com/live/2025/04/21/us/trump-administration-news
+
 **The Lyrids Meteor Shower Is Peaking. Here’s How to Watch.**\
 `Active since last week, the shower is formed from a comet’s debris and is forecast to produce the most fireballs overnight.`\
 https://nytimes.com/2025/04/21/science/lyrid-meteor-shower.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6294020/2025/04/21/bucks-pacers-defense-nba-playoff
 **Breaking down Big Ten QB outlooks, from Julian Sayin to Nico Iamaleava**\
 `From potential Heisman Trophy contenders to youthful prospects, there is no shortage of intrigue among Big Ten quarterbacks.`\
 https://nytimes.com/athletic/6294275/2025/04/21/big-ten-quarterbacks-nico-iamaleava-julian-sayin/
-
-**Blues balancing playoff expectations with valuable experience for first-timers**\
-`The Blues go into Game 2 against the Jets looking for a better performance from all, not just those making their first playoff appearance.`\
-https://nytimes.com/athletic/6294124/2025/04/21/blues-nhl-playoffs-jets-expectations/
 
