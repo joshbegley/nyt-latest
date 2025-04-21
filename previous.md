@@ -1,40 +1,40 @@
-**China Warns Countries Not to Team Up With U.S. Against It on Trade**\
-`Curbing trade with China to curry favor with the United States would be “selfish and shortsighted,” the government said, promising to retaliate.`\
-https://nytimes.com/2025/04/21/world/asia/china-tariffs-trade-warning.html
+**Only 1,370 Days to Go**\
+`This is giving the people what they want?`\
+https://nytimes.com/2025/04/21/opinion/trump-powell-ocasio-cortez-birthright.html
 
-**Thailand Arrests Executive Linked to Bangkok Tower Felled by Earthquake**\
-`The collapse has brought scrutiny of the Chinese state-owned company that was putting up the doomed building.`\
-https://nytimes.com/2025/04/21/world/asia/bangkok-tower-collapse-arrest.html
+**‘Andor’ Is Coming Back. Here Is a Recap of Season 1.**\
+`The sophisticated and moody “Star Wars” prequel to “Rogue One” is returning for its second and final season. There’s a lot to remember.`\
+https://nytimes.com/2025/04/21/arts/television/andor-season-1-recap.html
 
-**Pope Francis’ Life**\
-`Selected photographs from the life and papacy of Pope Francis.`\
-https://nytimes.com/2025/04/21/world/europe/pope-francis-life-photos.html
+**10 TV Character Deaths That Shocked Fans Through History**\
+`The big twist in “The Last of Us” this week wasn’t the first to completely upend a TV show and its fandom. Here’s a look at some other notable exits.`\
+https://nytimes.com/2025/04/21/arts/television/shocking-tv-deaths-last-of-us.html
 
-**Francis Worked to Make Catholic Church More Inclusive**\
-`Pope Francis sought to make the church more welcoming, global and collegial, after his predecessors adopted more doctrinaire and traditional approaches.`\
-https://nytimes.com/2025/04/21/world/europe/pope-francis-catholic-church-legacy.html
+**What Do I Wear to a Spring Outing With Co-Workers?**\
+`Figuring out how to dress for an out-of-office excursion can be fraught. Our critic suggests ways to loosen up a corporate uniform — but not too much.`\
+https://nytimes.com/2025/04/21/style/spring-business-casual-clothing.html
 
-**Here’s the latest.**\
-`By Jason Horowitz`\
-https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/heres-the-latest
+**Welcome to Trump’s Mafia State**\
+`“Nice university you got there. Shame if something happened to it.”`\
+https://nytimes.com/2025/04/21/opinion/trump-universities-mafia-state.html
 
-**Live Updates: Pope Francis Dies at 88**\
-`His groundbreaking pontificate worked to make the Catholic Church more inclusive. Cardinals will now decide whether to continue his approach or restore more doctrinaire leadership.`\
-https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican
+**Larry David: My Dinner With Adolf**\
+`When a private meeting goes unexpectedly.`\
+https://nytimes.com/2025/04/21/opinion/larry-david-hitler-dinner.html
 
-**Francis, the First Latin American Pope, Dies at 88**\
-`After decades of conservative leadership, Francis tried to reset the course of the Roman Catholic Church, emphasizing inclusion and care for the marginalized over doctrinal purity.`\
-https://nytimes.com/2025/04/21/world/europe/pope-francis-dead.html
+**Another Blackout Forces the Question of Puerto Rico’s Political Future**\
+`For over half a century, the island’s commonwealth status was justified by promises of security, stability and the material comforts of modern life.`\
+https://nytimes.com/2025/04/21/opinion/puerto-rico-blackout.html
 
-**Fan arrested after object strikes assistant referee in Saint-Etienne vs. Lyon**\
-`The game was reportedly suspended for almost 45 minutes after the incident.`\
-https://nytimes.com/athletic/6295792/2025/04/21/saint-etienne-lyon-arrest/
+**How Have DOGE Cuts Affected Prince George’s and Charles Counties?**\
+`A Times reporting team is looking for reader input on how the reduction in the federal work force has affected the two Maryland communities.`\
+https://nytimes.com/2025/04/21/realestate/black-federal-workers-prince-georges-charles-county.html
 
-**Harvey Weinstein Becomes an Unlikely Voice in the Push to Close Rikers**\
-`The disgraced producer has complained volubly about his treatment in jail on Rikers Island. Advocates for detainees say any attention to conditions there can’t hurt.`\
-https://nytimes.com/2025/04/21/nyregion/harvey-weinstein-rikers-island.html
+**Supreme Court Story Time: Justices Consider Children’s Books With L.G.B.T.Q. Themes**\
+`Parents in Maryland say they have a religious right to withdraw their children from classes on days that storybooks with gay and transgender themes are discussed.`\
+https://nytimes.com/2025/04/21/us/politics/supreme-court-childrens-books-gay-trans.html
 
-**Where Do the Democrats Running for Mayor of New York City Stand on the Issues?**\
-`The New York Times sent a wide-ranging survey to candidates in the Democratic primary for mayor of New York City about affordability, public safety, President Trump, homelessness, congestion pricing, immigration, schools and their one big idea.`\
-https://nytimes.com/interactive/2025/04/21/nyregion/nyc-mayor-democratic-candidates-issues.html
+**The Magic of Ballet Captured by a Master’s Camera**\
+`Alexey Brodovitch, the transformative art director of Harper’s Bazaar, made one book, “Ballet,” a photographic landmark that has been reprinted for its 80th anniversary.`\
+https://nytimes.com/2025/04/21/arts/dance/alexey-brodovitch-ballet-photography.html
 
