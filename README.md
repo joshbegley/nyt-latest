@@ -1,3 +1,7 @@
+**Who Will Be the Next Pope? Here Are Some Possible Contenders.**\
+`Experts say there isn’t a single front-runner, but several names have been floated as indications of which direction the Roman Catholic Church might take.`\
+https://nytimes.com/2025/04/21/world/europe/next-pope-francis-candidates.html
+
 **The Bounce: The NBA postseason has arrived, so it's time for the Playoff Panic Meter!**\
 `Every Game 1 for the first round is in the books, and it’s never too early to panic. Which team should be most worried so far?`\
 https://nytimes.com/athletic/6296366/2025/04/21/nba-playoffs-lakers-timberwolves-luka-doncic-lebron-james-anthony-edwards-nba-the-bounce/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/04/21/opinion/pope-francis-catholic-church-weakness.htm
 **Francis made climate change a central concern of his papacy.**\
 `By Somini Sengupta`\
 https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/francis-made-climate-change-a-central-concern-of-his-papacy
-
-**The Athletic college baseball Top 25: Clemson climbs to No. 2, Vanderbilt crashes top 10**\
-`Clemson, which has not lost a series all season, is 35-7 overall and 13-5 in the ACC. `\
-https://nytimes.com/athletic/6296174/2025/04/21/college-baseball-rankings-clemson-texas-vanderbilt/
 

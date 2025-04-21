@@ -1,3 +1,8 @@
+**Man City vs Villa betting tips: Gvardiol's magic or visitors to force a draw?**\
+`Brett Koremenos has a look at the best bets around Manchester City’s midweek clash with Aston Villa.
+`\
+https://nytimes.com/athletic/6296209/2025/04/21/manchester-city-vs-aston-villa-odds-is-josko-gvardiol-pep-guardiolas-secret-weapon/
+
 **How Francis, a Progressive Pope, Catalyzed the Catholic Right in the U.S.**\
 `His critics were fellow clergy as well as elected officials in the ascendant wing of the American Catholic political realm.`\
 https://nytimes.com/2025/04/21/us/pope-francis-catholic-right.html
