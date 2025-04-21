@@ -1,3 +1,7 @@
+**Alexander-Arnold's parting gift for Liverpool — and a final moment for him to savour**\
+`Alexander-Arnold, who is widely expected to join Real Madrid, scored Liverpool's winner against Leicester City`\
+https://nytimes.com/athletic/6295011/2025/04/21/trent-alexander-arnold-liverpool-leicester-goal/
+
 **Heat's plan to be 'disruptive' doesn't get the job done against Cavs**\
 `Cleveland's guards got exactly what they wanted, and Miami couldn't get Tyler Herro the ball in crunchtime in the Game 1 loss.`\
 https://nytimes.com/athletic/6295597/2025/04/21/heat-struggle-tyler-herro-game-1-loss/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6295585/2025/04/21/maple-leafs-nhl-playoff-demons-s
 **Man City defeat shows that Everton's revival can only continue with more depth**\
 `The potential loss of James Tarkowski to a rare injury serves as a reminder that this squad needs bolstering`\
 https://nytimes.com/athletic/6292684/2025/04/21/everton-tarkowski-man-city-injury/
-
-**Newcastle have been served a warning for next season: This squad needs more depth**\
-`Newcastle named the same starting line-up when they lost 4-1 against Aston Villa on Saturday`\
-https://nytimes.com/athletic/6292084/2025/04/21/newcastle-united-aston-villa-analysis/
 
