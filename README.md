@@ -1,3 +1,27 @@
+**Watchdog Group Asks Judge to Preserve Signal Chats by Top Trump Officials**\
+`The request by American Oversight came after revelations that Defense Secretary Pete Hegseth shared information on upcoming strikes in more than one group chat.`\
+https://nytimes.com/2025/04/21/us/politics/trump-officials-signal-chats-hegseth-leak.html
+
+**Nico Harrison admits he underestimated ties between Luka Dončić, Mavericks fans**\
+`“I did know that Luka was important to the fan base,” Harrison said. “I didn’t quite know to what level.”`\
+https://nytimes.com/athletic/6296898/2025/04/21/mavericks-fans-nico-harrison-luka-doncic/
+
+**Blackhawks chairman: CHSN viewership nosedive is 'unacceptable'**\
+`Wirtz: "I am focused on finding potential solutions for next season with our partners at CHSN."`\
+https://nytimes.com/athletic/6297335/2025/04/21/blackhawks-chsn-viewership/
+
+**Colts takeaways: Indy won't 'chase' TE early in NFL Draft: 'That's when you make mistakes'**\
+`The Colts have looking for a long-term answer at TE ever since Jack Doyle retired. Will they find one in the draft?`\
+https://nytimes.com/athletic/6297090/2025/04/21/colts-nfl-draft-tight-end-tyler-warren-colston-loveland/
+
+**Padres' Luis Arraez placed on 7-day IL after on-field collision**\
+`Luis Arraez was transported Sunday to a local hospital following a grisly collision at first base and is now in concussion protocol.`\
+https://nytimes.com/athletic/6297125/2025/04/21/padres-luis-arraez-collision-injured-list/
+
+**Seattle Kraken fire coach Dan Bylsma after 1 season: Sources**\
+`The Kraken finished seventh in the Pacific Division this season, with 76 points.`\
+https://nytimes.com/athletic/6293478/2025/04/21/seattle-kraken-bylsma-fired-coach/
+
 **Tuesday Briefing: Tributes for Pope Francis**\
 `Plus, making a difference on Earth Day.`\
 https://nytimes.com/2025/04/21/briefing/pope-francis-death-vance-modi-india-israel.html
@@ -13,30 +37,4 @@ https://nytimes.com/athletic/6292413/2025/04/21/tottenham-nottingham-forest-anal
 **Lo que hay que saber sobre la muerte del papa y lo que sigue en los próximos días**\
 `By Jason Horowitz`\
 https://nytimes.com/live/2025/04/21/espanol/muere-papa-francisco/lo-que-hay-que-saber-sobre-la-muerte-del-papa-y-lo-que-sigue-en-los-proximos-dias
-
-**What Happens After the Pope Dies?**\
-`After Pope Francis’ funeral, 135 cardinals will gather for a conclave to elect a new pope. The traditions include oaths of secrecy, paper ballots and white smoke from a chimney of the Sistine Chapel.`\
-https://nytimes.com/2025/04/21/world/europe/what-happens-after-the-pope-dies.html
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>April has become a surprisingly busy time in college football, what with the spring portal window and spring practices colliding.</p>
-<p>Leave your questions here. Please include your city.</p>
-`\
-https://nytimes.com/athletic/6297324/2025/04/21/submit-a-question-for-stewart-mandels-college-football-mailbag-299/
-
-**Argentines mourn a ‘humble’ pope and a native son.**\
-`Across Argentina, many people flocked to churches to mourn Pope Francis. Some recalled personal encounters before he became pontiff.`\
-https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/argentines-mourn-a-humble-pope-and-a-native-son
-
-**For Pope Francis, a Last Burst of Pastoring Before Death**\
-`The Catholic faithful took heart when the pontiff, after two brushes with death, emerged from a hospital and resumed some of his duties. Their joy proved short-lived.`\
-https://nytimes.com/2025/04/21/world/europe/pope-francis-mourning.html
-
-**‘Cónclave’ ofrece un vistazo al hermético proceso de elección del papa**\
-`Los expertos papales han elogiado la película nominada al Oscar como una de las descripciones más precisas de la reunión a puerta cerrada del Vaticano.`\
-https://nytimes.com/2025/04/21/espanol/mundo/papa-francisco-conclave-pelicula.html
-
-**Francis opened the door to the L.G.B.T.Q. community, but only so much.**\
-`By Liam Stack`\
-https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/francis-opened-the-door-to-the-lgbtq-community-but-only-so-much
 
