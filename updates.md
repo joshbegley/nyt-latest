@@ -1,3 +1,19 @@
+**Supreme Court Declines to Hear Case on Age Limits for Carrying Guns**\
+`An appeals court had struck down a Minnesota law that applied to 18- to 20-year olds, saying it violated a new Second Amendment test focusing on history.`\
+https://nytimes.com/2025/04/21/us/supreme-court-guns-age.html
+
+**Hawks fire general manager Landry Fields, Onsi Saleh to assume GM duties**\
+`The team also announced it will begin a search for a new president of basketball operations.`\
+https://nytimes.com/athletic/6296613/2025/04/21/hawks-fire-general-manager-landry-fields-onsi-saleh/
+
+**What does UK Supreme Court's ruling on legal definition of a woman mean for sport?**\
+`In a historic ruling last week, judges at the UK’s highest court ruled that the legal definition of a woman is based on biological sex`\
+https://nytimes.com/athletic/6287102/2025/04/21/uk-supreme-court-ruling-legal-definition-woman/
+
+**Joey Aguilar set to enter portal following Nico Iamaleava's arrival at UCLA: Source**\
+`Could the former App State starter end up at Tennessee? What are some other potential fits?`\
+https://nytimes.com/athletic/6296637/2025/04/21/joey-aguilar-nico-iamaleava-ucla-qb/
+
 **Can a Judge Hold the White House in Contempt of Court?**\
 `The Trump administration has arrived at the cusp of what a judge suspects is outright defiance of court orders. Adam Liptak, who covers the Supreme Court for The New York Times, explores what could come next.`\
 https://nytimes.com/video/us/100000010115269/can-a-judge-hold-the-white-house-in-contempt-of-court.html
