@@ -1,3 +1,11 @@
+**Wild stick with Zeev Buium amid possible Game 2 lineup changes — and they won't worry about officiating**\
+`Minnesota had only 20 shots reach Vegas goalie Adin Hill in Game 1. This is one area where the Wild must adjust and improve.`\
+https://nytimes.com/athletic/6297712/2025/04/21/wild-game-2-buium-penalties/
+
+**Ron Rivera sheds light on his duties as Cal's general manager**\
+`Rivera confirmed Monday that he can recommend staff hiring and firing decisions to the school’s chancellor.`\
+https://nytimes.com/athletic/6297753/2025/04/21/ron-rivera-cal-football-general-manager/
+
 **G.O.P. Leader Asks Attorney General Pam Bondi to Prosecute Andrew Cuomo**\
 `A Republican House chairman renewed a request to the Justice Department to prosecute Mr. Cuomo for allegedly making false statements to Congress.`\
 https://nytimes.com/2025/04/21/nyregion/cuomo-criminal-referral-covid.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/americas/100000010122767/pope-francis-death-arge
 **NCAA passes proposals that would allow schools to pay athletes, pending settlement**\
 `A federal judge granted preliminary approval of the settlement in October and hinted two weeks ago she seems likely to grant final approval.`\
 https://nytimes.com/athletic/6297444/2025/04/21/ncaa-athlete-pay-house-settlement/
-
-**Herbert J. Gans, 97, Dies; Upended Myths on Urban and Suburban Life**\
-`A leading sociologist, he explored American society up close — living in a Levittown at one point — to gain insight into issues of race, class, the media and even the Yankees.`\
-https://nytimes.com/2025/04/21/books/herbert-j-gans-dead.html
-
-**In New Trial, Palin Says New York Times Editorial Damaged Her Reputation**\
-`Closing arguments in the libel case are expected on Tuesday, after which the nine jurors will begin deliberations.`\
-https://nytimes.com/2025/04/21/business/media/sarah-palin-new-york-times-trial.html
 
