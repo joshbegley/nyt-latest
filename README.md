@@ -1,3 +1,7 @@
+**Heat fail to get Herro the ball in crunch time as Cavs guards prevail in Game 1**\
+`Miami needed Herro in the fight to combat Cleveland’s shooting, but he wasn't even involved in most of the action in the fourth quarter.`\
+https://nytimes.com/athletic/6295597/2025/04/21/heat-struggle-tyler-herro-game-1-loss/
+
 **Markets Slump on Persistent Concern That Tariffs Will Hurt Growth**\
 `Trump’s tariffs continued to jar investors on Monday as stocks in Asia mostly fell and the U.S. dollar weakened.`\
 https://nytimes.com/2025/04/21/business/trump-tariffs-stock-markets.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6292684/2025/04/21/everton-tarkowski-man-city-injur
 **Newcastle have been served a warning for next season: This squad needs more depth**\
 `Newcastle named the same starting line-up when they lost 4-1 against Aston Villa on Saturday`\
 https://nytimes.com/athletic/6292084/2025/04/21/newcastle-united-aston-villa-analysis/
-
-**Maresca may have lost Chelsea's fans, but he has clearly not lost the players**\
-`The head coach was booed before a comeback brought three points. Will fans ever take to him?`\
-https://nytimes.com/athletic/6294389/2025/04/21/chelsea-fulham-maresca-fans-players/
 
