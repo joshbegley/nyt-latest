@@ -1,3 +1,11 @@
+**Bears mock draft 3.0: Offensive tackle, tight end, running back or edge at No. 10?**\
+`Our final Bears mock draft assumes that Will Campbell, Ashton Jeanty and Mason Graham will all be gone before the 10th pick.`\
+https://nytimes.com/athletic/6287127/2025/04/21/bears-2025-nfl-mock-draft/
+
+**Vikings 7-round mock draft: Final predictions on who they'll pick and where**\
+`Will the Vikings stick and pick at 24? Will they trade back? Which positions will they draft? We provide answers in our final mock draft.`\
+https://nytimes.com/athletic/6290518/2025/04/21/vikings-nfl-mock-draft-2025-grey-zabel/
+
 **Astros takeaways: Framber Valdez's sinker, a low-velocity bullpen, aggressive baserunning**\
 `Five starts into his platform season, Valdez is still searching for that signature pitch.`\
 https://nytimes.com/athletic/6295508/2025/04/21/framber-valdez-sinker-bullpen-baserunning-astros-takeaways/
