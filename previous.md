@@ -1,3 +1,7 @@
+**What we learned about Canucks' offseason plan from Rutherford and Allvin**\
+`What will the Canucks to do to pick up the pieces as they enter a deeply unsettled offseason?`\
+https://nytimes.com/athletic/6296874/2025/04/21/canucks-rutherford-allvin-tocchet-hughes/
+
 **Argentinians React to Pope Francis’ Death**\
 `In Buenos Aires, where Pope Francis was once archbishop, people lit candles and filled church pews to pray for him.`\
 https://nytimes.com/video/world/americas/100000010122767/pope-francis-death-argentina.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6297102/2025/04/21/pacers-bucks-playoffs-game-2/
 **The World Mourned Pope Francis**\
 `Also, the U.S. asked a judge to break up Google. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/04/21/briefing/pope-francis-dead-google-antitrust-hearing.html
-
-**Francis Had Health Issues That Can Increase the Risk of Stroke**\
-`The declaration of death said the pope had Type 2 diabetes and high blood pressure, along with bronchiectasis, a chronic lung condition.`\
-https://nytimes.com/2025/04/21/world/europe/pope-francis-stroke-death.html
 

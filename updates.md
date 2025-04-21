@@ -1,3 +1,7 @@
+**What we learned about Canucks' offseason plan from Rutherford and Allvin**\
+`What will the Canucks to do to pick up the pieces as they enter a deeply unsettled offseason?`\
+https://nytimes.com/athletic/6296874/2025/04/21/canucks-rutherford-allvin-tocchet-hughes/
+
 **Argentinians React to Pope Francis’ Death**\
 `In Buenos Aires, where Pope Francis was once archbishop, people lit candles and filled church pews to pray for him.`\
 https://nytimes.com/video/world/americas/100000010122767/pope-francis-death-argentina.html
