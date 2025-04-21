@@ -1,3 +1,11 @@
+**F.T.C. Sues Uber Over Billing for Its Premium Subscription Service**\
+`The suit is an indication that the commission’s close scrutiny of the tech industry will continue in the Trump administration.`\
+https://nytimes.com/2025/04/21/technology/uber-one-lawsuit-ftc.html
+
+**Lindelof left Man Utd-Lyon early after learning son 'split entire head open'**\
+`The centre-back left the stadium after the first half when learning his son was badly wounded falling into a glass staircase at home.`\
+https://nytimes.com/athletic/6296835/2025/04/21/victor-lindelof-manchester-united-son-accident/
+
 **Francine Tint Is Finally ‘Having Her Time’**\
 `At 82, the widely admired artist is getting the higher level of recognition she has sought for decades.`\
 https://nytimes.com/2025/04/21/arts/design/francine-tint-new-york.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6297191/2025/04/21/submit-your-questions-for-grace-
 **Six Men Are Charged After Woman Was Dragged From Idaho Town Hall**\
 `The plainclothes guards were involved in the forcible removal of a woman from a meeting hosted by local Republicans in Coeur d’Alene, prosecutors said.`\
 https://nytimes.com/2025/04/21/us/idaho-coeur-dalene-town-hall-charges.html
-
-**Avalanche activate Gabriel Landeskog from injured reserve after 3-year absence**\
-`Landeskog last suited up for Colorado in June 2022. Since then, it’s been nothing but surgeries and pain and setbacks.`\
-https://nytimes.com/athletic/6297053/2025/04/21/gabriel-landeskog-colorado-avalanche-nhl-playoffs/
-
-**Nadine Menendez Is Found Guilty of Taking Bribes and Obstructing Justice**\
-`Ms. Menendez had been charged with her husband, Robert Menendez, a former New Jersey senator convicted in July of trading his political influence for gold, cash and a Mercedes-Benz.`\
-https://nytimes.com/2025/04/21/nyregion/nadine-bob-menendez-wife-guilty-bribery-trial.html
 

@@ -1,3 +1,11 @@
+**F.T.C. Sues Uber Over Billing for Its Premium Subscription Service**\
+`The suit is an indication that the commission’s close scrutiny of the tech industry will continue in the Trump administration.`\
+https://nytimes.com/2025/04/21/technology/uber-one-lawsuit-ftc.html
+
+**Lindelof left Man Utd-Lyon early after learning son 'split entire head open'**\
+`The centre-back left the stadium after the first half when learning his son was badly wounded falling into a glass staircase at home.`\
+https://nytimes.com/athletic/6296835/2025/04/21/victor-lindelof-manchester-united-son-accident/
+
 **Francine Tint Is Finally ‘Having Her Time’**\
 `At 82, the widely admired artist is getting the higher level of recognition she has sought for decades.`\
 https://nytimes.com/2025/04/21/arts/design/francine-tint-new-york.html
