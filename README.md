@@ -6,9 +6,9 @@ https://nytimes.com/athletic/6295283/2025/04/20/leafs-senators-game-1-takeaways-
 `Paolo Banchero and Franz Wagner accounted for 59 points Sunday. The rest of the Magic scored 27.`\
 https://nytimes.com/athletic/6295292/2025/04/20/magic-celtics-game-1-nba-playoffs-orlando-role-players/
 
-**El Salvador’s president proposes repatriating Venezuelans sent by Trump, but wants Venezuela to free prisoners in return.**\
-`On`\
-https://nytimes.com/2025/04/20/us/el-salvadors-president-proposes-repatriating-venezuelans-sent-by-trump-but-wants-venezuela-to-free-prisoners-in-return.html
+**Bukele Proposes Deal That Would Free Deported Venezuelans**\
+`President Nayib Bukele said he would free the Venezuelans that the Trump administration deported to El Salvador if Venezuela releases the same number of prisoners, including members of the opposition.`\
+https://nytimes.com/2025/04/20/us/venezuela-bukele-maduro-prisoners-deported-immigration.html
 
 **Trump Raised $239 Million for Inauguration, More Than Doubling His Own Record**\
 `The staggering amount, disclosed in a filing with the Federal Election Commission, was driven by corporate America’s eagerness to win the president’s favor.`\
