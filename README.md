@@ -1,3 +1,11 @@
+**Tuesday Briefing: Tributes for Pope Francis**\
+`Plus, making a difference on Earth Day.`\
+https://nytimes.com/2025/04/21/briefing/pope-francis-death-vance-modi-india-israel.html
+
+**Harvard University Sues Trump Administration**\
+`Harvard’s lawsuit comes after the administration sought to force the university to comply with a list of demands by cutting billions in federal funding the school receives.`\
+https://nytimes.com/2025/04/21/us/harvard-lawsuit-trump-administration.html
+
 **The Briefing: Tottenham 1 Nottingham Forest 2 - a vital win for Nuno, another setback for Postecoglou**\
 `Elias Burke and Paul Taylor analyse the main talking points from Nottingham Forest's victory at Tottenham Hotspur`\
 https://nytimes.com/athletic/6292413/2025/04/21/tottenham-nottingham-forest-analysis/
@@ -31,12 +39,4 @@ https://nytimes.com/2025/04/21/espanol/mundo/papa-francisco-conclave-pelicula.ht
 **Francis opened the door to the L.G.B.T.Q. community, but only so much.**\
 `By Liam Stack`\
 https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/francis-opened-the-door-to-the-lgbtq-community-but-only-so-much
-
-**Oilers' Jeff Skinner set to end record 15-season NHL playoff drought**\
-`Skinner owns the NHL record for most regular-season games played without a postseason appearance at 1,078.`\
-https://nytimes.com/athletic/6296925/2025/04/21/jeff-skinner-oilers-nhl-playoffs-record/
-
-**J Is for Japan**\
-`The country that changed modern culture and design, from A to Z.`\
-https://nytimes.com/series/j-is-for-japan
 
