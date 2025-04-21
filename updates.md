@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Democratic Lawmakers Demand Release of Maryland Man in Visit to El Salvador**\
+``\
+https://nytimes.com/live/2025/04/21/us/trump-administration-news
+
 **The Lyrids Meteor Shower Is Peaking. Here’s How to Watch.**\
 `Active since last week, the shower is formed from a comet’s debris and is forecast to produce the most fireballs overnight.`\
 https://nytimes.com/2025/04/21/science/lyrid-meteor-shower.html
