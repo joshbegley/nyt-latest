@@ -1,3 +1,27 @@
+**Measles Surge in Southwest Is Now the Largest Single Outbreak Since 2000**\
+`Growing case numbers suggest that national total will surpass that seen during the last large outbreak in 2019.`\
+https://nytimes.com/2025/04/22/health/measles-southwest-outbreak.html
+
+**The Briefing - Manchester City 2 Aston Villa 1 - Late drama and fan protests as City climb into third place**\
+`We break down the key moments from a crucial game in the Premier League's top-five race `\
+https://nytimes.com/athletic/6299660/2025/04/22/manchester-city-aston-villa-premier-league-analysis/
+
+**Wednesday Briefing: A Downgrade in Global Growth**\
+`Plus, the next big thing from Japan.`\
+https://nytimes.com/2025/04/22/briefing/global-growth-pope-funeral-russia-ukraine-talks.html
+
+**The Face-Plant President**\
+`There’s no better opponent than one who repeatedly trips over his shoelaces.`\
+https://nytimes.com/2025/04/22/opinion/trump-hegseth-powell.html
+
+**Buffalo Diocese Agrees to Pay $150 Million to Settle Sex Abuse Claims**\
+`The provisional settlement comes after years of negotiation with the scandal-plagued diocese in New York’s second-largest city.`\
+https://nytimes.com/2025/04/22/nyregion/buffalo-catholic-diocese-sexual-abuse.html
+
+**Costa Rica Tells Trump Deportees They Can Stay and Integrate, or Leave**\
+`The country is taking action to “protect” dozens of migrants from faraway nations who were deported from the United States and until recently, were indefinitely detained.`\
+https://nytimes.com/2025/04/22/world/americas/costa-rica-deported-migrants.html
+
 **Will Campbell, Tyler Warren's Rolexes to be given away after NFL Draft**\
 `The two first-round hopefuls are introducing a new piece of NFL Draft memorabilia`\
 https://nytimes.com/athletic/6299468/2025/04/22/nfl-draft-will-campbell-tyler-warren-watches-rolex/

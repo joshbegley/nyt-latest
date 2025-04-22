@@ -1,3 +1,7 @@
+**Francis was the pope who made the most saints.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/saints-mother-teresa
+
 **Measles Surge in Southwest Is Now the Largest Single Outbreak Since 2000**\
 `Growing case numbers suggest that national total will surpass that seen during the last large outbreak in 2019.`\
 https://nytimes.com/2025/04/22/health/measles-southwest-outbreak.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/22/us/politics/judge-trump-voice-of-america.html
 **Celtics' Tatum doubtful for Game 2 vs. Magic due to bone bruise**\
 `Tatum sustained the injury in Game 1 during a hard fall in the fourth quarter after taking a flagrant foul from Kentavious Caldwell-Pop.`\
 https://nytimes.com/athletic/6299895/2025/04/22/jayson-tatum-doubtful-celtics-magic-game-2/
-
-**Costa Rica Tells Trump Deportees They Can Stay and Integrate, or Leave**\
-`The country is taking action to “protect” dozens of migrants from faraway nations who were deported from the United States and until recently, were indefinitely detained.`\
-https://nytimes.com/2025/04/22/world/americas/costa-rica-deported-migrants.html
 
