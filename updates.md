@@ -1,3 +1,7 @@
+**I Watched the Pope Visit the Forgotten and Convert the Skeptical**\
+`Jim Yardley, a former Rome bureau chief for The New York Times, witnessed Pope Francis’ transformation from an unlikely papal contender to a beloved figure.`\
+https://nytimes.com/2025/04/22/world/europe/pope-francis-death-legacy.html
+
 **Shannon Sharpe Is Accused of Rape by Ex-Girlfriend**\
 `A lawyer for Mr. Sharpe, who hosts the podcast “Club Shay Shay,” said the sexual encounters were consensual and called the lawsuit “a blatant and cynical attempt” at a shakedown.`\
 https://nytimes.com/2025/04/22/arts/shannon-sharpe-lawsuit-rape-sexual-assault.html
