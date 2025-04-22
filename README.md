@@ -1,3 +1,11 @@
+**At Least 24 Tourists Reported Killed by Gunmen in Kashmir**\
+`The attack, in a picturesque district of India, was the worst assault against civilians in the restive region in years, its leader said.`\
+https://nytimes.com/2025/04/22/world/asia/kashmir-terrorist-attack.html
+
+**Damian Lillard will play Game 2 vs. Pacers after blood clot recovery**\
+`Lillard’s absence forced the Bucks to rely entirely on Giannis Antetokounmpo in the series' opening game.`\
+https://nytimes.com/athletic/6299153/2025/04/22/damian-lillard-return-bucks-pacers-game-2/
+
 **In ‘Ransom Canyon,’ Minka Kelly Enjoys the Ride**\
 `The “Friday Night Lights” star didn’t think a romantic lead would be available to a woman in her 40s. But it was, and it might be just the beginning.`\
 https://nytimes.com/2025/04/22/arts/television/minka-kelly-ransom-canyon.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010123616/pope-francis-gaza-chu
 **Schumer Asks for Documents That Prove a Claim on DOGE’s Website**\
 `Elon Musk’s group says it saved $318 million by canceling a “request for proposal” from the Office of Personnel Management but did not release the request itself.`\
 https://nytimes.com/2025/04/22/us/politics/doge-claim-schumer.html
-
-**Russia and Ukraine, Under Trump Pressure, Signal Openness to Direct Talks**\
-`An unusual public back-and-forth suggested that both sides in the war were eager to at least appear interested in negotiations.`\
-https://nytimes.com/2025/04/22/world/europe/russia-ukraine-putin-zelensky.html
-
-**Justice Dept. Continues to Stonewall on Efforts to Return Maryland Man**\
-`In refusing to reveal much of anything about the administration’s efforts, department lawyers insisted the information constituted state secrets that needed to be protected.`\
-https://nytimes.com/2025/04/22/us/politics/trump-justice-department-abrego-garcia-el-salvador.html
 
