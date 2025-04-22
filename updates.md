@@ -1,3 +1,11 @@
+**How Bats Enjoy an In-Flight Beverage Service**\
+`Bats are not only masters of aerodynamic flight — they’re skillful at multitasking while flying, too.`\
+https://nytimes.com/2025/04/22/science/bats-drinking-flight.html
+
+**A Simpler Funeral for Francis, Who Shunned Many Gilt Papal Trappings**\
+`A funeral will be held on Saturday for the pope, who changed the rules to make such ceremonies simpler than those traditionally observed.`\
+https://nytimes.com/2025/04/22/world/europe/pope-francis-funeral.html
+
 **Improvement in execution gives Canadiens strong belief in their Game 2 chances**\
 `Montreal needs to have a clear mind right from the start of Game 2, something it showed it could do in the third period of Game 1.`\
 https://nytimes.com/athletic/6300225/2025/04/22/canadiens-nhl-playoffs-capitals-game-2/
