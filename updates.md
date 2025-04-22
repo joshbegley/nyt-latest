@@ -1,3 +1,7 @@
+**Hegseth Attacks the Media Amid New Signal Controversy**\
+`During the Easter Egg Roll at the White House, Pete Hegseth called coverage of his sharing of sensitive military data via text with civilians a “smear.”`\
+https://nytimes.com/video/us/politics/100000010123247/hegseth-easter-egg-roll-signal-group-chat.html
+
 **Stars take dramatic OT win to even series with Avalanche: Takeaways**\
 `The Stars beat the Avalanche 4-3 in overtime to send the series to Colorado tied 1-1.`\
 https://nytimes.com/athletic/6298091/2025/04/22/stars-avalanche-game-2-nhl-playoffs/

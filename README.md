@@ -1,3 +1,7 @@
+**Jimmy Kimmel Praises Pope Francis for Going Out With a Mic Drop**\
+`“Is there anything more Catholic than waiting until Monday to die so you don’t upstage Jesus Christ?” Kimmel said.`\
+https://nytimes.com/2025/04/22/arts/television/jimmy-kimmel-pope-francis-death.html
+
 **Hegseth Attacks the Media Amid New Signal Controversy**\
 `During the Easter Egg Roll at the White House, Pete Hegseth called coverage of his sharing of sensitive military data via text with civilians a “smear.”`\
 https://nytimes.com/video/us/politics/100000010123247/hegseth-easter-egg-roll-signal-group-chat.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/100000010121936/why-pope-francis-was-always-a-su
 **Braves rally again to extend winning streak to 4, but Spencer Strider returns to IL**\
 `After learning of Strider's injury, Atlanta shrugged off doom and staged a late offensive outburst for a 7-6 comeback win against St. Louis.`\
 https://nytimes.com/athletic/6298201/2025/04/22/braves-win-strider-on-injured-list/
-
-**How Kroenke's sports empire pieces work to influence Arsenal, MLS, 2026 World Cup**\
-`How SoFi Stadium's construction could impact future work to the Emirates and more from Stan Kroenke's right-hand man.`\
-https://nytimes.com/athletic/6288066/2025/04/22/kroenke-demoff-arsenal-rams-rapids-mls-world-cup-sofi-emirates-stadium/
 
