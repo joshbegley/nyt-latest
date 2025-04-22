@@ -1,3 +1,11 @@
+**Rose Bowl kickoff time moved up an hour: What about the sunset?**\
+`Sunset over the San Gabriel Mountains will likely come during the Rose Bowl's final minutes rather than early in the fourth quarter.`\
+https://nytimes.com/athletic/6299664/2025/04/22/rose-bowl-kick-time-espn-cfp-sunset/
+
+**At the pope’s hospital, Francis was a calming and mischievous presence.**\
+`The Vatican-run Bambino Gesu mourns a pontiff who would show up last minute, and left lasting memories.`\
+https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/at-the-popes-hospital-francis-was-a-calming-and-mischievous-presence
+
 **Republicans Begin a Trump-Centric Battle to Succeed Mitch McConnell**\
 `The primary race in Kentucky for Mr. McConnell’s seat is expected to be one of the biggest G.O.P. clashes of 2026. On Tuesday, it gained its second high-profile contender, Representative Andy Barr.`\
 https://nytimes.com/2025/04/22/us/politics/andy-barr-kentucky-senate-mitch-mcconnell.html
