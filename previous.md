@@ -1,3 +1,15 @@
+**NBA players sound off on league’s gambling partnerships and their impact**\
+`Terrible, great, black eye, opportunity — those are just some of the words players used to describe the complex topic.`\
+https://nytimes.com/athletic/6298159/2025/04/22/nba-player-poll-gambling-partnerships/
+
+**Joint Chiefs Chairman Visits Border as Military Presence Expands**\
+`Gen. Dan Caine’s first official trip underscored how the White House has prioritized the mission, which now involves nearly 7,000 active-duty troops.`\
+https://nytimes.com/2025/04/22/us/politics/caine-pentagon-border-trump.html
+
+**He's back: Kawhi Leonard authors an all-time response game against Nuggets**\
+`After a costly late turnover in Game 1, Leonard was nearly perfect on Monday with 39 points on 15-of-19 shooting.`\
+https://nytimes.com/athletic/6298531/2025/04/22/kawhi-leonard-clippers-playoffs-game-2-nuggets/
+
 **Action Figure**\
 `Design your own action figure or doll. What would you want it to look like?`\
 https://nytimes.com/2025/04/22/learning/action-figure.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6296492/2025/04/22/senators-maple-leafs-five-on-fiv
 **Seahawks NFL Draft big board: 53 players to watch, including 14 in Round 1**\
 `The Seahawks have emphasized they plan to take the best player available, putting a wide variety of options on the table.`\
 https://nytimes.com/athletic/6297609/2025/04/22/seahawks-nfl-draft-2025-big-board/
-
-**Anthony Edwards has become the leader the Timberwolves needed him to be**\
-`The 23-year-old superstar's evolution has included leading the locker room, as he showed in Game 1 against the Lakers. `\
-https://nytimes.com/athletic/6295059/2025/04/22/anthony-edwards-timberwolves-leadership-playoffs/
-
-**Why are so many former top-100 recruits hitting the transfer portal so quickly?**\
-`Eight of the top 100 players in the 2024 recruiting cycle switched schools in the winter portal window — after just one season on campus.`\
-https://nytimes.com/athletic/6297416/2025/04/22/college-football-transfer-portal-top-recruits/
-
-**49ers NFL Draft big board: 60 players to consider in rounds 1-7, including 1 QB**\
-`It would be a mild surprise if the 49ers draft an Oregon player given the number of Ducks in the draft and how they match the team's needs.`\
-https://nytimes.com/athletic/6297380/2025/04/22/49ers-nfl-draft-big-board-2025/
 
