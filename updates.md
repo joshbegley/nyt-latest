@@ -1,3 +1,11 @@
+**Trump Says He Has No Plans to Fire Powell**\
+`President Trump’s recent comments blasting Jerome H. Powell, the Federal Reserve chair, for being “late” to lower interest rates had raised questions about his fate.`\
+https://nytimes.com/2025/04/22/us/politics/trump-powell-fed.html
+
+**Shannon Sharpe accused of rape in $50 million lawsuit, denies allegations**\
+`Sharpe denied the allegations Tuesday in a video statement on X, calling the lawsuit a “shakedown."`\
+https://nytimes.com/athletic/6300220/2025/04/22/shannon-sharpe-rape-lawsuit/
+
 **Minnesota Sues Trump Administration Over Limits on Transgender Athletes**\
 `The administration has said it would cut federal funds to states that allow trans girls and women to play on girls’ sports teams.`\
 https://nytimes.com/2025/04/22/us/minnesota-trump-transgender-athletes.html
