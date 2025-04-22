@@ -1,3 +1,7 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/04/22/crosswords/spelling-bee-forum.html
+
 **Just look how far Nottingham Forest have come in a year**\
 `In April 2024, Forest were making angry social media posts. Twelve months on, they're busy strengthening their European credentials `\
 https://nytimes.com/athletic/6297822/2025/04/22/nottingham-forest-tottenham-champions-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6290481/2025/04/22/kings-oilers-game-1-nhl-playoffs
 **Zach Dezenzo delivered in a rare start. Can the Astros create more opportunities for him?**\
 `Swings like those Dezenzo displayed Monday may put the onus back on the Astros to find him more playing time.`\
 https://nytimes.com/athletic/6298260/2025/04/22/zach-dezenzo-start-astros-more-opportunities/
-
-**Tuesday Briefing: Tributes for Pope Francis**\
-`Plus, making a difference on Earth Day.`\
-https://nytimes.com/2025/04/22/briefing/pope-francis-india-us-israel.html
 

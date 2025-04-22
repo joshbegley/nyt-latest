@@ -1,3 +1,7 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/04/22/crosswords/spelling-bee-forum.html
+
 **Just look how far Nottingham Forest have come in a year**\
 `In April 2024, Forest were making angry social media posts. Twelve months on, they're busy strengthening their European credentials `\
 https://nytimes.com/athletic/6297822/2025/04/22/nottingham-forest-tottenham-champions-league/
