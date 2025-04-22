@@ -1,3 +1,7 @@
+**How Bats Enjoy an In-Flight Beverage Service**\
+`Bats are not only masters of aerodynamic flight — they’re skillful at multitasking while flying, too.`\
+https://nytimes.com/2025/04/22/science/bats-drinking-flight.html
+
 **A Simpler Funeral for Francis, Who Shunned Many Gilt Papal Trappings**\
 `A funeral will be held on Saturday for the pope, who changed the rules to make such ceremonies simpler than those traditionally observed.`\
 https://nytimes.com/2025/04/22/world/europe/pope-francis-funeral.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6299506/2025/04/22/sf-giants-april-hitting-slumps-h
 **NBA fines Anthony Edwards $50K for inappropriate language to a fan**\
 `The Minnesota Timberwolves took a 1-0 series lead over the Los Angeles Lakers Saturday night after 117-95 victory.`\
 https://nytimes.com/athletic/6300139/2025/04/22/anthony-edwards-fined-50k-nba-remarks-lakers-fan/
-
-**Les Snead, Sean McVay don't rule out Jalen Ramsey reunion with Rams**\
-`Jalen Ramsey was a key piece to the Rams' defense on their Super Bowl-winning team from the 2021 season.`\
-https://nytimes.com/athletic/6299868/2025/04/22/rams-jalen-ramsey-interest-sean-mcvay/
 
