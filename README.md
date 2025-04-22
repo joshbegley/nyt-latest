@@ -1,3 +1,19 @@
+**Russia and Ukraine, Under Trump Pressure, Signal Openness to Direct Talks**\
+`An unusual public back-and-forth suggested that both sides in the war were eager to at least appear interested in negotiations.`\
+https://nytimes.com/2025/04/22/world/europe/russia-ukraine-putin-zelensky.html
+
+**Justice Dept. Continues to Stonewall on Efforts to Return Maryland Man**\
+`In refusing to reveal much of anything about the administration’s efforts, department lawyers insisted the information constituted state secrets that needed to be protected.`\
+https://nytimes.com/2025/04/22/us/politics/trump-justice-department-abrego-garcia-el-salvador.html
+
+**The Bounce: The Pistons just ended a 6,174-day drought. Should the Knicks be worried?**\
+`The Pistons were too physical for the Knicks, and head back to Detroit with an even playoff series. What's next as playoffs heat up?`\
+https://nytimes.com/athletic/6298974/2025/04/22/cade-cunningham-pistons-knicks-nba-playoffs-the-bounce/
+
+**‘The Two Popes,’ ‘Conclave’ and Francis’ Autobiography: The Papacy in Recent Culture**\
+`The Vatican — with its politics, its pageantry and its power — has long been a favorite subject for artists and thinkers.`\
+https://nytimes.com/2025/04/22/world/europe/francis-two-popes-movie-book.html
+
 **Tesla’s Falling Profit May Pressure Elon Musk to Return to Day Job**\
 `The carmaker is expected to report a decline in quarterly earnings after Tesla’s brand suffered because of its chief executive’s role in the Trump administration.`\
 https://nytimes.com/2025/04/22/business/tesla-earnings-elon-musk.html
@@ -21,20 +37,4 @@ https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/for-his-final-
 **Hegseth says he ‘won’t blink’ in the face of criticism of his leadership.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2025/04/22/us/trump-administration-news/hegseth-says-he-wont-blink-in-the-face-of-criticism-of-his-leadership
-
-**Nikola Jokić, Nuggets uncharacteristically sloppy in Game 2 loss to Kawhi Leonard, Clippers**\
-`Jokić tallied a triple-double, but he had seven turnovers and a couple mental miscues late as LA evened the series at one win apiece.`\
-https://nytimes.com/athletic/6298185/2025/04/22/nuggets-clippers-nikola-jokic-nba-playoffs/
-
-**A Seaport Museum Faces an Unlikely Threat: The Sea Itself**\
-`Rising sea levels are forcing the Mystic Seaport Museum in Connecticut to address the long-term sustainability of its campus.`\
-https://nytimes.com/2025/04/22/arts/design/mystic-seaport-museum-sea-level-rise.html
-
-**During a trip to Mexico, Francis addressed the immigration debate.**\
-`By Simon Romero and Emiliano Rodríguez Mega`\
-https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/during-a-trip-to-mexico-francis-addressed-the-immigration-debate
-
-**Kings survive Game 1 collapse thanks to Phillip Danault's heroics**\
-`Danault scored with 41.1 seconds left, rescuing the Kings from a potentially nightmarish result in their series-opener against the Oilers.`\
-https://nytimes.com/athletic/6298572/2025/04/22/kings-oilers-phillip-danault-game-1-nhl-playoffs/
 

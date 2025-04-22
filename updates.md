@@ -1,3 +1,7 @@
+**Tesla’s Falling Profit May Pressure Elon Musk to Return to Day Job**\
+`The carmaker is expected to report a decline in quarterly earnings after Tesla’s brand suffered because of its chief executive’s role in the Trump administration.`\
+https://nytimes.com/2025/04/22/business/tesla-earnings-elon-musk.html
+
 **‘Macbeth in Stride’ Review: A Leap and Stumble Into a Classic**\
 `One of the most performed and reimagined works of English literature becomes a fourth-wall-breaking musical revue.`\
 https://nytimes.com/2025/04/22/theater/macbeth-in-stride-review.html

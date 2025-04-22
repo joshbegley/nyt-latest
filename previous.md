@@ -1,3 +1,7 @@
+**Tesla’s Falling Profit May Pressure Elon Musk to Return to Day Job**\
+`The carmaker is expected to report a decline in quarterly earnings after Tesla’s brand suffered because of its chief executive’s role in the Trump administration.`\
+https://nytimes.com/2025/04/22/business/tesla-earnings-elon-musk.html
+
 **‘Macbeth in Stride’ Review: A Leap and Stumble Into a Classic**\
 `One of the most performed and reimagined works of English literature becomes a fourth-wall-breaking musical revue.`\
 https://nytimes.com/2025/04/22/theater/macbeth-in-stride-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/during-a-trip-
 **Kings survive Game 1 collapse thanks to Phillip Danault's heroics**\
 `Danault scored with 41.1 seconds left, rescuing the Kings from a potentially nightmarish result in their series-opener against the Oilers.`\
 https://nytimes.com/athletic/6298572/2025/04/22/kings-oilers-phillip-danault-game-1-nhl-playoffs/
-
-**A Guide to U.S. Museums to See This Year**\
-`Photography and portraiture are at the center of exhibitions this spring and beyond, examining their forms and themes and the people behind them.`\
-https://nytimes.com/2025/04/22/arts/design/american-museums-art-guide.html
 
