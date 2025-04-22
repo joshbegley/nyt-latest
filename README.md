@@ -1,3 +1,7 @@
+**Pelicans exec Joe Dumars says he has 'no edicts' to trade Zion Williamson**\
+`Williamson had another injury-plagued season amidst a dreary 21-win campaign in New Orleans, the worst by the franchise in 20 years.`\
+https://nytimes.com/athletic/6300342/2025/04/22/pelicans-joe-dumars-zion-williamson/
+
 **Roy Thomas Baker, Who Helped Produce ‘Bohemian Rhapsody,’ Dies at 78**\
 `Among the most successful music producers in the 1970s and ’80s, he helped churn out hits for acts like Queen, the Cars, Journey and Foreigner.`\
 https://nytimes.com/2025/04/22/us/roy-thomas-baker-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6300225/2025/04/22/canadiens-nhl-playoffs-capitals-
 **How Americans Feel About DOGE and Elon Musk**\
 `People like the idea of cutting government waste. But they dislike Mr. Musk, and they’re down on the Department of Government Efficiency.`\
 https://nytimes.com/2025/04/22/polls/doge-elon-musk.html
-
-**Trump Promised ‘Big, Beautiful’ Deals. Delivering Has Been Tougher.**\
-`So far, the goals of many of President Trump’s negotiations have been unrealized, even those he said would be accomplished in a matter of days or weeks.`\
-https://nytimes.com/2025/04/22/us/politics/trump-trade-ukraine-negotiations.html
 
