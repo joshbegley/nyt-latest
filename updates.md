@@ -1,3 +1,11 @@
+**Minnesota Sues Trump Administration Over Limits on Transgender Athletes**\
+`The administration has said it would cut federal funds to states that allow trans girls and women to play on girls’ sports teams.`\
+https://nytimes.com/2025/04/22/us/minnesota-trump-transgender-athletes.html
+
+**Celtics' Payton Pritchard wins Sixth Man of the Year**\
+`Pritchard scored more points off the bench than anyone in the NBA this season and made more 3-pointers than any reserve player in history.`\
+https://nytimes.com/athletic/6300262/2025/04/22/payton-pritchard-sixth-man-of-the-year-celtics/
+
 **How Bats Enjoy an In-Flight Beverage Service**\
 `Bats are not only masters of aerodynamic flight — they’re skillful at multitasking while flying, too.`\
 https://nytimes.com/2025/04/22/science/bats-drinking-flight.html
