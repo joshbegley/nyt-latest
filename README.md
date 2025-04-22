@@ -6,7 +6,7 @@ https://nytimes.com/2025/04/22/business/trump-tariffs-stocks-gold-price.html
 `Residents returned to their damaged neighborhood in Yemen’s capital, Sana, after a deadly U.S. airstrike on Sunday.`\
 https://nytimes.com/video/world/middleeast/100000010123288/us-airstrikes-yemen-houthis.html
 
-**Man United hold positive contract talks with Wolves' Cunha**\
+**Man Utd hold positive contract talks with Wolves' Cunha**\
 `The Brazil international has a £62.5million ($83.7m) release clause in the contract he signed in January.`\
 https://nytimes.com/athletic/6295854/2025/04/22/manchester-united-transfers-cunha-wolves/
 
