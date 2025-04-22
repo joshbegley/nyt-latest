@@ -1,3 +1,19 @@
+**Sweating to Shivering: Study Finds Rapid Swings in Temperature Have Increased**\
+`Flips between warm temperatures to cold and vice versa have become quicker, more frequent and more intense in recent decades, a new study shows.`\
+https://nytimes.com/2025/04/22/climate/temperature-swings-climate-change.html
+
+**We Couldn’t Stop Eating These Dishes**\
+`Chicken Florentine, beef fried rice, and ham and potato soup are quick to make and easy to love.`\
+https://nytimes.com/2025/04/22/dining/we-couldnt-stop-eating-these-dishes.html
+
+**Pushing Sisyphean Beach Balls and Honoring Obstacles**\
+`Celia Rowlson-Hall’s “Sissy” at the Baryshnikov Arts Center, a dance-theater hybrid featuring Marisa Tomei, pokes at the boundaries between art and life.`\
+https://nytimes.com/2025/04/22/arts/dance/sissy-celia-rowlson-hall-marisa-tomei.html
+
+**Some People Are Just Difficult. Here’s How to Handle Them.**\
+`These six books can help ease tensions.`\
+https://nytimes.com/2025/04/22/well/difficult-people.html
+
 **‘Francis Was Deeply Loved’: Gazans Mourn Death of Pope**\
 `Gaza’s Christians paid their respects to Pope Francis, who called in on a local church almost daily to check on them throughout the war.`\
 https://nytimes.com/video/world/middleeast/100000010123616/pope-francis-gaza-church-.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6298974/2025/04/22/cade-cunningham-pistons-knicks-n
 **‘The Two Popes,’ ‘Conclave’ and Francis’ Autobiography: The Papacy in Recent Culture**\
 `The Vatican — with its politics, its pageantry and its power — has long been a favorite subject for artists and thinkers.`\
 https://nytimes.com/2025/04/22/world/europe/francis-two-popes-movie-book.html
-
-**Tesla’s Falling Profit May Pressure Elon Musk to Return to Day Job**\
-`The carmaker is expected to report a decline in quarterly earnings after Tesla’s brand suffered because of its chief executive’s role in the Trump administration.`\
-https://nytimes.com/2025/04/22/business/tesla-earnings-elon-musk.html
-
-**‘Macbeth in Stride’ Review: A Leap and Stumble Into a Classic**\
-`One of the most performed and reimagined works of English literature becomes a fourth-wall-breaking musical revue.`\
-https://nytimes.com/2025/04/22/theater/macbeth-in-stride-review.html
-
-**Trump Joins a Bitter Fight on Long Island Over a School Mascot**\
-`New York’s education leaders moved to ban Native American-inspired mascots in 2022, drawing a lawsuit from the Massapequa school district. Now, the president has weighed in.`\
-https://nytimes.com/2025/04/22/nyregion/trump-massapequa-school-mascot.html
-
-**What we've learned from Giants' pre-draft visits: Which QB has NY spent most time on?**\
-`Why have the Giants brought in so many running backs? Are they hoping to add another TE to the mix?`\
-https://nytimes.com/athletic/6298156/2025/04/22/new-york-giants-nfl-draft-visits-shedeur-sanders/
 
