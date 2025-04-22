@@ -2,6 +2,10 @@
 `By John Yoon`\
 https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/nations-have-begun-official-periods-of-mourning
 
+**Our NBA awards ballots revealed, from MVP to Defensive Player of the Year and more**\
+`Our voters take you inside the easiest and toughest decisions on their ballots, as award announcements begin on Tuesday.`\
+https://nytimes.com/athletic/6296709/2025/04/22/awards-sga-nikola-jokic-mvp-sixth-man-nba/
+
 **Browns NFL Draft big board: Players to consider at positions of need**\
 `When the draft begins, is Cleveland's plan as simple as going offensive playmaker, quarterback, then best available lineman? `\
 https://nytimes.com/athletic/6297131/2025/04/22/cleveland-browns-2025-nfl-draft-big-board/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6298566/2025/04/22/cristian-romero-tottenham-future
 **What are Ohio State's portal needs? A position-by-position breakdown**\
 `The spring transfer portal window is open, and the Buckeyes have some needs to fill.`\
 https://nytimes.com/athletic/6296852/2025/04/22/ohio-state-buckeyes-football-needs/
-
-**Patriots big board: The best positional fits for Day 1, 2 and 3**\
-`If they go OL in the first round, do they have to go WR in the second? And if they get Abdul Carter in Round 1, where can they get a LT?`\
-https://nytimes.com/athletic/6296329/2025/04/22/patriots-nfl-draft-big-board-2025-carter-campbell/
 
