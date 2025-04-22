@@ -1,4 +1,12 @@
-**Ukraine Cease-fire Talks to Reconvene in London, Minus Rubio**\
+**USMNT's Pochettino: 'Players must be proud and fight for millions of kids**\
+`Pochettino is focused on bringing players with “the right mindset” to the tournament as he continues to prepare for next year's World Cup.`\
+https://nytimes.com/athletic/6300043/2025/04/22/usmnt-mauricio-pochettino-gold-cup/
+
+**National Science Foundation Terminates Hundreds of Active Research Awards**\
+`The agency targeted grants focused on diversity, equity and inclusion, as well as research on misinformation.`\
+https://nytimes.com/2025/04/22/science/trump-national-science-foundation-grants.html
+
+**Rubio Skipping Ukraine Talks as Zelensky Rebuffs U.S. on Crimea**\
 `The decision by Secretary of State Marco Rubio to pull out of the meeting and an objection by Ukraine’s leader to a key U.S. proposal raised questions about the state of the negotiations.`\
 https://nytimes.com/2025/04/22/world/europe/ukraine-cease-fire-talks.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/22/nyregion/buffalo-catholic-diocese-sexual-abuse.ht
 **Will Campbell, Tyler Warren's Rolexes to be given away after NFL Draft**\
 `The two first-round hopefuls are introducing a new piece of NFL Draft memorabilia`\
 https://nytimes.com/athletic/6299468/2025/04/22/nfl-draft-will-campbell-tyler-warren-watches-rolex/
-
-**Shedeur Sanders 'could go anywhere' in NFL Draft according to oddsmaker**\
-`Max Meyer spoke to oddsmakers to break down the early 2025 NFL Draft betting action. Two players can make or break the books.`\
-https://nytimes.com/athletic/6299700/2025/04/22/nfl-draft-2025-shedeur-sanders-betting-odds/
-
-**Judge Blocks Trump Effort to Dismantle Voice of America**\
-`The judge also ordered the government to halt its efforts to shut down two other government-funded outlets, Radio Free Asia and the Middle East Broadcasting Networks.`\
-https://nytimes.com/2025/04/22/us/politics/judge-trump-voice-of-america.html
 

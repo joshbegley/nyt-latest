@@ -1,3 +1,15 @@
+**USMNT's Pochettino: 'Players must be proud and fight for millions of kids**\
+`Pochettino is focused on bringing players with “the right mindset” to the tournament as he continues to prepare for next year's World Cup.`\
+https://nytimes.com/athletic/6300043/2025/04/22/usmnt-mauricio-pochettino-gold-cup/
+
+**National Science Foundation Terminates Hundreds of Active Research Awards**\
+`The agency targeted grants focused on diversity, equity and inclusion, as well as research on misinformation.`\
+https://nytimes.com/2025/04/22/science/trump-national-science-foundation-grants.html
+
+**Rubio Skipping Ukraine Talks as Zelensky Rebuffs U.S. on Crimea**\
+`The decision by Secretary of State Marco Rubio to pull out of the meeting and an objection by Ukraine’s leader to a key U.S. proposal raised questions about the state of the negotiations.`\
+https://nytimes.com/2025/04/22/world/europe/ukraine-cease-fire-talks.html
+
 **Ukraine Cease-fire Talks to Reconvene in London, Minus Rubio**\
 `The decision by Secretary of State Marco Rubio to pull out of the meeting and an objection by Ukraine’s leader to a key U.S. proposal raised questions about the state of the negotiations.`\
 https://nytimes.com/2025/04/22/world/europe/ukraine-cease-fire-talks.html
