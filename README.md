@@ -1,3 +1,15 @@
+**At Trial, Instagram Co-Founder Says Meta Denied His Company Resources**\
+`Kevin Systrom said during testimony in a landmark antitrust trial that he believed Meta viewed Instagram as a threat.`\
+https://nytimes.com/2025/04/22/technology/meta-trial-instagram-kevin-systrom.html
+
+**Devils' Luke Hughes, Brenden Dillon out for Game 2; Cody Glass back in**\
+`Dillon and Hughes both sustained injuries in Game 1 on Sunday.`\
+https://nytimes.com/athletic/6299242/2025/04/22/devils-luke-hughes-brenden-dillon-nhl-playoffs/
+
+**Syria Makes Rare Arrests of Palestinian Militant Group Leaders**\
+`The arrests marked a pendulum swing for the government. Under the Assad regime, Syria served as a base of operations for several Palestinian armed factions.`\
+https://nytimes.com/2025/04/22/world/europe/syria-arrests-palestinian-militant-leaders.html
+
 **Until Saturday: NIL holdout turning into QB trade**\
 `Until Saturday is The Athletic's college football newsletter.`\
 https://nytimes.com/athletic/6299337/2025/04/22/tennessee-ucla-quarterback-transfers-until-saturday/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6298475/2025/04/22/bobby-witt-jr-habits-the-windup/
 **La Piazza Brings Venice to Midtown, No Gondola Required**\
 `I’m Donut? offers its Japanese pastries in Times Square, a storied bagel shop plots a return and more restaurant news.`\
 https://nytimes.com/2025/04/22/dining/nyc-restaurant-news.html
-
-**As Argentina Mourns, the Pain of Pope Francis Never Visiting Lingers**\
-`Francis never gave an explicit answer for not returning as pontiff to his native country, but some experts say he worried about having his presence used for political purposes.`\
-https://nytimes.com/2025/04/22/world/americas/pope-francis-argentina.html
-
-**More Than 180 Academic Leaders Condemn Trump ‘Overreach’**\
-`The statement came a day after Harvard University sued the administration over its decision to freeze billions of dollars in federal funding, following the schoo’s refusal to submit to a list of demands.`\
-https://nytimes.com/2025/04/22/us/politics/university-leaders-letter-trump.html
-
-**UNC, TCU to open 2026 season in Ireland's Aer Lingus College Football Classic**\
-`This game replaces the final leg of a home-and-home that was originally scheduled to be played at TCU.`\
-https://nytimes.com/athletic/6299206/2025/04/22/north-carolina-tcu-dublin-ireland-2026/
 

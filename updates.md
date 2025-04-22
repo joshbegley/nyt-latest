@@ -1,3 +1,11 @@
+**Until Saturday: NIL holdout turning into QB trade**\
+`Until Saturday is The Athletic's college football newsletter.`\
+https://nytimes.com/athletic/6299337/2025/04/22/tennessee-ucla-quarterback-transfers-until-saturday/
+
+**USMNT Player Tracker: Championship special, plus Pulisic preparing for Inter challenge**\
+`The English second-tier campaign is reaching an exciting conclusion with a number of U.S. players targeting elevation to the Premier League`\
+https://nytimes.com/athletic/6298956/2025/04/22/usmnt-championship-aaronson-koleosho-wright-sargent/
+
 **U.S. Tells Its Diplomats in Vietnam to Avoid War Anniversary Events**\
 `The reversal adds another Trump administration blow to decades of reconciliation efforts.`\
 https://nytimes.com/2025/04/22/world/asia/us-diplomats-vietnam-war-anniversary-trump.html
