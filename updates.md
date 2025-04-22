@@ -1,3 +1,15 @@
+**Republicans Begin a Trump-Centric Battle to Succeed Mitch McConnell**\
+`The primary race in Kentucky for Mr. McConnell’s seat is expected to be one of the biggest G.O.P. clashes of 2026. On Tuesday, it gained its second high-profile contender, Representative Andy Barr.`\
+https://nytimes.com/2025/04/22/us/politics/andy-barr-kentucky-senate-mitch-mcconnell.html
+
+**As 49ers begin offseason program, Purdy, Kittle, Warner take center stage**\
+`There has been some uncertainty as to whether three of the team's biggest names will attend the voluntary offseason program.`\
+https://nytimes.com/athletic/6299257/2025/04/22/49ers-offseason-contract-brock-purdy-george-kittle/
+
+**Justices Seem Set to Allow Opt-Outs From L.G.B.T.Q. Stories in Schools**\
+`In a lively and sometimes heated argument, the Supreme Court’s conservative majority appeared poised to rule for parents with religious objections to storybooks with gay and transgender characters.`\
+https://nytimes.com/2025/04/22/us/politics/supreme-court-lgbtq-books.html
+
 **Read the Prosecutors’ Letter**\
 `Three prosecutors resigned from the Southern District of New York on Tuesday rather than apologize for the work on the prosecution of Mayor Eric Adams of New York.`\
 https://nytimes.com/interactive/2025/04/22/nyregion/prosecutor-letter.html

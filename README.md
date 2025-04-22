@@ -1,3 +1,11 @@
+**Rose Bowl kickoff time moved up an hour: What about the sunset?**\
+`Sunset over the San Gabriel Mountains will likely come during the Rose Bowl's final minutes rather than early in the fourth quarter.`\
+https://nytimes.com/athletic/6299664/2025/04/22/rose-bowl-kick-time-espn-cfp-sunset/
+
+**At the pope’s hospital, Francis was a calming and mischievous presence.**\
+`The Vatican-run Bambino Gesu mourns a pontiff who would show up last minute, and left lasting memories.`\
+https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/at-the-popes-hospital-francis-was-a-calming-and-mischievous-presence
+
 **Republicans Begin a Trump-Centric Battle to Succeed Mitch McConnell**\
 `The primary race in Kentucky for Mr. McConnell’s seat is expected to be one of the biggest G.O.P. clashes of 2026. On Tuesday, it gained its second high-profile contender, Representative Andy Barr.`\
 https://nytimes.com/2025/04/22/us/politics/andy-barr-kentucky-senate-mitch-mcconnell.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6299159/2025/04/22/nhl-playoffs-2025-panthers-light
 **How Pope Francis Catalyzed the Catholic Right in the U.S.**\
 `Pope Francis’ critics represent a minority of the American church but a powerful one.`\
 https://nytimes.com/video/world/europe/100000010121909/how-pope-francis-catalyzed-the-catholic-right-in-the-us.html
-
-**The Soccer Tournament unveils groups for women's teams battling for $1 million prize**\
-`More than 500 players will compete across four groups of four teams each, with matches held over four days from June 6-9.`\
-https://nytimes.com/athletic/6297848/2025/04/22/the-soccer-tournament-womens-groups-unveiled/
-
-**A choice that sent a message: Looking back at Francis’ 2013 election as pope.**\
-`By Rachel Donadio`\
-https://nytimes.com/2025/04/21/world/a-choice-that-sent-a-message-looking-back-at-francis-2013-election-as-pope.html
 

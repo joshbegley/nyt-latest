@@ -1,3 +1,15 @@
+**Republicans Begin a Trump-Centric Battle to Succeed Mitch McConnell**\
+`The primary race in Kentucky for Mr. McConnell’s seat is expected to be one of the biggest G.O.P. clashes of 2026. On Tuesday, it gained its second high-profile contender, Representative Andy Barr.`\
+https://nytimes.com/2025/04/22/us/politics/andy-barr-kentucky-senate-mitch-mcconnell.html
+
+**As 49ers begin offseason program, Purdy, Kittle, Warner take center stage**\
+`There has been some uncertainty as to whether three of the team's biggest names will attend the voluntary offseason program.`\
+https://nytimes.com/athletic/6299257/2025/04/22/49ers-offseason-contract-brock-purdy-george-kittle/
+
+**Justices Seem Set to Allow Opt-Outs From L.G.B.T.Q. Stories in Schools**\
+`In a lively and sometimes heated argument, the Supreme Court’s conservative majority appeared poised to rule for parents with religious objections to storybooks with gay and transgender characters.`\
+https://nytimes.com/2025/04/22/us/politics/supreme-court-lgbtq-books.html
+
 **Read the Prosecutors’ Letter**\
 `Three prosecutors resigned from the Southern District of New York on Tuesday rather than apologize for the work on the prosecution of Mayor Eric Adams of New York.`\
 https://nytimes.com/interactive/2025/04/22/nyregion/prosecutor-letter.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6297848/2025/04/22/the-soccer-tournament-womens-gro
 **A choice that sent a message: Looking back at Francis’ 2013 election as pope.**\
 `By Rachel Donadio`\
 https://nytimes.com/2025/04/21/world/a-choice-that-sent-a-message-looking-back-at-francis-2013-election-as-pope.html
-
-**Jury Is Seated After Startling Reveal: The Defendant Is Harvey Weinstein**\
-`Some prospective jurors reacted with shock when they realized they might be selected for Mr. Weinstein’s latest trial. Opening statements lie ahead.`\
-https://nytimes.com/2025/04/22/nyregion/harvey-weinstein-trial-jury-seated.html
-
-**Islanders fire team president and GM Lou Lamoriello after missing postseason**\
-`Minority owner John Collins will lead the search for a new GM.`\
-https://nytimes.com/athletic/6299610/2025/04/22/islanders-fire-lou-lamoriello/
-
-**Bills RB James Cook absent from OTAs while awaiting contract extension**\
-`General manager Brandon Beane stated three weeks ago at the NFL owners’ meetings that the sides are significantly far apart.`\
-https://nytimes.com/athletic/6299460/2025/04/22/bills-james-cook-ota-contract-extension/
 
