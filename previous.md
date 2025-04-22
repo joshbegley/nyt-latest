@@ -1,3 +1,7 @@
+**Kyle Connor continues to be a problem the Blues can't solve as Jets extend series lead**\
+`Connor scored his second-straight game-winning goal to give the Jets a 2-0 series lead over the Blues in Round 1.`\
+https://nytimes.com/athletic/6297778/2025/04/22/winnipeg-jets-kyle-connor-blues-nhl-playoffs/
+
 **The Athletic FC: Promotion party for US owners but tough calls to come, Man Utd eye Cunha**\
 `In today's TAFC: Leeds and Burnley promoted to Premier League but can they survive? Plus: Manchester United target Cunha`\
 https://nytimes.com/athletic/6298608/2025/04/22/leeds-burnley-us-owners-man-united-cunha/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6298658/2025/04/22/wilshere-norwich-thorup-ramsey-c
 **Before his hospitalization, the pope gave his reflections on old age.**\
 `By Elisabetta Povoledo`\
 https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/before-his-hospitalization-the-pope-gave-his-reflections-on-old-age
-
-**Shai Gilgeous-Alexander can't be worse than Game 1. That's bad news for the Grizzlies**\
-`Oklahoma City rolled in Game 1, even though its MVP candidate was nowhere near his best. What happens if he is in Game 2?`\
-https://nytimes.com/athletic/6297970/2025/04/22/shai-gilgeous-alexander-thunder-game-2-grizzlies/
 

@@ -1,3 +1,7 @@
+**Kyle Connor continues to be a problem the Blues can't solve as Jets extend series lead**\
+`Connor scored his second-straight game-winning goal to give the Jets a 2-0 series lead over the Blues in Round 1.`\
+https://nytimes.com/athletic/6297778/2025/04/22/winnipeg-jets-kyle-connor-blues-nhl-playoffs/
+
 **The Athletic FC: Promotion party for US owners but tough calls to come, Man Utd eye Cunha**\
 `In today's TAFC: Leeds and Burnley promoted to Premier League but can they survive? Plus: Manchester United target Cunha`\
 https://nytimes.com/athletic/6298608/2025/04/22/leeds-burnley-us-owners-man-united-cunha/
