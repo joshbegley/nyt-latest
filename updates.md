@@ -1,3 +1,7 @@
+**Tottenham's 51 crosses against Nottingham Forest: Was this the birth of a necessary Plan B?**\
+`Spurs' aerial approach may not have come off against against Nottingham Forest but it might prove a viable tactic in the Europa League `\
+https://nytimes.com/athletic/6297739/2025/04/22/tottenham-hotspur-51-crosses-nottingham-forest/
+
 **Word of the Day: reverberation**\
 `This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/04/22/learning/word-of-the-day-reverberation.html
