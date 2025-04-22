@@ -1,3 +1,15 @@
+**Stars take dramatic OT win to even series with Avalanche: Takeaways**\
+`The Stars beat the Avalanche 4-3 in overtime to send the series to Colorado tied 1-1.`\
+https://nytimes.com/athletic/6298091/2025/04/22/stars-avalanche-game-2-nhl-playoffs/
+
+**Oilers complete 4-goal comeback but Kings nab late Game 1 winner**\
+`Phillip Danault rescued the Kings in scoring with 41.1 seconds left for a dramatic 6-5 victory on Monday night.`\
+https://nytimes.com/athletic/6290481/2025/04/22/kings-oilers-game-1-nhl-playoffs/
+
+**Zach Dezenzo delivered in a rare start. Can the Astros create more opportunities for him?**\
+`Swings like those Dezenzo displayed Monday may put the onus back on the Astros to find him more playing time.`\
+https://nytimes.com/athletic/6298260/2025/04/22/zach-dezenzo-start-astros-more-opportunities/
+
 **Tuesday Briefing: Tributes for Pope Francis**\
 `Plus, making a difference on Earth Day.`\
 https://nytimes.com/2025/04/22/briefing/pope-francis-india-us-israel.html

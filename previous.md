@@ -1,3 +1,15 @@
+**Stars take dramatic OT win to even series with Avalanche: Takeaways**\
+`The Stars beat the Avalanche 4-3 in overtime to send the series to Colorado tied 1-1.`\
+https://nytimes.com/athletic/6298091/2025/04/22/stars-avalanche-game-2-nhl-playoffs/
+
+**Oilers complete 4-goal comeback but Kings nab late Game 1 winner**\
+`Phillip Danault rescued the Kings in scoring with 41.1 seconds left for a dramatic 6-5 victory on Monday night.`\
+https://nytimes.com/athletic/6290481/2025/04/22/kings-oilers-game-1-nhl-playoffs/
+
+**Zach Dezenzo delivered in a rare start. Can the Astros create more opportunities for him?**\
+`Swings like those Dezenzo displayed Monday may put the onus back on the Astros to find him more playing time.`\
+https://nytimes.com/athletic/6298260/2025/04/22/zach-dezenzo-start-astros-more-opportunities/
+
 **Tuesday Briefing: Tributes for Pope Francis**\
 `Plus, making a difference on Earth Day.`\
 https://nytimes.com/2025/04/22/briefing/pope-francis-india-us-israel.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6288066/2025/04/22/kroenke-demoff-arsenal-rams-rapi
 **Why have dramatic bidding contests to host major sporting events stopped?**\
 `Why the drama of multiple bids for the Olympics and World Cup has fizzled out – and will it ever be back?`\
 https://nytimes.com/athletic/6278309/2025/04/22/why-have-dramatic-bidding-contests-to-host-major-sporting-events-stopped/
-
-**The fans who left Man Utd's 5-4 comeback early: 'We felt like we’d lost because we missed it'**\
-`United's comeback against Lyon to win 5-4 was a moment not to be missed. Unfortunately for some, they did just that`\
-https://nytimes.com/athletic/6296030/2025/04/22/man-utd-fans-who-left-lyon-match-early/
-
-**A discussion of how things stand for Newcastle: No panic stations, but they need to get over the line**\
-`George Caulkin and Chris Waugh debate the season so far, expectations, and what Newcastle need to improve next season`\
-https://nytimes.com/athletic/6296091/2025/04/22/how-things-stand-newcastle/
-
-**How Dagenham & Redbridge's bid to 'be the most famous club for Arabs' collapsed in five days**\
-`The extraordinary story of how an English fifth-tier club found itself at the centre of online discourse about conflict in the Middle East`\
-https://nytimes.com/athletic/6295203/2025/04/22/dagenham-investment-soccer-social-media/
 
