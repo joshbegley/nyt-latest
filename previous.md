@@ -1,3 +1,11 @@
+**Chobani, Seeing Rising Demand, Plans Giant Factory in New York**\
+`The company, which has branched out from Greek-style yogurt, will invest more than $1 billion in the plant in the town of Rome.`\
+https://nytimes.com/2025/04/22/business/dealbook/chobani-dairy-factory-ny.html
+
+**Wilshere to oversee Norwich's final league games following Thorup dismissal**\
+`Wilshere will face former Arsenal team-mate Aaron Ramsey on the final day of the season when Norwich face Cardiff City at Carrow Road.`\
+https://nytimes.com/athletic/6298658/2025/04/22/wilshere-norwich-thorup-ramsey-championship/
+
 **Before his hospitalization, the pope gave his reflections on old age.**\
 `By Elisabetta Povoledo`\
 https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/before-his-hospitalization-the-pope-gave-his-reflections-on-old-age
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6297465/2025/04/22/logan-stankoven-hurricanes-mikko
 **Broncos NFL Draft big board: 50 prospects who could find their way to Denver**\
 `The Broncos have said they will add a running back in this draft. Omarion Hampton and TreVeyon Henderson could both be early options.`\
 https://nytimes.com/athletic/6294461/2025/04/22/denver-broncos-big-board-2025-nfl-draft/
-
-**Oilers' third-period rally can't overshadow concerns on display in Game 1 loss**\
-`The main takeaway from Monday night is how out of sorts the Oilers looked for most of the first two periods.`\
-https://nytimes.com/athletic/6298508/2025/04/22/oilers-game-1-loss-kings/
-
-**Big Tech’s Troubles**\
-`We explain why the government is trying to break up companies like Meta and Google.`\
-https://nytimes.com/2025/04/22/briefing/google-meta-antitrust.html
 

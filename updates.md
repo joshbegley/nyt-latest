@@ -1,3 +1,11 @@
+**Chobani, Seeing Rising Demand, Plans Giant Factory in New York**\
+`The company, which has branched out from Greek-style yogurt, will invest more than $1 billion in the plant in the town of Rome.`\
+https://nytimes.com/2025/04/22/business/dealbook/chobani-dairy-factory-ny.html
+
+**Wilshere to oversee Norwich's final league games following Thorup dismissal**\
+`Wilshere will face former Arsenal team-mate Aaron Ramsey on the final day of the season when Norwich face Cardiff City at Carrow Road.`\
+https://nytimes.com/athletic/6298658/2025/04/22/wilshere-norwich-thorup-ramsey-championship/
+
 **Before his hospitalization, the pope gave his reflections on old age.**\
 `By Elisabetta Povoledo`\
 https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/before-his-hospitalization-the-pope-gave-his-reflections-on-old-age
