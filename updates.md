@@ -1,3 +1,11 @@
+**Word of the Day: reverberation**\
+`This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/04/22/learning/word-of-the-day-reverberation.html
+
+**Jimmy Kimmel Praises Pope Francis for Going Out With a Mic Drop**\
+`“Is there anything more Catholic than waiting until Monday to die so you don’t upstage Jesus Christ?” Kimmel said.`\
+https://nytimes.com/2025/04/22/arts/television/jimmy-kimmel-pope-francis-death.html
+
 **Hegseth Attacks the Media Amid New Signal Controversy**\
 `During the Easter Egg Roll at the White House, Pete Hegseth called coverage of his sharing of sensitive military data via text with civilians a “smear.”`\
 https://nytimes.com/video/us/politics/100000010123247/hegseth-easter-egg-roll-signal-group-chat.html
