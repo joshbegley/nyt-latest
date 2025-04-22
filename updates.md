@@ -1,3 +1,11 @@
+**Before Harvard Was Hailed a Hero, It Sought a Deal With Trump**\
+`Harvard frantically tried to avoid a showdown with the Trump administration. Now many of its big donors are pushing the university’s leaders to back down and renew talks with the White House.`\
+https://nytimes.com/2025/04/22/business/harvard-trump-deal.html
+
+**Scoop City: Who might draft a QB? When?**\
+`What each of the QB-needy teams might do during the first three rounds of the 2025 NFL Draft.`\
+https://nytimes.com/athletic/6299452/2025/04/22/who-will-draft-qb-2025-teams-saints-jets-raiders-browns-giants-steelers-scoop-city/
+
 **Trump and Zelensky are among the leaders planning to attend Francis’ funeral.**\
 `By Amelia Nierenberg`\
 https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/pope-francis-funeral-guests
