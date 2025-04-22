@@ -1,40 +1,40 @@
-**Gold Hits $3,500, Setting Another Record, as Investors Remain Uneasy**\
-`President Trump’s tariffs and his attacks on the Federal Reserve continue to unnerve the markets, pushing investors away from the dollar and toward havens like gold.`\
-https://nytimes.com/2025/04/22/business/trump-tariffs-stocks-gold-price.html
+**What are Ohio State's portal needs? A position-by-position breakdown**\
+`The spring transfer portal window is open, and the Buckeyes have some needs to fill.`\
+https://nytimes.com/athletic/6296852/2025/04/22/ohio-state-buckeyes-football-needs/
 
-**U.S. Strike Targets Yemen Capital**\
-`Residents returned to their damaged neighborhood in Yemen’s capital, Sana, after a deadly U.S. airstrike on Sunday.`\
-https://nytimes.com/video/world/middleeast/100000010123288/us-airstrikes-yemen-houthis.html
+**Patriots big board: The best positional fits for Day 1, 2 and 3**\
+`If they go OL in the first round, do they have to go WR in the second? And if they get Abdul Carter in Round 1, where can they get a LT?`\
+https://nytimes.com/athletic/6296329/2025/04/22/patriots-nfl-draft-big-board-2025-carter-campbell/
 
-**Man Utd hold positive contract talks with Wolves' Cunha**\
-`The Brazil international has a £62.5million ($83.7m) release clause in the contract he signed in January.`\
-https://nytimes.com/athletic/6295854/2025/04/22/manchester-united-transfers-cunha-wolves/
+**Falcons NFL Draft Big Board: Atlanta's best options for all 3 days**\
+`The Falcons are set to pick 15th in the first round but might make a deal to move out of that spot because they have just five total picks.`\
+https://nytimes.com/athletic/6296257/2025/04/22/falcons-2025-nfl-draft-big-board-edge-rusher/
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/04/22/crosswords/spelling-bee-forum.html
+**Under Hegseth, Chaos Prevails at the Pentagon**\
+`The defense secretary’s inner circle is in disarray, and distrust is growing among civil servants and senior military officials.`\
+https://nytimes.com/2025/04/22/us/politics/hegseth-chaos-pentagon.html
 
-**Just look how far Nottingham Forest have come in a year**\
-`In April 2024, Forest were making angry social media posts. Twelve months on, they're busy strengthening their European credentials `\
-https://nytimes.com/athletic/6297822/2025/04/22/nottingham-forest-tottenham-champions-league/
+**When Pope Francis Touched New Yorkers’ Hearts**\
+`The pope visited the city in 2015, making stops that included Madison Square Garden, Central Park and a Harlem school.`\
+https://nytimes.com/2025/04/22/nyregion/pope-francis-new-york-visit.html
 
-**Messy, egocentric and undisciplined: Knicks' offense had it all in Game 2 loss to Pistons**\
-`The Knicks earned the No. 3 seed behind an elite, efficient offense. You wouldn't have known that from watching Monday's game.`\
-https://nytimes.com/athletic/6298274/2025/04/22/knicks-lose-game-2-to-pistons/
+**A Venezuelan Is Missing. The U.S. Deported Him. But to Where?**\
+`The immigrant does not appear on a list of people sent to a prison in El Salvador, and his family and friends have no idea of his whereabouts. He has essentially disappeared.`\
+https://nytimes.com/2025/04/22/us/venezuela-immigrant-disappear-deport-ice.html
 
-**Tottenham's 51 crosses against Nottingham Forest: Was this the birth of a necessary Plan B?**\
-`Spurs' aerial approach may not have come off against against Nottingham Forest but it might prove a viable tactic in the Europa League `\
-https://nytimes.com/athletic/6297739/2025/04/22/tottenham-hotspur-51-crosses-nottingham-forest/
+**Trump Is Insatiable**\
+`The president is trying to pick off institutions (and people) one by one.`\
+https://nytimes.com/2025/04/22/opinion/trump-harvard.html
 
-**Word of the Day: reverberation**\
-`This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/04/22/learning/word-of-the-day-reverberation.html
+**‘Andor’ Is Not the Resistance You’re Looking For**\
+`I have always found the praise for the show’s revolutionary politics to be at odds with the means of its production.`\
+https://nytimes.com/2025/04/22/opinion/andor-star-wars-leftist-radical.html
 
-**Jimmy Kimmel Praises Pope Francis for Going Out With a Mic Drop**\
-`“Is there anything more Catholic than waiting until Monday to die so you don’t upstage Jesus Christ?” Kimmel said.`\
-https://nytimes.com/2025/04/22/arts/television/jimmy-kimmel-pope-francis-death.html
+**Rep. Haley Stevens Joins an Increasingly Crowded Michigan Senate Race**\
+`The Democratic representative from suburban Detroit is likely to be seen as a centrist in the primary contest to replace Senator Gary Peters, who is retiring.`\
+https://nytimes.com/2025/04/22/us/politics/michigan-senate-race-democrats-haley-stevens.html
 
-**Hegseth Attacks the Media Amid New Signal Controversy**\
-`During the Easter Egg Roll at the White House, Pete Hegseth called coverage of his sharing of sensitive military data via text with civilians a “smear.”`\
-https://nytimes.com/video/us/politics/100000010123247/hegseth-easter-egg-roll-signal-group-chat.html
+**In Philadelphia, a Former Navy Yard Wins on Sustainability**\
+`With recent recognition from the Green Building Council, the 1,200-acre development is poised to welcome its first residential tenants this fall.`\
+https://nytimes.com/2025/04/22/realestate/philadelphia-navy-yard-leed-certification.html
 
