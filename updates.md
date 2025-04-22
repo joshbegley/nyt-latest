@@ -1,3 +1,15 @@
+**Why Pope Francis Was Always a Surprise**\
+`Pope Francis brought empathy and humanity that surprised people and changed the way people saw the Roman Catholic Church. Jason Horowitz, the Rome bureau chief of The New York Times, describes what he learned about Francis while covering him for over a dozen years.`\
+https://nytimes.com/video/world/100000010121936/why-pope-francis-was-always-a-surprise.html
+
+**Braves rally again to extend winning streak to 4, but Spencer Strider returns to IL**\
+`After learning of Strider's injury, Atlanta shrugged off doom and staged a late offensive outburst for a 7-6 comeback win against St. Louis.`\
+https://nytimes.com/athletic/6298201/2025/04/22/braves-win-strider-on-injured-list/
+
+**How Kroenke's sports empire pieces work to influence Arsenal, MLS, 2026 World Cup**\
+`How SoFi Stadium's construction could impact future work to the Emirates and more from Stan Kroenke's right-hand man.`\
+https://nytimes.com/athletic/6288066/2025/04/22/kroenke-demoff-arsenal-rams-rapids-mls-world-cup-sofi-emirates-stadium/
+
 **Why have dramatic bidding contests to host major sporting events stopped?**\
 `Why the drama of multiple bids for the Olympics and World Cup has fizzled out – and will it ever be back?`\
 https://nytimes.com/athletic/6278309/2025/04/22/why-have-dramatic-bidding-contests-to-host-major-sporting-events-stopped/
