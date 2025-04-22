@@ -1,3 +1,11 @@
+**Looking back at Pope Francis’ 2015 visit to the U.S.**\
+`(No description)`\
+https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/looking-back-at-pope-francis-2015-visit-to-the-us
+
+**Trump Will Never Be the ‘Fertilization President’**\
+`MAGA pronatalism is doomed to fail.`\
+https://nytimes.com/2025/04/21/opinion/trump-fertility-birthrate-sexism.html
+
 **Cubs acquiring left-handed pitcher Drew Pomeranz from Mariners: Source**\
 `His pedigree makes him an intriguing option for the Cubs bullpen, which needs to find effective relievers to cover the middle innings.`\
 https://nytimes.com/athletic/6297820/2025/04/21/cubs-drew-pomeranz-mariners-trade/
