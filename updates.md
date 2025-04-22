@@ -1,3 +1,11 @@
+**Trump and Zelensky are among the leaders planning to attend Francis’ funeral.**\
+`By Amelia Nierenberg`\
+https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/pope-francis-funeral-guests
+
+**Top Producer of ‘60 Minutes’ Quits, Saying He Lost Independence**\
+`The news program has faced mounting pressure from both President Trump and its corporate ownership at Paramount, the parent company of CBS News.`\
+https://nytimes.com/2025/04/22/business/media/cbs-60-minutes-trump-bill-owens.html
+
 **Prime Tire: Lewis Hamilton and lost time. Plus, Meet your new F1 points leader**\
 `Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
 https://nytimes.com/athletic/6299035/2025/04/22/formula-one-prime-tire-lewis-hamilton-oscar-piastri/
