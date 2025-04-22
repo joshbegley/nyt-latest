@@ -1,3 +1,19 @@
+**The Pulse: One night, multiple playoff thrillers**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6296693/2025/04/22/nba-nhl-playoffs-the-pulse/
+
+**How Trump’s Fed Fight May Undermine His Trade Negotiations**\
+`A flight from U.S. assets, including the dollar, could worsen if the president continues his attacks on the Federal Reserve, analysts warn.`\
+https://nytimes.com/2025/04/22/business/dealbook/trumps-fed-fight-tariffs.html
+
+**Student News Quiz: Music Festival, Extraterrestrial Life, Google**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/04/22/learning/22StudentNewsQuiz.html
+
+**Emma Raducanu to continue with tennis coach and commentator Mark Petchey**\
+`Petchey, who previously worked with Andy Murray, will join Raducanu's team for at least the start of the clay-court season.`\
+https://nytimes.com/athletic/6280422/2025/04/22/emma-raducanu-tennis-coach-mark-petchey/
+
 **Chobani, Seeing Rising Demand, Plans Giant Factory in New York**\
 `The company, which has branched out from Greek-style yogurt, will invest more than $1 billion in the plant in the town of Rome.`\
 https://nytimes.com/2025/04/22/business/dealbook/chobani-dairy-factory-ny.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6290383/2025/04/22/acc-basketball-new-coaches-will-
 **A 'True Blue': Why Madonna attended Chelsea's Conference League game against Legia Warsaw**\
 `Chelsea's less-than-sold-out Conference League quarter-final against Legia Warsaw had a famous name in the stands`\
 https://nytimes.com/athletic/6295978/2025/04/22/madonna-chelsea-legia-warsaw/
-
-**Mailbag: What does Steve Angeli's transfer say about ND's QB future?**\
-`Angeli’s departure via the transfer portal puts a different spin on Notre Dame’s offseason.`\
-https://nytimes.com/athletic/6296625/2025/04/22/notre-dame-quarterback-depth-chart-marcus-freeman/
-
-**Olympic hockey stock watch: Risers and fallers from Women's World Championship**\
-`With less than a year remaining until the 2026 Olympics, which Canadian and American players helped or hurt their case to make the roster?`\
-https://nytimes.com/athletic/6297973/2025/04/22/olympic-womens-hockey-roster-canada-usa/
-
-**Logan Stankoven fitting in fast with Hurricanes after being other side of NHL trade deadline blockbuster**\
-`Stankoven, who was moved from the Stars to the Hurricanes in the Mikko Rantanen trade ahead of the deadline, scored two goals in Game 1.`\
-https://nytimes.com/athletic/6297465/2025/04/22/logan-stankoven-hurricanes-mikko-rantanen-trade/
-
-**Broncos NFL Draft big board: 50 prospects who could find their way to Denver**\
-`The Broncos have said they will add a running back in this draft. Omarion Hampton and TreVeyon Henderson could both be early options.`\
-https://nytimes.com/athletic/6294461/2025/04/22/denver-broncos-big-board-2025-nfl-draft/
 

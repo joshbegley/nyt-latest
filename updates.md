@@ -1,3 +1,19 @@
+**The Pulse: One night, multiple playoff thrillers**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6296693/2025/04/22/nba-nhl-playoffs-the-pulse/
+
+**How Trump’s Fed Fight May Undermine His Trade Negotiations**\
+`A flight from U.S. assets, including the dollar, could worsen if the president continues his attacks on the Federal Reserve, analysts warn.`\
+https://nytimes.com/2025/04/22/business/dealbook/trumps-fed-fight-tariffs.html
+
+**Student News Quiz: Music Festival, Extraterrestrial Life, Google**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/04/22/learning/22StudentNewsQuiz.html
+
+**Emma Raducanu to continue with tennis coach and commentator Mark Petchey**\
+`Petchey, who previously worked with Andy Murray, will join Raducanu's team for at least the start of the clay-court season.`\
+https://nytimes.com/athletic/6280422/2025/04/22/emma-raducanu-tennis-coach-mark-petchey/
+
 **Chobani, Seeing Rising Demand, Plans Giant Factory in New York**\
 `The company, which has branched out from Greek-style yogurt, will invest more than $1 billion in the plant in the town of Rome.`\
 https://nytimes.com/2025/04/22/business/dealbook/chobani-dairy-factory-ny.html
