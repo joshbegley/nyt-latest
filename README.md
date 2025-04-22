@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6297664/2025/04/21/nba-playoffs-pistons-knicks-clippers-nuggets-score-takeaways/
 
 **Jets take 2-0 series lead over Blues thanks to another Kyle Connor winner: Takeaways**\
-`Kyle Connor scored his second straight game-winning goal and has staked the Winnipeg Jets to a 2-0 series lead over the St. Louis Blues.`\
+`Kyle Connor scored his second straight game-winning goal to stake the Winnipeg Jets to a 2-0 series lead over the St. Louis Blues.`\
 https://nytimes.com/athletic/6298052/2025/04/21/nhl-playoffs-jets-blues-game-2/
 
 **Alex Ovechkin, Capitals slip past Canadiens in OT: Game 1 takeaways**\
