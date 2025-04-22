@@ -1,3 +1,11 @@
+**Improvement in execution gives Canadiens strong belief in their Game 2 chances**\
+`Montreal needs to have a clear mind right from the start of Game 2, something it showed it could do in the third period of Game 1.`\
+https://nytimes.com/athletic/6300225/2025/04/22/canadiens-nhl-playoffs-capitals-game-2/
+
+**How Americans Feel About DOGE and Elon Musk**\
+`People like the idea of cutting government waste. But they dislike Mr. Musk, and they’re down on the Department of Government Efficiency.`\
+https://nytimes.com/2025/04/22/polls/doge-elon-musk.html
+
 **Trump Promised ‘Big, Beautiful’ Deals. Delivering Has Been Tougher.**\
 `So far, the goals of many of President Trump’s negotiations have been unrealized, even those he said would be accomplished in a matter of days or weeks.`\
 https://nytimes.com/2025/04/22/us/politics/trump-trade-ukraine-negotiations.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6299868/2025/04/22/rams-jalen-ramsey-interest-sean-
 **Treasury Secretary Bessent Predicts Tax Cuts to Pass by July 4**\
 `Scott Bessent told a group of investors that he expected trade tensions with China to de-escalate.`\
 https://nytimes.com/2025/04/22/us/politics/scott-bessent-tax-cuts.html
-
-**Mexico’s President Punches Back Against Kristi Noem’s Anti-Migrant Ads**\
-`The D.H.S. secretary’s appearances on Mexican television blaming migrants for societal ills in the U.S. have drawn a sharp rebuke from Mexico’s president, Claudia Sheinbaum.`\
-https://nytimes.com/2025/04/22/world/americas/mexico-kristi-noem-sheinbaum-ads.html
-
-**USMNT's Pochettino: 'Players must be proud and fight for millions of kids**\
-`Pochettino is focused on bringing players with “the right mindset” to the tournament as he continues to prepare for next year's World Cup.`\
-https://nytimes.com/athletic/6300043/2025/04/22/usmnt-mauricio-pochettino-gold-cup/
 
