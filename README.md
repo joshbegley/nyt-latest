@@ -1,3 +1,11 @@
+**Nations have begun official periods of mourning.**\
+`By John Yoon`\
+https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/nations-have-begun-official-periods-of-mourning
+
+**Browns NFL Draft big board: Players to consider at positions of need**\
+`When the draft begins, is Cleveland's plan as simple as going offensive playmaker, quarterback, then best available lineman? `\
+https://nytimes.com/athletic/6297131/2025/04/22/cleveland-browns-2025-nfl-draft-big-board/
+
 **Eagles 2025 NFL Draft big board: Players to watch at positions on offense and defense**\
 `The Eagles have been active traders at recent drafts.`\
 https://nytimes.com/athletic/6296583/2025/04/22/eagles-2025-nfl-draft-big-board-howie-roseman/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6296852/2025/04/22/ohio-state-buckeyes-football-nee
 **Patriots big board: The best positional fits for Day 1, 2 and 3**\
 `If they go OL in the first round, do they have to go WR in the second? And if they get Abdul Carter in Round 1, where can they get a LT?`\
 https://nytimes.com/athletic/6296329/2025/04/22/patriots-nfl-draft-big-board-2025-carter-campbell/
-
-**Falcons NFL Draft Big Board: Atlanta's best options for all 3 days**\
-`The Falcons are set to pick 15th in the first round but might make a deal to move out of that spot because they have just five total picks.`\
-https://nytimes.com/athletic/6296257/2025/04/22/falcons-2025-nfl-draft-big-board-edge-rusher/
-
-**Under Hegseth, Chaos Prevails at the Pentagon**\
-`The defense secretary’s inner circle is in disarray, and distrust is growing among civil servants and senior military officials.`\
-https://nytimes.com/2025/04/22/us/politics/hegseth-chaos-pentagon.html
 
