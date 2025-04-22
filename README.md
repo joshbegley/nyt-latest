@@ -23,7 +23,7 @@ https://nytimes.com/2025/04/22/arts/music/amplifier-newsletter-blues-sinners.htm
 https://nytimes.com/2025/04/22/world/middleeast/aliza-magen-dead.html
 
 **I Watched the Pope Visit the Forgotten and Convert the Skeptical**\
-`Jim Yardley, the former Rome bureau chief for The New York Times, witnessed Pope Francis’ transformation from an unlikely papal contender to a beloved figure.`\
+`Jim Yardley, a former Rome bureau chief for The New York Times, witnessed Pope Francis’ transformation from an unlikely papal contender to a beloved figure.`\
 https://nytimes.com/2025/04/22/world/europe/pope-francis-death-legacy.html
 
 **Women Soldiers Will Have to Pass ‘Sex-Neutral’ Physical Test, U.S. Army Says**\

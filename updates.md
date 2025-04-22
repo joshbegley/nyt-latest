@@ -1,3 +1,7 @@
+**Shannon Sharpe Is Accused of Rape by Ex-Girlfriend**\
+`A lawyer for Mr. Sharpe, who hosts the podcast “Club Shay Shay,” said the sexual encounters were consensual and called the lawsuit “a blatant and cynical attempt” at a shakedown.`\
+https://nytimes.com/2025/04/22/arts/shannon-sharpe-lawsuit-rape-sexual-assault.html
+
 **Jury Begins Deliberating in Palin’s Case Against The Times**\
 `This is the second time a jury has heard the case. Sarah Palin sued The New York Times in 2017, accusing the publication of defaming her in an editorial.`\
 https://nytimes.com/2025/04/22/business/media/sarah-palin-new-york-times-jury-deliberations.html
