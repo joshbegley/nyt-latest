@@ -1,3 +1,7 @@
+**Francisco Lindor, Tylor Megill show why 'it's a great time to be a Met'**\
+`Lindor's second homer of the night landed near the same spot of the Philadelphia bullpen as his grand slam in Game 4 of last year’s NLDS.`\
+https://nytimes.com/athletic/6298158/2025/04/21/mets-francisco-lindor-tylor-megill/
+
 **Full Time: Put everyone in bubble wrap**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6298116/2025/04/21/nwsl-injuries-women-coaches-full-time/
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/6297664/2025/04/21/nba-playoffs-pistons-knicks-clip
 `Kyle Connor scored his second straight game-winning goal to stake the Winnipeg Jets to a 2-0 series lead over the St. Louis Blues.`\
 https://nytimes.com/athletic/6298052/2025/04/21/nhl-playoffs-jets-blues-game-2/
 
-**Alex Ovechkin, Capitals slip past Canadiens in OT: Game 1 takeaways**\
+**Alex Ovechkin, Capitals escape Canadiens in OT: Game 1 takeaways**\
 `Ovechkin scored two goals, assisted on another and generally acted as the tone-setter in Washington's 3-2 overtime win over Montreal.`\
 https://nytimes.com/athletic/6297831/2025/04/21/capitals-canadiens-nhl-playoffs-2025-game-1-takeaways/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6284117/2025/04/21/overtime-nhl-playoffs-stanley-cu
 **Fill at a Station**\
 `Alex Eaton-Salners plays us in.`\
 https://nytimes.com/2025/04/21/crosswords/daily-puzzle-2025-04-22.html
-
-**Government Watchdog Drops Inquiries Into Mass Firings of Probationary Workers**\
-`Experts in federal employment law said the Trump administration’s justifications to end the investigations were baffling at best.`\
-https://nytimes.com/2025/04/21/us/politics/probationary-workers-firings-trump-osc.html
 
