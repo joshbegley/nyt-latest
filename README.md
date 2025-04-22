@@ -1,3 +1,19 @@
+**UNC, TCU to open 2026 season in Ireland's Aer Lingus College Football Classic**\
+`This game replaces the final leg of a home-and-home that was originally scheduled to be played at TCU.`\
+https://nytimes.com/athletic/6299206/2025/04/22/north-carolina-tcu-dublin-ireland-2026/
+
+**Easter Monday, the day of Francis’ death, has particular significance for Catholics.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/easter-monday-the-day-of-francis-death-has-particular-significance-for-catholics
+
+**Texas Lottery Director Resigns Amid Scrutiny of Rigged 2023 Draw**\
+`Investigators are looking into how bettors were allowed to guarantee themselves a $95 million jackpot win, as state leaders question whether the lottery should go on.`\
+https://nytimes.com/2025/04/22/us/texas-lottery.html
+
+**Rubio Outlines Drastic Changes at State Department**\
+`The secretary of state posted an organizational chart and statement that revealed few details. Among the changes was the elimination of the office that advances American values around the world.`\
+https://nytimes.com/2025/04/22/us/politics/state-department-cuts-rubio.html
+
 **Is there a path for the Hawks to finally escape Play-In purgatory?**\
 `Atlanta made a change in its front office, but it'll take a lot more to get out of the NBA's meh middle.`\
 https://nytimes.com/athletic/6298051/2025/04/22/hawks-front-office-trae-young-trade/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/04/22/business/boeing-thoma-bravo-jeppesen.html
 **Sweating to Shivering: Study Finds Rapid Swings in Temperature Have Increased**\
 `Flips between warm temperatures to cold and vice versa have become quicker, more frequent and more intense in recent decades, a new study shows.`\
 https://nytimes.com/2025/04/22/climate/temperature-swings-climate-change.html
-
-**We Couldn’t Stop Eating These Dishes**\
-`Chicken Florentine, beef fried rice, and ham and potato soup are quick to make and easy to love.`\
-https://nytimes.com/2025/04/22/dining/we-couldnt-stop-eating-these-dishes.html
-
-**Pushing Sisyphean Beach Balls and Honoring Obstacles**\
-`Celia Rowlson-Hall’s “Sissy” at the Baryshnikov Arts Center, a dance-theater hybrid featuring Marisa Tomei, pokes at the boundaries between art and life.`\
-https://nytimes.com/2025/04/22/arts/dance/sissy-celia-rowlson-hall-marisa-tomei.html
-
-**Some People Are Just Difficult. Here’s How to Handle Them.**\
-`These six books can help ease tensions.`\
-https://nytimes.com/2025/04/22/well/difficult-people.html
-
-**‘Francis Was Deeply Loved’: Gazans Mourn Death of Pope**\
-`Gaza’s Christians paid their respects to Pope Francis, who called in on a local church almost daily to check on them throughout the war.`\
-https://nytimes.com/video/world/middleeast/100000010123616/pope-francis-gaza-church-.html
 
