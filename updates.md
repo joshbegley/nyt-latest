@@ -1,3 +1,7 @@
+**The Quiet Farewell Before Pope Francis’ Funeral**\
+`In a small ceremony, Vatican officials followed the path long taken when a pope dies.`\
+https://nytimes.com/2025/04/22/world/europe/pope-francis-death-casket-photos.html
+
 **Cincinnati OL Jeremiah Kelly dies at 18**\
 `Kelly, who enrolled early at Cincinnati and participated in spring practices, died unexpectedly at his residence on Tuesday morning.`\
 https://nytimes.com/athletic/6299746/2025/04/22/cincinnati-jeremiah-kelly-dies-at-18/
