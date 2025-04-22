@@ -1,3 +1,7 @@
+**Protesters Chain Themselves to Columbia Gates, Calling for Activists’ Release**\
+`Demonstrators sought the release of Mohsen Mahdawi and Mahmoud Khalil, who organized pro-Palestinian protests and have been taken into ICE custody.`\
+https://nytimes.com/2025/04/21/us/politics/columbia-protests-khalil-mahdawi-ice.html
+
 **Cubs acquire lefty Drew Pomeranz from Mariners**\
 `His pedigree makes him an intriguing option for the Cubs bullpen, which needs to find effective relievers to cover the middle innings.`\
 https://nytimes.com/athletic/6297820/2025/04/21/cubs-drew-pomeranz-mariners-trade/

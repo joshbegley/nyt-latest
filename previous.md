@@ -1,3 +1,7 @@
+**Protesters Chain Themselves to Columbia Gates, Calling for Activists’ Release**\
+`Demonstrators sought the release of Mohsen Mahdawi and Mahmoud Khalil, who organized pro-Palestinian protests and have been taken into ICE custody.`\
+https://nytimes.com/2025/04/21/us/politics/columbia-protests-khalil-mahdawi-ice.html
+
 **Looking back at Pope Francis’ 2015 visit to the U.S.**\
 `(No description)`\
 https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/looking-back-at-pope-francis-2015-visit-to-the-us
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/21/climate/indiana-evangelicals-creation-care-stewar
 **How a Funeral Director Brought Wind Power to Rural Missouri**\
 `Every year for nearly two decades, the small city of Rock Port has been producing more electricity from wind energy than it needs.`\
 https://nytimes.com/2025/04/21/climate/wind-power-missouri.html
-
-**Fighting Louisiana Floodwaters With Patches of Green**\
-`Simple, affordable initiatives like rain gardens are helping to soak up water in New Orleans.`\
-https://nytimes.com/2025/04/21/climate/fighting-louisiana-floodwaters-solutions.html
 

@@ -1,3 +1,11 @@
+**Indianapolis Colts NFL Draft 2025 guide: Picks, predictions and key needs**\
+`The Colts own the No. 14 pick and seven picks total in the NFL Draft. Will they add a TE in Round 1 or target another need?`\
+https://nytimes.com/athletic/6227667/2025/04/21/indianapolis-colts-2025-nfl-draft-picks-needs-predictions-guide/
+
+**New York Giants NFL Draft 2025 guide: Picks, predictions and key needs**\
+`The Giants own the No. 3 pick and eight picks total in the NFL Draft. After signing two veterans, should they still draft a QB early?`\
+https://nytimes.com/athletic/6227397/2025/04/21/new-york-giants-2025-nfl-draft-picks-needs-predictions-guide/
+
 **Protesters Chain Themselves to Columbia Gates, Calling for Activists’ Release**\
 `Demonstrators sought the release of Mohsen Mahdawi and Mahmoud Khalil, who organized pro-Palestinian protests and have been taken into ICE custody.`\
 https://nytimes.com/2025/04/21/us/politics/columbia-protests-khalil-mahdawi-ice.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/21/climate/shell-recycling-connecticut-oysters.html
 **Maryland Protected Nearly a Third of Its Land, and It’s Reaching for More**\
 `Nine states have set goals to conserve 30 percent of their land by 2030. Maryland got there first.`\
 https://nytimes.com/2025/04/21/climate/maryland-30x30-conservation-land.html
-
-**In Indiana, Putting Up Solar Panels Is Doing God’s Work**\
-`A cluster of evangelical groups in the state is pushing for environmental action. Leaders say they’re following the biblical mandate to care for creation.`\
-https://nytimes.com/2025/04/21/climate/indiana-evangelicals-creation-care-stewardship.html
-
-**How a Funeral Director Brought Wind Power to Rural Missouri**\
-`Every year for nearly two decades, the small city of Rock Port has been producing more electricity from wind energy than it needs.`\
-https://nytimes.com/2025/04/21/climate/wind-power-missouri.html
 
