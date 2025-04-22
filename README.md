@@ -1,3 +1,7 @@
+**USMNT Player Tracker: Championship special, plus Pulisic preparing for Inter challenge**\
+`The English second-tier campaign is reaching an exciting conclusion with a number of U.S. players targeting elevation to the Premier League`\
+https://nytimes.com/athletic/6298956/2025/04/22/usmnt-championship-aaronson-koleosho-wright-sargent/
+
 **U.S. Tells Its Diplomats in Vietnam to Avoid War Anniversary Events**\
 `The reversal adds another Trump administration blow to decades of reconciliation efforts.`\
 https://nytimes.com/2025/04/22/world/asia/us-diplomats-vietnam-war-anniversary-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6299206/2025/04/22/north-carolina-tcu-dublin-irelan
 **Easter Monday, the day of Francis’ death, has particular significance for Catholics.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/easter-monday-the-day-of-francis-death-has-particular-significance-for-catholics
-
-**Texas Lottery Director Resigns Amid Scrutiny of Rigged 2023 Draw**\
-`Investigators are looking into how bettors were allowed to guarantee themselves a $95 million jackpot win, as state leaders question whether the lottery should go on.`\
-https://nytimes.com/2025/04/22/us/texas-lottery.html
 
