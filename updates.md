@@ -1,3 +1,7 @@
+**‘Macbeth in Stride’ Review: A Leap and Stumble Into a Classic**\
+`One of the most performed and reimagined works of English literature becomes a fourth-wall-breaking musical revue.`\
+https://nytimes.com/2025/04/22/theater/macbeth-in-stride-review.html
+
 **Trump Joins a Bitter Fight on Long Island Over a School Mascot**\
 `New York’s education leaders moved to ban Native American-inspired mascots in 2022, drawing a lawsuit from the Massapequa school district. Now, the president has weighed in.`\
 https://nytimes.com/2025/04/22/nyregion/trump-massapequa-school-mascot.html

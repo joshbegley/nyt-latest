@@ -1,3 +1,7 @@
+**‘Macbeth in Stride’ Review: A Leap and Stumble Into a Classic**\
+`One of the most performed and reimagined works of English literature becomes a fourth-wall-breaking musical revue.`\
+https://nytimes.com/2025/04/22/theater/macbeth-in-stride-review.html
+
 **Trump Joins a Bitter Fight on Long Island Over a School Mascot**\
 `New York’s education leaders moved to ban Native American-inspired mascots in 2022, drawing a lawsuit from the Massapequa school district. Now, the president has weighed in.`\
 https://nytimes.com/2025/04/22/nyregion/trump-massapequa-school-mascot.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6298572/2025/04/22/kings-oilers-phillip-danault-gam
 **A Guide to U.S. Museums to See This Year**\
 `Photography and portraiture are at the center of exhibitions this spring and beyond, examining their forms and themes and the people behind them.`\
 https://nytimes.com/2025/04/22/arts/design/american-museums-art-guide.html
-
-**Move Over Lone Ranger, Hopalong,Wyatt and Pals — History is Coming Your Way**\
-`An upcoming exhibition at the Autry Museum in Los Angeles and an earlier one at the Witte Museum in San Antonio reveal the roles of Black cowboys in the early American West.`\
-https://nytimes.com/2025/04/22/arts/design/museums-black-cowboys-exhibitions.html
 
