@@ -1,3 +1,11 @@
+**Kings survive Game 1 collapse thanks to Phillip Danault's heroics**\
+`Danault scored with 41.1 seconds left, rescuing the Kings from a potentially nightmarish result in their series-opener against the Oilers.`\
+https://nytimes.com/athletic/6298572/2025/04/22/kings-oilers-phillip-danault-game-1-nhl-playoffs/
+
+**A Guide to U.S. Museums to See This Year**\
+`Photography and portraiture are at the center of exhibitions this spring and beyond, examining their forms and themes and the people behind them.`\
+https://nytimes.com/2025/04/22/arts/design/american-museums-art-guide.html
+
 **Move Over Lone Ranger, Hopalong,Wyatt and Pals — History is Coming Your Way**\
 `An upcoming exhibition at the Autry Museum in Los Angeles and an earlier one at the Witte Museum in San Antonio reveal the roles of Black cowboys in the early American West.`\
 https://nytimes.com/2025/04/22/arts/design/museums-black-cowboys-exhibitions.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/22/arts/music/tina-knowles-beyonce-solange-matriarch
 **Old Friends With Sunny Attire and Spirits**\
 `Orange colors enlivened and united two outfits.`\
 https://nytimes.com/2025/04/22/style/street-style-look-sunny-clothes.html
-
-**Why pickleball star Anna Leigh Waters is bringing Andre Agassi to the kitchen**\
-`The cross-sport pairing illustrates pickleball's rise — but also the current limits of its star power.`\
-https://nytimes.com/athletic/6298516/2025/04/22/pickleball-anna-leigh-waters-us-open-andre-agassi/
-
-**New Voices Help Museums Tell New (or Forgotten) Stories**\
-`Across the United States, younger curators work to broaden audiences and redefine not only what an exhibition can be but also what an artwork is.`\
-https://nytimes.com/2025/04/22/arts/design/museum-curators-young.html
 
