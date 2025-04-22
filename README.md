@@ -1,3 +1,11 @@
+**'You don't want to die': Jazz Chisholm Jr.'s strange night includes broken-bat danger**\
+`The Yankees second baseman avoided a wood shard, but a run scored on the play in the loss to the Guardians. He also homered.`\
+https://nytimes.com/athletic/6298100/2025/04/21/yankees-jazz-chisholm-jr-broken-bat-homer/
+
+**Cardinals' losing skid hits 5 games after eighth-inning implosion against Braves**\
+`Atlanta scored 5 times in the eighth and withstood a 3-run rally in the ninth to stun St. Louis for its most maddening loss yet.`\
+https://nytimes.com/athletic/6298055/2025/04/21/cardinals-lose-fifth-straight/
+
 **Francisco Lindor, Tylor Megill show why 'it's a great time to be a Met'**\
 `Lindor's second homer of the night landed near the same spot of the Philadelphia bullpen as his grand slam in Game 4 of last year’s NLDS.`\
 https://nytimes.com/athletic/6298158/2025/04/21/mets-francisco-lindor-tylor-megill/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/04/21/world/pope-francis-death-news
 **‘Floyd Collins’ Review: Trapped in a Cave and in a Media Circus**\
 `One of the wonders of this glorious-sounding new Broadway production is how far from claustrophobic this Kentucky cave saga feels.`\
 https://nytimes.com/2025/04/21/theater/floyd-collins-review.html
-
-**NHL playoffs overtime: How does it work? What's the longest game in history?**\
-`What happens when a playoff game isn't decided in regulation — or even after a first overtime period?`\
-https://nytimes.com/athletic/6284117/2025/04/21/overtime-nhl-playoffs-stanley-cup/
-
-**Fill at a Station**\
-`Alex Eaton-Salners plays us in.`\
-https://nytimes.com/2025/04/21/crosswords/daily-puzzle-2025-04-22.html
 
