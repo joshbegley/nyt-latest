@@ -1,3 +1,7 @@
+**Jets take 2-0 series lead over Blues thanks to another Kyle Connor winner: Takeaways**\
+`Kyle Connor scored his second straight game-winning goal and has staked the Winnipeg Jets to a 2-0 series lead over the St. Louis Blues.`\
+https://nytimes.com/athletic/6298052/2025/04/21/nhl-playoffs-jets-blues-game-2/
+
 **Alex Ovechkin, Capitals slip past Canadiens in OT: Game 1 takeaways**\
 `Ovechkin scored two goals, assisted on another and generally acted as the tone-setter in Washington's 3-2 overtime win over Montreal.`\
 https://nytimes.com/athletic/6297831/2025/04/21/capitals-canadiens-nhl-playoffs-2025-game-1-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6227667/2025/04/21/indianapolis-colts-2025-nfl-draf
 **New York Giants NFL Draft 2025 guide: Picks, predictions and key needs**\
 `The Giants own the No. 3 pick and eight picks total in the NFL Draft. After signing two veterans, should they still draft a QB early?`\
 https://nytimes.com/athletic/6227397/2025/04/21/new-york-giants-2025-nfl-draft-picks-needs-predictions-guide/
-
-**Protesters Chain Themselves to Columbia Gates, Calling for Activists’ Release**\
-`Demonstrators sought the release of Mohsen Mahdawi and Mahmoud Khalil, who organized pro-Palestinian protests and have been taken into ICE custody.`\
-https://nytimes.com/2025/04/21/us/politics/columbia-protests-khalil-mahdawi-ice.html
 
