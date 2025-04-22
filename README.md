@@ -1,3 +1,19 @@
+**Why have dramatic bidding contests to host major sporting events stopped?**\
+`Why the drama of multiple bids for the Olympics and World Cup has fizzled out – and will it ever be back?`\
+https://nytimes.com/athletic/6278309/2025/04/22/why-have-dramatic-bidding-contests-to-host-major-sporting-events-stopped/
+
+**The fans who left Man Utd's 5-4 comeback early: 'We felt like we’d lost because we missed it'**\
+`United's comeback against Lyon to win 5-4 was a moment not to be missed. Unfortunately for some, they did just that`\
+https://nytimes.com/athletic/6296030/2025/04/22/man-utd-fans-who-left-lyon-match-early/
+
+**A discussion of how things stand for Newcastle: No panic stations, but they need to get over the line**\
+`George Caulkin and Chris Waugh debate the season so far, expectations, and what Newcastle need to improve next season`\
+https://nytimes.com/athletic/6296091/2025/04/22/how-things-stand-newcastle/
+
+**How Dagenham & Redbridge's bid to 'be the most famous club for Arabs' collapsed in five days**\
+`The extraordinary story of how an English fifth-tier club found itself at the centre of online discourse about conflict in the Middle East`\
+https://nytimes.com/athletic/6295203/2025/04/22/dagenham-investment-soccer-social-media/
+
 **Four reasons why a Liverpool title win is good for English football**\
 `Arne Slot and his team should be admired for playing exciting football, empowering technical players and not spending heavily`\
 https://nytimes.com/athletic/6287179/2025/04/22/liverpool-title-win-english-football/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/04/22/world/europe/pope-francis-politics-advocate.html
 **Trump Shuns Europe, and Its Defense Industry Tries to Capitalize**\
 `Europe’s weapons makers are prospering as the continent reconsiders its post-Cold War stance of favoring domestic investment over military spending.`\
 https://nytimes.com/2025/04/22/world/europe/europe-weapons-investment.html
-
-**The Landscape Is Centuries Old. The Crime Is More Modern.**\
-`In rural England, increasingly sophisticated farming equipment has become a target for thieves, adding to pressure on farming communities.`\
-https://nytimes.com/2025/04/22/world/europe/uk-farming-theft-crime.html
-
-**Ben Ainslie says Jim Ratcliffe America's Cup split 'most difficult thing I've been through'**\
-`The Olympic gold medallist is smarting from a public sporting divorce from the British billionaire who is part-owner of Man United`\
-https://nytimes.com/athletic/6286656/2025/04/22/ben-ainslie-americas-cup-sailgp-jim-ratcliffe/
-
-**Connections: Sports Edition Coach: Hints for April 22, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6296094/2025/04/22/connections-sports-edition-hints-for-april-22-2025/
-
-**Corrections: April 22, 2025**\
-`Corrections that appeared in print on Tuesday, April 22, 2025.`\
-https://nytimes.com/2025/04/22/pageoneplus/corrections-april-22-2025.html
 
