@@ -1,3 +1,7 @@
+**More Than 180 Academic Leaders Condemn Trump ‘Overreach’**\
+`The statement came a day after Harvard University sued the administration over its decision to freeze billions of dollars in federal funding, following the schoo’s refusal to submit to a list of demands.`\
+https://nytimes.com/2025/04/22/us/politics/university-leaders-letter-trump.html
+
 **UNC, TCU to open 2026 season in Ireland's Aer Lingus College Football Classic**\
 `This game replaces the final leg of a home-and-home that was originally scheduled to be played at TCU.`\
 https://nytimes.com/athletic/6299206/2025/04/22/north-carolina-tcu-dublin-ireland-2026/
@@ -22,7 +26,7 @@ https://nytimes.com/athletic/6298051/2025/04/22/hawks-front-office-trae-young-tr
 `The attack, in a picturesque district of India, was the worst assault against civilians in the restive region in years, its leader said.`\
 https://nytimes.com/2025/04/22/world/asia/kashmir-terrorist-attack.html
 
-**Damian Lillard will play Game 2 vs. Pacers after blood clot recovery**\
+**Bucks' Lillard expects to return in Game 2 after blood clot recovery**\
 `Lillard’s absence forced the Bucks to rely entirely on Giannis Antetokounmpo in the series' opening game.`\
 https://nytimes.com/athletic/6299153/2025/04/22/damian-lillard-return-bucks-pacers-game-2/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/22/arts/television/minka-kelly-ransom-canyon.html
 **Boeing Will Sell Its Digital Businesses for $10 Billion**\
 `The deal, with the private equity firm Thoma Bravo, will help the struggling aerospace manufacturer pay down debt and streamline its operations.`\
 https://nytimes.com/2025/04/22/business/boeing-thoma-bravo-jeppesen.html
-
-**Sweating to Shivering: Study Finds Rapid Swings in Temperature Have Increased**\
-`Flips between warm temperatures to cold and vice versa have become quicker, more frequent and more intense in recent decades, a new study shows.`\
-https://nytimes.com/2025/04/22/climate/temperature-swings-climate-change.html
 
