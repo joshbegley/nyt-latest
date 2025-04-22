@@ -1,3 +1,7 @@
+**Until Saturday: NIL holdout turning into QB trade**\
+`Until Saturday is The Athletic's college football newsletter.`\
+https://nytimes.com/athletic/6299337/2025/04/22/tennessee-ucla-quarterback-transfers-until-saturday/
+
 **USMNT Player Tracker: Championship special, plus Pulisic preparing for Inter challenge**\
 `The English second-tier campaign is reaching an exciting conclusion with a number of U.S. players targeting elevation to the Premier League`\
 https://nytimes.com/athletic/6298956/2025/04/22/usmnt-championship-aaronson-koleosho-wright-sargent/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/22/us/politics/university-leaders-letter-trump.html
 **UNC, TCU to open 2026 season in Ireland's Aer Lingus College Football Classic**\
 `This game replaces the final leg of a home-and-home that was originally scheduled to be played at TCU.`\
 https://nytimes.com/athletic/6299206/2025/04/22/north-carolina-tcu-dublin-ireland-2026/
-
-**Easter Monday, the day of Francis’ death, has particular significance for Catholics.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/easter-monday-the-day-of-francis-death-has-particular-significance-for-catholics
 
