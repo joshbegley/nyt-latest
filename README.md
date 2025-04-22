@@ -1,3 +1,11 @@
+**Looking back at Pope Francis’ 2015 visit to the U.S.**\
+`(No description)`\
+https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/looking-back-at-pope-francis-2015-visit-to-the-us
+
+**Trump Will Never Be the ‘Fertilization President’**\
+`MAGA pronatalism is doomed to fail.`\
+https://nytimes.com/2025/04/21/opinion/trump-fertility-birthrate-sexism.html
+
 **Cubs acquiring left-handed pitcher Drew Pomeranz from Mariners: Source**\
 `His pedigree makes him an intriguing option for the Cubs bullpen, which needs to find effective relievers to cover the middle innings.`\
 https://nytimes.com/athletic/6297820/2025/04/21/cubs-drew-pomeranz-mariners-trade/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/21/climate/wind-power-missouri.html
 **Fighting Louisiana Floodwaters With Patches of Green**\
 `Simple, affordable initiatives like rain gardens are helping to soak up water in New Orleans.`\
 https://nytimes.com/2025/04/21/climate/fighting-louisiana-floodwaters-solutions.html
-
-**Latin Americans remember a pontiff who was one of their own.**\
-`By Simon Romero, Frances Robles, Emiliano Rodríguez Mega, Paulina Villegas and Tibisay Romero`\
-https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/latin-americans-remember-a-pontiff-who-was-one-of-their-own
-
-**Wild stick with Zeev Buium amid possible Game 2 lineup changes — and they won't worry about officiating**\
-`Minnesota had only 20 shots reach Vegas goalie Adin Hill in Game 1. This is one area where the Wild must adjust and improve.`\
-https://nytimes.com/athletic/6297712/2025/04/21/wild-game-2-buium-penalties/
 
