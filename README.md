@@ -3,7 +3,7 @@
 https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/looking-back-at-pope-francis-2015-visit-to-the-us
 
 **Trump Will Never Be the ‘Fertilization President’**\
-`MAGA pronatalism is doomed to fail.`\
+`Trump will never be the ‘fertilization president.’`\
 https://nytimes.com/2025/04/21/opinion/trump-fertility-birthrate-sexism.html
 
 **Cubs acquiring left-handed pitcher Drew Pomeranz from Mariners: Source**\
