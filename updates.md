@@ -1,3 +1,23 @@
+**Jury Begins Deliberating in Palin’s Case Against The Times**\
+`This is the second time a jury has heard the case. Sarah Palin sued The New York Times in 2017, accusing the publication of defaming her in an editorial.`\
+https://nytimes.com/2025/04/22/business/media/sarah-palin-new-york-times-jury-deliberations.html
+
+**Jennifer Lopez’s Alma Mater to Stay Open as Nuns Sell to a Casino Firm**\
+`Bally’s Corporation will buy Preston High School’s buildings and lease them back to the Catholic school, a victory for foes of a plan to close the Bronx institution.`\
+https://nytimes.com/2025/04/22/nyregion/preston-catholic-school-bronx.html
+
+**The Complicated Legacy of Pope Francis**\
+`Readers offer reflections after the death of Pope Francis. Also: The mistakes of Defense Secretary Pete Hegseth.`\
+https://nytimes.com/2025/04/22/opinion/pope-francis-legacy.html
+
+**An Ode to the Blues’ Many Guises, Inspired by ‘Sinners’**\
+`Listen to an imagined set list for a supernatural juke joint featuring Albert King, Outkast, Cécile McLorin Salvant and more.`\
+https://nytimes.com/2025/04/22/arts/music/amplifier-newsletter-blues-sinners.html
+
+**Aliza Magen, Highest-Ranking Woman in the Mossad, Dies at 87**\
+`Her career at Israel’s national intelligence agency included working undercover before serving as deputy under three directors.`\
+https://nytimes.com/2025/04/22/world/middleeast/aliza-magen-dead.html
+
 **I Watched the Pope Visit the Forgotten and Convert the Skeptical**\
 `Jim Yardley, the former Rome bureau chief for The New York Times, witnessed Pope Francis’ transformation from an unlikely papal contender to a beloved figure.`\
 https://nytimes.com/2025/04/22/world/europe/pope-francis-death-legacy.html
