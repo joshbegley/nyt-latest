@@ -1,3 +1,7 @@
+**Man United hold positive contract talks with Wolves' Cunha**\
+`The Brazil international has a £62.5million ($83.7m) release clause in the contract he signed in January.`\
+https://nytimes.com/athletic/6295854/2025/04/22/manchester-united-transfers-cunha-wolves/
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/04/22/crosswords/spelling-bee-forum.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6298091/2025/04/22/stars-avalanche-game-2-nhl-playo
 **Oilers complete 4-goal comeback but Kings nab late Game 1 winner**\
 `Phillip Danault rescued the Kings in scoring with 41.1 seconds left for a dramatic 6-5 victory on Monday night.`\
 https://nytimes.com/athletic/6290481/2025/04/22/kings-oilers-game-1-nhl-playoffs/
-
-**Zach Dezenzo delivered in a rare start. Can the Astros create more opportunities for him?**\
-`Swings like those Dezenzo displayed Monday may put the onus back on the Astros to find him more playing time.`\
-https://nytimes.com/athletic/6298260/2025/04/22/zach-dezenzo-start-astros-more-opportunities/
 

@@ -1,3 +1,7 @@
+**Man United hold positive contract talks with Wolves' Cunha**\
+`The Brazil international has a £62.5million ($83.7m) release clause in the contract he signed in January.`\
+https://nytimes.com/athletic/6295854/2025/04/22/manchester-united-transfers-cunha-wolves/
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/04/22/crosswords/spelling-bee-forum.html
