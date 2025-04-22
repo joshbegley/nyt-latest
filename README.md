@@ -1,3 +1,7 @@
+**Les Snead, Sean McVay don't rule out Jalen Ramsey reunion with Rams**\
+`Jalen Ramsey was a key piece to the Rams' defense on their Super Bowl-winning team from the 2021 season.`\
+https://nytimes.com/athletic/6299868/2025/04/22/rams-jalen-ramsey-interest-sean-mcvay/
+
 **Treasury Secretary Bessent Predicts Tax Cuts to Pass by July 4**\
 `Scott Bessent told a group of investors that he expected trade tensions with China to de-escalate.`\
 https://nytimes.com/2025/04/22/us/politics/scott-bessent-tax-cuts.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6299660/2025/04/22/manchester-city-aston-villa-prem
 **Wednesday Briefing: A Downgrade in Global Growth**\
 `Plus, the next big thing from Japan.`\
 https://nytimes.com/2025/04/22/briefing/global-growth-pope-funeral-russia-ukraine-talks.html
-
-**The Face-Plant President**\
-`There’s no better opponent than one who repeatedly trips over his shoelaces.`\
-https://nytimes.com/2025/04/22/opinion/trump-hegseth-powell.html
 
