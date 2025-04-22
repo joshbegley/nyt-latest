@@ -1,3 +1,19 @@
+**Sweating to Shivering: Study Finds Rapid Swings in Temperature Have Increased**\
+`Flips between warm temperatures to cold and vice versa have become quicker, more frequent and more intense in recent decades, a new study shows.`\
+https://nytimes.com/2025/04/22/climate/temperature-swings-climate-change.html
+
+**We Couldn’t Stop Eating These Dishes**\
+`Chicken Florentine, beef fried rice, and ham and potato soup are quick to make and easy to love.`\
+https://nytimes.com/2025/04/22/dining/we-couldnt-stop-eating-these-dishes.html
+
+**Pushing Sisyphean Beach Balls and Honoring Obstacles**\
+`Celia Rowlson-Hall’s “Sissy” at the Baryshnikov Arts Center, a dance-theater hybrid featuring Marisa Tomei, pokes at the boundaries between art and life.`\
+https://nytimes.com/2025/04/22/arts/dance/sissy-celia-rowlson-hall-marisa-tomei.html
+
+**Some People Are Just Difficult. Here’s How to Handle Them.**\
+`These six books can help ease tensions.`\
+https://nytimes.com/2025/04/22/well/difficult-people.html
+
 **‘Francis Was Deeply Loved’: Gazans Mourn Death of Pope**\
 `Gaza’s Christians paid their respects to Pope Francis, who called in on a local church almost daily to check on them throughout the war.`\
 https://nytimes.com/video/world/middleeast/100000010123616/pope-francis-gaza-church-.html
