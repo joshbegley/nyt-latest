@@ -1,3 +1,7 @@
+**The Soccer Tournament unveils groups for women's teams battling for $1 million prize**\
+`More than 500 players will compete across four groups of four teams each, with matches held over four days from June 6-9.`\
+https://nytimes.com/athletic/6297848/2025/04/22/the-soccer-tournament-womens-groups-unveiled/
+
 **A choice that sent a message: Looking back at Francis’ 2013 election as pope.**\
 `By Rachel Donadio`\
 https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/a-choice-that-sent-a-message-looking-back-at-francis-2013-election-as-pope
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/22/opinion/pope-francis-legacy.html
 **An Ode to the Blues’ Many Guises, Inspired by ‘Sinners’**\
 `Listen to an imagined set list for a supernatural juke joint featuring Albert King, Outkast, Cécile McLorin Salvant and more.`\
 https://nytimes.com/2025/04/22/arts/music/amplifier-newsletter-blues-sinners.html
-
-**Aliza Magen, Highest-Ranking Woman in the Mossad, Dies at 87**\
-`Her career at Israel’s national intelligence agency included working undercover before serving as deputy under three directors.`\
-https://nytimes.com/2025/04/22/world/middleeast/aliza-magen-dead.html
 
