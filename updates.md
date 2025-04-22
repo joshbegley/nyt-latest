@@ -1,3 +1,7 @@
+**The Alarm Over Social Media Is Getting Through to Teens**\
+`Writers, parents, doctors and legal experts have been arguing that social media is bad for teens. Turns out that worked.`\
+https://nytimes.com/live/2025/04/21/opinion/thepoint/social-media-teens-pew
+
 **At Trial, Instagram Co-Founder Says Meta Denied His Company Resources**\
 `Kevin Systrom said during testimony in a landmark antitrust trial that he believed Meta viewed Instagram as a threat.`\
 https://nytimes.com/2025/04/22/technology/meta-trial-instagram-kevin-systrom.html

@@ -1,3 +1,7 @@
+**The Alarm Over Social Media Is Getting Through to Teens**\
+`Writers, parents, doctors and legal experts have been arguing that social media is bad for teens. Turns out that worked.`\
+https://nytimes.com/live/2025/04/21/opinion/thepoint/social-media-teens-pew
+
 **At Trial, Instagram Co-Founder Says Meta Denied His Company Resources**\
 `Kevin Systrom said during testimony in a landmark antitrust trial that he believed Meta viewed Instagram as a threat.`\
 https://nytimes.com/2025/04/22/technology/meta-trial-instagram-kevin-systrom.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6289339/2025/04/22/seattle-kraken-gm-botterill-fran
 **The Windup: How an MVP candidate trains his mind**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6298475/2025/04/22/bobby-witt-jr-habits-the-windup/
-
-**La Piazza Brings Venice to Midtown, No Gondola Required**\
-`I’m Donut? offers its Japanese pastries in Times Square, a storied bagel shop plots a return and more restaurant news.`\
-https://nytimes.com/2025/04/22/dining/nyc-restaurant-news.html
 
