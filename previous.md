@@ -1,3 +1,7 @@
+**Watch: The Ravens have four draft directions — which will they take?**\
+`"The Athletic Football Show" discusses what the Baltimore Ravens should do with the No. 27 overall pick.`\
+https://nytimes.com/athletic/6290246/2025/04/22/athletic-football-show-baltimore-ravens-nfl-draft-2025/
+
 **The Quiet Farewell Before Pope Francis’ Funeral**\
 `In a small ceremony, Vatican officials followed the path long taken when a pope dies.`\
 https://nytimes.com/2025/04/22/world/europe/pope-francis-death-casket-photos.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/22/us/politics/supreme-court-lgbtq-books.html
 **Read the Prosecutors’ Letter**\
 `Three prosecutors resigned from the Southern District of New York on Tuesday rather than apologize for the work on the prosecution of Mayor Eric Adams of New York.`\
 https://nytimes.com/interactive/2025/04/22/nyregion/prosecutor-letter.html
-
-**The Ice Bucket Challenge Worked. Why Not Try It Again?**\
-`The trend that dominated social media a decade ago — and raised millions for A.L.S. research — has been reborn as a vehicle to raise mental health awareness.`\
-https://nytimes.com/2025/04/22/style/ice-bucket-challenge-mental-health.html
 

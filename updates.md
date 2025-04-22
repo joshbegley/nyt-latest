@@ -1,3 +1,7 @@
+**Watch: The Ravens have four draft directions — which will they take?**\
+`"The Athletic Football Show" discusses what the Baltimore Ravens should do with the No. 27 overall pick.`\
+https://nytimes.com/athletic/6290246/2025/04/22/athletic-football-show-baltimore-ravens-nfl-draft-2025/
+
 **The Quiet Farewell Before Pope Francis’ Funeral**\
 `In a small ceremony, Vatican officials followed the path long taken when a pope dies.`\
 https://nytimes.com/2025/04/22/world/europe/pope-francis-death-casket-photos.html

@@ -1,3 +1,19 @@
+**Rangers fan survey: Confidence in Drury? And ownership? Ideal coaching candidate? Trade Kreider?**\
+`Chris Drury says he knows Rangers "fans are frustrated" — but how frustrated are you, and with what? Sound off on the state of the team.`\
+https://nytimes.com/athletic/6299569/2025/04/22/rangers-fan-survey-2025-early-offseason/
+
+**Titans confirm they will stay at No. 1 pick: 'We've come to a consensus'**\
+`"I guess you'll find out Thursday night who we pick," Titans GM Mike Borgonzi said during his pre-draft press conference.`\
+https://nytimes.com/athletic/6299675/2025/04/22/titans-draft-pick-cam-ward/
+
+**‘The Gardener’ Is a Great Pop-Goth Spanish Murder Series**\
+`This Netflix series has plenty in common with slick, dark shows like “Dexter” and “You,” though it more often feels like “Wednesday.”`\
+https://nytimes.com/2025/04/22/arts/television/the-gardener-netflix.html
+
+**Colts' Anthony Richardson embraces QB competition with Daniel Jones**\
+`Richardson: "I’m looking to learn as much as I can from (Jones) while we just boost this competition and get better.”`\
+https://nytimes.com/athletic/6299187/2025/04/22/colts-anthony-richardson-daniel-jones-qb-competition/
+
 **Watch: The Ravens have four draft directions — which will they take?**\
 `"The Athletic Football Show" discusses what the Baltimore Ravens should do with the No. 27 overall pick.`\
 https://nytimes.com/athletic/6290246/2025/04/22/athletic-football-show-baltimore-ravens-nfl-draft-2025/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6299664/2025/04/22/rose-bowl-kick-time-espn-cfp-sun
 **At the pope’s hospital, Francis was a calming and mischievous presence.**\
 `The Vatican-run Bambino Gesu mourns a pontiff who would show up last minute, and left lasting memories.`\
 https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/at-the-popes-hospital-francis-was-a-calming-and-mischievous-presence
-
-**Republicans Begin a Trump-Centric Battle to Succeed Mitch McConnell**\
-`The primary race in Kentucky for Mr. McConnell’s seat is expected to be one of the biggest G.O.P. clashes of 2026. On Tuesday, it gained its second high-profile contender, Representative Andy Barr.`\
-https://nytimes.com/2025/04/22/us/politics/andy-barr-kentucky-senate-mitch-mcconnell.html
-
-**As 49ers begin offseason program, Purdy, Kittle, Warner take center stage**\
-`There has been some uncertainty as to whether three of the team's biggest names will attend the voluntary offseason program.`\
-https://nytimes.com/athletic/6299257/2025/04/22/49ers-offseason-contract-brock-purdy-george-kittle/
-
-**Justices Seem Set to Allow Opt-Outs From L.G.B.T.Q. Stories in Schools**\
-`In a lively and sometimes heated argument, the Supreme Court’s conservative majority appeared poised to rule for parents with religious objections to storybooks with gay and transgender characters.`\
-https://nytimes.com/2025/04/22/us/politics/supreme-court-lgbtq-books.html
-
-**Read the Prosecutors’ Letter**\
-`Three prosecutors resigned from the Southern District of New York on Tuesday rather than apologize for the work on the prosecution of Mayor Eric Adams of New York.`\
-https://nytimes.com/interactive/2025/04/22/nyregion/prosecutor-letter.html
 
