@@ -1,3 +1,11 @@
+**Ravens NFL Draft big board: Looking at potential targets for all 3 days**\
+`We use Baltimore's needs, history, tendencies and pre-draft meetings to highlight some prospects in this class who could interest the team. `\
+https://nytimes.com/athletic/6291475/2025/04/22/baltimore-ravens-2025-nfl-draft-big-board/
+
+**Spurs' Romero says he 'would love' to play in La Liga**\
+`"The truth is I haven’t spoken to my representative yet but I’m open to anything," the defender added.`\
+https://nytimes.com/athletic/6298566/2025/04/22/cristian-romero-tottenham-future/
+
 **What are Ohio State's portal needs? A position-by-position breakdown**\
 `The spring transfer portal window is open, and the Buckeyes have some needs to fill.`\
 https://nytimes.com/athletic/6296852/2025/04/22/ohio-state-buckeyes-football-needs/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/22/opinion/trump-harvard.html
 **‘Andor’ Is Not the Resistance You’re Looking For**\
 `I have always found the praise for the show’s revolutionary politics to be at odds with the means of its production.`\
 https://nytimes.com/2025/04/22/opinion/andor-star-wars-leftist-radical.html
-
-**Rep. Haley Stevens Joins an Increasingly Crowded Michigan Senate Race**\
-`The Democratic representative from suburban Detroit is likely to be seen as a centrist in the primary contest to replace Senator Gary Peters, who is retiring.`\
-https://nytimes.com/2025/04/22/us/politics/michigan-senate-race-democrats-haley-stevens.html
-
-**In Philadelphia, a Former Navy Yard Wins on Sustainability**\
-`With recent recognition from the Green Building Council, the 1,200-acre development is poised to welcome its first residential tenants this fall.`\
-https://nytimes.com/2025/04/22/realestate/philadelphia-navy-yard-leed-certification.html
 
