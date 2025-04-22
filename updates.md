@@ -1,3 +1,7 @@
+**Roy Thomas Baker, Who Helped Produce ‘Bohemian Rhapsody,’ Dies at 78**\
+`Among the most successful music producers in the 1970s and ’80s, he helped churn out hits for acts like Queen, the Cars, Journey and Foreigner.`\
+https://nytimes.com/2025/04/22/us/roy-thomas-baker-dead.html
+
 **Trump Says He Has No Plans to Fire Powell**\
 `President Trump’s recent comments blasting Jerome H. Powell, the Federal Reserve chair, for being “late” to lower interest rates had raised questions about his fate.`\
 https://nytimes.com/2025/04/22/us/politics/trump-powell-fed.html

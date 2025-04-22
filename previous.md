@@ -1,3 +1,7 @@
+**Roy Thomas Baker, Who Helped Produce ‘Bohemian Rhapsody,’ Dies at 78**\
+`Among the most successful music producers in the 1970s and ’80s, he helped churn out hits for acts like Queen, the Cars, Journey and Foreigner.`\
+https://nytimes.com/2025/04/22/us/roy-thomas-baker-dead.html
+
 **Trump Says He Has No Plans to Fire Powell**\
 `President Trump’s recent comments blasting Jerome H. Powell, the Federal Reserve chair, for being “late” to lower interest rates had raised questions about his fate.`\
 https://nytimes.com/2025/04/22/us/politics/trump-powell-fed.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/22/polls/doge-elon-musk.html
 **Trump Promised ‘Big, Beautiful’ Deals. Delivering Has Been Tougher.**\
 `So far, the goals of many of President Trump’s negotiations have been unrealized, even those he said would be accomplished in a matter of days or weeks.`\
 https://nytimes.com/2025/04/22/us/politics/trump-trade-ukraine-negotiations.html
-
-**Jury selected, potential witnesses identified on first day of Hockey Canada trial**\
-`On Day 1 of the Hockey Canada sexual assault trial, jury selection began and the Crown revealed its list of potential witnesses.`\
-https://nytimes.com/athletic/6299976/2025/04/22/hockey-canada-trial-day-1/
 
