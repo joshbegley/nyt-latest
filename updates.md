@@ -1,3 +1,15 @@
+**At Trial, Instagram Co-Founder Says Meta Denied His Company Resources**\
+`Kevin Systrom said during testimony in a landmark antitrust trial that he believed Meta viewed Instagram as a threat.`\
+https://nytimes.com/2025/04/22/technology/meta-trial-instagram-kevin-systrom.html
+
+**Devils' Luke Hughes, Brenden Dillon out for Game 2; Cody Glass back in**\
+`Dillon and Hughes both sustained injuries in Game 1 on Sunday.`\
+https://nytimes.com/athletic/6299242/2025/04/22/devils-luke-hughes-brenden-dillon-nhl-playoffs/
+
+**Syria Makes Rare Arrests of Palestinian Militant Group Leaders**\
+`The arrests marked a pendulum swing for the government. Under the Assad regime, Syria served as a base of operations for several Palestinian armed factions.`\
+https://nytimes.com/2025/04/22/world/europe/syria-arrests-palestinian-militant-leaders.html
+
 **Until Saturday: NIL holdout turning into QB trade**\
 `Until Saturday is The Athletic's college football newsletter.`\
 https://nytimes.com/athletic/6299337/2025/04/22/tennessee-ucla-quarterback-transfers-until-saturday/
