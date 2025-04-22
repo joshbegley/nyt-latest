@@ -1,3 +1,7 @@
+**The Briefing - Man City 2 Aston Villa 1 - Late drama and fan protests as City climb into third place**\
+`We break down the key moments from a crucial game in the Premier League's top-five race `\
+https://nytimes.com/athletic/6299660/2025/04/22/manchester-city-aston-villa-premier-league-analysis/
+
 **Francis was the pope who made the most saints.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/saints-mother-teresa
