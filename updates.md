@@ -1,3 +1,7 @@
+**Big Tech’s Troubles**\
+`We explain why the government is trying to break up companies like Meta and Google.`\
+https://nytimes.com/2025/04/22/briefing/google-meta-antitrust.html
+
 **China says it is willing to keep improving ties with the Vatican.**\
 `By Tiffany May`\
 https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/china-says-it-is-willing-to-keep-improving-ties-with-the-vatican
