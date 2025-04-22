@@ -1,3 +1,11 @@
+**Gold Hits $3,500, Setting Another Record, as Investors Remain Uneasy**\
+`President Trump’s tariffs and his attacks on the Federal Reserve continue to unnerve the markets, pushing investors away from the dollar and toward havens like gold.`\
+https://nytimes.com/2025/04/22/business/trump-tariffs-stocks-gold-price.html
+
+**U.S. Strike Targets Yemen Capital**\
+`Residents returned to their damaged neighborhood in Yemen’s capital, Sana, after a deadly U.S. airstrike on Sunday.`\
+https://nytimes.com/video/world/middleeast/100000010123288/us-airstrikes-yemen-houthis.html
+
 **Man United hold positive contract talks with Wolves' Cunha**\
 `The Brazil international has a £62.5million ($83.7m) release clause in the contract he signed in January.`\
 https://nytimes.com/athletic/6295854/2025/04/22/manchester-united-transfers-cunha-wolves/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/22/arts/television/jimmy-kimmel-pope-francis-death.h
 **Hegseth Attacks the Media Amid New Signal Controversy**\
 `During the Easter Egg Roll at the White House, Pete Hegseth called coverage of his sharing of sensitive military data via text with civilians a “smear.”`\
 https://nytimes.com/video/us/politics/100000010123247/hegseth-easter-egg-roll-signal-group-chat.html
-
-**Stars take dramatic OT win to even series with Avalanche: Takeaways**\
-`The Stars beat the Avalanche 4-3 in overtime to send the series to Colorado tied 1-1.`\
-https://nytimes.com/athletic/6298091/2025/04/22/stars-avalanche-game-2-nhl-playoffs/
-
-**Oilers complete 4-goal comeback but Kings nab late Game 1 winner**\
-`Phillip Danault rescued the Kings in scoring with 41.1 seconds left for a dramatic 6-5 victory on Monday night.`\
-https://nytimes.com/athletic/6290481/2025/04/22/kings-oilers-game-1-nhl-playoffs/
 
