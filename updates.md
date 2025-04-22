@@ -1,3 +1,7 @@
+**For his final resting place, Francis chose simplicity in a place of beauty.**\
+`By Elisabetta Povoledo`\
+https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/for-his-final-resting-place-francis-chose-simplicity-in-a-place-of-beauty
+
 **Hegseth says he ‘won’t blink’ in the face of criticism of his leadership.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2025/04/22/us/trump-administration-news/hegseth-says-he-wont-blink-in-the-face-of-criticism-of-his-leadership
