@@ -1,3 +1,7 @@
+**Shannon Sharpe Is Accused of Rape by Ex-Girlfriend**\
+`A lawyer for Mr. Sharpe, who hosts the podcast “Club Shay Shay,” said the sexual encounters were consensual and called the lawsuit “a blatant and cynical attempt” at a shakedown.`\
+https://nytimes.com/2025/04/22/arts/shannon-sharpe-lawsuit-rape-sexual-assault.html
+
 **Jury Begins Deliberating in Palin’s Case Against The Times**\
 `This is the second time a jury has heard the case. Sarah Palin sued The New York Times in 2017, accusing the publication of defaming her in an editorial.`\
 https://nytimes.com/2025/04/22/business/media/sarah-palin-new-york-times-jury-deliberations.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/04/22/world/australia/quake-tracker-austral
 **Who is the dean of the College of Cardinals? (It’s not Ralph Fiennes.)**\
 `By Emma Bubola`\
 https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/who-is-the-dean-of-the-college-of-cardinals-its-not-ralph-fiennes
-
-**Ken Griffey Jr. Is a Photographer Now**\
-`The baseball Hall of Famer has traded his bat for a camera. He shared the stories behind some of his favorite images.`\
-https://nytimes.com/2025/04/22/sports/baseball/ken-griffey-jr-photographer.html
 
