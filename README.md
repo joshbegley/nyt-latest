@@ -1,3 +1,7 @@
+**Just look how far Nottingham Forest have come in a year**\
+`In April 2024, Forest were making angry social media posts. Twelve months on, they're busy strengthening their European credentials `\
+https://nytimes.com/athletic/6297822/2025/04/22/nottingham-forest-tottenham-champions-league/
+
 **Messy, egocentric and undisciplined: Knicks' offense had it all in Game 2 loss to Pistons**\
 `The Knicks earned the No. 3 seed behind an elite, efficient offense. You wouldn't have known that from watching Monday's game.`\
 https://nytimes.com/athletic/6298274/2025/04/22/knicks-lose-game-2-to-pistons/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6298260/2025/04/22/zach-dezenzo-start-astros-more-o
 **Tuesday Briefing: Tributes for Pope Francis**\
 `Plus, making a difference on Earth Day.`\
 https://nytimes.com/2025/04/22/briefing/pope-francis-india-us-israel.html
-
-**Trump’s Tariffs Will Pay Off — for China**\
-`Picking trade fights with countries across the Asia-Pacific plays right into Beiing’s plans to increase its sway over the region.`\
-https://nytimes.com/2025/04/22/opinion/us-china-asia-tariffs.html
 
