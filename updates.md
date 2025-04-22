@@ -1,3 +1,15 @@
+**Tuesday Briefing: Tributes for Pope Francis**\
+`Plus, making a difference on Earth Day.`\
+https://nytimes.com/2025/04/22/briefing/pope-francis-india-us-israel.html
+
+**Trump’s Tariffs Will Pay Off — for China**\
+`Picking trade fights with countries across the Asia-Pacific plays right into Beiing’s plans to increase its sway over the region.`\
+https://nytimes.com/2025/04/22/opinion/us-china-asia-tariffs.html
+
+**The New York Times in Print for Tuesday, April 22, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/22/todays-new-york-times
+
 **Why Pope Francis Was Always a Surprise**\
 `Pope Francis brought empathy and humanity that surprised people and changed the way people saw the Roman Catholic Church. Jason Horowitz, the Rome bureau chief of The New York Times, describes what he learned about Francis while covering him for over a dozen years.`\
 https://nytimes.com/video/world/100000010121936/why-pope-francis-was-always-a-surprise.html

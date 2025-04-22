@@ -1,3 +1,15 @@
+**Tuesday Briefing: Tributes for Pope Francis**\
+`Plus, making a difference on Earth Day.`\
+https://nytimes.com/2025/04/22/briefing/pope-francis-india-us-israel.html
+
+**Trump’s Tariffs Will Pay Off — for China**\
+`Picking trade fights with countries across the Asia-Pacific plays right into Beiing’s plans to increase its sway over the region.`\
+https://nytimes.com/2025/04/22/opinion/us-china-asia-tariffs.html
+
+**The New York Times in Print for Tuesday, April 22, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/22/todays-new-york-times
+
 **Why Pope Francis Was Always a Surprise**\
 `Pope Francis brought empathy and humanity that surprised people and changed the way people saw the Roman Catholic Church. Jason Horowitz, the Rome bureau chief of The New York Times, describes what he learned about Francis while covering him for over a dozen years.`\
 https://nytimes.com/video/world/100000010121936/why-pope-francis-was-always-a-surprise.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6296091/2025/04/22/how-things-stand-newcastle/
 **How Dagenham & Redbridge's bid to 'be the most famous club for Arabs' collapsed in five days**\
 `The extraordinary story of how an English fifth-tier club found itself at the centre of online discourse about conflict in the Middle East`\
 https://nytimes.com/athletic/6295203/2025/04/22/dagenham-investment-soccer-social-media/
-
-**Four reasons why a Liverpool title win is good for English football**\
-`Arne Slot and his team should be admired for playing exciting football, empowering technical players and not spending heavily`\
-https://nytimes.com/athletic/6287179/2025/04/22/liverpool-title-win-english-football/
-
-**The BookKeeper - Exploring Chelsea's remarkable finances and why they can keep spending**\
-`Chelsea have lost £1.291bn at the operating level over ten years and yet have no existing Premier League PSR concerns. This is how it works`\
-https://nytimes.com/athletic/6131046/2025/04/22/bookkeeper-chelsea-finances-transfers/
-
-**Two promotions, a sacking and seasons on the edge - Four days in the race for the Premier League**\
-`Easter can be pivotal in the Championship and this year was no different - we sent reporters around the country to sample the drama`\
-https://nytimes.com/athletic/6296345/2025/04/22/championship-promotion-race-for-premier-league/
 
