@@ -1,3 +1,11 @@
+**‘Francis Was Deeply Loved’: Gazans Mourn Death of Pope**\
+`Gaza’s Christians paid their respects to Pope Francis, who called in on a local church almost daily to check on them throughout the war.`\
+https://nytimes.com/video/world/middleeast/100000010123616/pope-francis-gaza-church-.html
+
+**Schumer Asks for Documents That Prove a Claim on DOGE’s Website**\
+`Elon Musk’s group says it saved $318 million by canceling a “request for proposal” from the Office of Personnel Management but did not release the request itself.`\
+https://nytimes.com/2025/04/22/us/politics/doge-claim-schumer.html
+
 **Russia and Ukraine, Under Trump Pressure, Signal Openness to Direct Talks**\
 `An unusual public back-and-forth suggested that both sides in the war were eager to at least appear interested in negotiations.`\
 https://nytimes.com/2025/04/22/world/europe/russia-ukraine-putin-zelensky.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/22/nyregion/trump-massapequa-school-mascot.html
 **What we've learned from Giants' pre-draft visits: Which QB has NY spent most time on?**\
 `Why have the Giants brought in so many running backs? Are they hoping to add another TE to the mix?`\
 https://nytimes.com/athletic/6298156/2025/04/22/new-york-giants-nfl-draft-visits-shedeur-sanders/
-
-**For his final resting place, Francis chose simplicity in a place of beauty.**\
-`By Elisabetta Povoledo`\
-https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/for-his-final-resting-place-francis-chose-simplicity-in-a-place-of-beauty
-
-**Hegseth says he ‘won’t blink’ in the face of criticism of his leadership.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2025/04/22/us/trump-administration-news/hegseth-says-he-wont-blink-in-the-face-of-criticism-of-his-leadership
 
