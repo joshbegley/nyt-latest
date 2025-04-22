@@ -1,3 +1,7 @@
+**Hegseth Attacks the Media Amid New Signal Controversy**\
+`During the Easter Egg Roll at the White House, Pete Hegseth called coverage of his sharing of sensitive military data via text with civilians a “smear.”`\
+https://nytimes.com/video/us/politics/100000010123247/hegseth-easter-egg-roll-signal-group-chat.html
+
 **Stars take dramatic OT win to even series with Avalanche: Takeaways**\
 `The Stars beat the Avalanche 4-3 in overtime to send the series to Colorado tied 1-1.`\
 https://nytimes.com/athletic/6298091/2025/04/22/stars-avalanche-game-2-nhl-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6298201/2025/04/22/braves-win-strider-on-injured-li
 **How Kroenke's sports empire pieces work to influence Arsenal, MLS, 2026 World Cup**\
 `How SoFi Stadium's construction could impact future work to the Emirates and more from Stan Kroenke's right-hand man.`\
 https://nytimes.com/athletic/6288066/2025/04/22/kroenke-demoff-arsenal-rams-rapids-mls-world-cup-sofi-emirates-stadium/
-
-**Why have dramatic bidding contests to host major sporting events stopped?**\
-`Why the drama of multiple bids for the Olympics and World Cup has fizzled out – and will it ever be back?`\
-https://nytimes.com/athletic/6278309/2025/04/22/why-have-dramatic-bidding-contests-to-host-major-sporting-events-stopped/
 
