@@ -1,3 +1,11 @@
+**Bills RB James Cook absent from OTAs while awaiting for contract extension**\
+`General manager Brandon Beane stated three weeks ago at the NFL owners’ meetings that the sides are significantly far apart.`\
+https://nytimes.com/athletic/6299460/2025/04/22/bills-james-cook-ota-contract-extension/
+
+**Female Soldiers Will Have to Pass ‘Sex-Neutral’ Physical Test, U.S. Army Says**\
+`The new Army Fitness Test comes after Pete Hegseth, the defense secretary, ordered the elimination of lower fitness standards for women in combat roles.`\
+https://nytimes.com/2025/04/22/us/new-army-fitness-test-women.html
+
 **I Watched the Pope Visit the Forgotten and Convert the Skeptical**\
 `Jim Yardley, a former Rome bureau chief for The New York Times, witnessed Pope Francis’ transformation from an unlikely papal contender to a beloved figure.`\
 https://nytimes.com/2025/04/22/world/europe/pope-francis-death-legacy.html

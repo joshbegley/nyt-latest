@@ -1,3 +1,7 @@
+**Bills RB James Cook absent from OTAs while awaiting for contract extension**\
+`General manager Brandon Beane stated three weeks ago at the NFL owners’ meetings that the sides are significantly far apart.`\
+https://nytimes.com/athletic/6299460/2025/04/22/bills-james-cook-ota-contract-extension/
+
 **Shannon Sharpe Is Accused of Rape by Ex-Girlfriend**\
 `A lawyer for Mr. Sharpe, who hosts the podcast “Club Shay Shay,” said the sexual encounters were consensual and called the lawsuit “a blatant and cynical attempt” at a shakedown.`\
 https://nytimes.com/2025/04/22/arts/shannon-sharpe-lawsuit-rape-sexual-assault.html
@@ -26,15 +30,11 @@ https://nytimes.com/2025/04/22/world/middleeast/aliza-magen-dead.html
 `Jim Yardley, a former Rome bureau chief for The New York Times, witnessed Pope Francis’ transformation from an unlikely papal contender to a beloved figure.`\
 https://nytimes.com/2025/04/22/world/europe/pope-francis-death-legacy.html
 
-**Women Soldiers Will Have to Pass ‘Sex-Neutral’ Physical Test, U.S. Army Says**\
+**Female Soldiers Will Have to Pass ‘Sex-Neutral’ Physical Test, U.S. Army Says**\
 `The new Army Fitness Test comes after Pete Hegseth, the defense secretary, ordered the elimination of lower fitness standards for women in combat roles.`\
 https://nytimes.com/2025/04/22/us/new-army-fitness-test-women.html
 
 **Map: 5.1-Magnitude Earthquake Strikes Australia**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/04/22/world/australia/quake-tracker-australia.html
-
-**Who is the dean of the College of Cardinals? (It’s not Ralph Fiennes.)**\
-`By Emma Bubola`\
-https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/who-is-the-dean-of-the-college-of-cardinals-its-not-ralph-fiennes
 
