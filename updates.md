@@ -1,3 +1,7 @@
+**China says it is willing to keep improving ties with the Vatican.**\
+`By Tiffany May`\
+https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/china-says-it-is-willing-to-keep-improving-ties-with-the-vatican
+
 **LeBrun: Stars vs. Avalanche, a series dripping with star power, delivers on its promise**\
 `A series featuring two genuine Stanley Cup contenders was close to fizzling out. Now we get the series we were supposed to get.`\
 https://nytimes.com/athletic/6298498/2025/04/22/stars-avalanche-game-1-nhl-playoffs/
