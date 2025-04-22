@@ -1,3 +1,15 @@
+**Four reasons why a Liverpool title win is good for English football**\
+`Arne Slot and his team should be admired for playing exciting football, empowering technical players and not spending heavily`\
+https://nytimes.com/athletic/6287179/2025/04/22/liverpool-title-win-english-football/
+
+**The BookKeeper - Exploring Chelsea's remarkable finances and why they can keep spending**\
+`Chelsea have lost £1.291bn at the operating level over ten years and yet have no existing Premier League PSR concerns. This is how it works`\
+https://nytimes.com/athletic/6131046/2025/04/22/bookkeeper-chelsea-finances-transfers/
+
+**Two promotions, a sacking and seasons on the edge - Four days in the race for the Premier League**\
+`Easter can be pivotal in the Championship and this year was no different - we sent reporters around the country to sample the drama`\
+https://nytimes.com/athletic/6296345/2025/04/22/championship-promotion-race-for-premier-league/
+
 **The BookKeeper's football finance glossary – A guide to the language of the modern game**\
 `Explaining some of the football finance terms you're likely to see most often in the modern game`\
 https://nytimes.com/athletic/6218435/2025/04/22/bookkeeper-football-finance-glossary/
