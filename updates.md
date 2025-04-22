@@ -1,3 +1,7 @@
+**How Pope Francis Catalyzed the Catholic Right in the U.S.**\
+`Pope Francis’ critics represent a minority of the American church but a powerful one.`\
+https://nytimes.com/video/world/europe/100000010121909/how-pope-francis-catalyzed-the-catholic-right-in-the-us.html
+
 **The Soccer Tournament unveils groups for women's teams battling for $1 million prize**\
 `More than 500 players will compete across four groups of four teams each, with matches held over four days from June 6-9.`\
 https://nytimes.com/athletic/6297848/2025/04/22/the-soccer-tournament-womens-groups-unveiled/

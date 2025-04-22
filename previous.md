@@ -1,3 +1,7 @@
+**How Pope Francis Catalyzed the Catholic Right in the U.S.**\
+`Pope Francis’ critics represent a minority of the American church but a powerful one.`\
+https://nytimes.com/video/world/europe/100000010121909/how-pope-francis-catalyzed-the-catholic-right-in-the-us.html
+
 **The Soccer Tournament unveils groups for women's teams battling for $1 million prize**\
 `More than 500 players will compete across four groups of four teams each, with matches held over four days from June 6-9.`\
 https://nytimes.com/athletic/6297848/2025/04/22/the-soccer-tournament-womens-groups-unveiled/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/22/nyregion/preston-catholic-school-bronx.html
 **The Complicated Legacy of Pope Francis**\
 `Readers offer reflections after the death of Pope Francis. Also: The mistakes of Defense Secretary Pete Hegseth.`\
 https://nytimes.com/2025/04/22/opinion/pope-francis-legacy.html
-
-**An Ode to the Blues’ Many Guises, Inspired by ‘Sinners’**\
-`Listen to an imagined set list for a supernatural juke joint featuring Albert King, Outkast, Cécile McLorin Salvant and more.`\
-https://nytimes.com/2025/04/22/arts/music/amplifier-newsletter-blues-sinners.html
 
