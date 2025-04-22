@@ -1,5 +1,9 @@
+**NBA playoff takeaways: Pistons edge Knicks for first playoff win since 2008**\
+`Two days after New York rode a late 21-0 run to a Game 1 win, Detroit held on to knot the series at 1-1.`\
+https://nytimes.com/athletic/6297664/2025/04/21/nba-playoffs-pistons-knicks-clippers-nuggets-score-takeaways/
+
 **Jets take 2-0 series lead over Blues thanks to another Kyle Connor winner: Takeaways**\
-`Kyle Connor scored his second straight game-winning goal and has staked the Winnipeg Jets to a 2-0 series lead over the St. Louis Blues.`\
+`Kyle Connor scored his second straight game-winning goal to stake the Winnipeg Jets to a 2-0 series lead over the St. Louis Blues.`\
 https://nytimes.com/athletic/6298052/2025/04/21/nhl-playoffs-jets-blues-game-2/
 
 **Alex Ovechkin, Capitals slip past Canadiens in OT: Game 1 takeaways**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/21/us/politics/probationary-workers-firings-trump-os
 **Indianapolis Colts NFL Draft 2025 guide: Picks, predictions and key needs**\
 `The Colts own the No. 14 pick and seven picks total in the NFL Draft. Will they add a TE in Round 1 or target another need?`\
 https://nytimes.com/athletic/6227667/2025/04/21/indianapolis-colts-2025-nfl-draft-picks-needs-predictions-guide/
-
-**New York Giants NFL Draft 2025 guide: Picks, predictions and key needs**\
-`The Giants own the No. 3 pick and eight picks total in the NFL Draft. After signing two veterans, should they still draft a QB early?`\
-https://nytimes.com/athletic/6227397/2025/04/21/new-york-giants-2025-nfl-draft-picks-needs-predictions-guide/
 
