@@ -1,3 +1,7 @@
+**Three Giants starters are hitting under .200. What does history say about similar April slumps?**\
+`There have been 34 players who started regularly for the Giants who hit under .200 in April. What happened with each of them after that?`\
+https://nytimes.com/athletic/6299506/2025/04/22/sf-giants-april-hitting-slumps-history/
+
 **NBA fines Anthony Edwards $50K for inappropriate language to a fan**\
 `The Minnesota Timberwolves took a 1-0 series lead over the Los Angeles Lakers Saturday night after 117-95 victory.`\
 https://nytimes.com/athletic/6300139/2025/04/22/anthony-edwards-fined-50k-nba-remarks-lakers-fan/
