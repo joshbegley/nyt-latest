@@ -1,3 +1,7 @@
+**Another way Francis broke with tradition: by choosing an unusually humble residence.**\
+`Po`\
+https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/casa-santa-marta-francis-seal
+
 **As It Turns 100, ‘The Great Gatsby’ Takes Several Turns in the Spotlight**\
 `The book by F. Scott Fitzgerald is the subject of exhibitions in New York, Minnesota, New Jersey and South Carolina.`\
 https://nytimes.com/2025/04/22/arts/design/gatsby-centennial-museum-exhibitions.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6297525/2025/04/22/raiders-2025-nfl-draft-big-board
 **Chargers NFL Draft big board: 100 prospects to target across all 7 rounds**\
 `Pass catchers dominate the top of the board for the Chargers, who could use some additional options for quarterback Justin Herbert.`\
 https://nytimes.com/athletic/6297786/2025/04/22/chargers-nfl-draft-big-board-2025/
-
-**How the Senators can exploit the Leafs' weaknesses at five-on-five in Game 2**\
-`The good news for the Senators: there were positives at five-on-five they can take with them into Game 2 and beyond. `\
-https://nytimes.com/athletic/6296492/2025/04/22/senators-maple-leafs-five-on-five-nhl-playoffs/
 

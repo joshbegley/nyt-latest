@@ -1,3 +1,7 @@
+**Another way Francis broke with tradition: by choosing an unusually humble residence.**\
+`Po`\
+https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/casa-santa-marta-francis-seal
+
 **As It Turns 100, ‘The Great Gatsby’ Takes Several Turns in the Spotlight**\
 `The book by F. Scott Fitzgerald is the subject of exhibitions in New York, Minnesota, New Jersey and South Carolina.`\
 https://nytimes.com/2025/04/22/arts/design/gatsby-centennial-museum-exhibitions.html
