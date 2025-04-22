@@ -1,3 +1,5 @@
+
+
 **For his final resting place, Francis chose simplicity in a place of beauty.**\
 `By Elisabetta Povoledo`\
 https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/for-his-final-resting-place-francis-chose-simplicity-in-a-place-of-beauty
