@@ -1,3 +1,7 @@
+**Messy, egocentric and undisciplined: Knicks' offense had it all in Game 2 loss to Pistons**\
+`The Knicks earned the No. 3 seed behind an elite, efficient offense. You wouldn't have known that from watching Monday's game.`\
+https://nytimes.com/athletic/6298274/2025/04/22/knicks-lose-game-2-to-pistons/
+
 **Tottenham's 51 crosses against Nottingham Forest: Was this the birth of a necessary Plan B?**\
 `Spurs' aerial approach may not have come off against against Nottingham Forest but it might prove a viable tactic in the Europa League `\
 https://nytimes.com/athletic/6297739/2025/04/22/tottenham-hotspur-51-crosses-nottingham-forest/

@@ -1,3 +1,7 @@
+**Messy, egocentric and undisciplined: Knicks' offense had it all in Game 2 loss to Pistons**\
+`The Knicks earned the No. 3 seed behind an elite, efficient offense. You wouldn't have known that from watching Monday's game.`\
+https://nytimes.com/athletic/6298274/2025/04/22/knicks-lose-game-2-to-pistons/
+
 **Tottenham's 51 crosses against Nottingham Forest: Was this the birth of a necessary Plan B?**\
 `Spurs' aerial approach may not have come off against against Nottingham Forest but it might prove a viable tactic in the Europa League `\
 https://nytimes.com/athletic/6297739/2025/04/22/tottenham-hotspur-51-crosses-nottingham-forest/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/22/briefing/pope-francis-india-us-israel.html
 **Trump’s Tariffs Will Pay Off — for China**\
 `Picking trade fights with countries across the Asia-Pacific plays right into Beiing’s plans to increase its sway over the region.`\
 https://nytimes.com/2025/04/22/opinion/us-china-asia-tariffs.html
-
-**The New York Times in Print for Tuesday, April 22, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/04/22/todays-new-york-times
 
