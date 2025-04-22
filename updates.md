@@ -1,3 +1,7 @@
+**Our NBA awards ballots revealed, from MVP to Defensive Player of the Year and more**\
+`Our voters take you inside the easiest and toughest decisions on their ballots, as award announcements begin on Tuesday.`\
+https://nytimes.com/athletic/6296709/2025/04/22/awards-sga-nikola-jokic-mvp-sixth-man-nba/
+
 **Nations have begun official periods of mourning.**\
 `By John Yoon`\
 https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/nations-have-begun-official-periods-of-mourning
