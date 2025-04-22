@@ -1,3 +1,11 @@
+**Will Campbell, Tyler Warren's Rolexes to be given away after NFL Draft**\
+`The two first-round hopefuls are introducing a new piece of NFL Draft memorabilia`\
+https://nytimes.com/athletic/6299468/2025/04/22/nfl-draft-will-campbell-tyler-warren-watches-rolex/
+
+**Shedeur Sanders 'could go anywhere' in NFL Draft according to oddsmaker**\
+`Max Meyer spoke to oddsmakers to break down the early 2025 NFL Draft betting action. Two players can make or break the books.`\
+https://nytimes.com/athletic/6299700/2025/04/22/nfl-draft-2025-shedeur-sanders-betting-odds/
+
 **Judge Blocks Trump Effort to Dismantle Voice of America**\
 `The judge also ordered the government to halt its efforts to shut down two other government-funded outlets, Radio Free Asia and the Middle East Broadcasting Networks.`\
 https://nytimes.com/2025/04/22/us/politics/judge-trump-voice-of-america.html

@@ -1,3 +1,11 @@
+**Will Campbell, Tyler Warren's Rolexes to be given away after NFL Draft**\
+`The two first-round hopefuls are introducing a new piece of NFL Draft memorabilia`\
+https://nytimes.com/athletic/6299468/2025/04/22/nfl-draft-will-campbell-tyler-warren-watches-rolex/
+
+**Shedeur Sanders 'could go anywhere' in NFL Draft according to oddsmaker**\
+`Max Meyer spoke to oddsmakers to break down the early 2025 NFL Draft betting action. Two players can make or break the books.`\
+https://nytimes.com/athletic/6299700/2025/04/22/nfl-draft-2025-shedeur-sanders-betting-odds/
+
 **Judge Blocks Trump Effort to Dismantle Voice of America**\
 `The judge also ordered the government to halt its efforts to shut down two other government-funded outlets, Radio Free Asia and the Middle East Broadcasting Networks.`\
 https://nytimes.com/2025/04/22/us/politics/judge-trump-voice-of-america.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/22/us/politics/hegseth-signal-chat.html
 **Rangers fan survey: Confidence in Drury? And ownership? Ideal coaching candidate? Trade Kreider?**\
 `Chris Drury says he knows Rangers "fans are frustrated" — but how frustrated are you, and with what? Sound off on the state of the team.`\
 https://nytimes.com/athletic/6299569/2025/04/22/rangers-fan-survey-2025-early-offseason/
-
-**Titans confirm they will stay at No. 1 pick: 'We've come to a consensus'**\
-`"I guess you'll find out Thursday night who we pick," Titans GM Mike Borgonzi said during his pre-draft press conference.`\
-https://nytimes.com/athletic/6299675/2025/04/22/titans-draft-pick-cam-ward/
-
-**‘The Gardener’ Is a Great Pop-Goth Spanish Murder Series**\
-`This Netflix series has plenty in common with slick, dark shows like “Dexter” and “You,” though it more often feels like “Wednesday.”`\
-https://nytimes.com/2025/04/22/arts/television/the-gardener-netflix.html
 
