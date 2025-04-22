@@ -1,3 +1,15 @@
+**Four reasons why a Liverpool title win is good for English football**\
+`Arne Slot and his team should be admired for playing exciting football, empowering technical players and not spending heavily`\
+https://nytimes.com/athletic/6287179/2025/04/22/liverpool-title-win-english-football/
+
+**The BookKeeper - Exploring Chelsea's remarkable finances and why they can keep spending**\
+`Chelsea have lost £1.291bn at the operating level over ten years and yet have no existing Premier League PSR concerns. This is how it works`\
+https://nytimes.com/athletic/6131046/2025/04/22/bookkeeper-chelsea-finances-transfers/
+
+**Two promotions, a sacking and seasons on the edge - Four days in the race for the Premier League**\
+`Easter can be pivotal in the Championship and this year was no different - we sent reporters around the country to sample the drama`\
+https://nytimes.com/athletic/6296345/2025/04/22/championship-promotion-race-for-premier-league/
+
 **The BookKeeper's football finance glossary – A guide to the language of the modern game**\
 `Explaining some of the football finance terms you're likely to see most often in the modern game`\
 https://nytimes.com/athletic/6218435/2025/04/22/bookkeeper-football-finance-glossary/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6296094/2025/04/22/connections-sports-edition-hints
 **Corrections: April 22, 2025**\
 `Corrections that appeared in print on Tuesday, April 22, 2025.`\
 https://nytimes.com/2025/04/22/pageoneplus/corrections-april-22-2025.html
-
-**Quote of the Day: Ancient City Of Palmyra Bears Scars Of Civil War**\
-`Quotation of the Day for Tuesday, April 22, 2025.`\
-https://nytimes.com/2025/04/21/pageoneplus/quote-of-the-day-ancient-city-of-palmyra-bears-scars-of-civil-war.html
-
-**'You don't want to die': Jazz Chisholm Jr.'s strange night includes broken-bat danger**\
-`The Yankees second baseman avoided a wood shard, but a run scored on the play in the loss to the Guardians. He also homered.`\
-https://nytimes.com/athletic/6298100/2025/04/21/yankees-jazz-chisholm-jr-broken-bat-homer/
-
-**Cardinals' losing skid hits 5 games after eighth-inning implosion against Braves**\
-`Atlanta scored 5 times in the eighth and withstood a 3-run rally in the ninth to stun St. Louis for its most maddening loss yet.`\
-https://nytimes.com/athletic/6298055/2025/04/21/cardinals-lose-fifth-straight/
 
