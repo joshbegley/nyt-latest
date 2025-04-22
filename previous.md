@@ -1,3 +1,11 @@
+**Watch: Did Kawhi Leonard and the Clippers tame Nikola Jokić and the Nuggets?**\
+`NBA Daily discuss the Los Angeles Clippers’ 105-102 win over the Denver Nuggets, which tied their first-round series.`\
+https://nytimes.com/athletic/6298720/2025/04/22/nba-daily-kawhi-leonard-nikola-jokic-clippers-nuggets-playoffs/
+
+**Details Hegseth Shared on Signal Came From a Secure Site**\
+`Information about U.S. strikes in Yemen that the defense secretary put in two group chats came from Central Command, according to two people familiar with the chats.`\
+https://nytimes.com/2025/04/22/us/politics/hegseth-signal-chat.html
+
 **Rangers fan survey: Confidence in Drury? And ownership? Ideal coaching candidate? Trade Kreider?**\
 `Chris Drury says he knows Rangers "fans are frustrated" — but how frustrated are you, and with what? Sound off on the state of the team.`\
 https://nytimes.com/athletic/6299569/2025/04/22/rangers-fan-survey-2025-early-offseason/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6299746/2025/04/22/cincinnati-jeremiah-kelly-dies-a
 **The Connection Between Faith and Environmental Action**\
 `Leaders from many religions — including, notably, Pope Francis — have long sought to tie their faith to environmental stewardship.`\
 https://nytimes.com/2025/04/22/climate/the-connection-between-faith-and-environmental-action.html
-
-**Rose Bowl kickoff time moved up an hour: What about the sunset?**\
-`Sunset over the San Gabriel Mountains will likely come during the Rose Bowl's final minutes rather than early in the fourth quarter.`\
-https://nytimes.com/athletic/6299664/2025/04/22/rose-bowl-kick-time-espn-cfp-sunset/
-
-**At the pope’s hospital, Francis was a calming and mischievous presence.**\
-`The Vatican-run Bambino Gesu mourns a pontiff who would show up last minute, and left lasting memories.`\
-https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/at-the-popes-hospital-francis-was-a-calming-and-mischievous-presence
 

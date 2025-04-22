@@ -1,3 +1,11 @@
+**Watch: Did Kawhi Leonard and the Clippers tame Nikola Jokić and the Nuggets?**\
+`NBA Daily discuss the Los Angeles Clippers’ 105-102 win over the Denver Nuggets, which tied their first-round series.`\
+https://nytimes.com/athletic/6298720/2025/04/22/nba-daily-kawhi-leonard-nikola-jokic-clippers-nuggets-playoffs/
+
+**Details Hegseth Shared on Signal Came From a Secure Site**\
+`Information about U.S. strikes in Yemen that the defense secretary put in two group chats came from Central Command, according to two people familiar with the chats.`\
+https://nytimes.com/2025/04/22/us/politics/hegseth-signal-chat.html
+
 **Rangers fan survey: Confidence in Drury? And ownership? Ideal coaching candidate? Trade Kreider?**\
 `Chris Drury says he knows Rangers "fans are frustrated" — but how frustrated are you, and with what? Sound off on the state of the team.`\
 https://nytimes.com/athletic/6299569/2025/04/22/rangers-fan-survey-2025-early-offseason/
