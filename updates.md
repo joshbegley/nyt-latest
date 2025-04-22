@@ -1,3 +1,11 @@
+**Ravens NFL Draft big board: Looking at potential targets for all 3 days**\
+`We use Baltimore's needs, history, tendencies and pre-draft meetings to highlight some prospects in this class who could interest the team. `\
+https://nytimes.com/athletic/6291475/2025/04/22/baltimore-ravens-2025-nfl-draft-big-board/
+
+**Spurs' Romero says he 'would love' to play in La Liga**\
+`"The truth is I haven’t spoken to my representative yet but I’m open to anything," the defender added.`\
+https://nytimes.com/athletic/6298566/2025/04/22/cristian-romero-tottenham-future/
+
 **What are Ohio State's portal needs? A position-by-position breakdown**\
 `The spring transfer portal window is open, and the Buckeyes have some needs to fill.`\
 https://nytimes.com/athletic/6296852/2025/04/22/ohio-state-buckeyes-football-needs/
