@@ -1,3 +1,11 @@
+**Women Soldiers Will Have to Pass ‘Sex-Neutral’ Physical Test, U.S. Army Says**\
+`The new Army Fitness Test comes after Pete Hegseth, the defense secretary, ordered the elimination of lower fitness standards for women in combat roles.`\
+https://nytimes.com/2025/04/22/us/new-army-fitness-test-women.html
+
+**Map: 5.1-Magnitude Earthquake Strikes Australia**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/04/22/weather/quake-tracker-australia.html
+
 **Who is the dean of the College of Cardinals? (It’s not Ralph Fiennes.)**\
 `By Emma Bubola`\
 https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/who-is-the-dean-of-the-college-of-cardinals-its-not-ralph-fiennes
@@ -28,13 +36,5 @@ https://nytimes.com/athletic/6299452/2025/04/22/who-will-draft-qb-2025-teams-sai
 
 **Trump and Zelensky are among the leaders planning to attend Francis’ funeral.**\
 `By Amelia Nierenberg`\
-https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/pope-francis-funeral-guests
-
-**Top Producer of ‘60 Minutes’ Quits, Saying He Lost Independence**\
-`The news program has faced mounting pressure from both President Trump and its corporate ownership at Paramount, the parent company of CBS News.`\
-https://nytimes.com/2025/04/22/business/media/cbs-60-minutes-trump-bill-owens.html
-
-**Prime Tire: Lewis Hamilton and lost time. Plus, Meet your new F1 points leader**\
-`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
-https://nytimes.com/athletic/6299035/2025/04/22/formula-one-prime-tire-lewis-hamilton-oscar-piastri/
+https://nytimes.com/2025/04/22/world/europe/pope-francis-funeral-guests.html
 
