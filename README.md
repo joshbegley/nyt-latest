@@ -1,3 +1,7 @@
+**Trump will not target nonprofits in an executive order, the White House says.**\
+`By Theodore Schleifer`\
+https://nytimes.com/live/2025/04/22/us/trump-administration-news/trump-will-not-target-nonprofits-in-an-executive-order-the-white-house-says
+
 **Pelicans exec Joe Dumars says he has 'no edicts' to trade Zion Williamson**\
 `Williamson had another injury-plagued season amidst a dreary 21-win campaign in New Orleans, the worst by the franchise in 20 years.`\
 https://nytimes.com/athletic/6300342/2025/04/22/pelicans-joe-dumars-zion-williamson/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/22/world/europe/pope-francis-funeral.html
 **Improvement in execution gives Canadiens strong belief in their Game 2 chances**\
 `Montreal needs to have a clear mind right from the start of Game 2, something it showed it could do in the third period of Game 1.`\
 https://nytimes.com/athletic/6300225/2025/04/22/canadiens-nhl-playoffs-capitals-game-2/
-
-**How Americans Feel About DOGE and Elon Musk**\
-`People like the idea of cutting government waste. But they dislike Mr. Musk, and they’re down on the Department of Government Efficiency.`\
-https://nytimes.com/2025/04/22/polls/doge-elon-musk.html
 
