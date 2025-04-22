@@ -1,3 +1,11 @@
+**The Athletic FC: Promotion party for US owners but tough calls to come, Man Utd eye Cunha**\
+`In today's TAFC: Leeds and Burnley promoted to Premier League but can they survive? Plus: Manchester United target Cunha`\
+https://nytimes.com/athletic/6298608/2025/04/22/leeds-burnley-us-owners-man-united-cunha/
+
+**Pope Francis’ Death Cuts a Vital Line of Hope for Gaza’s Christians**\
+`For months, the pontiff spoke by telephone almost every night with people sheltering in a Catholic church in the battered enclave. “The evenings became known as the pope’s time,” a priest in Gaza said.`\
+https://nytimes.com/2025/04/22/world/middleeast/pope-francis-gaza.html
+
 **The Pulse: One night, multiple playoff thrillers**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6296693/2025/04/22/nba-nhl-playoffs-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/before-his-hos
 **Shai Gilgeous-Alexander can't be worse than Game 1. That's bad news for the Grizzlies**\
 `Oklahoma City rolled in Game 1, even though its MVP candidate was nowhere near his best. What happens if he is in Game 2?`\
 https://nytimes.com/athletic/6297970/2025/04/22/shai-gilgeous-alexander-thunder-game-2-grizzlies/
-
-**Can the ACC's new men's basketball coaches launch a conference comeback?**\
-`If these four respective names get off to strong starts in their new head coaching gigs, the ACC may be back very soon.`\
-https://nytimes.com/athletic/6290383/2025/04/22/acc-basketball-new-coaches-will-wade-ryan-odom/
-
-**A 'True Blue': Why Madonna attended Chelsea's Conference League game against Legia Warsaw**\
-`Chelsea's less-than-sold-out Conference League quarter-final against Legia Warsaw had a famous name in the stands`\
-https://nytimes.com/athletic/6295978/2025/04/22/madonna-chelsea-legia-warsaw/
 
