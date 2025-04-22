@@ -1,40 +1,40 @@
-**Nations have begun official periods of mourning.**\
-`By John Yoon`\
-https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/nations-have-begun-official-periods-of-mourning
+**Vikings big board: 10 players who make sense for Minnesota on each day**\
+`With just four picks in the draft, the Vikings will be hoping to hit on each of them. That puts a lot of pressure on the GM and coach.`\
+https://nytimes.com/athletic/6297265/2025/04/22/vikings-2025-nfl-draft-big-board-tyler-booker/
 
-**Our NBA awards ballots revealed, from MVP to Defensive Player of the Year and more**\
-`Our voters take you inside the easiest and toughest decisions on their ballots, as award announcements begin on Tuesday.`\
-https://nytimes.com/athletic/6296709/2025/04/22/awards-sga-nikola-jokic-mvp-sixth-man-nba/
+**Giants 2025 NFL Draft big board: 40 prospects who would fit in New York**\
+`For all the talk of what the Giants will do at No. 3 and at QB, they still have plenty of holes to address in the draft.`\
+https://nytimes.com/athletic/6290975/2025/04/22/giants-2025-nfl-draft-big-board-top-prospects/
 
-**Browns NFL Draft big board: Players to consider at positions of need**\
-`When the draft begins, is Cleveland's plan as simple as going offensive playmaker, quarterback, then best available lineman? `\
-https://nytimes.com/athletic/6297131/2025/04/22/cleveland-browns-2025-nfl-draft-big-board/
+**Jets NFL Draft board: O-line, tight end, DB and QB prospects they could target**\
+`A look at who could hear their name called by the Jets in this year's draft.`\
+https://nytimes.com/athletic/6296734/2025/04/22/jets-nfl-draft-board/
 
-**Eagles 2025 NFL Draft big board: Players to watch at positions on offense and defense**\
-`The Eagles have been active traders at recent drafts.`\
-https://nytimes.com/athletic/6296583/2025/04/22/eagles-2025-nfl-draft-big-board-howie-roseman/
+**NHL awards predictions: End-of-season picks for Hart, Calder, Jack Adams and more**\
+`The MVP debate heats up, plus clear front-runners emerge for the league's top rookie, defenseman, goaltender, coach and more.`\
+https://nytimes.com/athletic/6297667/2025/04/22/nhl-2024-25-awards-predictions-hart-calder/
 
-**Commanders NFL Draft big board: Players worth considering on all 3 days**\
-`Taking a look at some of Washington's focus areas and the potential targets available through the three-day draft. `\
-https://nytimes.com/athletic/6295479/2025/04/22/washington-commanders-2025-nfl-draft-big-board/
+**A beginner’s guide to the 2025 NFL Draft: No. 1 pick, trade rumors, full order and more**\
+`Need to catch up on this year's draft before all the fun begins Thursday night in Green Bay? We've got you covered.`\
+https://nytimes.com/athletic/6296291/2025/04/22/nfl-draft-2025-guide-pick-prospects-order/
 
-**The New York Times International Edition in Print for Wednesday, April 23, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/04/22/todays-new-york-times-international-edition
+**Will NWSL expansion bring more opportunities for women or more coaches from Europe?**\
+`Angel City said it looked at a balanced pool of candidates before hiring Bayern Munich head coach Alexander Straus.`\
+https://nytimes.com/athletic/6297940/2025/04/22/nwsl-women-coach-pipeline-soccer/
 
-**NFL mock draft: How league insiders expect top 10 picks to unfold: Will Jags take Jeanty?**\
-`The first four picks of the NFL Draft feel somewhat predictable. Where things will get interesting is at No. 5 with the Jaguars. `\
-https://nytimes.com/athletic/6290474/2025/04/22/nfl-draft-mock-draft-coaches-top-10-2025/
+**Mikko Rantanen's struggles are entirely understandable — but entirely unacceptable**\
+`A still-getting-his-feet-beneath-him Rantanen is still a really good Rantanen. But really good isn’t good enough against the revamped Avs.`\
+https://nytimes.com/athletic/6298419/2025/04/22/mikko-rantanen-dallas-stars-nhl-playoffs/
 
-**Ravens NFL Draft big board: Looking at potential targets for all 3 days**\
-`We use Baltimore's needs, history, tendencies and pre-draft meetings to highlight some prospects in this class who could interest the team. `\
-https://nytimes.com/athletic/6291475/2025/04/22/baltimore-ravens-2025-nfl-draft-big-board/
+**Hockey Canada sexual assault trial starts today: Here's what you need to know**\
+`Laying out the key details of a trial in London, Ontario, that could last as long as eight weeks. `\
+https://nytimes.com/athletic/6296302/2025/04/22/hockey-canada-sexual-assault-trial/
 
-**Spurs' Romero says he 'would love' to play in La Liga**\
-`"The truth is I haven’t spoken to my representative yet but I’m open to anything," the defender added.`\
-https://nytimes.com/athletic/6298566/2025/04/22/cristian-romero-tottenham-future/
+**NHL playoffs daily: Stars, Kings, Caps win thrillers; Jets take command**\
+`Monday's NHL playoff action featured four games with wild, tenses finishes. Here are our takeaways from the action.`\
+https://nytimes.com/athletic/6297960/2025/04/22/nhl-playoffs-daily-score-results-takeaways/
 
-**What are Ohio State's portal needs? A position-by-position breakdown**\
-`The spring transfer portal window is open, and the Buckeyes have some needs to fill.`\
-https://nytimes.com/athletic/6296852/2025/04/22/ohio-state-buckeyes-football-needs/
+**Blues' biggest strength has become a weakness in back-to-back playoff losses**\
+`The Blues have been leading or tied going into the 3rd period of both games so far against the Jets, only to lose them both.`\
+https://nytimes.com/athletic/6297765/2025/04/22/blues-third-period-nhl-playoffs-jets/
 
