@@ -1,3 +1,11 @@
+**Pistons' 17-year playoff win drought ends with help of Cade Cunningham, Dennis Schröder**\
+`Cunningham and Schröder led the charge Monday, as Detroit snapped an NBA-record 15-game postseason skid against the New York Knicks.`\
+https://nytimes.com/athletic/6298390/2025/04/22/cade-cunningham-dennis-schroder-pistons-nba-playoffs/
+
+**Education Department Will Resume Collections on Student Loan Debt**\
+`In an announcement this week, the department warned that millions of borrowers could be referred to debt collectors and see deductions from their paychecks.`\
+https://nytimes.com/2025/04/22/business/education-department-student-loan-debt.html
+
 **Chiefs NFL Draft Big Board: Plenty of linemen to choose from at No. 31 and beyond**\
 `The Chiefs’ biggest roster needs are at defensive lineman, offensive tackle and running back. We look at options for all three days.`\
 https://nytimes.com/athletic/6273507/2025/04/22/chiefs-nfl-draft-2025-big-board/
