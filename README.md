@@ -1,3 +1,7 @@
+**Aliza Magen, Highest-Ranking Woman in the Mossad, Dies at 87**\
+`Her career at Israel’s national intelligence agency included working undercover before serving as deputy under three directors.`\
+https://nytimes.com/2025/04/22/world/middleeast/aliza-magen-dead.html
+
 **I Watched the Pope Visit the Forgotten and Convert the Skeptical**\
 `Jim Yardley, the former Rome bureau chief for The New York Times, witnessed Pope Francis’ transformation from an unlikely papal contender to a beloved figure.`\
 https://nytimes.com/2025/04/22/world/europe/pope-francis-death-legacy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6297401/2025/04/22/yunus-musah-ac-milan-struggle-us
 **Before Harvard Was Hailed a Hero, It Sought a Deal With Trump**\
 `Harvard frantically tried to avoid a showdown with the Trump administration. Now many of its big donors are pushing the university’s leaders to back down and renew talks with the White House.`\
 https://nytimes.com/2025/04/22/business/harvard-trump-deal.html
-
-**Scoop City: Who might draft a QB? When?**\
-`What each of the QB-needy teams might do during the first three rounds of the 2025 NFL Draft.`\
-https://nytimes.com/athletic/6299452/2025/04/22/who-will-draft-qb-2025-teams-saints-jets-raiders-browns-giants-steelers-scoop-city/
 

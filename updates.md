@@ -1,3 +1,11 @@
+**I Watched the Pope Visit the Forgotten and Convert the Skeptical**\
+`Jim Yardley, the former Rome bureau chief for The New York Times, witnessed Pope Francis’ transformation from an unlikely papal contender to a beloved figure.`\
+https://nytimes.com/2025/04/22/world/europe/pope-francis-death-legacy.html
+
+**Map: 5.1-Magnitude Earthquake Strikes Australia**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/04/22/world/australia/quake-tracker-australia.html
+
 **Women Soldiers Will Have to Pass ‘Sex-Neutral’ Physical Test, U.S. Army Says**\
 `The new Army Fitness Test comes after Pete Hegseth, the defense secretary, ordered the elimination of lower fitness standards for women in combat roles.`\
 https://nytimes.com/2025/04/22/us/new-army-fitness-test-women.html
