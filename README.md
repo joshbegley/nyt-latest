@@ -1,3 +1,19 @@
+**Trump Promised ‘Big, Beautiful’ Deals. Delivering Has Been Tougher.**\
+`So far, the goals of many of President Trump’s negotiations have been unrealized, even those he said would be accomplished in a matter of days or weeks.`\
+https://nytimes.com/2025/04/22/us/politics/trump-trade-ukraine-negotiations.html
+
+**Jury selected, potential witnesses identified on first day of Hockey Canada trial**\
+`On Day 1 of the Hockey Canada sexual assault trial, jury selection began and the Crown revealed its list of potential witnesses.`\
+https://nytimes.com/athletic/6299976/2025/04/22/hockey-canada-trial-day-1/
+
+**Justices Appeared Set to Allow Opt-Outs From L.G.B.T.Q. Stories**\
+`Also, the secretary of state announced major cuts at the State Department. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/04/22/briefing/supreme-court-childrens-books-state-department.html
+
+**Nick Castellanos fails to homer after being most bet-on prop in all of sports on Monday**\
+`Bettors jumped on popular lore about Castellanos' knack for oddly timed homers.`\
+https://nytimes.com/athletic/6299331/2025/04/22/nick-castellanos-homer-most-bet-prop-monday/
+
 **Three Giants starters are hitting under .200. What does history say about similar April slumps?**\
 `There have been 34 players who started regularly for the Giants who hit under .200 in April. What happened with each of them after that?`\
 https://nytimes.com/athletic/6299506/2025/04/22/sf-giants-april-hitting-slumps-history/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/04/22/world/americas/mexico-kristi-noem-sheinbaum-ads.h
 **USMNT's Pochettino: 'Players must be proud and fight for millions of kids**\
 `Pochettino is focused on bringing players with “the right mindset” to the tournament as he continues to prepare for next year's World Cup.`\
 https://nytimes.com/athletic/6300043/2025/04/22/usmnt-mauricio-pochettino-gold-cup/
-
-**National Science Foundation Terminates Hundreds of Active Research Awards**\
-`The agency targeted grants focused on diversity, equity and inclusion, as well as research on misinformation.`\
-https://nytimes.com/2025/04/22/science/trump-national-science-foundation-grants.html
-
-**Rubio Skipping Ukraine Talks as Zelensky Rebuffs U.S. on Crimea**\
-`The decision by Secretary of State Marco Rubio to pull out of the meeting and an objection by Ukraine’s leader to a key U.S. proposal raised questions about the state of the negotiations.`\
-https://nytimes.com/2025/04/22/world/europe/ukraine-cease-fire-talks.html
-
-**Francis was the pope who made the most saints.**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/saints-mother-teresa
-
-**Measles Surge in Southwest Is Now the Largest Single Outbreak Since 2000**\
-`Growing case numbers suggest that national total will surpass that seen during the last large outbreak in 2019.`\
-https://nytimes.com/2025/04/22/health/measles-southwest-outbreak.html
 
