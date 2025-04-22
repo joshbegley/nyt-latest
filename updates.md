@@ -1,3 +1,15 @@
+**A Jury Is Seated for the New York Trial of Harvey Weinstein. Again.**\
+`Some prospective jurors reacted with shock when they heard the defendant’s name. Opening statements lie ahead.`\
+https://nytimes.com/2025/04/22/nyregion/harvey-weinstein-trial-jury-seated.html
+
+**Islanders fire team president and GM Lou Lamoriello after missing postseason**\
+`Minority owner John Collins will lead the search for a new GM.`\
+https://nytimes.com/athletic/6299610/2025/04/22/islanders-fire-lou-lamoriello/
+
+**Bills RB James Cook absent from OTAs while awaiting contract extension**\
+`General manager Brandon Beane stated three weeks ago at the NFL owners’ meetings that the sides are significantly far apart.`\
+https://nytimes.com/athletic/6299460/2025/04/22/bills-james-cook-ota-contract-extension/
+
 **Bills RB James Cook absent from OTAs while awaiting for contract extension**\
 `General manager Brandon Beane stated three weeks ago at the NFL owners’ meetings that the sides are significantly far apart.`\
 https://nytimes.com/athletic/6299460/2025/04/22/bills-james-cook-ota-contract-extension/

@@ -1,3 +1,7 @@
+**A choice that sent a message: Looking back at Francis’ 2013 election as pope.**\
+`By Rachel Donadio`\
+https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/a-choice-that-sent-a-message-looking-back-at-francis-2013-election-as-pope
+
 **A Jury Is Seated for the New York Trial of Harvey Weinstein. Again.**\
 `Some prospective jurors reacted with shock when they heard the defendant’s name. Opening statements lie ahead.`\
 https://nytimes.com/2025/04/22/nyregion/harvey-weinstein-trial-jury-seated.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/22/arts/music/amplifier-newsletter-blues-sinners.htm
 **Aliza Magen, Highest-Ranking Woman in the Mossad, Dies at 87**\
 `Her career at Israel’s national intelligence agency included working undercover before serving as deputy under three directors.`\
 https://nytimes.com/2025/04/22/world/middleeast/aliza-magen-dead.html
-
-**I Watched the Pope Visit the Forgotten and Convert the Skeptical**\
-`Jim Yardley, a former Rome bureau chief for The New York Times, witnessed Pope Francis’ transformation from an unlikely papal contender to a beloved figure.`\
-https://nytimes.com/2025/04/22/world/europe/pope-francis-death-legacy.html
 
