@@ -1,3 +1,11 @@
+**Improvement in execution gives Canadiens strong belief in their Game 2 chances**\
+`Montreal needs to have a clear mind right from the start of Game 2, something it showed it could do in the third period of Game 1.`\
+https://nytimes.com/athletic/6300225/2025/04/22/canadiens-nhl-playoffs-capitals-game-2/
+
+**How Americans Feel About DOGE and Elon Musk**\
+`People like the idea of cutting government waste. But they dislike Mr. Musk, and they’re down on the Department of Government Efficiency.`\
+https://nytimes.com/2025/04/22/polls/doge-elon-musk.html
+
 **Trump Promised ‘Big, Beautiful’ Deals. Delivering Has Been Tougher.**\
 `So far, the goals of many of President Trump’s negotiations have been unrealized, even those he said would be accomplished in a matter of days or weeks.`\
 https://nytimes.com/2025/04/22/us/politics/trump-trade-ukraine-negotiations.html

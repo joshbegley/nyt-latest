@@ -1,3 +1,7 @@
+**A Simpler Funeral for Francis, Who Shunned Many Gilt Papal Trappings**\
+`A funeral will be held on Saturday for the pope, who changed the rules to make such ceremonies simpler than those traditionally observed.`\
+https://nytimes.com/2025/04/22/world/europe/pope-francis-funeral.html
+
 **Improvement in execution gives Canadiens strong belief in their Game 2 chances**\
 `Montreal needs to have a clear mind right from the start of Game 2, something it showed it could do in the third period of Game 1.`\
 https://nytimes.com/athletic/6300225/2025/04/22/canadiens-nhl-playoffs-capitals-game-2/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6300139/2025/04/22/anthony-edwards-fined-50k-nba-re
 **Les Snead, Sean McVay don't rule out Jalen Ramsey reunion with Rams**\
 `Jalen Ramsey was a key piece to the Rams' defense on their Super Bowl-winning team from the 2021 season.`\
 https://nytimes.com/athletic/6299868/2025/04/22/rams-jalen-ramsey-interest-sean-mcvay/
-
-**Treasury Secretary Bessent Predicts Tax Cuts to Pass by July 4**\
-`Scott Bessent told a group of investors that he expected trade tensions with China to de-escalate.`\
-https://nytimes.com/2025/04/22/us/politics/scott-bessent-tax-cuts.html
 
