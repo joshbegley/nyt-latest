@@ -1,3 +1,7 @@
+**The Quiet Farewell Before Pope Francis’ Funeral**\
+`In a small ceremony, Vatican officials followed the path long taken when a pope dies.`\
+https://nytimes.com/2025/04/22/world/europe/pope-francis-death-casket-photos.html
+
 **Cincinnati OL Jeremiah Kelly dies at 18**\
 `Kelly, who enrolled early at Cincinnati and participated in spring practices, died unexpectedly at his residence on Tuesday morning.`\
 https://nytimes.com/athletic/6299746/2025/04/22/cincinnati-jeremiah-kelly-dies-at-18/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/04/22/nyregion/prosecutor-letter.html
 **The Ice Bucket Challenge Worked. Why Not Try It Again?**\
 `The trend that dominated social media a decade ago — and raised millions for A.L.S. research — has been reborn as a vehicle to raise mental health awareness.`\
 https://nytimes.com/2025/04/22/style/ice-bucket-challenge-mental-health.html
-
-**‘Vacancy of the Holy See’: The Vatican slows down but doesn’t stop between popes.**\
-`By Elisabetta Povoledo`\
-https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/vatican-business
 
