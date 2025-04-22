@@ -1,3 +1,7 @@
+**Action Figure**\
+`Design your own action figure or doll. What would you want it to look like?`\
+https://nytimes.com/2025/04/22/learning/action-figure.html
+
 **How Scott Laughton is becoming the player the Leafs need — fully, completely**\
 `Acquired at the trade deadline, Laughton's time as a Leaf got off to a rocky start. The tide seems to be shifting at the right moment.`\
 https://nytimes.com/athletic/6297116/2025/04/22/maple-leafs-scott-laughton-nhl-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6297416/2025/04/22/college-football-transfer-portal
 **49ers NFL Draft big board: 60 players to consider in rounds 1-7, including 1 QB**\
 `It would be a mild surprise if the 49ers draft an Oregon player given the number of Ducks in the draft and how they match the team's needs.`\
 https://nytimes.com/athletic/6297380/2025/04/22/49ers-nfl-draft-big-board-2025/
-
-**The 2024-25 Penguins never had a chance to succeed**\
-`The Penguins struggled this season — and that was the plan.`\
-https://nytimes.com/athletic/6297342/2025/04/22/penguins-season-failure/
 
