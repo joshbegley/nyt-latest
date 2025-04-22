@@ -1,3 +1,11 @@
+**Read the Prosecutors’ Letter**\
+`Three prosecutors resigned from the Southern District of New York on Tuesday rather than apologize for the work on the prosecution of Mayor Eric Adams of New York.`\
+https://nytimes.com/interactive/2025/04/22/nyregion/prosecutor-letter.html
+
+**The Ice Bucket Challenge Worked. Why Not Try It Again?**\
+`The trend that dominated social media a decade ago — and raised millions for A.L.S. research — has been reborn as a vehicle to raise mental health awareness.`\
+https://nytimes.com/2025/04/22/style/ice-bucket-challenge-mental-health.html
+
 **‘Vacancy of the Holy See’: The Vatican slows down but doesn’t stop between popes.**\
 `By Elisabetta Povoledo`\
 https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/vatican-business
@@ -16,7 +24,7 @@ https://nytimes.com/athletic/6297848/2025/04/22/the-soccer-tournament-womens-gro
 
 **A choice that sent a message: Looking back at Francis’ 2013 election as pope.**\
 `By Rachel Donadio`\
-https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/a-choice-that-sent-a-message-looking-back-at-francis-2013-election-as-pope
+https://nytimes.com/2025/04/21/world/a-choice-that-sent-a-message-looking-back-at-francis-2013-election-as-pope.html
 
 **Jury Is Seated After Startling Reveal: The Defendant Is Harvey Weinstein**\
 `Some prospective jurors reacted with shock when they realized they might be selected for Mr. Weinstein’s latest trial. Opening statements lie ahead.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6299610/2025/04/22/islanders-fire-lou-lamoriello/
 **Bills RB James Cook absent from OTAs while awaiting contract extension**\
 `General manager Brandon Beane stated three weeks ago at the NFL owners’ meetings that the sides are significantly far apart.`\
 https://nytimes.com/athletic/6299460/2025/04/22/bills-james-cook-ota-contract-extension/
-
-**Shannon Sharpe Is Accused of Rape by Ex-Girlfriend**\
-`A lawyer for Mr. Sharpe, who hosts the podcast “Club Shay Shay,” said the sexual encounters were consensual and called the lawsuit “a blatant and cynical attempt” at a shakedown.`\
-https://nytimes.com/2025/04/22/arts/shannon-sharpe-lawsuit-rape-sexual-assault.html
-
-**Jury Begins Deliberating in Palin’s Case Against The Times**\
-`This is the second time a jury has heard the case. Sarah Palin sued The New York Times in 2017, accusing the publication of defaming her in an editorial.`\
-https://nytimes.com/2025/04/22/business/media/sarah-palin-new-york-times-jury-deliberations.html
 

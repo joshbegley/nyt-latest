@@ -1,3 +1,15 @@
+**Read the Prosecutors’ Letter**\
+`Three prosecutors resigned from the Southern District of New York on Tuesday rather than apologize for the work on the prosecution of Mayor Eric Adams of New York.`\
+https://nytimes.com/interactive/2025/04/22/nyregion/prosecutor-letter.html
+
+**The Ice Bucket Challenge Worked. Why Not Try It Again?**\
+`The trend that dominated social media a decade ago — and raised millions for A.L.S. research — has been reborn as a vehicle to raise mental health awareness.`\
+https://nytimes.com/2025/04/22/style/ice-bucket-challenge-mental-health.html
+
+**A choice that sent a message: Looking back at Francis’ 2013 election as pope.**\
+`By Rachel Donadio`\
+https://nytimes.com/2025/04/21/world/a-choice-that-sent-a-message-looking-back-at-francis-2013-election-as-pope.html
+
 **‘Vacancy of the Holy See’: The Vatican slows down but doesn’t stop between popes.**\
 `By Elisabetta Povoledo`\
 https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/vatican-business
