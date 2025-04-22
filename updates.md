@@ -1,3 +1,19 @@
+**Alex Ovechkin, Capitals slip past Canadiens in OT: Game 1 takeaways**\
+`Ovechkin scored two goals, assisted on another and generally acted as the tone-setter in Washington's 3-2 overtime win over Montreal.`\
+https://nytimes.com/athletic/6297831/2025/04/21/capitals-canadiens-nhl-playoffs-2025-game-1-takeaways/
+
+**Here’s more on the pope’s legacy and what comes next.**\
+`By Eric Nagourney`\
+https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/heres-more-on-the-popes-legacy-and-what-comes-next
+
+**Latest Updates: Cardinals to Hold First Meeting to Set Pope’s Funeral**\
+`Though Pope Francis outlined his wishes for a modest burial, the funeral for a pope is no simple matter. It will likely take weeks to choose a new pontiff.`\
+https://nytimes.com/live/2025/04/21/world/pope-francis-death-news
+
+**‘Floyd Collins’ Review: Trapped in a Cave and in a Media Circus**\
+`One of the wonders of this glorious-sounding new Broadway production is how far from claustrophobic this Kentucky cave saga feels.`\
+https://nytimes.com/2025/04/21/theater/floyd-collins-review.html
+
 **NHL playoffs overtime: How does it work? What's the longest game in history?**\
 `What happens when a playoff game isn't decided in regulation — or even after a first overtime period?`\
 https://nytimes.com/athletic/6284117/2025/04/21/overtime-nhl-playoffs-stanley-cup/
