@@ -1,10 +1,14 @@
+**I Watched the Pope Visit the Forgotten and Convert the Skeptical**\
+`Jim Yardley, the former Rome bureau chief for The New York Times, witnessed Pope Francis’ transformation from an unlikely papal contender to a beloved figure.`\
+https://nytimes.com/2025/04/22/world/europe/pope-francis-death-legacy.html
+
 **Women Soldiers Will Have to Pass ‘Sex-Neutral’ Physical Test, U.S. Army Says**\
 `The new Army Fitness Test comes after Pete Hegseth, the defense secretary, ordered the elimination of lower fitness standards for women in combat roles.`\
 https://nytimes.com/2025/04/22/us/new-army-fitness-test-women.html
 
 **Map: 5.1-Magnitude Earthquake Strikes Australia**\
 `View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/04/22/weather/quake-tracker-australia.html
+https://nytimes.com/interactive/2025/04/22/world/australia/quake-tracker-australia.html
 
 **Who is the dean of the College of Cardinals? (It’s not Ralph Fiennes.)**\
 `By Emma Bubola`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/22/business/harvard-trump-deal.html
 **Scoop City: Who might draft a QB? When?**\
 `What each of the QB-needy teams might do during the first three rounds of the 2025 NFL Draft.`\
 https://nytimes.com/athletic/6299452/2025/04/22/who-will-draft-qb-2025-teams-saints-jets-raiders-browns-giants-steelers-scoop-city/
-
-**Trump and Zelensky are among the leaders planning to attend Francis’ funeral.**\
-`By Amelia Nierenberg`\
-https://nytimes.com/2025/04/22/world/europe/pope-francis-funeral-guests.html
 
