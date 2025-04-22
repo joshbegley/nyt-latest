@@ -1,3 +1,11 @@
+**Hegseth says he ‘won’t blink’ in the face of criticism of his leadership.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2025/04/22/us/trump-administration-news/hegseth-says-he-wont-blink-in-the-face-of-criticism-of-his-leadership
+
+**Nikola Jokić, Nuggets uncharacteristically sloppy in Game 2 loss to Kawhi Leonard, Clippers**\
+`Jokić tallied a triple-double, but he had seven turnovers and a couple mental miscues late as LA evened the series at one win apiece.`\
+https://nytimes.com/athletic/6298185/2025/04/22/nuggets-clippers-nikola-jokic-nba-playoffs/
+
 **A Seaport Museum Faces an Unlikely Threat: The Sea Itself**\
 `Rising sea levels are forcing the Mystic Seaport Museum in Connecticut to address the long-term sustainability of its campus.`\
 https://nytimes.com/2025/04/22/arts/design/mystic-seaport-museum-sea-level-rise.html

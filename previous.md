@@ -1,3 +1,11 @@
+**Hegseth says he ‘won’t blink’ in the face of criticism of his leadership.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2025/04/22/us/trump-administration-news/hegseth-says-he-wont-blink-in-the-face-of-criticism-of-his-leadership
+
+**Nikola Jokić, Nuggets uncharacteristically sloppy in Game 2 loss to Kawhi Leonard, Clippers**\
+`Jokić tallied a triple-double, but he had seven turnovers and a couple mental miscues late as LA evened the series at one win apiece.`\
+https://nytimes.com/athletic/6298185/2025/04/22/nuggets-clippers-nikola-jokic-nba-playoffs/
+
 **A Seaport Museum Faces an Unlikely Threat: The Sea Itself**\
 `Rising sea levels are forcing the Mystic Seaport Museum in Connecticut to address the long-term sustainability of its campus.`\
 https://nytimes.com/2025/04/22/arts/design/mystic-seaport-museum-sea-level-rise.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6298154/2025/04/22/bay-fc-oracle-park-washington-sp
 **Dodgers' Max Muncy looking to correct a 'misunderstanding' in his swing**\
 `Muncy has zero home runs in in 79 plate appearances, so where did the power go?`\
 https://nytimes.com/athletic/6297604/2025/04/22/dodgers-max-muncy-mlb-swing/
-
-**Global Growth Expected to Sputter Amid Trade War Fallout Fears**\
-`The International Monetary Fund expects slower growth and higher inflation in the U.S. as a result of President Trump’s trade policies.`\
-https://nytimes.com/2025/04/22/us/politics/imf-world-economic-outlook.html
-
-**Global Economic Leaders Gathering in U.S. Confront Trump’s New World Order**\
-`The I.M.F. and World Bank are holding their spring meetings as President Trump’s trade war upends the global economy.`\
-https://nytimes.com/2025/04/22/us/politics/imf-world-bank-meetings-trump.html
 
