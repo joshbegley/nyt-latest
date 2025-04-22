@@ -1,3 +1,7 @@
+**Word of the Day: reverberation**\
+`This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/04/22/learning/word-of-the-day-reverberation.html
+
 **Jimmy Kimmel Praises Pope Francis for Going Out With a Mic Drop**\
 `“Is there anything more Catholic than waiting until Monday to die so you don’t upstage Jesus Christ?” Kimmel said.`\
 https://nytimes.com/2025/04/22/arts/television/jimmy-kimmel-pope-francis-death.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/04/22/todays-new-york-times
 **Why Pope Francis Was Always a Surprise**\
 `Pope Francis brought empathy and humanity that surprised people and changed the way people saw the Roman Catholic Church. Jason Horowitz, the Rome bureau chief of The New York Times, describes what he learned about Francis while covering him for over a dozen years.`\
 https://nytimes.com/video/world/100000010121936/why-pope-francis-was-always-a-surprise.html
-
-**Braves rally again to extend winning streak to 4, but Spencer Strider returns to IL**\
-`After learning of Strider's injury, Atlanta shrugged off doom and staged a late offensive outburst for a 7-6 comeback win against St. Louis.`\
-https://nytimes.com/athletic/6298201/2025/04/22/braves-win-strider-on-injured-list/
 
