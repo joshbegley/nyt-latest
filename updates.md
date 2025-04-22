@@ -1,3 +1,11 @@
+**Francisco Lindor, Tylor Megill show why 'it's a great time to be a Met'**\
+`Lindor's second homer of the night landed near the same spot of the Philadelphia bullpen as his grand slam in Game 4 of last year’s NLDS.`\
+https://nytimes.com/athletic/6298158/2025/04/21/mets-francisco-lindor-tylor-megill/
+
+**Alex Ovechkin, Capitals escape Canadiens in OT: Game 1 takeaways**\
+`Ovechkin scored two goals, assisted on another and generally acted as the tone-setter in Washington's 3-2 overtime win over Montreal.`\
+https://nytimes.com/athletic/6297831/2025/04/21/capitals-canadiens-nhl-playoffs-2025-game-1-takeaways/
+
 **Full Time: Put everyone in bubble wrap**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6298116/2025/04/21/nwsl-injuries-women-coaches-full-time/
