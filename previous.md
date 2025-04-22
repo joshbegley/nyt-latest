@@ -1,3 +1,15 @@
+**Les Snead, Sean McVay don't rule out Jalen Ramsey reunion with Rams**\
+`Jalen Ramsey was a key piece to the Rams' defense on their Super Bowl-winning team from the 2021 season.`\
+https://nytimes.com/athletic/6299868/2025/04/22/rams-jalen-ramsey-interest-sean-mcvay/
+
+**Treasury Secretary Bessent Predicts Tax Cuts to Pass by July 4**\
+`Scott Bessent told a group of investors that he expected trade tensions with China to de-escalate.`\
+https://nytimes.com/2025/04/22/us/politics/scott-bessent-tax-cuts.html
+
+**Mexico’s President Punches Back Against Kristi Noem’s Anti-Migrant Ads**\
+`The D.H.S. secretary’s appearances on Mexican television blaming migrants for societal ills in the U.S. have drawn a sharp rebuke from Mexico’s president, Claudia Sheinbaum.`\
+https://nytimes.com/2025/04/22/world/americas/mexico-kristi-noem-sheinbaum-ads.html
+
 **USMNT's Pochettino: 'Players must be proud and fight for millions of kids**\
 `Pochettino is focused on bringing players with “the right mindset” to the tournament as he continues to prepare for next year's World Cup.`\
 https://nytimes.com/athletic/6300043/2025/04/22/usmnt-mauricio-pochettino-gold-cup/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6299660/2025/04/22/manchester-city-aston-villa-prem
 **Wednesday Briefing: A Downgrade in Global Growth**\
 `Plus, the next big thing from Japan.`\
 https://nytimes.com/2025/04/22/briefing/global-growth-pope-funeral-russia-ukraine-talks.html
-
-**The Face-Plant President**\
-`There’s no better opponent than one who repeatedly trips over his shoelaces.`\
-https://nytimes.com/2025/04/22/opinion/trump-hegseth-powell.html
-
-**Buffalo Diocese Agrees to Pay $150 Million to Settle Sex Abuse Claims**\
-`The provisional settlement comes after years of negotiation with the scandal-plagued diocese in New York’s second-largest city.`\
-https://nytimes.com/2025/04/22/nyregion/buffalo-catholic-diocese-sexual-abuse.html
-
-**Will Campbell, Tyler Warren's Rolexes to be given away after NFL Draft**\
-`The two first-round hopefuls are introducing a new piece of NFL Draft memorabilia`\
-https://nytimes.com/athletic/6299468/2025/04/22/nfl-draft-will-campbell-tyler-warren-watches-rolex/
 

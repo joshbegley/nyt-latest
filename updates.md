@@ -1,3 +1,15 @@
+**Les Snead, Sean McVay don't rule out Jalen Ramsey reunion with Rams**\
+`Jalen Ramsey was a key piece to the Rams' defense on their Super Bowl-winning team from the 2021 season.`\
+https://nytimes.com/athletic/6299868/2025/04/22/rams-jalen-ramsey-interest-sean-mcvay/
+
+**Treasury Secretary Bessent Predicts Tax Cuts to Pass by July 4**\
+`Scott Bessent told a group of investors that he expected trade tensions with China to de-escalate.`\
+https://nytimes.com/2025/04/22/us/politics/scott-bessent-tax-cuts.html
+
+**Mexico’s President Punches Back Against Kristi Noem’s Anti-Migrant Ads**\
+`The D.H.S. secretary’s appearances on Mexican television blaming migrants for societal ills in the U.S. have drawn a sharp rebuke from Mexico’s president, Claudia Sheinbaum.`\
+https://nytimes.com/2025/04/22/world/americas/mexico-kristi-noem-sheinbaum-ads.html
+
 **USMNT's Pochettino: 'Players must be proud and fight for millions of kids**\
 `Pochettino is focused on bringing players with “the right mindset” to the tournament as he continues to prepare for next year's World Cup.`\
 https://nytimes.com/athletic/6300043/2025/04/22/usmnt-mauricio-pochettino-gold-cup/
