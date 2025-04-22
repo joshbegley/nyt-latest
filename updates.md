@@ -1,3 +1,7 @@
+**As It Turns 100, ‘The Great Gatsby’ Takes Several Turns in the Spotlight**\
+`The book by F. Scott Fitzgerald is the subject of exhibitions in New York, Minnesota, New Jersey and South Carolina.`\
+https://nytimes.com/2025/04/22/arts/design/gatsby-centennial-museum-exhibitions.html
+
 **NBA players sound off on league’s gambling partnerships and their impact**\
 `Terrible, great, black eye, opportunity — those are just some of the words players used to describe the complex topic.`\
 https://nytimes.com/athletic/6298159/2025/04/22/nba-player-poll-gambling-partnerships/

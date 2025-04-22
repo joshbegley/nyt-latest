@@ -1,3 +1,7 @@
+**As It Turns 100, ‘The Great Gatsby’ Takes Several Turns in the Spotlight**\
+`The book by F. Scott Fitzgerald is the subject of exhibitions in New York, Minnesota, New Jersey and South Carolina.`\
+https://nytimes.com/2025/04/22/arts/design/gatsby-centennial-museum-exhibitions.html
+
 **NBA players sound off on league’s gambling partnerships and their impact**\
 `Terrible, great, black eye, opportunity — those are just some of the words players used to describe the complex topic.`\
 https://nytimes.com/athletic/6298159/2025/04/22/nba-player-poll-gambling-partnerships/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6297786/2025/04/22/chargers-nfl-draft-big-board-202
 **How the Senators can exploit the Leafs' weaknesses at five-on-five in Game 2**\
 `The good news for the Senators: there were positives at five-on-five they can take with them into Game 2 and beyond. `\
 https://nytimes.com/athletic/6296492/2025/04/22/senators-maple-leafs-five-on-five-nhl-playoffs/
-
-**Seahawks NFL Draft big board: 53 players to watch, including 14 in Round 1**\
-`The Seahawks have emphasized they plan to take the best player available, putting a wide variety of options on the table.`\
-https://nytimes.com/athletic/6297609/2025/04/22/seahawks-nfl-draft-2025-big-board/
 
