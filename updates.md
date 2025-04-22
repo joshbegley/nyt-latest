@@ -1,3 +1,11 @@
+**‘Francis Was Deeply Loved’: Gazans Mourn Death of Pope**\
+`Gaza’s Christians paid their respects to Pope Francis, who called in on a local church almost daily to check on them throughout the war.`\
+https://nytimes.com/video/world/middleeast/100000010123616/pope-francis-gaza-church-.html
+
+**Schumer Asks for Documents That Prove a Claim on DOGE’s Website**\
+`Elon Musk’s group says it saved $318 million by canceling a “request for proposal” from the Office of Personnel Management but did not release the request itself.`\
+https://nytimes.com/2025/04/22/us/politics/doge-claim-schumer.html
+
 **Russia and Ukraine, Under Trump Pressure, Signal Openness to Direct Talks**\
 `An unusual public back-and-forth suggested that both sides in the war were eager to at least appear interested in negotiations.`\
 https://nytimes.com/2025/04/22/world/europe/russia-ukraine-putin-zelensky.html
