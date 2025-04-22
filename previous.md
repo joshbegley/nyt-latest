@@ -1,3 +1,23 @@
+**Judge Blocks Trump Effort to Dismantle Voice of America**\
+`The judge also ordered the government to halt its efforts to shut down two other government-funded outlets, Radio Free Asia and the Middle East Broadcasting Networks.`\
+https://nytimes.com/2025/04/22/us/politics/judge-blocks-trump-effort-to-dismantle-voice-of-america.html
+
+**Celtics' Tatum doubtful for Game 2 vs. Magic due to bone bruise**\
+`Tatum sustained the injury in Game 1 during a hard fall in the fourth quarter after taking a flagrant foul from Kentavious Caldwell-Pop.`\
+https://nytimes.com/athletic/6299895/2025/04/22/jayson-tatum-doubtful-celtics-magic-game-2/
+
+**Costa Rica Tells Trump Deportees They Can Stay and Intergrate, or Leave**\
+`The country is taking action to “protect” dozens of migrants from faraway nations who were deported from the United States and until recently, were indefinitely detained.`\
+https://nytimes.com/2025/04/22/world/americas/costa-rica-deported-migrants.html
+
+**Harvard Plans to Use Trump’s Haste Against Him as It Fights Funding Cut**\
+`Harvard’s lawyers suggest the administration was sloppy when it froze billions in federal funding. A mundane but crucial law is essential to the university’s case against the government.`\
+https://nytimes.com/2025/04/22/us/trump-harvard-legal-case.html
+
+**Eunice Golden, Artist Who Mapped the Male Nude, Dies at 98**\
+`Like many feminist artists, she took the body as her subject. But while others were exploring their own bodies, she painted the male anatomy.`\
+https://nytimes.com/2025/04/22/arts/eunice-golden-dead.html
+
 **Watch: Did Kawhi Leonard and the Clippers tame Nikola Jokić and the Nuggets?**\
 `NBA Daily discuss the Los Angeles Clippers’ 105-102 win over the Denver Nuggets, which tied their first-round series.`\
 https://nytimes.com/athletic/6298720/2025/04/22/nba-daily-kawhi-leonard-nikola-jokic-clippers-nuggets-playoffs/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6299675/2025/04/22/titans-draft-pick-cam-ward/
 **‘The Gardener’ Is a Great Pop-Goth Spanish Murder Series**\
 `This Netflix series has plenty in common with slick, dark shows like “Dexter” and “You,” though it more often feels like “Wednesday.”`\
 https://nytimes.com/2025/04/22/arts/television/the-gardener-netflix.html
-
-**Colts' Anthony Richardson embraces QB competition with Daniel Jones**\
-`Richardson: "I’m looking to learn as much as I can from (Jones) while we just boost this competition and get better.”`\
-https://nytimes.com/athletic/6299187/2025/04/22/colts-anthony-richardson-daniel-jones-qb-competition/
-
-**Watch: The Ravens have four draft directions — which will they take?**\
-`"The Athletic Football Show" discusses what the Baltimore Ravens should do with the No. 27 overall pick.`\
-https://nytimes.com/athletic/6290246/2025/04/22/athletic-football-show-baltimore-ravens-nfl-draft-2025/
-
-**The Quiet Farewell Before Pope Francis’ Funeral**\
-`In a small ceremony, Vatican officials followed the path long taken when a pope dies.`\
-https://nytimes.com/2025/04/22/world/europe/pope-francis-death-casket-photos.html
-
-**Cincinnati OL Jeremiah Kelly dies at 18**\
-`Kelly, who enrolled early at Cincinnati and participated in spring practices, died unexpectedly at his residence on Tuesday morning.`\
-https://nytimes.com/athletic/6299746/2025/04/22/cincinnati-jeremiah-kelly-dies-at-18/
-
-**The Connection Between Faith and Environmental Action**\
-`Leaders from many religions — including, notably, Pope Francis — have long sought to tie their faith to environmental stewardship.`\
-https://nytimes.com/2025/04/22/climate/the-connection-between-faith-and-environmental-action.html
 
