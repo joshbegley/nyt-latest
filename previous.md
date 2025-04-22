@@ -1,3 +1,11 @@
+**In ‘Ransom Canyon,’ Minka Kelly Enjoys the Ride**\
+`The “Friday Night Lights” star didn’t think a romantic lead would be available to a woman in her 40s. But it was, and it might be just the beginning.`\
+https://nytimes.com/2025/04/22/arts/television/minka-kelly-ransom-canyon.html
+
+**Boeing Will Sell Its Digital Businesses for $10 Billion**\
+`The deal, with the private equity firm Thoma Bravo, will help the struggling aerospace manufacturer pay down debt and streamline its operations.`\
+https://nytimes.com/2025/04/22/business/boeing-thoma-bravo-jeppesen.html
+
 **Sweating to Shivering: Study Finds Rapid Swings in Temperature Have Increased**\
 `Flips between warm temperatures to cold and vice versa have become quicker, more frequent and more intense in recent decades, a new study shows.`\
 https://nytimes.com/2025/04/22/climate/temperature-swings-climate-change.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/22/world/europe/russia-ukraine-putin-zelensky.html
 **Justice Dept. Continues to Stonewall on Efforts to Return Maryland Man**\
 `In refusing to reveal much of anything about the administration’s efforts, department lawyers insisted the information constituted state secrets that needed to be protected.`\
 https://nytimes.com/2025/04/22/us/politics/trump-justice-department-abrego-garcia-el-salvador.html
-
-**The Bounce: The Pistons just ended a 6,174-day drought. Should the Knicks be worried?**\
-`The Pistons were too physical for the Knicks, and head back to Detroit with an even playoff series. What's next as playoffs heat up?`\
-https://nytimes.com/athletic/6298974/2025/04/22/cade-cunningham-pistons-knicks-nba-playoffs-the-bounce/
-
-**‘The Two Popes,’ ‘Conclave’ and Francis’ Autobiography: The Papacy in Recent Culture**\
-`The Vatican — with its politics, its pageantry and its power — has long been a favorite subject for artists and thinkers.`\
-https://nytimes.com/2025/04/22/world/europe/francis-two-popes-movie-book.html
 

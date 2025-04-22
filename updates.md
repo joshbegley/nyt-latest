@@ -1,3 +1,11 @@
+**In ‘Ransom Canyon,’ Minka Kelly Enjoys the Ride**\
+`The “Friday Night Lights” star didn’t think a romantic lead would be available to a woman in her 40s. But it was, and it might be just the beginning.`\
+https://nytimes.com/2025/04/22/arts/television/minka-kelly-ransom-canyon.html
+
+**Boeing Will Sell Its Digital Businesses for $10 Billion**\
+`The deal, with the private equity firm Thoma Bravo, will help the struggling aerospace manufacturer pay down debt and streamline its operations.`\
+https://nytimes.com/2025/04/22/business/boeing-thoma-bravo-jeppesen.html
+
 **Sweating to Shivering: Study Finds Rapid Swings in Temperature Have Increased**\
 `Flips between warm temperatures to cold and vice versa have become quicker, more frequent and more intense in recent decades, a new study shows.`\
 https://nytimes.com/2025/04/22/climate/temperature-swings-climate-change.html
