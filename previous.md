@@ -1,3 +1,19 @@
+**LeBrun: Stars vs. Avalanche, a series dripping with star power, delivers on its promise**\
+`A series featuring two genuine Stanley Cup contenders was close to fizzling out. Now we get the series we were supposed to get.`\
+https://nytimes.com/athletic/6298498/2025/04/22/stars-avalanche-game-1-nhl-playoffs/
+
+**Why Charles Leclerc's Saudi F1 podium hints at Ferrari's untapped potential**\
+`Ferrari has a paradox to solve: Strong in races, struggling in qualifying`\
+https://nytimes.com/athletic/6296659/2025/04/22/ferrari-f1-charles-leclerc-saudi-arabia-lewis-hamilton/
+
+**In Caracas, remembering a pastor ‘who walked with his flock until his final day.’**\
+`Though t`\
+https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/in-caracas-remembering-a-pastor-who-walked-with-his-flock-until-his-final-day
+
+**Biles yet to decide on competing at L.A. Olympics in 2028**\
+`The U.S. superstar won her fifth, sixth and seventh golds in Paris but is yet to decide whether she will defend her titles in 2028.`\
+https://nytimes.com/athletic/6298602/2025/04/22/simone-biles-olympics-la-2028/
+
 **Pistons' 17-year playoff win drought ends with help of Cade Cunningham, Dennis Schröder**\
 `Cunningham and Schröder led the charge Monday, as Detroit snapped an NBA-record 15-game postseason skid against the New York Knicks.`\
 https://nytimes.com/athletic/6298390/2025/04/22/cade-cunningham-dennis-schroder-pistons-nba-playoffs/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6297265/2025/04/22/vikings-2025-nfl-draft-big-board
 **Giants 2025 NFL Draft big board: 40 prospects who would fit in New York**\
 `For all the talk of what the Giants will do at No. 3 and at QB, they still have plenty of holes to address in the draft.`\
 https://nytimes.com/athletic/6290975/2025/04/22/giants-2025-nfl-draft-big-board-top-prospects/
-
-**Jets NFL Draft board: O-line, tight end, DB and QB prospects they could target**\
-`A look at who could hear their name called by the Jets in this year's draft.`\
-https://nytimes.com/athletic/6296734/2025/04/22/jets-nfl-draft-board/
-
-**NHL awards predictions: End-of-season picks for Hart, Calder, Jack Adams and more**\
-`The MVP debate heats up, plus clear front-runners emerge for the league's top rookie, defenseman, goaltender, coach and more.`\
-https://nytimes.com/athletic/6297667/2025/04/22/nhl-2024-25-awards-predictions-hart-calder/
-
-**A beginner’s guide to the 2025 NFL Draft: No. 1 pick, trade rumors, full order and more**\
-`Need to catch up on this year's draft before all the fun begins Thursday night in Green Bay? We've got you covered.`\
-https://nytimes.com/athletic/6296291/2025/04/22/nfl-draft-2025-guide-pick-prospects-order/
-
-**Will NWSL expansion bring more opportunities for women or more coaches from Europe?**\
-`Angel City said it looked at a balanced pool of candidates before hiring Bayern Munich head coach Alexander Straus.`\
-https://nytimes.com/athletic/6297940/2025/04/22/nwsl-women-coach-pipeline-soccer/
 

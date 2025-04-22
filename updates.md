@@ -1,3 +1,19 @@
+**LeBrun: Stars vs. Avalanche, a series dripping with star power, delivers on its promise**\
+`A series featuring two genuine Stanley Cup contenders was close to fizzling out. Now we get the series we were supposed to get.`\
+https://nytimes.com/athletic/6298498/2025/04/22/stars-avalanche-game-1-nhl-playoffs/
+
+**Why Charles Leclerc's Saudi F1 podium hints at Ferrari's untapped potential**\
+`Ferrari has a paradox to solve: Strong in races, struggling in qualifying`\
+https://nytimes.com/athletic/6296659/2025/04/22/ferrari-f1-charles-leclerc-saudi-arabia-lewis-hamilton/
+
+**In Caracas, remembering a pastor ‘who walked with his flock until his final day.’**\
+`Though t`\
+https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/in-caracas-remembering-a-pastor-who-walked-with-his-flock-until-his-final-day
+
+**Biles yet to decide on competing at L.A. Olympics in 2028**\
+`The U.S. superstar won her fifth, sixth and seventh golds in Paris but is yet to decide whether she will defend her titles in 2028.`\
+https://nytimes.com/athletic/6298602/2025/04/22/simone-biles-olympics-la-2028/
+
 **Pistons' 17-year playoff win drought ends with help of Cade Cunningham, Dennis Schröder**\
 `Cunningham and Schröder led the charge Monday, as Detroit snapped an NBA-record 15-game postseason skid against the New York Knicks.`\
 https://nytimes.com/athletic/6298390/2025/04/22/cade-cunningham-dennis-schroder-pistons-nba-playoffs/
