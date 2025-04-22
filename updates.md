@@ -1,3 +1,7 @@
+**Cubs acquire lefty Drew Pomeranz from Mariners**\
+`His pedigree makes him an intriguing option for the Cubs bullpen, which needs to find effective relievers to cover the middle innings.`\
+https://nytimes.com/athletic/6297820/2025/04/21/cubs-drew-pomeranz-mariners-trade/
+
 **Trump Will Never Be the ‘Fertilization President’**\
 `Trump will never be the ‘fertilization president.’`\
 https://nytimes.com/2025/04/21/opinion/trump-fertility-birthrate-sexism.html
