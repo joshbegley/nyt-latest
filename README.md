@@ -1,3 +1,7 @@
+**Full Time: Put everyone in bubble wrap**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6298116/2025/04/21/nwsl-injuries-women-coaches-full-time/
+
 **NBA playoff takeaways: Pistons edge Knicks for first playoff win since 2008**\
 `Two days after New York rode a late 21-0 run to a Game 1 win, Detroit held on to knot the series at 1-1.`\
 https://nytimes.com/athletic/6297664/2025/04/21/nba-playoffs-pistons-knicks-clippers-nuggets-score-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/21/crosswords/daily-puzzle-2025-04-22.html
 **Government Watchdog Drops Inquiries Into Mass Firings of Probationary Workers**\
 `Experts in federal employment law said the Trump administration’s justifications to end the investigations were baffling at best.`\
 https://nytimes.com/2025/04/21/us/politics/probationary-workers-firings-trump-osc.html
-
-**Indianapolis Colts NFL Draft 2025 guide: Picks, predictions and key needs**\
-`The Colts own the No. 14 pick and seven picks total in the NFL Draft. Will they add a TE in Round 1 or target another need?`\
-https://nytimes.com/athletic/6227667/2025/04/21/indianapolis-colts-2025-nfl-draft-picks-needs-predictions-guide/
 
