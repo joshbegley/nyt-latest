@@ -1,3 +1,15 @@
+**Cubs acquiring left-handed pitcher Drew Pomeranz from Mariners: Source**\
+`His pedigree makes him an intriguing option for the Cubs bullpen, which needs to find effective relievers to cover the middle innings.`\
+https://nytimes.com/athletic/6297820/2025/04/21/cubs-drew-pomeranz-mariners-trade/
+
+**Madden Iamaleava, brother of Nico Iamaleava, enters the transfer portal**\
+`Madden Iamaleava orginally committed to UCLA but had been enrolled at Arkansas since January.`\
+https://nytimes.com/athletic/6297764/2025/04/21/madden-iamaleava-arkansas-enters-transfer-portal/
+
+**With Latest Missteps, Veneer of Discipline in 2nd Trump Term Falls Away**\
+`The mistakes, miscommunications and flip-flops are piling up after an early run defined by a flood of major policy changes that were rolled out at breakneck speed.`\
+https://nytimes.com/2025/04/21/us/politics/trump-administration-missteps.html
+
 **Shell Recyclers in Connecticut Are Helping Oysters Find Homes**\
 `A nonprofit group is rescuing shells from restaurant trash bins and using them to rebuild oyster habitat in Long Island Sound.`\
 https://nytimes.com/2025/04/21/climate/shell-recycling-connecticut-oysters.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/04/21/world/pope-francis-updates-vatican/latin-ame
 **Wild stick with Zeev Buium amid possible Game 2 lineup changes — and they won't worry about officiating**\
 `Minnesota had only 20 shots reach Vegas goalie Adin Hill in Game 1. This is one area where the Wild must adjust and improve.`\
 https://nytimes.com/athletic/6297712/2025/04/21/wild-game-2-buium-penalties/
-
-**Ron Rivera sheds light on his duties as Cal's general manager**\
-`Rivera confirmed Monday that he can recommend staff hiring and firing decisions to the school’s chancellor.`\
-https://nytimes.com/athletic/6297753/2025/04/21/ron-rivera-cal-football-general-manager/
-
-**G.O.P. Leader Asks Attorney General Pam Bondi to Prosecute Andrew Cuomo**\
-`A Republican House chairman renewed a request to the Justice Department to prosecute Mr. Cuomo for allegedly making false statements to Congress.`\
-https://nytimes.com/2025/04/21/nyregion/cuomo-criminal-referral-covid.html
-
-**White House Birthrate Boosters See an Ally in Musk**\
-`Elon Musk talks a lot about the birthrate. The Trump administration is looking for ways to raise it.`\
-https://nytimes.com/2025/04/21/us/politics/elon-musk-trump-birthrate.html
 
