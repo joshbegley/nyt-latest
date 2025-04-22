@@ -1,3 +1,11 @@
+**Cincinnati OL Jeremiah Kelly dies at 18**\
+`Kelly, who enrolled early at Cincinnati and participated in spring practices, died unexpectedly at his residence on Tuesday morning.`\
+https://nytimes.com/athletic/6299746/2025/04/22/cincinnati-jeremiah-kelly-dies-at-18/
+
+**The Connection Between Faith and Environmental Action**\
+`Leaders from many religions — including, notably, Pope Francis — have long sought to tie their faith to environmental stewardship.`\
+https://nytimes.com/2025/04/22/climate/the-connection-between-faith-and-environmental-action.html
+
 **Rose Bowl kickoff time moved up an hour: What about the sunset?**\
 `Sunset over the San Gabriel Mountains will likely come during the Rose Bowl's final minutes rather than early in the fourth quarter.`\
 https://nytimes.com/athletic/6299664/2025/04/22/rose-bowl-kick-time-espn-cfp-sunset/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/22/style/ice-bucket-challenge-mental-health.html
 **‘Vacancy of the Holy See’: The Vatican slows down but doesn’t stop between popes.**\
 `By Elisabetta Povoledo`\
 https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/vatican-business
-
-**Matthew Tkachuk, the NHL's best villain, is ready to play the part**\
-`Tkachuk is a certified pest, and hockey is better for it.`\
-https://nytimes.com/athletic/6299159/2025/04/22/nhl-playoffs-2025-panthers-lightning-matthew-tkachuk/
-
-**How Pope Francis Catalyzed the Catholic Right in the U.S.**\
-`Pope Francis’ critics represent a minority of the American church but a powerful one.`\
-https://nytimes.com/video/world/europe/100000010121909/how-pope-francis-catalyzed-the-catholic-right-in-the-us.html
 
