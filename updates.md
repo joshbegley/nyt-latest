@@ -1,3 +1,19 @@
+**Trump Promised ‘Big, Beautiful’ Deals. Delivering Has Been Tougher.**\
+`So far, the goals of many of President Trump’s negotiations have been unrealized, even those he said would be accomplished in a matter of days or weeks.`\
+https://nytimes.com/2025/04/22/us/politics/trump-trade-ukraine-negotiations.html
+
+**Jury selected, potential witnesses identified on first day of Hockey Canada trial**\
+`On Day 1 of the Hockey Canada sexual assault trial, jury selection began and the Crown revealed its list of potential witnesses.`\
+https://nytimes.com/athletic/6299976/2025/04/22/hockey-canada-trial-day-1/
+
+**Justices Appeared Set to Allow Opt-Outs From L.G.B.T.Q. Stories**\
+`Also, the secretary of state announced major cuts at the State Department. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/04/22/briefing/supreme-court-childrens-books-state-department.html
+
+**Nick Castellanos fails to homer after being most bet-on prop in all of sports on Monday**\
+`Bettors jumped on popular lore about Castellanos' knack for oddly timed homers.`\
+https://nytimes.com/athletic/6299331/2025/04/22/nick-castellanos-homer-most-bet-prop-monday/
+
 **Three Giants starters are hitting under .200. What does history say about similar April slumps?**\
 `There have been 34 players who started regularly for the Giants who hit under .200 in April. What happened with each of them after that?`\
 https://nytimes.com/athletic/6299506/2025/04/22/sf-giants-april-hitting-slumps-history/
