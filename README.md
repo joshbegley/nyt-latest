@@ -1,3 +1,7 @@
+**Three Giants starters are hitting under .200. What does history say about similar April slumps?**\
+`There have been 34 players who started regularly for the Giants who hit under .200 in April. What happened with each of them after that?`\
+https://nytimes.com/athletic/6299506/2025/04/22/sf-giants-april-hitting-slumps-history/
+
 **NBA fines Anthony Edwards $50K for inappropriate language to a fan**\
 `The Minnesota Timberwolves took a 1-0 series lead over the Los Angeles Lakers Saturday night after 117-95 victory.`\
 https://nytimes.com/athletic/6300139/2025/04/22/anthony-edwards-fined-50k-nba-remarks-lakers-fan/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/saints-mother-
 **Measles Surge in Southwest Is Now the Largest Single Outbreak Since 2000**\
 `Growing case numbers suggest that national total will surpass that seen during the last large outbreak in 2019.`\
 https://nytimes.com/2025/04/22/health/measles-southwest-outbreak.html
-
-**The Briefing: Man City 2 Aston Villa 1 - Late drama and fan protests as City climb into third place**\
-`We break down the key moments from a crucial game in the Premier League's top-five race `\
-https://nytimes.com/athletic/6299660/2025/04/22/manchester-city-aston-villa-premier-league-analysis/
 

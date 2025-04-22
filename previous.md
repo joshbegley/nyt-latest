@@ -1,3 +1,7 @@
+**NBA fines Anthony Edwards $50K for inappropriate language to a fan**\
+`The Minnesota Timberwolves took a 1-0 series lead over the Los Angeles Lakers Saturday night after 117-95 victory.`\
+https://nytimes.com/athletic/6300139/2025/04/22/anthony-edwards-fined-50k-nba-remarks-lakers-fan/
+
 **Les Snead, Sean McVay don't rule out Jalen Ramsey reunion with Rams**\
 `Jalen Ramsey was a key piece to the Rams' defense on their Super Bowl-winning team from the 2021 season.`\
 https://nytimes.com/athletic/6299868/2025/04/22/rams-jalen-ramsey-interest-sean-mcvay/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/22/health/measles-southwest-outbreak.html
 **The Briefing: Man City 2 Aston Villa 1 - Late drama and fan protests as City climb into third place**\
 `We break down the key moments from a crucial game in the Premier League's top-five race `\
 https://nytimes.com/athletic/6299660/2025/04/22/manchester-city-aston-villa-premier-league-analysis/
-
-**Wednesday Briefing: A Downgrade in Global Growth**\
-`Plus, the next big thing from Japan.`\
-https://nytimes.com/2025/04/22/briefing/global-growth-pope-funeral-russia-ukraine-talks.html
 
