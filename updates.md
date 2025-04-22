@@ -1,3 +1,19 @@
+**Eagles 2025 NFL Draft big board: Players to watch at positions on offense and defense**\
+`The Eagles have been active traders at recent drafts.`\
+https://nytimes.com/athletic/6296583/2025/04/22/eagles-2025-nfl-draft-big-board-howie-roseman/
+
+**Commanders NFL Draft big board: Players worth considering on all 3 days**\
+`Taking a look at some of Washington's focus areas and the potential targets available through the three-day draft. `\
+https://nytimes.com/athletic/6295479/2025/04/22/washington-commanders-2025-nfl-draft-big-board/
+
+**The New York Times International Edition in Print for Wednesday, April 23, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/04/22/todays-new-york-times-international-edition
+
+**NFL mock draft: How league insiders expect top 10 picks to unfold: Will Jags take Jeanty?**\
+`The first four picks of the NFL Draft feel somewhat predictable. Where things will get interesting is at No. 5 with the Jaguars. `\
+https://nytimes.com/athletic/6290474/2025/04/22/nfl-draft-mock-draft-coaches-top-10-2025/
+
 **Ravens NFL Draft big board: Looking at potential targets for all 3 days**\
 `We use Baltimore's needs, history, tendencies and pre-draft meetings to highlight some prospects in this class who could interest the team. `\
 https://nytimes.com/athletic/6291475/2025/04/22/baltimore-ravens-2025-nfl-draft-big-board/

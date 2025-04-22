@@ -1,3 +1,19 @@
+**Eagles 2025 NFL Draft big board: Players to watch at positions on offense and defense**\
+`The Eagles have been active traders at recent drafts.`\
+https://nytimes.com/athletic/6296583/2025/04/22/eagles-2025-nfl-draft-big-board-howie-roseman/
+
+**Commanders NFL Draft big board: Players worth considering on all 3 days**\
+`Taking a look at some of Washington's focus areas and the potential targets available through the three-day draft. `\
+https://nytimes.com/athletic/6295479/2025/04/22/washington-commanders-2025-nfl-draft-big-board/
+
+**The New York Times International Edition in Print for Wednesday, April 23, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/04/22/todays-new-york-times-international-edition
+
+**NFL mock draft: How league insiders expect top 10 picks to unfold: Will Jags take Jeanty?**\
+`The first four picks of the NFL Draft feel somewhat predictable. Where things will get interesting is at No. 5 with the Jaguars. `\
+https://nytimes.com/athletic/6290474/2025/04/22/nfl-draft-mock-draft-coaches-top-10-2025/
+
 **Ravens NFL Draft big board: Looking at potential targets for all 3 days**\
 `We use Baltimore's needs, history, tendencies and pre-draft meetings to highlight some prospects in this class who could interest the team. `\
 https://nytimes.com/athletic/6291475/2025/04/22/baltimore-ravens-2025-nfl-draft-big-board/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6296257/2025/04/22/falcons-2025-nfl-draft-big-board
 **Under Hegseth, Chaos Prevails at the Pentagon**\
 `The defense secretary’s inner circle is in disarray, and distrust is growing among civil servants and senior military officials.`\
 https://nytimes.com/2025/04/22/us/politics/hegseth-chaos-pentagon.html
-
-**When Pope Francis Touched New Yorkers’ Hearts**\
-`The pope visited the city in 2015, making stops that included Madison Square Garden, Central Park and a Harlem school.`\
-https://nytimes.com/2025/04/22/nyregion/pope-francis-new-york-visit.html
-
-**A Venezuelan Is Missing. The U.S. Deported Him. But to Where?**\
-`The immigrant does not appear on a list of people sent to a prison in El Salvador, and his family and friends have no idea of his whereabouts. He has essentially disappeared.`\
-https://nytimes.com/2025/04/22/us/venezuela-immigrant-disappear-deport-ice.html
-
-**Trump Is Insatiable**\
-`The president is trying to pick off institutions (and people) one by one.`\
-https://nytimes.com/2025/04/22/opinion/trump-harvard.html
-
-**‘Andor’ Is Not the Resistance You’re Looking For**\
-`I have always found the praise for the show’s revolutionary politics to be at odds with the means of its production.`\
-https://nytimes.com/2025/04/22/opinion/andor-star-wars-leftist-radical.html
 
