@@ -1,3 +1,11 @@
+**‘Vacancy of the Holy See’: The Vatican slows down but doesn’t stop between popes.**\
+`By Elisabetta Povoledo`\
+https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/vatican-business
+
+**Matthew Tkachuk, the NHL's best villain, is ready to play the part**\
+`Tkachuk is a certified pest, and hockey is better for it.`\
+https://nytimes.com/athletic/6299159/2025/04/22/nhl-playoffs-2025-panthers-lightning-matthew-tkachuk/
+
 **How Pope Francis Catalyzed the Catholic Right in the U.S.**\
 `Pope Francis’ critics represent a minority of the American church but a powerful one.`\
 https://nytimes.com/video/world/europe/100000010121909/how-pope-francis-catalyzed-the-catholic-right-in-the-us.html
@@ -10,8 +18,8 @@ https://nytimes.com/athletic/6297848/2025/04/22/the-soccer-tournament-womens-gro
 `By Rachel Donadio`\
 https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/a-choice-that-sent-a-message-looking-back-at-francis-2013-election-as-pope
 
-**A Jury Is Seated for the New York Trial of Harvey Weinstein. Again.**\
-`Some prospective jurors reacted with shock when they heard the defendant’s name. Opening statements lie ahead.`\
+**Jury Is Seated After Startling Reveal: The Defendant Is Harvey Weinstein**\
+`Some prospective jurors reacted with shock when they realized they might be selected for Mr. Weinstein’s latest trial. Opening statements lie ahead.`\
 https://nytimes.com/2025/04/22/nyregion/harvey-weinstein-trial-jury-seated.html
 
 **Islanders fire team president and GM Lou Lamoriello after missing postseason**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/22/arts/shannon-sharpe-lawsuit-rape-sexual-assault.h
 **Jury Begins Deliberating in Palin’s Case Against The Times**\
 `This is the second time a jury has heard the case. Sarah Palin sued The New York Times in 2017, accusing the publication of defaming her in an editorial.`\
 https://nytimes.com/2025/04/22/business/media/sarah-palin-new-york-times-jury-deliberations.html
-
-**Jennifer Lopez’s Alma Mater to Stay Open as Nuns Sell to a Casino Firm**\
-`Bally’s Corporation will buy Preston High School’s buildings and lease them back to the Catholic school, a victory for foes of a plan to close the Bronx institution.`\
-https://nytimes.com/2025/04/22/nyregion/preston-catholic-school-bronx.html
-
-**The Complicated Legacy of Pope Francis**\
-`Readers offer reflections after the death of Pope Francis. Also: The mistakes of Defense Secretary Pete Hegseth.`\
-https://nytimes.com/2025/04/22/opinion/pope-francis-legacy.html
 

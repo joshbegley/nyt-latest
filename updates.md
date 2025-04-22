@@ -1,3 +1,15 @@
+**‘Vacancy of the Holy See’: The Vatican slows down but doesn’t stop between popes.**\
+`By Elisabetta Povoledo`\
+https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/vatican-business
+
+**Matthew Tkachuk, the NHL's best villain, is ready to play the part**\
+`Tkachuk is a certified pest, and hockey is better for it.`\
+https://nytimes.com/athletic/6299159/2025/04/22/nhl-playoffs-2025-panthers-lightning-matthew-tkachuk/
+
+**Jury Is Seated After Startling Reveal: The Defendant Is Harvey Weinstein**\
+`Some prospective jurors reacted with shock when they realized they might be selected for Mr. Weinstein’s latest trial. Opening statements lie ahead.`\
+https://nytimes.com/2025/04/22/nyregion/harvey-weinstein-trial-jury-seated.html
+
 **How Pope Francis Catalyzed the Catholic Right in the U.S.**\
 `Pope Francis’ critics represent a minority of the American church but a powerful one.`\
 https://nytimes.com/video/world/europe/100000010121909/how-pope-francis-catalyzed-the-catholic-right-in-the-us.html
