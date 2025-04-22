@@ -1,3 +1,7 @@
+**Full Time: Put everyone in bubble wrap**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6298116/2025/04/21/nwsl-injuries-women-coaches-full-time/
+
 **NBA playoff takeaways: Pistons edge Knicks for first playoff win since 2008**\
 `Two days after New York rode a late 21-0 run to a Game 1 win, Detroit held on to knot the series at 1-1.`\
 https://nytimes.com/athletic/6297664/2025/04/21/nba-playoffs-pistons-knicks-clippers-nuggets-score-takeaways/
