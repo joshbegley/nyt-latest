@@ -1,3 +1,7 @@
+**For his final resting place, Francis chose simplicity in a place of beauty.**\
+`By Elisabetta Povoledo`\
+https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/for-his-final-resting-place-francis-chose-simplicity-in-a-place-of-beauty
+
 **Hegseth says he ‘won’t blink’ in the face of criticism of his leadership.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2025/04/22/us/trump-administration-news/hegseth-says-he-wont-blink-in-the-face-of-criticism-of-his-leadership
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6297813/2025/04/22/ducks-anaheim-coach-candidates/
 **Bay FC to play Washington Spirit at San Francisco's Oracle Park this summer**\
 `It will mark the first women’s professional sports competition at the waterfront baseball field, which has a capacity of 40,260.`\
 https://nytimes.com/athletic/6298154/2025/04/22/bay-fc-oracle-park-washington-spirit/
-
-**Dodgers' Max Muncy looking to correct a 'misunderstanding' in his swing**\
-`Muncy has zero home runs in in 79 plate appearances, so where did the power go?`\
-https://nytimes.com/athletic/6297604/2025/04/22/dodgers-max-muncy-mlb-swing/
 
