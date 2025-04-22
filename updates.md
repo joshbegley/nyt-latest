@@ -1,3 +1,11 @@
+**Ukraine Cease-fire Talks to Reconvene in London, Minus Rubio**\
+`The decision by Secretary of State Marco Rubio to pull out of the meeting and an objection by Ukraine’s leader to a key U.S. proposal raised questions about the state of the negotiations.`\
+https://nytimes.com/2025/04/22/world/europe/ukraine-cease-fire-talks.html
+
+**The Briefing: Man City 2 Aston Villa 1 - Late drama and fan protests as City climb into third place**\
+`We break down the key moments from a crucial game in the Premier League's top-five race `\
+https://nytimes.com/athletic/6299660/2025/04/22/manchester-city-aston-villa-premier-league-analysis/
+
 **The Briefing - Man City 2 Aston Villa 1 - Late drama and fan protests as City climb into third place**\
 `We break down the key moments from a crucial game in the Premier League's top-five race `\
 https://nytimes.com/athletic/6299660/2025/04/22/manchester-city-aston-villa-premier-league-analysis/

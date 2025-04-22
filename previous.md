@@ -1,3 +1,7 @@
+**Ukraine Cease-fire Talks to Reconvene in London, Minus Rubio**\
+`The decision by Secretary of State Marco Rubio to pull out of the meeting and an objection by Ukraine’s leader to a key U.S. proposal raised questions about the state of the negotiations.`\
+https://nytimes.com/2025/04/22/world/europe/ukraine-cease-fire-talks.html
+
 **Francis was the pope who made the most saints.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/saints-mother-teresa
@@ -6,7 +10,7 @@ https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/saints-mother-
 `Growing case numbers suggest that national total will surpass that seen during the last large outbreak in 2019.`\
 https://nytimes.com/2025/04/22/health/measles-southwest-outbreak.html
 
-**The Briefing - Man City 2 Aston Villa 1 - Late drama and fan protests as City climb into third place**\
+**The Briefing: Man City 2 Aston Villa 1 - Late drama and fan protests as City climb into third place**\
 `We break down the key moments from a crucial game in the Premier League's top-five race `\
 https://nytimes.com/athletic/6299660/2025/04/22/manchester-city-aston-villa-premier-league-analysis/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6299700/2025/04/22/nfl-draft-2025-shedeur-sanders-b
 **Judge Blocks Trump Effort to Dismantle Voice of America**\
 `The judge also ordered the government to halt its efforts to shut down two other government-funded outlets, Radio Free Asia and the Middle East Broadcasting Networks.`\
 https://nytimes.com/2025/04/22/us/politics/judge-trump-voice-of-america.html
-
-**Celtics' Tatum doubtful for Game 2 vs. Magic due to bone bruise**\
-`Tatum sustained the injury in Game 1 during a hard fall in the fourth quarter after taking a flagrant foul from Kentavious Caldwell-Pop.`\
-https://nytimes.com/athletic/6299895/2025/04/22/jayson-tatum-doubtful-celtics-magic-game-2/
 
