@@ -1,5 +1,9 @@
 **Judge Blocks Trump Effort to Dismantle Voice of America**\
 `The judge also ordered the government to halt its efforts to shut down two other government-funded outlets, Radio Free Asia and the Middle East Broadcasting Networks.`\
+https://nytimes.com/2025/04/22/us/politics/judge-trump-voice-of-america.html
+
+**Judge Blocks Trump Effort to Dismantle Voice of America**\
+`The judge also ordered the government to halt its efforts to shut down two other government-funded outlets, Radio Free Asia and the Middle East Broadcasting Networks.`\
 https://nytimes.com/2025/04/22/us/politics/judge-blocks-trump-effort-to-dismantle-voice-of-america.html
 
 **Celtics' Tatum doubtful for Game 2 vs. Magic due to bone bruise**\
