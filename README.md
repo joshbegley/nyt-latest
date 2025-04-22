@@ -1,3 +1,11 @@
+**Pistons' 17-year playoff win drought ends with help of Cade Cunningham, Dennis Schröder**\
+`Cunningham and Schröder led the charge Monday, as Detroit snapped an NBA-record 15-game postseason skid against the New York Knicks.`\
+https://nytimes.com/athletic/6298390/2025/04/22/cade-cunningham-dennis-schroder-pistons-nba-playoffs/
+
+**Education Department Will Resume Collections on Student Loan Debt**\
+`In an announcement this week, the department warned that millions of borrowers could be referred to debt collectors and see deductions from their paychecks.`\
+https://nytimes.com/2025/04/22/business/education-department-student-loan-debt.html
+
 **Chiefs NFL Draft Big Board: Plenty of linemen to choose from at No. 31 and beyond**\
 `The Chiefs’ biggest roster needs are at defensive lineman, offensive tackle and running back. We look at options for all three days.`\
 https://nytimes.com/athletic/6273507/2025/04/22/chiefs-nfl-draft-2025-big-board/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6296291/2025/04/22/nfl-draft-2025-guide-pick-prospe
 **Will NWSL expansion bring more opportunities for women or more coaches from Europe?**\
 `Angel City said it looked at a balanced pool of candidates before hiring Bayern Munich head coach Alexander Straus.`\
 https://nytimes.com/athletic/6297940/2025/04/22/nwsl-women-coach-pipeline-soccer/
-
-**Mikko Rantanen's struggles are entirely understandable — but entirely unacceptable**\
-`A still-getting-his-feet-beneath-him Rantanen is still a really good Rantanen. But really good isn’t good enough against the revamped Avs.`\
-https://nytimes.com/athletic/6298419/2025/04/22/mikko-rantanen-dallas-stars-nhl-playoffs/
-
-**Hockey Canada sexual assault trial starts today: Here's what you need to know**\
-`Laying out the key details of a trial in London, Ontario, that could last as long as eight weeks. `\
-https://nytimes.com/athletic/6296302/2025/04/22/hockey-canada-sexual-assault-trial/
 

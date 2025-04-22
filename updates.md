@@ -1,3 +1,11 @@
+**Chiefs NFL Draft Big Board: Plenty of linemen to choose from at No. 31 and beyond**\
+`The Chiefs’ biggest roster needs are at defensive lineman, offensive tackle and running back. We look at options for all three days.`\
+https://nytimes.com/athletic/6273507/2025/04/22/chiefs-nfl-draft-2025-big-board/
+
+**Bears NFL Draft Big Board: What happens if Ashton Jeanty, Will Campbell are gone?**\
+`The Bears' biggest roster needs are at offensive tackle, defensive lineman and running back. We look at options for all three days.`\
+https://nytimes.com/athletic/6278729/2025/04/22/bears-nfl-draft-big-ashton-jeanty/
+
 **Vikings big board: 10 players who make sense for Minnesota on each day**\
 `With just four picks in the draft, the Vikings will be hoping to hit on each of them. That puts a lot of pressure on the GM and coach.`\
 https://nytimes.com/athletic/6297265/2025/04/22/vikings-2025-nfl-draft-big-board-tyler-booker/
