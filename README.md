@@ -1,3 +1,7 @@
+**China says it is willing to keep improving ties with the Vatican.**\
+`By Tiffany May`\
+https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/china-says-it-is-willing-to-keep-improving-ties-with-the-vatican
+
 **LeBrun: Stars vs. Avalanche, a series dripping with star power, delivers on its promise**\
 `A series featuring two genuine Stanley Cup contenders was close to fizzling out. Now we get the series we were supposed to get.`\
 https://nytimes.com/athletic/6298498/2025/04/22/stars-avalanche-game-1-nhl-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6278729/2025/04/22/bears-nfl-draft-big-ashton-jeant
 **Vikings big board: 10 players who make sense for Minnesota on each day**\
 `With just four picks in the draft, the Vikings will be hoping to hit on each of them. That puts a lot of pressure on the GM and coach.`\
 https://nytimes.com/athletic/6297265/2025/04/22/vikings-2025-nfl-draft-big-board-tyler-booker/
-
-**Giants 2025 NFL Draft big board: 40 prospects who would fit in New York**\
-`For all the talk of what the Giants will do at No. 3 and at QB, they still have plenty of holes to address in the draft.`\
-https://nytimes.com/athletic/6290975/2025/04/22/giants-2025-nfl-draft-big-board-top-prospects/
 
