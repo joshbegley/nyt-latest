@@ -1,3 +1,11 @@
+**Minnesota Sues Trump Administration Over Limits on Transgender Athletes**\
+`The administration has said it would cut federal funds to states that allow trans girls and women to play on girls’ sports teams.`\
+https://nytimes.com/2025/04/22/us/minnesota-trump-transgender-athletes.html
+
+**Celtics' Payton Pritchard wins Sixth Man of the Year**\
+`Pritchard scored more points off the bench than anyone in the NBA this season and made more 3-pointers than any reserve player in history.`\
+https://nytimes.com/athletic/6300262/2025/04/22/payton-pritchard-sixth-man-of-the-year-celtics/
+
 **How Bats Enjoy an In-Flight Beverage Service**\
 `Bats are not only masters of aerodynamic flight — they’re skillful at multitasking while flying, too.`\
 https://nytimes.com/2025/04/22/science/bats-drinking-flight.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/22/briefing/supreme-court-childrens-books-state-depa
 **Nick Castellanos fails to homer after being most bet-on prop in all of sports on Monday**\
 `Bettors jumped on popular lore about Castellanos' knack for oddly timed homers.`\
 https://nytimes.com/athletic/6299331/2025/04/22/nick-castellanos-homer-most-bet-prop-monday/
-
-**Three Giants starters are hitting under .200. What does history say about similar April slumps?**\
-`There have been 34 players who started regularly for the Giants who hit under .200 in April. What happened with each of them after that?`\
-https://nytimes.com/athletic/6299506/2025/04/22/sf-giants-april-hitting-slumps-history/
-
-**NBA fines Anthony Edwards $50K for inappropriate language to a fan**\
-`The Minnesota Timberwolves took a 1-0 series lead over the Los Angeles Lakers Saturday night after 117-95 victory.`\
-https://nytimes.com/athletic/6300139/2025/04/22/anthony-edwards-fined-50k-nba-remarks-lakers-fan/
 
