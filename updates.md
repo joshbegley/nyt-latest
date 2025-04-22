@@ -1,3 +1,11 @@
+**The Soccer Tournament unveils groups for women's teams battling for $1 million prize**\
+`More than 500 players will compete across four groups of four teams each, with matches held over four days from June 6-9.`\
+https://nytimes.com/athletic/6297848/2025/04/22/the-soccer-tournament-womens-groups-unveiled/
+
+**A choice that sent a message: Looking back at Francis’ 2013 election as pope.**\
+`By Rachel Donadio`\
+https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/a-choice-that-sent-a-message-looking-back-at-francis-2013-election-as-pope
+
 **A Jury Is Seated for the New York Trial of Harvey Weinstein. Again.**\
 `Some prospective jurors reacted with shock when they heard the defendant’s name. Opening statements lie ahead.`\
 https://nytimes.com/2025/04/22/nyregion/harvey-weinstein-trial-jury-seated.html
