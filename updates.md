@@ -1,3 +1,11 @@
+**The Athletic FC: Promotion party for US owners but tough calls to come, Man Utd eye Cunha**\
+`In today's TAFC: Leeds and Burnley promoted to Premier League but can they survive? Plus: Manchester United target Cunha`\
+https://nytimes.com/athletic/6298608/2025/04/22/leeds-burnley-us-owners-man-united-cunha/
+
+**Pope Francis’ Death Cuts a Vital Line of Hope for Gaza’s Christians**\
+`For months, the pontiff spoke by telephone almost every night with people sheltering in a Catholic church in the battered enclave. “The evenings became known as the pope’s time,” a priest in Gaza said.`\
+https://nytimes.com/2025/04/22/world/middleeast/pope-francis-gaza.html
+
 **The Pulse: One night, multiple playoff thrillers**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6296693/2025/04/22/nba-nhl-playoffs-the-pulse/
