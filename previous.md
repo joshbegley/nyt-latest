@@ -1,3 +1,11 @@
+**A Seaport Museum Faces an Unlikely Threat: The Sea Itself**\
+`Rising sea levels are forcing the Mystic Seaport Museum in Connecticut to address the long-term sustainability of its campus.`\
+https://nytimes.com/2025/04/22/arts/design/mystic-seaport-museum-sea-level-rise.html
+
+**During a trip to Mexico, Francis addressed the immigration debate.**\
+`By Simon Romero and Emiliano Rodríguez Mega`\
+https://nytimes.com/live/2025/04/21/world/pope-francis-death-news/during-a-trip-to-mexico-francis-addressed-the-immigration-debate
+
 **Kings survive Game 1 collapse thanks to Phillip Danault's heroics**\
 `Danault scored with 41.1 seconds left, rescuing the Kings from a potentially nightmarish result in their series-opener against the Oilers.`\
 https://nytimes.com/athletic/6298572/2025/04/22/kings-oilers-phillip-danault-game-1-nhl-playoffs/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/22/us/politics/imf-world-economic-outlook.html
 **Global Economic Leaders Gathering in U.S. Confront Trump’s New World Order**\
 `The I.M.F. and World Bank are holding their spring meetings as President Trump’s trade war upends the global economy.`\
 https://nytimes.com/2025/04/22/us/politics/imf-world-bank-meetings-trump.html
-
-**Tina Knowles, Mother of Superstars, Owns Her Own Story**\
-`“Matriarch,” a memoir out Tuesday, explores the trials and hard-worn triumphs that shaped Beyoncé and Solange Knowles’s mom.`\
-https://nytimes.com/2025/04/22/arts/music/tina-knowles-beyonce-solange-matriarch-book.html
-
-**Old Friends With Sunny Attire and Spirits**\
-`Orange colors enlivened and united two outfits.`\
-https://nytimes.com/2025/04/22/style/street-style-look-sunny-clothes.html
 
