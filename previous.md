@@ -1,3 +1,7 @@
+**Richard Branson Criticizes Trump’s ‘Erratic’ Tariff Policies**\
+`The British entrepreneur said the U.S. government’s unpredictable tariffs had “financially done a lot of harm” and driven the world to “the verge of a complete meltdown two weeks ago.”`\
+https://nytimes.com/2025/04/23/us/politics/richard-branson-trump-tariff-policies.html
+
 **Review: From Kyle Abraham, Saxophones and Sculptural Shapes**\
 `On program of New York premieres at the Joyce Theater, Abraham’s contribution stands out and so do his dancers.`\
 https://nytimes.com/2025/04/23/arts/dance/review-kyle-abraham-aim.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6302229/2025/04/23/kevin-thelwell-rangers-everton/
 **Tiny Love Stories: ‘The Secret About People’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/04/23/style/tiny-modern-love-stories-the-secret-about-people.html
-
-**Believing**\
-``\
-https://nytimes.com/spotlight/believing
 
