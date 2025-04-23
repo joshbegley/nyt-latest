@@ -1,3 +1,7 @@
+**Judge says she will deny NCAA settlement if roster limits are not adjusted**\
+`Judge Claudia Wilken raised concerns about roster limits replacing scholarship limits as part of the settlement agreement.`\
+https://nytimes.com/athletic/6303220/2025/04/23/judge-will-deny-ncaa-settlement-if-roster-limits-not-adjusted/
+
 **Celtics star Jayson Tatum out for Game 2 vs. Magic with wrist injury**\
 `Celtics coach Joe Mazzulla said Tatum will be considered “day to day” with his wrist injury moving forward.`\
 https://nytimes.com/athletic/6303197/2025/04/23/celtics-jayson-tatum-out-for-game-2/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/23/world/middleeast/muslim-brotherhood-explainer.htm
 **Trump’s Approval Rating Has Been Falling Steadily, Polling Average Shows**\
 `President Trump’s approval rating has sunk to about 45 percent, down from 52 percent one week after he took office.`\
 https://nytimes.com/2025/04/23/us/politics/trump-approval-rating.html
-
-**U.S. Pushed a Ukraine Peace Plan That Favored Russia**\
-`Also, major endorsements jolted the New York City mayoral race. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2025/04/23/briefing/us-ukraine-peace-plan-new-york-city-mayor.html
 
