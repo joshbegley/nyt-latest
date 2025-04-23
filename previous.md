@@ -1,3 +1,7 @@
+**Lakers cut through the noise to level Timberwolves playoff series**\
+`L.A. rectified some wrongs to even the series with a 94-85 win that wasn’t nearly as close as the final score.`\
+https://nytimes.com/athletic/6301211/2025/04/23/lakers-timberwolves-nba-playoffs-doncic/
+
 **Ex-Brazil coach Tite pausing career to take mental, physical health break**\
 `Tite coached Brazil between 2016 and 2022, winning the Copa America title in 2019.`\
 https://nytimes.com/athletic/6301293/2025/04/23/brazil-manager-tite-mental-health/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6300840/2025/04/23/maple-leafs-berube-style-nhl-pla
 **‘Not one ounce of panic’: How the Senators are looking to build on Game 2 positives**\
 `The Senators don't quite have their back against the wall, yet they failed to earn a series split. Even so, they're staying calm.`\
 https://nytimes.com/athletic/6300328/2025/04/23/senators-belief-nhl-playoffs-game-2/
-
-**NHL playoffs daily: Hurricanes beat Devils, Maple Leafs outlast Senators, Panthers rout Lightning**\
-`Tuesday's NHL playoff action delivered yet more excitement. Here are our takeaways.`\
-https://nytimes.com/athletic/6300327/2025/04/23/nhl-playoffs-daily-round-1-results-takeaways/
 

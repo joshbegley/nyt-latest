@@ -1,3 +1,7 @@
+**Lakers cut through the noise to level Timberwolves playoff series**\
+`L.A. rectified some wrongs to even the series with a 94-85 win that wasn’t nearly as close as the final score.`\
+https://nytimes.com/athletic/6301211/2025/04/23/lakers-timberwolves-nba-playoffs-doncic/
+
 **Ex-Brazil coach Tite pausing career to take mental, physical health break**\
 `Tite coached Brazil between 2016 and 2022, winning the Copa America title in 2019.`\
 https://nytimes.com/athletic/6301293/2025/04/23/brazil-manager-tite-mental-health/
