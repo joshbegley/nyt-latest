@@ -1,3 +1,7 @@
+**An Artist Subverting Propaganda Through Large-Scale Sculptures**\
+`Sandra Poulson discusses Louise Bourgeois, Angolan humor and cheap wood.`\
+https://nytimes.com/2025/04/23/t-magazine/sandra-poulson-art-moma-ps1.html
+
 **Tigers vanquish Padres and again prove they aren't to be taken lightly**\
 `The Tigers are 15-10, pitching the lights out and overachieving offensively. No longer cute underdogs, might the Tigers be here to stay?`\
 https://nytimes.com/athletic/6302985/2025/04/23/tigers-defeat-padres/

@@ -1,3 +1,7 @@
+**An Artist Subverting Propaganda Through Large-Scale Sculptures**\
+`Sandra Poulson discusses Louise Bourgeois, Angolan humor and cheap wood.`\
+https://nytimes.com/2025/04/23/t-magazine/sandra-poulson-art-moma-ps1.html
+
 **Tigers vanquish Padres and again prove they aren't to be taken lightly**\
 `The Tigers are 15-10, pitching the lights out and overachieving offensively. No longer cute underdogs, might the Tigers be here to stay?`\
 https://nytimes.com/athletic/6302985/2025/04/23/tigers-defeat-padres/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/23/travel/helicopter-sightseeing-tours-regulations-s
 **How one U.S. host city is preparing for the 2026 World Cup**\
 `Recent experience staging major events puts many of the key infrastructure pieces in place for 2026 World Cup host Atlanta.`\
 https://nytimes.com/athletic/6302777/2025/04/23/atlanta-2026-world-cup-host-usa-preparation-fifa/
-
-**Guler scores as Real close gap on Barca, but Alaba, Camavinga serious doubts for Clasico**\
-`Madrid are now four points behind leaders Barca, who they face in the Copa del Rey final on Saturday.`\
-https://nytimes.com/athletic/6302423/2025/04/23/real-madrid-barcelona-la-liga/
 
