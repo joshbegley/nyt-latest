@@ -1,3 +1,11 @@
+**What to Know About the Legal Battle Over a North Carolina Supreme Court Race**\
+`The Republican challenger has embarked on an extraordinary effort to reverse his election loss that critics say is testing the boundaries of post-election litigation.`\
+https://nytimes.com/2025/04/22/us/north-carolina-supreme-court-race-explainer.html
+
+**Roy Thomas Baker, Who Helped Produce ‘Bohemian Rhapsody,’ Dies at 78**\
+`Among the most successful music producers in the 1970s and ’80s, he helped churn out hits for acts like Queen, the Cars, Journey and Foreigner.`\
+https://nytimes.com/2025/04/22/arts/music/roy-thomas-baker-dead.html
+
 **Trump will not target nonprofits in an executive order, the White House says.**\
 `By Theodore Schleifer`\
 https://nytimes.com/live/2025/04/22/us/trump-administration-news/trump-will-not-target-nonprofits-in-an-executive-order-the-white-house-says
