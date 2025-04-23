@@ -1,3 +1,15 @@
+**Britain Says It Will Not Rush or Alter Standards in U.S. Trade Deal**\
+`The British government is hoping to reach an agreement with the United States to soften the economic blow British businesses are facing from higher tariffs.`\
+https://nytimes.com/2025/04/23/business/britain-us-trade-deal.html
+
+**The Windup: A fresh layer of Angels dysfunction**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6300857/2025/04/23/angles-getaway-night-game-the-windup/
+
+**A Perfect Day in a Gentle Meadow Is Shattered by Bloody Carnage**\
+`Victims and eyewitnesses described scenes of chaos and horror as militants killed 26 people in Kashmir as families, couples and friends took in a picturesque valley.`\
+https://nytimes.com/2025/04/23/world/asia/kashmir-pahalgam-attack-victims.html
+
 **Eric Adams Campaigns at Legal Weed Shop With Troubled History**\
 `Before it was a legal dispensary where the mayor hoped to raise campaign funds, the site held an illicit weed shop raided by the city. Some of its operators are still around.`\
 https://nytimes.com/2025/04/23/nyregion/eric-adams-sweetlife-dispensary-fundraiser.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6302163/2025/04/23/rory-mcilroy-zurich-classic-mast
 **A Republican Senator Says It: ‘We Are All Afraid’**\
 `Readers react to the startling admission by Senator Lisa Murkowski of Alaska. Also: Private prisons for immigrants; noise in a Queens neighborhood.`\
 https://nytimes.com/2025/04/23/opinion/senator-lisa-murkowski.html
-
-**New Study Could Bolster Climate Laws to Make Polluters Pay**\
-`Vermont was the first state to try to hold polluters accountable for climate disasters. New research aims to assign specific responsibility.`\
-https://nytimes.com/2025/04/23/climate/climate-science-attribution-vermont.html
-
-**In NASCAR stunner, Spire and crew chief Rodney Childers to part ways: Sources**\
-`Rodney Childers — one of the top crew chiefs in recent NASCAR history — is leaving after less than a year at Spire. The reason wasn't clear.`\
-https://nytimes.com/athletic/6302285/2025/04/23/spire-motorsports-rodney-childers-crew-chief-nascar/
-
-**YouTube at 20: From ‘Lazy Sunday’ to ‘Hot Ones’**\
-`The video-streaming platform has revolutionized how we watch things. Here’s a timeline of its biggest moments.`\
-https://nytimes.com/2025/04/23/technology/youtube-20th-anniversary-timeline.html
 

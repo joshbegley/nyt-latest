@@ -1,3 +1,19 @@
+**Eric Adams Campaigns at Legal Weed Shop With Troubled History**\
+`Before it was a legal dispensary where the mayor hoped to raise campaign funds, the site held an illicit weed shop raided by the city. Some of its operators are still around.`\
+https://nytimes.com/2025/04/23/nyregion/eric-adams-sweetlife-dispensary-fundraiser.html
+
+**Thelwell set to be appointed Rangers sporting director**\
+`The 51-year-old is due to leave the same role at Everton this summer when his contract expires.`\
+https://nytimes.com/athletic/6302229/2025/04/23/kevin-thelwell-rangers-everton/
+
+**Tiny Love Stories: ‘The Secret About People’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/04/23/style/tiny-modern-love-stories-the-secret-about-people.html
+
+**Believing**\
+``\
+https://nytimes.com/spotlight/believing
+
 **New Study Could Bolster Climate Laws to Make Polluters Pay**\
 `Vermont was the first state to try to hold polluters accountable for climate disasters. New research aims to assign specific responsibility.`\
 https://nytimes.com/2025/04/23/climate/climate-science-attribution-vermont.html
