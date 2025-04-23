@@ -1,3 +1,7 @@
+**Lorde Dances to Her New Single in Washington Square Park**\
+`The singer summoned fans on her social media to an impromptu performance in Washington Square Park Tuesday night.`\
+https://nytimes.com/video/arts/music/100000010126059/lorde-performance-new-york.html
+
 **Jordan Cracks Down on Muslim Brotherhood**\
 `The Arab monarchy had already taken steps toward disbanding the Islamist group in a 2020 court decision, but said it would now move to completely ban its activities.`\
 https://nytimes.com/2025/04/23/world/middleeast/jordan-muslim-brotherhood.html
