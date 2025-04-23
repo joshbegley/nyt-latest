@@ -1,3 +1,15 @@
+**WATCH: The 'Scoop City' NFL Draft Preview live show: Giants, Sanders, Ward and more**\
+`NFL insider Dianna Russini and former NFL QB Chase Daniel discuss the latest draft developments.`\
+https://nytimes.com/athletic/6301823/2025/04/23/nfl-draft-live-show-sanders-ward-hunter-video/
+
+**The Bounce: Luka Dončić, Lakers even series with Wolves as Pacers, Thunder take 2-0 leads**\
+`The Lakers evened their first-round series against the Timberwolves as the Pacers, Thunder moved closer to the second round`\
+https://nytimes.com/athletic/6302033/2025/04/23/luka-doncic-lebron-james-lakers-timberwolves-pacers-thunders-nba-the-bounce/
+
+**Durbin, No. 2 Senate Democrat, to Retire After 44 Years in Congress**\
+`Senator Richard J. Durbin’s departure will set off a primary for a rare open Senate seat in Illinois and open a top leadership slot. He said it was time to “face reality” and make way for someone new.`\
+https://nytimes.com/2025/04/23/us/dick-durbin-retires-senate.html
+
 **A Turner Prize Shortlist That J.M.W. Turner Might Have Appreciated**\
 `This year’s nominees for the prestigious art award include Mohammed Sami, an Iraqi painter, and Zadie Xa, a Canadian installation artist.`\
 https://nytimes.com/2025/04/23/arts/design/turner-prize-shortlist.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6301944/2025/04/23/kirk-cousins-falcons-trade-calls
 **Tariffs on China Aren’t Likely to Rescue Battered U.S. P.P.E. Industry**\
 `The few domestic companies that still make protective gear for health care workers have clamored for federal intervention. But they worry President Trump’s trade war with China won’t help.`\
 https://nytimes.com/2025/04/23/health/china-tariffs-ppe-health-care-workers.html
-
-**The Sleep Trends Experts Think You Should (and Shouldn’t) Try**\
-`Mouth tape, melatonin, “worry journals” — here’s what might actually help you sleep.`\
-https://nytimes.com/2025/04/23/well/social-media-sleep-trends-that-work.html
-
-**Sometimes You Just Need a Great Big Salad**\
-`And Alexa Weibel’s chopped salad with jalapeño-ranch dressing is both very great and very big (flavor-wise).`\
-https://nytimes.com/2025/04/23/dining/chopped-salad-jalapeno-dressing.html
-
-**Review: Little Adds Up in the Elusive ‘Grief Camp’**\
-`Les Waters’s production for Atlantic Theater Company is marvelously realized, despite the limitations of the play’s often maddening script.`\
-https://nytimes.com/2025/04/23/theater/grief-camp-review-atlantic-theater.html
 
