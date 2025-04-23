@@ -1,3 +1,7 @@
+**Olympic gold medalist Lauren Holiday joins NWSL team ownership group**\
+`The USWNT legend and her husband, two-time NBA champion Jrue Holiday, are investing in the team through the Holiday Family Trust.`\
+https://nytimes.com/athletic/6303078/2025/04/23/lauren-holiday-nwsl-team-ownership-north-carolina-courage/
+
 **Trump Signs Executive Order Targeting College Accreditors**\
 `It was the latest move by President Trump in his effort to shift the ideological tilt of the higher education system as he battles elite universities.`\
 https://nytimes.com/2025/04/23/us/politics/trump-executive-order-university-accreditors.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/23/nyregion/barnard-faculty-eeoc-text-jewish.html
 **Judge says she will deny NCAA settlement if roster limits are not adjusted**\
 `Judge Claudia Wilken raised concerns about roster limits replacing scholarship limits as part of the settlement agreement.`\
 https://nytimes.com/athletic/6303220/2025/04/23/judge-will-deny-ncaa-settlement-if-roster-limits-not-adjusted/
-
-**Celtics star Jayson Tatum out for Game 2 vs. Magic with wrist injury**\
-`Celtics coach Joe Mazzulla said Tatum will be considered “day to day” with his wrist injury moving forward.`\
-https://nytimes.com/athletic/6303197/2025/04/23/celtics-jayson-tatum-out-for-game-2/
 
