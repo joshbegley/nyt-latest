@@ -1,3 +1,7 @@
+**Members of Congress Visit Graduate Students Being Held in Louisiana**\
+`Five Democrats met with Mahmoud Khalil and Rumeysa Ozturk, who face deportation by the Trump administration.`\
+https://nytimes.com/2025/04/22/us/politics/mahmoud-khalil-rumeysa-ozturk-democrats.html
+
 **U.S. Says Tren de Aragua Charges Will ‘Devastate’ Its Infrastructure**\
 `Federal prosecutors charged six members of the Venezuelan gang and 21 members of a violent splinter group.`\
 https://nytimes.com/2025/04/22/nyregion/federal-tren-de-aragua-charges.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/22/us/north-carolina-supreme-court-race-explainer.ht
 **Trump will not target nonprofits in an executive order, the White House says.**\
 `By Theodore Schleifer`\
 https://nytimes.com/live/2025/04/22/us/trump-administration-news/trump-will-not-target-nonprofits-in-an-executive-order-the-white-house-says
-
-**Pelicans exec Joe Dumars says he has 'no edicts' to trade Zion Williamson**\
-`Williamson had another injury-plagued season amidst a dreary 21-win campaign in New Orleans, the worst by the franchise in 20 years.`\
-https://nytimes.com/athletic/6300342/2025/04/22/pelicans-joe-dumars-zion-williamson/
 
