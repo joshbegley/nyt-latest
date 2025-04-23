@@ -1,3 +1,11 @@
+**Lowetide: What's defined the recent Oilers-Kings playoff series?**\
+`Here are some memorable moments from the last three Edmonton vs. L.A. series, with a hint of what's to come.`\
+https://nytimes.com/athletic/6299165/2025/04/23/oilers-kings-playoff-series-history/
+
+**American executive Stillitano to become president of Italian team Spezia**\
+`Stilltiano was previously the general manager of the New York/New Jersey MetroStars and has worked most recently as a soccer events promoter`\
+https://nytimes.com/athletic/6300769/2025/04/23/charlie-stillitano-spezia-takeover/
+
 **U.S. Calls for Sweeping Reforms to I.M.F. and World Bank**\
 `Treasury Secretary Scott Bessent argued in a speech that the multilateral economic institutions have veered away from their missions.`\
 https://nytimes.com/2025/04/23/business/us-calls-for-sweeping-reforms-to-imf-and-world-bank.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6301187/2025/04/23/wild-kaprizov-boldy-hartman-gold
 **Landen Roupp, Tyler Anderson and more fantasy baseball targets with a dominating pitch**\
 `Michael Salfino looks at an oft-available starter and reliever who have a bread-and-butter pitch that could lead them to bigger things.`\
 https://nytimes.com/athletic/6299942/2025/04/23/fantasy-baseball-standout-pitcher-targets-landen-roupp/
-
-**How to Watch the Funeral of Pope Francis**\
-`World leaders and the Catholic faithful from around the globe will attend the funeral on Saturday. Here’s how to watch it and what to expect.`\
-https://nytimes.com/2025/04/23/world/europe/pope-francis-funeral-when-time-watch.html
-
-**Golden Knights need Jack Eichel, Mark Stone to step up as Wild's stars shine**\
-`Vegas' two biggest stars have yet to record a point through the first two games of Round 1. `\
-https://nytimes.com/athletic/6301163/2025/04/23/golden-knights-eichel-stone-wild-nhl-playoffs/
 
