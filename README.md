@@ -1,3 +1,7 @@
+**NFL Draft best bets: 7 predictions for the first round**\
+`Austin Mock has seven bets lined up for Thursday's NFL Draft. Will Ashton Jeanty fall outside the first six picks?`\
+https://nytimes.com/athletic/6302889/2025/04/23/nfl-draft-best-bets-jeanty/
+
 **An Artist Subverting Propaganda Through Large-Scale Sculptures**\
 `Sandra Poulson discusses Louise Bourgeois, Angolan humor and cheap wood.`\
 https://nytimes.com/2025/04/23/t-magazine/sandra-poulson-art-moma-ps1.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/23/briefing/us-ukraine-peace-plan-new-york-city-mayo
 **How Safe Are Helicopter Sightseeing Tours?**\
 `The F.A.A. allows many of these popular flights to operate under less stringent rules than other commercial aviation, opening the door to dangers like pilot fatigue.`\
 https://nytimes.com/2025/04/23/travel/helicopter-sightseeing-tours-regulations-safety.html
-
-**How one U.S. host city is preparing for the 2026 World Cup**\
-`Recent experience staging major events puts many of the key infrastructure pieces in place for 2026 World Cup host Atlanta.`\
-https://nytimes.com/athletic/6302777/2025/04/23/atlanta-2026-world-cup-host-usa-preparation-fifa/
 
