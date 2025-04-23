@@ -1,3 +1,7 @@
+**Jordan Cracks Down on Muslim Brotherhood**\
+`The Arab monarchy had already taken steps toward disbanding the Islamist group in a 2020 court decision, but said it would now move to completely ban its activities.`\
+https://nytimes.com/2025/04/23/world/middleeast/jordan-muslim-brotherhood.html
+
 **WATCH: The 'Scoop City' NFL Draft Preview live show: Giants, Sanders, Ward and more**\
 `NFL insider Dianna Russini and former NFL QB Chase Daniel discuss the latest draft developments.`\
 https://nytimes.com/athletic/6301823/2025/04/23/nfl-draft-live-show-sanders-ward-hunter-video/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/23/weather/rain-flooding-storms-new-orleans.html
 **Kirk Cousins could be targeted by Browns, Steelers, Vikings in potential trade**\
 `The Falcons are moving forward with Michael Penix Jr. as their starter, and Cousins has told the team he would rather play somewhere else.`\
 https://nytimes.com/athletic/6301944/2025/04/23/kirk-cousins-falcons-trade-calls/
-
-**Tariffs on China Aren’t Likely to Rescue Battered U.S. P.P.E. Industry**\
-`The few domestic companies that still make protective gear for health care workers have clamored for federal intervention. But they worry President Trump’s trade war with China won’t help.`\
-https://nytimes.com/2025/04/23/health/china-tariffs-ppe-health-care-workers.html
 
