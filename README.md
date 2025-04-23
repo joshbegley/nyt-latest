@@ -1,5 +1,5 @@
 **Istanbul Residents Flood Streets After Powerful Earthquake**\
-`The epicenter of the magnitude 6.2 earthquake was in the Sea of Marmara, which connects the Mediterranean and the Black Sea, some 25 miles southwest of Istanbul. Turkish emergency services reported no immediate major damage or casualties.`\
+`According to an initial assessment by the U.`\
 https://nytimes.com/video/world/middleeast/100000010125776/istanbul-turkey-earthquake.html
 
 **Islanders president and GM candidates: Who could replace Lou Lamoriello?**\

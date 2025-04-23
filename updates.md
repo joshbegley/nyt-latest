@@ -1,3 +1,16 @@
+**Istanbul Residents Flood Streets After Powerful Earthquake**\
+`The epicenter of the magnitude 6.2 earthquake was in the Sea of Marmara, which connects the Mediterranean and the Black Sea, some 25 miles southwest of Istanbul. Turkish emergency services reported no immediate major damage or casualties.`\
+https://nytimes.com/video/world/middleeast/100000010125776/istanbul-turkey-earthquake.html
+
+**Islanders president and GM candidates: Who could replace Lou Lamoriello?**\
+`Here are 16 candidates of varying degrees of experience who could fit what the Islanders are looking for.`\
+https://nytimes.com/athletic/6300441/2025/04/23/islanders-lou-lamoriello-president-gm-candidates/
+
+**Amen Thompson can be counterpunch Rockets need vs. Warriors in Game 2**\
+`Putting the ball in Thompson's hands and encouraging him to attack the core of the Warriors' defense is intriguing.
+`\
+https://nytimes.com/athletic/6299421/2025/04/23/rockets-warriors-game-2-amen-thompson/
+
 **Amen Thompson can be counterpunch Rockets need vs. Warriors in Game 2**\
 `Putting the ball in Thompson's hands and encouraging him to attack the core of the Warriors' defense is intriguing.
 `\
