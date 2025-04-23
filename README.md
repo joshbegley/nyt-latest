@@ -1,3 +1,7 @@
+**A Roman Gladiator and a Lion Met in Combat. Only One Walked Away.**\
+`A discovery in an English garden led to the first direct evidence that man fought beast to entertain the subjects of the Roman Empire.`\
+https://nytimes.com/2025/04/23/science/lion-gladiator-romans-bones.html
+
 **Bruins GM Don Sweeney outlines plan for active offseason and prompt turnaround: ‘Every mechanism possible’**\
 `“The year we had was a huge disappointment,” team president Cam Neely said on Wednesday. Sweeney's job in fixing that is a big one.`\
 https://nytimes.com/athletic/6302408/2025/04/23/bruins-don-sweeney-offseason-plans/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/23/business/britain-us-trade-deal.html
 **The Windup: A fresh layer of Angels dysfunction**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6300857/2025/04/23/angles-getaway-night-game-the-windup/
-
-**A Perfect Day in a Gentle Meadow Is Shattered by Bloody Carnage**\
-`Victims and eyewitnesses described scenes of chaos and horror as militants killed 26 people in Kashmir as families, couples and friends took in a picturesque valley.`\
-https://nytimes.com/2025/04/23/world/asia/kashmir-pahalgam-attack-victims.html
 
