@@ -1,3 +1,15 @@
+**Olympic gold medalist Lauren Holiday joins NWSL team ownership group**\
+`The USWNT legend and her husband, two-time NBA champion Jrue Holiday, are investing in the team through the Holiday Family Trust.`\
+https://nytimes.com/athletic/6303078/2025/04/23/lauren-holiday-nwsl-team-ownership-north-carolina-courage/
+
+**Trump Signs Executive Order Targeting College Accreditors**\
+`It was the latest move by President Trump in his effort to shift the ideological tilt of the higher education system as he battles elite universities.`\
+https://nytimes.com/2025/04/23/us/politics/trump-executive-order-university-accreditors.html
+
+**Notre Dame transfer quarterback Steve Angeli signs with Syracuse**\
+`Angeli, who played in 21 games in his Notre Dame career, will be expected to contended for the starting role with the Orange. `\
+https://nytimes.com/athletic/6303270/2025/04/23/steve-angeli-syracuse-quarterback-notre-dame/
+
 **On Major Economic Decisions, Trump Blinks, and Then Blinks Again**\
 `President Trump has said his punishing tariffs would force companies to build factories in the United States. But it is far from clear that they will have the effects he predicted.`\
 https://nytimes.com/2025/04/23/us/politics/trump-tariffs-economy.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/23/nyregion/barnard-faculty-eeoc-text-jewish.html
 **Judge says she will deny NCAA settlement if roster limits are not adjusted**\
 `Judge Claudia Wilken raised concerns about roster limits replacing scholarship limits as part of the settlement agreement.`\
 https://nytimes.com/athletic/6303220/2025/04/23/judge-will-deny-ncaa-settlement-if-roster-limits-not-adjusted/
-
-**Celtics star Jayson Tatum out for Game 2 vs. Magic with wrist injury**\
-`Celtics coach Joe Mazzulla said Tatum will be considered “day to day” with his wrist injury moving forward.`\
-https://nytimes.com/athletic/6303197/2025/04/23/celtics-jayson-tatum-out-for-game-2/
-
-**NFL Draft best bets: 7 predictions for the first round**\
-`Austin Mock has seven bets lined up for Thursday's NFL Draft. Will Ashton Jeanty fall outside the first six picks?`\
-https://nytimes.com/athletic/6302889/2025/04/23/nfl-draft-best-bets-jeanty/
-
-**An Artist Subverting Propaganda Through Large-Scale Sculptures**\
-`Sandra Poulson discusses Louise Bourgeois, Angolan humor and cheap wood.`\
-https://nytimes.com/2025/04/23/t-magazine/sandra-poulson-art-moma-ps1.html
 
