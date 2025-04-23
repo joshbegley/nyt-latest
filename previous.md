@@ -1,3 +1,15 @@
+**Leafs salvage win in Game 2 with Max Domi OT winner: Takeaways**\
+`Morgan Rielly and John Tavares scored first-period goals and Max Domi sent Scotiabank Arena into a frenzy with his overtime winner.`\
+https://nytimes.com/athletic/6300291/2025/04/22/maple-leafs-senators-game-2-nhl-playoffs/
+
+**‘Andor’ Season 2 Premiere Recap: Rebel Rebel**\
+`The “Star Wars” series, back for its final season, shows how a revolution takes hold and how even in times of radical change, people have to keep living their lives.`\
+https://nytimes.com/2025/04/22/arts/television/andor-season-2-recap.html
+
+**Travis Hunter's father receives permission to attend 2025 NFL Draft**\
+`Hunter's father is serving probation and was not able to attend the Heisman Trophy presentation where his son received the award.`\
+https://nytimes.com/athletic/6300690/2025/04/22/travis-hunter-father-2025-nfl-draft/
+
 **NBA playoff takeaways: Thunder dominate Grizzlies; Pacers edge Bucks**\
 `The Thunder and Pacers took 2-0 leads in their series against the Grizzlies and Bucks.`\
 https://nytimes.com/athletic/6300469/2025/04/22/nba-playoff-bucks-pacers-thunder-grizzlies-timberwolves-lakers-score-takeaways/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/22/nyregion/wildfire-new-jersey-ocean-county.html
 **Phillies' Cristopher Sánchez leaves game with left forearm soreness**\
 `The first pitch Sánchez threw Tuesday night registered at 93.7 mph.`\
 https://nytimes.com/athletic/6300502/2025/04/22/phillies-pitcher-cristopher-sanchez-leaves-game-left-forearm-soreness/
-
-**Devils put up a better effort, but Hurricanes still too much in Game 2: Takeaways**\
-`New Jersey put forth a respectable effort given a short-handed roster and stingy opponent, but Carolina took a 2-0 series lead.`\
-https://nytimes.com/athletic/6300475/2025/04/22/devils-hurricanes-game-2-takeaways-nhl-playoffs/
-
-**Kennedy Declares ‘Sugar Is Poison’ While Announcing Ban on Food Dyes**\
-`The health secretary is ratcheting up his campaign against the food industry.`\
-https://nytimes.com/2025/04/22/us/politics/rfk-jr-food-dye-ban-sugar.html
-
-**Mike Patrick, longtime college sports and NFL broadcaster, dies at 80**\
-`Mike Patrick, the longtime sports broadcaster whose varied career included calling the first regular-season NFL game ever broadcast on ESPN, died on Sunday, according to a report by ESPN.`\
-https://nytimes.com/athletic/6300303/2025/04/22/mike-patrick-college-nfl-broadcaster-death/
 

@@ -1,3 +1,7 @@
+**Climate Activists Interrupt New York City Ballet Performance**\
+`Protesters interrupted an all-Balanchine program on the company’s spring season opening night, which coincided this year with Earth Day.`\
+https://nytimes.com/2025/04/22/arts/dance/nyc-ballet-climate-activists.html
+
 **Leafs salvage win in Game 2 with Max Domi OT winner: Takeaways**\
 `Morgan Rielly and John Tavares scored first-period goals and Max Domi sent Scotiabank Arena into a frenzy with his overtime winner.`\
 https://nytimes.com/athletic/6300291/2025/04/22/maple-leafs-senators-game-2-nhl-playoffs/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6300291/2025/04/22/maple-leafs-senators-game-2-nhl-
 https://nytimes.com/2025/04/22/arts/television/andor-season-2-recap.html
 
 **Travis Hunter's father receives permission to attend 2025 NFL Draft**\
-`Hunter's father is serving probation and was not able to attend the Heisman Trophy presentation where his son received the award.`\
+`Hunter's father is serving probation and could not attend the Heisman Trophy presentation where his son received the award.`\
 https://nytimes.com/athletic/6300690/2025/04/22/travis-hunter-father-2025-nfl-draft/
 
 **NBA playoff takeaways: Thunder dominate Grizzlies; Pacers edge Bucks**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/22/nyregion/federal-tren-de-aragua-charges.html
 **Wildfire Burns in 3,200 Acres of New Jersey Forest Area**\
 `The fire in the Pine Barrens led to the evacuation of 3,000 residents and the shutdown of a stretch of the Garden State Parkway.`\
 https://nytimes.com/2025/04/22/nyregion/wildfire-new-jersey-ocean-county.html
-
-**Phillies' Cristopher Sánchez leaves game with left forearm soreness**\
-`The first pitch Sánchez threw Tuesday night registered at 93.7 mph.`\
-https://nytimes.com/athletic/6300502/2025/04/22/phillies-pitcher-cristopher-sanchez-leaves-game-left-forearm-soreness/
 

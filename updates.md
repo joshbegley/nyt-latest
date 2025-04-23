@@ -1,3 +1,15 @@
+**Leafs salvage win in Game 2 with Max Domi OT winner: Takeaways**\
+`Morgan Rielly and John Tavares scored first-period goals and Max Domi sent Scotiabank Arena into a frenzy with his overtime winner.`\
+https://nytimes.com/athletic/6300291/2025/04/22/maple-leafs-senators-game-2-nhl-playoffs/
+
+**‘Andor’ Season 2 Premiere Recap: Rebel Rebel**\
+`The “Star Wars” series, back for its final season, shows how a revolution takes hold and how even in times of radical change, people have to keep living their lives.`\
+https://nytimes.com/2025/04/22/arts/television/andor-season-2-recap.html
+
+**Travis Hunter's father receives permission to attend 2025 NFL Draft**\
+`Hunter's father is serving probation and was not able to attend the Heisman Trophy presentation where his son received the award.`\
+https://nytimes.com/athletic/6300690/2025/04/22/travis-hunter-father-2025-nfl-draft/
+
 **Devils put up a better effort, but Hurricanes still too much in Game 2: Takeaways**\
 `New Jersey put forth a respectable effort given a short-handed roster and stingy opponent, but Carolina took a 2-0 series lead.`\
 https://nytimes.com/athletic/6300475/2025/04/22/devils-hurricanes-game-2-takeaways-nhl-playoffs/
