@@ -1,3 +1,15 @@
+**Why are some NHL playoff games being called from an off-site broadcast studio?**\
+`Three more first-round playoff games on Turner Sports networks are scheduled to be called from a studio in Atlanta.`\
+https://nytimes.com/athletic/6302495/2025/04/23/nhl-playoff-broadcast-studio/
+
+**Museum Told to Surrender Schiele Drawing to Heirs of Man Killed by Nazis**\
+`A New York judge found that the Art Institute of Chicago’s drawing by Egon Schiele had been looted from an Austrian Jew who died in a concentration camp.`\
+https://nytimes.com/2025/04/23/arts/design/egon-schiele-drawing-art-institute-chicago.html
+
+**Blue Jackets coach Dean Evason will lead Team Canada at World Championship**\
+`The 60-year-old native of Flin Flon, Manitoba, served as an assistant coach for Team Canada that finished fourth in last year's tournament.`\
+https://nytimes.com/athletic/6302526/2025/04/23/canada-dean-evason-world-championships/
+
 **Scoop City: Risers and fallers before the draft begins**\
 `Our final beat reporter mock draft, an update on the Kirk Cousins situation and how teams are trending before the draft begins.`\
 https://nytimes.com/athletic/6302592/2025/04/23/nfl-risers-fallers-win-totals-2025-scoop-city/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6302228/2025/04/23/maple-leafs-lineup-game-3-senato
 **Dominik Hasek says he received death threats from former Russian president**\
 `Hasek, a native of Czechia, has been a vocal critic of Russia’s invasion of Ukraine since it began.`\
 https://nytimes.com/athletic/6302250/2025/04/23/dominik-hasek-russia-threats-medvedev/
-
-**A Roman Gladiator and a Lion Met in Combat. Only One Walked Away.**\
-`A discovery in an English garden led to the first direct evidence that man fought beast to entertain the subjects of the Roman Empire.`\
-https://nytimes.com/2025/04/23/science/lion-gladiator-romans-bones.html
-
-**Bruins GM Don Sweeney outlines plan for active offseason and prompt turnaround: ‘Every mechanism possible’**\
-`“The year we had was a huge disappointment,” team president Cam Neely said on Wednesday. Sweeney's job in fixing that is a big one.`\
-https://nytimes.com/athletic/6302408/2025/04/23/bruins-don-sweeney-offseason-plans/
-
-**Arsenal in talks to extend Thomas Partey's contract**\
-`The 31-year-old's current terms expire this summer and that would enable him to leave as a free agent if a deal cannot be struck.`\
-https://nytimes.com/athletic/6302218/2025/04/23/thomas-partey-arsenal-contract-new/
 

@@ -1,3 +1,11 @@
+**Scoop City: Risers and fallers before the draft begins**\
+`Our final beat reporter mock draft, an update on the Kirk Cousins situation and how teams are trending before the draft begins.`\
+https://nytimes.com/athletic/6302592/2025/04/23/nfl-risers-fallers-win-totals-2025-scoop-city/
+
+**Motivated by Super Bowl loss, Patrick Mahomes seeks explosive Chiefs passing attack**\
+`With the Chiefs' offseason program underway, Mahomes talked about his "bad taste" from the Super Bowl LIX loss and his new look.`\
+https://nytimes.com/athletic/6302440/2025/04/23/patrick-mahomes-motivation-super-bowl-loss/
+
 **Crown delivers opening remarks in Hockey Canada trial: 'They just did what they wanted'**\
 `Crown attorney Heather Donkers made opening statements on Wednesday in Ontario Superior Court in the Hockey Canada sexual assault trial.`\
 https://nytimes.com/athletic/6300467/2025/04/23/hockey-canada-trial-opening-remarks/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6302408/2025/04/23/bruins-don-sweeney-offseason-pla
 **Arsenal in talks to extend Thomas Partey's contract**\
 `The 31-year-old's current terms expire this summer and that would enable him to leave as a free agent if a deal cannot be struck.`\
 https://nytimes.com/athletic/6302218/2025/04/23/thomas-partey-arsenal-contract-new/
-
-**Spain, a NATO member, increases military spending after years of resistance.**\
-`By Lynsey Chutel and José Bautista`\
-https://nytimes.com/live/2025/04/23/us/trump-news/spain-a-nato-member-increases-military-spending-after-years-of-resistance
-
-**Richard Branson Criticizes Trump’s ‘Erratic’ Tariff Policies**\
-`The British entrepreneur said the U.S. government’s unpredictable tariffs had “financially done a lot of harm” and driven the world to “the verge of a complete meltdown two weeks ago.”`\
-https://nytimes.com/2025/04/23/us/politics/richard-branson-trump-tariff-policies.html
 
