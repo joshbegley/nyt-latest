@@ -1,3 +1,7 @@
+**Head to MLS or remain in the Premier League: What should Kevin De Bruyne do next?**\
+`The chance to sign one of modern football's great creators is exciting several clubs. But where would the Belgian fit best?`\
+https://nytimes.com/athletic/6299189/2025/04/23/kevin-de-bruyne-transfer-options/
+
 **Catholics Expected a Revolution from Francis, Just Not the One He Gave Them**\
 `Liberals hoped he’d ordain women or allow gay marriage. Conservatives thought he’d tear up Church doctrine. But his papacy favored debate over radical action.`\
 https://nytimes.com/2025/04/23/world/europe/pope-francis-catholic-church-legacy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/22/theater/stranger-things-first-shadow-review-broad
 **Quote of the Day: He Explored Space Travel’s Mysteries, and Left One of His Own**\
 `Quotation of the Day for Wednesday, April 23, 2025.`\
 https://nytimes.com/2025/04/22/pageoneplus/quote-of-the-day-he-explored-space-travels-mysteries-and-left-one-of-his-own.html
-
-**Brayan Bello returns for the Red Sox with gritty start against dangerous Seattle offense**\
-`Bello had to work out of trouble but held a red-hot Mariners offense to one run on four hits in five innings in his season debut.`\
-https://nytimes.com/athletic/6300809/2025/04/22/red-sox-brayan-bello-season-debut/
 
