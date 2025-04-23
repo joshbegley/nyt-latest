@@ -1,41 +1,40 @@
-**Mark Vientos' smarter approach sets tone as Mets topple Phillies: 'Really good at-bat'**\
-`Vientos’ numbers against fastballs are off to a slow start, but below the surface he's maturing as a hitter. `\
-https://nytimes.com/athletic/6300803/2025/04/22/mets-mark-vientos-mlb-fastballs/
+**Catholics Expected a Revolution from Francis, Just Not the One He Gave Them**\
+`Liberals hoped he’d ordain women or allow gay marriage. Conservatives thought he’d tear up Church doctrine. But his papacy favored debate over radical action.`\
+https://nytimes.com/2025/04/23/world/europe/pope-francis-catholic-church-legacy.html
 
-**Markets Gain After Trump Says He Has No Plans to Oust Fed Chief**\
-`Remarks by President Trump and his Treasury secretary fueled a rebound in global stocks, extending a surge that started on Wall Street.`\
-https://nytimes.com/2025/04/22/business/trump-tariff-stocks.html
+**Almost Half of Americans Breathe Unhealthy Air, Report Finds**\
+`Weakening or rolling back longstanding environmental regulations would worsen the problem, the American Lung Association assessment says.`\
+https://nytimes.com/2025/04/23/climate/american-lung-association-air-report.html
 
-**The People Helping Shape the Future of Medicine**\
-`Behind every medical advancement are the dedicated individuals who make clinical trials possible.`\
-https://nytimes.com/paidpost/regeneron-pharmaceuticals/regeneron-pharmaceuticals-whats-your-legacy/the-people-helping-shape-the-future-of-medicine.html
+**Birthrates Languish in Record Lows, C.D.C. Reports**\
+`Despite a 1 percent increase in 2024, U.S. birthrates remained in a historic slump, a trend that worries demographers and cultural critics.`\
+https://nytimes.com/2025/04/23/health/birth-rates-cdc.html
 
-**Lorde Planned a Surprise Show in New York. Surprise: There Was No Show.**\
-`The singer summoned fans to an impromptu performance in Washington Square Park Tuesday night. She neglected to get a permit. But there was one more surprise to come.`\
-https://nytimes.com/2025/04/22/nyregion/lorde-washington-square-surprise-show.html
+**Connections: Sports Edition Coach: Hints for April 23, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6298994/2025/04/23/connections-sports-edition-hints-for-april-23-2025/
 
-**Matthew Tkachuk, Panthers steamroll Lightning in Game 1: Takeaways**\
-`Tkachuk made his triumphant return, scoring twice as the defending champs beat Tampa Bay in a feisty Battle of Florida Game 1.
-`\
-https://nytimes.com/athletic/6300010/2025/04/22/lightning-panthers-nhl-playoffs-2025-game-1-takeaways/
+**Corrections: April 23, 2025**\
+`Corrections that appeared in print on Wednesday, April 23, 2025.`\
+https://nytimes.com/2025/04/23/pageoneplus/corrections-april-23-2025.html
 
-**Trump Says Undocumented Immigrants Shouldn’t Get Trials Before Deportation**\
-`The president claimed that countries were sending their prisoners to the United States and that he needed to bypass the constitutional demands of due process to expel them quickly.`\
-https://nytimes.com/2025/04/22/us/politics/trump-undocumented-immigrants-trials-deportation.html
+**China Has an Army of Robots on Its Side in the Tariff War**\
+`Enormous investments in factory equipment and artificial intelligence are giving China an edge in car manufacturing and other industries.`\
+https://nytimes.com/2025/04/23/business/china-tariffs-robots-automation.html
 
-**Climate Activists Interrupt New York City Ballet Performance**\
-`Protesters interrupted an all-Balanchine program on the company’s spring season opening night, which coincided this year with Earth Day.`\
-https://nytimes.com/2025/04/22/arts/dance/nyc-ballet-climate-activists.html
+**Trump’s Trade War With China Puts Japan in a Tight Spot**\
+`Japan had long maintained deep economic ties with both China and the United States. Recent trade tensions may challenge that approach.`\
+https://nytimes.com/2025/04/23/business/trump-tariffs-japan-china.html
 
-**Leafs salvage win in Game 2 with Max Domi OT winner: 5 takeaways**\
-`Morgan Rielly and John Tavares scored first-period goals and Max Domi sent Scotiabank Arena into a frenzy with his overtime winner.`\
-https://nytimes.com/athletic/6300291/2025/04/22/maple-leafs-senators-game-2-nhl-playoffs/
+**‘Stranger Things: The First Shadow’ Review: An Origin Story for the Stage**\
+`This Broadway production delivers lots of spectacle as it winds back to the teenage years of Henry Creel, an antagonist from the Netflix series.`\
+https://nytimes.com/2025/04/22/theater/stranger-things-first-shadow-review-broadway.html
 
-**‘Andor’ Season 2 Premiere Recap: Rebel Rebel**\
-`The “Star Wars” series, back for its final season, shows how a revolution takes hold and how even in times of radical change, people have to keep living their lives.`\
-https://nytimes.com/2025/04/22/arts/television/andor-season-2-recap.html
+**Quote of the Day: He Explored Space Travel’s Mysteries, and Left One of His Own**\
+`Quotation of the Day for Wednesday, April 23, 2025.`\
+https://nytimes.com/2025/04/22/pageoneplus/quote-of-the-day-he-explored-space-travels-mysteries-and-left-one-of-his-own.html
 
-**Travis Hunter's father receives permission to attend 2025 NFL Draft**\
-`Hunter's father is serving probation and could not attend the Heisman Trophy presentation where his son received the award.`\
-https://nytimes.com/athletic/6300690/2025/04/22/travis-hunter-father-2025-nfl-draft/
+**Brayan Bello returns for the Red Sox with gritty start against dangerous Seattle offense**\
+`Bello had to work out of trouble but held a red-hot Mariners offense to one run on four hits in five innings in his season debut.`\
+https://nytimes.com/athletic/6300809/2025/04/22/red-sox-brayan-bello-season-debut/
 
