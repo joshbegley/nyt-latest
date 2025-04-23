@@ -1,3 +1,7 @@
+**Crown delivers opening remarks in Hockey Canada trial: 'They just did what they wanted'**\
+`Crown attorney Heather Donkers made opening statements on Wednesday in Ontario Superior Court in the Hockey Canada sexual assault trial.`\
+https://nytimes.com/athletic/6300467/2025/04/23/hockey-canada-trial-opening-remarks/
+
 **What’s in Our Queue? ‘Paradise’ and More**\
 `Text by Mihir Zaveri`\
 https://nytimes.com/card/2025/04/23/arts/editors-recommendations-paradise
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/04/23/us/trump-news/spain-a-nato-member-increases-
 **Richard Branson Criticizes Trump’s ‘Erratic’ Tariff Policies**\
 `The British entrepreneur said the U.S. government’s unpredictable tariffs had “financially done a lot of harm” and driven the world to “the verge of a complete meltdown two weeks ago.”`\
 https://nytimes.com/2025/04/23/us/politics/richard-branson-trump-tariff-policies.html
-
-**Review: From Kyle Abraham, Saxophones and Sculptural Shapes**\
-`On program of New York premieres at the Joyce Theater, Abraham’s contribution stands out and so do his dancers.`\
-https://nytimes.com/2025/04/23/arts/dance/review-kyle-abraham-aim.html
 
