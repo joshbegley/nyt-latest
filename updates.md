@@ -1,3 +1,7 @@
+**Devils put up a better effort, but Hurricanes still too much in Game 2**\
+`New Jersey put forth a respectable effort given a shorthanded roster and a stingy opponent, but it wasn't enough.`\
+https://nytimes.com/athletic/6300475/2025/04/22/devils-hurricanes-game-2-takeaways-nhl-playoffs/
+
 **Kennedy Declares ‘Sugar Is Poison’ While Announcing Ban on Food Dyes**\
 `The health secretary is ratcheting up his campaign against the food industry.`\
 https://nytimes.com/2025/04/22/us/politics/rfk-jr-food-dye-ban-sugar.html
