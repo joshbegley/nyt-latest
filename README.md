@@ -1,4 +1,8 @@
-**Burke to join Union Berlin after Bremen contract expires**\
+**Syria’s Jihadist-Turned-President Seeks New Allies**\
+`In an interview with The New York Times, President Ahmed al-Shara urged the United States to lift sanctions and alluded to the possibility of future military support from Russia and Turkey.`\
+https://nytimes.com/2025/04/23/world/middleeast/syria-president-al-shara-interview.html
+
+**Burke set to join Union Berlin after Bremen contract expires**\
 `The Scottish forward has been at Bremen since 2022 and 2024-25 has been his best season in German football, scoring six goals.`\
 https://nytimes.com/athletic/6301207/2025/04/23/oliver-burke-union-berlin-transfer/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/23/technology/meta-trial-silicon-valley-social-apps.
 **The Very American Roots of Trumpism**\
 `The historian Steven Hahn puts Trumpism in the context of America’s long history of illiberalism.`\
 https://nytimes.com/2025/04/23/opinion/ezra-klein-podcast-steven-hahn.html
-
-**What Do You Believe In?**\
-`A new series explores how people experience religion and spirituality now. What does belief look like for you?`\
-https://nytimes.com/2025/04/23/learning/what-do-you-believe-in.html
 
