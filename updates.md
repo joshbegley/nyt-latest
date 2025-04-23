@@ -1,3 +1,12 @@
+**Wildfire Rages in Southern New Jersey**\
+`Thick plumes of smoke rose into the sky as flames engulfed the heavily forested Pine Barrens section of southern New Jersey.`\
+https://nytimes.com/video/us/100000010125408/wildfire-new-jersey-ocean-county.html
+
+**Dortmund’s Guirassy leads Champions League top scorer odds, Dembélé lurks**\
+`Brett Koremenos has a look at the Champions League top scorer odds ahead of the semi-finals.
+`\
+https://nytimes.com/athletic/6299264/2025/04/23/champions-league-top-scorer-odds-betting-tips/
+
 **Dortmund’s Guirassy leads Champions League top scorer odds, Dembélé lurks**\
 `Brett Koremenos has a look at the Champions League top scorer odds ahead of the semi-finals.
 `\
