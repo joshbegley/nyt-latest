@@ -1,3 +1,7 @@
+**NFL Draft best bets: 7 predictions for the first round**\
+`Austin Mock has seven bets lined up for Thursday's NFL Draft. Will Ashton Jeanty fall outside the first six picks?`\
+https://nytimes.com/athletic/6302889/2025/04/23/nfl-draft-best-bets-jeanty/
+
 **An Artist Subverting Propaganda Through Large-Scale Sculptures**\
 `Sandra Poulson discusses Louise Bourgeois, Angolan humor and cheap wood.`\
 https://nytimes.com/2025/04/23/t-magazine/sandra-poulson-art-moma-ps1.html
