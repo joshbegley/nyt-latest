@@ -1,3 +1,7 @@
+**Elon Musk Warns Rare Earth Magnet Shortage May Delay Tesla’s Robots**\
+`China’s halt this month on exports of magnets containing heavy rare earth metals has affected Tesla’s plans to manufacture Optimus robots.`\
+https://nytimes.com/2025/04/23/business/elon-musk-tesla-robots.html
+
 **Syria’s New President Talked to The New York Times. Here Are 3 Takeaways.**\
 `Ahmed al-Shara said his government was discussing military support with Russia and Turkey, appealed for a lifting of sanctions and suggested foreign fighters could earn Syrian citizenship.`\
 https://nytimes.com/2025/04/23/world/middleeast/syria-president-nyt-interview-takeaways.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6300582/2025/04/23/cincinnati-bengals-nfl-draft-tra
 **The New York Times International Edition in Print for Thursday, April 24, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/04/23/todays-new-york-times-international-edition
-
-**What to Know About the Tensions Over Kashmir**\
-`A terrorist attack in the disputed territory in 2019 brought India and Pakistan to the verge of war. There are fears Tuesday’s violence could do the same.`\
-https://nytimes.com/2025/04/23/world/asia/kashmir-terrorist-attack-explainer.html
 

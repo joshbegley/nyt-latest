@@ -1,3 +1,7 @@
+**Elon Musk Warns Rare Earth Magnet Shortage May Delay Tesla’s Robots**\
+`China’s halt this month on exports of magnets containing heavy rare earth metals has affected Tesla’s plans to manufacture Optimus robots.`\
+https://nytimes.com/2025/04/23/business/elon-musk-tesla-robots.html
+
 **Syria’s New President Talked to The New York Times. Here Are 3 Takeaways.**\
 `Ahmed al-Shara said his government was discussing military support with Russia and Turkey, appealed for a lifting of sanctions and suggested foreign fighters could earn Syrian citizenship.`\
 https://nytimes.com/2025/04/23/world/middleeast/syria-president-nyt-interview-takeaways.html
