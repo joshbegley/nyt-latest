@@ -1,3 +1,7 @@
+**After Edwin Díaz leaves early, the Mets' depth picks up the team — again**\
+`The Mets’ depth is a major reason why they’ve won seven straight games, including a win over the Phillies on Wednesday for a sweep.`\
+https://nytimes.com/athletic/6303188/2025/04/23/mets-seven-wins-depth-bullpen-starling-marte/
+
 **Braves takeaways: Eli White's unforgettable homer, Alex Verdugo's impact and more**\
 `Fans in the left-field bleachers gave White a standing ovation when he returned to his position after a 434-foot blast.`\
 https://nytimes.com/athletic/6303286/2025/04/23/braves-eli-white-alex-verdugo-mlb/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6303270/2025/04/23/steve-angeli-syracuse-quarterbac
 **On Major Economic Decisions, Trump Blinks, and Then Blinks Again**\
 `President Trump has said his punishing tariffs would force companies to build factories in the United States. But it is far from clear that they will have the effects he predicted.`\
 https://nytimes.com/2025/04/23/us/politics/trump-tariffs-economy.html
-
-**5 Things Musk Accomplished With Trump**\
-`DOGE once demanded that federal employees list five accomplishments each week. Here are Elon Musk’s from his time in Washington.`\
-https://nytimes.com/2025/04/23/us/politics/elon-musk-trump-doge-tesla.html
 
