@@ -1,3 +1,7 @@
+**‘Conclave’ Streaming Numbers Jump After Pope Francis’ Death**\
+`Experts said that the 2024 film accurately portrayed the papal selection process.`\
+https://nytimes.com/2025/04/23/business/conclave-film-streaming-pope-francis.html
+
 **Arthur Fleischer Jr., Prominent Lawyer in Corporate Takeovers, Dies at 92**\
 `He was a top deal maker in the world of mergers and acquisitions, during the 1980s takeover boom and beyond. He also had a keen interest in art.`\
 https://nytimes.com/2025/04/23/business/dealbook/arthur-fleischer-dead.html

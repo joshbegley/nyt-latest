@@ -6,7 +6,7 @@ https://nytimes.com/2025/04/23/business/dealbook/arthur-fleischer-dead.html
 `The players, sets and autographs to target for the 2025 draft class `\
 https://nytimes.com/athletic/6302406/2025/04/23/nfl-draft-rookie-cards-ward-sanders-hunter/
 
-**‘Conclave’ Streaming Numbers Jump After Pope Francis’s Death**\
+**‘Conclave’ Streaming Numbers Jump After Pope Francis’ Death**\
 `Experts said that the 2024 film accurately portrayed the papal selection process.`\
 https://nytimes.com/2025/04/23/business/conclave-film-streaming-pope-francis.html
 
