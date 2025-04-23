@@ -1,3 +1,15 @@
+**Bruins GM Don Sweeney outlines plan for active offseason and prompt turnaround: ‘Every mechanism possible’**\
+`BOSTON — It is not Charlie Jacobs’ job to determine whether the 2025-26 Boston Bruins will be a playoff contender.`\
+https://nytimes.com/athletic/6302408/2025/04/23/bruins-don-sweeney-offseason-plans/
+
+**Arsenal in talks to extend Thomas Partey's contract**\
+`The 31-year-old's current terms expire this summer and that would enable him to leave as a free agent if a deal cannot be struck.`\
+https://nytimes.com/athletic/6302218/2025/04/23/thomas-partey-arsenal-contract-new/
+
+**Spain, a NATO member, increases military spending after years of resistance.**\
+`By Lynsey Chutel and José Bautista`\
+https://nytimes.com/live/2025/04/23/us/trump-news/spain-a-nato-member-increases-military-spending-after-years-of-resistance
+
 **Britain Says It Will Not Alter Standards or Rush U.S. Trade Deal**\
 `The British government is hoping to reach an agreement with the United States to soften the economic blow British businesses are facing from higher tariffs.`\
 https://nytimes.com/2025/04/23/business/britain-us-trade-deal.html
