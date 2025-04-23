@@ -1,3 +1,19 @@
+**NBA Draft early entry tracker: Rutgers freshman Ace Bailey latest entry**\
+`April 26 is the deadline for underclassmen to declare for the NBA Draft on June 25-26.`\
+https://nytimes.com/athletic/6251067/2025/04/23/nba-draft-early-entry-tracker-deadline/
+
+**Aluko says male pundits such as Wright risk blocking female broadcasters**\
+`Aluko said that men needed to be 'aware' that there were limited opportunities for women broadcasters to work in the sport.`\
+https://nytimes.com/athletic/6302455/2025/04/23/eni-aluko-ian-wright-barton-broadcast/
+
+**Solo Show**\
+``\
+https://nytimes.com/column/solo-show
+
+**Sexual abuse watchdog SafeSport fires CEO amid ongoing congressional probe**\
+`Sen. Chuck Grassley recently opened an inquiry into SafeSport’s hiring of an investigator with a long list of sex crime allegations.`\
+https://nytimes.com/athletic/6302756/2025/04/23/safesport-sexual-abuse-watchdog-fires-ceo/
+
 **A Life ‘Shattered’: A Minnesota Man Who Lost His Visa Talks About His Detainment**\
 `An Indonesian man with a student visa and an American wife thought he would soon get a green card. Now, he could get deported over a 2022 arrest.`\
 https://nytimes.com/2025/04/23/us/minnesota-student-aditya-harsono-visa.html
