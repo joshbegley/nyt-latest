@@ -1,3 +1,11 @@
+**No Power? No Problem. Nicole Scherzinger Sings With Bullhorn on Broadway.**\
+`The “Sunset Boulevard” star briefly entertained the crowd when “a technical malfunction on the sound side” forced the cancellation of a matinee performance.`\
+https://nytimes.com/2025/04/23/theater/nicole-scherzinger-sunset-boulevard-broadway.html
+
+**Physical Pistons-Knicks series fuels debate between coaches over foul calls**\
+`Knicks coach Tom Thibodeau said Jalen Brunson isn't getting the calls he deserves. But Pistons coach J.B. Bickerstaff had a response ready.`\
+https://nytimes.com/athletic/6302832/2025/04/23/pistons-knicks-debate-foul-calls/
+
 **NBA Draft early entry tracker: Rutgers freshman Ace Bailey latest entry**\
 `April 26 is the deadline for underclassmen to declare for the NBA Draft on June 25-26.`\
 https://nytimes.com/athletic/6251067/2025/04/23/nba-draft-early-entry-tracker-deadline/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/23/arts/marco-grassi-dead.html
 **Jake Guentzel’s big-game pedigree adds fuel to Lightning’s Stanley Cup chase**\
 `Guentzel, among the best postseason players of his generation, has provided Tampa Bay with an invaluable asset.`\
 https://nytimes.com/athletic/6302092/2025/04/23/lightning-panthers-jake-guentzel-nhl-playoffs/
-
-**‘Utter Chaos’: Witnesses Recall Deadly Shooting at Annual Parade**\
-`Residents of a Chicago suburb described their memories of the day and its lasting effects on their lives during a sentencing hearing for the man responsible. He was absent.`\
-https://nytimes.com/2025/04/23/us/highland-park-illinois-shooting-sentencing.html
-
-**Evander Kane to make season debut for Oilers in Game 2 vs. Kings**\
-`Kane last played for the Oilers in Game 2 of the Stanley Cup Final on June 10, 2024.`\
-https://nytimes.com/athletic/6302662/2025/04/23/evander-kane-oilers-game-2-nhl-playoffs/
 

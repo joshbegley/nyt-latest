@@ -1,3 +1,11 @@
+**No Power? No Problem. Nicole Scherzinger Sings With Bullhorn on Broadway.**\
+`The “Sunset Boulevard” star briefly entertained the crowd when “a technical malfunction on the sound side” forced the cancellation of a matinee performance.`\
+https://nytimes.com/2025/04/23/theater/nicole-scherzinger-sunset-boulevard-broadway.html
+
+**Physical Pistons-Knicks series fuels debate between coaches over foul calls**\
+`Knicks coach Tom Thibodeau said Jalen Brunson isn't getting the calls he deserves. But Pistons coach J.B. Bickerstaff had a response ready.`\
+https://nytimes.com/athletic/6302832/2025/04/23/pistons-knicks-debate-foul-calls/
+
 **Solo Show**\
 `We ask Black artists to curate a list of three treasured works that they’ve encountered or made, and to reflect on how their practice connects to a broader art lineage.`\
 https://nytimes.com/column/solo-show
