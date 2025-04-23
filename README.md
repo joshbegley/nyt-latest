@@ -1,3 +1,23 @@
+**Dodgers finally score in double digits, but let 3-run lead slip against Cubs**\
+`The dormant Dodgers offense finally got going and provided a late lead, but the pitching staff couldn't make it count.`\
+https://nytimes.com/athletic/6300939/2025/04/23/dodgers-lose-to-cubs/
+
+**Wednesday Briefing: A Downgrade in Global Growth**\
+`Plus, the next big thing from Japan.`\
+https://nytimes.com/2025/04/23/briefing/global-economy-pope-francis-ukraine-rubio.html
+
+**The New York Times in Print for Wednesday, April 23, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/23/todays-new-york-times
+
+**What Happened to the Francis Revolution?**\
+`Pope Francis proved to be far more cautious and conservative than many progressive Catholics had hoped for.`\
+https://nytimes.com/2025/04/23/opinion/pope-francis-death-legacy.html
+
+**Haliburton 'not worried' after being voted NBA's most overrated player**\
+`Pacers have a 2-0 series lead over the Bucks, where Haliburton is averaging 15.5 points, 12.0 assists and 6.0 rebounds per game.`\
+https://nytimes.com/athletic/6300950/2025/04/23/tyrese-haliburton-nba-most-overrated-player-poll/
+
 **Cardinals commit more playing time to Nolan Gorman as key double snaps 5-game skid**\
 `Gorman delivered a go-ahead three-run double in the eighth inning against the Braves.`\
 https://nytimes.com/athletic/6299786/2025/04/23/cardinals-win-nolan-gorman-braves/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6298523/2025/04/23/conor-coventry-charlton-west-ham
 **Brighton could still make Europe, but they need to halt their nosedive**\
 `The stars could still align to send Brighton into European competition next season, but Fabian Hurzeler will need to turn their form around`\
 https://nytimes.com/athletic/6298514/2025/04/23/brighton-premier-league-europe-europa-conference/
-
-**Arsenal are the kings of corners and now they have added a different element**\
-`Arsenal's new willingness to switch to short corners could give opposing teams extra problems`\
-https://nytimes.com/athletic/6298535/2025/04/23/arsenal-are-the-kings-of-corners-and-now-they-have-added-a-different-element/
-
-**Daniel Munoz, Running Man**\
-`The Crystal Palace wing-back has covered 335 kilometres this season`\
-https://nytimes.com/athletic/6285613/2025/04/23/daniel-munoz-running-man-palace/
-
-**Chelsea mailbag: Enzo Maresca's future, sporting director scrutiny and the Bridge buffet**\
-`Our correspondents answer a selection of your questions as Chelsea's pursuit of Champions League qualification enters a critical stage`\
-https://nytimes.com/athletic/6298593/2025/04/23/chelsea-maresca-eghbali-winstanley-stewart-mailbag/
-
-**Braves' streak ends on tough night for bullpen; Spencer Strider discusses latest injury**\
-`Scott Blewett pitched well in his first MLB start, but relievers let the score get out of hand: "Walks hurt throughout the whole game."`\
-https://nytimes.com/athletic/6300834/2025/04/23/braves-scott-blewett-spencer-strider/
-
-**Liverpool, Man Utd and why '20 times' is so significant**\
-`United ignored the warnings from history – both Liverpool’s and their own – and have seen their record number of league titles hauled in`\
-https://nytimes.com/athletic/6291817/2025/04/23/liverpool-manchester-united-20-league-titles-and-the-battle-to-be-englands-most-successful-club/
 
