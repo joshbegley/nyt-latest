@@ -1,3 +1,11 @@
+**How Bernardo Silva personifies Pep Guardiola's safety-first approach at Manchester City**\
+`The Portuguese veteran has come in for criticism this season, but he was the glue that held the whole performance against Villa together`\
+https://nytimes.com/athletic/6300252/2025/04/23/bernardo-silva-manchester-city-guardiola/
+
+**Kimmel Likens the Selection of a New Pope to ‘RuPaul’s Drag Race’**\
+`The late night host also described the papal conclave as determining “who will be handed the keys to the popemobile” on Tuesday.`\
+https://nytimes.com/2025/04/23/arts/television/jimmy-kimmel-pope-conclave.html
+
 **Max Domi spent months preparing for this moment with the Maple Leafs**\
 `On Tuesday night, Max Domi scored the biggest goal of his career. Here's how he got there.`\
 https://nytimes.com/athletic/6300907/2025/04/23/max-domi-maple-leafs-game-2-winner-nhl-playoffs/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6299786/2025/04/23/cardinals-win-nolan-gorman-brave
 **Byron Buxton's spectacular catch saves Twins from another late breakdown**\
 `With the Twins once again on the precipice of disaster, Buxton did his best Superman impression to save the game in the top of the ninth.`\
 https://nytimes.com/athletic/6300855/2025/04/23/twins-byron-buxton-saves-victory/
-
-**After the Wildfires, This High School Needed a Campus. It Found a Sears.**\
-`Palisades Charter High School in California has held classes online since the fire in January. On Tuesday, students gathered at a new, temporary home, a retrofitted Sears.`\
-https://nytimes.com/2025/04/23/us/palisades-high-school-sears.html
-
-**'I find it weird watching West Ham. I'll always be grateful for Fornals' help and advice'**\
-`The former academy graduate has not been back since leaving the London Stadium - and is eyeing promotion with Charlton Athletic`\
-https://nytimes.com/athletic/6298523/2025/04/23/conor-coventry-charlton-west-ham/
 

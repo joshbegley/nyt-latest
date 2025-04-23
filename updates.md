@@ -1,3 +1,11 @@
+**How Bernardo Silva personifies Pep Guardiola's safety-first approach at Manchester City**\
+`The Portuguese veteran has come in for criticism this season, but he was the glue that held the whole performance against Villa together`\
+https://nytimes.com/athletic/6300252/2025/04/23/bernardo-silva-manchester-city-guardiola/
+
+**Kimmel Likens the Selection of a New Pope to ‘RuPaul’s Drag Race’**\
+`The late night host also described the papal conclave as determining “who will be handed the keys to the popemobile” on Tuesday.`\
+https://nytimes.com/2025/04/23/arts/television/jimmy-kimmel-pope-conclave.html
+
 **Max Domi spent months preparing for this moment with the Maple Leafs**\
 `On Tuesday night, Max Domi scored the biggest goal of his career. Here's how he got there.`\
 https://nytimes.com/athletic/6300907/2025/04/23/max-domi-maple-leafs-game-2-winner-nhl-playoffs/
