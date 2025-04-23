@@ -1,3 +1,11 @@
+**The World Seems to Be Surrendering to Climate Change**\
+`The state of the climate future, Part I.`\
+https://nytimes.com/2025/04/23/opinion/climate-trump-world.html
+
+**How I Describe Myself Politically These Days**\
+`America needs to figure out how to dominate the industries of the future. Call me a “Waymo Democrat.”`\
+https://nytimes.com/2025/04/23/opinion/waymo-democrat-advanced-manufacturing.html
+
 **Why are some NHL playoff games being called from an off-site broadcast studio?**\
 `Three more first-round playoff games on Turner Sports networks are scheduled to be called from a studio in Atlanta.`\
 https://nytimes.com/athletic/6302495/2025/04/23/nhl-playoff-broadcast-studio/
