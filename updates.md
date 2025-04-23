@@ -1,3 +1,15 @@
+**Why are some NHL playoff games being called from an off-site broadcast studio?**\
+`Three more first-round playoff games on Turner Sports networks are scheduled to be called from a studio in Atlanta.`\
+https://nytimes.com/athletic/6302495/2025/04/23/nhl-playoff-broadcast-studio/
+
+**Museum Told to Surrender Schiele Drawing to Heirs of Man Killed by Nazis**\
+`A New York judge found that the Art Institute of Chicago’s drawing by Egon Schiele had been looted from an Austrian Jew who died in a concentration camp.`\
+https://nytimes.com/2025/04/23/arts/design/egon-schiele-drawing-art-institute-chicago.html
+
+**Blue Jackets coach Dean Evason will lead Team Canada at World Championship**\
+`The 60-year-old native of Flin Flon, Manitoba, served as an assistant coach for Team Canada that finished fourth in last year's tournament.`\
+https://nytimes.com/athletic/6302526/2025/04/23/canada-dean-evason-world-championships/
+
 **Scoop City: Risers and fallers before the draft begins**\
 `Our final beat reporter mock draft, an update on the Kirk Cousins situation and how teams are trending before the draft begins.`\
 https://nytimes.com/athletic/6302592/2025/04/23/nfl-risers-fallers-win-totals-2025-scoop-city/
