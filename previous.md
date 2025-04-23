@@ -1,3 +1,7 @@
+**For sale and smooth sailing: How the Vancouver Whitecaps have improbably thrived**\
+`In the wake of being put up for purchase, Vancouver has gone on a thrilling and historic Concacaf Champions Cup run and tops MLS's table`\
+https://nytimes.com/athletic/6297154/2025/04/23/vancouver-whitecaps-sale-mls-concacaf-champions-cup-semifinals-miami/
+
 **‘North of North’ Is a Warm Arctic Comedy**\
 `Set in a fictional Inuk community in Canada, this Netflix comedy shows abundant tenderness for its characters but also surprising depth and edge.`\
 https://nytimes.com/2025/04/23/arts/television/north-of-north-netflix.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/23/sports/kipyegon-kenya-female-runner-4-minute-mile
 **Club World Cup to be broadcast on Channel 5 in UK**\
 `The free-to-air channel will show 23 of the newly-expanded tournament's 63 matches live.`\
 https://nytimes.com/athletic/6301717/2025/04/23/club-world-cup-tv-channel-uk/
-
-**The New York Giants, with their first pick in the 2025 NFL Draft, select ...**\
-`The Giants entered the offseason determined to find their QB of the future. Will they find that player at No. 3?`\
-https://nytimes.com/athletic/6300874/2025/04/23/new-york-giants-nfl-draft-2025-prediction/
 

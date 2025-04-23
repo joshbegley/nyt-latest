@@ -1,3 +1,7 @@
+**For sale and smooth sailing: How the Vancouver Whitecaps have improbably thrived**\
+`In the wake of being put up for purchase, Vancouver has gone on a thrilling and historic Concacaf Champions Cup run and tops MLS's table`\
+https://nytimes.com/athletic/6297154/2025/04/23/vancouver-whitecaps-sale-mls-concacaf-champions-cup-semifinals-miami/
+
 **‘North of North’ Is a Warm Arctic Comedy**\
 `Set in a fictional Inuk community in Canada, this Netflix comedy shows abundant tenderness for its characters but also surprising depth and edge.`\
 https://nytimes.com/2025/04/23/arts/television/north-of-north-netflix.html
