@@ -1,4 +1,16 @@
-**Ukraine Cease-fire Talks in London Downgraded After Rubio Pulls Out**\
+**Syria’s New President Talked to The New York Times. Here Are 3 Takeaways.**\
+`Ahmed al-Shara said his government was discussing military support with Russia and Turkey, appealed for a lifting of sanctions and suggested foreign fighters could earn Syrian citizenship.`\
+https://nytimes.com/2025/04/23/world/middleeast/syria-president-nyt-interview-takeaways.html
+
+**Apple and Meta Are First to Be Hit by E.U. Digital Competition Law**\
+`The European Commission said the Silicon Valley companies violated the Digital Markets Act, a law meant to crimp the power of the largest tech firms.`\
+https://nytimes.com/2025/04/23/technology/apple-meta-eu-fines-competition-law.html
+
+**Playing the percentages as Browns prepare to enter 2025 NFL Draft**\
+`Breaking down the chances Cleveland will take Travis Hunter or Abdul Carter at No. 2, Jalen Milroe or Jaxson Dart at No. 33 and more. `\
+https://nytimes.com/athletic/6300211/2025/04/23/browns-2025-nfl-draft-travis-hunter-abdul-carter/
+
+**Ukraine Cease-Fire Talks in London Downgraded After Rubio Pulls Out**\
 `Planned diplomatic talks on Wednesday have been scaled back, raising new doubts about progress toward a cease-fire between Russia and Ukraine.`\
 https://nytimes.com/2025/04/23/world/europe/ukraine-cease-fire-talks-london.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/issue/todaysinyt/2025/04/23/todays-new-york-times-internatio
 **What to Know About the Tensions Over Kashmir**\
 `A terrorist attack in the disputed territory in 2019 brought India and Pakistan to the verge of war. There are fears Tuesday’s violence could do the same.`\
 https://nytimes.com/2025/04/23/world/asia/kashmir-terrorist-attack-explainer.html
-
-**Syria’s Jihadist-Turned-President Seeks New Allies**\
-`In an interview with The New York Times, President Ahmed al-Shara urged the United States to lift sanctions and alluded to the possibility of future military support from Russia and Turkey.`\
-https://nytimes.com/2025/04/23/world/middleeast/syria-president-al-shara-interview.html
-
-**Burke set to join Union Berlin after Bremen contract expires**\
-`The Scottish forward has been at Bremen since 2022 and 2024-25 has been his best season in German football, scoring six goals.`\
-https://nytimes.com/athletic/6301207/2025/04/23/oliver-burke-union-berlin-transfer/
-
-**Adrienne Adams Lands Two Major Endorsements for N.Y.C. Mayor**\
-`Ms. Adams, the City Council speaker, will receive endorsements from Letitia James, the state attorney general, and from District Council 37, the largest municipal union.`\
-https://nytimes.com/2025/04/23/nyregion/adrienne-adams-endorsements-nyc-mayor.html
 
