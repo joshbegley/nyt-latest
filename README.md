@@ -1,3 +1,7 @@
+**Markets Gain After Trump Says He Has No Plans to Oust Fed Chief**\
+`Remarks by President Trump and his Treasury secretary fueled a rebound in global stocks, extending a surge that started on Wall Street.`\
+https://nytimes.com/2025/04/22/business/trump-tariff-stocks.html
+
 **The People Helping Shape the Future of Medicine**\
 `Behind every medical advancement are the dedicated individuals who make clinical trials possible.`\
 https://nytimes.com/paidpost/regeneron-pharmaceuticals/regeneron-pharmaceuticals-whats-your-legacy/the-people-helping-shape-the-future-of-medicine.html
@@ -7,7 +11,7 @@ https://nytimes.com/paidpost/regeneron-pharmaceuticals/regeneron-pharmaceuticals
 https://nytimes.com/2025/04/22/nyregion/lorde-washington-square-surprise-show.html
 
 **Matthew Tkachuk, Panthers steamroll Lightning in Game 1: Takeaways**\
-`Tkachuk made his triumphant return in grand style, scoring twice as the defending champs beat Tampa in a feisty Battle of Florida Game 1.
+`Tkachuk made his triumphant return, scoring twice as the defending champs beat Tampa Bay in a feisty Battle of Florida Game 1.
 `\
 https://nytimes.com/athletic/6300010/2025/04/22/lightning-panthers-nhl-playoffs-2025-game-1-takeaways/
 
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6300690/2025/04/22/travis-hunter-father-2025-nfl-dr
 **NBA playoff takeaways: Thunder dominate Grizzlies; Pacers edge Bucks**\
 `The Thunder and Pacers took 2-0 leads in their series against the Grizzlies and Bucks.`\
 https://nytimes.com/athletic/6300469/2025/04/22/nba-playoff-bucks-pacers-thunder-grizzlies-timberwolves-lakers-score-takeaways/
-
-**Dress to the Nines**\
-`Brandon Koppy makes space for us.`\
-https://nytimes.com/2025/04/22/crosswords/daily-puzzle-2025-04-23.html
 
