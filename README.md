@@ -1,3 +1,7 @@
+**Lions, Kerby Joseph agree to 4-year, $86 million extension**\
+`Last season, Joseph developed into a first-team All-Pro with a knack for an elite trait patrolling as a free safety.`\
+https://nytimes.com/athletic/6303277/2025/04/23/lions-kerby-joseph-agree-to-4-year-86-million-extension-making-him-highest-paid-safety-source/
+
 **Olympic gold medalist Lauren Holiday joins NWSL team ownership group**\
 `The USWNT legend and her husband, two-time NBA champion Jrue Holiday, are investing in the team through the Holiday Family Trust.`\
 https://nytimes.com/athletic/6303078/2025/04/23/lauren-holiday-nwsl-team-ownership-north-carolina-courage/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/3497983/2025/04/23/bears-steve-mcmichael-obituary/
 **U.S. Texts Barnard Employees and Asks if They Are Jewish**\
 `A questionnaire from a federal commission also inquired about whether professors and other college staff members had been harassed.`\
 https://nytimes.com/2025/04/23/nyregion/barnard-faculty-eeoc-text-jewish.html
-
-**Judge says she will deny NCAA settlement if roster limits are not adjusted**\
-`Judge Claudia Wilken raised concerns about roster limits replacing scholarship limits as part of the settlement agreement.`\
-https://nytimes.com/athletic/6303220/2025/04/23/judge-will-deny-ncaa-settlement-if-roster-limits-not-adjusted/
 
