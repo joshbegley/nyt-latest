@@ -1,3 +1,7 @@
+**Ja Morant rediscovering his 'loud' greatness may be Grizzlies' only chance vs. OKC**\
+`Morant's cocky attitude isn’t a detriment for the Grizzlies. It’s a key ingredient in what makes them who they are.`\
+https://nytimes.com/athletic/6301097/2025/04/23/grizzlies-ja-morant-loud-greatness/
+
 **Aston Villa and Unai Emery left cursing an all too familiar sting in the tail**\
 `Only rock-bottom Southampton have conceded more stoppage-time goals this season with the late concession at the Etihad particularly damaging`\
 https://nytimes.com/athletic/6300259/2025/04/23/aston-villa-emery-city-stoppage-time/
