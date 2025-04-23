@@ -1,3 +1,15 @@
+**U.S. Says Tren de Aragua Charges Will ‘Devastate’ Its Infrastructure**\
+`Federal prosecutors charged six members of the Venezuelan gang and 21 members of a violent splinter group.`\
+https://nytimes.com/2025/04/22/nyregion/federal-tren-de-aragua-charges.html
+
+**Wildfire Burns in 3,200 Acres of New Jersey Forest Area**\
+`The fire in the Pine Barrens led to the evacuation of 3,000 residents and the shutdown of a stretch of the Garden State Parkway.`\
+https://nytimes.com/2025/04/22/nyregion/wildfire-new-jersey-ocean-county.html
+
+**Phillies' Cristopher Sánchez leaves game with left forearm soreness**\
+`The first pitch Sánchez threw Tuesday night registered at 93.7 mph.`\
+https://nytimes.com/athletic/6300502/2025/04/22/phillies-pitcher-cristopher-sanchez-leaves-game-left-forearm-soreness/
+
 **Phillies' Cristopher Sánchez leaves game with left forearm soreness**\
 `The first pitch Cristopher Sánchez threw Tuesday night registered at 93.7 mph.`\
 https://nytimes.com/athletic/6300502/2025/04/22/phillies-pitcher-cristopher-sanchez-leaves-game-left-forearm-soreness/
