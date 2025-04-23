@@ -1,3 +1,11 @@
+**Review: From Kyle Abraham, Saxophones and Sculptural Shapes**\
+`On program of New York premieres at the Joyce Theater, Abraham’s contribution stands out and so do his dancers.`\
+https://nytimes.com/2025/04/23/arts/dance/review-kyle-abraham-aim.html
+
+**'I definitely need to be better': Cody Bellinger on early struggles**\
+`Bellinger has hit .173 with two home runs, 12 RBIs and a .520 OPS through his first 21 games with the Yankees.`\
+https://nytimes.com/athletic/6302364/2025/04/23/yankees-cody-bellinger-early-struggles/
+
 **Why the Phillies haven't ordered MRI for Cristopher Sánchez after he exited with arm injury**\
 `Sánchez left Tuesday's game with left forearm soreness. The Phillies believe, for now, they have dodged a significant injury.`\
 https://nytimes.com/athletic/6302379/2025/04/23/cristopher-sanchez-phillies-injury-update/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/23/style/tiny-modern-love-stories-the-secret-about-p
 **Believing**\
 ``\
 https://nytimes.com/spotlight/believing
-
-**Chappell Roan’s Faithful Country Swerve**\
-`One of the defining pop stars of the new generation is getting frisky with a 1990s country sound, our critic says in his weekly review from the driver’s seat.`\
-https://nytimes.com/video/podcasts/100000010126116/chappell-roan-giver-review.html
-
-**McIlroy arrives at Zurich Classic after 'amazing' Masters win celebrations**\
-`McIlroy, fresh off celebrating his career Grand Slam, is in New Orleans with partner Shane Lowry to defend their title in the Zurich.`\
-https://nytimes.com/athletic/6302163/2025/04/23/rory-mcilroy-zurich-classic-masters-win/
 
