@@ -1,3 +1,7 @@
+**Mark Vientos' smarter approach sets tone as Mets topple Phillies: 'Really good at-bat'**\
+`Vientos’ numbers against fastballs are off to a slow start, but below the surface he's maturing as a hitter. `\
+https://nytimes.com/athletic/6300803/2025/04/22/mets-mark-vientos-mlb-fastballs/
+
 **Markets Gain After Trump Says He Has No Plans to Oust Fed Chief**\
 `Remarks by President Trump and his Treasury secretary fueled a rebound in global stocks, extending a surge that started on Wall Street.`\
 https://nytimes.com/2025/04/22/business/trump-tariff-stocks.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/04/22/arts/television/andor-season-2-recap.html
 **Travis Hunter's father receives permission to attend 2025 NFL Draft**\
 `Hunter's father is serving probation and could not attend the Heisman Trophy presentation where his son received the award.`\
 https://nytimes.com/athletic/6300690/2025/04/22/travis-hunter-father-2025-nfl-draft/
-
-**NBA playoff takeaways: Thunder dominate Grizzlies; Pacers edge Bucks**\
-`The Thunder and Pacers took 2-0 leads in their series against the Grizzlies and Bucks.`\
-https://nytimes.com/athletic/6300469/2025/04/22/nba-playoff-bucks-pacers-thunder-grizzlies-timberwolves-lakers-score-takeaways/
 

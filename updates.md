@@ -1,3 +1,12 @@
+**Mark Vientos' smarter approach sets tone as Mets topple Phillies: 'Really good at-bat'**\
+`Vientos’ numbers against fastballs are off to a slow start, but below the surface he's maturing as a hitter. `\
+https://nytimes.com/athletic/6300803/2025/04/22/mets-mark-vientos-mlb-fastballs/
+
+**Matthew Tkachuk, Panthers steamroll Lightning in Game 1: Takeaways**\
+`Tkachuk made his triumphant return, scoring twice as the defending champs beat Tampa Bay in a feisty Battle of Florida Game 1.
+`\
+https://nytimes.com/athletic/6300010/2025/04/22/lightning-panthers-nhl-playoffs-2025-game-1-takeaways/
+
 **Matthew Tkachuk, Panthers steamroll Lightning in Game 1: Takeaways**\
 `Tkachuk made his triumphant return, scoring twice as the defending champs beat Tampa Bay in a feisty Battle of Florida Game 1.
 `\
