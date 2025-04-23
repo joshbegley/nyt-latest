@@ -1,3 +1,11 @@
+**Winners and losers of the transfer portal, from Michigan to Memphis**\
+`College basketball's transfer portal is closed to new entries, and many familiar contenders and top coaches have done significant work.`\
+https://nytimes.com/athletic/6299944/2025/04/23/college-basketball-transfer-portal-winners-losers-2/
+
+**Map: 6.2-Magnitude Earthquake Strikes Near Istanbul**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/04/23/world/europe/turkey-earthquake.html
+
 **TAFC: English club's Middle East PR fail, Guardiola joy, Man Utd vs Liverpool trophy count**\
 `The Athletic FC  is The Athletic’s daily football (or soccer, if you prefer) newsletter. Sign up to receive it directly to your inbox.`\
 https://nytimes.com/athletic/6301258/2025/04/23/dagenham-middle-east-man-utd-liverpool-trophies/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6299902/2025/04/23/nhl-playoffs-2025-pressure-ranki
 **The freeze-out: Why Knicks can't keep trending away from Karl-Anthony Towns**\
 `The Knicks’ end-of-season struggles coincided with teams sticking wings onto Towns. And the Pistons were watching.`\
 https://nytimes.com/athletic/6300629/2025/04/23/knicks-karl-anthony-towns-touches/
-
-**F1 mailbag: Max Verstappen's 'pattern of behavior'? And Lewis Hamilton concerns**\
-`While F1 resets for round six of the 24-race season, we answer a few of your questions for our mailbag. `\
-https://nytimes.com/athletic/6299036/2025/04/23/f1-mailbag-max-verstappen-penalty-lewis-hamilton/
-
-**Meet the NFL Draft hopeful, horseback rider, who wants to follow Jerry Rice's footsteps**\
-`After no HBCU players were drafted last year, Davis is hopeful to hear his name called by the end of this weekend.`\
-https://nytimes.com/athletic/6288529/2025/04/23/nfl-draft-prospect-hbcu-wr-davis/
 

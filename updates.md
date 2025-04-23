@@ -1,3 +1,11 @@
+**Winners and losers of the transfer portal, from Michigan to Memphis**\
+`College basketball's transfer portal is closed to new entries, and many familiar contenders and top coaches have done significant work.`\
+https://nytimes.com/athletic/6299944/2025/04/23/college-basketball-transfer-portal-winners-losers-2/
+
+**Map: 6.2-Magnitude Earthquake Strikes Near Istanbul**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/04/23/world/europe/turkey-earthquake.html
+
 **TAFC: English club's Middle East PR fail, Guardiola joy, Man Utd vs Liverpool trophy count**\
 `The Athletic FC  is The Athletic’s daily football (or soccer, if you prefer) newsletter. Sign up to receive it directly to your inbox.`\
 https://nytimes.com/athletic/6301258/2025/04/23/dagenham-middle-east-man-utd-liverpool-trophies/
