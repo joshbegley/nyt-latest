@@ -1,3 +1,7 @@
+**New Study Could Bolster Climate Laws to Make Polluters Pay**\
+`Vermont was the first state to try to hold polluters accountable for climate disasters. New research aims to assign specific responsibility.`\
+https://nytimes.com/2025/04/23/climate/climate-science-attribution-vermont.html
+
 **Chappell Roan’s Faithful Country Swerve**\
 `One of the defining pop stars of the new generation is getting frisky with a 1990s country sound, our critic says in his weekly review from the driver’s seat.`\
 https://nytimes.com/video/podcasts/100000010126116/chappell-roan-giver-review.html

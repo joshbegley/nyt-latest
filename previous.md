@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6302163/2025/04/23/rory-mcilroy-zurich-classic-mast
 `Readers react to the startling admission by Senator Lisa Murkowski of Alaska. Also: Private prisons for immigrants; noise in a Queens neighborhood.`\
 https://nytimes.com/2025/04/23/opinion/senator-lisa-murkowski.html
 
-**New Study Would Bolster Climate Laws That Would Make Polluters Pay**\
+**New Study Could Bolster Climate Laws to Make Polluters Pay**\
 `Vermont was the first state to try to hold polluters accountable for climate disasters. New research aims to assign specific responsibility.`\
 https://nytimes.com/2025/04/23/climate/climate-science-attribution-vermont.html
 
