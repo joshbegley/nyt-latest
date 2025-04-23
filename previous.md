@@ -1,3 +1,7 @@
+**Slaughter of Civilians in Kashmir Shatters an Illusion of Calm**\
+`India had claimed in recent years that its heavy-handed approach had brought peace to the long restive region. The attack on Tuesday showed that wasn’t true.`\
+https://nytimes.com/2025/04/23/world/asia/kashmir-attack-india-pakistan.html
+
 **Wildfire Rages in Southern New Jersey**\
 `Thick plumes of smoke rose into the sky as flames engulfed the heavily forested Pine Barrens section of southern New Jersey.`\
 https://nytimes.com/video/us/100000010125408/wildfire-new-jersey-ocean-county.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/04/23/nyregion/weinstein-retrial-opening-statements.htm
 **A White House Reporter on What It Takes to Cover Trump**\
 `Tyler Pager uses a deep bench of sources to break stories about immigration, economic policy and national security.`\
 https://nytimes.com/2025/04/23/insider/white-house-reporting.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/04/23/crosswords/spelling-bee-forum.html
 
