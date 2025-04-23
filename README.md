@@ -1,3 +1,7 @@
+**Burke to join Union Berlin after Bremen contract expires**\
+`The Scottish forward has been at Bremen since 2022 and 2024-25 has been his best season in German football, scoring six goals.`\
+https://nytimes.com/athletic/6301207/2025/04/23/oliver-burke-union-berlin-transfer/
+
 **Adrienne Adams Lands Two Major Endorsements for N.Y.C. Mayor**\
 `Ms. Adams, the City Council speaker, will receive endorsements from Letitia James, the state attorney general, and from District Council 37, the largest municipal union.`\
 https://nytimes.com/2025/04/23/nyregion/adrienne-adams-endorsements-nyc-mayor.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/23/opinion/ezra-klein-podcast-steven-hahn.html
 **What Do You Believe In?**\
 `A new series explores how people experience religion and spirituality now. What does belief look like for you?`\
 https://nytimes.com/2025/04/23/learning/what-do-you-believe-in.html
-
-**‘Andor’ Shows How a Resistance Is Built, One Brick at a Time**\
-`In the best of the Disney+ “Star Wars” series, returning for its final season, fighting fascism is more than just a joyride.`\
-https://nytimes.com/2025/04/23/arts/television/andor-season-2-review.html
 
