@@ -1,3 +1,11 @@
+**Karen Durbin, 80, Dies; ‘Fearless’ Feminist Who Edited The Village Voice**\
+`A fierce advocate of sexual liberation, she pushed the alternative weekly to cover women’s issues, as well as gay rights and avant-garde culture.`\
+https://nytimes.com/2025/04/23/business/media/karen-durbin-dead.html
+
+**Falcons' phone lines are open as they search for an NFL Draft trade partner**\
+`The Falcons won't necessarily take a defensive player with their first pick in the 2025 NFL Draft, GM Terry Fontenot said.`\
+https://nytimes.com/athletic/6302075/2025/04/23/falcons-nfl-draft-trade-possibilities/
+
 **Lions, Chargers to play in NFL's Hall of Fame Game on July 31**\
 `The game will take place ahead of the Aug. 2 enshrinement ceremony that sees Antonio Gates and three others inducted to the Hall of Fame.`\
 https://nytimes.com/athletic/6301754/2025/04/23/nfl-hall-of-fame-game-lions-chargers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6302033/2025/04/23/luka-doncic-lebron-james-lakers-
 **Durbin, No. 2 Senate Democrat, to Retire After 44 Years in Congress**\
 `Senator Richard J. Durbin’s departure will set off a primary for a rare open Senate seat in Illinois and open a top leadership slot. He said it was time to “face reality” and make way for someone new.`\
 https://nytimes.com/2025/04/23/us/dick-durbin-retires-senate.html
-
-**A Turner Prize Shortlist That J.M.W. Turner Might Have Appreciated**\
-`This year’s nominees for the prestigious art award include Mohammed Sami, an Iraqi painter, and Zadie Xa, a Canadian installation artist.`\
-https://nytimes.com/2025/04/23/arts/design/turner-prize-shortlist.html
-
-**Elland Road expansion moves forward as recommendations get council approval**\
-`The recommendations were approved at a meeting of Leeds City Council’s executive board on April 23.`\
-https://nytimes.com/athletic/6301906/2025/04/23/elland-road-expansion-council/
 
