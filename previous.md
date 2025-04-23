@@ -1,40 +1,40 @@
-**Lakers cut through the noise to level Timberwolves playoff series**\
-`L.A. rectified some wrongs to even the series with a 94-85 win that wasn’t nearly as close as the final score.`\
-https://nytimes.com/athletic/6301211/2025/04/23/lakers-timberwolves-nba-playoffs-doncic/
+**Tyrese Haliburton's passion powers Pacers as they go up 2-0 on Bucks**\
+`After a cold shooting performance in Game 1, Haliburton cranked up his aggressiveness as Indiana led wire to wire.`\
+https://nytimes.com/athletic/6301198/2025/04/23/tyrese-haliburton-pacers-playoffs-game-2/
 
-**Ex-Brazil coach Tite pausing career to take mental, physical health break**\
-`Tite coached Brazil between 2016 and 2022, winning the Copa America title in 2019.`\
-https://nytimes.com/athletic/6301293/2025/04/23/brazil-manager-tite-mental-health/
+**Rosenthal: How the Yankees continue to produce homegrown talent**\
+`Despite low draft positions and lots of prospect trades, the Yankees have recently developed an impressive group of young talent.`\
+https://nytimes.com/athletic/6299756/2025/04/23/new-york-yankees-homegrown-talent-development/
 
-**Our Questions, and Yours**\
-`We answer five questions you had about the news.`\
-https://nytimes.com/2025/04/23/briefing/our-questions-and-yours.html
+**Wizards have work to do to change NBA's perceptions of their franchise**\
+`The team and its coach did not show well in The Athletic's annual NBA player poll. `\
+https://nytimes.com/athletic/6300118/2025/04/23/washington-wizards-2025-player-poll-nba/
 
-**Sixth man or ninth man, Payton Pritchard ready for Celtics in the playoffs**\
-`"I just don't think you can accomplish anything at the highest of levels unless you give it your all,” Pritchard said.`\
-https://nytimes.com/athletic/6299991/2025/04/23/celtics-payton-pritchard-sixth-man-year/
+**Why one NHL team is slashing ticket prices next season**\
+`Ticket prices at Climate Pledge Arena will decrease by as much as $56 per game, even though the Kraken don't have attendance issues.`\
+https://nytimes.com/athletic/6290485/2025/04/23/nhl-ticket-prices-kraken/
 
-**Five NFL Draft scenarios for Bears at No. 10: From Ashton Jeanty to an edge rusher**\
-`The Bears have plenty of routes they can go at No. 10. Here's a look at five scenarios that face GM Ryan Poles ahead of draft night.`\
-https://nytimes.com/athletic/6299527/2025/04/23/bears-nfl-draft-scenarios-ashton-jeanty/
+**Which NHL playoff teams are under the most pressure to win the Stanley Cup? Ranking all 16**\
+`Counting down from the playoff teams that don’t want to lose to the teams that absolutely can’t.`\
+https://nytimes.com/athletic/6299902/2025/04/23/nhl-playoffs-2025-pressure-rankings/
 
-**Why the NFL Draft is Vikings GM Kwesi Adofo-Mensah's chance to shine**\
-`With just four picks, the draft is the time for Adofo-Mensah to put his experience as a commodities trader on Wall Street to good use. `\
-https://nytimes.com/athletic/6299897/2025/04/23/kwesi-adofo-mensah-vikings-nfl-draft/
+**The freeze-out: Why Knicks can't keep trending away from Karl-Anthony Towns**\
+`The Knicks’ end-of-season struggles coincided with teams sticking wings onto Towns. And the Pistons were watching.`\
+https://nytimes.com/athletic/6300629/2025/04/23/knicks-karl-anthony-towns-touches/
 
-**Cam Smith's 'seamless' outfield transition prompts Astros to explore center field options**\
-`Smith has embraced the move, which could increase Houston’s roster flexibility while it attempts to address a sputtering offense.`\
-https://nytimes.com/athletic/6300674/2025/04/23/astros-cam-smith-outfield-transition/
+**Meet the NFL Draft hopeful, horseback rider, who wants to follow Jerry Rice's footsteps**\
+`After no HBCU players were drafted last year, Davis is hopeful to hear his name called by the end of this weekend.`\
+https://nytimes.com/athletic/6288529/2025/04/23/nfl-draft-prospect-hbcu-wr-davis/
 
-**Five bold Colts predictions for NFL Draft: Indy trades into top 10 for Tyler Warren**\
-`What if Indy traded out of the first round entirely? Could the Colts address all of their needs by loading up on Day 2 picks?`\
-https://nytimes.com/athletic/6300484/2025/04/23/colts-nfl-draft-bold-predictions-tyler-warren/
+**Why one simple word defines Steph Curry’s leadership with the Warriors**\
+`Twenty former teammates, coaches and staffers share their best Steph Curry leadership stories, all with one common theme.`\
+https://nytimes.com/athletic/6299066/2025/04/23/stephen-curry-golden-state-warriors-nba-leadership/
 
-**Mirtle: Why the Maple Leafs winning ugly shouldn't surprise anyone right now**\
-`The Leafs under Craig Berube aren't winning style points the way they did under Sheldon Keefe. But they are winning games.`\
-https://nytimes.com/athletic/6300840/2025/04/23/maple-leafs-berube-style-nhl-playoffs/
+**‘It’s kind of crazy’: Why Angels’ travel day schedule frustrates players, opponents alike**\
+`The Angels chose to play at 6:29 p.m. Thursday, before crossing two time zones and playing again the next night. The reason? Ticket sales. `\
+https://nytimes.com/athletic/6300051/2025/04/23/angels-travel-days-player-frustration-trout/
 
-**‘Not one ounce of panic’: How the Senators are looking to build on Game 2 positives**\
-`The Senators don't quite have their back against the wall, yet they failed to earn a series split. Even so, they're staying calm.`\
-https://nytimes.com/athletic/6300328/2025/04/23/senators-belief-nhl-playoffs-game-2/
+**Where should Travis Hunter play in the NFL? Coaches, scouts weigh in**\
+`Hunter dominated on both sides at Colorado, but the NFL isn’t the Big 12.`\
+https://nytimes.com/athletic/6299835/2025/04/23/travis-hunter-position-scouting-report/
 
