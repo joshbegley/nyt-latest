@@ -1,3 +1,11 @@
+**Should the Maple Leafs change their lineup for Game 3?**\
+`The Maple Leafs may be up 2-0, but there are legitimate reasons to change course as the series shifts to Ottawa for Games 3 and 4.`\
+https://nytimes.com/athletic/6302228/2025/04/23/maple-leafs-lineup-game-3-senators-nhl-playoffs/
+
+**Dominik Hasek says he received death threats from former Russian president**\
+`Hasek, a native of Czechia, has been a vocal critic of Russia’s invasion of Ukraine since it began.`\
+https://nytimes.com/athletic/6302250/2025/04/23/dominik-hasek-russia-threats-medvedev/
+
 **A Roman Gladiator and a Lion Met in Combat. Only One Walked Away.**\
 `A discovery in an English garden led to the first direct evidence that man fought beast to entertain the subjects of the Roman Empire.`\
 https://nytimes.com/2025/04/23/science/lion-gladiator-romans-bones.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6302364/2025/04/23/yankees-cody-bellinger-early-str
 **Why the Phillies haven't ordered MRI for Cristopher Sánchez after he exited with arm injury**\
 `Sánchez left Tuesday's game with left forearm soreness. The Phillies believe, for now, they have dodged a significant injury.`\
 https://nytimes.com/athletic/6302379/2025/04/23/cristopher-sanchez-phillies-injury-update/
-
-**Britain Says It Will Not Alter Standards or Rush U.S. Trade Deal**\
-`The British government is hoping to reach an agreement with the United States to soften the economic blow British businesses are facing from higher tariffs.`\
-https://nytimes.com/2025/04/23/business/britain-us-trade-deal.html
-
-**The Windup: A fresh layer of Angels dysfunction**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6300857/2025/04/23/angles-getaway-night-game-the-windup/
 
