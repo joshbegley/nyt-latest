@@ -1,3 +1,11 @@
+**Max Domi spent months preparing for this moment with the Maple Leafs**\
+`On Tuesday night, Max Domi scored the biggest goal of his career. Here's how he got there.`\
+https://nytimes.com/athletic/6300907/2025/04/23/max-domi-maple-leafs-game-2-winner-nhl-playoffs/
+
+**Haliburton 'not worried' after being voted NBA's most overrated player**\
+`The Athletic published its anonymous player poll Tuesday, in which Tyrese Haliburton’s peers voted him the NBA's most overrated player.`\
+https://nytimes.com/athletic/6300950/2025/04/23/tyrese-haliburton-nba-most-overrated-player-poll/
+
 **Dodgers finally score in double digits, but let 3-run lead slip against Cubs**\
 `The dormant Dodgers offense finally got going and provided a late lead, but the pitching staff couldn't make it count.`\
 https://nytimes.com/athletic/6300939/2025/04/23/dodgers-lose-to-cubs/

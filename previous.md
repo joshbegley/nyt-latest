@@ -1,3 +1,7 @@
+**Max Domi spent months preparing for this moment with the Maple Leafs**\
+`On Tuesday night, Max Domi scored the biggest goal of his career. Here's how he got there.`\
+https://nytimes.com/athletic/6300907/2025/04/23/max-domi-maple-leafs-game-2-winner-nhl-playoffs/
+
 **Dodgers finally score in double digits, but let 3-run lead slip against Cubs**\
 `The dormant Dodgers offense finally got going and provided a late lead, but the pitching staff couldn't make it count.`\
 https://nytimes.com/athletic/6300939/2025/04/23/dodgers-lose-to-cubs/
@@ -15,7 +19,7 @@ https://nytimes.com/issue/todayspaper/2025/04/23/todays-new-york-times
 https://nytimes.com/2025/04/23/opinion/pope-francis-death-legacy.html
 
 **Haliburton 'not worried' after being voted NBA's most overrated player**\
-`Pacers have a 2-0 series lead over the Bucks, where Haliburton is averaging 15.5 points, 12.0 assists and 6.0 rebounds per game.`\
+`The Athletic published its anonymous player poll Tuesday, in which Tyrese Haliburton’s peers voted him the NBA's most overrated player.`\
 https://nytimes.com/athletic/6300950/2025/04/23/tyrese-haliburton-nba-most-overrated-player-poll/
 
 **Cardinals commit more playing time to Nolan Gorman as key double snaps 5-game skid**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/23/us/palisades-high-school-sears.html
 **'I find it weird watching West Ham. I'll always be grateful for Fornals' help and advice'**\
 `The former academy graduate has not been back since leaving the London Stadium - and is eyeing promotion with Charlton Athletic`\
 https://nytimes.com/athletic/6298523/2025/04/23/conor-coventry-charlton-west-ham/
-
-**Brighton could still make Europe, but they need to halt their nosedive**\
-`The stars could still align to send Brighton into European competition next season, but Fabian Hurzeler will need to turn their form around`\
-https://nytimes.com/athletic/6298514/2025/04/23/brighton-premier-league-europe-europa-conference/
 
