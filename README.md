@@ -1,3 +1,7 @@
+**Trump’s Approval Rating Has Been Falling Steadily, Polling Average Shows**\
+`President Trump’s approval rating has sunk to about 45 percent, down from 52 percent one week after he took office.`\
+https://nytimes.com/2025/04/23/us/politics/trump-approval-rating.html
+
 **U.S. Pushed a Ukraine Peace Plan That Favored Russia**\
 `Also, major endorsements jolted the New York City mayoral race. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/04/23/briefing/us-ukraine-peace-plan-new-york-city-mayor.html
@@ -10,7 +14,7 @@ https://nytimes.com/2025/04/23/travel/helicopter-sightseeing-tours-regulations-s
 `Recent experience staging major events puts many of the key infrastructure pieces in place for 2026 World Cup host Atlanta.`\
 https://nytimes.com/athletic/6302777/2025/04/23/atlanta-2026-world-cup-host-usa-preparation-fifa/
 
-**Guler scores as Madrid close gap on Barca in La Liga race with win over Getafe**\
+**Guler scores as Madrid close gap on Barca, but Alaba, Camavinga doubts for Clasico**\
 `Madrid are now four points behind leaders Barca, who they face in the Copa del Rey final on Saturday.`\
 https://nytimes.com/athletic/6302423/2025/04/23/real-madrid-barcelona-la-liga/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6302928/2025/04/23/ac-milan-coppa-italia-semifinals
 **The Briefing: Arsenal 2 Palace 2 - Towering Kiwior, sloppy Saliba, Trossard's confidence boost**\
 `Arsenal drew for the 13th time this season in letting a lead slip twice against Palace - The Athletic analyses the talking points `\
 https://nytimes.com/athletic/6301450/2025/04/23/arsenal-2-crystal-palace-2-kiwior-saliba-trossard/
-
-**Thursday Briefing: Trump Lashes Out at Zelensky**\
-`Plus, the perfect pour-over coffee.`\
-https://nytimes.com/2025/04/23/briefing/trump-zelensky-syria-al-shara-pope-francis.html
 
