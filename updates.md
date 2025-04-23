@@ -1,3 +1,15 @@
+**TAFC: English club's Middle East PR fail, Guardiola joy, Man Utd vs Liverpool trophy count**\
+`The Athletic FC  is The Athletic’s daily football (or soccer, if you prefer) newsletter. Sign up to receive it directly to your inbox.`\
+https://nytimes.com/athletic/6301258/2025/04/23/dagenham-middle-east-man-utd-liverpool-trophies/
+
+**Baldelli knows he's on hot seat amid Twins' poor start: 'You can just never quit'**\
+`Hours before the Twins opened what could be the most important homestand of his career, Baldelli acknowledged his precarious position.`\
+https://nytimes.com/athletic/6300620/2025/04/23/roco-baldelli-twins-manager-job-security/
+
+**F1 mailbag: Max Verstappen's 'pattern of behavior'? And Lewis Hamilton concerns**\
+`While F1 resets for round six of the 24-race season, we answer a few of your questions for our mailbag. `\
+https://nytimes.com/athletic/6299036/2025/04/23/f1-mailbag-max-verstappen-penalty-lewis-hamilton/
+
 **Tyrese Haliburton's passion powers Pacers as they go up 2-0 on Bucks**\
 `After a cold shooting performance in Game 1, Haliburton cranked up his aggressiveness as Indiana led wire to wire.`\
 https://nytimes.com/athletic/6301198/2025/04/23/tyrese-haliburton-pacers-playoffs-game-2/

@@ -1,3 +1,11 @@
+**TAFC: English club's Middle East PR fail, Guardiola joy, Man Utd vs Liverpool trophy count**\
+`The Athletic FC  is The Athletic’s daily football (or soccer, if you prefer) newsletter. Sign up to receive it directly to your inbox.`\
+https://nytimes.com/athletic/6301258/2025/04/23/dagenham-middle-east-man-utd-liverpool-trophies/
+
+**Baldelli knows he's on hot seat amid Twins' poor start: 'You can just never quit'**\
+`Hours before the Twins opened what could be the most important homestand of his career, Baldelli acknowledged his precarious position.`\
+https://nytimes.com/athletic/6300620/2025/04/23/roco-baldelli-twins-manager-job-security/
+
 **Tyrese Haliburton's passion powers Pacers as they go up 2-0 on Bucks**\
 `After a cold shooting performance in Game 1, Haliburton cranked up his aggressiveness as Indiana led wire to wire.`\
 https://nytimes.com/athletic/6301198/2025/04/23/tyrese-haliburton-pacers-playoffs-game-2/
@@ -22,19 +30,11 @@ https://nytimes.com/athletic/6299902/2025/04/23/nhl-playoffs-2025-pressure-ranki
 `The Knicks’ end-of-season struggles coincided with teams sticking wings onto Towns. And the Pistons were watching.`\
 https://nytimes.com/athletic/6300629/2025/04/23/knicks-karl-anthony-towns-touches/
 
+**F1 mailbag: Max Verstappen's 'pattern of behavior'? And Lewis Hamilton concerns**\
+`While F1 resets for round six of the 24-race season, we answer a few of your questions for our mailbag. `\
+https://nytimes.com/athletic/6299036/2025/04/23/f1-mailbag-max-verstappen-penalty-lewis-hamilton/
+
 **Meet the NFL Draft hopeful, horseback rider, who wants to follow Jerry Rice's footsteps**\
 `After no HBCU players were drafted last year, Davis is hopeful to hear his name called by the end of this weekend.`\
 https://nytimes.com/athletic/6288529/2025/04/23/nfl-draft-prospect-hbcu-wr-davis/
-
-**Why one simple word defines Steph Curry’s leadership with the Warriors**\
-`Twenty former teammates, coaches and staffers share their best Steph Curry leadership stories, all with one common theme.`\
-https://nytimes.com/athletic/6299066/2025/04/23/stephen-curry-golden-state-warriors-nba-leadership/
-
-**‘It’s kind of crazy’: Why Angels’ travel day schedule frustrates players, opponents alike**\
-`The Angels chose to play at 6:29 p.m. Thursday, before crossing two time zones and playing again the next night. The reason? Ticket sales. `\
-https://nytimes.com/athletic/6300051/2025/04/23/angels-travel-days-player-frustration-trout/
-
-**Where should Travis Hunter play in the NFL? Coaches, scouts weigh in**\
-`Hunter dominated on both sides at Colorado, but the NFL isn’t the Big 12.`\
-https://nytimes.com/athletic/6299835/2025/04/23/travis-hunter-position-scouting-report/
 
