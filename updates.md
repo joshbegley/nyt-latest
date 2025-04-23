@@ -1,3 +1,11 @@
+**California Judge Is Convicted of Fatally Shooting His Wife**\
+`Judge Jeffrey Ferguson of Orange County Superior Court faces 40 years to life for murdering his wife, Sheryl Ferguson, in August 2023, prosecutors said.`\
+https://nytimes.com/2025/04/23/us/california-judge-wife-murder-conviction.html
+
+**Rangers sign GM Chris Drury to multiyear extension**\
+`The Rangers have alternated successful seasons with disappointing ones in Drury’s four years as general manager.`\
+https://nytimes.com/athletic/6302989/2025/04/23/rangers-chris-drury-extension/
+
 **AC Milan ends Inter's treble quest, keeps own trophy hopes alive**\
 `AC Milan will play for the Coppa Italia title after dismantling city rival Inter thanks to a Luka Jović double.`\
 https://nytimes.com/athletic/6302928/2025/04/23/ac-milan-coppa-italia-semifinals-inter-jovic/
