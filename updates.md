@@ -1,3 +1,11 @@
+**After missing on Tanner Scott, Cubs reshape bullpen and put together 'a fun team to watch'**\
+`The Cubs coveted Scott this offseason as their closer. Miguel Amaya gave Scott his welcome-to-Wrigleyville-moment anyway.`\
+https://nytimes.com/athletic/6301008/2025/04/23/cubs-reshape-bullpen/
+
+**Kaprizov, Boldy deliver as Wild beat Golden Knights in Game 2: Takeaways**\
+`Minnesota took a 4-0 lead and evened the first-round playoff series.`\
+https://nytimes.com/athletic/6300567/2025/04/23/wild-golden-knights-game-2/
+
 **How Bernardo Silva personifies Pep Guardiola's safety-first approach at Manchester City**\
 `The Portuguese veteran has come in for criticism this season, but he was the glue that held the whole performance against Villa together`\
 https://nytimes.com/athletic/6300252/2025/04/23/bernardo-silva-manchester-city-guardiola/

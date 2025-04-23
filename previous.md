@@ -1,3 +1,11 @@
+**After missing on Tanner Scott, Cubs reshape bullpen and put together 'a fun team to watch'**\
+`The Cubs coveted Scott this offseason as their closer. Miguel Amaya gave Scott his welcome-to-Wrigleyville-moment anyway.`\
+https://nytimes.com/athletic/6301008/2025/04/23/cubs-reshape-bullpen/
+
+**Kaprizov, Boldy deliver as Wild beat Golden Knights in Game 2: Takeaways**\
+`Minnesota took a 4-0 lead and evened the first-round playoff series.`\
+https://nytimes.com/athletic/6300567/2025/04/23/wild-golden-knights-game-2/
+
 **How Bernardo Silva personifies Pep Guardiola's safety-first approach at Manchester City**\
 `The Portuguese veteran has come in for criticism this season, but he was the glue that held the whole performance against Villa together`\
 https://nytimes.com/athletic/6300252/2025/04/23/bernardo-silva-manchester-city-guardiola/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/23/opinion/pope-francis-death-legacy.html
 **Haliburton 'not worried' after being voted NBA's most overrated player**\
 `The Athletic published its anonymous player poll Tuesday, in which Tyrese Haliburton’s peers voted him the NBA's most overrated player.`\
 https://nytimes.com/athletic/6300950/2025/04/23/tyrese-haliburton-nba-most-overrated-player-poll/
-
-**Cardinals commit more playing time to Nolan Gorman as key double snaps 5-game skid**\
-`Gorman delivered a go-ahead three-run double in the eighth inning against the Braves.`\
-https://nytimes.com/athletic/6299786/2025/04/23/cardinals-win-nolan-gorman-braves/
-
-**Byron Buxton's spectacular catch saves Twins from another late breakdown**\
-`With the Twins once again on the precipice of disaster, Buxton did his best Superman impression to save the game in the top of the ninth.`\
-https://nytimes.com/athletic/6300855/2025/04/23/twins-byron-buxton-saves-victory/
 
