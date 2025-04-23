@@ -1,3 +1,7 @@
+**Britain Says It Will Not Alter Standards or Rush U.S. Trade Deal**\
+`The British government is hoping to reach an agreement with the United States to soften the economic blow British businesses are facing from higher tariffs.`\
+https://nytimes.com/2025/04/23/business/britain-us-trade-deal.html
+
 **Richard Branson Criticizes Trump’s ‘Erratic’ Tariff Policies**\
 `The British entrepreneur said the U.S. government’s unpredictable tariffs had “financially done a lot of harm” and driven the world to “the verge of a complete meltdown two weeks ago.”`\
 https://nytimes.com/2025/04/23/us/politics/richard-branson-trump-tariff-policies.html

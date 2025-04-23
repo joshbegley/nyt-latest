@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6302364/2025/04/23/yankees-cody-bellinger-early-str
 `Sánchez left Tuesday's game with left forearm soreness. The Phillies believe, for now, they have dodged a significant injury.`\
 https://nytimes.com/athletic/6302379/2025/04/23/cristopher-sanchez-phillies-injury-update/
 
-**Britain Says It Will Not Rush or Alter Standards in U.S. Trade Deal**\
+**Britain Says It Will Not Alter Standards or Rush U.S. Trade Deal**\
 `The British government is hoping to reach an agreement with the United States to soften the economic blow British businesses are facing from higher tariffs.`\
 https://nytimes.com/2025/04/23/business/britain-us-trade-deal.html
 
