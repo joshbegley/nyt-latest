@@ -1,3 +1,15 @@
+**‘North of North’ Is a Warm Arctic Comedy**\
+`Set in a fictional Inuk community in Canada, this Netflix comedy shows abundant tenderness for its characters but also surprising depth and edge.`\
+https://nytimes.com/2025/04/23/arts/television/north-of-north-netflix.html
+
+**The Physics of the Perfect Pour Over**\
+`Scientists used fluid dynamics to learn how to get the most flavor from pour-over coffee.`\
+https://nytimes.com/2025/04/23/science/physics-experiment-coffee.html
+
+**Why the business of the NFL Draft is booming: MoneyCall**\
+`In this week's sports business cheat sheet, the business of the NFL Draft, Agassi in pickleball, the NBA Anonymous Player Survey and more.`\
+https://nytimes.com/athletic/6301901/2025/04/23/why-the-business-of-the-nfl-draft-is-booming-moneycall/
+
 **Yohe mailbag, Part 1: How long will it take until the Penguins are good again?**\
 `A look at the many intriguing decisions facing GM Kyle Dubas now that the offseason is officially here.`\
 https://nytimes.com/athletic/6300492/2025/04/23/penguins-offseason-dubas-grade/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6301717/2025/04/23/club-world-cup-tv-channel-uk/
 **The New York Giants, with their first pick in the 2025 NFL Draft, select ...**\
 `The Giants entered the offseason determined to find their QB of the future. Will they find that player at No. 3?`\
 https://nytimes.com/athletic/6300874/2025/04/23/new-york-giants-nfl-draft-2025-prediction/
-
-**For the slow-starting Bucks, it's getting late early in these playoffs**\
-`Milwaukee is down 0-2 to the Pacers because it has consistently been late and a step behind during this first-round series so far.`\
-https://nytimes.com/athletic/6300981/2025/04/23/bucks-playoffs-game-2-defense-loss/
-
-**Colin Cowherd met with ESPN before re-signing with Fox: Sources**\
-`In recent years, ESPN and Fox have been in a tug-of-war for premier on-air broadcasters.`\
-https://nytimes.com/athletic/6301599/2025/04/23/colin-cowherd-espn-fox-sports-talk-show/
-
-**While Kirill Kaprizov and Matt Boldy put on another show, Ryan Hartman makes his presence felt**\
-`Kaprizov and Boldy combined for three goals and two assists in Game 2, but Hartman was the catalyst behind the Wild's 5-2 win.`\
-https://nytimes.com/athletic/6301187/2025/04/23/wild-kaprizov-boldy-hartman-golden-knights-nhl/
 

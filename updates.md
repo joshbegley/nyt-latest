@@ -1,3 +1,15 @@
+**‘North of North’ Is a Warm Arctic Comedy**\
+`Set in a fictional Inuk community in Canada, this Netflix comedy shows abundant tenderness for its characters but also surprising depth and edge.`\
+https://nytimes.com/2025/04/23/arts/television/north-of-north-netflix.html
+
+**The Physics of the Perfect Pour Over**\
+`Scientists used fluid dynamics to learn how to get the most flavor from pour-over coffee.`\
+https://nytimes.com/2025/04/23/science/physics-experiment-coffee.html
+
+**Why the business of the NFL Draft is booming: MoneyCall**\
+`In this week's sports business cheat sheet, the business of the NFL Draft, Agassi in pickleball, the NBA Anonymous Player Survey and more.`\
+https://nytimes.com/athletic/6301901/2025/04/23/why-the-business-of-the-nfl-draft-is-booming-moneycall/
+
 **Yohe mailbag, Part 1: How long will it take until the Penguins are good again?**\
 `A look at the many intriguing decisions facing GM Kyle Dubas now that the offseason is officially here.`\
 https://nytimes.com/athletic/6300492/2025/04/23/penguins-offseason-dubas-grade/
