@@ -1,3 +1,7 @@
+**NBA playoff takeaways: Thunder dominate Grizzlies; Pacers edge Bucks**\
+`The Thunder and Pacers took 2-0 leads in their series against the Grizzlies and Bucks.`\
+https://nytimes.com/athletic/6300469/2025/04/22/nba-playoff-bucks-pacers-thunder-grizzlies-timberwolves-lakers-score-takeaways/
+
 **Dress to the Nines**\
 `Brandon Koppy makes space for us.`\
 https://nytimes.com/2025/04/22/crosswords/daily-puzzle-2025-04-23.html
