@@ -1,3 +1,7 @@
+**Powerful Earthquake Shakes Istanbul**\
+`Turkish emergency services said the quake had a magnitude of 6.2 and reported no casualties or major damage so far.`\
+https://nytimes.com/2025/04/23/world/europe/turkey-earthquake.html
+
 **While Kirill Kaprizov and Matt Boldy put on another show, Ryan Hartman makes his presence felt**\
 `Kaprizov and Boldy combined for three goals and two assists in Game 2, but Hartman was the catalyst behind the Wild's 5-2 win.`\
 https://nytimes.com/athletic/6301187/2025/04/23/wild-kaprizov-boldy-hartman-golden-knights-nhl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6300118/2025/04/23/washington-wizards-2025-player-p
 **Why one NHL team is slashing ticket prices next season**\
 `Ticket prices at Climate Pledge Arena will decrease by as much as $56 per game, even though the Kraken don't have attendance issues.`\
 https://nytimes.com/athletic/6290485/2025/04/23/nhl-ticket-prices-kraken/
-
-**Which NHL playoff teams are under the most pressure to win the Stanley Cup? Ranking all 16**\
-`Counting down from the playoff teams that don’t want to lose to the teams that absolutely can’t.`\
-https://nytimes.com/athletic/6299902/2025/04/23/nhl-playoffs-2025-pressure-rankings/
 

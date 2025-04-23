@@ -1,3 +1,7 @@
+**Powerful Earthquake Shakes Istanbul**\
+`Turkish emergency services said the quake had a magnitude of 6.2 and reported no casualties or major damage so far.`\
+https://nytimes.com/2025/04/23/world/europe/turkey-earthquake.html
+
 **While Kirill Kaprizov and Matt Boldy put on another show, Ryan Hartman makes his presence felt**\
 `Kaprizov and Boldy combined for three goals and two assists in Game 2, but Hartman was the catalyst behind the Wild's 5-2 win.`\
 https://nytimes.com/athletic/6301187/2025/04/23/wild-kaprizov-boldy-hartman-golden-knights-nhl/
