@@ -1,3 +1,7 @@
+**Solo Show**\
+`We ask Black artists to curate a list of three treasured works that they’ve encountered or made, and to reflect on how their practice connects to a broader art lineage.`\
+https://nytimes.com/column/solo-show
+
 **NBA Draft early entry tracker: Rutgers freshman Ace Bailey latest entry**\
 `April 26 is the deadline for underclassmen to declare for the NBA Draft on June 25-26.`\
 https://nytimes.com/athletic/6251067/2025/04/23/nba-draft-early-entry-tracker-deadline/

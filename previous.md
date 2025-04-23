@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6251067/2025/04/23/nba-draft-early-entry-tracker-de
 https://nytimes.com/athletic/6302455/2025/04/23/eni-aluko-ian-wright-barton-broadcast/
 
 **Solo Show**\
-``\
+`We ask Black artists to curate a list of three treasured works that they’ve encountered or made, and to reflect on how their practice connects to a broader art lineage.`\
 https://nytimes.com/column/solo-show
 
 **Sexual abuse watchdog SafeSport fires CEO amid ongoing congressional probe**\
