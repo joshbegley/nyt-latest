@@ -1,3 +1,11 @@
+**Braves takeaways: Eli White's unforgettable homer, Alex Verdugo's impact and more**\
+`Fans in the left-field bleachers gave White a standing ovation when he returned to his position after a 434-foot blast.`\
+https://nytimes.com/athletic/6303286/2025/04/23/braves-eli-white-alex-verdugo-mlb/
+
+**A Stunning New Pool in Central Park Helps Heal Old Wounds**\
+`The $160 million Davis Center, with upgrades to six bucolic acres and a lake, writes a new chapter for the Harlem end of the park.`\
+https://nytimes.com/2025/04/23/arts/design/central-park-pool-harlem.html
+
 **A Subdued Musk Backs Away From Washington, but His Project Remains**\
 `The Department of Government Efficiency has already made an immense imprint on the government, but it has not come close to Elon Musk’s pledge of cutting $1 trillion.`\
 https://nytimes.com/2025/04/23/us/politics/elon-musk-doge-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/23/us/politics/trump-tariffs-economy.html
 **5 Things Musk Accomplished With Trump**\
 `DOGE once demanded that federal employees list five accomplishments each week. Here are Elon Musk’s from his time in Washington.`\
 https://nytimes.com/2025/04/23/us/politics/elon-musk-trump-doge-tesla.html
-
-**Jason Moran Unpacks Duke Ellington’s Greatness in a Single Song**\
-`Watch as the pianist distills the “joyful tragedy” of “Black and Tan Fantasy” into a stirring solo piece.`\
-https://nytimes.com/interactive/2025/04/23/arts/music/jason-moran-duke-ellington.html
-
-**Now Boarding at Gate 4: A Cardinal en Route to a Conclave**\
-`Timothy M. Dolan is one of 10 cardinals from the United States who will have a vote in the ritual that will determine the next pope.`\
-https://nytimes.com/2025/04/23/us/cardinal-dolan-pope-francis-conclave.html
 
