@@ -1,3 +1,7 @@
+**Critics Call Rubio’s Overhaul Plan a Blow to U.S. Values**\
+`A proposed reorganization of the State Department would eliminate an office whose official goal is to build “more democratic, secure, stable, and just societies.”`\
+https://nytimes.com/2025/04/22/us/politics/rubio-state-department-overhaul.html
+
 **What to Know About the Legal Battle Over a North Carolina Supreme Court Race**\
 `The Republican challenger has embarked on an extraordinary effort to reverse his election loss that critics say is testing the boundaries of post-election litigation.`\
 https://nytimes.com/2025/04/22/us/north-carolina-supreme-court-race-explainer.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6300262/2025/04/22/payton-pritchard-sixth-man-of-th
 **How Bats Enjoy an In-Flight Beverage Service**\
 `Bats are not only masters of aerodynamic flight — they’re skillful at multitasking while flying, too.`\
 https://nytimes.com/2025/04/22/science/bats-drinking-flight.html
-
-**A Simpler Funeral for Francis, Who Shunned Many Gilt Papal Trappings**\
-`A funeral will be held on Saturday for the pope, who changed the rules to make such ceremonies simpler than those traditionally observed.`\
-https://nytimes.com/2025/04/22/world/europe/pope-francis-funeral.html
 

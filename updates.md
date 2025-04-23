@@ -1,3 +1,7 @@
+**Critics Call Rubio’s Overhaul Plan a Blow to U.S. Values**\
+`A proposed reorganization of the State Department would eliminate an office whose official goal is to build “more democratic, secure, stable, and just societies.”`\
+https://nytimes.com/2025/04/22/us/politics/rubio-state-department-overhaul.html
+
 **What to Know About the Legal Battle Over a North Carolina Supreme Court Race**\
 `The Republican challenger has embarked on an extraordinary effort to reverse his election loss that critics say is testing the boundaries of post-election litigation.`\
 https://nytimes.com/2025/04/22/us/north-carolina-supreme-court-race-explainer.html
