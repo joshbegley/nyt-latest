@@ -1,3 +1,12 @@
+**Lakers press 'urgency button,' lean all the way in on defense to beat Timberwolves**\
+`"It was just a question of if we were gonna be more physical or not," Luka Dončić said. "And I think we showed that."`\
+https://nytimes.com/athletic/6301238/2025/04/23/lakers-playoffs-game-2-defense/
+
+**Amen Thompson can be counterpunch Rockets need vs. Warriors in Game 2**\
+`Putting the ball in Thompson's hands and encouraging him to attack the core of the Warriors' defense is intriguing.
+`\
+https://nytimes.com/athletic/6299421/2025/04/23/rockets-warriors-game-2-amen-thompson/
+
 **Bruins GM Sweeney has acted boldly when necessary. Does he have the assets to do it again?**\
 `The Bruins are in their most perilous situation since Sweeney assumed his position. Can they dig themselves out of it?`\
 https://nytimes.com/athletic/6299740/2025/04/23/bruins-don-sweeney-trades-free-agency/

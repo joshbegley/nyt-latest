@@ -1,3 +1,12 @@
+**Lakers press 'urgency button,' lean all the way in on defense to beat Timberwolves**\
+`"It was just a question of if we were gonna be more physical or not," Luka Dončić said. "And I think we showed that."`\
+https://nytimes.com/athletic/6301238/2025/04/23/lakers-playoffs-game-2-defense/
+
+**Amen Thompson can be counterpunch Rockets need vs. Warriors in Game 2**\
+`Putting the ball in Thompson's hands and encouraging him to attack the core of the Warriors' defense is intriguing.
+`\
+https://nytimes.com/athletic/6299421/2025/04/23/rockets-warriors-game-2-amen-thompson/
+
 **Bruins GM Sweeney has acted boldly when necessary. Does he have the assets to do it again?**\
 `The Bruins are in their most perilous situation since Sweeney assumed his position. Can they dig themselves out of it?`\
 https://nytimes.com/athletic/6299740/2025/04/23/bruins-don-sweeney-trades-free-agency/
@@ -29,12 +38,4 @@ https://nytimes.com/athletic/6300442/2025/04/23/seahawks-nfl-draft-2025-john-sch
 **From steakhouse to Stanley Cup playoffs: Charting Samberg's rise on the Jets' blue line**\
 `Six years ago, Samberg wasn't sure if he wanted to sign his entry-level contract with the Jets yet. Now he's among their best defencemen.`\
 https://nytimes.com/athletic/6299904/2025/04/23/dylan-samberg-winnipeg-jets-nhl-playoffs/
-
-**Skinner deserves to stay in Oilers net — but his leash is getting ever shorter**\
-`Skinner allowed six goals in Game 1, but how many of the goals were his fault is up for debate.`\
-https://nytimes.com/athletic/6300260/2025/04/23/stuart-skinner-oilers-nhl-playoffs-goalie/
-
-**Report cards: Grading every Sabres player after 'failure' of a season**\
-`A few players used that word to describe a Sabres season that began with playoff expectations.`\
-https://nytimes.com/athletic/6299552/2025/04/23/sabres-2024-25-report-cards/
 
