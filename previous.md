@@ -1,3 +1,7 @@
+**‘Conclave’ Streaming Numbers Jump After Pope Francis’s Death**\
+`Experts said that the 2024 film accurately portrayed the papal selection process.`\
+https://nytimes.com/2025/04/23/business/conclave-film-streaming-pope-francis.html
+
 **The World Seems to Be Surrendering to Climate Change**\
 `The state of the climate future, Part I.`\
 https://nytimes.com/2025/04/23/opinion/climate-trump-world.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6300467/2025/04/23/hockey-canada-trial-opening-rema
 **What’s in Our Queue? ‘Paradise’ and More**\
 `Text by Mihir Zaveri`\
 https://nytimes.com/card/2025/04/23/arts/editors-recommendations-paradise
-
-**PWHL announces expansion to Vancouver for 2025-26 season**\
-`The team, which was unveiled as PWHL Vancouver at a news conference on Wednesday, will play at Pacific Coliseum.`\
-https://nytimes.com/athletic/6302038/2025/04/23/pwhl-vancouver-expansion-2025-26-season/
 

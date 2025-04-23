@@ -1,3 +1,11 @@
+**Arthur Fleischer Jr., Prominent Lawyer in Corporate Takeovers, Dies at 92**\
+`He was a top deal maker in the world of mergers and acquisitions, during the 1980s takeover boom and beyond. He also had a keen interest in art.`\
+https://nytimes.com/2025/04/23/business/dealbook/arthur-fleischer-dead.html
+
+**What we know about the football card landscape for the top 2025 NFL draftees**\
+`The players, sets and autographs to target for the 2025 draft class `\
+https://nytimes.com/athletic/6302406/2025/04/23/nfl-draft-rookie-cards-ward-sanders-hunter/
+
 **‘Conclave’ Streaming Numbers Jump After Pope Francis’s Death**\
 `Experts said that the 2024 film accurately portrayed the papal selection process.`\
 https://nytimes.com/2025/04/23/business/conclave-film-streaming-pope-francis.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6302592/2025/04/23/nfl-risers-fallers-win-totals-20
 **Motivated by Super Bowl loss, Patrick Mahomes seeks explosive Chiefs passing attack**\
 `With the Chiefs' offseason program underway, Mahomes talked about his "bad taste" from the Super Bowl LIX loss and his new look.`\
 https://nytimes.com/athletic/6302440/2025/04/23/patrick-mahomes-motivation-super-bowl-loss/
-
-**Crown delivers opening remarks in Hockey Canada trial: 'They just did what they wanted'**\
-`Crown attorney Heather Donkers made opening statements on Wednesday in Ontario Superior Court in the Hockey Canada sexual assault trial.`\
-https://nytimes.com/athletic/6300467/2025/04/23/hockey-canada-trial-opening-remarks/
-
-**What’s in Our Queue? ‘Paradise’ and More**\
-`Text by Mihir Zaveri`\
-https://nytimes.com/card/2025/04/23/arts/editors-recommendations-paradise
 

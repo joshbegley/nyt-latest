@@ -1,3 +1,7 @@
+**‘Conclave’ Streaming Numbers Jump After Pope Francis’s Death**\
+`Experts said that the 2024 film accurately portrayed the papal selection process.`\
+https://nytimes.com/2025/04/23/business/conclave-film-streaming-pope-francis.html
+
 **The World Seems to Be Surrendering to Climate Change**\
 `The state of the climate future, Part I.`\
 https://nytimes.com/2025/04/23/opinion/climate-trump-world.html
