@@ -1,4 +1,8 @@
 **Bruins GM Don Sweeney outlines plan for active offseason and prompt turnaround: ‘Every mechanism possible’**\
+`“The year we had was a huge disappointment,” team president Cam Neely said on Wednesday. Sweeney's job in fixing that is a big one.`\
+https://nytimes.com/athletic/6302408/2025/04/23/bruins-don-sweeney-offseason-plans/
+
+**Bruins GM Don Sweeney outlines plan for active offseason and prompt turnaround: ‘Every mechanism possible’**\
 `BOSTON — It is not Charlie Jacobs’ job to determine whether the 2025-26 Boston Bruins will be a playoff contender.`\
 https://nytimes.com/athletic/6302408/2025/04/23/bruins-don-sweeney-offseason-plans/
 
