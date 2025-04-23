@@ -1,3 +1,7 @@
+**Devils put up a better effort, but Hurricanes still too much in Game 2: Takeaways**\
+`New Jersey put forth a respectable effort given a short-handed roster and stingy opponent, but Carolina took a 2-0 series lead.`\
+https://nytimes.com/athletic/6300475/2025/04/22/devils-hurricanes-game-2-takeaways-nhl-playoffs/
+
 **NBA playoff takeaways: Thunder dominate Grizzlies; Pacers edge Bucks**\
 `The Thunder and Pacers took 2-0 leads in their series against the Grizzlies and Bucks.`\
 https://nytimes.com/athletic/6300469/2025/04/22/nba-playoff-bucks-pacers-thunder-grizzlies-timberwolves-lakers-score-takeaways/

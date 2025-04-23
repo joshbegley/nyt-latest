@@ -27,7 +27,7 @@ https://nytimes.com/2025/04/22/nyregion/wildfire-new-jersey-ocean-county.html
 https://nytimes.com/athletic/6300502/2025/04/22/phillies-pitcher-cristopher-sanchez-leaves-game-left-forearm-soreness/
 
 **Devils put up a better effort, but Hurricanes still too much in Game 2: Takeaways**\
-`New Jersey put forth a respectable effort given a shorthanded roster and a stingy opponent, but it wasn't enough.`\
+`New Jersey put forth a respectable effort given a short-handed roster and stingy opponent, but Carolina took a 2-0 series lead.`\
 https://nytimes.com/athletic/6300475/2025/04/22/devils-hurricanes-game-2-takeaways-nhl-playoffs/
 
 **Kennedy Declares ‘Sugar Is Poison’ While Announcing Ban on Food Dyes**\
