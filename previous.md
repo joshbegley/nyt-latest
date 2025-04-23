@@ -1,3 +1,7 @@
+**AC Milan ends Inter's treble quest, keeps own trophy hopes alive**\
+`AC Milan will play for the Coppa Italia title after dismantling city rival Inter thanks to a Luka Jović double.`\
+https://nytimes.com/athletic/6302928/2025/04/23/ac-milan-coppa-italia-semifinals-inter-jovic/
+
 **The Briefing: Arsenal 2 Palace 2 - Towering Kiwior, sloppy Saliba, Trossard's confidence boost**\
 `Arsenal drew for the 13th time this season in letting a lead slip twice against Palace - The Athletic analyses the talking points `\
 https://nytimes.com/athletic/6301450/2025/04/23/arsenal-2-crystal-palace-2-kiwior-saliba-trossard/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6302756/2025/04/23/safesport-sexual-abuse-watchdog-
 **C.E.O. Steps Down at Discord, the Social Chat App**\
 `Jason Citron was a co-founder of the company, which is said to be working toward an initial public offering at some point this year.`\
 https://nytimes.com/2025/04/23/business/discord-jason-citron.html
-
-**Prelude to a Funeral**\
-`A single image captures the subtle changes in how the Roman Catholic Church buries a pope.`\
-https://nytimes.com/2025/04/23/world/europe/pope-francis-death-vatican-rituals.html
 

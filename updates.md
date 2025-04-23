@@ -1,3 +1,7 @@
+**AC Milan ends Inter's treble quest, keeps own trophy hopes alive**\
+`AC Milan will play for the Coppa Italia title after dismantling city rival Inter thanks to a Luka Jović double.`\
+https://nytimes.com/athletic/6302928/2025/04/23/ac-milan-coppa-italia-semifinals-inter-jovic/
+
 **The Briefing: Arsenal 2 Palace 2 - Towering Kiwior, sloppy Saliba, Trossard's confidence boost**\
 `Arsenal drew for the 13th time this season in letting a lead slip twice against Palace - The Athletic analyses the talking points `\
 https://nytimes.com/athletic/6301450/2025/04/23/arsenal-2-crystal-palace-2-kiwior-saliba-trossard/
