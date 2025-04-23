@@ -1,3 +1,7 @@
+**Police Identify Gilgo Victims, a Woman Known as Peaches and Her Child**\
+`The victim was Tanya Denise Jackson, mother of Tatiana Marie Dykes. Their bodies were found on Long Island, near the area where a serial killer operated.`\
+https://nytimes.com/2025/04/23/nyregion/gilgo-beach-victims-woman-child.html
+
 **Barry Benepe, Who Gave New York Its Greenmarkets, Dies at 96**\
 `He brought farm-grown produce to the city’s streets, creating the largest network of farmers’ markets in the country and helping to revive neighborhoods.`\
 https://nytimes.com/2025/04/23/nyregion/barry-benepe-dead.html

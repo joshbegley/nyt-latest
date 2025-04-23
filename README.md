@@ -1,5 +1,9 @@
-**Police Identify Gilgo Victims, a Woman Known as Peaches and Her Child**\
-`The victim was Tanya Denise Jackson, mother of Tatiana Marie Dykes. Their bodies were found on Long Island, near the area where a serial killer operated.`\
+**Lions, Chargers to play in NFL's Hall of Fame Game on July 31**\
+`The game will take place ahead of the Aug. 2 enshrinement ceremony that sees Antonio Gates and three others inducted to the Hall of Fame.`\
+https://nytimes.com/athletic/6301754/2025/04/23/nfl-hall-of-fame-game-lions-chargers/
+
+**Police Identify 2 Gilgo Beach Victims, a Mother and Her Toddler**\
+`The victims — Tanya Denise Jackson and her daughter, Tatiana Marie Dykes — were found on Long Island, near the area where a serial killer operated.`\
 https://nytimes.com/2025/04/23/nyregion/gilgo-beach-victims-woman-child.html
 
 **Barry Benepe, Who Gave New York Its Greenmarkets, Dies at 96**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/23/arts/design/turner-prize-shortlist.html
 **Elland Road expansion moves forward as recommendations get council approval**\
 `The recommendations were approved at a meeting of Leeds City Council’s executive board on April 23.`\
 https://nytimes.com/athletic/6301906/2025/04/23/elland-road-expansion-council/
-
-**Report cards: Grading every Canucks forward's 2024-25 performance**\
-`Which Canucks forwards drove the bus, and who struggled during a disappointing season for the team?`\
-https://nytimes.com/athletic/6301051/2025/04/23/canucks-forwards-2024-25-report-cards/
 
