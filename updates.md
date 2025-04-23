@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6300010/2025/04/22/lightning-panthers-nhl-playoffs-2025-game-1-takeaways/
 
+**Matthew Tkachuk, Panthers steamroll Lightning in Game 1: Takeaways**\
+`Tkachuk made his triumphant return in grand style, scoring twice as the defending champs beat Tampa in a feisty Battle of Florida Game 1.
+`\
+https://nytimes.com/athletic/6300010/2025/04/22/lightning-panthers-nhl-playoffs-2025-game-1-takeaways/
+
 **Trump Says Undocumented Immigrants Shouldn’t Get Trials Before Deportation**\
 `The president claimed that countries were sending their prisoners to the United States and that he needed to bypass the constitutional demands of due process to expel them quickly.`\
 https://nytimes.com/2025/04/22/us/politics/trump-undocumented-immigrants-trials-deportation.html
