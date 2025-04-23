@@ -1,4 +1,8 @@
-**Trump Offers a Private Dinner to Top 220 Investors of His Memecoin**\
+**Jelly Roll Should Be Pardoned for Drug and Robbery Offenses, Board Says**\
+`The Tennessee Board of Parole unanimously determined that the country star should be pardoned, but the decision is in the hands of the governor.`\
+https://nytimes.com/2025/04/23/arts/music/jelly-roll-pardon-tennessee.html
+
+**Trump Offers Private Dinner to Top 220 Investors of His Memecoin**\
 `The offer, which caused President Trump’s memecoin to surge in price, was his family’s latest effort to profit from cryptocurrencies.`\
 https://nytimes.com/2025/04/23/technology/trump-private-dinner-crypto-memecoin.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/23/opinion/climate-trump-world.html
 **How I Describe Myself Politically These Days**\
 `America needs to figure out how to dominate the industries of the future. Call me a “Waymo Democrat.”`\
 https://nytimes.com/2025/04/23/opinion/waymo-democrat-advanced-manufacturing.html
-
-**Why are some NHL playoff games being called from an off-site broadcast studio?**\
-`Three more first-round playoff games on Turner Sports networks are scheduled to be called from a studio in Atlanta.`\
-https://nytimes.com/athletic/6302495/2025/04/23/nhl-playoff-broadcast-studio/
 
