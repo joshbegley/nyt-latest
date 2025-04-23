@@ -1,8 +1,20 @@
+**Trump’s Approval Rating Has Been Falling Steadily, Polling Average Shows**\
+`President Trump’s approval rating has sunk to about 45 percent, down from 52 percent one week after he took office.`\
+https://nytimes.com/2025/04/23/us/politics/trump-approval-rating.html
+
+**U.S. Pushed a Ukraine Peace Plan That Favored Russia**\
+`Also, major endorsements jolted the New York City mayoral race. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/04/23/briefing/us-ukraine-peace-plan-new-york-city-mayor.html
+
+**How Safe Are Helicopter Sightseeing Tours?**\
+`The F.A.A. allows many of these popular flights to operate under less stringent rules than other commercial aviation, opening the door to dangers like pilot fatigue.`\
+https://nytimes.com/2025/04/23/travel/helicopter-sightseeing-tours-regulations-safety.html
+
 **How one U.S. host city is preparing for the 2026 World Cup**\
 `Recent experience staging major events puts many of the key infrastructure pieces in place for 2026 World Cup host Atlanta.`\
 https://nytimes.com/athletic/6302777/2025/04/23/atlanta-2026-world-cup-host-usa-preparation-fifa/
 
-**Guler scores as Madrid close gap on Barca in La Liga race with win over Getafe**\
+**Guler scores as Madrid close gap on Barca, but Alaba, Camavinga doubts for Clasico**\
 `Madrid are now four points behind leaders Barca, who they face in the Copa del Rey final on Saturday.`\
 https://nytimes.com/athletic/6302423/2025/04/23/real-madrid-barcelona-la-liga/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6302928/2025/04/23/ac-milan-coppa-italia-semifinals
 **The Briefing: Arsenal 2 Palace 2 - Towering Kiwior, sloppy Saliba, Trossard's confidence boost**\
 `Arsenal drew for the 13th time this season in letting a lead slip twice against Palace - The Athletic analyses the talking points `\
 https://nytimes.com/athletic/6301450/2025/04/23/arsenal-2-crystal-palace-2-kiwior-saliba-trossard/
-
-**Thursday Briefing: Trump Lashes Out at Zelensky**\
-`Plus, the perfect pour-over coffee.`\
-https://nytimes.com/2025/04/23/briefing/trump-zelensky-syria-al-shara-pope-francis.html
-
-**No Power? No Problem. Nicole Scherzinger Sings With Bullhorn on Broadway.**\
-`The “Sunset Boulevard” star briefly entertained the crowd when “a technical malfunction on the sound side” forced the cancellation of a matinee performance.`\
-https://nytimes.com/2025/04/23/theater/nicole-scherzinger-sunset-boulevard-broadway.html
-
-**Physical Pistons-Knicks series fuels debate between coaches over foul calls**\
-`Knicks coach Tom Thibodeau said Jalen Brunson isn't getting the calls he deserves. But Pistons coach J.B. Bickerstaff had a response ready.`\
-https://nytimes.com/athletic/6302832/2025/04/23/pistons-knicks-debate-foul-calls/
 
