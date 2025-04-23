@@ -1,3 +1,11 @@
+**Ukraine Cease-fire Talks in London Downgraded After Rubio Pulls Out**\
+`Planned diplomatic talks on Wednesday have been scaled back, raising new doubts about progress toward a cease-fire between Russia and Ukraine.`\
+https://nytimes.com/2025/04/23/world/europe/ukraine-cease-fire-talks-london.html
+
+**Feldman: What's the line in discussing NFL Draft prospects' characters? I asked analysts**\
+`Talking about an NFL prospect's character can be a tough balancing ask. NFL draft analysts reveal how they handle those discussions.`\
+https://nytimes.com/athletic/6300458/2025/04/23/nfl-draft-2025-prospects-character-concerns/
+
 **Commanders 'open to everything' heading into 'interesting' NFL Draft**\
 `Washington's second-year GM Adam Peters isn't limiting his team’s potential paths in this year's draft. `\
 https://nytimes.com/athletic/6300196/2025/04/23/commanders-adam-peters-2025-nfl-draft/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6301207/2025/04/23/oliver-burke-union-berlin-transf
 **Adrienne Adams Lands Two Major Endorsements for N.Y.C. Mayor**\
 `Ms. Adams, the City Council speaker, will receive endorsements from Letitia James, the state attorney general, and from District Council 37, the largest municipal union.`\
 https://nytimes.com/2025/04/23/nyregion/adrienne-adams-endorsements-nyc-mayor.html
-
-**At Elon Musk’s Behest, Voters Cast Ballots for a New Town: Starbase, Texas**\
-`It has been a rough patch for Mr. Musk, but he is about to realize a dream for SpaceX, its employees and for himself, his own town on the southern tip of Texas.`\
-https://nytimes.com/2025/04/23/us/elon-musk-town-starbase-texas.html
-
-**Big Law Firms Fighting Trump’s Blacklist Seek Quick and Permanent Relief**\
-`Perkins Coie and WilmerHale hope to convince a pair of federal judges on Wednesday that President Trump’s threats to their business are blatantly unconstitutional.`\
-https://nytimes.com/2025/04/23/us/politics/big-law-firms-trump.html
 
