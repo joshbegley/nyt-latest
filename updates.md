@@ -1,3 +1,11 @@
+**Aston Villa and Unai Emery left cursing an all too familiar sting in the tail**\
+`Only rock-bottom Southampton have conceded more stoppage-time goals this season with the late concession at the Etihad particularly damaging`\
+https://nytimes.com/athletic/6300259/2025/04/23/aston-villa-emery-city-stoppage-time/
+
+**Word of the Day: tetchy**\
+`This word has appeared in 37 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/04/23/learning/word-of-the-day-tetchy.html
+
 **After missing on Tanner Scott, Cubs reshape bullpen and put together 'a fun team to watch'**\
 `The Cubs coveted Scott this offseason as their closer. Miguel Amaya gave Scott his welcome-to-Wrigleyville-moment anyway.`\
 https://nytimes.com/athletic/6301008/2025/04/23/cubs-reshape-bullpen/
