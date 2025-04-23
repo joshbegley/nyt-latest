@@ -1,3 +1,11 @@
+**Portland Thorns beats Gotham FC behind four first-time goalscorers**\
+`The Thorns’ 4-1 victory boosted them from ninth to fifth place in the NWSL table.`\
+https://nytimes.com/athletic/6301174/2025/04/23/portland-thorns-gotham-result-goals/
+
+**Pope Francis’ Coffin Is Moved to St. Peter’s Square in Solemn Procession**\
+`Crowds flocked to pay their respects and bid farewell to the pontiff, who died on Monday at the age of 88.`\
+https://nytimes.com/2025/04/23/world/europe/pope-francis-procession-st-peters.html
+
 **Dortmund’s Guirassy leads Champions League top scorer odds, Dembélé lurks**\
 `Brett Koremenos has a look at the Champions League top scorer odds ahead of the semi-finals.
 `\
@@ -30,12 +38,4 @@ https://nytimes.com/2025/04/23/crosswords/spelling-bee-forum.html
 **Ja Morant rediscovering his 'loud' greatness may be Grizzlies' only chance vs. OKC**\
 `Morant's cocky attitude isn’t a detriment for the Grizzlies. It’s a key ingredient in what makes them who they are.`\
 https://nytimes.com/athletic/6301097/2025/04/23/grizzlies-ja-morant-loud-greatness/
-
-**Aston Villa and Unai Emery left cursing an all too familiar sting in the tail**\
-`Only rock-bottom Southampton have conceded more stoppage-time goals this season with the late concession at the Etihad particularly damaging`\
-https://nytimes.com/athletic/6300259/2025/04/23/aston-villa-emery-city-stoppage-time/
-
-**Word of the Day: tetchy**\
-`This word has appeared in 37 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/04/23/learning/word-of-the-day-tetchy.html
 

@@ -28,6 +28,11 @@ https://nytimes.com/athletic/6299264/2025/04/23/champions-league-top-scorer-odds
 `\
 https://nytimes.com/athletic/6299264/2025/04/23/champions-league-top-scorer-odds-betting-tips/
 
+**Dortmund’s Guirassy leads Champions League top scorer odds, Dembélé lurks**\
+`Brett Koremenos has a look at the Champions League top scorer odds ahead of the semi-finals.
+`\
+https://nytimes.com/athletic/6299264/2025/04/23/champions-league-top-scorer-odds-betting-tips/
+
 **What Do You Look for in an Apartment? Tell Us About It.**\
 `As the busy summer rental season approaches, The New York Times wants to hear your must-haves and absolutely-nots when you’re looking for a place to live.`\
 https://nytimes.com/2025/04/23/nyregion/apartment-hunting-new-york-city.html
