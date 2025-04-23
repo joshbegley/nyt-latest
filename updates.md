@@ -1,3 +1,15 @@
+**Should the Maple Leafs change their lineup for Game 3?**\
+`The Maple Leafs may be up 2-0, but there are legitimate reasons to change course as the series shifts to Ottawa for Games 3 and 4.`\
+https://nytimes.com/athletic/6302228/2025/04/23/maple-leafs-lineup-game-3-senators-nhl-playoffs/
+
+**Dominik Hasek says he received death threats from former Russian president**\
+`Hasek, a native of Czechia, has been a vocal critic of Russia’s invasion of Ukraine since it began.`\
+https://nytimes.com/athletic/6302250/2025/04/23/dominik-hasek-russia-threats-medvedev/
+
+**A Roman Gladiator and a Lion Met in Combat. Only One Walked Away.**\
+`A discovery in an English garden led to the first direct evidence that man fought beast to entertain the subjects of the Roman Empire.`\
+https://nytimes.com/2025/04/23/science/lion-gladiator-romans-bones.html
+
 **Bruins GM Don Sweeney outlines plan for active offseason and prompt turnaround: ‘Every mechanism possible’**\
 `“The year we had was a huge disappointment,” team president Cam Neely said on Wednesday. Sweeney's job in fixing that is a big one.`\
 https://nytimes.com/athletic/6302408/2025/04/23/bruins-don-sweeney-offseason-plans/
