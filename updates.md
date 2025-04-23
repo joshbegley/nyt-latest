@@ -1,3 +1,7 @@
+**C.E.O. Steps Down at Discord, the Social Chat App**\
+`Jason Citron was a co-founder of the company, which is said to be working toward an initial public offering at some point this year.`\
+https://nytimes.com/2025/04/23/business/discord-jason-citron.html
+
 **Prelude to a Funeral**\
 `A single image captures the subtle changes in how the Roman Catholic Church buries a pope.`\
 https://nytimes.com/2025/04/23/world/europe/pope-francis-death-vatican-rituals.html

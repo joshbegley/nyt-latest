@@ -1,3 +1,7 @@
+**C.E.O. Steps Down at Discord, the Social Chat App**\
+`Jason Citron was a co-founder of the company, which is said to be working toward an initial public offering at some point this year.`\
+https://nytimes.com/2025/04/23/business/discord-jason-citron.html
+
 **Prelude to a Funeral**\
 `A single image captures the subtle changes in how the Roman Catholic Church buries a pope.`\
 https://nytimes.com/2025/04/23/world/europe/pope-francis-death-vatican-rituals.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/23/us/minnesota-student-aditya-harsono-visa.html
 **Stray Bullet Kills Harlem Woman Who Stepped Outside to Check on Grandson**\
 `Excenia Mette, 61, walked out of her apartment building and into the middle of a shootout. She was an active member of the National Action Network.`\
 https://nytimes.com/2025/04/23/nyregion/harlem-nyc-fatal-shooting-bystander.html
-
-**Trump Takes On Improbable Task in Seeking Trade Deals Across the Globe**\
-`The president’s threats of tariffs have brought countries like Japan, South Korea and India rushing to negotiate, but they have sown chaos with bigger trading partners like China.`\
-https://nytimes.com/2025/04/23/business/economy/trump-tariffs-trade-deals.html
 
