@@ -1,3 +1,7 @@
+**Police Identify Gilgo Victims, a Woman Known as Peaches and Her Child**\
+`The victim was Tanya Denise Jackson, mother of Tatiana Marie Dykes. Their bodies were found on Long Island, near the area where a serial killer operated.`\
+https://nytimes.com/2025/04/23/nyregion/gilgo-beach-victims-woman-child.html
+
 **Barry Benepe, Who Gave New York Its Greenmarkets, Dies at 96**\
 `He brought farm-grown produce to the city’s streets, creating the largest network of farmers’ markets in the country and helping to revive neighborhoods.`\
 https://nytimes.com/2025/04/23/nyregion/barry-benepe-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6301906/2025/04/23/elland-road-expansion-council/
 **Report cards: Grading every Canucks forward's 2024-25 performance**\
 `Which Canucks forwards drove the bus, and who struggled during a disappointing season for the team?`\
 https://nytimes.com/athletic/6301051/2025/04/23/canucks-forwards-2024-25-report-cards/
-
-**Japan**\
-``\
-https://nytimes.com/spotlight/t-mag-japan
 
