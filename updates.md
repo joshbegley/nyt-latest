@@ -1,3 +1,7 @@
+**Barry Benepe, Who Gave New York Its Greenmarkets, Dies at 96**\
+`He brought farm-grown produce to the city’s streets, creating the largest network of farmers’ markets in the country and helping to revive neighborhoods.`\
+https://nytimes.com/2025/04/23/nyregion/barry-benepe-dead.html
+
 **Lorde Dances to Her New Single in Washington Square Park**\
 `The singer summoned fans on her social media to an impromptu performance in Washington Square Park Tuesday night.`\
 https://nytimes.com/video/arts/music/100000010126059/lorde-performance-new-york.html
