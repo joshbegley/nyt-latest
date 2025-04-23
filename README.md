@@ -1,3 +1,7 @@
+**Why the Phillies haven't ordered MRI for Cristopher Sánchez after he exited with arm injury**\
+`Sánchez left Tuesday's game with left forearm soreness. The Phillies believe, for now, they have dodged a significant injury.`\
+https://nytimes.com/athletic/6302379/2025/04/23/cristopher-sanchez-phillies-injury-update/
+
 **Britain Says It Will Not Rush or Alter Standards in U.S. Trade Deal**\
 `The British government is hoping to reach an agreement with the United States to soften the economic blow British businesses are facing from higher tariffs.`\
 https://nytimes.com/2025/04/23/business/britain-us-trade-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/podcasts/100000010126116/chappell-roan-giver-review.ht
 **McIlroy arrives at Zurich Classic after 'amazing' Masters win celebrations**\
 `McIlroy, fresh off celebrating his career Grand Slam, is in New Orleans with partner Shane Lowry to defend their title in the Zurich.`\
 https://nytimes.com/athletic/6302163/2025/04/23/rory-mcilroy-zurich-classic-masters-win/
-
-**A Republican Senator Says It: ‘We Are All Afraid’**\
-`Readers react to the startling admission by Senator Lisa Murkowski of Alaska. Also: Private prisons for immigrants; noise in a Queens neighborhood.`\
-https://nytimes.com/2025/04/23/opinion/senator-lisa-murkowski.html
 
