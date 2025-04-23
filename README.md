@@ -1,3 +1,19 @@
+**NBA Draft early entry tracker: Rutgers freshman Ace Bailey latest entry**\
+`April 26 is the deadline for underclassmen to declare for the NBA Draft on June 25-26.`\
+https://nytimes.com/athletic/6251067/2025/04/23/nba-draft-early-entry-tracker-deadline/
+
+**Aluko says male pundits such as Wright risk blocking female broadcasters**\
+`Aluko said that men needed to be 'aware' that there were limited opportunities for women broadcasters to work in the sport.`\
+https://nytimes.com/athletic/6302455/2025/04/23/eni-aluko-ian-wright-barton-broadcast/
+
+**Solo Show**\
+``\
+https://nytimes.com/column/solo-show
+
+**Sexual abuse watchdog SafeSport fires CEO amid ongoing congressional probe**\
+`Sen. Chuck Grassley recently opened an inquiry into SafeSport’s hiring of an investigator with a long list of sex crime allegations.`\
+https://nytimes.com/athletic/6302756/2025/04/23/safesport-sexual-abuse-watchdog-fires-ceo/
+
 **C.E.O. Steps Down at Discord, the Social Chat App**\
 `Jason Citron was a co-founder of the company, which is said to be working toward an initial public offering at some point this year.`\
 https://nytimes.com/2025/04/23/business/discord-jason-citron.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/04/23/us/highland-park-illinois-shooting-sentencing.htm
 **Evander Kane to make season debut for Oilers in Game 2 vs. Kings**\
 `Kane last played for the Oilers in Game 2 of the Stanley Cup Final on June 10, 2024.`\
 https://nytimes.com/athletic/6302662/2025/04/23/evander-kane-oilers-game-2-nhl-playoffs/
-
-**Jelly Roll Should Be Pardoned for Drug and Robbery Offenses, Board Says**\
-`The Tennessee Board of Parole unanimously determined that the country star should be pardoned, but the decision is in the hands of the governor.`\
-https://nytimes.com/2025/04/23/arts/music/jelly-roll-pardon-tennessee.html
-
-**Trump Offers Private Dinner to Top 220 Investors of His Memecoin**\
-`The offer, which caused President Trump’s memecoin to surge in price, was his family’s latest effort to profit from cryptocurrencies.`\
-https://nytimes.com/2025/04/23/technology/trump-private-dinner-crypto-memecoin.html
-
-**A Life ‘Shattered’: A Minnesota Man Who Lost His Visa Talks About His Detainment**\
-`An Indonesian man with a student visa and an American wife thought he would soon get a green card. Now, he could get deported over a 2022 arrest.`\
-https://nytimes.com/2025/04/23/us/minnesota-student-aditya-harsono-visa.html
-
-**Stray Bullet Kills Harlem Woman Who Stepped Outside to Check on Grandson**\
-`Excenia Mette, 61, walked out of her apartment building and into the middle of a shootout. She was an active member of the National Action Network.`\
-https://nytimes.com/2025/04/23/nyregion/harlem-nyc-fatal-shooting-bystander.html
 
