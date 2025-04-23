@@ -1,3 +1,11 @@
+**Dress to the Nines**\
+`Brandon Koppy makes space for us.`\
+https://nytimes.com/2025/04/22/crosswords/daily-puzzle-2025-04-23.html
+
+**Here’s what happened on Tuesday.**\
+`By The New York Times`\
+https://nytimes.com/live/2025/04/22/us/trump-administration-news/heres-what-happened-on-tuesday
+
 **Members of Congress Visit Graduate Students Being Held in Louisiana**\
 `Five Democrats met with Mahmoud Khalil and Rumeysa Ozturk, who face deportation by the Trump administration.`\
 https://nytimes.com/2025/04/22/us/politics/mahmoud-khalil-rumeysa-ozturk-democrats.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6300303/2025/04/22/mike-patrick-college-nfl-broadca
 **Critics Call Rubio’s Overhaul Plan a Blow to U.S. Values**\
 `A proposed reorganization of the State Department would eliminate an office whose official goal is to build “more democratic, secure, stable, and just societies.”`\
 https://nytimes.com/2025/04/22/us/politics/rubio-state-department-overhaul.html
-
-**What to Know About the Legal Battle Over a North Carolina Supreme Court Race**\
-`The Republican challenger has embarked on an extraordinary effort to reverse his election loss that critics say is testing the boundaries of post-election litigation.`\
-https://nytimes.com/2025/04/22/us/north-carolina-supreme-court-race-explainer.html
-
-**Trump will not target nonprofits in an executive order, the White House says.**\
-`By Theodore Schleifer`\
-https://nytimes.com/live/2025/04/22/us/trump-administration-news/trump-will-not-target-nonprofits-in-an-executive-order-the-white-house-says
 
