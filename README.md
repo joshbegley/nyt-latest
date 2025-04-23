@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6302777/2025/04/23/atlanta-2026-world-cup-host-usa-
 `Madrid are now four points behind leaders Barca, who they face in the Copa del Rey final on Saturday.`\
 https://nytimes.com/athletic/6302423/2025/04/23/real-madrid-barcelona-la-liga/
 
-**Bruce Arena: Mauricio Pochettino hire as USMNT coach was a mistake**\
+**Bruce Arena questions if Mauricio Pochettino hire as USMNT coach was a mistake**\
 `The national team coach finds himself under fire again, this time from the most successful manager in USMNT history.`\
 https://nytimes.com/athletic/6302971/2025/04/23/bruce-arena-mauricio-pochettino-usmnt/
 
