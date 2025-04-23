@@ -1,3 +1,7 @@
+**Burke to join Union Berlin after Bremen contract expires**\
+`The Scottish forward has been at Bremen since 2022 and 2024-25 has been his best season in German football, scoring six goals.`\
+https://nytimes.com/athletic/6301207/2025/04/23/oliver-burke-union-berlin-transfer/
+
 **Adrienne Adams Lands Two Major Endorsements for N.Y.C. Mayor**\
 `Ms. Adams, the City Council speaker, will receive endorsements from Letitia James, the state attorney general, and from District Council 37, the largest municipal union.`\
 https://nytimes.com/2025/04/23/nyregion/adrienne-adams-endorsements-nyc-mayor.html
