@@ -1,3 +1,11 @@
+**Dress to the Nines**\
+`Brandon Koppy makes space for us.`\
+https://nytimes.com/2025/04/22/crosswords/daily-puzzle-2025-04-23.html
+
+**Here’s what happened on Tuesday.**\
+`By The New York Times`\
+https://nytimes.com/live/2025/04/22/us/trump-administration-news/heres-what-happened-on-tuesday
+
 **Members of Congress Visit Graduate Students Being Held in Louisiana**\
 `Five Democrats met with Mahmoud Khalil and Rumeysa Ozturk, who face deportation by the Trump administration.`\
 https://nytimes.com/2025/04/22/us/politics/mahmoud-khalil-rumeysa-ozturk-democrats.html
