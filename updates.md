@@ -1,3 +1,8 @@
+**Amen Thompson can be counterpunch Rockets need vs. Warriors in Game 2**\
+`Putting the ball in Thompson's hands and encouraging him to attack the core of the Warriors' defense is intriguing.
+`\
+https://nytimes.com/athletic/6299421/2025/04/23/rockets-warriors-game-2-amen-thompson/
+
 **Istanbul Residents Flood Streets After Powerful Earthquake**\
 `According to an initial assessment by the U.`\
 https://nytimes.com/video/world/middleeast/100000010125776/istanbul-turkey-earthquake.html
