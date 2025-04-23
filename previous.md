@@ -1,3 +1,7 @@
+**Celtics star Jayson Tatum out for Game 2 vs. Magic with wrist injury**\
+`Celtics coach Joe Mazzulla said Tatum will be considered “day to day” with his wrist injury moving forward.`\
+https://nytimes.com/athletic/6303197/2025/04/23/celtics-jayson-tatum-out-for-game-2/
+
 **NFL Draft best bets: 7 predictions for the first round**\
 `Austin Mock has seven bets lined up for Thursday's NFL Draft. Will Ashton Jeanty fall outside the first six picks?`\
 https://nytimes.com/athletic/6302889/2025/04/23/nfl-draft-best-bets-jeanty/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/23/us/politics/trump-approval-rating.html
 **U.S. Pushed a Ukraine Peace Plan That Favored Russia**\
 `Also, major endorsements jolted the New York City mayoral race. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/04/23/briefing/us-ukraine-peace-plan-new-york-city-mayor.html
-
-**How Safe Are Helicopter Sightseeing Tours?**\
-`The F.A.A. allows many of these popular flights to operate under less stringent rules than other commercial aviation, opening the door to dangers like pilot fatigue.`\
-https://nytimes.com/2025/04/23/travel/helicopter-sightseeing-tours-regulations-safety.html
 

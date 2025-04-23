@@ -1,3 +1,7 @@
+**Celtics star Jayson Tatum out for Game 2 vs. Magic with wrist injury**\
+`Celtics coach Joe Mazzulla said Tatum will be considered “day to day” with his wrist injury moving forward.`\
+https://nytimes.com/athletic/6303197/2025/04/23/celtics-jayson-tatum-out-for-game-2/
+
 **NFL Draft best bets: 7 predictions for the first round**\
 `Austin Mock has seven bets lined up for Thursday's NFL Draft. Will Ashton Jeanty fall outside the first six picks?`\
 https://nytimes.com/athletic/6302889/2025/04/23/nfl-draft-best-bets-jeanty/
