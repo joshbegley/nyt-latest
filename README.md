@@ -30,8 +30,8 @@ https://nytimes.com/2025/04/23/arts/music/jelly-roll-pardon-tennessee.html
 `The offer, which caused President Trump’s memecoin to surge in price, was his family’s latest effort to profit from cryptocurrencies.`\
 https://nytimes.com/2025/04/23/technology/trump-private-dinner-crypto-memecoin.html
 
-**A Life ‘Shattered’: A Student Who Lost His Visa Opens Up About His Detainment**\
-`A Minnesota man from Indonesia who is married to a U.S. citizen thought he would soon get a green card. Now, he could get deported over a 2022 arrest.`\
+**A Life ‘Shattered’: A Minnesota Man Who Lost His Visa Talks About His Detainment**\
+`An Indonesian man with a student visa and an American wife thought he would soon get a green card. Now, he could get deported over a 2022 arrest.`\
 https://nytimes.com/2025/04/23/us/minnesota-student-aditya-harsono-visa.html
 
 **Stray Bullet Kills Harlem Woman Who Stepped Outside to Check on Grandson**\
