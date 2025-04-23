@@ -1,3 +1,7 @@
+**A Life ‘Shattered’: A Minnesota Man Who Lost His Visa Talks About His Detainment**\
+`An Indonesian man with a student visa and an American wife thought he would soon get a green card. Now, he could get deported over a 2022 arrest.`\
+https://nytimes.com/2025/04/23/us/minnesota-student-aditya-harsono-visa.html
+
 **C.E.O. Steps Down at Discord, the Social Chat App**\
 `Jason Citron was a co-founder of the company, which is said to be working toward an initial public offering at some point this year.`\
 https://nytimes.com/2025/04/23/business/discord-jason-citron.html
