@@ -1,3 +1,11 @@
+**Cardinals commit more playing time to Nolan Gorman as key double snaps 5-game skid**\
+`Gorman delivered a go-ahead three-run double in the eighth inning against the Braves.`\
+https://nytimes.com/athletic/6299786/2025/04/23/cardinals-win-nolan-gorman-braves/
+
+**Byron Buxton's spectacular catch saves Twins from another late breakdown**\
+`With the Twins once again on the precipice of disaster, Buxton did his best Superman impression to save the game in the top of the ninth.`\
+https://nytimes.com/athletic/6300855/2025/04/23/twins-byron-buxton-saves-victory/
+
 **Byron Buxton's spectacular catch saves Twins from another late breakdown**\
 `With the Twins once again on the precipice of disaster, Buxton did his best Superman impression to save the game in the bottom of the ninth.`\
 https://nytimes.com/athletic/6300855/2025/04/23/twins-byron-buxton-saves-victory/
