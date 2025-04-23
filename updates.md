@@ -1,3 +1,11 @@
+**Karen Durbin, 80, Dies; ‘Fearless’ Feminist Who Edited The Village Voice**\
+`A fierce advocate of sexual liberation, she pushed the alternative weekly to cover women’s issues, as well as gay rights and avant-garde culture.`\
+https://nytimes.com/2025/04/23/business/media/karen-durbin-dead.html
+
+**Falcons' phone lines are open as they search for an NFL Draft trade partner**\
+`The Falcons won't necessarily take a defensive player with their first pick in the 2025 NFL Draft, GM Terry Fontenot said.`\
+https://nytimes.com/athletic/6302075/2025/04/23/falcons-nfl-draft-trade-possibilities/
+
 **Lions, Chargers to play in NFL's Hall of Fame Game on July 31**\
 `The game will take place ahead of the Aug. 2 enshrinement ceremony that sees Antonio Gates and three others inducted to the Hall of Fame.`\
 https://nytimes.com/athletic/6301754/2025/04/23/nfl-hall-of-fame-game-lions-chargers/

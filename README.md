@@ -1,3 +1,15 @@
+**YouTube at 20: From ‘Lazy Sunday’ to ‘Hot Ones’**\
+`The video-streaming platform has revolutionized how we watch things. Here’s a timeline of its biggest moments.`\
+https://nytimes.com/2025/04/23/technology/youtube-20th-anniversary-timeline.html
+
+**The Dispatch Buys SCOTUSblog, a Supreme Court Mainstay**\
+`The Dispatch, a right-of-center political news and commentary start-up, plans to keep the legal news website available at no cost. Terms of the deal were not disclosed.`\
+https://nytimes.com/2025/04/23/business/media/scotusblog-the-dispatch.html
+
+**Jay Feely, former NFL kicker, to run for office in Arizona**\
+`Feely said it was the July assassination attempt on Trump in Pennsylvania that inspired him to run for office.`\
+https://nytimes.com/athletic/6302252/2025/04/23/jay-feely-political-run-arizona/
+
 **Karen Durbin, 80, Dies; ‘Fearless’ Feminist Who Edited The Village Voice**\
 `A fierce advocate of sexual liberation, she pushed the alternative weekly to cover women’s issues, as well as gay rights and avant-garde culture.`\
 https://nytimes.com/2025/04/23/business/media/karen-durbin-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/arts/music/100000010126059/lorde-performance-new-york.
 **Jordan Cracks Down on Muslim Brotherhood**\
 `The Arab monarchy had already taken steps toward disbanding the Islamist group in a 2020 court decision, but said it would now move to completely ban its activities.`\
 https://nytimes.com/2025/04/23/world/middleeast/jordan-muslim-brotherhood.html
-
-**WATCH: The 'Scoop City' NFL Draft Preview live show: Giants, Sanders, Ward and more**\
-`NFL insider Dianna Russini and former NFL QB Chase Daniel discuss the latest draft developments.`\
-https://nytimes.com/athletic/6301823/2025/04/23/nfl-draft-live-show-sanders-ward-hunter-video/
-
-**The Bounce: Luka Dončić, Lakers even series with Wolves as Pacers, Thunder take 2-0 leads**\
-`The Lakers evened their first-round series against the Timberwolves as the Pacers, Thunder moved closer to the second round`\
-https://nytimes.com/athletic/6302033/2025/04/23/luka-doncic-lebron-james-lakers-timberwolves-pacers-thunders-nba-the-bounce/
-
-**Durbin, No. 2 Senate Democrat, to Retire After 44 Years in Congress**\
-`Senator Richard J. Durbin’s departure will set off a primary for a rare open Senate seat in Illinois and open a top leadership slot. He said it was time to “face reality” and make way for someone new.`\
-https://nytimes.com/2025/04/23/us/dick-durbin-retires-senate.html
 
