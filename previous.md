@@ -1,6 +1,14 @@
+**For the slow-starting Bucks, it's getting late early in these playoffs**\
+`Milwaukee is down 0-2 to the Pacers because it has consistently been late and a step behind during this first-round series so far.`\
+https://nytimes.com/athletic/6300981/2025/04/23/bucks-playoffs-game-2-defense-loss/
+
 **Colin Cowherd met with ESPN before re-signing with Fox: Sources**\
 `In recent years, ESPN and Fox have been in a tug-of-war for premier on-air broadcasters.`\
 https://nytimes.com/athletic/6301599/2025/04/23/colin-cowherd-espn-fox-sports-talk-show/
+
+**While Kirill Kaprizov and Matt Boldy put on another show, Ryan Hartman makes his presence felt**\
+`Kaprizov and Boldy combined for three goals and two assists in Game 2, but Hartman was the catalyst behind the Wild's 5-2 win.`\
+https://nytimes.com/athletic/6301187/2025/04/23/wild-kaprizov-boldy-hartman-golden-knights-nhl/
 
 **Landen Roupp, Tyler Anderson and more fantasy baseball targets with a dominating pitch**\
 `Michael Salfino looks at an oft-available starter and reliever who have a bread-and-butter pitch that could lead them to bigger things.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/23/style/prenuptial-agreements-legal-bill.html
 **Istanbul Residents Flood Streets After Powerful Earthquake**\
 `According to an initial assessment by the U.`\
 https://nytimes.com/video/world/middleeast/100000010125776/istanbul-turkey-earthquake.html
-
-**Islanders president and GM candidates: Who could replace Lou Lamoriello?**\
-`Here are 16 candidates of varying degrees of experience who could fit what the Islanders are looking for.`\
-https://nytimes.com/athletic/6300441/2025/04/23/islanders-lou-lamoriello-president-gm-candidates/
-
-**Investors Prefer the ‘Nice’ Trump, but Want Results**\
-`Global markets are rebounding as the president softened his protectionist rhetoric and his criticism of the central bank. But investors want to see results on trade.`\
-https://nytimes.com/2025/04/23/business/dealbook/nice-trump-tariffs-results.html
 

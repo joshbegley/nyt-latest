@@ -1,3 +1,11 @@
+**For the slow-starting Bucks, it's getting late early in these playoffs**\
+`Milwaukee is down 0-2 to the Pacers because it has consistently been late and a step behind during this first-round series so far.`\
+https://nytimes.com/athletic/6300981/2025/04/23/bucks-playoffs-game-2-defense-loss/
+
+**While Kirill Kaprizov and Matt Boldy put on another show, Ryan Hartman makes his presence felt**\
+`Kaprizov and Boldy combined for three goals and two assists in Game 2, but Hartman was the catalyst behind the Wild's 5-2 win.`\
+https://nytimes.com/athletic/6301187/2025/04/23/wild-kaprizov-boldy-hartman-golden-knights-nhl/
+
 **Colin Cowherd met with ESPN before re-signing with Fox: Sources**\
 `In recent years, ESPN and Fox have been in a tug-of-war for premier on-air broadcasters.`\
 https://nytimes.com/athletic/6301599/2025/04/23/colin-cowherd-espn-fox-sports-talk-show/
