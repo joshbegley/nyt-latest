@@ -1,3 +1,12 @@
+**Pope Francis’ Coffin Is Moved to St. Peter’s in Solemn Procession**\
+`Crowds flocked to pay their respects and bid farewell to the pontiff, who died on Monday at the age of 88.`\
+https://nytimes.com/2025/04/23/world/europe/pope-francis-coffin-lying-in-state-st-peters.html
+
+**Dortmund’s Guirassy leads Champions League top scorer odds, Dembélé lurks**\
+`Brett Koremenos has a look at the Champions League top scorer odds ahead of the semi-finals.
+`\
+https://nytimes.com/athletic/6299264/2025/04/23/champions-league-top-scorer-odds-betting-tips/
+
 **Dortmund’s Guirassy leads Champions League top scorer odds, Dembélé lurks**\
 `Brett Koremenos has a look at the Champions League top scorer odds ahead of the semi-finals.
 `\

@@ -1,3 +1,7 @@
+**Wildfire Rages in Southern New Jersey**\
+`Thick plumes of smoke rose into the sky as flames engulfed the heavily forested Pine Barrens section of southern New Jersey.`\
+https://nytimes.com/video/us/100000010125408/wildfire-new-jersey-ocean-county.html
+
 **Portland Thorns beats Gotham FC behind four first-time goalscorers**\
 `The Thorns’ 4-1 victory boosted them from ninth to fifth place in the NWSL table.`\
 https://nytimes.com/athletic/6301174/2025/04/23/portland-thorns-gotham-result-goals/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/04/23/insider/white-house-reporting.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/04/23/crosswords/spelling-bee-forum.html
-
-**Ja Morant rediscovering his 'loud' greatness may be Grizzlies' only chance vs. OKC**\
-`Morant's cocky attitude isn’t a detriment for the Grizzlies. It’s a key ingredient in what makes them who they are.`\
-https://nytimes.com/athletic/6301097/2025/04/23/grizzlies-ja-morant-loud-greatness/
 
