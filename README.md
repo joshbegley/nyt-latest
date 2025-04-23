@@ -1,3 +1,7 @@
+**Cardinals commit more playing time to Nolan Gorman as key double snaps 5-game skid**\
+`Gorman delivered a go-ahead three-run double in the eighth inning against the Braves.`\
+https://nytimes.com/athletic/6299786/2025/04/23/cardinals-win-nolan-gorman-braves/
+
 **Byron Buxton's spectacular catch saves Twins from another late breakdown**\
 `With the Twins once again on the precipice of disaster, Buxton did his best Superman impression to save the game in the bottom of the ninth.`\
 https://nytimes.com/athletic/6300855/2025/04/23/twins-byron-buxton-saves-victory/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6300834/2025/04/23/braves-scott-blewett-spencer-str
 **Liverpool, Man Utd and why '20 times' is so significant**\
 `United ignored the warnings from history – both Liverpool’s and their own – and have seen their record number of league titles hauled in`\
 https://nytimes.com/athletic/6291817/2025/04/23/liverpool-manchester-united-20-league-titles-and-the-battle-to-be-englands-most-successful-club/
-
-**The BookKeeper - Exploring Tottenham Hotspur's finances and their reduced spending power**\
-`Spurs' finances suggest the summer budget is unlikely to match that of recent seasons`\
-https://nytimes.com/athletic/6131036/2025/04/23/bookkeeper-tottenham-hotspur/
 
