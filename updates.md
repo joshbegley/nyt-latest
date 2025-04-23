@@ -1,3 +1,12 @@
+**Ansu Fati, Barcelona and the one-time saviour's schlep back into the first-team reckoning**\
+`The forward had not started since October and managed only four minutes since January, but there was promise in his display against Mallorca`\
+https://nytimes.com/athletic/6300573/2025/04/23/ansu-fati-barcelona-flick/
+
+**Dortmund’s Guirassy leads Champions League top scorer odds, Dembélé lurks**\
+`Brett Koremenos has a look at the Champions League top scorer odds ahead of the semi-finals.
+`\
+https://nytimes.com/athletic/6299264/2025/04/23/champions-league-top-scorer-odds-betting-tips/
+
 **Dortmund’s Guirassy leads Champions League top scorer odds, Dembélé lurks**\
 `Brett Koremenos has a look at the Champions League top scorer odds ahead of the semi-finals.
 `\

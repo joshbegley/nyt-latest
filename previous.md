@@ -1,3 +1,7 @@
+**Ansu Fati, Barcelona and the one-time saviour's schlep back into the first-team reckoning**\
+`The forward had not started since October and managed only four minutes since January, but there was promise in his display against Mallorca`\
+https://nytimes.com/athletic/6300573/2025/04/23/ansu-fati-barcelona-flick/
+
 **Pope Francis’ Coffin Is Brought to St. Peter’s Basilica**\
 `A long procession carried the pope’s coffin from his residency at the Vatican to St. Peter’s Square, where crowds had gathered to pay their respects.`\
 https://nytimes.com/video/world/europe/100000010125601/pope-francis-coffin-st-peters.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/04/23/learning/shocking-television-deaths.html
 **Cuomo’s Campaign Strategy: Limit Appearances and Avoid Confrontation**\
 `Former Gov. Andrew Cuomo is embracing a so-called Rose Garden strategy in his tightly controlled campaign for mayor of New York City.`\
 https://nytimes.com/2025/04/23/nyregion/cuomo-mayor-campaign-strategy.html
-
-**Weinstein’s Retrial to Begin, Testing Legacy of #MeToo Movement**\
-`Prosecutors and defense lawyers are expected to make opening statements Wednesday in the sex-crime case of the fallen mogul Harvey Weinstein.`\
-https://nytimes.com/2025/04/23/nyregion/weinstein-retrial-opening-statements.html
 
