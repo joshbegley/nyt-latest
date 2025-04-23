@@ -1,3 +1,11 @@
+**Club World Cup to be broadcast on Channel 5 in UK**\
+`The free-to-air channel will show 23 of the newly-expanded tournament's 63 matches live.`\
+https://nytimes.com/athletic/6301717/2025/04/23/club-world-cup-tv-channel-uk/
+
+**The New York Giants, with their first pick in the 2025 NFL Draft, select ...**\
+`The Giants entered the offseason determined to find their QB of the future. Will they find that player at No. 3?`\
+https://nytimes.com/athletic/6300874/2025/04/23/new-york-giants-nfl-draft-2025-prediction/
+
 **For the slow-starting Bucks, it's getting late early in these playoffs**\
 `Milwaukee is down 0-2 to the Pacers because it has consistently been late and a step behind during this first-round series so far.`\
 https://nytimes.com/athletic/6300981/2025/04/23/bucks-playoffs-game-2-defense-loss/
