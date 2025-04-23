@@ -1,3 +1,11 @@
+**Climate Activists Interrupt New York City Ballet Performance**\
+`Protesters interrupted an all-Balanchine program on the company’s spring season opening night, which coincided this year with Earth Day.`\
+https://nytimes.com/2025/04/22/arts/dance/nyc-ballet-climate-activists.html
+
+**Travis Hunter's father receives permission to attend 2025 NFL Draft**\
+`Hunter's father is serving probation and could not attend the Heisman Trophy presentation where his son received the award.`\
+https://nytimes.com/athletic/6300690/2025/04/22/travis-hunter-father-2025-nfl-draft/
+
 **Leafs salvage win in Game 2 with Max Domi OT winner: Takeaways**\
 `Morgan Rielly and John Tavares scored first-period goals and Max Domi sent Scotiabank Arena into a frenzy with his overtime winner.`\
 https://nytimes.com/athletic/6300291/2025/04/22/maple-leafs-senators-game-2-nhl-playoffs/
