@@ -1,3 +1,11 @@
+**Jordan Announced a Sweeping Ban on the Muslim Brotherhood. Here’s What to Know.**\
+`The move could shutter the country’s largest opposition party, the Islamic Action Front, which is the Brotherhood’s political arm in Jordan.`\
+https://nytimes.com/2025/04/23/world/middleeast/muslim-brotherhood-explainer.html
+
+**Guler scores as Real close gap on Barca, but Alaba, Camavinga serious doubts for Clasico**\
+`Madrid are now four points behind leaders Barca, who they face in the Copa del Rey final on Saturday.`\
+https://nytimes.com/athletic/6302423/2025/04/23/real-madrid-barcelona-la-liga/
+
 **Trump’s Approval Rating Has Been Falling Steadily, Polling Average Shows**\
 `President Trump’s approval rating has sunk to about 45 percent, down from 52 percent one week after he took office.`\
 https://nytimes.com/2025/04/23/us/politics/trump-approval-rating.html

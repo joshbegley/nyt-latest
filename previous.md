@@ -1,3 +1,7 @@
+**Jordan Announced a Sweeping Ban on the Muslim Brotherhood. Here’s What to Know.**\
+`The move could shutter the country’s largest opposition party, the Islamic Action Front, which is the Brotherhood’s political arm in Jordan.`\
+https://nytimes.com/2025/04/23/world/middleeast/muslim-brotherhood-explainer.html
+
 **Trump’s Approval Rating Has Been Falling Steadily, Polling Average Shows**\
 `President Trump’s approval rating has sunk to about 45 percent, down from 52 percent one week after he took office.`\
 https://nytimes.com/2025/04/23/us/politics/trump-approval-rating.html
@@ -14,7 +18,7 @@ https://nytimes.com/2025/04/23/travel/helicopter-sightseeing-tours-regulations-s
 `Recent experience staging major events puts many of the key infrastructure pieces in place for 2026 World Cup host Atlanta.`\
 https://nytimes.com/athletic/6302777/2025/04/23/atlanta-2026-world-cup-host-usa-preparation-fifa/
 
-**Guler scores as Madrid close gap on Barca, but Alaba, Camavinga doubts for Clasico**\
+**Guler scores as Real close gap on Barca, but Alaba, Camavinga serious doubts for Clasico**\
 `Madrid are now four points behind leaders Barca, who they face in the Copa del Rey final on Saturday.`\
 https://nytimes.com/athletic/6302423/2025/04/23/real-madrid-barcelona-la-liga/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6302989/2025/04/23/rangers-chris-drury-extension/
 **AC Milan ends Inter's treble quest, keeps own trophy hopes alive**\
 `AC Milan will play for the Coppa Italia title after dismantling city rival Inter thanks to a Luka Jović double.`\
 https://nytimes.com/athletic/6302928/2025/04/23/ac-milan-coppa-italia-semifinals-inter-jovic/
-
-**The Briefing: Arsenal 2 Palace 2 - Towering Kiwior, sloppy Saliba, Trossard's confidence boost**\
-`Arsenal drew for the 13th time this season in letting a lead slip twice against Palace - The Athletic analyses the talking points `\
-https://nytimes.com/athletic/6301450/2025/04/23/arsenal-2-crystal-palace-2-kiwior-saliba-trossard/
 
