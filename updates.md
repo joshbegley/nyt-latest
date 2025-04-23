@@ -1,3 +1,23 @@
+**Prelude to a Funeral**\
+`A single image captures the subtle changes in how the Roman Catholic Church buries a pope.`\
+https://nytimes.com/2025/04/23/world/europe/pope-francis-death-vatican-rituals.html
+
+**Marco Grassi, Who Brought Old Paintings Back to Life, Dies at 90**\
+`As a restorer who specialized in late medieval and early Renaissance paintings from Italy, he was in intimate touch with the paintings of long-dead masters.`\
+https://nytimes.com/2025/04/23/arts/marco-grassi-dead.html
+
+**Jake Guentzel’s big-game pedigree adds fuel to Lightning’s Stanley Cup chase**\
+`Guentzel, among the best postseason players of his generation, has provided Tampa Bay with an invaluable asset.`\
+https://nytimes.com/athletic/6302092/2025/04/23/lightning-panthers-jake-guentzel-nhl-playoffs/
+
+**‘Utter Chaos’: Witnesses Recall Deadly Shooting at Annual Parade**\
+`Residents of a Chicago suburb described their memories of the day and its lasting effects on their lives during a sentencing hearing for the man responsible. He was absent.`\
+https://nytimes.com/2025/04/23/us/highland-park-illinois-shooting-sentencing.html
+
+**Evander Kane to make season debut for Oilers in Game 2 vs. Kings**\
+`Kane last played for the Oilers in Game 2 of the Stanley Cup Final on June 10, 2024.`\
+https://nytimes.com/athletic/6302662/2025/04/23/evander-kane-oilers-game-2-nhl-playoffs/
+
 **Jelly Roll Should Be Pardoned for Drug and Robbery Offenses, Board Says**\
 `The Tennessee Board of Parole unanimously determined that the country star should be pardoned, but the decision is in the hands of the governor.`\
 https://nytimes.com/2025/04/23/arts/music/jelly-roll-pardon-tennessee.html

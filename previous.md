@@ -1,3 +1,23 @@
+**Prelude to a Funeral**\
+`A single image captures the subtle changes in how the Roman Catholic Church buries a pope.`\
+https://nytimes.com/2025/04/23/world/europe/pope-francis-death-vatican-rituals.html
+
+**Marco Grassi, Who Brought Old Paintings Back to Life, Dies at 90**\
+`As a restorer who specialized in late medieval and early Renaissance paintings from Italy, he was in intimate touch with the paintings of long-dead masters.`\
+https://nytimes.com/2025/04/23/arts/marco-grassi-dead.html
+
+**Jake Guentzel’s big-game pedigree adds fuel to Lightning’s Stanley Cup chase**\
+`Guentzel, among the best postseason players of his generation, has provided Tampa Bay with an invaluable asset.`\
+https://nytimes.com/athletic/6302092/2025/04/23/lightning-panthers-jake-guentzel-nhl-playoffs/
+
+**‘Utter Chaos’: Witnesses Recall Deadly Shooting at Annual Parade**\
+`Residents of a Chicago suburb described their memories of the day and its lasting effects on their lives during a sentencing hearing for the man responsible. He was absent.`\
+https://nytimes.com/2025/04/23/us/highland-park-illinois-shooting-sentencing.html
+
+**Evander Kane to make season debut for Oilers in Game 2 vs. Kings**\
+`Kane last played for the Oilers in Game 2 of the Stanley Cup Final on June 10, 2024.`\
+https://nytimes.com/athletic/6302662/2025/04/23/evander-kane-oilers-game-2-nhl-playoffs/
+
 **Jelly Roll Should Be Pardoned for Drug and Robbery Offenses, Board Says**\
 `The Tennessee Board of Parole unanimously determined that the country star should be pardoned, but the decision is in the hands of the governor.`\
 https://nytimes.com/2025/04/23/arts/music/jelly-roll-pardon-tennessee.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/04/23/nyregion/harlem-nyc-fatal-shooting-bystander.html
 **Trump Takes On Improbable Task in Seeking Trade Deals Across the Globe**\
 `The president’s threats of tariffs have brought countries like Japan, South Korea and India rushing to negotiate, but they have sown chaos with bigger trading partners like China.`\
 https://nytimes.com/2025/04/23/business/economy/trump-tariffs-trade-deals.html
-
-**Arthur Fleischer Jr., Prominent Lawyer in Corporate Takeovers, Dies at 92**\
-`He was a top deal maker in the world of mergers and acquisitions, during the 1980s takeover boom and beyond. He also had a keen interest in art.`\
-https://nytimes.com/2025/04/23/business/dealbook/arthur-fleischer-dead.html
-
-**What we know about the football card landscape for the top 2025 NFL draftees**\
-`The players, sets and autographs to target for the 2025 draft class `\
-https://nytimes.com/athletic/6302406/2025/04/23/nfl-draft-rookie-cards-ward-sanders-hunter/
-
-**‘Conclave’ Streaming Numbers Jump After Pope Francis’ Death**\
-`Experts said that the 2024 film accurately portrayed the papal selection process.`\
-https://nytimes.com/2025/04/23/business/conclave-film-streaming-pope-francis.html
-
-**The World Seems to Be Surrendering to Climate Change**\
-`The state of the climate future, Part I.`\
-https://nytimes.com/2025/04/23/opinion/climate-trump-world.html
-
-**How I Describe Myself Politically These Days**\
-`America needs to figure out how to dominate the industries of the future. Call me a “Waymo Democrat.”`\
-https://nytimes.com/2025/04/23/opinion/waymo-democrat-advanced-manufacturing.html
 
