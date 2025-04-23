@@ -1,3 +1,7 @@
+**PWHL announces expansion to Vancouver for 2025-26 season**\
+`The team, which was unveiled as PWHL Vancouver at a news conference on Wednesday, will play at Pacific Coliseum.`\
+https://nytimes.com/athletic/6302038/2025/04/23/pwhl-vancouver-expansion-2025-26-season/
+
 **Should the Maple Leafs change their lineup for Game 3?**\
 `The Maple Leafs may be up 2-0, but there are legitimate reasons to change course as the series shifts to Ottawa for Games 3 and 4.`\
 https://nytimes.com/athletic/6302228/2025/04/23/maple-leafs-lineup-game-3-senators-nhl-playoffs/
