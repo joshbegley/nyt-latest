@@ -1,3 +1,20 @@
+**Time-Saving New Phone Features You May Have Missed**\
+`From photo timers to music identifiers, here are a few new iPhone and Android tools to make your life easier.`\
+https://nytimes.com/2025/04/23/technology/personaltech/iphone-android-phone-updates.html
+
+**The Ugly Historical Echoes of Kennedy’s Comments on Autism**\
+`Kennedy implies that disabled people are a taxpayer burden.`\
+https://nytimes.com/2025/04/23/opinion/kennedy-autism.html
+
+**My Fiancé Wants a Prenup After We Decided We Didn’t Need One. Help!**\
+`A reader feels ambushed after her fiancé resurrected the idea of a prenuptial agreement with only weeks to go until their wedding. Also: He wants to split the legal bill.`\
+https://nytimes.com/2025/04/23/style/prenuptial-agreements-legal-bill.html
+
+**Amen Thompson can be counterpunch Rockets need vs. Warriors in Game 2**\
+`Putting the ball in Thompson's hands and encouraging him to attack the core of the Warriors' defense is intriguing.
+`\
+https://nytimes.com/athletic/6299421/2025/04/23/rockets-warriors-game-2-amen-thompson/
+
 **Amen Thompson can be counterpunch Rockets need vs. Warriors in Game 2**\
 `Putting the ball in Thompson's hands and encouraging him to attack the core of the Warriors' defense is intriguing.
 `\
