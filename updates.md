@@ -1,3 +1,12 @@
+**Investors Prefer the ‘Nice’ Trump, but Want Results**\
+`Global markets are rebounding as the president softened his protectionist rhetoric and his criticism of the central bank. But investors want to see results on trade.`\
+https://nytimes.com/2025/04/23/business/dealbook/nice-trump-tariffs-results.html
+
+**Amen Thompson can be counterpunch Rockets need vs. Warriors in Game 2**\
+`Putting the ball in Thompson's hands and encouraging him to attack the core of the Warriors' defense is intriguing.
+`\
+https://nytimes.com/athletic/6299421/2025/04/23/rockets-warriors-game-2-amen-thompson/
+
 **Amen Thompson can be counterpunch Rockets need vs. Warriors in Game 2**\
 `Putting the ball in Thompson's hands and encouraging him to attack the core of the Warriors' defense is intriguing.
 `\

@@ -1,3 +1,11 @@
+**Istanbul Residents Flood Streets After Powerful Earthquake**\
+`The epicenter of the magnitude 6.2 earthquake was in the Sea of Marmara, which connects the Mediterranean and the Black Sea, some 25 miles southwest of Istanbul. Turkish emergency services reported no immediate major damage or casualties.`\
+https://nytimes.com/video/world/middleeast/100000010125776/istanbul-turkey-earthquake.html
+
+**Islanders president and GM candidates: Who could replace Lou Lamoriello?**\
+`Here are 16 candidates of varying degrees of experience who could fit what the Islanders are looking for.`\
+https://nytimes.com/athletic/6300441/2025/04/23/islanders-lou-lamoriello-president-gm-candidates/
+
 **Investors Prefer the ‘Nice’ Trump, but Want Results**\
 `Global markets are rebounding as the president softened his protectionist rhetoric and his criticism of the central bank. But investors want to see results on trade.`\
 https://nytimes.com/2025/04/23/business/dealbook/nice-trump-tariffs-results.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6299261/2025/04/23/blackhawks-spencer-knight-sam-ri
 **Even Jimmy Snuggerud's dad didn't think he'd look this good for the Blues**\
 `Jimmy Snuggerud scored his first NHL playoff goal in Game 2 on Monday against Winnipeg, playing on his team's top line in his ninth game.`\
 https://nytimes.com/athletic/6296674/2025/04/23/blues-jimmy-snuggerud-rookie-nhl-playoffs/
-
-**Blue Jackets offseason primer: 15 storylines to watch as GM Don Waddell pushes forward**\
-`Columbus made major progress in the standings this season. The sense, however, is that Waddell is not content with slow growth.`\
-https://nytimes.com/athletic/6296070/2025/04/23/blue-jackets-offseason-roster-moves/
-
-**The key to a successful Seahawks draft is about more than the offensive line**\
-`GM John Schneider knows the importance of the trenches, but he hasn't drafted difference-makers there of late. That must change this week.`\
-https://nytimes.com/athletic/6300442/2025/04/23/seahawks-nfl-draft-2025-john-schneider/
 

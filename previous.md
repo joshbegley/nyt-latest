@@ -1,3 +1,7 @@
+**Investors Prefer the ‘Nice’ Trump, but Want Results**\
+`Global markets are rebounding as the president softened his protectionist rhetoric and his criticism of the central bank. But investors want to see results on trade.`\
+https://nytimes.com/2025/04/23/business/dealbook/nice-trump-tariffs-results.html
+
 **Lakers press 'urgency button,' lean all the way in on defense to beat Timberwolves**\
 `"It was just a question of if we were gonna be more physical or not," Luka Dončić said. "And I think we showed that."`\
 https://nytimes.com/athletic/6301238/2025/04/23/lakers-playoffs-game-2-defense/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6296070/2025/04/23/blue-jackets-offseason-roster-mo
 **The key to a successful Seahawks draft is about more than the offensive line**\
 `GM John Schneider knows the importance of the trenches, but he hasn't drafted difference-makers there of late. That must change this week.`\
 https://nytimes.com/athletic/6300442/2025/04/23/seahawks-nfl-draft-2025-john-schneider/
-
-**From steakhouse to Stanley Cup playoffs: Charting Samberg's rise on the Jets' blue line**\
-`Six years ago, Samberg wasn't sure if he wanted to sign his entry-level contract with the Jets yet. Now he's among their best defencemen.`\
-https://nytimes.com/athletic/6299904/2025/04/23/dylan-samberg-winnipeg-jets-nhl-playoffs/
 
