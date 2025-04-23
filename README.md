@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6299786/2025/04/23/cardinals-win-nolan-gorman-braves/
 
 **Byron Buxton's spectacular catch saves Twins from another late breakdown**\
-`With the Twins once again on the precipice of disaster, Buxton did his best Superman impression to save the game in the bottom of the ninth.`\
+`With the Twins once again on the precipice of disaster, Buxton did his best Superman impression to save the game in the top of the ninth.`\
 https://nytimes.com/athletic/6300855/2025/04/23/twins-byron-buxton-saves-victory/
 
 **After the Wildfires, This High School Needed a Campus. It Found a Sears.**\
