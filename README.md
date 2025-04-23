@@ -1,3 +1,7 @@
+**Kennedy Declares ‘Sugar Is Poison’ While Announcing Ban on Food Dyes**\
+`The health secretary is ratcheting up his campaign against the food industry.`\
+https://nytimes.com/2025/04/22/us/politics/rfk-jr-food-dye-ban-sugar.html
+
 **Mike Patrick, longtime college sports and NFL broadcaster, dies at 80**\
 `Mike Patrick, the longtime sports broadcaster whose varied career included calling the first regular-season NFL game ever broadcast on ESPN, died on Sunday, according to a report by ESPN.`\
 https://nytimes.com/athletic/6300303/2025/04/22/mike-patrick-college-nfl-broadcaster-death/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6300220/2025/04/22/shannon-sharpe-rape-lawsuit/
 **Minnesota Sues Trump Administration Over Limits on Transgender Athletes**\
 `The administration has said it would cut federal funds to states that allow trans girls and women to play on girls’ sports teams.`\
 https://nytimes.com/2025/04/22/us/minnesota-trump-transgender-athletes.html
-
-**Celtics' Payton Pritchard wins Sixth Man of the Year**\
-`Pritchard scored more points off the bench than anyone in the NBA this season and made more 3-pointers than any reserve player in history.`\
-https://nytimes.com/athletic/6300262/2025/04/22/payton-pritchard-sixth-man-of-the-year-celtics/
 
