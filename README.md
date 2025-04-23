@@ -1,3 +1,7 @@
+**Tigers vanquish Padres and again prove they aren't to be taken lightly**\
+`The Tigers are 15-10, pitching the lights out and overachieving offensively. No longer cute underdogs, might the Tigers be here to stay?`\
+https://nytimes.com/athletic/6302985/2025/04/23/tigers-defeat-padres/
+
 **India Ramps Up Security in Kashmir Following Deadly Attack**\
 `The attack took place in a picturesque valley popular with Indian travelers. It was the worst assault on civilians in the Indian-administered territory in years, the chief minister of Jammu and Kashmir said.`\
 https://nytimes.com/video/world/asia/100000010127479/kashmir-india-pakistan-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6302777/2025/04/23/atlanta-2026-world-cup-host-usa-
 **Guler scores as Real close gap on Barca, but Alaba, Camavinga serious doubts for Clasico**\
 `Madrid are now four points behind leaders Barca, who they face in the Copa del Rey final on Saturday.`\
 https://nytimes.com/athletic/6302423/2025/04/23/real-madrid-barcelona-la-liga/
-
-**Bruce Arena questions if Mauricio Pochettino hire as USMNT coach was a mistake**\
-`The national team coach finds himself under fire again, this time from the most successful manager in USMNT history.`\
-https://nytimes.com/athletic/6302971/2025/04/23/bruce-arena-mauricio-pochettino-usmnt/
 
