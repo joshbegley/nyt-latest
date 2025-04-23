@@ -1,3 +1,11 @@
+**Ukraine Cease-fire Talks in London Downgraded After Rubio Pulls Out**\
+`Planned diplomatic talks on Wednesday have been scaled back, raising new doubts about progress toward a cease-fire between Russia and Ukraine.`\
+https://nytimes.com/2025/04/23/world/europe/ukraine-cease-fire-talks-london.html
+
+**Feldman: What's the line in discussing NFL Draft prospects' characters? I asked analysts**\
+`Talking about an NFL prospect's character can be a tough balancing ask. NFL draft analysts reveal how they handle those discussions.`\
+https://nytimes.com/athletic/6300458/2025/04/23/nfl-draft-2025-prospects-character-concerns/
+
 **Commanders 'open to everything' heading into 'interesting' NFL Draft**\
 `Washington's second-year GM Adam Peters isn't limiting his team’s potential paths in this year's draft. `\
 https://nytimes.com/athletic/6300196/2025/04/23/commanders-adam-peters-2025-nfl-draft/
