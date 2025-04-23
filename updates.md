@@ -1,3 +1,23 @@
+**Dodgers finally score in double digits, but let 3-run lead slip against Cubs**\
+`The dormant Dodgers offense finally got going and provided a late lead, but the pitching staff couldn't make it count.`\
+https://nytimes.com/athletic/6300939/2025/04/23/dodgers-lose-to-cubs/
+
+**Wednesday Briefing: A Downgrade in Global Growth**\
+`Plus, the next big thing from Japan.`\
+https://nytimes.com/2025/04/23/briefing/global-economy-pope-francis-ukraine-rubio.html
+
+**The New York Times in Print for Wednesday, April 23, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/23/todays-new-york-times
+
+**What Happened to the Francis Revolution?**\
+`Pope Francis proved to be far more cautious and conservative than many progressive Catholics had hoped for.`\
+https://nytimes.com/2025/04/23/opinion/pope-francis-death-legacy.html
+
+**Haliburton 'not worried' after being voted NBA's most overrated player**\
+`Pacers have a 2-0 series lead over the Bucks, where Haliburton is averaging 15.5 points, 12.0 assists and 6.0 rebounds per game.`\
+https://nytimes.com/athletic/6300950/2025/04/23/tyrese-haliburton-nba-most-overrated-player-poll/
+
 **Cardinals commit more playing time to Nolan Gorman as key double snaps 5-game skid**\
 `Gorman delivered a go-ahead three-run double in the eighth inning against the Braves.`\
 https://nytimes.com/athletic/6299786/2025/04/23/cardinals-win-nolan-gorman-braves/
