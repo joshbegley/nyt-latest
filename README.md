@@ -1,3 +1,15 @@
+**Time-Saving New Phone Features You May Have Missed**\
+`From photo timers to music identifiers, here are a few new iPhone and Android tools to make your life easier.`\
+https://nytimes.com/2025/04/23/technology/personaltech/iphone-android-phone-updates.html
+
+**The Ugly Historical Echoes of Kennedy’s Comments on Autism**\
+`Kennedy implies that disabled people are a taxpayer burden.`\
+https://nytimes.com/2025/04/23/opinion/kennedy-autism.html
+
+**My Fiancé Wants a Prenup After We Decided We Didn’t Need One. Help!**\
+`A reader feels ambushed after her fiancé resurrected the idea of a prenuptial agreement with only weeks to go until their wedding. Also: He wants to split the legal bill.`\
+https://nytimes.com/2025/04/23/style/prenuptial-agreements-legal-bill.html
+
 **Istanbul Residents Flood Streets After Powerful Earthquake**\
 `According to an initial assessment by the U.`\
 https://nytimes.com/video/world/middleeast/100000010125776/istanbul-turkey-earthquake.html
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/6299740/2025/04/23/bruins-don-sweeney-trades-free-a
 **What the spring transfer portal window has told us about these unsettled QB situations**\
 `Why did Steve Angeli leave Notre Dame? Why is Syracuse in the market for a transfer? What's up at North Carolina? `\
 https://nytimes.com/athletic/6300148/2025/04/23/college-football-spring-transfer-portal-quarterback/
-
-**The Draft Files: 11 thoughts analyzing the Bills as they prepare for the 2025 NFL Draft**\
-`One final analysis before the big weekend.`\
-https://nytimes.com/athletic/6300659/2025/04/23/buffalo-bills-2025-nfl-draft-analysis-strategy-brandon-beane/
-
-**Blackhawks end-of-season grades: Spencer Knight, Sam Rinzel excelled as late additions**\
-`The Blackhawks overhauled their back end this season. In part two of our player grades, we evaluate those defensemen and goalies.`\
-https://nytimes.com/athletic/6299261/2025/04/23/blackhawks-spencer-knight-sam-rinzel-defense-goalies/
-
-**Even Jimmy Snuggerud's dad didn't think he'd look this good for the Blues**\
-`Jimmy Snuggerud scored his first NHL playoff goal in Game 2 on Monday against Winnipeg, playing on his team's top line in his ninth game.`\
-https://nytimes.com/athletic/6296674/2025/04/23/blues-jimmy-snuggerud-rookie-nhl-playoffs/
 
