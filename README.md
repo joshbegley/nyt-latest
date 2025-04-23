@@ -1,3 +1,23 @@
+**Commanders 'open to everything' heading into 'interesting' NFL Draft**\
+`Washington's second-year GM Adam Peters isn't limiting his team’s potential paths in this year's draft. `\
+https://nytimes.com/athletic/6300196/2025/04/23/commanders-adam-peters-2025-nfl-draft/
+
+**The rise of Cam Ward: From 'overweight' and overlooked to the likely No. 1 pick**\
+`"No one wanted him." How Ward let outsiders' doubt fuel his rise from a no-star recruit to becoming the future face of an NFL franchise.`\
+https://nytimes.com/athletic/6281253/2025/04/23/cam-ward-nfl-draft-rise/
+
+**How can the Bengals add picks? Hendrickson, Pratt, Round 1 trades all on the table**\
+`Cincinnati's wants and needs outnumber its six draft picks. Duke Tobin says the team is considering options to add more.`\
+https://nytimes.com/athletic/6300582/2025/04/23/cincinnati-bengals-nfl-draft-trade-for-picks/
+
+**The New York Times International Edition in Print for Thursday, April 24, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/04/23/todays-new-york-times-international-edition
+
+**What to Know About the Tensions Over Kashmir**\
+`A terrorist attack in the disputed territory in 2019 brought India and Pakistan to the verge of war. There are fears Tuesday’s violence could do the same.`\
+https://nytimes.com/2025/04/23/world/asia/kashmir-terrorist-attack-explainer.html
+
 **Syria’s Jihadist-Turned-President Seeks New Allies**\
 `In an interview with The New York Times, President Ahmed al-Shara urged the United States to lift sanctions and alluded to the possibility of future military support from Russia and Turkey.`\
 https://nytimes.com/2025/04/23/world/middleeast/syria-president-al-shara-interview.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/04/23/us/elon-musk-town-starbase-texas.html
 **Big Law Firms Fighting Trump’s Blacklist Seek Quick and Permanent Relief**\
 `Perkins Coie and WilmerHale hope to convince a pair of federal judges on Wednesday that President Trump’s threats to their business are blatantly unconstitutional.`\
 https://nytimes.com/2025/04/23/us/politics/big-law-firms-trump.html
-
-**Trump Says He Won’t Fire Powell. His Fed Battle May Not Be Over Yet.**\
-`The president said he has “no intention” of ousting Jerome H. Powell, the Fed chair, but the administration’s willingness to challenge norms regarding the central bank’s political independence is causing concern.`\
-https://nytimes.com/2025/04/23/us/politics/trump-says-he-wont-fire-powell-his-fed-battle-may-not-be-over-yet.html
-
-**After Pope Francis: A Round Table With David French**\
-`Three religious thinkers on the state of Catholicism.`\
-https://nytimes.com/2025/04/23/opinion/pope-francis-church-future.html
-
-**Columbia Journalism Review Faces the Kind of Crisis It Usually Covers**\
-`The publication is now trying to find a successful business model without its top editor, who was abruptly fired last week.`\
-https://nytimes.com/2025/04/23/business/media/cjr-sewell-chan.html
-
-**Remember When Facebook Was Cool? Recalling a Bygone Era at Meta’s Trial.**\
-`In the landmark antitrust case, tech executives have harked back to a Silicon Valley age when social apps like Facebook, Path, Orkut and Google Plus boomed.`\
-https://nytimes.com/2025/04/23/technology/meta-trial-silicon-valley-social-apps.html
-
-**The Very American Roots of Trumpism**\
-`The historian Steven Hahn puts Trumpism in the context of America’s long history of illiberalism.`\
-https://nytimes.com/2025/04/23/opinion/ezra-klein-podcast-steven-hahn.html
 
