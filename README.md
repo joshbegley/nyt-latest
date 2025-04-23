@@ -1,3 +1,7 @@
+**What’s in Our Queue? ‘Paradise’ and More**\
+`Text by Mihir Zaveri`\
+https://nytimes.com/card/2025/04/23/arts/editors-recommendations-paradise
+
 **PWHL announces expansion to Vancouver for 2025-26 season**\
 `The team, which was unveiled as PWHL Vancouver at a news conference on Wednesday, will play at Pacific Coliseum.`\
 https://nytimes.com/athletic/6302038/2025/04/23/pwhl-vancouver-expansion-2025-26-season/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/23/us/politics/richard-branson-trump-tariff-policies
 **Review: From Kyle Abraham, Saxophones and Sculptural Shapes**\
 `On program of New York premieres at the Joyce Theater, Abraham’s contribution stands out and so do his dancers.`\
 https://nytimes.com/2025/04/23/arts/dance/review-kyle-abraham-aim.html
-
-**'I definitely need to be better': Cody Bellinger on early struggles**\
-`Bellinger has hit .173 with two home runs, 12 RBIs and a .520 OPS through his first 21 games with the Yankees.`\
-https://nytimes.com/athletic/6302364/2025/04/23/yankees-cody-bellinger-early-struggles/
 
