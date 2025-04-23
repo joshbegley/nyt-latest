@@ -1,3 +1,7 @@
+**Jordan Cracks Down on Muslim Brotherhood**\
+`The Arab monarchy had already taken steps toward disbanding the Islamist group in a 2020 court decision, but said it would now move to completely ban its activities.`\
+https://nytimes.com/2025/04/23/world/middleeast/jordan-muslim-brotherhood.html
+
 **WATCH: The 'Scoop City' NFL Draft Preview live show: Giants, Sanders, Ward and more**\
 `NFL insider Dianna Russini and former NFL QB Chase Daniel discuss the latest draft developments.`\
 https://nytimes.com/athletic/6301823/2025/04/23/nfl-draft-live-show-sanders-ward-hunter-video/
