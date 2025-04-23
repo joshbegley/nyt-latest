@@ -1,3 +1,19 @@
+**Tigers vanquish Padres and again prove they aren't to be taken lightly**\
+`The Tigers are 15-10, pitching the lights out and overachieving offensively. No longer cute underdogs, might the Tigers be here to stay?`\
+https://nytimes.com/athletic/6302985/2025/04/23/tigers-defeat-padres/
+
+**India Ramps Up Security in Kashmir Following Deadly Attack**\
+`The attack took place in a picturesque valley popular with Indian travelers. It was the worst assault on civilians in the Indian-administered territory in years, the chief minister of Jammu and Kashmir said.`\
+https://nytimes.com/video/world/asia/100000010127479/kashmir-india-pakistan-attack.html
+
+**Mike Patrick, Voice of Sunday Night N.F.L. Games on ESPN, Dies at 80**\
+`He did the cable network’s play-by-play for college basketball, football and baseball games, but his most important assignment was “Sunday Night Football.”`\
+https://nytimes.com/2025/04/23/sports/football/mike-patrick-dead.html
+
+**Trump Challenges Migrants’ Due Process Rights, Undercutting Bedrock Principle**\
+`White House officials are eschewing normal legal processes as they rush to ramp up deportations, saying there is no time to afford unauthorized immigrants any rights — and that they don’t deserve them anyway.`\
+https://nytimes.com/2025/04/23/us/politics/trump-immigrants-trials-deportation.html
+
 **Jordan Announced a Sweeping Ban on the Muslim Brotherhood. Here’s What to Know.**\
 `The move could shutter the country’s largest opposition party, the Islamic Action Front, which is the Brotherhood’s political arm in Jordan.`\
 https://nytimes.com/2025/04/23/world/middleeast/muslim-brotherhood-explainer.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6302777/2025/04/23/atlanta-2026-world-cup-host-usa-
 **Guler scores as Real close gap on Barca, but Alaba, Camavinga serious doubts for Clasico**\
 `Madrid are now four points behind leaders Barca, who they face in the Copa del Rey final on Saturday.`\
 https://nytimes.com/athletic/6302423/2025/04/23/real-madrid-barcelona-la-liga/
-
-**Bruce Arena questions if Mauricio Pochettino hire as USMNT coach was a mistake**\
-`The national team coach finds himself under fire again, this time from the most successful manager in USMNT history.`\
-https://nytimes.com/athletic/6302971/2025/04/23/bruce-arena-mauricio-pochettino-usmnt/
-
-**California Judge Is Convicted of Fatally Shooting His Wife**\
-`Judge Jeffrey Ferguson of Orange County Superior Court faces 40 years to life for murdering his wife, Sheryl Ferguson, in August 2023, prosecutors said.`\
-https://nytimes.com/2025/04/23/us/california-judge-wife-murder-conviction.html
-
-**Rangers sign GM Chris Drury to multiyear extension after missing playoffs**\
-`The Rangers have alternated successful seasons with disappointing ones in Drury’s four years as general manager.`\
-https://nytimes.com/athletic/6302989/2025/04/23/rangers-chris-drury-extension/
-
-**AC Milan ends Inter's treble quest, keeps own trophy hopes alive**\
-`AC Milan will play for the Coppa Italia title after dismantling city rival Inter thanks to a Luka Jović double.`\
-https://nytimes.com/athletic/6302928/2025/04/23/ac-milan-coppa-italia-semifinals-inter-jovic/
 

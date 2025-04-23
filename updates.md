@@ -1,3 +1,19 @@
+**Tigers vanquish Padres and again prove they aren't to be taken lightly**\
+`The Tigers are 15-10, pitching the lights out and overachieving offensively. No longer cute underdogs, might the Tigers be here to stay?`\
+https://nytimes.com/athletic/6302985/2025/04/23/tigers-defeat-padres/
+
+**India Ramps Up Security in Kashmir Following Deadly Attack**\
+`The attack took place in a picturesque valley popular with Indian travelers. It was the worst assault on civilians in the Indian-administered territory in years, the chief minister of Jammu and Kashmir said.`\
+https://nytimes.com/video/world/asia/100000010127479/kashmir-india-pakistan-attack.html
+
+**Mike Patrick, Voice of Sunday Night N.F.L. Games on ESPN, Dies at 80**\
+`He did the cable network’s play-by-play for college basketball, football and baseball games, but his most important assignment was “Sunday Night Football.”`\
+https://nytimes.com/2025/04/23/sports/football/mike-patrick-dead.html
+
+**Trump Challenges Migrants’ Due Process Rights, Undercutting Bedrock Principle**\
+`White House officials are eschewing normal legal processes as they rush to ramp up deportations, saying there is no time to afford unauthorized immigrants any rights — and that they don’t deserve them anyway.`\
+https://nytimes.com/2025/04/23/us/politics/trump-immigrants-trials-deportation.html
+
 **Jordan Announced a Sweeping Ban on the Muslim Brotherhood. Here’s What to Know.**\
 `The move could shutter the country’s largest opposition party, the Islamic Action Front, which is the Brotherhood’s political arm in Jordan.`\
 https://nytimes.com/2025/04/23/world/middleeast/muslim-brotherhood-explainer.html
