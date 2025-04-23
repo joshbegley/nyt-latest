@@ -1,3 +1,7 @@
+**While Kirill Kaprizov and Matt Boldy put on another show, Ryan Hartman makes his presence felt**\
+`Kaprizov and Boldy combined for three goals and two assists in Game 2, but Hartman was the catalyst behind the Wild's 5-2 win.`\
+https://nytimes.com/athletic/6301187/2025/04/23/wild-kaprizov-boldy-hartman-golden-knights-nhl/
+
 **Winners and losers of the transfer portal, from Michigan to Memphis**\
 `College basketball's transfer portal is closed to new entries, and many familiar contenders and top coaches have done significant work.`\
 https://nytimes.com/athletic/6299944/2025/04/23/college-basketball-transfer-portal-winners-losers-2/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6290485/2025/04/23/nhl-ticket-prices-kraken/
 **Which NHL playoff teams are under the most pressure to win the Stanley Cup? Ranking all 16**\
 `Counting down from the playoff teams that don’t want to lose to the teams that absolutely can’t.`\
 https://nytimes.com/athletic/6299902/2025/04/23/nhl-playoffs-2025-pressure-rankings/
-
-**The freeze-out: Why Knicks can't keep trending away from Karl-Anthony Towns**\
-`The Knicks’ end-of-season struggles coincided with teams sticking wings onto Towns. And the Pistons were watching.`\
-https://nytimes.com/athletic/6300629/2025/04/23/knicks-karl-anthony-towns-touches/
 
