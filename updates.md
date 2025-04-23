@@ -1,3 +1,7 @@
+**Members of Congress Visit Graduate Students Being Held in Louisiana**\
+`Five Democrats met with Mahmoud Khalil and Rumeysa Ozturk, who face deportation by the Trump administration.`\
+https://nytimes.com/2025/04/22/us/politics/mahmoud-khalil-rumeysa-ozturk-democrats.html
+
 **U.S. Says Tren de Aragua Charges Will ‘Devastate’ Its Infrastructure**\
 `Federal prosecutors charged six members of the Venezuelan gang and 21 members of a violent splinter group.`\
 https://nytimes.com/2025/04/22/nyregion/federal-tren-de-aragua-charges.html
