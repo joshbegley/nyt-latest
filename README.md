@@ -1,3 +1,11 @@
+**The World Seems to Be Surrendering to Climate Change**\
+`The state of the climate future, Part I.`\
+https://nytimes.com/2025/04/23/opinion/climate-trump-world.html
+
+**How I Describe Myself Politically These Days**\
+`America needs to figure out how to dominate the industries of the future. Call me a “Waymo Democrat.”`\
+https://nytimes.com/2025/04/23/opinion/waymo-democrat-advanced-manufacturing.html
+
 **Why are some NHL playoff games being called from an off-site broadcast studio?**\
 `Three more first-round playoff games on Turner Sports networks are scheduled to be called from a studio in Atlanta.`\
 https://nytimes.com/athletic/6302495/2025/04/23/nhl-playoff-broadcast-studio/
@@ -29,12 +37,4 @@ https://nytimes.com/card/2025/04/23/arts/editors-recommendations-paradise
 **PWHL announces expansion to Vancouver for 2025-26 season**\
 `The team, which was unveiled as PWHL Vancouver at a news conference on Wednesday, will play at Pacific Coliseum.`\
 https://nytimes.com/athletic/6302038/2025/04/23/pwhl-vancouver-expansion-2025-26-season/
-
-**Should the Maple Leafs change their lineup for Game 3?**\
-`The Maple Leafs may be up 2-0, but there are legitimate reasons to change course as the series shifts to Ottawa for Games 3 and 4.`\
-https://nytimes.com/athletic/6302228/2025/04/23/maple-leafs-lineup-game-3-senators-nhl-playoffs/
-
-**Dominik Hasek says he received death threats from former Russian president**\
-`Hasek, a native of Czechia, has been a vocal critic of Russia’s invasion of Ukraine since it began.`\
-https://nytimes.com/athletic/6302250/2025/04/23/dominik-hasek-russia-threats-medvedev/
 
