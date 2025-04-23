@@ -1,3 +1,12 @@
+**Pope Francis’ Coffin Is Brought to St. Peter’s Basilica**\
+`A long procession carried the pope’s coffin from his residency at the Vatican to St. Peter’s Square, where crowds had gathered to pay their respects.`\
+https://nytimes.com/video/world/europe/100000010125601/pope-francis-coffin-st-peters.html
+
+**Dortmund’s Guirassy leads Champions League top scorer odds, Dembélé lurks**\
+`Brett Koremenos has a look at the Champions League top scorer odds ahead of the semi-finals.
+`\
+https://nytimes.com/athletic/6299264/2025/04/23/champions-league-top-scorer-odds-betting-tips/
+
 **Slaughter of Civilians in Kashmir Shatters an Illusion of Calm**\
 `India had claimed in recent years that its heavy-handed approach had brought peace to the long restive region. The attack on Tuesday showed that wasn’t true.`\
 https://nytimes.com/2025/04/23/world/asia/kashmir-attack-india-pakistan.html

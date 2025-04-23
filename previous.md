@@ -1,3 +1,7 @@
+**Pope Francis’ Coffin Is Brought to St. Peter’s Basilica**\
+`A long procession carried the pope’s coffin from his residency at the Vatican to St. Peter’s Square, where crowds had gathered to pay their respects.`\
+https://nytimes.com/video/world/europe/100000010125601/pope-francis-coffin-st-peters.html
+
 **Slaughter of Civilians in Kashmir Shatters an Illusion of Calm**\
 `India had claimed in recent years that its heavy-handed approach had brought peace to the long restive region. The attack on Tuesday showed that wasn’t true.`\
 https://nytimes.com/2025/04/23/world/asia/kashmir-attack-india-pakistan.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/04/23/nyregion/cuomo-mayor-campaign-strategy.html
 **Weinstein’s Retrial to Begin, Testing Legacy of #MeToo Movement**\
 `Prosecutors and defense lawyers are expected to make opening statements Wednesday in the sex-crime case of the fallen mogul Harvey Weinstein.`\
 https://nytimes.com/2025/04/23/nyregion/weinstein-retrial-opening-statements.html
-
-**A White House Reporter on What It Takes to Cover Trump**\
-`Tyler Pager uses a deep bench of sources to break stories about immigration, economic policy and national security.`\
-https://nytimes.com/2025/04/23/insider/white-house-reporting.html
 
