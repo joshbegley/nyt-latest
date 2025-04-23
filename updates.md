@@ -1,3 +1,11 @@
+**The Briefing: Arsenal 2 Palace 2 - Towering Kiwior, sloppy Saliba, Trossard's confidence boost**\
+`Arsenal drew for the 13th time this season in letting a lead slip twice against Palace - The Athletic analyses the talking points `\
+https://nytimes.com/athletic/6301450/2025/04/23/arsenal-2-crystal-palace-2-kiwior-saliba-trossard/
+
+**Thursday Briefing: Trump Lashes Out at Zelensky**\
+`Plus, the perfect pour-over coffee.`\
+https://nytimes.com/2025/04/23/briefing/trump-zelensky-syria-al-shara-pope-francis.html
+
 **No Power? No Problem. Nicole Scherzinger Sings With Bullhorn on Broadway.**\
 `The “Sunset Boulevard” star briefly entertained the crowd when “a technical malfunction on the sound side” forced the cancellation of a matinee performance.`\
 https://nytimes.com/2025/04/23/theater/nicole-scherzinger-sunset-boulevard-broadway.html

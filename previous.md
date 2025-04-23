@@ -1,3 +1,11 @@
+**The Briefing: Arsenal 2 Palace 2 - Towering Kiwior, sloppy Saliba, Trossard's confidence boost**\
+`Arsenal drew for the 13th time this season in letting a lead slip twice against Palace - The Athletic analyses the talking points `\
+https://nytimes.com/athletic/6301450/2025/04/23/arsenal-2-crystal-palace-2-kiwior-saliba-trossard/
+
+**Thursday Briefing: Trump Lashes Out at Zelensky**\
+`Plus, the perfect pour-over coffee.`\
+https://nytimes.com/2025/04/23/briefing/trump-zelensky-syria-al-shara-pope-francis.html
+
 **No Power? No Problem. Nicole Scherzinger Sings With Bullhorn on Broadway.**\
 `The “Sunset Boulevard” star briefly entertained the crowd when “a technical malfunction on the sound side” forced the cancellation of a matinee performance.`\
 https://nytimes.com/2025/04/23/theater/nicole-scherzinger-sunset-boulevard-broadway.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/23/business/discord-jason-citron.html
 **Prelude to a Funeral**\
 `A single image captures the subtle changes in how the Roman Catholic Church buries a pope.`\
 https://nytimes.com/2025/04/23/world/europe/pope-francis-death-vatican-rituals.html
-
-**Marco Grassi, Who Brought Old Paintings Back to Life, Dies at 90**\
-`As a restorer who specialized in late medieval and early Renaissance paintings from Italy, he was in intimate touch with the paintings of long-dead masters.`\
-https://nytimes.com/2025/04/23/arts/marco-grassi-dead.html
-
-**Jake Guentzel’s big-game pedigree adds fuel to Lightning’s Stanley Cup chase**\
-`Guentzel, among the best postseason players of his generation, has provided Tampa Bay with an invaluable asset.`\
-https://nytimes.com/athletic/6302092/2025/04/23/lightning-panthers-jake-guentzel-nhl-playoffs/
 
