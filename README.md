@@ -1,5 +1,13 @@
+**U.S. Says Tren de Aragua Charges Will ‘Devastate’ Its Infrastructure**\
+`Federal prosecutors charged six members of the Venezuelan gang and 21 members of a violent splinter group.`\
+https://nytimes.com/2025/04/22/nyregion/federal-tren-de-aragua-charges.html
+
+**Wildfire Burns in 3,200 Acres of New Jersey Forest Area**\
+`The fire in the Pine Barrens led to the evacuation of 3,000 residents and the shutdown of a stretch of the Garden State Parkway.`\
+https://nytimes.com/2025/04/22/nyregion/wildfire-new-jersey-ocean-county.html
+
 **Phillies' Cristopher Sánchez leaves game with left forearm soreness**\
-`The first pitch Cristopher Sánchez threw Tuesday night registered at 93.7 mph.`\
+`The first pitch Sánchez threw Tuesday night registered at 93.7 mph.`\
 https://nytimes.com/athletic/6300502/2025/04/22/phillies-pitcher-cristopher-sanchez-leaves-game-left-forearm-soreness/
 
 **Devils put up a better effort, but Hurricanes still too much in Game 2: Takeaways**\
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/04/22/us/trump-administration-news/trump-will-not-
 **Pelicans exec Joe Dumars says he has 'no edicts' to trade Zion Williamson**\
 `Williamson had another injury-plagued season amidst a dreary 21-win campaign in New Orleans, the worst by the franchise in 20 years.`\
 https://nytimes.com/athletic/6300342/2025/04/22/pelicans-joe-dumars-zion-williamson/
-
-**Roy Thomas Baker, Who Helped Produce ‘Bohemian Rhapsody,’ Dies at 78**\
-`Among the most successful music producers in the 1970s and ’80s, he helped churn out hits for acts like Queen, the Cars, Journey and Foreigner.`\
-https://nytimes.com/2025/04/22/arts/music/roy-thomas-baker-dead.html
-
-**Trump Says He Has No Plans to Fire Powell**\
-`President Trump’s recent comments blasting Jerome H. Powell, the Federal Reserve chair, for being “late” to lower interest rates had raised questions about his fate.`\
-https://nytimes.com/2025/04/22/us/politics/trump-powell-fed.html
 

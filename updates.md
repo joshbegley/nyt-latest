@@ -1,3 +1,11 @@
+**Phillies' Cristopher Sánchez leaves game with left forearm soreness**\
+`The first pitch Cristopher Sánchez threw Tuesday night registered at 93.7 mph.`\
+https://nytimes.com/athletic/6300502/2025/04/22/phillies-pitcher-cristopher-sanchez-leaves-game-left-forearm-soreness/
+
+**Devils put up a better effort, but Hurricanes still too much in Game 2: Takeaways**\
+`New Jersey put forth a respectable effort given a shorthanded roster and a stingy opponent, but it wasn't enough.`\
+https://nytimes.com/athletic/6300475/2025/04/22/devils-hurricanes-game-2-takeaways-nhl-playoffs/
+
 **Devils put up a better effort, but Hurricanes still too much in Game 2**\
 `New Jersey put forth a respectable effort given a shorthanded roster and a stingy opponent, but it wasn't enough.`\
 https://nytimes.com/athletic/6300475/2025/04/22/devils-hurricanes-game-2-takeaways-nhl-playoffs/
