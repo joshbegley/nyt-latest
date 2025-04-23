@@ -1,3 +1,11 @@
+**Ex-Brazil coach Tite pausing career to take mental, physical health break**\
+`Tite coached Brazil between 2016 and 2022, winning the Copa America title in 2019.`\
+https://nytimes.com/athletic/6301293/2025/04/23/brazil-manager-tite-mental-health/
+
+**Our Questions, and Yours**\
+`We answer five questions you had about the news.`\
+https://nytimes.com/2025/04/23/briefing/our-questions-and-yours.html
+
 **Sixth man or ninth man, Payton Pritchard ready for Celtics in the playoffs**\
 `"I just don't think you can accomplish anything at the highest of levels unless you give it your all,” Pritchard said.`\
 https://nytimes.com/athletic/6299991/2025/04/23/celtics-payton-pritchard-sixth-man-year/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6300328/2025/04/23/senators-belief-nhl-playoffs-gam
 **NHL playoffs daily: Hurricanes beat Devils, Maple Leafs outlast Senators, Panthers rout Lightning**\
 `Tuesday's NHL playoff action delivered yet more excitement. Here are our takeaways.`\
 https://nytimes.com/athletic/6300327/2025/04/23/nhl-playoffs-daily-round-1-results-takeaways/
-
-**Ravens' best-case scenario, wild cards and sleepers as NFL Draft nears**\
-`Plus, an underrated need and teams to watch if Baltimore decides to trade up or down in the first round. `\
-https://nytimes.com/athletic/6297107/2025/04/23/ravens-2025-nfl-draft-wild-cards-sleepers/
-
-**After Arraez collision, Padres manager supports safety measures at first base**\
-`During a Starkville podcast appearance, Shildt said MLB should consider implementing college baseball's "double first base rule." `\
-https://nytimes.com/athletic/6300091/2025/04/23/luis-arraez-collision-first-base-safety-mlb/
 
