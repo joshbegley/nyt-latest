@@ -1,3 +1,7 @@
+**While Kirill Kaprizov and Matt Boldy put on another show, Ryan Hartman makes his presence felt**\
+`Kaprizov and Boldy combined for three goals and two assists in Game 2, but Hartman was the catalyst behind the Wild's 5-2 win.`\
+https://nytimes.com/athletic/6301187/2025/04/23/wild-kaprizov-boldy-hartman-golden-knights-nhl/
+
 **Winners and losers of the transfer portal, from Michigan to Memphis**\
 `College basketball's transfer portal is closed to new entries, and many familiar contenders and top coaches have done significant work.`\
 https://nytimes.com/athletic/6299944/2025/04/23/college-basketball-transfer-portal-winners-losers-2/
