@@ -1,3 +1,23 @@
+**Jelly Roll Should Be Pardoned for Drug and Robbery Offenses, Board Says**\
+`The Tennessee Board of Parole unanimously determined that the country star should be pardoned, but the decision is in the hands of the governor.`\
+https://nytimes.com/2025/04/23/arts/music/jelly-roll-pardon-tennessee.html
+
+**Trump Offers Private Dinner to Top 220 Investors of His Memecoin**\
+`The offer, which caused President Trump’s memecoin to surge in price, was his family’s latest effort to profit from cryptocurrencies.`\
+https://nytimes.com/2025/04/23/technology/trump-private-dinner-crypto-memecoin.html
+
+**A Life ‘Shattered’: A Student Who Lost His Visa Opens Up About His Detainment**\
+`A Minnesota man from Indonesia who is married to a U.S. citizen thought he would soon get a green card. Now, he could get deported over a 2022 arrest.`\
+https://nytimes.com/2025/04/23/us/minnesota-student-aditya-harsono-visa.html
+
+**Stray Bullet Kills Harlem Woman Who Stepped Outside to Check on Grandson**\
+`Excenia Mette, 61, walked out of her apartment building and into the middle of a shootout. She was an active member of the National Action Network.`\
+https://nytimes.com/2025/04/23/nyregion/harlem-nyc-fatal-shooting-bystander.html
+
+**Trump Takes On Improbable Task in Seeking Trade Deals Across the Globe**\
+`The president’s threats of tariffs have brought countries like Japan, South Korea and India rushing to negotiate, but they have sown chaos with bigger trading partners like China.`\
+https://nytimes.com/2025/04/23/business/economy/trump-tariffs-trade-deals.html
+
 **Arthur Fleischer Jr., Prominent Lawyer in Corporate Takeovers, Dies at 92**\
 `He was a top deal maker in the world of mergers and acquisitions, during the 1980s takeover boom and beyond. He also had a keen interest in art.`\
 https://nytimes.com/2025/04/23/business/dealbook/arthur-fleischer-dead.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/04/23/opinion/climate-trump-world.html
 **How I Describe Myself Politically These Days**\
 `America needs to figure out how to dominate the industries of the future. Call me a “Waymo Democrat.”`\
 https://nytimes.com/2025/04/23/opinion/waymo-democrat-advanced-manufacturing.html
-
-**Why are some NHL playoff games being called from an off-site broadcast studio?**\
-`Three more first-round playoff games on Turner Sports networks are scheduled to be called from a studio in Atlanta.`\
-https://nytimes.com/athletic/6302495/2025/04/23/nhl-playoff-broadcast-studio/
-
-**Museum Told to Surrender Schiele Drawing to Heirs of Man Killed by Nazis**\
-`A New York judge found that the Art Institute of Chicago’s drawing by Egon Schiele had been looted from an Austrian Jew who died in a concentration camp.`\
-https://nytimes.com/2025/04/23/arts/design/egon-schiele-drawing-art-institute-chicago.html
-
-**Blue Jackets coach Dean Evason will lead Team Canada at World Championship**\
-`The 60-year-old native of Flin Flon, Manitoba, served as an assistant coach for Team Canada that finished fourth in last year's tournament.`\
-https://nytimes.com/athletic/6302526/2025/04/23/canada-dean-evason-world-championships/
-
-**Scoop City: Risers and fallers before the draft begins**\
-`Our final beat reporter mock draft, an update on the Kirk Cousins situation and how teams are trending before the draft begins.`\
-https://nytimes.com/athletic/6302592/2025/04/23/nfl-risers-fallers-win-totals-2025-scoop-city/
-
-**Motivated by Super Bowl loss, Patrick Mahomes seeks explosive Chiefs passing attack**\
-`With the Chiefs' offseason program underway, Mahomes talked about his "bad taste" from the Super Bowl LIX loss and his new look.`\
-https://nytimes.com/athletic/6302440/2025/04/23/patrick-mahomes-motivation-super-bowl-loss/
 

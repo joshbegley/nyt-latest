@@ -1,3 +1,23 @@
+**Jelly Roll Should Be Pardoned for Drug and Robbery Offenses, Board Says**\
+`The Tennessee Board of Parole unanimously determined that the country star should be pardoned, but the decision is in the hands of the governor.`\
+https://nytimes.com/2025/04/23/arts/music/jelly-roll-pardon-tennessee.html
+
+**Trump Offers Private Dinner to Top 220 Investors of His Memecoin**\
+`The offer, which caused President Trump’s memecoin to surge in price, was his family’s latest effort to profit from cryptocurrencies.`\
+https://nytimes.com/2025/04/23/technology/trump-private-dinner-crypto-memecoin.html
+
+**A Life ‘Shattered’: A Student Who Lost His Visa Opens Up About His Detainment**\
+`A Minnesota man from Indonesia who is married to a U.S. citizen thought he would soon get a green card. Now, he could get deported over a 2022 arrest.`\
+https://nytimes.com/2025/04/23/us/minnesota-student-aditya-harsono-visa.html
+
+**Stray Bullet Kills Harlem Woman Who Stepped Outside to Check on Grandson**\
+`Excenia Mette, 61, walked out of her apartment building and into the middle of a shootout. She was an active member of the National Action Network.`\
+https://nytimes.com/2025/04/23/nyregion/harlem-nyc-fatal-shooting-bystander.html
+
+**Trump Takes On Improbable Task in Seeking Trade Deals Across the Globe**\
+`The president’s threats of tariffs have brought countries like Japan, South Korea and India rushing to negotiate, but they have sown chaos with bigger trading partners like China.`\
+https://nytimes.com/2025/04/23/business/economy/trump-tariffs-trade-deals.html
+
 **‘Conclave’ Streaming Numbers Jump After Pope Francis’ Death**\
 `Experts said that the 2024 film accurately portrayed the papal selection process.`\
 https://nytimes.com/2025/04/23/business/conclave-film-streaming-pope-francis.html
