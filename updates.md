@@ -1,3 +1,7 @@
+**Mike Patrick, longtime college sports and NFL broadcaster, dies at 80**\
+`Mike Patrick, the longtime sports broadcaster whose varied career included calling the first regular-season NFL game ever broadcast on ESPN, died on Sunday, according to a report by ESPN.`\
+https://nytimes.com/athletic/6300303/2025/04/22/mike-patrick-college-nfl-broadcaster-death/
+
 **Critics Call Rubio’s Overhaul Plan a Blow to U.S. Values**\
 `A proposed reorganization of the State Department would eliminate an office whose official goal is to build “more democratic, secure, stable, and just societies.”`\
 https://nytimes.com/2025/04/22/us/politics/rubio-state-department-overhaul.html
