@@ -1,3 +1,11 @@
+**Lions, Chargers to play in NFL's Hall of Fame Game on July 31**\
+`The game will take place ahead of the Aug. 2 enshrinement ceremony that sees Antonio Gates and three others inducted to the Hall of Fame.`\
+https://nytimes.com/athletic/6301754/2025/04/23/nfl-hall-of-fame-game-lions-chargers/
+
+**Police Identify 2 Gilgo Beach Victims, a Mother and Her Toddler**\
+`The victims — Tanya Denise Jackson and her daughter, Tatiana Marie Dykes — were found on Long Island, near the area where a serial killer operated.`\
+https://nytimes.com/2025/04/23/nyregion/gilgo-beach-victims-woman-child.html
+
 **Police Identify Gilgo Victims, a Woman Known as Peaches and Her Child**\
 `The victim was Tanya Denise Jackson, mother of Tatiana Marie Dykes. Their bodies were found on Long Island, near the area where a serial killer operated.`\
 https://nytimes.com/2025/04/23/nyregion/gilgo-beach-victims-woman-child.html
