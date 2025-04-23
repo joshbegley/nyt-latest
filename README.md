@@ -2,7 +2,7 @@
 `The Thorns’ 4-1 victory boosted them from ninth to fifth place in the NWSL table.`\
 https://nytimes.com/athletic/6301174/2025/04/23/portland-thorns-gotham-result-goals/
 
-**Pope Francis’ Coffin Is Moved to St. Peter’s Square in Solemn Procession**\
+**Pope Francis’ Coffin Is Moved to St. Peter’s in Solemn Procession**\
 `Crowds flocked to pay their respects and bid farewell to the pontiff, who died on Monday at the age of 88.`\
 https://nytimes.com/2025/04/23/world/europe/pope-francis-coffin-lying-in-state-st-peters.html
 

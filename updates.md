@@ -1,3 +1,8 @@
+**Dortmund’s Guirassy leads Champions League top scorer odds, Dembélé lurks**\
+`Brett Koremenos has a look at the Champions League top scorer odds ahead of the semi-finals.
+`\
+https://nytimes.com/athletic/6299264/2025/04/23/champions-league-top-scorer-odds-betting-tips/
+
 **Portland Thorns beats Gotham FC behind four first-time goalscorers**\
 `The Thorns’ 4-1 victory boosted them from ninth to fifth place in the NWSL table.`\
 https://nytimes.com/athletic/6301174/2025/04/23/portland-thorns-gotham-result-goals/
