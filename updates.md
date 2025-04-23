@@ -1,3 +1,7 @@
+**Kennedy Declares ‘Sugar Is Poison’ While Announcing Ban on Food Dyes**\
+`The health secretary is ratcheting up his campaign against the food industry.`\
+https://nytimes.com/2025/04/22/us/politics/rfk-jr-food-dye-ban-sugar.html
+
 **Mike Patrick, longtime college sports and NFL broadcaster, dies at 80**\
 `Mike Patrick, the longtime sports broadcaster whose varied career included calling the first regular-season NFL game ever broadcast on ESPN, died on Sunday, according to a report by ESPN.`\
 https://nytimes.com/athletic/6300303/2025/04/22/mike-patrick-college-nfl-broadcaster-death/
