@@ -1,3 +1,7 @@
+**NHL playoffs daily: Hurricanes beat Devils, Maple Leafs outlast Senators, Panthers rout Lightning**\
+`Tuesday's NHL playoff action delivered yet more excitement. Here are our takeaways.`\
+https://nytimes.com/athletic/6300327/2025/04/23/nhl-playoffs-daily-round-1-results-takeaways/
+
 **Sixth man or ninth man, Payton Pritchard ready for Celtics in the playoffs**\
 `"I just don't think you can accomplish anything at the highest of levels unless you give it your all,” Pritchard said.`\
 https://nytimes.com/athletic/6299991/2025/04/23/celtics-payton-pritchard-sixth-man-year/
