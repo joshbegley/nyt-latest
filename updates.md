@@ -1,3 +1,15 @@
+**How one U.S. host city is preparing for the 2026 World Cup**\
+`Recent experience staging major events puts many of the key infrastructure pieces in place for 2026 World Cup host Atlanta.`\
+https://nytimes.com/athletic/6302777/2025/04/23/atlanta-2026-world-cup-host-usa-preparation-fifa/
+
+**Guler scores as Madrid close gap on Barca in La Liga race with win over Getafe**\
+`Madrid are now four points behind leaders Barca, who they face in the Copa del Rey final on Saturday.`\
+https://nytimes.com/athletic/6302423/2025/04/23/real-madrid-barcelona-la-liga/
+
+**Bruce Arena questions if Mauricio Pochettino hire as USMNT coach was a mistake**\
+`The national team coach finds himself under fire again, this time from the most successful manager in USMNT history.`\
+https://nytimes.com/athletic/6302971/2025/04/23/bruce-arena-mauricio-pochettino-usmnt/
+
 **Bruce Arena: Mauricio Pochettino hire as USMNT coach was a mistake**\
 `The national team coach finds himself under fire again, this time from the most successful manager in USMNT history.`\
 https://nytimes.com/athletic/6302971/2025/04/23/bruce-arena-mauricio-pochettino-usmnt/

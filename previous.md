@@ -1,4 +1,12 @@
-**Bruce Arena: Mauricio Pochettino hire as USMNT coach was a mistake**\
+**How one U.S. host city is preparing for the 2026 World Cup**\
+`Recent experience staging major events puts many of the key infrastructure pieces in place for 2026 World Cup host Atlanta.`\
+https://nytimes.com/athletic/6302777/2025/04/23/atlanta-2026-world-cup-host-usa-preparation-fifa/
+
+**Guler scores as Madrid close gap on Barca in La Liga race with win over Getafe**\
+`Madrid are now four points behind leaders Barca, who they face in the Copa del Rey final on Saturday.`\
+https://nytimes.com/athletic/6302423/2025/04/23/real-madrid-barcelona-la-liga/
+
+**Bruce Arena questions if Mauricio Pochettino hire as USMNT coach was a mistake**\
 `The national team coach finds himself under fire again, this time from the most successful manager in USMNT history.`\
 https://nytimes.com/athletic/6302971/2025/04/23/bruce-arena-mauricio-pochettino-usmnt/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/23/theater/nicole-scherzinger-sunset-boulevard-broad
 **Physical Pistons-Knicks series fuels debate between coaches over foul calls**\
 `Knicks coach Tom Thibodeau said Jalen Brunson isn't getting the calls he deserves. But Pistons coach J.B. Bickerstaff had a response ready.`\
 https://nytimes.com/athletic/6302832/2025/04/23/pistons-knicks-debate-foul-calls/
-
-**NBA Draft early entry tracker: Rutgers freshman Ace Bailey latest entry**\
-`April 26 is the deadline for underclassmen to declare for the NBA Draft on June 25-26.`\
-https://nytimes.com/athletic/6251067/2025/04/23/nba-draft-early-entry-tracker-deadline/
-
-**Aluko says male pundits such as Wright risk blocking female broadcasters**\
-`Aluko said that men needed to be 'aware' that there were limited opportunities for women broadcasters to work in the sport.`\
-https://nytimes.com/athletic/6302455/2025/04/23/eni-aluko-ian-wright-barton-broadcast/
 
