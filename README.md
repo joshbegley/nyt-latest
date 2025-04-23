@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6302971/2025/04/23/bruce-arena-mauricio-pochettino-
 `Judge Jeffrey Ferguson of Orange County Superior Court faces 40 years to life for murdering his wife, Sheryl Ferguson, in August 2023, prosecutors said.`\
 https://nytimes.com/2025/04/23/us/california-judge-wife-murder-conviction.html
 
-**Rangers sign GM Chris Drury to multiyear extension**\
+**Rangers sign GM Chris Drury to multiyear extension after missing playoffs**\
 `The Rangers have alternated successful seasons with disappointing ones in Drury’s four years as general manager.`\
 https://nytimes.com/athletic/6302989/2025/04/23/rangers-chris-drury-extension/
 
