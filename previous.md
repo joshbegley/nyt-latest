@@ -1,3 +1,7 @@
+**What I liked and didn't like from the Timberwolves' Game 2 loss to the Lakers**\
+`Slow starts are hurting the Wolves, but at least Julius Randle and Rudy Gobert understand the assignment.`\
+https://nytimes.com/athletic/6300413/2025/04/23/timberwolves-playoffs-game-2-julius-randle-anthony-edwards/
+
 **Powerful Earthquake Shakes Istanbul**\
 `Turkish emergency services said the quake had a magnitude of 6.2 and reported no casualties or major damage so far.`\
 https://nytimes.com/2025/04/23/world/europe/turkey-earthquake.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6299756/2025/04/23/new-york-yankees-homegrown-talen
 **Wizards have work to do to change NBA's perceptions of their franchise**\
 `The team and its coach did not show well in The Athletic's annual NBA player poll. `\
 https://nytimes.com/athletic/6300118/2025/04/23/washington-wizards-2025-player-poll-nba/
-
-**Why one NHL team is slashing ticket prices next season**\
-`Ticket prices at Climate Pledge Arena will decrease by as much as $56 per game, even though the Kraken don't have attendance issues.`\
-https://nytimes.com/athletic/6290485/2025/04/23/nhl-ticket-prices-kraken/
 

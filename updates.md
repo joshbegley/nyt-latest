@@ -1,3 +1,7 @@
+**What I liked and didn't like from the Timberwolves' Game 2 loss to the Lakers**\
+`Slow starts are hurting the Wolves, but at least Julius Randle and Rudy Gobert understand the assignment.`\
+https://nytimes.com/athletic/6300413/2025/04/23/timberwolves-playoffs-game-2-julius-randle-anthony-edwards/
+
 **Powerful Earthquake Shakes Istanbul**\
 `Turkish emergency services said the quake had a magnitude of 6.2 and reported no casualties or major damage so far.`\
 https://nytimes.com/2025/04/23/world/europe/turkey-earthquake.html

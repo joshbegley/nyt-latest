@@ -1,3 +1,15 @@
+**Trump Administration Live Updates: Kennedy Declares ‘Sugar Is Poison’ in Campaign Against Food Industry**\
+``\
+https://nytimes.com/live/2025/04/23/us/trump-news
+
+**Boeing Reports Smaller Loss but Trade War Threats Loom**\
+`The plane maker, which has been trying to recover from a quality crisis, could lose orders in China as a result of President Trump’s tariffs.`\
+https://nytimes.com/2025/04/23/business/boeing-earnings-china-trump.html
+
+**The Pulse: What NBA players really think about each other**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6299742/2025/04/23/nba-playoffs-anonymous-player-poll-the-pulse/
+
 **What I liked and didn't like from the Timberwolves' Game 2 loss to the Lakers**\
 `Slow starts are hurting the Wolves, but at least Julius Randle and Rudy Gobert understand the assignment.`\
 https://nytimes.com/athletic/6300413/2025/04/23/timberwolves-playoffs-game-2-julius-randle-anthony-edwards/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6301258/2025/04/23/dagenham-middle-east-man-utd-liv
 **Baldelli knows he's on hot seat amid Twins' poor start: 'You can just never quit'**\
 `Hours before the Twins opened what could be the most important homestand of his career, Baldelli acknowledged his precarious position.`\
 https://nytimes.com/athletic/6300620/2025/04/23/roco-baldelli-twins-manager-job-security/
-
-**Tyrese Haliburton's passion powers Pacers as they go up 2-0 on Bucks**\
-`After a cold shooting performance in Game 1, Haliburton cranked up his aggressiveness as Indiana led wire to wire.`\
-https://nytimes.com/athletic/6301198/2025/04/23/tyrese-haliburton-pacers-playoffs-game-2/
-
-**Rosenthal: How the Yankees continue to produce homegrown talent**\
-`Despite low draft positions and lots of prospect trades, the Yankees have recently developed an impressive group of young talent.`\
-https://nytimes.com/athletic/6299756/2025/04/23/new-york-yankees-homegrown-talent-development/
-
-**Wizards have work to do to change NBA's perceptions of their franchise**\
-`The team and its coach did not show well in The Athletic's annual NBA player poll. `\
-https://nytimes.com/athletic/6300118/2025/04/23/washington-wizards-2025-player-poll-nba/
 
