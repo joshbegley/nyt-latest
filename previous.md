@@ -1,3 +1,12 @@
+**Matthew Tkachuk, Panthers steamroll Lightning in Game 1: Takeaways**\
+`Tkachuk made his triumphant return in grand style, scoring twice as the defending champs beat Tampa in a feisty Battle of Florida Game 1.
+`\
+https://nytimes.com/athletic/6300010/2025/04/22/lightning-panthers-nhl-playoffs-2025-game-1-takeaways/
+
+**Trump Says Undocumented Immigrants Shouldn’t Get Trials Before Deportation**\
+`The president claimed that countries were sending their prisoners to the United States and that he needed to bypass the constitutional demands of due process to expel them quickly.`\
+https://nytimes.com/2025/04/22/us/politics/trump-undocumented-immigrants-trials-deportation.html
+
 **Climate Activists Interrupt New York City Ballet Performance**\
 `Protesters interrupted an all-Balanchine program on the company’s spring season opening night, which coincided this year with Earth Day.`\
 https://nytimes.com/2025/04/22/arts/dance/nyc-ballet-climate-activists.html
@@ -29,12 +38,4 @@ https://nytimes.com/live/2025/04/22/us/trump-administration-news/heres-what-happ
 **Members of Congress Visit Graduate Students Being Held in Louisiana**\
 `Five Democrats met with Mahmoud Khalil and Rumeysa Ozturk, who face deportation by the Trump administration.`\
 https://nytimes.com/2025/04/22/us/politics/mahmoud-khalil-rumeysa-ozturk-democrats.html
-
-**U.S. Says Tren de Aragua Charges Will ‘Devastate’ Its Infrastructure**\
-`Federal prosecutors charged six members of the Venezuelan gang and 21 members of a violent splinter group.`\
-https://nytimes.com/2025/04/22/nyregion/federal-tren-de-aragua-charges.html
-
-**Wildfire Burns in 3,200 Acres of New Jersey Forest Area**\
-`The fire in the Pine Barrens led to the evacuation of 3,000 residents and the shutdown of a stretch of the Garden State Parkway.`\
-https://nytimes.com/2025/04/22/nyregion/wildfire-new-jersey-ocean-county.html
 
