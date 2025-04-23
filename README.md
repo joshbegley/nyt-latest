@@ -26,7 +26,7 @@ https://nytimes.com/athletic/6300840/2025/04/23/maple-leafs-berube-style-nhl-pla
 `The Senators don't quite have their back against the wall, yet they failed to earn a series split. Even so, they're staying calm.`\
 https://nytimes.com/athletic/6300328/2025/04/23/senators-belief-nhl-playoffs-game-2/
 
-**NHL playoffs daily: Hurricanes beat Devils, Senators outlast Maple Leafs, Panthers rout Lightning**\
+**NHL playoffs daily: Hurricanes beat Devils, Maple Leafs outlast Senators, Panthers rout Lightning**\
 `Tuesday's NHL playoff action delivered yet more excitement. Here are our takeaways.`\
 https://nytimes.com/athletic/6300327/2025/04/23/nhl-playoffs-daily-round-1-results-takeaways/
 
