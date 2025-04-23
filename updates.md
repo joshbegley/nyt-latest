@@ -1,3 +1,11 @@
+**Syria’s Jihadist-Turned-President Seeks New Allies**\
+`In an interview with The New York Times, President Ahmed al-Shara urged the United States to lift sanctions and alluded to the possibility of future military support from Russia and Turkey.`\
+https://nytimes.com/2025/04/23/world/middleeast/syria-president-al-shara-interview.html
+
+**Burke set to join Union Berlin after Bremen contract expires**\
+`The Scottish forward has been at Bremen since 2022 and 2024-25 has been his best season in German football, scoring six goals.`\
+https://nytimes.com/athletic/6301207/2025/04/23/oliver-burke-union-berlin-transfer/
+
 **Burke to join Union Berlin after Bremen contract expires**\
 `The Scottish forward has been at Bremen since 2022 and 2024-25 has been his best season in German football, scoring six goals.`\
 https://nytimes.com/athletic/6301207/2025/04/23/oliver-burke-union-berlin-transfer/
