@@ -1,3 +1,27 @@
+**On Major Economic Decisions, Trump Blinks, and Then Blinks Again**\
+`President Trump has said his punishing tariffs would force companies to build factories in the United States. But it is far from clear that they will have the effects he predicted.`\
+https://nytimes.com/2025/04/23/us/politics/trump-tariffs-economy.html
+
+**5 Things Musk Accomplished With Trump**\
+`DOGE once demanded that federal employees list five accomplishments each week. Here are Elon Musk’s from his time in Washington.`\
+https://nytimes.com/2025/04/23/us/politics/elon-musk-trump-doge-tesla.html
+
+**Jason Moran Unpacks Duke Ellington’s Greatness in a Single Song**\
+`Watch as the pianist distills the “joyful tragedy” of “Black and Tan Fantasy” into a stirring solo piece.`\
+https://nytimes.com/interactive/2025/04/23/arts/music/jason-moran-duke-ellington.html
+
+**Now Boarding at Gate 4: A Cardinal en Route to a Conclave**\
+`Timothy M. Dolan is one of 10 cardinals from the United States who will have a vote in the ritual that will determine the next pope.`\
+https://nytimes.com/2025/04/23/us/cardinal-dolan-pope-francis-conclave.html
+
+**Bears Hall of Famer Steve McMichael was a 'wild child' who loved football — and life**\
+`McMichael died from complications of ALS, and despite his reckless style of play, he never blamed football for ALS.`\
+https://nytimes.com/athletic/3497983/2025/04/23/bears-steve-mcmichael-obituary/
+
+**U.S. Texts Barnard Employees and Asks if They Are Jewish**\
+`A questionnaire from a federal commission also inquired about whether professors and other college staff members had been harassed.`\
+https://nytimes.com/2025/04/23/nyregion/barnard-faculty-eeoc-text-jewish.html
+
 **Judge says she will deny NCAA settlement if roster limits are not adjusted**\
 `Judge Claudia Wilken raised concerns about roster limits replacing scholarship limits as part of the settlement agreement.`\
 https://nytimes.com/athletic/6303220/2025/04/23/judge-will-deny-ncaa-settlement-if-roster-limits-not-adjusted/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6302889/2025/04/23/nfl-draft-best-bets-jeanty/
 **An Artist Subverting Propaganda Through Large-Scale Sculptures**\
 `Sandra Poulson discusses Louise Bourgeois, Angolan humor and cheap wood.`\
 https://nytimes.com/2025/04/23/t-magazine/sandra-poulson-art-moma-ps1.html
-
-**Tigers vanquish Padres and again prove they aren't to be taken lightly**\
-`The Tigers are 15-10, pitching the lights out and overachieving offensively. No longer cute underdogs, might the Tigers be here to stay?`\
-https://nytimes.com/athletic/6302985/2025/04/23/tigers-defeat-padres/
-
-**India Ramps Up Security in Kashmir Following Deadly Attack**\
-`The attack took place in a picturesque valley popular with Indian travelers. It was the worst assault on civilians in the Indian-administered territory in years, the chief minister of Jammu and Kashmir said.`\
-https://nytimes.com/video/world/asia/100000010127479/kashmir-india-pakistan-attack.html
-
-**Mike Patrick, Voice of Sunday Night N.F.L. Games on ESPN, Dies at 80**\
-`He did the cable network’s play-by-play for college basketball, football and baseball games, but his most important assignment was “Sunday Night Football.”`\
-https://nytimes.com/2025/04/23/sports/football/mike-patrick-dead.html
-
-**Trump Challenges Migrants’ Due Process Rights, Undercutting Bedrock Principle**\
-`White House officials are eschewing normal legal processes as they rush to ramp up deportations, saying there is no time to afford unauthorized immigrants any rights — and that they don’t deserve them anyway.`\
-https://nytimes.com/2025/04/23/us/politics/trump-immigrants-trials-deportation.html
-
-**Jordan Announced a Sweeping Ban on the Muslim Brotherhood. Here’s What to Know.**\
-`The move could shutter the country’s largest opposition party, the Islamic Action Front, which is the Brotherhood’s political arm in Jordan.`\
-https://nytimes.com/2025/04/23/world/middleeast/muslim-brotherhood-explainer.html
-
-**Trump’s Approval Rating Has Been Falling Steadily, Polling Average Shows**\
-`President Trump’s approval rating has sunk to about 45 percent, down from 52 percent one week after he took office.`\
-https://nytimes.com/2025/04/23/us/politics/trump-approval-rating.html
 
