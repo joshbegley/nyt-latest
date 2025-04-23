@@ -1,3 +1,23 @@
+**Kirk Cousins could be targeted by Browns, Steelers, Vikings in potential trade**\
+`The Falcons are moving forward with Michael Penix Jr. as their starter, and Cousins has told the team he would rather play somewhere else.`\
+https://nytimes.com/athletic/6301944/2025/04/23/kirk-cousins-falcons-trade-calls/
+
+**Tariffs on China Aren’t Likely to Rescue Battered U.S. P.P.E. Industry**\
+`The few domestic companies that still make protective gear for health care workers have clamored for federal intervention. But they worry President Trump’s trade war with China won’t help.`\
+https://nytimes.com/2025/04/23/health/china-tariffs-ppe-health-care-workers.html
+
+**The Sleep Trends Experts Think You Should (and Shouldn’t) Try**\
+`Mouth tape, melatonin, “worry journals” — here’s what might actually help you sleep.`\
+https://nytimes.com/2025/04/23/well/social-media-sleep-trends-that-work.html
+
+**Sometimes You Just Need a Great Big Salad**\
+`And Alexa Weibel’s chopped salad with jalapeño-ranch dressing is both very great and very big (flavor-wise).`\
+https://nytimes.com/2025/04/23/dining/chopped-salad-jalapeno-dressing.html
+
+**Review: Little Adds Up in the Elusive ‘Grief Camp’**\
+`Les Waters’s production for Atlantic Theater Company is marvelously realized, despite the limitations of the play’s often maddening script.`\
+https://nytimes.com/2025/04/23/theater/grief-camp-review-atlantic-theater.html
+
 **For sale and smooth sailing: How the Vancouver Whitecaps have improbably thrived**\
 `In the wake of being put up for purchase, Vancouver has gone on a thrilling and historic Concacaf Champions Cup run and tops MLS's table`\
 https://nytimes.com/athletic/6297154/2025/04/23/vancouver-whitecaps-sale-mls-concacaf-champions-cup-semifinals-miami/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6301901/2025/04/23/why-the-business-of-the-nfl-draf
 **Yohe mailbag, Part 1: How long will it take until the Penguins are good again?**\
 `A look at the many intriguing decisions facing GM Kyle Dubas now that the offseason is officially here.`\
 https://nytimes.com/athletic/6300492/2025/04/23/penguins-offseason-dubas-grade/
-
-**Lowetide: What's defined the recent Oilers-Kings playoff series?**\
-`Here are some memorable moments from the last three Edmonton vs. L.A. series, with a hint of what's to come.`\
-https://nytimes.com/athletic/6299165/2025/04/23/oilers-kings-playoff-series-history/
-
-**American executive Stillitano to become president of Italian team Spezia**\
-`Stilltiano was previously the general manager of the New York/New Jersey MetroStars and has worked most recently as a soccer events promoter`\
-https://nytimes.com/athletic/6300769/2025/04/23/charlie-stillitano-spezia-takeover/
-
-**U.S. Calls for Sweeping Reforms to I.M.F. and World Bank**\
-`Treasury Secretary Scott Bessent argued in a speech that the multilateral economic institutions have veered away from their missions.`\
-https://nytimes.com/2025/04/23/business/bessent-imf-world-bank-overhauls.html
-
-**Kenyan Runner Will Try to Become First Woman to Break a 4-Minute Mile**\
-`A study suggested that Faith Kipyegon, the female record-holder, could do it under the right conditions. She is set to try in June.`\
-https://nytimes.com/2025/04/23/sports/kipyegon-kenya-female-runner-4-minute-mile.html
-
-**Club World Cup to be broadcast on Channel 5 in UK**\
-`The free-to-air channel will show 23 of the newly-expanded tournament's 63 matches live.`\
-https://nytimes.com/athletic/6301717/2025/04/23/club-world-cup-tv-channel-uk/
 
