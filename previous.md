@@ -1,7 +1,3 @@
-**What to Know About the Legal Battle Over a North Carolina Supreme Court Race**\
-`The Republican challenger has embarked on an extraordinary effort to reverse his election loss that critics say is testing the boundaries of post-election litigation.`\
-https://nytimes.com/2025/04/22/us/north-carolina-supreme-court-race-explainer.html
-
 **Trump will not target nonprofits in an executive order, the White House says.**\
 `By Theodore Schleifer`\
 https://nytimes.com/live/2025/04/22/us/trump-administration-news/trump-will-not-target-nonprofits-in-an-executive-order-the-white-house-says
@@ -12,7 +8,7 @@ https://nytimes.com/athletic/6300342/2025/04/22/pelicans-joe-dumars-zion-william
 
 **Roy Thomas Baker, Who Helped Produce ‘Bohemian Rhapsody,’ Dies at 78**\
 `Among the most successful music producers in the 1970s and ’80s, he helped churn out hits for acts like Queen, the Cars, Journey and Foreigner.`\
-https://nytimes.com/2025/04/22/arts/music/roy-thomas-baker-dead.html
+https://nytimes.com/2025/04/22/us/roy-thomas-baker-dead.html
 
 **Trump Says He Has No Plans to Fire Powell**\
 `President Trump’s recent comments blasting Jerome H. Powell, the Federal Reserve chair, for being “late” to lower interest rates had raised questions about his fate.`\
@@ -37,4 +33,8 @@ https://nytimes.com/2025/04/22/science/bats-drinking-flight.html
 **A Simpler Funeral for Francis, Who Shunned Many Gilt Papal Trappings**\
 `A funeral will be held on Saturday for the pope, who changed the rules to make such ceremonies simpler than those traditionally observed.`\
 https://nytimes.com/2025/04/22/world/europe/pope-francis-funeral.html
+
+**Improvement in execution gives Canadiens strong belief in their Game 2 chances**\
+`Montreal needs to have a clear mind right from the start of Game 2, something it showed it could do in the third period of Game 1.`\
+https://nytimes.com/athletic/6300225/2025/04/22/canadiens-nhl-playoffs-capitals-game-2/
 
