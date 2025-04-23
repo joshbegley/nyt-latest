@@ -1,3 +1,15 @@
+**Bruins GM Don Sweeney outlines plan for active offseason and prompt turnaround: ‘Every mechanism possible’**\
+`BOSTON — It is not Charlie Jacobs’ job to determine whether the 2025-26 Boston Bruins will be a playoff contender.`\
+https://nytimes.com/athletic/6302408/2025/04/23/bruins-don-sweeney-offseason-plans/
+
+**Arsenal in talks to extend Thomas Partey's contract**\
+`The 31-year-old's current terms expire this summer and that would enable him to leave as a free agent if a deal cannot be struck.`\
+https://nytimes.com/athletic/6302218/2025/04/23/thomas-partey-arsenal-contract-new/
+
+**Spain, a NATO member, increases military spending after years of resistance.**\
+`By Lynsey Chutel and José Bautista`\
+https://nytimes.com/live/2025/04/23/us/trump-news/spain-a-nato-member-increases-military-spending-after-years-of-resistance
+
 **Richard Branson Criticizes Trump’s ‘Erratic’ Tariff Policies**\
 `The British entrepreneur said the U.S. government’s unpredictable tariffs had “financially done a lot of harm” and driven the world to “the verge of a complete meltdown two weeks ago.”`\
 https://nytimes.com/2025/04/23/us/politics/richard-branson-trump-tariff-policies.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6300857/2025/04/23/angles-getaway-night-game-the-wi
 **A Perfect Day in a Gentle Meadow Is Shattered by Bloody Carnage**\
 `Victims and eyewitnesses described scenes of chaos and horror as militants killed 26 people in Kashmir as families, couples and friends took in a picturesque valley.`\
 https://nytimes.com/2025/04/23/world/asia/kashmir-pahalgam-attack-victims.html
-
-**Eric Adams Campaigns at Legal Weed Shop With Troubled History**\
-`Before it was a legal dispensary where the mayor hoped to raise campaign funds, the site held an illicit weed shop raided by the city. Some of its operators are still around.`\
-https://nytimes.com/2025/04/23/nyregion/eric-adams-sweetlife-dispensary-fundraiser.html
-
-**Thelwell set to be appointed Rangers sporting director**\
-`The 51-year-old is due to leave the same role at Everton this summer when his contract expires.`\
-https://nytimes.com/athletic/6302229/2025/04/23/kevin-thelwell-rangers-everton/
-
-**Tiny Love Stories: ‘The Secret About People’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2025/04/23/style/tiny-modern-love-stories-the-secret-about-people.html
 
