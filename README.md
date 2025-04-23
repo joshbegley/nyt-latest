@@ -1,3 +1,19 @@
+**Eric Adams Campaigns at Legal Weed Shop With Troubled History**\
+`Before it was a legal dispensary where the mayor hoped to raise campaign funds, the site held an illicit weed shop raided by the city. Some of its operators are still around.`\
+https://nytimes.com/2025/04/23/nyregion/eric-adams-sweetlife-dispensary-fundraiser.html
+
+**Thelwell set to be appointed Rangers sporting director**\
+`The 51-year-old is due to leave the same role at Everton this summer when his contract expires.`\
+https://nytimes.com/athletic/6302229/2025/04/23/kevin-thelwell-rangers-everton/
+
+**Tiny Love Stories: ‘The Secret About People’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/04/23/style/tiny-modern-love-stories-the-secret-about-people.html
+
+**Believing**\
+``\
+https://nytimes.com/spotlight/believing
+
 **Chappell Roan’s Faithful Country Swerve**\
 `One of the defining pop stars of the new generation is getting frisky with a 1990s country sound, our critic says in his weekly review from the driver’s seat.`\
 https://nytimes.com/video/podcasts/100000010126116/chappell-roan-giver-review.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6302285/2025/04/23/spire-motorsports-rodney-childer
 **YouTube at 20: From ‘Lazy Sunday’ to ‘Hot Ones’**\
 `The video-streaming platform has revolutionized how we watch things. Here’s a timeline of its biggest moments.`\
 https://nytimes.com/2025/04/23/technology/youtube-20th-anniversary-timeline.html
-
-**The Dispatch Buys SCOTUSblog, a Supreme Court Mainstay**\
-`The Dispatch, a right-of-center political news and commentary start-up, plans to keep the legal news website available at no cost. Terms of the deal were not disclosed.`\
-https://nytimes.com/2025/04/23/business/media/scotusblog-the-dispatch.html
-
-**Jay Feely, former NFL kicker, to run for office in Arizona**\
-`Feely said it was the July assassination attempt on Trump in Pennsylvania that inspired him to run for office.`\
-https://nytimes.com/athletic/6302252/2025/04/23/jay-feely-political-run-arizona/
-
-**Karen Durbin, 80, Dies; ‘Fearless’ Feminist Who Edited The Village Voice**\
-`A fierce advocate of sexual liberation, she pushed the alternative weekly to cover women’s issues, as well as gay rights and avant-garde culture.`\
-https://nytimes.com/2025/04/23/business/media/karen-durbin-dead.html
-
-**Falcons' phone lines are open as they search for an NFL Draft trade partner**\
-`The Falcons won't necessarily take a defensive player with their first pick in the 2025 NFL Draft, GM Terry Fontenot said.`\
-https://nytimes.com/athletic/6302075/2025/04/23/falcons-nfl-draft-trade-possibilities/
 
