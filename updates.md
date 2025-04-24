@@ -1,3 +1,7 @@
+**A Judge Released Him From Prison. The D.A. Wants to Lock Him Back Up.**\
+`After Andre Brown’s 40-year sentence was overturned, he went free. The Bronx district attorney appealed, and now he is set to return to prison and leave his wife and children.`\
+https://nytimes.com/2025/04/24/nyregion/bronx-shooting-sentence-commutation-reversed.html
+
 **Kristi Noem’s Handbag Was Snatched From Beneath Her Chair, D.H.S. Says**\
 `Ms. Noem “could feel this person as they snatched her bag,” a spokeswoman for the Department of Homeland Security said.`\
 https://nytimes.com/2025/04/24/us/politics/kristi-noem-handbag-stolen.html

@@ -1,3 +1,7 @@
+**A Judge Released Him From Prison. The D.A. Wants to Lock Him Back Up.**\
+`After Andre Brown’s 40-year sentence was overturned, he went free. The Bronx district attorney appealed, and now he is set to return to prison and leave his wife and children.`\
+https://nytimes.com/2025/04/24/nyregion/bronx-shooting-sentence-commutation-reversed.html
+
 **Kristi Noem’s Handbag Was Snatched From Beneath Her Chair, D.H.S. Says**\
 `Ms. Noem “could feel this person as they snatched her bag,” a spokeswoman for the Department of Homeland Security said.`\
 https://nytimes.com/2025/04/24/us/politics/kristi-noem-handbag-stolen.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6304766/2025/04/24/notre-dame-marcus-freeman-2025-r
 **Madrid's Camavinga suffers abductor tear, expected to miss Club World Cup**\
 `The 22-year-old sustained the injury in Madrid’s 1-0 win over Getafe on Wednesday after coming on as a substitute for David Alaba.`\
 https://nytimes.com/athletic/6304431/2025/04/24/real-madrid-eduardo-camavinga-injury-latest/
-
-**Adjustments to watch for as Jets take series lead into St. Louis**\
-`Hockey is a game of narrow margins, and few know it better than Jim Montgomery and Scott Arniel.`\
-https://nytimes.com/athletic/6303464/2025/04/24/jets-adjustments-blues-nhl-playoffs/
 
