@@ -1,3 +1,11 @@
+**Travis Sanheim's, Travis Konecny's second-half sags 'something that has to get fixed'**\
+`Sanheim and Konecny started the season strong but began to wobble just past the midway point. Both assessed their performances last week.`\
+https://nytimes.com/athletic/6305039/2025/04/24/flyers-travis-sanheim-travis-konecny/
+
+**Bucks, general manager Jon Horst agree on multiyear contract extension: Sources**\
+`The Bucks’ 2021 NBA championship, the franchise’s second title, sits at the top of Horst’s accomplishments on his Milwaukee resume.`\
+https://nytimes.com/athletic/6305301/2025/04/24/bucks-jon-horst-contract-extension/
+
 **Juilliard Plans $550 Million Drive to Go Tuition Free**\
 `The goal is to make the school’s programs more accessible and to ease the burden on graduates pursuing careers in the arts.`\
 https://nytimes.com/2025/04/24/arts/music/juilliard-tuition-free.html
