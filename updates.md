@@ -1,3 +1,15 @@
+**Ask Ornstein Q&A: Our football insider answers your questions**\
+`Here is your opportunity to ask David Ornstein anything you want about the world of football`\
+https://nytimes.com/athletic/6304371/2025/04/24/ask-ornstein-qa-our-football-insider-answers-your-questions-25/
+
+**Expected stats point to Salvador Perez, Dylan Crews as top buy low hitters for fantasy baseball**\
+`Owen Poindexter looks for buy-low candidates, comparing the difference in hitters' slugging  percentage versus their expected slugging.`\
+https://nytimes.com/athletic/6302728/2025/04/24/fantasy-baseball-buy-low-hitters-expected-stats-april/
+
+**Ryan Walker struggles again, and Giants' closer situation is suddenly complicated**\
+`Against the Brewers on Wednesday night, Walker faced five batters and got just one of them out.`\
+https://nytimes.com/athletic/6304006/2025/04/24/ryan-walker-struggles-giants-closer-situation/
+
 **Kings have Oilers reeling and an NHL playoff moment to seize**\
 `The Kings were the better team in Game 2, and the Oilers are ripe for the taking. Can L.A. keep it rolling on the road?`\
 https://nytimes.com/athletic/6304280/2025/04/24/kings-oilers-nhl-playoffs-game-2/
