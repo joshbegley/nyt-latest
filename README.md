@@ -1,3 +1,7 @@
+**Travis Sanheim's, Travis Konecny's second-half sags 'something that has to get fixed'**\
+`Sanheim and Konecny started the season strong but began to wobble just past the midway point. Both assessed their performances last week.`\
+https://nytimes.com/athletic/6305039/2025/04/24/flyers-travis-sanheim-travis-konecny/
+
 **Juilliard Plans $550 Million Drive to Go Tuition Free**\
 `The goal is to make the school’s programs more accessible and to ease the burden on graduates pursuing careers in the arts.`\
 https://nytimes.com/2025/04/24/arts/music/juilliard-tuition-free.html
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/6305339/2025/04/24/iga-swiatek-madrid-result-analys
 `Max Pacioretty is in. Nick Robertson is out. What it means for the Leafs in Game 3.`\
 https://nytimes.com/athletic/6304919/2025/04/24/leafs-lines-senators-game-3-nhl-playoffs/
 
-**Bucks, general manager Jon Horst agree on multi-year contract extension: Sources**\
+**Bucks, general manager Jon Horst agree on multiyear contract extension: Sources**\
 `The Bucks’ 2021 NBA championship, the franchise’s second title, sits at the top of Horst’s accomplishments on his Milwaukee resume.`\
 https://nytimes.com/athletic/6305301/2025/04/24/bucks-jon-horst-contract-extension/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/24/technology/chat-gpt-alexa-please-thank-you.html
 **Pulisic 'gave a lot' during Milan Coppa Italia victory - Conceicao**\
 `Pulisic put in a 78-minute shift before being replaced by Ruben Loftus-Cheek in Milan's 3-0 victory on Wednesday.`\
 https://nytimes.com/athletic/6305317/2025/04/24/pulisic-ac-milan-coppa-italia-conceicao/
-
-**Trump Asks Supreme Court to Revive Ban on Transgender Troops**\
-`Lower courts had blocked the policy, saying it was not supported by evidence and violated equal protection principles.`\
-https://nytimes.com/2025/04/24/us/trump-supreme-transgender-troops.html
 
