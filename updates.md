@@ -1,3 +1,7 @@
+**Warriors' Jimmy Butler ruled out of Game 2 vs. Rockets with pelvic contusion**\
+`Butler was injured after being undercut in the air by Rockets forward Amen Thompson`\
+https://nytimes.com/athletic/6303793/2025/04/23/jimmy-butler-injury-pelvic-contusion-warriors-nba-playoffs/
+
 **NBA playoff takeaways: Cavaliers escape Heat; Celtics dominate Magic**\
 `Celtics-Magic heads to Orlando for Game 3 on Friday, while Cavaliers-Heat resumes in Miami on Saturday.`\
 https://nytimes.com/athletic/6303566/2025/04/23/nba-playoff-celtics-magic-cavaliers-heat-warriors-rockets-scores-takeaways/

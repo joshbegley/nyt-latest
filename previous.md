@@ -1,3 +1,7 @@
+**Warriors' Jimmy Butler ruled out of Game 2 vs. Rockets with pelvic contusion**\
+`Butler was injured after being undercut in the air by Rockets forward Amen Thompson`\
+https://nytimes.com/athletic/6303793/2025/04/23/jimmy-butler-injury-pelvic-contusion-warriors-nba-playoffs/
+
 **Twins greats Tony Oliva, Kent Hrbek recovering after recent strokes**\
 `Oliva, 86, and Hrbek, 64, are recovering after each suffered a stroke in the past month, a team official confirmed Wednesday night.`\
 https://nytimes.com/athletic/6303649/2025/04/23/tony-oliva-kent-hrbek-strokes-minnesota-twins/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/23/nyregion/las-vegas-sands-casino-nassau-coliseum.h
 **12 States Sue Trump Over His Tariffs**\
 `The lawsuit, filed by Democratic attorneys general, said the president’s tariffs have hurt their economies and residents.`\
 https://nytimes.com/2025/04/23/us/politics/states-tariff-trump-lawsuit.html
-
-**The Mets are playing like baseball's best and they're not surprised at all**\
-`The Mets have the best record in baseball and they could remain at or near the top of the league for a long time to come.`\
-https://nytimes.com/athletic/6303339/2025/04/23/mets-mlb-record-2025-baseball-best/
 
