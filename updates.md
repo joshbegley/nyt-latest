@@ -1,3 +1,15 @@
+**Warriors downplay Rockets' physicality after Jimmy Butler's hard fall, Game 2 loss**\
+`The series vs. the Rockets is tied 1-1 and has gotten increasingly chippy. But the Warriors aren't complaining, even after Butler's injury.`\
+https://nytimes.com/athletic/6304220/2025/04/24/warriors-playoffs-jimmy-butler-rockets-physicality/
+
+**Mike Golic, Mike Golic Jr. to team up for show on FanDuel Sports Network**\
+`“Golic & Golic” is expected to air weekdays from 4 p.m. to 6 p.m. ET as a lead-in to the network’s regional games each night.`\
+https://nytimes.com/athletic/6303343/2025/04/24/mike-golic-mike-golic-jr-show-fanduel-sports-network/
+
+**The Athletic FC: All-time Premier League draft, Vinicius Jr's contract stand-off**\
+`In today's TAFC: An all-time Premier League draft, Vinicius Jr eyes bumper new deal at Real Madrid and Arena questions Pochettino hiring.`\
+https://nytimes.com/athletic/6304209/2025/04/24/premier-league-draft-arena-pochettino/
+
 **Jamie Vardy to leave Leicester at end of this season**\
 `The 38-year-old has scored the third-most goals in the club's history, with 198 goals in 496 appearances.`\
 https://nytimes.com/athletic/6287219/2025/04/24/jamie-vardy-leicester-next/
