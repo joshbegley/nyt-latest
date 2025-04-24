@@ -1,3 +1,11 @@
+**Small Agency Focused on Developing Poor Countries to Be Dismantled**\
+`Millennium Challenge Corporation staff members were offered early retirement or deferred resignation in the latest effort by the Trump administration to gut the foreign aid apparatus.`\
+https://nytimes.com/2025/04/23/us/small-agency-focused-on-developing-poor-countries-to-be-dismantled.html
+
+**Will the Wild scratch Buium or Bogosian for Game 3? Changes could be coming**\
+`Coach John Hynes hinted that he might want to "give a player a break" given the quick turnaround between the next two games.`\
+https://nytimes.com/athletic/6303328/2025/04/23/wild-golden-knights-game-3-lineup/
+
 **After Edwin Díaz leaves early, the Mets' depth picks up the team — again**\
 `The Mets' depth is a major reason they've won seven straight games, including a win over the Phillies on Wednesday for a sweep.`\
 https://nytimes.com/athletic/6303188/2025/04/23/mets-seven-wins-depth-bullpen-starling-marte/
