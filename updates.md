@@ -1,3 +1,23 @@
+**We Need Proof of Life for the Makeup Artist Trump Sent to El Salvador**\
+`It’s a moral imperative to try to rescue people like Andry Hernández Romero.`\
+https://nytimes.com/2025/04/24/opinion/trump-el-salvador-makeup-artist.html
+
+**Why Did a Charity Tied to Casey DeSantis Suddenly Get a $10 Million Boost?**\
+`The Hope Florida Foundation quietly gave the money to two nonprofit political committees that helped Gov. Ron DeSantis and his allies defeat a ballot measure.`\
+https://nytimes.com/2025/04/24/us/ron-desantis-casey-desantis-charity.html
+
+**Canadiens playoff notebook: Potential lineup changes, power-play woes, right-catching goalies**\
+`Patrik Laine's benching leads to a few potential scenarios for Martin St. Louis' Game 3 lineup, which would also allow for a PP adjustment.`\
+https://nytimes.com/athletic/6306372/2025/04/24/canadiens-nhl-playoffs-lineup-patrik-laine/
+
+**Steve McMichael, Hall of Fame Tackle for Champion Bears, Dies at 67**\
+`He was a ferocious part of a dominant defense that swept the 1985 Chicago team to victory in the Super Bowl. After 15 N.F.L. seasons, he became a pro wrestler.`\
+https://nytimes.com/2025/04/24/sports/football/steve-mcmichael-dead.html
+
+**Trump Urges Russia to ‘STOP!’ After Deadly Attack on Ukraine’s Capital**\
+`President Trump also sought to divert blame should negotiations fall apart, a sign that he is perhaps more pessimistic about a deal than he was when he took office in January.`\
+https://nytimes.com/2025/04/24/us/politics/russia-trump-putin-ukraine.html
+
 **Where is the 2026 NFL Draft? Which cities submitted bids to host 2027 draft?**\
 `With the 2025 NFL Draft ready to roll, we look ahead to 2026 and which city might host in 2027.`\
 https://nytimes.com/athletic/6287852/2025/04/24/nfl-draft-2026-host-city/
