@@ -1,3 +1,7 @@
+**Stars hold off Avalanche in overtime to take 2-1 series lead: Takeaways**\
+`Dallas defeated Colorado 2-1 in Game 3 and Mikko Rantanen picked up his first point of the series.`\
+https://nytimes.com/athletic/6303777/2025/04/24/avalanche-stars-game-3-nhl-playoffs-2025/
+
 **Thursday Briefing: Trump Lashes Out at Zelensky**\
 `Plus, the perfect pour-over coffee.`\
 https://nytimes.com/2025/04/24/briefing/trump-zelensky-syria-the-pope-lies-in-state.html
