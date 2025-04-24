@@ -1,40 +1,40 @@
-**Interior Department to Fast-Track Oil, Gas and Mining Projects**\
-`The Trump administration plans to dramatically reduce environmental reviews before permitting drilling and mining projects on public lands and in federal waters.`\
-https://nytimes.com/2025/04/23/climate/interior-department-gas-and-mining-projects.html
+**After Militant Attack in Kashmir, Pakistan Braces for Strike by India**\
+`The Pakistani government said it did not want an escalation, but in the wake of a deadly attack in Indian-controlled Kashmir by unidentified militants, analysts warned of an unpredictable situation.`\
+https://nytimes.com/2025/04/24/world/asia/pakistan-india-kashmir-attack.html
 
-**Warriors' Jimmy Butler ruled out of Game 2 vs. Rockets with pelvic contusion**\
-`Butler fell on his tailbone area after being undercut in the air by Rockets forward Amen Thompson`\
-https://nytimes.com/athletic/6303793/2025/04/23/jimmy-butler-injury-pelvic-contusion-warriors-nba-playoffs/
+**At 99, a Seminal Asian Leader Reflects on a Contentious Legacy**\
+`In his first, 22-year stretch as prime minister, Mahathir Mohamad transformed Malaysia’s economy. But he was also accused of being a strongman and antisemite. In an interview, he offers a self-assessment.`\
+https://nytimes.com/2025/04/24/world/asia/malaysia-mahathir-mohamad-interview.html
 
-**Twins greats Tony Oliva, Kent Hrbek recovering after recent strokes**\
-`Oliva, 86, and Hrbek, 64, are recovering after each suffered a stroke in the past month, a team official confirmed Wednesday night.`\
-https://nytimes.com/athletic/6303649/2025/04/23/tony-oliva-kent-hrbek-strokes-minnesota-twins/
+**Oscar Piastri's trademark calm emerges as his best weapon in F1's championship fight**\
+`Ice-cool and unfussy, the 24-year-old Australian is showing his title credentials this season, but his composure has been evident for years`\
+https://nytimes.com/athletic/6297339/2025/04/24/oscar-piastri-f1-mclaren-championship-calm/
 
-**All Over the Map**\
-`Kathleen Duncan makes her New York Times Crossword debut.`\
-https://nytimes.com/2025/04/23/crosswords/daily-puzzle-2025-04-24.html
+**Her Abortion Drama Won Praise, but Not in Her Native Country**\
+`The director Dea Kulumbegashvili’s new movie, “April,” shines a light on the complicated situation for women seeking abortions in Georgia.`\
+https://nytimes.com/2025/04/24/movies/april-dea-kulumbegashvili-abortion-goergia.html
 
-**NBA playoff takeaways: Cavaliers escape Heat; Celtics dominate Magic**\
-`Celtics-Magic heads to Orlando for Game 3 on Friday, while Cavaliers-Heat resumes in Miami on Saturday.`\
-https://nytimes.com/athletic/6303566/2025/04/23/nba-playoff-celtics-magic-cavaliers-heat-warriors-rockets-scores-takeaways/
+**Corrections: April 24, 2025**\
+`Corrections that appeared in print on Thursday, April 24, 2025.`\
+https://nytimes.com/2025/04/24/pageoneplus/corrections-april-24-2025.html
 
-**Capitals outlast Canadiens again to take 2-0 series lead: Takeaways**\
-`For the second straight game, the Canadiens mounted a third-period push on the Eastern Conference's top seed. Again, it wasn't enough.`\
-https://nytimes.com/athletic/6303409/2025/04/23/canadiens-capitals-nhl-playoffs-2025-game-2-takeaways/
+**Connections: Sports Edition Coach: Hints for April 24, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6302760/2025/04/24/connections-sports-edition-hints-for-april-24-2025/
 
-**Gabriel Landeskog returns for Avalanche in Game 3 after 3-year NHL absence**\
-`Landeskog last played in an NHL game on June 26, 2022. Now, he's back with the Avalanche for their first-round series versus the Stars.`\
-https://nytimes.com/athletic/6303034/2025/04/23/gabriel-landeskog-avalanche-return-nhl-playoffs/
+**For China’s Trolls, ‘Chairman Trump’ and ‘Eyeliner Man’ Are Easy Targets**\
+`Online mockery of President Trump is fodder for the Communist Party’s propagandists. For liberal-minded Chinese, it is a creative expression of shock at his policies.`\
+https://nytimes.com/2025/04/24/business/china-trump-vance.html
 
-**Small Agency Focused on Developing Poor Countries to Be Dismantled**\
-`Millennium Challenge Corporation staff members were offered early retirement or deferred resignation in the latest effort by the Trump administration to gut the foreign aid apparatus.`\
-https://nytimes.com/2025/04/23/us/trump-doge-millennium-challenge-corporation.html
+**On TikTok, Chinese Manufacturers Open a New Line in the Trade War**\
+`Videos on the social media app, filmed at factories in China, urge viewers to buy luxury goods directly, as tariffs drive up prices. Americans are receptive.`\
+https://nytimes.com/2025/04/24/technology/chinese-factories-tiktok-trade-war.html
 
-**Ex-Army Sergeant Gets 7 Years for Selling Military Secrets to Chinese Conspirator**\
-`Korbein Schultz, 25, who was an intelligence analyst, accepted $42,000 in bribes for sensitive documents, prosecutors said. He pleaded guilty in 2024.`\
-https://nytimes.com/2025/04/23/us/army-analyst-selling-secrets-sentenced.html
+**Chinese Factory Videos Find a New Audience: American Consumers**\
+`Videos on social media sites like TikTok, urging Americans to buy directly from factories in China, have been viewed by millions. The New York Times spoke to a worker at a Chinese jewelry factory who made some of the viral videos.`\
+https://nytimes.com/video/business/economy/100000010116202/tiktok-china-us-trade-war.html
 
-**Las Vegas Sands Drops Bid to Open a Casino on Long Island**\
-`The company cited the threat that online gambling posed to its profits in its decision to bow out of the competition for one of three casino licenses around New York City.`\
-https://nytimes.com/2025/04/23/nyregion/las-vegas-sands-casino-nassau-coliseum.html
+**Quote of the Day: Canada’s Million-Dollar Housing Crisis Prompts Exodus From Urban Centers**\
+`Quotation of the Day for Thursday, April 24, 2025.`\
+https://nytimes.com/2025/04/23/pageoneplus/quote-of-the-day-canadas-million-dollar-housing-crisis-prompts-exodus-from-urban-centers.html
 
