@@ -1,3 +1,7 @@
+**Scoop City: Your 5-minute draft day guide**\
+`Who are the teams to watch? Which players are attending? What does Vegas expect to happen? All that and more in today's draft primer.`\
+https://nytimes.com/athletic/6305385/2025/04/24/nfl-draft-2025-primer-guide-cam-ward-shedeur-sanders-scoop-city/
+
 **Lawyer for New York Attorney General Blasts Trump for ‘Retribution’**\
 `The lawyer, Abbe Lowell, told the Justice Department that allegations against Attorney General Letitia James related to property she owns lacked “any credible foundation.”`\
 https://nytimes.com/2025/04/24/nyregion/ny-attorney-general-letter-justice-department.html
