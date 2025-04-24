@@ -1,3 +1,7 @@
+**Hurzeler explains use of sleep expert to deal with Premier League pressure**\
+`Hurzeler explained he is "always" thinking about football and tactics and subsequently sought advice over better sleeping habits.`\
+https://nytimes.com/athletic/6304243/2025/04/24/fabian-hurzeler-brighton-sleep-expert/
+
 **Heat have a road map to win Game 3 thanks to Erik Spoelstra and Davion Mitchell**\
 `The Heat, led by the man known as Game 2 Spo, nearly pulled off the comeback against the Cavs, setting the stage for a showdown in Miami.`\
 https://nytimes.com/athletic/6304157/2025/04/24/heat-cavs-game-2-davion-mitchell-tyler-herro/
