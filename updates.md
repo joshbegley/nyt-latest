@@ -1,3 +1,15 @@
+**Lawyer for New York Attorney General Blasts Trump for ‘Retribution’**\
+`The lawyer, Abbe Lowell, told the Justice Department that allegations against Attorney General Letitia James related to property she owns lacked “any credible foundation.”`\
+https://nytimes.com/2025/04/24/nyregion/ny-attorney-general-letter-justice-department.html
+
+**U.S. Urges Japan and South Korea to Commit to $44 Billion Alaska Gas Project**\
+`A group advising President Trump on energy policy is seeking meetings with Japan and South Korea’s trade ministries, with the hope of announcing progress in early June.`\
+https://nytimes.com/2025/04/24/business/alaska-lng-japan-south-korea.html
+
+**Bucks, general manager Jon Horst agree on multiyear contract extension: Sources**\
+`The Bucks’ 2021 NBA championship, the franchise’s second title, sits at the top of Horst’s accomplishments.`\
+https://nytimes.com/athletic/6305301/2025/04/24/bucks-jon-horst-contract-extension/
+
 **Travis Sanheim's, Travis Konecny's second-half sags 'something that has to get fixed'**\
 `Sanheim and Konecny started the season strong but began to wobble just past the midway point. Both assessed their performances last week.`\
 https://nytimes.com/athletic/6305039/2025/04/24/flyers-travis-sanheim-travis-konecny/

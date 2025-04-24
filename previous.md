@@ -1,3 +1,11 @@
+**Lawyer for New York Attorney General Blasts Trump for ‘Retribution’**\
+`The lawyer, Abbe Lowell, told the Justice Department that allegations against Attorney General Letitia James related to property she owns lacked “any credible foundation.”`\
+https://nytimes.com/2025/04/24/nyregion/ny-attorney-general-letter-justice-department.html
+
+**U.S. Urges Japan and South Korea to Commit to $44 Billion Alaska Gas Project**\
+`A group advising President Trump on energy policy is seeking meetings with Japan and South Korea’s trade ministries, with the hope of announcing progress in early June.`\
+https://nytimes.com/2025/04/24/business/alaska-lng-japan-south-korea.html
+
 **Travis Sanheim's, Travis Konecny's second-half sags 'something that has to get fixed'**\
 `Sanheim and Konecny started the season strong but began to wobble just past the midway point. Both assessed their performances last week.`\
 https://nytimes.com/athletic/6305039/2025/04/24/flyers-travis-sanheim-travis-konecny/
@@ -15,7 +23,7 @@ https://nytimes.com/athletic/6305339/2025/04/24/iga-swiatek-madrid-result-analys
 https://nytimes.com/athletic/6304919/2025/04/24/leafs-lines-senators-game-3-nhl-playoffs/
 
 **Bucks, general manager Jon Horst agree on multiyear contract extension: Sources**\
-`The Bucks’ 2021 NBA championship, the franchise’s second title, sits at the top of Horst’s accomplishments on his Milwaukee resume.`\
+`The Bucks’ 2021 NBA championship, the franchise’s second title, sits at the top of Horst’s accomplishments.`\
 https://nytimes.com/athletic/6305301/2025/04/24/bucks-jon-horst-contract-extension/
 
 **League One player sentenced to 14 months in prison for causing death of cyclist**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/24/arts/design/8-standouts-at-the-aipad-photography-
 **Student Stabs 4 Others, One Fatally, at a French High School**\
 `The motive was unclear for the attack, which occurred at a time of heightened concern in France about knife attacks in schools.`\
 https://nytimes.com/2025/04/24/world/europe/french-school-knife-attack.html
-
-**Saying ‘Thank You’ to Chat GPT Is Costly. But Maybe It’s Worth the Price.**\
-`Adding words to our chatbot can apparently cost tens of millions of dollars. But some fear the cost of not saying please or thank you could be higher.`\
-https://nytimes.com/2025/04/24/technology/chat-gpt-alexa-please-thank-you.html
-
-**Pulisic 'gave a lot' during Milan Coppa Italia victory - Conceicao**\
-`Pulisic put in a 78-minute shift before being replaced by Ruben Loftus-Cheek in Milan's 3-0 victory on Wednesday.`\
-https://nytimes.com/athletic/6305317/2025/04/24/pulisic-ac-milan-coppa-italia-conceicao/
 

@@ -1,3 +1,7 @@
+**Scoop City: Your 5-minute draft day guide**\
+`Who are the teams to watch? Which players are attending? What does Vegas expect to happen? All that and more in today's draft primer.`\
+https://nytimes.com/athletic/6305385/2025/04/24/nfl-draft-2025-primer-guide-cam-ward-shedeur-sanders-scoop-city/
+
 **Lawyer for New York Attorney General Blasts Trump for ‘Retribution’**\
 `The lawyer, Abbe Lowell, told the Justice Department that allegations against Attorney General Letitia James related to property she owns lacked “any credible foundation.”`\
 https://nytimes.com/2025/04/24/nyregion/ny-attorney-general-letter-justice-department.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6304996/2025/04/24/lucas-akins-prison-mansfield/
 **8 Standouts at the AIPAD Photography Fair**\
 `This year’s colorful and wide-ranging edition of the Association of International Photography Art Dealers fair is a bursting capsule history of the medium.`\
 https://nytimes.com/2025/04/24/arts/design/8-standouts-at-the-aipad-photography-fair.html
-
-**Student Stabs 4 Others, One Fatally, at a French High School**\
-`The motive was unclear for the attack, which occurred at a time of heightened concern in France about knife attacks in schools.`\
-https://nytimes.com/2025/04/24/world/europe/french-school-knife-attack.html
 
