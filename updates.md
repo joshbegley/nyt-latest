@@ -1,3 +1,7 @@
+**Amsterdam’s Mayor Apologizes for City’s Role in the Holocaust**\
+`The city “horribly abandoned its Jewish residents,” more than 60,000 of whom were deported and killed during World War II, Mayor Femke Halsema said on Thursday.`\
+https://nytimes.com/2025/04/24/world/europe/amsterdam-holocaust-apology-wwii.html
+
 **What Elon Musk Didn’t Budget For: Firing Workers Costs Money, Too**\
 `An expert on the federal work force estimates that the speed and chaos of Mr. Musk’s cuts to the bureaucracy will cost taxpayers $135 billion this fiscal year.`\
 https://nytimes.com/2025/04/24/us/politics/musk-cuts.html
