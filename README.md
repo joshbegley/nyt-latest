@@ -1,3 +1,7 @@
+**Can 3,500 Percent Tariffs Protect the U.S. Solar Industry?**\
+`The U.S. imposed sky-high tariffs on solar imports from four countries, but it’s unclear if they will be enough to fight back Chinese competitors.`\
+https://nytimes.com/2025/04/24/climate/solar-tariffs-united-states-china.html
+
 **This Land Is His Land. But Is It Wetland?**\
 `A longtime provision of federal law called Swampbuster, which has protected millions of acres of wetland from being farmed, is facing a legal challenge.`\
 https://nytimes.com/2025/04/24/us/swampbuster-wetlands-iowa.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/24/movies/havoc-review.html
 **How India’s Threat to Block Rivers Could Devastate Pakistan**\
 `After a militant attack in Kashmir, the Indian government said it was suspending its participation in a treaty that governs most of the water used in Pakistani agriculture.`\
 https://nytimes.com/2025/04/24/world/asia/india-pakistan-indus-waters-treaty.html
-
-**Who’s a Carthaginian? Genetic Study Revises Ancestry of Rome’s Ancient Nemesis**\
-`The inhabitants of Carthage were long thought to have derived from Levantine Phoenicians. But an eight-year study suggests they were more closely related to Greeks.`\
-https://nytimes.com/2025/04/24/science/archaeology-genetics-carthage-phoenician.html
 
