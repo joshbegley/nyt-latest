@@ -1,3 +1,15 @@
+**Live Q&A: Talking fantasy football and the 2025 NFL Draft with Jake Ciely at 6 p.m. ET**\
+`Jake Ciely answers all your pre-NFL Draft fantasy football questions in a live Q&A, exclusive for The Athletic subscribers.`\
+https://nytimes.com/athletic/6306066/2025/04/24/live-qa-talking-fantasy-football-and-the-2025-nfl-draft-with-jake-ciely-on-friday-4-24-at-6-p-m-et/
+
+**Friday Briefing: Trump Tells Putin to ‘STOP!’**\
+`Plus, was Shakespeare a bad husband?`\
+https://nytimes.com/2025/04/24/briefing/trump-putin-ukraine-india-pakistan-pope-funeral.html
+
+**Trump’s Strength Is His Greatest Weakness**\
+`His initiative has been the key to much of his success, but lacking any sense of prudence, he does not understand the difference between a risk and a gamble.`\
+https://nytimes.com/2025/04/24/opinion/trump-administration-energy-strength-weakness.html
+
 **Publisher of PCMag and Mashable Sues OpenAI**\
 `Ziff Davis, which owns more than 45 media properties, is accusing the tech company of infringing on the publisher’s copyrights and diluting its trademarks.`\
 https://nytimes.com/2025/04/24/business/media/ziff-davis-openai-lawsuit.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/24/world/africa/congo-rwanda-m23-war.html
 **Where the Menu Is Always Changing**\
 `These three restaurants don’t stick to the script, and it makes them worth visiting again and again.`\
 https://nytimes.com/2025/04/24/dining/where-the-menu-is-always-changing.html
-
-**Andrea Nevins, Who Turned Offbeat Subjects Into Moving Films, Dies at 63**\
-`Her documentaries, one of which received an Oscar nomination, explored subjects like punk-rock dads and Barbie dolls.`\
-https://nytimes.com/2025/04/24/movies/andrea-nevins-dead.html
-
-**Shannon Sharpe temporarily stepping away from ESPN amid rape allegations**\
-`Sharpe is facing a $50 million lawsuit in which a Nevada woman alleged he raped and threatened her during a two-year relationship.`\
-https://nytimes.com/athletic/6305867/2025/04/24/shannon-sharpe-steps-away-espn-rape-lawsuit/
-
-**‘Game Changer’ Is a Fun and Unpredictable Game Show**\
-`Now in its seventh season, the show puts its comedian contestants through a weird and wide-ranging variety of funny and endearing challenges.`\
-https://nytimes.com/2025/04/24/arts/television/game-changer-dropout.html
 

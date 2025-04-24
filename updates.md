@@ -1,3 +1,11 @@
+**Publisher of PCMag and Mashable Sues OpenAI**\
+`Ziff Davis, which owns more than 45 media properties, is accusing the tech company of infringing on the publisher’s copyrights and diluting its trademarks.`\
+https://nytimes.com/2025/04/24/business/media/ziff-davis-openai-lawsuit.html
+
+**Alphabet Reports 12% Increase in Revenue**\
+`Google’s parent company, which is battling the government to stay intact after losing two antitrust cases, also said quarterly profit rose 46 percent.`\
+https://nytimes.com/2025/04/24/technology/google-alphabet-earnings.html
+
 **Amsterdam’s Mayor Apologizes for City’s Role in the Holocaust**\
 `The city “horribly abandoned its Jewish residents,” more than 60,000 of whom were deported and killed during World War II, Mayor Femke Halsema said on Thursday.`\
 https://nytimes.com/2025/04/24/world/europe/amsterdam-holocaust-apology-wwii.html
