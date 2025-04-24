@@ -1,3 +1,7 @@
+**Howe to return for Newcastle's match against Ipswich**\
+`Howe has missed Newcastle's last three matches after contracting pneumonia.`\
+https://nytimes.com/athletic/6304283/2025/04/24/eddie-howe-newcastle-return-pneumonia/
+
 **Hurzeler explains use of sleep expert to deal with Premier League pressure**\
 `Hurzeler explained he is "always" thinking about football and tactics and subsequently sought advice over better sleeping habits.`\
 https://nytimes.com/athletic/6304243/2025/04/24/fabian-hurzeler-brighton-sleep-expert/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/24/crosswords/spelling-bee-forum.html
 **The $40 Billion Issue the N.Y.C. Mayoral Candidates Aren’t Discussing**\
 `With more than 900,000 students, New York’s public school system is the biggest in the United States, but it has received scant attention from candidates.`\
 https://nytimes.com/2025/04/24/nyregion/new-york-city-mayor-education.html
-
-**At Least 9 Dead in Russian Airstrikes on Kyiv, Ukrainian Officials Say**\
-`The overnight assault on Ukraine’s capital was the deadliest since last summer, and comes as the United States has threatened to walk away from the peace process.`\
-https://nytimes.com/2025/04/24/world/europe/ukraine-kyiv-russia-attack.html
 

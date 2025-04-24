@@ -1,3 +1,7 @@
+**Howe to return for Newcastle's match against Ipswich**\
+`Howe has missed Newcastle's last three matches after contracting pneumonia.`\
+https://nytimes.com/athletic/6304283/2025/04/24/eddie-howe-newcastle-return-pneumonia/
+
 **At Least 9 Dead in Russian Airstrikes on Kyiv, Ukrainian Officials Say**\
 `The overnight assault on Ukraine’s capital was the deadliest since last summer, and comes as the United States has threatened to walk away from the peace process.`\
 https://nytimes.com/2025/04/24/world/europe/ukraine-kyiv-russia-attack.html
