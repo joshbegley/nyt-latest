@@ -1,3 +1,7 @@
+**Hurzeler explains use of sleep expert to deal with Premier League pressure**\
+`Hurzeler explained he is "always" thinking about football and tactics and subsequently sought advice over better sleeping habits.`\
+https://nytimes.com/athletic/6304243/2025/04/24/fabian-hurzeler-brighton-sleep-expert/
+
 **Heat have a road map to win Game 3 thanks to Erik Spoelstra and Davion Mitchell**\
 `The Heat, led by the man known as Game 2 Spo, nearly pulled off the comeback against the Cavs, setting the stage for a showdown in Miami.`\
 https://nytimes.com/athletic/6304157/2025/04/24/heat-cavs-game-2-davion-mitchell-tyler-herro/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/24/nyregion/new-york-city-mayor-education.html
 **At Least 9 Dead in Russian Airstrikes on Kyiv, Ukrainian Officials Say**\
 `The overnight assault on Ukraine’s capital was the deadliest since last summer, and comes as the United States has threatened to walk away from the peace process.`\
 https://nytimes.com/2025/04/24/world/europe/ukraine-russia-missiles-airstrikes.html
-
-**Deadly Airstrikes Hit Ukraine’s Capital**\
-`The deadly overnight attack damaged buildings in Kyiv and killed at least nine people, officials said.`\
-https://nytimes.com/video/world/europe/100000010127811/ukraine-kyiv-russia-strike.html
 
