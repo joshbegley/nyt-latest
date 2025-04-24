@@ -1,3 +1,7 @@
+**Astros' ghosts of an awful April are gone: 'It's a great feeling'**\
+`After an abysmal start last year, the Astros are riding stellar pitching and small ball to a winning record.`\
+https://nytimes.com/athletic/6303934/2025/04/24/houston-astros-pitching-hitting-good-start/
+
 **Hegseth Set Up Signal on a Computer in His Pentagon Office**\
 `The app facilitated communications in a building where cell service is poor and personal phones are not allowed in some areas.`\
 https://nytimes.com/2025/04/24/us/politics/hegseth-signal-pentagon.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6302147/2025/04/24/barcelona-jules-kounde-104-games
 **Premier League Draft - Picking our best all-time XIs and then arguing about it**\
 `If you staged a draft in which every player who ever played in the Premier League was available, who would you choose - and in which order?`\
 https://nytimes.com/athletic/6301841/2025/04/24/premier-league-draft/
-
-**'Hup Liverpool!': How a league title win was forged in the Netherlands**\
-`The home towns of Arne Slot, Virgil van Dijk, Cody Gakpo and Ryan Gravenberch are proud of their achievements - but not surprised`\
-https://nytimes.com/athletic/6124803/2025/04/24/liverpool-slot-van-dijk-gravenberch-gakpo-netherlands/
 
