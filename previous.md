@@ -1,3 +1,11 @@
+**Capitals outlast Canadiens again to take 2-0 series lead: Takeaways**\
+`For the second straight game, the Canadiens mounted a third-period push on the Eastern Conference's top seed. Again, it wasn't enough.`\
+https://nytimes.com/athletic/6303409/2025/04/23/canadiens-capitals-nhl-playoffs-2025-game-2-takeaways/
+
+**Gabriel Landeskog returns for Avalanche in Game 3 after 3-year NHL absence**\
+`Landeskog last played in an NHL game on June 26, 2022. Now, he's back with the Avalanche for their first-round series versus the Stars.`\
+https://nytimes.com/athletic/6303034/2025/04/23/gabriel-landeskog-avalanche-return-nhl-playoffs/
+
 **Small Agency Focused on Developing Poor Countries to Be Dismantled**\
 `Millennium Challenge Corporation staff members were offered early retirement or deferred resignation in the latest effort by the Trump administration to gut the foreign aid apparatus.`\
 https://nytimes.com/2025/04/23/us/trump-doge-millennium-challenge-corporation.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6303328/2025/04/23/wild-golden-knights-game-3-lineu
 **Yankees takeaways: Can Aaron Judge keep up his 'incredible' pace? Clubhouse vibes are high**\
 `"Right now, he's like Tony Gwynn," Carlos Rodón said of Judge. "Next week, he'll probably be like Hank Aaron."`\
 https://nytimes.com/athletic/6303179/2025/04/23/yankees-guardians-takeaways-aaron-judge-clubhouse-vibes-high/
-
-**It’s OK, Chicago, Your Air Was Actually Fine on Wednesday**\
-`Some popular weather apps had reported a dangerously hazardous Air Quality Index.`\
-https://nytimes.com/2025/04/23/weather/chicago-air-quality.html
-
-**After Edwin Díaz leaves early, the Mets' depth picks up the team — again**\
-`The Mets' depth is a major reason they've won seven straight games, including a win over the Phillies on Wednesday for a sweep.`\
-https://nytimes.com/athletic/6303188/2025/04/23/mets-seven-wins-depth-bullpen-starling-marte/
 

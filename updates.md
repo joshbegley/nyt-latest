@@ -1,3 +1,11 @@
+**Capitals outlast Canadiens again to take 2-0 series lead: Takeaways**\
+`For the second straight game, the Canadiens mounted a third-period push on the Eastern Conference's top seed. Again, it wasn't enough.`\
+https://nytimes.com/athletic/6303409/2025/04/23/canadiens-capitals-nhl-playoffs-2025-game-2-takeaways/
+
+**Gabriel Landeskog returns for Avalanche in Game 3 after 3-year NHL absence**\
+`Landeskog last played in an NHL game on June 26, 2022. Now, he's back with the Avalanche for their first-round series versus the Stars.`\
+https://nytimes.com/athletic/6303034/2025/04/23/gabriel-landeskog-avalanche-return-nhl-playoffs/
+
 **Small Agency Focused on Developing Poor Countries to Be Dismantled**\
 `Millennium Challenge Corporation staff members were offered early retirement or deferred resignation in the latest effort by the Trump administration to gut the foreign aid apparatus.`\
 https://nytimes.com/2025/04/23/us/trump-doge-millennium-challenge-corporation.html
