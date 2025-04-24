@@ -1,3 +1,7 @@
+**Jamie Vardy to leave Leicester at end of this season**\
+`The 38-year-old has scored the third-most goals in the club's history, with 198 goals in 496 appearances.`\
+https://nytimes.com/athletic/6287219/2025/04/24/jamie-vardy-leicester-next/
+
 **Twins rookie Luke Keaschall running wild, ties MLB record with 5 steals in first 5 games**\
 `The top-100 prospect has jump-started a struggling Twins lineup, hitting .353 and using his speed to wreak havoc on opposing defenses.`\
 https://nytimes.com/athletic/6302929/2025/04/24/twins-luke-keaschall-mlb-steals-record/
