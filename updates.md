@@ -1,3 +1,7 @@
+**Heat have a road map to win Game 3 thanks to Erik Spoelstra and Davion Mitchell**\
+`The Heat, led by the man known as Game 2 Spo, nearly pulled off the comeback against the Cavs, setting the stage for a showdown in Miami.`\
+https://nytimes.com/athletic/6304157/2025/04/24/heat-cavs-game-2-davion-mitchell-tyler-herro/
+
 **Sorensen signs new two-year Everton contract**\
 `Sorensen's previous contract had been set to expire in 2026.`\
 https://nytimes.com/athletic/6304219/2025/04/24/brian-sorensen-everton-women-contract/
