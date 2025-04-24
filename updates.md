@@ -1,3 +1,11 @@
+**Twins rookie Luke Keaschall running wild, ties MLB record with 5 steals in first 5 games**\
+`The top-100 prospect has jump-started a struggling Twins lineup, hitting .353 and using his speed to wreak havoc on opposing defenses.`\
+https://nytimes.com/athletic/6302929/2025/04/24/twins-luke-keaschall-mlb-steals-record/
+
+**Down 2-0 to the Kings, the Oilers' list of areas to improve is a long and troubling one**\
+`The Kings are outplaying the Oilers in just about every facet imaginable. There’s a lot to get sorted out, and very little time to do so.`\
+https://nytimes.com/athletic/6304252/2025/04/24/kings-oilers-nhl-playoffs-stanley-cup/
+
 **Jamie Vardy to leave Leicester at end of this season**\
 `The 38-year-old is Leicester's record scorer with 198 goals in 496 appearances and leaves after 13 years at the club.`\
 https://nytimes.com/athletic/6287219/2025/04/24/jamie-vardy-leicester-next/

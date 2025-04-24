@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6302929/2025/04/24/twins-luke-keaschall-mlb-steals-
 https://nytimes.com/athletic/6304252/2025/04/24/kings-oilers-nhl-playoffs-stanley-cup/
 
 **Jamie Vardy to leave Leicester at end of this season**\
-`The 38-year-old is Leicester's record scorer with 198 goals in 496 appearances and leaves after 13 years at the club.`\
+`The 38-year-old has scored the third-most goals in the club's history, with 198 goals in 496 appearances.`\
 https://nytimes.com/athletic/6287219/2025/04/24/jamie-vardy-leicester-next/
 
 **Real Madrid and Xabi Alonso: Would now be the right time?**\
