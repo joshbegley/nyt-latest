@@ -1,3 +1,7 @@
+**Trump’s Attempt to Overhaul Election Law Is Partly Blocked by a Judge**\
+`The president does not have the authority to require proof of citizenship for all voters, a federal judge ruled.`\
+https://nytimes.com/2025/04/24/us/politics/trump-election-order-judge-blocked.html
+
 **Fantasy baseball bullpen report featuring concerns about Emmanuel Clase and Ryan Walker**\
 `Greg Jewett talks concerns about Emmanuel Clase and Ryan Walker, while providing relievers on the rise to target. `\
 https://nytimes.com/athletic/6305565/2025/04/24/fantasy-baseball-bullpen-report-emmanuel-clase/
