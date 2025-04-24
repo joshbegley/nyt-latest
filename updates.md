@@ -1,3 +1,7 @@
+**At Least 9 Dead in Russian Airstrikes on Kyiv, Ukrainian Officials Say**\
+`The overnight assault on Ukraine’s capital was the deadliest since last summer, and comes as the United States has threatened to walk away from the peace process.`\
+https://nytimes.com/2025/04/24/world/europe/ukraine-kyiv-russia-attack.html
+
 **Hurzeler explains use of sleep expert to deal with Premier League pressure**\
 `Hurzeler explained he is "always" thinking about football and tactics and subsequently sought advice over better sleeping habits.`\
 https://nytimes.com/athletic/6304243/2025/04/24/fabian-hurzeler-brighton-sleep-expert/
