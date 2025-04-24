@@ -1,3 +1,11 @@
+**Word of the Day: enshrine**\
+`This word has appeared in 128 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/04/24/learning/word-of-the-day-enshrine.html
+
+**Mateta's wonder goal and minutes for fringe players will give Palace confidence for FA Cup semi-final**\
+`Despite their relative lack of minutes this season, the three players who came in — Nketiah, Kamada and Devenny — all made contributions`\
+https://nytimes.com/athletic/6302113/2025/04/24/palace-arsenal-mateta-kamada-nketiah-fa-cup/
+
 **Kopitar has 4 points in Kings' blowout Game 2 win over Oilers**\
 `The Kings once again jumped out to an early lead and head to Edmonton up 2-0 in the series.`\
 https://nytimes.com/athletic/6290489/2025/04/24/oilers-kings-nhl-playoffs-2025-game-2-takeaways/

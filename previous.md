@@ -1,3 +1,11 @@
+**Word of the Day: enshrine**\
+`This word has appeared in 128 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/04/24/learning/word-of-the-day-enshrine.html
+
+**Mateta's wonder goal and minutes for fringe players will give Palace confidence for FA Cup semi-final**\
+`Despite their relative lack of minutes this season, the three players who came in — Nketiah, Kamada and Devenny — all made contributions`\
+https://nytimes.com/athletic/6302113/2025/04/24/palace-arsenal-mateta-kamada-nketiah-fa-cup/
+
 **This was an unserious performance from Arsenal. All eyes are fixed on PSG**\
 `It was no surprise that the Champions League semi-final had an impression on events. Arsenal have six days to reset, refresh and prepare`\
 https://nytimes.com/athletic/6303264/2025/04/24/arsenal-palace-analysis-arteta-psg/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/24/opinion/pete-hegseth-yemen.html
 **Kopitar has 4 points in Kings' blowout Game 2 win over Oilers**\
 `The Kings once again jumped out to an early lead and head to Edmonton up 2-0 in the series.`\
 https://nytimes.com/athletic/6290489/2025/04/24/oilers-kings-nhl-playoffs-2025-game-2-takeaways/
-
-**Astros' ghosts of an awful April are gone: 'It's a great feeling'**\
-`After an abysmal start last year, the Astros are riding stellar pitching and small ball to a winning record.`\
-https://nytimes.com/athletic/6303934/2025/04/24/houston-astros-pitching-hitting-good-start/
-
-**Hegseth Set Up Signal on a Computer in His Pentagon Office**\
-`The app facilitated communications in a building where cell service is poor and personal phones are not allowed in some areas.`\
-https://nytimes.com/2025/04/24/us/politics/hegseth-signal-pentagon.html
 
