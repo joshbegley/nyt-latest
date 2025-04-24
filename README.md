@@ -1,3 +1,19 @@
+**Killer of Gucci Heir Is Arrested on Suspicion of Shooting His Own Son**\
+`Benedetto Ceraulo, who in 1995 killed Maurizio Gucci, the heir to the fashion house, was suspected of shooting his son over a scratch on a car, Italian police said.`\
+https://nytimes.com/2025/04/24/world/europe/italy-gucci-killer-shooting.html
+
+**Shedeur Sanders' draft stock remains a question. Who would be QB2 instead?**\
+`While there’s been a lot of talk about Ole Miss’ Jaxson Dart being the next-best QB prospect, the coaches I spoke to didn’t see it that way.`\
+https://nytimes.com/athletic/6301789/2025/04/24/nfl-draft-quarterbacks-shedeur-sanders-tyler-shough/
+
+**What’s Going On in This Graph? | April 30, 2025**\
+`What do you notice about the percentage of U.S. adults who self-identify as lesbian, gay, bisexual, transgender or something other than heterosexual? What do you wonder?`\
+https://nytimes.com/2025/04/24/learning/whats-going-on-in-this-graph-april-30-2025.html
+
+**What’s Going On in This Picture? | April 28, 2025**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2025/04/24/learning/whats-going-on-in-this-picture-april-28-2025.html
+
 **U.S. Sidelines Lawyers Who Exposed Flaws in Anti-Congestion Pricing Case**\
 `The U.S. Department of Transportation chafed at the release of a confidential memo mulling its strategy and raised the possibility that the move aimed to sabotage its case.`\
 https://nytimes.com/2025/04/24/nyregion/nyc-congestion-pricing-duffy-lawyers.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6305504/2025/04/24/nfl-draft-hats-new-era/
 **U.S. Officials to Cut Funding for Landmark Study of Women’s Health**\
 `The Women’s Health Initiative has produced thousands of research papers, altering medical care for patients around the world.`\
 https://nytimes.com/2025/04/24/health/womens-health-initiative-cuts.html
-
-**What Teenagers Are Saying About Connecting to Nature**\
-`Hiking, skiing, surfing and more: Students told us about all the ways they like to spend time outside and the benefits they get from it.`\
-https://nytimes.com/2025/04/24/learning/what-teenagers-are-saying-about-connecting-to-nature.html
-
-**Blackhawks prospect Nick Lardis relieved 'scary' leg injury wasn't worse**\
-`Lardis, who scored 71 goals in 65 regular-season OHL games, suffered a leg injury in a recent playoff game.`\
-https://nytimes.com/athletic/6305651/2025/04/24/blackhawks-prospect-nick-lardis-injury/
-
-**Can 3,500 Percent Tariffs Protect the U.S. Solar Industry?**\
-`The U.S. imposed sky-high tariffs on solar imports from four countries, but it’s unclear if they will be enough to fight back Chinese competitors.`\
-https://nytimes.com/2025/04/24/climate/solar-tariffs-united-states-china.html
-
-**This Land Is His Land. But Is It Wetland?**\
-`A longtime provision of federal law called Swampbuster, which has protected millions of acres of wetland from being farmed, is facing a legal challenge.`\
-https://nytimes.com/2025/04/24/us/swampbuster-wetlands-iowa.html
 
