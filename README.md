@@ -1,3 +1,11 @@
+**Child Health Experts With Diversity Roles Will Be Fired or Reassigned**\
+`The moves are aimed at eliminating diversity, equity and inclusion efforts and environmental justice programs at the E.P.A., Trump administration officials say.`\
+https://nytimes.com/2025/04/24/climate/child-health-experts-epa-fired.html
+
+**Bad Bunny (the College Course) Heads to the Ivy League**\
+`With a new fall offering, Yale becomes the latest university to offer a course on the cultural impact of the Puerto Rican star.`\
+https://nytimes.com/2025/04/24/style/bad-bunny-yale-course.html
+
 **2025 NFL mock draft according to how the betting odds see it playing out**\
 `Austin Mock looks at how the first round of the 2025 NFL Draft would play out if the favorites in the betting market came in for every pick.`\
 https://nytimes.com/athletic/6305314/2025/04/24/2025-nfl-mock-draft-according-to-how-the-betting-odds-see-it-playing-out/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6305232/2025/04/24/warriors-rockets-playoffs-stephe
 **Media rights expert set to be named English football regulator chair**\
 `Kogan has emerged as the government’s preferred candidate in recent weeks largely thanks to the support of Prime Minister Sir Keir Starmer.`\
 https://nytimes.com/athletic/6305496/2025/04/24/david-kogan-football-independent-regulator/
-
-**With ‘Étoile,’ Amy Sherman-Palladino Gives Ballet Another Whirl**\
-`Her “Bunheads” and other ballet shows were canceled quickly. This new series, created with her husband, centers on fictional companies in New York and Paris.`\
-https://nytimes.com/2025/04/24/arts/television/etoile-amy-sherman-palladino.html
-
-**Kennedy’s Dangerous Autism Claims**\
-`Readers, including some with autism, rebut Health Secretary Robert F. Kennedy Jr.’s statements. Also: President Trump vs. universities; Emanuel Ax’s plea.`\
-https://nytimes.com/2025/04/24/opinion/kennedy-autism.html
 
