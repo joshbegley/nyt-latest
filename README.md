@@ -1,3 +1,7 @@
+**Stars hold off Avalanche in overtime to take 2-1 series lead: Takeaways**\
+`Dallas defeated Colorado 2-1 in Game 3 and Mikko Rantanen picked up his first point of the series.`\
+https://nytimes.com/athletic/6303777/2025/04/24/avalanche-stars-game-3-nhl-playoffs-2025/
+
 **Thursday Briefing: Trump Lashes Out at Zelensky**\
 `Plus, the perfect pour-over coffee.`\
 https://nytimes.com/2025/04/24/briefing/trump-zelensky-syria-the-pope-lies-in-state.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6301216/2025/04/24/fantasy-premier-league-blank-gam
 **Logan Thompson elevates Capitals' performance in a Game 2 that needed a hero**\
 `The Capitals again managed to outlast a late push by the Canadiens thanks to what Ryan Leonard called "extraordinary" saves in net.`\
 https://nytimes.com/athletic/6303910/2025/04/24/logan-thompson-capitals-nhl-playoffs-game-2/
-
-**Everton and Moyes seem unconvinced by Alcaraz - he has five games to prove himself**\
-`The Argentinian would need to start Everton's five remaining games for their obligation to buy for €15m to be triggered. What will Moyes do?`\
-https://nytimes.com/athletic/6298993/2025/04/24/carlos-alcaraz-everton-david-moyes-transfer/
 
