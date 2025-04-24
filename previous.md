@@ -1,3 +1,7 @@
+**Where is the 2026 NFL Draft? Which cities submitted bids to host 2027 draft?**\
+`With the 2025 NFL Draft ready to roll, we look ahead to 2026 and which city might host in 2027.`\
+https://nytimes.com/athletic/6287852/2025/04/24/nfl-draft-2026-host-city/
+
 **Carlos Correa: 'My swing sucks right now.' Plus Twins takeaways following White Sox series**\
 `It’s not an issue with his left wrist or a bad approach, Correa contends. He says his early offensive troubles are simply swing-related.`\
 https://nytimes.com/athletic/6306308/2025/04/24/carlos-correa-swing-twins-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/24/us/politics/hud-career-jobs-federal-workers.html
 **Trump Told Putin to ‘STOP!’ After Deadly Strikes in Kyiv**\
 `Also, tensions between India and Pakistan escalated. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/04/24/briefing/trump-russia-ukraine-flu-season.html
-
-**Alijah Arenas, USC recruit and son of ex-NBA star, in serious crash: Reports**\
-`The McDonald's All-American averaged 30.9 points per game in high school last season.`\
-https://nytimes.com/athletic/6306086/2025/04/24/alijah-arenas-usc-car-crash/
 
