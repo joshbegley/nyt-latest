@@ -1,3 +1,15 @@
+**Ask Ornstein Q&A: Our football insider answers your questions**\
+`Here is your opportunity to ask David Ornstein anything you want about the world of football`\
+https://nytimes.com/athletic/6304371/2025/04/24/ask-ornstein-qa-our-football-insider-answers-your-questions-25/
+
+**Expected stats point to Salvador Perez, Dylan Crews as top buy low hitters for fantasy baseball**\
+`Owen Poindexter looks for buy-low candidates, comparing the difference in hitters' slugging  percentage versus their expected slugging.`\
+https://nytimes.com/athletic/6302728/2025/04/24/fantasy-baseball-buy-low-hitters-expected-stats-april/
+
+**Ryan Walker struggles again, and Giants' closer situation is suddenly complicated**\
+`Against the Brewers on Wednesday night, Walker faced five batters and got just one of them out.`\
+https://nytimes.com/athletic/6304006/2025/04/24/ryan-walker-struggles-giants-closer-situation/
+
 **Kings have Oilers reeling and an NHL playoff moment to seize**\
 `The Kings were the better team in Game 2, and the Oilers are ripe for the taking. Can L.A. keep it rolling on the road?`\
 https://nytimes.com/athletic/6304280/2025/04/24/kings-oilers-nhl-playoffs-game-2/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6303464/2025/04/24/jets-adjustments-blues-nhl-playo
 **Does this Giants regime have to come away from NFL Draft with QB of the future?**\
 `The dynamics at play tonight are fascinating. What’s best for GM Joe Schoen, coach Brian Daboll and the franchise doesn’t necessarily align.`\
 https://nytimes.com/athletic/6303779/2025/04/24/new-york-giants-nfl-draft-2025-jaxson-dart/
-
-**Ohio State bolsters pass rush with UNC transfer Beau Atkinson**\
-`Beau Atkinson, who led UNC in tackles for loss last year, can immediately boost a new-look Ohio State pass rush from the transfer portal.`\
-https://nytimes.com/athletic/6304773/2025/04/24/beau-atkinson-ohio-state-transfer-unc/
-
-**RGIII expected to land at Fox Sports as network's No. 2 CFB analyst**\
-`Griffin would replace Brock Huard, who is leaving the booth to be an assistant coach for his son’s high school football team. `\
-https://nytimes.com/athletic/6304754/2025/04/24/robert-griffin-iii-fox-sports-college-football-analyst/
-
-**Packers NFL Draft hub: Picks, grades, fits and scouting reports**\
-`Green Bay has eight picks over the three-day NFL Draft.`\
-https://nytimes.com/athletic/6297488/2025/04/24/packers-nfl-draft-picks-2025-grades-scouting-reports/
 
