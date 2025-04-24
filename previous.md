@@ -1,3 +1,8 @@
+**Copa del Rey final odds: Barça to make it three straight Clásico wins?**\
+`Sam Tighe explores the best bets to wager on ahead of this Saturday’s Copa del Rey final between Barcelona and Real Madrid. 
+`\
+https://nytimes.com/athletic/6304395/2025/04/24/barcelona-real-madrid-copa-del-rey-final-betting-predictions/
+
 **Ryder Cup Team Europe projection 1.0: Rory McIlroy leads a long list of trending players**\
 `Luke Donald, Europe's first repeat captain since Bernard Gallacher in 1995, has a long list of names in front of him.`\
 https://nytimes.com/athletic/6303489/2025/04/24/ryder-cup-2025-team-europe-projected-players/
@@ -33,8 +38,4 @@ https://nytimes.com/athletic/6302933/2025/04/24/nfl-draft-2025-green-room-prospe
 **Bears NFL Draft hub: Picks, grades, fits and scouting reports**\
 `The Bears have seven picks in the NFL Draft, including three of the top 41, but it's anyone's guess what they'll do with the 10th pick.`\
 https://nytimes.com/athletic/6302344/2025/04/24/bears-nfl-draft-picks-2025-grades-scouting-reports/
-
-**NASCAR's longest-ever marathon arrives: 28 straight weeks of all gas, no breaks**\
-`The sport has had plenty of unbroken stretches of racing, but the 2025 season brings a new test of longevity.`\
-https://nytimes.com/athletic/6303225/2025/04/24/nascar-28-weeks-season-schedule/
 
