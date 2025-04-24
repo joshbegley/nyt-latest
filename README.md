@@ -1,3 +1,11 @@
+**At Least 9 Dead in Russian Airstrikes on Kyiv, Ukrainian Officials Say**\
+`The overnight assault on Ukraine’s capital was the deadliest since last summer, and comes as the United States has threatened to walk away from the peace process.`\
+https://nytimes.com/2025/04/24/world/europe/ukraine-russia-missiles-airstrikes.html
+
+**Deadly Airstrikes Hit Ukraine’s Capital**\
+`The deadly overnight attack damaged buildings in Kyiv and killed at least nine people, officials said.`\
+https://nytimes.com/video/world/europe/100000010127811/ukraine-kyiv-russia-strike.html
+
 **Jaylen Brown showcases 'warrior mentality' in Celtics' Game 2 win**\
 `Brown delivered a reassuring 36 points, 10 rebounds and five assists in the Celtics' 109-100 win over the Magic. `\
 https://nytimes.com/athletic/6304117/2025/04/24/celtics-beat-magic-game-2-jaylen-brown/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/24/world/asia/south-korea-moon-indicted.html
 **Stars hold off Avalanche in overtime to take 2-1 series lead: Takeaways**\
 `Dallas defeated Colorado 2-1 in Game 3 and Mikko Rantanen picked up his first point of the series.`\
 https://nytimes.com/athletic/6303777/2025/04/24/avalanche-stars-game-3-nhl-playoffs-2025/
-
-**Thursday Briefing: Trump Lashes Out at Zelensky**\
-`Plus, the perfect pour-over coffee.`\
-https://nytimes.com/2025/04/24/briefing/trump-zelensky-syria-the-pope-lies-in-state.html
-
-**The New York Times in Print for Thursday, April 24, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/04/24/todays-new-york-times
 
