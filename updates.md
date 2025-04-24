@@ -1,3 +1,7 @@
+**Blackhawks prospect Nick Lardis relieved 'scary' leg injury wasn't worse**\
+`Lardis, who scored 71 goals in 65 regular-season OHL games, suffered a leg injury in a recent playoff game.`\
+https://nytimes.com/athletic/6305651/2025/04/24/blackhawks-prospect-nick-lardis-injury/
+
 **Can 3,500 Percent Tariffs Protect the U.S. Solar Industry?**\
 `The U.S. imposed sky-high tariffs on solar imports from four countries, but it’s unclear if they will be enough to fight back Chinese competitors.`\
 https://nytimes.com/2025/04/24/climate/solar-tariffs-united-states-china.html

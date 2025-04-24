@@ -1,3 +1,31 @@
+**U.S. Sidelines Lawyers Who Exposed Flaws in Anti-Congestion Pricing Case**\
+`The U.S. Department of Transportation chafed at the release of a confidential memo mulling its strategy and raised the possibility that the move aimed to sabotage its case.`\
+https://nytimes.com/2025/04/24/nyregion/nyc-congestion-pricing-duffy-lawyers.html
+
+**Trump Plans to Target ActBlue, Democrats’ Cash Engine**\
+`The president plans to direct the Justice Department to investigate ActBlue, the main Democratic fund-raising platform, in his latest move using the government to target political opponents.`\
+https://nytimes.com/2025/04/24/us/politics/trump-actblue-democrats.html
+
+**Red Light: Our way-too-early Stanley Cup predictions**\
+`Who's winning it all? Plus Gabriel Landeskog makes his emotional return to the NHL.`\
+https://nytimes.com/athletic/6305638/2025/04/24/nhl-red-light-newsletter-stanley-cup-playoffs/
+
+**Pelicans senior VP of basketball operations Swin Cash departing team**\
+`Cash was one of the highest-ranking women in any front office around the NBA before her departure.`\
+https://nytimes.com/athletic/6305820/2025/04/24/swin-cash-departing-pelicans-front-office/
+
+**How baseball hats became a key element of the NFL Draft**\
+`The draft hat has become a symbol of new beginnings`\
+https://nytimes.com/athletic/6305504/2025/04/24/nfl-draft-hats-new-era/
+
+**U.S. Officials to Cut Funding for Landmark Study of Women’s Health**\
+`The Women’s Health Initiative has produced thousands of research papers, altering medical care for patients around the world.`\
+https://nytimes.com/2025/04/24/health/womens-health-initiative-cuts.html
+
+**What Teenagers Are Saying About Connecting to Nature**\
+`Hiking, skiing, surfing and more: Students told us about all the ways they like to spend time outside and the benefits they get from it.`\
+https://nytimes.com/2025/04/24/learning/what-teenagers-are-saying-about-connecting-to-nature.html
+
 **Blackhawks prospect Nick Lardis relieved 'scary' leg injury wasn't worse**\
 `Lardis, who scored 71 goals in 65 regular-season OHL games, suffered a leg injury in a recent playoff game.`\
 https://nytimes.com/athletic/6305651/2025/04/24/blackhawks-prospect-nick-lardis-injury/
@@ -9,32 +37,4 @@ https://nytimes.com/2025/04/24/climate/solar-tariffs-united-states-china.html
 **This Land Is His Land. But Is It Wetland?**\
 `A longtime provision of federal law called Swampbuster, which has protected millions of acres of wetland from being farmed, is facing a legal challenge.`\
 https://nytimes.com/2025/04/24/us/swampbuster-wetlands-iowa.html
-
-**Sign Up for the Book Review’s First-Ever Challenge**\
-`(It’s about poetry. And you’ll love it.)`\
-https://nytimes.com/interactive/2025/04/24/books/book-review-poetry-challenge-sign-up.html
-
-**Tens of Thousands Line Up to Honor Pope Francis**\
-`More than 60,000 people have paid their respects to the late pope’s body in St. Peter’s Basilica since Wednesday, according to the Vatican. The church stayed open until 5:30 a.m. on Thursday and reopened at 7 a.m. as thousands more lined up to file past his coffin.`\
-https://nytimes.com/video/world/europe/100000010127973/worshipers-line-up-to-honor-pope-francis.html
-
-**Overwhelmed in the Wine Aisle? Follow This Advice.**\
-`The variety of wines available now is wonderful, but it can be paralyzing. Here’s a guide for finding treasures among the vast choices.`\
-https://nytimes.com/2025/04/24/dining/drinks/grape-varietals-wine-buying.html
-
-**Pro-Palestinian Demonstrators Protest Ben-Gvir Appearance**\
-`More than 300 people gathered near Yale University to protest a visit by Israel’s far-right national security minister.`\
-https://nytimes.com/video/us/politics/100000010128280/protest-ben-gvir-yale.html
-
-**Lawsuit Aims to Reverse Firings at Internal Oversight Offices Within D.H.S.**\
-`The suit seeks to preserve some of the main guardrails within the agency, all created by Congress, that help uncover and prevent human rights abuses.`\
-https://nytimes.com/2025/04/24/us/politics/lawsuit-firings-oversight-dhs.html
-
-**The ‘Bone Collector’ Doesn’t Play With Its Food. It Wears It.**\
-`Carnivorous caterpillars discovered on the Hawaiian island of Oahu have a freaky fashion sense.`\
-https://nytimes.com/2025/04/24/science/caterpillar-bone-collector.html
-
-**‘Havoc’ Review: A Fighting Spirit**\
-`Tom Hardy is a crooked cop looking to make amends in Gareth Evans’s action-packed film.`\
-https://nytimes.com/2025/04/24/movies/havoc-review.html
 
