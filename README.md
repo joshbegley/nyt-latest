@@ -1,3 +1,11 @@
+**The Windup: The Cubs are so back**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6303955/2025/04/24/cubs-record-steven-kwan-the-windup/
+
+**Protesters Hurl Water Bottles at Israeli Official at Event Near Yale**\
+`Demonstrators waving Palestinian and Israeli flags condemned the appearance of Itamar Ben-Gvir, the national security minister who has been widely criticized for his extreme views.`\
+https://nytimes.com/2025/04/24/nyregion/yale-protest-israel-security-minister.html
+
 **Scoop City: Your 5-minute draft day guide**\
 `Who are the teams to watch? Which players are attending? What does Vegas expect to happen? All that and more in today's draft primer.`\
 https://nytimes.com/athletic/6305385/2025/04/24/nfl-draft-2025-primer-guide-cam-ward-shedeur-sanders-scoop-city/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6304919/2025/04/24/leafs-lines-senators-game-3-nhl-
 **Bucks, general manager Jon Horst agree on multiyear contract extension: Sources**\
 `The Bucks’ 2021 NBA championship, the franchise’s second title, sits at the top of Horst’s accomplishments.`\
 https://nytimes.com/athletic/6305301/2025/04/24/bucks-jon-horst-contract-extension/
-
-**League One player sentenced to 14 months in prison for causing death of cyclist**\
-`Lucas Akins’ Mercedes G-Wagon hit Adrian Daniel, who died in hospital 10 days later, in March 2022.`\
-https://nytimes.com/athletic/6304996/2025/04/24/lucas-akins-prison-mansfield/
-
-**8 Standouts at the AIPAD Photography Fair**\
-`This year’s colorful and wide-ranging edition of the Association of International Photography Art Dealers fair is a bursting capsule history of the medium.`\
-https://nytimes.com/2025/04/24/arts/design/8-standouts-at-the-aipad-photography-fair.html
 
