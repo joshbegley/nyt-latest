@@ -1,3 +1,7 @@
+**Trump Cuts Threaten Meals and Services for People With Disabilities and the Aging**\
+`A tiny agency responsible for overseeing these services is being dismantled as part of Health Secretary Robert F. Kennedy Jr.’s overhaul of his department.`\
+https://nytimes.com/2025/04/24/health/meals-on-wheels-disabilities-aging-trump-cutbacks.html
+
 **Canucks 2024-25 report cards: Grading the performance of every defender, goalie**\
 `Let's continue to look at what each Canucks player contributed individually this past season.`\
 https://nytimes.com/athletic/6301053/2025/04/24/canucks-defence-goalie-2024-25-report-cards/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/24/world/europe/russia-general-prison.html
 **North Dakota Governor Vetoes Bill Restricting Library Books**\
 `The bill, which divided Republicans, would have required most libraries to keep material deemed sexually explicit away from minors.`\
 https://nytimes.com/2025/04/24/us/north-dakota-library-governor-veto.html
-
-**A Judge Released Him From Prison. The D.A. Wants to Lock Him Back Up.**\
-`After Andre Brown’s 40-year sentence was overturned, he went free. The Bronx district attorney appealed, and now he is set to return to prison and leave his wife and children.`\
-https://nytimes.com/2025/04/24/nyregion/bronx-shooting-sentence-commutation-reversed.html
 
