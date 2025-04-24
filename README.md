@@ -1,3 +1,7 @@
+**Red Sox takeaways: Garrett Crochet frustrated with rocky start; Alex Cora nearing milestone**\
+`Crochet labored through the first two innings Thursday, needing 54 pitches and allowing the Mariners to score four runs.`\
+https://nytimes.com/athletic/6306335/2025/04/24/red-sox-garrett-crochet-alex-cora/
+
 **U.S. Says Blast in Yemen Was Caused by Houthi Missile, Not U.S. Strike**\
 `An explosion near a UNESCO world heritage site in Yemen’s capital on Sunday killed 12 people, according to health authorities tied to the Houthi-led government.`\
 https://nytimes.com/2025/04/24/world/middleeast/us-yemen-houthi-misfire.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6306308/2025/04/24/carlos-correa-swing-twins-takeaw
 **Trump May Concede Crimea to Russia, Ending Decade of U.S. Resistance**\
 `A new U.S. peace plan offered to Russia and Ukraine proposes American recognition of the peninsula, which Moscow seized in 2014.`\
 https://nytimes.com/2025/04/24/us/politics/trump-crimea-peace-agreement.html
-
-**A Mistake in a New York Court Exposes the Truth About Trump’s Legal Strategy**\
-`The episode of the inadvertent court filings in the New York congestion-pricing case embodies the full range of the Trump administration’s incompetence.`\
-https://nytimes.com/live/2025/04/21/opinion/thepoint/congestion-pricing-lawyers-doj-trump
 
