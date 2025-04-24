@@ -1,3 +1,7 @@
+**Trump Cuts Threaten Meals and Services for People With Disabilities and the Aging**\
+`A tiny agency responsible for overseeing these services is being dismantled as part of Health Secretary Robert F. Kennedy Jr.’s overhaul of his department.`\
+https://nytimes.com/2025/04/24/health/meals-on-wheels-disabilities-aging-trump-cutbacks.html
+
 **Canucks 2024-25 report cards: Grading the performance of every defender, goalie**\
 `Let's continue to look at what each Canucks player contributed individually this past season.`\
 https://nytimes.com/athletic/6301053/2025/04/24/canucks-defence-goalie-2024-25-report-cards/
