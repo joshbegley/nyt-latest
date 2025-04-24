@@ -1,3 +1,43 @@
+**Jamie Vardy to leave Leicester at end of this season**\
+`The 38-year-old is Leicester's record scorer with 198 goals in 496 appearances and leaves after 13 years at the club.`\
+https://nytimes.com/athletic/6287219/2025/04/24/jamie-vardy-leicester-next/
+
+**Real Madrid and Xabi Alonso: Would now be the right time?**\
+`The Athletic FC Podcast discuss whether now is the right time for Xabi Alonso to take charge of Real Madrid.`\
+https://nytimes.com/athletic/6304433/2025/04/24/ahtletic-fc-podcast-xabi-alonso-real-madrid/
+
+**The NFL Draft is known for the custom suits. The evolution has been inevitable**\
+`The 2025 NFL Draft starts Thursday, and some athletes will introduce their custom-made suits with the sole purpose to showcase their style.`\
+https://nytimes.com/athletic/6301070/2025/04/24/nfl-draft-suits-michael-strahan-tom-marchitelli-ge-wang/
+
+**Why is the Kirill Kaprizov-Matt Boldy combo so dynamic, and what does it mean for the Wild?**\
+`Minnesota could have split up Kaprizov and Boldy for scoring-depth purposes, but they've been fantastic together.`\
+https://nytimes.com/athletic/6302528/2025/04/24/kaprizov-boldy-wild-playoffs/
+
+**Falcons NFL Draft hub: Picks, grades, fits and scouting reports**\
+`The Falcons need to bolster their pass rush (what else is new?) and could use more draft picks, so they'll likely look to trade down.`\
+https://nytimes.com/athletic/6302715/2025/04/24/falcons-nfl-draft-picks-2025-grades-scouting-reports/
+
+**Inside the numbers: Nico Harrison insists defense wins championships. But is that still true?**\
+`Inside the numbers on NBA trends: Are we seeing a resurgence in heavy minutes workloads? And shooters are getting farther from the basket.`\
+https://nytimes.com/athletic/6281512/2025/04/24/mavericks-gm-nico-harrison-defense-wins-championships/
+
+**Buckley: Celtics stomp Magic WWE-style, using a mix of blood, showmanship and laughter**\
+`Kristaps Porziņģis was all smiles during and after Game 2 despite taking an elbow to the head that required five stitches to close.`\
+https://nytimes.com/athletic/6303997/2025/04/24/celtics-magic-game-2-kristaps-porzingis-nba-playoffs/
+
+**Mouse and rat: The two sides of Senators agitator Ridly Greig**\
+`Ridly Greig is loud on the ice, but quiet off it. Through two games of the Battle of Ontario, he's become public enemy No. 1 in Toronto.`\
+https://nytimes.com/athletic/6303213/2025/04/24/senators-ridly-greig-leafs-nhl-playoffs/
+
+**‘The Trouble with Jessica’ Review: Dinner Party or Crime Scene?**\
+`This British black comedy, starring Indira Varma, centers on a group of wealthy middle-aged friends with fraught histories.`\
+https://nytimes.com/2025/04/24/movies/the-trouble-with-jessica-review-dinner-party-or-crime-scene.html
+
+**‘Until Dawn’ Review: They Keep Dying, You’ll Keep Shrugging**\
+`Based on a video game, this movie is done in by mediocre monsters and muddled time loops.`\
+https://nytimes.com/2025/04/24/movies/until-dawn-review.html
+
 **Smoke From New Jersey Wildfire Could Blanket New York City**\
 `The air in the city is unhealthy for some groups because of a fire that has been burning in the Pine Barrens since Tuesday.`\
 https://nytimes.com/2025/04/24/nyregion/new-jersey-wildfire-smoke-nyc.html
