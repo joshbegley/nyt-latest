@@ -1,3 +1,11 @@
+**Yankees takeaways: Can Aaron Judge keep up his 'incredible' pace? Clubhouse vibes are high**\
+`"Right now, he's like Tony Gwynn," Carlos Rodón said of Judge. "Next week, he'll probably be like Hank Aaron."`\
+https://nytimes.com/athletic/6303179/2025/04/23/yankees-guardians-takeaways-aaron-judge-clubhouse-vibes-high/
+
+**It’s OK, Chicago, Your Air Was Actually Fine on Wednesday**\
+`Some popular weather apps had reported a dangerously hazardous Air Quality Index.`\
+https://nytimes.com/2025/04/23/weather/chicago-air-quality.html
+
 **After Edwin Díaz leaves early, the Mets' depth picks up the team — again**\
 `The Mets’ depth is a major reason why they’ve won seven straight games, including a win over the Phillies on Wednesday for a sweep.`\
 https://nytimes.com/athletic/6303188/2025/04/23/mets-seven-wins-depth-bullpen-starling-marte/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6303078/2025/04/23/lauren-holiday-nwsl-team-ownersh
 **Trump Signs Executive Order Targeting College Accreditors**\
 `It was the latest move by President Trump in his effort to shift the ideological tilt of the higher education system as he battles elite universities.`\
 https://nytimes.com/2025/04/23/us/politics/trump-executive-order-university-accreditors.html
-
-**Notre Dame transfer quarterback Steve Angeli signs with Syracuse**\
-`Angeli, who played in 21 games in his Notre Dame career, will be expected to contended for the starting role with the Orange. `\
-https://nytimes.com/athletic/6303270/2025/04/23/steve-angeli-syracuse-quarterback-notre-dame/
-
-**On Major Economic Decisions, Trump Blinks, and Then Blinks Again**\
-`President Trump has said his punishing tariffs would force companies to build factories in the United States. But it is far from clear that they will have the effects he predicted.`\
-https://nytimes.com/2025/04/23/us/politics/trump-tariffs-economy.html
 

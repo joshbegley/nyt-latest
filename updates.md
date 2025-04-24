@@ -1,3 +1,11 @@
+**Yankees takeaways: Can Aaron Judge keep up his 'incredible' pace? Clubhouse vibes are high**\
+`"Right now, he's like Tony Gwynn," Carlos Rodón said of Judge. "Next week, he'll probably be like Hank Aaron."`\
+https://nytimes.com/athletic/6303179/2025/04/23/yankees-guardians-takeaways-aaron-judge-clubhouse-vibes-high/
+
+**It’s OK, Chicago, Your Air Was Actually Fine on Wednesday**\
+`Some popular weather apps had reported a dangerously hazardous Air Quality Index.`\
+https://nytimes.com/2025/04/23/weather/chicago-air-quality.html
+
 **After Edwin Díaz leaves early, the Mets' depth picks up the team — again**\
 `The Mets’ depth is a major reason why they’ve won seven straight games, including a win over the Phillies on Wednesday for a sweep.`\
 https://nytimes.com/athletic/6303188/2025/04/23/mets-seven-wins-depth-bullpen-starling-marte/
