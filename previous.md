@@ -1,3 +1,7 @@
+**Rob Holland, Aerobatic Pilot, Dies in Crash at Langley Air Force Base**\
+`A statement on his Facebook page said Mr. Holland had died in a crash at the base in Virginia, where he was planning to perform in an air show this weekend.`\
+https://nytimes.com/2025/04/24/us/rob-holland-dead-plane-crash.html
+
 **Best available players remaining in 2025 NFL Draft**\
 `Who are the top prospects still on the board at the 2025 NFL Draft? We're tracking all the movement as the event unfolds in Green Bay.`\
 https://nytimes.com/athletic/6298866/2025/04/24/nfl-draft-2025-best-available-players/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/24/climate/trump-seabed-mining.html
 **Lawyer Is Charged With Sadistic Rapes of Women He Met Online**\
 `Ryan Hemphill was arraigned Thursday afternoon on a 116-count indictment. Authorities say he tortured, drugged and filmed women in his Midtown apartment.`\
 https://nytimes.com/2025/04/24/nyregion/lawyer-rape-charges-manhattan.html
-
-**The Cubs are creating an environment where Pete Crow-Armstrong is thriving**\
-`As measured by OPS+, Crow-Armstrong’s production, so far, is 48 percent better than the major-league average.`\
-https://nytimes.com/athletic/6305905/2025/04/24/cubs-pete-crow-armstrong-thriving/
 
