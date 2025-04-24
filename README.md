@@ -1,3 +1,7 @@
+**Best available players remaining in 2025 NFL Draft**\
+`Who are the top prospects still on the board at the 2025 NFL Draft? We're tracking all the movement as the event unfolds in Green Bay.`\
+https://nytimes.com/athletic/6298866/2025/04/24/nfl-draft-2025-best-available-players/
+
 **Federal Agency Offers Employees Tips on Finding New Jobs Outside Government**\
 `The Department of Housing and Urban Development is offering “career support” sessions. Some federal workers said they were insulted by the idea of the workshops.`\
 https://nytimes.com/2025/04/24/us/politics/hud-career-jobs-federal-workers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/24/nyregion/lawyer-rape-charges-manhattan.html
 **The Cubs are creating an environment where Pete Crow-Armstrong is thriving**\
 `As measured by OPS+, Crow-Armstrong’s production, so far, is 48 percent better than the major-league average.`\
 https://nytimes.com/athletic/6305905/2025/04/24/cubs-pete-crow-armstrong-thriving/
-
-**Israel Acknowledges Second Deadly Attack on Aid Workers in Gaza**\
-`In a rare apology to the United Nations, Israel said its forces had struck a U.N. compound in Gaza with tank fire. A Bulgarian aid worker was killed.`\
-https://nytimes.com/2025/04/24/world/middleeast/israel-gaza-aid-workers-deaths.html
 
