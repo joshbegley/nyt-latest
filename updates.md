@@ -1,3 +1,7 @@
+**Lawyer Is Charged With Sadistic Rapes of Women He Met Online**\
+`Ryan Hemphill was arraigned Thursday afternoon on a 116-count indictment. Authorities say he tortured, drugged and filmed women in his Midtown apartment.`\
+https://nytimes.com/2025/04/24/nyregion/lawyer-rape-charges-manhattan.html
+
 **The Cubs are creating an environment where Pete Crow-Armstrong is thriving**\
 `As measured by OPS+, Crow-Armstrong’s production, so far, is 48 percent better than the major-league average.`\
 https://nytimes.com/athletic/6305905/2025/04/24/cubs-pete-crow-armstrong-thriving/
