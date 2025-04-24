@@ -1,3 +1,23 @@
+**Overwhelmed in the Wine Aisle? Follow This Advice.**\
+`The variety of wines available now is wonderful, but it can be paralyzing. Here’s a guide for finding treasures among the vast choices.`\
+https://nytimes.com/2025/04/24/dining/drinks/grape-varietals-wine-buying.html
+
+**Pro-Palestinian Demonstrators Protest Ben-Gvir Appearance**\
+`More than 300 people gathered near Yale University to protest a visit by Israel’s far-right national security minister.`\
+https://nytimes.com/video/us/politics/100000010128280/protest-ben-gvir-yale.html
+
+**Lawsuit Aims to Reverse Firings at Internal Oversight Offices Within D.H.S.**\
+`The suit seeks to preserve some of the main guardrails within the agency, all created by Congress, that help uncover and prevent human rights abuses.`\
+https://nytimes.com/2025/04/24/us/politics/lawsuit-aims-to-reverse-firings-at-internal-oversight-offices-within-dhs.html
+
+**The ‘Bone Collector’ Doesn’t Play With Its Food. It Wears It.**\
+`Carnivorous caterpillars discovered on the Hawaiian island of Oahu have a freaky fashion sense.`\
+https://nytimes.com/2025/04/24/science/caterpillar-bone-collector.html
+
+**‘Havoc’ Review: A Fighting Spirit**\
+`Tom Hardy is a crooked cop looking to make amends in Gareth Evans’s action-packed film.`\
+https://nytimes.com/2025/04/24/movies/havoc-review.html
+
 **How India’s Threat to Block Rivers Could Devastate Pakistan**\
 `After a militant attack in Kashmir, the Indian government said it was suspending its participation in a treaty that governs most of the water used in Pakistani agriculture.`\
 https://nytimes.com/2025/04/24/world/asia/india-pakistan-indus-waters-treaty.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6303533/2025/04/24/nwsl-soccer-rivalry-washington-s
 **Britain Lifts Sanctions on Syrian Security Agencies**\
 `The move, which is intended to allow Syria’s new leaders the chance to rebuild, follows Britain’s earlier easing of sanctions on Syrian energy companies and the central bank.`\
 https://nytimes.com/2025/04/24/world/middleeast/britain-lifts-sanctions-syria.html
-
-**Child Health Experts With Diversity Roles Will Be Fired or Reassigned**\
-`The moves are aimed at eliminating diversity, equity and inclusion efforts and environmental justice programs at the E.P.A., Trump administration officials say.`\
-https://nytimes.com/2025/04/24/climate/child-health-experts-epa-fired.html
-
-**Bad Bunny (the College Course) Heads to the Ivy League**\
-`With a new fall offering, Yale becomes the latest university to offer a course on the cultural impact of the Puerto Rican star.`\
-https://nytimes.com/2025/04/24/style/bad-bunny-yale-course.html
-
-**2025 NFL mock draft according to how the betting odds see it playing out**\
-`Austin Mock looks at how the first round of the 2025 NFL Draft would play out if the favorites in the betting market came in for every pick.`\
-https://nytimes.com/athletic/6305314/2025/04/24/2025-nfl-mock-draft-according-to-how-the-betting-odds-see-it-playing-out/
-
-**Finally, a Dirty Martini You Can Enjoy on a School Night**\
-`Classically booze-forward martinis may go down easy, but can make for a hard morning. This lower-alcohol version is a great alternative.`\
-https://nytimes.com/2025/04/24/dining/drinks/how-to-make-lower-abv-dirty-martini.html
-
-**Recipe Matchmaker, Part 2: Beans**\
-`You need easy, high-protein lunches and D.I.Y. dinners with the kids. I have chickpea-salad sandwiches and coconut-ginger black beans.`\
-https://nytimes.com/2025/04/24/dining/recipe-matchmaker-part-2-beans.html
 

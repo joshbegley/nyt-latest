@@ -1,3 +1,7 @@
+**How India’s Threat to Block Rivers Could Devastate Pakistan**\
+`After a militant attack in Kashmir, the Indian government said it was suspending its participation in a treaty that governs most of the water used in Pakistani agriculture.`\
+https://nytimes.com/2025/04/24/world/asia/india-pakistan-indus-waters-treaty.html
+
 **Who’s a Carthaginian? Genetic Study Revises Ancestry of Rome’s Ancient Nemesis**\
 `The inhabitants of Carthage were long thought to have derived from Levantine Phoenicians. But an eight-year study suggests they were more closely related to Greeks.`\
 https://nytimes.com/2025/04/24/science/archaeology-genetics-carthage-phoenician.html
