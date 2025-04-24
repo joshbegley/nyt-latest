@@ -1,3 +1,19 @@
+**Watch: How the Rockets' physical play disrupted the Warriors in Game 2**\
+`"The Athletic NBA Daily" discussed the Rockets' crucial Game 2 win over the Warriors and debated whether the playoffs are too physical.`\
+https://nytimes.com/athletic/6304556/2025/04/24/nba-daily-playoffs-physical-jimmy-butler/
+
+**D.N.C. Leader Moves to Rein In Deputy Who Went Rogue on Primary Challenges**\
+`Ken Martin, the chair of the Democratic National Committee, criticized a vice chair of the party, David Hogg, over his controversial plan to challenge Democratic incumbents.`\
+https://nytimes.com/2025/04/24/us/politics/david-hogg-ken-martin-dnc.html
+
+**In NBA playoffs, adjustments are the word for Game 3: What to expect in four tied series**\
+`The simple "Play Better" tweak worked for a few teams, but keep an eye on these games within the games going forward.`\
+https://nytimes.com/athletic/6304471/2025/04/24/nba-playoffs-adjustents-warriors-knicks-lakers-clippers/
+
+**Should We Start Taking the Welfare of A.I. Seriously?**\
+`As artificial intelligence systems become smarter, one A.I. company is trying to figure out what to do if they become conscious.`\
+https://nytimes.com/2025/04/24/technology/ai-welfare-anthropic-claude.html
+
 **Mavericks coach Kidd joins ownership group of Premier League club Everton**\
 `Kidd has joined Roundhouse Capital Holdings, an entity within The Friedkin Group (TFG), which completed its takeover of Everton in December.`\
 https://nytimes.com/athletic/6301493/2025/04/24/jason-kidd-everton-ownership/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/04/24/well/flu-deaths-hospitalizations.html
 **49ers NFL Draft hub: Picks, grades, fits and scouting reports**\
 `Keep coming back throughout the draft for grades and expert analysis of each 49ers pick.`\
 https://nytimes.com/athletic/6299432/2025/04/24/49ers-nfl-draft-picks-2025-grades-scouting-reports/
-
-**Rams NFL Draft hub: Picks, grades, fits and scouting reports**\
-`Follow here throughout the draft for analysis on each Rams' pick over the three-day NFL Draft.`\
-https://nytimes.com/athletic/6293955/2025/04/24/rams-nfl-draft-picks-2025-grades-scouting-reports-2/
-
-**USL Players Association partners with IDA Sports engineering cleats for women athletes**\
-`All USL Super League players will receive complimentary pairs of IDA's Rise Elite cleats`\
-https://nytimes.com/athletic/6304083/2025/04/24/women-soccer-cleats-usl-super-league-footwear/
-
-**Raiders NFL Draft hub: Picks, grades, fits and scouting reports**\
-`Keep coming back throughout the draft for grades and expert analysis of each Raiders pick.`\
-https://nytimes.com/athletic/6287651/2025/04/24/raiders-nfl-draft-picks-2025-grades-scouting-reports/
-
-**A Very Peppery Stir-Fry (That’s Not Too Spicy)**\
-`Zainab Shah’s beef and shishito stir-fry gets plenty of oomph from a quick soy marinade and a hefty dose of black pepper.`\
-https://nytimes.com/2025/04/24/dining/a-very-peppery-stir-fry-thats-not-too-spicy.html
 
