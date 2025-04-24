@@ -1,6 +1,6 @@
 **Small Agency Focused on Developing Poor Countries to Be Dismantled**\
 `Millennium Challenge Corporation staff members were offered early retirement or deferred resignation in the latest effort by the Trump administration to gut the foreign aid apparatus.`\
-https://nytimes.com/2025/04/23/us/small-agency-focused-on-developing-poor-countries-to-be-dismantled.html
+https://nytimes.com/2025/04/23/us/trump-doge-millennium-challenge-corporation.html
 
 **Ex-Army Sergeant Gets 7 Years for Selling Military Secrets to Chinese Conspirator**\
 `Korbein Schultz, 25, who was an intelligence analyst, accepted $42,000 in bribes for sensitive documents, prosecutors said. He pleaded guilty in 2024.`\

@@ -1,5 +1,9 @@
 **Small Agency Focused on Developing Poor Countries to Be Dismantled**\
 `Millennium Challenge Corporation staff members were offered early retirement or deferred resignation in the latest effort by the Trump administration to gut the foreign aid apparatus.`\
+https://nytimes.com/2025/04/23/us/trump-doge-millennium-challenge-corporation.html
+
+**Small Agency Focused on Developing Poor Countries to Be Dismantled**\
+`Millennium Challenge Corporation staff members were offered early retirement or deferred resignation in the latest effort by the Trump administration to gut the foreign aid apparatus.`\
 https://nytimes.com/2025/04/23/us/small-agency-focused-on-developing-poor-countries-to-be-dismantled.html
 
 **Will the Wild scratch Buium or Bogosian for Game 3? Changes could be coming**\
