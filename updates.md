@@ -1,3 +1,15 @@
+**Hegseth Set Up Signal on a Computer in His Pentagon Office**\
+`The app facilitated communications in a building where cell service is poor and personal phones are not allowed in some areas.`\
+https://nytimes.com/2025/04/24/us/politics/hegseth-signal-pentagon.html
+
+**Titans, WR Tyler Lockett agree to deal ahead of NFL Draft**\
+`Lockett has a connection to presumed No. 1 draft pick Cam Ward.`\
+https://nytimes.com/athletic/6303904/2025/04/24/titans-tyler-lockett-contract-free-agency/
+
+**Fantasy Premier League: How to tackle Blank Gameweek 34 (especially if you have no Free Hit chip)**\
+`Whether you're creating a Free Hit team or taking hits to get a functioning side out, Holly Shand runs through the players you should target`\
+https://nytimes.com/athletic/6301216/2025/04/24/fantasy-premier-league-blank-gameweek-34-transfers/
+
 **Logan Thompson elevates Capitals' performance in a Game 2 that needed a hero**\
 `The Capitals again managed to outlast a late push by the Canadiens thanks to what Ryan Leonard called "extraordinary" saves in net.`\
 https://nytimes.com/athletic/6303910/2025/04/24/logan-thompson-capitals-nhl-playoffs-game-2/

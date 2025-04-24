@@ -1,3 +1,15 @@
+**Hegseth Set Up Signal on a Computer in His Pentagon Office**\
+`The app facilitated communications in a building where cell service is poor and personal phones are not allowed in some areas.`\
+https://nytimes.com/2025/04/24/us/politics/hegseth-signal-pentagon.html
+
+**Titans, WR Tyler Lockett agree to deal ahead of NFL Draft**\
+`Lockett has a connection to presumed No. 1 draft pick Cam Ward.`\
+https://nytimes.com/athletic/6303904/2025/04/24/titans-tyler-lockett-contract-free-agency/
+
+**Fantasy Premier League: How to tackle Blank Gameweek 34 (especially if you have no Free Hit chip)**\
+`Whether you're creating a Free Hit team or taking hits to get a functioning side out, Holly Shand runs through the players you should target`\
+https://nytimes.com/athletic/6301216/2025/04/24/fantasy-premier-league-blank-gameweek-34-transfers/
+
 **Logan Thompson elevates Capitals' performance in a Game 2 that needed a hero**\
 `The Capitals again managed to outlast a late push by the Canadiens thanks to what Ryan Leonard called "extraordinary" saves in net.`\
 https://nytimes.com/athletic/6303910/2025/04/24/logan-thompson-capitals-nhl-playoffs-game-2/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6301841/2025/04/24/premier-league-draft/
 **'Hup Liverpool!': How a league title win was forged in the Netherlands**\
 `The home towns of Arne Slot, Virgil van Dijk, Cody Gakpo and Ryan Gravenberch are proud of their achievements - but not surprised`\
 https://nytimes.com/athletic/6124803/2025/04/24/liverpool-slot-van-dijk-gravenberch-gakpo-netherlands/
-
-**Dodgers feeling the bruises of a bumpy April road trip: 'Off day comes at a good time'**\
-`Despite their 16-9 record, the Dodgers have not looked the part of a dominant force over the past few games.`\
-https://nytimes.com/athletic/6303833/2025/04/24/dodgers-bumpy-april-road-trip/
-
-**The BookKeeper - Exploring Newcastle United's finances and a takeover that changed everything**\
-`How a takeover changed Newcastle's finances, how restrictive PSR is proving and what happens next`\
-https://nytimes.com/athletic/6227786/2025/04/24/bookkeeper-newcastle-united-finances-psr/
-
-**Wrexham striker Abbie Iddenden on her scoring streak, this weekend's cup final and why the cameras help**\
-`Wrexham's women will battle Cardiff City's for cup glory on Sunday, the same as last season. But things feel very different this time...`\
-https://nytimes.com/athletic/6298594/2025/04/24/abbie-iddenden-wrexham-cup-final/
 
