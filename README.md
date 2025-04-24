@@ -1,3 +1,7 @@
+**Even Snacks Won’t Make Consumers Feel Better About the Economy**\
+`PepsiCo’s earnings call pointed to anxious consumers as to why sales had slowed, echoing comments made by Chipotle and Procter & Gamble.`\
+https://nytimes.com/2025/04/24/business/pepsico-earnings-economy-tariffs.html
+
 **Gunman Who Opened Fire on a Parade Gets Seven Life Sentences**\
 `The man fired from a rooftop during a Fourth of July celebration in a Chicago suburb three years ago. The judge called the gunman “irretrievably depraved.”`\
 https://nytimes.com/2025/04/24/us/highland-park-shooting-sentencing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6305536/2025/04/24/jimmy-butler-injury-warriors-roc
 **Judge Orders Administration to Seek Return of Another Deported Migrant**\
 `The case, involving a 20-year-old Venezuelan, comes on the heels of another legal battle over the fate of a different man wrongfully sent to El Salvador by the Trump administration.`\
 https://nytimes.com/2025/04/24/us/politics/deported-migrant-el-salvador-trump.html
-
-**Judge Limits Trump’s Ability to Withhold School Funds Over D.E.I.**\
-`The administration was seeking to cut off money from public schools that allowed certain diversity and equity programs.`\
-https://nytimes.com/2025/04/24/us/trump-public-school-funds-dei.html
 

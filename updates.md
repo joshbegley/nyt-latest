@@ -1,3 +1,11 @@
+**Gunman Who Opened Fire on a Parade Gets Seven Life Sentences**\
+`The man fired from a rooftop during a Fourth of July celebration in a Chicago suburb three years ago. The judge called the gunman “irretrievably depraved.”`\
+https://nytimes.com/2025/04/24/us/highland-park-shooting-sentencing.html
+
+**7 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2025/04/24/books/review/new-books-recommendations.html
+
 **Thompson: Against the aggressive Rockets, Warriors' hopes rest on solving a familiar problem**\
 `Steph Curry loves to burn the Rockets. But he needs help, and in Wednesday's Game 2, the Warriors had none to give.`\
 https://nytimes.com/athletic/6305232/2025/04/24/warriors-rockets-playoffs-stephen-curry-solution-game-2/
