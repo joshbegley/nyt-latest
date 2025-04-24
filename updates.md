@@ -1,3 +1,15 @@
+**Trump Directs Sons to Fire Trump Org. Lawyer Because of Harvard Ties**\
+`The move to dismiss William A. Burck underscored both the entanglements between Mr. Trump’s presidency and company and the degree to which he will look to target people he believes have wronged him.`\
+https://nytimes.com/2025/04/24/us/politics/trump-organization-lawyer-burck.html
+
+**What will the Capitals get when Aliaksei Protas returns — and who sits?**\
+`Protas’ return to the lineup is either pending or close to it. The Capitals could sure use him, but that means benching another good player.`\
+https://nytimes.com/athletic/6305863/2025/04/24/capitals-aliaksei-protas-injury-nhl-playoffs/
+
+**Phillies' offseason decisions hover over bullpen's shaky start and the search for solutions**\
+`The Phillies know a potential issue is forming. They do not have robust bullpen depth in the minors. Their offseason decisions linger. `\
+https://nytimes.com/athletic/6305682/2025/04/24/phillies-bullpen-problems-offseason-moves/
+
 **Trump’s Attempt to Overhaul Election Law Is Partly Blocked by a Judge**\
 `The president does not have the authority to require proof of citizenship for all voters, a federal judge ruled.`\
 https://nytimes.com/2025/04/24/us/politics/trump-election-order-judge-blocked.html

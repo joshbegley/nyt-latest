@@ -1,3 +1,7 @@
+**Leonard Zeskind, Who Foresaw the Rise of White Nationalism, Dies at 75**\
+`With “Blood and Politics,” he predicted that anti-immigrant ideologies would become part of mainstream American politics, and warned about downplaying the threat.`\
+https://nytimes.com/2025/04/24/us/politics/leonard-zeskind-dead.html
+
 **Trump Directs Sons to Fire Trump Org. Lawyer Because of Harvard Ties**\
 `The move to dismiss William A. Burck underscored both the entanglements between Mr. Trump’s presidency and company and the degree to which he will look to target people he believes have wronged him.`\
 https://nytimes.com/2025/04/24/us/politics/trump-organization-lawyer-burck.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/24/learning/whats-going-on-in-this-graph-april-30-20
 **What’s Going On in This Picture? | April 28, 2025**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2025/04/24/learning/whats-going-on-in-this-picture-april-28-2025.html
-
-**U.S. Sidelines Lawyers Who Exposed Flaws in Anti-Congestion Pricing Case**\
-`The U.S. Department of Transportation chafed at the release of a confidential memo mulling its strategy and raised the possibility that the move aimed to sabotage its case.`\
-https://nytimes.com/2025/04/24/nyregion/nyc-congestion-pricing-duffy-lawyers.html
 
