@@ -1,3 +1,7 @@
+**What we're hearing about the Patriots and the No. 4 pick ahead of the draft**\
+`Mike Vrabel has said he plans to build this team through the trenches and has hinted at a transformed roster. What will he do in the draft?`\
+https://nytimes.com/athletic/6302388/2025/04/24/nfl-draft-patriots-no-4-pick-campbell-higgins/
+
 **Markets Fade as China Calls Reports of U.S. Tariff Talks ‘Baseless’**\
 `Stocks pulled back from recent gains fueled by comments from President Trump and others suggesting that they might ease steep tariffs.`\
 https://nytimes.com/2025/04/24/business/trump-tariffs-stocks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/24/health/acadia-bonuses.html
 **5 Classical Music Albums You Can Listen to Right Now**\
 `An exceptional account of Bach’s Mass in B minor, traditional and unusual string quartets, and Thomas Adès suites are among the highlights.`\
 https://nytimes.com/2025/04/24/arts/music/classical-music-albums-april-2025.html
-
-**Are Students Cheating When They Use A.I. for Their Schoolwork?**\
-`Is artificial intelligence a tool that supports students in their learning or a crutch that holds them back?`\
-https://nytimes.com/2025/04/24/learning/are-students-cheating-when-they-use-ai-for-their-schoolwork.html
 
