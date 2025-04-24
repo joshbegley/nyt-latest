@@ -1,3 +1,13 @@
+**Premier League top five odds update: Newcastle on the up, Chelsea living on the edge**\
+`Brett Koremenos has a look at this week’s Premier League top five odds ahead of the next round of games. 
+`\
+https://nytimes.com/athletic/6304401/2025/04/24/premier-league-top-five-odds-update-predictions/
+
+**Copa del Rey final odds: Barça to make it three straight Clásico wins?**\
+`Sam Tighe explores the best bets to wager on ahead of this Saturday’s Copa del Rey final between Barcelona and Real Madrid. 
+`\
+https://nytimes.com/athletic/6304395/2025/04/24/barcelona-real-madrid-copa-del-rey-final-betting-predictions/
+
 **Cardinals Gather in Vatican to Fine Tune Preparations for Pope’s Funeral**\
 `The conclave to select the next pontiff has not started yet, but meetings to set the agenda and to decide on the logistics of mourning for Francis were gathering pace.`\
 https://nytimes.com/2025/04/24/world/europe/pope-francis-cardinals-conclave-vatican.html
