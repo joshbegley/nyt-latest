@@ -1,3 +1,7 @@
+**This was an unserious performance from Arsenal. All eyes are fixed on PSG**\
+`It was no surprise that the Champions League semi-final had an impression on events. Arsenal have six days to reset, refresh and prepare`\
+https://nytimes.com/athletic/6303264/2025/04/24/arsenal-palace-analysis-arteta-psg/
+
 **Jimmy Kimmel Skewers Elon Musk’s Plan to ‘Get Out of DOGE’**\
 `“Musk says that he will dial back his work with the government so that he can spend more time with all 10 of his families,” Kimmel said.`\
 https://nytimes.com/2025/04/24/arts/television/kimmel-musk-doge.html

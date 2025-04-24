@@ -1,3 +1,7 @@
+**This was an unserious performance from Arsenal. All eyes are fixed on PSG**\
+`It was no surprise that the Champions League semi-final had an impression on events. Arsenal have six days to reset, refresh and prepare`\
+https://nytimes.com/athletic/6303264/2025/04/24/arsenal-palace-analysis-arteta-psg/
+
 **Jimmy Kimmel Skewers Elon Musk’s Plan to ‘Get Out of DOGE’**\
 `“Musk says that he will dial back his work with the government so that he can spend more time with all 10 of his families,” Kimmel said.`\
 https://nytimes.com/2025/04/24/arts/television/kimmel-musk-doge.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6303934/2025/04/24/houston-astros-pitching-hitting-
 **Hegseth Set Up Signal on a Computer in His Pentagon Office**\
 `The app facilitated communications in a building where cell service is poor and personal phones are not allowed in some areas.`\
 https://nytimes.com/2025/04/24/us/politics/hegseth-signal-pentagon.html
-
-**Titans, WR Tyler Lockett agree to deal ahead of NFL Draft**\
-`Lockett has a connection to presumed No. 1 draft pick Cam Ward.`\
-https://nytimes.com/athletic/6303904/2025/04/24/titans-tyler-lockett-contract-free-agency/
 
