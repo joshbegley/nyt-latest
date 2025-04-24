@@ -27,7 +27,7 @@ https://nytimes.com/issue/todayspaper/2025/04/24/todays-new-york-times
 https://nytimes.com/2025/04/24/opinion/pete-hegseth-yemen.html
 
 **Kopitar has 4 points in Kings' blowout Game 2 win over Oilers**\
-`The Kings once again jumped out to an early lead and now head to Edmonton up 2-0 in the series.`\
+`The Kings once again jumped out to an early lead and head to Edmonton up 2-0 in the series.`\
 https://nytimes.com/athletic/6290489/2025/04/24/oilers-kings-nhl-playoffs-2025-game-2-takeaways/
 
 **Astros' ghosts of an awful April are gone: 'It's a great feeling'**\
