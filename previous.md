@@ -1,3 +1,7 @@
+**Ex-Army Sergeant Gets 7 Years for Selling Military Secrets to Chinese Conspirator**\
+`Korbein Schultz, 25, who was an intelligence analyst, accepted $42,000 in bribes for sensitive documents, prosecutors said. He pleaded guilty in 2024.`\
+https://nytimes.com/2025/04/23/us/army-analyst-selling-secrets-sentenced.html
+
 **Las Vegas Sands Drops Bid to Open a Casino on Long Island**\
 `The company cited the threat that online gambling posed to its profits in its decision to bow out of the competition for one of three casino licenses around New York City.`\
 https://nytimes.com/2025/04/23/nyregion/las-vegas-sands-casino-nassau-coliseum.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6303188/2025/04/23/mets-seven-wins-depth-bullpen-st
 **Braves takeaways: Eli White's unforgettable homer, Alex Verdugo's impact and more**\
 `Fans in the left-field bleachers gave White a standing ovation when he returned to his position after a 434-foot blast.`\
 https://nytimes.com/athletic/6303286/2025/04/23/braves-eli-white-alex-verdugo-mlb/
-
-**A Stunning New Pool in Central Park Helps Heal Old Wounds**\
-`The $160 million Davis Center, with upgrades to six bucolic acres and a lake, writes a new chapter for the Harlem end of the park.`\
-https://nytimes.com/2025/04/23/arts/design/central-park-pool-harlem.html
 

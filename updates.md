@@ -1,3 +1,7 @@
+**Ex-Army Sergeant Gets 7 Years for Selling Military Secrets to Chinese Conspirator**\
+`Korbein Schultz, 25, who was an intelligence analyst, accepted $42,000 in bribes for sensitive documents, prosecutors said. He pleaded guilty in 2024.`\
+https://nytimes.com/2025/04/23/us/army-analyst-selling-secrets-sentenced.html
+
 **Las Vegas Sands Drops Bid to Open a Casino on Long Island**\
 `The company cited the threat that online gambling posed to its profits in its decision to bow out of the competition for one of three casino licenses around New York City.`\
 https://nytimes.com/2025/04/23/nyregion/las-vegas-sands-casino-nassau-coliseum.html
