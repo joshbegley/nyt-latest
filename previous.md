@@ -1,40 +1,40 @@
-**Howe to return for Newcastle's match against Ipswich**\
-`Howe has missed Newcastle's last three matches after contracting pneumonia.`\
-https://nytimes.com/athletic/6304283/2025/04/24/eddie-howe-newcastle-return-pneumonia/
+**Markets Fade as China Calls Reports of U.S. Tariff Talks ‘Baseless’**\
+`Stocks pulled back from recent gains fueled by comments from President Trump and others suggesting that they might ease steep tariffs.`\
+https://nytimes.com/2025/04/24/business/trump-tariffs-stocks.html
 
-**Hurzeler explains use of sleep expert to deal with Premier League pressure**\
-`Hurzeler explained he is "always" thinking about football and tactics and subsequently sought advice over better sleeping habits.`\
-https://nytimes.com/athletic/6304243/2025/04/24/fabian-hurzeler-brighton-sleep-expert/
+**Cowboys draft roundtable: Choices at 12, trading up options and finding starters**\
+`If the Cowboys don't like their options at 12, will they trade back? Which positions would Dallas love to exit the draft with new starters?`\
+https://nytimes.com/athletic/6302866/2025/04/24/cowboys-nfl-draft-roundtable-2025/
 
-**Heat have a road map to win Game 3 thanks to Erik Spoelstra and Davion Mitchell**\
-`The Heat, led by the man known as Game 2 Spo, nearly pulled off the comeback against the Cavs, setting the stage for a showdown in Miami.`\
-https://nytimes.com/athletic/6304157/2025/04/24/heat-cavs-game-2-davion-mitchell-tyler-herro/
+**Zelensky’s Red Line on Crimea Tied to Political Realities at Home**\
+`In Ukraine, memories of Russia’s annexation are fresh and resentments run high, leaving the country’s president few choices on the latest American peace plan.`\
+https://nytimes.com/2025/04/24/world/europe/zelensky-crimea-ceasefire-trump.html
 
-**Sorensen signs new two-year Everton contract**\
-`Sorensen's previous contract had been set to expire in 2026.`\
-https://nytimes.com/athletic/6304219/2025/04/24/brian-sorensen-everton-women-contract/
+**The Anti-Woke Right Has a Lot to Answer For**\
+`DeSantis walked so that Trump could run.`\
+https://nytimes.com/2025/04/24/opinion/trump-woke-free-speech.html
 
-**Mamdani Aims at Cuomo, Beginning the Ad War in the N.Y.C. Mayor’s Race**\
-`Zohran Mamdani, who won attention for a series of online campaign videos, is the first candidate to launch a broadcast ad in the Democratic primary race.`\
-https://nytimes.com/2025/04/24/nyregion/mamdani-tv-ad.html
+**In L.A., a Young Family Wanted a House to Grow Into. Would $800,000 Be Enough? **\
+`Seeking more space for their growing children (and maybe a pool), a couple combed the San Fernando Valley for a single-family home they could afford. Here’s what they found.`\
+https://nytimes.com/interactive/2025/04/24/realestate/los-angeles-san-fernando-valley-homes.html
 
-**A Child, a Book and Protests**\
-`What do you think this image is communicating?`\
-https://nytimes.com/2025/04/24/learning/a-child-a-book-and-protests.html
+**Why Greater Toronto Could Decide Who Wins Canada’s Election**\
+`The Conservatives had enjoyed a lead over Liberals in the region largely because of rising housing and food costs. But President Trump’s tariffs have shifted the equation.`\
+https://nytimes.com/2025/04/24/world/canada/canada-election-toronto.html
 
-**George Santos, Facing a Possible 87 Months in Prison, Is Out of Jokes**\
-`On Friday, a federal judge will sentence the disgraced former congressman to a minimum of two years in prison, but Mr. Santos expects a harsher sentence.`\
-https://nytimes.com/2025/04/24/nyregion/george-santos-prison-interview.html
+**Lydia Polgreen on What’s Missing in Our Conversation About Immigration**\
+`And what happens when your country becomes a place people no longer want to come to.`\
+https://nytimes.com/2025/04/24/opinion/trump-immigration-first-100-days.html
 
-**From New York to Jamaica: One Man’s Deportation Under Trump**\
-`Two decades had passed since Nascimento Blair was last in his homeland. Much had changed, including Mr. Blair himself.`\
-https://nytimes.com/2025/04/24/nyregion/deportation-trump-jamaica.html
+**Leaders of Mental Health Giant Promised Big Bonuses to Deal With Federal Investigations**\
+`Acadia Healthcare’s chief executive was awarded a $1.8 million bonus to respond to “unprecedented governmental inquiries” into allegations of holding psychiatric patients against their will.`\
+https://nytimes.com/2025/04/24/health/acadia-bonuses.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/04/24/crosswords/spelling-bee-forum.html
+**5 Classical Music Albums You Can Listen to Right Now**\
+`An exceptional account of Bach’s Mass in B minor, traditional and unusual string quartets, and Thomas Adès suites are among the highlights.`\
+https://nytimes.com/2025/04/24/arts/music/classical-music-albums-april-2025.html
 
-**The $40 Billion Issue the N.Y.C. Mayoral Candidates Aren’t Discussing**\
-`With more than 900,000 students, New York’s public school system is the biggest in the United States, but it has received scant attention from candidates.`\
-https://nytimes.com/2025/04/24/nyregion/new-york-city-mayor-education.html
+**Are Students Cheating When They Use A.I. for Their Schoolwork?**\
+`Is artificial intelligence a tool that supports students in their learning or a crutch that holds them back?`\
+https://nytimes.com/2025/04/24/learning/are-students-cheating-when-they-use-ai-for-their-schoolwork.html
 
