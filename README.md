@@ -1,42 +1,40 @@
-**Smoke From New Jersey Wildfire Could Blanket New York City**\
-`The air in the city is unhealthy for some groups because of a fire that has been burning in the Pine Barrens since Tuesday.`\
-https://nytimes.com/2025/04/24/nyregion/new-jersey-wildfire-smoke-nyc.html
+**Jamie Vardy to leave Leicester at end of this season**\
+`The 38-year-old is Leicester's record scorer with 198 goals in 496 appearances and leaves after 13 years at the club.`\
+https://nytimes.com/athletic/6287219/2025/04/24/jamie-vardy-leicester-next/
 
-**Ukraine’s Next Steps**\
-`The U.S. is urging Ukraine to take a deal that favors Russia.`\
-https://nytimes.com/2025/04/24/briefing/ukraines-next-steps.html
+**Real Madrid and Xabi Alonso: Would now be the right time?**\
+`The Athletic FC Podcast discuss whether now is the right time for Xabi Alonso to take charge of Real Madrid.`\
+https://nytimes.com/athletic/6304433/2025/04/24/ahtletic-fc-podcast-xabi-alonso-real-madrid/
 
-**Cardinals Gather in Vatican to Fine Tune Preparations for Pope’s Funeral**\
-`The conclave to select the next pontiff has not started yet, but meetings to set the agenda and to decide on the logistics of mourning for Francis were gathering pace.`\
-https://nytimes.com/2025/04/24/world/europe/pope-francis-cardinals-conclave-vatican.html
+**The NFL Draft is known for the custom suits. The evolution has been inevitable**\
+`The 2025 NFL Draft starts Thursday, and some athletes will introduce their custom-made suits with the sole purpose to showcase their style.`\
+https://nytimes.com/athletic/6301070/2025/04/24/nfl-draft-suits-michael-strahan-tom-marchitelli-ge-wang/
 
-**Carlos Alcaraz withdraws from Madrid Open with muscle injury**\
-`The Spaniard sustained the injury during the Barcelona Open final against Holger Rune.`\
-https://nytimes.com/athletic/6295860/2025/04/24/carlos-alcaraz-madrid-open-out-injury/
+**Why is the Kirill Kaprizov-Matt Boldy combo so dynamic, and what does it mean for the Wild?**\
+`Minnesota could have split up Kaprizov and Boldy for scoring-depth purposes, but they've been fantastic together.`\
+https://nytimes.com/athletic/6302528/2025/04/24/kaprizov-boldy-wild-playoffs/
 
-**Premier League top five odds update: Newcastle on the up, Chelsea living on the edge**\
-`Brett Koremenos has a look at this week’s Premier League top five odds ahead of the next round of games. 
-`\
-https://nytimes.com/athletic/6304401/2025/04/24/premier-league-top-five-odds-update-predictions/
+**Falcons NFL Draft hub: Picks, grades, fits and scouting reports**\
+`The Falcons need to bolster their pass rush (what else is new?) and could use more draft picks, so they'll likely look to trade down.`\
+https://nytimes.com/athletic/6302715/2025/04/24/falcons-nfl-draft-picks-2025-grades-scouting-reports/
 
-**Copa del Rey final odds: Barça to make it three straight Clásico wins?**\
-`Sam Tighe explores the best bets to wager on ahead of this Saturday’s Copa del Rey final between Barcelona and Real Madrid. 
-`\
-https://nytimes.com/athletic/6304395/2025/04/24/barcelona-real-madrid-copa-del-rey-final-betting-predictions/
+**Inside the numbers: Nico Harrison insists defense wins championships. But is that still true?**\
+`Inside the numbers on NBA trends: Are we seeing a resurgence in heavy minutes workloads? And shooters are getting farther from the basket.`\
+https://nytimes.com/athletic/6281512/2025/04/24/mavericks-gm-nico-harrison-defense-wins-championships/
 
-**Ryder Cup Team Europe projection 1.0: Rory McIlroy leads a long list of trending players**\
-`Luke Donald, Europe's first repeat captain since Bernard Gallacher in 1995, has a long list of names in front of him.`\
-https://nytimes.com/athletic/6303489/2025/04/24/ryder-cup-2025-team-europe-projected-players/
+**Buckley: Celtics stomp Magic WWE-style, using a mix of blood, showmanship and laughter**\
+`Kristaps Porziņģis was all smiles during and after Game 2 despite taking an elbow to the head that required five stitches to close.`\
+https://nytimes.com/athletic/6303997/2025/04/24/celtics-magic-game-2-kristaps-porzingis-nba-playoffs/
 
-**This Week in Sports Trivia: April 24, 2025**\
-`How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
-https://nytimes.com/athletic/6302622/2025/04/24/this-week-in-sports-trivia-april-24-2025/
+**Mouse and rat: The two sides of Senators agitator Ridly Greig**\
+`Ridly Greig is loud on the ice, but quiet off it. Through two games of the Battle of Ontario, he's become public enemy No. 1 in Toronto.`\
+https://nytimes.com/athletic/6303213/2025/04/24/senators-ridly-greig-leafs-nhl-playoffs/
 
-**Final 2025 NFL mock draft: Two QBs in Round 1, but Shedeur Sanders isn't one of them**\
-`How will Round 1 of the NFL Draft play out on Thursday night? Our expert takes his shot at predicting all 32 picks. `\
-https://nytimes.com/athletic/6299688/2025/04/24/nfl-mock-draft-2025-round-1/
+**‘The Trouble with Jessica’ Review: Dinner Party or Crime Scene?**\
+`This British black comedy, starring Indira Varma, centers on a group of wealthy middle-aged friends with fraught histories.`\
+https://nytimes.com/2025/04/24/movies/the-trouble-with-jessica-review-dinner-party-or-crime-scene.html
 
-**Evan Mobley 'met the moment' in Cavs' Game 2 win over Heat**\
-`"He's got that something," Cavs coach Kenny Atkinson said. "He's desperate to be great."`\
-https://nytimes.com/athletic/6303979/2025/04/24/cavs-heat-game-2-evan-mobley/
+**‘Until Dawn’ Review: They Keep Dying, You’ll Keep Shrugging**\
+`Based on a video game, this movie is done in by mediocre monsters and muddled time loops.`\
+https://nytimes.com/2025/04/24/movies/until-dawn-review.html
 

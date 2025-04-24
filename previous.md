@@ -1,3 +1,11 @@
+**Smoke From New Jersey Wildfire Could Blanket New York City**\
+`The air in the city is unhealthy for some groups because of a fire that has been burning in the Pine Barrens since Tuesday.`\
+https://nytimes.com/2025/04/24/nyregion/new-jersey-wildfire-smoke-nyc.html
+
+**Ukraine’s Next Steps**\
+`The U.S. is urging Ukraine to take a deal that favors Russia.`\
+https://nytimes.com/2025/04/24/briefing/ukraines-next-steps.html
+
 **Cardinals Gather in Vatican to Fine Tune Preparations for Pope’s Funeral**\
 `The conclave to select the next pontiff has not started yet, but meetings to set the agenda and to decide on the logistics of mourning for Francis were gathering pace.`\
 https://nytimes.com/2025/04/24/world/europe/pope-francis-cardinals-conclave-vatican.html
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/6299688/2025/04/24/nfl-mock-draft-2025-round-1/
 **Evan Mobley 'met the moment' in Cavs' Game 2 win over Heat**\
 `"He's got that something," Cavs coach Kenny Atkinson said. "He's desperate to be great."`\
 https://nytimes.com/athletic/6303979/2025/04/24/cavs-heat-game-2-evan-mobley/
-
-**Canadiens head home down 0-2, but with a fire that should have long-lasting effects**\
-`Juraj Slafkovský was incensed after a Game 2 loss, both at himself and his team, and that is the type of anger that can lead to growth.`\
-https://nytimes.com/athletic/6304154/2025/04/24/canadiens-slafkovsky-margins-nhl-playoffs-capitals/
-
-**Lions NFL Draft hub: Picks, grades, fits and scouting reports**\
-`The Lions have seven picks in this year's NFL Draft.`\
-https://nytimes.com/athletic/6303781/2025/04/24/lions-nfl-draft-picks-2025-grades-scouting-reports/
 

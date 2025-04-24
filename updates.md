@@ -1,3 +1,21 @@
+**Smoke From New Jersey Wildfire Could Blanket New York City**\
+`The air in the city is unhealthy for some groups because of a fire that has been burning in the Pine Barrens since Tuesday.`\
+https://nytimes.com/2025/04/24/nyregion/new-jersey-wildfire-smoke-nyc.html
+
+**Ukraine’s Next Steps**\
+`The U.S. is urging Ukraine to take a deal that favors Russia.`\
+https://nytimes.com/2025/04/24/briefing/ukraines-next-steps.html
+
+**Premier League top five odds update: Newcastle on the up, Chelsea living on the edge**\
+`Brett Koremenos has a look at this week’s Premier League top five odds ahead of the next round of games. 
+`\
+https://nytimes.com/athletic/6304401/2025/04/24/premier-league-top-five-odds-update-predictions/
+
+**Copa del Rey final odds: Barça to make it three straight Clásico wins?**\
+`Sam Tighe explores the best bets to wager on ahead of this Saturday’s Copa del Rey final between Barcelona and Real Madrid. 
+`\
+https://nytimes.com/athletic/6304395/2025/04/24/barcelona-real-madrid-copa-del-rey-final-betting-predictions/
+
 **Premier League top five odds update: Newcastle on the up, Chelsea living on the edge**\
 `Brett Koremenos has a look at this week’s Premier League top five odds ahead of the next round of games. 
 `\
