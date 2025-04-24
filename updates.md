@@ -1,3 +1,15 @@
+**The Windup: The Cubs are so back**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6303955/2025/04/24/cubs-record-steven-kwan-the-windup/
+
+**Protesters Hurl Water Bottles at Israeli Official at Event Near Yale**\
+`Demonstrators waving Palestinian and Israeli flags condemned the appearance of Itamar Ben-Gvir, the national security minister who has been widely criticized for his extreme views.`\
+https://nytimes.com/2025/04/24/nyregion/yale-protest-israel-security-minister.html
+
+**Travis Sanheim's, Travis Konecny's second-half slumps must 'get fixed'**\
+`Sanheim and Konecny started the season strong but began to wobble just past the midway point. Both assessed their performances last week.`\
+https://nytimes.com/athletic/6305039/2025/04/24/flyers-travis-sanheim-travis-konecny/
+
 **Scoop City: Your 5-minute draft day guide**\
 `Who are the teams to watch? Which players are attending? What does Vegas expect to happen? All that and more in today's draft primer.`\
 https://nytimes.com/athletic/6305385/2025/04/24/nfl-draft-2025-primer-guide-cam-ward-shedeur-sanders-scoop-city/
