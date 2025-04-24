@@ -1,3 +1,15 @@
+**Yep. Right on. Forsooth. Word. Mm-Hmm. Shupp?**\
+`If there’s one thing we can agree on, it’s that we have many ways to agree.`\
+https://nytimes.com/2025/04/24/opinion/yep-agree-language-dialects.html
+
+**Judge Blocks Trump From Defunding 16 Sanctuary Cities: ‘Here We Are Again’**\
+`A federal judge in San Francisco who issued a nearly identical order in 2017 found himself intervening again to stop President Trump from punishing cities over their immigration policy.`\
+https://nytimes.com/2025/04/24/us/politics/judge-injuction-sanctuary-city-executive-order.html
+
+**College Football Playoff meetings wrap up with big questions unanswered**\
+`The biggest topics included a potential seeding change for 2025, possible expansion and format changes for 2026 and basic governance.`\
+https://nytimes.com/athletic/6305816/2025/04/24/college-football-playoff-meetings-big-ten-sec/
+
 **Why ‘Vladimir, STOP!’ Won’t Stop Vladimir**\
 `On Wednesday Trump complained about Zelensky. On Thursday, Putin. The two messages illustrate why he’s struggling to end the war.`\
 https://nytimes.com/live/2025/04/21/opinion/thepoint/ukraine-russia-puin-kyiv-trump
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6305682/2025/04/24/phillies-bullpen-problems-offsea
 **Trump’s Attempt to Overhaul Election Law Is Partly Blocked by a Judge**\
 `The president does not have the authority to require proof of citizenship for all voters, a federal judge ruled.`\
 https://nytimes.com/2025/04/24/us/politics/trump-election-order-judge-blocked.html
-
-**Fantasy baseball bullpen report featuring concerns about Emmanuel Clase and Ryan Walker**\
-`Greg Jewett talks concerns about Emmanuel Clase and Ryan Walker, while providing relievers on the rise to target. `\
-https://nytimes.com/athletic/6305565/2025/04/24/fantasy-baseball-bullpen-report-emmanuel-clase/
-
-**Killer of Gucci Heir Is Arrested on Suspicion of Shooting His Own Son**\
-`Benedetto Ceraulo, who in 1995 killed Maurizio Gucci, the heir to the fashion house, was suspected of shooting his son over a scratch on a car, Italian police said.`\
-https://nytimes.com/2025/04/24/world/europe/italy-gucci-killer-shooting.html
-
-**Shedeur Sanders' draft stock remains a question. Who would be QB2 instead?**\
-`While there’s been a lot of talk about Ole Miss’ Jaxson Dart being the next-best QB prospect, the coaches I spoke to didn’t see it that way.`\
-https://nytimes.com/athletic/6301789/2025/04/24/nfl-draft-quarterbacks-shedeur-sanders-tyler-shough/
 
