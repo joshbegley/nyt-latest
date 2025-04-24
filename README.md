@@ -1,3 +1,7 @@
+**Las Vegas Sands Drops Bid to Open a Casino on Long Island**\
+`The company cited the threat that online gambling posed to its profits in its decision to bow out of the competition for one of three casino licenses around New York City.`\
+https://nytimes.com/2025/04/23/nyregion/las-vegas-sands-casino-nassau-coliseum.html
+
 **12 States Sue Trump Over His Tariffs**\
 `The lawsuit, filed by Democratic attorneys general, said the president’s tariffs have hurt their economies and residents.`\
 https://nytimes.com/2025/04/23/us/politics/states-tariff-trump-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6303286/2025/04/23/braves-eli-white-alex-verdugo-ml
 **A Stunning New Pool in Central Park Helps Heal Old Wounds**\
 `The $160 million Davis Center, with upgrades to six bucolic acres and a lake, writes a new chapter for the Harlem end of the park.`\
 https://nytimes.com/2025/04/23/arts/design/central-park-pool-harlem.html
-
-**A Subdued Musk Backs Away From Washington, but His Project Remains**\
-`The Department of Government Efficiency has already made an immense imprint on the government, but it has not come close to Elon Musk’s pledge of cutting $1 trillion.`\
-https://nytimes.com/2025/04/23/us/politics/elon-musk-doge-trump.html
 
