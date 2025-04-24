@@ -1,3 +1,19 @@
+**Federal Agency Offers Employees Tips on Finding New Jobs Outside Government**\
+`The Department of Housing and Urban Development is offering “career support” sessions. Some federal workers said they were insulted by the idea of the workshops.`\
+https://nytimes.com/2025/04/24/us/politics/hud-career-jobs-federal-workers.html
+
+**Trump Told Putin to ‘STOP!’ After Deadly Strikes in Kyiv**\
+`Also, tensions between India and Pakistan escalated. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/04/24/briefing/trump-russia-ukraine-flu-season.html
+
+**Alijah Arenas, USC recruit and son of ex-NBA star, in serious crash: Reports**\
+`The McDonald's All-American averaged 30.9 points per game in high school last season.`\
+https://nytimes.com/athletic/6306086/2025/04/24/alijah-arenas-usc-car-crash/
+
+**My Boyfriend Has a Husband. Should I Tell Him About Us?**\
+`The magazine’s Ethicist columnist on navigating the dynamics of multiple open marriages.`\
+https://nytimes.com/2025/04/24/magazine/marriage-boyfriend-polyamory-ethics.html
+
 **Trump Administration Seeks Artists for ‘Garden of Heroes’ Statues**\
 `Those selected would receive up to $200,000 to create one of the 250 sculptures, which will be paid for in part with canceled grants from the National Endowment for the Humanities.`\
 https://nytimes.com/2025/04/24/arts/garden-of-heroes-trump.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6305905/2025/04/24/cubs-pete-crow-armstrong-thrivin
 **Israel Acknowledges Second Deadly Attack on Aid Workers in Gaza**\
 `In a rare apology to the United Nations, Israel said its forces had struck a U.N. compound in Gaza with tank fire. A Bulgarian aid worker was killed.`\
 https://nytimes.com/2025/04/24/world/middleeast/israel-gaza-aid-workers-deaths.html
-
-**First-round pick Carter Yakemchuk joins Senators for rest of playoffs**\
-`The No. 7 pick in the 2024 draft is expected to be in attendance for Game 3 against Toronto.`\
-https://nytimes.com/athletic/6305882/2025/04/24/senators-carter-yakemchuk-nhl-playoffs/
-
-**Ashton Jeanty to the Bears rumors are swirling, and betting odds are on the move**\
-`Is there a trade brewing? Ashton Jeanty's odds of being the fifth pick and of him landing on the Bears shifted drastically Thursday.`\
-https://nytimes.com/athletic/6305982/2025/04/24/ashton-jeanty-bears-betting-odds/
-
-**Live Q&A: Talking fantasy football and the 2025 NFL Draft with Jake Ciely at 6 p.m. ET**\
-`Jake Ciely answers all your pre-NFL Draft fantasy football questions in a live Q&A, exclusive for The Athletic subscribers.`\
-https://nytimes.com/athletic/6306066/2025/04/24/live-qa-talking-fantasy-football-and-the-2025-nfl-draft-with-jake-ciely-on-friday-4-24-at-6-p-m-et/
-
-**NFL Draft 2025 order from Rounds 1-7: All 257 picks and 32 teams**\
-`The NFL has released its complete 2025 draft order. Where is each team scheduled to pick at this year's event?`\
-https://nytimes.com/athletic/6198648/2025/04/24/nfl-draft-order-2025-round-by-round/
 

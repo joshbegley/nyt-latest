@@ -1,3 +1,19 @@
+**Federal Agency Offers Employees Tips on Finding New Jobs Outside Government**\
+`The Department of Housing and Urban Development is offering “career support” sessions. Some federal workers said they were insulted by the idea of the workshops.`\
+https://nytimes.com/2025/04/24/us/politics/hud-career-jobs-federal-workers.html
+
+**Trump Told Putin to ‘STOP!’ After Deadly Strikes in Kyiv**\
+`Also, tensions between India and Pakistan escalated. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/04/24/briefing/trump-russia-ukraine-flu-season.html
+
+**Alijah Arenas, USC recruit and son of ex-NBA star, in serious crash: Reports**\
+`The McDonald's All-American averaged 30.9 points per game in high school last season.`\
+https://nytimes.com/athletic/6306086/2025/04/24/alijah-arenas-usc-car-crash/
+
+**My Boyfriend Has a Husband. Should I Tell Him About Us?**\
+`The magazine’s Ethicist columnist on navigating the dynamics of multiple open marriages.`\
+https://nytimes.com/2025/04/24/magazine/marriage-boyfriend-polyamory-ethics.html
+
 **Trump Administration Seeks Artists for ‘Garden of Heroes’ Statues**\
 `Those selected would receive up to $200,000 to create one of the 250 sculptures, which will be paid for in part with canceled grants from the National Endowment for the Humanities.`\
 https://nytimes.com/2025/04/24/arts/garden-of-heroes-trump.html
