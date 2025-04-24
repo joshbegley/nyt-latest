@@ -1,3 +1,11 @@
+**Twins greats Tony Oliva, Kent Hrbek recovering after recent strokes**\
+`Oliva, 86, and Hrbek, 64, are recovering after each suffered a stroke in the past month, a team official confirmed Wednesday night.`\
+https://nytimes.com/athletic/6303649/2025/04/23/tony-oliva-kent-hrbek-strokes-minnesota-twins/
+
+**All Over the Map**\
+`Kathleen Duncan makes her New York Times Crossword debut.`\
+https://nytimes.com/2025/04/23/crosswords/daily-puzzle-2025-04-24.html
+
 **NBA playoff takeaways: Celtics take 2-0 series lead over Magic**\
 `The series heads to Orlando for Game 3 on Friday.`\
 https://nytimes.com/athletic/6303566/2025/04/23/nba-playoff-celtics-magic-cavaliers-heat-warriors-rockets-scores-takeaways/

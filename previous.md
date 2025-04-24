@@ -1,3 +1,11 @@
+**Twins greats Tony Oliva, Kent Hrbek recovering after recent strokes**\
+`Oliva, 86, and Hrbek, 64, are recovering after each suffered a stroke in the past month, a team official confirmed Wednesday night.`\
+https://nytimes.com/athletic/6303649/2025/04/23/tony-oliva-kent-hrbek-strokes-minnesota-twins/
+
+**All Over the Map**\
+`Kathleen Duncan makes her New York Times Crossword debut.`\
+https://nytimes.com/2025/04/23/crosswords/daily-puzzle-2025-04-24.html
+
 **NBA playoff takeaways: Celtics take 2-0 series lead over Magic**\
 `The series heads to Orlando for Game 3 on Friday.`\
 https://nytimes.com/athletic/6303566/2025/04/23/nba-playoff-celtics-magic-cavaliers-heat-warriors-rockets-scores-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/23/us/politics/states-tariff-trump-lawsuit.html
 **The Mets are playing like baseball's best and they're not surprised at all**\
 `The Mets have the best record in baseball and they could remain at or near the top of the league for a long time to come.`\
 https://nytimes.com/athletic/6303339/2025/04/23/mets-mlb-record-2025-baseball-best/
-
-**Swept in New York, Phillies face some adversity 25 games into their season**\
-`Philadelphia has lost 13 of its last 17 games at Citi Field. After this series, it's impossible to ignore the gap between the clubs.`\
-https://nytimes.com/athletic/6303301/2025/04/23/phillies-adversity-25-games-season-mets/
-
-**Will the Wild scratch Buium or Bogosian for Game 3? Changes could be coming**\
-`Coach John Hynes hinted that he might want to "give a player a break" given the quick turnaround between the next two games.`\
-https://nytimes.com/athletic/6303328/2025/04/23/wild-golden-knights-game-3-lineup/
 
