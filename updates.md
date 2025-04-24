@@ -1,3 +1,11 @@
+**Can 3,500 Percent Tariffs Protect the U.S. Solar Industry?**\
+`The U.S. imposed sky-high tariffs on solar imports from four countries, but it’s unclear if they will be enough to fight back Chinese competitors.`\
+https://nytimes.com/2025/04/24/climate/solar-tariffs-united-states-china.html
+
+**This Land Is His Land. But Is It Wetland?**\
+`A longtime provision of federal law called Swampbuster, which has protected millions of acres of wetland from being farmed, is facing a legal challenge.`\
+https://nytimes.com/2025/04/24/us/swampbuster-wetlands-iowa.html
+
 **Sign Up for the Book Review’s First-Ever Challenge**\
 `(It’s about poetry. And you’ll love it.)`\
 https://nytimes.com/interactive/2025/04/24/books/book-review-poetry-challenge-sign-up.html
