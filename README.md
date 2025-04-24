@@ -31,7 +31,7 @@ https://nytimes.com/athletic/6303179/2025/04/23/yankees-guardians-takeaways-aaro
 https://nytimes.com/2025/04/23/weather/chicago-air-quality.html
 
 **After Edwin Díaz leaves early, the Mets' depth picks up the team — again**\
-`The Mets’ depth is a major reason why they’ve won seven straight games, including a win over the Phillies on Wednesday for a sweep.`\
+`The Mets' depth is a major reason they've won seven straight games, including a win over the Phillies on Wednesday for a sweep.`\
 https://nytimes.com/athletic/6303188/2025/04/23/mets-seven-wins-depth-bullpen-starling-marte/
 
 **Braves takeaways: Eli White's unforgettable homer, Alex Verdugo's impact and more**\
