@@ -1,3 +1,15 @@
+**A Very Peppery Stir-Fry (That’s Not Too Spicy)**\
+`Zainab Shah’s beef and shishito stir-fry gets plenty of oomph from a quick soy marinade and a hefty dose of black pepper.`\
+https://nytimes.com/2025/04/24/dining/a-very-peppery-stir-fry-thats-not-too-spicy.html
+
+**These Apes Are Matriarchal, but It Doesn’t Mean They’re Peaceful**\
+`Females reign supreme in bonobo society by working together to keep males in their place.`\
+https://nytimes.com/2025/04/24/science/bonobos-matriarchies-females.html
+
+**‘Hold Me in the Water’ Review: Smitten, and Primed to Flirt**\
+`Ryan J. Haddad follows up his Obie-winning “Dark Disabled Stories” with a rom-com.`\
+https://nytimes.com/2025/04/24/theater/hold-me-in-the-water-review.html
+
 **Overlooked Letter Rewrites History of Shakespeare’s Bad Marriage**\
 `New research undermines the traditional view that Shakespeare was a distant, neglectful husband to his wife, Anne.`\
 https://nytimes.com/2025/04/24/world/europe/shakespeare-wife-anne-hathaway.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/24/nyregion/arson-new-jersey-wildfire.html
 **Read the North Dakota Governor’s Veto Message**\
 `Gov. Kelly Armstrong vetoed a bill that would have required most libraries in the state to keep material considered sexually explicit in areas difficult for minors to access.`\
 https://nytimes.com/interactive/2025/04/24/us/sb-2307-veto-message-signed.html
-
-**Andrew Heaney dominates Angels while wearing No. 45 to honor former teammate Tyler Skaggs**\
-`Heaney, now with the Pirates, is wearing the number for the first time in his career as a tribute to his late friend. `\
-https://nytimes.com/athletic/6304094/2025/04/24/andrew-heaney-pirates-angels-tyler-skaggs/
-
-**Broncos NFL Draft hub: Picks, grades, fits and scouting reports**\
-`Denver has seven picks over the three-day NFL Draft.`\
-https://nytimes.com/athletic/6296454/2025/04/24/broncos-nfl-draft-picks-2025-grades-scouting-reports/
-
-**Buckley: Will Campbell brings size and skill — and an even bigger heart — to NFL Draft**\
-`Campbell, whose close cousin died in a fire last year, has helped lift the Tarver Braddock Foundation.`\
-https://nytimes.com/athletic/6303009/2025/04/24/nfl-draft-2025-patriots-will-campbell/
 
