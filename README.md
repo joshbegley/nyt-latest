@@ -1,3 +1,7 @@
+**Trump Asks Supreme Court to Revive Ban on Transgender Troops**\
+`Lower courts had blocked the policy, saying it was not supported by evidence and violated equal protection principles.`\
+https://nytimes.com/2025/04/24/us/trump-supreme-transgender-troops.html
+
 **Read Abbe Lowell’s Letter to the Justice Department**\
 `Abbe Lowell, who represents New York Attorney General Letitia James, wrote this letter to the Justice Department warning it not to attempt political retribution against her.`\
 https://nytimes.com/interactive/2025/04/24/us/nyag-james-letter-to-ag-bondi.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6301493/2025/04/24/jason-kidd-everton-ownership/
 **A Paris Hotel With Rooftop Views and a Rock-Climbing Wall**\
 `Plus: an architectural travel guide, dishes that pay homage to Henri Matisse and more recommendations.`\
 https://nytimes.com/2025/04/24/t-magazine/paris-hotel-la-fondation.html
-
-**Norwegian athletes warned against eating meat in China over drug test fears**\
-`Clenbuterol can increase metabolism and maximum heart rate, and is listed by the World Anti-Doping Agency (WADA) as a prohibitive substance.`\
-https://nytimes.com/athletic/6304722/2025/04/24/norway-athletics-meat-china-doping/
 

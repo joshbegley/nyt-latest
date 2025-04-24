@@ -1,3 +1,7 @@
+**In NBA playoffs, adjustments are the word for Game 3: What to expect in four tied series**\
+`The simple "Play Better" tweak worked for a few teams, but keep an eye on these games within the games going forward.`\
+https://nytimes.com/athletic/6304471/2025/04/24/nba-playoffs-adjustments-warriors-knicks-lakers-clippers/
+
 **Read Abbe Lowell’s Letter to the Justice Department**\
 `Abbe Lowell, who represents New York Attorney General Letitia James, wrote this letter to the Justice Department warning it not to attempt political retribution against her.`\
 https://nytimes.com/interactive/2025/04/24/us/nyag-james-letter-to-ag-bondi.html

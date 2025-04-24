@@ -20,7 +20,7 @@ https://nytimes.com/2025/04/24/us/politics/david-hogg-ken-martin-dnc.html
 
 **In NBA playoffs, adjustments are the word for Game 3: What to expect in four tied series**\
 `The simple "Play Better" tweak worked for a few teams, but keep an eye on these games within the games going forward.`\
-https://nytimes.com/athletic/6304471/2025/04/24/nba-playoffs-adjustents-warriors-knicks-lakers-clippers/
+https://nytimes.com/athletic/6304471/2025/04/24/nba-playoffs-adjustments-warriors-knicks-lakers-clippers/
 
 **Should We Start Taking the Welfare of A.I. Seriously?**\
 `As artificial intelligence systems become smarter, one A.I. company is trying to figure out what to do if they become conscious.`\
