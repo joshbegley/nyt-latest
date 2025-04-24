@@ -1,3 +1,19 @@
+**Yep. Right on. Forsooth. Word. Mm-Hmm. Shupp?**\
+`If there’s one thing we can agree on, it’s that we have many ways to agree.`\
+https://nytimes.com/2025/04/24/opinion/yep-agree-language-dialects.html
+
+**Judge Blocks Trump From Defunding 16 Sanctuary Cities: ‘Here We Are Again’**\
+`A federal judge in San Francisco who issued a nearly identical order in 2017 found himself intervening again to stop President Trump from punishing cities over their immigration policy.`\
+https://nytimes.com/2025/04/24/us/politics/judge-injuction-sanctuary-city-executive-order.html
+
+**College Football Playoff meetings wrap up with big questions unanswered**\
+`The biggest topics included a potential seeding change for 2025, possible expansion and format changes for 2026 and basic governance.`\
+https://nytimes.com/athletic/6305816/2025/04/24/college-football-playoff-meetings-big-ten-sec/
+
+**Why ‘Vladimir, STOP!’ Won’t Stop Vladimir**\
+`On Wednesday Trump complained about Zelensky. On Thursday, Putin. The two messages illustrate why he’s struggling to end the war.`\
+https://nytimes.com/live/2025/04/21/opinion/thepoint/ukraine-russia-puin-kyiv-trump
+
 **Robert S. Douglas, Founder of The Black Dog, Dies at 93**\
 `The logo for his tavern on Martha’s Vineyard transformed a black Labrador into an international emblem for summertime.`\
 https://nytimes.com/2025/04/24/obituaries/robert-douglas-dead-black-dog.html

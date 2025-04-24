@@ -1,3 +1,15 @@
+**Andrea Nevins, Who Turned Offbeat Subjects Into Moving Films, Dies at 63**\
+`Her documentaries, one of which received an Oscar nomination, explored subjects like punk-rock dads and Barbie dolls.`\
+https://nytimes.com/2025/04/24/movies/andrea-nevins-dead.html
+
+**Shannon Sharpe temporarily stepping away from ESPN amid rape allegations**\
+`Sharpe is facing a $50 million lawsuit in which a Nevada woman alleged he raped and threatened her during a two-year relationship.`\
+https://nytimes.com/athletic/6305867/2025/04/24/shannon-sharpe-steps-away-espn-rape-lawsuit/
+
+**‘Game Changer’ Is a Fun and Unpredictable Game Show**\
+`Now in its seventh season, the show puts its comedian contestants through a weird and wide-ranging variety of funny and endearing challenges.`\
+https://nytimes.com/2025/04/24/arts/television/game-changer-dropout.html
+
 **Yep. Right on. Forsooth. Word. Mm-Hmm. Shupp?**\
 `If there’s one thing we can agree on, it’s that we have many ways to agree.`\
 https://nytimes.com/2025/04/24/opinion/yep-agree-language-dialects.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/24/us/politics/leonard-zeskind-dead.html
 **Trump Directs Sons to Fire Trump Org. Lawyer Because of Harvard Ties**\
 `The move to dismiss William A. Burck underscored both the entanglements between Mr. Trump’s presidency and company and the degree to which he will look to target people he believes have wronged him.`\
 https://nytimes.com/2025/04/24/us/politics/trump-organization-lawyer-burck.html
-
-**What will the Capitals get when Aliaksei Protas returns — and who sits?**\
-`Protas’ return to the lineup is either pending or close to it. The Capitals could sure use him, but that means benching another good player.`\
-https://nytimes.com/athletic/6305863/2025/04/24/capitals-aliaksei-protas-injury-nhl-playoffs/
-
-**Phillies' offseason decisions hover over bullpen's shaky start and the search for solutions**\
-`The Phillies know a potential issue is forming. They do not have robust bullpen depth in the minors. Their offseason decisions linger. `\
-https://nytimes.com/athletic/6305682/2025/04/24/phillies-bullpen-problems-offseason-moves/
-
-**Trump’s Attempt to Overhaul Election Law Is Partly Blocked by a Judge**\
-`The president does not have the authority to require proof of citizenship for all voters, a federal judge ruled.`\
-https://nytimes.com/2025/04/24/us/politics/trump-election-order-judge-blocked.html
 
