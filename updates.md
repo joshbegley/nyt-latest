@@ -1,3 +1,11 @@
+**First-round pick Carter Yakemchuk joins Senators for rest of playoffs**\
+`The No. 7 pick in the 2024 draft is expected to be in attendance for Game 3 against Toronto.`\
+https://nytimes.com/athletic/6305882/2025/04/24/senators-carter-yakemchuk-nhl-playoffs/
+
+**NFL Draft 2025 order from Rounds 1-7: All 257 picks and 32 teams**\
+`The NFL has released its complete 2025 draft order. Where is each team scheduled to pick at this year's event?`\
+https://nytimes.com/athletic/6198648/2025/04/24/nfl-draft-order-2025-round-by-round/
+
 **Ashton Jeanty to the Bears rumors are swirling, and betting odds are on the move**\
 `Is there a trade brewing? Ashton Jeanty's odds of being the fifth pick and of him landing on the Bears shifted drastically Thursday.`\
 https://nytimes.com/athletic/6305982/2025/04/24/ashton-jeanty-bears-betting-odds/
