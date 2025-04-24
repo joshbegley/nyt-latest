@@ -1,3 +1,7 @@
+**Why ‘Vladimir, STOP!’ Won’t Stop Vladimir**\
+`On Wednesday Trump complained about Zelensky. On Thursday, Putin. The two messages illustrate why he’s struggling to end the war.`\
+https://nytimes.com/live/2025/04/21/opinion/thepoint/ukraine-russia-puin-kyiv-trump
+
 **Robert S. Douglas, Founder of The Black Dog, Dies at 93**\
 `The logo for his tavern on Martha’s Vineyard transformed a black Labrador into an international emblem for summertime.`\
 https://nytimes.com/2025/04/24/obituaries/robert-douglas-dead-black-dog.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/24/world/europe/italy-gucci-killer-shooting.html
 **Shedeur Sanders' draft stock remains a question. Who would be QB2 instead?**\
 `While there’s been a lot of talk about Ole Miss’ Jaxson Dart being the next-best QB prospect, the coaches I spoke to didn’t see it that way.`\
 https://nytimes.com/athletic/6301789/2025/04/24/nfl-draft-quarterbacks-shedeur-sanders-tyler-shough/
-
-**What’s Going On in This Graph? | April 30, 2025**\
-`What do you notice about the percentage of U.S. adults who self-identify as lesbian, gay, bisexual, transgender or something other than heterosexual? What do you wonder?`\
-https://nytimes.com/2025/04/24/learning/whats-going-on-in-this-graph-april-30-2025.html
 

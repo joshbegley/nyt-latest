@@ -1,3 +1,7 @@
+**Robert S. Douglas, Founder of The Black Dog, Dies at 93**\
+`The logo for his tavern on Martha’s Vineyard transformed a black Labrador into an international emblem for summertime.`\
+https://nytimes.com/2025/04/24/obituaries/robert-douglas-dead-black-dog.html
+
 **Leonard Zeskind, Who Foresaw the Rise of White Nationalism, Dies at 75**\
 `With “Blood and Politics,” he predicted that anti-immigrant ideologies would become part of mainstream American politics, and warned about downplaying the threat.`\
 https://nytimes.com/2025/04/24/us/politics/leonard-zeskind-dead.html

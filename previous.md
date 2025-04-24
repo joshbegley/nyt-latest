@@ -1,3 +1,7 @@
+**Robert S. Douglas, Founder of The Black Dog, Dies at 93**\
+`The logo for his tavern on Martha’s Vineyard transformed a black Labrador into an international emblem for summertime.`\
+https://nytimes.com/2025/04/24/obituaries/robert-douglas-dead-black-dog.html
+
 **Leonard Zeskind, Who Foresaw the Rise of White Nationalism, Dies at 75**\
 `With “Blood and Politics,” he predicted that anti-immigrant ideologies would become part of mainstream American politics, and warned about downplaying the threat.`\
 https://nytimes.com/2025/04/24/us/politics/leonard-zeskind-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6301789/2025/04/24/nfl-draft-quarterbacks-shedeur-s
 **What’s Going On in This Graph? | April 30, 2025**\
 `What do you notice about the percentage of U.S. adults who self-identify as lesbian, gay, bisexual, transgender or something other than heterosexual? What do you wonder?`\
 https://nytimes.com/2025/04/24/learning/whats-going-on-in-this-graph-april-30-2025.html
-
-**What’s Going On in This Picture? | April 28, 2025**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2025/04/24/learning/whats-going-on-in-this-picture-april-28-2025.html
 
