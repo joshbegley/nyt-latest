@@ -1,3 +1,19 @@
+**Vinicius Junior, his Real Madrid contract and the interest from Saudi: Here's what we're hearing**\
+`Reports of an agreement between Vinicius and Madrid have been dismissed by the player's camp. Here's the state of play... `\
+https://nytimes.com/athletic/6304178/2025/04/24/vinicius-real-madrid-contract-saudi-future/
+
+**Bills' core-four special teams a need that should get attention at NFL Draft**\
+`Special teams are important and the Bills have lost major pieces in recent years.`\
+https://nytimes.com/athletic/6303424/2025/04/24/bills-nfl-draft-core-four-special-teams/
+
+**Watch: ‘What Having a Brother With Down Syndrome Has Taught Me About Everyone Else’**\
+`What does the video teach us about the meaning of ‘normal’?`\
+https://nytimes.com/2025/04/24/learning/watch-what-having-a-brother-with-down-syndrome-has-taught-me-about-everyone-else.html
+
+**The New York Times International Edition in Print for Friday, April 25, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/04/24/todays-new-york-times-international-edition
+
 **What we're hearing about the Patriots and the No. 4 pick ahead of the draft**\
 `Mike Vrabel has said he plans to build this team through the trenches and has hinted at a transformed roster. What will he do in the draft?`\
 https://nytimes.com/athletic/6302388/2025/04/24/nfl-draft-patriots-no-4-pick-campbell-higgins/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/04/24/opinion/trump-woke-free-speech.html
 **In L.A., a Young Family Wanted a House to Grow Into. Would $800,000 Be Enough? **\
 `Seeking more space for their growing children (and maybe a pool), a couple combed the San Fernando Valley for a single-family home they could afford. Here’s what they found.`\
 https://nytimes.com/interactive/2025/04/24/realestate/los-angeles-san-fernando-valley-homes.html
-
-**Why Greater Toronto Could Decide Who Wins Canada’s Election**\
-`The Conservatives had enjoyed a lead over Liberals in the region largely because of rising housing and food costs. But President Trump’s tariffs have shifted the equation.`\
-https://nytimes.com/2025/04/24/world/canada/canada-election-toronto.html
-
-**Lydia Polgreen on What’s Missing in Our Conversation About Immigration**\
-`And what happens when your country becomes a place people no longer want to come to.`\
-https://nytimes.com/2025/04/24/opinion/trump-immigration-first-100-days.html
-
-**Leaders of Mental Health Giant Promised Big Bonuses to Deal With Federal Investigations**\
-`Acadia Healthcare’s chief executive was awarded a $1.8 million bonus to respond to “unprecedented governmental inquiries” into allegations of holding psychiatric patients against their will.`\
-https://nytimes.com/2025/04/24/health/acadia-bonuses.html
-
-**5 Classical Music Albums You Can Listen to Right Now**\
-`An exceptional account of Bach’s Mass in B minor, traditional and unusual string quartets, and Thomas Adès suites are among the highlights.`\
-https://nytimes.com/2025/04/24/arts/music/classical-music-albums-april-2025.html
 
