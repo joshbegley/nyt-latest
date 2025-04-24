@@ -1,3 +1,15 @@
+**2025 NFL mock draft according to how the betting odds see it playing out**\
+`Austin Mock looks at how the first round of the 2025 NFL Draft would play out if the favorites in the betting market came in for every pick.`\
+https://nytimes.com/athletic/6305314/2025/04/24/2025-nfl-mock-draft-according-to-how-the-betting-odds-see-it-playing-out/
+
+**Finally, a Dirty Martini You Can Enjoy on a School Night**\
+`Classically booze-forward martinis may go down easy, but can make for a hard morning. This lower-alcohol version is a great alternative.`\
+https://nytimes.com/2025/04/24/dining/drinks/how-to-make-lower-abv-dirty-martini.html
+
+**Recipe Matchmaker, Part 2: Beans**\
+`You need easy, high-protein lunches and D.I.Y. dinners with the kids. I have chickpea-salad sandwiches and coconut-ginger black beans.`\
+https://nytimes.com/2025/04/24/dining/recipe-matchmaker-part-2-beans.html
+
 **Even Snacks Won’t Make Consumers Feel Better About the Economy**\
 `PepsiCo’s earnings call pointed to anxious consumers as to why sales had slowed, echoing comments made by Chipotle and Procter & Gamble.`\
 https://nytimes.com/2025/04/24/business/pepsico-earnings-economy-tariffs.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/24/arts/television/etoile-amy-sherman-palladino.html
 **Kennedy’s Dangerous Autism Claims**\
 `Readers, including some with autism, rebut Health Secretary Robert F. Kennedy Jr.’s statements. Also: President Trump vs. universities; Emanuel Ax’s plea.`\
 https://nytimes.com/2025/04/24/opinion/kennedy-autism.html
-
-**From Book Bans to Canceled Lectures, the Naval Academy Is Bending to Trump**\
-`Even before the presidential election, the school began preparing for Donald Trump’s potential return to power. Now faculty members are resigning in protest.`\
-https://nytimes.com/2025/04/24/us/politics/naval-academy-trump.html
-
-**The Bounce: Butler fall might change everything**\
-`The Bounce Newsletter  | This is The Athletic’s daily NBA newsletter.`\
-https://nytimes.com/athletic/6305536/2025/04/24/jimmy-butler-injury-warriors-rockets-the-bounce/
-
-**Judge Orders Administration to Seek Return of Another Deported Migrant**\
-`The case, involving a 20-year-old Venezuelan, comes on the heels of another legal battle over the fate of a different man wrongfully sent to El Salvador by the Trump administration.`\
-https://nytimes.com/2025/04/24/us/politics/deported-migrant-el-salvador-trump.html
 

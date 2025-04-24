@@ -1,3 +1,7 @@
+**Even Snacks Won’t Make Consumers Feel Better About the Economy**\
+`PepsiCo’s earnings call pointed to anxious consumers as to why sales had slowed, echoing comments made by Chipotle and Procter & Gamble.`\
+https://nytimes.com/2025/04/24/business/pepsico-earnings-economy-tariffs.html
+
 **Gunman Who Opened Fire on a Parade Gets Seven Life Sentences**\
 `The man fired from a rooftop during a Fourth of July celebration in a Chicago suburb three years ago. The judge called the gunman “irretrievably depraved.”`\
 https://nytimes.com/2025/04/24/us/highland-park-shooting-sentencing.html
