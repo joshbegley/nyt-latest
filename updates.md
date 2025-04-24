@@ -1,3 +1,7 @@
+**Kristi Noem’s Handbag Was Snatched From Beneath Her Chair, D.H.S. Says**\
+`Ms. Noem “could feel this person as they snatched her bag,” a spokeswoman for the Department of Homeland Security said.`\
+https://nytimes.com/2025/04/24/us/politics/kristi-noem-handbag-stolen.html
+
 **Ask Ornstein Q&A: Our football insider answers your questions**\
 `Here is your opportunity to ask David Ornstein anything you want about the world of football`\
 https://nytimes.com/athletic/6304371/2025/04/24/ask-ornstein-qa-our-football-insider-answers-your-questions-25/
