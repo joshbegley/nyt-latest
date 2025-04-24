@@ -1,3 +1,7 @@
+**Astros' ghosts of an awful April are gone: 'It's a great feeling'**\
+`After an abysmal start last year, the Astros are riding stellar pitching and small ball to a winning record.`\
+https://nytimes.com/athletic/6303934/2025/04/24/houston-astros-pitching-hitting-good-start/
+
 **Hegseth Set Up Signal on a Computer in His Pentagon Office**\
 `The app facilitated communications in a building where cell service is poor and personal phones are not allowed in some areas.`\
 https://nytimes.com/2025/04/24/us/politics/hegseth-signal-pentagon.html
