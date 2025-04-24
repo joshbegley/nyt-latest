@@ -1,3 +1,15 @@
+**Masahiro Shinoda, Leading Light of Japan’s New Wave Cinema, Dies at 94**\
+`His films tapped into the fantasies of disgruntled youth by embracing brazen sexuality and countercultural politics. But unlike his peers, he did not shun tradition.`\
+https://nytimes.com/2025/04/24/movies/masahiro-shinoda-dead.html
+
+**Rivalries are vital to sports. Fortunately, NWSL is full of them**\
+`More than a decade in, the NWSL is embracing rivalries as a way to bring in more fans and increase entertainment`\
+https://nytimes.com/athletic/6303533/2025/04/24/nwsl-soccer-rivalry-washington-spirit-gotham/
+
+**Britain Lifts Sanctions on Syrian Security Agencies**\
+`The move, which is intended to allow Syria’s new leaders the chance to rebuild, follows Britain’s earlier easing of sanctions on Syrian energy companies and the central bank.`\
+https://nytimes.com/2025/04/24/world/middleeast/britain-lifts-sanctions-syria.html
+
 **Child Health Experts With Diversity Roles Will Be Fired or Reassigned**\
 `The moves are aimed at eliminating diversity, equity and inclusion efforts and environmental justice programs at the E.P.A., Trump administration officials say.`\
 https://nytimes.com/2025/04/24/climate/child-health-experts-epa-fired.html

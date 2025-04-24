@@ -1,3 +1,7 @@
+**Who’s a Carthaginian? Genetic Study Revises Ancestry of Rome’s Ancient Nemesis**\
+`The inhabitants of Carthage were long thought to have derived from Levantine Phoenicians. But an eight-year study suggests they were more closely related to Greeks.`\
+https://nytimes.com/2025/04/24/science/archaeology-genetics-carthage-phoenician.html
+
 **Masahiro Shinoda, Leading Light of Japan’s New Wave Cinema, Dies at 94**\
 `His films tapped into the fantasies of disgruntled youth by embracing brazen sexuality and countercultural politics. But unlike his peers, he did not shun tradition.`\
 https://nytimes.com/2025/04/24/movies/masahiro-shinoda-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/24/dining/recipe-matchmaker-part-2-beans.html
 **Even Snacks Won’t Make Consumers Feel Better About the Economy**\
 `PepsiCo’s earnings call pointed to anxious consumers as to why sales had slowed, echoing comments made by Chipotle and Procter & Gamble.`\
 https://nytimes.com/2025/04/24/business/pepsico-earnings-economy-tariffs.html
-
-**Gunman Who Opened Fire on a Parade Gets Seven Life Sentences**\
-`The man fired from a rooftop during a Fourth of July celebration in a Chicago suburb three years ago. The judge called the gunman “irretrievably depraved.”`\
-https://nytimes.com/2025/04/24/us/highland-park-shooting-sentencing.html
 

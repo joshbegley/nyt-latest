@@ -1,3 +1,15 @@
+**Masahiro Shinoda, Leading Light of Japan’s New Wave Cinema, Dies at 94**\
+`His films tapped into the fantasies of disgruntled youth by embracing brazen sexuality and countercultural politics. But unlike his peers, he did not shun tradition.`\
+https://nytimes.com/2025/04/24/movies/masahiro-shinoda-dead.html
+
+**Rivalries are vital to sports. Fortunately, NWSL is full of them**\
+`More than a decade in, the NWSL is embracing rivalries as a way to bring in more fans and increase entertainment`\
+https://nytimes.com/athletic/6303533/2025/04/24/nwsl-soccer-rivalry-washington-spirit-gotham/
+
+**Britain Lifts Sanctions on Syrian Security Agencies**\
+`The move, which is intended to allow Syria’s new leaders the chance to rebuild, follows Britain’s earlier easing of sanctions on Syrian energy companies and the central bank.`\
+https://nytimes.com/2025/04/24/world/middleeast/britain-lifts-sanctions-syria.html
+
 **Child Health Experts With Diversity Roles Will Be Fired or Reassigned**\
 `The moves are aimed at eliminating diversity, equity and inclusion efforts and environmental justice programs at the E.P.A., Trump administration officials say.`\
 https://nytimes.com/2025/04/24/climate/child-health-experts-epa-fired.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/24/business/pepsico-earnings-economy-tariffs.html
 **Gunman Who Opened Fire on a Parade Gets Seven Life Sentences**\
 `The man fired from a rooftop during a Fourth of July celebration in a Chicago suburb three years ago. The judge called the gunman “irretrievably depraved.”`\
 https://nytimes.com/2025/04/24/us/highland-park-shooting-sentencing.html
-
-**7 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2025/04/24/books/review/new-books-recommendations.html
-
-**Thompson: Against the aggressive Rockets, Warriors' hopes rest on solving a familiar problem**\
-`Steph Curry loves to burn the Rockets. But he needs help, and in Wednesday's Game 2, the Warriors had none to give.`\
-https://nytimes.com/athletic/6305232/2025/04/24/warriors-rockets-playoffs-stephen-curry-solution-game-2/
-
-**Media rights expert set to be named English football regulator chair**\
-`Kogan has emerged as the government’s preferred candidate in recent weeks largely thanks to the support of Prime Minister Sir Keir Starmer.`\
-https://nytimes.com/athletic/6305496/2025/04/24/david-kogan-football-independent-regulator/
 
