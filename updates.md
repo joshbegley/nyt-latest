@@ -1,3 +1,15 @@
+**A Very Peppery Stir-Fry (That’s Not Too Spicy)**\
+`Zainab Shah’s beef and shishito stir-fry gets plenty of oomph from a quick soy marinade and a hefty dose of black pepper.`\
+https://nytimes.com/2025/04/24/dining/a-very-peppery-stir-fry-thats-not-too-spicy.html
+
+**These Apes Are Matriarchal, but It Doesn’t Mean They’re Peaceful**\
+`Females reign supreme in bonobo society by working together to keep males in their place.`\
+https://nytimes.com/2025/04/24/science/bonobos-matriarchies-females.html
+
+**‘Hold Me in the Water’ Review: Smitten, and Primed to Flirt**\
+`Ryan J. Haddad follows up his Obie-winning “Dark Disabled Stories” with a rom-com.`\
+https://nytimes.com/2025/04/24/theater/hold-me-in-the-water-review.html
+
 **Overlooked Letter Rewrites History of Shakespeare’s Bad Marriage**\
 `New research undermines the traditional view that Shakespeare was a distant, neglectful husband to his wife, Anne.`\
 https://nytimes.com/2025/04/24/world/europe/shakespeare-wife-anne-hathaway.html
