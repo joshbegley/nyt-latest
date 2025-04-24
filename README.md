@@ -1,3 +1,7 @@
+**Publisher of PCMag and Mashable Sues OpenAI**\
+`Ziff Davis, which owns more than 45 media properties, is accusing the tech company of infringing on the publisher’s copyrights and diluting its trademarks.`\
+https://nytimes.com/2025/04/24/business/media/ziff-davis-openai-lawsuit.html
+
 **Alphabet Reports 12% Increase in Revenue**\
 `Google’s parent company, which is battling the government to stay intact after losing two antitrust cases, also said quarterly profit rose 46 percent.`\
 https://nytimes.com/2025/04/24/technology/google-alphabet-earnings.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6305867/2025/04/24/shannon-sharpe-steps-away-espn-r
 **‘Game Changer’ Is a Fun and Unpredictable Game Show**\
 `Now in its seventh season, the show puts its comedian contestants through a weird and wide-ranging variety of funny and endearing challenges.`\
 https://nytimes.com/2025/04/24/arts/television/game-changer-dropout.html
-
-**Yep. Right on. Forsooth. Word. Mm-Hmm. Shupp?**\
-`If there’s one thing we can agree on, it’s that we have many ways to agree.`\
-https://nytimes.com/2025/04/24/opinion/yep-agree-language-dialects.html
 
