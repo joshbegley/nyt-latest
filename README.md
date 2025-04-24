@@ -1,3 +1,8 @@
+**Premier League top five odds update: Newcastle on the up, Chelsea living on the edge**\
+`Brett Koremenos has a look at this week’s Premier League top five odds ahead of the next round of games. 
+`\
+https://nytimes.com/athletic/6304401/2025/04/24/premier-league-top-five-odds-update-predictions/
+
 **Copa del Rey final odds: Barça to make it three straight Clásico wins?**\
 `Sam Tighe explores the best bets to wager on ahead of this Saturday’s Copa del Rey final between Barcelona and Real Madrid. 
 `\
@@ -34,8 +39,4 @@ https://nytimes.com/athletic/6302266/2025/04/24/shedeur-sanders-nfl-draft-stock-
 **How do prospects decide whether to attend the NFL Draft? It’s complicated**\
 `Nobody wants to wind up like Will Levis, sliding out of Round 1 while the world watches, but there are many other factors to consider.`\
 https://nytimes.com/athletic/6302933/2025/04/24/nfl-draft-2025-green-room-prospects/
-
-**Bears NFL Draft hub: Picks, grades, fits and scouting reports**\
-`The Bears have seven picks in the NFL Draft, including three of the top 41, but it's anyone's guess what they'll do with the 10th pick.`\
-https://nytimes.com/athletic/6302344/2025/04/24/bears-nfl-draft-picks-2025-grades-scouting-reports/
 
