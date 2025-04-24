@@ -1,3 +1,11 @@
+**The Cubs are creating an environment where Pete Crow-Armstrong is thriving**\
+`As measured by OPS+, Crow-Armstrong’s production, so far, is 48 percent better than the major-league average.`\
+https://nytimes.com/athletic/6305905/2025/04/24/cubs-pete-crow-armstrong-thriving/
+
+**Israel Acknowledges Second Deadly Attack on Aid Workers in Gaza**\
+`In a rare apology to the United Nations, Israel said its forces had struck a U.N. compound in Gaza with tank fire. A Bulgarian aid worker was killed.`\
+https://nytimes.com/2025/04/24/world/middleeast/israel-gaza-aid-workers-deaths.html
+
 **First-round pick Carter Yakemchuk joins Senators for rest of playoffs**\
 `The No. 7 pick in the 2024 draft is expected to be in attendance for Game 3 against Toronto.`\
 https://nytimes.com/athletic/6305882/2025/04/24/senators-carter-yakemchuk-nhl-playoffs/
