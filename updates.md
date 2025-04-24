@@ -1,3 +1,7 @@
+**Kopitar has 4 points in Kings' blowout Game 2 win over Oilers**\
+`The Kings once again jumped out to an early lead and head to Edmonton up 2-0 in the series.`\
+https://nytimes.com/athletic/6290489/2025/04/24/oilers-kings-nhl-playoffs-2025-game-2-takeaways/
+
 **This was an unserious performance from Arsenal. All eyes are fixed on PSG**\
 `It was no surprise that the Champions League semi-final had an impression on events. Arsenal have six days to reset, refresh and prepare`\
 https://nytimes.com/athletic/6303264/2025/04/24/arsenal-palace-analysis-arteta-psg/
