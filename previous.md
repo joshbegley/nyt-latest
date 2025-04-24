@@ -1,3 +1,7 @@
+**Sign Up for the Book Review’s First-Ever Challenge**\
+`(It’s about poetry. And you’ll love it.)`\
+https://nytimes.com/interactive/2025/04/24/books/book-review-poetry-challenge-sign-up.html
+
 **Tens of Thousands Line Up to Honor Pope Francis**\
 `More than 60,000 people have paid their respects to the late pope’s body in St. Peter’s Basilica since Wednesday, according to the Vatican. The church stayed open until 5:30 a.m. on Thursday and reopened at 7 a.m. as thousands more lined up to file past his coffin.`\
 https://nytimes.com/video/world/europe/100000010127973/worshipers-line-up-to-honor-pope-francis.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/24/science/archaeology-genetics-carthage-phoenician.
 **Masahiro Shinoda, Leading Light of Japan’s New Wave Cinema, Dies at 94**\
 `His films tapped into the fantasies of disgruntled youth by embracing brazen sexuality and countercultural politics. But unlike his peers, he did not shun tradition.`\
 https://nytimes.com/2025/04/24/movies/masahiro-shinoda-dead.html
-
-**Rivalries are vital to sports. Fortunately, NWSL is full of them**\
-`More than a decade in, the NWSL is embracing rivalries as a way to bring in more fans and increase entertainment`\
-https://nytimes.com/athletic/6303533/2025/04/24/nwsl-soccer-rivalry-washington-spirit-gotham/
 

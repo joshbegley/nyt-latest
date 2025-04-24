@@ -1,3 +1,7 @@
+**Sign Up for the Book Review’s First-Ever Challenge**\
+`(It’s about poetry. And you’ll love it.)`\
+https://nytimes.com/interactive/2025/04/24/books/book-review-poetry-challenge-sign-up.html
+
 **Tens of Thousands Line Up to Honor Pope Francis**\
 `More than 60,000 people have paid their respects to the late pope’s body in St. Peter’s Basilica since Wednesday, according to the Vatican. The church stayed open until 5:30 a.m. on Thursday and reopened at 7 a.m. as thousands more lined up to file past his coffin.`\
 https://nytimes.com/video/world/europe/100000010127973/worshipers-line-up-to-honor-pope-francis.html
