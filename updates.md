@@ -1,3 +1,11 @@
+**Where the Menu Is Always Changing**\
+`These three restaurants don’t stick to the script, and it makes them worth visiting again and again.`\
+https://nytimes.com/2025/04/24/dining/where-the-menu-is-always-changing.html
+
+**Why ‘Vladimir, STOP!’ Won’t Stop Vladimir**\
+`On Wednesday Trump complained about Zelensky. On Thursday, Putin. The two messages illustrate why he’s struggling to end the war.`\
+https://nytimes.com/2025/04/24/opinion/ukraine-russia-puin-kyiv-trump.html
+
 **Andrea Nevins, Who Turned Offbeat Subjects Into Moving Films, Dies at 63**\
 `Her documentaries, one of which received an Oscar nomination, explored subjects like punk-rock dads and Barbie dolls.`\
 https://nytimes.com/2025/04/24/movies/andrea-nevins-dead.html

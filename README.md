@@ -1,3 +1,11 @@
+**Parts of Texas at Risk of Tornadoes and Hail as Large as Baseballs Today**\
+`The severe weather is typical for this time of year but also unpredictable.`\
+https://nytimes.com/2025/04/24/weather/texas-tornadoes-hail-storm-rain.html
+
+**Congo Reverses Course and Agrees to Cease ‘Hostilities’ With M23**\
+`Felix Tshisekedi of Congo had long said his country would not negotiate with the Rwanda-backed militia, making the joint agreement a rare bright spot in the conflict.`\
+https://nytimes.com/2025/04/24/world/africa/congo-rwanda-m23-war.html
+
 **Where the Menu Is Always Changing**\
 `These three restaurants don’t stick to the script, and it makes them worth visiting again and again.`\
 https://nytimes.com/2025/04/24/dining/where-the-menu-is-always-changing.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6305816/2025/04/24/college-football-playoff-meeting
 **Why ‘Vladimir, STOP!’ Won’t Stop Vladimir**\
 `On Wednesday Trump complained about Zelensky. On Thursday, Putin. The two messages illustrate why he’s struggling to end the war.`\
 https://nytimes.com/2025/04/24/opinion/ukraine-russia-puin-kyiv-trump.html
-
-**Robert S. Douglas, Founder of The Black Dog, Dies at 93**\
-`The logo for his tavern on Martha’s Vineyard transformed a black Labrador into an international emblem for summertime.`\
-https://nytimes.com/2025/04/24/obituaries/robert-douglas-dead-black-dog.html
-
-**Leonard Zeskind, Who Foresaw the Rise of White Nationalism, Dies at 75**\
-`With “Blood and Politics,” he predicted that anti-immigrant ideologies would become part of mainstream American politics, and warned about downplaying the threat.`\
-https://nytimes.com/2025/04/24/us/politics/leonard-zeskind-dead.html
 
