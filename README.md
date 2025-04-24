@@ -1,3 +1,7 @@
+**Fantasy baseball bullpen report featuring concerns about Emmanuel Clase and Ryan Walker**\
+`Greg Jewett talks concerns about Emmanuel Clase and Ryan Walker, while providing relievers on the rise to target. `\
+https://nytimes.com/athletic/6305565/2025/04/24/fantasy-baseball-bullpen-report-emmanuel-clase/
+
 **Killer of Gucci Heir Is Arrested on Suspicion of Shooting His Own Son**\
 `Benedetto Ceraulo, who in 1995 killed Maurizio Gucci, the heir to the fashion house, was suspected of shooting his son over a scratch on a car, Italian police said.`\
 https://nytimes.com/2025/04/24/world/europe/italy-gucci-killer-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6305820/2025/04/24/swin-cash-departing-pelicans-fro
 **How baseball hats became a key element of the NFL Draft**\
 `The draft hat has become a symbol of new beginnings`\
 https://nytimes.com/athletic/6305504/2025/04/24/nfl-draft-hats-new-era/
-
-**U.S. Officials to Cut Funding for Landmark Study of Women’s Health**\
-`The Women’s Health Initiative has produced thousands of research papers, altering medical care for patients around the world.`\
-https://nytimes.com/2025/04/24/health/womens-health-initiative-cuts.html
 
