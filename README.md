@@ -1,3 +1,7 @@
+**NBA playoff takeaways: Celtics take 2-0 series lead over Magic**\
+`The series heads to Orlando for Game 3 on Friday.`\
+https://nytimes.com/athletic/6303566/2025/04/23/nba-playoff-celtics-magic-cavaliers-heat-warriors-rockets-scores-takeaways/
+
 **Capitals outlast Canadiens again to take 2-0 series lead: Takeaways**\
 `For the second straight game, the Canadiens mounted a third-period push on the Eastern Conference's top seed. Again, it wasn't enough.`\
 https://nytimes.com/athletic/6303409/2025/04/23/canadiens-capitals-nhl-playoffs-2025-game-2-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6303301/2025/04/23/phillies-adversity-25-games-seas
 **Will the Wild scratch Buium or Bogosian for Game 3? Changes could be coming**\
 `Coach John Hynes hinted that he might want to "give a player a break" given the quick turnaround between the next two games.`\
 https://nytimes.com/athletic/6303328/2025/04/23/wild-golden-knights-game-3-lineup/
-
-**Yankees takeaways: Can Aaron Judge keep up his 'incredible' pace? Clubhouse vibes are high**\
-`"Right now, he's like Tony Gwynn," Carlos Rodón said of Judge. "Next week, he'll probably be like Hank Aaron."`\
-https://nytimes.com/athletic/6303179/2025/04/23/yankees-guardians-takeaways-aaron-judge-clubhouse-vibes-high/
 
