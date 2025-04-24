@@ -1,3 +1,7 @@
+**Leonard Zeskind, Who Foresaw the Rise of White Nationalism, Dies at 75**\
+`With “Blood and Politics,” he predicted that anti-immigrant ideologies would become part of mainstream American politics, and warned about downplaying the threat.`\
+https://nytimes.com/2025/04/24/us/politics/leonard-zeskind-dead.html
+
 **Trump Directs Sons to Fire Trump Org. Lawyer Because of Harvard Ties**\
 `The move to dismiss William A. Burck underscored both the entanglements between Mr. Trump’s presidency and company and the degree to which he will look to target people he believes have wronged him.`\
 https://nytimes.com/2025/04/24/us/politics/trump-organization-lawyer-burck.html
