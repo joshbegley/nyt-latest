@@ -1,3 +1,7 @@
+**How India’s Threat to Block Rivers Could Devastate Pakistan**\
+`After a militant attack in Kashmir, the Indian government said it was suspending its participation in a treaty that governs most of the water used in Pakistani agriculture.`\
+https://nytimes.com/2025/04/24/world/asia/india-pakistan-indus-waters-treaty.html
+
 **Who’s a Carthaginian? Genetic Study Revises Ancestry of Rome’s Ancient Nemesis**\
 `The inhabitants of Carthage were long thought to have derived from Levantine Phoenicians. But an eight-year study suggests they were more closely related to Greeks.`\
 https://nytimes.com/2025/04/24/science/archaeology-genetics-carthage-phoenician.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/24/dining/drinks/how-to-make-lower-abv-dirty-martini
 **Recipe Matchmaker, Part 2: Beans**\
 `You need easy, high-protein lunches and D.I.Y. dinners with the kids. I have chickpea-salad sandwiches and coconut-ginger black beans.`\
 https://nytimes.com/2025/04/24/dining/recipe-matchmaker-part-2-beans.html
-
-**Even Snacks Won’t Make Consumers Feel Better About the Economy**\
-`PepsiCo’s earnings call pointed to anxious consumers as to why sales had slowed, echoing comments made by Chipotle and Procter & Gamble.`\
-https://nytimes.com/2025/04/24/business/pepsico-earnings-economy-tariffs.html
 
