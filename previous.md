@@ -1,3 +1,7 @@
+**Who should win Defensive Player of the Year? We asked NBA coaches**\
+`Dyson Daniels, Draymond Green and Evan Mobley are the finalists for the award. But who should win it, in the eyes of the league's coaches?`\
+https://nytimes.com/athletic/6304158/2025/04/24/nba-anonymous-coaches-poll-defensive-player-of-the-year-dyson-daniels-draymond-green/
+
 **Dabo Swinney predicts CFB super league 'sooner rather than later'**\
 `Swinney has been outspoken in recent years against what he sees as the professionalization of college sports.`\
 https://nytimes.com/athletic/6303808/2025/04/24/dabo-swinney-college-football-super-league-clemson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6302036/2025/04/24/ravens-nfl-draft-picks-2025-grad
 **As Battle of Ontario travels to Ottawa, which fans will dominate the crowd?**\
 `Leafs fans tend to travel well to the Canadian Tire Centre. The Senators are trying to stop that from happening.`\
 https://nytimes.com/athletic/6303354/2025/04/24/battle-of-ontario-ottawa-tickets-leafs-nhl-playoffs/
-
-**Notable NFL Draft slides, from Aaron Rodgers to Will Levis**\
-`Will Colorado QB Shedeur Sanders be a top-10 pick, get taken in the top-20 or could he slide to the second round? `\
-https://nytimes.com/athletic/6302004/2025/04/24/notable-nfl-draft-slides-aaron-rodgers-will-levis/
 

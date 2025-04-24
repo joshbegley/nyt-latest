@@ -1,3 +1,7 @@
+**Who should win Defensive Player of the Year? We asked NBA coaches**\
+`Dyson Daniels, Draymond Green and Evan Mobley are the finalists for the award. But who should win it, in the eyes of the league's coaches?`\
+https://nytimes.com/athletic/6304158/2025/04/24/nba-anonymous-coaches-poll-defensive-player-of-the-year-dyson-daniels-draymond-green/
+
 **Dabo Swinney predicts CFB super league 'sooner rather than later'**\
 `Swinney has been outspoken in recent years against what he sees as the professionalization of college sports.`\
 https://nytimes.com/athletic/6303808/2025/04/24/dabo-swinney-college-football-super-league-clemson/
