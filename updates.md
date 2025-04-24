@@ -1,3 +1,7 @@
+**Ashton Jeanty to the Bears rumors are swirling, and betting odds are on the move**\
+`Is there a trade brewing? Ashton Jeanty's odds of being the fifth pick and of him landing on the Bears shifted drastically Thursday.`\
+https://nytimes.com/athletic/6305982/2025/04/24/ashton-jeanty-bears-betting-odds/
+
 **Live Q&A: Talking fantasy football and the 2025 NFL Draft with Jake Ciely at 6 p.m. ET**\
 `Jake Ciely answers all your pre-NFL Draft fantasy football questions in a live Q&A, exclusive for The Athletic subscribers.`\
 https://nytimes.com/athletic/6306066/2025/04/24/live-qa-talking-fantasy-football-and-the-2025-nfl-draft-with-jake-ciely-on-friday-4-24-at-6-p-m-et/
