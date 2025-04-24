@@ -1,3 +1,7 @@
+**Lawyer Is Charged With Sadistic Rapes of Women He Met Online**\
+`Ryan Hemphill was arraigned Thursday afternoon on a 116-count indictment. Authorities say he tortured, drugged and filmed women in his Midtown apartment.`\
+https://nytimes.com/2025/04/24/nyregion/lawyer-rape-charges-manhattan.html
+
 **The Cubs are creating an environment where Pete Crow-Armstrong is thriving**\
 `As measured by OPS+, Crow-Armstrong’s production, so far, is 48 percent better than the major-league average.`\
 https://nytimes.com/athletic/6305905/2025/04/24/cubs-pete-crow-armstrong-thriving/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/24/opinion/trump-administration-energy-strength-weak
 **Publisher of PCMag and Mashable Sues OpenAI**\
 `Ziff Davis, which owns more than 45 media properties, is accusing the tech company of infringing on the publisher’s copyrights and diluting its trademarks.`\
 https://nytimes.com/2025/04/24/business/media/ziff-davis-openai-lawsuit.html
-
-**Alphabet Reports 12% Increase in Revenue**\
-`Google’s parent company, which is battling the government to stay intact after losing two antitrust cases, also said quarterly profit rose 46 percent.`\
-https://nytimes.com/2025/04/24/technology/google-alphabet-earnings.html
 
