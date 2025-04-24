@@ -1,3 +1,19 @@
+**Thursday Briefing: Trump Lashes Out at Zelensky**\
+`Plus, the perfect pour-over coffee.`\
+https://nytimes.com/2025/04/24/briefing/trump-zelensky-syria-the-pope-lies-in-state.html
+
+**The New York Times in Print for Thursday, April 24, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/24/todays-new-york-times
+
+**A Beleaguered Hegseth Wanders Into His Forever War**\
+`The operation in Yemen has sent the Trump administration into an exorbitant, potentially escalatory spiral.`\
+https://nytimes.com/2025/04/24/opinion/pete-hegseth-yemen.html
+
+**Kopitar has 4 points in Kings' blowout Game 2 win over Oilers**\
+`The Kings once again jumped out to an early lead and now head to Edmonton up 2-0 in the series.`\
+https://nytimes.com/athletic/6290489/2025/04/24/oilers-kings-nhl-playoffs-2025-game-2-takeaways/
+
 **Astros' ghosts of an awful April are gone: 'It's a great feeling'**\
 `After an abysmal start last year, the Astros are riding stellar pitching and small ball to a winning record.`\
 https://nytimes.com/athletic/6303934/2025/04/24/houston-astros-pitching-hitting-good-start/
