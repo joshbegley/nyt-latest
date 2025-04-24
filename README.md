@@ -1,3 +1,7 @@
+**Lawyer for New York Attorney General Blasts Trump for ‘Retribution’**\
+`The lawyer, Abbe Lowell, told the Justice Department that allegations against Attorney General Letitia James related to property she owns lacked “any credible foundation.”`\
+https://nytimes.com/2025/04/24/nyregion/ny-attorney-general-letter-justice-department.html
+
 **U.S. Urges Japan and South Korea to Commit to $44 Billion Alaska Gas Project**\
 `A group advising President Trump on energy policy is seeking meetings with Japan and South Korea’s trade ministries, with the hope of announcing progress in early June.`\
 https://nytimes.com/2025/04/24/business/alaska-lng-japan-south-korea.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/24/arts/design/8-standouts-at-the-aipad-photography-
 **Student Stabs 4 Others, One Fatally, at a French High School**\
 `The motive was unclear for the attack, which occurred at a time of heightened concern in France about knife attacks in schools.`\
 https://nytimes.com/2025/04/24/world/europe/french-school-knife-attack.html
-
-**Saying ‘Thank You’ to Chat GPT Is Costly. But Maybe It’s Worth the Price.**\
-`Adding words to our chatbot can apparently cost tens of millions of dollars. But some fear the cost of not saying please or thank you could be higher.`\
-https://nytimes.com/2025/04/24/technology/chat-gpt-alexa-please-thank-you.html
 
