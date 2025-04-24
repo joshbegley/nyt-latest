@@ -6,8 +6,8 @@ https://nytimes.com/athletic/6303649/2025/04/23/tony-oliva-kent-hrbek-strokes-mi
 `Kathleen Duncan makes her New York Times Crossword debut.`\
 https://nytimes.com/2025/04/23/crosswords/daily-puzzle-2025-04-24.html
 
-**NBA playoff takeaways: Celtics take 2-0 series lead over Magic**\
-`The series heads to Orlando for Game 3 on Friday.`\
+**NBA playoff takeaways: Cavaliers escape Heat; Celtics dominate Magic**\
+`Celtics-Magic heads to Orlando for Game 3 on Friday, while Cavaliers-Heat resumes in Miami on Saturday.`\
 https://nytimes.com/athletic/6303566/2025/04/23/nba-playoff-celtics-magic-cavaliers-heat-warriors-rockets-scores-takeaways/
 
 **Capitals outlast Canadiens again to take 2-0 series lead: Takeaways**\

@@ -1,3 +1,7 @@
+**NBA playoff takeaways: Cavaliers escape Heat; Celtics dominate Magic**\
+`Celtics-Magic heads to Orlando for Game 3 on Friday, while Cavaliers-Heat resumes in Miami on Saturday.`\
+https://nytimes.com/athletic/6303566/2025/04/23/nba-playoff-celtics-magic-cavaliers-heat-warriors-rockets-scores-takeaways/
+
 **Twins greats Tony Oliva, Kent Hrbek recovering after recent strokes**\
 `Oliva, 86, and Hrbek, 64, are recovering after each suffered a stroke in the past month, a team official confirmed Wednesday night.`\
 https://nytimes.com/athletic/6303649/2025/04/23/tony-oliva-kent-hrbek-strokes-minnesota-twins/
