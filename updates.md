@@ -1,3 +1,11 @@
+**At Least 9 Dead in Russian Airstrikes on Kyiv, Ukrainian Officials Say**\
+`The overnight assault on Ukraine’s capital was the deadliest since last summer, and comes as the United States has threatened to walk away from the peace process.`\
+https://nytimes.com/2025/04/24/world/europe/ukraine-russia-missiles-airstrikes.html
+
+**Deadly Airstrikes Hit Ukraine’s Capital**\
+`The deadly overnight attack damaged buildings in Kyiv and killed at least nine people, officials said.`\
+https://nytimes.com/video/world/europe/100000010127811/ukraine-kyiv-russia-strike.html
+
 **Jaylen Brown showcases 'warrior mentality' in Celtics' Game 2 win**\
 `Brown delivered a reassuring 36 points, 10 rebounds and five assists in the Celtics' 109-100 win over the Magic. `\
 https://nytimes.com/athletic/6304117/2025/04/24/celtics-beat-magic-game-2-jaylen-brown/
