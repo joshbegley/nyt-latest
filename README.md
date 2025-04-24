@@ -18,7 +18,7 @@ https://nytimes.com/2025/04/24/nyregion/ny-attorney-general-letter-justice-depar
 `A group advising President Trump on energy policy is seeking meetings with Japan and South Korea’s trade ministries, with the hope of announcing progress in early June.`\
 https://nytimes.com/2025/04/24/business/alaska-lng-japan-south-korea.html
 
-**Travis Sanheim's, Travis Konecny's second-half sags 'something that has to get fixed'**\
+**Travis Sanheim's, Travis Konecny's second-half slumps must 'get fixed'**\
 `Sanheim and Konecny started the season strong but began to wobble just past the midway point. Both assessed their performances last week.`\
 https://nytimes.com/athletic/6305039/2025/04/24/flyers-travis-sanheim-travis-konecny/
 
