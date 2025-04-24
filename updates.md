@@ -1,3 +1,11 @@
+**Jaylen Brown showcases 'warrior mentality' in Celtics' Game 2 win**\
+`Brown delivered a reassuring 36 points, 10 rebounds and five assists in the Celtics' 109-100 win over the Magic. `\
+https://nytimes.com/athletic/6304117/2025/04/24/celtics-beat-magic-game-2-jaylen-brown/
+
+**What I liked and didn't like from the Magic's Game 2 loss to the Celtics**\
+`The Magic's elite defense depends on physicality. On Wednesday, their physicality worked against them. `\
+https://nytimes.com/athletic/6304090/2025/04/24/orlando-magic-playoffs-game-2-paolo-banchero-celtics/
+
 **Word of the Day: enshrine**\
 `This word has appeared in 128 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/04/24/learning/word-of-the-day-enshrine.html

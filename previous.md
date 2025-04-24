@@ -1,3 +1,11 @@
+**Jaylen Brown showcases 'warrior mentality' in Celtics' Game 2 win**\
+`Brown delivered a reassuring 36 points, 10 rebounds and five assists in the Celtics' 109-100 win over the Magic. `\
+https://nytimes.com/athletic/6304117/2025/04/24/celtics-beat-magic-game-2-jaylen-brown/
+
+**What I liked and didn't like from the Magic's Game 2 loss to the Celtics**\
+`The Magic's elite defense depends on physicality. On Wednesday, their physicality worked against them. `\
+https://nytimes.com/athletic/6304090/2025/04/24/orlando-magic-playoffs-game-2-paolo-banchero-celtics/
+
 **Word of the Day: enshrine**\
 `This word has appeared in 128 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/04/24/learning/word-of-the-day-enshrine.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/24/briefing/trump-zelensky-syria-the-pope-lies-in-st
 **The New York Times in Print for Thursday, April 24, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/04/24/todays-new-york-times
-
-**A Beleaguered Hegseth Wanders Into His Forever War**\
-`The operation in Yemen has sent the Trump administration into an exorbitant, potentially escalatory spiral.`\
-https://nytimes.com/2025/04/24/opinion/pete-hegseth-yemen.html
-
-**Kopitar has 4 points in Kings' blowout Game 2 win over Oilers**\
-`The Kings once again jumped out to an early lead and head to Edmonton up 2-0 in the series.`\
-https://nytimes.com/athletic/6290489/2025/04/24/oilers-kings-nhl-playoffs-2025-game-2-takeaways/
 
