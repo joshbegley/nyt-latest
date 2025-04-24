@@ -1,3 +1,7 @@
+**Interior Department to Fast-Track Oil, Gas and Mining Projects**\
+`The Trump administration plans to dramatically reduce environmental reviews before permitting drilling and mining projects on public lands and in federal waters.`\
+https://nytimes.com/2025/04/23/climate/interior-department-gas-and-mining-projects.html
+
 **Warriors' Jimmy Butler ruled out of Game 2 vs. Rockets with pelvic contusion**\
 `Butler fell on his tailbone area after being undercut in the air by Rockets forward Amen Thompson`\
 https://nytimes.com/athletic/6303793/2025/04/23/jimmy-butler-injury-pelvic-contusion-warriors-nba-playoffs/
