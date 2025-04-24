@@ -1,3 +1,19 @@
+**Thursday Briefing: Trump Lashes Out at Zelensky**\
+`Plus, the perfect pour-over coffee.`\
+https://nytimes.com/2025/04/24/briefing/trump-zelensky-syria-the-pope-lies-in-state.html
+
+**The New York Times in Print for Thursday, April 24, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/24/todays-new-york-times
+
+**A Beleaguered Hegseth Wanders Into His Forever War**\
+`The operation in Yemen has sent the Trump administration into an exorbitant, potentially escalatory spiral.`\
+https://nytimes.com/2025/04/24/opinion/pete-hegseth-yemen.html
+
+**Kopitar has 4 points in Kings' blowout Game 2 win over Oilers**\
+`The Kings once again jumped out to an early lead and now head to Edmonton up 2-0 in the series.`\
+https://nytimes.com/athletic/6290489/2025/04/24/oilers-kings-nhl-playoffs-2025-game-2-takeaways/
+
 **Astros' ghosts of an awful April are gone: 'It's a great feeling'**\
 `After an abysmal start last year, the Astros are riding stellar pitching and small ball to a winning record.`\
 https://nytimes.com/athletic/6303934/2025/04/24/houston-astros-pitching-hitting-good-start/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6303910/2025/04/24/logan-thompson-capitals-nhl-play
 **Everton and Moyes seem unconvinced by Alcaraz - he has five games to prove himself**\
 `The Argentinian would need to start Everton's five remaining games for their obligation to buy for €15m to be triggered. What will Moyes do?`\
 https://nytimes.com/athletic/6298993/2025/04/24/carlos-alcaraz-everton-david-moyes-transfer/
-
-**Forest don't need to sell Gibbs-White - even if Manchester City are keen**\
-`Manchester City are considering Morgan Gibbs-White as an option to replace De Bruyne - but Nottingham Forest don't have to sell`\
-https://nytimes.com/athletic/6301547/2025/04/24/forest-manchester-city-gibbs-white/
-
-**Twins get another 'good sign' as Royce Lewis nears start of rehab assignment**\
-`If Lewis arrives at the park in good shape Thursday, he potentially could begin a rehab assignment as soon as Friday.`\
-https://nytimes.com/athletic/6303896/2025/04/24/twins-royce-lewis-rehab-assignment/
-
-**The ultra-durable Jules Kounde and a remarkable 104-game run**\
-`Kounde was rested against Mallorca this week, bringing an end to a streak he had maintained since November 2023`\
-https://nytimes.com/athletic/6302147/2025/04/24/barcelona-jules-kounde-104-games/
-
-**Premier League Draft - Picking our best all-time XIs and then arguing about it**\
-`If you staged a draft in which every player who ever played in the Premier League was available, who would you choose - and in which order?`\
-https://nytimes.com/athletic/6301841/2025/04/24/premier-league-draft/
 
