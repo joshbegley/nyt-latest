@@ -1,3 +1,7 @@
+**What Elon Musk Didn’t Budget For: Firing Workers Costs Money, Too**\
+`An expert on the federal work force estimates that the speed and chaos of Mr. Musk’s cuts to the bureaucracy will cost taxpayers $135 billion this fiscal year.`\
+https://nytimes.com/2025/04/24/us/politics/musk-cuts.html
+
 **Parts of Texas at Risk of Tornadoes and Hail as Large as Baseballs Today**\
 `The severe weather is typical for this time of year but also unpredictable.`\
 https://nytimes.com/2025/04/24/weather/texas-tornadoes-hail-storm-rain.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/24/us/politics/judge-injuction-sanctuary-city-execut
 **College Football Playoff meetings wrap up with big questions unanswered**\
 `The biggest topics included a potential seeding change for 2025, possible expansion and format changes for 2026 and basic governance.`\
 https://nytimes.com/athletic/6305816/2025/04/24/college-football-playoff-meetings-big-ten-sec/
-
-**Why ‘Vladimir, STOP!’ Won’t Stop Vladimir**\
-`On Wednesday Trump complained about Zelensky. On Thursday, Putin. The two messages illustrate why he’s struggling to end the war.`\
-https://nytimes.com/2025/04/24/opinion/ukraine-russia-puin-kyiv-trump.html
 
