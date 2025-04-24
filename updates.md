@@ -1,3 +1,7 @@
+**With Jamie Vardy leaving Leicester, which club do you think he will join next and why?**\
+`The 38-year-old is leaving Leicester after a remarkable 13 years at the club, but where do you think he will go next?`\
+https://nytimes.com/athletic/6304755/2025/04/24/jamie-vardy-next-club/
+
 **How the Cardinals' latest bullpen collapse highlights deeper issues**\
 `The Cardinals want to give young players opportunities, but that's a tricky balance with struggling relievers.`\
 https://nytimes.com/athletic/6303237/2025/04/24/cardinals-collapse-mlb-ryan-fernandez/
