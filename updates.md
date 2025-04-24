@@ -1,3 +1,7 @@
+**What Elon Musk Didn’t Budget For: Firing Workers Costs Money, Too**\
+`An expert on the federal work force estimates that the speed and chaos of Mr. Musk’s cuts to the bureaucracy will cost taxpayers $135 billion this fiscal year.`\
+https://nytimes.com/2025/04/24/us/politics/musk-cuts.html
+
 **Parts of Texas at Risk of Tornadoes and Hail as Large as Baseballs Today**\
 `The severe weather is typical for this time of year but also unpredictable.`\
 https://nytimes.com/2025/04/24/weather/texas-tornadoes-hail-storm-rain.html
