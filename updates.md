@@ -1,3 +1,15 @@
+**Read Abbe Lowell’s Letter to the Justice Department**\
+`Abbe Lowell, who represents New York Attorney General Letitia James, wrote this letter to the Justice Department warning it not to attempt political retribution against her.`\
+https://nytimes.com/interactive/2025/04/24/us/nyag-james-letter-to-ag-bondi.html
+
+**A New Requirement for Oscar Voters: They Must Actually Watch the Films**\
+`The new rule, announced this week by the Academy of Motion Picture Arts and Sciences, was greeted with laughter and disbelief that it had not been required all along.`\
+https://nytimes.com/2025/04/24/movies/oscars-voting-rules.html
+
+**Read the Lawsuit From 12 States Over Trump Tariffs**\
+`States including New York, Illinois and Oregon sued to block the Trump administration from enforcing what they called were unlawful tariffs.`\
+https://nytimes.com/interactive/2025/04/24/us/states-tariffs-lawsuit-complaint.html
+
 **Watch: How the Rockets' physical play disrupted the Warriors in Game 2**\
 `"The Athletic NBA Daily" discussed the Rockets' crucial Game 2 win over the Warriors and debated whether the playoffs are too physical.`\
 https://nytimes.com/athletic/6304556/2025/04/24/nba-daily-playoffs-physical-jimmy-butler/

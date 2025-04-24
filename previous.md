@@ -1,3 +1,15 @@
+**Read Abbe Lowell’s Letter to the Justice Department**\
+`Abbe Lowell, who represents New York Attorney General Letitia James, wrote this letter to the Justice Department warning it not to attempt political retribution against her.`\
+https://nytimes.com/interactive/2025/04/24/us/nyag-james-letter-to-ag-bondi.html
+
+**A New Requirement for Oscar Voters: They Must Actually Watch the Films**\
+`The new rule, announced this week by the Academy of Motion Picture Arts and Sciences, was greeted with laughter and disbelief that it had not been required all along.`\
+https://nytimes.com/2025/04/24/movies/oscars-voting-rules.html
+
+**Read the Lawsuit From 12 States Over Trump Tariffs**\
+`States including New York, Illinois and Oregon sued to block the Trump administration from enforcing what they called were unlawful tariffs.`\
+https://nytimes.com/interactive/2025/04/24/us/states-tariffs-lawsuit-complaint.html
+
 **Watch: How the Rockets' physical play disrupted the Warriors in Game 2**\
 `"The Athletic NBA Daily" discussed the Rockets' crucial Game 2 win over the Warriors and debated whether the playoffs are too physical.`\
 https://nytimes.com/athletic/6304556/2025/04/24/nba-daily-playoffs-physical-jimmy-butler/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/24/t-magazine/paris-hotel-la-fondation.html
 **Norwegian athletes warned against eating meat in China over drug test fears**\
 `Clenbuterol can increase metabolism and maximum heart rate, and is listed by the World Anti-Doping Agency (WADA) as a prohibitive substance.`\
 https://nytimes.com/athletic/6304722/2025/04/24/norway-athletics-meat-china-doping/
-
-**Review: As New York’s Opera Scene Empties, Another Rises Upstate**\
-`R.B. Schlather’s vibrant staging of Handel’s “Giulio Cesare,” playing in the Hudson Valley, is a bright spot in a bleak landscape for Baroque work.`\
-https://nytimes.com/2025/04/24/arts/music/opera-giulio-cesare-hudson-hall-review.html
-
-**They Caught the Flu, and Never Came Home**\
-`The virus leads to an estimated 36,000 deaths in the United States each season — many of them so sudden that families are left reeling.`\
-https://nytimes.com/2025/04/24/well/flu-deaths-hospitalizations.html
-
-**49ers NFL Draft hub: Picks, grades, fits and scouting reports**\
-`Keep coming back throughout the draft for grades and expert analysis of each 49ers pick.`\
-https://nytimes.com/athletic/6299432/2025/04/24/49ers-nfl-draft-picks-2025-grades-scouting-reports/
 
