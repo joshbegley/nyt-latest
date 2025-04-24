@@ -1,3 +1,7 @@
+**U.S. Says Blast in Yemen Was Caused by Houthi Missile, Not U.S. Strike**\
+`An explosion near a UNESCO world heritage site in Yemen’s capital on Sunday killed 12 people, according to health authorities tied to the Houthi-led government.`\
+https://nytimes.com/2025/04/24/world/middleeast/us-yemen-houthi-misfire.html
+
 **We Need Proof of Life for the Makeup Artist Trump Sent to El Salvador**\
 `It’s a moral imperative to try to rescue people like Andry Hernández Romero.`\
 https://nytimes.com/2025/04/24/opinion/trump-el-salvador-makeup-artist.html
