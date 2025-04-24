@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6303339/2025/04/23/mets-mlb-record-2025-baseball-be
 `Philadelphia has lost 13 of its last 17 games at Citi Field. After this series, it's impossible to ignore the gap between the clubs.`\
 https://nytimes.com/athletic/6303301/2025/04/23/phillies-adversity-25-games-season-mets/
 
-**Will the Wild scratch Buium or Bogosian for Game 3? Also, Faber's big minutes and 'unbelievable' Gustavsson**\
+**Will the Wild scratch Buium or Bogosian for Game 3? Changes could be coming**\
 `Coach John Hynes hinted that he might want to "give a player a break" given the quick turnaround between the next two games.`\
 https://nytimes.com/athletic/6303328/2025/04/23/wild-golden-knights-game-3-lineup/
 
