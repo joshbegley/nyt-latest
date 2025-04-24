@@ -1,3 +1,7 @@
+**Amsterdam’s Mayor Apologizes for City’s Role in the Holocaust**\
+`The city “horribly abandoned its Jewish residents,” more than 60,000 of whom were deported and killed during World War II, Mayor Femke Halsema said on Thursday.`\
+https://nytimes.com/2025/04/24/world/europe/amsterdam-holocaust-apology-wwii.html
+
 **What Elon Musk Didn’t Budget For: Firing Workers Costs Money, Too**\
 `An expert on the federal work force estimates that the speed and chaos of Mr. Musk’s cuts to the bureaucracy will cost taxpayers $135 billion this fiscal year.`\
 https://nytimes.com/2025/04/24/us/politics/musk-cuts.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/24/opinion/yep-agree-language-dialects.html
 **Judge Blocks Trump From Defunding 16 Sanctuary Cities: ‘Here We Are Again’**\
 `A federal judge in San Francisco who issued a nearly identical order in 2017 found himself intervening again to stop President Trump from punishing cities over their immigration policy.`\
 https://nytimes.com/2025/04/24/us/politics/judge-injuction-sanctuary-city-executive-order.html
-
-**College Football Playoff meetings wrap up with big questions unanswered**\
-`The biggest topics included a potential seeding change for 2025, possible expansion and format changes for 2026 and basic governance.`\
-https://nytimes.com/athletic/6305816/2025/04/24/college-football-playoff-meetings-big-ten-sec/
 
