@@ -1,3 +1,15 @@
+**Russia Jails General Who Criticized Army’s Senior Command**\
+`Maj. Gen. Ivan Popov, a popular battlefield commander, was fired after airing grievances against superiors.`\
+https://nytimes.com/2025/04/24/world/europe/russia-general-prison.html
+
+**North Dakota Governor Vetoes Bill Restricting Library Books**\
+`The bill, which divided Republicans, would have required most libraries to keep material deemed sexually explicit away from minors.`\
+https://nytimes.com/2025/04/24/us/north-dakota-library-governor-veto.html
+
+**Billy McFarland Says Fyre Festival Is for Sale**\
+`In a post on Instagram, Mr. McFarland announced he was selling the Fyre brand and its “cultural capital,” a month before Fyre Festival 2 was scheduled to begin.`\
+https://nytimes.com/2025/04/24/us/billy-mcfarland-fyre-festival-for-sale.html
+
 **A Judge Released Him From Prison. The D.A. Wants to Lock Him Back Up.**\
 `After Andre Brown’s 40-year sentence was overturned, he went free. The Bronx district attorney appealed, and now he is set to return to prison and leave his wife and children.`\
 https://nytimes.com/2025/04/24/nyregion/bronx-shooting-sentence-commutation-reversed.html
