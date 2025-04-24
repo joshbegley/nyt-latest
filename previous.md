@@ -1,3 +1,11 @@
+**Carlos Correa: 'My swing sucks right now.' Plus Twins takeaways following White Sox series**\
+`It’s not an issue with his left wrist or a bad approach, Correa contends. He says his early offensive troubles are simply swing-related.`\
+https://nytimes.com/athletic/6306308/2025/04/24/carlos-correa-swing-twins-takeaways/
+
+**Trump May Concede Crimea to Russia, Ending Decade of U.S. Resistance**\
+`A new U.S. peace plan offered to Russia and Ukraine proposes American recognition of the peninsula, which Moscow seized in 2014.`\
+https://nytimes.com/2025/04/24/us/politics/trump-crimea-peace-agreement.html
+
 **A Mistake in a New York Court Exposes the Truth About Trump’s Legal Strategy**\
 `The episode of the inadvertent court filings in the New York congestion-pricing case embodies the full range of the Trump administration’s incompetence.`\
 https://nytimes.com/live/2025/04/21/opinion/thepoint/congestion-pricing-lawyers-doj-trump
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/24/briefing/trump-russia-ukraine-flu-season.html
 **Alijah Arenas, USC recruit and son of ex-NBA star, in serious crash: Reports**\
 `The McDonald's All-American averaged 30.9 points per game in high school last season.`\
 https://nytimes.com/athletic/6306086/2025/04/24/alijah-arenas-usc-car-crash/
-
-**My Boyfriend Has a Husband. Should I Tell Him About Us?**\
-`The magazine’s Ethicist columnist on navigating the dynamics of multiple open marriages.`\
-https://nytimes.com/2025/04/24/magazine/marriage-boyfriend-polyamory-ethics.html
-
-**Trump Administration Seeks Artists for ‘Garden of Heroes’ Statues**\
-`Those selected would receive up to $200,000 to create one of the 250 sculptures, which will be paid for in part with canceled grants from the National Endowment for the Humanities.`\
-https://nytimes.com/2025/04/24/arts/garden-of-heroes-trump.html
 
