@@ -1,3 +1,7 @@
+**After Edwin Díaz leaves early, the Mets' depth picks up the team — again**\
+`The Mets' depth is a major reason they've won seven straight games, including a win over the Phillies on Wednesday for a sweep.`\
+https://nytimes.com/athletic/6303188/2025/04/23/mets-seven-wins-depth-bullpen-starling-marte/
+
 **Ex-Army Sergeant Gets 7 Years for Selling Military Secrets to Chinese Conspirator**\
 `Korbein Schultz, 25, who was an intelligence analyst, accepted $42,000 in bribes for sensitive documents, prosecutors said. He pleaded guilty in 2024.`\
 https://nytimes.com/2025/04/23/us/army-analyst-selling-secrets-sentenced.html
