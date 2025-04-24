@@ -1,3 +1,15 @@
+**Live Q&A: Talking fantasy football and the 2025 NFL Draft with Jake Ciely at 6 p.m. ET**\
+`Jake Ciely answers all your pre-NFL Draft fantasy football questions in a live Q&A, exclusive for The Athletic subscribers.`\
+https://nytimes.com/athletic/6306066/2025/04/24/live-qa-talking-fantasy-football-and-the-2025-nfl-draft-with-jake-ciely-on-friday-4-24-at-6-p-m-et/
+
+**Friday Briefing: Trump Tells Putin to ‘STOP!’**\
+`Plus, was Shakespeare a bad husband?`\
+https://nytimes.com/2025/04/24/briefing/trump-putin-ukraine-india-pakistan-pope-funeral.html
+
+**Trump’s Strength Is His Greatest Weakness**\
+`His initiative has been the key to much of his success, but lacking any sense of prudence, he does not understand the difference between a risk and a gamble.`\
+https://nytimes.com/2025/04/24/opinion/trump-administration-energy-strength-weakness.html
+
 **Publisher of PCMag and Mashable Sues OpenAI**\
 `Ziff Davis, which owns more than 45 media properties, is accusing the tech company of infringing on the publisher’s copyrights and diluting its trademarks.`\
 https://nytimes.com/2025/04/24/business/media/ziff-davis-openai-lawsuit.html

@@ -1,3 +1,7 @@
+**Ashton Jeanty to the Bears rumors are swirling, and betting odds are on the move**\
+`Is there a trade brewing? Ashton Jeanty's odds of being the fifth pick and of him landing on the Bears shifted drastically Thursday.`\
+https://nytimes.com/athletic/6305982/2025/04/24/ashton-jeanty-bears-betting-odds/
+
 **Live Q&A: Talking fantasy football and the 2025 NFL Draft with Jake Ciely at 6 p.m. ET**\
 `Jake Ciely answers all your pre-NFL Draft fantasy football questions in a live Q&A, exclusive for The Athletic subscribers.`\
 https://nytimes.com/athletic/6306066/2025/04/24/live-qa-talking-fantasy-football-and-the-2025-nfl-draft-with-jake-ciely-on-friday-4-24-at-6-p-m-et/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/24/weather/texas-tornadoes-hail-storm-rain.html
 **Congo Reverses Course and Agrees to Cease ‘Hostilities’ With M23**\
 `Felix Tshisekedi of Congo had long said his country would not negotiate with the Rwanda-backed militia, making the joint agreement a rare bright spot in the conflict.`\
 https://nytimes.com/2025/04/24/world/africa/congo-rwanda-m23-war.html
-
-**Where the Menu Is Always Changing**\
-`These three restaurants don’t stick to the script, and it makes them worth visiting again and again.`\
-https://nytimes.com/2025/04/24/dining/where-the-menu-is-always-changing.html
 
