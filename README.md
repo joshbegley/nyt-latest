@@ -1,3 +1,7 @@
+**World Sevens Football confirms four clubs for new summer soccer tournament**\
+`Four of the eight competing sides for the inaugural W7F were announced on Thursday.`\
+https://nytimes.com/athletic/6284726/2025/04/24/world-sevens-football-man-utd-bayern/
+
 **Warriors downplay Rockets' physicality after Jimmy Butler's hard fall, Game 2 loss**\
 `The series vs. the Rockets is tied 1-1 and has gotten increasingly chippy. But the Warriors aren't complaining, even after Butler's injury.`\
 https://nytimes.com/athletic/6304220/2025/04/24/warriors-playoffs-jimmy-butler-rockets-physicality/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6301070/2025/04/24/nfl-draft-suits-michael-strahan-
 **Why is the Kirill Kaprizov-Matt Boldy combo so dynamic, and what does it mean for the Wild?**\
 `Minnesota could have split up Kaprizov and Boldy for scoring-depth purposes, but they've been fantastic together.`\
 https://nytimes.com/athletic/6302528/2025/04/24/kaprizov-boldy-wild-playoffs/
-
-**Falcons NFL Draft hub: Picks, grades, fits and scouting reports**\
-`The Falcons need to bolster their pass rush (what else is new?) and could use more draft picks, so they'll likely look to trade down.`\
-https://nytimes.com/athletic/6302715/2025/04/24/falcons-nfl-draft-picks-2025-grades-scouting-reports/
 
