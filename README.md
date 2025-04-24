@@ -1,3 +1,11 @@
+**Cardinals Gather in Vatican to Fine Tune Preparations for Pope’s Funeral**\
+`The conclave to select the next pontiff has not started yet, but meetings to set the agenda and to decide on the logistics of mourning for Francis were gathering pace.`\
+https://nytimes.com/2025/04/24/world/europe/pope-francis-cardinals-conclave-vatican.html
+
+**Carlos Alcaraz withdraws from Madrid Open with muscle injury**\
+`The Spaniard sustained the injury during the Barcelona Open final against Holger Rune.`\
+https://nytimes.com/athletic/6295860/2025/04/24/carlos-alcaraz-madrid-open-out-injury/
+
 **Premier League top five odds update: Newcastle on the up, Chelsea living on the edge**\
 `Brett Koremenos has a look at this week’s Premier League top five odds ahead of the next round of games. 
 `\
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/6304154/2025/04/24/canadiens-slafkovsky-margins-nhl
 **Lions NFL Draft hub: Picks, grades, fits and scouting reports**\
 `The Lions have seven picks in this year's NFL Draft.`\
 https://nytimes.com/athletic/6303781/2025/04/24/lions-nfl-draft-picks-2025-grades-scouting-reports/
-
-**Shedeur Sanders is this draft's biggest name. He's also its biggest wild card**\
-`The demeanor of a QB who had reality TV cameras around his life and in his house as a kid serves as a Rorschach test for NFL front offices.`\
-https://nytimes.com/athletic/6302266/2025/04/24/shedeur-sanders-nfl-draft-stock-career/
-
-**How do prospects decide whether to attend the NFL Draft? It’s complicated**\
-`Nobody wants to wind up like Will Levis, sliding out of Round 1 while the world watches, but there are many other factors to consider.`\
-https://nytimes.com/athletic/6302933/2025/04/24/nfl-draft-2025-green-room-prospects/
 
