@@ -1,3 +1,11 @@
+**Has Trump’s Tariff Fight Passed Its Peak?**\
+`Many investors and business leaders increasingly believe President Trump will dial back his trade battles. Not everyone is willing to commit to that bet.`\
+https://nytimes.com/2025/04/24/business/dealbook/trump-tariffs-fed-walkback.html
+
+**Jewish Democrats demand answers from Trump on his university crackdown.**\
+`Five Jewish Democrats in the Senate decried what they argued were “extralegal” attacks on the institutions, being carried out under the guise of combating antisemitism on campus.`\
+https://nytimes.com/live/2025/04/24/us/trump-news/jewish-democrats-demand-answers-from-trump-on-his-university-crackdown
+
 **Who should win Defensive Player of the Year? We asked NBA coaches**\
 `Dyson Daniels, Draymond Green and Evan Mobley are the finalists for the award. But who should win it, in the eyes of the league's coaches?`\
 https://nytimes.com/athletic/6304158/2025/04/24/nba-anonymous-coaches-poll-defensive-player-of-the-year-dyson-daniels-draymond-green/
