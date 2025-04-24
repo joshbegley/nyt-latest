@@ -1,5 +1,9 @@
+**Jimmy Kimmel Skewers Elon Musk’s Plan to ‘Get Out of DOGE’**\
+`“Musk says that he will dial back his work with the government so that he can spend more time with all 10 of his families,” Kimmel said.`\
+https://nytimes.com/2025/04/24/arts/television/kimmel-musk-doge.html
+
 **South Korea Indicts Another Former President**\
-`Bribery charge against Moon Jae-in makes him the latest in a line of former leaders to face criminal action, deepening the country’s political polarization.`\
+`A bribery charge against Moon Jae-in makes him the latest in a line of former leaders to face criminal action, deepening the country’s political polarization.`\
 https://nytimes.com/2025/04/24/world/asia/south-korea-moon-indicted.html
 
 **Stars hold off Avalanche in overtime to take 2-1 series lead: Takeaways**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/24/us/politics/hegseth-signal-pentagon.html
 **Titans, WR Tyler Lockett agree to deal ahead of NFL Draft**\
 `Lockett has a connection to presumed No. 1 draft pick Cam Ward.`\
 https://nytimes.com/athletic/6303904/2025/04/24/titans-tyler-lockett-contract-free-agency/
-
-**Fantasy Premier League: How to tackle Blank Gameweek 34 (especially if you have no Free Hit chip)**\
-`Whether you're creating a Free Hit team or taking hits to get a functioning side out, Holly Shand runs through the players you should target`\
-https://nytimes.com/athletic/6301216/2025/04/24/fantasy-premier-league-blank-gameweek-34-transfers/
 
