@@ -1,3 +1,7 @@
+**NBA playoff takeaways: Celtics take 2-0 series lead over Magic**\
+`The series heads to Orlando for Game 3 on Friday.`\
+https://nytimes.com/athletic/6303566/2025/04/23/nba-playoff-celtics-magic-cavaliers-heat-warriors-rockets-scores-takeaways/
+
 **Capitals outlast Canadiens again to take 2-0 series lead: Takeaways**\
 `For the second straight game, the Canadiens mounted a third-period push on the Eastern Conference's top seed. Again, it wasn't enough.`\
 https://nytimes.com/athletic/6303409/2025/04/23/canadiens-capitals-nhl-playoffs-2025-game-2-takeaways/
