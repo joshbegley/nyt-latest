@@ -1,3 +1,11 @@
+**Jimmy Kimmel Skewers Elon Musk’s Plan to ‘Get Out of DOGE’**\
+`“Musk says that he will dial back his work with the government so that he can spend more time with all 10 of his families,” Kimmel said.`\
+https://nytimes.com/2025/04/24/arts/television/kimmel-musk-doge.html
+
+**South Korea Indicts Another Former President**\
+`A bribery charge against Moon Jae-in makes him the latest in a line of former leaders to face criminal action, deepening the country’s political polarization.`\
+https://nytimes.com/2025/04/24/world/asia/south-korea-moon-indicted.html
+
 **Stars hold off Avalanche in overtime to take 2-1 series lead: Takeaways**\
 `Dallas defeated Colorado 2-1 in Game 3 and Mikko Rantanen picked up his first point of the series.`\
 https://nytimes.com/athletic/6303777/2025/04/24/avalanche-stars-game-3-nhl-playoffs-2025/
