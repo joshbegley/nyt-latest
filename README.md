@@ -1,3 +1,7 @@
+**Kristi Noem’s Handbag Was Snatched From Beneath Her Chair, D.H.S. Says**\
+`Ms. Noem “could feel this person as they snatched her bag,” a spokeswoman for the Department of Homeland Security said.`\
+https://nytimes.com/2025/04/24/us/politics/kristi-noem-handbag-stolen.html
+
 **Ask Ornstein Q&A: Our football insider answers your questions**\
 `Here is your opportunity to ask David Ornstein anything you want about the world of football`\
 https://nytimes.com/athletic/6304371/2025/04/24/ask-ornstein-qa-our-football-insider-answers-your-questions-25/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6304431/2025/04/24/real-madrid-eduardo-camavinga-in
 **Adjustments to watch for as Jets take series lead into St. Louis**\
 `Hockey is a game of narrow margins, and few know it better than Jim Montgomery and Scott Arniel.`\
 https://nytimes.com/athletic/6303464/2025/04/24/jets-adjustments-blues-nhl-playoffs/
-
-**Does this Giants regime have to come away from NFL Draft with QB of the future?**\
-`The dynamics at play tonight are fascinating. What’s best for GM Joe Schoen, coach Brian Daboll and the franchise doesn’t necessarily align.`\
-https://nytimes.com/athletic/6303779/2025/04/24/new-york-giants-nfl-draft-2025-jaxson-dart/
 
