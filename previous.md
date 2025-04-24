@@ -1,3 +1,23 @@
+**Las Vegas Sands Drops Bid to Open a Casino on Long Island**\
+`The company cited the threat that online gambling posed to its profits in its decision to bow out of the competition for one of three casino licenses around New York City.`\
+https://nytimes.com/2025/04/23/nyregion/las-vegas-sands-casino-nassau-coliseum.html
+
+**12 States Sue Trump Over His Tariffs**\
+`The lawsuit, filed by Democratic attorneys general, said the president’s tariffs have hurt their economies and residents.`\
+https://nytimes.com/2025/04/23/us/politics/states-tariff-trump-lawsuit.html
+
+**The Mets are playing like baseball's best and they're not surprised at all**\
+`The Mets have the best record in baseball and they could remain at or near the top of the league for a long time to come.`\
+https://nytimes.com/athletic/6303339/2025/04/23/mets-mlb-record-2025-baseball-best/
+
+**Swept in New York, Phillies face some adversity 25 games into their season**\
+`Philadelphia has lost 13 of its last 17 games at Citi Field. After this series, it's impossible to ignore the gap between the clubs.`\
+https://nytimes.com/athletic/6303301/2025/04/23/phillies-adversity-25-games-season-mets/
+
+**Will the Wild scratch Buium or Bogosian for Game 3? Also, Faber's big minutes and 'unbelievable' Gustavsson**\
+`Coach John Hynes hinted that he might want to "give a player a break" given the quick turnaround between the next two games.`\
+https://nytimes.com/athletic/6303328/2025/04/23/wild-golden-knights-game-3-lineup/
+
 **Yankees takeaways: Can Aaron Judge keep up his 'incredible' pace? Clubhouse vibes are high**\
 `"Right now, he's like Tony Gwynn," Carlos Rodón said of Judge. "Next week, he'll probably be like Hank Aaron."`\
 https://nytimes.com/athletic/6303179/2025/04/23/yankees-guardians-takeaways-aaron-judge-clubhouse-vibes-high/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6303286/2025/04/23/braves-eli-white-alex-verdugo-ml
 **A Stunning New Pool in Central Park Helps Heal Old Wounds**\
 `The $160 million Davis Center, with upgrades to six bucolic acres and a lake, writes a new chapter for the Harlem end of the park.`\
 https://nytimes.com/2025/04/23/arts/design/central-park-pool-harlem.html
-
-**A Subdued Musk Backs Away From Washington, but His Project Remains**\
-`The Department of Government Efficiency has already made an immense imprint on the government, but it has not come close to Elon Musk’s pledge of cutting $1 trillion.`\
-https://nytimes.com/2025/04/23/us/politics/elon-musk-doge-trump.html
-
-**Cornell Cancels Kehlani Performance Over Her Stance on the War in Gaza**\
-`The R&B singer’s outspoken support for Palestinians had drawn criticism on the campus and beyond. Some students expressed disappointment at the cancellation.`\
-https://nytimes.com/2025/04/23/nyregion/kehlani-cornell-concert-replaced.html
-
-**Lions, Kerby Joseph agree to 4-year, $86 million extension**\
-`Last season, Joseph developed into a first-team All-Pro with a knack for patrolling as a free safety.`\
-https://nytimes.com/athletic/6303277/2025/04/23/lions-kerby-joseph-agree-to-4-year-86-million-extension-making-him-highest-paid-safety-source/
-
-**Olympic gold medalist Lauren Holiday joins NWSL team ownership group**\
-`The USWNT legend and her husband, two-time NBA champion Jrue Holiday, are investing in the team through the Holiday Family Trust.`\
-https://nytimes.com/athletic/6303078/2025/04/23/lauren-holiday-nwsl-team-ownership-north-carolina-courage/
-
-**Trump Signs Executive Order Targeting College Accreditors**\
-`It was the latest move by President Trump in his effort to shift the ideological tilt of the higher education system as he battles elite universities.`\
-https://nytimes.com/2025/04/23/us/politics/trump-executive-order-university-accreditors.html
 

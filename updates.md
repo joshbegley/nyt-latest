@@ -1,3 +1,23 @@
+**Las Vegas Sands Drops Bid to Open a Casino on Long Island**\
+`The company cited the threat that online gambling posed to its profits in its decision to bow out of the competition for one of three casino licenses around New York City.`\
+https://nytimes.com/2025/04/23/nyregion/las-vegas-sands-casino-nassau-coliseum.html
+
+**12 States Sue Trump Over His Tariffs**\
+`The lawsuit, filed by Democratic attorneys general, said the president’s tariffs have hurt their economies and residents.`\
+https://nytimes.com/2025/04/23/us/politics/states-tariff-trump-lawsuit.html
+
+**The Mets are playing like baseball's best and they're not surprised at all**\
+`The Mets have the best record in baseball and they could remain at or near the top of the league for a long time to come.`\
+https://nytimes.com/athletic/6303339/2025/04/23/mets-mlb-record-2025-baseball-best/
+
+**Swept in New York, Phillies face some adversity 25 games into their season**\
+`Philadelphia has lost 13 of its last 17 games at Citi Field. After this series, it's impossible to ignore the gap between the clubs.`\
+https://nytimes.com/athletic/6303301/2025/04/23/phillies-adversity-25-games-season-mets/
+
+**Will the Wild scratch Buium or Bogosian for Game 3? Also, Faber's big minutes and 'unbelievable' Gustavsson**\
+`Coach John Hynes hinted that he might want to "give a player a break" given the quick turnaround between the next two games.`\
+https://nytimes.com/athletic/6303328/2025/04/23/wild-golden-knights-game-3-lineup/
+
 **Yankees takeaways: Can Aaron Judge keep up his 'incredible' pace? Clubhouse vibes are high**\
 `"Right now, he's like Tony Gwynn," Carlos Rodón said of Judge. "Next week, he'll probably be like Hank Aaron."`\
 https://nytimes.com/athletic/6303179/2025/04/23/yankees-guardians-takeaways-aaron-judge-clubhouse-vibes-high/
