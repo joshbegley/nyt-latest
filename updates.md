@@ -1,3 +1,11 @@
+**Parts of Texas at Risk of Tornadoes and Hail as Large as Baseballs Today**\
+`The severe weather is typical for this time of year but also unpredictable.`\
+https://nytimes.com/2025/04/24/weather/texas-tornadoes-hail-storm-rain.html
+
+**Congo Reverses Course and Agrees to Cease ‘Hostilities’ With M23**\
+`Felix Tshisekedi of Congo had long said his country would not negotiate with the Rwanda-backed militia, making the joint agreement a rare bright spot in the conflict.`\
+https://nytimes.com/2025/04/24/world/africa/congo-rwanda-m23-war.html
+
 **Where the Menu Is Always Changing**\
 `These three restaurants don’t stick to the script, and it makes them worth visiting again and again.`\
 https://nytimes.com/2025/04/24/dining/where-the-menu-is-always-changing.html
