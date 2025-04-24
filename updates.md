@@ -1,3 +1,7 @@
+**Trump Asks Supreme Court to Revive Ban on Transgender Troops**\
+`Lower courts had blocked the policy, saying it was not supported by evidence and violated equal protection principles.`\
+https://nytimes.com/2025/04/24/us/trump-supreme-transgender-troops.html
+
 **In NBA playoffs, adjustments are the word for Game 3: What to expect in four tied series**\
 `The simple "Play Better" tweak worked for a few teams, but keep an eye on these games within the games going forward.`\
 https://nytimes.com/athletic/6304471/2025/04/24/nba-playoffs-adjustments-warriors-knicks-lakers-clippers/

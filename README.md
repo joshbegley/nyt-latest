@@ -1,3 +1,15 @@
+**Student Stabs 4 Others, One Fatally, at a French High School**\
+`The motive was unclear for the attack, which occurred at a time of heightened concern in France about knife attacks in schools.`\
+https://nytimes.com/2025/04/24/world/europe/french-school-knife-attack.html
+
+**Saying ‘Thank You’ to Chat GPT Is Costly. Should You Do It Anyway?**\
+`Adding words to our chatbot requests uses more electricity. But some fear the cost of not saying please or thank you could be higher.`\
+https://nytimes.com/2025/04/24/technology/chat-gpt-alexa-please-thank-you.html
+
+**Pulisic 'gave a lot' during Milan Coppa Italia victory - Conceicao**\
+`Pulisic put in a 78-minute shift before being replaced by Ruben Loftus-Cheek in Milan's 3-0 victory on Wednesday.`\
+https://nytimes.com/athletic/6305317/2025/04/24/pulisic-ac-milan-coppa-italia-conceicao/
+
 **Trump Asks Supreme Court to Revive Ban on Transgender Troops**\
 `Lower courts had blocked the policy, saying it was not supported by evidence and violated equal protection principles.`\
 https://nytimes.com/2025/04/24/us/trump-supreme-transgender-troops.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/24/us/politics/david-hogg-ken-martin-dnc.html
 **In NBA playoffs, adjustments are the word for Game 3: What to expect in four tied series**\
 `The simple "Play Better" tweak worked for a few teams, but keep an eye on these games within the games going forward.`\
 https://nytimes.com/athletic/6304471/2025/04/24/nba-playoffs-adjustments-warriors-knicks-lakers-clippers/
-
-**Should We Start Taking the Welfare of A.I. Seriously?**\
-`As artificial intelligence systems become smarter, one A.I. company is trying to figure out what to do if they become conscious.`\
-https://nytimes.com/2025/04/24/technology/ai-welfare-anthropic-claude.html
-
-**Mavericks coach Kidd joins ownership group of Premier League club Everton**\
-`Kidd has joined Roundhouse Capital Holdings, an entity within The Friedkin Group (TFG), which completed its takeover of Everton in December.`\
-https://nytimes.com/athletic/6301493/2025/04/24/jason-kidd-everton-ownership/
-
-**A Paris Hotel With Rooftop Views and a Rock-Climbing Wall**\
-`Plus: an architectural travel guide, dishes that pay homage to Henri Matisse and more recommendations.`\
-https://nytimes.com/2025/04/24/t-magazine/paris-hotel-la-fondation.html
 
