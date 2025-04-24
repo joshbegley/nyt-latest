@@ -1,3 +1,11 @@
+**Gunman Who Opened Fire on a Parade Gets Seven Life Sentences**\
+`The man fired from a rooftop during a Fourth of July celebration in a Chicago suburb three years ago. The judge called the gunman “irretrievably depraved.”`\
+https://nytimes.com/2025/04/24/us/highland-park-shooting-sentencing.html
+
+**7 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2025/04/24/books/review/new-books-recommendations.html
+
 **Thompson: Against the aggressive Rockets, Warriors' hopes rest on solving a familiar problem**\
 `Steph Curry loves to burn the Rockets. But he needs help, and in Wednesday's Game 2, the Warriors had none to give.`\
 https://nytimes.com/athletic/6305232/2025/04/24/warriors-rockets-playoffs-stephen-curry-solution-game-2/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/24/us/politics/deported-migrant-el-salvador-trump.ht
 **Judge Limits Trump’s Ability to Withhold School Funds Over D.E.I.**\
 `The administration was seeking to cut off money from public schools that allowed certain diversity and equity programs.`\
 https://nytimes.com/2025/04/24/us/trump-public-school-funds-dei.html
-
-**The Pulse: Two final NFL Draft questions**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6302749/2025/04/24/nfl-draft-2025-first-round-the-pulse/
-
-**Is Cunha to Man Utd likely? Could Grealish move? - Ask Ornstein**\
-`Today, we ran the latest edition of our subscriber-exclusive Ask Ornstein Q&A. These are some of our favourite questions and answers`\
-https://nytimes.com/athletic/6305092/2025/04/24/matheus-cunha-manchester-united-latest-jack-grealish/
 
