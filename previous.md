@@ -1,3 +1,27 @@
+**From Book Bans to Canceled Lectures, the Naval Academy Is Bending to Trump**\
+`Even before the presidential election, the school began preparing for Donald Trump’s potential return to power. Now faculty members are resigning in protest.`\
+https://nytimes.com/2025/04/24/us/politics/naval-academy-trump.html
+
+**The Bounce: Butler fall might change everything**\
+`The Bounce Newsletter  | This is The Athletic’s daily NBA newsletter.`\
+https://nytimes.com/athletic/6305536/2025/04/24/jimmy-butler-injury-warriors-rockets-the-bounce/
+
+**Judge Orders Administration to Seek Return of Another Deported Migrant**\
+`The case, involving a 20-year-old Venezuelan, comes on the heels of another legal battle over the fate of a different man wrongfully sent to El Salvador by the Trump administration.`\
+https://nytimes.com/2025/04/24/us/politics/deported-migrant-el-salvador-trump.html
+
+**Judge Limits Trump’s Ability to Withhold School Funds Over D.E.I.**\
+`The administration was seeking to cut off money from public schools that allowed certain diversity and equity programs.`\
+https://nytimes.com/2025/04/24/us/trump-public-school-funds-dei.html
+
+**The Pulse: Two final NFL Draft questions**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6302749/2025/04/24/nfl-draft-2025-first-round-the-pulse/
+
+**Is Cunha to Man Utd likely? Could Grealish move? - Ask Ornstein**\
+`Today, we ran the latest edition of our subscriber-exclusive Ask Ornstein Q&A. These are some of our favourite questions and answers`\
+https://nytimes.com/athletic/6305092/2025/04/24/matheus-cunha-manchester-united-latest-jack-grealish/
+
 **The Windup: The Cubs are so back**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6303955/2025/04/24/cubs-record-steven-kwan-the-windup/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6305385/2025/04/24/nfl-draft-2025-primer-guide-cam-
 **Lawyer for New York Attorney General Blasts Trump for ‘Retribution’**\
 `The lawyer, Abbe Lowell, told the Justice Department that allegations against Attorney General Letitia James related to property she owns lacked “any credible foundation.”`\
 https://nytimes.com/2025/04/24/nyregion/ny-attorney-general-letter-justice-department.html
-
-**U.S. Urges Japan and South Korea to Commit to $44 Billion Alaska Gas Project**\
-`A group advising President Trump on energy policy is seeking meetings with Japan and South Korea’s trade ministries, with the hope of announcing progress in early June.`\
-https://nytimes.com/2025/04/24/business/alaska-lng-japan-south-korea.html
-
-**Travis Sanheim's, Travis Konecny's second-half slumps must 'get fixed'**\
-`Sanheim and Konecny started the season strong but began to wobble just past the midway point. Both assessed their performances last week.`\
-https://nytimes.com/athletic/6305039/2025/04/24/flyers-travis-sanheim-travis-konecny/
-
-**Juilliard Plans $550 Million Drive to Go Tuition Free**\
-`The goal is to make the school’s programs more accessible and to ease the burden on graduates pursuing careers in the arts.`\
-https://nytimes.com/2025/04/24/arts/music/juilliard-tuition-free.html
-
-**Iga Swiatek resets to beat Alex Eala at Madrid Open and open title defense**\
-`Defending Madrid champion Świątek recovered from a nervy opening set to beat Eala, who won their first meeting in Miami in a stunning upset.`\
-https://nytimes.com/athletic/6305339/2025/04/24/iga-swiatek-madrid-result-analysis-eala/
-
-**Leafs roster moves vs. Senators: Who's in, who's out and who's where for Game 3**\
-`Max Pacioretty is in. Nick Robertson is out. What it means for the Leafs in Game 3.`\
-https://nytimes.com/athletic/6304919/2025/04/24/leafs-lines-senators-game-3-nhl-playoffs/
-
-**Bucks, general manager Jon Horst agree on multiyear contract extension: Sources**\
-`The Bucks’ 2021 NBA championship, the franchise’s second title, sits at the top of Horst’s accomplishments.`\
-https://nytimes.com/athletic/6305301/2025/04/24/bucks-jon-horst-contract-extension/
 
