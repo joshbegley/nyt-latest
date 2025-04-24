@@ -1,3 +1,7 @@
+**Best available players remaining in 2025 NFL Draft**\
+`Who are the top prospects still on the board at the 2025 NFL Draft? We're tracking all the movement as the event unfolds in Green Bay.`\
+https://nytimes.com/athletic/6298866/2025/04/24/nfl-draft-2025-best-available-players/
+
 **Federal Agency Offers Employees Tips on Finding New Jobs Outside Government**\
 `The Department of Housing and Urban Development is offering “career support” sessions. Some federal workers said they were insulted by the idea of the workshops.`\
 https://nytimes.com/2025/04/24/us/politics/hud-career-jobs-federal-workers.html
