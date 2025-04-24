@@ -1,3 +1,15 @@
+**Warriors downplay Rockets' physicality after Jimmy Butler's hard fall, Game 2 loss**\
+`The series vs. the Rockets is tied 1-1 and has gotten increasingly chippy. But the Warriors aren't complaining, even after Butler's injury.`\
+https://nytimes.com/athletic/6304220/2025/04/24/warriors-playoffs-jimmy-butler-rockets-physicality/
+
+**Mike Golic, Mike Golic Jr. to team up for show on FanDuel Sports Network**\
+`“Golic & Golic” is expected to air weekdays from 4 p.m. to 6 p.m. ET as a lead-in to the network’s regional games each night.`\
+https://nytimes.com/athletic/6303343/2025/04/24/mike-golic-mike-golic-jr-show-fanduel-sports-network/
+
+**The Athletic FC: All-time Premier League draft, Vinicius Jr's contract stand-off**\
+`In today's TAFC: An all-time Premier League draft, Vinicius Jr eyes bumper new deal at Real Madrid and Arena questions Pochettino hiring.`\
+https://nytimes.com/athletic/6304209/2025/04/24/premier-league-draft-arena-pochettino/
+
 **Twins rookie Luke Keaschall running wild, ties MLB record with 5 steals in first 5 games**\
 `The top-100 prospect has jump-started a struggling Twins lineup, hitting .353 and using his speed to wreak havoc on opposing defenses.`\
 https://nytimes.com/athletic/6302929/2025/04/24/twins-luke-keaschall-mlb-steals-record/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6302528/2025/04/24/kaprizov-boldy-wild-playoffs/
 **Falcons NFL Draft hub: Picks, grades, fits and scouting reports**\
 `The Falcons need to bolster their pass rush (what else is new?) and could use more draft picks, so they'll likely look to trade down.`\
 https://nytimes.com/athletic/6302715/2025/04/24/falcons-nfl-draft-picks-2025-grades-scouting-reports/
-
-**Inside the numbers: Nico Harrison insists defense wins championships. But is that still true?**\
-`Inside the numbers on NBA trends: Are we seeing a resurgence in heavy minutes workloads? And shooters are getting farther from the basket.`\
-https://nytimes.com/athletic/6281512/2025/04/24/mavericks-gm-nico-harrison-defense-wins-championships/
-
-**Buckley: Celtics stomp Magic WWE-style, using a mix of blood, showmanship and laughter**\
-`Kristaps Porziņģis was all smiles during and after Game 2 despite taking an elbow to the head that required five stitches to close.`\
-https://nytimes.com/athletic/6303997/2025/04/24/celtics-magic-game-2-kristaps-porzingis-nba-playoffs/
-
-**Mouse and rat: The two sides of Senators agitator Ridly Greig**\
-`Ridly Greig is loud on the ice, but quiet off it. Through two games of the Battle of Ontario, he's become public enemy No. 1 in Toronto.`\
-https://nytimes.com/athletic/6303213/2025/04/24/senators-ridly-greig-leafs-nhl-playoffs/
 
