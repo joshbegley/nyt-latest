@@ -1,3 +1,15 @@
+**Overlooked Letter Rewrites History of Shakespeare’s Bad Marriage**\
+`New research undermines the traditional view that Shakespeare was a distant, neglectful husband to his wife, Anne.`\
+https://nytimes.com/2025/04/24/world/europe/shakespeare-wife-anne-hathaway.html
+
+**In Philadelphia, Art Shows by Women Teem With Eros and Audacity**\
+`Devotees of the human figure, Cecily Brown and Christina Ramberg turn the Benjamin Franklin Parkway into a showplace for the female gaze.`\
+https://nytimes.com/2025/04/24/arts/design/cecily-brown-christina-ramberg.html
+
+**Tajon Buchanan climbs out of his injury hellscape**\
+`A freak injury derailed Tajon Buchanan from the fast-track path he was on, but he's back doing the thing that gives him purpose: playing.`\
+https://nytimes.com/athletic/6266960/2025/04/24/tajon-buchanan-canada-injuries-villarreal-inter-milan/
+
 **Trump Cuts Threaten Meals and Services for People With Disabilities and the Aging**\
 `A tiny agency responsible for overseeing these services is being dismantled as part of Health Secretary Robert F. Kennedy Jr.’s overhaul of his department.`\
 https://nytimes.com/2025/04/24/health/meals-on-wheels-disabilities-aging-trump-cutbacks.html

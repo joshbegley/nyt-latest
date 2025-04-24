@@ -1,3 +1,15 @@
+**Overlooked Letter Rewrites History of Shakespeare’s Bad Marriage**\
+`New research undermines the traditional view that Shakespeare was a distant, neglectful husband to his wife, Anne.`\
+https://nytimes.com/2025/04/24/world/europe/shakespeare-wife-anne-hathaway.html
+
+**In Philadelphia, Art Shows by Women Teem With Eros and Audacity**\
+`Devotees of the human figure, Cecily Brown and Christina Ramberg turn the Benjamin Franklin Parkway into a showplace for the female gaze.`\
+https://nytimes.com/2025/04/24/arts/design/cecily-brown-christina-ramberg.html
+
+**Tajon Buchanan climbs out of his injury hellscape**\
+`A freak injury derailed Tajon Buchanan from the fast-track path he was on, but he's back doing the thing that gives him purpose: playing.`\
+https://nytimes.com/athletic/6266960/2025/04/24/tajon-buchanan-canada-injuries-villarreal-inter-milan/
+
 **Trump Cuts Threaten Meals and Services for People With Disabilities and the Aging**\
 `A tiny agency responsible for overseeing these services is being dismantled as part of Health Secretary Robert F. Kennedy Jr.’s overhaul of his department.`\
 https://nytimes.com/2025/04/24/health/meals-on-wheels-disabilities-aging-trump-cutbacks.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6296454/2025/04/24/broncos-nfl-draft-picks-2025-gra
 **Buckley: Will Campbell brings size and skill — and an even bigger heart — to NFL Draft**\
 `Campbell, whose close cousin died in a fire last year, has helped lift the Tarver Braddock Foundation.`\
 https://nytimes.com/athletic/6303009/2025/04/24/nfl-draft-2025-patriots-will-campbell/
-
-**Ai Weiwei Installation Coming to Four Freedoms Park on Roosevelt Island**\
-`The Chinese artist’s commentary “on what is unfolding politically and culturally in our time” has a lighthearted note: cat-patterned camouflage. The work inaugurates a new art series at the park.`\
-https://nytimes.com/2025/04/24/arts/design/ai-weiwei-four-freedoms-park.html
-
-**Russia Jails General Who Criticized Army’s Senior Command**\
-`Maj. Gen. Ivan Popov, a popular battlefield commander, was fired after airing grievances against superiors.`\
-https://nytimes.com/2025/04/24/world/europe/russia-general-prison.html
-
-**North Dakota Governor Vetoes Bill Restricting Library Books**\
-`The bill, which divided Republicans, would have required most libraries to keep material deemed sexually explicit away from minors.`\
-https://nytimes.com/2025/04/24/us/north-dakota-library-governor-veto.html
 
