@@ -1,3 +1,15 @@
+**How the Cardinals' latest bullpen collapse highlights deeper issues**\
+`The Cardinals want to give young players opportunities, but that's a tricky balance with struggling relievers.`\
+https://nytimes.com/athletic/6303237/2025/04/24/cardinals-collapse-mlb-ryan-fernandez/
+
+**NHL playoffs daily: Capitals beat Canadiens, Kings conquer Oilers**\
+`In Colorado, the Dallas Stars took a 2-1 series lead over the Avalanche behind a 2-1 win, thanks to a rugged defensive performance.`\
+https://nytimes.com/athletic/6303538/2025/04/24/nhl-playoffs-daily-results-capitals-oilers/
+
+**What Carlos Alcaraz's 'My Way' series says about his tennis present and future**\
+`Alcaraz's window into his 2024 season offers some revelations, but they are stage-managed as much as they are insightful.`\
+https://nytimes.com/athletic/6304336/2025/04/24/carlos-alcaraz-my-way-netflix-review-analysis/
+
 **Has Trump’s Tariff Fight Passed Its Peak?**\
 `Many investors and business leaders increasingly believe President Trump will dial back his trade battles. Not everyone is willing to commit to that bet.`\
 https://nytimes.com/2025/04/24/business/dealbook/trump-tariffs-fed-walkback.html

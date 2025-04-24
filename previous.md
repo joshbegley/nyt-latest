@@ -1,6 +1,18 @@
+**How the Cardinals' latest bullpen collapse highlights deeper issues**\
+`The Cardinals want to give young players opportunities, but that's a tricky balance with struggling relievers.`\
+https://nytimes.com/athletic/6303237/2025/04/24/cardinals-collapse-mlb-ryan-fernandez/
+
 **Has Trump’s Tariff Fight Passed Its Peak?**\
 `Many investors and business leaders increasingly believe President Trump will dial back his trade battles. Not everyone is willing to commit to that bet.`\
 https://nytimes.com/2025/04/24/business/dealbook/trump-tariffs-fed-walkback.html
+
+**NHL playoffs daily: Capitals beat Canadiens, Kings conquer Oilers**\
+`In Colorado, the Dallas Stars took a 2-1 series lead over the Avalanche behind a 2-1 win, thanks to a rugged defensive performance.`\
+https://nytimes.com/athletic/6303538/2025/04/24/nhl-playoffs-daily-results-capitals-oilers/
+
+**What Carlos Alcaraz's 'My Way' series says about his tennis present and future**\
+`Alcaraz's window into his 2024 season offers some revelations, but they are stage-managed as much as they are insightful.`\
+https://nytimes.com/athletic/6304336/2025/04/24/carlos-alcaraz-my-way-netflix-review-analysis/
 
 **Jewish Democrats demand answers from Trump on his university crackdown.**\
 `Five Jewish Democrats in the Senate decried what they argued were “extralegal” attacks on the institutions, being carried out under the guise of combating antisemitism on campus.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/24/learning/making-rich-reading-responses-participat
 **Trump Administration Live Updates: President to Discuss War in Ukraine With Norwegian Leaders**\
 ``\
 https://nytimes.com/live/2025/04/24/us/trump-news
-
-**Why Radim Mrtka is one of the 2025 draft's top — and most unique — prospects**\
-`Scouts have been debating who the second-best D prospect in the draft is after Matthew Schaefer. Mrtka might be the answer.`\
-https://nytimes.com/athletic/6296992/2025/04/24/radim-mrtka-2025-nhl-draft-prospect/
-
-**Steelers NFL Draft hub: Picks, grades, fits and scouting reports**\
-`Everything you need to know about the Steelers' 2025 draft class, from Round 1 through Round 7.`\
-https://nytimes.com/athletic/6302548/2025/04/24/steelers-nfl-draft-picks-2025-grades-scouting-reports/
-
-**Former Colorado players say they feel dismissed. Does it matter under Deion Sanders' reign?**\
-`The saga over the retired jerseys has been hotly debated in public and in private, but much is tolerated when a program is winning.`\
-https://nytimes.com/athletic/6302615/2025/04/24/deion-sanders-shedeur-travis-hunter-jersey-retired-colorado/
 
