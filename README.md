@@ -1,3 +1,11 @@
+**The Cubs are creating an environment where Pete Crow-Armstrong is thriving**\
+`As measured by OPS+, Crow-Armstrong’s production, so far, is 48 percent better than the major-league average.`\
+https://nytimes.com/athletic/6305905/2025/04/24/cubs-pete-crow-armstrong-thriving/
+
+**Israel Acknowledges Second Deadly Attack on Aid Workers in Gaza**\
+`In a rare apology to the United Nations, Israel said its forces had struck a U.N. compound in Gaza with tank fire. A Bulgarian aid worker was killed.`\
+https://nytimes.com/2025/04/24/world/middleeast/israel-gaza-aid-workers-deaths.html
+
 **First-round pick Carter Yakemchuk joins Senators for rest of playoffs**\
 `The No. 7 pick in the 2024 draft is expected to be in attendance for Game 3 against Toronto.`\
 https://nytimes.com/athletic/6305882/2025/04/24/senators-carter-yakemchuk-nhl-playoffs/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/24/business/media/ziff-davis-openai-lawsuit.html
 **Alphabet Reports 12% Increase in Revenue**\
 `Google’s parent company, which is battling the government to stay intact after losing two antitrust cases, also said quarterly profit rose 46 percent.`\
 https://nytimes.com/2025/04/24/technology/google-alphabet-earnings.html
-
-**Amsterdam’s Mayor Apologizes for City’s Role in the Holocaust**\
-`The city “horribly abandoned its Jewish residents,” more than 60,000 of whom were deported and killed during World War II, Mayor Femke Halsema said on Thursday.`\
-https://nytimes.com/2025/04/24/world/europe/amsterdam-holocaust-apology-wwii.html
-
-**What Elon Musk Didn’t Budget For: Firing Workers Costs Money, Too**\
-`An expert on the federal work force estimates that the speed and chaos of Mr. Musk’s cuts to the bureaucracy will cost taxpayers $135 billion this fiscal year.`\
-https://nytimes.com/2025/04/24/us/politics/musk-cuts.html
 
