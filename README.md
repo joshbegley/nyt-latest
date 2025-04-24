@@ -1,3 +1,7 @@
+**Interior Department to Fast-Track Oil, Gas and Mining Projects**\
+`The Trump administration plans to dramatically reduce environmental reviews before permitting drilling and mining projects on public lands and in federal waters.`\
+https://nytimes.com/2025/04/23/climate/interior-department-gas-and-mining-projects.html
+
 **Warriors' Jimmy Butler ruled out of Game 2 vs. Rockets with pelvic contusion**\
 `Butler fell on his tailbone area after being undercut in the air by Rockets forward Amen Thompson`\
 https://nytimes.com/athletic/6303793/2025/04/23/jimmy-butler-injury-pelvic-contusion-warriors-nba-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/23/us/army-analyst-selling-secrets-sentenced.html
 **Las Vegas Sands Drops Bid to Open a Casino on Long Island**\
 `The company cited the threat that online gambling posed to its profits in its decision to bow out of the competition for one of three casino licenses around New York City.`\
 https://nytimes.com/2025/04/23/nyregion/las-vegas-sands-casino-nassau-coliseum.html
-
-**12 States Sue Trump Over His Tariffs**\
-`The lawsuit, filed by Democratic attorneys general, said the president’s tariffs have hurt their economies and residents.`\
-https://nytimes.com/2025/04/23/us/politics/states-tariff-trump-lawsuit.html
 
