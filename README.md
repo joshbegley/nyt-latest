@@ -1,40 +1,40 @@
-**World Sevens Football confirms four clubs for new summer soccer tournament**\
-`Four of the eight competing sides for the inaugural W7F were announced on Thursday.`\
-https://nytimes.com/athletic/6284726/2025/04/24/world-sevens-football-man-utd-bayern/
+**Dabo Swinney predicts CFB super league 'sooner rather than later'**\
+`Swinney has been outspoken in recent years against what he sees as the professionalization of college sports.`\
+https://nytimes.com/athletic/6303808/2025/04/24/dabo-swinney-college-football-super-league-clemson/
 
-**Warriors downplay Rockets' physicality after Jimmy Butler's hard fall, Game 2 loss**\
-`The series vs. the Rockets is tied 1-1 and has gotten increasingly chippy. But the Warriors aren't complaining, even after Butler's injury.`\
-https://nytimes.com/athletic/6304220/2025/04/24/warriors-playoffs-jimmy-butler-rockets-physicality/
+**Rockets go bare-knuckle against Steph Curry and Warriors: 'That's who we are'**\
+`Houston refused to let Curry go off in Game 2, and Jalen Green showed his toughness.`\
+https://nytimes.com/athletic/6304199/2025/04/24/rockets-playoffs-game-2-jalen-green/
 
-**Mike Golic, Mike Golic Jr. to team up for show on FanDuel Sports Network**\
-`“Golic & Golic” is expected to air weekdays from 4 p.m. to 6 p.m. ET as a lead-in to the network’s regional games each night.`\
-https://nytimes.com/athletic/6303343/2025/04/24/mike-golic-mike-golic-jr-show-fanduel-sports-network/
+**Making Rich Reading Responses: Participating in Our Summer Contest**\
+`Four key elements that can make a short response sing, illustrated by the written and video work of previous teen winners.`\
+https://nytimes.com/2025/04/24/learning/making-rich-reading-responses-participating-in-our-summer-contest.html
 
-**The Athletic FC: All-time Premier League draft, Vinicius Jr's contract stand-off**\
-`In today's TAFC: An all-time Premier League draft, Vinicius Jr eyes bumper new deal at Real Madrid and Arena questions Pochettino hiring.`\
-https://nytimes.com/athletic/6304209/2025/04/24/premier-league-draft-arena-pochettino/
+**Trump Administration Live Updates: President to Discuss War in Ukraine With Norwegian Leaders**\
+``\
+https://nytimes.com/live/2025/04/24/us/trump-news
 
-**Twins rookie Luke Keaschall running wild, ties MLB record with 5 steals in first 5 games**\
-`The top-100 prospect has jump-started a struggling Twins lineup, hitting .353 and using his speed to wreak havoc on opposing defenses.`\
-https://nytimes.com/athletic/6302929/2025/04/24/twins-luke-keaschall-mlb-steals-record/
+**Why Radim Mrtka is one of the 2025 draft's top — and most unique — prospects**\
+`Scouts have been debating who the second-best D prospect in the draft is after Matthew Schaefer. Mrtka might be the answer.`\
+https://nytimes.com/athletic/6296992/2025/04/24/radim-mrtka-2025-nhl-draft-prospect/
 
-**Down 2-0 to the Kings, the Oilers' list of areas to improve is a long and troubling one**\
-`The Kings are outplaying the Oilers in just about every facet imaginable. There’s a lot to get sorted out, and very little time to do so.`\
-https://nytimes.com/athletic/6304252/2025/04/24/kings-oilers-nhl-playoffs-stanley-cup/
+**Steelers NFL Draft hub: Picks, grades, fits and scouting reports**\
+`Everything you need to know about the Steelers' 2025 draft class, from Round 1 through Round 7.`\
+https://nytimes.com/athletic/6302548/2025/04/24/steelers-nfl-draft-picks-2025-grades-scouting-reports/
 
-**Jamie Vardy to leave Leicester at end of this season**\
-`The 38-year-old has scored the third-most goals in the club's history, with 198 goals in 496 appearances.`\
-https://nytimes.com/athletic/6287219/2025/04/24/jamie-vardy-leicester-next/
+**Former Colorado players say they feel dismissed. Does it matter under Deion Sanders' reign?**\
+`The saga over the retired jerseys has been hotly debated in public and in private, but much is tolerated when a program is winning.`\
+https://nytimes.com/athletic/6302615/2025/04/24/deion-sanders-shedeur-travis-hunter-jersey-retired-colorado/
 
-**Real Madrid and Xabi Alonso: Would now be the right time?**\
-`The Athletic FC Podcast discuss whether now is the right time for Xabi Alonso to take charge of Real Madrid.`\
-https://nytimes.com/athletic/6304433/2025/04/24/ahtletic-fc-podcast-xabi-alonso-real-madrid/
+**Ravens NFL Draft hub: Picks, grades, fits and scouting reports**\
+`Keeping you up to date on all of Baltimore's selections throughout the three-day draft. `\
+https://nytimes.com/athletic/6302036/2025/04/24/ravens-nfl-draft-picks-2025-grades-scouting-reports/
 
-**The NFL Draft is known for the custom suits. The evolution has been inevitable**\
-`The 2025 NFL Draft starts Thursday, and some athletes will introduce their custom-made suits with the sole purpose to showcase their style.`\
-https://nytimes.com/athletic/6301070/2025/04/24/nfl-draft-suits-michael-strahan-tom-marchitelli-ge-wang/
+**As Battle of Ontario travels to Ottawa, which fans will dominate the crowd?**\
+`Leafs fans tend to travel well to the Canadian Tire Centre. The Senators are trying to stop that from happening.`\
+https://nytimes.com/athletic/6303354/2025/04/24/battle-of-ontario-ottawa-tickets-leafs-nhl-playoffs/
 
-**Why is the Kirill Kaprizov-Matt Boldy combo so dynamic, and what does it mean for the Wild?**\
-`Minnesota could have split up Kaprizov and Boldy for scoring-depth purposes, but they've been fantastic together.`\
-https://nytimes.com/athletic/6302528/2025/04/24/kaprizov-boldy-wild-playoffs/
+**Notable NFL Draft slides, from Aaron Rodgers to Will Levis**\
+`Will Colorado QB Shedeur Sanders be a top-10 pick, get taken in the top-20 or could he slide to the second round? `\
+https://nytimes.com/athletic/6302004/2025/04/24/notable-nfl-draft-slides-aaron-rodgers-will-levis/
 
