@@ -1,3 +1,11 @@
+**Seahawks draft OL Grey Zabel: How he fits, pick grade and scouting intel**\
+`Zabel, a consensus All-American and Senior Bowl standout at North Dakota State, finds a home in the NFL Draft. `\
+https://nytimes.com/athletic/6273190/2025/04/24/grey-zabel-seahwks-nfl-draft/
+
+**Cam Ward, Tennessee Titans savior? No. 1 pick is a good prospect in a bad situation**\
+`Save them, Cam Ward. Save the fans of Nashville. Save the people who drafted you. Save the franchise. `\
+https://nytimes.com/athletic/6306875/2025/04/24/cam-ward-titans-quarterback-no-1-pick/
+
 **Bengals draft edge Shemar Stewart: How he fits, draft grade and scouting intel**\
 `The ultimate traits-versus-production prospect, Stewart is one of the best athletes we've seen, but his production at Texas A&M was limited.`\
 https://nytimes.com/athletic/6279804/2025/04/24/shemar-stewart-bengals-nfl-draft/

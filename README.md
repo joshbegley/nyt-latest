@@ -1,3 +1,15 @@
+**Clay Matthews, invoking Donald Trump, trolls Bears at NFL Draft**\
+`Matthews' joke quickly became the latest notable moment of trolling rival teams at the draft.`\
+https://nytimes.com/athletic/6306705/2025/04/24/trump-clay-matthews-bears-nfl-draft-2025/
+
+**The Zuckerbergs Founded Two Bay Area Schools. Now They’re Closing.**\
+`Mark Zuckerberg and his wife, Dr. Priscilla Chan, opened the schools to help communities of color. Some families wonder if the shutting of the schools is related to his D.E.I. retrenchment.`\
+https://nytimes.com/2025/04/24/us/school-closure-zuckerberg-chan.html
+
+**Buccaneers draft Ohio State WR Emeka Egbuka: How he fits, pick grade and scouting intel**\
+`Egbuka, Ohio State's all-time leader in receptions, joins Tampa Bay following a storybook ending to a standout collegiate career.`\
+https://nytimes.com/athletic/6285108/2025/04/24/emeka-egbuka-buccaneers-nfl-draft/
+
 **Seahawks draft OL Grey Zabel: How he fits, pick grade and scouting intel**\
 `Zabel, a consensus All-American and Senior Bowl standout at North Dakota State, finds a home in the NFL Draft. `\
 https://nytimes.com/athletic/6273190/2025/04/24/grey-zabel-seahwks-nfl-draft/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6306601/2025/04/24/panthers-lightning-nhl-playoffs-
 **Cardinals draft DT Walter Nolen: How he fits, pick grade and scouting intel**\
 `Nolen had a breakout year with Ole Miss, contributing to one of the best pass-rushing units in the FBS last year. `\
 https://nytimes.com/athletic/6273053/2025/04/24/walter-nolen-cardinals-nfl-draft/
-
-**Mets activate Jeff McNeil, Francisco Alvarez from IL, option Brett Baty**\
-`McNeil’s return presents an interesting daily decision for Mets manager Carlos Mendoza.`\
-https://nytimes.com/athletic/6306944/2025/04/24/mets-activate-jeff-mcneil-francisco-alvarez/
-
-**Jets NFL Draft hub: Picks, grades, fits and scouting reports**\
-`It's the first draft class of the Aaron Glenn-Darren Mougey era in New York.`\
-https://nytimes.com/athletic/6302491/2025/04/24/jets-nfl-draft-picks-2025-grades-scouting-reports/
-
-**NFL uses draft to set schedule release date: May 14**\
-`The schedule release will be broadcast on NFL Network.`\
-https://nytimes.com/athletic/6306750/2025/04/24/nfl-schedule-announcement/
 
