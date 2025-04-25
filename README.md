@@ -1,3 +1,19 @@
+**NFL Draft best available players for Eagles: Tate Ratledge, Mason Taylor**\
+`The Eagles enter Day 2 with six picks left to use in the draft.`\
+https://nytimes.com/athletic/6306642/2025/04/25/eagles-2025-draft-best-available/
+
+**NFL Draft best available players for Buffalo Bills: Donovan Ezeiruaku, T.J. Sanders**\
+`The Bills still have several needs to fill the in remaining rounds.`\
+https://nytimes.com/athletic/6306620/2025/04/25/bills-2025-draft-best-available/
+
+**Brighton's Van Hecke ruled out of West Ham clash with head injury**\
+`The 24-year-old will miss the game due to suffering a head injury in last Saturday's 4-2 defeat at Brentford.`\
+https://nytimes.com/athletic/6308660/2025/04/25/brighton-west-ham-team-news-van-hecke/
+
+**The New York Times International Edition in Print for Saturday, April 26, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/04/25/todays-new-york-times-international-edition
+
 **Barcelona's Lewandowski and Balde to miss Copa del Rey final vs Madrid**\
 `Both players are sidelined with hamstring issues sustained earlier this month.`\
 https://nytimes.com/athletic/6304500/2025/04/25/barcelona-lewandowski-balde-copa-del-rey/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/04/25/opinion/ezra-klein-podcast-ross-douthat.html
 **Watch Ben Affleck Line Dance in ‘The Accountant 2’**\
 `The director Gavin O’ Connor narrates a sequence from the film featuring the actor and Jon Bernthal.`\
 https://nytimes.com/2025/04/25/movies/watch-ben-affleck-line-dance-in-the-accountant-2.html
-
-**The Terrifying Prospect of Trump’s Peace Plan for Ukraine**\
-`Assenting to Russia’s annexation of Crimea would have global consequences.`\
-https://nytimes.com/2025/04/25/opinion/trump-ukraine-peace.html
-
-**An Artist’s Journey From the Soviet Union to the Frick**\
-`Years ago, Vladimir Kanevsky’s floral sculptures started turning up in Manhattan’s most elegant living rooms. Now his work is on display alongside masterpieces.`\
-https://nytimes.com/2025/04/25/style/an-artists-journey-from-the-soviet-union-to-the-frick.html
-
-**Kennedy Wants to Ban Some Food Dyes. Here’s What the Data Shows.**\
-`The federal health department has said it will move to phase out eight artificial dyes, citing health concerns.`\
-https://nytimes.com/2025/04/25/well/food-dyes-ban.html
-
-**Protein Is in Everything These Days. Even Popcorn.**\
-`Social media has fueled a “proteinification” of snacks, and Khloé Kardashian is hopping on board with a line of enhanced popcorn.`\
-https://nytimes.com/2025/04/25/style/khloe-kardashian-protein-popcorn-khloud.html
 
