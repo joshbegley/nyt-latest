@@ -1,3 +1,7 @@
+**La Liga? Serie A? Liga MX? Inside the battle to play league games in USA**\
+`With courts green-lighting foreign league matches to be held on U.S. soil, the ball is at FIFA's feet – and plenty stakeholders are waiting`\
+https://nytimes.com/athletic/6302542/2025/04/25/la-liga-serie-a-premier-league-la-liga-matches-usa-fifa-relevent/
+
 **Drafting Josh Conerly Jr. to further protect Jayden Daniels was always Commanders' plan**\
 `“What we discussed beforehand was if (Conerly) was on the board, we weren’t going to trade back,” Washington GM Adam Peters said. `\
 https://nytimes.com/athletic/6308356/2025/04/25/commanders-josh-conerly-nfl-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/25/nyregion/nyc-abandoned-railroad-tracks-queens.htm
 **He’s a Foe of D.E.I. in Schools but Not a Fan of Trump’s Crusade**\
 `Steven Wilson was forced out of the charter school network he started for an essay that conflicted with antiracism initiatives. Five years later, he feels both vindicated and dismayed.`\
 https://nytimes.com/2025/04/25/nyregion/steven-wilson-trump-dei.html
-
-**Climbing Out of Flames**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2025/04/25/learning/climbing-out-of-flames.html
 
