@@ -1,3 +1,15 @@
+**Clay Matthews, invoking Donald Trump, trolls Bears at NFL Draft**\
+`Matthews' joke quickly became the latest notable moment of trolling rival teams at the draft.`\
+https://nytimes.com/athletic/6306705/2025/04/24/trump-clay-matthews-bears-nfl-draft-2025/
+
+**The Zuckerbergs Founded Two Bay Area Schools. Now They’re Closing.**\
+`Mark Zuckerberg and his wife, Dr. Priscilla Chan, opened the schools to help communities of color. Some families wonder if the shutting of the schools is related to his D.E.I. retrenchment.`\
+https://nytimes.com/2025/04/24/us/school-closure-zuckerberg-chan.html
+
+**Buccaneers draft Ohio State WR Emeka Egbuka: How he fits, pick grade and scouting intel**\
+`Egbuka, Ohio State's all-time leader in receptions, joins Tampa Bay following a storybook ending to a standout collegiate career.`\
+https://nytimes.com/athletic/6285108/2025/04/24/emeka-egbuka-buccaneers-nfl-draft/
+
 **Seahawks draft OL Grey Zabel: How he fits, pick grade and scouting intel**\
 `Zabel, a consensus All-American and Senior Bowl standout at North Dakota State, finds a home in the NFL Draft. `\
 https://nytimes.com/athletic/6273190/2025/04/24/grey-zabel-seahwks-nfl-draft/
