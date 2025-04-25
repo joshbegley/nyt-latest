@@ -1,3 +1,7 @@
+**Markets Rise on Hints of Easing Trade Tensions**\
+`Stocks were pointing toward a fourth straight positive trading session.`\
+https://nytimes.com/2025/04/25/business/trump-tariffs-stocks-sandp-500.html
+
 **La Liga? Serie A? Liga MX? Inside the battle to play league games in USA**\
 `With courts green-lighting foreign league matches to be held on U.S. soil, the ball is at FIFA's feet – and plenty stakeholders are waiting`\
 https://nytimes.com/athletic/6302542/2025/04/25/la-liga-serie-a-premier-league-la-liga-matches-usa-fifa-relevent/
