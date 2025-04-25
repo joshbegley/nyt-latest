@@ -1,3 +1,7 @@
+**Offseason Canucks depth chart: Trade chips, roster holes, free agents and more**\
+`The Canucks have some major gaps in the lineup that will need to be creatively and effectively filled.`\
+https://nytimes.com/athletic/6308575/2025/04/25/canucks-depth-chart-offseason-2025/
+
 **The Bounce: Five NBA playoff storylines to watch this weekend. Plus, awards season is here!**\
 `In the 500th edition of The Bounce, Zach Harper examines the five biggest playoff storylines ahead of the weekend`\
 https://nytimes.com/athletic/6309369/2025/04/25/nba-playoffs-lebron-james-anthony-edwards-lakers-timberwolves-nba-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6309263/2025/04/25/daniel-farke-leeds-future/
 **It’s Teriyaki Time**\
 `Make this five-star recipe for Seattle-style chicken teriyaki, or make the sauce to gloss over whatever you’d like.`\
 https://nytimes.com/2025/04/25/dining/best-chicken-teriyaki-recipe.html
-
-**Man City's Hemp to return against Leicester after five months out**\
-`Hemp was ruled out of England's matches against the United States and Switzerland in November after undergoing knee surgery.`\
-https://nytimes.com/athletic/6309299/2025/04/25/lauren-hemp-manchester-city-return/
 
