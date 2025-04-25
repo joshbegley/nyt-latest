@@ -1,3 +1,7 @@
+**Colts draft TE Tyler Warren: How he fits, pick grade and scouting intel**\
+`The Penn State tight end set school and Big Ten records with 104 receptions for 1,233 yards in his senior season.`\
+https://nytimes.com/athletic/6264266/2025/04/24/tyler-warren-colts-nfl-draft/
+
 **Dolphins draft DT Kenneth Grant: How he fits, pick grade and scouting intel**\
 `Grant was the No. 3 defensive tackle in Dane Brugler's "The Beast" and played a vital role on Michigan's title-winning defense in 2023.`\
 https://nytimes.com/athletic/6268004/2025/04/24/kenneth-grant-dolphins-nfl-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6264327/2025/04/24/colston-loveland-bears-nfl-draft
 **Piercing the Shadows of the Pope’s Favorite Painting**\
 `Caravaggio was an artist of rare directness, whose naturalistic pictures brought the heavens down to earth. Our critic Jason Farago shows you what Francis may have seen in them.`\
 https://nytimes.com/interactive/2025/04/24/arts/pope-francis-caravaggio.html
-
-**Saints draft Kelvin Banks Jr.: How he fits, pick grade and scouting intel**\
-`Banks ended his final season at Texas by winning the Outland Trophy and the Lombardi Award, presented to the nation's best lineman.`\
-https://nytimes.com/athletic/6271307/2025/04/24/kelvin-banks-jr-saints-nfl-draft/
 

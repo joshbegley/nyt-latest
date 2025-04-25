@@ -1,3 +1,15 @@
+**Dolphins draft DT Kenneth Grant: How he fits, pick grade and scouting intel**\
+`Grant was the No. 3 defensive tackle in Dane Brugler's "The Beast" and played a vital role on Michigan's title-winning defense in 2023.`\
+https://nytimes.com/athletic/6268004/2025/04/24/kenneth-grant-dolphins-nfl-draft/
+
+**Giants overcome mistakes, take advantage of mistakes, win series**\
+`Continuity in the lineup and growing confidence seem to be helping the Giants get off to their best start since 2003.`\
+https://nytimes.com/athletic/6306346/2025/04/24/sf-giants-overcoming-mistakes-brewers/
+
+**49ers NFL Draft hub: Picks, grades, fits and scouting reports**\
+`Keep coming back throughout the draft for grades and expert analysis of each 49ers pick.`\
+https://nytimes.com/athletic/6299432/2025/04/24/49ers-nfl-draft-picks-2025-grades-scouting-reports/
+
 **Cowboys draft G Tyler Booker: How he fits, pick grade and scouting intel**\
 `Booker, a physical, 6-foot-5, 321-pound guard, broke out in his third year in Alabama, and was named a first-team All-American. `\
 https://nytimes.com/athletic/6273382/2025/04/24/tyler-booker-cowboys-nfl-draft/

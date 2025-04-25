@@ -1,3 +1,15 @@
+**Dolphins draft DT Kenneth Grant: How he fits, pick grade and scouting intel**\
+`Grant was the No. 3 defensive tackle in Dane Brugler's "The Beast" and played a vital role on Michigan's title-winning defense in 2023.`\
+https://nytimes.com/athletic/6268004/2025/04/24/kenneth-grant-dolphins-nfl-draft/
+
+**Giants overcome mistakes, take advantage of mistakes, win series**\
+`Continuity in the lineup and growing confidence seem to be helping the Giants get off to their best start since 2003.`\
+https://nytimes.com/athletic/6306346/2025/04/24/sf-giants-overcoming-mistakes-brewers/
+
+**49ers NFL Draft hub: Picks, grades, fits and scouting reports**\
+`Keep coming back throughout the draft for grades and expert analysis of each 49ers pick.`\
+https://nytimes.com/athletic/6299432/2025/04/24/49ers-nfl-draft-picks-2025-grades-scouting-reports/
+
 **Cowboys draft G Tyler Booker: How he fits, pick grade and scouting intel**\
 `Booker, a physical, 6-foot-5, 321-pound guard, broke out in his third year in Alabama, and was named a first-team All-American. `\
 https://nytimes.com/athletic/6273382/2025/04/24/tyler-booker-cowboys-nfl-draft/
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2025/04/24/arts/pope-francis-caravaggio.html
 **Saints draft Kelvin Banks Jr.: How he fits, pick grade and scouting intel**\
 `Banks ended his final season at Texas by winning the Outland Trophy and the Lombardi Award, presented to the nation's best lineman.`\
 https://nytimes.com/athletic/6271307/2025/04/24/kelvin-banks-jr-saints-nfl-draft/
-
-**Panthers draft WR Tetairoa McMillan: How he fits, pick grade and scouting intel**\
-`McMillan led the Big 12 with 1,319 receiving yards in 2024 and scored 26 touchdowns in three seasons at Arizona.`\
-https://nytimes.com/athletic/6268043/2025/04/24/tetairoa-mcmillan-panthers-nfl-draft/
-
-**Raiders NFL Draft hub: Picks, grades, fits and scouting reports**\
-`Keep coming back throughout the draft for grades and expert analysis of each Raiders pick.`\
-https://nytimes.com/athletic/6287651/2025/04/24/raiders-nfl-draft-picks-2025-grades-scouting-reports/
-
-**Jets draft OT Armand Membou: How he fits, draft grade and scouting intel**\
-`The Missouri offensive lineman was a second-team All-SEC selection in 2024 and tested well at the NFL Scouting Combine. `\
-https://nytimes.com/athletic/6270010/2025/04/24/armand-membou-jets-nfl-draft/
 
