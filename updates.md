@@ -1,3 +1,11 @@
+**What Constitutes Cheating at Wordle?**\
+`A ruling on the use of friends’ “Wordle skeletons” to solve the puzzle.`\
+https://nytimes.com/interactive/2025/04/25/magazine/27mag-hodgmanquiz.html
+
+**Cubs had offseason trade ready for Jesús Luzardo, but backed out due to medical concerns**\
+`The lefty, who was later dealt by the Marlins to the Phillies, will face the Cubs on Saturday at Wrigley Field.`\
+https://nytimes.com/athletic/6310063/2025/04/25/jesus-luzardo-phillies-cubs-marlins-trade-medical/
+
 **Liverpool tickets for potential title coronation listed for £3,000 online**\
 `Arne Slot’s side need just a point on Sunday to be guaranteed top spot.`\
 https://nytimes.com/athletic/6310087/2025/04/25/liverpool-tottenham-ticket-prices-title/
