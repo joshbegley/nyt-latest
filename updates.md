@@ -1,3 +1,7 @@
+**Man Is Fatally Stabbed After Fight on Subway Train in Manhattan**\
+`The killing occurred after the man got into a fight with his assailant on a downtown No. 5 train during the morning rush hour, officials said.`\
+https://nytimes.com/2025/04/25/nyregion/fatal-subway-stabbing-nyc.html
+
 **The Trump Administration Wants Seafloor Mining. What Does That Mean?**\
 `A recent executive order would accelerate mining in little-understood undersea ecosystems.`\
 https://nytimes.com/2025/04/25/climate/seafloor-mining-science.html
