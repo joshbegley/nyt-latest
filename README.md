@@ -1,3 +1,7 @@
+**Lions draft DT Tyleik Williams: How he fits, pick grade and scouting intel**\
+`Williams started 25 games across four seasons at Ohio State and was Dan Brugler's No. 5 overall defensive tackle.`\
+https://nytimes.com/athletic/6307392/2025/04/24/tyleik-williams-lions-nfl-draft/
+
 **Ravens NFL Draft hub: Picks, grades, fits and scouting reports**\
 `Keeping you up to date on all of Baltimore's selections throughout the three-day draft. `\
 https://nytimes.com/athletic/6302036/2025/04/24/ravens-nfl-draft-picks-2025-grades-scouting-reports/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6279055/2025/04/24/james-pearce-jr-faclons-nfl-draf
 **Quote of the Day: Deadliest Russian Assault on Kyiv in Nearly a Year**\
 `Quotation of the Day for Friday, April 25, 2025.`\
 https://nytimes.com/2025/04/24/pageoneplus/quote-of-the-day-deadliest-russian-assault-on-kyiv-in-nearly-a-year.html
-
-**Giants draft QB Jaxson Dart: How he fits, draft grade and scouting intel**\
-`During his time at Ole Miss, Dart set several school records, including most wins by a starting quarterback and most passing yards.`\
-https://nytimes.com/athletic/6269796/2025/04/24/jaxson-dart-giants-nfl-draft/
 
