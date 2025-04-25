@@ -1,3 +1,7 @@
+**What's the delay on an Alexander Nikishin contract? Why the Hurricanes aren't concerned**\
+`A quote from the prospect's agent Friday stoked fears that he could request a trade or return to Russia, but the Canes are not concerned.`\
+https://nytimes.com/athletic/6310107/2025/04/25/alexander-nikishins-contract-hurricanes/
+
 **Derrick Harmon's mother dies after Steelers draft him on 'bittersweet' night**\
 `The Steelers' first-round pick calls his mother, Tiffany Saine, his "why," after she fought through several brain surgeries and a stroke.`\
 https://nytimes.com/athletic/6310096/2025/04/25/derrick-harmon-mother-death-nfl-draft-steelers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6309486/2025/04/25/chelsea-palmer-form-maresca/
 **Postecoglou says he is 'trying to change the perception' of Tottenham**\
 `The 59-year-old has previously criticised what he sees as a lack of defence of Spurs in the media.`\
 https://nytimes.com/athletic/6310076/2025/04/25/ange-postecoglou-tottenham-perception/
-
-**Government Notices to Migrants Fall Short of Due Process, Legal Experts Say**\
-`Venezuelan migrants were given English-only notices with limited time to file court challenges, according to a newly unsealed declaration.`\
-https://nytimes.com/2025/04/25/us/politics/trump-migrants-due-process.html
 
