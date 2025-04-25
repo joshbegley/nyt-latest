@@ -1,40 +1,40 @@
-**The Athletic FC: Battle to stage league games in U.S., Ronaldo - from 'God' to 'devil'**\
-`Today in TAFC: The race between leagues to stage a game in the U.S., Vardy's Leicester party is over, team that Ronaldo owns is relegated.`\
-https://nytimes.com/athletic/6308666/2025/04/25/premier-league-matches-united-states/
+**The Oilers look toast, but it would be a mistake to suggest they're done**\
+`Despite heading to Rogers place down 2-0 in the series, there's still plenty of reasons to believe the Oilers can turn it around.`\
+https://nytimes.com/athletic/6306341/2025/04/25/oilers-nhl-playoffs-slump-kings/
 
-**Shedeur Sanders dominates, Nick Saban shines: NFL Draft TV coverage takeaways**\
-`Each network provided analysis, with ESPN's Nick Saban arguably doing it best, and the NFL made an announcement, about an announcement.`\
-https://nytimes.com/athletic/6305169/2025/04/25/nfl-draft-shedeur-sanders-nick-saban-tv-review/
+**Rotation no more? Frederik Andersen has seized the Hurricanes' net in the playoffs**\
+`Carolina rode Andersen and Pyotr Kochetkov equally to end the regular season, but the 'even keel' Andersen appears to be the playoff go-to.`\
+https://nytimes.com/athletic/6306333/2025/04/25/frederik-andersen-hurricanes-goalie-rotation/
 
-**LGBTQ+ activist condemns homophobic abuse towards Barcelona defender Fort**\
-`Lamoure said the 18-year-old Barcelona defender had received homophobic messages largely from "very young women".`\
-https://nytimes.com/athletic/6308705/2025/04/25/barcelona-hector-fort-homophobic-abuse/
+**What I'm hearing about the Islanders' next moves after firing Lou Lamoriello**\
+`The Islanders are searching for a new general manager and maybe team president, depending on how they decide to split the job.`\
+https://nytimes.com/athletic/6305217/2025/04/25/islanders-gm-search-lamoriello/
 
-**Tottenham Hotspur captain Son a doubt for Europa League semi-final**\
-`Son, 32, has missed their last three games in all competitions, including the second leg of their Europa League quarter-final last week.`\
-https://nytimes.com/athletic/6308821/2025/04/25/spurs-liverpool-team-news-son-europa-league/
+**What's with North Carolina's 'lukewarm' start under Bill Belichick? Recruiting mailbag**\
+`How common is it for coordinators not to hit the road for recruiting visits? Will the House settlement send more recruits to lower-tier P4s?`\
+https://nytimes.com/athletic/6302752/2025/04/25/college-football-recruiting-north-carolina-bill-belichick/
 
-**Israeli Prime Minister Offers Condolences Three Days After Pope’s Death**\
-`The delay in issuing a statement reflected apparent tensions between Israel and Francis, who criticized Israel’s conduct in the war in Gaza.`\
-https://nytimes.com/2025/04/25/world/middleeast/netanyahu-pope-francis-death-condolences.html
+**NFL Draft best available players for Chargers: Will Johnson, Mason Taylor**\
+`Who might the Los Angeles Chargers select next? Take a look at some of the various options at different positions in the 2025 NFL Draft.`\
+https://nytimes.com/athletic/6307471/2025/04/25/chargers-2025-nfl-draft-best-available/
 
-**Too Big to Tariff?**\
-`Washington and Beijing increasingly look likely to de-escalate their trade war. But the economic damage and ongoing uncertainty may persist for a while.`\
-https://nytimes.com/2025/04/25/business/dealbook/tariffs-trade-war-exceptions.html
+**Trump Administration Live Updates: President Tells Putin to Stop Bombing Ukraine and Presses for Peace**\
+``\
+https://nytimes.com/live/2025/04/25/us/trump-news
 
-**Grizzlies shellshocked by Ja Morant’s ‘frustrating’ hip injury, Thunder's 29-point comeback**\
-`Through 21 minutes of Game 3, the Grizzlies felt like things were finally going their way. Then everything came crashing down.`\
-https://nytimes.com/athletic/6308614/2025/04/25/ja-morant-injury-grizzlies-loss-thunder/
+**Q&A: Angels hitting coach Johnny Washington discusses team's extended offensive slump**\
+`The Angels have scored more than four runs in a game just once in their last 12 outings.`\
+https://nytimes.com/athletic/6307635/2025/04/25/angels-hitting-coach-johnny-washington-offensive-slump/
 
-**Row Z: Potter cries conspiracy, farewell Riza and the FIFA jamboree on Channel 5**\
-`Our weekly look at the absurd side of the game also takes in Chelsea's daily spend and how clubs react to Premier League relegation`\
-https://nytimes.com/athletic/6308682/2025/04/25/potter-riza-fifa-chelsea-row-z/
+**NFL Draft best available players for San Francisco 49ers: Darius Alexander, Anthony Belton**\
+`Even after adding edge rusher Mykel Williams on Thursday, the 49ers say they aren't done selecting defensive linemen in this year's draft.`\
+https://nytimes.com/athletic/6307707/2025/04/25/49ers-2025-nfl-draft-best-available/
 
-**The Pulse: A beautifully chaotic NFL Draft begins**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6305524/2025/04/25/nfl-draft-first-round-travis-hunter-the-pulse/
+**What would a nightmare Bruins offseason look like? Seven steps to repeated misery**\
+`How could things go from bad to worse? Easily — if the Bruins mangle their top offseason priorities.`\
+https://nytimes.com/athletic/6306072/2025/04/25/bruins-nightmare-offseason-coaching-search/
 
-**Patrick Adiarte, Actor Seen in Musicals and on ‘M*A*S*H,’ Dies at 82**\
-`As a young immigrant from the Philippines, he had roles on Broadway in “The King and I” and “Flower Drum Song.” He was later a familiar face on TV.`\
-https://nytimes.com/2025/04/25/arts/television/patrick-adiarte-dead.html
+**Mailbag: An NHL offer sheet for Penguins to consider**\
+`Let's dig into a possible look toward Western New York and many other Penguins offseason items.`\
+https://nytimes.com/athletic/6302560/2025/04/25/penguins-nhl-offer-sheet/
 
