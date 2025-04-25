@@ -1,3 +1,11 @@
+**Lightning on the ropes as Panthers shut down Tampa Bay star power**\
+`The Lightning's big names have struggled so far against stingy Florida, and they're running out of time.`\
+https://nytimes.com/athletic/6309746/2025/04/25/lightning-panthers-nhl-playoffs-stars/
+
+**Micah Parsons wanted Tetairoa McMillan, but calls Tyler Booker 'a beast'**\
+`“I’m hurt. He was supposed to be opposite of CeeDee Lamb," Micah Parsons said on his live show during Round 1 of the NFL Draft.`\
+https://nytimes.com/athletic/6309801/2025/04/25/cowboys-micah-parsons-tetairoa-mcmillan-comments-nfl-draft/
+
 **New York Rangers roster tiers: Who stays and who goes this offseason?**\
 `From Chris Kreider to K'Andre Miller to Alexis Lafrenière, here's which Rangers are likeliest to be on the move this summer.`\
 https://nytimes.com/athletic/6309561/2025/04/25/rangers-offseason-roster-trades-free-agency/
