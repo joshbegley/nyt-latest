@@ -1,3 +1,7 @@
+**Jimmy Kimmel Mocks Pete Hegseth’s Rumored Pentagon Makeup Studio**\
+`“Nothing sparks fear in the hearts of our enemies like a defense secretary who puts foundation on his face,” Kimmel said.`\
+https://nytimes.com/2025/04/25/arts/television/jimmy-kimmel-pete-hegseth-makeup.html
+
 **Why the Browns were wise to trade their No. 2 pick and look toward the future**\
 `Cleveland GM Andrew Berry and company traded back to No. 5, added a second-round pick and a 2026 first-rounder in a deal with the Jaguars.`\
 https://nytimes.com/athletic/6307621/2025/04/25/browns-nfl-draft-trade-mason-graham/
