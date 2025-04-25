@@ -1,3 +1,7 @@
+**Rosenior extends Strasbourg contract until 2028**\
+`The 40-year-old turned down multiple approaches from Premier League clubs to commit to the Ligue 1 side.`\
+https://nytimes.com/athletic/6310012/2025/04/25/liam-rosenior-strasbourg-contract-blueco/
+
 **'I'm not f------ around:' Herro fires back after Garland's remark on defense**\
 `After Garland said the Cavaliers' strategy was to pick on him, Herro said Somebody that doesn’t play defense shouldn’t be talking either."`\
 https://nytimes.com/athletic/6309871/2025/04/25/tyler-herro-darius-garland-defense-comments/

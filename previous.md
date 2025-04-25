@@ -1,3 +1,7 @@
+**Rosenior extends Strasbourg contract until 2028**\
+`The 40-year-old turned down multiple approaches from Premier League clubs to commit to the Ligue 1 side.`\
+https://nytimes.com/athletic/6310012/2025/04/25/liam-rosenior-strasbourg-contract-blueco/
+
 **'I'm not f------ around:' Herro fires back after Garland's remark on defense**\
 `After Garland said the Cavaliers' strategy was to pick on him, Herro said Somebody that doesn’t play defense shouldn’t be talking either."`\
 https://nytimes.com/athletic/6309871/2025/04/25/tyler-herro-darius-garland-defense-comments/
@@ -33,8 +37,4 @@ https://nytimes.com/issue/magazine/2025/04/25/the-42725-issue
 **Five Takeaways From the Times/Siena Poll**\
 `Voters think President Trump has gone too far in wielding his power. They see the start of his term as “scary” and “chaotic.” And while it’s still early, they disapprove of his handling of many issues.`\
 https://nytimes.com/2025/04/25/us/politics/trump-times-siena-poll-highlights.html
-
-**Former South Carolina star guard MiLaysia Fulwiley transferring to LSU**\
-`Fulwiley, having averaged 11.7 points, 2.8 rebounds and 2 assists in only 19 minutes per game last season, highlights a revamped LSU roster.`\
-https://nytimes.com/athletic/6309897/2025/04/25/milaysia-fulwiley-transfer-lsu-south-carolina/
 
