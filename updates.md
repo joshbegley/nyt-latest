@@ -1,3 +1,7 @@
+**Trump Says U.S. Could Lead Military Action Against Iran if Talks Collapse**\
+`The president said he would be “leading the pack” against Iran if it did not agree to a nuclear deal, but he said he was open to meeting Iranian leaders.`\
+https://nytimes.com/2025/04/25/us/politics/iran-israel-nuclear-talks.html
+
 **Maresca: Nkunku to return to Chelsea squad for Everton game**\
 `Nkunku had been dropped from the squad for the 2-1 win over Fulham, with youngster Tyrique George coming off the bench to score the winner.`\
 https://nytimes.com/athletic/6309151/2025/04/25/christopher-nkunku-chelsea-enzo-maresca/
