@@ -1,3 +1,7 @@
+**Trump Says U.S. Could Lead Military Action Against Iran if Talks Collapse**\
+`The president said he would be “leading the pack” against Iran if it did not agree to a nuclear deal, but he said he was open to meeting Iranian leaders.`\
+https://nytimes.com/2025/04/25/us/politics/iran-israel-nuclear-talks.html
+
 **Maresca: Nkunku to return to Chelsea squad for Everton game**\
 `Nkunku had been dropped from the squad for the 2-1 win over Fulham, with youngster Tyrique George coming off the bench to score the winner.`\
 https://nytimes.com/athletic/6309151/2025/04/25/christopher-nkunku-chelsea-enzo-maresca/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6306636/2025/04/25/andrei-kuzmenko-kings-offense-nh
 **Browns NFL Draft hub: Picks, grades, fits and scouting reports**\
 `Keeping you up to date on all of Cleveland's selections throughout the three-day draft. `\
 https://nytimes.com/athletic/6302161/2025/04/25/browns-nfl-draft-picks-2025-grades-scouting-reports/
-
-**At the Time 100 Gala, Fame Came in Many Forms**\
-`In an event that mixed notoriety with earnestness, celebrities like Gayle King and Blake Lively rubbed elbows with athletes and activists.`\
-https://nytimes.com/2025/04/25/style/time100-gala.html
 
