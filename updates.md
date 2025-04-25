@@ -1,3 +1,19 @@
+**Ukrainian Peace Plan Hints at Concessions, but Major Obstacles Remain**\
+`Officials in Kyiv plan to deliver their proposal to President Trump’s team, after rejecting a White House plan that would have given the Kremlin much of what it wants.`\
+https://nytimes.com/2025/04/25/world/europe/ukraine-peace-counterproposal.html
+
+**Browns draft RB Quinshon Judkins: How he fits, pick grade and scouting intel**\
+`Judkins led Ohio State's national championship team in rushing yards (1,060) and rushing touchdowns (14) last season.`\
+https://nytimes.com/athletic/6273632/2025/04/25/quinshon-judkins-browns-nfl-draft/
+
+**Seahawks draft safety Nick Emmanwori: How he fits, draft grade and scouting intel**\
+`The South Carolina defensive standout was one of three college players to return two interceptions for touchdowns in 2024.`\
+https://nytimes.com/athletic/6264622/2025/04/25/nick-emmanwori-seahawks-nfl-draft/
+
+**Judge Blocks Trump Order Ending Union Protections for Federal Workers**\
+`An order signed by President Trump last month was aimed at stripping collective bargaining rights from hundreds of thousands of federal workers.`\
+https://nytimes.com/2025/04/25/us/politics/judge-blocks-trump-order-ending-union-protections-for-federal-workers.html
+
 **Browns draft LB Carson Schwesinger: How he fits, pick grade and scouting intel**\
 `Following a breakout season in which he led all Division I players in tackles, the UCLA linebacker was a first-team AP All-American.`\
 https://nytimes.com/athletic/6267886/2025/04/25/carson-schwesinger-browns-nfl-draft/
