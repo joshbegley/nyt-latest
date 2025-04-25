@@ -1,3 +1,7 @@
+**Trump Budget to Take Ax to ‘Radical’ Safety Net Programs**\
+`A draft document outlines steep cuts or the elimination of funding for programs that provide child care, housing assistance, foreign aid and health research.`\
+https://nytimes.com/2025/04/25/us/politics/trump-budget-cuts.html
+
 **NBA playoff trends I'm watching: Thunder's new wrinkle; postseason blast from the past**\
 `The eye test says physicality has increased in these playoffs. So has the number of players hitting the ground each game.`\
 https://nytimes.com/athletic/6309388/2025/04/25/nba-playoff-trends-okc-thunder-physicality-defense/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/25/world/asia/united-states-china-trade-fight.html
 **‘Real Women Have Curves’ Is Now a Broadway Show. Here Are 5 Things to Know.**\
 `The new musical is based on Josefina López’s original play and the 2002 film adaptation that starred America Ferrera.`\
 https://nytimes.com/2025/04/25/theater/real-women-have-curves-broadway.html
-
-**Capital Burger, $3,000 in Cash and a D.H.S. Badge: A Washington Mystery**\
-`Kristi Noem, the top official charged with patrolling the nation’s borders and protecting it from terrorist threats, was burgled in plain view of her security detail.`\
-https://nytimes.com/2025/04/25/us/politics/noem-stolen-purse-homeland-security.html
 

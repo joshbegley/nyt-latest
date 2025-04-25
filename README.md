@@ -1,3 +1,7 @@
+**Read the F.B.I.’s Charging Document**\
+`The F.B.I. filed this document on Thursday in the case of Judge Hannah Dugan, who was arrested on Friday.`\
+https://nytimes.com/interactive/2025/04/25/us/judgedugancomplaint.html
+
 **Trump Budget to Take Ax to ‘Radical’ Safety Net Programs**\
 `A draft document outlines steep cuts or the elimination of funding for programs that provide child care, housing assistance, foreign aid and health research.`\
 https://nytimes.com/2025/04/25/us/politics/trump-budget-cuts.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6309127/2025/04/25/real-madrid-barcelona-de-burgos-
 **In Trade War Clash With Washington, China Refuses to Take the Bait**\
 `The Trump administration has been saying that the two countries are engaged in talks to resolve the dispute, but Beijing asserts that no such discussions are happening.`\
 https://nytimes.com/2025/04/25/world/asia/united-states-china-trade-fight.html
-
-**‘Real Women Have Curves’ Is Now a Broadway Show. Here Are 5 Things to Know.**\
-`The new musical is based on Josefina López’s original play and the 2002 film adaptation that starred America Ferrera.`\
-https://nytimes.com/2025/04/25/theater/real-women-have-curves-broadway.html
 

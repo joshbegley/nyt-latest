@@ -1,3 +1,7 @@
+**Trump Budget to Take Ax to ‘Radical’ Safety Net Programs**\
+`A draft document outlines steep cuts or the elimination of funding for programs that provide child care, housing assistance, foreign aid and health research.`\
+https://nytimes.com/2025/04/25/us/politics/trump-budget-cuts.html
+
 **NBA playoff trends I'm watching: Thunder's new wrinkle; postseason blast from the past**\
 `The eye test says physicality has increased in these playoffs. So has the number of players hitting the ground each game.`\
 https://nytimes.com/athletic/6309388/2025/04/25/nba-playoff-trends-okc-thunder-physicality-defense/
