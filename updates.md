@@ -1,3 +1,7 @@
+**‘The Accountant 2’ | Anatomy of a Scene**\
+`The director Gavin O’Connor narrates a sequence from “The Accountant 2,” starring Ben Affleck and Jon Bernthal.`\
+https://nytimes.com/video/movies/100000010128701/the-accountant-2-scene.html
+
 **Markets Rise on Hints of Easing Trade Tensions**\
 `Stocks were pointing toward a fourth straight positive trading session.`\
 https://nytimes.com/2025/04/25/business/trump-tariffs-stocks-sandp-500.html

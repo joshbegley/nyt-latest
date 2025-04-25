@@ -1,3 +1,7 @@
+**‘The Accountant 2’ | Anatomy of a Scene**\
+`The director Gavin O’Connor narrates a sequence from “The Accountant 2,” starring Ben Affleck and Jon Bernthal.`\
+https://nytimes.com/video/movies/100000010128701/the-accountant-2-scene.html
+
 **Markets Rise on Hints of Easing Trade Tensions**\
 `Stocks were pointing toward a fourth straight positive trading session.`\
 https://nytimes.com/2025/04/25/business/trump-tariffs-stocks-sandp-500.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6304691/2025/04/25/fa-cup-semi-final-betting-predic
 **George Santos, Expelled From House, Now Faces Sentencing**\
 `Federal prosecutors want Mr. Santos, whose pattern of lies and fraud led to his expulsion from Congress, to be sentenced to 87 months in prison.`\
 https://nytimes.com/2025/04/25/nyregion/george-santos-sentencing-prison.html
-
-**Snapshots of the Seasons in One of New York City’s Last Wild Places**\
-`An abandoned rail line in central Queens may or may not be the city’s next tourist destination.`\
-https://nytimes.com/2025/04/25/nyregion/nyc-abandoned-railroad-tracks-queens.html
 
