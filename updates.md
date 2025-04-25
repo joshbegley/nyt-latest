@@ -1,3 +1,11 @@
+**Sean Combs Loses Request to Remove All Hotel Assault Video From Trial**\
+`It is not yet clear how much surveillance footage of the music mogul beating his former girlfriend, Casandra Ventura, in 2016 will be presented to the jury.`\
+https://nytimes.com/2025/04/25/arts/music/sean-diddy-combs-cassie-video-trial.html
+
+**Our After-Dinner Debate About Larry David’s Satire**\
+`Sampling the outpouring of reader responses to the comedian’s imaginary dinner with Hitler. Also: The law firms’ test; a plea for democracy.`\
+https://nytimes.com/2025/04/25/opinion/larry-david-hitler-trump.html
+
 **NWSL sets up potential for second division women's soccer league in 2026**\
 `The proposal describes the Division II league as a developmental place for college and younger players`\
 https://nytimes.com/athletic/6309751/2025/04/25/nwsl-division-ii-soccer-league/
