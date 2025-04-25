@@ -1,3 +1,11 @@
+**MLB starting pitcher fantasy baseball rankings for the rest of the season**\
+`This is the time of the fantasy baseball season when it's time to make moves. Check out the latest rankings to see who you should target.`\
+https://nytimes.com/athletic/6302301/2025/04/25/mlb-fantasy-baseball-starting-pitcher-rankings/
+
+**Howe thanks Newcastle doctor after health scare: 'It could have had a different outcome'**\
+`The Newcastle head coach returned to work on Wednesday, having missed three matches after being hospitalised with pneumonia. `\
+https://nytimes.com/athletic/6308685/2025/04/25/eddie-howe-newcastle-health-update/
+
 **Best available players for the Vikings: Shemar Turner, Nohl Williams**\
 `In Round 1, the Vikings continued to revamp their offensive line. On Day 2, they'll likely look for help on defense or at wide receiver.`\
 https://nytimes.com/athletic/6307728/2025/04/25/vikings-2025-nfl-draft-best-available/

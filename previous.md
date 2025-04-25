@@ -1,3 +1,11 @@
+**MLB starting pitcher fantasy baseball rankings for the rest of the season**\
+`This is the time of the fantasy baseball season when it's time to make moves. Check out the latest rankings to see who you should target.`\
+https://nytimes.com/athletic/6302301/2025/04/25/mlb-fantasy-baseball-starting-pitcher-rankings/
+
+**Howe thanks Newcastle doctor after health scare: 'It could have had a different outcome'**\
+`The Newcastle head coach returned to work on Wednesday, having missed three matches after being hospitalised with pneumonia. `\
+https://nytimes.com/athletic/6308685/2025/04/25/eddie-howe-newcastle-health-update/
+
 **Best available players for the Vikings: Shemar Turner, Nohl Williams**\
 `In Round 1, the Vikings continued to revamp their offensive line. On Day 2, they'll likely look for help on defense or at wide receiver.`\
 https://nytimes.com/athletic/6307728/2025/04/25/vikings-2025-nfl-draft-best-available/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/25/podcasts/the-headlines/george-santos-sentenced-do
 **What can we learn from Steph Curry about leadership? Our 4 favorite lessons**\
 `Steph Curry has a unique leadership style that's all his own. After talking to teammates and coaches, these are our favorite takeaways.`\
 https://nytimes.com/athletic/6305603/2025/04/25/what-can-we-learn-from-steph-curry-about-leadership-our-4-favorite-lessons/
-
-**Children’s Books Go Before the Supreme Court**\
-`The justices will rule on whether parents have a religious right to withdraw their children from class on days when storybooks with gay and transgender themes are discussed.`\
-https://nytimes.com/2025/04/25/podcasts/the-daily/storybooks-supreme-court-case.html
-
-**Wordle Review No. 1,407**\
-`Scroll down for hints and conversation about the puzzle for Saturday, April 26, 2025.`\
-https://nytimes.com/2025/04/25/crosswords/wordle-review-1407.html
 
