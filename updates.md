@@ -1,3 +1,23 @@
+**A British Magic Society Welcomes Its First Woman — Three Decades Late**\
+`Last year, the Magic Circle began searching for Sophie Lloyd, who disguised herself as a man in 1991 to gain membership and was then ousted. On Thursday, she returned.`\
+https://nytimes.com/2025/04/25/world/europe/magic-circle-london-sophie-lloyd.html
+
+**Trump vs. Science**\
+`We explain the administration’s cuts to research.`\
+https://nytimes.com/2025/04/25/briefing/trump-vs-science.html
+
+**Estevao leaves pitch on stretcher after vomiting in win on 18th birthday**\
+`Estevao, who will join Chelsea this summer, explained after the game that he struggled to get used to the high altitude.`\
+https://nytimes.com/athletic/6308719/2025/04/25/estevao-willian-chelsea-palmeiras-vomit/
+
+**Japan’s Rice Is So Expensive, It’s Willing to Eat South Korea’s**\
+`Japanese consumers embraced Korean rice for the first time in 35 years, finding it more familiar than other types of foreign rice.`\
+https://nytimes.com/2025/04/25/world/asia/japan-south-korea-rice.html
+
+**Senior Russian Officer Killed in Car Explosion Near Moscow**\
+`The general’s death is the latest in a series of fatalities involving Ukraine’s opponents inside Russia. The authorities in Kyiv had no immediate comment.`\
+https://nytimes.com/2025/04/25/world/europe/russian-officer-explosion-moscow-ukraine.html
+
 **MLB starting pitcher fantasy baseball rankings for the rest of the season**\
 `This is the time of the fantasy baseball season when it's time to make moves. Check out the latest rankings to see who you should target.`\
 https://nytimes.com/athletic/6302301/2025/04/25/mlb-fantasy-baseball-starting-pitcher-rankings/
