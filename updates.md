@@ -1,3 +1,11 @@
+**NCAA pushes for college player prop bet bans with new licensing agreement**\
+`Financial terms of the new deal were not disclosed, but the agreement could increase NCAA revenue`\
+https://nytimes.com/athletic/6309803/2025/04/25/ncaa-sports-prop-bet-ban-licensing-agreement/
+
+**Who Is the Wisconsin Judge Arrested in Immigration Dispute?**\
+`Milwaukee County Circuit Court Judge Hannah Dugan was elected in 2016. She spent much of her earlier career working on behalf of low-income people and marginalized groups.`\
+https://nytimes.com/2025/04/25/us/judge-hannah-dugan-wisconsin-immigration.html
+
 **Lorde Returns With a Nostalgic Breakup Anthem, and 9 More New Songs**\
 `Hear tracks by Haim, Young Thug, Cazzu and others.`\
 https://nytimes.com/2025/04/25/arts/music/playlist-lorde-ariana-grande-young-thug.html

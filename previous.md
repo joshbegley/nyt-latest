@@ -1,10 +1,14 @@
+**NCAA pushes for college player prop bet bans with new licensing agreement**\
+`Financial terms of the new deal were not disclosed, but the agreement could increase NCAA revenue`\
+https://nytimes.com/athletic/6309803/2025/04/25/ncaa-sports-prop-bet-ban-licensing-agreement/
+
 **Lorde Returns With a Nostalgic Breakup Anthem, and 9 More New Songs**\
 `Hear tracks by Haim, Young Thug, Cazzu and others.`\
 https://nytimes.com/2025/04/25/arts/music/playlist-lorde-ariana-grande-young-thug.html
 
 **Who Is the Wisconsin Judge Arrested in Immigration Dispute?**\
 `Milwaukee County Circuit Court Judge Hannah Dugan was elected in 2016. She spent much of her earlier career working on behalf of low-income people and marginalized groups.`\
-https://nytimes.com/2025/04/25/us/who-is-the-wisconsin-judge-arrested-in-immigration-dispute.html
+https://nytimes.com/2025/04/25/us/judge-hannah-dugan-wisconsin-immigration.html
 
 **Live Q&A: Talking baseball with Eno Sarris on Friday 4/25 at 3 p.m. ET**\
 `Submit your fantasy baseball questions for Eno Sarris' latest live chat. `\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6309801/2025/04/25/cowboys-micah-parsons-tetairoa-m
 **New York Rangers roster tiers: Who stays and who goes this offseason?**\
 `From Chris Kreider to K'Andre Miller to Alexis Lafrenière, here's which Rangers are likeliest to be on the move this summer.`\
 https://nytimes.com/athletic/6309561/2025/04/25/rangers-offseason-roster-trades-free-agency/
-
-**China Says Trump’s Order on Seabed Mining Violates International Law**\
-`Dozens of countries have called for a moratorium on seabed mining, and have urged restraint until an international authority agrees on rules for the practice.`\
-https://nytimes.com/2025/04/25/us/china-trump-seabed-mining-international-law.html
 
