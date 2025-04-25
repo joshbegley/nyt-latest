@@ -1,3 +1,11 @@
+**Forced Labor Taints Brazilian Coffee, Say Complaints to U.S. Authorities**\
+`Two legal actions seeking U.S. government intervention say that some of the coffee bought by major American retailers is harvested in conditions that amount to slavery.`\
+https://nytimes.com/2025/04/24/world/americas/brazil-coffee-slave-labor.html
+
+**2025 NFL Draft fantasy football spin: Winners, losers, analysis**\
+`Jake Ciely tracks all the skill position picks in the 2025 NFL Draft, offering his analysis and fantasy football spin along the way.`\
+https://nytimes.com/athletic/6287424/2025/04/24/2025-nfl-draft-fantasy-football-spin-winners-losers-analysis/
+
 **Florida Democratic Party Is ‘Dead,’ State Senator Says as He Leaves It**\
 `State Senator Jason Pizzo, the Democratic minority leader, announced in a floor speech that he was leaving the party.`\
 https://nytimes.com/2025/04/24/us/pizzo-florida-democratic-party.html

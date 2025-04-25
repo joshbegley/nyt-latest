@@ -1,3 +1,11 @@
+**Forced Labor Taints Brazilian Coffee, Say Complaints to U.S. Authorities**\
+`Two legal actions seeking U.S. government intervention say that some of the coffee bought by major American retailers is harvested in conditions that amount to slavery.`\
+https://nytimes.com/2025/04/24/world/americas/brazil-coffee-slave-labor.html
+
+**2025 NFL Draft fantasy football spin: Winners, losers, analysis**\
+`Jake Ciely tracks all the skill position picks in the 2025 NFL Draft, offering his analysis and fantasy football spin along the way.`\
+https://nytimes.com/athletic/6287424/2025/04/24/2025-nfl-draft-fantasy-football-spin-winners-losers-analysis/
+
 **Florida Democratic Party Is ‘Dead,’ State Senator Says as He Leaves It**\
 `State Senator Jason Pizzo, the Democratic minority leader, announced in a floor speech that he was leaving the party.`\
 https://nytimes.com/2025/04/24/us/pizzo-florida-democratic-party.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6306372/2025/04/24/canadiens-nhl-playoffs-lineup-pa
 **Steve McMichael, Hall of Fame Tackle for Champion Bears, Dies at 67**\
 `He was a ferocious part of a dominant defense that swept the 1985 Chicago team to victory in the Super Bowl. After 15 N.F.L. seasons, he became a pro wrestler.`\
 https://nytimes.com/2025/04/24/sports/football/steve-mcmichael-dead.html
-
-**Trump Urges Russia to ‘STOP!’ After Deadly Attack on Ukraine’s Capital**\
-`President Trump also sought to divert blame should negotiations fall apart, a sign that he is perhaps more pessimistic about a deal than he was when he took office in January.`\
-https://nytimes.com/2025/04/24/us/politics/russia-trump-putin-ukraine.html
-
-**Where is the 2026 NFL Draft? Which cities submitted bids to host 2027 draft?**\
-`With the 2025 NFL Draft ready to roll, we look ahead to 2026 and which city might host in 2027.`\
-https://nytimes.com/athletic/6287852/2025/04/24/nfl-draft-2026-host-city/
 
