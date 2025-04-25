@@ -1,3 +1,11 @@
+**'He's our leader': As Panthers take commanding lead, Aleksander Barkov injury looms large**\
+`Florida marched on to beat Tampa Bay after Barkov left with an injury, but is now faced with the uncertainty of his status moving forward.`\
+https://nytimes.com/athletic/6306360/2025/04/24/panthers-aleksander-barkov-injury-nhl-playoffs/
+
+**Eagles draft LB Jihaad Campbell: How he fits, draft grade and scouting intel**\
+`In his final season at Alabama, Campbell was the team's top defensive player as he led the Crimson Tide in tackles and sacks.`\
+https://nytimes.com/athletic/6264925/2025/04/24/jihaad-campbell-eagles-nfl-draft/
+
 **Commanders draft OT Josh Conerly Jr.: How he fits, pick grade and scouting intel**\
 `Conerly played in every game his three seasons at Oregon, including starting all 28 games at left tackle the past two years.`\
 https://nytimes.com/athletic/6273658/2025/04/24/josh-conerly-jr-commanders-nfl-draft/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6269796/2025/04/24/jaxson-dart-giants-nfl-draft/
 **How a secret trip to Louisiana convinced the Patriots to draft Will Campbell**\
 `The Patriots' top decision-makers took a top-secret trip to Louisiana for one final look at the guy at the top of their NFL Draft board.`\
 https://nytimes.com/athletic/6307086/2025/04/24/will-campbell-patriots-nfl-draft-lsu-mike-vrabel/
-
-**Packers draft WR Matthew Golden: How he fits, pick grade and scouting intel**\
-`The Texas wide receiver posted the second-fastest 40-yard dash time at February's NFL Scouting Combine.`\
-https://nytimes.com/athletic/6268123/2025/04/24/matthew-golden-packers-nfl-draft/
-
-**Chargers draft RB Omarion Hampton: How he fits, pick grade and scouting intel**\
-`Hampton was a two-time first-team All-ACC selection at North Carolina and set the school record for all-purpose yards in 2024. `\
-https://nytimes.com/athletic/6264669/2025/04/24/omarion-hampton-chargers-nfl-draft/
 

@@ -1,3 +1,7 @@
+**Ravens NFL Draft hub: Picks, grades, fits and scouting reports**\
+`Keeping you up to date on all of Baltimore's selections throughout the three-day draft. `\
+https://nytimes.com/athletic/6302036/2025/04/24/ravens-nfl-draft-picks-2025-grades-scouting-reports/
+
 **'He's our leader': As Panthers take commanding lead, Aleksander Barkov injury looms large**\
 `Florida marched on to beat Tampa Bay after Barkov left with an injury, but is now faced with the uncertainty of his status moving forward.`\
 https://nytimes.com/athletic/6306360/2025/04/24/panthers-aleksander-barkov-injury-nhl-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/24/pageoneplus/quote-of-the-day-deadliest-russian-as
 **Giants draft QB Jaxson Dart: How he fits, draft grade and scouting intel**\
 `During his time at Ole Miss, Dart set several school records, including most wins by a starting quarterback and most passing yards.`\
 https://nytimes.com/athletic/6269796/2025/04/24/jaxson-dart-giants-nfl-draft/
-
-**How a secret trip to Louisiana convinced the Patriots to draft Will Campbell**\
-`The Patriots' top decision-makers took a top-secret trip to Louisiana for one final look at the guy at the top of their NFL Draft board.`\
-https://nytimes.com/athletic/6307086/2025/04/24/will-campbell-patriots-nfl-draft-lsu-mike-vrabel/
 

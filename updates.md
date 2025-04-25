@@ -1,3 +1,11 @@
+**'He's our leader': As Panthers take commanding lead, Aleksander Barkov injury looms large**\
+`Florida marched on to beat Tampa Bay after Barkov left with an injury, but is now faced with the uncertainty of his status moving forward.`\
+https://nytimes.com/athletic/6306360/2025/04/24/panthers-aleksander-barkov-injury-nhl-playoffs/
+
+**Eagles draft LB Jihaad Campbell: How he fits, draft grade and scouting intel**\
+`In his final season at Alabama, Campbell was the team's top defensive player as he led the Crimson Tide in tackles and sacks.`\
+https://nytimes.com/athletic/6264925/2025/04/24/jihaad-campbell-eagles-nfl-draft/
+
 **Grizzlies' Ja Morant out for rest of Game 3 with hip injury**\
 `Thunder guard Lu Dort undercut Ja Morant while he was in the air, and Morant hit the floor hard and stayed down for several minutes.`\
 https://nytimes.com/athletic/6307282/2025/04/24/ja-morant-injury-game-3-playoffs-grizzlies-thunder/
