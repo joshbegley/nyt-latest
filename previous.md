@@ -1,3 +1,11 @@
+**Tyleik Williams is nimble, instinctive and a prototypical Lions draft pick**\
+`The Lions, impressed by Williams' skills, football IQ and get-to-work mindset, took him at No. 28 in Thursday's first round.`\
+https://nytimes.com/athletic/6308222/2025/04/25/lions-tyleik-williams-nfl-draft/
+
+**The Eagles traded up for a defensive weapon in Jihaad Campbell. Just don't put him in a box.**\
+`The Eagles got aggressive to get the player they wanted.`\
+https://nytimes.com/athletic/6306905/2025/04/25/eagles-2025-nfl-draft-trade-jihaad-campbell/
+
 **Special report: Turki Al-Sheikh and the two sides of boxing’s new king**\
 `Turki Al-Sheikh has risen from obscurity to the heart of two historic institutions, but who is he really? We spent six months finding out`\
 https://nytimes.com/athletic/6298589/2025/04/25/turki-al-sheikh-boxing-saudi-arabia/
@@ -11,7 +19,7 @@ https://nytimes.com/athletic/6308199/2025/04/25/colts-nfl-draft-2025-tyler-warre
 https://nytimes.com/athletic/6308157/2025/04/25/browns-trade-nfl-draft-mason-graham/
 
 **Packers finally draft first-round WR, Matthew Golden, in iconic Green Bay scene**\
-`For the first time since 2002, the Packers drafted a wide receiver in the first round in Texas' Matthew Golden.`\
+`For the first time since 2002, the Packers drafted a wide receiver in the first round: Texas' Matthew Golden.`\
 https://nytimes.com/athletic/6308261/2025/04/25/packers-nfl-draft-first-round-wide-receiver-matthew-golden/
 
 **Why corner Jahdae Barron 'was too unique' to pass up for the Broncos**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6307898/2025/04/25/the-cardinals-draft-walter-nolen
 **Why the Steelers passed on Shedeur Sanders for Derrick Harmon, and what might come next**\
 `The Steelers couldn't pass up a chance to add a multidimensional D-lineman in Round 1. Could Sanders still be in their plans?`\
 https://nytimes.com/athletic/6308041/2025/04/25/steelers-shedeur-sanders-derrick-harmon-nfl-draft/
-
-**One big bet, two big swings: Falcons land Jalon Walker, James Pearce Jr. in first round**\
-`"Two of the better rushers in the SEC — that's exciting, that's really exciting," Atlanta general manager Terry Fontenot said.`\
-https://nytimes.com/athletic/6307780/2025/04/25/falcons-nfl-draft-jalon-walker-james-pearce-jr/
-
-**Why the Chiefs believe they got a steal in QB protector Josh Simmons**\
-`Shoring up the offensive line in front of Patrick Mahomes was the top priority for the Chiefs, and they may have landed a long-term starter.`\
-https://nytimes.com/athletic/6308205/2025/04/25/chiefs-josh-simmons-patrick-mahomes/
 

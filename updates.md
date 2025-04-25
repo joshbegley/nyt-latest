@@ -1,3 +1,15 @@
+**Tyleik Williams is nimble, instinctive and a prototypical Lions draft pick**\
+`The Lions, impressed by Williams' skills, football IQ and get-to-work mindset, took him at No. 28 in Thursday's first round.`\
+https://nytimes.com/athletic/6308222/2025/04/25/lions-tyleik-williams-nfl-draft/
+
+**The Eagles traded up for a defensive weapon in Jihaad Campbell. Just don't put him in a box.**\
+`The Eagles got aggressive to get the player they wanted.`\
+https://nytimes.com/athletic/6306905/2025/04/25/eagles-2025-nfl-draft-trade-jihaad-campbell/
+
+**Packers finally draft first-round WR, Matthew Golden, in iconic Green Bay scene**\
+`For the first time since 2002, the Packers drafted a wide receiver in the first round: Texas' Matthew Golden.`\
+https://nytimes.com/athletic/6308261/2025/04/25/packers-nfl-draft-first-round-wide-receiver-matthew-golden/
+
 **Special report: Turki Al-Sheikh and the two sides of boxing’s new king**\
 `Turki Al-Sheikh has risen from obscurity to the heart of two historic institutions, but who is he really? We spent six months finding out`\
 https://nytimes.com/athletic/6298589/2025/04/25/turki-al-sheikh-boxing-saudi-arabia/
