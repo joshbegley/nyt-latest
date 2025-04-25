@@ -1,3 +1,15 @@
+**The Pulse: A beautifully chaotic NFL Draft begins**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6305524/2025/04/25/nfl-draft-first-round-travis-hunter-the-pulse/
+
+**Patrick Adiarte, Actor Seen in Musicals and on ‘M*A*S*H,’ Dies at 82**\
+`As a young immigrant from the Philippines, he had roles on Broadway in “The King and I” and “Flower Drum Song.” He was later a familiar face on TV.`\
+https://nytimes.com/2025/04/25/arts/television/patrick-adiarte-dead.html
+
+**Twins changing catcher plan to lean more on Ryan Jeffers over Christian Vázquez**\
+`After two seasons of splitting playing time evenly, the Twins are hoping a catcher shakeup leads to a much-needed offensive boost.`\
+https://nytimes.com/athletic/6304726/2025/04/25/twins-catchers-ryan-jeffers-christian-vazquez/
+
 **Alex Caruso's defense, experience 'turns tide' for Thunder in near-historic Game 3 comeback**\
 `Down 26 at halftime, Alex Caruso addressed the team. He stayed positive. He'd been part of big comebacks before.`\
 https://nytimes.com/athletic/6308644/2025/04/25/thunder-game-3-comeback-grizzlies-alex-caruso/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6306164/2025/04/25/cubs-diamondbacks-craziest-wrigl
 **FPL live Q&A: FPL Gameweek 34 advice from Ben Dinnery**\
 `Join Ben Dinnery for a live Gameweek 34 FPL Q&A from 4pm-5pm UK time`\
 https://nytimes.com/athletic/6304700/2025/04/25/fantasy-premier-league-advice-gw34-tips/
-
-**Is Saka Hale End's greatest? Lewis-Skelly in midfield; Arteta’s season - our writers discuss your queries**\
-`Our club writers discuss some of the talking points subscribers have raised in the past few weeks`\
-https://nytimes.com/athletic/6298785/2025/04/25/arsenal-timber-saka-lewis-skelly/
-
-**Clay Holmes has matched expectations. Can he sustain it all season?**\
-`Holmes has a 3.16 ERA behind three new deliveries that have become significant parts of his arsenal.`\
-https://nytimes.com/athletic/6305527/2025/04/25/mets-mlb-clay-holmes-expectations/
-
-**NFL Draft best available players for Denver Broncos: TreVeyon Henderson, Mason Taylor**\
-`Denver may not be done addressing their defense, but Day 2 figures to feature a focus on offensive playmakers.`\
-https://nytimes.com/athletic/6308119/2025/04/25/broncos-2025-nfl-draft-best-available/
 

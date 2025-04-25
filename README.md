@@ -1,3 +1,11 @@
+**Grizzlies shellshocked by Ja Morant’s ‘frustrating’ hip injury, Thunder's 29-point comeback**\
+`Through 21 minutes of Game 3, the Grizzlies felt like things were finally going their way. Then everything came crashing down.`\
+https://nytimes.com/athletic/6308614/2025/04/25/ja-morant-injury-grizzlies-loss-thunder/
+
+**Row Z: Potter cries conspiracy, farewell Riza and the FIFA jamboree on Channel 5**\
+`Our weekly look at the absurd side of the game also takes in Chelsea's daily spend and how clubs react to Premier League relegation`\
+https://nytimes.com/athletic/6308682/2025/04/25/potter-riza-fifa-chelsea-row-z/
+
 **The Pulse: A beautifully chaotic NFL Draft begins**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6305524/2025/04/25/nfl-draft-first-round-travis-hunter-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6306245/2025/04/25/nebraska-gm-pat-stewart-nil-tran
 **Meet Seth Jarvis' mini-me — a 12-year-old whose costume became a viral tradition at Hurricanes games**\
 `“He nailed it pretty good,” says no less an authority than Jarvis himself. “He got the greasy mustache. He got the cut off.”`\
 https://nytimes.com/athletic/6305858/2025/04/25/viral-seth-jarvis-costume-hurricanes-games/
-
-**Cubs-Diamondbacks instant classic cracks the top 5 of craziest games at Wrigley Field**\
-`The Cubs have played more than 8,500 games at Wrigley. Their team historian says the 13-11 win over the Diamondbacks was one for the books. `\
-https://nytimes.com/athletic/6306164/2025/04/25/cubs-diamondbacks-craziest-wrigley-field-games/
-
-**FPL live Q&A: FPL Gameweek 34 advice from Ben Dinnery**\
-`Join Ben Dinnery for a live Gameweek 34 FPL Q&A from 4pm-5pm UK time`\
-https://nytimes.com/athletic/6304700/2025/04/25/fantasy-premier-league-advice-gw34-tips/
 
