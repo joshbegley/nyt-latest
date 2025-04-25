@@ -4,7 +4,7 @@ https://nytimes.com/2025/04/25/arts/music/playlist-lorde-ariana-grande-young-thu
 
 **Who Is the Wisconsin Judge Arrested in Immigration Dispute?**\
 `Milwaukee County Circuit Court Judge Hannah Dugan was elected in 2016. She spent much of her earlier career working on behalf of low-income people and marginalized groups.`\
-https://nytimes.com/2025/04/25/us/who-is-the-wisconsin-judge-arrested-in-immigration-dispute.html
+https://nytimes.com/2025/04/25/us/judge-hannah-dugan-wisconsin-immigration.html
 
 **Live Q&A: Talking baseball with Eno Sarris on Friday 4/25 at 3 p.m. ET**\
 `Submit your fantasy baseball questions for Eno Sarris' latest live chat. `\
