@@ -1,3 +1,11 @@
+**Indian and Pakistani Soldiers Briefly Exchange Fire Along Kashmir Border**\
+`The clash took place just days after a terror attack killed 26 people on the Indian side of the disputed region, raising tensions between the two nuclear-armed nations.`\
+https://nytimes.com/2025/04/25/world/asia/india-pakistan-kashmir.html
+
+**Shostakovich, Boston Symphony Style**\
+`Over two nights at Carnegie Hall, Andris Nelsons and the orchestra reveled in the composer’s sonic riches but played with emotional reserve.`\
+https://nytimes.com/2025/04/25/arts/music/shostakovich-boston-symphony-carnegie.html
+
 **F.D.A. Scientists Are Reinstated at Agency Food Safety Labs**\
 `After 20 percent of the agency’s work force was cut, federal health officials have decided to bring back some experts and review firings to fill gaps in critical roles.`\
 https://nytimes.com/2025/04/25/health/fda-food-safety-trump-layoffs.html
