@@ -1,3 +1,15 @@
+**Special report: Turki Al-Sheikh and the two sides of boxing’s new king**\
+`Turki Al-Sheikh has risen from obscurity to the heart of two historic institutions, but who is he really? We spent six months finding out`\
+https://nytimes.com/athletic/6298589/2025/04/25/turki-al-sheikh-boxing-saudi-arabia/
+
+**Why drafting Tyler Warren was easiest call Colts' Chris Ballard has made since Quenton Nelson**\
+`Ballard knew there was something special about Warren after seeing what he did versus USC last year. "He's got the best hands in the draft."`\
+https://nytimes.com/athletic/6308199/2025/04/25/colts-nfl-draft-2025-tyler-warren-chris-ballard/
+
+**One big bet, two big swings: Falcons land Jalon Walker, James Pearce Jr. in first round**\
+`"Two of the better rushers in the SEC — that's exciting, that's really exciting," Atlanta general manager Terry Fontenot said.`\
+https://nytimes.com/athletic/6307780/2025/04/25/falcons-nfl-draft-jalon-walker-james-pearce-jr/
+
 **Browns' trade-down is all about making yet another run at a franchise QB in 2026**\
 `Travis Hunter would’ve looked great in a Browns jersey, but adding a first-rounder next year gives Cleveland a shot at a top quarterback.`\
 https://nytimes.com/athletic/6308157/2025/04/25/browns-trade-nfl-draft-mason-graham/

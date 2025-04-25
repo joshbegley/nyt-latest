@@ -1,3 +1,11 @@
+**Special report: Turki Al-Sheikh and the two sides of boxing’s new king**\
+`Turki Al-Sheikh has risen from obscurity to the heart of two historic institutions, but who is he really? We spent six months finding out`\
+https://nytimes.com/athletic/6298589/2025/04/25/turki-al-sheikh-boxing-saudi-arabia/
+
+**Why drafting Tyler Warren was easiest call Colts' Chris Ballard has made since Quenton Nelson**\
+`Ballard knew there was something special about Warren after seeing what he did versus USC last year. "He's got the best hands in the draft."`\
+https://nytimes.com/athletic/6308199/2025/04/25/colts-nfl-draft-2025-tyler-warren-chris-ballard/
+
 **Browns' trade-down is all about making yet another run at a franchise QB in 2026**\
 `Travis Hunter would’ve looked great in a Browns jersey, but adding a first-rounder next year gives Cleveland a shot at a top quarterback.`\
 https://nytimes.com/athletic/6308157/2025/04/25/browns-trade-nfl-draft-mason-graham/
@@ -23,18 +31,10 @@ https://nytimes.com/athletic/6307898/2025/04/25/the-cardinals-draft-walter-nolen
 https://nytimes.com/athletic/6308041/2025/04/25/steelers-shedeur-sanders-derrick-harmon-nfl-draft/
 
 **One big bet, two big swings: Falcons land Jalon Walker, James Pearce Jr. in first round**\
-`The Atlanta Falcons selected edge rushers Jalon Walker and James Pearce Jr. in the first round of the NFL Draft on Thursday night.`\
+`"Two of the better rushers in the SEC — that's exciting, that's really exciting," Atlanta general manager Terry Fontenot said.`\
 https://nytimes.com/athletic/6307780/2025/04/25/falcons-nfl-draft-jalon-walker-james-pearce-jr/
 
 **Why the Chiefs believe they got a steal in QB protector Josh Simmons**\
 `Shoring up the offensive line in front of Patrick Mahomes was the top priority for the Chiefs, and they may have landed a long-term starter.`\
 https://nytimes.com/athletic/6308205/2025/04/25/chiefs-josh-simmons-patrick-mahomes/
-
-**'I feel like I'm that missing piece': Maxwell Hairston becomes Brandon Beane's chance at redemption**\
-`Taking Kaiir Elam in the first round in 2022 didn't work out for the Bills.`\
-https://nytimes.com/athletic/6308189/2025/04/25/buffalo-bills-nfl-draft-maxwell-hairston-brandon-beane/
-
-**Giants leave Round 1 of NFL Draft having executed a possible best-case scenario**\
-`The Giants got their elite prospect in Abdul Carter at No. 3 before finding a way back into Round 1, without overpaying, for QB Jaxson Dart.`\
-https://nytimes.com/athletic/6308076/2025/04/25/giants-nfl-draft-jaxson-dart-abdul-carter/
 
