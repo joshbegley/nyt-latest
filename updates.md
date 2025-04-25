@@ -1,3 +1,7 @@
+**Downtown L.A. Has Seen Its Share of Violence. Then Someone Went After Its Trees.**\
+`The authorities said a man used a chain saw to destroy more than a dozen trees in downtown Los Angeles, an attack that saddened and rattled residents and city leaders.`\
+https://nytimes.com/2025/04/25/us/los-angeles-trees-violence-crime.html
+
 **Nuno: 'We feel the history' at Forest ahead of FA Cup semi-final**\
 `Forest won the FA Cup in 1898 and 1959 but the last domestic trophy they lifted was the Zenith Data Systems Cup in 1992.`\
 https://nytimes.com/athletic/6309742/2025/04/25/nuno-nottingham-forest-fa-cup-history/
