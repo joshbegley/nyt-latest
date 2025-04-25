@@ -1,3 +1,11 @@
+**Putin Keeps Pummeling Ukraine, Convinced Trump Is on His Side**\
+`The concessions offered so far by President Trump fall short of Russia’s stated war aims. But President Vladimir V. Putin appears certain that he has the upper hand in talks.`\
+https://nytimes.com/2025/04/25/world/europe/russia-ukraine-trump.html
+
+**A Faithful Throng Pays Last Respects to Pope Francis**\
+`“It meant a lot to me to see him, he gave us so much,” said one woman who waited in line to file past the pontiff’s casket.`\
+https://nytimes.com/2025/04/25/world/europe/francis-pope-funeral.html
+
 **NFL Draft best available players for Eagles: Tate Ratledge, Mason Taylor**\
 `The Eagles enter Day 2 with six picks left to use in the draft.`\
 https://nytimes.com/athletic/6306642/2025/04/25/eagles-2025-draft-best-available/

@@ -1,3 +1,11 @@
+**Putin Keeps Pummeling Ukraine, Convinced Trump Is on His Side**\
+`The concessions offered so far by President Trump fall short of Russia’s stated war aims. But President Vladimir V. Putin appears certain that he has the upper hand in talks.`\
+https://nytimes.com/2025/04/25/world/europe/russia-ukraine-trump.html
+
+**A Faithful Throng Pays Last Respects to Pope Francis**\
+`“It meant a lot to me to see him, he gave us so much,” said one woman who waited in line to file past the pontiff’s casket.`\
+https://nytimes.com/2025/04/25/world/europe/francis-pope-funeral.html
+
 **NFL Draft best available players for Eagles: Tate Ratledge, Mason Taylor**\
 `The Eagles enter Day 2 with six picks left to use in the draft.`\
 https://nytimes.com/athletic/6306642/2025/04/25/eagles-2025-draft-best-available/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/25/well/toxic-relationship-red-flag.html
 **The New York Times News Quiz, April 25, 2025**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://nytimes.com/interactive/2025/04/25/briefing/quiz-pope-hegseth-harvard-trump.html
-
-**Ross Douthat on Trump, Mysticism and Psychedelics**\
-`The Times Opinion columnist discusses religion and belief — at this moment in our politics, and in our lives more generally.`\
-https://nytimes.com/2025/04/25/opinion/ezra-klein-podcast-ross-douthat.html
-
-**Watch Ben Affleck Line Dance in ‘The Accountant 2’**\
-`The director Gavin O’ Connor narrates a sequence from the film featuring the actor and Jon Bernthal.`\
-https://nytimes.com/2025/04/25/movies/watch-ben-affleck-line-dance-in-the-accountant-2.html
 
