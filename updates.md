@@ -1,3 +1,7 @@
+**A Folk Music Renaissance, With Some Modern Concerns**\
+`Several rising British bands are using centuries-old ditties to discuss hot-button issues like prison abolition, trans rights and the gig economy.`\
+https://nytimes.com/2025/04/25/arts/music/uk-folk-music-politics.html
+
 **‘Things Have Ground to a Halt’: Tariff Uncertainty Paralyzes Businesses**\
 `The Times heard from hundreds of American companies, most of them small businesses, that face a reckoning because of President Trump’s steep import taxes.`\
 https://nytimes.com/2025/04/25/business/trump-tariffs-american-importers.html
