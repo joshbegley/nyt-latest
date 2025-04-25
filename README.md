@@ -1,3 +1,7 @@
+**Derrick Harmon's mother dies after Steelers draft him on 'bittersweet' night**\
+`The Steelers' first-round pick calls his mother, Tiffany Saine, his "why," after she fought through several brain surgeries and a stroke.`\
+https://nytimes.com/athletic/6310096/2025/04/25/derrick-harmon-mother-death-nfl-draft-steelers/
+
 **U.S. consortium completes takeover of Leyton Orient**\
 `Gandler, who is also the co-founder and CEO of streaming service FuboTV, will be the majority shareholder, owning 78.55% of the club.`\
 https://nytimes.com/athletic/6310157/2025/04/25/leyton-orient-takeover-david-gandler/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6310076/2025/04/25/ange-postecoglou-tottenham-perce
 **Government Notices to Migrants Fall Short of Due Process, Legal Experts Say**\
 `Venezuelan migrants were given English-only notices with limited time to file court challenges, according to a newly unsealed declaration.`\
 https://nytimes.com/2025/04/25/us/politics/trump-migrants-due-process.html
-
-**The F.B.I. Arrested a Wisconsin Judge in an Immigration Dispute**\
-`Also, George Santos was sentenced to more than 7 years in prison. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2025/04/25/briefing/fbi-arrest-judge-trump-second-term-poll.html
 
