@@ -1,3 +1,15 @@
+**The Athletic FC: Battle to stage league games in U.S., Ronaldo - from 'God' to 'devil'**\
+`Today in TAFC: The race between leagues to stage a game in the U.S., Vardy's Leicester party is over, team that Ronaldo owns is relegated.`\
+https://nytimes.com/athletic/6308666/2025/04/25/premier-league-matches-united-states/
+
+**Shedeur Sanders dominates, Nick Saban shines: NFL Draft TV coverage takeaways**\
+`Each network provided analysis, with ESPN's Nick Saban arguably doing it best, and the NFL made an announcement, about an announcement.`\
+https://nytimes.com/athletic/6305169/2025/04/25/nfl-draft-shedeur-sanders-nick-saban-tv-review/
+
+**Israeli Prime Minister Offers Condolences Three Days After Pope’s Death**\
+`The delay in issuing a statement reflected apparent tensions between Israel and Francis, who criticized Israel’s conduct in the war in Gaza.`\
+https://nytimes.com/2025/04/25/world/middleeast/netanyahu-pope-francis-death-condolences.html
+
 **LGBTQ+ activist condemns homophobic abuse towards Barcelona defender Fort**\
 `Lamoure said the 18-year-old Barcelona defender had received homophobic messages largely from "very young women".`\
 https://nytimes.com/athletic/6308705/2025/04/25/barcelona-hector-fort-homophobic-abuse/
