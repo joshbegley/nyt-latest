@@ -1,3 +1,11 @@
+**Panthers draft WR Tetairoa McMillan: How he fits, pick grade and scouting intel**\
+`McMillan led the Big 12 with 1,319 receiving yards in 2024 and scored 26 touchdowns in three seasons at Arizona.`\
+https://nytimes.com/athletic/6268043/2025/04/24/tetairoa-mcmillan-panthers-nfl-draft/
+
+**Jets draft OT Armand Membou: How he fits, draft grade and scouting intel**\
+`The Missouri offensive lineman was a second-team All-SEC selection in 2024 and tested well at the NFL Scouting Combine. `\
+https://nytimes.com/athletic/6270010/2025/04/24/armand-membou-jets-nfl-draft/
+
 **Raiders draft RB Ashton Jeanty: How he fits, pick grade and scouting intel**\
 `The Heisman Trophy runner-up led the FBS with 397 touches and 2,601 rushing yards as a junior, while scoring 30 touchdowns.`\
 https://nytimes.com/athletic/6264910/2025/04/24/ashton-jeanty-raiders-nfl-draft/
