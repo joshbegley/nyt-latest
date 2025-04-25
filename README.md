@@ -1,3 +1,27 @@
+**Why the Browns were wise to trade their No. 2 pick and look toward the future**\
+`Cleveland GM Andrew Berry and company traded back to No. 5, added a second-round pick and a 2026 first-rounder in a deal with the Jaguars.`\
+https://nytimes.com/athletic/6307621/2025/04/25/browns-nfl-draft-trade-mason-graham/
+
+**How a Seahawks legend and a standout Senior Bowl week sold Seattle on Grey Zabel**\
+`"Everybody loves this guy,” general manager John Schneider said of Zabel. "He’s just buttoned-up, smart, tough, reliable. Our kind of guy."`\
+https://nytimes.com/athletic/6307846/2025/04/25/grey-zabel-seahawks-nfl-draft-steve-hutchinson/
+
+**Why the Raiders are excited to add Ashton Jeanty — positional value be damned**\
+`Jeanty is the seventh running back in the last 10 years to be selected in the top 10 of the NFL Draft.`\
+https://nytimes.com/athletic/6307537/2025/04/25/ashton-jeanty-raiders-nfl-draft-2025/
+
+**Buckley: Proud and emotional Will Campbell eager to lead Patriots back to glory**\
+`Campbell happily recalled Patriots of old at his introduction, embracing New England's past success while dreaming of a promising future.`\
+https://nytimes.com/athletic/6307543/2025/04/25/will-campbell-patriots-2025-nfl-draft-first-round-pick/
+
+**Tight end at No. 10? Why the Bears believe Colston Loveland is worth it**\
+`Loveland's versatility and makeup stood out to Bears' staff, making them feel comfortable taking a tight end as high as No. 10.`\
+https://nytimes.com/athletic/6307859/2025/04/25/tight-end-at-no-10-why-the-bears-believe-colston-loveland-is-worth-it/
+
+**Bengals’ swing for the fences with Shemar Stewart puts more pressure on Al Golden**\
+`Cincinnati picked a player with incredible traits and upside. Now the new defensive coordinator has to make sure that upside it realized.`\
+https://nytimes.com/athletic/6307868/2025/04/25/bengals-shemar-stewart-nfl-draft-al-golden/
+
 **Lawyers Seek Return of Migrants Deported Under Wartime Act**\
 `An updated lawsuit filed in Washington was the latest in a flurry of suits challenging the Trump administration’s use of the Alien Enemies Act to send migrants to a prison in El Salvador.`\
 https://nytimes.com/2025/04/25/us/politics/lawyers-seek-migrant-return.html
@@ -13,28 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/04/25/todays-new-york-times
 **My Oscar for ‘No Other Land’ Didn’t Protect Me From Violence**\
 `Hamdan Ballal won an Oscar for co-directing “No Other Land,” then went home to the West Bank and was attacked and arrested.`\
 https://nytimes.com/2025/04/25/opinion/no-other-land-director-attack.html
-
-**Shedeur Sanders' draft fall wasn't a surprise. Teams never saw him as first-round talent**\
-`The Athletic asked 10 coaches and executives Thursday if they were surprised Sanders was still on the board late in Round 1. All 10 said no.`\
-https://nytimes.com/athletic/6307646/2025/04/25/nfl-draft-shedeur-sanders-fall-wasnt-as-a-surprise-teams-never-saw-qb-as-first-round-talent/
-
-**How Karl-Anthony Towns was unlocked in Knicks' Game 3 win over Pistons**\
-`Towns was purposeful all night as New York took a 2-1 series lead in Detroit behind his 31 points.`\
-https://nytimes.com/athletic/6307459/2025/04/25/karl-anthony-towns-knicks-game-3/
-
-**Winners and losers from the NFL Draft's first round: Jaguars, Shedeur Sanders and more**\
-`The first round of the 2025 NFL Draft is in the books. Here's a look at the biggest winners and losers.`\
-https://nytimes.com/athletic/6307597/2025/04/25/nfl-draft-2025-winners-losers-shedeur-sanders/
-
-**Green Bay draws 205,000 fans for Round 1 of NFL Draft**\
-`The NFL's smallest city drew a crowd nearly double its population for the first day of the 2025 NFL Draft.`\
-https://nytimes.com/athletic/6307749/2025/04/25/nfl-draft-green-bay-attendance/
-
-**The Armand Membou pick shows Aaron Glenn is following a Lions blueprint**\
-`The first pick of the Glenn-Darren Mougey Jets evoked memories of Detroit drafting Penei Sewell four years ago.`\
-https://nytimes.com/athletic/6307417/2025/04/25/new-york-jets-armand-membou-draft-offensive-line/
-
-**The most unlikely hero has the Maple Leafs on the verge of a sweep**\
-`The Leafs boast some of the biggest names in hockey, but on Thursday someone new became "the king of Toronto for a night."`\
-https://nytimes.com/athletic/6307615/2025/04/25/simon-benoit-maple-leafs-nhl-playoffs-overtime-winner/
 

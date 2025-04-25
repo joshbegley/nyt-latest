@@ -1,3 +1,7 @@
+**Lawyers Seek Return of Migrants Deported Under Wartime Act**\
+`An updated lawsuit filed in Washington was the latest in a flurry of suits challenging the Trump administration’s use of the Alien Enemies Act to send migrants to a prison in El Salvador.`\
+https://nytimes.com/2025/04/25/us/politics/lawyers-seek-migrant-return.html
+
 **Friday Briefing: Trump Tells Putin to ‘STOP!’**\
 `Plus, was Shakespeare a bad husband?`\
 https://nytimes.com/2025/04/25/briefing/trump-putin-india-pakistan-pope-francis.html
