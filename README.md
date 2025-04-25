@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6307417/2025/04/25/new-york-jets-armand-membou-draf
 `The Leafs boast some of the biggest names in hockey, but on Thursday someone new became "the king of Toronto for a night."`\
 https://nytimes.com/athletic/6307615/2025/04/25/simon-benoit-maple-leafs-nhl-playoffs-overtime-winner/
 
-**Rams trade out of Round 1, now have 2 first-rounders in 2026 ‘for now’**\
+**Rams trade out of Round 1, have 2 first-rounders in 2026 ‘for now’**\
 `The Rams explored moving up in Round 1, but ultimately traded back to Round 2, where they will have the 46th overall pick Friday.`\
 https://nytimes.com/athletic/6307751/2025/04/25/rams-trade-first-round-pick-falcons/
 
