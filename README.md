@@ -1,3 +1,11 @@
+**Falcons draft edge rusher Jalon Walker: How he fits, draft grade and scouting intel**\
+`A one-year starter at Georgia, Walker took snaps at inside linebacker, outside linebacker and edge rusher, totaling 6 1/2 sacks and 11 TFLs.`\
+https://nytimes.com/athletic/6281282/2025/04/24/jalon-walker-falcons-nfl-draft/
+
+**Indicted ‘Bitcoin Jesus’ Pays Roger Stone $600,000 to Lobby for Him**\
+`The longtime Trump ally is lobbying Congress to change the law that the crypto entrepreneur Roger Ver was charged with violating.`\
+https://nytimes.com/2025/04/24/us/politics/stone-bitcoin-crypto-trump.html
+
 **Colts draft TE Tyler Warren: How he fits, pick grade and scouting intel**\
 `The Penn State tight end set school and Big Ten records with 104 receptions for 1,233 yards in his senior season.`\
 https://nytimes.com/athletic/6264266/2025/04/24/tyler-warren-colts-nfl-draft/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6301900/2025/04/24/nfl-draft-grades-2025-round-1-ev
 **Shedeur Sanders falls outside top 10 in NFL draft: How far will the QB slide?**\
 `Various mock drafts and experts projected Sanders would be selected in the first round.`\
 https://nytimes.com/athletic/6306197/2025/04/24/shedeur-sanders-nfl-draft-slide/
-
-**Bears draft TE Colston Loveland: How he fits, pick grade and scouting intel**\
-`Loveland was a second-team All-Big Ten selection and a finalist for the John Mackey Award in his last season at Michigan.`\
-https://nytimes.com/athletic/6264327/2025/04/24/colston-loveland-bears-nfl-draft/
-
-**Piercing the Shadows of the Pope’s Favorite Painting**\
-`Caravaggio was an artist of rare directness, whose naturalistic pictures brought the heavens down to earth. Our critic Jason Farago shows you what Francis may have seen in them.`\
-https://nytimes.com/interactive/2025/04/24/arts/pope-francis-caravaggio.html
 
