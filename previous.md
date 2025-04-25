@@ -1,3 +1,7 @@
+**The Draft Files: A look at the Bills' Day 2 strategy after Buffalo took a cornerback in Round 1**\
+`The Bills still have needs at defensive tackle, edge rusher and wide receiver.`\
+https://nytimes.com/athletic/6308026/2025/04/25/bills-2025-nfl-draft-day-2-strategy/
+
 **Jimmy Kimmel Mocks Pete Hegseth’s Rumored Pentagon Makeup Studio**\
 `“Nothing sparks fear in the hearts of our enemies like a defense secretary who puts foundation on his face,” Kimmel said.`\
 https://nytimes.com/2025/04/25/arts/television/jimmy-kimmel-pete-hegseth-makeup.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/25/us/politics/lawyers-seek-migrant-return.html
 **Friday Briefing: Trump Tells Putin to ‘STOP!’**\
 `Plus, was Shakespeare a bad husband?`\
 https://nytimes.com/2025/04/25/briefing/trump-putin-india-pakistan-pope-francis.html
-
-**The New York Times in Print for Friday, April 25, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/04/25/todays-new-york-times
 

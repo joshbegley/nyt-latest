@@ -1,3 +1,7 @@
+**The Draft Files: A look at the Bills' Day 2 strategy after Buffalo took a cornerback in Round 1**\
+`The Bills still have needs at defensive tackle, edge rusher and wide receiver.`\
+https://nytimes.com/athletic/6308026/2025/04/25/bills-2025-nfl-draft-day-2-strategy/
+
 **Jimmy Kimmel Mocks Pete Hegseth’s Rumored Pentagon Makeup Studio**\
 `“Nothing sparks fear in the hearts of our enemies like a defense secretary who puts foundation on his face,” Kimmel said.`\
 https://nytimes.com/2025/04/25/arts/television/jimmy-kimmel-pete-hegseth-makeup.html

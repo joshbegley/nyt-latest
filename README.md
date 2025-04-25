@@ -11,7 +11,7 @@ https://nytimes.com/2025/04/25/arts/television/jimmy-kimmel-pete-hegseth-makeup.
 https://nytimes.com/athletic/6307621/2025/04/25/browns-nfl-draft-trade-mason-graham/
 
 **How a Seahawks legend and a standout Senior Bowl week sold Seattle on Grey Zabel**\
-`"Everybody loves this guy,” general manager John Schneider said of Zabel. "He’s just buttoned-up, smart, tough, reliable. Our kind of guy."`\
+`"Everybody loves this guy," general manager John Schneider said of Zabel. "He's just buttoned-up, smart, tough, reliable. Our kind of guy."`\
 https://nytimes.com/athletic/6307846/2025/04/25/grey-zabel-seahawks-nfl-draft-steve-hutchinson/
 
 **Why the Raiders are excited to add Ashton Jeanty — positional value be damned**\
@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6307537/2025/04/25/ashton-jeanty-raiders-nfl-draft-
 https://nytimes.com/athletic/6307543/2025/04/25/will-campbell-patriots-2025-nfl-draft-first-round-pick/
 
 **Tight end at No. 10? Why the Bears believe Colston Loveland is worth it**\
-`Loveland's versatility and makeup stood out to Bears' staff, making them feel comfortable taking a tight end as high as No. 10.`\
+`Loveland's versatility and makeup stood out to Bears staff, making them feel comfortable taking a tight end as high as No. 10.`\
 https://nytimes.com/athletic/6307859/2025/04/25/tight-end-at-no-10-why-the-bears-believe-colston-loveland-is-worth-it/
 
 **Bengals’ swing for the fences with Shemar Stewart puts more pressure on Al Golden**\
