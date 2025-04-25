@@ -1,3 +1,11 @@
+**Jay Sigel, Amateur Golfer Who Played Like a Pro, Dies at 81**\
+`Many considered him to be greatest American amateur since Bobby Jones. So why didn’t he try for the PGA Tour? An old hand injury had something to do with it.`\
+https://nytimes.com/2025/04/25/sports/golf/jay-sigel-dead.html
+
+**Man Convicted of Fatally Torturing Child May Spend Life in Prison**\
+`“For that which you have done, you simply deserve no mercy,” a judge told Ryan Cato, who beat a 10-year-old boy to death in 2021.`\
+https://nytimes.com/2025/04/25/nyregion/ayden-wolfe-child-abuser-sentence.html
+
 **Rosenior extends Strasbourg contract until 2028**\
 `The 40-year-old turned down multiple approaches from Premier League clubs to commit to the Ligue 1 side.`\
 https://nytimes.com/athletic/6310012/2025/04/25/liam-rosenior-strasbourg-contract-blueco/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6302548/2025/04/25/steelers-nfl-draft-picks-2025-gr
 **Seahawks NFL Draft hub: Picks, grades, fits and scouting reports**\
 `Everything you need to know about the Seahawks' 2025 draft class, from Round 1 through Round 7.`\
 https://nytimes.com/athletic/6303330/2025/04/25/seahawks-nfl-draft-picks-2025-grades-scouting-reports/
-
-**The 4.27.25 Issue**\
-``\
-https://nytimes.com/issue/magazine/2025/04/25/the-42725-issue
-
-**Five Takeaways From the Times/Siena Poll**\
-`Voters think President Trump has gone too far in wielding his power. They see the start of his term as “scary” and “chaotic.” And while it’s still early, they disapprove of his handling of many issues.`\
-https://nytimes.com/2025/04/25/us/politics/trump-times-siena-poll-highlights.html
 

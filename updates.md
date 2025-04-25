@@ -1,3 +1,11 @@
+**Jay Sigel, Amateur Golfer Who Played Like a Pro, Dies at 81**\
+`Many considered him to be greatest American amateur since Bobby Jones. So why didn’t he try for the PGA Tour? An old hand injury had something to do with it.`\
+https://nytimes.com/2025/04/25/sports/golf/jay-sigel-dead.html
+
+**Man Convicted of Fatally Torturing Child May Spend Life in Prison**\
+`“For that which you have done, you simply deserve no mercy,” a judge told Ryan Cato, who beat a 10-year-old boy to death in 2021.`\
+https://nytimes.com/2025/04/25/nyregion/ayden-wolfe-child-abuser-sentence.html
+
 **Rosenior extends Strasbourg contract until 2028**\
 `The 40-year-old turned down multiple approaches from Premier League clubs to commit to the Ligue 1 side.`\
 https://nytimes.com/athletic/6310012/2025/04/25/liam-rosenior-strasbourg-contract-blueco/
