@@ -1,3 +1,19 @@
+**Smith: Wild found formula to 'frustrate' Golden Knights, take lead in series**\
+`The Wild are deservedly in the driver's seat, holding a 2-1 lead in the best-of-seven series with the Vegas Golden Knights.`\
+https://nytimes.com/athletic/6308263/2025/04/25/wild-game-3-win-nhl-playoffs/
+
+**Dalot could miss rest of season with calf injury, says Amorim**\
+`Head coach Amorim did say that Amad and Matthijs De Ligt are "near" returning from their injury issues.`\
+https://nytimes.com/athletic/6309079/2025/04/25/diogo-dalot-manchester-united-injury-update/
+
+**MSG Networks reduces Knicks, Rangers media rights fees in renegotiations**\
+`The Knicks and Rangers were set to receive roughly $180 million in rights fees this year.`\
+https://nytimes.com/athletic/6309031/2025/04/25/knicks-rangers-msg-networks-debt/
+
+**China Is Weighing Tariff Exemptions on Some U.S. Imports**\
+`An American business group said that Chinese officials had been surveying companies about American products that are crucial to their supply chains.`\
+https://nytimes.com/2025/04/25/business/china-considering-tariff-exemptions.html
+
 **Dagenham and Redbridge apologise to director dismissed after Israel-Gaza posts**\
 `Dagenham said Salma Mashhour's dismissal was "in no way an acknowledgment" that she "supports messages of hate and division".`\
 https://nytimes.com/athletic/6308657/2025/04/25/dagenham-and-redbridge-social-media-apology/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6305217/2025/04/25/islanders-gm-search-lamoriello/
 **49ers NFL Draft hub: Picks, grades, fits and scouting reports**\
 `Keep coming back throughout the draft for grades and expert analysis of each 49ers pick.`\
 https://nytimes.com/athletic/6299432/2025/04/25/49ers-nfl-draft-picks-2025-grades-scouting-reports/
-
-**What's with North Carolina's 'lukewarm' start under Bill Belichick? Recruiting mailbag**\
-`How common is it for coordinators not to hit the road for recruiting visits? Will the House settlement send more recruits to lower-tier P4s?`\
-https://nytimes.com/athletic/6302752/2025/04/25/college-football-recruiting-north-carolina-bill-belichick/
-
-**NFL Draft best available players for Chargers: Will Johnson, Mason Taylor**\
-`Who might the Los Angeles Chargers select next? Take a look at some of the various options at different positions in the 2025 NFL Draft.`\
-https://nytimes.com/athletic/6307471/2025/04/25/chargers-2025-nfl-draft-best-available/
-
-**Trump Administration Live Updates: President Tells Putin to Stop Bombing Ukraine and Presses for Peace**\
-``\
-https://nytimes.com/live/2025/04/25/us/trump-news
-
-**Raiders NFL Draft hub: Picks, grades, fits and scouting reports**\
-`Keep coming back throughout the draft for grades and expert analysis of each Raiders pick.`\
-https://nytimes.com/athletic/6287651/2025/04/25/raiders-nfl-draft-picks-2025-grades-scouting-reports/
 
