@@ -31,7 +31,7 @@ https://nytimes.com/athletic/6269796/2025/04/24/jaxson-dart-giants-nfl-draft/
 https://nytimes.com/athletic/6307086/2025/04/24/will-campbell-patriots-nfl-draft-lsu-mike-vrabel/
 
 **Packers draft WR Matthew Golden: How he fits, pick grade and scouting intel**\
-`The Texas wide receiver posted the fastest 40-yard dash time at February's NFL Scouting Combine.`\
+`The Texas wide receiver posted the second-fastest 40-yard dash time at February's NFL Scouting Combine.`\
 https://nytimes.com/athletic/6268123/2025/04/24/matthew-golden-packers-nfl-draft/
 
 **Chargers draft RB Omarion Hampton: How he fits, pick grade and scouting intel**\
