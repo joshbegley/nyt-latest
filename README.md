@@ -1,3 +1,11 @@
+**Seahawks draft OL Grey Zabel: How he fits, pick grade and scouting intel**\
+`Zabel, a consensus All-American and Senior Bowl standout at North Dakota State, finds a home in the NFL Draft. `\
+https://nytimes.com/athletic/6273190/2025/04/24/grey-zabel-seahwks-nfl-draft/
+
+**Cam Ward, Tennessee Titans savior? No. 1 pick is a good prospect in a bad situation**\
+`Save them, Cam Ward. Save the fans of Nashville. Save the people who drafted you. Save the franchise. `\
+https://nytimes.com/athletic/6306875/2025/04/24/cam-ward-titans-quarterback-no-1-pick/
+
 **Bengals draft edge Shemar Stewart: How he fits, draft grade and scouting intel**\
 `The ultimate traits-versus-production prospect, Stewart is one of the best athletes we've seen, but his production at Texas A&M was limited.`\
 https://nytimes.com/athletic/6279804/2025/04/24/shemar-stewart-bengals-nfl-draft/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6302491/2025/04/24/jets-nfl-draft-picks-2025-grades
 **NFL uses draft to set schedule release date: May 14**\
 `The schedule release will be broadcast on NFL Network.`\
 https://nytimes.com/athletic/6306750/2025/04/24/nfl-schedule-announcement/
-
-**Falcons draft edge rusher Jalon Walker: How he fits, draft grade and scouting intel**\
-`A one-year starter at Georgia, Walker took snaps at inside linebacker, outside linebacker and edge rusher, totaling 6 1/2 sacks and 11 TFLs.`\
-https://nytimes.com/athletic/6281282/2025/04/24/jalon-walker-falcons-nfl-draft/
-
-**Indicted ‘Bitcoin Jesus’ Pays Roger Stone $600,000 to Lobby for Him**\
-`The longtime Trump ally is lobbying Congress to change the law that the crypto entrepreneur Roger Ver was charged with violating.`\
-https://nytimes.com/2025/04/24/us/politics/stone-bitcoin-crypto-trump.html
 
