@@ -1,3 +1,15 @@
+**Man City's Hemp to return against Leicester after five months out**\
+`Hemp was ruled out of England's matches against the United States and Switzerland in November after undergoing knee surgery.`\
+https://nytimes.com/athletic/6309299/2025/04/25/lauren-hemp-manchester-city-return/
+
+**Best available players for the Seahawks: Why Shedeur Sanders could be an option**\
+`If the Seahawks want Sanders, they have the resources to go get him. Meanwhile, borderline Round 1 talents remain available at CB and edge.`\
+https://nytimes.com/athletic/6308145/2025/04/25/seahawks-nfl-draft-2025-best-available/
+
+**F.B.I. Arrests Wisconsin Judge, Patel Says**\
+`Judge Hannah Dugan was arrested on suspicion that she “intentionally misdirected federal agents away from” an immigrant being pursued by the authorities, the F.B.I. director said.`\
+https://nytimes.com/2025/04/25/us/politics/fbi-arrest-judge.html
+
 **Best available players for the Steelers: All eyes on Shedeur Sanders entering Day 2**\
 `The Steelers passed on Sanders once, but it's at least plausible they could get a second chance. Here's who else they might be eyeing.`\
 https://nytimes.com/athletic/6307633/2025/04/25/steelers-2025-nfl-draft-best-available/
