@@ -1,3 +1,11 @@
+**Giants leave Round 1 of NFL Draft having executed a possible best-case scenario**\
+`The Giants got their elite prospect in Abdul Carter at No. 3 before finding a way back into Round 1, without overpaying, for QB Jaxson Dart.`\
+https://nytimes.com/athletic/6308076/2025/04/25/giants-nfl-draft-jaxson-dart-abdul-carter/
+
+**Word of the Day: simulacrum**\
+`This word has appeared in 30 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/04/25/learning/word-of-the-day-simulacrum.html
+
 **Messi and Inter Miami in Champions Cup hole after Vancouver setback**\
 `The Argentina star and his colleagues must overturn a two-goal deficit in the second leg.`\
 https://nytimes.com/athletic/6308186/2025/04/25/lionel-messi-inter-miami-vancouver-champions-cup/
