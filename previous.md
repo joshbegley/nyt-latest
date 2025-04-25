@@ -1,3 +1,15 @@
+**Shedeur Sanders on falling out of first round: 'Tomorrow is the day'**\
+`"Under no circumstance, we all know this shouldn’t have happened," Sanders said about his slide.`\
+https://nytimes.com/athletic/6309279/2025/04/25/shedeur-sanders-first-round-slip/
+
+**Farke 'not surprised' by speculation on his Leeds future: 'It's nothing new'**\
+`The German’s contract expires in 2027 but national newspapers have reported the club has given thought to sacking him.`\
+https://nytimes.com/athletic/6309263/2025/04/25/daniel-farke-leeds-future/
+
+**It’s Teriyaki Time**\
+`Make this five-star recipe for Seattle-style chicken teriyaki, or make the sauce to gloss over whatever you’d like.`\
+https://nytimes.com/2025/04/25/dining/best-chicken-teriyaki-recipe.html
+
 **Man City's Hemp to return against Leicester after five months out**\
 `Hemp was ruled out of England's matches against the United States and Switzerland in November after undergoing knee surgery.`\
 https://nytimes.com/athletic/6309299/2025/04/25/lauren-hemp-manchester-city-return/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6290564/2025/04/25/giants-nfl-draft-picks-2025-grad
 **Colts NFL Draft hub: Picks, grades, fits and scouting reports**\
 `Keep coming back throughout the draft for grades and expert analysis of each Colts pick.`\
 https://nytimes.com/athletic/6290599/2025/04/25/colts-nfl-draft-picks-2025-grades-scouting-reports/
-
-**Eagles NFL Draft hub: Picks, grades, fits and scouting reports**\
-`The Eagles have eight picks in the draft.`\
-https://nytimes.com/athletic/6303892/2025/04/25/eagles-nfl-draft-picks-2025-grades-scouting-reports/
-
-**USWNT 'keeper Tullis-Joyce signs new three-year contract with Man Utd**\
-`Tullis-Joyce has established herself as Man Utd's No 1 and her form this season has seen her make her national team debut.`\
-https://nytimes.com/athletic/6309330/2025/04/25/tullis-joyce-man-utd-contract-uswnt/
-
-**Ravens NFL Draft hub: Picks, grades, fits and scouting reports**\
-`Keeping you up to date on all of Baltimore's selections throughout the three-day draft. `\
-https://nytimes.com/athletic/6302036/2025/04/25/ravens-nfl-draft-picks-2025-grades-scouting-reports/
 

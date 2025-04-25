@@ -1,3 +1,15 @@
+**‘Things Have Ground to a Halt’: Tariff Uncertainty Paralyzes Businesses**\
+`The Times heard from hundreds of American companies, most of them small businesses, that face a reckoning because of President Trump’s steep import taxes.`\
+https://nytimes.com/2025/04/25/business/trump-tariffs-american-importers.html
+
+**Arsenal's Wubben-Moy, Van Domselaar set to return against Lyon**\
+`Wubben-Moy has been out since February with a muscular injury, while goalkeeper Van Domselaar missed Arsenal's last two matches.`\
+https://nytimes.com/athletic/6309383/2025/04/25/arsenal-lyon-uwcl-wubben-moy-van-domselaar/
+
+**Standing With History to Say Goodbye**\
+`As a reporter, I often observe from a press box or the sidelines. This time, I decided to join the masses.`\
+https://nytimes.com/2025/04/25/world/europe/pope-funeral-coffin.html
+
 **Shedeur Sanders on falling out of first round: 'Tomorrow is the day'**\
 `"Under no circumstance, we all know this shouldn’t have happened," Sanders said about his slide.`\
 https://nytimes.com/athletic/6309279/2025/04/25/shedeur-sanders-first-round-slip/
@@ -18,23 +30,11 @@ https://nytimes.com/athletic/6309299/2025/04/25/lauren-hemp-manchester-city-retu
 `If the Seahawks want Sanders, they have the resources to go get him. Meanwhile, borderline Round 1 talents remain available at CB and edge.`\
 https://nytimes.com/athletic/6308145/2025/04/25/seahawks-nfl-draft-2025-best-available/
 
-**F.B.I. Arrests Wisconsin Judge, Patel Says**\
-`Judge Hannah Dugan was arrested on suspicion that she “intentionally misdirected federal agents away from” an immigrant being pursued by the authorities, the F.B.I. director said.`\
+**Wisconsin Judge Arrested, Accused of Shielding Immigrant From Federal Agents**\
+`Judge Hannah Dugan was arrested on suspicion that she “intentionally misdirected federal agents away from” an immigrant being pursued by the authorities, the F.B.I. director said in a social media post that he later deleted.`\
 https://nytimes.com/2025/04/25/us/politics/fbi-arrest-judge.html
 
 **Best available players for the Steelers: All eyes on Shedeur Sanders entering Day 2**\
 `The Steelers passed on Sanders once, but it's at least plausible they could get a second chance. Here's who else they might be eyeing.`\
 https://nytimes.com/athletic/6307633/2025/04/25/steelers-2025-nfl-draft-best-available/
-
-**Judges Worry Trump Could Tell U.S. Marshals to Stop Protecting Them**\
-`The marshals are in an increasingly bitter conflict between two branches of government, even as funding for judges’ security has failed to keep pace with a steady rise in threats.`\
-https://nytimes.com/2025/04/25/us/politics/trump-judges-marshals-threats.html
-
-**Giants NFL Draft hub: Picks, grades, fits and scouting reports**\
-`Keep coming back throughout the draft for grades and expert analysis of each Giants pick.`\
-https://nytimes.com/athletic/6290564/2025/04/25/giants-nfl-draft-picks-2025-grades-scouting-reports/
-
-**Colts NFL Draft hub: Picks, grades, fits and scouting reports**\
-`Keep coming back throughout the draft for grades and expert analysis of each Colts pick.`\
-https://nytimes.com/athletic/6290599/2025/04/25/colts-nfl-draft-picks-2025-grades-scouting-reports/
 

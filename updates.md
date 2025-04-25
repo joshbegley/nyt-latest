@@ -1,3 +1,15 @@
+**Shedeur Sanders on falling out of first round: 'Tomorrow is the day'**\
+`"Under no circumstance, we all know this shouldn’t have happened," Sanders said about his slide.`\
+https://nytimes.com/athletic/6309279/2025/04/25/shedeur-sanders-first-round-slip/
+
+**Farke 'not surprised' by speculation on his Leeds future: 'It's nothing new'**\
+`The German’s contract expires in 2027 but national newspapers have reported the club has given thought to sacking him.`\
+https://nytimes.com/athletic/6309263/2025/04/25/daniel-farke-leeds-future/
+
+**It’s Teriyaki Time**\
+`Make this five-star recipe for Seattle-style chicken teriyaki, or make the sauce to gloss over whatever you’d like.`\
+https://nytimes.com/2025/04/25/dining/best-chicken-teriyaki-recipe.html
+
 **Man City's Hemp to return against Leicester after five months out**\
 `Hemp was ruled out of England's matches against the United States and Switzerland in November after undergoing knee surgery.`\
 https://nytimes.com/athletic/6309299/2025/04/25/lauren-hemp-manchester-city-return/
