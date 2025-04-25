@@ -1,3 +1,7 @@
+**Derrick Harmon's mother dies after Steelers draft him on 'bittersweet' night**\
+`The Steelers' first-round pick calls his mother, Tiffany Saine, his "why," after she fought through several brain surgeries and a stroke.`\
+https://nytimes.com/athletic/6310096/2025/04/25/derrick-harmon-mother-death-nfl-draft-steelers/
+
 **U.S. consortium completes takeover of Leyton Orient**\
 `Gandler, who is also the co-founder and CEO of streaming service FuboTV, will be the majority shareholder, owning 78.55% of the club.`\
 https://nytimes.com/athletic/6310157/2025/04/25/leyton-orient-takeover-david-gandler/
