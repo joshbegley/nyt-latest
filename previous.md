@@ -1,3 +1,19 @@
+**With Bryce Young's urging, Panthers boost offense in selecting Tetairoa McMillan**\
+`The No. 8 pick in the 2025 NFL Draft believes there are big things ahead for the "Cali-to-Cali connection" he has with his new quarterback.`\
+https://nytimes.com/athletic/6307551/2025/04/25/panthers-tetairoa-mcmillan-bryce-young-connection/
+
+**NFL Draft roundtable: Who won Jags/Browns trade, what to make of Shedeur Sanders' slide?**\
+`The blockbuster deal was the biggest story of a first round that saw just as many running backs and tight ends selected as quarterbacks.`\
+https://nytimes.com/athletic/6307624/2025/04/25/nfl-draft-jaguars-browns-travis-hunter-shedeur-sanders/
+
+**Greenberg: Do you love Colston Loveland? Ben Johnson does and that's what matters**\
+`Fans may not be wowed by Loveland, but it’s best to look at Chicago's pick through the lens that this is who Johnson liked for his offense.`\
+https://nytimes.com/athletic/6307449/2025/04/25/colston-loveland-bears-nfl-draft-tight-end/
+
+**Are You Getting Enough Protein? Let’s Find Out.**\
+`Try our interactive guide to the nutrient of the moment.`\
+https://nytimes.com/interactive/2025/04/25/well/eat/protein-meal-guide.html
+
 **Wolves squad audit: With safety secured, thoughts turn to another rebuild**\
 `The resurgence under Vitor Pereira has prompted a reassessment of the quality in his squad, but that does not mean change is not afoot...`\
 https://nytimes.com/athletic/6304937/2025/04/25/wolves-squad-audit-with-safety-secured-thoughts-turn-to-another-rebuild/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6307669/2025/04/25/49ers-nfl-draft-2025-mykel-willi
 **The unpredictable Leandro Trossard: Perfecting the art of 'fake' shots and Cruyff turns**\
 `He can go both ways, put defender's on their behinds and create space for team-mates. We analyse why the Arsenal forward is so dangerous.`\
 https://nytimes.com/athletic/6304343/2025/04/25/leandro-trossard-fake-shots-space/
-
-**Harvey Elliott's conundrum over his Liverpool future**\
-`Harvey Elliott has struggled for minutes for Liverpool this season — what should his future entail?`\
-https://nytimes.com/athletic/6304923/2025/04/25/harvey-elliott-liverpool-future/
-
-**How a meticulous Jason Tindall kept Newcastle United humming during Eddie Howe's absence**\
-`Newcastle's assistant manager went from agitator to orchestrator during three games in charge of Newcastle `\
-https://nytimes.com/athletic/6301177/2025/04/25/jason-tindall-eddie-howe-newcastle-united/
-
-**Bills draft Maxwell Hairston: How he fits, pick grade and scouting intel**\
-`Hairston clocked a 4.28 in the 40-yard dash at the NFL Combine earlier this year — the fastest of any prospect in attendance.`\
-https://nytimes.com/athletic/6307605/2025/04/25/maxwell-hairston-bills-nfl-draft/
-
-**Jamie Vardy: The non-League 'pest' who became a Premier League icon**\
-`Vardy may be saying goodbye to Leicester City after 13 years, but he won't be saying goodbye to football just yet`\
-https://nytimes.com/athletic/6306076/2025/04/25/jamie-vardy-leicester/
 
