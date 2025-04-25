@@ -1,3 +1,7 @@
+**Ravens draft safety Malaki Starks: How he fits, pick grade and scouting intel**\
+`The talented Georgia product was the second-rated safety on The Athletic draft expert Dane Brugler's big board.`\
+https://nytimes.com/athletic/6264576/2025/04/24/malaki-starks-ravens-nfl-draft/
+
 **Falcons draft James Pearce Jr.: How he fits, pick grade and scouting intel**\
 `A quick, lean rusher who often lined up out wide at Tennessee, Pearce impressed with his speed at the NFL Scouting Combine in Indianapolis.`\
 https://nytimes.com/athletic/6279055/2025/04/24/james-pearce-jr-faclons-nfl-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6306373/2025/04/24/leafs-senators-game-3-nhl-playof
 **Steelers draft DT Derrick Harmon: How he fits, pick grade and scouting intel**\
 `Harmon is a defensive tackle who can win in different ways, excelling as a pass rusher while remaining solid against the run. `\
 https://nytimes.com/athletic/6270340/2025/04/24/derrick-harmon-steelers-nfl-draft/
-
-**NBA playoff takeaways: Knicks edge Pistons in chippy Game 3**\
-`Karl-Anthony Towns paced New York with 31 points in the 118-116 win in Detroit.`\
-https://nytimes.com/athletic/6306708/2025/04/24/nba-playoff-knicks-pistons-thunder-grizzlies-nuggets-clippers/
 
