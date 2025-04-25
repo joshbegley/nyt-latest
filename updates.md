@@ -1,3 +1,7 @@
+**Five Takeaways From the Times/Siena Poll**\
+`Voters think President Trump has gone too far in wielding his power. They see the start of his term as “scary” and “chaotic.” And while it’s still early, they disapprove of his handling of many issues.`\
+https://nytimes.com/2025/04/25/us/politics/trump-times-siena-poll-highlights.html
+
 **Former South Carolina star guard MiLaysia Fulwiley transferring to LSU**\
 `Fulwiley, having averaged 11.7 points, 2.8 rebounds and 2 assists in only 19 minutes per game last season, highlights a revamped LSU roster.`\
 https://nytimes.com/athletic/6309897/2025/04/25/milaysia-fulwiley-transfer-lsu-south-carolina/
