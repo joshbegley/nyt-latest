@@ -1,3 +1,7 @@
+**‘Vaguely Threatening’: Federal Prosecutor Queries Leading Medical Journal**\
+`The New England Journal of Medicine received a letter suggesting that it was biased and compromised by external pressure. Other journals have also received the letter.`\
+https://nytimes.com/2025/04/25/health/nejm-prosecutor-letter.html
+
 **Video Catches Nun Bidding Unique Farewell to Pope Francis, an Old Friend**\
 `Sister Geneviève Jeanningros left the queue of mourners and approached the body of Pope Francis as it lay in state.`\
 https://nytimes.com/2025/04/25/world/europe/nun-bids-tearful-farewell-to-pope-francis.html

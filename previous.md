@@ -1,3 +1,7 @@
+**‘Vaguely Threatening’: Federal Prosecutor Queries Leading Medical Journal**\
+`The New England Journal of Medicine received a letter suggesting that it was biased and compromised by external pressure. Other journals have also received the letter.`\
+https://nytimes.com/2025/04/25/health/nejm-prosecutor-letter.html
+
 **Video Catches Nun Bidding Unique Farewell to Pope Francis, an Old Friend**\
 `Sister Geneviève Jeanningros left the queue of mourners and approached the body of Pope Francis as it lay in state.`\
 https://nytimes.com/2025/04/25/world/europe/nun-bids-tearful-farewell-to-pope-francis.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6309388/2025/04/25/nba-playoff-trends-okc-thunder-p
 **Scoop City: Draft takeaways after Day 1, including Travis Hunter's position**\
 `Inside the Jaguars war room, winners and losers from round one and the best players available.`\
 https://nytimes.com/athletic/6309612/2025/04/25/nfl-draft-2025-takeaways-jaguars-browns-falcons-rams-scoop-city/
-
-**Indian and Pakistani Soldiers Briefly Exchange Fire Along Kashmir Border**\
-`The clash took place just days after a terror attack killed 26 people on the Indian side of the disputed region, raising tensions between the two nuclear-armed nations.`\
-https://nytimes.com/2025/04/25/world/asia/india-pakistan-kashmir.html
 
