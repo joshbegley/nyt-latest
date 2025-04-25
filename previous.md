@@ -1,3 +1,7 @@
+**Packers draft WR Matthew Golden: How he fits, pick grade and scouting intel**\
+`The Texas wide receiver posted the fastest 40-yard dash time at February's NFL Scouting Combine.`\
+https://nytimes.com/athletic/6268123/2025/04/24/matthew-golden-packers-nfl-draft/
+
 **Chargers draft RB Omarion Hampton: How he fits, pick grade and scouting intel**\
 `Hampton was a two-time first-team All-ACC selection at North Carolina and set the school record for all-purpose yards in 2024. `\
 https://nytimes.com/athletic/6264669/2025/04/24/omarion-hampton-chargers-nfl-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/24/us/school-closure-zuckerberg-chan.html
 **Buccaneers draft Ohio State WR Emeka Egbuka: How he fits, pick grade and scouting intel**\
 `Egbuka, Ohio State's all-time leader in receptions, joins Tampa Bay following a storybook ending to a standout collegiate career.`\
 https://nytimes.com/athletic/6285108/2025/04/24/emeka-egbuka-buccaneers-nfl-draft/
-
-**Seahawks draft OL Grey Zabel: How he fits, pick grade and scouting intel**\
-`Zabel, a consensus All-American and Senior Bowl standout at North Dakota State, fills a huge need in Seattle.`\
-https://nytimes.com/athletic/6273190/2025/04/24/grey-zabel-seahawks-nfl-draft/
 

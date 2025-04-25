@@ -1,3 +1,7 @@
+**Packers draft WR Matthew Golden: How he fits, pick grade and scouting intel**\
+`The Texas wide receiver posted the fastest 40-yard dash time at February's NFL Scouting Combine.`\
+https://nytimes.com/athletic/6268123/2025/04/24/matthew-golden-packers-nfl-draft/
+
 **Chargers draft RB Omarion Hampton: How he fits, pick grade and scouting intel**\
 `Hampton was a two-time first-team All-ACC selection at North Carolina and set the school record for all-purpose yards in 2024. `\
 https://nytimes.com/athletic/6264669/2025/04/24/omarion-hampton-chargers-nfl-draft/
