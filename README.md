@@ -1,3 +1,11 @@
+**Giants leave Round 1 of NFL Draft having executed a possible best-case scenario**\
+`The Giants got their elite prospect in Abdul Carter at No. 3 before finding a way back into Round 1, without overpaying, for QB Jaxson Dart.`\
+https://nytimes.com/athletic/6308076/2025/04/25/giants-nfl-draft-jaxson-dart-abdul-carter/
+
+**Word of the Day: simulacrum**\
+`This word has appeared in 30 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/04/25/learning/word-of-the-day-simulacrum.html
+
 **Messi and Inter Miami in Champions Cup hole after Vancouver setback**\
 `The Argentina star and his colleagues must overturn a two-goal deficit in the second leg.`\
 https://nytimes.com/athletic/6308186/2025/04/25/lionel-messi-inter-miami-vancouver-champions-cup/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6307543/2025/04/25/will-campbell-patriots-2025-nfl-
 **Tight end at No. 10? Why the Bears believe Colston Loveland is worth it**\
 `Loveland's versatility and makeup stood out to Bears staff, making them feel comfortable taking a tight end as high as No. 10.`\
 https://nytimes.com/athletic/6307859/2025/04/25/tight-end-at-no-10-why-the-bears-believe-colston-loveland-is-worth-it/
-
-**Bengals’ swing for the fences with Shemar Stewart puts more pressure on Al Golden**\
-`Cincinnati picked a player with incredible traits and upside. Now the new defensive coordinator has to make sure that upside it realized.`\
-https://nytimes.com/athletic/6307868/2025/04/25/bengals-shemar-stewart-nfl-draft-al-golden/
-
-**Lawyers Seek Return of Migrants Deported Under Wartime Act**\
-`An updated lawsuit filed in Washington was the latest in a flurry of suits challenging the Trump administration’s use of the Alien Enemies Act to send migrants to a prison in El Salvador.`\
-https://nytimes.com/2025/04/25/us/politics/lawyers-seek-migrant-return.html
 
