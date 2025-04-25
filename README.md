@@ -1,3 +1,15 @@
+**Ukrainian Peace Plan Hints at Concessions, but Major Obstacles Remain**\
+`Officials in Kyiv plan to deliver their proposal to President Trump’s team, after rejecting a White House plan that would have given the Kremlin much of what it wants.`\
+https://nytimes.com/2025/04/25/world/europe/ukraine-peace-counterproposal.html
+
+**Browns draft RB Quinshon Judkins: How he fits, pick grade and scouting intel**\
+`Judkins led Ohio State's national championship team in rushing yards (1,060) and rushing touchdowns (14) last season.`\
+https://nytimes.com/athletic/6273632/2025/04/25/quinshon-judkins-browns-nfl-draft/
+
+**Seahawks draft safety Nick Emmanwori: How he fits, draft grade and scouting intel**\
+`The South Carolina defensive standout was one of three college players to return two interceptions for touchdowns in 2024.`\
+https://nytimes.com/athletic/6264622/2025/04/25/nick-emmanwori-seahawks-nfl-draft/
+
 **Judge Blocks Trump Order Ending Union Protections for Federal Workers**\
 `An order signed by President Trump last month was aimed at stripping collective bargaining rights from hundreds of thousands of federal workers.`\
 https://nytimes.com/2025/04/25/us/politics/judge-blocks-trump-order-ending-union-protections-for-federal-workers.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6310157/2025/04/25/leyton-orient-takeover-david-gan
 **My ‘Natural’ Hairdresser Uses Synthetic Chemicals. Can I Leave a Bad Review?**\
 `The magazine’s Ethicist columnist on responding to a small-business owner’s misleading claims.`\
 https://nytimes.com/2025/04/25/magazine/hairdresser-chemicals-ethics.html
-
-**Ex-ASU, Georgia QB Rashada to transfer to Sacramento State**\
-`Rashada didn't play this season at Georgia after transferring from Arizona State.`\
-https://nytimes.com/athletic/6310138/2025/04/25/jaden-rashada-sacramento-state-transfer/
-
-**Justice Dept. Policy Now Allows Pursuit of Reporters’ Records in Leak Inquiries**\
-`A new memo suggests that investigations may be launched not just for leaks of classified information, but where disclosures “undermine” Trump administration policies.`\
-https://nytimes.com/2025/04/25/us/politics/leak-investigations-media.html
-
-**Downtown L.A. Has Seen Its Share of Violence. Then Someone Went After Its Trees.**\
-`The authorities said a man used a chain saw to destroy more than a dozen trees in downtown Los Angeles, an attack that saddened and rattled residents and city leaders.`\
-https://nytimes.com/2025/04/25/us/los-angeles-trees-violence-crime.html
 
