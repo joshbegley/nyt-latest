@@ -1,3 +1,15 @@
+**Drafting Josh Conerly Jr. to further protect Jayden Daniels was always Commanders' plan**\
+`“What we discussed beforehand was if (Conerly) was on the board, we weren’t going to trade back,” Washington GM Adam Peters said. `\
+https://nytimes.com/athletic/6308356/2025/04/25/commanders-josh-conerly-nfl-draft/
+
+**How the Vikings turned down a trade down and ended up with Donovan Jackson**\
+`The Vikings could have traded down in Round 1, but they didn't want to risk missing out on Jackson, who could step in as an early starter.`\
+https://nytimes.com/athletic/6308398/2025/04/25/vikings-nfl-draft-donovan-jackson-trade/
+
+**In Game 3, Clippers exposed Nuggets for what they lack around Jokic and Murray**\
+`The Nuggets went into Los Angeles needing a win to take back home-court advantage, and the Clippers dismantled them in every way possible.`\
+https://nytimes.com/athletic/6307712/2025/04/25/clippers-defeat-nuggets-game-3/
+
 **Why Cowboys think they might have their next Zack Martin in Tyler Booker**\
 `What drew the Cowboys to Booker, who is expected to start at right guard? “You see it on the tape, No. 1," Will McClay said.`\
 https://nytimes.com/athletic/6308346/2025/04/25/cowboys-tyler-booker-first-round-zack-martin-comparison/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/25/nyregion/steven-wilson-trump-dei.html
 **Climbing Out of Flames**\
 `Tell us a story, real or made up, that is inspired by this image.`\
 https://nytimes.com/2025/04/25/learning/climbing-out-of-flames.html
-
-**In Microplastics, a Reporter Sees the Big Picture**\
-`Researchers are just beginning to understand how microplastics might be affecting human health. A Reporter visited a lab to observe some of the work.`\
-https://nytimes.com/2025/04/25/insider/microplastics-reporting.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/04/25/crosswords/spelling-bee-forum.html
-
-**Tyleik Williams is nimble, instinctive and a prototypical Lions draft pick**\
-`The Lions, impressed by Williams' skills, football IQ and get-to-work mindset, took him at No. 28 in Thursday's first round.`\
-https://nytimes.com/athletic/6308222/2025/04/25/lions-tyleik-williams-nfl-draft/
 
