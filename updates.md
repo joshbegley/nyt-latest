@@ -1,3 +1,5 @@
+
+
 **Tranmere midfielder given 13-match ban for homophobic slur**\
 `It is his third "aggravated breach" and his second offence of using language regarding "sexual orientation."`\
 https://nytimes.com/athletic/6309433/2025/04/25/sam-finley-ban-homophobic/
