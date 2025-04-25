@@ -1,40 +1,40 @@
-**‘The Accountant 2’ | Anatomy of a Scene**\
-`The director Gavin O’Connor narrates a sequence from “The Accountant 2,” starring Ben Affleck and Jon Bernthal.`\
-https://nytimes.com/video/movies/100000010128701/the-accountant-2-scene.html
+**Barcelona's Lewandowski and Balde to miss Copa del Rey final vs Madrid**\
+`Both players are sidelined with hamstring issues sustained earlier this month.`\
+https://nytimes.com/athletic/6304500/2025/04/25/barcelona-lewandowski-balde-copa-del-rey/
 
-**Markets Rise on Hints of Easing Trade Tensions**\
-`Stocks were pointing toward a fourth straight positive trading session.`\
-https://nytimes.com/2025/04/25/business/trump-tariffs-stocks-sandp-500.html
+**Air Raids and Antidepressants: Sleep Deprivation Takes a Toll in Ukraine**\
+`Sleep deprivation has become a health crisis in the country, experts and psychologists say. They cite near-nightly drone attacks as one of the major impediments to getting proper rest.`\
+https://nytimes.com/2025/04/25/world/europe/ukraine-sleep-deprivation-russia-war.html
 
-**La Liga? Serie A? Liga MX? Inside the battle to play league games in USA**\
-`With courts green-lighting foreign league matches to be held on U.S. soil, the ball is at FIFA's feet – and plenty stakeholders are waiting`\
-https://nytimes.com/athletic/6302542/2025/04/25/la-liga-serie-a-premier-league-la-liga-matches-usa-fifa-relevent/
+**3 Toxic Relationship Habits to Avoid**\
+`The experts also offered advice on what you can do instead.`\
+https://nytimes.com/2025/04/25/well/toxic-relationship-red-flag.html
 
-**Drafting Josh Conerly Jr. to further protect Jayden Daniels was always Commanders' plan**\
-`“What we discussed beforehand was if (Conerly) was on the board, we weren’t going to trade back,” Washington GM Adam Peters said. `\
-https://nytimes.com/athletic/6308356/2025/04/25/commanders-josh-conerly-nfl-draft/
+**The New York Times News Quiz, April 25, 2025**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2025/04/25/briefing/quiz-pope-hegseth-harvard-trump.html
 
-**How the Vikings turned down a trade and ended up with Donovan Jackson**\
-`The Vikings could have traded down in Round 1, but they didn't want to risk missing out on Jackson, who could step in as an early starter.`\
-https://nytimes.com/athletic/6308398/2025/04/25/vikings-nfl-draft-donovan-jackson-trade/
+**Ross Douthat on Trump, Mysticism and Psychedelics**\
+`The Times Opinion columnist discusses religion and belief — at this moment in our politics, and in our lives more generally.`\
+https://nytimes.com/2025/04/25/opinion/ezra-klein-podcast-ross-douthat.html
 
-**In Game 3, Clippers exposed Nuggets for what they lack around Jokic and Murray**\
-`The Nuggets went into Los Angeles needing a win to take back home-court advantage, and the Clippers dismantled them in every way possible.`\
-https://nytimes.com/athletic/6307712/2025/04/25/clippers-defeat-nuggets-game-3/
+**Watch Ben Affleck Line Dance in ‘The Accountant 2’**\
+`The director Gavin O’ Connor narrates a sequence from the film featuring the actor and Jon Bernthal.`\
+https://nytimes.com/2025/04/25/movies/watch-ben-affleck-line-dance-in-the-accountant-2.html
 
-**Why Cowboys think they might have their next Zack Martin in Tyler Booker**\
-`What drew the Cowboys to Booker, who is expected to start at right guard? “You see it on the tape, No. 1," Will McClay said.`\
-https://nytimes.com/athletic/6308346/2025/04/25/cowboys-tyler-booker-first-round-zack-martin-comparison/
+**The Terrifying Prospect of Trump’s Peace Plan for Ukraine**\
+`Assenting to Russia’s annexation of Crimea would have global consequences.`\
+https://nytimes.com/2025/04/25/opinion/trump-ukraine-peace.html
 
-**With Omarion Hampton pick, Chargers move toward fulfilling Harbaugh's run-game promise**\
-`The North Carolina running back joins free agent signing Najee Harris in a remade Los Angeles backfield. `\
-https://nytimes.com/athletic/6308412/2025/04/25/chargers-omarion-hampton-jim-harbaugh-run-game/
+**An Artist’s Journey From the Soviet Union to the Frick**\
+`Years ago, Vladimir Kanevsky’s floral sculptures started turning up in Manhattan’s most elegant living rooms. Now his work is on display alongside masterpieces.`\
+https://nytimes.com/2025/04/25/style/an-artists-journey-from-the-soviet-union-to-the-frick.html
 
-**FA Cup semi-final odds: Sarr and Elanga the keys to upset wins?**\
-`Sam Tighe has a look at the best bets around this weekend’s FA Cup semi-finals. `\
-https://nytimes.com/athletic/6304691/2025/04/25/fa-cup-semi-final-betting-predictions-tips-odds/
+**Kennedy Wants to Ban Some Food Dyes. Here’s What the Data Shows.**\
+`The federal health department has said it will move to phase out eight artificial dyes, citing health concerns.`\
+https://nytimes.com/2025/04/25/well/food-dyes-ban.html
 
-**George Santos, Expelled From House, Now Faces Sentencing**\
-`Federal prosecutors want Mr. Santos, whose pattern of lies and fraud led to his expulsion from Congress, to be sentenced to 87 months in prison.`\
-https://nytimes.com/2025/04/25/nyregion/george-santos-sentencing-prison.html
+**Protein Is in Everything These Days. Even Popcorn.**\
+`Social media has fueled a “proteinification” of snacks, and Khloé Kardashian is hopping on board with a line of enhanced popcorn.`\
+https://nytimes.com/2025/04/25/style/khloe-kardashian-protein-popcorn-khloud.html
 
