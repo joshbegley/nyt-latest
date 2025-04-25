@@ -1,3 +1,7 @@
+**Rushworth wants to leave Brighton if game time does not improve**\
+`The 23-year-old spent the first half of the current campaign on loan to Hull City in the second tier.`\
+https://nytimes.com/athletic/6309461/2025/04/25/carl-rushworth-brighton-future/
+
 **A Folk Music Renaissance, With Some Modern Concerns**\
 `Several rising British bands are using centuries-old ditties to discuss hot-button issues like prison abolition, trans rights and the gig economy.`\
 https://nytimes.com/2025/04/25/arts/music/uk-folk-music-politics.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6309299/2025/04/25/lauren-hemp-manchester-city-retu
 **Best available players for the Seahawks: Why Shedeur Sanders could be an option**\
 `If the Seahawks want Sanders, they have the resources to go get him. Meanwhile, borderline Round 1 talents remain available at CB and edge.`\
 https://nytimes.com/athletic/6308145/2025/04/25/seahawks-nfl-draft-2025-best-available/
-
-**Wisconsin Judge Arrested, Accused of Shielding Immigrant From Federal Agents**\
-`Judge Hannah Dugan was arrested on suspicion that she “intentionally misdirected federal agents away from” an immigrant being pursued by the authorities, the F.B.I. director said in a social media post that he later deleted.`\
-https://nytimes.com/2025/04/25/us/politics/fbi-arrest-judge.html
 

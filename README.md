@@ -1,3 +1,7 @@
+**The Bounce: Five NBA playoff storylines to watch this weekend. Plus, awards season is here!**\
+`In the 500th edition of The Bounce, Zach Harper examines the five biggest playoff storylines ahead of the weekend`\
+https://nytimes.com/athletic/6309369/2025/04/25/nba-playoffs-lebron-james-anthony-edwards-lakers-timberwolves-nba-playoffs/
+
 **Rushworth wants to leave Brighton if game time does not improve**\
 `The 23-year-old spent the first half of the current campaign on loan to Hull City in the second tier.`\
 https://nytimes.com/athletic/6309461/2025/04/25/carl-rushworth-brighton-future/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/25/dining/best-chicken-teriyaki-recipe.html
 **Man City's Hemp to return against Leicester after five months out**\
 `Hemp was ruled out of England's matches against the United States and Switzerland in November after undergoing knee surgery.`\
 https://nytimes.com/athletic/6309299/2025/04/25/lauren-hemp-manchester-city-return/
-
-**Best available players for the Seahawks: Why Shedeur Sanders could be an option**\
-`If the Seahawks want Sanders, they have the resources to go get him. Meanwhile, borderline Round 1 talents remain available at CB and edge.`\
-https://nytimes.com/athletic/6308145/2025/04/25/seahawks-nfl-draft-2025-best-available/
 

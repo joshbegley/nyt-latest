@@ -1,3 +1,7 @@
+**Rushworth wants to leave Brighton if game time does not improve**\
+`The 23-year-old spent the first half of the current campaign on loan to Hull City in the second tier.`\
+https://nytimes.com/athletic/6309461/2025/04/25/carl-rushworth-brighton-future/
+
 **A Folk Music Renaissance, With Some Modern Concerns**\
 `Several rising British bands are using centuries-old ditties to discuss hot-button issues like prison abolition, trans rights and the gig economy.`\
 https://nytimes.com/2025/04/25/arts/music/uk-folk-music-politics.html
