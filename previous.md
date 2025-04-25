@@ -1,3 +1,7 @@
+**How a secret trip to Louisiana convinced the Patriots to draft Will Campbell**\
+`The Patriots' top decision-makers took a top-secret trip to Louisiana for one final look at the guy at the top of their NFL draft board.`\
+https://nytimes.com/athletic/6307086/2025/04/24/will-campbell-patriots-nfl-draft-lsu-mike-vrabel/
+
 **Packers draft WR Matthew Golden: How he fits, pick grade and scouting intel**\
 `The Texas wide receiver posted the fastest 40-yard dash time at February's NFL Scouting Combine.`\
 https://nytimes.com/athletic/6268123/2025/04/24/matthew-golden-packers-nfl-draft/
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/6264669/2025/04/24/omarion-hampton-chargers-nfl-dra
 https://nytimes.com/athletic/6307043/2025/04/24/nfl-draft-2025-jaguars-travis-hunter-trade/
 
 **Leafs' Simon Benoit plays OT hero, puts Senators on the brink: Game 3 takeaways**\
-`Maple Leafs win second consecutive 3-2 overtime game to take a 3-0 series stranglehold over the Ottawa Senators . `\
+`Maple Leafs win second consecutive 3-2 overtime game to take a 3-0 series stranglehold over the Ottawa Senators. `\
 https://nytimes.com/athletic/6306373/2025/04/24/leafs-senators-game-3-nhl-playoffs/
 
 **Steelers draft DT Derrick Harmon: How he fits, pick grade and scouting intel**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6306705/2025/04/24/trump-clay-matthews-bears-nfl-dr
 **The Zuckerbergs Founded Two Bay Area Schools. Now They’re Closing.**\
 `Mark Zuckerberg and his wife, Dr. Priscilla Chan, opened the schools to help communities of color. Some families wonder if the shutting of the schools is related to his D.E.I. retrenchment.`\
 https://nytimes.com/2025/04/24/us/school-closure-zuckerberg-chan.html
-
-**Buccaneers draft Ohio State WR Emeka Egbuka: How he fits, pick grade and scouting intel**\
-`Egbuka, Ohio State's all-time leader in receptions, joins Tampa Bay following a storybook ending to a standout collegiate career.`\
-https://nytimes.com/athletic/6285108/2025/04/24/emeka-egbuka-buccaneers-nfl-draft/
 
