@@ -1,3 +1,11 @@
+**Ex-ASU, Georgia QB Rashada to transfer to Sacramento State**\
+`Rashada didn't play this season at Georgia after transferring from Arizona State.`\
+https://nytimes.com/athletic/6310138/2025/04/25/jaden-rashada-sacramento-state-transfer/
+
+**Justice Dept. Policy Now Allows Pursuit of Reporters’ Records in Leak Inquiries**\
+`A new memo suggests that investigations may be launched not just for leaks of classified information, but where disclosures “undermine” Trump administration policies.`\
+https://nytimes.com/2025/04/25/us/politics/leak-investigations-media.html
+
 **Downtown L.A. Has Seen Its Share of Violence. Then Someone Went After Its Trees.**\
 `The authorities said a man used a chain saw to destroy more than a dozen trees in downtown Los Angeles, an attack that saddened and rattled residents and city leaders.`\
 https://nytimes.com/2025/04/25/us/los-angeles-trees-violence-crime.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/25/science/david-paton-dead.html
 **What Constitutes Cheating at Wordle?**\
 `A ruling on the use of friends’ “Wordle skeletons” to solve the puzzle.`\
 https://nytimes.com/interactive/2025/04/25/magazine/hodgeman-quiz.html
-
-**Liverpool tickets for potential title coronation listed for £3,000 online**\
-`Arne Slot’s side need just a point on Sunday to be guaranteed top spot.`\
-https://nytimes.com/athletic/6310087/2025/04/25/liverpool-tottenham-ticket-prices-title/
-
-**Mangione Pleads Not Guilty as U.S. Seeks Death Penalty**\
-`The judge warned Attorney General Pam Bondi to temper her statements about Luigi Mangione to ensure a fair trial on charges of killing a health insurance executive.`\
-https://nytimes.com/2025/04/25/nyregion/luigi-mangione-arraignment.html
 
