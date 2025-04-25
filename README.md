@@ -1,3 +1,7 @@
+**Markets Rise on Hints of Easing Trade Tensions**\
+`Stocks were pointing toward a fourth straight positive trading session.`\
+https://nytimes.com/2025/04/25/business/trump-tariffs-stocks-sandp-500.html
+
 **La Liga? Serie A? Liga MX? Inside the battle to play league games in USA**\
 `With courts green-lighting foreign league matches to be held on U.S. soil, the ball is at FIFA's feet – and plenty stakeholders are waiting`\
 https://nytimes.com/athletic/6302542/2025/04/25/la-liga-serie-a-premier-league-la-liga-matches-usa-fifa-relevent/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/25/nyregion/george-santos-sentencing-prison.html
 **Snapshots of the Seasons in One of New York City’s Last Wild Places**\
 `An abandoned rail line in central Queens may or may not be the city’s next tourist destination.`\
 https://nytimes.com/2025/04/25/nyregion/nyc-abandoned-railroad-tracks-queens.html
-
-**He’s a Foe of D.E.I. in Schools but Not a Fan of Trump’s Crusade**\
-`Steven Wilson was forced out of the charter school network he started for an essay that conflicted with antiracism initiatives. Five years later, he feels both vindicated and dismayed.`\
-https://nytimes.com/2025/04/25/nyregion/steven-wilson-trump-dei.html
 
