@@ -32,7 +32,7 @@ https://nytimes.com/athletic/6303276/2025/04/25/giannis-antetokounmpo-bucks-game
 
 **Steve Ballmer built the Intuit Dome for playoff moments. He got one Thursday**\
 `The Clippers' first playoff game at their $2 billion arena was just about perfect.`\
-https://nytimes.com/athletic/6308481/2025/04/25/inuit-dome-clippers-nba-playoffs-steve-ballmer/
+https://nytimes.com/athletic/6308481/2025/04/25/intuit-dome-clippers-nba-playoffs-steve-ballmer/
 
 **Cardinal Accused of Hiding Priest Sex Abuse Will Help Close Pope Francis’ Casket**\
 `Cardinal Roger M. Mahony, who was accused of covering up cases of abuse as archbishop of Los Angeles, will have an official role in the ceremonies around Francis’ funeral.`\

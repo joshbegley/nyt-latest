@@ -1,3 +1,19 @@
+**Crystals on Crocs and Too-Tight Suits: the N.F.L. Draft Delivers**\
+`A new wave of college players enters professional football with branding deals in place and fashion on their minds.`\
+https://nytimes.com/2025/04/25/style/nfl-draft-fashion.html
+
+**Trump Claims He’s Spoken With Xi Jinping. China Says Otherwise.**\
+`President Trump said “we’re meeting with China” on tariffs, comments aimed at soothing jittery financial markets. But Chinese officials say no talks have taken place.`\
+https://nytimes.com/2025/04/25/us/politics/trump-china-tariffs-xi-jinping.html
+
+**Broncos NFL Draft hub: Picks, grades, fits and scouting reports**\
+`Denver has seven picks over the three-day NFL Draft.`\
+https://nytimes.com/athletic/6296454/2025/04/25/broncos-nfl-draft-picks-2025-grades-scouting-reports/
+
+**The Windup: MLB's surprising No. 25 history**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6308439/2025/04/25/jersey-number-mlb-25-the-windup/
+
 **In Hockey Canada sexual assault trial, judge declares mistrial, new jury to be picked**\
 `LONDON, Ont.`\
 https://nytimes.com/athletic/6303432/2025/04/25/hockey-canada-trial-judge-mistrial-sexual-assault/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6308481/2025/04/25/inuit-dome-clippers-nba-playoffs
 **Cardinal Accused of Hiding Priest Sex Abuse Will Help Close Pope Francis’ Casket**\
 `Cardinal Roger M. Mahony, who was accused of covering up cases of abuse as archbishop of Los Angeles, will have an official role in the ceremonies around Francis’ funeral.`\
 https://nytimes.com/2025/04/25/us/cardinal-roger-mahony-pope-francis-funeral.html
-
-**NHL investigating Senators' Game 3 warmups mischief vs. Leafs: Source**\
-`Senators forward Nick Cousins alleged to have been shooting pucks into the Leafs end, targeting goalie Anthony Stolarz.`\
-https://nytimes.com/athletic/6309291/2025/04/25/nhl-playoffs-investigation-senators-warm-ups/
-
-**NHL Power Rankings: The playoff teams 1-16, plus — who is stepping up?**\
-`It’s still way too early to know who will add “big game player” to their narrative this season, but we’ve got a few early candidates.`\
-https://nytimes.com/athletic/6309022/2025/04/25/nhl-power-rankings-playoffs-8/
-
-**Book Club: Read ‘The Safekeep,’ by Yael van der Wouden, With the Book Review**\
-`In May, the Book Review Book Club will read and discuss “The Safekeep,” Yael van der Wouden’s novel about a woman wrapped up in a historical drama and a forbidden romance.`\
-https://nytimes.com/2025/04/25/books/review/safekeep-yael-van-der-wouden-book-club.html
-
-**Map: 6.3-Magnitude Earthquake Strikes Near Ecuador**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/04/25/world/americas/ecuador-quake-tracker.html
 

@@ -1,3 +1,19 @@
+**Crystals on Crocs and Too-Tight Suits: the N.F.L. Draft Delivers**\
+`A new wave of college players enters professional football with branding deals in place and fashion on their minds.`\
+https://nytimes.com/2025/04/25/style/nfl-draft-fashion.html
+
+**Trump Claims He’s Spoken With Xi Jinping. China Says Otherwise.**\
+`President Trump said “we’re meeting with China” on tariffs, comments aimed at soothing jittery financial markets. But Chinese officials say no talks have taken place.`\
+https://nytimes.com/2025/04/25/us/politics/trump-china-tariffs-xi-jinping.html
+
+**Broncos NFL Draft hub: Picks, grades, fits and scouting reports**\
+`Denver has seven picks over the three-day NFL Draft.`\
+https://nytimes.com/athletic/6296454/2025/04/25/broncos-nfl-draft-picks-2025-grades-scouting-reports/
+
+**The Windup: MLB's surprising No. 25 history**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6308439/2025/04/25/jersey-number-mlb-25-the-windup/
+
 **In Hockey Canada sexual assault trial, judge declares mistrial, new jury to be picked**\
 `LONDON, Ont.`\
 https://nytimes.com/athletic/6303432/2025/04/25/hockey-canada-trial-judge-mistrial-sexual-assault/
