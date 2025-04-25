@@ -1,3 +1,15 @@
+**Tranmere midfielder given 13-match ban for homophobic slur**\
+`It is his third "aggravated breach" and his second offence of using language regarding "sexual orientation."`\
+https://nytimes.com/athletic/6309433/2025/04/25/sam-finley-ban-homophobic/
+
+**Car Bomb Kills Russian General in Moscow Suburb**\
+`The Investigative Committee of Russia identified the man killed as as Lt. Gen. Yaroslav Moskalik, a senior figure in the Russian military. Video from the scene showed flames erupting from a car after the explosion.`\
+https://nytimes.com/video/world/europe/100000010130488/car-bomb-kills-russian-military-general-in-moscow-suburb.html
+
+**Trump Budget Draft Ends Narcan Program and Other Addiction Measures**\
+`A $56 million grant to train emergency responders and supply them with the overdose reversal spray, plus other programs that address addiction, could be eliminated.`\
+https://nytimes.com/2025/04/25/health/narcan-grants-cuts-kennedy.html
+
 **Offseason Canucks depth chart: Trade chips, roster holes, free agents and more**\
 `The Canucks have some major gaps in the lineup that will need to be creatively and effectively filled.`\
 https://nytimes.com/athletic/6308575/2025/04/25/canucks-depth-chart-offseason-2025/
