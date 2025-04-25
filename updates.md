@@ -1,3 +1,15 @@
+**Jaguars draft Travis Hunter: How he fits, pick grade and scouting intel**\
+`The 2024 Heisman Trophy winner totaled seven interceptions and 16 pass deflections in 22 games across two seasons with the Buffaloes.`\
+https://nytimes.com/athletic/6267459/2025/04/24/travis-hunter-jaguars-nfl-draft/
+
+**Full list of 2025 NFL Draft picks from No. 1 through 'Mr. Irrelevant'**\
+`Catch up on all 257 selections in the 2025 NFL Draft in Green Bay, from No. 1 through "Mr. Irrelevant."`\
+https://nytimes.com/athletic/6303903/2025/04/24/nfl-draft-pick-by-pick-tracker-2025/
+
+**Titans draft Miami QB Cam Ward at No. 1: How he fits, pick grade and scouting intel**\
+`Ward, a fifth-year senior, turned heads and ascended to the top of the draft board following his historic lone season with the Hurricanes.`\
+https://nytimes.com/athletic/6285128/2025/04/24/cam-ward-titans-nfl-draft/
+
 **Forced Labor Taints Brazilian Coffee, Say Complaints to U.S. Authorities**\
 `Two legal actions seeking U.S. government intervention say that some of the coffee bought by major American retailers is harvested in conditions that amount to slavery.`\
 https://nytimes.com/2025/04/24/world/americas/brazil-coffee-slave-labor.html
