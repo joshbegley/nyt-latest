@@ -1,3 +1,7 @@
+**The Bounce: Five NBA playoff storylines to watch this weekend. Plus, awards season is here!**\
+`In the 500th edition of The Bounce, Zach Harper examines the five biggest playoff storylines ahead of the weekend`\
+https://nytimes.com/athletic/6309369/2025/04/25/nba-playoffs-lebron-james-anthony-edwards-lakers-timberwolves-nba-playoffs/
+
 **Rushworth wants to leave Brighton if game time does not improve**\
 `The 23-year-old spent the first half of the current campaign on loan to Hull City in the second tier.`\
 https://nytimes.com/athletic/6309461/2025/04/25/carl-rushworth-brighton-future/
