@@ -1,3 +1,11 @@
+**Florida Democratic Party Is ‘Dead,’ State Senator Says as He Leaves It**\
+`State Senator Jason Pizzo, the Democratic minority leader, announced in a floor speech that he was leaving the party.`\
+https://nytimes.com/2025/04/24/us/pizzo-florida-democratic-party.html
+
+**Texas Judge Unseals ICE Document Detailing Deportation Notices: an English Form and at Least 12 Hours**\
+`A declaration by an ICE official says an English-language form was “read and explained” to the detainees and that they had “no less than 12 hours” to express the intent to challenge their deportations.`\
+https://nytimes.com/2025/04/24/us/politics/deportations-ice-document-venezuelan-migrants.html
+
 **Trump’s Crimea Proposal Would End a Decade of U.S. Resistance**\
 `A new U.S. peace plan offered to Russia and Ukraine proposes American recognition of the peninsula, which Moscow seized in 2014.`\
 https://nytimes.com/2025/04/24/us/politics/trump-crimea-peace-agreement.html
