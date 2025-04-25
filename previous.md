@@ -1,3 +1,11 @@
+**Cubs had offseason trade in place for Jesús Luzardo, but backed out due to medical concerns: Sources**\
+`The lefty, who was later dealt by the Marlins to the Phillies, will face the Cubs on Saturday at Wrigley Field.`\
+https://nytimes.com/athletic/6310063/2025/04/25/jesus-luzardo-phillies-cubs-marlins-trade-medical/
+
+**Real Estate Brokerages Fight Over How Houses for Sale Should Be Listed**\
+`Compass, one of the largest brokerages in the country, has sued a real estate database in Seattle and accused it of “monopolistic” and “anticompetitive” behavior.`\
+https://nytimes.com/2025/04/25/realestate/brokerages-compass-lawsuit.html
+
 **Fired U.S.A.I.D. Workers to Keep Government-Issued Phones and Computers**\
 `The devices will be remotely wiped “to simplify processes and to reduce burden” of terminating thousands of federal workers before the agency is closed.`\
 https://nytimes.com/2025/04/25/us/politics/usaid-phones-computers.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/25/nyregion/fatal-subway-stabbing-nyc.html
 **The Trump Administration Wants Seafloor Mining. What Does That Mean?**\
 `A recent executive order would accelerate mining in little-understood undersea ecosystems.`\
 https://nytimes.com/2025/04/25/climate/seafloor-mining-science.html
-
-**At 13, Charlotte Brontë Already Knew How Good a Writer She Would Be**\
-`An anthology of her teenage poetry, published for the first time, shows ambition, even if the verse isn’t perfect.`\
-https://nytimes.com/2025/04/25/books/charlotte-bronte-teenage-poems.html
-
-**Steelers NFL Draft hub: Picks, grades, fits and scouting reports**\
-`Everything you need to know about the Steelers' 2025 draft class, from Round 1 through Round 7.`\
-https://nytimes.com/athletic/6302548/2025/04/25/steelers-nfl-draft-picks-2025-grades-scouting-reports/
 
