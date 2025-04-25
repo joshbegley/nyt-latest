@@ -1,3 +1,7 @@
+**What Constitutes Cheating at Wordle?**\
+`A ruling on the use of friends’ “Wordle skeletons” to solve the puzzle.`\
+https://nytimes.com/interactive/2025/04/25/magazine/27mag-hodgmanquiz.html
+
 **Liverpool tickets for potential title coronation listed for £3,000 online**\
 `Arne Slot’s side need just a point on Sunday to be guaranteed top spot.`\
 https://nytimes.com/athletic/6310087/2025/04/25/liverpool-tottenham-ticket-prices-title/
@@ -10,7 +14,7 @@ https://nytimes.com/2025/04/25/nyregion/luigi-mangione-arraignment.html
 `A first-call keyboardist, he worked with Elvis Presley and Dolly Parton, helped make Muscle Shoals a recording hub, and had a key role in redefining the sound of country.`\
 https://nytimes.com/2025/04/25/arts/music/david-briggs-dead.html
 
-**Cubs had offseason trade in place for Jesús Luzardo, but backed out due to medical concerns: Sources**\
+**Cubs had offseason trade ready for Jesús Luzardo, but backed out due to medical concerns**\
 `The lefty, who was later dealt by the Marlins to the Phillies, will face the Cubs on Saturday at Wrigley Field.`\
 https://nytimes.com/athletic/6310063/2025/04/25/jesus-luzardo-phillies-cubs-marlins-trade-medical/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/25/nyregion/ayden-wolfe-child-abuser-sentence.html
 **Rosenior extends Strasbourg contract until 2028**\
 `The 40-year-old turned down multiple approaches from Premier League clubs to commit to the Ligue 1 side.`\
 https://nytimes.com/athletic/6310012/2025/04/25/liam-rosenior-strasbourg-contract-blueco/
-
-**'I'm not f---ing around:' Herro fires back after Garland's remark on defense**\
-`After Garland said the Cavaliers' strategy was to pick on him, Herro said Somebody that doesn’t play defense shouldn’t be talking either."`\
-https://nytimes.com/athletic/6309871/2025/04/25/tyler-herro-darius-garland-defense-comments/
 

@@ -1,3 +1,11 @@
+**Liverpool tickets for potential title coronation listed for £3,000 online**\
+`Arne Slot’s side need just a point on Sunday to be guaranteed top spot.`\
+https://nytimes.com/athletic/6310087/2025/04/25/liverpool-tottenham-ticket-prices-title/
+
+**Mangione Pleads Not Guilty as U.S. Seeks Death Penalty**\
+`The judge warned Attorney General Pam Bondi to temper her statements about Luigi Mangione to ensure a fair trial on charges of killing a health insurance executive.`\
+https://nytimes.com/2025/04/25/nyregion/luigi-mangione-arraignment.html
+
 **David Briggs, a Music Force in Alabama and Nashville, Dies at 82**\
 `A first-call keyboardist, he worked with Elvis Presley and Dolly Parton, helped make Muscle Shoals a recording hub, and had a key role in redefining the sound of country.`\
 https://nytimes.com/2025/04/25/arts/music/david-briggs-dead.html
