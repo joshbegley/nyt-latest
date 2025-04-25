@@ -1,3 +1,15 @@
+**Messi and Inter Miami in Champions Cup hole after Vancouver setback**\
+`The Argentina star and his colleagues must overturn a two-goal deficit in the second leg.`\
+https://nytimes.com/athletic/6308186/2025/04/25/lionel-messi-inter-miami-vancouver-champions-cup/
+
+**How a Seahawks legend and a standout Senior Bowl week sold Seattle on Grey Zabel**\
+`"Everybody loves this guy," general manager John Schneider said of Zabel. "He's just buttoned-up, smart, tough, reliable. Our kind of guy."`\
+https://nytimes.com/athletic/6307846/2025/04/25/grey-zabel-seahawks-nfl-draft-steve-hutchinson/
+
+**Tight end at No. 10? Why the Bears believe Colston Loveland is worth it**\
+`Loveland's versatility and makeup stood out to Bears staff, making them feel comfortable taking a tight end as high as No. 10.`\
+https://nytimes.com/athletic/6307859/2025/04/25/tight-end-at-no-10-why-the-bears-believe-colston-loveland-is-worth-it/
+
 **The Draft Files: A look at the Bills' Day 2 strategy after Buffalo took a cornerback in Round 1**\
 `The Bills still have needs at defensive tackle, edge rusher and wide receiver.`\
 https://nytimes.com/athletic/6308026/2025/04/25/bills-2025-nfl-draft-day-2-strategy/
