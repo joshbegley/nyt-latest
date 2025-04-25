@@ -1,3 +1,11 @@
+**augustinus-bader-and-cerave-moisturizer**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/wc-augustinus-bader-and-cerave-moisturizer
+
+**Museum’s Benin Bronzes Are Reclaimed by Wealthy Collector**\
+`The royal leader of the Kingdom of Benin sought the return of artifacts displayed at the Museum of Fine Arts, Boston. The collector who owned them took them back instead.`\
+https://nytimes.com/2025/04/25/arts/design/benin-bronzes-museum-fine-arts-boston-lehman.html
+
 **Fantasy baseball waiver wire pickups featuring Agustín Ramírez, Gavin Lux and more**\
 `John Laghezza identifies the top waiver wire targets this week in fantasy baseball, starting with an exciting rookie backstop in Miami.`\
 https://nytimes.com/athletic/6301707/2025/04/25/fantasy-baseball-waiver-wire-pickups-featuring-agustin-ramirez-gavin-lux-and-more/
