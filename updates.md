@@ -1,3 +1,15 @@
+**The F.B.I. Arrested a Wisconsin Judge in an Immigration Dispute**\
+`Also, George Santos was sentenced to more than 7 years in prison. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/04/25/briefing/fbi-arrest-judge-trump-second-term-poll.html
+
+**David Paton, Creator of Flying Eye Hospital, Dies at 94**\
+`An idealistic ophthalmologist, he came up with an ingenious way to treat blindness in far-flung places: by outfitting an airplane with an operating room.`\
+https://nytimes.com/2025/04/25/science/david-paton-dead.html
+
+**What Constitutes Cheating at Wordle?**\
+`A ruling on the use of friends’ “Wordle skeletons” to solve the puzzle.`\
+https://nytimes.com/interactive/2025/04/25/magazine/hodgeman-quiz.html
+
 **What Constitutes Cheating at Wordle?**\
 `A ruling on the use of friends’ “Wordle skeletons” to solve the puzzle.`\
 https://nytimes.com/interactive/2025/04/25/magazine/27mag-hodgmanquiz.html
