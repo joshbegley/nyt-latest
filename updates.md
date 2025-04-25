@@ -1,3 +1,15 @@
+**Could Mars Be Elon Musk’s Next Business Venture?**\
+`Even as Musk’s work at the Department of Government Efficiency appeared to consume him, his top adviser created a set of companies named Red Planet I, II and III.`\
+https://nytimes.com/2025/04/25/us/politics/elon-musk-mars.html
+
+**Patriots draft RB TreVeyon Henderson: How he fits, pick grade and scouting intel**\
+`A national champion at Ohio State, Henderson rushed for 1,016 yards and 10 touchdowns in 2024 and led the Big Ten in yards per carry (7.1).`\
+https://nytimes.com/athletic/6273490/2025/04/25/treveyon-henderson-patriots-nfl-draft/
+
+**Grading every pick of NFL Draft Rounds 2 and 3: Seahawks get A-plus for Nick Emmanwori pick**\
+`How did each team fare with its draft picks on Day 2 of the 2025 NFL Draft?`\
+https://nytimes.com/athletic/6309122/2025/04/25/nfl-draft-grades-rounds-2-3-2025/
+
 **Ukrainian Peace Plan Hints at Concessions, but Major Obstacles Remain**\
 `Officials in Kyiv plan to deliver their proposal to President Trump’s team, after rejecting a White House plan that would have given the Kremlin much of what it wants.`\
 https://nytimes.com/2025/04/25/world/europe/ukraine-peace-counterproposal.html
