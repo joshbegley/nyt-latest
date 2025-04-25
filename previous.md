@@ -1,3 +1,19 @@
+**Nuno: 'We feel the history' at Forest ahead of FA Cup semi-final**\
+`Forest won the FA Cup in 1898 and 1959 but the last domestic trophy they lifted was the Zenith Data Systems Cup in 1992.`\
+https://nytimes.com/athletic/6309742/2025/04/25/nuno-nottingham-forest-fa-cup-history/
+
+**Palmer's dip in form down to self-belief not Chelsea's tactics, says Maresca**\
+`Palmer has gone 16 games without scoring for the club, having started the campaign with 14 goals in 23 appearances.`\
+https://nytimes.com/athletic/6309486/2025/04/25/chelsea-palmer-form-maresca/
+
+**Postecoglou says he is 'trying to change the perception' of Tottenham**\
+`The 59-year-old has previously criticised what he sees as a lack of defence of Spurs in the media.`\
+https://nytimes.com/athletic/6310076/2025/04/25/ange-postecoglou-tottenham-perception/
+
+**Government Notices to Migrants Fall Short of Due Process, Legal Experts Say**\
+`Venezuelan migrants were given English-only notices with limited time to file court challenges, according to a newly unsealed declaration.`\
+https://nytimes.com/2025/04/25/us/politics/trump-migrants-due-process.html
+
 **The F.B.I. Arrested a Wisconsin Judge in an Immigration Dispute**\
 `Also, George Santos was sentenced to more than 7 years in prison. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/04/25/briefing/fbi-arrest-judge-trump-second-term-poll.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/04/25/nyregion/luigi-mangione-arraignment.html
 **David Briggs, a Music Force in Alabama and Nashville, Dies at 82**\
 `A first-call keyboardist, he worked with Elvis Presley and Dolly Parton, helped make Muscle Shoals a recording hub, and had a key role in redefining the sound of country.`\
 https://nytimes.com/2025/04/25/arts/music/david-briggs-dead.html
-
-**Cubs had offseason trade ready for Jesús Luzardo, but backed out due to medical concerns**\
-`The lefty, who was later dealt by the Marlins to the Phillies, will face the Cubs on Saturday at Wrigley Field.`\
-https://nytimes.com/athletic/6310063/2025/04/25/jesus-luzardo-phillies-cubs-marlins-trade-medical/
-
-**Real Estate Brokerages Fight Over How Houses for Sale Should Be Listed**\
-`Compass, one of the largest brokerages in the country, has sued a real estate database in Seattle and accused it of “monopolistic” and “anticompetitive” behavior.`\
-https://nytimes.com/2025/04/25/realestate/brokerages-compass-lawsuit.html
-
-**Fired U.S.A.I.D. Workers to Keep Government-Issued Phones and Computers**\
-`The devices will be remotely wiped “to simplify processes and to reduce burden” of terminating thousands of federal workers before the agency is closed.`\
-https://nytimes.com/2025/04/25/us/politics/usaid-phones-computers.html
-
-**Jay Sigel, Amateur Golfer Who Played Like a Pro, Dies at 81**\
-`Many considered him to be the greatest American amateur since Bobby Jones. So why didn’t he try for the PGA Tour? An old hand injury had something to do with it.`\
-https://nytimes.com/2025/04/25/sports/golf/jay-sigel-dead.html
 
