@@ -1,3 +1,7 @@
+**F.D.A. Scientists Are Reinstated at Agency Food Safety Labs**\
+`After 20 percent of the agency’s work force was cut, federal health officials have decided to bring back some experts and review firings to fill gaps in critical roles.`\
+https://nytimes.com/2025/04/25/health/fda-food-safety-trump-layoffs.html
+
 **Aluko apologises to Wright after comments on male pundits in women’s football**\
 `Aluko described the former Arsenal and England striker as a “role model” in a statement posted on Instagram.`\
 https://nytimes.com/athletic/6309591/2025/04/25/eni-aluko-ian-wright-apology/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/25/health/narcan-grants-cuts-kennedy.html
 **Offseason Canucks depth chart: Trade chips, roster holes, free agents and more**\
 `The Canucks have some major gaps in the lineup that will need to be creatively and effectively filled.`\
 https://nytimes.com/athletic/6308575/2025/04/25/canucks-depth-chart-offseason-2025/
-
-**The Bounce: Five NBA playoff storylines to watch this weekend. Plus, awards season is here!**\
-`In the 500th edition of The Bounce, Zach Harper examines the five biggest playoff storylines ahead of the weekend`\
-https://nytimes.com/athletic/6309369/2025/04/25/nba-playoffs-lebron-james-anthony-edwards-lakers-timberwolves-nba-playoffs/
 
