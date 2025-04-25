@@ -1,3 +1,11 @@
+**Sean Combs Loses Request to Remove All Hotel Assault Video From Trial**\
+`It is not yet clear how much surveillance footage of the music mogul beating his former girlfriend, Casandra Ventura, in 2016 will be presented to the jury.`\
+https://nytimes.com/2025/04/25/arts/music/sean-diddy-combs-cassie-video-trial.html
+
+**Our After-Dinner Debate About Larry David’s Satire**\
+`Sampling the outpouring of reader responses to the comedian’s imaginary dinner with Hitler. Also: The law firms’ test; a plea for democracy.`\
+https://nytimes.com/2025/04/25/opinion/larry-david-hitler-trump.html
+
 **NWSL sets up potential for second division women's soccer league in 2026**\
 `The proposal describes the Division II league as a developmental place for college and younger players`\
 https://nytimes.com/athletic/6309751/2025/04/25/nwsl-division-ii-soccer-league/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/25/nyregion/george-santos-timeline.html
 **Book Club: Let’s Talk About Adam Ross’s ‘Playworld’**\
 `This off-kilter coming-of-age novel about one boy growing up in New York in the 1980s is detailed, digressive and capable of tracking the most minute shifts in emotional weather.`\
 https://nytimes.com/2025/04/25/books/review/podcast-adam-ross-playworld-bookclub.html
-
-**Read the F.B.I.’s Charging Document**\
-`The F.B.I. filed this document on Thursday in the case of Judge Hannah Dugan, who was arrested on Friday.`\
-https://nytimes.com/interactive/2025/04/25/us/judgedugancomplaint.html
-
-**Trump Budget to Take Ax to ‘Radical’ Safety Net Programs**\
-`A draft document outlines steep cuts or the elimination of funding for programs that provide child care, housing assistance, foreign aid and health research.`\
-https://nytimes.com/2025/04/25/us/politics/trump-budget-cuts.html
 
