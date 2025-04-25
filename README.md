@@ -1,3 +1,15 @@
+**Former South Carolina star guard MiLaysia Fulwiley transferring to LSU**\
+`Fulwiley, having averaged 11.7 points, 2.8 rebounds and 2 assists in only 19 minutes per game last season, highlights a revamped LSU roster.`\
+https://nytimes.com/athletic/6309897/2025/04/25/milaysia-fulwiley-transfer-lsu-south-carolina/
+
+**Building the World’s Biggest Plane to Help Catch the Wind**\
+`Radia, a Colorado-based company, wants to build enormous aircraft to transport giant wind turbine blades. It’s betting that politics won’t get in the way.`\
+https://nytimes.com/2025/04/25/climate/radia-the-worlds-biggest-plane.html
+
+**NFL plans for 3 Christmas games annually, raising questions about NBA tradition**\
+`The NFL will play two Christmas games on Netflix and another on Amazon. That could force the NBA to find new playing windows in the future.`\
+https://nytimes.com/athletic/6309913/2025/04/25/nfl-christmas-games-nba-tradition/
+
 **Four Perspectives on Trump’s Weak Poll Numbers**\
 `It’s not easy to burn this much good will so fast, and it doesn’t usually get any easier from here.`\
 https://nytimes.com/2025/04/25/upshot/trump-poll-numbers.html
@@ -17,16 +29,4 @@ https://nytimes.com/interactive/2025/04/25/us/elections/times-siena-poll-topline
 **Warren Moon bestows No. 1 on Cameron Ward as Titans unretire jersey number**\
 `Moon played 10 years with the Oilers and still holds the franchise records in passing yards and touchdowns.`\
 https://nytimes.com/athletic/6309872/2025/04/25/warren-moon-cam-ward-titans-jersey-number/
-
-**Marco Rossi on being dropped to the Wild's fourth line and his uncertain future: 'Always team first'**\
-`Rossi says for now his only focus is on the playoffs, though the demotion could be a sign of the team's future plans for him.`\
-https://nytimes.com/athletic/6309786/2025/04/25/marco-rossi-demotion-wild-future-nhl-playoffs/
-
-**Flashback: Your Weekly History Quiz, April 26, 2025**\
-`Can you sort 8 historical events?`\
-https://nytimes.com/interactive/2025/04/25/upshot/flashback.html
-
-**NCAA pushes for college player prop bet bans with new licensing agreement**\
-`Financial terms of the new deal were not disclosed, but the agreement could increase NCAA revenue`\
-https://nytimes.com/athletic/6309803/2025/04/25/ncaa-sports-prop-bet-ban-licensing-agreement/
 
