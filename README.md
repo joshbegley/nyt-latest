@@ -1,3 +1,7 @@
+**Why drafting Tyler Warren was easiest call Colts' Chris Ballard has made since Quenton Nelson**\
+`Ballard knew there was something special about Warren after seeing what he did versus USC last year. "He's got the best hands in the draft."`\
+https://nytimes.com/athletic/6308199/2025/04/25/colts-nfl-draft-2025-tyler-warren-chris-ballard/
+
 **Browns' trade-down is all about making yet another run at a franchise QB in 2026**\
 `Travis Hunter would’ve looked great in a Browns jersey, but adding a first-rounder next year gives Cleveland a shot at a top quarterback.`\
 https://nytimes.com/athletic/6308157/2025/04/25/browns-trade-nfl-draft-mason-graham/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6308205/2025/04/25/chiefs-josh-simmons-patrick-maho
 **'I feel like I'm that missing piece': Maxwell Hairston becomes Brandon Beane's chance at redemption**\
 `Taking Kaiir Elam in the first round in 2022 didn't work out for the Bills.`\
 https://nytimes.com/athletic/6308189/2025/04/25/buffalo-bills-nfl-draft-maxwell-hairston-brandon-beane/
-
-**Giants leave Round 1 of NFL Draft having executed a possible best-case scenario**\
-`The Giants got their elite prospect in Abdul Carter at No. 3 before finding a way back into Round 1, without overpaying, for QB Jaxson Dart.`\
-https://nytimes.com/athletic/6308076/2025/04/25/giants-nfl-draft-jaxson-dart-abdul-carter/
 

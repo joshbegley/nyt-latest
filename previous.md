@@ -1,3 +1,19 @@
+**Browns' trade-down is all about making yet another run at a franchise QB in 2026**\
+`Travis Hunter would’ve looked great in a Browns jersey, but adding a first-rounder next year gives Cleveland a shot at a top quarterback.`\
+https://nytimes.com/athletic/6308157/2025/04/25/browns-trade-nfl-draft-mason-graham/
+
+**Packers finally draft first-round WR, Matthew Golden, in iconic Green Bay scene**\
+`For the first time since 2002, the Packers drafted a wide receiver in the first round in Texas' Matthew Golden.`\
+https://nytimes.com/athletic/6308261/2025/04/25/packers-nfl-draft-first-round-wide-receiver-matthew-golden/
+
+**Why corner Jahdae Barron 'was too unique' to pass up for the Broncos**\
+`General manager George Paton said "you can't have enough cover guys," especially in a division with Patrick Mahomes.`\
+https://nytimes.com/athletic/6308028/2025/04/25/broncos-nfl-draft-jahdae-barron/
+
+**The Ravens' worst-kept draft secret: Malaki Starks won them over**\
+`The Georgia safety wowed team brass at the NFL combine, and everyone seemed to know it.`\
+https://nytimes.com/athletic/6308138/2025/04/25/malaki-starks-baltimore-ravens-draft/
+
 **The Cardinals draft Walter Nolen, a DT who's still learning how good he can be**\
 `The Ole Miss product fits the team's desire to rebuild through the trenches`\
 https://nytimes.com/athletic/6307898/2025/04/25/the-cardinals-draft-walter-nolen-a-defensive-tackle-whos-still-learning-just-how-good-he-can-be/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6308189/2025/04/25/buffalo-bills-nfl-draft-maxwell-
 **Giants leave Round 1 of NFL Draft having executed a possible best-case scenario**\
 `The Giants got their elite prospect in Abdul Carter at No. 3 before finding a way back into Round 1, without overpaying, for QB Jaxson Dart.`\
 https://nytimes.com/athletic/6308076/2025/04/25/giants-nfl-draft-jaxson-dart-abdul-carter/
-
-**Word of the Day: simulacrum**\
-`This word has appeared in 30 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/04/25/learning/word-of-the-day-simulacrum.html
-
-**Messi and Inter Miami in Champions Cup hole after Vancouver setback**\
-`The Argentina star and his colleagues must overturn a two-goal deficit in the second leg.`\
-https://nytimes.com/athletic/6308186/2025/04/25/lionel-messi-inter-miami-vancouver-champions-cup/
-
-**The Draft Files: A look at the Bills' Day 2 strategy after Buffalo took a cornerback in Round 1**\
-`The Bills still have needs at defensive tackle, edge rusher and wide receiver.`\
-https://nytimes.com/athletic/6308026/2025/04/25/bills-2025-nfl-draft-day-2-strategy/
-
-**Jimmy Kimmel Mocks Pete Hegseth’s Rumored Pentagon Makeup Studio**\
-`“Nothing sparks fear in the hearts of our enemies like a defense secretary who puts foundation on his face,” Kimmel said.`\
-https://nytimes.com/2025/04/25/arts/television/jimmy-kimmel-pete-hegseth-makeup.html
 

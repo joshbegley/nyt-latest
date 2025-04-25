@@ -1,3 +1,19 @@
+**Browns' trade-down is all about making yet another run at a franchise QB in 2026**\
+`Travis Hunter would’ve looked great in a Browns jersey, but adding a first-rounder next year gives Cleveland a shot at a top quarterback.`\
+https://nytimes.com/athletic/6308157/2025/04/25/browns-trade-nfl-draft-mason-graham/
+
+**Packers finally draft first-round WR, Matthew Golden, in iconic Green Bay scene**\
+`For the first time since 2002, the Packers drafted a wide receiver in the first round in Texas' Matthew Golden.`\
+https://nytimes.com/athletic/6308261/2025/04/25/packers-nfl-draft-first-round-wide-receiver-matthew-golden/
+
+**Why corner Jahdae Barron 'was too unique' to pass up for the Broncos**\
+`General manager George Paton said "you can't have enough cover guys," especially in a division with Patrick Mahomes.`\
+https://nytimes.com/athletic/6308028/2025/04/25/broncos-nfl-draft-jahdae-barron/
+
+**The Ravens' worst-kept draft secret: Malaki Starks won them over**\
+`The Georgia safety wowed team brass at the NFL combine, and everyone seemed to know it.`\
+https://nytimes.com/athletic/6308138/2025/04/25/malaki-starks-baltimore-ravens-draft/
+
 **The Cardinals draft Walter Nolen, a DT who's still learning how good he can be**\
 `The Ole Miss product fits the team's desire to rebuild through the trenches`\
 https://nytimes.com/athletic/6307898/2025/04/25/the-cardinals-draft-walter-nolen-a-defensive-tackle-whos-still-learning-just-how-good-he-can-be/
