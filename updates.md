@@ -1,3 +1,11 @@
+**Cowboys draft G Tyler Booker: How he fits, pick grade and scouting intel**\
+`Booker, a physical, 6-foot-5, 321-pound guard, broke out in his third year in Alabama, and was named a first-team All-American. `\
+https://nytimes.com/athletic/6273382/2025/04/24/tyler-booker-cowboys-nfl-draft/
+
+**49ers draft edge Mykel Williams: How he fits, pick grade and scouting intel**\
+`Williams had career bests in tackles for loss, sacks and forced fumbles last season at Georgia.`\
+https://nytimes.com/athletic/6273704/2025/04/24/mykel-williams-49ers-nfl-draft/
+
 **NFL Draft 2025 Round 1 grades: Jaguars earn A for Travis Hunter trade up**\
 `How did each team fare with its Round 1 pick on Thursday night in Green Bay? Our experts break it all down. `\
 https://nytimes.com/athletic/6301900/2025/04/24/nfl-draft-grades-2025-round-1-every-pick/
