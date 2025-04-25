@@ -1,3 +1,7 @@
+**Messi and Inter Miami in Champions Cup hole after Vancouver setback**\
+`The Argentina star and his colleagues must overturn a two-goal deficit in the second leg.`\
+https://nytimes.com/athletic/6308186/2025/04/25/lionel-messi-inter-miami-vancouver-champions-cup/
+
 **The Draft Files: A look at the Bills' Day 2 strategy after Buffalo took a cornerback in Round 1**\
 `The Bills still have needs at defensive tackle, edge rusher and wide receiver.`\
 https://nytimes.com/athletic/6308026/2025/04/25/bills-2025-nfl-draft-day-2-strategy/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6307868/2025/04/25/bengals-shemar-stewart-nfl-draft
 **Lawyers Seek Return of Migrants Deported Under Wartime Act**\
 `An updated lawsuit filed in Washington was the latest in a flurry of suits challenging the Trump administration’s use of the Alien Enemies Act to send migrants to a prison in El Salvador.`\
 https://nytimes.com/2025/04/25/us/politics/lawyers-seek-migrant-return.html
-
-**Friday Briefing: Trump Tells Putin to ‘STOP!’**\
-`Plus, was Shakespeare a bad husband?`\
-https://nytimes.com/2025/04/25/briefing/trump-putin-india-pakistan-pope-francis.html
 
