@@ -1,3 +1,11 @@
+**Maresca: Nkunku to return to Chelsea squad for Everton game**\
+`Nkunku had been dropped from the squad for the 2-1 win over Fulham, with youngster Tyrique George coming off the bench to score the winner.`\
+https://nytimes.com/athletic/6309151/2025/04/25/christopher-nkunku-chelsea-enzo-maresca/
+
+**'We won't be deflated': Pistons remain positive despite Game 3 loss to Knicks**\
+`The Knicks outplayed the young Pistons down the stretch. "All we can do is learn from it, move on, get better," Tim Hardaway Jr. said. `\
+https://nytimes.com/athletic/6308416/2025/04/25/pistons-knicks-game-3/
+
 **Barca-Madrid: Could Copa del Rey final be the end for Ancelotti? Can Flick's team kick-start treble?**\
 `Barca and Madrid face each other in a Copa del Rey final for the first time since 2014. Here's everything you need to know`\
 https://nytimes.com/athletic/6309004/2025/04/25/barcelona-real-madrid-copa-del-rey-predictions/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6302161/2025/04/25/browns-nfl-draft-picks-2025-grad
 **At the Time 100 Gala, Fame Came in Many Forms**\
 `In an event that mixed notoriety with earnestness, celebrities like Gayle King and Blake Lively rubbed elbows with athletes and activists.`\
 https://nytimes.com/2025/04/25/style/time100-gala.html
-
-**Lowetide: Early matchup trends in Kings series and how Edmonton can adjust**\
-`What can coach Kris Knoblauch do in order to win the pivotal next game, and the series?`\
-https://nytimes.com/athletic/6304790/2025/04/25/oilers-kings-series-stats-matchups/
-
-**How to Talk to Your Children About Money in These Uncertain Times**\
-`Children may not understand the stock market or inflation, but they can pick up on their parents’ financial worries. Experts offer advice on dealing with the subject.`\
-https://nytimes.com/2025/04/25/your-money/family-finances-children-economic-uncertainty.html
 

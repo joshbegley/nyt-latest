@@ -1,3 +1,11 @@
+**Maresca: Nkunku to return to Chelsea squad for Everton game**\
+`Nkunku had been dropped from the squad for the 2-1 win over Fulham, with youngster Tyrique George coming off the bench to score the winner.`\
+https://nytimes.com/athletic/6309151/2025/04/25/christopher-nkunku-chelsea-enzo-maresca/
+
+**'We won't be deflated': Pistons remain positive despite Game 3 loss to Knicks**\
+`The Knicks outplayed the young Pistons down the stretch. "All we can do is learn from it, move on, get better," Tim Hardaway Jr. said. `\
+https://nytimes.com/athletic/6308416/2025/04/25/pistons-knicks-game-3/
+
 **Barca-Madrid: Could Copa del Rey final be the end for Ancelotti? Can Flick's team kick-start treble?**\
 `Barca and Madrid face each other in a Copa del Rey final for the first time since 2014. Here's everything you need to know`\
 https://nytimes.com/athletic/6309004/2025/04/25/barcelona-real-madrid-copa-del-rey-predictions/
