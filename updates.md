@@ -1,3 +1,11 @@
+**Fired U.S.A.I.D. Workers to Keep Government-Issued Phones and Computers**\
+`The devices will be remotely wiped “to simplify processes and to reduce burden” of terminating thousands of federal workers before the agency is closed.`\
+https://nytimes.com/2025/04/25/us/politics/usaid-phones-computers.html
+
+**Jay Sigel, Amateur Golfer Who Played Like a Pro, Dies at 81**\
+`Many considered him to be the greatest American amateur since Bobby Jones. So why didn’t he try for the PGA Tour? An old hand injury had something to do with it.`\
+https://nytimes.com/2025/04/25/sports/golf/jay-sigel-dead.html
+
 **Jay Sigel, Amateur Golfer Who Played Like a Pro, Dies at 81**\
 `Many considered him to be greatest American amateur since Bobby Jones. So why didn’t he try for the PGA Tour? An old hand injury had something to do with it.`\
 https://nytimes.com/2025/04/25/sports/golf/jay-sigel-dead.html

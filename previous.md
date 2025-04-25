@@ -1,5 +1,9 @@
+**Fired U.S.A.I.D. Workers to Keep Government-Issued Phones and Computers**\
+`The devices will be remotely wiped “to simplify processes and to reduce burden” of terminating thousands of federal workers before the agency is closed.`\
+https://nytimes.com/2025/04/25/us/politics/usaid-phones-computers.html
+
 **Jay Sigel, Amateur Golfer Who Played Like a Pro, Dies at 81**\
-`Many considered him to be greatest American amateur since Bobby Jones. So why didn’t he try for the PGA Tour? An old hand injury had something to do with it.`\
+`Many considered him to be the greatest American amateur since Bobby Jones. So why didn’t he try for the PGA Tour? An old hand injury had something to do with it.`\
 https://nytimes.com/2025/04/25/sports/golf/jay-sigel-dead.html
 
 **Man Convicted of Fatally Torturing Child May Spend Life in Prison**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/25/books/charlotte-bronte-teenage-poems.html
 **Steelers NFL Draft hub: Picks, grades, fits and scouting reports**\
 `Everything you need to know about the Steelers' 2025 draft class, from Round 1 through Round 7.`\
 https://nytimes.com/athletic/6302548/2025/04/25/steelers-nfl-draft-picks-2025-grades-scouting-reports/
-
-**Seahawks NFL Draft hub: Picks, grades, fits and scouting reports**\
-`Everything you need to know about the Seahawks' 2025 draft class, from Round 1 through Round 7.`\
-https://nytimes.com/athletic/6303330/2025/04/25/seahawks-nfl-draft-picks-2025-grades-scouting-reports/
 

@@ -1,3 +1,7 @@
+**Real Estate Brokerages Fight Over How Houses for Sale Should Be Listed**\
+`Compass, one of the largest brokerages in the country, has sued a real estate database in Seattle and accused it of “monopolistic” and “anticompetitive” behavior.`\
+https://nytimes.com/2025/04/25/realestate/real-estate-brokerages-fight-over-how-houses-for-sale-should-be-listed.html
+
 **Fired U.S.A.I.D. Workers to Keep Government-Issued Phones and Computers**\
 `The devices will be remotely wiped “to simplify processes and to reduce burden” of terminating thousands of federal workers before the agency is closed.`\
 https://nytimes.com/2025/04/25/us/politics/usaid-phones-computers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/25/climate/seafloor-mining-science.html
 **At 13, Charlotte Brontë Already Knew How Good a Writer She Would Be**\
 `An anthology of her teenage poetry, published for the first time, shows ambition, even if the verse isn’t perfect.`\
 https://nytimes.com/2025/04/25/books/charlotte-bronte-teenage-poems.html
-
-**Steelers NFL Draft hub: Picks, grades, fits and scouting reports**\
-`Everything you need to know about the Steelers' 2025 draft class, from Round 1 through Round 7.`\
-https://nytimes.com/athletic/6302548/2025/04/25/steelers-nfl-draft-picks-2025-grades-scouting-reports/
 
