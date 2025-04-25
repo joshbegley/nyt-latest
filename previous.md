@@ -1,3 +1,7 @@
+**Barca-Madrid: Could Copa del Rey final be the end for Ancelotti? Can Flick's team kick-start treble?**\
+`Barca and Madrid face each other in a Copa del Rey final for the first time since 2014. Here's everything you need to know`\
+https://nytimes.com/athletic/6309004/2025/04/25/barcelona-real-madrid-copa-del-rey-predictions/
+
 **Everton's Tarkowski to undergo surgery on season-ending hamstring injury**\
 `The centre-back went off in the 52nd minute of Saturday's home loss to Manchester City and was replaced by Michael Keane.`\
 https://nytimes.com/athletic/6296060/2025/04/25/james-tarkowski-injury-everton/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6304790/2025/04/25/oilers-kings-series-stats-matchu
 **How to Talk to Your Children About Money in These Uncertain Times**\
 `Children may not understand the stock market or inflation, but they can pick up on their parents’ financial worries. Experts offer advice on dealing with the subject.`\
 https://nytimes.com/2025/04/25/your-money/family-finances-children-economic-uncertainty.html
-
-**Texas, Texas A&M baseball soap opera is SEC’s underrated contribution to sports nirvana**\
-`Jim Schlossnagle's Horns are ranked No. 1. Former assistant Michael Earley’s Aggies are unranked after starting the season ranked No. 1.`\
-https://nytimes.com/athletic/6305624/2025/04/25/texas-texas-am-baseball-jim-schlossnagle/
 

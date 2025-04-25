@@ -1,3 +1,7 @@
+**Barca-Madrid: Could Copa del Rey final be the end for Ancelotti? Can Flick's team kick-start treble?**\
+`Barca and Madrid face each other in a Copa del Rey final for the first time since 2014. Here's everything you need to know`\
+https://nytimes.com/athletic/6309004/2025/04/25/barcelona-real-madrid-copa-del-rey-predictions/
+
 **Everton's Tarkowski to undergo surgery on season-ending hamstring injury**\
 `The centre-back went off in the 52nd minute of Saturday's home loss to Manchester City and was replaced by Michael Keane.`\
 https://nytimes.com/athletic/6296060/2025/04/25/james-tarkowski-injury-everton/
