@@ -1,3 +1,15 @@
+**Could Mars Be Elon Musk’s Next Business Venture?**\
+`Even as Musk’s work at the Department of Government Efficiency appeared to consume him, his top adviser created a set of companies named Red Planet I, II and III.`\
+https://nytimes.com/2025/04/25/us/politics/elon-musk-mars.html
+
+**Patriots draft RB TreVeyon Henderson: How he fits, pick grade and scouting intel**\
+`A national champion at Ohio State, Henderson rushed for 1,016 yards and 10 touchdowns in 2024 and led the Big Ten in yards per carry (7.1).`\
+https://nytimes.com/athletic/6273490/2025/04/25/treveyon-henderson-patriots-nfl-draft/
+
+**Grading every pick of NFL Draft Rounds 2 and 3: Seahawks get A-plus for Nick Emmanwori pick**\
+`How did each team fare with its draft picks on Day 2 of the 2025 NFL Draft?`\
+https://nytimes.com/athletic/6309122/2025/04/25/nfl-draft-grades-rounds-2-3-2025/
+
 **Ukrainian Peace Plan Hints at Concessions, but Major Obstacles Remain**\
 `Officials in Kyiv plan to deliver their proposal to President Trump’s team, after rejecting a White House plan that would have given the Kremlin much of what it wants.`\
 https://nytimes.com/2025/04/25/world/europe/ukraine-peace-counterproposal.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6309552/2025/04/25/warriors-rockets-playoffs-jimmy-
 **What's the delay on an Alexander Nikishin contract? Why the Hurricanes aren't concerned**\
 `A quote from the prospect's agent Friday stoked fears that he could request a trade or return to Russia, but the Canes are not concerned.`\
 https://nytimes.com/athletic/6310107/2025/04/25/alexander-nikishins-contract-hurricanes/
-
-**Derrick Harmon's mother dies after Steelers draft him on 'bittersweet' night**\
-`The Steelers' first-round pick calls his mother, Tiffany Saine, his "why," after she fought through several brain surgeries and a stroke.`\
-https://nytimes.com/athletic/6310096/2025/04/25/derrick-harmon-mother-death-nfl-draft-steelers/
-
-**U.S. consortium completes takeover of Leyton Orient**\
-`Gandler, who is also the co-founder and CEO of streaming service FuboTV, will be the majority shareholder, owning 78.55% of the club.`\
-https://nytimes.com/athletic/6310157/2025/04/25/leyton-orient-takeover-david-gandler/
-
-**My ‘Natural’ Hairdresser Uses Synthetic Chemicals. Can I Leave a Bad Review?**\
-`The magazine’s Ethicist columnist on responding to a small-business owner’s misleading claims.`\
-https://nytimes.com/2025/04/25/magazine/hairdresser-chemicals-ethics.html
 
