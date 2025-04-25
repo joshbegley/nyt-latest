@@ -1,3 +1,7 @@
+**Scoop City: Draft takeaways after Day 1, including Travis Hunter's position**\
+`Inside the Jaguars war room, winners and losers from round one and the best players available.`\
+https://nytimes.com/athletic/6309612/2025/04/25/nfl-draft-2025-takeaways-jaguars-browns-falcons-rams-scoop-city/
+
 **Indian and Pakistani Soldiers Briefly Exchange Fire Along Kashmir Border**\
 `The clash took place just days after a terror attack killed 26 people on the Indian side of the disputed region, raising tensions between the two nuclear-armed nations.`\
 https://nytimes.com/2025/04/25/world/asia/india-pakistan-kashmir.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/25/us/politics/noem-stolen-purse-homeland-security.h
 **Tranmere midfielder given 13-match ban for homophobic slur**\
 `It is his third "aggravated breach" and his second offence of using language regarding "sexual orientation."`\
 https://nytimes.com/athletic/6309433/2025/04/25/sam-finley-ban-homophobic/
-
-**Car Bomb Kills Russian General in Moscow Suburb**\
-`The Investigative Committee of Russia identified the man killed as as Lt. Gen. Yaroslav Moskalik, a senior figure in the Russian military. Video from the scene showed flames erupting from a car after the explosion.`\
-https://nytimes.com/video/world/europe/100000010130488/car-bomb-kills-russian-military-general-in-moscow-suburb.html
 

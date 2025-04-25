@@ -1,3 +1,7 @@
+**Scoop City: Draft takeaways after Day 1, including Travis Hunter's position**\
+`Inside the Jaguars war room, winners and losers from round one and the best players available.`\
+https://nytimes.com/athletic/6309612/2025/04/25/nfl-draft-2025-takeaways-jaguars-browns-falcons-rams-scoop-city/
+
 **Indian and Pakistani Soldiers Briefly Exchange Fire Along Kashmir Border**\
 `The clash took place just days after a terror attack killed 26 people on the Indian side of the disputed region, raising tensions between the two nuclear-armed nations.`\
 https://nytimes.com/2025/04/25/world/asia/india-pakistan-kashmir.html
