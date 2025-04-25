@@ -1,3 +1,11 @@
+**Liverpool tickets for potential title coronation listed for £3,000 online**\
+`Arne Slot’s side need just a point on Sunday to be guaranteed top spot.`\
+https://nytimes.com/athletic/6310087/2025/04/25/liverpool-tottenham-ticket-prices-title/
+
+**Mangione Pleads Not Guilty as U.S. Seeks Death Penalty**\
+`The judge warned Attorney General Pam Bondi to temper her statements about Luigi Mangione to ensure a fair trial on charges of killing a health insurance executive.`\
+https://nytimes.com/2025/04/25/nyregion/luigi-mangione-arraignment.html
+
 **David Briggs, a Music Force in Alabama and Nashville, Dies at 82**\
 `A first-call keyboardist, he worked with Elvis Presley and Dolly Parton, helped make Muscle Shoals a recording hub, and had a key role in redefining the sound of country.`\
 https://nytimes.com/2025/04/25/arts/music/david-briggs-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6310012/2025/04/25/liam-rosenior-strasbourg-contrac
 **'I'm not f---ing around:' Herro fires back after Garland's remark on defense**\
 `After Garland said the Cavaliers' strategy was to pick on him, Herro said Somebody that doesn’t play defense shouldn’t be talking either."`\
 https://nytimes.com/athletic/6309871/2025/04/25/tyler-herro-darius-garland-defense-comments/
-
-**Pakistan Official Calls for International Inquiry Into Kashmir Terror Attack**\
-`Amid rising tensions with India, Pakistan’s defense minister declared his country’s innocence in a terror attack that killed 26 people this week in Kashmir territory.`\
-https://nytimes.com/2025/04/25/us/politics/pakistan-kashmir-terror-attack.html
-
-**Man Is Fatally Stabbed After Fight on Subway Train in Manhattan**\
-`The killing occurred after the man got into a fight with his assailant on a downtown No. 5 train during the morning rush hour, officials said.`\
-https://nytimes.com/2025/04/25/nyregion/fatal-subway-stabbing-nyc.html
 
