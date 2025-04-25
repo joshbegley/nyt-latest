@@ -1,3 +1,15 @@
+**LGBTQ+ activist condemns homophobic abuse towards Barcelona defender Fort**\
+`Lamoure said the 18-year-old Barcelona defender had received homophobic messages largely from "very young women".`\
+https://nytimes.com/athletic/6308705/2025/04/25/barcelona-hector-fort-homophobic-abuse/
+
+**Tottenham Hotspur captain Son a doubt for Europa League semi-final**\
+`Son, 32, has missed their last three games in all competitions, including the second leg of their Europa League quarter-final last week.`\
+https://nytimes.com/athletic/6308821/2025/04/25/spurs-liverpool-team-news-son-europa-league/
+
+**Israeli Prime Minister Offers Condolences Three Days After Pope’s Death**\
+`The delay in issuing a statement reflected apparent tensions between Israel and Francis, who criticized Israel’s conduct in the war in Gaza.`\
+https://nytimes.com/2025/04/25/world/middleeast/israeli-prime-minister-offers-condolences-three-days-after-popes-death.html
+
 **Too Big to Tariff?**\
 `Washington and Beijing increasingly look likely to de-escalate their trade war. But the economic damage and ongoing uncertainty may persist for a while.`\
 https://nytimes.com/2025/04/25/business/dealbook/tariffs-trade-war-exceptions.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6304726/2025/04/25/twins-catchers-ryan-jeffers-chri
 **Alex Caruso's defense, experience 'turns tide' for Thunder in near-historic Game 3 comeback**\
 `Down 26 at halftime, Alex Caruso addressed the team. He stayed positive. He'd been part of big comebacks before.`\
 https://nytimes.com/athletic/6308644/2025/04/25/thunder-game-3-comeback-grizzlies-alex-caruso/
-
-**Aaron Judge's greatness has only one modern day rival: Barry Bonds**\
-`Judge has no equals in MLB. In the past calendar year, he has been 145 percent better than the average hitter.`\
-https://nytimes.com/athletic/6303709/2025/04/25/yankees-aaron-judge-barry-bonds-comparison/
-
-**NWSL players freeze time, taking advantage of improved fertility treatments options**\
-`Racing Louisville became the first to offer fertility treatment to players in 2021. Several NWSL teams have since followed suit`\
-https://nytimes.com/athletic/6306153/2025/04/25/nwsl-players-fertility-treatment-soccer/
-
-**Nebraska GM Pat Stewart offers another reminder how much the college game has changed**\
-`In a 20-minute interview session, one Stewart answer after another seemed to eradicate the innocence of collegiate athletics.`\
-https://nytimes.com/athletic/6306245/2025/04/25/nebraska-gm-pat-stewart-nil-transfer/
 
