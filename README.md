@@ -1,3 +1,7 @@
+**Commanders draft OT Josh Conerly Jr.: How he fits, pick grade and scouting intel**\
+`Conerly played in every game his three seasons at Oregon, including starting all 28 games at left tackle the past two years.`\
+https://nytimes.com/athletic/6273658/2025/04/24/josh-conerly-jr-commanders-nfl-draft/
+
 **Vikings draft OL Donovan Jackson: How he fits, pick grade and scouting intel**\
 `Jackson started 40 games between left tackle and guard across four seasons with the Buckeyes, including the 2024 national championship.`\
 https://nytimes.com/athletic/6307274/2025/04/24/donovan-jackson-vikings-nfl-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6268123/2025/04/24/matthew-golden-packers-nfl-draft
 **Chargers draft RB Omarion Hampton: How he fits, pick grade and scouting intel**\
 `Hampton was a two-time first-team All-ACC selection at North Carolina and set the school record for all-purpose yards in 2024. `\
 https://nytimes.com/athletic/6264669/2025/04/24/omarion-hampton-chargers-nfl-draft/
-
-**Inside Jaguars' blockbuster trade for Travis Hunter in 2025 NFL Draft: 'Let's make history'**\
-`The Jaguars and Browns agreed to terms of the trade 17 days before the NFL Draft, though both sides kept it quiet until Thursday.`\
-https://nytimes.com/athletic/6307043/2025/04/24/nfl-draft-2025-jaguars-travis-hunter-trade/
 
