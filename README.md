@@ -1,3 +1,7 @@
+**At 13, Charlotte Brontë Already Knew How Good a Writer She Would Be**\
+`An anthology of her teenage poetry, published for the first time, shows ambition, even if the verse isn’t perfect.`\
+https://nytimes.com/2025/04/25/books/charlotte-bronte-teenage-poems.html
+
 **The 4.27.25 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/04/25/the-42725-issue
@@ -29,8 +33,4 @@ https://nytimes.com/2025/04/25/us/politics/trump-poll-approval.html
 **Cross-Tabs: April 2025 Times/Siena Poll of Registered Voters Nationwide**\
 `Results of a nationwide New York Times/Siena College poll of 913 registered voters conducted from April 21 to 24, 2025.`\
 https://nytimes.com/interactive/2025/04/25/us/elections/times-siena-poll-crosstabs.html
-
-**Toplines: April 2025 Times/Siena Poll of Registered Voters Nationwide**\
-`Results of a nationwide New York Times/Siena College poll of 913 registered voters conducted from April 21 to 24, 2025.`\
-https://nytimes.com/interactive/2025/04/25/us/elections/times-siena-poll-toplines.html
 
