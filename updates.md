@@ -1,3 +1,15 @@
+**Falcons draft edge rusher Jalon Walker: How he fits, draft grade and scouting intel**\
+`A one-year starter at Georgia, Walker took snaps at inside linebacker, outside linebacker and edge rusher, totaling 6 1/2 sacks and 11 TFLs.`\
+https://nytimes.com/athletic/6281282/2025/04/24/jalon-walker-falcons-nfl-draft/
+
+**Indicted ‘Bitcoin Jesus’ Pays Roger Stone $600,000 to Lobby for Him**\
+`The longtime Trump ally is lobbying Congress to change the law that the crypto entrepreneur Roger Ver was charged with violating.`\
+https://nytimes.com/2025/04/24/us/politics/stone-bitcoin-crypto-trump.html
+
+**Colts draft TE Tyler Warren: How he fits, pick grade and scouting intel**\
+`The Penn State tight end set school and Big Ten records with 104 receptions for 1,233 yards in his senior season.`\
+https://nytimes.com/athletic/6264266/2025/04/24/tyler-warren-colts-nfl-draft/
+
 **Dolphins draft DT Kenneth Grant: How he fits, pick grade and scouting intel**\
 `Grant was the No. 3 defensive tackle in Dane Brugler's "The Beast" and played a vital role on Michigan's title-winning defense in 2023.`\
 https://nytimes.com/athletic/6268004/2025/04/24/kenneth-grant-dolphins-nfl-draft/
