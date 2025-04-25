@@ -1,3 +1,7 @@
+**Indian and Pakistani Soldiers Briefly Exchange Fire Along Kashmir Border**\
+`The clash took place just days after a terror attack killed 26 people on the Indian side of the disputed region, raising tensions between the two nuclear-armed nations.`\
+https://nytimes.com/2025/04/25/world/asia/india-pakistan-kashmir.html
+
 **Shostakovich, Boston Symphony Style**\
 `Over two nights at Carnegie Hall, Andris Nelsons and the orchestra reveled in the composer’s sonic riches but played with emotional reserve.`\
 https://nytimes.com/2025/04/25/arts/music/shostakovich-boston-symphony-carnegie.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6309433/2025/04/25/sam-finley-ban-homophobic/
 **Car Bomb Kills Russian General in Moscow Suburb**\
 `The Investigative Committee of Russia identified the man killed as as Lt. Gen. Yaroslav Moskalik, a senior figure in the Russian military. Video from the scene showed flames erupting from a car after the explosion.`\
 https://nytimes.com/video/world/europe/100000010130488/car-bomb-kills-russian-military-general-in-moscow-suburb.html
-
-**Trump Budget Draft Ends Narcan Program and Other Addiction Measures**\
-`A $56 million grant to train emergency responders and supply them with the overdose reversal spray, plus other programs that address addiction, could be eliminated.`\
-https://nytimes.com/2025/04/25/health/narcan-grants-cuts-kennedy.html
 
