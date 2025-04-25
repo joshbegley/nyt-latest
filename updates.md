@@ -1,3 +1,19 @@
+**NFL Draft best available players for Eagles: Tate Ratledge, Mason Taylor**\
+`The Eagles enter Day 2 with six picks left to use in the draft.`\
+https://nytimes.com/athletic/6306642/2025/04/25/eagles-2025-draft-best-available/
+
+**NFL Draft best available players for Buffalo Bills: Donovan Ezeiruaku, T.J. Sanders**\
+`The Bills still have several needs to fill the in remaining rounds.`\
+https://nytimes.com/athletic/6306620/2025/04/25/bills-2025-draft-best-available/
+
+**Brighton's Van Hecke ruled out of West Ham clash with head injury**\
+`The 24-year-old will miss the game due to suffering a head injury in last Saturday's 4-2 defeat at Brentford.`\
+https://nytimes.com/athletic/6308660/2025/04/25/brighton-west-ham-team-news-van-hecke/
+
+**The New York Times International Edition in Print for Saturday, April 26, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/04/25/todays-new-york-times-international-edition
+
 **Barcelona's Lewandowski and Balde to miss Copa del Rey final vs Madrid**\
 `Both players are sidelined with hamstring issues sustained earlier this month.`\
 https://nytimes.com/athletic/6304500/2025/04/25/barcelona-lewandowski-balde-copa-del-rey/
