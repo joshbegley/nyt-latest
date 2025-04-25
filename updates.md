@@ -1,3 +1,15 @@
+**LGBTQ+ activist condemns homophobic abuse towards Barcelona defender Fort**\
+`Lamoure said the 18-year-old Barcelona defender had received homophobic messages largely from "very young women".`\
+https://nytimes.com/athletic/6308705/2025/04/25/barcelona-hector-fort-homophobic-abuse/
+
+**Tottenham Hotspur captain Son a doubt for Europa League semi-final**\
+`Son, 32, has missed their last three games in all competitions, including the second leg of their Europa League quarter-final last week.`\
+https://nytimes.com/athletic/6308821/2025/04/25/spurs-liverpool-team-news-son-europa-league/
+
+**Israeli Prime Minister Offers Condolences Three Days After Pope’s Death**\
+`The delay in issuing a statement reflected apparent tensions between Israel and Francis, who criticized Israel’s conduct in the war in Gaza.`\
+https://nytimes.com/2025/04/25/world/middleeast/israeli-prime-minister-offers-condolences-three-days-after-popes-death.html
+
 **Too Big to Tariff?**\
 `Washington and Beijing increasingly look likely to de-escalate their trade war. But the economic damage and ongoing uncertainty may persist for a while.`\
 https://nytimes.com/2025/04/25/business/dealbook/tariffs-trade-war-exceptions.html
