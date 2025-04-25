@@ -1,3 +1,11 @@
+**'I'm not f------ around:' Herro fires back after Garland's remark on defense**\
+`After Garland said the Cavaliers' strategy was to pick on him, Herro said Somebody that doesn’t play defense shouldn’t be talking either."`\
+https://nytimes.com/athletic/6309871/2025/04/25/tyler-herro-darius-garland-defense-comments/
+
+**Pakistan Official Calls for International Inquiry Into Kashmir Terror Attack**\
+`Amid rising tensions with India, Pakistan’s defense minister declared his country’s innocence in a terror attack that killed 26 people this week in Kashmir territory.`\
+https://nytimes.com/2025/04/25/us/politics/pakistan-kashmir-terror-attack.html
+
 **Man Is Fatally Stabbed After Fight on Subway Train in Manhattan**\
 `The killing occurred after the man got into a fight with his assailant on a downtown No. 5 train during the morning rush hour, officials said.`\
 https://nytimes.com/2025/04/25/nyregion/fatal-subway-stabbing-nyc.html

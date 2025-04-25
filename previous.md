@@ -1,3 +1,11 @@
+**'I'm not f------ around:' Herro fires back after Garland's remark on defense**\
+`After Garland said the Cavaliers' strategy was to pick on him, Herro said Somebody that doesn’t play defense shouldn’t be talking either."`\
+https://nytimes.com/athletic/6309871/2025/04/25/tyler-herro-darius-garland-defense-comments/
+
+**Pakistan Official Calls for International Inquiry Into Kashmir Terror Attack**\
+`Amid rising tensions with India, Pakistan’s defense minister declared his country’s innocence in a terror attack that killed 26 people this week in Kashmir territory.`\
+https://nytimes.com/2025/04/25/us/politics/pakistan-kashmir-terror-attack.html
+
 **Man Is Fatally Stabbed After Fight on Subway Train in Manhattan**\
 `The killing occurred after the man got into a fight with his assailant on a downtown No. 5 train during the morning rush hour, officials said.`\
 https://nytimes.com/2025/04/25/nyregion/fatal-subway-stabbing-nyc.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/25/us/politics/trump-times-siena-poll-highlights.htm
 **Former South Carolina star guard MiLaysia Fulwiley transferring to LSU**\
 `Fulwiley, having averaged 11.7 points, 2.8 rebounds and 2 assists in only 19 minutes per game last season, highlights a revamped LSU roster.`\
 https://nytimes.com/athletic/6309897/2025/04/25/milaysia-fulwiley-transfer-lsu-south-carolina/
-
-**Building the World’s Biggest Plane to Help Catch the Wind**\
-`Radia, a Colorado-based company, wants to build enormous aircraft to transport giant wind turbine blades. It’s betting that politics won’t get in the way.`\
-https://nytimes.com/2025/04/25/climate/radia-the-worlds-biggest-plane.html
-
-**NFL plans for 3 Christmas games annually, raising questions about NBA tradition**\
-`The NFL will play two Christmas games on Netflix and another on Amazon. That could force the NBA to find new playing windows in the future.`\
-https://nytimes.com/athletic/6309913/2025/04/25/nfl-christmas-games-nba-tradition/
 
