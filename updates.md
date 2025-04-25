@@ -1,3 +1,7 @@
+**La Liga? Serie A? Liga MX? Inside the battle to play league games in USA**\
+`With courts green-lighting foreign league matches to be held on U.S. soil, the ball is at FIFA's feet – and plenty stakeholders are waiting`\
+https://nytimes.com/athletic/6302542/2025/04/25/la-liga-serie-a-premier-league-la-liga-matches-usa-fifa-relevent/
+
 **How the Vikings turned down a trade and ended up with Donovan Jackson**\
 `The Vikings could have traded down in Round 1, but they didn't want to risk missing out on Jackson, who could step in as an early starter.`\
 https://nytimes.com/athletic/6308398/2025/04/25/vikings-nfl-draft-donovan-jackson-trade/
