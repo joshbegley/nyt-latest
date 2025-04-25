@@ -1,3 +1,7 @@
+**A Folk Music Renaissance, With Some Modern Concerns**\
+`Several rising British bands are using centuries-old ditties to discuss hot-button issues like prison abolition, trans rights and the gig economy.`\
+https://nytimes.com/2025/04/25/arts/music/uk-folk-music-politics.html
+
 **‘Things Have Ground to a Halt’: Tariff Uncertainty Paralyzes Businesses**\
 `The Times heard from hundreds of American companies, most of them small businesses, that face a reckoning because of President Trump’s steep import taxes.`\
 https://nytimes.com/2025/04/25/business/trump-tariffs-american-importers.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6308145/2025/04/25/seahawks-nfl-draft-2025-best-ava
 **Wisconsin Judge Arrested, Accused of Shielding Immigrant From Federal Agents**\
 `Judge Hannah Dugan was arrested on suspicion that she “intentionally misdirected federal agents away from” an immigrant being pursued by the authorities, the F.B.I. director said in a social media post that he later deleted.`\
 https://nytimes.com/2025/04/25/us/politics/fbi-arrest-judge.html
-
-**Best available players for the Steelers: All eyes on Shedeur Sanders entering Day 2**\
-`The Steelers passed on Sanders once, but it's at least plausible they could get a second chance. Here's who else they might be eyeing.`\
-https://nytimes.com/athletic/6307633/2025/04/25/steelers-2025-nfl-draft-best-available/
 
