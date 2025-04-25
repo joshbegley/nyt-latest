@@ -1,3 +1,7 @@
+**The Pulse: A beautifully chaotic NFL Draft begins**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6305524/2025/04/25/nfl-draft-first-round-travis-hunter-the-pulse/
+
 **Patrick Adiarte, Actor Seen in Musicals and on ‘M*A*S*H,’ Dies at 82**\
 `As a young immigrant from the Philippines, he had roles on Broadway in “The King and I” and “Flower Drum Song.” He was later a familiar face on TV.`\
 https://nytimes.com/2025/04/25/arts/television/patrick-adiarte-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6306164/2025/04/25/cubs-diamondbacks-craziest-wrigl
 **FPL live Q&A: FPL Gameweek 34 advice from Ben Dinnery**\
 `Join Ben Dinnery for a live Gameweek 34 FPL Q&A from 4pm-5pm UK time`\
 https://nytimes.com/athletic/6304700/2025/04/25/fantasy-premier-league-advice-gw34-tips/
-
-**Is Saka Hale End's greatest? Lewis-Skelly in midfield; Arteta’s season - our writers discuss your queries**\
-`Our club writers discuss some of the talking points subscribers have raised in the past few weeks`\
-https://nytimes.com/athletic/6298785/2025/04/25/arsenal-timber-saka-lewis-skelly/
 
