@@ -1,3 +1,15 @@
+**The Armand Membou pick shows Aaron Glenn is following a Lions blueprint**\
+`The first pick of the Glenn-Darren Mougey Jets evoked memories of Detroit drafting Penei Sewell four years ago.`\
+https://nytimes.com/athletic/6307417/2025/04/25/new-york-jets-armand-membou-draft-offensive-line/
+
+**The most unlikely hero has the Maple Leafs on the verge of a sweep**\
+`The Leafs boast some of the biggest names in hockey, but on Thursday someone new became "the king of Toronto for a night."`\
+https://nytimes.com/athletic/6307615/2025/04/25/simon-benoit-maple-leafs-nhl-playoffs-overtime-winner/
+
+**Rams trade out of Round 1, now have 2 first-rounders in 2026 ‘for now’**\
+`The Rams explored moving up in Round 1, but ultimately traded back to Round 2, where they will have the 46th overall pick Friday.`\
+https://nytimes.com/athletic/6307751/2025/04/25/rams-trade-first-round-pick-falcons/
+
 **Blues rout Jets in Game 3 to get back in series: Takeaways**\
 `The Blues scored early and often in a 7-2 victory over the Jets to cut the series lead to 2-1.`\
 https://nytimes.com/athletic/6307676/2025/04/25/nhl-playoffs-blues-jets-game-3/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6304937/2025/04/25/wolves-squad-audit-with-safety-s
 **Brighton have more long-distance internationals than any Premier League side. Is that an issue?**\
 `Of the players that have made 11+ league appearances, nine (almost 40 per cent) can be classified as long-distance internationals`\
 https://nytimes.com/athletic/6280400/2025/04/25/brighton-long-distance-internationals/
-
-**How Nico O'Reilly grabbed his chance as Guardiola's latest goalscoring left-back**\
-`The 20-year-old only started his first league match three weeks ago but has added a lot to City’s game in a short space of time`\
-https://nytimes.com/athletic/6296597/2025/04/25/nico-oreilly-manchester-city-guardiola/
-
-**Fantasy Premier League: How to build a Free Hit team for Gameweek 34**\
-`There are a lot of good fixtures this gameweek which means more options. This is a week where you can go with your gut for a lot of picks.`\
-https://nytimes.com/athletic/6302152/2025/04/25/fpl-tips-free-hit-advice-gw34/
-
-**How badly did the 49ers want Mykel Williams? They tried to trade up to get him**\
-`The 49ers see Williams as the bookend for Nick Bosa they’ve been seeking since Dee Ford started having injury issues during the 2019 season.`\
-https://nytimes.com/athletic/6307669/2025/04/25/49ers-nfl-draft-2025-mykel-williams/
 
