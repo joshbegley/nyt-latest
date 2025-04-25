@@ -1,3 +1,11 @@
+**Browns draft LB Carson Schwesinger: How he fits, pick grade and scouting intel**\
+`Following a breakout season in which he led all Division I players in tackles, the UCLA linebacker was a first-team AP All-American.`\
+https://nytimes.com/athletic/6267886/2025/04/25/carson-schwesinger-browns-nfl-draft/
+
+**Three burning questions that'll decide Game 3 between the Warriors and Rockets**\
+`Which role player will enter the spotlight? What must change as the series shifts to San Francisco? We break it down. `\
+https://nytimes.com/athletic/6309552/2025/04/25/warriors-rockets-playoffs-jimmy-butler-status/
+
 **What's the delay on an Alexander Nikishin contract? Why the Hurricanes aren't concerned**\
 `A quote from the prospect's agent Friday stoked fears that he could request a trade or return to Russia, but the Canes are not concerned.`\
 https://nytimes.com/athletic/6310107/2025/04/25/alexander-nikishins-contract-hurricanes/

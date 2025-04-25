@@ -1,3 +1,11 @@
+**Browns draft LB Carson Schwesinger: How he fits, pick grade and scouting intel**\
+`Following a breakout season in which he led all Division I players in tackles, the UCLA linebacker was a first-team AP All-American.`\
+https://nytimes.com/athletic/6267886/2025/04/25/carson-schwesinger-browns-nfl-draft/
+
+**Three burning questions that'll decide Game 3 between the Warriors and Rockets**\
+`Which role player will enter the spotlight? What must change as the series shifts to San Francisco? We break it down. `\
+https://nytimes.com/athletic/6309552/2025/04/25/warriors-rockets-playoffs-jimmy-butler-status/
+
 **What's the delay on an Alexander Nikishin contract? Why the Hurricanes aren't concerned**\
 `A quote from the prospect's agent Friday stoked fears that he could request a trade or return to Russia, but the Canes are not concerned.`\
 https://nytimes.com/athletic/6310107/2025/04/25/alexander-nikishins-contract-hurricanes/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/25/us/los-angeles-trees-violence-crime.html
 **Nuno: 'We feel the history' at Forest ahead of FA Cup semi-final**\
 `Forest won the FA Cup in 1898 and 1959 but the last domestic trophy they lifted was the Zenith Data Systems Cup in 1992.`\
 https://nytimes.com/athletic/6309742/2025/04/25/nuno-nottingham-forest-fa-cup-history/
-
-**Palmer's dip in form down to self-belief not Chelsea's tactics, says Maresca**\
-`Palmer has gone 16 games without scoring for the club, having started the campaign with 14 goals in 23 appearances.`\
-https://nytimes.com/athletic/6309486/2025/04/25/chelsea-palmer-form-maresca/
-
-**Postecoglou says he is 'trying to change the perception' of Tottenham**\
-`The 59-year-old has previously criticised what he sees as a lack of defence of Spurs in the media.`\
-https://nytimes.com/athletic/6310076/2025/04/25/ange-postecoglou-tottenham-perception/
 
