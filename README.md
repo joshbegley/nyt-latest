@@ -1,5 +1,17 @@
+**Falcons draft James Pearce Jr.: How he fits, pick grade and scouting intel**\
+`A quick, lean rusher who often lined up out wide at Tennessee, Pearce impressed with his speed at the NFL Scouting Combine in Indianapolis.`\
+https://nytimes.com/athletic/6279055/2025/04/24/james-pearce-jr-faclons-nfl-draft/
+
+**Quote of the Day: Deadliest Russian Assault on Kyiv in Nearly a Year**\
+`Quotation of the Day for Friday, April 25, 2025.`\
+https://nytimes.com/2025/04/24/pageoneplus/quote-of-the-day-deadliest-russian-assault-on-kyiv-in-nearly-a-year.html
+
+**Giants draft QB Jaxson Dart: How he fits, draft grade and scouting intel**\
+`During his time at Ole Miss, Dart set several school records, including most wins by a starting quarterback and most passing yards.`\
+https://nytimes.com/athletic/6269796/2025/04/24/jaxson-dart-giants-nfl-draft/
+
 **How a secret trip to Louisiana convinced the Patriots to draft Will Campbell**\
-`The Patriots' top decision-makers took a top-secret trip to Louisiana for one final look at the guy at the top of their NFL draft board.`\
+`The Patriots' top decision-makers took a top-secret trip to Louisiana for one final look at the guy at the top of their NFL Draft board.`\
 https://nytimes.com/athletic/6307086/2025/04/24/will-campbell-patriots-nfl-draft-lsu-mike-vrabel/
 
 **Packers draft WR Matthew Golden: How he fits, pick grade and scouting intel**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6270340/2025/04/24/derrick-harmon-steelers-nfl-draf
 **NBA playoff takeaways: Knicks edge Pistons in chippy Game 3**\
 `Karl-Anthony Towns paced New York with 31 points in the 118-116 win in Detroit.`\
 https://nytimes.com/athletic/6306708/2025/04/24/nba-playoff-knicks-pistons-thunder-grizzlies-nuggets-clippers/
-
-**Broncos draft CB Jahdae Barron: How he fits, pick grade and scouting intel**\
-`A consensus All-American, Barron posted career bests in interceptions (five) and passes defended (16) last season at Texas.`\
-https://nytimes.com/athletic/6273764/2025/04/24/jahdae-barron-broncos-nfl-draft/
-
-**Clay Matthews, invoking Donald Trump, trolls Bears at NFL Draft**\
-`Matthews' joke quickly became the latest notable moment of trolling rival teams at the draft.`\
-https://nytimes.com/athletic/6306705/2025/04/24/trump-clay-matthews-bears-nfl-draft-2025/
-
-**The Zuckerbergs Founded Two Bay Area Schools. Now They’re Closing.**\
-`Mark Zuckerberg and his wife, Dr. Priscilla Chan, opened the schools to help communities of color. Some families wonder if the shutting of the schools is related to his D.E.I. retrenchment.`\
-https://nytimes.com/2025/04/24/us/school-closure-zuckerberg-chan.html
 
