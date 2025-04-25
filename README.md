@@ -1,6 +1,18 @@
+**The Trump Administration Wants Seafloor Mining. What Does That Mean?**\
+`A recent executive order would accelerate mining in little-understood undersea ecosystems.`\
+https://nytimes.com/2025/04/25/climate/seafloor-mining-science.html
+
 **At 13, Charlotte Brontë Already Knew How Good a Writer She Would Be**\
 `An anthology of her teenage poetry, published for the first time, shows ambition, even if the verse isn’t perfect.`\
 https://nytimes.com/2025/04/25/books/charlotte-bronte-teenage-poems.html
+
+**Steelers NFL Draft hub: Picks, grades, fits and scouting reports**\
+`Everything you need to know about the Steelers' 2025 draft class, from Round 1 through Round 7.`\
+https://nytimes.com/athletic/6302548/2025/04/25/steelers-nfl-draft-picks-2025-grades-scouting-reports/
+
+**Seahawks NFL Draft hub: Picks, grades, fits and scouting reports**\
+`Everything you need to know about the Seahawks' 2025 draft class, from Round 1 through Round 7.`\
+https://nytimes.com/athletic/6303330/2025/04/25/seahawks-nfl-draft-picks-2025-grades-scouting-reports/
 
 **The 4.27.25 Issue**\
 ``\
@@ -25,12 +37,4 @@ https://nytimes.com/athletic/6309913/2025/04/25/nfl-christmas-games-nba-traditio
 **Four Perspectives on Trump’s Weak Poll Numbers**\
 `It’s not easy to burn this much good will so fast, and it doesn’t usually get any easier from here.`\
 https://nytimes.com/2025/04/25/upshot/trump-poll-numbers.html
-
-**Voters See Trump’s Use of Power as Overreaching, Times/Siena Poll Finds**\
-`Skepticism has grown of his efforts to expand his authority and of his handling of issues long seen as strengths for him, including the economy and immigration.`\
-https://nytimes.com/2025/04/25/us/politics/trump-poll-approval.html
-
-**Cross-Tabs: April 2025 Times/Siena Poll of Registered Voters Nationwide**\
-`Results of a nationwide New York Times/Siena College poll of 913 registered voters conducted from April 21 to 24, 2025.`\
-https://nytimes.com/interactive/2025/04/25/us/elections/times-siena-poll-crosstabs.html
 
