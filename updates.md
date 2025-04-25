@@ -1,3 +1,11 @@
+**U.S. consortium completes takeover of Leyton Orient**\
+`Gandler, who is also the co-founder and CEO of streaming service FuboTV, will be the majority shareholder, owning 78.55% of the club.`\
+https://nytimes.com/athletic/6310157/2025/04/25/leyton-orient-takeover-david-gandler/
+
+**My ‘Natural’ Hairdresser Uses Synthetic Chemicals. Can I Leave a Bad Review?**\
+`The magazine’s Ethicist columnist on responding to a small-business owner’s misleading claims.`\
+https://nytimes.com/2025/04/25/magazine/hairdresser-chemicals-ethics.html
+
 **Ex-ASU, Georgia QB Rashada to transfer to Sacramento State**\
 `Rashada didn't play this season at Georgia after transferring from Arizona State.`\
 https://nytimes.com/athletic/6310138/2025/04/25/jaden-rashada-sacramento-state-transfer/
