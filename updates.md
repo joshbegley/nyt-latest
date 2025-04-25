@@ -1,3 +1,5 @@
+
+
 **Trump Administration Reverses Course on Student Visa Cancellations**\
 `The sudden shift came as a reprieve for the more than 1,500 international students who have had their visas canceled in recent weeks.`\
 https://nytimes.com/2025/04/25/us/politics/trump-student-visa-cancellations.html
