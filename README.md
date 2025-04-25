@@ -1,3 +1,7 @@
+**NFL Draft 2025 Round 1 grades: Jaguars earn A for Travis Hunter trade up**\
+`How did each team fare with its Round 1 pick on Thursday night in Green Bay? Our experts break it all down. `\
+https://nytimes.com/athletic/6301900/2025/04/24/nfl-draft-grades-2025-round-1-every-pick/
+
 **Shedeur Sanders falls outside top 10 in NFL draft: How far will the QB slide?**\
 `Various mock drafts and experts projected Sanders would be selected in the first round.`\
 https://nytimes.com/athletic/6306197/2025/04/24/shedeur-sanders-nfl-draft-slide/
@@ -31,10 +35,6 @@ https://nytimes.com/athletic/6270010/2025/04/24/armand-membou-jets-nfl-draft/
 https://nytimes.com/athletic/6264910/2025/04/24/ashton-jeanty-raiders-nfl-draft/
 
 **Browns draft DT Mason Graham: How he fits, draft grade and scouting intel**\
-`Graham is the top defensive tackle in Dane Brugler's "The Beast" and was a vital part of Michigan's national championship-winning defense.`\
+`Graham is the top defensive tackle in Dane Brugler's "The Beast" and was a vital part of Michigan's defense.`\
 https://nytimes.com/athletic/6267320/2025/04/24/mason-graham-browns-nfl-draft/
-
-**Giants NFL Draft hub: Picks, grades, fits and scouting reports**\
-`Keep coming back throughout the draft for grades and expert analysis of each Giants pick.`\
-https://nytimes.com/athletic/6290564/2025/04/24/giants-nfl-draft-picks-2025-grades-scouting-reports/
 
