@@ -1,3 +1,11 @@
+**F.D.A. Scientists Are Reinstated at Agency Food Safety Labs**\
+`After 20 percent of the agency’s work force was cut, federal health officials have decided to bring back some experts and review firings to fill gaps in critical roles.`\
+https://nytimes.com/2025/04/25/health/fda-food-safety-trump-layoffs.html
+
+**Aluko apologises to Wright after comments on male pundits in women’s football**\
+`Aluko described the former Arsenal and England striker as a “role model” in a statement posted on Instagram.`\
+https://nytimes.com/athletic/6309591/2025/04/25/eni-aluko-ian-wright-apology/
+
 **Explaining why a Spanish soccer referee broke down at a news conference**\
 `Ricardo de Burgos Bengoetxea will take charge of Saturday's Copa del Rey final between Madrid and Barcelona.`\
 https://nytimes.com/athletic/6309127/2025/04/25/real-madrid-barcelona-de-burgos-referee/

@@ -1,3 +1,7 @@
+**Shostakovich, Boston Symphony Style**\
+`Over two nights at Carnegie Hall, Andris Nelsons and the orchestra reveled in the composer’s sonic riches but played with emotional reserve.`\
+https://nytimes.com/2025/04/25/arts/music/shostakovich-boston-symphony-carnegie.html
+
 **F.D.A. Scientists Are Reinstated at Agency Food Safety Labs**\
 `After 20 percent of the agency’s work force was cut, federal health officials have decided to bring back some experts and review firings to fill gaps in critical roles.`\
 https://nytimes.com/2025/04/25/health/fda-food-safety-trump-layoffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000010130488/car-bomb-kills-russian-mi
 **Trump Budget Draft Ends Narcan Program and Other Addiction Measures**\
 `A $56 million grant to train emergency responders and supply them with the overdose reversal spray, plus other programs that address addiction, could be eliminated.`\
 https://nytimes.com/2025/04/25/health/narcan-grants-cuts-kennedy.html
-
-**Offseason Canucks depth chart: Trade chips, roster holes, free agents and more**\
-`The Canucks have some major gaps in the lineup that will need to be creatively and effectively filled.`\
-https://nytimes.com/athletic/6308575/2025/04/25/canucks-depth-chart-offseason-2025/
 
