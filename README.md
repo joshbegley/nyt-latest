@@ -1,3 +1,15 @@
+**Explaining why a Spanish soccer referee broke down at a news conference**\
+`Ricardo de Burgos Bengoetxea will take charge of Saturday's Copa del Rey final between Madrid and Barcelona.`\
+https://nytimes.com/athletic/6309127/2025/04/25/real-madrid-barcelona-de-burgos-referee/
+
+**In Trade War Clash With Washington, China Refuses to Take the Bait**\
+`The Trump administration has been saying that the two countries are engaged in talks to resolve the dispute, but Beijing asserts that no such discussions are happening.`\
+https://nytimes.com/2025/04/25/world/asia/united-states-china-trade-fight.html
+
+**‘Real Women Have Curves’ Is Now a Broadway Show. Here Are 5 Things to Know.**\
+`The new musical is based on Josefina López’s original play and the 2002 film adaptation that starred America Ferrera.`\
+https://nytimes.com/2025/04/25/theater/real-women-have-curves-broadway.html
+
 **Capital Burger, $3,000 in Cash and a D.H.S. Badge: A Washington Mystery**\
 `Kristi Noem, the top official charged with patrolling the nation’s borders and protecting it from terrorist threats, was burgled in plain view of her security detail.`\
 https://nytimes.com/2025/04/25/us/politics/noem-stolen-purse-homeland-security.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6309369/2025/04/25/nba-playoffs-lebron-james-anthon
 **Rushworth wants to leave Brighton if game time does not improve**\
 `The 23-year-old spent the first half of the current campaign on loan to Hull City in the second tier.`\
 https://nytimes.com/athletic/6309461/2025/04/25/carl-rushworth-brighton-future/
-
-**A Folk Music Renaissance, With Some Modern Concerns**\
-`Several rising British bands are using centuries-old ditties to discuss hot-button issues like prison abolition, trans rights and the gig economy.`\
-https://nytimes.com/2025/04/25/arts/music/uk-folk-music-politics.html
-
-**‘Things Have Ground to a Halt’: Tariff Uncertainty Paralyzes Businesses**\
-`The Times heard from hundreds of American companies, most of them small businesses, that face a reckoning because of President Trump’s steep import taxes.`\
-https://nytimes.com/2025/04/25/business/trump-tariffs-american-importers.html
-
-**Arsenal's Wubben-Moy, Van Domselaar set to return against Lyon**\
-`Wubben-Moy has been out since February with a muscular injury, while goalkeeper Van Domselaar missed Arsenal's last two matches.`\
-https://nytimes.com/athletic/6309383/2025/04/25/arsenal-lyon-uwcl-wubben-moy-van-domselaar/
 
