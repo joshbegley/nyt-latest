@@ -1,3 +1,7 @@
+**Dolphins draft DT Kenneth Grant: How he fits, pick grade and scouting intel**\
+`Grant was the No. 3 defensive tackle in Dane Brugler's "The Beast" and played a vital role on Michigan's title-winning defense in 2023.`\
+https://nytimes.com/athletic/6268004/2025/04/24/kenneth-grant-dolphins-nfl-draft/
+
 **Giants overcome mistakes, take advantage of mistakes, win series**\
 `Continuity in the lineup and growing confidence seem to be helping the Giants get off to their best start since 2003.`\
 https://nytimes.com/athletic/6306346/2025/04/24/sf-giants-overcoming-mistakes-brewers/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/04/24/arts/pope-francis-caravaggio.html
 **Saints draft Kelvin Banks Jr.: How he fits, pick grade and scouting intel**\
 `Banks ended his final season at Texas by winning the Outland Trophy and the Lombardi Award, presented to the nation's best lineman.`\
 https://nytimes.com/athletic/6271307/2025/04/24/kelvin-banks-jr-saints-nfl-draft/
-
-**Panthers draft WR Tetairoa McMillan: How he fits, pick grade and scouting intel**\
-`McMillan led the Big 12 with 1,319 receiving yards in 2024 and scored 26 touchdowns in three seasons at Arizona.`\
-https://nytimes.com/athletic/6268043/2025/04/24/tetairoa-mcmillan-panthers-nfl-draft/
 
