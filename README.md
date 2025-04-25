@@ -1,3 +1,7 @@
+**Jimmy Kimmel Mocks Pete Hegseth’s Rumored Pentagon Makeup Studio**\
+`“Nothing sparks fear in the hearts of our enemies like a defense secretary who puts foundation on his face,” Kimmel said.`\
+https://nytimes.com/2025/04/25/arts/television/jimmy-kimmel-pete-hegseth-makeup.html
+
 **Why the Browns were wise to trade their No. 2 pick and look toward the future**\
 `Cleveland GM Andrew Berry and company traded back to No. 5, added a second-round pick and a 2026 first-rounder in a deal with the Jaguars.`\
 https://nytimes.com/athletic/6307621/2025/04/25/browns-nfl-draft-trade-mason-graham/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/25/briefing/trump-putin-india-pakistan-pope-francis.
 **The New York Times in Print for Friday, April 25, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/04/25/todays-new-york-times
-
-**My Oscar for ‘No Other Land’ Didn’t Protect Me From Violence**\
-`Hamdan Ballal won an Oscar for co-directing “No Other Land,” then went home to the West Bank and was attacked and arrested.`\
-https://nytimes.com/2025/04/25/opinion/no-other-land-director-attack.html
 
