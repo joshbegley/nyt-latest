@@ -1,3 +1,7 @@
+**Lawyers Seek Return of Migrants Deported Under Wartime Act**\
+`An updated lawsuit filed in Washington was the latest in a flurry of suits challenging the Trump administration’s use of the Alien Enemies Act to send migrants to a prison in El Salvador.`\
+https://nytimes.com/2025/04/25/us/politics/lawyers-seek-migrant-return.html
+
 **Friday Briefing: Trump Tells Putin to ‘STOP!’**\
 `Plus, was Shakespeare a bad husband?`\
 https://nytimes.com/2025/04/25/briefing/trump-putin-india-pakistan-pope-francis.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6307417/2025/04/25/new-york-jets-armand-membou-draf
 **The most unlikely hero has the Maple Leafs on the verge of a sweep**\
 `The Leafs boast some of the biggest names in hockey, but on Thursday someone new became "the king of Toronto for a night."`\
 https://nytimes.com/athletic/6307615/2025/04/25/simon-benoit-maple-leafs-nhl-playoffs-overtime-winner/
-
-**Rams trade out of Round 1, have 2 first-rounders in 2026 ‘for now’**\
-`The Rams explored moving up in Round 1, but ultimately traded back to Round 2, where they will have the 46th overall pick Friday.`\
-https://nytimes.com/athletic/6307751/2025/04/25/rams-trade-first-round-pick-falcons/
 

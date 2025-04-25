@@ -1,3 +1,19 @@
+**Friday Briefing: Trump Tells Putin to ‘STOP!’**\
+`Plus, was Shakespeare a bad husband?`\
+https://nytimes.com/2025/04/25/briefing/trump-putin-india-pakistan-pope-francis.html
+
+**The New York Times in Print for Friday, April 25, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/25/todays-new-york-times
+
+**My Oscar for ‘No Other Land’ Didn’t Protect Me From Violence**\
+`Hamdan Ballal won an Oscar for co-directing “No Other Land,” then went home to the West Bank and was attacked and arrested.`\
+https://nytimes.com/2025/04/25/opinion/no-other-land-director-attack.html
+
+**Shedeur Sanders' draft fall wasn't a surprise. Teams never saw him as first-round talent**\
+`The Athletic asked 10 coaches and executives Thursday if they were surprised Sanders was still on the board late in Round 1. All 10 said no.`\
+https://nytimes.com/athletic/6307646/2025/04/25/nfl-draft-shedeur-sanders-fall-wasnt-as-a-surprise-teams-never-saw-qb-as-first-round-talent/
+
 **How Karl-Anthony Towns was unlocked in Knicks' Game 3 win over Pistons**\
 `Towns was purposeful all night as New York took a 2-1 series lead in Detroit behind his 31 points.`\
 https://nytimes.com/athletic/6307459/2025/04/25/karl-anthony-towns-knicks-game-3/

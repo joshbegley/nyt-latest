@@ -1,3 +1,19 @@
+**Friday Briefing: Trump Tells Putin to ‘STOP!’**\
+`Plus, was Shakespeare a bad husband?`\
+https://nytimes.com/2025/04/25/briefing/trump-putin-india-pakistan-pope-francis.html
+
+**The New York Times in Print for Friday, April 25, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/25/todays-new-york-times
+
+**My Oscar for ‘No Other Land’ Didn’t Protect Me From Violence**\
+`Hamdan Ballal won an Oscar for co-directing “No Other Land,” then went home to the West Bank and was attacked and arrested.`\
+https://nytimes.com/2025/04/25/opinion/no-other-land-director-attack.html
+
+**Shedeur Sanders' draft fall wasn't a surprise. Teams never saw him as first-round talent**\
+`The Athletic asked 10 coaches and executives Thursday if they were surprised Sanders was still on the board late in Round 1. All 10 said no.`\
+https://nytimes.com/athletic/6307646/2025/04/25/nfl-draft-shedeur-sanders-fall-wasnt-as-a-surprise-teams-never-saw-qb-as-first-round-talent/
+
 **How Karl-Anthony Towns was unlocked in Knicks' Game 3 win over Pistons**\
 `Towns was purposeful all night as New York took a 2-1 series lead in Detroit behind his 31 points.`\
 https://nytimes.com/athletic/6307459/2025/04/25/karl-anthony-towns-knicks-game-3/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6307615/2025/04/25/simon-benoit-maple-leafs-nhl-pla
 **Rams trade out of Round 1, have 2 first-rounders in 2026 ‘for now’**\
 `The Rams explored moving up in Round 1, but ultimately traded back to Round 2, where they will have the 46th overall pick Friday.`\
 https://nytimes.com/athletic/6307751/2025/04/25/rams-trade-first-round-pick-falcons/
-
-**Blues rout Jets in Game 3 to get back in series: Takeaways**\
-`The Blues scored early and often in a 7-2 victory over the Jets to cut the series lead to 2-1.`\
-https://nytimes.com/athletic/6307676/2025/04/25/nhl-playoffs-blues-jets-game-3/
-
-**With Bryce Young's urging, Panthers boost offense in selecting Tetairoa McMillan**\
-`The No. 8 pick in the 2025 NFL Draft believes there are big things ahead for the "Cali-to-Cali connection" he has with his new quarterback.`\
-https://nytimes.com/athletic/6307551/2025/04/25/panthers-tetairoa-mcmillan-bryce-young-connection/
-
-**NFL Draft roundtable: Who won Jags/Browns trade, what to make of Shedeur Sanders' slide?**\
-`The blockbuster deal was the biggest story of a first round that saw just as many running backs and tight ends selected as quarterbacks.`\
-https://nytimes.com/athletic/6307624/2025/04/25/nfl-draft-jaguars-browns-travis-hunter-shedeur-sanders/
-
-**Greenberg: Do you love Colston Loveland? Ben Johnson does and that's what matters**\
-`Fans may not be wowed by Loveland, but it’s best to look at Chicago's pick through the lens that this is who Johnson liked for his offense.`\
-https://nytimes.com/athletic/6307449/2025/04/25/colston-loveland-bears-nfl-draft-tight-end/
 
