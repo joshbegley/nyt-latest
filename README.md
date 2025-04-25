@@ -1,3 +1,7 @@
+**Aleksander Barkov injured as Panthers edge Lightning to take 2-0 series lead: Takeaways**\
+`Barkov left in the third and did not return after taking a hit from Brandon Hagel, who was a assessed a five-minute interference penalty.`\
+https://nytimes.com/athletic/6306601/2025/04/24/panthers-lightning-nhl-playoffs-2025-game-2-takeaways/
+
 **Cardinals draft DT Walter Nolen: How he fits, pick grade and scouting intel**\
 `Nolen had a breakout year with Ole Miss, contributing to one of the best pass-rushing units in the FBS last year. `\
 https://nytimes.com/athletic/6273053/2025/04/24/walter-nolen-cardinals-nfl-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6268004/2025/04/24/kenneth-grant-dolphins-nfl-draft
 **Giants overcome mistakes, take advantage of mistakes, win series**\
 `Continuity in the lineup and growing confidence seem to be helping the Giants get off to their best start since 2003.`\
 https://nytimes.com/athletic/6306346/2025/04/24/sf-giants-overcoming-mistakes-brewers/
-
-**49ers NFL Draft hub: Picks, grades, fits and scouting reports**\
-`Keep coming back throughout the draft for grades and expert analysis of each 49ers pick.`\
-https://nytimes.com/athletic/6299432/2025/04/24/49ers-nfl-draft-picks-2025-grades-scouting-reports/
 
