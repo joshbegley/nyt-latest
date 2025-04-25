@@ -1,3 +1,11 @@
+**Cowboys draft G Tyler Booker: How he fits, pick grade and scouting intel**\
+`Booker, a physical, 6-foot-5, 321-pound guard, broke out in his third year in Alabama, and was named a first-team All-American. `\
+https://nytimes.com/athletic/6273382/2025/04/24/tyler-booker-cowboys-nfl-draft/
+
+**49ers draft edge Mykel Williams: How he fits, pick grade and scouting intel**\
+`Williams had career bests in tackles for loss, sacks and forced fumbles last season at Georgia.`\
+https://nytimes.com/athletic/6273704/2025/04/24/mykel-williams-49ers-nfl-draft/
+
 **NFL Draft 2025 Round 1 grades: Jaguars earn A for Travis Hunter trade up**\
 `How did each team fare with its Round 1 pick on Thursday night in Green Bay? Our experts break it all down. `\
 https://nytimes.com/athletic/6301900/2025/04/24/nfl-draft-grades-2025-round-1-every-pick/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6287651/2025/04/24/raiders-nfl-draft-picks-2025-gra
 **Jets draft OT Armand Membou: How he fits, draft grade and scouting intel**\
 `The Missouri offensive lineman was a second-team All-SEC selection in 2024 and tested well at the NFL Scouting Combine. `\
 https://nytimes.com/athletic/6270010/2025/04/24/armand-membou-jets-nfl-draft/
-
-**Raiders draft RB Ashton Jeanty: How he fits, pick grade and scouting intel**\
-`The Heisman Trophy runner-up led the FBS with 397 touches and 2,601 rushing yards as a junior, while scoring 30 touchdowns.`\
-https://nytimes.com/athletic/6264910/2025/04/24/ashton-jeanty-raiders-nfl-draft/
-
-**Browns draft DT Mason Graham: How he fits, draft grade and scouting intel**\
-`Graham is the top defensive tackle in Dane Brugler's "The Beast" and was a vital part of Michigan's defense.`\
-https://nytimes.com/athletic/6267320/2025/04/24/mason-graham-browns-nfl-draft/
 

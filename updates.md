@@ -1,3 +1,23 @@
+**NFL Draft 2025 Round 1 grades: Jaguars earn A for Travis Hunter trade up**\
+`How did each team fare with its Round 1 pick on Thursday night in Green Bay? Our experts break it all down. `\
+https://nytimes.com/athletic/6301900/2025/04/24/nfl-draft-grades-2025-round-1-every-pick/
+
+**Shedeur Sanders falls outside top 10 in NFL draft: How far will the QB slide?**\
+`Various mock drafts and experts projected Sanders would be selected in the first round.`\
+https://nytimes.com/athletic/6306197/2025/04/24/shedeur-sanders-nfl-draft-slide/
+
+**Bears draft TE Colston Loveland: How he fits, pick grade and scouting intel**\
+`Loveland was a second-team All-Big Ten selection and a finalist for the John Mackey Award in his last season at Michigan.`\
+https://nytimes.com/athletic/6264327/2025/04/24/colston-loveland-bears-nfl-draft/
+
+**Piercing the Shadows of the Pope’s Favorite Painting**\
+`Caravaggio was an artist of rare directness, whose naturalistic pictures brought the heavens down to earth. Our critic Jason Farago shows you what Francis may have seen in them.`\
+https://nytimes.com/interactive/2025/04/24/arts/pope-francis-caravaggio.html
+
+**Browns draft DT Mason Graham: How he fits, draft grade and scouting intel**\
+`Graham is the top defensive tackle in Dane Brugler's "The Beast" and was a vital part of Michigan's defense.`\
+https://nytimes.com/athletic/6267320/2025/04/24/mason-graham-browns-nfl-draft/
+
 **Piercing the Shadows of the Pope’s Favorite Painting**\
 `Caravaggio was an artist of rare directness, whose naturalistic pictures brought the heavens down to earth. Our critic Jason Farago shows you what Francis may have seen in them.`\
 https://nytimes.com/interactive/2025/04/24/arts/2025-04-07-caravaggio-index.html
