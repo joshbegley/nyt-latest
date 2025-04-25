@@ -1,3 +1,11 @@
+**New York Rangers roster tiers: Who stays and who goes this offseason?**\
+`From Chris Kreider to K'Andre Miller to Alexis Lafrenière, here's which Rangers are likeliest to be on the move this summer.`\
+https://nytimes.com/athletic/6309561/2025/04/25/rangers-offseason-roster-trades-free-agency/
+
+**China Says Trump’s Order on Seabed Mining Violates International Law**\
+`Dozens of countries have called for a moratorium on seabed mining, and have urged restraint until an international authority agrees on rules for the practice.`\
+https://nytimes.com/2025/04/25/us/china-trump-seabed-mining-international-law.html
+
 **Sean Combs Loses Request to Remove All Hotel Assault Video From Trial**\
 `It is not yet clear how much surveillance footage of the music mogul beating his former girlfriend, Casandra Ventura, in 2016 will be presented to the jury.`\
 https://nytimes.com/2025/04/25/arts/music/sean-diddy-combs-cassie-video-trial.html

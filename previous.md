@@ -1,3 +1,11 @@
+**New York Rangers roster tiers: Who stays and who goes this offseason?**\
+`From Chris Kreider to K'Andre Miller to Alexis Lafrenière, here's which Rangers are likeliest to be on the move this summer.`\
+https://nytimes.com/athletic/6309561/2025/04/25/rangers-offseason-roster-trades-free-agency/
+
+**China Says Trump’s Order on Seabed Mining Violates International Law**\
+`Dozens of countries have called for a moratorium on seabed mining, and have urged restraint until an international authority agrees on rules for the practice.`\
+https://nytimes.com/2025/04/25/us/china-trump-seabed-mining-international-law.html
+
 **Sean Combs Loses Request to Remove All Hotel Assault Video From Trial**\
 `It is not yet clear how much surveillance footage of the music mogul beating his former girlfriend, Casandra Ventura, in 2016 will be presented to the jury.`\
 https://nytimes.com/2025/04/25/arts/music/sean-diddy-combs-cassie-video-trial.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/europe/100000010130521/nun-mourns-pope-fraciss.h
 **Trump Administration Reverses Course on Student Visa Cancellations**\
 `The sudden shift came as a reprieve for the more than 1,500 international students who have had their visas canceled in recent weeks.`\
 https://nytimes.com/2025/04/25/us/politics/trump-student-visa-cancellations.html
-
-**A Timeline of the Rise and Fall of George Santos**\
-`The disgraced former congressman has been sentenced to prison, years after his credentials and career began to unravel.`\
-https://nytimes.com/2025/04/25/nyregion/george-santos-timeline.html
-
-**Book Club: Let’s Talk About Adam Ross’s ‘Playworld’**\
-`This off-kilter coming-of-age novel about one boy growing up in New York in the 1980s is detailed, digressive and capable of tracking the most minute shifts in emotional weather.`\
-https://nytimes.com/2025/04/25/books/review/podcast-adam-ross-playworld-bookclub.html
 
