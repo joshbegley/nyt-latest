@@ -1,3 +1,11 @@
+**Slot dismisses rumour that Nunez transfer clause is reason for Liverpool omission**\
+`The striker has started only once in Liverpool's last 15 Premier League matches.`\
+https://nytimes.com/athletic/6308639/2025/04/25/darwin-nunez-liverpool-slot/
+
+**Hegseth’s Personal Phone Use Created Vulnerabilities, Analysts Say**\
+`The phone number used in the Signal chat could also be found in a variety of places, including on social media and a fantasy sports site.`\
+https://nytimes.com/2025/04/25/us/politics/pete-hegseth-phone-signal.html
+
 **Putin Keeps Pummeling Ukraine, Convinced Trump Is on His Side**\
 `The concessions offered so far by President Trump fall short of Russia’s stated war aims. But President Vladimir V. Putin appears certain that he has the upper hand in talks.`\
 https://nytimes.com/2025/04/25/world/europe/russia-ukraine-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6304500/2025/04/25/barcelona-lewandowski-balde-copa
 **Air Raids and Antidepressants: Sleep Deprivation Takes a Toll in Ukraine**\
 `Sleep deprivation has become a health crisis in the country, experts and psychologists say. They cite near-nightly drone attacks as one of the major impediments to getting proper rest.`\
 https://nytimes.com/2025/04/25/world/europe/ukraine-sleep-deprivation-russia-war.html
-
-**3 Toxic Relationship Habits to Avoid**\
-`The experts also offered advice on what you can do instead.`\
-https://nytimes.com/2025/04/25/well/toxic-relationship-red-flag.html
-
-**The New York Times News Quiz, April 25, 2025**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2025/04/25/briefing/quiz-pope-hegseth-harvard-trump.html
 
