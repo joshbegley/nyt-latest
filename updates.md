@@ -1,3 +1,7 @@
+**Spire Motorsports co-owner on Rodney Childers dismissal: 'This wasn't about results'**\
+`Jeff Dickerson explained the decision to part ways with the accomplished crew chief as questions continue to swirl around the shocking move.`\
+https://nytimes.com/athletic/6306192/2025/04/25/rodney-childers-spire-motorsports-dismissal-jeff-dickerson/
+
 **Smith: Wild found formula to 'frustrate' Golden Knights, take lead in series**\
 `The Wild are deservedly in the driver's seat, holding a 2-1 lead in the best-of-seven series with the Vegas Golden Knights.`\
 https://nytimes.com/athletic/6308263/2025/04/25/wild-game-3-win-nhl-playoffs/

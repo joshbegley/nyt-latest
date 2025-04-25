@@ -1,3 +1,7 @@
+**Spire Motorsports co-owner on Rodney Childers dismissal: 'This wasn't about results'**\
+`Jeff Dickerson explained the decision to part ways with the accomplished crew chief as questions continue to swirl around the shocking move.`\
+https://nytimes.com/athletic/6306192/2025/04/25/rodney-childers-spire-motorsports-dismissal-jeff-dickerson/
+
 **Smith: Wild found formula to 'frustrate' Golden Knights, take lead in series**\
 `The Wild are deservedly in the driver's seat, holding a 2-1 lead in the best-of-seven series with the Vegas Golden Knights.`\
 https://nytimes.com/athletic/6308263/2025/04/25/wild-game-3-win-nhl-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6306333/2025/04/25/frederik-andersen-hurricanes-goa
 **What I'm hearing about the Islanders' next moves after firing Lou Lamoriello**\
 `The Islanders are searching for a new general manager and maybe team president, depending on how they decide to split the job.`\
 https://nytimes.com/athletic/6305217/2025/04/25/islanders-gm-search-lamoriello/
-
-**49ers NFL Draft hub: Picks, grades, fits and scouting reports**\
-`Keep coming back throughout the draft for grades and expert analysis of each 49ers pick.`\
-https://nytimes.com/athletic/6299432/2025/04/25/49ers-nfl-draft-picks-2025-grades-scouting-reports/
 
