@@ -1,3 +1,11 @@
+**Marco Rossi on being dropped to the Wild's fourth line and his uncertain future: 'Always team first'**\
+`Rossi says for now his only focus is on the playoffs, though the demotion could be a sign of the team's future plans for him.`\
+https://nytimes.com/athletic/6309786/2025/04/25/marco-rossi-demotion-wild-future-nhl-playoffs/
+
+**Flashback: Your Weekly History Quiz, April 26, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/04/25/upshot/flashback.html
+
 **NCAA pushes for college player prop bet bans with new licensing agreement**\
 `Financial terms of the new deal were not disclosed, but the agreement could increase NCAA revenue`\
 https://nytimes.com/athletic/6309803/2025/04/25/ncaa-sports-prop-bet-ban-licensing-agreement/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6309809/2025/04/25/oilers-game-3-calvin-pickard-nhl
 **Lightning on the ropes as Panthers shut down Tampa Bay star power**\
 `The Lightning's big names have struggled so far against stingy Florida, and they're running out of time.`\
 https://nytimes.com/athletic/6309746/2025/04/25/lightning-panthers-nhl-playoffs-stars/
-
-**Micah Parsons wanted Tetairoa McMillan, but calls Tyler Booker 'a beast'**\
-`“I’m hurt. He was supposed to be opposite of CeeDee Lamb," Micah Parsons said on his live show during Round 1 of the NFL Draft.`\
-https://nytimes.com/athletic/6309801/2025/04/25/cowboys-micah-parsons-tetairoa-mcmillan-comments-nfl-draft/
-
-**New York Rangers roster tiers: Who stays and who goes this offseason?**\
-`From Chris Kreider to K'Andre Miller to Alexis Lafrenière, here's which Rangers are likeliest to be on the move this summer.`\
-https://nytimes.com/athletic/6309561/2025/04/25/rangers-offseason-roster-trades-free-agency/
 

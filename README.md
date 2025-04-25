@@ -34,7 +34,3 @@ https://nytimes.com/athletic/6309717/2025/04/25/alijah-arenas-usc-coma-car-crash
 `Calvin Pickard has been tabbed to replace Stuart Skinner as the Oilers’ starting goalie.`\
 https://nytimes.com/athletic/6309809/2025/04/25/oilers-game-3-calvin-pickard-nhl-playoffs/
 
-**Lightning on the ropes as Panthers shut down Tampa Bay star power**\
-`The Lightning's big names have struggled so far against stingy Florida, and they're running out of time.`\
-https://nytimes.com/athletic/6309746/2025/04/25/lightning-panthers-nhl-playoffs-stars/
-

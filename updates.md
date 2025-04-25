@@ -1,3 +1,11 @@
+**Marco Rossi on being dropped to the Wild's fourth line and his uncertain future: 'Always team first'**\
+`Rossi says for now his only focus is on the playoffs, though the demotion could be a sign of the team's future plans for him.`\
+https://nytimes.com/athletic/6309786/2025/04/25/marco-rossi-demotion-wild-future-nhl-playoffs/
+
+**Flashback: Your Weekly History Quiz, April 26, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/04/25/upshot/flashback.html
+
 **NCAA pushes for college player prop bet bans with new licensing agreement**\
 `Financial terms of the new deal were not disclosed, but the agreement could increase NCAA revenue`\
 https://nytimes.com/athletic/6309803/2025/04/25/ncaa-sports-prop-bet-ban-licensing-agreement/
