@@ -1,3 +1,15 @@
+**The Trump Administration Wants Seafloor Mining. What Does That Mean?**\
+`A recent executive order would accelerate mining in little-understood undersea ecosystems.`\
+https://nytimes.com/2025/04/25/climate/seafloor-mining-science.html
+
+**Steelers NFL Draft hub: Picks, grades, fits and scouting reports**\
+`Everything you need to know about the Steelers' 2025 draft class, from Round 1 through Round 7.`\
+https://nytimes.com/athletic/6302548/2025/04/25/steelers-nfl-draft-picks-2025-grades-scouting-reports/
+
+**Seahawks NFL Draft hub: Picks, grades, fits and scouting reports**\
+`Everything you need to know about the Seahawks' 2025 draft class, from Round 1 through Round 7.`\
+https://nytimes.com/athletic/6303330/2025/04/25/seahawks-nfl-draft-picks-2025-grades-scouting-reports/
+
 **At 13, Charlotte Brontë Already Knew How Good a Writer She Would Be**\
 `An anthology of her teenage poetry, published for the first time, shows ambition, even if the verse isn’t perfect.`\
 https://nytimes.com/2025/04/25/books/charlotte-bronte-teenage-poems.html

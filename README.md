@@ -1,3 +1,7 @@
+**Man Is Fatally Stabbed After Fight on Subway Train in Manhattan**\
+`The killing occurred after the man got into a fight with his assailant on a downtown No. 5 train during the morning rush hour, officials said.`\
+https://nytimes.com/2025/04/25/nyregion/fatal-subway-stabbing-nyc.html
+
 **The Trump Administration Wants Seafloor Mining. What Does That Mean?**\
 `A recent executive order would accelerate mining in little-understood undersea ecosystems.`\
 https://nytimes.com/2025/04/25/climate/seafloor-mining-science.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/25/climate/radia-the-worlds-biggest-plane.html
 **NFL plans for 3 Christmas games annually, raising questions about NBA tradition**\
 `The NFL will play two Christmas games on Netflix and another on Amazon. That could force the NBA to find new playing windows in the future.`\
 https://nytimes.com/athletic/6309913/2025/04/25/nfl-christmas-games-nba-tradition/
-
-**Four Perspectives on Trump’s Weak Poll Numbers**\
-`It’s not easy to burn this much good will so fast, and it doesn’t usually get any easier from here.`\
-https://nytimes.com/2025/04/25/upshot/trump-poll-numbers.html
 
