@@ -1,3 +1,19 @@
+**How Karl-Anthony Towns was unlocked in Knicks' Game 3 win over Pistons**\
+`Towns was purposeful all night as New York took a 2-1 series lead in Detroit behind his 31 points.`\
+https://nytimes.com/athletic/6307459/2025/04/25/karl-anthony-towns-knicks-game-3/
+
+**Winners and losers from the NFL Draft's first round: Jaguars, Shedeur Sanders and more**\
+`The first round of the 2025 NFL Draft is in the books. Here's a look at the biggest winners and losers.`\
+https://nytimes.com/athletic/6307597/2025/04/25/nfl-draft-2025-winners-losers-shedeur-sanders/
+
+**Green Bay draws 205,000 fans for Round 1 of NFL Draft**\
+`The NFL's smallest city drew a crowd nearly double its population for the first day of the 2025 NFL Draft.`\
+https://nytimes.com/athletic/6307749/2025/04/25/nfl-draft-green-bay-attendance/
+
+**Rams trade out of Round 1, have 2 first-rounders in 2026 ‘for now’**\
+`The Rams explored moving up in Round 1, but ultimately traded back to Round 2, where they will have the 46th overall pick Friday.`\
+https://nytimes.com/athletic/6307751/2025/04/25/rams-trade-first-round-pick-falcons/
+
 **The Armand Membou pick shows Aaron Glenn is following a Lions blueprint**\
 `The first pick of the Glenn-Darren Mougey Jets evoked memories of Detroit drafting Penei Sewell four years ago.`\
 https://nytimes.com/athletic/6307417/2025/04/25/new-york-jets-armand-membou-draft-offensive-line/
