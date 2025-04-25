@@ -1,3 +1,23 @@
+**Cardinal Accused of Hiding Priest Sex Abuse Will Help Close Pope Francis’ Casket**\
+`Cardinal Roger M. Mahony, who was accused of covering up cases of abuse as archbishop of Los Angeles, will have an official role in the ceremonies around Francis’ funeral.`\
+https://nytimes.com/2025/04/25/us/cardinal-roger-mahony-pope-francis-funeral.html
+
+**NHL investigating Senators' Game 3 warm-ups mischief vs. Leafs: Source**\
+`Senators forward Nick Cousins alleged to have been shooting pucks into the Leafs end, targeting goalie Anthony Stolarz.`\
+https://nytimes.com/athletic/6309291/2025/04/25/nhl-playoffs-investigation-senators-warm-ups/
+
+**NHL Power Rankings: The playoff teams 1-16, plus — who is stepping up?**\
+`It’s still way too early to know who will add “big game player” to their narrative this season, but we’ve got a few early candidates.`\
+https://nytimes.com/athletic/6309022/2025/04/25/nhl-power-rankings-playoffs-8/
+
+**Book Club: Read ‘The Safekeep,’ by Yael van der Wouden, With the Book Review**\
+`In May, the Book Review Book Club will read and discuss “The Safekeep,” Yael van der Wouden’s novel about a woman wrapped up in a historical drama and a forbidden romance.`\
+https://nytimes.com/2025/04/25/books/review/safekeep-yael-van-der-wouden-book-club.html
+
+**Map: 6.3-Magnitude Earthquake Strikes Near Ecuador**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/04/25/world/americas/ecuador-quake-tracker.html
+
 **augustinus-bader-and-cerave-moisturizer**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/wc-augustinus-bader-and-cerave-moisturizer
@@ -17,24 +37,4 @@ https://nytimes.com/newsgraphics/card-story/dinner-spring-recipes
 **Tell Us Your Wild New York City Roommate Stories**\
 `When the rent is high and the vacancy rates are low, sharing your space with others becomes a must.`\
 https://nytimes.com/2025/04/25/nyregion/new-york-city-roommates.html
-
-**Cole Perfetti's non-goal doesn't change one hard truth: The Jets got smoked in Game 3**\
-`The Jets were outskated, outpassed, outhit, out-puck-recovered, and dramatically outscored. Nothing else that happened matters.`\
-https://nytimes.com/athletic/6306962/2025/04/25/nhl-playoffs-cole-perfetti-jets-game-3/
-
-**Lions NFL Draft hub: Picks, grades, fits and scouting reports**\
-`The Lions have seven picks in this year's NFL Draft and kicked things off by selecting Ohio State DT Tyleik Williams.`\
-https://nytimes.com/athletic/6303781/2025/04/25/lions-nfl-draft-picks-2025-grades-scouting-reports/
-
-**Trump Says U.S. Could Lead Military Action Against Iran if Talks Collapse**\
-`The president said he would be “leading the pack” against Iran if it did not agree to a nuclear deal, but he said he was open to meeting Iranian leaders.`\
-https://nytimes.com/2025/04/25/us/politics/iran-israel-nuclear-talks.html
-
-**Maresca: Nkunku to return to Chelsea squad for Everton game**\
-`Nkunku had been dropped from the squad for the 2-1 win over Fulham, with youngster Tyrique George coming off the bench to score the winner.`\
-https://nytimes.com/athletic/6309151/2025/04/25/christopher-nkunku-chelsea-enzo-maresca/
-
-**'We won't be deflated': Pistons remain positive despite Game 3 loss to Knicks**\
-`The Knicks outplayed the young Pistons down the stretch. "All we can do is learn from it, move on, get better," Tim Hardaway Jr. said. `\
-https://nytimes.com/athletic/6308416/2025/04/25/pistons-knicks-game-3/
 
