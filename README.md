@@ -1,3 +1,15 @@
+**Trump Executive Order Eases Firing of Probationary Federal Workers**\
+`The order declares that employees will only attain full employment status if their managers review and sign off on their performance, adding a new obstacle for probationary workers to clear.`\
+https://nytimes.com/2025/04/24/us/politics/trump-executive-order-federal-workers.html
+
+**Giants draft edge Abdul Carter: How he fits, pick grade and scouting intel**\
+`Carter is the top edge rusher in this class and the No. 2 overall prospect according to The Athletic's Dane Brugler. `\
+https://nytimes.com/athletic/6264539/2025/04/24/abdul-carter-giants-nfl-draft/
+
+**Jaguars trade up to No. 2 to pick Travis Hunter in first major trade of 2025 NFL Draft**\
+`The move represented a major splash for first-year general manager James Gladstone and head coach Liam Coen.`\
+https://nytimes.com/athletic/6305655/2025/04/24/jaguars-trade-up-no-2-pick-browns-nfl-draft/
+
 **Jaguars draft Travis Hunter: How he fits, pick grade and scouting intel**\
 `The 2024 Heisman Trophy winner totaled seven interceptions and 16 pass deflections in 22 games across two seasons with the Buffaloes.`\
 https://nytimes.com/athletic/6267459/2025/04/24/travis-hunter-jaguars-nfl-draft/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/24/us/pizzo-florida-democratic-party.html
 **Texas Judge Unseals ICE Document Detailing Deportation Notices: an English Form and at Least 12 Hours**\
 `A declaration by an ICE official says an English-language form was “read and explained” to the detainees and that they had “no less than 12 hours” to express the intent to challenge their deportations.`\
 https://nytimes.com/2025/04/24/us/politics/deportations-ice-document-venezuelan-migrants.html
-
-**Red Sox takeaways: Garrett Crochet frustrated with rocky start; Alex Cora nearing milestone**\
-`Crochet labored through the first two innings Thursday, needing 54 pitches and allowing the Mariners to score four runs.`\
-https://nytimes.com/athletic/6306335/2025/04/24/red-sox-garrett-crochet-alex-cora/
-
-**U.S. Says Blast in Yemen Was Caused by Houthi Missile, Not U.S. Strike**\
-`An explosion near a UNESCO world heritage site in Yemen’s capital on Sunday killed 12 people, according to health authorities tied to the Houthi-led government.`\
-https://nytimes.com/2025/04/24/world/middleeast/us-yemen-houthi-misfire.html
-
-**We Need Proof of Life for the Makeup Artist Trump Sent to El Salvador**\
-`It’s a moral imperative to try to rescue people like Andry Hernández Romero.`\
-https://nytimes.com/2025/04/24/opinion/trump-el-salvador-makeup-artist.html
 
