@@ -1,3 +1,23 @@
+**The Cardinals draft Walter Nolen, a DT who's still learning how good he can be**\
+`The Ole Miss product fits the team's desire to rebuild through the trenches`\
+https://nytimes.com/athletic/6307898/2025/04/25/the-cardinals-draft-walter-nolen-a-defensive-tackle-whos-still-learning-just-how-good-he-can-be/
+
+**Why the Steelers passed on Shedeur Sanders for Derrick Harmon, and what might come next**\
+`The Steelers couldn't pass up a chance to add a multidimensional D-lineman in Round 1. Could Sanders still be in their plans?`\
+https://nytimes.com/athletic/6308041/2025/04/25/steelers-shedeur-sanders-derrick-harmon-nfl-draft/
+
+**One big bet, two big swings: Falcons land Jalon Walker, James Pearce Jr. in first round**\
+`The Atlanta Falcons selected edge rushers Jalon Walker and James Pearce Jr. in the first round of the NFL Draft on Thursday night.`\
+https://nytimes.com/athletic/6307780/2025/04/25/falcons-nfl-draft-jalon-walker-james-pearce-jr/
+
+**Why the Chiefs believe they got a steal in QB protector Josh Simmons**\
+`Shoring up the offensive line in front of Patrick Mahomes was the top priority for the Chiefs, and they may have landed a long-term starter.`\
+https://nytimes.com/athletic/6308205/2025/04/25/chiefs-josh-simmons-patrick-mahomes/
+
+**'I feel like I'm that missing piece': Maxwell Hairston becomes Brandon Beane's chance at redemption**\
+`Taking Kaiir Elam in the first round in 2022 didn't work out for the Bills.`\
+https://nytimes.com/athletic/6308189/2025/04/25/buffalo-bills-nfl-draft-maxwell-hairston-brandon-beane/
+
 **Giants leave Round 1 of NFL Draft having executed a possible best-case scenario**\
 `The Giants got their elite prospect in Abdul Carter at No. 3 before finding a way back into Round 1, without overpaying, for QB Jaxson Dart.`\
 https://nytimes.com/athletic/6308076/2025/04/25/giants-nfl-draft-jaxson-dart-abdul-carter/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6308026/2025/04/25/bills-2025-nfl-draft-day-2-strat
 **Jimmy Kimmel Mocks Pete Hegseth’s Rumored Pentagon Makeup Studio**\
 `“Nothing sparks fear in the hearts of our enemies like a defense secretary who puts foundation on his face,” Kimmel said.`\
 https://nytimes.com/2025/04/25/arts/television/jimmy-kimmel-pete-hegseth-makeup.html
-
-**Why the Browns were wise to trade their No. 2 pick and look toward the future**\
-`Cleveland GM Andrew Berry and company traded back to No. 5, added a second-round pick and a 2026 first-rounder in a deal with the Jaguars.`\
-https://nytimes.com/athletic/6307621/2025/04/25/browns-nfl-draft-trade-mason-graham/
-
-**How a Seahawks legend and a standout Senior Bowl week sold Seattle on Grey Zabel**\
-`"Everybody loves this guy," general manager John Schneider said of Zabel. "He's just buttoned-up, smart, tough, reliable. Our kind of guy."`\
-https://nytimes.com/athletic/6307846/2025/04/25/grey-zabel-seahawks-nfl-draft-steve-hutchinson/
-
-**Why the Raiders are excited to add Ashton Jeanty — positional value be damned**\
-`Jeanty is the seventh running back in the last 10 years to be selected in the top 10 of the NFL Draft.`\
-https://nytimes.com/athletic/6307537/2025/04/25/ashton-jeanty-raiders-nfl-draft-2025/
-
-**Buckley: Proud and emotional Will Campbell eager to lead Patriots back to glory**\
-`Campbell happily recalled Patriots of old at his introduction, embracing New England's past success while dreaming of a promising future.`\
-https://nytimes.com/athletic/6307543/2025/04/25/will-campbell-patriots-2025-nfl-draft-first-round-pick/
-
-**Tight end at No. 10? Why the Bears believe Colston Loveland is worth it**\
-`Loveland's versatility and makeup stood out to Bears staff, making them feel comfortable taking a tight end as high as No. 10.`\
-https://nytimes.com/athletic/6307859/2025/04/25/tight-end-at-no-10-why-the-bears-believe-colston-loveland-is-worth-it/
 
