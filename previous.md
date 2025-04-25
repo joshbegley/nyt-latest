@@ -1,40 +1,40 @@
-**A British Magic Society Welcomes Its First Woman — Three Decades Late**\
-`Last year, the Magic Circle began searching for Sophie Lloyd, who disguised herself as a man in 1991 to gain membership and was then ousted. On Thursday, she returned.`\
-https://nytimes.com/2025/04/25/world/europe/magic-circle-london-sophie-lloyd.html
+**Alex Caruso's defense, experience 'turns tide' for Thunder in near-historic Game 3 comeback**\
+`Down 26 at halftime, Alex Caruso addressed the team. He stayed positive. He'd been part of big comebacks before.`\
+https://nytimes.com/athletic/6308644/2025/04/25/thunder-game-3-comeback-grizzlies-alex-caruso/
 
-**Trump vs. Science**\
-`We explain the administration’s cuts to research.`\
-https://nytimes.com/2025/04/25/briefing/trump-vs-science.html
+**Aaron Judge's greatness has only one modern day rival: Barry Bonds**\
+`Judge has no equals in MLB. In the past calendar year, he has been 145 percent better than the average hitter.`\
+https://nytimes.com/athletic/6303709/2025/04/25/yankees-aaron-judge-barry-bonds-comparison/
 
-**Estevao leaves pitch on stretcher after vomiting in win on 18th birthday**\
-`Estevao, who will join Chelsea this summer, explained after the game that he struggled to get used to the high altitude.`\
-https://nytimes.com/athletic/6308719/2025/04/25/estevao-willian-chelsea-palmeiras-vomit/
+**NWSL players freeze time, taking advantage of improved fertility treatments options**\
+`Racing Louisville became the first to offer fertility treatment to players in 2021. Several NWSL teams have since followed suit`\
+https://nytimes.com/athletic/6306153/2025/04/25/nwsl-players-fertility-treatment-soccer/
 
-**Japan’s Rice Is So Expensive, It’s Willing to Eat South Korea’s**\
-`Japanese consumers embraced Korean rice for the first time in 35 years, finding it more familiar than other types of foreign rice.`\
-https://nytimes.com/2025/04/25/world/asia/japan-south-korea-rice.html
+**Nebraska GM Pat Stewart offers another reminder how much the college game has changed**\
+`In a 20-minute interview session, one Stewart answer after another seemed to eradicate the innocence of collegiate athletics.`\
+https://nytimes.com/athletic/6306245/2025/04/25/nebraska-gm-pat-stewart-nil-transfer/
 
-**Senior Russian Officer Killed in Car Explosion Near Moscow**\
-`The general’s death is the latest in a series of fatalities involving Ukraine’s opponents inside Russia. The authorities in Kyiv had no immediate comment.`\
-https://nytimes.com/2025/04/25/world/europe/russian-officer-explosion-moscow-ukraine.html
+**Meet Seth Jarvis' mini-me — a 12-year-old whose costume became a viral tradition at Hurricanes games**\
+`“He nailed it pretty good,” says no less an authority than Jarvis himself. “He got the greasy mustache. He got the cut off.”`\
+https://nytimes.com/athletic/6305858/2025/04/25/viral-seth-jarvis-costume-hurricanes-games/
 
-**MLB starting pitcher fantasy baseball rankings for the rest of the season**\
-`This is the time of the fantasy baseball season when it's time to make moves. Check out the latest rankings to see who you should target.`\
-https://nytimes.com/athletic/6302301/2025/04/25/mlb-fantasy-baseball-starting-pitcher-rankings/
+**Cubs-Diamondbacks instant classic cracks the top 5 of craziest games at Wrigley Field**\
+`The Cubs have played more than 8,500 games at Wrigley. Their team historian says the 13-11 win over the Diamondbacks was one for the books. `\
+https://nytimes.com/athletic/6306164/2025/04/25/cubs-diamondbacks-craziest-wrigley-field-games/
 
-**Howe thanks Newcastle doctor after health scare: 'It could have had a different outcome'**\
-`The Newcastle head coach returned to work on Wednesday, having missed three matches after being hospitalised with pneumonia. `\
-https://nytimes.com/athletic/6308685/2025/04/25/eddie-howe-newcastle-health-update/
+**FPL live Q&A: FPL Gameweek 34 advice from Ben Dinnery**\
+`Join Ben Dinnery for a live Gameweek 34 FPL Q&A from 4pm-5pm UK time`\
+https://nytimes.com/athletic/6304700/2025/04/25/fantasy-premier-league-advice-gw34-tips/
 
-**Best available players for the Vikings: Shemar Turner, Nohl Williams**\
-`In Round 1, the Vikings continued to revamp their offensive line. On Day 2, they'll likely look for help on defense or at wide receiver.`\
-https://nytimes.com/athletic/6307728/2025/04/25/vikings-2025-nfl-draft-best-available/
+**Is Saka Hale End's greatest? Lewis-Skelly in midfield; Arteta’s season - our writers discuss your queries**\
+`Our club writers discuss some of the talking points subscribers have raised in the past few weeks`\
+https://nytimes.com/athletic/6298785/2025/04/25/arsenal-timber-saka-lewis-skelly/
 
-**The Leafs' division title is paying off. Now they have to finish the job**\
-`This season the Leafs picked up their first division title over a full season in over 20 years. So far, they're taking full advantage.`\
-https://nytimes.com/athletic/6307789/2025/04/25/maple-leafs-nhl-playoffs-division-title-senators/
+**Clay Holmes has matched expectations. Can he sustain it all season?**\
+`Holmes has a 3.16 ERA behind three new deliveries that have become significant parts of his arsenal.`\
+https://nytimes.com/athletic/6305527/2025/04/25/mets-mlb-clay-holmes-expectations/
 
-**The Senators’ first playoffs in 8 years feel over before they really began**\
-`Game 2's result still left the Senators confident in their chances against the Maple Leafs. But Game 3 might be the backbreaker.`\
-https://nytimes.com/athletic/6306400/2025/04/25/senators-nhl-playoffs-maple-leafs-game-3/
+**NFL Draft best available players for Denver Broncos: TreVeyon Henderson, Mason Taylor**\
+`Denver may not be done addressing their defense, but Day 2 figures to feature a focus on offensive playmakers.`\
+https://nytimes.com/athletic/6308119/2025/04/25/broncos-2025-nfl-draft-best-available/
 
