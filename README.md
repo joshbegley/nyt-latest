@@ -1,40 +1,40 @@
-**Spire Motorsports co-owner on Rodney Childers dismissal: 'This wasn't about results'**\
-`Jeff Dickerson explained the decision to part ways with the accomplished crew chief as questions continue to swirl around the shocking move.`\
-https://nytimes.com/athletic/6306192/2025/04/25/rodney-childers-spire-motorsports-dismissal-jeff-dickerson/
+**Everton's Tarkowski to undergo surgery on season-ending hamstring injury**\
+`The centre-back went off in the 52nd minute of Saturday's home loss to Manchester City and was replaced by Michael Keane.`\
+https://nytimes.com/athletic/6296060/2025/04/25/james-tarkowski-injury-everton/
 
-**Smith: Wild found formula to 'frustrate' Golden Knights, take lead in series**\
-`The Wild are deservedly in the driver's seat, holding a 2-1 lead in the best-of-seven series with the Vegas Golden Knights.`\
-https://nytimes.com/athletic/6308263/2025/04/25/wild-game-3-win-nhl-playoffs/
+**Blues' statement win: Pavel Buchnevich's hat trick, Cam Fowler's 5-point night and more**\
+`The Blues defeated the Jets 7-2 in Game 3 Thursday, cutting the Jets' lead to 2-1 in the series.`\
+https://nytimes.com/athletic/6306790/2025/04/25/blues-jets-nhl-playoffs-buchnevich-flowler/
 
-**Dalot could miss rest of season with calf injury, says Amorim**\
-`Head coach Amorim did say that Amad and Matthijs De Ligt are "near" returning from their injury issues.`\
-https://nytimes.com/athletic/6309079/2025/04/25/diogo-dalot-manchester-united-injury-update/
+**Commanders NFL Draft hub: Picks, grades, fits and scouting reports**\
+`Keeping you up to date on all of Washington's selections throughout the three-day draft. `\
+https://nytimes.com/athletic/6302196/2025/04/25/commanders-nfl-draft-picks-2025-grades-scouting-reports/
 
-**MSG Networks reduces Knicks, Rangers media rights fees in renegotiations**\
-`The Knicks and Rangers were set to receive roughly $180 million in rights fees this year.`\
-https://nytimes.com/athletic/6309031/2025/04/25/knicks-rangers-msg-networks-debt/
+**Forest Q&A: Team news, preview ahead of FA Cup semi-final against Manchester City**\
+`On Sunday, Nottingham Forest will play in their first FA Cup semi-final since 1991, when they take on Manchester City at Wembley Stadium.`\
+https://nytimes.com/athletic/6308707/2025/04/25/forest-qa-team-news-preview-ahead-of-fa-cup-semi-final-against-manchester-city/
 
-**China Is Weighing Tariff Exemptions on Some U.S. Imports**\
-`An American business group said that Chinese officials had been surveying companies about American products that are crucial to their supply chains.`\
-https://nytimes.com/2025/04/25/business/china-considering-tariff-exemptions.html
+**'Good for us since Day 1': Deadline pickup Kuzmenko is the spark on Kings' offense**\
+`In March, Kuzmenko was traded to his third team of the season. He now has five points in two playoff games.`\
+https://nytimes.com/athletic/6306636/2025/04/25/andrei-kuzmenko-kings-offense-nhl-playoffs/
 
-**Dagenham and Redbridge apologise to director dismissed after Israel-Gaza posts**\
-`Dagenham said Salma Mashhour's dismissal was "in no way an acknowledgment" that she "supports messages of hate and division".`\
-https://nytimes.com/athletic/6308657/2025/04/25/dagenham-and-redbridge-social-media-apology/
+**Browns NFL Draft hub: Picks, grades, fits and scouting reports**\
+`Keeping you up to date on all of Cleveland's selections throughout the three-day draft. `\
+https://nytimes.com/athletic/6302161/2025/04/25/browns-nfl-draft-picks-2025-grades-scouting-reports/
 
-**NHL playoffs daily: Leafs push Sens to brink; Wild, Blues, Panthers win**\
-`After a Game 3 win, Toronto has a chance to be the first team to advance to the second round of the NHL playoffs.`\
-https://nytimes.com/athletic/6306421/2025/04/25/nhl-playoffs-daily-results-panthers-lightning-maple-leafs/
+**At the Time 100 Gala, Fame Came in Many Forms**\
+`In an event that mixed notoriety with earnestness, celebrities like Gayle King and Blake Lively rubbed elbows with athletes and activists.`\
+https://nytimes.com/2025/04/25/style/time100-gala.html
 
-**The Oilers look toast, but it would be a mistake to suggest they're done**\
-`Despite heading to Rogers place down 2-0 in the series, there's still plenty of reasons to believe the Oilers can turn it around.`\
-https://nytimes.com/athletic/6306341/2025/04/25/oilers-nhl-playoffs-slump-kings/
+**Lowetide: Early matchup trends in Kings series and how Edmonton can adjust**\
+`What can coach Kris Knoblauch do in order to win the pivotal next game, and the series?`\
+https://nytimes.com/athletic/6304790/2025/04/25/oilers-kings-series-stats-matchups/
 
-**Rotation no more? Frederik Andersen has seized the Hurricanes' net in the playoffs**\
-`Carolina rode Andersen and Pyotr Kochetkov equally to end the regular season, but the 'even keel' Andersen appears to be the playoff go-to.`\
-https://nytimes.com/athletic/6306333/2025/04/25/frederik-andersen-hurricanes-goalie-rotation/
+**How to Talk to Your Children About Money in These Uncertain Times**\
+`Children may not understand the stock market or inflation, but they can pick up on their parents’ financial worries. Experts offer advice on dealing with the subject.`\
+https://nytimes.com/2025/04/25/your-money/family-finances-children-economic-uncertainty.html
 
-**What I'm hearing about the Islanders' next moves after firing Lou Lamoriello**\
-`The Islanders are searching for a new general manager and maybe team president, depending on how they decide to split the job.`\
-https://nytimes.com/athletic/6305217/2025/04/25/islanders-gm-search-lamoriello/
+**Texas, Texas A&M baseball soap opera is SEC’s underrated contribution to sports nirvana**\
+`Jim Schlossnagle's Horns are ranked No. 1. Former assistant Michael Earley’s Aggies are unranked after starting the season ranked No. 1.`\
+https://nytimes.com/athletic/6305624/2025/04/25/texas-texas-am-baseball-jim-schlossnagle/
 
