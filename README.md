@@ -1,40 +1,40 @@
-**Slot dismisses rumour that Nunez transfer clause is reason for Liverpool omission**\
-`The striker has started only once in Liverpool's last 15 Premier League matches.`\
-https://nytimes.com/athletic/6308639/2025/04/25/darwin-nunez-liverpool-slot/
+**Best available players for the Vikings: Shemar Turner, Nohl Williams**\
+`In Round 1, the Vikings continued to revamp their offensive line. On Day 2, they'll likely look for help on defense or at wide receiver.`\
+https://nytimes.com/athletic/6307728/2025/04/25/vikings-2025-nfl-draft-best-available/
 
-**Hegseth’s Personal Phone Use Created Vulnerabilities, Analysts Say**\
-`The phone number used in the Signal chat could also be found in a variety of places, including on social media and a fantasy sports site.`\
-https://nytimes.com/2025/04/25/us/politics/pete-hegseth-phone-signal.html
+**The Leafs' division title is paying off. Now they have to finish the job**\
+`This season the Leafs picked up their first division title over a full season in over 20 years. So far, they're taking full advantage.`\
+https://nytimes.com/athletic/6307789/2025/04/25/maple-leafs-nhl-playoffs-division-title-senators/
 
-**Putin Keeps Pummeling Ukraine, Convinced Trump Is on His Side**\
-`The concessions offered so far by President Trump fall short of Russia’s stated war aims. But President Vladimir V. Putin appears certain that he has the upper hand in talks.`\
-https://nytimes.com/2025/04/25/world/europe/russia-ukraine-trump.html
+**The Senators’ first playoffs in 8 years feel over before they really began**\
+`Game 2's result still left the Senators confident in their chances against the Maple Leafs. But Game 3 might be the backbreaker.`\
+https://nytimes.com/athletic/6306400/2025/04/25/senators-nhl-playoffs-maple-leafs-game-3/
 
-**A Faithful Throng Pays Last Respects to Pope Francis**\
-`“It meant a lot to me to see him, he gave us so much,” said one woman who waited in line to file past the pontiff’s casket.`\
-https://nytimes.com/2025/04/25/world/europe/francis-pope-funeral.html
+**Seven transfers, led by Cam Ward, are taken in NFL Draft's first round**\
+`The number of transfers selected in the opening round was the second-highest number in the last 10 years.`\
+https://nytimes.com/athletic/6306747/2025/04/25/transfers-2025-nfl-draft/
 
-**NFL Draft best available players for Eagles: Tate Ratledge, Mason Taylor**\
-`The Eagles enter Day 2 with six picks left to use in the draft.`\
-https://nytimes.com/athletic/6306642/2025/04/25/eagles-2025-draft-best-available/
+**NFL Draft best available players for Green Bay: Will Johnson, Donovan Ezeiruaku**\
+`Green Bay went with a receiver in Round 1. Here are some available candidates to fill more needs on Friday and Saturday.`\
+https://nytimes.com/athletic/6307531/2025/04/25/packers-2025-nfl-draft-best-available/
 
-**NFL Draft best available players for Buffalo Bills: Donovan Ezeiruaku, T.J. Sanders**\
-`The Bills still have several needs to fill the in remaining rounds.`\
-https://nytimes.com/athletic/6306620/2025/04/25/bills-2025-draft-best-available/
+**2025 NFL mock draft, Rounds 2 and 3: Shedeur Sanders to Browns, Will Johnson's slide ends**\
+`Ample talent remains on the board headed into Day 2 of the 2025 NFL Draft. How will teams attack Friday night?`\
+https://nytimes.com/athletic/6307889/2025/04/25/nfl-mock-draft-2025-rounds-2-3/
 
-**Brighton's Van Hecke ruled out of West Ham clash with head injury**\
-`The 24-year-old will miss the game due to suffering a head injury in last Saturday's 4-2 defeat at Brentford.`\
-https://nytimes.com/athletic/6308660/2025/04/25/brighton-west-ham-team-news-van-hecke/
+**George Santos to Be Sentenced, and the Real Cost of DOGE’s Cuts**\
+`Plus, the fight over pop hits that celebrate cartels.`\
+https://nytimes.com/2025/04/25/podcasts/the-headlines/george-santos-sentenced-doges-cuts.html
 
-**The New York Times International Edition in Print for Saturday, April 26, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/04/25/todays-new-york-times-international-edition
+**What can we learn from Steph Curry about leadership? Our 4 favorite lessons**\
+`Steph Curry has a unique leadership style that's all his own. After talking to teammates and coaches, these are our favorite takeaways.`\
+https://nytimes.com/athletic/6305603/2025/04/25/what-can-we-learn-from-steph-curry-about-leadership-our-4-favorite-lessons/
 
-**Barcelona's Lewandowski and Balde to miss Copa del Rey final vs Madrid**\
-`Both players are sidelined with hamstring issues sustained earlier this month.`\
-https://nytimes.com/athletic/6304500/2025/04/25/barcelona-lewandowski-balde-copa-del-rey/
+**Children’s Books Go Before the Supreme Court**\
+`The justices will rule on whether parents have a religious right to withdraw their children from class on days when storybooks with gay and transgender themes are discussed.`\
+https://nytimes.com/2025/04/25/podcasts/the-daily/storybooks-supreme-court-case.html
 
-**Air Raids and Antidepressants: Sleep Deprivation Takes a Toll in Ukraine**\
-`Sleep deprivation has become a health crisis in the country, experts and psychologists say. They cite near-nightly drone attacks as one of the major impediments to getting proper rest.`\
-https://nytimes.com/2025/04/25/world/europe/ukraine-sleep-deprivation-russia-war.html
+**Wordle Review No. 1,407**\
+`Scroll down for hints and conversation about the puzzle for Saturday, April 26, 2025.`\
+https://nytimes.com/2025/04/25/crosswords/wordle-review-1407.html
 
