@@ -1,3 +1,11 @@
+**NWSL sets up potential for second division women's soccer league in 2026**\
+`The proposal describes the Division II league as a developmental place for college and younger players`\
+https://nytimes.com/athletic/6309751/2025/04/25/nwsl-division-ii-soccer-league/
+
+**Adrian Peterson arrested on DWI charge hours after Vikings draft party**\
+`Peterson was pulled over in an Audi Q5 for driving 83 miles per hour in a 55 mph zone at 3:20 a.m. local time.`\
+https://nytimes.com/athletic/6309579/2025/04/25/adrian-peterson-dwi-arrest-vikings-draft-party/
+
 **‘Vaguely Threatening’: Federal Prosecutor Queries Leading Medical Journal**\
 `The New England Journal of Medicine received a letter suggesting that it was biased and compromised by external pressure. Other journals have also received the letter.`\
 https://nytimes.com/2025/04/25/health/nejm-prosecutor-letter.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/04/25/us/judgedugancomplaint.html
 **Trump Budget to Take Ax to ‘Radical’ Safety Net Programs**\
 `A draft document outlines steep cuts or the elimination of funding for programs that provide child care, housing assistance, foreign aid and health research.`\
 https://nytimes.com/2025/04/25/us/politics/trump-budget-cuts.html
-
-**NBA playoff trends I'm watching: Thunder's new wrinkle; postseason blast from the past**\
-`The eye test says physicality has increased in these playoffs. So has the number of players hitting the ground each game.`\
-https://nytimes.com/athletic/6309388/2025/04/25/nba-playoff-trends-okc-thunder-physicality-defense/
-
-**Scoop City: Draft takeaways after Day 1, including Travis Hunter's position**\
-`Inside the Jaguars war room, winners and losers from round one and the best players available.`\
-https://nytimes.com/athletic/6309612/2025/04/25/nfl-draft-2025-takeaways-jaguars-browns-falcons-rams-scoop-city/
 
