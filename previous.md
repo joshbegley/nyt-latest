@@ -1,40 +1,40 @@
-**Lions draft DT Tyleik Williams: How he fits, pick grade and scouting intel**\
-`Williams started 25 games across four seasons at Ohio State and was Dan Brugler's No. 5 overall defensive tackle.`\
-https://nytimes.com/athletic/6307392/2025/04/24/tyleik-williams-lions-nfl-draft/
+**What we're hearing about Daniel Farke's future at Leeds United**\
+`Manager Daniel Farke has overseen one of the most dominant campaigns any Leeds team has achieved in its history`\
+https://nytimes.com/athletic/6306142/2025/04/25/daniel-farke-leeds-united-future/
 
-**Ravens NFL Draft hub: Picks, grades, fits and scouting reports**\
-`Keeping you up to date on all of Baltimore's selections throughout the three-day draft. `\
-https://nytimes.com/athletic/6302036/2025/04/24/ravens-nfl-draft-picks-2025-grades-scouting-reports/
+**Where Bruce Lee Practiced on the Roof, a Shrine to Old Hong Kong Rises**\
+`At a formerly grand hotel where the famed martial arts star once stayed, a group of collectors is trying to preserve vestiges of the city’s past as its political identity changes.`\
+https://nytimes.com/2025/04/25/world/asia/hong-kong-museum-nostalgia.html
 
-**'He's our leader': As Panthers take commanding lead, Aleksander Barkov injury looms large**\
-`Florida marched on to beat Tampa Bay after Barkov left with an injury, but is now faced with the uncertainty of his status moving forward.`\
-https://nytimes.com/athletic/6306360/2025/04/24/panthers-aleksander-barkov-injury-nhl-playoffs/
+**Connections: Sports Edition Coach: Hints for April 25, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6304720/2025/04/25/connections-sports-edition-hints-for-april-25-2025/
 
-**Eagles draft LB Jihaad Campbell: How he fits, draft grade and scouting intel**\
-`In his final season at Alabama, Campbell was the team's top defensive player as he led the Crimson Tide in tackles and sacks.`\
-https://nytimes.com/athletic/6264925/2025/04/24/jihaad-campbell-eagles-nfl-draft/
+**They Walked 50 Blocks on Their First Date**\
+`Dr. Jesse Yoon and Yuri Doolan’s meeting was meant to be a casual date, but neither wanted it to end. So, they wandered the city, trading stories of their shared Korean heritage for hours.`\
+https://nytimes.com/2025/04/25/style/jesse-yoon-and-yuri-doolan-wedding.html
 
-**Commanders draft OT Josh Conerly Jr.: How he fits, pick grade and scouting intel**\
-`Conerly played in every game his three seasons at Oregon, including starting all 28 games at left tackle the past two years.`\
-https://nytimes.com/athletic/6273658/2025/04/24/josh-conerly-jr-commanders-nfl-draft/
+**Corrections: April 25, 2025**\
+`Corrections that appeared in print on Friday, April 25, 2025.`\
+https://nytimes.com/2025/04/25/pageoneplus/corrections-april-25-2025.html
 
-**Vikings draft OL Donovan Jackson: How he fits, pick grade and scouting intel**\
-`Jackson started 40 games between left tackle and guard across four seasons with the Buckeyes, including the 2024 national championship.`\
-https://nytimes.com/athletic/6307274/2025/04/24/donovan-jackson-vikings-nfl-draft/
+**For Two Artists, Learning About Each Other Was Their Greatest Project**\
+`Stephanie Duhem, a poet, and Brad Abrahams, a documentary filmmaker, immersed themselves in each other’s creative worlds.`\
+https://nytimes.com/2025/04/25/style/stephanie-duhem-brad-abrahams-wedding.html
 
-**Grizzlies' Ja Morant out for rest of Game 3 with hip injury**\
-`Thunder guard Lu Dort undercut Ja Morant while he was in the air, and Morant hit the floor hard and stayed down for several minutes.`\
-https://nytimes.com/athletic/6307282/2025/04/24/ja-morant-injury-game-3-playoffs-grizzlies-thunder/
+**For New York Nico, a Party at Katz’s Delicatessen With All the Fixings**\
+`Nicolas Heller and Naomi Otsu celebrated their wedding and New York — complete with pastrami sandwiches and his recurring characters.`\
+https://nytimes.com/2025/04/25/style/nicolas-heller-naomi-otsu-wedding.html
 
-**Ravens draft safety Malaki Starks: How he fits, pick grade and scouting intel**\
-`The talented Georgia product was the second-rated safety on The Athletic draft expert Dane Brugler's big board.`\
-https://nytimes.com/athletic/6264576/2025/04/24/malaki-starks-ravens-nfl-draft/
+**Every Love Letter Had Its Rose**\
+`Amy Badia first caught Daniel Naranjo’s attention in pre-K. But it wasn’t until high school that he had the courage to talk to her in person.`\
+https://nytimes.com/2025/04/25/style/amy-badia-daniel-naranjo-wedding.html
 
-**Falcons draft James Pearce Jr.: How he fits, pick grade and scouting intel**\
-`A quick, lean rusher who often lined up out wide at Tennessee, Pearce impressed with his speed at the NFL Scouting Combine in Indianapolis.`\
-https://nytimes.com/athletic/6279055/2025/04/24/james-pearce-jr-faclons-nfl-draft/
+**A Glimpse of Beauty in an Ugly Place**\
+`As a woman working in a men’s high-security prison, I was told not to care about the incarcerated population. But my job was to love.`\
+https://nytimes.com/2025/04/25/style/modern-love-prison-glimpse-of-beauty-in-ugly-place.html
 
-**Quote of the Day: Deadliest Russian Assault on Kyiv in Nearly a Year**\
-`Quotation of the Day for Friday, April 25, 2025.`\
-https://nytimes.com/2025/04/24/pageoneplus/quote-of-the-day-deadliest-russian-assault-on-kyiv-in-nearly-a-year.html
+**Kaprizov, Boldy shine again, Wild chase Golden Knights' goalie in Game 3 victory: Takeaways**\
+`The Wild controlled the game and took a 2-`1 series lead.`\
+https://nytimes.com/athletic/6307349/2025/04/24/wild-golden-knights-game-3/
 

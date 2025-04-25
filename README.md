@@ -1,3 +1,7 @@
+**Chelsea are interested in Huijsen and Guehi - so what happens to glut of centre backs?**\
+`Chelsea already have ten centre-backs and on the hunt for another - so who leaves this summer?`\
+https://nytimes.com/athletic/6304975/2025/04/25/chelsea-huijsen-guehi-branthwaite-transfer-centre-backs/
+
 **What we're hearing about Daniel Farke's future at Leeds United**\
 `Manager Daniel Farke has overseen one of the most dominant campaigns any Leeds team has achieved in its history`\
 https://nytimes.com/athletic/6306142/2025/04/25/daniel-farke-leeds-united-future/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/25/style/amy-badia-daniel-naranjo-wedding.html
 **A Glimpse of Beauty in an Ugly Place**\
 `As a woman working in a men’s high-security prison, I was told not to care about the incarcerated population. But my job was to love.`\
 https://nytimes.com/2025/04/25/style/modern-love-prison-glimpse-of-beauty-in-ugly-place.html
-
-**Kaprizov, Boldy shine again, Wild chase Golden Knights' goalie in Game 3 victory: Takeaways**\
-`The Wild controlled the game and took a 2-`1 series lead.`\
-https://nytimes.com/athletic/6307349/2025/04/24/wild-golden-knights-game-3/
 
