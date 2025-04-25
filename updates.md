@@ -1,3 +1,23 @@
+**Ravens draft safety Malaki Starks: How he fits, pick grade and scouting intel**\
+`The talented Georgia product was the second-rated safety on The Athletic draft expert Dane Brugler's big board.`\
+https://nytimes.com/athletic/6264576/2025/04/24/malaki-starks-ravens-nfl-draft/
+
+**Falcons draft James Pearce Jr.: How he fits, pick grade and scouting intel**\
+`A quick, lean rusher who often lined up out wide at Tennessee, Pearce impressed with his speed at the NFL Scouting Combine in Indianapolis.`\
+https://nytimes.com/athletic/6279055/2025/04/24/james-pearce-jr-faclons-nfl-draft/
+
+**Quote of the Day: Deadliest Russian Assault on Kyiv in Nearly a Year**\
+`Quotation of the Day for Friday, April 25, 2025.`\
+https://nytimes.com/2025/04/24/pageoneplus/quote-of-the-day-deadliest-russian-assault-on-kyiv-in-nearly-a-year.html
+
+**Giants draft QB Jaxson Dart: How he fits, draft grade and scouting intel**\
+`During his time at Ole Miss, Dart set several school records, including most wins by a starting quarterback and most passing yards.`\
+https://nytimes.com/athletic/6269796/2025/04/24/jaxson-dart-giants-nfl-draft/
+
+**How a secret trip to Louisiana convinced the Patriots to draft Will Campbell**\
+`The Patriots' top decision-makers took a top-secret trip to Louisiana for one final look at the guy at the top of their NFL Draft board.`\
+https://nytimes.com/athletic/6307086/2025/04/24/will-campbell-patriots-nfl-draft-lsu-mike-vrabel/
+
 **How a secret trip to Louisiana convinced the Patriots to draft Will Campbell**\
 `The Patriots' top decision-makers took a top-secret trip to Louisiana for one final look at the guy at the top of their NFL draft board.`\
 https://nytimes.com/athletic/6307086/2025/04/24/will-campbell-patriots-nfl-draft-lsu-mike-vrabel/

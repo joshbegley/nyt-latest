@@ -1,3 +1,11 @@
+**Vikings draft OL Donovan Jackson: How he fits, pick grade and scouting intel**\
+`Jackson started 40 games between left tackle and guard across four seasons with the Buckeyes, including the 2024 national championship.`\
+https://nytimes.com/athletic/6307274/2025/04/24/donovan-jackson-vikings-nfl-draft/
+
+**Grizzlies' Ja Morant out for rest of Game 3 with apparent hip injury**\
+`Thunder guard Lu Dort undercut Ja Morant while he was in the air, and Morant hit the floor hard and stayed down for several minutes.`\
+https://nytimes.com/athletic/6307282/2025/04/24/ja-morant-injury-game-3-playoffs-grizzlies-thunder/
+
 **Ravens draft safety Malaki Starks: How he fits, pick grade and scouting intel**\
 `The talented Georgia product was the second-rated safety on The Athletic draft expert Dane Brugler's big board.`\
 https://nytimes.com/athletic/6264576/2025/04/24/malaki-starks-ravens-nfl-draft/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6264669/2025/04/24/omarion-hampton-chargers-nfl-dra
 **Inside Jaguars' blockbuster trade for Travis Hunter in 2025 NFL Draft: 'Let's make history'**\
 `The Jaguars and Browns agreed to terms of the trade 17 days before the NFL Draft, though both sides kept it quiet until Thursday.`\
 https://nytimes.com/athletic/6307043/2025/04/24/nfl-draft-2025-jaguars-travis-hunter-trade/
-
-**Leafs' Simon Benoit plays OT hero, puts Senators on the brink: Game 3 takeaways**\
-`Maple Leafs win second consecutive 3-2 overtime game to take a 3-0 series stranglehold over the Ottawa Senators. `\
-https://nytimes.com/athletic/6306373/2025/04/24/leafs-senators-game-3-nhl-playoffs/
-
-**Steelers draft DT Derrick Harmon: How he fits, pick grade and scouting intel**\
-`Harmon is a defensive tackle who can win in different ways, excelling as a pass rusher while remaining solid against the run. `\
-https://nytimes.com/athletic/6270340/2025/04/24/derrick-harmon-steelers-nfl-draft/
 
