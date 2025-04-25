@@ -1,3 +1,19 @@
+**Trump Administration Reverses Course on Student Visa Cancellations**\
+`The sudden shift came as a reprieve for the more than 1,500 international students who have had their visas canceled in recent weeks.`\
+https://nytimes.com/2025/04/25/us/politics/trump-student-visa-cancellations.html
+
+**A Timeline of the Rise and Fall of George Santos**\
+`The disgraced former congressman’s credentials and career unraveled over several years. Now he has been sentenced to prison.`\
+https://nytimes.com/2025/04/25/nyregion/george-santos-timeline.html
+
+**Book Club: Let’s Talk About Adam Ross’s ‘Playworld’**\
+`This off-kilter coming-of-age novel about one boy growing up in New York in the 1980s is detailed, digressive and capable of tracking the most minute shifts in emotional weather.`\
+https://nytimes.com/2025/04/25/books/review/podcast-adam-ross-playworld-bookclub.html
+
+**Read the F.B.I.’s Charging Document**\
+`The F.B.I. filed this document on Thursday in the case of Judge Hannah Dugan, who was arrested on Friday.`\
+https://nytimes.com/interactive/2025/04/25/us/judgedugancomplaint.html
+
 **Trump Budget to Take Ax to ‘Radical’ Safety Net Programs**\
 `A draft document outlines steep cuts or the elimination of funding for programs that provide child care, housing assistance, foreign aid and health research.`\
 https://nytimes.com/2025/04/25/us/politics/trump-budget-cuts.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/04/25/arts/music/shostakovich-boston-symphony-carnegie.
 **F.D.A. Scientists Are Reinstated at Agency Food Safety Labs**\
 `After 20 percent of the agency’s work force was cut, federal health officials have decided to bring back some experts and review firings to fill gaps in critical roles.`\
 https://nytimes.com/2025/04/25/health/fda-food-safety-trump-layoffs.html
-
-**Aluko apologises to Wright after comments on male pundits in women’s football**\
-`Aluko described the former Arsenal and England striker as a “role model” in a statement posted on Instagram.`\
-https://nytimes.com/athletic/6309591/2025/04/25/eni-aluko-ian-wright-apology/
-
-**Explaining why a Spanish soccer referee broke down at a news conference**\
-`Ricardo de Burgos Bengoetxea will take charge of Saturday's Copa del Rey final between Madrid and Barcelona.`\
-https://nytimes.com/athletic/6309127/2025/04/25/real-madrid-barcelona-de-burgos-referee/
-
-**In Trade War Clash With Washington, China Refuses to Take the Bait**\
-`The Trump administration has been saying that the two countries are engaged in talks to resolve the dispute, but Beijing asserts that no such discussions are happening.`\
-https://nytimes.com/2025/04/25/world/asia/united-states-china-trade-fight.html
-
-**‘Real Women Have Curves’ Is Now a Broadway Show. Here Are 5 Things to Know.**\
-`The new musical is based on Josefina López’s original play and the 2002 film adaptation that starred America Ferrera.`\
-https://nytimes.com/2025/04/25/theater/real-women-have-curves-broadway.html
 
