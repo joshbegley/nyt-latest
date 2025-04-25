@@ -1,3 +1,11 @@
+**Saints draft QB Tyler Shough: How he fits, pick grade and scouting intel**\
+`The 25-year-old is coming off his best season as a starting quarterback, leading Louisville to a 9-4 record.`\
+https://nytimes.com/athletic/6278950/2025/04/25/tyler-shough-saints-nfl-draft/
+
+**Bears draft WR Luther Burden III: How he fits, draft grade and scouting intel**\
+`Burden, a semifinalist for the Biletnikoff Award, joins Ben Johnson and the new-look Bears offense. `\
+https://nytimes.com/athletic/6270160/2025/04/25/luther-burden-iii-bears-nfl-draft/
+
 **Could Mars Be Elon Musk’s Next Business Venture?**\
 `Even as Musk’s work at the Department of Government Efficiency appeared to consume him, his top adviser created a set of companies named Red Planet I, II and III.`\
 https://nytimes.com/2025/04/25/us/politics/elon-musk-mars.html
