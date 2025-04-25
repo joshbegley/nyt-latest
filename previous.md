@@ -1,3 +1,7 @@
+**Warren Moon bestows No. 1 on Cameron Ward as Titans unretire jersey number**\
+`Moon played 10 years with the Oilers and still holds the franchise records in passing yards and touchdowns.`\
+https://nytimes.com/athletic/6309872/2025/04/25/warren-moon-cam-ward-titans-jersey-number/
+
 **Marco Rossi on being dropped to the Wild's fourth line and his uncertain future: 'Always team first'**\
 `Rossi says for now his only focus is on the playoffs, though the demotion could be a sign of the team's future plans for him.`\
 https://nytimes.com/athletic/6309786/2025/04/25/marco-rossi-demotion-wild-future-nhl-playoffs/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/04/25/nyregion/nyc-taliban-najibullah-plea.html
 **USC recruit Alijah Arenas no longer in coma after car crash, family says**\
 `Arenas' family said the 18 year old remains intubated but has shown “significant signs of progress over the last 24 hours.”`\
 https://nytimes.com/athletic/6309717/2025/04/25/alijah-arenas-usc-coma-car-crash-update/
-
-**Oilers to start G Calvin Pickard in Game 3 vs. Kings**\
-`Calvin Pickard has been tabbed to replace Stuart Skinner as the Oilers’ starting goalie.`\
-https://nytimes.com/athletic/6309809/2025/04/25/oilers-game-3-calvin-pickard-nhl-playoffs/
 

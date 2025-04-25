@@ -1,3 +1,7 @@
+**Warren Moon bestows No. 1 on Cameron Ward as Titans unretire jersey number**\
+`Moon played 10 years with the Oilers and still holds the franchise records in passing yards and touchdowns.`\
+https://nytimes.com/athletic/6309872/2025/04/25/warren-moon-cam-ward-titans-jersey-number/
+
 **Marco Rossi on being dropped to the Wild's fourth line and his uncertain future: 'Always team first'**\
 `Rossi says for now his only focus is on the playoffs, though the demotion could be a sign of the team's future plans for him.`\
 https://nytimes.com/athletic/6309786/2025/04/25/marco-rossi-demotion-wild-future-nhl-playoffs/

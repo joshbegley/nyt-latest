@@ -1,3 +1,19 @@
+**Four Perspectives on Trump’s Weak Poll Numbers**\
+`It’s not easy to burn this much good will so fast, and it doesn’t usually get any easier from here.`\
+https://nytimes.com/2025/04/25/upshot/trump-poll-numbers.html
+
+**Voters See Trump’s Use of Power as Overreaching, Times/Siena Poll Finds**\
+`Skepticism has grown of his efforts to expand his authority and of his handling of issues long seen as strengths for him, including the economy and immigration.`\
+https://nytimes.com/2025/04/25/us/politics/trump-poll-approval.html
+
+**Cross-Tabs: April 2025 Times/Siena Poll of Registered Voters Nationwide**\
+`Results of a nationwide New York Times/Siena College poll of 913 registered voters conducted from April 21 to 24, 2025.`\
+https://nytimes.com/interactive/2025/04/25/us/elections/times-siena-poll-crosstabs.html
+
+**Toplines: April 2025 Times/Siena Poll of Registered Voters Nationwide**\
+`Results of a nationwide New York Times/Siena College poll of 913 registered voters conducted from April 21 to 24, 2025.`\
+https://nytimes.com/interactive/2025/04/25/us/elections/times-siena-poll-toplines.html
+
 **Warren Moon bestows No. 1 on Cameron Ward as Titans unretire jersey number**\
 `Moon played 10 years with the Oilers and still holds the franchise records in passing yards and touchdowns.`\
 https://nytimes.com/athletic/6309872/2025/04/25/warren-moon-cam-ward-titans-jersey-number/
@@ -13,24 +29,4 @@ https://nytimes.com/interactive/2025/04/25/upshot/flashback.html
 **NCAA pushes for college player prop bet bans with new licensing agreement**\
 `Financial terms of the new deal were not disclosed, but the agreement could increase NCAA revenue`\
 https://nytimes.com/athletic/6309803/2025/04/25/ncaa-sports-prop-bet-ban-licensing-agreement/
-
-**Lorde Returns With a Nostalgic Breakup Anthem, and 9 More New Songs**\
-`Hear tracks by Haim, Young Thug, Cazzu and others.`\
-https://nytimes.com/2025/04/25/arts/music/playlist-lorde-ariana-grande-young-thug.html
-
-**Who Is the Wisconsin Judge Arrested in Immigration Dispute?**\
-`Milwaukee County Circuit Court Judge Hannah Dugan was elected in 2016. She spent much of her earlier career working on behalf of low-income people and marginalized groups.`\
-https://nytimes.com/2025/04/25/us/judge-hannah-dugan-wisconsin-immigration.html
-
-**Live Q&A: Talking baseball with Eno Sarris on Friday 4/25 at 3 p.m. ET**\
-`Submit your fantasy baseball questions for Eno Sarris' latest live chat. `\
-https://nytimes.com/athletic/6306261/2025/04/25/sarris-live-chat-mlb-fantasy-baseball-4-25/
-
-**Taliban Leader Pleads Guilty to Taking American Journalist Hostage**\
-`Haji Najibullah’s plea was heard in a civilian court in Manhattan. He helped abduct David Rohde, then a New York Times reporter, in Afghanistan in 2008.`\
-https://nytimes.com/2025/04/25/nyregion/nyc-taliban-najibullah-plea.html
-
-**USC recruit Alijah Arenas no longer in coma after car crash, family says**\
-`Arenas' family said the 18 year old remains intubated but has shown “significant signs of progress over the last 24 hours.”`\
-https://nytimes.com/athletic/6309717/2025/04/25/alijah-arenas-usc-coma-car-crash-update/
 
