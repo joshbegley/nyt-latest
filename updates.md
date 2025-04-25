@@ -1,3 +1,7 @@
+**Chelsea are interested in Huijsen and Guehi - so what happens to glut of centre backs?**\
+`Chelsea already have ten centre-backs and on the hunt for another - so who leaves this summer?`\
+https://nytimes.com/athletic/6304975/2025/04/25/chelsea-huijsen-guehi-branthwaite-transfer-centre-backs/
+
 **What we're hearing about Daniel Farke's future at Leeds United**\
 `Manager Daniel Farke has overseen one of the most dominant campaigns any Leeds team has achieved in its history`\
 https://nytimes.com/athletic/6306142/2025/04/25/daniel-farke-leeds-united-future/
