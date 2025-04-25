@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6273658/2025/04/24/josh-conerly-jr-commanders-nfl-d
 `Jackson started 40 games between left tackle and guard across four seasons with the Buckeyes, including the 2024 national championship.`\
 https://nytimes.com/athletic/6307274/2025/04/24/donovan-jackson-vikings-nfl-draft/
 
-**Grizzlies' Ja Morant out for rest of Game 3 with apparent hip injury**\
+**Grizzlies' Ja Morant out for rest of Game 3 with hip injury**\
 `Thunder guard Lu Dort undercut Ja Morant while he was in the air, and Morant hit the floor hard and stayed down for several minutes.`\
 https://nytimes.com/athletic/6307282/2025/04/24/ja-morant-injury-game-3-playoffs-grizzlies-thunder/
 
