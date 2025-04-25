@@ -1,3 +1,19 @@
+**Dagenham and Redbridge apologise to director dismissed after Israel-Gaza posts**\
+`Dagenham said Salma Mashhour's dismissal was "in no way an acknowledgment" that she "supports messages of hate and division".`\
+https://nytimes.com/athletic/6308657/2025/04/25/dagenham-and-redbridge-social-media-apology/
+
+**NHL playoffs daily: Leafs push Sens to brink; Wild, Blues, Panthers win**\
+`After a Game 3 win, Toronto has a chance to be the first team to advance to the second round of the NHL playoffs.`\
+https://nytimes.com/athletic/6306421/2025/04/25/nhl-playoffs-daily-results-panthers-lightning-maple-leafs/
+
+**49ers NFL Draft hub: Picks, grades, fits and scouting reports**\
+`Keep coming back throughout the draft for grades and expert analysis of each 49ers pick.`\
+https://nytimes.com/athletic/6299432/2025/04/25/49ers-nfl-draft-picks-2025-grades-scouting-reports/
+
+**Raiders NFL Draft hub: Picks, grades, fits and scouting reports**\
+`Keep coming back throughout the draft for grades and expert analysis of each Raiders pick.`\
+https://nytimes.com/athletic/6287651/2025/04/25/raiders-nfl-draft-picks-2025-grades-scouting-reports/
+
 **The Oilers look toast, but it would be a mistake to suggest they're done**\
 `Despite heading to Rogers place down 2-0 in the series, there's still plenty of reasons to believe the Oilers can turn it around.`\
 https://nytimes.com/athletic/6306341/2025/04/25/oilers-nhl-playoffs-slump-kings/
