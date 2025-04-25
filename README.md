@@ -1,3 +1,7 @@
+**Raiders draft RB Ashton Jeanty: How he fits, pick grade and scouting intel**\
+`The Heisman Trophy runner-up led the FBS with 397 touches and 2,601 rushing yards as a junior, while scoring 30 touchdowns.`\
+https://nytimes.com/athletic/6264910/2025/04/24/ashton-jeanty-raiders-nfl-draft/
+
 **Browns draft DT Mason Graham: How he fits, draft grade and scouting intel**\
 `Graham is the top defensive tackle in Dane Brugler's "The Beast" and was a vital part of Michigan's national championship-winning defense.`\
 https://nytimes.com/athletic/6267320/2025/04/24/mason-graham-browns-nfl-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6303903/2025/04/24/nfl-draft-pick-by-pick-tracker-2
 **Titans draft Miami QB Cam Ward at No. 1: How he fits, pick grade and scouting intel**\
 `Ward, a fifth-year senior, turned heads and ascended to the top of the draft board following his historic lone season with the Hurricanes.`\
 https://nytimes.com/athletic/6285128/2025/04/24/cam-ward-titans-nfl-draft/
-
-**Forced Labor Taints Brazilian Coffee, Say Complaints to U.S. Authorities**\
-`Two legal actions seeking U.S. government intervention say that some of the coffee bought by major American retailers is harvested in conditions that amount to slavery.`\
-https://nytimes.com/2025/04/24/world/americas/brazil-coffee-slave-labor.html
 
