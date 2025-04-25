@@ -1,3 +1,7 @@
+**Too Big to Tariff?**\
+`Washington and Beijing increasingly look likely to de-escalate their trade war. But the economic damage and ongoing uncertainty may persist for a while.`\
+https://nytimes.com/2025/04/25/business/dealbook/tariffs-trade-war-exceptions.html
+
 **Grizzlies shellshocked by Ja Morant’s ‘frustrating’ hip injury, Thunder's 29-point comeback**\
 `Through 21 minutes of Game 3, the Grizzlies felt like things were finally going their way. Then everything came crashing down.`\
 https://nytimes.com/athletic/6308614/2025/04/25/ja-morant-injury-grizzlies-loss-thunder/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6306153/2025/04/25/nwsl-players-fertility-treatment
 **Nebraska GM Pat Stewart offers another reminder how much the college game has changed**\
 `In a 20-minute interview session, one Stewart answer after another seemed to eradicate the innocence of collegiate athletics.`\
 https://nytimes.com/athletic/6306245/2025/04/25/nebraska-gm-pat-stewart-nil-transfer/
-
-**Meet Seth Jarvis' mini-me — a 12-year-old whose costume became a viral tradition at Hurricanes games**\
-`“He nailed it pretty good,” says no less an authority than Jarvis himself. “He got the greasy mustache. He got the cut off.”`\
-https://nytimes.com/athletic/6305858/2025/04/25/viral-seth-jarvis-costume-hurricanes-games/
 
