@@ -1,3 +1,7 @@
+**The Eagles traded up for a defensive weapon in Jihaad Campbell. Just don't put him in a box.**\
+`The Eagles got aggressive to get the player they wanted.`\
+https://nytimes.com/athletic/6306905/2025/04/25/eagles-2025-nfl-draft-trade-jihaad-campbell/
+
 **Special report: Turki Al-Sheikh and the two sides of boxing’s new king**\
 `Turki Al-Sheikh has risen from obscurity to the heart of two historic institutions, but who is he really? We spent six months finding out`\
 https://nytimes.com/athletic/6298589/2025/04/25/turki-al-sheikh-boxing-saudi-arabia/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6308041/2025/04/25/steelers-shedeur-sanders-derrick
 **One big bet, two big swings: Falcons land Jalon Walker, James Pearce Jr. in first round**\
 `"Two of the better rushers in the SEC — that's exciting, that's really exciting," Atlanta general manager Terry Fontenot said.`\
 https://nytimes.com/athletic/6307780/2025/04/25/falcons-nfl-draft-jalon-walker-james-pearce-jr/
-
-**Why the Chiefs believe they got a steal in QB protector Josh Simmons**\
-`Shoring up the offensive line in front of Patrick Mahomes was the top priority for the Chiefs, and they may have landed a long-term starter.`\
-https://nytimes.com/athletic/6308205/2025/04/25/chiefs-josh-simmons-patrick-mahomes/
 
