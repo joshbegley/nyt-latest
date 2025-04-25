@@ -1,3 +1,19 @@
+**Smith: Wild found formula to 'frustrate' Golden Knights, take lead in series**\
+`The Wild are deservedly in the driver's seat, holding a 2-1 lead in the best-of-seven series with the Vegas Golden Knights.`\
+https://nytimes.com/athletic/6308263/2025/04/25/wild-game-3-win-nhl-playoffs/
+
+**Dalot could miss rest of season with calf injury, says Amorim**\
+`Head coach Amorim did say that Amad and Matthijs De Ligt are "near" returning from their injury issues.`\
+https://nytimes.com/athletic/6309079/2025/04/25/diogo-dalot-manchester-united-injury-update/
+
+**MSG Networks reduces Knicks, Rangers media rights fees in renegotiations**\
+`The Knicks and Rangers were set to receive roughly $180 million in rights fees this year.`\
+https://nytimes.com/athletic/6309031/2025/04/25/knicks-rangers-msg-networks-debt/
+
+**China Is Weighing Tariff Exemptions on Some U.S. Imports**\
+`An American business group said that Chinese officials had been surveying companies about American products that are crucial to their supply chains.`\
+https://nytimes.com/2025/04/25/business/china-considering-tariff-exemptions.html
+
 **Dagenham and Redbridge apologise to director dismissed after Israel-Gaza posts**\
 `Dagenham said Salma Mashhour's dismissal was "in no way an acknowledgment" that she "supports messages of hate and division".`\
 https://nytimes.com/athletic/6308657/2025/04/25/dagenham-and-redbridge-social-media-apology/
