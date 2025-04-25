@@ -1,3 +1,15 @@
+**Tranmere midfielder given 13-match ban for homophobic slur**\
+`It is his third "aggravated breach" and his second offence of using language regarding "sexual orientation."`\
+https://nytimes.com/athletic/6309433/2025/04/25/sam-finley-ban-homophobic/
+
+**Car Bomb Kills Russian General in Moscow Suburb**\
+`The Investigative Committee of Russia identified the man killed as as Lt. Gen. Yaroslav Moskalik, a senior figure in the Russian military. Video from the scene showed flames erupting from a car after the explosion.`\
+https://nytimes.com/video/world/europe/100000010130488/car-bomb-kills-russian-military-general-in-moscow-suburb.html
+
+**Trump Budget Draft Ends Narcan Program and Other Addiction Measures**\
+`A $56 million grant to train emergency responders and supply them with the overdose reversal spray, plus other programs that address addiction, could be eliminated.`\
+https://nytimes.com/2025/04/25/health/narcan-grants-cuts-kennedy.html
+
 **Offseason Canucks depth chart: Trade chips, roster holes, free agents and more**\
 `The Canucks have some major gaps in the lineup that will need to be creatively and effectively filled.`\
 https://nytimes.com/athletic/6308575/2025/04/25/canucks-depth-chart-offseason-2025/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6309383/2025/04/25/arsenal-lyon-uwcl-wubben-moy-van
 **Standing With History to Say Goodbye**\
 `As a reporter, I often observe from a press box or the sidelines. This time, I decided to join the masses.`\
 https://nytimes.com/2025/04/25/world/europe/pope-funeral-coffin.html
-
-**Shedeur Sanders on falling out of first round: 'Tomorrow is the day'**\
-`"Under no circumstance, we all know this shouldn’t have happened," Sanders said about his slide.`\
-https://nytimes.com/athletic/6309279/2025/04/25/shedeur-sanders-first-round-slip/
-
-**Farke 'not surprised' by speculation on his Leeds future: 'It's nothing new'**\
-`The German’s contract expires in 2027 but national newspapers have reported the club has given thought to sacking him.`\
-https://nytimes.com/athletic/6309263/2025/04/25/daniel-farke-leeds-future/
-
-**It’s Teriyaki Time**\
-`Make this five-star recipe for Seattle-style chicken teriyaki, or make the sauce to gloss over whatever you’d like.`\
-https://nytimes.com/2025/04/25/dining/best-chicken-teriyaki-recipe.html
 
