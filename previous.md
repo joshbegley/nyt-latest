@@ -1,8 +1,12 @@
+**Francis Wanted a Church of the Poor and Put It Into Practice**\
+`Around St. Peter’s Square, the pope offered services to the homeless and migrants, in ways that often did not go down well with his fellow clerics.`\
+https://nytimes.com/2025/04/25/world/europe/francis-poor.html
+
 **Crystals on Crocs and Too-Tight Suits: the N.F.L. Draft Delivers**\
 `A new wave of college players enters professional football with branding deals in place and fashion on their minds.`\
 https://nytimes.com/2025/04/25/style/nfl-draft-fashion.html
 
-**Trump Claims He’s Spoken With Xi Jinping. China Says Otherwise.**\
+**Trump Claims He’s Negotiating With China on Trade. China Says Otherwise.**\
 `President Trump said “we’re meeting with China” on tariffs, comments aimed at soothing jittery financial markets. But Chinese officials say no talks have taken place.`\
 https://nytimes.com/2025/04/25/us/politics/trump-china-tariffs-xi-jinping.html
 
@@ -32,9 +36,5 @@ https://nytimes.com/athletic/6303276/2025/04/25/giannis-antetokounmpo-bucks-game
 
 **Steve Ballmer built the Intuit Dome for playoff moments. He got one Thursday**\
 `The Clippers' first playoff game at their $2 billion arena was just about perfect.`\
-https://nytimes.com/athletic/6308481/2025/04/25/inuit-dome-clippers-nba-playoffs-steve-ballmer/
-
-**Cardinal Accused of Hiding Priest Sex Abuse Will Help Close Pope Francis’ Casket**\
-`Cardinal Roger M. Mahony, who was accused of covering up cases of abuse as archbishop of Los Angeles, will have an official role in the ceremonies around Francis’ funeral.`\
-https://nytimes.com/2025/04/25/us/cardinal-roger-mahony-pope-francis-funeral.html
+https://nytimes.com/athletic/6308481/2025/04/25/intuit-dome-clippers-nba-playoffs-steve-ballmer/
 
