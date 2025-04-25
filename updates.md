@@ -1,3 +1,11 @@
+**Grizzlies' Ja Morant out for rest of Game 3 with hip injury**\
+`Thunder guard Lu Dort undercut Ja Morant while he was in the air, and Morant hit the floor hard and stayed down for several minutes.`\
+https://nytimes.com/athletic/6307282/2025/04/24/ja-morant-injury-game-3-playoffs-grizzlies-thunder/
+
+**Packers draft WR Matthew Golden: How he fits, pick grade and scouting intel**\
+`The Texas wide receiver posted the second-fastest 40-yard dash time at February's NFL Scouting Combine.`\
+https://nytimes.com/athletic/6268123/2025/04/24/matthew-golden-packers-nfl-draft/
+
 **Commanders draft OT Josh Conerly Jr.: How he fits, pick grade and scouting intel**\
 `Conerly played in every game his three seasons at Oregon, including starting all 28 games at left tackle the past two years.`\
 https://nytimes.com/athletic/6273658/2025/04/24/josh-conerly-jr-commanders-nfl-draft/
