@@ -1,3 +1,15 @@
+**Too Big to Tariff?**\
+`Washington and Beijing increasingly look likely to de-escalate their trade war. But the economic damage and ongoing uncertainty may persist for a while.`\
+https://nytimes.com/2025/04/25/business/dealbook/tariffs-trade-war-exceptions.html
+
+**Grizzlies shellshocked by Ja Morant’s ‘frustrating’ hip injury, Thunder's 29-point comeback**\
+`Through 21 minutes of Game 3, the Grizzlies felt like things were finally going their way. Then everything came crashing down.`\
+https://nytimes.com/athletic/6308614/2025/04/25/ja-morant-injury-grizzlies-loss-thunder/
+
+**Row Z: Potter cries conspiracy, farewell Riza and the FIFA jamboree on Channel 5**\
+`Our weekly look at the absurd side of the game also takes in Chelsea's daily spend and how clubs react to Premier League relegation`\
+https://nytimes.com/athletic/6308682/2025/04/25/potter-riza-fifa-chelsea-row-z/
+
 **The Pulse: A beautifully chaotic NFL Draft begins**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6305524/2025/04/25/nfl-draft-first-round-travis-hunter-the-pulse/
