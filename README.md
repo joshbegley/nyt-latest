@@ -1,3 +1,7 @@
+**Kaprizov, Boldy shine again, Wild chase Golden Knights' goalie in Game 3 victory: Takeaways**\
+`The Wild controlled the game and took a 2-`1 series lead.`\
+https://nytimes.com/athletic/6307349/2025/04/24/wild-golden-knights-game-3/
+
 **Lions draft DT Tyleik Williams: How he fits, pick grade and scouting intel**\
 `Williams started 25 games across four seasons at Ohio State and was Dan Brugler's No. 5 overall defensive tackle.`\
 https://nytimes.com/athletic/6307392/2025/04/24/tyleik-williams-lions-nfl-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6264576/2025/04/24/malaki-starks-ravens-nfl-draft/
 **Falcons draft James Pearce Jr.: How he fits, pick grade and scouting intel**\
 `A quick, lean rusher who often lined up out wide at Tennessee, Pearce impressed with his speed at the NFL Scouting Combine in Indianapolis.`\
 https://nytimes.com/athletic/6279055/2025/04/24/james-pearce-jr-faclons-nfl-draft/
-
-**Quote of the Day: Deadliest Russian Assault on Kyiv in Nearly a Year**\
-`Quotation of the Day for Friday, April 25, 2025.`\
-https://nytimes.com/2025/04/24/pageoneplus/quote-of-the-day-deadliest-russian-assault-on-kyiv-in-nearly-a-year.html
 

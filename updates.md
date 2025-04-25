@@ -1,3 +1,11 @@
+**Lions draft DT Tyleik Williams: How he fits, pick grade and scouting intel**\
+`Williams started 25 games across four seasons at Ohio State and was Dan Brugler's No. 5 overall defensive tackle.`\
+https://nytimes.com/athletic/6307392/2025/04/24/tyleik-williams-lions-nfl-draft/
+
+**Ravens NFL Draft hub: Picks, grades, fits and scouting reports**\
+`Keeping you up to date on all of Baltimore's selections throughout the three-day draft. `\
+https://nytimes.com/athletic/6302036/2025/04/24/ravens-nfl-draft-picks-2025-grades-scouting-reports/
+
 **'He's our leader': As Panthers take commanding lead, Aleksander Barkov injury looms large**\
 `Florida marched on to beat Tampa Bay after Barkov left with an injury, but is now faced with the uncertainty of his status moving forward.`\
 https://nytimes.com/athletic/6306360/2025/04/24/panthers-aleksander-barkov-injury-nhl-playoffs/
