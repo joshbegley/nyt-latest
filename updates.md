@@ -1,3 +1,7 @@
+**NBA playoff trends I'm watching: Thunder's new wrinkle; postseason blast from the past**\
+`The eye test says physicality has increased in these playoffs. So has the number of players hitting the ground each game.`\
+https://nytimes.com/athletic/6309388/2025/04/25/nba-playoff-trends-okc-thunder-physicality-defense/
+
 **Scoop City: Draft takeaways after Day 1, including Travis Hunter's position**\
 `Inside the Jaguars war room, winners and losers from round one and the best players available.`\
 https://nytimes.com/athletic/6309612/2025/04/25/nfl-draft-2025-takeaways-jaguars-browns-falcons-rams-scoop-city/
