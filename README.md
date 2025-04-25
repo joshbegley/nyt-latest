@@ -1,3 +1,15 @@
+**Browns draft DT Mason Graham: How he fits, draft grade and scouting intel**\
+`Graham is the top defensive tackle in Dane Brugler's "The Beast" and was a vital part of Michigan's national championship-winning defense.`\
+https://nytimes.com/athletic/6267320/2025/04/24/mason-graham-browns-nfl-draft/
+
+**Giants NFL Draft hub: Picks, grades, fits and scouting reports**\
+`Keep coming back throughout the draft for grades and expert analysis of each Giants pick.`\
+https://nytimes.com/athletic/6290564/2025/04/24/giants-nfl-draft-picks-2025-grades-scouting-reports/
+
+**Patriots draft OT Will Campbell: How he fits, draft grade and scouting intel**\
+`Campbell was one of the most decorated offensive linemen in LSU history and the top offensive tackle on Dane Brugler's draft board.`\
+https://nytimes.com/athletic/6270843/2025/04/24/will-campbell-patriots-nfl-draft/
+
 **Trump Executive Order Eases Firing of Probationary Federal Workers**\
 `The order declares that employees will only attain full employment status if their managers review and sign off on their performance, adding a new obstacle for probationary workers to clear.`\
 https://nytimes.com/2025/04/24/us/politics/trump-executive-order-federal-workers.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6285128/2025/04/24/cam-ward-titans-nfl-draft/
 **Forced Labor Taints Brazilian Coffee, Say Complaints to U.S. Authorities**\
 `Two legal actions seeking U.S. government intervention say that some of the coffee bought by major American retailers is harvested in conditions that amount to slavery.`\
 https://nytimes.com/2025/04/24/world/americas/brazil-coffee-slave-labor.html
-
-**2025 NFL Draft fantasy football spin: Winners, losers, analysis**\
-`Jake Ciely tracks all the skill position picks in the 2025 NFL Draft, offering his analysis and fantasy football spin along the way.`\
-https://nytimes.com/athletic/6287424/2025/04/24/2025-nfl-draft-fantasy-football-spin-winners-losers-analysis/
-
-**Florida Democratic Party Is ‘Dead,’ State Senator Says as He Leaves It**\
-`State Senator Jason Pizzo, the Democratic minority leader, announced in a floor speech that he was leaving the party.`\
-https://nytimes.com/2025/04/24/us/pizzo-florida-democratic-party.html
-
-**Texas Judge Unseals ICE Document Detailing Deportation Notices: an English Form and at Least 12 Hours**\
-`A declaration by an ICE official says an English-language form was “read and explained” to the detainees and that they had “no less than 12 hours” to express the intent to challenge their deportations.`\
-https://nytimes.com/2025/04/24/us/politics/deportations-ice-document-venezuelan-migrants.html
 
