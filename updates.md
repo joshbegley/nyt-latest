@@ -1,3 +1,19 @@
+**Leafs' Simon Benoit plays OT hero, puts Senators on the brink: Game 3 takeaways**\
+`Maple Leafs win second consecutive 3-2 overtime game to take a 3-0 series stranglehold over the Ottawa Senators . `\
+https://nytimes.com/athletic/6306373/2025/04/24/leafs-senators-game-3-nhl-playoffs/
+
+**Steelers draft DT Derrick Harmon: How he fits, pick grade and scouting intel**\
+`Harmon is a defensive tackle who can win in different ways, excelling as a pass rusher while remaining solid against the run. `\
+https://nytimes.com/athletic/6270340/2025/04/24/derrick-harmon-steelers-nfl-draft/
+
+**NBA playoff takeaways: Knicks edge Pistons in chippy Game 3**\
+`Karl-Anthony Towns paced New York with 31 points in the win.`\
+https://nytimes.com/athletic/6306708/2025/04/24/nba-playoff-knicks-pistons-thunder-grizzlies-nuggets-clippers/
+
+**Broncos draft CB Jahdae Barron: How he fits, pick grade and scouting intel**\
+`A consensus All-American, Barron posted career bests in interceptions (five) and passes defended (16) last season at Texas.`\
+https://nytimes.com/athletic/6273764/2025/04/24/jahdae-barron-broncos-nfl-draft/
+
 **Clay Matthews, invoking Donald Trump, trolls Bears at NFL Draft**\
 `Matthews' joke quickly became the latest notable moment of trolling rival teams at the draft.`\
 https://nytimes.com/athletic/6306705/2025/04/24/trump-clay-matthews-bears-nfl-draft-2025/

@@ -1,3 +1,19 @@
+**Leafs' Simon Benoit plays OT hero, puts Senators on the brink: Game 3 takeaways**\
+`Maple Leafs win second consecutive 3-2 overtime game to take a 3-0 series stranglehold over the Ottawa Senators . `\
+https://nytimes.com/athletic/6306373/2025/04/24/leafs-senators-game-3-nhl-playoffs/
+
+**Steelers draft DT Derrick Harmon: How he fits, pick grade and scouting intel**\
+`Harmon is a defensive tackle who can win in different ways, excelling as a pass rusher while remaining solid against the run. `\
+https://nytimes.com/athletic/6270340/2025/04/24/derrick-harmon-steelers-nfl-draft/
+
+**NBA playoff takeaways: Knicks edge Pistons in chippy Game 3**\
+`Karl-Anthony Towns paced New York with 31 points in the win.`\
+https://nytimes.com/athletic/6306708/2025/04/24/nba-playoff-knicks-pistons-thunder-grizzlies-nuggets-clippers/
+
+**Broncos draft CB Jahdae Barron: How he fits, pick grade and scouting intel**\
+`A consensus All-American, Barron posted career bests in interceptions (five) and passes defended (16) last season at Texas.`\
+https://nytimes.com/athletic/6273764/2025/04/24/jahdae-barron-broncos-nfl-draft/
+
 **Clay Matthews, invoking Donald Trump, trolls Bears at NFL Draft**\
 `Matthews' joke quickly became the latest notable moment of trolling rival teams at the draft.`\
 https://nytimes.com/athletic/6306705/2025/04/24/trump-clay-matthews-bears-nfl-draft-2025/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6306875/2025/04/24/cam-ward-titans-quarterback-no-1
 **Bengals draft edge Shemar Stewart: How he fits, draft grade and scouting intel**\
 `The ultimate traits-versus-production prospect, Stewart is one of the best athletes we've seen, but his production at Texas A&M was limited.`\
 https://nytimes.com/athletic/6279804/2025/04/24/shemar-stewart-bengals-nfl-draft/
-
-**Review: Gilbert and Sullivan’s ‘Pirates,’ Now in Jazzy New Orleans**\
-`A Broadway remake of the operetta, starring David Hyde Pierce, moves the plot to the Big Easy, where good times roll, even if some jokes don’t quite land.`\
-https://nytimes.com/2025/04/24/theater/pirates-penzance-musical-review.html
-
-**Quick Shots**\
-`Adrian Johnson is quite a stacker of words.`\
-https://nytimes.com/2025/04/24/crosswords/daily-puzzle-2025-04-25.html
-
-**Aleksander Barkov injured as Panthers edge Lightning to take 2-0 series lead: Takeaways**\
-`Barkov left in the third and did not return after taking a hit from Brandon Hagel, who was a assessed a five-minute interference penalty.`\
-https://nytimes.com/athletic/6306601/2025/04/24/panthers-lightning-nhl-playoffs-2025-game-2-takeaways/
-
-**Cardinals draft DT Walter Nolen: How he fits, pick grade and scouting intel**\
-`Nolen had a breakout year with Ole Miss, contributing to one of the best pass-rushing units in the FBS last year. `\
-https://nytimes.com/athletic/6273053/2025/04/24/walter-nolen-cardinals-nfl-draft/
 
