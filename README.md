@@ -1,40 +1,40 @@
+**Why Cowboys think they might have their next Zack Martin in Tyler Booker**\
+`What drew the Cowboys to Booker, who is expected to start at right guard? “You see it on the tape, No. 1," Will McClay said.`\
+https://nytimes.com/athletic/6308346/2025/04/25/cowboys-tyler-booker-first-round-zack-martin-comparison/
+
+**With Omarion Hampton pick, Chargers move toward fulfilling Harbaugh's run-game promise**\
+`The North Carolina running back joins free agent signing Najee Harris in a remade Los Angeles backfield. `\
+https://nytimes.com/athletic/6308412/2025/04/25/chargers-omarion-hampton-jim-harbaugh-run-game/
+
+**FA Cup semi-final odds: Sarr and Elanga the keys to upset wins?**\
+`Sam Tighe has a look at the best bets around this weekend’s FA Cup semi-finals. `\
+https://nytimes.com/athletic/6304691/2025/04/25/fa-cup-semi-final-betting-predictions-tips-odds/
+
+**George Santos, Expelled From House, Now Faces Sentencing**\
+`Federal prosecutors want Mr. Santos, whose pattern of lies and fraud led to his expulsion from Congress, to be sentenced to 87 months in prison.`\
+https://nytimes.com/2025/04/25/nyregion/george-santos-sentencing-prison.html
+
+**Snapshots of the Seasons in One of New York City’s Last Wild Places**\
+`An abandoned rail line in central Queens may or may not be the city’s next tourist destination.`\
+https://nytimes.com/2025/04/25/nyregion/nyc-abandoned-railroad-tracks-queens.html
+
+**He’s a Foe of D.E.I. in Schools but Not a Fan of Trump’s Crusade**\
+`Steven Wilson was forced out of the charter school network he started for an essay that conflicted with antiracism initiatives. Five years later, he feels both vindicated and dismayed.`\
+https://nytimes.com/2025/04/25/nyregion/steven-wilson-trump-dei.html
+
+**Climbing Out of Flames**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2025/04/25/learning/climbing-out-of-flames.html
+
+**In Microplastics, a Reporter Sees the Big Picture**\
+`Researchers are just beginning to understand how microplastics might be affecting human health. A Reporter visited a lab to observe some of the work.`\
+https://nytimes.com/2025/04/25/insider/microplastics-reporting.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/04/25/crosswords/spelling-bee-forum.html
+
 **Tyleik Williams is nimble, instinctive and a prototypical Lions draft pick**\
 `The Lions, impressed by Williams' skills, football IQ and get-to-work mindset, took him at No. 28 in Thursday's first round.`\
 https://nytimes.com/athletic/6308222/2025/04/25/lions-tyleik-williams-nfl-draft/
-
-**The Eagles traded up for a defensive weapon in Jihaad Campbell. Just don't put him in a box.**\
-`The Eagles got aggressive to get the player they wanted.`\
-https://nytimes.com/athletic/6306905/2025/04/25/eagles-2025-nfl-draft-trade-jihaad-campbell/
-
-**Special report: Turki Al-Sheikh and the two sides of boxing’s new king**\
-`Turki Al-Sheikh has risen from obscurity to the heart of two historic institutions, but who is he really? We spent six months finding out`\
-https://nytimes.com/athletic/6298589/2025/04/25/turki-al-sheikh-boxing-saudi-arabia/
-
-**Why drafting Tyler Warren was easiest call Colts' Chris Ballard has made since Quenton Nelson**\
-`Ballard knew there was something special about Warren after seeing what he did versus USC last year. "He's got the best hands in the draft."`\
-https://nytimes.com/athletic/6308199/2025/04/25/colts-nfl-draft-2025-tyler-warren-chris-ballard/
-
-**Browns' trade-down is all about making yet another run at a franchise QB in 2026**\
-`Travis Hunter would’ve looked great in a Browns jersey, but adding a first-rounder next year gives Cleveland a shot at a top quarterback.`\
-https://nytimes.com/athletic/6308157/2025/04/25/browns-trade-nfl-draft-mason-graham/
-
-**Packers finally draft first-round WR, Matthew Golden, in iconic Green Bay scene**\
-`For the first time since 2002, the Packers drafted a wide receiver in the first round: Texas' Matthew Golden.`\
-https://nytimes.com/athletic/6308261/2025/04/25/packers-nfl-draft-first-round-wide-receiver-matthew-golden/
-
-**Why corner Jahdae Barron 'was too unique' to pass up for the Broncos**\
-`General manager George Paton said "you can't have enough cover guys," especially in a division with Patrick Mahomes.`\
-https://nytimes.com/athletic/6308028/2025/04/25/broncos-nfl-draft-jahdae-barron/
-
-**The Ravens' worst-kept draft secret: Malaki Starks won them over**\
-`The Georgia safety wowed team brass at the NFL combine, and everyone seemed to know it.`\
-https://nytimes.com/athletic/6308138/2025/04/25/malaki-starks-baltimore-ravens-draft/
-
-**The Cardinals draft Walter Nolen, a DT who's still learning how good he can be**\
-`The Ole Miss product fits the team's desire to rebuild through the trenches`\
-https://nytimes.com/athletic/6307898/2025/04/25/the-cardinals-draft-walter-nolen-a-defensive-tackle-whos-still-learning-just-how-good-he-can-be/
-
-**Why the Steelers passed on Shedeur Sanders for Derrick Harmon, and what might come next**\
-`The Steelers couldn't pass up a chance to add a multidimensional D-lineman in Round 1. Could Sanders still be in their plans?`\
-https://nytimes.com/athletic/6308041/2025/04/25/steelers-shedeur-sanders-derrick-harmon-nfl-draft/
 
