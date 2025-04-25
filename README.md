@@ -1,3 +1,7 @@
+**David Briggs, a Music Force in Alabama and Nashville, Dies at 82**\
+`A first-call keyboardist, he worked with Elvis Presley and Dolly Parton, helped make Muscle Shoals a recording hub, and had a key role in redefining the sound of country.`\
+https://nytimes.com/2025/04/25/arts/music/david-briggs-dead.html
+
 **Cubs had offseason trade in place for Jesús Luzardo, but backed out due to medical concerns: Sources**\
 `The lefty, who was later dealt by the Marlins to the Phillies, will face the Cubs on Saturday at Wrigley Field.`\
 https://nytimes.com/athletic/6310063/2025/04/25/jesus-luzardo-phillies-cubs-marlins-trade-medical/
@@ -22,7 +26,7 @@ https://nytimes.com/2025/04/25/nyregion/ayden-wolfe-child-abuser-sentence.html
 `The 40-year-old turned down multiple approaches from Premier League clubs to commit to the Ligue 1 side.`\
 https://nytimes.com/athletic/6310012/2025/04/25/liam-rosenior-strasbourg-contract-blueco/
 
-**'I'm not f------ around:' Herro fires back after Garland's remark on defense**\
+**'I'm not f---ing around:' Herro fires back after Garland's remark on defense**\
 `After Garland said the Cavaliers' strategy was to pick on him, Herro said Somebody that doesn’t play defense shouldn’t be talking either."`\
 https://nytimes.com/athletic/6309871/2025/04/25/tyler-herro-darius-garland-defense-comments/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/25/us/politics/pakistan-kashmir-terror-attack.html
 **Man Is Fatally Stabbed After Fight on Subway Train in Manhattan**\
 `The killing occurred after the man got into a fight with his assailant on a downtown No. 5 train during the morning rush hour, officials said.`\
 https://nytimes.com/2025/04/25/nyregion/fatal-subway-stabbing-nyc.html
-
-**The Trump Administration Wants Seafloor Mining. What Does That Mean?**\
-`A recent executive order would accelerate mining in little-understood undersea ecosystems.`\
-https://nytimes.com/2025/04/25/climate/seafloor-mining-science.html
 
