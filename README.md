@@ -1,3 +1,11 @@
+**augustinus-bader-and-cerave-moisturizer**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/wc-augustinus-bader-and-cerave-moisturizer
+
+**Museum’s Benin Bronzes Are Reclaimed by Wealthy Collector**\
+`The royal leader of the Kingdom of Benin sought the return of artifacts displayed at the Museum of Fine Arts, Boston. The collector who owned them took them back instead.`\
+https://nytimes.com/2025/04/25/arts/design/benin-bronzes-museum-fine-arts-boston-lehman.html
+
 **Fantasy baseball waiver wire pickups featuring Agustín Ramírez, Gavin Lux and more**\
 `John Laghezza identifies the top waiver wire targets this week in fantasy baseball, starting with an exciting rookie backstop in Miami.`\
 https://nytimes.com/athletic/6301707/2025/04/25/fantasy-baseball-waiver-wire-pickups-featuring-agustin-ramirez-gavin-lux-and-more/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6309151/2025/04/25/christopher-nkunku-chelsea-enzo-
 **'We won't be deflated': Pistons remain positive despite Game 3 loss to Knicks**\
 `The Knicks outplayed the young Pistons down the stretch. "All we can do is learn from it, move on, get better," Tim Hardaway Jr. said. `\
 https://nytimes.com/athletic/6308416/2025/04/25/pistons-knicks-game-3/
-
-**Barca-Madrid: Could Copa del Rey final be the end for Ancelotti? Can Flick's team kick-start treble?**\
-`Barca and Madrid face each other in a Copa del Rey final for the first time since 2014. Here's everything you need to know`\
-https://nytimes.com/athletic/6309004/2025/04/25/barcelona-real-madrid-copa-del-rey-predictions/
-
-**Everton's Tarkowski set to undergo surgery on season-ending hamstring injury**\
-`The centre-back went off in the 52nd minute of Saturday's home loss to Manchester City and was replaced by Michael Keane.`\
-https://nytimes.com/athletic/6296060/2025/04/25/james-tarkowski-injury-everton/
 
