@@ -1,3 +1,7 @@
+**Trump’s Crimea Proposal Would End a Decade of U.S. Resistance**\
+`A new U.S. peace plan offered to Russia and Ukraine proposes American recognition of the peninsula, which Moscow seized in 2014.`\
+https://nytimes.com/2025/04/24/us/politics/trump-crimea-peace-agreement.html
+
 **Red Sox takeaways: Garrett Crochet frustrated with rocky start; Alex Cora nearing milestone**\
 `Crochet labored through the first two innings Thursday, needing 54 pitches and allowing the Mariners to score four runs.`\
 https://nytimes.com/athletic/6306335/2025/04/24/red-sox-garrett-crochet-alex-cora/

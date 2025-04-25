@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6287852/2025/04/24/nfl-draft-2026-host-city/
 `It’s not an issue with his left wrist or a bad approach, Correa contends. He says his early offensive troubles are simply swing-related.`\
 https://nytimes.com/athletic/6306308/2025/04/24/carlos-correa-swing-twins-takeaways/
 
-**Trump May Concede Crimea to Russia, Ending Decade of U.S. Resistance**\
+**Trump’s Crimea Proposal Would End a Decade of U.S. Resistance**\
 `A new U.S. peace plan offered to Russia and Ukraine proposes American recognition of the peninsula, which Moscow seized in 2014.`\
 https://nytimes.com/2025/04/24/us/politics/trump-crimea-peace-agreement.html
 
