@@ -1,3 +1,11 @@
+**Why hasn't Shedeur Sanders been drafted yet? It's complicated**\
+`Could Sanders go undrafted? It’s wild to think that’s even a consideration, but it’s impossible to rule out any outcome at this point. `\
+https://nytimes.com/athletic/6311419/2025/04/26/why-shedeur-sanders-not-drafted-yet/
+
+**Panthers double down at OLB. Is Clowney's Carolina stint coming to an end?**\
+`Dan Morgan selected a pair of edge rushers in the second and third rounds, leading to speculation about the veteran's future with the team. `\
+https://nytimes.com/athletic/6311405/2025/04/26/panthers-nfl-draft-scourton-umanmielen-clowney/
+
 **Bills draft: T.J. Sanders on 'exhilaration' of making plays, Landon Jackson is a dog, and more**\
 `The Bills added a defensive tackle and an edge rusher on Day 2.`\
 https://nytimes.com/athletic/6311117/2025/04/26/bills-draft-tj-sanders-landon-jackson/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6311253/2025/04/26/aaron-rodgers-steelers-nfl-draft
 **Twins lose Luke Keaschall to fractured forearm, trade for Kody Clemens**\
 `There's no initial timetable to return for Keaschall, who has been extraordinary in his first week with the Twins.`\
 https://nytimes.com/athletic/6311283/2025/04/26/twins-luke-keaschall-broken-arm-kody-clemens/
-
-**2025 NFL Draft's first round becomes second-most watched ever**\
-`Thursday's broadcast was second only to the 2020 first round, which took place during the COVID-19 pandemic.`\
-https://nytimes.com/athletic/6311348/2025/04/26/nfl-draft-first-round-most-watched/
-
-**Listen: Who could replace Alexander-Arnold in Liverpool's leadership group?**\
-`Walk On discusses which player could step into a leadership role if Trent Alexander-Arnold were to leave Liverpool this summer`\
-https://nytimes.com/athletic/6299029/2025/04/26/liverpool-leadership-group-walk-on/
 
