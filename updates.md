@@ -1,3 +1,11 @@
+**Seahawks draft Alabama QB Jalen Milroe: How he fits, pick grade and scouting intel**\
+`An explosive 6-foot-2 playmaker with tantalizing, dual-threat potential, Milroe went 21-6 at Alabama after taking over for Bryce Young.`\
+https://nytimes.com/athletic/6285119/2025/04/25/jalen-milroe-seahawks-nfl-draft/
+
+**2-Year-Old U.S. Citizen Was Deported ‘With No Meaningful Process,’ Judge Suspects**\
+`A federal judge in Louisiana said the deportation of the child to Honduras with her mother, even though her father had filed an emergency petition, appeared to be “illegal and unconstitutional.”`\
+https://nytimes.com/2025/04/25/us/politics/us-citizen-deported.html
+
 **NFL Draft picks chose their walkout songs. Here's why each individual track fits**\
 `Fifteen players selected walkout songs for when their names were called at the 2025 NFL Draft. The Athletic guessed why each song fit.`\
 https://nytimes.com/athletic/6307367/2025/04/25/nfl-draft-walkout-songs-music/
