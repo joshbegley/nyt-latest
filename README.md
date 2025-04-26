@@ -1,3 +1,19 @@
+**Steelers NFL Draft hub: Picks, grades, fits and scouting reports**\
+`Everything you need to know about the Steelers' 2025 draft class, from Round 1 through Round 7.`\
+https://nytimes.com/athletic/6302548/2025/04/26/steelers-nfl-draft-picks-2025-grades-scouting-reports/
+
+**Seahawks NFL Draft hub: Picks, grades, fits and scouting reports**\
+`Everything you need to know about the Seahawks' 2025 draft class, from Round 1 through Round 7.`\
+https://nytimes.com/athletic/6303330/2025/04/26/seahawks-nfl-draft-picks-2025-grades-scouting-reports/
+
+**Perfect Yellow Sheet Cake, No Gluten Needed**\
+`“Baked this today, the lightest, softest gluten-free cake I’ve made over 20 years of gluten-free baking.”`\
+https://nytimes.com/2025/04/26/dining/gluten-free-sheet-cake-recipe.html
+
+**Trump Doesn’t Want to Govern**\
+`He wants to rule.`\
+https://nytimes.com/2025/04/26/opinion/trump-government-ruler-republic.html
+
 **What happens if Shedeur Sanders goes undrafted? Explaining the salary difference, UDFA process**\
 `What happens if Day 3, consisting of rounds four to seven, also ends without Sanders being selected?`\
 https://nytimes.com/athletic/6312159/2025/04/26/what-happens-if-shedeur-sanders-goes-undrafted-salary-difference/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/04/26/world/middleeast/iran-port-explosion-bandar-abbas
 **Iran Reports Several Killed and Hundreds Injured in Huge Port Blast**\
 `A massive explosion on Saturday at the Iranian port of Shahid Rajaee in Bandar Abbas killed several people and injured hundreds, according to state media. The exact cause of the blast was not immediately clear, although there was no suggestion of an attack or sabotage.`\
 https://nytimes.com/video/world/middleeast/100000010132178/iran-port-explosion.html
-
-**Decoding the Vatican: Key Terms in the Papal Transition**\
-`From “camerlengo” to white smoke, here’s what to know about the words and phrases that guide the process after a pope dies.`\
-https://nytimes.com/2025/04/26/world/europe/pope-death-election-words-definition.html
-
-**Newcastle's Joelinton to see specialist over knee injury**\
-`The 28-year-old missed Newcastle's Premier League clash with Ipswich Town on Saturday.`\
-https://nytimes.com/athletic/6312156/2025/04/26/joelinton-newcastle-knee-injury-update/
-
-**Browns NFL Draft hub: Picks, grades, fits and scouting reports**\
-`Keeping you up to date on all of Cleveland's selections throughout the three-day draft. `\
-https://nytimes.com/athletic/6302161/2025/04/26/browns-nfl-draft-picks-2025-grades-scouting-reports/
-
-**Commanders NFL Draft hub: Picks, grades, fits and scouting reports**\
-`Keeping you up to date on all of Washington's selections throughout the three-day draft. `\
-https://nytimes.com/athletic/6302196/2025/04/26/commanders-nfl-draft-picks-2025-grades-scouting-reports/
 

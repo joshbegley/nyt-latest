@@ -1,3 +1,7 @@
+**What happens if Shedeur Sanders goes undrafted? Explaining the salary difference, UDFA process**\
+`What happens if Day 3, consisting of rounds four to seven, also ends without Sanders being selected?`\
+https://nytimes.com/athletic/6312159/2025/04/26/what-happens-if-shedeur-sanders-goes-undrafted-salary-difference/
+
 **Russia Claims to Have Retaken Final Village in Its Kursk Region**\
 `Ukraine denied that it had been pushed out of the region and said that its military operations inside Russia were continuing.`\
 https://nytimes.com/2025/04/26/world/europe/russia-kursk-ukraine.html

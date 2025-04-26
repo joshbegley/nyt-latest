@@ -1,3 +1,7 @@
+**What happens if Shedeur Sanders goes undrafted? Explaining the salary difference, UDFA process**\
+`What happens if Day 3, consisting of rounds four to seven, also ends without Sanders being selected?`\
+https://nytimes.com/athletic/6312159/2025/04/26/what-happens-if-shedeur-sanders-goes-undrafted-salary-difference/
+
 **Russia Claims to Have Retaken Final Village in Its Kursk Region**\
 `Ukraine denied that it had been pushed out of the region and said that its military operations inside Russia were continuing.`\
 https://nytimes.com/2025/04/26/world/europe/russia-kursk-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6302161/2025/04/26/browns-nfl-draft-picks-2025-grad
 **Commanders NFL Draft hub: Picks, grades, fits and scouting reports**\
 `Keeping you up to date on all of Washington's selections throughout the three-day draft. `\
 https://nytimes.com/athletic/6302196/2025/04/26/commanders-nfl-draft-picks-2025-grades-scouting-reports/
-
-**Celtic win Scottish title, game delayed by tangerine protest**\
-`Celtic are Scottish champions for the fourth consecutive season after victory over Dundee United.`\
-https://nytimes.com/athletic/6258739/2025/04/26/celtic-scottish-title-champions/
 
