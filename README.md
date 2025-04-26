@@ -1,3 +1,7 @@
+**Will Pope Francis Be Made a Saint?**\
+`Two of the five popes before Francis have become saints, but merely serving as pontiff is no longer a guarantee of canonization.`\
+https://nytimes.com/2025/04/26/world/europe/pope-francis-saint-canonization.html
+
 **How Francis Wooed Donors**\
 `Efforts to fix the Vatican’s broken finances helped restore confidence among big givers. But the work isn’t finished.`\
 https://nytimes.com/2025/04/26/business/dealbook/how-francis-wooed-donors.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/26/style/mike-myers-elon-musk-snl-canadian-election.
 **Trump Meets With Zelensky in Rome, White House Says**\
 `During his whirlwind trip to Italy, President Trump’s interactions with world leaders, as they paid their respects to Francis, were being watched closely.`\
 https://nytimes.com/2025/04/26/world/europe/trump-pope-francis-funeral.html
-
-**How Trump Plays Into Putin’s Hands, From Ukraine to Slashing U.S. Institutions**\
-`Many of President Trump’s actions have been seen as benefiting Russia either directly or indirectly, so much so that Russian officials have celebrated some of his moves.`\
-https://nytimes.com/2025/04/26/us/politics/trump-putin-russia-ukraine.html
 
