@@ -1,3 +1,15 @@
+**With Game 3 win, Devils show resolve that could benefit them long beyond the playoffs**\
+`New Jersey's 3-2 victory over Carolina on Friday was the type of win that builds the foundation of a team.`\
+https://nytimes.com/athletic/6311697/2025/04/26/devils-hurricanes-nhl-playoffs-game-3-win/
+
+**Eagles see Andrew Mukuba as a physical, disciplined safety; stockpiled Day 3 picks with trades**\
+`The Eagles made a trade and had only one Day 2 pick.`\
+https://nytimes.com/athletic/6311313/2025/04/26/eagles-draft-andrew-mukuba-day-3-picks/
+
+**Broncos trio of Day 2 moves 'paid off' after landing offensive pieces RJ Harvey, Pat Bryant**\
+`The Broncos maneuvered to draft RJ Harvey, the RB with "maybe the best vision in the draft" and a physical receiver in Pat Bryant.`\
+https://nytimes.com/athletic/6311386/2025/04/26/broncos-nfl-draft-rj-harvey-pat-bryant/
+
 **The Seahawks couldn't resist 'unique' Jalen Milroe, adding to a talented class**\
 `Milroe's game film spoke volumes, but so did his personality. “You feel the urgency and the passion," Mike Macdonald said.`\
 https://nytimes.com/athletic/6311621/2025/04/26/seahawks-nfl-draft-jalen-milroe-nick-emmanwori/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6311305/2025/04/26/browns-quarterback-dillon-gabrie
 **Why the Packers drafted an O-lineman and receiver on Day 2, not a pass rusher**\
 `Green Bay selected North Carolina State left tackle Anthony Belton and TCU wide receiver Savion Williams on Friday night.`\
 https://nytimes.com/athletic/6311677/2025/04/26/packers-nfl-draft-anthony-belton-savion-williams/
-
-**Rams mix nostalgia, traits and possibility into their Day 2 selections**\
-`Sean McVay has lofty comparisons for TE Terrance Ferguson and Josaiah Stewart has similarities to a former Ram.`\
-https://nytimes.com/athletic/6311541/2025/04/26/rams-draft-picks-terrance-ferguson-josaiah-stewart/
-
-**Rams NFL Draft hub: Picks, grades, fits and scouting reports**\
-`Follow here throughout the draft for analysis on each Rams' pick over the three-day NFL Draft.`\
-https://nytimes.com/athletic/6293955/2025/04/26/rams-nfl-draft-picks-2025-grades-scouting-reports-2/
-
-**Here’s the latest.**\
-`By Emma Bubola`\
-https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/heres-the-latest
 
