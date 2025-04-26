@@ -1,3 +1,11 @@
+**Who is presiding over the funeral?**\
+`Cardinal Giovanni Battista Re, dean of the College of Cardinals, is a 91-year-old Italian who has spent most of his career serving in the Roman curia.`\
+https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/who-is-presiding-over-the-funeral
+
+**NFL Draft best available players for Baltimore Ravens: Jaydon Blue, kicker prospects**\
+`Baltimore owns eight picks on Saturday.`\
+https://nytimes.com/athletic/6308370/2025/04/26/ravens-2025-nfl-draft-best-available/
+
 **The Ravens drafted Mike Green, then spent most of Friday night defending it**\
 `The Marshall edge rusher, considered a potential first-round pick, fell to the end of the second in light of two sexual assault allegations.`\
 https://nytimes.com/athletic/6311745/2025/04/26/mike-green-ravens-draft-sexual-assault-allegations/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6311880/2025/04/26/chargers-nfl-draft-tre-harris-ja
 **Who Is Sitting Where at Pope Francis’ Funeral?**\
 `With dozens of foreign delegations attending, some from hostile countries, the funeral’s seating arrangements presented a possible nightmare for Vatican planners.`\
 https://nytimes.com/2025/04/26/world/europe/pope-francis-funeral-seating.html
-
-**Can Trump Still Kill Congestion Pricing After U.S. Lawyers Showed Doubt?**\
-`An embarrassing disclosure by federal lawyers revealed the weaknesses in the government’s bid to end the New York toll program. It could mark a turning point in the case.`\
-https://nytimes.com/2025/04/26/nyregion/nyc-congestion-pricing-dot-lawyers.html
-
-**How an Eco-Friendly Entrepreneur Spends Her Sundays**\
-`Sarah Paiji Yoo, the co-founder of Blueland, spends her Sunday hunting for ice cream, avoiding single-use plastic and getting a foot massage with her husband.`\
-https://nytimes.com/2025/04/26/nyregion/sarah-paiji-yoo-blueland.html
 

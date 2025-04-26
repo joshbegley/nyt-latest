@@ -1,3 +1,11 @@
+**Who is presiding over the funeral?**\
+`Cardinal Giovanni Battista Re, dean of the College of Cardinals, is a 91-year-old Italian who has spent most of his career serving in the Roman curia.`\
+https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/who-is-presiding-over-the-funeral
+
+**NFL Draft best available players for Baltimore Ravens: Jaydon Blue, kicker prospects**\
+`Baltimore owns eight picks on Saturday.`\
+https://nytimes.com/athletic/6308370/2025/04/26/ravens-2025-nfl-draft-best-available/
+
 **The Ravens drafted Mike Green, then spent most of Friday night defending it**\
 `The Marshall edge rusher, considered a potential first-round pick, fell to the end of the second in light of two sexual assault allegations.`\
 https://nytimes.com/athletic/6311745/2025/04/26/mike-green-ravens-draft-sexual-assault-allegations/
