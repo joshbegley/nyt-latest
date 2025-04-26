@@ -1,4 +1,12 @@
-**Eagles drafts QB Kyle McCord: How he fits, pick analysis and scouting intel**\
+**Lightning break out in Game 3 to cut series lead to 2-1 Panthers**\
+`Andrei Vasilevskiy rose to the occasion in Game 3 of the Battle of Florida, backstopping the desperate Lightning to a 5-1 victory.`\
+https://nytimes.com/athletic/6312818/2025/04/26/panthers-lightning-nhl-playoffs-2025-game-3-takeaways/
+
+**Trump says Putin may not want peace and may need to be ‘dealt with differently.’**\
+`By Tim Balk`\
+https://nytimes.com/live/2025/04/26/us/trump-news/trump-says-putin-may-not-want-peace-and-may-need-to-be-dealt-with-differently
+
+**Eagles draft QB Kyle McCord: How he fits, pick analysis and scouting intel**\
 `After rewriting the record books at Syracuse, McCord enters the NFL as a true pocket passer ideal for a QB-friendly offense. `\
 https://nytimes.com/athletic/6312419/2025/04/26/kyle-mccord-eagles-nfl-draft/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6312441/2025/04/26/shedeur-sanders-nfl-draft-slide-
 **Wrexham are heading to the Championship: This is the story of their third straight promotion season**\
 `The Welsh club have themselves another Hollywood ending. Richard Sutcliffe recaps the ups and downs of 2024-25`\
 https://nytimes.com/athletic/6252975/2025/04/26/wrexham-are-heading-to-the-championship-this-is-the-story-of-their-third-straight-promotion-season/
-
-**Potter suggests West Ham players accountable for Brighton loss**\
-`The defeat at Brighton was the fifth time since March that West Ham have dropped late points in the Premier League.`\
-https://nytimes.com/athletic/6312692/2025/04/26/graham-potter-west-ham-players/
-
-**Tell Us Your Wild New York City Roommate Stories**\
-`When the rent is high and the vacancy rates are low, sharing your space with others becomes a must.`\
-https://nytimes.com/2025/04/26/nyregion/new-york-city-roommates.html
 
