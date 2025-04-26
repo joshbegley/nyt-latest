@@ -1,9 +1,17 @@
+**Dolphins draft QB Quinn Ewers: How he fits, pick analysis and scouting intel**\
+`Ewers went 21-4 and led Texas to back-to-back College Football Playoff appearances in his final two collegiate seasons.`\
+https://nytimes.com/athletic/6279078/2025/04/26/quinn-ewers-dolphins-nfl-draft/
+
+**49ers draft QB Kurtis Rourke: How he fits, pick grade and scouting intel**\
+`Rourke set the Indiana single-season school record with 31 touchdowns while leading the Hoosiers to the College Football Playoff.`\
+https://nytimes.com/athletic/6313424/2025/04/26/kurtis-rourke-49ers-nfl-draft/
+
 **Numbers Game**\
 `Jacob Reed’s debut Sunday puzzle might turn you around.`\
 https://nytimes.com/2025/04/26/crosswords/daily-puzzle-2025-04-27.html
 
 **With Shedeur Sanders pick, Browns show again they aren't afraid of big personalities**\
-`Was Sanders "best player available" or a pick that owner Jimmy Haslam forced on the team? Regardless, Browns have another shiny sports car.`\
+`Was Sanders the "best player available" or a pick Jimmy Haslam forced on the team? Regardless, the Browns have another shiny sports car.`\
 https://nytimes.com/athletic/6313218/2025/04/26/shedeur-sanders-browns-nfl-draft/
 
 **After up-and-down year, Šimon Nemec's overtime heroics give him a moment he can cherish**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6313307/2025/04/26/cam-miller-raiders-nfl-draft/
 **Raiders draft QB Cam Miller: How he fits, pick grade and scouting intel**\
 `Miller started 54 consecutive games for North Dakota State and won two national championships with the Bison.`\
 https://nytimes.com/athletic/6310338/2025/04/26/cam-miller-raiders-nfl-draft/
-
-**Sirens eliminated from playoff contention: Gold Plan, offseason and what comes next**\
-`The Sirens have officially failed to qualify for the PWHL playoffs for the second straight year. `\
-https://nytimes.com/athletic/6313073/2025/04/26/pwhl-playoffs-new-york-sirens-eliminated/
-
-**Why was Packers fourth-round pick Barryn Sorrell still at the NFL Draft in Green Bay?**\
-`The Texas defensive end had been in Green Bay since Wednesday and sat in the green room alone before getting picked.`\
-https://nytimes.com/athletic/6313112/2025/04/26/green-bay-packers-barryn-sorrell-nfl-draft/
 
