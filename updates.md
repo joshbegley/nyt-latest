@@ -1,3 +1,11 @@
+**Pope Francis Remembered During Funeral in Vatican City**\
+`Hundreds of thousands paid their respects to the pope at his funeral in front of St. Peter’s Basilica, the Vatican said.`\
+https://nytimes.com/video/world/europe/100000010132425/pope-francis-funeral-vatican-city.html
+
+**NBA takeaways: Cavaliers roll past Heat en route to 37-point win**\
+`The 37-point defeat was Miami's worst loss ever in the postseason.`\
+https://nytimes.com/athletic/6312928/2025/04/26/nba-playoffs-cavaliers-heat-thunder-grizzlies-nuggets-clippers-rockets-warriors/
+
 **Lightning break out in Game 3 to cut series lead to 2-1 Panthers**\
 `Andrei Vasilevskiy rose to the occasion in Game 3 of the Battle of Florida, backstopping the desperate Lightning to a 5-1 victory.`\
 https://nytimes.com/athletic/6312818/2025/04/26/panthers-lightning-nhl-playoffs-2025-game-3-takeaways/

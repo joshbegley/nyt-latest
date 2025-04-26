@@ -14,6 +14,10 @@ https://nytimes.com/athletic/6312818/2025/04/26/panthers-lightning-nhl-playoffs-
 `By Tim Balk`\
 https://nytimes.com/live/2025/04/26/us/trump-news/trump-says-putin-may-not-want-peace-and-may-need-to-be-dealt-with-differently
 
+**Patriots NFL Draft hub: Picks, grades, fits and scouting reports**\
+`Keep coming back here throughout the draft for grades and expert analysis of each New England Patriots pick.`\
+https://nytimes.com/athletic/6287648/2025/04/26/patriots-nfl-draft-picks-2025-grades-scouting-reports/
+
 **Eagles draft QB Kyle McCord: How he fits, pick analysis and scouting intel**\
 `After rewriting the record books at Syracuse, McCord enters the NFL as a true pocket passer ideal for a QB-friendly offense. `\
 https://nytimes.com/athletic/6312419/2025/04/26/kyle-mccord-eagles-nfl-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/26/nyregion/us-reverses-position-gaza-unrwa-suit.htm
 **Rashford out for 'some weeks' with hamstring injury - Emery**\
 `Rashford was not in Villa's matchday squad for their 3-0 defeat to Crystal Palace in the FA Cup semi-final on Saturday.`\
 https://nytimes.com/athletic/6312868/2025/04/26/marcus-rashford-injury-aston-villa/
-
-**Vikings acquire QB Sam Howell from Seahawks in Day 3 trade**\
-`The acquisition of the Seahawks backup quarterback likely takes Minnesota out of the Aaron Rodgers sweepstakes. `\
-https://nytimes.com/athletic/6312772/2025/04/26/sam-howell-vikings-seahawks-draft-trade/
 
