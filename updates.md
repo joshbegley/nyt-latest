@@ -1,3 +1,7 @@
+**NFL Draft best available players for New York Giants: Ollie Gordon II and Jalen Rivers**\
+`The Giants have four picks remaining entering Day 3 and have needs to address on the offensive line and in the RB room.`\
+https://nytimes.com/athletic/6307715/2025/04/26/giants-2025-nfl-draft-best-available/
+
 **The Seahawks couldn't resist 'unique' Jalen Milroe, adding to a talented class**\
 `Milroe's game film spoke volumes, but so did his personality. “You feel the urgency and the passion," Mike Macdonald said.`\
 https://nytimes.com/athletic/6311621/2025/04/26/seahawks-nfl-draft-jalen-milroe-nick-emmanwori/
