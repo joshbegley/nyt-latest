@@ -1,3 +1,11 @@
+**Jets draft TE Mason Taylor: How he fits, pick grade and scouting intel**\
+`The most productive tight end in LSU history has NFL bloodlines as the son of Pro Football Hall of Fame defensive end Jason Taylor.`\
+https://nytimes.com/athletic/6264381/2025/04/25/mason-taylor-jets-nfl-draft/
+
+**Grading every pick of NFL Draft Rounds 2 and 3: Saints get B-minus for Tyler Shough pick**\
+`How did each team fare with its draft picks on Day 2 of the 2025 NFL Draft?`\
+https://nytimes.com/athletic/6309122/2025/04/25/nfl-draft-grades-rounds-2-3-2025/
+
 **Saints draft QB Tyler Shough: How he fits, pick grade and scouting intel**\
 `The 25-year-old is coming off his best season as a starting quarterback, leading Louisville to a 9-4 record.`\
 https://nytimes.com/athletic/6278950/2025/04/25/tyler-shough-saints-nfl-draft/
