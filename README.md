@@ -1,3 +1,19 @@
+**Another Dodgers loss sours Yoshinobu Yamamoto-Paul Skenes matchup**\
+`The Dodgers continued their plod through this opening month, dropping their third in a row in a 3-0 loss to Skenes’ Pittsburgh Pirates.`\
+https://nytimes.com/athletic/6311769/2025/04/26/another-dodgers-loss-sours-much-anticipated-yoshinobu-yamamoto-paul-skenes-matchup/
+
+**Famous Faces Were in the Crowd at Pope Francis’ Funeral**\
+`President Trump, Melania Trump, Prince William and President Volodymyr Zelensky of Ukraine were among those who paid respects to the pontiff in St. Peter’s Square.`\
+https://nytimes.com/2025/04/26/world/europe/trump-prince-william-zelensky-pope-funeral.html
+
+**Ravens NFL Draft hub: Picks, grades, fits and scouting reports**\
+`Keeping you up to date on all of Baltimore's selections throughout the three-day draft. `\
+https://nytimes.com/athletic/6302036/2025/04/26/ravens-nfl-draft-picks-2025-grades-scouting-reports/
+
+**Jets NFL Draft hub: Picks, grades, fits and scouting reports**\
+`It's the first draft class of the Aaron Glenn-Darren Mougey era in New York.`\
+https://nytimes.com/athletic/6302491/2025/04/26/jets-nfl-draft-picks-2025-grades-scouting-reports/
+
 **Pacers blow second-half lead to let Bucks back in series: 'We were bad'**\
 `"We were playing on our heels a little bit," Tyrese Haliburton said after the loss. "That starts with me."`\
 https://nytimes.com/athletic/6311998/2025/04/26/pacers-blow-lead-bucks-game-3/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6311988/2025/04/26/luka-doncic-illness-lakers-wolve
 **Here’s what happened on Friday.**\
 `By The New York Times`\
 https://nytimes.com/live/2025/04/26/us/trump-news/heres-what-happened-on-friday
-
-**Trump Administration Live Updates: Democratic-Leaning States Sue Federal Government Over Demands to Drop D.E.I.**\
-``\
-https://nytimes.com/live/2025/04/26/us/trump-news
-
-**Why We Let Fads Dictate What We Eat**\
-`How I fell into and out of love with protein`\
-https://nytimes.com/2025/04/26/opinion/protein-fad-diets.html
-
-**Why Game 3 was more than just a win for Anthony Edwards and the Wolves**\
-`It's an achievement to look LeBron James and Luka Dončić in the eyes during the pressure cooker of crunch time and live to tell about it.`\
-https://nytimes.com/athletic/6310335/2025/04/26/anthony-edwards-timberwolves-nba-playoffs-lakers-lebron-luka/
-
-**Celtics-Magic has been a physical battle. Jaylen Brown thinks the fight's just begun**\
-`Used to playing the pretty game, Boston has run into an opponent hellbent on producing an ugly one.`\
-https://nytimes.com/athletic/6311658/2025/04/26/celtics-magic-physicality-nba-playoffs/
 
