@@ -1,3 +1,7 @@
+**Russia Claims to Have Retaken Final Village in Its Kursk Region**\
+`Ukraine denied that it had been pushed out of the region and said that its military operations inside Russia were continuing.`\
+https://nytimes.com/2025/04/26/world/europe/russia-kursk-ukraine.html
+
 **Shedeur Sanders victim of prank phone call during wait to be drafted**\
 `The caller claimed to be Saints GM Mickey Loomis. Shedeur Sanders downplayed the prank, saying, 'why get mad?'`\
 https://nytimes.com/athletic/6312173/2025/04/26/shedeur-sanders-prank-call-nfl-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6302196/2025/04/26/commanders-nfl-draft-picks-2025-
 **Celtic win Scottish title, game delayed by tangerine protest**\
 `Celtic are Scottish champions for the fourth consecutive season after victory over Dundee United.`\
 https://nytimes.com/athletic/6258739/2025/04/26/celtic-scottish-title-champions/
-
-**The Briefing: Chelsea 1 Everton 0 - Chelsea back in Champions League spots, Jackson scores**\
-`Chelsea secured a big win in the race for Europe with a 1-0 victory over Everton`\
-https://nytimes.com/athletic/6301451/2025/04/26/chelsea-everton-jackson-maresca-champions-league/
 

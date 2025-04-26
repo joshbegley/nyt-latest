@@ -1,3 +1,7 @@
+**Russia Claims to Have Retaken Final Village in Its Kursk Region**\
+`Ukraine denied that it had been pushed out of the region and said that its military operations inside Russia were continuing.`\
+https://nytimes.com/2025/04/26/world/europe/russia-kursk-ukraine.html
+
 **Shedeur Sanders victim of prank phone call during wait to be drafted**\
 `The caller claimed to be Saints GM Mickey Loomis. Shedeur Sanders downplayed the prank, saying, 'why get mad?'`\
 https://nytimes.com/athletic/6312173/2025/04/26/shedeur-sanders-prank-call-nfl-draft/
