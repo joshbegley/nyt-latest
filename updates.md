@@ -1,3 +1,11 @@
+**Who Was the American Who Did the First Reading at Pope Francis’ Funeral Mass?**\
+`Kielce Gussie is a reporter with Vatican News. She has been working in Rome since 2019.`\
+https://nytimes.com/2025/04/26/world/europe/kielce-gussie-pope-francis-funeral.html
+
+**Massive Iran Port Explosion Kills 4, Injures Hundreds**\
+`There was no immediate indication that the blast was caused by sabotage or a deliberate attack. State media said it was likely caused by containers of chemicals catching fire.`\
+https://nytimes.com/2025/04/26/world/middleeast/iran-port-explosion-bandar-abbas.html
+
 **Massive Iran Port Explosion Kills 4, Injures Hundreds**\
 `There was no immediate indication that the blast was caused by sabotage or a deliberate attack. State media said it was likely caused by containers of chemicals catching fire.`\
 https://nytimes.com/2025/04/26/world/middleeast/massive-iran-port-explosion-kills-4-injures-hundreds.html
