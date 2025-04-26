@@ -2,6 +2,10 @@
 `The Chiefs defense has been carrying a bigger load in recent years, but after the Super Bowl LIX loss, it needed reinforcements.`\
 https://nytimes.com/athletic/6311530/2025/04/26/chiefs-nfl-draft-defensive-help/
 
+**NFL Draft Day 2 winners and losers: Shedeur Sanders down, Tyler Shough (and his dog) up**\
+`Has a highly rated player ever fallen this far? It’s hard to think of one.`\
+https://nytimes.com/athletic/6311353/2025/04/26/nfl-draft-2025-day-2-winners-losers/
+
 **NFL Draft best available players for New York Jets: Billy Bowman, Elic Ayomanor**\
 `The Jets have five picks to work with on Saturday.`\
 https://nytimes.com/athletic/6307954/2025/04/26/jets-2025-nfl-draft-best-available/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6311435/2025/04/26/dylan-fairchild-bengals-nfl-draf
 **In drafting Mason Taylor, Jets transform his father from longtime foe into biggest fan**\
 `On Friday night, the Jets drafted the star tight end son of a former Dolphins tormenter.`\
 https://nytimes.com/athletic/6311338/2025/04/26/mason-taylor-draft-new-york-jets-jason-taylor-father/
-
-**As Tensions Rise With Pakistan, a Moment of Truth for India’s Military**\
-`The risk of exposing a military still being modernized may constrain Prime Minister Narendra Modi as he weighs retaliation for a terrorist attack.`\
-https://nytimes.com/2025/04/26/world/asia/india-pakistan-military-kashmir-attack.html
 

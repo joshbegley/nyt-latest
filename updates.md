@@ -1,3 +1,7 @@
+**NFL Draft Day 2 winners and losers: Shedeur Sanders down, Tyler Shough (and his dog) up**\
+`Has a highly rated player ever fallen this far? It’s hard to think of one.`\
+https://nytimes.com/athletic/6311353/2025/04/26/nfl-draft-2025-day-2-winners-losers/
+
 **Chiefs get defensive on Day 2 of the draft, add youthful energy to their pass rush**\
 `The Chiefs defense has been carrying a bigger load in recent years, but after the Super Bowl LIX loss, it needed reinforcements.`\
 https://nytimes.com/athletic/6311530/2025/04/26/chiefs-nfl-draft-defensive-help/

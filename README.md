@@ -1,3 +1,15 @@
+**Here’s the latest.**\
+`By Emma Bubola`\
+https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/heres-the-latest
+
+**Latest Updates: Mourners Gather for Pope Francis’ Funeral**\
+`The pontiff will be laid to rest after a Mass in front of St. Peter’s Basilica in Vatican City. The first Jesuit and first Latin American pope, he championed a more inclusive Roman Catholic Church.`\
+https://nytimes.com/live/2025/04/26/world/pope-francis-funeral
+
+**As Giants' QB situation dominates headlines, NY has quietly built formidable, young defense**\
+`While the QB position gets all the attention, it might be the young defense that helps deliver this franchise out of the funk it's been in.`\
+https://nytimes.com/athletic/6311215/2025/04/26/giants-nfl-draft-defense-quarterback/
+
 **Chiefs get defensive on Day 2 of the draft, add youthful energy to their pass rush**\
 `The Chiefs defense has been carrying a bigger load in recent years, but after the Super Bowl LIX loss, it needed reinforcements.`\
 https://nytimes.com/athletic/6311530/2025/04/26/chiefs-nfl-draft-defensive-help/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6307728/2025/04/26/vikings-2025-nfl-draft-best-avai
 **In Trey Amos, Commanders again get a player atop their board on Day 2 of NFL Draft**\
 `GM Adam Peters shared that the 2024 first-team All-SEC defender was in consideration with Washington's first-round selection. `\
 https://nytimes.com/athletic/6311339/2025/04/26/commanders-trey-amos-nfl-draft/
-
-**49ers add beef — and ferocity — to middle of their defense on Day 2 of NFL Draft**\
-`All four of their picks so far addressed a big problem at the end of the 2024 season — the defense had trouble stopping the run.`\
-https://nytimes.com/athletic/6311507/2025/04/26/49ers-nfl-draft-beef-defense/
-
-**How the Bengals altered their process to perhaps finally fix the OL drafting problem**\
-`Third-rounder Dylan Fairchild, a guard from Georgia, feels his connection with O-line coach Scott Peters is "a match made in heaven."`\
-https://nytimes.com/athletic/6311435/2025/04/26/dylan-fairchild-bengals-nfl-draft/
-
-**In drafting Mason Taylor, Jets transform his father from longtime foe into biggest fan**\
-`On Friday night, the Jets drafted the star tight end son of a former Dolphins tormenter.`\
-https://nytimes.com/athletic/6311338/2025/04/26/mason-taylor-draft-new-york-jets-jason-taylor-father/
 
