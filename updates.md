@@ -1,3 +1,7 @@
+**Man United director of scouting leaving amid department cutbacks**\
+`The number of scouts employed by United will fall significantly as the second redundancy drive of Sir Jim Ratcliffe’s reign begins.`\
+https://nytimes.com/athletic/6312615/2025/04/26/manchester-united-scouts-redundancies-cuts/
+
 **Steelers draft Jack Sawyer: How he fits, pick grade and scouting intel**\
 `Sawyer was the first recruit to commit to Ryan Day at Ohio State, setting the tone for a national-championship winning program.`\
 https://nytimes.com/athletic/6273186/2025/04/26/jack-sawyer-steelers-nfl-draft/
