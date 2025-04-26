@@ -1,3 +1,7 @@
+**Former Cardinals, Reds executive Walt Jocketty dies at 74**\
+`After directing the Oakland A's farm system, Jocketty served as the GM for the Cardinals and Reds and was named Executive of the Year twice.`\
+https://nytimes.com/athletic/6313295/2025/04/26/walt-jocketty-cardinals-reds-gm-dies/
+
 **ESPN's Mel Kiper Jr. reacts to Shedeur Sanders' selection, says NFL is 'clueless'**\
 `"The NFL has been clueless for 50 years when it comes to evaluating quarterbacks," Kiper said.`\
 https://nytimes.com/athletic/6312884/2025/04/26/shedeur-sanders-draft-reactions-mel-kiper/

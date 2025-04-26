@@ -1,3 +1,7 @@
+**Former Cardinals, Reds executive Walt Jocketty dies at 74**\
+`After directing the Oakland A's farm system, Jocketty served as the GM for the Cardinals and Reds and was named Executive of the Year twice.`\
+https://nytimes.com/athletic/6313295/2025/04/26/walt-jocketty-cardinals-reds-gm-dies/
+
 **ESPN's Mel Kiper Jr. reacts to Shedeur Sanders' selection, says NFL is 'clueless'**\
 `"The NFL has been clueless for 50 years when it comes to evaluating quarterbacks," Kiper said.`\
 https://nytimes.com/athletic/6312884/2025/04/26/shedeur-sanders-draft-reactions-mel-kiper/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/26/arts/music/david-thomas-dead.html
 **Palestinian Leader Abbas Appoints Deputy Amid Fears About Succession**\
 `For many ordinary Palestinians, the appointment of Hussein al-Sheikh was emblematic of how out-of-touch the leadership of the Western-backed Palestinian Authority has become.`\
 https://nytimes.com/2025/04/26/world/middleeast/palestinian-authority-abbas-hussein-al-sheikh.html
-
-**Colts draft Notre Dame QB Riley Leonard: How he fits, pick analysis and scouting intel**\
-`Still a raw passer, Leonard has flexed his ability to be a dual-threat quarterback and will have time to develop as the QB3 in Indianapolis.`\
-https://nytimes.com/athletic/6311264/2025/04/26/riley-leonard-colts-nfl-draft/
 
