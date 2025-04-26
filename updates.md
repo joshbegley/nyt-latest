@@ -1,3 +1,7 @@
+**Vikings NFL Draft hub: Picks, grades, fits and scouting reports**\
+`Keep coming back throughout the draft for grades and expert analysis of each Vikings pick.`\
+https://nytimes.com/athletic/6287650/2025/04/26/vikings-nfl-draft-picks-2025-grades-scouting-reports/
+
 **Ravens draft K Tyler Loop with Justin Tucker's NFL future uncertain**\
 `Loop set Arizona's school record for career field goal percentage (83.8 percent), as well as longest field goal made (62 yards).`\
 https://nytimes.com/athletic/6312560/2025/04/26/tyler-loop-ravens-nfl-draft-justin-tucker/

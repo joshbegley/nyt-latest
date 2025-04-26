@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6312818/2025/04/26/panthers-lightning-nhl-playoffs-
 `By Tim Balk`\
 https://nytimes.com/live/2025/04/26/us/trump-news/trump-says-putin-may-not-want-peace-and-may-need-to-be-dealt-with-differently
 
-**Patriots NFL Draft hub: Picks, grades, fits and scouting reports**\
-`Keep coming back here throughout the draft for grades and expert analysis of each New England Patriots pick.`\
-https://nytimes.com/athletic/6287648/2025/04/26/patriots-nfl-draft-picks-2025-grades-scouting-reports/
+**Vikings NFL Draft hub: Picks, grades, fits and scouting reports**\
+`Keep coming back throughout the draft for grades and expert analysis of each Vikings pick.`\
+https://nytimes.com/athletic/6287650/2025/04/26/vikings-nfl-draft-picks-2025-grades-scouting-reports/
 
