@@ -34,7 +34,7 @@ https://nytimes.com/2025/04/26/world/europe/pope-francis-funeral-vatican-catholi
 `Drinks in hand, anxious media people braved a series of events in the nights before the annual White House Correspondents’ Association dinner.`\
 https://nytimes.com/2025/04/26/style/white-house-correspondents-dinner-parties.html
 
-**Bears NFL Draft hub: Picks, grades, fits and scouting reports**\
-`The Bears went defense with their two most recent picks, adding Texas A&M tackle Shemar Turner and Maryland linebacker Ruben Hippolite II.`\
-https://nytimes.com/athletic/6302344/2025/04/26/bears-nfl-draft-picks-2025-grades-scouting-reports/
+**Patriots NFL Draft hub: Picks, grades, fits and scouting reports**\
+`Keep coming back here throughout the draft for grades and expert analysis of each New England Patriots pick.`\
+https://nytimes.com/athletic/6287648/2025/04/26/patriots-nfl-draft-picks-2025-grades-scouting-reports/
 
