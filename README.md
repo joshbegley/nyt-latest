@@ -1,3 +1,11 @@
+**‘He Was Like Family’: Faithful Descend on St. Peter’s Square for Pope’s Funeral**\
+`Cardinals, royals and heads of state attended. But many mourners, some of whom slept on the streets overnight, said they came for a pope who had cared for the poor and marginalized.`\
+https://nytimes.com/2025/04/26/world/europe/pope-francis-funeral-st-peters-square.html
+
+**Giants NFL Draft hub: Picks, grades, fits and scouting reports**\
+`Keep coming back throughout the draft for grades and expert analysis of each Giants pick.`\
+https://nytimes.com/athletic/6290564/2025/04/26/giants-nfl-draft-picks-2025-grades-scouting-reports/
+
 **Carlisle relegated for second successive season to end 20-year EFL stay**\
 `Mark Hughes's side's defeat against Cheltenham Town confirmed back-to-back relegations for the club.`\
 https://nytimes.com/athletic/6311950/2025/04/26/carlisle-united-relegated-league-two-efl/
@@ -26,15 +34,7 @@ https://nytimes.com/athletic/6310165/2025/04/26/maple-leafs-game-4-roster-lineup
 `Djokovic has already suffered four opening-match defeats in 2025.`\
 https://nytimes.com/athletic/6312376/2025/04/26/djokovic-madrid-open-arnaldi-result-analysis/
 
-**See Who Attended Pope Francis’ Funeral**\
-`Explore a photo of world leaders who were at the funeral.`\
-https://nytimes.com/interactive/2025/04/26/world/europe/pope-francis-funeral-attendees-photo.html
-
-**Trump’s Blue Suit at Pope’s Funeral Draws Attention**\
-`President Trump’s choice stood out in a sea of world leaders and famous faces who were dressed in customary black.`\
-https://nytimes.com/2025/04/26/world/europe/trump-pope-francis-funeral-blue-suit.html
-
-**The 6 Very Best Duffle Bags **\
-`(No description)`\
-https://nytimes.com/card/2025/04/26/smarter-living/wirecutter/the-6-very-best-duffle-bags
+**Patriots NFL Draft hub: Picks, grades, fits and scouting reports**\
+`Keep coming back here throughout the draft for grades and expert analysis of each New England Patriots pick.`\
+https://nytimes.com/athletic/6287648/2025/04/26/patriots-nfl-draft-picks-2025-grades-scouting-reports/
 
