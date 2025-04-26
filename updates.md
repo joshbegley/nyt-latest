@@ -1,3 +1,19 @@
+**ESPN's Mel Kiper Jr. reacts to Shedeur Sanders' selection, says NFL is 'clueless'**\
+`"The NFL has been clueless for 50 years when it comes to evaluating quarterbacks," Kiper said.`\
+https://nytimes.com/athletic/6312884/2025/04/26/shedeur-sanders-draft-reactions-mel-kiper/
+
+**International Students Worry Even as Trump Temporarily Restores Some Legal Statuses**\
+`Students and their immigration lawyers say they were relieved for the temporary reprieve, but emphasized that it was just that — temporary.`\
+https://nytimes.com/2025/04/26/us/politics/trump-student-visas.html
+
+**Raiders draft QB Cam Miller: How he fits, pick grade and scouting intel**\
+`Miller started 54 consecutive games for North Dakota State and won two national championships with the Bison.`\
+https://nytimes.com/athletic/6313307/2025/04/26/cam-miller-raiders-nfl-draft/
+
+**Colts draft Notre Dame QB Riley Leonard: How he fits, pick analysis and scouting intel**\
+`Still a raw passer, Leonard has flexed his ability to be a dual-threat quarterback and will have time to develop as the QB3 in Indianapolis.`\
+https://nytimes.com/athletic/6311264/2025/04/26/riley-leonard-colts-nfl-draft/
+
 **Raiders draft QB Cam Miller: How he fits, pick grade and scouting intel**\
 `Miller started 54 consecutive games for North Dakota State and won two national championships with the Bison.`\
 https://nytimes.com/athletic/6310338/2025/04/26/cam-miller-raiders-nfl-draft/
