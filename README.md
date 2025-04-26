@@ -1,3 +1,15 @@
+**Patriots draft takeaways: A clear plan, and lots of help for QB Drake Maye**\
+`Mike Vrabel and the Patriots got excellent value at positions of need, and it feels like the franchise is headed in the right direction.`\
+https://nytimes.com/athletic/6313239/2025/04/26/new-england-patriots-2025-nfl-draft-picks-takeaways/
+
+**Giants NFL Draft hub: Picks, grades, fits and scouting reports**\
+`That 2025 NFL Draft is over. Come check out our pick-by-pick breakdown of each Giants selection.  `\
+https://nytimes.com/athletic/6290564/2025/04/26/giants-nfl-draft-picks-2025-grades-scouting-reports/
+
+**Bryce Harper talks Kyle Tucker, Wrigley Field vibes and what could have been with the Cubs**\
+`Harper said the Cubs were the No. 1 team on his list when he was a free agent after the 2018 season.`\
+https://nytimes.com/athletic/6313501/2025/04/26/phillies-bryce-harper-kyle-tucker-wrigley-field-cubs/
+
 **Falcons 2025 NFL Draft takeaways: Will Atlanta's aggression pay off this time?**\
 `The Atlanta Falcons addressed their biggest positional needs by selecting two edge rushers and two defensive backs in the 2025 NFL Draft.`\
 https://nytimes.com/athletic/6312889/2025/04/26/atlanta-falcons-2025-nfl-draft-picks-takeaways/
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/6313318/2025/04/26/cleveland-browns-2025-nfl-draft-
 **Canadiens and Capitals playoff notebook: Backup goalies set to take center stage in Game 4?**\
 `Also in the notebook, the Capitals' top two forward lines are getting buried and Canadiens rookie Ivan Demidov's comfort level is growing. `\
 https://nytimes.com/athletic/6313577/2025/04/26/canadiens-capitals-nhl-playoffs-goalie-injury/
-
-**Colts 2025 NFL Draft takeaways: Tyler Warren a perfect fit for Indy; what's the plan at RG?**\
-`The Colts found great value in the fifth round with running back DJ Giddens, but was taking cornerback Justin Walley in the third a reach?`\
-https://nytimes.com/athletic/6313093/2025/04/26/indianapolis-colts-2025-nfl-draft-picks-takeaways/
-
-**Jets 2025 NFL Draft takeaways: They went chalk — and that might not be a bad thing**\
-`Perhaps they could have chased a defensive tackle or a more sure-handed receiver, but the Jets checked a lot of boxes on draft weekend.`\
-https://nytimes.com/athletic/6313286/2025/04/26/new-york-jets-2025-nfl-draft-picks-takeaways/
-
-**Kane criticises 'crazy' booking ruling him out of potential title-clincher**\
-`Kane was shown a yellow card in the 45th minute of Bayern’s 3-0 win over Mainz on Saturday, ruling him out of next week's trip to RB Leipzig`\
-https://nytimes.com/athletic/6313760/2025/04/26/harry-kane-bayern-bundesliga-title/
 

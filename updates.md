@@ -1,3 +1,20 @@
+**Falcons 2025 NFL Draft takeaways: Will Atlanta's aggression pay off this time?**\
+`The Atlanta Falcons addressed their biggest positional needs by selecting two edge rushers and two defensive backs in the 2025 NFL Draft.`\
+https://nytimes.com/athletic/6312889/2025/04/26/atlanta-falcons-2025-nfl-draft-picks-takeaways/
+
+**Chiefs 2025 NFL Draft takeaways: Biggest need addressed, plus reinforcements**\
+`Getting their left tackle of the future in Ohio State's Josh Simmons was critical. Then the Chiefs shored up an already strong defense.`\
+https://nytimes.com/athletic/6313522/2025/04/26/chiefs-2025-nfl-draft-picks-takeaways/
+
+**Cowboys 2025 NFL Draft takeaways: Several immediate contributors, but big need remains**\
+`The Cowboys added a starting guard, an impact edge rusher and great value in a cornerback. Will they make a move still for a receiver?`\
+https://nytimes.com/athletic/6312668/2025/04/26/dallas-cowboys-2025-nfl-draft-picks-takeaways/
+
+**Golden Knights even series vs. Wild with overtime goal in Game 4: Takeaways**\
+`By Michael Russo, Jesse Granger and Joe Smith
+ST.`\
+https://nytimes.com/athletic/6313488/2025/04/26/wild-golden-knights-game-4/
+
 **Bills 2025 NFL Draft takeaways: Lots of picks on defense to help get Buffalo over the top**\
 `The Bills addressed each of their most glaring needs in the draft.`\
 https://nytimes.com/athletic/6313151/2025/04/26/buffalo-bills-2025-nfl-draft-picks-takeaways/
