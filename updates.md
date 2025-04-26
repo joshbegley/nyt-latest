@@ -1,3 +1,7 @@
+**Why was Packers fourth-round pick Barryn Sorrell still at the NFL Draft in Green Bay?**\
+`The Texas defensive end had been in Green Bay since Wednesday and sat in the green room alone before getting picked.`\
+https://nytimes.com/athletic/6313112/2025/04/26/green-bay-packers-barryn-sorrell-nfl-draft/
+
 **Vikings NFL Draft hub: Picks, grades, fits and scouting reports**\
 `Keep coming back throughout the draft for grades and expert analysis of each Vikings pick.`\
 https://nytimes.com/athletic/6287650/2025/04/26/vikings-nfl-draft-picks-2025-grades-scouting-reports/
