@@ -6,7 +6,7 @@ https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/heres-the-latest
 `The pontiff will be laid to rest after a Mass in front of St. Peter’s Basilica in Vatican City. The first Jesuit and first Latin American pope, he championed a more inclusive Roman Catholic Church.`\
 https://nytimes.com/live/2025/04/26/world/pope-francis-funeral
 
-**As Giants' QB situation dominates headlines, NY has quietly built formidable, young defense**\
+**As Giants' QB future dominates headlines, NY has quietly built formidable, young defense**\
 `While the QB position gets all the attention, it might be the young defense that helps deliver this franchise out of the funk it's been in.`\
 https://nytimes.com/athletic/6311215/2025/04/26/giants-nfl-draft-defense-quarterback/
 
