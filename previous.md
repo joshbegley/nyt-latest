@@ -1,3 +1,11 @@
+**Canadiens, Capitals brawl spills into benches in Game 3**\
+`Linesman Kyle Wellington, at one point, was nearly toppled over the bench by Tom Wilson and Josh Anderson, the principle antagonists.`\
+https://nytimes.com/athletic/6310739/2025/04/25/canadiens-capitals-brawl-nhl-playoffs/
+
+**Bengals draft LB Demetrius Knight Jr.: How he fits, draft grade and scouting intel**\
+`The South Carolina linebacker will have an opportunity to start next to veteran Logan Wilson in coordinator Al Golden's defense.`\
+https://nytimes.com/athletic/6310254/2025/04/25/demetrius-knight-bengals-nfl-draft/
+
 **Chargers draft WR Tre Harris: How he fits, pick grade and scouting intel**\
 `The Ole Miss product gives Justin Herbert another pass catcher for the Los Angeles offense.`\
 https://nytimes.com/athletic/6310723/2025/04/25/tre-harris-chargers-nfl-draft/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6310655/2025/04/25/nic-scourton-panthers-nfl-draft/
 **Seahawks draft tight end Elijah Arroyo: How he fits, draft grade and scouting intel**\
 `Arroyo, who had a breakout 2024 season at Miami, becomes the highest-drafted tight end in the John Schneider era.`\
 https://nytimes.com/athletic/6310651/2025/04/25/elijah-arroyo-seahawks-nfl-draft/
-
-**Bills draft DT T.J. Sanders: How he fits, pick grade and scouting intel**\
-`The Bills filled a clear need at defensive tackle by trading up.`\
-https://nytimes.com/athletic/6310534/2025/04/25/tj-sanders-bills-nfl-draft/
-
-**Report: Mets bring back left-handed reliever Brooks Raley on 1-year deal**\
-`Raley, who had Tommy John surgery last year, could return for New York sometime late this summer.`\
-https://nytimes.com/athletic/6310572/2025/04/25/new-york-mets-brooks-raley-contract/
 

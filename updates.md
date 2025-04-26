@@ -1,3 +1,11 @@
+**Canadiens, Capitals brawl spills into benches in Game 3**\
+`Linesman Kyle Wellington, at one point, was nearly toppled over the bench by Tom Wilson and Josh Anderson, the principle antagonists.`\
+https://nytimes.com/athletic/6310739/2025/04/25/canadiens-capitals-brawl-nhl-playoffs/
+
+**Bengals draft LB Demetrius Knight Jr.: How he fits, draft grade and scouting intel**\
+`The South Carolina linebacker will have an opportunity to start next to veteran Logan Wilson in coordinator Al Golden's defense.`\
+https://nytimes.com/athletic/6310254/2025/04/25/demetrius-knight-bengals-nfl-draft/
+
 **Chargers draft WR Tre Harris: How he fits, pick grade and scouting intel**\
 `The Ole Miss product gives Justin Herbert another pass catcher for the Los Angeles offense.`\
 https://nytimes.com/athletic/6310723/2025/04/25/tre-harris-chargers-nfl-draft/
