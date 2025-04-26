@@ -1,3 +1,7 @@
+**Man United director of scouting leaving amid department cutbacks**\
+`The number of scouts employed by United will fall significantly as the second redundancy drive of Sir Jim Ratcliffe’s reign begins.`\
+https://nytimes.com/athletic/6312615/2025/04/26/manchester-united-scouts-redundancies-cuts/
+
 **Steelers draft Jack Sawyer: How he fits, pick grade and scouting intel**\
 `Sawyer was the first recruit to commit to Ryan Day at Ohio State, setting the tone for a national-championship winning program.`\
 https://nytimes.com/athletic/6273186/2025/04/26/jack-sawyer-steelers-nfl-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/the-churchs-atten
 **The Briefing: Newcastle 3 Ipswich 0 - Howe returns, Osula's first top-flight goal and visitors relegated**\
 `Chris Waugh and George Caulkin analyse the main talking points from Newcastle's win against Ipswich`\
 https://nytimes.com/athletic/6301466/2025/04/26/newcastle-ipswich-analysis-premier-league/
-
-**Ipswich relegated from the Premier League after Newcastle loss**\
-`Ipswich's Championship return was confirmed with four games remaining.`\
-https://nytimes.com/athletic/6280553/2025/04/26/ipswich-relegation-premier-league/
 
