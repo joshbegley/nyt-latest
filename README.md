@@ -1,3 +1,11 @@
+**Pope Francis, Who Sought a More Pastoral Church, Laid to Rest in a Majestic Ceremony**\
+`The funeral drew world leaders, including President Trump and President Volodymyr Zelensky of Ukraine, who had a talk in the Basilica.`\
+https://nytimes.com/2025/04/26/world/europe/pope-francis-funeral-vatican-catholic-church.html
+
+**Washington Parties On, Without Trump or Big Celebrities**\
+`Drinks in hand, anxious media people braved a series of events in the nights before the annual White House Correspondents’ Association dinner.`\
+https://nytimes.com/2025/04/26/style/washington-parties-on-without-trump-or-big-celebrities.html
+
 **Bears NFL Draft hub: Picks, grades, fits and scouting reports**\
 `The Bears went defense with their two most recent picks, adding Texas A&M tackle Shemar Turner and Maryland linebacker Ruben Hippolite II.`\
 https://nytimes.com/athletic/6302344/2025/04/26/bears-nfl-draft-picks-2025-grades-scouting-reports/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6312506/2025/04/26/cam-skattebo-giants-nfl-draft/
 **‘He Was Like Family’: Faithful Descend on St. Peter’s Square for Pope’s Funeral**\
 `Cardinals, royals and heads of state attended. But many mourners, some of whom slept on the streets overnight, said they came for a pope who had cared for the poor and marginalized.`\
 https://nytimes.com/2025/04/26/world/europe/pope-francis-funeral-st-peters-square.html
-
-**Giants NFL Draft hub: Picks, grades, fits and scouting reports**\
-`Keep coming back throughout the draft for grades and expert analysis of each Giants pick.`\
-https://nytimes.com/athletic/6290564/2025/04/26/giants-nfl-draft-picks-2025-grades-scouting-reports/
-
-**Carlisle relegated for second successive season to end 20-year EFL stay**\
-`Mark Hughes's side's defeat against Cheltenham Town confirmed back-to-back relegations for the club.`\
-https://nytimes.com/athletic/6311950/2025/04/26/carlisle-united-relegated-league-two-efl/
 
