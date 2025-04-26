@@ -1,3 +1,11 @@
+**Reaching for QB Dillon Gabriel to close Day 2 of NFL Draft was baffling move by Browns**\
+`While selecting LB Carson Schwesinger, RB Quinshon Judkins and TE Harold Fannin Jr. can be justified, taking Gabriel was a complete stunner.`\
+https://nytimes.com/athletic/6311305/2025/04/26/browns-quarterback-dillon-gabriel-nfl-draft/
+
+**Why the Packers drafted an O-lineman and receiver on Day 2, not a pass rusher**\
+`Green Bay selected North Carolina State left tackle Anthony Belton and TCU wide receiver Savion Williams on Friday night.`\
+https://nytimes.com/athletic/6311677/2025/04/26/packers-nfl-draft-anthony-belton-savion-williams/
+
 **Rams mix nostalgia, traits and possibility into their Day 2 selections**\
 `Sean McVay has lofty comparisons for TE Terrance Ferguson and Josaiah Stewart has similarities to a former Ram.`\
 https://nytimes.com/athletic/6311541/2025/04/26/rams-draft-picks-terrance-ferguson-josaiah-stewart/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6307954/2025/04/26/jets-2025-nfl-draft-best-availab
 **NFL Draft best available players for San Francisco 49ers: Marcus Mbow, Chase Lundt**\
 `The 49ers used their first four picks on defensive players. Does Kyle Shanahan gets some offensive firepower on Day 3? `\
 https://nytimes.com/athletic/6307707/2025/04/26/49ers-2025-nfl-draft-best-available/
-
-**Bills Day 3 mock draft: Trading up for a falling value, targeting special teams**\
-`The Bills will be hoping to find some Day 3 gems.`\
-https://nytimes.com/athletic/6311203/2025/04/26/buffalo-bills-mock-draft-day-3-nfl/
-
-**Best available players for the Vikings: Brashard Smith, Zah Frazier**\
-`In Round 1, the Vikings continued to revamp their offensive line. On Day 2, they added a wide receiver. What do they still need on Day 3?`\
-https://nytimes.com/athletic/6307728/2025/04/26/vikings-2025-nfl-draft-best-available/
 
