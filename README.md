@@ -1,3 +1,15 @@
+**Bills 2025 NFL Draft takeaways: Lots of picks on defense to help get Buffalo over the top**\
+`The Bills addressed each of their most glaring needs in the draft.`\
+https://nytimes.com/athletic/6313151/2025/04/26/buffalo-bills-2025-nfl-draft-picks-takeaways/
+
+**Golden Knights even series vs. Wild with overtime goal in Game 4: Takeaways**\
+`ST.`\
+https://nytimes.com/athletic/6313488/2025/04/26/wild-golden-knights-game-4/
+
+**Browns 2025 NFL Draft takeaways: Twists, turns and a Shedeur Sanders pick on Day 3**\
+`Regardless of how directly it's addressed and embraced, this Cleveland team is a two-draft fix. One of those is now complete. `\
+https://nytimes.com/athletic/6313318/2025/04/26/cleveland-browns-2025-nfl-draft-picks-takeaways/
+
 **Canadiens and Capitals playoff notebook: Backup goalies set to take center stage in Game 4?**\
 `Also in the notebook, the Capitals' top two forward lines are getting buried and Canadiens rookie Ivan Demidov's comfort level is growing. `\
 https://nytimes.com/athletic/6313577/2025/04/26/canadiens-capitals-nhl-playoffs-goalie-injury/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/26/style/washington-arrives-on-the-red-carpet.html
 **Soft? Not these Cavaliers, who destroyed Heat in Game 3 amid trash-talking battle**\
 `Cleveland demonstrated its maturity and toughness with a dominating 124-87 win over Miami.`\
 https://nytimes.com/athletic/6313294/2025/04/26/cleveland-cavaliers-miami-heat-game-3-trash-talking/
-
-**Rams 2025 NFL Draft takeaways: Roster confidence and aiming to win now are apparent**\
-`The Rams only had six picks in this draft — their fewest since 2016 — and also added a first-round for the 2026 NFL Draft.`\
-https://nytimes.com/athletic/6312690/2025/04/26/los-angeles-rams-2025-nfl-draft-picks-takeaways/
-
-**Eagles 2025 NFL Draft takeaways: Philadelphia gets large draft class, stockpiles future picks**\
-`The Eagles made several trade to accumulate late-round picks.`\
-https://nytimes.com/athletic/6312570/2025/04/26/philadelphia-eagles-2025-nfl-draft-picks-takeaways/
-
-**NFL Draft 2025 best undrafted free agents, including Xavier Restrepo, Cobee Bryant**\
-`Will there be any diamonds in the rough among this year's UDFA class?`\
-https://nytimes.com/athletic/6309834/2025/04/26/nfl-draft-2025-best-undrafted-free-agents/
 
