@@ -1,3 +1,7 @@
+**2-Year-Old U.S. Citizen Was Deported ‘With No Meaningful Process,’ Judge Suspects**\
+`A federal judge in Louisiana said the deportation of the child to Honduras with her mother, even though her father had sought an emergency petition, appeared to be “illegal and unconstitutional.”`\
+https://nytimes.com/2025/04/25/us/politics/us-citizen-deported.html
+
 **Patriots draft WR Kyle Williams: How he fits, pick grade and scouting intel**\
 `Williams took off over his final two seasons at Washington State. Last year, he caught 70 passes for 1,198 yards and 14 touchdowns.`\
 https://nytimes.com/athletic/6311016/2025/04/25/kyle-williams-patriots-nfl-draft/

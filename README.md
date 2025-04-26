@@ -1,3 +1,7 @@
+**NFL Draft picks chose their walkout songs. Here's why each individual track fits**\
+`Fifteen players selected walkout songs for when their names were called at the 2025 NFL Draft. The Athletic guessed why each song fit.`\
+https://nytimes.com/athletic/6307367/2025/04/25/nfl-draft-walkout-songs-music/
+
 **2-Year-Old U.S. Citizen Was Deported ‘With No Meaningful Process,’ Judge Suspects**\
 `A federal judge in Louisiana said the deportation of the child to Honduras with her mother, even though her father had sought an emergency petition, appeared to be “illegal and unconstitutional.”`\
 https://nytimes.com/2025/04/25/us/politics/us-citizen-deported.html
@@ -10,8 +14,8 @@ https://nytimes.com/athletic/6311016/2025/04/25/kyle-williams-patriots-nfl-draft
 `The Giants have needed to find a running mate for nose tackle Dexter Lawrence on the interior. They may have found one in Alexander. `\
 https://nytimes.com/athletic/6310863/2025/04/25/darius-alexander-giants-nfl-draft/
 
-**NBA takeaways: Magic stave off Celtics on big night for Wagner, Banchero**\
-`Boston still leads the series 2-1 with Game 4 on Sunday in Orlando.`\
+**NBA takeaways: Magic, Bucks cut first-round series deficits to 2-1**\
+`The Athletic has you covered with takeaways from all the NBA playoff action Friday.`\
 https://nytimes.com/athletic/6310272/2025/04/25/nba-playoffs-celtics-magic-pacers-bucks-lakers-timberwolves/
 
 **Bears draft DT Shemar Turner: How he fits, draft grade and scouting intel**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6284972/2025/04/25/jaylin-noel-texans-nfl-draft/
 **Cowboys draft CB Shavon Revel Jr.: How he fits, pick grade and scouting intel**\
 `Revel is the first player drafted out of East Carolina since tackle D'Ante Smith in 2021 and the school's first DB to be taken since 1996.`\
 https://nytimes.com/athletic/6271466/2025/04/25/shavon-revel-jr-cowboys-nfl-draft/
-
-**Canadiens turn tide vs. Capitals in Game 3 at electric Bell Centre: Takeaways**\
-`The game featured a major brawl and both starting goalies leaving with injuries in playoff hockey's return to Montreal.`\
-https://nytimes.com/athletic/6310539/2025/04/25/capitals-canadiens-nhl-playoffs-2025-game-3-takeaways/
 

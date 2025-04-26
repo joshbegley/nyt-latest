@@ -1,3 +1,7 @@
+**2-Year-Old U.S. Citizen Was Deported ‘With No Meaningful Process,’ Judge Suspects**\
+`A federal judge in Louisiana said the deportation of the child to Honduras with her mother, even though her father had sought an emergency petition, appeared to be “illegal and unconstitutional.”`\
+https://nytimes.com/2025/04/25/us/politics/us-citizen-deported.html
+
 **Patriots draft WR Kyle Williams: How he fits, pick grade and scouting intel**\
 `Williams took off over his final two seasons at Washington State. Last year, he caught 70 passes for 1,198 yards and 14 touchdowns.`\
 https://nytimes.com/athletic/6311016/2025/04/25/kyle-williams-patriots-nfl-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6271466/2025/04/25/shavon-revel-jr-cowboys-nfl-draf
 **Canadiens turn tide vs. Capitals in Game 3 at electric Bell Centre: Takeaways**\
 `The game featured a major brawl and both starting goalies leaving with injuries in playoff hockey's return to Montreal.`\
 https://nytimes.com/athletic/6310539/2025/04/25/capitals-canadiens-nhl-playoffs-2025-game-3-takeaways/
-
-**Do the Impossible**\
-`Sarah Sinclair and Rafael Musa’s collaboration unfolds excitingly.`\
-https://nytimes.com/2025/04/25/crosswords/daily-puzzle-2025-04-26.html
 
