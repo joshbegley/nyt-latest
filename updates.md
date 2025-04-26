@@ -1,5 +1,9 @@
 **Why Game 3 was more than just a win for Anthony Edwards and the Wolves**\
 `It's an achievement to look LeBron James and Luka Dončić in the eyes during the pressure cooker of crunch time and live to tell about it.`\
+https://nytimes.com/athletic/6310335/2025/04/26/anthony-edwards-timberwolves-nba-playoffs-lakers-lebron-luka/
+
+**Why Game 3 was more than just a win for Anthony Edwards and the Wolves**\
+`It's an achievement to look LeBron James and Luka Dončić in the eyes during the pressure cooker of crunch time and live to tell about it.`\
 https://nytimes.com/athletic/6310335/2025/04/26/for-anthony-edwards-and-the-wolves-game-3-win-was-more-than-just-a-win/
 
 **Celtics-Magic has been a physical battle. Jaylen Brown thinks the fight's just begun**\

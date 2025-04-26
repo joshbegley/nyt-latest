@@ -1,3 +1,27 @@
+**The Pulse: Hockey's surprising villain**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6311477/2025/04/26/shedeur-sanders-nfl-draft-the-pulse/
+
+**Canadian Snowbirds Bought Into the American Dream in Palm Springs. Was It a Mirage?**\
+`Each year, hundreds of thousands of Canadians visit the desert city. But tariffs and other attacks on their country by the Trump administration are driving them away.`\
+https://nytimes.com/2025/04/26/us/politics/canada-snowbirds-palm-springs-trump.html
+
+**Healthy Luka Dončić or not, the Lakers need more from everyone**\
+`The Lakers’ margins in this series are slim, if they even exist. Luka Dončić's temporary limitations only furthered growing concerns.`\
+https://nytimes.com/athletic/6311988/2025/04/26/luka-doncic-illness-lakers-wolves-nba-playoffs/
+
+**Here’s what happened on Friday.**\
+`By The New York Times`\
+https://nytimes.com/live/2025/04/26/us/trump-news/heres-what-happened-on-friday
+
+**Trump Administration Live Updates: Democratic-Leaning States Sue Federal Government Over Demands to Drop D.E.I.**\
+``\
+https://nytimes.com/live/2025/04/26/us/trump-news
+
+**Why We Let Fads Dictate What We Eat**\
+`How I fell into and out of love with protein`\
+https://nytimes.com/2025/04/26/opinion/protein-fad-diets.html
+
 **Why Game 3 was more than just a win for Anthony Edwards and the Wolves**\
 `It's an achievement to look LeBron James and Luka Dončić in the eyes during the pressure cooker of crunch time and live to tell about it.`\
 https://nytimes.com/athletic/6310335/2025/04/26/anthony-edwards-timberwolves-nba-playoffs-lakers-lebron-luka/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6278740/2025/04/26/falcons-49ers-forfeit-fifth-roun
 **What I’m seeing from the Leafs: Suffocating top pair, Matthews’ subtle dominance**\
 `An unstoppable power play, edge in goal and contributions from unlikely sources have the Maple Leafs on the verge of the second round.`\
 https://nytimes.com/athletic/6309512/2025/04/26/maple-leafs-nhl-playoffs-auston-matthews/
-
-**Blackhawks coaching candidates: David Carle? Anders Sörensen? Jay Woodcroft?**\
-`As Blackhawks GM Kyle Davidson looks for a new head coach, here are nine candidates who could be in the mix.`\
-https://nytimes.com/athletic/6310091/2025/04/26/blackhawks-coaching-candidates-carle-sorensen-woodcroft/
-
-**Rangers reader survey: GM Chris Drury is losing the faith of the fan base**\
-`Confidence levels in Drury have plummeted this season, despite the team president and GM getting a recent extension.`\
-https://nytimes.com/athletic/6306453/2025/04/26/rangers-fan-survey-gm-chris-drury/
-
-**The Oilers got their break in Game 3. Now, can they turn this series around?**\
-`Edmonton's season was hanging in the balance until a 10-second sequence in the third period changed everything.`\
-https://nytimes.com/athletic/6311930/2025/04/26/oilers-game-3-nhl-playoffs-kings/
-
-**What would a dream Bruins offseason look like? David Carle, Matthew Schaefer and Mitch Marner**\
-`We've already looked at how things can fail nightmarishly this offseason. Here are nine steps that would get the Bruins back on track.`\
-https://nytimes.com/athletic/6309967/2025/04/26/dream-bruins-offseason-david-carle-matthew-schaefer-mitch-marner/
-
-**Claude Giroux and the Senators are taking notes from Flyers' reverse sweep in 2010**\
-`The odds are long for Giroux's Sens to overcome a 3-0 series deficit. But he's been on the winning side of an 0-3 comeback before.`\
-https://nytimes.com/athletic/6309840/2025/04/26/senators-claude-giroux-nhl-playoffs/
-
-**'It cost us big time': Kings' Game 3 loss turned on failed, unnecessary challenge**\
-`Jim Hiller has mostly pushed the right buttons in his first full season as Kings coach but pressed the wrong one late in Game 3.`\
-https://nytimes.com/athletic/6311927/2025/04/26/kings-challenge-nhl-playoffs-oilers/
 
