@@ -1,3 +1,15 @@
+**Why hasn't Shedeur Sanders been drafted yet? It's complicated**\
+`Could Sanders go undrafted? It’s wild to think that’s even a consideration, but it’s impossible to rule out any outcome at this point. `\
+https://nytimes.com/athletic/6311419/2025/04/26/why-shedeur-sanders-not-drafted-yet/
+
+**Panthers double down at OLB. Is Clowney's Carolina stint coming to an end?**\
+`Dan Morgan selected a pair of edge rushers in the second and third rounds, leading to speculation about the veteran's future with the team. `\
+https://nytimes.com/athletic/6311405/2025/04/26/panthers-nfl-draft-scourton-umanmielen-clowney/
+
+**Bills draft: T.J. Sanders on 'exhilaration' of making plays, Landon Jackson is a dog, and more**\
+`The Bills added a defensive tackle and an edge rusher on Day 2.`\
+https://nytimes.com/athletic/6311117/2025/04/26/bills-draft-tj-sanders-landon-jackson/
+
 **Creativity and multiplicity: Ben Johnson's influence defines Day 2 of NFL Draft for Bears**\
 `The Bears took receiver Luther Burden III in the second round on Friday night. Can he be the Bears' version of Amon-Ra St. Brown?`\
 https://nytimes.com/athletic/6311269/2025/04/26/bears-nfl-draft-ben-johnson-influence/
