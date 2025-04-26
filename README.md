@@ -1,3 +1,11 @@
+**Massive Iran Port Explosion Kills 4, Injures Hundreds**\
+`There was no immediate indication that the blast was caused by sabotage or a deliberate attack. State media said it was likely caused by containers of chemicals catching fire.`\
+https://nytimes.com/2025/04/26/world/middleeast/massive-iran-port-explosion-kills-4-injures-hundreds.html
+
+**Iran Reports Several Killed and Hundreds Injured in Huge Port Blast**\
+`A massive explosion on Saturday at the Iranian port of Shahid Rajaee in Bandar Abbas killed several people and injured hundreds, according to state media. The exact cause of the blast was not immediately clear, although there was no suggestion of an attack or sabotage.`\
+https://nytimes.com/video/world/middleeast/100000010132178/iran-reports-several-killed-and-hundreds-injured-in-huge-port-blast.html
+
 **Decoding the Vatican: Key Terms in the Papal Transition**\
 `From “camerlengo” to white smoke, here’s what to know about the words and phrases that guide the process after a pope dies.`\
 https://nytimes.com/2025/04/26/world/europe/pope-death-election-words-definition.html
@@ -14,7 +22,7 @@ https://nytimes.com/athletic/6302161/2025/04/26/browns-nfl-draft-picks-2025-grad
 `Keeping you up to date on all of Washington's selections throughout the three-day draft. `\
 https://nytimes.com/athletic/6302196/2025/04/26/commanders-nfl-draft-picks-2025-grades-scouting-reports/
 
-**Celtic win record-equalling Scottish Premiership title, game delayed by tangerine protest**\
+**Celtic win Scottish title, game delayed by tangerine protest**\
 `Celtic are Scottish champions for the fourth consecutive season after victory over Dundee United.`\
 https://nytimes.com/athletic/6258739/2025/04/26/celtic-scottish-title-champions/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6311713/2025/04/26/eli-white-chris-sale-braves-resu
 **The Bucks were headed for a 3-0 series hole. Then Gary Trent Jr. gave them new life**\
 `Trent Jr., in his first start of the series, scored 37 points, but an assertive defense could help sustain the Bucks going forward.`\
 https://nytimes.com/athletic/6311457/2025/04/26/gary-trent-jr-bucks-pacers-game-3-nba-playoffs/
-
-**Another Dodgers loss sours Yoshinobu Yamamoto-Paul Skenes matchup**\
-`The Dodgers continued their plod through this opening month, dropping their third in a row in a 3-0 loss to Skenes’ Pittsburgh Pirates.`\
-https://nytimes.com/athletic/6311769/2025/04/26/another-dodgers-loss-sours-much-anticipated-yoshinobu-yamamoto-paul-skenes-matchup/
-
-**Famous Faces Were in the Crowd at Pope Francis’ Funeral**\
-`President Trump, Melania Trump, Prince William and President Volodymyr Zelensky of Ukraine were among those who paid respects to the pontiff in St. Peter’s Square.`\
-https://nytimes.com/2025/04/26/world/europe/trump-prince-william-zelensky-pope-funeral.html
 
