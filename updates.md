@@ -1,3 +1,7 @@
+**Chiefs NFL Draft hub: Picks, grades, fits and scouting reports**\
+`The Chiefs added Utah State wide receiver Jalen Royals and Oregon linebacker Jeffrey Bassa on Saturday.`\
+https://nytimes.com/athletic/6302793/2025/04/26/chiefs-nfl-draft-picks-2025-grades-scouting-reports/
+
 **U.S. Reverses Itself, Saying U.N.’s Gaza Agency Can Be Sued in New York**\
 `The Justice Department and the Manhattan U.S. attorney’s office told a judge that an immunity law did not apply. A group of Israelis had accused the agency of assisting Hamas.`\
 https://nytimes.com/2025/04/26/nyregion/us-reverses-position-gaza-unrwa-suit.html
