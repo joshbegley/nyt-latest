@@ -8,7 +8,7 @@ https://nytimes.com/interactive/2025/04/26/world/europe/pope-francis-funeral-att
 
 **Trump’s Blue Suit at Pope’s Funeral Draws Attention**\
 `President Trump’s choice stood out in a sea of world leaders and famous faces who were dressed in customary black.`\
-https://nytimes.com/2025/04/26/world/europe/trumps-blue-suit-at-popes-funeral-draws-attention.html
+https://nytimes.com/2025/04/26/world/europe/trump-pope-francis-funeral-blue-suit.html
 
 **The 6 Very Best Duffle Bags **\
 `(No description)`\

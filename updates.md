@@ -1,3 +1,7 @@
+**Novak Djokovic exits Madrid Open after shock defeat to Matteo Arnaldi**\
+`Djokovic has already suffered four opening-match defeats in 2025.`\
+https://nytimes.com/athletic/6312376/2025/04/26/djokovic-madrid-open-arnaldi-result-analysis/
+
 **See Who Attended Pope Francis’ Funeral**\
 `Explore a photo of world leaders who were at the funeral.`\
 https://nytimes.com/interactive/2025/04/26/world/europe/pope-francis-funeral-attendees-photo.html
