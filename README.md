@@ -1,40 +1,40 @@
-**The funeral Mass readings reflect Francis’ priorities and nod to John Paul II.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/the-funeral-mass-readings-reflect-francis-priorities-and-nod-to-john-paul-ii
+**What the Pope Told Me About Politics**\
+`My brief tour with Pope Francis, the diplomat of our times.`\
+https://nytimes.com/2025/04/26/magazine/pope-politics.html
 
-**The funeral music is largely being sung in Gregorian chant.**\
-`By Zachary Woolfe`\
-https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/the-funeral-music-is-largely-being-sung-in-gregorian-chant
+**Canada’s Extraordinary Yet Uneventful Election Draws to a Close**\
+`President Trump’s tariffs and annexation ambitions continue to loom over all other issues in a race without any moments of campaign drama.`\
+https://nytimes.com/2025/04/26/world/canada/canada-election-liberals.html
 
-**Who is presiding over the funeral?**\
-`Cardinal Giovanni Battista Re, dean of the College of Cardinals, is a 91-year-old Italian who has spent most of his career serving in the Roman curia.`\
-https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/who-is-presiding-over-the-funeral
+**Climate Change, Once a Big Issue, Fades From Canada’s Election**\
+`Even though Liberal candidate Mark Carney has a lengthy climate policy résumé, Trump’s threats have nearly drowned the issue out of the campaign.`\
+https://nytimes.com/2025/04/26/climate/canada-election-climate-change.html
 
-**NFL Draft best available players for Baltimore Ravens: Jaydon Blue, kicker prospects**\
-`Baltimore owns eight picks on Saturday.`\
-https://nytimes.com/athletic/6308370/2025/04/26/ravens-2025-nfl-draft-best-available/
+**Mike Myers Is Ready to Defend Canada**\
+`The “Saturday Night Live” alum on getting political in Studio 8H, playing Elon Musk and why he decided to film a campaign ad for Canada’s Liberal Party.`\
+https://nytimes.com/2025/04/26/style/mike-myers-elon-musk-snl-canadian-election.html
 
-**The Ravens drafted Mike Green, then spent most of Friday night defending it**\
-`The Marshall edge rusher, considered a potential first-round pick, fell to the end of the second in light of two sexual assault allegations.`\
-https://nytimes.com/athletic/6311745/2025/04/26/mike-green-ravens-draft-sexual-assault-allegations/
+**Trump Meets With Zelensky in Rome, White House Says**\
+`During his whirlwind trip to Italy, President Trump’s interactions with world leaders, as they paid their respects to Francis, were being watched closely.`\
+https://nytimes.com/2025/04/26/world/europe/trump-pope-francis-funeral.html
 
-**A Blast from the Past Delights Delights ‘Doctor Who’ Fans**\
-`The show’s latest episode harks back to a beloved episode that has had fans scratching their heads for 17 years.`\
-https://nytimes.com/2025/04/26/arts/television/doctor-who-the-well-midnight.html
+**How Trump Plays Into Putin’s Hands, From Ukraine to Slashing U.S. Institutions**\
+`Many of President Trump’s actions have been seen as benefiting Russia either directly or indirectly, so much so that Russian officials have celebrated some of his moves.`\
+https://nytimes.com/2025/04/26/us/politics/trump-putin-russia-ukraine.html
 
-**The funeral plan is simple (for a pope).**\
-`By Talya Minsberg`\
-https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/the-funeral-plan-is-simple-for-a-pope
+**The Symbolism in ‘Sinners’**\
+`Beneath the spectacle of an action-packed vampire movie, the film has plenty to say about what is sacred and what is profane.`\
+https://nytimes.com/2025/04/26/movies/sinners-symbolism.html
 
-**Twenty years ago, three U.S. presidents traveled together to mourn a pope. Not so this time.**\
-`By David E. Sanger`\
-https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/twenty-years-ago-three-us-presidents-traveled-together-to-mourn-a-pope-not-so-this-time
+**Polls Tighten in Homestretch of Canada’s Election**\
+`Prime Minister Mark Carney’s Liberal Party still appears poised to win, pollsters say, even as its lead over the Conservative Party has shrunk.`\
+https://nytimes.com/2025/04/26/world/canada/election-polls-carney-poilievre.html
 
-**My Selfie With Francis: The Digital Legacy of an Approachable Pope**\
-`Many of the Catholics he counseled were much younger, but he made a habit of trying to meet them where they were.`\
-https://nytimes.com/2025/04/26/world/europe/pope-francis-selfies-photos-videos.html
+**Dollar Doubts Dominate Gathering of Global Economic Leaders**\
+`Participants at the I.M.F and World Bank meetings this week reckoned with the prospect that the U.S. safe haven could lose its luster.`\
+https://nytimes.com/2025/04/26/business/dollar-trump-bessent.html
 
-**Chargers NFL Draft hub: Picks, grades, fits and scouting reports**\
-`Keep coming back throughout the draft for grades and expert analysis of each Chargers pick.`\
-https://nytimes.com/athletic/6299433/2025/04/26/chargers-nfl-draft-picks-2025-grades-scouting-reports/
+**Governors, Actors and a Talking Frog: Here’s Who’s Speaking at Graduation**\
+`As colleges face increased scrutiny from the federal government, they are taking diverging approaches in choosing commencement keynotes.`\
+https://nytimes.com/2025/04/26/us/college-commencement-graduation-speakers.html
 
