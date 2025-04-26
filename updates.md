@@ -1,3 +1,7 @@
+**Seahawks draft tight end Elijah Arroyo: How he fits, draft grade and scouting intel**\
+`Arroyo, who had a breakout 2024 season at Miami, becomes the highest-drafted tight end in the John Schneider era.`\
+https://nytimes.com/athletic/6310651/2025/04/25/elijah-arroyo-seahawks-nfl-draft/
+
 **Bills draft DT T.J. Sanders: How he fits, pick grade and scouting intel**\
 `The Bills filled a clear need at defensive tackle by trading up.`\
 https://nytimes.com/athletic/6310534/2025/04/25/tj-sanders-bills-nfl-draft/

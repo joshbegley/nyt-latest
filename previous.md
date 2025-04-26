@@ -1,3 +1,7 @@
+**Seahawks draft tight end Elijah Arroyo: How he fits, draft grade and scouting intel**\
+`Arroyo, who had a breakout 2024 season at Miami, becomes the highest-drafted tight end in the John Schneider era.`\
+https://nytimes.com/athletic/6310651/2025/04/25/elijah-arroyo-seahawks-nfl-draft/
+
 **Bills draft DT T.J. Sanders: How he fits, pick grade and scouting intel**\
 `The Bills filled a clear need at defensive tackle by trading up.`\
 https://nytimes.com/athletic/6310534/2025/04/25/tj-sanders-bills-nfl-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6264381/2025/04/25/mason-taylor-jets-nfl-draft/
 **Saints draft QB Tyler Shough: How he fits, pick grade and scouting intel**\
 `The 25-year-old is coming off his best season as a starting quarterback, leading Louisville to a 9-4 record.`\
 https://nytimes.com/athletic/6278950/2025/04/25/tyler-shough-saints-nfl-draft/
-
-**Bears draft WR Luther Burden III: How he fits, draft grade and scouting intel**\
-`Burden, a semifinalist for the Biletnikoff Award, joins Ben Johnson and the new-look Bears offense. `\
-https://nytimes.com/athletic/6270160/2025/04/25/luther-burden-iii-bears-nfl-draft/
 

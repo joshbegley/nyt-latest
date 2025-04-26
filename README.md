@@ -1,3 +1,7 @@
+**Panthers draft edge Nic Scourton: How he fits, pick grade and scouting intel**\
+`Carolina adds pass rusher depth in a trade-up with Denver in the second round of the 2025 NFL Draft. `\
+https://nytimes.com/athletic/6310655/2025/04/25/nic-scourton-panthers-nfl-draft/
+
 **Seahawks draft tight end Elijah Arroyo: How he fits, draft grade and scouting intel**\
 `Arroyo, who had a breakout 2024 season at Miami, becomes the highest-drafted tight end in the John Schneider era.`\
 https://nytimes.com/athletic/6310651/2025/04/25/elijah-arroyo-seahawks-nfl-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6273716/2025/04/25/donovan-ezeiruaku-cowboys-nfl-dr
 **Jets draft TE Mason Taylor: How he fits, pick grade and scouting intel**\
 `The most productive tight end in LSU history has NFL bloodlines as the son of Pro Football Hall of Fame defensive end Jason Taylor.`\
 https://nytimes.com/athletic/6264381/2025/04/25/mason-taylor-jets-nfl-draft/
-
-**Saints draft QB Tyler Shough: How he fits, pick grade and scouting intel**\
-`The 25-year-old is coming off his best season as a starting quarterback, leading Louisville to a 9-4 record.`\
-https://nytimes.com/athletic/6278950/2025/04/25/tyler-shough-saints-nfl-draft/
 
