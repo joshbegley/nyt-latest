@@ -1,3 +1,11 @@
+**Colts draft Notre Dame QB Riley Leonard: How he fits, pick grade and scouting intel**\
+`Still a raw passer, Leonard has flexed his ability to be a dual-threat quarterback and make an immediate impact at a new program. `\
+https://nytimes.com/athletic/6311264/2025/04/26/riley-leonard-colts-nfl-draft/
+
+**Steelers draft Ohio State QB Will Howard: How he fits, pick grade and scouting intel**\
+`Howard led Ohio State to the College Football Playoff national title in January, where he was the championship game's offensive MVP.`\
+https://nytimes.com/athletic/6279022/2025/04/26/will-howard-steelers-nfl-draft/
+
 **Patriots NFL Draft hub: Picks, grades, fits and scouting reports**\
 `Keep coming back here throughout the draft for grades and expert analysis of each New England Patriots pick.`\
 https://nytimes.com/athletic/6287648/2025/04/26/patriots-nfl-draft-picks-2025-grades-scouting-reports/
