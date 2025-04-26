@@ -1,3 +1,7 @@
+**Fanatics opens first of its kind collectibles store in London to big crowds**\
+`The shop marks the beginning of a big bet Fanatics Collectibles are making on the U.K. and Europe`\
+https://nytimes.com/athletic/6311174/2025/04/26/fanatics-store-london-lewis-hamilton/
+
 **The route to Santa Maria Maggiore recalls centuries-old traditions.**\
 `By Elisabetta Povoledo`\
 https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/the-route-to-santa-maria-maggiore-recalls-centuries-old-traditions
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/26/crosswords/connections-companion-686.html
 **Will Pope Francis Be Made a Saint?**\
 `Two of the five popes before Francis have become saints, but merely serving as pontiff is no longer a guarantee of canonization.`\
 https://nytimes.com/2025/04/26/world/europe/pope-francis-saint-canonization.html
-
-**How Francis Wooed Donors**\
-`Efforts to fix the Vatican’s broken finances helped restore confidence among big givers. But the work isn’t finished.`\
-https://nytimes.com/2025/04/26/business/dealbook/how-francis-wooed-donors.html
 

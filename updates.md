@@ -1,3 +1,7 @@
+**Fanatics opens first of its kind collectibles store in London to big crowds**\
+`The shop marks the beginning of a big bet Fanatics Collectibles are making on the U.K. and Europe`\
+https://nytimes.com/athletic/6311174/2025/04/26/fanatics-store-london-lewis-hamilton/
+
 **The route to Santa Maria Maggiore recalls centuries-old traditions.**\
 `By Elisabetta Povoledo`\
 https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/the-route-to-santa-maria-maggiore-recalls-centuries-old-traditions

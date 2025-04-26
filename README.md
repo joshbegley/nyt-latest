@@ -1,40 +1,40 @@
-**Fanatics opens first of its kind collectibles store in London to big crowds**\
-`The shop marks the beginning of a big bet Fanatics Collectibles are making on the U.K. and Europe`\
-https://nytimes.com/athletic/6311174/2025/04/26/fanatics-store-london-lewis-hamilton/
+**Meet Jack Murtagh, the draft prospect and 'gamer' who just loves scoring goals**\
+`Given his age and the lost time at the start of his draft year, Murtagh is proud of his season and happy with the way his game is trending. `\
+https://nytimes.com/athletic/6297009/2025/04/26/jack-murtagh-2025-nhl-draft-prospect/
 
-**The route to Santa Maria Maggiore recalls centuries-old traditions.**\
+**Robin Hood, 'rebel' team, a historic seaso: Why Forest fandom is growing in America**\
+`Fan groups across America are growing in support for Forest, with the club having their most successful season for decades`\
+https://nytimes.com/athletic/6306053/2025/04/26/nottingham-forest-america-fans-robin-hood/
+
+**What rival evaluators are saying about Pete Alonso's roaring hot start**\
+`The Athletic asked a handful of scouts and executives: If Alonso keeps this up, what will it mean for his contract?`\
+https://nytimes.com/athletic/6309725/2025/04/26/mets-pete-alonso-contract-success/
+
+**Joe Maddon thinks MLB has issues. You might find them relatable**\
+`Joe Maddon thinks more leaders in baseball — and in general — need to hire people to do their job, then let them do it as they see fit.`\
+https://nytimes.com/athletic/6309737/2025/04/26/joe-maddon-mlb-problems-issues/
+
+**Francis is being buried in a place of solace for him.**\
 `By Elisabetta Povoledo`\
-https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/the-route-to-santa-maria-maggiore-recalls-centuries-old-traditions
+https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/francis-is-being-buried-in-a-place-of-solace-for-him
 
-**Knicks trends I'm watching: OG Anunoby 'heat checks,' Karl-Anthony Towns changes**\
-`An All-Defensive wing has eyes in the back of his head. An All-Star can still score like one. And a sixth man doesn't look like himself.`\
-https://nytimes.com/athletic/6310228/2025/04/26/knicks-trends-pistons-nba-playoffs/
+**American Values Are Threatened by the American President**\
+`After my dad was disappeared abroad, he fled to this land, which exemplified respect for law and a welcome for refugees. Until now.`\
+https://nytimes.com/2025/04/26/opinion/trump-american-values.html
 
-**Now and beyond, Canadiens appear in good hands with Hutson and Slafkovský**\
-`Lane Hutson and Juraj Slafkovský are not the only reasons the Canadiens beat the Capitals, but they are the most significant reasons.`\
-https://nytimes.com/athletic/6311733/2025/04/26/canadiens-nhl-playoffs-hutson-slafkovsky-capitals/
+**America’s Tough Guy in Chief Is Making America Weak**\
+`Don’t drop your guard while picking fights around the globe.`\
+https://nytimes.com/2025/04/26/opinion/trump-national-security.html
 
-**As Capitals and Canadiens lose their starting goalies, chaos enters the chat**\
-`Montreal's Sam Montembeault and Washington's Logan Thompson both left Game 3 with injuries, and they could be gone for a while.`\
-https://nytimes.com/athletic/6311782/2025/04/26/canadiens-capitals-sam-montembeault-logan-thompson/
+**Trump’s Vicious Sewing Circle**\
+`Catfights abound in Trump’s macho world.`\
+https://nytimes.com/2025/04/26/opinion/trump-gender-roles-masculinity.html
 
-**How another league fits into the U.S. women's soccer landscape**\
-`The initial announcement came as a surprise. Here's what we know about the proposed new league`\
-https://nytimes.com/athletic/6311310/2025/04/26/nwsl-second-division-womens-soccer-explained/
+**LeBrun: Stars captain Jamie Benn is a ‘catapult’ who gets his team going when it matters**\
+`No captain in the NHL shuns the spotlight more than Benn, who is still an impactful player in his 16th season in the league.`\
+https://nytimes.com/athletic/6310120/2025/04/26/stars-jamie-benn-nhl-playoffs/
 
-**What to make of Shedeur Sanders' NFL Draft slide? 'It's more than football'**\
-`Amid one of the steepest high-profile draft slides in recent memory, Sanders' situation stirred plenty of reaction.`\
-https://nytimes.com/athletic/6311306/2025/04/26/shedeur-sanders-draft-slide-reactions/
-
-**Wordle Review No. 1,408**\
-`Scroll down for hints and conversation about the puzzle for Sunday, April 27, 2025.`\
-https://nytimes.com/2025/04/26/crosswords/wordle-review-1408.html
-
-**Connections Companion No. 686**\
-`Scroll down for hints and conversation about the puzzle for Sunday, April 27, 2025.`\
-https://nytimes.com/2025/04/26/crosswords/connections-companion-686.html
-
-**Will Pope Francis Be Made a Saint?**\
-`Two of the five popes before Francis have become saints, but merely serving as pontiff is no longer a guarantee of canonization.`\
-https://nytimes.com/2025/04/26/world/europe/pope-francis-saint-canonization.html
+**Why Is Trump Doing All This?**\
+`Opinion columnists break down the motives behind the president’s blitz of executive actions since he took office.`\
+https://nytimes.com/video/opinion/100000010121801/trump-motivation.html
 
