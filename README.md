@@ -1,3 +1,7 @@
+**Rashford injured for 'some weeks' with hamstring injury - Emery**\
+`Rashford was not in Villa's matchday squad for their 3-0 defeat to Crystal Palace in the FA Cup semi-final on Saturday.`\
+https://nytimes.com/athletic/6312868/2025/04/26/marcus-rashford-injury-aston-villa/
+
 **Vikings acquire QB Sam Howell from Seahawks in Day 3 trade**\
 `The acquisition of the Seahawks backup quarterback likely takes Minnesota out of the Aaron Rodgers sweepstakes. `\
 https://nytimes.com/athletic/6312772/2025/04/26/sam-howell-vikings-seahawks-draft-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/26/world/europe/pope-francis-funeral-vatican-catholi
 **Washington Parties On, Without Trump or Big Celebrities**\
 `Drinks in hand, anxious media people braved a series of events in the nights before the annual White House Correspondents’ Association dinner.`\
 https://nytimes.com/2025/04/26/style/white-house-correspondents-dinner-parties.html
-
-**Patriots NFL Draft hub: Picks, grades, fits and scouting reports**\
-`Keep coming back here throughout the draft for grades and expert analysis of each New England Patriots pick.`\
-https://nytimes.com/athletic/6287648/2025/04/26/patriots-nfl-draft-picks-2025-grades-scouting-reports/
 
