@@ -1,3 +1,7 @@
+**Rashford out for 'some weeks' with hamstring injury - Emery**\
+`Rashford was not in Villa's matchday squad for their 3-0 defeat to Crystal Palace in the FA Cup semi-final on Saturday.`\
+https://nytimes.com/athletic/6312868/2025/04/26/marcus-rashford-injury-aston-villa/
+
 **Rashford injured for 'some weeks' with hamstring injury - Emery**\
 `Rashford was not in Villa's matchday squad for their 3-0 defeat to Crystal Palace in the FA Cup semi-final on Saturday.`\
 https://nytimes.com/athletic/6312868/2025/04/26/marcus-rashford-injury-aston-villa/
