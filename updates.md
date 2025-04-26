@@ -1,3 +1,11 @@
+**Chargers draft WR Tre Harris: How he fits, pick grade and scouting intel**\
+`The Ole Miss product gives Justin Herbert another pass catcher for the Los Angeles offense.`\
+https://nytimes.com/athletic/6310723/2025/04/25/tre-harris-chargers-nfl-draft/
+
+**Ravens draft edge Mike Green: How he fits, draft grade and scouting intel**\
+`Green dominated at Marshall, leading FBS with 17 sacks in 2024. `\
+https://nytimes.com/athletic/6280036/2025/04/25/mike-green-ravens-nfl-draft/
+
 **Trump Administration Opens Civil Rights Inquiry Into a Long Island Mascot Fight**\
 `President Donald Trump is weighing in on a school mascot dispute at Massapequa High School, where some parents are upset that a Chiefs mascot and logo must go under a state rule.`\
 https://nytimes.com/2025/04/25/us/politics/trump-massapequa-mascot-inquiry.html
