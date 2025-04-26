@@ -1,3 +1,15 @@
+**Patriots draft WR Kyle Williams: How he fits, pick grade and scouting intel**\
+`Williams took off over his final two seasons at Washington State. Last year, he caught 70 passes for 1,198 yards and 14 touchdowns.`\
+https://nytimes.com/athletic/6311016/2025/04/25/kyle-williams-patriots-nfl-draft/
+
+**Giants draft DT Darius Alexander: How he fits, pick grade and scouting intel**\
+`The Giants have needed to find a running mate for nose tackle Dexter Lawrence on the interior. They may have found one in Alexander. `\
+https://nytimes.com/athletic/6310863/2025/04/25/darius-alexander-giants-nfl-draft/
+
+**NBA takeaways: Magic stave off Celtics on big night for Wagner, Banchero**\
+`Boston still leads the series 2-1 with Game 4 on Sunday in Orlando.`\
+https://nytimes.com/athletic/6310272/2025/04/25/nba-playoffs-celtics-magic-pacers-bucks-lakers-timberwolves/
+
 **Bears draft DT Shemar Turner: How he fits, draft grade and scouting intel**\
 `Turner is the first draft pick for new defensive coordinator Dennis Allen’s unit and joins newcomers Grady Jarrett and Dayo Odeyingbo. `\
 https://nytimes.com/athletic/6310992/2025/04/25/shemar-turner-bears-nfl-draft/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6310539/2025/04/25/capitals-canadiens-nhl-playoffs-
 **Do the Impossible**\
 `Sarah Sinclair and Rafael Musa’s collaboration unfolds excitingly.`\
 https://nytimes.com/2025/04/25/crosswords/daily-puzzle-2025-04-26.html
-
-**Eagles draft safety Andrew Mukuba: How he fits, pick grade and scouting intel**\
-`The Eagles addressed arguably their biggest need by drafting a safety.`\
-https://nytimes.com/athletic/6310861/2025/04/25/andrew-mukuba-eagles-nfl-draft/
-
-**Chiefs draft DT Omarr Norman-Lott: How he fits, pick grade and scouting intel**\
-`Norman-Lott didn’t start for Tennessee, so he'll have to prove his value in Kansas City but his ceiling could be high under Steve Spagnuolo.`\
-https://nytimes.com/athletic/6310894/2025/04/25/omarr-norman-lott-chiefs-nfl-draft/
-
-**Lightning's Brandon Hagel suspended 1 game for hit on Panthers' Aleksander Barkov**\
-`Hagel was assessed a five-minute major penalty following a review by officials in Game 2.`\
-https://nytimes.com/athletic/6309585/2025/04/25/nhl-suspension-lightning-brandon-hagel-hit-injury/
 
