@@ -1,3 +1,15 @@
+**Ravens draft K Tyler Loop with Justin Tucker's future uncertain**\
+`Loop set Arozina's school record for career field goal percentage (83.8 percent), as well as longest field goal made (62 yards).`\
+https://nytimes.com/athletic/6312560/2025/04/26/tyler-loop-ravens-nfl-draft-justin-tucker/
+
+**David Thomas, Who Led the ‘Avant-Garage’ Band Pere Ubu, Dies at 71**\
+`As a singer and songwriter, he pushed the boundaries of punk and art-rock, producing a half century of music, writings and performances and always upending expectations.`\
+https://nytimes.com/2025/04/26/arts/music/david-thomas-dead.html
+
+**Palestinian Leader Abbas Appoints Deputy Amid Fears About Succession**\
+`For many ordinary Palestinians, the appointment of Hussein al-Sheikh was emblematic of how out-of-touch the leadership of the Western-backed Palestinian Authority has become.`\
+https://nytimes.com/2025/04/26/world/middleeast/palestinian-authority-abbas-hussein-al-sheikh.html
+
 **Colts draft Notre Dame QB Riley Leonard: How he fits, pick grade and scouting intel**\
 `Still a raw passer, Leonard has flexed his ability to be a dual-threat quarterback and make an immediate impact at a new program. `\
 https://nytimes.com/athletic/6311264/2025/04/26/riley-leonard-colts-nfl-draft/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/04/26/us/trump-news/trump-says-putin-may-not-want-
 **Patriots NFL Draft hub: Picks, grades, fits and scouting reports**\
 `Keep coming back here throughout the draft for grades and expert analysis of each New England Patriots pick.`\
 https://nytimes.com/athletic/6287648/2025/04/26/patriots-nfl-draft-picks-2025-grades-scouting-reports/
-
-**Eagles draft QB Kyle McCord: How he fits, pick analysis and scouting intel**\
-`After rewriting the record books at Syracuse, McCord enters the NFL as a true pocket passer ideal for a QB-friendly offense. `\
-https://nytimes.com/athletic/6312419/2025/04/26/kyle-mccord-eagles-nfl-draft/
-
-**Palace had 'no doubt' on Glasner despite slow start to season**\
-`Palace won just 1 of their opening 13 Premier League matches this term but are now just one game away from their first ever major trophy.`\
-https://nytimes.com/athletic/6312914/2025/04/26/crystal-palace-glasner-fa-cup-final/
-
-**For the power-starved Blue Jays, there’s another path to the postseason**\
-`This year's Blue Jays weren't built to hit for power. So a postseason berth will require strong pitching and timely hitting. `\
-https://nytimes.com/athletic/6312938/2025/04/26/blue-jays-home-runs-playoffs/
 

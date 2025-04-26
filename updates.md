@@ -1,3 +1,15 @@
+**Ravens draft K Tyler Loop with Justin Tucker's future uncertain**\
+`Loop set Arozina's school record for career field goal percentage (83.8 percent), as well as longest field goal made (62 yards).`\
+https://nytimes.com/athletic/6312560/2025/04/26/tyler-loop-ravens-nfl-draft-justin-tucker/
+
+**David Thomas, Who Led the ‘Avant-Garage’ Band Pere Ubu, Dies at 71**\
+`As a singer and songwriter, he pushed the boundaries of punk and art-rock, producing a half century of music, writings and performances and always upending expectations.`\
+https://nytimes.com/2025/04/26/arts/music/david-thomas-dead.html
+
+**Palestinian Leader Abbas Appoints Deputy Amid Fears About Succession**\
+`For many ordinary Palestinians, the appointment of Hussein al-Sheikh was emblematic of how out-of-touch the leadership of the Western-backed Palestinian Authority has become.`\
+https://nytimes.com/2025/04/26/world/middleeast/palestinian-authority-abbas-hussein-al-sheikh.html
+
 **Colts draft Notre Dame QB Riley Leonard: How he fits, pick grade and scouting intel**\
 `Still a raw passer, Leonard has flexed his ability to be a dual-threat quarterback and make an immediate impact at a new program. `\
 https://nytimes.com/athletic/6311264/2025/04/26/riley-leonard-colts-nfl-draft/
