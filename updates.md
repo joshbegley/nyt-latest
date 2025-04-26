@@ -1,3 +1,19 @@
+**Wrexham are heading to the Championship: This is the story of their third straight promotion season**\
+`The Welsh club have themselves another Hollywood ending. Richard Sutcliffe recaps the ups and downs of 2024-25`\
+https://nytimes.com/athletic/6252975/2025/04/26/wrexham-are-heading-to-the-championship-this-is-the-story-of-their-third-straight-promotion-season/
+
+**Potter suggests West Ham players accountable for Brighton loss**\
+`The defeat at Brighton was the fifth time since March that West Ham have dropped late points in the Premier League.`\
+https://nytimes.com/athletic/6312692/2025/04/26/graham-potter-west-ham-players/
+
+**Tell Us Your Wild New York City Roommate Stories**\
+`When the rent is high and the vacancy rates are low, sharing your space with others becomes a must.`\
+https://nytimes.com/2025/04/26/nyregion/new-york-city-roommates.html
+
+**Browns stop Shedeur Sanders slide, selecting Colorado QB in fifth round**\
+`Sanders became the sixth quarterback selected in this year's draft — and the second by Cleveland.`\
+https://nytimes.com/athletic/6312436/2025/04/26/shedeur-sanders-browns-2025-nfl-draft-pick/
+
 **Shedeur Sanders slides past fourth round as NFL Draft marches through Day 3**\
 `If no team selects Sanders, he will become an undrafted free agent and be able to negotiate with any interested team.`\
 https://nytimes.com/athletic/6312436/2025/04/26/shedeur-sanders-nfl-draft-slide-saturday/
