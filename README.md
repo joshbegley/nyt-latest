@@ -1,3 +1,7 @@
+**Rams mix nostalgia, traits and possibility into their Day 2 selections**\
+`Sean McVay has lofty comparisons for TE Terrance Ferguson and Josaiah Stewart has similarities to a former Ram.`\
+https://nytimes.com/athletic/6311541/2025/04/26/rams-draft-picks-terrance-ferguson-josaiah-stewart/
+
 **Here’s the latest.**\
 `By Emma Bubola`\
 https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6311203/2025/04/26/buffalo-bills-mock-draft-day-3-n
 **Best available players for the Vikings: Brashard Smith, Zah Frazier**\
 `In Round 1, the Vikings continued to revamp their offensive line. On Day 2, they added a wide receiver. What do they still need on Day 3?`\
 https://nytimes.com/athletic/6307728/2025/04/26/vikings-2025-nfl-draft-best-available/
-
-**In Trey Amos, Commanders again get a player atop their board on Day 2 of NFL Draft**\
-`GM Adam Peters shared that the 2024 first-team All-SEC defender was in consideration with Washington's first-round selection. `\
-https://nytimes.com/athletic/6311339/2025/04/26/commanders-trey-amos-nfl-draft/
 
