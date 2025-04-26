@@ -1,3 +1,7 @@
+**NFL Draft best available players for Browns: Cameron Williams, Jalen Royals**\
+`A list of players Cleveland could consider entering Day 3 of the 2025 NFL Draft. `\
+https://nytimes.com/athletic/6307640/2025/04/26/browns-2025-nfl-draft-best-available/
+
 **Draft roundtable: Which Day 2 QB intrigues, where is Shedeur Sanders' best fit now?**\
 `The biggest question heading into Day 2 was where Shedeur Sanders would land. It was still the biggest question as Day 2 concluded.`\
 https://nytimes.com/athletic/6311265/2025/04/26/draft-shedeur-sanders-saints-tyler-shough/

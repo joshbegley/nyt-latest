@@ -1,3 +1,7 @@
+**NFL Draft best available players for Browns: Cameron Williams, Jalen Royals**\
+`A list of players Cleveland could consider entering Day 3 of the 2025 NFL Draft. `\
+https://nytimes.com/athletic/6307640/2025/04/26/browns-2025-nfl-draft-best-available/
+
 **Draft roundtable: Which Day 2 QB intrigues, where is Shedeur Sanders' best fit now?**\
 `The biggest question heading into Day 2 was where Shedeur Sanders would land. It was still the biggest question as Day 2 concluded.`\
 https://nytimes.com/athletic/6311265/2025/04/26/draft-shedeur-sanders-saints-tyler-shough/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6307531/2025/04/26/packers-2025-nfl-draft-best-avai
 **From scratch to hero, Simon Nemec lifts Devils past Hurricanes in 2OT Game 3: Takeaways**\
 `Nemec — a healthy scratch to start the series — flung a shot past Frederik Andersen for a 3-2 win that narrowed the series to 2-1.`\
 https://nytimes.com/athletic/6311030/2025/04/26/simon-nemec-nhl-playoffs-devils-hurricanes/
-
-**What’s at Stake in the Iran-U.S. Nuclear Talks**\
-`Plans for a third round of talks in three weeks have raised hopes for an Iran nuclear accord, which could avert a new Mideast conflict. President Trump said he believed a deal was within reach.`\
-https://nytimes.com/2025/04/26/world/middleeast/us-iran-nuclear-talks.html
 
