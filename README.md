@@ -1,3 +1,15 @@
+**Trump Administration Opens Civil Rights Inquiry Into a Long Island Mascot Fight**\
+`President Donald Trump is weighing in on a school mascot dispute at Massapequa High School, where some parents are upset that a Chiefs mascot and logo must go under a state rule.`\
+https://nytimes.com/2025/04/25/us/politics/trump-massapequa-mascot-inquiry.html
+
+**Rams draft TE Terrance Ferguson: How he fits, pick grade and scouting intel**\
+`Terrance Ferguson, 6-foot-5 and 247 pounds, will join a full tight end room but one with questions and in need of improvement.`\
+https://nytimes.com/athletic/6310705/2025/04/25/terrance-ferguson-rams-nfl-draft/
+
+**Raiders draft WR Jack Bech: How he fits, pick grade and scouting intel**\
+`Bech led TCU in 2024 with 62 catches for 1,034 yards and nine receiving touchdowns. `\
+https://nytimes.com/athletic/6271779/2025/04/25/jack-bech-raiders-nfl-draft/
+
 **Trump Pardons Executive Whose Family Sought to Publicize Ashley Biden’s Diary**\
 `The pardon of Paul Walczak, who had been convicted of tax crimes, comes as the president uses clemency to reward allies and swipe at perceived enemies.`\
 https://nytimes.com/2025/04/25/us/politics/trump-pardon-walczak-ashley-biden-diary.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6273683/2025/04/25/aireontae-ersery-texans-nfl-draf
 **Cardinals draft CB Will Johnson: How he fits, pick grade and scouting intel**\
 `The two-time All-American cornerback won a national championship and had 68 tackles and nine interceptions in 32 games at Michigan.`\
 https://nytimes.com/athletic/6271294/2025/04/25/will-johnson-arizona-cardinals-nfl-draft/
-
-**49ers draft DT Alfred Collins: How he fits, pick grade and scouting intel**\
-`Collins spent one year as a full-time starter but was a durable five-year player who appeared in 64 games for the Longhorns. `\
-https://nytimes.com/athletic/6310367/2025/04/25/alfred-collins-49ers-nfl-draft/
-
-**Colts draft edge rusher JT Tuimoloau: How he fits, pick grade and scouting intel**\
-`Tuimoloau led the Big Ten in sacks in his final season at Ohio State, one that ended with a national championship.`\
-https://nytimes.com/athletic/6273723/2025/04/25/jt-tuimoloau-colts-nfl-draft/
-
-**Cowboys draft edge Donovan Ezeiruaku: How he fits, pick grade and scouting intel**\
-`Ezeiruaku was described as "a monster" by an opposing coach and was the FBS leader in sacks per game (1.38) in 2024 at Boston College.`\
-https://nytimes.com/athletic/6273716/2025/04/25/donovan-ezeiruaku-cowboys-nfl-draft/
 
