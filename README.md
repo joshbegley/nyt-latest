@@ -1,3 +1,7 @@
+**Ravens draft K Tyler Loop with Justin Tucker's future uncertain**\
+`Loop set Arozina's school record for career field goal percentage (83.8 percent), as well as longest field goal made (62 yards).`\
+https://nytimes.com/athletic/6312560/2025/04/26/tyler-loop-ravens-nfl-draft-justin-tucker/
+
 **David Thomas, Who Led the ‘Avant-Garage’ Band Pere Ubu, Dies at 71**\
 `As a singer and songwriter, he pushed the boundaries of punk and art-rock, producing a half century of music, writings and performances and always upending expectations.`\
 https://nytimes.com/2025/04/26/arts/music/david-thomas-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/04/26/us/trump-news/trump-says-putin-may-not-want-
 **Patriots NFL Draft hub: Picks, grades, fits and scouting reports**\
 `Keep coming back here throughout the draft for grades and expert analysis of each New England Patriots pick.`\
 https://nytimes.com/athletic/6287648/2025/04/26/patriots-nfl-draft-picks-2025-grades-scouting-reports/
-
-**Eagles draft QB Kyle McCord: How he fits, pick analysis and scouting intel**\
-`After rewriting the record books at Syracuse, McCord enters the NFL as a true pocket passer ideal for a QB-friendly offense. `\
-https://nytimes.com/athletic/6312419/2025/04/26/kyle-mccord-eagles-nfl-draft/
 
