@@ -1,3 +1,11 @@
+**With Day 2 picks, Chargers find specific fits into their roster puzzle**\
+`The additions of Tre Harris and Jamaree Caldwell bolster both the receiver room and the defensive line, respectively. `\
+https://nytimes.com/athletic/6311880/2025/04/26/chargers-nfl-draft-tre-harris-jamaree-caldwell/
+
+**Who sits where at the funeral?**\
+`By Emma Bubola`\
+https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/pope-francis-funeral-seating
+
 **Rams mix nostalgia, traits and possibility into their Day 2 selections**\
 `Sean McVay has lofty comparisons for TE Terrance Ferguson and Josaiah Stewart has similarities to a former Ram.`\
 https://nytimes.com/athletic/6311541/2025/04/26/rams-draft-picks-terrance-ferguson-josaiah-stewart/
