@@ -2,6 +2,10 @@
 `The Bills will be hoping to find some Day 3 gems.`\
 https://nytimes.com/athletic/6311203/2025/04/26/buffalo-bills-mock-draft-day-3-nfl/
 
+**Best available players for the Vikings: Brashard Smith, Zah Frazier**\
+`In Round 1, the Vikings continued to revamp their offensive line. On Day 2, they added a wide receiver. What do they still need on Day 3?`\
+https://nytimes.com/athletic/6307728/2025/04/26/vikings-2025-nfl-draft-best-available/
+
 **In Trey Amos, Commanders again get a player atop their board on Day 2 of NFL Draft**\
 `GM Adam Peters shared that the 2024 first-team All-SEC defender was in consideration with Washington's first-round selection. `\
 https://nytimes.com/athletic/6311339/2025/04/26/commanders-trey-amos-nfl-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6293991/2025/04/26/panthers-nfl-draft-picks-2025-gr
 **College football stars who shouldn't still be available entering NFL Draft Day 3**\
 `There have been 102 picks made in the 2025 NFL Draft. Plenty of talented prospects are still waiting, though, including the 10 listed here.`\
 https://nytimes.com/athletic/6306345/2025/04/26/nfl-draft-2025-sleepers-day-3/
-
-**The New York Times in Print for Saturday, April 26, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/04/26/todays-new-york-times
 

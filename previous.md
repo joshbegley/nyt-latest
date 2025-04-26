@@ -1,3 +1,27 @@
+**Bills Day 3 mock draft: Trading up for a falling value, targeting special teams**\
+`The Bills will be hoping to find some Day 3 gems.`\
+https://nytimes.com/athletic/6311203/2025/04/26/buffalo-bills-mock-draft-day-3-nfl/
+
+**In Trey Amos, Commanders again get a player atop their board on Day 2 of NFL Draft**\
+`GM Adam Peters shared that the 2024 first-team All-SEC defender was in consideration with Washington's first-round selection. `\
+https://nytimes.com/athletic/6311339/2025/04/26/commanders-trey-amos-nfl-draft/
+
+**49ers add beef — and ferocity — to middle of their defense on Day 2 of NFL Draft**\
+`All four of their picks so far addressed a big problem at the end of the 2024 season — the defense had trouble stopping the run.`\
+https://nytimes.com/athletic/6311507/2025/04/26/49ers-nfl-draft-beef-defense/
+
+**How the Bengals altered their process to — perhaps — finally fix the OL drafting problem**\
+`Third-rounder Dylan Fairchild, a guard from Georgia, feels his connection with O-line coach Scott Peters is "a match made in heaven."`\
+https://nytimes.com/athletic/6311435/2025/04/26/dylan-fairchild-bengals-nfl-draft/
+
+**In drafting Mason Taylor, Jets transform his father from longtime foe into biggest fan**\
+`On Friday night, the Jets drafted the star tight end son of a former Dolphins tormenter.`\
+https://nytimes.com/athletic/6311338/2025/04/26/mason-taylor-draft-new-york-jets-jason-taylor-father/
+
+**As Tensions Rise With Pakistan, a Moment of Truth for India’s Military**\
+`The risk of exposing a military still being modernized may constrain Prime Minister Narendra Modi as he weighs retaliation for a terrorist attack.`\
+https://nytimes.com/2025/04/26/world/asia/india-pakistan-military-kashmir-attack.html
+
 **Bouchard, Oilers beat Kings in high-scoring Game 3**\
 `Two Edmonton goals scored 10 second apart in the third period made it a 2-1 series.`\
 https://nytimes.com/athletic/6290495/2025/04/26/oilers-kings-nhl-playoffs-2025-game-3-takeaways/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6306345/2025/04/26/nfl-draft-2025-sleepers-day-3/
 **The New York Times in Print for Saturday, April 26, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/04/26/todays-new-york-times
-
-**Why hasn't Shedeur Sanders been drafted yet? It's complicated**\
-`Could Sanders go undrafted? It’s wild to think that’s even a consideration, but it’s impossible to rule out any outcome at this point. `\
-https://nytimes.com/athletic/6311419/2025/04/26/why-shedeur-sanders-not-drafted-yet/
-
-**Panthers double down at OLB. Is Clowney's Carolina stint coming to an end?**\
-`Dan Morgan selected a pair of edge rushers in the second and third rounds, leading to speculation about the veteran's future with the team. `\
-https://nytimes.com/athletic/6311405/2025/04/26/panthers-nfl-draft-scourton-umanmielen-clowney/
-
-**Bills draft: T.J. Sanders on 'exhilaration' of making plays, Landon Jackson is a dog, and more**\
-`The Bills added a defensive tackle and an edge rusher on Day 2.`\
-https://nytimes.com/athletic/6311117/2025/04/26/bills-draft-tj-sanders-landon-jackson/
-
-**Creativity and multiplicity: Ben Johnson's influence defines Day 2 of NFL Draft for Bears**\
-`The Bears took receiver Luther Burden III in the second round Friday night. Can he be the Bears' version of Amon-Ra St. Brown?`\
-https://nytimes.com/athletic/6311269/2025/04/26/bears-nfl-draft-ben-johnson-influence/
-
-**Everyone is asking 'What is Atlanta doing?' again after Round 1 of the draft; Here's the answer**\
-`Atlanta has been the talk of the NFL Draft for the second consecutive year, but the Falcons believe they will be proven right in the end.`\
-https://nytimes.com/athletic/6311059/2025/04/26/nfl-draft-2025-atlanta-falcons/
-
-**Raiders trade down (twice) and address needs on Day 2 of the draft**\
-`The Raiders added a playmaker in wide receiver Jack Bech, a versatile DB in Darien Porter and a pair of offensive linemen.`\
-https://nytimes.com/athletic/6311358/2025/04/26/raiders-day-2-nfl-draft-2025-trades/
 
