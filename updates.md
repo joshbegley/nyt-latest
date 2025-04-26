@@ -1,3 +1,11 @@
+**See Who Attended Pope Francis’ Funeral**\
+`Explore a photo of world leaders who were at the funeral.`\
+https://nytimes.com/interactive/2025/04/26/world/europe/pope-francis-funeral-attendees-photo.html
+
+**Trump’s Blue Suit at Pope’s Funeral Draws Attention**\
+`President Trump’s choice stood out in a sea of world leaders and famous faces who were dressed in customary black.`\
+https://nytimes.com/2025/04/26/world/europe/trumps-blue-suit-at-popes-funeral-draws-attention.html
+
 **The 6 Very Best Duffle Bags **\
 `(No description)`\
 https://nytimes.com/card/2025/04/26/smarter-living/wirecutter/the-6-very-best-duffle-bags
