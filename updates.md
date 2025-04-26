@@ -1,3 +1,11 @@
+**Isabel Allende Understands How Fear Changes a Society**\
+`The beloved author left Chile at a time of great turmoil and has longed for the nation of her youth ever since.`\
+https://nytimes.com/2025/04/26/magazine/isabel-allende-interview.html
+
+**Isabel Allende Understands How Fear Changes a Society**\
+`The beloved author left Chile at a time of great turmoil and has longed for the nation of her youth ever since.`\
+https://nytimes.com/video/podcasts/100000010083596/isabel-allende-understands-how-fear-changes-a-society.html
+
 **What the Pope Told Me About Politics**\
 `My brief tour with Pope Francis, the diplomat of our times.`\
 https://nytimes.com/2025/04/26/magazine/pope-politics.html
