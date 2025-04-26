@@ -1,3 +1,7 @@
+**Lavia 'one of the best midfielders' says Maresca: 'He's unbelievable'**\
+`Lavia played 67 minutes at the base of Maresca’s midfield at Stamford Bridge in his first Chelsea start since January.`\
+https://nytimes.com/athletic/6312345/2025/04/26/romeo-lavia-chelsea-maresca/
+
 **Steelers NFL Draft hub: Picks, grades, fits and scouting reports**\
 `Everything you need to know about the Steelers' 2025 draft class, from Round 1 through Round 7.`\
 https://nytimes.com/athletic/6302548/2025/04/26/steelers-nfl-draft-picks-2025-grades-scouting-reports/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/26/world/europe/kielce-gussie-pope-francis-funeral.h
 **Massive Iran Port Explosion Kills 4 and Injures Hundreds**\
 `There was no immediate indication that the blast was caused by sabotage or a deliberate attack. State media said it was likely caused by containers of chemicals catching fire.`\
 https://nytimes.com/2025/04/26/world/middleeast/iran-port-explosion-bandar-abbas.html
-
-**Iran Reports Several Killed and Hundreds Injured in Huge Port Blast**\
-`A massive explosion on Saturday at the Iranian port of Shahid Rajaee in Bandar Abbas killed several people and injured hundreds, according to state media. The exact cause of the blast was not immediately clear, although there was no suggestion of an attack or sabotage.`\
-https://nytimes.com/video/world/middleeast/100000010132178/iran-port-explosion.html
 

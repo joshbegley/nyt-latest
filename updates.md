@@ -1,3 +1,7 @@
+**Lavia 'one of the best midfielders' says Maresca: 'He's unbelievable'**\
+`Lavia played 67 minutes at the base of Maresca’s midfield at Stamford Bridge in his first Chelsea start since January.`\
+https://nytimes.com/athletic/6312345/2025/04/26/romeo-lavia-chelsea-maresca/
+
 **Steelers NFL Draft hub: Picks, grades, fits and scouting reports**\
 `Everything you need to know about the Steelers' 2025 draft class, from Round 1 through Round 7.`\
 https://nytimes.com/athletic/6302548/2025/04/26/steelers-nfl-draft-picks-2025-grades-scouting-reports/
