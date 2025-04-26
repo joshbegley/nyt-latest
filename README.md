@@ -1,3 +1,11 @@
+**Security is tight at St. Peter’s Square and across Rome.**\
+`By Elisabetta Povoledo`\
+https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/security-is-tight-at-st-peters-square-and-across-rome
+
+**The Steelers' draft, even without a QB, has unfolded exactly how they hoped so far**\
+`The Steelers never expected to draft a starting QB this year. Instead, they've gotten great value at two positions they most prioritized.`\
+https://nytimes.com/athletic/6311630/2025/04/26/steelers-nfl-draft-kaleb-johnson-no-quarterback/
+
 **Hurzeler wants Brighton fans to direct criticism at him, not players**\
 `Supporters in the away end sang, "You don’t know what you’re doing!" after Hurzeler's substitutions at Brentford last weekend.`\
 https://nytimes.com/athletic/6308728/2025/04/26/fabian-hurzeler-brighton-fans/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6307715/2025/04/26/giants-2025-nfl-draft-best-avail
 **NFL Draft best available players for Dallas Cowboys: Damien Martinez, Jordan Phillips**\
 `Entering the final day of the draft, the Cowboys still haven't addressed running back or receiver. What are their priorities on Day 3?`\
 https://nytimes.com/athletic/6306391/2025/04/26/cowboys-2025-nfl-draft-best-available/
-
-**Cowboys NFL Draft hub: Picks, grades, fits and scouting reports**\
-`Follow here throughout the draft for analysis on each Cowboys' pick over the three-day NFL Draft.`\
-https://nytimes.com/athletic/6294026/2025/04/26/cowboys-nfl-draft-picks-2025-grades-scouting-reports/
-
-**How picking WR Tai Felton on Day 2 shows Vikings' confidence in their secondary**\
-`The Vikings not pursuing a safety thus far in the draft seems to suggest Theo Jackson will get a shot at a starting role in 2025.`\
-https://nytimes.com/athletic/6311544/2025/04/26/vikings-nfl-draft-tai-felton-secondary/
 
