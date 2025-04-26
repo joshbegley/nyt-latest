@@ -1,3 +1,7 @@
+**The funeral music is largely being sung in Gregorian chant.**\
+`By Zachary Woolfe`\
+https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/the-funeral-music-is-largely-being-sung-in-gregorian-chant
+
 **Who is presiding over the funeral?**\
 `Cardinal Giovanni Battista Re, dean of the College of Cardinals, is a 91-year-old Italian who has spent most of his career serving in the Roman curia.`\
 https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/who-is-presiding-over-the-funeral
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6299433/2025/04/26/chargers-nfl-draft-picks-2025-gr
 **With Day 2 picks, Chargers find specific fits into their roster puzzle**\
 `The additions of Tre Harris and Jamaree Caldwell bolster both the receiver room and the defensive line, respectively. `\
 https://nytimes.com/athletic/6311880/2025/04/26/chargers-nfl-draft-tre-harris-jamaree-caldwell/
-
-**Who Is Sitting Where at Pope Francis’ Funeral?**\
-`With dozens of foreign delegations attending, some from hostile countries, the funeral’s seating arrangements presented a possible nightmare for Vatican planners.`\
-https://nytimes.com/2025/04/26/world/europe/pope-francis-funeral-seating.html
 

@@ -1,3 +1,7 @@
+**The funeral music is largely being sung in Gregorian chant.**\
+`By Zachary Woolfe`\
+https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/the-funeral-music-is-largely-being-sung-in-gregorian-chant
+
 **Who is presiding over the funeral?**\
 `Cardinal Giovanni Battista Re, dean of the College of Cardinals, is a 91-year-old Italian who has spent most of his career serving in the Roman curia.`\
 https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/who-is-presiding-over-the-funeral
