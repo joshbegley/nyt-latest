@@ -1,3 +1,15 @@
+**Lightning break out in Game 3 to cut series lead to 2-1 Panthers**\
+`Andrei Vasilevskiy rose to the occasion in Game 3 of the Battle of Florida, backstopping the desperate Lightning to a 5-1 victory.`\
+https://nytimes.com/athletic/6312818/2025/04/26/panthers-lightning-nhl-playoffs-2025-game-3-takeaways/
+
+**Trump says Putin may not want peace and may need to be ‘dealt with differently.’**\
+`By Tim Balk`\
+https://nytimes.com/live/2025/04/26/us/trump-news/trump-says-putin-may-not-want-peace-and-may-need-to-be-dealt-with-differently
+
+**Eagles draft QB Kyle McCord: How he fits, pick analysis and scouting intel**\
+`After rewriting the record books at Syracuse, McCord enters the NFL as a true pocket passer ideal for a QB-friendly offense. `\
+https://nytimes.com/athletic/6312419/2025/04/26/kyle-mccord-eagles-nfl-draft/
+
 **Palace had 'no doubt' on Glasner despite slow start to season**\
 `Palace won just 1 of their opening 13 Premier League matches this term but are now just one game away from their first ever major trophy.`\
 https://nytimes.com/athletic/6312914/2025/04/26/crystal-palace-glasner-fa-cup-final/
