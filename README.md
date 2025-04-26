@@ -1,3 +1,7 @@
+**Cowboys draft CB Shavon Revel Jr.: How he fits, pick grade and scouting intel**\
+`Revel is the first player drafted out of East Carolina since tackle D'Ante Smith in 2021 and the school's first DB to be taken since 1996.`\
+https://nytimes.com/athletic/6271466/2025/04/25/shavon-revel-jr-cowboys-nfl-draft/
+
 **Canadiens turn tide vs. Capitals in Game 3 at electric Bell Centre: Takeaways**\
 `The game featured a major brawl and both starting goalies leaving with injuries in playoff hockey's return to Montreal.`\
 https://nytimes.com/athletic/6310539/2025/04/25/capitals-canadiens-nhl-playoffs-2025-game-3-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6310842/2025/04/25/trey-amos-commanders-nfl-draft/
 **Broncos draft RB RJ Harvey: How he fits, pick grade and scouting intel**\
 `Harvey rushed for 1,577 yards and 22 touchdowns and added 20 catches for 267 yards and three more scores.`\
 https://nytimes.com/athletic/6310840/2025/04/25/rj-harvey-broncos-nfl-draft/
-
-**Nationals turn triple play in walk-off win against Mets thanks to umpire's mistake**\
-`The Nationals turned their first triple play during a home game, thanks to missed call that wasn't reviewable. `\
-https://nytimes.com/athletic/6310747/2025/04/25/nationals-mets-triple-play/
 
