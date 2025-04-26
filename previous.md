@@ -1,9 +1,29 @@
+**Steelers still hope to add Aaron Rodgers, might draft developmental QB**\
+`“He does want to come here, so I do think we may get word soon,” Art Rooney II said during the draft on Friday.`\
+https://nytimes.com/athletic/6311253/2025/04/26/aaron-rodgers-steelers-nfl-draft-art-rooney/
+
+**Twins lose Luke Keaschall to fractured forearm, trade for Kody Clemens**\
+`There's no initial timetable to return for Keaschall, who has been extraordinary in his first week with the Twins.`\
+https://nytimes.com/athletic/6311283/2025/04/26/twins-luke-keaschall-broken-arm-kody-clemens/
+
+**2025 NFL Draft's 1st round becomes second-most watched ever**\
+`Thursday's broadcast was second only to the 2020 first round which took place during the COVID-19 pandemic.`\
+https://nytimes.com/athletic/6311348/2025/04/26/nfl-draft-first-round-most-watched/
+
+**Listen: Who could replace Alexander-Arnold in Liverpool's leadership group?**\
+`Walk On discusses which player could step into a leadership role if Trent Alexander-Arnold were to leave Liverpool this summer`\
+https://nytimes.com/athletic/6299029/2025/04/26/liverpool-leadership-group-walk-on/
+
+**Graham Potter is using Tomas Soucek sparingly but he'd be wise not to overlook his quality**\
+`The Czech midfielder had previously been a near ever-present in West Ham line-ups and still offers plenty in opposition boxes`\
+https://nytimes.com/athletic/6304323/2025/04/26/tomas-soucek-west-ham-graham-potter/
+
 **NFL Draft best available players for Browns: Cameron Williams, Jalen Royals**\
 `A list of players Cleveland could consider entering Day 3 of the 2025 NFL Draft. `\
 https://nytimes.com/athletic/6307640/2025/04/26/browns-2025-nfl-draft-best-available/
 
-**Draft roundtable: Which Day 2 QB intrigues, where is Shedeur Sanders' best fit now?**\
-`The biggest question heading into Day 2 was where Shedeur Sanders would land. It was still the biggest question as Day 2 concluded.`\
+**Draft roundtable: Which Day 2 QB intrigues; where is Shedeur Sanders' best fit now?**\
+`The biggest question heading into Day 2 was where Sanders would land. It was still the biggest question as Day 2 concluded.`\
 https://nytimes.com/athletic/6311265/2025/04/26/draft-shedeur-sanders-saints-tyler-shough/
 
 **Pedri's passing playbook: Why he is Barca's 'pillar' and the man who makes them tick**\
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6305857/2025/04/26/pep-guardiola-wembley-stadium/
 **The remarkable season when Serie A was decided by a play-off (which could happen again)**\
 `In the league's entire history, Serie A has only been decided by a play-off once. This is the story of how it played out…`\
 https://nytimes.com/athletic/6301544/2025/04/26/serie-a-playoff-decider-inter-napoli/
-
-**Visiting the football stadium left in ruins after the Chernobyl disaster**\
-`On the 39th anniversary of the nuclear accident in Ukraine, an Athletic writer recalls a visit to the nearby home of FC Stroitel Pripyat`\
-https://nytimes.com/athletic/6141352/2025/04/26/chernoybl-the-lost-stadium/
-
-**Palace, Man City, Villa or Forest: Who does winning the FA Cup matter most to?**\
-`Aside from Pep Guardiola's City, this season's last four has an unfamiliar feel but all involved have their own motivation to lift the cup`\
-https://nytimes.com/athletic/6286473/2025/04/26/city-palace-forest-villa-fa-cup-semi/
-
-**Forest Q&A: How to win the tactical battle, who will play at right-back against Man City?**\
-`Paul Taylor and Nick Miller answer the key questions about Nottingham Forest ahead of Sunday's FA Cup semi-final`\
-https://nytimes.com/athletic/6309427/2025/04/26/nottingham-forest-fa-cup-manchester-city/
-
-**NFL Draft best available players for Green Bay: Jack Sawyer, Dorian Strong**\
-`Green Bay has emphasized offense so far with two WRs and a tackle. Saturday's focus could turn to defense.`\
-https://nytimes.com/athletic/6307531/2025/04/26/packers-2025-nfl-draft-best-available/
-
-**From scratch to hero, Simon Nemec lifts Devils past Hurricanes in 2OT Game 3: Takeaways**\
-`Nemec — a healthy scratch to start the series — flung a shot past Frederik Andersen for a 3-2 win that narrowed the series to 2-1.`\
-https://nytimes.com/athletic/6311030/2025/04/26/simon-nemec-nhl-playoffs-devils-hurricanes/
 
