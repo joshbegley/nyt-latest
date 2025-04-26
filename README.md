@@ -1,3 +1,7 @@
+**Chargers NFL Draft hub: Picks, grades, fits and scouting reports**\
+`Keep coming back throughout the draft for grades and expert analysis of each Chargers pick.`\
+https://nytimes.com/athletic/6299433/2025/04/26/chargers-nfl-draft-picks-2025-grades-scouting-reports/
+
 **With Day 2 picks, Chargers find specific fits into their roster puzzle**\
 `The additions of Tre Harris and Jamaree Caldwell bolster both the receiver room and the defensive line, respectively. `\
 https://nytimes.com/athletic/6311880/2025/04/26/chargers-nfl-draft-tre-harris-jamaree-caldwell/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6311738/2025/04/26/franz-wagner-magic-celtics-game-
 **The Cowboys have put together a strong draft, despite not filling biggest holes**\
 `Dallas hasn't drafted a running back or receiver, but its best-player-available strategy has gotten the Cowboys three instant contributors.`\
 https://nytimes.com/athletic/6311699/2025/04/26/cowboys-nfl-draft-donovan-ezeiruaku-shavon-revel/
-
-**NFL Draft best available players for Commanders: Devin Neal, Tory Horton**\
-`Washington enters Day 3 of the draft with three selections, one in the fourth round, one in the sixth and one in the seventh.`\
-https://nytimes.com/athletic/6307201/2025/04/26/commanders-2025-nfl-draft-best-available/
 
