@@ -1,3 +1,7 @@
+**The Pope’s Funeral**\
+`We are live from the Vatican.`\
+https://nytimes.com/2025/04/26/briefing/pope-francis-funeral.html
+
 **Francis opted for a simple tomb. Some predecessors, not so much.**\
 `By Elisabetta Povoledo`\
 https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/pope-francis-tomb-burial
