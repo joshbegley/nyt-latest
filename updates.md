@@ -1,3 +1,15 @@
+**Dolphins draft QB Quinn Ewers: How he fits, pick analysis and scouting intel**\
+`Ewers went 21-4 and led Texas to back-to-back College Football Playoff appearances in his final two collegiate seasons.`\
+https://nytimes.com/athletic/6279078/2025/04/26/quinn-ewers-dolphins-nfl-draft/
+
+**49ers draft QB Kurtis Rourke: How he fits, pick grade and scouting intel**\
+`Rourke set the Indiana single-season school record with 31 touchdowns while leading the Hoosiers to the College Football Playoff.`\
+https://nytimes.com/athletic/6313424/2025/04/26/kurtis-rourke-49ers-nfl-draft/
+
+**With Shedeur Sanders pick, Browns show again they aren't afraid of big personalities**\
+`Was Sanders the "best player available" or a pick Jimmy Haslam forced on the team? Regardless, the Browns have another shiny sports car.`\
+https://nytimes.com/athletic/6313218/2025/04/26/shedeur-sanders-browns-nfl-draft/
+
 **Numbers Game**\
 `Jacob Reed’s debut Sunday puzzle might turn you around.`\
 https://nytimes.com/2025/04/26/crosswords/daily-puzzle-2025-04-27.html
