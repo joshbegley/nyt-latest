@@ -1,3 +1,7 @@
+**Celtics-Magic has been a physical battle. Jaylen Brown thinks the fight's just begun**\
+`Used to playing the pretty game, Boston has run into an opponent hellbent on producing an ugly one.`\
+https://nytimes.com/athletic/6311658/2025/04/26/celtics-magic-physicality-nba-playoffs/
+
 **Why Falcons, 49ers forfeited their fifth-round picks in the draft**\
 `Atlanta and San Francisco do not have their own Round 5 selections due to different violations, but the 49ers have since added two fifths.`\
 https://nytimes.com/athletic/6278740/2025/04/26/falcons-49ers-forfeit-fifth-round-pick-nfl-draft/
