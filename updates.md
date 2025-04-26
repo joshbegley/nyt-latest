@@ -1,3 +1,7 @@
+**Chargers NFL Draft hub: Picks, grades, fits and scouting reports**\
+`Keep coming back throughout the draft for grades and expert analysis of each Chargers pick.`\
+https://nytimes.com/athletic/6299433/2025/04/26/chargers-nfl-draft-picks-2025-grades-scouting-reports/
+
 **With Day 2 picks, Chargers find specific fits into their roster puzzle**\
 `The additions of Tre Harris and Jamaree Caldwell bolster both the receiver room and the defensive line, respectively. `\
 https://nytimes.com/athletic/6311880/2025/04/26/chargers-nfl-draft-tre-harris-jamaree-caldwell/
