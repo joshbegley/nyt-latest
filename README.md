@@ -1,3 +1,11 @@
+**Canadiens and Capitals playoff notebook: Backup goalies set to take center stage in Game 4?**\
+`Also in the notebook, the Capitals' top two forward lines are getting buried and Canadiens rookie Ivan Demidov's comfort level is growing. `\
+https://nytimes.com/athletic/6313577/2025/04/26/canadiens-capitals-nhl-playoffs-goalie-injury/
+
+**Colts 2025 NFL Draft takeaways: Tyler Warren a perfect fit for Indy; what's the plan at RG?**\
+`The Colts found great value in the fifth round with running back DJ Giddens, but was taking cornerback Justin Walley in the third a reach?`\
+https://nytimes.com/athletic/6313093/2025/04/26/indianapolis-colts-2025-nfl-draft-picks-takeaways/
+
 **Jets 2025 NFL Draft takeaways: They went chalk — and that might not be a bad thing**\
 `Perhaps they could have chased a defensive tackle or a more sure-handed receiver, but the Jets checked a lot of boxes on draft weekend.`\
 https://nytimes.com/athletic/6313286/2025/04/26/new-york-jets-2025-nfl-draft-picks-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6312570/2025/04/26/philadelphia-eagles-2025-nfl-dra
 **NFL Draft 2025 best undrafted free agents, including Xavier Restrepo, Cobee Bryant**\
 `Will there be any diamonds in the rough among this year's UDFA class?`\
 https://nytimes.com/athletic/6309834/2025/04/26/nfl-draft-2025-best-undrafted-free-agents/
-
-**Tyler Herro wanted to be the No. 1 option. Now he's learning how hard it is**\
-`Herro had to ascend to No. 1 option after the Jimmy Butler trade and is still figuring it out: "Obviously, I know I need Jimmy to win."`\
-https://nytimes.com/athletic/6313427/2025/04/26/tyler-herro-heat-cavaliers-jimmy-butler/
-
-**Mariners starter Logan Gilbert placed on IL with right elbow flexor strain**\
-`Gilbert left his start on Friday with right forearm tightness. He finished sixth in the AL Cy Young Award voting in 2024.`\
-https://nytimes.com/athletic/6313394/2025/04/26/mariners-logan-gilbert-injury/
 
