@@ -1,5 +1,9 @@
+**Bills Day 3 mock draft: Trading up for a falling value, targeting special teams**\
+`The Bills will be hoping to find some Day 3 gems.`\
+https://nytimes.com/athletic/6311203/2025/04/26/buffalo-bills-mock-draft-day-3-nfl/
+
 **In Trey Amos, Commanders again get a player atop their board on Day 2 of NFL Draft**\
-`Washington GM Adam Peters shared that the 2024 first-team All-SEC defender was in consideration with the team’s first-round selection. `\
+`GM Adam Peters shared that the 2024 first-team All-SEC defender was in consideration with Washington's first-round selection. `\
 https://nytimes.com/athletic/6311339/2025/04/26/commanders-trey-amos-nfl-draft/
 
 **49ers add beef — and ferocity — to middle of their defense on Day 2 of NFL Draft**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6306345/2025/04/26/nfl-draft-2025-sleepers-day-3/
 **The New York Times in Print for Saturday, April 26, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/04/26/todays-new-york-times
-
-**Why hasn't Shedeur Sanders been drafted yet? It's complicated**\
-`Could Sanders go undrafted? It’s wild to think that’s even a consideration, but it’s impossible to rule out any outcome at this point. `\
-https://nytimes.com/athletic/6311419/2025/04/26/why-shedeur-sanders-not-drafted-yet/
 
