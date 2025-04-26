@@ -1,3 +1,7 @@
+**Cowboys draft edge Donovan Ezeiruaku: How he fits, pick grade and scouting intel**\
+`Ezeiruaku was described as "a monster" by an opposing coach and was the FBS leader in sacks per game (1.38) in 2024 at Boston College.`\
+https://nytimes.com/athletic/6273716/2025/04/25/donovan-ezeiruaku-cowboys-nfl-draft/
+
 **Jets draft TE Mason Taylor: How he fits, pick grade and scouting intel**\
 `The most productive tight end in LSU history has NFL bloodlines as the son of Pro Football Hall of Fame defensive end Jason Taylor.`\
 https://nytimes.com/athletic/6264381/2025/04/25/mason-taylor-jets-nfl-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6273632/2025/04/25/quinshon-judkins-browns-nfl-draf
 **Seahawks draft safety Nick Emmanwori: How he fits, draft grade and scouting intel**\
 `The South Carolina defensive standout was one of three college players to return two interceptions for touchdowns in 2024.`\
 https://nytimes.com/athletic/6264622/2025/04/25/nick-emmanwori-seahawks-nfl-draft/
-
-**Judge Blocks Trump Order Ending Union Protections for Federal Workers**\
-`An order signed by President Trump last month was aimed at stripping collective bargaining rights from hundreds of thousands of federal workers.`\
-https://nytimes.com/2025/04/25/us/politics/judge-blocks-trump-order-ending-union-protections-for-federal-workers.html
 
