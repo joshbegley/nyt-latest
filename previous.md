@@ -1,3 +1,15 @@
+**49ers draft Alfred Collins: How he fits, pick grade and scouting intel**\
+`Collins spent one year as a full-time starter but was a durable five-year player who appeared in 64 games for the Longhorns. `\
+https://nytimes.com/athletic/6310367/2025/04/25/alfred-collins-49ers-nfl-draft/
+
+**Colts draft edge rusher JT Tuimoloau: How he fits, pick grade and scouting intel**\
+`Tuimoloau led the Big Ten in sacks in his final season at Ohio State, one that ended with a national championship.`\
+https://nytimes.com/athletic/6273723/2025/04/25/jt-tuimoloau-colts-nfl-draft/
+
+**Cowboys draft edge Donovan Ezeiruaku: How he fits, pick grade and scouting intel**\
+`Ezeiruaku was described as "a monster" by an opposing coach and was the FBS leader in sacks per game (1.38) in 2024 at Boston College.`\
+https://nytimes.com/athletic/6273716/2025/04/25/donovan-ezeiruaku-cowboys-nfl-draft/
+
 **Jets draft TE Mason Taylor: How he fits, pick grade and scouting intel**\
 `The most productive tight end in LSU history has NFL bloodlines as the son of Pro Football Hall of Fame defensive end Jason Taylor.`\
 https://nytimes.com/athletic/6264381/2025/04/25/mason-taylor-jets-nfl-draft/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6309122/2025/04/25/nfl-draft-grades-rounds-2-3-2025
 **Ukrainian Peace Plan Hints at Concessions, but Major Obstacles Remain**\
 `Officials in Kyiv plan to deliver their proposal to President Trump’s team, after rejecting a White House plan that would have given the Kremlin much of what it wants.`\
 https://nytimes.com/2025/04/25/world/europe/ukraine-peace-counterproposal.html
-
-**Browns draft RB Quinshon Judkins: How he fits, pick grade and scouting intel**\
-`Judkins led Ohio State's national championship team in rushing yards (1,060) and rushing touchdowns (14) last season.`\
-https://nytimes.com/athletic/6273632/2025/04/25/quinshon-judkins-browns-nfl-draft/
-
-**Seahawks draft safety Nick Emmanwori: How he fits, draft grade and scouting intel**\
-`The South Carolina defensive standout was one of three college players to return two interceptions for touchdowns in 2024.`\
-https://nytimes.com/athletic/6264622/2025/04/25/nick-emmanwori-seahawks-nfl-draft/
-
-**Judge Blocks Trump Order Ending Union Protections for Federal Workers**\
-`An order signed by President Trump last month was aimed at stripping collective bargaining rights from hundreds of thousands of federal workers.`\
-https://nytimes.com/2025/04/25/us/politics/judge-blocks-trump-order-ending-union-protections-for-federal-workers.html
 
