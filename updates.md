@@ -1,3 +1,11 @@
+**Decoding the Vatican: Key Terms in the Papal Transition**\
+`From “camerlengo” to white smoke, here’s what to know about the words and phrases that guide the process after a pope dies.`\
+https://nytimes.com/2025/04/26/world/europe/pope-death-election-words-definition.html
+
+**Newcastle's Joelinton to see specialist over knee injury**\
+`The 28-year-old missed Newcastle's Premier League clash with Ipswich Town on Saturday.`\
+https://nytimes.com/athletic/6312156/2025/04/26/joelinton-newcastle-knee-injury-update/
+
 **Browns NFL Draft hub: Picks, grades, fits and scouting reports**\
 `Keeping you up to date on all of Cleveland's selections throughout the three-day draft. `\
 https://nytimes.com/athletic/6302161/2025/04/26/browns-nfl-draft-picks-2025-grades-scouting-reports/
