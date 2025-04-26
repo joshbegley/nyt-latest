@@ -1,5 +1,5 @@
 **Carlisle relegated for second successive season to end 20-year EFL stay**\
-`Mark Hughes's side 2-2 draw at Cheltenham Town was not enough for Carlisle, who have now suffered back-to-back relegations.`\
+`Mark Hughes's side's defeat against Cheltenham Town confirmed back-to-back relegations for the club.`\
 https://nytimes.com/athletic/6311950/2025/04/26/carlisle-united-relegated-league-two-efl/
 
 **The church’s attention now turns to its future.**\
