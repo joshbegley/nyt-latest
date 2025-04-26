@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6311621/2025/04/26/seahawks-nfl-draft-jalen-milroe-nick-emmanwori/
 
 **NFL Draft best available players for New York Giants: Ollie Gordon II and Jalen Rivers**\
-`After drafting Abdul Carter and Jaxson Dart in Round 1, the Giants only have one pick on Day 2. What should they do with it?`\
+`The Giants have four picks remaining entering Day 3 and have needs to address on the offensive line and in the RB room.`\
 https://nytimes.com/athletic/6307715/2025/04/26/giants-2025-nfl-draft-best-available/
 
 **NFL Draft best available players for Dallas Cowboys: Damien Martinez, Jordan Phillips**\
