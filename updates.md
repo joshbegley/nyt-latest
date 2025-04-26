@@ -1,3 +1,7 @@
+**U.S. Reverses Itself, Saying U.N.’s Gaza Agency Can Be Sued in New York**\
+`The Justice Department and the Manhattan U.S. attorney’s office told a judge that an immunity law did not apply. A group of Israelis had accused the agency of assisting Hamas.`\
+https://nytimes.com/2025/04/26/nyregion/us-reverses-position-gaza-unrwa-suit.html
+
 **Rashford out for 'some weeks' with hamstring injury - Emery**\
 `Rashford was not in Villa's matchday squad for their 3-0 defeat to Crystal Palace in the FA Cup semi-final on Saturday.`\
 https://nytimes.com/athletic/6312868/2025/04/26/marcus-rashford-injury-aston-villa/

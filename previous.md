@@ -1,3 +1,7 @@
+**U.S. Reverses Itself, Saying U.N.’s Gaza Agency Can Be Sued in New York**\
+`The Justice Department and the Manhattan U.S. attorney’s office told a judge that an immunity law did not apply. A group of Israelis had accused the agency of assisting Hamas.`\
+https://nytimes.com/2025/04/26/nyregion/us-reverses-position-gaza-unrwa-suit.html
+
 **Rashford out for 'some weeks' with hamstring injury - Emery**\
 `Rashford was not in Villa's matchday squad for their 3-0 defeat to Crystal Palace in the FA Cup semi-final on Saturday.`\
 https://nytimes.com/athletic/6312868/2025/04/26/marcus-rashford-injury-aston-villa/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6302793/2025/04/26/chiefs-nfl-draft-picks-2025-grad
 **Pope Francis, Who Sought a More Pastoral Church, Laid to Rest in a Majestic Ceremony**\
 `The funeral drew world leaders, including President Trump and President Volodymyr Zelensky of Ukraine, who had a talk in the Basilica.`\
 https://nytimes.com/2025/04/26/world/europe/pope-francis-funeral-vatican-catholic-church.html
-
-**Washington Parties On, Without Trump or Big Celebrities**\
-`Drinks in hand, anxious media people braved a series of events in the nights before the annual White House Correspondents’ Association dinner.`\
-https://nytimes.com/2025/04/26/style/white-house-correspondents-dinner-parties.html
 

@@ -31,7 +31,7 @@ https://nytimes.com/2025/04/26/nyregion/new-york-city-roommates.html
 https://nytimes.com/athletic/6312436/2025/04/26/shedeur-sanders-browns-2025-nfl-draft-pick/
 
 **Chiefs NFL Draft hub: Picks, grades, fits and scouting reports**\
-`The Chiefs added a versatile wide receiver to the offense on Saturday in Utah State's Jalen Royals.`\
+`The Chiefs added Utah State wide receiver Jalen Royals and Oregon linebacker Jeffrey Bassa on Saturday.`\
 https://nytimes.com/athletic/6302793/2025/04/26/chiefs-nfl-draft-picks-2025-grades-scouting-reports/
 
 **Pope Francis, Who Sought a More Pastoral Church, Laid to Rest in a Majestic Ceremony**\
