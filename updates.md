@@ -1,3 +1,11 @@
+**NFL Draft picks chose their walkout songs. Here's why each individual track fits**\
+`Fifteen players selected walkout songs for when their names were called at the 2025 NFL Draft. The Athletic guessed why each song fit.`\
+https://nytimes.com/athletic/6307367/2025/04/25/nfl-draft-walkout-songs-music/
+
+**NBA takeaways: Magic, Bucks cut first-round series deficits to 2-1**\
+`The Athletic has you covered with takeaways from all the NBA playoff action Friday.`\
+https://nytimes.com/athletic/6310272/2025/04/25/nba-playoffs-celtics-magic-pacers-bucks-lakers-timberwolves/
+
 **2-Year-Old U.S. Citizen Was Deported ‘With No Meaningful Process,’ Judge Suspects**\
 `A federal judge in Louisiana said the deportation of the child to Honduras with her mother, even though her father had sought an emergency petition, appeared to be “illegal and unconstitutional.”`\
 https://nytimes.com/2025/04/25/us/politics/us-citizen-deported.html

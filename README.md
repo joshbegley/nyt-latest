@@ -1,9 +1,13 @@
+**Seahawks draft Alabama QB Jalen Milroe: How he fits, pick grade and scouting intel**\
+`An explosive 6-foot-2 playmaker with tantalizing, dual-threat potential, Milroe went 21-6 at Alabama after taking over for Bryce Young.`\
+https://nytimes.com/athletic/6285119/2025/04/25/jalen-milroe-seahawks-nfl-draft/
+
 **NFL Draft picks chose their walkout songs. Here's why each individual track fits**\
 `Fifteen players selected walkout songs for when their names were called at the 2025 NFL Draft. The Athletic guessed why each song fit.`\
 https://nytimes.com/athletic/6307367/2025/04/25/nfl-draft-walkout-songs-music/
 
 **2-Year-Old U.S. Citizen Was Deported ‘With No Meaningful Process,’ Judge Suspects**\
-`A federal judge in Louisiana said the deportation of the child to Honduras with her mother, even though her father had sought an emergency petition, appeared to be “illegal and unconstitutional.”`\
+`A federal judge in Louisiana said the deportation of the child to Honduras with her mother, even though her father had filed an emergency petition, appeared to be “illegal and unconstitutional.”`\
 https://nytimes.com/2025/04/25/us/politics/us-citizen-deported.html
 
 **Patriots draft WR Kyle Williams: How he fits, pick grade and scouting intel**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/25/pageoneplus/quote-of-the-day-superfund-aid-sought
 **Texans draft WR Jaylin Noel: How he fits, pick grade and scouting intel**\
 `A three-year starter for the Cyclones, Noel led his team in receiving yards as a senior in 2024.`\
 https://nytimes.com/athletic/6284972/2025/04/25/jaylin-noel-texans-nfl-draft/
-
-**Cowboys draft CB Shavon Revel Jr.: How he fits, pick grade and scouting intel**\
-`Revel is the first player drafted out of East Carolina since tackle D'Ante Smith in 2021 and the school's first DB to be taken since 1996.`\
-https://nytimes.com/athletic/6271466/2025/04/25/shavon-revel-jr-cowboys-nfl-draft/
 
