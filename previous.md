@@ -1,3 +1,19 @@
+**Bears draft DT Shemar Turner: How he fits, draft grade and scouting intel**\
+`Turner is the first draft pick for new defensive coordinator Dennis Allen’s unit and joins newcomers Grady Jarrett and Dayo Odeyingbo. `\
+https://nytimes.com/athletic/6310992/2025/04/25/shemar-turner-bears-nfl-draft/
+
+**Steelers draft RB Kaleb Johnson: How he fits, pick grade and scouting intel**\
+`Johnson rushed for 1,537 yards and 21 touchdowns last season at Iowa and was a consensus All-American selection.`\
+https://nytimes.com/athletic/6273462/2025/04/25/kaleb-johnson-steelers-nfl-draft/
+
+**Quote of the Day: Superfund Aid Sought for Sludge on 10,000 Acres of Fields**\
+`Quotation of the Day for Saturday, April 26, 2025.`\
+https://nytimes.com/2025/04/25/pageoneplus/quote-of-the-day-superfund-aid-sought-for-sludge-on-10000-acres-of-fields.html
+
+**Texans draft WR Jaylin Noel: How he fits, pick grade and scouting intel**\
+`A three-year starter for the Cyclones, Noel led his team in receiving yards as a senior in 2024.`\
+https://nytimes.com/athletic/6284972/2025/04/25/jaylin-noel-texans-nfl-draft/
+
 **Cowboys draft CB Shavon Revel Jr.: How he fits, pick grade and scouting intel**\
 `Revel is the first player drafted out of East Carolina since tackle D'Ante Smith in 2021 and the school's first DB to be taken since 1996.`\
 https://nytimes.com/athletic/6271466/2025/04/25/shavon-revel-jr-cowboys-nfl-draft/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6310894/2025/04/25/omarr-norman-lott-chiefs-nfl-dra
 **Lightning's Brandon Hagel suspended 1 game for hit on Panthers' Aleksander Barkov**\
 `Hagel was assessed a five-minute major penalty following a review by officials in Game 2.`\
 https://nytimes.com/athletic/6309585/2025/04/25/nhl-suspension-lightning-brandon-hagel-hit-injury/
-
-**Virginia Giuffre, Voice in Epstein Sex Trafficking Scandal, Dies at 41**\
-`She accused Jeffrey Epstein and his co-conspirator, Ghislaine Maxwell, of recruiting her to join their sex trafficking ring and sued Prince Andrew for sexual assault.`\
-https://nytimes.com/2025/04/25/us/virginia-giuffre-dead.html
-
-**Why a Wisconsin Judge Was Arrested by the F.B.I.**\
-`F.`\
-https://nytimes.com/video/us/politics/100000010130874/why-a-wisconsin-judge-was-arrested-by-the-fbi.html
-
-**Commanders draft CB Trey Amos: How he fits, pick grade and scouting intel**\
-`Amos finished his final college season at Ole Miss and had three interceptions while being named a first-team All-SEC performer. `\
-https://nytimes.com/athletic/6310842/2025/04/25/trey-amos-commanders-nfl-draft/
-
-**Broncos draft RB RJ Harvey: How he fits, pick grade and scouting intel**\
-`Harvey rushed for 1,577 yards and 22 touchdowns and added 20 catches for 267 yards and three more scores.`\
-https://nytimes.com/athletic/6310840/2025/04/25/rj-harvey-broncos-nfl-draft/
 
