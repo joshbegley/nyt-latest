@@ -1,3 +1,7 @@
+**Texans draft WR Jaylin Noel: How he fits, pick grade and scouting intel**\
+`A three-year starter for the Cyclones, Noel led his team in receiving yards as a senior in 2024.`\
+https://nytimes.com/athletic/6284972/2025/04/25/jaylin-noel-texans-nfl-draft/
+
 **Cowboys draft CB Shavon Revel Jr.: How he fits, pick grade and scouting intel**\
 `Revel is the first player drafted out of East Carolina since tackle D'Ante Smith in 2021 and the school's first DB to be taken since 1996.`\
 https://nytimes.com/athletic/6271466/2025/04/25/shavon-revel-jr-cowboys-nfl-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010130874/why-a-wisconsin-judge-was-
 **Commanders draft CB Trey Amos: How he fits, pick grade and scouting intel**\
 `Amos finished his final college season at Ole Miss and had three interceptions while being named a first-team All-SEC performer. `\
 https://nytimes.com/athletic/6310842/2025/04/25/trey-amos-commanders-nfl-draft/
-
-**Broncos draft RB RJ Harvey: How he fits, pick grade and scouting intel**\
-`Harvey rushed for 1,577 yards and 22 touchdowns and added 20 catches for 267 yards and three more scores.`\
-https://nytimes.com/athletic/6310840/2025/04/25/rj-harvey-broncos-nfl-draft/
 
