@@ -1,3 +1,15 @@
+**Report: Mets bring back left-handed reliever Brooks Raley on 1-year deal**\
+`Raley, who had Tommy John surgery last year, could return for New York sometime late this summer.`\
+https://nytimes.com/athletic/6310572/2025/04/25/new-york-mets-brooks-raley-contract/
+
+**Texans draft OT Aireontae Ersery: How he fits, pick grade and scouting intel**\
+`The 6-foot-6, 331-pound Ersery started each of the final 38 games of his college career at left tackle for Minnesota.`\
+https://nytimes.com/athletic/6273683/2025/04/25/aireontae-ersery-texans-nfl-draft/
+
+**Cardinals draft CB Will Johnson: How he fits, pick grade and scouting intel**\
+`The two-time All-American cornerback won a national championship and had 68 tackles and nine interceptions in 32 games at Michigan.`\
+https://nytimes.com/athletic/6271294/2025/04/25/will-johnson-arizona-cardinals-nfl-draft/
+
 **49ers draft Alfred Collins: How he fits, pick grade and scouting intel**\
 `Collins spent one year as a full-time starter but was a durable five-year player who appeared in 64 games for the Longhorns. `\
 https://nytimes.com/athletic/6310367/2025/04/25/alfred-collins-49ers-nfl-draft/
