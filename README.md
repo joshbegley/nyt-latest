@@ -1,3 +1,15 @@
+**The Seahawks couldn't resist 'unique' Jalen Milroe, adding to a talented class**\
+`RENTON, Wash.`\
+https://nytimes.com/athletic/6311621/2025/04/26/seahawks-nfl-draft-jalen-milroe-nick-emmanwori/
+
+**Cowboys NFL Draft hub: Picks, grades, fits and scouting reports**\
+`Follow here throughout the draft for analysis on each Cowboys' pick over the three-day NFL Draft.`\
+https://nytimes.com/athletic/6294026/2025/04/26/cowboys-nfl-draft-picks-2025-grades-scouting-reports/
+
+**How picking WR Tai Felton on Day 2 shows Vikings' confidence in their secondary**\
+`The Vikings not pursuing a safety thus far in the draft seems to suggest Theo Jackson will get a shot at a starting role in 2025.`\
+https://nytimes.com/athletic/6311544/2025/04/26/vikings-nfl-draft-tai-felton-secondary/
+
 **Reaching for QB Dillon Gabriel to close Day 2 of NFL Draft was baffling move by Browns**\
 `While selecting LB Carson Schwesinger, RB Quinshon Judkins and TE Harold Fannin Jr. can be justified, taking Gabriel was a complete stunner.`\
 https://nytimes.com/athletic/6311305/2025/04/26/browns-quarterback-dillon-gabriel-nfl-draft/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6311215/2025/04/26/giants-nfl-draft-defense-quarter
 **Chiefs get defensive on Day 2 of the draft, add youthful energy to their pass rush**\
 `The Chiefs defense has been carrying a bigger load in recent years, but after the Super Bowl LIX loss, it needed reinforcements.`\
 https://nytimes.com/athletic/6311530/2025/04/26/chiefs-nfl-draft-defensive-help/
-
-**NFL Draft Day 2 winners and losers: Shedeur Sanders down, Tyler Shough (and his dog) up**\
-`Has a highly rated player ever fallen this far? It’s hard to think of one.`\
-https://nytimes.com/athletic/6311353/2025/04/26/nfl-draft-2025-day-2-winners-losers/
-
-**NFL Draft best available players for New York Jets: Billy Bowman, Elic Ayomanor**\
-`The Jets have five picks to work with on Saturday.`\
-https://nytimes.com/athletic/6307954/2025/04/26/jets-2025-nfl-draft-best-available/
-
-**NFL Draft best available players for San Francisco 49ers: Marcus Mbow, Chase Lundt**\
-`The 49ers used their first four picks on defensive players. Does Kyle Shanahan gets some offensive firepower on Day 3? `\
-https://nytimes.com/athletic/6307707/2025/04/26/49ers-2025-nfl-draft-best-available/
 

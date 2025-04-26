@@ -1,3 +1,15 @@
+**Reaching for QB Dillon Gabriel to close Day 2 of NFL Draft was baffling move by Browns**\
+`While selecting LB Carson Schwesinger, RB Quinshon Judkins and TE Harold Fannin Jr. can be justified, taking Gabriel was a complete stunner.`\
+https://nytimes.com/athletic/6311305/2025/04/26/browns-quarterback-dillon-gabriel-nfl-draft/
+
+**Why the Packers drafted an O-lineman and receiver on Day 2, not a pass rusher**\
+`Green Bay selected North Carolina State left tackle Anthony Belton and TCU wide receiver Savion Williams on Friday night.`\
+https://nytimes.com/athletic/6311677/2025/04/26/packers-nfl-draft-anthony-belton-savion-williams/
+
+**Rams mix nostalgia, traits and possibility into their Day 2 selections**\
+`Sean McVay has lofty comparisons for TE Terrance Ferguson and Josaiah Stewart has similarities to a former Ram.`\
+https://nytimes.com/athletic/6311541/2025/04/26/rams-draft-picks-terrance-ferguson-josaiah-stewart/
+
 **Here’s the latest.**\
 `By Emma Bubola`\
 https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/heres-the-latest
