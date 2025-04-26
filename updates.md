@@ -1,3 +1,11 @@
+**Beer Aboard a Flight to a Dry Alaska Town Costs a Pilot His $95,000 Plane**\
+`In 2012, a state trooper in Fairbanks, Alaska, said that Kenneth J. Jouppi knowingly tried to fly into a dry community with a six-pack on board.`\
+https://nytimes.com/2025/04/26/us/alaska-supreme-court-beer-bootlegging-plane.html
+
+**Giants draft RB Cam Skattebo: How he fits, pick analysis and scouting intel**\
+`Skattebo rushed for 1,711 yards and 21 touchdowns and also caught 45 passes for 605 yards and three scores at Arizona State last season. `\
+https://nytimes.com/athletic/6312506/2025/04/26/cam-skattebo-giants-nfl-draft/
+
 **Giants draft RB Cam Skattebo: How he fits, pick grade and scouting intel**\
 `Skattebo rushed for 1,711 yards and 21 touchdowns and also caught 45 passes for 605 yards and three scores at Arizona State last season. `\
 https://nytimes.com/athletic/6312506/2025/04/26/cam-skattebo-giants-nfl-draft/
