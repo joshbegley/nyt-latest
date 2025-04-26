@@ -1,3 +1,7 @@
+**Rashford injured for 'some weeks' with hamstring injury - Emery**\
+`Rashford was not in Villa's matchday squad for their 3-0 defeat to Crystal Palace in the FA Cup semi-final on Saturday.`\
+https://nytimes.com/athletic/6312868/2025/04/26/marcus-rashford-injury-aston-villa/
+
 **Patriots NFL Draft hub: Picks, grades, fits and scouting reports**\
 `Keep coming back here throughout the draft for grades and expert analysis of each New England Patriots pick.`\
 https://nytimes.com/athletic/6287648/2025/04/26/patriots-nfl-draft-picks-2025-grades-scouting-reports/
