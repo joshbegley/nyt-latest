@@ -1,3 +1,15 @@
+**Cowboys draft CB Shavon Revel Jr.: How he fits, pick grade and scouting intel**\
+`Revel is the first player drafted out of East Carolina since tackle D'Ante Smith in 2021 and the school's first DB to be taken since 1996.`\
+https://nytimes.com/athletic/6271466/2025/04/25/shavon-revel-jr-cowboys-nfl-draft/
+
+**Canadiens turn tide vs. Capitals in Game 3 at electric Bell Centre: Takeaways**\
+`The game featured a major brawl and both starting goalies leaving with injuries in playoff hockey's return to Montreal.`\
+https://nytimes.com/athletic/6310539/2025/04/25/capitals-canadiens-nhl-playoffs-2025-game-3-takeaways/
+
+**Do the Impossible**\
+`Sarah Sinclair and Rafael Musa’s collaboration unfolds excitingly.`\
+https://nytimes.com/2025/04/25/crosswords/daily-puzzle-2025-04-26.html
+
 **Eagles draft safety Andrew Mukuba: How he fits, pick grade and scouting intel**\
 `The Eagles addressed arguably their biggest need by drafting a safety.`\
 https://nytimes.com/athletic/6310861/2025/04/25/andrew-mukuba-eagles-nfl-draft/
