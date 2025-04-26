@@ -1,3 +1,15 @@
+**Numbers Game**\
+`Jacob Reed’s debut Sunday puzzle might turn you around.`\
+https://nytimes.com/2025/04/26/crosswords/daily-puzzle-2025-04-27.html
+
+**With Shedeur Sanders pick, Browns show again they aren't afraid of big personalities**\
+`Was Sanders "best player available" or a pick that owner Jimmy Haslam forced on the team? Regardless, Browns have another shiny sports car.`\
+https://nytimes.com/athletic/6313218/2025/04/26/shedeur-sanders-browns-nfl-draft/
+
+**After up-and-down year, Šimon Nemec's overtime heroics give him a moment he can cherish**\
+`The No. 2 pick in 2022 was a healthy scratch and spent time in the AHL this season before becoming the unlikely hero in Game 3.`\
+https://nytimes.com/athletic/6313207/2025/04/26/simon-nemec-devils-nhl-playoffs/
+
 **Former Cardinals, Reds executive Walt Jocketty dies at 74**\
 `After directing the Oakland A's farm system, Jocketty served as the GM for the Cardinals and Reds and was named Executive of the Year twice.`\
 https://nytimes.com/athletic/6313295/2025/04/26/walt-jocketty-cardinals-reds-gm-dies/
