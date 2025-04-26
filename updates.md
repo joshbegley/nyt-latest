@@ -1,3 +1,7 @@
+**Celtic win record-equalling Scottish Premiership title, game delayed by tangerine protest**\
+`Celtic are Scottish champions for the fourth consecutive season after victory over Dundee United.`\
+https://nytimes.com/athletic/6258739/2025/04/26/celtic-scottish-title-champions/
+
 **The Briefing: Chelsea 1 Everton 0 - Chelsea back in Champions League spots, Jackson scores**\
 `Chelsea secured a big win in the race for Europe with a 1-0 victory over Everton`\
 https://nytimes.com/athletic/6301451/2025/04/26/chelsea-everton-jackson-maresca-champions-league/
