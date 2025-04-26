@@ -1,3 +1,15 @@
+**The Briefing: Chelsea 1 Everton 0 - Chelsea back in Champions League spots, Jackson scores**\
+`Chelsea secured a big win in the race for Europe with a 1-0 victory over Everton`\
+https://nytimes.com/athletic/6301451/2025/04/26/chelsea-everton-jackson-maresca-champions-league/
+
+**White steps up again, helps Braves continue resurgence as Sale gets first win**\
+`White, after driving in the last three runs Wednesday, continued his dominance with two hits and two RBIs in a win at Arizona on Friday.`\
+https://nytimes.com/athletic/6311713/2025/04/26/eli-white-chris-sale-braves-resurgence/
+
+**The Bucks were headed for a 3-0 series hole. Then Gary Trent Jr. gave them new life**\
+`Trent Jr., in his first start of the series, scored 37 points, but an assertive defense could help sustain the Bucks going forward.`\
+https://nytimes.com/athletic/6311457/2025/04/26/gary-trent-jr-bucks-pacers-game-3-nba-playoffs/
+
 **Another Dodgers loss sours Yoshinobu Yamamoto-Paul Skenes matchup**\
 `The Dodgers continued their plod through this opening month, dropping their third in a row in a 3-0 loss to Skenes’ Pittsburgh Pirates.`\
 https://nytimes.com/athletic/6311769/2025/04/26/another-dodgers-loss-sours-much-anticipated-yoshinobu-yamamoto-paul-skenes-matchup/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6312058/2025/04/26/nhl-playoffs-daily-results-canad
 **The Pulse: Hockey's surprising villain**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6311477/2025/04/26/shedeur-sanders-nfl-draft-the-pulse/
-
-**Canadian Snowbirds Bought Into the American Dream in Palm Springs. Was It a Mirage?**\
-`Each year, hundreds of thousands of Canadians visit the desert city. But tariffs and other attacks on their country by the Trump administration are driving them away.`\
-https://nytimes.com/2025/04/26/us/politics/canada-snowbirds-palm-springs-trump.html
-
-**Healthy Luka Dončić or not, the Lakers need more from everyone**\
-`The Lakers’ margins in this series are slim, if they even exist. Luka Dončić's temporary limitations only furthered growing concerns.`\
-https://nytimes.com/athletic/6311988/2025/04/26/luka-doncic-illness-lakers-wolves-nba-playoffs/
-
-**Here’s what happened on Friday.**\
-`By The New York Times`\
-https://nytimes.com/live/2025/04/26/us/trump-news/heres-what-happened-on-friday
 
