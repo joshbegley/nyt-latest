@@ -1,3 +1,19 @@
+**Another Dodgers loss sours Yoshinobu Yamamoto-Paul Skenes matchup**\
+`The Dodgers continued their plod through this opening month, dropping their third in a row in a 3-0 loss to Skenes’ Pittsburgh Pirates.`\
+https://nytimes.com/athletic/6311769/2025/04/26/another-dodgers-loss-sours-much-anticipated-yoshinobu-yamamoto-paul-skenes-matchup/
+
+**Famous Faces Were in the Crowd at Pope Francis’ Funeral**\
+`President Trump, Melania Trump, Prince William and President Volodymyr Zelensky of Ukraine were among those who paid respects to the pontiff in St. Peter’s Square.`\
+https://nytimes.com/2025/04/26/world/europe/trump-prince-william-zelensky-pope-funeral.html
+
+**Ravens NFL Draft hub: Picks, grades, fits and scouting reports**\
+`Keeping you up to date on all of Baltimore's selections throughout the three-day draft. `\
+https://nytimes.com/athletic/6302036/2025/04/26/ravens-nfl-draft-picks-2025-grades-scouting-reports/
+
+**Jets NFL Draft hub: Picks, grades, fits and scouting reports**\
+`It's the first draft class of the Aaron Glenn-Darren Mougey era in New York.`\
+https://nytimes.com/athletic/6302491/2025/04/26/jets-nfl-draft-picks-2025-grades-scouting-reports/
+
 **Pacers blow second-half lead to let Bucks back in series: 'We were bad'**\
 `"We were playing on our heels a little bit," Tyrese Haliburton said after the loss. "That starts with me."`\
 https://nytimes.com/athletic/6311998/2025/04/26/pacers-blow-lead-bucks-game-3/
