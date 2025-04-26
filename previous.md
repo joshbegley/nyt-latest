@@ -1,3 +1,11 @@
+**Browns NFL Draft hub: Picks, grades, fits and scouting reports**\
+`Keeping you up to date on all of Cleveland's selections throughout the three-day draft. `\
+https://nytimes.com/athletic/6302161/2025/04/26/browns-nfl-draft-picks-2025-grades-scouting-reports/
+
+**Commanders NFL Draft hub: Picks, grades, fits and scouting reports**\
+`Keeping you up to date on all of Washington's selections throughout the three-day draft. `\
+https://nytimes.com/athletic/6302196/2025/04/26/commanders-nfl-draft-picks-2025-grades-scouting-reports/
+
 **Celtic win record-equalling Scottish Premiership title, game delayed by tangerine protest**\
 `Celtic are Scottish champions for the fourth consecutive season after victory over Dundee United.`\
 https://nytimes.com/athletic/6258739/2025/04/26/celtic-scottish-title-champions/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6302036/2025/04/26/ravens-nfl-draft-picks-2025-grad
 **Jets NFL Draft hub: Picks, grades, fits and scouting reports**\
 `It's the first draft class of the Aaron Glenn-Darren Mougey era in New York.`\
 https://nytimes.com/athletic/6302491/2025/04/26/jets-nfl-draft-picks-2025-grades-scouting-reports/
-
-**Pacers blow second-half lead to let Bucks back in series: 'We were bad'**\
-`"We were playing on our heels a little bit," Tyrese Haliburton said after the loss. "That starts with me."`\
-https://nytimes.com/athletic/6311998/2025/04/26/pacers-blow-lead-bucks-game-3/
-
-**NHL playoffs daily: Devils win OT thriller, Canadiens claim brawling Game 3**\
-`The wins for the Edmonton Oilers, Montreal Canadiens and New Jersey Devils all injected season-season juice into their first-round series.`\
-https://nytimes.com/athletic/6312058/2025/04/26/nhl-playoffs-daily-results-canadiens-devils-oilers-game-3/
 

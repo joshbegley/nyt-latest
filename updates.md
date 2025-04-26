@@ -1,3 +1,11 @@
+**Browns NFL Draft hub: Picks, grades, fits and scouting reports**\
+`Keeping you up to date on all of Cleveland's selections throughout the three-day draft. `\
+https://nytimes.com/athletic/6302161/2025/04/26/browns-nfl-draft-picks-2025-grades-scouting-reports/
+
+**Commanders NFL Draft hub: Picks, grades, fits and scouting reports**\
+`Keeping you up to date on all of Washington's selections throughout the three-day draft. `\
+https://nytimes.com/athletic/6302196/2025/04/26/commanders-nfl-draft-picks-2025-grades-scouting-reports/
+
 **Celtic win record-equalling Scottish Premiership title, game delayed by tangerine protest**\
 `Celtic are Scottish champions for the fourth consecutive season after victory over Dundee United.`\
 https://nytimes.com/athletic/6258739/2025/04/26/celtic-scottish-title-champions/
