@@ -1,3 +1,7 @@
+**Colts draft Notre Dame QB Riley Leonard: How he fits, pick grade and scouting intel**\
+`Still a raw passer, Leonard has flexed his ability to be a dual-threat quarterback and make an immediate impact at a new program. `\
+https://nytimes.com/athletic/6311264/2025/04/26/riley-leonard-colts-nfl-draft/
+
 **Steelers draft Ohio State QB Will Howard: How he fits, pick grade and scouting intel**\
 `Howard led Ohio State to the College Football Playoff national title in January, where he was the championship game's offensive MVP.`\
 https://nytimes.com/athletic/6279022/2025/04/26/will-howard-steelers-nfl-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6312914/2025/04/26/crystal-palace-glasner-fa-cup-fi
 **For the power-starved Blue Jays, there’s another path to the postseason**\
 `This year's Blue Jays weren't built to hit for power. So a postseason berth will require strong pitching and timely hitting. `\
 https://nytimes.com/athletic/6312938/2025/04/26/blue-jays-home-runs-playoffs/
-
-**U.S. Reverses Itself, Saying U.N.’s Gaza Agency Can Be Sued in New York**\
-`The Justice Department and the Manhattan U.S. attorney’s office told a judge that an immunity law did not apply. A group of Israelis had accused the agency of assisting Hamas.`\
-https://nytimes.com/2025/04/26/nyregion/us-reverses-position-gaza-unrwa-suit.html
 
