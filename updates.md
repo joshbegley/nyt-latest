@@ -1,3 +1,19 @@
+**Can Trump Still Kill Congestion Pricing After U.S. Lawyers Showed Doubt?**\
+`An embarrassing disclosure by federal lawyers revealed the weaknesses in the government’s bid to end the New York toll program. It could mark a turning point in the case.`\
+https://nytimes.com/2025/04/26/nyregion/nyc-congestion-pricing-dot-lawyers.html
+
+**How an Eco-Friendly Entrepreneur Spends Her Sundays**\
+`Sarah Paiji Yoo, the co-founder of Blueland, spends her Sunday hunting for ice cream, avoiding single-use plastic and getting a foot massage with her husband.`\
+https://nytimes.com/2025/04/26/nyregion/sarah-paiji-yoo-blueland.html
+
+**One Family’s Relentless Pursuit Of The Bony, Oily, Elusive Shad**\
+`To those who cast their nets into the Delaware River each spring, hoping for a bounty of shad, it’s a tradition worth saving.`\
+https://nytimes.com/2025/04/26/nyregion/shad-fishing-new-jersey.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/04/26/crosswords/spelling-bee-forum.html
+
 **'In Franz we trust': For Magic's Franz Wagner, redemption is a few steps away**\
 `Wagner isn't a star yet. But his 32-point, seven-rebound, eight-assist performance in Game 3 shows he's close. `\
 https://nytimes.com/athletic/6311738/2025/04/26/franz-wagner-magic-celtics-game-3/
