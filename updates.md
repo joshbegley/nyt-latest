@@ -1,3 +1,7 @@
+**Bears NFL Draft hub: Picks, grades, fits and scouting reports**\
+`The Bears went defense with their two most recent picks, adding Texas A&M tackle Shemar Turner and Maryland linebacker Ruben Hippolite II.`\
+https://nytimes.com/athletic/6302344/2025/04/26/bears-nfl-draft-picks-2025-grades-scouting-reports/
+
 **Jed the Fish, Quirky Pioneer of Los Angeles Radio, Dies at 69**\
 `With his off-kilter sensibility and deep musical grounding, he brought attention to New Wave and alternative artists at the groundbreaking station KROQ.`\
 https://nytimes.com/2025/04/26/arts/music/edwin-gould-jed-the-fish-dead.html
