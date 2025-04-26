@@ -1,3 +1,15 @@
+**Trump Pardons Executive Whose Family Sought to Publicize Ashley Biden’s Diary**\
+`The pardon of Paul Walczak, who had been convicted of tax crimes, comes as the president uses clemency to reward allies and swipe at perceived enemies.`\
+https://nytimes.com/2025/04/25/us/politics/trump-pardon-walczak-ashley-biden-diary.html
+
+**Panthers draft edge Nic Scourton: How he fits, pick grade and scouting intel**\
+`Carolina adds pass rusher depth in a trade-up with Denver in the second round of the 2025 NFL Draft. `\
+https://nytimes.com/athletic/6310655/2025/04/25/nic-scourton-panthers-nfl-draft/
+
+**49ers draft DT Alfred Collins: How he fits, pick grade and scouting intel**\
+`Collins spent one year as a full-time starter but was a durable five-year player who appeared in 64 games for the Longhorns. `\
+https://nytimes.com/athletic/6310367/2025/04/25/alfred-collins-49ers-nfl-draft/
+
 **Seahawks draft tight end Elijah Arroyo: How he fits, draft grade and scouting intel**\
 `Arroyo, who had a breakout 2024 season at Miami, becomes the highest-drafted tight end in the John Schneider era.`\
 https://nytimes.com/athletic/6310651/2025/04/25/elijah-arroyo-seahawks-nfl-draft/

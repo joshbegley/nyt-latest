@@ -1,3 +1,11 @@
+**Trump Pardons Executive Whose Family Sought to Publicize Ashley Biden’s Diary**\
+`The pardon of Paul Walczak, who had been convicted of tax crimes, comes as the president uses clemency to reward allies and swipe at perceived enemies.`\
+https://nytimes.com/2025/04/25/us/politics/trump-pardon-walczak-ashley-biden-diary.html
+
+**Panthers draft edge Nic Scourton: How he fits, pick grade and scouting intel**\
+`Carolina adds pass rusher depth in a trade-up with Denver in the second round of the 2025 NFL Draft. `\
+https://nytimes.com/athletic/6310655/2025/04/25/nic-scourton-panthers-nfl-draft/
+
 **Seahawks draft tight end Elijah Arroyo: How he fits, draft grade and scouting intel**\
 `Arroyo, who had a breakout 2024 season at Miami, becomes the highest-drafted tight end in the John Schneider era.`\
 https://nytimes.com/athletic/6310651/2025/04/25/elijah-arroyo-seahawks-nfl-draft/
@@ -18,7 +26,7 @@ https://nytimes.com/athletic/6273683/2025/04/25/aireontae-ersery-texans-nfl-draf
 `The two-time All-American cornerback won a national championship and had 68 tackles and nine interceptions in 32 games at Michigan.`\
 https://nytimes.com/athletic/6271294/2025/04/25/will-johnson-arizona-cardinals-nfl-draft/
 
-**49ers draft Alfred Collins: How he fits, pick grade and scouting intel**\
+**49ers draft DT Alfred Collins: How he fits, pick grade and scouting intel**\
 `Collins spent one year as a full-time starter but was a durable five-year player who appeared in 64 games for the Longhorns. `\
 https://nytimes.com/athletic/6310367/2025/04/25/alfred-collins-49ers-nfl-draft/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6273723/2025/04/25/jt-tuimoloau-colts-nfl-draft/
 **Cowboys draft edge Donovan Ezeiruaku: How he fits, pick grade and scouting intel**\
 `Ezeiruaku was described as "a monster" by an opposing coach and was the FBS leader in sacks per game (1.38) in 2024 at Boston College.`\
 https://nytimes.com/athletic/6273716/2025/04/25/donovan-ezeiruaku-cowboys-nfl-draft/
-
-**Jets draft TE Mason Taylor: How he fits, pick grade and scouting intel**\
-`The most productive tight end in LSU history has NFL bloodlines as the son of Pro Football Hall of Fame defensive end Jason Taylor.`\
-https://nytimes.com/athletic/6264381/2025/04/25/mason-taylor-jets-nfl-draft/
-
-**Saints draft QB Tyler Shough: How he fits, pick grade and scouting intel**\
-`The 25-year-old is coming off his best season as a starting quarterback, leading Louisville to a 9-4 record.`\
-https://nytimes.com/athletic/6278950/2025/04/25/tyler-shough-saints-nfl-draft/
 
