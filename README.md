@@ -1,3 +1,7 @@
+**Why was Packers fourth-round pick Barryn Sorrell still at the NFL Draft in Green Bay?**\
+`The Texas defensive end had been in Green Bay since Wednesday and sat in the green room alone before getting picked.`\
+https://nytimes.com/athletic/6313112/2025/04/26/green-bay-packers-barryn-sorrell-nfl-draft/
+
 **Ravens draft K Tyler Loop with Justin Tucker's NFL future uncertain**\
 `Loop set Arizona's school record for career field goal percentage (83.8 percent), as well as longest field goal made (62 yards).`\
 https://nytimes.com/athletic/6312560/2025/04/26/tyler-loop-ravens-nfl-draft-justin-tucker/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6312818/2025/04/26/panthers-lightning-nhl-playoffs-
 **Trump says Putin may not want peace and may need to be ‘dealt with differently.’**\
 `By Tim Balk`\
 https://nytimes.com/live/2025/04/26/us/trump-news/trump-says-putin-may-not-want-peace-and-may-need-to-be-dealt-with-differently
-
-**Vikings NFL Draft hub: Picks, grades, fits and scouting reports**\
-`Keep coming back throughout the draft for grades and expert analysis of each Vikings pick.`\
-https://nytimes.com/athletic/6287650/2025/04/26/vikings-nfl-draft-picks-2025-grades-scouting-reports/
 
