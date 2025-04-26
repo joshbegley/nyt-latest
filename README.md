@@ -1,3 +1,11 @@
+**Pacers blow second-half lead to let Bucks back in series: 'We were bad'**\
+`"We were playing on our heels a little bit," Tyrese Haliburton said after the loss. "That starts with me."`\
+https://nytimes.com/athletic/6311998/2025/04/26/pacers-blow-lead-bucks-game-3/
+
+**NHL playoffs daily: Devils win OT thriller, Canadiens claim brawling Game 3**\
+`The wins for the Edmonton Oilers, Montreal Canadiens and New Jersey Devils all injected season-season juice into their first-round series.`\
+https://nytimes.com/athletic/6312058/2025/04/26/nhl-playoffs-daily-results-canadiens-devils-oilers-game-3/
+
 **The Pulse: Hockey's surprising villain**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6311477/2025/04/26/shedeur-sanders-nfl-draft-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6310335/2025/04/26/anthony-edwards-timberwolves-nba
 **Celtics-Magic has been a physical battle. Jaylen Brown thinks the fight's just begun**\
 `Used to playing the pretty game, Boston has run into an opponent hellbent on producing an ugly one.`\
 https://nytimes.com/athletic/6311658/2025/04/26/celtics-magic-physicality-nba-playoffs/
-
-**Why Falcons, 49ers forfeited their fifth-round picks in the draft**\
-`Atlanta and San Francisco do not have their own Round 5 selections due to different violations, but the 49ers have since added two fifths.`\
-https://nytimes.com/athletic/6278740/2025/04/26/falcons-49ers-forfeit-fifth-round-pick-nfl-draft/
-
-**What I’m seeing from the Leafs: Suffocating top pair, Matthews’ subtle dominance**\
-`An unstoppable power play, edge in goal and contributions from unlikely sources have the Maple Leafs on the verge of the second round.`\
-https://nytimes.com/athletic/6309512/2025/04/26/maple-leafs-nhl-playoffs-auston-matthews/
 
