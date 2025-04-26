@@ -1,3 +1,7 @@
+**The Pope’s Funeral**\
+`We are live from the Vatican.`\
+https://nytimes.com/2025/04/26/briefing/pope-francis-funeral.html
+
 **Francis opted for a simple tomb. Some predecessors, not so much.**\
 `By Elisabetta Povoledo`\
 https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/pope-francis-tomb-burial
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/26/opinion/trump-national-security.html
 **Trump’s Vicious Sewing Circle**\
 `Catfights abound in Trump’s macho world.`\
 https://nytimes.com/2025/04/26/opinion/trump-gender-roles-masculinity.html
-
-**LeBrun: Stars captain Jamie Benn is a ‘catapult’ who gets his team going when it matters**\
-`No captain in the NHL shuns the spotlight more than Benn, who is still an impactful player in his 16th season in the league.`\
-https://nytimes.com/athletic/6310120/2025/04/26/stars-jamie-benn-nhl-playoffs/
 

@@ -1,3 +1,7 @@
+**Francis opted for a simple tomb. Some predecessors, not so much.**\
+`By Elisabetta Povoledo`\
+https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/pope-francis-tomb-burial
+
 **Meet Jack Murtagh, the draft prospect and 'gamer' who just loves scoring goals**\
 `Given his age and the lost time at the start of his draft year, Murtagh is proud of his season and happy with the way his game is trending. `\
 https://nytimes.com/athletic/6297009/2025/04/26/jack-murtagh-2025-nhl-draft-prospect/

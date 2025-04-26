@@ -1,3 +1,7 @@
+**Francis opted for a simple tomb. Some predecessors, not so much.**\
+`By Elisabetta Povoledo`\
+https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/pope-francis-tomb-burial
+
 **Meet Jack Murtagh, the draft prospect and 'gamer' who just loves scoring goals**\
 `Given his age and the lost time at the start of his draft year, Murtagh is proud of his season and happy with the way his game is trending. `\
 https://nytimes.com/athletic/6297009/2025/04/26/jack-murtagh-2025-nhl-draft-prospect/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/26/opinion/trump-gender-roles-masculinity.html
 **LeBrun: Stars captain Jamie Benn is a ‘catapult’ who gets his team going when it matters**\
 `No captain in the NHL shuns the spotlight more than Benn, who is still an impactful player in his 16th season in the league.`\
 https://nytimes.com/athletic/6310120/2025/04/26/stars-jamie-benn-nhl-playoffs/
-
-**Why Is Trump Doing All This?**\
-`Opinion columnists break down the motives behind the president’s blitz of executive actions since he took office.`\
-https://nytimes.com/video/opinion/100000010121801/trump-motivation.html
 
