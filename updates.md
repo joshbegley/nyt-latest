@@ -1,3 +1,11 @@
+**Vikings acquire QB Sam Howell from Seahawks in Day 3 trade**\
+`The acquisition of the Seahawks backup quarterback likely takes Minnesota out of the Aaron Rodgers sweepstakes. `\
+https://nytimes.com/athletic/6312772/2025/04/26/sam-howell-vikings-seahawks-draft-trade/
+
+**Timeline of Shedeur Sanders' NFL Draft slide to fifth-round pick**\
+`After 143 players were drafted, the Browns selected Sanders in the fifth round, ending one of the biggest NFL Draft slides in history.`\
+https://nytimes.com/athletic/6312441/2025/04/26/shedeur-sanders-nfl-draft-slide-timeline/
+
 **Washington Parties On, Without Trump or Big Celebrities**\
 `Drinks in hand, anxious media people braved a series of events in the nights before the annual White House Correspondents’ Association dinner.`\
 https://nytimes.com/2025/04/26/style/white-house-correspondents-dinner-parties.html
