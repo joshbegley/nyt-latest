@@ -1,7 +1,3 @@
-**Jets draft TE Mason Taylor: How he fits, pick grade and scouting intel**\
-`The most productive tight end in LSU history has NFL bloodlines as the son of Pro Football Hall of Fame defensive end Jason Taylor.`\
-https://nytimes.com/athletic/6264381/2025/04/25/mason-taylor-jets-nfl-draft/
-
 **Saints draft QB Tyler Shough: How he fits, pick grade and scouting intel**\
 `The 25-year-old is coming off his best season as a starting quarterback, leading Louisville to a 9-4 record.`\
 https://nytimes.com/athletic/6278950/2025/04/25/tyler-shough-saints-nfl-draft/
@@ -18,7 +14,7 @@ https://nytimes.com/2025/04/25/us/politics/elon-musk-mars.html
 `A national champion at Ohio State, Henderson rushed for 1,016 yards and 10 touchdowns in 2024 and led the Big Ten in yards per carry (7.1).`\
 https://nytimes.com/athletic/6273490/2025/04/25/treveyon-henderson-patriots-nfl-draft/
 
-**Grading every pick of NFL Draft Rounds 2 and 3: Saints get B-minus for Tyler Shough pick**\
+**Grading every pick of NFL Draft Rounds 2 and 3: Seahawks get A-plus for Nick Emmanwori pick**\
 `How did each team fare with its draft picks on Day 2 of the 2025 NFL Draft?`\
 https://nytimes.com/athletic/6309122/2025/04/25/nfl-draft-grades-rounds-2-3-2025/
 
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6264622/2025/04/25/nick-emmanwori-seahawks-nfl-draf
 **Judge Blocks Trump Order Ending Union Protections for Federal Workers**\
 `An order signed by President Trump last month was aimed at stripping collective bargaining rights from hundreds of thousands of federal workers.`\
 https://nytimes.com/2025/04/25/us/politics/judge-blocks-trump-order-ending-union-protections-for-federal-workers.html
+
+**Browns draft LB Carson Schwesinger: How he fits, pick grade and scouting intel**\
+`Following a breakout season in which he led all Division I players in tackles, the UCLA linebacker was a first-team AP All-American.`\
+https://nytimes.com/athletic/6267886/2025/04/25/carson-schwesinger-browns-nfl-draft/
 
