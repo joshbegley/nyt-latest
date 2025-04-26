@@ -1,3 +1,7 @@
+**The funeral plan is simple (for a pope).**\
+`By Talya Minsberg`\
+https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/the-funeral-plan-is-simple-for-a-pope
+
 **Twenty years ago, three U.S. presidents traveled together to mourn a pope. Not so this time.**\
 `By David E. Sanger`\
 https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/twenty-years-ago-three-us-presidents-traveled-together-to-mourn-a-pope-not-so-this-time

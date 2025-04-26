@@ -1,3 +1,7 @@
+**The funeral plan is simple (for a pope).**\
+`By Talya Minsberg`\
+https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/the-funeral-plan-is-simple-for-a-pope
+
 **Twenty years ago, three U.S. presidents traveled together to mourn a pope. Not so this time.**\
 `By David E. Sanger`\
 https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/twenty-years-ago-three-us-presidents-traveled-together-to-mourn-a-pope-not-so-this-time
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/26/nyregion/shad-fishing-new-jersey.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/04/26/crosswords/spelling-bee-forum.html
-
-**Rams mix nostalgia, traits and possibility into their Day 2 selections**\
-`Sean McVay has lofty comparisons for TE Terrance Ferguson and Josaiah Stewart has similarities to a former Ram.`\
-https://nytimes.com/athletic/6311541/2025/04/26/rams-draft-picks-terrance-ferguson-josaiah-stewart/
 
