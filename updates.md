@@ -1,3 +1,27 @@
+**Creativity and multiplicity: Ben Johnson's influence defines Day 2 of NFL Draft for Bears**\
+`The Bears took receiver Luther Burden III in the second round on Friday night. Can he be the Bears' version of Amon-Ra St. Brown?`\
+https://nytimes.com/athletic/6311269/2025/04/26/bears-nfl-draft-ben-johnson-influence/
+
+**Everyone is asking 'What is Atlanta doing?' again after Round 1 of the draft; Here's the answer**\
+`Atlanta has been the talk of the NFL Draft for the second consecutive year, but the Falcons believe they will be proven right in the end.`\
+https://nytimes.com/athletic/6311059/2025/04/26/nfl-draft-2025-atlanta-falcons/
+
+**Raiders trade down (twice) and address needs on Day 2 of the draft**\
+`The Raiders added a playmaker in wide receiver Jack Bech, a versatile DB in Darien Porter and a pair of offensive linemen.`\
+https://nytimes.com/athletic/6311358/2025/04/26/raiders-day-2-nfl-draft-2025-trades/
+
+**Yankees must act and get Devin Williams out of closer role**\
+`Williams’ latest outing cost the Yankees a win in their series opener against the Blue Jays.`\
+https://nytimes.com/athletic/6310942/2025/04/26/yankees-devin-williams-closer-blown-save/
+
+**Patriots finally add offensive explosiveness in TreVeyon Henderson, Kyle Williams**\
+`In the second and third rounds of the draft, the Patriots continued to spend their most valuable draft assets in support of QB Drake Maye.`\
+https://nytimes.com/athletic/6311289/2025/04/26/patriots-nfl-draft-treveyon-henderson-kyle-williams/
+
+**2025 NFL Draft's first round becomes second-most watched ever**\
+`Thursday's broadcast was second only to the 2020 first round, which took place during the COVID-19 pandemic.`\
+https://nytimes.com/athletic/6311348/2025/04/26/nfl-draft-first-round-most-watched/
+
 **Steelers still hope to add Aaron Rodgers, might draft developmental QB**\
 `“He does want to come here, so I do think we may get word soon,” Art Rooney II said during the draft on Friday.`\
 https://nytimes.com/athletic/6311253/2025/04/26/aaron-rodgers-steelers-nfl-draft-art-rooney/

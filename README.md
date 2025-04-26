@@ -1,3 +1,7 @@
+**Bills draft: T.J. Sanders on 'exhilaration' of making plays, Landon Jackson is a dog, and more**\
+`The Bills added a defensive tackle and an edge rusher on Day 2.`\
+https://nytimes.com/athletic/6311117/2025/04/26/bills-draft-tj-sanders-landon-jackson/
+
 **Creativity and multiplicity: Ben Johnson's influence defines Day 2 of NFL Draft for Bears**\
 `The Bears took receiver Luther Burden III in the second round on Friday night. Can he be the Bears' version of Amon-Ra St. Brown?`\
 https://nytimes.com/athletic/6311269/2025/04/26/bears-nfl-draft-ben-johnson-influence/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6311348/2025/04/26/nfl-draft-first-round-most-watch
 **Listen: Who could replace Alexander-Arnold in Liverpool's leadership group?**\
 `Walk On discusses which player could step into a leadership role if Trent Alexander-Arnold were to leave Liverpool this summer`\
 https://nytimes.com/athletic/6299029/2025/04/26/liverpool-leadership-group-walk-on/
-
-**Graham Potter is using Tomas Soucek sparingly but he'd be wise not to overlook his quality**\
-`The Czech midfielder had previously been a near ever-present in West Ham line-ups and still offers plenty in opposition boxes`\
-https://nytimes.com/athletic/6304323/2025/04/26/tomas-soucek-west-ham-graham-potter/
 
