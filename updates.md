@@ -1,3 +1,7 @@
+**How Francis Wooed Donors**\
+`Efforts to fix the Vatican’s broken finances helped restore confidence among big givers. But the work isn’t finished.`\
+https://nytimes.com/2025/04/26/business/dealbook/how-francis-wooed-donors.html
+
 **Francis’ Last Journey**\
 `As pope, Francis traveled to dozens of countries on five continents. In his last days, he stayed much closer to home.`\
 https://nytimes.com/2025/04/26/world/europe/francis-funeral-photos.html

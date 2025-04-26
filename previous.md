@@ -1,3 +1,7 @@
+**How Francis Wooed Donors**\
+`Efforts to fix the Vatican’s broken finances helped restore confidence among big givers. But the work isn’t finished.`\
+https://nytimes.com/2025/04/26/business/dealbook/how-francis-wooed-donors.html
+
 **Francis’ Last Journey**\
 `As pope, Francis traveled to dozens of countries on five continents. In his last days, he stayed much closer to home.`\
 https://nytimes.com/2025/04/26/world/europe/francis-funeral-photos.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/26/world/europe/trump-pope-francis-funeral.html
 **How Trump Plays Into Putin’s Hands, From Ukraine to Slashing U.S. Institutions**\
 `Many of President Trump’s actions have been seen as benefiting Russia either directly or indirectly, so much so that Russian officials have celebrated some of his moves.`\
 https://nytimes.com/2025/04/26/us/politics/trump-putin-russia-ukraine.html
-
-**The Symbolism in ‘Sinners’**\
-`Beneath the spectacle of an action-packed vampire movie, the film has plenty to say about what is sacred and what is profane.`\
-https://nytimes.com/2025/04/26/movies/sinners-symbolism.html
 
