@@ -1,3 +1,11 @@
+**Palace had 'no doubt' on Glasner despite slow start to season**\
+`Palace won just 1 of their opening 13 Premier League matches this term but are now just one game away from their first ever major trophy.`\
+https://nytimes.com/athletic/6312914/2025/04/26/crystal-palace-glasner-fa-cup-final/
+
+**For the power-starved Blue Jays, there’s another path to the postseason**\
+`This year's Blue Jays weren't built to hit for power. So a postseason berth will require strong pitching and timely hitting. `\
+https://nytimes.com/athletic/6312938/2025/04/26/blue-jays-home-runs-playoffs/
+
 **Chiefs NFL Draft hub: Picks, grades, fits and scouting reports**\
 `The Chiefs added Utah State wide receiver Jalen Royals and Oregon linebacker Jeffrey Bassa on Saturday.`\
 https://nytimes.com/athletic/6302793/2025/04/26/chiefs-nfl-draft-picks-2025-grades-scouting-reports/

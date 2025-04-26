@@ -1,3 +1,11 @@
+**Palace had 'no doubt' on Glasner despite slow start to season**\
+`Palace won just 1 of their opening 13 Premier League matches this term but are now just one game away from their first ever major trophy.`\
+https://nytimes.com/athletic/6312914/2025/04/26/crystal-palace-glasner-fa-cup-final/
+
+**For the power-starved Blue Jays, there’s another path to the postseason**\
+`This year's Blue Jays weren't built to hit for power. So a postseason berth will require strong pitching and timely hitting. `\
+https://nytimes.com/athletic/6312938/2025/04/26/blue-jays-home-runs-playoffs/
+
 **U.S. Reverses Itself, Saying U.N.’s Gaza Agency Can Be Sued in New York**\
 `The Justice Department and the Manhattan U.S. attorney’s office told a judge that an immunity law did not apply. A group of Israelis had accused the agency of assisting Hamas.`\
 https://nytimes.com/2025/04/26/nyregion/us-reverses-position-gaza-unrwa-suit.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/26/nyregion/new-york-city-roommates.html
 **Browns stop Shedeur Sanders slide, selecting Colorado QB in fifth round**\
 `Sanders became the sixth quarterback selected in this year's draft — and the second by Cleveland.`\
 https://nytimes.com/athletic/6312436/2025/04/26/shedeur-sanders-browns-2025-nfl-draft-pick/
-
-**Chiefs NFL Draft hub: Picks, grades, fits and scouting reports**\
-`The Chiefs added Utah State wide receiver Jalen Royals and Oregon linebacker Jeffrey Bassa on Saturday.`\
-https://nytimes.com/athletic/6302793/2025/04/26/chiefs-nfl-draft-picks-2025-grades-scouting-reports/
-
-**Pope Francis, Who Sought a More Pastoral Church, Laid to Rest in a Majestic Ceremony**\
-`The funeral drew world leaders, including President Trump and President Volodymyr Zelensky of Ukraine, who had a talk in the Basilica.`\
-https://nytimes.com/2025/04/26/world/europe/pope-francis-funeral-vatican-catholic-church.html
 
