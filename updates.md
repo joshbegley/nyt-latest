@@ -1,3 +1,15 @@
+**Massive Iran Port Explosion Kills 4, Injures Hundreds**\
+`There was no immediate indication that the blast was caused by sabotage or a deliberate attack. State media said it was likely caused by containers of chemicals catching fire.`\
+https://nytimes.com/2025/04/26/world/middleeast/massive-iran-port-explosion-kills-4-injures-hundreds.html
+
+**Iran Reports Several Killed and Hundreds Injured in Huge Port Blast**\
+`A massive explosion on Saturday at the Iranian port of Shahid Rajaee in Bandar Abbas killed several people and injured hundreds, according to state media. The exact cause of the blast was not immediately clear, although there was no suggestion of an attack or sabotage.`\
+https://nytimes.com/video/world/middleeast/100000010132178/iran-reports-several-killed-and-hundreds-injured-in-huge-port-blast.html
+
+**Celtic win Scottish title, game delayed by tangerine protest**\
+`Celtic are Scottish champions for the fourth consecutive season after victory over Dundee United.`\
+https://nytimes.com/athletic/6258739/2025/04/26/celtic-scottish-title-champions/
+
 **Decoding the Vatican: Key Terms in the Papal Transition**\
 `From “camerlengo” to white smoke, here’s what to know about the words and phrases that guide the process after a pope dies.`\
 https://nytimes.com/2025/04/26/world/europe/pope-death-election-words-definition.html
