@@ -1,3 +1,7 @@
+**Wisconsin Judge Arrest: What We Know**\
+`Judge Hannah Dugan is accused of obstructing justice after directing a migrant out of her courtroom as federal agents waited to arrest him. Her arrest has raised several questions.`\
+https://nytimes.com/2025/04/26/us/wisconsin-judge-hannah-dugan-arrest.html
+
 **Dolphins draft QB Quinn Ewers: How he fits, pick analysis and scouting intel**\
 `Ewers went 21-4 and led Texas to back-to-back College Football Playoff appearances in his final two collegiate seasons.`\
 https://nytimes.com/athletic/6279078/2025/04/26/quinn-ewers-dolphins-nfl-draft/

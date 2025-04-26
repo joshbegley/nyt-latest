@@ -1,3 +1,7 @@
+**Wisconsin Judge Arrest: What We Know**\
+`Judge Hannah Dugan is accused of obstructing justice after directing a migrant out of her courtroom as federal agents waited to arrest him. Her arrest has raised several questions.`\
+https://nytimes.com/2025/04/26/us/wisconsin-judge-hannah-dugan-arrest.html
+
 **Dolphins draft QB Quinn Ewers: How he fits, pick analysis and scouting intel**\
 `Ewers went 21-4 and led Texas to back-to-back College Football Playoff appearances in his final two collegiate seasons.`\
 https://nytimes.com/athletic/6279078/2025/04/26/quinn-ewers-dolphins-nfl-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/26/us/politics/trump-student-visas.html
 **Raiders draft QB Cam Miller: How he fits, pick grade and scouting intel**\
 `Miller started 54 consecutive games for North Dakota State and won two national championships with the Bison.`\
 https://nytimes.com/athletic/6313307/2025/04/26/cam-miller-raiders-nfl-draft/
-
-**Raiders draft QB Cam Miller: How he fits, pick grade and scouting intel**\
-`Miller started 54 consecutive games for North Dakota State and won two national championships with the Bison.`\
-https://nytimes.com/athletic/6310338/2025/04/26/cam-miller-raiders-nfl-draft/
 
