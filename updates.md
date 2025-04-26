@@ -1,3 +1,11 @@
+**Ravens draft K Tyler Loop with Justin Tucker's NFL future uncertain**\
+`Loop set Arizona's school record for career field goal percentage (83.8 percent), as well as longest field goal made (62 yards).`\
+https://nytimes.com/athletic/6312560/2025/04/26/tyler-loop-ravens-nfl-draft-justin-tucker/
+
+**Lightning break out in Game 3 to cut series lead to 2-1 Panthers: Takeaways**\
+`Andrei Vasilevskiy rose to the occasion in Game 3 of the Battle of Florida, backstopping the desperate Lightning to a 5-1 victory.`\
+https://nytimes.com/athletic/6312818/2025/04/26/panthers-lightning-nhl-playoffs-2025-game-3-takeaways/
+
 **Ravens draft K Tyler Loop with Justin Tucker's future uncertain**\
 `Loop set Arozina's school record for career field goal percentage (83.8 percent), as well as longest field goal made (62 yards).`\
 https://nytimes.com/athletic/6312560/2025/04/26/tyler-loop-ravens-nfl-draft-justin-tucker/
