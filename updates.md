@@ -1,3 +1,11 @@
+**Packers draft OT Anthony Belton: How he fits, draft grade and scouting intel**\
+`The man nicknamed "Escalade" adds to the Packers' offensive line depth with versatility to play tackle or guard.`\
+https://nytimes.com/athletic/6310259/2025/04/25/anthony-belton-packers-nfl-draft/
+
+**Bears draft OT Ozzy Trapilo: How he fits, draft grade and scouting intel**\
+`It took longer than Bears fans wanted, but they took an offensive tackle with the 56th pick, grabbing the 6-foot-8 Trapilo.`\
+https://nytimes.com/athletic/6310714/2025/04/25/ozzy-trapilo-bears-nfl-draft/
+
 **Shedeur Sanders’ NFL Draft tumble continues as QB isn't picked in second round**\
 `Once widely projected as a first-round pick, Sanders' landing spot became less clear as the draft approached.`\
 https://nytimes.com/athletic/6310337/2025/04/25/shedeur-sanders-nfl-draft-slide-continues/
