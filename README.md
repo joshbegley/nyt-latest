@@ -1,3 +1,7 @@
+**Novak Djokovic exits Madrid Open after shock defeat to Matteo Arnaldi**\
+`Djokovic has already suffered four opening-match defeats in 2025.`\
+https://nytimes.com/athletic/6312376/2025/04/26/djokovic-madrid-open-arnaldi-result-analysis/
+
 **See Who Attended Pope Francis’ Funeral**\
 `Explore a photo of world leaders who were at the funeral.`\
 https://nytimes.com/interactive/2025/04/26/world/europe/pope-francis-funeral-attendees-photo.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/26/dining/gluten-free-sheet-cake-recipe.html
 **Trump Doesn’t Want to Govern**\
 `He wants to rule.`\
 https://nytimes.com/2025/04/26/opinion/trump-government-ruler-republic.html
-
-**What happens if Shedeur Sanders goes undrafted? Explaining the salary difference, UDFA process**\
-`What happens if Day 3, consisting of rounds four to seven, also ends without Sanders being selected?`\
-https://nytimes.com/athletic/6312159/2025/04/26/what-happens-if-shedeur-sanders-goes-undrafted-salary-difference/
 
