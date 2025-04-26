@@ -1,3 +1,15 @@
+**The Briefing: Barcelona 3 Real Madrid 2 - Kounde the unlikely hero in epic Copa del Rey final**\
+`Kounde scored the decisive goal at the end of extra time to kick-start Barca's quest for a treble of trophies`\
+https://nytimes.com/athletic/6301968/2025/04/26/barcelona-3-real-madrid-2-jules-kounde/
+
+**NBA takeaways: Thunder sweep Grizzlies to claim West semifinals spot**\
+`The 37-point defeat was Miami's worst loss ever in the postseason.`\
+https://nytimes.com/athletic/6312928/2025/04/26/nba-playoffs-cavaliers-heat-thunder-grizzlies-nuggets-clippers-rockets-warriors/
+
+**Lightning's savvy offseason pickup of Jake Guentzel is paying off in the playoffs**\
+`"The bigger the moment, the bigger he plays," teammate Luke Glendening said of Guentzel's ability to elevate his play in the postseason.`\
+https://nytimes.com/athletic/6312362/2025/04/26/lightning-jake-guentzel-nhl-playoffs-panthers/
+
 **Wisconsin Judge Arrest: What We Know**\
 `Judge Hannah Dugan is accused of obstructing justice after directing a migrant out of her courtroom as federal agents waited to arrest him. Her arrest has raised several questions.`\
 https://nytimes.com/2025/04/26/us/wisconsin-judge-hannah-dugan-arrest.html

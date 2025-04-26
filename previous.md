@@ -1,3 +1,15 @@
+**The Briefing: Barcelona 3 Real Madrid 2 - Kounde the unlikely hero in epic Copa del Rey final**\
+`Kounde scored the decisive goal at the end of extra time to kick-start Barca's quest for a treble of trophies`\
+https://nytimes.com/athletic/6301968/2025/04/26/barcelona-3-real-madrid-2-jules-kounde/
+
+**NBA takeaways: Thunder sweep Grizzlies to claim West semifinals spot**\
+`The 37-point defeat was Miami's worst loss ever in the postseason.`\
+https://nytimes.com/athletic/6312928/2025/04/26/nba-playoffs-cavaliers-heat-thunder-grizzlies-nuggets-clippers-rockets-warriors/
+
+**Lightning's savvy offseason pickup of Jake Guentzel is paying off in the playoffs**\
+`"The bigger the moment, the bigger he plays," teammate Luke Glendening said of Guentzel's ability to elevate his play in the postseason.`\
+https://nytimes.com/athletic/6312362/2025/04/26/lightning-jake-guentzel-nhl-playoffs-panthers/
+
 **Wisconsin Judge Arrest: What We Know**\
 `Judge Hannah Dugan is accused of obstructing justice after directing a migrant out of her courtroom as federal agents waited to arrest him. Her arrest has raised several questions.`\
 https://nytimes.com/2025/04/26/us/wisconsin-judge-hannah-dugan-arrest.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6313207/2025/04/26/simon-nemec-devils-nhl-playoffs/
 **Former Cardinals, Reds executive Walt Jocketty dies at 74**\
 `After directing the Oakland A's farm system, Jocketty served as the GM for the Cardinals and Reds and was named Executive of the Year twice.`\
 https://nytimes.com/athletic/6313295/2025/04/26/walt-jocketty-cardinals-reds-gm-dies/
-
-**ESPN's Mel Kiper Jr. reacts to Shedeur Sanders' selection, says NFL is 'clueless'**\
-`"The NFL has been clueless for 50 years when it comes to evaluating quarterbacks," Kiper said.`\
-https://nytimes.com/athletic/6312884/2025/04/26/shedeur-sanders-draft-reactions-mel-kiper/
-
-**International Students Worry Even as Trump Temporarily Restores Some Legal Statuses**\
-`Students and their immigration lawyers say they were relieved for the temporary reprieve, but emphasized that it was just that — temporary.`\
-https://nytimes.com/2025/04/26/us/politics/trump-student-visas.html
-
-**Raiders draft QB Cam Miller: How he fits, pick grade and scouting intel**\
-`Miller started 54 consecutive games for North Dakota State and won two national championships with the Bison.`\
-https://nytimes.com/athletic/6313307/2025/04/26/cam-miller-raiders-nfl-draft/
 
