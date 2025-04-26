@@ -1,3 +1,7 @@
+**The route to Santa Maria Maggiore recalls centuries-old traditions.**\
+`By Elisabetta Povoledo`\
+https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/the-route-to-santa-maria-maggiore-recalls-centuries-old-traditions
+
 **Knicks trends I'm watching: OG Anunoby 'heat checks,' Karl-Anthony Towns changes**\
 `An All-Defensive wing has eyes in the back of his head. An All-Star can still score like one. And a sixth man doesn't look like himself.`\
 https://nytimes.com/athletic/6310228/2025/04/26/knicks-trends-pistons-nba-playoffs/
