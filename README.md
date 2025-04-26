@@ -1,3 +1,11 @@
+**Chargers draft WR Tre Harris: How he fits, pick grade and scouting intel**\
+`The Ole Miss product gives Justin Herbert another pass catcher for the Los Angeles offense.`\
+https://nytimes.com/athletic/6310723/2025/04/25/tre-harris-chargers-nfl-draft/
+
+**Ravens draft edge Mike Green: How he fits, draft grade and scouting intel**\
+`Green dominated at Marshall, leading FBS with 17 sacks in 2024. `\
+https://nytimes.com/athletic/6280036/2025/04/25/mike-green-ravens-nfl-draft/
+
 **Trump Administration Opens Civil Rights Inquiry Into a Long Island Mascot Fight**\
 `President Donald Trump is weighing in on a school mascot dispute at Massapequa High School, where some parents are upset that a Chiefs mascot and logo must go under a state rule.`\
 https://nytimes.com/2025/04/25/us/politics/trump-massapequa-mascot-inquiry.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6310534/2025/04/25/tj-sanders-bills-nfl-draft/
 **Report: Mets bring back left-handed reliever Brooks Raley on 1-year deal**\
 `Raley, who had Tommy John surgery last year, could return for New York sometime late this summer.`\
 https://nytimes.com/athletic/6310572/2025/04/25/new-york-mets-brooks-raley-contract/
-
-**Texans draft OT Aireontae Ersery: How he fits, pick grade and scouting intel**\
-`The 6-foot-6, 331-pound Ersery started each of the final 38 games of his college career at left tackle for Minnesota.`\
-https://nytimes.com/athletic/6273683/2025/04/25/aireontae-ersery-texans-nfl-draft/
-
-**Cardinals draft CB Will Johnson: How he fits, pick grade and scouting intel**\
-`The two-time All-American cornerback won a national championship and had 68 tackles and nine interceptions in 32 games at Michigan.`\
-https://nytimes.com/athletic/6271294/2025/04/25/will-johnson-arizona-cardinals-nfl-draft/
 
