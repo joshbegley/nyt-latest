@@ -1,3 +1,11 @@
+**The Ravens drafted Mike Green, then spent most of Friday night defending it**\
+`The Marshall edge rusher, considered a potential first-round pick, fell to the end of the second in light of two sexual assault allegations.`\
+https://nytimes.com/athletic/6311745/2025/04/26/mike-green-ravens-draft-sexual-assault-allegations/
+
+**A Blast from the Past Delights Delights ‘Doctor Who’ Fans**\
+`The show’s latest episode harks back to a beloved episode that has had fans scratching their heads for 17 years.`\
+https://nytimes.com/2025/04/26/arts/television/doctor-who-the-well-midnight.html
+
 **The funeral plan is simple (for a pope).**\
 `By Talya Minsberg`\
 https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/the-funeral-plan-is-simple-for-a-pope
@@ -18,9 +26,9 @@ https://nytimes.com/athletic/6299433/2025/04/26/chargers-nfl-draft-picks-2025-gr
 `The additions of Tre Harris and Jamaree Caldwell bolster both the receiver room and the defensive line, respectively. `\
 https://nytimes.com/athletic/6311880/2025/04/26/chargers-nfl-draft-tre-harris-jamaree-caldwell/
 
-**Who sits where at the funeral?**\
-`By Emma Bubola`\
-https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/pope-francis-funeral-seating
+**Who Is Sitting Where at Pope Francis’ Funeral?**\
+`With dozens of foreign delegations attending, some from hostile countries, the funeral’s seating arrangements presented a possible nightmare for Vatican planners.`\
+https://nytimes.com/2025/04/26/world/europe/pope-francis-funeral-seating.html
 
 **Can Trump Still Kill Congestion Pricing After U.S. Lawyers Showed Doubt?**\
 `An embarrassing disclosure by federal lawyers revealed the weaknesses in the government’s bid to end the New York toll program. It could mark a turning point in the case.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/26/nyregion/nyc-congestion-pricing-dot-lawyers.html
 **How an Eco-Friendly Entrepreneur Spends Her Sundays**\
 `Sarah Paiji Yoo, the co-founder of Blueland, spends her Sunday hunting for ice cream, avoiding single-use plastic and getting a foot massage with her husband.`\
 https://nytimes.com/2025/04/26/nyregion/sarah-paiji-yoo-blueland.html
-
-**One Family’s Relentless Pursuit Of The Bony, Oily, Elusive Shad**\
-`To those who cast their nets into the Delaware River each spring, hoping for a bounty of shad, it’s a tradition worth saving.`\
-https://nytimes.com/2025/04/26/nyregion/shad-fishing-new-jersey.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/04/26/crosswords/spelling-bee-forum.html
 

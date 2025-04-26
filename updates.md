@@ -1,3 +1,15 @@
+**The Ravens drafted Mike Green, then spent most of Friday night defending it**\
+`The Marshall edge rusher, considered a potential first-round pick, fell to the end of the second in light of two sexual assault allegations.`\
+https://nytimes.com/athletic/6311745/2025/04/26/mike-green-ravens-draft-sexual-assault-allegations/
+
+**A Blast from the Past Delights Delights ‘Doctor Who’ Fans**\
+`The show’s latest episode harks back to a beloved episode that has had fans scratching their heads for 17 years.`\
+https://nytimes.com/2025/04/26/arts/television/doctor-who-the-well-midnight.html
+
+**Who Is Sitting Where at Pope Francis’ Funeral?**\
+`With dozens of foreign delegations attending, some from hostile countries, the funeral’s seating arrangements presented a possible nightmare for Vatican planners.`\
+https://nytimes.com/2025/04/26/world/europe/pope-francis-funeral-seating.html
+
 **The funeral plan is simple (for a pope).**\
 `By Talya Minsberg`\
 https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/the-funeral-plan-is-simple-for-a-pope
