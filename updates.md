@@ -1,3 +1,7 @@
+**Giants draft RB Cam Skattebo: How he fits, pick grade and scouting intel**\
+`Skattebo rushed for 1,711 yards and 21 touchdowns and also caught 45 passes for 605 yards and three scores at Arizona State last season. `\
+https://nytimes.com/athletic/6312506/2025/04/26/cam-skattebo-giants-nfl-draft/
+
 **‘He Was Like Family’: Faithful Descend on St. Peter’s Square for Pope’s Funeral**\
 `Cardinals, royals and heads of state attended. But many mourners, some of whom slept on the streets overnight, said they came for a pope who had cared for the poor and marginalized.`\
 https://nytimes.com/2025/04/26/world/europe/pope-francis-funeral-st-peters-square.html

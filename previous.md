@@ -1,3 +1,7 @@
+**Giants draft RB Cam Skattebo: How he fits, pick grade and scouting intel**\
+`Skattebo rushed for 1,711 yards and 21 touchdowns and also caught 45 passes for 605 yards and three scores at Arizona State last season. `\
+https://nytimes.com/athletic/6312506/2025/04/26/cam-skattebo-giants-nfl-draft/
+
 **‘He Was Like Family’: Faithful Descend on St. Peter’s Square for Pope’s Funeral**\
 `Cardinals, royals and heads of state attended. But many mourners, some of whom slept on the streets overnight, said they came for a pope who had cared for the poor and marginalized.`\
 https://nytimes.com/2025/04/26/world/europe/pope-francis-funeral-st-peters-square.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6310165/2025/04/26/maple-leafs-game-4-roster-lineup
 **'Trying to win a match or two': Novak Djokovic explains 'new reality' after Madrid Open defeat**\
 `Djokovic has already suffered four opening-match defeats in 2025.`\
 https://nytimes.com/athletic/6312376/2025/04/26/djokovic-madrid-open-arnaldi-result-analysis/
-
-**Patriots NFL Draft hub: Picks, grades, fits and scouting reports**\
-`Keep coming back here throughout the draft for grades and expert analysis of each New England Patriots pick.`\
-https://nytimes.com/athletic/6287648/2025/04/26/patriots-nfl-draft-picks-2025-grades-scouting-reports/
 
