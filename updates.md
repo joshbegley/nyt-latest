@@ -1,3 +1,7 @@
+**Browns draft QB Dillon Gabriel: How he fits, pick grade and scouting intel**\
+`Gabriel led Oregon to a 13-1 record and the Big Ten championship while winning Big Ten Offensive Player of the Year in 2024.`\
+https://nytimes.com/athletic/6311142/2025/04/25/dillon-gabriel-browns-nfl-draft/
+
 **Chiefs draft OT Ashton Gillotte: How he fits, pick grade and scouting intel**\
 `The Athletic's Dane Brugler says Gillotte can be an immediate sub-package rusher with long-term starting potential.`\
 https://nytimes.com/athletic/6311102/2025/04/25/ashton-gillotte-chiefs-nfl-draft/

@@ -1,3 +1,7 @@
+**Browns draft QB Dillon Gabriel: How he fits, pick grade and scouting intel**\
+`Gabriel led Oregon to a 13-1 record and the Big Ten championship while winning Big Ten Offensive Player of the Year in 2024.`\
+https://nytimes.com/athletic/6311142/2025/04/25/dillon-gabriel-browns-nfl-draft/
+
 **Chiefs draft OT Ashton Gillotte: How he fits, pick grade and scouting intel**\
 `The Athletic's Dane Brugler says Gillotte can be an immediate sub-package rusher with long-term starting potential.`\
 https://nytimes.com/athletic/6311102/2025/04/25/ashton-gillotte-chiefs-nfl-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6310992/2025/04/25/shemar-turner-bears-nfl-draft/
 **Steelers draft RB Kaleb Johnson: How he fits, pick grade and scouting intel**\
 `Johnson rushed for 1,537 yards and 21 touchdowns last season at Iowa and was a consensus All-American selection.`\
 https://nytimes.com/athletic/6273462/2025/04/25/kaleb-johnson-steelers-nfl-draft/
-
-**Quote of the Day: Superfund Aid Sought for Sludge on 10,000 Acres of Fields**\
-`Quotation of the Day for Saturday, April 26, 2025.`\
-https://nytimes.com/2025/04/25/pageoneplus/quote-of-the-day-superfund-aid-sought-for-sludge-on-10000-acres-of-fields.html
 
