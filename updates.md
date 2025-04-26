@@ -1,3 +1,7 @@
+**The funeral Mass readings reflect Francis’ priorities and nod to John Paul II.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/the-funeral-mass-readings-reflect-francis-priorities-and-nod-to-john-paul-ii
+
 **The funeral music is largely being sung in Gregorian chant.**\
 `By Zachary Woolfe`\
 https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/the-funeral-music-is-largely-being-sung-in-gregorian-chant
