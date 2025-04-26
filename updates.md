@@ -1,3 +1,7 @@
+**Best available players for the Vikings: Brashard Smith, Zah Frazier**\
+`In Round 1, the Vikings continued to revamp their offensive line. On Day 2, they added a wide receiver. What do they still need on Day 3?`\
+https://nytimes.com/athletic/6307728/2025/04/26/vikings-2025-nfl-draft-best-available/
+
 **Bills Day 3 mock draft: Trading up for a falling value, targeting special teams**\
 `The Bills will be hoping to find some Day 3 gems.`\
 https://nytimes.com/athletic/6311203/2025/04/26/buffalo-bills-mock-draft-day-3-nfl/
