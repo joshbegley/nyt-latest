@@ -1,3 +1,19 @@
+**'In Franz we trust': For Magic's Franz Wagner, redemption is a few steps away**\
+`Wagner isn't a star yet. But his 32-point, seven-rebound, eight-assist performance in Game 3 shows he's close. `\
+https://nytimes.com/athletic/6311738/2025/04/26/franz-wagner-magic-celtics-game-3/
+
+**The Cowboys have put together a strong draft, despite not filling biggest holes**\
+`Dallas hasn't drafted a running back or receiver, but their best-player-available strategy has gotten them three instant contributors.`\
+https://nytimes.com/athletic/6311699/2025/04/26/cowboys-nfl-draft-donovan-ezeiruaku-shavon-revel/
+
+**NFL Draft best available players for Commanders: Devin Neal, Tory Horton**\
+`Washington enters Day 3 of the draft with three selections, one in the fourth round, one in the sixth and one in the seventh.`\
+https://nytimes.com/athletic/6307201/2025/04/26/commanders-2025-nfl-draft-best-available/
+
+**NFL Draft best available players for Indianapolis Colts: Smael Mondon Jr. and Brashard Smith**\
+`The Colts have filled some of the holes on their roster, but they still have needs at guard, linebacker and more. `\
+https://nytimes.com/athletic/6308391/2025/04/26/colts-2025-nfl-draft-best-available/
+
 **Security is tight at St. Peter’s Square and across Rome.**\
 `By Elisabetta Povoledo`\
 https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/security-is-tight-at-st-peters-square-and-across-rome
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6311697/2025/04/26/devils-hurricanes-nhl-playoffs-g
 **Eagles see Andrew Mukuba as a physical, disciplined safety; stockpiled Day 3 picks with trades**\
 `The Eagles made a trade and had only one Day 2 pick.`\
 https://nytimes.com/athletic/6311313/2025/04/26/eagles-draft-andrew-mukuba-day-3-picks/
-
-**Broncos trio of Day 2 moves 'paid off' after landing offensive pieces RJ Harvey, Pat Bryant**\
-`The Broncos maneuvered to draft RJ Harvey, the RB with "maybe the best vision in the draft" and a physical receiver in Pat Bryant.`\
-https://nytimes.com/athletic/6311386/2025/04/26/broncos-nfl-draft-rj-harvey-pat-bryant/
-
-**The Seahawks couldn't resist 'unique' Jalen Milroe, adding to a talented class**\
-`Milroe's game film spoke volumes, but so did his personality. “You feel the urgency and the passion," Mike Macdonald said.`\
-https://nytimes.com/athletic/6311621/2025/04/26/seahawks-nfl-draft-jalen-milroe-nick-emmanwori/
-
-**NFL Draft best available players for New York Giants: Ollie Gordon II and Jalen Rivers**\
-`The Giants have four picks remaining entering Day 3 and have needs to address on the offensive line and in the RB room.`\
-https://nytimes.com/athletic/6307715/2025/04/26/giants-2025-nfl-draft-best-available/
-
-**NFL Draft best available players for Dallas Cowboys: Damien Martinez, Jordan Phillips**\
-`Entering the final day of the draft, the Cowboys still haven't addressed running back or receiver. What are their priorities on Day 3?`\
-https://nytimes.com/athletic/6306391/2025/04/26/cowboys-2025-nfl-draft-best-available/
 

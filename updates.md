@@ -1,3 +1,11 @@
+**Security is tight at St. Peter’s Square and across Rome.**\
+`By Elisabetta Povoledo`\
+https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/security-is-tight-at-st-peters-square-and-across-rome
+
+**The Steelers' draft, even without a QB, has unfolded exactly how they hoped so far**\
+`The Steelers never expected to draft a starting QB this year. Instead, they've gotten great value at two positions they most prioritized.`\
+https://nytimes.com/athletic/6311630/2025/04/26/steelers-nfl-draft-kaleb-johnson-no-quarterback/
+
 **Hurzeler wants Brighton fans to direct criticism at him, not players**\
 `Supporters in the away end sang, "You don’t know what you’re doing!" after Hurzeler's substitutions at Brentford last weekend.`\
 https://nytimes.com/athletic/6308728/2025/04/26/fabian-hurzeler-brighton-fans/
