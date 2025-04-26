@@ -1,3 +1,11 @@
+**Isabel Allende Understands How Fear Changes a Society**\
+`The beloved author left Chile at a time of great turmoil and has longed for the nation of her youth ever since.`\
+https://nytimes.com/2025/04/26/magazine/isabel-allende-interview.html
+
+**Isabel Allende Understands How Fear Changes a Society**\
+`The beloved author left Chile at a time of great turmoil and has longed for the nation of her youth ever since.`\
+https://nytimes.com/video/podcasts/100000010083596/isabel-allende-understands-how-fear-changes-a-society.html
+
 **What the Pope Told Me About Politics**\
 `My brief tour with Pope Francis, the diplomat of our times.`\
 https://nytimes.com/2025/04/26/magazine/pope-politics.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/26/movies/sinners-symbolism.html
 **Polls Tighten in Homestretch of Canada’s Election**\
 `Prime Minister Mark Carney’s Liberal Party still appears poised to win, pollsters say, even as its lead over the Conservative Party has shrunk.`\
 https://nytimes.com/2025/04/26/world/canada/election-polls-carney-poilievre.html
-
-**Dollar Doubts Dominate Gathering of Global Economic Leaders**\
-`Participants at the I.M.F and World Bank meetings this week reckoned with the prospect that the U.S. safe haven could lose its luster.`\
-https://nytimes.com/2025/04/26/business/dollar-trump-bessent.html
-
-**Governors, Actors and a Talking Frog: Here’s Who’s Speaking at Graduation**\
-`As colleges face increased scrutiny from the federal government, they are taking diverging approaches in choosing commencement keynotes.`\
-https://nytimes.com/2025/04/26/us/college-commencement-graduation-speakers.html
 
