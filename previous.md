@@ -1,3 +1,7 @@
+**Francis’ Last Journey**\
+`As pope, Francis traveled to dozens of countries on five continents. In his last days, he stayed much closer to home.`\
+https://nytimes.com/2025/04/26/world/europe/francis-funeral-photos.html
+
 **Isabel Allende Understands How Fear Changes a Society**\
 `The beloved author left Chile at a time of great turmoil and has longed for the nation of her youth ever since.`\
 https://nytimes.com/2025/04/26/magazine/isabel-allende-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/26/us/politics/trump-putin-russia-ukraine.html
 **The Symbolism in ‘Sinners’**\
 `Beneath the spectacle of an action-packed vampire movie, the film has plenty to say about what is sacred and what is profane.`\
 https://nytimes.com/2025/04/26/movies/sinners-symbolism.html
-
-**Polls Tighten in Homestretch of Canada’s Election**\
-`Prime Minister Mark Carney’s Liberal Party still appears poised to win, pollsters say, even as its lead over the Conservative Party has shrunk.`\
-https://nytimes.com/2025/04/26/world/canada/election-polls-carney-poilievre.html
 

@@ -1,3 +1,7 @@
+**Francis’ Last Journey**\
+`As pope, Francis traveled to dozens of countries on five continents. In his last days, he stayed much closer to home.`\
+https://nytimes.com/2025/04/26/world/europe/francis-funeral-photos.html
+
 **Isabel Allende Understands How Fear Changes a Society**\
 `The beloved author left Chile at a time of great turmoil and has longed for the nation of her youth ever since.`\
 https://nytimes.com/2025/04/26/magazine/isabel-allende-interview.html
