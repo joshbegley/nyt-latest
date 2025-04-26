@@ -1,3 +1,23 @@
+**Draft roundtable: Which Day 2 QB intrigues, where is Shedeur Sanders' best fit now?**\
+`The biggest question heading into Day 2 was where Shedeur Sanders would land. It was still the biggest question as Day 2 concluded.`\
+https://nytimes.com/athletic/6311265/2025/04/26/draft-shedeur-sanders-saints-tyler-shough/
+
+**Pedri's passing playbook: Why he is Barca's 'pillar' and the man who makes them tick**\
+`From line-breakers to tempo-setters, Pedri's passing is key to Hansi Flick's side as he dictates the play and allows team-mates to breathe`\
+https://nytimes.com/athletic/6308663/2025/04/26/pedri-barcelona-passing-playbook/
+
+**Pep Guardiola and Wembley Stadium: A lifelong romance**\
+`The Manchester City boss has a long and storied relationship with England's national stadium - as a fan, a player and a manager `\
+https://nytimes.com/athletic/6305857/2025/04/26/pep-guardiola-wembley-stadium/
+
+**The remarkable season when Serie A was decided by a play-off (which could happen again)**\
+`In the league's entire history, Serie A has only been decided by a play-off once. This is the story of how it played out…`\
+https://nytimes.com/athletic/6301544/2025/04/26/serie-a-playoff-decider-inter-napoli/
+
+**Visiting the football stadium left in ruins after the Chernobyl disaster**\
+`On the 39th anniversary of the nuclear accident in Ukraine, an Athletic writer recalls a visit to the nearby home of FC Stroitel Pripyat`\
+https://nytimes.com/athletic/6141352/2025/04/26/chernoybl-the-lost-stadium/
+
 **Palace, Man City, Villa or Forest: Who does winning the FA Cup matter most to?**\
 `Aside from Pep Guardiola's City, this season's last four has an unfamiliar feel but all involved have their own motivation to lift the cup`\
 https://nytimes.com/athletic/6286473/2025/04/26/city-palace-forest-villa-fa-cup-semi/
@@ -6,35 +26,15 @@ https://nytimes.com/athletic/6286473/2025/04/26/city-palace-forest-villa-fa-cup-
 `Paul Taylor and Nick Miller answer the key questions about Nottingham Forest ahead of Sunday's FA Cup semi-final`\
 https://nytimes.com/athletic/6309427/2025/04/26/nottingham-forest-fa-cup-manchester-city/
 
-**Šimon Nemec goes from scratch to hero as battered Devils beat Hurricanes in Game 3**\
+**NFL Draft best available players for Green Bay: Jack Sawyer, Dorian Strong**\
+`Green Bay has emphasized offense so far with two WRs and a tackle. Saturday's focus could turn to defense.`\
+https://nytimes.com/athletic/6307531/2025/04/26/packers-2025-nfl-draft-best-available/
+
+**From scratch to hero, Simon Nemec lifts Devils past Hurricanes in 2OT Game 3: Takeaways**\
 `Nemec — a healthy scratch to start the series — flung a shot past Frederik Andersen for a 3-2 win that narrowed the series to 2-1.`\
 https://nytimes.com/athletic/6311030/2025/04/26/simon-nemec-nhl-playoffs-devils-hurricanes/
 
 **What’s at Stake in the Iran-U.S. Nuclear Talks**\
 `Plans for a third round of talks in three weeks have raised hopes for an Iran nuclear accord, which could avert a new Mideast conflict. President Trump said he believed a deal was within reach.`\
 https://nytimes.com/2025/04/26/world/middleeast/us-iran-nuclear-talks.html
-
-**Connections: Sports Edition Coach: Hints for April 26, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6310565/2025/04/26/connections-sports-edition-hints-for-april-26-2025-puzzle-no-215/
-
-**How to watch Barcelona vs. Real Madrid in the Copa del Rey final**\
-`Hansi Flick and Barcelona try for first leg of the treble. Carlo Ancelotti's sputtering Real Madrid is at risk of finishing trophyless.`\
-https://nytimes.com/athletic/6302445/2025/04/26/how-to-watch-barcelona-real-madrid-copa-del-rey-final/
-
-**Corrections: April 26, 2025**\
-`Corrections that appeared in print on Saturday, April 26, 2025.`\
-https://nytimes.com/2025/04/26/pageoneplus/corrections-april-26-2025.html
-
-**Best available players for the Steelers: is Shedeur Sanders still an option on Day 3?**\
-`Nobody saw Sanders dropping to Day 3. The Steelers passed twice, but they still plan to take a developmental quarterback on Saturday.`\
-https://nytimes.com/athletic/6307633/2025/04/25/steelers-2025-nfl-draft-best-available/
-
-**‘I needed it, the team needed it’: Alejandro Kirk comes through for Blue Jays**\
-`Alejandro Kirk's struggles have been emblematic of an offense that has scuffled as a whole. Friday's clutch hit provide a spark. `\
-https://nytimes.com/athletic/6311007/2025/04/25/alejandro-kirk-blue-jays/
-
-**NFL Draft best available players for Las Vegas Raiders: Shedeur Sanders, Quinn Ewers**\
-`With Sanders falling all the way to Day 3, isn't the potential circus worth it for a team that wants to draft a developmental quarterback?`\
-https://nytimes.com/athletic/6307540/2025/04/25/raiders-2025-nfl-draft-best-available/
 
