@@ -1,3 +1,7 @@
+**Patriots NFL Draft hub: Picks, grades, fits and scouting reports**\
+`Keep coming back here throughout the draft for grades and expert analysis of each New England Patriots pick.`\
+https://nytimes.com/athletic/6287648/2025/04/26/patriots-nfl-draft-picks-2025-grades-scouting-reports/
+
 **Pope Francis Remembered During Funeral in Vatican City**\
 `Hundreds of thousands paid their respects to the pope at his funeral in front of St. Peter’s Basilica, the Vatican said.`\
 https://nytimes.com/video/world/europe/100000010132425/pope-francis-funeral-vatican-city.html
