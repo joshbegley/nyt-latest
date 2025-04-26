@@ -1,3 +1,19 @@
+**Can Trump Still Kill Congestion Pricing After U.S. Lawyers Showed Doubt?**\
+`An embarrassing disclosure by federal lawyers revealed the weaknesses in the government’s bid to end the New York toll program. It could mark a turning point in the case.`\
+https://nytimes.com/2025/04/26/nyregion/nyc-congestion-pricing-dot-lawyers.html
+
+**How an Eco-Friendly Entrepreneur Spends Her Sundays**\
+`Sarah Paiji Yoo, the co-founder of Blueland, spends her Sunday hunting for ice cream, avoiding single-use plastic and getting a foot massage with her husband.`\
+https://nytimes.com/2025/04/26/nyregion/sarah-paiji-yoo-blueland.html
+
+**One Family’s Relentless Pursuit Of The Bony, Oily, Elusive Shad**\
+`To those who cast their nets into the Delaware River each spring, hoping for a bounty of shad, it’s a tradition worth saving.`\
+https://nytimes.com/2025/04/26/nyregion/shad-fishing-new-jersey.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/04/26/crosswords/spelling-bee-forum.html
+
 **'In Franz we trust': For Magic's Franz Wagner, redemption is a few steps away**\
 `Wagner isn't a star yet. But his 32-point, seven-rebound, eight-assist performance in Game 3 shows he's close. `\
 https://nytimes.com/athletic/6311738/2025/04/26/franz-wagner-magic-celtics-game-3/
@@ -21,20 +37,4 @@ https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/security-is-tight
 **The Steelers' draft, even without a QB, has unfolded exactly how they hoped so far**\
 `The Steelers never expected to draft a starting QB this year. Instead, they've gotten great value at two positions they most prioritized.`\
 https://nytimes.com/athletic/6311630/2025/04/26/steelers-nfl-draft-kaleb-johnson-no-quarterback/
-
-**Hurzeler wants Brighton fans to direct criticism at him, not players**\
-`Supporters in the away end sang, "You don’t know what you’re doing!" after Hurzeler's substitutions at Brentford last weekend.`\
-https://nytimes.com/athletic/6308728/2025/04/26/fabian-hurzeler-brighton-fans/
-
-**No edge rushers for Lions on draft Day 2 as Brad Holmes sticks to his plan**\
-`The Lions picked the best players available regardless of position Friday, leading them to guard Tate Ratledge and WR Isaac TeSlaa.`\
-https://nytimes.com/athletic/6311692/2025/04/26/lions-nfl-draft-no-edge-rushers/
-
-**With Game 3 win, Devils show resolve that could benefit them long beyond the playoffs**\
-`New Jersey's 3-2 victory over Carolina on Friday was the type of win that builds the foundation of a team.`\
-https://nytimes.com/athletic/6311697/2025/04/26/devils-hurricanes-nhl-playoffs-game-3-win/
-
-**Eagles see Andrew Mukuba as a physical, disciplined safety; stockpiled Day 3 picks with trades**\
-`The Eagles made a trade and had only one Day 2 pick.`\
-https://nytimes.com/athletic/6311313/2025/04/26/eagles-draft-andrew-mukuba-day-3-picks/
 
