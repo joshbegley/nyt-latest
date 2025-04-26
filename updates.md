@@ -1,3 +1,15 @@
+**Shedeur Sanders slides past fourth round as NFL Draft marches through Day 3**\
+`If no team selects Sanders, he will become an undrafted free agent and be able to negotiate with any interested team.`\
+https://nytimes.com/athletic/6312436/2025/04/26/shedeur-sanders-nfl-draft-slide-saturday/
+
+**Chiefs NFL Draft hub: Picks, grades, fits and scouting reports**\
+`The Chiefs added a versatile wide receiver to the offense on Saturday in Utah State's Jalen Royals.`\
+https://nytimes.com/athletic/6302793/2025/04/26/chiefs-nfl-draft-picks-2025-grades-scouting-reports/
+
+**As the pope’s funeral ended, a 6-year-old boy was baptized in a small church nearby.**\
+`By Emma Bubola`\
+https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/as-the-popes-funeral-ended-a-latin-american-boy-was-baptized-in-a-small-church-nearby
+
 **Pope Francis, Who Sought a More Pastoral Church, Laid to Rest in a Majestic Ceremony**\
 `The funeral drew world leaders, including President Trump and President Volodymyr Zelensky of Ukraine, who had a talk in the Basilica.`\
 https://nytimes.com/2025/04/26/world/europe/pope-francis-funeral-vatican-catholic-church.html
