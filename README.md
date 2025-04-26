@@ -1,9 +1,22 @@
+**Falcons 2025 NFL Draft takeaways: Will Atlanta's aggression pay off this time?**\
+`The Atlanta Falcons addressed their biggest positional needs by selecting two edge rushers and two defensive backs in the 2025 NFL Draft.`\
+https://nytimes.com/athletic/6312889/2025/04/26/atlanta-falcons-2025-nfl-draft-picks-takeaways/
+
+**Chiefs 2025 NFL Draft takeaways: Biggest need addressed, plus reinforcements**\
+`Getting their left tackle of the future in Ohio State's Josh Simmons was critical. Then the Chiefs shored up an already strong defense.`\
+https://nytimes.com/athletic/6313522/2025/04/26/chiefs-2025-nfl-draft-picks-takeaways/
+
+**Cowboys 2025 NFL Draft takeaways: Several immediate contributors, but big need remains**\
+`The Cowboys added a starting guard, an impact edge rusher and great value in a cornerback. Will they make a move still for a receiver?`\
+https://nytimes.com/athletic/6312668/2025/04/26/dallas-cowboys-2025-nfl-draft-picks-takeaways/
+
 **Bills 2025 NFL Draft takeaways: Lots of picks on defense to help get Buffalo over the top**\
 `The Bills addressed each of their most glaring needs in the draft.`\
 https://nytimes.com/athletic/6313151/2025/04/26/buffalo-bills-2025-nfl-draft-picks-takeaways/
 
 **Golden Knights even series vs. Wild with overtime goal in Game 4: Takeaways**\
-`ST.`\
+`By Michael Russo, Jesse Granger and Joe Smith
+ST.`\
 https://nytimes.com/athletic/6313488/2025/04/26/wild-golden-knights-game-4/
 
 **Browns 2025 NFL Draft takeaways: Twists, turns and a Shedeur Sanders pick on Day 3**\
@@ -25,16 +38,4 @@ https://nytimes.com/athletic/6313286/2025/04/26/new-york-jets-2025-nfl-draft-pic
 **Kane criticises 'crazy' booking ruling him out of potential title-clincher**\
 `Kane was shown a yellow card in the 45th minute of Bayern’s 3-0 win over Mainz on Saturday, ruling him out of next week's trip to RB Leipzig`\
 https://nytimes.com/athletic/6313760/2025/04/26/harry-kane-bayern-bundesliga-title/
-
-**Seahawks 2025 NFL Draft takeaways: Wild card Jalen Milroe highlights offense-heavy class**\
-`After overhauling their offense in free agency, the Seahawks continued the trend in the draft, including a huge swing at QB.`\
-https://nytimes.com/athletic/6313243/2025/04/26/seattle-seahawks-2025-nfl-draft-picks-takeaways/
-
-**Washington Arrives on the Red Carpet**\
-`Wonky but chic: A crowd made up mostly of political journalists showed up for the annual White House Correspondents’ Association dinner on Saturday.`\
-https://nytimes.com/2025/04/26/style/washington-arrives-on-the-red-carpet.html
-
-**Soft? Not these Cavaliers, who destroyed Heat in Game 3 amid trash-talking battle**\
-`Cleveland demonstrated its maturity and toughness with a dominating 124-87 win over Miami.`\
-https://nytimes.com/athletic/6313294/2025/04/26/cleveland-cavaliers-miami-heat-game-3-trash-talking/
 
