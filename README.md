@@ -1,6 +1,14 @@
 **The Seahawks couldn't resist 'unique' Jalen Milroe, adding to a talented class**\
-`RENTON, Wash.`\
+`Milroe's game film spoke volumes, but so did his personality. “You feel the urgency and the passion," Mike Macdonald said.`\
 https://nytimes.com/athletic/6311621/2025/04/26/seahawks-nfl-draft-jalen-milroe-nick-emmanwori/
+
+**NFL Draft best available players for New York Giants: Ollie Gordon II and Jalen Rivers**\
+`After drafting Abdul Carter and Jaxson Dart in Round 1, the Giants only have one pick on Day 2. What should they do with it?`\
+https://nytimes.com/athletic/6307715/2025/04/26/giants-2025-nfl-draft-best-available/
+
+**NFL Draft best available players for Dallas Cowboys: Damien Martinez, Jordan Phillips**\
+`Entering the final day of the draft, the Cowboys still haven't addressed running back or receiver. What are their priorities on Day 3?`\
+https://nytimes.com/athletic/6306391/2025/04/26/cowboys-2025-nfl-draft-best-available/
 
 **Cowboys NFL Draft hub: Picks, grades, fits and scouting reports**\
 `Follow here throughout the draft for analysis on each Cowboys' pick over the three-day NFL Draft.`\
@@ -22,19 +30,11 @@ https://nytimes.com/athletic/6311677/2025/04/26/packers-nfl-draft-anthony-belton
 `Sean McVay has lofty comparisons for TE Terrance Ferguson and Josaiah Stewart has similarities to a former Ram.`\
 https://nytimes.com/athletic/6311541/2025/04/26/rams-draft-picks-terrance-ferguson-josaiah-stewart/
 
+**Rams NFL Draft hub: Picks, grades, fits and scouting reports**\
+`Follow here throughout the draft for analysis on each Rams' pick over the three-day NFL Draft.`\
+https://nytimes.com/athletic/6293955/2025/04/26/rams-nfl-draft-picks-2025-grades-scouting-reports-2/
+
 **Here’s the latest.**\
 `By Emma Bubola`\
 https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/heres-the-latest
-
-**Latest Updates: Mourners Gather for Pope Francis’ Funeral**\
-`The pontiff will be laid to rest after a Mass in front of St. Peter’s Basilica in Vatican City. The first Jesuit and first Latin American pope, he championed a more inclusive Roman Catholic Church.`\
-https://nytimes.com/live/2025/04/26/world/pope-francis-funeral
-
-**As Giants' QB future dominates headlines, NY has quietly built formidable, young defense**\
-`While the QB position gets all the attention, it might be the young defense that helps deliver this franchise out of the funk it's been in.`\
-https://nytimes.com/athletic/6311215/2025/04/26/giants-nfl-draft-defense-quarterback/
-
-**Chiefs get defensive on Day 2 of the draft, add youthful energy to their pass rush**\
-`The Chiefs defense has been carrying a bigger load in recent years, but after the Super Bowl LIX loss, it needed reinforcements.`\
-https://nytimes.com/athletic/6311530/2025/04/26/chiefs-nfl-draft-defensive-help/
 
