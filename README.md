@@ -1,3 +1,7 @@
+**Eagles draft safety Andrew Mukuba: How he fits, pick grade and scouting intel**\
+`The Eagles addressed arguably their biggest need by drafting a safety.`\
+https://nytimes.com/athletic/6310861/2025/04/25/andrew-mukuba-eagles-nfl-draft/
+
 **Chiefs draft DT Omarr Norman-Lott: How he fits, pick grade and scouting intel**\
 `Norman-Lott didn’t start for Tennessee, so he'll have to prove his value in Kansas City but his ceiling could be high under Steve Spagnuolo.`\
 https://nytimes.com/athletic/6310894/2025/04/25/omarr-norman-lott-chiefs-nfl-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/25/us/19-states-sue-the-trump-administration-over-it
 **Trump Officials Weaken Rules Insulating Government Workers From Politics**\
 `A reinterpretation of the Hatch Act announced by the administration lets officials wear campaign paraphernalia like MAGA hats, and removes an independent board’s role in policing violations.`\
 https://nytimes.com/2025/04/25/us/politics/trump-hatch-act.html
-
-**Packers draft OT Anthony Belton: How he fits, draft grade and scouting intel**\
-`The man nicknamed "Escalade" adds to the Packers' offensive line depth with versatility to play tackle or guard.`\
-https://nytimes.com/athletic/6310259/2025/04/25/anthony-belton-packers-nfl-draft/
 
