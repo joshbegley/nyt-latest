@@ -1,3 +1,15 @@
+**‘He Was Like Family’: Faithful Descend on St. Peter’s Square for Pope’s Funeral**\
+`Cardinals, royals and heads of state attended. But many mourners, some of whom slept on the streets overnight, said they came for a pope who had cared for the poor and marginalized.`\
+https://nytimes.com/2025/04/26/world/europe/pope-francis-funeral-st-peters-square.html
+
+**Giants NFL Draft hub: Picks, grades, fits and scouting reports**\
+`Keep coming back throughout the draft for grades and expert analysis of each Giants pick.`\
+https://nytimes.com/athletic/6290564/2025/04/26/giants-nfl-draft-picks-2025-grades-scouting-reports/
+
+**Patriots NFL Draft hub: Picks, grades, fits and scouting reports**\
+`Keep coming back here throughout the draft for grades and expert analysis of each New England Patriots pick.`\
+https://nytimes.com/athletic/6287648/2025/04/26/patriots-nfl-draft-picks-2025-grades-scouting-reports/
+
 **Carlisle relegated for second successive season to end 20-year EFL stay**\
 `Mark Hughes's side's defeat against Cheltenham Town confirmed back-to-back relegations for the club.`\
 https://nytimes.com/athletic/6311950/2025/04/26/carlisle-united-relegated-league-two-efl/
