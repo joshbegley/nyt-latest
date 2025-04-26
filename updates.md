@@ -1,3 +1,15 @@
+**With Game 3 win, Devils show resolve that could benefit them long beyond the playoffs**\
+`New Jersey's 3-2 victory over Carolina on Friday was the type of win that builds the foundation of a team.`\
+https://nytimes.com/athletic/6311697/2025/04/26/devils-hurricanes-nhl-playoffs-game-3-win/
+
+**Eagles see Andrew Mukuba as a physical, disciplined safety; stockpiled Day 3 picks with trades**\
+`The Eagles made a trade and had only one Day 2 pick.`\
+https://nytimes.com/athletic/6311313/2025/04/26/eagles-draft-andrew-mukuba-day-3-picks/
+
+**Broncos trio of Day 2 moves 'paid off' after landing offensive pieces RJ Harvey, Pat Bryant**\
+`The Broncos maneuvered to draft RJ Harvey, the RB with "maybe the best vision in the draft" and a physical receiver in Pat Bryant.`\
+https://nytimes.com/athletic/6311386/2025/04/26/broncos-nfl-draft-rj-harvey-pat-bryant/
+
 **NFL Draft best available players for New York Giants: Ollie Gordon II and Jalen Rivers**\
 `The Giants have four picks remaining entering Day 3 and have needs to address on the offensive line and in the RB room.`\
 https://nytimes.com/athletic/6307715/2025/04/26/giants-2025-nfl-draft-best-available/
