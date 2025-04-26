@@ -1,3 +1,15 @@
+**Chiefs get defensive on Day 2 of the draft, add youthful energy to their pass rush**\
+`The Chiefs defense has been carrying a bigger load in recent years, but after the Super Bowl LIX loss, it needed reinforcements.`\
+https://nytimes.com/athletic/6311530/2025/04/26/chiefs-nfl-draft-defensive-help/
+
+**NFL Draft best available players for New York Jets: Billy Bowman, Elic Ayomanor**\
+`The Jets have five picks to work with on Saturday.`\
+https://nytimes.com/athletic/6307954/2025/04/26/jets-2025-nfl-draft-best-available/
+
+**NFL Draft best available players for San Francisco 49ers: Marcus Mbow, Chase Lundt**\
+`The 49ers used their first four picks on defensive players. Does Kyle Shanahan gets some offensive firepower on Day 3? `\
+https://nytimes.com/athletic/6307707/2025/04/26/49ers-2025-nfl-draft-best-available/
+
 **Bills Day 3 mock draft: Trading up for a falling value, targeting special teams**\
 `The Bills will be hoping to find some Day 3 gems.`\
 https://nytimes.com/athletic/6311203/2025/04/26/buffalo-bills-mock-draft-day-3-nfl/
@@ -14,7 +26,7 @@ https://nytimes.com/athletic/6311339/2025/04/26/commanders-trey-amos-nfl-draft/
 `All four of their picks so far addressed a big problem at the end of the 2024 season — the defense had trouble stopping the run.`\
 https://nytimes.com/athletic/6311507/2025/04/26/49ers-nfl-draft-beef-defense/
 
-**How the Bengals altered their process to — perhaps — finally fix the OL drafting problem**\
+**How the Bengals altered their process to perhaps finally fix the OL drafting problem**\
 `Third-rounder Dylan Fairchild, a guard from Georgia, feels his connection with O-line coach Scott Peters is "a match made in heaven."`\
 https://nytimes.com/athletic/6311435/2025/04/26/dylan-fairchild-bengals-nfl-draft/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6311338/2025/04/26/mason-taylor-draft-new-york-jets
 **As Tensions Rise With Pakistan, a Moment of Truth for India’s Military**\
 `The risk of exposing a military still being modernized may constrain Prime Minister Narendra Modi as he weighs retaliation for a terrorist attack.`\
 https://nytimes.com/2025/04/26/world/asia/india-pakistan-military-kashmir-attack.html
-
-**Bouchard, Oilers beat Kings in high-scoring Game 3**\
-`Two Edmonton goals scored 10 second apart in the third period made it a 2-1 series.`\
-https://nytimes.com/athletic/6290495/2025/04/26/oilers-kings-nhl-playoffs-2025-game-3-takeaways/
-
-**Panthers NFL Draft hub: Picks, grades, fits and scouting reports**\
-`Follow here throughout the draft for analysis on each Panthers' pick over the three-day NFL Draft.`\
-https://nytimes.com/athletic/6293991/2025/04/26/panthers-nfl-draft-picks-2025-grades-scouting-reports/
-
-**College football stars who shouldn't still be available entering NFL Draft Day 3**\
-`There have been 102 picks made in the 2025 NFL Draft. Plenty of talented prospects are still waiting, though, including the 10 listed here.`\
-https://nytimes.com/athletic/6306345/2025/04/26/nfl-draft-2025-sleepers-day-3/
 
