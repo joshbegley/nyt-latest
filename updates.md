@@ -1,3 +1,15 @@
+**Raiders 2025 NFL Draft takeaways: Active weekend builds up team's depth**\
+`Thanks to a pair of trades, the Raiders were able to add 11 players to a roster that badly needed to plug holes and add talent.`\
+https://nytimes.com/athletic/6312541/2025/04/26/raiders-2025-nfl-draft-takeaways/
+
+**Campaign launched for London to host 2029 World Athletics Championships**\
+`The UK hosted the World Championships for the first time in 2017, when London staged the games — five years on from the 2012 Olympics.`\
+https://nytimes.com/athletic/6313068/2025/04/26/london-world-athletics-championships-2029/
+
+**Eubank Jr defeats Benn by unanimous decision in thrilling fight**\
+`After 12 rounds during which both fighters unleashed everything they had physically, all three judges scored it 116-112 in Eubank’s favour.`\
+https://nytimes.com/athletic/6313337/2025/04/26/chris-eubank-jr-conor-benn/
+
 **The Briefing: Barcelona 3 Real Madrid 2 - Kounde the unlikely hero in epic Copa del Rey final**\
 `Kounde scored the decisive goal at the end of extra time to kick-start Barca's quest for a treble of trophies`\
 https://nytimes.com/athletic/6301968/2025/04/26/barcelona-3-real-madrid-2-jules-kounde/
