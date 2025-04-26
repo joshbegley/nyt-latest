@@ -1,3 +1,11 @@
+**Palace, Man City, Villa or Forest: Who does winning the FA Cup matter most to?**\
+`Aside from Pep Guardiola's City, this season's last four has an unfamiliar feel but all involved have their own motivation to lift the cup`\
+https://nytimes.com/athletic/6286473/2025/04/26/city-palace-forest-villa-fa-cup-semi/
+
+**Forest Q&A: How to win the tactical battle, who will play at right-back against Man City?**\
+`Paul Taylor and Nick Miller answer the key questions about Nottingham Forest ahead of Sunday's FA Cup semi-final`\
+https://nytimes.com/athletic/6309427/2025/04/26/nottingham-forest-fa-cup-manchester-city/
+
 **Šimon Nemec goes from scratch to hero as battered Devils beat Hurricanes in Game 3**\
 `Nemec — a healthy scratch to start the series — flung a shot past Frederik Andersen for a 3-2 win that narrowed the series to 2-1.`\
 https://nytimes.com/athletic/6311030/2025/04/26/simon-nemec-nhl-playoffs-devils-hurricanes/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6311007/2025/04/25/alejandro-kirk-blue-jays/
 **NFL Draft best available players for Las Vegas Raiders: Shedeur Sanders, Quinn Ewers**\
 `With Sanders falling all the way to Day 3, isn't the potential circus worth it for a team that wants to draft a developmental quarterback?`\
 https://nytimes.com/athletic/6307540/2025/04/25/raiders-2025-nfl-draft-best-available/
-
-**NFL Draft best available players for Cincinnati Bengals: Ty Robinson, Lathan Ransom**\
-`The Bengals have taken an edge rusher, linebacker and guard. Expect safety to be a top priority on Saturday.`\
-https://nytimes.com/athletic/6305959/2025/04/25/bengals-2025-nfl-draft-best-available/
-
-**NFL Draft best available players for Bears: Cam Skattebo, Devin Neal**\
-`The Bears enter Day 3 of the draft still looking for a running back, and they could also pick a defensive back or linebacker.`\
-https://nytimes.com/athletic/6306479/2025/04/25/bears-2025-nfl-draft-best-available/
 
