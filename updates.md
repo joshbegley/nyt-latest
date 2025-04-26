@@ -1,3 +1,15 @@
+**Here’s the latest.**\
+`By Emma Bubola`\
+https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/heres-the-latest
+
+**Latest Updates: Mourners Gather for Pope Francis’ Funeral**\
+`The pontiff will be laid to rest after a Mass in front of St. Peter’s Basilica in Vatican City. The first Jesuit and first Latin American pope, he championed a more inclusive Roman Catholic Church.`\
+https://nytimes.com/live/2025/04/26/world/pope-francis-funeral
+
+**As Giants' QB future dominates headlines, NY has quietly built formidable, young defense**\
+`While the QB position gets all the attention, it might be the young defense that helps deliver this franchise out of the funk it's been in.`\
+https://nytimes.com/athletic/6311215/2025/04/26/giants-nfl-draft-defense-quarterback/
+
 **NFL Draft Day 2 winners and losers: Shedeur Sanders down, Tyler Shough (and his dog) up**\
 `Has a highly rated player ever fallen this far? It’s hard to think of one.`\
 https://nytimes.com/athletic/6311353/2025/04/26/nfl-draft-2025-day-2-winners-losers/
