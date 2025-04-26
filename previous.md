@@ -1,40 +1,40 @@
-**Raiders 2025 NFL Draft takeaways: Active weekend builds up team's depth**\
-`Thanks to a pair of trades, the Raiders were able to add 11 players to a roster that badly needed to plug holes and add talent.`\
-https://nytimes.com/athletic/6312541/2025/04/26/raiders-2025-nfl-draft-takeaways/
+**Eagles 2025 NFL Draft takeaways: Philadelphia gets large draft class, stockpiles future picks**\
+`The Eagles made several trade to accumulate late-round picks.`\
+https://nytimes.com/athletic/6312570/2025/04/26/philadelphia-eagles-2025-nfl-draft-picks-takeaways/
 
-**Campaign launched for London to host 2029 World Athletics Championships**\
-`The UK hosted the World Championships for the first time in 2017, when London staged the games — five years on from the 2012 Olympics.`\
-https://nytimes.com/athletic/6313068/2025/04/26/london-world-athletics-championships-2029/
+**NFL Draft 2025 best undrafted free agents, including Xavier Restrepo, Cobee Bryant**\
+`Will there be any diamonds in the rough among this year's UDFA class?`\
+https://nytimes.com/athletic/6309834/2025/04/26/nfl-draft-2025-best-undrafted-free-agents/
 
-**Eubank Jr defeats Benn by unanimous decision in thrilling fight**\
-`After 12 rounds during which both fighters unleashed everything they had physically, all three judges scored it 116-112 in Eubank’s favour.`\
-https://nytimes.com/athletic/6313337/2025/04/26/chris-eubank-jr-conor-benn/
+**Tyler Herro wanted to be the No. 1 option. Now he's learning how hard it is**\
+`Herro had to ascend to No. 1 option after the Jimmy Butler trade and is still figuring it out: "Obviously, I know I need Jimmy to win."`\
+https://nytimes.com/athletic/6313427/2025/04/26/tyler-herro-heat-cavaliers-jimmy-butler/
 
-**The Briefing: Barcelona 3 Real Madrid 2 - Kounde the unlikely hero in epic Copa del Rey final**\
-`Kounde scored the decisive goal at the end of extra time to kick-start Barca's quest for a treble of trophies`\
-https://nytimes.com/athletic/6301968/2025/04/26/barcelona-3-real-madrid-2-jules-kounde/
+**Mariners starter Logan Gilbert placed on IL with right elbow flexor strain**\
+`Gilbert left his start on Friday with right forearm tightness. He finished sixth in the AL Cy Young Award voting in 2024.`\
+https://nytimes.com/athletic/6313394/2025/04/26/mariners-logan-gilbert-injury/
 
-**NBA takeaways: Thunder sweep Grizzlies to claim West semifinals spot**\
-`The 37-point defeat was Miami's worst loss ever in the postseason.`\
-https://nytimes.com/athletic/6312928/2025/04/26/nba-playoffs-cavaliers-heat-thunder-grizzlies-nuggets-clippers-rockets-warriors/
+**Vikings draft takeaways: Minnesota finds great late value in LB Kobe King**\
+`With only four picks to begin, the Vikings addressed some major roster questions. But should they have done more to improve at cornerback?`\
+https://nytimes.com/athletic/6313018/2025/04/26/vikings-2025-nfl-draft-takeaways-minnesota-finds-great-late-value-in-lb-kobe-king/
 
-**Lightning's savvy offseason pickup of Jake Guentzel is paying off in the playoffs**\
-`"The bigger the moment, the bigger he plays," teammate Luke Glendening said of Guentzel's ability to elevate his play in the postseason.`\
-https://nytimes.com/athletic/6312362/2025/04/26/lightning-jake-guentzel-nhl-playoffs-panthers/
+**Commanders 2025 NFL Draft takeaways: Threading the short- and long-term needle**\
+`There are direct paths for many of Washington's five draft selections to start or earn significant snaps as rookies this season. `\
+https://nytimes.com/athletic/6313231/2025/04/26/washington-commanders-2025-nfl-draft-picks-takeaways/
 
-**Wisconsin Judge Arrest: What We Know**\
-`Judge Hannah Dugan is accused of obstructing justice after directing a migrant out of her courtroom as federal agents waited to arrest him. Her arrest has raised several questions.`\
-https://nytimes.com/2025/04/26/us/wisconsin-judge-hannah-dugan-arrest.html
+**Bengals 2025 NFL Draft takeaways: Circus out, responsible adults in for Cincinnati**\
+`The Bengals made six picks where every single one comes with strengths of maturity, leadership, responsibility and accountability.`\
+https://nytimes.com/athletic/6312403/2025/04/26/cincinnati-bengals-2025-nfl-draft-picks-takeaways/
 
-**Dolphins draft QB Quinn Ewers: How he fits, pick analysis and scouting intel**\
-`Ewers went 21-4 and led Texas to back-to-back College Football Playoff appearances in his final two collegiate seasons.`\
-https://nytimes.com/athletic/6279078/2025/04/26/quinn-ewers-dolphins-nfl-draft/
+**Packers 2025 NFL Draft takeaways: Jordan Love's arsenal expands with receiver duo**\
+`Speedster Matthew Golden and versatile Savion Williams give Green Bay's receiving corps new dimensions.`\
+https://nytimes.com/athletic/6312429/2025/04/26/green-bay-packers-2025-nfl-draft-picks-takeaways/
 
-**49ers draft QB Kurtis Rourke: How he fits, pick grade and scouting intel**\
-`Rourke set the Indiana single-season school record with 31 touchdowns while leading the Hoosiers to the College Football Playoff.`\
-https://nytimes.com/athletic/6313424/2025/04/26/kurtis-rourke-49ers-nfl-draft/
+**Steelers 2025 NFL Draft takeaways: With most needs filled, one big question remains**\
+`The Steelers got great value at need positions, turning all eyes back to quarterback, as the wait for Aaron Rodgers continues.`\
+https://nytimes.com/athletic/6313335/2025/04/26/pittsburgh-steelers-2025-nfl-draft-picks-takeaways/
 
-**Numbers Game**\
-`Jacob Reed’s debut Sunday puzzle might turn you around.`\
-https://nytimes.com/2025/04/26/crosswords/daily-puzzle-2025-04-27.html
+**49ers 2025 NFL Draft takeaways:  A defensive-heavy draft not seen in 44 years**\
+`The 49ers used their first five selections on defensive players for the first time since their famed 1981 draft that included Ronnie Lott. `\
+https://nytimes.com/athletic/6312540/2025/04/26/san-francisco-49ers-2025-nfl-draft-picks-takeaways/
 
