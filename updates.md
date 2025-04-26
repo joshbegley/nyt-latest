@@ -1,3 +1,15 @@
+**Rams mix nostalgia, traits and possibility into their Day 2 selections**\
+`Sean McVay has lofty comparisons for TE Terrance Ferguson and Josaiah Stewart has similarities to a former Ram.`\
+https://nytimes.com/athletic/6311541/2025/04/26/rams-draft-picks-terrance-ferguson-josaiah-stewart/
+
+**The Cowboys have put together a strong draft, despite not filling biggest holes**\
+`Dallas hasn't drafted a running back or receiver, but its best-player-available strategy has gotten the Cowboys three instant contributors.`\
+https://nytimes.com/athletic/6311699/2025/04/26/cowboys-nfl-draft-donovan-ezeiruaku-shavon-revel/
+
+**NFL Draft best available players for Los Angeles Rams: Danny Stutsman, Chase Lundt**\
+`As the Rams enter the final day of the NFL Draft, here's a look at potential targets in Rounds 4 through 7.`\
+https://nytimes.com/athletic/6307512/2025/04/26/rams-2025-nfl-draft-best-available/
+
 **Can Trump Still Kill Congestion Pricing After U.S. Lawyers Showed Doubt?**\
 `An embarrassing disclosure by federal lawyers revealed the weaknesses in the government’s bid to end the New York toll program. It could mark a turning point in the case.`\
 https://nytimes.com/2025/04/26/nyregion/nyc-congestion-pricing-dot-lawyers.html

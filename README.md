@@ -1,3 +1,11 @@
+**With Day 2 picks, Chargers find specific fits into their roster puzzle**\
+`The additions of Tre Harris and Jamaree Caldwell bolster both the receiver room and the defensive line, respectively. `\
+https://nytimes.com/athletic/6311880/2025/04/26/chargers-nfl-draft-tre-harris-jamaree-caldwell/
+
+**Who sits where at the funeral?**\
+`By Emma Bubola`\
+https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/pope-francis-funeral-seating
+
 **Can Trump Still Kill Congestion Pricing After U.S. Lawyers Showed Doubt?**\
 `An embarrassing disclosure by federal lawyers revealed the weaknesses in the government’s bid to end the New York toll program. It could mark a turning point in the case.`\
 https://nytimes.com/2025/04/26/nyregion/nyc-congestion-pricing-dot-lawyers.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6311699/2025/04/26/cowboys-nfl-draft-donovan-ezeiru
 **NFL Draft best available players for Commanders: Devin Neal, Tory Horton**\
 `Washington enters Day 3 of the draft with three selections, one in the fourth round, one in the sixth and one in the seventh.`\
 https://nytimes.com/athletic/6307201/2025/04/26/commanders-2025-nfl-draft-best-available/
-
-**NFL Draft best available players for Los Angeles Rams: Danny Stutsman, Chase Lundt**\
-`As the Rams enter the final day of the NFL Draft, here's a look at potential targets in Rounds 4 through 7.`\
-https://nytimes.com/athletic/6307512/2025/04/26/rams-2025-nfl-draft-best-available/
-
-**NFL Draft best available players for Indianapolis Colts: Smael Mondon Jr. and Brashard Smith**\
-`The Colts have filled some of the holes on their roster, but they still have needs at guard, linebacker and more. `\
-https://nytimes.com/athletic/6308391/2025/04/26/colts-2025-nfl-draft-best-available/
 
