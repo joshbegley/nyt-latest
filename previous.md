@@ -1,3 +1,7 @@
+**Bills draft DT T.J. Sanders: How he fits, pick grade and scouting intel**\
+`The Bills filled a clear need at defensive tackle by trading up.`\
+https://nytimes.com/athletic/6310534/2025/04/25/tj-sanders-bills-nfl-draft/
+
 **Report: Mets bring back left-handed reliever Brooks Raley on 1-year deal**\
 `Raley, who had Tommy John surgery last year, could return for New York sometime late this summer.`\
 https://nytimes.com/athletic/6310572/2025/04/25/new-york-mets-brooks-raley-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6278950/2025/04/25/tyler-shough-saints-nfl-draft/
 **Bears draft WR Luther Burden III: How he fits, draft grade and scouting intel**\
 `Burden, a semifinalist for the Biletnikoff Award, joins Ben Johnson and the new-look Bears offense. `\
 https://nytimes.com/athletic/6270160/2025/04/25/luther-burden-iii-bears-nfl-draft/
-
-**Could Mars Be Elon Musk’s Next Business Venture?**\
-`Even as Musk’s work at the Department of Government Efficiency appeared to consume him, his top adviser created a set of companies named Red Planet I, II and III.`\
-https://nytimes.com/2025/04/25/us/politics/elon-musk-mars.html
 

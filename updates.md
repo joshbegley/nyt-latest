@@ -1,3 +1,7 @@
+**Bills draft DT T.J. Sanders: How he fits, pick grade and scouting intel**\
+`The Bills filled a clear need at defensive tackle by trading up.`\
+https://nytimes.com/athletic/6310534/2025/04/25/tj-sanders-bills-nfl-draft/
+
 **Report: Mets bring back left-handed reliever Brooks Raley on 1-year deal**\
 `Raley, who had Tommy John surgery last year, could return for New York sometime late this summer.`\
 https://nytimes.com/athletic/6310572/2025/04/25/new-york-mets-brooks-raley-contract/
