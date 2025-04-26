@@ -1,3 +1,7 @@
+**Jed the Fish, Quirky Pioneer of Los Angeles Radio, Dies at 69**\
+`With his off-kilter sensibility and deep musical grounding, he brought attention to New Wave and alternative artists at the groundbreaking station KROQ.`\
+https://nytimes.com/2025/04/26/arts/music/edwin-gould-jed-the-fish-dead.html
+
 **Man United director of scouting leaving amid department cutbacks**\
 `The number of scouts employed by United will fall significantly as the second redundancy drive of Sir Jim Ratcliffe’s reign begins.`\
 https://nytimes.com/athletic/6312615/2025/04/26/manchester-united-scouts-redundancies-cuts/

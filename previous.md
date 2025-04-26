@@ -1,3 +1,7 @@
+**Jed the Fish, Quirky Pioneer of Los Angeles Radio, Dies at 69**\
+`With his off-kilter sensibility and deep musical grounding, he brought attention to New Wave and alternative artists at the groundbreaking station KROQ.`\
+https://nytimes.com/2025/04/26/arts/music/edwin-gould-jed-the-fish-dead.html
+
 **Man United director of scouting leaving amid department cutbacks**\
 `The number of scouts employed by United will fall significantly as the second redundancy drive of Sir Jim Ratcliffe’s reign begins.`\
 https://nytimes.com/athletic/6312615/2025/04/26/manchester-united-scouts-redundancies-cuts/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6311950/2025/04/26/carlisle-united-relegated-league
 **The church’s attention now turns to its future.**\
 `By Jason Horowitz`\
 https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/the-churchs-attention-now-turns-to-its-future
-
-**The Briefing: Newcastle 3 Ipswich 0 - Howe returns, Osula's first top-flight goal and visitors relegated**\
-`Chris Waugh and George Caulkin analyse the main talking points from Newcastle's win against Ipswich`\
-https://nytimes.com/athletic/6301466/2025/04/26/newcastle-ipswich-analysis-premier-league/
 
