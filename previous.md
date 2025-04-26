@@ -1,3 +1,7 @@
+**Maple Leafs roster update vs. Senators: Likely lines, big questions for Game 4**\
+`Can the Leafs sweep the Sens? They are sticking with what worked in Game 3 — but don't be surprised to see changes as the game progresses.`\
+https://nytimes.com/athletic/6310165/2025/04/26/maple-leafs-game-4-roster-lineup-nhl-playoffs/
+
 **Novak Djokovic exits Madrid Open after shock defeat to Matteo Arnaldi**\
 `Djokovic has already suffered four opening-match defeats in 2025.`\
 https://nytimes.com/athletic/6312376/2025/04/26/djokovic-madrid-open-arnaldi-result-analysis/
@@ -8,7 +12,7 @@ https://nytimes.com/interactive/2025/04/26/world/europe/pope-francis-funeral-att
 
 **Trump’s Blue Suit at Pope’s Funeral Draws Attention**\
 `President Trump’s choice stood out in a sea of world leaders and famous faces who were dressed in customary black.`\
-https://nytimes.com/2025/04/26/world/europe/trumps-blue-suit-at-popes-funeral-draws-attention.html
+https://nytimes.com/2025/04/26/world/europe/trump-pope-francis-funeral-blue-suit.html
 
 **The 6 Very Best Duffle Bags **\
 `(No description)`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6303330/2025/04/26/seahawks-nfl-draft-picks-2025-gr
 **Perfect Yellow Sheet Cake, No Gluten Needed**\
 `“Baked this today, the lightest, softest gluten-free cake I’ve made over 20 years of gluten-free baking.”`\
 https://nytimes.com/2025/04/26/dining/gluten-free-sheet-cake-recipe.html
-
-**Trump Doesn’t Want to Govern**\
-`He wants to rule.`\
-https://nytimes.com/2025/04/26/opinion/trump-government-ruler-republic.html
 
