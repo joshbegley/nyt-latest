@@ -1,3 +1,7 @@
+**Shedeur Sanders’ NFL Draft tumble continues as QB isn't picked in second round**\
+`Once widely projected as a first-round pick, Sanders' landing spot became less clear as the draft approached.`\
+https://nytimes.com/athletic/6310337/2025/04/25/shedeur-sanders-nfl-draft-slide-continues/
+
 **Canadiens, Capitals brawl spills into benches in Game 3**\
 `Linesman Kyle Wellington, at one point, was nearly toppled over the bench by Tom Wilson and Josh Anderson, the principle antagonists.`\
 https://nytimes.com/athletic/6310739/2025/04/25/canadiens-capitals-brawl-nhl-playoffs/

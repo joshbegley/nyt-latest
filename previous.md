@@ -1,3 +1,7 @@
+**Shedeur Sanders’ NFL Draft tumble continues as QB isn't picked in second round**\
+`Once widely projected as a first-round pick, Sanders' landing spot became less clear as the draft approached.`\
+https://nytimes.com/athletic/6310337/2025/04/25/shedeur-sanders-nfl-draft-slide-continues/
+
 **Canadiens, Capitals brawl spills into benches in Game 3**\
 `Linesman Kyle Wellington, at one point, was nearly toppled over the bench by Tom Wilson and Josh Anderson, the principle antagonists.`\
 https://nytimes.com/athletic/6310739/2025/04/25/canadiens-capitals-brawl-nhl-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/25/us/politics/trump-pardon-walczak-ashley-biden-dia
 **Panthers draft edge Nic Scourton: How he fits, pick grade and scouting intel**\
 `Carolina adds pass rusher depth in a trade-up with Denver in the second round of the 2025 NFL Draft. `\
 https://nytimes.com/athletic/6310655/2025/04/25/nic-scourton-panthers-nfl-draft/
-
-**Seahawks draft tight end Elijah Arroyo: How he fits, draft grade and scouting intel**\
-`Arroyo, who had a breakout 2024 season at Miami, becomes the highest-drafted tight end in the John Schneider era.`\
-https://nytimes.com/athletic/6310651/2025/04/25/elijah-arroyo-seahawks-nfl-draft/
 

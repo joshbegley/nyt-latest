@@ -1,3 +1,11 @@
+**Packers draft OT Anthony Belton: How he fits, draft grade and scouting intel**\
+`The man nicknamed "Escalade" adds to the Packers' offensive line depth with versatility to play tackle or guard.`\
+https://nytimes.com/athletic/6310259/2025/04/25/anthony-belton-packers-nfl-draft/
+
+**Bears draft OT Ozzy Trapilo: How he fits, draft grade and scouting intel**\
+`It took longer than Bears fans wanted, but they took an offensive tackle with the 56th pick, grabbing the 6-foot-8 Trapilo.`\
+https://nytimes.com/athletic/6310714/2025/04/25/ozzy-trapilo-bears-nfl-draft/
+
 **Shedeur Sanders’ NFL Draft tumble continues as QB isn't picked in second round**\
 `Once widely projected as a first-round pick, Sanders' landing spot became less clear as the draft approached.`\
 https://nytimes.com/athletic/6310337/2025/04/25/shedeur-sanders-nfl-draft-slide-continues/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6310705/2025/04/25/terrance-ferguson-rams-nfl-draft
 **Raiders draft WR Jack Bech: How he fits, pick grade and scouting intel**\
 `Bech led TCU in 2024 with 62 catches for 1,034 yards and nine receiving touchdowns. `\
 https://nytimes.com/athletic/6271779/2025/04/25/jack-bech-raiders-nfl-draft/
-
-**Trump Pardons Executive Whose Family Sought to Publicize Ashley Biden’s Diary**\
-`The pardon of Paul Walczak, who had been convicted of tax crimes, comes as the president uses clemency to reward allies and swipe at perceived enemies.`\
-https://nytimes.com/2025/04/25/us/politics/trump-pardon-walczak-ashley-biden-diary.html
-
-**Panthers draft edge Nic Scourton: How he fits, pick grade and scouting intel**\
-`Carolina adds pass rusher depth in a trade-up with Denver in the second round of the 2025 NFL Draft. `\
-https://nytimes.com/athletic/6310655/2025/04/25/nic-scourton-panthers-nfl-draft/
 
