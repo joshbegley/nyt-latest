@@ -1,40 +1,40 @@
+**Chiefs draft DT Omarr Norman-Lott: How he fits, pick grade and scouting intel**\
+`Norman-Lott didn’t start for Tennessee, so he'll have to prove his value in Kansas City but his ceiling could be high under Steve Spagnuolo.`\
+https://nytimes.com/athletic/6310894/2025/04/25/omarr-norman-lott-chiefs-nfl-draft/
+
+**Lightning's Brandon Hagel suspended 1 game for hit on Panthers' Aleksander Barkov**\
+`Hagel was assessed a five-minute major penalty following a review by officials in Game 2.`\
+https://nytimes.com/athletic/6309585/2025/04/25/nhl-suspension-lightning-brandon-hagel-hit-injury/
+
+**Virginia Giuffre, Voice in Epstein Sex Trafficking Scandal, Dies at 41**\
+`She accused Jeffrey Epstein and his co-conspirator, Ghislaine Maxwell, of recruiting her to join their sex trafficking ring and sued Prince Andrew for sexual assault.`\
+https://nytimes.com/2025/04/25/us/virginia-giuffre-dead.html
+
+**Why a Wisconsin Judge Was Arrested by the F.B.I.**\
+`F.`\
+https://nytimes.com/video/us/politics/100000010130874/why-a-wisconsin-judge-was-arrested-by-the-fbi.html
+
+**Commanders draft CB Trey Amos: How he fits, pick grade and scouting intel**\
+`Amos finished his final college season at Ole Miss and had three interceptions while being named a first-team All-SEC performer. `\
+https://nytimes.com/athletic/6310842/2025/04/25/trey-amos-commanders-nfl-draft/
+
+**Broncos draft RB RJ Harvey: How he fits, pick grade and scouting intel**\
+`Harvey rushed for 1,577 yards and 22 touchdowns and added 20 catches for 267 yards and three more scores.`\
+https://nytimes.com/athletic/6310840/2025/04/25/rj-harvey-broncos-nfl-draft/
+
+**Nationals turn triple play in walk-off win against Mets thanks to umpire's mistake**\
+`The Nationals turned their first triple play during a home game, thanks to missed call that wasn't reviewable. `\
+https://nytimes.com/athletic/6310747/2025/04/25/nationals-mets-triple-play/
+
+**19 States Sue the Trump Administration Over Its D.E.I. Demand in Schools**\
+`The Trump administration threatened to withhold federal funding from states that did not enforce its interpretation of civil rights law.`\
+https://nytimes.com/2025/04/25/us/19-states-sue-the-trump-administration-over-its-dei-demand-in-schools.html
+
+**Trump Officials Weaken Rules Insulating Government Workers From Politics**\
+`A reinterpretation of the Hatch Act announced by the administration lets officials wear campaign paraphernalia like MAGA hats, and removes an independent board’s role in policing violations.`\
+https://nytimes.com/2025/04/25/us/politics/trump-hatch-act.html
+
 **Packers draft OT Anthony Belton: How he fits, draft grade and scouting intel**\
 `The man nicknamed "Escalade" adds to the Packers' offensive line depth with versatility to play tackle or guard.`\
 https://nytimes.com/athletic/6310259/2025/04/25/anthony-belton-packers-nfl-draft/
-
-**Bears draft OT Ozzy Trapilo: How he fits, draft grade and scouting intel**\
-`It took longer than Bears fans wanted, but they took an offensive tackle with the 56th pick, grabbing the 6-foot-8 Trapilo.`\
-https://nytimes.com/athletic/6310714/2025/04/25/ozzy-trapilo-bears-nfl-draft/
-
-**Shedeur Sanders’ NFL Draft tumble continues as QB isn't picked in second round**\
-`Once widely projected as a first-round pick, Sanders' landing spot became less clear as the draft approached.`\
-https://nytimes.com/athletic/6310337/2025/04/25/shedeur-sanders-nfl-draft-slide-continues/
-
-**Canadiens, Capitals brawl spills into benches in Game 3**\
-`Linesman Kyle Wellington, at one point, was nearly toppled over the bench by Tom Wilson and Josh Anderson, the principle antagonists.`\
-https://nytimes.com/athletic/6310739/2025/04/25/canadiens-capitals-brawl-nhl-playoffs/
-
-**Bengals draft LB Demetrius Knight Jr.: How he fits, draft grade and scouting intel**\
-`The South Carolina linebacker will have an opportunity to start next to veteran Logan Wilson in coordinator Al Golden's defense.`\
-https://nytimes.com/athletic/6310254/2025/04/25/demetrius-knight-bengals-nfl-draft/
-
-**Chargers draft WR Tre Harris: How he fits, pick grade and scouting intel**\
-`The Ole Miss product gives Justin Herbert another pass catcher for the Los Angeles offense.`\
-https://nytimes.com/athletic/6310723/2025/04/25/tre-harris-chargers-nfl-draft/
-
-**Ravens draft edge Mike Green: How he fits, draft grade and scouting intel**\
-`Green dominated at Marshall, leading FBS with 17 sacks in 2024. `\
-https://nytimes.com/athletic/6280036/2025/04/25/mike-green-ravens-nfl-draft/
-
-**Trump Administration Opens Civil Rights Inquiry Into a Long Island Mascot Fight**\
-`President Donald Trump is weighing in on a school mascot dispute at Massapequa High School, where some parents are upset that a Chiefs mascot and logo must go under a state rule.`\
-https://nytimes.com/2025/04/25/us/politics/trump-massapequa-mascot-inquiry.html
-
-**Rams draft TE Terrance Ferguson: How he fits, pick grade and scouting intel**\
-`Terrance Ferguson, 6-foot-5 and 247 pounds, will join a full tight end room but one with questions and in need of improvement.`\
-https://nytimes.com/athletic/6310705/2025/04/25/terrance-ferguson-rams-nfl-draft/
-
-**Raiders draft WR Jack Bech: How he fits, pick grade and scouting intel**\
-`Bech led TCU in 2024 with 62 catches for 1,034 yards and nine receiving touchdowns. `\
-https://nytimes.com/athletic/6271779/2025/04/25/jack-bech-raiders-nfl-draft/
 
