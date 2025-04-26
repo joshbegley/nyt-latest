@@ -1,4 +1,8 @@
-**Giants draft RB Cam Skattebo: How he fits, pick grade and scouting intel**\
+**Beer Aboard a Flight to a Dry Alaska Town Costs a Pilot His $95,000 Plane**\
+`In 2012, a state trooper in Fairbanks, Alaska, said that Kenneth J. Jouppi knowingly tried to fly into a dry community with a six-pack on board.`\
+https://nytimes.com/2025/04/26/us/alaska-supreme-court-beer-bootlegging-plane.html
+
+**Giants draft RB Cam Skattebo: How he fits, pick analysis and scouting intel**\
 `Skattebo rushed for 1,711 yards and 21 touchdowns and also caught 45 passes for 605 yards and three scores at Arizona State last season. `\
 https://nytimes.com/athletic/6312506/2025/04/26/cam-skattebo-giants-nfl-draft/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6303781/2025/04/26/lions-nfl-draft-picks-2025-grade
 **Maple Leafs roster update vs. Senators: Likely lines, big questions for Game 4**\
 `Can the Leafs sweep the Sens? They are sticking with what worked in Game 3 — but don't be surprised to see changes as the game progresses.`\
 https://nytimes.com/athletic/6310165/2025/04/26/maple-leafs-game-4-roster-lineup-nhl-playoffs/
-
-**'Trying to win a match or two': Novak Djokovic explains 'new reality' after Madrid Open defeat**\
-`Djokovic has already suffered four opening-match defeats in 2025.`\
-https://nytimes.com/athletic/6312376/2025/04/26/djokovic-madrid-open-arnaldi-result-analysis/
 
