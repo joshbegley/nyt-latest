@@ -1,3 +1,11 @@
+**Canadiens turn tide vs. Capitals in Game 3 at electric Bell Centre: Takeaways**\
+`The game featured a major brawl and both starting goalies leaving with injuries in playoff hockey's return to Montreal.`\
+https://nytimes.com/athletic/6310539/2025/04/25/capitals-canadiens-nhl-playoffs-2025-game-3-takeaways/
+
+**Do the Impossible**\
+`Sarah Sinclair and Rafael Musa’s collaboration unfolds excitingly.`\
+https://nytimes.com/2025/04/25/crosswords/daily-puzzle-2025-04-26.html
+
 **Eagles draft safety Andrew Mukuba: How he fits, pick grade and scouting intel**\
 `The Eagles addressed arguably their biggest need by drafting a safety.`\
 https://nytimes.com/athletic/6310861/2025/04/25/andrew-mukuba-eagles-nfl-draft/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6310840/2025/04/25/rj-harvey-broncos-nfl-draft/
 **Nationals turn triple play in walk-off win against Mets thanks to umpire's mistake**\
 `The Nationals turned their first triple play during a home game, thanks to missed call that wasn't reviewable. `\
 https://nytimes.com/athletic/6310747/2025/04/25/nationals-mets-triple-play/
-
-**19 States Sue the Trump Administration Over Its D.E.I. Demand in Schools**\
-`The Trump administration threatened to withhold federal funding from states that did not enforce its interpretation of civil rights law.`\
-https://nytimes.com/2025/04/25/us/19-states-sue-the-trump-administration-over-its-dei-demand-in-schools.html
-
-**Trump Officials Weaken Rules Insulating Government Workers From Politics**\
-`A reinterpretation of the Hatch Act announced by the administration lets officials wear campaign paraphernalia like MAGA hats, and removes an independent board’s role in policing violations.`\
-https://nytimes.com/2025/04/25/us/politics/trump-hatch-act.html
 
