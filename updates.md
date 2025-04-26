@@ -1,3 +1,11 @@
+**Twenty years ago, three U.S. presidents traveled together to mourn a pope. Not so this time.**\
+`By David E. Sanger`\
+https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/twenty-years-ago-three-us-presidents-traveled-together-to-mourn-a-pope-not-so-this-time
+
+**My Selfie With Francis: The Digital Legacy of an Approachable Pope**\
+`Many of the Catholics he counseled were much younger, but he made a habit of trying to meet them where they were.`\
+https://nytimes.com/2025/04/26/world/europe/pope-francis-selfies-photos-videos.html
+
 **Chargers NFL Draft hub: Picks, grades, fits and scouting reports**\
 `Keep coming back throughout the draft for grades and expert analysis of each Chargers pick.`\
 https://nytimes.com/athletic/6299433/2025/04/26/chargers-nfl-draft-picks-2025-grades-scouting-reports/

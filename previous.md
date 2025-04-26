@@ -1,3 +1,11 @@
+**Twenty years ago, three U.S. presidents traveled together to mourn a pope. Not so this time.**\
+`By David E. Sanger`\
+https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/twenty-years-ago-three-us-presidents-traveled-together-to-mourn-a-pope-not-so-this-time
+
+**My Selfie With Francis: The Digital Legacy of an Approachable Pope**\
+`Many of the Catholics he counseled were much younger, but he made a habit of trying to meet them where they were.`\
+https://nytimes.com/2025/04/26/world/europe/pope-francis-selfies-photos-videos.html
+
 **Chargers NFL Draft hub: Picks, grades, fits and scouting reports**\
 `Keep coming back throughout the draft for grades and expert analysis of each Chargers pick.`\
 https://nytimes.com/athletic/6299433/2025/04/26/chargers-nfl-draft-picks-2025-grades-scouting-reports/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/26/crosswords/spelling-bee-forum.html
 **Rams mix nostalgia, traits and possibility into their Day 2 selections**\
 `Sean McVay has lofty comparisons for TE Terrance Ferguson and Josaiah Stewart has similarities to a former Ram.`\
 https://nytimes.com/athletic/6311541/2025/04/26/rams-draft-picks-terrance-ferguson-josaiah-stewart/
-
-**'In Franz we trust': For Magic's Franz Wagner, redemption is a few steps away**\
-`Wagner isn't a star yet. But his 32-point, seven-rebound, eight-assist performance in Game 3 shows he's close. `\
-https://nytimes.com/athletic/6311738/2025/04/26/franz-wagner-magic-celtics-game-3/
-
-**The Cowboys have put together a strong draft, despite not filling biggest holes**\
-`Dallas hasn't drafted a running back or receiver, but its best-player-available strategy has gotten the Cowboys three instant contributors.`\
-https://nytimes.com/athletic/6311699/2025/04/26/cowboys-nfl-draft-donovan-ezeiruaku-shavon-revel/
 
