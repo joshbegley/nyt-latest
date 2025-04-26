@@ -1,3 +1,11 @@
+**Raiders draft QB Cam Miller: How he fits, pick grade and scouting intel**\
+`Miller started 54 consecutive games for North Dakota State and won two national championships with the Bison.`\
+https://nytimes.com/athletic/6310338/2025/04/26/cam-miller-raiders-nfl-draft/
+
+**Sirens eliminated from playoff contention: Gold Plan, offseason and what comes next**\
+`The Sirens have officially failed to qualify for the PWHL playoffs for the second straight year. `\
+https://nytimes.com/athletic/6313073/2025/04/26/pwhl-playoffs-new-york-sirens-eliminated/
+
 **Why was Packers fourth-round pick Barryn Sorrell still at the NFL Draft in Green Bay?**\
 `The Texas defensive end had been in Green Bay since Wednesday and sat in the green room alone before getting picked.`\
 https://nytimes.com/athletic/6313112/2025/04/26/green-bay-packers-barryn-sorrell-nfl-draft/
@@ -14,7 +22,7 @@ https://nytimes.com/2025/04/26/arts/music/david-thomas-dead.html
 `For many ordinary Palestinians, the appointment of Hussein al-Sheikh was emblematic of how out-of-touch the leadership of the Western-backed Palestinian Authority has become.`\
 https://nytimes.com/2025/04/26/world/middleeast/palestinian-authority-abbas-hussein-al-sheikh.html
 
-**Colts draft Notre Dame QB Riley Leonard: How he fits, pick grade and scouting intel**\
+**Colts draft Notre Dame QB Riley Leonard: How he fits, pick analysis and scouting intel**\
 `Still a raw passer, Leonard has flexed his ability to be a dual-threat quarterback and make an immediate impact at a new program. `\
 https://nytimes.com/athletic/6311264/2025/04/26/riley-leonard-colts-nfl-draft/
 
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/europe/100000010132425/pope-francis-funeral-vati
 **NBA takeaways: Cavaliers roll past Heat en route to 37-point win**\
 `The 37-point defeat was Miami's worst loss ever in the postseason.`\
 https://nytimes.com/athletic/6312928/2025/04/26/nba-playoffs-cavaliers-heat-thunder-grizzlies-nuggets-clippers-rockets-warriors/
-
-**Lightning break out in Game 3 to cut series lead to 2-1 Panthers: Takeaways**\
-`Andrei Vasilevskiy rose to the occasion in Game 3 of the Battle of Florida, backstopping the desperate Lightning to a 5-1 victory.`\
-https://nytimes.com/athletic/6312818/2025/04/26/panthers-lightning-nhl-playoffs-2025-game-3-takeaways/
-
-**Trump says Putin may not want peace and may need to be ‘dealt with differently.’**\
-`By Tim Balk`\
-https://nytimes.com/live/2025/04/26/us/trump-news/trump-says-putin-may-not-want-peace-and-may-need-to-be-dealt-with-differently
 

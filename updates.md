@@ -1,3 +1,15 @@
+**Raiders draft QB Cam Miller: How he fits, pick grade and scouting intel**\
+`Miller started 54 consecutive games for North Dakota State and won two national championships with the Bison.`\
+https://nytimes.com/athletic/6310338/2025/04/26/cam-miller-raiders-nfl-draft/
+
+**Sirens eliminated from playoff contention: Gold Plan, offseason and what comes next**\
+`The Sirens have officially failed to qualify for the PWHL playoffs for the second straight year. `\
+https://nytimes.com/athletic/6313073/2025/04/26/pwhl-playoffs-new-york-sirens-eliminated/
+
+**Colts draft Notre Dame QB Riley Leonard: How he fits, pick analysis and scouting intel**\
+`Still a raw passer, Leonard has flexed his ability to be a dual-threat quarterback and make an immediate impact at a new program. `\
+https://nytimes.com/athletic/6311264/2025/04/26/riley-leonard-colts-nfl-draft/
+
 **Why was Packers fourth-round pick Barryn Sorrell still at the NFL Draft in Green Bay?**\
 `The Texas defensive end had been in Green Bay since Wednesday and sat in the green room alone before getting picked.`\
 https://nytimes.com/athletic/6313112/2025/04/26/green-bay-packers-barryn-sorrell-nfl-draft/

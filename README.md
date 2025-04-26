@@ -1,3 +1,15 @@
+**ESPN's Mel Kiper Jr. reacts to Shedeur Sanders' selection, says NFL is 'clueless'**\
+`"The NFL has been clueless for 50 years when it comes to evaluating quarterbacks," Kiper said.`\
+https://nytimes.com/athletic/6312884/2025/04/26/shedeur-sanders-draft-reactions-mel-kiper/
+
+**International Students Worry Even as Trump Temporarily Restores Some Legal Statuses**\
+`Students and their immigration lawyers say they were relieved for the temporary reprieve, but emphasized that it was just that — temporary.`\
+https://nytimes.com/2025/04/26/us/politics/trump-student-visas.html
+
+**Raiders draft QB Cam Miller: How he fits, pick grade and scouting intel**\
+`Miller started 54 consecutive games for North Dakota State and won two national championships with the Bison.`\
+https://nytimes.com/athletic/6313307/2025/04/26/cam-miller-raiders-nfl-draft/
+
 **Raiders draft QB Cam Miller: How he fits, pick grade and scouting intel**\
 `Miller started 54 consecutive games for North Dakota State and won two national championships with the Bison.`\
 https://nytimes.com/athletic/6310338/2025/04/26/cam-miller-raiders-nfl-draft/
@@ -23,18 +35,6 @@ https://nytimes.com/2025/04/26/arts/music/david-thomas-dead.html
 https://nytimes.com/2025/04/26/world/middleeast/palestinian-authority-abbas-hussein-al-sheikh.html
 
 **Colts draft Notre Dame QB Riley Leonard: How he fits, pick analysis and scouting intel**\
-`Still a raw passer, Leonard has flexed his ability to be a dual-threat quarterback and make an immediate impact at a new program. `\
+`Still a raw passer, Leonard has flexed his ability to be a dual-threat quarterback and will have time to develop as the QB3 in Indianapolis.`\
 https://nytimes.com/athletic/6311264/2025/04/26/riley-leonard-colts-nfl-draft/
-
-**Steelers draft Ohio State QB Will Howard: How he fits, pick grade and scouting intel**\
-`Howard led Ohio State to the College Football Playoff national title in January, where he was the championship game's offensive MVP.`\
-https://nytimes.com/athletic/6279022/2025/04/26/will-howard-steelers-nfl-draft/
-
-**Pope Francis Remembered During Funeral in Vatican City**\
-`Hundreds of thousands paid their respects to the pope at his funeral in front of St. Peter’s Basilica, the Vatican said.`\
-https://nytimes.com/video/world/europe/100000010132425/pope-francis-funeral-vatican-city.html
-
-**NBA takeaways: Cavaliers roll past Heat en route to 37-point win**\
-`The 37-point defeat was Miami's worst loss ever in the postseason.`\
-https://nytimes.com/athletic/6312928/2025/04/26/nba-playoffs-cavaliers-heat-thunder-grizzlies-nuggets-clippers-rockets-warriors/
 
