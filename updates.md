@@ -1,3 +1,11 @@
+**Pacers blow second-half lead to let Bucks back in series: 'We were bad'**\
+`"We were playing on our heels a little bit," Tyrese Haliburton said after the loss. "That starts with me."`\
+https://nytimes.com/athletic/6311998/2025/04/26/pacers-blow-lead-bucks-game-3/
+
+**NHL playoffs daily: Devils win OT thriller, Canadiens claim brawling Game 3**\
+`The wins for the Edmonton Oilers, Montreal Canadiens and New Jersey Devils all injected season-season juice into their first-round series.`\
+https://nytimes.com/athletic/6312058/2025/04/26/nhl-playoffs-daily-results-canadiens-devils-oilers-game-3/
+
 **The Pulse: Hockey's surprising villain**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6311477/2025/04/26/shedeur-sanders-nfl-draft-the-pulse/
