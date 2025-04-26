@@ -1,3 +1,7 @@
+**Eagles drafts QB Kyle McCord: How he fits, pick analysis and scouting intel**\
+`After rewriting the record books at Syracuse, McCord enters the NFL as a true pocket passer ideal for a QB-friendly offense. `\
+https://nytimes.com/athletic/6312419/2025/04/26/kyle-mccord-eagles-nfl-draft/
+
 **Palace had 'no doubt' on Glasner despite slow start to season**\
 `Palace won just 1 of their opening 13 Premier League matches this term but are now just one game away from their first ever major trophy.`\
 https://nytimes.com/athletic/6312914/2025/04/26/crystal-palace-glasner-fa-cup-final/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6312692/2025/04/26/graham-potter-west-ham-players/
 **Tell Us Your Wild New York City Roommate Stories**\
 `When the rent is high and the vacancy rates are low, sharing your space with others becomes a must.`\
 https://nytimes.com/2025/04/26/nyregion/new-york-city-roommates.html
-
-**Browns stop Shedeur Sanders slide, selecting Colorado QB in fifth round**\
-`Sanders became the sixth quarterback selected in this year's draft — and the second by Cleveland.`\
-https://nytimes.com/athletic/6312436/2025/04/26/shedeur-sanders-browns-2025-nfl-draft-pick/
 
