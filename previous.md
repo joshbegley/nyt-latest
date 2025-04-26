@@ -1,3 +1,7 @@
+**2 Books for Cluttered Minds**\
+`A spare elegy; a weird journey.`\
+https://nytimes.com/2025/04/26/books/read-like-wind-recommendations.html
+
 **The Pope’s Funeral**\
 `We are live from the Vatican.`\
 https://nytimes.com/2025/04/26/briefing/pope-francis-funeral.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/26/opinion/trump-american-values.html
 **America’s Tough Guy in Chief Is Making America Weak**\
 `Don’t drop your guard while picking fights around the globe.`\
 https://nytimes.com/2025/04/26/opinion/trump-national-security.html
-
-**Trump’s Vicious Sewing Circle**\
-`Catfights abound in Trump’s macho world.`\
-https://nytimes.com/2025/04/26/opinion/trump-gender-roles-masculinity.html
 

@@ -1,3 +1,7 @@
+**2 Books for Cluttered Minds**\
+`A spare elegy; a weird journey.`\
+https://nytimes.com/2025/04/26/books/read-like-wind-recommendations.html
+
 **The Pope’s Funeral**\
 `We are live from the Vatican.`\
 https://nytimes.com/2025/04/26/briefing/pope-francis-funeral.html
