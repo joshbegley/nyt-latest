@@ -1,3 +1,19 @@
+**Best available players for the Steelers: is Shedeur Sanders still an option on Day 3?**\
+`Nobody saw Sanders dropping to Day 3. The Steelers passed twice, but they still plan to take a developmental quarterback on Saturday.`\
+https://nytimes.com/athletic/6307633/2025/04/25/steelers-2025-nfl-draft-best-available/
+
+**‘I needed it, the team needed it’: Alejandro Kirk comes through for Blue Jays**\
+`Alejandro Kirk's struggles have been emblematic of an offense that has scuffled as a whole. Friday's clutch hit provide a spark. `\
+https://nytimes.com/athletic/6311007/2025/04/25/alejandro-kirk-blue-jays/
+
+**NFL Draft best available players for Las Vegas Raiders: Shedeur Sanders, Quinn Ewers**\
+`With Sanders falling all the way to Day 3, isn't the potential circus worth it for a team that wants to draft a developmental quarterback?`\
+https://nytimes.com/athletic/6307540/2025/04/25/raiders-2025-nfl-draft-best-available/
+
+**NFL Draft best available players for Cincinnati Bengals: Ty Robinson, Lathan Ransom**\
+`The Bengals have taken an edge rusher, linebacker and guard. Expect safety to be a top priority on Saturday.`\
+https://nytimes.com/athletic/6305959/2025/04/25/bengals-2025-nfl-draft-best-available/
+
 **NFL Draft best available players for Bears: Cam Skattebo, Devin Neal**\
 `The Bears enter Day 3 of the draft still looking for a running back, and they could also pick a defensive back or linebacker.`\
 https://nytimes.com/athletic/6306479/2025/04/25/bears-2025-nfl-draft-best-available/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6307367/2025/04/25/nfl-draft-walkout-songs-music/
 **2-Year-Old U.S. Citizen Was Deported ‘With No Meaningful Process,’ Judge Suspects**\
 `A federal judge in Louisiana said the deportation of the child to Honduras with her mother, even though her father had filed an emergency petition, appeared to be “illegal and unconstitutional.”`\
 https://nytimes.com/2025/04/25/us/politics/us-citizen-deported.html
-
-**Patriots draft WR Kyle Williams: How he fits, pick grade and scouting intel**\
-`Williams took off over his final two seasons at Washington State. Last year, he caught 70 passes for 1,198 yards and 14 touchdowns.`\
-https://nytimes.com/athletic/6311016/2025/04/25/kyle-williams-patriots-nfl-draft/
-
-**Giants draft DT Darius Alexander: How he fits, pick grade and scouting intel**\
-`The Giants have needed to find a running mate for nose tackle Dexter Lawrence on the interior. They may have found one in Alexander. `\
-https://nytimes.com/athletic/6310863/2025/04/25/darius-alexander-giants-nfl-draft/
-
-**NBA takeaways: Magic, Bucks cut first-round series deficits to 2-1**\
-`The Athletic has you covered with takeaways from all the NBA playoff action Friday.`\
-https://nytimes.com/athletic/6310272/2025/04/25/nba-playoffs-celtics-magic-pacers-bucks-lakers-timberwolves/
-
-**Bears draft DT Shemar Turner: How he fits, draft grade and scouting intel**\
-`Turner is the first draft pick for new defensive coordinator Dennis Allen’s unit and joins newcomers Grady Jarrett and Dayo Odeyingbo. `\
-https://nytimes.com/athletic/6310992/2025/04/25/shemar-turner-bears-nfl-draft/
 
