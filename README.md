@@ -1,3 +1,11 @@
+**See Who Attended Pope Francis’ Funeral**\
+`Explore a photo of world leaders who were at the funeral.`\
+https://nytimes.com/interactive/2025/04/26/world/europe/pope-francis-funeral-attendees-photo.html
+
+**Trump’s Blue Suit at Pope’s Funeral Draws Attention**\
+`President Trump’s choice stood out in a sea of world leaders and famous faces who were dressed in customary black.`\
+https://nytimes.com/2025/04/26/world/europe/trumps-blue-suit-at-popes-funeral-draws-attention.html
+
 **The 6 Very Best Duffle Bags **\
 `(No description)`\
 https://nytimes.com/card/2025/04/26/smarter-living/wirecutter/the-6-very-best-duffle-bags
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/26/opinion/trump-government-ruler-republic.html
 **What happens if Shedeur Sanders goes undrafted? Explaining the salary difference, UDFA process**\
 `What happens if Day 3, consisting of rounds four to seven, also ends without Sanders being selected?`\
 https://nytimes.com/athletic/6312159/2025/04/26/what-happens-if-shedeur-sanders-goes-undrafted-salary-difference/
-
-**Russia Claims to Have Retaken Final Village in Its Kursk Region**\
-`Ukraine denied that it had been pushed out of the region and said that its military operations inside Russia were continuing.`\
-https://nytimes.com/2025/04/26/world/europe/russia-kursk-ukraine.html
-
-**Shedeur Sanders victim of prank phone call during wait to be drafted**\
-`The caller claimed to be Saints GM Mickey Loomis. Shedeur Sanders downplayed the prank, saying, 'why get mad?'`\
-https://nytimes.com/athletic/6312173/2025/04/26/shedeur-sanders-prank-call-nfl-draft/
 

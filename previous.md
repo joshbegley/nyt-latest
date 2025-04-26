@@ -1,3 +1,11 @@
+**The 6 Very Best Duffle Bags **\
+`(No description)`\
+https://nytimes.com/card/2025/04/26/smarter-living/wirecutter/the-6-very-best-duffle-bags
+
+**Panthers optimistic Barkov could return for Game 3**\
+`Panthers coach Paul Maurice: "He has to take warmups. He has to get through it. We think he's good."`\
+https://nytimes.com/athletic/6312333/2025/04/26/panthers-nhl-aleksander-barkov-injury-return/
+
 **Lavia 'one of the best midfielders' says Maresca: 'He's unbelievable'**\
 `Lavia played 67 minutes at the base of Maresca’s midfield at Stamford Bridge in his first Chelsea start since January.`\
 https://nytimes.com/athletic/6312345/2025/04/26/romeo-lavia-chelsea-maresca/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/26/world/europe/russia-kursk-ukraine.html
 **Shedeur Sanders victim of prank phone call during wait to be drafted**\
 `The caller claimed to be Saints GM Mickey Loomis. Shedeur Sanders downplayed the prank, saying, 'why get mad?'`\
 https://nytimes.com/athletic/6312173/2025/04/26/shedeur-sanders-prank-call-nfl-draft/
-
-**Who Was the American Who Did the First Reading at Pope Francis’ Funeral Mass?**\
-`Kielce Gussie is a reporter with Vatican News. She has been working in Rome since 2019.`\
-https://nytimes.com/2025/04/26/world/europe/kielce-gussie-pope-francis-funeral.html
-
-**Massive Iran Port Explosion Kills 4 and Injures Hundreds**\
-`There was no immediate indication that the blast was caused by sabotage or a deliberate attack. State media said it was likely caused by containers of chemicals catching fire.`\
-https://nytimes.com/2025/04/26/world/middleeast/iran-port-explosion-bandar-abbas.html
 
