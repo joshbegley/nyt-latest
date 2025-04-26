@@ -1,3 +1,7 @@
+**Why Game 3 was more than just a win for Anthony Edwards and the Wolves**\
+`It's an achievement to look LeBron James and Luka Dončić in the eyes during the pressure cooker of crunch time and live to tell about it.`\
+https://nytimes.com/athletic/6310335/2025/04/26/for-anthony-edwards-and-the-wolves-game-3-win-was-more-than-just-a-win/
+
 **Celtics-Magic has been a physical battle. Jaylen Brown thinks the fight's just begun**\
 `Used to playing the pretty game, Boston has run into an opponent hellbent on producing an ugly one.`\
 https://nytimes.com/athletic/6311658/2025/04/26/celtics-magic-physicality-nba-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6309840/2025/04/26/senators-claude-giroux-nhl-playo
 **'It cost us big time': Kings' Game 3 loss turned on failed, unnecessary challenge**\
 `Jim Hiller has mostly pushed the right buttons in his first full season as Kings coach but pressed the wrong one late in Game 3.`\
 https://nytimes.com/athletic/6311927/2025/04/26/kings-challenge-nhl-playoffs-oilers/
-
-**2 Books for Cluttered Minds**\
-`A spare elegy; a weird journey.`\
-https://nytimes.com/2025/04/26/books/read-like-wind-recommendations.html
 
