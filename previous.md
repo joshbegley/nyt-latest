@@ -1,3 +1,7 @@
+**Chiefs draft OT Ashton Gillotte: How he fits, pick grade and scouting intel**\
+`The Athletic's Dane Brugler says Gillotte can be an immediate sub-package rusher with long-term starting potential.`\
+https://nytimes.com/athletic/6311102/2025/04/25/ashton-gillotte-chiefs-nfl-draft/
+
 **Seahawks draft Alabama QB Jalen Milroe: How he fits, pick grade and scouting intel**\
 `An explosive 6-foot-2 playmaker with tantalizing, dual-threat potential, Milroe went 21-6 at Alabama after taking over for Bryce Young.`\
 https://nytimes.com/athletic/6285119/2025/04/25/jalen-milroe-seahawks-nfl-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6273462/2025/04/25/kaleb-johnson-steelers-nfl-draft
 **Quote of the Day: Superfund Aid Sought for Sludge on 10,000 Acres of Fields**\
 `Quotation of the Day for Saturday, April 26, 2025.`\
 https://nytimes.com/2025/04/25/pageoneplus/quote-of-the-day-superfund-aid-sought-for-sludge-on-10000-acres-of-fields.html
-
-**Texans draft WR Jaylin Noel: How he fits, pick grade and scouting intel**\
-`A three-year starter for the Cyclones, Noel led his team in receiving yards as a senior in 2024.`\
-https://nytimes.com/athletic/6284972/2025/04/25/jaylin-noel-texans-nfl-draft/
 
