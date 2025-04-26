@@ -1,3 +1,7 @@
+**Washington Parties On, Without Trump or Big Celebrities**\
+`Drinks in hand, anxious media people braved a series of events in the nights before the annual White House Correspondents’ Association dinner.`\
+https://nytimes.com/2025/04/26/style/white-house-correspondents-dinner-parties.html
+
 **Wrexham are heading to the Championship: This is the story of their third straight promotion season**\
 `The Welsh club have themselves another Hollywood ending. Richard Sutcliffe recaps the ups and downs of 2024-25`\
 https://nytimes.com/athletic/6252975/2025/04/26/wrexham-are-heading-to-the-championship-this-is-the-story-of-their-third-straight-promotion-season/
