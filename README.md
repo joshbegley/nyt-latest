@@ -1,3 +1,7 @@
+**The route to Santa Maria Maggiore recalls centuries-old traditions.**\
+`By Elisabetta Povoledo`\
+https://nytimes.com/live/2025/04/26/world/pope-francis-funeral/the-route-to-santa-maria-maggiore-recalls-centuries-old-traditions
+
 **Knicks trends I'm watching: OG Anunoby 'heat checks,' Karl-Anthony Towns changes**\
 `An All-Defensive wing has eyes in the back of his head. An All-Star can still score like one. And a sixth man doesn't look like himself.`\
 https://nytimes.com/athletic/6310228/2025/04/26/knicks-trends-pistons-nba-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/26/world/europe/pope-francis-saint-canonization.html
 **How Francis Wooed Donors**\
 `Efforts to fix the Vatican’s broken finances helped restore confidence among big givers. But the work isn’t finished.`\
 https://nytimes.com/2025/04/26/business/dealbook/how-francis-wooed-donors.html
-
-**Francis’ Last Journey**\
-`As pope, Francis traveled to dozens of countries on five continents. In his last days, he stayed much closer to home.`\
-https://nytimes.com/2025/04/26/world/europe/francis-funeral-photos.html
 
