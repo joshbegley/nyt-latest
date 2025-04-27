@@ -1,3 +1,7 @@
+**Valentin-Yves Mudimbe, 83, Dies; African Scholar Challenged the West**\
+`He deconstructed what he called “the colonial library”: the accounts of Africa by Europeans whose aim, he said, was to further colonialism.`\
+https://nytimes.com/2025/04/27/world/africa/valentin-yves-mudimbe-dead.html
+
 **Zurab Tsereteli, Polarizing Russian Sculptor of Colossal Works, Dies at 91**\
 `In bronze, he glorified figures like Peter the Great and Vladimir Putin, often to the public’s distaste. Some works, like a giant Columbus and a 9/11 memorial, were reviled.`\
 https://nytimes.com/2025/04/27/world/europe/zurab-tsereteli-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/27/world/middleeast/israel-strike-beirut-hezbollah.h
 **The Briefing - Liege-Bastogne-Liege: Tadej Pogacar unstoppable again as Kim Le Court wins for Mauritius in Femmes race**\
 `Analysis of the key moments and storylines from cycling's oldest Monument race`\
 https://nytimes.com/athletic/6315343/2025/04/27/liege-bastogne-liege-cycling-analysis-pogacar/
-
-**Jiggly Caliente, ‘RuPaul’s Drag Race’ Star and Judge, Dies at 44**\
-`Fans knew Ms. Caliente for her sense of humor, vigorous dance skills and interactions with fellow cast members on the popular drag television show.`\
-https://nytimes.com/2025/04/27/arts/television/jiggly-caliente-rupaul-drag-race-dead.html
 
