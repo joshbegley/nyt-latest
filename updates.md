@@ -1,3 +1,7 @@
+**Mets reliever A.J. Minter leaves game, likely headed to injured list**\
+`The lefty left Saturday's game after throwing his ninth pitch. He signed a two-year deal with the Mets for $22 million in January.`\
+https://nytimes.com/athletic/6314162/2025/04/26/mets-aj-minter-injury/
+
 **Ravens 2025 NFL Draft Takeaways: A huge class, and one controversial pick**\
 `With 11 new players coming in through the draft, the Ravens don't have many boxes left to check.`\
 https://nytimes.com/athletic/6314023/2025/04/26/baltimore-ravens-2025-nfl-draft-picks-takeaways/
