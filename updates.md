@@ -1,3 +1,15 @@
+**2025 Kentucky Derby post positions: Favorite Journalism draws No. 8**\
+`The lineup of horses competing in the first leg of the Triple Crown will enter the gates next Saturday.`\
+https://nytimes.com/athletic/6313745/2025/04/26/kentucky-derby-post-draw/
+
+**Tampa Bay signs Shilo Sanders, Desmond Watson ('Tush Push Terminator') as undrafted free agents**\
+`Sanders is the son of Deion Sanders and brother of fifth-round pick Shedeur Sanders. Watson is a 6-foot-6, 464-pound defensive back.`\
+https://nytimes.com/athletic/6302168/2025/04/26/shilo-sanders-team-nfl-draft-deion-shedeur/
+
+**What the Steelers' draft says about their confidence in signing Aaron Rodgers**\
+`Rodgers remains a free agent, but several breadcrumbs this weekend suggest the Steelers still expect to add the four-time MVP.`\
+https://nytimes.com/athletic/6313772/2025/04/26/aaron-rodgers-steelers-nfl-draft/
+
 **Nuggets, Clippers get in heated scuffle during second quarter of Game 4**\
 `With 6.6 seconds remaining in the second quarter, James Harden took exception to a foul by Christian Braun and exchanged words with Braun.`\
 https://nytimes.com/athletic/6313895/2025/04/26/nuggets-clippers-second-quarter-fight/
