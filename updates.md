@@ -1,3 +1,11 @@
+**Bessent Does Not Back Up Trump’s Claim of Trade Talks With China’s Xi**\
+`The Treasury secretary said that the President Trump and Xi Jinping of China have a good relationship but that he was not aware of a call, which Mr. Trump had alluded to last week.`\
+https://nytimes.com/2025/04/27/us/politics/bessent-trump-xi-tariffs.html
+
+**Blue Jackets Sunday Gathering: Zach Werenski for the Hart? Monahan for Masterton?**\
+`Plus: Which members of the Blue Jackets may be heading to Worlds and updates on the AHL Cleveland's playoff run.`\
+https://nytimes.com/athletic/6312100/2025/04/27/blue-jackets-nhl-awards-zach-werenski-sean-monahan/
+
 **Yankees remove Devin Williams from closer job 'for right now'**\
 `Williams finished each of the previous three seasons with an ERA under 2.00. Through 10 appearances with the Yankees, his ERA is 11.25.`\
 https://nytimes.com/athletic/6315384/2025/04/27/yankees-devin-williams-closer-role/
