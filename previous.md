@@ -1,3 +1,11 @@
+**Hurricanes take 3-1 series lead vs. Devils, but Frederik Andersen injured in win: Takeaways**\
+`Andrei Svechnikov had a hat trick for Carolina. Game 5 of the teams' first-round series is Tuesday in Raleigh.`\
+https://nytimes.com/athletic/6316146/2025/04/27/hurricanes-devils-game-4-nhl-playoffs/
+
+**Dick Barnett, Champion Knick With a Singular Jump Shot, Dies at 88**\
+`A guard, he played on New York’s two (and only) title-winning teams, in the 1970s. He was remembered for his scoring and his “fall back, baby” shooting style.`\
+https://nytimes.com/2025/04/27/sports/basketball/dick-barnett-dead.html
+
 **New Details Emerge on Trump Officials’ Sprint to Gut Consumer Bureau Staff**\
 `Emails and testimonials from workers at the Consumer Financial Protection Bureau document the administration’s efforts to lay off 90 percent of the employees.`\
 https://nytimes.com/2025/04/27/business/cfpb-layoffs-trump-musk-doge.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6315927/2025/04/27/dodgers-tyler-glasnow-injury/
 **D.E.A. Says More Than 100 Undocumented Immigrants Were Detained in a Colorado Raid**\
 `Officials said agents found weapons and illicit drugs inside the nightclub, including cocaine, methamphetamine and a mixture of powdered drugs known as pink cocaine.`\
 https://nytimes.com/2025/04/27/us/politics/immigrants-colorado-raid-dea.html
-
-**Netanyahu Accuses Israel’s Domestic Security Chief of Lying to Court**\
-`Intent on firing the Shin Bet chief, Ronen Bar, Prime Minister Benjamin Netanyahu denounced him in a sharp affidavit, deepening national political divisions.`\
-https://nytimes.com/2025/04/27/world/middleeast/israel-netanyahu-ronen-bar.html
-
-**Washington State Lawmakers Vote to Limit Rent Increases**\
-`Supporters say an annual cap of 10 percent, including inflation, will protect tenants. Critics worry it will reduce housing supply and discourage investors.`\
-https://nytimes.com/2025/04/27/us/rent-increase-washington-state.html
 
