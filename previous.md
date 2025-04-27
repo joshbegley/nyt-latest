@@ -2,6 +2,10 @@
 ``\
 https://nytimes.com/live/2025/04/27/us/trump-news
 
+**Longtime Kings broadcaster Nick Nickson embracing final playoffs before retirement**\
+`After 44 seasons and two Stanley Cups, the longtime Kings play-by-play announcer will hang up his headset.`\
+https://nytimes.com/athletic/6314351/2025/04/27/la-kings-nick-nickson-retirement-nhl-playoffs/
+
 **The Fear Factor and America’s Future**\
 `Readers respond to a column by Thomas L. Friedman. Also: Depression and aging; Paul Revere’s legacy.`\
 https://nytimes.com/2025/04/27/opinion/america-fear.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/27/briefing/art-money-hauser-wirth.html
 **Wrexham's historic day to remember: Tears, a pitch invasion and previous promotion heroes**\
 `The Welsh club have achieved something no other team have done and they are now one more promotion away from the Premier League`\
 https://nytimes.com/athletic/6304352/2025/04/27/wrexham-promotion-reynolds-mcelhenney/
-
-**NFL Draft: Ranking 7 most interesting QB picks by who has best chance to succeed**\
-`Top pick Cam Ward was the easy No. 1 choice, but what about after him? Is Shedeur Sanders ready to prove his doubters wrong?`\
-https://nytimes.com/athletic/6313594/2025/04/27/nfl-draft-2025-shedeur-sanders-quarterbacks/
 

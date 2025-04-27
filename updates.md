@@ -1,3 +1,7 @@
+**Longtime Kings broadcaster Nick Nickson embracing final playoffs before retirement**\
+`After 44 seasons and two Stanley Cups, the longtime Kings play-by-play announcer will hang up his headset.`\
+https://nytimes.com/athletic/6314351/2025/04/27/la-kings-nick-nickson-retirement-nhl-playoffs/
+
 **Trump Administration Live Updates: President Says Putin Might Not Be Serious About Peace in Ukraine**\
 ``\
 https://nytimes.com/live/2025/04/27/us/trump-news

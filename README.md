@@ -1,3 +1,7 @@
+**How 48 hours of rage and recrimination overshadowed the Copa del Rey final**\
+`From accusations about referees to multiple red cards, Real Madrid's season is coming to a very noisy end `\
+https://nytimes.com/athletic/6304910/2025/04/27/real-madrid-barcelona-copa-final-rage/
+
 **Trump Administration Live Updates: President Says Putin Might Not Be Serious About Peace in Ukraine**\
 ``\
 https://nytimes.com/live/2025/04/27/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6312951/2025/04/27/usc-football-position-analysis-n
 **How Art Stars Are Made**\
 `We explain how a few big players wield enormous influence in the art world.`\
 https://nytimes.com/2025/04/27/briefing/art-money-hauser-wirth.html
-
-**Wrexham's historic day to remember: Tears, a pitch invasion and previous promotion heroes**\
-`The Welsh club have achieved something no other team have done and they are now one more promotion away from the Premier League`\
-https://nytimes.com/athletic/6304352/2025/04/27/wrexham-promotion-reynolds-mcelhenney/
 
