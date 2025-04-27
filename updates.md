@@ -1,3 +1,11 @@
+**Monday Briefing: Canada Is Electing a New Leader**\
+`Plus, when a child’s life is the family business.`\
+https://nytimes.com/2025/04/27/briefing/canada-elections-ukraine-russia-talks-pope-funeral.html
+
+**‘Dead Outlaw’ Review: This Bandit Has Mummy Issues**\
+`A truly twisted yarn about a long-lived corpse makes a surprisingly feel-good Broadway musical.`\
+https://nytimes.com/2025/04/27/theater/dead-outlaw-review.html
+
 **Dodgers' Tyler Glasnow leaves second consecutive start with injury**\
 `Glasnow left Sunday's game due to right shoulder discomfort after throwing warmup pitches before the second inning.`\
 https://nytimes.com/athletic/6315927/2025/04/27/dodgers-tyler-glasnow-injury/
