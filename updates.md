@@ -1,3 +1,7 @@
+**What I'm hearing about the Flyers' coaching search and recent changes**\
+`It's notable that interim coach Brad Shaw was not let go this week with three assistant coaches.`\
+https://nytimes.com/athletic/6315737/2025/04/27/flyers-coach-update-shaw/
+
 **Valentin-Yves Mudimbe, 83, Dies; African Scholar Challenged the West**\
 `He deconstructed what he called “the colonial library”: the accounts of Africa by Europeans whose aim, he said, was to further colonialism.`\
 https://nytimes.com/2025/04/27/world/africa/valentin-yves-mudimbe-dead.html

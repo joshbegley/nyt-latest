@@ -1,3 +1,7 @@
+**Knicks stave off Pistons for 3-1 series lead behind Brunson's heroics**\
+`Up 3-1, the Knicks can clinch the first-round series with a Game 5 win on Tuesday in New York.`\
+https://nytimes.com/athletic/6315504/2025/04/27/nba-playoffs-knicks-pistons-takeaways/
+
 **What I'm hearing about the Flyers' coaching search and recent changes**\
 `It's notable that interim coach Brad Shaw was not let go this week with three assistant coaches.`\
 https://nytimes.com/athletic/6315737/2025/04/27/flyers-coach-update-shaw/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/27/world/europe/titanic-survivor-letter-auction.html
 **Ancelotti set to leave Real Madrid and join Brazil in June**\
 `The expectation is for Ancelotti to complete the La Liga season and join Brazil in June.`\
 https://nytimes.com/athletic/5943402/2025/04/27/carlo-ancelotti-real-madrid-brazil-future/
-
-**Israeli Military Strikes Near Beirut, Saying Hezbollah Was the Target**\
-`The attack raised concerns that the cease-fire that ended a war between Israel and Lebanese militants might be in jeopardy.`\
-https://nytimes.com/2025/04/27/world/middleeast/israel-strike-beirut-hezbollah.html
 
