@@ -1,3 +1,11 @@
+**Protests Against Israeli Official Heat Up Outside Synagogue in Brooklyn**\
+`The clashes outside a synagogue where the official, Itamar Ben-Gvir, a far-right security minister, had planned to speak followed days of disturbances connected to his visit.`\
+https://nytimes.com/2025/04/27/nyregion/protests-ben-gvir-israel-brooklyn-synagogue.html
+
+**Guardians issue apology to Red Sox's Jarren Duran after fan misconduct**\
+`“We recognize the gravity of the behavior at issue here and take very seriously conduct of this nature,” the Guardians said in a statement.`\
+https://nytimes.com/athletic/6316132/2025/04/27/red-sox-jarren-duran-guardians-apology-fan-misconduct/
+
 **Mets blow big lead: 3 takeaways from a day of miscues, missed opportunities**\
 `The Mets squandered a 7-1 edge as the Nationals roared back and walked things off with help from a fielding blunder.`\
 https://nytimes.com/athletic/6316162/2025/04/27/mets-nationals-blown-lead-takeways/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6315940/2025/04/27/pistons-knicks-missed-call-tim-h
 **Hurricanes goalie Frederik Andersen leaves Game 4, won't return after collision with Timo Meier**\
 `Officials originally gave Meier a five-minute major penalty for the play, but after video review, it was deemed there was no penalty.`\
 https://nytimes.com/athletic/6315995/2025/04/27/andersen-meier-collision-hurricanes-devils-nhl-playoffs/
-
-**Monday Briefing: Canada Is Electing a New Leader**\
-`Plus, when a child’s life is the family business.`\
-https://nytimes.com/2025/04/27/briefing/canada-elections-ukraine-russia-talks-pope-funeral.html
-
-**‘Dead Outlaw’ Review: This Bandit Has Mummy Issues**\
-`A truly twisted yarn about a long-lived corpse makes a surprisingly feel-good Broadway musical.`\
-https://nytimes.com/2025/04/27/theater/dead-outlaw-review.html
 
