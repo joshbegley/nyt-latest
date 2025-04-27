@@ -1,3 +1,19 @@
+**Alexis Herman, First Black Secretary of Labor, Dies at 77**\
+`A social worker, she became a Democratic Party insider and joined President Bill Clinton’s cabinet during his second term.`\
+https://nytimes.com/2025/04/27/us/politics/alexis-herman-dead.html
+
+**Liverpool win Premier League title in Arne Slot's debut season**\
+`The triumph for Liverpool secures the club's 20th English league title, bringing them level with Manchester United`\
+https://nytimes.com/athletic/6301280/2025/04/27/liverpool-premier-league-title-champions/
+
+**Pakistan Says It Killed 54 Militants Trying to Enter From Afghanistan**\
+`The Pakistani military is under strain on several fronts as it also faces the possibility of armed conflict with India.`\
+https://nytimes.com/2025/04/27/world/asia/pakistan-afghanistan-militants.html
+
+**The Briefing: Forest 0 City 2 - Are City back to their best? Did Nuno get team wrong?**\
+`Manchester City reached the FA Cup final with a 2-0 win over Nottingham Forest on Sunday`\
+https://nytimes.com/athletic/6309564/2025/04/27/nottingham-forest-manchester-city-result-report-analysis-score/
+
 **Bessent Does Not Back Up Trump’s Claim of Trade Talks With China’s Xi**\
 `The Treasury secretary said that the President Trump and Xi Jinping of China have a good relationship but that he was not aware of a call, which Mr. Trump had alluded to last week.`\
 https://nytimes.com/2025/04/27/us/politics/bessent-trump-xi-tariffs.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6315284/2025/04/27/capitals-canadiens-thompson-mont
 **Beat writers’ favorite 2025 NFL Draft picks: Cam Skattebo, Colston Loveland and 30 more players**\
 `The Bears got an elite weapon for their offense in Loveland, and Skattebo should be a Giants fan favorite. Who else appealed to our writers?`\
 https://nytimes.com/athletic/6314993/2025/04/27/nfl-draft-2025-favorite-picks/
-
-**Rubio Says Trump Will Decide This Week on Continuing Ukraine War Talks**\
-`Secretary of State Marco Rubio said there are reasons to be optimistic, but also asserted there are “other issues” on which the administration wants to spend its energy.`\
-https://nytimes.com/2025/04/27/us/politics/trump-ukraine-rubio-zelensky-putin.html
-
-**Duke's Khaman Maluach, a projected lottery pick, declares for NBA Draft**\
-`The 7-foot-2 Maluach, who started every game for the Blue Devils this season, is one of the best bigs available in this class.`\
-https://nytimes.com/athletic/6285922/2025/04/27/khaman-maluach-nba-draft-duke/
-
-**Barcelona have taken their first step towards a treble. Can they do it?**\
-`Barcelona could still win three major honours this season — this was a big first step`\
-https://nytimes.com/athletic/6314933/2025/04/27/barcelona-treble-copa-del-rey/
-
-**Medicine Spares Cancer Patients From Grisly Surgeries and Harsh Therapies**\
-`For a limited group of cancer patients who have solid tumors in the stomach, rectum, esophagus and other organs, an immunotherapy trial offered stunning results.`\
-https://nytimes.com/2025/04/27/health/cancer-immunotherapy-solid-tumors.html
 
