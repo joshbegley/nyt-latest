@@ -1,3 +1,7 @@
+**Bessent Demurs on Trump’s Claim of Trade Talks With China’s Xi**\
+`The Treasury secretary said that the President Trump and Xi Jinping of China have a good relationship but that he was not aware of a call, which Mr. Trump had alluded to last week.`\
+https://nytimes.com/2025/04/27/us/politics/bessent-trump-xi-tariffs.html
+
 **How Liverpool won the Premier League: Dire Straits, coffee club and one big outburst**\
 `How Dire Straits, coffee club and one volcanic outburst from Arne Slot helped secure an historic triumph`\
 https://nytimes.com/athletic/6235236/2025/04/27/liverpool-premier-league-title-inside-story/
