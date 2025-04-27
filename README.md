@@ -1,3 +1,15 @@
+**Why Adam Benák, one of the 2025 NHL Draft's smallest prospects, could defy his size**\
+`Benák's size, paired with his speed and smarts, make him one of the most interesting and also difficult case studies in this year's class.`\
+https://nytimes.com/athletic/6297049/2025/04/27/2025-nhl-draft-prospect-adam-benak/
+
+**This 7th-round QB pick left behind a lot of NIL money to go pro. Was it the right call?**\
+`Quarterback Quinn Ewers won big at Texas but ended up as a seventh-round pick by the Miami Dolphins.`\
+https://nytimes.com/athletic/6314185/2025/04/27/quinn-ewers-miami-dolphins-texas-nfl-college-football-nil/
+
+**What we learned about USC football this spring: A position-by-position analysis**\
+`A position-by-position look at what we learned about USC this spring.`\
+https://nytimes.com/athletic/6312951/2025/04/27/usc-football-position-analysis-ncaa/
+
 **How Art Stars Are Made**\
 `We explain how a few big players wield enormous influence in the art world.`\
 https://nytimes.com/2025/04/27/briefing/art-money-hauser-wirth.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6313481/2025/04/27/guardians-emmanuel-clase-closer-
 **With Trump-Zelensky Meeting, Ukrainians See a Glimmer of Hope**\
 `The United States has been pushing Ukraine to accept a peace plan that seems in part a gift to Moscow. But the short meeting of the leaders, and subsequent comments, appeared to be a change in tone.`\
 https://nytimes.com/2025/04/27/world/europe/ukraine-trump-zelensky-putin.html
-
-**Assefa breaks women’s only London Marathon record, Sawe wins men's race**\
-`Assefa beat the women's only record set by Kenya's Peres Jepchirchir in 2024 by 26 seconds as Sawe finished 70 seconds clear of the field.`\
-https://nytimes.com/athletic/6314836/2025/04/27/london-marathon-winners-2025/
-
-**How the Bears used the draft to build competition for Ben Johnson's first season**\
-`The first draft of the Johnson era featured more playmakers on offense and guys with an "edge" to help the Bears build success.`\
-https://nytimes.com/athletic/6314274/2025/04/27/bears-nfl-draft-ben-johnson-competition/
-
-**The Maple Leafs are still in control. They can’t let old demons resurface**\
-`“The past is the past,” said Toronto GM Brad Treliving on the eve of the postseason. “This is a different group.” Now they get to prove it.`\
-https://nytimes.com/athletic/6314579/2025/04/27/maple-leafs-senators-game-4-nhl-playoffs-2025/
 
