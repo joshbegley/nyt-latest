@@ -1,3 +1,11 @@
+**The New York Times International Edition in Print for Monday, April 28, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/04/27/todays-new-york-times-international-edition
+
+**Madrid's Copa reds: Rudiger 'threw object' at referee, Bellingham 'aggressive'**\
+`Rudiger had to be held back by his team-mates and coaching staff and appeared to throw a missile in the direction of De Burgos Bengoetxea.`\
+https://nytimes.com/athletic/6314786/2025/04/27/real-madrid-red-cards-copa-rudiger-bellingham-vazquez/
+
 **5 Takeaways From The Times’s Investigation Into the Jan. 29 Collision at National Airport**\
 `New details show that the failures leading up to the midair collision of a regional jet and an Army helicopter were more complex than previously known.`\
 https://nytimes.com/2025/04/27/us/politics/takeaways-investigation-airport-collision.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/27/business/dc-plane-crash-reagan-airport.html
 **Emerging From a Collective Silence, Universities Organize to Fight Trump**\
 `A recent group statement showed that the nation’s academic leaders, at first reluctant to oppose the president’s moves, are beginning to unite.`\
 https://nytimes.com/2025/04/27/us/trump-university-presidents.html
-
-**China Experience Was Once a Plus. In Canada’s Election, It’s a Liability.**\
-`Mark Carney, who is running to win a full term as prime minister, has years of experience dealing with Chinese businesses and leadership. It’s become fodder for his opponents.`\
-https://nytimes.com/2025/04/27/world/canada/canada-election-mark-carney-china.html
-
-**A Lengthy Legal Battle in North Carolina Could Show How to Flip an Election**\
-`Even as Republicans suffer setbacks in their fight to overturn a loss in a State Supreme Court race, judges have shown a striking willingness to entertain the long-shot challenges.`\
-https://nytimes.com/2025/04/27/us/politics/north-carolina-supreme-court-election.html
 
