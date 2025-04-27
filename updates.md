@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6314587/2025/04/27/maple-leafs-john-tavares-injury-
 `\
 https://nytimes.com/athletic/6314587/2025/04/27/maple-leafs-john-tavares-injury-nhl-playoffs/
 
+**Artem Zub's hit on John Tavares and the ripple effect for the Leafs in Game 4**\
+`Tavares' brief injury absence in Game 4 led to Toronto being without its top performer on a critical four-minute power play. 
+`\
+https://nytimes.com/athletic/6314587/2025/04/27/maple-leafs-john-tavares-injury-nhl-playoffs/
+
 **Cardinals 2025 NFL Draft takeaways: Building a dominant defense one pick at a time**\
 `Over the last three days, Arizona positioned itself for an immediate defensive upgrade.`\
 https://nytimes.com/athletic/6313061/2025/04/27/arizona-cardinals-2025-nfl-draft-picks-takeaways/
