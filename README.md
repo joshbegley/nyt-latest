@@ -1,3 +1,23 @@
+**David Moyes knows what he wants at Everton next season: A ruthless streak**\
+`Saturday's game at Stamford Bridge was another sign that Everton need more quality in attacking areas if they are to compete next season`\
+https://nytimes.com/athletic/6312614/2025/04/27/everton-lack-of-goals-premier-league/
+
+**Taking on Musk, New York Considers Move to Close Tesla Dealerships**\
+`Elon Musk’s alliance with President Trump has prompted Democratic lawmakers to propose stripping Tesla of its ability to sell its cars directly to consumers.`\
+https://nytimes.com/2025/04/27/nyregion/new-york-tesla-dealerships-doge.html
+
+**Old Partners in News Publishing**\
+`Before he founded The New York Times, Henry Jarvis Raymond helped start a predecessor of The Associated Press.`\
+https://nytimes.com/2025/04/27/insider/new-york-times-associated-press.html
+
+**‘A Few Steps Into Our Walk, I Heard a Tremendous Thud Behind Me’**\
+`A lucky break in Yorkville, the Met goes to Coney Island and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2025/04/27/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/04/27/crosswords/spelling-bee-forum.html
+
 **Braves' new hitting coach knew the slug would come. It has, and it's been needed**\
 `Tim Hyers remained calm when Atlanta's offense struggled at the start. He's still calm as the Braves are lighting up the scoreboard.`\
 https://nytimes.com/athletic/6314608/2025/04/27/atlanta-braves-hitting-coach-home-runs-diamondbacks/
@@ -18,24 +38,4 @@ https://nytimes.com/athletic/6313061/2025/04/27/arizona-cardinals-2025-nfl-draft
 `Tavares' brief injury absence in Game 4 led to Toronto being without its top performer on a critical four-minute power play. 
 `\
 https://nytimes.com/athletic/6314587/2025/04/27/maple-leafs-john-tavares-injury-nhl-playoffs/
-
-**Turkey’s People Are Resisting Autocracy. They Deserve More Than Silence.**\
-`The world’s democracies can speak up to make Erdogan’s life less comfortable.`\
-https://nytimes.com/2025/04/27/opinion/turkey-istanbul-protests.html
-
-**The New York Times in Print for Sunday, April 27, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/04/27/todays-new-york-times
-
-**This Is How to Win an Environmental Fight**\
-`Thousands of ordinary Americans whose lives have been upended by forever chemicals are battling to end their use.`\
-https://nytimes.com/2025/04/27/opinion/forever-chemicals-pfas-pfoa.html
-
-**India Seems to Be Building Its Case for Striking Pakistan**\
-`As world powers face multiple crises, the one set off by a terror attack in Kashmir is getting scant attention, and little help de-escalating between two nuclear-armed neighbors.`\
-https://nytimes.com/2025/04/27/world/asia/india-pakistan-kashmir.html
-
-**Avalanche demolish Stars to even series, Gabriel Landeskog scores: Takeaways**\
-`Mackenzie Blackwood earned a shutout and Landeskog scored his first NHL goal in nearly three years as Colorado defeated Dallas 4-0.`\
-https://nytimes.com/athletic/6314417/2025/04/27/avalanche-stars-nhl-playoffs-2025-game-4-takeaways/
 
