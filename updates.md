@@ -1,3 +1,15 @@
+**Turkey’s People Are Resisting Autocracy. They Deserve More Than Silence.**\
+`The world’s democracies can speak up to make Erdogan’s life less comfortable.`\
+https://nytimes.com/2025/04/27/opinion/turkey-istanbul-protests.html
+
+**The New York Times in Print for Sunday, April 27, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/27/todays-new-york-times
+
+**This Is How to Win an Environmental Fight**\
+`Thousands of ordinary Americans whose lives have been upended by forever chemicals are battling to end their use.`\
+https://nytimes.com/2025/04/27/opinion/forever-chemicals-pfas-pfoa.html
+
 **India Seems to Be Building Its Case for Striking Pakistan**\
 `As world powers face multiple crises, the one set off by a terror attack in Kashmir is getting scant attention, and little help de-escalating between two nuclear-armed neighbors.`\
 https://nytimes.com/2025/04/27/world/asia/india-pakistan-kashmir.html

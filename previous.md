@@ -1,3 +1,15 @@
+**Turkey’s People Are Resisting Autocracy. They Deserve More Than Silence.**\
+`The world’s democracies can speak up to make Erdogan’s life less comfortable.`\
+https://nytimes.com/2025/04/27/opinion/turkey-istanbul-protests.html
+
+**The New York Times in Print for Sunday, April 27, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/27/todays-new-york-times
+
+**This Is How to Win an Environmental Fight**\
+`Thousands of ordinary Americans whose lives have been upended by forever chemicals are battling to end their use.`\
+https://nytimes.com/2025/04/27/opinion/forever-chemicals-pfas-pfoa.html
+
 **India Seems to Be Building Its Case for Striking Pakistan**\
 `As world powers face multiple crises, the one set off by a terror attack in Kashmir is getting scant attention, and little help de-escalating between two nuclear-armed neighbors.`\
 https://nytimes.com/2025/04/27/world/asia/india-pakistan-kashmir.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6312832/2025/04/27/cole-palmer-form-enzo-maresca-ch
 **Against Barcelona, Chelsea will have to believe beyond what is rational**\
 `Chelsea have the experience and a quadruple to play for but if any team can withstand them, it's Barcelona`\
 https://nytimes.com/athletic/6311952/2025/04/27/chelsea-barcelona-champions-league-semifinal/
-
-**A night at the Baller League, where former England pros and YouTube stars collide**\
-`Stuart James accompanied his 13-year-old son to experience the glitzy six-a-side tournament tailor-made for the YouTube generation`\
-https://nytimes.com/athletic/6301966/2025/04/27/baller-league-wright-terry-deeney-ksi/
-
-**Wilshere has waited patiently for his managerial chance. Now he has the taste for it**\
-`The 33-year-old has spent two-and-a-half years developing his coaching skills. On Saturday he had his first taste of leading a senior side`\
-https://nytimes.com/athletic/6312976/2025/04/27/jack-wilshere-norwich-management-middlesbrough/
-
-**Premier League meets NBA awards: What if football had Rookie of the Year and more?**\
-`What if the Premier League's end-of-season awards were the same as the NBA's? Chris Wood, Liam Delap and Jhon Duran would be in the mix`\
-https://nytimes.com/athletic/6305043/2025/04/27/premier-league-awards-nba-style/
 
