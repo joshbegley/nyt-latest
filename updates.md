@@ -1,3 +1,7 @@
+**Quick Escape**\
+`Sue Fracker dashes off a delightful puzzle.`\
+https://nytimes.com/2025/04/27/crosswords/daily-puzzle-2025-04-28.html
+
 **Referees acknowledge missed foul call at the end of Pistons-Knicks Game 4**\
 `After the game, Tim Hardaway Jr. called the missed call "blatant."`\
 https://nytimes.com/athletic/6315940/2025/04/27/pistons-knicks-missed-call-tim-hardaway-josh-hart/

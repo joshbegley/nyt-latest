@@ -1,3 +1,7 @@
+**Quick Escape**\
+`Sue Fracker dashes off a delightful puzzle.`\
+https://nytimes.com/2025/04/27/crosswords/daily-puzzle-2025-04-28.html
+
 **Referees acknowledge missed foul call at the end of Pistons-Knicks Game 4**\
 `After the game, Tim Hardaway Jr. called the missed call "blatant."`\
 https://nytimes.com/athletic/6315940/2025/04/27/pistons-knicks-missed-call-tim-hardaway-josh-hart/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/27/us/rent-increase-washington-state.html
 **NBA playoffs takeaways: Knicks stave off Pistons behind Jalen Brunson's heroics**\
 `Up 3-1, the Knicks can clinch the first-round series with a Game 5 win on Tuesday in New York.`\
 https://nytimes.com/athletic/6315504/2025/04/27/nba-playoffs-knicks-pistons-takeaways/
-
-**What I'm hearing about the Flyers' coaching search and recent changes**\
-`It's notable that interim coach Brad Shaw was not let go this week with three assistant coaches.`\
-https://nytimes.com/athletic/6315737/2025/04/27/flyers-coach-update-shaw/
 
