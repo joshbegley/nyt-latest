@@ -1,3 +1,11 @@
+**Protests Against Israeli Official Heat Up Outside Synagogue in Brooklyn**\
+`The clashes outside a synagogue where the official, Itamar Ben-Gvir, a far-right security minister, had planned to speak followed days of disturbances connected to his visit.`\
+https://nytimes.com/2025/04/27/nyregion/protests-ben-gvir-israel-brooklyn-synagogue.html
+
+**Guardians issue apology to Red Sox's Jarren Duran after fan misconduct**\
+`“We recognize the gravity of the behavior at issue here and take very seriously conduct of this nature,” the Guardians said in a statement.`\
+https://nytimes.com/athletic/6316132/2025/04/27/red-sox-jarren-duran-guardians-apology-fan-misconduct/
+
 **Mets blow big lead: 3 takeaways from a day of miscues, missed opportunities**\
 `The Mets squandered a 7-1 edge as the Nationals roared back and walked things off with help from a fielding blunder.`\
 https://nytimes.com/athletic/6316162/2025/04/27/mets-nationals-blown-lead-takeways/
