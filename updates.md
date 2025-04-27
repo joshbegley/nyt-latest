@@ -1,3 +1,7 @@
+**Thompson: Steph Curry, from 'a galaxy nobody can touch,' lifts Warriors with stellar Game 3**\
+`With Jimmy Butler out, the burden fell to Steph Curry to carry the Warriors in Game 3. And he did what he's done so many times before.`\
+https://nytimes.com/athletic/6314951/2025/04/27/steph-curry-warriors-rockets-game-3-playoffs/
+
 **Crystal Palace relegated from Women's Super League**\
 `Palace have won just two of their 20 WSL matches this term and are relegated after just one season in the top flight.`\
 https://nytimes.com/athletic/6301869/2025/04/27/crystal-palace-relegated-wsl/
