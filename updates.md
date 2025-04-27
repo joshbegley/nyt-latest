@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6314587/2025/04/27/maple-leafs-john-tavares-injury-nhl-playoffs/
 
+**Artem Zub's hit on John Tavares and the ripple effect for the Leafs in Game 4**\
+`Tavares' brief injury absence in Game 4 led to Toronto being without its top performer on a critical four-minute power play. 
+`\
+https://nytimes.com/athletic/6314587/2025/04/27/maple-leafs-john-tavares-injury-nhl-playoffs/
+
 **Turkey’s People Are Resisting Autocracy. They Deserve More Than Silence.**\
 `The world’s democracies can speak up to make Erdogan’s life less comfortable.`\
 https://nytimes.com/2025/04/27/opinion/turkey-istanbul-protests.html
