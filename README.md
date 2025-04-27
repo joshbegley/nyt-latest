@@ -1,3 +1,11 @@
+**In winning time, Shai Gilgeous-Alexander was at his best in Thunder's sweep of Grizzlies**\
+`Gilgeous-Alexander scored a game-high 38 points, helping OKC to a second-round date with the winner between the Clippers and Nuggets.`\
+https://nytimes.com/athletic/6314454/2025/04/26/thunder-sweep-grizzlies-shai-gilgeous-alexander/
+
+**Grizzlies must consider Ja Morant's future and everything else after sweep**\
+`Grizzlies general manager Zach Kleiman faces several questions as he looks to restore Memphis' upward trajectory.`\
+https://nytimes.com/athletic/6314308/2025/04/26/memphis-grizzlies-ja-morant-sweep-zach-kleiman/
+
 **With buzzer-beating dunk, Aaron Gordon injects new life into Nuggets' season**\
 `Gordon's putback dunk off Nikola Jokić's final shot didn't just tie the series with the Clippers. It validated Denver's effort in Game 4.`\
 https://nytimes.com/athletic/6314174/2025/04/26/nuggets-clippers-aaron-gordon-putback-dunk/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/26/theater/just-in-time-review-darin-groff.html
 **Quote of the Day: Ohtani’s Interpreter Ends Up as Fodder for ‘The Simpsons’**\
 `Quotation of the Day for Sunday, April 27, 2025.`\
 https://nytimes.com/2025/04/26/pageoneplus/quote-of-the-day-ohtanis-interpreter-ends-up-as-fodder-for-the-simpsons.html
-
-**Giants celebrate Brandon Crawford, walk off in the ninth**\
-`Crawford started the day with a speech, then the Giants capped the afternoon with their fourth walk-off win.`\
-https://nytimes.com/athletic/6313016/2025/04/26/sf-giants-brandon-crawford-celebration-walk-off-win/
-
-**Most drafted schools: Ohio State dominates 2025 NFL Draft with 14 picks**\
-`The top five programs by draft selections represent over one-fifth of all draft picks through the three-day draft process.`\
-https://nytimes.com/athletic/6312761/2025/04/26/2025-nfl-draft-schools-ohio-state/
 
