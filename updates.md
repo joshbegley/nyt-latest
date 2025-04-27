@@ -1,3 +1,7 @@
+**How Liverpool won the Premier League: Dire Straits, coffee club and one big outburst**\
+`How Dire Straits, coffee club and one volcanic outburst from Arne Slot helped secure an historic triumph`\
+https://nytimes.com/athletic/6235236/2025/04/27/liverpool-premier-league-title-inside-story/
+
 **Arsenal reach first Women's Champions League final since 2007 after win vs Lyon**\
 `Arsenal will play Barcelona in May's final.`\
 https://nytimes.com/athletic/6315336/2025/04/27/arsenal-lyon-womens-champions-league-final/
