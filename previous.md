@@ -1,3 +1,8 @@
+**Artem Zub's hit on John Tavares and the ripple effect for the Leafs in Game 4**\
+`Tavares' brief injury absence in Game 4 led to Toronto being without its top performer on a critical four-minute power play. 
+`\
+https://nytimes.com/athletic/6314587/2025/04/27/maple-leafs-john-tavares-injury-nhl-playoffs/
+
 **Turkey’s People Are Resisting Autocracy. They Deserve More Than Silence.**\
 `The world’s democracies can speak up to make Erdogan’s life less comfortable.`\
 https://nytimes.com/2025/04/27/opinion/turkey-istanbul-protests.html
@@ -33,8 +38,4 @@ https://nytimes.com/athletic/6272256/2025/04/27/wendie-renard-interview-lyon/
 **Is Enzo Maresca's tactical approach exacerbating Cole Palmer's goalless streak?**\
 `The Chelsea player's worrying run without a goal now extends to 17 matches across all competitions`\
 https://nytimes.com/athletic/6312832/2025/04/27/cole-palmer-form-enzo-maresca-chelsea/
-
-**Against Barcelona, Chelsea will have to believe beyond what is rational**\
-`Chelsea have the experience and a quadruple to play for but if any team can withstand them, it's Barcelona`\
-https://nytimes.com/athletic/6311952/2025/04/27/chelsea-barcelona-champions-league-semifinal/
 
