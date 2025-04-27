@@ -1,3 +1,7 @@
+**New Details Emerge on Trump Officials’ Sprint to Gut Consumer Bureau Staff**\
+`Emails and testimonials from workers at the Consumer Financial Protection Bureau document the administration’s efforts to lay off 90 percent of the employees.`\
+https://nytimes.com/2025/04/27/business/cfpb-layoffs-trump-musk-doge.html
+
 **Quick Escape**\
 `Sue Fracker dashes off a delightful puzzle.`\
 https://nytimes.com/2025/04/27/crosswords/daily-puzzle-2025-04-28.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/27/world/middleeast/israel-netanyahu-ronen-bar.html
 **Washington State Lawmakers Vote to Limit Rent Increases**\
 `Supporters say an annual cap of 10 percent, including inflation, will protect tenants. Critics worry it will reduce housing supply and discourage investors.`\
 https://nytimes.com/2025/04/27/us/rent-increase-washington-state.html
-
-**NBA playoffs takeaways: Knicks stave off Pistons behind Jalen Brunson's heroics**\
-`Up 3-1, the Knicks can clinch the first-round series with a Game 5 win on Tuesday in New York.`\
-https://nytimes.com/athletic/6315504/2025/04/27/nba-playoffs-knicks-pistons-takeaways/
 
