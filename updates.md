@@ -1,3 +1,7 @@
+**Firefighter Paramedic Is Fatally Stabbed by a Patient Aboard an Ambulance**\
+`The emergency worker in Kansas City, Mo., was stabbed in his chest while transporting a patient in what started as a routine call on Sunday, officials said.`\
+https://nytimes.com/2025/04/27/us/paramedic-stabbing-kansas-city.html
+
 **Protests Against Israeli Official Heat Up Outside Synagogue in Brooklyn**\
 `The clashes outside a synagogue where the official, Itamar Ben-Gvir, a far-right security minister, had planned to speak followed days of disturbances connected to his visit.`\
 https://nytimes.com/2025/04/27/nyregion/protests-ben-gvir-israel-brooklyn-synagogue.html

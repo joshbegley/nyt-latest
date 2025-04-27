@@ -1,3 +1,7 @@
+**Firefighter Paramedic Is Fatally Stabbed by a Patient Aboard an Ambulance**\
+`The emergency worker in Kansas City, Mo., was stabbed in his chest while transporting a patient in what started as a routine call on Sunday, officials said.`\
+https://nytimes.com/2025/04/27/us/paramedic-stabbing-kansas-city.html
+
 **Protests Against Israeli Official Heat Up Outside Synagogue in Brooklyn**\
 `The clashes outside a synagogue where the official, Itamar Ben-Gvir, a far-right security minister, had planned to speak followed days of disturbances connected to his visit.`\
 https://nytimes.com/2025/04/27/nyregion/protests-ben-gvir-israel-brooklyn-synagogue.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/27/crosswords/daily-puzzle-2025-04-28.html
 **Referees acknowledge missed foul call at the end of Pistons-Knicks Game 4**\
 `After the game, Tim Hardaway Jr. called the missed call "blatant."`\
 https://nytimes.com/athletic/6315940/2025/04/27/pistons-knicks-missed-call-tim-hardaway-josh-hart/
-
-**Hurricanes goalie Frederik Andersen leaves Game 4, won't return after collision with Timo Meier**\
-`Officials originally gave Meier a five-minute major penalty for the play, but after video review, it was deemed there was no penalty.`\
-https://nytimes.com/athletic/6315995/2025/04/27/andersen-meier-collision-hurricanes-devils-nhl-playoffs/
 
