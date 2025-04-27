@@ -1,3 +1,7 @@
+**Referees acknowledge missed foul call at the end of Pistons-Knicks Game 4**\
+`After the game, Tim Hardaway Jr. called the missed call "blatant."`\
+https://nytimes.com/athletic/6315940/2025/04/27/pistons-knicks-missed-call-tim-hardaway-josh-hart/
+
 **Hurricanes goalie Frederik Andersen leaves Game 4, won't return after collision with Timo Meier**\
 `Officials originally gave Meier a five-minute major penalty for the play, but after video review, it was deemed there was no penalty.`\
 https://nytimes.com/athletic/6315995/2025/04/27/andersen-meier-collision-hurricanes-devils-nhl-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6315504/2025/04/27/nba-playoffs-knicks-pistons-take
 **What I'm hearing about the Flyers' coaching search and recent changes**\
 `It's notable that interim coach Brad Shaw was not let go this week with three assistant coaches.`\
 https://nytimes.com/athletic/6315737/2025/04/27/flyers-coach-update-shaw/
-
-**Valentin-Yves Mudimbe, 83, Dies; African Scholar Challenged the West**\
-`He deconstructed what he called “the colonial library”: the accounts of Africa by Europeans whose aim, he said, was to further colonialism.`\
-https://nytimes.com/2025/04/27/world/africa/valentin-yves-mudimbe-dead.html
 
