@@ -1,3 +1,16 @@
+**ICE Arrests Nearly 800 in Florida in Operation With Local Officers**\
+`The four-day operation came as the Trump administration has sought to enlist local authorities in an immigration crackdown.`\
+https://nytimes.com/2025/04/26/us/politics/ice-arrests-florida-immigrants.html
+
+**Panthers 2025 NFL Draft takeaways: Surprise pick of McMillan will define this class**\
+`Why the decision to go offense first and then defense will define the success of the 2025 NFL Draft for Carolina.`\
+https://nytimes.com/athletic/6312447/2025/04/26/carolina-panthers-2025-nfl-draft-picks-takeaways/
+
+**Golden Knights even series vs. Wild with overtime goal in Game 4: Takeaways**\
+`Ivan Barbashev delivered for Vegas, scoring in OT to secure a 4-3 win in Game 4 and tying the first-round series with Minnesota at 2-2.
+`\
+https://nytimes.com/athletic/6313488/2025/04/26/wild-golden-knights-game-4/
+
 **Patriots draft takeaways: A clear plan, and lots of help for QB Drake Maye**\
 `Mike Vrabel and the Patriots got excellent value at positions of need, and it feels like the franchise is headed in the right direction.`\
 https://nytimes.com/athletic/6313239/2025/04/26/new-england-patriots-2025-nfl-draft-picks-takeaways/
