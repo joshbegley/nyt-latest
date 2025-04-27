@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5943402/2025/04/27/carlo-ancelotti-real-madrid-brazil-future/
 
 **Israeli Military Strikes Near Beirut, Saying Hezbollah Was the Target**\
-`The attack raised concerns that the cease-fire that ended a war between Israeli and Lebanese militants might be in jeopardy.`\
+`The attack raised concerns that the cease-fire that ended a war between Israel and Lebanese militants might be in jeopardy.`\
 https://nytimes.com/2025/04/27/world/middleeast/israel-strike-beirut-hezbollah.html
 
 **The Briefing - Liege-Bastogne-Liege: Tadej Pogacar unstoppable again as Kim Le Court wins for Mauritius in Femmes race**\

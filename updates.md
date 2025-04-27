@@ -1,3 +1,11 @@
+**Ancelotti set to leave Real Madrid and join Brazil in June**\
+`The expectation is for Ancelotti to complete the La Liga season and join Brazil in June.`\
+https://nytimes.com/athletic/5943402/2025/04/27/carlo-ancelotti-real-madrid-brazil-future/
+
+**Jiggly Caliente, ‘RuPaul Drag Race’ Star and Judge, Dies at 44**\
+`Fans knew Ms. Caliente for her sense of humor, vigorous dance skills and interactions with fellow cast members on the popular drag television show.`\
+https://nytimes.com/2025/04/27/arts/television/jiggly-caliente-rupaul-drag-race-dead.html
+
 **Israeli Military Strikes Near Beirut, Saying Hezbollah Was the Target**\
 `The attack raised concerns that the cease-fire that ended a war between Israeli and Lebanese militants might be in jeopardy.`\
 https://nytimes.com/2025/04/27/world/middleeast/israel-strike-beirut-hezbollah.html
