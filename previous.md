@@ -2,6 +2,10 @@
 `The annual weekend celebrating America’s free press went forward, even as the Trump administration chips away at press freedoms.`\
 https://nytimes.com/2025/04/27/business/media/white-house-correspondents-dinner.html
 
+**Wendie Renard on her career so far: 'It’s an adventure which starts with these players'**\
+`On the brink of her 500th club appearance and with the Euros looming, France captain Renard takes The Athletic on a walk down memory lane`\
+https://nytimes.com/athletic/6272256/2025/04/27/wendie-renard-interview-lyon/
+
 **Is Enzo Maresca's tactical approach exacerbating Cole Palmer's goalless streak?**\
 `The Chelsea player's worrying run without a goal now extends to 17 matches across all competitions`\
 https://nytimes.com/athletic/6312832/2025/04/27/cole-palmer-form-enzo-maresca-chelsea/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/27/world/europe/cardinals-church-conclave-pope.html
 **Europe’s Pharma Industry Braces for Pain as Trump Tariff Threat Looms**\
 `Medicines and chemicals are huge exports for European Union countries. That makes the sector a weak spot as trade tensions drag on.`\
 https://nytimes.com/2025/04/27/world/europe/tariffs-pharmaceuticals-drugs-medicine-trump.html
-
-**How Foreign Students Lost Their Sheen in a Nation of Immigrants**\
-`Both major political parties are pledging steep cuts on the number of foreigners allowed to study in Australia as a way to rein in runaway housing prices.`\
-https://nytimes.com/2025/04/27/world/australia/international-students-caps.html
 

@@ -1,3 +1,7 @@
+**Wendie Renard on her career so far: 'It’s an adventure which starts with these players'**\
+`On the brink of her 500th club appearance and with the Euros looming, France captain Renard takes The Athletic on a walk down memory lane`\
+https://nytimes.com/athletic/6272256/2025/04/27/wendie-renard-interview-lyon/
+
 **Washington’s Besieged Journalists Raise a Cocktail Glass, Darkly**\
 `The annual weekend celebrating America’s free press went forward, even as the Trump administration chips away at press freedoms.`\
 https://nytimes.com/2025/04/27/business/media/white-house-correspondents-dinner.html
