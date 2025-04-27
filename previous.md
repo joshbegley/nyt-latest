@@ -1,3 +1,11 @@
+**Death Toll in Iranian Port Blast Rises to 25**\
+`More than 1,100 people were also injured in the explosion at the Shahid Rajaee port, the largest in Iran.`\
+https://nytimes.com/2025/04/27/world/middleeast/iran-port-explosion.html
+
+**The Church of the Open Road**\
+`The writer Colum McCann biked across America, searching for a God.`\
+https://nytimes.com/2025/04/27/style/colum-mccann-biking-church.html
+
 **The New York Times International Edition in Print for Monday, April 28, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/04/27/todays-new-york-times-international-edition
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/27/world/americas/canada-election-china-joe-tay.html
 **Trump’s Tariffs Squeeze an Already Struggling British Car Industry**\
 `The 25 percent levies threaten automakers that are navigating Brexit, a shift to electric vehicles and other obstacles.`\
 https://nytimes.com/2025/04/27/business/trump-tariffs-uk-cars.html
-
-**Missteps, Equipment Problems and a Common but Risky Practice Led to a Fatal Crash**\
-`New details revealed by The Times show that the failures on Jan. 29 before an Army helicopter crashed into a jet near Reagan National Airport were far more complex than previously known.`\
-https://nytimes.com/2025/04/27/business/dc-plane-crash-reagan-airport.html
-
-**Emerging From a Collective Silence, Universities Organize to Fight Trump**\
-`A recent group statement showed that the nation’s academic leaders, at first reluctant to oppose the president’s moves, are beginning to unite.`\
-https://nytimes.com/2025/04/27/us/trump-university-presidents.html
 

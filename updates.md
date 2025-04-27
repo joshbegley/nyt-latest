@@ -1,3 +1,11 @@
+**Death Toll in Iranian Port Blast Rises to 25**\
+`More than 1,100 people were also injured in the explosion at the Shahid Rajaee port, the largest in Iran.`\
+https://nytimes.com/2025/04/27/world/middleeast/iran-port-explosion.html
+
+**The Church of the Open Road**\
+`The writer Colum McCann biked across America, searching for a God.`\
+https://nytimes.com/2025/04/27/style/colum-mccann-biking-church.html
+
 **The New York Times International Edition in Print for Monday, April 28, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/04/27/todays-new-york-times-international-edition
