@@ -1,3 +1,11 @@
+**With buzzer-beating dunk, Aaron Gordon injects new life into Nuggets' season**\
+`Gordon's putback dunk off Nikola Jokić's final shot didn't just tie the series with the Clippers. It validated Denver's effort in Game 4.`\
+https://nytimes.com/athletic/6314174/2025/04/26/nuggets-clippers-aaron-gordon-putback-dunk/
+
+**Is this Wild team truly different? It's now a best-of-3 series, so we'll soon find out**\
+`The Wild had a chance — again — to grab firm hold of a playoff series, but instead head to Las Vegas tied 2-2.`\
+https://nytimes.com/athletic/6314401/2025/04/26/wild-golden-knights-playoff-series/
+
 **Senators stay alive as Jake Sanderson sinks Leafs in OT: Game 4 takeaways**\
 `Leafs fail to close out the Senators in 4-3 OT loss as the series shifts back to Toronto. `\
 https://nytimes.com/athletic/6313709/2025/04/26/leafs-senators-takeaways-game-4-nhl-playoffs/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6313016/2025/04/26/sf-giants-brandon-crawford-celeb
 **Most drafted schools: Ohio State dominates 2025 NFL Draft with 14 picks**\
 `The top five programs by draft selections represent over one-fifth of all draft picks through the three-day draft process.`\
 https://nytimes.com/athletic/6312761/2025/04/26/2025-nfl-draft-schools-ohio-state/
-
-**Lions 2025 NFL Draft takeaways: Most needs were met, but was one edge rusher enough?**\
-`GM Brad Holmes drafted a rotational edge in Round 6 in Ahmed Hassanein, but depth at the position remains a question.`\
-https://nytimes.com/athletic/6314123/2025/04/26/detroit-lions-2025-nfl-draft-picks-takeaways/
-
-**NFL Draft 2025 winners and losers: Browns make intriguing QB move, Steelers lose Rodgers leverage**\
-`If Shedeur Sanders doesn't work out for the Browns, they can still take a swing on a QB in 2026. That lowers the risk of their pick.`\
-https://nytimes.com/athletic/6313395/2025/04/26/nfl-draft-2025-overall-winners-losers/
 
