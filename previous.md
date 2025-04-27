@@ -1,3 +1,19 @@
+**A night at the Baller League, where former England pros and YouTube stars collide**\
+`Stuart James accompanied his 13-year-old son to experience the glitzy six-a-side tournament tailor-made for the YouTube generation`\
+https://nytimes.com/athletic/6301966/2025/04/27/baller-league-wright-terry-deeney-ksi/
+
+**Wilshere has waited patiently for his managerial chance. Now he has the taste for it**\
+`The 33-year-old has spent two-and-a-half years developing his coaching skills. On Saturday he had his first taste of leading a senior side`\
+https://nytimes.com/athletic/6312976/2025/04/27/jack-wilshere-norwich-management-middlesbrough/
+
+**Premier League meets NBA awards: What if football had Rookie of the Year and more?**\
+`What if the Premier League's end-of-season awards were the same as the NBA's? Chris Wood, Liam Delap and Jhon Duran would be in the mix`\
+https://nytimes.com/athletic/6305043/2025/04/27/premier-league-awards-nba-style/
+
+**Explained: How, why and when Liverpool will win the 2024-25 Premier League**\
+`A draw against Tottenham on Sunday will secure the club's 20th league title, though they will have to wait to get their hands on the trophy`\
+https://nytimes.com/athletic/6304719/2025/04/27/liverpool-title-slot-premier-league-when/
+
 **As Cardinals Prepare to Elect a Pope, One Motto Is ‘Unity.’ That’s Divisive.**\
 `Some see the byword as a rallying call in a conservative campaign to reverse Francis’ push for a more inclusive church.`\
 https://nytimes.com/2025/04/27/world/europe/cardinals-church-conclave-pope.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6314476/2025/04/27/connections-sports-edition-hints
 **Corrections: April 27, 2025**\
 `Corrections that appeared in print on Sunday, April 27, 2025.`\
 https://nytimes.com/2025/04/27/pageoneplus/corrections-april-27-2025.html
-
-**In winning time, Shai Gilgeous-Alexander was at his best in Thunder's sweep of Grizzlies**\
-`Gilgeous-Alexander scored a game-high 38 points, helping OKC to a second-round date with the winner between the Clippers and Nuggets.`\
-https://nytimes.com/athletic/6314454/2025/04/26/thunder-sweep-grizzlies-shai-gilgeous-alexander/
-
-**Grizzlies must consider Ja Morant's future and everything else after sweep**\
-`Grizzlies general manager Zach Kleiman faces several questions as he looks to restore Memphis' upward trajectory.`\
-https://nytimes.com/athletic/6314308/2025/04/26/memphis-grizzlies-ja-morant-sweep-zach-kleiman/
-
-**With buzzer-beating dunk, Aaron Gordon injects new life into Nuggets' season**\
-`Gordon's putback dunk off Nikola Jokić's final shot didn't just tie the series with the Clippers. It validated Denver's effort in Game 4.`\
-https://nytimes.com/athletic/6314174/2025/04/26/nuggets-clippers-aaron-gordon-putback-dunk/
-
-**Is this Wild team truly different? It's now a best-of-3 series, so we'll soon find out**\
-`The Wild had a chance — again — to grab firm hold of a playoff series, but instead head to Las Vegas tied 2-2.`\
-https://nytimes.com/athletic/6314401/2025/04/26/wild-golden-knights-playoff-series/
 
