@@ -1,3 +1,7 @@
+**‘Just in Time’ Review: Jonathan Groff Channels Bobby Darin**\
+`Groff is sensational as the ’60s “nightclub animal” in a Broadway bio-musical jukebox that doesn’t live up to its star.`\
+https://nytimes.com/2025/04/26/theater/just-in-time-review-darin-groff.html
+
 **Quote of the Day: Ohtani’s Interpreter Ends Up as Fodder for ‘The Simpsons’**\
 `Quotation of the Day for Sunday, April 27, 2025.`\
 https://nytimes.com/2025/04/26/pageoneplus/quote-of-the-day-ohtanis-interpreter-ends-up-as-fodder-for-the-simpsons.html
