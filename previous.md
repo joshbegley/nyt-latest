@@ -1,3 +1,15 @@
+**Washington’s Besieged Journalists Raise a Cocktail Glass, Darkly**\
+`The annual weekend celebrating America’s free press went forward, even as the Trump administration chips away at press freedoms.`\
+https://nytimes.com/2025/04/27/business/media/white-house-correspondents-dinner.html
+
+**Is Enzo Maresca's tactical approach exacerbating Cole Palmer's goalless streak?**\
+`The Chelsea player's worrying run without a goal now extends to 17 matches across all competitions`\
+https://nytimes.com/athletic/6312832/2025/04/27/cole-palmer-form-enzo-maresca-chelsea/
+
+**Against Barcelona, Chelsea will have to believe beyond what is rational**\
+`Chelsea have the experience and a quadruple to play for but if any team can withstand them, it's Barcelona`\
+https://nytimes.com/athletic/6311952/2025/04/27/chelsea-barcelona-champions-league-semifinal/
+
 **A night at the Baller League, where former England pros and YouTube stars collide**\
 `Stuart James accompanied his 13-year-old son to experience the glitzy six-a-side tournament tailor-made for the YouTube generation`\
 https://nytimes.com/athletic/6301966/2025/04/27/baller-league-wright-terry-deeney-ksi/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/27/world/europe/tariffs-pharmaceuticals-drugs-medici
 **How Foreign Students Lost Their Sheen in a Nation of Immigrants**\
 `Both major political parties are pledging steep cuts on the number of foreigners allowed to study in Australia as a way to rein in runaway housing prices.`\
 https://nytimes.com/2025/04/27/world/australia/international-students-caps.html
-
-**Nashville SC routs Chicago Fire 7-2 after first-half onslaught**\
-`Nashville became the 13th team to score at least seven goals in an MLS match, reaching that benchmark in the 57th minute.`\
-https://nytimes.com/athletic/6314440/2025/04/27/nashville-sc-chicago-fire-game-analysis/
-
-**Connections: Sports Edition Coach: Hints for April 27, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6314476/2025/04/27/connections-sports-edition-hints-for-april-27-2025/
-
-**Corrections: April 27, 2025**\
-`Corrections that appeared in print on Sunday, April 27, 2025.`\
-https://nytimes.com/2025/04/27/pageoneplus/corrections-april-27-2025.html
 

@@ -1,3 +1,15 @@
+**Washington’s Besieged Journalists Raise a Cocktail Glass, Darkly**\
+`The annual weekend celebrating America’s free press went forward, even as the Trump administration chips away at press freedoms.`\
+https://nytimes.com/2025/04/27/business/media/white-house-correspondents-dinner.html
+
+**Is Enzo Maresca's tactical approach exacerbating Cole Palmer's goalless streak?**\
+`The Chelsea player's worrying run without a goal now extends to 17 matches across all competitions`\
+https://nytimes.com/athletic/6312832/2025/04/27/cole-palmer-form-enzo-maresca-chelsea/
+
+**Against Barcelona, Chelsea will have to believe beyond what is rational**\
+`Chelsea have the experience and a quadruple to play for but if any team can withstand them, it's Barcelona`\
+https://nytimes.com/athletic/6311952/2025/04/27/chelsea-barcelona-champions-league-semifinal/
+
 **A night at the Baller League, where former England pros and YouTube stars collide**\
 `Stuart James accompanied his 13-year-old son to experience the glitzy six-a-side tournament tailor-made for the YouTube generation`\
 https://nytimes.com/athletic/6301966/2025/04/27/baller-league-wright-terry-deeney-ksi/
