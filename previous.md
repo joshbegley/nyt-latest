@@ -26,7 +26,7 @@ https://nytimes.com/athletic/6314723/2025/04/27/rockets-lose-warriors-jimmy-butl
 `From accusations about referees to multiple red cards, Real Madrid's season is coming to a very noisy end `\
 https://nytimes.com/athletic/6304910/2025/04/27/real-madrid-barcelona-copa-final-rage/
 
-**Trump Administration Live Updates: President Says Putin Might Not Be Serious About Peace in Ukraine**\
+**Trump Administration Live Updates: Bessent Defends Approach to Tariffs as ‘Strategic Uncertainty’**\
 ``\
 https://nytimes.com/live/2025/04/27/us/trump-news
 

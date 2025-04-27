@@ -1,3 +1,23 @@
+**The Briefing: Bournemouth 1 Man Utd 1 - Shaw returns and Semenyo impresses as Hojlund rescues point**\
+`Carl Anka and Anantaajith Raghuraman break down the key talking points from United's trip to the south coast`\
+https://nytimes.com/athletic/6301992/2025/04/27/bournemouth-man-utd-premier-league-analysis/
+
+**2025 NFL Draft attendance totals 600,000 in Green Bay over three days**\
+`The draft tied Nashville for the second-highest attendance, roughly more than seven times what a Packers home game does.`\
+https://nytimes.com/athletic/6315216/2025/04/27/nfl-draft-2025-attendance-green-bay/
+
+**Be Friends With Your Broiler**\
+`So you can make broiled salmon with asparagus and herbs, a superb spring Sunday supper.`\
+https://nytimes.com/2025/04/27/dining/broiled-salmon-recipe.html
+
+**Alexander Zverev adds to clay line-calling furore during Madrid Open win**\
+`The world No. 2 became the latest player to take a photo of a ball mark on clay, as tennis reckons with electronic line calling.`\
+https://nytimes.com/athletic/6315135/2025/04/27/tennis-line-calling-clay-zverev-madrid-open/
+
+**Chelsea's quadruple hopes end, system change disaster, Barcelona irrepressible - Briefing**\
+`Chelsea are knocked out of the Champions League semi-finals by an impressive Barcelona`\
+https://nytimes.com/athletic/6315042/2025/04/27/chelsea-barcelona-champions-league-semifinals-briefing/
+
 **'I had to be Alfred': Buddy Hield steps into sidekick role without Jimmy Butler**\
 `"He's huge in the locker room," Draymond Green added of Hield. "He's huge on the plane. Just for the aura of this team, he's big."`\
 https://nytimes.com/athletic/6314236/2025/04/27/buddy-hield-warriors-nba-playoffs-jimmy-butler-injury/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6314951/2025/04/27/steph-curry-warriors-rockets-gam
 **Crystal Palace relegated from Women's Super League**\
 `Palace have won just two of their 20 WSL matches this term and are relegated after just one season in the top flight.`\
 https://nytimes.com/athletic/6301869/2025/04/27/crystal-palace-relegated-wsl/
-
-**The Rockets blew it against the Butler-less Warriors. They might regret it**\
-`“I think every chance you don't win a game you feel like you could win is a missed opportunity,” Fred VanVleet said.`\
-https://nytimes.com/athletic/6314723/2025/04/27/rockets-lose-warriors-jimmy-butler/
-
-**How 48 hours of rage and recrimination overshadowed the Copa del Rey final**\
-`From accusations about referees to multiple red cards, Real Madrid's season is coming to a very noisy end `\
-https://nytimes.com/athletic/6304910/2025/04/27/real-madrid-barcelona-copa-final-rage/
-
-**Trump Administration Live Updates: Bessent Defends Approach to Tariffs as ‘Strategic Uncertainty’**\
-``\
-https://nytimes.com/live/2025/04/27/us/trump-news
-
-**Longtime Kings broadcaster Nick Nickson embracing final playoffs before retirement**\
-`After 44 seasons and two Stanley Cups, the longtime Kings play-by-play announcer will hang up his headset.`\
-https://nytimes.com/athletic/6314351/2025/04/27/la-kings-nick-nickson-retirement-nhl-playoffs/
-
-**The Fear Factor and America’s Future**\
-`Readers respond to a column by Thomas L. Friedman. Also: Depression and aging; Paul Revere’s legacy.`\
-https://nytimes.com/2025/04/27/opinion/america-fear.html
 

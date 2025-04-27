@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Bessent Defends Approach to Tariffs as ‘Strategic Uncertainty’**\
+``\
+https://nytimes.com/live/2025/04/27/us/trump-news
+
 **'I had to be Alfred': Buddy Hield steps into sidekick role without Jimmy Butler**\
 `"He's huge in the locker room," Draymond Green added of Hield. "He's huge on the plane. Just for the aura of this team, he's big."`\
 https://nytimes.com/athletic/6314236/2025/04/27/buddy-hield-warriors-nba-playoffs-jimmy-butler-injury/
