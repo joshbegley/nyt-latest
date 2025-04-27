@@ -1,3 +1,7 @@
+**Thompson: Steph Curry, from 'a galaxy nobody can touch,' lifts Warriors with stellar Game 3**\
+`With Jimmy Butler out, the burden fell to Steph Curry to carry the Warriors in Game 3. And he did what he's done so many times before.`\
+https://nytimes.com/athletic/6314951/2025/04/27/steph-curry-warriors-rockets-game-3-playoffs/
+
 **Crystal Palace relegated from Women's Super League**\
 `Palace have won just two of their 20 WSL matches this term and are relegated after just one season in the top flight.`\
 https://nytimes.com/athletic/6301869/2025/04/27/crystal-palace-relegated-wsl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6314538/2025/04/27/drafts-we-liked-the-stunning-sli
 **Why Adam Benák, one of the 2025 NHL Draft's smallest prospects, could defy his size**\
 `Benák's size, paired with his speed and smarts, make him one of the most interesting and also difficult case studies in this year's class.`\
 https://nytimes.com/athletic/6297049/2025/04/27/2025-nhl-draft-prospect-adam-benak/
-
-**This 7th-round QB pick left behind a lot of NIL money to go pro. Was it the right call?**\
-`Quarterback Quinn Ewers won big at Texas but ended up as a seventh-round pick by the Miami Dolphins.`\
-https://nytimes.com/athletic/6314185/2025/04/27/quinn-ewers-miami-dolphins-texas-nfl-college-football-nil/
 
