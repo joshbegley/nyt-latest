@@ -1,3 +1,11 @@
+**The Briefing: Liverpool 5 Tottenham 1 - Spurs hit new low in record-equalling defeat**\
+`Archie Gray and Lucas Bergvall struggle in midfield as Ange Postecoglou's side lose their 19th league game this season`\
+https://nytimes.com/athletic/6311822/2025/04/27/liverpool-5-tottenham-1-premier-league-analysis/
+
+**Paul Maurice responds to Jon Cooper's verbatim postgame message**\
+`Paul Maurice calls Jon Cooper's "chirping" of him "all good" and says that such things are "a lost art." `\
+https://nytimes.com/athletic/6315323/2025/04/27/paul-maurice-responds-jon-coopers-postgame-message/
+
 **Alexis Herman, First Black Secretary of Labor, Dies at 77**\
 `A social worker, she became a Democratic Party insider and joined President Bill Clinton’s cabinet during his second term.`\
 https://nytimes.com/2025/04/27/us/politics/alexis-herman-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6315384/2025/04/27/yankees-devin-williams-closer-ro
 **NFL investigating prank call to Shedeur Sanders during draft**\
 `The phone Sanders received the call on was specifically purchased for the draft and the number was shared only with the NFL.`\
 https://nytimes.com/athletic/6315261/2025/04/27/nfl-investigation-shedeur-sanders-draft/
-
-**Capitals' Thompson to be game-time decision; Habs' Montembeault out**\
-`While both goalies left Game 3 due to injury, only Logan Thompson has a chance to play in Sunday's Game 4.`\
-https://nytimes.com/athletic/6315284/2025/04/27/capitals-canadiens-thompson-montembeault-injury/
-
-**Beat writers’ favorite 2025 NFL Draft picks: Cam Skattebo, Colston Loveland and 30 more players**\
-`The Bears got an elite weapon for their offense in Loveland, and Skattebo should be a Giants fan favorite. Who else appealed to our writers?`\
-https://nytimes.com/athletic/6314993/2025/04/27/nfl-draft-2025-favorite-picks/
 
