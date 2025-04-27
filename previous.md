@@ -1,3 +1,11 @@
+**NFL to investigate Shedeur Sanders prank call to private draft phone: Source**\
+`The phone Sanders received the call on was specifically purchased for the draft and the number was only shared internally.`\
+https://nytimes.com/athletic/6315261/2025/04/27/nfl-investigation-shedeur-sanders-draft/
+
+**Capitals' Thompson to be game-time decision; Habs' Montembeault out**\
+`While both goalies left Game 3 due to injury, only Logan Thompson has a chance to play in Sunday's Game 4.`\
+https://nytimes.com/athletic/6315284/2025/04/27/capitals-canadiens-thompson-montembeault-injury/
+
 **Beat writers’ favorite 2025 NFL Draft picks: Cam Skattebo, Colston Loveland and 30 more players**\
 `The Bears got an elite weapon for their offense in Loveland, and Skattebo should be a Giants fan favorite. Who else appealed to our writers?`\
 https://nytimes.com/athletic/6314993/2025/04/27/nfl-draft-2025-favorite-picks/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6301992/2025/04/27/bournemouth-man-utd-premier-leag
 **2025 NFL Draft attendance totals 600,000 in Green Bay over three days**\
 `The draft tied Nashville for the second-highest attendance, roughly more than seven times what a Packers home game does.`\
 https://nytimes.com/athletic/6315216/2025/04/27/nfl-draft-2025-attendance-green-bay/
-
-**Be Friends With Your Broiler**\
-`So you can make broiled salmon with asparagus and herbs, a superb spring Sunday supper.`\
-https://nytimes.com/2025/04/27/dining/broiled-salmon-recipe.html
-
-**Alexander Zverev adds to clay line-calling furore during Madrid Open win**\
-`The world No. 2 became the latest player to take a photo of a ball mark on clay, as tennis reckons with electronic line calling.`\
-https://nytimes.com/athletic/6315135/2025/04/27/tennis-line-calling-clay-zverev-madrid-open/
 

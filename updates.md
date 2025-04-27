@@ -1,3 +1,11 @@
+**NFL to investigate Shedeur Sanders prank call to private draft phone: Source**\
+`The phone Sanders received the call on was specifically purchased for the draft and the number was only shared internally.`\
+https://nytimes.com/athletic/6315261/2025/04/27/nfl-investigation-shedeur-sanders-draft/
+
+**Capitals' Thompson to be game-time decision; Habs' Montembeault out**\
+`While both goalies left Game 3 due to injury, only Logan Thompson has a chance to play in Sunday's Game 4.`\
+https://nytimes.com/athletic/6315284/2025/04/27/capitals-canadiens-thompson-montembeault-injury/
+
 **Beat writers’ favorite 2025 NFL Draft picks: Cam Skattebo, Colston Loveland and 30 more players**\
 `The Bears got an elite weapon for their offense in Loveland, and Skattebo should be a Giants fan favorite. Who else appealed to our writers?`\
 https://nytimes.com/athletic/6314993/2025/04/27/nfl-draft-2025-favorite-picks/
