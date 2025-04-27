@@ -1,3 +1,23 @@
+**Wrexham's historic day to remember: Tears, a pitch invasion and previous promotion heroes**\
+`The Welsh club have achieved something no other team have done and they are now one more promotion away from the Premier League`\
+https://nytimes.com/athletic/6304352/2025/04/27/wrexham-promotion-reynolds-mcelhenney/
+
+**NFL Draft: Ranking 7 most interesting QB picks by who has best chance to succeed**\
+`Top pick Cam Ward was the easy No. 1 choice, but what about after him? Is Shedeur Sanders ready to prove his doubters wrong?`\
+https://nytimes.com/athletic/6313594/2025/04/27/nfl-draft-2025-shedeur-sanders-quarterbacks/
+
+**Oilers are starting to show their full potential as they get closer to full health**\
+`Edmonton appears to be getting increasingly stronger by the day, as slowly improving health has fittingly led to better play.`\
+https://nytimes.com/athletic/6313770/2025/04/27/oilers-kings-nhl-playoffs-injuries/
+
+**The lifelong Detroit Pistons fan from Australia who became a social media influencer**\
+`"Growing up, the Pistons, for me, were like the one thing I'd look forward to every day," said Jack Kelly, who grew up in Melbourne.`\
+https://nytimes.com/athletic/6303774/2025/04/27/detroit-pistons-fans-australia-2025-nba-playoffs/
+
+**Emmanuel Clase, a sore shoulder and a strange week for the Guardians' non-closing closer**\
+`Cade Smith has three saves over the past six days. Is this a long-term thing, or will Clase be reinstalled as the closer soon?`\
+https://nytimes.com/athletic/6313481/2025/04/27/guardians-emmanuel-clase-closer-cade-smith/
+
 **Trump Meeting Offers Ukrainians a Glimmer of Hope**\
 `The United States has been pushing Ukraine to accept a peace plan that seems in part a gift to Moscow. But a short meeting with President Volodymyr Zelensky, and subsequent comments, appeared to be a change in tone.`\
 https://nytimes.com/2025/04/27/world/europe/ukraine-trump-zelensky-putin.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6314579/2025/04/27/maple-leafs-senators-game-4-nhl-
 **Harvard May Not Be the Hero We Want, but It Is the Hero We Need**\
 `The university’s defense of the Constitution doesn’t absolve it of its own sins, but the defense of the Constitution often comes through imperfect vehicles.`\
 https://nytimes.com/2025/04/27/opinion/trump-harvard-antisemitism-garber.html
-
-**Trump’s Biggest Beneficiary: Himself**\
-`Donald Trump has set a new standard for egregious and potentially illegal behavior. `\
-https://nytimes.com/2025/04/27/opinion/trump-crypto-musk-spacex.html
-
-**‘He’s Often Working Backward From a Conclusion’: Three Opinion Writers on Kennedy**\
-`A conversation about the health secretary’s first two months.`\
-https://nytimes.com/2025/04/27/opinion/robert-kennedy-autism-measles.html
-
-**100 Days. That’s All It Took to Sever America From the World.**\
-`This is more than a shift in foreign policy; it’s a divorce so comprehensive that it makes Brexit look modest by comparison.`\
-https://nytimes.com/2025/04/27/opinion/100-days-trump-world.html
-
-**Wordle Review No. 1,409**\
-`Scroll down for hints and conversation about the puzzle for Monday, April 28, 2025.`\
-https://nytimes.com/2025/04/27/crosswords/wordle-review-1409.html
-
-**The Dinner That Helped Save Europe**\
-`The relationship between the national security adviser Zbigniew Brzezinski and Pope John Paul II proved critical in 1980 in dissuading the Soviets from invading Poland.`\
-https://nytimes.com/2025/04/27/opinion/brzezinski-pope-john-paul-ii-poland.html
 

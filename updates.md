@@ -1,3 +1,11 @@
+**Trump Meeting Offers Ukrainians a Glimmer of Hope**\
+`The United States has been pushing Ukraine to accept a peace plan that seems in part a gift to Moscow. But a short meeting with President Volodymyr Zelensky, and subsequent comments, appeared to be a change in tone.`\
+https://nytimes.com/2025/04/27/world/europe/ukraine-trump-zelensky-putin.html
+
+**Assefa breaks women’s only London Marathon record, Sawe wins men's race**\
+`Assefa beat the women's only record set by Kenya's Peres Jepchirchir in 2024 by 26 seconds as Sawe finished 70 seconds clear of the field.`\
+https://nytimes.com/athletic/6314836/2025/04/27/london-marathon-winners-2025/
+
 **How the Bears used the draft to build competition for Ben Johnson's first season**\
 `The first draft of the Johnson era featured more playmakers on offense and guys with an "edge" to help the Bears build success.`\
 https://nytimes.com/athletic/6314274/2025/04/27/bears-nfl-draft-ben-johnson-competition/
