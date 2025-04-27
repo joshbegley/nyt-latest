@@ -1,3 +1,11 @@
+**The Rockets blew it against the Butler-less Warriors. They might regret it**\
+`The Rockets blew a ... golden ... opportunity to take the 2-1 series lead Saturday, falling 104-93 in Game 3.`\
+https://nytimes.com/athletic/6314723/2025/04/27/rockets-lose-warriors-jimmy-butler/
+
+**How 48 hours of rage and recrimination overshadowed the Copa del Rey final**\
+`From accusations about referees to multiple red cards, Real Madrid's season is coming to a very noisy end `\
+https://nytimes.com/athletic/6304910/2025/04/27/real-madrid-barcelona-copa-final-rage/
+
 **Longtime Kings broadcaster Nick Nickson embracing final playoffs before retirement**\
 `After 44 seasons and two Stanley Cups, the longtime Kings play-by-play announcer will hang up his headset.`\
 https://nytimes.com/athletic/6314351/2025/04/27/la-kings-nick-nickson-retirement-nhl-playoffs/
