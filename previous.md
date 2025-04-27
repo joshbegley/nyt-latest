@@ -1,3 +1,7 @@
+**The Upper Midwest Is in the Bull’s-Eye of a Severe Weather Threat on Monday**\
+`“It’s not very often that we see this,” one National Weather Service forecaster said of the risk level being predicted for parts of Iowa, Minnesota and Wisconsin.`\
+https://nytimes.com/2025/04/27/weather/storms-forecast-tornadoes-minnesota-wisconsin-iowa.html
+
 **How Liverpool won the Premier League: Dire Straits, coffee club and one big outburst**\
 `How Dire Straits, coffee club and one volcanic outburst from Arne Slot helped secure an historic triumph`\
 https://nytimes.com/athletic/6235236/2025/04/27/liverpool-premier-league-title-inside-story/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6309564/2025/04/27/nottingham-forest-manchester-cit
 **Bessent Demurs on Trump’s Claim of Trade Talks With China’s Xi**\
 `The Treasury secretary said that the President Trump and Xi Jinping of China have a good relationship but that he was not aware of a call, which Mr. Trump had alluded to last week.`\
 https://nytimes.com/2025/04/27/us/politics/bessent-trump-xi-tariffs.html
-
-**Blue Jackets Sunday Gathering: Zach Werenski for the Hart? Monahan for Masterton?**\
-`Plus: Which members of the Blue Jackets may be heading to Worlds and updates on the AHL Cleveland's playoff run.`\
-https://nytimes.com/athletic/6312100/2025/04/27/blue-jackets-nhl-awards-zach-werenski-sean-monahan/
 
