@@ -1,3 +1,12 @@
+**Choose your PTSD: Clippers trade one flashback for a worse one in a split second**\
+`"This is what we want," Norman Powell said. "No team willing to give an inch, no team willing to back down."`\
+https://nytimes.com/athletic/6314516/2025/04/27/clippers-nuggets-nba-playoffs-game-4/
+
+**Artem Zub's hit on John Tavares and the ripple effect for the Leafs in Game 4**\
+`Tavares' brief injury absence in Game 4 led to Toronto being without its top performer on a critical four-minute power play. 
+`\
+https://nytimes.com/athletic/6314587/2025/04/27/maple-leafs-john-tavares-injury-nhl-playoffs/
+
 **Artem Zub's hit on John Tavares and the ripple effect for the Leafs in Game 4**\
 `Tavares' brief injury absence in Game 4 led to Toronto being without its top performer on a critical four-minute power play. 
 `\
