@@ -1,3 +1,7 @@
+**Ravens 2025 NFL Draft Takeaways: A huge class, and one controversial pick**\
+`With 11 new players coming in through the draft, the Ravens don't have many boxes left to check.`\
+https://nytimes.com/athletic/6314023/2025/04/26/baltimore-ravens-2025-nfl-draft-picks-takeaways/
+
 **Aaron Gordon beats buzzer with putback dunk to help Nuggets stun Clippers**\
 `Gordon snagged a 3-point heave from Nikola Jokić out of the air and dunked it just seconds b`\
 https://nytimes.com/athletic/6314174/2025/04/26/nuggets-clippers-aaron-gordon-putback-dunk/
