@@ -1,3 +1,7 @@
+**Dodgers' Tyler Glasnow leaves second consecutive start with injury**\
+`Glasnow left Sunday's game due to right shoulder discomfort after throwing warmup pitches before the second inning.`\
+https://nytimes.com/athletic/6315927/2025/04/27/dodgers-tyler-glasnow-injury/
+
 **D.E.A. Says More Than 100 Undocumented Immigrants Were Detained in a Colorado Raid**\
 `Officials said agents found weapons and illicit drugs inside the nightclub, including cocaine, methamphetamine and a mixture of powdered drugs known as pink cocaine.`\
 https://nytimes.com/2025/04/27/us/politics/immigrants-colorado-raid-dea.html
