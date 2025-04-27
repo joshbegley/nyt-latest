@@ -1,3 +1,7 @@
+**Duke's Khaman Maluach, a projected lottery pick, declares for NBA Draft**\
+`The 7-foot-2 Maluach, who started every game for the Blue Devils this season, is one of the best bigs available in this class.`\
+https://nytimes.com/athletic/6285922/2025/04/27/khaman-maluach-nba-draft-duke/
+
 **Barcelona have taken their first step towards a treble. Can they do it?**\
 `Barcelona could still win three major honours this season — this was a big first step`\
 https://nytimes.com/athletic/6314933/2025/04/27/barcelona-treble-copa-del-rey/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6315042/2025/04/27/chelsea-barcelona-champions-leag
 **'I had to be Alfred': Buddy Hield steps into sidekick role without Jimmy Butler**\
 `"He's huge in the locker room," Draymond Green added of Hield. "He's huge on the plane. Just for the aura of this team, he's big."`\
 https://nytimes.com/athletic/6314236/2025/04/27/buddy-hield-warriors-nba-playoffs-jimmy-butler-injury/
-
-**NHL playoffs daily: Knights, Sens win in OT while Avs shutout Stars**\
-`A look at how Saturday's Game 4 — or if you're a Florida-based team, Game 3 — action went down across the NHL.`\
-https://nytimes.com/athletic/6314341/2025/04/27/nhl-playoffs-game-4-results-takeaways/
 
