@@ -1,3 +1,7 @@
+**NBA playoffs takeaways: Knicks stave off Pistons behind Jalen Brunson's heroics**\
+`Up 3-1, the Knicks can clinch the first-round series with a Game 5 win on Tuesday in New York.`\
+https://nytimes.com/athletic/6315504/2025/04/27/nba-playoffs-knicks-pistons-takeaways/
+
 **Netanyahu Accuses Israel’s Domestic Security Chief of Lying to Court**\
 `Intent on firing the Shin Bet chief, Ronen Bar, Prime Minister Benjamin Netanyahu denounced him in a sharp affidavit, deepening national political divisions.`\
 https://nytimes.com/2025/04/27/world/middleeast/israel-netanyahu-ronen-bar.html

@@ -1,3 +1,7 @@
+**D.E.A. Says More Than 100 Undocumented Immigrants Were Detained in a Colorado Raid**\
+`Officials said agents found weapons and illicit drugs inside the nightclub, including cocaine, methamphetamine and a mixture of powdered drugs known as pink cocaine.`\
+https://nytimes.com/2025/04/27/us/politics/immigrants-colorado-raid-dea.html
+
 **Netanyahu Accuses Israel’s Domestic Security Chief of Lying to Court**\
 `Intent on firing the Shin Bet chief, Ronen Bar, Prime Minister Benjamin Netanyahu denounced him in a sharp affidavit, deepening national political divisions.`\
 https://nytimes.com/2025/04/27/world/middleeast/israel-netanyahu-ronen-bar.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6315702/2025/04/27/blue-jays-kevin-gausman-ejected/
 **Authorities Make Arrest Linked to Noem’s Stolen Purse**\
 `Homeland Security Secretary Kristi Noem’s purse contained her driver’s license, government badge, passport and $3,000 in cash when it was swiped from an upscale burger restaurant.`\
 https://nytimes.com/2025/04/27/us/politics/kristi-noem-purse-theft-arrest.html
-
-**2 American Children Were Sent to Honduras With Their Undocumented Mother**\
-`The children, 4 and 7, were put on a plane with their mother, who was deported. The family’s lawyer said the mother was given no choice but to take her children, which the Trump administration denied.`\
-https://nytimes.com/2025/04/27/us/politics/us-citizen-children-deported-honduras-trump.html
 
