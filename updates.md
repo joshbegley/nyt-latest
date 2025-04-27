@@ -1,3 +1,11 @@
+**How Art Stars Are Made**\
+`We explain how a few big players wield enormous influence in the art world.`\
+https://nytimes.com/2025/04/27/briefing/art-money-hauser-wirth.html
+
+**With Trump-Zelensky Meeting, Ukrainians See a Glimmer of Hope**\
+`The United States has been pushing Ukraine to accept a peace plan that seems in part a gift to Moscow. But the short meeting of the leaders, and subsequent comments, appeared to be a change in tone.`\
+https://nytimes.com/2025/04/27/world/europe/ukraine-trump-zelensky-putin.html
+
 **Wrexham's historic day to remember: Tears, a pitch invasion and previous promotion heroes**\
 `The Welsh club have achieved something no other team have done and they are now one more promotion away from the Premier League`\
 https://nytimes.com/athletic/6304352/2025/04/27/wrexham-promotion-reynolds-mcelhenney/
