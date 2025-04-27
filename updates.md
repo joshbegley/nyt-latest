@@ -1,3 +1,7 @@
+**D.E.A. Says More Than 100 Undocumented Immigrants Were Detained in a Colorado Raid**\
+`Officials said agents found weapons and illicit drugs inside the nightclub, including cocaine, methamphetamine and a mixture of powdered drugs known as pink cocaine.`\
+https://nytimes.com/2025/04/27/us/politics/immigrants-colorado-raid-dea.html
+
 **NBA playoffs takeaways: Knicks stave off Pistons behind Jalen Brunson's heroics**\
 `Up 3-1, the Knicks can clinch the first-round series with a Game 5 win on Tuesday in New York.`\
 https://nytimes.com/athletic/6315504/2025/04/27/nba-playoffs-knicks-pistons-takeaways/
