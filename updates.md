@@ -1,3 +1,7 @@
+**How overly-cautious Aston Villa wasted an opportunity to reach the FA Cup final**\
+`Unai Emery wants controlled football from his side. But did that cede momentum to Crystal Palace at Wembley?`\
+https://nytimes.com/athletic/6309674/2025/04/27/aston-villa-fa-cup-wasted-opportunity/
+
 **Multiple Casualties After Driver Plows Into a Street Festival in Canada**\
 `The ramming episode, at a Filipino-themed block party in Vancouver on Saturday, killed “a number of people,” and injured more, the police said.`\
 https://nytimes.com/2025/04/27/world/asia/vehicle-ramming-vancouver-deaths.html

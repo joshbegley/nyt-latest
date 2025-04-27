@@ -3,7 +3,7 @@
 https://nytimes.com/2025/04/27/world/asia/vehicle-ramming-vancouver-deaths.html
 
 **How overly-cautious Aston Villa wasted an opportunity to reach the FA Cup final**\
-`Unai Emery wants controlled football from his side - but did that cede momentum to Crystal Palace at Wembley?`\
+`Unai Emery wants controlled football from his side. But did that cede momentum to Crystal Palace at Wembley?`\
 https://nytimes.com/athletic/6309674/2025/04/27/aston-villa-fa-cup-wasted-opportunity/
 
 **David Moyes knows what he wants at Everton next season: A ruthless streak**\
