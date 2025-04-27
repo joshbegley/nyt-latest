@@ -1,5 +1,13 @@
+**Mets blow big lead: 3 takeaways from a day of miscues, missed opportunities**\
+`The Mets squandered a 7-1 edge as the Nationals roared back and walked things off with help from a fielding blunder.`\
+https://nytimes.com/athletic/6316162/2025/04/27/mets-nationals-blown-lead-takeways/
+
+**Jalen Brunson was NBA's top clutch player for a reason. In Detroit, he got the last laugh**\
+`At one point Sunday, it was unclear whether Brunson would even finish Game 4. Unfortunately for Detroit, he did.`\
+https://nytimes.com/athletic/6316015/2025/04/27/jalen-brunson-clutch-knicks-pistons-nba/
+
 **Hurricanes take 3-1 series lead vs. Devils, but Frederik Andersen injured in win: Takeaways**\
-`Andrei Svechnikov had a hat trick for Carolina. Game 5 of the teams' first-round series is Tuesday in Raleigh.`\
+`Andrei Svechnikov had a hat trick for Carolina in the 5-2 win. Game 5 of the teams' first-round series is Tuesday in Raleigh.`\
 https://nytimes.com/athletic/6316146/2025/04/27/hurricanes-devils-game-4-nhl-playoffs/
 
 **Dick Barnett, Champion Knick With a Singular Jump Shot, Dies at 88**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/27/briefing/canada-elections-ukraine-russia-talks-po
 **‘Dead Outlaw’ Review: This Bandit Has Mummy Issues**\
 `A truly twisted yarn about a long-lived corpse makes a surprisingly feel-good Broadway musical.`\
 https://nytimes.com/2025/04/27/theater/dead-outlaw-review.html
-
-**Dodgers' Tyler Glasnow leaves second consecutive start with injury**\
-`Glasnow left Sunday's game due to right shoulder discomfort after throwing warmup pitches before the second inning.`\
-https://nytimes.com/athletic/6315927/2025/04/27/dodgers-tyler-glasnow-injury/
-
-**D.E.A. Says More Than 100 Undocumented Immigrants Were Detained in a Colorado Raid**\
-`Officials said agents found weapons and illicit drugs inside the nightclub, including cocaine, methamphetamine and a mixture of powdered drugs known as pink cocaine.`\
-https://nytimes.com/2025/04/27/us/politics/immigrants-colorado-raid-dea.html
 
