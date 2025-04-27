@@ -1,3 +1,7 @@
+**New Details Emerge on Trump Officials’ Sprint to Gut Consumer Bureau Staff**\
+`Emails and testimonials from workers at the Consumer Financial Protection Bureau document the administration’s efforts to lay off 90 percent of the employees.`\
+https://nytimes.com/2025/04/27/business/cfpb-layoffs-trump-musk-doge.html
+
 **Quick Escape**\
 `Sue Fracker dashes off a delightful puzzle.`\
 https://nytimes.com/2025/04/27/crosswords/daily-puzzle-2025-04-28.html
