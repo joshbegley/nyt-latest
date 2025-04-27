@@ -1,3 +1,15 @@
+**Multiple Casualties After Driver Plows Into a Street Festival in Canada**\
+`The ramming episode, at a Filipino-themed block party in Vancouver on Saturday, killed “a number of people,” and injured more, the police said.`\
+https://nytimes.com/2025/04/27/world/asia/vehicle-ramming-vancouver-deaths.html
+
+**How overly-cautious Aston Villa wasted an opportunity to reach the FA Cup final**\
+`Unai Emery wants controlled football from his side - but did that cede momentum to Crystal Palace at Wembley?`\
+https://nytimes.com/athletic/6309674/2025/04/27/aston-villa-fa-cup-wasted-opportunity/
+
+**Oliver Glasner has guided Crystal Palace to the verge of history**\
+`Nothing has been won yet but Palace's manager has established a feeling that they can beat anyone on their day - as Villa discovered`\
+https://nytimes.com/athletic/6303190/2025/04/27/crystal-palace-fa-cup-oliver-glasner/
+
 **Artem Zub's hit on John Tavares and the ripple effect for the Leafs in Game 4**\
 `Tavares' brief injury absence in Game 4 led to Toronto being without its top performer on a critical four-minute power play. 
 `\
