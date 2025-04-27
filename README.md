@@ -1,3 +1,7 @@
+**‘Just in Time’ Review: Jonathan Groff Channels Bobby Darin**\
+`Groff is sensational as the ’60s “nightclub animal” in a Broadway bio-musical jukebox that doesn’t live up to its star.`\
+https://nytimes.com/2025/04/26/theater/just-in-time-review-darin-groff.html
+
 **Quote of the Day: Ohtani’s Interpreter Ends Up as Fodder for ‘The Simpsons’**\
 `Quotation of the Day for Sunday, April 27, 2025.`\
 https://nytimes.com/2025/04/26/pageoneplus/quote-of-the-day-ohtanis-interpreter-ends-up-as-fodder-for-the-simpsons.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6314174/2025/04/26/nuggets-clippers-aaron-gordon-pu
 **2025 NFL Draft player grades for fantasy football**\
 `The 2025 NFL Draft might be done, but the excitement is still bubbling over.`\
 https://nytimes.com/athletic/6290311/2025/04/26/2025-nfl-draft-grades-fantasy-football/
-
-**Broncos 2025 NFL Draft takeaways: Building around Bo Nix with new targets, defensive depth**\
-`A look at the best value pick, the draft's biggest surprise for Denver and the needs that still remain for Sean Payton.`\
-https://nytimes.com/athletic/6312846/2025/04/26/denver-broncos-2025-nfl-draft-picks-takeaways/
 
