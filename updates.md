@@ -1,3 +1,11 @@
+**In winning time, Shai Gilgeous-Alexander was at his best in Thunder's sweep of Grizzlies**\
+`Gilgeous-Alexander scored a game-high 38 points, helping OKC to a second-round date with the winner between the Clippers and Nuggets.`\
+https://nytimes.com/athletic/6314454/2025/04/26/thunder-sweep-grizzlies-shai-gilgeous-alexander/
+
+**Grizzlies must consider Ja Morant's future and everything else after sweep**\
+`Grizzlies general manager Zach Kleiman faces several questions as he looks to restore Memphis' upward trajectory.`\
+https://nytimes.com/athletic/6314308/2025/04/26/memphis-grizzlies-ja-morant-sweep-zach-kleiman/
+
 **With buzzer-beating dunk, Aaron Gordon injects new life into Nuggets' season**\
 `Gordon's putback dunk off Nikola Jokić's final shot didn't just tie the series with the Clippers. It validated Denver's effort in Game 4.`\
 https://nytimes.com/athletic/6314174/2025/04/26/nuggets-clippers-aaron-gordon-putback-dunk/
