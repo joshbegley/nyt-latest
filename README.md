@@ -1,3 +1,11 @@
+**2 American Children Were Sent to Honduras With Their Undocumented Mother**\
+`The children, 4 and 7, were put on a plane with their mother, who was deported. The family’s lawyer said the mother was given no choice but to take her children, which the Trump administration denied.`\
+https://nytimes.com/2025/04/27/us/politics/us-citizen-children-deported-honduras-trump.html
+
+**Titanic Survivor’s Letter, Written Aboard the Ship, Sells for Nearly $400,000**\
+`Col. Archibald Gracie wrote the letter while traveling on the Titanic days before the ship sank and plunged him into the icy North Atlantic.`\
+https://nytimes.com/2025/04/27/world/europe/titanic-survivor-letter-auction.html
+
 **Ancelotti set to leave Real Madrid and join Brazil in June**\
 `The expectation is for Ancelotti to complete the La Liga season and join Brazil in June.`\
 https://nytimes.com/athletic/5943402/2025/04/27/carlo-ancelotti-real-madrid-brazil-future/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6315336/2025/04/27/arsenal-lyon-womens-champions-le
 **The Briefing: Liverpool 5 Tottenham 1 - Spurs hit new low in record-equalling defeat**\
 `Archie Gray and Lucas Bergvall struggle in midfield as Ange Postecoglou's side lose their 19th league game this season`\
 https://nytimes.com/athletic/6311822/2025/04/27/liverpool-5-tottenham-1-premier-league-analysis/
-
-**Paul Maurice responds to Jon Cooper's verbatim postgame message**\
-`Paul Maurice calls Jon Cooper's "chirping" of him "all good" and says that such things are "a lost art." `\
-https://nytimes.com/athletic/6315323/2025/04/27/paul-maurice-responds-jon-coopers-postgame-message/
-
-**Alexis Herman, First Black Secretary of Labor, Dies at 77**\
-`A social worker, she became a Democratic Party insider and joined President Bill Clinton’s cabinet during his second term.`\
-https://nytimes.com/2025/04/27/us/politics/alexis-herman-dead.html
 
