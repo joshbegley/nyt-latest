@@ -14,7 +14,7 @@ https://nytimes.com/2025/04/27/dining/broiled-salmon-recipe.html
 `The world No. 2 became the latest player to take a photo of a ball mark on clay, as tennis reckons with electronic line calling.`\
 https://nytimes.com/athletic/6315135/2025/04/27/tennis-line-calling-clay-zverev-madrid-open/
 
-**Chelsea's quadruple hopes end, system change disaster, Barcelona irrepressible - Briefing**\
+**The Briefing: Chelsea 1 Barcelona 4 (2-8 agg) - Quadruple hopes end, system change disaster, Barcelona irrepressible**\
 `Chelsea are knocked out of the Champions League semi-finals by an impressive Barcelona`\
 https://nytimes.com/athletic/6315042/2025/04/27/chelsea-barcelona-champions-league-semifinals-briefing/
 

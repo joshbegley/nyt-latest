@@ -1,3 +1,7 @@
+**The Briefing: Chelsea 1 Barcelona 4 (2-8 agg) - Quadruple hopes end, system change disaster, Barcelona irrepressible**\
+`Chelsea are knocked out of the Champions League semi-finals by an impressive Barcelona`\
+https://nytimes.com/athletic/6315042/2025/04/27/chelsea-barcelona-champions-league-semifinals-briefing/
+
 **The Briefing: Bournemouth 1 Man Utd 1 - Shaw returns and Semenyo impresses as Hojlund rescues point**\
 `Carl Anka and Anantaajith Raghuraman break down the key talking points from United's trip to the south coast`\
 https://nytimes.com/athletic/6301992/2025/04/27/bournemouth-man-utd-premier-league-analysis/
