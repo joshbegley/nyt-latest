@@ -1,3 +1,11 @@
+**Yankees remove Devin Williams from closer job 'for right now'**\
+`Williams finished each of the previous three seasons with an ERA under 2.00. Through 10 appearances with the Yankees, his ERA is 11.25.`\
+https://nytimes.com/athletic/6315384/2025/04/27/yankees-devin-williams-closer-role/
+
+**NFL investigating prank call to Shedeur Sanders during draft**\
+`The phone Sanders received the call on was specifically purchased for the draft and the number was shared only with the NFL.`\
+https://nytimes.com/athletic/6315261/2025/04/27/nfl-investigation-shedeur-sanders-draft/
+
 **NFL to investigate prank call to Shedeur Sanders' private draft phone: Source**\
 `The phone Sanders received the call on was specifically purchased for the draft and the number was shared only with the NFL.`\
 https://nytimes.com/athletic/6315261/2025/04/27/nfl-investigation-shedeur-sanders-draft/
