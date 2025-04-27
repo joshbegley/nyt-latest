@@ -1,3 +1,7 @@
+**How the Bears used the draft to build competition for Ben Johnson's first season**\
+`The first draft of the Johnson era featured more playmakers on offense and guys with an "edge" to help the Bears build success.`\
+https://nytimes.com/athletic/6314274/2025/04/27/bears-nfl-draft-ben-johnson-competition/
+
 **The Maple Leafs are still in control. They can’t let old demons resurface**\
 `“The past is the past,” said Toronto GM Brad Treliving on the eve of the postseason. “This is a different group.” Now they get to prove it.`\
 https://nytimes.com/athletic/6314579/2025/04/27/maple-leafs-senators-game-4-nhl-playoffs-2025/

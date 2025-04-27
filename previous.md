@@ -1,3 +1,7 @@
+**How the Bears used the draft to build competition for Ben Johnson's first season**\
+`The first draft of the Johnson era featured more playmakers on offense and guys with an "edge" to help the Bears build success.`\
+https://nytimes.com/athletic/6314274/2025/04/27/bears-nfl-draft-ben-johnson-competition/
+
 **The Maple Leafs are still in control. They can’t let old demons resurface**\
 `“The past is the past,” said Toronto GM Brad Treliving on the eve of the postseason. “This is a different group.” Now they get to prove it.`\
 https://nytimes.com/athletic/6314579/2025/04/27/maple-leafs-senators-game-4-nhl-playoffs-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6313930/2025/04/27/senators-leafs-overtime-jake-san
 **Did Shedeur Sanders and the NFL Draft finally break ESPN's Mel Kiper Jr.? Roundtable**\
 `The dominating storyline of the 2025 draft was the status of Sanders, creating dramatic TV moments featuring Kiper.`\
 https://nytimes.com/athletic/6313509/2025/04/27/mel-kiper-jr-espn-nfl-draft-shedeur-sanders-2025/
-
-**The Sunday Read: ‘The Strange, Post-Partisan Popularity of the Unabomber’**\
-`When Ted Kaczynski’s manifesto appeared 30 years ago, the internet was brand-new. Now his dark vision is finding fans who don’t remember life before the iPhone.`\
-https://nytimes.com/2025/04/27/podcasts/the-daily/unabomber-kaczynski-manifesto-tedpilled.html
 
