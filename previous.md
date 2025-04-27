@@ -1,40 +1,40 @@
-**Flick hails Barcelona mentality after Copa win: 'It was the perfect evening'**\
-`Flick remains on course for a treble in his first season as Barca coach, with his side four points clear of Madrid at the top of La Liga.`\
-https://nytimes.com/athletic/6314774/2025/04/27/flick-barcelona-copa-del-rey/
+**5 Takeaways From The Times’s Investigation Into the Jan. 29 Collision at National Airport**\
+`New details show that the failures leading up to the midair collision of a regional jet and an Army helicopter were more complex than previously known.`\
+https://nytimes.com/2025/04/27/us/politics/takeaways-investigation-airport-collision.html
 
-**How Colleges Are Turning Athletes Into Influencers**\
-`The University of North Carolina at Chapel Hill is known for its sports programs, but now it has something else to offer its athletes: an opportunity to become an influencer.`\
-https://nytimes.com/video/business/media/100000010126050/how-colleges-are-turning-athletes-into-influencers.html
+**How These Little Elves Turned Into a Global Sensation**\
+`Online and in person, people are clamoring to get their hands on Labubus, which are dolls that are “well-intentioned” but somewhat mischievous.`\
+https://nytimes.com/2025/04/27/style/labubus-pop-mart-toys.html
 
-**Multiple Casualties After Driver Plows Into a Street Festival in Canada**\
-`The ramming episode, at a Filipino-themed block party in Vancouver on Saturday, killed “a number of people,” and injured more, the police said.`\
-https://nytimes.com/2025/04/27/world/asia/vehicle-ramming-vancouver-deaths.html
+**Why Pope Francis Had a Complicated Relationship With Power**\
+`Jason Horowitz, the Rome bureau chief of The New York Times, looks back at how Pope Francis reshaped the church, despite having a complicated relationship with power.`\
+https://nytimes.com/video/100000010129141/why-pope-francis-had-a-complicated-relationship-with-power.html
 
-**How overly-cautious Aston Villa wasted an opportunity to reach the FA Cup final**\
-`Unai Emery wants controlled football from his side. But did that cede momentum to Crystal Palace at Wembley?`\
-https://nytimes.com/athletic/6309674/2025/04/27/aston-villa-fa-cup-wasted-opportunity/
+**Trump’s Tariffs Prompt Wave of Lawsuits as States and Businesses Fight Back**\
+`The cases are the latest test of the president’s expansive claims of executive power.`\
+https://nytimes.com/2025/04/27/us/politics/trump-tariffs-lawsuits.html
 
-**David Moyes knows what he wants at Everton next season: A ruthless streak**\
-`Saturday's game at Stamford Bridge was another sign that Everton need more quality in attacking areas if they are to compete next season`\
-https://nytimes.com/athletic/6312614/2025/04/27/everton-lack-of-goals-premier-league/
+**With a Bounty on His Head, a Critic of China Runs in Canada’s Election**\
+`After Joe Tay set up a run for Parliament, China issued a warrant for his arrest and coordinated online attacks on his candidacy.`\
+https://nytimes.com/2025/04/27/world/americas/canada-election-china-joe-tay.html
 
-**Taking on Musk, New York Considers Move to Close Tesla Dealerships**\
-`Elon Musk’s alliance with President Trump has prompted Democratic lawmakers to propose stripping Tesla of its ability to sell its cars directly to consumers.`\
-https://nytimes.com/2025/04/27/nyregion/new-york-tesla-dealerships-doge.html
+**Trump’s Tariffs Squeeze an Already Struggling British Car Industry**\
+`The 25 percent levies threaten automakers that are navigating Brexit, a shift to electric vehicles and other obstacles.`\
+https://nytimes.com/2025/04/27/business/trump-tariffs-uk-cars.html
 
-**Old Partners in News Publishing**\
-`Before he founded The New York Times, Henry Jarvis Raymond helped start a predecessor of The Associated Press.`\
-https://nytimes.com/2025/04/27/insider/new-york-times-associated-press.html
+**Missteps, Equipment Problems and a Common but Risky Practice Led to a Fatal Crash**\
+`New details revealed by The Times show that the failures on Jan. 29 before an Army helicopter crashed into a jet near Reagan National Airport were far more complex than previously known.`\
+https://nytimes.com/2025/04/27/business/dc-plane-crash-reagan-airport.html
 
-**‘A Few Steps Into Our Walk, I Heard a Tremendous Thud Behind Me’**\
-`A lucky break in Yorkville, the Met goes to Coney Island and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2025/04/27/nyregion/metropolitan-diary.html
+**Emerging From a Collective Silence, Universities Organize to Fight Trump**\
+`A recent group statement showed that the nation’s academic leaders, at first reluctant to oppose the president’s moves, are beginning to unite.`\
+https://nytimes.com/2025/04/27/us/trump-university-presidents.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/04/27/crosswords/spelling-bee-forum.html
+**China Experience Was Once a Plus. In Canada’s Election, It’s a Liability.**\
+`Mark Carney, who is running to win a full term as prime minister, has years of experience dealing with Chinese businesses and leadership. It’s become fodder for his opponents.`\
+https://nytimes.com/2025/04/27/world/canada/canada-election-mark-carney-china.html
 
-**Braves' new hitting coach knew the slug would come. It has, and it's been needed**\
-`Tim Hyers remained calm when Atlanta's offense struggled at the start. He's still calm as the Braves are lighting up the scoreboard.`\
-https://nytimes.com/athletic/6314608/2025/04/27/atlanta-braves-hitting-coach-home-runs-diamondbacks/
+**A Lengthy Legal Battle in North Carolina Could Show How to Flip an Election**\
+`Even as Republicans suffer setbacks in their fight to overturn a loss in a State Supreme Court race, judges have shown a striking willingness to entertain the long-shot challenges.`\
+https://nytimes.com/2025/04/27/us/politics/north-carolina-supreme-court-election.html
 
