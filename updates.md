@@ -1,3 +1,7 @@
+**Rockets' biggest playoff fears realized in Game 3 loss to Warriors**\
+`Led by Steph Curry, the Warriors took a 2-1 series lead over the Rockets thanks to a 104-93 win in Game 3 of their first-round series.`\
+https://nytimes.com/athletic/6314687/2025/04/27/warriors-rockets-nba-playoffs-curry/
+
 **Thompson: Steph Curry, from 'a galaxy nobody can touch,' lifts Warriors with stellar Game 3**\
 `With Jimmy Butler out, the burden fell to Steph Curry to carry the Warriors in Game 3. And he did what he's done so many times before.`\
 https://nytimes.com/athletic/6314951/2025/04/27/steph-curry-warriors-rockets-game-3-playoffs/
