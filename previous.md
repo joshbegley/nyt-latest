@@ -1,3 +1,7 @@
+**Oliver Glasner has guided Crystal Palace to the verge of history**\
+`Nothing has been won yet but Palace's manager has established a feeling that they can beat anyone on their day — as Villa discovered`\
+https://nytimes.com/athletic/6303190/2025/04/27/crystal-palace-fa-cup-oliver-glasner/
+
 **Choose your PTSD: Clippers trade one flashback for a worse one in a split second**\
 `"This is what we want," Norman Powell said. "No team willing to give an inch, no team willing to back down."`\
 https://nytimes.com/athletic/6314516/2025/04/27/clippers-nuggets-nba-playoffs-game-4/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6314417/2025/04/27/avalanche-stars-nhl-playoffs-202
 **Diamondbacks' Eugenio Suárez hits 4 home runs in loss to Braves**\
 `Suárez became the second player in MLB history to hit four homers in a game his team lost.`\
 https://nytimes.com/athletic/6314427/2025/04/27/diamondbacks-eugenio-suarez-four-home-runs/
-
-**Washington’s Besieged Journalists Raise a Cocktail Glass, Darkly**\
-`The annual weekend celebrating America’s free press went forward, even as the Trump administration chips away at press freedoms.`\
-https://nytimes.com/2025/04/27/business/media/white-house-correspondents-dinner.html
 
