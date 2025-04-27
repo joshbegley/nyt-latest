@@ -1,3 +1,7 @@
+**Ancelotti set to leave Real Madrid and join Brazil in June**\
+`The expectation is for Ancelotti to complete the La Liga season and join Brazil in June.`\
+https://nytimes.com/athletic/5943402/2025/04/27/carlo-ancelotti-real-madrid-brazil-future/
+
 **Israeli Military Strikes Near Beirut, Saying Hezbollah Was the Target**\
 `The attack raised concerns that the cease-fire that ended a war between Israeli and Lebanese militants might be in jeopardy.`\
 https://nytimes.com/2025/04/27/world/middleeast/israel-strike-beirut-hezbollah.html
@@ -8,7 +12,7 @@ https://nytimes.com/athletic/6315343/2025/04/27/liege-bastogne-liege-cycling-ana
 
 **Jiggly Caliente, ‘RuPaul Drag Race’ Star and Judge, Dies at 44**\
 `Fans knew Ms. Caliente for her sense of humor, vigorous dance skills and interactions with fellow cast members on the popular drag television show.`\
-https://nytimes.com/2025/04/27/arts/television/jiggly-caliente-ru-paul-drags-race-dead.html
+https://nytimes.com/2025/04/27/arts/television/jiggly-caliente-rupaul-drag-race-dead.html
 
 **The Upper Midwest Is in the Bull’s-Eye of a Severe Weather Threat on Monday**\
 `“It’s not very often that we see this,” one National Weather Service forecaster said of the risk level being predicted for parts of Iowa, Minnesota and Wisconsin.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6315323/2025/04/27/paul-maurice-responds-jon-cooper
 **Alexis Herman, First Black Secretary of Labor, Dies at 77**\
 `A social worker, she became a Democratic Party insider and joined President Bill Clinton’s cabinet during his second term.`\
 https://nytimes.com/2025/04/27/us/politics/alexis-herman-dead.html
-
-**Liverpool win Premier League title in Arne Slot's debut season**\
-`The triumph for Liverpool secures the club's 20th English league title, bringing them level with Manchester United`\
-https://nytimes.com/athletic/6301280/2025/04/27/liverpool-premier-league-title-champions/
 
