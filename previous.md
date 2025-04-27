@@ -1,3 +1,7 @@
+**2025 NFL Draft player grades for fantasy football**\
+`The 2025 NFL Draft might be done, but the excitement is still bubbling over.`\
+https://nytimes.com/athletic/6290311/2025/04/26/2025-nfl-draft-grades-fantasy-football/
+
 **Broncos 2025 NFL Draft takeaways: Building around Bo Nix with new targets, defensive depth**\
 `A look at the best value pick, the draft's biggest surprise for Denver and the needs that still remain for Sean Payton.`\
 https://nytimes.com/athletic/6312846/2025/04/26/denver-broncos-2025-nfl-draft-picks-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6313895/2025/04/26/nuggets-clippers-second-quarter-
 **The 2025 NFL Draft's Mr. Irrelevant: Who is Kobee Minor?**\
 `The final pick of the three-day marathon, No. 257, will have a whole week of celebration in his honor.`\
 https://nytimes.com/athletic/6287733/2025/04/26/mr-irrelevant-nfl-draft-patriots/
-
-**Ex-Disney Worker Who Hacked Menus Gets 3 Years in Prison**\
-`The fired employee admitted that he changed prices, added profanity, and altered menu items so they appeared to be free of certain allergens.`\
-https://nytimes.com/2025/04/26/us/disney-worker-prison-hacking.html
 

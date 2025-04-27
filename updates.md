@@ -1,3 +1,7 @@
+**2025 NFL Draft player grades for fantasy football**\
+`The 2025 NFL Draft might be done, but the excitement is still bubbling over.`\
+https://nytimes.com/athletic/6290311/2025/04/26/2025-nfl-draft-grades-fantasy-football/
+
 **2025 Kentucky Derby post positions: Favorite Journalism draws No. 8**\
 `The lineup of horses competing in the first leg of the Triple Crown will enter the gates next Saturday.`\
 https://nytimes.com/athletic/6313745/2025/04/26/kentucky-derby-post-draw-odds/
