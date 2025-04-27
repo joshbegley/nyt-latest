@@ -1,3 +1,7 @@
+**Hurricanes goalie Frederik Andersen leaves Game 4 after collision with Devils' Timo Meier**\
+`Officials originally gave Meier a five-minute major penalty for the play, but after video review, it was deemed there was no penalty.`\
+https://nytimes.com/athletic/6315995/2025/04/27/andersen-meier-collision-hurricanes-devils-nhl-playoffs/
+
 **Monday Briefing: Canada Is Electing a New Leader**\
 `Plus, when a child’s life is the family business.`\
 https://nytimes.com/2025/04/27/briefing/canada-elections-ukraine-russia-talks-pope-funeral.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6315737/2025/04/27/flyers-coach-update-shaw/
 **Valentin-Yves Mudimbe, 83, Dies; African Scholar Challenged the West**\
 `He deconstructed what he called “the colonial library”: the accounts of Africa by Europeans whose aim, he said, was to further colonialism.`\
 https://nytimes.com/2025/04/27/world/africa/valentin-yves-mudimbe-dead.html
-
-**Zurab Tsereteli, Polarizing Russian Sculptor of Colossal Works, Dies at 91**\
-`In bronze, he glorified figures like Peter the Great and Vladimir Putin, often to the public’s distaste. Some works, like a giant Columbus and a 9/11 memorial, were reviled.`\
-https://nytimes.com/2025/04/27/world/europe/zurab-tsereteli-dead.html
 

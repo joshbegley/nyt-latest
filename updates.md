@@ -1,3 +1,7 @@
+**Hurricanes goalie Frederik Andersen leaves Game 4 after collision with Devils' Timo Meier**\
+`Officials originally gave Meier a five-minute major penalty for the play, but after video review, it was deemed there was no penalty.`\
+https://nytimes.com/athletic/6315995/2025/04/27/andersen-meier-collision-hurricanes-devils-nhl-playoffs/
+
 **Monday Briefing: Canada Is Electing a New Leader**\
 `Plus, when a child’s life is the family business.`\
 https://nytimes.com/2025/04/27/briefing/canada-elections-ukraine-russia-talks-pope-funeral.html
