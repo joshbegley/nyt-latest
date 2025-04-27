@@ -1,3 +1,11 @@
+**Washington State Lawmakers Vote to Limit Rent Increases**\
+`Supporters say an annual cap of 10 percent, including inflation, will protect tenants. Critics worry it will reduce housing supply and discourage investors.`\
+https://nytimes.com/2025/04/27/us/rent-increase-washington-state.html
+
+**Knicks stave off Pistons for 3-1 series lead behind Brunson's heroics**\
+`Up 3-1, the Knicks can clinch the first-round series with a Game 5 win on Tuesday in New York.`\
+https://nytimes.com/athletic/6315504/2025/04/27/nba-playoffs-knicks-pistons-takeaways/
+
 **What I'm hearing about the Flyers' coaching search and recent changes**\
 `It's notable that interim coach Brad Shaw was not let go this week with three assistant coaches.`\
 https://nytimes.com/athletic/6315737/2025/04/27/flyers-coach-update-shaw/
