@@ -1,3 +1,28 @@
+**David Moyes knows what he wants at Everton next season: A ruthless streak**\
+`Saturday's game at Stamford Bridge was another sign that Everton need more quality in attacking areas if they are to compete next season`\
+https://nytimes.com/athletic/6312614/2025/04/27/everton-lack-of-goals-premier-league/
+
+**Taking on Musk, New York Considers Move to Close Tesla Dealerships**\
+`Elon Musk’s alliance with President Trump has prompted Democratic lawmakers to propose stripping Tesla of its ability to sell its cars directly to consumers.`\
+https://nytimes.com/2025/04/27/nyregion/new-york-tesla-dealerships-doge.html
+
+**Old Partners in News Publishing**\
+`Before he founded The New York Times, Henry Jarvis Raymond helped start a predecessor of The Associated Press.`\
+https://nytimes.com/2025/04/27/insider/new-york-times-associated-press.html
+
+**‘A Few Steps Into Our Walk, I Heard a Tremendous Thud Behind Me’**\
+`A lucky break in Yorkville, the Met goes to Coney Island and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2025/04/27/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/04/27/crosswords/spelling-bee-forum.html
+
+**Artem Zub's hit on John Tavares and the ripple effect for the Leafs in Game 4**\
+`Tavares' brief injury absence in Game 4 led to Toronto being without its top performer on a critical four-minute power play. 
+`\
+https://nytimes.com/athletic/6314587/2025/04/27/maple-leafs-john-tavares-injury-nhl-playoffs/
+
 **Artem Zub's hit on John Tavares and the ripple effect for the Leafs in Game 4**\
 `Tavares' brief injury absence in Game 4 led to Toronto being without its top performer on a critical four-minute power play. 
 `\
