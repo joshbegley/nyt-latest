@@ -1,3 +1,7 @@
+**Arsenal reach first Women's Champions League final since 2007 after win vs Lyon**\
+`Arsenal will play Barcelona in May's final.`\
+https://nytimes.com/athletic/6315336/2025/04/27/arsenal-lyon-womens-champions-league-final/
+
 **The Briefing: Liverpool 5 Tottenham 1 - Spurs hit new low in record-equalling defeat**\
 `Archie Gray and Lucas Bergvall struggle in midfield as Ange Postecoglou's side lose their 19th league game this season`\
 https://nytimes.com/athletic/6311822/2025/04/27/liverpool-5-tottenham-1-premier-league-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6312100/2025/04/27/blue-jackets-nhl-awards-zach-wer
 **Yankees remove Devin Williams from closer job 'for right now'**\
 `Williams finished each of the previous three seasons with an ERA under 2.00. Through 10 appearances with the Yankees, his ERA is 11.25.`\
 https://nytimes.com/athletic/6315384/2025/04/27/yankees-devin-williams-closer-role/
-
-**NFL investigating prank call to Shedeur Sanders during draft**\
-`The phone Sanders received the call on was specifically purchased for the draft and the number was shared only with the NFL.`\
-https://nytimes.com/athletic/6315261/2025/04/27/nfl-investigation-shedeur-sanders-draft/
 
