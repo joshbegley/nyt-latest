@@ -1,4 +1,4 @@
-**Senators stay alive as Jake Sanderson strikes in OT: Game 4 takeaways**\
+**Senators stay alive as Jake Sanderson sinks Leafs in OT: Game 4 takeaways**\
 `Leafs fail to close out the Senators in 4-3 OT loss as the series shifts back to Toronto. `\
 https://nytimes.com/athletic/6313709/2025/04/26/leafs-senators-takeaways-game-4-nhl-playoffs/
 
