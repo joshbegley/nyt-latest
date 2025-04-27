@@ -1,3 +1,7 @@
+**Beat writers’ favorite 2025 NFL Draft picks: Cam Skattebo, Colston Loveland and 30 more players**\
+`The Bears got an elite weapon for their offense in Loveland, and Skattebo should be a Giants fan favorite. Who else appealed to our writers?`\
+https://nytimes.com/athletic/6314993/2025/04/27/nfl-draft-2025-favorite-picks/
+
 **Rubio Says Trump Will Decide This Week on Continuing Ukraine War Talks**\
 `Secretary of State Marco Rubio said there are reasons to be optimistic, but also asserted there are “other issues” on which the administration wants to spend its energy.`\
 https://nytimes.com/2025/04/27/us/politics/trump-ukraine-rubio-zelensky-putin.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/27/dining/broiled-salmon-recipe.html
 **Alexander Zverev adds to clay line-calling furore during Madrid Open win**\
 `The world No. 2 became the latest player to take a photo of a ball mark on clay, as tennis reckons with electronic line calling.`\
 https://nytimes.com/athletic/6315135/2025/04/27/tennis-line-calling-clay-zverev-madrid-open/
-
-**The Briefing: Chelsea 1 Barcelona 4 (2-8 agg) - Quadruple hopes end, system change disaster, Barcelona irrepressible**\
-`Chelsea have been knocked out of the Champions League semi-finals following another defeat at the hands of Barcelona`\
-https://nytimes.com/athletic/6315042/2025/04/27/chelsea-barcelona-champions-league-semifinals-briefing/
 

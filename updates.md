@@ -1,3 +1,7 @@
+**Beat writers’ favorite 2025 NFL Draft picks: Cam Skattebo, Colston Loveland and 30 more players**\
+`The Bears got an elite weapon for their offense in Loveland, and Skattebo should be a Giants fan favorite. Who else appealed to our writers?`\
+https://nytimes.com/athletic/6314993/2025/04/27/nfl-draft-2025-favorite-picks/
+
 **Rubio Says Trump Will Decide This Week on Continuing Ukraine War Talks**\
 `Secretary of State Marco Rubio said there are reasons to be optimistic, but also asserted there are “other issues” on which the administration wants to spend its energy.`\
 https://nytimes.com/2025/04/27/us/politics/trump-ukraine-rubio-zelensky-putin.html

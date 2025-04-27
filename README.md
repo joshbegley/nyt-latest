@@ -1,3 +1,7 @@
+**Capitals' Thompson to be game-time decision; Habs' Montembeault out**\
+`While both goalies left Game 3 due to injury, only Logan Thompson has a chance to play in Sunday's Game 4.`\
+https://nytimes.com/athletic/6315284/2025/04/27/capitals-canadiens-thompson-montembeault-injury/
+
 **Beat writers’ favorite 2025 NFL Draft picks: Cam Skattebo, Colston Loveland and 30 more players**\
 `The Bears got an elite weapon for their offense in Loveland, and Skattebo should be a Giants fan favorite. Who else appealed to our writers?`\
 https://nytimes.com/athletic/6314993/2025/04/27/nfl-draft-2025-favorite-picks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6315216/2025/04/27/nfl-draft-2025-attendance-green-
 **Be Friends With Your Broiler**\
 `So you can make broiled salmon with asparagus and herbs, a superb spring Sunday supper.`\
 https://nytimes.com/2025/04/27/dining/broiled-salmon-recipe.html
-
-**Alexander Zverev adds to clay line-calling furore during Madrid Open win**\
-`The world No. 2 became the latest player to take a photo of a ball mark on clay, as tennis reckons with electronic line calling.`\
-https://nytimes.com/athletic/6315135/2025/04/27/tennis-line-calling-clay-zverev-madrid-open/
 
