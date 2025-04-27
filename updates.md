@@ -1,3 +1,15 @@
+**Barcelona have taken their first step towards a treble. Can they do it?**\
+`Barcelona could still win three major honours this season — this was a big first step`\
+https://nytimes.com/athletic/6314933/2025/04/27/barcelona-treble-copa-del-rey/
+
+**Medicine Spares Cancer Patients From Grisly Surgeries and Harsh Therapies**\
+`For a limited group of cancer patients who have solid tumors in the stomach, rectum, esophagus and other organs, an immunotherapy trial offered stunning results.`\
+https://nytimes.com/2025/04/27/health/cancer-immunotherapy-solid-tumors.html
+
+**British Paralympian reported missing in Las Vegas**\
+`Ruddock, 35, was last heard from on April 16.`\
+https://nytimes.com/athletic/6315259/2025/04/27/british-paralympian-sam-ruddock-missing-las-vegas/
+
 **The Briefing: Bournemouth 1 Man United 1 – Shaw returns and Semenyo impresses as Hojlund rescues point**\
 `Carl Anka and Anantaajith Raghuraman break down the key talking points from United's trip to the south coast`\
 https://nytimes.com/athletic/6301992/2025/04/27/bournemouth-man-utd-premier-league-analysis/

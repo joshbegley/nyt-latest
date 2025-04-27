@@ -1,3 +1,15 @@
+**Barcelona have taken their first step towards a treble. Can they do it?**\
+`Barcelona could still win three major honours this season — this was a big first step`\
+https://nytimes.com/athletic/6314933/2025/04/27/barcelona-treble-copa-del-rey/
+
+**Medicine Spares Cancer Patients From Grisly Surgeries and Harsh Therapies**\
+`For a limited group of cancer patients who have solid tumors in the stomach, rectum, esophagus and other organs, an immunotherapy trial offered stunning results.`\
+https://nytimes.com/2025/04/27/health/cancer-immunotherapy-solid-tumors.html
+
+**British Paralympian reported missing in Las Vegas**\
+`Ruddock, 35, was last heard from on April 16.`\
+https://nytimes.com/athletic/6315259/2025/04/27/british-paralympian-sam-ruddock-missing-las-vegas/
+
 **The Briefing: Bournemouth 1 Man United 1 – Shaw returns and Semenyo impresses as Hojlund rescues point**\
 `Carl Anka and Anantaajith Raghuraman break down the key talking points from United's trip to the south coast`\
 https://nytimes.com/athletic/6301992/2025/04/27/bournemouth-man-utd-premier-league-analysis/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6314236/2025/04/27/buddy-hield-warriors-nba-playoff
 **NHL playoffs daily: Knights, Sens win in OT while Avs shutout Stars**\
 `A look at how Saturday's Game 4 — or if you're a Florida-based team, Game 3 — action went down across the NHL.`\
 https://nytimes.com/athletic/6314341/2025/04/27/nhl-playoffs-game-4-results-takeaways/
-
-**Rockets' biggest playoff fears realized in Game 3 loss to Warriors**\
-`Led by Steph Curry, the Warriors took a 2-1 series lead over the Rockets thanks to a 104-93 win in Game 3 of their first-round series.`\
-https://nytimes.com/athletic/6314687/2025/04/27/warriors-rockets-nba-playoffs-curry/
-
-**Thompson: Steph Curry, from 'a galaxy nobody can touch,' lifts Warriors with stellar Game 3**\
-`With Jimmy Butler out, the burden fell to Steph Curry to carry the Warriors in Game 3. And he did what he's done so many times before.`\
-https://nytimes.com/athletic/6314951/2025/04/27/steph-curry-warriors-rockets-game-3-playoffs/
-
-**Crystal Palace relegated from Women's Super League**\
-`Palace have won just two of their 20 WSL matches this term and are relegated after just one season in the top flight.`\
-https://nytimes.com/athletic/6301869/2025/04/27/crystal-palace-relegated-wsl/
 
