@@ -1,3 +1,7 @@
+**Flick hails Barcelona mentality after Copa win: 'It was the perfect evening'**\
+`Flick remains on course for a treble in his first season as Barca coach, with his side four points clear of Madrid at the top of La Liga.`\
+https://nytimes.com/athletic/6314774/2025/04/27/flick-barcelona-copa-del-rey/
+
 **How Colleges Are Turning Athletes Into Influencers**\
 `The University of North Carolina at Chapel Hill is known for its sports programs, but now it has something else to offer its athletes: an opportunity to become an influencer.`\
 https://nytimes.com/video/business/media/100000010126050/how-colleges-are-turning-athletes-into-influencers.html
