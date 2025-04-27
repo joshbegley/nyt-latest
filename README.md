@@ -1,3 +1,7 @@
+**India Seems to Be Building Its Case for Striking Pakistan**\
+`As world powers face multiple crises, the one set off by a terror attack in Kashmir is getting scant attention, and little help de-escalating between two nuclear-armed neighbors.`\
+https://nytimes.com/2025/04/27/world/asia/india-pakistan-kashmir.html
+
 **Avalanche demolish Stars to even series, Gabriel Landeskog scores: Takeaways**\
 `Mackenzie Blackwood earned a shutout and Landeskog scored his first NHL goal in nearly three years as Colorado defeated Dallas 4-0.`\
 https://nytimes.com/athletic/6314417/2025/04/27/avalanche-stars-nhl-playoffs-2025-game-4-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6312976/2025/04/27/jack-wilshere-norwich-management
 **Premier League meets NBA awards: What if football had Rookie of the Year and more?**\
 `What if the Premier League's end-of-season awards were the same as the NBA's? Chris Wood, Liam Delap and Jhon Duran would be in the mix`\
 https://nytimes.com/athletic/6305043/2025/04/27/premier-league-awards-nba-style/
-
-**Explained: How, why and when Liverpool will win the 2024-25 Premier League**\
-`A draw against Tottenham on Sunday will secure the club's 20th league title, though they will have to wait to get their hands on the trophy`\
-https://nytimes.com/athletic/6304719/2025/04/27/liverpool-title-slot-premier-league-when/
 
