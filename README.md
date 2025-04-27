@@ -1,4 +1,8 @@
-**NFL to investigate prank call to Shedeur Sanders' private draft phone: Source**\
+**Yankees remove Devin Williams from closer job 'for right now'**\
+`Williams finished each of the previous three seasons with an ERA under 2.00. Through 10 appearances with the Yankees, his ERA is 11.25.`\
+https://nytimes.com/athletic/6315384/2025/04/27/yankees-devin-williams-closer-role/
+
+**NFL investigating prank call to Shedeur Sanders during draft**\
 `The phone Sanders received the call on was specifically purchased for the draft and the number was shared only with the NFL.`\
 https://nytimes.com/athletic/6315261/2025/04/27/nfl-investigation-shedeur-sanders-draft/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6315259/2025/04/27/british-paralympian-sam-ruddock-
 **The Briefing: Bournemouth 1 Man United 1 – Shaw returns and Semenyo impresses as Hojlund rescues point**\
 `Carl Anka and Anantaajith Raghuraman break down the key talking points from United's trip to the south coast`\
 https://nytimes.com/athletic/6301992/2025/04/27/bournemouth-man-utd-premier-league-analysis/
-
-**2025 NFL Draft attendance totals 600,000 in Green Bay over three days**\
-`The draft tied Nashville for the second-highest attendance, roughly more than seven times what a Packers home game does.`\
-https://nytimes.com/athletic/6315216/2025/04/27/nfl-draft-2025-attendance-green-bay/
 

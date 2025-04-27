@@ -1,3 +1,7 @@
+**NFL to investigate prank call to Shedeur Sanders' private draft phone: Source**\
+`The phone Sanders received the call on was specifically purchased for the draft and the number was shared only with the NFL.`\
+https://nytimes.com/athletic/6315261/2025/04/27/nfl-investigation-shedeur-sanders-draft/
+
 **NFL to investigate Shedeur Sanders prank call to private draft phone: Source**\
 `The phone Sanders received the call on was specifically purchased for the draft and the number was only shared internally.`\
 https://nytimes.com/athletic/6315261/2025/04/27/nfl-investigation-shedeur-sanders-draft/
