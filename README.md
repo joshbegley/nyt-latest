@@ -1,3 +1,7 @@
+**Flick hails Barcelona mentality after Copa win: 'It was the perfect evening'**\
+`Flick remains on course for a treble in his first season as Barca coach, with his side four points clear of Madrid at the top of La Liga.`\
+https://nytimes.com/athletic/6314774/2025/04/27/flick-barcelona-copa-del-rey/
+
 **How Colleges Are Turning Athletes Into Influencers**\
 `The University of North Carolina at Chapel Hill is known for its sports programs, but now it has something else to offer its athletes: an opportunity to become an influencer.`\
 https://nytimes.com/video/business/media/100000010126050/how-colleges-are-turning-athletes-into-influencers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/27/crosswords/spelling-bee-forum.html
 **Braves' new hitting coach knew the slug would come. It has, and it's been needed**\
 `Tim Hyers remained calm when Atlanta's offense struggled at the start. He's still calm as the Braves are lighting up the scoreboard.`\
 https://nytimes.com/athletic/6314608/2025/04/27/atlanta-braves-hitting-coach-home-runs-diamondbacks/
-
-**Oliver Glasner has guided Crystal Palace to the verge of history**\
-`Nothing has been won yet but Palace's manager has established a feeling that they can beat anyone on their day - as Villa discovered`\
-https://nytimes.com/athletic/6303190/2025/04/27/crystal-palace-fa-cup-oliver-glasner/
 
