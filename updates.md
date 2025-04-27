@@ -1,3 +1,7 @@
+**Quote of the Day: Ohtani’s Interpreter Ends Up as Fodder for ‘The Simpsons’**\
+`Quotation of the Day for Sunday, April 27, 2025.`\
+https://nytimes.com/2025/04/26/pageoneplus/quote-of-the-day-ohtanis-interpreter-ends-up-as-fodder-for-the-simpsons.html
+
 **Giants celebrate Brandon Crawford, walk off in the ninth**\
 `Crawford started the day with a speech, then the Giants capped the afternoon with their fourth walk-off win.`\
 https://nytimes.com/athletic/6313016/2025/04/26/sf-giants-brandon-crawford-celebration-walk-off-win/

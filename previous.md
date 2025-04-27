@@ -1,3 +1,7 @@
+**Quote of the Day: Ohtani’s Interpreter Ends Up as Fodder for ‘The Simpsons’**\
+`Quotation of the Day for Sunday, April 27, 2025.`\
+https://nytimes.com/2025/04/26/pageoneplus/quote-of-the-day-ohtanis-interpreter-ends-up-as-fodder-for-the-simpsons.html
+
 **Giants celebrate Brandon Crawford, walk off in the ninth**\
 `Crawford started the day with a speech, then the Giants capped the afternoon with their fourth walk-off win.`\
 https://nytimes.com/athletic/6313016/2025/04/26/sf-giants-brandon-crawford-celebration-walk-off-win/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6290311/2025/04/26/2025-nfl-draft-grades-fantasy-fo
 **Broncos 2025 NFL Draft takeaways: Building around Bo Nix with new targets, defensive depth**\
 `A look at the best value pick, the draft's biggest surprise for Denver and the needs that still remain for Sean Payton.`\
 https://nytimes.com/athletic/6312846/2025/04/26/denver-broncos-2025-nfl-draft-picks-takeaways/
-
-**2025 NFL Draft most memorable moments: Emotional reactions, best interviews**\
-`Relive the best, funniest and most emotional moments of the 2025 NFL Draft in Green Bay. `\
-https://nytimes.com/athletic/6312659/2025/04/26/2025-nfl-draft-most-memorable-moments-emotional-reactions-best-interviews/
 
