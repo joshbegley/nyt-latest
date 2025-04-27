@@ -1,3 +1,8 @@
+**Artem Zub's hit on John Tavares and the ripple effect for the Leafs in Game 4**\
+`Tavares' brief injury absence in Game 4 led to Toronto being without its top performer on a critical four-minute power play. 
+`\
+https://nytimes.com/athletic/6314587/2025/04/27/maple-leafs-john-tavares-injury-nhl-playoffs/
+
 **David Moyes knows what he wants at Everton next season: A ruthless streak**\
 `Saturday's game at Stamford Bridge was another sign that Everton need more quality in attacking areas if they are to compete next season`\
 https://nytimes.com/athletic/6312614/2025/04/27/everton-lack-of-goals-premier-league/
