@@ -1,3 +1,7 @@
+**Dodgers' Tyler Glasnow leaves second consecutive start with injury**\
+`Glasnow left Sunday's game due to right shoulder discomfort after throwing warmup pitches before the second inning.`\
+https://nytimes.com/athletic/6315927/2025/04/27/dodgers-tyler-glasnow-injury/
+
 **D.E.A. Says More Than 100 Undocumented Immigrants Were Detained in a Colorado Raid**\
 `Officials said agents found weapons and illicit drugs inside the nightclub, including cocaine, methamphetamine and a mixture of powdered drugs known as pink cocaine.`\
 https://nytimes.com/2025/04/27/us/politics/immigrants-colorado-raid-dea.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6315725/2025/04/27/nhl-playoffs-blues-jets-game-4/
 **Blue Jays' Kevin Gausman throws 53 pitches in an inning before being ejected**\
 `Gausman's marathon third inning matched the previous high for a Blue Jays pitcher, set in 1998 by Woody Williams.`\
 https://nytimes.com/athletic/6315702/2025/04/27/blue-jays-kevin-gausman-ejected/
-
-**Authorities Make Arrest Linked to Noem’s Stolen Purse**\
-`Homeland Security Secretary Kristi Noem’s purse contained her driver’s license, government badge, passport and $3,000 in cash when it was swiped from an upscale burger restaurant.`\
-https://nytimes.com/2025/04/27/us/politics/kristi-noem-purse-theft-arrest.html
 
