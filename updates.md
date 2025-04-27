@@ -1,3 +1,23 @@
+**The Briefing: Bournemouth 1 Man Utd 1 - Shaw returns and Semenyo impresses as Hojlund rescues point**\
+`Carl Anka and Anantaajith Raghuraman break down the key talking points from United's trip to the south coast`\
+https://nytimes.com/athletic/6301992/2025/04/27/bournemouth-man-utd-premier-league-analysis/
+
+**2025 NFL Draft attendance totals 600,000 in Green Bay over three days**\
+`The draft tied Nashville for the second-highest attendance, roughly more than seven times what a Packers home game does.`\
+https://nytimes.com/athletic/6315216/2025/04/27/nfl-draft-2025-attendance-green-bay/
+
+**Be Friends With Your Broiler**\
+`So you can make broiled salmon with asparagus and herbs, a superb spring Sunday supper.`\
+https://nytimes.com/2025/04/27/dining/broiled-salmon-recipe.html
+
+**Alexander Zverev adds to clay line-calling furore during Madrid Open win**\
+`The world No. 2 became the latest player to take a photo of a ball mark on clay, as tennis reckons with electronic line calling.`\
+https://nytimes.com/athletic/6315135/2025/04/27/tennis-line-calling-clay-zverev-madrid-open/
+
+**Chelsea's quadruple hopes end, system change disaster, Barcelona irrepressible - Briefing**\
+`Chelsea are knocked out of the Champions League semi-finals by an impressive Barcelona`\
+https://nytimes.com/athletic/6315042/2025/04/27/chelsea-barcelona-champions-league-semifinals-briefing/
+
 **Trump Administration Live Updates: Bessent Defends Approach to Tariffs as ‘Strategic Uncertainty’**\
 ``\
 https://nytimes.com/live/2025/04/27/us/trump-news
