@@ -18,6 +18,11 @@ https://nytimes.com/athletic/6314587/2025/04/27/maple-leafs-john-tavares-injury-
 `\
 https://nytimes.com/athletic/6314587/2025/04/27/maple-leafs-john-tavares-injury-nhl-playoffs/
 
+**Artem Zub's hit on John Tavares and the ripple effect for the Leafs in Game 4**\
+`Tavares' brief injury absence in Game 4 led to Toronto being without its top performer on a critical four-minute power play. 
+`\
+https://nytimes.com/athletic/6314587/2025/04/27/maple-leafs-john-tavares-injury-nhl-playoffs/
+
 **Braves' new hitting coach knew the slug would come. It has, and it's been needed**\
 `Tim Hyers remained calm when Atlanta's offense struggled at the start. He's still calm as the Braves are lighting up the scoreboard.`\
 https://nytimes.com/athletic/6314608/2025/04/27/atlanta-braves-hitting-coach-home-runs-diamondbacks/
