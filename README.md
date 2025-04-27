@@ -30,7 +30,7 @@ https://nytimes.com/2025/04/27/world/asia/pakistan-afghanistan-militants.html
 `Manchester City reached the FA Cup final with a 2-0 win over Nottingham Forest on Sunday`\
 https://nytimes.com/athletic/6309564/2025/04/27/nottingham-forest-manchester-city-result-report-analysis-score/
 
-**Bessent Does Not Back Up Trump’s Claim of Trade Talks With China’s Xi**\
+**Bessent Demurs on Trump’s Claim of Trade Talks With China’s Xi**\
 `The Treasury secretary said that the President Trump and Xi Jinping of China have a good relationship but that he was not aware of a call, which Mr. Trump had alluded to last week.`\
 https://nytimes.com/2025/04/27/us/politics/bessent-trump-xi-tariffs.html
 
