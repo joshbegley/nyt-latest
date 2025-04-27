@@ -1,3 +1,7 @@
+**Cardinals 2025 NFL Draft takeaways: Building a dominant defense one pick at a time**\
+`Over the last three days, Arizona positioned itself for an immediate defensive upgrade.`\
+https://nytimes.com/athletic/6313061/2025/04/27/arizona-cardinals-2025-nfl-draft-picks-takeaways/
+
 **Artem Zub's hit on John Tavares and the ripple effect for the Leafs in Game 4**\
 `Tavares' brief injury absence in Game 4 led to Toronto being without its top performer on a critical four-minute power play. 
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/2025/04/27/business/media/white-house-correspondents-dinner.
 **Wendie Renard on her career so far: 'It’s an adventure which starts with these players'**\
 `On the brink of her 500th club appearance and with the Euros looming, France captain Renard takes The Athletic on a walk down memory lane`\
 https://nytimes.com/athletic/6272256/2025/04/27/wendie-renard-interview-lyon/
-
-**Is Enzo Maresca's tactical approach exacerbating Cole Palmer's goalless streak?**\
-`The Chelsea player's worrying run without a goal now extends to 17 matches across all competitions`\
-https://nytimes.com/athletic/6312832/2025/04/27/cole-palmer-form-enzo-maresca-chelsea/
 
