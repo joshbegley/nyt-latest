@@ -1,4 +1,4 @@
-**Hurricanes take commanding 3-1 series lead vs. Devils but lose Freddie Andersen: Takeaways**\
+**Hurricanes take 3-1 series lead vs. Devils, but Frederik Andersen injured in win: Takeaways**\
 `Andrei Svechnikov had a hat trick for Carolina. Game 5 of the teams' first-round series is Tuesday in Raleigh.`\
 https://nytimes.com/athletic/6316146/2025/04/27/hurricanes-devils-game-4-nhl-playoffs/
 
