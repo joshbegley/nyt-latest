@@ -1,3 +1,7 @@
+**Netanyahu Accuses Israel’s Domestic Security Chief of Lying to Court**\
+`Intent on firing the Shin Bet chief, Ronen Bar, Prime Minister Benjamin Netanyahu denounced him in a sharp affidavit, deepening national political divisions.`\
+https://nytimes.com/2025/04/27/world/middleeast/israel-netanyahu-ronen-bar.html
+
 **Washington State Lawmakers Vote to Limit Rent Increases**\
 `Supporters say an annual cap of 10 percent, including inflation, will protect tenants. Critics worry it will reduce housing supply and discourage investors.`\
 https://nytimes.com/2025/04/27/us/rent-increase-washington-state.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/27/us/politics/kristi-noem-purse-theft-arrest.html
 **2 American Children Were Sent to Honduras With Their Undocumented Mother**\
 `The children, 4 and 7, were put on a plane with their mother, who was deported. The family’s lawyer said the mother was given no choice but to take her children, which the Trump administration denied.`\
 https://nytimes.com/2025/04/27/us/politics/us-citizen-children-deported-honduras-trump.html
-
-**Titanic Survivor’s Letter, Written Aboard the Ship, Sells for Nearly $400,000**\
-`Col. Archibald Gracie wrote the letter while traveling on the Titanic days before the ship sank and plunged him into the icy North Atlantic.`\
-https://nytimes.com/2025/04/27/world/europe/titanic-survivor-letter-auction.html
 
