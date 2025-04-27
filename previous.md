@@ -1,9 +1,17 @@
+**Senators stay alive as Jake Sanderson strikes in OT: Game 4 takeaways**\
+`Leafs fail to close out the Senators in 4-3 OT loss as the series shifts back to Toronto. `\
+https://nytimes.com/athletic/6313709/2025/04/26/leafs-senators-takeaways-game-4-nhl-playoffs/
+
+**Clay Webb, involved in federal bullying lawsuit, signs with Broncos**\
+`Webb spent three years at Georgia before transferring to Jacksonville State, where he played the last three seasons.`\
+https://nytimes.com/athletic/6302636/2025/04/26/clay-webb-broncos-nfl-draft-2025-bullying/
+
 **49ers' Malik Mustapha to miss start of season with knee injury: Source**\
 `Mustapha reinjured a previously torn ACL in the 49ers season finale and is expected to miss half of the 2025 season.`\
 https://nytimes.com/athletic/6314295/2025/04/26/49ers-malik-mustapha-acl-injury/
 
-**Chargers 2025 NFL Draft takeaways: Major focus on adding playmaking around Herbert**\
-`By using four of the team's first six picks on offensive skill positions, Los Angeles added plenty of options for its quarterback`\
+**Chargers 2025 NFL Draft takeaways: Major focus on adding playmaking around Justin Herbert**\
+`By using four of its first six picks on offensive skill positions, Los Angeles added plenty of options for its quarterback.`\
 https://nytimes.com/athletic/6312443/2025/04/26/los-angeles-chargers-2025-nfl-draft-picks-takeaways/
 
 **‘Just in Time’ Review: Jonathan Groff Channels Bobby Darin**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6314123/2025/04/26/detroit-lions-2025-nfl-draft-pic
 **NFL Draft 2025 winners and losers: Browns make intriguing QB move, Steelers lose Rodgers leverage**\
 `If Shedeur Sanders doesn't work out for the Browns, they can still take a swing on a QB in 2026. That lowers the risk of their pick.`\
 https://nytimes.com/athletic/6313395/2025/04/26/nfl-draft-2025-overall-winners-losers/
-
-**Mets reliever A.J. Minter leaves game, likely headed to injured list**\
-`The lefty left Saturday's game after throwing his ninth pitch. He signed a two-year deal with the Mets for $22 million in January.`\
-https://nytimes.com/athletic/6314162/2025/04/26/mets-aj-minter-injury/
-
-**Ravens 2025 NFL Draft takeaways: A huge class, and one controversial pick**\
-`With 11 new players coming in through the draft, the Ravens don't have many boxes left to check.`\
-https://nytimes.com/athletic/6314023/2025/04/26/baltimore-ravens-2025-nfl-draft-picks-takeaways/
 
