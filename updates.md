@@ -1,3 +1,7 @@
+**2025 Kentucky Derby post positions: Favorite Journalism draws No. 8**\
+`The lineup of horses competing in the first leg of the Triple Crown will enter the gates next Saturday.`\
+https://nytimes.com/athletic/6313745/2025/04/26/kentucky-derby-post-draw-odds/
+
 **Broncos 2025 NFL Draft takeaways: Building around Bo Nix with new targets, defensive depth**\
 `A look at the best value pick, the draft's biggest surprise for Denver and the needs that still remain for Sean Payton.`\
 https://nytimes.com/athletic/6312846/2025/04/26/denver-broncos-2025-nfl-draft-picks-takeaways/

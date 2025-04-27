@@ -16,7 +16,7 @@ https://nytimes.com/athletic/6313643/2025/04/26/chicago-bears-2025-nfl-draft-pic
 
 **2025 Kentucky Derby post positions: Favorite Journalism draws No. 8**\
 `The lineup of horses competing in the first leg of the Triple Crown will enter the gates next Saturday.`\
-https://nytimes.com/athletic/6313745/2025/04/26/kentucky-derby-post-draw/
+https://nytimes.com/athletic/6313745/2025/04/26/kentucky-derby-post-draw-odds/
 
 **Tampa Bay signs Shilo Sanders, Desmond Watson ('Tush Push Terminator') as undrafted free agents**\
 `Sanders is the son of Deion Sanders and brother of fifth-round pick Shedeur Sanders. Watson is a 6-foot-6, 464-pound defensive tackle.`\
