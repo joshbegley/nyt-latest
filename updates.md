@@ -1,3 +1,7 @@
+**Israeli Military Strikes Near Beirut, Saying Hezbollah Was the Target**\
+`The attack raised concerns that the cease-fire that ended a war between Israel and Lebanese militants might be in jeopardy.`\
+https://nytimes.com/2025/04/27/world/middleeast/israel-strike-beirut-hezbollah.html
+
 **Ancelotti set to leave Real Madrid and join Brazil in June**\
 `The expectation is for Ancelotti to complete the La Liga season and join Brazil in June.`\
 https://nytimes.com/athletic/5943402/2025/04/27/carlo-ancelotti-real-madrid-brazil-future/
