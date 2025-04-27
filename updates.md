@@ -1,3 +1,15 @@
+**Giants celebrate Brandon Crawford, walk off in the ninth**\
+`Crawford started the day with a speech, then the Giants capped the afternoon with their fourth walk-off win.`\
+https://nytimes.com/athletic/6313016/2025/04/26/sf-giants-brandon-crawford-celebration-walk-off-win/
+
+**Most drafted schools: Ohio State dominates 2025 NFL Draft with 14 picks**\
+`The top five programs by draft selections represent over one fifth of all draft picks through the three-day draft process.`\
+https://nytimes.com/athletic/6312761/2025/04/26/2025-nfl-draft-schools-ohio-state/
+
+**Ravens 2025 NFL Draft takeaways: A huge class, and one controversial pick**\
+`With 11 new players coming in through the draft, the Ravens don't have many boxes left to check.`\
+https://nytimes.com/athletic/6314023/2025/04/26/baltimore-ravens-2025-nfl-draft-picks-takeaways/
+
 **Lions 2025 NFL Draft takeaways: Most needs were met, but was one edge rusher enough?**\
 `GM Brad Holmes drafted a rotational edge in Round 6 in Ahmed Hassanein, but depth at the position remains a question.`\
 https://nytimes.com/athletic/6314123/2025/04/26/detroit-lions-2025-nfl-draft-picks-takeaways/

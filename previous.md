@@ -1,3 +1,11 @@
+**Giants celebrate Brandon Crawford, walk off in the ninth**\
+`Crawford started the day with a speech, then the Giants capped the afternoon with their fourth walk-off win.`\
+https://nytimes.com/athletic/6313016/2025/04/26/sf-giants-brandon-crawford-celebration-walk-off-win/
+
+**Most drafted schools: Ohio State dominates 2025 NFL Draft with 14 picks**\
+`The top five programs by draft selections represent over one fifth of all draft picks through the three-day draft process.`\
+https://nytimes.com/athletic/6312761/2025/04/26/2025-nfl-draft-schools-ohio-state/
+
 **Lions 2025 NFL Draft takeaways: Most needs were met, but was one edge rusher enough?**\
 `GM Brad Holmes drafted a rotational edge in Round 6 in Ahmed Hassanein, but depth at the position remains a question.`\
 https://nytimes.com/athletic/6314123/2025/04/26/detroit-lions-2025-nfl-draft-picks-takeaways/
@@ -10,7 +18,7 @@ https://nytimes.com/athletic/6313395/2025/04/26/nfl-draft-2025-overall-winners-l
 `The lefty left Saturday's game after throwing his ninth pitch. He signed a two-year deal with the Mets for $22 million in January.`\
 https://nytimes.com/athletic/6314162/2025/04/26/mets-aj-minter-injury/
 
-**Ravens 2025 NFL Draft Takeaways: A huge class, and one controversial pick**\
+**Ravens 2025 NFL Draft takeaways: A huge class, and one controversial pick**\
 `With 11 new players coming in through the draft, the Ravens don't have many boxes left to check.`\
 https://nytimes.com/athletic/6314023/2025/04/26/baltimore-ravens-2025-nfl-draft-picks-takeaways/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6312846/2025/04/26/denver-broncos-2025-nfl-draft-pi
 **2025 NFL Draft most memorable moments: Emotional reactions, best interviews**\
 `Relive the best, funniest and most emotional moments of the 2025 NFL Draft in Green Bay. `\
 https://nytimes.com/athletic/6312659/2025/04/26/2025-nfl-draft-most-memorable-moments-emotional-reactions-best-interviews/
-
-**Giants 2025 NFL Draft takeaways: The wait begins. When will Jaxson Dart be ready?**\
-`It’s too early to provide a win-loss prediction, but the Giants certainly look a lot better on paper than the 3-14 mess they were last year.`\
-https://nytimes.com/athletic/6313055/2025/04/26/new-york-giants-2025-nfl-draft-picks-takeaways/
-
-**Bears 2025 NFL Draft takeaways: Newcomers reflect Ben Johnson's vision, energy**\
-`In their first draft with Johnson as coach, the Bears used five of their eight picks on offense, including their first three.`\
-https://nytimes.com/athletic/6313643/2025/04/26/chicago-bears-2025-nfl-draft-picks-takeaways/
 
