@@ -1,3 +1,7 @@
+**NHL playoffs daily: Knights, Sens win in OT while Avs shutout Stars**\
+`A look at how Saturday's Game 4 — or if you're a Florida-based team, Game 3 — action went down across the NHL.`\
+https://nytimes.com/athletic/6314341/2025/04/27/nhl-playoffs-game-4-results-takeaways/
+
 **Rockets' biggest playoff fears realized in Game 3 loss to Warriors**\
 `Led by Steph Curry, the Warriors took a 2-1 series lead over the Rockets thanks to a 104-93 win in Game 3 of their first-round series.`\
 https://nytimes.com/athletic/6314687/2025/04/27/warriors-rockets-nba-playoffs-curry/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/27/opinion/america-fear.html
 **U.K. Counterterrorism Police Investigate After Crossbow Attack Injures 2 Women**\
 `The British police arrested a man on Saturday after an attack in Leeds, a city in northern England.`\
 https://nytimes.com/2025/04/27/world/europe/crossbow-attack-leeds-terrorism.html
-
-**The Pulse: Drafts we liked amid a stunning slide**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6314538/2025/04/27/drafts-we-liked-the-stunning-slide-of-shedeur-sanders-and-a-stunning-buzzer-beater/
 

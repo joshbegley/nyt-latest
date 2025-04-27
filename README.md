@@ -1,3 +1,7 @@
+**'I had to be Alfred': Buddy Hield steps into sidekick role without Jimmy Butler**\
+`"He's huge in the locker room," Draymond Green added of Hield. "He's huge on the plane. Just for the aura of this team, he's big."`\
+https://nytimes.com/athletic/6314236/2025/04/27/buddy-hield-warriors-nba-playoffs-jimmy-butler-injury/
+
 **NHL playoffs daily: Knights, Sens win in OT while Avs shutout Stars**\
 `A look at how Saturday's Game 4 — or if you're a Florida-based team, Game 3 — action went down across the NHL.`\
 https://nytimes.com/athletic/6314341/2025/04/27/nhl-playoffs-game-4-results-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6314351/2025/04/27/la-kings-nick-nickson-retirement
 **The Fear Factor and America’s Future**\
 `Readers respond to a column by Thomas L. Friedman. Also: Depression and aging; Paul Revere’s legacy.`\
 https://nytimes.com/2025/04/27/opinion/america-fear.html
-
-**U.K. Counterterrorism Police Investigate After Crossbow Attack Injures 2 Women**\
-`The British police arrested a man on Saturday after an attack in Leeds, a city in northern England.`\
-https://nytimes.com/2025/04/27/world/europe/crossbow-attack-leeds-terrorism.html
 

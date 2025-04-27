@@ -1,3 +1,7 @@
+**NHL playoffs daily: Knights, Sens win in OT while Avs shutout Stars**\
+`A look at how Saturday's Game 4 — or if you're a Florida-based team, Game 3 — action went down across the NHL.`\
+https://nytimes.com/athletic/6314341/2025/04/27/nhl-playoffs-game-4-results-takeaways/
+
 **The Rockets blew it against the Butler-less Warriors. They might regret it**\
 `“I think every chance you don't win a game you feel like you could win is a missed opportunity,” Fred VanVleet said.`\
 https://nytimes.com/athletic/6314723/2025/04/27/rockets-lose-warriors-jimmy-butler/
