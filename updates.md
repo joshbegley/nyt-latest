@@ -1,3 +1,7 @@
+**The Pulse: Drafts we liked amid a stunning slide**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6314538/2025/04/27/drafts-we-liked-the-stunning-slide-of-shedeur-sanders-and-a-stunning-buzzer-beater/
+
 **Why Adam Benák, one of the 2025 NHL Draft's smallest prospects, could defy his size**\
 `Benák's size, paired with his speed and smarts, make him one of the most interesting and also difficult case studies in this year's class.`\
 https://nytimes.com/athletic/6297049/2025/04/27/2025-nhl-draft-prospect-adam-benak/
