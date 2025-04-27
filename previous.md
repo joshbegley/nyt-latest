@@ -1,3 +1,7 @@
+**Rubio Says Trump Will Decide This Week on Continuing Ukraine War Talks**\
+`Secretary of State Marco Rubio said there are reasons to be optimistic, but also asserted there are “other issues” on which the administration wants to spend its energy.`\
+https://nytimes.com/2025/04/27/us/politics/trump-ukraine-rubio-zelensky-putin.html
+
 **Duke's Khaman Maluach, a projected lottery pick, declares for NBA Draft**\
 `The 7-foot-2 Maluach, who started every game for the Blue Devils this season, is one of the best bigs available in this class.`\
 https://nytimes.com/athletic/6285922/2025/04/27/khaman-maluach-nba-draft-duke/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6315135/2025/04/27/tennis-line-calling-clay-zverev-
 **The Briefing: Chelsea 1 Barcelona 4 (2-8 agg) - Quadruple hopes end, system change disaster, Barcelona irrepressible**\
 `Chelsea have been knocked out of the Champions League semi-finals following another defeat at the hands of Barcelona`\
 https://nytimes.com/athletic/6315042/2025/04/27/chelsea-barcelona-champions-league-semifinals-briefing/
-
-**'I had to be Alfred': Buddy Hield steps into sidekick role without Jimmy Butler**\
-`"He's huge in the locker room," Draymond Green added of Hield. "He's huge on the plane. Just for the aura of this team, he's big."`\
-https://nytimes.com/athletic/6314236/2025/04/27/buddy-hield-warriors-nba-playoffs-jimmy-butler-injury/
 

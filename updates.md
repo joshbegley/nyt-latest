@@ -1,3 +1,7 @@
+**Rubio Says Trump Will Decide This Week on Continuing Ukraine War Talks**\
+`Secretary of State Marco Rubio said there are reasons to be optimistic, but also asserted there are “other issues” on which the administration wants to spend its energy.`\
+https://nytimes.com/2025/04/27/us/politics/trump-ukraine-rubio-zelensky-putin.html
+
 **Duke's Khaman Maluach, a projected lottery pick, declares for NBA Draft**\
 `The 7-foot-2 Maluach, who started every game for the Blue Devils this season, is one of the best bigs available in this class.`\
 https://nytimes.com/athletic/6285922/2025/04/27/khaman-maluach-nba-draft-duke/
