@@ -1,3 +1,7 @@
+**Netanyahu Accuses Israel’s Domestic Security Chief of Lying to Court**\
+`Intent on firing the Shin Bet chief, Ronen Bar, Prime Minister Benjamin Netanyahu denounced him in a sharp affidavit, deepening national political divisions.`\
+https://nytimes.com/2025/04/27/world/middleeast/israel-netanyahu-ronen-bar.html
+
 **Washington State Lawmakers Vote to Limit Rent Increases**\
 `Supporters say an annual cap of 10 percent, including inflation, will protect tenants. Critics worry it will reduce housing supply and discourage investors.`\
 https://nytimes.com/2025/04/27/us/rent-increase-washington-state.html
