@@ -1,3 +1,7 @@
+**Ravens 2025 NFL Draft Takeaways: A huge class, and one controversial pick**\
+`With 11 new players coming in through the draft, the Ravens don't have many boxes left to check.`\
+https://nytimes.com/athletic/6314023/2025/04/26/baltimore-ravens-2025-nfl-draft-picks-takeaways/
+
 **Aaron Gordon beats buzzer with putback dunk to help Nuggets stun Clippers**\
 `Gordon snagged a 3-point heave from Nikola Jokić out of the air and dunked it just seconds b`\
 https://nytimes.com/athletic/6314174/2025/04/26/nuggets-clippers-aaron-gordon-putback-dunk/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6302168/2025/04/26/shilo-sanders-team-nfl-draft-dei
 **What the Steelers' draft says about their confidence in signing Aaron Rodgers**\
 `Rodgers remains a free agent, but several breadcrumbs this weekend suggest the Steelers still expect to add the four-time MVP.`\
 https://nytimes.com/athletic/6313772/2025/04/26/aaron-rodgers-steelers-nfl-draft/
-
-**Nuggets, Clippers get in heated scuffle during second quarter of Game 4**\
-`With 6.6 seconds remaining in the second quarter, James Harden took exception to a foul by Christian Braun and exchanged words with Braun.`\
-https://nytimes.com/athletic/6313895/2025/04/26/nuggets-clippers-second-quarter-fight/
 
