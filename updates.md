@@ -1,3 +1,19 @@
+**Valentin-Yves Mudimbe, 83, Dies; African Scholar Challenged the West**\
+`He deconstructed what he called “the colonial library”: the accounts of Africa by Europeans whose aim, he said, was to further colonialism.`\
+https://nytimes.com/2025/04/27/world/africa/valentin-yves-mudimbe-dead.html
+
+**Zurab Tsereteli, Polarizing Russian Sculptor of Colossal Works, Dies at 91**\
+`In bronze, he glorified figures like Peter the Great and Vladimir Putin, often to the public’s distaste. Some works, like a giant Columbus and a 9/11 memorial, were reviled.`\
+https://nytimes.com/2025/04/27/world/europe/zurab-tsereteli-dead.html
+
+**Another big Blues win over the Jets has series tied 2-2: Takeaways**\
+`The Blues chased Connor Hellebuyck from the game for the second time en route to a 5-1 victory in Game 4.`\
+https://nytimes.com/athletic/6315725/2025/04/27/nhl-playoffs-blues-jets-game-4/
+
+**Blue Jays' Kevin Gausman throws 53 pitches in an inning before being ejected**\
+`Gausman's marathon third inning matched the previous high for a Blue Jays pitcher, set in 1998 by Woody Williams.`\
+https://nytimes.com/athletic/6315702/2025/04/27/blue-jays-kevin-gausman-ejected/
+
 **Kevin Gausman ejected after throwing 53 pitches in an inning**\
 `Gausman's marathon third inning matched the previous high for a Blue Jays pitcher, set in 1998 by Woody Williams.`\
 https://nytimes.com/athletic/6315702/2025/04/27/blue-jays-kevin-gausman-ejected-after-throwing-53-pitches-inning/
