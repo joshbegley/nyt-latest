@@ -1,3 +1,7 @@
+**Braves' new hitting coach knew the slug would come. It has, and it's been needed**\
+`Tim Hyers remained calm when Atlanta's offense struggled at the start. He's still calm as the Braves are lighting up the scoreboard.`\
+https://nytimes.com/athletic/6314608/2025/04/27/atlanta-braves-hitting-coach-home-runs-diamondbacks/
+
 **Oliver Glasner has guided Crystal Palace to the verge of history**\
 `Nothing has been won yet but Palace's manager has established a feeling that they can beat anyone on their day — as Villa discovered`\
 https://nytimes.com/athletic/6303190/2025/04/27/crystal-palace-fa-cup-oliver-glasner/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/04/27/world/asia/india-pakistan-kashmir.html
 **Avalanche demolish Stars to even series, Gabriel Landeskog scores: Takeaways**\
 `Mackenzie Blackwood earned a shutout and Landeskog scored his first NHL goal in nearly three years as Colorado defeated Dallas 4-0.`\
 https://nytimes.com/athletic/6314417/2025/04/27/avalanche-stars-nhl-playoffs-2025-game-4-takeaways/
-
-**Diamondbacks' Eugenio Suárez hits 4 home runs in loss to Braves**\
-`Suárez became the second player in MLB history to hit four homers in a game his team lost.`\
-https://nytimes.com/athletic/6314427/2025/04/27/diamondbacks-eugenio-suarez-four-home-runs/
 
