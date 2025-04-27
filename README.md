@@ -1,4 +1,4 @@
-**The Briefing: Bournemouth 1 Man Utd 1 - Shaw returns and Semenyo impresses as Hojlund rescues point**\
+**The Briefing: Bournemouth 1 Man United 1 – Shaw returns and Semenyo impresses as Hojlund rescues point**\
 `Carl Anka and Anantaajith Raghuraman break down the key talking points from United's trip to the south coast`\
 https://nytimes.com/athletic/6301992/2025/04/27/bournemouth-man-utd-premier-league-analysis/
 
@@ -15,7 +15,7 @@ https://nytimes.com/2025/04/27/dining/broiled-salmon-recipe.html
 https://nytimes.com/athletic/6315135/2025/04/27/tennis-line-calling-clay-zverev-madrid-open/
 
 **The Briefing: Chelsea 1 Barcelona 4 (2-8 agg) - Quadruple hopes end, system change disaster, Barcelona irrepressible**\
-`Chelsea are knocked out of the Champions League semi-finals by an impressive Barcelona`\
+`Chelsea have been knocked out of the Champions League semi-finals following another defeat at the hands of Barcelona`\
 https://nytimes.com/athletic/6315042/2025/04/27/chelsea-barcelona-champions-league-semifinals-briefing/
 
 **'I had to be Alfred': Buddy Hield steps into sidekick role without Jimmy Butler**\
