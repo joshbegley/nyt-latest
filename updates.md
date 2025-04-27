@@ -1,3 +1,7 @@
+**India Seems to Be Building Its Case for Striking Pakistan**\
+`As world powers face multiple crises, the one set off by a terror attack in Kashmir is getting scant attention, and little help de-escalating between two nuclear-armed neighbors.`\
+https://nytimes.com/2025/04/27/world/asia/india-pakistan-kashmir.html
+
 **Avalanche demolish Stars to even series, Gabriel Landeskog scores: Takeaways**\
 `Mackenzie Blackwood earned a shutout and Landeskog scored his first NHL goal in nearly three years as Colorado defeated Dallas 4-0.`\
 https://nytimes.com/athletic/6314417/2025/04/27/avalanche-stars-nhl-playoffs-2025-game-4-takeaways/
