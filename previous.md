@@ -1,3 +1,15 @@
+**Trump Administration Live Updates: President Says Putin Might Not Be Serious About Peace in Ukraine**\
+``\
+https://nytimes.com/live/2025/04/27/us/trump-news
+
+**The Fear Factor and America’s Future**\
+`Readers respond to a column by Thomas L. Friedman. Also: Depression and aging; Paul Revere’s legacy.`\
+https://nytimes.com/2025/04/27/opinion/america-fear.html
+
+**U.K. Counterterrorism Police Investigate After Crossbow Attack Injures 2 Women**\
+`The British police arrested a man on Saturday after an attack in Leeds, a city in northern England.`\
+https://nytimes.com/2025/04/27/world/europe/crossbow-attack-leeds-terrorism.html
+
 **The Pulse: Drafts we liked amid a stunning slide**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6314538/2025/04/27/drafts-we-liked-the-stunning-slide-of-shedeur-sanders-and-a-stunning-buzzer-beater/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6304352/2025/04/27/wrexham-promotion-reynolds-mcelh
 **NFL Draft: Ranking 7 most interesting QB picks by who has best chance to succeed**\
 `Top pick Cam Ward was the easy No. 1 choice, but what about after him? Is Shedeur Sanders ready to prove his doubters wrong?`\
 https://nytimes.com/athletic/6313594/2025/04/27/nfl-draft-2025-shedeur-sanders-quarterbacks/
-
-**Oilers are starting to show their full potential as they get closer to full health**\
-`Edmonton appears to be getting increasingly stronger by the day, as slowly improving health has fittingly led to better play.`\
-https://nytimes.com/athletic/6313770/2025/04/27/oilers-kings-nhl-playoffs-injuries/
-
-**The lifelong Detroit Pistons fan from Australia who became a social media influencer**\
-`"Growing up, the Pistons, for me, were like the one thing I'd look forward to every day," said Jack Kelly, who grew up in Melbourne.`\
-https://nytimes.com/athletic/6303774/2025/04/27/detroit-pistons-fans-australia-2025-nba-playoffs/
-
-**Emmanuel Clase, a sore shoulder and a strange week for the Guardians' non-closing closer**\
-`Cade Smith has three saves over the past six days. Is this a long-term thing, or will Clase be reinstalled as the closer soon?`\
-https://nytimes.com/athletic/6313481/2025/04/27/guardians-emmanuel-clase-closer-cade-smith/
 

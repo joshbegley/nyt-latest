@@ -1,3 +1,15 @@
+**Trump Administration Live Updates: President Says Putin Might Not Be Serious About Peace in Ukraine**\
+``\
+https://nytimes.com/live/2025/04/27/us/trump-news
+
+**The Fear Factor and America’s Future**\
+`Readers respond to a column by Thomas L. Friedman. Also: Depression and aging; Paul Revere’s legacy.`\
+https://nytimes.com/2025/04/27/opinion/america-fear.html
+
+**U.K. Counterterrorism Police Investigate After Crossbow Attack Injures 2 Women**\
+`The British police arrested a man on Saturday after an attack in Leeds, a city in northern England.`\
+https://nytimes.com/2025/04/27/world/europe/crossbow-attack-leeds-terrorism.html
+
 **The Pulse: Drafts we liked amid a stunning slide**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6314538/2025/04/27/drafts-we-liked-the-stunning-slide-of-shedeur-sanders-and-a-stunning-buzzer-beater/
