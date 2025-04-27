@@ -2,7 +2,7 @@
 `Mackenzie Blackwood earned a shutout and Landeskog scored his first NHL goal in nearly three years as Colorado defeated Dallas 4-0.`\
 https://nytimes.com/athletic/6314417/2025/04/27/avalanche-stars-nhl-playoffs-2025-game-4-takeaways/
 
-**Diamondbacks' Eugenio Suárez hits 4 homers in loss against Braves**\
+**Diamondbacks' Eugenio Suárez hits 4 home runs in loss to Braves**\
 `Suárez became the second player in MLB history to hit four homers in a game his team lost.`\
 https://nytimes.com/athletic/6314427/2025/04/27/diamondbacks-eugenio-suarez-four-home-runs/
 
