@@ -1,3 +1,15 @@
+**Arsenal reach first Women's Champions League final since 2007 after win vs Lyon**\
+`Arsenal will play Barcelona in May's final.`\
+https://nytimes.com/athletic/6315336/2025/04/27/arsenal-lyon-womens-champions-league-final/
+
+**The Briefing: Liverpool 5 Tottenham 1 - Spurs hit new low in record-equalling defeat**\
+`Archie Gray and Lucas Bergvall struggle in midfield as Ange Postecoglou's side lose their 19th league game this season`\
+https://nytimes.com/athletic/6311822/2025/04/27/liverpool-5-tottenham-1-premier-league-analysis/
+
+**Paul Maurice responds to Jon Cooper's verbatim postgame message**\
+`Paul Maurice calls Jon Cooper's "chirping" of him "all good" and says that such things are "a lost art." `\
+https://nytimes.com/athletic/6315323/2025/04/27/paul-maurice-responds-jon-coopers-postgame-message/
+
 **Alexis Herman, First Black Secretary of Labor, Dies at 77**\
 `A social worker, she became a Democratic Party insider and joined President Bill Clinton’s cabinet during his second term.`\
 https://nytimes.com/2025/04/27/us/politics/alexis-herman-dead.html

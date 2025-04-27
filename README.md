@@ -1,3 +1,7 @@
+**How Liverpool won the Premier League: Dire Straits, coffee club and one big outburst**\
+`How Dire Straits, coffee club and one volcanic outburst from Arne Slot helped secure an historic triumph`\
+https://nytimes.com/athletic/6235236/2025/04/27/liverpool-premier-league-title-inside-story/
+
 **Arsenal reach first Women's Champions League final since 2007 after win vs Lyon**\
 `Arsenal will play Barcelona in May's final.`\
 https://nytimes.com/athletic/6315336/2025/04/27/arsenal-lyon-womens-champions-league-final/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/27/us/politics/bessent-trump-xi-tariffs.html
 **Blue Jackets Sunday Gathering: Zach Werenski for the Hart? Monahan for Masterton?**\
 `Plus: Which members of the Blue Jackets may be heading to Worlds and updates on the AHL Cleveland's playoff run.`\
 https://nytimes.com/athletic/6312100/2025/04/27/blue-jackets-nhl-awards-zach-werenski-sean-monahan/
-
-**Yankees remove Devin Williams from closer job 'for right now'**\
-`Williams finished each of the previous three seasons with an ERA under 2.00. Through 10 appearances with the Yankees, his ERA is 11.25.`\
-https://nytimes.com/athletic/6315384/2025/04/27/yankees-devin-williams-closer-role/
 
