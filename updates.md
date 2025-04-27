@@ -1,3 +1,15 @@
+**Nuggets, Clippers get in heated scuffle during second quarter of Game 4**\
+`With 6.6 seconds remaining in the second quarter, James Harden took exception to a foul by Christian Braun and exchanged words with Braun.`\
+https://nytimes.com/athletic/6313895/2025/04/26/nuggets-clippers-second-quarter-fight/
+
+**The 2025 NFL Draft's Mr. Irrelevant: Who is Kobee Minor?**\
+`The final pick of the three-day marathon, No. 257, will have a whole week of celebration in his honor.`\
+https://nytimes.com/athletic/6287733/2025/04/26/mr-irrelevant-nfl-draft-patriots/
+
+**Ex-Disney Worker Who Hacked Menus Gets 3 Years in Prison**\
+`The fired employee admitted that he changed prices, added profanity, and altered menu items so they appeared to be free of certain allergens.`\
+https://nytimes.com/2025/04/26/us/disney-worker-prison-hacking.html
+
 **Golden Knights even series vs. Wild with overtime goal in Game 4: Takeaways**\
 `Ivan Barbashev delivered for Vegas, scoring in OT to secure a 4-3 win in Game 4 and tying the first-round series with Minnesota at 2-2.
 `\

@@ -1,3 +1,15 @@
+**Nuggets, Clippers get in heated scuffle during second quarter of Game 4**\
+`With 6.6 seconds remaining in the second quarter, James Harden took exception to a foul by Christian Braun and exchanged words with Braun.`\
+https://nytimes.com/athletic/6313895/2025/04/26/nuggets-clippers-second-quarter-fight/
+
+**The 2025 NFL Draft's Mr. Irrelevant: Who is Kobee Minor?**\
+`The final pick of the three-day marathon, No. 257, will have a whole week of celebration in his honor.`\
+https://nytimes.com/athletic/6287733/2025/04/26/mr-irrelevant-nfl-draft-patriots/
+
+**Ex-Disney Worker Who Hacked Menus Gets 3 Years in Prison**\
+`The fired employee admitted that he changed prices, added profanity, and altered menu items so they appeared to be free of certain allergens.`\
+https://nytimes.com/2025/04/26/us/disney-worker-prison-hacking.html
+
 **ICE Arrests Nearly 800 in Florida in Operation With Local Officers**\
 `The four-day operation came as the Trump administration has sought to enlist local authorities in an immigration crackdown.`\
 https://nytimes.com/2025/04/26/us/politics/ice-arrests-florida-immigrants.html
@@ -25,17 +37,4 @@ https://nytimes.com/athletic/6312889/2025/04/26/atlanta-falcons-2025-nfl-draft-p
 **Chiefs 2025 NFL Draft takeaways: Biggest need addressed, plus reinforcements**\
 `Getting their left tackle of the future in Ohio State's Josh Simmons was critical. Then the Chiefs shored up an already strong defense.`\
 https://nytimes.com/athletic/6313522/2025/04/26/chiefs-2025-nfl-draft-picks-takeaways/
-
-**Cowboys 2025 NFL Draft takeaways: Several immediate contributors, but big need remains**\
-`The Cowboys added a starting guard, an impact edge rusher and great value in a cornerback. Will they make a move still for a receiver?`\
-https://nytimes.com/athletic/6312668/2025/04/26/dallas-cowboys-2025-nfl-draft-picks-takeaways/
-
-**Bills 2025 NFL Draft takeaways: Lots of picks on defense to help get Buffalo over the top**\
-`The Bills addressed each of their most glaring needs in the draft.`\
-https://nytimes.com/athletic/6313151/2025/04/26/buffalo-bills-2025-nfl-draft-picks-takeaways/
-
-**Golden Knights even series vs. Wild with overtime goal in Game 4: Takeaways**\
-`Ivan Barbashev delivered for Vegas, scoring in OT to secure a 4-3 win in Game 4 and tying the first-round series with Minnesota at 2-2.
-`\
-https://nytimes.com/athletic/6313488/2025/04/26/wild-golden-knights-game-4/
 
