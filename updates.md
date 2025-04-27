@@ -1,3 +1,7 @@
+**The Rockets blew it against the Butler-less Warriors. They might regret it**\
+`“I think every chance you don't win a game you feel like you could win is a missed opportunity,” Fred VanVleet said.`\
+https://nytimes.com/athletic/6314723/2025/04/27/rockets-lose-warriors-jimmy-butler/
+
 **Rockets' biggest playoff fears realized in Game 3 loss to Warriors**\
 `Led by Steph Curry, the Warriors took a 2-1 series lead over the Rockets thanks to a 104-93 win in Game 3 of their first-round series.`\
 https://nytimes.com/athletic/6314687/2025/04/27/warriors-rockets-nba-playoffs-curry/

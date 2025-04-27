@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6314951/2025/04/27/steph-curry-warriors-rockets-gam
 https://nytimes.com/athletic/6301869/2025/04/27/crystal-palace-relegated-wsl/
 
 **The Rockets blew it against the Butler-less Warriors. They might regret it**\
-`The Rockets blew a ... golden ... opportunity to take the 2-1 series lead Saturday, falling 104-93 in Game 3.`\
+`“I think every chance you don't win a game you feel like you could win is a missed opportunity,” Fred VanVleet said.`\
 https://nytimes.com/athletic/6314723/2025/04/27/rockets-lose-warriors-jimmy-butler/
 
 **How 48 hours of rage and recrimination overshadowed the Copa del Rey final**\
