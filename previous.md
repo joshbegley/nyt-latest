@@ -1,3 +1,7 @@
+**Authorities Make Arrest Linked to Noem’s Stolen Purse**\
+`Homeland Security Secretary Kristi Noem’s purse contained her driver’s license, government badge, passport and $3,000 in cash when it was swiped from an upscale burger restaurant.`\
+https://nytimes.com/2025/04/27/us/politics/kristi-noem-purse-theft-arrest.html
+
 **2 American Children Were Sent to Honduras With Their Undocumented Mother**\
 `The children, 4 and 7, were put on a plane with their mother, who was deported. The family’s lawyer said the mother was given no choice but to take her children, which the Trump administration denied.`\
 https://nytimes.com/2025/04/27/us/politics/us-citizen-children-deported-honduras-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6235236/2025/04/27/liverpool-premier-league-title-i
 **Arsenal reach first Women's Champions League final since 2007 after win vs Lyon**\
 `Arsenal will play Barcelona in May's final.`\
 https://nytimes.com/athletic/6315336/2025/04/27/arsenal-lyon-womens-champions-league-final/
-
-**The Briefing: Liverpool 5 Tottenham 1 - Spurs hit new low in record-equalling defeat**\
-`Archie Gray and Lucas Bergvall struggle in midfield as Ange Postecoglou's side lose their 19th league game this season`\
-https://nytimes.com/athletic/6311822/2025/04/27/liverpool-5-tottenham-1-premier-league-analysis/
 

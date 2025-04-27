@@ -1,3 +1,7 @@
+**Authorities Make Arrest Linked to Noem’s Stolen Purse**\
+`Homeland Security Secretary Kristi Noem’s purse contained her driver’s license, government badge, passport and $3,000 in cash when it was swiped from an upscale burger restaurant.`\
+https://nytimes.com/2025/04/27/us/politics/kristi-noem-purse-theft-arrest.html
+
 **Jiggly Caliente, ‘RuPaul’s Drag Race’ Star and Judge, Dies at 44**\
 `Fans knew Ms. Caliente for her sense of humor, vigorous dance skills and interactions with fellow cast members on the popular drag television show.`\
 https://nytimes.com/2025/04/27/arts/television/jiggly-caliente-rupaul-drag-race-dead.html
