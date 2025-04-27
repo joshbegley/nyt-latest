@@ -1,3 +1,7 @@
+**How Colleges Are Turning Athletes Into Influencers**\
+`The University of North Carolina at Chapel Hill is known for its sports programs, but now it has something else to offer its athletes: an opportunity to become an influencer.`\
+https://nytimes.com/video/business/media/100000010126050/how-colleges-are-turning-athletes-into-influencers.html
+
 **How overly-cautious Aston Villa wasted an opportunity to reach the FA Cup final**\
 `Unai Emery wants controlled football from his side. But did that cede momentum to Crystal Palace at Wembley?`\
 https://nytimes.com/athletic/6309674/2025/04/27/aston-villa-fa-cup-wasted-opportunity/

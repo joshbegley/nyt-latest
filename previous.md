@@ -1,3 +1,7 @@
+**How Colleges Are Turning Athletes Into Influencers**\
+`The University of North Carolina at Chapel Hill is known for its sports programs, but now it has something else to offer its athletes: an opportunity to become an influencer.`\
+https://nytimes.com/video/business/media/100000010126050/how-colleges-are-turning-athletes-into-influencers.html
+
 **Multiple Casualties After Driver Plows Into a Street Festival in Canada**\
 `The ramming episode, at a Filipino-themed block party in Vancouver on Saturday, killed “a number of people,” and injured more, the police said.`\
 https://nytimes.com/2025/04/27/world/asia/vehicle-ramming-vancouver-deaths.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6314608/2025/04/27/atlanta-braves-hitting-coach-hom
 **Oliver Glasner has guided Crystal Palace to the verge of history**\
 `Nothing has been won yet but Palace's manager has established a feeling that they can beat anyone on their day - as Villa discovered`\
 https://nytimes.com/athletic/6303190/2025/04/27/crystal-palace-fa-cup-oliver-glasner/
-
-**Choose your PTSD: Clippers trade one flashback for a worse one in a split second**\
-`"This is what we want," Norman Powell said. "No team willing to give an inch, no team willing to back down."`\
-https://nytimes.com/athletic/6314516/2025/04/27/clippers-nuggets-nba-playoffs-game-4/
 
