@@ -1,3 +1,7 @@
+**Jiggly Caliente, ‘RuPaul’s Drag Race’ Star and Judge, Dies at 44**\
+`Fans knew Ms. Caliente for her sense of humor, vigorous dance skills and interactions with fellow cast members on the popular drag television show.`\
+https://nytimes.com/2025/04/27/arts/television/jiggly-caliente-rupaul-drag-race-dead.html
+
 **2 American Children Were Sent to Honduras With Their Undocumented Mother**\
 `The children, 4 and 7, were put on a plane with their mother, who was deported. The family’s lawyer said the mother was given no choice but to take her children, which the Trump administration denied.`\
 https://nytimes.com/2025/04/27/us/politics/us-citizen-children-deported-honduras-trump.html

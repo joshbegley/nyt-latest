@@ -18,7 +18,7 @@ https://nytimes.com/2025/04/27/world/middleeast/israel-strike-beirut-hezbollah.h
 `Analysis of the key moments and storylines from cycling's oldest Monument race`\
 https://nytimes.com/athletic/6315343/2025/04/27/liege-bastogne-liege-cycling-analysis-pogacar/
 
-**Jiggly Caliente, ‘RuPaul Drag Race’ Star and Judge, Dies at 44**\
+**Jiggly Caliente, ‘RuPaul’s Drag Race’ Star and Judge, Dies at 44**\
 `Fans knew Ms. Caliente for her sense of humor, vigorous dance skills and interactions with fellow cast members on the popular drag television show.`\
 https://nytimes.com/2025/04/27/arts/television/jiggly-caliente-rupaul-drag-race-dead.html
 
