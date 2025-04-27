@@ -1,3 +1,7 @@
+**Rockets' biggest playoff fears realized in Game 3 loss to Warriors**\
+`Led by Steph Curry, the Warriors took a 2-1 series lead over the Rockets thanks to a 104-93 win in Game 3 of their first-round series.`\
+https://nytimes.com/athletic/6314687/2025/04/27/warriors-rockets-nba-playoffs-curry/
+
 **Thompson: Steph Curry, from 'a galaxy nobody can touch,' lifts Warriors with stellar Game 3**\
 `With Jimmy Butler out, the burden fell to Steph Curry to carry the Warriors in Game 3. And he did what he's done so many times before.`\
 https://nytimes.com/athletic/6314951/2025/04/27/steph-curry-warriors-rockets-game-3-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/27/world/europe/crossbow-attack-leeds-terrorism.html
 **The Pulse: Drafts we liked amid a stunning slide**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6314538/2025/04/27/drafts-we-liked-the-stunning-slide-of-shedeur-sanders-and-a-stunning-buzzer-beater/
-
-**Why Adam Benák, one of the 2025 NHL Draft's smallest prospects, could defy his size**\
-`Benák's size, paired with his speed and smarts, make him one of the most interesting and also difficult case studies in this year's class.`\
-https://nytimes.com/athletic/6297049/2025/04/27/2025-nhl-draft-prospect-adam-benak/
 
