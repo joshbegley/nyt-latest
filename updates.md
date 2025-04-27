@@ -1,3 +1,11 @@
+**Avalanche demolish Stars to even series, Gabriel Landeskog scores: Takeaways**\
+`Mackenzie Blackwood earned a shutout and Landeskog scored his first NHL goal in nearly three years as Colorado defeated Dallas 4-0.`\
+https://nytimes.com/athletic/6314417/2025/04/27/avalanche-stars-nhl-playoffs-2025-game-4-takeaways/
+
+**Diamondbacks' Eugenio Suárez hits 4 home runs in loss to Braves**\
+`Suárez became the second player in MLB history to hit four homers in a game his team lost.`\
+https://nytimes.com/athletic/6314427/2025/04/27/diamondbacks-eugenio-suarez-four-home-runs/
+
 **Wendie Renard on her career so far: 'It’s an adventure which starts with these players'**\
 `On the brink of her 500th club appearance and with the Euros looming, France captain Renard takes The Athletic on a walk down memory lane`\
 https://nytimes.com/athletic/6272256/2025/04/27/wendie-renard-interview-lyon/

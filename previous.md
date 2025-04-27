@@ -1,3 +1,11 @@
+**Avalanche demolish Stars to even series, Gabriel Landeskog scores: Takeaways**\
+`Mackenzie Blackwood earned a shutout and Landeskog scored his first NHL goal in nearly three years as Colorado defeated Dallas 4-0.`\
+https://nytimes.com/athletic/6314417/2025/04/27/avalanche-stars-nhl-playoffs-2025-game-4-takeaways/
+
+**Diamondbacks' Eugenio Suárez hits 4 home runs in loss to Braves**\
+`Suárez became the second player in MLB history to hit four homers in a game his team lost.`\
+https://nytimes.com/athletic/6314427/2025/04/27/diamondbacks-eugenio-suarez-four-home-runs/
+
 **Washington’s Besieged Journalists Raise a Cocktail Glass, Darkly**\
 `The annual weekend celebrating America’s free press went forward, even as the Trump administration chips away at press freedoms.`\
 https://nytimes.com/2025/04/27/business/media/white-house-correspondents-dinner.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6305043/2025/04/27/premier-league-awards-nba-style/
 **Explained: How, why and when Liverpool will win the 2024-25 Premier League**\
 `A draw against Tottenham on Sunday will secure the club's 20th league title, though they will have to wait to get their hands on the trophy`\
 https://nytimes.com/athletic/6304719/2025/04/27/liverpool-title-slot-premier-league-when/
-
-**As Cardinals Prepare to Elect a Pope, One Motto Is ‘Unity.’ That’s Divisive.**\
-`Some see the byword as a rallying call in a conservative campaign to reverse Francis’ push for a more inclusive church.`\
-https://nytimes.com/2025/04/27/world/europe/cardinals-church-conclave-pope.html
-
-**Europe’s Pharma Industry Braces for Pain as Trump Tariff Threat Looms**\
-`Medicines and chemicals are huge exports for European Union countries. That makes the sector a weak spot as trade tensions drag on.`\
-https://nytimes.com/2025/04/27/world/europe/tariffs-pharmaceuticals-drugs-medicine-trump.html
 
