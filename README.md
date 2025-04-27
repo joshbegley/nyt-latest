@@ -1,6 +1,14 @@
-**Kevin Gausman ejected after throwing 53 pitches in an inning**\
+**Zurab Tsereteli, Polarizing Russian Sculptor of Colossal Works, Dies at 91**\
+`In bronze, he glorified figures like Peter the Great and Vladimir Putin, often to the public’s distaste. Some works, like a giant Columbus and a 9/11 memorial, were reviled.`\
+https://nytimes.com/2025/04/27/world/europe/zurab-tsereteli-dead.html
+
+**Another big Blues win over the Jets has series tied 2-2: Takeaways**\
+`The Blues chased Connor Hellebuyck from the game for the second time en route to a 5-1 victory in Game 4.`\
+https://nytimes.com/athletic/6315725/2025/04/27/nhl-playoffs-blues-jets-game-4/
+
+**Blue Jays' Kevin Gausman throws 53 pitches in an inning before being ejected**\
 `Gausman's marathon third inning matched the previous high for a Blue Jays pitcher, set in 1998 by Woody Williams.`\
-https://nytimes.com/athletic/6315702/2025/04/27/blue-jays-kevin-gausman-ejected-after-throwing-53-pitches-inning/
+https://nytimes.com/athletic/6315702/2025/04/27/blue-jays-kevin-gausman-ejected/
 
 **Authorities Make Arrest Linked to Noem’s Stolen Purse**\
 `Homeland Security Secretary Kristi Noem’s purse contained her driver’s license, government badge, passport and $3,000 in cash when it was swiped from an upscale burger restaurant.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6315343/2025/04/27/liege-bastogne-liege-cycling-ana
 **Jiggly Caliente, ‘RuPaul’s Drag Race’ Star and Judge, Dies at 44**\
 `Fans knew Ms. Caliente for her sense of humor, vigorous dance skills and interactions with fellow cast members on the popular drag television show.`\
 https://nytimes.com/2025/04/27/arts/television/jiggly-caliente-rupaul-drag-race-dead.html
-
-**The Upper Midwest Is in the Bull’s-Eye of a Severe Weather Threat on Monday**\
-`“It’s not very often that we see this,” one National Weather Service forecaster said of the risk level being predicted for parts of Iowa, Minnesota and Wisconsin.`\
-https://nytimes.com/2025/04/27/weather/storms-forecast-tornadoes-minnesota-wisconsin-iowa.html
-
-**How Liverpool won the Premier League: Dire Straits, coffee club and one big outburst**\
-`How Dire Straits, coffee club and one volcanic outburst from Arne Slot helped secure an historic triumph`\
-https://nytimes.com/athletic/6235236/2025/04/27/liverpool-premier-league-title-inside-story/
 

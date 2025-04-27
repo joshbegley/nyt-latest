@@ -1,3 +1,7 @@
+**Kevin Gausman ejected after throwing 53 pitches in an inning**\
+`Gausman's marathon third inning matched the previous high for a Blue Jays pitcher, set in 1998 by Woody Williams.`\
+https://nytimes.com/athletic/6315702/2025/04/27/blue-jays-kevin-gausman-ejected-after-throwing-53-pitches-inning/
+
 **Authorities Make Arrest Linked to Noem’s Stolen Purse**\
 `Homeland Security Secretary Kristi Noem’s purse contained her driver’s license, government badge, passport and $3,000 in cash when it was swiped from an upscale burger restaurant.`\
 https://nytimes.com/2025/04/27/us/politics/kristi-noem-purse-theft-arrest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/27/weather/storms-forecast-tornadoes-minnesota-wisco
 **How Liverpool won the Premier League: Dire Straits, coffee club and one big outburst**\
 `How Dire Straits, coffee club and one volcanic outburst from Arne Slot helped secure an historic triumph`\
 https://nytimes.com/athletic/6235236/2025/04/27/liverpool-premier-league-title-inside-story/
-
-**Arsenal reach first Women's Champions League final since 2007 after win vs Lyon**\
-`Arsenal will play Barcelona in May's final.`\
-https://nytimes.com/athletic/6315336/2025/04/27/arsenal-lyon-womens-champions-league-final/
 
