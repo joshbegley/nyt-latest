@@ -1,3 +1,7 @@
+**Mike Myers is ready to defend Canada.**\
+`By Sarah Lyall`\
+https://nytimes.com/live/2025/04/28/world/canada-election/mike-myers-is-ready-to-defend-canada
+
 **Arsenal fans: What should the starting XI be for the PSG first leg?**\
 `Merino? Timber? White? Trossard? Who will line up where for Arsenal on Tuesday?`\
 https://nytimes.com/athletic/6317504/2025/04/28/arsenal-fans-what-should-the-starting-xi-be-for-the-psg-first-leg/

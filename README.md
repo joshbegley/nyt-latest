@@ -22,8 +22,8 @@ https://nytimes.com/athletic/6317941/2025/04/28/damian-lillard-injury-achilles-b
 `Contestants gathered in Belgium to screech and move like gulls in a competition that is meant to “make sea gulls sexy again.”`\
 https://nytimes.com/2025/04/28/world/europe/seagull-screeching-competition-europe.html
 
-**Europeans Screech Off at Belguim’s Sea Gull Imitation Championship**\
-`Contestant from Denmark, Italy and Britain won the top medals in this year’s European Sea Gull Screeching Championship in the coastal Belgian town of De Panne.`\
+**Europeans Screech Off at Belgium’s Sea Gull Imitation Championship**\
+`Contestants from Denmark, Italy and Britain won the top medals in this year’s European Sea Gull Screeching Championship in the coastal Belgian town of De Panne.`\
 https://nytimes.com/video/world/europe/100000010134350/belguim-europe-seagull-competition.html
 
 **2025 dynasty league SuperFlex Top 30 rookie rankings (with tiers)**\
