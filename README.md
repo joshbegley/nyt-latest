@@ -1,6 +1,6 @@
 **Dozens Killed in Attack on Migrant Facility in Yemen, Houthis Say**\
 `There was no immediate comment from the U.S. military, which the Iran-backed Houthi militia blamed for the attack in Saada.`\
-https://nytimes.com/2025/04/28/world/middleeast/dozens-killed-in-attack-on-migrant-facility-in-yemen-houthis-say.html
+https://nytimes.com/2025/04/28/world/middleeast/yemen-houthis-saada-migrants.html
 
 **No Corrections: April 28, 2025**\
 `No corrections appeared in print on Monday, April 28, 2025.`\
