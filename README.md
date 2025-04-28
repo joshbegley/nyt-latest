@@ -1,3 +1,11 @@
+**A Sri Lankan Feast on a Tropical Modernist Estate**\
+`The chef Cynthia Shanmugalingam cooked a meal that celebrated the country’s heirloom produce and homegrown creative culture.`\
+https://nytimes.com/2025/04/28/t-magazine/cynthia-shanmugalingam-sri-lanka-meal.html
+
+**Penguins coaching candidates: Who could replace Mike Sullivan?**\
+`A look at some names that could be in the running to become the next coach of the Penguins. `\
+https://nytimes.com/athletic/6318039/2025/04/28/penguins-coaching-candidates-mike-sullivan-replacement/
+
 **Red Light: How worried should the Jets be?**\
 `Plus the Capitals vs. the red-hot Montreal crowd.`\
 https://nytimes.com/athletic/6317996/2025/04/28/nhl-red-light-winnipeg-jets-playoffs/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/28/business/economy/howard-lutnick-trump-tariffs.htm
 **USMNT Player Tracker: Pulisic saves Milan (again), Richards gets real and Paredes setback**\
 `Cameron-Carter Vickers and Auston Trusty tasted title joy (and tangerines) in Scotland, while Kevin Paredes suffered another injury blow`\
 https://nytimes.com/athletic/6317491/2025/04/28/usmnt-pulisic-richards-parades/
-
-**Jakob Ingebrigtsen's mother demands behind-closed-doors testimony in husband's trial**\
-`Gjert Ingebrigtsen is accused of abusing two of his children, including Olympic champion Jakob, over several years.`\
-https://nytimes.com/athletic/6317415/2025/04/28/gjert-ingebrigtsen-trial-jakob-mother-court-closed/
-
-**Mayor of London Sadiq Khan wants city to host 2040 Olympics**\
-`Another successful bid would make London the only city to host the Games four times.`\
-https://nytimes.com/athletic/6318094/2025/04/28/sadiq-khan-london-2040-olympics/
 
