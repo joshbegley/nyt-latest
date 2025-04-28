@@ -1,3 +1,7 @@
+**Bucks star Damian Lillard leaves Game 4 with leg injury, will not return**\
+`The severity of Lillard's injury is not expected to be known until Monday.`\
+https://nytimes.com/athletic/6316705/2025/04/27/damian-lillard-out-game-4-bucks-pacers/
+
 **Blue Jays takeaways: 'Less is more' for Chris Bassitt, the Aaron Judge plan and more**\
 `The Blue Jays struggled with men on base in the Bronx and need a No. 5 starter with Max Scherzer on the IL.`\
 https://nytimes.com/athletic/6316699/2025/04/27/blue-jays-chris-bassitt-aaron-judge-plan/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6316501/2025/04/27/timo-meier-frederik-andersen-con
 **Padres takeaways: Swept away, Xander Bogaerts’ power outage, bullpen flowers**\
 `“It’s not as easy as we made it look, and it’s not as hard as it is now," manager Mike Shildt said of San Diego's season.`\
 https://nytimes.com/athletic/6316568/2025/04/27/san-diego-padres-losing-streak/
-
-**‘Real Women Have Curves’ Review: This American (Immigrant) Life**\
-`On Broadway, the musical adaptation is a bouncy crowd pleaser about female empowerment, self-acceptance and chasing one’s dreams.`\
-https://nytimes.com/2025/04/27/theater/real-women-have-curves-review.html
 

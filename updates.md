@@ -1,3 +1,7 @@
+**Bucks star Damian Lillard leaves Game 4 with leg injury, will not return**\
+`The severity of Lillard's injury is not expected to be known until Monday.`\
+https://nytimes.com/athletic/6316705/2025/04/27/damian-lillard-out-game-4-bucks-pacers/
+
 **Blue Jays takeaways: 'Less is more' for Chris Bassitt, the Aaron Judge plan and more**\
 `The Blue Jays struggled with men on base in the Bronx and need a No. 5 starter with Max Scherzer on the IL.`\
 https://nytimes.com/athletic/6316699/2025/04/27/blue-jays-chris-bassitt-aaron-judge-plan/
