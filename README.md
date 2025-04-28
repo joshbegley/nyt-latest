@@ -1,3 +1,11 @@
+**Midwest Braces Amid Threat from Pounding Winds, Hail and Tornadoes**\
+`Officials in the Upper Midwest warned of possible power outages and closed some schools early as the storms loomed.`\
+https://nytimes.com/2025/04/28/us/midwest-braces-amid-threat-from-pounding-winds-hail-and-tornadoes.html
+
+**The Satchel: Send your Bills questions to Tim Graham**\
+`Ask Bills questions to Tim Graham. `\
+https://nytimes.com/athletic/6319028/2025/04/28/buffalo-bills-draft-mailbag-questions-tim-graham/
+
 **When Do Polls Close?**\
 `The poll closures are synchronized to happen at roughly the same time across Canada.`\
 https://nytimes.com/2025/04/28/world/canada/when-do-polls-close.html
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/6318929/2025/04/28/submit-a-question-for-stewart-ma
 **BatX fantasy baseball cheat sheet: Add Zach Neto, start Kansas City hitters**\
 `The Athletic and BatX teamed up to offer a weekly one-stop shop for fantasy managers who don't have time to scour the metrics. `\
 https://nytimes.com/athletic/6317862/2025/04/28/batx-fantasy-baseball-cheat-sheet-add-zach-neto-start-kansas-city-hitters/
-
-**Justices Appear Skeptical of School District in Student Disability Rights Case**\
-`The case is being watched closely by disability rights groups, which warned that arguments by a school district could threaten broader protections for disabled people.`\
-https://nytimes.com/2025/04/28/us/politics/supreme-court-student-disability.html
-
-**The ‘Generation Trump’ Thesis Is Looking a Lot Shakier**\
-`Six months ago, the victory of the ex-president wasn’t just a devastating defeat for the left; it also marked a tectonic shift. Now, though, the polling looks different.`\
-https://nytimes.com/live/2025/04/21/opinion/thepoint/trump-approval-youth-vote
 
