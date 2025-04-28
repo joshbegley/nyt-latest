@@ -1,3 +1,7 @@
+**Andrew Novak finally breaks through, teaming with Ben Griffin to win Zurich Classic**\
+`Journeymen golfer finally earns victory after a series of close calls.`\
+https://nytimes.com/athletic/6316329/2025/04/27/zurich-classic-pga-tour-andrew-novak-ben-griffin/
+
 **Twins takeaways: Joe Ryan's poise, Carlos Correa's hitting and more from a 5-1 homestand**\
 `There was a moment during Ryan’s 11-strikeout performance when everything could have gone sideways. With the help of his catcher, it didn't.`\
 https://nytimes.com/athletic/6316248/2025/04/27/twins-angels-takeaways-joe-ryan-carlos-correa/

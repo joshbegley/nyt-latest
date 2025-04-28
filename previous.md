@@ -1,3 +1,7 @@
+**Andrew Novak finally breaks through, teaming with Ben Griffin to win Zurich Classic**\
+`Journeymen golfer finally earns victory after a series of close calls.`\
+https://nytimes.com/athletic/6316329/2025/04/27/zurich-classic-pga-tour-andrew-novak-ben-griffin/
+
 **Twins takeaways: Joe Ryan's poise, Carlos Correa's hitting and more from a 5-1 homestand**\
 `There was a moment during Ryan’s 11-strikeout performance when everything could have gone sideways. With the help of his catcher, it didn't.`\
 https://nytimes.com/athletic/6316248/2025/04/27/twins-angels-takeaways-joe-ryan-carlos-correa/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6316015/2025/04/27/jalen-brunson-clutch-knicks-pist
 **Hurricanes take 3-1 series lead vs. Devils, but Frederik Andersen injured in win: Takeaways**\
 `Andrei Svechnikov had a hat trick for Carolina in the 5-2 win. Game 5 of the teams' first-round series is Tuesday in Raleigh.`\
 https://nytimes.com/athletic/6316146/2025/04/27/hurricanes-devils-game-4-nhl-playoffs/
-
-**Dick Barnett, Champion Knick With a Singular Jump Shot, Dies at 88**\
-`A guard, he played on New York’s two (and only) title-winning teams, in the 1970s. He was remembered for his scoring and his “fall back, baby” shooting style.`\
-https://nytimes.com/2025/04/27/sports/basketball/dick-barnett-dead.html
 
