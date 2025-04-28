@@ -1,3 +1,7 @@
+**Lions post-NFL draft depth chart: A guard battle, questions at safety and edge**\
+`The Lions acquired some intriguing players during the draft.`\
+https://nytimes.com/athletic/6315752/2025/04/28/lions-depth-chart-nfl-draft-2025/
+
 **Bills had a mission for the NFL Draft. What's ahead as they look to overcome weaknesses?**\
 `The Bills focused almost exclusively on defense in this year's draft.`\
 https://nytimes.com/athletic/6313169/2025/04/28/bills-nfl-draft-2025-picks-defense/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6315941/2025/04/28/aston-villa-tottenham-premier-le
 **The QB-needy team list shrunk during draft; what does that mean for Kirk Cousins, Falcons?**\
 `The Falcons still have Kirk Cousins on the roster and several teams with quarterback needs drafted one so where does that leave Atlanta?`\
 https://nytimes.com/athletic/6315179/2025/04/28/falcons-kirk-cousins-quarterback-needy-teams/
-
-**What's real and what's questionable about Yankees' hot start?**\
-`Aaron Judge is still the best player in baseball. Meanwhile, the starting rotation might be OK, even without ace Gerrit Cole and Luis Gil.`\
-https://nytimes.com/athletic/6316656/2025/04/28/yankees-hot-start-questions-and-reality/
 

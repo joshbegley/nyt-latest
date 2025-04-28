@@ -1,3 +1,7 @@
+**Lions post-NFL draft depth chart: A guard battle, questions at safety and edge**\
+`The Lions acquired some intriguing players during the draft.`\
+https://nytimes.com/athletic/6315752/2025/04/28/lions-depth-chart-nfl-draft-2025/
+
 **Bills had a mission for the NFL Draft. What's ahead as they look to overcome weaknesses?**\
 `The Bills focused almost exclusively on defense in this year's draft.`\
 https://nytimes.com/athletic/6313169/2025/04/28/bills-nfl-draft-2025-picks-defense/
