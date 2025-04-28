@@ -1,3 +1,31 @@
+**Damian Lillard tears Achilles, ending his season with Bucks**\
+`The nine-time All-Star will now face a grueling rehab process as he tries to return to the floor.`\
+https://nytimes.com/athletic/6317941/2025/04/28/damian-lillard-injury-achilles-bucks/
+
+**To Win This Contest, Just Squawk Like a Seagull**\
+`Contestants gathered in Belgium to screech and move like gulls in a competition that is meant to “make sea gulls sexy again.”`\
+https://nytimes.com/2025/04/28/world/europe/seagull-screeching-competition-europe.html
+
+**Europeans Screech Off at Belguim’s Sea Gull Imitation Championship**\
+`Contestant from Denmark, Italy and Britain won the top medals in this year’s European Sea Gull Screeching Championship in the coastal Belgian town of De Panne.`\
+https://nytimes.com/video/world/europe/100000010134350/belguim-europe-seagull-competition.html
+
+**2025 dynasty league SuperFlex Top 30 rookie rankings (with tiers)**\
+`Jeff Haverlack offers up his post-NFL draft rookie rankings for SuperFlex formats, with two first-round running backs leading the way.`\
+https://nytimes.com/athletic/6317966/2025/04/28/dynasty-league-superflex-top-30-rookie-rankings-tiers-ashton-jeanty/
+
+**John Jasperse Starts La MaMa Moves! Honoring a Female Lineage**\
+`Jasperse’s engrossing “Tides” was a thrilling opener to a festival that often feels like a home for first drafts.`\
+https://nytimes.com/2025/04/28/arts/dance/john-jasperse-la-mama-moves-tides.html
+
+**Despite his shaky French, Mark Carney is a hit in Quebec.**\
+`By Norimitsu Onishi`\
+https://nytimes.com/live/2025/04/28/world/canada-election/despite-his-shaky-french-mark-carney-is-a-hit-in-quebec
+
+**Bob Baffert looks to reclaim his place at the Kentucky Derby: 'I just want to move forward.'**\
+`Three years after Medina Spirit's victory was stripped due to a failed drug test, Baffert looks to reclaim his place at Churchill Downs.`\
+https://nytimes.com/athletic/6317795/2025/04/28/kentucky-derby-bob-baffert-return-suspension/
+
 **D.C. United owns Pogba's discovery rights**\
 `Pogba, 32, has been eligible to return to competitive soccer since March after serving an 18-month ban for an anti-doping violation.`\
 https://nytimes.com/athletic/6318316/2025/04/28/paul-pogba-dc-united-mls-next/
@@ -9,32 +37,4 @@ https://nytimes.com/2025/04/28/nyregion/subway-corpse-abuse-arrest.html
 **Blackouts Across Spain and Portugal Disrupt Critical Infrastructure**\
 `Millions of people in Spain and Portugal were without power after a widespread outage brought daily activity to a halt throughout the two countries.`\
 https://nytimes.com/video/world/europe/100000010133965/blackout-in-spain-and-portugal.html
-
-**Dutch Municipality Accidentally Discards a 1980s Warhol Print**\
-`A portrait of former Queen Beatrix of the Netherlands might have been worth tens of thousands of dollars. It was probably thrown out during a renovation.`\
-https://nytimes.com/2025/04/28/world/europe/andy-warhol-netherlands-town-hall-beatrix.html
-
-**FIA president considering changes to penalty guidelines including swearing**\
-`The FIA introduced new rules in January that threaten fines, points penalties and race bans for misconduct.`\
-https://nytimes.com/athletic/6318234/2025/04/28/fia-president-penalty-guidelines-swearing/
-
-**Canada’s million-dollar housing crisis is a top concern for voters.**\
-`By Vjosa Isai`\
-https://nytimes.com/live/2025/04/28/world/canada-election/canadas-million-dollar-housing-crisis-is-a-top-concern-for-voters
-
-**Vaibhav Suryavanshi, 14, becomes youngest player to hit IPL hundred**\
-`The left-hand batter reached the milestone in just 35 balls — the second-fastest in the history of the competition.`\
-https://nytimes.com/athletic/6318241/2025/04/28/vaibhav-suryavanshi-hundred-ipl-age/
-
-**The Chaotic First 100 Days of Trump 2.0**\
-`Responses to a column by David Brooks about President Trump’s “energy.” Also: Cutting regulations; a project for Democrats; a general’s call to arms; how to age well.`\
-https://nytimes.com/2025/04/28/opinion/trump-100-days.html
-
-**Connolly, Top Democrat on Oversight Panel, to Relinquish Post and Retire**\
-`Representative Gerald E. Connolly of Virginia said he would not run for re-election. He will also give up his leadership spot on the oversight panel as he faces cancer.`\
-https://nytimes.com/2025/04/28/us/politics/rep-gerald-connolly-retire.html
-
-**Bill Belichick’s Girlfriend Takes Charge in Awkward Interview**\
-`The legendary football coach has never shared much with the news media, but on Sunday it was Jordon Hudson who shut down a line of questioning.`\
-https://nytimes.com/2025/04/28/style/bill-belichick-girlfriend-jordon-hudson-interview.html
 

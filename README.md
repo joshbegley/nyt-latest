@@ -1,3 +1,7 @@
+**What we're seeing from Leafs as Game 5 looms**\
+`Auston Matthews and Joseph Woll miss practice, Max Domi faces questions over discipline, plus: lineup notes. `\
+https://nytimes.com/athletic/6318194/2025/04/28/maple-leafs-practice-notebook-nhl-playoffs/
+
 **Damian Lillard tears Achilles, ending his season with Bucks**\
 `The nine-time All-Star will now face a grueling rehab process as he tries to return to the floor.`\
 https://nytimes.com/athletic/6317941/2025/04/28/damian-lillard-injury-achilles-bucks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6318316/2025/04/28/paul-pogba-dc-united-mls-next/
 **Police Arrest a Man They Say Abused a Corpse on the R Train**\
 `A Brooklyn man has been charged with first-degree rape after the police said he violated the body of a dead man on the subway in Manhattan.`\
 https://nytimes.com/2025/04/28/nyregion/subway-corpse-abuse-arrest.html
-
-**Blackouts Across Spain and Portugal Disrupt Critical Infrastructure**\
-`Millions of people in Spain and Portugal were without power after a widespread outage brought daily activity to a halt throughout the two countries.`\
-https://nytimes.com/video/world/europe/100000010133965/blackout-in-spain-and-portugal.html
 
