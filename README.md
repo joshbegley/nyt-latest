@@ -1,3 +1,7 @@
+**Blackouts Across Spain and Portugal Disrupt Critical Infrastructure**\
+`Millions of people in Spain and Portugal were without power after a widespread outage brought daily activity to a halt throughout the two countries.`\
+https://nytimes.com/video/world/europe/100000010133965/blackout-in-spain-and-portugal.html
+
 **Dutch Municipality Accidentally Discards a 1980s Warhol Print**\
 `A portrait of former Queen Beatrix of the Netherlands might have been worth tens of thousands of dollars. It was probably thrown out during a renovation.`\
 https://nytimes.com/2025/04/28/world/europe/andy-warhol-netherlands-town-hall-beatrix.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/28/t-magazine/cynthia-shanmugalingam-sri-lanka-meal.
 **Penguins coaching candidates: Who could replace Mike Sullivan?**\
 `A look at some names that could be in the running to become the next coach of the Penguins. `\
 https://nytimes.com/athletic/6318039/2025/04/28/penguins-coaching-candidates-mike-sullivan-replacement/
-
-**Red Light: How worried should the Jets be?**\
-`Plus the Capitals vs. the red-hot Montreal crowd.`\
-https://nytimes.com/athletic/6317996/2025/04/28/nhl-red-light-winnipeg-jets-playoffs/
 
