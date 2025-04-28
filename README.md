@@ -1,3 +1,11 @@
+**Broncos' Greenlaw has quad injury, expected to be ready for season: Sources**\
+`After spending six seasons with San Francisco, Greenlaw inked a three-year deal with Denver in March. `\
+https://nytimes.com/athletic/6316393/2025/04/27/broncos-dre-greenlaw-suffers-quad-injury-expected-to-be-ready-for-2025-season-sources/
+
+**‘The Last of Us’ Season 2, Episode 3 Recap: Rate Your Pain**\
+`The first episode after last week’s loss of a major character makes a fine case for this season’s future.`\
+https://nytimes.com/2025/04/27/arts/television/the-last-of-us-recap-season-2-episode-3.html
+
 **Devils' Timo Meier, a controversial collision and the edge between reckless and 'made for the playoffs'**\
 `Meier ran into Frederik Andersen in Game 4 of the teams' first-round series Sunday, sending the Hurricanes goalie to the injury ward.`\
 https://nytimes.com/athletic/6316501/2025/04/27/timo-meier-frederik-andersen-controversy-nhl-playoffs/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/27/arts/music/rock-and-roll-hall-of-fame-chubby-chec
 **The Poetry Challenge Day 1: Learn a poem with us this week. Keep it for a lifetime.**\
 `Starting today, we’ll have a week of games, videos and essays to help you along the way. First up: readings by Ina Garten, Ethan Hawke and Ada Limón.`\
 https://nytimes.com/interactive/2025/books/edna-st-vincent-millay-recuerdo-poem-challenge.html
-
-**Andrew Novak finally breaks through, teaming with Ben Griffin to win Zurich Classic**\
-`Journeymen golfer finally earns victory after a series of close calls.`\
-https://nytimes.com/athletic/6316329/2025/04/27/zurich-classic-pga-tour-andrew-novak-ben-griffin/
-
-**Twins takeaways: Joe Ryan's poise, Carlos Correa's hitting and more from a 5-1 homestand**\
-`There was a moment during Ryan’s 11-strikeout performance when everything could have gone sideways. With the help of his catcher, it didn't.`\
-https://nytimes.com/athletic/6316248/2025/04/27/minnesota-twins-week-schedule-results/
 
