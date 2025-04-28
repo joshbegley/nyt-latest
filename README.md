@@ -1,3 +1,11 @@
+**Murder Trial Opens for Michigan Officer in Traffic Stop Shooting**\
+`Christopher Schurr, a former Grand Rapids police officer, is charged with second-degree murder. His lawyers say he acted in self-defense.`\
+https://nytimes.com/2025/04/28/us/patrick-lyoya-killing-police-trial-michigan.html
+
+**Mets' Brandon Nimmo ties franchise record with 9 RBIs**\
+`Carlos Delgado had nine RBIs in a game against the New York Yankees in 2008. On Monday, Nimmo matched Delgado's feat.`\
+https://nytimes.com/athletic/6319163/2025/04/28/mets-brandon-nimmo-nine-rbis/
+
 **Immigration policy, once expected to be an election-defining issue, has fallen among voters’ concerns.**\
 `By Vjosa Isai`\
 https://nytimes.com/live/2025/04/28/world/canada-election/immigration-policy-once-expected-to-be-an-election-defining-issue-has-fallen-among-voters-concerns
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/28/briefing/canada-election-president-trump-justice-
 **In Canada’s fight with Trump, Danielle Smith is playing the good cop.**\
 `By Matina Stevis-Gridneff`\
 https://nytimes.com/live/2025/04/28/world/canada-election/in-canadas-fight-with-trump-danielle-smith-is-playing-the-good-cop
-
-**Midwest Braces Amid Threat from Pounding Winds, Hail and Tornadoes**\
-`Officials in the Upper Midwest warned of possible power outages and closed some schools early as the storms loomed.`\
-https://nytimes.com/2025/04/28/us/tornado-severe-weather-minnesota-iowa-wisconsin.html
-
-**The Satchel: Send your Bills questions to Tim Graham**\
-`Ask Bills questions to Tim Graham. `\
-https://nytimes.com/athletic/6319028/2025/04/28/buffalo-bills-draft-mailbag-questions-tim-graham/
 
