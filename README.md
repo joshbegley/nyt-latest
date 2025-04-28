@@ -1,3 +1,23 @@
+**Caught Between Two Worlds, an Artist Prepares for His Biggest Show Yet**\
+`As Salman Toor’s work has become more politically conflicted and emotionally raw, he finds himself wondering, “What am I doing here in America?”`\
+https://nytimes.com/2025/04/28/arts/design/salman-toor-art-luhring-augustine.html
+
+**Go-To Noodles for On-the-Go Days**\
+`Hetty Lui McKinnon turns pantry staples (soy and hoisin sauces, dried noodles and garlic) into a craveable 25-minute dinner.`\
+https://nytimes.com/2025/04/28/dining/fast-noodles-dinner-recipe.html
+
+**News is blocked on Meta’s feeds in Canada. Here’s what fills the void.**\
+`By Matina Stevis-Gridneff and Stuart A. Thompson`\
+https://nytimes.com/live/2025/04/28/world/canada-election/news-is-blocked-on-metas-feeds-in-canada-heres-what-fills-the-void
+
+**Fill in the Blank: Which U.S. Cities Are in These Book Titles?**\
+`Try this short literary geography quiz.`\
+https://nytimes.com/interactive/2025/04/28/books/book-titles-cities.html
+
+**5 Places to Turn for Accurate Health Information**\
+`Changes to federal health websites have raised concerns about their reliability. These independent sources offer an alternative.`\
+https://nytimes.com/2025/04/28/well/health-information-accurate-online.html
+
 **Previously Unpublished: A Look at One of the Last Things Pope Francis Wrote**\
 `In a foreword to a book, he articulated the church’s position on marriage.`\
 https://nytimes.com/2025/04/28/us/pope-francis-unpublished-writing.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6317748/2025/04/28/mike-sullivan-bruins-coach-candi
 **How Trump, Trudeau and Tariffs Upended Canada’s Political Landscape**\
 `After nearly a decade in power, the Liberal Party seemed destined to be swept out on a wave of anti-incumbency sentiment. Then events took a surprising turn.`\
 https://nytimes.com/2025/04/28/world/canada/canada-elections-tariffs.html
-
-**NHL playoffs vibe check: Jets' defense, Kings' third periods, Landeskog's surprising play**\
-`Three teams are already on the brink of elimination in this year's NHL playoffs. Here's one trend from every series.`\
-https://nytimes.com/athletic/6316515/2025/04/28/nhl-playoffs-vibe-check-jets-kings-special-teams/
-
-**Brighton & Hove Albion mailbag: Do you have a question for our correspondent?**\
-`Post your Brighton questions here and our correspondent Andy Naylor will answer a selection of them`\
-https://nytimes.com/athletic/6317722/2025/04/28/brighton-hove-albion-mailbag-do-you-have-a-question-for-our-correspondent/
-
-**Submit questions for Aaron Gleeman's Twins mailbag**\
-`As the Twins open a four-game series in Cleveland after a 5-1 homestand, what questions do you have? Submit them here. `\
-https://nytimes.com/athletic/6317712/2025/04/28/twins-mailbag-questions-aaron-gleeman/
-
-**Fact-Checking Trump’s Claims About Columbus Day**\
-`President Trump said in a post on social media that he was “reinstating Columbus Day.” It was never canceled as a federal holiday.`\
-https://nytimes.com/2025/04/28/us/politics/trump-columbus-day-claims.html
-
-**Canadians are going to the polls. Here’s the latest.**\
-`In the most important election of a generation, Canadians are heading to the polls Monday. Here’s what to know, and what to expect.`\
-https://nytimes.com/live/2025/04/28/world/canada-election/canadians-are-going-to-the-polls-heres-the-latest
 
