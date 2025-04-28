@@ -1,3 +1,7 @@
+**How the Oilers gained the advantage in a war of attrition with the Kings**\
+`For the second straight game, the Oilers rallied in the third period and turned a probable loss into a dramatic win over the Kings.`\
+https://nytimes.com/athletic/6317195/2025/04/28/oilers-kings-game-4-nhl-playoffs/
+
 **‘Grandpa Robbers’ Go on Trial in Paris Over 2016 Kim Kardashian Heist**\
 `The reality TV star and entrepreneur was tied up and held at gunpoint, and jewelry worth nearly $9 million was stolen in the incident.`\
 https://nytimes.com/2025/04/28/world/europe/grandpa-robbers-go-on-trial-in-paris-over-2016-kim-kardashian-heist.html

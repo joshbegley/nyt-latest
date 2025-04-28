@@ -1,3 +1,11 @@
+**Major Power Outage Hits Spain, Portugal and France**\
+`The blackout affected millions of people and disrupted critical infrastructure such as train systems and traffic lights.`\
+https://nytimes.com/video/world/europe/100000010133699/power-outage-spain-portugal-france.html
+
+**Submit questions for Aaron Gleeman's Twins mailbag**\
+`As the Twins open a four-game series in Cleveland after a 5-1 homestand, what questions do you have about the team and the organization?`\
+https://nytimes.com/athletic/6317367/2025/04/28/minnesota-twins-mailbag-questions/
+
 **How the Oilers gained the advantage in a war of attrition with the Kings**\
 `For the second straight game, the Oilers rallied in the third period and turned a probable loss into a dramatic win over the Kings.`\
 https://nytimes.com/athletic/6317195/2025/04/28/oilers-kings-game-4-nhl-playoffs/
@@ -26,15 +34,7 @@ https://nytimes.com/athletic/6316848/2025/04/28/womens-college-basketball-transf
 `A national power outage disrupted the combined ATP and WTA Tour 1,000 event in Spain.`\
 https://nytimes.com/athletic/6317425/2025/04/28/spain-power-outage-madrid-open-tennis/
 
-**Trump Administration Live Updates: Two American Children Sent to Honduras With Deported Mother, Lawyer Says**\
+**Trump Administration Live Updates: New Orders Will Escalate Immigration Crackdown, White House Says**\
 ``\
 https://nytimes.com/live/2025/04/28/us/trump-news
-
-**Mirtle: Where and how Leafs must improve to win Game 5, eliminate Senators**\
-`The earlier the Leafs can close out this series, the better, but they won't if they repeat Game 4's performance.`\
-https://nytimes.com/athletic/6315770/2025/04/28/maple-leafs-nhl-playoffs-game-5-tweaks/
-
-**Why the Jets' 'best of three' series vs. Blues is 3 years in the making**\
-`The Jets don't need a miracle to win Game 5. They just need to meet the moment they worked so hard to create.`\
-https://nytimes.com/athletic/6315447/2025/04/28/jets-nhl-playoffs-blues-best-of-three/
 
