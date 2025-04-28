@@ -2,7 +2,7 @@
 `Joe Cocker, Cyndi Lauper, Bad Company and Soundgarden — but not Oasis or Phish — are also part of the 40th anniversary class.`\
 https://nytimes.com/2025/04/27/arts/music/rock-and-roll-hall-of-fame-chubby-checker-white-stripes.html
 
-**Day 1: Learn a poem with us this week. Keep it for a lifetime.**\
+**The Poetry Challenge Day 1: Learn a poem with us this week. Keep it for a lifetime.**\
 `Starting today, we’ll have a week of games, videos and essays to help you along the way. First up: readings by Ina Garten, Ethan Hawke and Ada Limón.`\
 https://nytimes.com/interactive/2025/books/edna-st-vincent-millay-recuerdo-poem-challenge.html
 
