@@ -1,3 +1,15 @@
+**Devils' Timo Meier, a controversial collision and the edge between reckless and 'made for the playoffs'**\
+`Meier ran into Frederik Andersen in Game 4 of the teams' first-round series Sunday, sending the Hurricanes goalie to the injury ward.`\
+https://nytimes.com/athletic/6316501/2025/04/27/timo-meier-frederik-andersen-controversy-nhl-playoffs/
+
+**Padres takeaways: Swept away, Xander Bogaerts’ power outage, bullpen flowers**\
+`“It’s not as easy as we made it look, and it’s not as hard as it is now," manager Mike Shildt said of San Diego's season.`\
+https://nytimes.com/athletic/6316568/2025/04/27/san-diego-padres-losing-streak/
+
+**Capitals fend off Canadiens, take 3-1 series lead: Takeaways**\
+`The Capitals cracked the code at Bell Centre, beating the Canadiens 5-2 and going up 3-1 in their first-round series.`\
+https://nytimes.com/athletic/6316489/2025/04/27/capitals-canadiens-nhl-playoffs-2025-game-4-takeaways/
+
 **‘Real Women Have Curves’ Review: This American (Immigrant) Life**\
 `On Broadway, the musical adaptation is a bouncy crowd pleaser about female empowerment, self-acceptance and chasing one’s dreams.`\
 https://nytimes.com/2025/04/27/theater/real-women-have-curves-review.html
