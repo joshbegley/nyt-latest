@@ -14,7 +14,7 @@ https://nytimes.com/2025/04/28/arts/television/watch-on-tv-this-week.html
 `Going after antisemitism on campus has swept up Jewish students protesting the war in Gaza.`\
 https://nytimes.com/2025/04/28/opinion/jewish-student-protesters-gaza.html
 
-**Trump Says He Wants to Save the U.S. Auto Industry. His Policies Could Destroy It.**\
+**Trump Is Laying a Potentially Deadly Trap for the U.S. Auto Industry**\
 `Trump’s approach risks leaving U.S. automakers isolated and incapable of competing on their own merits as foreign companies bolt ahead.`\
 https://nytimes.com/2025/04/28/opinion/trump-car-industry-tariffs.html
 

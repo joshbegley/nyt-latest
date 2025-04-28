@@ -1,3 +1,11 @@
+**Can the Magic follow the Celtics' lead and give their young stars the help they need?**\
+`Boston got supporting help for Jayson Tatum and Jaylen Brown. Now Orlando must do the same for Paolo Banchero and Franz Wagner.`\
+https://nytimes.com/athletic/6316998/2025/04/28/paolo-banchero-franz-wagner-magic-celtics-game-4-nba/
+
+**Kristaps Porziņģis, Celtics find the right adjustments in Game 4 win**\
+`Orlando shut off the 3-point arc to Boston earlier in the series, but Porziņģis shifted his approach, going straight to the rim for dunks.`\
+https://nytimes.com/athletic/6317014/2025/04/28/celtics-adjust-in-game-4-win/
+
 **Oilers tie Game 4 late, win it in OT to even series with Kings**\
 `Amazingly, this first-round matchup is all square as things shift back to Southern California.`\
 https://nytimes.com/athletic/6290497/2025/04/28/oilers-kings-nhl-playoffs-2025-game-4-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/28/briefing/canada-polls-ukraine-pope.html
 **Why this Premier League title meant everything to Liverpool**\
 `To understand why the outpouring of emotion in the city was so raw, you have to go back to 2020 and what came before that too`\
 https://nytimes.com/athletic/6315458/2025/04/28/liverpool-premier-league-title/
-
-**Enzo Maresca needs more Chelsea wins to turn doubters into believers**\
-`In the opening minutes, there are a few more chants than usual at Stamford Bridge but the optimism soon ends`\
-https://nytimes.com/athletic/6314782/2025/04/28/chelsea-everton-premier-league-fans-feature/
-
-**Emirates Stadium, European fortress**\
-`Led by Mikel Arteta, Arsenal have worked hard to make their stadium intimidating for European matches — and have reaped the rewards`\
-https://nytimes.com/athletic/6309918/2025/04/28/arsenal-fortress-emirates-champions-league/
 

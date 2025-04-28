@@ -1,3 +1,7 @@
+**Trump Is Laying a Potentially Deadly Trap for the U.S. Auto Industry**\
+`Trump’s approach risks leaving U.S. automakers isolated and incapable of competing on their own merits as foreign companies bolt ahead.`\
+https://nytimes.com/2025/04/28/opinion/trump-car-industry-tariffs.html
+
 **Oilers tie Game 4 late, win it in OT to even series with Kings**\
 `Amazingly, this first-round matchup is all square as things shift back to Southern California.`\
 https://nytimes.com/athletic/6290497/2025/04/28/oilers-kings-nhl-playoffs-2025-game-4-takeaways/
