@@ -1,3 +1,11 @@
+**What Canadian Voters Are Looking For in Their Next Prime Minister**\
+`Voters in Windsor, Ontario, the heart of the auto industry in Canada, shared their concerns about tariffs, inflation and President Donald Trump.`\
+https://nytimes.com/video/world/americas/100000010135335/canada-election-voters.html
+
+**Jimmy Butler will return to court for Warriors in Game 4 vs. Rockets**\
+`Butler missed Game 3 due to a deep glute contusion he suffered during a rough fall in Game 2.`\
+https://nytimes.com/athletic/6318984/2025/04/28/jimmy-butler-will-return-to-court-for-warriors-in-game-4-vs-rockets/
+
 **The Peace Corps, under review by DOGE, is said to plan ‘significant’ staff cuts.**\
 `The head of a Peace Corps alumni group said he was told the cuts would affect full-time employees, not the volunteers working overseas.`\
 https://nytimes.com/2025/04/28/us/politics/peace-corps-cuts-doge.html
