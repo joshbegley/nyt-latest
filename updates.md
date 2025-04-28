@@ -1,3 +1,7 @@
+**What we're seeing from Leafs as Game 5 looms**\
+`Auston Matthews and Joseph Woll miss practice, Max Domi faces questions over discipline, plus: lineup notes. `\
+https://nytimes.com/athletic/6318194/2025/04/28/maple-leafs-practice-notebook-nhl-playoffs/
+
 **Damian Lillard tears Achilles, ending his season with Bucks**\
 `The nine-time All-Star will now face a grueling rehab process as he tries to return to the floor.`\
 https://nytimes.com/athletic/6317941/2025/04/28/damian-lillard-injury-achilles-bucks/
