@@ -1,3 +1,19 @@
+**Even on Canada’s Election Day, Trump Again Insists Country Should Join U.S.**\
+`The American president repeated his “51st state” talk on social media as voting began.`\
+https://nytimes.com/2025/04/28/world/canada/trump-51-state.html
+
+**No one is to blame for the Penguins-Mike Sullivan split. It's just time**\
+`Sullivan's final chapters in Pittsburgh weren't great, but he is a giant in Penguins history and will be remembered as such.`\
+https://nytimes.com/athletic/6317752/2025/04/28/mike-sullivan-penguins-split-rebuild-time/
+
+**Outside his political base, Poilievre’s populist pitch is a harder sell.**\
+`By Norimitsu Onishi`\
+https://nytimes.com/live/2025/04/28/world/canada-election/outside-his-political-base-poilievres-populist-pitch-is-a-harder-sell
+
+**A lower-division league is good for women's soccer - but the landscape remains cluttered**\
+`NWSL’s Division II proposal is up against WPSL Pro, another league that announced its intentions to apply for Division II status last week.`\
+https://nytimes.com/athletic/6316891/2025/04/28/lower-divisions-soccer-nwsl/
+
 **Jean-Pierre Bonnefoux, Sinuous Ballet Dancer and Choreographer, Dies at 82**\
 `He brought grace and power to his roles before a serious injury encouraged him to try choreography — “maybe the richest part of my life.”`\
 https://nytimes.com/2025/04/28/arts/dance/jean-pierre-bonnefoux-dead.html
