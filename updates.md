@@ -1,3 +1,11 @@
+**I Can’t Believe Anyone Thinks Trump Actually Cares About Antisemitism**\
+`Jews should remember how Trump promised to “protect” L.G.B.T. citizens.`\
+https://nytimes.com/2025/04/28/opinion/trump-antisemitism-jews-israel.html
+
+**Yankees' Matt Blake says fans booing Devin Williams 'definitely doesn't help'**\
+`In place of Williams, Blake said he envisions Luke Weaver getting the majority of the save opportunities for the foreseeable future.`\
+https://nytimes.com/athletic/6319040/2025/04/28/new-york-yankees-devin-williams-fan-reaction/
+
 **What to watch in sports this week: Playoffs, Champions League and 151st Kentucky Derby**\
 `Here's what to look out for on the sports calendar, from nightly postseason action to big races in Miami and Churchill Downs.`\
 https://nytimes.com/athletic/6311090/2025/04/28/what-to-watch-in-sports-nba-playoffs-nhl-kentucky-derby-miami-grand-prix/

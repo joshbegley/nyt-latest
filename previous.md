@@ -1,3 +1,11 @@
+**I Can’t Believe Anyone Thinks Trump Actually Cares About Antisemitism**\
+`Jews should remember how Trump promised to “protect” L.G.B.T. citizens.`\
+https://nytimes.com/2025/04/28/opinion/trump-antisemitism-jews-israel.html
+
+**Yankees' Matt Blake says fans booing Devin Williams 'definitely doesn't help'**\
+`In place of Williams, Blake said he envisions Luke Weaver getting the majority of the save opportunities for the foreseeable future.`\
+https://nytimes.com/athletic/6319040/2025/04/28/new-york-yankees-devin-williams-fan-reaction/
+
 **What to watch in sports this week: Playoffs, Champions League and 151st Kentucky Derby**\
 `Here's what to look out for on the sports calendar, from nightly postseason action to big races in Miami and Churchill Downs.`\
 https://nytimes.com/athletic/6311090/2025/04/28/what-to-watch-in-sports-nba-playoffs-nhl-kentucky-derby-miami-grand-prix/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/28/us/politics/elon-musk-mark-kelly-trump-doge.html
 **What Canadian Voters Are Looking For in Their Next Prime Minister**\
 `Voters in Windsor, Ontario, the heart of the auto industry in Canada, shared their concerns about tariffs, inflation and President Donald Trump.`\
 https://nytimes.com/video/world/americas/100000010135335/canada-election-voters.html
-
-**Jimmy Butler will return to court for Warriors in Game 4 vs. Rockets**\
-`Butler missed Game 3 due to a deep glute contusion he suffered during a rough fall in Game 2.`\
-https://nytimes.com/athletic/6318984/2025/04/28/jimmy-butler-will-return-to-court-for-warriors-in-game-4-vs-rockets/
-
-**The Peace Corps, under review by DOGE, is said to plan ‘significant’ staff cuts.**\
-`The head of a Peace Corps alumni group said he was told the cuts would affect full-time employees, not the volunteers working overseas.`\
-https://nytimes.com/2025/04/28/us/politics/peace-corps-cuts-doge.html
 

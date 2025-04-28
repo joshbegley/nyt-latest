@@ -1,3 +1,7 @@
+**House Passes Bill to Ban Sharing of Revenge Porn, Sending It to Trump**\
+`The Take It Down Act, which united a coalition of conservative and liberal lawmakers, criminalizes the nonconsensual sharing of sexually explicit images of others and requires companies to remove them.`\
+https://nytimes.com/2025/04/28/us/politics/house-revenge-porn-bill.html
+
 **I Can’t Believe Anyone Thinks Trump Actually Cares About Antisemitism**\
 `Jews should remember how Trump promised to “protect” L.G.B.T. citizens.`\
 https://nytimes.com/2025/04/28/opinion/trump-antisemitism-jews-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/04/28/world/canada-election/immigration-policy-onc
 **Senator Denounces Musk’s Cuts: ‘Not What Anybody Signed Up For’**\
 `Mark Kelly of Arizona, a Democrat and former astronaut who previously consulted for SpaceX, discusses Elon Musk, DOGE and President Trump.`\
 https://nytimes.com/2025/04/28/us/politics/elon-musk-mark-kelly-trump-doge.html
-
-**What Canadian Voters Are Looking For in Their Next Prime Minister**\
-`Voters in Windsor, Ontario, the heart of the auto industry in Canada, shared their concerns about tariffs, inflation and President Donald Trump.`\
-https://nytimes.com/video/world/americas/100000010135335/canada-election-voters.html
 
