@@ -1,3 +1,7 @@
+**'Anybody can win Slams': Why the openness at the top of men's tennis is a false dawn**\
+`Despite more men's players feeling that they can win the biggest prizes in tennis, the statistics say the Grand Slams remain a closed shop.`\
+https://nytimes.com/athletic/6315299/2025/04/28/tennis-grand-slams-mens-winners-first-time/
+
 **The Athletic FC: Masterplan behind Liverpool title win, Copa del Rey chaos, Wrexham's rise**\
 `The Athletic FC is The Athletic’s daily football (or soccer, if you prefer) newsletter. Sign up to receive it directly to your inbox.`\
 https://nytimes.com/athletic/6317221/2025/04/28/liverpool-premier-league-title-plan-ancelotti-brazil/
