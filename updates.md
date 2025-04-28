@@ -1,3 +1,11 @@
+**Blackouts Across Spain and Portugal Disrupt Critical Infrastructure**\
+`Millions of people in Spain and Portugal were without power after a widespread outage brought daily activity to a halt throughout the two countries.`\
+https://nytimes.com/video/world/europe/100000010133965/blackout-in-spain-and-portugal.html
+
+**Dutch Municipality Accidentally Discards a 1980s Warhol Print**\
+`A portrait of former Queen Beatrix of the Netherlands might have been worth tens of thousands of dollars. It was probably thrown out during a renovation.`\
+https://nytimes.com/2025/04/28/world/europe/andy-warhol-netherlands-town-hall-beatrix.html
+
 **FIA president considering changes to penalty guidelines including swearing**\
 `The FIA introduced new rules in January that threaten fines, points penalties and race bans for misconduct.`\
 https://nytimes.com/athletic/6318234/2025/04/28/fia-president-penalty-guidelines-swearing/
