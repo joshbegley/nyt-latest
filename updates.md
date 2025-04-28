@@ -1,3 +1,11 @@
+**The Athletic college baseball Top 25: NC State, UNC enter top 10, Texas stays No. 1**\
+`Wolfpack climb 17 spots after sweeping Clemson. ACC now has four teams in the top 10. `\
+https://nytimes.com/athletic/6317518/2025/04/28/college-baseball-rankings-nc-state-north-carolina-texas/
+
+**In ‘Krapp’s Last Tape,’ Gary Oldman Hits Rewind**\
+`The star actor returns to the theater where he started almost a half-century ago, with Samuel Beckett’s bleak one-man play.`\
+https://nytimes.com/2025/04/28/theater/gary-oldman-krapps-last-tape-york.html
+
 **Penguins, 10-year coach Mike Sullivan part ways: What's next?**\
 `Sullivan departs as the winningest coach in team history and the NHL's second-longest tenured coach behind only Tampa Bay's Jon Cooper.`\
 https://nytimes.com/athletic/6317549/2025/04/28/mike-sullivan-part-ways-penguins-nhl/
