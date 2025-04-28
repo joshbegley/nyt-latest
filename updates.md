@@ -1,3 +1,11 @@
+**Can the Magic follow the Celtics' lead and give their young stars the help they need?**\
+`Boston got supporting help for Jayson Tatum and Jaylen Brown. Now Orlando must do the same for Paolo Banchero and Franz Wagner.`\
+https://nytimes.com/athletic/6316998/2025/04/28/paolo-banchero-franz-wagner-magic-celtics-game-4-nba/
+
+**Kristaps Porziņģis, Celtics find the right adjustments in Game 4 win**\
+`Orlando shut off the 3-point arc to Boston earlier in the series, but Porziņģis shifted his approach, going straight to the rim for dunks.`\
+https://nytimes.com/athletic/6317014/2025/04/28/celtics-adjust-in-game-4-win/
+
 **Trump Is Laying a Potentially Deadly Trap for the U.S. Auto Industry**\
 `Trump’s approach risks leaving U.S. automakers isolated and incapable of competing on their own merits as foreign companies bolt ahead.`\
 https://nytimes.com/2025/04/28/opinion/trump-car-industry-tariffs.html
