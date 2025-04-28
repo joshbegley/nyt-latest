@@ -1,8 +1,12 @@
+**Israeli Spy Chief to Step Down After Clash With Netanyahu**\
+`The departure of Israel’s domestic intelligence chief appeared to end his unusually public and clash with the prime minister.`\
+https://nytimes.com/2025/04/28/world/middleeast/israeli-spy-chief-netanyahu-ronen-bar-clash.html
+
 **Amazon to Launch First Project Kuiper Internet Satellites: What to Know**\
 `The spacecraft are the online giant’s entry into beaming wireless service from space, but the company has much to do before it can compete with SpaceX’s Starlink.`\
 https://nytimes.com/2025/04/28/science/amazon-kuiper-launch-ula.html
 
-**N.Y.P.D. Braces for Protest After Pro-Israel Demonstrators Assault Woman**\
+**Protesters to Rally in Brooklyn After Pro-Israel Crowd Assaults Woman**\
 `The police were investigating the attack in Crown Heights, where hundreds of pro-Israel demonstrators surrounded a woman and hurled slurs at her. More protests were expected on Monday.`\
 https://nytimes.com/2025/04/28/nyregion/protests-israel-woman-attacked-brooklyn.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/card/2025/04/28/style/desert-rodeo-thermal-ca
 **A Rising Democratic Star Pitches a ‘Resistance 2.0’ in the Age of Trump**\
 `Greg Casar, a Texas Democrat and new chairman of the House Progressive Caucus, says his party must adopt economic populism to recapture voters and effectively counter President Trump.`\
 https://nytimes.com/2025/04/28/us/politics/greg-casar-trump-democrats.html
-
-**Paralympian Sam Ruddock located safe after being reported missing in Las Vegas**\
-`Ruddock, 35, had last been heard from on April 16.`\
-https://nytimes.com/athletic/6318646/2025/04/28/sam-ruddock-paralympian-located-las-vegas/
 
