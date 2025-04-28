@@ -1,3 +1,7 @@
+**How Trump, Trudeau and Tariffs Upended Canada’s Political Landscape**\
+`After nearly a decade in power, the Liberal Party seemed destined to be swept out on a wave of anti-incumbency sentiment. Then events took a surprising turn.`\
+https://nytimes.com/2025/04/28/world/canada/canada-elections-tariffs.html
+
 **NHL playoffs vibe check: Jets' defense, Kings' third periods, Landeskog's surprising play**\
 `Three teams are already on the brink of elimination in this year's NHL playoffs. Here's one trend from every series.`\
 https://nytimes.com/athletic/6316515/2025/04/28/nhl-playoffs-vibe-check-jets-kings-special-teams/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6317026/2025/04/28/hurricanes-andrei-svechnikov-bre
 **Nebraska concludes spring with 'Husker Games': 10 thoughts from the festivities**\
 `A year after Nebraska lost two key pieces in the spring game to injury, Saturday served as a fun finish to five weeks of offseason practice.`\
 https://nytimes.com/athletic/6317571/2025/04/28/nebraska-husker-games-spring-game-matt-rhule/
-
-**The Sens need Linus Ullmark to steal Game 5 against the Maple Leafs**\
-`If the Senators want to complete their audacious comeback from 3-0, they're going to need a Vezina-worthy performance from Ullmark.`\
-https://nytimes.com/athletic/6315849/2025/04/28/senators-ullmark-maple-leafs-goalie/
 
