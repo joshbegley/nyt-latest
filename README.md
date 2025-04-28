@@ -1,3 +1,7 @@
+**When Do Polls Close?**\
+`The poll closures are synchronized to happen at roughly the same time across Canada.`\
+https://nytimes.com/2025/04/28/world/canada/when-do-polls-close.html
+
 **House G.O.P. Proposes Charging $1,000 to Claim Asylum, Hiking Fees on Migrants**\
 `As part of legislation to pay for President Trump’s domestic agenda, including his immigration crackdown, House Republicans want to impose or increase fees for legal entry into the United States.`\
 https://nytimes.com/2025/04/28/us/politics/house-republicans-asylum-fees.html
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/6318794/2025/04/28/wild-golden-knights-game-5-lineu
 `Tips from experts, astronauts and Cher on finding bliss.`\
 https://nytimes.com/interactive/2025/04/28/magazine/how-to-be-happy.html
 
-**In French-speaking Quebec, a local party shakes up the race.**\
+**In French-speaking Quebec, a regional party shakes up the race.**\
 `By Norimitsu Onishi`\
 https://nytimes.com/live/2025/04/28/world/canada-election/in-french-speaking-quebec-a-local-party-shakes-up-the-race
 
@@ -35,8 +39,4 @@ https://nytimes.com/2025/04/28/us/politics/supreme-court-student-disability.html
 **The ‘Generation Trump’ Thesis Is Looking a Lot Shakier**\
 `Six months ago, the victory of the ex-president wasn’t just a devastating defeat for the left; it also marked a tectonic shift. Now, though, the polling looks different.`\
 https://nytimes.com/live/2025/04/21/opinion/thepoint/trump-approval-youth-vote
-
-**Israeli Spy Chief to Step Down After Clash With Netanyahu**\
-`The departure of Israel’s domestic intelligence chief appeared to end his unusually public clash with the prime minister.`\
-https://nytimes.com/2025/04/28/world/middleeast/israeli-spy-chief-netanyahu-ronen-bar-clash.html
 
