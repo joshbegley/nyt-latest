@@ -1,14 +1,18 @@
+**How the Blues are beating Hellebuyck and more from a beer-chugging win over Jets**\
+`The Blues chased Connor Hellebuyck from the game for the second straight time in a 5-1 win over the Jets in Game 4.`\
+https://nytimes.com/athletic/6315401/2025/04/27/blues-defenseman-scoring-nhl-playoffs-hellebuyck-jets/
+
 **U.S. Military Says Its Air Campaign Has Hit More Than 800 Targets in Yemen**\
 `President Trump ordered a start to the strikes against the Houthis on March 15. Congressional officials say the campaign has cost well over $1 billion.`\
 https://nytimes.com/2025/04/27/us/politics/military-targets-houthis-yemen.html
 
 **Braves takeaways: Spencer Schwellenbach hits a lull, Ozzie Albies struggles and more**\
-`Schwellenbach got off to such a hot start that anything less than dominance seems a bit surprising. "He's fine" Brian Snitker said.`\
+`Schwellenbach got off to such a hot start that anything less than dominance seems a bit surprising. "He's fine," Brian Snitker said.`\
 https://nytimes.com/athletic/6316602/2025/04/27/braves-schwellenbach-albies/
 
 **Broncos' Greenlaw has quad injury, expected to be ready for season: Sources**\
 `After spending six seasons with San Francisco, Greenlaw inked a three-year deal with Denver in March. `\
-https://nytimes.com/athletic/6316393/2025/04/27/broncos-dre-greenlaw-suffers-quad-injury-expected-to-be-ready-for-2025-season-sources/
+https://nytimes.com/athletic/6316393/2025/04/27/broncos-dre-greenlaw-quad-injury/
 
 **‘The Last of Us’ Season 2, Episode 3 Recap: Rate Your Pain**\
 `The first episode after last week’s loss of a major character makes a fine case for this season’s future.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6316489/2025/04/27/capitals-canadiens-nhl-playoffs-
 **UFL investigating altercation involving fan, Panthers WR Samson Nacua**\
 `Nacua, brother of Rams receiver Puka Nacua, appeared to slap fan following game.`\
 https://nytimes.com/athletic/6316464/2025/04/27/ufl-investigating-altercation-fan-samson-nacua/
-
-**Dodger Details: Another injury for Tyler Glasnow, Andy Pages' surge and more**\
-`Glasnow vented after his latest setback: "I feel bad for my teammates. I feel bad for people watching."`\
-https://nytimes.com/athletic/6316492/2025/04/27/dodger-tyler-glasnow-injury-andy-pages/
 
