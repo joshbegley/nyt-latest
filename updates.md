@@ -1,3 +1,7 @@
+**E.P.A. Says It Will Tackle ‘Forever Chemicals.’ Details Are Sparse.**\
+`A new proposal to combat PFAS contamination, announced by the Environmental Protection Agency, left critical questions unanswered.`\
+https://nytimes.com/2025/04/28/climate/epa-pfas-forever-chemicals.html
+
 **Fiery Brandon Beane defends 2025 NFL Draft results. Which receivers could be good additions**\
 `Beane felt that the wide receiver class wasn't very deep this year.`\
 https://nytimes.com/athletic/6318393/2025/04/28/buffalo-bills-brandon-beane-comments-wide-receivers/
