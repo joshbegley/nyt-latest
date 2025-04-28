@@ -12,7 +12,7 @@ https://nytimes.com/athletic/6316329/2025/04/27/zurich-classic-pga-tour-andrew-n
 
 **Twins takeaways: Joe Ryan's poise, Carlos Correa's hitting and more from a 5-1 homestand**\
 `There was a moment during Ryan’s 11-strikeout performance when everything could have gone sideways. With the help of his catcher, it didn't.`\
-https://nytimes.com/athletic/6316248/2025/04/27/twins-angels-takeaways-joe-ryan-carlos-correa/
+https://nytimes.com/athletic/6316248/2025/04/27/minnesota-twins-week-schedule-results/
 
 **Chaos Graph**\
 `People immersed in chaos try to solve for what it all adds up to.`\
@@ -32,9 +32,9 @@ https://nytimes.com/2025/04/27/nyregion/protests-ben-gvir-israel-brooklyn-synago
 
 **Guardians issue apology to Red Sox's Jarren Duran after fan misconduct**\
 `“We recognize the gravity of the behavior at issue here and take very seriously conduct of this nature,” the Guardians said in a statement.`\
-https://nytimes.com/athletic/6316132/2025/04/27/red-sox-jarren-duran-guardians-apology-fan-misconduct/
+https://nytimes.com/athletic/6316132/2025/04/27/jarren-duran-guardians-apology-fan-misconduct/
 
 **Mets blow big lead: 3 takeaways from a day of miscues, missed opportunities**\
 `The Mets squandered a 7-1 edge as the Nationals roared back and walked things off with help from a fielding blunder.`\
-https://nytimes.com/athletic/6316162/2025/04/27/mets-nationals-blown-lead-takeways/
+https://nytimes.com/athletic/6316162/2025/04/27/mets-nationals-result-score/
 
