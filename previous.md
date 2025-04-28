@@ -1,3 +1,7 @@
+**Brighton & Hove Albion mailbag: Do you have a question for our correspondent?**\
+`Post your Brighton questions here and our correspondent Andy Naylor will answer a selection of them`\
+https://nytimes.com/athletic/6317722/2025/04/28/brighton-hove-albion-mailbag-do-you-have-a-question-for-our-correspondent/
+
 **Submit questions for Aaron Gleeman's Twins mailbag**\
 `As the Twins open a four-game series in Cleveland after a 5-1 homestand, what questions do you have? Submit them here. `\
 https://nytimes.com/athletic/6317712/2025/04/28/twins-mailbag-questions-aaron-gleeman/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6315849/2025/04/28/senators-ullmark-maple-leafs-goa
 **The Athletic college baseball Top 25: NC State, UNC enter top 10, Texas stays No. 1**\
 `Wolfpack climb 17 spots after sweeping Clemson. ACC now has four teams in the top 10. `\
 https://nytimes.com/athletic/6317518/2025/04/28/college-baseball-rankings-nc-state-north-carolina-texas/
-
-**In ‘Krapp’s Last Tape,’ Gary Oldman Hits Rewind**\
-`The star actor returns to the theater where he started almost a half-century ago, with Samuel Beckett’s bleak one-man play.`\
-https://nytimes.com/2025/04/28/theater/gary-oldman-krapps-last-tape-york.html
 

@@ -1,3 +1,7 @@
+**Brighton & Hove Albion mailbag: Do you have a question for our correspondent?**\
+`Post your Brighton questions here and our correspondent Andy Naylor will answer a selection of them`\
+https://nytimes.com/athletic/6317722/2025/04/28/brighton-hove-albion-mailbag-do-you-have-a-question-for-our-correspondent/
+
 **Submit questions for Aaron Gleeman's Twins mailbag**\
 `As the Twins open a four-game series in Cleveland after a 5-1 homestand, what questions do you have? Submit them here. `\
 https://nytimes.com/athletic/6317712/2025/04/28/twins-mailbag-questions-aaron-gleeman/
