@@ -1,6 +1,14 @@
+**The QB-needy team list shrunk during draft; what does that mean for Kirk Cousins, Falcons?**\
+`The Falcons still have Kirk Cousins on the roster and several teams with quarterback needs drafted one so where does that leave Atlanta?`\
+https://nytimes.com/athletic/6315179/2025/04/28/falcons-kirk-cousins-quarterback-needy-teams/
+
 **What's real and what's questionable about Yankees' hot start?**\
 `Aaron Judge is still the best player in baseball. Meanwhile, the starting rotation might be OK, even without ace Gerrit Cole and Luis Gil.`\
 https://nytimes.com/athletic/6316656/2025/04/28/yankees-hot-start-questions-and-reality/
+
+**Cowboys' winners and losers: Brian Schottenheimer knocks it out of the park**\
+`Schottenheimer plans to bring a different element to the Cowboys as the coach, and his fingerprints were all over this draft.`\
+https://nytimes.com/athletic/6315765/2025/04/28/cowboys-nfl-draft-winners-losers-schottenheimer/
 
 **Panthers post-draft depth chart: Tetairoa McMillan steps right in, defense has questions**\
 `What is Jadeveon Clowney's future with the Panthers? Could they still make moves at cornerback and safety?`\
@@ -25,12 +33,4 @@ https://nytimes.com/2025/04/28/us/politics/supreme-court-lawyer-standing-ovation
 **New York City’s Creative Churn: The View From the Dance Floor**\
 `“Urban Stomp” at the Museum of the City of New York chronicles the metropolis’s social dance. It also invites you to join the party.`\
 https://nytimes.com/2025/04/28/arts/dance/urban-stomp-new-york-museum.html
-
-**Tariffs Could Ruin My Small Business**\
-`Trump gave Apple a break. What about the lone entrepreneur?`\
-https://nytimes.com/2025/04/28/opinion/frywall-small-business-tariffs.html
-
-**Broadway’s Debacles Live On at Joe Allen’s ‘Flop Wall’**\
-`The posters in the theater-district restaurant document the shows that went wrong.`\
-https://nytimes.com/2025/04/28/nyregion/broadways-joe-allen-flop-wall.html
 

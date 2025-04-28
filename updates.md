@@ -1,3 +1,11 @@
+**The QB-needy team list shrunk during draft; what does that mean for Kirk Cousins, Falcons?**\
+`The Falcons still have Kirk Cousins on the roster and several teams with quarterback needs drafted one so where does that leave Atlanta?`\
+https://nytimes.com/athletic/6315179/2025/04/28/falcons-kirk-cousins-quarterback-needy-teams/
+
+**Cowboys' winners and losers: Brian Schottenheimer knocks it out of the park**\
+`Schottenheimer plans to bring a different element to the Cowboys as the coach, and his fingerprints were all over this draft.`\
+https://nytimes.com/athletic/6315765/2025/04/28/cowboys-nfl-draft-winners-losers-schottenheimer/
+
 **What's real and what's questionable about Yankees' hot start?**\
 `Aaron Judge is still the best player in baseball. Meanwhile, the starting rotation might be OK, even without ace Gerrit Cole and Luis Gil.`\
 https://nytimes.com/athletic/6316656/2025/04/28/yankees-hot-start-questions-and-reality/

@@ -1,3 +1,11 @@
+**Commanders depth chart analysis: How did the NFL Draft help shape the roster?**\
+`Reviewing how GM Adam Peters and his staff performed in the draft and tackling any questions ahead of the offseason on-field program. `\
+https://nytimes.com/athletic/6315518/2025/04/28/commanders-2025-depth-chart-post-nfl-draft/
+
+**Villa objecting to Premier League over potential moving of Spurs game**\
+`The fixture is currently due to be played on Sunday, May 18, three days before the Europa League final.`\
+https://nytimes.com/athletic/6315941/2025/04/28/aston-villa-tottenham-premier-league/
+
 **The QB-needy team list shrunk during draft; what does that mean for Kirk Cousins, Falcons?**\
 `The Falcons still have Kirk Cousins on the roster and several teams with quarterback needs drafted one so where does that leave Atlanta?`\
 https://nytimes.com/athletic/6315179/2025/04/28/falcons-kirk-cousins-quarterback-needy-teams/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/04/28/us/albuquerque-national-guard.html
 **All Good Things Come to an End. What About Bad Things?**\
 `We cannot forget that so much of our Trump trauma comes from electing a reality TV star as president.`\
 https://nytimes.com/2025/04/28/opinion/trump-pope-dialogue-future.html
-
-**A ‘Citizen Lawyer’ Gets a Standing Ovation at the Supreme Court**\
-`In a remarkable scene, the justices applauded Edwin S. Kneedler, a government lawyer with a reputation for candor, care and integrity.`\
-https://nytimes.com/2025/04/28/us/politics/supreme-court-lawyer-standing-ovation.html
-
-**New York City’s Creative Churn: The View From the Dance Floor**\
-`“Urban Stomp” at the Museum of the City of New York chronicles the metropolis’s social dance. It also invites you to join the party.`\
-https://nytimes.com/2025/04/28/arts/dance/urban-stomp-new-york-museum.html
 
