@@ -1,4 +1,8 @@
 **Trump Talks About His Meeting With Zelensky at the Vatican**\
+`President Trump spoke about his meeting with Ukraine’s leader in St. Peter’s Basilica, their first since a heated encounter in the Oval Office in February.`\
+https://nytimes.com/video/us/politics/100000010133381/trump-ukraine-zelensky-putin.html
+
+**Trump Talks About His Meeting With Zelensky at the Vatican**\
 `President Trump spoke about his meeting with Ukraine’s leader in the Vatican basilica, their first since a heated encounter in the Oval Office in February.`\
 https://nytimes.com/video/us/politics/100000010133381/trump-ukraine-zelensky-putin.html
 
