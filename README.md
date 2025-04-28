@@ -1,3 +1,7 @@
+**Six things we've learned about the Wild during this first-round series**\
+`Coach John Hynes is doing some lineup tweaking heading into Game 5 on Tuesday. What will it mean?`\
+https://nytimes.com/athletic/6318794/2025/04/28/wild-golden-knights-game-5-lineup/
+
 **The Best Advice I’ve Ever Heard for How to Be Happy**\
 `Tips from experts, astronauts and Cher on finding bliss.`\
 https://nytimes.com/interactive/2025/04/28/magazine/how-to-be-happy.html
@@ -35,8 +39,4 @@ https://nytimes.com/2025/04/28/science/amazon-kuiper-launch-ula.html
 **Protesters to Rally in Brooklyn After Pro-Israel Crowd Assaults Woman**\
 `The police were investigating the attack in Crown Heights, where hundreds of pro-Israel demonstrators surrounded a woman and hurled slurs at her. More protests were expected on Monday.`\
 https://nytimes.com/2025/04/28/nyregion/protests-israel-woman-attacked-brooklyn.html
-
-**Hockey Canada trial begins with first witness, security video footage**\
-`On a warm June night in 2018, more than a dozen members of Canada’s 2018 World Junior hockey team bypassed a long line of waiting customers, had their IDs checked and were funneled into Jack’s Bar in London, Ont.`\
-https://nytimes.com/athletic/6318178/2025/04/28/hockey-canada-sexual-assault-trial-testimony/
 
