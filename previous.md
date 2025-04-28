@@ -1,3 +1,7 @@
+**Twins takeaways: Joe Ryan's poise, Carlos Correa's hitting and more from a 5-1 homestand**\
+`There was a moment during Ryan’s 11-strikeout performance when everything could have gone sideways. With the help of his catcher, it didn't.`\
+https://nytimes.com/athletic/6316248/2025/04/27/twins-angels-takeaways-joe-ryan-carlos-correa/
+
 **Chaos Graph**\
 `People immersed in chaos try to solve for what it all adds up to.`\
 https://nytimes.com/2025/04/27/podcasts/chaos-graph-this-american-life-nyt-audio.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6316146/2025/04/27/hurricanes-devils-game-4-nhl-pla
 **Dick Barnett, Champion Knick With a Singular Jump Shot, Dies at 88**\
 `A guard, he played on New York’s two (and only) title-winning teams, in the 1970s. He was remembered for his scoring and his “fall back, baby” shooting style.`\
 https://nytimes.com/2025/04/27/sports/basketball/dick-barnett-dead.html
-
-**New Details Emerge on Trump Officials’ Sprint to Gut Consumer Bureau Staff**\
-`Emails and testimonials from workers at the Consumer Financial Protection Bureau document the administration’s efforts to lay off 90 percent of the employees.`\
-https://nytimes.com/2025/04/27/business/cfpb-layoffs-trump-musk-doge.html
 

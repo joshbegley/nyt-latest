@@ -1,3 +1,7 @@
+**Twins takeaways: Joe Ryan's poise, Carlos Correa's hitting and more from a 5-1 homestand**\
+`There was a moment during Ryan’s 11-strikeout performance when everything could have gone sideways. With the help of his catcher, it didn't.`\
+https://nytimes.com/athletic/6316248/2025/04/27/twins-angels-takeaways-joe-ryan-carlos-correa/
+
 **Chaos Graph**\
 `People immersed in chaos try to solve for what it all adds up to.`\
 https://nytimes.com/2025/04/27/podcasts/chaos-graph-this-american-life-nyt-audio.html
