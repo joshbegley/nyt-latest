@@ -1,6 +1,6 @@
 **Midwest Braces Amid Threat from Pounding Winds, Hail and Tornadoes**\
 `Officials in the Upper Midwest warned of possible power outages and closed some schools early as the storms loomed.`\
-https://nytimes.com/2025/04/28/us/midwest-braces-amid-threat-from-pounding-winds-hail-and-tornadoes.html
+https://nytimes.com/2025/04/28/us/tornado-severe-weather-minnesota-iowa-wisconsin.html
 
 **The Satchel: Send your Bills questions to Tim Graham**\
 `Ask Bills questions to Tim Graham. `\
