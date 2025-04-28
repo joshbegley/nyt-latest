@@ -1,3 +1,11 @@
+**Immigration policy, once expected to be an election-defining issue, has fallen among voters’ concerns.**\
+`By Vjosa Isai`\
+https://nytimes.com/live/2025/04/28/world/canada-election/immigration-policy-once-expected-to-be-an-election-defining-issue-has-fallen-among-voters-concerns
+
+**Senator Denounces Musk’s Cuts: ‘Not What Anybody Signed Up For’**\
+`Mark Kelly of Arizona, a Democrat and former astronaut who previously consulted for SpaceX, discusses Elon Musk, DOGE and President Trump.`\
+https://nytimes.com/2025/04/28/us/politics/elon-musk-mark-kelly-trump-doge.html
+
 **What Canadian Voters Are Looking For in Their Next Prime Minister**\
 `Voters in Windsor, Ontario, the heart of the auto industry in Canada, shared their concerns about tariffs, inflation and President Donald Trump.`\
 https://nytimes.com/video/world/americas/100000010135335/canada-election-voters.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/28/us/tornado-severe-weather-minnesota-iowa-wisconsi
 **The Satchel: Send your Bills questions to Tim Graham**\
 `Ask Bills questions to Tim Graham. `\
 https://nytimes.com/athletic/6319028/2025/04/28/buffalo-bills-draft-mailbag-questions-tim-graham/
-
-**When Do Polls Close?**\
-`The poll closures are synchronized to happen at roughly the same time across Canada.`\
-https://nytimes.com/2025/04/28/world/canada/when-do-polls-close.html
-
-**House G.O.P. Proposes Charging $1,000 to Claim Asylum, Raising Fees on Migrants**\
-`As part of legislation to pay for President Trump’s domestic agenda, including his immigration crackdown, House Republicans want to impose or increase fees for legal entry into the United States.`\
-https://nytimes.com/2025/04/28/us/politics/house-republicans-asylum-fees.html
 
