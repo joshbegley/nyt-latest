@@ -1,3 +1,11 @@
+**Commanders depth chart analysis: How did the NFL Draft help shape the roster?**\
+`Reviewing how GM Adam Peters and his staff performed in the draft and tackling any questions ahead of the offseason on-field program. `\
+https://nytimes.com/athletic/6315518/2025/04/28/commanders-2025-depth-chart-post-nfl-draft/
+
+**Villa objecting to Premier League over potential moving of Spurs game**\
+`The fixture is currently due to be played on Sunday, May 18, three days before the Europa League final.`\
+https://nytimes.com/athletic/6315941/2025/04/28/aston-villa-tottenham-premier-league/
+
 **The QB-needy team list shrunk during draft; what does that mean for Kirk Cousins, Falcons?**\
 `The Falcons still have Kirk Cousins on the roster and several teams with quarterback needs drafted one so where does that leave Atlanta?`\
 https://nytimes.com/athletic/6315179/2025/04/28/falcons-kirk-cousins-quarterback-needy-teams/
