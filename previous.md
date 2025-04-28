@@ -1,3 +1,7 @@
+**Capitals fend off Canadiens, take 3-1 series lead: Takeaways**\
+`The Capitals cracked the code at Bell Centre, beating the Montreal Canadiens 5-2 and going up 3-1 in their first-round series.`\
+https://nytimes.com/athletic/6316489/2025/04/27/capitals-canadiens-nhl-playoffs-2025-game-4-takeaways/
+
 **UFL investigating altercation involving fan, Panthers WR Samson Nacua**\
 `Nacua, brother of Rams receiver Puka Nacua, appeared to slap fan following game.`\
 https://nytimes.com/athletic/6316464/2025/04/27/ufl-investigating-altercation-fan-samson-nacua/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6316326/2025/04/27/chevron-championship-mao-saigo-p
 **Firefighter Paramedic Is Fatally Stabbed by a Patient Aboard an Ambulance**\
 `The emergency worker in Kansas City, Mo., was stabbed in his chest while transporting a patient in what started as a routine call on Sunday, officials said.`\
 https://nytimes.com/2025/04/27/us/paramedic-stabbing-kansas-city.html
-
-**Protests Against Israeli Official Heat Up Outside Synagogue in Brooklyn**\
-`The clashes outside a synagogue where the official, Itamar Ben-Gvir, a far-right security minister, had planned to speak followed days of disturbances connected to his visit.`\
-https://nytimes.com/2025/04/27/nyregion/protests-ben-gvir-israel-brooklyn-synagogue.html
 

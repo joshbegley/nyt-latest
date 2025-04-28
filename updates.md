@@ -1,3 +1,7 @@
+**Capitals fend off Canadiens, take 3-1 series lead: Takeaways**\
+`The Capitals cracked the code at Bell Centre, beating the Montreal Canadiens 5-2 and going up 3-1 in their first-round series.`\
+https://nytimes.com/athletic/6316489/2025/04/27/capitals-canadiens-nhl-playoffs-2025-game-4-takeaways/
+
 **UFL investigating altercation involving fan, Panthers WR Samson Nacua**\
 `Nacua, brother of Rams receiver Puka Nacua, appeared to slap fan following game.`\
 https://nytimes.com/athletic/6316464/2025/04/27/ufl-investigating-altercation-fan-samson-nacua/

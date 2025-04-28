@@ -1,3 +1,7 @@
+**‘Real Women Have Curves’ Review: This American (Immigrant) Life**\
+`On Broadway, the musical adaptation is a bouncy crowd pleaser about female empowerment, self-acceptance and chasing one’s dreams.`\
+https://nytimes.com/2025/04/27/theater/real-women-have-curves-review.html
+
 **Capitals fend off Canadiens, take 3-1 series lead: Takeaways**\
 `The Capitals cracked the code at Bell Centre, beating the Montreal Canadiens 5-2 and going up 3-1 in their first-round series.`\
 https://nytimes.com/athletic/6316489/2025/04/27/capitals-canadiens-nhl-playoffs-2025-game-4-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/27/podcasts/chaos-graph-this-american-life-nyt-audio
 **Chevron Championship: Mao Saigo wins 5-woman playoff for first major title**\
 `The largest playoff in LPGA major championship history ended after one hole with the 23-year-old Saigo winning.`\
 https://nytimes.com/athletic/6316326/2025/04/27/chevron-championship-mao-saigo-playoff-lpga-major/
-
-**Firefighter Paramedic Is Fatally Stabbed by a Patient Aboard an Ambulance**\
-`The emergency worker in Kansas City, Mo., was stabbed in his chest while transporting a patient in what started as a routine call on Sunday, officials said.`\
-https://nytimes.com/2025/04/27/us/paramedic-stabbing-kansas-city.html
 
