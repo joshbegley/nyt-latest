@@ -1,40 +1,40 @@
-**Widespread Power Outage Is Reported in Spain, France and Portugal**\
-`The blackout hit critical infrastructure like airports and caused transportation disruptions in the three countries. The cause of the outage was unclear.`\
-https://nytimes.com/2025/04/28/world/europe/power-outage-spain-portugal-france.html
+**Trump Administration Live Updates: Two American Children Sent to Honduras With Deported Mother, Lawyer Says**\
+``\
+https://nytimes.com/live/2025/04/28/us/trump-news
 
-**Canada Votes, With an Eye on Trump’s Trade Policies**\
-`The two leading candidates, Pierre Poilievre and Mark Carney, both plan to fight the U.S., its largest trading partner, over tariffs. But who would be more successful as relations grow icy?`\
-https://nytimes.com/2025/04/28/business/dealbook/canada-elections-mark-carney-pierre-poilievre-trump-tariffs.html
+**Mirtle: Where and how Leafs must improve to win Game 5, eliminate Senators**\
+`The earlier the Leafs can close out this series, the better, but they won't if they repeat Game 4's performance.`\
+https://nytimes.com/athletic/6315770/2025/04/28/maple-leafs-nhl-playoffs-game-5-tweaks/
 
-**Doriane Pin: The 'pocket rocket' once deemed too short, now aiming for F1 with Mercedes**\
-`Doriane Pin is a Mercedes junior driver. In 2025, she's chasing the F1 Academy title after years of effort to establish her career`\
-https://nytimes.com/athletic/6310229/2025/04/28/doriane-pin-f1-academy-mercedes/
+**Why the Jets' 'best of three' series vs. Blues is 3 years in the making**\
+`The Jets don't need a miracle to win Game 5. They just need to meet the moment they worked so hard to create.`\
+https://nytimes.com/athletic/6315447/2025/04/28/jets-nhl-playoffs-blues-best-of-three/
 
-**Putin Declares 3-Day Cease-Fire in Ukraine for Next Month**\
-`There was no immediate comment from Ukraine about the unexpected announcement.`\
-https://nytimes.com/2025/04/28/world/europe/putin-ukraine-ceasefire.html
+**Bruins fan survey: Next coach? Confidence in Cam Neely, Don Sweeney? Trade the first-rounder?**\
+`How do you think the Bruins should approach their critical offseason? Weigh in here in our early offseason fan survey.`\
+https://nytimes.com/athletic/6315735/2025/04/28/bruins-fan-survey-2025-early-offseason/
 
-**FPL: What we learnt from Gameweek 34 so far - Don't rush your transfers**\
-`Abdul Rehman reviews the main talking points from Gameweek 34 so far in Fantasy Premier League`\
-https://nytimes.com/athletic/6316007/2025/04/28/fantasy-premier-league-gameweek-34-palmer-saka-fixtures/
+**'He's a dog': How Ryan Hartman responded from 'wake-up call' to give the Wild his best**\
+`This might be some of the best hockey Hartman has played, at least reminiscent of his 34-goal season three years ago.`\
+https://nytimes.com/athletic/6315317/2025/04/28/wild-ryan-hartman-playoffs/
 
-**Spotify Takes On Competitors by Giving Its Podcasters a Raise**\
-`The audio platform has branched out to video and has paid more than $100 million to podcast publishers this year as the war for creator talent heats up.`\
-https://nytimes.com/2025/04/28/business/dealbook/spotify-100-million-paid-creators-podcast-video.html
+**Chargers post-NFL Draft depth chart: Where does the rookie class fit on this roster?**\
+`Chargers first-round pick Omarion Hampton figures to be a big piece of a two-pronged attack alongside free-agent signee Najee Harris.`\
+https://nytimes.com/athletic/6316121/2025/04/28/chargers-nfl-draft-2025-depth-chart/
 
-**Saudi Arabia and Qatar to Pay Off Syria’s Debt to the World Bank**\
-`The countries agreed to cover $15 million owed to the lender as the new government in Damascus looks to rebuild the economy after the civil war.`\
-https://nytimes.com/2025/04/28/world/middleeast/saudi-arabia-qatar-syria-debt.html
+**Cardinals takeaways: 3 changes Nolan Arenado has made in strong start to season**\
+`Both the team and the player have done a commendable job of putting Arenado's failed trade saga in the rearview mirror.`\
+https://nytimes.com/athletic/6315511/2025/04/28/cardinals-nolan-arenado-mlb/
 
-**Tennessee commit Nate Ament credits his talents to his family — and his first love**\
-`Ament is the highest-ranked recruit in Vols history. He wasn't drawn to basketball until his 6-foot-9 frame led him to leave soccer behind.`\
-https://nytimes.com/athletic/6309854/2025/04/28/tennessee-mens-basketball-recruiting-nate-ament/
+**What I'm hearing about the Penguins' roster vision**\
+`It's clear that Kyle Dubas wants his team to be more physically imposing. His offseason will reflect that.`\
+https://nytimes.com/athletic/6315650/2025/04/28/penguins-nhl-draft-free-agency/
 
-**Conclave to Choose New Pope Will Start May 7, Vatican Says**\
-`About 130 cardinals will be able to vote on a successor for Francis, and a two-thirds majority is needed to elect the new head of the Roman Catholic Church.`\
-https://nytimes.com/2025/04/28/world/europe/papal-conclave-date.html
+**The Seahawks' draft class raises the floor in 2025, but it also has a sky-high ceiling**\
+`The Seahawks found a likely Day 1 starter on the O-line, but it's their Day 2 picks that could make this a special haul.`\
+https://nytimes.com/athletic/6316309/2025/04/28/jalen-milroe-nick-emmanwori-seahawks-nfl-draft/
 
-**Astros mailbag: Hunter Brown extension talk, why Jose Altuve is in left field and more**\
-`Plus, some thoughts on Brendan Rodgers' future, Framber Valdez's trade value and what Yainer Diaz brings to the table.`\
-https://nytimes.com/athletic/6315998/2025/04/28/astros-mailbag-hunter-brown-extension-talk-jose-altuve-left-field/
+**Anthony Stolarz enters uncharted territory as Leafs fight to finish series**\
+`It's unlikely the Leafs will play anyone but Stolarz, barring an unforeseen collapse. But how will Stolarz adapt to the playoffs workload?`\
+https://nytimes.com/athletic/6315255/2025/04/28/anthony-stolarz-maple-leafs-workload-nhl-playoffs/
 
