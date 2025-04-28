@@ -1,3 +1,7 @@
+**Penguins, 10-year coach Mike Sullivan part ways: What's next?**\
+`The Penguins and coach Mike Sullivan have mutually agreed to part ways after a 10-year run that included two Stanley Cup wins.`\
+https://nytimes.com/athletic/6317549/2025/04/28/mike-sullivan-part-ways-penguins-nhl/
+
 **Dozens Killed in Attack on Migrant Facility in Yemen, Houthis Say**\
 `There was no immediate comment from the U.S. military, which the Iran-backed Houthi militia blamed for the attack in Saada.`\
 https://nytimes.com/2025/04/28/world/middleeast/yemen-houthis-saada-migrants.html

@@ -1,3 +1,7 @@
+**Penguins, 10-year coach Mike Sullivan part ways: What's next?**\
+`The Penguins and coach Mike Sullivan have mutually agreed to part ways after a 10-year run that included two Stanley Cup wins.`\
+https://nytimes.com/athletic/6317549/2025/04/28/mike-sullivan-part-ways-penguins-nhl/
+
 **Dozens Killed in Attack on Migrant Facility in Yemen, Houthis Say**\
 `There was no immediate comment from the U.S. military, which the Iran-backed Houthi militia blamed for the attack in Saada.`\
 https://nytimes.com/2025/04/28/world/middleeast/yemen-houthis-saada-migrants.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6316437/2025/04/28/college-baseball-nc-state-texas-
 **When will Liverpool get Premier League trophy and will there be a parade?**\
 `A look at when Arne Slot's side will be presented with the trophy and how much they will earn from title No 20`\
 https://nytimes.com/athletic/6317160/2025/04/28/liverpool-premier-league-trophy-parade/
-
-**Rashford expected to miss remainder of season with hamstring injury**\
-`Further tests will be done to establish the severity of Rashford’s injury but it is not anticipated that he will need surgery.`\
-https://nytimes.com/athletic/6317424/2025/04/28/marcus-rashford-injury-aston-villa-manchester-united/
 
