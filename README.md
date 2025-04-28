@@ -1,3 +1,15 @@
+**Damian Lillard tears Achilles, ending his season with Bucks**\
+`The nine-time All-Star will now face a grueling rehab process as he tries to return to the floor.`\
+https://nytimes.com/athletic/6317941/2025/04/28/damian-lillard-injury-achilles-bucks/
+
+**To Win This Contest, Just Squawk Like a Seagull**\
+`Contestants gathered in Belgium to screech and move like gulls in a competition that is meant to “make sea gulls sexy again.”`\
+https://nytimes.com/2025/04/28/world/europe/seagull-screeching-competition-europe.html
+
+**Europeans Screech Off at Belguim’s Sea Gull Imitation Championship**\
+`Contestant from Denmark, Italy and Britain won the top medals in this year’s European Sea Gull Screeching Championship in the coastal Belgian town of De Panne.`\
+https://nytimes.com/video/world/europe/100000010134350/belguim-europe-seagull-competition.html
+
 **2025 dynasty league SuperFlex Top 30 rookie rankings (with tiers)**\
 `Jeff Haverlack offers up his post-NFL draft rookie rankings for SuperFlex formats, with two first-round running backs leading the way.`\
 https://nytimes.com/athletic/6317966/2025/04/28/dynasty-league-superflex-top-30-rookie-rankings-tiers-ashton-jeanty/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/28/nyregion/subway-corpse-abuse-arrest.html
 **Blackouts Across Spain and Portugal Disrupt Critical Infrastructure**\
 `Millions of people in Spain and Portugal were without power after a widespread outage brought daily activity to a halt throughout the two countries.`\
 https://nytimes.com/video/world/europe/100000010133965/blackout-in-spain-and-portugal.html
-
-**Dutch Municipality Accidentally Discards a 1980s Warhol Print**\
-`A portrait of former Queen Beatrix of the Netherlands might have been worth tens of thousands of dollars. It was probably thrown out during a renovation.`\
-https://nytimes.com/2025/04/28/world/europe/andy-warhol-netherlands-town-hall-beatrix.html
-
-**FIA president considering changes to penalty guidelines including swearing**\
-`The FIA introduced new rules in January that threaten fines, points penalties and race bans for misconduct.`\
-https://nytimes.com/athletic/6318234/2025/04/28/fia-president-penalty-guidelines-swearing/
-
-**Canada’s million-dollar housing crisis is a top concern for voters.**\
-`By Vjosa Isai`\
-https://nytimes.com/live/2025/04/28/world/canada-election/canadas-million-dollar-housing-crisis-is-a-top-concern-for-voters
 
