@@ -1,3 +1,11 @@
+**IBM Plans to Invest $150 Billion Domestically in Latest Tech Sector Pledge**\
+`The announcement comes as the Trump administration pressures firms to expand their U.S. manufacturing.`\
+https://nytimes.com/2025/04/28/us/politics/ibm-investment-manufacturing.html
+
+**Israel Faces World Court Hearings Over Gaza Aid**\
+`The United Nations criticized Israel for its ban on aid in hearings at the International Court of Justice. Israel did not send a legal delegation and rejected the proceedings as biased.`\
+https://nytimes.com/2025/04/28/world/middleeast/israel-icj-gaza-aid.html
+
 **Where to vote in Canada’s election.**\
 `By Talya Minsberg`\
 https://nytimes.com/live/2025/04/28/world/canada-election/where-to-vote-in-canadas-election
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6317837/2025/04/28/jc-escarra-yankees-home-run-scou
 **NHL Vezina Trophy finalists announced — what would Connor Hellebuyck's third win mean?**\
 `Winnipeg Jets goaltender Connor Hellebuyck, Darcy Kuemper of the Los Angeles Kings and Andrei Vasilevskiy of the Tampa Bay Lightning were named finalists for the NHL’s Vezina Trophy on Monday, awarded “to the goalkeeper adjudged to be the best at this position.`\
 https://nytimes.com/athletic/6309893/2025/04/28/nhl-vezina-trophy-hellebuyck/
-
-**Tara Davis-Woodhall brings her star power as Athlos NYC introduces a field event**\
-`The next edition of Athlos NYC later this year will introduce a long jump event, headlined by American star Tara Davis-Woodhall.`\
-https://nytimes.com/athletic/6317578/2025/04/28/tara-davis-woodhall-athlos-nyc-long-jump-field/
-
-**Pakistan’s Detention of Indian Border Guard Adds to Tensions**\
-`While the case is fairly routine, it comes as India indicates it is preparing to strike Pakistan in response to last week’s deadly terrorist attack.`\
-https://nytimes.com/2025/04/28/world/asia/pakistan-india-border-guard-detained.html
 
