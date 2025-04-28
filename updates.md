@@ -1,3 +1,7 @@
+**Browns agree to deal with WR Diontae Johnson: Source**\
+`Cleveland will mark Johnson's third stop in the AFC North and his fifth team in 14 months. `\
+https://nytimes.com/athletic/6319230/2025/04/28/diontae-johnson-browns-deal-nfl/
+
 **Why the Golden Knights, a 'high hockey-IQ bunch,' are comfortable in tight series vs. Wild**\
 `The Golden Knights’ projected Game 5 lineup has a combined total of 1,358 career playoff games, compared to Minnesota’s 777.`\
 https://nytimes.com/athletic/6319218/2025/04/28/golden-knights-wild-game-5/

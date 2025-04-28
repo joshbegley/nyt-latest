@@ -1,3 +1,7 @@
+**Browns agree to deal with WR Diontae Johnson: Source**\
+`Cleveland will mark Johnson's third stop in the AFC North and his fifth team in 14 months. `\
+https://nytimes.com/athletic/6319230/2025/04/28/diontae-johnson-browns-deal-nfl/
+
 **Why the Golden Knights, a 'high hockey-IQ bunch,' are comfortable in tight series vs. Wild**\
 `The Golden Knights’ projected Game 5 lineup has a combined total of 1,358 career playoff games, compared to Minnesota’s 777.`\
 https://nytimes.com/athletic/6319218/2025/04/28/golden-knights-wild-game-5/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6319040/2025/04/28/new-york-yankees-devin-williams-
 **What to watch in sports this week: Playoffs, Champions League and 151st Kentucky Derby**\
 `Here's what to look out for on the sports calendar, from nightly postseason action to big races in Miami and Churchill Downs.`\
 https://nytimes.com/athletic/6311090/2025/04/28/what-to-watch-in-sports-nba-playoffs-nhl-kentucky-derby-miami-grand-prix/
-
-**China experience was once a plus. In Canada’s election, it’s a liability.**\
-`By Matina Stevis-Gridneff and Alexandra Stevenson`\
-https://nytimes.com/live/2025/04/28/world/canada-election/china-experience-was-once-a-plus-in-canadas-election-its-a-liability
 
