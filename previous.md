@@ -1,3 +1,11 @@
+**Scoop City: Where the mid-round RBs, TEs and Edge defenders landed**\
+`Recapping where key players landed on days 2 and 3 of the draft, explaining who was behind the Shedeur Sanders prank`\
+https://nytimes.com/athletic/6318369/2025/04/28/where-key-running-backs-tight-ends-and-edge-defenders-landed-scoop-city/
+
+**It's the only Olympic basketball event the U.S. hasn't won. Can Jimmer Fredette fix that?**\
+`Jimmer Fredette was named the new managing director of 3x3 basketball for Team USA, hoping to lead the team to an Olympic breakthrough.`\
+https://nytimes.com/athletic/6317992/2025/04/28/basketball-olympics-3x3-usa-jimmer-fredette/
+
 **What we're seeing from Leafs as Game 5 looms**\
 `Auston Matthews and Joseph Woll miss practice, Max Domi faces questions over discipline, plus: lineup notes. `\
 https://nytimes.com/athletic/6318194/2025/04/28/maple-leafs-practice-notebook-nhl-playoffs/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/04/28/world/canada-election/despite-his-shaky-fren
 **Bob Baffert looks to reclaim his place at the Kentucky Derby: 'I just want to move forward.'**\
 `Three years after Medina Spirit's victory was stripped due to a failed drug test, Baffert looks to reclaim his place at Churchill Downs.`\
 https://nytimes.com/athletic/6317795/2025/04/28/kentucky-derby-bob-baffert-return-suspension/
-
-**D.C. United owns Pogba's discovery rights**\
-`Pogba, 32, has been eligible to return to competitive soccer since March after serving an 18-month ban for an anti-doping violation.`\
-https://nytimes.com/athletic/6318316/2025/04/28/paul-pogba-dc-united-mls-next/
-
-**Police Arrest a Man They Say Abused a Corpse on the R Train**\
-`A Brooklyn man has been charged with first-degree rape after the police said he violated the body of a dead man on the subway in Manhattan.`\
-https://nytimes.com/2025/04/28/nyregion/subway-corpse-abuse-arrest.html
 

@@ -1,3 +1,11 @@
+**Scoop City: Where the mid-round RBs, TEs and Edge defenders landed**\
+`Recapping where key players landed on days 2 and 3 of the draft, explaining who was behind the Shedeur Sanders prank`\
+https://nytimes.com/athletic/6318369/2025/04/28/where-key-running-backs-tight-ends-and-edge-defenders-landed-scoop-city/
+
+**It's the only Olympic basketball event the U.S. hasn't won. Can Jimmer Fredette fix that?**\
+`Jimmer Fredette was named the new managing director of 3x3 basketball for Team USA, hoping to lead the team to an Olympic breakthrough.`\
+https://nytimes.com/athletic/6317992/2025/04/28/basketball-olympics-3x3-usa-jimmer-fredette/
+
 **What we're seeing from Leafs as Game 5 looms**\
 `Auston Matthews and Joseph Woll miss practice, Max Domi faces questions over discipline, plus: lineup notes. `\
 https://nytimes.com/athletic/6318194/2025/04/28/maple-leafs-practice-notebook-nhl-playoffs/
