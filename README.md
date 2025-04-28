@@ -1,3 +1,11 @@
+**Brad Lander’s 2 Goals in N.Y.C. Mayor’s Race: Beat Cuomo and Win**\
+`Mr. Lander, the New York City comptroller, says voters seeking a competent leader should look to him and not the former governor: “I am a decent person. Let’s just start there.”`\
+https://nytimes.com/2025/04/28/nyregion/brad-lander-mayor-nyc.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/04/28/crosswords/spelling-bee-forum.html
+
 **As India and Pakistan Cancel Visas, Parents and Children Are Separated**\
 `The repercussions from a terrorist attack led to painful scenes at the countries’ border, as families with mixed citizenship were suddenly divided.`\
 https://nytimes.com/2025/04/28/world/asia/india-pakistan-visas-kashmir.html
@@ -22,19 +30,11 @@ https://nytimes.com/issue/todayspaper/2025/04/28/todays-new-york-times
 `A new series comes to Netflix, a true crime documentary airs and “The Righteous Gemstones” wraps up its season on HBO.`\
 https://nytimes.com/2025/04/28/arts/television/watch-on-tv-this-week.html
 
-**You Want to Protect Jewish Students? What About Jewish Student Protesters?**\
+**Trump Doesn’t Want to Protect All Jewish Students — Just Those on His Team**\
 `Going after antisemitism on campus has swept up Jewish students protesting the war in Gaza.`\
 https://nytimes.com/2025/04/28/opinion/jewish-student-protesters-gaza.html
 
 **Trump Is Laying a Potentially Deadly Trap for the U.S. Auto Industry**\
 `Trump’s approach risks leaving U.S. automakers isolated and incapable of competing on their own merits as foreign companies bolt ahead.`\
 https://nytimes.com/2025/04/28/opinion/trump-car-industry-tariffs.html
-
-**Stay Ready with MassMutual & Christen Press**\
-`MassMutual teamed up with Flau'jae Johnson, Christen Press and Madison Keys to talk about the power of preparation. On the court. And off.`\
-https://nytimes.com/paidpost/athletic/massmutual/stay-ready-christen-press.html
-
-**Monday Briefing**\
-`Canadians head to the polls.`\
-https://nytimes.com/2025/04/28/briefing/canada-polls-ukraine-pope.html
 
