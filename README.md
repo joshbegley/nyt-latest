@@ -1,3 +1,7 @@
+**Eagles to visit White House for Super Bowl victory on Monday: What to know**\
+`The event, set to begin at 4 p.m., will be the Eagles' first Super Bowl visit to the White House following a rescinded invitation in 2018. `\
+https://nytimes.com/athletic/6317678/2025/04/28/eagles-white-house-trump-super-bowl-lix/
+
 **Caught Between Two Worlds, an Artist Prepares for His Biggest Show Yet**\
 `As Salman Toor’s work has become more politically conflicted and emotionally raw, he finds himself wondering, “What am I doing here in America?”`\
 https://nytimes.com/2025/04/28/arts/design/salman-toor-art-luhring-augustine.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6317697/2025/04/28/aaron-gordon-nuggets-clippers-la
 **Why Mike Sullivan makes sense as Bruins coach after parting ways with Penguins**\
 `The two-time Stanley Cup coach has a multitude of connections to the Bruins organization but will be a popular candidate elsewhere, as well.`\
 https://nytimes.com/athletic/6317748/2025/04/28/mike-sullivan-bruins-coach-candidate/
-
-**How Trump, Trudeau and Tariffs Upended Canada’s Political Landscape**\
-`After nearly a decade in power, the Liberal Party seemed destined to be swept out on a wave of anti-incumbency sentiment. Then events took a surprising turn.`\
-https://nytimes.com/2025/04/28/world/canada/canada-elections-tariffs.html
 
