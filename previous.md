@@ -1,3 +1,11 @@
+**Chubby Checker, Outkast and the White Stripes Will Join the Rock Hall**\
+`Joe Cocker, Cyndi Lauper, Bad Company and Soundgarden — but not Oasis or Phish — are also part of the 40th anniversary class.`\
+https://nytimes.com/2025/04/27/arts/music/rock-and-roll-hall-of-fame-chubby-checker-white-stripes.html
+
+**Day 1: Learn a poem with us this week. Keep it for a lifetime.**\
+`Starting today, we’ll have a week of games, videos and essays to help you along the way. First up: readings by Ina Garten, Ethan Hawke and Ada Limón.`\
+https://nytimes.com/interactive/2025/books/edna-st-vincent-millay-recuerdo-poem-challenge.html
+
 **Andrew Novak finally breaks through, teaming with Ben Griffin to win Zurich Classic**\
 `Journeymen golfer finally earns victory after a series of close calls.`\
 https://nytimes.com/athletic/6316329/2025/04/27/zurich-classic-pga-tour-andrew-novak-ben-griffin/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6316132/2025/04/27/red-sox-jarren-duran-guardians-a
 **Mets blow big lead: 3 takeaways from a day of miscues, missed opportunities**\
 `The Mets squandered a 7-1 edge as the Nationals roared back and walked things off with help from a fielding blunder.`\
 https://nytimes.com/athletic/6316162/2025/04/27/mets-nationals-blown-lead-takeways/
-
-**Jalen Brunson was NBA's top clutch player for a reason. In Detroit, he got the last laugh**\
-`At one point Sunday, it was unclear whether Brunson would even finish Game 4. Unfortunately for Detroit, he did.`\
-https://nytimes.com/athletic/6316015/2025/04/27/jalen-brunson-clutch-knicks-pistons-nba/
-
-**Hurricanes take 3-1 series lead vs. Devils, but Frederik Andersen injured in win: Takeaways**\
-`Andrei Svechnikov had a hat trick for Carolina in the 5-2 win. Game 5 of the teams' first-round series is Tuesday in Raleigh.`\
-https://nytimes.com/athletic/6316146/2025/04/27/hurricanes-devils-game-4-nhl-playoffs/
 

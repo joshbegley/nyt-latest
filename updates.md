@@ -1,3 +1,11 @@
+**Chubby Checker, Outkast and the White Stripes Will Join the Rock Hall**\
+`Joe Cocker, Cyndi Lauper, Bad Company and Soundgarden — but not Oasis or Phish — are also part of the 40th anniversary class.`\
+https://nytimes.com/2025/04/27/arts/music/rock-and-roll-hall-of-fame-chubby-checker-white-stripes.html
+
+**Day 1: Learn a poem with us this week. Keep it for a lifetime.**\
+`Starting today, we’ll have a week of games, videos and essays to help you along the way. First up: readings by Ina Garten, Ethan Hawke and Ada Limón.`\
+https://nytimes.com/interactive/2025/books/edna-st-vincent-millay-recuerdo-poem-challenge.html
+
 **Andrew Novak finally breaks through, teaming with Ben Griffin to win Zurich Classic**\
 `Journeymen golfer finally earns victory after a series of close calls.`\
 https://nytimes.com/athletic/6316329/2025/04/27/zurich-classic-pga-tour-andrew-novak-ben-griffin/
