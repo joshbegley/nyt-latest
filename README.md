@@ -1,3 +1,7 @@
+**Mayor of London Sadiq Khan wants city to host 2040 Olympics**\
+`Another successful bid would make London the only city to host the Games four times.`\
+https://nytimes.com/athletic/6318094/2025/04/28/sadiq-khan-london-2040-olympics/
+
 **Champions League semi-final odds: Arsenal's sturdy defence meets PSG fiery attack**\
 `Brett Koremenos explores the betting value around Arsenal’s Champions League semi-final first-leg clash with PSG. 
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/2025/04/28/world/australia/dachshund-australia-valerie-rescu
 **For His Met Opera Debut, a Director Takes On ‘Salome’**\
 `The renowned German director Claus Guth is staging Strauss’s breakthrough opera with a focus on themes of trauma and abuse.`\
 https://nytimes.com/2025/04/28/arts/music/claus-guth-salome-met-opera.html
-
-**Why Trump’s Economic Disruption Will Be Hard to Reverse**\
-`The president’s turnover of the economic order has unleashed changes that could prove lasting, because other countries will adjust.`\
-https://nytimes.com/2025/04/28/business/economy/trump-trade-global-economy.html
 
