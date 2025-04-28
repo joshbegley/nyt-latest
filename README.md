@@ -1,3 +1,7 @@
+**Dodger Details: Another injury for Tyler Glasnow, Andy Pages' surge and more**\
+`Glasnow vented after his latest setback: "I feel bad for my teammates. I feel bad for people watching."`\
+https://nytimes.com/athletic/6316492/2025/04/27/dodger-tyler-glasnow-injury-andy-pages/
+
 **Chubby Checker, Outkast and the White Stripes Will Join the Rock Hall**\
 `Joe Cocker, Cyndi Lauper, Bad Company and Soundgarden — but not Oasis or Phish — are also part of the 40th anniversary class.`\
 https://nytimes.com/2025/04/27/arts/music/rock-and-roll-hall-of-fame-chubby-checker-white-stripes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/27/nyregion/protests-ben-gvir-israel-brooklyn-synago
 **Guardians issue apology to Red Sox's Jarren Duran after fan misconduct**\
 `“We recognize the gravity of the behavior at issue here and take very seriously conduct of this nature,” the Guardians said in a statement.`\
 https://nytimes.com/athletic/6316132/2025/04/27/jarren-duran-guardians-apology-fan-misconduct/
-
-**Mets blow big lead: 3 takeaways from a day of miscues, missed opportunities**\
-`The Mets squandered a 7-1 edge as the Nationals roared back and walked things off with help from a fielding blunder.`\
-https://nytimes.com/athletic/6316162/2025/04/27/mets-nationals-result-score/
 
