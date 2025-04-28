@@ -1,3 +1,15 @@
+**At Jose Altuve's request, the Astros switch leadoff hitters in search of a spark**\
+`Altuve suggested a switch to Houston's lineup and called for the Astros to sign Jeremy Peña to a contract extension.`\
+https://nytimes.com/athletic/6318992/2025/04/28/astros-jose-altuve-jeremy-pena-leadoff-hitter/
+
+**State Trial Begins Over Police Beating of Tyre Nichols in Memphis**\
+`After a mixed verdict in federal court, Tennessee prosecutors began presenting their case against three former Memphis officers charged with second-degree murder.`\
+https://nytimes.com/2025/04/28/us/politics/tyre-nichols-death-police-trial-memphis.html
+
+**House Passes Bill to Ban Sharing of Revenge Porn, Sending It to Trump**\
+`The Take It Down Act, which united a coalition of conservative and liberal lawmakers, criminalizes the nonconsensual sharing of sexually explicit images of others and requires companies to remove them.`\
+https://nytimes.com/2025/04/28/us/politics/house-revenge-porn-bill.html
+
 **I Can’t Believe Anyone Thinks Trump Actually Cares About Antisemitism**\
 `Jews should remember how Trump promised to “protect” L.G.B.T. citizens.`\
 https://nytimes.com/2025/04/28/opinion/trump-antisemitism-jews-israel.html

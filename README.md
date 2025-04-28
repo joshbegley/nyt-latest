@@ -1,3 +1,15 @@
+**Why the Golden Knights, a 'high hockey-IQ bunch,' are comfortable in tight series vs. Wild**\
+`The Golden Knights’ projected Game 5 lineup has a combined total of 1,358 career playoff games, compared to Minnesota’s 777.`\
+https://nytimes.com/athletic/6319218/2025/04/28/golden-knights-wild-game-5/
+
+**The Trump administration accuses the University of Pennsylvania of violating sex discrimination laws.**\
+`The Department of Education’s findings stem from an investigation into the university’s decision to let Lia Thomas, a transgender woman, compete on the swim team. Penn has said it was following N.C.A.A. rules.`\
+https://nytimes.com/live/2025/04/28/us/trump-news/the-trump-administration-accuses-penn-of-violating-sex-discrimination-laws
+
+**Climate change, once a big issue, fades from Canada’s election.**\
+`By Max Bearak`\
+https://nytimes.com/live/2025/04/28/world/canada-election/climate-change-once-a-big-issue-fades-from-canadas-election
+
 **At Jose Altuve's request, the Astros switch leadoff hitters in search of a spark**\
 `Altuve suggested a switch to Houston's lineup and called for the Astros to sign Jeremy Peña to a contract extension.`\
 https://nytimes.com/athletic/6318992/2025/04/28/astros-jose-altuve-jeremy-pena-leadoff-hitter/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6311090/2025/04/28/what-to-watch-in-sports-nba-play
 **China experience was once a plus. In Canada’s election, it’s a liability.**\
 `By Matina Stevis-Gridneff and Alexandra Stevenson`\
 https://nytimes.com/live/2025/04/28/world/canada-election/china-experience-was-once-a-plus-in-canadas-election-its-a-liability
-
-**All Authors Working on Flagship U.S. Climate Report Are Dismissed**\
-`The Trump administration told researchers it was “releasing” them from their roles. It puts the future of the assessment, which is required by Congress, in doubt.`\
-https://nytimes.com/2025/04/28/climate/national-climate-assessment-authors-dismissed.html
-
-**Murder Trial Opens for Michigan Officer in Traffic Stop Shooting**\
-`Christopher Schurr, a former Grand Rapids police officer, is charged with second-degree murder. His lawyers say he acted in self-defense.`\
-https://nytimes.com/2025/04/28/us/patrick-lyoya-killing-police-trial-michigan.html
-
-**Mets' Brandon Nimmo ties franchise record with 9 RBIs**\
-`Carlos Delgado had nine RBIs in a game against the New York Yankees in 2008. On Monday, Nimmo matched Delgado's feat.`\
-https://nytimes.com/athletic/6319163/2025/04/28/mets-brandon-nimmo-nine-rbis/
 
