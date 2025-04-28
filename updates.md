@@ -1,3 +1,7 @@
+**Pritzker Thunders Against ‘Do Nothing’ Democrats as He Stokes 2028 Talk**\
+`In a fiery speech in New Hampshire, the Illinois governor railed against both President Trump and what he called the “simpering timidity” among some Democrats.`\
+https://nytimes.com/2025/04/27/us/politics/jb-pritzker-2028-new-hampshire-trump-democrats.html
+
 **Boat Collides With Ferry in Florida, Causing Injuries, Police Say**\
 `Forty people were aboard the ferry that was struck near a bridge in Clearwater, Fla., according to the police. It was unclear how many had been injured.`\
 https://nytimes.com/2025/04/27/us/boat-ferry-crash-florida.html
