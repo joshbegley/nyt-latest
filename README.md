@@ -1,9 +1,13 @@
+**Blue Jays takeaways: 'Less is more' for Chris Bassitt, the Aaron Judge plan and more**\
+`The Blue Jays struggled with men on base in the Bronx and need a No. 5 starter with Max Scherzer on the IL.`\
+https://nytimes.com/athletic/6316699/2025/04/27/blue-jays-chris-bassitt-aaron-judge-plan/
+
 **Rough Night for Republican at Town Hall in N.Y. Swing District**\
 `Representative Mike Lawler faced shouts, groans and mockery at a high school auditorium in Rockland County.`\
 https://nytimes.com/2025/04/27/nyregion/mike-lawler-town-hall-trump.html
 
 **How the Blues are beating Hellebuyck and more from a beer-chugging win over Jets**\
-`The Blues chased Connor Hellebuyck from the game for the second straight time in a 5-1 win over the Jets in Game 4.`\
+`The Blues chased Connor Hellebuyck for a second straight game in a 5-1 win over the Jets in Game 4.`\
 https://nytimes.com/athletic/6315401/2025/04/27/blues-defenseman-scoring-nhl-playoffs-hellebuyck-jets/
 
 **U.S. Military Says Its Air Campaign Has Hit More Than 800 Targets in Yemen**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6316568/2025/04/27/san-diego-padres-losing-streak/
 **‘Real Women Have Curves’ Review: This American (Immigrant) Life**\
 `On Broadway, the musical adaptation is a bouncy crowd pleaser about female empowerment, self-acceptance and chasing one’s dreams.`\
 https://nytimes.com/2025/04/27/theater/real-women-have-curves-review.html
-
-**Capitals fend off Canadiens, take 3-1 series lead: Takeaways**\
-`The Capitals cracked the code at Bell Centre, beating the Canadiens 5-2 and going up 3-1 in their first-round series.`\
-https://nytimes.com/athletic/6316489/2025/04/27/capitals-canadiens-nhl-playoffs-2025-game-4-takeaways/
 

@@ -1,3 +1,7 @@
+**Rough Night for Republican at Town Hall in N.Y. Swing District**\
+`Representative Mike Lawler faced shouts, groans and mockery at a high school auditorium in Rockland County.`\
+https://nytimes.com/2025/04/27/nyregion/mike-lawler-town-hall-trump.html
+
 **How the Blues are beating Hellebuyck and more from a beer-chugging win over Jets**\
 `The Blues chased Connor Hellebuyck from the game for the second straight time in a 5-1 win over the Jets in Game 4.`\
 https://nytimes.com/athletic/6315401/2025/04/27/blues-defenseman-scoring-nhl-playoffs-hellebuyck-jets/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/27/theater/real-women-have-curves-review.html
 **Capitals fend off Canadiens, take 3-1 series lead: Takeaways**\
 `The Capitals cracked the code at Bell Centre, beating the Canadiens 5-2 and going up 3-1 in their first-round series.`\
 https://nytimes.com/athletic/6316489/2025/04/27/capitals-canadiens-nhl-playoffs-2025-game-4-takeaways/
-
-**UFL investigating altercation involving fan, Panthers WR Samson Nacua**\
-`Nacua, brother of Rams receiver Puka Nacua, appeared to slap fan following game.`\
-https://nytimes.com/athletic/6316464/2025/04/27/ufl-investigating-altercation-fan-samson-nacua/
 
