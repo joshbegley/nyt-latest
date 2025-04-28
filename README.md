@@ -1,3 +1,11 @@
+**At Jose Altuve's request, the Astros switch leadoff hitters in search of a spark**\
+`Altuve suggested a switch to Houston's lineup and called for the Astros to sign Jeremy Peña to a contract extension.`\
+https://nytimes.com/athletic/6318992/2025/04/28/astros-jose-altuve-jeremy-pena-leadoff-hitter/
+
+**State Trial Begins Over Police Beating of Tyre Nichols in Memphis**\
+`After a mixed verdict in federal court, Tennessee prosecutors began presenting their case against three former Memphis officers charged with second-degree murder.`\
+https://nytimes.com/2025/04/28/us/politics/tyre-nichols-death-police-trial-memphis.html
+
 **House Passes Bill to Ban Sharing of Revenge Porn, Sending It to Trump**\
 `The Take It Down Act, which united a coalition of conservative and liberal lawmakers, criminalizes the nonconsensual sharing of sexually explicit images of others and requires companies to remove them.`\
 https://nytimes.com/2025/04/28/us/politics/house-revenge-porn-bill.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/28/us/patrick-lyoya-killing-police-trial-michigan.ht
 **Mets' Brandon Nimmo ties franchise record with 9 RBIs**\
 `Carlos Delgado had nine RBIs in a game against the New York Yankees in 2008. On Monday, Nimmo matched Delgado's feat.`\
 https://nytimes.com/athletic/6319163/2025/04/28/mets-brandon-nimmo-nine-rbis/
-
-**Immigration policy, once expected to be an election-defining issue, has fallen among voters’ concerns.**\
-`By Vjosa Isai`\
-https://nytimes.com/live/2025/04/28/world/canada-election/immigration-policy-once-expected-to-be-an-election-defining-issue-has-fallen-among-voters-concerns
-
-**Senator Denounces Musk’s Cuts: ‘Not What Anybody Signed Up For’**\
-`Mark Kelly of Arizona, a Democrat and former astronaut who previously consulted for SpaceX, discusses Elon Musk, DOGE and President Trump.`\
-https://nytimes.com/2025/04/28/us/politics/elon-musk-mark-kelly-trump-doge.html
 
