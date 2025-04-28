@@ -1,3 +1,7 @@
+**Chevron Championship: Mao Saigo wins 5-woman playoff for first major title**\
+`The largest playoff in LPGA major championship history ended after one hole with the 23-year-old Saigo winning.`\
+https://nytimes.com/athletic/6316326/2025/04/27/chevron-championship-mao-saigo-playoff-lpga-major/
+
 **Firefighter Paramedic Is Fatally Stabbed by a Patient Aboard an Ambulance**\
 `The emergency worker in Kansas City, Mo., was stabbed in his chest while transporting a patient in what started as a routine call on Sunday, officials said.`\
 https://nytimes.com/2025/04/27/us/paramedic-stabbing-kansas-city.html
