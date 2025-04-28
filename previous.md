@@ -1,3 +1,19 @@
+**College baseball week in review: NC State surges into ACC lead, Texas sweeps Texas A&M**\
+`It was a big weekend for LSU, but an even bigger one for LSU Shreveport, an NAIA school that set a record with its 47th consecutive win. `\
+https://nytimes.com/athletic/6316437/2025/04/28/college-baseball-nc-state-texas-texas-am-lsu/
+
+**When will Liverpool get Premier League trophy and will there be a parade?**\
+`A look at when Arne Slot's side will be presented with the trophy and how much they will earn from title No 20`\
+https://nytimes.com/athletic/6317160/2025/04/28/liverpool-premier-league-trophy-parade/
+
+**Rashford expected to miss remainder of season with hamstring injury**\
+`Further tests will be done to establish the severity of Rashford’s injury but it is not anticipated that he will need surgery.`\
+https://nytimes.com/athletic/6317424/2025/04/28/marcus-rashford-injury-aston-villa-manchester-united/
+
+**Women's college basketball transfer portal winners and losers: LSU, South Carolina and TCU**\
+`How did MiLaysia Fulwiley's transfer from South Carolina to LSU shake up the SEC? Can Notre Dame recover from its exodus of players?`\
+https://nytimes.com/athletic/6316848/2025/04/28/womens-college-basketball-transfer-portal-winners-and-losers-lsu-south-carolina-and-tcu/
+
 **Spain power outage suspends play at Madrid Open, plunging tournament into darkness**\
 `A national power outage disrupted the combined ATP and WTA Tour 1,000 event in Spain.`\
 https://nytimes.com/athletic/6317425/2025/04/28/spain-power-outage-madrid-open-tennis/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6315735/2025/04/28/bruins-fan-survey-2025-early-off
 **'He's a dog': How Ryan Hartman responded from 'wake-up call' to give the Wild his best**\
 `This might be some of the best hockey Hartman has played, at least reminiscent of his 34-goal season three years ago.`\
 https://nytimes.com/athletic/6315317/2025/04/28/wild-ryan-hartman-playoffs/
-
-**Chargers post-NFL Draft depth chart: Where does the rookie class fit on this roster?**\
-`Chargers first-round pick Omarion Hampton figures to be a big piece of a two-pronged attack alongside free-agent signee Najee Harris.`\
-https://nytimes.com/athletic/6316121/2025/04/28/chargers-nfl-draft-2025-depth-chart/
-
-**Cardinals takeaways: 3 changes Nolan Arenado has made in strong start to season**\
-`Both the team and the player have done a commendable job of putting Arenado's failed trade saga in the rearview mirror.`\
-https://nytimes.com/athletic/6315511/2025/04/28/cardinals-nolan-arenado-mlb/
-
-**What I'm hearing about the Penguins' roster vision**\
-`It's clear that Kyle Dubas wants his team to be more physically imposing. His offseason will reflect that.`\
-https://nytimes.com/athletic/6315650/2025/04/28/penguins-nhl-draft-free-agency/
-
-**The Seahawks' draft class raises the floor in 2025, but it also has a sky-high ceiling**\
-`The Seahawks found a likely Day 1 starter on the O-line, but it's their Day 2 picks that could make this a special haul.`\
-https://nytimes.com/athletic/6316309/2025/04/28/jalen-milroe-nick-emmanwori-seahawks-nfl-draft/
 

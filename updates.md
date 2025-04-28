@@ -1,3 +1,19 @@
+**College baseball week in review: NC State surges into ACC lead, Texas sweeps Texas A&M**\
+`It was a big weekend for LSU, but an even bigger one for LSU Shreveport, an NAIA school that set a record with its 47th consecutive win. `\
+https://nytimes.com/athletic/6316437/2025/04/28/college-baseball-nc-state-texas-texas-am-lsu/
+
+**When will Liverpool get Premier League trophy and will there be a parade?**\
+`A look at when Arne Slot's side will be presented with the trophy and how much they will earn from title No 20`\
+https://nytimes.com/athletic/6317160/2025/04/28/liverpool-premier-league-trophy-parade/
+
+**Rashford expected to miss remainder of season with hamstring injury**\
+`Further tests will be done to establish the severity of Rashford’s injury but it is not anticipated that he will need surgery.`\
+https://nytimes.com/athletic/6317424/2025/04/28/marcus-rashford-injury-aston-villa-manchester-united/
+
+**Women's college basketball transfer portal winners and losers: LSU, South Carolina and TCU**\
+`How did MiLaysia Fulwiley's transfer from South Carolina to LSU shake up the SEC? Can Notre Dame recover from its exodus of players?`\
+https://nytimes.com/athletic/6316848/2025/04/28/womens-college-basketball-transfer-portal-winners-and-losers-lsu-south-carolina-and-tcu/
+
 **Spain power outage suspends play at Madrid Open, plunging tournament into darkness**\
 `A national power outage disrupted the combined ATP and WTA Tour 1,000 event in Spain.`\
 https://nytimes.com/athletic/6317425/2025/04/28/spain-power-outage-madrid-open-tennis/
