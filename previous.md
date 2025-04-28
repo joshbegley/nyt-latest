@@ -1,3 +1,15 @@
+**Why this Premier League title meant everything to Liverpool**\
+`To understand why the outpouring of emotion in the city was so raw, you have to go back to 2020 and what came before that too`\
+https://nytimes.com/athletic/6315458/2025/04/28/liverpool-premier-league-title/
+
+**Enzo Maresca needs more Chelsea wins to turn doubters into believers**\
+`In the opening minutes, there are a few more chants than usual at Stamford Bridge but the optimism soon ends`\
+https://nytimes.com/athletic/6314782/2025/04/28/chelsea-everton-premier-league-fans-feature/
+
+**Emirates Stadium, European fortress**\
+`Led by Mikel Arteta, Arsenal have worked hard to make their stadium intimidating for European matches — and have reaped the rewards`\
+https://nytimes.com/athletic/6309918/2025/04/28/arsenal-fortress-emirates-champions-league/
+
 **The pressure of a big week for Ruben Amorim is already telling**\
 `As focus turns to Europe, no injuries and a draw was a good result`\
 https://nytimes.com/athletic/6316092/2025/04/28/amorim-pressure-manchester-united-europe/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6313201/2025/04/28/wolves-nelson-semedo-captain-pre
 **The two minutes that killed Forest - and what they must learn from it**\
 `The lesson to take from Wembley as Forest face five 'cup finals'`\
 https://nytimes.com/athletic/6315707/2025/04/28/nottingham-forest-fa-cup-manchester-city-two-minutes/
-
-**Lewis, O'Reilly, City's revival and the youthful flourish shining through**\
-`Pep Guardiola's side beat Nottingham Forest at Wembley on Sunday to reach the FA Cup final`\
-https://nytimes.com/athletic/6315866/2025/04/28/manchester-city-rico-lewis-nico-oreilly/
-
-**Eddie Howe is back, quieter than usual but as diligent and nerdy as ever**\
-`The Newcastle head coach returned to the touchline on Saturday and made an impact, even if he is not yet 100 per cent`\
-https://nytimes.com/athletic/6312685/2025/04/28/eddie-howe-newcastle-return-ipswich/
-
-**The Briefing: Evaluating Liverpool's success, the Premier League's (lack of) jeopardy**\
-`After the Premier League's champions and relegated sides were confirmed, along with the FA Cup finalists, here's what you need to know `\
-https://nytimes.com/athletic/6315768/2025/04/28/liverpool-success-premier-league-jeopardy/
 

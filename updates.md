@@ -1,3 +1,15 @@
+**Why this Premier League title meant everything to Liverpool**\
+`To understand why the outpouring of emotion in the city was so raw, you have to go back to 2020 and what came before that too`\
+https://nytimes.com/athletic/6315458/2025/04/28/liverpool-premier-league-title/
+
+**Enzo Maresca needs more Chelsea wins to turn doubters into believers**\
+`In the opening minutes, there are a few more chants than usual at Stamford Bridge but the optimism soon ends`\
+https://nytimes.com/athletic/6314782/2025/04/28/chelsea-everton-premier-league-fans-feature/
+
+**Emirates Stadium, European fortress**\
+`Led by Mikel Arteta, Arsenal have worked hard to make their stadium intimidating for European matches — and have reaped the rewards`\
+https://nytimes.com/athletic/6309918/2025/04/28/arsenal-fortress-emirates-champions-league/
+
 **The pressure of a big week for Ruben Amorim is already telling**\
 `As focus turns to Europe, no injuries and a draw was a good result`\
 https://nytimes.com/athletic/6316092/2025/04/28/amorim-pressure-manchester-united-europe/
