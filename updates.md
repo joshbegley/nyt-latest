@@ -1,3 +1,7 @@
+**Arsenal fans: What should the starting XI be for the PSG first leg?**\
+`Merino? Timber? White? Trossard? Who will line up where for Arsenal on Tuesday?`\
+https://nytimes.com/athletic/6317504/2025/04/28/arsenal-fans-what-should-the-starting-xi-be-for-the-psg-first-leg/
+
 **Scoop City: Where the mid-round RBs, TEs and Edge defenders landed**\
 `Recapping where key players landed on days 2 and 3 of the draft, explaining who was behind the Shedeur Sanders prank`\
 https://nytimes.com/athletic/6318369/2025/04/28/where-key-running-backs-tight-ends-and-edge-defenders-landed-scoop-city/

@@ -1,3 +1,7 @@
+**Mike Myers is ready to defend Canada.**\
+`By Sarah Lyall`\
+https://nytimes.com/live/2025/04/28/world/canada-election/mike-myers-is-ready-to-defend-canada
+
 **Scoop City: Where the mid-round RBs, TEs and Edge defenders landed**\
 `Recapping where key players landed on days 2 and 3 of the draft, explaining who was behind the Shedeur Sanders prank`\
 https://nytimes.com/athletic/6318369/2025/04/28/where-key-running-backs-tight-ends-and-edge-defenders-landed-scoop-city/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6317966/2025/04/28/dynasty-league-superflex-top-30-
 **John Jasperse Starts La MaMa Moves! Honoring a Female Lineage**\
 `Jasperse’s engrossing “Tides” was a thrilling opener to a festival that often feels like a home for first drafts.`\
 https://nytimes.com/2025/04/28/arts/dance/john-jasperse-la-mama-moves-tides.html
-
-**Arsenal fans: What should the starting XI be for the PSG first leg?**\
-`Merino? Timber? White? Trossard? Who will line up where for Arsenal on Tuesday?`\
-https://nytimes.com/athletic/6317504/2025/04/28/arsenal-fans-what-should-the-starting-xi-be-for-the-psg-first-leg/
 
