@@ -1,3 +1,15 @@
+**Major Power Outage Hits Spain, Portugal and France**\
+`The blackout affected millions of people and disrupted critical infrastructure such as train systems and traffic lights.`\
+https://nytimes.com/video/world/europe/100000010133699/power-outage-spain-portugal-france.html
+
+**Submit questions for Aaron Gleeman's Twins mailbag**\
+`As the Twins open a four-game series in Cleveland after a 5-1 homestand, what questions do you have about the team and the organization?`\
+https://nytimes.com/athletic/6317367/2025/04/28/minnesota-twins-mailbag-questions/
+
+**Trump Administration Live Updates: New Orders Will Escalate Immigration Crackdown, White House Says**\
+``\
+https://nytimes.com/live/2025/04/28/us/trump-news
+
 **How the Oilers gained the advantage in a war of attrition with the Kings**\
 `For the second straight game, the Oilers rallied in the third period and turned a probable loss into a dramatic win over the Kings.`\
 https://nytimes.com/athletic/6317195/2025/04/28/oilers-kings-game-4-nhl-playoffs/
