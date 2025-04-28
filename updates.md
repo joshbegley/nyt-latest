@@ -1,3 +1,15 @@
+**When Do Polls Close?**\
+`The poll closures are synchronized to happen at roughly the same time across Canada.`\
+https://nytimes.com/2025/04/28/world/canada/when-do-polls-close.html
+
+**House G.O.P. Proposes Charging $1,000 to Claim Asylum, Hiking Fees on Migrants**\
+`As part of legislation to pay for President Trump’s domestic agenda, including his immigration crackdown, House Republicans want to impose or increase fees for legal entry into the United States.`\
+https://nytimes.com/2025/04/28/us/politics/house-republicans-asylum-fees.html
+
+**In French-speaking Quebec, a regional party shakes up the race.**\
+`By Norimitsu Onishi`\
+https://nytimes.com/live/2025/04/28/world/canada-election/in-french-speaking-quebec-a-local-party-shakes-up-the-race
+
 **Tuesday Briefing: Canada’s Momentous Election**\
 `Plus, the poetry challenge.`\
 https://nytimes.com/2025/04/28/briefing/canada-elections-putin-cease-fire-europe-blackout.html
