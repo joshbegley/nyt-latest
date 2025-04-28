@@ -1,3 +1,15 @@
+**Anthony Edwards and the complicated pathway to becoming the face of the NBA**\
+`Try as he might to avoid it, the spotlight is drawn to Edwards like Coppola's camera was to Pacino.`\
+https://nytimes.com/athletic/6315801/2025/04/28/anthony-edwards-face-of-nba-timberwolves-lakers/
+
+**Canada Votes**\
+`We explain what’s at stake in today’s election.`\
+https://nytimes.com/2025/04/28/briefing/canada-election-mark-carney-pierre-poilievre.html
+
+**How to watch the St. Louis Cardinals in 2025: Schedule and broadcast info**\
+`It's never been more complicated to follow all 162 regular-season games for your MLB favorites. Here's a guide specifically for the Cards.`\
+https://nytimes.com/athletic/6306039/2025/04/28/st-louis-cardinals-how-to-watch/
+
 **'Anybody can win Slams': Why the openness at the top of men's tennis is a false dawn**\
 `Despite more men's players feeling that they can win the biggest prizes in tennis, the statistics say the Grand Slams remain a closed shop.`\
 https://nytimes.com/athletic/6315299/2025/04/28/tennis-grand-slams-mens-winners-first-time/
