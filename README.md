@@ -1,3 +1,15 @@
+**What to watch in sports this week: Playoffs, Champions League and 151st Kentucky Derby**\
+`Here's what to look out for on the sports calendar, from nightly postseason action to big races in Miami and Churchill Downs.`\
+https://nytimes.com/athletic/6311090/2025/04/28/what-to-watch-in-sports-nba-playoffs-nhl-kentucky-derby-miami-grand-prix/
+
+**China experience was once a plus. In Canada’s election, it’s a liability.**\
+`By Matina Stevis-Gridneff and Alexandra Stevenson`\
+https://nytimes.com/live/2025/04/28/world/canada-election/china-experience-was-once-a-plus-in-canadas-election-its-a-liability
+
+**All Authors Working on Flagship U.S. Climate Report Are Dismissed**\
+`The Trump administration told researchers it was “releasing” them from their roles. It puts the future of the assessment, which is required by Congress, in doubt.`\
+https://nytimes.com/2025/04/28/climate/national-climate-assessment-authors-dismissed.html
+
 **Murder Trial Opens for Michigan Officer in Traffic Stop Shooting**\
 `Christopher Schurr, a former Grand Rapids police officer, is charged with second-degree murder. His lawyers say he acted in self-defense.`\
 https://nytimes.com/2025/04/28/us/patrick-lyoya-killing-police-trial-michigan.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6318984/2025/04/28/jimmy-butler-will-return-to-cour
 **The Peace Corps, under review by DOGE, is said to plan ‘significant’ staff cuts.**\
 `The head of a Peace Corps alumni group said he was told the cuts would affect full-time employees, not the volunteers working overseas.`\
 https://nytimes.com/2025/04/28/us/politics/peace-corps-cuts-doge.html
-
-**Man City fan groups write open letter to Guardiola over ticket prices**\
-`The letter urges the City manager to speak with the club’s CEO Ferran Soriano.`\
-https://nytimes.com/athletic/6319084/2025/04/28/manchester-city-pep-guardiola-open-letter/
-
-**Trump Looms Over Canada’s Election**\
-`Also, more than 100 Justice Department lawyers are resigning. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2025/04/28/briefing/canada-election-president-trump-justice-department.html
-
-**In Canada’s fight with Trump, Danielle Smith is playing the good cop.**\
-`By Matina Stevis-Gridneff`\
-https://nytimes.com/live/2025/04/28/world/canada-election/in-canadas-fight-with-trump-danielle-smith-is-playing-the-good-cop
 
