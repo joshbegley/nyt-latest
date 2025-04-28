@@ -1,3 +1,11 @@
+**Trump to Sign 2 More Executive Orders on Immigration**\
+`The president plans to direct his administration to compile a list of “sanctuary cities” that do not cooperate with federal enforcement of immigration laws.`\
+https://nytimes.com/2025/04/28/us/politics/trump-2-executive-orders-immigration.html
+
+**Peter Lovesey, a Master of British Whodunits, Is Dead at 88**\
+`He wrote a series of witty police procedurals set in Victorian England and then turned to the present, introducing a cantankerous and technology-averse detective.`\
+https://nytimes.com/2025/04/28/books/peter-lovesey-dead.html
+
 **Fiery Brandon Beane defends 2025 NFL Draft results. Which receivers could be good additions**\
 `Beane felt that the wide receiver class wasn't very deep this year.`\
 https://nytimes.com/athletic/6318393/2025/04/28/buffalo-bills-brandon-beane-comments-wide-receivers/
@@ -26,12 +34,4 @@ https://nytimes.com/athletic/6318331/2025/04/28/penguins-mike-sullivan-coach-kyl
 **Mike Myers is ready to defend Canada.**\
 `By Sarah Lyall`\
 https://nytimes.com/live/2025/04/28/world/canada-election/mike-myers-is-ready-to-defend-canada
-
-**Scoop City: Where the mid-round RBs, TEs and Edge defenders landed**\
-`Recapping where key players landed on days 2 and 3 of the draft, explaining who was behind the Shedeur Sanders prank`\
-https://nytimes.com/athletic/6318369/2025/04/28/where-key-running-backs-tight-ends-and-edge-defenders-landed-scoop-city/
-
-**It's the only Olympic basketball event the U.S. hasn't won. Can Jimmer Fredette fix that?**\
-`Jimmer Fredette was named the new managing director of 3x3 basketball for Team USA, hoping to lead the team to an Olympic breakthrough.`\
-https://nytimes.com/athletic/6317992/2025/04/28/basketball-olympics-3x3-usa-jimmer-fredette/
 
