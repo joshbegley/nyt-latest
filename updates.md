@@ -1,3 +1,7 @@
+**‘Real Women Have Curves’ Review: This American (Immigrant) Life**\
+`On Broadway, the musical adaptation is a bouncy crowd pleaser about female empowerment, self-acceptance and chasing one’s dreams.`\
+https://nytimes.com/2025/04/27/theater/real-women-have-curves-review.html
+
 **Capitals fend off Canadiens, take 3-1 series lead: Takeaways**\
 `The Capitals cracked the code at Bell Centre, beating the Montreal Canadiens 5-2 and going up 3-1 in their first-round series.`\
 https://nytimes.com/athletic/6316489/2025/04/27/capitals-canadiens-nhl-playoffs-2025-game-4-takeaways/

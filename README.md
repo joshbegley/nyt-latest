@@ -3,7 +3,7 @@
 https://nytimes.com/2025/04/27/theater/real-women-have-curves-review.html
 
 **Capitals fend off Canadiens, take 3-1 series lead: Takeaways**\
-`The Capitals cracked the code at Bell Centre, beating the Montreal Canadiens 5-2 and going up 3-1 in their first-round series.`\
+`The Capitals cracked the code at Bell Centre, beating the Canadiens 5-2 and going up 3-1 in their first-round series.`\
 https://nytimes.com/athletic/6316489/2025/04/27/capitals-canadiens-nhl-playoffs-2025-game-4-takeaways/
 
 **UFL investigating altercation involving fan, Panthers WR Samson Nacua**\
