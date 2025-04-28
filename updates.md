@@ -1,3 +1,7 @@
+**Saudi Arabia and Qatar to Pay Off Syria’s Debt to the World Bank**\
+`The countries agreed to cover $15 million owed to the lender as the new government in Damascus looks to rebuild the economy after the civil war.`\
+https://nytimes.com/2025/04/28/world/middleeast/saudi-arabia-qatar-syria-debt.html
+
 **Tennessee commit Nate Ament credits his talents to his family — and his first love**\
 `Ament is the highest-ranked recruit in Vols history. He wasn't drawn to basketball until his 6-foot-9 frame led him to leave soccer behind.`\
 https://nytimes.com/athletic/6309854/2025/04/28/tennessee-mens-basketball-recruiting-nate-ament/
