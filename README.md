@@ -34,7 +34,7 @@ https://nytimes.com/2025/04/28/us/politics/ibm-investment-manufacturing.html
 `The United Nations criticized Israel for its ban on aid in hearings at the International Court of Justice. Israel did not send a legal delegation and rejected the proceedings as biased.`\
 https://nytimes.com/2025/04/28/world/middleeast/israel-icj-gaza-aid.html
 
-**Where to vote in Canada’s election.**\
-`By Talya Minsberg`\
-https://nytimes.com/live/2025/04/28/world/canada-election/where-to-vote-in-canadas-election
+**Where to Vote in Canada’s Election**\
+`You can find a voting station on Canada’s election website or by calling a toll-free number.`\
+https://nytimes.com/2025/04/28/world/canada/federal-election-where-to-vote.html
 
