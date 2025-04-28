@@ -1,3 +1,19 @@
+**Fiery Brandon Beane defends 2025 NFL Draft results. Which receivers could be good additions**\
+`Beane felt that the wide receiver class wasn't very deep this year.`\
+https://nytimes.com/athletic/6318393/2025/04/28/buffalo-bills-brandon-beane-comments-wide-receivers/
+
+**Lawsuit Challenges Policy Allowing Immigration Action in Churches and Schools**\
+`The lawsuit seeks to prevent the Trump administration from carrying out operations that disrupt certain civic spaces, particularly those where adults and children congregate together.`\
+https://nytimes.com/2025/04/28/us/politics/trump-immigration-churches-schools.html
+
+**E.P.A. Says It Will Tackle ‘Forever Chemicals.’ Details are Sparse.**\
+`A new proposal to combat PFAS contamination, announced by the Environmental Protection Agency, left critical questions unanswered.`\
+https://nytimes.com/2025/04/28/climate/epa-pfas-forever-chemicals.html
+
+**Dubas explains 'amicable' Mike Sullivan-Penguins split**\
+`Dubas: "Sometimes the class needs a new professor; sometimes the professor needs a new class."`\
+https://nytimes.com/athletic/6318331/2025/04/28/penguins-mike-sullivan-coach-kyle-dubas/
+
 **Pursuing Pizza Perfection?**\
 `Chefs across the Ooniverse share their tips.
 `\

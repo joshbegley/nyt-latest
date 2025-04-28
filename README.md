@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6318393/2025/04/28/buffalo-bills-brandon-beane-comm
 `The lawsuit seeks to prevent the Trump administration from carrying out operations that disrupt certain civic spaces, particularly those where adults and children congregate together.`\
 https://nytimes.com/2025/04/28/us/politics/trump-immigration-churches-schools.html
 
-**E.P.A. Says It Will Tackle ‘Forever Chemicals.’ Details are Sparse.**\
+**E.P.A. Says It Will Tackle ‘Forever Chemicals.’ Details Are Sparse.**\
 `A new proposal to combat PFAS contamination, announced by the Environmental Protection Agency, left critical questions unanswered.`\
 https://nytimes.com/2025/04/28/climate/epa-pfas-forever-chemicals.html
 
