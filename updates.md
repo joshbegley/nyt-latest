@@ -1,3 +1,11 @@
+**How Trump, Trudeau and Tariffs Upended Canada’s Political Landscape**\
+`After nearly a decade in power, the Liberal Party seemed destined to be swept out on a wave of anti-incumbency sentiment. Then events took a surprising turn.`\
+https://nytimes.com/2025/04/28/world/canada/canada-elections-tariffs.html
+
+**NHL playoffs vibe check: Jets' defense, Kings' third periods, Landeskog's surprising play**\
+`Three teams are already on the brink of elimination in this year's NHL playoffs. Here's one trend from every series.`\
+https://nytimes.com/athletic/6316515/2025/04/28/nhl-playoffs-vibe-check-jets-kings-special-teams/
+
 **Brighton & Hove Albion mailbag: Do you have a question for our correspondent?**\
 `Post your Brighton questions here and our correspondent Andy Naylor will answer a selection of them`\
 https://nytimes.com/athletic/6317722/2025/04/28/brighton-hove-albion-mailbag-do-you-have-a-question-for-our-correspondent/
