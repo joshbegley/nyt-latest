@@ -1,3 +1,7 @@
+**Spain power outage suspends play at Madrid Open, plunging tournament into darkness**\
+`A national power outage disrupted the combined ATP and WTA Tour 1,000 event in Spain.`\
+https://nytimes.com/athletic/6317425/2025/04/28/spain-power-outage-madrid-open-tennis/
+
 **Trump Administration Live Updates: Two American Children Sent to Honduras With Deported Mother, Lawyer Says**\
 ``\
 https://nytimes.com/live/2025/04/28/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6315650/2025/04/28/penguins-nhl-draft-free-agency/
 **The Seahawks' draft class raises the floor in 2025, but it also has a sky-high ceiling**\
 `The Seahawks found a likely Day 1 starter on the O-line, but it's their Day 2 picks that could make this a special haul.`\
 https://nytimes.com/athletic/6316309/2025/04/28/jalen-milroe-nick-emmanwori-seahawks-nfl-draft/
-
-**Anthony Stolarz enters uncharted territory as Leafs fight to finish series**\
-`It's unlikely the Leafs will play anyone but Stolarz, barring an unforeseen collapse. But how will Stolarz adapt to the playoffs workload?`\
-https://nytimes.com/athletic/6315255/2025/04/28/anthony-stolarz-maple-leafs-workload-nhl-playoffs/
 

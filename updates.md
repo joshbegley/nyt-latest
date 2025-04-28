@@ -1,3 +1,7 @@
+**Spain power outage suspends play at Madrid Open, plunging tournament into darkness**\
+`A national power outage disrupted the combined ATP and WTA Tour 1,000 event in Spain.`\
+https://nytimes.com/athletic/6317425/2025/04/28/spain-power-outage-madrid-open-tennis/
+
 **Trump Administration Live Updates: Two American Children Sent to Honduras With Deported Mother, Lawyer Says**\
 ``\
 https://nytimes.com/live/2025/04/28/us/trump-news
