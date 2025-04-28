@@ -1,3 +1,7 @@
+**How the Oilers gained the advantage in a war of attrition with the Kings**\
+`For the second straight game, the Oilers rallied in the third period and turned a probable loss into a dramatic win over the Kings.`\
+https://nytimes.com/athletic/6317195/2025/04/28/oilers-kings-game-4-nhl-playoffs/
+
 **‘Grandpa Robbers’ Go on Trial in Paris Over 2016 Kim Kardashian Heist**\
 `The reality TV star and entrepreneur was tied up and held at gunpoint, and jewelry worth nearly $9 million was stolen in the incident.`\
 https://nytimes.com/2025/04/28/world/europe/grandpa-robbers-go-on-trial-in-paris-over-2016-kim-kardashian-heist.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6315770/2025/04/28/maple-leafs-nhl-playoffs-game-5-
 **Why the Jets' 'best of three' series vs. Blues is 3 years in the making**\
 `The Jets don't need a miracle to win Game 5. They just need to meet the moment they worked so hard to create.`\
 https://nytimes.com/athletic/6315447/2025/04/28/jets-nhl-playoffs-blues-best-of-three/
-
-**Bruins fan survey: Next coach? Confidence in Cam Neely, Don Sweeney? Trade the first-rounder?**\
-`How do you think the Bruins should approach their critical offseason? Weigh in here in our early offseason fan survey.`\
-https://nytimes.com/athletic/6315735/2025/04/28/bruins-fan-survey-2025-early-offseason/
 
