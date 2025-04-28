@@ -1,3 +1,11 @@
+**NHL Vezina Trophy finalists announced — what would Connor Hellebuyck's third win mean?**\
+`Winnipeg Jets goaltender Connor Hellebuyck, Darcy Kuemper of the Los Angeles Kings and Andrei Vasilevskiy of the Tampa Bay Lightning were named finalists for the NHL’s Vezina Trophy on Monday, awarded “to the goalkeeper adjudged to be the best at this position.`\
+https://nytimes.com/athletic/6309893/2025/04/28/nhl-vezina-trophy-hellebuyck/
+
+**Tara Davis-Woodhall brings her star power as Athlos NYC introduces a field event**\
+`The next edition of Athlos NYC later this year will introduce a long jump event, headlined by American star Tara Davis-Woodhall.`\
+https://nytimes.com/athletic/6317578/2025/04/28/tara-davis-woodhall-athlos-nyc-long-jump-field/
+
 **Pakistan’s Detention of Indian Border Guard Adds to Tensions**\
 `While the case is fairly routine, it comes as India indicates it is preparing to strike Pakistan in response to last week’s deadly terrorist attack.`\
 https://nytimes.com/2025/04/28/world/asia/pakistan-india-border-guard-detained.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/28/arts/design/salman-toor-art-luhring-augustine.htm
 **Go-To Noodles for On-the-Go Days**\
 `Hetty Lui McKinnon turns pantry staples (soy and hoisin sauces, dried noodles and garlic) into a craveable 25-minute dinner.`\
 https://nytimes.com/2025/04/28/dining/fast-noodles-dinner-recipe.html
-
-**News is blocked on Meta’s feeds in Canada. Here’s what fills the void.**\
-`By Matina Stevis-Gridneff and Stuart A. Thompson`\
-https://nytimes.com/live/2025/04/28/world/canada-election/news-is-blocked-on-metas-feeds-in-canada-heres-what-fills-the-void
-
-**Fill in the Blank: Which U.S. Cities Are in These Book Titles?**\
-`Try this short literary geography quiz.`\
-https://nytimes.com/interactive/2025/04/28/books/book-titles-cities.html
 
