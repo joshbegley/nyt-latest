@@ -1,3 +1,7 @@
+**The Sens need Linus Ullmark to steal Game 5 against the Maple Leafs**\
+`If the Senators want to complete their audacious comeback from 3-0, they're going to need a Vezina-worthy performance from Ullmark.`\
+https://nytimes.com/athletic/6315849/2025/04/28/senators-ullmark-maple-leafs-goalie/
+
 **The Athletic college baseball Top 25: NC State, UNC enter top 10, Texas stays No. 1**\
 `Wolfpack climb 17 spots after sweeping Clemson. ACC now has four teams in the top 10. `\
 https://nytimes.com/athletic/6317518/2025/04/28/college-baseball-rankings-nc-state-north-carolina-texas/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6298741/2025/04/28/cincinnati-football-practice-fac
 **Major Power Outage Hits Spain, Portugal and France**\
 `The blackout affected millions of people and disrupted critical infrastructure such as train systems and traffic lights.`\
 https://nytimes.com/video/world/europe/100000010133699/power-outage-spain-portugal-france.html
-
-**Submit questions for Aaron Gleeman's Twins mailbag**\
-`As the Twins open a four-game series in Cleveland after a 5-1 homestand, what questions do you have about the team and the organization?`\
-https://nytimes.com/athletic/6317367/2025/04/28/minnesota-twins-mailbag-questions/
 
