@@ -1,3 +1,27 @@
+**The Briefing: Evaluating Liverpool's success, the Premier League's (lack of) jeopardy**\
+`After the Premier League's champions and relegated sides were confirmed, along with the FA Cup finalists, here's what you need to know `\
+https://nytimes.com/athletic/6315768/2025/04/28/liverpool-success-premier-league-jeopardy/
+
+**Ranking all 33 Premier League champions – from least best to very best**\
+`Liverpool are the latest team to win the Premier League title - but where do they rank in the all-time list? And who's top?`\
+https://nytimes.com/athletic/6286928/2025/04/28/premier-league-champions-ranked/
+
+**Cade Cunningham, Pistons can't escape growing pains that come with postseason basketball**\
+`"I trust Cade to take that shot 100 times in a row," Pistons coach J.B. Bickerstaff said of Cunningham's late jumper that was off the mark.`\
+https://nytimes.com/athletic/6316434/2025/04/28/cade-cunningham-pistons-knicks-game-4/
+
+**Champions League semi-finals: Breaking down the strengths and weaknesses of all four contenders**\
+`The race for European glory has reached its final four contenders, so how do Arsenal, PSG, Barcelona and Inter stack up?`\
+https://nytimes.com/athletic/6301529/2025/04/28/champions-league-semi-finals-arsenal-inter-barcelona-psg/
+
+**A title race like no other: Recapping a 'crazy' final day in English non-League football**\
+`Three teams were level on points at the top of the division on the final day. But there could only be one winner`\
+https://nytimes.com/athletic/6314841/2025/04/28/isthmian-premier-league-title-race/
+
+**Welcome to Roberto De Zerbi’s Marseille: Goals, moles and mutiny claims**\
+`Marseille are on track for the Champions League but they are never far from a crisis and life under their Italian head coach is rarely dull`\
+https://nytimes.com/athletic/6312103/2025/04/28/marseille-roberto-de-zerbi-champions-league/
+
 **What now for Chelsea after succumbing (once again) to a superior Barcelona team?**\
 `Chelsea electing to play Barcelona at their own slick passing game carried a specific kind of risk - and it backfired `\
 https://nytimes.com/athletic/6315290/2025/04/28/chelsea-barcelona-champions-league-semifinals-analysis/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6314745/2025/04/28/crystal-palace-aston-villa-press
 **One Key to a Successful Campaign for Pope? Act Like You’re Not Campaigning.**\
 `Crucial meetings will be held this week in which contenders begin jockeying in earnest for the job of leading the Roman Catholic Church.`\
 https://nytimes.com/2025/04/28/world/europe/pope-conclave-campaigning.html
-
-**The Dollar’s Weakness Creates an Opportunity for the Euro. Can It Last?**\
-`European officials see the concern over the “safe haven” reputation of U.S. financial assets as a chance to attract investors.`\
-https://nytimes.com/2025/04/28/business/us-dollar-euro-trade-trump.html
-
-**Connections: Sports Edition Coach: Hints for April 28, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6316801/2025/04/28/connections-sports-edition-hints-for-april-28-2025/
-
-**Quote of the Day: International Students Worry Despite Some Legal Status Restorations**\
-`Quotation of the Day for Monday, April 28, 2025.`\
-https://nytimes.com/2025/04/27/pageoneplus/quote-of-the-day-international-students-worry-despite-some-legal-status-restorations.html
-
-**'No time to step off the gas,' as the Cubs know this is only a good start: 'We need better'**\
-`"We had a good April last year, too," Cubs president of baseball operations Jed Hoyer said. "And then we erased that really quickly."`\
-https://nytimes.com/athletic/6316831/2025/04/27/cubs-good-start-need-better/
-
-**​North Korea Confirms It Sent Troops to Fight for Russia**\
-`Its leader, Kim Jong-un, ordered a monument for soldiers killed in the war against Ukraine and praised their “heroism and bravery​.”`\
-https://nytimes.com/2025/04/27/world/asia/north-korea-troops-russia.html
-
-**Pritzker Thunders Against ‘Do Nothing’ Democrats as He Stokes 2028 Talk**\
-`In a fiery speech in New Hampshire, the Illinois governor railed against both President Trump and what he called the “simpering timidity” among some Democrats.`\
-https://nytimes.com/2025/04/27/us/politics/jb-pritzker-2028-new-hampshire-trump-democrats.html
 

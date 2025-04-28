@@ -1,3 +1,11 @@
+**What now for Chelsea after succumbing (once again) to a superior Barcelona team?**\
+`Chelsea electing to play Barcelona at their own slick passing game carried a specific kind of risk - and it backfired `\
+https://nytimes.com/athletic/6315290/2025/04/28/chelsea-barcelona-champions-league-semifinals-analysis/
+
+**How Crystal Palace's measured mid-block pressing was vital against Aston Villa**\
+`Crystal Palace's pressing was not gung-ho on Saturday, and that helped them beat Aston Villa`\
+https://nytimes.com/athletic/6314745/2025/04/28/crystal-palace-aston-villa-pressing-analysis/
+
 **Quantifying 'on the beach' football - and why Fulham are not playing it**\
 `A competitive Premier League mid-table means there is still plenty to play for in the final few weeks of the 2024-25 season`\
 https://nytimes.com/athletic/6313560/2025/04/28/on-the-beach-football-southampton-football/

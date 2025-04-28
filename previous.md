@@ -1,6 +1,14 @@
+**What now for Chelsea after succumbing (once again) to a superior Barcelona team?**\
+`Chelsea electing to play Barcelona at their own slick passing game carried a specific kind of risk - and it backfired `\
+https://nytimes.com/athletic/6315290/2025/04/28/chelsea-barcelona-champions-league-semifinals-analysis/
+
 **Quantifying 'on the beach' football - and why Fulham are not playing it**\
 `A competitive Premier League mid-table means there is still plenty to play for in the final few weeks of the 2024-25 season`\
 https://nytimes.com/athletic/6313560/2025/04/28/on-the-beach-football-southampton-football/
+
+**How Crystal Palace's measured mid-block pressing was vital against Aston Villa**\
+`Crystal Palace's pressing was not gung-ho on Saturday, and that helped them beat Aston Villa`\
+https://nytimes.com/athletic/6314745/2025/04/28/crystal-palace-aston-villa-pressing-analysis/
 
 **One Key to a Successful Campaign for Pope? Act Like You’re Not Campaigning.**\
 `Crucial meetings will be held this week in which contenders begin jockeying in earnest for the job of leading the Roman Catholic Church.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/27/world/asia/north-korea-troops-russia.html
 **Pritzker Thunders Against ‘Do Nothing’ Democrats as He Stokes 2028 Talk**\
 `In a fiery speech in New Hampshire, the Illinois governor railed against both President Trump and what he called the “simpering timidity” among some Democrats.`\
 https://nytimes.com/2025/04/27/us/politics/jb-pritzker-2028-new-hampshire-trump-democrats.html
-
-**Boat Collides With Ferry in Florida, Causing Injuries, Police Say**\
-`Forty people were aboard the ferry that was struck near a bridge in Clearwater, Fla., according to the police. It was unclear how many had been injured.`\
-https://nytimes.com/2025/04/27/us/boat-ferry-crash-florida.html
-
-**‘60 Minutes’ Chastises Its Corporate Parent in Unusual On-Air Rebuke**\
-`The show’s top producer abruptly said last week he was quitting. “Paramount began to supervise our content in new ways,” the correspondent Scott Pelley told viewers.`\
-https://nytimes.com/2025/04/27/business/media/60-minutes-scott-pelley-paramount.html
 
