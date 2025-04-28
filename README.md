@@ -1,3 +1,7 @@
+**‘60 Minutes’ Chastises Its Corporate Parent in Unusual On-Air Rebuke**\
+`The show’s top producer abruptly said last week he was quitting. “Paramount began to supervise our content in new ways,” the correspondent Scott Pelley told viewers.`\
+https://nytimes.com/2025/04/27/business/media/60-minutes-scott-pelley-paramount.html
+
 **Bucks star Damian Lillard leaves Game 4 with leg injury, will not return**\
 `The severity of Lillard's injury is not expected to be known until Monday.`\
 https://nytimes.com/athletic/6316705/2025/04/27/damian-lillard-out-game-4-bucks-pacers/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/27/arts/television/the-last-of-us-recap-season-2-epi
 **Devils' Timo Meier, a controversial collision and the edge between reckless and 'made for the playoffs'**\
 `Meier ran into Frederik Andersen in Game 4 of the teams' first-round series Sunday, sending the Hurricanes goalie to the injury ward.`\
 https://nytimes.com/athletic/6316501/2025/04/27/timo-meier-frederik-andersen-controversy-nhl-playoffs/
-
-**Padres takeaways: Swept away, Xander Bogaerts’ power outage, bullpen flowers**\
-`“It’s not as easy as we made it look, and it’s not as hard as it is now," manager Mike Shildt said of San Diego's season.`\
-https://nytimes.com/athletic/6316568/2025/04/27/san-diego-padres-losing-streak/
 
