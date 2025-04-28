@@ -1,3 +1,7 @@
+**‘Grandpa Robbers’ Go on Trial in Paris Over 2016 Kim Kardashian Heist**\
+`The reality TV star and entrepreneur was tied up and held at gunpoint, and jewelry worth nearly $9 million was stolen in the incident.`\
+https://nytimes.com/2025/04/28/world/europe/grandpa-robbers-go-on-trial-in-paris-over-2016-kim-kardashian-heist.html
+
 **College baseball week in review: NC State surges into ACC lead, Texas sweeps Texas A&M**\
 `It was a big weekend for LSU, but an even bigger one for LSU Shreveport, an NAIA school that set a record with its 47th consecutive win. `\
 https://nytimes.com/athletic/6316437/2025/04/28/college-baseball-nc-state-texas-texas-am-lsu/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6315447/2025/04/28/jets-nhl-playoffs-blues-best-of-
 **Bruins fan survey: Next coach? Confidence in Cam Neely, Don Sweeney? Trade the first-rounder?**\
 `How do you think the Bruins should approach their critical offseason? Weigh in here in our early offseason fan survey.`\
 https://nytimes.com/athletic/6315735/2025/04/28/bruins-fan-survey-2025-early-offseason/
-
-**'He's a dog': How Ryan Hartman responded from 'wake-up call' to give the Wild his best**\
-`This might be some of the best hockey Hartman has played, at least reminiscent of his 34-goal season three years ago.`\
-https://nytimes.com/athletic/6315317/2025/04/28/wild-ryan-hartman-playoffs/
 
