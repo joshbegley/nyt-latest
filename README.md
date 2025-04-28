@@ -1,3 +1,11 @@
+**Devils' Timo Meier, a controversial collision and the edge between reckless and 'made for the playoffs'**\
+`Meier ran into Frederik Andersen in Game 4 of the teams' first-round series Sunday, sending the Hurricanes goalie to the injury ward.`\
+https://nytimes.com/athletic/6316501/2025/04/27/timo-meier-frederik-andersen-controversy-nhl-playoffs/
+
+**Padres takeaways: Swept away, Xander Bogaerts’ power outage, bullpen flowers**\
+`“It’s not as easy as we made it look, and it’s not as hard as it is now," manager Mike Shildt said of San Diego's season.`\
+https://nytimes.com/athletic/6316568/2025/04/27/san-diego-padres-losing-streak/
+
 **‘Real Women Have Curves’ Review: This American (Immigrant) Life**\
 `On Broadway, the musical adaptation is a bouncy crowd pleaser about female empowerment, self-acceptance and chasing one’s dreams.`\
 https://nytimes.com/2025/04/27/theater/real-women-have-curves-review.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6316329/2025/04/27/zurich-classic-pga-tour-andrew-n
 **Twins takeaways: Joe Ryan's poise, Carlos Correa's hitting and more from a 5-1 homestand**\
 `There was a moment during Ryan’s 11-strikeout performance when everything could have gone sideways. With the help of his catcher, it didn't.`\
 https://nytimes.com/athletic/6316248/2025/04/27/minnesota-twins-week-schedule-results/
-
-**Chaos Graph**\
-`People immersed in chaos try to solve for what it all adds up to.`\
-https://nytimes.com/2025/04/27/podcasts/chaos-graph-this-american-life-nyt-audio.html
-
-**Chevron Championship: Mao Saigo wins 5-woman playoff for first major title**\
-`The largest playoff in LPGA major championship history ended after one hole with the 23-year-old Saigo winning.`\
-https://nytimes.com/athletic/6316326/2025/04/27/chevron-championship-mao-saigo-playoff-lpga-major/
 
