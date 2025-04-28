@@ -1,3 +1,19 @@
+**Brad Lander’s 2 Goals in N.Y.C. Mayor’s Race: Beat Cuomo and Win**\
+`Mr. Lander, the New York City comptroller, says voters seeking a competent leader should look to him and not the former governor: “I am a decent person. Let’s just start there.”`\
+https://nytimes.com/2025/04/28/nyregion/brad-lander-mayor-nyc.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/04/28/crosswords/spelling-bee-forum.html
+
+**As India and Pakistan Cancel Visas, Parents and Children Are Separated**\
+`The repercussions from a terrorist attack led to painful scenes at the countries’ border, as families with mixed citizenship were suddenly divided.`\
+https://nytimes.com/2025/04/28/world/asia/india-pakistan-visas-kashmir.html
+
+**Trump Doesn’t Want to Protect All Jewish Students — Just Those on His Team**\
+`Going after antisemitism on campus has swept up Jewish students protesting the war in Gaza.`\
+https://nytimes.com/2025/04/28/opinion/jewish-student-protesters-gaza.html
+
 **Can the Magic follow the Celtics' lead and give their young stars the help they need?**\
 `Boston got supporting help for Jayson Tatum and Jaylen Brown. Now Orlando must do the same for Paolo Banchero and Franz Wagner.`\
 https://nytimes.com/athletic/6316998/2025/04/28/paolo-banchero-franz-wagner-magic-celtics-game-4-nba/
