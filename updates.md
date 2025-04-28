@@ -1,3 +1,15 @@
+**How the Blues are beating Hellebuyck and more from a beer-chugging win over Jets**\
+`The Blues chased Connor Hellebuyck from the game for the second straight time in a 5-1 win over the Jets in Game 4.`\
+https://nytimes.com/athletic/6315401/2025/04/27/blues-defenseman-scoring-nhl-playoffs-hellebuyck-jets/
+
+**Braves takeaways: Spencer Schwellenbach hits a lull, Ozzie Albies struggles and more**\
+`Schwellenbach got off to such a hot start that anything less than dominance seems a bit surprising. "He's fine," Brian Snitker said.`\
+https://nytimes.com/athletic/6316602/2025/04/27/braves-schwellenbach-albies/
+
+**Broncos' Greenlaw has quad injury, expected to be ready for season: Sources**\
+`After spending six seasons with San Francisco, Greenlaw inked a three-year deal with Denver in March. `\
+https://nytimes.com/athletic/6316393/2025/04/27/broncos-dre-greenlaw-quad-injury/
+
 **U.S. Military Says Its Air Campaign Has Hit More Than 800 Targets in Yemen**\
 `President Trump ordered a start to the strikes against the Houthis on March 15. Congressional officials say the campaign has cost well over $1 billion.`\
 https://nytimes.com/2025/04/27/us/politics/military-targets-houthis-yemen.html
