@@ -1,3 +1,7 @@
+**Six things we've learned about the Wild during this first-round series**\
+`Coach John Hynes is doing some lineup tweaking heading into Game 5 on Tuesday. What will it mean?`\
+https://nytimes.com/athletic/6318794/2025/04/28/wild-golden-knights-game-5-lineup/
+
 **The Best Advice I’ve Ever Heard for How to Be Happy**\
 `Tips from experts, astronauts and Cher on finding bliss.`\
 https://nytimes.com/interactive/2025/04/28/magazine/how-to-be-happy.html
