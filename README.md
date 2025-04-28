@@ -1,3 +1,23 @@
+**Pakistan’s Detention of Indian Border Guard Adds to Tensions**\
+`While the case is fairly routine, it comes as India indicates it is preparing to strike Pakistan in response to last week’s deadly terrorist attack.`\
+https://nytimes.com/2025/04/28/world/asia/pakistan-india-border-guard-detained.html
+
+**‘Sinners,’ the Blues and Fighting for Artistic Control**\
+`Unpacking the Ryan Coogler movie starring Michael B. Jordan, and its relationship to music, genre and gatekeeping.`\
+https://nytimes.com/2025/04/28/arts/music/sinners-reaction-popcast.html
+
+**Staple: Mike Sullivan is available, and the Rangers have to get their guy this time**\
+`Chris Drury has wanted to lure in Sullivan pretty much since the day he got the GM job. Now he finally has his shot, and he can't miss it.`\
+https://nytimes.com/athletic/6317662/2025/04/28/rangers-mike-sullivan-coach-candidate/
+
+**Leaders adamant House settlement's roster limits issues will be resolved**\
+`'This settlement is not going to blow up over this,' an athletic director at a Power 4 school told The Athletic.`\
+https://nytimes.com/athletic/6317784/2025/04/28/ncaa-roster-limits-house-ncaa-settlement/
+
+**Feeling Political Heat, Colleges Pump Up Their Lobbying**\
+`An analysis by The New York Times found that schools targeted by the Trump administration have sharply increased spending on lobbying and became far more reliant on lobbyists with Republican ties.`\
+https://nytimes.com/2025/04/28/us/trump-universities-lobbyists.html
+
 **Eagles to visit White House for Super Bowl victory on Monday: What to know**\
 `The event, set to begin at 4 p.m., will be the Eagles' first Super Bowl visit to the White House following a rescinded invitation in 2018. `\
 https://nytimes.com/athletic/6317678/2025/04/28/eagles-white-house-trump-super-bowl-lix/
@@ -17,24 +37,4 @@ https://nytimes.com/live/2025/04/28/world/canada-election/news-is-blocked-on-met
 **Fill in the Blank: Which U.S. Cities Are in These Book Titles?**\
 `Try this short literary geography quiz.`\
 https://nytimes.com/interactive/2025/04/28/books/book-titles-cities.html
-
-**5 Places to Turn for Accurate Health Information**\
-`Changes to federal health websites have raised concerns about their reliability. These independent sources offer an alternative.`\
-https://nytimes.com/2025/04/28/well/health-information-accurate-online.html
-
-**Previously Unpublished: A Look at One of the Last Things Pope Francis Wrote**\
-`In a foreword to a book, he articulated the church’s position on marriage.`\
-https://nytimes.com/2025/04/28/us/pope-francis-unpublished-writing.html
-
-**On Tango, and Lasting Marriage: By Pope Francis**\
-`A transcript of one of the last things he wrote before he died.`\
-https://nytimes.com/2025/04/28/us/pope-francis-transcript.html
-
-**The Bounce: NBA playoffs energized by close buzzer-beaters, controversial non-calls and more**\
-`The Nuggets were on the verge of a brutal collapse before Aaron Gordon breathed new life into their playoff run`\
-https://nytimes.com/athletic/6317697/2025/04/28/aaron-gordon-nuggets-clippers-lakers-lebron-james-luka-doncic-playoffs-nba-the-bounce/
-
-**Why Mike Sullivan makes sense as Bruins coach after parting ways with Penguins**\
-`The two-time Stanley Cup coach has a multitude of connections to the Bruins organization but will be a popular candidate elsewhere, as well.`\
-https://nytimes.com/athletic/6317748/2025/04/28/mike-sullivan-bruins-coach-candidate/
 
