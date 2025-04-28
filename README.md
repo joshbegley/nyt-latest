@@ -1,3 +1,12 @@
+**Pursuing Pizza Perfection?**\
+`Chefs across the Ooniverse share their tips.
+`\
+https://nytimes.com/paidpost/ooni/pursuing-pizza-perfection.html
+
+**Maple Leafs' John Tavares on Artem Zub hit, missing OT power play: 'Puck's nowhere near me'**\
+`John Tavares says the NHL's concussion spotter pulled him from overtime on Saturday night.`\
+https://nytimes.com/athletic/6318524/2025/04/28/maple-leafs-john-tavares-nhl-playoffs/
+
 **Mike Myers is ready to defend Canada.**\
 `By Sarah Lyall`\
 https://nytimes.com/live/2025/04/28/world/canada-election/mike-myers-is-ready-to-defend-canada
@@ -25,12 +34,4 @@ https://nytimes.com/2025/04/28/world/europe/seagull-screeching-competition-europ
 **Europeans Screech Off at Belgium’s Sea Gull Imitation Championship**\
 `Contestants from Denmark, Italy and Britain won the top medals in this year’s European Sea Gull Screeching Championship in the coastal Belgian town of De Panne.`\
 https://nytimes.com/video/world/europe/100000010134350/belguim-europe-seagull-competition.html
-
-**2025 dynasty league SuperFlex Top 30 rookie rankings (with tiers)**\
-`Jeff Haverlack offers up his post-NFL draft rookie rankings for SuperFlex formats, with two first-round running backs leading the way.`\
-https://nytimes.com/athletic/6317966/2025/04/28/dynasty-league-superflex-top-30-rookie-rankings-tiers-ashton-jeanty/
-
-**John Jasperse Starts La MaMa Moves! Honoring a Female Lineage**\
-`Jasperse’s engrossing “Tides” was a thrilling opener to a festival that often feels like a home for first drafts.`\
-https://nytimes.com/2025/04/28/arts/dance/john-jasperse-la-mama-moves-tides.html
 
