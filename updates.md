@@ -1,3 +1,11 @@
+**Justices Appear Skeptical of School District in Student Disability Rights Case**\
+`The case is being watched closely by disability rights groups, which warned that arguments by a school district could threaten broader protections for disabled people.`\
+https://nytimes.com/2025/04/28/us/politics/supreme-court-student-disability.html
+
+**The ‘Generation Trump’ Thesis Is Looking a Lot Shakier**\
+`Six months ago, the victory of the ex-president wasn’t just a devastating defeat for the left; it also marked a tectonic shift. Now, though, the polling looks different.`\
+https://nytimes.com/live/2025/04/21/opinion/thepoint/trump-approval-youth-vote
+
 **Israeli Spy Chief to Step Down After Clash With Netanyahu**\
 `The departure of Israel’s domestic intelligence chief appeared to end his unusually public clash with the prime minister.`\
 https://nytimes.com/2025/04/28/world/middleeast/israeli-spy-chief-netanyahu-ronen-bar-clash.html
