@@ -1,3 +1,7 @@
+**The Athletic FC: Masterplan behind Liverpool title win, Copa del Rey chaos, Wrexham's rise**\
+`The Athletic FC is The Athletic’s daily football (or soccer, if you prefer) newsletter. Sign up to receive it directly to your inbox.`\
+https://nytimes.com/athletic/6317221/2025/04/28/liverpool-premier-league-title-plan-ancelotti-brazil/
+
 **Lakers' 'Lasers' lineup adjustment worked — until it didn't. Now what?**\
 `"We had opportunities to win," LeBron James said. "We just didn't close."`\
 https://nytimes.com/athletic/6316798/2025/04/28/lakers-lineup-adjustment-nba-playoffs-timberwolves/

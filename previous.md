@@ -1,3 +1,7 @@
+**The Athletic FC: Masterplan behind Liverpool title win, Copa del Rey chaos, Wrexham's rise**\
+`The Athletic FC is The Athletic’s daily football (or soccer, if you prefer) newsletter. Sign up to receive it directly to your inbox.`\
+https://nytimes.com/athletic/6317221/2025/04/28/liverpool-premier-league-title-plan-ancelotti-brazil/
+
 **Lakers' 'Lasers' lineup adjustment worked — until it didn't. Now what?**\
 `"We had opportunities to win," LeBron James said. "We just didn't close."`\
 https://nytimes.com/athletic/6316798/2025/04/28/lakers-lineup-adjustment-nba-playoffs-timberwolves/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6316802/2025/04/28/college-football-spring-transfer
 **Behind the Tigers’ strong start is Gleyber Torres’ subtle leadership**\
 `When the Tigers signed Torres this winter, everyone knew they were getting a steady bat. He has helped others with their plate appearances.`\
 https://nytimes.com/athletic/6315429/2025/04/28/detroit-tigers-gleyber-torres-hitting/
-
-**How the Packers' draft affects Jaire Alexander's future and more takeaways**\
-`It makes sense for the Packers to keep cornerback Jaire Alexander now, plus more thoughts after the NFL Draft in Green Bay.`\
-https://nytimes.com/athletic/6315146/2025/04/28/packers-nfl-draft-jaire-alexander/
 
