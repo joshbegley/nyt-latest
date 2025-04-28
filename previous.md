@@ -1,40 +1,40 @@
-**Anthony Edwards and the complicated pathway to becoming the face of the NBA**\
-`Try as he might to avoid it, the spotlight is drawn to Edwards like Coppola's camera was to Pacino.`\
-https://nytimes.com/athletic/6315801/2025/04/28/anthony-edwards-face-of-nba-timberwolves-lakers/
+**Astros mailbag: Hunter Brown extension talk, why Jose Altuve is in left field and more**\
+`Plus, some thoughts on Brendan Rodgers' future, Framber Valdez's trade value and what Yainer Diaz brings to the table.`\
+https://nytimes.com/athletic/6315998/2025/04/28/astros-mailbag-hunter-brown-extension-talk-jose-altuve-left-field/
 
-**Canada Votes**\
-`We explain what’s at stake in today’s election.`\
-https://nytimes.com/2025/04/28/briefing/canada-election-mark-carney-pierre-poilievre.html
+**Buckley: Can Patriots' brain trust be trusted again after years of mass confusion?**\
+`It's too early to tell whether Mike Vrabel and Eliot Wolf led a successful draft, but at least they appeared to be organized.`\
+https://nytimes.com/athletic/6316498/2025/04/28/patriots-nfl-draft-mike-vrabel-eliot-wolf/
 
-**How to watch the St. Louis Cardinals in 2025: Schedule and broadcast info**\
-`It's never been more complicated to follow all 162 regular-season games for your MLB favorites. Here's a guide specifically for the Cards.`\
-https://nytimes.com/athletic/6306039/2025/04/28/st-louis-cardinals-how-to-watch/
+**Raiders depth chart: What the roster looks like after the draft**\
+`The Raiders should have position battles for starting roles on both sides of the ball. That's just what Pete Carroll and John Spytek want.`\
+https://nytimes.com/athletic/6313380/2025/04/28/raiders-2025-nfl-draft-depth-chart/
 
-**'Anybody can win Slams': Why the openness at the top of men's tennis is a false dawn**\
-`Despite more men's players feeling that they can win the biggest prizes in tennis, the statistics say the Grand Slams remain a closed shop.`\
-https://nytimes.com/athletic/6315299/2025/04/28/tennis-grand-slams-mens-winners-first-time/
+**Brad Marchand embracing identity as NHL's 'supervillains' with Panthers**\
+`The former Bruins star is loving life in Florida after being traded and is ready to make his mark in the Battle of the Sunshine State.`\
+https://nytimes.com/athletic/6315409/2025/04/28/panthers-brad-marchand-nhl-playoffs/
 
-**The Athletic FC: Masterplan behind Liverpool title win, Copa del Rey chaos, Wrexham's rise**\
-`The Athletic FC is The Athletic’s daily football (or soccer, if you prefer) newsletter. Sign up to receive it directly to your inbox.`\
-https://nytimes.com/athletic/6317221/2025/04/28/liverpool-premier-league-title-plan-ancelotti-brazil/
+**Greenberg: After some down years, the Cubs have high hopes once again**\
+`Things aren't perfect, but they're a lot better than they have been. The Cubs rank first or second in most offensive categories.`\
+https://nytimes.com/athletic/6316590/2025/04/28/chicago-cubs-hitting-craig-counsell/
 
-**Lakers' 'Lasers' lineup adjustment worked — until it didn't. Now what?**\
-`"We had opportunities to win," LeBron James said. "We just didn't close."`\
-https://nytimes.com/athletic/6316798/2025/04/28/lakers-lineup-adjustment-nba-playoffs-timberwolves/
+**Which playoff year produces the best roster of overtime goal scorers?**\
+`We're digging into a question a reader sent in: Which seasons had the best collection of overtime goal scorers?`\
+https://nytimes.com/athletic/6315683/2025/04/28/nhl-playoffs-best-roster-of-overtime-goal-scorers/
 
-**This Week in Mets: Quantifying the impact of the Mets' depth**\
-`Tylor Megill and Griffin Canning, two starters filling in for bigger names in the rotation, have compiled a 2.37 ERA in 11 starts.`\
-https://nytimes.com/athletic/6316741/2025/04/28/mets-depth-tylor-megill-griffin-canning/
+**Minnesota Frost receive inaugural PWHL Walter Cup championship rings**\
+`Minnesota players and staff received their rings in a private ceremony after Sunday's final home game of the season.`\
+https://nytimes.com/athletic/6316150/2025/04/28/pwhl-championship-rings-minnesota-frost-walter-cup/
 
-**The Pulse: A bad Sunday for stars and a prankster revealed**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6316549/2025/04/28/damian-lillard-injury-the-pulse/
+**Rams post-draft depth chart: Continuity at OL, new-look WRs room stand out**\
+`All six of the Rams' draft picks are projected in the 53-man roster projection with key roles awaiting them.`\
+https://nytimes.com/athletic/6316644/2025/04/28/rams-2025-post-draft-depth-chart/
 
-**Phillies takeaways: Trea Turner's 2 identities, outfield platoons, resetting the rotation**\
-`It sometimes looks like Turner is caught between identities at the plate. When at his best, he has found a way to be both. `\
-https://nytimes.com/athletic/6316906/2025/04/28/phillies-cubs-takeaways-trea-turner/
+**Nick Sirianni's first news conference 'sucked.' Why first impressions are misleading**\
+`Nick Sirianni's awkward first news conference is a reminder that first impressions are often flawed and misleading. Experts explain why.`\
+https://nytimes.com/athletic/6210594/2025/04/28/nick-siriannis-first-news-conference-sucked-why-first-impressions-are-misleading/
 
-**How the Bears' search for their next QB brought them to tight end Colston Loveland**\
-`When the Bears were in the market for a quarterback in 2024, they studied Michigan's J.J. McCarthy. Loveland stood out, too.`\
-https://nytimes.com/athletic/6315117/2025/04/28/bears-colston-loveland-jj-mccarthy/
+**Roman Anthony is dominating Triple A, so why isn't he on the Red Sox yet? It's complicated**\
+`An injury scare quieted the buzz a bit, but fans are clamoring for Anthony's debut. But there are reasons it hasn't happened yet.`\
+https://nytimes.com/athletic/6316008/2025/04/28/roman-anthony-red-sox-debut-timing/
 
