@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6317157/2025/04/28/mlb-storylines-early-2025-the-wi
 https://nytimes.com/athletic/6317511/2025/04/28/notre-dame-football-recruiting-2026-class/
 
 **Penguins, 10-year coach Mike Sullivan part ways: What's next?**\
-`The Penguins and coach Mike Sullivan have mutually agreed to part ways after a 10-year run that included two Stanley Cup wins.`\
+`Sullivan departs as the winningest coach in team history and the NHL's second-longest tenured coach behind only Tampa Bay's Jon Cooper.`\
 https://nytimes.com/athletic/6317549/2025/04/28/mike-sullivan-part-ways-penguins-nhl/
 
 **Dozens Killed in Attack on Migrant Facility in Yemen, Houthis Say**\

@@ -1,3 +1,11 @@
+**The Windup: Top storylines of the 2025 season so far**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6317157/2025/04/28/mlb-storylines-early-2025-the-windup/
+
+**Can Notre Dame build on its recruiting momentum and sign a top class?**\
+`The Irish have landed five four-star commitments this month to vault up the Class of 2026 recruiting rankings. What's next for Notre Dame?`\
+https://nytimes.com/athletic/6317511/2025/04/28/notre-dame-football-recruiting-2026-class/
+
 **Penguins, 10-year coach Mike Sullivan part ways: What's next?**\
 `The Penguins and coach Mike Sullivan have mutually agreed to part ways after a 10-year run that included two Stanley Cup wins.`\
 https://nytimes.com/athletic/6317549/2025/04/28/mike-sullivan-part-ways-penguins-nhl/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6317195/2025/04/28/oilers-kings-game-4-nhl-playoffs
 **‘Grandpa Robbers’ Go on Trial in Paris Over 2016 Kim Kardashian Heist**\
 `The reality TV star and entrepreneur was tied up and held at gunpoint, and jewelry worth nearly $9 million was stolen in the incident.`\
 https://nytimes.com/2025/04/28/world/europe/grandpa-robbers-go-on-trial-in-paris-over-2016-kim-kardashian-heist.html
-
-**College baseball week in review: NC State surges into ACC lead, Texas sweeps Texas A&M**\
-`It was a big weekend for LSU, but an even bigger one for LSU Shreveport, an NAIA school that set a record with its 47th consecutive win. `\
-https://nytimes.com/athletic/6316437/2025/04/28/college-baseball-nc-state-texas-texas-am-lsu/
-
-**When will Liverpool get Premier League trophy and will there be a parade?**\
-`A look at when Arne Slot's side will be presented with the trophy and how much they will earn from title No 20`\
-https://nytimes.com/athletic/6317160/2025/04/28/liverpool-premier-league-trophy-parade/
 

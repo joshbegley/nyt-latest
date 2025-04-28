@@ -1,3 +1,11 @@
+**The Windup: Top storylines of the 2025 season so far**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6317157/2025/04/28/mlb-storylines-early-2025-the-windup/
+
+**Can Notre Dame build on its recruiting momentum and sign a top class?**\
+`The Irish have landed five four-star commitments this month to vault up the Class of 2026 recruiting rankings. What's next for Notre Dame?`\
+https://nytimes.com/athletic/6317511/2025/04/28/notre-dame-football-recruiting-2026-class/
+
 **Penguins, 10-year coach Mike Sullivan part ways: What's next?**\
 `The Penguins and coach Mike Sullivan have mutually agreed to part ways after a 10-year run that included two Stanley Cup wins.`\
 https://nytimes.com/athletic/6317549/2025/04/28/mike-sullivan-part-ways-penguins-nhl/
