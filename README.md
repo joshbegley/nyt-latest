@@ -1,3 +1,11 @@
+**Doriane Pin: The 'pocket rocket' once deemed too short, now aiming for F1 with Mercedes**\
+`Doriane Pin is a Mercedes junior driver. In 2025, she's chasing the F1 Academy title after years of effort to establish her career`\
+https://nytimes.com/athletic/6310229/2025/04/28/doriane-pin-f1-academy-mercedes/
+
+**Putin Declares 3-Day Cease-Fire in Ukraine for Next Month**\
+`There was no immediate comment from Ukraine about the unexpected announcement.`\
+https://nytimes.com/2025/04/28/world/europe/putin-ukraine-ceasefire.html
+
 **FPL: What we learnt from Gameweek 34 so far - Don't rush your transfers**\
 `Abdul Rehman reviews the main talking points from Gameweek 34 so far in Fantasy Premier League`\
 https://nytimes.com/athletic/6316007/2025/04/28/fantasy-premier-league-gameweek-34-palmer-saka-fixtures/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6316498/2025/04/28/patriots-nfl-draft-mike-vrabel-e
 **Raiders depth chart: What the roster looks like after the draft**\
 `The Raiders should have position battles for starting roles on both sides of the ball. That's just what Pete Carroll and John Spytek want.`\
 https://nytimes.com/athletic/6313380/2025/04/28/raiders-2025-nfl-draft-depth-chart/
-
-**Brad Marchand embracing identity as NHL's 'supervillains' with Panthers**\
-`The former Bruins star is loving life in Florida after being traded and is ready to make his mark in the Battle of the Sunshine State.`\
-https://nytimes.com/athletic/6315409/2025/04/28/panthers-brad-marchand-nhl-playoffs/
-
-**Greenberg: After some down years, the Cubs have high hopes once again**\
-`Things aren't perfect, but they're a lot better than they have been. The Cubs rank first or second in most offensive categories.`\
-https://nytimes.com/athletic/6316590/2025/04/28/chicago-cubs-hitting-craig-counsell/
 

@@ -1,3 +1,11 @@
+**FPL: What we learnt from Gameweek 34 so far - Don't rush your transfers**\
+`Abdul Rehman reviews the main talking points from Gameweek 34 so far in Fantasy Premier League`\
+https://nytimes.com/athletic/6316007/2025/04/28/fantasy-premier-league-gameweek-34-palmer-saka-fixtures/
+
+**Spotify Takes On Competitors by Giving Its Podcasters a Raise**\
+`The audio platform has branched out to video and has paid more than $100 million to podcast publishers this year as the war for creator talent heats up.`\
+https://nytimes.com/2025/04/28/business/dealbook/spotify-100-million-paid-creators-podcast-video.html
+
 **Saudi Arabia and Qatar to Pay Off Syria’s Debt to the World Bank**\
 `The countries agreed to cover $15 million owed to the lender as the new government in Damascus looks to rebuild the economy after the civil war.`\
 https://nytimes.com/2025/04/28/world/middleeast/saudi-arabia-qatar-syria-debt.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6315409/2025/04/28/panthers-brad-marchand-nhl-playo
 **Greenberg: After some down years, the Cubs have high hopes once again**\
 `Things aren't perfect, but they're a lot better than they have been. The Cubs rank first or second in most offensive categories.`\
 https://nytimes.com/athletic/6316590/2025/04/28/chicago-cubs-hitting-craig-counsell/
-
-**Which playoff year produces the best roster of overtime goal scorers?**\
-`We're digging into a question a reader sent in: Which seasons had the best collection of overtime goal scorers?`\
-https://nytimes.com/athletic/6315683/2025/04/28/nhl-playoffs-best-roster-of-overtime-goal-scorers/
-
-**Minnesota Frost receive inaugural PWHL Walter Cup championship rings**\
-`Minnesota players and staff received their rings in a private ceremony after Sunday's final home game of the season.`\
-https://nytimes.com/athletic/6316150/2025/04/28/pwhl-championship-rings-minnesota-frost-walter-cup/
 
