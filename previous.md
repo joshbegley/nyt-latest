@@ -1,3 +1,7 @@
+**Trump Talks About His Meeting With Zelensky at the Vatican**\
+`President Trump spoke about his meeting with Ukraine’s leader in the Vatican basilica, their first since a heated encounter in the Oval Office in February.`\
+https://nytimes.com/video/us/politics/100000010133381/trump-ukraine-zelensky-putin.html
+
 **China and the Philippines Spar Over a Sandbar in the South China Sea**\
 `The standoff over Sandy Cay, which lies close to military outposts built by both Beijing and Manila, was the latest between the two nations.`\
 https://nytimes.com/2025/04/28/world/asia/south-china-philippine-sandy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6290497/2025/04/28/oilers-kings-nhl-playoffs-2025-g
 **The New York Times in Print for Monday, April 28, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/04/28/todays-new-york-times
-
-**‘The Four Seasons,’ Plus 7 Things to Watch on TV this Week**\
-`A new series comes to Netflix, a true crime documentary airs and “The Righteous Gemstones” wraps up its season on HBO.`\
-https://nytimes.com/2025/04/28/arts/television/watch-on-tv-this-week.html
 

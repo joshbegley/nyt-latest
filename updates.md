@@ -1,3 +1,7 @@
+**Trump Talks About His Meeting With Zelensky at the Vatican**\
+`President Trump spoke about his meeting with Ukraine’s leader in the Vatican basilica, their first since a heated encounter in the Oval Office in February.`\
+https://nytimes.com/video/us/politics/100000010133381/trump-ukraine-zelensky-putin.html
+
 **China and the Philippines Spar Over a Sandbar in the South China Sea**\
 `The standoff over Sandy Cay, which lies close to military outposts built by both Beijing and Manila, was the latest between the two nations.`\
 https://nytimes.com/2025/04/28/world/asia/south-china-philippine-sandy.html
