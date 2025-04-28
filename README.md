@@ -1,3 +1,27 @@
+**Bills had a mission for the NFL Draft. What's ahead as they look to overcome weaknesses?**\
+`The Bills focused almost exclusively on defense in this year's draft.`\
+https://nytimes.com/athletic/6313169/2025/04/28/bills-nfl-draft-2025-picks-defense/
+
+**Assessing Browns’ QB room after drafting Shedeur Sanders, Dillon Gabriel**\
+`Sanders and Gabriel join a Cleveland quarterback room that includes Joe Flacco, Kenny Pickett and an injured Deshaun Watson. `\
+https://nytimes.com/athletic/6315289/2025/04/28/browns-quarterbacks-shedeur-sanders-dillon-gabriel/
+
+**Eagles post-NFL draft depth chart: Defensive front reinforced, TE remains unpredictable**\
+`The Eagles pulled off several trades at the NFL Draft to collect depth pieces.`\
+https://nytimes.com/athletic/6315145/2025/04/28/eagles-depth-chart-nfl-draft-2025/
+
+**Zach Orr, Trenton Simpson among Ravens' winners and losers coming out of NFL Draft**\
+`We take a look at the Baltimore players/coaches who will be impacted by the team's 11 draft selections and roughly 20 undrafted free agents.`\
+https://nytimes.com/athletic/6315817/2025/04/28/ravens-nfl-draft-winners-losers-zach-orr/
+
+**The New York Times International Edition in Print for Tuesday, April 29, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/04/28/todays-new-york-times-international-edition
+
+**Kurdish Distrust of Syria’s New Government Runs Deep**\
+`The Kurdish-led force that runs northeast Syria has agreed to integrate into a new national army, but some of its supporters remain wary.`\
+https://nytimes.com/2025/04/28/world/middleeast/kurds-syria-government.html
+
 **Commanders depth chart analysis: How did the NFL Draft help shape the roster?**\
 `Reviewing how GM Adam Peters and his staff performed in the draft and tackling any questions ahead of the offseason on-field program. `\
 https://nytimes.com/athletic/6315518/2025/04/28/commanders-2025-depth-chart-post-nfl-draft/
@@ -13,24 +37,4 @@ https://nytimes.com/athletic/6315179/2025/04/28/falcons-kirk-cousins-quarterback
 **What's real and what's questionable about Yankees' hot start?**\
 `Aaron Judge is still the best player in baseball. Meanwhile, the starting rotation might be OK, even without ace Gerrit Cole and Luis Gil.`\
 https://nytimes.com/athletic/6316656/2025/04/28/yankees-hot-start-questions-and-reality/
-
-**Cowboys' winners and losers: Brian Schottenheimer knocks it out of the park**\
-`Schottenheimer plans to bring a different element to the Cowboys as the coach, and his fingerprints were all over this draft.`\
-https://nytimes.com/athletic/6315765/2025/04/28/cowboys-nfl-draft-winners-losers-schottenheimer/
-
-**Panthers post-draft depth chart: Tetairoa McMillan steps right in, defense has questions**\
-`What is Jadeveon Clowney's future with the Panthers? Could they still make moves at cornerback and safety?`\
-https://nytimes.com/athletic/6315741/2025/04/28/panthers-depth-chart-post-nfl-draft/
-
-**Canada Votes: What’s at Stake?**\
-`Many Canadians believe Monday’s election is the most important of their lifetime. It will determine who will take on a stagnant economy and deal with President Trump.`\
-https://nytimes.com/2025/04/28/world/canada/canada-election-issues-voters.html
-
-**Albuquerque Has a Crime Problem. Is the National Guard the Answer?**\
-`New Mexico’s governor said the troops are needed to help quell violence. But in the deeply blue city, the plan to deploy them has drawn uneasy comparisons to the talk of President Trump.`\
-https://nytimes.com/2025/04/28/us/albuquerque-national-guard.html
-
-**All Good Things Come to an End. What About Bad Things?**\
-`We cannot forget that so much of our Trump trauma comes from electing a reality TV star as president.`\
-https://nytimes.com/2025/04/28/opinion/trump-pope-dialogue-future.html
 
