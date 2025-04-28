@@ -1,3 +1,11 @@
+**Midwest Braces Amid Threat from Pounding Winds, Hail and Tornadoes**\
+`Officials in the Upper Midwest warned of possible power outages and closed some schools early as the storms loomed.`\
+https://nytimes.com/2025/04/28/us/tornado-severe-weather-minnesota-iowa-wisconsin.html
+
+**The Satchel: Send your Bills questions to Tim Graham**\
+`Ask Bills questions to Tim Graham. `\
+https://nytimes.com/athletic/6319028/2025/04/28/buffalo-bills-draft-mailbag-questions-tim-graham/
+
 **When Do Polls Close?**\
 `The poll closures are synchronized to happen at roughly the same time across Canada.`\
 https://nytimes.com/2025/04/28/world/canada/when-do-polls-close.html
