@@ -1,3 +1,7 @@
+**Chaos Graph**\
+`People immersed in chaos try to solve for what it all adds up to.`\
+https://nytimes.com/2025/04/27/podcasts/chaos-graph-this-american-life-nyt-audio.html
+
 **Chevron Championship: Mao Saigo wins 5-woman playoff for first major title**\
 `The largest playoff in LPGA major championship history ended after one hole with the 23-year-old Saigo winning.`\
 https://nytimes.com/athletic/6316326/2025/04/27/chevron-championship-mao-saigo-playoff-lpga-major/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/27/sports/basketball/dick-barnett-dead.html
 **New Details Emerge on Trump Officials’ Sprint to Gut Consumer Bureau Staff**\
 `Emails and testimonials from workers at the Consumer Financial Protection Bureau document the administration’s efforts to lay off 90 percent of the employees.`\
 https://nytimes.com/2025/04/27/business/cfpb-layoffs-trump-musk-doge.html
-
-**Quick Escape**\
-`Sue Fracker dashes off a delightful puzzle.`\
-https://nytimes.com/2025/04/27/crosswords/daily-puzzle-2025-04-28.html
 

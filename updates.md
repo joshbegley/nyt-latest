@@ -1,3 +1,7 @@
+**Chaos Graph**\
+`People immersed in chaos try to solve for what it all adds up to.`\
+https://nytimes.com/2025/04/27/podcasts/chaos-graph-this-american-life-nyt-audio.html
+
 **Chevron Championship: Mao Saigo wins 5-woman playoff for first major title**\
 `The largest playoff in LPGA major championship history ended after one hole with the 23-year-old Saigo winning.`\
 https://nytimes.com/athletic/6316326/2025/04/27/chevron-championship-mao-saigo-playoff-lpga-major/
