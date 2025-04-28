@@ -1,3 +1,17 @@
+**The Best Advice I’ve Ever Heard for How to Be Happy**\
+`Tips from experts, astronauts and Cher on finding bliss.`\
+https://nytimes.com/interactive/2025/04/28/magazine/how-to-be-happy.html
+
+**In French-speaking Quebec, a local party shakes up the race.**\
+`By Norimitsu Onishi`\
+https://nytimes.com/live/2025/04/28/world/canada-election/in-french-speaking-quebec-a-local-party-shakes-up-the-race
+
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>Unlike Shedeur Sanders, I&#8217;m coming off a great weekend and eager to discuss college football with you guys.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6318929/2025/04/28/submit-a-question-for-stewart-mandels-college-football-mailbag-300/
+
 **BatX fantasy baseball cheat sheet: Add Zach Neto, start Kansas City hitters**\
 `The Athletic and BatX teamed up to offer a weekly one-stop shop for fantasy managers who don't have time to scour the metrics. `\
 https://nytimes.com/athletic/6317862/2025/04/28/batx-fantasy-baseball-cheat-sheet-add-zach-neto-start-kansas-city-hitters/
@@ -25,16 +39,4 @@ https://nytimes.com/2025/04/28/nyregion/protests-israel-woman-attacked-brooklyn.
 **Hockey Canada trial begins with first witness, security video footage**\
 `On a warm June night in 2018, more than a dozen members of Canada’s 2018 World Junior hockey team bypassed a long line of waiting customers, had their IDs checked and were funneled into Jack’s Bar in London, Ont.`\
 https://nytimes.com/athletic/6318178/2025/04/28/hockey-canada-sexual-assault-trial-testimony/
-
-**USC commit Alijah Arenas ‘walking, talking’ after crash, coma**\
-`Arenas' family announced Friday that he was conscious, though on a ventilator, and able to communicate by writing notes.`\
-https://nytimes.com/athletic/6318735/2025/04/28/usc-commit-alijah-arenas-crash-recovery-update/
-
-**What We Know About the Power Outages in Spain and Portugal**\
-`Millions on the Iberian Peninsula were left without power for hours on Monday afternoon into the evening.`\
-https://nytimes.com/2025/04/28/world/europe/spain-portugal-power-outage-what-we-know.html
-
-**This Mother’s Day, Consider a Pair of Boxer Shorts**\
-`Plus: Greek pantry goods, tabletop ceramics and more gift recommendations from T Magazine.`\
-https://nytimes.com/2025/04/28/t-magazine/mothers-day-gift-guide.html
 

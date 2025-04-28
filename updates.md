@@ -1,3 +1,7 @@
+**BatX fantasy baseball cheat sheet: Add Zach Neto, start Kansas City hitters**\
+`The Athletic and BatX teamed up to offer a weekly one-stop shop for fantasy managers who don't have time to scour the metrics. `\
+https://nytimes.com/athletic/6317862/2025/04/28/batx-fantasy-baseball-cheat-sheet-add-zach-neto-start-kansas-city-hitters/
+
 **Justices Appear Skeptical of School District in Student Disability Rights Case**\
 `The case is being watched closely by disability rights groups, which warned that arguments by a school district could threaten broader protections for disabled people.`\
 https://nytimes.com/2025/04/28/us/politics/supreme-court-student-disability.html
