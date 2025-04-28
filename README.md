@@ -1,3 +1,11 @@
+**Stay Ready with MassMutual & Christen Press**\
+`MassMutual teamed up with Flau'jae Johnson, Christen Press and Madison Keys to talk about the power of preparation. On the court. And off.`\
+https://nytimes.com/paidpost/athletic/massmutual/stay-ready-christen-press.html
+
+**Monday Briefing**\
+`Canadians head to the polls.`\
+https://nytimes.com/2025/04/28/briefing/canada-polls-ukraine-pope.html
+
 **Why this Premier League title meant everything to Liverpool**\
 `To understand why the outpouring of emotion in the city was so raw, you have to go back to 2020 and what came before that too`\
 https://nytimes.com/athletic/6315458/2025/04/28/liverpool-premier-league-title/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6315724/2025/04/28/tottenham-liverpool-europa-leagu
 **The Leicester fans who keep coming back for more - even in (potentially) their worst season ever**\
 `The Athletic travelled with Leicester fans for their game against Wolves at Molineux on Saturday`\
 https://nytimes.com/athletic/6314798/2025/04/28/leicester-fans-travel-worst-season/
-
-**Nelson Semedo is leading by example at Wolves – is this a captain they can keep hold of?**\
-`After three successive summers of Wolves losing their skipper, Semedo has provided a glimmer of hope that the cycle can still be broken`\
-https://nytimes.com/athletic/6313201/2025/04/28/wolves-nelson-semedo-captain-premier-league-future/
-
-**The two minutes that killed Forest - and what they must learn from it**\
-`The lesson to take from Wembley as Forest face five 'cup finals'`\
-https://nytimes.com/athletic/6315707/2025/04/28/nottingham-forest-fa-cup-manchester-city-two-minutes/
 
