@@ -1,3 +1,11 @@
+**Where Rhinestones Meet the Rodeo**\
+`Desert Rodeo, in the Coachella Valley, tried to bridge the gap between rodeo enthusiasts and festivalgoer`\
+https://nytimes.com/card/2025/04/28/style/desert-rodeo-thermal-ca
+
+**A Rising Democratic Star Pitches a ‘Resistance 2.0’ in the Age of Trump**\
+`Greg Casar, a Texas Democrat and new chairman of the House Progressive Caucus, says his party must adopt economic populism to recapture voters and effectively counter President Trump.`\
+https://nytimes.com/2025/04/28/us/politics/greg-casar-trump-democrats.html
+
 **Paralympian Sam Ruddock located safe after being reported missing in Las Vegas**\
 `Ruddock, 35, had last been heard from on April 16.`\
 https://nytimes.com/athletic/6318646/2025/04/28/sam-ruddock-paralympian-located-las-vegas/
