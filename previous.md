@@ -1,3 +1,11 @@
+**Paralympian Sam Ruddock located safe after being reported missing in Las Vegas**\
+`Ruddock, 35, had last been heard from on April 16.`\
+https://nytimes.com/athletic/6318646/2025/04/28/sam-ruddock-paralympian-located-las-vegas/
+
+**2025 Canada Federal Election Live Results**\
+`See charts and maps of national and riding-level results.`\
+https://nytimes.com/interactive/2025/04/28/world/canada/results-canada-federal-election.html
+
 **Alarm at Changes to Justice Dept.’s Civil Rights Office Prompts ‘Exodus’**\
 `Hundreds of lawyers and other staff members are fleeing the arm of the agency that defends constitutional rights, which appointees intend to reshape to enact President Trump’s agenda.`\
 https://nytimes.com/2025/04/28/us/politics/trump-doj-civil-rights.html
@@ -29,13 +37,4 @@ https://nytimes.com/athletic/6318393/2025/04/28/buffalo-bills-brandon-beane-comm
 **Lawsuit Challenges Policy Allowing Immigration Action in Churches and Schools**\
 `The lawsuit seeks to prevent the Trump administration from carrying out operations that disrupt certain civic spaces, particularly those where adults and children congregate together.`\
 https://nytimes.com/2025/04/28/us/politics/trump-immigration-churches-schools.html
-
-**E.P.A. Says It Will Tackle ‘Forever Chemicals.’ Details Are Sparse.**\
-`A new proposal to combat PFAS contamination, announced by the Environmental Protection Agency, left critical questions unanswered.`\
-https://nytimes.com/2025/04/28/climate/epa-pfas-forever-chemicals.html
-
-**Pursuing Pizza Perfection?**\
-`Chefs across the Ooniverse share their tips.
-`\
-https://nytimes.com/paidpost/ooni/pursuing-pizza-perfection.html
 

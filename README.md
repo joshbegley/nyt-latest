@@ -1,3 +1,11 @@
+**Where Rhinestones Meet the Rodeo**\
+`Desert Rodeo, in the Coachella Valley, tried to bridge the gap between rodeo enthusiasts and festivalgoer`\
+https://nytimes.com/card/2025/04/28/style/desert-rodeo-thermal-ca
+
+**A Rising Democratic Star Pitches a ‘Resistance 2.0’ in the Age of Trump**\
+`Greg Casar, a Texas Democrat and new chairman of the House Progressive Caucus, says his party must adopt economic populism to recapture voters and effectively counter President Trump.`\
+https://nytimes.com/2025/04/28/us/politics/greg-casar-trump-democrats.html
+
 **Paralympian Sam Ruddock located safe after being reported missing in Las Vegas**\
 `Ruddock, 35, had last been heard from on April 16.`\
 https://nytimes.com/athletic/6318646/2025/04/28/sam-ruddock-paralympian-located-las-vegas/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/28/us/politics/trump-executive-orders-immigration.ht
 **Peter Lovesey, a Master of British Whodunits, Is Dead at 88**\
 `He wrote a series of witty police procedurals set in Victorian England and then turned to the present, introducing a cantankerous and technology-averse detective.`\
 https://nytimes.com/2025/04/28/books/peter-lovesey-dead.html
-
-**Fiery Brandon Beane defends 2025 NFL Draft results. Which receivers could be good additions**\
-`Beane felt that the wide receiver class wasn't very deep this year.`\
-https://nytimes.com/athletic/6318393/2025/04/28/buffalo-bills-brandon-beane-comments-wide-receivers/
-
-**Lawsuit Challenges Policy Allowing Immigration Action in Churches and Schools**\
-`The lawsuit seeks to prevent the Trump administration from carrying out operations that disrupt certain civic spaces, particularly those where adults and children congregate together.`\
-https://nytimes.com/2025/04/28/us/politics/trump-immigration-churches-schools.html
 

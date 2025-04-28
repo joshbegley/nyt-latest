@@ -1,3 +1,11 @@
+**Paralympian Sam Ruddock located safe after being reported missing in Las Vegas**\
+`Ruddock, 35, had last been heard from on April 16.`\
+https://nytimes.com/athletic/6318646/2025/04/28/sam-ruddock-paralympian-located-las-vegas/
+
+**2025 Canada Federal Election Live Results**\
+`See charts and maps of national and riding-level results.`\
+https://nytimes.com/interactive/2025/04/28/world/canada/results-canada-federal-election.html
+
 **Alarm at Changes to Justice Dept.’s Civil Rights Office Prompts ‘Exodus’**\
 `Hundreds of lawyers and other staff members are fleeing the arm of the agency that defends constitutional rights, which appointees intend to reshape to enact President Trump’s agenda.`\
 https://nytimes.com/2025/04/28/us/politics/trump-doj-civil-rights.html
