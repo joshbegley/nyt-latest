@@ -30,11 +30,7 @@ https://nytimes.com/athletic/6317966/2025/04/28/dynasty-league-superflex-top-30-
 `Jasperse’s engrossing “Tides” was a thrilling opener to a festival that often feels like a home for first drafts.`\
 https://nytimes.com/2025/04/28/arts/dance/john-jasperse-la-mama-moves-tides.html
 
-**Despite his shaky French, Mark Carney is a hit in Quebec.**\
-`By Norimitsu Onishi`\
-https://nytimes.com/live/2025/04/28/world/canada-election/despite-his-shaky-french-mark-carney-is-a-hit-in-quebec
-
-**Bob Baffert looks to reclaim his place at the Kentucky Derby: 'I just want to move forward.'**\
-`Three years after Medina Spirit's victory was stripped due to a failed drug test, Baffert looks to reclaim his place at Churchill Downs.`\
-https://nytimes.com/athletic/6317795/2025/04/28/kentucky-derby-bob-baffert-return-suspension/
+**Arsenal fans: What should the starting XI be for the PSG first leg?**\
+`Merino? Timber? White? Trossard? Who will line up where for Arsenal on Tuesday?`\
+https://nytimes.com/athletic/6317504/2025/04/28/arsenal-fans-what-should-the-starting-xi-be-for-the-psg-first-leg/
 
