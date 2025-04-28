@@ -1,3 +1,11 @@
+**Trump to Sign 2 More Executive Orders on Immigration**\
+`The president plans to direct his administration to compile a list of “sanctuary cities” that do not cooperate with federal enforcement of immigration laws.`\
+https://nytimes.com/2025/04/28/us/politics/trump-2-executive-orders-immigration.html
+
+**Peter Lovesey, a Master of British Whodunits, Is Dead at 88**\
+`He wrote a series of witty police procedurals set in Victorian England and then turned to the present, introducing a cantankerous and technology-averse detective.`\
+https://nytimes.com/2025/04/28/books/peter-lovesey-dead.html
+
 **E.P.A. Says It Will Tackle ‘Forever Chemicals.’ Details Are Sparse.**\
 `A new proposal to combat PFAS contamination, announced by the Environmental Protection Agency, left critical questions unanswered.`\
 https://nytimes.com/2025/04/28/climate/epa-pfas-forever-chemicals.html
