@@ -1,3 +1,31 @@
+**Amazon to Launch First Project Kuiper Internet Satellites: What to Know**\
+`The spacecraft are the online giant’s entry into beaming wireless service from space, but the company has much to do before it can compete with SpaceX’s Starlink.`\
+https://nytimes.com/2025/04/28/science/amazon-kuiper-launch-ula.html
+
+**N.Y.P.D. Braces for Protest After Pro-Israel Demonstrators Assault Woman**\
+`The police were investigating the attack in Crown Heights, where hundreds of pro-Israel demonstrators surrounded a woman and hurled slurs at her. More protests were expected on Monday.`\
+https://nytimes.com/2025/04/28/nyregion/protests-israel-woman-attacked-brooklyn.html
+
+**Hockey Canada trial begins with first witness, security video footage**\
+`On a warm June night in 2018, more than a dozen members of Canada’s 2018 World Junior hockey team bypassed a long line of waiting customers, had their IDs checked and were funneled into Jack’s Bar in London, Ont.`\
+https://nytimes.com/athletic/6318178/2025/04/28/hockey-canada-sexual-assault-trial-testimony/
+
+**USC commit Alijah Arenas ‘walking, talking’ after crash, coma**\
+`Arenas' family announced Friday that he was conscious, though on a ventilator, and able to communicate by writing notes.`\
+https://nytimes.com/athletic/6318735/2025/04/28/usc-commit-alijah-arenas-crash-recovery-update/
+
+**What We Know About the Power Outages in Spain and Portugal**\
+`Millions on the Iberian Peninsula were left without power for hours on Monday afternoon into the evening.`\
+https://nytimes.com/2025/04/28/world/europe/spain-portugal-power-outage-what-we-know.html
+
+**This Mother’s Day, Consider a Pair of Boxer Shorts**\
+`Plus: Greek pantry goods, tabletop ceramics and more gift recommendations from T Magazine.`\
+https://nytimes.com/2025/04/28/t-magazine/mothers-day-gift-guide.html
+
+**Key takeaways from an election debate.**\
+`By Ian Austen`\
+https://nytimes.com/live/2025/04/28/world/canada-election/key-takeaways-from-an-election-debate
+
 **Where Rhinestones Meet the Rodeo**\
 `Desert Rodeo, in the Coachella Valley, tried to bridge the gap between rodeo enthusiasts and festivalgoer`\
 https://nytimes.com/card/2025/04/28/style/desert-rodeo-thermal-ca
@@ -9,32 +37,4 @@ https://nytimes.com/2025/04/28/us/politics/greg-casar-trump-democrats.html
 **Paralympian Sam Ruddock located safe after being reported missing in Las Vegas**\
 `Ruddock, 35, had last been heard from on April 16.`\
 https://nytimes.com/athletic/6318646/2025/04/28/sam-ruddock-paralympian-located-las-vegas/
-
-**2025 Canada Federal Election Live Results**\
-`See charts and maps of national and riding-level results.`\
-https://nytimes.com/interactive/2025/04/28/world/canada/results-canada-federal-election.html
-
-**Alarm at Changes to Justice Dept.’s Civil Rights Office Prompts ‘Exodus’**\
-`Hundreds of lawyers and other staff members are fleeing the arm of the agency that defends constitutional rights, which appointees intend to reshape to enact President Trump’s agenda.`\
-https://nytimes.com/2025/04/28/us/politics/trump-doj-civil-rights.html
-
-**Brad Keselowski's 'ruined' Talladega day increases his NASCAR playoff pressure**\
-`Brad Keselowski has had a miserable season. After Sunday didn't bring relief at a track he usually loves, the pressure is ramping up.`\
-https://nytimes.com/athletic/6318227/2025/04/28/brad-keselowski-talladega-crash-nascar-playoffs/
-
-**Arteta tells Arsenal fans to 'bring their boots' for PSG game**\
-`This is just the third time Arsenal have reached this stage of the competition, doing so in 2006 and 2009.`\
-https://nytimes.com/athletic/6318600/2025/04/28/mikel-arteta-arsenal-psg-fans/
-
-**Scenes From the Blackouts in Spain and Portugal**\
-`Power outages disrupted daily life and left millions of people in the dark.`\
-https://nytimes.com/2025/04/28/world/europe/spain-power-outage-photos.html
-
-**Trump to Sign 2 More Executive Orders on Immigration**\
-`The president plans to direct his administration to compile a list of “sanctuary cities” that do not cooperate with federal enforcement of immigration laws.`\
-https://nytimes.com/2025/04/28/us/politics/trump-executive-orders-immigration.html
-
-**Peter Lovesey, a Master of British Whodunits, Is Dead at 88**\
-`He wrote a series of witty police procedurals set in Victorian England and then turned to the present, introducing a cantankerous and technology-averse detective.`\
-https://nytimes.com/2025/04/28/books/peter-lovesey-dead.html
 
