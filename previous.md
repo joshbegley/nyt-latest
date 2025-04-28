@@ -1,3 +1,7 @@
+**Tuesday Briefing: Canada’s Momentous Election**\
+`Plus, the poetry challenge.`\
+https://nytimes.com/2025/04/28/briefing/canada-elections-putin-cease-fire-europe-blackout.html
+
 **Six things we've learned about the Wild during this first-round series**\
 `Coach John Hynes is doing some lineup tweaking heading into Game 5 on Tuesday. What will it mean?`\
 https://nytimes.com/athletic/6318794/2025/04/28/wild-golden-knights-game-5-lineup/
@@ -35,8 +39,4 @@ https://nytimes.com/2025/04/28/world/middleeast/israeli-spy-chief-netanyahu-rone
 **Amazon to Launch First Project Kuiper Internet Satellites: What to Know**\
 `The spacecraft are the online giant’s entry into beaming wireless service from space, but the company has much to do before it can compete with SpaceX’s Starlink.`\
 https://nytimes.com/2025/04/28/science/amazon-kuiper-launch-ula.html
-
-**Protesters to Rally in Brooklyn After Pro-Israel Crowd Assaults Woman**\
-`The police were investigating the attack in Crown Heights, where hundreds of pro-Israel demonstrators surrounded a woman and hurled slurs at her. More protests were expected on Monday.`\
-https://nytimes.com/2025/04/28/nyregion/protests-israel-woman-attacked-brooklyn.html
 

@@ -1,3 +1,7 @@
+**Tuesday Briefing: Canada’s Momentous Election**\
+`Plus, the poetry challenge.`\
+https://nytimes.com/2025/04/28/briefing/canada-elections-putin-cease-fire-europe-blackout.html
+
 **Six things we've learned about the Wild during this first-round series**\
 `Coach John Hynes is doing some lineup tweaking heading into Game 5 on Tuesday. What will it mean?`\
 https://nytimes.com/athletic/6318794/2025/04/28/wild-golden-knights-game-5-lineup/
