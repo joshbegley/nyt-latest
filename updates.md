@@ -1,3 +1,7 @@
+**China and the Philippines Spar Over a Sandbar in the South China Sea**\
+`The standoff over Sandy Cay, which lies close to military outposts built by both Beijing and Manila, was the latest between the two nations.`\
+https://nytimes.com/2025/04/28/world/asia/south-china-philippine-sandy.html
+
 **Driver Kills at Least 11 at Vancouver Filipino Festival**\
 `Crowds were celebrating Lapu Lapu Day, a holiday in the Philippines, when a driver in an SUV accelerated and plowed down a congested street.`\
 https://nytimes.com/video/world/americas/vancouver-festival-lapulapu-crash.html
