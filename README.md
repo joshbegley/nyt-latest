@@ -1,3 +1,31 @@
+**Jean-Pierre Bonnefoux, Sinuous Ballet Dancer and Choreographer, Dies at 82**\
+`He brought grace and power to his roles before a serious injury encouraged him to try choreography — “maybe the richest part of my life.”`\
+https://nytimes.com/2025/04/28/arts/dance/jean-pierre-bonnefoux-dead.html
+
+**Pacers, led by ‘a lot of heroes,’ take 3-1 series lead over Bucks**\
+`The Pacers are on the verge of closing out the Bucks for a second straight year. `\
+https://nytimes.com/athletic/6317607/2025/04/28/pacers-bucks-playoffs-game-4-nba/
+
+**After 529 Days, Valerie the Dachshund Has Been Rescued**\
+`She survived more than a year in the Australian wilderness. But reuniting her with her owners will take a little more time.`\
+https://nytimes.com/2025/04/28/world/australia/dachshund-australia-valerie-rescued.html
+
+**For His Met Opera Debut, a Director Takes On ‘Salome’**\
+`The renowned German director Claus Guth is staging Strauss’s breakthrough opera with a focus on themes of trauma and abuse.`\
+https://nytimes.com/2025/04/28/arts/music/claus-guth-salome-met-opera.html
+
+**Why Trump’s Economic Disruption Will Be Hard to Reverse**\
+`The president’s turnover of the economic order has unleashed changes that could prove lasting, because other countries will adjust.`\
+https://nytimes.com/2025/04/28/business/economy/trump-trade-global-economy.html
+
+**Where Can I Find a Cheap Broadway Ticket?**\
+`If you are determined to see a celebrity in a popular show on a busy night, you may be out of luck, but with flexibility and persistence, you can cut some costs.`\
+https://nytimes.com/2025/04/28/theater/cheap-broadway-tickets.html
+
+**Lowetide: The history of Oilers starting goalie tweaks in the postseason**\
+`Stuart Skinner was the Oilers' starter entering the postseason but Calvin Pickard has played the last two games.`\
+https://nytimes.com/athletic/6315476/2025/04/28/edmonton-oilers-goalie-history-nhl-playoffs/
+
 **IBM Plans to Invest $150 Billion Domestically in Latest Tech Sector Pledge**\
 `The announcement comes as the Trump administration pressures firms to expand their U.S. manufacturing.`\
 https://nytimes.com/2025/04/28/us/politics/ibm-investment-manufacturing.html
@@ -9,32 +37,4 @@ https://nytimes.com/2025/04/28/world/middleeast/israel-icj-gaza-aid.html
 **Where to vote in Canada’s election.**\
 `By Talya Minsberg`\
 https://nytimes.com/live/2025/04/28/world/canada-election/where-to-vote-in-canadas-election
-
-**Review: Yunchan Lim Embraces the Journey of Bach’s ‘Goldbergs’**\
-`The 21-year-old pianist turned the great set of variations into the story of a young man’s maturation from innocence to experience.`\
-https://nytimes.com/2025/04/28/arts/music/yunchan-lim-bach-carnegie-piano.html
-
-**Growing list of missed opportunities have been costly for the Kings**\
-`The Oilers should get credit for their resilience after tying the series at two, but the Kings are helping by fumbling their best chances.`\
-https://nytimes.com/athletic/6317189/2025/04/28/kings-game-4-nhl-playoffs-loss-oilers/
-
-**Word of the Day: begrudge**\
-`This word has appeared in 62 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/04/28/learning/word-of-the-day-begrudge.html
-
-**Watch: The Pistons-Knicks Game 4 no-call: How costly could that be?**\
-`The Athletic NBA Daily discuss the controversial missed foul call on Tim Hardaway Jr. in Game 4 of the Pistons-Knicks series.`\
-https://nytimes.com/athletic/6317362/2025/04/28/knicks-pistons-the-athletic-nba-daily-playoffs/
-
-**How Mike Sullivan's availability could impact the Flyers' coaching search**\
-`The Flyers are still in search of a replacement for John Tortorella.`\
-https://nytimes.com/athletic/6317827/2025/04/28/flyers-coach-sullivan-tortorella/
-
-**Why J.C. Escarra's first MLB home run was also a win for Yankees scouts**\
-`The 30-year-old catcher inundated Yankees scouts with videos of his progress for nearly a year before they signed him in January 2024.`\
-https://nytimes.com/athletic/6317837/2025/04/28/jc-escarra-yankees-home-run-scouts/
-
-**NHL Vezina Trophy finalists announced — what would Connor Hellebuyck's third win mean?**\
-`Winnipeg Jets goaltender Connor Hellebuyck, Darcy Kuemper of the Los Angeles Kings and Andrei Vasilevskiy of the Tampa Bay Lightning were named finalists for the NHL’s Vezina Trophy on Monday, awarded “to the goalkeeper adjudged to be the best at this position.`\
-https://nytimes.com/athletic/6309893/2025/04/28/nhl-vezina-trophy-hellebuyck/
 

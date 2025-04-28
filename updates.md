@@ -1,3 +1,11 @@
+**IBM Plans to Invest $150 Billion Domestically in Latest Tech Sector Pledge**\
+`The announcement comes as the Trump administration pressures firms to expand their U.S. manufacturing.`\
+https://nytimes.com/2025/04/28/us/politics/ibm-investment-manufacturing.html
+
+**Israel Faces World Court Hearings Over Gaza Aid**\
+`The United Nations criticized Israel for its ban on aid in hearings at the International Court of Justice. Israel did not send a legal delegation and rejected the proceedings as biased.`\
+https://nytimes.com/2025/04/28/world/middleeast/israel-icj-gaza-aid.html
+
 **Where to vote in Canada’s election.**\
 `By Talya Minsberg`\
 https://nytimes.com/live/2025/04/28/world/canada-election/where-to-vote-in-canadas-election
