@@ -1,3 +1,7 @@
+**UFL investigating altercation involving fan, Panthers WR Samson Nacua**\
+`Nacua, brother of Rams receiver Puka Nacua, appeared to slap fan following game.`\
+https://nytimes.com/athletic/6316464/2025/04/27/ufl-investigating-altercation-fan-samson-nacua/
+
 **Dodger Details: Another injury for Tyler Glasnow, Andy Pages' surge and more**\
 `Glasnow vented after his latest setback: "I feel bad for my teammates. I feel bad for people watching."`\
 https://nytimes.com/athletic/6316492/2025/04/27/dodger-tyler-glasnow-injury-andy-pages/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/27/us/paramedic-stabbing-kansas-city.html
 **Protests Against Israeli Official Heat Up Outside Synagogue in Brooklyn**\
 `The clashes outside a synagogue where the official, Itamar Ben-Gvir, a far-right security minister, had planned to speak followed days of disturbances connected to his visit.`\
 https://nytimes.com/2025/04/27/nyregion/protests-ben-gvir-israel-brooklyn-synagogue.html
-
-**Guardians issue apology to Red Sox's Jarren Duran after fan misconduct**\
-`“We recognize the gravity of the behavior at issue here and take very seriously conduct of this nature,” the Guardians said in a statement.`\
-https://nytimes.com/athletic/6316132/2025/04/27/jarren-duran-guardians-apology-fan-misconduct/
 

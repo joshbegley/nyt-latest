@@ -1,3 +1,7 @@
+**UFL investigating altercation involving fan, Panthers WR Samson Nacua**\
+`Nacua, brother of Rams receiver Puka Nacua, appeared to slap fan following game.`\
+https://nytimes.com/athletic/6316464/2025/04/27/ufl-investigating-altercation-fan-samson-nacua/
+
 **Dodger Details: Another injury for Tyler Glasnow, Andy Pages' surge and more**\
 `Glasnow vented after his latest setback: "I feel bad for my teammates. I feel bad for people watching."`\
 https://nytimes.com/athletic/6316492/2025/04/27/dodger-tyler-glasnow-injury-andy-pages/
