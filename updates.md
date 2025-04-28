@@ -1,3 +1,8 @@
+**Champions League semi-final odds: Arsenal's sturdy defence meets PSG fiery attack**\
+`Brett Koremenos explores the betting value around Arsenal’s Champions League semi-final first-leg clash with PSG. 
+`\
+https://nytimes.com/athletic/6318096/2025/04/28/champions-league-semi-final-arsenal-vs-psg-odds-betting-tips/
+
 **Mayor of London Sadiq Khan wants city to host 2040 Olympics**\
 `Another successful bid would make London the only city to host the Games four times.`\
 https://nytimes.com/athletic/6318094/2025/04/28/sadiq-khan-london-2040-olympics/

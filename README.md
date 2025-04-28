@@ -1,3 +1,15 @@
+**AI: Future in Motion**\
+`Business and beyond.`\
+https://nytimes.com/spotlight/ai-future-in-motion
+
+**WNBA to broadcast 4 preseason games nationally for first time ever**\
+`Fourteen of the league's 15 preseason games will also be broadcast on WNBA League Pass, with the lone exception airing only on ESPN`\
+https://nytimes.com/athletic/6317805/2025/04/28/wnba-preseason-games-national-tv/
+
+**When the left is too left in a Canada rattled by Trump.**\
+`By Vjosa Isai`\
+https://nytimes.com/live/2025/04/28/world/canada-election/when-the-left-is-too-left-in-a-canada-rattled-by-trump
+
 **Trump’s ‘Buoyant’ Trade Warrior Flexes His Power Over Global Business**\
 `Howard Lutnick, the secretary of commerce, has become a go-to for major companies seeking relief from tariffs. But he’s not always friendly to their interests.`\
 https://nytimes.com/2025/04/28/business/economy/howard-lutnick-trump-tariffs.html
@@ -26,16 +38,4 @@ https://nytimes.com/2025/04/28/world/canada/trump-51-state.html
 **No one is to blame for the Penguins-Mike Sullivan split. It was just time**\
 `Sullivan's final chapters in Pittsburgh weren't great, but he is a giant in Penguins history and will be remembered as such.`\
 https://nytimes.com/athletic/6317752/2025/04/28/mike-sullivan-penguins-split-rebuild-time/
-
-**Outside his political base, Poilievre’s populist pitch is a harder sell.**\
-`By Norimitsu Onishi`\
-https://nytimes.com/live/2025/04/28/world/canada-election/outside-his-political-base-poilievres-populist-pitch-is-a-harder-sell
-
-**A lower-division league is good for women's soccer - but the landscape remains cluttered**\
-`NWSL’s Division II proposal is up against WPSL Pro, another league that announced its intentions to apply for Division II status last week.`\
-https://nytimes.com/athletic/6316891/2025/04/28/lower-divisions-soccer-nwsl/
-
-**Jean-Pierre Bonnefoux, Sinuous Ballet Dancer and Choreographer, Dies at 82**\
-`He brought grace and power to his roles before a serious injury encouraged him to try choreography — “maybe the richest part of my life.”`\
-https://nytimes.com/2025/04/28/arts/dance/jean-pierre-bonnefoux-dead.html
 
