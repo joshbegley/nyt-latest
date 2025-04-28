@@ -1,3 +1,7 @@
+**House G.O.P. Proposes Charging $1,000 to Claim Asylum, Hiking Fees on Migrants**\
+`As part of legislation to pay for President Trump’s domestic agenda, including his immigration crackdown, House Republicans want to impose or increase fees for legal entry into the United States.`\
+https://nytimes.com/2025/04/28/us/politics/house-republicans-asylum-fees.html
+
 **Tuesday Briefing: Canada’s Momentous Election**\
 `Plus, the poetry challenge.`\
 https://nytimes.com/2025/04/28/briefing/canada-elections-putin-cease-fire-europe-blackout.html
@@ -35,8 +39,4 @@ https://nytimes.com/live/2025/04/21/opinion/thepoint/trump-approval-youth-vote
 **Israeli Spy Chief to Step Down After Clash With Netanyahu**\
 `The departure of Israel’s domestic intelligence chief appeared to end his unusually public clash with the prime minister.`\
 https://nytimes.com/2025/04/28/world/middleeast/israeli-spy-chief-netanyahu-ronen-bar-clash.html
-
-**Amazon to Launch First Project Kuiper Internet Satellites: What to Know**\
-`The spacecraft are the online giant’s entry into beaming wireless service from space, but the company has much to do before it can compete with SpaceX’s Starlink.`\
-https://nytimes.com/2025/04/28/science/amazon-kuiper-launch-ula.html
 
