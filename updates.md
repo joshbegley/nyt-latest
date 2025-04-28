@@ -1,5 +1,9 @@
 **Driver Kills at Least 11 at Vancouver Filipino Festival**\
 `Crowds were celebrating Lapu Lapu Day, a holiday in the Philippines, when a driver in an SUV accelerated and plowed down a congested street.`\
+https://nytimes.com/video/world/americas/vancouver-festival-lapulapu-crash.html
+
+**Driver Kills at Least 11 at Vancouver Filipino Festival**\
+`Crowds were celebrating Lapu Lapu Day, a holiday in the Philippines, when a driver in an SUV accelerated and plowed down a congested street.`\
 https://nytimes.com/video/world/americas/100000010133512/vancouver-festival-vehicle-ramming-deaths.html
 
 **Brad Lander’s 2 Goals in N.Y.C. Mayor’s Race: Beat Cuomo and Win**\

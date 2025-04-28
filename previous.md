@@ -1,6 +1,6 @@
 **Driver Kills at Least 11 at Vancouver Filipino Festival**\
 `Crowds were celebrating Lapu Lapu Day, a holiday in the Philippines, when a driver in an SUV accelerated and plowed down a congested street.`\
-https://nytimes.com/video/world/americas/100000010133512/vancouver-festival-vehicle-ramming-deaths.html
+https://nytimes.com/video/world/americas/vancouver-festival-lapulapu-crash.html
 
 **Brad Lander’s 2 Goals in N.Y.C. Mayor’s Race: Beat Cuomo and Win**\
 `Mr. Lander, the New York City comptroller, says voters seeking a competent leader should look to him and not the former governor: “I am a decent person. Let’s just start there.”`\
