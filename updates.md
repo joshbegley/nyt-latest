@@ -1,3 +1,7 @@
+**Penguins, 10-year coach Mike Sullivan part ways: What's next?**\
+`Sullivan departs as the winningest coach in team history and the NHL's second-longest tenured coach behind only Tampa Bay's Jon Cooper.`\
+https://nytimes.com/athletic/6317549/2025/04/28/mike-sullivan-part-ways-penguins-nhl/
+
 **The Windup: Top storylines of the 2025 season so far**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6317157/2025/04/28/mlb-storylines-early-2025-the-windup/
