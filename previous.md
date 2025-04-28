@@ -1,3 +1,7 @@
+**D.C. United owns Pogba's discovery rights**\
+`Pogba, 32, has been eligible to return to competitive soccer since March after serving an 18-month ban for an anti-doping violation.`\
+https://nytimes.com/athletic/6318316/2025/04/28/paul-pogba-dc-united-mls-next/
+
 **Police Arrest a Man They Say Abused a Corpse on the R Train**\
 `A Brooklyn man has been charged with first-degree rape after the police said he violated the body of a dead man on the subway in Manhattan.`\
 https://nytimes.com/2025/04/28/nyregion/subway-corpse-abuse-arrest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/28/us/politics/rep-gerald-connolly-retire.html
 **Bill Belichick’s Girlfriend Takes Charge in Awkward Interview**\
 `The legendary football coach has never shared much with the news media, but on Sunday it was Jordon Hudson who shut down a line of questioning.`\
 https://nytimes.com/2025/04/28/style/bill-belichick-girlfriend-jordon-hudson-interview.html
-
-**A Sri Lankan Feast on a Tropical Modernist Estate**\
-`The chef Cynthia Shanmugalingam cooked a meal that celebrated the country’s heirloom produce and homegrown creative culture.`\
-https://nytimes.com/2025/04/28/t-magazine/cynthia-shanmugalingam-sri-lanka-meal.html
 

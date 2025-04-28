@@ -1,3 +1,19 @@
+**2025 dynasty league SuperFlex Top 30 rookie rankings (with tiers)**\
+`Jeff Haverlack offers up his post-NFL draft rookie rankings for SuperFlex formats, with two first-round running backs leading the way.`\
+https://nytimes.com/athletic/6317966/2025/04/28/dynasty-league-superflex-top-30-rookie-rankings-tiers-ashton-jeanty/
+
+**John Jasperse Starts La MaMa Moves! Honoring a Female Lineage**\
+`Jasperse’s engrossing “Tides” was a thrilling opener to a festival that often feels like a home for first drafts.`\
+https://nytimes.com/2025/04/28/arts/dance/john-jasperse-la-mama-moves-tides.html
+
+**Despite his shaky French, Mark Carney is a hit in Quebec.**\
+`By Norimitsu Onishi`\
+https://nytimes.com/live/2025/04/28/world/canada-election/despite-his-shaky-french-mark-carney-is-a-hit-in-quebec
+
+**Bob Baffert looks to reclaim his place at the Kentucky Derby: 'I just want to move forward.'**\
+`Three years after Medina Spirit's victory was stripped due to a failed drug test, Baffert looks to reclaim his place at Churchill Downs.`\
+https://nytimes.com/athletic/6317795/2025/04/28/kentucky-derby-bob-baffert-return-suspension/
+
 **D.C. United owns Pogba's discovery rights**\
 `Pogba, 32, has been eligible to return to competitive soccer since March after serving an 18-month ban for an anti-doping violation.`\
 https://nytimes.com/athletic/6318316/2025/04/28/paul-pogba-dc-united-mls-next/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6318234/2025/04/28/fia-president-penalty-guidelines
 **Canada’s million-dollar housing crisis is a top concern for voters.**\
 `By Vjosa Isai`\
 https://nytimes.com/live/2025/04/28/world/canada-election/canadas-million-dollar-housing-crisis-is-a-top-concern-for-voters
-
-**Vaibhav Suryavanshi, 14, becomes youngest player to hit IPL hundred**\
-`The left-hand batter reached the milestone in just 35 balls — the second-fastest in the history of the competition.`\
-https://nytimes.com/athletic/6318241/2025/04/28/vaibhav-suryavanshi-hundred-ipl-age/
-
-**The Chaotic First 100 Days of Trump 2.0**\
-`Responses to a column by David Brooks about President Trump’s “energy.” Also: Cutting regulations; a project for Democrats; a general’s call to arms; how to age well.`\
-https://nytimes.com/2025/04/28/opinion/trump-100-days.html
-
-**Connolly, Top Democrat on Oversight Panel, to Relinquish Post and Retire**\
-`Representative Gerald E. Connolly of Virginia said he would not run for re-election. He will also give up his leadership spot on the oversight panel as he faces cancer.`\
-https://nytimes.com/2025/04/28/us/politics/rep-gerald-connolly-retire.html
-
-**Bill Belichick’s Girlfriend Takes Charge in Awkward Interview**\
-`The legendary football coach has never shared much with the news media, but on Sunday it was Jordon Hudson who shut down a line of questioning.`\
-https://nytimes.com/2025/04/28/style/bill-belichick-girlfriend-jordon-hudson-interview.html
 
