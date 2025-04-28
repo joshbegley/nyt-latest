@@ -1,3 +1,15 @@
+**Dozens Killed in Attack on Migrant Facility in Yemen, Houthis Say**\
+`There was no immediate comment from the U.S. military, which the Iran-backed Houthi militia blamed for the attack in Saada.`\
+https://nytimes.com/2025/04/28/world/middleeast/yemen-houthis-saada-migrants.html
+
+**No Corrections: April 28, 2025**\
+`No corrections appeared in print on Monday, April 28, 2025.`\
+https://nytimes.com/2025/04/28/pageoneplus/no-corrections-april-28-2025.html
+
+**'You better have these kind of things': Cincinnati readies to open $134M facility**\
+`The upgrade marks a crucial undertaking for the university since it joined the Big 12 in 2023.`\
+https://nytimes.com/athletic/6298741/2025/04/28/cincinnati-football-practice-facility-open/
+
 **Major Power Outage Hits Spain, Portugal and France**\
 `The blackout affected millions of people and disrupted critical infrastructure such as train systems and traffic lights.`\
 https://nytimes.com/video/world/europe/100000010133699/power-outage-spain-portugal-france.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6317160/2025/04/28/liverpool-premier-league-trophy-
 **Rashford expected to miss remainder of season with hamstring injury**\
 `Further tests will be done to establish the severity of Rashford’s injury but it is not anticipated that he will need surgery.`\
 https://nytimes.com/athletic/6317424/2025/04/28/marcus-rashford-injury-aston-villa-manchester-united/
-
-**Women's college basketball transfer portal winners and losers: LSU, South Carolina and TCU**\
-`How did MiLaysia Fulwiley's transfer from South Carolina to LSU shake up the SEC? Can Notre Dame recover from its exodus of players?`\
-https://nytimes.com/athletic/6316848/2025/04/28/womens-college-basketball-transfer-portal-winners-and-losers-lsu-south-carolina-and-tcu/
-
-**Spain power outage suspends play at Madrid Open, plunging tournament into darkness**\
-`A national power outage disrupted the combined ATP and WTA Tour 1,000 event in Spain.`\
-https://nytimes.com/athletic/6317425/2025/04/28/spain-power-outage-madrid-open-tennis/
-
-**Trump Administration Live Updates: New Orders Will Escalate Immigration Crackdown, White House Says**\
-``\
-https://nytimes.com/live/2025/04/28/us/trump-news
 
