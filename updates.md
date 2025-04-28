@@ -1,3 +1,7 @@
+**Dodger Details: Another injury for Tyler Glasnow, Andy Pages' surge and more**\
+`Glasnow vented after his latest setback: "I feel bad for my teammates. I feel bad for people watching."`\
+https://nytimes.com/athletic/6316492/2025/04/27/dodger-tyler-glasnow-injury-andy-pages/
+
 **The Poetry Challenge Day 1: Learn a poem with us this week. Keep it for a lifetime.**\
 `Starting today, we’ll have a week of games, videos and essays to help you along the way. First up: readings by Ina Garten, Ethan Hawke and Ada Limón.`\
 https://nytimes.com/interactive/2025/books/edna-st-vincent-millay-recuerdo-poem-challenge.html
