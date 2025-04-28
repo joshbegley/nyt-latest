@@ -1,3 +1,7 @@
+**Dutch Municipality Accidentally Discards a 1980s Warhol Print**\
+`A portrait of former Queen Beatrix of the Netherlands might have been worth tens of thousands of dollars. It was probably thrown out during a renovation.`\
+https://nytimes.com/2025/04/28/world/europe/andy-warhol-netherlands-town-hall-beatrix.html
+
 **FIA president considering changes to penalty guidelines including swearing**\
 `The FIA introduced new rules in January that threaten fines, points penalties and race bans for misconduct.`\
 https://nytimes.com/athletic/6318234/2025/04/28/fia-president-penalty-guidelines-swearing/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6318039/2025/04/28/penguins-coaching-candidates-mik
 **Red Light: How worried should the Jets be?**\
 `Plus the Capitals vs. the red-hot Montreal crowd.`\
 https://nytimes.com/athletic/6317996/2025/04/28/nhl-red-light-winnipeg-jets-playoffs/
-
-**Mike Sullivan’s next stop as coach? Rangers, Bruins and Flyers are among the possibilities**\
-`Dallas, Edmonton and Vegas could also become contenders if they flame out in the playoffs. Here's a look at all the potential destinations.`\
-https://nytimes.com/athletic/6318042/2025/04/28/mike-sullivan-coaching-destinations/
 

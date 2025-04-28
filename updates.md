@@ -1,3 +1,15 @@
+**FIA president considering changes to penalty guidelines including swearing**\
+`The FIA introduced new rules in January that threaten fines, points penalties and race bans for misconduct.`\
+https://nytimes.com/athletic/6318234/2025/04/28/fia-president-penalty-guidelines-swearing/
+
+**Canada’s million-dollar housing crisis is a top concern for voters.**\
+`By Vjosa Isai`\
+https://nytimes.com/live/2025/04/28/world/canada-election/canadas-million-dollar-housing-crisis-is-a-top-concern-for-voters
+
+**Bill Belichick’s Girlfriend Takes Charge in Awkward Interview**\
+`The legendary football coach has never shared much with the news media, but on Sunday it was Jordon Hudson who shut down a line of questioning.`\
+https://nytimes.com/2025/04/28/style/bill-belichick-girlfriend-jordon-hudson-interview.html
+
 **Vaibhav Suryavanshi, 14, becomes youngest player to hit IPL hundred**\
 `The left-hand batter reached the milestone in just 35 balls — the second-fastest in the history of the competition.`\
 https://nytimes.com/athletic/6318241/2025/04/28/vaibhav-suryavanshi-hundred-ipl-age/
