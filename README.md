@@ -1,5 +1,5 @@
 **Israeli Spy Chief to Step Down After Clash With Netanyahu**\
-`The departure of Israel’s domestic intelligence chief appeared to end his unusually public and clash with the prime minister.`\
+`The departure of Israel’s domestic intelligence chief appeared to end his unusually public clash with the prime minister.`\
 https://nytimes.com/2025/04/28/world/middleeast/israeli-spy-chief-netanyahu-ronen-bar-clash.html
 
 **Amazon to Launch First Project Kuiper Internet Satellites: What to Know**\
