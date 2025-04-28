@@ -1,3 +1,7 @@
+**Submit questions for Aaron Gleeman's Twins mailbag**\
+`As the Twins open a four-game series in Cleveland after a 5-1 homestand, what questions do you have? Submit them here. `\
+https://nytimes.com/athletic/6317712/2025/04/28/twins-mailbag-questions-aaron-gleeman/
+
 **Fact-Checking Trump’s Claims About Columbus Day**\
 `President Trump said in a post on social media that he was “reinstating Columbus Day.” It was never canceled as a federal holiday.`\
 https://nytimes.com/2025/04/28/us/politics/trump-columbus-day-claims.html
