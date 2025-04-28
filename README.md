@@ -1,3 +1,7 @@
+**The ‘Generation Trump’ Thesis Is Looking a Lot Shakier**\
+`Six months ago, the victory of the ex-president wasn’t just a devastating defeat for the left; it also marked a tectonic shift. Now, though, the polling looks different.`\
+https://nytimes.com/live/2025/04/21/opinion/thepoint/trump-approval-youth-vote
+
 **Israeli Spy Chief to Step Down After Clash With Netanyahu**\
 `The departure of Israel’s domestic intelligence chief appeared to end his unusually public clash with the prime minister.`\
 https://nytimes.com/2025/04/28/world/middleeast/israeli-spy-chief-netanyahu-ronen-bar-clash.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/04/28/world/canada-election/key-takeaways-from-an-
 **Where Rhinestones Meet the Rodeo**\
 `Desert Rodeo, in the Coachella Valley, tried to bridge the gap between rodeo enthusiasts and festivalgoer`\
 https://nytimes.com/card/2025/04/28/style/desert-rodeo-thermal-ca
-
-**A Rising Democratic Star Pitches a ‘Resistance 2.0’ in the Age of Trump**\
-`Greg Casar, a Texas Democrat and new chairman of the House Progressive Caucus, says his party must adopt economic populism to recapture voters and effectively counter President Trump.`\
-https://nytimes.com/2025/04/28/us/politics/greg-casar-trump-democrats.html
 
