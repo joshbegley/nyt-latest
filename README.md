@@ -1,3 +1,7 @@
+**Oilers tie Game 4 late, win it in OT to even series with Kings**\
+`Amazingly, this first-round matchup is all square as things shift back to Southern California.`\
+https://nytimes.com/athletic/6290497/2025/04/28/oilers-kings-nhl-playoffs-2025-game-4-takeaways/
+
 **The New York Times in Print for Monday, April 28, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/04/28/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6314782/2025/04/28/chelsea-everton-premier-league-f
 **Emirates Stadium, European fortress**\
 `Led by Mikel Arteta, Arsenal have worked hard to make their stadium intimidating for European matches — and have reaped the rewards`\
 https://nytimes.com/athletic/6309918/2025/04/28/arsenal-fortress-emirates-champions-league/
-
-**The pressure of a big week for Ruben Amorim is already telling**\
-`As focus turns to Europe, no injuries and a draw was a good result`\
-https://nytimes.com/athletic/6316092/2025/04/28/amorim-pressure-manchester-united-europe/
 
