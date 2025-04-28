@@ -1,3 +1,7 @@
+**Police Arrest a Man They Say Abused a Corpse on the R Train**\
+`A Brooklyn man has been charged with first-degree rape after the police said he violated the body of a dead man on the subway in Manhattan.`\
+https://nytimes.com/2025/04/28/nyregion/subway-corpse-abuse-arrest.html
+
 **Blackouts Across Spain and Portugal Disrupt Critical Infrastructure**\
 `Millions of people in Spain and Portugal were without power after a widespread outage brought daily activity to a halt throughout the two countries.`\
 https://nytimes.com/video/world/europe/100000010133965/blackout-in-spain-and-portugal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/28/style/bill-belichick-girlfriend-jordon-hudson-int
 **A Sri Lankan Feast on a Tropical Modernist Estate**\
 `The chef Cynthia Shanmugalingam cooked a meal that celebrated the country’s heirloom produce and homegrown creative culture.`\
 https://nytimes.com/2025/04/28/t-magazine/cynthia-shanmugalingam-sri-lanka-meal.html
-
-**Penguins coaching candidates: Who could replace Mike Sullivan?**\
-`A look at some names that could be in the running to become the next coach of the Penguins. `\
-https://nytimes.com/athletic/6318039/2025/04/28/penguins-coaching-candidates-mike-sullivan-replacement/
 

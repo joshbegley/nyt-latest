@@ -1,3 +1,7 @@
+**Police Arrest a Man They Say Abused a Corpse on the R Train**\
+`A Brooklyn man has been charged with first-degree rape after the police said he violated the body of a dead man on the subway in Manhattan.`\
+https://nytimes.com/2025/04/28/nyregion/subway-corpse-abuse-arrest.html
+
 **Blackouts Across Spain and Portugal Disrupt Critical Infrastructure**\
 `Millions of people in Spain and Portugal were without power after a widespread outage brought daily activity to a halt throughout the two countries.`\
 https://nytimes.com/video/world/europe/100000010133965/blackout-in-spain-and-portugal.html
