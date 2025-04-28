@@ -1,3 +1,11 @@
+**Boat Collides With Ferry in Florida, Causing Injuries, Police Say**\
+`Forty people were aboard the ferry that was struck near a bridge in Clearwater, Fla., according to the police. It was unclear how many had been injured.`\
+https://nytimes.com/2025/04/27/us/boat-ferry-crash-florida.html
+
+**‘60 Minutes’ Chastises Its Corporate Parent in Unusual On-Air Rebuke**\
+`The show’s top producer abruptly said last week he was quitting. “Paramount began to supervise our content in new ways,” the correspondent Scott Pelley told viewers.`\
+https://nytimes.com/2025/04/27/business/media/60-minutes-scott-pelley-paramount.html
+
 **Bucks star Damian Lillard leaves Game 4 with leg injury, will not return**\
 `The severity of Lillard's injury is not expected to be known until Monday.`\
 https://nytimes.com/athletic/6316705/2025/04/27/damian-lillard-out-game-4-bucks-pacers/
