@@ -1,3 +1,19 @@
+**Lakers' 'Lasers' lineup adjustment worked — until it didn't. Now what?**\
+`"We had opportunities to win," LeBron James said. "We just didn't close."`\
+https://nytimes.com/athletic/6316798/2025/04/28/lakers-lineup-adjustment-nba-playoffs-timberwolves/
+
+**This Week in Mets: Quantifying the impact of the Mets' depth**\
+`Tylor Megill and Griffin Canning, two starters filling in for bigger names in the rotation, have compiled a 2.37 ERA in 11 starts.`\
+https://nytimes.com/athletic/6316741/2025/04/28/mets-depth-tylor-megill-griffin-canning/
+
+**The Pulse: A bad Sunday for stars and a prankster revealed**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6316549/2025/04/28/damian-lillard-injury-the-pulse/
+
+**Phillies takeaways: Trea Turner's 2 identities, outfield platoons, resetting the rotation**\
+`It sometimes looks like Turner is caught between identities at the plate. When at his best, he has found a way to be both. `\
+https://nytimes.com/athletic/6316906/2025/04/28/phillies-cubs-takeaways-trea-turner/
+
 **How the Bears' search for their next QB brought them to tight end Colston Loveland**\
 `When the Bears were in the market for a quarterback in 2024, they studied Michigan's J.J. McCarthy. Loveland stood out, too.`\
 https://nytimes.com/athletic/6315117/2025/04/28/bears-colston-loveland-jj-mccarthy/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6315429/2025/04/28/detroit-tigers-gleyber-torres-hi
 **How the Packers' draft affects Jaire Alexander's future and more takeaways**\
 `It makes sense for the Packers to keep cornerback Jaire Alexander now, plus more thoughts after the NFL Draft in Green Bay.`\
 https://nytimes.com/athletic/6315146/2025/04/28/packers-nfl-draft-jaire-alexander/
-
-**New York Jets early 53-man roster projection, post-NFL Draft**\
-`How things might shake out now that the 2025 roster is largely set.`\
-https://nytimes.com/athletic/6315286/2025/04/28/new-york-jets-projected-depth-chart/
-
-**C. Notes: Scooter Gennett welcomes Eugenio Suárez to 4-homer club**\
-`"Everyone's happy for him," Gennett said of Suárez becoming the 19th player to accomplish the feat. "It's amazing."`\
-https://nytimes.com/athletic/6316193/2025/04/28/scooter-gennett-eugenio-suarez-4-homer-club/
-
-**How Tom Wilson, wrecking ball, single-handedly decided Game 4**\
-`There was everything that came before an open-ice demolition of Canadiens defenseman Alex Carrier, and there was everything that came after.`\
-https://nytimes.com/athletic/6316983/2025/04/28/tom-wilson-capitals-nhl-playoffs-canadiens-hit/
-
-**NHL playoffs daily: Oilers, Blues tie series; Hurricanes, Caps take control**\
-`Edmonton rallied late to beat L.A. in overtime, while the Capitals, Hurricanes and Blues all rolled in routs Sunday.`\
-https://nytimes.com/athletic/6316219/2025/04/28/nhl-playoffs-daily-oilers-canes-caps-blues-win/
 

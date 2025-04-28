@@ -1,3 +1,19 @@
+**Lakers' 'Lasers' lineup adjustment worked — until it didn't. Now what?**\
+`"We had opportunities to win," LeBron James said. "We just didn't close."`\
+https://nytimes.com/athletic/6316798/2025/04/28/lakers-lineup-adjustment-nba-playoffs-timberwolves/
+
+**This Week in Mets: Quantifying the impact of the Mets' depth**\
+`Tylor Megill and Griffin Canning, two starters filling in for bigger names in the rotation, have compiled a 2.37 ERA in 11 starts.`\
+https://nytimes.com/athletic/6316741/2025/04/28/mets-depth-tylor-megill-griffin-canning/
+
+**The Pulse: A bad Sunday for stars and a prankster revealed**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6316549/2025/04/28/damian-lillard-injury-the-pulse/
+
+**Phillies takeaways: Trea Turner's 2 identities, outfield platoons, resetting the rotation**\
+`It sometimes looks like Turner is caught between identities at the plate. When at his best, he has found a way to be both. `\
+https://nytimes.com/athletic/6316906/2025/04/28/phillies-cubs-takeaways-trea-turner/
+
 **How the Bears' search for their next QB brought them to tight end Colston Loveland**\
 `When the Bears were in the market for a quarterback in 2024, they studied Michigan's J.J. McCarthy. Loveland stood out, too.`\
 https://nytimes.com/athletic/6315117/2025/04/28/bears-colston-loveland-jj-mccarthy/
