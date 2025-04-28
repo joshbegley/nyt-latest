@@ -1,3 +1,23 @@
+**A Sri Lankan Feast on a Tropical Modernist Estate**\
+`The chef Cynthia Shanmugalingam cooked a meal that celebrated the country’s heirloom produce and homegrown creative culture.`\
+https://nytimes.com/2025/04/28/t-magazine/cynthia-shanmugalingam-sri-lanka-meal.html
+
+**Penguins coaching candidates: Who could replace Mike Sullivan?**\
+`A look at some names that could be in the running to become the next coach of the Penguins. `\
+https://nytimes.com/athletic/6318039/2025/04/28/penguins-coaching-candidates-mike-sullivan-replacement/
+
+**Red Light: How worried should the Jets be?**\
+`Plus the Capitals vs. the red-hot Montreal crowd.`\
+https://nytimes.com/athletic/6317996/2025/04/28/nhl-red-light-winnipeg-jets-playoffs/
+
+**Mike Sullivan’s next stop as coach? Rangers, Bruins and Flyers are among the possibilities**\
+`Dallas, Edmonton and Vegas could also become contenders if they flame out in the playoffs. Here's a look at all the potential destinations.`\
+https://nytimes.com/athletic/6318042/2025/04/28/mike-sullivan-coaching-destinations/
+
+**River Plate star Mastantuono to remain at club this summer, says director**\
+`The 17-year-old scored the opener for his side in their 2-1 Superclasico victory over Boca Juniors on Sunday.`\
+https://nytimes.com/athletic/6318038/2025/04/28/franco-mastantuono-transfer-river-plate/
+
 **AI: Future in Motion**\
 `Business and beyond.`\
 https://nytimes.com/spotlight/ai-future-in-motion
@@ -17,25 +37,4 @@ https://nytimes.com/2025/04/28/business/economy/howard-lutnick-trump-tariffs.htm
 **USMNT Player Tracker: Pulisic saves Milan (again), Richards gets real and Paredes setback**\
 `Cameron-Carter Vickers and Auston Trusty tasted title joy (and tangerines) in Scotland, while Kevin Paredes suffered another injury blow`\
 https://nytimes.com/athletic/6317491/2025/04/28/usmnt-pulisic-richards-parades/
-
-**Jakob Ingebrigtsen's mother demands behind-closed-doors testimony in husband's trial**\
-`Gjert Ingebrigtsen is accused of abusing two of his children, including Olympic champion Jakob, over several years.`\
-https://nytimes.com/athletic/6317415/2025/04/28/gjert-ingebrigtsen-trial-jakob-mother-court-closed/
-
-**Mayor of London Sadiq Khan wants city to host 2040 Olympics**\
-`Another successful bid would make London the only city to host the Games four times.`\
-https://nytimes.com/athletic/6318094/2025/04/28/sadiq-khan-london-2040-olympics/
-
-**Champions League semi-final odds: Arsenal's sturdy defence meets PSG fiery attack**\
-`Brett Koremenos explores the betting value around Arsenal’s Champions League semi-final first-leg clash with PSG. 
-`\
-https://nytimes.com/athletic/6318096/2025/04/28/champions-league-semi-final-arsenal-vs-psg-odds-betting-tips/
-
-**Even on Canada’s Election Day, Trump Again Insists Country Should Join U.S.**\
-`The American president repeated his “51st state” talk on social media as voting began.`\
-https://nytimes.com/2025/04/28/world/canada/trump-51-state.html
-
-**No one is to blame for the Penguins-Mike Sullivan split. It was just time**\
-`Sullivan's final chapters in Pittsburgh weren't great, but he is a giant in Penguins history and will be remembered as such.`\
-https://nytimes.com/athletic/6317752/2025/04/28/mike-sullivan-penguins-split-rebuild-time/
 
