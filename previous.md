@@ -1,3 +1,11 @@
+**How did your school (or conference) stack up against others in the NFL Draft?**\
+`Everything you need to compare school and conference picks — and what it all means for college football.`\
+https://nytimes.com/athletic/6315985/2025/04/28/nfl-draft-college-football-schools-conferences-most-picks/
+
+**Ukraine Pinning War Hopes on Expanded Drone Program**\
+`With uncertainty looming over cease-fire talks and U.S. support, the Ukrainian military is relying more than ever on domestically produced drones.`\
+https://nytimes.com/2025/04/28/world/europe/ukraine-russia-war-drones.html
+
 **Lions post-NFL draft depth chart: A guard battle, questions at safety and edge**\
 `The Lions acquired some intriguing players during the draft.`\
 https://nytimes.com/athletic/6315752/2025/04/28/lions-depth-chart-nfl-draft-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/28/world/middleeast/kurds-syria-government.html
 **Commanders depth chart analysis: How did the NFL Draft help shape the roster?**\
 `Reviewing how GM Adam Peters and his staff performed in the draft and tackling any questions ahead of the offseason on-field program. `\
 https://nytimes.com/athletic/6315518/2025/04/28/commanders-2025-depth-chart-post-nfl-draft/
-
-**Villa objecting to Premier League over potential moving of Spurs game**\
-`The fixture is currently due to be played on Sunday, May 18, three days before the Europa League final.`\
-https://nytimes.com/athletic/6315941/2025/04/28/aston-villa-tottenham-premier-league/
-
-**The QB-needy team list shrunk during draft; what does that mean for Kirk Cousins, Falcons?**\
-`The Falcons still have Kirk Cousins on the roster and several teams with quarterback needs drafted one so where does that leave Atlanta?`\
-https://nytimes.com/athletic/6315179/2025/04/28/falcons-kirk-cousins-quarterback-needy-teams/
 

@@ -1,3 +1,11 @@
+**How did your school (or conference) stack up against others in the NFL Draft?**\
+`Everything you need to compare school and conference picks — and what it all means for college football.`\
+https://nytimes.com/athletic/6315985/2025/04/28/nfl-draft-college-football-schools-conferences-most-picks/
+
+**Ukraine Pinning War Hopes on Expanded Drone Program**\
+`With uncertainty looming over cease-fire talks and U.S. support, the Ukrainian military is relying more than ever on domestically produced drones.`\
+https://nytimes.com/2025/04/28/world/europe/ukraine-russia-war-drones.html
+
 **Lions post-NFL draft depth chart: A guard battle, questions at safety and edge**\
 `The Lions acquired some intriguing players during the draft.`\
 https://nytimes.com/athletic/6315752/2025/04/28/lions-depth-chart-nfl-draft-2025/
