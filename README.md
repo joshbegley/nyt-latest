@@ -1,40 +1,36 @@
-**Trump Talks About His Meeting With Zelensky at the Vatican**\
-`President Trump spoke about his meeting with Ukraine’s leader in St. Peter’s Basilica, their first since a heated encounter in the Oval Office in February.`\
-https://nytimes.com/video/us/politics/100000010133381/trump-ukraine-zelensky-putin.html
+**What's real and what's questionable about Yankees' hot start?**\
+`Aaron Judge is still the best player in baseball. Meanwhile, the starting rotation might be OK, even without ace Gerrit Cole and Luis Gil.`\
+https://nytimes.com/athletic/6316656/2025/04/28/yankees-hot-start-questions-and-reality/
 
-**China and the Philippines Spar Over a Sandbar in the South China Sea**\
-`The standoff over Sandy Cay, which lies close to military outposts built by both Beijing and Manila, was the latest between the two nations.`\
-https://nytimes.com/2025/04/28/world/asia/south-china-philippine-sandy.html
+**Panthers post-draft depth chart: Tetairoa McMillan steps right in, defense has questions**\
+`What is Jadeveon Clowney's future with the Panthers? Could they still make moves at cornerback and safety?`\
+https://nytimes.com/athletic/6315741/2025/04/28/panthers-depth-chart-post-nfl-draft/
 
-**Driver Kills at Least 11 at Vancouver Filipino Festival**\
-`Crowds were celebrating Lapu Lapu Day, a holiday in the Philippines, when a driver in an SUV accelerated and plowed down a congested street.`\
-https://nytimes.com/video/world/americas/vancouver-festival-lapulapu-crash.html
+**Canada Votes: What’s at Stake?**\
+`Many Canadians believe Monday’s election is the most important of their lifetime. It will determine who will take on a stagnant economy and deal with President Trump.`\
+https://nytimes.com/2025/04/28/world/canada/canada-election-issues-voters.html
 
-**Brad Lander’s 2 Goals in N.Y.C. Mayor’s Race: Beat Cuomo and Win**\
-`Mr. Lander, the New York City comptroller, says voters seeking a competent leader should look to him and not the former governor: “I am a decent person. Let’s just start there.”`\
-https://nytimes.com/2025/04/28/nyregion/brad-lander-mayor-nyc.html
+**Albuquerque Has a Crime Problem. Is the National Guard the Answer?**\
+`New Mexico’s governor said the troops are needed to help quell violence. But in the deeply blue city, the plan to deploy them has drawn uneasy comparisons to the talk of President Trump.`\
+https://nytimes.com/2025/04/28/us/albuquerque-national-guard.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/04/28/crosswords/spelling-bee-forum.html
+**All Good Things Come to an End. What About Bad Things?**\
+`We cannot forget that so much of our Trump trauma comes from electing a reality TV star as president.`\
+https://nytimes.com/2025/04/28/opinion/trump-pope-dialogue-future.html
 
-**As India and Pakistan Cancel Visas, Parents and Children Are Separated**\
-`The repercussions from a terrorist attack led to painful scenes at the countries’ border, as families with mixed citizenship were suddenly divided.`\
-https://nytimes.com/2025/04/28/world/asia/india-pakistan-visas-kashmir.html
+**A ‘Citizen Lawyer’ Gets a Standing Ovation at the Supreme Court**\
+`In a remarkable scene, the justices applauded Edwin S. Kneedler, a government lawyer with a reputation for candor, care and integrity.`\
+https://nytimes.com/2025/04/28/us/politics/supreme-court-lawyer-standing-ovation.html
 
-**Can the Magic follow the Celtics' lead and give their young stars the help they need?**\
-`Boston got supporting help for Jayson Tatum and Jaylen Brown. Now Orlando must do the same for Paolo Banchero and Franz Wagner.`\
-https://nytimes.com/athletic/6316998/2025/04/28/paolo-banchero-franz-wagner-magic-celtics-game-4-nba/
+**New York City’s Creative Churn: The View From the Dance Floor**\
+`“Urban Stomp” at the Museum of the City of New York chronicles the metropolis’s social dance. It also invites you to join the party.`\
+https://nytimes.com/2025/04/28/arts/dance/urban-stomp-new-york-museum.html
 
-**Kristaps Porziņģis, Celtics find the right adjustments in Game 4 win**\
-`Orlando shut off the 3-point arc to Boston earlier in the series, but Porziņģis shifted his approach, going straight to the rim for dunks.`\
-https://nytimes.com/athletic/6317014/2025/04/28/celtics-adjust-in-game-4-win/
+**Tariffs Could Ruin My Small Business**\
+`Trump gave Apple a break. What about the lone entrepreneur?`\
+https://nytimes.com/2025/04/28/opinion/frywall-small-business-tariffs.html
 
-**Oilers tie Game 4 late, win it in OT to even series with Kings**\
-`Amazingly, this first-round matchup is all square as things shift back to Southern California.`\
-https://nytimes.com/athletic/6290497/2025/04/28/oilers-kings-nhl-playoffs-2025-game-4-takeaways/
-
-**The New York Times in Print for Monday, April 28, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/04/28/todays-new-york-times
+**Broadway’s Debacles Live On at Joe Allen’s ‘Flop Wall’**\
+`The posters in the theater-district restaurant document the shows that went wrong.`\
+https://nytimes.com/2025/04/28/nyregion/broadways-joe-allen-flop-wall.html
 
