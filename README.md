@@ -1,3 +1,7 @@
+**Submit questions for Aaron Gleeman's Twins mailbag**\
+`As the Twins open a four-game series in Cleveland after a 5-1 homestand, what questions do you have? Submit them here. `\
+https://nytimes.com/athletic/6317712/2025/04/28/twins-mailbag-questions-aaron-gleeman/
+
 **Fact-Checking Trump’s Claims About Columbus Day**\
 `President Trump said in a post on social media that he was “reinstating Columbus Day.” It was never canceled as a federal holiday.`\
 https://nytimes.com/2025/04/28/us/politics/trump-columbus-day-claims.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6317518/2025/04/28/college-baseball-rankings-nc-sta
 **In ‘Krapp’s Last Tape,’ Gary Oldman Hits Rewind**\
 `The star actor returns to the theater where he started almost a half-century ago, with Samuel Beckett’s bleak one-man play.`\
 https://nytimes.com/2025/04/28/theater/gary-oldman-krapps-last-tape-york.html
-
-**The Windup: Top storylines of the 2025 season so far**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6317157/2025/04/28/mlb-storylines-early-2025-the-windup/
 
