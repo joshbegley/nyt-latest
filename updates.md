@@ -1,3 +1,23 @@
+**Oilers tie Game 4 late, win it in OT to even series with Kings**\
+`Amazingly, this first-round matchup is all square as things shift back to Southern California.`\
+https://nytimes.com/athletic/6290497/2025/04/28/oilers-kings-nhl-playoffs-2025-game-4-takeaways/
+
+**The New York Times in Print for Monday, April 28, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/28/todays-new-york-times
+
+**‘The Four Seasons,’ Plus 7 Things to Watch on TV this Week**\
+`A new series comes to Netflix, a true crime documentary airs and “The Righteous Gemstones” wraps up its season on HBO.`\
+https://nytimes.com/2025/04/28/arts/television/watch-on-tv-this-week.html
+
+**You Want to Protect Jewish Students? What About Jewish Student Protesters?**\
+`Going after antisemitism on campus has swept up Jewish students protesting the war in Gaza.`\
+https://nytimes.com/2025/04/28/opinion/jewish-student-protesters-gaza.html
+
+**Trump Says He Wants to Save the U.S. Auto Industry. His Policies Could Destroy It.**\
+`Trump’s approach risks leaving U.S. automakers isolated and incapable of competing on their own merits as foreign companies bolt ahead.`\
+https://nytimes.com/2025/04/28/opinion/trump-car-industry-tariffs.html
+
 **Stay Ready with MassMutual & Christen Press**\
 `MassMutual teamed up with Flau'jae Johnson, Christen Press and Madison Keys to talk about the power of preparation. On the court. And off.`\
 https://nytimes.com/paidpost/athletic/massmutual/stay-ready-christen-press.html
