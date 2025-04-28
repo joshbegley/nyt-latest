@@ -1,3 +1,19 @@
+**Vaibhav Suryavanshi, 14, becomes youngest player to hit IPL hundred**\
+`The left-hand batter reached the milestone in just 35 balls — the second-fastest in the history of the competition.`\
+https://nytimes.com/athletic/6318241/2025/04/28/vaibhav-suryavanshi-hundred-ipl-age/
+
+**The Chaotic First 100 Days of Trump 2.0**\
+`Responses to a column by David Brooks about President Trump’s “energy.” Also: Cutting regulations; a project for Democrats; a general’s call to arms; how to age well.`\
+https://nytimes.com/2025/04/28/opinion/trump-100-days.html
+
+**Connolly, Top Democrat on Oversight Panel, to Relinquish Post and Retire**\
+`Representative Gerald E. Connolly of Virginia said he would not run for re-election. He will also give up his leadership spot on the oversight panel as he faces cancer.`\
+https://nytimes.com/2025/04/28/us/politics/rep-gerald-connolly-retire.html
+
+**Bill Belichick’s Girlfriend Takes Charge in Awkward Interview**\
+`The Hall of Fame football coach has never shared much with the news media, but on Sunday it was Jordon Hudson who shut down a line of questioning.`\
+https://nytimes.com/2025/04/28/style/bill-belichick-girlfriend-jordon-hudson-interview.html
+
 **A Sri Lankan Feast on a Tropical Modernist Estate**\
 `The chef Cynthia Shanmugalingam cooked a meal that celebrated the country’s heirloom produce and homegrown creative culture.`\
 https://nytimes.com/2025/04/28/t-magazine/cynthia-shanmugalingam-sri-lanka-meal.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6318038/2025/04/28/franco-mastantuono-transfer-rive
 **AI: Future in Motion**\
 `Business and beyond.`\
 https://nytimes.com/spotlight/ai-future-in-motion
-
-**WNBA to broadcast 4 preseason games nationally for first time ever**\
-`Fourteen of the league's 15 preseason games will also be broadcast on WNBA League Pass, with the lone exception airing only on ESPN`\
-https://nytimes.com/athletic/6317805/2025/04/28/wnba-preseason-games-national-tv/
-
-**When the left is too left in a Canada rattled by Trump.**\
-`By Vjosa Isai`\
-https://nytimes.com/live/2025/04/28/world/canada-election/when-the-left-is-too-left-in-a-canada-rattled-by-trump
-
-**Trump’s ‘Buoyant’ Trade Warrior Flexes His Power Over Global Business**\
-`Howard Lutnick, the secretary of commerce, has become a go-to for major companies seeking relief from tariffs. But he’s not always friendly to their interests.`\
-https://nytimes.com/2025/04/28/business/economy/howard-lutnick-trump-tariffs.html
-
-**USMNT Player Tracker: Pulisic saves Milan (again), Richards gets real and Paredes setback**\
-`Cameron-Carter Vickers and Auston Trusty tasted title joy (and tangerines) in Scotland, while Kevin Paredes suffered another injury blow`\
-https://nytimes.com/athletic/6317491/2025/04/28/usmnt-pulisic-richards-parades/
 

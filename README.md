@@ -1,3 +1,11 @@
+**FIA president considering changes to penalty guidelines including swearing**\
+`The FIA introduced new rules in January that threaten fines, points penalties and race bans for misconduct.`\
+https://nytimes.com/athletic/6318234/2025/04/28/fia-president-penalty-guidelines-swearing/
+
+**Canada’s million-dollar housing crisis is a top concern for voters.**\
+`By Vjosa Isai`\
+https://nytimes.com/live/2025/04/28/world/canada-election/canadas-million-dollar-housing-crisis-is-a-top-concern-for-voters
+
 **Vaibhav Suryavanshi, 14, becomes youngest player to hit IPL hundred**\
 `The left-hand batter reached the milestone in just 35 balls — the second-fastest in the history of the competition.`\
 https://nytimes.com/athletic/6318241/2025/04/28/vaibhav-suryavanshi-hundred-ipl-age/
@@ -11,7 +19,7 @@ https://nytimes.com/2025/04/28/opinion/trump-100-days.html
 https://nytimes.com/2025/04/28/us/politics/rep-gerald-connolly-retire.html
 
 **Bill Belichick’s Girlfriend Takes Charge in Awkward Interview**\
-`The Hall of Fame football coach has never shared much with the news media, but on Sunday it was Jordon Hudson who shut down a line of questioning.`\
+`The legendary football coach has never shared much with the news media, but on Sunday it was Jordon Hudson who shut down a line of questioning.`\
 https://nytimes.com/2025/04/28/style/bill-belichick-girlfriend-jordon-hudson-interview.html
 
 **A Sri Lankan Feast on a Tropical Modernist Estate**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6317996/2025/04/28/nhl-red-light-winnipeg-jets-play
 **Mike Sullivan’s next stop as coach? Rangers, Bruins and Flyers are among the possibilities**\
 `Dallas, Edmonton and Vegas could also become contenders if they flame out in the playoffs. Here's a look at all the potential destinations.`\
 https://nytimes.com/athletic/6318042/2025/04/28/mike-sullivan-coaching-destinations/
-
-**River Plate star Mastantuono to remain at club this summer, says director**\
-`The 17-year-old scored the opener for his side in their 2-1 Superclasico victory over Boca Juniors on Sunday.`\
-https://nytimes.com/athletic/6318038/2025/04/28/franco-mastantuono-transfer-river-plate/
-
-**AI: Future in Motion**\
-`Business and beyond.`\
-https://nytimes.com/spotlight/ai-future-in-motion
 
