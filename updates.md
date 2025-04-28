@@ -1,3 +1,11 @@
+**Stay Ready with MassMutual & Christen Press**\
+`MassMutual teamed up with Flau'jae Johnson, Christen Press and Madison Keys to talk about the power of preparation. On the court. And off.`\
+https://nytimes.com/paidpost/athletic/massmutual/stay-ready-christen-press.html
+
+**Monday Briefing**\
+`Canadians head to the polls.`\
+https://nytimes.com/2025/04/28/briefing/canada-polls-ukraine-pope.html
+
 **Why this Premier League title meant everything to Liverpool**\
 `To understand why the outpouring of emotion in the city was so raw, you have to go back to 2020 and what came before that too`\
 https://nytimes.com/athletic/6315458/2025/04/28/liverpool-premier-league-title/

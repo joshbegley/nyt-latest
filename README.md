@@ -1,3 +1,19 @@
+**The New York Times in Print for Monday, April 28, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/28/todays-new-york-times
+
+**‘The Four Seasons,’ Plus 7 Things to Watch on TV this Week**\
+`A new series comes to Netflix, a true crime documentary airs and “The Righteous Gemstones” wraps up its season on HBO.`\
+https://nytimes.com/2025/04/28/arts/television/watch-on-tv-this-week.html
+
+**You Want to Protect Jewish Students? What About Jewish Student Protesters?**\
+`Going after antisemitism on campus has swept up Jewish students protesting the war in Gaza.`\
+https://nytimes.com/2025/04/28/opinion/jewish-student-protesters-gaza.html
+
+**Trump Says He Wants to Save the U.S. Auto Industry. His Policies Could Destroy It.**\
+`Trump’s approach risks leaving U.S. automakers isolated and incapable of competing on their own merits as foreign companies bolt ahead.`\
+https://nytimes.com/2025/04/28/opinion/trump-car-industry-tariffs.html
+
 **Stay Ready with MassMutual & Christen Press**\
 `MassMutual teamed up with Flau'jae Johnson, Christen Press and Madison Keys to talk about the power of preparation. On the court. And off.`\
 https://nytimes.com/paidpost/athletic/massmutual/stay-ready-christen-press.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6309918/2025/04/28/arsenal-fortress-emirates-champi
 **The pressure of a big week for Ruben Amorim is already telling**\
 `As focus turns to Europe, no injuries and a draw was a good result`\
 https://nytimes.com/athletic/6316092/2025/04/28/amorim-pressure-manchester-united-europe/
-
-**The second half at Brighton that was a microcosm of West Ham's calamitous season**\
-`Familiar problems were visible once again for Graham Potter’s side on Saturday - and the club's supporters are increasingly disgruntled  `\
-https://nytimes.com/athletic/6312164/2025/04/28/west-ham-potter-late-goals-premier-league/
-
-**Stoppage-time winners: The greatest mood enhancer in football**\
-`The unhappy mood at Brighton dissolved on Saturday as Fabian Hurzeler's side came from behind to record a very timely win`\
-https://nytimes.com/athletic/6304930/2025/04/28/injury-time-winning-goals-the-greatest-mood-enhancer-in-football/
-
-**Tottenham have sacrificed league pride for Europa League hope - they should be honest about it**\
-`Ange Postecoglou is in the middle of a balancing act and nobody knows whether it will work`\
-https://nytimes.com/athletic/6315724/2025/04/28/tottenham-liverpool-europa-league/
-
-**The Leicester fans who keep coming back for more - even in (potentially) their worst season ever**\
-`The Athletic travelled with Leicester fans for their game against Wolves at Molineux on Saturday`\
-https://nytimes.com/athletic/6314798/2025/04/28/leicester-fans-travel-worst-season/
 
