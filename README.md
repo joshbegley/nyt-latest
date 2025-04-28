@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6316437/2025/04/28/college-baseball-nc-state-texas-
 https://nytimes.com/athletic/6317160/2025/04/28/liverpool-premier-league-trophy-parade/
 
 **Rashford expected to miss remainder of season with hamstring injury**\
-`Further tests will be done to establish the severity of Rashford’s injury but it is expected that he will not need surgery.`\
+`Further tests will be done to establish the severity of Rashford’s injury but it is not anticipated that he will need surgery.`\
 https://nytimes.com/athletic/6317424/2025/04/28/marcus-rashford-injury-aston-villa-manchester-united/
 
 **Women's college basketball transfer portal winners and losers: LSU, South Carolina and TCU**\
