@@ -1,3 +1,7 @@
+**Boat Collides With Ferry in Florida, Causing Injuries, Police Say**\
+`Forty people were aboard the ferry that was struck near a bridge in Clearwater, Fla., according to the police. It was unclear how many had been injured.`\
+https://nytimes.com/2025/04/27/us/boat-ferry-crash-florida.html
+
 **‘60 Minutes’ Chastises Its Corporate Parent in Unusual On-Air Rebuke**\
 `The show’s top producer abruptly said last week he was quitting. “Paramount began to supervise our content in new ways,” the correspondent Scott Pelley told viewers.`\
 https://nytimes.com/2025/04/27/business/media/60-minutes-scott-pelley-paramount.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6316393/2025/04/27/broncos-dre-greenlaw-quad-injury
 **‘The Last of Us’ Season 2, Episode 3 Recap: Rate Your Pain**\
 `The first episode after last week’s loss of a major character makes a fine case for this season’s future.`\
 https://nytimes.com/2025/04/27/arts/television/the-last-of-us-recap-season-2-episode-3.html
-
-**Devils' Timo Meier, a controversial collision and the edge between reckless and 'made for the playoffs'**\
-`Meier ran into Frederik Andersen in Game 4 of the teams' first-round series Sunday, sending the Hurricanes goalie to the injury ward.`\
-https://nytimes.com/athletic/6316501/2025/04/27/timo-meier-frederik-andersen-controversy-nhl-playoffs/
 
