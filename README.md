@@ -1,3 +1,15 @@
+**Hegseth Cuts Program Encouraging Women to Take Roles in National Security**\
+`The defense secretary said the Women, Peace and Security program distracted from the core task of “war-fighting” and that the Pentagon would no longer participate in it.`\
+https://nytimes.com/2025/04/29/us/politics/pete-hegseth-women-peace-security.html
+
+**Ex-School Athletic Director Gets 4 Months in Jail for Racist Deepfake Recording**\
+`Dazhon Darien, 32, who worked at Pikesville High School in Baltimore County, pleaded guilty to disturbing school operations.`\
+https://nytimes.com/2025/04/29/technology/baltimore-pikesville-high-athletic-director-ai-deepfake.html
+
+**There Have Never Been 100 Days Like This**\
+`Also, New York banned smartphones in schools. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/04/29/briefing/trump-100-days-tariffs-cars.html
+
 **Pistons face tall task against Knicks but 'Rip' Hamilton has some advice**\
 `Win or lose, the Detroit legend likes what he sees from this iteration of the team: "It's a great group."`\
 https://nytimes.com/athletic/6321724/2025/04/29/richard-hamilton-pistons-knicks-game-5-nba-playoffs/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/29/nyregion/mta-budget.html
 **Trump Is About to Steal My Friend’s Christmas — and Yours**\
 `A disappointed supporter reflects on the madness in the president’s method.`\
 https://nytimes.com/2025/04/29/opinion/tariffs-business-trump-voter.html
-
-**Technology glitches mar second day of testimony at Hockey Canada trial**\
-`The Crown showed jurors surveillance videos and at least one photo from social media during Tuesday's Hockey Canada trial proceedings.`\
-https://nytimes.com/athletic/6321232/2025/04/29/hockey-canada-sexual-assault-trial-surveillance-video/
-
-**The Briefing: Arsenal 0 PSG 1: Dembele, Donnarumma leave Arteta's side facing daunting Paris trip**\
-`Our writers break down the action from the Champions League semi-final first leg at the Emirates.`\
-https://nytimes.com/athletic/6320267/2025/04/29/arsenal-psg-champions-league/
-
-**Thompson: Draymond Green seals Warriors' Game 4 win with the kind of play you'll remember**\
-`You'll remember Draymond Green for a lot of things. One of them is plays like Monday's game-sealer against Alperen Şengün and the Rockets.`\
-https://nytimes.com/athletic/6321654/2025/04/29/draymond-green-warriors-rockets-game-4-alperen-sengun-stop/
 
