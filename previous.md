@@ -1,3 +1,11 @@
+**Supreme Court Considers Suit Over F.B.I.’s Raid of the Wrong House**\
+`The legal questions were tangled, but some justices seemed incredulous at a government lawyer’s defense of a botched operation involving a battering ram and a flash-bang grenade.`\
+https://nytimes.com/2025/04/29/us/supreme-court-fbi-raid.html
+
+**Serving Up Satisfaction in the Kitchen and the Bedroom**\
+`“Câreme,” a new Apple TV+ series, is based on the life of a 19th-century society chef who delighted diners and lovers. It’s very French.`\
+https://nytimes.com/2025/04/29/arts/television/careme-french-chef.html
+
 **Kings hire Doug Christie as permanent head coach**\
 `Christie has been on Sacramento's coaching staff since 2021 and was named interim coach after Mike Brown was fired in December.`\
 https://nytimes.com/athletic/6320924/2025/04/29/sacramento-kings-doug-christie-coach/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6320796/2025/04/29/matt-gay-commanders-signing-zane
 **Retailers Fear Toy Shortages at Christmas as Tariffs Freeze Supply Chain**\
 `Toy makers and stores are freezing holiday orders, predicting shortages and higher prices. Some are consulting bankruptcy lawyers, fearing their firms won’t survive.`\
 https://nytimes.com/2025/04/29/business/trump-tariffs-christmas-china.html
-
-**Stuck in a Dentist’s Chair, and Other Blackout Tales From Spain and Portugal**\
-`Even as electricity was restored across Spain and Portugal after a daylong blackout, residents tried to make sense of 18 hours of the “insanity.”`\
-https://nytimes.com/2025/04/29/world/europe/spain-power-outage-blackout.html
-
-**Maple Leafs roster updates vs. Senators: Likely lines and big questions for Game 5**\
-`The Maple Leafs have a chance to close out their series with the Senators at home early on.`\
-https://nytimes.com/athletic/6320384/2025/04/29/maple-leafs-roster-lines-game-5-nhl-playoffs/
 

@@ -1,3 +1,11 @@
+**Supreme Court Considers Suit Over F.B.I.’s Raid of the Wrong House**\
+`The legal questions were tangled, but some justices seemed incredulous at a government lawyer’s defense of a botched operation involving a battering ram and a flash-bang grenade.`\
+https://nytimes.com/2025/04/29/us/supreme-court-fbi-raid.html
+
+**Serving Up Satisfaction in the Kitchen and the Bedroom**\
+`“Câreme,” a new Apple TV+ series, is based on the life of a 19th-century society chef who delighted diners and lovers. It’s very French.`\
+https://nytimes.com/2025/04/29/arts/television/careme-french-chef.html
+
 **Kings hire Doug Christie as permanent head coach**\
 `Christie has been on Sacramento's coaching staff since 2021 and was named interim coach after Mike Brown was fired in December.`\
 https://nytimes.com/athletic/6320924/2025/04/29/sacramento-kings-doug-christie-coach/
