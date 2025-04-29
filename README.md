@@ -1,3 +1,7 @@
+**74 passes and one shot: Breaking down Inter's 2010 Mourinho masterclass vs Barcelona**\
+`As the two clubs prepare to meet at the semi-final stage again, we travel back 15 years to revisit a unique performance at the Camp Nou `\
+https://nytimes.com/athletic/6306106/2025/04/29/inter-barcelona-2010-champions-league/
+
 **A Contender for the Papacy in the Mold of Francis**\
 `Cardinal Luis Tagle of the Philippines is known as the “Asian Francis.” But he has been criticized for not being vocal enough about his country’s brutal drug war and clerical sex abuse.`\
 https://nytimes.com/2025/04/29/world/asia/luis-tagle-asian-pope.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6319573/2025/04/28/nwsl-weekend-recap-standings-ful
 **Here’s what happened on Monday.**\
 `By The New York Times`\
 https://nytimes.com/live/2025/04/28/us/trump-news/heres-what-happened-on-monday
-
-**White House Looks to Take Steps to Ease Pain From Car Tariffs**\
-`The planned concessions to give automakers more time to relocate production to the United States would still leave substantial tariffs on imported cars and car parts.`\
-https://nytimes.com/2025/04/28/us/politics/trump-tariffs-cars-auto.html
 
