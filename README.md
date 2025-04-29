@@ -1,3 +1,11 @@
+**Penske Shakes Up Leadership of South by Southwest**\
+`The festival’s longtime president is leaving the festival, as are about 10 others. Its owner, Penske Media, told staff members about the changes on Friday.`\
+https://nytimes.com/2025/04/29/business/media/penske-south-by-southwest-shakeup.html
+
+**This Manhattan Restaurant Is Even Better Than Its Buzz**\
+`Under all the hype and beautiful-people veneer, Bridges is full of surprises, starting with an imaginative, globally inspired menu.`\
+https://nytimes.com/2025/04/29/dining/bridges-restaurant-review.html
+
 **Rudiger given 6-game ban for 'throwing object' at referee, Bellingham avoids suspension**\
 `Ricardo de Burgos Bengoetxea's referee's report said Rudiger threw an object towards him, adding he showed an "aggressive attitude."`\
 https://nytimes.com/athletic/6317404/2025/04/29/rudiger-bellingham-ban-real-madrid-referee/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/29/us/politics/trump-doug-emhoff-holocaust-museum-bi
 **Alexander Zverev's defeat at Madrid Open ends halting pursuit of No. 1 ranking**\
 `Despite multiple attempts, Zverev hardly closed the gap on No. 1 Jannik Sinner, who has barred from tennis competition since February.`\
 https://nytimes.com/athletic/6321230/2025/04/29/alexander-zverev-loses-francisco-cerundolo/
-
-**Pittsburgh Funeral Home Tossed Pets’ Remains in Landfill, Prosecutors Say**\
-`Patrick Vereb is accused of taking over $650,0000 from customers who paid for dog and cat burial and cremation services between 2021 and 2024 in Western Pennsylvania.`\
-https://nytimes.com/2025/04/29/us/funeral-director-dogs-cats-bodies.html
-
-**Cuts to AmeriCorps Volunteer Programs Leave Communities Scrambling**\
-`The termination of hundreds of millions of dollars in federal grants from the agency has left its programs, which address an array of needs, in turmoil.`\
-https://nytimes.com/2025/04/29/us/politics/americorps-grant-cuts.html
 
