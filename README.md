@@ -1,3 +1,15 @@
+**Torture and Secret C.I.A. Prisons Haunt 9/11 Case in Judge’s Ruling**\
+`Prosecutors have said they will appeal the decision, although they lost a similar appeal this year.`\
+https://nytimes.com/2025/04/29/us/politics/cia-torture-sept-11.html
+
+**Anthony Edwards over Luka Dončić? The Timberwolves are happy with that outcome**\
+`Plus, why Brandin Podziemski is shining for the Warriors, and real reason behind the Tyrese Haliburton "haters."`\
+https://nytimes.com/athletic/6320037/2025/04/29/anthony-edwards-luka-doncic-brandin-podziemski-tyrese-haliburton-discussionnba-playoffs/
+
+**Beyoncé’s Cowboy Carter Tour Remixes American History, and Her Own**\
+`The superstar’s new stage show turns reclamation, personal and musical, into joyful extravaganza.`\
+https://nytimes.com/2025/04/29/arts/music/beyonce-cowboy-carter-tour-review.html
+
 **Jeff Van Gundy has been the Clippers' not-so-secret weapon on defense all season long**\
 `LA's rise up the defensive ranks begs the question: Could Van Gundy be a head coach again after nearly 20 years?`\
 https://nytimes.com/athletic/6319033/2025/04/29/jeff-van-gundy-clippers-defense-nba-playoffs/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6320300/2025/04/29/shedeur-sanders-browns-draft-int
 **How to watch the Diamondbacks at Mets series: Corbin Burnes to duel Kodai Senga in Queens**\
 `The New York Mets host the Arizona Diamondbacks, who actually have a better record on the road than at home thus far.`\
 https://nytimes.com/athletic/6318930/2025/04/29/mets-diamondbacks-lindor-alonso-burnes-carroll-how-to-watch/
-
-**U.S. Navy Jet Sinks Into Red Sea After Falling Off Aircraft Carrier**\
-`One sailor sustained minor injuries, according to the Navy, which is investigating the incident.`\
-https://nytimes.com/2025/04/29/world/middleeast/us-navy-fighter-jet-houthis-red-sea.html
-
-**Bill Belichick's awkward CBS interview shows something's changed about the old coach**\
-`Belichick's 24-year-old girlfriend “was a constant presence” during interview. Is the storied micromanager being micromanaged?`\
-https://nytimes.com/athletic/6319616/2025/04/29/belichick-cbs-interview-girlfriend-jordon-unc/
-
-**Liverpool’s Gakpo could face FA action for shirt with religious message**\
-`The Dutchman's “I belong to Jesus” vest drew comparisons to one worn by Kaka in 2007.`\
-https://nytimes.com/athletic/6319970/2025/04/29/cody-gakpo-liverpool-religious-message/
 
