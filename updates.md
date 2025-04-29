@@ -1,3 +1,7 @@
+**U.S. Navy Jet Sinks Into Red Sea After Falling Off Aircraft Carrier**\
+`One sailor sustained minor injuries, according to the Navy, which is investigating the incident.`\
+https://nytimes.com/2025/04/29/world/middleeast/us-navy-fighter-jet-houthis-red-sea.html
+
 **Bill Belichick's awkward CBS interview shows something's changed about the old coach**\
 `Belichick's 24-year-old girlfriend “was a constant presence” during interview. Is the storied micromanager being micromanaged?`\
 https://nytimes.com/athletic/6319616/2025/04/29/belichick-cbs-interview-girlfriend-jordon-unc/

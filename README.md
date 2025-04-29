@@ -1,3 +1,11 @@
+**NFL team exec: Shedeur Sanders treated pre-draft visits ‘as recruiting trips, not job interviews’**\
+`The Colorado quarterback was eventually taken in the fifth round of last week’s draft.`\
+https://nytimes.com/athletic/6320300/2025/04/29/shedeur-sanders-browns-draft-interviews/
+
+**How to watch the Diamondbacks at Mets series: Corbin Burnes to duel Kodai Senga in Queens**\
+`The New York Mets host the Arizona Diamondbacks, who actually have a better record on the road than at home thus far.`\
+https://nytimes.com/athletic/6318930/2025/04/29/mets-diamondbacks-lindor-alonso-burnes-carroll-how-to-watch/
+
 **U.S. Navy Jet Sinks Into Red Sea After Falling Off Aircraft Carrier**\
 `One sailor sustained minor injuries, according to the Navy, which is investigating the incident.`\
 https://nytimes.com/2025/04/29/world/middleeast/us-navy-fighter-jet-houthis-red-sea.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/29/style/street-style-look-business-casual-bomber-ja
 **Adidas Warns Sneakers Will Cost More in the U.S. as Trump’s Tariffs Take Effect**\
 `The chief of the German sportswear giant said that unpredictability surrounding the tariffs prevented the company from issuing a full-year forecast, but he predicted a price increase for American consumers.`\
 https://nytimes.com/2025/04/29/business/trump-tariffs-adidas-shoes.html
-
-**Yamal on Messi parallels: 'I don't want to compare me with anyone'**\
-`“I admire Messi a lot, so I don’t want to compare myself with the best player in football's history,” Yamal added on Tuesday.`\
-https://nytimes.com/athletic/6320291/2025/04/29/lamine-yamal-messi-barcelona/
-
-**Trump’s 100-Day Report Card**\
-`Market chaos and economic uncertainty has been a feature of the president’s first few months back in office. DealBook breaks down the milestones, and what to expect next.`\
-https://nytimes.com/2025/04/29/business/dealbook/trump-100-days-economy.html
 
