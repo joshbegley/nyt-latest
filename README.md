@@ -1,3 +1,7 @@
+**What Premier League promotion means for Leeds United: Budgets, player futures and revamping Elland Road**\
+`Promotion back to England's top flight will give Leeds plenty of autonomy in how they reshape their own future this summer and beyond`\
+https://nytimes.com/athletic/6319789/2025/04/29/leeds-united-promotion-elland-road-budget-players/
+
 **Miami Heat's season goes down in flames, but they enjoyed the journey to mediocrity**\
 `The Miami Heat suffered the most lopsided series defeat ever. But they explained why the journey was worth the pain.`\
 https://nytimes.com/athletic/6319738/2025/04/29/miami-heat-season-goes-down-in-flames/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6319626/2025/04/29/lightning-panthers-nhl-playoffs-
 **Stars push Avalanche to the brink with commanding Game 5 win: Takeaways**\
 `Dallas defeated Colorado 6-2 on Monday night to send the series back to Denver with the Avs on the verge of elimination.`\
 https://nytimes.com/athletic/6319456/2025/04/29/avalanche-stars-nhl-playoffs-2025-game-5-takeaways/
-
-**Inside Newcastle Q&A: Transfer policy, Guehi interest - and predicting the run-in**\
-`Chris Waugh answers your questions on transfers, the Champions League and William Osula`\
-https://nytimes.com/athletic/6317179/2025/04/29/inside-newcastle-transfers-guehi-champions-league/
 
