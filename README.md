@@ -1,42 +1,40 @@
-**Deporting Americans?**\
-`Plus, the latest on the rising tensions between India and Pakistan.`\
-https://nytimes.com/2025/04/29/briefing/us-citizens-deportations.html
+**Rosenthal: Tigers, Mariners succeeding with patchwork lineups, Cubs thriving at Wrigley**\
+`Plus notes on RBI-machine Wilmer Flores and Chandler Simpson, who might be the fastest player in professional baseball.`\
+https://nytimes.com/athletic/6319468/2025/04/29/tigers-mariners-success-cubs-wrigley-field-wilmer-flores/
 
-**Champions League semi-final tips: Anytime scorer market ripe for Barca vs Inter**\
-`Sam Tighe explores the best bets around Barcelona’s Champions League semi-final first-leg clash against Internazionale. 
+**Which NHL coach opening can sell a shot at the Stanley Cup soonest? Examining the 7 jobs**\
+`Just as the seven NHL teams with coaching vacancies are evaluating their options, the most-coveted coaches will be analyzing theirs, too.`\
+https://nytimes.com/athletic/6318366/2025/04/29/nhl-head-coach-openings/
 
-`\
-https://nytimes.com/athletic/6320034/2025/04/29/champions-league-semi-final-barcelona-vs-inter-milan-betting-tips-predictions/
+**Daulton Varsho’s distinct approach is exactly what the Blue Jays need**\
+`Varsho, who should be activated before Toronto's series against Boston, should bring much-needed pull-side power to the offense.`\
+https://nytimes.com/athletic/6318748/2025/04/29/blue-jays-daulton-varsho-approach/
 
-**Trial Opens for 2 Men Accused of Felling Sycamore Gap Tree**\
-`The men have pleaded not guilty to charges of criminal destruction. The cutting down of the tree, an icon in Britain, stunned people across the world in 2023.`\
-https://nytimes.com/2025/04/29/world/europe/uk-trial-sycamore-gap-tree-plea.html
+**MLB Draft scouting: Notes on Riley Quick, Henry Ford, as well as some top names for 2026**\
+`Quick may not be a top-15 pick but looks like a first-rounder, while Ford's production dip could make him a second-round bargain, and more.`\
+https://nytimes.com/athletic/6318106/2025/04/29/mlb-draft-scouting-riley-quick-henry-ford-justin-lebron/
 
-**G.M. Withdraws Profit Forecast as Trump Tariffs Take a Toll**\
-`General Motors also said its profit in the first three months of the year fell 7 percent from a year earlier.`\
-https://nytimes.com/2025/04/29/business/general-motors-profit-trump-tariffs.html
+**Tracking team decision on fifth-year player options for '22 first rounders**\
+`The deadline for teams to pick up or decline fifth-year options on first-round picks from the 2022 draft is May 1.`\
+https://nytimes.com/athletic/6317969/2025/04/29/nfl-fifth-year-player-options-tracker/
 
-**The Pulse: A playoff troll gets owned, plus a 2026 mock**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6317901/2025/04/29/jimmy-butler-warriors-the-pulse/
+**Damian Lillard's torn Achilles sends a wave of sadness through Portland: 'We all still care'**\
+`Nowhere outside of Milwaukee was Damian Lillard’s injury felt more than in Portland, which still holds onto its former star tightly.`\
+https://nytimes.com/athletic/6319348/2025/04/29/damian-lillard-achilles-injury-blazers-legacy/
 
-**Senna helmet from when he rescued F1 rival sells for record price**\
-`The record for a race-worn helmet sale was previously held by one worn by Charles Leclerc, which was auctioned in June 2023.`\
-https://nytimes.com/athletic/6319961/2025/04/29/ayrton-senna-f1-helmet-auction/
+**An underrated NBA defensive move popularized by a Pistons great: Pulling the chair**\
+`“I shoulda coined that phrase and got money every time I hear it,” Mahorn said of his masterful style of defense with a fun name.`\
+https://nytimes.com/athletic/6310989/2025/04/29/an-underrated-nba-defensive-move-popularized-by-a-pistons-great-pulling-the-chair/
 
-**Bears post-NFL Draft depth chart: Where do the rookies fit on the roster?**\
-`The Bears' roster is better, deeper and faster after their offseason additions. We break it down position by position.`\
-https://nytimes.com/athletic/6318544/2025/04/29/bears-depth-chart-post-nfl-draft/
+**Coffee with Friedkin and help from Mavericks media team - how Kidd became part of Everton**\
+`The NBA legend is now part of Everton's ownership group. Will that help the club build their brand in the U.S?`\
+https://nytimes.com/athletic/6317926/2025/04/29/jason-kidd-everton-dallas-mavericks-nba/
 
-**Madrid Residents Cheer and Clap as Power Returns**\
-`Residents of a neighborhood plunged largely into darkness by a widespread electricity blackout celebrated on Monday evening as the lights turned back on. The national power company in Spain said early Tuesday that nearly all power had been restored nationwide, ending the 18-hour outage.`\
-https://nytimes.com/video/world/europe/100000010136097/madrid-residents-cheer-as-power-returns.html
+**Caitlin Clark, Indiana Fever embrace 'mama bear' DeWanna Bonner: 'I want to win for her'**\
+`Bonner's veteran presence is already a plus for Clark as training camp begins.`\
+https://nytimes.com/athletic/6319342/2025/04/29/caitlin-clark-indiana-fever-dewanna-bonner/
 
-**NHL playoffs daily: Lightning beat Panthers, Stars take control of series**\
-`The Panthers will defend their home court in Game 5 on Wednesday and the Stars will travel to Colorado for Game 6 on Thursday.`\
-https://nytimes.com/athletic/6319434/2025/04/29/nhl-playoffs-daily-lightning-panthers-stars-avalanche/
-
-**The film doesn’t lie: How Cubs are off and running with adaptable offense for Wrigley Field**\
-`The team is catering to its baseball gym rats and acknowledging Wrigley Field’s unpredictable park factors.`\
-https://nytimes.com/athletic/6319240/2025/04/29/cubs-adaptable-offense-wrigley-field/
+**What will decide Oilers vs. Kings series? Keys to victory for both teams**\
+`The first four games of the opening-round series between the Oilers and Kings have featured a little bit of everything.`\
+https://nytimes.com/athletic/6319445/2025/04/29/oilers-kings-nhl-playoffs-series-stats/
 
