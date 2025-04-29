@@ -1,5 +1,9 @@
+**Here’s the latest.**\
+`By Matina Stevis-Gridneff`\
+https://nytimes.com/live/2025/04/28/world/canada-election/heres-the-latest
+
 **Panthers complete late comeback, push Lightning to brink of elimination: Takeaways**\
-`Florida pulled off the late rally, scoring twice in 11 seconds, to take a 3-1 series lead over Tampa Bay. 
+`Florida pulled off the late rally, scoring twice in 11 seconds to take a 3-1 series lead over Tampa Bay. 
 `\
 https://nytimes.com/athletic/6319274/2025/04/28/panthers-lightning-nhl-playoffs-2025-game-4-takeaways/
 
@@ -34,8 +38,4 @@ https://nytimes.com/interactive/2025/04/28/us/trump-100-days-actions.html
 **Charlie Dixon, Fox Sports exec accused of sexual battery, is out at network**\
 `A Fox Sports spokesperson confirmed that Dixon, who is a co-defendant in two lawsuits, is no longer with network.`\
 https://nytimes.com/athletic/6319374/2025/04/28/charlie-dixon-out-fox-sports/
-
-**Lightning's Brandon Hagel injured in Game 4 after hit from Panthers' Aaron Ekblad**\
-`No penalty was called after Ekblad threw a flying forearm into the head of Hagel, who has been a villainous figure in this series.`\
-https://nytimes.com/athletic/6319375/2025/04/28/lightning-panthers-hagel-ekblad-nhl-playoffs/
 

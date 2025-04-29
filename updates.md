@@ -1,3 +1,12 @@
+**Here’s the latest.**\
+`By Matina Stevis-Gridneff`\
+https://nytimes.com/live/2025/04/28/world/canada-election/heres-the-latest
+
+**Panthers complete late comeback, push Lightning to brink of elimination: Takeaways**\
+`Florida pulled off the late rally, scoring twice in 11 seconds to take a 3-1 series lead over Tampa Bay. 
+`\
+https://nytimes.com/athletic/6319274/2025/04/28/panthers-lightning-nhl-playoffs-2025-game-4-takeaways/
+
 **Panthers complete late comeback, push Lightning to brink of elimination: Takeaways**\
 `Florida pulled off the late rally, scoring twice in 11 seconds, to take a 3-1 series lead over Tampa Bay. 
 `\
