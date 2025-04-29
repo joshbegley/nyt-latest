@@ -4,7 +4,7 @@ https://nytimes.com/athletic/6321765/2025/04/29/vikings-andrew-van-ginkel-extens
 
 **Canada’s Liberals Narrowly Miss Out on Majority in Parliament**\
 `Final results from Monday’s crucial election showed Mark Carney’s party had secured 169 of 343 seats and would need help from other parties to pass laws.`\
-https://nytimes.com/2025/04/29/world/canada/canada-election-results-2025.html
+https://nytimes.com/2025/04/29/world/canada/carney-liberals-canada-election-results.html
 
 **Hegseth Cuts Program Encouraging Women to Take Roles in National Security**\
 `The defense secretary said the Women, Peace and Security program distracted from the core task of “war-fighting” and that the Pentagon would no longer participate in it.`\
