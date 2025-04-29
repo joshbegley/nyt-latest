@@ -1,3 +1,15 @@
+**Where is Nikita Kucherov? How Panthers silenced Lightning's star**\
+`Kucherov, the NHL's leading scorer, is again being shut down by the defending champion Florida Panthers. `\
+https://nytimes.com/athletic/6320960/2025/04/29/lightning-panthers-nhl-playoffs-nikita-kucherov/
+
+**100 Days: Report Cards on Trump**\
+`Evaluating the president on the first 100 days of his second term. Also: State Department cuts; the end of The Conversation, with Gail Collins and Bret Stephens.`\
+https://nytimes.com/2025/04/29/opinion/trump-100-days.html
+
+**Scoop City: Categorizing teams post-draft**\
+`Inside: It's not too early for a 2026 Dane Brugler mock draft, right? That, plus post-draft power rankings and George Kittle's big payday. `\
+https://nytimes.com/athletic/6321241/2025/04/29/post-draft-nfl-rankings-reset-george-kittles-new-contract-dane-bruglers-2026-mock/
+
 **Canada Rejects Statehood**\
 `The anger in Canada is evident in many other ways; Canadians have always felt close to but distinct from Americans. A hostile America was something they never imagined.`\
 https://nytimes.com/live/2025/04/21/opinion/thepoint/canadian-election-trump-statehood-mark-carney
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/29/arts/mellon-foundation-humanities-endowment.html
 **Weinstein Accuser Tells Her Story of Coerced Sex for a Second Time**\
 `Miriam Haley, one of three women who prosecutors say were victims of Harvey Weinstein, testified at his retrial in Manhattan.`\
 https://nytimes.com/2025/04/29/nyregion/weinstein-haley-sex-abuse-testimony.html
-
-**A Killing in a Mosque Puts France’s View of Muslims Under Scrutiny**\
-`The victim was stabbed dozens of times last Friday while he was praying, and critics say officials were slow to call it a bias crime or show concern.`\
-https://nytimes.com/2025/04/29/world/europe/france-mosque-killing.html
-
-**Novak Djokovic withdraws from Italian Open**\
-`The 37-year-old is now unlikely to play a competitive match before the French Open begins in late May.`\
-https://nytimes.com/athletic/6321192/2025/04/29/novak-djokovic-injury-italian-open-withdraws/
-
-**T's May 18 Travel Issue**\
-``\
-https://nytimes.com/issue/t-magazine/2025/04/29/ts-may-18-travel-issue-2025
 

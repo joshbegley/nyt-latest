@@ -1,3 +1,15 @@
+**Where is Nikita Kucherov? How Panthers silenced Lightning's star**\
+`Kucherov, the NHL's leading scorer, is again being shut down by the defending champion Florida Panthers. `\
+https://nytimes.com/athletic/6320960/2025/04/29/lightning-panthers-nhl-playoffs-nikita-kucherov/
+
+**100 Days: Report Cards on Trump**\
+`Evaluating the president on the first 100 days of his second term. Also: State Department cuts; the end of The Conversation, with Gail Collins and Bret Stephens.`\
+https://nytimes.com/2025/04/29/opinion/trump-100-days.html
+
+**Scoop City: Categorizing teams post-draft**\
+`Inside: It's not too early for a 2026 Dane Brugler mock draft, right? That, plus post-draft power rankings and George Kittle's big payday. `\
+https://nytimes.com/athletic/6321241/2025/04/29/post-draft-nfl-rankings-reset-george-kittles-new-contract-dane-bruglers-2026-mock/
+
 **Canada Rejects Statehood**\
 `The anger in Canada is evident in many other ways; Canadians have always felt close to but distinct from Americans. A hostile America was something they never imagined.`\
 https://nytimes.com/live/2025/04/21/opinion/thepoint/canadian-election-trump-statehood-mark-carney
