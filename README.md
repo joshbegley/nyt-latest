@@ -1,3 +1,7 @@
+**Cardinal Who Threatened to Crash the Conclave Now Says He Won’t**\
+`The Vatican said that Francis had stripped a convicted cardinal, Angelo Becciu, of his right to vote for the next pope. Cardinal Becciu maintains his innocence but said he would sit this one out.`\
+https://nytimes.com/2025/04/29/world/europe/pope-conclave-cardinal-angelo-becciu.html
+
 **Cavaliers win NBA's most lopsided playoff series ever: Who and what stood out?**\
 `It’s almost hard to forget that the first two games in Cleveland were relatively close. But a healthy Cavs team pounced and earned a sweep.`\
 https://nytimes.com/athletic/6319694/2025/04/29/cavaliers-heat-nba-playoff-series/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/29/arts/oblivion-remastered-elder-scrolls.html
 **There Are Limits to What the Courts Can Do in the Face of Trump’s Legal Onslaught**\
 `The courts are caught in the middle of a crisis, but it’s not something they can adequately remedy.`\
 https://nytimes.com/2025/04/29/opinion/trump-rule-of-law-crisis.html
-
-**3 Takeaways From The Times’s Interview With Finland’s President**\
-`Alexander Stubb warned against subjecting Ukraine to “Finlandization,” called for more pressure on Russia’s leader to get a peace deal and said President Trump was running out of patience.`\
-https://nytimes.com/2025/04/29/world/europe/finland-president-interview-takeaways.html
 
