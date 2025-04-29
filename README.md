@@ -2,7 +2,7 @@
 `Gay, who made the Pro Bowl in 2021, was released by the Indianapolis Colts earlier this month.`\
 https://nytimes.com/athletic/6320796/2025/04/29/matt-gay-commanders-signing-zane-gonzalez-released/
 
-**Trump’s China Tariffs Are Already Jeopardizing Christmas**\
+**Retailers Fear Toy Shortages at Christmas as Tariffs Freeze Supply Chain**\
 `Toy makers and stores are freezing holiday orders, predicting shortages and higher prices. Some are consulting bankruptcy lawyers, fearing their firms won’t survive.`\
 https://nytimes.com/2025/04/29/business/trump-tariffs-christmas-china.html
 
