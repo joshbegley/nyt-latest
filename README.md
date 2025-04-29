@@ -1,3 +1,7 @@
+**Supreme Court Considers Suit Over F.B.I.’s Raid of the Wrong House**\
+`The legal questions were tangled, but some justices seemed incredulous at a government lawyer’s defense of a botched operation involving a battering ram and a flash-bang grenade.`\
+https://nytimes.com/2025/04/29/us/supreme-court-fbi-raid.html
+
 **Serving Up Satisfaction in the Kitchen and the Bedroom**\
 `“Câreme,” a new Apple TV+ series, is based on the life of a 19th-century society chef who delighted diners and lovers. It’s very French.`\
 https://nytimes.com/2025/04/29/arts/television/careme-french-chef.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6320796/2025/04/29/matt-gay-commanders-signing-zane
 **Retailers Fear Toy Shortages at Christmas as Tariffs Freeze Supply Chain**\
 `Toy makers and stores are freezing holiday orders, predicting shortages and higher prices. Some are consulting bankruptcy lawyers, fearing their firms won’t survive.`\
 https://nytimes.com/2025/04/29/business/trump-tariffs-christmas-china.html
-
-**Stuck in a Dentist’s Chair, and Other Blackout Tales From Spain and Portugal**\
-`Even as electricity was restored across Spain and Portugal after a daylong blackout, residents tried to make sense of 18 hours of the “insanity.”`\
-https://nytimes.com/2025/04/29/world/europe/spain-power-outage-blackout.html
 
