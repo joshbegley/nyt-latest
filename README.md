@@ -1,3 +1,7 @@
+**Cavaliers win NBA's most lopsided playoff series ever: Who and what stood out?**\
+`It’s almost hard to forget that the first two games in Cleveland were relatively close. But a healthy Cavs team pounced and earned a sweep.`\
+https://nytimes.com/athletic/6319694/2025/04/29/cavaliers-heat-nba-playoff-series/
+
 **The New York Times International Edition in Print for Wednesday, April 30, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/04/29/todays-new-york-times-international-edition
@@ -10,9 +14,9 @@ https://nytimes.com/2025/04/29/world/canada/canada-election-results-carney-trump
 `Russian forces launched 100 attack drones across Ukraine overnight, hours after President Vladimir V. Putin ordered a unilateral three-day cease-fire starting on May 8.`\
 https://nytimes.com/2025/04/29/world/europe/ukraine-russia-zelensky-putin-truce.html
 
-**Pierre Poilievre loses his parliamentary seat.**\
-`By Vjosa Isai`\
-https://nytimes.com/2025/04/28/world/canada/pierre-poilievre-loses-his-parliamentary-seat-the-cbc-says.html
+**Pierre Poilievre, Canada’s Opposition Leader, Loses Seat in Parliament**\
+`It was a stunning upset for the Conservative Party leader, who was first elected in 2004.`\
+https://nytimes.com/2025/04/28/world/canada/pierre-poilievre-canada-election-loss-parliament.html
 
 **Patriots 53-man roster projection: Vrabel changed the depth chart. Now who makes the team?**\
 `Whenever there’s a new coach, change tends to follow. So there will be some surprise cuts for the Patriots come the end of August.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/29/opinion/trump-rule-of-law-crisis.html
 **3 Takeaways From The Times’s Interview With Finland’s President**\
 `Alexander Stubb warned against subjecting Ukraine to “Finlandization,” called for more pressure on Russia’s leader to get a peace deal and said President Trump was running out of patience.`\
 https://nytimes.com/2025/04/29/world/europe/finland-president-interview-takeaways.html
-
-**A Russian Missile Blew Apart These Kyiv Apartments, and a Decades-Old Community**\
-`“It feels like I lost my whole extended family,” one survivor said.`\
-https://nytimes.com/2025/04/29/world/europe/kyiv-russia-missile-strike.html
 
