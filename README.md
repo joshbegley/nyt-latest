@@ -1,3 +1,11 @@
+**‘You See What’s Happening in America With Elon Musk? We Need the Same Thing Happening Here.’**\
+`Much of the British political class laughed at Nigel Farage in 2016. It isn’t laughing now.`\
+https://nytimes.com/2025/04/29/opinion/reform-uk-nigel-farage.html
+
+**The New York Times in Print for Tuesday, April 29, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/29/todays-new-york-times
+
 **Tuesday Briefing**\
 `Results from Canada’s election.`\
 https://nytimes.com/2025/04/29/briefing/canada-election-outage-spain.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6315379/2025/04/29/wembley-groundsman-secrets/
 **Predicting next season's Premier League title winners - far too early**\
 `Who is in the frame to win the 2025-26 title? With some heavy caveats, here are our predictions... `\
 https://nytimes.com/athletic/6296322/2025/04/29/premier-league-title-predictions-next-season/
-
-**Joao Neves interview: 'The less time they have to breathe, the better'**\
-`Joao Neves spoke exclusively to The Athletic ahead of their game against Arsenal`\
-https://nytimes.com/athletic/6317576/2025/04/29/joao-neves-interview-psg-arsenal/
-
-**Yamal, Saka, Kvaratskhelia: How I would take on the Champions League's elite wingers**\
-`The World Cup and Champions League winning full-back assesses the best wingers from this year's competition, and how he would stop them`\
-https://nytimes.com/athletic/6317291/2025/04/29/lahm-yamal-saka-kvaratskhelia-olise-vinicius-champions/
 
