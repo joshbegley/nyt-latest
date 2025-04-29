@@ -1,3 +1,7 @@
+**Joey Logano responds to Chipper Jones' criticism after Talladega tirade**\
+`The MLB Hall of Famer posted several critical messages after Logano's critical comments about teammate Austin Cindric at Talladega.`\
+https://nytimes.com/athletic/6321520/2025/04/29/joey-logano-responds-chipper-jones-talladega/
+
 **Concerning fantasy baseball 2025 performances from Roki Sasaki, Cody Bellinger and more**\
 `Michael Salfino looks at the widely-rostered fantasy baseball players who you should be very concerned about based on underlying metrics.`\
 https://nytimes.com/athletic/6321120/2025/04/29/fantasy-baseball-2025-roki-sasaki-cody-bellinger/
