@@ -1,3 +1,15 @@
+**Trump Travels to Michigan to Mark 100 Days in Office**\
+`President Trump is trying to show his commitment to U.S. manufacturing at a moment when many are growing dissatisfied with his economic agenda.`\
+https://nytimes.com/2025/04/29/us/politics/trump-michigan-100-days.html
+
+**The 6 Jets who need to step up the most against the Blues in Game 5**\
+`The Jets need to be better than they were on the road. Who needs to step up their game the most to take the power back from St. Louis?`\
+https://nytimes.com/athletic/6318568/2025/04/29/nhl-jets-blues-playoffs-hellebuyck/
+
+**Hobbled Jimmy Butler is 'back in a big way' as Warriors send Rockets to the brink**\
+`Butler struggled to move early as he returned from a hard fall in Game 2. Then he delivered late.`\
+https://nytimes.com/athletic/6319705/2025/04/29/jimmy-butler-warriors-game-4-playoffs/
+
 **Why Club World Cup's bonus money won't fully trickle down to MLS players**\
 `Participating clubs stand to make a good deal of money this summer, but there's a reason why players won't be reaping the benefits.`\
 https://nytimes.com/athletic/6318413/2025/04/29/mls-players-club-world-cup-bonuses-cba-language-miami-seattle/

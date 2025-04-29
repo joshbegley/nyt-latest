@@ -1,3 +1,15 @@
+**Trump Travels to Michigan to Mark 100 Days in Office**\
+`President Trump is trying to show his commitment to U.S. manufacturing at a moment when many are growing dissatisfied with his economic agenda.`\
+https://nytimes.com/2025/04/29/us/politics/trump-michigan-100-days.html
+
+**The 6 Jets who need to step up the most against the Blues in Game 5**\
+`The Jets need to be better than they were on the road. Who needs to step up their game the most to take the power back from St. Louis?`\
+https://nytimes.com/athletic/6318568/2025/04/29/nhl-jets-blues-playoffs-hellebuyck/
+
+**Hobbled Jimmy Butler is 'back in a big way' as Warriors send Rockets to the brink**\
+`Butler struggled to move early as he returned from a hard fall in Game 2. Then he delivered late.`\
+https://nytimes.com/athletic/6319705/2025/04/29/jimmy-butler-warriors-game-4-playoffs/
+
 **Why Club World Cup's bonus money won't fully trickle down to MLS players**\
 `Participating clubs stand to make a good deal of money this summer, but there's a reason why players won't be reaping the benefits.`\
 https://nytimes.com/athletic/6318413/2025/04/29/mls-players-club-world-cup-bonuses-cba-language-miami-seattle/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6319891/2025/04/29/rockets-jalen-green-playoffs-gam
 **Cargo That Set Off Blast at Iran Port Was Improperly Documented, Investigators Say**\
 `The death toll from the explosion rose to 70, as officials said the massive blast involved a shipment whose documentation obscured the nature of the substances it carried.`\
 https://nytimes.com/2025/04/29/world/europe/iran-port-explosion.html
-
-**George Kittle announces 4-year extension with 49ers, becomes highest-paid TE ever**\
-`Kittle, who led San Francisco in receiving yards in 2024, has been a six-time Pro Bowl selection over eight seasons. `\
-https://nytimes.com/athletic/6312439/2025/04/29/george-kittle-49ers-extension-tight-end/
-
-**The 15 key moments you may have forgotten in Liverpool's title win**\
-`From rivals' injuries to inspired substitutions and dramatic clearances, these 'minor' moments have been instrumental to this title win`\
-https://nytimes.com/athletic/6284146/2025/04/29/liverpool-title-win-key-moments/
-
-**Madrid’s Rudiger to miss around six weeks after knee surgery**\
-`The 32-year-old has been a staple of Carlo Ancelotti’s side this season, featuring 49 times in all competitions.`\
-https://nytimes.com/athletic/6320013/2025/04/29/real-madrid-rudiger-injury-update/
 
