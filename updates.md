@@ -1,3 +1,11 @@
+**Cavaliers win NBA's most lopsided playoff series ever: Who and what stood out?**\
+`It’s almost hard to forget that the first two games in Cleveland were relatively close. But a healthy Cavs team pounced and earned a sweep.`\
+https://nytimes.com/athletic/6319694/2025/04/29/cavaliers-heat-nba-playoff-series/
+
+**Pierre Poilievre, Canada’s Opposition Leader, Loses Seat in Parliament**\
+`It was a stunning upset for the Conservative Party leader, who was first elected in 2004.`\
+https://nytimes.com/2025/04/28/world/canada/pierre-poilievre-canada-election-loss-parliament.html
+
 **The New York Times International Edition in Print for Wednesday, April 30, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/04/29/todays-new-york-times-international-edition
