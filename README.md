@@ -1,3 +1,7 @@
+**Bill Belichick's awkward CBS interview shows something's changed about the old coach**\
+`Belichick's 24-year-old girlfriend “was a constant presence” during interview. Is the storied micromanager being micromanaged?`\
+https://nytimes.com/athletic/6319616/2025/04/29/belichick-cbs-interview-girlfriend-jordon-unc/
+
 **Liverpool’s Gakpo could face FA action for shirt with religious message**\
 `The Dutchman's “I belong to Jesus” vest drew comparisons to one worn by Kaka in 2007.`\
 https://nytimes.com/athletic/6319970/2025/04/29/cody-gakpo-liverpool-religious-message/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/29/business/dealbook/trump-100-days-economy.html
 **Weekly Student News Quiz: Kashmir, Canada, Labubu Dolls**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2025/04/29/learning/29StudentNewsQuiz.html
-
-**Canadian hockey player Matt Petgrave will not face criminal charges over death of Adam Johnson**\
-`Johnson died after being cut in the neck by a skate during a game in October 2023.`\
-https://nytimes.com/athletic/6320177/2025/04/29/adam-johnson-death-criminal-charges-matt-petgrave/
 
