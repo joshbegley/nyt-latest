@@ -1,3 +1,19 @@
+**Commanders shuffle kickers by signing Matt Gay, releasing Zane Gonzalez: Sources**\
+`Gay, who made the Pro Bowl in 2021, was released by the Indianapolis Colts earlier this month.`\
+https://nytimes.com/athletic/6320796/2025/04/29/matt-gay-commanders-signing-zane-gonzalez-released/
+
+**Retailers Fear Toy Shortages at Christmas as Tariffs Freeze Supply Chain**\
+`Toy makers and stores are freezing holiday orders, predicting shortages and higher prices. Some are consulting bankruptcy lawyers, fearing their firms won’t survive.`\
+https://nytimes.com/2025/04/29/business/trump-tariffs-christmas-china.html
+
+**Stuck in a Dentist’s Chair, and Other Blackout Tales From Spain and Portugal**\
+`Even as electricity was restored across Spain and Portugal after a daylong blackout, residents tried to make sense of 18 hours of the “insanity.”`\
+https://nytimes.com/2025/04/29/world/europe/spain-power-outage-blackout.html
+
+**Explained: Salah, Liverpool's Google Pixel deal and a divisive selfie**\
+`What seemed a moment of unscripted joy had a commercial side to it - so what are the rules and what has been the reaction?`\
+https://nytimes.com/athletic/6320625/2025/04/29/mohamed-salah-liverpool-selfie-google-pixel/
+
 **Stuck in a Dentist’s Chair, and Other Tales From Spain’s and Portugal’s Outage**\
 `Even as electricity was restored across Spain and Portugal after a daylong blackout, residents tried to make sense of 18 hours of the “insanity.”`\
 https://nytimes.com/2025/04/29/world/europe/spain-power-outage-blackout.html
