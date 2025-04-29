@@ -1,8 +1,12 @@
+**Mark Carney’s Liberals Win Canada’s Election. Here Are 4 Takeaways.**\
+`The former central banker successfully convinced voters that he was the right candidate to confront President Trump’s trade war and threats to annex the country.`\
+https://nytimes.com/2025/04/29/world/canada/canada-election-results-carney-trump-takeaways.html
+
 **Zelensky Calls Putin’s 72-Hour Truce Pledge ‘Manipulation’**\
 `Russian forces launched 100 attack drones across Ukraine overnight, hours after President Vladimir V. Putin ordered a unilateral three-day cease-fire starting on May 8.`\
 https://nytimes.com/2025/04/29/world/europe/ukraine-russia-zelensky-putin-truce.html
 
-**Pierre Poilievre loses his parliamentary seat, the CBC says.**\
+**Pierre Poilievre loses his parliamentary seat.**\
 `By Vjosa Isai`\
 https://nytimes.com/live/2025/04/28/world/canada-election/pierre-poilievre-loses-his-parliamentary-seat-the-cbc-says
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/29/world/europe/kyiv-russia-missile-strike.html
 **Finnish Leader Warns the Kremlin: ‘You Don’t Play With President Trump’**\
 `President Alexander Stubb of Finland, who has become an interlocutor in peace talks, says in an interview he doesn’t want Ukraine to suffer the same fate his country once endured.`\
 https://nytimes.com/2025/04/29/world/europe/finland-stubb-russia-trump-ukraine.html
-
-**What Are Your Favorite YouTube Videos?**\
-`As the video-streaming platform turns 20, look back at your own history with the platform and tell us about the videos you’ve enjoyed most.`\
-https://nytimes.com/2025/04/29/learning/what-are-your-favorite-youtube-videos.html
 
