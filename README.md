@@ -1,3 +1,11 @@
+**Alexander Zverev's defeat at Madrid Open caps disappointing 3 months**\
+`Despite multiple attempts, Zverev hardly closed the gap on No. 1 Jannik Sinner, who has been serving a 90-day suspension since February.`\
+https://nytimes.com/athletic/6321230/2025/04/29/alexander-zverev-loses-francisco-cerundolo/
+
+**Pittsburgh Funeral Home Tossed Pets’ Remains in Landfill, Prosecutors Say**\
+`Patrick Vereb is accused of taking over $650,0000 from customers who paid for dog and cat burial and cremation services between 2021 and 2024 in Western Pennsylvania.`\
+https://nytimes.com/2025/04/29/us/funeral-director-dogs-cats-bodies.html
+
 **Cuts to AmeriCorps Volunteer Programs Leave Communities Scrambling**\
 `The termination of hundreds of millions of dollars in federal grants from the agency has left its programs, which address an array of needs, in turmoil.`\
 https://nytimes.com/2025/04/29/us/politics/americorps-grant-cuts.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6320960/2025/04/29/lightning-panthers-nhl-playoffs-
 **100 Days: Report Cards on Trump**\
 `Evaluating the president on the first 100 days of his second term. Also: State Department cuts; the end of The Conversation, with Gail Collins and Bret Stephens.`\
 https://nytimes.com/2025/04/29/opinion/trump-100-days.html
-
-**Scoop City: Categorizing teams post-draft**\
-`Inside: It's not too early for a 2026 Dane Brugler mock draft, right? That, plus post-draft power rankings and George Kittle's big payday. `\
-https://nytimes.com/athletic/6321241/2025/04/29/post-draft-nfl-rankings-reset-george-kittles-new-contract-dane-bruglers-2026-mock/
-
-**Canada Rejects Statehood**\
-`The anger in Canada is evident in many other ways; Canadians have always felt close to but distinct from Americans. A hostile America was something they never imagined.`\
-https://nytimes.com/live/2025/04/21/opinion/thepoint/canadian-election-trump-statehood-mark-carney
 

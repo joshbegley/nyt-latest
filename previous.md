@@ -1,3 +1,11 @@
+**Cuts to AmeriCorps Volunteer Programs Leave Communities Scrambling**\
+`The termination of hundreds of millions of dollars in federal grants from the agency has left its programs, which address an array of needs, in turmoil.`\
+https://nytimes.com/2025/04/29/us/politics/americorps-grant-cuts.html
+
+**Ranking 2025 Kentucky Derby horse names: From Journalism to Tiztastic**\
+`The 2025 Kentucky Derby hopefuls have some rather strange names. We ranked our favorites, including Render Judgment and Chunk of Gold.`\
+https://nytimes.com/athletic/6299629/2025/04/29/kentucky-derby-horse-names-ranked/
+
 **Submit questions for Ben Standig's Commanders mailbag**\
 `Standig will consider your questions for his upcoming mailbag following Washington's five-pick 2025 NFL Draft. `\
 https://nytimes.com/athletic/6321414/2025/04/29/commanders-mailbag-2025-nfl-draft/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6321241/2025/04/29/post-draft-nfl-rankings-reset-ge
 **Canada Rejects Statehood**\
 `The anger in Canada is evident in many other ways; Canadians have always felt close to but distinct from Americans. A hostile America was something they never imagined.`\
 https://nytimes.com/live/2025/04/21/opinion/thepoint/canadian-election-trump-statehood-mark-carney
-
-**Jack Black Hits the Charts With Another Song From a Video Game Movie**\
-`“Steve’s Lava Chicken,” a 34-second song from “A Minecraft Movie,” made the Billboard Hot 100. He charted before with a song from “The Super Mario Bros. Movie.”`\
-https://nytimes.com/2025/04/29/arts/music/jack-black-steves-lava-chicken-minecraft-movie.html
-
-**U.K. Crossbow Attack Suspect Voiced Racist and Misogynist Views**\
-`The British police said a man accused of an attack on the weekend in Leeds died from a self-inflicted injury. Investigators are reviewing two Facebook accounts associated with him.`\
-https://nytimes.com/2025/04/29/world/europe/uk-crossbow-attack-suspect.html
 
