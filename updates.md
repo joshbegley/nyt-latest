@@ -1,3 +1,7 @@
+**What Premier League promotion means for Leeds United: Budgets, player futures and revamping Elland Road**\
+`Promotion back to England's top flight will give Leeds plenty of autonomy in how they reshape their own future this summer and beyond`\
+https://nytimes.com/athletic/6319789/2025/04/29/leeds-united-promotion-elland-road-budget-players/
+
 **Miami Heat's season goes down in flames, but they enjoyed the journey to mediocrity**\
 `The Miami Heat suffered the most lopsided series defeat ever. But they explained why the journey was worth the pain.`\
 https://nytimes.com/athletic/6319738/2025/04/29/miami-heat-season-goes-down-in-flames/
