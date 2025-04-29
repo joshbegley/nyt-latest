@@ -1,3 +1,11 @@
+**Why NASCAR teams said no to the 'run what you brung' All-Star Race idea**\
+`NASCAR proposed allowing teams to make modifications to the Next Gen car for this year's All-Star Race. Here's why the teams don't love it.`\
+https://nytimes.com/athletic/6320527/2025/04/29/nascar-all-star-race-next-gen-car-alterations/
+
+**A $10 T-Shirt Could Become a $24.50 T-Shirt as a Key Tariff Loophole Closes**\
+`Starting Friday, goods from China worth up to $800 will be subject to tariffs and more paperwork under new Trump administration rules.`\
+https://nytimes.com/2025/04/29/business/trump-tariffs-shein-temu-de-minimis.html
+
 **Supreme Court Considers Suit Over F.B.I.’s Raid of the Wrong House**\
 `The legal questions were tangled, but some justices seemed incredulous at a government lawyer’s defense of a botched operation involving a battering ram and a flash-bang grenade.`\
 https://nytimes.com/2025/04/29/us/supreme-court-fbi-raid.html
