@@ -1,4 +1,8 @@
-**A Killing in a Mosque Puts French View of Muslims Under Scrutiny**\
+**Weinstein Accuser Tells Her Story of Coerced Sex for a Second Time**\
+`Miriam Haley, one of three women who prosecutors say were victims of Harvey Weinstein, testified at his retrial in Manhattan.`\
+https://nytimes.com/2025/04/29/nyregion/weinstein-haley-sex-abuse-testimony.html
+
+**A Killing in a Mosque Puts France’s View of Muslims Under Scrutiny**\
 `The victim was stabbed dozens of times last Friday while he was praying, and critics say officials were slow to call it a bias crime or show concern.`\
 https://nytimes.com/2025/04/29/world/europe/france-mosque-killing.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6320633/2025/04/29/blues-tyler-tucker-nhl-playoffs/
 **Justice Dept. Firings Prompt a Torrent of Legal Fights**\
 `A series of dismissals by the Trump administration has flooded a little-known group of administrative judges who protect civil servants.`\
 https://nytimes.com/2025/04/29/us/politics/justice-department-trump-firings.html
-
-**Real Madrid's Mendy out for season with injury**\
-`Madrid are already considering adding a left-back this summer, with Milos Kerkez and Alvaro Carreras admired in the capital.`\
-https://nytimes.com/athletic/6321019/2025/04/29/real-madrid-ferland-mendy-injury/
 

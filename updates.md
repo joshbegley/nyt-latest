@@ -1,3 +1,15 @@
+**A Killing in a Mosque Puts French View of Muslims Under Scrutiny**\
+`The victim was stabbed dozens of times last Friday while he was praying, and critics say officials were slow to call it a bias crime or show concern.`\
+https://nytimes.com/2025/04/29/world/europe/france-mosque-killing.html
+
+**Novak Djokovic withdraws from Italian Open**\
+`The 37-year-old is now unlikely to play a competitive match before the French Open begins in late May.`\
+https://nytimes.com/athletic/6321192/2025/04/29/novak-djokovic-injury-italian-open-withdraws/
+
+**T's May 18 Travel Issue**\
+``\
+https://nytimes.com/issue/t-magazine/2025/04/29/ts-may-18-travel-issue-2025
+
 **Tom Brady, Derek Jeter, and Bobby Witt talk sports card business ventures**\
 `More and more athletes are investing in the sports card business, but Brady, Jeter, and Witt are three of the most prominent examples`\
 https://nytimes.com/athletic/6320571/2025/04/29/tom-brady-derek-jeter-bobby-witt-cards-business/
