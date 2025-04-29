@@ -1,3 +1,19 @@
+**‘You See What’s Happening in America With Elon Musk? We Need the Same Thing Happening Here.’**\
+`Much of the British political class laughed at Nigel Farage in 2016. It isn’t laughing now.`\
+https://nytimes.com/2025/04/29/opinion/reform-uk-nigel-farage.html
+
+**The New York Times in Print for Tuesday, April 29, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/29/todays-new-york-times
+
+**Tuesday Briefing**\
+`Results from Canada’s election.`\
+https://nytimes.com/2025/04/29/briefing/canada-election-outage-spain.html
+
+**Inconsistency, controversial hits and players running wild in NHL's Battle of Florida**\
+`A physical series is expected between the rival Panthers and Lightning, but the line between borderline infractions keeps getting blurrier.`\
+https://nytimes.com/athletic/6319626/2025/04/29/lightning-panthers-nhl-playoffs-aaron-ekblad/
+
 **Inconsistency, controversial hits and players running wild in NHL's Battle of Florida**\
 ` A physical series is expected between the rival Panthers and Lightning, but the line between borderline infractions keeps getting blurrier.`\
 https://nytimes.com/athletic/6319626/2025/04/29/lightning-panthers-nhl-playoffs-aaron-ekblad/
