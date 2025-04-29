@@ -1,3 +1,7 @@
+**India Accuses Pakistan of Supporting Terrorism. Here’s What We Know.**\
+`India renewed its claims after a deadly terror attack last week in Kashmir, a territory that it has long fought over with Pakistan.`\
+https://nytimes.com/2025/04/29/world/asia/india-pakistan-kashmir-terrorism.html
+
 **‘You See What’s Happening in America With Elon Musk? We Need the Same Thing Happening Here.’**\
 `Much of the British political class laughed at Nigel Farage in 2016. It isn’t laughing now.`\
 https://nytimes.com/2025/04/29/opinion/reform-uk-nigel-farage.html
