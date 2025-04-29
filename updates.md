@@ -1,3 +1,19 @@
+**Hegseth Cuts Program Encouraging Women to Take Roles in National Security**\
+`The defense secretary said the Women, Peace and Security program distracted from the core task of “war-fighting” and that the Pentagon would no longer participate in it.`\
+https://nytimes.com/2025/04/29/us/politics/pete-hegseth-women-peace-security.html
+
+**Ex-School Athletic Director Gets 4 Months in Jail for Racist Deepfake Recording**\
+`Dazhon Darien, 32, who worked at Pikesville High School in Baltimore County, pleaded guilty to disturbing school operations.`\
+https://nytimes.com/2025/04/29/technology/baltimore-pikesville-high-athletic-director-ai-deepfake.html
+
+**There Have Never Been 100 Days Like This**\
+`Also, New York banned smartphones in schools. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/04/29/briefing/trump-100-days-tariffs-cars.html
+
+**Pistons face tall task against Knicks but 'Rip' Hamilton has some advice**\
+`Win or lose, the Detroit legend likes what he sees from this iteration of the team: "It's a great group."`\
+https://nytimes.com/athletic/6321724/2025/04/29/richard-hamilton-pistons-knicks-game-5-nba-playoffs/
+
 **Trump Plan to Dismantle Head Start Is Illegal, Lawsuit Argues**\
 `The lawsuit argues that the Trump administration cannot reduce or eliminate Head Start, because the program is funded by Congress.`\
 https://nytimes.com/2025/04/29/us/politics/trump-head-start-lawsuit-aclu.html
