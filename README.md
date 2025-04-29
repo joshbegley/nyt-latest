@@ -1,8 +1,16 @@
+**What to Know About the 3 U.S. Citizen Children Removed to Honduras**\
+`Lawyers say the families wanted the children to remain in the United States. The Trump administration says the mothers requested the children’s removal. The dispute has constitutional stakes.`\
+https://nytimes.com/2025/04/28/us/politics/us-citizen-children-deported.html
+
+**U.S., Helped by Musk’s Team, Charges Iraqi With Voting Illegally in 2020**\
+`Akeel Abdul Jamiel, who appears to be a fan of President Trump, voted in upstate New York despite not being a citizen, officials said.`\
+https://nytimes.com/2025/04/28/nyregion/illegal-voting-iraqi-charged-doge.html
+
 **N.Y. Budget Deal Includes School Cellphone Ban and Public Safety Changes**\
 `Gov. Kathy Hochul announced a $254 billion state budget agreement that includes tax credits. A measure to restrict mask wearing was watered down.`\
 https://nytimes.com/2025/04/28/nyregion/budget-ny-hochul.html
 
-**4 Killed When a Car Crashes Into Illinois After-School Center**\
+**4 Killed When a Car Crashes Through an Illinois After-School Center**\
 `Several others were injured, the State Police said.`\
 https://nytimes.com/2025/04/28/us/child-care-crash-chatham-illinois.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6318992/2025/04/28/astros-jose-altuve-jeremy-pena-l
 **State Trial Begins Over Police Beating of Tyre Nichols in Memphis**\
 `After a mixed verdict in federal court, Tennessee prosecutors began presenting their case against three former Memphis officers charged with second-degree murder.`\
 https://nytimes.com/2025/04/28/us/politics/tyre-nichols-death-police-trial-memphis.html
-
-**House Passes Bill to Ban Sharing of Revenge Porn, Sending It to Trump**\
-`The Take It Down Act, which united a coalition of conservative and liberal lawmakers, criminalizes the nonconsensual sharing of sexually explicit images of others and requires companies to remove them.`\
-https://nytimes.com/2025/04/28/us/politics/house-revenge-porn-bill.html
-
-**I Can’t Believe Anyone Thinks Trump Actually Cares About Antisemitism**\
-`Jews should remember how Trump promised to “protect” L.G.B.T. citizens.`\
-https://nytimes.com/2025/04/28/opinion/trump-antisemitism-jews-israel.html
 
