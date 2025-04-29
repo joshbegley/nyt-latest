@@ -1,9 +1,17 @@
+**Yankees achieve rare historical feat with back-to-back-to-back homer barrage**\
+`New York also hit back-to-back-to-back home runs on March 29 against Milwaukee Brewers starter Nestor Cortes Jr. `\
+https://nytimes.com/athletic/6322112/2025/04/29/new-york-yankees-mlb-home-run-history/
+
+**Floridians Are Getting Glimpses of What Aggressive Immigration Enforcement Looks Like**\
+`Two new laws that were demanded by Gov. Ron DeSantis have entangled every level of government, unnerving residents who had long considered the state an immigrant haven.`\
+https://nytimes.com/2025/04/29/us/trump-desantis-florida-immigration-arrests.html
+
 **49ers add veteran D.J. Humphries to bring needed depth at offensive tackle**\
 `The 49ers had almost no depth at the position and the 31-year-old former Pro Bowl selection should compete at swing tackle. `\
 https://nytimes.com/athletic/6322080/2025/04/29/dj-humphries-49ers-offensive-tackle-free-agent/
 
 **Kennedy Advises New Parents to ‘Do Your Own Research’ on Vaccines**\
-`In an interview with Dr. Phil, the health secretary offered false information about vaccine oversight and revealed a lack of basic understanding of new drug approvals`\
+`In an interview with Dr. Phil, the health secretary offered false information about vaccine oversight and revealed a lack of basic understanding of new drug approvals.`\
 https://nytimes.com/2025/04/29/us/politics/kennedy-vaccines-research.html
 
 **Judge Orders Trump Officials to Disburse Funding for Radio Free Europe**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/29/theater/my-master-builder-ewan-mcgregor-review.ht
 **Trump administration: Penn violated Title IX with transgender swimmer**\
 `Administration says Penn can resolve the violations by stripping swimmer of national title.`\
 https://nytimes.com/athletic/6322044/2025/04/29/trump-penn-transgender-swimmer/
-
-**Paramount Board Clears Possible Path For Settling Trump’s ‘60 Minutes’ Lawsuit**\
-`Paramount’s interest in settling has dismayed CBS’s news division. The executive producer of “60 Minutes” abruptly resigned last week.`\
-https://nytimes.com/2025/04/29/business/media/paramount-cbs-60-minutes-trump-lawsuit.html
-
-**A New Study Raises Alarms About Plastics and Heart Disease. Here’s What to Know.**\
-`The paper linked phthalates, commonly found in plastics, to 350,000 deaths globally. But the data come with caveats.`\
-https://nytimes.com/2025/04/29/well/phthalates-heart-disease.html
 
