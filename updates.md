@@ -1,3 +1,15 @@
+**What to Know About the 3 U.S. Citizen Children Removed to Honduras**\
+`Lawyers say the families wanted the children to remain in the United States. The Trump administration says the mothers requested the children’s removal. The dispute has constitutional stakes.`\
+https://nytimes.com/2025/04/28/us/politics/us-citizen-children-deported.html
+
+**U.S., Helped by Musk’s Team, Charges Iraqi With Voting Illegally in 2020**\
+`Akeel Abdul Jamiel, who appears to be a fan of President Trump, voted in upstate New York despite not being a citizen, officials said.`\
+https://nytimes.com/2025/04/28/nyregion/illegal-voting-iraqi-charged-doge.html
+
+**4 Killed When a Car Crashes Through an Illinois After-School Center**\
+`Several others were injured, the State Police said.`\
+https://nytimes.com/2025/04/28/us/child-care-crash-chatham-illinois.html
+
 **N.Y. Budget Deal Includes School Cellphone Ban and Public Safety Changes**\
 `Gov. Kathy Hochul announced a $254 billion state budget agreement that includes tax credits. A measure to restrict mask wearing was watered down.`\
 https://nytimes.com/2025/04/28/nyregion/budget-ny-hochul.html
