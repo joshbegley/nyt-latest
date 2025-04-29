@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6319274/2025/04/28/panthers-lightning-nhl-playoffs-2025-game-4-takeaways/
 
+**Panthers complete late comeback, push Lightning to brink of elimination: Takeaways**\
+`Florida pulled off the late rally, scoring twice in 11 seconds, to take a 3-1 series lead over Tampa Bay. 
+`\
+https://nytimes.com/athletic/6319274/2025/04/28/panthers-lightning-nhl-playoffs-2025-game-4-takeaways/
+
 **The Poetry Challenge Day 2: How rhythm and rhyme make a poem memorable.**\
 `Today, we help you pay attention to the sound and feel of this week’s poem. Play our game to see how much you’ve already learned.`\
 https://nytimes.com/interactive/2025/books/edna-st-vincent-millay-rhythm.html
