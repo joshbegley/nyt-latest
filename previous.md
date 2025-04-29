@@ -1,40 +1,40 @@
-**Canada Elects Mark Carney as Prime Minister**\
-`Mark Carney of the Liberal Party spoke to supporters on Tuesday after being declared the winner of Canada’s election.`\
-https://nytimes.com/video/world/americas/100000010136027/canada-election-carney-takeaways.html
+**Oblivion Had Glitches Galore. Thankfully, They’re Still There.**\
+`The acclaimed 2006 role-playing game was known for its wonky artificial intelligence and character dialogue. A visually stunning remaster preserves what made it great.`\
+https://nytimes.com/2025/04/29/arts/oblivion-remastered-elder-scrolls.html
 
-**What to Know About Trump’s Crypto Company**\
-`President Trump’s cryptocurrency firm has eroded the boundary between private enterprise and government policy in ways without precedent in American history. David Yaffe-Bellany, a technology reporter for The New York Times covering the crypto industry, describes how it works.`\
-https://nytimes.com/video/us/politics/100000010115914/what-to-know-about-trumps-crypto-company.html
+**There Are Limits to What the Courts Can Do in the Face of Trump’s Legal Onslaught**\
+`The courts are caught in the middle of a crisis, but it’s not something they can adequately remedy.`\
+https://nytimes.com/2025/04/29/opinion/trump-rule-of-law-crisis.html
 
-**Microseasons**\
-`The Japanese recognize 72 “microseasons.” They give them names like “crickets chirp around the door” in October. How would you describe the tiny season you’re in now?`\
-https://nytimes.com/2025/04/29/learning/microseasons.html
+**3 Takeaways From The Times’s Interview With Finland’s President**\
+`Alexander Stubb warned against subjecting Ukraine to “Finlandization,” called for more pressure on Russia’s leader to get a peace deal and said President Trump was running out of patience.`\
+https://nytimes.com/2025/04/29/world/europe/finland-president-interview-takeaways.html
 
-**Want to Try Driving a City Bus, Hauling Trash or Building a Skyscraper?**\
-`A new exhibit at the New York Hall of Science celebrates cities by letting visitors get hands-on with urban infrastructure.`\
-https://nytimes.com/2025/04/29/nyregion/new-york-hall-science-infrastructure-exhibit.html
+**A Russian Missile Blew Apart These Kyiv Apartments, and a Decades-Old Community**\
+`“It feels like I lost my whole extended family,” one survivor said.`\
+https://nytimes.com/2025/04/29/world/europe/kyiv-russia-missile-strike.html
 
-**An Antitrust Hearing That’s Low on Drama Has High Stakes**\
-`Remedies to Google’s monopoly in internet search could change the future of the company. Read an interview with the Times reporter in the courthouse.`\
-https://nytimes.com/2025/04/29/insider/an-antitrust-hearing-thats-low-on-drama-has-high-stakes.html
+**Finnish Leader Warns the Kremlin: ‘You Don’t Play With President Trump’**\
+`President Alexander Stubb of Finland, who has become an interlocutor in peace talks, says in an interview he doesn’t want Ukraine to suffer the same fate his country once endured.`\
+https://nytimes.com/2025/04/29/world/europe/finland-stubb-russia-trump-ukraine.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/04/29/crosswords/spelling-bee-forum.html
+**What Are Your Favorite YouTube Videos?**\
+`As the video-streaming platform turns 20, look back at your own history with the platform and tell us about the videos you’ve enjoyed most.`\
+https://nytimes.com/2025/04/29/learning/what-are-your-favorite-youtube-videos.html
 
-**A Lawmaker Blasted a Hospital’s Super Bowl Ad. Then He Changed His Tune.**\
-`NYU Langone Health aired a commercial showcasing its doctors during the Super Bowl. A North Carolina congressman wondered if it was a waste of money.`\
-https://nytimes.com/2025/04/29/nyregion/nyu-langone-ad-super-bowl-congressman.html
+**Which Is More Dangerous, Trump Triumphant or Trump in Trouble?**\
+`The president, one psychologist says, is a perfect example of ‘authoritarian personality syndrome’`\
+https://nytimes.com/2025/04/29/opinion/trump-chaos-revenge-100-days.html
 
-**Late Night Pokes Fun at Trump’s Dismal Poll Numbers**\
-`Seth Meyers called Donald Trump “the most unpopular president since Kevin Spacey.” Even measles is polling better, according to Jimmy Fallon.`\
-https://nytimes.com/2025/04/29/arts/television/late-night-trump-approval-rating.html
+**Liked ‘Havoc’? Here are Five Movies to Stream Next**\
+`Gareth Evan’s action film starring Tom Hardy delivers a fire hose of action. If you want the punches to keep coming, we recommend these five movies.`\
+https://nytimes.com/2025/04/29/movies/havoc-action-movies-streaming.html
 
-**What promotion means for Leeds: Budgets, player futures and revamping Elland Road**\
-`Promotion back to England's top flight will give Leeds plenty of autonomy in how they reshape their own future this summer and beyond`\
-https://nytimes.com/athletic/6319789/2025/04/29/leeds-united-promotion-elland-road-budget-players/
+**N.Y.C. Museum Celebrates the Nation’s 250th Anniversary**\
+`The New York Historical plans six exhibitions, all featuring the city as a major player.`\
+https://nytimes.com/2025/04/29/nyregion/new-york-historical-250th-anniversary-united-states.html
 
-**Miami Heat's season goes down in flames, but they enjoyed the journey to mediocrity**\
-`The Miami Heat suffered the most lopsided series defeat ever. But they explained why the journey was worth the pain.`\
-https://nytimes.com/athletic/6319738/2025/04/29/miami-heat-season-goes-down-in-flames/
+**The Conductor Who Has the Ear of Red Sox and Classical Fans Alike**\
+`Keith Lockhart, who leads the Boston Pops, is a beloved figure in his city’s musical scene, and 30 years in he still has more to give.`\
+https://nytimes.com/2025/04/29/arts/music/keith-lockhart-boston-pops.html
 
