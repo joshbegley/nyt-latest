@@ -1,3 +1,7 @@
+**Quote of the Day: Terry Francona Can’t Stay Away**\
+`Quotation of the Day for Tuesday, April 29, 2025.`\
+https://nytimes.com/2025/04/28/pageoneplus/quote-of-the-day-terry-francona-cant-stay-away.html
+
 **The Panthers, the bad boys of the NHL, are 'very comfortable with who they are'**\
 `The indomitable, unforgiving Panthers have pushed the Lightning to the brink of elimination thanks to their signature style.`\
 https://nytimes.com/athletic/6319517/2025/04/28/panthers-lightning-aaron-ekblad-nhl-playoffs/
@@ -34,8 +38,4 @@ https://nytimes.com/live/2025/04/28/world/canada-election/heres-the-latest
 `Florida pulled off the late rally, scoring twice in 11 seconds to take a 3-1 series lead over Tampa Bay. 
 `\
 https://nytimes.com/athletic/6319274/2025/04/28/panthers-lightning-nhl-playoffs-2025-game-4-takeaways/
-
-**The Poetry Challenge Day 2: How rhythm and rhyme make a poem memorable.**\
-`Today, we help you pay attention to the sound and feel of this week’s poem. Play our game to see how much you’ve already learned.`\
-https://nytimes.com/interactive/2025/books/edna-st-vincent-millay-rhythm.html
 
