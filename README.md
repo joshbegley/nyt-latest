@@ -1,3 +1,7 @@
+**The Panthers, the bad boys of the NHL, are 'very comfortable with who they are'**\
+`The indomitable, unforgiving Panthers have pushed the Lightning to the brink of elimination thanks to their signature style.`\
+https://nytimes.com/athletic/6319517/2025/04/28/panthers-lightning-aaron-ekblad-nhl-playoffs/
+
 **Twins offense erupts against Guardians — and their bullpen catcher bulks up**\
 `Frank Nigro, who does 10 pushups in the bullpen for every run Minnesota scores, has been getting lots of exercise lately.`\
 https://nytimes.com/athletic/6319564/2025/04/28/twins-offense-erupts-against-guardians/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6319274/2025/04/28/panthers-lightning-nhl-playoffs-
 **The Poetry Challenge Day 2: How rhythm and rhyme make a poem memorable.**\
 `Today, we help you pay attention to the sound and feel of this week’s poem. Play our game to see how much you’ve already learned.`\
 https://nytimes.com/interactive/2025/books/edna-st-vincent-millay-rhythm.html
-
-**Lofty Tributary**\
-`Gene Louise de Vera makes his New York Times Crossword debut.`\
-https://nytimes.com/2025/04/28/crosswords/daily-puzzle-2025-04-29.html
 
