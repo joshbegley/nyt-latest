@@ -1,7 +1,3 @@
-**4 Killed in Car Crash in Illinois After-School Center**\
-`At least four others were injured, the State Police said.`\
-https://nytimes.com/2025/04/28/us/child-care-crash-chatham-illinois.html
-
 **Browns agree to deal with WR Diontae Johnson: Source**\
 `Cleveland will mark Johnson's third stop in the AFC North and his fifth team in 14 months. `\
 https://nytimes.com/athletic/6319230/2025/04/28/diontae-johnson-browns-deal-nfl/
@@ -37,4 +33,8 @@ https://nytimes.com/2025/04/28/opinion/trump-antisemitism-jews-israel.html
 **Yankees' Matt Blake says fans booing Devin Williams 'definitely doesn't help'**\
 `In place of Williams, Blake said he envisions Luke Weaver getting the majority of the save opportunities for the foreseeable future.`\
 https://nytimes.com/athletic/6319040/2025/04/28/new-york-yankees-devin-williams-fan-reaction/
+
+**What to watch in sports this week: Playoffs, Champions League and 151st Kentucky Derby**\
+`Here's what to look out for on the sports calendar, from nightly postseason action to big races in Miami and Churchill Downs.`\
+https://nytimes.com/athletic/6311090/2025/04/28/what-to-watch-in-sports-nba-playoffs-nhl-kentucky-derby-miami-grand-prix/
 
