@@ -1,3 +1,7 @@
+**Concerning fantasy baseball 2025 performances from Roki Sasaki, Cody Bellinger and more**\
+`Michael Salfino looks at the widely-rostered fantasy baseball players who you should be very concerned about based on underlying metrics.`\
+https://nytimes.com/athletic/6321120/2025/04/29/fantasy-baseball-2025-roki-sasaki-cody-bellinger/
+
 **Penske Shakes Up Leadership of South by Southwest**\
 `The festival’s longtime president is leaving the festival, as are about 10 others. Its owner, Penske Media, told staff members about the changes on Friday.`\
 https://nytimes.com/2025/04/29/business/media/penske-south-by-southwest-shakeup.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/29/nyregion/nyc-garage-collapse.html
 **Trump Fires Biden Appointees, Including Doug Emhoff, From Holocaust Museum**\
 `“Holocaust remembrance and education should never be politicized,” Mr. Emhoff said in reaction to the removal of him and senior Biden White House officials from the board that oversees the museum.`\
 https://nytimes.com/2025/04/29/us/politics/trump-doug-emhoff-holocaust-museum-biden.html
-
-**Alexander Zverev's defeat at Madrid Open ends halting pursuit of No. 1 ranking**\
-`Despite multiple attempts, Zverev hardly closed the gap on No. 1 Jannik Sinner, who has barred from tennis competition since February.`\
-https://nytimes.com/athletic/6321230/2025/04/29/alexander-zverev-loses-francisco-cerundolo/
 
