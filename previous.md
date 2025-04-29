@@ -1,3 +1,7 @@
+**Canada Rejects Statehood**\
+`The anger in Canada is evident in many other ways; Canadians have always felt close to but distinct from Americans. A hostile America was something they never imagined.`\
+https://nytimes.com/live/2025/04/21/opinion/thepoint/canadian-election-trump-statehood-mark-carney
+
 **Jack Black Hits the Charts With Another Song From a Video Game Movie**\
 `“Steve’s Lava Chicken,” a 34-second song from “A Minecraft Movie,” made the Billboard Hot 100. He charted before with a song from “The Super Mario Bros. Movie.”`\
 https://nytimes.com/2025/04/29/arts/music/jack-black-steves-lava-chicken-minecraft-movie.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6321192/2025/04/29/novak-djokovic-injury-italian-op
 **T's May 18 Travel Issue**\
 ``\
 https://nytimes.com/issue/t-magazine/2025/04/29/ts-may-18-travel-issue-2025
-
-**Tom Brady, Derek Jeter, and Bobby Witt talk sports card business ventures**\
-`More and more athletes are investing in the sports card business, but Brady, Jeter, and Witt are three of the most prominent examples`\
-https://nytimes.com/athletic/6320571/2025/04/29/tom-brady-derek-jeter-bobby-witt-cards-business/
 
