@@ -1,3 +1,7 @@
+**74 passes and one shot: Breaking down Inter's 2010 Mourinho masterclass vs Barcelona**\
+`As the two clubs prepare to meet at the semi-final stage again, we travel back 15 years to revisit a unique performance at the Camp Nou `\
+https://nytimes.com/athletic/6306106/2025/04/29/inter-barcelona-2010-champions-league/
+
 **A Contender for the Papacy in the Mold of Francis**\
 `Cardinal Luis Tagle of the Philippines is known as the “Asian Francis.” But he has been criticized for not being vocal enough about his country’s brutal drug war and clerical sex abuse.`\
 https://nytimes.com/2025/04/29/world/asia/luis-tagle-asian-pope.html
