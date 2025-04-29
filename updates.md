@@ -1,3 +1,11 @@
+**Canada Elects Mark Carney as Prime Minister**\
+`Mark Carney of the Liberal Party spoke to supporters on Tuesday after being declared the winner of Canada’s election.`\
+https://nytimes.com/video/world/americas/100000010136027/canada-election-carney-takeaways.html
+
+**What to Know About Trump’s Crypto Company**\
+`President Trump’s cryptocurrency firm has eroded the boundary between private enterprise and government policy in ways without precedent in American history. David Yaffe-Bellany, a technology reporter for The New York Times covering the crypto industry, describes how it works.`\
+https://nytimes.com/video/us/politics/100000010115914/what-to-know-about-trumps-crypto-company.html
+
 **What promotion means for Leeds: Budgets, player futures and revamping Elland Road**\
 `Promotion back to England's top flight will give Leeds plenty of autonomy in how they reshape their own future this summer and beyond`\
 https://nytimes.com/athletic/6319789/2025/04/29/leeds-united-promotion-elland-road-budget-players/
