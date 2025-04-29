@@ -1,3 +1,5 @@
+
+
 **U.S. Textile Industry Rejects Bessent’s Suggestion Boom Times Are Over**\
 `A textile trade association that has backed President Trump’s trade strategy took issue with Treasury Secretary Scott Bessent’s remark that emphasized “precision manufacturing” over clothing and fabrics.`\
 https://nytimes.com/2025/04/29/us/politics/scott-bessent-us-textile-industry.html
