@@ -1,3 +1,11 @@
+**Yamal on Messi parallels: 'I don't want to compare me with anyone'**\
+`“I admire Messi a lot, so I don’t want to compare myself with the best player in football's history,” Yamal added on Tuesday.`\
+https://nytimes.com/athletic/6320291/2025/04/29/lamine-yamal-messi-barcelona/
+
+**Trump’s 100-Day Report Card**\
+`Market chaos and economic uncertainty has been a feature of the president’s first few months back in office. DealBook breaks down the milestones, and what to expect next.`\
+https://nytimes.com/2025/04/29/business/dealbook/trump-100-days-economy.html
+
 **Weekly Student News Quiz: Kashmir, Canada, Labubu Dolls**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2025/04/29/learning/29StudentNewsQuiz.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6317579/2025/04/29/nhl-playoffs-blues-jets-two-day-
 **Pistons' revival, D.C. project raises old questions about paying for billionaires' sports palaces**\
 `Stadium districts bring in thousands of people and significant taxable income for a city and a state, but who benefits most?`\
 https://nytimes.com/athletic/6312377/2025/04/29/pistons-washington-dc-stadium-commanders/
-
-**Venture Firm Thrive Bets on Buying Firms That Can Benefit From A.I.**\
-`The investor is raising money to start and build companies infused with artificial intelligence, then use them to buy more.`\
-https://nytimes.com/2025/04/29/business/dealbook/thrive-holdings-rollup-ai.html
-
-**Trump Administration Live Updates: White House Says It Plans to Ease Impact of Car Tariffs**\
-``\
-https://nytimes.com/live/2025/04/29/us/trump-news
 
