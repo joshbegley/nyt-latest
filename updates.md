@@ -1,3 +1,7 @@
+**Lightning's Brandon Hagel leaves Game 4 after hit from Panthers' Aaron Ekblad**\
+`No penalty was called after Ekblad threw a flying forearm into the head of Hagel, who has been a villainous figure in this series.`\
+https://nytimes.com/athletic/6319375/2025/04/28/lightning-panthers-hagel-ekblad-nhl-playoffs/
+
 **Mexico to Give U.S. More Water From Their Shared Rivers**\
 `A joint agreement appeared to avert a threat by President Trump of tariffs and sanctions in a long-running dispute over water rights in the border region.`\
 https://nytimes.com/2025/04/28/us/politics/mexico-us-water.html

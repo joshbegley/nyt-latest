@@ -1,3 +1,7 @@
+**Lightning's Brandon Hagel leaves Game 4 after hit from Panthers' Aaron Ekblad**\
+`No penalty was called after Ekblad threw a flying forearm into the head of Hagel, who has been a villainous figure in this series.`\
+https://nytimes.com/athletic/6319375/2025/04/28/lightning-panthers-hagel-ekblad-nhl-playoffs/
+
 **Mexico to Give U.S. More Water From Their Shared Rivers**\
 `A joint agreement appeared to avert a threat by President Trump of tariffs and sanctions in a long-running dispute over water rights in the border region.`\
 https://nytimes.com/2025/04/28/us/politics/mexico-us-water.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/28/nyregion/illegal-voting-iraqi-charged-doge.html
 **N.Y. Budget Deal Includes School Cellphone Ban and Public Safety Changes**\
 `Gov. Kathy Hochul announced a $254 billion state budget agreement that includes tax credits. A measure to restrict mask wearing was watered down.`\
 https://nytimes.com/2025/04/28/nyregion/budget-ny-hochul.html
-
-**4 Killed When a Car Crashes Through an Illinois After-School Center**\
-`Several others were injured, the State Police said.`\
-https://nytimes.com/2025/04/28/us/child-care-crash-chatham-illinois.html
 
