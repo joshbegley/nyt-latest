@@ -1,3 +1,27 @@
+**After an Awkward Photo, Whitmer Coaxes a Win for Michigan Out of Trump**\
+`Weeks after she hid from the cameras in the Oval Office, Gretchen Whitmer welcomed the president to her state as he delivered the federal funding she had sought for an air base.`\
+https://nytimes.com/2025/04/29/us/politics/whitmer-trump-michigan-selfridge.html
+
+**Wednesday Briefing: 100 Days of Trump**\
+`Plus, advice on how to be happy.`\
+https://nytimes.com/2025/04/29/briefing/trump-100-carney-canada-election-vietnam-50-years.html
+
+**Judge Rejects Lawsuit With Dragon Logo, Calling it ‘Juvenile and Impertinent’**\
+`A lawyer said he had used the cartoon image of a dragon in a business suit as a logo for his firm, Dragon Lawyers, to symbolize “aggressive representation.”`\
+https://nytimes.com/2025/04/29/us/dragon-lawyer-lawsuit.html
+
+**The M.T.A. Gets $68 Billion in the State Budget. What Will Riders Get?**\
+`New York State has agreed to fully fund the transit authority’s five-year capital plan. Threats from the federal government could still lead to a shortfall.`\
+https://nytimes.com/2025/04/29/nyregion/mta-budget.html
+
+**Trump Is About to Steal My Friend’s Christmas — and Yours**\
+`A disappointed supporter reflects on the madness in the president’s method.`\
+https://nytimes.com/2025/04/29/opinion/tariffs-business-trump-voter.html
+
+**Technology glitches mar second day of testimony at Hockey Canada trial**\
+`The Crown showed jurors surveillance videos and at least one photo from social media during Tuesday's Hockey Canada trial proceedings.`\
+https://nytimes.com/athletic/6321232/2025/04/29/hockey-canada-sexual-assault-trial-surveillance-video/
+
 **The Briefing: Arsenal 0 PSG 1: Dembele, Donnarumma leave Arteta's side facing daunting Paris trip**\
 `Our writers break down the action from the Champions League semi-final first leg at the Emirates.`\
 https://nytimes.com/athletic/6320267/2025/04/29/arsenal-psg-champions-league/
