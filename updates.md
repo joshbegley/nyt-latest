@@ -1,3 +1,11 @@
+**Canadian hockey player Matt Petgrave will not face criminal charges over death of Adam Johnson**\
+`Johnson died after being cut in the neck by a skate during a game in October 2023.`\
+https://nytimes.com/athletic/6320177/2025/04/29/adam-johnson-death-criminal-charges-matt-petgrave/
+
+**Trump Administration Live Updates: White House Says it Plans to Ease Impact of Car Tariffs**\
+``\
+https://nytimes.com/live/2025/04/29/us/trump-news
+
 **Trump Travels to Michigan to Mark 100 Days in Office**\
 `President Trump is trying to show his commitment to U.S. manufacturing at a moment when many are growing dissatisfied with his economic agenda.`\
 https://nytimes.com/2025/04/29/us/politics/trump-michigan-100-days.html
