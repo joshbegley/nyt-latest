@@ -1,3 +1,27 @@
+**Trump Administration Eases Ban for U.S. Diplomats at Vietnam War Anniversary**\
+`The administration had said that no senior U.S. envoys could attend the events marking 50 years after the war’s end. On Tuesday, the U.S. consul general was seen at a reception for the anniversary.`\
+https://nytimes.com/2025/04/29/world/asia/vietnam-war-anniversary-us-diplomats.html
+
+**Trump’s 100 Days of Upending Climate Policy**\
+`In just a few months, President Trump’s moves have exceeded the worst fears of climate activists.`\
+https://nytimes.com/2025/04/29/climate/trumps-100-days-climate-policy.html
+
+**Wegmaniacs Now Have Their Own Sushi Restaurant**\
+`At Next Door, in the Manhattan Wegmans, sushi and more is served in a luxe Art Deco Space.`\
+https://nytimes.com/2025/04/29/dining/nyc-restaurant-news.html
+
+**How to watch Arsenal vs. Paris Saint-Germain in the Champions League semifinal**\
+`From 36 clubs down to the final four. The Champions League semis pits Arsenal against PSG, with the first leg in North London on Tuesday.`\
+https://nytimes.com/athletic/6319546/2025/04/29/arsenal-psg-champions-league-how-to-watch/
+
+**Manfred discussed Rose with Trump, says he'll make ruling on reinstatement**\
+`Prior to January, Rose most recently applied for reinstatement in 2015, an appeal rejected by Manfred in his first year as commissioner.`\
+https://nytimes.com/athletic/6320457/2025/04/29/rob-manfred-donald-trump-pete-rose-reinstatement/
+
+**Cale Makar, Quinn Hughes, Zach Werenski named NHL Norris Trophy finalists**\
+`Makar's 30 goals, 62 assists and 90 points this season make him the favorite to win for the second time.`\
+https://nytimes.com/athletic/6318745/2025/04/29/nhl-norris-trophy-finalists-2025-makar/
+
 **Leeds announce boardroom changes after promotion, Kinnear's departure**\
 `Robbie Evans has been named managing director and Adam Underwood named sporting director in two of the key promotions.`\
 https://nytimes.com/athletic/6320750/2025/04/29/leeds-robbie-evans-adam-underwood/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6320650/2025/04/29/jimmy-butler-steph-curry-warrior
 **Usyk signs photos of Dubois low blow at news conference ahead of title fight**\
 `"It’s gonna be a bloodbath. I’m going to put all the controversy and nonsense to rest," Dubois said at Tuesday's news conference.`\
 https://nytimes.com/athletic/6320329/2025/04/29/usyk-dubois-boxing-heavyweight-fight/
-
-**White House Assails Amazon, Citing Tariff Pricing Report**\
-`The White House press secretary, Karoline Leavitt, attacked the retail giant over a report that suggested Amazon would display the cost of tariff-related price increases. Amazon said it never considered doing so on its main website.`\
-https://nytimes.com/2025/04/29/us/politics/trump-amazon-tariffs-prices.html
-
-**Amazon adds TNT analyst Stan Van Gundy to next season's NBA game coverage**\
-`Van Gundy, 65, joins Ian Eagle on Prime Video’s game telecasts.`\
-https://nytimes.com/athletic/6320606/2025/04/29/amazon-stan-van-gundy-nba-analyst/
-
-**Snedeker, Ogilvy named captains for Presidents Cup 2026**\
-`Ogilvy led a restoration of Medinah No. 3, the Chicagoland course that'll host the next Presidents Cup.`\
-https://nytimes.com/athletic/6318869/2025/04/29/presidents-cup-snedeker-ogilvy-captains/
-
-**Things are looking up for the Raiders as new regime delivers a solid NFL Draft**\
-`Offensive playmakers, professional draft room, fast draft picks ... John Spytek and Pete Carroll are off to a good start in Las Vegas.`\
-https://nytimes.com/athletic/6319124/2025/04/29/nfl-draft-raiders-new-regime/
-
-**This Vegetarian Pad Thai Hits the Spot**\
-`Leave it to Hetty Lui McKinnon to make a satisfying meatless version of those lovable sweet-sour-salty noodles.`\
-https://nytimes.com/2025/04/29/dining/this-vegetarian-pad-thai-hits-the-spot.html
-
-**The Windup: Nerd out on these MLB leaderboards**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6319773/2025/04/29/mlb-leaderboards-sprint-speed-the-windup/
 
