@@ -1,3 +1,7 @@
+**Weekly Student News Quiz: Kashmir, Canada, Labubu Dolls**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/04/29/learning/29StudentNewsQuiz.html
+
 **Canadian hockey player Matt Petgrave will not face criminal charges over death of Adam Johnson**\
 `Johnson died after being cut in the neck by a skate during a game in October 2023.`\
 https://nytimes.com/athletic/6320177/2025/04/29/adam-johnson-death-criminal-charges-matt-petgrave/

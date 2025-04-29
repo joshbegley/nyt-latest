@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6320177/2025/04/29/adam-johnson-death-criminal-char
 https://nytimes.com/2025/04/29/us/politics/trump-michigan-100-days.html
 
 **The 6 Jets who need to step up the most against the Blues in Game 5**\
-`The Jets need to be better than they were on the road. Who needs to step up their game the most to take the power back from St. Louis?`\
+`The Jets need to be better than they were on the road. Who needs to step up their game the most against St. Louis?`\
 https://nytimes.com/athletic/6318568/2025/04/29/nhl-jets-blues-playoffs-hellebuyck/
 
 **Hobbled Jimmy Butler is 'back in a big way' as Warriors send Rockets to the brink**\
@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6312377/2025/04/29/pistons-washington-dc-stadium-co
 `The investor is raising money to start and build companies infused with artificial intelligence, then use them to buy more.`\
 https://nytimes.com/2025/04/29/business/dealbook/thrive-holdings-rollup-ai.html
 
-**Trump Administration Live Updates: White House Says it Plans to Ease Impact of Car Tariffs**\
+**Trump Administration Live Updates: White House Says It Plans to Ease Impact of Car Tariffs**\
 ``\
 https://nytimes.com/live/2025/04/29/us/trump-news
 

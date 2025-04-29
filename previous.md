@@ -1,3 +1,7 @@
+**Weekly Student News Quiz: Kashmir, Canada, Labubu Dolls**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/04/29/learning/29StudentNewsQuiz.html
+
 **Canadian hockey player Matt Petgrave will not face criminal charges over death of Adam Johnson**\
 `Johnson died after being cut in the neck by a skate during a game in October 2023.`\
 https://nytimes.com/athletic/6320177/2025/04/29/adam-johnson-death-criminal-charges-matt-petgrave/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/29/business/dealbook/thrive-holdings-rollup-ai.html
 **Trump Administration Live Updates: White House Says it Plans to Ease Impact of Car Tariffs**\
 ``\
 https://nytimes.com/live/2025/04/29/us/trump-news
-
-**Jalen Green has to get going if the Rockets are to stave off elimination by Warriors**\
-`Golden State has tailored its defensive game plan around neutralizing Green. Can he and Houston find a counter before it's too late?`\
-https://nytimes.com/athletic/6319891/2025/04/29/rockets-jalen-green-playoffs-game-4/
 
