@@ -1,3 +1,15 @@
+**The Briefing: Arsenal 0 PSG 1: Dembele, Donnarumma leave Arteta's side facing daunting Paris trip**\
+`Our writers break down the action from the Champions League semi-final first leg at the Emirates.`\
+https://nytimes.com/athletic/6320267/2025/04/29/arsenal-psg-champions-league/
+
+**Thompson: Draymond Green seals Warriors' Game 4 win with the kind of play you'll remember**\
+`You'll remember Draymond Green for a lot of things. One of them is plays like Monday's game-sealer against Alperen Şengün and the Rockets.`\
+https://nytimes.com/athletic/6321654/2025/04/29/draymond-green-warriors-rockets-game-4-alperen-sengun-stop/
+
+**More Than 50,000 Workers Go on Strike as Budget Woes Disrupt L.A. County**\
+`The nation’s most populous county was already juggling legal liabilities, wildfire costs and threats to federal funding. Now its largest union is holding a 48-hour strike.`\
+https://nytimes.com/2025/04/29/us/los-angeles-seiu-union-strike.html
+
 **Real Madrid's David Alaba suffers knee injury setback**\
 `Alaba joins Antonio Rudiger, Ferland Mendy, Eder Militao and Dani Carvajal among Madrid's defensive absentees.`\
 https://nytimes.com/athletic/6321709/2025/04/29/david-alaba-real-madrid-injury-update/
