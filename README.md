@@ -3,7 +3,7 @@
 https://nytimes.com/2025/04/28/nyregion/budget-ny-hochul.html
 
 **4 Killed When a Car Crashes Into Illinois After-School Center**\
-`At least four others were injured, the State Police said.`\
+`Several others were injured, the State Police said.`\
 https://nytimes.com/2025/04/28/us/child-care-crash-chatham-illinois.html
 
 **Browns agree to deal with WR Diontae Johnson: Source**\
