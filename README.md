@@ -1,3 +1,13 @@
+**Deporting Americans?**\
+`Plus, the latest on the rising tensions between India and Pakistan.`\
+https://nytimes.com/2025/04/29/briefing/us-citizens-deportations.html
+
+**Champions League semi-final tips: Anytime scorer market ripe for Barca vs Inter**\
+`Sam Tighe explores the best bets around Barcelona’s Champions League semi-final first-leg clash against Internazionale. 
+
+`\
+https://nytimes.com/athletic/6320034/2025/04/29/champions-league-semi-final-barcelona-vs-inter-milan-betting-tips-predictions/
+
 **Trial Opens for 2 Men Accused of Felling Sycamore Gap Tree**\
 `The men have pleaded not guilty to charges of criminal destruction. The cutting down of the tree, an icon in Britain, stunned people across the world in 2023.`\
 https://nytimes.com/2025/04/29/world/europe/uk-trial-sycamore-gap-tree-plea.html
@@ -29,12 +39,4 @@ https://nytimes.com/athletic/6319434/2025/04/29/nhl-playoffs-daily-lightning-pan
 **The film doesn’t lie: How Cubs are off and running with adaptable offense for Wrigley Field**\
 `The team is catering to its baseball gym rats and acknowledging Wrigley Field’s unpredictable park factors.`\
 https://nytimes.com/athletic/6319240/2025/04/29/cubs-adaptable-offense-wrigley-field/
-
-**‘Huge relief’ — Mikko Rantanen, usually a playoff monster, finally gets his goal: LeBrun**\
-`Rantanen is not the first star player to open the playoffs without a goal in four games. But this is Rantanen we’re talking about.`\
-https://nytimes.com/athletic/6319815/2025/04/29/mikko-rantanen-stars-nhl-playoffs-2025-goal/
-
-**The Housing Market Has New Rules. Realtors Are Evading Them.**\
-`A landmark settlement was expected to disrupt how real-estate agents are paid. This is how that didn’t happen.`\
-https://nytimes.com/2025/04/29/podcasts/the-daily/housing-market-realtors-nar.html
 
