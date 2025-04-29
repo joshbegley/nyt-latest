@@ -1,3 +1,7 @@
+**What Do You Want to Know About Student Loans?**\
+`Send us your questions about student loans. We’ll answer some in an upcoming newsletter.`\
+https://nytimes.com/2025/04/28/briefing/what-do-you-want-to-know-about-student-loans.html
+
 **NBA playoffs takeaways: Cavs sweep Heat, hand Miami another record defeat**\
 `The Cavaliers will play the winner of the Pacers-Bucks series, which Indiana currently leads 3-1.`\
 https://nytimes.com/athletic/6319284/2025/04/28/nba-playoffs-scores-results-cavaliers-heat-rockets-warriors-takeaways/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6319369/2025/04/28/texas-steve-sarkisian-arch-manni
 **Shedeur Sanders' Browns jersey is third-best seller among 2025 NFL draftees**\
 `Sanders is the only player not selected in the first round of the NFL Draft to make the list.`\
 https://nytimes.com/athletic/6319319/2025/04/28/shedeur-sanders-browns-jersey-sales/
-
-**How Trump’s Second Term Is Changing Power, Institutions and More**\
-`President Trump has wielded the presidency as an instrument of blunt power, ignoring the howls of outrage from Democrats and daring largely docile Republicans to challenge the limits of his authority.`\
-https://nytimes.com/interactive/2025/04/28/us/trump-100-days-actions.html
 
