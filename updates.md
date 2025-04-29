@@ -1,3 +1,11 @@
+**N.Y. Budget Deal Includes School Cellphone Ban and Public Safety Changes**\
+`Gov. Kathy Hochul announced a $254 billion state budget agreement that includes tax credits. A measure to restrict mask wearing was watered down.`\
+https://nytimes.com/2025/04/28/nyregion/budget-ny-hochul.html
+
+**4 Killed When a Car Crashes Into Illinois After-School Center**\
+`Several others were injured, the State Police said.`\
+https://nytimes.com/2025/04/28/us/child-care-crash-chatham-illinois.html
+
 **4 Killed in Car Crash in Illinois After-School Center**\
 `At least four others were injured, the State Police said.`\
 https://nytimes.com/2025/04/28/us/child-care-crash-chatham-illinois.html
