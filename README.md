@@ -1,3 +1,19 @@
+**49ers add veteran D.J. Humphries to bring needed depth at offensive tackle**\
+`The 49ers had almost no depth at the position and the 31-year-old former Pro Bowl selection should compete at swing tackle. `\
+https://nytimes.com/athletic/6322080/2025/04/29/dj-humphries-49ers-offensive-tackle-free-agent/
+
+**Kennedy Advises New Parents to ‘Do Your Own Research’ on Vaccines**\
+`In an interview with Dr. Phil, the health secretary offered false information about vaccine oversight and revealed a lack of basic understanding of new drug approvals`\
+https://nytimes.com/2025/04/29/us/politics/kennedy-vaccines-research.html
+
+**Judge Orders Trump Officials to Disburse Funding for Radio Free Europe**\
+`The news organization relies almost exclusively on congressional funding, which the Trump administration has held up for weeks.`\
+https://nytimes.com/2025/04/29/us/politics/radio-free-europe-funding-trump.html
+
+**Spurs' Stephon Castle wins NBA Rookie of the Year award**\
+`Castle made 47 starts for the Spurs and shot 43 percent from the field, averaging 14.7 points, 4.1 assists and 3.7 boards per game.`\
+https://nytimes.com/athletic/6321344/2025/04/29/nba-spurs-stephon-castle-rookie-of-the-year/
+
 **Panthers' Aaron Ekblad suspended 2 games for hit on Lightning's Brandon Hagel**\
 `Hagel will not be available for Game 5. Plus, Florida defenseman Niko Mikkola has been fined $5,000 for a boarding infraction in Game 4.`\
 https://nytimes.com/athletic/6320962/2025/04/29/panthers-aaron-ekblad-suspension-brandon-hagel/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/04/29/business/media/paramount-cbs-60-minutes-trump-law
 **A New Study Raises Alarms About Plastics and Heart Disease. Here’s What to Know.**\
 `The paper linked phthalates, commonly found in plastics, to 350,000 deaths globally. But the data come with caveats.`\
 https://nytimes.com/2025/04/29/well/phthalates-heart-disease.html
-
-**Hunter Renfrow signs with Panthers, returning after year off the field**\
-`Renfrow, 29, revealed he was diagnosed with ulcerative colitis, which caused his weight to drop to 150 pounds.`\
-https://nytimes.com/athletic/6321727/2025/04/29/hunter-renfrow-carolina-panthers-diagnosis-return/
-
-**The Six Triple Eight: Black, Female Soldiers Honored for World War II Success**\
-`The women were sent to Europe to clear a backlog of 17 million pieces of mail waiting to be sent to U.S. troops.`\
-https://nytimes.com/2025/04/29/us/congressional-medal-world-war-ii-black-women-battalion.html
-
-**Until Saturday: A tale of two five-stars**\
-`Until Saturday is The Athletic's college football newsletter.`\
-https://nytimes.com/athletic/6321989/2025/04/29/arch-manning-quinn-ewers-nfl-draft-until-saturday/
-
-**Andy Bey, Jazz Singer Renowned for His Vocal Range, Dies at 85**\
-`An admirer of Nat King Cole, he began as a child performer and as part of a family trio before emerging as a master of the American Songbook.`\
-https://nytimes.com/2025/04/29/arts/music/andy-bey-dead.html
 

@@ -1,3 +1,19 @@
+**Panthers' Aaron Ekblad suspended 2 games for hit on Lightning's Brandon Hagel**\
+`Hagel will not be available for Game 5. Plus, Florida defenseman Niko Mikkola has been fined $5,000 for a boarding infraction in Game 4.`\
+https://nytimes.com/athletic/6320962/2025/04/29/panthers-aaron-ekblad-suspension-brandon-hagel/
+
+**Humans’ Wounds Heal Much More Slowly Than Other Mammals’**\
+`We naked apes need Band-Aids, but shedding the fur that speeds healing in other mammals may have helped us evolve other abilities.`\
+https://nytimes.com/2025/04/29/science/wounds-healing-speed-humans.html
+
+**Ewan McGregor, Back Onstage, Is the Architect of His Own Folly**\
+`“My Master Builder,” a new take on the Ibsen classic, reduces a complex play to a tawdry marital melodrama.`\
+https://nytimes.com/2025/04/29/theater/my-master-builder-ewan-mcgregor-review.html
+
+**Trump administration: Penn violated Title IX with transgender swimmer**\
+`Administration says Penn can resolve the violations by stripping swimmer of national title.`\
+https://nytimes.com/athletic/6322044/2025/04/29/trump-penn-transgender-swimmer/
+
 **Paramount Board Clears Possible Path For Settling Trump’s ‘60 Minutes’ Lawsuit**\
 `Paramount’s interest in settling has dismayed CBS’s news division. The executive producer of “60 Minutes” abruptly resigned last week.`\
 https://nytimes.com/2025/04/29/business/media/paramount-cbs-60-minutes-trump-lawsuit.html
