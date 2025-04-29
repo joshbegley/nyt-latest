@@ -1,3 +1,7 @@
+**European Anti-Tourism Groups Plan June 15 Disruptions**\
+`Driven by rising rents, crowds and what many see as neighborhood degradation, activists are calling to continue the kinds of protests that erupted last summer.`\
+https://nytimes.com/2025/04/29/travel/tourism-protests-europe.html
+
 **U.S. Gas Industry Pushes Back on Trump Shipbuilding Rules**\
 `The main oil and gas trade group wants the Trump administration to reconsider maritime rules released in April that would require it to use some U.S. ships to transport liquefied natural gas.`\
 https://nytimes.com/2025/04/29/business/energy-environment/trump-lng-ships-china.html
