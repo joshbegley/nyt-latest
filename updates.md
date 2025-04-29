@@ -1,3 +1,11 @@
+**Corporation for Public Broadcasting Sues White House to Block Board Firings**\
+`The media organization said that the White House emailed three of the company’s five directors on Monday, telling them that their positions had been terminated.`\
+https://nytimes.com/2025/04/29/business/media/corporation-public-broadcasting-firings.html
+
+**‘Carême’ Is a Sexy Historical Kitchen Drama**\
+`The series, about a celebrity chef in Napoleonic France, has a loose relationship to historical facts. But that frees it to be spry and fun.`\
+https://nytimes.com/2025/04/29/arts/television/careme-apple-tv-plus.html
+
 **A Mother and Father Were Deported. What Happened to Their Toddler?**\
 `The Trump administration sent the mother of a 2-year-old to Venezuela and the father to a Salvadoran prison. Their daughter remains somewhere in the United States.`\
 https://nytimes.com/2025/04/29/world/americas/family-deported-trump-venezuela-el-salvador.html
