@@ -1,3 +1,15 @@
+**Trial Opens for 2 Men Accused of Felling Sycamore Gap Tree**\
+`The men have pleaded not guilty to charges of criminal destruction. The cutting down of the tree, an icon in Britain, stunned people across the world in 2023.`\
+https://nytimes.com/2025/04/29/world/europe/uk-trial-sycamore-gap-tree-plea.html
+
+**G.M. Withdraws Profit Forecast as Trump Tariffs Take a Toll**\
+`General Motors also said its profit in the first three months of the year fell 7 percent from a year earlier.`\
+https://nytimes.com/2025/04/29/business/general-motors-profit-trump-tariffs.html
+
+**The Pulse: A playoff troll gets owned, plus a 2026 mock**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6317901/2025/04/29/jimmy-butler-warriors-the-pulse/
+
 **Senna helmet from when he rescued F1 rival sells for record price**\
 `The record for a race-worn helmet sale was previously held by one worn by Charles Leclerc, which was auctioned in June 2023.`\
 https://nytimes.com/athletic/6319961/2025/04/29/ayrton-senna-f1-helmet-auction/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6319815/2025/04/29/mikko-rantanen-stars-nhl-playoff
 **The Housing Market Has New Rules. Realtors Are Evading Them.**\
 `A landmark settlement was expected to disrupt how real-estate agents are paid. This is how that didn’t happen.`\
 https://nytimes.com/2025/04/29/podcasts/the-daily/housing-market-realtors-nar.html
-
-**Matt McLain and the Reds are learning from Cincinnati's very important offseason additions**\
-`Gavin Lux, Austin Hays and Jose Trevino are catalysts in the Reds' five-game winning streak.`\
-https://nytimes.com/athletic/6319628/2025/04/29/cincinnati-reds-gavin-lux-veteran-additions/
-
-**The Secret Deals Behind Trump’s Crypto Firm, and a Revenge Porn Ban**\
-`Plus, let’s hear your best sea gull.`\
-https://nytimes.com/2025/04/29/podcasts/the-headlines/trump-crypto-revenge-porn-ban-seagull.html
-
-**Van Hollen Makes Personal Appeal to Trump to Return Deported Immigrant**\
-`The Maryland Democrat accused the president of “gross violations of the Constitution and due process rights” and demanded the return of an immigrant and Maryland resident imprisoned in El Salvador.`\
-https://nytimes.com/2025/04/29/us/politics/van-hollen-trump-abrego-garcia.html
 

@@ -1,3 +1,15 @@
+**Trial Opens for 2 Men Accused of Felling Sycamore Gap Tree**\
+`The men have pleaded not guilty to charges of criminal destruction. The cutting down of the tree, an icon in Britain, stunned people across the world in 2023.`\
+https://nytimes.com/2025/04/29/world/europe/uk-trial-sycamore-gap-tree-plea.html
+
+**G.M. Withdraws Profit Forecast as Trump Tariffs Take a Toll**\
+`General Motors also said its profit in the first three months of the year fell 7 percent from a year earlier.`\
+https://nytimes.com/2025/04/29/business/general-motors-profit-trump-tariffs.html
+
+**The Pulse: A playoff troll gets owned, plus a 2026 mock**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6317901/2025/04/29/jimmy-butler-warriors-the-pulse/
+
 **Senna helmet from when he rescued F1 rival sells for record price**\
 `The record for a race-worn helmet sale was previously held by one worn by Charles Leclerc, which was auctioned in June 2023.`\
 https://nytimes.com/athletic/6319961/2025/04/29/ayrton-senna-f1-helmet-auction/
