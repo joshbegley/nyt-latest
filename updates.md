@@ -1,3 +1,7 @@
+**Cardinal Who Threatened to Crash the Conclave Now Says He Won’t**\
+`The Vatican said that Francis had stripped a convicted cardinal, Angelo Becciu, of his right to vote for the next pope. Cardinal Becciu maintains his innocence but said he would sit this one out.`\
+https://nytimes.com/2025/04/29/world/europe/pope-conclave-cardinal-angelo-becciu.html
+
 **Cavaliers win NBA's most lopsided playoff series ever: Who and what stood out?**\
 `It’s almost hard to forget that the first two games in Cleveland were relatively close. But a healthy Cavs team pounced and earned a sweep.`\
 https://nytimes.com/athletic/6319694/2025/04/29/cavaliers-heat-nba-playoff-series/
