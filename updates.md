@@ -1,3 +1,15 @@
+**Yamal on Messi parallels: 'I don't want to compare me with anyone'**\
+`“I admire Messi a lot, so I don’t want to compare myself with the best player in football's history,” Yamal added on Tuesday.`\
+https://nytimes.com/athletic/6320291/2025/04/29/lamine-yamal-messi-barcelona/
+
+**Trump’s 100-Day Report Card**\
+`Market chaos and economic uncertainty has been a feature of the president’s first few months back in office. DealBook breaks down the milestones, and what to expect next.`\
+https://nytimes.com/2025/04/29/business/dealbook/trump-100-days-economy.html
+
+**The 6 Jets who need to step up the most against the Blues in Game 5**\
+`The Jets need to be better than they were on the road. Who needs to step up their game the most against St. Louis?`\
+https://nytimes.com/athletic/6318568/2025/04/29/nhl-jets-blues-playoffs-hellebuyck/
+
 **Weekly Student News Quiz: Kashmir, Canada, Labubu Dolls**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2025/04/29/learning/29StudentNewsQuiz.html
