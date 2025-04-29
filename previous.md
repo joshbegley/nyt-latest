@@ -18,13 +18,13 @@ https://nytimes.com/athletic/6319434/2025/04/29/nhl-playoffs-daily-lightning-pan
 `The team is catering to its baseball gym rats and acknowledging Wrigley Field’s unpredictable park factors.`\
 https://nytimes.com/athletic/6319240/2025/04/29/cubs-adaptable-offense-wrigley-field/
 
-**The Housing Market Has New Rules. Realtors Are Evading Them.**\
-`A landmark settlement was expected to disrupt how real-estate agents are paid. This is how that didn’t happen.`\
-https://nytimes.com/2025/04/29/podcasts/the-daily/housing-market-realtors-nar.html
-
 **‘Huge relief’ — Mikko Rantanen, usually a playoff monster, finally gets his goal: LeBrun**\
 `Rantanen is not the first star player to open the playoffs without a goal in four games. But this is Rantanen we’re talking about.`\
 https://nytimes.com/athletic/6319815/2025/04/29/mikko-rantanen-stars-nhl-playoffs-2025-goal/
+
+**The Housing Market Has New Rules. Realtors Are Evading Them.**\
+`A landmark settlement was expected to disrupt how real-estate agents are paid. This is how that didn’t happen.`\
+https://nytimes.com/2025/04/29/podcasts/the-daily/housing-market-realtors-nar.html
 
 **Matt McLain and the Reds are learning from Cincinnati's very important offseason additions**\
 `Gavin Lux, Austin Hays and Jose Trevino are catalysts in the Reds' five-game winning streak.`\
