@@ -1,3 +1,7 @@
+**Miami Heat's season goes down in flames, but they enjoyed the journey to mediocrity**\
+`The Miami Heat suffered the most lopsided series defeat ever. But they explained why the journey was worth the pain.`\
+https://nytimes.com/athletic/6319738/2025/04/29/miami-heat-season-goes-down-in-flames/
+
 **Power Is Largely Restored in Spain After Widespread Outage**\
 `Electricity returned to nearly all of Spain almost 18 hours after a blackout there and in neighboring Portugal. The cause of the outage was unclear.`\
 https://nytimes.com/2025/04/29/world/europe/power-outage-spain-portugal.html
