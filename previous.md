@@ -1,3 +1,11 @@
+**Inconsistency, controversial hits and players running wild in NHL's Battle of Florida**\
+` A physical series is expected between the rival Panthers and Lightning, but the line between borderline infractions keeps getting blurrier.`\
+https://nytimes.com/athletic/6319626/2025/04/29/lightning-panthers-nhl-playoffs-aaron-ekblad/
+
+**Stars push Avalanche to the brink with commanding Game 5 win: Takeaways**\
+`Dallas defeated Colorado 6-2 on Monday night to send the series back to Denver with the Avs on the verge of elimination.`\
+https://nytimes.com/athletic/6319456/2025/04/29/avalanche-stars-nhl-playoffs-2025-game-5-takeaways/
+
 **Inside Newcastle Q&A: Transfer policy, Guehi interest - and predicting the run-in**\
 `Chris Waugh answers your questions on transfers, the Champions League and William Osula`\
 https://nytimes.com/athletic/6317179/2025/04/29/inside-newcastle-transfers-guehi-champions-league/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6317291/2025/04/29/lahm-yamal-saka-kvaratskhelia-ol
 **Inside Liverpool's title party: A 3am finish, cigars and a bike ride**\
 `Arne Slot and his players celebrated long into the night after clinching their historic 20th league title`\
 https://nytimes.com/athletic/6317533/2025/04/29/inside-liverpools-premier-league-title-party-a-3am-finish-cigars-and-a-bike-ride/
-
-**Who makes our writers' best XIs from the four Champions League semi-finalists?**\
-`Our writers pore over the Arsenal, Barcelona, Inter and PSG squads and have the tough task of picking the best line-up for a fantasy team`\
-https://nytimes.com/athletic/6301204/2025/04/29/champions-league-semi-finals-combined-teams/
-
-**Arsenal and PSG are different beasts from their October match. What's changed?**\
-`Before tonight's semi-final first leg, we look back at Arsenal 2-0 win in the league phase to see how both sides have evolved`\
-https://nytimes.com/athletic/6308795/2025/04/29/arsenal-psg-tactical-preview-changes/
 

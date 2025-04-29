@@ -1,3 +1,11 @@
+**Inconsistency, controversial hits and players running wild in NHL's Battle of Florida**\
+` A physical series is expected between the rival Panthers and Lightning, but the line between borderline infractions keeps getting blurrier.`\
+https://nytimes.com/athletic/6319626/2025/04/29/lightning-panthers-nhl-playoffs-aaron-ekblad/
+
+**Stars push Avalanche to the brink with commanding Game 5 win: Takeaways**\
+`Dallas defeated Colorado 6-2 on Monday night to send the series back to Denver with the Avs on the verge of elimination.`\
+https://nytimes.com/athletic/6319456/2025/04/29/avalanche-stars-nhl-playoffs-2025-game-5-takeaways/
+
 **Inside Newcastle Q&A: Transfer policy, Guehi interest - and predicting the run-in**\
 `Chris Waugh answers your questions on transfers, the Champions League and William Osula`\
 https://nytimes.com/athletic/6317179/2025/04/29/inside-newcastle-transfers-guehi-champions-league/
