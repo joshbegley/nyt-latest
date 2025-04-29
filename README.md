@@ -1,3 +1,19 @@
+**Zelensky Calls Putin’s 72-Hour Truce Pledge ‘Manipulation’**\
+`Russian forces launched 100 attack drones across Ukraine overnight, hours after President Vladimir V. Putin ordered a unilateral three-day cease-fire starting on May 8.`\
+https://nytimes.com/2025/04/29/world/europe/ukraine-russia-zelensky-putin-truce.html
+
+**Pierre Poilievre loses his parliamentary seat, the CBC says.**\
+`By Vjosa Isai`\
+https://nytimes.com/live/2025/04/28/world/canada-election/pierre-poilievre-loses-his-parliamentary-seat-the-cbc-says
+
+**Patriots 53-man roster projection: Vrabel changed the depth chart. Now who makes the team?**\
+`Whenever there’s a new coach, change tends to follow. So there will be some surprise cuts for the Patriots come the end of August.`\
+https://nytimes.com/athletic/6315347/2025/04/29/patriots-nfl-draft-53-man-roster-projection/
+
+**Abundance and the Left**\
+`Saikat Chakrabarti and Zephyr Teachout offer their perspectives on why America struggles to build.`\
+https://nytimes.com/2025/04/29/opinion/ezra-klein-podcast-saikat-chakrabarti-zephyr-teachout.html
+
 **Oblivion Had Glitches Galore. Thankfully, They’re Still There.**\
 `The acclaimed 2006 role-playing game was known for its wonky artificial intelligence and character dialogue. A visually stunning remaster preserves what made it great.`\
 https://nytimes.com/2025/04/29/arts/oblivion-remastered-elder-scrolls.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/04/29/world/europe/finland-stubb-russia-trump-ukraine.h
 **What Are Your Favorite YouTube Videos?**\
 `As the video-streaming platform turns 20, look back at your own history with the platform and tell us about the videos you’ve enjoyed most.`\
 https://nytimes.com/2025/04/29/learning/what-are-your-favorite-youtube-videos.html
-
-**Which Is More Dangerous, Trump Triumphant or Trump in Trouble?**\
-`The president, one psychologist says, is a perfect example of ‘authoritarian personality syndrome’`\
-https://nytimes.com/2025/04/29/opinion/trump-chaos-revenge-100-days.html
-
-**Liked ‘Havoc’? Here are Five Movies to Stream Next**\
-`Gareth Evan’s action film starring Tom Hardy delivers a fire hose of action. If you want the punches to keep coming, we recommend these five movies.`\
-https://nytimes.com/2025/04/29/movies/havoc-action-movies-streaming.html
-
-**N.Y.C. Museum Celebrates the Nation’s 250th Anniversary**\
-`The New York Historical plans six exhibitions, all featuring the city as a major player.`\
-https://nytimes.com/2025/04/29/nyregion/new-york-historical-250th-anniversary-united-states.html
-
-**The Conductor Who Has the Ear of Red Sox and Classical Fans Alike**\
-`Keith Lockhart, who leads the Boston Pops, is a beloved figure in his city’s musical scene, and 30 years in he still has more to give.`\
-https://nytimes.com/2025/04/29/arts/music/keith-lockhart-boston-pops.html
 
