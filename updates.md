@@ -1,3 +1,11 @@
+**U.S. Gas Industry Pushes Back on Trump Shipbuilding Rules**\
+`The main oil and gas trade group wants the Trump administration to reconsider maritime rules released in April that would require it to use some U.S. ships to transport liquefied natural gas.`\
+https://nytimes.com/2025/04/29/business/energy-environment/trump-lng-ships-china.html
+
+**Watch: Thunder? Cavaliers? Which team had the most impressive NBA playoff sweep?**\
+`"The Athletic NBA Daily" discussed whether the Thunder or the Cavaliers had the most impressive first-round playoff performance.`\
+https://nytimes.com/athletic/6320172/2025/04/29/nba-daily-thunder-cavs-nba-playoff-sweep/
+
 **Trump Administration Eases Ban for U.S. Diplomats at Vietnam War Anniversary**\
 `The administration had said that no senior U.S. envoys could attend the events marking 50 years after the war’s end. On Tuesday, the U.S. consul general was seen at a reception for the anniversary.`\
 https://nytimes.com/2025/04/29/world/asia/vietnam-war-anniversary-us-diplomats.html

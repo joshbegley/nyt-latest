@@ -1,3 +1,7 @@
+**European Anti-Tourism Groups Plan June 15 Disruptions**\
+`Driven by rising rents, crowds and what many see as neighborhood degradation, activists are calling to continue the kinds of protests that erupted last summer.`\
+https://nytimes.com/2025/04/29/travel/tourism-protests-europe.html
+
 **U.S. Gas Industry Pushes Back on Trump Shipbuilding Rules**\
 `The main oil and gas trade group wants the Trump administration to reconsider maritime rules released in April that would require it to use some U.S. ships to transport liquefied natural gas.`\
 https://nytimes.com/2025/04/29/business/energy-environment/trump-lng-ships-china.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6318745/2025/04/29/nhl-norris-trophy-finalists-2025
 **Leeds announce boardroom changes after promotion, Kinnear's departure**\
 `Robbie Evans has been named managing director and Adam Underwood named sporting director in two of the key promotions.`\
 https://nytimes.com/athletic/6320750/2025/04/29/leeds-robbie-evans-adam-underwood/
-
-**UPS Says It Will Cut 20,000 Jobs in Efficiency Drive**\
-`The move comes as President Trump’s tariffs are reducing shipping volumes and is in addition to 12,000 job cuts last year.`\
-https://nytimes.com/2025/04/29/business/ups-layoffs-trump-tariffs.html
 

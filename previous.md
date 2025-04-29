@@ -1,3 +1,11 @@
+**U.S. Gas Industry Pushes Back on Trump Shipbuilding Rules**\
+`The main oil and gas trade group wants the Trump administration to reconsider maritime rules released in April that would require it to use some U.S. ships to transport liquefied natural gas.`\
+https://nytimes.com/2025/04/29/business/energy-environment/trump-lng-ships-china.html
+
+**Watch: Thunder? Cavaliers? Which team had the most impressive NBA playoff sweep?**\
+`"The Athletic NBA Daily" discussed whether the Thunder or the Cavaliers had the most impressive first-round playoff performance.`\
+https://nytimes.com/athletic/6320172/2025/04/29/nba-daily-thunder-cavs-nba-playoff-sweep/
+
 **Trump Administration Eases Ban for U.S. Diplomats at Vietnam War Anniversary**\
 `The administration had said that no senior U.S. envoys could attend the events marking 50 years after the war’s end. On Tuesday, the U.S. consul general was seen at a reception for the anniversary.`\
 https://nytimes.com/2025/04/29/world/asia/vietnam-war-anniversary-us-diplomats.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6320750/2025/04/29/leeds-robbie-evans-adam-underwoo
 **UPS Says It Will Cut 20,000 Jobs in Efficiency Drive**\
 `The move comes as President Trump’s tariffs are reducing shipping volumes and is in addition to 12,000 job cuts last year.`\
 https://nytimes.com/2025/04/29/business/ups-layoffs-trump-tariffs.html
-
-**The Bounce: Jimmy Butler and the Warriors keep forcing the Rockets to miss opportunities**\
-`When the Warriors needed big buckets down the stretch, they trusted Jimmy Butler to push the Rockets near elimination`\
-https://nytimes.com/athletic/6320650/2025/04/29/jimmy-butler-steph-curry-warriors-rockets-nba-playoffs-the-bounce/
-
-**Usyk signs photos of Dubois low blow at news conference ahead of title fight**\
-`"It’s gonna be a bloodbath. I’m going to put all the controversy and nonsense to rest," Dubois said at Tuesday's news conference.`\
-https://nytimes.com/athletic/6320329/2025/04/29/usyk-dubois-boxing-heavyweight-fight/
 
