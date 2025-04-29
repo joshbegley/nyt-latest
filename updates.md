@@ -1,3 +1,8 @@
+**Panthers complete late comeback, push Lightning to brink of elimination: Takeaways**\
+`Florida pulled off the late rally, scoring twice in 11 seconds to take a 3-1 series lead over Tampa Bay. 
+`\
+https://nytimes.com/athletic/6319274/2025/04/28/panthers-lightning-nhl-playoffs-2025-game-4-takeaways/
+
 **NBA playoffs takeaways: Cavs sweep Heat, hand Miami another record defeat**\
 `The Cavaliers will play the winner of the Pacers-Bucks series, which Indiana currently leads 3-1.`\
 https://nytimes.com/athletic/6319284/2025/04/28/nba-playoffs-scores-results-cavaliers-heat-rockets-warriors-takeaways/
