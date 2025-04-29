@@ -1,3 +1,11 @@
+**Corporation for Public Broadcasting Sues White House to Block Board Firings**\
+`The media organization said that the White House emailed three of the company’s five directors on Monday, telling them that their positions had been terminated.`\
+https://nytimes.com/2025/04/29/business/media/corporation-public-broadcasting-firings.html
+
+**‘Carême’ Is a Sexy Historical Kitchen Drama**\
+`The series, about a celebrity chef in Napoleonic France, has a loose relationship to historical facts. But that frees it to be spry and fun.`\
+https://nytimes.com/2025/04/29/arts/television/careme-apple-tv-plus.html
+
 **A Mother and Father Were Deported. What Happened to Their Toddler?**\
 `The Trump administration sent the mother of a 2-year-old to Venezuela and the father to a Salvadoran prison. Their daughter remains somewhere in the United States.`\
 https://nytimes.com/2025/04/29/world/americas/family-deported-trump-venezuela-el-salvador.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6320625/2025/04/29/mohamed-salah-liverpool-selfie-g
 **How Trump May Unintentionally Cut Carbon Emissions**\
 `Despite his administration’s lack of concern about climate change, a recession would give the atmosphere a break. At least in the short term.`\
 https://nytimes.com/2025/04/29/business/economy/trump-recession-carbon-emissions.html
-
-**European Anti-Tourism Groups Plan June 15 Disruptions**\
-`Driven by rising rents, crowds and what many see as neighborhood degradation, activists are calling to continue the kinds of protests that erupted last summer.`\
-https://nytimes.com/2025/04/29/travel/tourism-protests-europe.html
-
-**U.S. Gas Industry Pushes Back on Trump Shipbuilding Rules**\
-`The main oil and gas trade group wants the Trump administration to reconsider maritime rules released in April that would require it to use some U.S. ships to transport liquefied natural gas.`\
-https://nytimes.com/2025/04/29/business/energy-environment/trump-lng-ships-china.html
 

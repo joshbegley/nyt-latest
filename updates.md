@@ -1,3 +1,7 @@
+**A Mother and Father Were Deported. What Happened to Their Toddler?**\
+`The Trump administration sent the mother of a 2-year-old to Venezuela and the father to a Salvadoran prison. Their daughter remains somewhere in the United States.`\
+https://nytimes.com/2025/04/29/world/americas/family-deported-trump-venezuela-el-salvador.html
+
 **Commanders shuffle kickers by signing Matt Gay, releasing Zane Gonzalez: Sources**\
 `Gay, who made the Pro Bowl in 2021, was released by the Indianapolis Colts earlier this month.`\
 https://nytimes.com/athletic/6320796/2025/04/29/matt-gay-commanders-signing-zane-gonzalez-released/
