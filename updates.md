@@ -1,3 +1,11 @@
+**Mark Carney’s Liberals Win Canada’s Election. Here Are 4 Takeaways.**\
+`The former central banker successfully convinced voters that he was the right candidate to confront President Trump’s trade war and threats to annex the country.`\
+https://nytimes.com/2025/04/29/world/canada/canada-election-results-carney-trump-takeaways.html
+
+**Pierre Poilievre loses his parliamentary seat.**\
+`By Vjosa Isai`\
+https://nytimes.com/live/2025/04/28/world/canada-election/pierre-poilievre-loses-his-parliamentary-seat-the-cbc-says
+
 **Zelensky Calls Putin’s 72-Hour Truce Pledge ‘Manipulation’**\
 `Russian forces launched 100 attack drones across Ukraine overnight, hours after President Vladimir V. Putin ordered a unilateral three-day cease-fire starting on May 8.`\
 https://nytimes.com/2025/04/29/world/europe/ukraine-russia-zelensky-putin-truce.html
