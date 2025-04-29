@@ -1,3 +1,11 @@
+**Thompson: Draymond Green seals Warriors' Game 4 win with the kind of play you'll remember**\
+`You'll remember Draymond Green for a lot of things. One of them is plays like Monday's game-sealer against Alperen Şengün and the Rockets.`\
+https://nytimes.com/athletic/6321654/2025/04/29/draymond-green-warriors-rockets-game-4-alperen-sengun-stop/
+
+**More Than 50,000 Workers Go on Strike as Budget Woes Disrupt L.A. County**\
+`The nation’s most populous county was already juggling legal liabilities, wildfire costs and threats to federal funding. Now its largest union is holding a 48-hour strike.`\
+https://nytimes.com/2025/04/29/us/los-angeles-seiu-union-strike.html
+
 **Real Madrid's David Alaba suffers knee injury setback**\
 `Alaba joins Antonio Rudiger, Ferland Mendy, Eder Militao and Dani Carvajal among Madrid's defensive absentees.`\
 https://nytimes.com/athletic/6321709/2025/04/29/david-alaba-real-madrid-injury-update/
@@ -29,12 +37,4 @@ https://nytimes.com/video/sports/100000010136496/speedboat-crash-attempting-high
 **French Lawmakers Cracking Down on Drug Traffickers**\
 `A rare consensus in France’s lower house of Parliament prompted by fears that drug-related violence has grown out of control.`\
 https://nytimes.com/2025/04/29/world/europe/french-lawmakers-cracking-down-on-drug-traffickers.html
-
-**The Unsentimental, Acerbic and Deeply Compassionate Fiction of Jane Gardam**\
-`The British author, best known for her “Old Filth” trilogy, never paid much attention to literary fashion, and her 22 novels range widely in genre, tone and style.`\
-https://nytimes.com/2025/04/29/books/review/jane-gardam-appreciation.html
-
-**Rick Tocchet won't return as Canucks head coach: Source**\
-`Through two and a half seasons, Tocchet had a 108-65-27 record as Vancouver's coach.`\
-https://nytimes.com/athletic/6300152/2025/04/29/rick-tocchet-canucks-nhl/
 
