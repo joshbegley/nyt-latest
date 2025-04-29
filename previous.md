@@ -1,3 +1,11 @@
+**Here’s what happened on Monday.**\
+`By The New York Times`\
+https://nytimes.com/live/2025/04/28/us/trump-news/heres-what-happened-on-monday
+
+**White House Looks to Take Steps to Ease Pain From Car Tariffs**\
+`The planned concessions to give automakers more time to relocate production to the United States would still leave substantial tariffs on imported cars and car parts.`\
+https://nytimes.com/2025/04/28/us/politics/trump-tariffs-cars-auto.html
+
 **What Do You Want to Know About Student Loans?**\
 `Send us your questions about student loans. We’ll answer some in an upcoming newsletter.`\
 https://nytimes.com/2025/04/28/briefing/what-do-you-want-to-know-about-student-loans.html
@@ -30,12 +38,4 @@ https://nytimes.com/2025/04/28/us/politics/harvard-dei-law-review.html
 **Dodgers' Tyler Glasnow goes on IL as confusion about his injury remains**\
 `The right-hander attributed the discomfort to changes he made in his delivery to try to keep his elbow healthy.`\
 https://nytimes.com/athletic/6319398/2025/04/28/dodgers-tyler-glasnow-injury-soreness/
-
-**Sarkisian hopes Arch Manning has 'really hard decision' to make on '26 draft**\
-`Regardless of how long Manning stays at Texas, Sarkisian hopes fans let him enjoy it. The coach also gave his thoughts on Quinn Ewers' slide`\
-https://nytimes.com/athletic/6319369/2025/04/28/texas-steve-sarkisian-arch-manning-nfl-draft/
-
-**Shedeur Sanders' Browns jersey is third-best seller among 2025 NFL draftees**\
-`Sanders is the only player not selected in the first round of the NFL Draft to make the list.`\
-https://nytimes.com/athletic/6319319/2025/04/28/shedeur-sanders-browns-jersey-sales/
 
