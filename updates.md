@@ -1,3 +1,11 @@
+**Rudiger given 6-game ban for 'throwing object' at referee, Bellingham avoids suspension**\
+`Ricardo de Burgos Bengoetxea's referee's report said Rudiger threw an object towards him, adding he showed an "aggressive attitude."`\
+https://nytimes.com/athletic/6317404/2025/04/29/rudiger-bellingham-ban-real-madrid-referee/
+
+**Harvard Promises Changes After Reports on Antisemitism and Islamophobia**\
+`The two reports, which run hundreds of pages, come at a difficult time for the university, which is suing the Trump administration over federal funding cuts.`\
+https://nytimes.com/2025/04/29/us/harvard-antisemitism-islamophobia-reports.html
+
 **Illinois Town Grieves After Car Slams Through Building, Killing 4 Young People**\
 `The car veered off a road and through a field, crashing into a center where children were cared for after school. The dead ranged in age from 7 to 18.`\
 https://nytimes.com/2025/04/29/us/illinois-car-crash-after-school-center.html
