@@ -1,3 +1,15 @@
+**A Killing in a Mosque Puts French View of Muslims Under Scrutiny**\
+`The victim was stabbed dozens of times last Friday while he was praying, and critics say officials were slow to call it a bias crime or show concern.`\
+https://nytimes.com/2025/04/29/world/europe/france-mosque-killing.html
+
+**Novak Djokovic withdraws from Italian Open**\
+`The 37-year-old is now unlikely to play a competitive match before the French Open begins in late May.`\
+https://nytimes.com/athletic/6321192/2025/04/29/novak-djokovic-injury-italian-open-withdraws/
+
+**T's May 18 Travel Issue**\
+``\
+https://nytimes.com/issue/t-magazine/2025/04/29/ts-may-18-travel-issue-2025
+
 **Tom Brady, Derek Jeter, and Bobby Witt talk sports card business ventures**\
 `More and more athletes are investing in the sports card business, but Brady, Jeter, and Witt are three of the most prominent examples`\
 https://nytimes.com/athletic/6320571/2025/04/29/tom-brady-derek-jeter-bobby-witt-cards-business/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/29/us/politics/justice-department-trump-firings.html
 **Real Madrid's Mendy out for season with injury**\
 `Madrid are already considering adding a left-back this summer, with Milos Kerkez and Alvaro Carreras admired in the capital.`\
 https://nytimes.com/athletic/6321019/2025/04/29/real-madrid-ferland-mendy-injury/
-
-**UConn star forward Alex Karaban returning to Huskies for senior season**\
-`The 6-foot-8, 210 pounder was UConn’s third-leading scorer last season, posting career-high averages in points, rebounds and blocks.`\
-https://nytimes.com/athletic/6320824/2025/04/29/uconn-alex-karaban-return/
-
-**New Data Provide a Pre-Tariff Snapshot of a Stable but Slowing Labor Market**\
-`But the effects of the levies, which have created uncertainty for businesses, have not yet been fully felt.`\
-https://nytimes.com/2025/04/29/business/economy/slow-but-stable-labor-market-pre-tariffs.html
-
-**How Spain’s Success in Renewable Energy May Have Left It Vulnerable**\
-`The Iberian Peninsula’s widespread blackout raises questions about the resilience of the electric power infrastructure in the two countries — and to an extent, the rest of Europe.`\
-https://nytimes.com/2025/04/29/business/spain-renewable-energy-power-grid.html
 
