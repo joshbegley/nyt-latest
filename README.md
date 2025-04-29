@@ -1,5 +1,9 @@
+**Tuesday Briefing**\
+`Results from Canada’s election.`\
+https://nytimes.com/2025/04/29/briefing/canada-election-outage-spain.html
+
 **Inconsistency, controversial hits and players running wild in NHL's Battle of Florida**\
-` A physical series is expected between the rival Panthers and Lightning, but the line between borderline infractions keeps getting blurrier.`\
+`A physical series is expected between the rival Panthers and Lightning, but the line between borderline infractions keeps getting blurrier.`\
 https://nytimes.com/athletic/6319626/2025/04/29/lightning-panthers-nhl-playoffs-aaron-ekblad/
 
 **Stars push Avalanche to the brink with commanding Game 5 win: Takeaways**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6317576/2025/04/29/joao-neves-interview-psg-arsenal
 **Yamal, Saka, Kvaratskhelia: How I would take on the Champions League's elite wingers**\
 `The World Cup and Champions League winning full-back assesses the best wingers from this year's competition, and how he would stop them`\
 https://nytimes.com/athletic/6317291/2025/04/29/lahm-yamal-saka-kvaratskhelia-olise-vinicius-champions/
-
-**Inside Liverpool's title party: A 3am finish, cigars and a bike ride**\
-`Arne Slot and his players celebrated long into the night after clinching their historic 20th league title`\
-https://nytimes.com/athletic/6317533/2025/04/29/inside-liverpools-premier-league-title-party-a-3am-finish-cigars-and-a-bike-ride/
 
