@@ -1,3 +1,7 @@
+**The Briefing: Arsenal 0 PSG 1: Dembele, Donnarumma leave Arteta's side facing daunting Paris trip**\
+`Our writers break down the action from the Champions League semi-final first leg at the Emirates.`\
+https://nytimes.com/athletic/6320267/2025/04/29/arsenal-psg-champions-league/
+
 **Thompson: Draymond Green seals Warriors' Game 4 win with the kind of play you'll remember**\
 `You'll remember Draymond Green for a lot of things. One of them is plays like Monday's game-sealer against Alperen Şengün and the Rockets.`\
 https://nytimes.com/athletic/6321654/2025/04/29/draymond-green-warriors-rockets-game-4-alperen-sengun-stop/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/29/us/speedboat-crash-lake-havasu-arizona.html
 **Speedboat Somersaults Through the Air During Race on Arizona Lake**\
 `Spectators gasped as the 38-foot Catamaran flipped through the air during a Desert Storm boat race event on Lake Havasu in Arizona.`\
 https://nytimes.com/video/sports/100000010136496/speedboat-crash-attempting-high-speeds.html
-
-**French Lawmakers Cracking Down on Drug Traffickers**\
-`A rare consensus in France’s lower house of Parliament prompted by fears that drug-related violence has grown out of control.`\
-https://nytimes.com/2025/04/29/world/europe/french-lawmakers-cracking-down-on-drug-traffickers.html
 
