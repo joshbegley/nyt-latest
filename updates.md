@@ -1,3 +1,11 @@
+**Submit questions for Ben Standig's Commanders mailbag**\
+`Standig will consider your questions for his upcoming mailbag following Washington's five-pick 2025 NFL Draft. `\
+https://nytimes.com/athletic/6321414/2025/04/29/commanders-mailbag-2025-nfl-draft/
+
+**Republicans Freeze House Efforts to Compel Information From Trump**\
+`G.O.P. leaders used a procedural maneuver to close off an avenue for House members to demand answers from the Trump administration, including on the defense secretary’s use of Signal.`\
+https://nytimes.com/2025/04/29/us/politics/house-republicans-trump-information.html
+
 **Federal Watchdog Reveals Dozens of Inquiries Into Trump’s Withholding of Funds**\
 `The investigations by the Government Accountability Office come as the White House looks to expand its power over the federal budget.`\
 https://nytimes.com/2025/04/29/us/politics/trump-funds-gao.html
