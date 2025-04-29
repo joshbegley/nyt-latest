@@ -1,8 +1,12 @@
+**WATCH: How the best defense in modern NBA history locks up opponents**\
+`Is defense impossible to play today's spread-out NBA? Not to the Thunder. They've found the secret to putting the clamps on their opponents.`\
+https://nytimes.com/athletic/6320866/2025/04/29/video-thunder-defense-steal-breakdown/
+
 **Blues defenseman Tyler Tucker won't play Game 5**\
 `Tucker was injured during Game 4 and is considered day-to-day.`\
 https://nytimes.com/athletic/6320633/2025/04/29/blues-tyler-tucker-nhl-playoffs/
 
-**Justice Dept. Firings Prompt a Slew of Legal Fights**\
+**Justice Dept. Firings Prompt a Torrent of Legal Fights**\
 `A series of dismissals by the Trump administration has flooded a little-known group of administrative judges who protect civil servants.`\
 https://nytimes.com/2025/04/29/us/politics/justice-department-trump-firings.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6320756/2025/04/29/everton-dan-purdy-exit/
 **Why NASCAR teams said no to the 'run what you brung' All-Star Race idea**\
 `NASCAR proposed allowing teams to make modifications to the Next Gen car for this year's All-Star Race. Here's why the teams don't love it.`\
 https://nytimes.com/athletic/6320527/2025/04/29/nascar-all-star-race-next-gen-car-alterations/
-
-**Supreme Court Considers Suit Over F.B.I.’s Raid of the Wrong House**\
-`The legal questions were tangled, but some justices seemed incredulous at a government lawyer’s defense of a botched operation involving a battering ram and a flash-bang grenade.`\
-https://nytimes.com/2025/04/29/us/supreme-court-fbi-raid.html
 
