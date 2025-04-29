@@ -1,3 +1,7 @@
+**The Windup: Nerd out on these MLB leaderboards**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6319773/2025/04/29/mlb-leaderboards-sprint-speed-the-windup/
+
 **Hilo, Hawaii**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/things-to-do-hilo
