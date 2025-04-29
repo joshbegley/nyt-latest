@@ -1,3 +1,23 @@
+**A Contender for the Papacy in the Mold of Francis**\
+`Cardinal Luis Tagle of the Philippines is known as the “Asian Francis.” But he has been criticized for not being vocal enough about his country’s brutal drug war and clerical sex abuse.`\
+https://nytimes.com/2025/04/29/world/asia/luis-tagle-asian-pope.html
+
+**Trump’s Tariffs Put China’s E-Commerce Superpowers to the Test**\
+`Companies like Alibaba that built China’s world-leading online shopping sector are now helping its sellers find markets beyond the United States.`\
+https://nytimes.com/2025/04/29/world/asia/trump-tariffs-china.html
+
+**Connections: Sports Edition Coach: Hints for April 29, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6319047/2025/04/29/connections-sports-edition-hints-for-april-29-2025/
+
+**Corrections: April 29, 2025**\
+`Corrections that appeared in print on Tuesday, April 29, 2025.`\
+https://nytimes.com/2025/04/29/pageoneplus/corrections-april-29-2025.html
+
+**Quote of the Day: Terry Francona Can’t Stay Away**\
+`Quotation of the Day for Tuesday, April 29, 2025.`\
+https://nytimes.com/2025/04/28/pageoneplus/quote-of-the-day-terry-francona-cant-stay-away.html
+
 **Panthers complete late comeback, push Lightning to brink of elimination: Takeaways**\
 `Florida pulled off the late rally, scoring twice in 11 seconds to take a 3-1 series lead over Tampa Bay. 
 `\
