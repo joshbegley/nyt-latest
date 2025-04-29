@@ -1,3 +1,11 @@
+**Texas coach Steve Sarkisian talks Arch Manning and the 2026 NFL Draft**\
+`Regardless of how long Manning stays at Texas, Sarkisian hopes fans let him enjoy it. The coach also gave his thoughts on Quinn Ewers' slide`\
+https://nytimes.com/athletic/6319369/2025/04/28/texas-coach-steve-sarkisian-talks-arch-manning-and-the-2026-nfl-draft/
+
+**U.S. vs. World? NBA considers All-Star tweak after success of NHL's 4 Nation's Cup**\
+`On the heels of the NHL's successful All-Star pivot to the 4 Nations Face-Off, the NBA is considering a similar international event.`\
+https://nytimes.com/athletic/6319294/2025/04/28/nba-considering-international-all-star-change/
+
 **Shedeur Sanders' Browns jersey is third-best seller among 2025 NFL draftees**\
 `Sanders is the only player not selected in the first round of the NFL Draft to make the list.`\
 https://nytimes.com/athletic/6319319/2025/04/28/shedeur-sanders-browns-jersey-sales/
