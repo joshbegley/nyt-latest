@@ -1,3 +1,15 @@
+**Why Club World Cup's bonus money won't fully trickle down to MLS players**\
+`Participating clubs stand to make a good deal of money this summer, but there's a reason why players won't be reaping the benefits.`\
+https://nytimes.com/athletic/6318413/2025/04/29/mls-players-club-world-cup-bonuses-cba-language-miami-seattle/
+
+**Have the two-day breaks in the NHL playoffs been a benefit to the Blues?**\
+`The Blues-Jets series is tied 2-2 heading into Game 5 Wednesday. Does any team have an advantage with the multiple two-day breaks?`\
+https://nytimes.com/athletic/6317579/2025/04/29/nhl-playoffs-blues-jets-two-day-breaks/
+
+**Pistons' revival, D.C. project raises old questions about paying for billionaires' sports palaces**\
+`Stadium districts bring in thousands of people and significant taxable income for a city and a state, but who benefits most?`\
+https://nytimes.com/athletic/6312377/2025/04/29/pistons-washington-dc-stadium-commanders/
+
 **Venture Firm Thrive Bets on Buying Firms That Can Benefit From A.I.**\
 `The investor is raising money to start and build companies infused with artificial intelligence, then use them to buy more.`\
 https://nytimes.com/2025/04/29/business/dealbook/thrive-holdings-rollup-ai.html
