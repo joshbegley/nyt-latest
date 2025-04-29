@@ -1,4 +1,8 @@
-**4 Killed in Car Crash in Illinois After-School Center**\
+**N.Y. Budget Deal Includes School Cellphone Ban and Public Safety Changes**\
+`Gov. Kathy Hochul announced a $254 billion state budget agreement that includes tax credits. A measure to restrict mask wearing was watered down.`\
+https://nytimes.com/2025/04/28/nyregion/budget-ny-hochul.html
+
+**4 Killed When a Car Crashes Into Illinois After-School Center**\
 `At least four others were injured, the State Police said.`\
 https://nytimes.com/2025/04/28/us/child-care-crash-chatham-illinois.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/28/us/politics/house-revenge-porn-bill.html
 **I Can’t Believe Anyone Thinks Trump Actually Cares About Antisemitism**\
 `Jews should remember how Trump promised to “protect” L.G.B.T. citizens.`\
 https://nytimes.com/2025/04/28/opinion/trump-antisemitism-jews-israel.html
-
-**Yankees' Matt Blake says fans booing Devin Williams 'definitely doesn't help'**\
-`In place of Williams, Blake said he envisions Luke Weaver getting the majority of the save opportunities for the foreseeable future.`\
-https://nytimes.com/athletic/6319040/2025/04/28/new-york-yankees-devin-williams-fan-reaction/
 

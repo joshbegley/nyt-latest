@@ -1,3 +1,7 @@
+**4 Killed in Car Crash in Illinois After-School Center**\
+`At least four others were injured, the State Police said.`\
+https://nytimes.com/2025/04/28/us/child-care-crash-chatham-illinois.html
+
 **Browns agree to deal with WR Diontae Johnson: Source**\
 `Cleveland will mark Johnson's third stop in the AFC North and his fifth team in 14 months. `\
 https://nytimes.com/athletic/6319230/2025/04/28/diontae-johnson-browns-deal-nfl/
