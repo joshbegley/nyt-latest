@@ -1,3 +1,7 @@
+**Sarkisian hopes Arch Manning has 'really hard decision' to make on '26 draft**\
+`Regardless of how long Manning stays at Texas, Sarkisian hopes fans let him enjoy it. The coach also gave his thoughts on Quinn Ewers' slide`\
+https://nytimes.com/athletic/6319369/2025/04/28/texas-steve-sarkisian-arch-manning-nfl-draft/
+
 **Harvard, Under Pressure, Revamps D.E.I. Office**\
 `The move comes as President Trump has tried to abolish D.E.I. programs at universities.`\
 https://nytimes.com/2025/04/28/us/politics/harvard-dei-law-review.html
