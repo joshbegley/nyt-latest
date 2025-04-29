@@ -1,3 +1,15 @@
+**Tom Brady, Derek Jeter, and Bobby Witt talk sports card business ventures**\
+`More and more athletes are investing in the sports card business, but Brady, Jeter, and Witt are three of the most prominent examples`\
+https://nytimes.com/athletic/6320571/2025/04/29/tom-brady-derek-jeter-bobby-witt-cards-business/
+
+**Trump to Grant Carmakers Some Relief From His Punishing Tariffs**\
+`Most levies on imported cars and car parts will remain in place, but automakers have secured some relaxation of the trade policy.`\
+https://nytimes.com/2025/04/29/us/politics/trump-auto-tariffs-executive-order.html
+
+**NFL Draft viewership soars on Day 3 with record 4.3 million viewers**\
+`This year's NFL Draft is the most-watched Day 3 on record. Viewership was up more than 40 percent over last year's final day.`\
+https://nytimes.com/athletic/6321077/2025/04/29/nfl-draft-viewership-day-3-record/
+
 **WATCH: How the best defense in modern NBA history locks up opponents**\
 `Is defense impossible to play today's spread-out NBA? Not to the Thunder. They've found the secret to putting the clamps on their opponents.`\
 https://nytimes.com/athletic/6320866/2025/04/29/video-thunder-defense-steal-breakdown/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/29/business/economy/slow-but-stable-labor-market-pre
 **How Spain’s Success in Renewable Energy May Have Left It Vulnerable**\
 `The Iberian Peninsula’s widespread blackout raises questions about the resilience of the electric power infrastructure in the two countries — and to an extent, the rest of Europe.`\
 https://nytimes.com/2025/04/29/business/spain-renewable-energy-power-grid.html
-
-**Submit your questions for the college basketball mailbag**\
-`<p>It&#8217;s the offseason, but as always, there&#8217;s much to sort out.`\
-https://nytimes.com/athletic/6321101/2025/04/29/submit-your-questions-for-the-college-basketball-mailbag-5/
-
-**Everton head of recruitment Purdy set to leave club**\
-`Purdy had initially been earmarked for the new role of head of player identification as part of a revamped recruitment structure.`\
-https://nytimes.com/athletic/6320756/2025/04/29/everton-dan-purdy-exit/
-
-**Why NASCAR teams said no to the 'run what you brung' All-Star Race idea**\
-`NASCAR proposed allowing teams to make modifications to the Next Gen car for this year's All-Star Race. Here's why the teams don't love it.`\
-https://nytimes.com/athletic/6320527/2025/04/29/nascar-all-star-race-next-gen-car-alterations/
 
