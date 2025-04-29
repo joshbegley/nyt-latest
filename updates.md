@@ -1,3 +1,9 @@
+**Champions League semi-final tips: Anytime scorer market ripe for Barca vs Inter**\
+`Sam Tighe explores the best bets around Barcelona’s Champions League semi-final first-leg clash against Internazionale. 
+
+`\
+https://nytimes.com/athletic/6320034/2025/04/29/champions-league-semi-final-barcelona-vs-inter-milan-betting-tips-predictions/
+
 **Deporting Americans?**\
 `Plus, the latest on the rising tensions between India and Pakistan.`\
 https://nytimes.com/2025/04/29/briefing/us-citizens-deportations.html
