@@ -1,3 +1,7 @@
+**What promotion means for Leeds: Budgets, player futures and revamping Elland Road**\
+`Promotion back to England's top flight will give Leeds plenty of autonomy in how they reshape their own future this summer and beyond`\
+https://nytimes.com/athletic/6319789/2025/04/29/leeds-united-promotion-elland-road-budget-players/
+
 **Microseasons**\
 `The Japanese recognize 72 “microseasons.” They give them names like “crickets chirp around the door” in October. How would you describe the tiny season you’re in now?`\
 https://nytimes.com/2025/04/29/learning/microseasons.html
