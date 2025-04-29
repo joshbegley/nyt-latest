@@ -22,7 +22,7 @@ https://nytimes.com/2025/04/29/nyregion/nyu-langone-ad-super-bowl-congressman.ht
 `Seth Meyers called Donald Trump “the most unpopular president since Kevin Spacey.” Even measles is polling better, according to Jimmy Fallon.`\
 https://nytimes.com/2025/04/29/arts/television/late-night-trump-approval-rating.html
 
-**What Premier League promotion means for Leeds United: Budgets, player futures and revamping Elland Road**\
+**What promotion means for Leeds: Budgets, player futures and revamping Elland Road**\
 `Promotion back to England's top flight will give Leeds plenty of autonomy in how they reshape their own future this summer and beyond`\
 https://nytimes.com/athletic/6319789/2025/04/29/leeds-united-promotion-elland-road-budget-players/
 

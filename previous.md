@@ -1,3 +1,23 @@
+**Microseasons**\
+`The Japanese recognize 72 “microseasons.” They give them names like “crickets chirp around the door” in October. How would you describe the tiny season you’re in now?`\
+https://nytimes.com/2025/04/29/learning/microseasons.html
+
+**Want to Try Driving a City Bus, Hauling Trash or Building a Skyscraper?**\
+`A new exhibit at the New York Hall of Science celebrates cities by letting visitors get hands-on with urban infrastructure.`\
+https://nytimes.com/2025/04/29/nyregion/new-york-hall-science-infrastructure-exhibit.html
+
+**An Antitrust Hearing That’s Low on Drama Has High Stakes**\
+`Remedies to Google’s monopoly in internet search could change the future of the company. Read an interview with the Times reporter in the courthouse.`\
+https://nytimes.com/2025/04/29/insider/an-antitrust-hearing-thats-low-on-drama-has-high-stakes.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/04/29/crosswords/spelling-bee-forum.html
+
+**A Lawmaker Blasted a Hospital’s Super Bowl Ad. Then He Changed His Tune.**\
+`NYU Langone Health aired a commercial showcasing its doctors during the Super Bowl. A North Carolina congressman wondered if it was a waste of money.`\
+https://nytimes.com/2025/04/29/nyregion/nyu-langone-ad-super-bowl-congressman.html
+
 **Late Night Pokes Fun at Trump’s Dismal Poll Numbers**\
 `Seth Meyers called Donald Trump “the most unpopular president since Kevin Spacey.” Even measles is polling better, according to Jimmy Fallon.`\
 https://nytimes.com/2025/04/29/arts/television/late-night-trump-approval-rating.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/04/29/world/europe/power-outage-spain-portugal.html
 **Word of the Day: runic**\
 `This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/04/29/learning/word-of-the-day-runic.html
-
-**India Accuses Pakistan of Supporting Terrorism. Here’s What We Know.**\
-`India renewed its claims after a deadly terror attack last week in Kashmir, a territory that it has long fought over with Pakistan.`\
-https://nytimes.com/2025/04/29/world/asia/india-pakistan-kashmir-terrorism.html
-
-**‘You See What’s Happening in America With Elon Musk? We Need the Same Thing Happening Here.’**\
-`Much of the British political class laughed at Nigel Farage in 2016. It isn’t laughing now.`\
-https://nytimes.com/2025/04/29/opinion/reform-uk-nigel-farage.html
-
-**The New York Times in Print for Tuesday, April 29, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/04/29/todays-new-york-times
-
-**Tuesday Briefing**\
-`Results from Canada’s election.`\
-https://nytimes.com/2025/04/29/briefing/canada-election-outage-spain.html
-
-**Inconsistency, controversial hits and players running wild in NHL's Battle of Florida**\
-`A physical series is expected between the rival Panthers and Lightning, but the line between borderline infractions keeps getting blurrier.`\
-https://nytimes.com/athletic/6319626/2025/04/29/lightning-panthers-nhl-playoffs-aaron-ekblad/
 
