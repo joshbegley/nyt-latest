@@ -1,3 +1,7 @@
+**Late Night Pokes Fun at Trump’s Dismal Poll Numbers**\
+`Seth Meyers called Donald Trump “the most unpopular president since Kevin Spacey.” Even measles is polling better, according to Jimmy Fallon.`\
+https://nytimes.com/2025/04/29/arts/television/late-night-trump-approval-rating.html
+
 **What Premier League promotion means for Leeds United: Budgets, player futures and revamping Elland Road**\
 `Promotion back to England's top flight will give Leeds plenty of autonomy in how they reshape their own future this summer and beyond`\
 https://nytimes.com/athletic/6319789/2025/04/29/leeds-united-promotion-elland-road-budget-players/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/29/briefing/canada-election-outage-spain.html
 **Inconsistency, controversial hits and players running wild in NHL's Battle of Florida**\
 `A physical series is expected between the rival Panthers and Lightning, but the line between borderline infractions keeps getting blurrier.`\
 https://nytimes.com/athletic/6319626/2025/04/29/lightning-panthers-nhl-playoffs-aaron-ekblad/
-
-**Stars push Avalanche to the brink with commanding Game 5 win: Takeaways**\
-`Dallas defeated Colorado 6-2 on Monday night to send the series back to Denver with the Avs on the verge of elimination.`\
-https://nytimes.com/athletic/6319456/2025/04/29/avalanche-stars-nhl-playoffs-2025-game-5-takeaways/
 
