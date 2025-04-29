@@ -1,3 +1,11 @@
+**Twins offense erupts against Guardians — and their bullpen catcher bulks up**\
+`Frank Nigro, who does 10 pushups in the bullpen for every run Minnesota scores, has been getting lots of exercise lately.`\
+https://nytimes.com/athletic/6319564/2025/04/28/twins-offense-erupts-against-guardians/
+
+**Full Time: NWSL is still plenty chaotic, actually**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6319573/2025/04/28/nwsl-weekend-recap-standings-full-time/
+
 **Here’s what happened on Monday.**\
 `By The New York Times`\
 https://nytimes.com/live/2025/04/28/us/trump-news/heres-what-happened-on-monday
@@ -30,12 +38,4 @@ https://nytimes.com/interactive/2025/books/edna-st-vincent-millay-rhythm.html
 **Lofty Tributary**\
 `Gene Louise de Vera makes his New York Times Crossword debut.`\
 https://nytimes.com/2025/04/28/crosswords/daily-puzzle-2025-04-29.html
-
-**Harvard, Under Pressure, Revamps D.E.I. Office**\
-`The move comes as President Trump has tried to abolish D.E.I. programs at universities.`\
-https://nytimes.com/2025/04/28/us/politics/harvard-dei-law-review.html
-
-**Dodgers' Tyler Glasnow goes on IL as confusion about his injury remains**\
-`The right-hander attributed the discomfort to changes he made in his delivery to try to keep his elbow healthy.`\
-https://nytimes.com/athletic/6319398/2025/04/28/dodgers-tyler-glasnow-injury-soreness/
 

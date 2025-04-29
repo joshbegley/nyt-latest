@@ -1,3 +1,16 @@
+**Twins offense erupts against Guardians — and their bullpen catcher bulks up**\
+`Frank Nigro, who does 10 pushups in the bullpen for every run Minnesota scores, has been getting lots of exercise lately.`\
+https://nytimes.com/athletic/6319564/2025/04/28/twins-offense-erupts-against-guardians/
+
+**Full Time: NWSL is still plenty chaotic, actually**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6319573/2025/04/28/nwsl-weekend-recap-standings-full-time/
+
+**Panthers complete late comeback, push Lightning to brink of elimination: Takeaways**\
+`Florida pulled off the late rally, scoring twice in 11 seconds to take a 3-1 series lead over Tampa Bay. 
+`\
+https://nytimes.com/athletic/6319274/2025/04/28/panthers-lightning-nhl-playoffs-2025-game-4-takeaways/
+
 **Panthers complete late comeback, push Lightning to brink of elimination: Takeaways**\
 `Florida pulled off the late rally, scoring twice in 11 seconds to take a 3-1 series lead over Tampa Bay. 
 `\
