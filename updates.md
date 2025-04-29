@@ -1,3 +1,11 @@
+**NFL team exec: Shedeur Sanders treated pre-draft visits ‘as recruiting trips, not job interviews’**\
+`The Colorado quarterback was eventually taken in the fifth round of last week’s draft.`\
+https://nytimes.com/athletic/6320300/2025/04/29/shedeur-sanders-browns-draft-interviews/
+
+**How to watch the Diamondbacks at Mets series: Corbin Burnes to duel Kodai Senga in Queens**\
+`The New York Mets host the Arizona Diamondbacks, who actually have a better record on the road than at home thus far.`\
+https://nytimes.com/athletic/6318930/2025/04/29/mets-diamondbacks-lindor-alonso-burnes-carroll-how-to-watch/
+
 **U.S. Navy Jet Sinks Into Red Sea After Falling Off Aircraft Carrier**\
 `One sailor sustained minor injuries, according to the Navy, which is investigating the incident.`\
 https://nytimes.com/2025/04/29/world/middleeast/us-navy-fighter-jet-houthis-red-sea.html
