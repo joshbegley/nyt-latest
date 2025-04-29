@@ -1,5 +1,25 @@
-**Alexander Zverev's defeat at Madrid Open caps disappointing 3 months**\
-`Despite multiple attempts, Zverev hardly closed the gap on No. 1 Jannik Sinner, who has been serving a 90-day suspension since February.`\
+**Illinois Town Grieves After Car Slams Through Building, Killing 4 Young People**\
+`The car veered off a road and through a field, crashing into a center where children were cared for after school. The dead ranged in age from 7 to 18.`\
+https://nytimes.com/2025/04/29/us/illinois-car-crash-after-school-center.html
+
+**Appeals Court Temporarily Blocks Mass Firings at Consumer Bureau**\
+`In a 2-to-1 ruling, a panel of appellate judges restored a district court’s injunction preventing the Trump administration from laying off 90 percent of the Consumer Financial Protection Bureau’s staff.`\
+https://nytimes.com/2025/04/29/us/politics/appeals-court-temporarily-blocks-mass-firings-at-consumer-bureau.html
+
+**Capitals’ ‘hockey nerd’ Dylan Strome changes the game with his brain**\
+`The Capitals are on the verge of eliminating the Canadiens thanks in no small part to their No. 1 center.`\
+https://nytimes.com/athletic/6321385/2025/04/29/capitals-dylan-strome-nhl-playoffs/
+
+**Deadly Garage Collapse Was Caused by ‘Reckless’ Repairs, Report Finds**\
+`An investigation by New York City agencies and an outside engineering firm found unsafe demolition caused the collapse, killing one person and injuring seven others.`\
+https://nytimes.com/2025/04/29/nyregion/nyc-garage-collapse.html
+
+**Trump Fires Biden Appointees, Including Doug Emhoff, From Holocaust Museum**\
+`“Holocaust remembrance and education should never be politicized,” Mr. Emhoff said in reaction to the removal of him and senior Biden White House officials from the board that oversees the museum.`\
+https://nytimes.com/2025/04/29/us/politics/trump-doug-emhoff-holocaust-museum-biden.html
+
+**Alexander Zverev's defeat at Madrid Open ends halting pursuit of No. 1 ranking**\
+`Despite multiple attempts, Zverev hardly closed the gap on No. 1 Jannik Sinner, who has barred from tennis competition since February.`\
 https://nytimes.com/athletic/6321230/2025/04/29/alexander-zverev-loses-francisco-cerundolo/
 
 **Pittsburgh Funeral Home Tossed Pets’ Remains in Landfill, Prosecutors Say**\
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6299629/2025/04/29/kentucky-derby-horse-names-ranke
 **Submit questions for Ben Standig's Commanders mailbag**\
 `Standig will consider your questions for his upcoming mailbag following Washington's five-pick 2025 NFL Draft. `\
 https://nytimes.com/athletic/6321414/2025/04/29/commanders-mailbag-2025-nfl-draft/
-
-**Republicans Freeze House Efforts to Compel Information From Trump**\
-`G.O.P. leaders used a procedural maneuver to close off an avenue for House members to demand answers from the Trump administration, including on the defense secretary’s use of Signal.`\
-https://nytimes.com/2025/04/29/us/politics/house-republicans-trump-information.html
-
-**Federal Watchdog Reveals Dozens of Inquiries Into Trump’s Withholding of Funds**\
-`The investigations by the Government Accountability Office come as the White House looks to expand its power over the federal budget.`\
-https://nytimes.com/2025/04/29/us/politics/trump-funds-gao.html
-
-**Bergvall signs new Tottenham contract through to 2031**\
-`Bergvall rejected an offer from Barcelona to join Spurs from Swedish side Djurgarden in February 2024 for £8.5million.`\
-https://nytimes.com/athletic/6321356/2025/04/29/lucas-bergvall-tottenham-contract-length/
-
-**Where is Nikita Kucherov? How Panthers silenced Lightning's star**\
-`Kucherov, the NHL's leading scorer, is again being shut down by the defending champion Florida Panthers. `\
-https://nytimes.com/athletic/6320960/2025/04/29/lightning-panthers-nhl-playoffs-nikita-kucherov/
-
-**100 Days: Report Cards on Trump**\
-`Evaluating the president on the first 100 days of his second term. Also: State Department cuts; the end of The Conversation, with Gail Collins and Bret Stephens.`\
-https://nytimes.com/2025/04/29/opinion/trump-100-days.html
 

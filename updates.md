@@ -1,3 +1,11 @@
+**Alexander Zverev's defeat at Madrid Open caps disappointing 3 months**\
+`Despite multiple attempts, Zverev hardly closed the gap on No. 1 Jannik Sinner, who has been serving a 90-day suspension since February.`\
+https://nytimes.com/athletic/6321230/2025/04/29/alexander-zverev-loses-francisco-cerundolo/
+
+**Pittsburgh Funeral Home Tossed Pets’ Remains in Landfill, Prosecutors Say**\
+`Patrick Vereb is accused of taking over $650,0000 from customers who paid for dog and cat burial and cremation services between 2021 and 2024 in Western Pennsylvania.`\
+https://nytimes.com/2025/04/29/us/funeral-director-dogs-cats-bodies.html
+
 **Cuts to AmeriCorps Volunteer Programs Leave Communities Scrambling**\
 `The termination of hundreds of millions of dollars in federal grants from the agency has left its programs, which address an array of needs, in turmoil.`\
 https://nytimes.com/2025/04/29/us/politics/americorps-grant-cuts.html
