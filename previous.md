@@ -1,6 +1,10 @@
+**Dodgers' Tyler Glasnow goes on IL as confusion about his injury remains**\
+`The right-hander attributed the discomfort to changes he made in his delivery to try to keep his elbow healthy.`\
+https://nytimes.com/athletic/6319398/2025/04/28/dodgers-tyler-glasnow-injury-soreness/
+
 **Texas coach Steve Sarkisian talks Arch Manning and the 2026 NFL Draft**\
 `Regardless of how long Manning stays at Texas, Sarkisian hopes fans let him enjoy it. The coach also gave his thoughts on Quinn Ewers' slide`\
-https://nytimes.com/athletic/6319369/2025/04/28/texas-coach-steve-sarkisian-talks-arch-manning-and-the-2026-nfl-draft/
+https://nytimes.com/athletic/6319369/2025/04/28/texas-steve-sarkisian-arch-manning-nfl-draft/
 
 **Shedeur Sanders' Browns jersey is third-best seller among 2025 NFL draftees**\
 `Sanders is the only player not selected in the first round of the NFL Draft to make the list.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6319238/2025/04/28/montreal-canadiens-nhl-playoffs-
 **Despair Blankets Scene of Car-Ramming Attack at Festival**\
 `Filipinos in Vancouver returned to a neighborhood to mourn the 11 people killed in a weekend attack.`\
 https://nytimes.com/2025/04/28/world/canada/vancouver-festival-attack.html
-
-**How California Sanctuary Policies Are Faring Under Pressure From Trump**\
-`State and city officials in California are vowing to uphold protections for immigrants, even as President Trump threatens more action against their jurisdictions.`\
-https://nytimes.com/2025/04/28/us/sanctuary-city-california-trump.html
 
