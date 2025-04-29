@@ -1,3 +1,7 @@
+**Trump Plan to Dismantle Head Start Is Illegal, Lawsuit Argues**\
+`The lawsuit argues that the Trump administration cannot reduce or eliminate Head Start, because the program is funded by Congress.`\
+https://nytimes.com/2025/04/29/us/politics/trump-head-start-lawsuit-aclu.html
+
 **After an Awkward Photo, Whitmer Coaxes a Win for Michigan Out of Trump**\
 `Weeks after she hid from the cameras in the Oval Office, Gretchen Whitmer welcomed the president to her state as he delivered the federal funding she had sought for an air base.`\
 https://nytimes.com/2025/04/29/us/politics/whitmer-trump-michigan-selfridge.html

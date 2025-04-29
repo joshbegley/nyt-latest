@@ -1,3 +1,7 @@
+**Pistons face tall task against Knicks but 'Rip' Hamilton has some advice**\
+`Win or lose, the Detroit legend likes what he sees from this iteration of the team: "It's a great group."`\
+https://nytimes.com/athletic/6321724/2025/04/29/richard-hamilton-pistons-knicks-game-5-nba-playoffs/
+
 **Trump Plan to Dismantle Head Start Is Illegal, Lawsuit Argues**\
 `The lawsuit argues that the Trump administration cannot reduce or eliminate Head Start, because the program is funded by Congress.`\
 https://nytimes.com/2025/04/29/us/politics/trump-head-start-lawsuit-aclu.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6320267/2025/04/29/arsenal-psg-champions-league/
 **Thompson: Draymond Green seals Warriors' Game 4 win with the kind of play you'll remember**\
 `You'll remember Draymond Green for a lot of things. One of them is plays like Monday's game-sealer against Alperen Şengün and the Rockets.`\
 https://nytimes.com/athletic/6321654/2025/04/29/draymond-green-warriors-rockets-game-4-alperen-sengun-stop/
-
-**More Than 50,000 Workers Go on Strike as Budget Woes Disrupt L.A. County**\
-`The nation’s most populous county was already juggling legal liabilities, wildfire costs and threats to federal funding. Now its largest union is holding a 48-hour strike.`\
-https://nytimes.com/2025/04/29/us/los-angeles-seiu-union-strike.html
 
