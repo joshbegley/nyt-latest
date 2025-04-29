@@ -1,3 +1,7 @@
+**Trump Threatens Chicago School Funding Over Black Student Success Plan**\
+`The Education Department’s civil rights office is investigating whether the program, which helps Black students do better academically, is racially discriminatory.`\
+https://nytimes.com/2025/04/29/us/politics/trump-chicago-schools-black-students.html
+
 **No Evidence of Cremations at Mexican Ranch, Attorney General Says**\
 `Mexico’s top prosecutor said the ranch, which some groups searching for missing relatives had called an “extermination camp,” had been used by a cartel for training and recruiting.`\
 https://nytimes.com/2025/04/29/world/americas/mexico-extermination-camp.html
@@ -6,7 +10,7 @@ https://nytimes.com/2025/04/29/world/americas/mexico-extermination-camp.html
 `Profit fell 50 percent in the quarter, and the company said one reason was its hiring of additional workers to help its turnaround strategy.`\
 https://nytimes.com/2025/04/29/business/starbucks-earnings.html
 
-**Yankees achieve rare historical feat with back-to-back-to-back homer barrage**\
+**Yankees achieve historic feat with back-to-back-to-back homer barrage**\
 `New York also hit back-to-back-to-back home runs on March 29 against Milwaukee Brewers starter Nestor Cortes Jr. `\
 https://nytimes.com/athletic/6322112/2025/04/29/new-york-yankees-mlb-home-run-history/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6321344/2025/04/29/nba-spurs-stephon-castle-rookie-
 **Panthers' Aaron Ekblad suspended 2 games for hit on Lightning's Brandon Hagel**\
 `Hagel will not be available for Game 5. Plus, Florida defenseman Niko Mikkola has been fined $5,000 for a boarding infraction in Game 4.`\
 https://nytimes.com/athletic/6320962/2025/04/29/panthers-aaron-ekblad-suspension-brandon-hagel/
-
-**Humans’ Wounds Heal Much More Slowly Than Other Mammals’**\
-`We naked apes need Band-Aids, but shedding the fur that speeds healing in other mammals may have helped us evolve other abilities.`\
-https://nytimes.com/2025/04/29/science/wounds-healing-speed-humans.html
 
