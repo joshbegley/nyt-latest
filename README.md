@@ -1,3 +1,11 @@
+**Trump Administration Live Updates: White House Plans to Ease Impact of Car Tariffs**\
+``\
+https://nytimes.com/live/2025/04/29/us/trump-news
+
+**Jalen Green has to get going if the Rockets are to stave off elimination by Warriors**\
+`Golden State has tailored its defensive game plan around neutralizing Green. Can he and Houston find a counter before it's too late?`\
+https://nytimes.com/athletic/6319891/2025/04/29/rockets-jalen-green-playoffs-game-4/
+
 **Cargo That Set Off Blast at Iran Port Was Improperly Documented, Investigators Say**\
 `The death toll from the explosion rose to 70, as officials said the massive blast involved a shipment whose documentation obscured the nature of the substances it carried.`\
 https://nytimes.com/2025/04/29/world/europe/iran-port-explosion.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6318366/2025/04/29/nhl-head-coach-openings/
 **Daulton Varsho’s distinct approach is exactly what the Blue Jays need**\
 `Varsho, who should be activated before Toronto's series against Boston, should bring much-needed pull-side power to the offense.`\
 https://nytimes.com/athletic/6318748/2025/04/29/blue-jays-daulton-varsho-approach/
-
-**MLB Draft scouting: Notes on Riley Quick, Henry Ford, as well as some top names for 2026**\
-`Quick may not be a top-15 pick but looks like a first-rounder, while Ford's production dip could make him a second-round bargain, and more.`\
-https://nytimes.com/athletic/6318106/2025/04/29/mlb-draft-scouting-riley-quick-henry-ford-justin-lebron/
-
-**Tracking team decisions on fifth-year player options for '22 first-rounders**\
-`The deadline for teams to pick up or decline fifth-year options on first-round picks from the 2022 draft is May 1.`\
-https://nytimes.com/athletic/6317969/2025/04/29/nfl-fifth-year-player-options-tracker/
 
