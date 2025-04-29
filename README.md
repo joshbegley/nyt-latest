@@ -1,3 +1,15 @@
+**Leeds announce boardroom changes after promotion, Kinnear's departure**\
+`Robbie Evans has been named managing director and Adam Underwood named sporting director in two of the key promotions.`\
+https://nytimes.com/athletic/6320750/2025/04/29/leeds-robbie-evans-adam-underwood/
+
+**UPS Says It Will Cut 20,000 Jobs in Efficiency Drive**\
+`The move comes as President Trump’s tariffs are reducing shipping volumes and is in addition to 12,000 job cuts last year.`\
+https://nytimes.com/2025/04/29/business/ups-layoffs-trump-tariffs.html
+
+**The Bounce: Jimmy Butler and the Warriors keep forcing the Rockets to miss opportunities**\
+`When the Warriors needed big buckets down the stretch, they trusted Jimmy Butler to push the Rockets near elimination`\
+https://nytimes.com/athletic/6320650/2025/04/29/jimmy-butler-steph-curry-warriors-rockets-nba-playoffs-the-bounce/
+
 **Usyk signs photos of Dubois low blow at news conference ahead of title fight**\
 `"It’s gonna be a bloodbath. I’m going to put all the controversy and nonsense to rest," Dubois said at Tuesday's news conference.`\
 https://nytimes.com/athletic/6320329/2025/04/29/usyk-dubois-boxing-heavyweight-fight/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/29/dining/this-vegetarian-pad-thai-hits-the-spot.htm
 **The Windup: Nerd out on these MLB leaderboards**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6319773/2025/04/29/mlb-leaderboards-sprint-speed-the-windup/
-
-**Hilo, Hawaii**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/things-to-do-hilo
-
-**Valencia, Spain**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/things-to-do-valencia
-
-**gws-japan-timeshares-homes**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/japan-timeshares-homes
 
