@@ -1,3 +1,5 @@
+
+
 **Joey Logano responds to Chipper Jones' criticism after Talladega tirade**\
 `The MLB Hall of Famer posted several critical messages after Logano's critical comments about teammate Austin Cindric at Talladega.`\
 https://nytimes.com/athletic/6321520/2025/04/29/joey-logano-responds-chipper-jones-talladega/
