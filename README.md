@@ -1,3 +1,7 @@
+**Jeff Van Gundy has been the Clippers' not-so-secret weapon on defense all season long**\
+`LA's rise up the defensive ranks begs the question: Could Van Gundy be a head coach again after nearly 20 years?`\
+https://nytimes.com/athletic/6319033/2025/04/29/jeff-van-gundy-clippers-defense-nba-playoffs/
+
 **Shaquille O'Neal joins Sacramento State basketball as GM in unpaid role**\
 `Shaquille O'Neal's joins coach Mike Bibby, the former longtime NBA guard, and his son Shaqir O'Neal at Sacramento State.`\
 https://nytimes.com/athletic/6320368/2025/04/29/shaquille-oneal-general-manager-sacramento-state-mens-basketball/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6319616/2025/04/29/belichick-cbs-interview-girlfrie
 **Liverpool’s Gakpo could face FA action for shirt with religious message**\
 `The Dutchman's “I belong to Jesus” vest drew comparisons to one worn by Kaka in 2007.`\
 https://nytimes.com/athletic/6319970/2025/04/29/cody-gakpo-liverpool-religious-message/
-
-**A Massive, Glow-in-the-Dark Cloud Lurking in Our Cosmic Backyard**\
-`The cloud, named Eos, is chock-full of molecular hydrogen and possibly rife with star-forming potential in the future.`\
-https://nytimes.com/2025/04/29/science/molecular-cloud-eos-stars-milky-way.html
 
