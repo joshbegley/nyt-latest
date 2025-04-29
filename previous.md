@@ -1,3 +1,15 @@
+**How Spain’s Success in Renewable Energy May Have Left It Vulnerable**\
+`The Iberian Peninsula’s widespread blackout raises questions about the resilience of the electric power infrastructure in the two countries — and to an extent, the rest of Europe.`\
+https://nytimes.com/2025/04/29/business/spain-renewable-energy-power-grid.html
+
+**Submit your questions for the college basketball mailbag**\
+`<p>It&#8217;s the offseason, but as always, there&#8217;s much to sort out.`\
+https://nytimes.com/athletic/6321101/2025/04/29/submit-your-questions-for-the-college-basketball-mailbag-5/
+
+**Everton head of recruitment Purdy set to leave club**\
+`Purdy had initially been earmarked for the new role of head of player identification as part of a revamped recruitment structure.`\
+https://nytimes.com/athletic/6320756/2025/04/29/everton-dan-purdy-exit/
+
 **Why NASCAR teams said no to the 'run what you brung' All-Star Race idea**\
 `NASCAR proposed allowing teams to make modifications to the Next Gen car for this year's All-Star Race. Here's why the teams don't love it.`\
 https://nytimes.com/athletic/6320527/2025/04/29/nascar-all-star-race-next-gen-car-alterations/
@@ -7,7 +19,7 @@ https://nytimes.com/athletic/6320527/2025/04/29/nascar-all-star-race-next-gen-ca
 https://nytimes.com/2025/04/29/us/supreme-court-fbi-raid.html
 
 **Serving Up Satisfaction in the Kitchen and the Bedroom**\
-`“Câreme,” a new Apple TV+ series, is based on the life of a 19th-century society chef who delighted diners and lovers. It’s very French.`\
+`“Carême,” a new Apple TV+ series, is based on the life of a 19th-century society chef who delighted diners and lovers. It’s very French.`\
 https://nytimes.com/2025/04/29/arts/television/careme-french-chef.html
 
 **Kings hire Doug Christie as permanent head coach**\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/29/theater/all-the-worlds-a-stage-rheology-review.ht
 **Corporation for Public Broadcasting Sues White House to Block Board Firings**\
 `The media organization said that the White House emailed three of the company’s five directors on Monday, telling them that their positions had been terminated.`\
 https://nytimes.com/2025/04/29/business/media/corporation-public-broadcasting-firings.html
-
-**‘Carême’ Is a Sexy Historical Kitchen Drama**\
-`The series, about a celebrity chef in Napoleonic France, has a loose relationship to historical facts. But that frees it to be spry and fun.`\
-https://nytimes.com/2025/04/29/arts/television/careme-apple-tv-plus.html
-
-**A Mother and Father Were Deported. What Happened to Their Toddler?**\
-`The Trump administration sent the mother of a 2-year-old to Venezuela and the father to a Salvadoran prison. Their daughter remains somewhere in the United States.`\
-https://nytimes.com/2025/04/29/world/americas/family-deported-trump-venezuela-el-salvador.html
-
-**Commanders shuffle kickers by signing Matt Gay, releasing Zane Gonzalez: Sources**\
-`Gay, who made the Pro Bowl in 2021, was released by the Indianapolis Colts earlier this month.`\
-https://nytimes.com/athletic/6320796/2025/04/29/matt-gay-commanders-signing-zane-gonzalez-released/
 

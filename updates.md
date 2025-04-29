@@ -1,3 +1,19 @@
+**How Spain’s Success in Renewable Energy May Have Left It Vulnerable**\
+`The Iberian Peninsula’s widespread blackout raises questions about the resilience of the electric power infrastructure in the two countries — and to an extent, the rest of Europe.`\
+https://nytimes.com/2025/04/29/business/spain-renewable-energy-power-grid.html
+
+**Submit your questions for the college basketball mailbag**\
+`<p>It&#8217;s the offseason, but as always, there&#8217;s much to sort out.`\
+https://nytimes.com/athletic/6321101/2025/04/29/submit-your-questions-for-the-college-basketball-mailbag-5/
+
+**Everton head of recruitment Purdy set to leave club**\
+`Purdy had initially been earmarked for the new role of head of player identification as part of a revamped recruitment structure.`\
+https://nytimes.com/athletic/6320756/2025/04/29/everton-dan-purdy-exit/
+
+**Serving Up Satisfaction in the Kitchen and the Bedroom**\
+`“Carême,” a new Apple TV+ series, is based on the life of a 19th-century society chef who delighted diners and lovers. It’s very French.`\
+https://nytimes.com/2025/04/29/arts/television/careme-french-chef.html
+
 **Why NASCAR teams said no to the 'run what you brung' All-Star Race idea**\
 `NASCAR proposed allowing teams to make modifications to the Next Gen car for this year's All-Star Race. Here's why the teams don't love it.`\
 https://nytimes.com/athletic/6320527/2025/04/29/nascar-all-star-race-next-gen-car-alterations/
