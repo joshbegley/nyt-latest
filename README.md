@@ -1,3 +1,19 @@
+**A Contender for the Papacy in the Mold of Francis**\
+`Cardinal Luis Tagle of the Philippines is known as the “Asian Francis.” But he has been criticized for not being vocal enough about his country’s brutal drug war and clerical sex abuse.`\
+https://nytimes.com/2025/04/29/world/asia/luis-tagle-asian-pope.html
+
+**Trump’s Tariffs Put China’s E-Commerce Superpowers to the Test**\
+`Companies like Alibaba that built China’s world-leading online shopping sector are now helping its sellers find markets beyond the United States.`\
+https://nytimes.com/2025/04/29/world/asia/trump-tariffs-china.html
+
+**Connections: Sports Edition Coach: Hints for April 29, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6319047/2025/04/29/connections-sports-edition-hints-for-april-29-2025/
+
+**Corrections: April 29, 2025**\
+`Corrections that appeared in print on Tuesday, April 29, 2025.`\
+https://nytimes.com/2025/04/29/pageoneplus/corrections-april-29-2025.html
+
 **Quote of the Day: Terry Francona Can’t Stay Away**\
 `Quotation of the Day for Tuesday, April 29, 2025.`\
 https://nytimes.com/2025/04/28/pageoneplus/quote-of-the-day-terry-francona-cant-stay-away.html
@@ -21,21 +37,4 @@ https://nytimes.com/live/2025/04/28/us/trump-news/heres-what-happened-on-monday
 **White House Looks to Take Steps to Ease Pain From Car Tariffs**\
 `The planned concessions to give automakers more time to relocate production to the United States would still leave substantial tariffs on imported cars and car parts.`\
 https://nytimes.com/2025/04/28/us/politics/trump-tariffs-cars-auto.html
-
-**What Do You Want to Know About Student Loans?**\
-`Send us your questions about student loans. We’ll answer some in an upcoming newsletter.`\
-https://nytimes.com/2025/04/28/briefing/what-do-you-want-to-know-about-student-loans.html
-
-**NBA playoffs takeaways: Cavs sweep Heat, hand Miami another record defeat**\
-`The Cavaliers will play the winner of the Pacers-Bucks series, which Indiana currently leads 3-1.`\
-https://nytimes.com/athletic/6319284/2025/04/28/nba-playoffs-scores-results-cavaliers-heat-rockets-warriors-takeaways/
-
-**Here’s the latest.**\
-`By Matina Stevis-Gridneff`\
-https://nytimes.com/live/2025/04/28/world/canada-election/heres-the-latest
-
-**Panthers complete late comeback, push Lightning to brink of elimination: Takeaways**\
-`Florida pulled off the late rally, scoring twice in 11 seconds to take a 3-1 series lead over Tampa Bay. 
-`\
-https://nytimes.com/athletic/6319274/2025/04/28/panthers-lightning-nhl-playoffs-2025-game-4-takeaways/
 
