@@ -1,3 +1,7 @@
+**Federal Watchdog Reveals Dozens of Inquiries Into Trump’s Withholding of Funds**\
+`The investigations by the Government Accountability Office come as the White House looks to expand its power over the federal budget.`\
+https://nytimes.com/2025/04/29/us/politics/trump-funds-gao.html
+
 **Bergvall signs new Tottenham contract through to 2031**\
 `Bergvall rejected an offer from Barcelona to join Spurs from Swedish side Djurgarden in February 2024 for £8.5million.`\
 https://nytimes.com/athletic/6321356/2025/04/29/lucas-bergvall-tottenham-contract-length/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/29/style/quinceanera-y2k-los-angeles.html
 **6 (Genre-Smashing) New Songs You Should Hear Now**\
 `Hit play on Sleep Token, Cortisa Star, Bon Iver and more.`\
 https://nytimes.com/2025/04/29/arts/music/genre-smashing-new-songs.html
-
-**Mellon Foundation Announces $15 Million for Humanities Councils**\
-`The emergency funding came after the National Endowment for the Humanities canceled most existing grants, part of a pivot toward President Trump’s priorities.`\
-https://nytimes.com/2025/04/29/arts/mellon-foundation-humanities-endowment.html
 
