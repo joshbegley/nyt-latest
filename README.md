@@ -1,3 +1,7 @@
+**Shaquille O'Neal joins Sacramento State basketball as GM in unpaid role**\
+`Shaquille O'Neal's joins coach Mike Bibby, the former longtime NBA guard, and his son Shaqir O'Neal at Sacramento State.`\
+https://nytimes.com/athletic/6320368/2025/04/29/shaquille-oneal-general-manager-sacramento-state-mens-basketball/
+
 **In Breakneck 2nd Term, Trump Turns to Falsehoods to Justify His Agenda**\
 `The president’s dizzying efforts to reconfigure the global economy, reshape the federal government and restrict immigration have been undergirded by a nonstop distortion of facts.`\
 https://nytimes.com/2025/04/29/us/politics/trump-100-days-fact-check.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6319970/2025/04/29/cody-gakpo-liverpool-religious-m
 **A Massive, Glow-in-the-Dark Cloud Lurking in Our Cosmic Backyard**\
 `The cloud, named Eos, is chock-full of molecular hydrogen and possibly rife with star-forming potential in the future.`\
 https://nytimes.com/2025/04/29/science/molecular-cloud-eos-stars-milky-way.html
-
-**Pac-12 lands CBS, ESPN and The CW for 13 2025 home football games**\
-`Oregon State and Washington State will have two games on CBS, two games on ESPN and nine on The CW in 2025.`\
-https://nytimes.com/athletic/6319674/2025/04/29/pac-12-football-tv-deal-cbs-espn-cw/
 

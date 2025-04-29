@@ -1,3 +1,15 @@
+**In Breakneck 2nd Term, Trump Turns to Falsehoods to Justify His Agenda**\
+`The president’s dizzying efforts to reconfigure the global economy, reshape the federal government and restrict immigration have been undergirded by a nonstop distortion of facts.`\
+https://nytimes.com/2025/04/29/us/politics/trump-100-days-fact-check.html
+
+**Clashes Erupt in Damascus Outskirts, Killing 9**\
+`The sectarian-tinged violence was directed at a suburb of the Syrian capital with a large population from the Druse minority. Local Druse leaders said they held the government responsible.`\
+https://nytimes.com/2025/04/29/world/middleeast/syria-clashes-damascus-druse.html
+
+**Severe Weather Threatens Central and Eastern U.S.**\
+`Forecasters warned of damaging winds, hailstones bigger than baseballs and flash floods in parts of an area stretching from Texas to upstate New York.`\
+https://nytimes.com/2025/04/29/weather/severe-weather-texas-midwest-new-york.html
+
 **NFL team exec: Shedeur Sanders treated pre-draft visits ‘as recruiting trips, not job interviews’**\
 `The Colorado quarterback was eventually taken in the fifth round of last week’s draft.`\
 https://nytimes.com/athletic/6320300/2025/04/29/shedeur-sanders-browns-draft-interviews/

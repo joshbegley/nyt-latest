@@ -1,3 +1,15 @@
+**In Breakneck 2nd Term, Trump Turns to Falsehoods to Justify His Agenda**\
+`The president’s dizzying efforts to reconfigure the global economy, reshape the federal government and restrict immigration have been undergirded by a nonstop distortion of facts.`\
+https://nytimes.com/2025/04/29/us/politics/trump-100-days-fact-check.html
+
+**Clashes Erupt in Damascus Outskirts, Killing 9**\
+`The sectarian-tinged violence was directed at a suburb of the Syrian capital with a large population from the Druse minority. Local Druse leaders said they held the government responsible.`\
+https://nytimes.com/2025/04/29/world/middleeast/syria-clashes-damascus-druse.html
+
+**Severe Weather Threatens Central and Eastern U.S.**\
+`Forecasters warned of damaging winds, hailstones bigger than baseballs and flash floods in parts of an area stretching from Texas to upstate New York.`\
+https://nytimes.com/2025/04/29/weather/severe-weather-texas-midwest-new-york.html
+
 **NFL team exec: Shedeur Sanders treated pre-draft visits ‘as recruiting trips, not job interviews’**\
 `The Colorado quarterback was eventually taken in the fifth round of last week’s draft.`\
 https://nytimes.com/athletic/6320300/2025/04/29/shedeur-sanders-browns-draft-interviews/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/29/science/molecular-cloud-eos-stars-milky-way.html
 **Pac-12 lands CBS, ESPN and The CW for 13 2025 home football games**\
 `Oregon State and Washington State will have two games on CBS, two games on ESPN and nine on The CW in 2025.`\
 https://nytimes.com/athletic/6319674/2025/04/29/pac-12-football-tv-deal-cbs-espn-cw/
-
-**Nottingham Forest Q&A: Brentford preview, injury latest, Nuno press conference**\
-`Brentford visit the City Ground on Thursday, as Nuno’s side look to shake off the disappointment of their semi-final defeat to Man City`\
-https://nytimes.com/athletic/6320011/2025/04/29/nottingham-forest-qa-brentford-preview-injury-latest-nuno-press-conference/
-
-**Doing Business Casual With a Bomber Jacket**\
-`A shirt and tie seemed less stuffy worn with the outerwear.`\
-https://nytimes.com/2025/04/29/style/street-style-look-business-casual-bomber-jacket.html
-
-**Adidas Warns Sneakers Will Cost More in the U.S. as Trump’s Tariffs Take Effect**\
-`The chief of the German sportswear giant said that unpredictability surrounding the tariffs prevented the company from issuing a full-year forecast, but he predicted a price increase for American consumers.`\
-https://nytimes.com/2025/04/29/business/trump-tariffs-adidas-shoes.html
 
