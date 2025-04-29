@@ -1,3 +1,7 @@
+**Venture Firm Thrive Bets on Buying Firms That Can Benefit From A.I.**\
+`The investor is raising money to start and build companies infused with artificial intelligence, then use them to buy more.`\
+https://nytimes.com/2025/04/29/business/dealbook/thrive-holdings-rollup-ai.html
+
 **Trump Administration Live Updates: White House Plans to Ease Impact of Car Tariffs**\
 ``\
 https://nytimes.com/live/2025/04/29/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6319468/2025/04/29/tigers-mariners-success-cubs-wri
 **Which NHL coach opening can sell a shot at the Stanley Cup soonest? Examining the 7 jobs**\
 `Just as the seven NHL teams with coaching vacancies are evaluating their options, the most-coveted coaches will be analyzing theirs, too.`\
 https://nytimes.com/athletic/6318366/2025/04/29/nhl-head-coach-openings/
-
-**Daulton Varsho’s distinct approach is exactly what the Blue Jays need**\
-`Varsho, who should be activated before Toronto's series against Boston, should bring much-needed pull-side power to the offense.`\
-https://nytimes.com/athletic/6318748/2025/04/29/blue-jays-daulton-varsho-approach/
 
