@@ -1,3 +1,7 @@
+**India Accuses Pakistan of Supporting Terrorism. Here’s What We Know.**\
+`India renewed its claims after a deadly terror attack last week in Kashmir, a territory that it has long fought over with Pakistan.`\
+https://nytimes.com/2025/04/29/world/asia/india-pakistan-kashmir-terrorism.html
+
 **‘You See What’s Happening in America With Elon Musk? We Need the Same Thing Happening Here.’**\
 `Much of the British political class laughed at Nigel Farage in 2016. It isn’t laughing now.`\
 https://nytimes.com/2025/04/29/opinion/reform-uk-nigel-farage.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6317561/2025/04/29/athletic-club-basque-only-policy
 **The secrets of a Wembley groundsman: A robot shooting UV light and an on-call weather forecaster**\
 `The pitch at the national stadium was once the source of regular player complaints – but not now. This is how it is kept in prime condition`\
 https://nytimes.com/athletic/6315379/2025/04/29/wembley-groundsman-secrets/
-
-**Predicting next season's Premier League title winners - far too early**\
-`Who is in the frame to win the 2025-26 title? With some heavy caveats, here are our predictions... `\
-https://nytimes.com/athletic/6296322/2025/04/29/premier-league-title-predictions-next-season/
 
