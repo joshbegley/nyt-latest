@@ -1,3 +1,15 @@
+**Kings hire Doug Christie as permanent head coach**\
+`Christie has been on Sacramento's coaching staff since 2021 and was named interim coach after Mike Brown was fired in December.`\
+https://nytimes.com/athletic/6320924/2025/04/29/sacramento-kings-doug-christie-coach/
+
+**A $10 T-Shirt Could Become a $24.50 T-Shirt as Key Tariff Loophole Closes**\
+`Starting Friday, goods from China worth up to $800 will be subject to tariffs and more paperwork under new Trump administration rules.`\
+https://nytimes.com/2025/04/29/business/trump-tariffs-shein-temu-de-minimis.html
+
+**In Two New Works, the Power of Generational Connections**\
+`Two worlds of promise: “All the World’s a Stage,” a musical by Adam Gwon, and “Rheology,” Shayok Misha Chowdhury’s follow-up to “Public Obscenities.”`\
+https://nytimes.com/2025/04/29/theater/all-the-worlds-a-stage-rheology-review.html
+
 **Corporation for Public Broadcasting Sues White House to Block Board Firings**\
 `The media organization said that the White House emailed three of the company’s five directors on Monday, telling them that their positions had been terminated.`\
 https://nytimes.com/2025/04/29/business/media/corporation-public-broadcasting-firings.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/29/world/europe/spain-power-outage-blackout.html
 **Maple Leafs roster updates vs. Senators: Likely lines and big questions for Game 5**\
 `The Maple Leafs have a chance to close out their series with the Senators at home early on.`\
 https://nytimes.com/athletic/6320384/2025/04/29/maple-leafs-roster-lines-game-5-nhl-playoffs/
-
-**Jane Gardam, Witty Novelist of a Waning British Empire, Dies at 96**\
-`“The Queen of the Tambourine,” “Old Filth” and other fiction vividly captured both working-class and aristocratic Britain in the last years of the colonial era.`\
-https://nytimes.com/2025/04/29/books/jane-gardam-dead.html
-
-**Explained: Salah, Liverpool's Google Pixel deal and a divisive selfie**\
-`What seemed a moment of unscripted joy had a commercial side to it - so what are the rules and what has been the reaction?`\
-https://nytimes.com/athletic/6320625/2025/04/29/mohamed-salah-liverpool-selfie-google-pixel/
-
-**How Trump May Unintentionally Cut Carbon Emissions**\
-`Despite his administration’s lack of concern about climate change, a recession would give the atmosphere a break. At least in the short term.`\
-https://nytimes.com/2025/04/29/business/economy/trump-recession-carbon-emissions.html
 
