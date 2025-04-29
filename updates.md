@@ -1,3 +1,11 @@
+**No Evidence of Cremations at Mexican Ranch, Attorney General Says**\
+`Mexico’s top prosecutor said the ranch, which some groups searching for missing relatives had called an “extermination camp,” had been used by a cartel for training and recruiting.`\
+https://nytimes.com/2025/04/29/world/americas/mexico-extermination-camp.html
+
+**Starbucks Profit Drops, but Leaders Say Turnaround Is Working**\
+`Profit fell 50 percent in the quarter, and the company said one reason was its hiring of additional workers to help its turnaround strategy.`\
+https://nytimes.com/2025/04/29/business/starbucks-earnings.html
+
 **Yankees achieve rare historical feat with back-to-back-to-back homer barrage**\
 `New York also hit back-to-back-to-back home runs on March 29 against Milwaukee Brewers starter Nestor Cortes Jr. `\
 https://nytimes.com/athletic/6322112/2025/04/29/new-york-yankees-mlb-home-run-history/
