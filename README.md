@@ -1,3 +1,15 @@
+**Cargo That Set Off Blast at Iran Port Was Improperly Documented, Investigators Say**\
+`The death toll from the explosion rose to 70, as officials said the massive blast involved a shipment whose documentation obscured the nature of the substances it carried.`\
+https://nytimes.com/2025/04/29/world/europe/iran-port-explosion.html
+
+**George Kittle announces 4-year extension with 49ers, becomes highest-paid TE ever**\
+`Kittle, who led San Francisco in receiving yards in 2024, has been a six-time Pro Bowl selection over eight seasons. `\
+https://nytimes.com/athletic/6312439/2025/04/29/george-kittle-49ers-extension-tight-end/
+
+**The 15 key moments you may have forgotten in Liverpool's title win**\
+`From rivals' injuries to inspired substitutions and dramatic clearances, these 'minor' moments have been instrumental to this title win`\
+https://nytimes.com/athletic/6284146/2025/04/29/liverpool-title-win-key-moments/
+
 **Madrid’s Rudiger to miss around six weeks after knee surgery**\
 `The 32-year-old has been a staple of Carlo Ancelotti’s side this season, featuring 49 times in all competitions.`\
 https://nytimes.com/athletic/6320013/2025/04/29/real-madrid-rudiger-injury-update/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6318106/2025/04/29/mlb-draft-scouting-riley-quick-h
 **Tracking team decisions on fifth-year player options for '22 first-rounders**\
 `The deadline for teams to pick up or decline fifth-year options on first-round picks from the 2022 draft is May 1.`\
 https://nytimes.com/athletic/6317969/2025/04/29/nfl-fifth-year-player-options-tracker/
-
-**Damian Lillard's torn Achilles sends a wave of sadness through Portland: 'We all still care'**\
-`Nowhere outside of Milwaukee was Damian Lillard’s injury felt more than in Portland, which still holds onto its former star tightly.`\
-https://nytimes.com/athletic/6319348/2025/04/29/damian-lillard-achilles-injury-blazers-legacy/
-
-**An underrated NBA defensive move popularized by a Pistons great: Pulling the chair**\
-`“I shoulda coined that phrase and got money every time I hear it,” Mahorn said of his masterful style of defense with a fun name.`\
-https://nytimes.com/athletic/6310989/2025/04/29/an-underrated-nba-defensive-move-popularized-by-a-pistons-great-pulling-the-chair/
-
-**Coffee with Friedkin and help from Mavericks media team - how Kidd became part of Everton**\
-`The NBA legend is now part of Everton's ownership group. Will that help the club build their brand in the U.S?`\
-https://nytimes.com/athletic/6317926/2025/04/29/jason-kidd-everton-dallas-mavericks-nba/
 
