@@ -1,3 +1,27 @@
+**After an Awkward Photo, Whitmer Coaxes a Win for Michigan Out of Trump**\
+`Weeks after she hid from the cameras in the Oval Office, Gretchen Whitmer welcomed the president to her state as he delivered the federal funding she had sought for an air base.`\
+https://nytimes.com/2025/04/29/us/politics/whitmer-trump-michigan-selfridge.html
+
+**Wednesday Briefing: 100 Days of Trump**\
+`Plus, advice on how to be happy.`\
+https://nytimes.com/2025/04/29/briefing/trump-100-carney-canada-election-vietnam-50-years.html
+
+**Judge Rejects Lawsuit With Dragon Logo, Calling it ‘Juvenile and Impertinent’**\
+`A lawyer said he had used the cartoon image of a dragon in a business suit as a logo for his firm, Dragon Lawyers, to symbolize “aggressive representation.”`\
+https://nytimes.com/2025/04/29/us/dragon-lawyer-lawsuit.html
+
+**The M.T.A. Gets $68 Billion in the State Budget. What Will Riders Get?**\
+`New York State has agreed to fully fund the transit authority’s five-year capital plan. Threats from the federal government could still lead to a shortfall.`\
+https://nytimes.com/2025/04/29/nyregion/mta-budget.html
+
+**Trump Is About to Steal My Friend’s Christmas — and Yours**\
+`A disappointed supporter reflects on the madness in the president’s method.`\
+https://nytimes.com/2025/04/29/opinion/tariffs-business-trump-voter.html
+
+**Technology glitches mar second day of testimony at Hockey Canada trial**\
+`The Crown showed jurors surveillance videos and at least one photo from social media during Tuesday's Hockey Canada trial proceedings.`\
+https://nytimes.com/athletic/6321232/2025/04/29/hockey-canada-sexual-assault-trial-surveillance-video/
+
 **The Briefing: Arsenal 0 PSG 1: Dembele, Donnarumma leave Arteta's side facing daunting Paris trip**\
 `Our writers break down the action from the Champions League semi-final first leg at the Emirates.`\
 https://nytimes.com/athletic/6320267/2025/04/29/arsenal-psg-champions-league/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/04/29/us/los-angeles-seiu-union-strike.html
 **Real Madrid's David Alaba suffers knee injury setback**\
 `Alaba joins Antonio Rudiger, Ferland Mendy, Eder Militao and Dani Carvajal among Madrid's defensive absentees.`\
 https://nytimes.com/athletic/6321709/2025/04/29/david-alaba-real-madrid-injury-update/
-
-**West Coast Ports Brace for China Tariffs to Dent Import Volume Within Days**\
-`Large importers, including retailers and manufacturers, paused imports from China this month amid an escalating trade war. Ports are now poised to feel the fallout.`\
-https://nytimes.com/2025/04/29/business/tariffs-china-ports-imports.html
-
-**What Do You Think of Trump’s First 100 Days?**\
-`How do you feel about how the Trump administration is transforming America and its place in the world?`\
-https://nytimes.com/2025/04/29/learning/what-do-you-think-of-trumps-first-100-days.html
-
-**New York Bans Smartphones in Schools, Joining National Movement**\
-`Gov. Kathy Hochul argued that the “bell-to-bell” ban — which restricts the devices during class, lunch and other parts of school — would help prevent disruption and cyberbullying.`\
-https://nytimes.com/2025/04/29/nyregion/nyc-schools-cellphone-ban.html
-
-**Days After Trump Commits to Seabed Mining, Two Sides Face Off**\
-`At a congressional hearing, one executive welcomed President Trump’s “starting gun” to begin mining. Democrats and Republicans clashed over environmental and business concerns.`\
-https://nytimes.com/2025/04/29/climate/seabed-mining-trump-congress.html
-
-**Dramatic Video Shows a Speedboat Flipping Through the Air at 200 M.P.H.**\
-`A widely shared video of the Desert Storm Race on Lake Havasu in Arizona over the weekend showed the high performance boat flying through the air, doing flips.`\
-https://nytimes.com/2025/04/29/us/speedboat-crash-lake-havasu-arizona.html
-
-**Speedboat Somersaults Through the Air During Race on Arizona Lake**\
-`Spectators gasped as the 38-foot Catamaran flipped through the air during a Desert Storm boat race event on Lake Havasu in Arizona.`\
-https://nytimes.com/video/sports/100000010136496/speedboat-crash-attempting-high-speeds.html
 
