@@ -1,3 +1,7 @@
+**Paramount Board Clears Possible Path For Settling Trump’s ‘60 Minutes’ Lawsuit**\
+`Paramount’s interest in settling has dismayed CBS’s news division. The executive producer of “60 Minutes” abruptly resigned last week.`\
+https://nytimes.com/2025/04/29/business/media/paramount-cbs-60-minutes-trump-lawsuit.html
+
 **A New Study Raises Alarms About Plastics and Heart Disease. Here’s What to Know.**\
 `The paper linked phthalates, commonly found in plastics, to 350,000 deaths globally. But the data come with caveats.`\
 https://nytimes.com/2025/04/29/well/phthalates-heart-disease.html
