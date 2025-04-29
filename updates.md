@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6319274/2025/04/28/panthers-lightning-nhl-playoffs-2025-game-4-takeaways/
 
+**Panthers complete late comeback, push Lightning to brink of elimination: Takeaways**\
+`Florida pulled off the late rally, scoring twice in 11 seconds to take a 3-1 series lead over Tampa Bay. 
+`\
+https://nytimes.com/athletic/6319274/2025/04/28/panthers-lightning-nhl-playoffs-2025-game-4-takeaways/
+
 **Here’s what happened on Monday.**\
 `By The New York Times`\
 https://nytimes.com/live/2025/04/28/us/trump-news/heres-what-happened-on-monday
