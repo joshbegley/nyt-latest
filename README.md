@@ -1,4 +1,12 @@
-**Stuck in a Dentist’s Chair, and Other Tales From Spain’s and Portugal’s Outage**\
+**Commanders shuffle kickers by signing Matt Gay, releasing Zane Gonzalez: Sources**\
+`Gay, who made the Pro Bowl in 2021, was released by the Indianapolis Colts earlier this month.`\
+https://nytimes.com/athletic/6320796/2025/04/29/matt-gay-commanders-signing-zane-gonzalez-released/
+
+**Trump’s China Tariffs Are Already Jeopardizing Christmas**\
+`Toy makers and stores are freezing holiday orders, predicting shortages and higher prices. Some are consulting bankruptcy lawyers, fearing their firms won’t survive.`\
+https://nytimes.com/2025/04/29/business/trump-tariffs-christmas-china.html
+
+**Stuck in a Dentist’s Chair, and Other Blackout Tales From Spain and Portugal**\
 `Even as electricity was restored across Spain and Portugal after a daylong blackout, residents tried to make sense of 18 hours of the “insanity.”`\
 https://nytimes.com/2025/04/29/world/europe/spain-power-outage-blackout.html
 
@@ -10,7 +18,7 @@ https://nytimes.com/athletic/6320384/2025/04/29/maple-leafs-roster-lines-game-5-
 `“The Queen of the Tambourine,” “Old Filth” and other fiction vividly captured both working-class and aristocratic Britain in the last years of the colonial era.`\
 https://nytimes.com/2025/04/29/books/jane-gardam-dead.html
 
-**Explained: Salah, Liverpool's Google Pixel deal and a divisive 'selfie'**\
+**Explained: Salah, Liverpool's Google Pixel deal and a divisive selfie**\
 `What seemed a moment of unscripted joy had a commercial side to it - so what are the rules and what has been the reaction?`\
 https://nytimes.com/athletic/6320625/2025/04/29/mohamed-salah-liverpool-selfie-google-pixel/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/29/business/energy-environment/trump-lng-ships-china
 **Watch: Thunder? Cavaliers? Which team had the most impressive NBA playoff sweep?**\
 `"The Athletic NBA Daily" discussed whether the Thunder or the Cavaliers had the most impressive first-round playoff performance.`\
 https://nytimes.com/athletic/6320172/2025/04/29/nba-daily-thunder-cavs-nba-playoff-sweep/
-
-**Trump Administration Eases Ban for U.S. Diplomats at Vietnam War Anniversary**\
-`The administration had said that no senior U.S. envoys could attend the events marking 50 years after the war’s end. On Tuesday, the U.S. consul general was seen at a reception for the anniversary.`\
-https://nytimes.com/2025/04/29/world/asia/vietnam-war-anniversary-us-diplomats.html
-
-**Trump’s 100 Days of Upending Climate Policy**\
-`In just a few months, President Trump’s moves have exceeded the worst fears of climate activists.`\
-https://nytimes.com/2025/04/29/climate/trumps-100-days-climate-policy.html
 
