@@ -1,3 +1,7 @@
+**U.S. Textile Industry Rejects Bessent’s Suggestion Boom Times Are Over**\
+`A textile trade association that has backed President Trump’s trade strategy took issue with Treasury Secretary Scott Bessent’s remark that emphasized “precision manufacturing” over clothing and fabrics.`\
+https://nytimes.com/2025/04/29/us/politics/scott-bessent-us-textile-industry.html
+
 **What Steve Yzerman's season-ending comments revealed about Red Wings' offseason plans**\
 `Yzerman indicated a willingness to pursue "prominent" free agents, addressed his handling of the trade deadline and much more.`\
 https://nytimes.com/athletic/6321541/2025/04/29/red-wings-steve-yzerman-offseason/
