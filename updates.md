@@ -1,3 +1,11 @@
+**How California Sanctuary Policies Are Faring Under Pressure From Trump**\
+`State and city officials in California are vowing to uphold protections for immigrants, even as President Trump threatens more action against their jurisdictions.`\
+https://nytimes.com/2025/04/28/us/sanctuary-city-california-trump.html
+
+**When will we know the results?**\
+`By Ian Austen`\
+https://nytimes.com/live/2025/04/28/world/canada-election/when-will-we-know-the-results
+
 **What to Know About the 3 U.S. Citizen Children Removed to Honduras**\
 `Lawyers say the families wanted the children to remain in the United States. The Trump administration says the mothers requested the children’s removal. The dispute has constitutional stakes.`\
 https://nytimes.com/2025/04/28/us/politics/us-citizen-children-deported.html

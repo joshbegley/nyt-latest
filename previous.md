@@ -1,3 +1,11 @@
+**How California Sanctuary Policies Are Faring Under Pressure From Trump**\
+`State and city officials in California are vowing to uphold protections for immigrants, even as President Trump threatens more action against their jurisdictions.`\
+https://nytimes.com/2025/04/28/us/sanctuary-city-california-trump.html
+
+**When will we know the results?**\
+`By Ian Austen`\
+https://nytimes.com/live/2025/04/28/world/canada-election/when-will-we-know-the-results
+
 **What to Know About the 3 U.S. Citizen Children Removed to Honduras**\
 `Lawyers say the families wanted the children to remain in the United States. The Trump administration says the mothers requested the children’s removal. The dispute has constitutional stakes.`\
 https://nytimes.com/2025/04/28/us/politics/us-citizen-children-deported.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/04/28/us/trump-news/the-trump-administration-accus
 **Climate change, once a big issue, fades from Canada’s election.**\
 `By Max Bearak`\
 https://nytimes.com/live/2025/04/28/world/canada-election/climate-change-once-a-big-issue-fades-from-canadas-election
-
-**At Jose Altuve's request, the Astros switch leadoff hitters in search of a spark**\
-`Altuve suggested a switch to Houston's lineup and called for the Astros to sign Jeremy Peña to a contract extension.`\
-https://nytimes.com/athletic/6318992/2025/04/28/astros-jose-altuve-jeremy-pena-leadoff-hitter/
-
-**State Trial Begins Over Police Beating of Tyre Nichols in Memphis**\
-`After a mixed verdict in federal court, Tennessee prosecutors began presenting their case against three former Memphis officers charged with second-degree murder.`\
-https://nytimes.com/2025/04/28/us/politics/tyre-nichols-death-police-trial-memphis.html
 

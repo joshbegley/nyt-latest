@@ -1,3 +1,15 @@
+**NBA considering All-Star tweak after success of NHL's 4 Nations Face-Off**\
+`On the heels of the NHL's successful All-Star pivot to the 4 Nations Face-Off, the NBA is considering a similar international event.`\
+https://nytimes.com/athletic/6319294/2025/04/28/nba-considering-international-all-star-change/
+
+**Canadiens playoff notebook: Being counted out feels familiar, line matchups and calm**\
+`Montreal has a word in mind to help erase 3-1 deficit. Also, Lars Eller could be an inspiration for Alex Newhook.`\
+https://nytimes.com/athletic/6319238/2025/04/28/montreal-canadiens-nhl-playoffs-capitals-game-5/
+
+**Despair Blankets Scene of Car-Ramming Attack at Festival**\
+`Filipinos in Vancouver returned to a neighborhood to mourn the 11 people killed in a weekend attack.`\
+https://nytimes.com/2025/04/28/world/canada/vancouver-festival-attack.html
+
 **How California Sanctuary Policies Are Faring Under Pressure From Trump**\
 `State and city officials in California are vowing to uphold protections for immigrants, even as President Trump threatens more action against their jurisdictions.`\
 https://nytimes.com/2025/04/28/us/sanctuary-city-california-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/28/us/child-care-crash-chatham-illinois.html
 **Browns agree to deal with WR Diontae Johnson: Source**\
 `Cleveland will mark Johnson's third stop in the AFC North and his fifth team in 14 months. `\
 https://nytimes.com/athletic/6319230/2025/04/28/diontae-johnson-browns-deal-nfl/
-
-**Why the Golden Knights, a 'high hockey-IQ bunch,' are comfortable in tight series vs. Wild**\
-`The Golden Knights’ projected Game 5 lineup has a combined total of 1,358 career playoff games, compared to Minnesota’s 777.`\
-https://nytimes.com/athletic/6319218/2025/04/28/golden-knights-wild-game-5/
-
-**The Trump administration accuses the University of Pennsylvania of violating sex discrimination laws.**\
-`The Department of Education’s findings stem from an investigation into the university’s decision to let Lia Thomas, a transgender woman, compete on the swim team. Penn has said it was following N.C.A.A. rules.`\
-https://nytimes.com/live/2025/04/28/us/trump-news/the-trump-administration-accuses-penn-of-violating-sex-discrimination-laws
-
-**Climate change, once a big issue, fades from Canada’s election.**\
-`By Max Bearak`\
-https://nytimes.com/live/2025/04/28/world/canada-election/climate-change-once-a-big-issue-fades-from-canadas-election
 
