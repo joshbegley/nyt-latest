@@ -1,3 +1,7 @@
+**Harvard, Under Pressure, Revamps D.E.I. Office**\
+`The move comes as President Trump has tried to abolish D.E.I. programs at universities.`\
+https://nytimes.com/2025/04/28/us/politics/harvard-dei-law-review.html
+
 **Dodgers' Tyler Glasnow goes on IL as confusion about his injury remains**\
 `The right-hander attributed the discomfort to changes he made in his delivery to try to keep his elbow healthy.`\
 https://nytimes.com/athletic/6319398/2025/04/28/dodgers-tyler-glasnow-injury-soreness/

@@ -1,3 +1,7 @@
+**Harvard, Under Pressure, Revamps D.E.I. Office**\
+`The move comes as President Trump has tried to abolish D.E.I. programs at universities.`\
+https://nytimes.com/2025/04/28/us/politics/harvard-dei-law-review.html
+
 **Dodgers' Tyler Glasnow goes on IL as confusion about his injury remains**\
 `The right-hander attributed the discomfort to changes he made in his delivery to try to keep his elbow healthy.`\
 https://nytimes.com/athletic/6319398/2025/04/28/dodgers-tyler-glasnow-injury-soreness/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6319294/2025/04/28/nba-considering-international-al
 **Canadiens playoff notebook: Being counted out feels familiar, line matchups and calm**\
 `Montreal has a word in mind to help erase 3-1 deficit. Also, Lars Eller could be an inspiration for Alex Newhook.`\
 https://nytimes.com/athletic/6319238/2025/04/28/montreal-canadiens-nhl-playoffs-capitals-game-5/
-
-**Despair Blankets Scene of Car-Ramming Attack at Festival**\
-`Filipinos in Vancouver returned to a neighborhood to mourn the 11 people killed in a weekend attack.`\
-https://nytimes.com/2025/04/28/world/canada/vancouver-festival-attack.html
 
