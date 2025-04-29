@@ -1,3 +1,7 @@
+**Canada’s Liberals Narrowly Miss Out on Majority in Parliament**\
+`Final results from Monday’s crucial election showed Mark Carney’s party had secured 169 of 343 seats and would need help from other parties to pass laws.`\
+https://nytimes.com/2025/04/29/world/canada/carney-liberals-canada-election-results.html
+
 **Vikings, edge Andrew Van Ginkel agree to one-year, $23M extension: Source**\
 `After a career year with Minnesota, Van Ginkel secures a deal that will give him $22.4 million fully guaranteed.`\
 https://nytimes.com/athletic/6321765/2025/04/29/vikings-andrew-van-ginkel-extension/

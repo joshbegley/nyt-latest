@@ -1,4 +1,4 @@
-**Vikings, edge Andrew Van Ginkel agree to one-year, $23M extension: Source**\
+**Vikings, edge Andrew Van Ginkel agree to 1-year, $23M extension: Source**\
 `After a career year with Minnesota, Van Ginkel secures a deal that will give him $22.4 million fully guaranteed.`\
 https://nytimes.com/athletic/6321765/2025/04/29/vikings-andrew-van-ginkel-extension/
 
