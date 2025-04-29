@@ -1,3 +1,11 @@
+**Dramatic Video Shows a Speedboat Flipping Through the Air at 200 M.P.H.**\
+`A widely shared video of the Desert Storm Race on Lake Havasu in Arizona over the weekend showed the high performance boat flying through the air, doing flips.`\
+https://nytimes.com/2025/04/29/us/speedboat-crash-lake-havasu-arizona.html
+
+**Speedboat Somersaults Through the Air During Race on Arizona Lake**\
+`Spectators gasped as the 38-foot Catamaran flipped through the air during a Desert Storm boat race event on Lake Havasu in Arizona.`\
+https://nytimes.com/video/sports/100000010136496/speedboat-crash-attempting-high-speeds.html
+
 **French Lawmakers Cracking Down on Drug Traffickers**\
 `A rare consensus in France’s lower house of Parliament prompted by fears that drug-related violence has grown out of control.`\
 https://nytimes.com/2025/04/29/world/europe/french-lawmakers-cracking-down-on-drug-traffickers.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/29/business/media/penske-south-by-southwest-shakeup.
 **This Manhattan Restaurant Is Even Better Than Its Buzz**\
 `Under all the hype and beautiful-people veneer, Bridges is full of surprises, starting with an imaginative, globally inspired menu.`\
 https://nytimes.com/2025/04/29/dining/bridges-restaurant-review.html
-
-**Rudiger given 6-game ban for 'throwing object' at referee, Bellingham avoids suspension**\
-`Ricardo de Burgos Bengoetxea's referee's report said Rudiger threw an object towards him, adding he showed an "aggressive attitude."`\
-https://nytimes.com/athletic/6317404/2025/04/29/rudiger-bellingham-ban-real-madrid-referee/
-
-**Harvard Promises Changes After Reports on Antisemitism and Islamophobia**\
-`The two reports, which run hundreds of pages, come at a difficult time for the university, which is suing the Trump administration over federal funding cuts.`\
-https://nytimes.com/2025/04/29/us/harvard-antisemitism-islamophobia-reports.html
 
