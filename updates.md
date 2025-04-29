@@ -1,3 +1,13 @@
+**Deporting Americans?**\
+`Plus, the latest on the rising tensions between India and Pakistan.`\
+https://nytimes.com/2025/04/29/briefing/us-citizens-deportations.html
+
+**Champions League semi-final tips: Anytime scorer market ripe for Barca vs Inter**\
+`Sam Tighe explores the best bets around Barcelona’s Champions League semi-final first-leg clash against Internazionale. 
+
+`\
+https://nytimes.com/athletic/6320034/2025/04/29/champions-league-semi-final-barcelona-vs-inter-milan-betting-tips-predictions/
+
 **Trial Opens for 2 Men Accused of Felling Sycamore Gap Tree**\
 `The men have pleaded not guilty to charges of criminal destruction. The cutting down of the tree, an icon in Britain, stunned people across the world in 2023.`\
 https://nytimes.com/2025/04/29/world/europe/uk-trial-sycamore-gap-tree-plea.html
