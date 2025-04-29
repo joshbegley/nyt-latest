@@ -1,3 +1,7 @@
+**Bill Belichick's awkward CBS interview shows something's changed about the old coach**\
+`Belichick's 24-year-old girlfriend “was a constant presence” during interview. Is the storied micromanager being micromanaged?`\
+https://nytimes.com/athletic/6319616/2025/04/29/belichick-cbs-interview-girlfriend-jordon-unc/
+
 **Liverpool’s Gakpo could face FA action for shirt with religious message**\
 `The Dutchman's “I belong to Jesus” vest drew comparisons to one worn by Kaka in 2007.`\
 https://nytimes.com/athletic/6319970/2025/04/29/cody-gakpo-liverpool-religious-message/
