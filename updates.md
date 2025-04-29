@@ -1,3 +1,11 @@
+**Power Is Largely Restored in Spain After Widespread Outage**\
+`Electricity returned to nearly all of Spain almost 18 hours after a blackout there and in neighboring Portugal. The cause of the outage was unclear.`\
+https://nytimes.com/2025/04/29/world/europe/power-outage-spain-portugal.html
+
+**Word of the Day: runic**\
+`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/04/29/learning/word-of-the-day-runic.html
+
 **India Accuses Pakistan of Supporting Terrorism. Here’s What We Know.**\
 `India renewed its claims after a deadly terror attack last week in Kashmir, a territory that it has long fought over with Pakistan.`\
 https://nytimes.com/2025/04/29/world/asia/india-pakistan-kashmir-terrorism.html
