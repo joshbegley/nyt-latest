@@ -1,3 +1,7 @@
+**Madrid’s Rudiger to miss around six weeks after knee surgery**\
+`The 32-year-old has been a staple of Carlo Ancelotti’s side this season, featuring 49 times in all competitions.`\
+https://nytimes.com/athletic/6320013/2025/04/29/real-madrid-rudiger-injury-update/
+
 **Who knows more: NFL front offices or Mel Kiper? Deitsch's Media Mailbag**\
 `Explaining the Sanders gap between TV draft experts and NFL front offices, Masters cell-phone policy and more, in the latest media mailbag.`\
 https://nytimes.com/athletic/6309704/2025/04/29/mel-kiper-nfl-draft-media-mailbag/

@@ -1,3 +1,7 @@
+**Madrid’s Rudiger to miss around six weeks after knee surgery**\
+`The 32-year-old has been a staple of Carlo Ancelotti’s side this season, featuring 49 times in all competitions.`\
+https://nytimes.com/athletic/6320013/2025/04/29/real-madrid-rudiger-injury-update/
+
 **Who knows more: NFL front offices or Mel Kiper? Deitsch's Media Mailbag**\
 `Explaining the Sanders gap between TV draft experts and NFL front offices, Masters cell-phone policy and more, in the latest media mailbag.`\
 https://nytimes.com/athletic/6309704/2025/04/29/mel-kiper-nfl-draft-media-mailbag/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6310989/2025/04/29/an-underrated-nba-defensive-move
 **Coffee with Friedkin and help from Mavericks media team - how Kidd became part of Everton**\
 `The NBA legend is now part of Everton's ownership group. Will that help the club build their brand in the U.S?`\
 https://nytimes.com/athletic/6317926/2025/04/29/jason-kidd-everton-dallas-mavericks-nba/
-
-**Caitlin Clark, Indiana Fever embrace 'mama bear' DeWanna Bonner: 'I want to win for her'**\
-`Bonner's veteran presence is already a plus for Clark as training camp begins.`\
-https://nytimes.com/athletic/6319342/2025/04/29/caitlin-clark-indiana-fever-dewanna-bonner/
 
