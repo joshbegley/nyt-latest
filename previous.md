@@ -1,3 +1,15 @@
+**What Do You Think of Trump’s First 100 Days?**\
+`How do you feel about how the Trump administration is transforming America and its place in the world?`\
+https://nytimes.com/2025/04/29/learning/what-do-you-think-of-trumps-first-100-days.html
+
+**New York Bans Smartphones in Schools, Joining National Movement**\
+`Gov. Kathy Hochul argued that the “bell-to-bell” ban — which restricts the devices during class, lunch and other parts of school — would help prevent disruption and cyberbullying.`\
+https://nytimes.com/2025/04/29/nyregion/nyc-schools-cellphone-ban.html
+
+**Days After Trump Commits to Seabed Mining, Two Sides Face Off**\
+`At a congressional hearing, one executive welcomed President Trump’s “starting gun” to begin mining. Democrats and Republicans clashed over environmental and business concerns.`\
+https://nytimes.com/2025/04/29/climate/seabed-mining-trump-congress.html
+
 **Dramatic Video Shows a Speedboat Flipping Through the Air at 200 M.P.H.**\
 `A widely shared video of the Desert Storm Race on Lake Havasu in Arizona over the weekend showed the high performance boat flying through the air, doing flips.`\
 https://nytimes.com/2025/04/29/us/speedboat-crash-lake-havasu-arizona.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6321332/2025/04/29/nfl-rookie-of-the-year-odds-jean
 **Joey Logano responds to Chipper Jones' criticism after Talladega tirade**\
 `The MLB Hall of Famer posted several critical messages after Logano's critical comments about teammate Austin Cindric at Talladega.`\
 https://nytimes.com/athletic/6321520/2025/04/29/joey-logano-responds-chipper-jones-talladega/
-
-**Concerning fantasy baseball 2025 performances from Roki Sasaki, Cody Bellinger and more**\
-`Michael Salfino looks at the widely-rostered fantasy baseball players who you should be very concerned about based on underlying metrics.`\
-https://nytimes.com/athletic/6321120/2025/04/29/fantasy-baseball-2025-roki-sasaki-cody-bellinger/
-
-**Penske Shakes Up Leadership of South by Southwest**\
-`The festival’s longtime president is leaving the festival, as are about 10 others. Its owner, Penske Media, told staff members about the changes on Friday.`\
-https://nytimes.com/2025/04/29/business/media/penske-south-by-southwest-shakeup.html
-
-**This Manhattan Restaurant Is Even Better Than Its Buzz**\
-`Under all the hype and beautiful-people veneer, Bridges is full of surprises, starting with an imaginative, globally inspired menu.`\
-https://nytimes.com/2025/04/29/dining/bridges-restaurant-review.html
 

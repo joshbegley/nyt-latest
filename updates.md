@@ -1,3 +1,15 @@
+**What Do You Think of Trump’s First 100 Days?**\
+`How do you feel about how the Trump administration is transforming America and its place in the world?`\
+https://nytimes.com/2025/04/29/learning/what-do-you-think-of-trumps-first-100-days.html
+
+**New York Bans Smartphones in Schools, Joining National Movement**\
+`Gov. Kathy Hochul argued that the “bell-to-bell” ban — which restricts the devices during class, lunch and other parts of school — would help prevent disruption and cyberbullying.`\
+https://nytimes.com/2025/04/29/nyregion/nyc-schools-cellphone-ban.html
+
+**Days After Trump Commits to Seabed Mining, Two Sides Face Off**\
+`At a congressional hearing, one executive welcomed President Trump’s “starting gun” to begin mining. Democrats and Republicans clashed over environmental and business concerns.`\
+https://nytimes.com/2025/04/29/climate/seabed-mining-trump-congress.html
+
 **Dramatic Video Shows a Speedboat Flipping Through the Air at 200 M.P.H.**\
 `A widely shared video of the Desert Storm Race on Lake Havasu in Arizona over the weekend showed the high performance boat flying through the air, doing flips.`\
 https://nytimes.com/2025/04/29/us/speedboat-crash-lake-havasu-arizona.html
