@@ -1,3 +1,7 @@
+**NBA playoffs takeaways: Cavs sweep Heat, hand Miami another record defeat**\
+`The Cavaliers will play the winner of the Pacers-Bucks series, which Indiana currently leads 3-1.`\
+https://nytimes.com/athletic/6319284/2025/04/28/nba-playoffs-scores-results-cavaliers-heat-rockets-warriors-takeaways/
+
 **Here’s the latest.**\
 `By Matina Stevis-Gridneff`\
 https://nytimes.com/live/2025/04/28/world/canada-election/heres-the-latest
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6319319/2025/04/28/shedeur-sanders-browns-jersey-sa
 **How Trump’s Second Term Is Changing Power, Institutions and More**\
 `President Trump has wielded the presidency as an instrument of blunt power, ignoring the howls of outrage from Democrats and daring largely docile Republicans to challenge the limits of his authority.`\
 https://nytimes.com/interactive/2025/04/28/us/trump-100-days-actions.html
-
-**Charlie Dixon, Fox Sports exec accused of sexual battery, is out at network**\
-`A Fox Sports spokesperson confirmed that Dixon, who is a co-defendant in two lawsuits, is no longer with network.`\
-https://nytimes.com/athletic/6319374/2025/04/28/charlie-dixon-out-fox-sports/
 
