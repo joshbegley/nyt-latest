@@ -1,3 +1,15 @@
+**Concerning fantasy baseball 2025 performances from Roki Sasaki, Cody Bellinger and more**\
+`Michael Salfino looks at the widely-rostered fantasy baseball players who you should be very concerned about based on underlying metrics.`\
+https://nytimes.com/athletic/6321120/2025/04/29/fantasy-baseball-2025-roki-sasaki-cody-bellinger/
+
+**Penske Shakes Up Leadership of South by Southwest**\
+`The festival’s longtime president is leaving the festival, as are about 10 others. Its owner, Penske Media, told staff members about the changes on Friday.`\
+https://nytimes.com/2025/04/29/business/media/penske-south-by-southwest-shakeup.html
+
+**This Manhattan Restaurant Is Even Better Than Its Buzz**\
+`Under all the hype and beautiful-people veneer, Bridges is full of surprises, starting with an imaginative, globally inspired menu.`\
+https://nytimes.com/2025/04/29/dining/bridges-restaurant-review.html
+
 **Rudiger given 6-game ban for 'throwing object' at referee, Bellingham avoids suspension**\
 `Ricardo de Burgos Bengoetxea's referee's report said Rudiger threw an object towards him, adding he showed an "aggressive attitude."`\
 https://nytimes.com/athletic/6317404/2025/04/29/rudiger-bellingham-ban-real-madrid-referee/
