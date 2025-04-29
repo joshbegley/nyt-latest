@@ -1,3 +1,7 @@
+**Venture Firm Thrive Bets on Buying Firms That Can Benefit From A.I.**\
+`The investor is raising money to start and build companies infused with artificial intelligence, then use them to buy more.`\
+https://nytimes.com/2025/04/29/business/dealbook/thrive-holdings-rollup-ai.html
+
 **Trump Administration Live Updates: White House Plans to Ease Impact of Car Tariffs**\
 ``\
 https://nytimes.com/live/2025/04/29/us/trump-news
