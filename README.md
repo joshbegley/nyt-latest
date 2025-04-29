@@ -1,3 +1,19 @@
+**Inside Newcastle Q&A: Transfer policy, Guehi interest - and predicting the run-in**\
+`Chris Waugh answers your questions on transfers, the Champions League and William Osula`\
+https://nytimes.com/athletic/6317179/2025/04/29/inside-newcastle-transfers-guehi-champions-league/
+
+**Has a throwback defensive tactic rescued Manchester City's season?**\
+`Pep Guardiola popularised the concept of the inverted full-back – but against Forest, he went back to something a little more simple`\
+https://nytimes.com/athletic/6315959/2025/04/29/manchester-city-full-backs-tactics-fa-cup/
+
+**Athletic Club's Basque-only rule: What is it? When did it start? Who qualifies?**\
+`Athletic Club face Manchester United in the Europa League semi-final. The Athletic explains their defining philosophy`\
+https://nytimes.com/athletic/6317561/2025/04/29/athletic-club-basque-only-policy-explained/
+
+**The secrets of a Wembley groundsman: A robot shooting UV light and an on-call weather forecaster**\
+`The pitch at the national stadium was once the source of regular player complaints – but not now. This is how it is kept in prime condition`\
+https://nytimes.com/athletic/6315379/2025/04/29/wembley-groundsman-secrets/
+
 **Predicting next season's Premier League title winners - far too early**\
 `Who is in the frame to win the 2025-26 title? With some heavy caveats, here are our predictions... `\
 https://nytimes.com/athletic/6296322/2025/04/29/premier-league-title-predictions-next-season/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6301204/2025/04/29/champions-league-semi-finals-com
 **Arsenal and PSG are different beasts from their October match. What's changed?**\
 `Before tonight's semi-final first leg, we look back at Arsenal 2-0 win in the league phase to see how both sides have evolved`\
 https://nytimes.com/athletic/6308795/2025/04/29/arsenal-psg-tactical-preview-changes/
-
-**74 passes and one shot: Breaking down Inter's 2010 Mourinho masterclass vs Barcelona**\
-`As the two clubs prepare to meet at the semi-final stage again, we travel back 15 years to revisit a unique performance at the Camp Nou `\
-https://nytimes.com/athletic/6306106/2025/04/29/inter-barcelona-2010-champions-league/
-
-**A Contender for the Papacy in the Mold of Francis**\
-`Cardinal Luis Tagle of the Philippines is known as the “Asian Francis.” But he has been criticized for not being vocal enough about his country’s brutal drug war and clerical sex abuse.`\
-https://nytimes.com/2025/04/29/world/asia/luis-tagle-asian-pope.html
-
-**Trump’s Tariffs Put China’s E-Commerce Superpowers to the Test**\
-`Companies like Alibaba that built China’s world-leading online shopping sector are now helping its sellers find markets beyond the United States.`\
-https://nytimes.com/2025/04/29/world/asia/trump-tariffs-china.html
-
-**Connections: Sports Edition Coach: Hints for April 29, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6319047/2025/04/29/connections-sports-edition-hints-for-april-29-2025/
 
