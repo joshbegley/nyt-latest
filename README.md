@@ -1,3 +1,7 @@
+**Texas coach Steve Sarkisian talks Arch Manning and the 2026 NFL Draft**\
+`Regardless of how long Manning stays at Texas, Sarkisian hopes fans let him enjoy. The coach also gave his thoughts on Quinn Ewers' slide.`\
+https://nytimes.com/athletic/6319369/2025/04/28/texas-coach-steve-sarkisian-talks-arch-manning-and-the-2026-nfl-draft/
+
 **Shedeur Sanders' Browns jersey is third-best seller among 2025 NFL draftees**\
 `Sanders is the only player not selected in the first round of the NFL Draft to make the list.`\
 https://nytimes.com/athletic/6319319/2025/04/28/shedeur-sanders-browns-jersey-sales/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/28/world/canada/vancouver-festival-attack.html
 **How California Sanctuary Policies Are Faring Under Pressure From Trump**\
 `State and city officials in California are vowing to uphold protections for immigrants, even as President Trump threatens more action against their jurisdictions.`\
 https://nytimes.com/2025/04/28/us/sanctuary-city-california-trump.html
-
-**When will we know the results?**\
-`By Ian Austen`\
-https://nytimes.com/live/2025/04/28/world/canada-election/when-will-we-know-the-results
 

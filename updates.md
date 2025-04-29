@@ -1,3 +1,19 @@
+**Shedeur Sanders' Browns jersey is third-best seller among 2025 NFL draftees**\
+`Sanders is the only player not selected in the first round of the NFL Draft to make the list.`\
+https://nytimes.com/athletic/6319319/2025/04/28/shedeur-sanders-browns-jersey-sales/
+
+**How Trump’s Second Term Is Changing Power, Institutions and More**\
+`President Trump has wielded the presidency as an instrument of blunt power, ignoring the howls of outrage from Democrats and daring largely docile Republicans to challenge the limits of his authority.`\
+https://nytimes.com/interactive/2025/04/28/us/trump-100-days-actions.html
+
+**Charlie Dixon, Fox Sports exec accused of sexual battery, is out at network**\
+`A Fox Sports spokesperson confirmed that Dixon, who is a co-defendant in two lawsuits, is no longer with network.`\
+https://nytimes.com/athletic/6319374/2025/04/28/charlie-dixon-out-fox-sports/
+
+**Lightning's Brandon Hagel injured in Game 4 after hit from Panthers' Aaron Ekblad**\
+`No penalty was called after Ekblad threw a flying forearm into the head of Hagel, who has been a villainous figure in this series.`\
+https://nytimes.com/athletic/6319375/2025/04/28/lightning-panthers-hagel-ekblad-nhl-playoffs/
+
 **Lightning's Brandon Hagel leaves Game 4 after hit from Panthers' Aaron Ekblad**\
 `No penalty was called after Ekblad threw a flying forearm into the head of Hagel, who has been a villainous figure in this series.`\
 https://nytimes.com/athletic/6319375/2025/04/28/lightning-panthers-hagel-ekblad-nhl-playoffs/
