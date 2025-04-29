@@ -1,3 +1,16 @@
+**Panthers complete late comeback, push Lightning to brink of elimination: Takeaways**\
+`Florida pulled off the late rally, scoring twice in 11 seconds, to take a 3-1 series lead over Tampa Bay. 
+`\
+https://nytimes.com/athletic/6319274/2025/04/28/panthers-lightning-nhl-playoffs-2025-game-4-takeaways/
+
+**The Poetry Challenge Day 2: How rhythm and rhyme make a poem memorable.**\
+`Today, we help you pay attention to the sound and feel of this week’s poem. Play our game to see how much you’ve already learned.`\
+https://nytimes.com/interactive/2025/books/edna-st-vincent-millay-rhythm.html
+
+**Lofty Tributary**\
+`Gene Louise de Vera makes his New York Times Crossword debut.`\
+https://nytimes.com/2025/04/28/crosswords/daily-puzzle-2025-04-29.html
+
 **Harvard, Under Pressure, Revamps D.E.I. Office**\
 `The move comes as President Trump has tried to abolish D.E.I. programs at universities.`\
 https://nytimes.com/2025/04/28/us/politics/harvard-dei-law-review.html
@@ -25,16 +38,4 @@ https://nytimes.com/athletic/6319374/2025/04/28/charlie-dixon-out-fox-sports/
 **Lightning's Brandon Hagel injured in Game 4 after hit from Panthers' Aaron Ekblad**\
 `No penalty was called after Ekblad threw a flying forearm into the head of Hagel, who has been a villainous figure in this series.`\
 https://nytimes.com/athletic/6319375/2025/04/28/lightning-panthers-hagel-ekblad-nhl-playoffs/
-
-**Mexico to Give U.S. More Water From Their Shared Rivers**\
-`A joint agreement appeared to avert a threat by President Trump of tariffs and sanctions in a long-running dispute over water rights in the border region.`\
-https://nytimes.com/2025/04/28/us/politics/mexico-us-water.html
-
-**U.S. vs. World? NBA considers All-Star tweak after success of NHL's 4 Nation's Cup**\
-`On the heels of the NHL's successful All-Star pivot to the 4 Nations Face-Off, the NBA is considering a similar international event.`\
-https://nytimes.com/athletic/6319294/2025/04/28/nba-considering-international-all-star-change/
-
-**Canadiens playoff notebook: Being counted out feels familiar, line matchups and calm**\
-`Montreal has a word in mind to help erase 3-1 deficit. Also, Lars Eller could be an inspiration for Alex Newhook.`\
-https://nytimes.com/athletic/6319238/2025/04/28/montreal-canadiens-nhl-playoffs-capitals-game-5/
 
