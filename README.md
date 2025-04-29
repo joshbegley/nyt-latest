@@ -1,3 +1,7 @@
+**The Windup: Nerd out on these MLB leaderboards**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6319773/2025/04/29/mlb-leaderboards-sprint-speed-the-windup/
+
 **Hilo, Hawaii**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/things-to-do-hilo
@@ -33,8 +37,4 @@ https://nytimes.com/newsgraphics/card-story/beyonce-cowboy-carter-tour-review
 **Torture and Secret C.I.A. Prisons Haunt 9/11 Case in Judge’s Ruling**\
 `Prosecutors have said they will appeal the decision, although they lost a similar appeal this year.`\
 https://nytimes.com/2025/04/29/us/politics/cia-torture-sept-11.html
-
-**Anthony Edwards over Luka Dončić? The Timberwolves are happy with that outcome**\
-`Plus, why Brandin Podziemski is shining for the Warriors, and real reason behind the Tyrese Haliburton "haters."`\
-https://nytimes.com/athletic/6320037/2025/04/29/anthony-edwards-luka-doncic-brandin-podziemski-tyrese-haliburton-discussionnba-playoffs/
 
