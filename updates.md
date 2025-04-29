@@ -1,3 +1,11 @@
+**The New York Times International Edition in Print for Wednesday, April 30, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/04/29/todays-new-york-times-international-edition
+
+**Pierre Poilievre loses his parliamentary seat.**\
+`By Vjosa Isai`\
+https://nytimes.com/2025/04/28/world/canada/pierre-poilievre-loses-his-parliamentary-seat-the-cbc-says.html
+
 **Mark Carney’s Liberals Win Canada’s Election. Here Are 4 Takeaways.**\
 `The former central banker successfully convinced voters that he was the right candidate to confront President Trump’s trade war and threats to annex the country.`\
 https://nytimes.com/2025/04/29/world/canada/canada-election-results-carney-trump-takeaways.html
