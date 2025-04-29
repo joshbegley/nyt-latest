@@ -1,3 +1,7 @@
+**Miami Heat's season goes down in flames, but they enjoyed the journey to mediocrity**\
+`The Miami Heat suffered the most lopsided series defeat ever. But they explained why the journey was worth the pain.`\
+https://nytimes.com/athletic/6319738/2025/04/29/miami-heat-season-goes-down-in-flames/
+
 **Power Is Largely Restored in Spain After Widespread Outage**\
 `Electricity returned to nearly all of Spain almost 18 hours after a blackout there and in neighboring Portugal. The cause of the outage was unclear.`\
 https://nytimes.com/2025/04/29/world/europe/power-outage-spain-portugal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6319456/2025/04/29/avalanche-stars-nhl-playoffs-202
 **Inside Newcastle Q&A: Transfer policy, Guehi interest - and predicting the run-in**\
 `Chris Waugh answers your questions on transfers, the Champions League and William Osula`\
 https://nytimes.com/athletic/6317179/2025/04/29/inside-newcastle-transfers-guehi-champions-league/
-
-**Has a throwback defensive tactic rescued Manchester City's season?**\
-`Pep Guardiola popularised the concept of the inverted full-back – but against Forest, he went back to something a little more simple`\
-https://nytimes.com/athletic/6315959/2025/04/29/manchester-city-full-backs-tactics-fa-cup/
 
