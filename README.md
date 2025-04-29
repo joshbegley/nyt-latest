@@ -1,3 +1,7 @@
+**Bergvall signs new Tottenham contract through to 2031**\
+`Bergvall rejected an offer from Barcelona to join Spurs from Swedish side Djurgarden in February 2024 for £8.5million.`\
+https://nytimes.com/athletic/6321356/2025/04/29/lucas-bergvall-tottenham-contract-length/
+
 **Where is Nikita Kucherov? How Panthers silenced Lightning's star**\
 `Kucherov, the NHL's leading scorer, is again being shut down by the defending champion Florida Panthers. `\
 https://nytimes.com/athletic/6320960/2025/04/29/lightning-panthers-nhl-playoffs-nikita-kucherov/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/29/arts/music/genre-smashing-new-songs.html
 **Mellon Foundation Announces $15 Million for Humanities Councils**\
 `The emergency funding came after the National Endowment for the Humanities canceled most existing grants, part of a pivot toward President Trump’s priorities.`\
 https://nytimes.com/2025/04/29/arts/mellon-foundation-humanities-endowment.html
-
-**Weinstein Accuser Tells Her Story of Coerced Sex for a Second Time**\
-`Miriam Haley, one of three women who prosecutors say were victims of Harvey Weinstein, testified at his retrial in Manhattan.`\
-https://nytimes.com/2025/04/29/nyregion/weinstein-haley-sex-abuse-testimony.html
 
