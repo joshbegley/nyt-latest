@@ -1,3 +1,7 @@
+**Mexico to Give U.S. More Water From Their Shared Rivers**\
+`A joint agreement appeared to avert a threat by President Trump of tariffs and sanctions in a long-running dispute over water rights in the border region.`\
+https://nytimes.com/2025/04/28/us/politics/mexico-us-water.html
+
 **NBA considering All-Star tweak after success of NHL's 4 Nations Face-Off**\
 `On the heels of the NHL's successful All-Star pivot to the 4 Nations Face-Off, the NBA is considering a similar international event.`\
 https://nytimes.com/athletic/6319294/2025/04/28/nba-considering-international-all-star-change/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/28/nyregion/budget-ny-hochul.html
 **4 Killed When a Car Crashes Through an Illinois After-School Center**\
 `Several others were injured, the State Police said.`\
 https://nytimes.com/2025/04/28/us/child-care-crash-chatham-illinois.html
-
-**Browns agree to deal with WR Diontae Johnson: Source**\
-`Cleveland will mark Johnson's third stop in the AFC North and his fifth team in 14 months. `\
-https://nytimes.com/athletic/6319230/2025/04/28/diontae-johnson-browns-deal-nfl/
 
