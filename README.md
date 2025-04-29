@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Wednesday, April 30, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/04/29/todays-new-york-times-international-edition
+
 **Mark Carney’s Liberals Win Canada’s Election. Here Are 4 Takeaways.**\
 `The former central banker successfully convinced voters that he was the right candidate to confront President Trump’s trade war and threats to annex the country.`\
 https://nytimes.com/2025/04/29/world/canada/canada-election-results-carney-trump-takeaways.html
@@ -8,7 +12,7 @@ https://nytimes.com/2025/04/29/world/europe/ukraine-russia-zelensky-putin-truce.
 
 **Pierre Poilievre loses his parliamentary seat.**\
 `By Vjosa Isai`\
-https://nytimes.com/live/2025/04/28/world/canada-election/pierre-poilievre-loses-his-parliamentary-seat-the-cbc-says
+https://nytimes.com/2025/04/28/world/canada/pierre-poilievre-loses-his-parliamentary-seat-the-cbc-says.html
 
 **Patriots 53-man roster projection: Vrabel changed the depth chart. Now who makes the team?**\
 `Whenever there’s a new coach, change tends to follow. So there will be some surprise cuts for the Patriots come the end of August.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/29/world/europe/finland-president-interview-takeaway
 **A Russian Missile Blew Apart These Kyiv Apartments, and a Decades-Old Community**\
 `“It feels like I lost my whole extended family,” one survivor said.`\
 https://nytimes.com/2025/04/29/world/europe/kyiv-russia-missile-strike.html
-
-**Finnish Leader Warns the Kremlin: ‘You Don’t Play With President Trump’**\
-`President Alexander Stubb of Finland, who has become an interlocutor in peace talks, says in an interview he doesn’t want Ukraine to suffer the same fate his country once endured.`\
-https://nytimes.com/2025/04/29/world/europe/finland-stubb-russia-trump-ukraine.html
 
