@@ -1,3 +1,7 @@
+**Senna helmet from when he rescued F1 rival sells for record price**\
+`The record for a race-worn helmet sale was previously held by one worn by Charles Leclerc, which was auctioned in June 2023.`\
+https://nytimes.com/athletic/6319961/2025/04/29/ayrton-senna-f1-helmet-auction/
+
 **Bears post-NFL Draft depth chart: Where do the rookies fit on the roster?**\
 `The Bears' roster is better, deeper and faster after their offseason additions. We break it down position by position.`\
 https://nytimes.com/athletic/6318544/2025/04/29/bears-depth-chart-post-nfl-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/29/podcasts/the-headlines/trump-crypto-revenge-porn-
 **Van Hollen Makes Personal Appeal to Trump to Return Deported Immigrant**\
 `The Maryland Democrat accused the president of “gross violations of the Constitution and due process rights” and demanded the return of an immigrant and Maryland resident imprisoned in El Salvador.`\
 https://nytimes.com/2025/04/29/us/politics/van-hollen-trump-abrego-garcia.html
-
-**What does the SEC have in store for an encore after an epic hoops season?**\
-`Conventional wisdom would tell us the SEC's dominance was a one-time thing, but what if it wasn't a fluke?`\
-https://nytimes.com/athletic/6318903/2025/04/29/sec-men-basketball-records-transfer-portal/
 

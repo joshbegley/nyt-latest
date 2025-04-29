@@ -1,40 +1,40 @@
-**Cardinal Who Threatened to Crash the Conclave Now Says He Won’t**\
-`The Vatican said that Francis had stripped a convicted cardinal, Angelo Becciu, of his right to vote for the next pope. Cardinal Becciu maintains his innocence but said he would sit this one out.`\
-https://nytimes.com/2025/04/29/world/europe/pope-conclave-cardinal-angelo-becciu.html
+**Bears post-NFL Draft depth chart: Where do the rookies fit on the roster?**\
+`The Bears' roster is better, deeper and faster after their offseason additions. We break it down position by position.`\
+https://nytimes.com/athletic/6318544/2025/04/29/bears-depth-chart-post-nfl-draft/
 
-**Cavaliers win NBA's most lopsided playoff series ever: Who and what stood out?**\
-`It’s almost hard to forget that the first two games in Cleveland were relatively close. But a healthy Cavs team pounced and earned a sweep.`\
-https://nytimes.com/athletic/6319694/2025/04/29/cavaliers-heat-nba-playoff-series/
+**Madrid Residents Cheer and Clap as Power Returns**\
+`Residents of a neighborhood plunged largely into darkness by a widespread electricity blackout celebrated on Monday evening as the lights turned back on. The national power company in Spain said early Tuesday that nearly all power had been restored nationwide, ending the 18-hour outage.`\
+https://nytimes.com/video/world/europe/100000010136097/madrid-residents-cheer-as-power-returns.html
 
-**The New York Times International Edition in Print for Wednesday, April 30, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/04/29/todays-new-york-times-international-edition
+**NHL playoffs daily: Lightning beat Panthers, Stars take control of series**\
+`The Panthers will defend their home court in Game 5 on Wednesday and the Stars will travel to Colorado for Game 6 on Thursday.`\
+https://nytimes.com/athletic/6319434/2025/04/29/nhl-playoffs-daily-lightning-panthers-stars-avalanche/
 
-**Mark Carney’s Liberals Win Canada’s Election. Here Are 4 Takeaways.**\
-`The former central banker successfully convinced voters that he was the right candidate to confront President Trump’s trade war and threats to annex the country.`\
-https://nytimes.com/2025/04/29/world/canada/canada-election-results-carney-trump-takeaways.html
+**The film doesn’t lie: How Cubs are off and running with adaptable offense for Wrigley Field**\
+`The team is catering to its baseball gym rats and acknowledging Wrigley Field’s unpredictable park factors.`\
+https://nytimes.com/athletic/6319240/2025/04/29/cubs-adaptable-offense-wrigley-field/
 
-**Zelensky Calls Putin’s 72-Hour Truce Pledge ‘Manipulation’**\
-`Russian forces launched 100 attack drones across Ukraine overnight, hours after President Vladimir V. Putin ordered a unilateral three-day cease-fire starting on May 8.`\
-https://nytimes.com/2025/04/29/world/europe/ukraine-russia-zelensky-putin-truce.html
+**The Housing Market Has New Rules. Realtors Are Evading Them.**\
+`A landmark settlement was expected to disrupt how real-estate agents are paid. This is how that didn’t happen.`\
+https://nytimes.com/2025/04/29/podcasts/the-daily/housing-market-realtors-nar.html
 
-**Pierre Poilievre, Canada’s Opposition Leader, Loses Seat in Parliament**\
-`It was a stunning upset for the Conservative Party leader, who was first elected in 2004.`\
-https://nytimes.com/2025/04/28/world/canada/pierre-poilievre-canada-election-loss-parliament.html
+**‘Huge relief’ — Mikko Rantanen, usually a playoff monster, finally gets his goal: LeBrun**\
+`Rantanen is not the first star player to open the playoffs without a goal in four games. But this is Rantanen we’re talking about.`\
+https://nytimes.com/athletic/6319815/2025/04/29/mikko-rantanen-stars-nhl-playoffs-2025-goal/
 
-**Patriots 53-man roster projection: Vrabel changed the depth chart. Now who makes the team?**\
-`Whenever there’s a new coach, change tends to follow. So there will be some surprise cuts for the Patriots come the end of August.`\
-https://nytimes.com/athletic/6315347/2025/04/29/patriots-nfl-draft-53-man-roster-projection/
+**Matt McLain and the Reds are learning from Cincinnati's very important offseason additions**\
+`Gavin Lux, Austin Hays and Jose Trevino are catalysts in the Reds' five-game winning streak.`\
+https://nytimes.com/athletic/6319628/2025/04/29/cincinnati-reds-gavin-lux-veteran-additions/
 
-**Abundance and the Left**\
-`Saikat Chakrabarti and Zephyr Teachout offer their perspectives on why America struggles to build.`\
-https://nytimes.com/2025/04/29/opinion/ezra-klein-podcast-saikat-chakrabarti-zephyr-teachout.html
+**The Secret Deals Behind Trump’s Crypto Firm, and a Revenge Porn Ban**\
+`Plus, let’s hear your best sea gull.`\
+https://nytimes.com/2025/04/29/podcasts/the-headlines/trump-crypto-revenge-porn-ban-seagull.html
 
-**Oblivion Had Glitches Galore. Thankfully, They’re Still There.**\
-`The acclaimed 2006 role-playing game was known for its wonky artificial intelligence and character dialogue. A visually stunning remaster preserves what made it great.`\
-https://nytimes.com/2025/04/29/arts/oblivion-remastered-elder-scrolls.html
+**Van Hollen Makes Personal Appeal to Trump to Return Deported Immigrant**\
+`The Maryland Democrat accused the president of “gross violations of the Constitution and due process rights” and demanded the return of an immigrant and Maryland resident imprisoned in El Salvador.`\
+https://nytimes.com/2025/04/29/us/politics/van-hollen-trump-abrego-garcia.html
 
-**There Are Limits to What the Courts Can Do in the Face of Trump’s Legal Onslaught**\
-`The courts are caught in the middle of a crisis, but it’s not something they can adequately remedy.`\
-https://nytimes.com/2025/04/29/opinion/trump-rule-of-law-crisis.html
+**What does the SEC have in store for an encore after an epic hoops season?**\
+`Conventional wisdom would tell us the SEC's dominance was a one-time thing, but what if it wasn't a fluke?`\
+https://nytimes.com/athletic/6318903/2025/04/29/sec-men-basketball-records-transfer-portal/
 
