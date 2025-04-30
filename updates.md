@@ -1,3 +1,15 @@
+**11 questions (plus one answer) about Bill Belichick's future with UNC, Jordon Hudson**\
+`So many more questions than answers about "Bill Belichick Inc.," plus the biggest sports-business storylines in this week's MoneyCall.`\
+https://nytimes.com/athletic/6323312/2025/04/30/jordon-hudson-bill-belichick-unc-football-miss-maine-usa/
+
+**Where Federal Dollars Flow to Universities Around the Country**\
+`The Trump administration has targeted a few elite universities with its threats to freeze funding. But many more schools around the country are vulnerable.`\
+https://nytimes.com/interactive/2025/04/30/us/university-funding-research.html
+
+**Spurs have 'unbelieve opportunity' with UEL despite critics - Postecoglou**\
+`Spurs are aiming for their sixth European final and a chance to win their first major trophy since 2008.`\
+https://nytimes.com/athletic/6323614/2025/04/30/tottenham-europa-league-ange-postecoglou/
+
 **Spurs have 'unbelieve opportunity' with UEL despite critics - Postecoglou**\
 `Spurs are aiming for the sixth European final in the club's history and a them the chance to win their first major trophy since 2008.`\
 https://nytimes.com/athletic/6323614/2025/04/30/tottenham-europa-league-ange-postecoglou/
