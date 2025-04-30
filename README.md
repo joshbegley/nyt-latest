@@ -1,3 +1,11 @@
+**Quiz: Which Kind of Happiness Do You Rely On Most?**\
+`There are two kinds. Which kind of daily pleasure are you seeking?`\
+https://nytimes.com/interactive/2025/04/30/magazine/what-makes-me-happy-quiz.html
+
+**Leafs coach Craig Berube on struggle to close out Senators: 'It's on everybody'**\
+`Leafs coach faces pointed questions about Core 4 and special teams as series heads back to Ottawa for Game 6.`\
+https://nytimes.com/athletic/6324382/2025/04/30/maple-leafs-craig-berube-nhl-playoffs/
+
 **Investigating Shrimp Fraud Is an Urgent Matter on the Gulf Coast**\
 `With a flood of imported seafood driving the U.S. shrimp industry to the edge of ruin, a consulting company out of Houston is testing truth in menu labeling.`\
 https://nytimes.com/2025/04/30/dining/shrimp-fraud-gulf-coast-new-orleans.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6319766/2025/04/30/oilers-nhl-playoffs-kane-klingbe
 **Freed Columbia Student to Trump: ‘I Am Not Afraid of You’**\
 `Mohsen Mahdawi, an organizer of the pro-Palestinian movement at Columbia University, was freed from federal custody on Wednesday as immigration officials seek to rescind his green card.`\
 https://nytimes.com/video/us/politics/100000010139140/columbia-mohsen-mahdawi-release.html
-
-**Scoop City: Best values of the 2025 draft**\
-`The biggest values of this draft, plus Bruce Arians' thoughts on QB success and Mel Kiper Jr.'s Shedeur Sanders take.`\
-https://nytimes.com/athletic/6324184/2025/04/30/nfl-draft-sheduer-sanders-mel-kiper-steals-fallers-2025-scoop-city/
-
-**Are Trump’s Actions Truly Unprecedented? We Asked 35 Historians.**\
-`We categorized 22 of Mr. Trump’s actions, ranging from those that have no comparable historical example to those that do.`\
-https://nytimes.com/interactive/2025/04/30/upshot/presidential-history-survey.html
 
