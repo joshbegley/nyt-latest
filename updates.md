@@ -1,3 +1,8 @@
+**The Leafs decided to play coin-flip games this season. It’s backfiring at the worst time**\
+`Playing coin-flip games is how Toronto thought it would win in the playoffs. Now the coin is flipping the other way.
+`\
+https://nytimes.com/athletic/6322444/2025/04/29/maple-leafs-nhl-playoffs-game-5/
+
 **Rafael Devers, Jarren Duran heating up as five-homer barrage jumpstarts Red Sox**\
 `The Red Sox hit five home runs in the first three innings for the first time since 2009.`\
 https://nytimes.com/athletic/6322491/2025/04/29/red-sox-five-homers-rafael-devers-jarren-duran/
