@@ -1,3 +1,7 @@
+**U.N. Orders Agencies to Find Budget Cuts, Including via Staff Relocations From N.Y.**\
+`The instructions from the office of Secretary General António Guterres were reviewed by The New York Times and came after President Trump ordered a review of U.S. funding to the agency.`\
+https://nytimes.com/2025/04/29/world/un-budget-cuts-trump.html
+
 **Canadiens playoff notebook: How to compensate for potential absence of Alexandre Carrier**\
 `Also, mind games around Sam Montembeault's availability and Cole Caufield is happy to be back where he's comfortable on the power play.`\
 https://nytimes.com/athletic/6322181/2025/04/29/canadiens-nhl-playoffs-alexandre-carrier/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/29/us/politics/kennedy-vaccines-research.html
 **Judge Orders Trump Officials to Disburse Funding for Radio Free Europe**\
 `The news organization relies almost exclusively on congressional funding, which the Trump administration has held up for weeks.`\
 https://nytimes.com/2025/04/29/us/politics/radio-free-europe-funding-trump.html
-
-**Spurs' Stephon Castle wins NBA Rookie of the Year award**\
-`Castle made 47 starts for the Spurs and shot 43 percent from the field, averaging 14.7 points, 4.1 assists and 3.7 boards per game.`\
-https://nytimes.com/athletic/6321344/2025/04/29/nba-spurs-stephon-castle-rookie-of-the-year/
 

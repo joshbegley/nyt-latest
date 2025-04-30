@@ -1,3 +1,7 @@
+**U.N. Orders Agencies to Find Budget Cuts, Including via Staff Relocations From N.Y.**\
+`The instructions from the office of Secretary General António Guterres were reviewed by The New York Times and came after President Trump ordered a review of U.S. funding to the agency.`\
+https://nytimes.com/2025/04/29/world/un-budget-cuts-trump.html
+
 **Canadiens playoff notebook: How to compensate for potential absence of Alexandre Carrier**\
 `Also, mind games around Sam Montembeault's availability and Cole Caufield is happy to be back where he's comfortable on the power play.`\
 https://nytimes.com/athletic/6322181/2025/04/29/canadiens-nhl-playoffs-alexandre-carrier/
