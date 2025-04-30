@@ -1,3 +1,15 @@
+**West Ham's Summerville undergoes hamstring surgery**\
+`Summerville has been out since January, when he was substituted during West Ham's defeat to Aston Villa in the FA Cup third round.`\
+https://nytimes.com/athletic/6324027/2025/04/30/crysencio-summerville-west-ham-surgery/
+
+**The unusual atmosphere at the Emirates for Arsenal vs PSG: A discussion**\
+`Arsenal lost 1-0 against Paris Saint-Germain in the first leg of their Champions League semi-final`\
+https://nytimes.com/athletic/6323847/2025/04/30/arsenal-psg-atmosphere-discussion/
+
+**Mexico City GP extends F1 contract until 2028**\
+`The Mexico City Grand Prix has secured a new contract to host a Formula One race at the Autodromo Hermanos Rodriguez track in the Mexican capital until 2028.`\
+https://nytimes.com/athletic/6318162/2025/04/30/mexico-grand-prix-f1-2028/
+
 **Harvey Weinstein Pushed, Grabbed and Then Attacked, Witness Testifies**\
 `Miriam Haley is the first to testify of the three women whose accusations are at the center of the disgraced producer’s retrial on sex abuse charges.`\
 https://nytimes.com/2025/04/30/nyregion/harvey-weinstein-nyc-sex-abuse-trial-witness-testimony.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6322124/2025/04/30/dean-evason-canada-world-champio
 **Buddy Guy on ‘Sinners’: ‘This May Help the Blues Stay Alive’**\
 `The guitarist and singer, who turns 89 in July, discusses his role in Ryan Coogler’s musical horror drama and his promise to Muddy Waters and B.B. King.`\
 https://nytimes.com/2025/04/30/arts/music/buddy-guy-sinners-blues.html
-
-**What happens if there is a tie vote?**\
-`By Adam Liptak`\
-https://nytimes.com/live/2025/04/30/us/supreme-court-charter-schools/what-happens-if-there-is-a-tie-vote
-
-**Tiny Love Stories: ‘Give Her the Flower, Man!’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2025/04/30/style/tiny-modern-love-stories-give-her-the-flower-man.html
-
-**Review: The Met Opera’s New ‘Salome’ Fractures Its Princess**\
-`In his company debut, the director Claus Guth takes a psychological approach, surrounding the title character with six versions of her younger self.`\
-https://nytimes.com/2025/04/30/arts/music/met-opera-salome-review.html
 

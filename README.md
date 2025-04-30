@@ -1,3 +1,11 @@
+**Mystics rookie Georgia Amoore suffers ACL injury during training camp**\
+`Amoore was the sixth pick in this month’s WNBA Draft and was poised to be Washington's point guard of the future.`\
+https://nytimes.com/athletic/6324119/2025/04/30/mystics-georgia-amoore-acl-injury/
+
+**Migrant Who Evaded ICE Agents by Climbing a Tree Surrenders**\
+`The man, who immigration officials identified as Raul Ical, a 29-year-old from Guatemala, surrendered to ICE agents after more than eight hours on top of a tree.`\
+https://nytimes.com/video/us/100000010139054/migrant-tree-ice-agents.html
+
 **West Ham's Summerville undergoes hamstring surgery**\
 `Summerville has been out since January, when he was substituted during West Ham's defeat to Aston Villa in the FA Cup third round.`\
 https://nytimes.com/athletic/6324027/2025/04/30/crysencio-summerville-west-ham-surgery/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6324013/2025/04/30/canadiens-capitals-game-5-injury
 **More Babies, but Little Support for Them?**\
 `Readers discuss the Trump administration’s urging a baby boom while also cutting support for children.`\
 https://nytimes.com/2025/04/30/opinion/letters/trump-fertility-babies.html
-
-**Why coaching Team Canada has deep, long-held meaning for Blue Jackets' Dean Evason**\
-`Playing in the IIHF World Championships helped extend Evason's pro career. Now he's back, behind the bench.`\
-https://nytimes.com/athletic/6322124/2025/04/30/dean-evason-canada-world-championships/
-
-**Buddy Guy on ‘Sinners’: ‘This May Help the Blues Stay Alive’**\
-`The guitarist and singer, who turns 89 in July, discusses his role in Ryan Coogler’s musical horror drama and his promise to Muddy Waters and B.B. King.`\
-https://nytimes.com/2025/04/30/arts/music/buddy-guy-sinners-blues.html
 

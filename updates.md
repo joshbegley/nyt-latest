@@ -1,3 +1,15 @@
+**West Ham's Summerville undergoes hamstring surgery**\
+`Summerville has been out since January, when he was substituted during West Ham's defeat to Aston Villa in the FA Cup third round.`\
+https://nytimes.com/athletic/6324027/2025/04/30/crysencio-summerville-west-ham-surgery/
+
+**The unusual atmosphere at the Emirates for Arsenal vs PSG: A discussion**\
+`Arsenal lost 1-0 against Paris Saint-Germain in the first leg of their Champions League semi-final`\
+https://nytimes.com/athletic/6323847/2025/04/30/arsenal-psg-atmosphere-discussion/
+
+**Mexico City GP extends F1 contract until 2028**\
+`The Mexico City Grand Prix has secured a new contract to host a Formula One race at the Autodromo Hermanos Rodriguez track in the Mexican capital until 2028.`\
+https://nytimes.com/athletic/6318162/2025/04/30/mexico-grand-prix-f1-2028/
+
 **Harvey Weinstein Pushed, Grabbed and Then Attacked, Witness Testifies**\
 `Miriam Haley is the first to testify of the three women whose accusations are at the center of the disgraced producer’s retrial on sex abuse charges.`\
 https://nytimes.com/2025/04/30/nyregion/harvey-weinstein-nyc-sex-abuse-trial-witness-testimony.html
