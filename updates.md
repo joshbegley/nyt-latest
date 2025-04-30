@@ -1,3 +1,15 @@
+**Phillies win the hard way — against themselves and the Nationals**\
+`The Phillies hit the ball well and, despite their poor fielding and base running, came away with a 7-6 win over the Nationals. `\
+https://nytimes.com/athletic/6322559/2025/04/30/phillies-win-the-hard-way/
+
+**Fifteen years of Lewis Dunk, a Brighton & Hove Albion statesman**\
+`On April 30, 2010, Dunk signed his first professional contract at Brighton. A decade and a half later, he's part of the club's fabric`\
+https://nytimes.com/athletic/6183584/2025/04/30/lewis-dunk-brighton-15-years/
+
+**Aston Villa's 'world no 1' Emiliano Martinez divides opinion - but why has his form dipped?**\
+`Unai Emery recently said his goalkeeper is 'getting better' - recent and ample evidence would suggest the Argentina talisman is error-prone`\
+https://nytimes.com/athletic/6317719/2025/04/30/emiliano-martinez-argentina-aston-villa-form/
+
 **Crystal Palace reap the rewards as Oliver Glasner's patience starts to pay off**\
 `Daichi Kamada, Eddie Nketiah and even Ismaila Sarr endured slow starts to their Palace careers, but indications are they are coming good`\
 https://nytimes.com/athletic/6313752/2025/04/30/palace-kamada-nketiah-sarr-glasner-murray/
