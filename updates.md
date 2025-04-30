@@ -1,3 +1,19 @@
+**Sectarian Clashes Spread Around Syria’s Capital, Drawing In Israel**\
+`The Israeli military said it had carried out a warning strike against “extremists” preparing to attack members of the Druse religious minority.`\
+https://nytimes.com/2025/04/30/world/europe/syria-sectarian-fighting-druse.html
+
+**Inside the quick review decision that might have saved the Golden Knights' season**\
+`Brett Howden scored in OT and Vegas took the series lead following a double goal review in the final minute of regulation.`\
+https://nytimes.com/athletic/6322948/2025/04/30/nhl-golden-knights-wild-playoffs-review/
+
+**Vietnam Used to Be a Safe Haven for Trade. Now It Might Not Be.**\
+`On the 50th anniversary of the end of the Vietnam War, U.S. companies that have come to rely on Vietnam’s factories, like Apple and Nike, are in a bind because of Trump’s tariffs.`\
+https://nytimes.com/2025/04/30/business/dealbook/vietnam-trade-safe-haven-trump-tariffs-transshipping.html
+
+**Marinakis steps back from Forest in bid to ensure UEFA compliance**\
+`The 57-year-old also owns Olympiacos, who could be playing in the same UEFA competition as Forest next term.`\
+https://nytimes.com/athletic/6323134/2025/04/30/nottingham-forest-owner-marinakis-uefa/
+
 **Ex-Amazon exec Jeff Blackburn replacing Ken Solomon as Tennis Channel CEO**\
 `Blackburn spent 24 years by Jeff Bezos' side and helped start Prime Video.`\
 https://nytimes.com/athletic/6321777/2025/04/30/tennis-channel-jeff-blackburn-ceo/
