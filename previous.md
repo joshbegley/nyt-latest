@@ -1,3 +1,19 @@
+**Jamal Murray's breakout game changes calculus for Nuggets: 'He was born for this'**\
+`Murray's 43-point explosion on Tuesday gave Denver a 3-2 series lead on the Clippers and evoked memories of the 2023 championship run.`\
+https://nytimes.com/athletic/6322693/2025/04/30/jamal-murray-nuggets-playoffs-game-5/
+
+**NHL playoffs daily: Hurricanes eliminate Devils; Senators shut out Maple Leafs**\
+`Plus the Oilers and Golden Knights won a pair of crucial Game 5s, putting the Kings and Wild on the ropes.`\
+https://nytimes.com/athletic/6322222/2025/04/30/nhl-playoff-daily-hurricanes-senators-maple-leafs-wild-golden-knights/
+
+**Ex-China soccer coach Lie Tie has 20-year sentence for corruption upheld**\
+`The former Everton midfielder was originally sentenced on December 13, 2024, by the Intermediate People's Court of Xianning, Hubei Province.`\
+https://nytimes.com/athletic/6323077/2025/04/30/li-tie-everton-china-manager-jail/
+
+**U.S. Economy Shrank in First Quarter, in Reading Clouded by Messy Trade Data**\
+`Underlying economic growth remained solid in early 2025, but tariffs and uncertainty are expected to cause a further slowdown.`\
+https://nytimes.com/2025/04/30/business/us-economy-gdp-tariffs.html
+
 **Athletic vs Utd odds: Forecast for a low-scoring affair at the San Mamés**\
 `Brett Koremenos outlines the best bets around Manchester United’s Europa League semi-final first-leg clash with Athletic Club. 
 `\
@@ -22,20 +38,4 @@ https://nytimes.com/2025/04/30/weather/britain-heat-record.html
 **C.E.O.s Face a New Trump Conundrum, Over Prices**\
 `Companies are weighing whether they should be transparent about tariffs’ effect on prices, or — as Amazon learned on Tuesday — risk drawing the president’s ire.`\
 https://nytimes.com/2025/04/30/business/dealbook/ceos-tariff-transparency-trump.html
-
-**Trump Administration Live Updates: President Says He Could Bring Back Wrongly Deported Man, But Won’t**\
-``\
-https://nytimes.com/live/2025/04/30/us/president-trump-news
-
-**Why isn't the state of Florida producing highly ranked quarterback recruits?**\
-`From 2010 through 2025, Florida produced only three quarterbacks who ranked among the top 100 prospects nationally — and only one five-star.`\
-https://nytimes.com/athletic/6318430/2025/04/30/florida-quarterback-recruiting-5-star/
-
-**Sebastian Berhalter's arrival makes for a unique North American soccer plot twist**\
-`His last name may carry plenty of weight in U.S. soccer circles, but it's Sebastian Berhalter's play that is drawing more and more attention`\
-https://nytimes.com/athletic/6322359/2025/04/30/sebastian-berhalter-gregg-usmnt-vancouver-whitecaps-concacaf-champions-cup/
-
-**What Gabriel Vilardi's return in Game 5 means for the Jets**\
-`Vilardi's return will have a ripple effect throughout the Jets lineup. Is it enough to save their series? `\
-https://nytimes.com/athletic/6321453/2025/04/30/jets-gabriel-vilardi-game-5-nhl-playoffs/
 
