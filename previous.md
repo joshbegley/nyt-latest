@@ -1,3 +1,7 @@
+**Arsenal suffered against Paris Saint-Germain - but this is a tie that is still alive**\
+`Mikel Arteta's side are capable of overcoming a one goal deficit in Paris - but it will require their best performance of the season`\
+https://nytimes.com/athletic/6322335/2025/04/30/arsenal-psg-champions-league-chances/
+
 **Kyle Manzardo hits walk-off homer to lift Guardians over Twins after long rain delay**\
 `Tanner Bibee and two high-leverage relievers shut down a hot Twins offense and snapped Minnesota's four-game winning streak.`\
 https://nytimes.com/athletic/6322705/2025/04/30/twins-lose-to-guardians-kyle-manzardo/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6183584/2025/04/30/lewis-dunk-brighton-15-years/
 **Aston Villa's 'world no 1' Emiliano Martinez divides opinion - but why has his form dipped?**\
 `Unai Emery recently said his goalkeeper is 'getting better' - recent and ample evidence would suggest the Argentina talisman is error-prone`\
 https://nytimes.com/athletic/6317719/2025/04/30/emiliano-martinez-argentina-aston-villa-form/
-
-**Crystal Palace reap the rewards as Oliver Glasner's patience starts to pay off**\
-`Daichi Kamada, Eddie Nketiah and even Ismaila Sarr endured slow starts to their Palace careers, but indications are they are coming good`\
-https://nytimes.com/athletic/6313752/2025/04/30/palace-kamada-nketiah-sarr-glasner-murray/
 

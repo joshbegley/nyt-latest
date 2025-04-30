@@ -1,3 +1,7 @@
+**Arsenal suffered against Paris Saint-Germain - but this is a tie that is still alive**\
+`Mikel Arteta's side are capable of overcoming a one goal deficit in Paris - but it will require their best performance of the season`\
+https://nytimes.com/athletic/6322335/2025/04/30/arsenal-psg-champions-league-chances/
+
 **Kyle Manzardo hits walk-off homer to lift Guardians over Twins after long rain delay**\
 `Tanner Bibee and two high-leverage relievers shut down a hot Twins offense and snapped Minnesota's four-game winning streak.`\
 https://nytimes.com/athletic/6322705/2025/04/30/twins-lose-to-guardians-kyle-manzardo/
