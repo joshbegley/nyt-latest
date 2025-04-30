@@ -1,3 +1,15 @@
+**Kentucky Derby updated odds: Journalism the favorite, Baffert returns**\
+`The Kentucky Derby kicks off Saturday at 6:57 p.m. ET., with Journalism as the race favorite at 3-1 odds.`\
+https://nytimes.com/athletic/6323852/2025/04/30/kentucky-derby-2025-favorites-odds-horses/
+
+**11 High School Lacrosse Players Face Charges in Hazing of Teammates**\
+`The teenagers in Syracuse, N.Y., turned themselves in after the district attorney gave them 48 hours to surrender. He called the episode “hazing on steroids.”`\
+https://nytimes.com/2025/04/30/nyregion/syracuse-lacrosse-hazing-charges.html
+
+**Deadly Storm Tears Through Parts of Pennsylvania**\
+`The storm brought destructive winds to the state on Tuesday, knocking down trees and power lines, and killing at least four people.`\
+https://nytimes.com/video/weather/100000010139912/storm-wind-pennsylvania.html
+
 **Man Accused of Hacking Climate Groups Can Be Sent to U.S., Judge Says**\
 `A London court approved the extradition of Amit Forlit, who ran companies that allegedly stole information on behalf of a lobbying firm hired by Exxon.`\
 https://nytimes.com/2025/04/30/climate/hacking-for-hire-exxon-forlit-extradition.html

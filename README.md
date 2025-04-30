@@ -1,3 +1,11 @@
+**Trump, on Tariffs, Says ‘Maybe the Children Will Have 2 Dolls Instead of 30’**\
+`At the end of a cabinet meeting, the president allowed for the possibility that trade war could disrupt supply chains.`\
+https://nytimes.com/2025/04/30/us/politics/trump-tariffs-dolls-comment.html
+
+**Alijah Arenas out of hospital less than 1 week after car crash, family says**\
+`Arenas' family said the five-star basketball recruit and University of Southern California commit will remain under close watch.`\
+https://nytimes.com/athletic/6324932/2025/04/30/alijah-arenas-leaves-hospital/
+
 **Kentucky Derby updated odds: Journalism the favorite, Baffert returns**\
 `The Kentucky Derby kicks off Saturday at 6:57 p.m. ET., with Journalism as the race favorite at 3-1 odds.`\
 https://nytimes.com/athletic/6323852/2025/04/30/kentucky-derby-2025-favorites-odds-horses/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/30/movies/ted-kotcheff-dead.html
 **Wegovy Can Treat a Dangerous Liver Disease, Study Finds**\
 `A large trial showed that the weight-loss drug could reduce liver inflammation and scarring caused by the common condition.`\
 https://nytimes.com/2025/04/30/well/wegovy-liver-disease-mash.html
-
-**FA Cup final ticket prices to increase by up to 20 per cent**\
-`Ticket prices for the 2025 FA Cup final between Crystal Palace and Manchester City are set to cost between £50 and £285.`\
-https://nytimes.com/athletic/6324588/2025/04/30/fa-cup-final-ticket-prices/
-
-**Julia Parsons, U.S. Navy Code Breaker During World War II, Dies at 104**\
-`Soon after her officer training in Washington, she was recruited to a classified code-breaking team. She kept her work secret for decades, even from her family.`\
-https://nytimes.com/2025/04/30/world/julia-parsons-dead.html
 

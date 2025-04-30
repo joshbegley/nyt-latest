@@ -1,3 +1,15 @@
+**Kentucky Derby updated odds: Journalism the favorite, Baffert returns**\
+`The Kentucky Derby kicks off Saturday at 6:57 p.m. ET., with Journalism as the race favorite at 3-1 odds.`\
+https://nytimes.com/athletic/6323852/2025/04/30/kentucky-derby-2025-favorites-odds-horses/
+
+**11 High School Lacrosse Players Face Charges in Hazing of Teammates**\
+`The teenagers in Syracuse, N.Y., turned themselves in after the district attorney gave them 48 hours to surrender. He called the episode “hazing on steroids.”`\
+https://nytimes.com/2025/04/30/nyregion/syracuse-lacrosse-hazing-charges.html
+
+**Deadly Storm Tears Through Parts of Pennsylvania**\
+`The storm brought destructive winds to the state on Tuesday, knocking down trees and power lines, and killing at least four people.`\
+https://nytimes.com/video/weather/100000010139912/storm-wind-pennsylvania.html
+
 **Man Accused of Hacking Climate Groups Can Be Sent to U.S., Judge Says**\
 `A London court approved the extradition of Amit Forlit, who ran companies that allegedly stole information on behalf of a lobbying firm hired by Exxon.`\
 https://nytimes.com/2025/04/30/climate/hacking-for-hire-exxon-forlit-extradition.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6324588/2025/04/30/fa-cup-final-ticket-prices/
 **Julia Parsons, U.S. Navy Code Breaker During World War II, Dies at 104**\
 `Soon after her officer training in Washington, she was recruited to a classified code-breaking team. She kept her work secret for decades, even from her family.`\
 https://nytimes.com/2025/04/30/world/julia-parsons-dead.html
-
-**Thursday Briefing: Anger Is Building in India**\
-`Plus, books that whisk you away.`\
-https://nytimes.com/2025/04/30/briefing/india-pakistan-trump-gulf-projects-syria-israel.html
-
-**Deep in the Subway Station, Reporters Find a Century-Old System**\
-`Much of the New York subway system still uses signal technology installed nearly 100 years ago. Two reporters wanted to find out how it worked.`\
-https://nytimes.com/2025/04/30/insider/nyc-subway-signals-insider.html
-
-**Meta Says It Anticipates Continued Growth Despite Tariffs**\
-`The Silicon Valley company made the revenue projection as it reported a 35 percent rise in profit in the first quarter.`\
-https://nytimes.com/2025/04/30/technology/meta-earnings-report.html
 
