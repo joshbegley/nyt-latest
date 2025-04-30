@@ -1,3 +1,15 @@
+**Rafael Devers, Jarren Duran heating up as five-homer barrage jumpstarts Red Sox**\
+`The Red Sox hit five home runs in the first three innings for the first time since 2009.`\
+https://nytimes.com/athletic/6322491/2025/04/29/red-sox-five-homers-rafael-devers-jarren-duran/
+
+**A U.S. Businessman Is Sentenced to 5 Years in Prison in China**\
+`The charges stemmed from a criminal case more than 20 years ago. In the interim, the businessman, David Lee, had repeatedly visited China without issue.`\
+https://nytimes.com/2025/04/29/world/asia/american-businessman-jailed-china.html
+
+**Hurricanes survive Jacob Markström masterpiece, advance to second round with 2OT win over Devils**\
+`The Hurricanes are the first NHL team to advance and will face the winner of the Canadiens-Capitals series.`\
+https://nytimes.com/athletic/6322397/2025/04/29/hurricanes-devils-game-5-nhl-playoffs/
+
 **The Leafs decided to play coin-flip games this season. It’s backfiring at the worst time**\
 `Playing coin-flip games is how Toronto thought it would win in the playoffs. Now the coin is flipping the other way.
 `\
@@ -26,16 +38,4 @@ https://nytimes.com/interactive/2025/04/29/upshot/trump-100-days-charts.html
 **Reds' prospect Chase Petty set to make debut against Cardinals on Wednesday**\
 `Petty, 22, is 0-2 with a 3.52 ERA in five starts for the Triple-A Louisville Bats this season.`\
 https://nytimes.com/athletic/6322428/2025/04/29/reds-prospect-chase-petty-debut-wednesday-cardinals/
-
-**What we learned from Jim Rutherford after Rick Tocchet's decision to depart Canucks**\
-`Rutherford didn't go into much detail on why Tocchet moved on, but he shared insight on what comes next for the Canucks.`\
-https://nytimes.com/athletic/6322114/2025/04/29/canucks-jim-rutherford-rick-tocchet/
-
-**Mark Prior talks Dodgers pitching injuries: 'It's not a good quality of life'**\
-`Prior said there are ongoing discussions about how the Dodgers integrate their call-ups into the big-league environment.`\
-https://nytimes.com/athletic/6322304/2025/04/29/dodgers-mark-prior-pitching-injuries/
-
-**The Poetry Challenge Day 3: This is a New York poem. Once you learn it, you can take it anywhere.**\
-`You can take a poem with you anywhere, but knowing its origins can help make it yours. Practice by playing our poetry emoji game.`\
-https://nytimes.com/interactive/2025/books/edna-st-vincent-millay-nyc.html
 
