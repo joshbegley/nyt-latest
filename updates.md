@@ -1,3 +1,20 @@
+**Rafael Devers, Jarren Duran heating up as five-homer barrage jumpstarts Red Sox**\
+`The Red Sox hit five home runs in the first three innings for the first time since 2009.`\
+https://nytimes.com/athletic/6322491/2025/04/29/red-sox-five-homers-rafael-devers-jarren-duran/
+
+**A U.S. Businessman Is Sentenced to 5 Years in Prison in China**\
+`The charges stemmed from a criminal case more than 20 years ago. In the interim, the businessman, David Lee, had repeatedly visited China without issue.`\
+https://nytimes.com/2025/04/29/world/asia/american-businessman-jailed-china.html
+
+**Hurricanes survive Jacob Markström masterpiece, advance to second round with 2OT win over Devils**\
+`The Hurricanes are the first NHL team to advance and will face the winner of the Canadiens-Capitals series.`\
+https://nytimes.com/athletic/6322397/2025/04/29/hurricanes-devils-game-5-nhl-playoffs/
+
+**The Leafs decided to play coin-flip games this season. It’s backfiring at the worst time**\
+`Playing coin-flip games is how Toronto thought it would win in the playoffs. Now the coin is flipping the other way.
+`\
+https://nytimes.com/athletic/6322444/2025/04/29/maple-leafs-nhl-playoffs-game-5/
+
 **Yankees achieve historic feat with back-to-back-to-back homer barrage**\
 `New York also hit back-to-back-to-back home runs on March 29 against Milwaukee Brewers starter Nestor Cortes Jr. `\
 https://nytimes.com/athletic/6322112/2025/04/29/new-york-yankees-mlb-home-run-history/

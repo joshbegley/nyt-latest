@@ -1,3 +1,7 @@
+**Astros to promote top pitching prospect AJ Blubaugh**\
+`Blubaugh, 24, was drafted in 2022 in the 7th round.`\
+https://nytimes.com/athletic/6322029/2025/04/29/astros-promote-pitching-prospect-aj-blubaugh/
+
 **Rafael Devers, Jarren Duran heating up as five-homer barrage jumpstarts Red Sox**\
 `The Red Sox hit five home runs in the first three innings for the first time since 2009.`\
 https://nytimes.com/athletic/6322491/2025/04/29/red-sox-five-homers-rafael-devers-jarren-duran/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/6322491/2025/04/29/red-sox-five-homers-rafael-dever
 `The charges stemmed from a criminal case more than 20 years ago. In the interim, the businessman, David Lee, had repeatedly visited China without issue.`\
 https://nytimes.com/2025/04/29/world/asia/american-businessman-jailed-china.html
 
-**Hurricanes survive Jacob Markström masterpiece, advance to second round with 2OT win over Devils**\
+**Hurricanes survive Jacob Markström masterpiece, advance to second round with 2OT win over Devils: Takeaways**\
 `The Hurricanes are the first NHL team to advance and will face the winner of the Canadiens-Capitals series.`\
 https://nytimes.com/athletic/6322397/2025/04/29/hurricanes-devils-game-5-nhl-playoffs/
 
@@ -34,8 +38,4 @@ https://nytimes.com/2025/04/29/us/politics/trump-abrego-garcia-deported.html
 **Eight Charts That Sum Up Trump’s First 100 Days**\
 `By many measures, the opening months of President Trump’s second term stand apart from those of essentially any modern president.`\
 https://nytimes.com/interactive/2025/04/29/upshot/trump-100-days-charts.html
-
-**Reds' prospect Chase Petty set to make debut against Cardinals on Wednesday**\
-`Petty, 22, is 0-2 with a 3.52 ERA in five starts for the Triple-A Louisville Bats this season.`\
-https://nytimes.com/athletic/6322428/2025/04/29/reds-prospect-chase-petty-debut-wednesday-cardinals/
 
