@@ -1,3 +1,7 @@
+**David Horowitz, Leftist Turned Trump Defender, Is Dead at 86**\
+`Once a Marxist, he came to embrace hard-right positions, including the falsehood that Mr. Trump won in 2020, and to mentor Stephen Miller, later the Trump adviser.`\
+https://nytimes.com/2025/04/30/us/politics/david-horowitz-dead.html
+
 **Atlanta's Dyson Daniels wins NBA's Most Improved Player award**\
 `Known as the “Great Barrier Thief” for his defensive prowess, Daniels exploded onto the scene this season with the Hawks.`\
 https://nytimes.com/athletic/6323587/2025/04/30/dyson-daniels-nba-most-improved-player-2025/
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/6325056/2025/04/30/wild-golden-knights-game-6-lineu
 https://nytimes.com/athletic/6325014/2025/04/30/nationals-staffer-medical-emergency-rushed-hospital/
 
 **Cubs hitting coach Dustin Kelly speaks on Kyle Tucker, Chicago's potent offense**\
-`On the last day of April, the Cubs' offense ranked first or second in the majors in multiple categories, including OPS, hits and runs scored`\
+`On the last day of April, the Cubs offense ranked first or second in the majors in multiple categories, including OPS, hits and runs scored`\
 https://nytimes.com/athletic/6324995/2025/04/30/chicago-cubs-hitting-coach-dustin-kelly-interview/
 
 **Senate Rejects Bipartisan Measure to Undo Trump’s Tariffs**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6324928/2025/04/30/elijah-moore-bills-free-agent-si
 **Trump Would Not Concede ‘MS-13’ Letters Were Digitally Added**\
 `The White House declined to explain why President Trump did not appear to realize that the photograph he held up on social media had been altered.`\
 https://nytimes.com/2025/04/30/us/trump-ms-13-tattoo-abrego-garcia.html
-
-**Ukraine and U.S. Sign Economic and Reconstruction Deal**\
-`The deal is intended to give the U.S. access to proceeds from Ukraine’s reserves of rare earth minerals.`\
-https://nytimes.com/2025/04/30/world/europe/ukraine-minerals-deal-trump.html
 
