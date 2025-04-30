@@ -1,3 +1,23 @@
+**St. Isidore, an Online Catholic Charter School, Would Be the First of Its Kind**\
+`The virtual school, named for the patron saint of the internet, would be funded by Oklahoma taxpayers and incorporate Catholic teachings into its curriculum.`\
+https://nytimes.com/2025/04/30/us/politics/st-isidore-religious-charter-school.html
+
+**Here’s the latest on the argument.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2025/04/30/us/supreme-court-charter-schools/heres-the-latest-on-the-argument
+
+**Live Updates: Supreme Court to Hear Argument on Religious Charter Schools**\
+`The case tests whether public money can be used to fund a religious charter school in Oklahoma, and its outcome could affect how public education funds are used in virtually all states.`\
+https://nytimes.com/live/2025/04/30/us/supreme-court-charter-schools
+
+**The Oilers' best performance of the season came at the best time: 'We want to finish the job'**\
+`The Oilers' 3-1 Game 5 win was not only their best of the series, but it was also their most dominant performance of the 2024-25 season.`\
+https://nytimes.com/athletic/6322979/2025/04/30/nhl-oilers-kings-game-5/
+
+**The One Big Reason Canada’s Liberals Won**\
+`Canada’s Liberals came back from a huge disadvantage in the polls, securing a rare fourth term in power, for one big reason. Matina Stevis-Gridneff, the Canada bureau chief for The New York Times, explains why the Liberals and Mark Carney won, and the challenge they face right now.`\
+https://nytimes.com/video/world/canada/100000010136051/why-canadas-liberals-won.html
+
 **Athletic vs Utd odds: Forecast for a low-scoring affair at the San Mamés**\
 `Brett Koremenos outlines the best bets around Manchester United’s Europa League semi-final first-leg clash with Athletic Club. 
 `\
