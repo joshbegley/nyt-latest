@@ -1,3 +1,15 @@
+**Trump Says He Could Free Abrego Garcia From El Salvador, but Won’t**\
+`Trump’s comments undermined previous statements by his top aides and were a blunt sign of his administration’s intention to double down and defy the courts.`\
+https://nytimes.com/2025/04/29/us/politics/trump-abrego-garcia-deported.html
+
+**Eight Charts That Sum Up Trump’s First 100 Days**\
+`By many measures, the opening months of President Trump’s second term stand apart from those of essentially any modern president.`\
+https://nytimes.com/interactive/2025/04/29/upshot/trump-100-days-charts.html
+
+**Reds' prospect Chase Petty set to make debut against Cardinals on Wednesday**\
+`Petty, 22, is 0-2 with a 3.52 ERA in five starts for the Triple-A Louisville Bats this season.`\
+https://nytimes.com/athletic/6322428/2025/04/29/reds-prospect-chase-petty-debut-wednesday-cardinals/
+
 **Reds' prospect Chase Petty set to make debut against St. Louis Wednesday**\
 `Petty, 22, is 0-2 with a 3.52 ERA in five starts for Triple-A Louisville Bats this season.`\
 https://nytimes.com/athletic/6322428/2025/04/29/reds-prospect-chase-petty-debut-wednesday-st-louis/

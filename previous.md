@@ -1,6 +1,14 @@
-**Reds' prospect Chase Petty set to make debut against St. Louis Wednesday**\
-`Petty, 22, is 0-2 with a 3.52 ERA in five starts for Triple-A Louisville Bats this season.`\
-https://nytimes.com/athletic/6322428/2025/04/29/reds-prospect-chase-petty-debut-wednesday-st-louis/
+**Trump Says He Could Free Abrego Garcia From El Salvador, but Won’t**\
+`Trump’s comments undermined previous statements by his top aides and were a blunt sign of his administration’s intention to double down and defy the courts.`\
+https://nytimes.com/2025/04/29/us/politics/trump-abrego-garcia-deported.html
+
+**Eight Charts That Sum Up Trump’s First 100 Days**\
+`By many measures, the opening months of President Trump’s second term stand apart from those of essentially any modern president.`\
+https://nytimes.com/interactive/2025/04/29/upshot/trump-100-days-charts.html
+
+**Reds' prospect Chase Petty set to make debut against Cardinals on Wednesday**\
+`Petty, 22, is 0-2 with a 3.52 ERA in five starts for the Triple-A Louisville Bats this season.`\
+https://nytimes.com/athletic/6322428/2025/04/29/reds-prospect-chase-petty-debut-wednesday-cardinals/
 
 **What we learned from Jim Rutherford after Rick Tocchet's decision to depart Canucks**\
 `Rutherford didn't go into much detail on why Tocchet moved on, but he shared insight on what comes next for the Canucks.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6322298/2025/04/29/daulton-varsho-catch-blue-jays-r
 **Aided by epic Bucks collapse, Pacers advance with thrilling OT win**\
 `Indiana eliminated Milwaukee from the playoffs on Tuesday night with a memorable comeback.`\
 https://nytimes.com/athletic/6322295/2025/04/29/pacers-win-epic-bucks-collapse/
-
-**Why Rick Tocchet left and what it means for the Canucks' offseason**\
-`While the Canucks will have to find a head coach to replace Tocchet, this remains an all-in summer for Vancouver.`\
-https://nytimes.com/athletic/6321917/2025/04/29/canucks-rick-tocchet-jim-rutherford/
-
-**The Bucks are toast, and trading Giannis Antetokounmpo may be the only path forward**\
-`Oddly enough, the Bucks find themselves in a similar position to Portland before it eventually traded Damian Lillard to ... Milwaukee.`\
-https://nytimes.com/athletic/6321037/2025/04/29/giannis-antetokounmpo-trade-rumors-bucks-nba-playoffs/
 
