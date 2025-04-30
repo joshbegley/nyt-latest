@@ -1,3 +1,19 @@
+**Atlanta's Dyson Daniels wins NBA's Most Improved Player award**\
+`Known as the “Great Barrier Thief” for his defensive prowess, Daniels exploded onto the scene this season with the Hawks.`\
+https://nytimes.com/athletic/6323587/2025/04/30/dyson-daniels-nba-most-improved-player-2025/
+
+**'The pesky Wild will persevere': After a season of adversity, Minnesota believes it can force a Game 7**\
+`"I truly believe that we can get back in the series and win it," Marcus Foligno said on Wednesday, with the Wild trailing 3-2.`\
+https://nytimes.com/athletic/6325056/2025/04/30/wild-golden-knights-game-6-lineup/
+
+**Nats staffer has medical emergency during BP, rushed to hospital before game**\
+`Washington canceled its pregame workout session as players and coaches left the field distraught.`\
+https://nytimes.com/athletic/6325014/2025/04/30/nationals-staffer-medical-emergency-rushed-hospital/
+
+**Cubs hitting coach Dustin Kelly speaks on Kyle Tucker, Chicago's potent offense**\
+`On the last day of April, the Cubs' offense ranked first or second in the majors in multiple categories, including OPS, hits and runs scored`\
+https://nytimes.com/athletic/6324995/2025/04/30/chicago-cubs-hitting-coach-dustin-kelly-interview/
+
 **Senate Rejects Bipartisan Measure to Undo Trump’s Tariffs**\
 `Only three Republicans joined Democrats in voting to end the national emergency President Trump declared to impose tariffs on most U.S. trading partners, leaving the measure short of the support needed to pass.`\
 https://nytimes.com/2025/04/30/us/politics/senate-trump-tariffs.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/04/30/us/trump-ms-13-tattoo-abrego-garcia.html
 **Ukraine and U.S. Sign Economic and Reconstruction Deal**\
 `The deal is intended to give the U.S. access to proceeds from Ukraine’s reserves of rare earth minerals.`\
 https://nytimes.com/2025/04/30/world/europe/ukraine-minerals-deal-trump.html
-
-**House Votes to Repeal California’s Clean Truck Policies**\
-`Lawmakers voted to stop the state from requiring that an increasing share of new trucks sold there have zero emissions.`\
-https://nytimes.com/2025/04/30/climate/house-votes-to-repeal-californias-clean-truck-policies.html
-
-**You Sent Us Your Travel Quandaries. Here Are Our Suggestions.**\
-`We asked readers stumped about where to go on vacation this summer to tell us their ideal kind of trip (and budget). Here, T’s travel expert responds with her recommendations.`\
-https://nytimes.com/2025/04/30/t-magazine/summer-travel-getaway-guide.html
-
-**Can You Skip Chores to Post Online?**\
-`What level of artistic creation would warrant leaving a mess behind?`\
-https://nytimes.com/interactive/2025/04/30/magazine/04mag-hodgmanquiz.html
-
-**Connor Zilisch to miss Saturday's Xfinity Series at Texas Motor Speedway**\
-`Zilisch is recovering from lower back injuries suffered in a hard crash during last week's race at Talladega.`\
-https://nytimes.com/athletic/6324939/2025/04/30/connor-zilisch-injured-xfinity-series-texas/
 

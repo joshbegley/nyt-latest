@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6325056/2025/04/30/wild-golden-knights-game-6-lineu
 https://nytimes.com/athletic/6325014/2025/04/30/nationals-staffer-medical-emergency-rushed-hospital/
 
 **Cubs hitting coach Dustin Kelly speaks on Kyle Tucker, Chicago's potent offense**\
-`On the last day of April, the Cubs' offense ranked first or second in the majors in multiple categories, including OPS, hits and runs scored`\
+`On the last day of April, the Cubs offense ranked first or second in the majors in multiple categories, including OPS, hits and runs scored`\
 https://nytimes.com/athletic/6324995/2025/04/30/chicago-cubs-hitting-coach-dustin-kelly-interview/
 
 **Senate Rejects Bipartisan Measure to Undo Trump’s Tariffs**\
