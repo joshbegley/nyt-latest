@@ -1,3 +1,7 @@
+**NBA playoffs takeaways: Pacers advance as Bucks collapse in OT**\
+`Pacers rally from 20-point deficit to win in OT. Knicks, Celtics can also advance with wins.`\
+https://nytimes.com/athletic/6322220/2025/04/29/nba-playoffs-results-takeaways-scores-tuesday/
+
 **Canada’s Conservative Leader Is Tossed From His Own Seat**\
 `Pierre Poilievre lost the vote for a constituency he has held for 21 years to a Liberal political neophyte. His populist approach may have been to blame.`\
 https://nytimes.com/2025/04/29/world/canada/canada-poilievre-election-conservatives.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/29/world/un-budget-cuts-trump.html
 **Canadiens playoff notebook: How to compensate for potential absence of Alexandre Carrier**\
 `Also, mind games around Sam Montembeault's availability and Cole Caufield is happy to be back where he's comfortable on the power play.`\
 https://nytimes.com/athletic/6322181/2025/04/29/canadiens-nhl-playoffs-alexandre-carrier/
-
-**Trump Threatens Chicago School Funding Over Black Student Success Plan**\
-`The Education Department’s civil rights office is investigating whether the program, which helps Black students do better academically, is racially discriminatory.`\
-https://nytimes.com/2025/04/29/us/politics/trump-chicago-schools-black-students.html
 

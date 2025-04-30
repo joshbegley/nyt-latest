@@ -1,3 +1,7 @@
+**NBA playoffs takeaways: Pacers advance as Bucks collapse in OT**\
+`Pacers rally from 20-point deficit to win in OT. Knicks, Celtics can also advance with wins.`\
+https://nytimes.com/athletic/6322220/2025/04/29/nba-playoffs-results-takeaways-scores-tuesday/
+
 **Canada’s Conservative Leader Is Tossed From His Own Seat**\
 `Pierre Poilievre lost the vote for a constituency he has held for 21 years to a Liberal political neophyte. His populist approach may have been to blame.`\
 https://nytimes.com/2025/04/29/world/canada/canada-poilievre-election-conservatives.html
