@@ -1,3 +1,15 @@
+**Evanilson's three-match ban removed following successful Bournemouth appeal**\
+`The 25-year-old will now be available for Bournemouth’s trip to the Emirates to face Arsenal on Saturday. `\
+https://nytimes.com/athletic/6322998/2025/04/30/evanilson-red-card-appeal-bournemouth-man-united/
+
+**Bengals 53-man roster outlook: 2 major position battles on deck after NFL Draft**\
+`Linebacker Demetrius Knight and guard Dylan Fairchild look like the rookies most likely to have starting spots.`\
+https://nytimes.com/athletic/6321187/2025/04/30/bengals-53-man-roster-nfl-draft/
+
+**Magic never solved the Jayson Tatum problem in Celtics series loss**\
+`Tatum helped slam the door on the Magic with 35 points, 10 assists and eight rebounds in Game 5.`\
+https://nytimes.com/athletic/6322832/2025/04/30/celtics-magic-jayson-tatum-problem/
+
 **How Each of the Last 15 Presidents Managed His First 100 Days**\
 `They signed landmark legislation, created new programs, ordered military action and endured early stumbles.`\
 https://nytimes.com/2025/04/30/us/politics/presidents-100-days-trump.html
