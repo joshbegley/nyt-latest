@@ -1,3 +1,11 @@
+**Can You Skip Chores to Post Online?**\
+`What level of artistic creation would warrant leaving a mess behind?`\
+https://nytimes.com/interactive/2025/04/30/magazine/04mag-hodgmanquiz.html
+
+**Connor Zilisch to miss Saturday's Xfinity Series at Texas Motor Speedway**\
+`Zilisch is recovering from lower back injuries suffered in a hard crash during last week's race at Talladega.`\
+https://nytimes.com/athletic/6324939/2025/04/30/connor-zilisch-injured-xfinity-series-texas/
+
 **Bill Gates Navigates the DOGE Era**\
 `Elon Musk is destroying what Gates has spent decades building: the global health apparatus.`\
 https://nytimes.com/2025/04/30/us/politics/bill-gates-elon-musk-doge-trump.html
