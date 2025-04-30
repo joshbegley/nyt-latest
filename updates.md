@@ -1,3 +1,15 @@
+**From mediocrity to futility: Rockies set MLB record for most losses in April**\
+`In the handshake line on Wednesday, Colorado Rockies center fielder stopped to hug rookie Zach Agnos.`\
+https://nytimes.com/athletic/6324894/2025/04/30/colorado-rockies-mlb-record-april-losses/
+
+**Trump, on Tariffs, Says ‘Maybe the Children Will Have 2 Dolls Instead of 30’**\
+`At the end of a cabinet meeting, the president allowed for the possibility that trade war could disrupt supply chains.`\
+https://nytimes.com/2025/04/30/us/politics/trump-tariffs-dolls-comment.html
+
+**Alijah Arenas out of hospital less than 1 week after car crash, family says**\
+`Arenas' family said the five-star basketball recruit and University of Southern California commit will remain under close watch.`\
+https://nytimes.com/athletic/6324932/2025/04/30/alijah-arenas-leaves-hospital/
+
 **Kentucky Derby updated odds: Journalism the favorite, Baffert returns**\
 `The Kentucky Derby kicks off Saturday at 6:57 p.m. ET., with Journalism as the race favorite at 3-1 odds.`\
 https://nytimes.com/athletic/6323852/2025/04/30/kentucky-derby-2025-favorites-odds-horses/
