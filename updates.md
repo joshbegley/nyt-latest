@@ -1,3 +1,11 @@
+**Lopetegui close to joining Qatar as new head coach**\
+`Lopetegui was sacked as West Ham United head coach in January after just six months in charge.`\
+https://nytimes.com/athletic/6299613/2025/04/30/julen-lopetegui-qatar-head-coach/
+
+**The Steelers didn't let QB desperation get the best of them in the draft**\
+`On "The Athletic Football Show," a discussion of the Steelers' approach to the draft and their quarterback situation now.`\
+https://nytimes.com/athletic/6323066/2025/04/30/athletic-football-show-pittsburgh-steelers-quarterback-draft-2025/
+
 **Belichick says CBS interview was 'selectively edited'**\
 `The segment shows Belichick's girlfriend Jordon Hudson interjecting after interviewer Tony Dokoupil asked how the two met.`\
 https://nytimes.com/athletic/6324444/2025/04/30/bill-belichick-north-carolina-cbs-interview-jordon-hudson/
