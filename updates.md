@@ -1,3 +1,16 @@
+**Ho Chi Minh City Celebrates the Fall of Saigon**\
+`Surging Vietnamese nationalism appeared on the streets, as thousands gathered to commemorate the 50th anniversary of the end of the war.`\
+https://nytimes.com/2025/04/30/world/asia/saigon-parade-vietnam-war.html
+
+**50th Anniversary Parade Marks End of Vietnam War**\
+`Veterans and young people alike commemorated the end of the Vietnam War with a 50th anniversary parade in Ho Chi Minh City on Wednesday.`\
+https://nytimes.com/video/world/asia/100000010138168/vietnam-war-50th-anniversary-parade.html
+
+**Spurs vs Bodø/Glimt semi-final markets: Goals, home advantage and away cards**\
+`Sam Tighe outlines the best bets around Tottenham Hotspur’s Europa League semi-final first-leg clash with Bodø/Glimt. 
+`\
+https://nytimes.com/athletic/6323083/2025/04/30/europa-league-semi-final-tottenham-bodo-glimt-betting-predictions/
+
 **Spurs vs Bodø/Glimt semi-final markets: Goals, home advantage and away cards**\
 `Sam Tighe outlines the best bets around Tottenham Hotspur’s Europa League semi-final first-leg clash with Bodø/Glimt. 
 `\
