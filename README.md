@@ -1,4 +1,8 @@
-**Astros pitcher Lance McCullers Jr. to make season debut on Sunday**\
+**Dynasty league SuperFlex rookie mock draft, starting with the 'Magnificent Seven'**\
+`Jeff Haverlack puts together a consensus rookie mock draft based on what he's seeing on social platforms and in early dynasty league drafts.`\
+https://nytimes.com/athletic/6323697/2025/04/30/dynasty-fantasy-football-mock-draft-superflex-rookie-jeanty/
+
+**Astros pitcher Lance McCullers Jr. to make first start since 2022 on Sunday**\
 `The 31-year-old will make his first major league start since 2022 following setbacks from a right elbow injury.`\
 https://nytimes.com/athletic/6324124/2025/04/30/astros-lance-mccullers-jr-season-debut/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/30/nyregion/harvey-weinstein-nyc-sex-abuse-trial-wit
 **When will the court issue its decision?**\
 `By Adam Liptak`\
 https://nytimes.com/live/2025/04/30/us/supreme-court-charter-schools/when-will-the-court-issue-its-decision
-
-**Vietnam Veterans Worry That a War’s Hard Lessons Are Being Forgotten**\
-`The conflict profoundly affected the American troops who served there, as well as the nation’s culture and politics. But 50 years later, veterans say they see its mistakes being repeated.`\
-https://nytimes.com/2025/04/30/us/vietnam-veterans-saigon-lessons-1975.html
 
