@@ -1,3 +1,7 @@
+**Ausar Thompson was the ‘X-factor’ in Pistons’ Game 5 win over Knicks**\
+`Thompson drew the assignment of guarding Jalen Brunson for most of the series and he limited New York's catalyst to 16 points in Game 5.`\
+https://nytimes.com/athletic/6322760/2025/04/30/ausar-thompson-pistons-win-game-five/
+
 **Gianluigi Donnarumma: From a liability to PSG's 'titan in goal' in the Champions League**\
 `The Italian looked shaky and uncertain earlier in the competition. Against Arsenal, he was superb and kept his team in the driving seat `\
 https://nytimes.com/athletic/6322030/2025/04/30/gianluigi-donnarumma-psg-arsenal-champions-league/
@@ -18,7 +22,7 @@ https://nytimes.com/2025/04/30/learning/word-of-the-day-unabashed.html
 `A slowdown in commerce between the United States and China caused by escalating tariffs was evident in a report Wednesday on manufacturing activity in April.`\
 https://nytimes.com/2025/04/30/business/china-pmi-factory-manufacturing.html
 
-**Arsenal suffered against Paris Saint-Germain - but this is a tie that is still alive**\
+**Arsenal suffered against Paris Saint-Germain - but this tie is still alive**\
 `Mikel Arteta's side are capable of overcoming a one goal deficit in Paris - but it will require their best performance of the season`\
 https://nytimes.com/athletic/6322335/2025/04/30/arsenal-psg-champions-league-chances/
 
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6317061/2025/04/30/oilers-kings-nhl-playoffs-2025-g
 `By Michael Russo, Jesse Granger and Joe Smith
 LAS VEGAS – Brett Howden’s career season just keeps getting better.`\
 https://nytimes.com/athletic/6321538/2025/04/30/wild-golden-knights-game-5/
-
-**The New York Times in Print for Wednesday, April 30, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/04/30/todays-new-york-times
 
