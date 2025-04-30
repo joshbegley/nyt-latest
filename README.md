@@ -1,3 +1,11 @@
+**Explaining why Ancelotti's Brazil move has stalled and what's next for Real Madrid coach**\
+`Ancelotti has been in talks with the Brazilian football federation since March and appeared set to join… until fresh developments this week`\
+https://nytimes.com/athletic/6324133/2025/04/30/carlo-ancelotti-real-madrid-brazil-interest/
+
+**Jets QB Jordan Travis announces retirement from the NFL**\
+`Travis cited the leg injury he suffered during his final season at Florida State as the reason for his decision.`\
+https://nytimes.com/athletic/6324543/2025/04/30/jordan-travis-retire-injury-florida-state-jets/
+
 **Lopetegui close to joining Qatar as new head coach**\
 `Lopetegui was sacked as West Ham United head coach in January after just six months in charge.`\
 https://nytimes.com/athletic/6299613/2025/04/30/julen-lopetegui-qatar-head-coach/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6324255/2025/04/30/ruben-amorim-manchester-united-e
 **At Least 4 Die in Pennsylvania as Storm Leaves 400,000 Without Power**\
 `The storm system brought destructive winds to the state, knocking down trees and power lines.`\
 https://nytimes.com/2025/04/30/weather/northeast-storms-outages-deaths-pennsylvania.html
-
-**Quiz: Which Kind of Happiness Do You Rely On Most?**\
-`There are two kinds. Which kind of daily pleasure are you seeking?`\
-https://nytimes.com/interactive/2025/04/30/magazine/what-makes-me-happy-quiz.html
-
-**Leafs coach Craig Berube on struggle to close out Senators: 'It's on everybody'**\
-`Leafs coach faces pointed questions about Core 4 and special teams as series heads back to Ottawa for Game 6.`\
-https://nytimes.com/athletic/6324382/2025/04/30/maple-leafs-craig-berube-nhl-playoffs/
 
