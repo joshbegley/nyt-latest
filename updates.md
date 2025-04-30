@@ -1,3 +1,15 @@
+**Late Night Grades Trump’s First 100 Days in Office**\
+`“It’s been an historic 100 days — some would say prehistoric,” said Jimmy Kimmel.`\
+https://nytimes.com/2025/04/30/arts/television/late-night-trump-100-days.html
+
+**Ausar Thompson was the ‘X-factor’ in Pistons’ Game 5 win over Knicks**\
+`Thompson drew the assignment of guarding Jalen Brunson for most of the series and he limited New York's catalyst to 16 points in Game 5.`\
+https://nytimes.com/athletic/6322760/2025/04/30/ausar-thompson-pistons-win-game-five/
+
+**Arsenal suffered against Paris Saint-Germain - but this tie is still alive**\
+`Mikel Arteta's side are capable of overcoming a one goal deficit in Paris - but it will require their best performance of the season`\
+https://nytimes.com/athletic/6322335/2025/04/30/arsenal-psg-champions-league-chances/
+
 **Gianluigi Donnarumma: From a liability to PSG's 'titan in goal' in the Champions League**\
 `The Italian looked shaky and uncertain earlier in the competition. Against Arsenal, he was superb and kept his team in the driving seat `\
 https://nytimes.com/athletic/6322030/2025/04/30/gianluigi-donnarumma-psg-arsenal-champions-league/

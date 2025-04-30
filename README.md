@@ -27,7 +27,7 @@ https://nytimes.com/2025/04/30/learning/word-of-the-day-unabashed.html
 https://nytimes.com/2025/04/30/business/china-pmi-factory-manufacturing.html
 
 **Arsenal suffered against Paris Saint-Germain - but this tie is still alive**\
-`Mikel Arteta's side are capable of overcoming a one goal deficit in Paris - but it will require their best performance of the season`\
+`Mikel Arteta's side are capable of overcoming a one goal deficit in Paris - but it might require their best performance of the season`\
 https://nytimes.com/athletic/6322335/2025/04/30/arsenal-psg-champions-league-chances/
 
 **Kyle Manzardo hits walk-off homer to lift Guardians over Twins after long rain delay**\
