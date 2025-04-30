@@ -1,3 +1,7 @@
+**From mediocrity to futility: Rockies set MLB record for most losses in April**\
+`In the handshake line on Wednesday, Colorado Rockies center fielder stopped to hug rookie Zach Agnos.`\
+https://nytimes.com/athletic/6324894/2025/04/30/colorado-rockies-mlb-record-april-losses/
+
 **Trump, on Tariffs, Says ‘Maybe the Children Will Have 2 Dolls Instead of 30’**\
 `At the end of a cabinet meeting, the president allowed for the possibility that trade war could disrupt supply chains.`\
 https://nytimes.com/2025/04/30/us/politics/trump-tariffs-dolls-comment.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6301424/2025/04/30/chelsea-wsl-title-win/
 **Ted Kotcheff, Director Who Brought Rambo to the Screen, Dies at 94**\
 `His films, including “First Blood” and “Weekend at Bernie’s,” covered a range of genres. He was later an executive producer of “Law & Order: Special Victims Unit.”`\
 https://nytimes.com/2025/04/30/movies/ted-kotcheff-dead.html
-
-**Wegovy Can Treat a Dangerous Liver Disease, Study Finds**\
-`A large trial showed that the weight-loss drug could reduce liver inflammation and scarring caused by the common condition.`\
-https://nytimes.com/2025/04/30/well/wegovy-liver-disease-mash.html
 
