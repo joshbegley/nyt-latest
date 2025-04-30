@@ -1,3 +1,7 @@
+**The playoffs showed the Magic have a strong foundation — but that they need more**\
+`Orlando outplayed Boston at times during their first-round series but lacked the shooting and skill to win more than one game. Now what? `\
+https://nytimes.com/athletic/6322880/2025/04/30/orlando-magic-playoffs-celtics-game-5-banchero-wagner/
+
 **Sectarian Clashes Spread Around Syria’s Capital, Drawing In Israel**\
 `The Israeli military said it had carried out a warning strike against “extremists” preparing to attack members of the Druse religious minority.`\
 https://nytimes.com/2025/04/30/world/europe/syria-sectarian-fighting-druse.html

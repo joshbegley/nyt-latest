@@ -1,3 +1,7 @@
+**The playoffs showed the Magic have a strong foundation — but that they need more**\
+`Orlando outplayed Boston at times during their first-round series but lacked the shooting and skill to win more than one game. Now what? `\
+https://nytimes.com/athletic/6322880/2025/04/30/orlando-magic-playoffs-celtics-game-5-banchero-wagner/
+
 **Sectarian Clashes Spread Around Syria’s Capital, Drawing In Israel**\
 `The Israeli military said it had carried out a warning strike against “extremists” preparing to attack members of the Druse religious minority.`\
 https://nytimes.com/2025/04/30/world/europe/syria-sectarian-fighting-druse.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6320996/2025/04/30/four-home-run-game-perfect-game-
 **Celtics swarm Magic after Paolo Banchero's foul trouble, breathe sigh of relief**\
 `The Celtics finished the series in a nice five-game package, as many predicted. But they felt the effects of Orlando's physical play. `\
 https://nytimes.com/athletic/6322818/2025/04/30/celtics-magic-game-5-jayson-tatum/
-
-**How much is Lewis Hamilton really struggling at Ferrari? What the numbers say**\
-`Lewis Hamilton's start to F1 life at Ferrari has so far not returned the results he expected. A look at the numbers explains why`\
-https://nytimes.com/athletic/6317978/2025/04/30/lewis-hamilton-stats-f1-ferrari-struggles/
 
