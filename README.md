@@ -1,3 +1,11 @@
+**What happens if there is a tie vote?**\
+`By Adam Liptak`\
+https://nytimes.com/live/2025/04/30/us/supreme-court-charter-schools/what-happens-if-there-is-a-tie-vote
+
+**Tiny Love Stories: ‘Give Her the Flower, Man!’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/04/30/style/tiny-modern-love-stories-give-her-the-flower-man.html
+
 **Review: The Met Opera’s New ‘Salome’ Fractures Its Princess**\
 `In his company debut, the director Claus Guth takes a psychological approach, surrounding the title character with six versions of her younger self.`\
 https://nytimes.com/2025/04/30/arts/music/met-opera-salome-review.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/30/magazine/artificial-intelligence-photo-ethics.htm
 **Mexican top-flight player given six-year ban for alleged match-fixing**\
 `Mexico's football federation said the alleged match-fixing took place in the Clausera - which took place between January and April.`\
 https://nytimes.com/athletic/6323644/2025/04/30/mexico-footballer-ban-match-fixing/
-
-**Kangaroo Startles Drivers on an Alabama Interstate**\
-`Sheila, a local man’s pet, escaped her enclosure and decided to hit the road.`\
-https://nytimes.com/2025/04/30/us/kangaroo-alabama.html
-
-**NFL fines Falcons, DC Ulbrich for leaking Sanders' draft phone number**\
-`The NFL has fined the Falcons $250,000 and DC Jeff Ulbrich $100,000 over the leak of Sanders' phone number before the 2025 NFL Draft.`\
-https://nytimes.com/athletic/6323798/2025/04/30/nfl-fines-falcons-jeff-ulbrich-shedeur-sanders/
 
