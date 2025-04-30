@@ -1,3 +1,7 @@
+**Truck Overturns, and Millions of Dimes Spill Onto Texas Highway**\
+`Road lanes were closed for about 14 hours while crews used vacuums, shovels and their hands to scoop up freshly minted loose coins.`\
+https://nytimes.com/2025/04/30/us/dimes-truck-spill-texas.html
+
 **David Horowitz, Leftist Turned Trump Defender, Is Dead at 86**\
 `Once a Marxist, he came to embrace hard-right positions, including the falsehood that Mr. Trump won in 2020, and to mentor Stephen Miller, later the Trump adviser.`\
 https://nytimes.com/2025/04/30/us/politics/david-horowitz-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6324000/2025/04/30/hockey-canada-sexual-assault-tri
 **Bills sign WR Elijah Moore to 1-year deal after GM's fiery comments**\
 `Moore, who ranked No. 67 on The Athletic's top 150 free agents list, caught 61 passes with the Cleveland Browns last season.`\
 https://nytimes.com/athletic/6324928/2025/04/30/elijah-moore-bills-free-agent-signing/
-
-**Trump Would Not Concede ‘MS-13’ Letters Were Digitally Added**\
-`The White House declined to explain why President Trump did not appear to realize that the photograph he held up on social media had been altered.`\
-https://nytimes.com/2025/04/30/us/trump-ms-13-tattoo-abrego-garcia.html
 

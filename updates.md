@@ -1,3 +1,7 @@
+**Truck Overturns, and Millions of Dimes Spill Onto Texas Highway**\
+`Road lanes were closed for about 14 hours while crews used vacuums, shovels and their hands to scoop up freshly minted loose coins.`\
+https://nytimes.com/2025/04/30/us/dimes-truck-spill-texas.html
+
 **David Horowitz, Leftist Turned Trump Defender, Is Dead at 86**\
 `Once a Marxist, he came to embrace hard-right positions, including the falsehood that Mr. Trump won in 2020, and to mentor Stephen Miller, later the Trump adviser.`\
 https://nytimes.com/2025/04/30/us/politics/david-horowitz-dead.html
