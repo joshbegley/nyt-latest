@@ -1,3 +1,15 @@
+**Amorim says Europa League success will not solve Man Utd's 'problems'**\
+`Winning the Europa League would offer United a back-door route into next season's Champions League.`\
+https://nytimes.com/athletic/6324255/2025/04/30/ruben-amorim-manchester-united-europa-league/
+
+**At Least 4 Die in Pennsylvania as Storm Leaves 400,000 Without Power**\
+`The storm system brought destructive winds to the state, knocking down trees and power lines.`\
+https://nytimes.com/2025/04/30/weather/northeast-storms-outages-deaths-pennsylvania.html
+
+**Defensively sound, rapid in attack, packed with academy stars: What United can expect from Athletic Club**\
+`Athletic Club continue to punch above their weight and are brilliant to watch - there is a growing hope they're on the verge of history`\
+https://nytimes.com/athletic/6323025/2025/04/30/what-manchester-united-can-expect-from-athletic-club/
+
 **Quiz: Which Kind of Happiness Do You Rely On Most?**\
 `There are two kinds. Which kind of daily pleasure are you seeking?`\
 https://nytimes.com/interactive/2025/04/30/magazine/what-makes-me-happy-quiz.html

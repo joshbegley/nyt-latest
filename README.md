@@ -1,3 +1,7 @@
+**Alt files lawsuit against sports card marketplace PWCC alleging fraud**\
+`Alt alleges shill bidding and other practices were employed on high-value card auctions between 2021-2023`\
+https://nytimes.com/athletic/6323468/2025/04/30/alt-pwcc-lawsuit-sports-cards/
+
 **Amorim says Europa League success will not solve Man Utd's 'problems'**\
 `Winning the Europa League would offer United a back-door route into next season's Champions League.`\
 https://nytimes.com/athletic/6324255/2025/04/30/ruben-amorim-manchester-united-europa-league/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/30/nyregion/nj-transit-strike-talks.html
 **Man City set to join inaugural women's seven-a-side tournament**\
 `City are set to join Manchester United, Bayern Munich, Ajax and Benfica at the World Sevens Football (W7F) tournament in May.`\
 https://nytimes.com/athletic/6323943/2025/04/30/manchester-city-women-world-sevens/
-
-**Wildfires in Israel Force Towns Near Jerusalem to Evacuate**\
-`The fires interrupted memorial day ceremonies, and Israel’s top firefighter called the blazes “one of the toughest events” he has faced.`\
-https://nytimes.com/2025/04/30/world/middleeast/israel-wildfires-evacuations-jerusalem.html
 
