@@ -1,3 +1,15 @@
+**Dynasty league SuperFlex rookie mock draft, starting with the 'Magnificent Seven'**\
+`Jeff Haverlack puts together a consensus rookie mock draft based on what he's seeing on social platforms and in early dynasty league drafts.`\
+https://nytimes.com/athletic/6323697/2025/04/30/dynasty-fantasy-football-mock-draft-superflex-rookie-jeanty/
+
+**Astros pitcher Lance McCullers Jr. to make first start since 2022 on Sunday**\
+`The 31-year-old will make his first major league start since 2022 following setbacks from a right elbow injury.`\
+https://nytimes.com/athletic/6324124/2025/04/30/astros-lance-mccullers-jr-season-debut/
+
+**Why the Leafs should explore major lineup changes in Game 6, but probably won't**\
+`After losses in Games 4 and 5, it may be time for Maple Leafs coach Craig Berube to shake things up. Would it be enough?`\
+https://nytimes.com/athletic/6323979/2025/04/30/maple-leafs-nhl-playoffs-game-6-lineup/
+
 **Mystics rookie Georgia Amoore suffers ACL injury during training camp**\
 `Amoore was the sixth pick in this month’s WNBA Draft and was poised to be Washington's point guard of the future.`\
 https://nytimes.com/athletic/6324119/2025/04/30/mystics-georgia-amoore-acl-injury/
@@ -10,7 +22,7 @@ https://nytimes.com/video/us/100000010139054/migrant-tree-ice-agents.html
 `Summerville has been out since January, when he was substituted during West Ham's defeat to Aston Villa in the FA Cup third round.`\
 https://nytimes.com/athletic/6324027/2025/04/30/crysencio-summerville-west-ham-surgery/
 
-**The unusual atmosphere at the Emirates for Arsenal vs PSG: A discussion**\
+**Discussing the atmosphere at the Emirates for Arsenal vs PSG**\
 `Arsenal lost 1-0 against Paris Saint-Germain in the first leg of their Champions League semi-final`\
 https://nytimes.com/athletic/6323847/2025/04/30/arsenal-psg-atmosphere-discussion/
 
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/30/nyregion/harvey-weinstein-nyc-sex-abuse-trial-wit
 **When will the court issue its decision?**\
 `By Adam Liptak`\
 https://nytimes.com/live/2025/04/30/us/supreme-court-charter-schools/when-will-the-court-issue-its-decision
-
-**Vietnam Veterans Worry That a War’s Hard Lessons Are Being Forgotten**\
-`The conflict profoundly affected the American troops who served there, as well as the nation’s culture and politics. But 50 years later, veterans say they see its mistakes being repeated.`\
-https://nytimes.com/2025/04/30/us/vietnam-veterans-saigon-lessons-1975.html
-
-**Canadiens-Capitals Game 5 injury updates: Montembeault out; Carrier, Protas game-time decisions**\
-`Also: Patrik Laine is out for Montreal in Game 5 vs. Washington.`\
-https://nytimes.com/athletic/6324013/2025/04/30/canadiens-capitals-game-5-injury-updates-nhl-playoffs/
-
-**More Babies, but Little Support for Them?**\
-`Readers discuss the Trump administration’s urging a baby boom while also cutting support for children.`\
-https://nytimes.com/2025/04/30/opinion/letters/trump-fertility-babies.html
 
