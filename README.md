@@ -1,3 +1,11 @@
+**A look at the Lions' undrafted free agents and which of them could stick with the team**\
+`The Lions have a long streak of keeping at least one undrafted free agent on the 53-man roster.`\
+https://nytimes.com/athletic/6321834/2025/04/30/lions-undrafted-free-agents-2025/
+
+**Mandel's Mailbag: If cash is same in NIL and NFL, what's the argument to stay or go pro?**\
+`Plus: What does the 2023 quarterback class's mass transfers say about the sport?`\
+https://nytimes.com/athletic/6321605/2025/04/30/mandels-mailbag-shedeur-sanders-nil-nfl-quinn-ewers/
+
 **Britain Joins U.S. in Strike Against Houthis in Yemen**\
 `There was no immediate comment from the American military about the joint operation, the first since President Trump took office.`\
 https://nytimes.com/2025/04/30/world/middleeast/uk-us-yemen-houthis-strikes.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/30/arts/television/andor-season-2-episodes-4-6-recap
 **After Nudge From Trump, Senate Sets Fast Pace in Confirming His Ambassadors**\
 `Republicans have raced to approve the president’s picks to serve as top diplomats around the globe, in some cases with solid backing from Democrats.`\
 https://nytimes.com/2025/04/30/us/politics/trump-senate-ambassadors.html
-
-**How to Secure Your Phone’s Data Before Traveling Abroad**\
-`Here are some best practices for safeguarding sensitive personal data.`\
-https://nytimes.com/2025/04/30/technology/personaltech/travel-burner-phone-cbp.html
-
-**No Ordinary Cabinet. No Ordinary Time.**\
-`In his second term, Trump is remaking America. These are the 22 people charged with carrying out his vision.`\
-https://nytimes.com/interactive/2025/04/30/opinion/trump-cabinet-members.html
 
