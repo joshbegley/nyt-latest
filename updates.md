@@ -1,3 +1,5 @@
+
+
 **Justice Amy Coney Barrett Recuses Herself in a Charter School Case**\
 `The justice will not participate in oral argument, deliberations or vote. She gave no explanation.`\
 https://nytimes.com/2025/04/30/us/politics/amy-coney-barrett-recuse.html
