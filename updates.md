@@ -1,3 +1,7 @@
+**At Vietnam War Memorial, Familiar Names, Old Grief and a Kind of Peace**\
+`Visitors to the Vietnam Veterans Memorial on the anniversary of the fall of Saigon said they still felt sadness, anger and fury. And for some, finally, closure.`\
+https://nytimes.com/2025/04/30/nyregion/vietnam-veterans-memorial-50-anniversary.html
+
 **Capitals' Taylor Raddysh discusses texts from 'that night in London'**\
 `LONDON, Ont.`\
 https://nytimes.com/athletic/6324000/2025/04/30/hockey-canada-sexual-assault-trial-taylor-raddysh-testifies/
