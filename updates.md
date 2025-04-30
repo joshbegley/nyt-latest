@@ -1,3 +1,15 @@
+**Judge Temporarily Blocks Border Patrol’s Stop-and-Arrest Tactics in California**\
+`Border Patrol agents carried out sweeps in California’s Central Valley. Lawyers argued that people were stopped and arrested based on their skin color.`\
+https://nytimes.com/2025/04/29/us/politics/trump-farm-workers-california-lawsuit.html
+
+**Fact-checking Trump’s rally on his first 100 days.**\
+`At a rally in Michigan, President Trump made false and exaggerated claims about his accomplishments, including on tariffs, immigration and his rollback of Biden administration policies.`\
+https://nytimes.com/live/2025/04/29/us/trump-news/fact-checking-trumps-rally-on-his-first-100-days
+
+**Trump Threatens Chicago School Funding Over Black Student Success Plan**\
+`The Education Department’s civil rights office is investigating whether the program, which helps Black students do better academically, is racially discriminatory.`\
+https://nytimes.com/2025/04/29/us/politics/trump-chicago-schools-black-students.html
+
 **Citing N.I.H. Cuts, a Top Science Journal Stops Accepting Submissions**\
 `With federal support, Environmental Health Perspectives has long published peer-reviewed studies without fees to readers or scientists.`\
 https://nytimes.com/2025/04/29/science/science-journal-environment-trump.html
