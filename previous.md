@@ -1,3 +1,7 @@
+**Senate Rejects Bipartisan Measure to Undo Trump’s Tariffs**\
+`Only three Republicans joined Democrats in voting to end the national emergency President Trump declared to impose tariffs on most U.S. trading partners, leaving the measure short of the support needed to pass.`\
+https://nytimes.com/2025/04/30/us/politics/senate-trump-tariffs.html
+
 **At Vietnam War Memorial, Familiar Names, Old Grief and a Kind of Peace**\
 `Visitors to the Vietnam Veterans Memorial on the anniversary of the fall of Saigon said they still felt sadness, anger and fury. And for some, finally, closure.`\
 https://nytimes.com/2025/04/30/nyregion/vietnam-veterans-memorial-50-anniversary.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/04/30/magazine/04mag-hodgmanquiz.html
 **Connor Zilisch to miss Saturday's Xfinity Series at Texas Motor Speedway**\
 `Zilisch is recovering from lower back injuries suffered in a hard crash during last week's race at Talladega.`\
 https://nytimes.com/athletic/6324939/2025/04/30/connor-zilisch-injured-xfinity-series-texas/
-
-**Bill Gates Navigates the DOGE Era**\
-`Elon Musk is destroying what Gates has spent decades building: the global health apparatus.`\
-https://nytimes.com/2025/04/30/us/politics/bill-gates-elon-musk-doge-trump.html
 

@@ -1,3 +1,11 @@
+**Nats staffer has medical emergency during BP, rushed to hospital before game**\
+`Washington canceled its pregame workout session as players and coaches left the field distraught.`\
+https://nytimes.com/athletic/6325014/2025/04/30/nationals-staffer-medical-emergency-rushed-hospital/
+
+**Cubs hitting coach Dustin Kelly speaks on Kyle Tucker, Chicago's potent offense**\
+`On the last day of April, the Cubs' offense ranked first or second in the majors in multiple categories, including OPS, hits and runs scored`\
+https://nytimes.com/athletic/6324995/2025/04/30/chicago-cubs-hitting-coach-dustin-kelly-interview/
+
 **Senate Rejects Bipartisan Measure to Undo Trump’s Tariffs**\
 `Only three Republicans joined Democrats in voting to end the national emergency President Trump declared to impose tariffs on most U.S. trading partners, leaving the measure short of the support needed to pass.`\
 https://nytimes.com/2025/04/30/us/politics/senate-trump-tariffs.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/30/climate/house-votes-to-repeal-californias-clean-t
 **You Sent Us Your Travel Quandaries. Here Are Our Suggestions.**\
 `We asked readers stumped about where to go on vacation this summer to tell us their ideal kind of trip (and budget). Here, T’s travel expert responds with her recommendations.`\
 https://nytimes.com/2025/04/30/t-magazine/summer-travel-getaway-guide.html
-
-**Can You Skip Chores to Post Online?**\
-`What level of artistic creation would warrant leaving a mess behind?`\
-https://nytimes.com/interactive/2025/04/30/magazine/04mag-hodgmanquiz.html
-
-**Connor Zilisch to miss Saturday's Xfinity Series at Texas Motor Speedway**\
-`Zilisch is recovering from lower back injuries suffered in a hard crash during last week's race at Talladega.`\
-https://nytimes.com/athletic/6324939/2025/04/30/connor-zilisch-injured-xfinity-series-texas/
 
