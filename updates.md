@@ -1,3 +1,7 @@
+**Chelsea agree shirt sponsorship deal with DAMAC for rest of season**\
+`The Emirati property development company will sponsor Chelsea's shirts for a maximum of seven matches, but not the Club World Cup.`\
+https://nytimes.com/athletic/6323279/2025/04/30/chelsea-damac-properties-shirt-sponsor/
+
 **Man Charged With Terror Offense After Trying to Enter Israeli Embassy in London**\
 `A man was arrested after trying to enter the grounds of the embassy on Monday with a knife, the police said. Nobody was harmed in the incident.`\
 https://nytimes.com/2025/04/30/world/europe/israel-embassy-london.html
