@@ -1,3 +1,27 @@
+**5th Straight Rent Increase Is Likely for a Million N.Y.C. Apartments**\
+`The city’s Rent Guidelines Board appears likely to vote in favor of rent increases for nearly one million rent-stabilized apartments as landlords say they face rising costs.`\
+https://nytimes.com/2025/04/30/nyregion/rent-increase-nyc.html
+
+**Favorite Board Games**\
+`What do you like to play? With whom? When and where?`\
+https://nytimes.com/2025/04/30/learning/favorite-board-games.html
+
+**N.Y.C. Panel Eyes Ways to Ease Housing Crisis and Improve Voter Turnout**\
+`The panel, known as the Charter Revision Commission, may introduce ballot initiatives to limit lawmakers’ power to block housing development, among other changes.`\
+https://nytimes.com/2025/04/30/nyregion/nyc-charter-revision-commission-proposal.html
+
+**A Night Owl’s Jaunt Through an Evolving Nightlife Scene**\
+`In the city that never sleeps, a reporter discovered that some New Yorkers do, in fact, want to sleep.`\
+https://nytimes.com/2025/04/30/insider/new-york-bars-closing-time.html
+
+**This State University Has a Plan to Take on Trump**\
+`Two professors from Rutgers University in New Jersey went out on a limb to write a “mutual defense compact” for Big Ten schools. Their effort is gaining steam.`\
+https://nytimes.com/2025/04/30/nyregion/rutgers-mdc-big-10.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/04/30/crosswords/spelling-bee-forum.html
+
 **Late Night Grades Trump’s First 100 Days in Office**\
 `“It’s been an historic 100 days — some would say prehistoric,” said Jimmy Kimmel.`\
 https://nytimes.com/2025/04/30/arts/television/late-night-trump-100-days.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6322030/2025/04/30/gianluigi-donnarumma-psg-arsenal
 **Marc-Andre Fleury's surprise relief appearance for Wild 'would have been perfect with a win'**\
 `Fleury, who is set to retire after this season, came on in relief because of Filip Gustavsson's illness.`\
 https://nytimes.com/athletic/6322814/2025/04/30/fleury-wild-goalie-gustavsson/
-
-**The Knicks have been flawed, and another loss to Pistons sends a reminder**\
-`This offense has either been elite or unrecognizable in the playoffs, and if you watched them in the regular season, that's no surprise.`\
-https://nytimes.com/athletic/6322619/2025/04/30/flawed-knicks-lose-to-pistons/
-
-**Word of the Day: unabashed**\
-`This word has appeared in 102 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/04/30/learning/word-of-the-day-unabashed.html
-
-**Chinese Factories Slow in Early Sign of Trade War’s Toll**\
-`A slowdown in commerce between the United States and China caused by escalating tariffs was evident in a report Wednesday on manufacturing activity in April.`\
-https://nytimes.com/2025/04/30/business/china-pmi-factory-manufacturing.html
-
-**Arsenal suffered against Paris Saint-Germain - but this tie is still alive**\
-`Mikel Arteta's side are capable of overcoming a one goal deficit in Paris - but it might require their best performance of the season`\
-https://nytimes.com/athletic/6322335/2025/04/30/arsenal-psg-champions-league-chances/
-
-**Kyle Manzardo hits walk-off homer to lift Guardians over Twins after long rain delay**\
-`Tanner Bibee and two high-leverage relievers shut down a hot Twins offense and snapped Minnesota's four-game winning streak.`\
-https://nytimes.com/athletic/6322705/2025/04/30/twins-lose-to-guardians-kyle-manzardo/
-
-**Oilers win third straight, push Kings to brink of elimination**\
-`On Tuesday night, it was the Oilers who proved dominant while continuing to come through in the clutch.`\
-https://nytimes.com/athletic/6317061/2025/04/30/oilers-kings-nhl-playoffs-2025-game-5-takeaways/
 

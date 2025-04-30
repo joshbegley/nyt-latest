@@ -1,3 +1,27 @@
+**5th Straight Rent Increase Is Likely for a Million N.Y.C. Apartments**\
+`The city’s Rent Guidelines Board appears likely to vote in favor of rent increases for nearly one million rent-stabilized apartments as landlords say they face rising costs.`\
+https://nytimes.com/2025/04/30/nyregion/rent-increase-nyc.html
+
+**Favorite Board Games**\
+`What do you like to play? With whom? When and where?`\
+https://nytimes.com/2025/04/30/learning/favorite-board-games.html
+
+**N.Y.C. Panel Eyes Ways to Ease Housing Crisis and Improve Voter Turnout**\
+`The panel, known as the Charter Revision Commission, may introduce ballot initiatives to limit lawmakers’ power to block housing development, among other changes.`\
+https://nytimes.com/2025/04/30/nyregion/nyc-charter-revision-commission-proposal.html
+
+**A Night Owl’s Jaunt Through an Evolving Nightlife Scene**\
+`In the city that never sleeps, a reporter discovered that some New Yorkers do, in fact, want to sleep.`\
+https://nytimes.com/2025/04/30/insider/new-york-bars-closing-time.html
+
+**This State University Has a Plan to Take on Trump**\
+`Two professors from Rutgers University in New Jersey went out on a limb to write a “mutual defense compact” for Big Ten schools. Their effort is gaining steam.`\
+https://nytimes.com/2025/04/30/nyregion/rutgers-mdc-big-10.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/04/30/crosswords/spelling-bee-forum.html
+
 **Arsenal suffered against Paris Saint-Germain - but this tie is still alive**\
 `Mikel Arteta's side are capable of overcoming a one goal deficit in Paris - but it might require their best performance of the season`\
 https://nytimes.com/athletic/6322335/2025/04/30/arsenal-psg-champions-league-chances/
