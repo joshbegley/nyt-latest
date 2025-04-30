@@ -1,3 +1,8 @@
+**Spurs vs Bodø/Glimt semi-final markets: Goals, home advantage and away cards**\
+`Sam Tighe outlines the best bets around Tottenham Hotspur’s Europa League semi-final first-leg clash with Bodø/Glimt. 
+`\
+https://nytimes.com/athletic/6323083/2025/04/30/europa-league-semi-final-tottenham-bodo-glimt-betting-predictions/
+
 **How J.J. McCarthy is approaching his 'grand opportunity' as the Vikings quarterback**\
 `"More is required" for the Vikings to take the next step. That's also true of McCarthy, the young QB expected to take over the reins.`\
 https://nytimes.com/athletic/6321870/2025/04/30/jj-mccarthy-vikings-quarterback-job/
@@ -34,8 +39,4 @@ https://nytimes.com/athletic/6322628/2025/04/30/maple-leafs-game-5-nhl-playoffs-
 **Ranking the Jets' (expected) UDFA class: Can a former Michigan star crack the roster?**\
 `A look at the reported signees, and who stands the best chance to make the 53-man roster.`\
 https://nytimes.com/athletic/6319087/2025/04/30/new-york-jets-udfa-undrafted-free-agent-class/
-
-**Trump Says He’s ‘Just Gotten Started,’ and Anti-Tourism Tactics in Europe**\
-`Plus, L.A. county’s budget crisis.`\
-https://nytimes.com/2025/04/30/podcasts/the-headlines/trump-anti-tourism-europe.html
 

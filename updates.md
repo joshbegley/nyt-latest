@@ -1,3 +1,8 @@
+**Johnston: Game 5 is nightmare fuel for Leafs as they continue to fall short when it matters**\
+`The Maple Leafs will have to fight and prove they aren't a team that falters under the highest pressure — again.
+`\
+https://nytimes.com/athletic/6322628/2025/04/30/maple-leafs-game-5-nhl-playoffs-senators/
+
 **How J.J. McCarthy is approaching his 'grand opportunity' as the Vikings quarterback**\
 `"More is required" for the Vikings to take the next step. That's also true of McCarthy, the young QB expected to take over the reins.`\
 https://nytimes.com/athletic/6321870/2025/04/30/jj-mccarthy-vikings-quarterback-job/
