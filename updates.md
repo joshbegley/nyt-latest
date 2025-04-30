@@ -1,3 +1,7 @@
+**Spain Searches for Answers on What Caused Widespread Blackout**\
+`The country’s top officials are trying to figure out the cause of a power outage that stranded tens of millions of people across the Iberian Peninsula.`\
+https://nytimes.com/2025/04/30/world/europe/power-outage-spain-portugal-cause.html
+
 **How Did Your Dad Express His Feelings?**\
 `Tell us about a moment when your dad opened up to you, and you might hear yourself on an episode of the “Modern Love” podcast.`\
 https://nytimes.com/2025/04/30/podcasts/dad-father-feelings-callout.html
