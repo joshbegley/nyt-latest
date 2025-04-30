@@ -1,3 +1,15 @@
+**The Windup: Please watch this catch**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6322680/2025/04/30/daulton-varsho-catch-blue-jays-the-windup/
+
+**NHL announces Ted Lindsay Award finalists: Will MacKinnon repeat?**\
+`Nathan MacKinnon and Cale Makar of the Colorado Avalanche, and Nikita Kucherov of the Tampa Bay Lightning were announced Wednesday morning as the finalists for the NHL’s Ted Lindsay Award, awarded annually “the most outstanding player as voted on by fellow members of the NHLPA.`\
+https://nytimes.com/athletic/6321477/2025/04/30/nhl-ted-lindsay-finalists-2025/
+
+**Mother's Day**\
+``\
+https://nytimes.com/spotlight/mothers-day
+
 **With Her Cabinet Hopes Dashed, Stefanik Considers Her Next Move**\
 `The New York Republican is contemplating a run for governor and nursing a feud with the House speaker after seeing her cabinet dream evaporate.`\
 https://nytimes.com/2025/04/30/us/politics/elise-stefanik-trump-johnson-cabinet.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6323567/2025/04/30/talk-of-the-devils-manchester-un
 **Two Theories of Consciousness Faced Off. The Ref Took a Beating.**\
 `What makes humans conscious? Scientists disagree, strongly, as one group of peacemakers discovered the hard way.`\
 https://nytimes.com/2025/04/30/science/two-theories-of-consciousness-faced-off-the-ref-took-a-beating.html
-
-**Courage hires Ceri Bowley as sporting director to lead youth development push**\
-`Bowley says he is aligned with head coach Sean Nahas' vision for the team and style of play`\
-https://nytimes.com/athletic/6322263/2025/04/30/courage-ceri-bowley-chief-soccer-officer-to-lead-youth-development/
-
-**Crispy Chicken (Ooh) With Lime Butter (Aah)**\
-`There’s a lot to love about Eric Kim’s new six-ingredient recipe.`\
-https://nytimes.com/2025/04/30/dining/crispy-chicken-ooh-with-lime-butter-aah.html
-
-**Ranking every NHL team’s worst postseason based on goal differential**\
-`What was your favorite team’s worst postseason? We're ranking the worst of the worst goal differentials in playoff history.`\
-https://nytimes.com/athletic/6321732/2025/04/30/nhl-playoffs-2025-teams-ranking/
 
