@@ -1,3 +1,15 @@
+**The Windup: Please watch this catch**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6322680/2025/04/30/daulton-varsho-catch-blue-jays-the-windup/
+
+**NHL announces Ted Lindsay Award finalists: Will MacKinnon repeat?**\
+`Nathan MacKinnon and Cale Makar of the Colorado Avalanche, and Nikita Kucherov of the Tampa Bay Lightning were announced Wednesday morning as the finalists for the NHL’s Ted Lindsay Award, awarded annually “the most outstanding player as voted on by fellow members of the NHLPA.`\
+https://nytimes.com/athletic/6321477/2025/04/30/nhl-ted-lindsay-finalists-2025/
+
+**Mother's Day**\
+``\
+https://nytimes.com/spotlight/mothers-day
+
 **With Her Cabinet Hopes Dashed, Stefanik Considers Her Next Move**\
 `The New York Republican is contemplating a run for governor and nursing a feud with the House speaker after seeing her cabinet dream evaporate.`\
 https://nytimes.com/2025/04/30/us/politics/elise-stefanik-trump-johnson-cabinet.html
