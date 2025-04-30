@@ -1,3 +1,7 @@
+**Late Night Grades Trump’s First 100 Days in Office**\
+`“It’s been an historic 100 days — some would say prehistoric,” said Jimmy Kimmel.`\
+https://nytimes.com/2025/04/30/arts/television/late-night-trump-100-days.html
+
 **Ausar Thompson was the ‘X-factor’ in Pistons’ Game 5 win over Knicks**\
 `Thompson drew the assignment of guarding Jalen Brunson for most of the series and he limited New York's catalyst to 16 points in Game 5.`\
 https://nytimes.com/athletic/6322760/2025/04/30/ausar-thompson-pistons-win-game-five/
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/6322705/2025/04/30/twins-lose-to-guardians-kyle-man
 **Oilers win third straight, push Kings to brink of elimination**\
 `On Tuesday night, it was the Oilers who proved dominant while continuing to come through in the clutch.`\
 https://nytimes.com/athletic/6317061/2025/04/30/oilers-kings-nhl-playoffs-2025-game-5-takeaways/
-
-**Golden Knights win Game 5 in overtime after Fleury enters for Wild: Takeaways**\
-`By Michael Russo, Jesse Granger and Joe Smith
-LAS VEGAS – Brett Howden’s career season just keeps getting better.`\
-https://nytimes.com/athletic/6321538/2025/04/30/wild-golden-knights-game-5/
 
