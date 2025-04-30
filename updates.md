@@ -1,3 +1,8 @@
+**Spurs vs Bodø/Glimt semi-final markets: Goals, home advantage and away cards**\
+`Sam Tighe outlines the best bets around Tottenham Hotspur’s Europa League semi-final first-leg clash with Bodø/Glimt. 
+`\
+https://nytimes.com/athletic/6323083/2025/04/30/europa-league-semi-final-tottenham-bodo-glimt-betting-predictions/
+
 **Ho Chi Minh City Celebrates the Fall of Saigon**\
 `Surging Vietnamese nationalism appeared on the streets, as thousands gathered to commemorate the 50th anniversary of the end of the war.`\
 https://nytimes.com/2025/04/30/world/asia/saigon-parade-vietnam-war.html
