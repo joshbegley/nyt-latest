@@ -1,3 +1,15 @@
+**The Poetry Challenge Day 3: This is a New York poem. Once you learn it, you can take it anywhere.**\
+`You can take a poem with you anywhere, but knowing its origins can help make it yours. Practice by playing our poetry emoji game.`\
+https://nytimes.com/interactive/2025/books/edna-st-vincent-millay-nyc.html
+
+**Heart Test, for Short**\
+`Don’t let Adam Vincent’s challenging crossword tick you off.`\
+https://nytimes.com/2025/04/29/crosswords/daily-puzzle-2025-04-30.html
+
+**Senators shut out Leafs, force Game 6 in Ottawa: Takeaways**\
+`Senators stay alive once again with 4-0 Game 5 win, planting seeds of doubt in Toronto.`\
+https://nytimes.com/athletic/6322300/2025/04/29/maple-leafs-senators-game-5-nhl-playoffs/
+
 **Blue Jays' Daulton Varsho falls, makes behind-the-back catch**\
 `The incredible play comes after the Blue Jays activated Varsho off the injured list Tuesday to make his season debut.`\
 https://nytimes.com/athletic/6322298/2025/04/29/daulton-varsho-catch-blue-jays-red-sox/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/29/world/canada/canada-poilievre-election-conservati
 **Commanders' new stadium plans include opportunities for women's soccer**\
 `The Washington Spirit share an investor, Magic Johnson, with the Commanders `\
 https://nytimes.com/athletic/6322212/2025/04/29/commanders-rfk-stadium-washington-spirit-soccer/
-
-**A key lawmaker proposes funding for aviation safety improvements.**\
-`The proposal would fund upgrades to radar, telecommunications and other critical systems used by the Federal Aviation Administration, while also addressing staffing shortages that have strained control towers across the United States.`\
-https://nytimes.com/live/2025/04/29/us/trump-news/a-key-lawmaker-proposes-funding-for-aviation-safety-improvements
-
-**Mark Carney Swept Canada, but There Will be No Honeymoon**\
-`The Canadian prime minister achieved a stunning political upset, running on an anti-Trump platform and promising to revive the economy. Now, he needs to deliver.`\
-https://nytimes.com/2025/04/29/world/canada/canada-election-carney-trump.html
-
-**Judge Temporarily Blocks Border Patrol’s Stop-and-Arrest Tactics in California**\
-`Border Patrol agents carried out sweeps in California’s Central Valley. Lawyers argued that people were stopped and arrested based on their skin color.`\
-https://nytimes.com/2025/04/29/us/politics/trump-farm-workers-california-lawsuit.html
 

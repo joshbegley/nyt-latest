@@ -1,3 +1,15 @@
+**The Poetry Challenge Day 3: This is a New York poem. Once you learn it, you can take it anywhere.**\
+`You can take a poem with you anywhere, but knowing its origins can help make it yours. Practice by playing our poetry emoji game.`\
+https://nytimes.com/interactive/2025/books/edna-st-vincent-millay-nyc.html
+
+**Heart Test, for Short**\
+`Don’t let Adam Vincent’s challenging crossword tick you off.`\
+https://nytimes.com/2025/04/29/crosswords/daily-puzzle-2025-04-30.html
+
+**Senators shut out Leafs, force Game 6 in Ottawa: Takeaways**\
+`Senators stay alive once again with 4-0 Game 5 win, planting seeds of doubt in Toronto.`\
+https://nytimes.com/athletic/6322300/2025/04/29/maple-leafs-senators-game-5-nhl-playoffs/
+
 **Blue Jays' Daulton Varsho falls, makes behind-the-back catch**\
 `The incredible play comes after the Blue Jays activated Varsho off the injured list Tuesday to make his season debut.`\
 https://nytimes.com/athletic/6322298/2025/04/29/daulton-varsho-catch-blue-jays-red-sox/
