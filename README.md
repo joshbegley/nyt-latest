@@ -3,7 +3,7 @@
 https://nytimes.com/2025/04/30/us/kangaroo-alabama.html
 
 **NFL fines Falcons, DC Ulbrich for leaking Sanders' draft phone number**\
-`The NFL has fined the Atlanta Falcons $250,000 and defensive coordinator $100,000 over the leak of Shedeur Sanders&#8217; phone number before the 2025 NFL Draft, according to a league source.`\
+`The NFL has fined the Falcons $250,000 and DC Jeff Ulbrich $100,000 over the leak of Sanders' phone number before the 2025 NFL Draft.`\
 https://nytimes.com/athletic/6323798/2025/04/30/nfl-fines-falcons-jeff-ulbrich-shedeur-sanders/
 
 **El Salvador Is Said to Have Spurned U.S. Request for Return of Deported Migrant**\
