@@ -1,3 +1,11 @@
+**Explaining why Ancelotti's Brazil move has stalled and what's next for Real Madrid coach**\
+`Ancelotti has been in talks with the Brazilian football federation since March and appeared set to join… until fresh developments this week`\
+https://nytimes.com/athletic/6324133/2025/04/30/carlo-ancelotti-real-madrid-brazil-interest/
+
+**Jets QB Jordan Travis announces retirement from the NFL**\
+`Travis cited the leg injury he suffered during his final season at Florida State as the reason for his decision.`\
+https://nytimes.com/athletic/6324543/2025/04/30/jordan-travis-retire-injury-florida-state-jets/
+
 **Lopetegui close to joining Qatar as new head coach**\
 `Lopetegui was sacked as West Ham United head coach in January after just six months in charge.`\
 https://nytimes.com/athletic/6299613/2025/04/30/julen-lopetegui-qatar-head-coach/
