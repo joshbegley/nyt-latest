@@ -1,3 +1,7 @@
+**Wednesday Briefing**\
+`Trump’s first 100 days in office.`\
+https://nytimes.com/2025/04/30/briefing/trump-russia-vietnam.html
+
 **Phillies win the hard way — against themselves and the Nationals**\
 `The Phillies hit the ball well and, despite their poor fielding and base running, came away with a 7-6 win over the Nationals. `\
 https://nytimes.com/athletic/6322559/2025/04/30/phillies-win-the-hard-way/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6320554/2025/04/30/nico-williams-athletic-club-tran
 **India’s Muslims Fear a Growing Backlash After Kashmir Attack**\
 `State officials have detained thousands of Muslims and demolished homes, and activists say that right-wing Hindus are intensifying a demonization campaign.`\
 https://nytimes.com/2025/04/30/world/asia/india-muslims-detentions-demolitions.html
-
-**Chelsea's road to the treble: Who they need to beat and when**\
-`Despite the Champions League continuing to elude them, Chelsea remain on track for a treble-winning season`\
-https://nytimes.com/athletic/6309394/2025/04/30/chelsea-women-road-to-treble/
 

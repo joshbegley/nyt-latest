@@ -1,3 +1,7 @@
+**Wednesday Briefing**\
+`Trump’s first 100 days in office.`\
+https://nytimes.com/2025/04/30/briefing/trump-russia-vietnam.html
+
 **Phillies win the hard way — against themselves and the Nationals**\
 `The Phillies hit the ball well and, despite their poor fielding and base running, came away with a 7-6 win over the Nationals. `\
 https://nytimes.com/athletic/6322559/2025/04/30/phillies-win-the-hard-way/
