@@ -1,3 +1,27 @@
+**Nico Williams is Athletic Club's star intent on leaving a legacy. What comes next?**\
+`The Athletic Club and Spain winger was the subject of plenty of interest last summer after a fine Euro 2024 campaign. He wants more success`\
+https://nytimes.com/athletic/6320554/2025/04/30/nico-williams-athletic-club-transfer-interest/
+
+**India’s Muslims Fear a Growing Backlash After Kashmir Attack**\
+`State officials have detained thousands of Muslims and demolished homes, and activists say that right-wing Hindus are intensifying a demonization campaign.`\
+https://nytimes.com/2025/04/30/world/asia/india-muslims-detentions-demolitions.html
+
+**Chelsea's road to the treble: Who they need to beat and when**\
+`Despite the Champions League continuing to elude them, Chelsea remain on track for a treble-winning season`\
+https://nytimes.com/athletic/6309394/2025/04/30/chelsea-women-road-to-treble/
+
+**‘I really don’t know who to support’: Norwegian fans of both Bodo/Glimt and Tottenham**\
+`Erli Berg Daneshmand is a lifelong Bodo/Glimt fan. Thanks to Chris Waddle, he is also a Tottenham fanatic. And he is not the only one…`\
+https://nytimes.com/athletic/6304858/2025/04/30/tottenham-bodo-glimt-europa-league/
+
+**Lamine Yamal’s first press conference: Messi comparisons, hair dye and silencing the critics**\
+`The 17-year-old forward held court at Barcelona's training centre on the eve of their Champions League semi-final against Inter`\
+https://nytimes.com/athletic/6321313/2025/04/30/lamine-yamal-barcelona-press-status/
+
+**Wolves Women and the fallout from the club’s decision to prevent them from being promoted**\
+`The third-tier side have been in a promotion battle this season but it has emerged the club did not submit a promotion application`\
+https://nytimes.com/athletic/6319993/2025/04/30/wolves-women-and-the-fallout-from-the-clubs-decision-to-prevent-them-from-being-promoted/
+
 **Blue Jays' rotation has no room for bad days**\
 `Toronto's 10-2 loss to the Boston Red Sox spoiled Daulton Varsho's season debut.`\
 https://nytimes.com/athletic/6322512/2025/04/30/blue-jays-lose-red-sox-rotation-daulton-varsho/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/04/30/world/asia/vietnam-country-progress-growth.html
 **Can MAGA-Style Rallies Work in Britain? Farage Will Find Out.**\
 `Nigel Farage, a right-wing populist ally of President Trump, has been touring England ahead of local elections, hoping to convert a polling surge for his party into power.`\
 https://nytimes.com/2025/04/30/world/europe/nigel-farage-rallies-uk-local-elections.html
-
-**Families Are Split as Pakistan Deports Thousands of Afghan Refugees**\
-`Many undocumented Afghan migrants have Pakistani spouses and have lived in the country for years. Nevertheless, the government says they must leave.`\
-https://nytimes.com/2025/04/30/world/asia/afghan-pakistan-deportations.html
-
-**Connections: Sports Edition Coach: Hints for April 30, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6322001/2025/04/30/connections-sports-edition-hints-for-april-30-2025/
-
-**Who Was Marie-Antoine Carême, the Father of French Gastronomy?**\
-`The French chef — who is the subject of a new steamy Apple TV+ series — was much spicier than his reputation as an elaborate pastry genius might initially suggest.`\
-https://nytimes.com/2025/04/30/dining/marie-antoine-careme-apple-tv-series.html
-
-**Corrections: April 30, 2025**\
-`Corrections that appeared in print on Wednesday, April 30, 2025.`\
-https://nytimes.com/2025/04/30/pageoneplus/corrections-april-30-2025.html
-
-**Quote of the Day: The 47th President The First 100 Days**\
-`Quotation of the Day for Wednesday, April 30, 2025.`\
-https://nytimes.com/2025/04/29/pageoneplus/quote-of-the-day-the-47th-president-the-first-100-days.html
-
-**Astros to promote top pitching prospect AJ Blubaugh**\
-`Blubaugh, 24, was drafted in 2022 in the 7th round.`\
-https://nytimes.com/athletic/6322029/2025/04/29/astros-promote-pitching-prospect-aj-blubaugh/
 
