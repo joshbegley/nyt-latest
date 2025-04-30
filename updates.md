@@ -1,3 +1,7 @@
+**Blue Jays' Daulton Varsho falls, makes behind-the-back catch**\
+`The incredible play comes after the Blue Jays activated Varsho off the injured list Tuesday to make his season debut.`\
+https://nytimes.com/athletic/6322298/2025/04/29/daulton-varsho-catch-blue-jays-red-sox/
+
 **Aided by epic Bucks collapse, Pacers advance with thrilling OT win**\
 `Indiana eliminated Milwaukee from the playoffs on Tuesday night with a memorable comeback.`\
 https://nytimes.com/athletic/6322295/2025/04/29/pacers-win-epic-bucks-collapse/

@@ -1,3 +1,7 @@
+**Blue Jays' Daulton Varsho falls, makes behind-the-back catch**\
+`The incredible play comes after the Blue Jays activated Varsho off the injured list Tuesday to make his season debut.`\
+https://nytimes.com/athletic/6322298/2025/04/29/daulton-varsho-catch-blue-jays-red-sox/
+
 **Aided by epic Bucks collapse, Pacers advance with thrilling OT win**\
 `Indiana eliminated Milwaukee from the playoffs on Tuesday night with a memorable comeback.`\
 https://nytimes.com/athletic/6322295/2025/04/29/pacers-win-epic-bucks-collapse/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/29/world/canada/canada-election-carney-trump.html
 **Judge Temporarily Blocks Border Patrol’s Stop-and-Arrest Tactics in California**\
 `Border Patrol agents carried out sweeps in California’s Central Valley. Lawyers argued that people were stopped and arrested based on their skin color.`\
 https://nytimes.com/2025/04/29/us/politics/trump-farm-workers-california-lawsuit.html
-
-**Fact-checking Trump’s rally on his first 100 days.**\
-`At a rally in Michigan, President Trump made false and exaggerated claims about his accomplishments, including on tariffs, immigration and his rollback of Biden administration policies.`\
-https://nytimes.com/live/2025/04/29/us/trump-news/fact-checking-trumps-rally-on-his-first-100-days
 
