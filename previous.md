@@ -1,3 +1,7 @@
+**Trump’s Presidency So Far**\
+`We take a look at the first 100 days of the president’s term.`\
+https://nytimes.com/2025/04/30/briefing/donald-trump-first-100-days.html
+
 **Ho Chi Minh City Celebrates the Fall of Saigon**\
 `Surging Vietnamese nationalism appeared on the streets, as thousands gathered to commemorate the 50th anniversary of the end of the war.`\
 https://nytimes.com/2025/04/30/world/asia/saigon-parade-vietnam-war.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/04/30/podcasts/the-daily/100-days-trump-presidency.html
 **How to watch Barcelona vs. Inter Milan in the first leg of Champions League semi**\
 `Inter Milan is sliding, while Barcelona pursues a treble. The first leg of this Champions League semifinal kicks off Wednesday from Spain.`\
 https://nytimes.com/athletic/6319688/2025/04/30/barcelona-inter-milan-champions-league-how-to-watch/
-
-**With refined mechanics, Cubs' Carson Kelly trending toward offensive breakout**\
-`Through 15 games this season, Kelly has a 1.371 OPS to go along with six home runs and 18 RBIs. `\
-https://nytimes.com/athletic/6321031/2025/04/30/chicago-cubs-carson-kelly-breakout-season-potential/
 
