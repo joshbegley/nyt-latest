@@ -1,3 +1,11 @@
+**ICE Agents Arrest Migrant Who Climbed Tree in Texas to Evade Them**\
+`The hourslong standoff ended when the man, a 29-year-old Guatemalan, surrendered to U.S. Immigration and Customs Enforcement agents in San Antonio.`\
+https://nytimes.com/2025/04/29/us/ice-agents-san-antonio.html
+
+**Migrant Surrenders to ICE After Hiding in Tree for Hours**\
+`After a roughly eight-hour standoff, ICE agents arrested a man identified as Raul Ical, a 29-year-old from Guatemala. A neighbor urged him not to come down, and an activist told him to not sign anything.`\
+https://nytimes.com/video/us/100000010138071/ice-agents-san-antonio-migrant.html
+
 **Trump Says He Could Free Abrego Garcia From El Salvador, but Won’t**\
 `Trump’s comments undermined previous statements by his top aides and were a blunt sign of his administration’s intention to double down and defy the courts.`\
 https://nytimes.com/2025/04/29/us/politics/trump-abrego-garcia-deported.html
