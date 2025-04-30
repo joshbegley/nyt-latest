@@ -1,3 +1,11 @@
+**Marc-Andre Fleury's surprise relief appearance for Wild 'would have been perfect with a win'**\
+`Fleury, who is set to retire after this season, came on in relief because of Filip Gustavsson's illness.`\
+https://nytimes.com/athletic/6322814/2025/04/30/fleury-wild-goalie-gustavsson/
+
+**The Knicks have been flawed, and another loss to Pistons sends a reminder**\
+`This offense has either been elite or unrecognizable in the playoffs, and if you watched them in the regular season, that's no surprise.`\
+https://nytimes.com/athletic/6322619/2025/04/30/flawed-knicks-lose-to-pistons/
+
 **Word of the Day: unabashed**\
 `This word has appeared in 102 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/04/30/learning/word-of-the-day-unabashed.html
@@ -30,12 +38,4 @@ https://nytimes.com/issue/todayspaper/2025/04/30/todays-new-york-times
 **My Father Founded Singapore. He Wouldn’t Like What It’s Become.**\
 `The nation’s current leaders are not living up to my father’s high standards of governance, and Singapore is suffering as a result.`\
 https://nytimes.com/2025/04/30/opinion/singapore-lee-kuan-yew-election.html
-
-**Wednesday Briefing**\
-`Trump’s first 100 days in office.`\
-https://nytimes.com/2025/04/30/briefing/trump-russia-vietnam.html
-
-**Phillies win the hard way — against themselves and the Nationals**\
-`The Phillies hit the ball well and, despite their poor fielding and base running, came away with a 7-6 win over the Nationals. `\
-https://nytimes.com/athletic/6322559/2025/04/30/phillies-win-the-hard-way/
 

@@ -1,3 +1,11 @@
+**Marc-Andre Fleury's surprise relief appearance for Wild 'would have been perfect with a win'**\
+`Fleury, who is set to retire after this season, came on in relief because of Filip Gustavsson's illness.`\
+https://nytimes.com/athletic/6322814/2025/04/30/fleury-wild-goalie-gustavsson/
+
+**The Knicks have been flawed, and another loss to Pistons sends a reminder**\
+`This offense has either been elite or unrecognizable in the playoffs, and if you watched them in the regular season, that's no surprise.`\
+https://nytimes.com/athletic/6322619/2025/04/30/flawed-knicks-lose-to-pistons/
+
 **Word of the Day: unabashed**\
 `This word has appeared in 102 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/04/30/learning/word-of-the-day-unabashed.html
