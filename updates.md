@@ -1,3 +1,8 @@
+**Spurs vs Bodø/Glimt semi-final markets: Goals, home advantage and away cards**\
+`Sam Tighe outlines the best bets around Tottenham Hotspur’s Europa League semi-final first-leg clash with Bodø/Glimt. 
+`\
+https://nytimes.com/athletic/6323083/2025/04/30/europa-league-semi-final-tottenham-bodo-glimt-betting-predictions/
+
 **Trump’s Presidency So Far**\
 `We take a look at the first 100 days of the president’s term.`\
 https://nytimes.com/2025/04/30/briefing/donald-trump-first-100-days.html

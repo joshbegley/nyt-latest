@@ -1,3 +1,7 @@
+**Man United handed injury boost as Amad and De Ligt return to training**\
+`Amad has been out since February with an ankle injury while an ankle injury has sidelined De Ligt since April 1.`\
+https://nytimes.com/athletic/6323178/2025/04/30/manchester-united-team-news-amad-de-ligt/
+
 **Without a trace: Why tennis is asking its stars not to believe their eyes**\
 `Why tennis stars are at the center of a philosophical quandary this clay-court season.`\
 https://nytimes.com/athletic/6320584/2025/04/30/tennis-electronic-line-calling-clay-ball-marks-umpires/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6320580/2025/04/30/broncos-depth-chart-post-nfl-dra
 **Francisco Alvarez returned with a new goal that helps him fit in with Mets**\
 `The Mets have scored from first base on a double 16 times. Alvarez wants to join the party. `\
 https://nytimes.com/athletic/6322306/2025/04/30/mets-francisco-alvarez-base-running/
-
-**Which of the Raiders' undrafted free agents could make the team?**\
-`We break down the 15 UDFAs who will be aiming to make the Raiders' 53-man roster — or at least the practice squad.`\
-https://nytimes.com/athletic/6316683/2025/04/30/raiders-udfa-nfl-draft-free-agents/
 
