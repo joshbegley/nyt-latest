@@ -1,3 +1,19 @@
+**Crystal Palace reap the rewards as Oliver Glasner's patience starts to pay off**\
+`Daichi Kamada, Eddie Nketiah and even Ismaila Sarr endured slow starts to their Palace careers, but indications are they are coming good`\
+https://nytimes.com/athletic/6313752/2025/04/30/palace-kamada-nketiah-sarr-glasner-murray/
+
+**When Amad returns, should Manchester United play him as a No 10 or at right wing-back?**\
+`The Ivory Coast international is close to a return after injury, but discerning which role is best suited to his talents is complicated`\
+https://nytimes.com/athletic/6321047/2025/04/30/amad-manchester-united-wing-back-10/
+
+**Reece James is playing again but does he fit into Chelsea's 'best' team?**\
+`James appears to be fit and firing again but with Romeo Lavia also returning to the fold, he doesn't seem to be an automatic starter`\
+https://nytimes.com/athletic/6319948/2025/04/30/reece-james-chelsea-maresca-lavia/
+
+**A data and tactical breakdown of how Liverpool won the Premier League**\
+`Changing how Van Dijk passes, a new approach to crosses and fewer but more effective counter-attacks - Slot’s subtle changes have been key`\
+https://nytimes.com/athletic/6319987/2025/04/30/how-liverpool-won-premier-league-tactics/
+
 **Nico Williams is Athletic Club's star intent on leaving a legacy. What comes next?**\
 `The Athletic Club and Spain winger was the subject of plenty of interest last summer after a fine Euro 2024 campaign. He wants more success`\
 https://nytimes.com/athletic/6320554/2025/04/30/nico-williams-athletic-club-transfer-interest/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6321313/2025/04/30/lamine-yamal-barcelona-press-sta
 **Wolves Women and the fallout from the club’s decision to prevent them from being promoted**\
 `The third-tier side have been in a promotion battle this season but it has emerged the club did not submit a promotion application`\
 https://nytimes.com/athletic/6319993/2025/04/30/wolves-women-and-the-fallout-from-the-clubs-decision-to-prevent-them-from-being-promoted/
-
-**Blue Jays' rotation has no room for bad days**\
-`Toronto's 10-2 loss to the Boston Red Sox spoiled Daulton Varsho's season debut.`\
-https://nytimes.com/athletic/6322512/2025/04/30/blue-jays-lose-red-sox-rotation-daulton-varsho/
-
-**Leicester City's fall: From fairytale to factions**\
-`The incredible 2016 Premier League title win seems a long time ago as fans deal with another relegation. How did it come to this?`\
-https://nytimes.com/athletic/6301744/2025/04/30/leicester-city-relegation-fairytale-to-factions/
-
-**Out of War’s Shadow: Vietnam on the Move**\
-`Nothing defines Vietnam more right now than the desire to be seen anew, to have the country and its people recognized for their strengths.`\
-https://nytimes.com/2025/04/30/world/asia/vietnam-country-progress-growth.html
-
-**Can MAGA-Style Rallies Work in Britain? Farage Will Find Out.**\
-`Nigel Farage, a right-wing populist ally of President Trump, has been touring England ahead of local elections, hoping to convert a polling surge for his party into power.`\
-https://nytimes.com/2025/04/30/world/europe/nigel-farage-rallies-uk-local-elections.html
 
