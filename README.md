@@ -1,3 +1,15 @@
+**Phillies win the hard way — against themselves and the Nationals**\
+`The Phillies hit the ball well and, despite their poor fielding and base running, came away with a 7-6 win over the Nationals. `\
+https://nytimes.com/athletic/6322559/2025/04/30/phillies-win-the-hard-way/
+
+**Fifteen years of Lewis Dunk, a Brighton & Hove Albion statesman**\
+`On April 30, 2010, Dunk signed his first professional contract at Brighton. A decade and a half later, he's part of the club's fabric`\
+https://nytimes.com/athletic/6183584/2025/04/30/lewis-dunk-brighton-15-years/
+
+**Aston Villa's 'world no 1' Emiliano Martinez divides opinion - but why has his form dipped?**\
+`Unai Emery recently said his goalkeeper is 'getting better' - recent and ample evidence would suggest the Argentina talisman is error-prone`\
+https://nytimes.com/athletic/6317719/2025/04/30/emiliano-martinez-argentina-aston-villa-form/
+
 **Crystal Palace reap the rewards as Oliver Glasner's patience starts to pay off**\
 `Daichi Kamada, Eddie Nketiah and even Ismaila Sarr endured slow starts to their Palace careers, but indications are they are coming good`\
 https://nytimes.com/athletic/6313752/2025/04/30/palace-kamada-nketiah-sarr-glasner-murray/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/30/world/asia/india-muslims-detentions-demolitions.h
 **Chelsea's road to the treble: Who they need to beat and when**\
 `Despite the Champions League continuing to elude them, Chelsea remain on track for a treble-winning season`\
 https://nytimes.com/athletic/6309394/2025/04/30/chelsea-women-road-to-treble/
-
-**‘I really don’t know who to support’: Norwegian fans of both Bodo/Glimt and Tottenham**\
-`Erli Berg Daneshmand is a lifelong Bodo/Glimt fan. Thanks to Chris Waddle, he is also a Tottenham fanatic. And he is not the only one…`\
-https://nytimes.com/athletic/6304858/2025/04/30/tottenham-bodo-glimt-europa-league/
-
-**Lamine Yamal’s first press conference: Messi comparisons, hair dye and silencing the critics**\
-`The 17-year-old forward held court at Barcelona's training centre on the eve of their Champions League semi-final against Inter`\
-https://nytimes.com/athletic/6321313/2025/04/30/lamine-yamal-barcelona-press-status/
-
-**Wolves Women and the fallout from the club’s decision to prevent them from being promoted**\
-`The third-tier side have been in a promotion battle this season but it has emerged the club did not submit a promotion application`\
-https://nytimes.com/athletic/6319993/2025/04/30/wolves-women-and-the-fallout-from-the-clubs-decision-to-prevent-them-from-being-promoted/
 
