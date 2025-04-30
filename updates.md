@@ -1,3 +1,8 @@
+**Athletic vs Utd odds: Forecast for a low-scoring affair at the San Mamés**\
+`Brett Koremenos outlines the best bets around Manchester United’s Europa League semi-final first-leg clash with Athletic Club. 
+`\
+https://nytimes.com/athletic/6323347/2025/04/30/europa-league-semi-final-manchester-united-athletic-club-betting-predictions/
+
 **Jamal Murray's breakout game changes calculus for Nuggets: 'He was born for this'**\
 `Murray's 43-point explosion on Tuesday gave Denver a 3-2 series lead on the Clippers and evoked memories of the 2023 championship run.`\
 https://nytimes.com/athletic/6322693/2025/04/30/jamal-murray-nuggets-playoffs-game-5/
