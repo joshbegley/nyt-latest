@@ -1,3 +1,7 @@
+**What Comes After Trauma and a TikTok Hit? Gigi Perez Is Finding Out.**\
+`The artist, 25, struck platinum with “Sailor Song.” Her debut album is a tribute to her lost sister, and an attempt to make sense of a few rudderless years.`\
+https://nytimes.com/2025/04/30/arts/music/gigi-perez-at-the-beach-in-every-life-sailor-song.html
+
 **A powerful conservative Christian legal group is representing the charter school in the case.**\
 `The Alliance Defending Freedom has become a mainstay before the court in challenges to abortion access, same-sex marriage and prayer at public meetings.`\
 https://nytimes.com/live/2025/04/30/us/supreme-court-charter-schools/a-powerful-conservative-christian-legal-group-is-representing-the-charter-school-in-the-case
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6323475/2025/04/30/iga-swiatek-bagel-madrid-keys-an
 **Justice Amy Coney Barrett Recuses Herself in a Charter School Case**\
 `The justice will not participate in oral argument, deliberations or vote. She gave no explanation.`\
 https://nytimes.com/2025/04/30/us/politics/amy-coney-barrett-recuse.html
-
-**St. Isidore, an Online Catholic Charter School, Would Be the First of Its Kind**\
-`The virtual school, named for the patron saint of the internet, would be funded by Oklahoma taxpayers and incorporate Catholic teachings into its curriculum.`\
-https://nytimes.com/2025/04/30/us/politics/st-isidore-religious-charter-school.html
 
