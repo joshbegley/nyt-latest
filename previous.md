@@ -1,3 +1,8 @@
+**Athletic vs Utd odds: Forecast for a low-scoring affair at the San Mamés**\
+`Brett Koremenos outlines the best bets around Manchester United’s Europa League semi-final first-leg clash with Athletic Club. 
+`\
+https://nytimes.com/athletic/6323347/2025/04/30/europa-league-semi-final-manchester-united-athletic-club-betting-predictions/
+
 **Chelsea agree shirt sponsorship deal with DAMAC for rest of season**\
 `The Emirati property development company will sponsor Chelsea's shirts for a maximum of seven matches, but not the Club World Cup.`\
 https://nytimes.com/athletic/6323279/2025/04/30/chelsea-damac-properties-shirt-sponsor/
@@ -33,8 +38,4 @@ https://nytimes.com/athletic/6322359/2025/04/30/sebastian-berhalter-gregg-usmnt-
 **What Gabriel Vilardi's return in Game 5 means for the Jets**\
 `Vilardi's return will have a ripple effect throughout the Jets lineup. Is it enough to save their series? `\
 https://nytimes.com/athletic/6321453/2025/04/30/jets-gabriel-vilardi-game-5-nhl-playoffs/
-
-**PWHL expanding to Seattle for 2025-26 season, Kraken to play supporting role**\
-`The PWHL's second expansion franchise will be in Seattle, with the team playing at Climate Pledge Arena.`\
-https://nytimes.com/athletic/6322069/2025/04/30/pwhl-seattle-expansion-womens-hockey-kraken/
 
