@@ -1,3 +1,11 @@
+**Mystics rookie Georgia Amoore suffers ACL injury during training camp**\
+`Amoore was the sixth pick in this month’s WNBA Draft and was poised to be Washington's point guard of the future.`\
+https://nytimes.com/athletic/6324119/2025/04/30/mystics-georgia-amoore-acl-injury/
+
+**Migrant Who Evaded ICE Agents by Climbing a Tree Surrenders**\
+`The man, who immigration officials identified as Raul Ical, a 29-year-old from Guatemala, surrendered to ICE agents after more than eight hours on top of a tree.`\
+https://nytimes.com/video/us/100000010139054/migrant-tree-ice-agents.html
+
 **West Ham's Summerville undergoes hamstring surgery**\
 `Summerville has been out since January, when he was substituted during West Ham's defeat to Aston Villa in the FA Cup third round.`\
 https://nytimes.com/athletic/6324027/2025/04/30/crysencio-summerville-west-ham-surgery/
