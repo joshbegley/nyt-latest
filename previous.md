@@ -1,3 +1,7 @@
+**Google’s Chief Says Breakup Proposal Would Hobble Business**\
+`Sundar Pichai told a federal judge that the government’s solution to fix its monopoly in search would harm innovation.`\
+https://nytimes.com/2025/04/30/technology/google-ceo-antitrust-trial.html
+
 **Can I Use A.I. to Look Better Online?**\
 `The magazine’s Ethicist columnist on posting artificially generated photos of oneself on social media.`\
 https://nytimes.com/2025/04/30/magazine/artificial-intelligence-photo-ethics.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/30/nyregion/columbia-student-mohsen-mahdawi-freed.ht
 **A Diver Visited a Fallen Whale. When He Returned, It Had Vanished.**\
 `A sunken calf’s disappearance created a mystery in murky waters near San Diego.`\
 https://nytimes.com/2025/04/30/science/whale-carcass-san-diego.html
-
-**spurs EL/CL financesHow much of a boost would winning the Europa League be to Tottenham's finances?**\
-`Winning the Europa League - and qualifying for the Champions League - would provide a much-needed financial boost to Spurs`\
-https://nytimes.com/athletic/6320468/2025/04/30/tottenham-europa-league-finances/
 

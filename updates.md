@@ -1,3 +1,7 @@
+**Google’s Chief Says Breakup Proposal Would Hobble Business**\
+`Sundar Pichai told a federal judge that the government’s solution to fix its monopoly in search would harm innovation.`\
+https://nytimes.com/2025/04/30/technology/google-ceo-antitrust-trial.html
+
 **Can I Use A.I. to Look Better Online?**\
 `The magazine’s Ethicist columnist on posting artificially generated photos of oneself on social media.`\
 https://nytimes.com/2025/04/30/magazine/artificial-intelligence-photo-ethics.html

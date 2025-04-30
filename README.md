@@ -1,3 +1,15 @@
+**Stream These 13 Movies and TV Shows Before They Leave in May**\
+`A ton of great titles are leaving fast. Catch them while you can.`\
+https://nytimes.com/2025/04/30/arts/television/netflix-expiring-may.html
+
+**How Has Marriage Equality Changed Your Life?**\
+`As we near the 10-year anniversary of Obergefell v. Hodges, the Supreme Court case that legalized same-sex marriage nationwide, we’d like to hear how this decision affected you or those you love.`\
+https://nytimes.com/2025/04/30/style/how-has-marriage-equality-changed-your-life.html
+
+**The Business of Football: Could London's NBA Europe franchise head to the Orient?**\
+`What Matt Slater is hearing about the business side of the beautiful game from the Premier League, EFL and beyond`\
+https://nytimes.com/athletic/6319968/2025/04/30/orient-nba-premier-league-regulator/
+
 **Google’s Chief Says Breakup Proposal Would Hobble Business**\
 `Sundar Pichai told a federal judge that the government’s solution to fix its monopoly in search would harm innovation.`\
 https://nytimes.com/2025/04/30/technology/google-ceo-antitrust-trial.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/30/us/politics/trump-abrego-garcia-bukele-el-salvado
 **How to watch Inter Miami vs. Vancouver: Messi's side facing Champions Cup elimination**\
 `Suddenly, the group of Messi, Luis Suárez, Jordi Alba and Sergio Busquets faces elimination, down two goals as they host the Whitecaps.`\
 https://nytimes.com/athletic/6319712/2025/04/30/inter-miami-messi-concacaf-vancouver-how-to-watch/
-
-**Trump Family Agrees to Projects in Qatar and Dubai Ahead of President’s Middle East Visit**\
-`President Trump’s son is in the region this week promoting the Trump Organization’s business interests ahead of his father’s trip later this month.`\
-https://nytimes.com/2025/04/30/world/middleeast/trump-family-qatar-dubai.html
-
-**Columbia Student Who Was Arrested at Citizenship Interview Is Freed**\
-`Mohsen Mahdawi had been an organizer of pro-Palestinian protests at the university. The Trump administration had tried and failed to deport him for it.`\
-https://nytimes.com/2025/04/30/nyregion/columbia-student-mohsen-mahdawi-freed.html
-
-**A Diver Visited a Fallen Whale. When He Returned, It Had Vanished.**\
-`A sunken calf’s disappearance created a mystery in murky waters near San Diego.`\
-https://nytimes.com/2025/04/30/science/whale-carcass-san-diego.html
 
