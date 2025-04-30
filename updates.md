@@ -1,3 +1,13 @@
+**Spurs vs Bodø/Glimt semi-final markets: Goals, home advantage and away cards**\
+`Sam Tighe outlines the best bets around Tottenham Hotspur’s Europa League semi-final first-leg clash with Bodø/Glimt. 
+`\
+https://nytimes.com/athletic/6323083/2025/04/30/europa-league-semi-final-tottenham-bodo-glimt-betting-predictions/
+
+**Johnston: Game 5 is nightmare fuel for Leafs as they continue to fall short when it matters**\
+`The Maple Leafs will have to fight and prove they aren't a team that falters under the highest pressure — again.
+`\
+https://nytimes.com/athletic/6322628/2025/04/30/maple-leafs-game-5-nhl-playoffs-senators/
+
 **The Pulse: The next NBA superstar trade?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6321183/2025/04/30/giannis-antetokounmpo-trade-bucks-the-pulse/
