@@ -1,3 +1,7 @@
+**Man Accused of Hacking Climate Groups Can Be Sent to U.S., Judge Says**\
+`A London court approved the extradition of Amit Forlit, who ran companies that allegedly stole information on behalf of a lobbying firm hired by Exxon.`\
+https://nytimes.com/2025/04/30/climate/hacking-for-hire-exxon-forlit-extradition.html
+
 **F.B.I. Reassigns Agents Who Knelt During Racial Justice Protests in 2020**\
 `The move has raised concerns that the bureau is taking action against agents and analysts who were involved in situations denounced by allies of President Trump and the right-wing news media.`\
 https://nytimes.com/2025/04/30/us/politics/fbi-agents-2020-protests.html

@@ -1,3 +1,7 @@
+**Man Accused of Hacking Climate Groups Can Be Sent to U.S., Judge Says**\
+`A London court approved the extradition of Amit Forlit, who ran companies that allegedly stole information on behalf of a lobbying firm hired by Exxon.`\
+https://nytimes.com/2025/04/30/climate/hacking-for-hire-exxon-forlit-extradition.html
+
 **F.B.I. Reassigns Agents Who Knelt During Racial Justice Protests in 2020**\
 `The move has raised concerns that the bureau is taking action against agents and analysts who were involved in situations denounced by allies of President Trump and the right-wing news media.`\
 https://nytimes.com/2025/04/30/us/politics/fbi-agents-2020-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/30/insider/nyc-subway-signals-insider.html
 **Meta Says It Anticipates Continued Growth Despite Tariffs**\
 `The Silicon Valley company made the revenue projection as it reported a 35 percent rise in profit in the first quarter.`\
 https://nytimes.com/2025/04/30/technology/meta-earnings-report.html
-
-**The Briefing: Barca 3-3 Inter - Breaking down Yamal magic, Inter's fast start, Dumfries' unlikely double**\
-`Barca and Inter cancelled each other out in a thrilling semi-final first leg at Montjuic`\
-https://nytimes.com/athletic/6320269/2025/04/30/barcelona-3-inter-3-breaking-down-yamal-magic-inters-fast-start-dumfries-unlikely-double/
 
