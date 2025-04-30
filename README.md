@@ -1,3 +1,11 @@
+**Review: The Met Opera’s New ‘Salome’ Fractures Its Princess**\
+`In his company debut, the director Claus Guth takes a psychological approach, surrounding the title character with six versions of her younger self.`\
+https://nytimes.com/2025/04/30/arts/music/met-opera-salome-review.html
+
+**European Automakers Scrap Forecasts Amid Tariff Uncertainty**\
+`Faced with tariffs introduced by President Trump on cars, steel and aluminum, Europe’s carmakers are pessimistic about the future.`\
+https://nytimes.com/2025/04/30/business/european-automakers-tariff-uncertainty.html
+
 **Stream These 13 Movies and TV Shows Before They Leave in May**\
 `A ton of great titles are leaving fast. Catch them while you can.`\
 https://nytimes.com/2025/04/30/arts/television/netflix-expiring-may.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/30/us/kangaroo-alabama.html
 **NFL fines Falcons, DC Ulbrich for leaking Sanders' draft phone number**\
 `The NFL has fined the Falcons $250,000 and DC Jeff Ulbrich $100,000 over the leak of Sanders' phone number before the 2025 NFL Draft.`\
 https://nytimes.com/athletic/6323798/2025/04/30/nfl-fines-falcons-jeff-ulbrich-shedeur-sanders/
-
-**El Salvador Is Said to Have Spurned U.S. Request for Return of Deported Migrant**\
-`It remained unclear whether the diplomatic effort was a genuine bid by the White House to address the plight of the immigrant, Kilmar Armando Abrego Garcia.`\
-https://nytimes.com/2025/04/30/us/politics/trump-abrego-garcia-bukele-el-salvador.html
-
-**How to watch Inter Miami vs. Vancouver: Messi's side facing Champions Cup elimination**\
-`Suddenly, the group of Messi, Luis Suárez, Jordi Alba and Sergio Busquets faces elimination, down two goals as they host the Whitecaps.`\
-https://nytimes.com/athletic/6319712/2025/04/30/inter-miami-messi-concacaf-vancouver-how-to-watch/
 
