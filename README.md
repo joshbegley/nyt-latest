@@ -1,3 +1,7 @@
+**Canada’s Conservative Leader Is Tossed From His Own Seat**\
+`Pierre Poilievre lost the vote for a constituency he has held for 21 years to a Liberal political neophyte. His populist approach may have been to blame.`\
+https://nytimes.com/2025/04/29/world/canada/canada-poilievre-election-conservatives.html
+
 **Commanders' new stadium plans include opportunities for women's soccer**\
 `The Washington Spirit share an investor, Magic Johnson, with the Commanders `\
 https://nytimes.com/athletic/6322212/2025/04/29/commanders-rfk-stadium-washington-spirit-soccer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6322181/2025/04/29/canadiens-nhl-playoffs-alexandre
 **Trump Threatens Chicago School Funding Over Black Student Success Plan**\
 `The Education Department’s civil rights office is investigating whether the program, which helps Black students do better academically, is racially discriminatory.`\
 https://nytimes.com/2025/04/29/us/politics/trump-chicago-schools-black-students.html
-
-**No Evidence of Cremations at Mexican Ranch, Attorney General Says**\
-`Mexico’s top prosecutor said the ranch, which some groups searching for missing relatives had called an “extermination camp,” had been used by a cartel for training and recruiting.`\
-https://nytimes.com/2025/04/29/world/americas/mexico-extermination-camp.html
 
