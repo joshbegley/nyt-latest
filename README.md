@@ -1,3 +1,7 @@
+**Citing N.I.H. Cuts, a Top Science Journal Stops Accepting Submissions**\
+`With federal support, Environmental Health Perspectives has long published peer-reviewed studies without fees to readers or scientists.`\
+https://nytimes.com/2025/04/29/science/science-journal-environment-trump.html
+
 **U.N. Orders Agencies to Find Budget Cuts, Including via Staff Relocations From N.Y.**\
 `The instructions from the office of Secretary General António Guterres were reviewed by The New York Times and came after President Trump ordered a review of U.S. funding to the agency.`\
 https://nytimes.com/2025/04/29/world/un-budget-cuts-trump.html
@@ -8,7 +12,7 @@ https://nytimes.com/athletic/6322181/2025/04/29/canadiens-nhl-playoffs-alexandre
 
 **Trump Threatens Chicago School Funding Over Black Student Success Plan**\
 `The Education Department’s civil rights office is investigating whether the program, which helps Black students do better academically, is racially discriminatory.`\
-https://nytimes.com/2025/04/29/us/politics/trump-chicago-schools-black-students.html
+https://nytimes.com/live/2025/04/29/us/trump-news/trump-chicago-schools-black-students
 
 **No Evidence of Cremations at Mexican Ranch, Attorney General Says**\
 `Mexico’s top prosecutor said the ranch, which some groups searching for missing relatives had called an “extermination camp,” had been used by a cartel for training and recruiting.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6322080/2025/04/29/dj-humphries-49ers-offensive-tac
 **Kennedy Advises New Parents to ‘Do Your Own Research’ on Vaccines**\
 `In an interview with Dr. Phil, the health secretary offered false information about vaccine oversight and revealed a lack of basic understanding of new drug approvals.`\
 https://nytimes.com/2025/04/29/us/politics/kennedy-vaccines-research.html
-
-**Judge Orders Trump Officials to Disburse Funding for Radio Free Europe**\
-`The news organization relies almost exclusively on congressional funding, which the Trump administration has held up for weeks.`\
-https://nytimes.com/2025/04/29/us/politics/radio-free-europe-funding-trump.html
 
