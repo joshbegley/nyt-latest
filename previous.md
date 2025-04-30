@@ -1,3 +1,7 @@
+**Ex-Amazon exec Jeff Blackburn replacing Ken Solomon as Tennis Channel CEO**\
+`Blackburn spent 24 years by Jeff Bezos' side and helped start Prime Video.`\
+https://nytimes.com/athletic/6321777/2025/04/30/tennis-channel-jeff-blackburn-ceo/
+
 **Man United handed injury boost as Amad and De Ligt return to training**\
 `Amad has been out since February with an ankle injury while an ankle injury has sidelined De Ligt since April 1.`\
 https://nytimes.com/athletic/6323178/2025/04/30/manchester-united-team-news-amad-de-ligt/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6321293/2025/04/30/sec-football-rankings-texas-geor
 **Broncos post-NFL Draft depth chart: Will RJ Harvey become featured RB in Week 1?**\
 `The NFL Draft has crystallized where opportunity exists on the roster for the Broncos, including a big one for second-year RB Audric Estimé.`\
 https://nytimes.com/athletic/6320580/2025/04/30/broncos-depth-chart-post-nfl-draft/
-
-**Francisco Alvarez returned with a new goal that helps him fit in with Mets**\
-`The Mets have scored from first base on a double 16 times. Alvarez wants to join the party. `\
-https://nytimes.com/athletic/6322306/2025/04/30/mets-francisco-alvarez-base-running/
 

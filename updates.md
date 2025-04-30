@@ -1,3 +1,7 @@
+**Ex-Amazon exec Jeff Blackburn replacing Ken Solomon as Tennis Channel CEO**\
+`Blackburn spent 24 years by Jeff Bezos' side and helped start Prime Video.`\
+https://nytimes.com/athletic/6321777/2025/04/30/tennis-channel-jeff-blackburn-ceo/
+
 **Man United handed injury boost as Amad and De Ligt return to training**\
 `Amad has been out since February with an ankle injury while an ankle injury has sidelined De Ligt since April 1.`\
 https://nytimes.com/athletic/6323178/2025/04/30/manchester-united-team-news-amad-de-ligt/
