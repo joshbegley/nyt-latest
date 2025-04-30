@@ -1,3 +1,11 @@
+**Maresca admits 'concern' over Conference League semi-final artificial pitch**\
+`Chelsea play Djurgardena at the 3Arena in Stockholm on Thursday.`\
+https://nytimes.com/athletic/6324312/2025/04/30/chelsea-djurgarden-conference-league-pitch/
+
+**As Strike Looms, N.J. Transit Riders Are Warned to Prepare for ‘Chaos’**\
+`Tens of thousands of New Jersey commuters are being told that they may need to work from home if train engineers go on strike.`\
+https://nytimes.com/2025/04/30/nyregion/nj-transit-strike-talks.html
+
 **Man City set to join inaugural women's seven-a-side tournament**\
 `City are set to join Manchester United, Bayern Munich, Ajax and Benfica at the World Sevens Football (W7F) tournament in May.`\
 https://nytimes.com/athletic/6323943/2025/04/30/manchester-city-women-world-sevens/
@@ -29,12 +37,4 @@ https://nytimes.com/card/2025/04/30/arts/editors-recommendations-studio
 **Dynasty league SuperFlex rookie mock draft, starting with the 'Magnificent Seven'**\
 `Jeff Haverlack puts together a consensus rookie mock draft based on what he's seeing on social platforms and in early dynasty league drafts.`\
 https://nytimes.com/athletic/6323697/2025/04/30/dynasty-fantasy-football-mock-draft-superflex-rookie-jeanty/
-
-**Astros pitcher Lance McCullers Jr. to make first start since 2022 on Sunday**\
-`The 31-year-old will make his first major league start since 2022 following setbacks from a right elbow injury.`\
-https://nytimes.com/athletic/6324124/2025/04/30/astros-lance-mccullers-jr-season-debut/
-
-**Why the Leafs should explore major lineup changes in Game 6, but probably won't**\
-`After losses in Games 4 and 5, it may be time for Maple Leafs coach Craig Berube to shake things up. Would it be enough?`\
-https://nytimes.com/athletic/6323979/2025/04/30/maple-leafs-nhl-playoffs-game-6-lineup/
 
