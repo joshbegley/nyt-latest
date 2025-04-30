@@ -1,5 +1,13 @@
+**11 questions (plus one answer) about Bill Belichick's future with UNC, Jordon Hudson**\
+`So many more questions than answers about "Bill Belichick Inc.," plus the biggest sports-business storylines in this week's MoneyCall.`\
+https://nytimes.com/athletic/6323312/2025/04/30/jordon-hudson-bill-belichick-unc-football-miss-maine-usa/
+
+**Where Federal Dollars Flow to Universities Around the Country**\
+`The Trump administration has targeted a few elite universities with its threats to freeze funding. But many more schools around the country are vulnerable.`\
+https://nytimes.com/interactive/2025/04/30/us/university-funding-research.html
+
 **Spurs have 'unbelieve opportunity' with UEL despite critics - Postecoglou**\
-`Spurs are aiming for the sixth European final in the club's history and a them the chance to win their first major trophy since 2008.`\
+`Spurs are aiming for their sixth European final and a chance to win their first major trophy since 2008.`\
 https://nytimes.com/athletic/6323614/2025/04/30/tottenham-europa-league-ange-postecoglou/
 
 **Taiwan Condemns Somalia for Barring Its Passport Holders From Entering**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/30/us/politics/trump-deportations-venezuela-el-salva
 **Ranking the 49ers’ undrafted haul, which includes 'most gifted' WR in class**\
 `For the second straight year, the 49ers signed a productive — but not flashy — tailback who excelled in a zone-blocking scheme.`\
 https://nytimes.com/athletic/6318938/2025/04/30/49ers-undrafted-rookies-haul-receivers/
-
-**Hour by Hour: How Trump Deported Migrants Despite Judge’s Order**\
-`The move exposed a quietly orchestrated deal between the president and El Salvador, culminating in a back-and-forth with a U.S. federal judge over the course of one frenetic day.`\
-https://nytimes.com/interactive/2025/04/30/us/politics/trump-venezuela-deportations-timeline.html
-
-**A Key Question Before the Court: Are Charter Schools Public or Private?**\
-`The Supreme Court’s answer will determine whether a Catholic school in Oklahoma can become the nation’s first religious charter school.`\
-https://nytimes.com/2025/04/30/us/politics/charter-schools-public-private-supreme-court.html
 
