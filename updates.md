@@ -1,3 +1,7 @@
+**Canada’s Conservative Leader Is Tossed From His Own Seat**\
+`Pierre Poilievre lost the vote for a constituency he has held for 21 years to a Liberal political neophyte. His populist approach may have been to blame.`\
+https://nytimes.com/2025/04/29/world/canada/canada-poilievre-election-conservatives.html
+
 **Commanders' new stadium plans include opportunities for women's soccer**\
 `The Washington Spirit share an investor, Magic Johnson, with the Commanders `\
 https://nytimes.com/athletic/6322212/2025/04/29/commanders-rfk-stadium-washington-spirit-soccer/
