@@ -1,3 +1,7 @@
+**The Bucks are toast, and trading Giannis Antetokounmpo may be the only path forward**\
+`Oddly enough, the Bucks find themselves in a similar position to Portland before it eventually traded Damian Lillard to ... Milwaukee.`\
+https://nytimes.com/athletic/6321037/2025/04/29/giannis-antetokounmpo-trade-rumors-bucks-nba-playoffs/
+
 **NBA playoffs takeaways: Pacers advance as Bucks collapse in OT**\
 `Pacers rally from 20-point deficit to win in OT. Knicks, Celtics can also advance with wins.`\
 https://nytimes.com/athletic/6322220/2025/04/29/nba-playoffs-results-takeaways-scores-tuesday/

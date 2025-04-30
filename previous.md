@@ -1,3 +1,7 @@
+**The Bucks are toast, and trading Giannis Antetokounmpo may be the only path forward**\
+`Oddly enough, the Bucks find themselves in a similar position to Portland before it eventually traded Damian Lillard to ... Milwaukee.`\
+https://nytimes.com/athletic/6321037/2025/04/29/giannis-antetokounmpo-trade-rumors-bucks-nba-playoffs/
+
 **NBA playoffs takeaways: Pacers advance as Bucks collapse in OT**\
 `Pacers rally from 20-point deficit to win in OT. Knicks, Celtics can also advance with wins.`\
 https://nytimes.com/athletic/6322220/2025/04/29/nba-playoffs-results-takeaways-scores-tuesday/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/29/science/science-journal-environment-trump.html
 **U.N. Orders Agencies to Find Budget Cuts, Including via Staff Relocations From N.Y.**\
 `The instructions from the office of Secretary General António Guterres were reviewed by The New York Times and came after President Trump ordered a review of U.S. funding to the agency.`\
 https://nytimes.com/2025/04/29/world/un-budget-cuts-trump.html
-
-**Canadiens playoff notebook: How to compensate for potential absence of Alexandre Carrier**\
-`Also, mind games around Sam Montembeault's availability and Cole Caufield is happy to be back where he's comfortable on the power play.`\
-https://nytimes.com/athletic/6322181/2025/04/29/canadiens-nhl-playoffs-alexandre-carrier/
 
