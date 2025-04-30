@@ -1,40 +1,40 @@
-**Villa president of business operations Chris Heck to leave the club**\
-`Heck, who joined in May 2023, has led Villa's off-field operations and has overseen record revenue.`\
-https://nytimes.com/athletic/6323283/2025/04/30/chris-heck-leaves-aston-villa/
+**C.E.O.s Face a New Trump Conundrum, Over Prices**\
+`Companies are weighing whether they should be transparent about tariffs’ effect on prices, or — as Amazon learned on Tuesday — risk drawing the president’s ire.`\
+https://nytimes.com/2025/04/30/business/dealbook/ceos-tariff-transparency-trump.html
 
-**The playoffs showed the Magic have a strong foundation — but that they need more**\
-`Orlando outplayed Boston at times during their first-round series but lacked the shooting and skill to win more than one game. Now what? `\
-https://nytimes.com/athletic/6322880/2025/04/30/orlando-magic-playoffs-celtics-game-5-banchero-wagner/
+**Trump Administration Live Updates: President Says He Could Bring Back Wrongly Deported Man, But Won’t**\
+``\
+https://nytimes.com/live/2025/04/30/us/president-trump-news
 
-**Sectarian Clashes Spread Around Syria’s Capital, Drawing In Israel**\
-`The Israeli military said it had carried out a warning strike against “extremists” preparing to attack members of the Druse religious minority.`\
-https://nytimes.com/2025/04/30/world/europe/syria-sectarian-fighting-druse.html
+**Why isn't the state of Florida producing highly ranked quarterback recruits?**\
+`From 2010 through 2025, Florida produced only three quarterbacks who ranked among the top 100 prospects nationally — and only one five-star.`\
+https://nytimes.com/athletic/6318430/2025/04/30/florida-quarterback-recruiting-5-star/
 
-**Inside the quick review decision that might have saved the Golden Knights' season**\
-`Brett Howden scored in OT and Vegas took the series lead following a double goal review in the final minute of regulation.`\
-https://nytimes.com/athletic/6322948/2025/04/30/nhl-golden-knights-wild-playoffs-review/
+**Sebastian Berhalter's arrival makes for a unique North American soccer plot twist**\
+`His last name may carry plenty of weight in U.S. soccer circles, but it's Sebastian Berhalter's play that is drawing more and more attention`\
+https://nytimes.com/athletic/6322359/2025/04/30/sebastian-berhalter-gregg-usmnt-vancouver-whitecaps-concacaf-champions-cup/
 
-**Vietnam Used to Be a Safe Haven for Trade. Now It Might Not Be.**\
-`On the 50th anniversary of the end of the Vietnam War, U.S. companies that have come to rely on Vietnam’s factories, like Apple and Nike, are in a bind because of Trump’s tariffs.`\
-https://nytimes.com/2025/04/30/business/dealbook/vietnam-trade-safe-haven-trump-tariffs-transshipping.html
+**What Gabriel Vilardi's return in Game 5 means for the Jets**\
+`Vilardi's return will have a ripple effect throughout the Jets lineup. Is it enough to save their series? `\
+https://nytimes.com/athletic/6321453/2025/04/30/jets-gabriel-vilardi-game-5-nhl-playoffs/
 
-**Marinakis steps back from Forest in bid to ensure UEFA compliance**\
-`The 57-year-old also owns Olympiacos, who could be playing in the same UEFA competition as Forest next term.`\
-https://nytimes.com/athletic/6323134/2025/04/30/nottingham-forest-owner-marinakis-uefa/
+**PWHL expanding to Seattle for 2025-26 season, Kraken to play supporting role**\
+`The PWHL's second expansion franchise will be in Seattle, with the team playing at Climate Pledge Arena.`\
+https://nytimes.com/athletic/6322069/2025/04/30/pwhl-seattle-expansion-womens-hockey-kraken/
 
-**Ex-Amazon exec Jeff Blackburn replacing Ken Solomon as Tennis Channel CEO**\
-`Blackburn spent 24 years by Jeff Bezos' side and helped start Prime Video.`\
-https://nytimes.com/athletic/6321777/2025/04/30/tennis-channel-jeff-blackburn-ceo/
+**Blackhawks' dream offseason: Sullivan, Misa, Marner?**\
+`This could be a memorable or forgettable offseason depending how the chips fall. But here's what the ideal situation would look like.`\
+https://nytimes.com/athletic/6316860/2025/04/30/blackhawks-perfect-nhl-offseason/
 
-**Man United handed injury boost as Amad and De Ligt return to training**\
-`Amad has been out since February with an ankle injury while an ankle injury has sidelined De Ligt since April 1.`\
-https://nytimes.com/athletic/6323178/2025/04/30/manchester-united-team-news-amad-de-ligt/
+**Bruins fan survey: Higher ticket prices for a non-playoff team? Not a popular move**\
+`Who should the next coach be? the next captain? Who should be traded? Should Boston move its first-round pick? Here's what readers say.`\
+https://nytimes.com/athletic/6321165/2025/04/30/bruins-fan-survey-ticket-prices/
 
-**Without a trace: Why tennis is asking its stars not to believe their eyes**\
-`Why tennis stars are at the center of a philosophical quandary this clay-court season.`\
-https://nytimes.com/athletic/6320584/2025/04/30/tennis-electronic-line-calling-clay-ball-marks-umpires/
+**Seahawks post-draft depth chart: Where do the rookies fit, and what needs remain?**\
+`Only one Seahawks rookie appears assured of a starting job, but several could see the field early, including Nick Emmanwori.`\
+https://nytimes.com/athletic/6319139/2025/04/30/seahawks-depth-chart-nfl-draft-2025/
 
-**With fewer four-homer games than perfect games, why is one revered, and the other a quirk?**\
-`On Saturday night, Arizona's Eugenio Suárez joined an illustrious — and quirky — club. Its rarity doesn't match its significance, however. `\
-https://nytimes.com/athletic/6320996/2025/04/30/four-home-run-game-perfect-game-suarez/
+**Tyrese Haliburton and Pacers fans share a moment they'll never forget**\
+`A week after being named the NBA's most overrated player in The Athletic's poll, Haliburton eliminated the Bucks and felt the love.`\
+https://nytimes.com/athletic/6322964/2025/04/30/tyrese-haliburton-pacers-playoffs-bucks-game-5/
 
