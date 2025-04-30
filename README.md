@@ -1,3 +1,7 @@
+**Chelsea agree shirt sponsorship deal with DAMAC for rest of season**\
+`The Emirati property development company will sponsor Chelsea's shirts for a maximum of seven matches, but not the Club World Cup.`\
+https://nytimes.com/athletic/6323279/2025/04/30/chelsea-damac-properties-shirt-sponsor/
+
 **Man Charged With Terror Offense After Trying to Enter Israeli Embassy in London**\
 `A man was arrested after trying to enter the grounds of the embassy on Monday with a knife, the police said. Nobody was harmed in the incident.`\
 https://nytimes.com/2025/04/30/world/europe/israel-embassy-london.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6321453/2025/04/30/jets-gabriel-vilardi-game-5-nhl-
 **PWHL expanding to Seattle for 2025-26 season, Kraken to play supporting role**\
 `The PWHL's second expansion franchise will be in Seattle, with the team playing at Climate Pledge Arena.`\
 https://nytimes.com/athletic/6322069/2025/04/30/pwhl-seattle-expansion-womens-hockey-kraken/
-
-**Blackhawks' dream offseason: Sullivan, Misa, Marner?**\
-`This could be a memorable or forgettable offseason depending how the chips fall. But here's what the ideal situation would look like.`\
-https://nytimes.com/athletic/6316860/2025/04/30/blackhawks-perfect-nhl-offseason/
 

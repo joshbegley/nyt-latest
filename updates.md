@@ -1,3 +1,7 @@
+**Man Charged With Terror Offense After Trying to Enter Israeli Embassy in London**\
+`A man was arrested after trying to enter the grounds of the embassy on Monday with a knife, the police said. Nobody was harmed in the incident.`\
+https://nytimes.com/2025/04/30/world/europe/israel-embassy-london.html
+
 **Mirtle: Why Maple Leafs fans shouldn't panic after another brutal loss**\
 `The Maple Leafs have been here so many times before and disappointed. Even so, here are three reasons why Leafs fans shouldn't fret.`\
 https://nytimes.com/athletic/6322502/2025/04/30/nhl-maple-leafs-senators-game-5/
