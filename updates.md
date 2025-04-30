@@ -1,3 +1,5 @@
+
+
 **Alt files lawsuit against sports card marketplace PWCC alleging fraud**\
 `Alt alleges shill bidding and other practices were employed on high-value card auctions between 2021-2023`\
 https://nytimes.com/athletic/6323468/2025/04/30/alt-pwcc-lawsuit-sports-cards/
