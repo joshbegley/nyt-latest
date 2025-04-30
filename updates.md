@@ -1,3 +1,8 @@
+**Spurs vs Bodø/Glimt semi-final markets: Goals, home advantage and away cards**\
+`Sam Tighe outlines the best bets around Tottenham Hotspur’s Europa League semi-final first-leg clash with Bodø/Glimt. 
+`\
+https://nytimes.com/athletic/6323083/2025/04/30/europa-league-semi-final-tottenham-bodo-glimt-betting-predictions/
+
 **Arsenal live Q&A: James McNicholas answers your post-PSG questions**\
 `Get your questions in now for James McNicholas, who will provide the answers from 2pm BST/9am ET`\
 https://nytimes.com/athletic/6317537/2025/04/30/arsenal-psg-champions-league-review/
