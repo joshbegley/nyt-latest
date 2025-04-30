@@ -1,3 +1,7 @@
+**Wegovy Can Treat a Dangerous Liver Disease, Study Finds**\
+`A large trial showed that the weight-loss drug could reduce liver inflammation and scarring caused by the common condition.`\
+https://nytimes.com/2025/04/30/well/wegovy-liver-disease-mash.html
+
 **FA Cup final ticket prices to increase by up to 20 per cent**\
 `Ticket prices for the 2025 FA Cup final between Crystal Palace and Manchester City are set to cost between £50 and £285.`\
 https://nytimes.com/athletic/6324588/2025/04/30/fa-cup-final-ticket-prices/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6324468/2025/04/30/ravens-kyle-hamilton-tyler-linde
 **Microsoft Puts Brakes on A.I. Spending as Profit Increases 18%**\
 `The tech giant’s revenue also grew 13%, topping Wall Street’s expectations.`\
 https://nytimes.com/2025/04/30/technology/microsoft-earnings-ai-spending.html
-
-**Birmingham break EFL points record with win over Blackpool**\
-`The previous record was held by Reading, who won the Championship with 106 points in the 2006-07 campaign.`\
-https://nytimes.com/athletic/6323140/2025/04/30/birmingham-efl-points-record/
 
