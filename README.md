@@ -1,3 +1,7 @@
+**At Vietnam War Memorial, Familiar Names, Old Grief and a Kind of Peace**\
+`Visitors to the Vietnam Veterans Memorial on the anniversary of the fall of Saigon said they still felt sadness, anger and fury. And for some, finally, closure.`\
+https://nytimes.com/2025/04/30/nyregion/vietnam-veterans-memorial-50-anniversary.html
+
 **Capitals' Taylor Raddysh discusses texts from 'that night in London'**\
 `LONDON, Ont.`\
 https://nytimes.com/athletic/6324000/2025/04/30/hockey-canada-sexual-assault-trial-taylor-raddysh-testifies/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6324939/2025/04/30/connor-zilisch-injured-xfinity-s
 **Bill Gates Navigates the DOGE Era**\
 `Elon Musk is destroying what Gates has spent decades building: the global health apparatus.`\
 https://nytimes.com/2025/04/30/us/politics/bill-gates-elon-musk-doge-trump.html
-
-**Justices Seemed Open to Allowing a Religious Charter School**\
-`Also, The Times examined Trump’s deportation deal with El Salvador. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2025/04/30/briefing/religious-charter-school-supreme-court-trump-deportations.html
 
