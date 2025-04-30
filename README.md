@@ -1,3 +1,11 @@
+**Judge Temporarily Blocks Border Patrol’s Stop-and-Arrest Tactics in California**\
+`Border Patrol agents carried out sweeps in California’s Central Valley. Lawyers argued that people were stopped and arrested based on their skin color.`\
+https://nytimes.com/2025/04/29/us/politics/trump-farm-workers-california-lawsuit.html
+
+**Fact-checking Trump’s rally on his first 100 days.**\
+`At a rally in Michigan, President Trump made false and exaggerated claims about his accomplishments, including on tariffs, immigration and his rollback of Biden administration policies.`\
+https://nytimes.com/live/2025/04/29/us/trump-news/fact-checking-trumps-rally-on-his-first-100-days
+
 **Citing N.I.H. Cuts, a Top Science Journal Stops Accepting Submissions**\
 `With federal support, Environmental Health Perspectives has long published peer-reviewed studies without fees to readers or scientists.`\
 https://nytimes.com/2025/04/29/science/science-journal-environment-trump.html
@@ -12,7 +20,7 @@ https://nytimes.com/athletic/6322181/2025/04/29/canadiens-nhl-playoffs-alexandre
 
 **Trump Threatens Chicago School Funding Over Black Student Success Plan**\
 `The Education Department’s civil rights office is investigating whether the program, which helps Black students do better academically, is racially discriminatory.`\
-https://nytimes.com/live/2025/04/29/us/trump-news/trump-chicago-schools-black-students
+https://nytimes.com/2025/04/29/us/politics/trump-chicago-schools-black-students.html
 
 **No Evidence of Cremations at Mexican Ranch, Attorney General Says**\
 `Mexico’s top prosecutor said the ranch, which some groups searching for missing relatives had called an “extermination camp,” had been used by a cartel for training and recruiting.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6322112/2025/04/29/new-york-yankees-mlb-home-run-hi
 **Floridians Are Getting Glimpses of What Aggressive Immigration Enforcement Looks Like**\
 `Two new laws that were demanded by Gov. Ron DeSantis have entangled every level of government, unnerving residents who had long considered the state an immigrant haven.`\
 https://nytimes.com/2025/04/29/us/trump-desantis-florida-immigration-arrests.html
-
-**49ers add veteran D.J. Humphries to bring needed depth at offensive tackle**\
-`The 49ers had almost no depth at the position and the 31-year-old former Pro Bowl selection should compete at swing tackle. `\
-https://nytimes.com/athletic/6322080/2025/04/29/dj-humphries-49ers-offensive-tackle-free-agent/
-
-**Kennedy Advises New Parents to ‘Do Your Own Research’ on Vaccines**\
-`In an interview with Dr. Phil, the health secretary offered false information about vaccine oversight and revealed a lack of basic understanding of new drug approvals.`\
-https://nytimes.com/2025/04/29/us/politics/kennedy-vaccines-research.html
 

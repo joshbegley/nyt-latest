@@ -1,3 +1,11 @@
+**Citing N.I.H. Cuts, a Top Science Journal Stops Accepting Submissions**\
+`With federal support, Environmental Health Perspectives has long published peer-reviewed studies without fees to readers or scientists.`\
+https://nytimes.com/2025/04/29/science/science-journal-environment-trump.html
+
+**Trump Threatens Chicago School Funding Over Black Student Success Plan**\
+`The Education Department’s civil rights office is investigating whether the program, which helps Black students do better academically, is racially discriminatory.`\
+https://nytimes.com/live/2025/04/29/us/trump-news/trump-chicago-schools-black-students
+
 **U.N. Orders Agencies to Find Budget Cuts, Including via Staff Relocations From N.Y.**\
 `The instructions from the office of Secretary General António Guterres were reviewed by The New York Times and came after President Trump ordered a review of U.S. funding to the agency.`\
 https://nytimes.com/2025/04/29/world/un-budget-cuts-trump.html
