@@ -1,3 +1,7 @@
+**Canadiens playoff notebook: How to compensate for potential absence of Alexandre Carrier**\
+`Also, mind games around Sam Montembeault's availability and Cole Caufield is happy to be back where he's comfortable on the power play.`\
+https://nytimes.com/athletic/6322181/2025/04/29/canadiens-nhl-playoffs-alexandre-carrier/
+
 **Trump Threatens Chicago School Funding Over Black Student Success Plan**\
 `The Education Department’s civil rights office is investigating whether the program, which helps Black students do better academically, is racially discriminatory.`\
 https://nytimes.com/2025/04/29/us/politics/trump-chicago-schools-black-students.html
