@@ -1,3 +1,19 @@
+**Quiz: Which Kind of Happiness Do You Rely On Most?**\
+`There are two kinds. Which kind of daily pleasure are you seeking?`\
+https://nytimes.com/interactive/2025/04/30/magazine/what-makes-me-happy-quiz.html
+
+**Leafs coach Craig Berube on struggle to close out Senators: 'It's on everybody'**\
+`Leafs coach faces pointed questions about Core 4 and special teams as series heads back to Ottawa for Game 6.`\
+https://nytimes.com/athletic/6324382/2025/04/30/maple-leafs-craig-berube-nhl-playoffs/
+
+**Investigating Shrimp Fraud Is an Urgent Matter on the Gulf Coast**\
+`With a flood of imported seafood driving the U.S. shrimp industry to the edge of ruin, a consulting company out of Houston is testing truth in menu labeling.`\
+https://nytimes.com/2025/04/30/dining/shrimp-fraud-gulf-coast-new-orleans.html
+
+**Defensively sound, rapid in attack, packed with academy stars: What United can expect from Athletic Club**\
+`Athletic Club continue to punch above their weight and a brilliant team to watch - there is a growing hope they are on the verge of history`\
+https://nytimes.com/athletic/6323025/2025/04/30/what-manchester-united-can-expect-from-athletic-club/
+
 **Maresca admits 'concern' over Conference League semi-final artificial pitch**\
 `Chelsea play Djurgardena at the 3Arena in Stockholm on Thursday.`\
 https://nytimes.com/athletic/6324312/2025/04/30/chelsea-djurgarden-conference-league-pitch/
