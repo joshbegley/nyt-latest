@@ -1,3 +1,7 @@
+**Oklahoma’s attorney general, a Republican, sued to block the school.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2025/04/30/us/supreme-court-charter-schools/oklahomas-attorney-general-a-republican-sued-to-block-the-school
+
 **The Windup: Please watch this catch**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6322680/2025/04/30/daulton-varsho-catch-blue-jays-the-windup/

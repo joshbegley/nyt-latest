@@ -1,3 +1,31 @@
+**How to watch Inter Miami vs. Vancouver: Messi's side facing Champions Cup elimination**\
+`Suddenly, the group of Messi, Luis Suárez, Jordi Alba and Sergio Busquets faces elimination, down two goals as they host the Whitecaps.`\
+https://nytimes.com/athletic/6319712/2025/04/30/inter-miami-messi-concacaf-vancouver-how-to-watch/
+
+**Trump Family Agrees to Projects in Qatar and Dubai Ahead of President’s Middle East Visit**\
+`President Trump’s son is in the region this week promoting the Trump Organization’s business interests ahead of his father’s trip later this month.`\
+https://nytimes.com/2025/04/30/world/middleeast/trump-family-qatar-dubai.html
+
+**Columbia Student Who Was Arrested at Citizenship Interview Is Freed**\
+`Mohsen Mahdawi had been an organizer of pro-Palestinian protests at the university. Federal officials tried and failed to deport him for it.`\
+https://nytimes.com/2025/04/30/nyregion/columbia-student-mohsen-mahdawi-freed.html
+
+**A Diver Visited a Fallen Whale. When He Returned, It Had Vanished.**\
+`A sunken calf’s disappearance created a mystery in murky waters near San Diego.`\
+https://nytimes.com/2025/04/30/science/whale-carcass-san-diego.html
+
+**spurs EL/CL financesHow much of a boost would winning the Europa League be to Tottenham's finances?**\
+`Winning the Europa League - and qualifying for the Champions League - would provide a much-needed financial boost to Spurs`\
+https://nytimes.com/athletic/6320468/2025/04/30/tottenham-europa-league-finances/
+
+**Sean Combs’s Path From Harlem to Stardom, and Now Federal Court**\
+`As Puffy, Diddy or Love, the mogul found success and trouble. After years of accusations with few consequences, he’ll stand trial next month.`\
+https://nytimes.com/2025/04/30/arts/music/sean-combs-diddy-trial.html
+
+**Chicago Stars fire head coach Lorne Donaldson**\
+`Assistant coach Masaki Hemmi will serve as the team’s interim head coach while the Stars search for Donaldson's replacement.`\
+https://nytimes.com/athletic/6323860/2025/04/30/chicago-stars-fire-head-coach-lorne-donaldson/
+
 **Oklahoma’s attorney general, a Republican, sued to block the school.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2025/04/30/us/supreme-court-charter-schools/oklahomas-attorney-general-a-republican-sued-to-block-the-school
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6322680/2025/04/30/daulton-varsho-catch-blue-jays-t
 **NHL announces Ted Lindsay Award finalists: Will MacKinnon repeat?**\
 `Nathan MacKinnon and Cale Makar of the Colorado Avalanche, and Nikita Kucherov of the Tampa Bay Lightning were announced Wednesday morning as the finalists for the NHL’s Ted Lindsay Award, awarded annually “the most outstanding player as voted on by fellow members of the NHLPA.`\
 https://nytimes.com/athletic/6321477/2025/04/30/nhl-ted-lindsay-finalists-2025/
-
-**Mother's Day**\
-``\
-https://nytimes.com/spotlight/mothers-day
-
-**With Her Cabinet Hopes Dashed, Stefanik Considers Her Next Move**\
-`The New York Republican is contemplating a run for governor and nursing a feud with the House speaker after seeing her cabinet dream evaporate.`\
-https://nytimes.com/2025/04/30/us/politics/elise-stefanik-trump-johnson-cabinet.html
-
-**The Bounce: It's time for Giannis Antetokounmpo to depart from the Bucks after another early exit**\
-`After another first-round exit by the Bucks, Giannis Antetokounmpo should want out of Milwaukee`\
-https://nytimes.com/athletic/6323556/2025/04/30/giannis-antetokounmpo-bucks-trade-nba-playoffs-the-bounce/
-
-**Under Trump, Stocks Have the Worst Start to a Presidential Term Since 1974**\
-`During the first 100 days of the Trump administration, shock waves from the chaotic tariff rollout continue to send tremors through the global financial system.`\
-https://nytimes.com/2025/04/30/business/trump-stocks-tariffs.html
-
-**Trump’s former defense lawyer makes his debut as solicitor general.**\
-`Last term, D. John Sauer successfully argued before the justices that President Trump was entitled to sweeping immunity from prosecution.`\
-https://nytimes.com/live/2025/04/30/us/supreme-court-charter-schools/trumps-former-defense-lawyer-makes-his-debut-as-solicitor-general
-
-**Woodcroft? Malhotra? 9 candidates to be Canucks’ next head coach**\
-`As the process begins to replace Rick Tocchet, the Canucks will cast something of a wide net.`\
-https://nytimes.com/athletic/6322977/2025/04/30/canucks-coach-nhl-manny-malhotra/
-
-**Listen: Talk of the Devils roundtable - Man United's greatest European away games**\
-`Talk of the Devils revisits Manchester United’s iconic 3-2 comeback win over Juventus in Turin in 1999.`\
-https://nytimes.com/athletic/6323567/2025/04/30/talk-of-the-devils-manchester-united-greatest-away-games/
 

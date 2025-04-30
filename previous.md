@@ -1,3 +1,7 @@
+**Oklahoma’s attorney general, a Republican, sued to block the school.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2025/04/30/us/supreme-court-charter-schools/oklahomas-attorney-general-a-republican-sued-to-block-the-school
+
 **The Windup: Please watch this catch**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6322680/2025/04/30/daulton-varsho-catch-blue-jays-the-windup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6322977/2025/04/30/canucks-coach-nhl-manny-malhotra
 **Listen: Talk of the Devils roundtable - Man United's greatest European away games**\
 `Talk of the Devils revisits Manchester United’s iconic 3-2 comeback win over Juventus in Turin in 1999.`\
 https://nytimes.com/athletic/6323567/2025/04/30/talk-of-the-devils-manchester-united-greatest-away-games/
-
-**Two Theories of Consciousness Faced Off. The Ref Took a Beating.**\
-`What makes humans conscious? Scientists disagree, strongly, as one group of peacemakers discovered the hard way.`\
-https://nytimes.com/2025/04/30/science/two-theories-of-consciousness-faced-off-the-ref-took-a-beating.html
 
