@@ -1,3 +1,7 @@
+**Villa president of business operations Chris Heck to leave the club**\
+`Heck, who joined in May 2023, has led Villa's off-field operations and has overseen record revenue.`\
+https://nytimes.com/athletic/6323283/2025/04/30/chris-heck-leaves-aston-villa/
+
 **The playoffs showed the Magic have a strong foundation — but that they need more**\
 `Orlando outplayed Boston at times during their first-round series but lacked the shooting and skill to win more than one game. Now what? `\
 https://nytimes.com/athletic/6322880/2025/04/30/orlando-magic-playoffs-celtics-game-5-banchero-wagner/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6320584/2025/04/30/tennis-electronic-line-calling-c
 **With fewer four-homer games than perfect games, why is one revered, and the other a quirk?**\
 `On Saturday night, Arizona's Eugenio Suárez joined an illustrious — and quirky — club. Its rarity doesn't match its significance, however. `\
 https://nytimes.com/athletic/6320996/2025/04/30/four-home-run-game-perfect-game-suarez/
-
-**Celtics swarm Magic after Paolo Banchero's foul trouble, breathe sigh of relief**\
-`The Celtics finished the series in a nice five-game package, as many predicted. But they felt the effects of Orlando's physical play. `\
-https://nytimes.com/athletic/6322818/2025/04/30/celtics-magic-game-5-jayson-tatum/
 

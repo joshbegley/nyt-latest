@@ -1,3 +1,7 @@
+**Tyrese Haliburton and Pacers fans share a moment they'll never forget**\
+`A week after being named the NBA's most overrated player in The Athletic's poll, Haliburton eliminated the Bucks and felt the love.`\
+https://nytimes.com/athletic/6322964/2025/04/30/tyrese-haliburton-pacers-playoffs-bucks-game-5/
+
 **Villa president of business operations Chris Heck to leave the club**\
 `Heck, who joined in May 2023, has led Villa's off-field operations and has overseen record revenue.`\
 https://nytimes.com/athletic/6323283/2025/04/30/chris-heck-leaves-aston-villa/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6323178/2025/04/30/manchester-united-team-news-amad
 **Without a trace: Why tennis is asking its stars not to believe their eyes**\
 `Why tennis stars are at the center of a philosophical quandary this clay-court season.`\
 https://nytimes.com/athletic/6320584/2025/04/30/tennis-electronic-line-calling-clay-ball-marks-umpires/
-
-**With fewer four-homer games than perfect games, why is one revered, and the other a quirk?**\
-`On Saturday night, Arizona's Eugenio Suárez joined an illustrious — and quirky — club. Its rarity doesn't match its significance, however. `\
-https://nytimes.com/athletic/6320996/2025/04/30/four-home-run-game-perfect-game-suarez/
 

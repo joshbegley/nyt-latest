@@ -1,3 +1,7 @@
+**Villa president of business operations Chris Heck to leave the club**\
+`Heck, who joined in May 2023, has led Villa's off-field operations and has overseen record revenue.`\
+https://nytimes.com/athletic/6323283/2025/04/30/chris-heck-leaves-aston-villa/
+
 **The playoffs showed the Magic have a strong foundation — but that they need more**\
 `Orlando outplayed Boston at times during their first-round series but lacked the shooting and skill to win more than one game. Now what? `\
 https://nytimes.com/athletic/6322880/2025/04/30/orlando-magic-playoffs-celtics-game-5-banchero-wagner/
