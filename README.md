@@ -1,3 +1,11 @@
+**Can I Use A.I. to Look Better Online?**\
+`The magazine’s Ethicist columnist on posting artificially generated photos of oneself on social media.`\
+https://nytimes.com/2025/04/30/magazine/artificial-intelligence-photo-ethics.html
+
+**Mexican top-flight player given six-year ban for alleged match-fixing**\
+`Mexico's football federation said the alleged match-fixing took place in the Clausera - which took place between January and April.`\
+https://nytimes.com/athletic/6323644/2025/04/30/mexico-footballer-ban-match-fixing/
+
 **Kangaroo Startles Drivers on an Alabama Interstate**\
 `Sheila, a local man’s pet, escaped her enclosure and decided to hit the road.`\
 https://nytimes.com/2025/04/30/us/kangaroo-alabama.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/30/science/whale-carcass-san-diego.html
 **spurs EL/CL financesHow much of a boost would winning the Europa League be to Tottenham's finances?**\
 `Winning the Europa League - and qualifying for the Champions League - would provide a much-needed financial boost to Spurs`\
 https://nytimes.com/athletic/6320468/2025/04/30/tottenham-europa-league-finances/
-
-**Sean Combs’s Path From Harlem to Stardom, and Now Federal Court**\
-`As Puffy, Diddy or Love, the mogul found success and trouble. After years of accusations with few consequences, he’ll stand trial next month.`\
-https://nytimes.com/2025/04/30/arts/music/sean-combs-diddy-trial.html
-
-**Chicago Stars fire head coach Lorne Donaldson**\
-`Assistant coach Masaki Hemmi will serve as the team’s interim head coach while the Stars search for Donaldson's replacement.`\
-https://nytimes.com/athletic/6323860/2025/04/30/chicago-stars-fire-head-coach-lorne-donaldson/
 
