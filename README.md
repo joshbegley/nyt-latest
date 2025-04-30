@@ -1,3 +1,11 @@
+**Brain Rot Comes for Italy**\
+`Meet Ballerina Cappuccina and the Italian brain rot crew, an absurd group of A.I.-generated characters that are flooding TikTok.`\
+https://nytimes.com/2025/04/30/style/italian-brain-rot-ballerina-cappuccina.html
+
+**Iga Swiatek recovers from first-set bagel to beat Australian Open champion Madison Keys**\
+`Świątek had not lost a set 6-0 for almost four years, but came back to seal a place in the Madrid Open semifinals.`\
+https://nytimes.com/athletic/6323475/2025/04/30/iga-swiatek-bagel-madrid-keys-analysis/
+
 **Justice Amy Coney Barrett Recuses Herself in a Charter School Case**\
 `The justice will not participate in oral argument, deliberations or vote. She gave no explanation.`\
 https://nytimes.com/2025/04/30/us/politics/amy-coney-barrett-recuse.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6323159/2025/04/30/psg-structure-arsena-press-champ
 **A Great Leap Forward for American Fathers**\
 `Dads started spending more time with their kids and realized they liked it.`\
 https://nytimes.com/2025/04/30/opinion/father-child-care-pandemic.html
-
-**My Girlfriend Won’t Introduce Me to Her Children or Friends. Help!**\
-`Their relationship began seven years ago with an extramarital affair, but a reader is ready for his girlfriend to bring him into the fold with her loved ones.`\
-https://nytimes.com/2025/04/30/style/relationships-family-introductions.html
-
-**'This thing is far from over': Wild vow to recover from crushing loss**\
-`The Wild were inches away from a Game 5 win, but instead find themselves down 3-2 in the series.`\
-https://nytimes.com/athletic/6322944/2025/04/30/wild-golden-knights-game-5-nhl-playoffs/
 
