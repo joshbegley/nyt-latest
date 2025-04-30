@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6323347/2025/04/30/europa-league-semi-final-manchester-united-athletic-club-betting-predictions/
 
+**Athletic vs Utd odds: Forecast for a low-scoring affair at the San Mamés**\
+`Brett Koremenos outlines the best bets around Manchester United’s Europa League semi-final first-leg clash with Athletic Club. 
+`\
+https://nytimes.com/athletic/6323347/2025/04/30/europa-league-semi-final-manchester-united-athletic-club-betting-predictions/
+
 **Chelsea agree shirt sponsorship deal with DAMAC for rest of season**\
 `The Emirati property development company will sponsor Chelsea's shirts for a maximum of seven matches, but not the Club World Cup.`\
 https://nytimes.com/athletic/6323279/2025/04/30/chelsea-damac-properties-shirt-sponsor/
