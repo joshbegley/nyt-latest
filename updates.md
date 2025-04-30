@@ -1,3 +1,5 @@
+
+
 **Are Trump’s Actions Truly Unprecedented? We Asked 35 Historians.**\
 `We categorized 22 of Mr. Trump’s actions, ranging from those that have no comparable historical example to those that do.`\
 https://nytimes.com/interactive/2025/04/30/upshot/2025-03-28-presidential-history-survey-index.html
