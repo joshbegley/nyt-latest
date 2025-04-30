@@ -1,3 +1,7 @@
+**Buddy Guy on ‘Sinners’: ‘This May Help the Blues Stay Alive’**\
+`The guitarist and singer, who turns 89 in July, discusses his role in Ryan Coogler’s musical horror drama and his promise to Muddy Waters and B.B. King.`\
+https://nytimes.com/2025/04/30/arts/music/buddy-guy-sinners-blues.html
+
 **What happens if there is a tie vote?**\
 `By Adam Liptak`\
 https://nytimes.com/live/2025/04/30/us/supreme-court-charter-schools/what-happens-if-there-is-a-tie-vote
