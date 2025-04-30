@@ -1,3 +1,11 @@
+**Reds' prospect Chase Petty set to make debut against St. Louis Wednesday**\
+`Petty, 22, is 0-2 with a 3.52 ERA in five starts for Triple-A Louisville Bats this season.`\
+https://nytimes.com/athletic/6322428/2025/04/29/reds-prospect-chase-petty-debut-wednesday-st-louis/
+
+**What we learned from Jim Rutherford after Rick Tocchet's decision to depart Canucks**\
+`Rutherford didn't go into much detail on why Tocchet moved on, but he shared insight on what comes next for the Canucks.`\
+https://nytimes.com/athletic/6322114/2025/04/29/canucks-jim-rutherford-rick-tocchet/
+
 **Mark Prior talks Dodgers pitching injuries: 'It's not a good quality of life'**\
 `Prior said there are ongoing discussions about how the Dodgers integrate their call-ups into the big-league environment.`\
 https://nytimes.com/athletic/6322304/2025/04/29/dodgers-mark-prior-pitching-injuries/
