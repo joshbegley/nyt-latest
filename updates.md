@@ -1,3 +1,11 @@
+**F.B.I. Reassigns Agents Who Knelt During Racial Justice Protests in 2020**\
+`The move has raised concerns that the bureau is taking action against agents and analysts who were involved in situations denounced by allies of President Trump and the right-wing news media.`\
+https://nytimes.com/2025/04/30/us/politics/fbi-agents-2020-protests.html
+
+**Chelsea win sixth successive WSL title with win over Man Utd**\
+`Head coach Sonia Bompastor secures a first WSL title in her debut season in England.`\
+https://nytimes.com/athletic/6301424/2025/04/30/chelsea-wsl-title-win/
+
 **Ted Kotcheff, Director Who Brought Rambo to the Screen, Dies at 94**\
 `His films, including “First Blood” and “Weekend at Bernie’s,” covered a range of genres. He was later an executive producer of “Law & Order: Special Victims Unit.”`\
 https://nytimes.com/2025/04/30/movies/ted-kotcheff-dead.html

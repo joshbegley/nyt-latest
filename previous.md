@@ -1,3 +1,11 @@
+**F.B.I. Reassigns Agents Who Knelt During Racial Justice Protests in 2020**\
+`The move has raised concerns that the bureau is taking action against agents and analysts who were involved in situations denounced by allies of President Trump and the right-wing news media.`\
+https://nytimes.com/2025/04/30/us/politics/fbi-agents-2020-protests.html
+
+**Chelsea win sixth successive WSL title with win over Man Utd**\
+`Head coach Sonia Bompastor secures a first WSL title in her debut season in England.`\
+https://nytimes.com/athletic/6301424/2025/04/30/chelsea-wsl-title-win/
+
 **Ted Kotcheff, Director Who Brought Rambo to the Screen, Dies at 94**\
 `His films, including “First Blood” and “Weekend at Bernie’s,” covered a range of genres. He was later an executive producer of “Law & Order: Special Victims Unit.”`\
 https://nytimes.com/2025/04/30/movies/ted-kotcheff-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/30/technology/meta-earnings-report.html
 **The Briefing: Barca 3-3 Inter - Breaking down Yamal magic, Inter's fast start, Dumfries' unlikely double**\
 `Barca and Inter cancelled each other out in a thrilling semi-final first leg at Montjuic`\
 https://nytimes.com/athletic/6320269/2025/04/30/barcelona-3-inter-3-breaking-down-yamal-magic-inters-fast-start-dumfries-unlikely-double/
-
-**Fact-Checking the ‘President Who Follows Science’**\
-`The White House published a page on its website this month outlining the Trump administration’s key actions on climate and the environment. We annotated some of the claims.`\
-https://nytimes.com/interactive/2025/04/30/climate/white-house-earth-day-page-annotated.html
-
-**Ravens make expected decisions on Kyle Hamilton, Tyler Linderbaum's fifth-year options**\
-`The time had arrived to make decisions on two of Baltimore's biggest stars from the 2022 NFL Draft. `\
-https://nytimes.com/athletic/6324468/2025/04/30/ravens-kyle-hamilton-tyler-linderbaum-fifth-year-option/
 
