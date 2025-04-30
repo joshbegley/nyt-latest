@@ -1,3 +1,15 @@
+**Capitals' Taylor Raddysh discusses texts from 'that night in London'**\
+`LONDON, Ont.`\
+https://nytimes.com/athletic/6324000/2025/04/30/hockey-canada-sexual-assault-trial-taylor-raddysh-testifies/
+
+**Bills sign WR Elijah Moore to 1-year deal after GM's fiery comments**\
+`Moore, who ranked No. 67 on The Athletic's top 150 free agents list, caught 61 passes with the Cleveland Browns last season.`\
+https://nytimes.com/athletic/6324928/2025/04/30/elijah-moore-bills-free-agent-signing/
+
+**Trump Would Not Concede ‘MS-13’ Letters Were Digitally Added**\
+`The White House declined to explain why President Trump did not appear to realize that the photograph he held up on social media had been altered.`\
+https://nytimes.com/2025/04/30/us/trump-ms-13-tattoo-abrego-garcia.html
+
 **Ukraine and U.S. Sign Economic and Reconstruction Deal**\
 `The deal is intended to give the U.S. access to proceeds from Ukraine’s reserves of rare earth minerals.`\
 https://nytimes.com/2025/04/30/world/europe/ukraine-minerals-deal-trump.html

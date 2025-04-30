@@ -1,3 +1,15 @@
+**Capitals' Taylor Raddysh discusses texts from 'that night in London'**\
+`LONDON, Ont.`\
+https://nytimes.com/athletic/6324000/2025/04/30/hockey-canada-sexual-assault-trial-taylor-raddysh-testifies/
+
+**Bills sign WR Elijah Moore to 1-year deal after GM's fiery comments**\
+`Moore, who ranked No. 67 on The Athletic's top 150 free agents list, caught 61 passes with the Cleveland Browns last season.`\
+https://nytimes.com/athletic/6324928/2025/04/30/elijah-moore-bills-free-agent-signing/
+
+**Trump Would Not Concede ‘MS-13’ Letters Were Digitally Added**\
+`The White House declined to explain why President Trump did not appear to realize that the photograph he held up on social media had been altered.`\
+https://nytimes.com/2025/04/30/us/trump-ms-13-tattoo-abrego-garcia.html
+
 **Ukraine and U.S. Sign Economic and Reconstruction Deal**\
 `The deal is intended to give the U.S. access to proceeds from Ukraine’s reserves of rare earth minerals.`\
 https://nytimes.com/2025/04/30/world/europe/ukraine-minerals-deal-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/30/us/politics/bill-gates-elon-musk-doge-trump.html
 **Justices Seemed Open to Allowing a Religious Charter School**\
 `Also, The Times examined Trump’s deportation deal with El Salvador. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/04/30/briefing/religious-charter-school-supreme-court-trump-deportations.html
-
-**From mediocrity to futility: Rockies set MLB record for most losses in April**\
-`In the handshake line on Wednesday, Colorado Rockies center fielder stopped to hug rookie Zach Agnos.`\
-https://nytimes.com/athletic/6324894/2025/04/30/colorado-rockies-mlb-record-april-losses/
-
-**Trump, on Tariffs, Says ‘Maybe the Children Will Have 2 Dolls Instead of 30’**\
-`At the end of a cabinet meeting, the president allowed for the possibility that trade war could disrupt supply chains.`\
-https://nytimes.com/2025/04/30/us/politics/trump-tariffs-dolls-comment.html
-
-**Alijah Arenas out of hospital less than 1 week after car crash, family says**\
-`Arenas' family said the five-star basketball recruit and University of Southern California commit will remain under close watch.`\
-https://nytimes.com/athletic/6324932/2025/04/30/alijah-arenas-leaves-hospital/
 
