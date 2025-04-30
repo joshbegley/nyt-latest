@@ -1,3 +1,11 @@
+**Mirtle: Why Maple Leafs fans shouldn't panic after another brutal loss**\
+`The Maple Leafs have been here so many times before and disappointed. Even so, here are three reasons why Leafs fans shouldn't fret.`\
+https://nytimes.com/athletic/6322502/2025/04/30/nhl-maple-leafs-senators-game-5/
+
+**Temperatures in Britain Could Set Records This Week**\
+`Thursday could be Britain’s warmest May 1 on record, with a forecast high of 84.2 Fahrenheit. A large area of high pressure and abundant sunshine are contributing to the warm streak.`\
+https://nytimes.com/2025/04/30/weather/britain-heat-record.html
+
 **C.E.O.s Face a New Trump Conundrum, Over Prices**\
 `Companies are weighing whether they should be transparent about tariffs’ effect on prices, or — as Amazon learned on Tuesday — risk drawing the president’s ire.`\
 https://nytimes.com/2025/04/30/business/dealbook/ceos-tariff-transparency-trump.html
