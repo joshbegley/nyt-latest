@@ -1,3 +1,11 @@
+**Ho Chi Minh City Celebrates the Fall of Saigon**\
+`Surging Vietnamese nationalism appeared on the streets, as thousands gathered to commemorate the 50th anniversary of the end of the war.`\
+https://nytimes.com/2025/04/30/world/asia/saigon-parade-vietnam-war.html
+
+**50th Anniversary Parade Marks End of Vietnam War**\
+`Veterans and young people alike commemorated the end of the Vietnam War with a 50th anniversary parade in Ho Chi Minh City on Wednesday.`\
+https://nytimes.com/video/world/asia/100000010138168/vietnam-war-50th-anniversary-parade.html
+
 **Arsenal live Q&A: James McNicholas answers your post-PSG questions**\
 `Get your questions in now for James McNicholas, who will provide the answers from 2pm BST/9am ET`\
 https://nytimes.com/athletic/6317537/2025/04/30/arsenal-psg-champions-league-review/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6319688/2025/04/30/barcelona-inter-milan-champions-
 **With refined mechanics, Cubs' Carson Kelly trending toward offensive breakout**\
 `Through 15 games this season, Kelly has a 1.371 OPS to go along with six home runs and 18 RBIs. `\
 https://nytimes.com/athletic/6321031/2025/04/30/chicago-cubs-carson-kelly-breakout-season-potential/
-
-**Is Arsenal's 'offside' free-kick routine still worth the risk?**\
-`Mikel Arteta's side show plenty of innovation with their set pieces - but is it time for one particular tactic to be put on ice?`\
-https://nytimes.com/athletic/6322118/2025/04/30/arsenal-offside-blocking-free-kick-analysis/
-
-**The Leafs’ big playoff question is back: Can Matthews and Marner deliver when it matters?**\
-`With the opportunity to win a series, on home ice no less, how did the two pillars of the franchise come up short — again?`\
-https://nytimes.com/athletic/6322527/2025/04/30/maple-leafs-matthews-marner-nhl-playoffs/
 

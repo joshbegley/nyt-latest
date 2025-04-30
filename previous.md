@@ -1,3 +1,11 @@
+**Arsenal live Q&A: James McNicholas answers your post-PSG questions**\
+`Get your questions in now for James McNicholas, who will provide the answers from 2pm BST/9am ET`\
+https://nytimes.com/athletic/6317537/2025/04/30/arsenal-psg-champions-league-review/
+
+**I coached in the NFL for years. This is the biggest reason young QBs succeed or fail**\
+`Bruce Arians coached the Arizona Cardinals, won a Super Bowl with the Tampa Bay Buccaneers and mentored Peyton Manning and Andrew Luck.`\
+https://nytimes.com/athletic/6318795/2025/04/30/i-coached-in-the-nfl-for-years-this-is-the-biggest-reason-young-qbs-succeed-or-fail/
+
 **The Pulse: The next NBA superstar trade?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6321183/2025/04/30/giannis-antetokounmpo-trade-bucks-the-pulse/
@@ -27,16 +35,7 @@ https://nytimes.com/athletic/6321031/2025/04/30/chicago-cubs-carson-kelly-breako
 `Mikel Arteta's side show plenty of innovation with their set pieces - but is it time for one particular tactic to be put on ice?`\
 https://nytimes.com/athletic/6322118/2025/04/30/arsenal-offside-blocking-free-kick-analysis/
 
-**Packers depth chart: Where do Matthew Golden and rookies fit in after NFL Draft?**\
-`How soon after he steps foot on a practice field in Green Bay will Golden become the top receiver on the team?`\
-https://nytimes.com/athletic/6321233/2025/04/30/green-bay-packers-depth-chart-nfl-draft/
-
-**Ryan Preece on his intensity, reviving 'Boys, have at it,' and more: 12 Questions**\
-`RFK Racing's Ryan Preece talks about his hard-wired intensity, why NASCAR should stop fining drivers for fights, and more.`\
-https://nytimes.com/athletic/6319324/2025/04/30/ryan-preece-nascar-rfk-racing-fights-12-questions/
-
-**Johnston: Game 5 is nightmare fuel for Leafs as they continue to fall short when it matters**\
-`The Maple Leafs will have to fight and prove they aren't a team that falters under the highest pressure — again.
-`\
-https://nytimes.com/athletic/6322628/2025/04/30/maple-leafs-game-5-nhl-playoffs-senators/
+**The Leafs’ big playoff question is back: Can Matthews and Marner deliver when it matters?**\
+`With the opportunity to win a series, on home ice no less, how did the two pillars of the franchise come up short — again?`\
+https://nytimes.com/athletic/6322527/2025/04/30/maple-leafs-matthews-marner-nhl-playoffs/
 

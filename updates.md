@@ -1,3 +1,20 @@
+**Arsenal live Q&A: James McNicholas answers your post-PSG questions**\
+`Get your questions in now for James McNicholas, who will provide the answers from 2pm BST/9am ET`\
+https://nytimes.com/athletic/6317537/2025/04/30/arsenal-psg-champions-league-review/
+
+**I coached in the NFL for years. This is the biggest reason young QBs succeed or fail**\
+`Bruce Arians coached the Arizona Cardinals, won a Super Bowl with the Tampa Bay Buccaneers and mentored Peyton Manning and Andrew Luck.`\
+https://nytimes.com/athletic/6318795/2025/04/30/i-coached-in-the-nfl-for-years-this-is-the-biggest-reason-young-qbs-succeed-or-fail/
+
+**Spurs vs Bodø/Glimt semi-final markets: Goals, home advantage and away cards**\
+`Sam Tighe outlines the best bets around Tottenham Hotspur’s Europa League semi-final first-leg clash with Bodø/Glimt. 
+`\
+https://nytimes.com/athletic/6323083/2025/04/30/europa-league-semi-final-tottenham-bodo-glimt-betting-predictions/
+
+**The Leafs’ big playoff question is back: Can Matthews and Marner deliver when it matters?**\
+`With the opportunity to win a series, on home ice no less, how did the two pillars of the franchise come up short — again?`\
+https://nytimes.com/athletic/6322527/2025/04/30/maple-leafs-matthews-marner-nhl-playoffs/
+
 **Spurs vs Bodø/Glimt semi-final markets: Goals, home advantage and away cards**\
 `Sam Tighe outlines the best bets around Tottenham Hotspur’s Europa League semi-final first-leg clash with Bodø/Glimt. 
 `\
