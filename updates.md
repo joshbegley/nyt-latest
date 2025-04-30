@@ -1,3 +1,11 @@
+**Bill Gates Navigates the DOGE Era**\
+`Elon Musk is destroying what Gates has spent decades building: the global health apparatus.`\
+https://nytimes.com/2025/04/30/us/politics/bill-gates-elon-musk-doge-trump.html
+
+**Justices Seemed Open to Allowing a Religious Charter School**\
+`Also, The Times examined Trump’s deportation deal with El Salvador. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/04/30/briefing/religious-charter-school-supreme-court-trump-deportations.html
+
 **From mediocrity to futility: Rockies set MLB record for most losses in April**\
 `In the handshake line on Wednesday, Colorado Rockies center fielder stopped to hug rookie Zach Agnos.`\
 https://nytimes.com/athletic/6324894/2025/04/30/colorado-rockies-mlb-record-april-losses/

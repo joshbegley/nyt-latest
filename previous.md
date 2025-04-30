@@ -1,3 +1,11 @@
+**Bill Gates Navigates the DOGE Era**\
+`Elon Musk is destroying what Gates has spent decades building: the global health apparatus.`\
+https://nytimes.com/2025/04/30/us/politics/bill-gates-elon-musk-doge-trump.html
+
+**Justices Seemed Open to Allowing a Religious Charter School**\
+`Also, The Times examined Trump’s deportation deal with El Salvador. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/04/30/briefing/religious-charter-school-supreme-court-trump-deportations.html
+
 **From mediocrity to futility: Rockies set MLB record for most losses in April**\
 `In the handshake line on Wednesday, Colorado Rockies center fielder stopped to hug rookie Zach Agnos.`\
 https://nytimes.com/athletic/6324894/2025/04/30/colorado-rockies-mlb-record-april-losses/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/30/climate/hacking-for-hire-exxon-forlit-extradition
 **F.B.I. Reassigns Agents Who Knelt During Racial Justice Protests in 2020**\
 `The move has raised concerns that the bureau is taking action against agents and analysts who were involved in situations denounced by allies of President Trump and the right-wing news media.`\
 https://nytimes.com/2025/04/30/us/politics/fbi-agents-2020-protests.html
-
-**Chelsea win sixth successive WSL title with win over Man Utd**\
-`Head coach Sonia Bompastor secures a first WSL title in her debut season in England.`\
-https://nytimes.com/athletic/6301424/2025/04/30/chelsea-wsl-title-win/
-
-**Ted Kotcheff, Director Who Brought Rambo to the Screen, Dies at 94**\
-`His films, including “First Blood” and “Weekend at Bernie’s,” covered a range of genres. He was later an executive producer of “Law & Order: Special Victims Unit.”`\
-https://nytimes.com/2025/04/30/movies/ted-kotcheff-dead.html
 
