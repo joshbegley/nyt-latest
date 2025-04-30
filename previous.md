@@ -1,3 +1,15 @@
+**Kangaroo Startles Drivers on an Alabama Interstate**\
+`Sheila, a local man’s pet, escaped her enclosure and decided to hit the road.`\
+https://nytimes.com/2025/04/30/us/kangaroo-alabama.html
+
+**NFL fines Falcons, DC Ulbrich for leaking Sanders' draft phone number**\
+`The NFL has fined the Falcons $250,000 and DC Jeff Ulbrich $100,000 over the leak of Sanders' phone number before the 2025 NFL Draft.`\
+https://nytimes.com/athletic/6323798/2025/04/30/nfl-fines-falcons-jeff-ulbrich-shedeur-sanders/
+
+**El Salvador Is Said to Have Spurned U.S. Request for Return of Deported Migrant**\
+`It remained unclear whether the diplomatic effort was a genuine bid by the White House to address the plight of the immigrant, Kilmar Armando Abrego Garcia.`\
+https://nytimes.com/2025/04/30/us/politics/trump-abrego-garcia-bukele-el-salvador.html
+
 **How to watch Inter Miami vs. Vancouver: Messi's side facing Champions Cup elimination**\
 `Suddenly, the group of Messi, Luis Suárez, Jordi Alba and Sergio Busquets faces elimination, down two goals as they host the Whitecaps.`\
 https://nytimes.com/athletic/6319712/2025/04/30/inter-miami-messi-concacaf-vancouver-how-to-watch/
@@ -7,7 +19,7 @@ https://nytimes.com/athletic/6319712/2025/04/30/inter-miami-messi-concacaf-vanco
 https://nytimes.com/2025/04/30/world/middleeast/trump-family-qatar-dubai.html
 
 **Columbia Student Who Was Arrested at Citizenship Interview Is Freed**\
-`Mohsen Mahdawi had been an organizer of pro-Palestinian protests at the university. Federal officials tried and failed to deport him for it.`\
+`Mohsen Mahdawi had been an organizer of pro-Palestinian protests at the university. The Trump administration had tried and failed to deport him for it.`\
 https://nytimes.com/2025/04/30/nyregion/columbia-student-mohsen-mahdawi-freed.html
 
 **A Diver Visited a Fallen Whale. When He Returned, It Had Vanished.**\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/30/arts/music/sean-combs-diddy-trial.html
 **Chicago Stars fire head coach Lorne Donaldson**\
 `Assistant coach Masaki Hemmi will serve as the team’s interim head coach while the Stars search for Donaldson's replacement.`\
 https://nytimes.com/athletic/6323860/2025/04/30/chicago-stars-fire-head-coach-lorne-donaldson/
-
-**Oklahoma’s attorney general, a Republican, sued to block the school.**\
-`By Adam Liptak`\
-https://nytimes.com/live/2025/04/30/us/supreme-court-charter-schools/oklahomas-attorney-general-a-republican-sued-to-block-the-school
-
-**The Windup: Please watch this catch**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6322680/2025/04/30/daulton-varsho-catch-blue-jays-the-windup/
-
-**NHL announces Ted Lindsay Award finalists: Will MacKinnon repeat?**\
-`Nathan MacKinnon and Cale Makar of the Colorado Avalanche, and Nikita Kucherov of the Tampa Bay Lightning were announced Wednesday morning as the finalists for the NHL’s Ted Lindsay Award, awarded annually “the most outstanding player as voted on by fellow members of the NHLPA.`\
-https://nytimes.com/athletic/6321477/2025/04/30/nhl-ted-lindsay-finalists-2025/
 
