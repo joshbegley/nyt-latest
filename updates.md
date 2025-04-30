@@ -1,3 +1,7 @@
+**Playboi Carti: Modern Rap in a Nutshell**\
+`The Atlanta rapper’s surprise hit “Evil J0rdan” tells us a lot about what’s happening in hip-hop right now, our critic argues in his weekly song review from the driver’s seat.`\
+https://nytimes.com/video/podcasts/100000010137313/playboi-carti-evil-jordan-review.html
+
 **11 questions (plus one answer) about Bill Belichick's future with UNC, Jordon Hudson**\
 `So many more questions than answers about "Bill Belichick Inc.," plus the biggest sports-business storylines in this week's MoneyCall.`\
 https://nytimes.com/athletic/6323312/2025/04/30/jordon-hudson-bill-belichick-unc-football-miss-maine-usa/
