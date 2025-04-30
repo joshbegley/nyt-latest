@@ -1,3 +1,19 @@
+**A look at the Lions' undrafted free agents and which of them could stick with the team**\
+`The Lions have a long streak of keeping at least one undrafted free agent on the 53-man roster.`\
+https://nytimes.com/athletic/6321834/2025/04/30/lions-undrafted-free-agents-2025/
+
+**Mandel's Mailbag: If cash is same in NIL and NFL, what's the argument to stay or go pro?**\
+`Plus: What does the 2023 quarterback class's mass transfers say about the sport?`\
+https://nytimes.com/athletic/6321605/2025/04/30/mandels-mailbag-shedeur-sanders-nil-nfl-quinn-ewers/
+
+**Britain Joins U.S. in Strike Against Houthis in Yemen**\
+`There was no immediate comment from the American military about the joint operation, the first since President Trump took office.`\
+https://nytimes.com/2025/04/30/world/middleeast/uk-us-yemen-houthis-strikes.html
+
+**Xander Bogaerts’ first homer of the year is a welcome glimmer for the Padres**\
+`Bogaerts' seventh-inning, two-run homer helped the Padres to a 7-4 win over the Giants and ended an unwanted individual streak.`\
+https://nytimes.com/athletic/6322883/2025/04/30/padres-giants-xander-bogaerts-home-run/
+
 **Evanilson's three-match ban removed following successful Bournemouth appeal**\
 `The 25-year-old will now be available for Bournemouth’s trip to the Emirates to face Arsenal on Saturday. `\
 https://nytimes.com/athletic/6322998/2025/04/30/evanilson-red-card-appeal-bournemouth-man-united/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/04/30/arts/television/andor-season-2-episodes-4-6-recap
 **After Nudge From Trump, Senate Sets Fast Pace in Confirming His Ambassadors**\
 `Republicans have raced to approve the president’s picks to serve as top diplomats around the globe, in some cases with solid backing from Democrats.`\
 https://nytimes.com/2025/04/30/us/politics/trump-senate-ambassadors.html
-
-**How to Secure Your Phone’s Data Before Traveling Abroad**\
-`Here are some best practices for safeguarding sensitive personal data.`\
-https://nytimes.com/2025/04/30/technology/personaltech/travel-burner-phone-cbp.html
-
-**No Ordinary Cabinet. No Ordinary Time.**\
-`In his second term, Trump is remaking America. These are the 22 people charged with carrying out his vision.`\
-https://nytimes.com/interactive/2025/04/30/opinion/trump-cabinet-members.html
-
-**Supreme Court to Hear Challenge to Religious Charter School in Oklahoma**\
-`The justices have allowed vouchers for religious schools and required equal treatment in tuition programs. But direct government payments to religious public schools pose a new test.`\
-https://nytimes.com/2025/04/30/us/politics/supreme-court-charter-school.html
-
-**Cowboys post-draft depth chart reset: Only 1 position remains as glaring need**\
-`The Cowboys did not draft a receiver and could still be looking for their No. 2 at the position opposite CeeDee Lamb.`\
-https://nytimes.com/athletic/6320977/2025/04/30/cowboys-depth-chart-post-draft-wide-receiver/
 
