@@ -1,40 +1,41 @@
-**South Korea to Use Drones to Deter Birds After Deadly Air Crash**\
-`The government announced a raft of aviation safety measures after a Jeju Air crash late last year that killed 179 people, including upgrading airport infrastructure.`\
-https://nytimes.com/2025/04/30/world/asia/south-korea-jeju-air-birds.html
+**How J.J. McCarthy is approaching his 'grand opportunity' as the Vikings quarterback**\
+`"More is required" for the Vikings to take the next step. That's also true of McCarthy, the young QB expected to take over the reins.`\
+https://nytimes.com/athletic/6321870/2025/04/30/jj-mccarthy-vikings-quarterback-job/
 
-**A look at the Lions' undrafted free agents and which of them could stick with the team**\
-`The Lions have a long streak of keeping at least one undrafted free agent on the 53-man roster.`\
-https://nytimes.com/athletic/6321834/2025/04/30/lions-undrafted-free-agents-2025/
+**100 Days**\
+`How have the first 100 days of President Trump’s second term changed the country?`\
+https://nytimes.com/2025/04/30/podcasts/the-daily/100-days-trump-presidency.html
 
-**Mandel's Mailbag: If cash is same in NIL and NFL, what's the argument to stay or go pro?**\
-`Plus: What does the 2023 quarterback class's mass transfers say about the sport?`\
-https://nytimes.com/athletic/6321605/2025/04/30/mandels-mailbag-shedeur-sanders-nil-nfl-quinn-ewers/
+**How to watch Barcelona vs. Inter Milan in the first leg of Champions League semi**\
+`Inter Milan is sliding, while Barcelona pursues a treble. The first leg of this Champions League semifinal kicks off Wednesday from Spain.`\
+https://nytimes.com/athletic/6319688/2025/04/30/barcelona-inter-milan-champions-league-how-to-watch/
 
-**Britain Joins U.S. in Strike Against Houthis in Yemen**\
-`There was no immediate comment from the American military about the joint operation, the first since President Trump took office.`\
-https://nytimes.com/2025/04/30/world/middleeast/uk-us-yemen-houthis-strikes.html
+**With refined mechanics, Cubs' Carson Kelly trending toward offensive breakout**\
+`Through 15 games this season, Kelly has a 1.371 OPS to go along with six home runs and 18 RBIs. `\
+https://nytimes.com/athletic/6321031/2025/04/30/chicago-cubs-carson-kelly-breakout-season-potential/
 
-**Xander Bogaerts’ first homer of the year is a welcome glimmer for the Padres**\
-`Bogaerts' seventh-inning, two-run homer helped the Padres to a 7-4 win over the Giants and ended an unwanted individual streak.`\
-https://nytimes.com/athletic/6322883/2025/04/30/padres-giants-xander-bogaerts-home-run/
+**Is Arsenal's 'offside' free-kick routine still worth the risk?**\
+`Mikel Arteta's side show plenty of innovation with their set pieces - but is it time for one particular tactic to be put on ice?`\
+https://nytimes.com/athletic/6322118/2025/04/30/arsenal-offside-blocking-free-kick-analysis/
 
-**Evanilson's three-match ban removed following successful Bournemouth appeal**\
-`The 25-year-old will now be available for Bournemouth’s trip to the Emirates to face Arsenal on Saturday. `\
-https://nytimes.com/athletic/6322998/2025/04/30/evanilson-red-card-appeal-bournemouth-man-united/
+**Packers depth chart: Where do Matthew Golden and rookies fit in after NFL Draft?**\
+`How soon after he steps foot on a practice field in Green Bay will Golden become the top receiver on the team?`\
+https://nytimes.com/athletic/6321233/2025/04/30/green-bay-packers-depth-chart-nfl-draft/
 
-**Bengals 53-man roster outlook: 2 major position battles on deck after NFL Draft**\
-`Linebacker Demetrius Knight and guard Dylan Fairchild look like the rookies most likely to have starting spots.`\
-https://nytimes.com/athletic/6321187/2025/04/30/bengals-53-man-roster-nfl-draft/
+**Ryan Preece on his intensity, reviving 'Boys, have at it,' and more: 12 Questions**\
+`RFK Racing's Ryan Preece talks about his hard-wired intensity, why NASCAR should stop fining drivers for fights, and more.`\
+https://nytimes.com/athletic/6319324/2025/04/30/ryan-preece-nascar-rfk-racing-fights-12-questions/
 
-**Magic never solved the Jayson Tatum problem in Celtics series loss**\
-`Tatum helped slam the door on the Magic with 35 points, 10 assists and eight rebounds in Game 5.`\
-https://nytimes.com/athletic/6322832/2025/04/30/celtics-magic-jayson-tatum-problem/
+**Johnston: Game 5 is nightmare fuel for Leafs as they continue to fall short when it matters**\
+`The Maple Leafs will have to fight and prove they aren't a team that falters under the highest pressure — again.
+`\
+https://nytimes.com/athletic/6322628/2025/04/30/maple-leafs-game-5-nhl-playoffs-senators/
 
-**How Each of the Last 15 Presidents Managed His First 100 Days**\
-`They signed landmark legislation, created new programs, ordered military action and endured early stumbles.`\
-https://nytimes.com/2025/04/30/us/politics/presidents-100-days-trump.html
+**Ranking the Jets' (expected) UDFA class: Can a former Michigan star crack the roster?**\
+`A look at the reported signees, and who stands the best chance to make the 53-man roster.`\
+https://nytimes.com/athletic/6319087/2025/04/30/new-york-jets-udfa-undrafted-free-agent-class/
 
-**‘Andor’ Season 2, Episodes 4-6 Recap: The Revolution Will Be Televised**\
-`This week’s trio of episodes includes visceral kicks while digging into the meat of the new season’s plot and themes.`\
-https://nytimes.com/2025/04/30/arts/television/andor-season-2-episodes-4-6-recap.html
+**Trump Says He’s ‘Just Gotten Started,’ and Anti-Tourism Tactics in Europe**\
+`Plus, L.A. county’s budget crisis.`\
+https://nytimes.com/2025/04/30/podcasts/the-headlines/trump-anti-tourism-europe.html
 
