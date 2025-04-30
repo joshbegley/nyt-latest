@@ -1,3 +1,11 @@
+**Can You Skip Chores to Post Online?**\
+`What level of artistic creation would warrant leaving a mess behind?`\
+https://nytimes.com/interactive/2025/04/30/magazine/04mag-hodgmanquiz.html
+
+**Connor Zilisch to miss Saturday's Xfinity Series at Texas Motor Speedway**\
+`Zilisch is recovering from lower back injuries suffered in a hard crash during last week's race at Talladega.`\
+https://nytimes.com/athletic/6324939/2025/04/30/connor-zilisch-injured-xfinity-series-texas/
+
 **Bill Gates Navigates the DOGE Era**\
 `Elon Musk is destroying what Gates has spent decades building: the global health apparatus.`\
 https://nytimes.com/2025/04/30/us/politics/bill-gates-elon-musk-doge-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/30/nyregion/syracuse-lacrosse-hazing-charges.html
 **Deadly Storm Tears Through Parts of Pennsylvania**\
 `The storm brought destructive winds to the state on Tuesday, knocking down trees and power lines, and killing at least four people.`\
 https://nytimes.com/video/weather/100000010139912/storm-wind-pennsylvania.html
-
-**Man Accused of Hacking Climate Groups Can Be Sent to U.S., Judge Says**\
-`A London court approved the extradition of Amit Forlit, who ran companies that allegedly stole information on behalf of a lobbying firm hired by Exxon.`\
-https://nytimes.com/2025/04/30/climate/hacking-for-hire-exxon-forlit-extradition.html
-
-**F.B.I. Reassigns Agents Who Knelt During Racial Justice Protests in 2020**\
-`The move has raised concerns that the bureau is taking action against agents and analysts who were involved in situations denounced by allies of President Trump and the right-wing news media.`\
-https://nytimes.com/2025/04/30/us/politics/fbi-agents-2020-protests.html
 
