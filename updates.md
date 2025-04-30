@@ -1,3 +1,5 @@
+
+
 **When will the court issue its decision?**\
 `By Adam Liptak`\
 https://nytimes.com/live/2025/04/30/us/supreme-court-charter-schools/when-will-the-court-issue-its-decision
