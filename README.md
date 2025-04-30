@@ -1,3 +1,11 @@
+**Reds' prospect Chase Petty set to make debut against St. Louis Wednesday**\
+`Petty, 22, is 0-2 with a 3.52 ERA in five starts for Triple-A Louisville Bats this season.`\
+https://nytimes.com/athletic/6322428/2025/04/29/reds-prospect-chase-petty-debut-wednesday-st-louis/
+
+**What we learned from Jim Rutherford after Rick Tocchet's decision to depart Canucks**\
+`Rutherford didn't go into much detail on why Tocchet moved on, but he shared insight on what comes next for the Canucks.`\
+https://nytimes.com/athletic/6322114/2025/04/29/canucks-jim-rutherford-rick-tocchet/
+
 **Mark Prior talks Dodgers pitching injuries: 'It's not a good quality of life'**\
 `Prior said there are ongoing discussions about how the Dodgers integrate their call-ups into the big-league environment.`\
 https://nytimes.com/athletic/6322304/2025/04/29/dodgers-mark-prior-pitching-injuries/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6321917/2025/04/29/canucks-rick-tocchet-jim-rutherf
 **The Bucks are toast, and trading Giannis Antetokounmpo may be the only path forward**\
 `Oddly enough, the Bucks find themselves in a similar position to Portland before it eventually traded Damian Lillard to ... Milwaukee.`\
 https://nytimes.com/athletic/6321037/2025/04/29/giannis-antetokounmpo-trade-rumors-bucks-nba-playoffs/
-
-**NBA playoffs takeaways: Pacers advance as Bucks collapse in OT**\
-`Pacers rally from 20-point deficit to win in OT. Knicks, Celtics can also advance with wins.`\
-https://nytimes.com/athletic/6322220/2025/04/29/nba-playoffs-results-takeaways-scores-tuesday/
-
-**Canada’s Conservative Leader Is Tossed From His Own Seat**\
-`Pierre Poilievre lost the vote for a constituency he has held for 21 years to a Liberal political neophyte. His populist approach may have been to blame.`\
-https://nytimes.com/2025/04/29/world/canada/canada-poilievre-election-conservatives.html
 
