@@ -1,3 +1,7 @@
+**Wildfires Near Jerusalem Prompt Evacuations**\
+`Israeli officials reached out to Britain, France, Greece, Italy and other countries for assistance putting out the wildfires.`\
+https://nytimes.com/video/world/middleeast/100000010139744/israel-wildfires-jerusalem-evacuations.html
+
 **A.I. Can Trick You, Warns Book That Hid A.I.’s Help Writing It**\
 `People were deceived. Accusations of dishonesty and even illegality flew. But the man behind the book defends it, calling it not a prank but a “philosophical experiment.”`\
 https://nytimes.com/2025/04/30/world/europe/hypnocracy-ai-philosopher-book.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6324543/2025/04/30/jordan-travis-retire-injury-flor
 **Lopetegui close to joining Qatar as new head coach**\
 `Lopetegui was sacked as West Ham United head coach in January after just six months in charge.`\
 https://nytimes.com/athletic/6299613/2025/04/30/julen-lopetegui-qatar-head-coach/
-
-**Belichick says CBS interview was 'selectively edited'**\
-`The segment shows Belichick's girlfriend Jordon Hudson interjecting after interviewer Tony Dokoupil asked how the two met.`\
-https://nytimes.com/athletic/6324444/2025/04/30/bill-belichick-north-carolina-cbs-interview-jordon-hudson/
 

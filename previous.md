@@ -1,3 +1,7 @@
+**A.I. Can Trick You, Warns Book That Hid A.I.’s Help Writing It**\
+`People were deceived. Accusations of dishonesty and even illegality flew. But the man behind the book defends it, calling it not a prank but a “philosophical experiment.”`\
+https://nytimes.com/2025/04/30/world/europe/hypnocracy-ai-philosopher-book.html
+
 **Test headline For Client**\
 `This is where the dek would live.`\
 https://nytimes.com/paidpost/ad-solutions-test-epicor/2025-ad-solutions-test/ad_sol_test.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6299613/2025/04/30/julen-lopetegui-qatar-head-coach
 **Belichick says CBS interview was 'selectively edited'**\
 `The segment shows Belichick's girlfriend Jordon Hudson interjecting after interviewer Tony Dokoupil asked how the two met.`\
 https://nytimes.com/athletic/6324444/2025/04/30/bill-belichick-north-carolina-cbs-interview-jordon-hudson/
-
-**The Steelers didn't let QB desperation get the best of them in the draft**\
-`On "The Athletic Football Show," a discussion of the Steelers' approach to the draft and their quarterback situation now.`\
-https://nytimes.com/athletic/6323066/2025/04/30/athletic-football-show-pittsburgh-steelers-quarterback-draft-2025/
 
