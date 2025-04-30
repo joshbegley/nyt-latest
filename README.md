@@ -1,3 +1,7 @@
+**Gianluigi Donnarumma: From a liability to PSG's 'titan in goal' in the Champions League**\
+`The Italian looked shaky and uncertain earlier in the competition. Against Arsenal, he was superb and kept his team in the driving seat `\
+https://nytimes.com/athletic/6322030/2025/04/30/gianluigi-donnarumma-psg-arsenal-champions-league/
+
 **Marc-Andre Fleury's surprise relief appearance for Wild 'would have been perfect with a win'**\
 `Fleury, who is set to retire after this season, came on in relief because of Filip Gustavsson's illness.`\
 https://nytimes.com/athletic/6322814/2025/04/30/fleury-wild-goalie-gustavsson/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6321538/2025/04/30/wild-golden-knights-game-5/
 **The New York Times in Print for Wednesday, April 30, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/04/30/todays-new-york-times
-
-**My Father Founded Singapore. He Wouldn’t Like What It’s Become.**\
-`The nation’s current leaders are not living up to my father’s high standards of governance, and Singapore is suffering as a result.`\
-https://nytimes.com/2025/04/30/opinion/singapore-lee-kuan-yew-election.html
 
