@@ -1,3 +1,11 @@
+**Aided by epic Bucks collapse, Pacers advance with thrilling OT win**\
+`Indiana eliminated Milwaukee from the playoffs on Tuesday night with a memorable comeback.`\
+https://nytimes.com/athletic/6322295/2025/04/29/pacers-win-epic-bucks-collapse/
+
+**Why Rick Tocchet left and what it means for the Canucks' offseason**\
+`While the Canucks will have to find a head coach to replace Tocchet, this remains an all-in summer for Vancouver.`\
+https://nytimes.com/athletic/6321917/2025/04/29/canucks-rick-tocchet-jim-rutherford/
+
 **The Bucks are toast, and trading Giannis Antetokounmpo may be the only path forward**\
 `Oddly enough, the Bucks find themselves in a similar position to Portland before it eventually traded Damian Lillard to ... Milwaukee.`\
 https://nytimes.com/athletic/6321037/2025/04/29/giannis-antetokounmpo-trade-rumors-bucks-nba-playoffs/

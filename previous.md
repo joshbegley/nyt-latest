@@ -1,3 +1,11 @@
+**Aided by epic Bucks collapse, Pacers advance with thrilling OT win**\
+`Indiana eliminated Milwaukee from the playoffs on Tuesday night with a memorable comeback.`\
+https://nytimes.com/athletic/6322295/2025/04/29/pacers-win-epic-bucks-collapse/
+
+**Why Rick Tocchet left and what it means for the Canucks' offseason**\
+`While the Canucks will have to find a head coach to replace Tocchet, this remains an all-in summer for Vancouver.`\
+https://nytimes.com/athletic/6321917/2025/04/29/canucks-rick-tocchet-jim-rutherford/
+
 **The Bucks are toast, and trading Giannis Antetokounmpo may be the only path forward**\
 `Oddly enough, the Bucks find themselves in a similar position to Portland before it eventually traded Damian Lillard to ... Milwaukee.`\
 https://nytimes.com/athletic/6321037/2025/04/29/giannis-antetokounmpo-trade-rumors-bucks-nba-playoffs/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/29/us/politics/trump-farm-workers-california-lawsuit
 **Fact-checking Trump’s rally on his first 100 days.**\
 `At a rally in Michigan, President Trump made false and exaggerated claims about his accomplishments, including on tariffs, immigration and his rollback of Biden administration policies.`\
 https://nytimes.com/live/2025/04/29/us/trump-news/fact-checking-trumps-rally-on-his-first-100-days
-
-**Citing N.I.H. Cuts, a Top Science Journal Stops Accepting Submissions**\
-`With federal support, Environmental Health Perspectives has long published peer-reviewed studies without fees to readers or scientists.`\
-https://nytimes.com/2025/04/29/science/science-journal-environment-trump.html
-
-**U.N. Orders Agencies to Find Budget Cuts, Including via Staff Relocations From N.Y.**\
-`The instructions from the office of Secretary General António Guterres were reviewed by The New York Times and came after President Trump ordered a review of U.S. funding to the agency.`\
-https://nytimes.com/2025/04/29/world/un-budget-cuts-trump.html
 
