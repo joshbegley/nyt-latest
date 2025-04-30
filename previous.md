@@ -1,3 +1,11 @@
+**A key lawmaker proposes funding for aviation safety improvements.**\
+`The proposal would fund upgrades to radar, telecommunications and other critical systems used by the Federal Aviation Administration, while also addressing staffing shortages that have strained control towers across the United States.`\
+https://nytimes.com/live/2025/04/29/us/trump-news/a-key-lawmaker-proposes-funding-for-aviation-safety-improvements
+
+**Mark Carney Swept Canada, but There Will be No Honeymoon**\
+`The Canadian prime minister achieved a stunning political upset, running on an anti-Trump platform and promising to revive the economy. Now, he needs to deliver.`\
+https://nytimes.com/2025/04/29/world/canada/canada-election-carney-trump.html
+
 **Judge Temporarily Blocks Border Patrol’s Stop-and-Arrest Tactics in California**\
 `Border Patrol agents carried out sweeps in California’s Central Valley. Lawyers argued that people were stopped and arrested based on their skin color.`\
 https://nytimes.com/2025/04/29/us/politics/trump-farm-workers-california-lawsuit.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/29/world/americas/mexico-extermination-camp.html
 **Starbucks Profit Drops, but Leaders Say Turnaround Is Working**\
 `Profit fell 50 percent in the quarter, and the company said one reason was its hiring of additional workers to help its turnaround strategy.`\
 https://nytimes.com/2025/04/29/business/starbucks-earnings.html
-
-**Yankees achieve historic feat with back-to-back-to-back homer barrage**\
-`New York also hit back-to-back-to-back home runs on March 29 against Milwaukee Brewers starter Nestor Cortes Jr. `\
-https://nytimes.com/athletic/6322112/2025/04/29/new-york-yankees-mlb-home-run-history/
-
-**Floridians Are Getting Glimpses of What Aggressive Immigration Enforcement Looks Like**\
-`Two new laws that were demanded by Gov. Ron DeSantis have entangled every level of government, unnerving residents who had long considered the state an immigrant haven.`\
-https://nytimes.com/2025/04/29/us/trump-desantis-florida-immigration-arrests.html
 

@@ -1,3 +1,7 @@
+**Commanders' new stadium plans include opportunities for women's soccer**\
+`The Washington Spirit share an investor, Magic Johnson, with the Commanders `\
+https://nytimes.com/athletic/6322212/2025/04/29/commanders-rfk-stadium-washington-spirit-soccer/
+
 **A key lawmaker proposes funding for aviation safety improvements.**\
 `The proposal would fund upgrades to radar, telecommunications and other critical systems used by the Federal Aviation Administration, while also addressing staffing shortages that have strained control towers across the United States.`\
 https://nytimes.com/live/2025/04/29/us/trump-news/a-key-lawmaker-proposes-funding-for-aviation-safety-improvements
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/29/us/politics/trump-chicago-schools-black-students.
 **No Evidence of Cremations at Mexican Ranch, Attorney General Says**\
 `Mexico’s top prosecutor said the ranch, which some groups searching for missing relatives had called an “extermination camp,” had been used by a cartel for training and recruiting.`\
 https://nytimes.com/2025/04/29/world/americas/mexico-extermination-camp.html
-
-**Starbucks Profit Drops, but Leaders Say Turnaround Is Working**\
-`Profit fell 50 percent in the quarter, and the company said one reason was its hiring of additional workers to help its turnaround strategy.`\
-https://nytimes.com/2025/04/29/business/starbucks-earnings.html
 
