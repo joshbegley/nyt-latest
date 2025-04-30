@@ -1,3 +1,11 @@
+**What happens if there is a tie vote?**\
+`By Adam Liptak`\
+https://nytimes.com/live/2025/04/30/us/supreme-court-charter-schools/what-happens-if-there-is-a-tie-vote
+
+**Tiny Love Stories: ‘Give Her the Flower, Man!’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/04/30/style/tiny-modern-love-stories-give-her-the-flower-man.html
+
 **Review: The Met Opera’s New ‘Salome’ Fractures Its Princess**\
 `In his company debut, the director Claus Guth takes a psychological approach, surrounding the title character with six versions of her younger self.`\
 https://nytimes.com/2025/04/30/arts/music/met-opera-salome-review.html

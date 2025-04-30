@@ -1,3 +1,7 @@
+**Buddy Guy on ‘Sinners’: ‘This May Help the Blues Stay Alive’**\
+`The guitarist and singer, who turns 89 in July, discusses his role in Ryan Coogler’s musical horror drama and his promise to Muddy Waters and B.B. King.`\
+https://nytimes.com/2025/04/30/arts/music/buddy-guy-sinners-blues.html
+
 **What happens if there is a tie vote?**\
 `By Adam Liptak`\
 https://nytimes.com/live/2025/04/30/us/supreme-court-charter-schools/what-happens-if-there-is-a-tie-vote
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/30/technology/google-ceo-antitrust-trial.html
 **Can I Use A.I. to Look Better Online?**\
 `The magazine’s Ethicist columnist on posting artificially generated photos of oneself on social media.`\
 https://nytimes.com/2025/04/30/magazine/artificial-intelligence-photo-ethics.html
-
-**Mexican top-flight player given six-year ban for alleged match-fixing**\
-`Mexico's football federation said the alleged match-fixing took place in the Clausera - which took place between January and April.`\
-https://nytimes.com/athletic/6323644/2025/04/30/mexico-footballer-ban-match-fixing/
 
