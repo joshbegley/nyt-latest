@@ -1,3 +1,11 @@
+**Word of the Day: unabashed**\
+`This word has appeared in 102 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/04/30/learning/word-of-the-day-unabashed.html
+
+**Chinese Factories Slow in Early Sign of Trade War’s Toll**\
+`A slowdown in commerce between the United States and China caused by escalating tariffs was evident in a report Wednesday on manufacturing activity in April.`\
+https://nytimes.com/2025/04/30/business/china-pmi-factory-manufacturing.html
+
 **Arsenal suffered against Paris Saint-Germain - but this is a tie that is still alive**\
 `Mikel Arteta's side are capable of overcoming a one goal deficit in Paris - but it will require their best performance of the season`\
 https://nytimes.com/athletic/6322335/2025/04/30/arsenal-psg-champions-league-chances/
