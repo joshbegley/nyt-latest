@@ -1,3 +1,11 @@
+**Maresca admits 'concern' over Conference League semi-final artificial pitch**\
+`Chelsea play Djurgardena at the 3Arena in Stockholm on Thursday.`\
+https://nytimes.com/athletic/6324312/2025/04/30/chelsea-djurgarden-conference-league-pitch/
+
+**As Strike Looms, N.J. Transit Riders Are Warned to Prepare for ‘Chaos’**\
+`Tens of thousands of New Jersey commuters are being told that they may need to work from home if train engineers go on strike.`\
+https://nytimes.com/2025/04/30/nyregion/nj-transit-strike-talks.html
+
 **Man City set to join inaugural women's seven-a-side tournament**\
 `City are set to join Manchester United, Bayern Munich, Ajax and Benfica at the World Sevens Football (W7F) tournament in May.`\
 https://nytimes.com/athletic/6323943/2025/04/30/manchester-city-women-world-sevens/
