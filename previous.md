@@ -1,3 +1,15 @@
+**Ukraine and U.S. Sign Economic and Reconstruction Deal**\
+`The deal is intended to give the U.S. access to proceeds from Ukraine’s reserves of rare earth minerals.`\
+https://nytimes.com/2025/04/30/world/europe/ukraine-minerals-deal-trump.html
+
+**House Votes to Repeal California’s Clean Truck Policies**\
+`Lawmakers voted to stop the state from requiring that an increasing share of new trucks sold there have zero emissions.`\
+https://nytimes.com/2025/04/30/climate/house-votes-to-repeal-californias-clean-truck-policies.html
+
+**You Sent Us Your Travel Quandaries. Here Are Our Suggestions.**\
+`We asked readers stumped about where to go on vacation this summer to tell us their ideal kind of trip (and budget). Here, T’s travel expert responds with her recommendations.`\
+https://nytimes.com/2025/04/30/t-magazine/summer-travel-getaway-guide.html
+
 **Can You Skip Chores to Post Online?**\
 `What level of artistic creation would warrant leaving a mess behind?`\
 https://nytimes.com/interactive/2025/04/30/magazine/04mag-hodgmanquiz.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/30/us/politics/trump-tariffs-dolls-comment.html
 **Alijah Arenas out of hospital less than 1 week after car crash, family says**\
 `Arenas' family said the five-star basketball recruit and University of Southern California commit will remain under close watch.`\
 https://nytimes.com/athletic/6324932/2025/04/30/alijah-arenas-leaves-hospital/
-
-**Kentucky Derby updated odds: Journalism the favorite, Baffert returns**\
-`The Kentucky Derby kicks off Saturday at 6:57 p.m. ET., with Journalism as the race favorite at 3-1 odds.`\
-https://nytimes.com/athletic/6323852/2025/04/30/kentucky-derby-2025-favorites-odds-horses/
-
-**11 High School Lacrosse Players Face Charges in Hazing of Teammates**\
-`The teenagers in Syracuse, N.Y., turned themselves in after the district attorney gave them 48 hours to surrender. He called the episode “hazing on steroids.”`\
-https://nytimes.com/2025/04/30/nyregion/syracuse-lacrosse-hazing-charges.html
-
-**Deadly Storm Tears Through Parts of Pennsylvania**\
-`The storm brought destructive winds to the state on Tuesday, knocking down trees and power lines, and killing at least four people.`\
-https://nytimes.com/video/weather/100000010139912/storm-wind-pennsylvania.html
 

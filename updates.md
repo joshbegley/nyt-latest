@@ -1,3 +1,15 @@
+**Ukraine and U.S. Sign Economic and Reconstruction Deal**\
+`The deal is intended to give the U.S. access to proceeds from Ukraine’s reserves of rare earth minerals.`\
+https://nytimes.com/2025/04/30/world/europe/ukraine-minerals-deal-trump.html
+
+**House Votes to Repeal California’s Clean Truck Policies**\
+`Lawmakers voted to stop the state from requiring that an increasing share of new trucks sold there have zero emissions.`\
+https://nytimes.com/2025/04/30/climate/house-votes-to-repeal-californias-clean-truck-policies.html
+
+**You Sent Us Your Travel Quandaries. Here Are Our Suggestions.**\
+`We asked readers stumped about where to go on vacation this summer to tell us their ideal kind of trip (and budget). Here, T’s travel expert responds with her recommendations.`\
+https://nytimes.com/2025/04/30/t-magazine/summer-travel-getaway-guide.html
+
 **Can You Skip Chores to Post Online?**\
 `What level of artistic creation would warrant leaving a mess behind?`\
 https://nytimes.com/interactive/2025/04/30/magazine/04mag-hodgmanquiz.html
