@@ -1,3 +1,7 @@
+**Mark Prior talks Dodgers pitching injuries: 'It's not a good quality of life'**\
+`Prior said there are ongoing discussions about how the Dodgers integrate their call-ups into the big-league environment.`\
+https://nytimes.com/athletic/6322304/2025/04/29/dodgers-mark-prior-pitching-injuries/
+
 **The Poetry Challenge Day 3: This is a New York poem. Once you learn it, you can take it anywhere.**\
 `You can take a poem with you anywhere, but knowing its origins can help make it yours. Practice by playing our poetry emoji game.`\
 https://nytimes.com/interactive/2025/books/edna-st-vincent-millay-nyc.html
