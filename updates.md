@@ -1,3 +1,7 @@
+**Arsenal suffered against Paris Saint-Germain - but this tie is still alive**\
+`Mikel Arteta's side are capable of overcoming a one goal deficit in Paris - but it might require their best performance of the season`\
+https://nytimes.com/athletic/6322335/2025/04/30/arsenal-psg-champions-league-chances/
+
 **Late Night Grades Trump’s First 100 Days in Office**\
 `“It’s been an historic 100 days — some would say prehistoric,” said Jimmy Kimmel.`\
 https://nytimes.com/2025/04/30/arts/television/late-night-trump-100-days.html
