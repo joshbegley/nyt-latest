@@ -1,3 +1,8 @@
+**The Leafs decided to play coin-flip games this season. It’s backfiring at the worst time**\
+`Playing coin-flip games is how Toronto thought it would win in the playoffs. Now the coin is flipping the other way.
+`\
+https://nytimes.com/athletic/6322444/2025/04/29/maple-leafs-nhl-playoffs-game-5/
+
 **Yankees achieve historic feat with back-to-back-to-back homer barrage**\
 `New York also hit back-to-back-to-back home runs on March 29 against Milwaukee Brewers starter Nestor Cortes Jr. `\
 https://nytimes.com/athletic/6322112/2025/04/29/new-york-yankees-mlb-home-run-history/
@@ -33,8 +38,4 @@ https://nytimes.com/athletic/6322304/2025/04/29/dodgers-mark-prior-pitching-inju
 **The Poetry Challenge Day 3: This is a New York poem. Once you learn it, you can take it anywhere.**\
 `You can take a poem with you anywhere, but knowing its origins can help make it yours. Practice by playing our poetry emoji game.`\
 https://nytimes.com/interactive/2025/books/edna-st-vincent-millay-nyc.html
-
-**Heart Test, for Short**\
-`Don’t let Adam Vincent’s challenging crossword tick you off.`\
-https://nytimes.com/2025/04/29/crosswords/daily-puzzle-2025-04-30.html
 
