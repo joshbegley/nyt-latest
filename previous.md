@@ -1,3 +1,7 @@
+**The Pulse: The next NBA superstar trade?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6321183/2025/04/30/giannis-antetokounmpo-trade-bucks-the-pulse/
+
 **Spurs vs Bodø/Glimt semi-final markets: Goals, home advantage and away cards**\
 `Sam Tighe outlines the best bets around Tottenham Hotspur’s Europa League semi-final first-leg clash with Bodø/Glimt. 
 `\
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6319324/2025/04/30/ryan-preece-nascar-rfk-racing-fi
 `The Maple Leafs will have to fight and prove they aren't a team that falters under the highest pressure — again.
 `\
 https://nytimes.com/athletic/6322628/2025/04/30/maple-leafs-game-5-nhl-playoffs-senators/
-
-**Ranking the Jets' (expected) UDFA class: Can a former Michigan star crack the roster?**\
-`A look at the reported signees, and who stands the best chance to make the 53-man roster.`\
-https://nytimes.com/athletic/6319087/2025/04/30/new-york-jets-udfa-undrafted-free-agent-class/
 
