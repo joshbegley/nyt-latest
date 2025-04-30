@@ -1,3 +1,7 @@
+**Alt files lawsuit against sports card marketplace PWCC alleging fraud**\
+`Alt alleges shill bidding and other practices were employed on high-value card auctions between 2021-2023`\
+https://nytimes.com/athletic/6323468/2025/04/30/alt-pwcc-lawsuit-sports-cards/
+
 **Amorim says Europa League success will not solve Man Utd's 'problems'**\
 `Winning the Europa League would offer United a back-door route into next season's Champions League.`\
 https://nytimes.com/athletic/6324255/2025/04/30/ruben-amorim-manchester-united-europa-league/
