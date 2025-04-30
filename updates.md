@@ -1,3 +1,11 @@
+**Ted Kotcheff, Director Who Brought Rambo to the Screen, Dies at 94**\
+`His films, including “First Blood” and “Weekend at Bernie’s,” covered a range of genres. He was later an executive producer of “Law & Order: Special Victims Unit.”`\
+https://nytimes.com/2025/04/30/movies/ted-kotcheff-dead.html
+
+**Wegovy Can Treat a Dangerous Liver Disease, Study Finds**\
+`A large trial showed that the weight-loss drug could reduce liver inflammation and scarring caused by the common condition.`\
+https://nytimes.com/2025/04/30/well/wegovy-liver-disease-mash.html
+
 **FA Cup final ticket prices to increase by up to 20 per cent**\
 `Ticket prices for the 2025 FA Cup final between Crystal Palace and Manchester City are set to cost between £50 and £285.`\
 https://nytimes.com/athletic/6324588/2025/04/30/fa-cup-final-ticket-prices/
