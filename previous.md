@@ -1,3 +1,7 @@
+**Justice Amy Coney Barrett Recuses Herself in a Charter School Case**\
+`The justice will not participate in oral argument, deliberations or vote. She gave no explanation.`\
+https://nytimes.com/2025/04/30/us/politics/amy-coney-barrett-recuse.html
+
 **St. Isidore, an Online Catholic Charter School, Would Be the First of Its Kind**\
 `The virtual school, named for the patron saint of the internet, would be funded by Oklahoma taxpayers and incorporate Catholic teachings into its curriculum.`\
 https://nytimes.com/2025/04/30/us/politics/st-isidore-religious-charter-school.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/30/style/relationships-family-introductions.html
 **'This thing is far from over': Wild vow to recover from crushing loss**\
 `The Wild were inches away from a Game 5 win, but instead find themselves down 3-2 in the series.`\
 https://nytimes.com/athletic/6322944/2025/04/30/wild-golden-knights-game-5-nhl-playoffs/
-
-**Don't blame Tom Thibodeau's timeout usage for the Knicks' shoddy Game 5 performance**\
-`Jalen Brunson and Josh Hart waited on the sidelines as New York wilted. But the Pistons won the game because of other mistakes.`\
-https://nytimes.com/athletic/6322798/2025/04/30/knicks-tom-thibodeau-timeouts-game-5-playoffs-pistons/
 

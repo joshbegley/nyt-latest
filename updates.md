@@ -1,3 +1,7 @@
+**Justice Amy Coney Barrett Recuses Herself in a Charter School Case**\
+`The justice will not participate in oral argument, deliberations or vote. She gave no explanation.`\
+https://nytimes.com/2025/04/30/us/politics/amy-coney-barrett-recuse.html
+
 **St. Isidore, an Online Catholic Charter School, Would Be the First of Its Kind**\
 `The virtual school, named for the patron saint of the internet, would be funded by Oklahoma taxpayers and incorporate Catholic teachings into its curriculum.`\
 https://nytimes.com/2025/04/30/us/politics/st-isidore-religious-charter-school.html
