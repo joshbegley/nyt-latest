@@ -1,3 +1,15 @@
+**Evanilson's three-match ban removed following successful Bournemouth appeal**\
+`The 25-year-old will now be available for Bournemouth’s trip to the Emirates to face Arsenal on Saturday. `\
+https://nytimes.com/athletic/6322998/2025/04/30/evanilson-red-card-appeal-bournemouth-man-united/
+
+**Bengals 53-man roster outlook: 2 major position battles on deck after NFL Draft**\
+`Linebacker Demetrius Knight and guard Dylan Fairchild look like the rookies most likely to have starting spots.`\
+https://nytimes.com/athletic/6321187/2025/04/30/bengals-53-man-roster-nfl-draft/
+
+**Magic never solved the Jayson Tatum problem in Celtics series loss**\
+`Tatum helped slam the door on the Magic with 35 points, 10 assists and eight rebounds in Game 5.`\
+https://nytimes.com/athletic/6322832/2025/04/30/celtics-magic-jayson-tatum-problem/
+
 **How Each of the Last 15 Presidents Managed His First 100 Days**\
 `They signed landmark legislation, created new programs, ordered military action and endured early stumbles.`\
 https://nytimes.com/2025/04/30/us/politics/presidents-100-days-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/04/30/us/politics/supreme-court-charter-school.html
 **Cowboys post-draft depth chart reset: Only 1 position remains as glaring need**\
 `The Cowboys did not draft a receiver and could still be looking for their No. 2 at the position opposite CeeDee Lamb.`\
 https://nytimes.com/athletic/6320977/2025/04/30/cowboys-depth-chart-post-draft-wide-receiver/
-
-**Swiss Design, by Way of Japanese Aesthetics**\
-`An interior designer, diploma in hand, opened a practice in the Alps, vowing to leave ski chalets in the dust.`\
-https://nytimes.com/2025/04/30/realestate/swiss-design-japanese-aesthetic.html
-
-**$625,000 Homes in New York, Massachusetts and Oregon**\
-`An American Foursquare in Newburgh, a Saltbox in Sandwich,  and a Craftsman in Portland.`\
-https://nytimes.com/2025/04/30/realestate/625000-homes-new-york-massachusetts-and-oregon.html
-
-**A Global Flourishing Study Finds That Young Adults, Well, Aren’t**\
-`New data collected from more than 200,000 people across the world shows that young people aren’t as happy as they used to be.`\
-https://nytimes.com/2025/04/30/well/mind/happiness-flourishing-young-adult-study.html
 
