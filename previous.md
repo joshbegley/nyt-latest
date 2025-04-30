@@ -1,3 +1,23 @@
+**Review: The Met Opera’s New ‘Salome’ Fractures Its Princess**\
+`In his company debut, the director Claus Guth takes a psychological approach, surrounding the title character with six versions of her younger self.`\
+https://nytimes.com/2025/04/30/arts/music/met-opera-salome-review.html
+
+**European Automakers Scrap Forecasts Amid Tariff Uncertainty**\
+`Faced with tariffs introduced by President Trump on cars, steel and aluminum, Europe’s carmakers are pessimistic about the future.`\
+https://nytimes.com/2025/04/30/business/european-automakers-tariff-uncertainty.html
+
+**Stream These 13 Movies and TV Shows Before They Leave in May**\
+`A ton of great titles are leaving fast. Catch them while you can.`\
+https://nytimes.com/2025/04/30/arts/television/netflix-expiring-may.html
+
+**How Has Marriage Equality Changed Your Life?**\
+`As we near the 10-year anniversary of Obergefell v. Hodges, the Supreme Court case that legalized same-sex marriage nationwide, we’d like to hear how this decision affected you or those you love.`\
+https://nytimes.com/2025/04/30/style/how-has-marriage-equality-changed-your-life.html
+
+**The Business of Football: Could London's NBA Europe franchise head to the Orient?**\
+`What Matt Slater is hearing about the business side of the beautiful game from the Premier League, EFL and beyond`\
+https://nytimes.com/athletic/6319968/2025/04/30/orient-nba-premier-league-regulator/
+
 **Google’s Chief Says Breakup Proposal Would Hobble Business**\
 `Sundar Pichai told a federal judge that the government’s solution to fix its monopoly in search would harm innovation.`\
 https://nytimes.com/2025/04/30/technology/google-ceo-antitrust-trial.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/04/30/us/kangaroo-alabama.html
 **NFL fines Falcons, DC Ulbrich for leaking Sanders' draft phone number**\
 `The NFL has fined the Falcons $250,000 and DC Jeff Ulbrich $100,000 over the leak of Sanders' phone number before the 2025 NFL Draft.`\
 https://nytimes.com/athletic/6323798/2025/04/30/nfl-fines-falcons-jeff-ulbrich-shedeur-sanders/
-
-**El Salvador Is Said to Have Spurned U.S. Request for Return of Deported Migrant**\
-`It remained unclear whether the diplomatic effort was a genuine bid by the White House to address the plight of the immigrant, Kilmar Armando Abrego Garcia.`\
-https://nytimes.com/2025/04/30/us/politics/trump-abrego-garcia-bukele-el-salvador.html
-
-**How to watch Inter Miami vs. Vancouver: Messi's side facing Champions Cup elimination**\
-`Suddenly, the group of Messi, Luis Suárez, Jordi Alba and Sergio Busquets faces elimination, down two goals as they host the Whitecaps.`\
-https://nytimes.com/athletic/6319712/2025/04/30/inter-miami-messi-concacaf-vancouver-how-to-watch/
-
-**Trump Family Agrees to Projects in Qatar and Dubai Ahead of President’s Middle East Visit**\
-`President Trump’s son is in the region this week promoting the Trump Organization’s business interests ahead of his father’s trip later this month.`\
-https://nytimes.com/2025/04/30/world/middleeast/trump-family-qatar-dubai.html
-
-**Columbia Student Who Was Arrested at Citizenship Interview Is Freed**\
-`Mohsen Mahdawi had been an organizer of pro-Palestinian protests at the university. The Trump administration had tried and failed to deport him for it.`\
-https://nytimes.com/2025/04/30/nyregion/columbia-student-mohsen-mahdawi-freed.html
-
-**A Diver Visited a Fallen Whale. When He Returned, It Had Vanished.**\
-`A sunken calf’s disappearance created a mystery in murky waters near San Diego.`\
-https://nytimes.com/2025/04/30/science/whale-carcass-san-diego.html
 
