@@ -1,3 +1,7 @@
+**Kyle Manzardo hits walk-off homer to lift Guardians over Twins after long rain delay**\
+`Tanner Bibee and two high-leverage relievers shut down a hot Twins offense and snapped Minnesota's four-game winning streak.`\
+https://nytimes.com/athletic/6322705/2025/04/30/twins-lose-to-guardians-kyle-manzardo/
+
 **Oilers win third straight, push Kings to brink of elimination**\
 `On Tuesday night, it was the Oilers who proved dominant while continuing to come through in the clutch.`\
 https://nytimes.com/athletic/6317061/2025/04/30/oilers-kings-nhl-playoffs-2025-game-5-takeaways/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6317719/2025/04/30/emiliano-martinez-argentina-asto
 **Crystal Palace reap the rewards as Oliver Glasner's patience starts to pay off**\
 `Daichi Kamada, Eddie Nketiah and even Ismaila Sarr endured slow starts to their Palace careers, but indications are they are coming good`\
 https://nytimes.com/athletic/6313752/2025/04/30/palace-kamada-nketiah-sarr-glasner-murray/
-
-**When Amad returns, should Manchester United play him as a No 10 or at right wing-back?**\
-`The Ivory Coast international is close to a return after injury, but discerning which role is best suited to his talents is complicated`\
-https://nytimes.com/athletic/6321047/2025/04/30/amad-manchester-united-wing-back-10/
 

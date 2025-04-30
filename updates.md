@@ -1,3 +1,7 @@
+**Kyle Manzardo hits walk-off homer to lift Guardians over Twins after long rain delay**\
+`Tanner Bibee and two high-leverage relievers shut down a hot Twins offense and snapped Minnesota's four-game winning streak.`\
+https://nytimes.com/athletic/6322705/2025/04/30/twins-lose-to-guardians-kyle-manzardo/
+
 **Oilers win third straight, push Kings to brink of elimination**\
 `On Tuesday night, it was the Oilers who proved dominant while continuing to come through in the clutch.`\
 https://nytimes.com/athletic/6317061/2025/04/30/oilers-kings-nhl-playoffs-2025-game-5-takeaways/
