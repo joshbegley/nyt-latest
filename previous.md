@@ -1,3 +1,7 @@
+**South Korea to Use Drones to Deter Birds After Deadly Air Crash**\
+`The government announced a raft of aviation safety measures after a Jeju Air crash late last year that killed 179 people, including upgrading airport infrastructure.`\
+https://nytimes.com/2025/04/30/world/asia/south-korea-jeju-air-birds.html
+
 **A look at the Lions' undrafted free agents and which of them could stick with the team**\
 `The Lions have a long streak of keeping at least one undrafted free agent on the 53-man roster.`\
 https://nytimes.com/athletic/6321834/2025/04/30/lions-undrafted-free-agents-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/30/us/politics/presidents-100-days-trump.html
 **‘Andor’ Season 2, Episodes 4-6 Recap: The Revolution Will Be Televised**\
 `This week’s trio of episodes includes visceral kicks while digging into the meat of the new season’s plot and themes.`\
 https://nytimes.com/2025/04/30/arts/television/andor-season-2-episodes-4-6-recap.html
-
-**After Nudge From Trump, Senate Sets Fast Pace in Confirming His Ambassadors**\
-`Republicans have raced to approve the president’s picks to serve as top diplomats around the globe, in some cases with solid backing from Democrats.`\
-https://nytimes.com/2025/04/30/us/politics/trump-senate-ambassadors.html
 

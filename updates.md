@@ -1,3 +1,7 @@
+**South Korea to Use Drones to Deter Birds After Deadly Air Crash**\
+`The government announced a raft of aviation safety measures after a Jeju Air crash late last year that killed 179 people, including upgrading airport infrastructure.`\
+https://nytimes.com/2025/04/30/world/asia/south-korea-jeju-air-birds.html
+
 **A look at the Lions' undrafted free agents and which of them could stick with the team**\
 `The Lions have a long streak of keeping at least one undrafted free agent on the 53-man roster.`\
 https://nytimes.com/athletic/6321834/2025/04/30/lions-undrafted-free-agents-2025/
