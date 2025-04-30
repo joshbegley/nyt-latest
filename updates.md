@@ -1,3 +1,5 @@
+
+
 **A.I. Can Trick You, Warns Book That Hid A.I.’s Help Writing It**\
 `People were deceived. Accusations of dishonesty and even illegality flew. But the man behind the book defends it, calling it not a prank but a “philosophical experiment.”`\
 https://nytimes.com/2025/04/30/world/europe/hypnocracy-ai-philosopher-book.html
