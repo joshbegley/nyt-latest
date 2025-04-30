@@ -1,3 +1,11 @@
+**Freed Columbia Student to Trump: ‘I am Not Afraid of You’**\
+`Mohsen Mahdawi, an organizer of the pro-Palestinian movement at Columbia University, was freed from federal custody on Wednesday as immigration officials seek to rescind his green card.`\
+https://nytimes.com/video/us/politics/100000010139140/columbia-mohsen-mahdawi-release.html
+
+**Scoop City: Biggest top-50 steals of the 2025 draft**\
+`The biggest values of this draft, plus Bruce Arians' thoughts on QB success and Mel Kiper Jr.'s Shedeur Sanders take.`\
+https://nytimes.com/athletic/6324184/2025/04/30/nfl-draft-sheduer-sanders-mel-kiper-steals-fallers-2025-scoop-city/
+
 **Are Trump’s Actions Truly Unprecedented? We Asked 35 Historians.**\
 `We categorized 22 of Mr. Trump’s actions, ranging from those that have no comparable historical example to those that do.`\
 https://nytimes.com/interactive/2025/04/30/upshot/2025-03-28-presidential-history-survey-index.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/100000010139054/migrant-tree-ice-agents.html
 **West Ham's Summerville undergoes hamstring surgery**\
 `Summerville has been out since January, when he was substituted during West Ham's defeat to Aston Villa in the FA Cup third round.`\
 https://nytimes.com/athletic/6324027/2025/04/30/crysencio-summerville-west-ham-surgery/
-
-**Discussing the atmosphere at the Emirates for Arsenal vs PSG**\
-`Arsenal lost 1-0 against Paris Saint-Germain in the first leg of their Champions League semi-final`\
-https://nytimes.com/athletic/6323847/2025/04/30/arsenal-psg-atmosphere-discussion/
-
-**Mexico City GP extends F1 contract until 2028**\
-`The Mexico City Grand Prix has secured a new contract to host a Formula One race at the Autodromo Hermanos Rodriguez track in the Mexican capital until 2028.`\
-https://nytimes.com/athletic/6318162/2025/04/30/mexico-grand-prix-f1-2028/
 

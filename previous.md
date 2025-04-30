@@ -1,3 +1,11 @@
+**Are Trump’s Actions Truly Unprecedented? We Asked 35 Historians.**\
+`We categorized 22 of Mr. Trump’s actions, ranging from those that have no comparable historical example to those that do.`\
+https://nytimes.com/interactive/2025/04/30/upshot/2025-03-28-presidential-history-survey-index.html
+
+**What’s in Our Queue? ‘The Studio’ and More **\
+`Text by Christina Morales`\
+https://nytimes.com/card/2025/04/30/arts/editors-recommendations-studio
+
 **Dynasty league SuperFlex rookie mock draft, starting with the 'Magnificent Seven'**\
 `Jeff Haverlack puts together a consensus rookie mock draft based on what he's seeing on social platforms and in early dynasty league drafts.`\
 https://nytimes.com/athletic/6323697/2025/04/30/dynasty-fantasy-football-mock-draft-superflex-rookie-jeanty/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6323847/2025/04/30/arsenal-psg-atmosphere-discussio
 **Mexico City GP extends F1 contract until 2028**\
 `The Mexico City Grand Prix has secured a new contract to host a Formula One race at the Autodromo Hermanos Rodriguez track in the Mexican capital until 2028.`\
 https://nytimes.com/athletic/6318162/2025/04/30/mexico-grand-prix-f1-2028/
-
-**Harvey Weinstein Pushed, Grabbed and Then Attacked, Witness Testifies**\
-`Miriam Haley is the first to testify of the three women whose accusations are at the center of the disgraced producer’s retrial on sex abuse charges.`\
-https://nytimes.com/2025/04/30/nyregion/harvey-weinstein-nyc-sex-abuse-trial-witness-testimony.html
-
-**When will the court issue its decision?**\
-`By Adam Liptak`\
-https://nytimes.com/live/2025/04/30/us/supreme-court-charter-schools/when-will-the-court-issue-its-decision
 
