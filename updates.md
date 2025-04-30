@@ -1,3 +1,7 @@
+**Commanders' new stadium plans include opportunities for women's soccer**\
+`The Washington Spirit share an investor, Magic Johnson, with the Commanders `\
+https://nytimes.com/athletic/6322212/2025/04/29/commanders-rfk-stadium-washington-spirit-soccer/
+
 **A key lawmaker proposes funding for aviation safety improvements.**\
 `The proposal would fund upgrades to radar, telecommunications and other critical systems used by the Federal Aviation Administration, while also addressing staffing shortages that have strained control towers across the United States.`\
 https://nytimes.com/live/2025/04/29/us/trump-news/a-key-lawmaker-proposes-funding-for-aviation-safety-improvements
