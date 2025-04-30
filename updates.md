@@ -1,3 +1,20 @@
+**Oilers win third straight, push Kings to brink of elimination**\
+`On Tuesday night, it was the Oilers who proved dominant while continuing to come through in the clutch.`\
+https://nytimes.com/athletic/6317061/2025/04/30/oilers-kings-nhl-playoffs-2025-game-5-takeaways/
+
+**Golden Knights win Game 5 in overtime after Fleury enters for Wild: Takeaways**\
+`By Michael Russo, Jesse Granger and Joe Smith
+LAS VEGAS – Brett Howden’s career season just keeps getting better.`\
+https://nytimes.com/athletic/6321538/2025/04/30/wild-golden-knights-game-5/
+
+**The New York Times in Print for Wednesday, April 30, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/04/30/todays-new-york-times
+
+**My Father Founded Singapore. He Wouldn’t Like What It’s Become.**\
+`The nation’s current leaders are not living up to my father’s high standards of governance, and Singapore is suffering as a result.`\
+https://nytimes.com/2025/04/30/opinion/singapore-lee-kuan-yew-election.html
+
 **Wednesday Briefing**\
 `Trump’s first 100 days in office.`\
 https://nytimes.com/2025/04/30/briefing/trump-russia-vietnam.html
