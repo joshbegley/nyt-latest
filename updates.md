@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6323347/2025/04/30/europa-league-semi-final-manchester-united-athletic-club-betting-predictions/
 
+**Athletic vs Utd odds: Forecast for a low-scoring affair at the San Mamés**\
+`Brett Koremenos outlines the best bets around Manchester United’s Europa League semi-final first-leg clash with Athletic Club. 
+`\
+https://nytimes.com/athletic/6323347/2025/04/30/europa-league-semi-final-manchester-united-athletic-club-betting-predictions/
+
 **How Paris Saint-Germain’s structural brilliance neutralised Arsenal's press**\
 `PSG struggled to cope with Arsenal's intensity during their match in October - six months later they were almost perfect`\
 https://nytimes.com/athletic/6323159/2025/04/30/psg-structure-arsena-press-champions-league/
