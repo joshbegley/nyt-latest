@@ -1,3 +1,15 @@
+**Spurs have 'unbelieve opportunity' with UEL despite critics - Postecoglou**\
+`Spurs are aiming for the sixth European final in the club's history and a them the chance to win their first major trophy since 2008.`\
+https://nytimes.com/athletic/6323614/2025/04/30/tottenham-europa-league-ange-postecoglou/
+
+**Taiwan Condemns Somalia for Barring Its Passport Holders From Entering**\
+`The decision comes as Taipei has been building ties with Somaliland, a breakaway territory that has resisted Chinese efforts to expand its influence in Africa.`\
+https://nytimes.com/2025/04/30/world/africa/taiwan-somalia-passport-ban-china.html
+
+**The Kings needed to make a statement in Game 5 against the Oilers. Instead, they fell flat**\
+`The Oilers didn’t even need Leon Draisaitl or Connor McDavid to go nuclear in Game 5. That’s how bad the Kings were.`\
+https://nytimes.com/athletic/6322969/2025/04/30/kings-oilers-game-5-nhl-playoffs/
+
 **What Comes After Trauma and a TikTok Hit? Gigi Perez Is Finding Out.**\
 `The artist, 25, struck platinum with “Sailor Song.” Her debut album is a tribute to her lost sister, and an attempt to make sense of a few rudderless years.`\
 https://nytimes.com/2025/04/30/arts/music/gigi-perez-at-the-beach-in-every-life-sailor-song.html
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2025/04/30/us/politics/trump-venezuela-deportati
 **A Key Question Before the Court: Are Charter Schools Public or Private?**\
 `The Supreme Court’s answer will determine whether a Catholic school in Oklahoma can become the nation’s first religious charter school.`\
 https://nytimes.com/2025/04/30/us/politics/charter-schools-public-private-supreme-court.html
-
-**Brain Rot Comes for Italy**\
-`Meet Ballerina Cappuccina and the Italian brain rot crew, an absurd group of A.I.-generated characters that are flooding TikTok.`\
-https://nytimes.com/2025/04/30/style/italian-brain-rot-ballerina-cappuccina.html
-
-**Iga Swiatek recovers from first-set bagel to beat Australian Open champion Madison Keys**\
-`Świątek had not lost a set 6-0 for almost four years, but came back to seal a place in the Madrid Open semifinals.`\
-https://nytimes.com/athletic/6323475/2025/04/30/iga-swiatek-bagel-madrid-keys-analysis/
-
-**Justice Amy Coney Barrett Recuses Herself in a Charter School Case**\
-`The justice will not participate in oral argument, deliberations or vote. She gave no explanation.`\
-https://nytimes.com/2025/04/30/us/politics/amy-coney-barrett-recuse.html
 
