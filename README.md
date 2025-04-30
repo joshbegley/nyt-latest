@@ -1,3 +1,11 @@
+**Atlanta's Dyson Daniels wins NBA's Most Improved Player award**\
+`Known as the “Great Barrier Thief” for his defensive prowess, Daniels exploded onto the scene this season with the Hawks.`\
+https://nytimes.com/athletic/6323587/2025/04/30/dyson-daniels-nba-most-improved-player-2025/
+
+**'The pesky Wild will persevere': After a season of adversity, Minnesota believes it can force a Game 7**\
+`"I truly believe that we can get back in the series and win it," Marcus Foligno said on Wednesday, with the Wild trailing 3-2.`\
+https://nytimes.com/athletic/6325056/2025/04/30/wild-golden-knights-game-6-lineup/
+
 **Nats staffer has medical emergency during BP, rushed to hospital before game**\
 `Washington canceled its pregame workout session as players and coaches left the field distraught.`\
 https://nytimes.com/athletic/6325014/2025/04/30/nationals-staffer-medical-emergency-rushed-hospital/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/04/30/us/trump-ms-13-tattoo-abrego-garcia.html
 **Ukraine and U.S. Sign Economic and Reconstruction Deal**\
 `The deal is intended to give the U.S. access to proceeds from Ukraine’s reserves of rare earth minerals.`\
 https://nytimes.com/2025/04/30/world/europe/ukraine-minerals-deal-trump.html
-
-**House Votes to Repeal California’s Clean Truck Policies**\
-`Lawmakers voted to stop the state from requiring that an increasing share of new trucks sold there have zero emissions.`\
-https://nytimes.com/2025/04/30/climate/house-votes-to-repeal-californias-clean-truck-policies.html
-
-**You Sent Us Your Travel Quandaries. Here Are Our Suggestions.**\
-`We asked readers stumped about where to go on vacation this summer to tell us their ideal kind of trip (and budget). Here, T’s travel expert responds with her recommendations.`\
-https://nytimes.com/2025/04/30/t-magazine/summer-travel-getaway-guide.html
 
