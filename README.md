@@ -1,3 +1,7 @@
+**Playboi Carti: Modern Rap in a Nutshell**\
+`The Atlanta rapper’s surprise hit “Evil J0rdan” tells us a lot about what’s happening in hip-hop right now, our critic argues in his weekly song review from the driver’s seat.`\
+https://nytimes.com/video/podcasts/100000010137313/playboi-carti-evil-jordan-review.html
+
 **11 questions (plus one answer) about Bill Belichick's future with UNC, Jordon Hudson**\
 `So many more questions than answers about "Bill Belichick Inc.," plus the biggest sports-business storylines in this week's MoneyCall.`\
 https://nytimes.com/athletic/6323312/2025/04/30/jordon-hudson-bill-belichick-unc-football-miss-maine-usa/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/30/us/politics/trump-el-salvador-prison-deal-takeawa
 **Behind Trump’s Deal to Deport Venezuelans to El Salvador’s Most Feared Prison**\
 `New details deepen questions about the deportations, showing that El Salvador’s president pressed for assurances that the migrants were really members of the Tren de Aragua gang.`\
 https://nytimes.com/2025/04/30/us/politics/trump-deportations-venezuela-el-salvador.html
-
-**Ranking the 49ers’ undrafted haul, which includes 'most gifted' WR in class**\
-`For the second straight year, the 49ers signed a productive — but not flashy — tailback who excelled in a zone-blocking scheme.`\
-https://nytimes.com/athletic/6318938/2025/04/30/49ers-undrafted-rookies-haul-receivers/
 
