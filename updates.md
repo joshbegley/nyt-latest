@@ -1,5 +1,9 @@
 **Test headline For Client**\
 `This is where the dek would live.`\
+https://nytimes.com/paidpost/ad-solutions-test-epicor/2025-ad-solutions-test/ad_sol_test.html
+
+**Test headline For Client**\
+`This is where the dek would live.`\
 https://nytimes.com/paidpost/ad-solutions-test-epicor/2025-ad-solutions-test/test-headline-for-client.html
 
 **2 Fall to Their Deaths From Scenic Overlook at Bryce Canyon National Park**\

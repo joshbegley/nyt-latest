@@ -1,6 +1,6 @@
 **Test headline For Client**\
 `This is where the dek would live.`\
-https://nytimes.com/paidpost/ad-solutions-test-epicor/2025-ad-solutions-test/test-headline-for-client.html
+https://nytimes.com/paidpost/ad-solutions-test-epicor/2025-ad-solutions-test/ad_sol_test.html
 
 **2 Fall to Their Deaths From Scenic Overlook at Bryce Canyon National Park**\
 `Tourists spotted the bodies of a man and a woman on Tuesday at the bottom of Inspiration Point, a popular lookout area at the park in Utah, the authorities said.`\
