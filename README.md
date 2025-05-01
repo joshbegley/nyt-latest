@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6325164/2025/05/01/denzel-dumfries-inter-champions-
 `This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/05/01/learning/word-of-the-day-rumination.html
 
-**Barcelona are the world's most fun team to watch – because they are flawed**\
+**Barcelona are the world's most fun team to watch - because they are flawed**\
 `Thrilling in attack but vulnerable in defence, Hansi Flick's team are box-office entertainment this season`\
 https://nytimes.com/athletic/6325377/2025/05/01/barcelona-fun-watch/
 
@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6325666/2025/05/01/inter-miami-mascherano-concacaf-
 `Kamala Harris has rarely spoken out after leaving Washington in January. In her first major address since then, she acknowledged Democratic fears and praised leaders who were speaking out.`\
 https://nytimes.com/2025/05/01/us/kamala-harris-trump-speech.html
 
-**The U.S. Military Needs Guns and Soldiers, Stat**\
+**The U.S. Can’t Handle a War**\
 `Armed with powerful, sophisticated weaponry, the U.S. falls far short of the arms and personnel needed to fight long, grinding wars.`\
 https://nytimes.com/2025/05/01/opinion/us-military-weapons-war.html
 
