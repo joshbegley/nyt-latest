@@ -1,3 +1,7 @@
+**Those who believed in Astros prospect AJ Blubaugh relish his big league debut**\
+`Drafting Blubaugh was a risk for the Astros but scout Drew Pearson had a strong belief he'd make it to the big leagues.`\
+https://nytimes.com/athletic/6325131/2025/04/30/astros-aj-blubaugh-mlb-debut-scout/
+
 **Truck Overturns, and Millions of Dimes Spill Onto Texas Highway**\
 `Road lanes were closed for about 14 hours while crews used vacuums, shovels and their hands to scoop up freshly minted loose coins.`\
 https://nytimes.com/2025/04/30/us/dimes-truck-spill-texas.html
