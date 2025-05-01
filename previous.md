@@ -1,3 +1,11 @@
+**Fatal Storm Rips Through Oklahoma and Texas, Flooding Roads**\
+`At least two people were reported to have died as heavy rains soaked the region. More thunderstorms were expected on Thursday.`\
+https://nytimes.com/2025/05/01/us/oklahoma-texas-storm.html
+
+**Revenge of Rudy: Gobert and Wolves resoundingly clear the Luka-LeBron hurdle**\
+`Dismissed before the series began, Minnesota dominated Luka and LeBron's Lakers in just about every aspect.`\
+https://nytimes.com/athletic/6324266/2025/05/01/rudy-gobert-timberwolves-playoffs-game-5-lakers/
+
 **Meet the Chargers' undrafted free agents: Nuggets on all 18 players**\
 `Four members of the Chargers' UDFA class last year eventually earned futures contracts. How many can stick around this year?`\
 https://nytimes.com/athletic/6324187/2025/05/01/chargers-2025-nfl-draft-undrafted-free-agents/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6325078/2025/05/01/thunder-nba-playoffs-layoff/
 **One stunning reversal behind the Senators getting back into the series vs. Leafs**\
 `The Athletic's Julian McKenzie and James Mirtle delve into why the Sens and Leafs' special teams units have trended in opposite directions.`\
 https://nytimes.com/athletic/6324294/2025/05/01/senators-maple-leafs-special-teams-nhl-playoffs/
-
-**Who stays, who goes? Red Wings' roster tiers as offseason begins**\
-`The Red Wings' potential aggressive summer is drawing lots of attention. But what about the players already on their roster?`\
-https://nytimes.com/athletic/6297238/2025/05/01/red-wings-2025-26-nhl-roster-tiers/
-
-**Will JJ Peterka, other RFAs force Sabres to spend to salary-cap ceiling?**\
-`In each of the last five seasons, the Sabres have left at least $6 million in salary cap space unspent.`\
-https://nytimes.com/athletic/6324009/2025/05/01/sabres-salary-cap-jj-peterka-contract/
 
