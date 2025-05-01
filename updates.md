@@ -1,3 +1,11 @@
+**Weekend Visits**\
+`An incarcerated woman spends a day with her child at an extended visitation house in Virginia.`\
+https://nytimes.com/video/opinion/100000009295651/weekend-visits.html
+
+**Colo-Colo handed 10-game supporter ban after fan deaths before Copa Libertadores tie**\
+`The ban was confirmed by CONMEBOL after two teenage fans were killed in a crush ahead of a Copa Libertadores match last month.`\
+https://nytimes.com/athletic/6325993/2025/05/01/copa-libertadores-ban-deaths-chile-colo-colo/
+
 **NHL playoffs daily: Capitals, Panthers advance, Jets take series lead**\
 `Ovechkin pulled an Ovechkin for Washington while there were also wins for the Panthers and Jets.`\
 https://nytimes.com/athletic/6325075/2025/05/01/nhl-playoffs-daily-round-1-results-score/

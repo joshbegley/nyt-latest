@@ -1,40 +1,40 @@
-**Weekend Visits**\
-`An incarcerated woman spends a day with her child at an extended visitation house in Virginia.`\
-https://nytimes.com/video/opinion/100000009295651/weekend-visits.html
+**Falcons post-NFL Draft depth chart: Can new-look defense generate pass rush?**\
+`The Falcons' offense remains largely the same, while the defense has undergone a makeover. Here's how the offseason depth chart looks.`\
+https://nytimes.com/athletic/6322277/2025/05/01/falcons-depth-chart-nfl-draft/
 
-**Colo-Colo handed 10-game supporter ban after fan deaths before Copa Libertadores tie**\
-`The ban was confirmed by CONMEBOL after two teenage fans were killed in a crush ahead of a Copa Libertadores match last month.`\
-https://nytimes.com/athletic/6325993/2025/05/01/copa-libertadores-ban-deaths-chile-colo-colo/
+**Which undrafted free agents could make the Patriots' roster?**\
+`No organization has a track record of keeping undrafted players quite like the Patriots. Here is this year's crop of 17 signings.`\
+https://nytimes.com/athletic/6320926/2025/05/01/patriots-udfa-signings-53-man-roster/
 
-**NHL playoffs daily: Capitals, Panthers advance, Jets take series lead**\
-`Ovechkin pulled an Ovechkin for Washington while there were also wins for the Panthers and Jets.`\
-https://nytimes.com/athletic/6325075/2025/05/01/nhl-playoffs-daily-round-1-results-score/
+**Right Wing Counterculture: Vitality. Masculinity. Transgression.**\
+`The left has dictated culture for decades. Jonathan Keeperman is trying to change that.`\
+https://nytimes.com/2025/05/01/opinion/right-wing-masculinity-culture.html
 
-**Kounde likely to miss Champions League semi-final second leg**\
-`Kounde, 26, was forced off on the stroke of half time during Wednesday's first-leg and was replaced by Eric Garcia.`\
-https://nytimes.com/athletic/6325974/2025/05/01/jules-kounde-injury-barcelona-champions-league/
+**The Christian Right Is Dead. The Religious Right Killed It.**\
+`It’s all more Machiavellian than I ever wanted to believe.`\
+https://nytimes.com/2025/05/01/opinion/trump-evangelicals-republicans.html
 
-**Students Practice First Aid as India-Pakistan Tensions Rise**\
-`Pakistan’s Civil Defense Department showed students how to bandage a wound and safely evacuate a building as the country is on high alert for a possible attack by India.`\
-https://nytimes.com/video/world/asia/100000010140403/kashmir-india-pakistan-students.html
+**Looking Back at 101 Days, Elon Musk Sounds Less Confident**\
+`The billionaire was evasive about whether he could meet his goals for the Department of Government Efficiency, and said he would continue his work part time.`\
+https://nytimes.com/2025/05/01/us/politics/elon-musk-doge-cuts-trump.html
 
-**Brentford open to Mbeumo transfer for 'the right price' - Frank**\
-`The 25-year-old Cameroon international has scored 18 Premier League goals this season and provided six assists.`\
-https://nytimes.com/athletic/6325946/2025/05/01/bryan-mbeumo-brentford-transfer/
+**They Left Queens for Manhattan With $600,000 and a Short Wishlist**\
+`After failing to find a comfortable co-op unit in Astoria and Long Island City, a couple were surprised to find that Midtown offered bigger places with better amenities and lower prices.`\
+https://nytimes.com/interactive/2025/05/01/realestate/midtown-manhattan-one-bedroom-sale.html
 
-**Kashmir Is a Wonderland. An Attack Shows It Is Also a Cradle of Despair.**\
-`The terrorist massacre of 26 innocent people has magnified the alienation long felt in a region that lives under tight watch and has limited democratic rights.`\
-https://nytimes.com/2025/05/01/world/asia/india-terrorist-attack-kashmir.html
+**Would You Want to Be a Child Influencer?**\
+`What do you imagine would be the best and worst parts?`\
+https://nytimes.com/2025/05/01/learning/would-you-want-to-be-a-child-influencer.html
 
-**In the Back of an Uber**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2025/05/01/learning/in-the-back-of-an-uber.html
+**What to Do in New York City in May**\
+`Looking for something to do in New York? Get help from Chloe Troast and her friends, keep “Brat” summer going with Charli XCX, or see Alexei Ratmansky’s take on “Paquita.”`\
+https://nytimes.com/2025/05/01/arts/01what-to-do-in-new-york-city-in-may.html
 
-**In the House**\
-`What do you think this image is communicating?`\
-https://nytimes.com/2025/05/01/learning/in-the-house.html
+**Carla Bley’s 1970s Experimental Masterpiece Gets a Belated Premiere**\
+`Cultic and unclassifiable — “clearly some sort of monstrous hybrid” — Bley’s “Escalator Over the Hill,” a 1971 album, is being staged at the New School.`\
+https://nytimes.com/2025/05/01/arts/music/carla-bley-escalator-over-the-hill.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/05/01/crosswords/spelling-bee-forum.html
+**Alec Baldwin’s ‘Rust’ Gets Muted Release, Years After Fatal Shooting**\
+`The filmmakers said that they hoped the finished product would honor the work and memory of its cinematographer, Halyna Hutchins, who was shot and killed on the set.`\
+https://nytimes.com/2025/05/01/movies/alec-baldwin-rust-release.html
 
