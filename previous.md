@@ -1,3 +1,15 @@
+**Harris Returns to Political Life, Warning of a Constitutional Crisis**\
+`Kamala Harris has rarely spoken out after leaving Washington in January. In her first major address since then, she acknowledged Democratic fears and praised leaders who were speaking out.`\
+https://nytimes.com/2025/05/01/us/kamala-harris-trump-speech.html
+
+**The U.S. Military Needs Guns and Soldiers, Stat**\
+`Armed with powerful, sophisticated weaponry, the U.S. falls far short of the arms and personnel needed to fight long, grinding wars.`\
+https://nytimes.com/2025/05/01/opinion/us-military-weapons-war.html
+
+**The New York Times in Print for Thursday, May 1, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/01/todays-new-york-times
+
 **Tourist Selfie Video Captures Kashmir Terror Attack**\
 `A tourist enjoying a zip line ride in a picturesque valley inadvertently captured chaos in the background as militants opened fire below him.`\
 https://nytimes.com/2025/05/01/world/asia/kashmir-attack-tourist-video.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6323641/2025/05/01/declan-rice-martin-odegard-arsen
 **Harry Maguire and a Manchester United redemption - thanks to his goalscoring exploits**\
 `Maguire has joked that he started out up front, his dad moved him into midfield, then defence and he was worried he'd end up in goal`\
 https://nytimes.com/athletic/6324196/2025/05/01/harry-maguire-manchester-united-redemption-striker/
-
-**FPL: The best premium players to own for the end-of-season run-in**\
-`Saka? Palmer? Watkins? Holly Shand runs the rule over which premium players are worth keeping hold of for the final four weeks of the season`\
-https://nytimes.com/athletic/6319922/2025/05/01/fantasy-premier-league-premium-gw35/
-
-**Leeds United squad audit: The Premier League beckons. Who is ready?**\
-`Leeds United have won promotion to the Premier League. What does that mean for their players?`\
-https://nytimes.com/athletic/6324718/2025/05/01/leeds-squad-audit-premier-league-contracts/
-
-**What are Manchester City's key aims in the transfer market this summer?**\
-`It promises to be another busy window for City as they try and to reduce their overall wage bill while evolving the squad `\
-https://nytimes.com/athletic/6320707/2025/05/01/manchester-city-summer-transfer-plans/
 

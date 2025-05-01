@@ -1,3 +1,15 @@
+**Harris Returns to Political Life, Warning of a Constitutional Crisis**\
+`Kamala Harris has rarely spoken out after leaving Washington in January. In her first major address since then, she acknowledged Democratic fears and praised leaders who were speaking out.`\
+https://nytimes.com/2025/05/01/us/kamala-harris-trump-speech.html
+
+**The U.S. Military Needs Guns and Soldiers, Stat**\
+`Armed with powerful, sophisticated weaponry, the U.S. falls far short of the arms and personnel needed to fight long, grinding wars.`\
+https://nytimes.com/2025/05/01/opinion/us-military-weapons-war.html
+
+**The New York Times in Print for Thursday, May 1, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/01/todays-new-york-times
+
 **Tourist Selfie Video Captures Kashmir Terror Attack**\
 `A tourist enjoying a zip line ride in a picturesque valley inadvertently captured chaos in the background as militants opened fire below him.`\
 https://nytimes.com/2025/05/01/world/asia/kashmir-attack-tourist-video.html
