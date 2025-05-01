@@ -1,3 +1,7 @@
+**Javier Mascherano: Inter Miami Champions Cup exit is just not good enough**\
+`The Miami head coach was unimpressed as Lionel Messi and company crashed out of Concacaf's most important club tournament.`\
+https://nytimes.com/athletic/6325666/2025/05/01/inter-miami-mascherano-concacaf-champions-cup-vancouver/
+
 **Harris Returns to Political Life, Warning of a Constitutional Crisis**\
 `Kamala Harris has rarely spoken out after leaving Washington in January. In her first major address since then, she acknowledged Democratic fears and praised leaders who were speaking out.`\
 https://nytimes.com/2025/05/01/us/kamala-harris-trump-speech.html
