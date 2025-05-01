@@ -1,3 +1,7 @@
+**Ex-Trump Official Targeted for Investigation Loses Global Entry Status**\
+`Chris Krebs, a cybersecurity official in the first Trump administration, had declared that the 2020 election was conducted securely.`\
+https://nytimes.com/2025/04/30/us/politics/chris-krebs-global-entry.html
+
 **Trump’s Tariffs Lead Japan to Slash Its Economic Growth Forecast**\
 `The Bank of Japan lowered its growth forecast by more than half and paused its efforts to raise interest rates.`\
 https://nytimes.com/2025/04/30/business/bank-of-japan-gdp-forecast.html
