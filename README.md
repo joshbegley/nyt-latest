@@ -1,3 +1,11 @@
+**Students Practice First Aid as India-Pakistan Tensions Rise**\
+`Pakistan’s Civil Defense Department showed students how to bandage a wound and safely evacuate a building as the country is on high alert for a possible attack by India.`\
+https://nytimes.com/video/world/asia/100000010140403/kashmir-india-pakistan-students.html
+
+**Brentford open to Mbeumo transfer for 'the right price' - Frank**\
+`The 25-year-old Cameroon international has scored 18 Premier League goals this season and provided six assists.`\
+https://nytimes.com/athletic/6325946/2025/05/01/bryan-mbeumo-brentford-transfer/
+
 **Kashmir Is a Wonderland. An Attack Shows It Is Also a Cradle of Despair.**\
 `The terrorist massacre of 26 innocent people has magnified the alienation long felt in a region that lives under tight watch and has limited democratic rights.`\
 https://nytimes.com/2025/05/01/world/asia/india-terrorist-attack-kashmir.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/01/nyregion/inside-the-mysterious-silver-boxes-on-ne
 **Rockets steamroll Warriors defense in blowout loss, setting up Game 6**\
 `Steve Kerr sat the Warriors starters shortly into the third quarter. "I wasn't going to chase this game with Game 6 coming up in 48 hours."`\
 https://nytimes.com/athletic/6325185/2025/05/01/warriors-game-5-blowout-loss/
-
-**Seth Meyers Recaps Trump’s Latest Revisionist History**\
-`Meyers said the president’s ABC News interview “changed his mind” about Trump’s first 100 days in office.`\
-https://nytimes.com/2025/05/01/arts/television/seth-meyers-trump-100-days.html
-
-**The Chelsea dynasty: How they celebrated an 'unbelievable' sixth Women's Super League title in a row**\
-`Clinching the WSL title on Wednesday night took some league organisers by surprise. Chelsea's historic triumph is one they will savour`\
-https://nytimes.com/athletic/6325777/2025/05/01/chelsea-wsl-champions-six-bompastor-bronze/
 
