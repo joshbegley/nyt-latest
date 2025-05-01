@@ -1,3 +1,11 @@
+**Haaland 'getting better' but Man City 'careful' with Rodri return - Guardiola**\
+`Rodri has not played since tearing his anterior cruciate ligament (ACL) in October against Arsenal while Haaland has been out since March.`\
+https://nytimes.com/athletic/6246452/2025/05/01/erling-haaland-injury-rodri-return-manchester-city/
+
+**Trans Women Barred From Competing in Women’s Soccer in England**\
+`The Football Association, the national governing body, said that it had changed its policy as a result of a ruling last month by the British Supreme Court.`\
+https://nytimes.com/2025/05/01/world/europe/trans-women-soccer-england-ban.html
+
 **How Much Time Will Musk Devote to Tesla?**\
 `The carmaker denied a report that its board had explored finding a successor to Elon Musk. But even if he sticks around, he and the company face big challenges.`\
 https://nytimes.com/2025/05/01/business/dealbook/tesla-musk-ceo.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6325158/2025/05/01/calvin-pickard-oilers-nhl-playof
 **Kentucky Derby favorite Journalism, Publisher and other past horses with media-themed names**\
 `Journalism, this year's Kentucky Derby favorite, isn’t the first horse to compete in the race with a media-themed moniker.`\
 https://nytimes.com/athletic/6321397/2025/05/01/kentucky-derby-2025-favorite-journalism-name/
-
-**The Nebraska football 123: A post-spring update on the Huskers roster**\
-`The roster at the start of May includes 20 seniors and 20 true freshmen. It’s got balance. But it’s not complete.`\
-https://nytimes.com/athletic/6324848/2025/05/01/nebraska-football-roster-2025-post-spring/
-
-**Suggestions for the hockey gods: 8 ways this latest Leafs collapse could end**\
-`Here are eight ideas for how the Maple Leafs-Senators series could end.`\
-https://nytimes.com/athletic/6323998/2025/05/01/nhl-playoffs-maple-leafs-senators-collapse/
 

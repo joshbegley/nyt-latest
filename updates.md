@@ -1,3 +1,15 @@
+**How Much Time Will Musk Devote to Tesla?**\
+`The carmaker denied a report that its board had explored finding a successor to Elon Musk. But even if he sticks around, he and the company face big challenges.`\
+https://nytimes.com/2025/05/01/business/dealbook/tesla-musk-ceo.html
+
+**Is Texas really spending $40 million on its 2025 football roster?**\
+`If the Longhorns' budget range is accurate, it represents a significant leap from the previous highest known roster budget in the sport.`\
+https://nytimes.com/athletic/6325429/2025/05/01/texas-football-roster-budget-nil/
+
+**Hodgkinson to race 800m at London Diamond League**\
+`The 23-year-old Briton went unbeaten over the distance in 2024, winning European and Olympic titles.`\
+https://nytimes.com/athletic/6326289/2025/05/01/keely-hodgkinson-london-diamond-league/
+
 **Fatal Storm Rips Through Oklahoma and Texas, Flooding Roads**\
 `At least two people were reported to have died as heavy rains soaked the region. More thunderstorms were expected on Thursday.`\
 https://nytimes.com/2025/05/01/us/oklahoma-texas-storm.html
