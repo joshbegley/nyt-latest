@@ -1,3 +1,7 @@
+**The Bounce: Luka Dončić, LeBron James and the Lakers have a big problem. How do they solve it?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6326636/2025/05/01/luka-doncic-lebron-james-lakers-nba-playoffs-the-bounce/
+
 **Is It Just You, or Is Your Apartment Shrinking?**\
 `The average size of new rental apartments has been getting smaller since 2015, but there are signs that the trend may have begun to reverse.`\
 https://nytimes.com/2025/05/01/realestate/apartments-square-feet.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6326022/2025/05/01/yamal-barcelona-inter-champions-
 **Explained: Why the FA has barred transgender women from women's game**\
 `Breaking down why English football's governing body reversed its policy on transgender women`\
 https://nytimes.com/athletic/6326321/2025/05/01/football-association-transgender-women-ban/
-
-**Life After Chronic Homelessness**\
-`Two years of reporting at a permanent supportive housing building in New York show the successes and limitations of the approach.`\
-https://nytimes.com/2025/05/01/headway/hy-newsletter-psh-web.html
 
