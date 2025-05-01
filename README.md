@@ -1,3 +1,7 @@
+**Those who believed in Astros prospect AJ Blubaugh relish his big league debut**\
+`Drafting Blubaugh was a risk for the Astros but scout Drew Pearson had a strong belief he'd make it to the big leagues.`\
+https://nytimes.com/athletic/6325131/2025/04/30/astros-aj-blubaugh-mlb-debut-scout/
+
 **Truck Overturns, and Millions of Dimes Spill Onto Texas Highway**\
 `Road lanes were closed for about 14 hours while crews used vacuums, shovels and their hands to scoop up freshly minted loose coins.`\
 https://nytimes.com/2025/04/30/us/dimes-truck-spill-texas.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/04/30/nyregion/vietnam-veterans-memorial-50-anniversary
 **Capitals' Taylor Raddysh discusses texts from 'that night in London'**\
 `LONDON, Ont.`\
 https://nytimes.com/athletic/6324000/2025/04/30/hockey-canada-sexual-assault-trial-taylor-raddysh-testifies/
-
-**Bills sign WR Elijah Moore to 1-year deal after GM's fiery comments**\
-`Moore, who ranked No. 67 on The Athletic's top 150 free agents list, caught 61 passes with the Cleveland Browns last season.`\
-https://nytimes.com/athletic/6324928/2025/04/30/elijah-moore-bills-free-agent-signing/
 
