@@ -1,3 +1,5 @@
+
+
 **SharkNinja Recalls 1.8 Million Pressure Cookers After Burn Reports**\
 `The company is recalling Ninja Foodi OP300 series pressure cookers that were sold between January 2019 and March 2025 after more than 100 reported burn injuries, officials said.`\
 https://nytimes.com/2025/05/01/business/sharkninja-foodi-pressure-cooker-recall.html
