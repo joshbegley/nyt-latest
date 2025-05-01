@@ -1,3 +1,15 @@
+**George Clooney, Sarah Snook and Sadie Sink Get Tony Nominations**\
+`They were among the screen stars who were recognized for their work on Broadway this season as the 2025 Tony Award nominations were announced.`\
+https://nytimes.com/2025/05/01/theater/tony-nominations-broadway.html
+
+**Haaland 'getting better' but Man City 'careful' with Rodri return - Guardiola**\
+`Rodri has not played since tearing his anterior cruciate ligament (ACL) in October against Arsenal while Haaland has been out since March.`\
+https://nytimes.com/athletic/6246452/2025/05/01/erling-haaland-injury-rodri-return-manchester-city/
+
+**Trans Women Barred From Competing in Women’s Soccer in England**\
+`The Football Association, the national governing body, said that it had changed its policy as a result of a ruling last month by the British Supreme Court.`\
+https://nytimes.com/2025/05/01/world/europe/trans-women-soccer-england-ban.html
+
 **How Much Time Will Musk Devote to Tesla?**\
 `The carmaker denied a report that its board had explored finding a successor to Elon Musk. But even if he sticks around, he and the company face big challenges.`\
 https://nytimes.com/2025/05/01/business/dealbook/tesla-musk-ceo.html
