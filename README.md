@@ -1,40 +1,40 @@
-**Trump Administration Live Updates: President Tries to Change Narrative on Economy**\
-``\
-https://nytimes.com/live/2025/05/01/us/trump-news
+**Meet the Chargers' undrafted free agents: Nuggets on all 18 players**\
+`Four members of the Chargers' UDFA class last year eventually earned futures contracts. How many can stick around this year?`\
+https://nytimes.com/athletic/6324187/2025/05/01/chargers-2025-nfl-draft-undrafted-free-agents/
 
-**Kamala Harris: We Are Witnessing ‘Wholesale Abandonment’ of Ideals**\
-`In her first major speech since her electoral defeat in January, former Vice President Kamala Harris criticized President Trump’s performance and warned of a constitutional crisis.`\
-https://nytimes.com/video/us/politics/100000010140454/kamala-harris-first-speech-trump.html
+**'The moment never seems to be too big': Calvin Pickard's long journey to Oilers' playoffs**\
+`Through a journeyman career, Pickard's trajectory has never quite gone where he expected.`\
+https://nytimes.com/athletic/6325158/2025/05/01/calvin-pickard-oilers-nhl-playoffs-starts/
 
-**Israel Scrambles to Extinguish Wildfires Near Jerusalem for 2nd Day**\
-`Authorities reopened the main highway between Tel Aviv and Jerusalem after gaining partial control of the blaze, but warned that a change in the wind could fan the flames.`\
-https://nytimes.com/2025/05/01/world/middleeast/israel-wildfires-jerusalem.html
+**Kentucky Derby favorite Journalism, Publisher and other past horses with media-themed names**\
+`Journalism, this year's Kentucky Derby favorite, isn’t the first horse to compete in the race with a media-themed moniker.`\
+https://nytimes.com/athletic/6321397/2025/05/01/kentucky-derby-2025-favorite-journalism-name/
 
-**Elche ban fans from eating sunflower seeds inside stadium**\
-`Sunflower seeds, known as 'pipas' in Spanish, are a popular snack in Spain and are traditionally eaten during soccer matches by supporters.`\
-https://nytimes.com/athletic/6326116/2025/05/01/sunflower-seeds-spanish-football-food/
+**The Nebraska football 123: A post-spring update on the Huskers roster**\
+`The roster at the start of May includes 20 seniors and 20 true freshmen. It’s got balance. But it’s not complete.`\
+https://nytimes.com/athletic/6324848/2025/05/01/nebraska-football-roster-2025-post-spring/
 
-**Can Blues force a Game 7 against Jets? It wouldn't be a surprise**\
-`The Blues lost 5-3 to the Jets in Game 5 Wednesday and now need a win on home ice in Game 6 to force a decisive game in Winnipeg.`\
-https://nytimes.com/athletic/6323597/2025/05/01/blues-jets-nhl-playoffs-game-5/
+**Suggestions for the hockey gods: 8 ways this latest Leafs collapse could end**\
+`Here are eight ideas for how the Maple Leafs-Senators series could end.`\
+https://nytimes.com/athletic/6323998/2025/05/01/nhl-playoffs-maple-leafs-senators-collapse/
 
-**North Korea and Russia Cement Ties With First Road Bridge**\
-`The two countries have vowed to expand bilateral relations after North Korea sent troops and weapons in support of Russia’s war against Ukraine.`\
-https://nytimes.com/2025/05/01/world/asia/north-korea-russia-bridge.html
+**49ers’ NFL Draft class: Scot McCloughan dishes on Mykel Williams, C.J. West, more**\
+`McCloughan, who likes sturdy, strong-armed defensive linemen, is a big fan of the 49ers' top draft pick.`\
+https://nytimes.com/athletic/6325025/2025/05/01/49ers-2025-nfl-draft-class-scot-mccloughan/
 
-**Rory McIlroy Dives Deeper Into Private Equity**\
-`The golf star is teaming up with the investment firm TPG on a new sports-related fund.`\
-https://nytimes.com/2025/05/01/business/dealbook/rory-mcilroy-tpg-sports.html
+**Will the Thunder let another weeklong layoff slow them down? Don't count on it**\
+`“We always say, ‘The times in between the games are the days that you have to win in the playoffs,’” OKC guard Shai Gilgeous-Alexander said.`\
+https://nytimes.com/athletic/6325078/2025/05/01/thunder-nba-playoffs-layoff/
 
-**Tony Awards Nominations 2025: Updating List**\
-`Nominations for the 78th Tony Awards will be announced on Thursday morning. See below for a live list of nominees.`\
-https://nytimes.com/2025/05/01/theater/tony-awards-nominations.html
+**One stunning reversal behind the Senators getting back into the series vs. Leafs**\
+`The Athletic's Julian McKenzie and James Mirtle delve into why the Sens and Leafs' special teams units have trended in opposite directions.`\
+https://nytimes.com/athletic/6324294/2025/05/01/senators-maple-leafs-special-teams-nhl-playoffs/
 
-**With Minerals Deal, Trump Ties Himself to Future of Ukraine**\
-`The text of the agreement, made public by Ukraine’s government, made no mention of the security guarantees that Kyiv had long sought.`\
-https://nytimes.com/2025/05/01/world/europe/ukraine-trump-minerals-deal.html
+**Who stays, who goes? Red Wings' roster tiers as offseason begins**\
+`The Red Wings' potential aggressive summer is drawing lots of attention. But what about the players already on their roster?`\
+https://nytimes.com/athletic/6297238/2025/05/01/red-wings-2025-26-nhl-roster-tiers/
 
-**Picking April MLB All-Star teams for the American League and National League**\
-`It's only the first month of a six-month season, but here are my picks for April All-Stars, the best at each position in the AL and NL. `\
-https://nytimes.com/athletic/6325707/2025/05/01/mlb-april-all-star-teams/
+**Will JJ Peterka, other RFAs force Sabres to spend to salary-cap ceiling?**\
+`In each of the last five seasons, the Sabres have left at least $6 million in salary cap space unspent.`\
+https://nytimes.com/athletic/6324009/2025/05/01/sabres-salary-cap-jj-peterka-contract/
 
