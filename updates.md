@@ -1,3 +1,11 @@
+**White Supremacist Is Charged in 2019 Arson at Tennessee Civil Rights Landmark**\
+`Regan Prater set fire to the main offices of the Highlander Research and Education Center and took credit for it in encrypted messages, prosecutors said.`\
+https://nytimes.com/2025/04/30/us/arson-arrest-civil-rights-landmark-tennessee.html
+
+**Those who believed in Astros prospect AJ Blubaugh relished his big-league debut**\
+`Drafting Blubaugh was a risk for the Astros, but scout Drew Pearson had a strong belief he'd make it to the big leagues.`\
+https://nytimes.com/athletic/6325131/2025/04/30/astros-aj-blubaugh-mlb-debut-scout/
+
 **Judge Rebukes Apple and Orders It to Loosen Grip on App Store**\
 `The ruling was a stinging defeat for Apple in a long-running antitrust case brought by Epic Games, the maker of Fortnite, on behalf of app developers.`\
 https://nytimes.com/2025/04/30/technology/apple-epic-app-store-ruling.html
