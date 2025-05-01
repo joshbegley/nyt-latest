@@ -1,5 +1,13 @@
-**Those who believed in Astros prospect AJ Blubaugh relish his big league debut**\
-`Drafting Blubaugh was a risk for the Astros but scout Drew Pearson had a strong belief he'd make it to the big leagues.`\
+**A Flashing Economic Warning and a Sharp Political Jolt**\
+`The report that the economy contracted in the first quarter underscored how much President Trump has at risk as he pursues an aggressive trade war.`\
+https://nytimes.com/2025/04/30/us/politics/trump-first-quarter-economic-reports.html
+
+**John Elway's longtime business partner dies after golf cart incident**\
+`Sperbeck began managing Elway’s business interest during his playing career with the Denver Broncos in the 1990s.`\
+https://nytimes.com/athletic/6324424/2025/04/30/john-elway-jeff-sperbeck-golf-cart-accident/
+
+**Those who believed in Astros prospect AJ Blubaugh relish his big-league debut**\
+`Drafting Blubaugh was a risk for the Astros, but scout Drew Pearson had a strong belief he'd make it to the big leagues.`\
 https://nytimes.com/athletic/6325131/2025/04/30/astros-aj-blubaugh-mlb-debut-scout/
 
 **Truck Overturns, and Millions of Dimes Spill Onto Texas Highway**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6324995/2025/04/30/chicago-cubs-hitting-coach-dusti
 **Senate Rejects Bipartisan Measure to Undo Trump’s Tariffs**\
 `Only three Republicans joined Democrats in voting to end the national emergency President Trump declared to impose tariffs on most U.S. trading partners, leaving the measure short of the support needed to pass.`\
 https://nytimes.com/2025/04/30/us/politics/senate-trump-tariffs.html
-
-**At Vietnam War Memorial, Familiar Names, Old Grief and a Kind of Peace**\
-`Visitors to the Vietnam Veterans Memorial on the anniversary of the fall of Saigon said they still felt sadness, anger and fury. And for some, finally, closure.`\
-https://nytimes.com/2025/04/30/nyregion/vietnam-veterans-memorial-50-anniversary.html
-
-**Capitals' Taylor Raddysh discusses texts from 'that night in London'**\
-`LONDON, Ont.`\
-https://nytimes.com/athletic/6324000/2025/04/30/hockey-canada-sexual-assault-trial-taylor-raddysh-testifies/
 
