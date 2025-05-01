@@ -1,3 +1,5 @@
+
+
 **‘The Narrow Road to the Deep North’ Is a Brutal but Poetic War Drama**\
 `Starring Jacob Elordi, this often agonizing series takes on life’s biggest questions, about the mind and the heart, human suffering and transcendence.`\
 https://nytimes.com/2025/05/01/arts/television/narrow-road-to-the-deep-north-jacob-elordi.html
