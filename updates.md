@@ -1,3 +1,11 @@
+**New York May Weaken Its Oversight Over Religious Schools**\
+`A potential last-minute addition to the state budget would amount to a major victory for Hasidic Jewish leaders.`\
+https://nytimes.com/2025/05/01/nyregion/new-york-hasidic-schools-oversight.html
+
+**Juan Soto blasts first 2 homers at Citi Field since joining Mets**\
+`Soto broke out with two opposite-field shots against the Diamondbacks on Thursday.`\
+https://nytimes.com/athletic/6327322/2025/05/01/mets-juan-soto-first-home-runs-citi-field/
+
 **What to See in N.Y.C. Galleries in May**\
 `This week in Newly Reviewed, Holland Cotter covers Sheyla Baykal’s downtown stars, a group show from a radical feminist art collective and Young Joon Kwak’s quieter side. `\
 https://nytimes.com/2025/05/01/arts/art-galleries-nyc-may.html
