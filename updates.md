@@ -1,3 +1,8 @@
+**LeBrun: With Avalanche on the ropes, the pressure rises on their championship core**\
+`Are the remnants of Colorado's championship core from 2022 going to show up now that the team's season is on the line?
+`\
+https://nytimes.com/athletic/6324663/2025/05/01/avalanche-stars-nhl-playoffs-game-6/
+
 **Did the Rockies just have the worst month in baseball history?**\
 `If Colorado's bats don't wake up, they will challenge the White Sox for the worst team in modern history.`\
 https://nytimes.com/athletic/6321814/2025/05/01/colorado-rockies-april-statistical-analysis/
