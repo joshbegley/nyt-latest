@@ -1,3 +1,7 @@
+**‘Thunderbolts*’ Review: Florence Pugh and Pals Kick Some Asterisk**\
+`The actress is the main attraction in Marvel’s latest, about a group of ragtag super-types who join forces to (spoiler alert!) save the world.`\
+https://nytimes.com/2025/04/30/movies/thunderbolts-review-florence-pugh-kicks-asterisk.html
+
 **A Flashing Economic Warning and a Sharp Political Jolt**\
 `The report that the economy contracted in the first quarter underscored how much President Trump has at risk as he pursues an aggressive trade war.`\
 https://nytimes.com/2025/04/30/us/politics/trump-first-quarter-economic-reports.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6325014/2025/04/30/nationals-staffer-medical-emerge
 **Cubs hitting coach Dustin Kelly speaks on Kyle Tucker, Chicago's potent offense**\
 `On the last day of April, the Cubs offense ranked first or second in the majors in multiple categories, including OPS, hits and runs scored`\
 https://nytimes.com/athletic/6324995/2025/04/30/chicago-cubs-hitting-coach-dustin-kelly-interview/
-
-**Senate Rejects Bipartisan Measure to Undo Trump’s Tariffs**\
-`Only three Republicans joined Democrats in voting to end the national emergency President Trump declared to impose tariffs on most U.S. trading partners, leaving the measure short of the support needed to pass.`\
-https://nytimes.com/2025/04/30/us/politics/senate-trump-tariffs.html
 
