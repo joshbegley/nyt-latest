@@ -1,3 +1,7 @@
+**Corrections: May 1, 2025**\
+`Corrections that appeared in print on Thursday, May 1, 2025.`\
+https://nytimes.com/2025/05/01/pageoneplus/corrections-may-1-2025.html
+
 **George Clooney, Sarah Snook and Sadie Sink Get Tony Nominations**\
 `They were among the screen stars who were recognized for their work on Broadway this season as the 2025 Tony Award nominations were announced.`\
 https://nytimes.com/2025/05/01/theater/tony-nominations-broadway.html
@@ -7,7 +11,7 @@ https://nytimes.com/2025/05/01/theater/tony-nominations-broadway.html
 https://nytimes.com/athletic/6246452/2025/05/01/erling-haaland-injury-rodri-return-manchester-city/
 
 **Trans Women Barred From Competing in Women’s Soccer in England**\
-`The Football Association, the national governing body, said that it had changed its policy as a result of a ruling last month by the British Supreme Court.`\
+`The Football Association, the national governing body, said it had changed its policy as a result of a ruling last month by the British Supreme Court.`\
 https://nytimes.com/2025/05/01/world/europe/trans-women-soccer-england-ban.html
 
 **How Much Time Will Musk Devote to Tesla?**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6324266/2025/05/01/rudy-gobert-timberwolves-playoff
 **Meet the Chargers' undrafted free agents: Nuggets on all 18 players**\
 `Four members of the Chargers' UDFA class last year eventually earned futures contracts. How many can stick around this year?`\
 https://nytimes.com/athletic/6324187/2025/05/01/chargers-2025-nfl-draft-undrafted-free-agents/
-
-**'The moment never seems to be too big': Calvin Pickard's long journey to Oilers' playoffs**\
-`Through a journeyman career, Pickard's trajectory has never quite gone where he expected.`\
-https://nytimes.com/athletic/6325158/2025/05/01/calvin-pickard-oilers-nhl-playoffs-starts/
 
