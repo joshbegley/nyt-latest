@@ -1,3 +1,7 @@
+**What we're hearing about the Mets' pitching staff**\
+`Recent injuries call for a bullpen shuffle and creative management of the rotation. Here's what to expect. `\
+https://nytimes.com/athletic/6327144/2025/05/01/mets-pitching-staff-injuires/
+
 **C.I.A. Aims to Recruit Chinese Nationals With New Videos**\
 `The appeal reflects the priority John Ratcliffe, the C.I.A. director, has placed on increasing the agency’s intelligence collection on China.`\
 https://nytimes.com/2025/05/01/us/politics/cia-china-spy-recruit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/01/insider/times-journalism-protests-crowds.html
 **Fantasy baseball bullpen report featuring rising relievers Ryan Zeferjahn and Kyle Leahy**\
 `Greg Jewett tracks all the role changes across MLB bullpens, noting this week that Kyle Leahy is a rising reliever for the Cardinals.`\
 https://nytimes.com/athletic/6326793/2025/05/01/fantasy-baseball-bullpen-report-rising-relievers-leahy/
-
-**Trump Administration Cancels $1 Billion in Grants for Student Mental Health**\
-`Congress authorized the money in a bipartisan breakthrough around addressing gun violence after a shooting at an elementary school in Uvalde, Texas, killed 19 children and two teachers.`\
-https://nytimes.com/2025/05/01/us/politics/trump-mental-health-grants.html
 
