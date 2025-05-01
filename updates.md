@@ -1,3 +1,15 @@
+**‘The Four Seasons’ Review: Tepid Trouble in Middle-Aged Paradise**\
+`In this Netflix series created by Tina Fey, among others, old friends contend with the fallout from a surprising breakup.`\
+https://nytimes.com/2025/05/01/arts/television/the-four-seasons-review.html
+
+**‘Rust’ Review: It’s a Hard Watch**\
+`During every scene of this western, I couldn’t stop thinking about the film’s cinematographer, Halyna Hutchins, who was killed on set in an entirely preventable tragedy.`\
+https://nytimes.com/2025/05/01/movies/rust-review-alec-baldwin.html
+
+**At a Dubai Conference, Trump’s Conflicts Take Center Stage**\
+`A deal for a state-backed Emirati firm to use a Trump-affiliated digital coin was announced in a panel that included the president’s son and his business partner, who promised, “This is only the beginning.”`\
+https://nytimes.com/2025/05/01/us/politics/trump-cryptocurrency-usd1-dubai-conference-announcement.html
+
 **Red Light: Is playoff physicality out of hand?**\
 `Plus: Updating the best Cup odds, and who’s leading our MVP watch? `\
 https://nytimes.com/athletic/6326921/2025/05/01/nhl-playoffs-red-light-newsletter-blues-jets/
