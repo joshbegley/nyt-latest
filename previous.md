@@ -1,3 +1,11 @@
+**What we've learned about the Yankees after the first month of the season: 4 takeaways**\
+`Aaron Judge remains otherworldly, but he's getting help in the power department from unexpected places. Meanwhile, Max Fried is an ace.`\
+https://nytimes.com/athletic/6324985/2025/05/01/new-york-yankees-aaron-judge-april/
+
+**The New York Times International Edition in Print for Friday, May 2, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/05/01/todays-new-york-times-international-edition
+
 **South Korea’s Acting Leader Resigns for Likely Presidential Bid**\
 `Prime Minister Han Duck-soo has been mulling whether to contest the election, while the main opposition candidate and front-runner suffered a setback in court.`\
 https://nytimes.com/2025/05/01/world/asia/south-korea-president-resigns.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/01/opinion/trump-evangelicals-republicans.html
 **Looking Back at 101 Days, Elon Musk Sounds Less Confident**\
 `The billionaire was evasive about whether he could meet his goals for the Department of Government Efficiency, and said he would continue his work part time.`\
 https://nytimes.com/2025/05/01/us/politics/elon-musk-doge-cuts-trump.html
-
-**They Left Queens for Manhattan With $600,000 and a Short Wishlist**\
-`After failing to find a comfortable co-op unit in Astoria and Long Island City, a couple were surprised to find that Midtown offered bigger places with better amenities and lower prices.`\
-https://nytimes.com/interactive/2025/05/01/realestate/midtown-manhattan-one-bedroom-sale.html
-
-**Would You Want to Be a Child Influencer?**\
-`What do you imagine would be the best and worst parts?`\
-https://nytimes.com/2025/05/01/learning/would-you-want-to-be-a-child-influencer.html
 

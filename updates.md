@@ -1,3 +1,11 @@
+**What we've learned about the Yankees after the first month of the season: 4 takeaways**\
+`Aaron Judge remains otherworldly, but he's getting help in the power department from unexpected places. Meanwhile, Max Fried is an ace.`\
+https://nytimes.com/athletic/6324985/2025/05/01/new-york-yankees-aaron-judge-april/
+
+**The New York Times International Edition in Print for Friday, May 2, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/05/01/todays-new-york-times-international-edition
+
 **South Korea’s Acting Leader Resigns for Likely Presidential Bid**\
 `Prime Minister Han Duck-soo has been mulling whether to contest the election, while the main opposition candidate and front-runner suffered a setback in court.`\
 https://nytimes.com/2025/05/01/world/asia/south-korea-president-resigns.html
