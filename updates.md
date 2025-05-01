@@ -1,3 +1,11 @@
+**Corrections: May 1, 2025**\
+`Corrections that appeared in print on Thursday, May 1, 2025.`\
+https://nytimes.com/2025/05/01/pageoneplus/corrections-may-1-2025.html
+
+**Trans Women Barred From Competing in Women’s Soccer in England**\
+`The Football Association, the national governing body, said it had changed its policy as a result of a ruling last month by the British Supreme Court.`\
+https://nytimes.com/2025/05/01/world/europe/trans-women-soccer-england-ban.html
+
 **George Clooney, Sarah Snook and Sadie Sink Get Tony Nominations**\
 `They were among the screen stars who were recognized for their work on Broadway this season as the 2025 Tony Award nominations were announced.`\
 https://nytimes.com/2025/05/01/theater/tony-nominations-broadway.html
