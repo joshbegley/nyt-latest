@@ -1,3 +1,19 @@
+**FPL: The best premium players to own for the end-of-season run-in**\
+`Saka? Palmer? Watkins? Holly Shand runs the rule over which premium players are worth keeping hold of for the final four weeks of the season`\
+https://nytimes.com/athletic/6319922/2025/05/01/fantasy-premier-league-premium-gw35/
+
+**Leeds United squad audit: The Premier League beckons. Who is ready?**\
+`Leeds United have won promotion to the Premier League. What does that mean for their players?`\
+https://nytimes.com/athletic/6324718/2025/05/01/leeds-squad-audit-premier-league-contracts/
+
+**What are Manchester City's key aims in the transfer market this summer?**\
+`It promises to be another busy window for City as they try and to reduce their overall wage bill while evolving the squad `\
+https://nytimes.com/athletic/6320707/2025/05/01/manchester-city-summer-transfer-plans/
+
+**Earthy interview: 'My family are West Ham crazy - I'm still a season ticket holder'**\
+`George Earthy is on loan at Bristol City. He thinks it will stand him in good stead for his return to West Ham this summer`\
+https://nytimes.com/athletic/6319325/2025/05/01/george-earthy-west-ham-interview/
+
 **Antonio Rudiger: The madness and brilliance of Real Madrid's 'El Loco'**\
 `The Real Madrid defender lives on the edge and has been banned for six matches after clashing with a referee at the Copa del Rey final`\
 https://nytimes.com/athletic/6321239/2025/05/01/rudiger-real-madrid-chelsea-bengoetxea/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6323599/2025/05/01/ola-aina-nottingham-forest-perso
 **Durham Women, the second-tier outsiders now backed by lottery winners**\
 `The Championship side are a rarity in having no links to a men's club but they do have the support of EuroMillions-winning owners`\
 https://nytimes.com/athletic/6304412/2025/05/01/durham-women-lottery-winners/
-
-**Lucas Giolito's strong debut wasted by Red Sox as Blue Jays win in extra innings**\
-`Giolito cruised through five innings before running into trouble with two outs in the sixth. Toronto then rallied from a 6-0 deficit.`\
-https://nytimes.com/athletic/6325552/2025/05/01/lucas-giolito-red-sox-debut/
-
-**Multiple late mistakes doom Twins again in loss to Guardians**\
-`If Wednesday's 4-2 Minnesota loss to Cleveland felt familiar, you're not alone.`\
-https://nytimes.com/athletic/6325452/2025/05/01/twins-lose-guardians-mistakes-pablo-lopez-ryan-jeffers/
-
-**50 Years After the U.S. Left Vietnam, Another Retreat Is Shaking Asia**\
-`Even among former enemies, the new American withdrawal from aid and democratic ideals is stirring deep feelings and confusion.`\
-https://nytimes.com/2025/05/01/world/asia/vietnam-america-asia-retreat.html
-
-**What to Know About the First U.K. Local Elections Under Starmer**\
-`The votes in some parts of England are a test of a changed political climate, in which both main parties look weakened.`\
-https://nytimes.com/2025/05/01/world/europe/england-local-elections-starmer.html
 
