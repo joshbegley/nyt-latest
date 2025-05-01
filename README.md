@@ -1,3 +1,7 @@
+**Ex-Trump Official Targeted for Investigation Loses Global Entry Status**\
+`Chris Krebs, a cybersecurity official in the first Trump administration, had declared that the 2020 election was conducted securely.`\
+https://nytimes.com/2025/04/30/us/politics/chris-krebs-global-entry.html
+
 **Trump’s Tariffs Lead Japan to Slash Its Economic Growth Forecast**\
 `The Bank of Japan lowered its growth forecast by more than half and paused its efforts to raise interest rates.`\
 https://nytimes.com/2025/04/30/business/bank-of-japan-gdp-forecast.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6325305/2025/04/30/capitals-canadiens-nhl-playoffs-
 **Here’s what happened on Wednesday.**\
 `By The New York Times`\
 https://nytimes.com/live/2025/04/30/us/president-trump-news/heres-what-happened-on-wednesday
-
-**Fan stretchered off field after falling from stands in Pirates-Cubs game**\
-`Medical crews rushed to aid the fan who was quickly placed on a stretcher and taken off the field.`\
-https://nytimes.com/athletic/6325320/2025/04/30/pirates-fan-falls-field/
 
