@@ -1,3 +1,7 @@
+**NBA playoffs takeaways: Rockets dominate Warriors, force Game 6**\
+`The Houston Rockets staved off elimination Wednesday night in a 131-116 win over the Golden State Warriors at home.`\
+https://nytimes.com/athletic/6325262/2025/04/30/nba-playoffs-results-takeaways-scores-wednesday/
+
 **Panthers eliminate Lightning, advance to second round with Game 5 win: Takeaways**\
 `Florida will continue its Stanley Cup defense in the second round of the playoffs against the winner of the Toronto-Ottawa series.`\
 https://nytimes.com/athletic/6325285/2025/04/30/panthers-lightning-nhl-playoffs-2025-game-5-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6325320/2025/04/30/pirates-fan-falls-field/
 **Trump boasts about the economy, but says weak data is Biden’s problem.**\
 `By Tim Balk`\
 https://nytimes.com/live/2025/04/30/us/president-trump-news/trump-boasts-about-the-economy-but-says-weak-data-is-bidens-problem
-
-**Judge Rejects Efforts to Free F.B.I. Informant Who Lied About Hunter Biden**\
-`The Trump administration had signaled it might try to undo the guilty plea and six-year prison sentence for Alexander Smirnov.`\
-https://nytimes.com/2025/04/30/us/politics/judge-alexander-smirnov-flight.html
 

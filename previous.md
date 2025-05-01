@@ -1,3 +1,7 @@
+**Panthers eliminate Lightning, advance to second round with Game 5 win: Takeaways**\
+`Florida will continue its Stanley Cup defense in the second round of the playoffs against the winner of the Toronto-Ottawa series.`\
+https://nytimes.com/athletic/6325285/2025/04/30/panthers-lightning-nhl-playoffs-2025-game-5-takeaways/
+
 **Speaking a Gibberish Language**\
 `Aidan Deshong and Adam Levav move their rears. In a completely innocent and cruciverbal way, of course.`\
 https://nytimes.com/2025/04/30/crosswords/daily-puzzle-2025-05-01.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/04/30/us/president-trump-news/trump-boasts-about-t
 **Judge Rejects Efforts to Free F.B.I. Informant Who Lied About Hunter Biden**\
 `The Trump administration had signaled it might try to undo the guilty plea and six-year prison sentence for Alexander Smirnov.`\
 https://nytimes.com/2025/04/30/us/politics/judge-alexander-smirnov-flight.html
-
-**White Supremacist Is Charged in 2019 Arson at Tennessee Civil Rights Landmark**\
-`Regan Prater set fire to the main offices of the Highlander Research and Education Center and took credit for it in encrypted messages, prosecutors said.`\
-https://nytimes.com/2025/04/30/us/arson-arrest-civil-rights-landmark-tennessee.html
 

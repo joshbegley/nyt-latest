@@ -1,3 +1,7 @@
+**Panthers eliminate Lightning, advance to second round with Game 5 win: Takeaways**\
+`Florida will continue its Stanley Cup defense in the second round of the playoffs against the winner of the Toronto-Ottawa series.`\
+https://nytimes.com/athletic/6325285/2025/04/30/panthers-lightning-nhl-playoffs-2025-game-5-takeaways/
+
 **Speaking a Gibberish Language**\
 `Aidan Deshong and Adam Levav move their rears. In a completely innocent and cruciverbal way, of course.`\
 https://nytimes.com/2025/04/30/crosswords/daily-puzzle-2025-05-01.html
