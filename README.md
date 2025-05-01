@@ -1,3 +1,11 @@
+**Tourist Selfie Video Captures Kashmir Terror Attack**\
+`A tourist enjoying a zip line ride in a picturesque valley inadvertently captured chaos in the background as militants opened fire below him.`\
+https://nytimes.com/2025/05/01/world/asia/kashmir-attack-tourist-video.html
+
+**Thursday Briefing**\
+`A minerals deal between the U.S. and Ukraine.`\
+https://nytimes.com/2025/05/01/briefing/minerals-syria-britain.html
+
 **Jets' unlikely heroes step up to help beat Blues in Game 5: Takeaways**\
 `Mark Scheifele was injured and the likes of Vladislav Namestnikov and Nino Niederreiter stepped up in the Jets' 5-3 win.`\
 https://nytimes.com/athletic/6325602/2025/05/01/nhl-playoffs-jets-blues-game-5/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6324718/2025/05/01/leeds-squad-audit-premier-league
 **What are Manchester City's key aims in the transfer market this summer?**\
 `It promises to be another busy window for City as they try and to reduce their overall wage bill while evolving the squad `\
 https://nytimes.com/athletic/6320707/2025/05/01/manchester-city-summer-transfer-plans/
-
-**Van de Ven and Romero have defined Postecoglou’s tenure - and is key to European glory**\
-`Spurs' first-choice centre-back pairing has only started together 15 times this season. It’s why things have gone disastrously wrong`\
-https://nytimes.com/athletic/6323060/2025/05/01/micky-van-de-ven-cristian-romero-tottenham-postecoglou/
-
-**Earthy interview: 'My family are West Ham crazy - I'm still a season ticket holder'**\
-`George Earthy is on loan at Bristol City. He thinks it will stand him in good stead for his return to West Ham this summer`\
-https://nytimes.com/athletic/6319325/2025/05/01/george-earthy-west-ham-interview/
 
