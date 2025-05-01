@@ -1,4 +1,24 @@
-**With Minerals Deal, Trump Seems to Tie Himself to Future of Ukraine**\
+**Elche ban fans from eating sunflower seeds inside stadium**\
+`Sunflower seeds, known as 'pipas' in Spanish, are a popular snack in Spain and are traditionally eaten during soccer matches by supporters.`\
+https://nytimes.com/athletic/6326116/2025/05/01/sunflower-seeds-spanish-football-food/
+
+**Can Blues force Game 7 against Jets? It wouldn't be surprising, but they've got work to do**\
+`The Blues lost 5-3 to the Jets in Game 5 Wednesday and now need a win on home ice in Game 6 to force a decisive game in Winnipeg.`\
+https://nytimes.com/athletic/6323597/2025/05/01/blues-jets-nhl-playoffs-game-5/
+
+**North Korea and Russia Cement Ties With First Road Bridge**\
+`The two countries have vowed to expand bilateral relations after North Korea sent troops and weapons in support of Russia’s war against Ukraine.`\
+https://nytimes.com/2025/05/01/world/asia/north-korea-russia-bridge.html
+
+**Rory McIlroy Dives Deeper Into Private Equity**\
+`The golf star is teaming up with the investment firm TPG on a new sports-related fund.`\
+https://nytimes.com/2025/05/01/business/dealbook/rory-mcilroy-tpg-sports.html
+
+**Tony Awards Nominations 2025: Updating List**\
+`Nominations for the 78th Tony Awards will be announced on Thursday morning. See below for a live list of nominees.`\
+https://nytimes.com/2025/05/01/theater/tony-awards-nominations.html
+
+**With Minerals Deal, Trump Ties Himself to Future of Ukraine**\
 `The text of the agreement, made public by Ukraine’s government, made no mention of the security guarantees that Kyiv had long sought.`\
 https://nytimes.com/2025/05/01/world/europe/ukraine-trump-minerals-deal.html
 
@@ -17,25 +37,4 @@ https://nytimes.com/athletic/6194500/2025/05/01/nhl-draft-2020-lessons-2025/
 **Meet Cole Reschny, the hottest prospect in the 2025 NHL Draft: 'He stirs the drink'**\
 `The "professional, driven" 18-year-old from Macklin, Sask., could be the best 200-foot player available in this year's draft.`\
 https://nytimes.com/athletic/6302768/2025/05/01/cole-reschny-nhl-draft-2025-prospect/
-
-**The NBA Draft 2025's early-entrants list is shrinking. What does it mean?**\
-`NIL has changed college basketball in enumerable ways, but it has also had an impact on the NBA.`\
-https://nytimes.com/athletic/6321040/2025/05/01/nba-draft-2025-cooper-flagg-early-entrants/
-
-**What we know about PWHL expansion: Draft, protection list, Gold Plan and more**\
-`With the league set to add teams in Vancouver and Seattle for the 2025-26 season, here’s everything we know (so far) about PWHL expansion.`\
-https://nytimes.com/athletic/6325181/2025/05/01/pwhl-expansion-vancouver-seattle-womens-hockey/
-
-**NHL playoffs Game 6 previews: The key matchup to watch in each series**\
-`With five Game 6s over the next two days, let’s look at key matchups for each series.`\
-https://nytimes.com/athletic/6324877/2025/05/01/nhl-playoffs-game-6-matchups/
-
-**What is fandom like for an executive? How David Stearns stays connected to the Knicks**\
-`Stearns grew up listening to Knicks games on the radio and acknowledged he's "absolutely, completely" as irrational as any fan.`\
-https://nytimes.com/athletic/6325093/2025/05/01/mets-knicks-david-stearns/
-
-**LeBrun: With Avalanche on the ropes, the pressure rises on their championship core**\
-`Are the remnants of Colorado's championship core from 2022 going to show up now that the team's season is on the line?
-`\
-https://nytimes.com/athletic/6324663/2025/05/01/avalanche-stars-nhl-playoffs-game-6/
 

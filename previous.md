@@ -1,3 +1,11 @@
+**With Minerals Deal, Trump Seems to Tie Himself to Future of Ukraine**\
+`The text of the agreement, made public by Ukraine’s government, made no mention of the security guarantees that Kyiv had long sought.`\
+https://nytimes.com/2025/05/01/world/europe/ukraine-trump-minerals-deal.html
+
+**Picking April MLB All-Star teams for the American League and National League**\
+`It's only the first month of a six-month season, but here are my picks for April All-Stars, the best at each position in the AL and NL. `\
+https://nytimes.com/athletic/6325707/2025/05/01/mlb-april-all-star-teams/
+
 **Did the Rockies just have the worst month in baseball history?**\
 `If Colorado's bats don't wake up, they will challenge the White Sox for the worst team in modern history.`\
 https://nytimes.com/athletic/6321814/2025/05/01/colorado-rockies-april-statistical-analysis/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6325093/2025/05/01/mets-knicks-david-stearns/
 `Are the remnants of Colorado's championship core from 2022 going to show up now that the team's season is on the line?
 `\
 https://nytimes.com/athletic/6324663/2025/05/01/avalanche-stars-nhl-playoffs-game-6/
-
-**In an Uncertain Economy, McDonald’s Sees Spending Decline**\
-`The burger giant, a much-watch barometer for consumer sentiment, reported lower revenue in the first quarter.`\
-https://nytimes.com/2025/05/01/business/mcdonalds-earnings.html
-
-**‘Vulcanizadora’ Review: Guilt Trip**\
-`Two midlife losers reckon with past mistakes on a despairing and oddly haunting trip into the woods and out of their heads.`\
-https://nytimes.com/2025/05/01/movies/vulcanizadora-review.html
 

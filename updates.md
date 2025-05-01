@@ -1,3 +1,16 @@
+**With Minerals Deal, Trump Seems to Tie Himself to Future of Ukraine**\
+`The text of the agreement, made public by Ukraine’s government, made no mention of the security guarantees that Kyiv had long sought.`\
+https://nytimes.com/2025/05/01/world/europe/ukraine-trump-minerals-deal.html
+
+**Picking April MLB All-Star teams for the American League and National League**\
+`It's only the first month of a six-month season, but here are my picks for April All-Stars, the best at each position in the AL and NL. `\
+https://nytimes.com/athletic/6325707/2025/05/01/mlb-april-all-star-teams/
+
+**LeBrun: With Avalanche on the ropes, the pressure rises on their championship core**\
+`Are the remnants of Colorado's championship core from 2022 going to show up now that the team's season is on the line?
+`\
+https://nytimes.com/athletic/6324663/2025/05/01/avalanche-stars-nhl-playoffs-game-6/
+
 **LeBrun: With Avalanche on the ropes, the pressure rises on their championship core**\
 `Are the remnants of Colorado's championship core from 2022 going to show up now that the team's season is on the line?
 `\
