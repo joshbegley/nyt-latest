@@ -1,3 +1,15 @@
+**Tony Nominations Snubs and Surprises: ‘Othello’ Misses, Clooney Scores**\
+`Ensemble-driven plays like “Purpose” and “English” received a slew of nominations, while Denzel Washington, Jake Gyllenhaal and Idina Menzel were overlooked.`\
+https://nytimes.com/2025/05/01/theater/tony-nomination-snubs-othello.html
+
+**Kennedy Issues Demands for Vaccine Approvals that Could Affect Fall Covid Boosters**\
+`The agency suggested that clinical trials in humans may be required for updated Covid shots, raising questions about whether they will be available in the fall.`\
+https://nytimes.com/2025/05/01/us/rfk-jr-vaccine-safety-placebos-covid.html
+
+**The F Word Won’t Save Democrats**\
+`Here’s how they can defeat Trump — no expletive required.`\
+https://nytimes.com/2025/05/01/opinion/democrats-trump-slotkin-sanders.html
+
 **Yohe: Rise of Panthers, end of Lightning: 10 first-round NHL playoffs observations**\
 `I covered the entire Panthers-Lightning first-round series. Here's what stuck with me.`\
 https://nytimes.com/athletic/6325751/2025/05/01/panthers-lightning-nhl-playoffs-observations/

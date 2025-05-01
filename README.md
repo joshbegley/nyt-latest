@@ -1,3 +1,7 @@
+**Red Light: Is playoff physicality out of hand?**\
+`Plus: Updating the best Cup odds, and who’s leading our MVP watch? `\
+https://nytimes.com/athletic/6326921/2025/05/01/nhl-playoffs-red-light-newsletter-blues-jets/
+
 **Tony Nominations Snubs and Surprises: ‘Othello’ Misses, Clooney Scores**\
 `Ensemble-driven plays like “Purpose” and “English” received a slew of nominations, while Denzel Washington, Jake Gyllenhaal and Idina Menzel were overlooked.`\
 https://nytimes.com/2025/05/01/theater/tony-nomination-snubs-othello.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6326449/2025/05/01/maple-leafs-game-6-lineup-nhl-pl
 **Stan Love, Athlete With a Beach Boys Connection, Dies at 76**\
 `A former N.B.A. player and the father of the All-Star Kevin Love, he was also the brother of the pop group’s Mike Love and a caretaker for its troubled leader, Brian Wilson.`\
 https://nytimes.com/2025/05/01/arts/music/stan-love-dead.html
-
-**Colleges Know How Much You’re Willing to Pay. Here’s How.**\
-`Schools turn to little-known consultants, owned by private equity firms, to find applicants and calculate scholarships. Here’s how that affects the price you pay.`\
-https://nytimes.com/2025/05/01/business/college-tuition-price-consultants.html
 
