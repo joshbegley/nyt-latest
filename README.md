@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6323599/2025/05/01/ola-aina-nottingham-forest-perso
 https://nytimes.com/athletic/6304412/2025/05/01/durham-women-lottery-winners/
 
 **Lucas Giolito's strong debut wasted by Red Sox as Blue Jays win in extra innings**\
-`Giolito cruised through five innings before running into trouble with two outs in the sixth, turning a positive game into a disappointment.`\
+`Giolito cruised through five innings before running into trouble with two outs in the sixth. Toronto then rallied from a 6-0 deficit.`\
 https://nytimes.com/athletic/6325552/2025/05/01/lucas-giolito-red-sox-debut/
 
 **Multiple late mistakes doom Twins again in loss to Guardians**\
