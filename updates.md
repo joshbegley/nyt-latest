@@ -1,3 +1,19 @@
+**Coco Gauff cruises past Iga Swiatek to reach Madrid Open final for first time**\
+`Gauff has won her last three matches against Świątek, but this is her first win against her on clay.`\
+https://nytimes.com/athletic/6326782/2025/05/01/coco-gauff-iga-swiatek-madrid-open-result-analysis/
+
+**100 Days of Trump Style**\
+`In this administration, looking the part is crucial to playing the part.`\
+https://nytimes.com/2025/05/01/style/trump-style-100-days.html
+
+**Reds demote former All-Star closer Alexis Díaz, call up Luis Mey**\
+`Díaz, an All-Star in 2023, allowed three consecutive homers in the first game of the Reds' doubleheader loss to the Cardinals on Wednesday. `\
+https://nytimes.com/athletic/6326735/2025/05/01/reds-demote-former-all-star-closer-alexis-diaz-call-up-luis-mey/
+
+**At Jazz at Lincoln Center, Dave Chappelle Rallies to Keep ‘Tradition Alive’**\
+`Attendees at the organization’s gala, which celebrated Duke Ellington’s 125th birthday, shared what they listen to.`\
+https://nytimes.com/2025/05/01/style/dave-chappelle-lincoln-center-jazz.html
+
 **Deadly Storm Tears Through Texas and Oklahoma**\
 `At least two people died as heavy rains and hail poured down on the region.`\
 https://nytimes.com/video/weather/100000010140860/flooding-hail-texas-oklahoma.html
