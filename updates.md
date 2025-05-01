@@ -1,3 +1,23 @@
+**SharkNinja Recalls 1.8 Million Pressure Cookers After Burn Reports**\
+`The company is recalling Ninja Foodi OP300 series pressure cookers that were sold between January 2019 and March 2025 after more than 100 reported burn injuries, officials said.`\
+https://nytimes.com/2025/05/01/business/sharkninja-foodi-pressure-cooker-recall.html
+
+**Winnipeg Jets forward Mark Scheifele out for Game 6 against Blues**\
+`Mark Scheifele was injured in Game 5 and won't play Friday night.`\
+https://nytimes.com/athletic/6327148/2025/05/01/nhl-playoffs-winnipeg-jets-mark-scheifele/
+
+**Can California Set Its Own Air Pollution Rules?**\
+`This week, the House of Representatives voted to block the state’s ban on the sale of new gas-powered vehicles, challenging its rule-making authority.`\
+https://nytimes.com/2025/05/01/climate/california-air-pollution-electric-vehicles.html
+
+**What to Know About Syria’s Minorities and Sectarian Violence**\
+`The new government has pledged to unify Syria after overthrowing the Assad dictatorship. One of its biggest challenges is persistent sectarian violence.`\
+https://nytimes.com/2025/05/01/world/middleeast/syria-druse-alawites-kurds.html
+
+**Republicans Just Got a Leg Up in N.C.’s High-Stakes Election Fight**\
+`A law went into effect on Thursday giving the state’s Republican auditor power over the board of elections. It could have significant effects on a legal battle over an uncertified race.`\
+https://nytimes.com/2025/05/01/us/north-carolina-elections-board-republicans.html
+
 **For Trump Supporters, an ‘Exciting’ First 100 Days**\
 `The president’s supporters acknowledge that the ride is bumpy. But they say they are willing to sacrifice and wouldn’t have it any other way.`\
 https://nytimes.com/2025/05/01/us/politics/trump-supporters-100-days-times-poll.html
