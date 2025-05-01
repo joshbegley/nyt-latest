@@ -1,3 +1,5 @@
+
+
 **Rangers demote Jake Burger in hopes of 'reset' for first baseman: Sources**\
 `The Rangers acquired Burger from the Marlins in December for three prospects. He's batting .190 with a .561 OPS.`\
 https://nytimes.com/athletic/6327948/2025/05/01/rangers-demote-jake-burger/
