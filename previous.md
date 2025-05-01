@@ -1,3 +1,11 @@
+**Religion in Schools**\
+`A Supreme Court reporter and an education reporter explain faith’s new role in schools.`\
+https://nytimes.com/2025/05/01/briefing/religion-in-schools.html
+
+**Rockets feed off Dillon Brooks' composure, force Game 6 in emphatic fashion**\
+`Brooks's patience and attention to detail exemplified Houston's brilliant all-around effort. Can it carry over to San Francisco? `\
+https://nytimes.com/athletic/6325628/2025/05/01/dillon-brooks-rockets-playoffs-game-5/
+
 **A Contender for the Papacy Known for Promoting Dialogue With Other Faiths**\
 `Cardinal Jean-Marc Aveline comes from the diverse port city of Marseille in France.`\
 https://nytimes.com/2025/05/01/world/europe/aveline-pope-conclave-contender.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6324093/2025/05/01/minnesota-vikings-udfa-signings-
 **Trade Giannis? Maybe, but Bucks can be radical in keeping star in Milwaukee**\
 `Starting the trade machine for Giannis Antetokounmpo didn't take long, but making a deal isn't the only answer for Milwaukee.`\
 https://nytimes.com/athletic/6324261/2025/05/01/giannis-antetokounmpo-milwaukee-bucks-trade-rumors-nba/
-
-**Only 1 team used the minimum 13 pitchers in April. Now, the Phillies have a starter incoming**\
-`Ranger Suárez (back soreness) returns from the injured list Sunday.`\
-https://nytimes.com/athletic/6325468/2025/05/01/mlb-minimum-13-pitchers-april-phillies-starter/
-
-**Can Stanford's 'Nerd Nation' again have 'best of both worlds' in the NIL era?**\
-`Stanford has suffered several setbacks, but a new administration and the hire of Andrew Luck as football GM are inspiring hope.`\
-https://nytimes.com/athletic/6324460/2025/05/01/stanford-athletics-andrew-luck-nil-transfer-portal/
 

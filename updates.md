@@ -1,3 +1,11 @@
+**Religion in Schools**\
+`A Supreme Court reporter and an education reporter explain faith’s new role in schools.`\
+https://nytimes.com/2025/05/01/briefing/religion-in-schools.html
+
+**Rockets feed off Dillon Brooks' composure, force Game 6 in emphatic fashion**\
+`Brooks's patience and attention to detail exemplified Houston's brilliant all-around effort. Can it carry over to San Francisco? `\
+https://nytimes.com/athletic/6325628/2025/05/01/dillon-brooks-rockets-playoffs-game-5/
+
 **A Contender for the Papacy Known for Promoting Dialogue With Other Faiths**\
 `Cardinal Jean-Marc Aveline comes from the diverse port city of Marseille in France.`\
 https://nytimes.com/2025/05/01/world/europe/aveline-pope-conclave-contender.html
