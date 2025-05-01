@@ -1,9 +1,17 @@
+**LeBron on how long he'll keep playing in the NBA: 'I don't know the answer'**\
+`LeBron James reflected on his future in the NBA after the Lakers were eliminated from the playoffs Wednesday night.`\
+https://nytimes.com/athletic/6325797/2025/05/01/lebron-james-future-lakers/
+
+**Denzel Dumfries: Brilliant yet bafflingly underrated - just like Inter**\
+`The Dutchman deserves more credit for his excellence but could end this season as a European champion`\
+https://nytimes.com/athletic/6325164/2025/05/01/denzel-dumfries-inter-champions-league/
+
 **Word of the Day: rumination**\
 `This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/05/01/learning/word-of-the-day-rumination.html
 
 **Barcelona are the world's most fun team to watch – because they are flawed**\
-`Thrilling in attack but vulnerable in defence, Hansi Flick's team are box office entertainment this season`\
+`Thrilling in attack but vulnerable in defence, Hansi Flick's team are box-office entertainment this season`\
 https://nytimes.com/athletic/6325377/2025/05/01/barcelona-fun-watch/
 
 **Javier Mascherano: Inter Miami Champions Cup exit is just not good enough**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/01/world/asia/kashmir-attack-tourist-video.html
 **Thursday Briefing**\
 `A minerals deal between the U.S. and Ukraine.`\
 https://nytimes.com/2025/05/01/briefing/minerals-syria-britain.html
-
-**Jets' unlikely heroes step up to help beat Blues in Game 5: Takeaways**\
-`Mark Scheifele was injured and the likes of Vladislav Namestnikov and Nino Niederreiter stepped up in the Jets' 5-3 win.`\
-https://nytimes.com/athletic/6325602/2025/05/01/nhl-playoffs-jets-blues-game-5/
-
-**Wrexham director Kaleen Allyn: 'We could have invested in Liverpool but here, we can get our hands dirty'**\
-`Wrexham's executive director tells The Athletic why the Allyn family became minority investors in the club `\
-https://nytimes.com/athletic/6314814/2025/05/01/kaleen-allyn-wrexham-interview-reynolds-mcelhenney/
 
