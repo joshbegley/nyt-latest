@@ -1,3 +1,11 @@
+**Browns post-NFL Draft depth chart: Which rookies will be immediate contributors?**\
+`Of Cleveland's seven-man rookie class, five have pretty clear starting points on the team’s fluid depth chart. `\
+https://nytimes.com/athletic/6324971/2025/05/01/cleveland-browns-depth-chart-nfl-draft/
+
+**Who will win the Kentucky Derby? 6 key factors to inform your pick**\
+`Past victors showcased key traits that can help narrow the field of 2025 Kentucky Derby contenders.`\
+https://nytimes.com/athletic/6323768/2025/05/01/who-will-win-kentucky-derby-2025-advice/
+
 **Falcons post-NFL Draft depth chart: Can new-look defense generate pass rush?**\
 `The Falcons' offense remains largely the same, while the defense has undergone a makeover. Here's how the offseason depth chart looks.`\
 https://nytimes.com/athletic/6322277/2025/05/01/falcons-depth-chart-nfl-draft/
