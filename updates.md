@@ -1,3 +1,19 @@
+**FPL: The best premium players to own for the end-of-season run-in**\
+`Saka? Palmer? Watkins? Holly Shand runs the rule over which premium players are worth keeping hold of for the final four weeks of the season`\
+https://nytimes.com/athletic/6319922/2025/05/01/fantasy-premier-league-premium-gw35/
+
+**Leeds United squad audit: The Premier League beckons. Who is ready?**\
+`Leeds United have won promotion to the Premier League. What does that mean for their players?`\
+https://nytimes.com/athletic/6324718/2025/05/01/leeds-squad-audit-premier-league-contracts/
+
+**What are Manchester City's key aims in the transfer market this summer?**\
+`It promises to be another busy window for City as they try and to reduce their overall wage bill while evolving the squad `\
+https://nytimes.com/athletic/6320707/2025/05/01/manchester-city-summer-transfer-plans/
+
+**Earthy interview: 'My family are West Ham crazy - I'm still a season ticket holder'**\
+`George Earthy is on loan at Bristol City. He thinks it will stand him in good stead for his return to West Ham this summer`\
+https://nytimes.com/athletic/6319325/2025/05/01/george-earthy-west-ham-interview/
+
 **Antonio Rudiger: The madness and brilliance of Real Madrid's 'El Loco'**\
 `The Real Madrid defender lives on the edge and has been banned for six matches after clashing with a referee at the Copa del Rey final`\
 https://nytimes.com/athletic/6321239/2025/05/01/rudiger-real-madrid-chelsea-bengoetxea/
