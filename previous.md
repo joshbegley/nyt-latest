@@ -1,3 +1,23 @@
+**Jets' unlikely heroes step up to help beat Blues in Game 5: Takeaways**\
+`Mark Scheifele was injured and the likes of Vladislav Namestnikov and Nino Niederreiter stepped up in the Jets' 5-3 win.`\
+https://nytimes.com/athletic/6325602/2025/05/01/nhl-playoffs-jets-blues-game-5/
+
+**Wrexham director Kaleen Allyn: 'We could have invested in Liverpool but here, we can get our hands dirty'**\
+`Wrexham's executive director tells The Athletic why the Allyn family became minority investors in the club `\
+https://nytimes.com/athletic/6314814/2025/05/01/kaleen-allyn-wrexham-interview-reynolds-mcelhenney/
+
+**Everton wanted Purdy to stay – his role is another to be filled in pivotal summer rebuild**\
+`Purdy’s shock exit means Everton will have to balance finding the right successor with need to start putting plans in place for busy summer`\
+https://nytimes.com/athletic/6323473/2025/05/01/everton-dan-purdy-kinnear-rebuild/
+
+**Rice is stamping his authority on Arsenal - and exposing timid Odegaard**\
+`Arsenal need their captain to rediscover the belief of last season when he was cutting open defences at will - Rice is leading by example`\
+https://nytimes.com/athletic/6323641/2025/05/01/declan-rice-martin-odegard-arsenal-captain/
+
+**Harry Maguire and a Manchester United redemption - thanks to his goalscoring exploits**\
+`Maguire has joked that he started out up front, his dad moved him into midfield, then defence and he was worried he'd end up in goal`\
+https://nytimes.com/athletic/6324196/2025/05/01/harry-maguire-manchester-united-redemption-striker/
+
 **FPL: The best premium players to own for the end-of-season run-in**\
 `Saka? Palmer? Watkins? Holly Shand runs the rule over which premium players are worth keeping hold of for the final four weeks of the season`\
 https://nytimes.com/athletic/6319922/2025/05/01/fantasy-premier-league-premium-gw35/
@@ -10,31 +30,11 @@ https://nytimes.com/athletic/6324718/2025/05/01/leeds-squad-audit-premier-league
 `It promises to be another busy window for City as they try and to reduce their overall wage bill while evolving the squad `\
 https://nytimes.com/athletic/6320707/2025/05/01/manchester-city-summer-transfer-plans/
 
+**Van de Ven and Romero have defined Postecoglou’s tenure - and is key to European glory**\
+`Spurs' first-choice centre-back pairing has only started together 15 times this season. It’s why things have gone disastrously wrong`\
+https://nytimes.com/athletic/6323060/2025/05/01/micky-van-de-ven-cristian-romero-tottenham-postecoglou/
+
 **Earthy interview: 'My family are West Ham crazy - I'm still a season ticket holder'**\
 `George Earthy is on loan at Bristol City. He thinks it will stand him in good stead for his return to West Ham this summer`\
 https://nytimes.com/athletic/6319325/2025/05/01/george-earthy-west-ham-interview/
-
-**Antonio Rudiger: The madness and brilliance of Real Madrid's 'El Loco'**\
-`The Real Madrid defender lives on the edge and has been banned for six matches after clashing with a referee at the Copa del Rey final`\
-https://nytimes.com/athletic/6321239/2025/05/01/rudiger-real-madrid-chelsea-bengoetxea/
-
-**Premier League race for top five: Man City's confidence, Forest's five cup finals - and are Villa on the brink?**\
-`Updates and analysis from the increasingly tight race to to qualify for next season's Champions League`\
-https://nytimes.com/athletic/6323501/2025/05/01/premier-league-top-five-race-analysis-man-city-chelsea/
-
-**How much Liverpool earned by winning the Premier League**\
-`A breakdown of how much Liverpool's income has been boosted by their success this season`\
-https://nytimes.com/athletic/6315318/2025/05/01/how-much-liverpool-earned-by-winning-the-premier-league/
-
-**Discussing 10 football photos with Athletic Club's trophy hero before they face Man Utd**\
-`From Athletic's iconic celebrations on a river barge to Harry Maguire's winner against Lyon, Alex Berenguer talks 10 football photographs`\
-https://nytimes.com/athletic/6324399/2025/05/01/alex-berenguer-athletic-club-manchester-united/
-
-**'He makes us laugh every day': What Ola Aina's team-mates say about Forest full-back**\
-`Ola Aina has been hugely missed by Forest while out with injury. Paul Taylor spoke to his team-mates to understand the impact he's had.`\
-https://nytimes.com/athletic/6323599/2025/05/01/ola-aina-nottingham-forest-personality/
-
-**Durham Women, the second-tier outsiders now backed by lottery winners**\
-`The Championship side are a rarity in having no links to a men's club but they do have the support of EuroMillions-winning owners`\
-https://nytimes.com/athletic/6304412/2025/05/01/durham-women-lottery-winners/
 

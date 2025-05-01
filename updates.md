@@ -1,3 +1,27 @@
+**Jets' unlikely heroes step up to help beat Blues in Game 5: Takeaways**\
+`Mark Scheifele was injured and the likes of Vladislav Namestnikov and Nino Niederreiter stepped up in the Jets' 5-3 win.`\
+https://nytimes.com/athletic/6325602/2025/05/01/nhl-playoffs-jets-blues-game-5/
+
+**Wrexham director Kaleen Allyn: 'We could have invested in Liverpool but here, we can get our hands dirty'**\
+`Wrexham's executive director tells The Athletic why the Allyn family became minority investors in the club `\
+https://nytimes.com/athletic/6314814/2025/05/01/kaleen-allyn-wrexham-interview-reynolds-mcelhenney/
+
+**Everton wanted Purdy to stay – his role is another to be filled in pivotal summer rebuild**\
+`Purdy’s shock exit means Everton will have to balance finding the right successor with need to start putting plans in place for busy summer`\
+https://nytimes.com/athletic/6323473/2025/05/01/everton-dan-purdy-kinnear-rebuild/
+
+**Rice is stamping his authority on Arsenal - and exposing timid Odegaard**\
+`Arsenal need their captain to rediscover the belief of last season when he was cutting open defences at will - Rice is leading by example`\
+https://nytimes.com/athletic/6323641/2025/05/01/declan-rice-martin-odegard-arsenal-captain/
+
+**Harry Maguire and a Manchester United redemption - thanks to his goalscoring exploits**\
+`Maguire has joked that he started out up front, his dad moved him into midfield, then defence and he was worried he'd end up in goal`\
+https://nytimes.com/athletic/6324196/2025/05/01/harry-maguire-manchester-united-redemption-striker/
+
+**Van de Ven and Romero have defined Postecoglou’s tenure - and is key to European glory**\
+`Spurs' first-choice centre-back pairing has only started together 15 times this season. It’s why things have gone disastrously wrong`\
+https://nytimes.com/athletic/6323060/2025/05/01/micky-van-de-ven-cristian-romero-tottenham-postecoglou/
+
 **FPL: The best premium players to own for the end-of-season run-in**\
 `Saka? Palmer? Watkins? Holly Shand runs the rule over which premium players are worth keeping hold of for the final four weeks of the season`\
 https://nytimes.com/athletic/6319922/2025/05/01/fantasy-premier-league-premium-gw35/
