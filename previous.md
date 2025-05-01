@@ -1,3 +1,7 @@
+**Barcelona are the world's most fun team to watch – because they are flawed**\
+`Thrilling in attack but vulnerable in defence, Hansi Flick's team are box office entertainment this season`\
+https://nytimes.com/athletic/6325377/2025/05/01/barcelona-fun-watch/
+
 **Javier Mascherano: Inter Miami Champions Cup exit is just not good enough**\
 `The Miami head coach was unimpressed as Lionel Messi and company crashed out of Concacaf's most important club tournament.`\
 https://nytimes.com/athletic/6325666/2025/05/01/inter-miami-mascherano-concacaf-champions-cup-vancouver/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6314814/2025/05/01/kaleen-allyn-wrexham-interview-r
 **Everton wanted Purdy to stay – his role is another to be filled in pivotal summer rebuild**\
 `Purdy’s shock exit means Everton will have to balance finding the right successor with need to start putting plans in place for busy summer`\
 https://nytimes.com/athletic/6323473/2025/05/01/everton-dan-purdy-kinnear-rebuild/
-
-**Rice is stamping his authority on Arsenal - and exposing timid Odegaard**\
-`Arsenal need their captain to rediscover the belief of last season when he was cutting open defences at will - Rice is leading by example`\
-https://nytimes.com/athletic/6323641/2025/05/01/declan-rice-martin-odegard-arsenal-captain/
 

@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6325377/2025/05/01/barcelona-fun-watch/
 
 **Javier Mascherano: Inter Miami Champions Cup exit is just not good enough**\
-`The Miami head coach was unimpressed as Lionel Messi and company crashed out of Concacaf's most important club tournament.`\
+`Miami's coach was unimpressed as Lionel Messi and company crashed out of Concacaf's most important club tournament.`\
 https://nytimes.com/athletic/6325666/2025/05/01/inter-miami-mascherano-concacaf-champions-cup-vancouver/
 
 **Harris Returns to Political Life, Warning of a Constitutional Crisis**\
