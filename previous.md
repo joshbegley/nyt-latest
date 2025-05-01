@@ -1,3 +1,7 @@
+**Israel Scrambles to Extinguish Wildfires Near Jerusalem for 2nd Day**\
+`Authorities reopened the main highway between Tel Aviv and Jerusalem after gaining partial control of the blaze, but warned that a change in the wind could fan the flames.`\
+https://nytimes.com/2025/05/01/world/middleeast/israel-wildfires-jerusalem.html
+
 **Elche ban fans from eating sunflower seeds inside stadium**\
 `Sunflower seeds, known as 'pipas' in Spanish, are a popular snack in Spain and are traditionally eaten during soccer matches by supporters.`\
 https://nytimes.com/athletic/6326116/2025/05/01/sunflower-seeds-spanish-football-food/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6321814/2025/05/01/colorado-rockies-april-statistic
 **Revisiting the 2020 NHL Draft: Skating, goalie development and more lessons**\
 `What could potentially apply from the 2020 class to the 2025 NHL Draft and beyond?`\
 https://nytimes.com/athletic/6194500/2025/05/01/nhl-draft-2020-lessons-2025/
-
-**Meet Cole Reschny, the hottest prospect in the 2025 NHL Draft: 'He stirs the drink'**\
-`The "professional, driven" 18-year-old from Macklin, Sask., could be the best 200-foot player available in this year's draft.`\
-https://nytimes.com/athletic/6302768/2025/05/01/cole-reschny-nhl-draft-2025-prospect/
 

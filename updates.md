@@ -1,3 +1,7 @@
+**Israel Scrambles to Extinguish Wildfires Near Jerusalem for 2nd Day**\
+`Authorities reopened the main highway between Tel Aviv and Jerusalem after gaining partial control of the blaze, but warned that a change in the wind could fan the flames.`\
+https://nytimes.com/2025/05/01/world/middleeast/israel-wildfires-jerusalem.html
+
 **Elche ban fans from eating sunflower seeds inside stadium**\
 `Sunflower seeds, known as 'pipas' in Spanish, are a popular snack in Spain and are traditionally eaten during soccer matches by supporters.`\
 https://nytimes.com/athletic/6326116/2025/05/01/sunflower-seeds-spanish-football-food/
