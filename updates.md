@@ -1,3 +1,5 @@
+
+
 **In a Turbulent Time, TEFAF New York Keeps Its Focus on the Classics**\
 `With the art market outlook uncertain, the New York fair aims to keep collectors coming, with a wide array of art and (relatively) less expensive prices.`\
 https://nytimes.com/2025/05/01/arts/design/tefaf-new-york-art-market.html
