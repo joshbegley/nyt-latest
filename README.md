@@ -1,3 +1,7 @@
+**The Chelsea dynasty: How they celebrated an 'unbelievable' sixth Women's Super League title in a row**\
+`Clinching the WSL title on Wednesday night took some league organisers by surprise. Chelsea's historic triumph is one they will savour`\
+https://nytimes.com/athletic/6325777/2025/05/01/chelsea-wsl-champions-six-bompastor-bronze/
+
 **LeBron on how long he'll keep playing in the NBA: 'I don't know the answer'**\
 `LeBron James reflected on his future in the NBA after the Lakers were eliminated from the playoffs Wednesday night.`\
 https://nytimes.com/athletic/6325797/2025/05/01/lebron-james-future-lakers/
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/05/01/todays-new-york-times
 **Tourist Selfie Video Captures Kashmir Terror Attack**\
 `A tourist enjoying a zip line ride in a picturesque valley inadvertently captured chaos in the background as militants opened fire below him.`\
 https://nytimes.com/2025/05/01/world/asia/kashmir-attack-tourist-video.html
-
-**Thursday Briefing**\
-`A minerals deal between the U.S. and Ukraine.`\
-https://nytimes.com/2025/05/01/briefing/minerals-syria-britain.html
 
