@@ -1,3 +1,15 @@
+**Submit your Panthers mailbag questions to Joe Person**\
+`Questions about the Panthers' draft? What about Jadeveon Clowney's future or Carolina's ceiling for 2025?`\
+https://nytimes.com/athletic/6327493/2025/05/01/carolina-panthers-mailbag-questions-2025-post-draft/
+
+**Amazon Says Operating Profits May Decline Amid Economic Uncertainty**\
+`The company reported overall mixed results, sending share prices down in after-hours trading.`\
+https://nytimes.com/2025/05/01/business/amazon-revenue-earnings-tariffs.html
+
+**Sources: Chicago Fire have MLS priority, inside track to sign De Bruyne**\
+`The Belgian star could be the latest big name to wind up in the Windy City.`\
+https://nytimes.com/athletic/6327001/2025/05/01/kevin-de-bruyne-chicago-fire-mls-manchester-city/
+
 **Martin Scorsese Got One of Pope Francis’ Final Interviews**\
 `The project will highlight scripted short films from international communities along with snippets of a conversation between the director and the pontiff, who died last month.`\
 https://nytimes.com/2025/05/01/movies/martin-scorsese-pope-francis-documentary.html

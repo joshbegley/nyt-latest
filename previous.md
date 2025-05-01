@@ -1,3 +1,15 @@
+**Submit your Panthers mailbag questions to Joe Person**\
+`Questions about the Panthers' draft? What about Jadeveon Clowney's future or Carolina's ceiling for 2025?`\
+https://nytimes.com/athletic/6327493/2025/05/01/carolina-panthers-mailbag-questions-2025-post-draft/
+
+**Amazon Says Operating Profits May Decline Amid Economic Uncertainty**\
+`The company reported overall mixed results, sending share prices down in after-hours trading.`\
+https://nytimes.com/2025/05/01/business/amazon-revenue-earnings-tariffs.html
+
+**Sources: Chicago Fire have MLS priority, inside track to sign De Bruyne**\
+`The Belgian star could be the latest big name to wind up in the Windy City.`\
+https://nytimes.com/athletic/6327001/2025/05/01/kevin-de-bruyne-chicago-fire-mls-manchester-city/
+
 **Martin Scorsese Got One of Pope Francis’ Final Interviews**\
 `The project will highlight scripted short films from international communities along with snippets of a conversation between the director and the pontiff, who died last month.`\
 https://nytimes.com/2025/05/01/movies/martin-scorsese-pope-francis-documentary.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/01/arts/television/narrow-road-to-the-deep-north-jac
 **When You’re Craving One Specific Food**\
 `Yubuchobap with lots of fillings, classic zongzi and the ‘Swingle.’`\
 https://nytimes.com/2025/05/01/dining/when-youre-craving-one-specific-food.html
-
-**The World Still Speaks in U.S. Dollars**\
-`Confidence in the world’s reserve currency is in doubt, leaving an opening for alternatives like the euro. But it won’t be easy.`\
-https://nytimes.com/2025/05/01/business/dealbook/us-dollar-fall-reserve-currency-alternatives-euro.html
-
-**A’s set to promote pitching prospect Gunnar Hoglund: Source**\
-`Hoglund had a 2.43 ERA in six starts for Triple-A Las Vegas. He was the main prospect in the 2022 deal that sent Matt Chapman to Toronto.`\
-https://nytimes.com/athletic/6327411/2025/05/01/gunnar-hoglund-athletics-mlb-debut/
-
-**Death Toll From a Wave of Sectarian Violence in Syria Passes 100**\
-`The casualties from clashes this week rose sharply as the tensions moved closer to a major southern region controlled by the country’s Druse minority.`\
-https://nytimes.com/2025/05/01/world/middleeast/syria-sectarian-violence-100-killed.html
 
