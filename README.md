@@ -1,3 +1,7 @@
+**Judge Rebukes Apple and Orders It to Loosen Grip on App Store**\
+`The ruling was a stinging defeat for Apple in a long-running antitrust case brought by Epic Games, the maker of Fortnite, on behalf of app developers.`\
+https://nytimes.com/2025/04/30/technology/apple-epic-app-store-ruling.html
+
 **‘Thunderbolts*’ Review: Florence Pugh and Pals Kick Some Asterisk**\
 `The actress is the main attraction in Marvel’s latest, about a group of ragtag super-types who join forces to (spoiler alert!) save the world.`\
 https://nytimes.com/2025/04/30/movies/thunderbolts-review-florence-pugh-kicks-asterisk.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6325056/2025/04/30/wild-golden-knights-game-6-lineu
 **Nats staffer has medical emergency during BP, rushed to hospital before game**\
 `Washington canceled its pregame workout session as players and coaches left the field distraught.`\
 https://nytimes.com/athletic/6325014/2025/04/30/nationals-staffer-medical-emergency-rushed-hospital/
-
-**Cubs hitting coach Dustin Kelly speaks on Kyle Tucker, Chicago's potent offense**\
-`On the last day of April, the Cubs offense ranked first or second in the majors in multiple categories, including OPS, hits and runs scored`\
-https://nytimes.com/athletic/6324995/2025/04/30/chicago-cubs-hitting-coach-dustin-kelly-interview/
 
