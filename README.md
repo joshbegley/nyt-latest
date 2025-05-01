@@ -1,3 +1,7 @@
+**Rick Pitino vs. Kentucky: New lineup in CBS Sports Classic will pit Cats vs. former coach**\
+`Pitino, 72 and entering his third season at St. John’s, coached at Kentucky from 1989-97 and won the 1997 national championship.`\
+https://nytimes.com/athletic/6327179/2025/05/01/rick-pitino-mark-pope-st-johns-kentucky-cbs-sports-classic/
+
 **What we're hearing about the Mets' pitching staff**\
 `Recent injuries call for a bullpen shuffle and creative management of the rotation. Here's what to expect. `\
 https://nytimes.com/athletic/6327144/2025/05/01/mets-pitching-staff-injuires/
@@ -5,6 +9,10 @@ https://nytimes.com/athletic/6327144/2025/05/01/mets-pitching-staff-injuires/
 **C.I.A. Aims to Recruit Chinese Nationals With New Videos**\
 `The appeal reflects the priority John Ratcliffe, the C.I.A. director, has placed on increasing the agency’s intelligence collection on China.`\
 https://nytimes.com/2025/05/01/us/politics/cia-china-spy-recruit.html
+
+**Champions League projections 2024-25: Who will lift the trophy in Munich on May 31?**\
+`Here's how the rest of the 2024-25 Champions League is projected to play out...`\
+https://nytimes.com/athletic/5793492/2025/05/01/champions-league-projections/
 
 **Drake Maye 'pumped' about Patriots adding Will Campbell, new faces on offense**\
 `New England's second-year quarterback is excited about his new weapons on offense. "We found answers at a lot of different spots."`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/01/world/asia/india-pakistan-kashmir-de-escalation.h
 **Texas Judge Strikes Down Trump’s Use of Alien Enemies Act to Deport Venezuelans**\
 `The ruling, which is limited to the Southern District of Texas, prohibited the administration from using the wartime law because the president’s claims about a Venezuelan gang do not add up to an “invasion.”`\
 https://nytimes.com/2025/05/01/us/texas-judge-trump-alien-enemies-act.html
-
-**How The Times Covers Crowds: Focusing on the Content, Not the Count**\
-`When reporting from protests, campaign events or other gatherings, we want to bring readers into the action on the ground.`\
-https://nytimes.com/2025/05/01/insider/times-journalism-protests-crowds.html
-
-**Fantasy baseball bullpen report featuring rising relievers Ryan Zeferjahn and Kyle Leahy**\
-`Greg Jewett tracks all the role changes across MLB bullpens, noting this week that Kyle Leahy is a rising reliever for the Cardinals.`\
-https://nytimes.com/athletic/6326793/2025/05/01/fantasy-baseball-bullpen-report-rising-relievers-leahy/
 

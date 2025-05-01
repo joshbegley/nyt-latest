@@ -1,3 +1,7 @@
+**What we're hearing about the Mets' pitching staff**\
+`Recent injuries call for a bullpen shuffle and creative management of the rotation. Here's what to expect. `\
+https://nytimes.com/athletic/6327144/2025/05/01/mets-pitching-staff-injuires/
+
 **C.I.A. Aims to Recruit Chinese Nationals With New Videos**\
 `The appeal reflects the priority John Ratcliffe, the C.I.A. director, has placed on increasing the agency’s intelligence collection on China.`\
 https://nytimes.com/2025/05/01/us/politics/cia-china-spy-recruit.html
