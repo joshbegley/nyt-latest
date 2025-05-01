@@ -1,3 +1,11 @@
+**The 5.4.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/05/01/the-5425-issue
+
+**Upheaval in Washington Hinders Campaign Against Bird Flu**\
+`Determined to cut costs and manage communications, the Trump administration is moving too slowly to contain the virus, experts say.`\
+https://nytimes.com/2025/05/01/health/bird-flu-farms-usda.html
+
 **Rick Pitino vs. Kentucky: New lineup in CBS Sports Classic will pit Cats vs. former coach**\
 `Pitino, 72 and entering his third season at St. John’s, coached at Kentucky from 1989-97 and won the 1997 national championship.`\
 https://nytimes.com/athletic/6327179/2025/05/01/rick-pitino-mark-pope-st-johns-kentucky-cbs-sports-classic/
