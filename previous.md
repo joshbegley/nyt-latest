@@ -1,3 +1,11 @@
+**The Pulse: The Lakers’ swift collapse**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6325263/2025/05/01/the-lakers-swift-collapse-is-done-plus-a-scary-incident-in-pittsburgh/
+
+**Rising U.S. tennis talent Tyra Grant will switch allegiance to Italy**\
+`Grant, 17, was born and raised in Italy but has been training at the national U.S. tennis campus in Florida since 2023.`\
+https://nytimes.com/athletic/6326029/2025/05/01/tennis-tyra-grant-italy-usa/
+
 **Brighton's Hurzeler speaks with Yaya Toure for tips on managing African players**\
 `Toure, assistant coach of the Saudi Arabia national team, visited Brighton's training complex on Wednesday to speak with Hurzeler.`\
 https://nytimes.com/athletic/6326061/2025/05/01/brighton-hurzeler-yaya-toure/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6324460/2025/05/01/stanford-athletics-andrew-luck-n
 **Panthers take over Lightning as NHL's Florida powerhouse: 'It was our turn, now it's theirs'**\
 `There is a changing of the guard in Florida and the Eastern Conference, as the Panthers eliminated the Lightning from the playoffs again.`\
 https://nytimes.com/athletic/6325209/2025/05/01/panthers-lightning-florida-nhl-playoffs/
-
-**Another lost Bucks season: Why Milwaukee looks stuck amid Giannis trade chatter**\
-`Damian Lillard's injury changed everything for the Bucks' present and future. What will they look like when they return?`\
-https://nytimes.com/athletic/6325492/2025/05/01/giannis-bucks-trade-chatter/
-
-**Inside the Hurricanes' multi-continent mission to get top Russian prospect Alexander Nikishin to the U.S.**\
-`Nikishin is available for the playoffs after a six-day journey that took him more than 10,000 miles across six cities in three continents.`\
-https://nytimes.com/athletic/6324838/2025/05/01/nhl-playoffs-carolina-hurricanes-alexander-nikishin-russia/
 

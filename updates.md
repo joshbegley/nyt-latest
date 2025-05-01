@@ -1,3 +1,11 @@
+**The Pulse: The Lakers’ swift collapse**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6325263/2025/05/01/the-lakers-swift-collapse-is-done-plus-a-scary-incident-in-pittsburgh/
+
+**Rising U.S. tennis talent Tyra Grant will switch allegiance to Italy**\
+`Grant, 17, was born and raised in Italy but has been training at the national U.S. tennis campus in Florida since 2023.`\
+https://nytimes.com/athletic/6326029/2025/05/01/tennis-tyra-grant-italy-usa/
+
 **Brighton's Hurzeler speaks with Yaya Toure for tips on managing African players**\
 `Toure, assistant coach of the Saudi Arabia national team, visited Brighton's training complex on Wednesday to speak with Hurzeler.`\
 https://nytimes.com/athletic/6326061/2025/05/01/brighton-hurzeler-yaya-toure/
