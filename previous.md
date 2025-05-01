@@ -1,3 +1,7 @@
+**A Contender for the Papacy Known for Promoting Dialogue With Other Faiths**\
+`Cardinal Jean-Marc Aveline comes from the diverse port city of Marseille in France.`\
+https://nytimes.com/2025/05/01/world/europe/aveline-pope-conclave-contender.html
+
 **The Pulse: The Lakers’ swift collapse**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6325263/2025/05/01/the-lakers-swift-collapse-is-done-plus-a-scary-incident-in-pittsburgh/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6325468/2025/05/01/mlb-minimum-13-pitchers-april-ph
 **Can Stanford's 'Nerd Nation' again have 'best of both worlds' in the NIL era?**\
 `Stanford has suffered several setbacks, but a new administration and the hire of Andrew Luck as football GM are inspiring hope.`\
 https://nytimes.com/athletic/6324460/2025/05/01/stanford-athletics-andrew-luck-nil-transfer-portal/
-
-**Panthers take over Lightning as NHL's Florida powerhouse: 'It was our turn, now it's theirs'**\
-`There is a changing of the guard in Florida and the Eastern Conference, as the Panthers eliminated the Lightning from the playoffs again.`\
-https://nytimes.com/athletic/6325209/2025/05/01/panthers-lightning-florida-nhl-playoffs/
 

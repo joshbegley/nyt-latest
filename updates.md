@@ -1,3 +1,7 @@
+**A Contender for the Papacy Known for Promoting Dialogue With Other Faiths**\
+`Cardinal Jean-Marc Aveline comes from the diverse port city of Marseille in France.`\
+https://nytimes.com/2025/05/01/world/europe/aveline-pope-conclave-contender.html
+
 **The Pulse: The Lakers’ swift collapse**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6325263/2025/05/01/the-lakers-swift-collapse-is-done-plus-a-scary-incident-in-pittsburgh/
