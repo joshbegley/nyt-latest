@@ -1,3 +1,28 @@
+**Kentucky Derby 2025 fashion trends from Timothée Chalamet to 'Wicked'**\
+`Local craftspeople are in many ways the engine of the Derby's success. They give us the inside scoop on this year's trends.`\
+https://nytimes.com/athletic/6324185/2025/05/01/kentucky-derby-fashion-hat-trends-designers-milliners/
+
+**For a Padres rookie, path to majors paved by John Altobelli, legendary coach who perished with Kobe Bryant**\
+`Five years after John Altobelli’s death, David Morgan is the first player from the coach’s final team to reach the majors.`\
+https://nytimes.com/athletic/6325617/2025/05/01/padres-david-morgan-john-altobelli/
+
+**Frieze, Premiere Art Fair Company, Sold on Eve of New York’s Art Week**\
+`The deal would bring seven art fairs under a new private company founded by the entertainment mogul Ari Emanuel, former chief executive of Frieze’s owner, Endeavor.`\
+https://nytimes.com/2025/05/01/arts/frieze-art-fair-company-sold.html
+
+**The L.A. Kings are running out of time to prove that this year is different**\
+`If this is truly a different Kings team, then they must prove it Thursday night in Game 6 with a win over the Oilers.
+`\
+https://nytimes.com/athletic/6325194/2025/05/01/la-kings-oilers-nhl-playoffs-game-6/
+
+**Homegrown Eagles rookie Jihaad Campbell has beaten injuries before. Will he do it again?**\
+`The Eagles view Jihaad Campbell as a long-term investment.`\
+https://nytimes.com/athletic/6320425/2025/05/01/eagles-rookie-jihaad-campbell-injuries/
+
+**Tesla Chair Denies That Board Sought to Replace Elon Musk**\
+`Robyn Denholm, who leads Tesla’s board, said on social media that board members were “highly confident” in Mr. Musk, the company’s chief executive.`\
+https://nytimes.com/2025/05/01/business/tesla-board-elon-musk.html
+
 **Corrections: May 1, 2025**\
 `Corrections that appeared in print on Thursday, May 1, 2025.`\
 https://nytimes.com/2025/05/01/pageoneplus/corrections-may-1-2025.html
@@ -13,28 +38,4 @@ https://nytimes.com/athletic/6246452/2025/05/01/erling-haaland-injury-rodri-retu
 **Trans Women Barred From Competing in Women’s Soccer in England**\
 `The Football Association, the national governing body, said it had changed its policy as a result of a ruling last month by the British Supreme Court.`\
 https://nytimes.com/2025/05/01/world/europe/trans-women-soccer-england-ban.html
-
-**How Much Time Will Musk Devote to Tesla?**\
-`The carmaker denied a report that its board had explored finding a successor to Elon Musk. But even if he sticks around, he and the company face big challenges.`\
-https://nytimes.com/2025/05/01/business/dealbook/tesla-musk-ceo.html
-
-**Is Texas really spending $40 million on its 2025 football roster?**\
-`If the Longhorns' budget range is accurate, it represents a significant leap from the previous highest known roster budget in the sport.`\
-https://nytimes.com/athletic/6325429/2025/05/01/texas-football-roster-budget-nil/
-
-**Hodgkinson to race 800m at London Diamond League**\
-`The 23-year-old Briton went unbeaten over the distance in 2024, winning European and Olympic titles.`\
-https://nytimes.com/athletic/6326289/2025/05/01/keely-hodgkinson-london-diamond-league/
-
-**Fatal Storm Rips Through Oklahoma and Texas, Flooding Roads**\
-`At least two people were reported to have died as heavy rains soaked the region. More thunderstorms were expected on Thursday.`\
-https://nytimes.com/2025/05/01/us/oklahoma-texas-storm.html
-
-**Revenge of Rudy: Gobert and Wolves resoundingly clear the Luka-LeBron hurdle**\
-`Dismissed before the series began, Minnesota dominated Luka and LeBron's Lakers in just about every aspect.`\
-https://nytimes.com/athletic/6324266/2025/05/01/rudy-gobert-timberwolves-playoffs-game-5-lakers/
-
-**Meet the Chargers' undrafted free agents: Nuggets on all 18 players**\
-`Four members of the Chargers' UDFA class last year eventually earned futures contracts. How many can stick around this year?`\
-https://nytimes.com/athletic/6324187/2025/05/01/chargers-2025-nfl-draft-undrafted-free-agents/
 
