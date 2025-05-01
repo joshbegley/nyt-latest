@@ -1,3 +1,7 @@
+**Kashmir Is a Wonderland. An Attack Shows It Is Also a Cradle of Despair.**\
+`The terrorist massacre of 26 innocent people has magnified the alienation long felt in a region that lives under tight watch and has limited democratic rights.`\
+https://nytimes.com/2025/05/01/world/asia/india-terrorist-attack-kashmir.html
+
 **In the Back of an Uber**\
 `Tell us a story, real or made up, that is inspired by this image.`\
 https://nytimes.com/2025/05/01/learning/in-the-back-of-an-uber.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/01/arts/television/seth-meyers-trump-100-days.html
 **The Chelsea dynasty: How they celebrated an 'unbelievable' sixth Women's Super League title in a row**\
 `Clinching the WSL title on Wednesday night took some league organisers by surprise. Chelsea's historic triumph is one they will savour`\
 https://nytimes.com/athletic/6325777/2025/05/01/chelsea-wsl-champions-six-bompastor-bronze/
-
-**LeBron on how long he'll keep playing in the NBA: 'I don't know the answer'**\
-`LeBron James reflected on his future in the NBA after the Lakers were eliminated from the playoffs Wednesday night.`\
-https://nytimes.com/athletic/6325797/2025/05/01/lebron-james-future-lakers/
 
