@@ -1,3 +1,11 @@
+**Tourist Selfie Video Captures Kashmir Terror Attack**\
+`A tourist enjoying a zip line ride in a picturesque valley inadvertently captured chaos in the background as militants opened fire below him.`\
+https://nytimes.com/2025/05/01/world/asia/kashmir-attack-tourist-video.html
+
+**Thursday Briefing**\
+`A minerals deal between the U.S. and Ukraine.`\
+https://nytimes.com/2025/05/01/briefing/minerals-syria-britain.html
+
 **Jets' unlikely heroes step up to help beat Blues in Game 5: Takeaways**\
 `Mark Scheifele was injured and the likes of Vladislav Namestnikov and Nino Niederreiter stepped up in the Jets' 5-3 win.`\
 https://nytimes.com/athletic/6325602/2025/05/01/nhl-playoffs-jets-blues-game-5/
