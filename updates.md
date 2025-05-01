@@ -1,3 +1,15 @@
+**Speaking a Gibberish Language**\
+`Aidan Deshong and Adam Levav move their rears. In a completely innocent and cruciverbal way, of course.`\
+https://nytimes.com/2025/04/30/crosswords/daily-puzzle-2025-05-01.html
+
+**The Poetry Challenge Day 4: This poem is about staying up all night. Use it to greet the day.**\
+`One day remains to memorize this week’s poem. (You probably already know more than you realize!) Let’s stay merry.`\
+https://nytimes.com/interactive/2025/books/edna-st-vincent-millay-morning-aubade.html
+
+**Vancouver thrashes Messi's Miami to reach Concacaf Champions Cup final**\
+`Messi and Miami fall short of their target, while Vancouver's surge through the Concacaf Champions Cup continues.`\
+https://nytimes.com/athletic/6325330/2025/04/30/vancouver-whitecaps-concacaf-champions-cup-semifinals-inter-miami-messi/
+
 **Giants drop game and series to Padres, end April on a confusing note**\
 `The Giants had a great April but it ended badly. It might still be too early to know quite what to make of the 2025 team.`\
 https://nytimes.com/athletic/6325033/2025/04/30/sf-giants-padres-nl-west-matchup/
