@@ -1,3 +1,11 @@
+**Brighton's Hurzeler speaks with Yaya Toure for tips on managing African players**\
+`Toure, assistant coach of the Saudi Arabia national team, visited Brighton's training complex on Wednesday to speak with Hurzeler.`\
+https://nytimes.com/athletic/6326061/2025/05/01/brighton-hurzeler-yaya-toure/
+
+**What we're hearing about Colston Loveland and the Bears' 2025 NFL Draft class**\
+`League sources had a lot of praise for Loveland, seeing how the tight end should fit well with head coach Ben Johnson.`\
+https://nytimes.com/athletic/6324413/2025/05/01/bears-nfl-draft-class-colston-loveland/
+
 **Armed Syrians Take Defense of a Besieged Druse City Into Their Own Hands**\
 `Amid sectarian clashes that killed seven men in Jaramana, tense residents say the government isn’t doing enough to protect them, and are organizing to guard the city.`\
 https://nytimes.com/2025/05/01/world/middleeast/syria-sectarian-attack-druse.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6325492/2025/05/01/giannis-bucks-trade-chatter/
 **Inside the Hurricanes' multi-continent mission to get top Russian prospect Alexander Nikishin to the U.S.**\
 `Nikishin is available for the playoffs after a six-day journey that took him more than 10,000 miles across six cities in three continents.`\
 https://nytimes.com/athletic/6324838/2025/05/01/nhl-playoffs-carolina-hurricanes-alexander-nikishin-russia/
-
-**Is Texas Motor Speedway turning a corner? GM Mark Faber on the state of the track**\
-`It's been one of NASCAR's most-maligned tracks for years. But after some better racing recently, the track's GM is bullish about the future.`\
-https://nytimes.com/athletic/6323295/2025/05/01/nascar-texas-motor-speedway-mark-faber-interview/
-
-**The Crypto President**\
-`A Times investigation shows how much President Trump and his family have profited from his championing of cryptocurrency.`\
-https://nytimes.com/2025/05/01/podcasts/the-daily/trump-crypto-world-liberty-financial.html
 
