@@ -1,3 +1,7 @@
+**Trump Asks Supreme Court to Lift Deportation Protections for Venezuelans**\
+`A federal judge had blocked the administration’s plan to remove the temporary protected status of more than 300,000 immigrants.`\
+https://nytimes.com/2025/05/01/us/trump-supreme-court-tps.html
+
 **Trump Removed His Top National Security Aide**\
 `Also, scientists are investigating metformin’s anti-aging abilities. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/05/01/briefing/trump-removed-his-top-national-security-aide.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/01/us/politics/may-day-trump-protests.html
 **Friday Briefing: A White House Shake-Up**\
 `Plus, the actors up for a Tony Award.`\
 https://nytimes.com/2025/05/01/briefing/trump-waltz-us-ukraine-deal-india-pakistan.html
-
-**The Briefing – Tottenham 3 Bodo/Glimt 1: Postecoglou's selection decisions pay off, but concern over late injuries**\
-`Analysis of Tottenham Hotspur's Europa League semi-final first leg against the Norwegian champions `\
-https://nytimes.com/athletic/6320273/2025/05/01/tottenham-bodo-glimt-europa-league-analysis/
 

@@ -1,3 +1,11 @@
+**U.S. Prosecutors Accuse Large Insurers of Paying Kickbacks for Private Medicare Plans**\
+`The Justice Department accused three large insurers of colluding with national brokers to steer older people toward coverage that might not offer the best medical care.`\
+https://nytimes.com/2025/05/01/health/medicare-kickbacks-private-plans-trump.html
+
+**Giants place Tyler Fitzgerald on 10-day Injured List with left rib fracture**\
+`After a slow start to his 2025 season, Fitzgerald was one of the Giants most productive hitters in recent weeks.`\
+https://nytimes.com/athletic/6327771/2025/05/01/san-francisco-giants-tyler-fitzgerald-injury-list/
+
 **Trump Asks Supreme Court to Lift Deportation Protections for Venezuelans**\
 `A federal judge had blocked the administration’s plan to remove the temporary protected status of more than 300,000 immigrants.`\
 https://nytimes.com/2025/05/01/us/trump-supreme-court-tps.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010142040/syria-sectarian-viole
 **Overlooked No More: Joyce Brown, Whose Struggle Redefined the Rights of the Homeless**\
 `She successfully challenged her involuntary commitment to Bellevue Hospital in 1987, setting a precedent for homeless people that remains relevant today.`\
 https://nytimes.com/2025/05/01/obituaries/joyce-brown-billie-boggs-overlooked.html
-
-**Trump Policies Draw Outrage at May Day Protests Across the U.S.**\
-`Labor rallies in large cities swelled with demonstrators focused on immigration, education and worker’s rights. But protesters also rallied at small-town schools and city halls in Trump country.`\
-https://nytimes.com/2025/05/01/us/politics/may-day-trump-protests.html
-
-**Friday Briefing: A White House Shake-Up**\
-`Plus, the actors up for a Tony Award.`\
-https://nytimes.com/2025/05/01/briefing/trump-waltz-us-ukraine-deal-india-pakistan.html
 

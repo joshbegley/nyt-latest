@@ -1,3 +1,7 @@
+**Trump Asks Supreme Court to Lift Deportation Protections for Venezuelans**\
+`A federal judge had blocked the administration’s plan to remove the temporary protected status of more than 300,000 immigrants.`\
+https://nytimes.com/2025/05/01/us/trump-supreme-court-tps.html
+
 **Trump Removed His Top National Security Aide**\
 `Also, scientists are investigating metformin’s anti-aging abilities. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/05/01/briefing/trump-removed-his-top-national-security-aide.html
