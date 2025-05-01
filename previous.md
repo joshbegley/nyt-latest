@@ -1,3 +1,7 @@
+**NHL playoffs daily: Capitals, Panthers advance, Jets take series lead**\
+`Ovechkin pulled an Ovechkin for Washington while there were also wins for the Panthers and Jets.`\
+https://nytimes.com/athletic/6325075/2025/05/01/nhl-playoffs-daily-round-1-results-score/
+
 **Kounde likely to miss Champions League semi-final second leg**\
 `Kounde, 26, was forced off on the stroke of half time during Wednesday's first-leg and was replaced by Eric Garcia.`\
 https://nytimes.com/athletic/6325974/2025/05/01/jules-kounde-injury-barcelona-champions-league/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/01/nyregion/zellnor-myrie-mayor-nyc.html
 **‘I Have Cancer,’ the TikTok Star Said. Then Came the Torrent of Hate.**\
 `Sydney Towle’s videos have drawn an enormous audience on TikTok, where her followers say they find her inspirational. On Reddit, an army of skeptics was determined to paint her as a fraud.`\
 https://nytimes.com/2025/05/01/nyregion/sydney-towle-cancer-videos-tiktok.html
-
-**Inside the Mysterious Silver Boxes on New York City Streets**\
-`Hundreds of these cast-iron boxes go largely unnoticed by the millions who shuffle past.`\
-https://nytimes.com/2025/05/01/nyregion/inside-the-mysterious-silver-boxes-on-new-york-city-streets.html
 

@@ -1,3 +1,7 @@
+**NHL playoffs daily: Capitals, Panthers advance, Jets take series lead**\
+`Ovechkin pulled an Ovechkin for Washington while there were also wins for the Panthers and Jets.`\
+https://nytimes.com/athletic/6325075/2025/05/01/nhl-playoffs-daily-round-1-results-score/
+
 **Kounde likely to miss Champions League semi-final second leg**\
 `Kounde, 26, was forced off on the stroke of half time during Wednesday's first-leg and was replaced by Eric Garcia.`\
 https://nytimes.com/athletic/6325974/2025/05/01/jules-kounde-injury-barcelona-champions-league/
