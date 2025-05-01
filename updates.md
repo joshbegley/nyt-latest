@@ -1,3 +1,5 @@
+
+
 **Coco Gauff cruises past Iga Swiatek to reach Madrid Open final for first time**\
 `Gauff has won her last three matches against Świątek, but this is her first win against her on clay.`\
 https://nytimes.com/athletic/6326782/2025/05/01/coco-gauff-iga-swiatek-madrid-open-result-analysis/
