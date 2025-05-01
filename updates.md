@@ -1,3 +1,11 @@
+**Postecoglou: Maddison, Solanke injuries not serious; Bergvall to be assessed**\
+`Bergvall was not in Spurs' matchday squad on Thursday, while Maddison and Solanke were withdrawn in the second half.`\
+https://nytimes.com/athletic/6327762/2025/05/01/maddison-solanke-bergvall-injury-update/
+
+**Bob Baffert scratches top-3 favorite Rodriguez from Kentucky Derby**\
+`With Baffert pulling Rodriguez out of the race, Baeza has joined the field.`\
+https://nytimes.com/athletic/6327726/2025/05/01/kentucky-derby-2025-bob-baffert-horse-scratched-rodriguez/
+
 **U.S. Creating Second Military Zone Along Southern Border**\
 `Troops in the newly designated area in Texas will be able to temporarily detain migrants as the Trump administration militarizes the boundary with Mexico.`\
 https://nytimes.com/2025/05/01/us/politics/military-border-mexico-migrants.html

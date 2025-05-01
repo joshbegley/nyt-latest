@@ -1,3 +1,11 @@
+**Postecoglou: Maddison, Solanke injuries not serious; Bergvall to be assessed**\
+`Bergvall was not in Spurs' matchday squad on Thursday, while Maddison and Solanke were withdrawn in the second half.`\
+https://nytimes.com/athletic/6327762/2025/05/01/maddison-solanke-bergvall-injury-update/
+
+**Bob Baffert scratches top-3 favorite Rodriguez from Kentucky Derby**\
+`With Baffert pulling Rodriguez out of the race, Baeza has joined the field.`\
+https://nytimes.com/athletic/6327726/2025/05/01/kentucky-derby-2025-bob-baffert-horse-scratched-rodriguez/
+
 **U.S. Creating Second Military Zone Along Southern Border**\
 `Troops in the newly designated area in Texas will be able to temporarily detain migrants as the Trump administration militarizes the boundary with Mexico.`\
 https://nytimes.com/2025/05/01/us/politics/military-border-mexico-migrants.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/01/briefing/trump-removed-his-top-national-security-
 **Hudson-Odoi to be assessed after suffering suspected hamstring injury**\
 `The winger had to be replaced at half time against Brentford on Thursday.`\
 https://nytimes.com/athletic/6327664/2025/05/01/callum-hudson-odoi-injury-update/
-
-**Cavaliers-Pacers preview: What if Cleveland's Darius Garland isn't ready for Game 1?**\
-`Even Donovan Mitchell, the most decorated player on Cleveland's roster, has yet to advance past the second round in the postseason.`\
-https://nytimes.com/athletic/6327341/2025/05/01/cavaliers-pacers-game-1-preview-darius-garland/
-
-**The Texas Alien Enemies Act Ruling Is Important**\
-`A Trump appointee in Texas cares more about the history of what Trump is trying to do with the Alien Enemies Act than the president does.`\
-https://nytimes.com/live/2025/04/21/opinion/thepoint/texas-judge-alien-enemies-act-trump
 
