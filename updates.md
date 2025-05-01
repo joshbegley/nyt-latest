@@ -1,3 +1,11 @@
+**Rick Pitino vs. Kentucky: New lineup in CBS Sports Classic will pit Cats vs. former coach**\
+`Pitino, 72 and entering his third season at St. John’s, coached at Kentucky from 1989-97 and won the 1997 national championship.`\
+https://nytimes.com/athletic/6327179/2025/05/01/rick-pitino-mark-pope-st-johns-kentucky-cbs-sports-classic/
+
+**Champions League projections 2024-25: Who will lift the trophy in Munich on May 31?**\
+`Here's how the rest of the 2024-25 Champions League is projected to play out...`\
+https://nytimes.com/athletic/5793492/2025/05/01/champions-league-projections/
+
 **What we're hearing about the Mets' pitching staff**\
 `Recent injuries call for a bullpen shuffle and creative management of the rotation. Here's what to expect. `\
 https://nytimes.com/athletic/6327144/2025/05/01/mets-pitching-staff-injuires/

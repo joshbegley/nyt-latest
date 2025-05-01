@@ -1,3 +1,11 @@
+**The 5.4.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/05/01/the-5425-issue
+
+**Upheaval in Washington Hinders Campaign Against Bird Flu**\
+`Determined to cut costs and manage communications, the Trump administration is moving too slowly to contain the virus, experts say.`\
+https://nytimes.com/2025/05/01/health/bird-flu-farms-usda.html
+
 **Rick Pitino vs. Kentucky: New lineup in CBS Sports Classic will pit Cats vs. former coach**\
 `Pitino, 72 and entering his third season at St. John’s, coached at Kentucky from 1989-97 and won the 1997 national championship.`\
 https://nytimes.com/athletic/6327179/2025/05/01/rick-pitino-mark-pope-st-johns-kentucky-cbs-sports-classic/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6327061/2025/05/01/how-often-do-rookies-start-nfl-s
 **U.K. Records Its Hottest May 1 Ever, Despite a Toilet Getting in the Way**\
 `In an unseasonably hot week, readings from one weather station in London had to be disqualified.`\
 https://nytimes.com/2025/05/01/weather/uk-heat-record-st-james-toilet.html
-
-**U.S. and U.N. Urge De-escalation Between India and Pakistan**\
-`Secretary of State Marco Rubio spoke with top officials from both countries in an effort to avoid another conflict over the disputed region of Kashmir.`\
-https://nytimes.com/2025/05/01/world/asia/india-pakistan-kashmir-de-escalation.html
-
-**Texas Judge Strikes Down Trump’s Use of Alien Enemies Act to Deport Venezuelans**\
-`The ruling, which is limited to the Southern District of Texas, prohibited the administration from using the wartime law because the president’s claims about a Venezuelan gang do not add up to an “invasion.”`\
-https://nytimes.com/2025/05/01/us/texas-judge-trump-alien-enemies-act.html
 
