@@ -1,3 +1,7 @@
+**Trump Removed His Top National Security Aide**\
+`Also, scientists are investigating metformin’s anti-aging abilities. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/05/01/briefing/trump-removed-his-top-national-security-aide.html
+
 **Hudson-Odoi to be assessed after suffering suspected hamstring injury**\
 `The winger had to be replaced at half time against Brentford on Thursday.`\
 https://nytimes.com/athletic/6327664/2025/05/01/callum-hudson-odoi-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/01/briefing/trump-waltz-us-ukraine-deal-india-pakist
 **The Briefing – Tottenham 3 Bodo/Glimt 1: Postecoglou's selection decisions pay off, but concern over late injuries**\
 `Analysis of Tottenham Hotspur's Europa League semi-final first leg against the Norwegian champions `\
 https://nytimes.com/athletic/6320273/2025/05/01/tottenham-bodo-glimt-europa-league-analysis/
-
-**The Briefing: Athletic Club 0 Manchester United 3 – Crushing win, penalty drama, Maguire the winger, and a Europa League final against Spurs?**\
-`Analysis of Manchester United's dramatic semi-final first leg win over Athletic Club`\
-https://nytimes.com/athletic/6320272/2025/05/01/athletic-club-manchester-united-penalty-highlights/
 
