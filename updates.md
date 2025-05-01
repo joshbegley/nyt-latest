@@ -1,3 +1,7 @@
+**President Trump and the Constitution: 5 Critical Issues to Explore With Students**\
+`In this lesson, we walk students through a flurry of actions in Trump’s first 100 days that have tested the limits of executive power and the Constitution.`\
+https://nytimes.com/2025/05/01/learning/lesson-plans/president-trump-and-the-constitution-5-critical-issues-to-explore-with-students.html
+
 **ICE Operation in Florida This Month Resulted in More Than 1,000 Arrests**\
 `The Trump administration hopes to work with local law enforcement as it tries to reach its goals for mass deportation.`\
 https://nytimes.com/2025/05/01/us/politics/ice-arrest-immigration-florida.html

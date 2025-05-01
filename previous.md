@@ -1,3 +1,7 @@
+**President Trump and the Constitution: 5 Critical Issues to Explore With Students**\
+`In this lesson, we walk students through a flurry of actions in Trump’s first 100 days that have tested the limits of executive power and the Constitution.`\
+https://nytimes.com/2025/05/01/learning/lesson-plans/president-trump-and-the-constitution-5-critical-issues-to-explore-with-students.html
+
 **ICE Operation in Florida This Month Resulted in More Than 1,000 Arrests**\
 `The Trump administration hopes to work with local law enforcement as it tries to reach its goals for mass deportation.`\
 https://nytimes.com/2025/05/01/us/politics/ice-arrest-immigration-florida.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/01/us/paul-chambers-thailand-monarchy.html
 **Pete Alonso, Trent Grisham and more players to consider selling high in fantasy baseball**\
 `Owen Poindexter looks for the best sell-high targets among MLB's top hitters in April, with Pete Alonso figuring prominently among them.`\
 https://nytimes.com/athletic/6324688/2025/05/01/fantasy-baseball-sell-high-players-alonso/
-
-**Kentucky Derby 2025 fashion trends from Timothée Chalamet to 'Wicked'**\
-`Local craftspeople are in many ways the engine of the Derby's success. They give us the inside scoop on this year's trends.`\
-https://nytimes.com/athletic/6324185/2025/05/01/kentucky-derby-fashion-hat-trends-designers-milliners/
 
