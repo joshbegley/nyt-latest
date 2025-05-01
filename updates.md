@@ -1,3 +1,7 @@
+**Kashmir Is a Wonderland. An Attack Shows It Is Also a Cradle of Despair.**\
+`The terrorist massacre of 26 innocent people has magnified the alienation long felt in a region that lives under tight watch and has limited democratic rights.`\
+https://nytimes.com/2025/05/01/world/asia/india-terrorist-attack-kashmir.html
+
 **In the Back of an Uber**\
 `Tell us a story, real or made up, that is inspired by this image.`\
 https://nytimes.com/2025/05/01/learning/in-the-back-of-an-uber.html
