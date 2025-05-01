@@ -1,3 +1,23 @@
+**‘The Narrow Road to the Deep North’ Is a Brutal but Poetic War Drama**\
+`Starring Jacob Elordi, this often agonizing series takes on life’s biggest questions, about the mind and the heart, human suffering and transcendence.`\
+https://nytimes.com/2025/05/01/arts/television/narrow-road-to-the-deep-north-jacob-elordi.html
+
+**When You’re Craving One Specific Food**\
+`Yubuchobap with lots of fillings, classic zongzi and the ‘Swingle.’`\
+https://nytimes.com/2025/05/01/dining/when-youre-craving-one-specific-food.html
+
+**The World Still Speaks in U.S. Dollars**\
+`Confidence in the world’s reserve currency is in doubt, leaving an opening for alternatives like the euro. But it won’t be easy.`\
+https://nytimes.com/2025/05/01/business/dealbook/us-dollar-fall-reserve-currency-alternatives-euro.html
+
+**A’s set to promote pitching prospect Gunnar Hoglund: Source**\
+`Hoglund had a 2.43 ERA in six starts for Triple-A Las Vegas. He was the main prospect in the 2022 deal that sent Matt Chapman to Toronto.`\
+https://nytimes.com/athletic/6327411/2025/05/01/gunnar-hoglund-athletics-mlb-debut/
+
+**Death Toll From a Wave of Sectarian Violence in Syria Passes 100**\
+`The casualties from clashes this week rose sharply as the tensions moved closer to a major southern region controlled by the country’s Druse minority.`\
+https://nytimes.com/2025/05/01/world/middleeast/syria-sectarian-violence-100-killed.html
+
 **New York May Weaken Its Oversight Over Religious Schools**\
 `A potential last-minute addition to the state budget would amount to a major victory for Hasidic Jewish leaders.`\
 https://nytimes.com/2025/05/01/nyregion/new-york-hasidic-schools-oversight.html
