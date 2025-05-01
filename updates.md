@@ -1,3 +1,15 @@
+**Mayor Adams Wants This to Be His ‘Best Budget Ever.’ Some Are Skeptical.**\
+`Mayor Eric Adams celebrated his vision for a $115 billion budget for New York City, but some experts warned that it didn’t properly account for further cuts in federal funding.`\
+https://nytimes.com/2025/05/01/nyregion/eric-adams-nyc-budget.html
+
+**Longtime Rangers analyst Joe Micheletti retiring from broadcast booth**\
+`Micheletti's retirement comes as Rangers play-by-play voice Sam Rosen also retires.`\
+https://nytimes.com/athletic/6327371/2025/05/01/ny-rangers-broadcaster-retiring-joe-micheletti/
+
+**Orders to Investigate Columbia Protesters Raised Alarms in Justice Dept.**\
+`Behind the scenes, a top department official pressed employees to gather a list of activists and investigate them, people familiar with the matter said.`\
+https://nytimes.com/2025/05/01/us/politics/columbia-protests-justice-department.html
+
 **Apple Tops Wall Street Expectations With $24.78 Billion Profit**\
 `The iPhone maker’s sales rose 5 percent to $95.36 billion, also beating expectations for its most recent quarter.`\
 https://nytimes.com/2025/05/01/technology/apple-earnings-profit.html
