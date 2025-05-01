@@ -1,3 +1,7 @@
+**Javier Mascherano: Inter Miami Champions Cup exit is just not good enough**\
+`The Miami head coach was unimpressed as Lionel Messi and company crashed out of Concacaf's most important club tournament.`\
+https://nytimes.com/athletic/6325666/2025/05/01/inter-miami-mascherano-concacaf-champions-cup-vancouver/
+
 **Harris Returns to Political Life, Warning of a Constitutional Crisis**\
 `Kamala Harris has rarely spoken out after leaving Washington in January. In her first major address since then, she acknowledged Democratic fears and praised leaders who were speaking out.`\
 https://nytimes.com/2025/05/01/us/kamala-harris-trump-speech.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6323473/2025/05/01/everton-dan-purdy-kinnear-rebuil
 **Rice is stamping his authority on Arsenal - and exposing timid Odegaard**\
 `Arsenal need their captain to rediscover the belief of last season when he was cutting open defences at will - Rice is leading by example`\
 https://nytimes.com/athletic/6323641/2025/05/01/declan-rice-martin-odegard-arsenal-captain/
-
-**Harry Maguire and a Manchester United redemption - thanks to his goalscoring exploits**\
-`Maguire has joked that he started out up front, his dad moved him into midfield, then defence and he was worried he'd end up in goal`\
-https://nytimes.com/athletic/6324196/2025/05/01/harry-maguire-manchester-united-redemption-striker/
 
