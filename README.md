@@ -1,3 +1,11 @@
+**Browns post-NFL Draft depth chart: Which rookies will be immediate contributors?**\
+`Of Cleveland's seven-man rookie class, five have pretty clear starting points on the team’s fluid depth chart. `\
+https://nytimes.com/athletic/6324971/2025/05/01/cleveland-browns-depth-chart-nfl-draft/
+
+**Who will win the Kentucky Derby? 6 key factors to inform your pick**\
+`Past victors showcased key traits that can help narrow the field of 2025 Kentucky Derby contenders.`\
+https://nytimes.com/athletic/6323768/2025/05/01/who-will-win-kentucky-derby-2025-advice/
+
 **Falcons post-NFL Draft depth chart: Can new-look defense generate pass rush?**\
 `The Falcons' offense remains largely the same, while the defense has undergone a makeover. Here's how the offseason depth chart looks.`\
 https://nytimes.com/athletic/6322277/2025/05/01/falcons-depth-chart-nfl-draft/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/01/learning/would-you-want-to-be-a-child-influencer.
 **What to Do in New York City in May**\
 `Looking for something to do in New York? Get help from Chloe Troast and her friends, keep “Brat” summer going with Charli XCX, or see Alexei Ratmansky’s take on “Paquita.”`\
 https://nytimes.com/2025/05/01/arts/01what-to-do-in-new-york-city-in-may.html
-
-**Carla Bley’s 1970s Experimental Masterpiece Gets a Belated Premiere**\
-`Cultic and unclassifiable — “clearly some sort of monstrous hybrid” — Bley’s “Escalator Over the Hill,” a 1971 album, is being staged at the New School.`\
-https://nytimes.com/2025/05/01/arts/music/carla-bley-escalator-over-the-hill.html
-
-**Alec Baldwin’s ‘Rust’ Gets Muted Release, Years After Fatal Shooting**\
-`The filmmakers said that they hoped the finished product would honor the work and memory of its cinematographer, Halyna Hutchins, who was shot and killed on the set.`\
-https://nytimes.com/2025/05/01/movies/alec-baldwin-rust-release.html
 
