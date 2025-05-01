@@ -1,3 +1,11 @@
+**Giants drop game and series to Padres, end April on a confusing note**\
+`The Giants had a great April but it ended badly. It might still be too early to know quite what to make of the 2025 team.`\
+https://nytimes.com/athletic/6325033/2025/04/30/sf-giants-padres-nl-west-matchup/
+
+**Capitals eliminate Canadiens with 4-1 win in Game 5: Takeaways**\
+`Given a chance to put away Montreal and advance to the second round, Washington took care of business.`\
+https://nytimes.com/athletic/6325305/2025/04/30/capitals-canadiens-nhl-playoffs-game-5-takeaways/
+
 **Here’s what happened on Wednesday.**\
 `By The New York Times`\
 https://nytimes.com/live/2025/04/30/us/president-trump-news/heres-what-happened-on-wednesday
