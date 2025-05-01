@@ -1,3 +1,7 @@
+**Trump’s Tariffs Lead Japan to Slash Its Economic Growth Forecast**\
+`The Bank of Japan lowered its growth forecast by more than half and paused its efforts to raise interest rates.`\
+https://nytimes.com/2025/04/30/business/bank-of-japan-gdp-forecast.html
+
 **NBA playoffs takeaways: Rockets dominate Warriors, force Game 6**\
 `The Houston Rockets staved off elimination Wednesday night in a 131-116 win over the Golden State Warriors at home.`\
 https://nytimes.com/athletic/6325262/2025/04/30/nba-playoffs-results-takeaways-scores-wednesday/

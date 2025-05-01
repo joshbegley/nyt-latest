@@ -1,3 +1,7 @@
+**Trump’s Tariffs Lead Japan to Slash Its Economic Growth Forecast**\
+`The Bank of Japan lowered its growth forecast by more than half and paused its efforts to raise interest rates.`\
+https://nytimes.com/2025/04/30/business/bank-of-japan-gdp-forecast.html
+
 **NBA playoffs takeaways: Rockets dominate Warriors, force Game 6**\
 `The Houston Rockets staved off elimination Wednesday night in a 131-116 win over the Golden State Warriors at home.`\
 https://nytimes.com/athletic/6325262/2025/04/30/nba-playoffs-results-takeaways-scores-wednesday/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/04/30/us/president-trump-news/heres-what-happened-
 **Fan stretchered off field after falling from stands in Pirates-Cubs game**\
 `Medical crews rushed to aid the fan who was quickly placed on a stretcher and taken off the field.`\
 https://nytimes.com/athletic/6325320/2025/04/30/pirates-fan-falls-field/
-
-**Trump boasts about the economy, but says weak data is Biden’s problem.**\
-`By Tim Balk`\
-https://nytimes.com/live/2025/04/30/us/president-trump-news/trump-boasts-about-the-economy-but-says-weak-data-is-bidens-problem
 
