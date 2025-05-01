@@ -1,9 +1,21 @@
+**U.S. Creating Second Military Zone Along Southern Border**\
+`Troops in the newly designated area in Texas will be able to temporarily detain migrants as the Trump administration militarizes the boundary with Mexico.`\
+https://nytimes.com/2025/05/01/us/politics/military-border-mexico-migrants.html
+
+**Amorim praises 'good winger' Maguire for overcoming 'difficult moments'**\
+`Maguire set up the opening goal from the right wing in United's 3-0 Europa League semi-final first-leg victory over Athletic Club.`\
+https://nytimes.com/athletic/6327651/2025/05/01/ruben-amorim-harry-maguire-athletic-club/
+
+**The Artist Who Keeps Remaking His Childhood Home**\
+`Do Ho Suh, whose major survey exhibition in London opens this week, discusses the power of architecture and finding motivation from mistakes.`\
+https://nytimes.com/2025/05/01/t-magazine/do-ho-suh-tate-modern.html
+
 **U.S. Prosecutors Accuse Large Insurers of Paying Kickbacks for Private Medicare Plans**\
-`The Justice Department accused three large insurers of colluding with national brokers to steer older people toward coverage that might not offer the best medical care.`\
+`The Justice Department accused large insurers of colluding with national brokers to steer older people and those with disabilities toward coverage that might not offer the best medical care.`\
 https://nytimes.com/2025/05/01/health/medicare-kickbacks-private-plans-trump.html
 
-**Giants place Tyler Fitzgerald on 10-day Injured List with left rib fracture**\
-`After a slow start to his 2025 season, Fitzgerald was one of the Giants most productive hitters in recent weeks.`\
+**Giants place Tyler Fitzgerald on 10-day IL with left rib fracture**\
+`After a slow start to his 2025 season, Fitzgerald was one of the Giants' most productive hitters in recent weeks.`\
 https://nytimes.com/athletic/6327771/2025/05/01/san-francisco-giants-tyler-fitzgerald-injury-list/
 
 **Trump Asks Supreme Court to Lift Deportation Protections for Venezuelans**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6327341/2025/05/01/cavaliers-pacers-game-1-preview-
 **The Texas Alien Enemies Act Ruling Is Important**\
 `A Trump appointee in Texas cares more about the history of what Trump is trying to do with the Alien Enemies Act than the president does.`\
 https://nytimes.com/live/2025/04/21/opinion/thepoint/texas-judge-alien-enemies-act-trump
-
-**U.S. Aid Cutbacks Hurt Efforts to Repatriate Former Islamic State Residents**\
-`Cuts to American aid have compromised efforts to repatriate people at desert camps in Syria and Iraq for former Islamic State members and their families, according to a report to Congress.`\
-https://nytimes.com/2025/05/01/us/politics/usaid-isis-trump.html
-
-**Sectarian Violence in Syria Leaves More Than 100 Dead**\
-`Sunni Muslim extremist groups targeted Jaramana and other areas with large Druse populations, clashing with militias, after an audio clip surfaced purporting to be of a Druse cleric insulting the Prophet Muhammad.`\
-https://nytimes.com/video/world/middleeast/100000010142040/syria-sectarian-violence-death.html
-
-**Overlooked No More: Joyce Brown, Whose Struggle Redefined the Rights of the Homeless**\
-`She successfully challenged her involuntary commitment to Bellevue Hospital in 1987, setting a precedent for homeless people that remains relevant today.`\
-https://nytimes.com/2025/05/01/obituaries/joyce-brown-billie-boggs-overlooked.html
 
