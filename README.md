@@ -1,3 +1,15 @@
+**Tony Nominations Snubs and Surprises: ‘Othello’ Misses, Clooney Scores**\
+`Ensemble-driven plays like “Purpose” and “English” received a slew of nominations, while Denzel Washington, Jake Gyllenhaal and Idina Menzel were overlooked.`\
+https://nytimes.com/2025/05/01/theater/tony-nomination-snubs-othello.html
+
+**Kennedy Issues Demands for Vaccine Approvals that Could Affect Fall Covid Boosters**\
+`The agency suggested that clinical trials in humans may be required for updated Covid shots, raising questions about whether they will be available in the fall.`\
+https://nytimes.com/2025/05/01/us/rfk-jr-vaccine-safety-placebos-covid.html
+
+**The F Word Won’t Save Democrats**\
+`Here’s how they can defeat Trump — no expletive required.`\
+https://nytimes.com/2025/05/01/opinion/democrats-trump-slotkin-sanders.html
+
 **Yohe: Rise of Panthers, end of Lightning: 10 first-round NHL playoffs observations**\
 `I covered the entire Panthers-Lightning first-round series. Here's what stuck with me.`\
 https://nytimes.com/athletic/6325751/2025/05/01/panthers-lightning-nhl-playoffs-observations/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/01/arts/music/stan-love-dead.html
 **Colleges Know How Much You’re Willing to Pay. Here’s How.**\
 `Schools turn to little-known consultants, owned by private equity firms, to find applicants and calculate scholarships. Here’s how that affects the price you pay.`\
 https://nytimes.com/2025/05/01/business/college-tuition-price-consultants.html
-
-**Henry Ruggs III training in prison for second chance in NFL, Josh Jacobs says**\
-`Ruggs is first eligible for parole on Aug. 5, 2026, and Jacobs said he's been talking to teams on Ruggs' behalf.`\
-https://nytimes.com/athletic/6326583/2025/05/01/josh-jacobs-henry-ruggs-iii-nfl-car-crash/
-
-**Trump Is Ousting Michael Waltz, His National Security Adviser**\
-`President Trump initially defended Mr. Waltz for mistakenly adding a journalist to a group chat about military strikes.`\
-https://nytimes.com/2025/05/01/us/politics/michael-waltz-signal-leak-trump.html
-
-**'It's all gone': Trainer of Derby favorite focusing on race after life upended by L.A. fires**\
-`Michael McCarthy trains Journalism, the Kentucky Derby favorite. Earlier this year, his family fled the California wildfires.`\
-https://nytimes.com/athletic/6309228/2025/05/01/kentucky-derby-favorite-journalism-trainer-california-wildfires/
 
