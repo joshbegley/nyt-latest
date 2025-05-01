@@ -1,3 +1,19 @@
+**Coco Gauff cruises past Iga Swiatek to reach Madrid Open final for first time**\
+`Gauff has won her last three matches against Świątek, but this is her first win against her on clay.`\
+https://nytimes.com/athletic/6326782/2025/05/01/coco-gauff-iga-swiatek-madrid-open-result-analysis/
+
+**100 Days of Trump Style**\
+`In this administration, looking the part is crucial to playing the part.`\
+https://nytimes.com/2025/05/01/style/trump-style-100-days.html
+
+**Reds demote former All-Star closer Alexis Díaz, call up Luis Mey**\
+`Díaz, an All-Star in 2023, allowed three consecutive homers in the first game of the Reds' doubleheader loss to the Cardinals on Wednesday. `\
+https://nytimes.com/athletic/6326735/2025/05/01/reds-demote-former-all-star-closer-alexis-diaz-call-up-luis-mey/
+
+**At Jazz at Lincoln Center, Dave Chappelle Rallies to Keep ‘Tradition Alive’**\
+`Attendees at the organization’s gala, which celebrated Duke Ellington’s 125th birthday, shared what they listen to.`\
+https://nytimes.com/2025/05/01/style/dave-chappelle-lincoln-center-jazz.html
+
 **Deadly Storm Tears Through Texas and Oklahoma**\
 `At least two people died as heavy rains and hail poured down on the region.`\
 https://nytimes.com/video/weather/100000010140860/flooding-hail-texas-oklahoma.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/05/01/technology/google-antitrust-trial-ai.html
 **A Tidal Wave of Change Is Headed for the U.S. Economy**\
 `American consumers are not yet seeing much evidence of the drastic changes President Trump has made on trade. But they are on their way.`\
 https://nytimes.com/2025/05/01/business/economy/trump-trade-economy.html
-
-**Speedy, Easy, Economical, Smart and Satisfying**\
-`That’s just a handful of adjectives that could describe this new ginger-scallion stir-fried shrimp recipe from Sue Li.`\
-https://nytimes.com/2025/05/01/dining/easy-shrimp-stir-fry-dinner.html
-
-**The Best Movies and TV Shows Coming to Disney+, Amazon, Max, Apple TV+ and More in May**\
-`“Duster,” “Summer of 69,” “Overcompensating,” “‘Deaf President Now!” and more are arriving, and “Poker Face” returns.`\
-https://nytimes.com/2025/05/01/arts/television/movies-tv-shows-may-2025-streaming.html
-
-**Ronan the Sea Lion Is Probably Better Than You at Keeping a Beat**\
-`As she has aged, the pinniped’s rhythmic abilities have only improved.`\
-https://nytimes.com/2025/05/01/science/ronan-sea-lion-beats-rhythm.html
-
-**May Day Protests Are Expected to Mobilize Outcry Against Trump**\
-`Organizers see a traditional day for labor marches as an opportunity to show growing opposition to the Trump administration’s agenda.`\
-https://nytimes.com/2025/05/01/us/politics/may-day-protests-trump.html
 
