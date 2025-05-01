@@ -1,3 +1,7 @@
+**NBA playoffs takeaways: Rockets dominate Warriors, force Game 6**\
+`The Houston Rockets staved off elimination Wednesday night in a 131-116 win over the Golden State Warriors at home.`\
+https://nytimes.com/athletic/6325262/2025/04/30/nba-playoffs-results-takeaways-scores-wednesday/
+
 **Panthers eliminate Lightning, advance to second round with Game 5 win: Takeaways**\
 `Florida will continue its Stanley Cup defense in the second round of the playoffs against the winner of the Toronto-Ottawa series.`\
 https://nytimes.com/athletic/6325285/2025/04/30/panthers-lightning-nhl-playoffs-2025-game-5-takeaways/
