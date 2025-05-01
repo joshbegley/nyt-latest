@@ -1,3 +1,5 @@
+
+
 **White Supremacist Is Charged in 2019 Arson at Tennessee Civil Rights Landmark**\
 `Regan Prater set fire to the main offices of the Highlander Research and Education Center and took credit for it in encrypted messages, prosecutors said.`\
 https://nytimes.com/2025/04/30/us/arson-arrest-civil-rights-landmark-tennessee.html
