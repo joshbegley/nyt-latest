@@ -30,7 +30,7 @@ https://nytimes.com/2025/05/01/us/politics/may-day-trump-protests.html
 `Plus, the actors up for a Tony Award.`\
 https://nytimes.com/2025/05/01/briefing/trump-waltz-us-ukraine-deal-india-pakistan.html
 
-**The Briefing: Tottenham 3 Bodo/Glimt 1: Postecoglou's selection decisions pay off but late injuries a concern?**\
+**The Briefing – Tottenham 3 Bodo/Glimt 1: Postecoglou's selection decisions pay off, but concern over late injuries**\
 `Analysis of Tottenham Hotspur's Europa League semi-final first leg against the Norwegian champions `\
 https://nytimes.com/athletic/6320273/2025/05/01/tottenham-bodo-glimt-europa-league-analysis/
 

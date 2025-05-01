@@ -1,3 +1,15 @@
+**Hudson-Odoi to be assessed after suffering suspected hamstring injury**\
+`The winger had to be replaced at half time against Brentford on Thursday.`\
+https://nytimes.com/athletic/6327664/2025/05/01/callum-hudson-odoi-injury-update/
+
+**Cavaliers-Pacers preview: What if Cleveland's Darius Garland isn't ready for Game 1?**\
+`Even Donovan Mitchell, the most decorated player on Cleveland's roster, has yet to advance past the second round in the postseason.`\
+https://nytimes.com/athletic/6327341/2025/05/01/cavaliers-pacers-game-1-preview-darius-garland/
+
+**The Texas Alien Enemies Act Ruling Is Important**\
+`A Trump appointee in Texas cares more about the history of what Trump is trying to do with the Alien Enemies Act than the president does.`\
+https://nytimes.com/live/2025/04/21/opinion/thepoint/texas-judge-alien-enemies-act-trump
+
 **U.S. Aid Cutbacks Hurt Efforts to Repatriate Former Islamic State Residents**\
 `Cuts to American aid have compromised efforts to repatriate people at desert camps in Syria and Iraq for former Islamic State members and their families, according to a report to Congress.`\
 https://nytimes.com/2025/05/01/us/politics/usaid-isis-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6320273/2025/05/01/tottenham-bodo-glimt-europa-leag
 **The Briefing: Athletic Club 0 Manchester United 3 – Crushing win, penalty drama, Maguire the winger, and a Europa League final against Spurs?**\
 `Analysis of Manchester United's dramatic semi-final first leg win over Athletic Club`\
 https://nytimes.com/athletic/6320272/2025/05/01/athletic-club-manchester-united-penalty-highlights/
-
-**Tyrese Haliburton's father won't attend Pacers games for foreseeable future**\
-`It is unknown if his absence would extend beyond this postseason if the Pacers advance or if it would continue at the start of next season.`\
-https://nytimes.com/athletic/6327468/2025/05/01/tyrese-haliburtons-father-pacers-bucks/
-
-**The Briefing: Djurgarden 1 Chelsea 4 - Sancho makes case to stay, Fernandez class, and a problem pitch?**\
-`Enzo Maresca's side took a huge step towards the Europa Conference League final after thrashing Swedish opposition in Stockholm`\
-https://nytimes.com/athletic/6320274/2025/05/01/chelsea-djurgarden-fernandez-sancho-walsh/
-
-**How to Survive the Trump Years With Your Spirit Intact**\
-`I’ve found it necessary to root myself in anything that feels rehumanizing, whether it’s art or literature or learning.`\
-https://nytimes.com/2025/05/01/opinion/trump-faith-humanism.html
 
