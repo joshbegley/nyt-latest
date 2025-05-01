@@ -1,3 +1,15 @@
+**Trump Administration Live Updates: President Tries to Change Narrative on Economy**\
+``\
+https://nytimes.com/live/2025/05/01/us/trump-news
+
+**Kamala Harris: We Are Witnessing ‘Wholesale Abandonment’ of Ideals**\
+`In her first major speech since her electoral defeat in January, former Vice President Kamala Harris criticized President Trump’s performance and warned of a constitutional crisis.`\
+https://nytimes.com/video/us/politics/100000010140454/kamala-harris-first-speech-trump.html
+
+**Can Blues force a Game 7 against Jets? It wouldn't be a surprise**\
+`The Blues lost 5-3 to the Jets in Game 5 Wednesday and now need a win on home ice in Game 6 to force a decisive game in Winnipeg.`\
+https://nytimes.com/athletic/6323597/2025/05/01/blues-jets-nhl-playoffs-game-5/
+
 **Israel Scrambles to Extinguish Wildfires Near Jerusalem for 2nd Day**\
 `Authorities reopened the main highway between Tel Aviv and Jerusalem after gaining partial control of the blaze, but warned that a change in the wind could fan the flames.`\
 https://nytimes.com/2025/05/01/world/middleeast/israel-wildfires-jerusalem.html
