@@ -1,3 +1,11 @@
+**Family Seeks $15 Million in Death of Migrant Girl in U.S. Custody**\
+`Anadith Danay Reyes Álvarez, 8, died in 2023 after she spent a week in a border agency detention center without adequate care for her health conditions.`\
+https://nytimes.com/2025/05/01/us/migrant-girl-death-cbp-damages.html
+
+**Brady tells Birmingham fans to 'show up' for title clash vs Kang's London City Lionesses**\
+`London City Lionesses lead the Women's Championship promotion race with 42 points to Birmingham's 40 ahead of the final day of the season.`\
+https://nytimes.com/athletic/6327680/2025/05/01/tom-brady-birmingham-women-london-city/
+
 **Postecoglou: Maddison, Solanke injuries not serious; Bergvall to be assessed**\
 `Bergvall was not in Spurs' matchday squad on Thursday, while Maddison and Solanke were withdrawn in the second half.`\
 https://nytimes.com/athletic/6327762/2025/05/01/maddison-solanke-bergvall-injury-update/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6327771/2025/05/01/san-francisco-giants-tyler-fitzg
 **Trump Asks Supreme Court to Lift Deportation Protections for Venezuelans**\
 `A federal judge had blocked the administration’s plan to remove the temporary protected status of more than 300,000 immigrants.`\
 https://nytimes.com/2025/05/01/us/trump-supreme-court-tps.html
-
-**Trump Removed His Top National Security Aide**\
-`Also, scientists are investigating metformin’s anti-aging abilities. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2025/05/01/briefing/trump-removed-his-top-national-security-aide.html
-
-**Hudson-Odoi to be assessed after suffering suspected hamstring injury**\
-`The winger had to be replaced at half time against Brentford on Thursday.`\
-https://nytimes.com/athletic/6327664/2025/05/01/callum-hudson-odoi-injury-update/
 

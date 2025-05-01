@@ -1,3 +1,11 @@
+**Family Seeks $15 Million in Death of Migrant Girl in U.S. Custody**\
+`Anadith Danay Reyes Álvarez, 8, died in 2023 after she spent a week in a border agency detention center without adequate care for her health conditions.`\
+https://nytimes.com/2025/05/01/us/migrant-girl-death-cbp-damages.html
+
+**Brady tells Birmingham fans to 'show up' for title clash vs Kang's London City Lionesses**\
+`London City Lionesses lead the Women's Championship promotion race with 42 points to Birmingham's 40 ahead of the final day of the season.`\
+https://nytimes.com/athletic/6327680/2025/05/01/tom-brady-birmingham-women-london-city/
+
 **Postecoglou: Maddison, Solanke injuries not serious; Bergvall to be assessed**\
 `Bergvall was not in Spurs' matchday squad on Thursday, while Maddison and Solanke were withdrawn in the second half.`\
 https://nytimes.com/athletic/6327762/2025/05/01/maddison-solanke-bergvall-injury-update/
