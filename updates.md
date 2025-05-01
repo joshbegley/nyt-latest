@@ -1,3 +1,11 @@
+**Trump Removed His Top National Security Aide**\
+`Also, scientists are investigating metformin’s anti-aging abilities. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/05/01/briefing/trump-removed-his-top-national-security-aide.html
+
+**The Briefing – Tottenham 3 Bodo/Glimt 1: Postecoglou's selection decisions pay off, but concern over late injuries**\
+`Analysis of Tottenham Hotspur's Europa League semi-final first leg against the Norwegian champions `\
+https://nytimes.com/athletic/6320273/2025/05/01/tottenham-bodo-glimt-europa-league-analysis/
+
 **Hudson-Odoi to be assessed after suffering suspected hamstring injury**\
 `The winger had to be replaced at half time against Brentford on Thursday.`\
 https://nytimes.com/athletic/6327664/2025/05/01/callum-hudson-odoi-injury-update/
