@@ -1,3 +1,11 @@
+**New York May Weaken Its Oversight Over Religious Schools**\
+`A potential last-minute addition to the state budget would amount to a major victory for Hasidic Jewish leaders.`\
+https://nytimes.com/2025/05/01/nyregion/new-york-hasidic-schools-oversight.html
+
+**Juan Soto blasts first 2 homers at Citi Field since joining Mets**\
+`Soto broke out with two opposite-field shots against the Diamondbacks on Thursday.`\
+https://nytimes.com/athletic/6327322/2025/05/01/mets-juan-soto-first-home-runs-citi-field/
+
 **What to See in N.Y.C. Galleries in May**\
 `This week in Newly Reviewed, Holland Cotter covers Sheyla Baykal’s downtown stars, a group show from a radical feminist art collective and Young Joon Kwak’s quieter side. `\
 https://nytimes.com/2025/05/01/arts/art-galleries-nyc-may.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/01/business/sharkninja-foodi-pressure-cooker-recall.
 **Winnipeg Jets forward Mark Scheifele out for Game 6 against Blues**\
 `Mark Scheifele was injured in Game 5 and won't play Friday night.`\
 https://nytimes.com/athletic/6327148/2025/05/01/nhl-playoffs-winnipeg-jets-mark-scheifele/
-
-**Can California Set Its Own Air Pollution Rules?**\
-`This week, the House of Representatives voted to block the state’s ban on the sale of new gas-powered vehicles, challenging its rule-making authority.`\
-https://nytimes.com/2025/05/01/climate/california-air-pollution-electric-vehicles.html
-
-**What to Know About Syria’s Minorities and Sectarian Violence**\
-`The new government has pledged to unify Syria after overthrowing the Assad dictatorship. One of its biggest challenges is persistent sectarian violence.`\
-https://nytimes.com/2025/05/01/world/middleeast/syria-druse-alawites-kurds.html
 
