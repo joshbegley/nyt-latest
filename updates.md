@@ -1,3 +1,7 @@
+**Red Light: Is playoff physicality out of hand?**\
+`Plus: Updating the best Cup odds, and who’s leading our MVP watch? `\
+https://nytimes.com/athletic/6326921/2025/05/01/nhl-playoffs-red-light-newsletter-blues-jets/
+
 **Tony Nominations Snubs and Surprises: ‘Othello’ Misses, Clooney Scores**\
 `Ensemble-driven plays like “Purpose” and “English” received a slew of nominations, while Denzel Washington, Jake Gyllenhaal and Idina Menzel were overlooked.`\
 https://nytimes.com/2025/05/01/theater/tony-nomination-snubs-othello.html
