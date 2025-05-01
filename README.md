@@ -1,3 +1,7 @@
+**White Supremacist Is Charged in 2019 Arson at Tennessee Civil Rights Landmark**\
+`Regan Prater set fire to the main offices of the Highlander Research and Education Center and took credit for it in encrypted messages, prosecutors said.`\
+https://nytimes.com/2025/04/30/us/arson-arrest-civil-rights-landmark-tennessee.html
+
 **Judge Rebukes Apple and Orders It to Loosen Grip on App Store**\
 `The ruling was a stinging defeat for Apple in a long-running antitrust case brought by Epic Games, the maker of Fortnite, on behalf of app developers.`\
 https://nytimes.com/2025/04/30/technology/apple-epic-app-store-ruling.html
@@ -14,7 +18,7 @@ https://nytimes.com/2025/04/30/us/politics/trump-first-quarter-economic-reports.
 `Sperbeck began managing Elway’s business interest during his playing career with the Denver Broncos in the 1990s.`\
 https://nytimes.com/athletic/6324424/2025/04/30/john-elway-jeff-sperbeck-golf-cart-accident/
 
-**Those who believed in Astros prospect AJ Blubaugh relish his big-league debut**\
+**Those who believed in Astros prospect AJ Blubaugh relished his big-league debut**\
 `Drafting Blubaugh was a risk for the Astros, but scout Drew Pearson had a strong belief he'd make it to the big leagues.`\
 https://nytimes.com/athletic/6325131/2025/04/30/astros-aj-blubaugh-mlb-debut-scout/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6323587/2025/04/30/dyson-daniels-nba-most-improved-
 **'The pesky Wild will persevere': After a season of adversity, Minnesota believes it can force a Game 7**\
 `"I truly believe that we can get back in the series and win it," Marcus Foligno said on Wednesday, with the Wild trailing 3-2.`\
 https://nytimes.com/athletic/6325056/2025/04/30/wild-golden-knights-game-6-lineup/
-
-**Nats staffer has medical emergency during BP, rushed to hospital before game**\
-`Washington canceled its pregame workout session as players and coaches left the field distraught.`\
-https://nytimes.com/athletic/6325014/2025/04/30/nationals-staffer-medical-emergency-rushed-hospital/
 
