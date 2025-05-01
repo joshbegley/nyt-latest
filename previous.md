@@ -1,3 +1,11 @@
+**ICE Operation in Florida This Month Resulted in More Than 1,000 Arrests**\
+`The Trump administration hopes to work with local law enforcement as it tries to reach its goals for mass deportation.`\
+https://nytimes.com/2025/05/01/us/politics/ice-arrest-immigration-florida.html
+
+**How Travis Hunter is going to completely reshape the Jaguars' fantasy football fortunes**\
+`Among his post-NFL draft takeaways, Michael Salfino explains why the fantasy industry is sleeping on the Jacksonville pass attack.`\
+https://nytimes.com/athletic/6325133/2025/05/01/fantasy-football-nfl-draft-takeaways-travis-hunter/
+
 **How triple-marked Yamal stunned Inter: Six-second masterpiece, players left dazed**\
 `Half the team tried to stop him but it was not enough. We analyse how Barcelona's 17-year-old lit up their Champions League semi-final`\
 https://nytimes.com/athletic/6326022/2025/05/01/yamal-barcelona-inter-champions-league/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6324688/2025/05/01/fantasy-baseball-sell-high-playe
 **Kentucky Derby 2025 fashion trends from Timothée Chalamet to 'Wicked'**\
 `Local craftspeople are in many ways the engine of the Derby's success. They give us the inside scoop on this year's trends.`\
 https://nytimes.com/athletic/6324185/2025/05/01/kentucky-derby-fashion-hat-trends-designers-milliners/
-
-**For a Padres rookie, path to majors paved by John Altobelli, legendary coach who perished with Kobe Bryant**\
-`Five years after John Altobelli’s death, David Morgan is the first player from the coach’s final team to reach the majors.`\
-https://nytimes.com/athletic/6325617/2025/05/01/padres-david-morgan-john-altobelli/
-
-**Frieze, Premiere Art Fair Company, Sold on Eve of New York’s Art Week**\
-`The deal would bring seven art fairs under a new private company founded by the entertainment mogul Ari Emanuel, former chief executive of Frieze’s owner, Endeavor.`\
-https://nytimes.com/2025/05/01/arts/frieze-art-fair-company-sold.html
 

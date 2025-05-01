@@ -1,3 +1,11 @@
+**ICE Operation in Florida This Month Resulted in More Than 1,000 Arrests**\
+`The Trump administration hopes to work with local law enforcement as it tries to reach its goals for mass deportation.`\
+https://nytimes.com/2025/05/01/us/politics/ice-arrest-immigration-florida.html
+
+**How Travis Hunter is going to completely reshape the Jaguars' fantasy football fortunes**\
+`Among his post-NFL draft takeaways, Michael Salfino explains why the fantasy industry is sleeping on the Jacksonville pass attack.`\
+https://nytimes.com/athletic/6325133/2025/05/01/fantasy-football-nfl-draft-takeaways-travis-hunter/
+
 **How triple-marked Yamal stunned Inter: Six-second masterpiece, players left dazed**\
 `Half the team tried to stop him but it was not enough. We analyse how Barcelona's 17-year-old lit up their Champions League semi-final`\
 https://nytimes.com/athletic/6326022/2025/05/01/yamal-barcelona-inter-champions-league/
