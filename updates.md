@@ -1,3 +1,5 @@
+
+
 **Attorney General Lifts Ban on Subpoenaing Reporters’ Notes in Leak Investigations**\
 `The move was a reversal of a Biden-era policy that banned federal investigators from going after reporters’ notes, phone records and testimony in leak investigations.`\
 https://nytimes.com/2025/05/01/us/politics/attorney-general-lifts-ban-on-subpoenaing-reporters-notes-in-leak-investigations.html
