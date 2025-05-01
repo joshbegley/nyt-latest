@@ -1,3 +1,19 @@
+**‘Thunderbolts*’ Review: Florence Pugh and Pals Kick Some Asterisk**\
+`The actress is the main attraction in Marvel’s latest, about a group of ragtag super-types who join forces to (spoiler alert!) save the world.`\
+https://nytimes.com/2025/04/30/movies/thunderbolts-review-florence-pugh-kicks-asterisk.html
+
+**A Flashing Economic Warning and a Sharp Political Jolt**\
+`The report that the economy contracted in the first quarter underscored how much President Trump has at risk as he pursues an aggressive trade war.`\
+https://nytimes.com/2025/04/30/us/politics/trump-first-quarter-economic-reports.html
+
+**John Elway's longtime business partner dies after golf cart incident**\
+`Sperbeck began managing Elway’s business interest during his playing career with the Denver Broncos in the 1990s.`\
+https://nytimes.com/athletic/6324424/2025/04/30/john-elway-jeff-sperbeck-golf-cart-accident/
+
+**Those who believed in Astros prospect AJ Blubaugh relish his big-league debut**\
+`Drafting Blubaugh was a risk for the Astros, but scout Drew Pearson had a strong belief he'd make it to the big leagues.`\
+https://nytimes.com/athletic/6325131/2025/04/30/astros-aj-blubaugh-mlb-debut-scout/
+
 **Those who believed in Astros prospect AJ Blubaugh relish his big league debut**\
 `Drafting Blubaugh was a risk for the Astros but scout Drew Pearson had a strong belief he'd make it to the big leagues.`\
 https://nytimes.com/athletic/6325131/2025/04/30/astros-aj-blubaugh-mlb-debut-scout/
