@@ -1,3 +1,7 @@
+**South Korea’s Acting Leader Resigns for Likely Presidential Bid**\
+`Prime Minister Han Duck-soo has been mulling whether to contest the election, while the main opposition candidate and front-runner suffered a setback in court.`\
+https://nytimes.com/2025/05/01/world/asia/south-korea-president-resigns.html
+
 **Browns post-NFL Draft depth chart: Which rookies will be immediate contributors?**\
 `Of Cleveland's seven-man rookie class, five have pretty clear starting points on the team’s fluid depth chart. `\
 https://nytimes.com/athletic/6324971/2025/05/01/cleveland-browns-depth-chart-nfl-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/05/01/realestate/midtown-manhattan-one-bedr
 **Would You Want to Be a Child Influencer?**\
 `What do you imagine would be the best and worst parts?`\
 https://nytimes.com/2025/05/01/learning/would-you-want-to-be-a-child-influencer.html
-
-**What to Do in New York City in May**\
-`Looking for something to do in New York? Get help from Chloe Troast and her friends, keep “Brat” summer going with Charli XCX, or see Alexei Ratmansky’s take on “Paquita.”`\
-https://nytimes.com/2025/05/01/arts/01what-to-do-in-new-york-city-in-may.html
 

@@ -1,3 +1,7 @@
+**South Korea’s Acting Leader Resigns for Likely Presidential Bid**\
+`Prime Minister Han Duck-soo has been mulling whether to contest the election, while the main opposition candidate and front-runner suffered a setback in court.`\
+https://nytimes.com/2025/05/01/world/asia/south-korea-president-resigns.html
+
 **Browns post-NFL Draft depth chart: Which rookies will be immediate contributors?**\
 `Of Cleveland's seven-man rookie class, five have pretty clear starting points on the team’s fluid depth chart. `\
 https://nytimes.com/athletic/6324971/2025/05/01/cleveland-browns-depth-chart-nfl-draft/
