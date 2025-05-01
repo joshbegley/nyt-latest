@@ -1,3 +1,23 @@
+**‘The Narrow Road to the Deep North’ Is a Brutal but Poetic War Drama**\
+`Starring Jacob Elordi, this often agonizing series takes on life’s biggest questions, about the mind and the heart, human suffering and transcendence.`\
+https://nytimes.com/2025/05/01/arts/television/narrow-road-to-the-deep-north-jacob-elordi.html
+
+**When You’re Craving One Specific Food**\
+`Yubuchobap with lots of fillings, classic zongzi and the ‘Swingle.’`\
+https://nytimes.com/2025/05/01/dining/when-youre-craving-one-specific-food.html
+
+**The World Still Speaks in U.S. Dollars**\
+`Confidence in the world’s reserve currency is in doubt, leaving an opening for alternatives like the euro. But it won’t be easy.`\
+https://nytimes.com/2025/05/01/business/dealbook/us-dollar-fall-reserve-currency-alternatives-euro.html
+
+**A’s set to promote pitching prospect Gunnar Hoglund: Source**\
+`Hoglund had a 2.43 ERA in six starts for Triple-A Las Vegas. He was the main prospect in the 2022 deal that sent Matt Chapman to Toronto.`\
+https://nytimes.com/athletic/6327411/2025/05/01/gunnar-hoglund-athletics-mlb-debut/
+
+**Death Toll From a Wave of Sectarian Violence in Syria Passes 100**\
+`The casualties from clashes this week rose sharply as the tensions moved closer to a major southern region controlled by the country’s Druse minority.`\
+https://nytimes.com/2025/05/01/world/middleeast/syria-sectarian-violence-100-killed.html
+
 **New York May Weaken Its Oversight Over Religious Schools**\
 `A potential last-minute addition to the state budget would amount to a major victory for Hasidic Jewish leaders.`\
 https://nytimes.com/2025/05/01/nyregion/new-york-hasidic-schools-oversight.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/05/01/climate/michigan-hawaii-climate-lawsuits.html
 **Yankees claim outfielder from Braves, put Giancarlo Stanton on 60-day IL**\
 `The Yankees added Bryan de la Cruz, who hit 19 home runs in 2023 and 21 in 2024. Stanton has not yet begun a rehab assignment.`\
 https://nytimes.com/athletic/6327321/2025/05/01/yankees-giancarlo-stanton-60-day-il-bryan-de-la-cruz/
-
-**Lawmaker in Kenya Is Gunned Down by Motorcycle-Riding Assailant**\
-`An opposition politician was killed in the heart of Nairobi on Wednesday, according to the police.`\
-https://nytimes.com/2025/05/01/world/africa/kenya-killing-charles-were.html
-
-**Heat Today: Key storylines to watch as Miami enters its offseason**\
-`The Heat are putting their challenging season behind them. What's next for the franchise?`\
-https://nytimes.com/athletic/6326424/2025/05/01/heat-offseason-bam-adebayo-pat-riley-nba/
-
-**Bobby Torre, the Soul of a Saloon, J.G. Melon, Dies at 81**\
-`His ribald one-liners, oddball knowledge and generosity helped define Melon’s, an Upper East Side fixture, where he manned the door for decades.`\
-https://nytimes.com/2025/05/01/nyregion/bobby-torre-dead.html
-
-**SharkNinja Recalls 1.8 Million Pressure Cookers After Burn Reports**\
-`The company is recalling Ninja Foodi OP300 series pressure cookers that were sold between January 2019 and March 2025 after more than 100 reported burn injuries, officials said.`\
-https://nytimes.com/2025/05/01/business/sharkninja-foodi-pressure-cooker-recall.html
-
-**Winnipeg Jets forward Mark Scheifele out for Game 6 against Blues**\
-`Mark Scheifele was injured in Game 5 and won't play Friday night.`\
-https://nytimes.com/athletic/6327148/2025/05/01/nhl-playoffs-winnipeg-jets-mark-scheifele/
 
