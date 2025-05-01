@@ -1,3 +1,7 @@
+**Judge Rebukes Apple and Orders It to Loosen Grip on App Store**\
+`The ruling was a stinging defeat for Apple in a long-running antitrust case brought by Epic Games, the maker of Fortnite, on behalf of app developers.`\
+https://nytimes.com/2025/04/30/technology/apple-epic-app-store-ruling.html
+
 **‘Thunderbolts*’ Review: Florence Pugh and Pals Kick Some Asterisk**\
 `The actress is the main attraction in Marvel’s latest, about a group of ragtag super-types who join forces to (spoiler alert!) save the world.`\
 https://nytimes.com/2025/04/30/movies/thunderbolts-review-florence-pugh-kicks-asterisk.html
