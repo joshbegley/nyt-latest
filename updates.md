@@ -1,3 +1,7 @@
+**Charles Koch Says Many in the Country Are ‘Abandoning’ Its Principles**\
+`In a rare appearance on Thursday to receive an award from the Cato Institute, Mr. Koch made oblique references to President Trump and his tariffs, without mentioning his name.`\
+https://nytimes.com/2025/05/01/us/politics/charles-koch-trump-republicans-tariffs.html
+
 **The Poetry Challenge Day 5: We’ve learned a poem this week. Now it’s yours.**\
 `We’ve reached the last stanza of our adventure in verse. Now it’s time to show off what you’ve learned. As a bonus: our critic on why memorizing a poem is as much about what you forget.`\
 https://nytimes.com/interactive/2025/books/edna-st-vincent-millay-poetry.html
