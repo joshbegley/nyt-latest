@@ -1,3 +1,7 @@
+**Appeals Court Allows Trump to Block Money for Federally Funded Newsrooms, For Now**\
+`The outlets — Radio Free Europe/Radio Liberty, Radio Free Asia and Middle East Broadcasting Networks — have had to scale back their news programming.`\
+https://nytimes.com/2025/05/02/us/politics/trump-blocks-federal-news-funding.html
+
 **Mark Stone, 'the heartbeat of the team,' delivers again for the Golden Knights**\
 `Stone played a role in all 3 of the Golden Knights' goals as they beat the Wild to advance to the second round again.`\
 https://nytimes.com/athletic/6328416/2025/05/02/mark-stone-golden-knights-wild/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/02/world/europe/uk-election-reform-labour-runcorn.ht
 **Oilers hold off Kings in Game 6, advance to Round 2**\
 `For the fourth year in a row, the Oilers have eliminated the Kings from the playoffs in the first round.`\
 https://nytimes.com/athletic/6317063/2025/05/02/oilers-kings-nhl-playoffs-2025-game-6-takeaways/
-
-**The New York Times in Print for Friday, May 2, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/05/02/todays-new-york-times
 
