@@ -1,3 +1,19 @@
+**Read Trump’s 2026 Discretionary Budget Request**\
+`The White House has released its budget request to Congress for the 2026 fiscal year, calling for about $163 billion in cuts to non-defense funds.`\
+https://nytimes.com/interactive/2025/05/02/us/budget-request-2026-document.html
+
+**Five International Movies to Stream Now**\
+`This month’s picks include a hit Thai family drama, an Iranian animated film, a trilogy of documentaries about Chinese textile workers and more.`\
+https://nytimes.com/2025/05/02/movies/international-movies-streaming.html
+
+**Jeremy Renner and the Science of Extraordinary Near-Death Experiences**\
+`A little over two years ago, the actor was run over by a snowplow. Like thousands of others, he then felt an “exhilarating peace.” Why?`\
+https://nytimes.com/2025/05/02/well/jeremy-renner-and-the-science-of-extraordinary-near-death-experiences.html
+
+**Call to the Mint Julep**\
+`It’s the weekend for Benedictine dip, Derby pie, Henry Bain sauce and, of course, juleps stuffed full of mint.`\
+https://nytimes.com/2025/05/02/dining/kentucky-derby-mint-julep.html
+
 **How Rubio Proved Himself as Trump’s Loyal Foreign Policy Foot Soldier**\
 `As Secretary of State, Marco Rubio has been Donald Trump’s reliable echo on issues like Iran, Ukraine and Gaza. But Steve Witkoff, the president’s friend, remains the chief negotiator.`\
 https://nytimes.com/2025/05/02/world/europe/trump-rubio-national-security-adviser.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6328966/2025/05/02/james-harden-clippers-nuggets-ga
 **Maps: 7.4-Magnitude Earthquake Near Chile Prompts Tsunami Alert**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/05/02/world/americas/tsunami-earthquake-chile.html
-
-**WATCH: How Anthony Edwards has blossomed as a leader, not just as a player**\
-`A look at how Edwards has embraced the challenge of guiding the Timberwolves, which experienced significant change just before the season.`\
-https://nytimes.com/athletic/6324510/2025/05/02/video-anthony-edwards-leader-timberwolves/
-
-**Grand Theft Auto VI Delayed Until May 2026**\
-`The previous game in the franchise was released in 2013 and has generated more than $8 billion in revenue for Rockstar Games.`\
-https://nytimes.com/article/grand-theft-auto-6.html
-
-**Grande becomes second horse scratched from Kentucky Derby**\
-`The move comes less than 24 hours after Rodriguez, the Bob Baffert-trained horse, was scratched from the race because of a bruised foot.`\
-https://nytimes.com/athletic/6329125/2025/05/02/repole-stable-grande-scratch-kentucky-derby-foot-bruise/
-
-**For the U.S. and China, the Only Talking Is About Whether to Talk**\
-`The standoff over terms of negotiations, and whether they are happening, signals that a protracted economic fight lies ahead.`\
-https://nytimes.com/2025/05/02/us/politics/us-china-trade-tariffs-talks.html
 
