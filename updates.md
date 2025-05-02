@@ -1,3 +1,7 @@
+**PSG assessing Dembele hamstring injury before Arsenal second leg**\
+`PSG said in a statement on Friday that the forward had "strained his hamstring," and was progressing well but requires further assessment.`\
+https://nytimes.com/athletic/6329031/2025/05/02/psg-arsenal-dembele-injury-champions-league-update/
+
 **Easy, Healthy Chicken Dinners **\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/healthy-chicken-dinners

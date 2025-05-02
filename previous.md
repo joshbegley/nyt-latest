@@ -1,3 +1,7 @@
+**PSG assessing Dembele hamstring injury before Arsenal second leg**\
+`PSG said in a statement on Friday that the forward had "strained his hamstring," and was progressing well but requires further assessment.`\
+https://nytimes.com/athletic/6329031/2025/05/02/psg-arsenal-dembele-injury-champions-league-update/
+
 **Easy, Healthy Chicken Dinners **\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/healthy-chicken-dinners
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6327191/2025/05/02/rangers-forward-grades-2024-25/
 **The 10 best remaining free-agent fits for the Raiders**\
 `The Raiders' roster may be full, but that doesn't mean it's set. We examine 10 free agents the franchise could pursue this spring.`\
 https://nytimes.com/athletic/6319180/2025/05/02/las-vegas-raiders-free-agents-nfl-draft/
-
-**Apple Dodged a Tariff Hit. It Expects Its Luck to Run Out.**\
-`The iPhone maker warned that it may take a $900 million hit from President Trump’s levies, showing that even powerful companies aren’t immune from the trade war.`\
-https://nytimes.com/2025/05/02/business/dealbook/apple-amazon-tariffs-trump.html
 

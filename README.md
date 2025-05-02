@@ -1,3 +1,11 @@
+**Germany’s Intelligence Agency Labels Far-Right AfD as Extremist**\
+`The designation is certain to inflame debates over whether the party should be banned, though some polls show it to be the most popular in the country.`\
+https://nytimes.com/2025/05/02/world/europe/germany-afd-far-right-extremist.html
+
+**Bergvall set to miss rest of Spurs season through injury, Postecoglou confirms**\
+`Bergvall, 19, missed Spurs' Europa League semi-final first leg win over Bodo/Glimt on Thursday due to an injury sustained in training.`\
+https://nytimes.com/athletic/6327256/2025/05/02/lucas-bergvall-spurs-injury-update/
+
 **PSG assessing Dembele hamstring injury before Arsenal second leg**\
 `PSG said in a statement on Friday that the forward had "strained his hamstring," and was progressing well but requires further assessment.`\
 https://nytimes.com/athletic/6329031/2025/05/02/psg-arsenal-dembele-injury-champions-league-update/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6324161/2025/05/02/college-football-2025-transfer-p
 **Which Seahawks undrafted free agents have the best chance to make the roster?**\
 `Seattle signed two players with fifth-round grades in "The Beast," including a 6-5, 274-pound defensive end who had seven sacks in 2024.`\
 https://nytimes.com/athletic/6325925/2025/05/02/seahawks-undrafted-free-agents-rookie-camp/
-
-**Rangers report card: Grading every forward, from Will Cuylle to Chris Kreider**\
-`Please note: Grades are based on expectations for a player, so a "B" for Mika Zibanejad doesn’t look the same as a "B" for Adam Edström.`\
-https://nytimes.com/athletic/6327191/2025/05/02/rangers-forward-grades-2024-25/
-
-**The 10 best remaining free-agent fits for the Raiders**\
-`The Raiders' roster may be full, but that doesn't mean it's set. We examine 10 free agents the franchise could pursue this spring.`\
-https://nytimes.com/athletic/6319180/2025/05/02/las-vegas-raiders-free-agents-nfl-draft/
 
