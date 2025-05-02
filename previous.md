@@ -6,7 +6,7 @@ https://nytimes.com/2025/05/02/learning/word-of-the-day-vogue.html
 `For all their awful domestic form, both clubs' financial clout and the Premier League's depth always gave them a chance in Europe`\
 https://nytimes.com/athletic/6327988/2025/05/02/manchester-united-tottenham-europa-league-final/
 
-**Appeals Court Allows Trump to Block Money for Federally Funded Newsrooms, For Now**\
+**Appeals Court Allows Trump to Block Money for Federally Funded Newsrooms, for Now**\
 `The outlets — Radio Free Europe/Radio Liberty, Radio Free Asia and Middle East Broadcasting Networks — have had to scale back their news programming.`\
 https://nytimes.com/2025/05/02/us/politics/trump-blocks-federal-news-funding.html
 

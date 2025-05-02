@@ -1,3 +1,7 @@
+**Appeals Court Allows Trump to Block Money for Federally Funded Newsrooms, for Now**\
+`The outlets — Radio Free Europe/Radio Liberty, Radio Free Asia and Middle East Broadcasting Networks — have had to scale back their news programming.`\
+https://nytimes.com/2025/05/02/us/politics/trump-blocks-federal-news-funding.html
+
 **Word of the Day: vogue**\
 `This word has appeared in 99 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/05/02/learning/word-of-the-day-vogue.html
