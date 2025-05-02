@@ -1,3 +1,7 @@
+**Trump talks with Saban, considers executive order on paying college athletes**\
+`Donald Trump and Nick Saban reportedly met Thursday night after the president gave the commencement address at Alabama.`\
+https://nytimes.com/athletic/6330290/2025/05/02/donald-trump-executive-order-paying-college-athletes-nick-saban/
+
 **Wisconsin Governor Says He’s ‘Not Afraid’ After Warning on Immigration Policies**\
 `Thomas Homan, the border czar, had said, “Wait to see what’s coming,” when asked about guidance sent to state workers about interacting with ICE agents.`\
 https://nytimes.com/2025/05/02/us/wisconsin-governor-tony-evers-homan.html
