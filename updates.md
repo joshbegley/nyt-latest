@@ -1,3 +1,11 @@
+**Russo and Smith: The playoffs felt different for the Wild, but ended with the same hollow result**\
+`Once again, in the franchise's 24th season, passionate, patient Wild fans were left unsatisfied.`\
+https://nytimes.com/athletic/6328071/2025/05/02/minnesota-wild-playoffs-offseason/
+
+**Reform U.K. Wins Special Election by Six Votes, in Blow to Starmer**\
+`Nigel Farage’s right-wing populist party snatched a battleground parliamentary seat from the governing Labour Party.`\
+https://nytimes.com/2025/05/02/world/europe/uk-election-reform-labour-runcorn.html
+
 **Trump Signs Executive Order to End Federal Funding for NPR and PBS**\
 `The Trump administration has accused the two broadcasters of using public funds to produce biased coverage and “left-wing propaganda.”`\
 https://nytimes.com/2025/05/02/us/politics/trump-funding-npr-pbs.html

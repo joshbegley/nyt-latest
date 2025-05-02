@@ -1,3 +1,7 @@
+**Angels oft-injured star Mike Trout returns to IL with bone bruise**\
+`The bone bruise in Trout's left knee is another injury in a long line of them over his last five seasons.`\
+https://nytimes.com/athletic/6328488/2025/05/02/mike-trout-knee-injury-angels/
+
 **Russo and Smith: The playoffs felt different for the Wild, but ended with the same hollow result**\
 `Once again, in the franchise's 24th season, passionate, patient Wild fans were left unsatisfied.`\
 https://nytimes.com/athletic/6328071/2025/05/02/minnesota-wild-playoffs-offseason/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6328351/2025/05/02/maple-leafs-nhl-playoffs-series-
 **Israel Launches Airstrikes Near Presidential Palace in Damascus**\
 `It was the second time in days that Israel had intervened militarily in Syria amid sectarian violence targeting the Druse.`\
 https://nytimes.com/2025/05/02/world/middleeast/israel-syria-druse-strikes.html
-
-**Why not even this season's Manchester United can mess this up**\
-`History, the injury crisis easing and key players' form mean United can look forward to the Europa League final... surely?`\
-https://nytimes.com/athletic/6328138/2025/05/02/manchester-united-europa-league-win/
 
