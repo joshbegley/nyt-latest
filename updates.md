@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6326152/2025/05/02/premier-league-end-of-season-bet
 `\
 https://nytimes.com/athletic/6326152/2025/05/02/premier-league-end-of-season-betting-predictions/
 
+**Title race and relegation scrap over - what’s left to bet on in the Premier League?**\
+`Sam Tighe delves into some of the more lesser-known Premier League betting storylines as the season winds down. 
+`\
+https://nytimes.com/athletic/6326152/2025/05/02/premier-league-end-of-season-betting-predictions/
+
 **Late Night Watches ‘Signalgate’ Claim a Victim, Sort of**\
 `Mike Waltz, who added a journalist to a Signal group chat about plans to bomb Yemen, is out as national security adviser, but his career isn’t over.`\
 https://nytimes.com/2025/05/02/arts/television/late-night-mike-waltz.html
