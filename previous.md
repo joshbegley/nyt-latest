@@ -1,3 +1,7 @@
+**Trump’s Budget Flops With Some Powerful Republican Lawmakers**\
+`Senators expressed concern with a military budget they said was far too scant, and one objected to the plan’s gutting of vital programs, including one that offers home heating assistance for the poor.`\
+https://nytimes.com/2025/05/02/us/politics/trump-budget-congress-republicans.html
+
 **Paramilitary Fighters Massacre More Than 100 Civilians, Doctors’ Group Says**\
 `The Sudan Doctors Network said that the Rapid Support Forces had killed at least  21 children on Thursday, the latest violent spasm in Sudan’s civil war.`\
 https://nytimes.com/2025/05/02/world/africa/sudan-war-atrocity.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/02/books/review/prose-to-the-people-katie-mitchell.h
 **Trump’s Space Budget Reflects Influence of Elon Musk and SpaceX**\
 `SpaceX, already one of the biggest NASA and Pentagon contractors, could win billions of dollars in new contracts if President Trump’s budget proposal is approved by Congress.`\
 https://nytimes.com/2025/05/02/us/politics/elon-musk-spacex-trump-budget.html
-
-**Reds put OF Austin Hays on IL and activate C Tyler Stephenson**\
-`Stephenson played in eight rehab games for Triple-A Louisville, going 3 for 28 (.107) with a home run.`\
-https://nytimes.com/athletic/6329765/2025/05/02/reds-austin-hays-il-activate-tyler-stephenson/
 

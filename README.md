@@ -1,3 +1,7 @@
+**Kennedy Orders Search for New Measles Treatments Instead of Urging Vaccination**\
+`Decades of research have turned up no miracle treatment for measles, but studies show the M.M.R. shot is 97 percent effective in preventing the disease.`\
+https://nytimes.com/2025/05/02/health/measles-treatments-vaccines-kennedy.html
+
 **Trump’s Budget Flops With Some Powerful Republican Lawmakers**\
 `Senators expressed concern with a military budget they said was far too scant, and one objected to the plan’s gutting of vital programs, including one that offers home heating assistance for the poor.`\
 https://nytimes.com/2025/05/02/us/politics/trump-budget-congress-republicans.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6329852/2025/05/02/blade-tidwell-mets-mlb-debut/
 **An Archive of Black Resistance, in Dispatches From Bookstores**\
 `Katie Mitchell’s photo book “Prose to the People” visits stores around the United States, from the 19th century to today.`\
 https://nytimes.com/2025/05/02/books/review/prose-to-the-people-katie-mitchell.html
-
-**Trump’s Space Budget Reflects Influence of Elon Musk and SpaceX**\
-`SpaceX, already one of the biggest NASA and Pentagon contractors, could win billions of dollars in new contracts if President Trump’s budget proposal is approved by Congress.`\
-https://nytimes.com/2025/05/02/us/politics/elon-musk-spacex-trump-budget.html
 

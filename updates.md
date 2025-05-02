@@ -1,3 +1,7 @@
+**Trump’s Budget Flops With Some Powerful Republican Lawmakers**\
+`Senators expressed concern with a military budget they said was far too scant, and one objected to the plan’s gutting of vital programs, including one that offers home heating assistance for the poor.`\
+https://nytimes.com/2025/05/02/us/politics/trump-budget-congress-republicans.html
+
 **Stocks on Track to Erase Losses From April Tariff Chaos**\
 `Wall Street has recovered from April’s sharp sell-off, buoyed by hope for trade talks. But the economic fallout from President Trump’s policies still has investors on edge.`\
 https://nytimes.com/2025/05/02/business/stock-market-recovery-trump-tariffs.html
