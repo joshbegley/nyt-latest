@@ -1,3 +1,7 @@
+**Suit Accuses the Fashion Designer Riccardo Tisci of Sexual Assault**\
+`The former creative director of Givenchy and Burberry has denied the allegations that he drugged and assaulted a man in New York last June.`\
+https://nytimes.com/2025/05/02/style/riccardo-tisci-sexual-assault-lawsuit.html
+
 **‘The Handmaid’s Tale’ Wants to End With a Message of Hope**\
 `In interviews, Elisabeth Moss and other stars and creators of the groundbreaking drama discuss its impending conclusion and ongoing connection to American politics.`\
 https://nytimes.com/2025/05/02/arts/television/the-handmaids-tale-finale.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6327303/2025/05/02/miami-grand-prix-lando-norris-ma
 **Oddsmakers talk Kentucky Derby: 'This is horse racing’s Super Bowl'**\
 ` Max Meyer spoke with several oddsmakers to discuss the Kentucky Derby, or "horse racing's Super Bowl," as one oddsmaker called it.`\
 https://nytimes.com/athletic/6326356/2025/05/02/kentucky-derby-sportsbooks-journalism-baffert/
-
-**Two Scientific Groups Say They’ll Keep Working on U.S. Climate Assessment**\
-`The organizations said they planned to publish the assessment even after the Trump administration’s decision to dismiss all authors on the project.`\
-https://nytimes.com/2025/05/02/climate/national-climate-assessment-trump.html
 
