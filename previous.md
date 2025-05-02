@@ -1,3 +1,11 @@
+**French steel union threaten to block Tour de France route over labour dispute**\
+`Union officials are upset at a potential 302 redundancies at steel manufacturer ArcelorMittal.`\
+https://nytimes.com/athletic/6328891/2025/05/02/tour-de-france-route-protest-cgt-labour-dispute/
+
+**Photo Shows Waltz’s Conversations on a Version of Signal**\
+`A Reuters photographer captured an image of Michael Waltz’s phone screen during a White House cabinet meeting, a day before he was ousted from his job as national security adviser.`\
+https://nytimes.com/2025/05/02/us/mike-waltz-signal-photo.html
+
 **Twins' Louis Varland has shown big upside in bullpen but still has a meatball problem**\
 `Varland's move to the bullpen has been encouraging overall, but middle-middle pitches continue to hold him back.`\
 https://nytimes.com/athletic/6323504/2025/05/02/louis-varland-twins-reliever-meatballs/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6297949/2025/05/02/kentucky-derby-burgoo-stew-churc
 **'He'll take this and fight hard.' Community rallies around injured Pirates fan Kavan Markwood**\
 `His former coach says that Markwood, who is in critical condition after a fall at Wednesday's Pirates game, is "an exceptional young man."`\
 https://nytimes.com/athletic/6328172/2025/05/02/injured-pirates-fan-kavan-markwood-fall/
-
-**For Notre Dame incoming freshman Dallas Golden, it's not cornerback 'or' receiver, it's 'and'**\
-`From 5 a.m. workouts to four years on varsity at Berkeley Prep, there’s a good chance Golden will be as ready as any freshman could be.`\
-https://nytimes.com/athletic/6328090/2025/05/02/dallas-golden-notre-dame-football/
-
-**Sliders: Eugenio Suárez is streaky, superstitious — and now he’s made his mark on baseball history**\
-`Plus the Dodgers set an unwanted early-season record, a conversation with Doug Glanville and a look back at a catch that saved a perfecto.`\
-https://nytimes.com/athletic/6325368/2025/05/02/diamondbacks-eugenio-suarez-dodgers-rotation/
 

@@ -1,3 +1,11 @@
+**French steel union threaten to block Tour de France route over labour dispute**\
+`Union officials are upset at a potential 302 redundancies at steel manufacturer ArcelorMittal.`\
+https://nytimes.com/athletic/6328891/2025/05/02/tour-de-france-route-protest-cgt-labour-dispute/
+
+**Photo Shows Waltz’s Conversations on a Version of Signal**\
+`A Reuters photographer captured an image of Michael Waltz’s phone screen during a White House cabinet meeting, a day before he was ousted from his job as national security adviser.`\
+https://nytimes.com/2025/05/02/us/mike-waltz-signal-photo.html
+
 **Twins' Louis Varland has shown big upside in bullpen but still has a meatball problem**\
 `Varland's move to the bullpen has been encouraging overall, but middle-middle pitches continue to hold him back.`\
 https://nytimes.com/athletic/6323504/2025/05/02/louis-varland-twins-reliever-meatballs/
