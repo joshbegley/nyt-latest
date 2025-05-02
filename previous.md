@@ -1,3 +1,23 @@
+**Russell Brand Attends Court Hearing In London For Rape Charges**\
+`The comedian and actor was granted bail in a court hearing for multiple charges of sexual assault, including two counts of rape.`\
+https://nytimes.com/video/world/europe/100000010142844/russell-brand-allegations-trial.html
+
+**Here’s the latest.**\
+`Many of the suggested cuts, which would require congressional approval, target federal programs that benefit the poor.`\
+https://nytimes.com/2025/05/02/business/heres-the-latest.html
+
+**Trump to Unveil 2026 Budget Proposal, Seeking Substantial Cuts Across Government**\
+`The president’s blueprint for the next fiscal year will highlight his vision for Washington and most likely be a dramatic retrenchment in the role and reach of the federal government.`\
+https://nytimes.com/live/2025/05/02/us/trump-budget-2026
+
+**Prince Harry Loses Latest Court Battle Over His Security in the U.K.**\
+`The decision is the latest stage in his case against the government over his right to automatic police protection in Britain.`\
+https://nytimes.com/2025/05/02/world/europe/prince-harry-security-uk-court.html
+
+**Solid Jobs Report Reinforces Fed’s Patient Approach to Interest Rate Cuts**\
+`The central bank is bracing for President Trump’s tariffs to dent growth while stoking inflation, keeping interest rate cuts at bay for now.`\
+https://nytimes.com/2025/05/02/business/fed-jobs-interest-rates.html
+
 **Trump Says He’s ‘Taking Away’ Harvard’s Tax-Exempt Status**\
 `President Trump first threatened Harvard’s tax status last month. It was not immediately clear if the I.R.S. was in fact moving forward with a change.`\
 https://nytimes.com/2025/05/02/us/politics/trump-harvard-tax-exempt-status.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/05/02/theater/redwood-broadway-closing-idina-menzel.htm
 **Tips for Navigating the ‘Chaotic System’ of Student Loan Repayments**\
 `Experts say recent graduates with loans should choose the repayment option that makes the most sense for them now and expect to make adjustments later.`\
 https://nytimes.com/2025/05/02/your-money/student-loan-repayment-tips.html
-
-**Don’t Count the Dollar Out Just Yet**\
-`As President Trump’s tariffs rock the world, German bonds and the euro are benefiting. But U.S. strength endures, our columnist says.`\
-https://nytimes.com/2025/05/02/business/dollar-treasury-bonds-markets.html
-
-**Germany’s Intelligence Agency Labels Far-Right AfD as Extremist**\
-`The designation is certain to inflame debates over whether the party should be banned, though some polls show it to be the most popular in the country.`\
-https://nytimes.com/2025/05/02/world/europe/germany-afd-far-right-extremist.html
-
-**Bergvall set to miss rest of Spurs season through injury, Postecoglou confirms**\
-`Bergvall, 19, missed Spurs' Europa League semi-final first leg win over Bodo/Glimt on Thursday due to an injury sustained in training.`\
-https://nytimes.com/athletic/6327256/2025/05/02/lucas-bergvall-spurs-injury-update/
-
-**PSG assessing Dembele hamstring injury before Arsenal second leg**\
-`PSG said in a statement on Friday that the forward had "strained his hamstring," and was progressing well but requires further assessment.`\
-https://nytimes.com/athletic/6329031/2025/05/02/psg-arsenal-dembele-injury-champions-league-update/
-
-**Easy, Healthy Chicken Dinners **\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/healthy-chicken-dinners
 
