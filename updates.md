@@ -1,3 +1,15 @@
+**President Trump remains bullish, even as the economy flashes warning signs.**\
+`By Tony Romm`\
+https://nytimes.com/live/2025/05/02/business/jobs-report-april-economy/president-trump-remains-bullish-even-as-the-economy-flashes-warning-signs
+
+**The Pulse: MLB's biggest surprises thus far**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6328493/2025/05/02/mlb-surprises-giants-orioles-the-pulse/
+
+**How the Oilers' depth got them through first round and has them primed for more**\
+`Connor McDavid and Leon Draisaitl often get the job done for the Oilers but against the Kings others stepped up.`\
+https://nytimes.com/athletic/6328706/2025/05/02/edmonton-oilers-kings-playoffs-result-connor-brown/
+
 **Slot to rotate Liverpool squad for final league games**\
 `Liverpool have four games remaining, starting with a trip to Stamford Bridge on Sunday to face Champions League-chasing Chelsea.`\
 https://nytimes.com/athletic/6328737/2025/05/02/liverpool-team-news-rotation-arne-slot/
