@@ -1,3 +1,15 @@
+**In Alabama Commencement Speech, Trump Mixes In the Political**\
+`Between pieces of advice like “don’t try to be someone else,” the president attacked political foes and discussed everything from egg prices to transgender rights, often to cheers from the crowd.`\
+https://nytimes.com/2025/05/02/us/politics/trump-alabama-commencement-speech.html
+
+**Jalen Brunson and the shot that may have saved the Knicks as we know them**\
+`The final points of Brunson's 40-point performance carried the weight of a franchise and avoided an alternate universe.`\
+https://nytimes.com/athletic/6328284/2025/05/02/jalen-brunson-new-york-knicks-nba-game-winner/
+
+**Mark Stone, 'the heartbeat of the team,' delivers again for the Golden Knights**\
+`Stone played a role in all three of the Golden Knights' goals as they beat the Wild to advance to the second round again.`\
+https://nytimes.com/athletic/6328416/2025/05/02/mark-stone-golden-knights-wild/
+
 **Nuno Espirito Santo needs to get his Forest back - and fast**\
 `An uncharacteristically soft performance against Brentford was a blow to Forest's top-five hopes but all is not lost`\
 https://nytimes.com/athletic/6327925/2025/05/02/nottingham-forest-brentford-result-analysis/
