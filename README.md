@@ -1,4 +1,16 @@
-**Rangers extend center Juuso Pärssinen for two years**\
+**Reds put OF Austin Hays on IL and activate C Tyler Stephenson**\
+`Stephenson played in eight rehab games for Triple-A Louisville, going 3 for 28 (.107) with a home run.`\
+https://nytimes.com/athletic/6329765/2025/05/02/reds-austin-hays-il-activate-tyler-stephenson/
+
+**NHL's Lady Byng Trophy finalists revealed: Eichel earns first nomination**\
+`Anze Kopitar of the Los Angeles Kings could become a two-time winner.`\
+https://nytimes.com/athletic/6325175/2025/05/02/nhl-lady-byng-finalists-2025/
+
+**NPR and PBS Vow to Fight Trump’s Order to Cut Funding**\
+`NPR called the order, which could upend public media, “an affront to the First Amendment.”`\
+https://nytimes.com/2025/05/02/business/media/npr-pbs-federal-funding.html
+
+**Rangers, Pärssinen agree to 2-year deal with $1.25 million AAV: Source**\
 `The Rangers now have $8.42 million in projected cap space for 2025-26.`\
 https://nytimes.com/athletic/6329762/2025/05/02/rangers-extend-center-juuso-parssinen/
 
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2025/05/02/upshot/flashback.html
 **Trump’s plan proposes sweeping cuts to climate and renewable energy programs.**\
 `By Brad Plumer and Lisa Friedman`\
 https://nytimes.com/live/2025/05/02/us/trump-budget-2026/trumps-plan-proposes-sweeping-cuts-to-climate-and-renewable-energy-programs
-
-**7 Killed in Crash Involving a Tour Van and a Pickup Near Yellowstone**\
-`The crash in eastern Idaho killed six people in a van who had been part of a tour group, as well as the driver of a pickup truck, the State Police said.`\
-https://nytimes.com/2025/05/02/us/yellowstone-tour-van-fatal-crash.html
-
-**Trump Gets a Slow Start on Judges After Setting a Record Pace in First Term**\
-`The president named his first appeals court candidate this week, but fewer vacancies and other priorities have led to a lack of judicial nominations from the White House so far.`\
-https://nytimes.com/2025/05/02/us/politics/trump-judges-nominations.html
-
-**Opening Line: Most intriguing wagers in the weekend's biggest games**\
-`The most intriguing bets from some of the weekend's biggest sporting events, including the Kentucky Derby.`\
-https://nytimes.com/athletic/6329351/2025/05/02/opening-line-rockets-warriors-kentucky-derby-chelsea-liverpool/
 
