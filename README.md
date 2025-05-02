@@ -1,0 +1,40 @@
+**Trump Officials Say Ex-Leader of Cybersecurity Agency Is Under Investigation**\
+`The disclosure came three weeks after President Trump directed the Justice Department to investigate the former agency leader, Chris Krebs, in an act of score settling.`\
+https://nytimes.com/2025/05/01/us/politics/trump-chris-krebs.html
+
+**Once Banished From Trump’s White House, Zelensky Has New Hope**\
+`In his zigzagging approach to ending the war in Ukraine, President Trump has shifted his frustration — for now — from Ukraine’s leader to Vladimir Putin.`\
+https://nytimes.com/2025/05/01/us/politics/trump-ukraine-russia-zelensky.html
+
+**When Taxpayers Fund Shows Like ‘Blue Bloods’ and ‘S.N.L.,’ Does It Pay Off?**\
+`Gov. Kathy Hochul of New York has proposed an increase in the film tax credit to stay competitive with New Jersey and other states.`\
+https://nytimes.com/2025/05/01/upshot/movies-shows-tax-credits-new-york.html
+
+**Rudy Gobert's 'absurd' performance. Plus, who would the Wolves rather face?**\
+`On NBA Daily, we discuss the Timberwolves' 4-1 series win over the Lakers in the first round.`\
+https://nytimes.com/athletic/6326361/2025/05/01/nba-daily-rudy-gobert-wolves-lakers/
+
+**Federal Report Denounces Gender Treatments for Adolescents**\
+`The H.H.S. review may set the stage for additional restrictions on gender-affirming care. Critics described it as an ideological statement.`\
+https://nytimes.com/2025/05/01/health/federal-report-denounces-gender-treatments-for-adolescents.html
+
+**Fan who fell in Pirates-Cubs game identified as local Pennsylvania man**\
+`The fan remains at the hospital after falling from the stands at PNC Park in Wednesday's Pirates-Cubs game.`\
+https://nytimes.com/athletic/6327858/2025/05/01/pirates-fan-identified-fall/
+
+**Marco Rubio, Secretary of Everything**\
+`The former senator from Florida is now the head of four government bodies. He has outdone Henry Kissinger and even Xi Jinping, China’s leader, who has only three titles.`\
+https://nytimes.com/2025/05/01/us/politics/marco-rubio-national-security-secretary-state.html
+
+**Rangers demote Jake Burger in hopes of 'reset' for first baseman: Sources**\
+`The Rangers acquired Burger from the Marlins in December for three prospects. He's batting .190 with a .561 OPS.`\
+https://nytimes.com/athletic/6327948/2025/05/01/rangers-demote-jake-burger/
+
+**Tigers designate struggling pitcher Kenta Maeda for assignment**\
+`The Tigers are prepared to part with right-hander Kenta Maeda, who had a 7.88 ERA a month into his second season with Detroit.`\
+https://nytimes.com/athletic/6327877/2025/05/01/tigers-designate-kenta-maeda-for-assignment/
+
+**Family Seeks $15 Million in Death of Migrant Girl in U.S. Custody**\
+`Anadith Danay Reyes Álvarez, 8, died in 2023 after she spent a week in a border agency detention center without adequate care for her health conditions.`\
+https://nytimes.com/2025/05/01/us/migrant-girl-death-cbp-damages.html
+
