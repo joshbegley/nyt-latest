@@ -1,3 +1,7 @@
+**Furniture Inspired by Georgia O’Keeffe’s New Mexico Home**\
+`Plus: a flower gardener’s guidebook, an exhibition of Chris Gustin’s sculptures and more recommendations from T Magazine.`\
+https://nytimes.com/2025/05/01/t-magazine/georgia-okeeffe-herman-miller.html
+
 **NBA playoffs takeaways: Brunson saves Knicks, sends Pistons packing**\
 `The Knicks' Jalen Brunson hit a game-winning 3-pointer to beat the Pistons and set up New York for a second-round series vs. Boston.`\
 https://nytimes.com/athletic/6328206/2025/05/01/nba-playoffs-takeaways-scores-thursday/
