@@ -1,3 +1,7 @@
+**The U.S. and Maine reached a deal to restore funds frozen over feud on transgender athletes.**\
+`By Tim Balk`\
+https://nytimes.com/live/2025/05/02/us/trump-news/the-us-and-maine-reached-a-deal-to-restore-funds-frozen-over-feud-on-transgender-athletes
+
 **Iowa State DC's son among 5 staffers suspended by NCAA for sports betting**\
 `Four of the staffers — none of whom currently work at Iowa State — also wagered on Cyclones’ men’s and women’s basketball games.`\
 https://nytimes.com/athletic/6330108/2025/05/02/iowa-state-betting-ncaa-suspensions/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/02/us/politics/justice-department-leak-inquiry-rules
 **Trump takes aim, again, at foreign aid.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2025/05/02/us/trump-budget-2026/trump-takes-aim-again-at-foreign-aid
-
-**Science backers say proposed science cuts pose dire risks.**\
-`One expert said the consequences would be “catastrophic” if Congress enacts the White House agenda of sweeping budget cuts.`\
-https://nytimes.com/live/2025/05/02/us/trump-budget-2026/science-backers-say-proposed-science-cuts-pose-dire-risks
 
