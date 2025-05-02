@@ -1,3 +1,7 @@
+**Twins takeaways: In familiar fashion, Minnesota falls in another Cleveland walk-off**\
+`Run-scoring singles by José Ramírez and Angel Martínez lifted the Guardians to a 4-3 victory over the Twins in 10 innings.`\
+https://nytimes.com/athletic/6328077/2025/05/01/twins-lose-guardians-another-walk-off/
+
 **New Suns GM Brian Gregory, owner Mat Ishbia's shared past is impossible to ignore**\
 `For an owner known for making major splashes (trading for Kevin Durant, Bradley Beal), this was an amazing reversal. But will it work?`\
 https://nytimes.com/athletic/6327971/2025/05/01/phoenix-suns-gm-brian-gregory-mat-ishbia/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6328105/2025/05/01/mlb-umpire-strike-zone-buffer-zo
 **Leafs finally oust Senators, move on to Round 2: Game 6 takeaways**\
 `With a 4-2 win, highlighted by a late third-period goal by Max Pacioretty, the Leafs closed out the Battle of Ontario.`\
 https://nytimes.com/athletic/6327757/2025/05/01/maple-leafs-senators-game-6-nhl-playoffs/
-
-**Trump Officials Say Ex-Leader of Cybersecurity Agency Is Under Investigation**\
-`The disclosure came three weeks after President Trump directed the Justice Department to investigate the former agency leader, Chris Krebs, in an act of score settling.`\
-https://nytimes.com/2025/05/01/us/politics/trump-chris-krebs.html
 
