@@ -1,3 +1,7 @@
+**Spurs rose to the challenge of their biggest game since 2019 - now they must do it again**\
+`This tie is not over but Spurs showed the kind of control and nous against Bodo/Glimt they will need to salvage their season`\
+https://nytimes.com/athletic/6319938/2025/05/02/tottenham-bodo-glimt-analysis-europa-league/
+
 **Reform U.K. Claims Narrow Victory in Special Election in Blow to Starmer**\
 `Nigel Farage’s right-wing populist party snatched a battleground parliamentary seat from the governing Labour Party, winning by just six votes.`\
 https://nytimes.com/2025/05/02/world/europe/uk-election-reform-labour-runcorn.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6328237/2025/05/02/avalanche-stars-nhl-playoffs-202
 **China Is Considering Trade Talks With U.S., but It Has Conditions**\
 `Despite mounting financial pressure, China says it won’t negotiate until the Trump administration shows “sincerity” by canceling tariffs on its goods.`\
 https://nytimes.com/2025/05/02/world/asia/china-us-tariffs-talks.html
-
-**Captain Clutch to the rescue? 'It's just instinct' for Jalen Brunson in Knicks Game 6 win**\
-`Jalen Brunson reminded the world on Thursday why he's the NBA's Clutch Player of the Year.`\
-https://nytimes.com/athletic/6328388/2025/05/02/jalen-brunson-game-winner-game-6-knicks/
 
