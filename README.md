@@ -1,3 +1,15 @@
+**Lakers must 'get into championship shape,' coach JJ Redick says**\
+`The Lakers coach wants to see his team get bigger and fitter in the offseason, but everything will start with LeBron James.`\
+https://nytimes.com/athletic/6327936/2025/05/01/lakers-redick-championship-shape/
+
+**MLB made a change that players say shrank the strike zone — and caught them by surprise**\
+`An adjustment in how umpires are graded has impacted ball-strike calls during the season’s first month, leaving players to adapt on the fly.`\
+https://nytimes.com/athletic/6328105/2025/05/01/mlb-umpire-strike-zone-buffer-zone-change/
+
+**Leafs finally oust Senators, move on to Round 2: Game 6 takeaways**\
+`With a 4-2 win, highlighted by a late third-period goal by Max Pacioretty, the Leafs closed out the Battle of Ontario.`\
+https://nytimes.com/athletic/6327757/2025/05/01/maple-leafs-senators-game-6-nhl-playoffs/
+
 **Trump Officials Say Ex-Leader of Cybersecurity Agency Is Under Investigation**\
 `The disclosure came three weeks after President Trump directed the Justice Department to investigate the former agency leader, Chris Krebs, in an act of score settling.`\
 https://nytimes.com/2025/05/01/us/politics/trump-chris-krebs.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6327858/2025/05/01/pirates-fan-identified-fall/
 **Marco Rubio, Secretary of Everything**\
 `The former senator from Florida is now the head of four government bodies. He has outdone Henry Kissinger and even Xi Jinping, China’s leader, who has only three titles.`\
 https://nytimes.com/2025/05/01/us/politics/marco-rubio-national-security-secretary-state.html
-
-**Rangers demote Jake Burger in hopes of 'reset' for first baseman: Sources**\
-`The Rangers acquired Burger from the Marlins in December for three prospects. He's batting .190 with a .561 OPS.`\
-https://nytimes.com/athletic/6327948/2025/05/01/rangers-demote-jake-burger/
-
-**Tigers designate struggling pitcher Kenta Maeda for assignment**\
-`The Tigers are prepared to part with right-hander Kenta Maeda, who had a 7.88 ERA a month into his second season with Detroit.`\
-https://nytimes.com/athletic/6327877/2025/05/01/tigers-designate-kenta-maeda-for-assignment/
-
-**Family Seeks $15 Million in Death of Migrant Girl in U.S. Custody**\
-`Anadith Danay Reyes Álvarez, 8, died in 2023 after she spent a week in a border agency detention center without adequate care for her health conditions.`\
-https://nytimes.com/2025/05/01/us/migrant-girl-death-cbp-damages.html
 
