@@ -1,3 +1,15 @@
+**Former Fetterman Aide Expressed Concern to Doctor About Senator’s Mental Health**\
+`The former chief of staff to Senator John Fetterman last year wrote to a doctor who had treated him, pointing to “warning signs” that suggested the senator could be backsliding on his recovery from a mental health crisis.`\
+https://nytimes.com/2025/05/02/us/politics/john-fetterman-mental-health.html
+
+**Black Style, Made to Measure**\
+`The Met’s new fashion exhibition is about “Tailoring Black Style.” For these working craftspeople, that’s basically a job description.`\
+https://nytimes.com/interactive/2025/05/02/style/tailoring-black-style.html
+
+**Veterans’ Groups Object to Trump’s Proposal to Rename Veterans Day**\
+`In a social media post, President Trump said he wanted to celebrate victories in the World Wars. But most living veterans would be left out.`\
+https://nytimes.com/2025/05/02/us/politics/trump-veterans-day.html
+
 **This Is the Moment for Mexican Indian Food to Flourish**\
 `A new generation of restaurants is pushing the overlooked cuisine forward.`\
 https://nytimes.com/2025/05/02/dining/mexican-indian-food-fusion.html
