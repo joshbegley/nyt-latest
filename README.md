@@ -1,3 +1,11 @@
+**A Longtime Art Dealer Looks Back**\
+`Arne Glimcher reflects on 65 years of Pace Gallery in a changed art world.`\
+https://nytimes.com/2025/05/02/arts/design/art-pace-gallery-glimcher.html
+
+**Watch: Why Wrexham are well set to compete financially in the Championship**\
+`The Athletic FC Podcast discuss how Wrexham’s impressive turnover figures will give them a solid foundation to compete in the Championship.`\
+https://nytimes.com/athletic/6327080/2025/05/02/athletic-fc-podcast-wrexham-promotion-championship/
+
 **Lumi Tan on How She Plans Frieze New York’s Focus Program**\
 `The curator had to choose from a large array of submissions for this year’s Focus, which features emerging artists and galleries.`\
 https://nytimes.com/2025/05/02/arts/design/lumi-tan-frieze-new-york-focus.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6329386/2025/05/02/mlb-season-aaron-judge-the-windu
 **Read Trump’s 2026 Discretionary Budget Request**\
 `The White House has released its budget request to Congress for the 2026 fiscal year, calling for about $163 billion in cuts to non-defense funds.`\
 https://nytimes.com/interactive/2025/05/02/us/budget-request-2026-document.html
-
-**Five International Movies to Stream Now**\
-`This month’s picks include a hit Thai family drama, an Iranian animated film, a trilogy of documentaries about Chinese textile workers and more.`\
-https://nytimes.com/2025/05/02/movies/international-movies-streaming.html
-
-**Jeremy Renner and the Science of Extraordinary Near-Death Experiences**\
-`A little over two years ago, the actor was run over by a snowplow. Like thousands of others, he then felt an “exhilarating peace.” Why?`\
-https://nytimes.com/2025/05/02/well/jeremy-renner-and-the-science-of-extraordinary-near-death-experiences.html
 
