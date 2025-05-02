@@ -1,3 +1,15 @@
+**Travis Scott branding to feature on Barcelona kit for Clasico**\
+`Barca unveiled the kit on Friday, with the branding for Scott's record label, Cactus Jack, replacing the usual front-of-shirt Spotify logo.`\
+https://nytimes.com/athletic/6328814/2025/05/02/barcelona-kit-clasico-travis-scott/
+
+**Hospitality hiring could slow as foreign tourists skip the U.S., for now.**\
+`By Lydia DePillis`\
+https://nytimes.com/live/2025/05/02/business/jobs-report-april-economy/hospitality-hiring-could-slow-as-foreign-tourists-skip-the-us-for-now
+
+**Racing for Trade Deals**\
+`We explain how the U.S. is trying to negotiate.`\
+https://nytimes.com/2025/05/02/briefing/racing-for-trade-deals.html
+
 **The Athletic FC: Who needs Euro final more, Man Utd or Spurs? Plus: Berhalter Jnr interview**\
 `Today in TAFC: The potential Europa League face-off between Man Utd and Tottenham, FA's transgender decision, Beckham at 50.`\
 https://nytimes.com/athletic/6328745/2025/05/02/manchester-united-tottenham-europa-league-final/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6328493/2025/05/02/mlb-surprises-giants-orioles-the
 **How the Oilers' depth got them through first round and has them primed for more**\
 `Connor McDavid and Leon Draisaitl often get the job done for the Oilers but against the Kings others stepped up.`\
 https://nytimes.com/athletic/6328706/2025/05/02/edmonton-oilers-kings-playoffs-result-connor-brown/
-
-**Slot to rotate Liverpool squad for final league games**\
-`Liverpool have four games remaining, starting with a trip to Stamford Bridge on Sunday to face Champions League-chasing Chelsea.`\
-https://nytimes.com/athletic/6328737/2025/05/02/liverpool-team-news-rotation-arne-slot/
-
-**There’s Never Been a Pope From the U.S. Could This Cardinal Change That?**\
-`Cardinal Robert Francis Prevost, a native of Chicago, has spent the bulk of his career outside the United States. Supporters say he represents a “dignified middle of the road.”`\
-https://nytimes.com/2025/05/02/world/asia/pope-candidate-cardinal-robert-francis-prevost.html
-
-**After weeks of volatile trading, Friday’s report could set the tone on Wall Street.**\
-`By Joe Rennison and Danielle Kaye`\
-https://nytimes.com/live/2025/05/02/business/jobs-report-april-economy/after-weeks-of-volatile-trading-fridays-report-could-set-the-tone-on-wall-street
 

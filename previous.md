@@ -1,3 +1,19 @@
+**The Athletic FC: Who needs Euro final more, Man Utd or Spurs? Plus: Berhalter Jnr interview**\
+`Today in TAFC: The potential Europa League face-off between Man Utd and Tottenham, FA's transgender decision, Beckham at 50.`\
+https://nytimes.com/athletic/6328745/2025/05/02/manchester-united-tottenham-europa-league-final/
+
+**English FA's ban on transgender women contrasts with history of inclusion in women's football**\
+`Women's football, both recently and historically, has made tolerance, community and acceptance a vital part of its identity`\
+https://nytimes.com/athletic/6327900/2025/05/02/english-fa-transgender-ban-womens-football-history/
+
+**Where do the Kings go from here after an inexcusable playoff exit?**\
+`The latest season-ender at the hands of the Oilers leaves the Kings with plenty of questions to ponder.`\
+https://nytimes.com/athletic/6328705/2025/05/02/kings-oilers-nhl-playoffs-exit/
+
+**Exxon and Chevron Report Lower Profits While Girding for Tariffs**\
+`President Trump’s trade policies have helped to push down oil prices while raising the costs of materials for oil and gas companies.`\
+https://nytimes.com/2025/05/02/business/energy-environment/exxon-chevron-earnings.html
+
 **President Trump remains bullish, even as the economy flashes warning signs.**\
 `By Tony Romm`\
 https://nytimes.com/live/2025/05/02/business/jobs-report-april-economy/president-trump-remains-bullish-even-as-the-economy-flashes-warning-signs
@@ -21,20 +37,4 @@ https://nytimes.com/2025/05/02/world/asia/pope-candidate-cardinal-robert-francis
 **After weeks of volatile trading, Friday’s report could set the tone on Wall Street.**\
 `By Joe Rennison and Danielle Kaye`\
 https://nytimes.com/live/2025/05/02/business/jobs-report-april-economy/after-weeks-of-volatile-trading-fridays-report-could-set-the-tone-on-wall-street
-
-**Here’s what to know:**\
-`The labor market has chugged along so far this year. Trade wars now present an imminent threat.`\
-https://nytimes.com/live/2025/05/02/business/jobs-report-april-economy/heres-what-to-know
-
-**Live Updates: U.S. Job Growth Expected to Have Slowed in April**\
-`Economists expect hiring fell back to 138,000 positions in April, from 228,000 in March. After a month of volatile trading, Wall Street will be scrutinizing the report for signs of restrained growth in the economy.`\
-https://nytimes.com/live/2025/05/02/business/jobs-report-april-economy
-
-**Execs unfiltered thoughts on NFL Draft for every NFC team: Giants, Bears get high marks**\
-`The Falcons raised eyebrows for the second consecutive year, the Lions stayed true to form, and the Cowboys and Rams also drew praise.`\
-https://nytimes.com/athletic/6327490/2025/05/02/nfl-draft-2025-nfc-teams-giants-bears/
-
-**Q&A: Orlando Magic's Jeff Weltman on adopting 'a win-now approach'**\
-`The Athletic interviewed the Magic's president of basketball operations about the team's offensive woes and adding to the roster. `\
-https://nytimes.com/athletic/6327968/2025/05/02/orlando-magic-jeff-weltman-exclusive-interview/
 
