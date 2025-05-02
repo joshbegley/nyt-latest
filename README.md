@@ -1,3 +1,15 @@
+**Former Fetterman Aide Expressed Concern to Doctor About Senator’s Mental Health**\
+`The former chief of staff to Senator John Fetterman last year wrote to a doctor who had treated him, pointing to “warning signs” that suggested the senator could be backsliding on his recovery from a mental health crisis.`\
+https://nytimes.com/2025/05/02/us/politics/john-fetterman-mental-health.html
+
+**Black Style, Made to Measure**\
+`The Met’s new fashion exhibition is about “Tailoring Black Style.” For these working craftspeople, that’s basically a job description.`\
+https://nytimes.com/interactive/2025/05/02/style/tailoring-black-style.html
+
+**Veterans’ Groups Object to Trump’s Proposal to Rename Veterans Day**\
+`In a social media post, President Trump said he wanted to celebrate victories in the World Wars. But most living veterans would be left out.`\
+https://nytimes.com/2025/05/02/us/politics/trump-veterans-day.html
+
 **This Is the Moment for Mexican Indian Food to Flourish**\
 `A new generation of restaurants is pushing the overlooked cuisine forward.`\
 https://nytimes.com/2025/05/02/dining/mexican-indian-food-fusion.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/02/world/africa/sudan-war-atrocity.html
 **Scoop City: Projecting Week 1 rookie starters in the NFC**\
 `Which rookies should start in Week 1? A look at the full NFC picture, plus thoughts from league execs`\
 https://nytimes.com/athletic/6329878/2025/05/02/nfc-starting-rookies-2025-projection-scoop-city/
-
-**Upbeat NYC**\
-`TKTKTKTTKTK`\
-https://nytimes.com/card/2025/05/02/nyregion/upstartnyc
-
-**New ‘Climate Superfund’ Laws Face Widening Legal Challenges**\
-`The Trump administration sued to block two state laws designed to force oil companies to pay the costs of climate change. Several other states are joining the fight, too.`\
-https://nytimes.com/2025/05/02/climate/climate-superfund-law-vermont-new-york-lawsuits.html
-
-**PSG to take civil action after alleged racist abuse from fans after Arsenal game**\
-`PSG will work alongside SOS Racisme, an international movement of anti-racist non-governmental organisations.`\
-https://nytimes.com/athletic/6328967/2025/05/02/arsenal-psg-alleged-racist-abuse/
 
