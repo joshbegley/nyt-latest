@@ -1,3 +1,11 @@
+**Trump Labels Haiti’s Powerful Gangs as Terrorists**\
+`The move will enable harsh sanctions on the gangs, which control important sectors of the country’s economy, and anybody that does business with them.`\
+https://nytimes.com/2025/05/02/world/americas/trump-haiti-gangs-terrorists.html
+
+**NBA playoff trends I’m watching: Timberwolves' cohesiveness, Cavaliers' pull-up shooting**\
+`The Pistons should feel good about the important learning experience they got in the first round.`\
+https://nytimes.com/athletic/6329356/2025/05/02/nba-playoff-trends-im-watching-wolves-cohesiveness-cavaliers-pull-up-shooting-and-more/
+
 **U.S. Wants to Break Up Google’s Advertising Technology**\
 `In a hearing on Friday, lawyers for the Justice Depart. indicated the government would double down on its requests to break up the tech giant’s business.`\
 https://nytimes.com/2025/05/02/technology/google-advertising-technology-hearing.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6329434/2025/05/02/katie-ledecky-summer-mcintosh-40
 **Here’s what to know:**\
 `By Talmon Joseph Smith`\
 https://nytimes.com/live/2025/05/02/business/jobs-report-april-economy/pinned
-
-**Trump’s Budget Calls for Deep Cuts to Public Health Programs and Research**\
-`A budget blueprint released on Friday advances, in hard numbers and biting words, President Trump’s assault on the nation’s universities and scientific research enterprise.`\
-https://nytimes.com/2025/05/02/us/politics/trump-budget-cdc-nih-cuts.html
-
-**Inter Miami's pressing questions after a painful Concacaf Champions Cup ouster**\
-`Between high-priced veterans with close ties to Messi and areas that need improvement, Miami must strike a balance in its trophy quest`\
-https://nytimes.com/athletic/6329528/2025/05/02/inter-miami-messi-suarez-busquets-alba-champions-cup-mls/
 

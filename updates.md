@@ -1,3 +1,11 @@
+**U.S. Wants to Break Up Google’s Advertising Technology**\
+`In a hearing on Friday, lawyers for the Justice Depart. indicated the government would double down on its requests to break up the tech giant’s business.`\
+https://nytimes.com/2025/05/02/technology/google-advertising-technology-hearing.html
+
+**Oddsmakers talk Kentucky Derby: 'This is horse racing’s Super Bowl'**\
+` Max Meyer spoke with several oddsmakers to discuss the Kentucky Derby, or "horse racing's Super Bowl," as one oddsmaker called it.`\
+https://nytimes.com/athletic/6326356/2025/05/02/kentucky-derby-sportsbooks-journalism-baffert/
+
 **How to watch the Miami Grand Prix, South Florida's F1 race last won by Lando Norris**\
 `Lando Norris will look to defend his title at this track against Max Verstappen, Charles Leclerc, George Russell and Oscar Piastri.`\
 https://nytimes.com/athletic/6327303/2025/05/02/miami-grand-prix-lando-norris-max-verstappen-how-to-watch/
