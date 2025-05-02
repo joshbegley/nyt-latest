@@ -1,3 +1,7 @@
+**Nuno Espirito Santo needs to get his Forest back - and fast**\
+`An uncharacteristically soft performance against Brentford was a blow to Forest's top-five hopes but all is not lost`\
+https://nytimes.com/athletic/6327925/2025/05/02/nottingham-forest-brentford-result-analysis/
+
 **Word of the Day: vogue**\
 `This word has appeared in 99 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/05/02/learning/word-of-the-day-vogue.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6328071/2025/05/02/minnesota-wild-playoffs-offseaso
 **Trump Signs Executive Order Seeking to End Federal Funding for NPR and PBS**\
 `The Trump administration has accused the two broadcasters of using public funds to produce biased coverage and “left-wing propaganda.”`\
 https://nytimes.com/2025/05/02/us/politics/trump-funding-npr-pbs.html
-
-**Spurs rose to the challenge of their biggest game since 2019 - now they must do it again**\
-`This tie is not over but Spurs showed the kind of control and nous against Bodo/Glimt they will need to salvage their season`\
-https://nytimes.com/athletic/6319938/2025/05/02/tottenham-bodo-glimt-analysis-europa-league/
 
