@@ -1,3 +1,11 @@
+**Yankees' injury woes continue as Jazz Chisholm Jr. heads to IL**\
+`The move was retroactive to Wednesday when Chisholm Jr. suffered the injury on a swing vs. the Baltimore Orioles on Tuesday.`\
+https://nytimes.com/athletic/6329440/2025/05/02/yankees-jazz-chisholm-jr-injury-il/
+
+**NHL announces Selke Trophy finalists — is the age of Aleksander Barkov?**\
+`Barkov could become the sixth player to win the trophy at least three times.`\
+https://nytimes.com/athletic/6327108/2025/05/02/nhl-selke-trophy-finalists-2025/
+
 **Four Asian American Comics on the Joke That Changed Their Life**\
 `Bowen Yang, Hari Kondabolu, Atsuko Okatsuka and Hasan Minhaj break down the stand-up bits that rewired their comedic DNA.`\
 https://nytimes.com/interactive/2025/05/02/arts/asian-american-comedians.html
