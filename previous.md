@@ -1,3 +1,7 @@
+**NHL playoffs daily: Leafs, Knights, Oilers advance; Avs take Stars to Game 7**\
+`Here are the key takeaways from four NHL playoff games Thursday night.`\
+https://nytimes.com/athletic/6327897/2025/05/02/nhl-playoffs-daily-round-1-score-results/
+
 **Trump Says He Is Renaming Veterans Day as ‘Victory Day for World War I’**\
 `The president said he would also label May 8, known as V-E Day for Victory in Europe, as “Victory Day for World War II,” and vowed to celebrate America’s military wins.`\
 https://nytimes.com/2025/05/02/us/politics/trump-veterans-day-world-war-i.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/05/02/crosswords/spelling-bee-forum.html
 **Athletic Club's Europa League dream was shredded in 15 mad minutes - so what now?**\
 `The pain of their Europa League semi-final defeat will be severe but Athletic Club's players cannot afford to wallow`\
 https://nytimes.com/athletic/6320439/2025/05/02/athletic-club-bilbao-europa-league-final/
-
-**In Alabama Commencement Speech, Trump Mixes In the Political**\
-`Between pieces of advice like “don’t try to be someone else,” the president attacked political foes and discussed everything from egg prices to transgender rights, often to cheers from the crowd.`\
-https://nytimes.com/2025/05/02/us/politics/trump-alabama-commencement-speech.html
 

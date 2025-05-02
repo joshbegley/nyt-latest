@@ -1,3 +1,12 @@
+**NHL playoffs daily: Leafs, Knights, Oilers advance; Avs take Stars to Game 7**\
+`Here are the key takeaways from four NHL playoff games Thursday night.`\
+https://nytimes.com/athletic/6327897/2025/05/02/nhl-playoffs-daily-round-1-score-results/
+
+**Title race and relegation scrap over - what’s left to bet on in the Premier League?**\
+`Sam Tighe delves into some of the more lesser-known Premier League betting storylines as the season winds down. 
+`\
+https://nytimes.com/athletic/6326152/2025/05/02/premier-league-end-of-season-betting-predictions/
+
 **Title race and relegation scrap over - what’s left to bet on in the Premier League?**\
 `Sam Tighe delves into some of the more lesser-known Premier League betting storylines as the season winds down. 
 `\
