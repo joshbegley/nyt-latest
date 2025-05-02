@@ -1,3 +1,7 @@
+**Opening Line: Most intriguing wagers in the weekend's biggest games**\
+`The most intriguing bets from some of the weekend's biggest sporting events, including the Kentucky Derby.`\
+https://nytimes.com/athletic/6329351/2025/05/02/opening-line-rockets-warriors-kentucky-derby-chelsea-liverpool/
+
 **Fantasy baseball waiver wire pickups featuring Ryan Gusto, Gunnar Hoglund and more**\
 `John Laghezza crunches the advanced metrics to surface the best waiver options in fantasy baseball, with Ryan Gusto a standout this week.`\
 https://nytimes.com/athletic/6324486/2025/05/02/fantasy-baseball-waiver-wire-pickups-gusto-hoglund-mckinstry/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6325227/2025/05/02/nhl-jack-adams-award-finalists-2
 **NASA Proposal Would Shift Agency’s Focus Away From Space Science**\
 `That budgetary change aligns with the priorities of Elon Musk, who founded his SpaceX rocket company two decades ago with dreams of one day sending colonists to Mars.`\
 https://nytimes.com/2025/05/02/us/politics/trump-budget-nasa-cuts.html
-
-**Barbra Streisand’s Silky Duet With Hozier, and 9 More New Songs**\
-`Hear tracks by Summer Walker, Nilüfer Yanya, Ed Sheeran and others.`\
-https://nytimes.com/2025/05/02/arts/music/playlist-barbra-streisand-ed-sheeran-summer-walker.html
 
