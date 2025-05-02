@@ -1,3 +1,19 @@
+**Four Asian American Comics on the Joke That Changed Their Life**\
+`Bowen Yang, Hari Kondabolu, Atsuko Okatsuka and Hasan Minhaj break down the stand-up bits that rewired their comedic DNA.`\
+https://nytimes.com/interactive/2025/05/02/arts/asian-american-comedians.html
+
+**Miami GP secures F1 contract extension to 2041**\
+`The Miami Grand Prix joined the F1 calendar in 2022 and has fast become popular among drivers and team personnel.`\
+https://nytimes.com/athletic/6329391/2025/05/02/miami-f1-gp-contract-extension/
+
+**Staple: The Rangers have their coach. Is that enough to turn around from a nightmare season?**\
+`Fixing this broken team is a big job. Sullivan can't do it alone. This hiring was the necessary step, but there's more work to be done.`\
+https://nytimes.com/athletic/6329287/2025/05/02/rangers-mike-sullivan-hire-analysis/
+
+**Trump proposes a trillion-dollar defense budget.**\
+`The new sum was a 13% increase from the 2025 fiscal year, the White House said.`\
+https://nytimes.com/live/2025/05/02/us/trump-budget-2026/trump-proposes-a-trillion-dollar-defense-budget
+
 **Review: In ‘Wonderful Town,’ a Party for Writers and Weirdos**\
 `An awkward Encores! revival of the 1953 musical celebrates the bohemian life of Greenwich Village in the years when oddballs could still afford to live there.`\
 https://nytimes.com/2025/05/02/theater/wonderful-town-review-encores.html
