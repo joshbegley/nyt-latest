@@ -1,3 +1,11 @@
+**Mike Peters, Frontman of the Alarm, Is Dead at 66**\
+`Leading the Welsh band known for 1980s anthems like “Sixty Eight Guns,” he later became a strong voice in the fight against cancer, which he battled for decades.`\
+https://nytimes.com/2025/05/02/arts/music/mike-peters-frontman-of-the-alarm-is-dead-at-66.html
+
+**Former Weather Service Leaders Warn Staffing Cuts Could Lead to ‘Loss of Life’**\
+`The former agency directors say current employees will face an “impossible task” to maintain service just as hurricane season begins.`\
+https://nytimes.com/2025/05/02/weather/nws-staffing-cuts-trump.html
+
 **Here’s What Happened in Karen Read’s Murder Trial This Week**\
 `Ms. Read’s retrial on charges that she killed her boyfriend, a Boston police officer, has so far largely resembled her first, which ended in a mistrial.`\
 https://nytimes.com/2025/05/02/us/karen-read-murder-trial-takeaways.html
