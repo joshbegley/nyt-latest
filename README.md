@@ -1,3 +1,7 @@
+**How to watch the Miami Grand Prix, South Florida's F1 race last won by Lando Norris**\
+`Lando Norris will look to defend his title at this track against Max Verstappen, Charles Leclerc, George Russell and Oscar Piastri.`\
+https://nytimes.com/athletic/6327303/2025/05/02/miami-grand-prix-lando-norris-max-verstappen-how-to-watch/
+
 **Two Scientific Groups Say They’ll Keep Working on U.S. Climate Assessment**\
 `The organizations said they planned to publish the assessment even after the Trump administration’s decision to dismiss all authors on the project.`\
 https://nytimes.com/2025/05/02/climate/national-climate-assessment-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6329540/2025/05/02/gregg-popovich-spurs-coach-steps
 **Yankees' injury woes continue as Jazz Chisholm Jr. heads to IL**\
 `The move was retroactive to Wednesday when Chisholm Jr. suffered the injury on a swing vs. the Baltimore Orioles on Tuesday.`\
 https://nytimes.com/athletic/6329440/2025/05/02/yankees-jazz-chisholm-jr-injury-il/
-
-**NHL announces Selke Trophy finalists — is this the age of Aleksander Barkov?**\
-`Barkov could become the sixth player to win the trophy at least three times.`\
-https://nytimes.com/athletic/6327108/2025/05/02/nhl-selke-trophy-finalists-2025/
 
