@@ -1,3 +1,7 @@
+**Jalen Brunson and the shot that may have saved the Knicks as we know them**\
+`The final points of Brunson's 40-point performance carried the weight of a franchise and avoided an alternate universe.`\
+https://nytimes.com/athletic/6328284/2025/05/02/jalen-brunson-new-york-knicks-nba-game-winner/
+
 **Nuno Espirito Santo needs to get his Forest back - and fast**\
 `An uncharacteristically soft performance against Brentford was a blow to Forest's top-five hopes but all is not lost`\
 https://nytimes.com/athletic/6327925/2025/05/02/nottingham-forest-brentford-result-analysis/
@@ -15,7 +19,7 @@ https://nytimes.com/athletic/6327988/2025/05/02/manchester-united-tottenham-euro
 https://nytimes.com/2025/05/02/us/politics/trump-blocks-federal-news-funding.html
 
 **Mark Stone, 'the heartbeat of the team,' delivers again for the Golden Knights**\
-`Stone played a role in all 3 of the Golden Knights' goals as they beat the Wild to advance to the second round again.`\
+`Stone played a role in all three of the Golden Knights' goals as they beat the Wild to advance to the second round again.`\
 https://nytimes.com/athletic/6328416/2025/05/02/mark-stone-golden-knights-wild/
 
 **Why Chelsea have been helped, not hindered, by the Conference League**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6328488/2025/05/02/mike-trout-knee-injury-angels/
 **Russo and Smith: Playoffs felt different for the Wild but ended with same hollow result**\
 `Once again, in the franchise's 24th season, passionate, patient Wild fans were left unsatisfied.`\
 https://nytimes.com/athletic/6328071/2025/05/02/minnesota-wild-playoffs-offseason/
-
-**Trump Signs Executive Order Seeking to End Federal Funding for NPR and PBS**\
-`The Trump administration has accused the two broadcasters of using public funds to produce biased coverage and “left-wing propaganda.”`\
-https://nytimes.com/2025/05/02/us/politics/trump-funding-npr-pbs.html
 
