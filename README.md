@@ -1,3 +1,15 @@
+**Gregg Popovich bonded teams with wine and honesty, changed NBA via innovation and protest**\
+`Players said Gregg Popovich's fiery and direct approach worked because he also showed unwavering compassion and care about them as people.`\
+https://nytimes.com/athletic/6168664/2025/05/02/gregg-popovich-retirement-spurs-nba-leadership-legacy/
+
+**USWNT appoints Tottenham assistant Jepson as under-20 head coach**\
+`Jepson was a part of the coaching team which led Spurs to its maiden FA Cup final in 2024.`\
+https://nytimes.com/athletic/6329494/2025/05/02/vicky-jepson-uswnt-tottenham/
+
+**Ledecky records best 400m time since 2016 in comeback win over McIntosh**\
+`McIntosh held a 0.18 advantage coming off the final turn, but Ledecky turned on the jets to surge ahead in the final 50 meters.`\
+https://nytimes.com/athletic/6329434/2025/05/02/katie-ledecky-summer-mcintosh-400-meter/
+
 **Here’s what to know:**\
 `By Talmon Joseph Smith`\
 https://nytimes.com/live/2025/05/02/business/jobs-report-april-economy/pinned
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6327108/2025/05/02/nhl-selke-trophy-finalists-2025/
 **Four Asian American Comics on the Joke That Changed Their Life**\
 `Bowen Yang, Hari Kondabolu, Atsuko Okatsuka and Hasan Minhaj break down the stand-up bits that rewired their comedic DNA.`\
 https://nytimes.com/interactive/2025/05/02/arts/asian-american-comedians.html
-
-**Miami GP secures F1 contract extension to 2041**\
-`The Miami Grand Prix joined the F1 calendar in 2022 and has fast become popular among drivers and team personnel.`\
-https://nytimes.com/athletic/6329391/2025/05/02/miami-f1-gp-contract-extension/
-
-**Staple: The Rangers have their coach. Is that enough to turn around from a nightmare season?**\
-`Fixing this broken team is a big job. Sullivan can't do it alone. This hiring was the necessary step, but there's more work to be done.`\
-https://nytimes.com/athletic/6329287/2025/05/02/rangers-mike-sullivan-hire-analysis/
-
-**Trump proposes a trillion-dollar defense budget.**\
-`The new sum was a 13% increase from the 2025 fiscal year, the White House said.`\
-https://nytimes.com/live/2025/05/02/us/trump-budget-2026/trump-proposes-a-trillion-dollar-defense-budget
 
