@@ -1,3 +1,7 @@
+**Trump’s plan proposes sweeping cuts to climate and renewable energy programs.**\
+`By Brad Plumer and Lisa Friedman`\
+https://nytimes.com/live/2025/05/02/us/trump-budget-2026/trumps-plan-proposes-sweeping-cuts-to-climate-and-renewable-energy-programs
+
 **7 Killed in Crash Involving a Tour Van and a Pickup Near Yellowstone**\
 `The crash in eastern Idaho killed six people in a van who had been part of a tour group, as well as the driver of a pickup truck, the State Police said.`\
 https://nytimes.com/2025/05/02/us/yellowstone-tour-van-fatal-crash.html

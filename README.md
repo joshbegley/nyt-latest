@@ -1,3 +1,27 @@
+**Rangers extend center Juuso Pärssinen for two years**\
+`The Rangers now have $8.42 million in projected cap space for 2025-26.`\
+https://nytimes.com/athletic/6329762/2025/05/02/rangers-extend-center-juuso-parssinen/
+
+**Trump proposes slashing funding for rental assistance and affordable housing programs.**\
+`By Madeleine Ngo`\
+https://nytimes.com/live/2025/05/02/us/trump-budget-2026/trump-budget-housing
+
+**Prime Tire: Why Formula One loves Miami. Plus, the data behind Hamilton's struggles**\
+`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
+https://nytimes.com/athletic/6326879/2025/05/02/f1-miami-grand-prix-lewis-hamilton-ferrari-livery/
+
+**Air cargo from China is expected to drop as Trump ends tariff loophole.**\
+`By Niraj Chokshi`\
+https://nytimes.com/live/2025/05/02/us/trump-news/air-cargo-from-china-is-expected-to-drop-as-trump-ends-tariff-loophole
+
+**Google Plans to Roll Out Its A.I. Chatbot to Children Under 13**\
+`The tech giant said it would make its Gemini chatbot available to children next week, and warned families in an email about the changes.`\
+https://nytimes.com/2025/05/02/technology/google-gemini-ai-chatbot-kids.html
+
+**Flashback: Your Weekly History Quiz, May 3, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/05/02/upshot/flashback.html
+
 **Trump’s plan proposes sweeping cuts to climate and renewable energy programs.**\
 `By Brad Plumer and Lisa Friedman`\
 https://nytimes.com/live/2025/05/02/us/trump-budget-2026/trumps-plan-proposes-sweeping-cuts-to-climate-and-renewable-energy-programs
@@ -13,28 +37,4 @@ https://nytimes.com/2025/05/02/us/politics/trump-judges-nominations.html
 **Opening Line: Most intriguing wagers in the weekend's biggest games**\
 `The most intriguing bets from some of the weekend's biggest sporting events, including the Kentucky Derby.`\
 https://nytimes.com/athletic/6329351/2025/05/02/opening-line-rockets-warriors-kentucky-derby-chelsea-liverpool/
-
-**Fantasy baseball waiver wire pickups featuring Ryan Gusto, Gunnar Hoglund and more**\
-`John Laghezza crunches the advanced metrics to surface the best waiver options in fantasy baseball, with Ryan Gusto a standout this week.`\
-https://nytimes.com/athletic/6324486/2025/05/02/fantasy-baseball-waiver-wire-pickups-gusto-hoglund-mckinstry/
-
-**When Deportation Occurs Without Trials**\
-`Readers argue for due process for migrants, and everyone else. Also: Harvard’s defiance; cuts to Meals on Wheels.`\
-https://nytimes.com/2025/05/02/opinion/deportation-due-process.html
-
-**The Satchel: Much ado about Brandon Beane's draft, wide receivers, and more**\
-`GM Brandon Beane and the Bills' wide receivers are all the talk these days.`\
-https://nytimes.com/athletic/6328884/2025/05/02/bills-mailbag-brandon-beane-nfl-draft-wr-questions/
-
-**Funds for Low-Income Students Are on the Chopping Block in Trump’s Budget**\
-`The proposal seeks a cut of nearly 25 percent from the Title I budget for high-poverty schools at a time when the rate of children living in poverty in America is on the rise.`\
-https://nytimes.com/2025/05/02/us/politics/trump-budget-education-cuts.html
-
-**Illinois Man Sentenced to 53 Years in Prison in Killing of Palestinian American Boy**\
-`A jury in suburban Chicago convicted the man of murder and hate crime charges in the 2023 killing of Wadee Alfayoumi, 6. He was the boy’s landlord.`\
-https://nytimes.com/2025/05/02/us/illinois-hate-crime-sentencing.html
-
-**Suit Accuses the Fashion Designer Riccardo Tisci of Sexual Assault**\
-`The former creative director of Givenchy and Burberry has denied the allegations that he drugged and assaulted a man in New York last June.`\
-https://nytimes.com/2025/05/02/style/riccardo-tisci-sexual-assault-lawsuit.html
 
