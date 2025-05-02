@@ -1,3 +1,23 @@
+**Suit Accuses the Fashion Designer Riccardo Tisci of Sexual Assault**\
+`The former creative director of Givenchy and Burberry has denied the allegations that he drugged and assaulted a man in New York last June.`\
+https://nytimes.com/2025/05/02/style/riccardo-tisci-sexual-assault-lawsuit.html
+
+**‘The Handmaid’s Tale’ Wants to End With a Message of Hope**\
+`In interviews, Elisabeth Moss and other stars and creators of the groundbreaking drama discuss its impending conclusion and ongoing connection to American politics.`\
+https://nytimes.com/2025/05/02/arts/television/the-handmaids-tale-finale.html
+
+**NHL's Jack Adams Award finalists revealed — Will Spencer Carbery win after last year's omission?**\
+`Carbery coached the Washington Capitals to the best record in the Eastern Conference this season.`\
+https://nytimes.com/athletic/6325227/2025/05/02/nhl-jack-adams-award-finalists-2025/
+
+**NASA Proposal Would Shift Agency’s Focus Away From Space Science**\
+`That budgetary change aligns with the priorities of Elon Musk, who founded his SpaceX rocket company two decades ago with dreams of one day sending colonists to Mars.`\
+https://nytimes.com/2025/05/02/us/politics/trump-budget-nasa-cuts.html
+
+**Barbra Streisand’s Silky Duet With Hozier, and 9 More New Songs**\
+`Hear tracks by Summer Walker, Nilüfer Yanya, Ed Sheeran and others.`\
+https://nytimes.com/2025/05/02/arts/music/playlist-barbra-streisand-ed-sheeran-summer-walker.html
+
 **Trump Labels Haiti’s Powerful Gangs as Terrorists**\
 `The move will enable harsh sanctions on the gangs, which control important sectors of the country’s economy, and anybody that does business with them.`\
 https://nytimes.com/2025/05/02/world/americas/trump-haiti-gangs-terrorists.html

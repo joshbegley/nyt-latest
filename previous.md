@@ -1,3 +1,23 @@
+**Suit Accuses the Fashion Designer Riccardo Tisci of Sexual Assault**\
+`The former creative director of Givenchy and Burberry has denied the allegations that he drugged and assaulted a man in New York last June.`\
+https://nytimes.com/2025/05/02/style/riccardo-tisci-sexual-assault-lawsuit.html
+
+**‘The Handmaid’s Tale’ Wants to End With a Message of Hope**\
+`In interviews, Elisabeth Moss and other stars and creators of the groundbreaking drama discuss its impending conclusion and ongoing connection to American politics.`\
+https://nytimes.com/2025/05/02/arts/television/the-handmaids-tale-finale.html
+
+**NHL's Jack Adams Award finalists revealed — Will Spencer Carbery win after last year's omission?**\
+`Carbery coached the Washington Capitals to the best record in the Eastern Conference this season.`\
+https://nytimes.com/athletic/6325227/2025/05/02/nhl-jack-adams-award-finalists-2025/
+
+**NASA Proposal Would Shift Agency’s Focus Away From Space Science**\
+`That budgetary change aligns with the priorities of Elon Musk, who founded his SpaceX rocket company two decades ago with dreams of one day sending colonists to Mars.`\
+https://nytimes.com/2025/05/02/us/politics/trump-budget-nasa-cuts.html
+
+**Barbra Streisand’s Silky Duet With Hozier, and 9 More New Songs**\
+`Hear tracks by Summer Walker, Nilüfer Yanya, Ed Sheeran and others.`\
+https://nytimes.com/2025/05/02/arts/music/playlist-barbra-streisand-ed-sheeran-summer-walker.html
+
 **Trump Labels Haiti’s Powerful Gangs as Terrorists**\
 `The move will enable harsh sanctions on the gangs, which control important sectors of the country’s economy, and anybody that does business with them.`\
 https://nytimes.com/2025/05/02/world/americas/trump-haiti-gangs-terrorists.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6327303/2025/05/02/miami-grand-prix-lando-norris-ma
 **Oddsmakers talk Kentucky Derby: 'This is horse racing’s Super Bowl'**\
 ` Max Meyer spoke with several oddsmakers to discuss the Kentucky Derby, or "horse racing's Super Bowl," as one oddsmaker called it.`\
 https://nytimes.com/athletic/6326356/2025/05/02/kentucky-derby-sportsbooks-journalism-baffert/
-
-**Two Scientific Groups Say They’ll Keep Working on U.S. Climate Assessment**\
-`The organizations said they planned to publish the assessment even after the Trump administration’s decision to dismiss all authors on the project.`\
-https://nytimes.com/2025/05/02/climate/national-climate-assessment-trump.html
-
-**Gregg Popovich bonded teams with wine and honesty, changed NBA via innovation and protest**\
-`Players said Gregg Popovich's fiery and direct approach worked because he also showed unwavering compassion and care about them as people.`\
-https://nytimes.com/athletic/6168664/2025/05/02/gregg-popovich-retirement-spurs-nba-leadership-legacy/
-
-**USWNT appoints Tottenham assistant Jepson as under-20 head coach**\
-`Jepson was a part of the coaching team which led Spurs to its maiden FA Cup final in 2024.`\
-https://nytimes.com/athletic/6329494/2025/05/02/vicky-jepson-uswnt-tottenham/
-
-**Ledecky records best 400m time since 2016 in comeback win over McIntosh**\
-`McIntosh held a 0.18 advantage coming off the final turn, but Ledecky turned on the jets to surge ahead in the final 50 meters.`\
-https://nytimes.com/athletic/6329434/2025/05/02/katie-ledecky-summer-mcintosh-400-meter/
-
-**Here’s what to know:**\
-`By Talmon Joseph Smith`\
-https://nytimes.com/live/2025/05/02/business/jobs-report-april-economy/pinned
 
