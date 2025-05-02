@@ -1,3 +1,7 @@
+**Trump Officials Say Ex-Leader of Cybersecurity Agency Is Under Investigation**\
+`The disclosure came three weeks after President Trump directed the Justice Department to investigate the former agency leader, Chris Krebs, in an act of score settling.`\
+https://nytimes.com/2025/05/01/us/politics/trump-chris-krebs.html
+
 **Once Banished From Trump’s White House, Zelensky Has New Hope**\
 `In his zigzagging approach to ending the war in Ukraine, President Trump has shifted his frustration — for now — from Ukraine’s leader to Vladimir Putin.`\
 https://nytimes.com/2025/05/01/us/politics/trump-ukraine-russia-zelensky.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6327877/2025/05/01/tigers-designate-kenta-maeda-for
 **Family Seeks $15 Million in Death of Migrant Girl in U.S. Custody**\
 `Anadith Danay Reyes Álvarez, 8, died in 2023 after she spent a week in a border agency detention center without adequate care for her health conditions.`\
 https://nytimes.com/2025/05/01/us/migrant-girl-death-cbp-damages.html
-
-**Brady tells Birmingham fans to 'show up' for title clash vs Kang's London City Lionesses**\
-`London City Lionesses lead the Women's Championship promotion race with 42 points to Birmingham's 40 ahead of the final day of the season.`\
-https://nytimes.com/athletic/6327680/2025/05/01/tom-brady-birmingham-women-london-city/
 

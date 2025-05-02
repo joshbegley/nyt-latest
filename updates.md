@@ -1,3 +1,7 @@
+**Once Banished From Trump’s White House, Zelensky Has New Hope**\
+`In his zigzagging approach to ending the war in Ukraine, President Trump has shifted his frustration — for now — from Ukraine’s leader to Vladimir Putin.`\
+https://nytimes.com/2025/05/01/us/politics/trump-ukraine-russia-zelensky.html
+
 **When Taxpayers Fund Shows Like ‘Blue Bloods’ and ‘S.N.L.,’ Does It Pay Off?**\
 `Gov. Kathy Hochul of New York has proposed an increase in the film tax credit to stay competitive with New Jersey and other states.`\
 https://nytimes.com/2025/05/01/upshot/movies-shows-tax-credits-new-york.html
