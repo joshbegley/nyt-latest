@@ -1,3 +1,7 @@
+**Twins' Louis Varland has shown big upside in bullpen but still has a meatball problem**\
+`Varland's move to the bullpen has been encouraging overall, but middle-middle pitches continue to hold him back.`\
+https://nytimes.com/athletic/6323504/2025/05/02/louis-varland-twins-reliever-meatballs/
+
 **Who’s on third? The Chicago Cubs’ best option may still wind up being Matt Shaw**\
 `All seven players who started a game at third base for the Cubs last season are no longer in the organization.`\
 https://nytimes.com/athletic/6327768/2025/05/02/chicago-cubs-third-base-options/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6328090/2025/05/02/dallas-golden-notre-dame-footbal
 **Sliders: Eugenio Suárez is streaky, superstitious — and now he’s made his mark on baseball history**\
 `Plus the Dodgers set an unwanted early-season record, a conversation with Doug Glanville and a look back at a catch that saved a perfecto.`\
 https://nytimes.com/athletic/6325368/2025/05/02/diamondbacks-eugenio-suarez-dodgers-rotation/
-
-**Row Z: Commentary neutrality, the Wolves packs and Ipswich complete the social set**\
-`Our weekly look at the more absurd side of the game also takes in a non-League team taking 'parking the bus' to extreme levels`\
-https://nytimes.com/athletic/6327576/2025/05/02/wolves-women-ferdinand-ipswich-row-z/
 
