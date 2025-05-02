@@ -8,7 +8,7 @@ https://nytimes.com/2025/05/02/us/politics/trump-veterans-day-world-war-i.html
 
 **How Housing Became the Third Rail of Australian Politics**\
 `Going into a federal election, both major parties are hesitant to tame the sky-high property values that have priced many voters out of the housing market.`\
-https://nytimes.com/2025/05/02/us/australia-election-housing.html
+https://nytimes.com/2025/05/02/world/australia/australia-election-housing.html
 
 **Late Night Watches ‘Signalgate’ Claim a Victim, Sort of**\
 `Mike Waltz, who added a journalist to a Signal group chat about plans to bomb Yemen, is out as national security adviser, but his career isn’t over.`\

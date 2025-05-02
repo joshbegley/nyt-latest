@@ -1,3 +1,12 @@
+**How Housing Became the Third Rail of Australian Politics**\
+`Going into a federal election, both major parties are hesitant to tame the sky-high property values that have priced many voters out of the housing market.`\
+https://nytimes.com/2025/05/02/world/australia/australia-election-housing.html
+
+**Title race and relegation scrap over - what’s left to bet on in the Premier League?**\
+`Sam Tighe delves into some of the more lesser-known Premier League betting storylines as the season winds down. 
+`\
+https://nytimes.com/athletic/6326152/2025/05/02/premier-league-end-of-season-betting-predictions/
+
 **Title race and relegation scrap over - what’s left to bet on in the Premier League?**\
 `Sam Tighe delves into some of the more lesser-known Premier League betting storylines as the season winds down. 
 `\
