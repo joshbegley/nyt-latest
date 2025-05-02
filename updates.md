@@ -1,3 +1,7 @@
+**Red Sox to place righty starter Walker Buehler on 15-day IL**\
+`Buehler, who was slated to start Saturday against the Twins, will now be replaced by Hunter Dobbins. `\
+https://nytimes.com/athletic/6330158/2025/05/02/red-sox-walker-buehler-injured-list/
+
 **George Ryan, Illinois Governor Who Halted Prison Executions, Dies at 91**\
 `A Republican, he imposed a moratorium on capital punishment, saying he could not support a death-row system “so fraught with error” that it might end an innocent life.`\
 https://nytimes.com/2025/05/02/us/politics/george-ryan-dead.html

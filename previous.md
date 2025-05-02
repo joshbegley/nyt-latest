@@ -1,3 +1,7 @@
+**Red Sox to place righty starter Walker Buehler on 15-day IL**\
+`Buehler, who was slated to start Saturday against the Twins, will now be replaced by Hunter Dobbins. `\
+https://nytimes.com/athletic/6330158/2025/05/02/red-sox-walker-buehler-injured-list/
+
 **George Ryan, Illinois Governor Who Halted Prison Executions, Dies at 91**\
 `A Republican, he imposed a moratorium on capital punishment, saying he could not support a death-row system “so fraught with error” that it might end an innocent life.`\
 https://nytimes.com/2025/05/02/us/politics/george-ryan-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6330099/2025/05/02/f1-cadillac-driver-update-miami-
 **Wild GM Bill Guerin’s offseason checklist: Extend Kaprizov, decide on Rossi, be smart in free agency**\
 `Fixing the team's handling of young players is another top priority this summer after a first-round exit at the hands of the Golden Knights.`\
 https://nytimes.com/athletic/6330003/2025/05/02/wild-offseason-priorities-kaprizov-rossi/
-
-**Lawsuit Against Humanities Endowment Offers Details on DOGE**\
-`Three scholarly groups are challenging the recent cancellation of most grants by the National Endowment for the Humanities.`\
-https://nytimes.com/2025/05/02/arts/humanities-endowment-doge-grants.html
 
