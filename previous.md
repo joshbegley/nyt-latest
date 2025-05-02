@@ -1,4 +1,8 @@
-**Science Backers Say Proposed Science Cuts Pose Dire Risks**\
+**Trump takes aim, again, at foreign aid.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2025/05/02/us/trump-budget-2026/trump-takes-aim-again-at-foreign-aid
+
+**Science backers say proposed science cuts pose dire risks.**\
 `One expert said the consequences would be “catastrophic” if Congress enacts the White House agenda of sweeping budget cuts.`\
 https://nytimes.com/live/2025/05/02/us/trump-budget-2026/science-backers-say-proposed-science-cuts-pose-dire-risks
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6330015/2025/05/02/packers-rookie-camp-matthew-gold
 **Have You Left a Keepsake at the Vietnam Veterans Memorial Wall?**\
 `Visitors to “the Wall” in Washington, D.C., often leave mementos in honor of friends and family who died during the war. We want to hear your story.`\
 https://nytimes.com/2025/05/02/us/politics/vietnam-veterans-memorial-reader-responses.html
-
-**U.S. sprinter Kerley charged with battery ahead of Grand Slam Track meet**\
-`Kerley was previously arrested in Miami Beach, Fla., in January following a confrontation with police.`\
-https://nytimes.com/athletic/6329787/2025/05/02/fred-kerley-arrest-miami-grand-slam-track/
 

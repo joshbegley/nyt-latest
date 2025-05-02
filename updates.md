@@ -1,3 +1,11 @@
+**Trump takes aim, again, at foreign aid.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2025/05/02/us/trump-budget-2026/trump-takes-aim-again-at-foreign-aid
+
+**Science backers say proposed science cuts pose dire risks.**\
+`One expert said the consequences would be “catastrophic” if Congress enacts the White House agenda of sweeping budget cuts.`\
+https://nytimes.com/live/2025/05/02/us/trump-budget-2026/science-backers-say-proposed-science-cuts-pose-dire-risks
+
 **Science Backers Say Proposed Science Cuts Pose Dire Risks**\
 `One expert said the consequences would be “catastrophic” if Congress enacts the White House agenda of sweeping budget cuts.`\
 https://nytimes.com/live/2025/05/02/us/trump-budget-2026/science-backers-say-proposed-science-cuts-pose-dire-risks
