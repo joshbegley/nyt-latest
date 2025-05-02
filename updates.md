@@ -1,3 +1,7 @@
+**Illinois Man Sentenced to 53 Years in Prison in Killing of Palestinian American Boy**\
+`A jury in suburban Chicago convicted the man of murder and hate crime charges in the 2023 killing of Wadee Alfayoumi, 6. He was the boy’s landlord.`\
+https://nytimes.com/2025/05/02/us/illinois-hate-crime-sentencing.html
+
 **Suit Accuses the Fashion Designer Riccardo Tisci of Sexual Assault**\
 `The former creative director of Givenchy and Burberry has denied the allegations that he drugged and assaulted a man in New York last June.`\
 https://nytimes.com/2025/05/02/style/riccardo-tisci-sexual-assault-lawsuit.html
