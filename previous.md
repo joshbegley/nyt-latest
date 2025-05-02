@@ -1,3 +1,11 @@
+**Paramilitary Fighters Massacre More Than 100 Civilians, Doctors’ Group Says**\
+`The Sudan Doctors Network said that the Rapid Support Forces had killed at least  21 children on Thursday, the latest violent spasm in Sudan’s civil war.`\
+https://nytimes.com/2025/05/02/world/africa/sudan-war-atrocity.html
+
+**Scoop City: Projecting Week 1 rookie starters in the NFC**\
+`Which rookies should start in Week 1? A look at the full NFC picture, plus thoughts from league execs`\
+https://nytimes.com/athletic/6329878/2025/05/02/nfc-starting-rookies-2025-projection-scoop-city/
+
 **Upbeat NYC**\
 `TKTKTKTTKTK`\
 https://nytimes.com/card/2025/05/02/nyregion/upstartnyc
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/02/us/politics/elon-musk-spacex-trump-budget.html
 **Reds put OF Austin Hays on IL and activate C Tyler Stephenson**\
 `Stephenson played in eight rehab games for Triple-A Louisville, going 3 for 28 (.107) with a home run.`\
 https://nytimes.com/athletic/6329765/2025/05/02/reds-austin-hays-il-activate-tyler-stephenson/
-
-**NHL's Lady Byng Trophy finalists revealed — Jack Eichel earns first nomination**\
-`Anze Kopitar of the Los Angeles Kings could become a two-time winner.`\
-https://nytimes.com/athletic/6325175/2025/05/02/nhl-lady-byng-finalists-2025/
-
-**NPR and PBS Vow to Fight Trump’s Order to Cut Funding**\
-`NPR called the order, which could upend public media, “an affront to the First Amendment.”`\
-https://nytimes.com/2025/05/02/business/media/npr-pbs-federal-funding.html
 

@@ -1,3 +1,11 @@
+**Paramilitary Fighters Massacre More Than 100 Civilians, Doctors’ Group Says**\
+`The Sudan Doctors Network said that the Rapid Support Forces had killed at least  21 children on Thursday, the latest violent spasm in Sudan’s civil war.`\
+https://nytimes.com/2025/05/02/world/africa/sudan-war-atrocity.html
+
+**Scoop City: Projecting Week 1 rookie starters in the NFC**\
+`Which rookies should start in Week 1? A look at the full NFC picture, plus thoughts from league execs`\
+https://nytimes.com/athletic/6329878/2025/05/02/nfc-starting-rookies-2025-projection-scoop-city/
+
 **Upbeat NYC**\
 `TKTKTKTTKTK`\
 https://nytimes.com/card/2025/05/02/nyregion/upstartnyc
