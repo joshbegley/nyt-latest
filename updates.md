@@ -1,3 +1,7 @@
+**Nuno Espirito Santo needs to get his Forest back - and fast**\
+`An uncharacteristically soft performance against Brentford was a blow to Forest's top-five hopes but all is not lost`\
+https://nytimes.com/athletic/6327925/2025/05/02/nottingham-forest-brentford-result-analysis/
+
 **Appeals Court Allows Trump to Block Money for Federally Funded Newsrooms, for Now**\
 `The outlets — Radio Free Europe/Radio Liberty, Radio Free Asia and Middle East Broadcasting Networks — have had to scale back their news programming.`\
 https://nytimes.com/2025/05/02/us/politics/trump-blocks-federal-news-funding.html
