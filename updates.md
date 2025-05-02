@@ -1,3 +1,5 @@
+
+
 **Attacks on Judges Undermine Democracy, Warns Justice Jackson**\
 `Speaking to a judicial conference, the Supreme Court justice said attacks were designed to intimidate and influence.`\
 https://nytimes.com/2025/05/01/us/politics/supreme-court-justice-jackson.html
