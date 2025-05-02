@@ -1,3 +1,7 @@
+**4 Takeaways From England’s Local Elections**\
+`Britain’s two main parties suffered significant losses in municipal and mayoral votes as Reform U.K., a right-wing populist party, surged ahead.`\
+https://nytimes.com/2025/05/02/world/europe/uk-local-elections-results-reform-labour-conservative.html
+
 **Russell Brand Attends Court Hearing In London For Rape Charges**\
 `The comedian and actor was granted bail in a court hearing for multiple charges of sexual assault, including two counts of rape.`\
 https://nytimes.com/video/world/europe/100000010142844/russell-brand-allegations-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6290152/2025/05/02/rangers-hire-mike-sullivan-coach
 **Idina Menzel’s ‘Redwood’ to Close Following Tony Nominations Shutout**\
 `The Broadway musical will play its final performance at the Nederlander Theater on May 18.`\
 https://nytimes.com/2025/05/02/theater/redwood-broadway-closing-idina-menzel.html
-
-**Tips for Navigating the ‘Chaotic System’ of Student Loan Repayments**\
-`Experts say recent graduates with loans should choose the repayment option that makes the most sense for them now and expect to make adjustments later.`\
-https://nytimes.com/2025/05/02/your-money/student-loan-repayment-tips.html
 

@@ -1,3 +1,7 @@
+**4 Takeaways From England’s Local Elections**\
+`Britain’s two main parties suffered significant losses in municipal and mayoral votes as Reform U.K., a right-wing populist party, surged ahead.`\
+https://nytimes.com/2025/05/02/world/europe/uk-local-elections-results-reform-labour-conservative.html
+
 **Russell Brand Attends Court Hearing In London For Rape Charges**\
 `The comedian and actor was granted bail in a court hearing for multiple charges of sexual assault, including two counts of rape.`\
 https://nytimes.com/video/world/europe/100000010142844/russell-brand-allegations-trial.html
