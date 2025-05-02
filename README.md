@@ -1,3 +1,7 @@
+**I Was Detained for My Beliefs. Who Will Be Next?**\
+`Detained at his citizenship interview, the Columbia student Mohsen Mahdawi speaks of his ordeal.`\
+https://nytimes.com/2025/05/02/opinion/mohsen-mahdawi-ice-detention.html
+
 **Voting in a Fraught World, Australians Focus on Cost-of-Living Concerns**\
 `Voters will decide who can turn Australia around from the throes of inflation and a housing crisis, and navigate relations with a volatile Washington.`\
 https://nytimes.com/2025/05/02/world/asia/australia-prime-minister-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/02/dining/mexican-indian-food-fusion.html
 **Canada’s Prime Minister to Visit Trump Amid Trade Battle**\
 `Prime Minister Mark Carney, who will make his first visit to Washington since his election, said President Trump’s call to annex Canada as the 51st state would not be on the table.`\
 https://nytimes.com/2025/05/02/world/canada/mark-carney-trump-visit-tariffs.html
-
-**Canada’s Prime Minister Will Meet With Trump Amid Trade War**\
-`Prime Minister Mark Carney said that he will visit Washington to discuss the economic relationship between the U.S. and Canada. He also announced that King Charles will visit Canada later this month.`\
-https://nytimes.com/video/world/canada/100000010143577/canada-carney-trump-king-charles.html
 
