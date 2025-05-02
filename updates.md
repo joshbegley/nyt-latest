@@ -1,3 +1,7 @@
+**First-round loss to Knicks shouldn't dampen Pistons' optimism for future**\
+`"We'll be back and better," Cade Cunningham said after Detroit lost Game 6. Some big offseason decisions loom. `\
+https://nytimes.com/athletic/6328657/2025/05/02/pistons-playoffs-game-6-future/
+
 **French steel union threaten to block Tour de France route over labour dispute**\
 `Union officials are upset at a potential 302 redundancies at steel manufacturer ArcelorMittal.`\
 https://nytimes.com/athletic/6328891/2025/05/02/tour-de-france-route-protest-cgt-labour-dispute/

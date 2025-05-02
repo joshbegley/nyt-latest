@@ -1,3 +1,7 @@
+**First-round loss to Knicks shouldn't dampen Pistons' optimism for future**\
+`"We'll be back and better," Cade Cunningham said after Detroit lost Game 6. Some big offseason decisions loom. `\
+https://nytimes.com/athletic/6328657/2025/05/02/pistons-playoffs-game-6-future/
+
 **French steel union threaten to block Tour de France route over labour dispute**\
 `Union officials are upset at a potential 302 redundancies at steel manufacturer ArcelorMittal.`\
 https://nytimes.com/athletic/6328891/2025/05/02/tour-de-france-route-protest-cgt-labour-dispute/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6328795/2025/05/02/the-athletics-friday-football-qu
 **What's burgoo? Here's the Kentucky Derby tradition not on the Churchill Downs grounds**\
 `While the food choice isn't a Churchill Downs staple, burgoo is a reflection of Kentucky and a well-known tradition during the Derby.`\
 https://nytimes.com/athletic/6297949/2025/05/02/kentucky-derby-burgoo-stew-churchill-downs/
-
-**'He'll take this and fight hard.' Community rallies around injured Pirates fan Kavan Markwood**\
-`His former coach says that Markwood, who is in critical condition after a fall at Wednesday's Pirates game, is "an exceptional young man."`\
-https://nytimes.com/athletic/6328172/2025/05/02/injured-pirates-fan-kavan-markwood-fall/
 
