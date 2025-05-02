@@ -1,3 +1,11 @@
+**Iowa State DC's son among 5 staffers suspended by NCAA for sports betting**\
+`Four of the staffers — none of whom currently work at Iowa State — also wagered on Cyclones’ men’s and women’s basketball games.`\
+https://nytimes.com/athletic/6330108/2025/05/02/iowa-state-betting-ncaa-suspensions/
+
+**Cadillac F1 team confirms no drivers signed ahead of Miami launch event**\
+`"My phone has become very busy," says F1's newest team principal as Cadillac continues talks with drivers`\
+https://nytimes.com/athletic/6330099/2025/05/02/f1-cadillac-driver-update-miami-grand-prix-sergio-perez/
+
 **Wild GM Bill Guerin’s offseason checklist: Extend Kaprizov, decide on Rossi, be smart in free agency**\
 `Fixing the team's handling of young players is another top priority this summer after a first-round exit at the hands of the Golden Knights.`\
 https://nytimes.com/athletic/6330003/2025/05/02/wild-offseason-priorities-kaprizov-rossi/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/05/02/us/trump-budget-2026/trump-takes-aim-again-a
 **Science backers say proposed science cuts pose dire risks.**\
 `One expert said the consequences would be “catastrophic” if Congress enacts the White House agenda of sweeping budget cuts.`\
 https://nytimes.com/live/2025/05/02/us/trump-budget-2026/science-backers-say-proposed-science-cuts-pose-dire-risks
-
-**Former Abercrombie C.E.O. Ruled Unfit to Stand Trial for Sex Trafficking**\
-`Michael S. Jeffries had been accused of luring male models to secret sex parties. He has dementia, and a judge ruled him to be “mentally incompetent.”`\
-https://nytimes.com/2025/05/02/nyregion/abercrombie-jeffries-unfit-to-stand-trial.html
-
-**The Best Movies and TV Shows Coming to Netflix in May**\
-`A new comedy cocreated by Tina Fey and another from Tom Segura are among the highlights debuting this month.`\
-https://nytimes.com/2025/05/02/arts/television/netflix-new-may.html
 

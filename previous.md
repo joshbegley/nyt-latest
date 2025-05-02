@@ -1,3 +1,27 @@
+**Wild GM Bill Guerin’s offseason checklist: Extend Kaprizov, decide on Rossi, be smart in free agency**\
+`Fixing the team's handling of young players is another top priority this summer after a first-round exit at the hands of the Golden Knights.`\
+https://nytimes.com/athletic/6330003/2025/05/02/wild-offseason-priorities-kaprizov-rossi/
+
+**Lawsuit Against Humanities Endowment Offers Details on DOGE**\
+`Three scholarly groups are challenging the recent cancellation of most grants by the National Endowment for the Humanities.`\
+https://nytimes.com/2025/05/02/arts/humanities-endowment-doge-grants.html
+
+**Trump Seeks to Eliminate the National Endowment for the Arts**\
+`The president’s budget proposal also called for getting rid of the National Endowment for the Humanities and the Institute of Museum and Library Sciences.`\
+https://nytimes.com/2025/05/02/arts/nea.html
+
+**Trump Budget Cuts Funding for Chronic Disease Prevention**\
+`Kennedy has warned of an epidemic of chronic disease, but the budget blueprint would close the C.D.C. center focused on prevention.`\
+https://nytimes.com/2025/05/02/health/trump-budget-cdc-chronic-conditions.html
+
+**Dowman, 15, to be part of Arsenal midfield in 'near future' — Arteta**\
+`The teenager made his debut for the under-21’s this season and has been training regularly with the first team.`\
+https://nytimes.com/athletic/6329945/2025/05/02/max-dowman-mikel-arteta-arsenal-midfield/
+
+**In Leak Crackdown, Bondi Rolls Back 2013 Protection Stemming From Fox News Case**\
+`The Justice Department’s new rules for leak inquiries make it easier for investigators to bypass a legal restriction on search warrants to seize news gathering records.`\
+https://nytimes.com/2025/05/02/us/politics/justice-department-leak-inquiry-rules.html
+
 **Trump takes aim, again, at foreign aid.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2025/05/02/us/trump-budget-2026/trump-takes-aim-again-at-foreign-aid
@@ -13,28 +37,4 @@ https://nytimes.com/2025/05/02/nyregion/abercrombie-jeffries-unfit-to-stand-tria
 **The Best Movies and TV Shows Coming to Netflix in May**\
 `A new comedy cocreated by Tina Fey and another from Tom Segura are among the highlights debuting this month.`\
 https://nytimes.com/2025/05/02/arts/television/netflix-new-may.html
-
-**My Husband Fears Political Violence. Should We Buy a Gun?**\
-`The magazine’s Ethicist columnist on whether to purchase a weapon now to protect against future potential threats.`\
-https://nytimes.com/2025/05/02/magazine/politics-gun-ownership-ethics.html
-
-**Trump Seeks to End Permanent Supportive Housing for the Chronically Homeless**\
-`More than 300,000 people live in such housing, all chronically homeless and disabled. Many are veterans.`\
-https://nytimes.com/2025/05/02/us/politics/trump-homelessness-programs-housing-cuts.html
-
-**The Briefing: Manchester City 1 Wolves 0: De Bruyne's (almost) parting gift, Doku shines and fans protest again**\
-`Sam Lee breaks down the main talking points from Manchester City's 1-0 win over Wolves`\
-https://nytimes.com/athletic/6320275/2025/05/02/manchester-city-1-wolves-0-de-bruyne-doku/
-
-**Joel Krosnick, Longtime Cellist of Juilliard String Quartet, Dies at 84**\
-`Widely admired for his intense and precise playing, Mr. Krosnick stayed with the quartet for over 40 years, longer than either of his cellist predecessors.`\
-https://nytimes.com/2025/05/02/arts/music/joel-krosnick-dead.html
-
-**Packers rookie camp: Why Matthew Golden chose No. 22, Isaiah Simmons, notable UDFAs**\
-`All eight Packers draft picks and head coach Matt LaFleur spoke with reporters during rookie minicamp on Friday at Lambeau Field.`\
-https://nytimes.com/athletic/6330015/2025/05/02/packers-rookie-camp-matthew-golden/
-
-**Have You Left a Keepsake at the Vietnam Veterans Memorial Wall?**\
-`Visitors to “the Wall” in Washington, D.C., often leave mementos in honor of friends and family who died during the war. We want to hear your story.`\
-https://nytimes.com/2025/05/02/us/politics/vietnam-veterans-memorial-reader-responses.html
 
