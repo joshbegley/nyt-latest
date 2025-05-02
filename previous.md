@@ -1,3 +1,11 @@
+**7 Killed in Crash Involving a Tour Van and a Pickup Near Yellowstone**\
+`The crash in eastern Idaho killed six people in a van who had been part of a tour group, as well as the driver of a pickup truck, the State Police said.`\
+https://nytimes.com/2025/05/02/us/yellowstone-tour-van-fatal-crash.html
+
+**Trump Gets a Slow Start on Judges After Setting a Record Pace in First Term**\
+`The president named his first appeals court candidate this week, but fewer vacancies and other priorities have led to a lack of judicial nominations from the White House so far.`\
+https://nytimes.com/2025/05/02/us/politics/trump-judges-nominations.html
+
 **Opening Line: Most intriguing wagers in the weekend's biggest games**\
 `The most intriguing bets from some of the weekend's biggest sporting events, including the Kentucky Derby.`\
 https://nytimes.com/athletic/6329351/2025/05/02/opening-line-rockets-warriors-kentucky-derby-chelsea-liverpool/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/02/style/riccardo-tisci-sexual-assault-lawsuit.html
 **‘The Handmaid’s Tale’ Wants to End With a Message of Hope**\
 `In interviews, Elisabeth Moss and other stars and creators of the groundbreaking drama discuss its impending conclusion and ongoing connection to American politics.`\
 https://nytimes.com/2025/05/02/arts/television/the-handmaids-tale-finale.html
-
-**NHL's Jack Adams Award finalists revealed — Will Spencer Carbery win after last year's omission?**\
-`Carbery coached the Washington Capitals to the best record in the Eastern Conference this season.`\
-https://nytimes.com/athletic/6325227/2025/05/02/nhl-jack-adams-award-finalists-2025/
-
-**NASA Proposal Would Shift Agency’s Focus Away From Space Science**\
-`That budgetary change aligns with the priorities of Elon Musk, who founded his SpaceX rocket company two decades ago with dreams of one day sending colonists to Mars.`\
-https://nytimes.com/2025/05/02/us/politics/trump-budget-nasa-cuts.html
 

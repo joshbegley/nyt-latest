@@ -1,3 +1,11 @@
+**7 Killed in Crash Involving a Tour Van and a Pickup Near Yellowstone**\
+`The crash in eastern Idaho killed six people in a van who had been part of a tour group, as well as the driver of a pickup truck, the State Police said.`\
+https://nytimes.com/2025/05/02/us/yellowstone-tour-van-fatal-crash.html
+
+**Trump Gets a Slow Start on Judges After Setting a Record Pace in First Term**\
+`The president named his first appeals court candidate this week, but fewer vacancies and other priorities have led to a lack of judicial nominations from the White House so far.`\
+https://nytimes.com/2025/05/02/us/politics/trump-judges-nominations.html
+
 **Opening Line: Most intriguing wagers in the weekend's biggest games**\
 `The most intriguing bets from some of the weekend's biggest sporting events, including the Kentucky Derby.`\
 https://nytimes.com/athletic/6329351/2025/05/02/opening-line-rockets-warriors-kentucky-derby-chelsea-liverpool/
