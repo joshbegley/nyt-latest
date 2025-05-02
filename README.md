@@ -1,3 +1,11 @@
+**Review: In ‘Wonderful Town,’ a Party for Writers and Weirdos**\
+`An awkward Encores! revival of the 1953 musical celebrates the bohemian life of Greenwich Village in the years when oddballs could still afford to live there.`\
+https://nytimes.com/2025/05/02/theater/wonderful-town-review-encores.html
+
+**Volcanic Eruption in Deep Ocean Ridge Is Witnessed by Scientists for First Time**\
+`Researchers diving in a submersible in the eastern Pacific realized that the landscape they had studied the day before had been glassed over by fresh lava.`\
+https://nytimes.com/2025/05/02/science/deep-ocean-volcanic-eruption-pacific.html
+
 **Universal Antivenom May Grow Out of Man Who Let Snakes Bite Him Hundreds of Times**\
 `Scientists identified antibodies that neutralized the poison in whole or in part from the bites of cobras, mambas and other deadly species.`\
 https://nytimes.com/2025/05/02/health/snakes-universal-antivenom-tim-friede.html
@@ -29,12 +37,4 @@ https://nytimes.com/newsgraphics/card-story/wc-scandi-sleep-method
 **Republicans Wrestle With Trump’s Demands for Tax Cuts**\
 `House Republicans are planning to include several of President Trump’s campaign promises in the first draft of the bill, which they hope to release soon.`\
 https://nytimes.com/2025/05/02/us/politics/republicans-trump-tax-cuts.html
-
-**The Bounce: Clippers, Nuggets have delivered a Game 7. What will be at stake for each team?**\
-`The Nuggets must now exorcise Game 7 demons from last year. The Clippers must avoid being the ... Clippers. Who wins on Saturday?`\
-https://nytimes.com/athletic/6329304/2025/05/02/kawhi-leonard-james-harden-clippers-nikola-jokic-jamal-murray-game-7-nba-playoffs-the-bounce/
-
-**NHL's Masterton Memorial Trophy finalists named — will Marc-André Fleury retire with a win?**\
-`The award goes to the player who “best exemplifies the qualities of perseverance, sportsmanship and dedication to the game.”`\
-https://nytimes.com/athletic/6325218/2025/05/02/nhl-masterton-finalists-2025/
 
