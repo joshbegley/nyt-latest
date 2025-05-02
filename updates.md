@@ -1,3 +1,11 @@
+**Quote of the Day: In the 50 Years Since Saigon’s Fall, Visitors Find Their Feelings Have Changed**\
+`Quotation of the Day for Friday, May 2, 2025.`\
+https://nytimes.com/2025/05/01/pageoneplus/quote-of-the-day-in-the-50-years-since-saigons-fall-visitors-find-their-feelings-have-changed.html
+
+**Red Sox loss spoils Tanner Houck's start as Walker Buehler injury concern looms**\
+`Houck dominated for seven innings, only to see the bullpen blow another lead. Meanwhile, Buehler underwent testing on a sore shoulder.`\
+https://nytimes.com/athletic/6328266/2025/05/01/red-sox-tanner-houck-walker-buehler/
+
 **Furniture Inspired by Georgia O’Keeffe’s New Mexico Home**\
 `Plus: a flower gardener’s guidebook, an exhibition of Chris Gustin’s sculptures and more recommendations from T Magazine.`\
 https://nytimes.com/2025/05/01/t-magazine/georgia-okeeffe-herman-miller.html

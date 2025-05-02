@@ -1,40 +1,40 @@
-**Quote of the Day: In the 50 Years Since Saigon’s Fall, Visitors Find Their Feelings Have Changed**\
-`Quotation of the Day for Friday, May 2, 2025.`\
-https://nytimes.com/2025/05/01/pageoneplus/quote-of-the-day-in-the-50-years-since-saigons-fall-visitors-find-their-feelings-have-changed.html
+**Why is Scott McTominay playing so well (and scoring so many goals) at Napoli?**\
+`Antonio Conte has embraced pragmatism this season to get the best out of his squad — and McTominay is one of the chief beneficiaries  `\
+https://nytimes.com/athletic/6320224/2025/05/02/scott-mctominay-napoli-analysis/
 
-**Red Sox loss spoils Tanner Houck's start as Walker Buehler injury concern looms**\
-`Houck dominated for seven innings, only to see the bullpen blow another lead. Meanwhile, Buehler underwent testing on a sore shoulder.`\
-https://nytimes.com/athletic/6328266/2025/05/01/red-sox-tanner-houck-walker-buehler/
+**Leaders May Talk Tough, but War Is the Last Thing Pakistanis Want**\
+`For many across the country, economic struggles, political malaise and the fear of armed conflict with India now feel like parts of the same burden.`\
+https://nytimes.com/2025/05/02/world/asia/pakistan-india-kashmir.html
 
-**Furniture Inspired by Georgia O’Keeffe’s New Mexico Home**\
-`Plus: a flower gardener’s guidebook, an exhibition of Chris Gustin’s sculptures and more recommendations from T Magazine.`\
-https://nytimes.com/2025/05/01/t-magazine/georgia-okeeffe-herman-miller.html
+**What Australia’s Vote Means for Climate in a Major Coal Economy**\
+`The leading candidates in Saturday’s national election have starkly different policies on energy and global warming.`\
+https://nytimes.com/2025/05/02/climate/what-australias-vote-means-for-climate-in-a-major-coal-economy.html
 
-**NBA playoffs takeaways: Brunson saves Knicks, sends Pistons packing**\
-`The Knicks' Jalen Brunson hit a game-winning 3-pointer to beat the Pistons and set up New York for a second-round series vs. Boston.`\
-https://nytimes.com/athletic/6328206/2025/05/01/nba-playoffs-takeaways-scores-thursday/
+**The Trump Factor Looms Over Australia’s Election**\
+`The last time Australians went to the polls, China was top of mind. This time, the United States is the dominant foreign factor in an election mostly fought on domestic issues.`\
+https://nytimes.com/2025/05/02/world/asia/australia-election-trump-china.html
 
-**Attacks on Judges Undermine Democracy, Warns Justice Jackson**\
-`Speaking to a judicial conference, the Supreme Court justice said attacks were designed to intimidate and influence.`\
-https://nytimes.com/2025/05/01/us/politics/supreme-court-justice-jackson.html
+**A Touch of Apocalypse Chic at the Venice Architecture Biennale**\
+`The Berlin studio Sub has worked with Travis Scott and Balenciaga. For the world’s most prestigious architecture exhibition, it is reinventing its approach for a less flashy context.`\
+https://nytimes.com/2025/05/02/arts/design/sub-venice-architecture-biennale.html
 
-**Twins takeaways: In familiar fashion, Minnesota falls in another Cleveland walk-off**\
-`Run-scoring singles by José Ramírez and Angel Martínez lifted the Guardians to a 4-3 victory over the Twins in 10 innings.`\
-https://nytimes.com/athletic/6328077/2025/05/01/twins-lose-guardians-another-walk-off/
+**Trump Ends Chinese Tariff Loophole, Raising the Cost of Online Goods**\
+`Supporters say the change is important to stop cheap Chinese goods from entering the U.S. But the decision could drive up prices for goods Americans buy online.`\
+https://nytimes.com/2025/05/02/business/economy/trump-china-tariffs-de-minimis.html
 
-**New Suns GM Brian Gregory, owner Mat Ishbia's shared past impossible to ignore**\
-`For an owner known for making major splashes (trading for Kevin Durant, Bradley Beal), this was an amazing reversal. But will it work?`\
-https://nytimes.com/athletic/6327971/2025/05/01/phoenix-suns-gm-brian-gregory-mat-ishbia/
+**Corrections: May 2, 2025**\
+`Corrections that appeared in print on Friday, May 2, 2025.`\
+https://nytimes.com/2025/05/02/pageoneplus/corrections-may-2-2025.html
 
-**Golden Knights' top players come through to eliminate Wild in Game 6: Takeaways**\
-`Vegas never trailed and got a big game from captain Mark Stone in a 3-2 victory.`\
-https://nytimes.com/athletic/6328212/2025/05/01/wild-golden-knights-game-6/
+**A Wonder Woman Costume ‘Sealed the Deal’**\
+`Alexis Lockhart and Jax Jackson formed a friendship through recovery. However, a video call around Halloween changed the tenor of their relationship.`\
+https://nytimes.com/2025/05/02/style/alexis-lockhart-jax-jackson-wedding.html
 
-**Charles Koch Says Many in the Country Are ‘Abandoning’ Its Principles**\
-`In a rare appearance on Thursday to receive an award from the Cato Institute, Mr. Koch made oblique references to President Trump and his tariffs, without mentioning his name.`\
-https://nytimes.com/2025/05/01/us/politics/charles-koch-trump-republicans-tariffs.html
+**How a Little Humor Led to a Serious Relationship**\
+`Sara David and Peter Hess, both writers, met through social media and bonded over a shared love of picnics and satire.`\
+https://nytimes.com/2025/05/02/style/sara-david-peter-hess-wedding.html
 
-**The Poetry Challenge Day 5: We’ve learned a poem this week. Now it’s yours.**\
-`We’ve reached the last stanza of our adventure in verse. Now it’s time to show off what you’ve learned. As a bonus: our critic on why memorizing a poem is as much about what you forget.`\
-https://nytimes.com/interactive/2025/books/edna-st-vincent-millay-poetry.html
+**How a U.S. Tax Loophole Supercharged China’s Exports**\
+`E-commerce trade in small parcels brought Chinese factories to American shoppers. Tariffs are severing the connection.`\
+https://nytimes.com/2025/05/02/business/china-tariffs-economy-de-minimis.html
 
