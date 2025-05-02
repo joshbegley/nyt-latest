@@ -1,3 +1,7 @@
+**Trump talks with Saban, considers executive order on paying college athletes**\
+`Donald Trump and Nick Saban reportedly met Thursday night after the president gave the commencement address at Alabama.`\
+https://nytimes.com/athletic/6330290/2025/05/02/donald-trump-executive-order-paying-college-athletes-nick-saban/
+
 **Wisconsin Governor Says He’s ‘Not Afraid’ After Warning on Immigration Policies**\
 `Thomas Homan, the border czar, had said, “Wait to see what’s coming,” when asked about guidance sent to state workers about interacting with ICE agents.`\
 https://nytimes.com/2025/05/02/us/wisconsin-governor-tony-evers-homan.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/02/us/politics/trump-law-firms.html
 **Mike Peters, Frontman of the Alarm, Is Dead at 66**\
 `Leading the Welsh band known for 1980s anthems like “Sixty Eight Guns,” he later became a strong voice in the fight against cancer, which he battled for decades.`\
 https://nytimes.com/2025/05/02/arts/music/mike-peters-frontman-of-the-alarm-is-dead-at-66.html
-
-**Former Weather Service Leaders Warn Staffing Cuts Could Lead to ‘Loss of Life’**\
-`The former agency directors say current employees will face an “impossible task” to maintain service just as hurricane season begins.`\
-https://nytimes.com/2025/05/02/weather/nws-staffing-cuts-trump.html
 
