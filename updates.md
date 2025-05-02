@@ -1,3 +1,11 @@
+**Upbeat NYC**\
+`TKTKTKTTKTK`\
+https://nytimes.com/card/2025/05/02/nyregion/upstartnyc
+
+**Stocks on Track to Erase Losses From Tariff Chaos**\
+`Wall Street has recovered from April’s sharp sell-off, buoyed by hope for trade talks. But the economic fallout from President Trump’s policies still has investors on edge.`\
+https://nytimes.com/2025/05/02/business/stock-market-recovery-trump-tariffs.html
+
 **New ‘Climate Superfund’ Laws Face Widening Legal Challenges**\
 `The Trump administration sued to block two state laws designed to force oil companies to pay the costs of climate change. Several other states are joining the fight, too.`\
 https://nytimes.com/2025/05/02/climate/climate-superfund-law-vermont-new-york-lawsuits.html
