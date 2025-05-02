@@ -1,3 +1,8 @@
+**Title race and relegation scrap over - what’s left to bet on in the Premier League?**\
+`Sam Tighe delves into some of the more lesser-known Premier League betting storylines as the season winds down. 
+`\
+https://nytimes.com/athletic/6326152/2025/05/02/premier-league-end-of-season-betting-predictions/
+
 **South Korea Lurches From One Political Crisis to Another**\
 `In five months, the country has had three acting presidents after the leader who imposed martial law was impeached. And now doubts cloud the coming election.`\
 https://nytimes.com/2025/05/02/world/asia/south-koreas-political-crisis.html
