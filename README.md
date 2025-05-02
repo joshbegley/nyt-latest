@@ -1,3 +1,19 @@
+**My Husband Fears Political Violence. Should We Buy a Gun?**\
+`The magazine’s Ethicist columnist on whether to purchase a weapon now to protect against future potential threats.`\
+https://nytimes.com/2025/05/02/magazine/politics-gun-ownership-ethics.html
+
+**Trump Seeks to End Permanent Supportive Housing for the Chronically Homeless**\
+`More than 300,000 people live in such housing, all chronically homeless and disabled. Many are veterans.`\
+https://nytimes.com/2025/05/02/us/politics/trump-homelessness-programs-housing-cuts.html
+
+**The Briefing: Manchester City 1 Wolves 0: De Bruyne's (almost) parting gift, Doku shines and fans protest again**\
+`Sam Lee breaks down the main talking points from Manchester City's 1-0 win over Wolves`\
+https://nytimes.com/athletic/6320275/2025/05/02/manchester-city-1-wolves-0-de-bruyne-doku/
+
+**Joel Krosnick, Longtime Cellist of Juilliard String Quartet, Dies at 84**\
+`Widely admired for his intense and precise playing, Mr. Krosnick stayed with the quartet for over 40 years, longer than either of his cellist predecessors.`\
+https://nytimes.com/2025/05/02/arts/music/joel-krosnick-dead.html
+
 **Packers rookie camp: Why Matthew Golden chose No. 22, Isaiah Simmons, notable UDFAs**\
 `All eight Packers draft picks and head coach Matt LaFleur spoke with reporters during rookie minicamp on Friday at Lambeau Field.`\
 https://nytimes.com/athletic/6330015/2025/05/02/packers-rookie-camp-matthew-golden/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/05/02/magazine/teens-teenagers-happiness-joy.html
 **LeBron James sprained MCL in Lakers' Game 5 vs. Timberwolves**\
 `The injury seemingly occurred with 8:39 left in the fourth quarter when James collided with Timberwolves guard Donte DiVincenzo.`\
 https://nytimes.com/athletic/6329974/2025/05/02/lakers-lebron-james-mcl-sprain-game-5-timberwolves/
-
-**I Was Detained for My Beliefs. Who Will Be Next?**\
-`Detained at his citizenship interview, the Columbia student Mohsen Mahdawi speaks of his ordeal.`\
-https://nytimes.com/2025/05/02/opinion/mohsen-mahdawi-ice-detention.html
-
-**Voting in a Fraught World, Australians Focus on Cost-of-Living Concerns**\
-`Voters will decide who can turn Australia around from the throes of inflation and a housing crisis, and navigate relations with a volatile Washington.`\
-https://nytimes.com/2025/05/02/world/asia/australia-prime-minister-election.html
-
-**Grizzlies retaining Tuomas Iisalo as head coach after brief interim period**\
-`Iisalo was named interim head coach of the Grizzlies on March 28 after Memphis fired coach Taylor Jenkins in a shocking move`\
-https://nytimes.com/athletic/6329918/2025/05/02/memphis-grizzlies-coach-tuomas-lisalo-nba/
-
-**Her ‘Caveman’ Skin Care Routine Has Skeptics, but She Says It’s Real**\
-`Tia Zakher’s videos about not washing her face drew millions of views, numerous questions and some legitimate concern. She insists she’s fine.`\
-https://nytimes.com/2025/05/02/style/caveman-skincare-tia-zakher-tiktok.html
 

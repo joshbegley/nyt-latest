@@ -1,3 +1,11 @@
+**Packers rookie camp: Why Matthew Golden chose No. 22, Isaiah Simmons, notable UDFAs**\
+`All eight Packers draft picks and head coach Matt LaFleur spoke with reporters during rookie minicamp on Friday at Lambeau Field.`\
+https://nytimes.com/athletic/6330015/2025/05/02/packers-rookie-camp-matthew-golden/
+
+**Have You Left a Keepsake at the Vietnam Veterans Memorial Wall?**\
+`Visitors to “the Wall” in Washington, D.C., often leave mementos in honor of friends and family who died during the war. We want to hear your story.`\
+https://nytimes.com/2025/05/02/us/politics/vietnam-veterans-memorial-reader-responses.html
+
 **U.S. sprinter Kerley charged with battery ahead of Grand Slam Track meet**\
 `Kerley was previously arrested in Miami Beach, Fla., in January following a confrontation with police.`\
 https://nytimes.com/athletic/6329787/2025/05/02/fred-kerley-arrest-miami-grand-slam-track/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6329918/2025/05/02/memphis-grizzlies-coach-tuomas-l
 **Her ‘Caveman’ Skin Care Routine Has Skeptics, but She Says It’s Real**\
 `Tia Zakher’s videos about not washing her face drew millions of views, numerous questions and some legitimate concern. She insists she’s fine.`\
 https://nytimes.com/2025/05/02/style/caveman-skincare-tia-zakher-tiktok.html
-
-**Read the Memo to Wisconsin State Workers**\
-`The state employees were given these instructions on interacting with federal immigration agents at their workplace.`\
-https://nytimes.com/interactive/2025/05/02/us/wisconsin-state-guidance.html
-
-**Former Fetterman Aide Expressed Concern to Doctor About Senator’s Mental Health**\
-`The former chief of staff to Senator John Fetterman last year wrote to a doctor who had treated him, pointing to “warning signs” that suggested the senator could be backsliding on his recovery from a mental health crisis.`\
-https://nytimes.com/2025/05/02/us/politics/john-fetterman-mental-health.html
 
