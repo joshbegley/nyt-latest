@@ -1,3 +1,7 @@
+**Canadiens have work left to do, but this season has shown they have a strong core**\
+`Suzuki does not want the Canadiens to take a step back after an unexpected playoff berth. The core he leads should ensure that.`\
+https://nytimes.com/athletic/6330326/2025/05/02/canadiens-nhl-playoffs-suzuki-slafkovsky-caufield/
+
 **Trump talks with Saban, considers executive order on paying college athletes**\
 `Donald Trump and Nick Saban reportedly met Thursday night after the president gave the commencement address at Alabama.`\
 https://nytimes.com/athletic/6330290/2025/05/02/donald-trump-executive-order-paying-college-athletes-nick-saban/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6330101/2025/05/02/2025-nhl-draft-lottery-results-l
 **Trump’s Order Targeting Law Firm Perkins Coie Is Unconstitutional, Judge Rules**\
 `The decision marked the first time a federal judge permanently blocked the Trump administration from enforcing an order to punish law firms he opposes politically.`\
 https://nytimes.com/2025/05/02/us/politics/trump-law-firms.html
-
-**Mike Peters, Frontman of the Alarm, Is Dead at 66**\
-`Leading the Welsh band known for 1980s anthems like “Sixty Eight Guns,” he later became a strong voice in the fight against cancer, which he battled for decades.`\
-https://nytimes.com/2025/05/02/arts/music/mike-peters-frontman-of-the-alarm-is-dead-at-66.html
 
