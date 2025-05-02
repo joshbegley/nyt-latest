@@ -10,7 +10,7 @@ https://nytimes.com/2025/05/02/world/trump-waltz-ukraine-syria.html
 `The bone bruise in Trout's left knee is another injury in a long line of them over his last five seasons.`\
 https://nytimes.com/athletic/6328488/2025/05/02/mike-trout-knee-injury-angels/
 
-**Russo and Smith: The playoffs felt different for the Wild, but ended with the same hollow result**\
+**Russo and Smith: Playoffs felt different for the Wild but ended with same hollow result**\
 `Once again, in the franchise's 24th season, passionate, patient Wild fans were left unsatisfied.`\
 https://nytimes.com/athletic/6328071/2025/05/02/minnesota-wild-playoffs-offseason/
 

@@ -1,3 +1,7 @@
+**Mark Stone, 'the heartbeat of the team,' delivers again for the Golden Knights**\
+`Stone played a role in all 3 of the Golden Knights' goals as they beat the Wild to advance to the second round again.`\
+https://nytimes.com/athletic/6328416/2025/05/02/mark-stone-golden-knights-wiild/
+
 **Why Chelsea have been helped, not hindered, by the Conference League**\
 `A competition that felt like a poor consolation prize has had surprising benefits for Enzo Maresca and his players`\
 https://nytimes.com/athletic/6327888/2025/05/02/chelsea-conference-league-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6317063/2025/05/02/oilers-kings-nhl-playoffs-2025-g
 **The New York Times in Print for Friday, May 2, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/02/todays-new-york-times
-
-**Canada Needs a New Story**\
-`Canada’s greatest opportunity lies in its ability to reframe its place in the world beyond America.`\
-https://nytimes.com/2025/05/02/opinion/canada-election-mark-carney.html
 
