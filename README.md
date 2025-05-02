@@ -1,3 +1,7 @@
+**President Trump remains bullish, even as the economy flashes warning signs.**\
+`By Tony Romm`\
+https://nytimes.com/live/2025/05/02/business/jobs-report-april-economy/president-trump-remains-bullish-even-as-the-economy-flashes-warning-signs
+
 **The Pulse: MLB's biggest surprises thus far**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6328493/2025/05/02/mlb-surprises-giants-orioles-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6327490/2025/05/02/nfl-draft-2025-nfc-teams-giants-
 **Q&A: Orlando Magic's Jeff Weltman on adopting 'a win-now approach'**\
 `The Athletic interviewed the Magic's president of basketball operations about the team's offensive woes and adding to the roster. `\
 https://nytimes.com/athletic/6327968/2025/05/02/orlando-magic-jeff-weltman-exclusive-interview/
-
-**The Grizzlies' push to contention went sideways. Where do they go from here?**\
-`Going from good to great is hard, and Memphis has proven that over the past couple of years.`\
-https://nytimes.com/athletic/6325032/2025/05/02/memphis-grizzlies-nba-offseason-ja-morant-jaren-jackson/
 
