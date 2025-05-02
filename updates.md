@@ -1,3 +1,11 @@
+**Universal Antivenom May Grow Out of Man Who Let Snakes Bite Him Hundreds of Times**\
+`Scientists identified antibodies that neutralized the poison in whole or in part from the bites of cobras, mambas and other deadly species.`\
+https://nytimes.com/2025/05/02/health/snakes-universal-antivenom-tim-friede.html
+
+**Galleries, and Collectors, See Chances to Connect at Frieze New York**\
+`“There’s no getting around it,” one exhibitor said. “More people will see a work at a fair in three or four days than will come into your gallery in 10 years.”`\
+https://nytimes.com/2025/05/02/arts/design/frieze-new-york-galleries.html
+
 **A Longtime Art Dealer Looks Back**\
 `Arne Glimcher reflects on 65 years of Pace Gallery in a changed art world.`\
 https://nytimes.com/2025/05/02/arts/design/art-pace-gallery-glimcher.html

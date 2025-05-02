@@ -1,3 +1,11 @@
+**Universal Antivenom May Grow Out of Man Who Let Snakes Bite Him Hundreds of Times**\
+`Scientists identified antibodies that neutralized the poison in whole or in part from the bites of cobras, mambas and other deadly species.`\
+https://nytimes.com/2025/05/02/health/snakes-universal-antivenom-tim-friede.html
+
+**Galleries, and Collectors, See Chances to Connect at Frieze New York**\
+`“There’s no getting around it,” one exhibitor said. “More people will see a work at a fair in three or four days than will come into your gallery in 10 years.”`\
+https://nytimes.com/2025/05/02/arts/design/frieze-new-york-galleries.html
+
 **A Longtime Art Dealer Looks Back**\
 `Arne Glimcher reflects on 65 years of Pace Gallery in a changed art world.`\
 https://nytimes.com/2025/05/02/arts/design/art-pace-gallery-glimcher.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6329304/2025/05/02/kawhi-leonard-james-harden-clipp
 **NHL's Masterton Memorial Trophy finalists named — will Marc-André Fleury retire with a win?**\
 `The award goes to the player who “best exemplifies the qualities of perseverance, sportsmanship and dedication to the game.”`\
 https://nytimes.com/athletic/6325218/2025/05/02/nhl-masterton-finalists-2025/
-
-**The Windup: Good and bad surprises so far**\
-`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
-https://nytimes.com/athletic/6329386/2025/05/02/mlb-season-aaron-judge-the-windup/
-
-**Read Trump’s 2026 Discretionary Budget Request**\
-`The White House has released its budget request to Congress for the 2026 fiscal year, calling for about $163 billion in cuts to non-defense funds.`\
-https://nytimes.com/interactive/2025/05/02/us/budget-request-2026-document.html
 
