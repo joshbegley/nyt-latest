@@ -1,3 +1,11 @@
+**Review: In ‘Wonderful Town,’ a Party for Writers and Weirdos**\
+`An awkward Encores! revival of the 1953 musical celebrates the bohemian life of Greenwich Village in the years when oddballs could still afford to live there.`\
+https://nytimes.com/2025/05/02/theater/wonderful-town-review-encores.html
+
+**Volcanic Eruption in Deep Ocean Ridge Is Witnessed by Scientists for First Time**\
+`Researchers diving in a submersible in the eastern Pacific realized that the landscape they had studied the day before had been glassed over by fresh lava.`\
+https://nytimes.com/2025/05/02/science/deep-ocean-volcanic-eruption-pacific.html
+
 **Universal Antivenom May Grow Out of Man Who Let Snakes Bite Him Hundreds of Times**\
 `Scientists identified antibodies that neutralized the poison in whole or in part from the bites of cobras, mambas and other deadly species.`\
 https://nytimes.com/2025/05/02/health/snakes-universal-antivenom-tim-friede.html
