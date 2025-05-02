@@ -1,3 +1,15 @@
+**C.I.A. to Cut More Than 1,000 Positions Over Several Years**\
+`The agency plans, for now, to use attrition, including retirements and voluntary resignations, to reduce the size of the C.I.A. instead of more mass firings.`\
+https://nytimes.com/2025/05/02/us/politics/trump-cia-cuts.html
+
+**Good Cheer closes strong to win 151st Kentucky Oaks**\
+`Good Cheer was low as eighth in the 14-horse race early on.`\
+https://nytimes.com/athletic/6330247/2025/05/02/good-cheer-wins-151st-kentucky-oaks/
+
+**In first appearance at Hockey Canada trial, E.M. describes drunkenness and discomfort**\
+`The Hockey Canada sexual assault trial jury heard from the complainant for the first time in court.`\
+https://nytimes.com/athletic/6329710/2025/05/02/hockey-canada-sexual-assault-victim-testifies/
+
 **NHL Draft Lottery draw will be broadcast live on Monday**\
 `Viewers will watch in real time as numbered ping-pong balls determine the No. 1 and No. 2 draft picks.`\
 https://nytimes.com/athletic/6330101/2025/05/02/2025-nhl-draft-lottery-results-live/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/02/us/politics/elon-musk-trump-doge.html
 **C.I.A. Fires Top Doctor Targeted by Far-Right Activist**\
 `The director of the agency’s Center for Global Health Services was dismissed a month short of qualifying for full federal retirement benefits, according to a lawsuit.`\
 https://nytimes.com/2025/05/02/us/politics/cia-fires-doctor.html
-
-**Weinstein Accuser Breaks Down in Tears During Intense Cross-Examination**\
-`Miriam Haley and a defense lawyer clashed repeatedly as the disgraced film mogul Harvey Weinstein’s retrial on sex crime charges continued.`\
-https://nytimes.com/2025/05/02/nyregion/cross-examination-harvey-weinstein-miriam-haley.html
-
-**Stephen Mo Hanan, Who Played Three Roles in ‘Cats,’ Dies at 78**\
-`He sang arias on the streets of San Francisco, performed on Broadway and collaborated on a musical about Al Jolson, which he also starred in.`\
-https://nytimes.com/2025/05/02/theater/stephen-mo-hanan-dead.html
-
-**Red Sox to place righty starter Walker Buehler on 15-day IL**\
-`Buehler, who was slated to start Saturday against the Twins, will now be replaced by Hunter Dobbins. `\
-https://nytimes.com/athletic/6330158/2025/05/02/red-sox-walker-buehler-injured-list/
 
