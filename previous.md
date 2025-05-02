@@ -1,3 +1,7 @@
+**Arteta on Havertz return: 'He will have a chance to play a few games this season'**\
+`Havertz was expected to miss the rest of the season with a hamstring injury but Arteta says the German's recovery is exceeding expectations.`\
+https://nytimes.com/athletic/6329211/2025/05/02/arsenal-havertz-injury-update-return/
+
 **4 Takeaways From England’s Local Elections**\
 `Britain’s two main parties suffered significant losses in municipal and mayoral votes as Reform U.K., a right-wing populist party, surged ahead.`\
 https://nytimes.com/2025/05/02/world/europe/uk-local-elections-results-reform-labour-conservative.html
@@ -8,9 +12,9 @@ https://nytimes.com/video/world/europe/100000010142844/russell-brand-allegations
 
 **Here’s the latest.**\
 `Many of the suggested cuts, which would require congressional approval, target federal programs that benefit the poor.`\
-https://nytimes.com/2025/05/02/business/heres-the-latest.html
+https://nytimes.com/live/2025/05/02/us/trump-budget-2026/heres-the-latest
 
-**Trump to Unveil 2026 Budget Proposal, Seeking Substantial Cuts Across Government**\
+**Live Updates: Trump to Unveil 2026 Budget Proposal, Seeking Substantial Cuts Across Government**\
 `The president’s blueprint for the next fiscal year will highlight his vision for Washington and most likely be a dramatic retrenchment in the role and reach of the federal government.`\
 https://nytimes.com/live/2025/05/02/us/trump-budget-2026
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6328779/2025/05/02/midge-purce-chicago-theater-broa
 **Rangers hire Mike Sullivan as coach as GM Chris Drury finally gets his guy**\
 `Sullivan was a Rangers assistant under John Tortorella from 2009 to '13, a span that included Drury's final two seasons as captain.`\
 https://nytimes.com/athletic/6290152/2025/05/02/rangers-hire-mike-sullivan-coach/
-
-**Idina Menzel’s ‘Redwood’ to Close Following Tony Nominations Shutout**\
-`The Broadway musical will play its final performance at the Nederlander Theater on May 18.`\
-https://nytimes.com/2025/05/02/theater/redwood-broadway-closing-idina-menzel.html
 
