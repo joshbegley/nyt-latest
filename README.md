@@ -1,3 +1,7 @@
+**Trump Signs Executive Order to End Federal Funding for NPR and PBS**\
+`The Trump administration has accused the two broadcasters of using public funds to produce biased coverage and “left-wing propaganda.”`\
+https://nytimes.com/2025/05/02/us/politics/trump-funding-npr-pbs.html
+
 **Spurs rose to the challenge of their biggest game since 2019 - now they must do it again**\
 `This tie is not over but Spurs showed the kind of control and nous against Bodo/Glimt they will need to salvage their season`\
 https://nytimes.com/athletic/6319938/2025/05/02/tottenham-bodo-glimt-analysis-europa-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6328138/2025/05/02/manchester-united-europa-league-
 **How the Avalanche forced Game 7 vs. Dallas with wild 7-4 win: Takeaways**\
 `Game 6 was full of scoring chances, wild momentum swings and some of the fastest, most frenetic action of these, or any, playoffs.`\
 https://nytimes.com/athletic/6328237/2025/05/02/avalanche-stars-nhl-playoffs-2025-game-6-takeaways/
-
-**China Is Considering Trade Talks With U.S., but It Has Conditions**\
-`Despite mounting financial pressure, China says it won’t negotiate until the Trump administration shows “sincerity” by canceling tariffs on its goods.`\
-https://nytimes.com/2025/05/02/world/asia/china-us-tariffs-talks.html
 
