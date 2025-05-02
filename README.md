@@ -1,3 +1,7 @@
+**Two Scientific Groups Say They’ll Keep Working on U.S. Climate Assessment**\
+`The organizations said they planned to publish the assessment even after the Trump administration’s decision to dismiss all authors on the project.`\
+https://nytimes.com/2025/05/02/climate/national-climate-assessment-trump.html
+
 **Gregg Popovich bonded teams with wine and honesty, changed NBA via innovation and protest**\
 `Players said Gregg Popovich's fiery and direct approach worked because he also showed unwavering compassion and care about them as people.`\
 https://nytimes.com/athletic/6168664/2025/05/02/gregg-popovich-retirement-spurs-nba-leadership-legacy/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6329440/2025/05/02/yankees-jazz-chisholm-jr-injury-
 **NHL announces Selke Trophy finalists — is this the age of Aleksander Barkov?**\
 `Barkov could become the sixth player to win the trophy at least three times.`\
 https://nytimes.com/athletic/6327108/2025/05/02/nhl-selke-trophy-finalists-2025/
-
-**Four Asian American Comics on the Joke That Changed Their Life**\
-`Bowen Yang, Hari Kondabolu, Atsuko Okatsuka and Hasan Minhaj break down the stand-up bits that rewired their comedic DNA.`\
-https://nytimes.com/interactive/2025/05/02/arts/asian-american-comedians.html
 
