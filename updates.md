@@ -1,3 +1,11 @@
+**Mark Stone, 'the heartbeat of the team,' delivers again for the Golden Knights**\
+`Stone played a role in all 3 of the Golden Knights' goals as they beat the Wild to advance to the second round again.`\
+https://nytimes.com/athletic/6328416/2025/05/02/mark-stone-golden-knights-wild/
+
+**Trump Signs Executive Order Seeking to End Federal Funding for NPR and PBS**\
+`The Trump administration has accused the two broadcasters of using public funds to produce biased coverage and “left-wing propaganda.”`\
+https://nytimes.com/2025/05/02/us/politics/trump-funding-npr-pbs.html
+
 **Russo and Smith: Playoffs felt different for the Wild but ended with same hollow result**\
 `Once again, in the franchise's 24th season, passionate, patient Wild fans were left unsatisfied.`\
 https://nytimes.com/athletic/6328071/2025/05/02/minnesota-wild-playoffs-offseason/
