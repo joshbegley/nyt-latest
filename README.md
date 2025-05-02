@@ -1,3 +1,7 @@
+**The Maple Leafs took care of first-round business. Now for the hard part**\
+`The Leafs successfully slayed some playoff demons. But winning the Battle of Ontario was just step one.`\
+https://nytimes.com/athletic/6328351/2025/05/02/maple-leafs-nhl-playoffs-series-win-senators/
+
 **Israel Launches Airstrikes Near Presidential Palace in Damascus**\
 `It was the second time in days that Israel had intervened militarily in Syria amid sectarian violence targeting the Druse.`\
 https://nytimes.com/2025/05/02/world/middleeast/israel-syria-druse-strikes.html
@@ -7,7 +11,7 @@ https://nytimes.com/2025/05/02/world/middleeast/israel-syria-druse-strikes.html
 https://nytimes.com/athletic/6328138/2025/05/02/manchester-united-europa-league-win/
 
 **How the Avalanche forced Game 7 vs. Dallas with wild 7-4 win: Takeaways**\
-`Game 6 was full of scoring chances and wild momentum swings, and some of the fastest, most frenetic action of these, or any, playoffs.`\
+`Game 6 was full of scoring chances, wild momentum swings and some of the fastest, most frenetic action of these, or any, playoffs.`\
 https://nytimes.com/athletic/6328237/2025/05/02/avalanche-stars-nhl-playoffs-2025-game-6-takeaways/
 
 **China Is Considering Trade Talks With U.S., but It Has Conditions**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6326324/2025/05/02/ashley-barnes-interview-burnley/
 **Brighton mailbag: Mitoma's future, Hurzeler's impact so far and summer transfer plans**\
 `We answer your questions on everything from recruitment strategy to what next for Malick Yalcouye and Ibrahim Osman?`\
 https://nytimes.com/athletic/6319898/2025/05/02/brighton-mitoma-hurzeler-ferguson-transfers-mailbag/
-
-**David Raya, William Saliba, and Arsenal's recent positioning issue**\
-`Vinicius Junior and Jean-Philippe Mateta have both taken advantage recently of rare slackness in Arsenal's build-up play`\
-https://nytimes.com/athletic/6326033/2025/05/02/arsenal-raya-saliba-positioning-passing/
 
