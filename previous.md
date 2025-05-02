@@ -1,3 +1,19 @@
+**PSG to take civil action after alleged racist abuse from fans after Arsenal game**\
+`PSG will work alongside SOS Racisme, an international movement of anti-racist non-governmental organisations.`\
+https://nytimes.com/athletic/6328967/2025/05/02/arsenal-psg-alleged-racist-abuse/
+
+**Stocks on Track to Erase Losses From ‘Liberation Day’**\
+`Wall Street has recovered from April’s sharp sell-off, buoyed by hope for trade talks. But the economic fallout from President Trump’s policies still has investors on edge.`\
+https://nytimes.com/2025/05/02/business/stock-market-recovery-trump-tariffs.html
+
+**Prospect Blade Tidwell to debut for Mets on Sunday: Source**\
+`Tidwell, 23, will be making his major-league debut as part of the Mets' six-man rotation. He was a 2022 second-round pick.`\
+https://nytimes.com/athletic/6329852/2025/05/02/blade-tidwell-mets-mlb-debut/
+
+**An Archive of Black Resistance, in Dispatches From Bookstores**\
+`Katie Mitchell’s photo book “Prose to the People” visits stores around the United States, from the 19th century to today.`\
+https://nytimes.com/2025/05/02/books/review/prose-to-the-people-katie-mitchell.html
+
 **Trump’s Space Budget Reflects Influence of Elon Musk and SpaceX**\
 `SpaceX, already one of the biggest NASA and Pentagon contractors, could win billions of dollars in new contracts if President Trump’s budget proposal is approved by Congress.`\
 https://nytimes.com/2025/05/02/us/politics/elon-musk-spacex-trump-budget.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6329762/2025/05/02/rangers-extend-center-juuso-pars
 **Trump proposes slashing funding for rental assistance and affordable housing programs.**\
 `By Madeleine Ngo`\
 https://nytimes.com/live/2025/05/02/us/trump-budget-2026/trump-budget-housing
-
-**Prime Tire: Why Formula One loves Miami. Plus, the data behind Hamilton's struggles**\
-`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
-https://nytimes.com/athletic/6326879/2025/05/02/f1-miami-grand-prix-lewis-hamilton-ferrari-livery/
-
-**Air cargo from China is expected to drop as Trump ends tariff loophole.**\
-`By Niraj Chokshi`\
-https://nytimes.com/live/2025/05/02/us/trump-news/air-cargo-from-china-is-expected-to-drop-as-trump-ends-tariff-loophole
-
-**Google Plans to Roll Out Its A.I. Chatbot to Children Under 13**\
-`The tech giant said it would make its Gemini chatbot available to children next week, and warned families in an email about the changes.`\
-https://nytimes.com/2025/05/02/technology/google-gemini-ai-chatbot-kids.html
-
-**Flashback: Your Weekly History Quiz, May 3, 2025**\
-`Can you sort 8 historical events?`\
-https://nytimes.com/interactive/2025/05/02/upshot/flashback.html
 
