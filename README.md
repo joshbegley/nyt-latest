@@ -1,3 +1,7 @@
+**Russell Brand Attends Court Hearing In London For Rape Charges**\
+`The comedian and actor was granted bail in a court hearing for multiple charges of sexual assault, including two counts of rape.`\
+https://nytimes.com/video/world/europe/100000010142844/russell-brand-allegations-trial.html
+
 **Here’s the latest.**\
 `Many of the suggested cuts, which would require congressional approval, target federal programs that benefit the poor.`\
 https://nytimes.com/2025/05/02/business/heres-the-latest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/02/theater/redwood-broadway-closing-idina-menzel.htm
 **Tips for Navigating the ‘Chaotic System’ of Student Loan Repayments**\
 `Experts say recent graduates with loans should choose the repayment option that makes the most sense for them now and expect to make adjustments later.`\
 https://nytimes.com/2025/05/02/your-money/student-loan-repayment-tips.html
-
-**Don’t Count the Dollar Out Just Yet**\
-`As President Trump’s tariffs rock the world, German bonds and the euro are benefiting. But U.S. strength endures, our columnist says.`\
-https://nytimes.com/2025/05/02/business/dollar-treasury-bonds-markets.html
 
