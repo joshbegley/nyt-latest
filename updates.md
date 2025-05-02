@@ -1,3 +1,7 @@
+**How the End of a U.S. Tax Loophole Hurts Chinese Companies**\
+`A loophole that has allowed American shoppers to buy lots of cheap goods from mainland China and Hong Kong without paying tariffs and filling customs forms is closing on Friday. Meaghan Tobin, a correspondent for The New York Times covering business in Asia, explains.`\
+https://nytimes.com/video/world/asia/100000010138010/de-minimis-e-commerce-tax-exemption-explainer.html
+
 **Joelinton set to miss rest of Newcastle's season with knee injury**\
 `The 28-year-old missed Newcastle’s Premier League 3-0 win against Ipswich Town last weekend and saw a specialist for assessment.`\
 https://nytimes.com/athletic/6328725/2025/05/02/joelinton-newcastle-injury-update/
