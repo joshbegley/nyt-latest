@@ -1,3 +1,23 @@
+**What rival evaluators are saying about Yankees prospect George Lombard Jr.'s hot start**\
+`One rival evaluator said he believes Lombard is the Yankees' only untouchable prospect.`\
+https://nytimes.com/athletic/6327209/2025/05/02/yankees-prospect-george-lombard-jr-rival-evaluators/
+
+**A Pastor of the Poor Skilled in Conflict Resolution**\
+`A possible contender for the papacy, Cardinal Matteo Zuppi has worked with the needy and the disenfranchised, even as he participated in peace talks around the world.`\
+https://nytimes.com/2025/05/02/world/europe/matteo-zuppi-pope-vatican.html
+
+**Bills post-draft depth chart: Movement at defensive end, different possibilities at cornerback**\
+`A few of the newest draft picks could challenge for playing time.`\
+https://nytimes.com/athletic/6327289/2025/05/02/bills-depth-chart-nfl-draft-2025/
+
+**Giannis trade proposals: 4 potential deals that pique our interest**\
+`If the two-time MVP hits the market, a few deals are conversation starters. But are they enough to get the job done?`\
+https://nytimes.com/athletic/6328255/2025/05/02/giannis-antetokounmpo-trade-rumors-proposals-bucks/
+
+**The New York Times International Edition in Print for Saturday, May 3, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/05/02/todays-new-york-times-international-edition
+
 **How the End of a U.S. Tax Loophole Hurts Chinese Companies**\
 `A loophole that has allowed American shoppers to buy lots of cheap goods from mainland China and Hong Kong without paying tariffs and filling customs forms is closing on Friday. Meaghan Tobin, a correspondent for The New York Times covering business in Asia, explains.`\
 https://nytimes.com/video/world/asia/100000010138010/de-minimis-e-commerce-tax-exemption-explainer.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/05/02/well/hedonic-eudaemonic-happiness.html
 **Trump vs. the Dollar**\
 `The economist Kenneth Rogoff traces the dollar’s rise — and potential fall.`\
 https://nytimes.com/video/opinion/100000010142399/trump-vs-the-dollar.html
-
-**The New York Times News Quiz, May 2, 2025**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2025/05/02/briefing/trump-waltz-canada-ukraine-news-quiz.html
-
-**Whom in Your Family Would You Like to Interview?**\
-`How well do you know your relatives? What would you like to learn about them?`\
-https://nytimes.com/2025/05/02/learning/whom-in-your-family-would-you-like-to-interview.html
-
-**Brazilian Nun Who Was World’s Oldest Person Dies at 116**\
-`Sister Inah Canabarro Lucas received a blessing from Pope Francis when she turned 110. She would have turned 117 in a few weeks.`\
-https://nytimes.com/2025/05/02/world/americas/inah-canabarro-lucas-oldest-person-dead.html
-
-**China Wants to Silence My Organization. Why Is Trump Doing It?**\
-`The U.S. government’s dismantling of Radio Free Asia means giving Beijing’s propaganda free rein.`\
-https://nytimes.com/2025/05/02/opinion/china-radio-free-xi-trump.html
-
-**Companies Are Serving Notice: We’re Raising Prices Because of Tariffs**\
-`President Trump’s trade policies are already starting to frustrate American consumers who have noticed higher prices in their shopping carts.`\
-https://nytimes.com/2025/05/02/us/politics/companies-tariffs-price-increases.html
 
