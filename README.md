@@ -1,3 +1,7 @@
+**Slot to rotate Liverpool squad for final league games**\
+`Liverpool have four games remaining, starting with a trip to Stamford Bridge on Sunday to face Champions League-chasing Chelsea.`\
+https://nytimes.com/athletic/6328737/2025/05/02/liverpool-team-news-rotation-arne-slot/
+
 **There’s Never Been a Pope From the U.S. Could This Cardinal Change That?**\
 `Cardinal Robert Francis Prevost, a native of Chicago, has spent the bulk of his career outside the United States. Supporters say he represents a “dignified middle of the road.”`\
 https://nytimes.com/2025/05/02/world/asia/pope-candidate-cardinal-robert-francis-prevost.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6326489/2025/05/02/nfl-draft-2025-undrafted-free-ag
 **The Battle of Ontario is over: Behind the scenes of the Leafs' Round 1 victory**\
 `From their first foray to Kanata to a surprising locker-room ambience after Game 6, an insider view on how the Leafs got it done.`\
 https://nytimes.com/athletic/6328384/2025/05/02/maple-leafs-nhl-playoffs-series-win-behind-scenes/
-
-**First Major White House Shuffle, and Why Online Shopping’s About to Cost More**\
-`Plus, a Friday news quiz.`\
-https://nytimes.com/2025/05/02/podcasts/the-headlines/white-house-online-shopping-michael-waltz-signal-leak-trump.html
 
