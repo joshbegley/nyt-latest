@@ -1,3 +1,19 @@
+**Voting in a Fraught World, Australians Focus on Cost-of-Living Concerns**\
+`Voters will decide who can turn Australia around from the throes of inflation and a housing crisis, and navigate relations with a volatile Washington.`\
+https://nytimes.com/2025/05/02/world/asia/australia-prime-minister-election.html
+
+**Grizzlies retaining Tuomas Iisalo as head coach after brief interim period**\
+`Iisalo was named interim head coach of the Grizzlies on March 28 after Memphis fired coach Taylor Jenkins in a shocking move`\
+https://nytimes.com/athletic/6329918/2025/05/02/memphis-grizzlies-coach-tuomas-lisalo-nba/
+
+**Her ‘Caveman’ Skin Care Routine Has Skeptics, but She Says It’s Real**\
+`Tia Zakher’s videos about not washing her face drew millions of views, numerous questions and some legitimate concern. She insists she’s fine.`\
+https://nytimes.com/2025/05/02/style/caveman-skincare-tia-zakher-tiktok.html
+
+**Read the Memo to Wisconsin State Workers**\
+`The state employees were given these instructions on interacting with federal immigration agents at their workplace.`\
+https://nytimes.com/interactive/2025/05/02/us/wisconsin-state-guidance.html
+
 **Former Fetterman Aide Expressed Concern to Doctor About Senator’s Mental Health**\
 `The former chief of staff to Senator John Fetterman last year wrote to a doctor who had treated him, pointing to “warning signs” that suggested the senator could be backsliding on his recovery from a mental health crisis.`\
 https://nytimes.com/2025/05/02/us/politics/john-fetterman-mental-health.html
