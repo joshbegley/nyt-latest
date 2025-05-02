@@ -1,3 +1,11 @@
+**How the Avalanche forced Game 7 vs. Dallas with wild 7-4 win: Takeaways**\
+`Game 6 was full of scoring chances and wild momentum swings, and some of the fastest, most frenetic action of these, or any, playoffs.`\
+https://nytimes.com/athletic/6328237/2025/05/02/avalanche-stars-nhl-playoffs-2025-game-6-takeaways/
+
+**China Is Considering Trade Talks With U.S., but It Has Conditions**\
+`Despite mounting financial pressure, China says it won’t negotiate until the Trump administration shows “sincerity” by canceling tariffs on its goods.`\
+https://nytimes.com/2025/05/02/world/asia/china-us-tariffs-talks.html
+
 **Captain Clutch to the rescue? 'It's just instinct' for Jalen Brunson in Knicks Game 6 win**\
 `Jalen Brunson reminded the world on Thursday why he's the NBA's Clutch Player of the Year.`\
 https://nytimes.com/athletic/6328388/2025/05/02/jalen-brunson-game-winner-game-6-knicks/
