@@ -1,3 +1,11 @@
+**Trump’s Space Budget Reflects Influence of Elon Musk and SpaceX**\
+`SpaceX, already one of the biggest NASA and Pentagon contractors, could win billions of dollars in new contracts if President Trump’s budget proposal is approved by Congress.`\
+https://nytimes.com/2025/05/02/us/politics/elon-musk-spacex-trump-budget.html
+
+**NHL's Lady Byng Trophy finalists revealed — Jack Eichel earns first nomination**\
+`Anze Kopitar of the Los Angeles Kings could become a two-time winner.`\
+https://nytimes.com/athletic/6325175/2025/05/02/nhl-lady-byng-finalists-2025/
+
 **Reds put OF Austin Hays on IL and activate C Tyler Stephenson**\
 `Stephenson played in eight rehab games for Triple-A Louisville, going 3 for 28 (.107) with a home run.`\
 https://nytimes.com/athletic/6329765/2025/05/02/reds-austin-hays-il-activate-tyler-stephenson/
