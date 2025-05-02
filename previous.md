@@ -1,3 +1,11 @@
+**When Taxpayers Fund Shows Like ‘Blue Bloods’ and ‘S.N.L.,’ Does It Pay Off?**\
+`Gov. Kathy Hochul of New York has proposed an increase in the film tax credit to stay competitive with New Jersey and other states.`\
+https://nytimes.com/2025/05/01/upshot/movies-shows-tax-credits-new-york.html
+
+**Rudy Gobert's 'absurd' performance. Plus, who would the Wolves rather face?**\
+`On NBA Daily, we discuss the Timberwolves' 4-1 series win over the Lakers in the first round.`\
+https://nytimes.com/athletic/6326361/2025/05/01/nba-daily-rudy-gobert-wolves-lakers/
+
 **Federal Report Denounces Gender Treatments for Adolescents**\
 `The H.H.S. review may set the stage for additional restrictions on gender-affirming care. Critics described it as an ideological statement.`\
 https://nytimes.com/2025/05/01/health/federal-report-denounces-gender-treatments-for-adolescents.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6327680/2025/05/01/tom-brady-birmingham-women-londo
 **Postecoglou: Maddison, Solanke injuries not serious; Bergvall to be assessed**\
 `Bergvall was not in Spurs' matchday squad on Thursday, while Maddison and Solanke were withdrawn in the second half.`\
 https://nytimes.com/athletic/6327762/2025/05/01/maddison-solanke-bergvall-injury-update/
-
-**Baffert scratches top-three favorite Rodriguez from Kentucky Derby**\
-`With Baffert pulling Rodriguez out of the race, Baeza has joined the field.`\
-https://nytimes.com/athletic/6327726/2025/05/01/kentucky-derby-2025-bob-baffert-horse-scratched-rodriguez/
-
-**U.S. Creating Second Military Zone Along Southern Border**\
-`Troops in the newly designated area in Texas will be able to temporarily detain migrants as the Trump administration militarizes the boundary with Mexico.`\
-https://nytimes.com/2025/05/01/us/politics/military-border-mexico-migrants.html
 
