@@ -1,3 +1,7 @@
+**New ‘Climate Superfund’ Laws Face Widening Legal Challenges**\
+`The Trump administration sued to block two state laws designed to force oil companies to pay the costs of climate change. Several other states are joining the fight, too.`\
+https://nytimes.com/2025/05/02/climate/climate-superfund-law-vermont-new-york-lawsuits.html
+
 **PSG to take civil action after alleged racist abuse from fans after Arsenal game**\
 `PSG will work alongside SOS Racisme, an international movement of anti-racist non-governmental organisations.`\
 https://nytimes.com/athletic/6328967/2025/05/02/arsenal-psg-alleged-racist-abuse/
