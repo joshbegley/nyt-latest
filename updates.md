@@ -1,3 +1,27 @@
+**Rangers extend center Juuso Pärssinen for two years**\
+`The Rangers now have $8.42 million in projected cap space for 2025-26.`\
+https://nytimes.com/athletic/6329762/2025/05/02/rangers-extend-center-juuso-parssinen/
+
+**Trump proposes slashing funding for rental assistance and affordable housing programs.**\
+`By Madeleine Ngo`\
+https://nytimes.com/live/2025/05/02/us/trump-budget-2026/trump-budget-housing
+
+**Prime Tire: Why Formula One loves Miami. Plus, the data behind Hamilton's struggles**\
+`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
+https://nytimes.com/athletic/6326879/2025/05/02/f1-miami-grand-prix-lewis-hamilton-ferrari-livery/
+
+**Air cargo from China is expected to drop as Trump ends tariff loophole.**\
+`By Niraj Chokshi`\
+https://nytimes.com/live/2025/05/02/us/trump-news/air-cargo-from-china-is-expected-to-drop-as-trump-ends-tariff-loophole
+
+**Google Plans to Roll Out Its A.I. Chatbot to Children Under 13**\
+`The tech giant said it would make its Gemini chatbot available to children next week, and warned families in an email about the changes.`\
+https://nytimes.com/2025/05/02/technology/google-gemini-ai-chatbot-kids.html
+
+**Flashback: Your Weekly History Quiz, May 3, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/05/02/upshot/flashback.html
+
 **Trump’s plan proposes sweeping cuts to climate and renewable energy programs.**\
 `By Brad Plumer and Lisa Friedman`\
 https://nytimes.com/live/2025/05/02/us/trump-budget-2026/trumps-plan-proposes-sweeping-cuts-to-climate-and-renewable-energy-programs
