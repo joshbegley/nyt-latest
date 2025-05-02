@@ -1,3 +1,7 @@
+**In Texas Borderland, Trump’s Immigration Push Suffers Its Worst Legal Defeat Yet**\
+`Judge Fernando Rodriguez Jr. is a Trump nominee with conservative credentials. But he found White House claims about a Venezuelan gang “invasion” went too far.`\
+https://nytimes.com/2025/05/02/us/politics/trump-deportees-texas.html
+
 **Arteta on Havertz return: 'He will have a chance to play a few games this season'**\
 `Havertz was expected to miss the rest of the season with a hamstring injury but Arteta says the German's recovery is exceeding expectations.`\
 https://nytimes.com/athletic/6329211/2025/05/02/arsenal-havertz-injury-update-return/

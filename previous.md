@@ -1,3 +1,7 @@
+**In Texas Borderland, Trump’s Immigration Push Suffers Its Worst Legal Defeat Yet**\
+`Judge Fernando Rodriguez Jr. is a Trump nominee with conservative credentials. But he found White House claims about a Venezuelan gang “invasion” went too far.`\
+https://nytimes.com/2025/05/02/us/politics/trump-deportees-texas.html
+
 **Arteta on Havertz return: 'He will have a chance to play a few games this season'**\
 `Havertz was expected to miss the rest of the season with a hamstring injury but Arteta says the German's recovery is exceeding expectations.`\
 https://nytimes.com/athletic/6329211/2025/05/02/arsenal-havertz-injury-update-return/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/02/us/politics/trump-harvard-tax-exempt-status.html
 **Break a leg: Midge Purce trades her cleats for dancing shoes in 'Chicago' Broadway debut**\
 `The goalscorer is no stranger to the spotlight.`\
 https://nytimes.com/athletic/6328779/2025/05/02/midge-purce-chicago-theater-broadway/
-
-**Rangers hire Mike Sullivan as coach as GM Chris Drury finally gets his guy**\
-`Sullivan was a Rangers assistant under John Tortorella from 2009 to '13, a span that included Drury's final two seasons as captain.`\
-https://nytimes.com/athletic/6290152/2025/05/02/rangers-hire-mike-sullivan-coach/
 
