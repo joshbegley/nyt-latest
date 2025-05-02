@@ -1,3 +1,7 @@
+**George Ryan, Illinois Governor Who Halted Prison Executions, Dies at 91**\
+`A Republican, he imposed a moratorium on capital punishment, saying he could not support a death-row system “so fraught with error” that it might end an innocent life.`\
+https://nytimes.com/2025/05/02/us/politics/george-ryan-dead.html
+
 **Why the new tighter strike zone may impact Patrick Bailey and the Giants more than most**\
 `Bailey is the game's best strike-stealer. With the "buffer" zone shrinking, his framing skills could be mitigated. `\
 https://nytimes.com/athletic/6327719/2025/05/02/sf-giants-smaller-strike-zone-patrick-bailey/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6330003/2025/05/02/wild-offseason-priorities-kapriz
 **Lawsuit Against Humanities Endowment Offers Details on DOGE**\
 `Three scholarly groups are challenging the recent cancellation of most grants by the National Endowment for the Humanities.`\
 https://nytimes.com/2025/05/02/arts/humanities-endowment-doge-grants.html
-
-**Trump Seeks to Eliminate the National Endowment for the Arts**\
-`The president’s budget proposal also called for getting rid of the National Endowment for the Humanities and the Institute of Museum and Library Sciences.`\
-https://nytimes.com/2025/05/02/arts/nea.html
 
