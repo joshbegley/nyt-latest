@@ -1,40 +1,40 @@
-**The Athletic FC: Who needs Euro final more, Man Utd or Spurs? Plus: Berhalter Jnr interview**\
-`Today in TAFC: The potential Europa League face-off between Man Utd and Tottenham, FA's transgender decision, Beckham at 50.`\
-https://nytimes.com/athletic/6328745/2025/05/02/manchester-united-tottenham-europa-league-final/
+**Who’s on third? The Chicago Cubs’ best option may still wind up being Matt Shaw**\
+`All seven players who started a game at third base for the Cubs last season are no longer in the organization.`\
+https://nytimes.com/athletic/6327768/2025/05/02/chicago-cubs-third-base-options/
 
-**English FA's ban on transgender women contrasts with history of inclusion in women's football**\
-`Women's football, both recently and historically, has made tolerance, community and acceptance a vital part of its identity`\
-https://nytimes.com/athletic/6327900/2025/05/02/english-fa-transgender-ban-womens-football-history/
+**Guardians takeaways: Manzardo's power, McKenzie's fresh start, Santana vs. Father Time**\
+`Fresh off a tough 10-game homestand where they went 6-4, it's time for a look at some Guardians trends as they head to Toronto.`\
+https://nytimes.com/athletic/6327261/2025/05/02/guardians-takeaways-manzardo-mckenzie-williams/
 
-**Where do the Kings go from here after an inexcusable playoff exit?**\
-`The latest season-ender at the hands of the Oilers leaves the Kings with plenty of questions to ponder.`\
-https://nytimes.com/athletic/6328705/2025/05/02/kings-oilers-nhl-playoffs-exit/
+**How can the Jets beat the Blues in Game 6? Role players, a surprise return, greasy goals**\
+`Mark Scheifele won't play in Game 6 -- but Nik Ehlers might. But he alone can't get the Jets over the hump, it will require a team effort.`\
+https://nytimes.com/athletic/6328337/2025/05/02/nhl-playoffs-jets-game-6/
 
-**Exxon and Chevron Report Lower Profits While Girding for Tariffs**\
-`President Trump’s trade policies have helped to push down oil prices while raising the costs of materials for oil and gas companies.`\
-https://nytimes.com/2025/05/02/business/energy-environment/exxon-chevron-earnings.html
+**The MLB starting pitchers getting squeezed most by this season's smaller strike zone**\
+`The strike zone is smaller this year. Which pitchers are getting affected the most and should you be wary of them in fantasy baseball?`\
+https://nytimes.com/athletic/6326999/2025/05/02/mlb-starting-pitchers-small-strike-zone/
 
-**President Trump remains bullish, even as the economy flashes warning signs.**\
-`By Tony Romm`\
-https://nytimes.com/live/2025/05/02/business/jobs-report-april-economy/president-trump-remains-bullish-even-as-the-economy-flashes-warning-signs
+**The Athletic’s Friday football quiz question #53**\
+`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
+https://nytimes.com/athletic/6328795/2025/05/02/the-athletics-friday-football-quiz-question-53/
 
-**The Pulse: MLB's biggest surprises thus far**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6328493/2025/05/02/mlb-surprises-giants-orioles-the-pulse/
+**What's burgoo? Here's the Kentucky Derby tradition not on the Churchill Downs grounds**\
+`While the food choice isn't a Churchill Downs staple, burgoo is a reflection of Kentucky and a well-known tradition during the Derby.`\
+https://nytimes.com/athletic/6297949/2025/05/02/kentucky-derby-burgoo-stew-churchill-downs/
 
-**How the Oilers' depth got them through first round and has them primed for more**\
-`Connor McDavid and Leon Draisaitl often get the job done for the Oilers but against the Kings others stepped up.`\
-https://nytimes.com/athletic/6328706/2025/05/02/edmonton-oilers-kings-playoffs-result-connor-brown/
+**'He'll take this and fight hard.' Community rallies around injured Pirates fan Kavan Markwood**\
+`His former coach says that Markwood, who is in critical condition after a fall at Wednesday's Pirates game, is "an exceptional young man."`\
+https://nytimes.com/athletic/6328172/2025/05/02/injured-pirates-fan-kavan-markwood-fall/
 
-**Slot to rotate Liverpool squad for final league games**\
-`Liverpool have four games remaining, starting with a trip to Stamford Bridge on Sunday to face Champions League-chasing Chelsea.`\
-https://nytimes.com/athletic/6328737/2025/05/02/liverpool-team-news-rotation-arne-slot/
+**For Notre Dame incoming freshman Dallas Golden, it's not cornerback 'or' receiver, it's 'and'**\
+`From 5 a.m. workouts to four years on varsity at Berkeley Prep, there’s a good chance Golden will be as ready as any freshman could be.`\
+https://nytimes.com/athletic/6328090/2025/05/02/dallas-golden-notre-dame-football/
 
-**There’s Never Been a Pope From the U.S. Could This Cardinal Change That?**\
-`Cardinal Robert Francis Prevost, a native of Chicago, has spent the bulk of his career outside the United States. Supporters say he represents a “dignified middle of the road.”`\
-https://nytimes.com/2025/05/02/world/asia/pope-candidate-cardinal-robert-francis-prevost.html
+**Sliders: Eugenio Suárez is streaky, superstitious — and now he’s made his mark on baseball history**\
+`Plus the Dodgers set an unwanted early-season record, a conversation with Doug Glanville and a look back at a catch that saved a perfecto.`\
+https://nytimes.com/athletic/6325368/2025/05/02/diamondbacks-eugenio-suarez-dodgers-rotation/
 
-**After weeks of volatile trading, Friday’s report could set the tone on Wall Street.**\
-`By Joe Rennison and Danielle Kaye`\
-https://nytimes.com/live/2025/05/02/business/jobs-report-april-economy/after-weeks-of-volatile-trading-fridays-report-could-set-the-tone-on-wall-street
+**Row Z: Commentary neutrality, the Wolves packs and Ipswich complete the social set**\
+`Our weekly look at the more absurd side of the game also takes in a non-League team taking 'parking the bus' to extreme levels`\
+https://nytimes.com/athletic/6327576/2025/05/02/wolves-women-ferdinand-ipswich-row-z/
 
