@@ -1,3 +1,15 @@
+**C.I.A. to Cut More Than 1,000 Positions Over Several Years**\
+`The agency plans, for now, to use attrition, including retirements and voluntary resignations, to reduce the size of the C.I.A. instead of more mass firings.`\
+https://nytimes.com/2025/05/02/us/politics/trump-cia-cuts.html
+
+**Good Cheer closes strong to win 151st Kentucky Oaks**\
+`Good Cheer was low as eighth in the 14-horse race early on.`\
+https://nytimes.com/athletic/6330247/2025/05/02/good-cheer-wins-151st-kentucky-oaks/
+
+**In first appearance at Hockey Canada trial, E.M. describes drunkenness and discomfort**\
+`The Hockey Canada sexual assault trial jury heard from the complainant for the first time in court.`\
+https://nytimes.com/athletic/6329710/2025/05/02/hockey-canada-sexual-assault-victim-testifies/
+
 **NHL Draft Lottery draw will be broadcast live on Monday**\
 `Viewers will watch in real time as numbered ping-pong balls determine the No. 1 and No. 2 draft picks.`\
 https://nytimes.com/athletic/6330101/2025/05/02/2025-nhl-draft-lottery-results-live/
