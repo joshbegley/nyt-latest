@@ -1,3 +1,7 @@
+**Twins' Louis Varland has shown big upside in bullpen but still has a meatball problem**\
+`Varland's move to the bullpen has been encouraging overall, but middle-middle pitches continue to hold him back.`\
+https://nytimes.com/athletic/6323504/2025/05/02/louis-varland-twins-reliever-meatballs/
+
 **Who’s on third? The Chicago Cubs’ best option may still wind up being Matt Shaw**\
 `All seven players who started a game at third base for the Cubs last season are no longer in the organization.`\
 https://nytimes.com/athletic/6327768/2025/05/02/chicago-cubs-third-base-options/
