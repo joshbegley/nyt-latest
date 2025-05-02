@@ -1,3 +1,7 @@
+**How to watch the Miami Grand Prix, South Florida's F1 race last won by Lando Norris**\
+`Lando Norris will look to defend his title at this track against Max Verstappen, Charles Leclerc, George Russell and Oscar Piastri.`\
+https://nytimes.com/athletic/6327303/2025/05/02/miami-grand-prix-lando-norris-max-verstappen-how-to-watch/
+
 **Two Scientific Groups Say They’ll Keep Working on U.S. Climate Assessment**\
 `The organizations said they planned to publish the assessment even after the Trump administration’s decision to dismiss all authors on the project.`\
 https://nytimes.com/2025/05/02/climate/national-climate-assessment-trump.html

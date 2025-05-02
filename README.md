@@ -1,6 +1,14 @@
+**U.S. Wants to Break Up Google’s Advertising Technology**\
+`In a hearing on Friday, lawyers for the Justice Depart. indicated the government would double down on its requests to break up the tech giant’s business.`\
+https://nytimes.com/2025/05/02/technology/google-advertising-technology-hearing.html
+
 **How to watch the Miami Grand Prix, South Florida's F1 race last won by Lando Norris**\
 `Lando Norris will look to defend his title at this track against Max Verstappen, Charles Leclerc, George Russell and Oscar Piastri.`\
 https://nytimes.com/athletic/6327303/2025/05/02/miami-grand-prix-lando-norris-max-verstappen-how-to-watch/
+
+**Oddsmakers talk Kentucky Derby: 'This is horse racing’s Super Bowl'**\
+` Max Meyer spoke with several oddsmakers to discuss the Kentucky Derby, or "horse racing's Super Bowl," as one oddsmaker called it.`\
+https://nytimes.com/athletic/6326356/2025/05/02/kentucky-derby-sportsbooks-journalism-baffert/
 
 **Two Scientific Groups Say They’ll Keep Working on U.S. Climate Assessment**\
 `The organizations said they planned to publish the assessment even after the Trump administration’s decision to dismiss all authors on the project.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/02/us/politics/trump-budget-cdc-nih-cuts.html
 **Inter Miami's pressing questions after a painful Concacaf Champions Cup ouster**\
 `Between high-priced veterans with close ties to Messi and areas that need improvement, Miami must strike a balance in its trophy quest`\
 https://nytimes.com/athletic/6329528/2025/05/02/inter-miami-messi-suarez-busquets-alba-champions-cup-mls/
-
-**Gregg Popovich stepping down as Spurs coach to become team president: Sources**\
-`Popovich, 76, suffered a mild stroke in early November which forced him to cede coaching duties to assistant Mitch Johnson.`\
-https://nytimes.com/athletic/6329540/2025/05/02/gregg-popovich-spurs-coach-steps-down-team-president/
-
-**Yankees' injury woes continue as Jazz Chisholm Jr. heads to IL**\
-`The move was retroactive to Wednesday when Chisholm Jr. suffered the injury on a swing vs. the Baltimore Orioles on Tuesday.`\
-https://nytimes.com/athletic/6329440/2025/05/02/yankees-jazz-chisholm-jr-injury-il/
 
