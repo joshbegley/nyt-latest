@@ -1,3 +1,7 @@
+**Trump Says He’s ‘Taking Away’ Harvard’s Tax-Exempt Status**\
+`President Trump first threatened Harvard’s tax status last month. It was not immediately clear if the I.R.S. was in fact moving forward with a change.`\
+https://nytimes.com/2025/05/02/us/politics/trump-harvard-tax-exempt-status.html
+
 **Break a leg: Midge Purce trades her cleats for dancing shoes in 'Chicago' Broadway debut**\
 `The goalscorer is no stranger to the spotlight.`\
 https://nytimes.com/athletic/6328779/2025/05/02/midge-purce-chicago-theater-broadway/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6329031/2025/05/02/psg-arsenal-dembele-injury-champ
 **Easy, Healthy Chicken Dinners **\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/healthy-chicken-dinners
-
-**Explosions Cripple Ship Carrying Aid to Gaza in the Mediterranean Sea**\
-`A human rights group operating the ship blamed a drone attack for the explosions, which caused a fire on the vessel. The crew was safe and remained on board.`\
-https://nytimes.com/2025/05/02/world/europe/freedom-flotilla-ship-aid-gaza-malta-thunberg.html
 
