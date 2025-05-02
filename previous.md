@@ -1,3 +1,11 @@
+**Trump Says He Is Renaming Veterans Day as ‘Victory Day for World War I’**\
+`The president said he would also label May 8, known as V-E Day for Victory in Europe, as “Victory Day for World War II,” and vowed to celebrate America’s military wins.`\
+https://nytimes.com/2025/05/02/us/politics/trump-veterans-day-world-war-i.html
+
+**How Housing Became the Third Rail of Australian Politics**\
+`Going into a federal election, both major parties are hesitant to tame the sky-high property values that have priced many voters out of the housing market.`\
+https://nytimes.com/2025/05/02/us/australia-election-housing.html
+
 **Late Night Watches ‘Signalgate’ Claim a Victim, Sort of**\
 `Mike Waltz, who added a journalist to a Signal group chat about plans to bomb Yemen, is out as national security adviser, but his career isn’t over.`\
 https://nytimes.com/2025/05/02/arts/television/late-night-mike-waltz.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6320439/2025/05/02/athletic-club-bilbao-europa-leag
 **In Alabama Commencement Speech, Trump Mixes In the Political**\
 `Between pieces of advice like “don’t try to be someone else,” the president attacked political foes and discussed everything from egg prices to transgender rights, often to cheers from the crowd.`\
 https://nytimes.com/2025/05/02/us/politics/trump-alabama-commencement-speech.html
-
-**Jalen Brunson and the shot that may have saved the Knicks as we know them**\
-`The final points of Brunson's 40-point performance carried the weight of a franchise and avoided an alternate universe.`\
-https://nytimes.com/athletic/6328284/2025/05/02/jalen-brunson-new-york-knicks-nba-game-winner/
-
-**Nuno Espirito Santo needs to get his Forest back - and fast**\
-`An uncharacteristically soft performance against Brentford was a blow to Forest's top-five hopes but all is not lost`\
-https://nytimes.com/athletic/6327925/2025/05/02/nottingham-forest-brentford-result-analysis/
 
