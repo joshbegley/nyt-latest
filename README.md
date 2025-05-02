@@ -1,3 +1,7 @@
+**Illinois Man Sentenced to 53 Years in Prison in Killing of Palestinian American Boy**\
+`A jury in suburban Chicago convicted the man of murder and hate crime charges in the 2023 killing of Wadee Alfayoumi, 6. He was the boy’s landlord.`\
+https://nytimes.com/2025/05/02/us/illinois-hate-crime-sentencing.html
+
 **Suit Accuses the Fashion Designer Riccardo Tisci of Sexual Assault**\
 `The former creative director of Givenchy and Burberry has denied the allegations that he drugged and assaulted a man in New York last June.`\
 https://nytimes.com/2025/05/02/style/riccardo-tisci-sexual-assault-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/02/technology/google-advertising-technology-hearing.
 **How to watch the Miami Grand Prix, South Florida's F1 race last won by Lando Norris**\
 `Lando Norris will look to defend his title at this track against Max Verstappen, Charles Leclerc, George Russell and Oscar Piastri.`\
 https://nytimes.com/athletic/6327303/2025/05/02/miami-grand-prix-lando-norris-max-verstappen-how-to-watch/
-
-**Oddsmakers talk Kentucky Derby: 'This is horse racing’s Super Bowl'**\
-` Max Meyer spoke with several oddsmakers to discuss the Kentucky Derby, or "horse racing's Super Bowl," as one oddsmaker called it.`\
-https://nytimes.com/athletic/6326356/2025/05/02/kentucky-derby-sportsbooks-journalism-baffert/
 
