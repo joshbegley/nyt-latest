@@ -1,3 +1,11 @@
+**Federal Report Denounces Gender Treatments for Adolescents**\
+`The H.H.S. review may set the stage for additional restrictions on gender-affirming care. Critics described it as an ideological statement.`\
+https://nytimes.com/2025/05/01/health/federal-report-denounces-gender-treatments-for-adolescents.html
+
+**Fan who fell in Pirates-Cubs game identified as local Pennsylvania man**\
+`The fan remains at the hospital after falling from the stands at PNC Park in Wednesday's Pirates-Cubs game.`\
+https://nytimes.com/athletic/6327858/2025/05/01/pirates-fan-identified-fall/
+
 **Marco Rubio, Secretary of Everything**\
 `The former senator from Florida is now the head of four government bodies. He has outdone Henry Kissinger and even Xi Jinping, China’s leader, who has only three titles.`\
 https://nytimes.com/2025/05/01/us/politics/marco-rubio-national-security-secretary-state.html
