@@ -1,3 +1,19 @@
+**Voting in a Fraught World, Australians Focus on Cost-of-Living Concerns**\
+`Voters will decide who can turn Australia around from the throes of inflation and a housing crisis, and navigate relations with a volatile Washington.`\
+https://nytimes.com/2025/05/02/world/asia/australia-prime-minister-election.html
+
+**Grizzlies retaining Tuomas Iisalo as head coach after brief interim period**\
+`Iisalo was named interim head coach of the Grizzlies on March 28 after Memphis fired coach Taylor Jenkins in a shocking move`\
+https://nytimes.com/athletic/6329918/2025/05/02/memphis-grizzlies-coach-tuomas-lisalo-nba/
+
+**Her ‘Caveman’ Skin Care Routine Has Skeptics, but She Says It’s Real**\
+`Tia Zakher’s videos about not washing her face drew millions of views, numerous questions and some legitimate concern. She insists she’s fine.`\
+https://nytimes.com/2025/05/02/style/caveman-skincare-tia-zakher-tiktok.html
+
+**Read the Memo to Wisconsin State Workers**\
+`The state employees were given these instructions on interacting with federal immigration agents at their workplace.`\
+https://nytimes.com/interactive/2025/05/02/us/wisconsin-state-guidance.html
+
 **Former Fetterman Aide Expressed Concern to Doctor About Senator’s Mental Health**\
 `The former chief of staff to Senator John Fetterman last year wrote to a doctor who had treated him, pointing to “warning signs” that suggested the senator could be backsliding on his recovery from a mental health crisis.`\
 https://nytimes.com/2025/05/02/us/politics/john-fetterman-mental-health.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/05/02/world/canada/mark-carney-trump-visit-tariffs.html
 **Canada’s Prime Minister Will Meet With Trump Amid Trade War**\
 `Prime Minister Mark Carney said that he will visit Washington to discuss the economic relationship between the U.S. and Canada. He also announced that King Charles will visit Canada later this month.`\
 https://nytimes.com/video/world/canada/100000010143577/canada-carney-trump-king-charles.html
-
-**Kennedy Orders Search for New Measles Treatments Instead of Urging Vaccination**\
-`Decades of research have turned up no miracle treatment for measles, but studies show the M.M.R. shot is 97 percent effective in preventing the disease.`\
-https://nytimes.com/2025/05/02/health/measles-treatments-vaccines-kennedy.html
-
-**Trump’s Budget Flops With Some Powerful Republican Lawmakers**\
-`Senators expressed concern with a military budget they said was far too scant, and one objected to the plan’s gutting of vital programs, including one that offers home heating assistance for the poor.`\
-https://nytimes.com/2025/05/02/us/politics/trump-budget-congress-republicans.html
-
-**Paramilitary Fighters Massacre More Than 100 Civilians, Doctors’ Group Says**\
-`The Sudan Doctors Network said that the Rapid Support Forces had killed at least  21 children on Thursday, the latest violent spasm in Sudan’s civil war.`\
-https://nytimes.com/2025/05/02/world/africa/sudan-war-atrocity.html
-
-**Scoop City: Projecting Week 1 rookie starters in the NFC**\
-`Which rookies should start in Week 1? A look at the full NFC picture, plus thoughts from league execs`\
-https://nytimes.com/athletic/6329878/2025/05/02/nfc-starting-rookies-2025-projection-scoop-city/
 
