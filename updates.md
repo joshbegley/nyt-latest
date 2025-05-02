@@ -1,3 +1,11 @@
+**Wisconsin Governor Says He’s ‘Not Afraid’ After Warning on Immigration Policies**\
+`Thomas Homan, the border czar, had said, “Wait to see what’s coming,” when asked about guidance sent to state workers about interacting with ICE agents.`\
+https://nytimes.com/2025/05/02/us/wisconsin-governor-tony-evers-homan.html
+
+**What’s Behind the Major Delays Snarling Newark Airport?**\
+`Staffing shortages at an air traffic control center have added to the effects of a runway closure, prompting United Airlines to cut flights at the hub.`\
+https://nytimes.com/2025/05/02/travel/newark-airport-flight-delays.html
+
 **Out at the E.P.A.: Independent Scientists. In: Approving New Chemicals.**\
 `The Environmental Protection Agency’s administrator, Lee Zeldin, announced the agency was “shifting its scientific expertise.”`\
 https://nytimes.com/2025/05/02/us/politics/trump-epa-cuts.html

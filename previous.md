@@ -1,3 +1,11 @@
+**Wisconsin Governor Says He’s ‘Not Afraid’ After Warning on Immigration Policies**\
+`Thomas Homan, the border czar, had said, “Wait to see what’s coming,” when asked about guidance sent to state workers about interacting with ICE agents.`\
+https://nytimes.com/2025/05/02/us/wisconsin-governor-tony-evers-homan.html
+
+**What’s Behind the Major Delays Snarling Newark Airport?**\
+`Staffing shortages at an air traffic control center have added to the effects of a runway closure, prompting United Airlines to cut flights at the hub.`\
+https://nytimes.com/2025/05/02/travel/newark-airport-flight-delays.html
+
 **Out at the E.P.A.: Independent Scientists. In: Approving New Chemicals.**\
 `The Environmental Protection Agency’s administrator, Lee Zeldin, announced the agency was “shifting its scientific expertise.”`\
 https://nytimes.com/2025/05/02/us/politics/trump-epa-cuts.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/02/arts/music/mike-peters-frontman-of-the-alarm-is-d
 **Former Weather Service Leaders Warn Staffing Cuts Could Lead to ‘Loss of Life’**\
 `The former agency directors say current employees will face an “impossible task” to maintain service just as hurricane season begins.`\
 https://nytimes.com/2025/05/02/weather/nws-staffing-cuts-trump.html
-
-**Here’s What Happened in Karen Read’s Murder Trial This Week**\
-`Ms. Read’s retrial on charges that she killed her boyfriend, a Boston police officer, has so far largely resembled her first, which ended in a mistrial.`\
-https://nytimes.com/2025/05/02/us/karen-read-murder-trial-takeaways.html
-
-**Was It All a Meme?**\
-`What Elon Musk’s retreat from Washington means for his government-slashing project.`\
-https://nytimes.com/2025/05/02/us/politics/elon-musk-trump-doge.html
 
