@@ -1,3 +1,23 @@
+**Opening Line: Most intriguing wagers in the weekend's biggest games**\
+`The most intriguing bets from some of the weekend's biggest sporting events, including the Kentucky Derby.`\
+https://nytimes.com/athletic/6329351/2025/05/02/opening-line-rockets-warriors-kentucky-derby-chelsea-liverpool/
+
+**Fantasy baseball waiver wire pickups featuring Ryan Gusto, Gunnar Hoglund and more**\
+`John Laghezza crunches the advanced metrics to surface the best waiver options in fantasy baseball, with Ryan Gusto a standout this week.`\
+https://nytimes.com/athletic/6324486/2025/05/02/fantasy-baseball-waiver-wire-pickups-gusto-hoglund-mckinstry/
+
+**When Deportation Occurs Without Trials**\
+`Readers argue for due process for migrants, and everyone else. Also: Harvard’s defiance; cuts to Meals on Wheels.`\
+https://nytimes.com/2025/05/02/opinion/deportation-due-process.html
+
+**The Satchel: Much ado about Brandon Beane's draft, wide receivers, and more**\
+`GM Brandon Beane and the Bills' wide receivers are all the talk these days.`\
+https://nytimes.com/athletic/6328884/2025/05/02/bills-mailbag-brandon-beane-nfl-draft-wr-questions/
+
+**Funds for Low-Income Students Are on the Chopping Block in Trump’s Budget**\
+`The proposal seeks a cut of nearly 25 percent from the Title I budget for high-poverty schools at a time when the rate of children living in poverty in America is on the rise.`\
+https://nytimes.com/2025/05/02/us/politics/trump-budget-education-cuts.html
+
 **Illinois Man Sentenced to 53 Years in Prison in Killing of Palestinian American Boy**\
 `A jury in suburban Chicago convicted the man of murder and hate crime charges in the 2023 killing of Wadee Alfayoumi, 6. He was the boy’s landlord.`\
 https://nytimes.com/2025/05/02/us/illinois-hate-crime-sentencing.html
