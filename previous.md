@@ -1,3 +1,15 @@
+**The Poetry Challenge Day 5: We’ve learned a poem this week. Now it’s yours.**\
+`We’ve reached the last stanza of our adventure in verse. Now it’s time to show off what you’ve learned. As a bonus: our critic on why memorizing a poem is as much about what you forget.`\
+https://nytimes.com/interactive/2025/books/edna-st-vincent-millay-poetry.html
+
+**Russell Brand to Appear in Court Accused of Rape**\
+`The comedian, actor and YouTuber will attend a London courtroom on Friday for the first stage of what could be lengthy criminal proceedings.`\
+https://nytimes.com/2025/05/01/arts/russell-brand-uk-court-rape-charges.html
+
+**Concrete Example of Rotational Forces and Fluid Dynamics**\
+`Wishing you all a very happy Robyn Weintraub Friday!`\
+https://nytimes.com/2025/05/01/crosswords/daily-puzzle-2025-05-02.html
+
 **Lakers must 'get into championship shape,' coach JJ Redick says**\
 `The Lakers coach wants to see his team get bigger and fitter in the offseason, but everything will start with LeBron James.`\
 https://nytimes.com/athletic/6327936/2025/05/01/lakers-redick-championship-shape/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/01/upshot/movies-shows-tax-credits-new-york.html
 **Rudy Gobert's 'absurd' performance. Plus, who would the Wolves rather face?**\
 `On NBA Daily, we discuss the Timberwolves' 4-1 series win over the Lakers in the first round.`\
 https://nytimes.com/athletic/6326361/2025/05/01/nba-daily-rudy-gobert-wolves-lakers/
-
-**Federal Report Denounces Gender Treatments for Adolescents**\
-`The H.H.S. review may set the stage for additional restrictions on gender-affirming care. Critics described it as an ideological statement.`\
-https://nytimes.com/2025/05/01/health/federal-report-denounces-gender-treatments-for-adolescents.html
-
-**Fan who fell in Pirates-Cubs game identified as local Pennsylvania man**\
-`The fan remains at the hospital after falling from the stands at PNC Park in Wednesday's Pirates-Cubs game.`\
-https://nytimes.com/athletic/6327858/2025/05/01/pirates-fan-identified-fall/
-
-**Marco Rubio, Secretary of Everything**\
-`The former senator from Florida is now the head of four government bodies. He has outdone Henry Kissinger and even Xi Jinping, China’s leader, who has only three titles.`\
-https://nytimes.com/2025/05/01/us/politics/marco-rubio-national-security-secretary-state.html
 

@@ -1,3 +1,15 @@
+**The Poetry Challenge Day 5: We’ve learned a poem this week. Now it’s yours.**\
+`We’ve reached the last stanza of our adventure in verse. Now it’s time to show off what you’ve learned. As a bonus: our critic on why memorizing a poem is as much about what you forget.`\
+https://nytimes.com/interactive/2025/books/edna-st-vincent-millay-poetry.html
+
+**Russell Brand to Appear in Court Accused of Rape**\
+`The comedian, actor and YouTuber will attend a London courtroom on Friday for the first stage of what could be lengthy criminal proceedings.`\
+https://nytimes.com/2025/05/01/arts/russell-brand-uk-court-rape-charges.html
+
+**Concrete Example of Rotational Forces and Fluid Dynamics**\
+`Wishing you all a very happy Robyn Weintraub Friday!`\
+https://nytimes.com/2025/05/01/crosswords/daily-puzzle-2025-05-02.html
+
 **Lakers must 'get into championship shape,' coach JJ Redick says**\
 `The Lakers coach wants to see his team get bigger and fitter in the offseason, but everything will start with LeBron James.`\
 https://nytimes.com/athletic/6327936/2025/05/01/lakers-redick-championship-shape/
