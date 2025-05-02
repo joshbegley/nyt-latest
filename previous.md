@@ -1,3 +1,15 @@
+**Science Backers Say Proposed Science Cuts Pose Dire Risks**\
+`One expert said the consequences would be “catastrophic” if Congress enacts the White House agenda of sweeping budget cuts.`\
+https://nytimes.com/live/2025/05/02/us/trump-budget-2026/science-backers-say-proposed-science-cuts-pose-dire-risks
+
+**Former Abercrombie C.E.O. Ruled Unfit to Stand Trial for Sex Trafficking**\
+`Michael S. Jeffries had been accused of luring male models to secret sex parties. He has dementia, and a judge ruled him to be “mentally incompetent.”`\
+https://nytimes.com/2025/05/02/nyregion/abercrombie-jeffries-unfit-to-stand-trial.html
+
+**The Best Movies and TV Shows Coming to Netflix in May**\
+`A new comedy cocreated by Tina Fey and another from Tom Segura are among the highlights debuting this month.`\
+https://nytimes.com/2025/05/02/arts/television/netflix-new-may.html
+
 **My Husband Fears Political Violence. Should We Buy a Gun?**\
 `The magazine’s Ethicist columnist on whether to purchase a weapon now to protect against future potential threats.`\
 https://nytimes.com/2025/05/02/magazine/politics-gun-ownership-ethics.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/02/us/politics/vietnam-veterans-memorial-reader-resp
 **U.S. sprinter Kerley charged with battery ahead of Grand Slam Track meet**\
 `Kerley was previously arrested in Miami Beach, Fla., in January following a confrontation with police.`\
 https://nytimes.com/athletic/6329787/2025/05/02/fred-kerley-arrest-miami-grand-slam-track/
-
-**Temu Stops Shipping Products From China to U.S. Customers**\
-`The e-commerce site acted after the Trump administration said it would close a loophole that allowed low-cost Chinese-made items to enter the U.S. without import fees.`\
-https://nytimes.com/2025/05/02/us/politics/temu-shipping-china-tariffs.html
-
-**What (Actually) Brings Teens Joy?**\
-`We asked dozens of them about where they find tiny doses of happiness.`\
-https://nytimes.com/2025/05/02/magazine/teens-teenagers-happiness-joy.html
-
-**LeBron James sprained MCL in Lakers' Game 5 vs. Timberwolves**\
-`The injury seemingly occurred with 8:39 left in the fourth quarter when James collided with Timberwolves guard Donte DiVincenzo.`\
-https://nytimes.com/athletic/6329974/2025/05/02/lakers-lebron-james-mcl-sprain-game-5-timberwolves/
 

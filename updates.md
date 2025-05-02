@@ -1,3 +1,15 @@
+**Science Backers Say Proposed Science Cuts Pose Dire Risks**\
+`One expert said the consequences would be “catastrophic” if Congress enacts the White House agenda of sweeping budget cuts.`\
+https://nytimes.com/live/2025/05/02/us/trump-budget-2026/science-backers-say-proposed-science-cuts-pose-dire-risks
+
+**Former Abercrombie C.E.O. Ruled Unfit to Stand Trial for Sex Trafficking**\
+`Michael S. Jeffries had been accused of luring male models to secret sex parties. He has dementia, and a judge ruled him to be “mentally incompetent.”`\
+https://nytimes.com/2025/05/02/nyregion/abercrombie-jeffries-unfit-to-stand-trial.html
+
+**The Best Movies and TV Shows Coming to Netflix in May**\
+`A new comedy cocreated by Tina Fey and another from Tom Segura are among the highlights debuting this month.`\
+https://nytimes.com/2025/05/02/arts/television/netflix-new-may.html
+
 **My Husband Fears Political Violence. Should We Buy a Gun?**\
 `The magazine’s Ethicist columnist on whether to purchase a weapon now to protect against future potential threats.`\
 https://nytimes.com/2025/05/02/magazine/politics-gun-ownership-ethics.html
