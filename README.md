@@ -1,3 +1,7 @@
+**Once Banished From Trump’s White House, Zelensky Has New Hope**\
+`In his zigzagging approach to ending the war in Ukraine, President Trump has shifted his frustration — for now — from Ukraine’s leader to Vladimir Putin.`\
+https://nytimes.com/2025/05/01/us/politics/trump-ukraine-russia-zelensky.html
+
 **When Taxpayers Fund Shows Like ‘Blue Bloods’ and ‘S.N.L.,’ Does It Pay Off?**\
 `Gov. Kathy Hochul of New York has proposed an increase in the film tax credit to stay competitive with New Jersey and other states.`\
 https://nytimes.com/2025/05/01/upshot/movies-shows-tax-credits-new-york.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/01/us/migrant-girl-death-cbp-damages.html
 **Brady tells Birmingham fans to 'show up' for title clash vs Kang's London City Lionesses**\
 `London City Lionesses lead the Women's Championship promotion race with 42 points to Birmingham's 40 ahead of the final day of the season.`\
 https://nytimes.com/athletic/6327680/2025/05/01/tom-brady-birmingham-women-london-city/
-
-**Postecoglou: Maddison, Solanke injuries not serious; Bergvall to be assessed**\
-`Bergvall was not in Spurs' matchday squad on Thursday, while Maddison and Solanke were withdrawn in the second half.`\
-https://nytimes.com/athletic/6327762/2025/05/01/maddison-solanke-bergvall-injury-update/
 
