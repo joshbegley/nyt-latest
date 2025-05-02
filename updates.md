@@ -1,3 +1,7 @@
+**Slot to rotate Liverpool squad for final league games**\
+`Liverpool have four games remaining, starting with a trip to Stamford Bridge on Sunday to face Champions League-chasing Chelsea.`\
+https://nytimes.com/athletic/6328737/2025/05/02/liverpool-team-news-rotation-arne-slot/
+
 **There’s Never Been a Pope From the U.S. Could This Cardinal Change That?**\
 `Cardinal Robert Francis Prevost, a native of Chicago, has spent the bulk of his career outside the United States. Supporters say he represents a “dignified middle of the road.”`\
 https://nytimes.com/2025/05/02/world/asia/pope-candidate-cardinal-robert-francis-prevost.html
