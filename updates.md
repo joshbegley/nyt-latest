@@ -1,3 +1,15 @@
+**The U.S. and Maine reached a deal to restore funds frozen over feud on transgender athletes.**\
+`By Tim Balk`\
+https://nytimes.com/live/2025/05/02/us/trump-news/the-us-and-maine-reached-a-deal-to-restore-funds-frozen-over-feud-on-transgender-athletes
+
+**Iowa State DC's son among 5 staffers suspended by NCAA for sports betting**\
+`Four of the staffers — none of whom currently work at Iowa State — also wagered on Cyclones’ men’s and women’s basketball games.`\
+https://nytimes.com/athletic/6330108/2025/05/02/iowa-state-betting-ncaa-suspensions/
+
+**Cadillac F1 team confirms no drivers signed ahead of Miami launch event**\
+`"My phone has become very busy," says F1's newest team principal as Cadillac continues talks with drivers`\
+https://nytimes.com/athletic/6330099/2025/05/02/f1-cadillac-driver-update-miami-grand-prix-sergio-perez/
+
 **Wild GM Bill Guerin’s offseason checklist: Extend Kaprizov, decide on Rossi, be smart in free agency**\
 `Fixing the team's handling of young players is another top priority this summer after a first-round exit at the hands of the Golden Knights.`\
 https://nytimes.com/athletic/6330003/2025/05/02/wild-offseason-priorities-kaprizov-rossi/
