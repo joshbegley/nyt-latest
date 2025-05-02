@@ -1,3 +1,7 @@
+**Gregg Popovich stepping down as Spurs coach to become team president: Sources**\
+`Popovich, 76, suffered a mild stroke in early November which forced him to cede coaching duties to assistant Mitch Johnson.`\
+https://nytimes.com/athletic/6329540/2025/05/02/gregg-popovich-spurs-coach-steps-down-team-president/
+
 **Yankees' injury woes continue as Jazz Chisholm Jr. heads to IL**\
 `The move was retroactive to Wednesday when Chisholm Jr. suffered the injury on a swing vs. the Baltimore Orioles on Tuesday.`\
 https://nytimes.com/athletic/6329440/2025/05/02/yankees-jazz-chisholm-jr-injury-il/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/02/science/deep-ocean-volcanic-eruption-pacific.html
 **Universal Antivenom May Grow Out of Man Who Let Snakes Bite Him Hundreds of Times**\
 `Scientists identified antibodies that neutralized the poison in whole or in part from the bites of cobras, mambas and other deadly species.`\
 https://nytimes.com/2025/05/02/health/snakes-universal-antivenom-tim-friede.html
-
-**Galleries, and Collectors, See Chances to Connect at Frieze New York**\
-`“There’s no getting around it,” one exhibitor said. “More people will see a work at a fair in three or four days than will come into your gallery in 10 years.”`\
-https://nytimes.com/2025/05/02/arts/design/frieze-new-york-galleries.html
 

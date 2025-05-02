@@ -1,3 +1,7 @@
+**Gregg Popovich stepping down as Spurs coach to become team president: Sources**\
+`Popovich, 76, suffered a mild stroke in early November which forced him to cede coaching duties to assistant Mitch Johnson.`\
+https://nytimes.com/athletic/6329540/2025/05/02/gregg-popovich-spurs-coach-steps-down-team-president/
+
 **Yankees' injury woes continue as Jazz Chisholm Jr. heads to IL**\
 `The move was retroactive to Wednesday when Chisholm Jr. suffered the injury on a swing vs. the Baltimore Orioles on Tuesday.`\
 https://nytimes.com/athletic/6329440/2025/05/02/yankees-jazz-chisholm-jr-injury-il/
