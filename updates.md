@@ -1,3 +1,7 @@
+**I Was Detained for My Beliefs. Who Will Be Next?**\
+`Detained at his citizenship interview, the Columbia student Mohsen Mahdawi speaks of his ordeal.`\
+https://nytimes.com/2025/05/02/opinion/mohsen-mahdawi-ice-detention.html
+
 **Voting in a Fraught World, Australians Focus on Cost-of-Living Concerns**\
 `Voters will decide who can turn Australia around from the throes of inflation and a housing crisis, and navigate relations with a volatile Washington.`\
 https://nytimes.com/2025/05/02/world/asia/australia-prime-minister-election.html
