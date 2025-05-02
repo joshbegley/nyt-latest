@@ -1,3 +1,11 @@
+**Out at the E.P.A.: Independent Scientists. In: Approving New Chemicals.**\
+`The Environmental Protection Agency’s administrator, Lee Zeldin, announced the agency was “shifting its scientific expertise.”`\
+https://nytimes.com/2025/05/02/us/politics/trump-epa-cuts.html
+
+**Trump’s Order Targeting Law Firm Perkins Coie Is Unconstitutional, Judge Rules**\
+`The decision marked the first time a federal judge permanently blocked the Trump administration from enforcing an order to punish law firms he opposes politically.`\
+https://nytimes.com/2025/05/02/us/politics/trump-law-firms.html
+
 **C.I.A. to Cut More Than 1,000 Positions Over Several Years**\
 `The agency plans, for now, to use attrition, including retirements and voluntary resignations, to reduce the size of the C.I.A. instead of more mass firings.`\
 https://nytimes.com/2025/05/02/us/politics/trump-cia-cuts.html
