@@ -1,3 +1,11 @@
+**Trump Labels Haiti’s Powerful Gangs as Terrorists**\
+`The move will enable harsh sanctions on the gangs, which control important sectors of the country’s economy, and anybody that does business with them.`\
+https://nytimes.com/2025/05/02/world/americas/trump-haiti-gangs-terrorists.html
+
+**NBA playoff trends I’m watching: Timberwolves' cohesiveness, Cavaliers' pull-up shooting**\
+`The Pistons should feel good about the important learning experience they got in the first round.`\
+https://nytimes.com/athletic/6329356/2025/05/02/nba-playoff-trends-im-watching-wolves-cohesiveness-cavaliers-pull-up-shooting-and-more/
+
 **U.S. Wants to Break Up Google’s Advertising Technology**\
 `In a hearing on Friday, lawyers for the Justice Depart. indicated the government would double down on its requests to break up the tech giant’s business.`\
 https://nytimes.com/2025/05/02/technology/google-advertising-technology-hearing.html
