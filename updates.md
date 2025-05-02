@@ -1,3 +1,23 @@
+**Why the new tighter strike zone may impact Patrick Bailey and the Giants more than most**\
+`Bailey is the game's best strike-stealer. With the "buffer" zone shrinking, his framing skills could be mitigated. `\
+https://nytimes.com/athletic/6327719/2025/05/02/sf-giants-smaller-strike-zone-patrick-bailey/
+
+**F1 teenager Kimi Antonelli claims shock Miami sprint race pole for Mercedes**\
+`Antonelli is the youngest driver to head a race grid in F1 history in any format.`\
+https://nytimes.com/athletic/6330162/2025/05/02/kimi-antonelli-miami-gp-pole-mercedes/
+
+**Trump Asks Supreme Court to Let DOGE View Social Security Data**\
+`A federal judge in Maryland found that scrutiny of the agency’s sensitive information systems by Elon Musk’s team appeared to violate federal privacy laws.`\
+https://nytimes.com/2025/05/02/us/supreme-court-doge-social-security.html
+
+**Trump Proposed Slashing $163 Billion in Spending**\
+`Also, universal antivenom may grow out of a Wisconsin man. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/05/02/briefing/trump-spending-proposal-china-us-tariffs.html
+
+**The U.S. and Maine Reach Deal to Restore Funds in Feud on Transgender Athletes**\
+`The state’s attorney general said the federal dollars paid for food for schoolchildren and other essential services.`\
+https://nytimes.com/2025/05/02/us/politics/trump-maine-funding-freeze-trans-athletes.html
+
 **The U.S. and Maine reached a deal to restore funds frozen over feud on transgender athletes.**\
 `By Tim Balk`\
 https://nytimes.com/live/2025/05/02/us/trump-news/the-us-and-maine-reached-a-deal-to-restore-funds-frozen-over-feud-on-transgender-athletes
