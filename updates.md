@@ -1,3 +1,11 @@
+**A Longtime Art Dealer Looks Back**\
+`Arne Glimcher reflects on 65 years of Pace Gallery in a changed art world.`\
+https://nytimes.com/2025/05/02/arts/design/art-pace-gallery-glimcher.html
+
+**Watch: Why Wrexham are well set to compete financially in the Championship**\
+`The Athletic FC Podcast discuss how Wrexham’s impressive turnover figures will give them a solid foundation to compete in the Championship.`\
+https://nytimes.com/athletic/6327080/2025/05/02/athletic-fc-podcast-wrexham-promotion-championship/
+
 **Lumi Tan on How She Plans Frieze New York’s Focus Program**\
 `The curator had to choose from a large array of submissions for this year’s Focus, which features emerging artists and galleries.`\
 https://nytimes.com/2025/05/02/arts/design/lumi-tan-frieze-new-york-focus.html
