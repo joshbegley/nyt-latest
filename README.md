@@ -1,3 +1,7 @@
+**South Korea Lurches From One Political Crisis to Another**\
+`In five months, the country has had three acting presidents after the leader who imposed martial law was impeached. And now doubts cloud the coming election.`\
+https://nytimes.com/2025/05/02/world/asia/south-koreas-political-crisis.html
+
 **NHL playoffs daily: Leafs, Knights, Oilers advance; Avs take Stars to Game 7**\
 `Here are the key takeaways from four NHL playoff games Thursday night.`\
 https://nytimes.com/athletic/6327897/2025/05/02/nhl-playoffs-daily-round-1-score-results/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/05/02/insider/times-editing-game-show.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/05/02/crosswords/spelling-bee-forum.html
-
-**Athletic Club's Europa League dream was shredded in 15 mad minutes - so what now?**\
-`The pain of their Europa League semi-final defeat will be severe but Athletic Club's players cannot afford to wallow`\
-https://nytimes.com/athletic/6320439/2025/05/02/athletic-club-bilbao-europa-league-final/
 
