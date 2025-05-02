@@ -1,3 +1,15 @@
+**This Is the Moment for Mexican Indian Food to Flourish**\
+`A new generation of restaurants is pushing the overlooked cuisine forward.`\
+https://nytimes.com/2025/05/02/dining/mexican-indian-food-fusion.html
+
+**Canada’s Prime Minister to Visit Trump Amid Trade Battle**\
+`Prime Minister Mark Carney, who will make his first visit to Washington since his election, said President Trump’s call to annex Canada as the 51st state would not be on the table.`\
+https://nytimes.com/2025/05/02/world/canada/mark-carney-trump-visit-tariffs.html
+
+**Canada’s Prime Minister Will Meet With Trump Amid Trade War**\
+`Prime Minister Mark Carney said that he will visit Washington to discuss the economic relationship between the U.S. and Canada. He also announced that King Charles will visit Canada later this month.`\
+https://nytimes.com/video/world/canada/100000010143577/canada-carney-trump-king-charles.html
+
 **Kennedy Orders Search for New Measles Treatments Instead of Urging Vaccination**\
 `Decades of research have turned up no miracle treatment for measles, but studies show the M.M.R. shot is 97 percent effective in preventing the disease.`\
 https://nytimes.com/2025/05/02/health/measles-treatments-vaccines-kennedy.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/02/climate/climate-superfund-law-vermont-new-york-la
 **PSG to take civil action after alleged racist abuse from fans after Arsenal game**\
 `PSG will work alongside SOS Racisme, an international movement of anti-racist non-governmental organisations.`\
 https://nytimes.com/athletic/6328967/2025/05/02/arsenal-psg-alleged-racist-abuse/
-
-**Stocks on Track to Erase Losses From April Tariff Chaos**\
-`Wall Street has recovered from April’s sharp sell-off, buoyed by hope for trade talks. But the economic fallout from President Trump’s policies still has investors on edge.`\
-https://nytimes.com/2025/05/02/business/stock-market-recovery-trump-tariffs.html
-
-**Prospect Blade Tidwell to debut for Mets on Sunday: Source**\
-`Tidwell, 23, will be making his major-league debut as part of the Mets' six-man rotation. He was a 2022 second-round pick.`\
-https://nytimes.com/athletic/6329852/2025/05/02/blade-tidwell-mets-mlb-debut/
-
-**An Archive of Black Resistance, in Dispatches From Bookstores**\
-`Katie Mitchell’s photo book “Prose to the People” visits stores around the United States, from the 19th century to today.`\
-https://nytimes.com/2025/05/02/books/review/prose-to-the-people-katie-mitchell.html
 
