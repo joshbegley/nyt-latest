@@ -1,3 +1,15 @@
+**For the U.S. and China, the Only Talking Is About Whether to Talk**\
+`The standoff over terms of negotiations, and whether they are happening, signals that a protracted economic fight lies ahead.`\
+https://nytimes.com/2025/05/02/us/politics/us-china-trade-tariffs-talks.html
+
+**What I'm hearing about the Penguins' first coaching search in a decade**\
+`The Penguins coaching search is expected to move slowly, but we're already hearing some whispers.`\
+https://nytimes.com/athletic/6328011/2025/05/02/penguins-coaching-search-nhl/
+
+**Prince Harry Loses Latest Court Battle Over His Security in the U.K.**\
+`The downgrading of Harry’s automatic police protection after he stepped back from royal duties was a “sensible” decision, the Court of Appeal said Friday.`\
+https://nytimes.com/2025/05/02/world/europe/prince-harry-security-uk-court.html
+
 **In Texas Borderland, Trump’s Immigration Push Suffers Its Worst Legal Defeat Yet**\
 `Judge Fernando Rodriguez Jr. is a Trump nominee with conservative credentials. But he found White House claims about a Venezuelan gang “invasion” went too far.`\
 https://nytimes.com/2025/05/02/us/politics/trump-deportees-texas.html
