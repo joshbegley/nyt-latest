@@ -1,3 +1,7 @@
+**David Raya, William Saliba, and Arsenal's recent positioning issue**\
+`Vinicius Junior and Jean-Philippe Mateta have both taken advantage recently of rare slackness in Arsenal's build-up play`\
+https://nytimes.com/athletic/6326033/2025/05/02/arsenal-raya-saliba-positioning-passing/
+
 **Liverpool's summer transfer plans: What we're hearing**\
 `Arne Slot's squad may be champions but this still promises to be a very busy summer at Anfield`\
 https://nytimes.com/athletic/6323284/2025/05/02/liverpool-transfers-summer-plans/

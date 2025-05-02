@@ -1,3 +1,7 @@
+**David Raya, William Saliba, and Arsenal's recent positioning issue**\
+`Vinicius Junior and Jean-Philippe Mateta have both taken advantage recently of rare slackness in Arsenal's build-up play`\
+https://nytimes.com/athletic/6326033/2025/05/02/arsenal-raya-saliba-positioning-passing/
+
 **Liverpool's summer transfer plans: What we're hearing**\
 `Arne Slot's squad may be champions but this still promises to be a very busy summer at Anfield`\
 https://nytimes.com/athletic/6323284/2025/05/02/liverpool-transfers-summer-plans/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6323386/2025/05/02/newcastle-united-premier-league-
 **How Barca could win a treble of trebles across men's, women's, youth teams**\
 `Hansi Flick's team are not the only ones hoping to lift a treble for Barca this season, as we break down here...`\
 https://nytimes.com/athletic/6326641/2025/05/02/barcelona-treble-champions-league/
-
-**Why is Scott McTominay playing so well (and scoring so many goals) at Napoli?**\
-`Antonio Conte has embraced pragmatism this season to get the best out of his squad — and McTominay is one of the chief beneficiaries  `\
-https://nytimes.com/athletic/6320224/2025/05/02/scott-mctominay-napoli-analysis/
 
