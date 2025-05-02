@@ -1,3 +1,15 @@
+**Twins takeaways: In familiar fashion, Minnesota falls in another Cleveland walk-off**\
+`Run-scoring singles by José Ramírez and Angel Martínez lifted the Guardians to a 4-3 victory over the Twins in 10 innings.`\
+https://nytimes.com/athletic/6328077/2025/05/01/twins-lose-guardians-another-walk-off/
+
+**New Suns GM Brian Gregory, owner Mat Ishbia's shared past is impossible to ignore**\
+`For an owner known for making major splashes (trading for Kevin Durant, Bradley Beal), this was an amazing reversal. But will it work?`\
+https://nytimes.com/athletic/6327971/2025/05/01/phoenix-suns-gm-brian-gregory-mat-ishbia/
+
+**Golden Knights' top players come through to eliminate Wild in Game 6: Takeaways**\
+`Vegas never trailed and got a big game from captain Mark Stone in a 3-2 victory.`\
+https://nytimes.com/athletic/6328212/2025/05/01/wild-golden-knights-game-6/
+
 **Charles Koch Says Many in the Country Are ‘Abandoning’ Its Principles**\
 `In a rare appearance on Thursday to receive an award from the Cato Institute, Mr. Koch made oblique references to President Trump and his tariffs, without mentioning his name.`\
 https://nytimes.com/2025/05/01/us/politics/charles-koch-trump-republicans-tariffs.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6328105/2025/05/01/mlb-umpire-strike-zone-buffer-zo
 **Leafs finally oust Senators, move on to Round 2: Game 6 takeaways**\
 `With a 4-2 win, highlighted by a late third-period goal by Max Pacioretty, the Leafs closed out the Battle of Ontario.`\
 https://nytimes.com/athletic/6327757/2025/05/01/maple-leafs-senators-game-6-nhl-playoffs/
-
-**Trump Officials Say Ex-Leader of Cybersecurity Agency Is Under Investigation**\
-`The disclosure came three weeks after President Trump directed the Justice Department to investigate the former agency leader, Chris Krebs, in an act of score settling.`\
-https://nytimes.com/2025/05/01/us/politics/trump-chris-krebs.html
-
-**Once Banished From Trump’s White House, Zelensky Has New Hope**\
-`In his zigzagging approach to ending the war in Ukraine, President Trump has shifted his frustration — for now — from Ukraine’s leader to Vladimir Putin.`\
-https://nytimes.com/2025/05/01/us/politics/trump-ukraine-russia-zelensky.html
-
-**When Taxpayers Fund Shows Like ‘Blue Bloods’ and ‘S.N.L.,’ Does It Pay Off?**\
-`Gov. Kathy Hochul of New York has proposed an increase in the film tax credit to stay competitive with New Jersey and other states.`\
-https://nytimes.com/2025/05/01/upshot/movies-shows-tax-credits-new-york.html
 

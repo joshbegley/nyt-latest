@@ -1,3 +1,15 @@
+**Twins takeaways: In familiar fashion, Minnesota falls in another Cleveland walk-off**\
+`Run-scoring singles by José Ramírez and Angel Martínez lifted the Guardians to a 4-3 victory over the Twins in 10 innings.`\
+https://nytimes.com/athletic/6328077/2025/05/01/twins-lose-guardians-another-walk-off/
+
+**New Suns GM Brian Gregory, owner Mat Ishbia's shared past is impossible to ignore**\
+`For an owner known for making major splashes (trading for Kevin Durant, Bradley Beal), this was an amazing reversal. But will it work?`\
+https://nytimes.com/athletic/6327971/2025/05/01/phoenix-suns-gm-brian-gregory-mat-ishbia/
+
+**Golden Knights' top players come through to eliminate Wild in Game 6: Takeaways**\
+`Vegas never trailed and got a big game from captain Mark Stone in a 3-2 victory.`\
+https://nytimes.com/athletic/6328212/2025/05/01/wild-golden-knights-game-6/
+
 **Charles Koch Says Many in the Country Are ‘Abandoning’ Its Principles**\
 `In a rare appearance on Thursday to receive an award from the Cato Institute, Mr. Koch made oblique references to President Trump and his tariffs, without mentioning his name.`\
 https://nytimes.com/2025/05/01/us/politics/charles-koch-trump-republicans-tariffs.html
