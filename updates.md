@@ -1,3 +1,15 @@
+**Sir Jim Ratcliffe's INEOS exploring sale of Ligue 1 club Nice**\
+`INEOS purchased Nice in 2019 and acquired a minority stake in Manchester United in February 2024.`\
+https://nytimes.com/athletic/6327445/2025/05/02/ineos-jim-ratcliffe-nice-sale/
+
+**Trump Administration Live Updates: President Vows to Defund PBS and NPR**\
+``\
+https://nytimes.com/live/2025/05/02/us/trump-news
+
+**TikTok Fined $600 Million for Sending European User Data to China**\
+`Irish investigators said TikTok did not protect the data of users in the European Union, improperly transferring some of it to China. TikTok said it would appeal.`\
+https://nytimes.com/2025/05/02/business/tiktok-eu-data-china.html
+
 **The nine Premier League teams most likely to qualify for Europe next season – and who else can do it**\
 `Breaking down all the European qualification permutations — including why the battle for eighth place in the Premier League is now on `\
 https://nytimes.com/athletic/6328680/2025/05/02/premier-league-european-qualification-man-utd-chelsea/
