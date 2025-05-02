@@ -1,8 +1,12 @@
+**Attacks on Judges Undermine Democracy, Warns Justice Jackson**\
+`Speaking to a judicial conference, the Supreme Court justice said attacks were designed to intimidate and influence.`\
+https://nytimes.com/2025/05/01/us/politics/supreme-court-justice-jackson.html
+
 **Twins takeaways: In familiar fashion, Minnesota falls in another Cleveland walk-off**\
 `Run-scoring singles by José Ramírez and Angel Martínez lifted the Guardians to a 4-3 victory over the Twins in 10 innings.`\
 https://nytimes.com/athletic/6328077/2025/05/01/twins-lose-guardians-another-walk-off/
 
-**New Suns GM Brian Gregory, owner Mat Ishbia's shared past is impossible to ignore**\
+**New Suns GM Brian Gregory, owner Mat Ishbia's shared past impossible to ignore**\
 `For an owner known for making major splashes (trading for Kevin Durant, Bradley Beal), this was an amazing reversal. But will it work?`\
 https://nytimes.com/athletic/6327971/2025/05/01/phoenix-suns-gm-brian-gregory-mat-ishbia/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6327936/2025/05/01/lakers-redick-championship-shape
 **MLB made a change that players say shrank the strike zone — and caught them by surprise**\
 `An adjustment in how umpires are graded has impacted ball-strike calls during the season’s first month, leaving players to adapt on the fly.`\
 https://nytimes.com/athletic/6328105/2025/05/01/mlb-umpire-strike-zone-buffer-zone-change/
-
-**Leafs finally oust Senators, move on to Round 2: Game 6 takeaways**\
-`With a 4-2 win, highlighted by a late third-period goal by Max Pacioretty, the Leafs closed out the Battle of Ontario.`\
-https://nytimes.com/athletic/6327757/2025/05/01/maple-leafs-senators-game-6-nhl-playoffs/
 

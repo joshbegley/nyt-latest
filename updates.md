@@ -1,3 +1,11 @@
+**Attacks on Judges Undermine Democracy, Warns Justice Jackson**\
+`Speaking to a judicial conference, the Supreme Court justice said attacks were designed to intimidate and influence.`\
+https://nytimes.com/2025/05/01/us/politics/supreme-court-justice-jackson.html
+
+**New Suns GM Brian Gregory, owner Mat Ishbia's shared past impossible to ignore**\
+`For an owner known for making major splashes (trading for Kevin Durant, Bradley Beal), this was an amazing reversal. But will it work?`\
+https://nytimes.com/athletic/6327971/2025/05/01/phoenix-suns-gm-brian-gregory-mat-ishbia/
+
 **Twins takeaways: In familiar fashion, Minnesota falls in another Cleveland walk-off**\
 `Run-scoring singles by José Ramírez and Angel Martínez lifted the Guardians to a 4-3 victory over the Twins in 10 innings.`\
 https://nytimes.com/athletic/6328077/2025/05/01/twins-lose-guardians-another-walk-off/
