@@ -1,3 +1,7 @@
+**LeBron James sprained MCL in Lakers' Game 5 vs. Timberwolves**\
+`The injury seemingly occurred with 8:39 left in the fourth quarter when James collided with Timberwolves guard Donte DiVincenzo.`\
+https://nytimes.com/athletic/6329974/2025/05/02/lakers-lebron-james-mcl-sprain-game-5-timberwolves/
+
 **I Was Detained for My Beliefs. Who Will Be Next?**\
 `Detained at his citizenship interview, the Columbia student Mohsen Mahdawi speaks of his ordeal.`\
 https://nytimes.com/2025/05/02/opinion/mohsen-mahdawi-ice-detention.html
