@@ -1,3 +1,11 @@
+**For the U.S. and China, the Only Talking Is About Whether to Talk**\
+`The standoff over terms of negotiations, and whether they are happening, signals that a protracted economic fight lies ahead.`\
+https://nytimes.com/2025/05/02/us/politics/us-china-trade-tariffs-talks.html
+
+**What I'm hearing about the Penguins' first coaching search in a decade**\
+`The Penguins coaching search is expected to move slowly, but we're already hearing some whispers.`\
+https://nytimes.com/athletic/6328011/2025/05/02/penguins-coaching-search-nhl/
+
 **In Texas Borderland, Trump’s Immigration Push Suffers Its Worst Legal Defeat Yet**\
 `Judge Fernando Rodriguez Jr. is a Trump nominee with conservative credentials. But he found White House claims about a Venezuelan gang “invasion” went too far.`\
 https://nytimes.com/2025/05/02/us/politics/trump-deportees-texas.html
@@ -23,18 +31,10 @@ https://nytimes.com/live/2025/05/02/us/trump-budget-2026/heres-the-latest
 https://nytimes.com/live/2025/05/02/us/trump-budget-2026
 
 **Prince Harry Loses Latest Court Battle Over His Security in the U.K.**\
-`The decision is the latest stage in his case against the government over his right to automatic police protection in Britain.`\
+`The downgrading of Harry’s automatic police protection after he stepped back from royal duties was a “sensible” decision, the Court of Appeal said Friday.`\
 https://nytimes.com/2025/05/02/world/europe/prince-harry-security-uk-court.html
 
 **Solid Jobs Report Reinforces Fed’s Patient Approach to Interest Rate Cuts**\
 `The central bank is bracing for President Trump’s tariffs to dent growth while stoking inflation, keeping interest rate cuts at bay for now.`\
 https://nytimes.com/2025/05/02/business/fed-jobs-interest-rates.html
-
-**Trump Says He’s ‘Taking Away’ Harvard’s Tax-Exempt Status**\
-`President Trump first threatened Harvard’s tax status last month. It was not immediately clear if the I.R.S. was in fact moving forward with a change.`\
-https://nytimes.com/2025/05/02/us/politics/trump-harvard-tax-exempt-status.html
-
-**Break a leg: Midge Purce trades her cleats for dancing shoes in 'Chicago' Broadway debut**\
-`The goalscorer is no stranger to the spotlight.`\
-https://nytimes.com/athletic/6328779/2025/05/02/midge-purce-chicago-theater-broadway/
 
