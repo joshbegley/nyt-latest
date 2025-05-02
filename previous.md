@@ -1,40 +1,40 @@
-**What rival evaluators are saying about Yankees prospect George Lombard Jr.'s hot start**\
-`One rival evaluator said he believes Lombard is the Yankees' only untouchable prospect.`\
-https://nytimes.com/athletic/6327209/2025/05/02/yankees-prospect-george-lombard-jr-rival-evaluators/
+**There’s Never Been a Pope From the U.S. Could This Cardinal Change That?**\
+`Cardinal Robert Francis Prevost, a native of Chicago, has spent the bulk of his career outside the United States. Supporters say he represents a “dignified middle of the road.”`\
+https://nytimes.com/2025/05/02/world/asia/pope-candidate-cardinal-robert-francis-prevost.html
 
-**A Pastor of the Poor Skilled in Conflict Resolution**\
-`A possible contender for the papacy, Cardinal Matteo Zuppi has worked with the needy and the disenfranchised, even as he participated in peace talks around the world.`\
-https://nytimes.com/2025/05/02/world/europe/matteo-zuppi-pope-vatican.html
+**After weeks of volatile trading, Friday’s report could set the tone on Wall Street.**\
+`By Joe Rennison and Danielle Kaye`\
+https://nytimes.com/live/2025/05/02/business/jobs-report-april-economy/after-weeks-of-volatile-trading-fridays-report-could-set-the-tone-on-wall-street
 
-**Bills post-draft depth chart: Movement at defensive end, different possibilities at cornerback**\
-`A few of the newest draft picks could challenge for playing time.`\
-https://nytimes.com/athletic/6327289/2025/05/02/bills-depth-chart-nfl-draft-2025/
+**Here’s what to know:**\
+`The labor market has chugged along so far this year. Trade wars now present an imminent threat.`\
+https://nytimes.com/live/2025/05/02/business/jobs-report-april-economy/heres-what-to-know
 
-**Giannis trade proposals: 4 potential deals that pique our interest**\
-`If the two-time MVP hits the market, a few deals are conversation starters. But are they enough to get the job done?`\
-https://nytimes.com/athletic/6328255/2025/05/02/giannis-antetokounmpo-trade-rumors-proposals-bucks/
+**Live Updates: U.S. Job Growth Expected to Have Slowed in April**\
+`Economists expect hiring fell back to 138,000 positions in April, from 228,000 in March. After a month of volatile trading, Wall Street will be scrutinizing the report for signs of restrained growth in the economy.`\
+https://nytimes.com/live/2025/05/02/business/jobs-report-april-economy
 
-**The New York Times International Edition in Print for Saturday, May 3, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/05/02/todays-new-york-times-international-edition
+**Execs unfiltered thoughts on NFL Draft for every NFC team: Giants, Bears get high marks**\
+`The Falcons raised eyebrows for the second consecutive year, the Lions stayed true to form, and the Cowboys and Rams also drew praise.`\
+https://nytimes.com/athletic/6327490/2025/05/02/nfl-draft-2025-nfc-teams-giants-bears/
 
-**How the End of a U.S. Tax Loophole Hurts Chinese Companies**\
-`A loophole that has allowed American shoppers to buy lots of cheap goods from mainland China and Hong Kong without paying tariffs and filling customs forms is closing on Friday. Meaghan Tobin, a correspondent for The New York Times covering business in Asia, explains.`\
-https://nytimes.com/video/world/asia/100000010138010/de-minimis-e-commerce-tax-exemption-explainer.html
+**Q&A: Orlando Magic's Jeff Weltman on adopting 'a win-now approach'**\
+`The Athletic interviewed the Magic's president of basketball operations about the team's offensive woes and adding to the roster. `\
+https://nytimes.com/athletic/6327968/2025/05/02/orlando-magic-jeff-weltman-exclusive-interview/
 
-**Joelinton set to miss rest of Newcastle's season with knee injury**\
-`The 28-year-old missed Newcastle’s Premier League 3-0 win against Ipswich Town last weekend and saw a specialist for assessment.`\
-https://nytimes.com/athletic/6328725/2025/05/02/joelinton-newcastle-injury-update/
+**The Grizzlies' push to contention went sideways. Where do they go from here?**\
+`Going from good to great is hard, and Memphis has proven that over the past couple of years.`\
+https://nytimes.com/athletic/6325032/2025/05/02/memphis-grizzlies-nba-offseason-ja-morant-jaren-jackson/
 
-**Trump vs. the Dollar**\
-`The economist Kenneth Rogoff traces the dollar’s rise — and potential fall.`\
-https://nytimes.com/2025/05/02/opinion/ezra-klein-podcast-kenneth-rogoff.html
+**NFL Draft 2025's best undrafted free agent fits: One player to watch on each roster**\
+`With rookie minicamps getting underway, we take a look at which UDFAs could win roster spots on their new teams.`\
+https://nytimes.com/athletic/6326489/2025/05/02/nfl-draft-2025-undrafted-free-agents-best-prospects/
 
-**An Ancient Key to Happiness**\
-`You have to keep two things in check, say experts`\
-https://nytimes.com/2025/05/02/well/hedonic-eudaemonic-happiness.html
+**The Battle of Ontario is over: Behind the scenes of the Leafs' Round 1 victory**\
+`From their first foray to Kanata to a surprising locker-room ambience after Game 6, an insider view on how the Leafs got it done.`\
+https://nytimes.com/athletic/6328384/2025/05/02/maple-leafs-nhl-playoffs-series-win-behind-scenes/
 
-**Trump vs. the Dollar**\
-`The economist Kenneth Rogoff traces the dollar’s rise — and potential fall.`\
-https://nytimes.com/video/opinion/100000010142399/trump-vs-the-dollar.html
+**First Major White House Shuffle, and Why Online Shopping’s About to Cost More**\
+`Plus, a Friday news quiz.`\
+https://nytimes.com/2025/05/02/podcasts/the-headlines/white-house-online-shopping-michael-waltz-signal-leak-trump.html
 
