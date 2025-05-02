@@ -1,3 +1,23 @@
+**Here’s What Happened in Karen Read’s Murder Trial This Week**\
+`Ms. Read’s retrial on charges that she killed her boyfriend, a Boston police officer, has so far largely resembled her first, which ended in a mistrial.`\
+https://nytimes.com/2025/05/02/us/karen-read-murder-trial-takeaways.html
+
+**Was It All a Meme?**\
+`What Elon Musk’s retreat from Washington means for his government-slashing project.`\
+https://nytimes.com/2025/05/02/us/politics/elon-musk-trump-doge.html
+
+**C.I.A. Fires Top Doctor Targeted by Far-Right Activist**\
+`The director of the agency’s Center for Global Health Services was dismissed a month short of qualifying for full federal retirement benefits, according to a lawsuit.`\
+https://nytimes.com/2025/05/02/us/politics/cia-fires-doctor.html
+
+**Weinstein Accuser Breaks Down in Tears During Intense Cross-Examination**\
+`Miriam Haley and a defense lawyer clashed repeatedly as the disgraced film mogul Harvey Weinstein’s retrial on sex crime charges continued.`\
+https://nytimes.com/2025/05/02/nyregion/cross-examination-harvey-weinstein-miriam-haley.html
+
+**Stephen Mo Hanan, Who Played Three Roles in ‘Cats,’ Dies at 78**\
+`He sang arias on the streets of San Francisco, performed on Broadway and collaborated on a musical about Al Jolson, which he also starred in.`\
+https://nytimes.com/2025/05/02/theater/stephen-mo-hanan-dead.html
+
 **Red Sox to place righty starter Walker Buehler on 15-day IL**\
 `Buehler, who was slated to start Saturday against the Twins, will now be replaced by Hunter Dobbins. `\
 https://nytimes.com/athletic/6330158/2025/05/02/red-sox-walker-buehler-injured-list/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6330162/2025/05/02/kimi-antonelli-miami-gp-pole-mer
 **Trump Asks Supreme Court to Let DOGE View Social Security Data**\
 `A federal judge in Maryland found that scrutiny of the agency’s sensitive information systems by Elon Musk’s team appeared to violate federal privacy laws.`\
 https://nytimes.com/2025/05/02/us/supreme-court-doge-social-security.html
-
-**Trump Proposed Slashing $163 Billion in Spending**\
-`Also, universal antivenom may grow out of a Wisconsin man. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2025/05/02/briefing/trump-spending-proposal-china-us-tariffs.html
-
-**The U.S. and Maine Reach Deal to Restore Funds in Feud on Transgender Athletes**\
-`The state’s attorney general said the federal dollars paid for food for schoolchildren and other essential services.`\
-https://nytimes.com/2025/05/02/us/politics/trump-maine-funding-freeze-trans-athletes.html
-
-**Iowa State DC's son among 5 staffers suspended by NCAA for sports betting**\
-`Four of the staffers — none of whom currently work at Iowa State — also wagered on Cyclones’ men’s and women’s basketball games.`\
-https://nytimes.com/athletic/6330108/2025/05/02/iowa-state-betting-ncaa-suspensions/
-
-**Cadillac F1 team confirms no drivers signed ahead of Miami launch event**\
-`"My phone has become very busy," says F1's newest team principal as Cadillac continues talks with drivers`\
-https://nytimes.com/athletic/6330099/2025/05/02/f1-cadillac-driver-update-miami-grand-prix-sergio-perez/
-
-**Wild GM Bill Guerin’s offseason checklist: Extend Kaprizov, decide on Rossi, be smart in free agency**\
-`Fixing the team's handling of young players is another top priority this summer after a first-round exit at the hands of the Golden Knights.`\
-https://nytimes.com/athletic/6330003/2025/05/02/wild-offseason-priorities-kaprizov-rossi/
 
