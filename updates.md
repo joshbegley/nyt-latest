@@ -1,3 +1,7 @@
+**Stocks on Track to Erase Losses From April Tariff Chaos**\
+`Wall Street has recovered from April’s sharp sell-off, buoyed by hope for trade talks. But the economic fallout from President Trump’s policies still has investors on edge.`\
+https://nytimes.com/2025/05/02/business/stock-market-recovery-trump-tariffs.html
+
 **Paramilitary Fighters Massacre More Than 100 Civilians, Doctors’ Group Says**\
 `The Sudan Doctors Network said that the Rapid Support Forces had killed at least  21 children on Thursday, the latest violent spasm in Sudan’s civil war.`\
 https://nytimes.com/2025/05/02/world/africa/sudan-war-atrocity.html
