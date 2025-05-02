@@ -1,3 +1,11 @@
+**Mike Peters, Frontman of the Alarm, Is Dead at 66**\
+`Leading the Welsh band known for 1980s anthems like “Sixty Eight Guns,” he later became a strong voice in the fight against cancer, which he battled for decades.`\
+https://nytimes.com/2025/05/02/arts/music/mike-peters-frontman-of-the-alarm-is-dead-at-66.html
+
+**Former Weather Service Leaders Warn Staffing Cuts Could Lead to ‘Loss of Life’**\
+`The former agency directors say current employees will face an “impossible task” to maintain service just as hurricane season begins.`\
+https://nytimes.com/2025/05/02/weather/nws-staffing-cuts-trump.html
+
 **Here’s What Happened in Karen Read’s Murder Trial This Week**\
 `Ms. Read’s retrial on charges that she killed her boyfriend, a Boston police officer, has so far largely resembled her first, which ended in a mistrial.`\
 https://nytimes.com/2025/05/02/us/karen-read-murder-trial-takeaways.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/02/us/politics/george-ryan-dead.html
 **Why the new tighter strike zone may impact Patrick Bailey and the Giants more than most**\
 `Bailey is the game's best strike-stealer. With the "buffer" zone shrinking, his framing skills could be mitigated. `\
 https://nytimes.com/athletic/6327719/2025/05/02/sf-giants-smaller-strike-zone-patrick-bailey/
-
-**F1 teenager Kimi Antonelli claims shock Miami sprint race pole for Mercedes**\
-`Antonelli is the youngest driver to head a race grid in F1 history in any format.`\
-https://nytimes.com/athletic/6330162/2025/05/02/kimi-antonelli-miami-gp-pole-mercedes/
-
-**Trump Asks Supreme Court to Let DOGE View Social Security Data**\
-`A federal judge in Maryland found that scrutiny of the agency’s sensitive information systems by Elon Musk’s team appeared to violate federal privacy laws.`\
-https://nytimes.com/2025/05/02/us/supreme-court-doge-social-security.html
 
