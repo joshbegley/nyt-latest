@@ -1,3 +1,7 @@
+**LeBron James sprained MCL in Lakers' Game 5 vs. Timberwolves**\
+`The injury seemingly occurred with 8:39 left in the fourth quarter when James collided with Timberwolves guard Donte DiVincenzo.`\
+https://nytimes.com/athletic/6329974/2025/05/02/lakers-lebron-james-mcl-sprain-game-5-timberwolves/
+
 **I Was Detained for My Beliefs. Who Will Be Next?**\
 `Detained at his citizenship interview, the Columbia student Mohsen Mahdawi speaks of his ordeal.`\
 https://nytimes.com/2025/05/02/opinion/mohsen-mahdawi-ice-detention.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/02/us/politics/trump-veterans-day.html
 **This Is the Moment for Mexican Indian Food to Flourish**\
 `A new generation of restaurants is pushing the overlooked cuisine forward.`\
 https://nytimes.com/2025/05/02/dining/mexican-indian-food-fusion.html
-
-**Canada’s Prime Minister to Visit Trump Amid Trade Battle**\
-`Prime Minister Mark Carney, who will make his first visit to Washington since his election, said President Trump’s call to annex Canada as the 51st state would not be on the table.`\
-https://nytimes.com/2025/05/02/world/canada/mark-carney-trump-visit-tariffs.html
 
