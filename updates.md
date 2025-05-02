@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6326152/2025/05/02/premier-league-end-of-season-betting-predictions/
 
+**Title race and relegation scrap over - what’s left to bet on in the Premier League?**\
+`Sam Tighe delves into some of the more lesser-known Premier League betting storylines as the season winds down. 
+`\
+https://nytimes.com/athletic/6326152/2025/05/02/premier-league-end-of-season-betting-predictions/
+
 **Overwhelmed? Go See Some Cherry Blossoms.**\
 `The ephemeral, exquisite antidote to doomscrolling.`\
 https://nytimes.com/2025/05/02/nyregion/cherry-blossoms-nyc-brooklyn-botanic-garden.html

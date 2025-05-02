@@ -1,3 +1,7 @@
+**Late Night Watches ‘Signalgate’ Claim a Victim, Sort of**\
+`Mike Waltz, who added a journalist to a Signal group chat about plans to bomb Yemen, is out as national security adviser, but his career isn’t over.`\
+https://nytimes.com/2025/05/02/arts/television/late-night-mike-waltz.html
+
 **Title race and relegation scrap over - what’s left to bet on in the Premier League?**\
 `Sam Tighe delves into some of the more lesser-known Premier League betting storylines as the season winds down. 
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6328284/2025/05/02/jalen-brunson-new-york-knicks-nb
 **Nuno Espirito Santo needs to get his Forest back - and fast**\
 `An uncharacteristically soft performance against Brentford was a blow to Forest's top-five hopes but all is not lost`\
 https://nytimes.com/athletic/6327925/2025/05/02/nottingham-forest-brentford-result-analysis/
-
-**Word of the Day: vogue**\
-`This word has appeared in 99 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/05/02/learning/word-of-the-day-vogue.html
 
