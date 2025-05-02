@@ -1,3 +1,19 @@
+**Why Chelsea have been helped, not hindered, by the Conference League**\
+`A competition that felt like a poor consolation prize has had surprising benefits for Enzo Maresca and his players`\
+https://nytimes.com/athletic/6327888/2025/05/02/chelsea-conference-league-season/
+
+**Friday Briefing**\
+`A shake-up of Trump’s top aides.`\
+https://nytimes.com/2025/05/02/world/trump-waltz-ukraine-syria.html
+
+**Angels oft-injured star Mike Trout returns to IL with bone bruise**\
+`The bone bruise in Trout's left knee is another injury in a long line of them over his last five seasons.`\
+https://nytimes.com/athletic/6328488/2025/05/02/mike-trout-knee-injury-angels/
+
+**Reform U.K. Wins Special Election by Six Votes, in Blow to Starmer**\
+`Nigel Farage’s right-wing populist party snatched a key parliamentary seat from the governing Labour Party.`\
+https://nytimes.com/2025/05/02/world/europe/uk-election-reform-labour-runcorn.html
+
 **Russo and Smith: The playoffs felt different for the Wild, but ended with the same hollow result**\
 `Once again, in the franchise's 24th season, passionate, patient Wild fans were left unsatisfied.`\
 https://nytimes.com/athletic/6328071/2025/05/02/minnesota-wild-playoffs-offseason/

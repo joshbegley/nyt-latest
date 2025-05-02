@@ -1,3 +1,15 @@
+**Why Chelsea have been helped, not hindered, by the Conference League**\
+`A competition that felt like a poor consolation prize has had surprising benefits for Enzo Maresca and his players`\
+https://nytimes.com/athletic/6327888/2025/05/02/chelsea-conference-league-season/
+
+**Friday Briefing**\
+`A shake-up of Trump’s top aides.`\
+https://nytimes.com/2025/05/02/world/trump-waltz-ukraine-syria.html
+
+**Angels oft-injured star Mike Trout returns to IL with bone bruise**\
+`The bone bruise in Trout's left knee is another injury in a long line of them over his last five seasons.`\
+https://nytimes.com/athletic/6328488/2025/05/02/mike-trout-knee-injury-angels/
+
 **Russo and Smith: The playoffs felt different for the Wild, but ended with the same hollow result**\
 `Once again, in the franchise's 24th season, passionate, patient Wild fans were left unsatisfied.`\
 https://nytimes.com/athletic/6328071/2025/05/02/minnesota-wild-playoffs-offseason/
@@ -11,7 +23,7 @@ https://nytimes.com/2025/05/02/us/politics/trump-funding-npr-pbs.html
 https://nytimes.com/athletic/6319938/2025/05/02/tottenham-bodo-glimt-analysis-europa-league/
 
 **Reform U.K. Wins Special Election by Six Votes, in Blow to Starmer**\
-`Nigel Farage’s right-wing populist party snatched a battleground parliamentary seat from the governing Labour Party.`\
+`Nigel Farage’s right-wing populist party snatched a key parliamentary seat from the governing Labour Party.`\
 https://nytimes.com/2025/05/02/world/europe/uk-election-reform-labour-runcorn.html
 
 **Oilers hold off Kings in Game 6, advance to Round 2**\
@@ -25,16 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/05/02/todays-new-york-times
 **Canada Needs a New Story**\
 `Canada’s greatest opportunity lies in its ability to reframe its place in the world beyond America.`\
 https://nytimes.com/2025/05/02/opinion/canada-election-mark-carney.html
-
-**The Maple Leafs took care of first-round business. Now for the hard part**\
-`The Leafs successfully slayed some playoff demons. But winning the Battle of Ontario was just step one.`\
-https://nytimes.com/athletic/6328351/2025/05/02/maple-leafs-nhl-playoffs-series-win-senators/
-
-**Israel Launches Airstrikes Near Presidential Palace in Damascus**\
-`It was the second time in days that Israel had intervened militarily in Syria amid sectarian violence targeting the Druse.`\
-https://nytimes.com/2025/05/02/world/middleeast/israel-syria-druse-strikes.html
-
-**Why not even this season's Manchester United can mess this up**\
-`History, the injury crisis easing and key players' form mean United can look forward to the Europa League final... surely?`\
-https://nytimes.com/athletic/6328138/2025/05/02/manchester-united-europa-league-win/
 
