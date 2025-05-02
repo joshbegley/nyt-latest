@@ -1,3 +1,8 @@
+**Title race and relegation scrap over - what’s left to bet on in the Premier League?**\
+`Sam Tighe delves into some of the more lesser-known Premier League betting storylines as the season winds down. 
+`\
+https://nytimes.com/athletic/6326152/2025/05/02/premier-league-end-of-season-betting-predictions/
+
 **Trump Says He Is Renaming Veterans Day as ‘Victory Day for World War I’**\
 `The president said he would also label May 8, known as V-E Day for Victory in Europe, as “Victory Day for World War II,” and vowed to celebrate America’s military wins.`\
 https://nytimes.com/2025/05/02/us/politics/trump-veterans-day-world-war-i.html
