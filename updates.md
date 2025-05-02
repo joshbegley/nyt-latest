@@ -1,3 +1,11 @@
+**NHL's Masterton Memorial Trophy finalists named — will Marc-André Fleury retire with a win?**\
+`The award goes to the player who “best exemplifies the qualities of perseverance, sportsmanship and dedication to the game.”`\
+https://nytimes.com/athletic/6325218/2025/05/02/nhl-masterton-finalists-2025/
+
+**The Windup: Good and bad surprises so far**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/6329386/2025/05/02/mlb-season-aaron-judge-the-windup/
+
 **Read Trump’s 2026 Discretionary Budget Request**\
 `The White House has released its budget request to Congress for the 2026 fiscal year, calling for about $163 billion in cuts to non-defense funds.`\
 https://nytimes.com/interactive/2025/05/02/us/budget-request-2026-document.html
