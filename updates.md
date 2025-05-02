@@ -1,3 +1,11 @@
+**Trump Signs Executive Order to End Federal Funding for NPR and PBS**\
+`The Trump administration has accused the two broadcasters of using public funds to produce biased coverage and “left-wing propaganda.”`\
+https://nytimes.com/2025/05/02/us/politics/trump-funding-npr-pbs.html
+
+**Spurs rose to the challenge of their biggest game since 2019 - now they must do it again**\
+`This tie is not over but Spurs showed the kind of control and nous against Bodo/Glimt they will need to salvage their season`\
+https://nytimes.com/athletic/6319938/2025/05/02/tottenham-bodo-glimt-analysis-europa-league/
+
 **Reform U.K. Claims Narrow Victory in Special Election in Blow to Starmer**\
 `Nigel Farage’s right-wing populist party snatched a battleground parliamentary seat from the governing Labour Party, winning by just six votes.`\
 https://nytimes.com/2025/05/02/world/europe/uk-election-reform-labour-runcorn.html

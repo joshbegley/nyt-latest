@@ -1,3 +1,7 @@
+**Russo and Smith: The playoffs felt different for the Wild, but ended with the same hollow result**\
+`Once again, in the franchise's 24th season, passionate, patient Wild fans were left unsatisfied.`\
+https://nytimes.com/athletic/6328071/2025/05/02/minnesota-wild-playoffs-offseason/
+
 **Trump Signs Executive Order to End Federal Funding for NPR and PBS**\
 `The Trump administration has accused the two broadcasters of using public funds to produce biased coverage and “left-wing propaganda.”`\
 https://nytimes.com/2025/05/02/us/politics/trump-funding-npr-pbs.html
@@ -6,8 +10,8 @@ https://nytimes.com/2025/05/02/us/politics/trump-funding-npr-pbs.html
 `This tie is not over but Spurs showed the kind of control and nous against Bodo/Glimt they will need to salvage their season`\
 https://nytimes.com/athletic/6319938/2025/05/02/tottenham-bodo-glimt-analysis-europa-league/
 
-**Reform U.K. Claims Narrow Victory in Special Election in Blow to Starmer**\
-`Nigel Farage’s right-wing populist party snatched a battleground parliamentary seat from the governing Labour Party, winning by just six votes.`\
+**Reform U.K. Wins Special Election by Six Votes, in Blow to Starmer**\
+`Nigel Farage’s right-wing populist party snatched a battleground parliamentary seat from the governing Labour Party.`\
 https://nytimes.com/2025/05/02/world/europe/uk-election-reform-labour-runcorn.html
 
 **Oilers hold off Kings in Game 6, advance to Round 2**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/02/world/middleeast/israel-syria-druse-strikes.html
 **Why not even this season's Manchester United can mess this up**\
 `History, the injury crisis easing and key players' form mean United can look forward to the Europa League final... surely?`\
 https://nytimes.com/athletic/6328138/2025/05/02/manchester-united-europa-league-win/
-
-**How the Avalanche forced Game 7 vs. Dallas with wild 7-4 win: Takeaways**\
-`Game 6 was full of scoring chances, wild momentum swings and some of the fastest, most frenetic action of these, or any, playoffs.`\
-https://nytimes.com/athletic/6328237/2025/05/02/avalanche-stars-nhl-playoffs-2025-game-6-takeaways/
 
