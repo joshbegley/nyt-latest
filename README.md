@@ -1,3 +1,11 @@
+**The Pulse: MLB's biggest surprises thus far**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6328493/2025/05/02/mlb-surprises-giants-orioles-the-pulse/
+
+**How the Oilers' depth got them through first round and has them primed for more**\
+`Connor McDavid and Leon Draisaitl often get the job done for the Oilers but against the Kings others stepped up.`\
+https://nytimes.com/athletic/6328706/2025/05/02/edmonton-oilers-kings-playoffs-result-connor-brown/
+
 **Slot to rotate Liverpool squad for final league games**\
 `Liverpool have four games remaining, starting with a trip to Stamford Bridge on Sunday to face Champions League-chasing Chelsea.`\
 https://nytimes.com/athletic/6328737/2025/05/02/liverpool-team-news-rotation-arne-slot/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6327968/2025/05/02/orlando-magic-jeff-weltman-exclu
 **The Grizzlies' push to contention went sideways. Where do they go from here?**\
 `Going from good to great is hard, and Memphis has proven that over the past couple of years.`\
 https://nytimes.com/athletic/6325032/2025/05/02/memphis-grizzlies-nba-offseason-ja-morant-jaren-jackson/
-
-**NFL Draft 2025's best undrafted free agent fits: One player to watch on each roster**\
-`With rookie minicamps getting underway, we take a look at which UDFAs could win roster spots on their new teams.`\
-https://nytimes.com/athletic/6326489/2025/05/02/nfl-draft-2025-undrafted-free-agents-best-prospects/
-
-**The Battle of Ontario is over: Behind the scenes of the Leafs' Round 1 victory**\
-`From their first foray to Kanata to a surprising locker-room ambience after Game 6, an insider view on how the Leafs got it done.`\
-https://nytimes.com/athletic/6328384/2025/05/02/maple-leafs-nhl-playoffs-series-win-behind-scenes/
 
