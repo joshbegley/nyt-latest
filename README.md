@@ -1,3 +1,7 @@
+**Furniture Inspired by Georgia O’Keeffe’s New Mexico Home**\
+`Plus: a flower gardener’s guidebook, an exhibition of Chris Gustin’s sculptures and more recommendations from T Magazine.`\
+https://nytimes.com/2025/05/01/t-magazine/georgia-okeeffe-herman-miller.html
+
 **NBA playoffs takeaways: Brunson saves Knicks, sends Pistons packing**\
 `The Knicks' Jalen Brunson hit a game-winning 3-pointer to beat the Pistons and set up New York for a second-round series vs. Boston.`\
 https://nytimes.com/athletic/6328206/2025/05/01/nba-playoffs-takeaways-scores-thursday/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/01/arts/russell-brand-uk-court-rape-charges.html
 **Concrete Example of Rotational Forces and Fluid Dynamics**\
 `Wishing you all a very happy Robyn Weintraub Friday!`\
 https://nytimes.com/2025/05/01/crosswords/daily-puzzle-2025-05-02.html
-
-**Lakers must 'get into championship shape,' coach JJ Redick says**\
-`The Lakers coach wants to see his team get bigger and fitter in the offseason, but everything will start with LeBron James.`\
-https://nytimes.com/athletic/6327936/2025/05/01/lakers-redick-championship-shape/
 
