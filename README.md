@@ -1,3 +1,15 @@
+**Sir Jim Ratcliffe's INEOS exploring sale of Ligue 1 club Nice**\
+`INEOS purchased Nice in 2019 and acquired a minority stake in Manchester United in February 2024.`\
+https://nytimes.com/athletic/6327445/2025/05/02/ineos-jim-ratcliffe-nice-sale/
+
+**Trump Administration Live Updates: President Vows to Defund PBS and NPR**\
+``\
+https://nytimes.com/live/2025/05/02/us/trump-news
+
+**TikTok Fined $600 Million for Sending European User Data to China**\
+`Irish investigators said TikTok did not protect the data of users in the European Union, improperly transferring some of it to China. TikTok said it would appeal.`\
+https://nytimes.com/2025/05/02/business/tiktok-eu-data-china.html
+
 **The nine Premier League teams most likely to qualify for Europe next season – and who else can do it**\
 `Breaking down all the European qualification permutations — including why the battle for eighth place in the Premier League is now on `\
 https://nytimes.com/athletic/6328680/2025/05/02/premier-league-european-qualification-man-utd-chelsea/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6323504/2025/05/02/louis-varland-twins-reliever-mea
 **Who’s on third? The Chicago Cubs’ best option may still wind up being Matt Shaw**\
 `All seven players who started a game at third base for the Cubs last season are no longer in the organization.`\
 https://nytimes.com/athletic/6327768/2025/05/02/chicago-cubs-third-base-options/
-
-**Guardians takeaways: Manzardo's power, McKenzie's fresh start, Santana vs. Father Time**\
-`Fresh off a tough 10-game homestand where they went 6-4, it's time for a look at some Guardians trends as they head to Toronto.`\
-https://nytimes.com/athletic/6327261/2025/05/02/guardians-takeaways-manzardo-mckenzie-williams/
-
-**How can the Jets beat the Blues in Game 6? Role players, a surprise return, greasy goals**\
-`Mark Scheifele won't play in Game 6 -- but Nik Ehlers might. But he alone can't get the Jets over the hump, it will require a team effort.`\
-https://nytimes.com/athletic/6328337/2025/05/02/nhl-playoffs-jets-game-6/
-
-**The MLB starting pitchers getting squeezed most by this season's smaller strike zone**\
-`The strike zone is smaller this year. Which pitchers are getting affected the most and should you be wary of them in fantasy baseball?`\
-https://nytimes.com/athletic/6326999/2025/05/02/mlb-starting-pitchers-small-strike-zone/
 

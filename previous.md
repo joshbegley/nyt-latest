@@ -1,3 +1,11 @@
+**The nine Premier League teams most likely to qualify for Europe next season – and who else can do it**\
+`Breaking down all the European qualification permutations — including why the battle for eighth place in the Premier League is now on `\
+https://nytimes.com/athletic/6328680/2025/05/02/premier-league-european-qualification-man-utd-chelsea/
+
+**Elland Road redevelopment: When will work start? When will it finish? Seats in each stand?**\
+`Leeds are planning to redevelop Elland Road. The Athletic has more detail on what that redevelopment entails`\
+https://nytimes.com/athletic/6328713/2025/05/02/elland-road-redevelopment-leeds-united-analysis/
+
 **First-round loss to Knicks shouldn't dampen Pistons' optimism for future**\
 `"We'll be back and better," Cade Cunningham said after Detroit lost Game 6. Some big offseason decisions loom. `\
 https://nytimes.com/athletic/6328657/2025/05/02/pistons-playoffs-game-6-future/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6328337/2025/05/02/nhl-playoffs-jets-game-6/
 **The MLB starting pitchers getting squeezed most by this season's smaller strike zone**\
 `The strike zone is smaller this year. Which pitchers are getting affected the most and should you be wary of them in fantasy baseball?`\
 https://nytimes.com/athletic/6326999/2025/05/02/mlb-starting-pitchers-small-strike-zone/
-
-**The Athletic’s Friday football quiz question #53**\
-`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
-https://nytimes.com/athletic/6328795/2025/05/02/the-athletics-friday-football-quiz-question-53/
-
-**What's burgoo? Here's the Kentucky Derby tradition not on the Churchill Downs grounds**\
-`While the food choice isn't a Churchill Downs staple, burgoo is a reflection of Kentucky and a well-known tradition during the Derby.`\
-https://nytimes.com/athletic/6297949/2025/05/02/kentucky-derby-burgoo-stew-churchill-downs/
 

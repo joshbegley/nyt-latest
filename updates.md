@@ -1,3 +1,11 @@
+**The nine Premier League teams most likely to qualify for Europe next season – and who else can do it**\
+`Breaking down all the European qualification permutations — including why the battle for eighth place in the Premier League is now on `\
+https://nytimes.com/athletic/6328680/2025/05/02/premier-league-european-qualification-man-utd-chelsea/
+
+**Elland Road redevelopment: When will work start? When will it finish? Seats in each stand?**\
+`Leeds are planning to redevelop Elland Road. The Athletic has more detail on what that redevelopment entails`\
+https://nytimes.com/athletic/6328713/2025/05/02/elland-road-redevelopment-leeds-united-analysis/
+
 **First-round loss to Knicks shouldn't dampen Pistons' optimism for future**\
 `"We'll be back and better," Cade Cunningham said after Detroit lost Game 6. Some big offseason decisions loom. `\
 https://nytimes.com/athletic/6328657/2025/05/02/pistons-playoffs-game-6-future/
