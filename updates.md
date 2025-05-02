@@ -1,3 +1,7 @@
+**Trump Officials Say Ex-Leader of Cybersecurity Agency Is Under Investigation**\
+`The disclosure came three weeks after President Trump directed the Justice Department to investigate the former agency leader, Chris Krebs, in an act of score settling.`\
+https://nytimes.com/2025/05/01/us/politics/trump-chris-krebs.html
+
 **Once Banished From Trump’s White House, Zelensky Has New Hope**\
 `In his zigzagging approach to ending the war in Ukraine, President Trump has shifted his frustration — for now — from Ukraine’s leader to Vladimir Putin.`\
 https://nytimes.com/2025/05/01/us/politics/trump-ukraine-russia-zelensky.html
