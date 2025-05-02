@@ -1,3 +1,7 @@
+**In Alabama Commencement Speech, Trump Mixes In the Political**\
+`Between pieces of advice like “don’t try to be someone else,” the president attacked political foes and discussed everything from egg prices to transgender rights, often to cheers from the crowd.`\
+https://nytimes.com/2025/05/02/us/politics/trump-alabama-commencement-speech.html
+
 **Jalen Brunson and the shot that may have saved the Knicks as we know them**\
 `The final points of Brunson's 40-point performance carried the weight of a franchise and avoided an alternate universe.`\
 https://nytimes.com/athletic/6328284/2025/05/02/jalen-brunson-new-york-knicks-nba-game-winner/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/02/world/trump-waltz-ukraine-syria.html
 **Angels oft-injured star Mike Trout returns to IL with bone bruise**\
 `The bone bruise in Trout's left knee is another injury in a long line of them over his last five seasons.`\
 https://nytimes.com/athletic/6328488/2025/05/02/mike-trout-knee-injury-angels/
-
-**Russo and Smith: Playoffs felt different for the Wild but ended with same hollow result**\
-`Once again, in the franchise's 24th season, passionate, patient Wild fans were left unsatisfied.`\
-https://nytimes.com/athletic/6328071/2025/05/02/minnesota-wild-playoffs-offseason/
 
