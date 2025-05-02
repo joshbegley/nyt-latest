@@ -1,3 +1,11 @@
+**NHL Draft Lottery draw will be broadcast live on Monday**\
+`Viewers will watch in real time as numbered ping-pong balls determine the No. 1 and No. 2 draft picks.`\
+https://nytimes.com/athletic/6330101/2025/05/02/2025-nhl-draft-lottery-results-live/
+
+**Trump’s Order Targeting Law Firm Perkins Coie Is Illegal, Judge Rules**\
+`The decision marked the first time a federal judge had permanently blocked the Trump administration from enforcing an order to punish law firms he opposes politically.`\
+https://nytimes.com/2025/05/02/us/politics/trump-law-firms.html
+
 **Mike Peters, Frontman of the Alarm, Is Dead at 66**\
 `Leading the Welsh band known for 1980s anthems like “Sixty Eight Guns,” he later became a strong voice in the fight against cancer, which he battled for decades.`\
 https://nytimes.com/2025/05/02/arts/music/mike-peters-frontman-of-the-alarm-is-dead-at-66.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/02/theater/stephen-mo-hanan-dead.html
 **Red Sox to place righty starter Walker Buehler on 15-day IL**\
 `Buehler, who was slated to start Saturday against the Twins, will now be replaced by Hunter Dobbins. `\
 https://nytimes.com/athletic/6330158/2025/05/02/red-sox-walker-buehler-injured-list/
-
-**George Ryan, Illinois Governor Who Halted Prison Executions, Dies at 91**\
-`A Republican, he imposed a moratorium on capital punishment, saying he could not support a death-row system “so fraught with error” that it might end an innocent life.`\
-https://nytimes.com/2025/05/02/us/politics/george-ryan-dead.html
-
-**Why the new tighter strike zone may impact Patrick Bailey and the Giants more than most**\
-`Bailey is the game's best strike-stealer. With the "buffer" zone shrinking, his framing skills could be mitigated. `\
-https://nytimes.com/athletic/6327719/2025/05/02/sf-giants-smaller-strike-zone-patrick-bailey/
 
