@@ -2,8 +2,8 @@
 `Coronato's contract will carry a $6.5 million cap hit through 2032 when he'll be 29 years old.`\
 https://nytimes.com/athletic/6331565/2025/05/03/flames-matt-coronato-contract-signing/
 
-**Triston Casas out for the season: What it means for Rafael Devers, Roman Anthony**\
-`Casas’ knee gave out as he was running to first base on Friday night. He was subsequently taken off the field on a stretcher.`\
+**Triston Casas out for the season: What it means for Rafael Devers, Roman Anthony and more**\
+`Casas’ knee gave out Friday as he was running to first base in the second inning of Boston's 6-1 win over the Minnesota Twins.`\
 https://nytimes.com/athletic/6331568/2025/05/03/triston-casas-out-season-rafael-devers-roman-anthony-red-sox/
 
 **Arsenal's Timber a doubt for PSG second leg, Arteta confirms**\
