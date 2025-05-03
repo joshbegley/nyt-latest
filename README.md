@@ -1,3 +1,7 @@
+**Voice of America reporters are set to return to work.**\
+`By Tim Balk`\
+https://nytimes.com/2025/05/03/us/politics/voice-of-america-reporters-are-set-to-return-to-work.html
+
 **Relegation, relief and 'rubbish': A day on the brink in the Championship**\
 `Five clubs were fighting to stay in the second tier - so The Athletic went to watch them all on the final day of the season`\
 https://nytimes.com/athletic/6331272/2025/05/03/luton-relegated-hull-derby-stoke-preston/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/03/arts/national-endowment-for-the-arts-grants.html
 **Trump’s New Lows Are Basically Predictable**\
 `Why are plenty of people still surprised?`\
 https://nytimes.com/2025/05/03/opinion/trump-polls-popularity-dei.html
-
-**Hikers Stumble Upon a Pile of Gold Coins, Igniting a Historical Hunt**\
-`The discovery of coins and jewelry in the Czech Republic worth up to $680,000 raises a tantalizing mystery for historians and amateur sleuths: Who buried the treasure?`\
-https://nytimes.com/2025/05/03/world/europe/czech-treasure-gold-discovery.html
 
