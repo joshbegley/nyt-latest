@@ -1,3 +1,11 @@
+**Cardinal Parolin, Leader of Papal Conclave, Is Also a Top Candidate**\
+`Cardinals have talked about Cardinal Pietro Parolin, the Vatican secretary of state, as someone who could have a steady, bureaucratic hand on the church’s wheel.`\
+https://nytimes.com/2025/05/03/world/europe/pope-conclave-cardinal-pietro-parolin.html
+
+**Memory Palace**\
+`Memorizing a poem is like taking a work of art that you love and letting it live and bloom inside of you.`\
+https://nytimes.com/2025/05/03/briefing/memory-palace.html
+
 **Inside JJ Redick's first year as Lakers coach: 'I know I will get better'**\
 `Mic drops, bold lineup decisions and a massive midseason trade highlighted Redick's debut season, which ended in an early playoff exit.`\
 https://nytimes.com/athletic/6328130/2025/05/03/jj-redick-lakers-first-year-playoffs/
