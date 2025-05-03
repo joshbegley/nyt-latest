@@ -1,4 +1,8 @@
 **Masai Russell sets U.S. record in 100m hurdles, gives jolt to Grand Slam Track**\
+`The Olympic champion finished in 12.17 seconds Friday in Florida, the second-fastest time in world history.`\
+https://nytimes.com/athletic/6330363/2025/05/02/masai-russell-100-meter-hurdles-american-record-grand-slam-track/
+
+**Masai Russell sets U.S. record in 100m hurdles, gives jolt to Grand Slam Track**\
 `The Olympic champion finished in 12.17 seconds Friday in Florida, the second fastest time in world history.`\
 https://nytimes.com/athletic/6330363/2025/05/02/masai-russell-100-meter-hurdles-american-record-grand-slam-track/
 
