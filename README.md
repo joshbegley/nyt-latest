@@ -1,3 +1,7 @@
+**Why OPEC Plus Is Increasing Oil Supplies Despite Falling Prices**\
+`The group agreed to raise output in June, a sign that Saudi Arabia and its allies appear to be weary of cutting output and may be trying to appease President Trump, who has pushed for lower prices.`\
+https://nytimes.com/2025/05/03/business/opec-plus-oil-production-trump.html
+
 **Seahawks rookie camp Day 1: Jalen Milroe takeaways**\
 `"The way he throws the ball, the way he moves, he has a chance to be an elite quarterback at the highest level," Elijah Arroyo said.`\
 https://nytimes.com/athletic/6330319/2025/05/03/seahawks-rookie-camp-day-1-jalen-milroe/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6330905/2025/05/03/fa-cup-final-kick-off-time-man-c
 **Another Hellebuyck letdown, an implosion in front of him — and a chance to make it all right in Game 7**\
 `The results of one game don't usually define a player's postseason legacy. For Connor Hellebuyck, Game 7 against St. Louis will come close.`\
 https://nytimes.com/athletic/6330387/2025/05/03/nhl-playoffs-winnipeg-jets-game-6/
-
-**Heidenheim goalkeeper Muller treated in hospital after head injury**\
-`The Bundesliga match was stopped for 11 minutes after Muller collided with Bochum midfielder Ibrahima Sissoko while punching the ball clear.`\
-https://nytimes.com/athletic/6330040/2025/05/03/kevin-muller-heidenheim-goalkeeper-head-injury/
 
