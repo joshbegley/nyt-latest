@@ -1,3 +1,7 @@
+**Bob Filner, Mayor of San Diego Who Left Amid Scandal, Dies at 82**\
+`A progressive member of Congress for two decades, he resigned as mayor after 18 women accused him of sexual harassment.`\
+https://nytimes.com/2025/05/03/us/politics/bob-filner-dead.html
+
 **We reviewed Yankee Stadium’s Austin Wells-inspired burrito so you don’t have to**\
 `At $12.28, The Wells Favvurito isn’t exorbitant by stadium standards, but it falls short of being filling`\
 https://nytimes.com/athletic/6331716/2025/05/03/yankees-austin-wells-breakfast-burrito/

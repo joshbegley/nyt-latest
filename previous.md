@@ -1,3 +1,7 @@
+**Bob Filner, Mayor of San Diego Who Left Amid Scandal, Dies at 82**\
+`A progressive member of Congress for two decades, he resigned as mayor after 18 women accused him of sexual harassment.`\
+https://nytimes.com/2025/05/03/us/politics/bob-filner-dead.html
+
 **We reviewed Yankee Stadium’s Austin Wells-inspired burrito so you don’t have to**\
 `At $12.28, The Wells Favvurito isn’t exorbitant by stadium standards, but it falls short of being filling`\
 https://nytimes.com/athletic/6331716/2025/05/03/yankees-austin-wells-breakfast-burrito/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6331565/2025/05/03/flames-matt-coronato-contract-si
 **Triston Casas out for the season: What it means for Rafael Devers, Roman Anthony and more**\
 `Casas’ knee gave out Friday as he was running to first base in the second inning of Boston's 6-1 win over the Minnesota Twins.`\
 https://nytimes.com/athletic/6331568/2025/05/03/triston-casas-out-season-rafael-devers-roman-anthony-red-sox/
-
-**Arsenal's Timber a doubt for PSG second leg, Arteta confirms**\
-`Timber missed Saturday's defeat to Bournemouth through injury.`\
-https://nytimes.com/athletic/6331572/2025/05/03/jurrien-timber-injury-update-arsenal-psg/
 
