@@ -1,3 +1,11 @@
+**Trump Administration Sues Colorado and Denver Over Immigration Policies**\
+`The lawsuit, which names the governor and mayor as defendants, is the latest move by the White House to try to get local governments to cooperate more with its immigration agenda.`\
+https://nytimes.com/2025/05/03/us/politics/trump-colorado-denver-lawsuit-immigration.html
+
+**The Art of the Kentucky Derby Hat**\
+`From traditional hats to fascinators and headdresses, the best looks at the 151st running of America’s most fashionable sporting event.`\
+https://nytimes.com/2025/05/03/style/kentucky-derby-2025-hats.html
+
 **Aryna Sabalenka beats Coco Gauff to regain Madrid Open title**\
 `Sabalenka reeled Gauff back in from a break down in the second set to take the title in the Spanish capital.`\
 https://nytimes.com/athletic/6331151/2025/05/03/coco-gauff-madrid-open-aryna-sabalenka-result-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6331272/2025/05/03/luton-relegated-hull-derby-stoke
 **Oil Prices Are Falling. Here’s Where That Could Spell Trouble.**\
 `For countries that depend heavily on oil revenue, dropping prices are worrisome.`\
 https://nytimes.com/2025/05/03/world/europe/oil-prices-tariffs.html
-
-**Thompson: These Warriors are old, tired and in trouble as Game 7 looms against Rockets**\
-`They're not done yet. Maybe a legendary performance awaits on Sunday. But the Warriors look like they're out of gas and out of answers.`\
-https://nytimes.com/athletic/6330793/2025/05/03/warriors-tired-rockets-game-7-steph-curry/
-
-**Australia’s Prime Minister Wins Second Term**\
-`Prime Minister Anthony Albanese of Australia won in a resounding defeat of the conservative opposition led by Peter Dutton.`\
-https://nytimes.com/video/world/australia/100000010145485/australia-election-prime-minister-albanese-dutton.html
 
