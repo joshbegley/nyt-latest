@@ -1,41 +1,40 @@
-**Seven starts into his Phillies career, Jesús Luzardo keeps impressing**\
-`"Every time he's on the mound, I feel relieved," Max Kepler said. "He goes out and does his thing. … I'm glad he's on our team."`\
-https://nytimes.com/athletic/6330573/2025/05/02/jesus-luzardo-phillies-keeps-impressing/
+**Romeo Lavia: Chelsea's injury-hit one-time Liverpool target who could be crucial for run-in**\
+`Romeo Lavia has struggled for fitness at Chelsea, but few players are more important to Enzo Maresca's preferred system`\
+https://nytimes.com/athletic/6327210/2025/05/03/romeo-lavia-chelsea-liverpool-analysis/
 
-**Blues chase Connor Hellebuyck, rout Jets to force Game 7: Takeaways**\
-`Hellebuyck was pulled for the third consecutive game in St. Louis after allowing five goals on 23 shots in the Blues' 5-2 Game 6 win.
-`\
-https://nytimes.com/athletic/6330053/2025/05/02/blues-jets-nhl-playoffs-2025-game-6-takeaways/
+**Trump’s Tariff on Cheap Chinese Imports Will Cost Big Tech Billions**\
+`For Meta, Alphabet and other platforms, the elimination of the tariff exemption for inexpensive goods is already cutting into advertising revenue.`\
+https://nytimes.com/2025/05/03/business/china-tariffs-temu-shein.html
 
-**Paige Bueckers gets first shot at WNBA defenses in preseason debut**\
-`In classic Bueckers fashion, she shot better than 50 percent from the field, including a beautiful lefty finger roll for her first points.`\
-https://nytimes.com/athletic/6330485/2025/05/02/aces-wings-paige-bueckers-debut/
+**Quote of the Day: Man of 200 Snake Bites May Be the Antivenom**\
+`Quotation of the Day for Saturday, May 3, 2025.`\
+https://nytimes.com/2025/05/03/pageoneplus/quote-of-the-day-man-of-200-snake-bites-may-be-the-antivenom.html
 
-**'We're going to roll with what we have': Angels GM Perry Minasian discusses poor play**\
-`Los Angeles' struggles don't instill confidence that the organization has built a roster that will compete for the postseason.`\
-https://nytimes.com/athletic/6330430/2025/05/02/angels-gm-perry-minasian-poor-play-mike-trout/
+**Ghana Wanted a Cathedral. It Got an ‘Expensive Hole’ Instead.**\
+`The nation had grand plans for a national cathedral designed by a celebrity architect. The $400 million project became a political battleground.`\
+https://nytimes.com/2025/05/03/world/africa/ghana-cathedral-christian-corruption-hole.html
 
-**2 Planes Abort Landings as Army Helicopter Flies Near D.C. Airport**\
-`The episode followed a fatal collision between a military helicopter and a commercial jet in January, and prompted concern and outrage among officials.`\
-https://nytimes.com/2025/05/02/us/politics/reagan-washington-national-airport-helicopter.html
+**Message From the Russian Military: ‘We Lost Your Son’**\
+`Russia lacks any formal, organized effort to account for legions of missing soldiers. That often leaves relatives in limbo, fending for themselves with scant government information.`\
+https://nytimes.com/2025/05/03/world/europe/russia-missing-soldiers-ukraine-war.html
 
-**Padres' Fernando Tatis Jr. leaves game after pitch hits left forearm**\
-`Tatis' arm showed visible swelling after getting hit by a 93 mph fastball from Pirates starter Mitch Keller.`\
-https://nytimes.com/athletic/6330458/2025/05/02/padres-fernando-tatis-jr-injury-hit-by-pitch/
+**How Trump Dismantled His First-Term Policy on Crimea**\
+`After more than three years of war, President Trump proposed a peace plan for Russia and Ukraine in late April that would have the United States recognize Moscow’s 2014 takeover of the Crimean peninsula.`\
+https://nytimes.com/video/world/europe/100000010127983/trumps-u-turn-crimea.html
 
-**Made Using Traditional Methods**\
-`Michael Lieberman presents a classic Saturday challenge.`\
-https://nytimes.com/2025/05/02/crosswords/daily-puzzle-2025-05-03.html
+**Could Eye-Scanning Crypto Orbs Save Us From a Bot Apocalypse?**\
+`World, a start-up backed by Sam Altman, has launched in the United States with the goal of verifying your humanity.`\
+https://nytimes.com/2025/05/03/technology/world-eye-scanning-crypto-orbs-launch-in-us.html
 
-**University of California’s New President Will Come From Texas**\
-`James B. Milliken will lead the California system, relinquishing his position as the chancellor of the University of Texas system.`\
-https://nytimes.com/2025/05/02/us/university-of-california-president.html
+**Connections: Sports Edition Coach: Hints for May 3, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6330581/2025/05/03/connections-sports-edition-hints-for-may-3-2025/
 
-**Blue Jays GM Ross Atkins talks underperforming offence, pitching moves and more**\
-`The Blue Jays made a real effort at change this offseason. So far, the runs haven't come.`\
-https://nytimes.com/athletic/6330410/2025/05/02/blue-jays-gm-ross-atkins-offence-pitching/
+**Corrections: May 3, 2025**\
+`Corrections that appeared in print on Saturday, May 3, 2025.`\
+https://nytimes.com/2025/05/03/pageoneplus/corrections-may-3-2025.html
 
-**Masai Russell sets U.S. record in 100m hurdles, gives jolt to Grand Slam Track**\
-`The Olympic champion finished in 12.17 seconds Friday in Florida, the second-fastest time in world history.`\
-https://nytimes.com/athletic/6330363/2025/05/02/masai-russell-100-meter-hurdles-american-record-grand-slam-track/
+**Car Prices Expected to Rise as Tariffs on Parts Kick In**\
+`Tariffs on imported parts will have a broad impact because all vehicles use components made abroad.`\
+https://nytimes.com/2025/05/03/business/trump-auto-parts-tariffs.html
 
