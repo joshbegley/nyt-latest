@@ -1,3 +1,11 @@
+**Flames sign Matt Coronato to 7-year, $45.50 million extension**\
+`Coronato's contract will carry a $6.5 million cap hit through 2032 when he'll be 29 years old.`\
+https://nytimes.com/athletic/6331565/2025/05/03/flames-matt-coronato-contract-signing/
+
+**Triston Casas out for the season: What it means for Rafael Devers, Roman Anthony**\
+`Casas’ knee gave out as he was running to first base on Friday night. He was subsequently taken off the field on a stretcher.`\
+https://nytimes.com/athletic/6331568/2025/05/03/triston-casas-out-season-rafael-devers-roman-anthony-red-sox/
+
 **Arsenal's Timber a doubt for PSG second leg, Arteta confirms**\
 `Timber missed Saturday's defeat to Bournemouth through injury.`\
 https://nytimes.com/athletic/6331572/2025/05/03/jurrien-timber-injury-update-arsenal-psg/

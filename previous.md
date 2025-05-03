@@ -1,3 +1,11 @@
+**Flames sign Matt Coronato to 7-year, $45.50 million extension**\
+`Coronato's contract will carry a $6.5 million cap hit through 2032 when he'll be 29 years old.`\
+https://nytimes.com/athletic/6331565/2025/05/03/flames-matt-coronato-contract-signing/
+
+**Triston Casas out for the season: What it means for Rafael Devers, Roman Anthony**\
+`Casas’ knee gave out as he was running to first base on Friday night. He was subsequently taken off the field on a stretcher.`\
+https://nytimes.com/athletic/6331568/2025/05/03/triston-casas-out-season-rafael-devers-roman-anthony-red-sox/
+
 **Arsenal's Timber a doubt for PSG second leg, Arteta confirms**\
 `Timber missed Saturday's defeat to Bournemouth through injury.`\
 https://nytimes.com/athletic/6331572/2025/05/03/jurrien-timber-injury-update-arsenal-psg/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6331436/2025/05/03/caitlin-clark-fever-mystics-pres
 **Historic promotion, Premier League in sight, scenes at the 'circus' - Wrexham's season review**\
 `Wrexham secured a third successive promotion but a fans' favourite played second fiddle - The Athletic assess another rollercoaster ride`\
 https://nytimes.com/athletic/6318063/2025/05/03/wrexham-promotion-reynolds-mcelhenney-parkinson/
-
-**Voice of America Reporters Are Set to Return to Work**\
-`President Trump has accused Voice of America of being biased against him. In March, he issued an executive order to dismantle the agency that finances the international news outlet.`\
-https://nytimes.com/2025/05/03/us/politics/voice-of-america-reporters-trump.html
-
-**Relegation, relief and 'rubbish': A day on the brink in the Championship**\
-`Five clubs were fighting to stay in the second tier - so The Athletic went to watch them all on the final day of the season`\
-https://nytimes.com/athletic/6331272/2025/05/03/luton-relegated-hull-derby-stoke-preston/
 
