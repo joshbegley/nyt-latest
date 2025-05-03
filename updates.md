@@ -1,3 +1,7 @@
+**Blue Jays sign Spencer Turnbull, bolstering pitching depth: Reports**\
+`Turnbull was one of the top remaining pitchers sitting in free agency.`\
+https://nytimes.com/athletic/6331083/2025/05/03/blue-jays-sign-spencer-turnbull/
+
 **The National Endowment for the Arts Begins Terminating Grants**\
 `The endowment told arts organizations that it was withdrawing or canceling current grants just hours after President Trump proposed eliminating the agency in the next fiscal year.`\
 https://nytimes.com/2025/05/03/arts/national-endowment-for-the-arts-grants.html
