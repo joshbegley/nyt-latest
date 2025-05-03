@@ -1,3 +1,7 @@
+**Tkachuk's injuries, Giroux's future and more: Sens end-of-season notebook**\
+`Also, a brief update on Nick Jensen's injury uncertainty, and Adam Gaudette and Travis Hamonic's futures with the organization.`\
+https://nytimes.com/athletic/6331104/2025/05/03/sens-postmortem-notebook-tkachuk/
+
 **From One Forest to Another: A Homeless Sweep Changes Little**\
 `Dozens of people forced to leave the Deschutes National Forest in Oregon set up camp nearby in different wooded areas.`\
 https://nytimes.com/2025/05/03/realestate/homeless-encampment-removal-forest-oregon.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6331151/2025/05/03/coco-gauff-madrid-open-aryna-sab
 **The Briefing: Arsenal 1 Bournemouth 2: Set-piece weakness exposed again in limp defeat**\
 `Analysing the big talking points from Saturday's Premier League game at Emirates Stadium`\
 https://nytimes.com/athletic/6320276/2025/05/03/arsenal-bournemouth-result-analysis/
-
-**How the Maple Leafs and Panthers are leaning on intel ahead of Round 2 matchup**\
-`By finishing off their opening-round opponents quickly, the Panthers and Leafs got an opportunity to rest and prepare for Round 2.`\
-https://nytimes.com/athletic/6331431/2025/05/03/toronto-maple-leafs-florida-panthers-intel-round-2/
 
