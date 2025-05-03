@@ -1,3 +1,19 @@
+**The National Endowment for the Arts Begins Terminating Grants**\
+`The endowment told arts organizations that it was withdrawing or canceling current grants just hours after President Trump proposed eliminating the agency in the next fiscal year.`\
+https://nytimes.com/2025/05/03/arts/national-endowment-for-the-arts-grants.html
+
+**Trump’s New Lows Are Basically Predictable**\
+`Why are plenty of people still surprised?`\
+https://nytimes.com/2025/05/03/opinion/trump-polls-popularity-dei.html
+
+**Hikers Stumble Upon a Pile of Gold Coins, Igniting a Historical Hunt**\
+`The discovery of coins and jewelry in the Czech Republic worth up to $680,000 raises a tantalizing mystery for historians and amateur sleuths: Who buried the treasure?`\
+https://nytimes.com/2025/05/03/world/europe/czech-treasure-gold-discovery.html
+
+**McLaren boss calls for F1 protest process change to stop ‘bogus allegations’**\
+`Brown had earlier poked fun at rivals Red Bull with a message on his water bottle at the Miami GP.`\
+https://nytimes.com/athletic/6331205/2025/05/03/mclaren-zak-brown-water-bottle-f1-protests/
+
 **Blue Jays bolster rotation depth, sign Spencer Turnbull**\
 `Turnbull was one of the top remaining pitchers sitting in free agency.`\
 https://nytimes.com/athletic/6331083/2025/05/03/blue-jays-sign-spencer-turnbull/

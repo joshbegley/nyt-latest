@@ -1,3 +1,19 @@
+**The National Endowment for the Arts Begins Terminating Grants**\
+`The endowment told arts organizations that it was withdrawing or canceling current grants just hours after President Trump proposed eliminating the agency in the next fiscal year.`\
+https://nytimes.com/2025/05/03/arts/national-endowment-for-the-arts-grants.html
+
+**Trump’s New Lows Are Basically Predictable**\
+`Why are plenty of people still surprised?`\
+https://nytimes.com/2025/05/03/opinion/trump-polls-popularity-dei.html
+
+**Hikers Stumble Upon a Pile of Gold Coins, Igniting a Historical Hunt**\
+`The discovery of coins and jewelry in the Czech Republic worth up to $680,000 raises a tantalizing mystery for historians and amateur sleuths: Who buried the treasure?`\
+https://nytimes.com/2025/05/03/world/europe/czech-treasure-gold-discovery.html
+
+**McLaren boss calls for F1 protest process change to stop ‘bogus allegations’**\
+`Brown had earlier poked fun at rivals Red Bull with a message on his water bottle at the Miami GP.`\
+https://nytimes.com/athletic/6331205/2025/05/03/mclaren-zak-brown-water-bottle-f1-protests/
+
 **Blue Jays bolster rotation depth, sign Spencer Turnbull**\
 `Turnbull was one of the top remaining pitchers sitting in free agency.`\
 https://nytimes.com/athletic/6331083/2025/05/03/blue-jays-sign-spencer-turnbull/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/05/03/insider/two-photos-of-the-hindenburg-disaster.htm
 **The Best Creamy, Nut-Free Seed Butters**\
 `Text by Katie Okamoto`\
 https://nytimes.com/card/2025/05/03/smarter-living/wirecutter/best-creamy-nut-free-seed-butters
-
-**What F1 fans at the track really think of the Miami Grand Prix**\
-`The Miami F1 race has a reputation for high ticket prices and fan controversy, so The Athletic asked 2025 attendees for their opinions`\
-https://nytimes.com/athletic/6330386/2025/05/03/f1-fans-miami-grand-prix-2025/
-
-**Leeds hit 100 points, pip Burnley to Championship title**\
-`Manor Solomon's 91st-minute goal at Plymouth Argyle on the season's final day saw them stay above Burnley on goal difference.`\
-https://nytimes.com/athletic/6301875/2025/05/03/leeds-championship-title-winners-burnley/
-
-**The Pulse: They're not even full strength yet**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6330633/2025/05/03/new-york-mets-season-the-pulse/
-
-**USMNT's Dike scores first goal in 483 days**\
-`Dike has missed much of the last two years through injury and ended his barren spell by scoring for West Bromwich Albion against Luton Town.`\
-https://nytimes.com/athletic/6330983/2025/05/03/daryl-dike-goal-usmnt-west-brom/
 
