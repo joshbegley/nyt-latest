@@ -1,3 +1,11 @@
+**Padres' Fernando Tatis Jr. leaves game after pitch hits left forearm**\
+`Tatis' arm showed visible swelling after getting hit by a 93 mph fastball from Pirates starter Mitch Keller.`\
+https://nytimes.com/athletic/6330458/2025/05/02/padres-fernando-tatis-jr-injury-hit-by-pitch/
+
+**Made Using Traditional Methods**\
+`Michael Lieberman presents a classic Saturday challenge.`\
+https://nytimes.com/2025/05/02/crosswords/daily-puzzle-2025-05-03.html
+
 **University of California’s New President Will Come From Texas**\
 `James B. Milliken will lead the California system, relinquishing his position as the chancellor of the University of Texas system.`\
 https://nytimes.com/2025/05/02/us/university-of-california-president.html

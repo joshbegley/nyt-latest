@@ -1,3 +1,7 @@
+**2 Planes Abort Landings as Army Helicopter Flies Near D.C. Airport**\
+`The episode followed a fatal collision between a military helicopter and a commercial jet in January, and prompted concern and outrage among officials.`\
+https://nytimes.com/2025/05/02/us/politics/reagan-washington-national-airport-helicopter.html
+
 **Padres' Fernando Tatis Jr. leaves game after pitch hits left forearm**\
 `Tatis' arm showed visible swelling after getting hit by a 93 mph fastball from Pirates starter Mitch Keller.`\
 https://nytimes.com/athletic/6330458/2025/05/02/padres-fernando-tatis-jr-injury-hit-by-pitch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6330383/2025/05/02/triston-casas-injury-stretcher-r
 **Before the Fire, L.A. Tried to Restore Second Reservoir in Palisades**\
 `Water supplies ran dry in the Pacific Palisades fire, in part because a reservoir was shut down for repairs. Records show the city had tried and failed to prepare an alternative reservoir.`\
 https://nytimes.com/2025/05/02/us/palisades-fire-reservoir-water-los-angeles.html
-
-**WNBA preseason watch guide: Paige Bueckers' debut, two looks at Caitlin Clark and Fever**\
-`The WNBA teases its official return with some preseason looks. Paige Bueckers debuts for Dallas; Caitlin Clark plays Saturday and Sunday.`\
-https://nytimes.com/athletic/6329637/2025/05/02/wnba-preseason-bueckers-clark-how-to-watch/
 
