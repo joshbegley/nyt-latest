@@ -1,3 +1,12 @@
+**Seven starts into his Phillies career, Jesús Luzardo keeps impressing**\
+`"Every time he's on the mound, I feel relieved," Max Kepler said. "He goes out and does his thing. … I'm glad he's on our team."`\
+https://nytimes.com/athletic/6330573/2025/05/02/jesus-luzardo-phillies-keeps-impressing/
+
+**Blues chase Connor Hellebuyck, rout Jets to force Game 7: Takeaways**\
+`Hellebuyck was pulled for the third consecutive game in St. Louis after allowing five goals on 23 shots in the Blues' 5-2 Game 6 win.
+`\
+https://nytimes.com/athletic/6330053/2025/05/02/blues-jets-nhl-playoffs-2025-game-6-takeaways/
+
 **Blues chase Connor Hellebuyck, rout Jets to force Game 7: Takeaways**\
 `Hellebuyck was pulled for the third consecutive game in St. Louis after allowing five goals on 23 shots in the Blues' 5-2 Game 6 win.
 `\

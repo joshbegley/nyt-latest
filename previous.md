@@ -1,3 +1,7 @@
+**Seven starts into his Phillies career, Jesús Luzardo keeps impressing**\
+`"Every time he's on the mound, I feel relieved," Max Kepler said. "He goes out and does his thing. … I'm glad he's on our team."`\
+https://nytimes.com/athletic/6330573/2025/05/02/jesus-luzardo-phillies-keeps-impressing/
+
 **Blues chase Connor Hellebuyck, rout Jets to force Game 7: Takeaways**\
 `Hellebuyck was pulled for the third consecutive game in St. Louis after allowing five goals on 23 shots in the Blues' 5-2 Game 6 win.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6330410/2025/05/02/blue-jays-gm-ross-atkins-offence
 **Masai Russell sets U.S. record in 100m hurdles, gives jolt to Grand Slam Track**\
 `The Olympic champion finished in 12.17 seconds Friday in Florida, the second-fastest time in world history.`\
 https://nytimes.com/athletic/6330363/2025/05/02/masai-russell-100-meter-hurdles-american-record-grand-slam-track/
-
-**Trump Considers Executive Order on College Athlete Payments**\
-`College athletes have signed deals worth millions of dollars since the N.C.A.A. allowed student-athletes to become paid endorsers.`\
-https://nytimes.com/2025/05/02/us/politics/trump-college-athlete-payments.html
 
