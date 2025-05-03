@@ -30,11 +30,11 @@ https://nytimes.com/2025/05/03/opinion/sinners-ryan-coogler-devil-contract.html
 `Spain’s blackout showed us how much community matters.`\
 https://nytimes.com/2025/05/03/opinion/spain-portugal-blackout.html
 
+**What can we learn from Gregg Popovich about leadership? Our 4 favorite lessons**\
+`Gregg Popovich stepped down from his coaching duties, leaving behind leadership lessons anyone can learn from.`\
+https://nytimes.com/athletic/6330311/2025/05/03/what-can-we-learn-from-gregg-popovich-about-leadership-our-4-favorite-lessons/
+
 **We Should Play the Constitution Like a Piano**\
 `Classical musicians have a lot to teach interpreters of the U.S. Constitution. It’s so much more than the text.`\
 https://nytimes.com/2025/05/03/opinion/constitution-supreme-court-classical-music.html
-
-**Prozac Is Nearly 40 Years Old. Why Are There Still Unanswered Questions?**\
-`Harm from these drugs is real. Let’s not cede the conversation to Kennedy.`\
-https://nytimes.com/2025/05/03/opinion/antidepressants-withdrawal-rfk.html
 
