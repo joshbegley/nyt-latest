@@ -1,3 +1,15 @@
+**Who Would Steal New York City’s Pigeons? Mother Pigeon Thought She Knew.**\
+`Pigeon lovers protest at a pet store. The pet store owners say they are innocent. And still the flocks seem to be shrinking without explanation.`\
+https://nytimes.com/2025/05/03/nyregion/who-would-steal-new-york-citys-pigeons-mother-pigeon-thought-she-knew.html
+
+**How Stacy London Spends Her Sundays**\
+`Ms. London, the former co-host of “What Not to Wear,” goes shopping, of course. But she also has a latte with friends and spends time with her dog, Dora.`\
+https://nytimes.com/2025/05/03/nyregion/stacy-london-what-not-to-wear.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/05/03/crosswords/spelling-bee-forum.html
+
 **Wolves 'celebrated' after their loss to Man City. This is why it wasn't weird**\
 `Wolves lost to Manchester City but their post-match actions were out of the norm`\
 https://nytimes.com/athletic/6330224/2025/05/03/wolves-celebrate-manchester-city-vitor-pereira/

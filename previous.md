@@ -1,3 +1,15 @@
+**Who Would Steal New York City’s Pigeons? Mother Pigeon Thought She Knew.**\
+`Pigeon lovers protest at a pet store. The pet store owners say they are innocent. And still the flocks seem to be shrinking without explanation.`\
+https://nytimes.com/2025/05/03/nyregion/who-would-steal-new-york-citys-pigeons-mother-pigeon-thought-she-knew.html
+
+**How Stacy London Spends Her Sundays**\
+`Ms. London, the former co-host of “What Not to Wear,” goes shopping, of course. But she also has a latte with friends and spends time with her dog, Dora.`\
+https://nytimes.com/2025/05/03/nyregion/stacy-london-what-not-to-wear.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/05/03/crosswords/spelling-bee-forum.html
+
 **Wolves 'celebrated' after their loss to Man City. This is why it wasn't weird**\
 `Wolves lost to Manchester City but their post-match actions were out of the norm`\
 https://nytimes.com/athletic/6330224/2025/05/03/wolves-celebrate-manchester-city-vitor-pereira/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6330596/2025/05/03/angel-reese-hailey-van-lith-chic
 **The Olympic gold medal-winning boxer who turned to politics with a right-wing British party**\
 `Luke Campbell claimed Olympic gold and had two world title fights. He has won a mayoral election despite claiming not to 'care for politics'`\
 https://nytimes.com/athletic/6330034/2025/05/03/luke-campbell-mayor-hull-reform/
-
-**Jakub Kiwior: The unlikely rise of Arsenal's introverted 'warrior'**\
-`Kiwior has never been one to make a big noise but, as he plays a key role for Arsenal, he has become living proof that talk is cheap`\
-https://nytimes.com/athletic/6298666/2025/05/03/jakub-kiwior-arsenal-poland-spezia-champions-league/
-
-**The 'ghost goal' that haunts Mourinho 20 years on - by those who were there**\
-`How one of the Champions League's most dramatic nights, and controversial moments, unfolded in 2005`\
-https://nytimes.com/athletic/6328736/2025/05/03/liverpool-chelsea-ghost-goal/
-
-**NBA playoffs takeaways: Rockets silence Warriors offense, force Game 7**\
-`The series returns to Houston for a winner-take-all Game 7 on Sunday.`\
-https://nytimes.com/athletic/6330589/2025/05/03/nba-playoffs-scores-takeaways-warriors-rockets/
 
