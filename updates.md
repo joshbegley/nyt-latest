@@ -1,3 +1,7 @@
+**Before the Fire, L.A. Tried to Restore Second Reservoir in Palisades**\
+`Water supplies ran dry in the Pacific Palisades fire, in part because a reservoir was shut down for repairs. Records show the city had tried and failed to prepare an alternative reservoir.`\
+https://nytimes.com/2025/05/02/us/palisades-fire-reservoir-water-los-angeles.html
+
 **WNBA preseason watch guide: Paige Bueckers' debut, two looks at Caitlin Clark and Fever**\
 `The WNBA teases its official return with some preseason looks. Paige Bueckers debuts for Dallas; Caitlin Clark plays Saturday and Sunday.`\
 https://nytimes.com/athletic/6329637/2025/05/02/wnba-preseason-bueckers-clark-how-to-watch/
