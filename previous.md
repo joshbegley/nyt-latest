@@ -1,3 +1,7 @@
+**Blue Jays bolster rotation depth, sign Spencer Turnbull**\
+`Turnbull was one of the top remaining pitchers sitting in free agency.`\
+https://nytimes.com/athletic/6331083/2025/05/03/blue-jays-sign-spencer-turnbull/
+
 **Trump Posts an Image of Himself as Pope**\
 `The president has joked about being the next pontiff, but the image, which appeared to be A.I.-generated, took things a step further and drew some pushback.`\
 https://nytimes.com/2025/05/03/us/politics/trump-pope-photo.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6330633/2025/05/03/new-york-mets-season-the-pulse/
 **USMNT's Dike scores first goal in 483 days**\
 `Dike has missed much of the last two years through injury and ended his barren spell by scoring for West Bromwich Albion against Luton Town.`\
 https://nytimes.com/athletic/6330983/2025/05/03/daryl-dike-goal-usmnt-west-brom/
-
-**Rockets have forced Game 7 vs. Warriors by being themselves. Now they need 'one more'**\
-`"(I'm) just trying to squeeze as much juice out of this group as possible," Rockets veteran Fred VanVleet says. `\
-https://nytimes.com/athletic/6330710/2025/05/03/rockets-fred-vanvleet-warriors-game-7/
 

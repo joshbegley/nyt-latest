@@ -1,3 +1,7 @@
+**Blue Jays bolster rotation depth, sign Spencer Turnbull**\
+`Turnbull was one of the top remaining pitchers sitting in free agency.`\
+https://nytimes.com/athletic/6331083/2025/05/03/blue-jays-sign-spencer-turnbull/
+
 **Trump Posts an Image of Himself as Pope**\
 `The president has joked about being the next pontiff, but the image, which appeared to be A.I.-generated, took things a step further and drew some pushback.`\
 https://nytimes.com/2025/05/03/us/politics/trump-pope-photo.html
