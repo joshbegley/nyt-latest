@@ -1,3 +1,7 @@
+**Arsenal's Timber a doubt for PSG second leg, Arteta confirms**\
+`Timber missed Saturday's defeat to Bournemouth through injury.`\
+https://nytimes.com/athletic/6331572/2025/05/03/jurrien-timber-injury-update-arsenal-psg/
+
 **Trump Administration Sues Colorado and Denver Over Immigration Policies**\
 `The lawsuit, which names the governor and mayor as defendants, is the latest move by the White House to try to get local governments to cooperate more with its immigration agenda.`\
 https://nytimes.com/2025/05/03/us/politics/trump-colorado-denver-lawsuit-immigration.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/03/us/politics/voice-of-america-reporters-trump.html
 **Relegation, relief and 'rubbish': A day on the brink in the Championship**\
 `Five clubs were fighting to stay in the second tier - so The Athletic went to watch them all on the final day of the season`\
 https://nytimes.com/athletic/6331272/2025/05/03/luton-relegated-hull-derby-stoke-preston/
-
-**Oil Prices Are Falling. Here’s Where That Could Spell Trouble.**\
-`For countries that depend heavily on oil revenue, dropping prices are worrisome.`\
-https://nytimes.com/2025/05/03/world/europe/oil-prices-tariffs.html
 
