@@ -1,3 +1,7 @@
+**Max Verstappen on pole for Miami Grand Prix as Lewis Hamilton's woes continue**\
+`Max Verstappen takes pole with a sensational lap, while Kimi Antonelli continues to impress this weekend`\
+https://nytimes.com/athletic/6331592/2025/05/03/miami-grand-prix-qualifying-sprint-2025-result/
+
 **Brady Tkachuk's injuries, Claude Giroux's future and more: Senators end-of-season notebook**\
 `Also, an update on Nick Jensen's injury uncertainty, and Adam Gaudette's and Travis Hamonic's futures with the organization.`\
 https://nytimes.com/athletic/6331104/2025/05/03/senators-postmortem-notebook-tkachuk/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/03/style/kentucky-derby-2025-hats.html
 **Aryna Sabalenka beats Coco Gauff to regain Madrid Open title**\
 `Sabalenka reeled Gauff back in from a break down in the second set to take the title in the Spanish capital.`\
 https://nytimes.com/athletic/6331151/2025/05/03/coco-gauff-madrid-open-aryna-sabalenka-result-analysis/
-
-**The Briefing: Arsenal 1 Bournemouth 2: Set-piece weakness exposed again in limp defeat**\
-`Analysing the big talking points from Saturday's Premier League game at Emirates Stadium`\
-https://nytimes.com/athletic/6320276/2025/05/03/arsenal-bournemouth-result-analysis/
 

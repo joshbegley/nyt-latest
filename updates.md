@@ -1,3 +1,7 @@
+**Max Verstappen on pole for Miami Grand Prix as Lewis Hamilton's woes continue**\
+`Max Verstappen takes pole with a sensational lap, while Kimi Antonelli continues to impress this weekend`\
+https://nytimes.com/athletic/6331592/2025/05/03/miami-grand-prix-qualifying-sprint-2025-result/
+
 **Brady Tkachuk's injuries, Claude Giroux's future and more: Senators end-of-season notebook**\
 `Also, an update on Nick Jensen's injury uncertainty, and Adam Gaudette's and Travis Hamonic's futures with the organization.`\
 https://nytimes.com/athletic/6331104/2025/05/03/senators-postmortem-notebook-tkachuk/
