@@ -1,3 +1,7 @@
+**Voice of America Reporters Are Set to Return to Work**\
+`President Trump has accused Voice of America of being biased against him. In March, he issued an executive order to dismantle the agency that finances the international news outlet.`\
+https://nytimes.com/2025/05/03/us/politics/voice-of-america-reporters-trump.html
+
 **Caitlin Clark out of Fever's preseason opener vs. Mystics with leg injury**\
 `Clark popped up on the injury report Friday, and before Saturday’s game she described the injury as “just a little tightness” in her leg.`\
 https://nytimes.com/athletic/6331436/2025/05/03/caitlin-clark-fever-mystics-preseason-leg-injury/
