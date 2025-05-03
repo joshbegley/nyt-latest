@@ -1,3 +1,11 @@
+**2 Books to Read Instead of Meditating**\
+`A gentle and clever comic novel; a poetic and tender essay on addiction.`\
+https://nytimes.com/2025/05/03/books/read-like-wind-recommendations.html
+
+**The Movie Deal That Made Hollywood Lose Its Mind**\
+`The obsession with a Black director’s ownership package reflects the themes of his film.`\
+https://nytimes.com/2025/05/03/opinion/sinners-ryan-coogler-devil-contract.html
+
 **Crystal Palace vs Man City FA Cup final kick-off time confirmed**\
 `The showpiece game has traditionally been played at 3pm although the kick-off time has been switched in recent years.`\
 https://nytimes.com/athletic/6330905/2025/05/03/fa-cup-final-kick-off-time-man-city-crystal-palace/
