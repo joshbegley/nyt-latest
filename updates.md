@@ -1,3 +1,11 @@
+**‘We’re All in One Ship’: Druse in Syrian Town Rocked by Violence Agree to Disarm Militias**\
+`After this week’s bloodshed, Druse leaders in Ashrafieh Sahnaya agreed to integrate militia fighters into government forces. But some residents remain wary.`\
+https://nytimes.com/2025/05/03/world/middleeast/syria-druse-sectarian-violence.html
+
+**Can the Blues bottle up what they've done at home and win Game 7 in Winnipeg?**\
+`The Blues are 3-0 at home in their series and 0-3 on the road. They'll need a victory in Game 7 on the road to advance.`\
+https://nytimes.com/athletic/6330352/2025/05/03/nhl-playoffs-blues-home-win-game-7/
+
 **Tylor Megill asked to be yelled at, now he's earning cheers**\
 `By pitching smarter, Megill epitomizes all that’s working on the pitching side for the Mets.`\
 https://nytimes.com/athletic/6330506/2025/05/03/mets-tylor-megill-tough-love/
