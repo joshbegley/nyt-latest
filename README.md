@@ -1,3 +1,15 @@
+**Angel Reese, Hailey Van Lith honored ahead of Chicago Sky preseason opener**\
+`Reese and her fellow LSU-turned-Sky teammate Van Lith were given flowers before the homecoming exhibition.`\
+https://nytimes.com/athletic/6330596/2025/05/03/angel-reese-hailey-van-lith-chicago-sky-lsu/
+
+**The Olympic gold medal-winning boxer who turned to politics with a right-wing British party**\
+`Luke Campbell claimed Olympic gold and had two world title fights. He has won a mayoral election despite claiming not to 'care for politics'`\
+https://nytimes.com/athletic/6330034/2025/05/03/luke-campbell-mayor-hull-reform/
+
+**Jakub Kiwior: The unlikely rise of Arsenal's introverted 'warrior'**\
+`Kiwior has never been one to make a big noise but, as he plays a key role for Arsenal, he has become living proof that talk is cheap`\
+https://nytimes.com/athletic/6298666/2025/05/03/jakub-kiwior-arsenal-poland-spezia-champions-league/
+
 **The 'ghost goal' that haunts Mourinho 20 years on - by those who were there**\
 `How one of the Champions League's most dramatic nights, and controversial moments, unfolded in 2005`\
 https://nytimes.com/athletic/6328736/2025/05/03/liverpool-chelsea-ghost-goal/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6326501/2025/05/03/annoying-foul-football-saka-mend
 **Yoshinobu Yamamoto flirts with no-hitter in latest dominant start**\
 `Amid the Dodgers’ rotation uncertainty, Yamamoto has been a beacon of hope.`\
 https://nytimes.com/athletic/6330611/2025/05/03/dodgers-yoshinobu-yamamoto-mlb/
-
-**Romeo Lavia: Chelsea's injury-hit one-time Liverpool target who could be crucial for run-in**\
-`Romeo Lavia has struggled for fitness at Chelsea, but few players are more important to Enzo Maresca's preferred system`\
-https://nytimes.com/athletic/6327210/2025/05/03/romeo-lavia-chelsea-liverpool-analysis/
-
-**Trump’s Tariff on Cheap Chinese Imports Will Cost Big Tech Billions**\
-`For Meta, Alphabet and other platforms, the elimination of the tariff exemption for inexpensive goods is already cutting into advertising revenue.`\
-https://nytimes.com/2025/05/03/business/china-tariffs-temu-shein.html
-
-**Quote of the Day: Man of 200 Snake Bites May Be the Antivenom**\
-`Quotation of the Day for Saturday, May 3, 2025.`\
-https://nytimes.com/2025/05/03/pageoneplus/quote-of-the-day-man-of-200-snake-bites-may-be-the-antivenom.html
 
