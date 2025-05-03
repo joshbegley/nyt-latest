@@ -1,40 +1,40 @@
-**‘We’re All in One Ship’: Druse in Syrian Town Rocked by Violence Agree to Disarm Militias**\
-`After this week’s bloodshed, Druse leaders in Ashrafieh Sahnaya agreed to integrate militia fighters into government forces. But some residents remain wary.`\
-https://nytimes.com/2025/05/03/world/middleeast/syria-druse-sectarian-violence.html
+**Heidenheim goalkeeper Muller treated in hospital after head injury**\
+`The Bundesliga match was stopped for 11 minutes after Muller collided with Bochum midfielder Ibrahima Sissoko while punching the ball clear.`\
+https://nytimes.com/athletic/6330040/2025/05/03/kevin-muller-heidenheim-goalkeeper-head-injury/
 
-**Can the Blues bottle up what they've done at home and win Game 7 in Winnipeg?**\
-`The Blues are 3-0 at home in their series and 0-3 on the road. They'll need a victory in Game 7 on the road to advance.`\
-https://nytimes.com/athletic/6330352/2025/05/03/nhl-playoffs-blues-home-win-game-7/
+**2025 NHL playoff preview: Toronto Maple Leafs vs. Florida Panthers**\
+`The Maple Leafs haven’t made it to Round 3 in 23 years, and it will be a grind to change that against the Florida Panthers.`\
+https://nytimes.com/athletic/6329948/2025/05/03/nhl-playoffs-preview-toronto-maple-leafs-vs-florida-panthers/
 
-**Tylor Megill asked to be yelled at, now he's earning cheers**\
-`By pitching smarter, Megill epitomizes all that’s working on the pitching side for the Mets.`\
-https://nytimes.com/athletic/6330506/2025/05/03/mets-tylor-megill-tough-love/
+**LeBrun: Avalanche vs. Stars isn’t your run-of-the-mill Game 7: ‘You play for your life’**\
+`The best series of the opening round is going the distance, and the winner of Saturday night's Game 7 ought to get a title belt.`\
+https://nytimes.com/athletic/6329808/2025/05/03/stars-avalanche-nhl-playoffs-2025-game-7/
 
-**Eli White making most of Braves opportunity, but Ronald Acuña Jr. will be back**\
-`Acuña hasn't begun a minor-league rehab assignment, so it appears White has at least a few more weeks to show his skills.`\
-https://nytimes.com/athletic/6330526/2025/05/03/braves-eli-white-ronald-acuna/
+**Why Mike Sullivan's former players believe Rangers will be 'a perfect scenario for him'**\
+`Matt Cullen: "He was super direct, and it didn’t matter if you were Sid or a guy on the fourth line, the expectations were super clear."`\
+https://nytimes.com/athletic/6330198/2025/05/03/mike-sullivan-former-players-rangers/
 
-**Cardinal Parolin, Leader of Papal Conclave, Is Also a Top Candidate**\
-`Cardinals have talked about Cardinal Pietro Parolin, the Vatican secretary of state, as someone who could have a steady, bureaucratic hand on the church’s wheel.`\
-https://nytimes.com/2025/05/03/world/europe/pope-conclave-cardinal-pietro-parolin.html
+**Someone Should Tell Trump He’s About to Make the Trade Deficit Worse**\
+`This is the one thing all economists agree on.`\
+https://nytimes.com/2025/05/03/opinion/trump-budget-trade-deficit.html
 
-**Memory Palace**\
-`Memorizing a poem is like taking a work of art that you love and letting it live and bloom inside of you.`\
-https://nytimes.com/2025/05/03/briefing/memory-palace.html
+**The best Jayden Daniels rookie cards to collect**\
+`The 2024 NFL offensive rookie of the year has a treasure trove of rookie cards to choose from. `\
+https://nytimes.com/athletic/6329393/2025/05/03/jayden-daniels-rookie-card-guide/
 
-**Inside JJ Redick's first year as Lakers coach: 'I know I will get better'**\
-`Mic drops, bold lineup decisions and a massive midseason trade highlighted Redick's debut season, which ended in an early playoff exit.`\
-https://nytimes.com/athletic/6328130/2025/05/03/jj-redick-lakers-first-year-playoffs/
+**Ryan Coogler’s ‘Sinners’ and the Art of the Deal With the Devil**\
+`The obsession with a Black director’s ownership package reflects the themes of his film.`\
+https://nytimes.com/2025/05/03/opinion/sinners-ryan-coogler-devil-contract.html
 
-**Reading takeover agreed in principle**\
-`Should the takeover proceed as planned it will end Dai Yongge's controversial eight-year ownership of the club.`\
-https://nytimes.com/athletic/6330818/2025/05/03/reading-takeover-sale-rob-couhig-dai-yongge/
+**In the Dark, We Found Joy**\
+`Spain’s blackout showed us how much community matters.`\
+https://nytimes.com/2025/05/03/opinion/spain-portugal-blackout.html
 
-**Mikal Bridges is giving Knicks physicality: 'People thought I stopped playing' defense**\
-`Bridges “for sure” agrees he’s played his best defense of the season over the past six games. It comes at a time when the Knicks need it.`\
-https://nytimes.com/athletic/6330407/2025/05/03/mikal-bridges-defense-knicks-celtics-nba-playoffs/
+**What can we learn from Gregg Popovich about leadership? Our 4 favorite lessons**\
+`Gregg Popovich stepped down from his coaching duties, leaving behind leadership lessons anyone can learn from.`\
+https://nytimes.com/athletic/6330311/2025/05/03/what-can-we-learn-from-gregg-popovich-about-leadership-our-4-favorite-lessons/
 
-**After Leading a Liberal Comeback, Carney Hits the Ground Running**\
-`The prime minister will begin broad economic and security talks with President Trump next week and has set a timetable for his new government.`\
-https://nytimes.com/2025/05/03/world/canada/carney-new-government.html
+**We Should Play the Constitution Like a Piano**\
+`Classical musicians have a lot to teach interpreters of the U.S. Constitution. It’s so much more than the text.`\
+https://nytimes.com/2025/05/03/opinion/constitution-supreme-court-classical-music.html
 
