@@ -1,3 +1,19 @@
+**We reviewed Yankee Stadium’s Austin Wells-inspired burrito so you don’t have to**\
+`At $12.28, The Wells Favvurito isn’t exorbitant by stadium standards, but it falls short of being filling`\
+https://nytimes.com/athletic/6331716/2025/05/03/yankees-austin-wells-breakfast-burrito/
+
+**Pierre Audi, Eminent Force in the Performing Arts, Dies at 67**\
+`After turning a derelict lecture hall into the daring Almeida Theater, he had a long career as a director and impresario in Europe and New York.`\
+https://nytimes.com/2025/05/03/arts/music/pierre-audi-dead.html
+
+**Force Play**\
+`Brandon Koppy’s puzzle sends us to space, and it’s a little crowded.`\
+https://nytimes.com/2025/05/03/crosswords/daily-puzzle-2025-05-04.html
+
+**Poised to Expand Gaza Offensive, Israel Calls Up Thousands of Reserve Soldiers**\
+`The mobilization could indicate that Israel is preparing to shift its tactics in its fight against Hamas.`\
+https://nytimes.com/2025/05/03/world/middleeast/israel-mobilizes-reservists-gaza.html
+
 **The Best Hats at the Kentucky Derby**\
 `From traditional hats to fascinators and headdresses, the best looks at the 151st running of America’s most fashionable sporting event.`\
 https://nytimes.com/2025/05/03/style/kentucky-derby-2025-hats.html
