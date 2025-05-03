@@ -1,3 +1,7 @@
+**Hurzeler trying to avoid 'distracting' talk of European qualification at Brighton**\
+`The German head coach believes it has been a distraction to the underlying quest for continued improvement at the club.`\
+https://nytimes.com/athletic/6326429/2025/05/03/brighton-hurzeler-european-qualification/
+
 **Who Would Steal New York City’s Pigeons? Mother Pigeon Thought She Knew.**\
 `Pigeon lovers protest at a pet store. The pet store owners say they are innocent. And still the flocks seem to be shrinking without explanation.`\
 https://nytimes.com/2025/05/03/nyregion/who-would-steal-new-york-citys-pigeons-mother-pigeon-thought-she-knew.html
