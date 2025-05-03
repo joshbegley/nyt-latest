@@ -1,3 +1,7 @@
+**Blue Jays GM Ross Atkins talks under-performing offence, pitching moves and more**\
+`The Blue Jays made a real effort at change this offseason. So far, the runs haven't come.`\
+https://nytimes.com/athletic/6330410/2025/05/02/blue-jays-gm-ross-atkins-offence-pitching/
+
 **Masai Russell sets U.S. record in 100m hurdles, gives jolt to Grand Slam Track**\
 `The Olympic champion finished in 12.17 seconds Friday in Florida, the second-fastest time in world history.`\
 https://nytimes.com/athletic/6330363/2025/05/02/masai-russell-100-meter-hurdles-american-record-grand-slam-track/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6330326/2025/05/02/canadiens-nhl-playoffs-suzuki-sl
 **Trump talks with Saban, considers executive order on paying college athletes**\
 `Donald Trump and Nick Saban reportedly met Thursday night after the president gave the commencement address at Alabama.`\
 https://nytimes.com/athletic/6330290/2025/05/02/donald-trump-executive-order-paying-college-athletes-nick-saban/
-
-**Wisconsin Governor Says He’s ‘Not Afraid’ After Warning on Immigration Policies**\
-`Thomas Homan, the border czar, had said, “Wait to see what’s coming,” when asked about guidance sent to state workers about interacting with ICE agents.`\
-https://nytimes.com/2025/05/02/us/wisconsin-governor-tony-evers-homan.html
 
