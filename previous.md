@@ -1,3 +1,11 @@
+**Tylor Megill asked to be yelled at, now he's earning cheers**\
+`By pitching smarter, Megill epitomizes all that’s working on the pitching side for the Mets.`\
+https://nytimes.com/athletic/6330506/2025/05/03/mets-tylor-megill-tough-love/
+
+**Eli White making most of Braves opportunity, but Ronald Acuña Jr. will be back**\
+`Acuña hasn't begun a minor-league rehab assignment, so it appears White has at least a few more weeks to show his skills.`\
+https://nytimes.com/athletic/6330526/2025/05/03/braves-eli-white-ronald-acuna/
+
 **Cardinal Parolin, Leader of Papal Conclave, Is Also a Top Candidate**\
 `Cardinals have talked about Cardinal Pietro Parolin, the Vatican secretary of state, as someone who could have a steady, bureaucratic hand on the church’s wheel.`\
 https://nytimes.com/2025/05/03/world/europe/pope-conclave-cardinal-pietro-parolin.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/03/crosswords/wordle-review-1415.html
 **Connections Companion No. 693**\
 `Scroll down for hints and conversation about the puzzle for Sunday, May 4, 2025.`\
 https://nytimes.com/2025/05/03/crosswords/connections-companion-693.html
-
-**What can the Negro Leagues teach us about leadership and passion? This man thinks a lot**\
-`Bob Kendrick, the president of the Negro Leagues Baseball Museum, believes the past is alive with valuable lessons for us to carry on today.`\
-https://nytimes.com/athletic/6329264/2025/05/03/what-can-the-negro-leagues-teach-us-about-leadership-and-passion-this-man-thinks-a-lot/
-
-**These Contentious Issues Could Determine Who Becomes the Next Pope**\
-`As cardinals gather to elect Pope Francis’ successor, they are facing debates over whether the church most needs change or constancy.`\
-https://nytimes.com/2025/05/03/world/europe/pope-conclave-contentious-issues.html
 

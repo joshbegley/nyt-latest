@@ -1,3 +1,11 @@
+**Tylor Megill asked to be yelled at, now he's earning cheers**\
+`By pitching smarter, Megill epitomizes all that’s working on the pitching side for the Mets.`\
+https://nytimes.com/athletic/6330506/2025/05/03/mets-tylor-megill-tough-love/
+
+**Eli White making most of Braves opportunity, but Ronald Acuña Jr. will be back**\
+`Acuña hasn't begun a minor-league rehab assignment, so it appears White has at least a few more weeks to show his skills.`\
+https://nytimes.com/athletic/6330526/2025/05/03/braves-eli-white-ronald-acuna/
+
 **Cardinal Parolin, Leader of Papal Conclave, Is Also a Top Candidate**\
 `Cardinals have talked about Cardinal Pietro Parolin, the Vatican secretary of state, as someone who could have a steady, bureaucratic hand on the church’s wheel.`\
 https://nytimes.com/2025/05/03/world/europe/pope-conclave-cardinal-pietro-parolin.html
