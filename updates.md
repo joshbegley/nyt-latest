@@ -1,4 +1,8 @@
 **Blue Jays sign Turnbull, Ureña to bolster pitching depth**\
+`If Toronto needs to dip further down the depth chart for starts, the two new additions could soon be options.`\
+https://nytimes.com/athletic/6331083/2025/05/03/blue-jays-sign-spencer-turnbull/
+
+**Blue Jays sign Turnbull, Ureña to bolster pitching depth**\
 `Turnbull was one of the top remaining pitchers sitting in free agency.`\
 https://nytimes.com/athletic/6331083/2025/05/03/blue-jays-sign-spencer-turnbull/
 
