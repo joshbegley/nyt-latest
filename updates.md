@@ -1,3 +1,7 @@
+**How Toronto Maple Leafs, Florida Panthers are leaning on intel ahead of Round 2 matchup**\
+`By finishing off their opening-round opponents quickly, the Panthers and Leafs got an opportunity to rest and prepare for Round 2.`\
+https://nytimes.com/athletic/6331431/2025/05/03/toronto-maple-leafs-florida-panthers-intel-round-2/
+
 **Voice of America Reporters Are Set to Return to Work**\
 `President Trump has accused Voice of America of being biased against him. In March, he issued an executive order to dismantle the agency that finances the international news outlet.`\
 https://nytimes.com/2025/05/03/us/politics/voice-of-america-reporters-trump.html
