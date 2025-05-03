@@ -1,3 +1,7 @@
+**Why OPEC Plus Is Increasing Oil Supplies Despite Falling Prices**\
+`The group agreed to raise output in June, a sign that Saudi Arabia and its allies appear to be weary of cutting output and may be trying to appease President Trump, who has pushed for lower prices.`\
+https://nytimes.com/2025/05/03/business/opec-plus-oil-production-trump.html
+
 **Seahawks rookie camp Day 1: Jalen Milroe takeaways**\
 `"The way he throws the ball, the way he moves, he has a chance to be an elite quarterback at the highest level," Elijah Arroyo said.`\
 https://nytimes.com/athletic/6330319/2025/05/03/seahawks-rookie-camp-day-1-jalen-milroe/
