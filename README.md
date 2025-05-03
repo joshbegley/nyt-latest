@@ -1,3 +1,7 @@
+**After staggering Game 6 loss to Rockets, Warriors express belief: 'The real always rise'**\
+`A game-changing play led to what could become a season-altering (and potentially franchise-shifting) loss for the Warriors.`\
+https://nytimes.com/athletic/6330487/2025/05/03/warriors-rockets-nba-playoffs-game-6/
+
 **Why OPEC Plus Is Increasing Oil Supplies Despite Falling Prices**\
 `The group agreed to raise output in June, a sign that Saudi Arabia and its allies appear to be weary of cutting output and may be trying to appease President Trump, who has pushed for lower prices.`\
 https://nytimes.com/2025/05/03/business/opec-plus-oil-production-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/03/books/read-like-wind-recommendations.html
 **Crystal Palace vs Man City FA Cup final kick-off time confirmed**\
 `The showpiece game has traditionally been played at 3pm although the kick-off time has been switched in recent years.`\
 https://nytimes.com/athletic/6330905/2025/05/03/fa-cup-final-kick-off-time-man-city-crystal-palace/
-
-**Another Hellebuyck letdown, an implosion in front of him — and a chance to make it all right in Game 7**\
-`The results of one game don't usually define a player's postseason legacy. For Connor Hellebuyck, Game 7 against St. Louis will come close.`\
-https://nytimes.com/athletic/6330387/2025/05/03/nhl-playoffs-winnipeg-jets-game-6/
 
