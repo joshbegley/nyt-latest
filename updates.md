@@ -1,3 +1,7 @@
+**Caitlin Clark out of Fever's preseason opener vs. Mystics with leg injury**\
+`Clark popped up on the injury report Friday, and before Saturday’s game she described the injury as “just a little tightness” in her leg.`\
+https://nytimes.com/athletic/6331436/2025/05/03/caitlin-clark-fever-mystics-preseason-leg-injury/
+
 **Caitlin Clark out of Fever's preseason opener vs. Mystics due to leg injury**\
 `Clark popped up on the injury report Friday, and before Saturday’s game she described the injury as “just a little tightness” in her leg.`\
 https://nytimes.com/athletic/6331436/2025/05/03/caitlin-clark-fever-mystics-preseason-leg-injury/

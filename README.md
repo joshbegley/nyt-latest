@@ -8,7 +8,7 @@ https://nytimes.com/athletic/6318063/2025/05/03/wrexham-promotion-reynolds-mcelh
 
 **Voice of America Reporters Are Set to Return to Work**\
 `President Trump has accused Voice of America of being biased against him. In March, he issued an executive order to dismantle the agency that finances the international news outlet.`\
-https://nytimes.com/2025/05/03/us/politics/voice-of-america-reporters-are-set-to-return-to-work.html
+https://nytimes.com/2025/05/03/us/politics/voice-of-america-reporters-trump.html
 
 **Relegation, relief and 'rubbish': A day on the brink in the Championship**\
 `Five clubs were fighting to stay in the second tier - so The Athletic went to watch them all on the final day of the season`\
