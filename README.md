@@ -1,3 +1,11 @@
+**‘We’re All in One Ship’: Druse in Syrian Town Rocked by Violence Agree to Disarm Militias**\
+`After this week’s bloodshed, Druse leaders in Ashrafieh Sahnaya agreed to integrate militia fighters into government forces. But some residents remain wary.`\
+https://nytimes.com/2025/05/03/world/middleeast/syria-druse-sectarian-violence.html
+
+**Can the Blues bottle up what they've done at home and win Game 7 in Winnipeg?**\
+`The Blues are 3-0 at home in their series and 0-3 on the road. They'll need a victory in Game 7 on the road to advance.`\
+https://nytimes.com/athletic/6330352/2025/05/03/nhl-playoffs-blues-home-win-game-7/
+
 **Tylor Megill asked to be yelled at, now he's earning cheers**\
 `By pitching smarter, Megill epitomizes all that’s working on the pitching side for the Mets.`\
 https://nytimes.com/athletic/6330506/2025/05/03/mets-tylor-megill-tough-love/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6330407/2025/05/03/mikal-bridges-defense-knicks-cel
 **After Leading a Liberal Comeback, Carney Hits the Ground Running**\
 `The prime minister will begin broad economic and security talks with President Trump next week and has set a timetable for his new government.`\
 https://nytimes.com/2025/05/03/world/canada/carney-new-government.html
-
-**Wordle Review No. 1,415**\
-`Scroll down for hints and conversation about the puzzle for Sunday, May 4, 2025.`\
-https://nytimes.com/2025/05/03/crosswords/wordle-review-1415.html
-
-**Connections Companion No. 693**\
-`Scroll down for hints and conversation about the puzzle for Sunday, May 4, 2025.`\
-https://nytimes.com/2025/05/03/crosswords/connections-companion-693.html
 
