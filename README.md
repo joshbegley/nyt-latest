@@ -1,3 +1,7 @@
+**Before the Fire, L.A. Tried to Restore Second Reservoir in Palisades**\
+`Water supplies ran dry in the Pacific Palisades fire, in part because a reservoir was shut down for repairs. Records show the city had tried and failed to prepare an alternative reservoir.`\
+https://nytimes.com/2025/05/02/us/palisades-fire-reservoir-water-los-angeles.html
+
 **WNBA preseason watch guide: Paige Bueckers' debut, two looks at Caitlin Clark and Fever**\
 `The WNBA teases its official return with some preseason looks. Paige Bueckers debuts for Dallas; Caitlin Clark plays Saturday and Sunday.`\
 https://nytimes.com/athletic/6329637/2025/05/02/wnba-preseason-bueckers-clark-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/02/us/politics/trump-cia-cuts.html
 **Good Cheer closes strong to win 151st Kentucky Oaks**\
 `Good Cheer was low as eighth in the 14-horse race early on.`\
 https://nytimes.com/athletic/6330247/2025/05/02/good-cheer-wins-151st-kentucky-oaks/
-
-**In first appearance at Hockey Canada trial, E.M. describes drunkenness and discomfort**\
-`The Hockey Canada sexual assault trial jury heard from the complainant for the first time in court.`\
-https://nytimes.com/athletic/6329710/2025/05/02/hockey-canada-sexual-assault-victim-testifies/
 

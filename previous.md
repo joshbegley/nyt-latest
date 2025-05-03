@@ -1,3 +1,7 @@
+**WNBA preseason watch guide: Paige Bueckers' debut, two looks at Caitlin Clark and Fever**\
+`The WNBA teases its official return with some preseason looks. Paige Bueckers debuts for Dallas; Caitlin Clark plays Saturday and Sunday.`\
+https://nytimes.com/athletic/6329637/2025/05/02/wnba-preseason-bueckers-clark-how-to-watch/
+
 **In Singapore’s Election, All Eyes Are on the Margin of Victory, Not the Winner**\
 `The People’s Action Party is widely expected to continue its six-decade reign. But discontent with its policies is fueling a growing opposition.`\
 https://nytimes.com/2025/05/02/world/asia/singapore-election-pap-workers.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6330247/2025/05/02/good-cheer-wins-151st-kentucky-o
 **In first appearance at Hockey Canada trial, E.M. describes drunkenness and discomfort**\
 `The Hockey Canada sexual assault trial jury heard from the complainant for the first time in court.`\
 https://nytimes.com/athletic/6329710/2025/05/02/hockey-canada-sexual-assault-victim-testifies/
-
-**NHL Draft Lottery draw will be broadcast live on Monday**\
-`Viewers will watch in real time as numbered ping-pong balls determine the No. 1 and No. 2 draft picks.`\
-https://nytimes.com/athletic/6330101/2025/05/02/2025-nhl-draft-lottery-results-live/
 
