@@ -1,3 +1,31 @@
+**Inside JJ Redick's first year as Lakers coach: 'I know I will get better'**\
+`Mic drops, bold lineup decisions and a massive midseason trade highlighted Redick's debut season, which ended in an early playoff exit.`\
+https://nytimes.com/athletic/6328130/2025/05/03/jj-redick-lakers-first-year-playoffs/
+
+**Reading takeover agreed in principle**\
+`Should the takeover proceed as planned it will end Dai Yongge's controversial eight-year ownership of the club.`\
+https://nytimes.com/athletic/6330818/2025/05/03/reading-takeover-sale-rob-couhig-dai-yongge/
+
+**Mikal Bridges is giving Knicks physicality: 'People thought I stopped playing' defense**\
+`Bridges “for sure” agrees he’s played his best defense of the season over the past six games. It comes at a time when the Knicks need it.`\
+https://nytimes.com/athletic/6330407/2025/05/03/mikal-bridges-defense-knicks-celtics-nba-playoffs/
+
+**After Leading a Liberal Comeback, Carney Hits the Ground Running**\
+`The prime minister will begin broad economic and security talks with President Trump next week and has set a timetable for his new government.`\
+https://nytimes.com/2025/05/03/world/canada/carney-new-government.html
+
+**Wordle Review No. 1,415**\
+`Scroll down for hints and conversation about the puzzle for Sunday, May 4, 2025.`\
+https://nytimes.com/2025/05/03/crosswords/wordle-review-1415.html
+
+**Connections Companion No. 693**\
+`Scroll down for hints and conversation about the puzzle for Sunday, May 4, 2025.`\
+https://nytimes.com/2025/05/03/crosswords/connections-companion-693.html
+
+**What can the Negro Leagues teach us about leadership and passion? This man thinks a lot**\
+`Bob Kendrick, the president of the Negro Leagues Baseball Museum, believes the past is alive with valuable lessons for us to carry on today.`\
+https://nytimes.com/athletic/6329264/2025/05/03/what-can-the-negro-leagues-teach-us-about-leadership-and-passion-this-man-thinks-a-lot/
+
 **These Contentious Issues Could Determine Who Becomes the Next Pope**\
 `As cardinals gather to elect Pope Francis’ successor, they are facing debates over whether the church most needs change or constancy.`\
 https://nytimes.com/2025/05/03/world/europe/pope-conclave-contentious-issues.html
@@ -9,32 +37,4 @@ https://nytimes.com/2025/05/03/weather/atmospheric-rivers-midwest-california.htm
 **April’s Storms Were Relentless. But the Rainwater Is Finally Going Away.**\
 `The Mississippi River crested in New Orleans this week, capping an anxious period for the engineers and residents who live alongside it.`\
 https://nytimes.com/2025/05/03/weather/mississippi-river-flooding-cresting.html
-
-**As China Looks for Way Out of U.S. Trade Deadlock, Fentanyl Could Be Key**\
-`Chinese officials have long used their willingness to cooperate to stem the flow of fentanyl to the United States as leverage in talks over broader disputes.`\
-https://nytimes.com/2025/05/03/world/asia/us-china-tariffs-fentanyl.html
-
-**Ocean Vuong Was Ready to Kill. Then a Moment of Grace Changed His Life.**\
-`The poet and novelist on the real reason he became a writer.`\
-https://nytimes.com/2025/05/03/magazine/ocean-vuong-interview.html
-
-**A Real Housewife Trashed Her Sprinkle Cookies. Fans Are Eating Them Up.**\
-`Fourteen years ago, Teresa Giudice threw Melissa Gorga’s sprinkle cookies in the garbage on “The Real Housewives of New Jersey.” Now Gorga is selling out of an upscale version of them.`\
-https://nytimes.com/2025/05/03/arts/television/melissa-gorga-rohnj-sprinkle-cookies.html
-
-**Republicans in Congress Use Obscure Law to Roll Back Biden-Era Regulations**\
-`As G.O.P. lawmakers have largely ceded power to President Trump, they are also pushing the bounds of a little-known statute to undo federal rules — and potentially undermining the filibuster.`\
-https://nytimes.com/2025/05/03/us/politics/republicans-congressional-review-act.html
-
-**Honey, Sweetie, Dearie: There Are Perils in ‘Elderspeak’**\
-`A new training program teaches aides to stop baby talk and address older people as adults.`\
-https://nytimes.com/2025/05/03/health/elderly-treatment-aides.html
-
-**Ever Worried About Being Laid Off? Read This.**\
-`Federal workers, Google employees and newspaper editors have opened up about losing their jobs in the newsletter Laid Off.`\
-https://nytimes.com/2025/05/03/style/laid-off-newsletter-substack.html
-
-**Against the Odds, He Made Thoroughbred Racing a Viable Business**\
-`Using social media, podcasts and other innovations, Jon Green has turned DJ Stable into a $30-million-a-year entity. His colt, Sandman, is among the favorites to win the 151st Kentucky Derby.`\
-https://nytimes.com/2025/05/03/sports/kentucky-derby-racing-business.html
 
