@@ -1,3 +1,7 @@
+**2 Planes Abort Landings as Army Helicopter Flies Near D.C. Airport**\
+`The episode followed a fatal collision between a military helicopter and a commercial jet in January, and prompted concern and outrage among officials.`\
+https://nytimes.com/2025/05/02/us/politics/reagan-washington-national-airport-helicopter.html
+
 **Padres' Fernando Tatis Jr. leaves game after pitch hits left forearm**\
 `Tatis' arm showed visible swelling after getting hit by a 93 mph fastball from Pirates starter Mitch Keller.`\
 https://nytimes.com/athletic/6330458/2025/05/02/padres-fernando-tatis-jr-injury-hit-by-pitch/
