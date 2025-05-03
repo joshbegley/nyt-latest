@@ -1,6 +1,6 @@
-**Tkachuk's injuries, Giroux's future and more: Sens end-of-season notebook**\
-`Also, a brief update on Nick Jensen's injury uncertainty, and Adam Gaudette and Travis Hamonic's futures with the organization.`\
-https://nytimes.com/athletic/6331104/2025/05/03/sens-postmortem-notebook-tkachuk/
+**Brady Tkachuk's injuries, Claude Giroux's future and more: Senators end-of-season notebook**\
+`Also, an update on Nick Jensen's injury uncertainty, and Adam Gaudette's and Travis Hamonic's futures with the organization.`\
+https://nytimes.com/athletic/6331104/2025/05/03/senators-postmortem-notebook-tkachuk/
 
 **From One Forest to Another: A Homeless Sweep Changes Little**\
 `Dozens of people forced to leave the Deschutes National Forest in Oregon set up camp nearby in different wooded areas.`\
