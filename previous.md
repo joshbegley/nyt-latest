@@ -1,3 +1,7 @@
+**Leeds hit 100 points, pip Burnley to Championship title**\
+`Manor Solomon's 91st-minute goal at Plymouth Argyle on the season's final day saw them stay above Burnley on goal difference.`\
+https://nytimes.com/athletic/6301875/2025/05/03/leeds-championship-title-winners-burnley/
+
 **The Pulse: They're not even full strength yet**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6330633/2025/05/03/new-york-mets-season-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/03/business/opec-plus-oil-production-trump.html
 **Seahawks rookie camp Day 1: Jalen Milroe takeaways**\
 `"The way he throws the ball, the way he moves, he has a chance to be an elite quarterback at the highest level," Elijah Arroyo said.`\
 https://nytimes.com/athletic/6330319/2025/05/03/seahawks-rookie-camp-day-1-jalen-milroe/
-
-**Lowetide: Is Kris Knoblauch any closer to fixing the Oilers' defence?**\
-`Knoblauch's ongoing search for what works receives another best-of-seven series to continue the experiments.`\
-https://nytimes.com/athletic/6325483/2025/05/03/edmonton-oilers-nhl-playoffs-defence-knoblauch/
 

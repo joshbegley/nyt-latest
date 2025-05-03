@@ -1,3 +1,7 @@
+**Leeds hit 100 points, pip Burnley to Championship title**\
+`Manor Solomon's 91st-minute goal at Plymouth Argyle on the season's final day saw them stay above Burnley on goal difference.`\
+https://nytimes.com/athletic/6301875/2025/05/03/leeds-championship-title-winners-burnley/
+
 **The Pulse: They're not even full strength yet**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6330633/2025/05/03/new-york-mets-season-the-pulse/
