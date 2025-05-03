@@ -1,3 +1,7 @@
+**Arsenal's Timber a doubt for PSG second leg, Arteta confirms**\
+`Timber missed Saturday's defeat to Bournemouth through injury.`\
+https://nytimes.com/athletic/6331572/2025/05/03/jurrien-timber-injury-update-arsenal-psg/
+
 **Trump Administration Sues Colorado and Denver Over Immigration Policies**\
 `The lawsuit, which names the governor and mayor as defendants, is the latest move by the White House to try to get local governments to cooperate more with its immigration agenda.`\
 https://nytimes.com/2025/05/03/us/politics/trump-colorado-denver-lawsuit-immigration.html
