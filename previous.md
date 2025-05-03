@@ -1,3 +1,11 @@
+**Army Plans a Big Parade That Could Fall on Trump’s Birthday**\
+`The Army said the celebration was in honor of its 250th birthday but did not mention that the president’s birthday happened to be the same day.`\
+https://nytimes.com/2025/05/02/us/politics/trump-birthday-military-parade.html
+
+**Red Sox's Triston Casas stretchered off field with apparent leg injury**\
+`Casas suffered the injury while trying to beat the throw to first base from Twins pitcher Joe Ryan.`\
+https://nytimes.com/athletic/6330383/2025/05/02/triston-casas-injury-stretcher-red-sox-twins/
+
 **Before the Fire, L.A. Tried to Restore Second Reservoir in Palisades**\
 `Water supplies ran dry in the Pacific Palisades fire, in part because a reservoir was shut down for repairs. Records show the city had tried and failed to prepare an alternative reservoir.`\
 https://nytimes.com/2025/05/02/us/palisades-fire-reservoir-water-los-angeles.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/02/travel/newark-airport-flight-delays.html
 **Out at the E.P.A.: Independent Scientists. In: Approving New Chemicals.**\
 `The Environmental Protection Agency’s administrator, Lee Zeldin, announced the agency was “shifting its scientific expertise.”`\
 https://nytimes.com/2025/05/02/us/politics/trump-epa-cuts.html
-
-**C.I.A. to Cut More Than 1,000 Positions Over Several Years**\
-`The agency plans, for now, to use attrition, including retirements and voluntary resignations, to reduce the size of the C.I.A. instead of more mass firings.`\
-https://nytimes.com/2025/05/02/us/politics/trump-cia-cuts.html
-
-**Good Cheer closes strong to win 151st Kentucky Oaks**\
-`Good Cheer was low as eighth in the 14-horse race early on.`\
-https://nytimes.com/athletic/6330247/2025/05/02/good-cheer-wins-151st-kentucky-oaks/
 
