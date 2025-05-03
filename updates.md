@@ -1,4 +1,8 @@
 **Injured fan who fell at Pirates-Cubs game ‘awake, alert’**\
+`Kavan Markwood's girlfriend posted online that he “is awake and continuing to work toward making his body stronger each day.”`\
+https://nytimes.com/athletic/6331774/2025/05/03/kavan-markwood-injured-fan-pirates-cubs/
+
+**Injured fan who fell at Pirates-Cubs game ‘awake, alert’**\
 `Kavan Markwood entered the hospital in critical condition after falling from the right-field stands at PNC Park on Wednesday.`\
 https://nytimes.com/athletic/6331774/2025/05/03/kavan-markwood-injured-fan-pirates-cubs/
 
