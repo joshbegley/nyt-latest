@@ -1,3 +1,7 @@
+**Yankees expected a lot from Paul Goldschmidt. They’re getting even more**\
+`Goldschmidt's home run provided all the Yankees' runs in a 3-0 win over the Rays on Friday.`\
+https://nytimes.com/athletic/6330597/2025/05/03/yankees-paul-goldschmidt-home-run-rays/
+
 **Angel Reese, Hailey Van Lith honored ahead of Chicago Sky preseason opener**\
 `Reese and her fellow LSU-turned-Sky teammate Van Lith were given flowers before the homecoming exhibition.`\
 https://nytimes.com/athletic/6330596/2025/05/03/angel-reese-hailey-van-lith-chicago-sky-lsu/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6329084/2025/05/03/real-madrid-defence-injuries-tra
 **The most annoying 'foul' in football**\
 `The foul for which Saka was penalised for against PSG is a blight on modern football – mainly because they just aren't fouls...`\
 https://nytimes.com/athletic/6326501/2025/05/03/annoying-foul-football-saka-mendes-ayling/
-
-**Yoshinobu Yamamoto flirts with no-hitter in latest dominant start**\
-`Amid the Dodgers’ rotation uncertainty, Yamamoto has been a beacon of hope.`\
-https://nytimes.com/athletic/6330611/2025/05/03/dodgers-yoshinobu-yamamoto-mlb/
 

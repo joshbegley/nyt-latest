@@ -1,3 +1,7 @@
+**Yankees expected a lot from Paul Goldschmidt. They’re getting even more**\
+`Goldschmidt's home run provided all the Yankees' runs in a 3-0 win over the Rays on Friday.`\
+https://nytimes.com/athletic/6330597/2025/05/03/yankees-paul-goldschmidt-home-run-rays/
+
 **Angel Reese, Hailey Van Lith honored ahead of Chicago Sky preseason opener**\
 `Reese and her fellow LSU-turned-Sky teammate Van Lith were given flowers before the homecoming exhibition.`\
 https://nytimes.com/athletic/6330596/2025/05/03/angel-reese-hailey-van-lith-chicago-sky-lsu/
