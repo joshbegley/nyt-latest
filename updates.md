@@ -1,3 +1,7 @@
+**Aryna Sabalenka beats Coco Gauff to regain Madrid Open title**\
+`Sabalenka reeled Gauff back in from a break down in the second set to take the title in the Spanish capital.`\
+https://nytimes.com/athletic/6331151/2025/05/03/coco-gauff-madrid-open-aryna-sabalenka-result-analysis/
+
 **The Briefing: Arsenal 1 Bournemouth 2: Set-piece weakness exposed again in limp defeat**\
 `Analysing the big talking points from Saturday's Premier League game at Emirates Stadium`\
 https://nytimes.com/athletic/6320276/2025/05/03/arsenal-bournemouth-result-analysis/
