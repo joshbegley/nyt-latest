@@ -1,3 +1,7 @@
+**Oil Prices Are Falling. Here’s Where That Could Spell Trouble.**\
+`For countries that depend heavily on oil revenue, dropping prices are worrisome.`\
+https://nytimes.com/2025/05/03/world/europe/oil-prices-tariffs.html
+
 **Thompson: These Warriors are old, tired and in trouble as Game 7 looms against Rockets**\
 `They're not done yet. Maybe a legendary performance awaits on Sunday. But the Warriors look like they're out of gas and out of answers.`\
 https://nytimes.com/athletic/6330793/2025/05/03/warriors-tired-rockets-game-7-steph-curry/
