@@ -1,3 +1,7 @@
+**The Best Hats at the Kentucky Derby**\
+`From traditional hats to fascinators and headdresses, the best looks at the 151st running of America’s most fashionable sporting event.`\
+https://nytimes.com/2025/05/03/style/kentucky-derby-2025-hats.html
+
 **Max Verstappen on pole for Miami Grand Prix as Lewis Hamilton's woes continue**\
 `Max Verstappen takes pole with a sensational lap, while Kimi Antonelli continues to impress this weekend`\
 https://nytimes.com/athletic/6331592/2025/05/03/miami-grand-prix-qualifying-sprint-2025-result/
