@@ -1,3 +1,11 @@
+**From One Forest to Another: Sweep of Homeless People Changes Little**\
+`Dozens of people who lived in broken-down R.V.s in the Deschutes National Forest in Oregon set up camp nearby in different wooded areas, after they were ordered to leave or face jail and fines.`\
+https://nytimes.com/2025/05/03/realestate/homeless-encampment-removal-forest-oregon.html
+
+**Poised to Expand Gaza Offensive, Israel Calls Up Thousands of Reserve Soldiers**\
+`The mobilization could indicate that the Israeli government is preparing to shift its tactics in its fight against Hamas.`\
+https://nytimes.com/2025/05/03/world/middleeast/israel-mobilizes-reservists-gaza.html
+
 **Triston Casas out for the season: What it means for Rafael Devers, Roman Anthony and more**\
 `Casas’ knee gave out Friday as he was running to first base in the second inning of Boston's 6-1 win over the Minnesota Twins.`\
 https://nytimes.com/athletic/6331568/2025/05/03/triston-casas-out-season-rafael-devers-roman-anthony-red-sox/

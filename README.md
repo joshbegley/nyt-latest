@@ -6,7 +6,7 @@ https://nytimes.com/2025/05/03/realestate/homeless-encampment-removal-forest-ore
 `The mobilization could indicate that the Israeli government is preparing to shift its tactics in its fight against Hamas.`\
 https://nytimes.com/2025/05/03/world/middleeast/israel-mobilizes-reservists-gaza.html
 
-**Flames sign Matt Coronato to 7-year, $45.50 million extension**\
+**Flames sign Matt Coronato to 7-year, $45.50 million contract**\
 `Coronato's contract will carry a $6.5 million cap hit through 2032 when he'll be 29 years old.`\
 https://nytimes.com/athletic/6331565/2025/05/03/flames-matt-coronato-contract-signing/
 
@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6331151/2025/05/03/coco-gauff-madrid-open-aryna-sab
 `Analysing the big talking points from Saturday's Premier League game at Emirates Stadium`\
 https://nytimes.com/athletic/6320276/2025/05/03/arsenal-bournemouth-result-analysis/
 
-**How Toronto Maple Leafs, Florida Panthers are leaning on intel ahead of Round 2 matchup**\
+**How the Maple Leafs and Panthers are leaning on intel ahead of Round 2 matchup**\
 `By finishing off their opening-round opponents quickly, the Panthers and Leafs got an opportunity to rest and prepare for Round 2.`\
 https://nytimes.com/athletic/6331431/2025/05/03/toronto-maple-leafs-florida-panthers-intel-round-2/
 
