@@ -1,5 +1,13 @@
-**Voice of America reporters are set to return to work.**\
-`By Tim Balk`\
+**Caitlin Clark out of Fever's preseason opener vs. Mystics due to leg injury**\
+`Clark popped up on the injury report Friday, and before Saturday’s game she described the injury as “just a little tightness” in her leg.`\
+https://nytimes.com/athletic/6331436/2025/05/03/caitlin-clark-fever-mystics-preseason-leg-injury/
+
+**Historic promotion, Premier League in sight, scenes at the 'circus' - Wrexham's season review**\
+`Wrexham secured a third successive promotion but a fans' favourite played second fiddle - The Athletic assess another rollercoaster ride`\
+https://nytimes.com/athletic/6318063/2025/05/03/wrexham-promotion-reynolds-mcelhenney-parkinson/
+
+**Voice of America Reporters Are Set to Return to Work**\
+`President Trump has accused Voice of America of being biased against him. In March, he issued an executive order to dismantle the agency that finances the international news outlet.`\
 https://nytimes.com/2025/05/03/us/politics/voice-of-america-reporters-are-set-to-return-to-work.html
 
 **Relegation, relief and 'rubbish': A day on the brink in the Championship**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/03/arts/design/rondeau-chicago-art-museum-director-i
 **Ukraine Rejects Russian Call for a Three-Day Cease-Fire**\
 `President Volodymyr Zelensky called the proposal a “theatrical show” and said such a short truce would not bolster negotiations for a lasting peace.`\
 https://nytimes.com/2025/05/03/world/europe/ukraine-russia-ceasefire-talks.html
-
-**The National Endowment for the Arts Begins Terminating Grants**\
-`The endowment told arts organizations that it was withdrawing or canceling current grants just hours after President Trump proposed eliminating the agency in the next fiscal year.`\
-https://nytimes.com/2025/05/03/arts/national-endowment-for-the-arts-grants.html
-
-**Trump’s New Lows Are Basically Predictable**\
-`Why are plenty of people still surprised?`\
-https://nytimes.com/2025/05/03/opinion/trump-polls-popularity-dei.html
 
