@@ -1,3 +1,7 @@
+**City have stability and results again. So, how will they accommodate Erling Haaland?**\
+`City struggled before Haaland's injury but are in fine form again. How does their striker fit into their 4-2-2-2 system?`\
+https://nytimes.com/athletic/6327382/2025/05/03/man-city-erling-haaland-return-analysis/
+
 **Backed by a potent offense, Ben Brown delivers a much-needed strong start**\
 `Brown worked with an early lead while pounding the strike zone Friday, throwing six shutout frames with four strikeouts and no walks.`\
 https://nytimes.com/athletic/6330635/2025/05/03/cubs-brewers-ben-brown-strong-start/
