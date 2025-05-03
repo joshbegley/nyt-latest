@@ -1,3 +1,7 @@
+**Kings' offseason checklist should begin with futures of Rob Blake, Jim Hiller**\
+`The Kings have plenty to address after a fourth consecutive first-round playoff exit.`\
+https://nytimes.com/athletic/6330689/2025/05/03/kings-offseason-blake-hiller-roster/
+
 **After staggering Game 6 loss to Rockets, Warriors express belief: 'The real always rise'**\
 `A game-changing play led to what could become a season-altering (and potentially franchise-shifting) loss for the Warriors.`\
 https://nytimes.com/athletic/6330487/2025/05/03/warriors-rockets-nba-playoffs-game-6/

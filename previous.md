@@ -1,3 +1,7 @@
+**Kings' offseason checklist should begin with futures of Rob Blake, Jim Hiller**\
+`The Kings have plenty to address after a fourth consecutive first-round playoff exit.`\
+https://nytimes.com/athletic/6330689/2025/05/03/kings-offseason-blake-hiller-roster/
+
 **After staggering Game 6 loss to Rockets, Warriors express belief: 'The real always rise'**\
 `A game-changing play led to what could become a season-altering (and potentially franchise-shifting) loss for the Warriors.`\
 https://nytimes.com/athletic/6330487/2025/05/03/warriors-rockets-nba-playoffs-game-6/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/03/business/dealbook/trump-tariff-pricing-strategy.h
 **2 Books to Read Instead of Meditating**\
 `A gentle and clever comic novel; a poetic and tender essay on addiction.`\
 https://nytimes.com/2025/05/03/books/read-like-wind-recommendations.html
-
-**Crystal Palace vs Man City FA Cup final kick-off time confirmed**\
-`The showpiece game has traditionally been played at 3pm although the kick-off time has been switched in recent years.`\
-https://nytimes.com/athletic/6330905/2025/05/03/fa-cup-final-kick-off-time-man-city-crystal-palace/
 
