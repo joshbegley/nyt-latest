@@ -1,3 +1,11 @@
+**Paige Bueckers gets first shot at WNBA defenses in preseason debut**\
+`In classic Bueckers fashion, she shot better than 50 percent from the field, including a beautiful lefty finger roll for her first points.`\
+https://nytimes.com/athletic/6330485/2025/05/02/aces-wings-paige-bueckers-debut/
+
+**'We're going to roll with what we have': Angels GM Perry Minasian discusses poor play**\
+`Los Angeles' struggles don't instill confidence that the organization has built a roster that will compete for the postseason.`\
+https://nytimes.com/athletic/6330430/2025/05/02/angels-gm-perry-minasian-poor-play-mike-trout/
+
 **2 Planes Abort Landings as Army Helicopter Flies Near D.C. Airport**\
 `The episode followed a fatal collision between a military helicopter and a commercial jet in January, and prompted concern and outrage among officials.`\
 https://nytimes.com/2025/05/02/us/politics/reagan-washington-national-airport-helicopter.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/02/us/politics/trump-college-athlete-payments.html
 **Army Plans a Big Parade That Could Fall on Trump’s Birthday**\
 `The Army said the celebration was in honor of its 250th birthday but did not mention that the president’s birthday happened to be the same day.`\
 https://nytimes.com/2025/05/02/us/politics/trump-birthday-military-parade.html
-
-**Red Sox's Triston Casas stretchered off field with apparent leg injury**\
-`Casas suffered the injury while trying to beat the throw to first base from Twins pitcher Joe Ryan.`\
-https://nytimes.com/athletic/6330383/2025/05/02/triston-casas-injury-stretcher-red-sox-twins/
-
-**Before the Fire, L.A. Tried to Restore Second Reservoir in Palisades**\
-`Water supplies ran dry in the Pacific Palisades fire, in part because a reservoir was shut down for repairs. Records show the city had tried and failed to prepare an alternative reservoir.`\
-https://nytimes.com/2025/05/02/us/palisades-fire-reservoir-water-los-angeles.html
 

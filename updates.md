@@ -1,3 +1,11 @@
+**Paige Bueckers gets first shot at WNBA defenses in preseason debut**\
+`In classic Bueckers fashion, she shot better than 50 percent from the field, including a beautiful lefty finger roll for her first points.`\
+https://nytimes.com/athletic/6330485/2025/05/02/aces-wings-paige-bueckers-debut/
+
+**'We're going to roll with what we have': Angels GM Perry Minasian discusses poor play**\
+`Los Angeles' struggles don't instill confidence that the organization has built a roster that will compete for the postseason.`\
+https://nytimes.com/athletic/6330430/2025/05/02/angels-gm-perry-minasian-poor-play-mike-trout/
+
 **2 Planes Abort Landings as Army Helicopter Flies Near D.C. Airport**\
 `The episode followed a fatal collision between a military helicopter and a commercial jet in January, and prompted concern and outrage among officials.`\
 https://nytimes.com/2025/05/02/us/politics/reagan-washington-national-airport-helicopter.html
