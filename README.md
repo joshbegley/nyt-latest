@@ -1,3 +1,8 @@
+**Blues chase Connor Hellebuyck, rout Jets to force Game 7: Takeaways**\
+`Hellebuyck was pulled for the third consecutive game in St. Louis after allowing five goals on 23 shots in Winnipeg's 5-2 Game 6 win.
+`\
+https://nytimes.com/athletic/6330053/2025/05/02/blues-jets-nhl-playoffs-2025-game-6-takeaways/
+
 **Paige Bueckers gets first shot at WNBA defenses in preseason debut**\
 `In classic Bueckers fashion, she shot better than 50 percent from the field, including a beautiful lefty finger roll for her first points.`\
 https://nytimes.com/athletic/6330485/2025/05/02/aces-wings-paige-bueckers-debut/
@@ -33,8 +38,4 @@ https://nytimes.com/athletic/6330363/2025/05/02/masai-russell-100-meter-hurdles-
 **Trump Considers Executive Order on College Athlete Payments**\
 `College athletes have signed deals worth millions of dollars since the N.C.A.A. allowed student-athletes to become paid endorsers.`\
 https://nytimes.com/2025/05/02/us/politics/trump-college-athlete-payments.html
-
-**Army Plans a Big Parade That Could Fall on Trump’s Birthday**\
-`The Army said the celebration was in honor of its 250th birthday but did not mention that the president’s birthday happened to be the same day.`\
-https://nytimes.com/2025/05/02/us/politics/trump-birthday-military-parade.html
 
