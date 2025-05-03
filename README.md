@@ -1,3 +1,7 @@
+**Hurzeler trying to avoid 'distracting' talk of European qualification at Brighton**\
+`The German head coach believes it has been a distraction to the underlying quest for continued improvement at the club.`\
+https://nytimes.com/athletic/6326429/2025/05/03/brighton-hurzeler-european-qualification/
+
 **Who Would Steal New York City’s Pigeons? Mother Pigeon Thought She Knew.**\
 `Pigeon lovers protest at a pet store. The pet store owners say they are innocent. And still the flocks seem to be shrinking without explanation.`\
 https://nytimes.com/2025/05/03/nyregion/who-would-steal-new-york-citys-pigeons-mother-pigeon-thought-she-knew.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6330597/2025/05/03/yankees-paul-goldschmidt-home-ru
 **Angel Reese, Hailey Van Lith honored ahead of Chicago Sky preseason opener**\
 `Reese and her fellow LSU-turned-Sky teammate Van Lith were given flowers before the homecoming exhibition.`\
 https://nytimes.com/athletic/6330596/2025/05/03/angel-reese-hailey-van-lith-chicago-sky-lsu/
-
-**The Olympic gold medal-winning boxer who turned to politics with a right-wing British party**\
-`Luke Campbell claimed Olympic gold and had two world title fights. He has won a mayoral election despite claiming not to 'care for politics'`\
-https://nytimes.com/athletic/6330034/2025/05/03/luke-campbell-mayor-hull-reform/
 
