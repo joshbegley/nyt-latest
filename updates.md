@@ -1,3 +1,7 @@
+**After staggering Game 6 loss to Rockets, Warriors express belief: 'The real always rise'**\
+`A game-changing play led to what could become a season-altering (and potentially franchise-shifting) loss for the Warriors.`\
+https://nytimes.com/athletic/6330487/2025/05/03/warriors-rockets-nba-playoffs-game-6/
+
 **Why OPEC Plus Is Increasing Oil Supplies Despite Falling Prices**\
 `The group agreed to raise output in June, a sign that Saudi Arabia and its allies appear to be weary of cutting output and may be trying to appease President Trump, who has pushed for lower prices.`\
 https://nytimes.com/2025/05/03/business/opec-plus-oil-production-trump.html
