@@ -1,3 +1,7 @@
+**University of California’s New President Will Come From Texas**\
+`James B. Milliken will lead the California system, relinquishing his position as the chancellor of the University of Texas system.`\
+https://nytimes.com/2025/05/02/us/university-of-california-president.html
+
 **Blue Jays GM Ross Atkins talks underperforming offence, pitching moves and more**\
 `The Blue Jays made a real effort at change this offseason. So far, the runs haven't come.`\
 https://nytimes.com/athletic/6330410/2025/05/02/blue-jays-gm-ross-atkins-offence-pitching/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/02/world/asia/singapore-election-pap-workers.html
 **The Canadiens have work left to do, but this season has shown they have a strong core**\
 `Suzuki does not want the Canadiens to take a step back after an unexpected playoff berth. The core he leads should ensure that.`\
 https://nytimes.com/athletic/6330326/2025/05/02/canadiens-nhl-playoffs-suzuki-slafkovsky-caufield/
-
-**Trump talks with Saban, considers executive order on paying college athletes**\
-`Donald Trump and Nick Saban reportedly met Thursday night after the president gave the commencement address at Alabama.`\
-https://nytimes.com/athletic/6330290/2025/05/02/donald-trump-executive-order-paying-college-athletes-nick-saban/
 
