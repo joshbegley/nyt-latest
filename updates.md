@@ -1,3 +1,11 @@
+**Backed by a potent offense, Ben Brown delivers a much-needed strong start**\
+`Brown worked with an early lead while pounding the strike zone Friday, throwing six shutout frames with four strikeouts and no walks.`\
+https://nytimes.com/athletic/6330635/2025/05/03/cubs-brewers-ben-brown-strong-start/
+
+**The New York Times in Print for Saturday, May 3, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/03/todays-new-york-times
+
 **Yankees expected a lot from Paul Goldschmidt. They’re getting even more**\
 `Goldschmidt's home run provided all the Yankees' runs in a 3-0 win over the Rays on Friday.`\
 https://nytimes.com/athletic/6330597/2025/05/03/yankees-paul-goldschmidt-home-run-rays/
