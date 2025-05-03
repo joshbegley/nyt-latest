@@ -1,3 +1,15 @@
+**Premier League referee injured on debut, Vardy whistles to stop game**\
+`David Webb was inadvertently struck in the side of the head by Leicester forward Jordan Ayew as he ran past him.`\
+https://nytimes.com/athletic/6331115/2025/05/03/premier-league-referee-injured-debut-jamie-vardy/
+
+**(In a Very Soft Voice) Here’s Eric Kim’s Hangover Kimchi Soup**\
+`This soothing bowl of reviving flavors is very easy to pull together.`\
+https://nytimes.com/2025/05/03/dining/-in-a-very-soft-voice-heres-eric-kims-hangover-kimchi-soup.html
+
+**Two Photos of the Hindenburg Disaster**\
+`The crash occurred 88 years ago this Tuesday. Take a look at a pair of images from the event.`\
+https://nytimes.com/2025/05/03/insider/two-photos-of-the-hindenburg-disaster.html
+
 **What F1 fans at the track really think of the Miami Grand Prix**\
 `The Miami F1 race has a reputation for high ticket prices and fan controversy, so The Athletic asked 2025 attendees for their opinions`\
 https://nytimes.com/athletic/6330386/2025/05/03/f1-fans-miami-grand-prix-2025/
