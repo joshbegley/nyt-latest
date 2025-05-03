@@ -1,3 +1,11 @@
+**Cardinal Parolin, Leader of Papal Conclave, Is Also a Top Candidate**\
+`Cardinals have talked about Cardinal Pietro Parolin, the Vatican secretary of state, as someone who could have a steady, bureaucratic hand on the church’s wheel.`\
+https://nytimes.com/2025/05/03/world/europe/pope-conclave-cardinal-pietro-parolin.html
+
+**Memory Palace**\
+`Memorizing a poem is like taking a work of art that you love and letting it live and bloom inside of you.`\
+https://nytimes.com/2025/05/03/briefing/memory-palace.html
+
 **Inside JJ Redick's first year as Lakers coach: 'I know I will get better'**\
 `Mic drops, bold lineup decisions and a massive midseason trade highlighted Redick's debut season, which ended in an early playoff exit.`\
 https://nytimes.com/athletic/6328130/2025/05/03/jj-redick-lakers-first-year-playoffs/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6329264/2025/05/03/what-can-the-negro-leagues-teach
 **These Contentious Issues Could Determine Who Becomes the Next Pope**\
 `As cardinals gather to elect Pope Francis’ successor, they are facing debates over whether the church most needs change or constancy.`\
 https://nytimes.com/2025/05/03/world/europe/pope-conclave-contentious-issues.html
-
-**One of the Weather World’s Biggest Buzzwords Expands Its Reach**\
-`To many, atmospheric rivers are a West Coast phenomenon. But they’re also responsible for the devastating flooding that hit the Central United States in early April.`\
-https://nytimes.com/2025/05/03/weather/atmospheric-rivers-midwest-california.html
-
-**April’s Storms Were Relentless. But the Rainwater Is Finally Going Away.**\
-`The Mississippi River crested in New Orleans this week, capping an anxious period for the engineers and residents who live alongside it.`\
-https://nytimes.com/2025/05/03/weather/mississippi-river-flooding-cresting.html
 
