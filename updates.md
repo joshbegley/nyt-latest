@@ -1,3 +1,11 @@
+**Masai Russell sets U.S. record in 100m hurdles, gives jolt to Grand Slam Track**\
+`The Olympic champion finished in 12.17 seconds Friday in Florida, the second fastest time in world history.`\
+https://nytimes.com/athletic/6330363/2025/05/02/masai-russell-100-meter-hurdles-american-record-grand-slam-track/
+
+**Trump Considers Executive Order on College Athlete Payments**\
+`College athletes have signed deals worth millions of dollars since the N.C.A.A. allowed student-athletes to become paid endorsers.`\
+https://nytimes.com/2025/05/02/us/politics/trump-college-athlete-payments.html
+
 **Army Plans a Big Parade That Could Fall on Trump’s Birthday**\
 `The Army said the celebration was in honor of its 250th birthday but did not mention that the president’s birthday happened to be the same day.`\
 https://nytimes.com/2025/05/02/us/politics/trump-birthday-military-parade.html
