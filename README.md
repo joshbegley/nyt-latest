@@ -1,3 +1,11 @@
+**Backed by a potent offense, Ben Brown delivers a much-needed strong start**\
+`Brown worked with an early lead while pounding the strike zone Friday, throwing six shutout frames with four strikeouts and no walks.`\
+https://nytimes.com/athletic/6330635/2025/05/03/cubs-brewers-ben-brown-strong-start/
+
+**The New York Times in Print for Saturday, May 3, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/03/todays-new-york-times
+
 **Yankees expected a lot from Paul Goldschmidt. They’re getting even more**\
 `Goldschmidt's home run provided all the Yankees' runs in a 3-0 win over the Rays on Friday.`\
 https://nytimes.com/athletic/6330597/2025/05/03/yankees-paul-goldschmidt-home-run-rays/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6323203/2025/05/03/premier-league-champions-league-
 **Ten teens who are taking over the world (of sport)**\
 `After Lamine Yamal starred in the Champions League semi-final, we look at other teenagers who are close to the pinnacle of their sports`\
 https://nytimes.com/athletic/6329217/2025/05/03/teenagers-taking-over-world-of-sport/
-
-**Madrid's back four is injured. How should they line up? And who could they sign in summer?**\
-`Madrid's injury problems took another turn this week. How should Ancelotti fix things with La Liga still to play for?`\
-https://nytimes.com/athletic/6329084/2025/05/03/real-madrid-defence-injuries-transfers/
-
-**The most annoying 'foul' in football**\
-`The foul for which Saka was penalised for against PSG is a blight on modern football – mainly because they just aren't fouls...`\
-https://nytimes.com/athletic/6326501/2025/05/03/annoying-foul-football-saka-mendes-ayling/
 
