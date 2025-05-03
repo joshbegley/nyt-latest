@@ -1,3 +1,11 @@
+**Injured fan who fell at Pirates-Cubs game ‘awake, alert’**\
+`Kavan Markwood entered the hospital in critical condition after falling from the right-field stands at PNC Park on Wednesday.`\
+https://nytimes.com/athletic/6331774/2025/05/03/kavan-markwood-injured-fan-pirates-cubs/
+
+**Father Whose Son Was Shot by Police Hits Deputy With Car, Killing Him**\
+`The man had viewed footage of the fatal shooting of his 18-year-old son in Cincinnati hours before deliberately crashing into a sheriff’s deputy in Hamilton County, Ohio, the authorities said.`\
+https://nytimes.com/2025/05/03/us/cincinnati-deputy-killed-crash.html
+
 **Bob Filner, Mayor of San Diego Who Left Amid Scandal, Dies at 82**\
 `A progressive member of Congress for two decades, he resigned as mayor after 18 women accused him of sexual harassment.`\
 https://nytimes.com/2025/05/03/us/politics/bob-filner-dead.html
