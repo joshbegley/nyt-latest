@@ -1,3 +1,15 @@
+**From One Forest to Another: A Homeless Sweep Changes Little**\
+`Dozens of people forced to leave the Deschutes National Forest in Oregon set up camp nearby in different wooded areas.`\
+https://nytimes.com/2025/05/03/realestate/homeless-encampment-removal-forest-oregon.html
+
+**Flames sign Matt Coronato to 7-year, $45.50 million contract**\
+`Coronato's contract will carry a $6.5 million cap hit through 2032 when he'll be 29 years old.`\
+https://nytimes.com/athletic/6331565/2025/05/03/flames-matt-coronato-contract-signing/
+
+**How the Maple Leafs and Panthers are leaning on intel ahead of Round 2 matchup**\
+`By finishing off their opening-round opponents quickly, the Panthers and Leafs got an opportunity to rest and prepare for Round 2.`\
+https://nytimes.com/athletic/6331431/2025/05/03/toronto-maple-leafs-florida-panthers-intel-round-2/
+
 **From One Forest to Another: Sweep of Homeless People Changes Little**\
 `Dozens of people who lived in broken-down R.V.s in the Deschutes National Forest in Oregon set up camp nearby in different wooded areas, after they were ordered to leave or face jail and fines.`\
 https://nytimes.com/2025/05/03/realestate/homeless-encampment-removal-forest-oregon.html
