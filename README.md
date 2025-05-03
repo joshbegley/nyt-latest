@@ -1,3 +1,7 @@
+**Sovereignty wins 151st Kentucky Derby**\
+`Sovereignty was able to pull ahead of the favorite on the wet, muddy track to secure first Kentucky Derby win for jockey Junior Alvarado.`\
+https://nytimes.com/athletic/6331778/2025/05/03/sovereignty-wins-kentucky-derby/
+
 **Notre Dame beats Michigan for top-100 RB, continues recruiting surge**\
 `Notre Dame extended its big recruiting run by landing Javian Osborne, a high-end four-star running back from Texas.`\
 https://nytimes.com/athletic/6330901/2025/05/03/jabian-osborne-notre-dame-recruiting-michigan/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6331592/2025/05/03/miami-grand-prix-qualifying-spri
 **Brady Tkachuk's injuries, Claude Giroux's future and more: Senators end-of-season notebook**\
 `Also, an update on Nick Jensen's injury uncertainty, and Adam Gaudette's and Travis Hamonic's futures with the organization.`\
 https://nytimes.com/athletic/6331104/2025/05/03/senators-postmortem-notebook-tkachuk/
-
-**From One Forest to Another: A Homeless Sweep Changes Little**\
-`Dozens of people forced to leave the Deschutes National Forest in Oregon set up camp nearby in different wooded areas.`\
-https://nytimes.com/2025/05/03/realestate/homeless-encampment-removal-forest-oregon.html
 
