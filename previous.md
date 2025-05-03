@@ -1,40 +1,40 @@
-**Hurzeler trying to avoid 'distracting' talk of European qualification at Brighton**\
-`The German head coach believes it has been a distraction to the underlying quest for continued improvement at the club.`\
-https://nytimes.com/athletic/6326429/2025/05/03/brighton-hurzeler-european-qualification/
+**A Real Housewife Trashed Her Sprinkle Cookies. Fans Are Eating Them Up.**\
+`Fourteen years ago, Teresa Giudice threw Melissa Gorga’s sprinkle cookies in the garbage on “The Real Housewives of New Jersey.” Now Gorga is selling out of an upscale version of them.`\
+https://nytimes.com/2025/05/03/arts/television/melissa-gorga-rohnj-sprinkle-cookies.html
 
-**Who Would Steal New York City’s Pigeons? Mother Pigeon Thought She Knew.**\
-`Pigeon lovers protest at a pet store. The pet store owners say they are innocent. And still the flocks seem to be shrinking without explanation.`\
-https://nytimes.com/2025/05/03/nyregion/who-would-steal-new-york-citys-pigeons-mother-pigeon-thought-she-knew.html
+**Republicans in Congress Use Obscure Law to Roll Back Biden-Era Regulations**\
+`As G.O.P. lawmakers have largely ceded power to President Trump, they are also pushing the bounds of a little-known statute to undo federal rules — and potentially undermining the filibuster.`\
+https://nytimes.com/2025/05/03/us/politics/republicans-congressional-review-act.html
 
-**How Stacy London Spends Her Sundays**\
-`Ms. London, the former co-host of “What Not to Wear,” goes shopping, of course. But she also has a latte with friends and spends time with her dog, Dora.`\
-https://nytimes.com/2025/05/03/nyregion/stacy-london-what-not-to-wear.html
+**Honey, Sweetie, Dearie: There Are Perils in ‘Elderspeak’**\
+`A new training program teaches aides to stop baby talk and address older people as adults.`\
+https://nytimes.com/2025/05/03/health/elderly-treatment-aides.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/05/03/crosswords/spelling-bee-forum.html
+**Ever Worried About Being Laid Off? Read This.**\
+`Federal workers, Google employees and newspaper editors have opened up about losing their jobs in the newsletter Laid Off.`\
+https://nytimes.com/2025/05/03/style/laid-off-newsletter-substack.html
 
-**Wolves 'celebrated' after their loss to Man City. This is why it wasn't weird**\
-`Wolves lost to Manchester City but their post-match actions were out of the norm`\
-https://nytimes.com/athletic/6330224/2025/05/03/wolves-celebrate-manchester-city-vitor-pereira/
+**Against the Odds, He Made Thoroughbred Racing a Viable Business**\
+`Using social media, podcasts and other innovations, Jon Green has turned DJ Stable into a $30-million-a-year entity. His colt, Sandman, is among the favorites to win the 151st Kentucky Derby.`\
+https://nytimes.com/2025/05/03/sports/kentucky-derby-racing-business.html
 
-**City have stability and results again. So, how will they accommodate Erling Haaland?**\
-`City struggled before Haaland's injury but are in fine form again. How does their striker fit into their 4-2-2-2 system?`\
-https://nytimes.com/athletic/6327382/2025/05/03/man-city-erling-haaland-return-analysis/
+**Did a TV Show Hurt You? ‘Fix-Its’ Offer Justice**\
+`Beloved characters are killed. Romances, too. But a subset of fan-fiction writers are taking matters into their own hands, “fixing” perceived wrongs.`\
+https://nytimes.com/2025/05/03/arts/television/did-a-tv-show-hurt-you-fix-its-offer-justice.html
 
-**Backed by a potent offense, Ben Brown delivers a much-needed strong start**\
-`Brown worked with an early lead while pounding the strike zone Friday, throwing six shutout frames with four strikeouts and no walks.`\
-https://nytimes.com/athletic/6330635/2025/05/03/cubs-brewers-ben-brown-strong-start/
+**Visual Analysis Shows U.S. Likely Bombed Yemen Migrant Detention Center**\
+`Videos and photos reveal remnants of at least three U.S.-made GBU-39 bombs at the site of an April 28 attack. The strike killed 68 African migrants, according to the Houthis, a militant group that controls northern Yemen.`\
+https://nytimes.com/video/world/middleeast/100000010137049/us-bombing-yemen-migrant-shelter.html
 
-**The New York Times in Print for Saturday, May 3, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/05/03/todays-new-york-times
+**David Harbour Is Conflicted About Becoming a Morning Person**\
+`Working on the new movie “Thunderbolts*” and the TV series “Stranger Things,” he said, “You’re up early at 6 in the morning. But I still have that beast inside me that wants to sleep till 1 p.m.”`\
+https://nytimes.com/2025/05/03/movies/david-harbour-thunderbolts-stranger-things.html
 
-**Yankees expected a lot from Paul Goldschmidt. They’re getting even more**\
-`Goldschmidt's home run provided all the Yankees' runs in a 3-0 win over the Rays on Friday.`\
-https://nytimes.com/athletic/6330597/2025/05/03/yankees-paul-goldschmidt-home-run-rays/
+**Are Politicians Too Old? California Democrats Want to Debate an Age Cap.**\
+`As the Democratic Party tries to win back support, some members say forcing older politicians to retire is one solution.`\
+https://nytimes.com/2025/05/03/us/california-democrats-politicians-aging.html
 
-**Angel Reese, Hailey Van Lith honored ahead of Chicago Sky preseason opener**\
-`Reese and her fellow LSU-turned-Sky teammate Van Lith were given flowers before the homecoming exhibition.`\
-https://nytimes.com/athletic/6330596/2025/05/03/angel-reese-hailey-van-lith-chicago-sky-lsu/
+**Can My Co-op Charge Me Extra for Renting Out My Unit?**\
+`A co-op board has wide latitude to operate in the best interests of the building and the shareholders. But some fees are unreasonable.`\
+https://nytimes.com/2025/05/03/realestate/co-op-subletting-surcharge.html
 
