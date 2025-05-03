@@ -1,3 +1,7 @@
+**Trump Posts an Image of Himself as Pope**\
+`The president has joked about being the next pontiff, but the image, which appeared to be A.I.-generated, took things a step further and drew some pushback.`\
+https://nytimes.com/2025/05/03/us/politics/trump-pope-photo.html
+
 **Premier League referee injured on debut, Vardy whistles to stop game**\
 `David Webb was inadvertently struck in the side of the head by Leicester forward Jordan Ayew as he ran past him.`\
 https://nytimes.com/athletic/6331115/2025/05/03/premier-league-referee-injured-debut-jamie-vardy/

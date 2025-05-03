@@ -1,3 +1,7 @@
+**Trump Posts an Image of Himself as Pope**\
+`The president has joked about being the next pontiff, but the image, which appeared to be A.I.-generated, took things a step further and drew some pushback.`\
+https://nytimes.com/2025/05/03/us/politics/trump-pope-photo.html
+
 **Premier League referee injured on debut, Vardy whistles to stop game**\
 `David Webb was inadvertently struck in the side of the head by Leicester forward Jordan Ayew as he ran past him.`\
 https://nytimes.com/athletic/6331115/2025/05/03/premier-league-referee-injured-debut-jamie-vardy/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6330983/2025/05/03/daryl-dike-goal-usmnt-west-brom/
 **Rockets have forced Game 7 vs. Warriors by being themselves. Now they need 'one more'**\
 `"(I'm) just trying to squeeze as much juice out of this group as possible," Rockets veteran Fred VanVleet says. `\
 https://nytimes.com/athletic/6330710/2025/05/03/rockets-fred-vanvleet-warriors-game-7/
-
-**Warren Buffett Criticizes Trump’s Trade Policies**\
-`“Trade should not be a weapon,” he said at Berkshire’s annual shareholders’ meeting. Investors had been awaiting his comments on trade, given the conglomerate’s status as an economic bellwether.`\
-https://nytimes.com/2025/05/03/business/berkshire-earnings-warren-buffett.html
 
