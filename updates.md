@@ -1,3 +1,19 @@
+**These Contentious Issues Could Determine Who Becomes the Next Pope**\
+`As cardinals gather to elect Pope Francis’ successor, they are facing debates over whether the church most needs change or constancy.`\
+https://nytimes.com/2025/05/03/world/europe/pope-conclave-contentious-issues.html
+
+**One of the Weather World’s Biggest Buzzwords Expands Its Reach**\
+`To many, atmospheric rivers are a West Coast phenomenon. But they’re also responsible for the devastating flooding that hit the Central United States in early April.`\
+https://nytimes.com/2025/05/03/weather/atmospheric-rivers-midwest-california.html
+
+**April’s Storms Were Relentless. But the Rainwater Is Finally Going Away.**\
+`The Mississippi River crested in New Orleans this week, capping an anxious period for the engineers and residents who live alongside it.`\
+https://nytimes.com/2025/05/03/weather/mississippi-river-flooding-cresting.html
+
+**As China Looks for Way Out of U.S. Trade Deadlock, Fentanyl Could Be Key**\
+`Chinese officials have long used their willingness to cooperate to stem the flow of fentanyl to the United States as leverage in talks over broader disputes.`\
+https://nytimes.com/2025/05/03/world/asia/us-china-tariffs-fentanyl.html
+
 **Ocean Vuong Was Ready to Kill. Then a Moment of Grace Changed His Life.**\
 `The poet and novelist on the real reason he became a writer.`\
 https://nytimes.com/2025/05/03/magazine/ocean-vuong-interview.html

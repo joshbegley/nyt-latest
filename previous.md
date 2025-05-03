@@ -1,3 +1,19 @@
+**These Contentious Issues Could Determine Who Becomes the Next Pope**\
+`As cardinals gather to elect Pope Francis’ successor, they are facing debates over whether the church most needs change or constancy.`\
+https://nytimes.com/2025/05/03/world/europe/pope-conclave-contentious-issues.html
+
+**One of the Weather World’s Biggest Buzzwords Expands Its Reach**\
+`To many, atmospheric rivers are a West Coast phenomenon. But they’re also responsible for the devastating flooding that hit the Central United States in early April.`\
+https://nytimes.com/2025/05/03/weather/atmospheric-rivers-midwest-california.html
+
+**April’s Storms Were Relentless. But the Rainwater Is Finally Going Away.**\
+`The Mississippi River crested in New Orleans this week, capping an anxious period for the engineers and residents who live alongside it.`\
+https://nytimes.com/2025/05/03/weather/mississippi-river-flooding-cresting.html
+
+**As China Looks for Way Out of U.S. Trade Deadlock, Fentanyl Could Be Key**\
+`Chinese officials have long used their willingness to cooperate to stem the flow of fentanyl to the United States as leverage in talks over broader disputes.`\
+https://nytimes.com/2025/05/03/world/asia/us-china-tariffs-fentanyl.html
+
 **Ocean Vuong Was Ready to Kill. Then a Moment of Grace Changed His Life.**\
 `The poet and novelist on the real reason he became a writer.`\
 https://nytimes.com/2025/05/03/magazine/ocean-vuong-interview.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/05/03/style/laid-off-newsletter-substack.html
 **Against the Odds, He Made Thoroughbred Racing a Viable Business**\
 `Using social media, podcasts and other innovations, Jon Green has turned DJ Stable into a $30-million-a-year entity. His colt, Sandman, is among the favorites to win the 151st Kentucky Derby.`\
 https://nytimes.com/2025/05/03/sports/kentucky-derby-racing-business.html
-
-**Did a TV Show Hurt You? ‘Fix-Its’ Offer Justice**\
-`Beloved characters are killed. Romances, too. But a subset of fan-fiction writers are taking matters into their own hands, “fixing” perceived wrongs.`\
-https://nytimes.com/2025/05/03/arts/television/did-a-tv-show-hurt-you-fix-its-offer-justice.html
-
-**Visual Analysis Shows U.S. Likely Bombed Yemen Migrant Detention Center**\
-`Videos and photos reveal remnants of at least three U.S.-made GBU-39 bombs at the site of an April 28 attack. The strike killed 68 African migrants, according to the Houthis, a militant group that controls northern Yemen.`\
-https://nytimes.com/video/world/middleeast/100000010137049/us-bombing-yemen-migrant-shelter.html
-
-**David Harbour Is Conflicted About Becoming a Morning Person**\
-`Working on the new movie “Thunderbolts*” and the TV series “Stranger Things,” he said, “You’re up early at 6 in the morning. But I still have that beast inside me that wants to sleep till 1 p.m.”`\
-https://nytimes.com/2025/05/03/movies/david-harbour-thunderbolts-stranger-things.html
-
-**Are Politicians Too Old? California Democrats Want to Debate an Age Cap.**\
-`As the Democratic Party tries to win back support, some members say forcing older politicians to retire is one solution.`\
-https://nytimes.com/2025/05/03/us/california-democrats-politicians-aging.html
 
