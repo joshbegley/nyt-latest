@@ -1,3 +1,7 @@
+**Voice of America reporters are set to return to work.**\
+`By Tim Balk`\
+https://nytimes.com/2025/05/03/us/politics/voice-of-america-reporters-are-set-to-return-to-work.html
+
 **Relegation, relief and 'rubbish': A day on the brink in the Championship**\
 `Five clubs were fighting to stay in the second tier - so The Athletic went to watch them all on the final day of the season`\
 https://nytimes.com/athletic/6331272/2025/05/03/luton-relegated-hull-derby-stoke-preston/
