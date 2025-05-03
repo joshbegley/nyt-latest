@@ -1,3 +1,19 @@
+**The Pulse: They're not even full strength yet**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6330633/2025/05/03/new-york-mets-season-the-pulse/
+
+**USMNT's Dike scores first goal in 483 days**\
+`Dike has missed much of the last two years through injury and ended his barren spell by scoring for West Bromwich Albion against Luton Town.`\
+https://nytimes.com/athletic/6330983/2025/05/03/daryl-dike-goal-usmnt-west-brom/
+
+**Rockets have forced Game 7 vs. Warriors by being themselves. Now they need 'one more'**\
+`"(I'm) just trying to squeeze as much juice out of this group as possible," Rockets veteran Fred VanVleet says. `\
+https://nytimes.com/athletic/6330710/2025/05/03/rockets-fred-vanvleet-warriors-game-7/
+
+**Berkshire Reports Drop in Earnings, Mainly From Investment Losses**\
+`The cash pile at Warren Buffett’s conglomerate grew to a record $347.7 billion as it found few attractive buying opportunities. The report came out ahead of the annual shareholders’ meeting.`\
+https://nytimes.com/2025/05/03/business/berkshire-earnings-warren-buffett.html
+
 **Trump Administration Live Updates: A Military Parade in June Could Fall on the President’s Birthday**\
 ``\
 https://nytimes.com/live/2025/05/03/us/trump-news-updates
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6330319/2025/05/03/seahawks-rookie-camp-day-1-jalen
 **Lowetide: Is Kris Knoblauch any closer to fixing the Oilers' defence?**\
 `Knoblauch's ongoing search for what works receives another best-of-seven series to continue the experiments.`\
 https://nytimes.com/athletic/6325483/2025/05/03/edmonton-oilers-nhl-playoffs-defence-knoblauch/
-
-**Dmitry Orlov ready to face off against familiar Capitals foe, this time as part of Hurricanes**\
-`Orlov won the Stanley Cup with Washington in 2018. Now he faces off against the team and some familiar faces with Carolina.`\
-https://nytimes.com/athletic/6330095/2025/05/03/hurricanes-capitals-dmitry-orlov-nhl-playoffs/
-
-**Matthew Knies is built for the playoffs — and he's just scratching the surface**\
-`Knies not only understands the pressure that comes with the postseason, but he also knows how to respond to it.`\
-https://nytimes.com/athletic/6309169/2025/05/03/maple-leafs-matthew-knies-nhl-playoffs/
-
-**If you reduce Gregg Popovich to his TV sideline interviews, you missed a lot**\
-`Take it from first-hand experience: What you saw from Pop in those moments was only part of the story.`\
-https://nytimes.com/athletic/6329586/2025/05/03/spurs-gregg-popovich-retirement-coaching-sideline-nba/
-
-**They Help Companies Set Prices. Tariffs Are Making It Trickier.**\
-`Pricing strategists are navigating the possibility that input costs, the economy and consumer behavior may all shift drastically.`\
-https://nytimes.com/2025/05/03/business/dealbook/trump-tariff-pricing-strategy.html
 
