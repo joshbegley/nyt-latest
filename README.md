@@ -1,3 +1,15 @@
+**Premier League referee injured on debut, Vardy whistles to stop game**\
+`David Webb was inadvertently struck in the side of the head by Leicester forward Jordan Ayew as he ran past him.`\
+https://nytimes.com/athletic/6331115/2025/05/03/premier-league-referee-injured-debut-jamie-vardy/
+
+**(In a Very Soft Voice) Here’s Eric Kim’s Hangover Kimchi Soup**\
+`This soothing bowl of reviving flavors is very easy to pull together.`\
+https://nytimes.com/2025/05/03/dining/-in-a-very-soft-voice-heres-eric-kims-hangover-kimchi-soup.html
+
+**Two Photos of the Hindenburg Disaster**\
+`The crash occurred 88 years ago this Tuesday. Take a look at a pair of images from the event.`\
+https://nytimes.com/2025/05/03/insider/two-photos-of-the-hindenburg-disaster.html
+
 **The Best Creamy, Nut-Free Seed Butters**\
 `Text by Katie Okamoto`\
 https://nytimes.com/card/2025/05/03/smarter-living/wirecutter/best-creamy-nut-free-seed-butters
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6330710/2025/05/03/rockets-fred-vanvleet-warriors-g
 **Warren Buffett Criticizes Trump’s Trade Policies**\
 `“Trade should not be a weapon,” he said at Berkshire’s annual shareholders’ meeting. Investors had been awaiting his comments on trade, given the conglomerate’s status as an economic bellwether.`\
 https://nytimes.com/2025/05/03/business/berkshire-earnings-warren-buffett.html
-
-**Trump Administration Live Updates: A Military Parade in June Could Fall on the President’s Birthday**\
-``\
-https://nytimes.com/live/2025/05/03/us/trump-news-updates
-
-**Kings' offseason checklist should begin with futures of Rob Blake, Jim Hiller**\
-`The Kings have plenty to address after a fourth consecutive first-round playoff exit.`\
-https://nytimes.com/athletic/6330689/2025/05/03/kings-offseason-blake-hiller-roster/
-
-**After staggering Game 6 loss to Rockets, Warriors express belief: 'The real always rise'**\
-`A game-changing play led to what could become a season-altering (and potentially franchise-shifting) loss for the Warriors.`\
-https://nytimes.com/athletic/6330487/2025/05/03/warriors-rockets-nba-playoffs-game-6/
 
