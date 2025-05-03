@@ -1,3 +1,7 @@
+**Ocean Vuong Was Ready to Kill. Then a Moment of Grace Changed His Life.**\
+`The poet and novelist on the real reason he became a writer.`\
+https://nytimes.com/2025/05/03/magazine/ocean-vuong-interview.html
+
 **A Real Housewife Trashed Her Sprinkle Cookies. Fans Are Eating Them Up.**\
 `Fourteen years ago, Teresa Giudice threw Melissa Gorga’s sprinkle cookies in the garbage on “The Real Housewives of New Jersey.” Now Gorga is selling out of an upscale version of them.`\
 https://nytimes.com/2025/05/03/arts/television/melissa-gorga-rohnj-sprinkle-cookies.html
