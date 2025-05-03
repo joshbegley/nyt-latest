@@ -1,3 +1,11 @@
+**Chicago Museum Director Under Investigation After Airplane Incident**\
+`James Rondeau, the director of the Art Institute of Chicago, took a leave of absence after a report that he stripped off his clothes during a flight to Germany.`\
+https://nytimes.com/2025/05/03/arts/design/rondeau-chicago-art-museum-director-investigation.html
+
+**Ukraine Rejects Russian Call for a Three-Day Cease-Fire**\
+`President Volodymyr Zelensky called the proposal a “theatrical show” and said that such a short truce would not bolster negotiations for a lasting peace.`\
+https://nytimes.com/2025/05/03/world/europe/ukraine-russia-ceasefire-talks.html
+
 **Blue Jays sign Turnbull, Ureña to bolster pitching depth**\
 `If Toronto needs to dip further down the depth chart for starts, the two new additions could soon be options.`\
 https://nytimes.com/athletic/6331083/2025/05/03/blue-jays-sign-spencer-turnbull/

@@ -1,3 +1,11 @@
+**Chicago Museum Director Under Investigation After Airplane Incident**\
+`James Rondeau, the director of the Art Institute of Chicago, took a leave of absence after a report that he stripped off his clothes during a flight to Germany.`\
+https://nytimes.com/2025/05/03/arts/design/rondeau-chicago-art-museum-director-investigation.html
+
+**Ukraine Rejects Russian Call for a Three-Day Cease-Fire**\
+`President Volodymyr Zelensky called the proposal a “theatrical show” and said that such a short truce would not bolster negotiations for a lasting peace.`\
+https://nytimes.com/2025/05/03/world/europe/ukraine-russia-ceasefire-talks.html
+
 **The National Endowment for the Arts Begins Terminating Grants**\
 `The endowment told arts organizations that it was withdrawing or canceling current grants just hours after President Trump proposed eliminating the agency in the next fiscal year.`\
 https://nytimes.com/2025/05/03/arts/national-endowment-for-the-arts-grants.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6331115/2025/05/03/premier-league-referee-injured-d
 **(In a Very Soft Voice) Here’s Eric Kim’s Hangover Kimchi Soup**\
 `This soothing bowl of reviving flavors is very easy to pull together.`\
 https://nytimes.com/2025/05/03/dining/-in-a-very-soft-voice-heres-eric-kims-hangover-kimchi-soup.html
-
-**Two Photos of the Hindenburg Disaster**\
-`The crash occurred 88 years ago this Tuesday. Take a look at a pair of images from the event.`\
-https://nytimes.com/2025/05/03/insider/two-photos-of-the-hindenburg-disaster.html
-
-**The Best Creamy, Nut-Free Seed Butters**\
-`Text by Katie Okamoto`\
-https://nytimes.com/card/2025/05/03/smarter-living/wirecutter/best-creamy-nut-free-seed-butters
 
