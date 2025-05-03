@@ -1,3 +1,7 @@
+**Triston Casas out for the season: What it means for Rafael Devers, Roman Anthony and more**\
+`Casas’ knee gave out Friday as he was running to first base in the second inning of Boston's 6-1 win over the Minnesota Twins.`\
+https://nytimes.com/athletic/6331568/2025/05/03/triston-casas-out-season-rafael-devers-roman-anthony-red-sox/
+
 **Flames sign Matt Coronato to 7-year, $45.50 million extension**\
 `Coronato's contract will carry a $6.5 million cap hit through 2032 when he'll be 29 years old.`\
 https://nytimes.com/athletic/6331565/2025/05/03/flames-matt-coronato-contract-signing/
