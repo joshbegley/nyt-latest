@@ -1,5 +1,13 @@
-**Sovereignty wins 151st Kentucky Derby**\
-`Sovereignty was able to pull ahead of the favorite on the wet, muddy track to secure first Kentucky Derby win for jockey Junior Alvarado.`\
+**Orioles call up Coby Mayo, their No. 2 prospect, to return to MLB**\
+`Mayo returns to the club after the Orioles placed Ramón Urías on the 10-day injured list with a right hamstring strain.`\
+https://nytimes.com/athletic/6331828/2025/05/03/coby-mayo-recalled-orioles/
+
+**Chas McCormick's premonition precipitates an 'incredible' day for Jake Meyers**\
+`Meyers became the first Astro to go 4-for-4 with two home runs, a double and a triple.`\
+https://nytimes.com/athletic/6331808/2025/05/03/astros-jake-meyers-chas-mccormick/
+
+**Sovereignty wins 151st Kentucky Derby over favorite Journalism**\
+`Sovereignty pulled ahead of Journalism on the wet, muddy track to secure jockey Junior Alvarado's first Kentucky Derby win.`\
 https://nytimes.com/athletic/6331778/2025/05/03/sovereignty-wins-kentucky-derby/
 
 **Notre Dame beats Michigan for top-100 RB, continues recruiting surge**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/03/arts/music/pierre-audi-dead.html
 **Force Play**\
 `Brandon Koppy’s puzzle sends us to space, and it’s a little crowded.`\
 https://nytimes.com/2025/05/03/crosswords/daily-puzzle-2025-05-04.html
-
-**Max Verstappen on pole for Miami Grand Prix as Lewis Hamilton's woes continue**\
-`Max Verstappen takes pole with a sensational lap, while Kimi Antonelli continues to impress this weekend`\
-https://nytimes.com/athletic/6331592/2025/05/03/miami-grand-prix-qualifying-sprint-2025-result/
-
-**Brady Tkachuk's injuries, Claude Giroux's future and more: Senators end-of-season notebook**\
-`Also, an update on Nick Jensen's injury uncertainty, and Adam Gaudette's and Travis Hamonic's futures with the organization.`\
-https://nytimes.com/athletic/6331104/2025/05/03/senators-postmortem-notebook-tkachuk/
 
