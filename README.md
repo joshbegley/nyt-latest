@@ -1,3 +1,11 @@
+**From One Forest to Another: Sweep of Homeless People Changes Little**\
+`Dozens of people who lived in broken-down R.V.s in the Deschutes National Forest in Oregon set up camp nearby in different wooded areas, after they were ordered to leave or face jail and fines.`\
+https://nytimes.com/2025/05/03/realestate/homeless-encampment-removal-forest-oregon.html
+
+**Poised to Expand Gaza Offensive, Israel Calls Up Thousands of Reserve Soldiers**\
+`The mobilization could indicate that the Israeli government is preparing to shift its tactics in its fight against Hamas.`\
+https://nytimes.com/2025/05/03/world/middleeast/israel-mobilizes-reservists-gaza.html
+
 **Flames sign Matt Coronato to 7-year, $45.50 million extension**\
 `Coronato's contract will carry a $6.5 million cap hit through 2032 when he'll be 29 years old.`\
 https://nytimes.com/athletic/6331565/2025/05/03/flames-matt-coronato-contract-signing/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6320276/2025/05/03/arsenal-bournemouth-result-analy
 **How Toronto Maple Leafs, Florida Panthers are leaning on intel ahead of Round 2 matchup**\
 `By finishing off their opening-round opponents quickly, the Panthers and Leafs got an opportunity to rest and prepare for Round 2.`\
 https://nytimes.com/athletic/6331431/2025/05/03/toronto-maple-leafs-florida-panthers-intel-round-2/
-
-**Caitlin Clark out of Fever's preseason opener vs. Mystics with leg injury**\
-`Clark popped up on the injury report Friday, and before Saturday’s game she described the injury as “just a little tightness” in her leg.`\
-https://nytimes.com/athletic/6331436/2025/05/03/caitlin-clark-fever-mystics-preseason-leg-injury/
-
-**Historic promotion, Premier League in sight, scenes at the 'circus' - Wrexham's season review**\
-`Wrexham secured a third successive promotion but a fans' favourite played second fiddle - The Athletic assess another rollercoaster ride`\
-https://nytimes.com/athletic/6318063/2025/05/03/wrexham-promotion-reynolds-mcelhenney-parkinson/
 
