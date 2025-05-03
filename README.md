@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6298666/2025/05/03/jakub-kiwior-arsenal-poland-spez
 `How one of the Champions League's most dramatic nights, and controversial moments, unfolded in 2005`\
 https://nytimes.com/athletic/6328736/2025/05/03/liverpool-chelsea-ghost-goal/
 
-**NBA playoffs takeaways: Rockets silence Warriors' offense, force Game 7**\
+**NBA playoffs takeaways: Rockets silence Warriors offense, force Game 7**\
 `The series returns to Houston for a winner-take-all Game 7 on Sunday.`\
 https://nytimes.com/athletic/6330589/2025/05/03/nba-playoffs-scores-takeaways-warriors-rockets/
 
