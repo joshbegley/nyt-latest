@@ -1,3 +1,7 @@
+**Thompson: These Warriors are old, tired and in trouble as Game 7 looms against Rockets**\
+`They're not done yet. Maybe a legendary performance awaits on Sunday. But the Warriors look like they're out of gas and out of answers.`\
+https://nytimes.com/athletic/6330793/2025/05/03/warriors-tired-rockets-game-7-steph-curry/
+
 **Chicago Museum Director Under Investigation After Airplane Incident**\
 `James Rondeau, the director of the Art Institute of Chicago, took a voluntary leave after a report that he stripped off his clothes during a flight to Germany.`\
 https://nytimes.com/2025/05/03/arts/design/rondeau-chicago-art-museum-director-investigation.html

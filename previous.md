@@ -1,3 +1,7 @@
+**Thompson: These Warriors are old, tired and in trouble as Game 7 looms against Rockets**\
+`They're not done yet. Maybe a legendary performance awaits on Sunday. But the Warriors look like they're out of gas and out of answers.`\
+https://nytimes.com/athletic/6330793/2025/05/03/warriors-tired-rockets-game-7-steph-curry/
+
 **Australia’s Prime Minister Wins Second Term**\
 `Prime Minister Anthony Albanese of Australia won in a resounding defeat of the conservative opposition led by Peter Dutton.`\
 https://nytimes.com/video/world/australia/100000010145485/australia-election-prime-minister-albanese-dutton.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6331205/2025/05/03/mclaren-zak-brown-water-bottle-f
 **Blue Jays sign Turnbull, Ureña to bolster pitching depth**\
 `If Toronto needs to dip further down the depth chart for starts, the two new additions could soon be options.`\
 https://nytimes.com/athletic/6331083/2025/05/03/blue-jays-sign-spencer-turnbull/
-
-**Trump Posts an Image of Himself as Pope**\
-`The president has joked about being the next pontiff, but the image, which appeared to be A.I.-generated, took things a step further and drew some pushback.`\
-https://nytimes.com/2025/05/03/us/politics/trump-pope-photo.html
 
