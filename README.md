@@ -14,8 +14,8 @@ https://nytimes.com/2025/05/03/world/europe/czech-treasure-gold-discovery.html
 `Brown had earlier poked fun at rivals Red Bull with a message on his water bottle at the Miami GP.`\
 https://nytimes.com/athletic/6331205/2025/05/03/mclaren-zak-brown-water-bottle-f1-protests/
 
-**Blue Jays bolster rotation depth, sign Spencer Turnbull**\
-`Turnbull was one of the top pitchers left in free agency.`\
+**Blue Jays sign Spencer Turnbull, bolstering pitching depth: Reports**\
+`Turnbull was one of the top remaining pitchers sitting in free agency.`\
 https://nytimes.com/athletic/6331083/2025/05/03/blue-jays-sign-spencer-turnbull/
 
 **Trump Posts an Image of Himself as Pope**\
