@@ -1,3 +1,11 @@
+**Trump Administration Sues Colorado and Denver Over Immigration Policies**\
+`The lawsuit, which names the governor and mayor as defendants, is the latest move by the White House to try to get local governments to cooperate more with its immigration agenda.`\
+https://nytimes.com/2025/05/03/us/politics/trump-colorado-denver-lawsuit-immigration.html
+
+**The Art of the Kentucky Derby Hat**\
+`From traditional hats to fascinators and headdresses, the best looks at the 151st running of America’s most fashionable sporting event.`\
+https://nytimes.com/2025/05/03/style/kentucky-derby-2025-hats.html
+
 **Aryna Sabalenka beats Coco Gauff to regain Madrid Open title**\
 `Sabalenka reeled Gauff back in from a break down in the second set to take the title in the Spanish capital.`\
 https://nytimes.com/athletic/6331151/2025/05/03/coco-gauff-madrid-open-aryna-sabalenka-result-analysis/
