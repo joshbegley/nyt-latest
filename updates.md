@@ -1,3 +1,7 @@
+**The Briefing: Arsenal 1 Bournemouth 2: Set-piece weakness exposed again in limp defeat**\
+`Analysing the big talking points from Saturday's Premier League game at Emirates Stadium`\
+https://nytimes.com/athletic/6320276/2025/05/03/arsenal-bournemouth-result-analysis/
+
 **How Toronto Maple Leafs, Florida Panthers are leaning on intel ahead of Round 2 matchup**\
 `By finishing off their opening-round opponents quickly, the Panthers and Leafs got an opportunity to rest and prepare for Round 2.`\
 https://nytimes.com/athletic/6331431/2025/05/03/toronto-maple-leafs-florida-panthers-intel-round-2/
