@@ -1,5 +1,5 @@
-**From One Forest to Another: Sweep of Homeless People Changes Little**\
-`Dozens of people who lived in broken-down R.V.s in the Deschutes National Forest in Oregon set up camp nearby in different wooded areas, after they were ordered to leave or face jail and fines.`\
+**From One Forest to Another: A Homeless Sweep Changes Little**\
+`Dozens of people forced to leave the Deschutes National Forest in Oregon set up camp nearby in different wooded areas.`\
 https://nytimes.com/2025/05/03/realestate/homeless-encampment-removal-forest-oregon.html
 
 **Poised to Expand Gaza Offensive, Israel Calls Up Thousands of Reserve Soldiers**\
