@@ -1,9 +1,17 @@
+**Australia’s Prime Minister Wins Second Term**\
+`Prime Minister Anthony Albanese of Australia won in a resounding defeat of the conservative opposition led by Peter Dutton.`\
+https://nytimes.com/video/world/australia/100000010145485/australia-election-prime-minister-albanese-dutton.html
+
+**Dodgers to call up Korean utility man Hyeseong Kim for MLB debut: Sources:**\
+`Kim started the season in Triple A where he played well despite high strikeout totals.`\
+https://nytimes.com/athletic/6331343/2025/05/03/dodgers-hyeseong-kim-mlb-debut-sources/
+
 **Chicago Museum Director Under Investigation After Airplane Incident**\
 `James Rondeau, the director of the Art Institute of Chicago, took a leave of absence after a report that he stripped off his clothes during a flight to Germany.`\
 https://nytimes.com/2025/05/03/arts/design/rondeau-chicago-art-museum-director-investigation.html
 
 **Ukraine Rejects Russian Call for a Three-Day Cease-Fire**\
-`President Volodymyr Zelensky called the proposal a “theatrical show” and said that such a short truce would not bolster negotiations for a lasting peace.`\
+`President Volodymyr Zelensky called the proposal a “theatrical show” and said such a short truce would not bolster negotiations for a lasting peace.`\
 https://nytimes.com/2025/05/03/world/europe/ukraine-russia-ceasefire-talks.html
 
 **The National Endowment for the Arts Begins Terminating Grants**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6331083/2025/05/03/blue-jays-sign-spencer-turnbull/
 **Trump Posts an Image of Himself as Pope**\
 `The president has joked about being the next pontiff, but the image, which appeared to be A.I.-generated, took things a step further and drew some pushback.`\
 https://nytimes.com/2025/05/03/us/politics/trump-pope-photo.html
-
-**Premier League referee injured on debut, Vardy whistles to stop game**\
-`David Webb was inadvertently struck in the side of the head by Leicester forward Jordan Ayew as he ran past him.`\
-https://nytimes.com/athletic/6331115/2025/05/03/premier-league-referee-injured-debut-jamie-vardy/
-
-**(In a Very Soft Voice) Here’s Eric Kim’s Hangover Kimchi Soup**\
-`This soothing bowl of reviving flavors is very easy to pull together.`\
-https://nytimes.com/2025/05/03/dining/-in-a-very-soft-voice-heres-eric-kims-hangover-kimchi-soup.html
 

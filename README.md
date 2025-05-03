@@ -7,7 +7,7 @@ https://nytimes.com/video/world/australia/100000010145485/australia-election-pri
 https://nytimes.com/athletic/6331343/2025/05/03/dodgers-hyeseong-kim-mlb-debut-sources/
 
 **Chicago Museum Director Under Investigation After Airplane Incident**\
-`James Rondeau, the director of the Art Institute of Chicago, took a leave of absence after a report that he stripped off his clothes during a flight to Germany.`\
+`James Rondeau, the director of the Art Institute of Chicago, took a voluntary leave after a report that he stripped off his clothes during a flight to Germany.`\
 https://nytimes.com/2025/05/03/arts/design/rondeau-chicago-art-museum-director-investigation.html
 
 **Ukraine Rejects Russian Call for a Three-Day Cease-Fire**\

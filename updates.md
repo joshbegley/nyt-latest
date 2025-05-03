@@ -1,3 +1,15 @@
+**Australia’s Prime Minister Wins Second Term**\
+`Prime Minister Anthony Albanese of Australia won in a resounding defeat of the conservative opposition led by Peter Dutton.`\
+https://nytimes.com/video/world/australia/100000010145485/australia-election-prime-minister-albanese-dutton.html
+
+**Dodgers to call up Korean utility man Hyeseong Kim for MLB debut: Sources:**\
+`Kim started the season in Triple A where he played well despite high strikeout totals.`\
+https://nytimes.com/athletic/6331343/2025/05/03/dodgers-hyeseong-kim-mlb-debut-sources/
+
+**Ukraine Rejects Russian Call for a Three-Day Cease-Fire**\
+`President Volodymyr Zelensky called the proposal a “theatrical show” and said such a short truce would not bolster negotiations for a lasting peace.`\
+https://nytimes.com/2025/05/03/world/europe/ukraine-russia-ceasefire-talks.html
+
 **Chicago Museum Director Under Investigation After Airplane Incident**\
 `James Rondeau, the director of the Art Institute of Chicago, took a leave of absence after a report that he stripped off his clothes during a flight to Germany.`\
 https://nytimes.com/2025/05/03/arts/design/rondeau-chicago-art-museum-director-investigation.html
