@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: A Military Parade in June Could Fall on the President’s Birthday**\
+``\
+https://nytimes.com/live/2025/05/03/us/trump-news-updates
+
 **Kings' offseason checklist should begin with futures of Rob Blake, Jim Hiller**\
 `The Kings have plenty to address after a fourth consecutive first-round playoff exit.`\
 https://nytimes.com/athletic/6330689/2025/05/03/kings-offseason-blake-hiller-roster/

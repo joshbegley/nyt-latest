@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: A Military Parade in June Could Fall on the President’s Birthday**\
+``\
+https://nytimes.com/live/2025/05/03/us/trump-news-updates
+
 **Kings' offseason checklist should begin with futures of Rob Blake, Jim Hiller**\
 `The Kings have plenty to address after a fourth consecutive first-round playoff exit.`\
 https://nytimes.com/athletic/6330689/2025/05/03/kings-offseason-blake-hiller-roster/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6329586/2025/05/03/spurs-gregg-popovich-retirement-
 **They Help Companies Set Prices. Tariffs Are Making It Trickier.**\
 `Pricing strategists are navigating the possibility that input costs, the economy and consumer behavior may all shift drastically.`\
 https://nytimes.com/2025/05/03/business/dealbook/trump-tariff-pricing-strategy.html
-
-**2 Books to Read Instead of Meditating**\
-`A gentle and clever comic novel; a poetic and tender essay on addiction.`\
-https://nytimes.com/2025/05/03/books/read-like-wind-recommendations.html
 
