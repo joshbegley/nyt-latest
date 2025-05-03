@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6331104/2025/05/03/senators-postmortem-notebook-tka
 https://nytimes.com/2025/05/03/realestate/homeless-encampment-removal-forest-oregon.html
 
 **Poised to Expand Gaza Offensive, Israel Calls Up Thousands of Reserve Soldiers**\
-`The mobilization could indicate that the Israeli government is preparing to shift its tactics in its fight against Hamas.`\
+`The mobilization could indicate that Israel is preparing to shift its tactics in its fight against Hamas.`\
 https://nytimes.com/2025/05/03/world/middleeast/israel-mobilizes-reservists-gaza.html
 
 **Flames sign Matt Coronato to 7-year, $45.50 million contract**\
