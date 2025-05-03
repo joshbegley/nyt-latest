@@ -1,3 +1,11 @@
+**In Singapore’s Election, All Eyes Are on the Margin of Victory, Not the Winner**\
+`The People’s Action Party is widely expected to continue its six-decade reign. But discontent with its policies is fueling a growing opposition.`\
+https://nytimes.com/2025/05/02/world/asia/singapore-election-pap-workers.html
+
+**The Canadiens have work left to do, but this season has shown they have a strong core**\
+`Suzuki does not want the Canadiens to take a step back after an unexpected playoff berth. The core he leads should ensure that.`\
+https://nytimes.com/athletic/6330326/2025/05/02/canadiens-nhl-playoffs-suzuki-slafkovsky-caufield/
+
 **Canadiens have work left to do, but this season has shown they have a strong core**\
 `Suzuki does not want the Canadiens to take a step back after an unexpected playoff berth. The core he leads should ensure that.`\
 https://nytimes.com/athletic/6330326/2025/05/02/canadiens-nhl-playoffs-suzuki-slafkovsky-caufield/
