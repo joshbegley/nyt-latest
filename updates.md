@@ -1,3 +1,7 @@
+**What F1 fans at the track really think of the Miami Grand Prix**\
+`The Miami F1 race has a reputation for high ticket prices and fan controversy, so The Athletic asked 2025 attendees for their opinions`\
+https://nytimes.com/athletic/6330386/2025/05/03/f1-fans-miami-grand-prix-2025/
+
 **The Best Creamy, Nut-Free Seed Butters**\
 `Text by Katie Okamoto`\
 https://nytimes.com/card/2025/05/03/smarter-living/wirecutter/best-creamy-nut-free-seed-butters

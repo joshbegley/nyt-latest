@@ -2,6 +2,10 @@
 `Text by Katie Okamoto`\
 https://nytimes.com/card/2025/05/03/smarter-living/wirecutter/best-creamy-nut-free-seed-butters
 
+**What F1 fans at the track really think of the Miami Grand Prix**\
+`The Miami F1 race has a reputation for high ticket prices and fan controversy, so The Athletic asked 2025 attendees for their opinions`\
+https://nytimes.com/athletic/6330386/2025/05/03/f1-fans-miami-grand-prix-2025/
+
 **Leeds hit 100 points, pip Burnley to Championship title**\
 `Manor Solomon's 91st-minute goal at Plymouth Argyle on the season's final day saw them stay above Burnley on goal difference.`\
 https://nytimes.com/athletic/6301875/2025/05/03/leeds-championship-title-winners-burnley/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6330689/2025/05/03/kings-offseason-blake-hiller-ros
 **After staggering Game 6 loss to Rockets, Warriors express belief: 'The real always rise'**\
 `A game-changing play led to what could become a season-altering (and potentially franchise-shifting) loss for the Warriors.`\
 https://nytimes.com/athletic/6330487/2025/05/03/warriors-rockets-nba-playoffs-game-6/
-
-**Why OPEC Plus Is Increasing Oil Supplies Despite Falling Prices**\
-`The group agreed to raise output in June, a sign that Saudi Arabia and its allies appear to be weary of cutting output and may be trying to appease President Trump, who has pushed for lower prices.`\
-https://nytimes.com/2025/05/03/business/opec-plus-oil-production-trump.html
 
