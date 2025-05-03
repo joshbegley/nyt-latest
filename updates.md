@@ -1,3 +1,7 @@
+**Relegation, relief and 'rubbish': A day on the brink in the Championship**\
+`Five clubs were fighting to stay in the second tier - so The Athletic went to watch them all on the final day of the season`\
+https://nytimes.com/athletic/6331272/2025/05/03/luton-relegated-hull-derby-stoke-preston/
+
 **Oil Prices Are Falling. Here’s Where That Could Spell Trouble.**\
 `For countries that depend heavily on oil revenue, dropping prices are worrisome.`\
 https://nytimes.com/2025/05/03/world/europe/oil-prices-tariffs.html

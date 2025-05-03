@@ -1,3 +1,7 @@
+**Relegation, relief and 'rubbish': A day on the brink in the Championship**\
+`Five clubs were fighting to stay in the second tier - so The Athletic went to watch them all on the final day of the season`\
+https://nytimes.com/athletic/6331272/2025/05/03/luton-relegated-hull-derby-stoke-preston/
+
 **Oil Prices Are Falling. Here’s Where That Could Spell Trouble.**\
 `For countries that depend heavily on oil revenue, dropping prices are worrisome.`\
 https://nytimes.com/2025/05/03/world/europe/oil-prices-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/03/opinion/trump-polls-popularity-dei.html
 **Hikers Stumble Upon a Pile of Gold Coins, Igniting a Historical Hunt**\
 `The discovery of coins and jewelry in the Czech Republic worth up to $680,000 raises a tantalizing mystery for historians and amateur sleuths: Who buried the treasure?`\
 https://nytimes.com/2025/05/03/world/europe/czech-treasure-gold-discovery.html
-
-**McLaren boss calls for F1 protest process change to stop ‘bogus allegations’**\
-`Brown had earlier poked fun at rivals Red Bull with a message on his water bottle at the Miami GP.`\
-https://nytimes.com/athletic/6331205/2025/05/03/mclaren-zak-brown-water-bottle-f1-protests/
 
