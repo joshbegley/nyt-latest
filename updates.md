@@ -1,3 +1,7 @@
+**Wolves 'celebrated' after their loss to Man City. This is why it wasn't weird**\
+`Wolves lost to Manchester City but their post-match actions were out of the norm`\
+https://nytimes.com/athletic/6330224/2025/05/03/wolves-celebrate-manchester-city-vitor-pereira/
+
 **City have stability and results again. So, how will they accommodate Erling Haaland?**\
 `City struggled before Haaland's injury but are in fine form again. How does their striker fit into their 4-2-2-2 system?`\
 https://nytimes.com/athletic/6327382/2025/05/03/man-city-erling-haaland-return-analysis/

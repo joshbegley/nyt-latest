@@ -1,3 +1,7 @@
+**Wolves 'celebrated' after their loss to Man City. This is why it wasn't weird**\
+`Wolves lost to Manchester City but their post-match actions were out of the norm`\
+https://nytimes.com/athletic/6330224/2025/05/03/wolves-celebrate-manchester-city-vitor-pereira/
+
 **City have stability and results again. So, how will they accommodate Erling Haaland?**\
 `City struggled before Haaland's injury but are in fine form again. How does their striker fit into their 4-2-2-2 system?`\
 https://nytimes.com/athletic/6327382/2025/05/03/man-city-erling-haaland-return-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6328736/2025/05/03/liverpool-chelsea-ghost-goal/
 **NBA playoffs takeaways: Rockets silence Warriors offense, force Game 7**\
 `The series returns to Houston for a winner-take-all Game 7 on Sunday.`\
 https://nytimes.com/athletic/6330589/2025/05/03/nba-playoffs-scores-takeaways-warriors-rockets/
-
-**Think the Premier League season is over? These are the games you still need to watch**\
-`With a fight for Champions League places, fond farewells and a scrap for a precious point, here are the Premier League games you have to see`\
-https://nytimes.com/athletic/6323203/2025/05/03/premier-league-champions-league-relegation/
 
