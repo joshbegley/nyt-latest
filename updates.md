@@ -1,3 +1,11 @@
+**Crystal Palace vs Man City FA Cup final kick-off time confirmed**\
+`The showpiece game has traditionally been played at 3pm although the kick-off time has been switched in recent years.`\
+https://nytimes.com/athletic/6330905/2025/05/03/fa-cup-final-kick-off-time-man-city-crystal-palace/
+
+**Another Hellebuyck letdown, an implosion in front of him — and a chance to make it all right in Game 7**\
+`The results of one game don't usually define a player's postseason legacy. For Connor Hellebuyck, Game 7 against St. Louis will come close.`\
+https://nytimes.com/athletic/6330387/2025/05/03/nhl-playoffs-winnipeg-jets-game-6/
+
 **Heidenheim goalkeeper Muller treated in hospital after head injury**\
 `The Bundesliga match was stopped for 11 minutes after Muller collided with Bochum midfielder Ibrahima Sissoko while punching the ball clear.`\
 https://nytimes.com/athletic/6330040/2025/05/03/kevin-muller-heidenheim-goalkeeper-head-injury/
