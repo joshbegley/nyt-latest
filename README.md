@@ -1,3 +1,7 @@
+**Who won the 2025 Kentucky Derby? Full results and payouts**\
+`Sovereignty won the 2025 Kentucky Derby on a muddy track, coming out on top in a 19-horse field.`\
+https://nytimes.com/athletic/6332930/2025/05/04/2025-kentucky-derby-full-results-payouts/
+
 **The long, strange wait is over. Harry Kane has won a trophy**\
 `The England striker's career will no longer have a footnote`\
 https://nytimes.com/athletic/6328040/2025/05/04/harry-kane-has-won-a-trophy/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6328040/2025/05/04/harry-kane-has-won-a-trophy/
 https://nytimes.com/2025/05/04/us/politics/justice-dept-minnesota-prosecutors-race.html
 
 **The Briefing: Chelsea 3 Liverpool 1 - Champions League boost? Were Arne Slot's side lacking sharpness?**\
-`Chelsea went into the game knowing this was a must-win for their Champions League hopes - and that beating the title winners was a huge test`\
+`Chelsea went into the game knowing this was a must-win for their Champions League hopes. Beating the title winners was a huge test`\
 https://nytimes.com/athletic/6320279/2025/05/04/chelsea-liverpool-result-report-analysis/
 
 **Bayern win Bundesliga title as Kane secures first career trophy**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6332315/2025/05/04/daryl-dike-interview-usmnt-west-
 **Days Before Conclave, Cardinals in Rome Pitch Messages to the Pews**\
 `Some papal contenders offered hints in Sunday Masses at what kind of pope they might want, or want to be.`\
 https://nytimes.com/2025/05/04/world/europe/conclave-pope-cardinals-rome.html
-
-**Cora Sue Collins, a Busy Child Actress in the 1930s, Dies at 98**\
-`She was in films with Greta Garbo, who became a friend, and  Myrna Loy, Bette Davis and others. She ended her career after being sexually harassed.`\
-https://nytimes.com/2025/05/04/movies/cora-sue-collins-dead.html
 
