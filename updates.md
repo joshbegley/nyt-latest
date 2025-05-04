@@ -1,3 +1,11 @@
+**Yankees takeaways: Aaron Boone's pinch hit problem, infield hitting woes, Will Warren**\
+`In the biggest at-bat of Sunday's loss, Boone stuck with his backup catcher. Let's take a look at the other options.`\
+https://nytimes.com/athletic/6333151/2025/05/04/new-york-yankees-aaron-boone-will-warren/
+
+**Texas Rangers fire offensive coordinator, put OF Leody Taveras on waivers**\
+`Only the Colorado Rockies have scored fewer runs this season than the Rangers, who are fourth in the AL West at 17-18.`\
+https://nytimes.com/athletic/6333433/2025/05/04/texas-rangers-fire-offensive-coordinator-leodys-taveras-waivers/
+
 **Shota Imanaga exits Sunday's loss with a hamstring strain as Cubs' thin pitching staff takes a hit**\
 `"We'll probably do some imaging to see what's going on," Craig Counsell said after the Cubs' 4-0 loss to the Brewers on Sunday.`\
 https://nytimes.com/athletic/6333325/2025/05/04/cubs-brewers-shota-imanaga-hamstring-strain/
