@@ -1,3 +1,7 @@
+**Canada defeats Sweden to earn gold at second straight U18 World Championship**\
+`Canada capped a dominant tournament with a 7-0 victory over Sweden in Saturday's gold medal game. `\
+https://nytimes.com/athletic/6329794/2025/05/03/canada-sweden-u18-gold-medal-game/
+
 **Stars defeat Avalanche in Game 7 thriller, advance to Round 2: Takeaways**\
 `Mikko Rantanen had three goals and an assist as Dallas defeated Colorado to advance to the second round. `\
 https://nytimes.com/athletic/6331932/2025/05/03/avalanche-stars-nhl-playoffs-2025-game-7-takeaways/
