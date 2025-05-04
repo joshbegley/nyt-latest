@@ -1,3 +1,7 @@
+**Australia’s Election Wasn’t About Trump. An Anti-Trump Wave Swept It Anyway.**\
+`The global turmoil wreaked by President Trump’s policies made him a factor in the election, bolstering the re-election of Prime Minister Anthony Albanese.`\
+https://nytimes.com/2025/05/04/world/australia/albanese-labor-election-trump.html
+
 **As Gaza Siege Grinds On, Gazan Children Go Hungry and Patients Die**\
 `The effect of Israel’s total siege has become “catastrophic,” doctors say. Food, water and medicine shortages are prompting a surge of preventable illnesses, and deaths.`\
 https://nytimes.com/2025/05/04/world/europe/israel-gaza-blockade-humanitarian-crisis.html

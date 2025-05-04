@@ -1,3 +1,7 @@
+**Australia’s Election Wasn’t About Trump. An Anti-Trump Wave Swept It Anyway.**\
+`The global turmoil wreaked by President Trump’s policies made him a factor in the election, bolstering the re-election of Prime Minister Anthony Albanese.`\
+https://nytimes.com/2025/05/04/world/australia/albanese-labor-election-trump.html
+
 **As Gaza Siege Grinds On, Gazan Children Go Hungry and Patients Die**\
 `The effect of Israel’s total siege has become “catastrophic,” doctors say. Food, water and medicine shortages are prompting a surge of preventable illnesses, and deaths.`\
 https://nytimes.com/2025/05/04/world/europe/israel-gaza-blockade-humanitarian-crisis.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/04/business/boss-sleepover-inappropriate.html
 **The Jewish Student Who Took On Harvard**\
 `Shabbos Kestenbaum sued Harvard over accusations that it had ignored antisemitism when he was a student. His criticism has taken him to the White House and all over the world.`\
 https://nytimes.com/2025/05/04/us/shabbos-kestenbaum-harvard-lawsuit-settlement.html
-
-**With a Different Ending, ‘Don Giovanni’ Becomes a Requiem**\
-`In Berlin, the director Kirill Serebrennikov’s new production dispenses with the opera’s final sextet and leads directly into Mozart’s Requiem.`\
-https://nytimes.com/2025/05/04/arts/music/don-giovanni-requiem-komische-oper-berlin.html
 
