@@ -1,5 +1,5 @@
-**'It’s pretty shocking': Avalanche's torturous collapse leaves plenty of questions to answer**\
-`"I don’t know what we’re going to do,” Nathan MacKinnon said after Colorado's 4-2 Game 7 collapse to the rival Dallas Stars.`\
+**'It's pretty shocking': Avalanche's torturous collapse leaves plenty of questions**\
+`"I don't know what we're going to do," Nathan MacKinnon said after Colorado's 4-2 Game 7 collapse to the rival Dallas Stars.`\
 https://nytimes.com/athletic/6332185/2025/05/04/avalanche-stars-nhl-playoffs-game-7/
 
 **Youri Tielemans is now Aston Villa's most important player**\
