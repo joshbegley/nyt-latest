@@ -1,5 +1,9 @@
+**Shota Imanaga exits Sunday's loss with a hamstring strain as Cubs' thin pitching staff takes a hit**\
+`"We'll probably do some imaging to see what's going on," Craig Counsell said after the Cubs' 4-0 loss to the Brewers on Sunday.`\
+https://nytimes.com/athletic/6333325/2025/05/04/cubs-brewers-shota-imanaga-hamstring-strain/
+
 **Red Sox takeaways: Garrett Crochet avoids injury, but offense, bullpen sputter again**\
-`The bullpen hasn't had much margin for error with the Red Sox's inconsistent offense and they've not handled late leads well recently.`\
+`The bullpen hasn't had much margin for error with the Red Sox's inconsistent offense and hasn't handled late leads well recently.`\
 https://nytimes.com/athletic/6333311/2025/05/04/red-sox-takeaways-bullpen-offense-struggles/
 
 **Miami Grand Prix: Submit your questions for our F1 mailbag**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/04/crosswords/daily-puzzle-2025-05-05.html
 **Proud Boys’ Ex-Leader Thanks Trump for Pardon at Mar-a-Lago Encounter**\
 `Enrique Tarrio said he told Mr. Trump that he had saved his life by including him in a blanket grant of clemency for Jan. 6 defendants.`\
 https://nytimes.com/2025/05/04/us/politics/trump-tarrio-proud-boys-pardon.html
-
-**Three Blue Jays takeaways: Pitch-tipping prevalence, Bo Bichette’s power and more**\
-`After poring through video, the Blue Jays seem to think that Bowden Francis isn’t giving away all his pitches. Time will tell.`\
-https://nytimes.com/athletic/6332748/2025/05/04/blue-jays-takeaways-bo-bichette/
 
