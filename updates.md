@@ -1,3 +1,7 @@
+**Daryl Dike is back from injury hell: 'I can still achieve my USMNT World Cup dreams'**\
+`The striker has had two years on the sidelines but scored on the last day of the season - he is looking to the future, not back`\
+https://nytimes.com/athletic/6332315/2025/05/04/daryl-dike-interview-usmnt-west-brom/
+
 **Days Before Conclave, Cardinals in Rome Pitch Messages to the Pews**\
 `Some papal contenders offered hints in Sunday Masses at what kind of pope they might want, or want to be.`\
 https://nytimes.com/2025/05/04/world/europe/conclave-pope-cardinals-rome.html
