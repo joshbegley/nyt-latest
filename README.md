@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6332049/2025/05/03/nba-playoffs-takeaways-score-nuggets-clippers/
 
 **Voters Approve Incorporation of SpaceX Hub as Starbase, Texas**\
-`The early vote tally on Saturday night was “well past” the majority needed to approve the incorporation of Starbase, an election official said.`\
+`A South Texas community, mostly made up of SpaceX employees, voted 212 to 6 in favor of establishing a new city called Starbase.`\
 https://nytimes.com/2025/05/03/business/spacex-starbase-south-texas-vote.html
 
 **Katie Ledecky breaks her 9-year-old world record in 800-meter freestyle**\
