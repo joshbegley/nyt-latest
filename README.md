@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Monday, May 5, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/05/04/todays-new-york-times-international-edition
+
 **Who Is Gregory Abel, Warren Buffett’s Successor?**\
 `Mr. Buffett won renown and made billions as one of the most successful stock pickers of all time. Mr. Abel’s strengths lie more in running businesses.`\
 https://nytimes.com/2025/05/04/business/dealbook/gregory-abel-warren-buffett-berkshire.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/04/movies/sinners-severance-multiple-characters.html
 **A Popemobile Will Ride Again, This Time Into Gaza**\
 `In his last months, Pope Francis blessed an effort to transform the vehicle he used when he visited the West Bank in 2014 into a mobile health clinic to treat Palestinian children in the Gaza Strip.`\
 https://nytimes.com/2025/05/04/world/middleeast/a-popemobile-will-ride-again-this-time-into-gaza.html
-
-**Trapped and Hungry in Mexico, Migrants Struggle to Return Home**\
-`Thousands of migrants from Venezuela and other countries are stranded in southern Mexico, forbidden to travel or work, but lacking the papers or money to go back to their home countries.`\
-https://nytimes.com/2025/05/04/world/americas/mexico-venezuela-migrants.html
 
