@@ -1,3 +1,7 @@
+**Sasaki continues progress for the Dodgers, despite his fastball not missing bats**\
+`The Dodgers rookie earned his first major league win — and continued one of baseball’s most anomalous trends.`\
+https://nytimes.com/athletic/6332263/2025/05/04/roki-sasaki-dodgers-fastball/
+
 **Houthi Missile Hits Near Tel Aviv Airport**\
 `At least two people were reported injured, and flights were temporarily suspended.`\
 https://nytimes.com/2025/05/04/world/middleeast/houthi-missile-tel-aviv-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/04/opinion/trump-vance-100-days.html
 **The New York Times in Print for Sunday, May 4, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/04/todays-new-york-times
-
-**The World Is Finally Seeing How Dangerous Bukele Really Is**\
-`Even if El Salvador’s president has ironically called himself the “coolest dictator in the world,” he’s a dictator nonetheless.`\
-https://nytimes.com/2025/05/04/opinion/el-salvador-bukele-prisons.html
 
