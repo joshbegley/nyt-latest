@@ -1,3 +1,7 @@
+**Canelo Alvarez turns to Terrance Crawford next after win vs. William Scull**\
+`Alvarez and Scull combined for the fewest punches thrown in Compubox history (445).`\
+https://nytimes.com/athletic/6332235/2025/05/04/canelo-alvarez-win-william-scull-terrance-crawford-next/
+
 **One Moment That Foretold It All**\
 `The most consequential day of Donald Trump’s second term came before it even began.`\
 https://nytimes.com/2025/05/04/opinion/trump-vance-100-days.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6329726/2025/05/04/real-madrid-fans-whistles-mbappe
 **Vardy as the ref, a Leicester win and lots of Southampton singing - was it really 'El Crapico'?**\
 `Leicester and Southampton are going down but their fans haven't lost their sense of humour `\
 https://nytimes.com/athletic/6331536/2025/05/04/leicester-southampton-worst-premier-league-game/
-
-**Ipswich, Leicester, Southampton: Who's best placed to get promoted next season?**\
-`Which of the three relegated teams are best placed to dominate the Championship next season?`\
-https://nytimes.com/athletic/6323803/2025/05/04/will-the-three-relegated-teams-bounce-back-next-season-ipswich-leicester-southampton/
 
