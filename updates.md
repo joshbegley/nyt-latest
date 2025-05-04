@@ -1,3 +1,7 @@
+**Lowetide: How Ty Emberson's role with Oilers has evolved in playoffs**\
+`Emberson's role is somewhat unusual, but it's a valuable piece of the puzzle for the Oilers coaching staff.`\
+https://nytimes.com/athletic/6331349/2025/05/04/oilers-ty-emberson-stats-nhl-playoffs/
+
 **Lowetide: How Ty Emberson's role with the Oilers has evolved this season**\
 `Emberson's role is somewhat unusual, but it's a valuable piece of the puzzle for the Oilers coaching staff.`\
 https://nytimes.com/athletic/6331349/2025/05/04/oilers-ty-emberson-stats-nhl-playoffs/
