@@ -1,3 +1,20 @@
+**Five reasons Oilers are (and aren't) better positioned for Golden Knights playoff matchup**\
+`Edmonton is expecting a different outcome than when they played Vegas in the 2023 postseason.`\
+https://nytimes.com/athletic/6331639/2025/05/04/oilers-golden-knights-nhl-playoffs-stats/
+
+**Built for big moments, Jordan Binnington is 'locked in' for Game 7**\
+`Binnington is 2-0 in two career Game 7 playoff games, turning aside 61 of 63 shots for an astounding .968 save percentage.`\
+https://nytimes.com/athletic/6330657/2025/05/04/blues-jordan-binnington-nhl-playoffs-game-7/
+
+**Mirtle: Can Maple Leafs beat Panthers? 5 keys to victory for Toronto**\
+`As the underdogs versus Florida in Round 2, Toronto has to have a few things go its way to have a chance to advance in the playoffs.
+`\
+https://nytimes.com/athletic/6330629/2025/05/04/maple-leafs-panthers-nhl-playoffs-series/
+
+**Blackhawks and the NHL Draft Lottery: Everything to know**\
+`The Blackhawks will find out their 2025 NHL Draft position on Monday. Here's a rundown of what's at stake and the players they could take.`\
+https://nytimes.com/athletic/6326528/2025/05/04/blackhawks-nhl-draft-lottery-2025/
+
 **‘Believing’ and Belonging**\
 `We look at how people are searching for belonging.`\
 https://nytimes.com/2025/05/04/briefing/believing-faith-belonging.html
@@ -22,20 +39,4 @@ https://nytimes.com/athletic/6327778/2025/05/04/rudy-gobert-anthony-edwards-timb
 **WATCH: The reason Dillon Gabriel was drafted before Shedeur Sanders**\
 `NFL Draft expert Dane Brugler on two very different draft-season stories.`\
 https://nytimes.com/athletic/6329293/2025/05/04/cleveland-browns-dillon-gabriel-shedeur-sanders-draft/
-
-**Charting Blake Fiddler's path from skates with his dad to the 2025 NHL Draft**\
-`After starring for Team USA at the U18 Worlds, Fiddler could be a first-round pick in the 2025 NHL Draft.`\
-https://nytimes.com/athletic/6297022/2025/05/04/2025-nhl-draft-blake-fiddler/
-
-**I played for Gregg Popovich for one season. This is how he impacted my life**\
-`Shawnelle Scott played for Popovich during the 2000-2001 season. He is now a basketball coach and educator in New York.`\
-https://nytimes.com/athletic/6331687/2025/05/04/gregg-popovich-coach-impact-shawnelle-scott-nba/
-
-**At Least One Dead, Multiple Injured in Houston Shootings**\
-`Police said the incident occurred at a family barbecue in the southeastern part of the city when an uninvited guest began shooting.`\
-https://nytimes.com/2025/05/04/us/houston-shootings.html
-
-**LeBrun: The Stars have unlocked Mikko Rantanen, playoff monster. Watch out, NHL**\
-`Rantanen had a hat trick and an assist in Game 7 against his former team, propelling the Stars to the second round.`\
-https://nytimes.com/athletic/6332221/2025/05/04/mikko-rantanen-stars-avalanche-nhl-playoffs-2025-game-7/
 
