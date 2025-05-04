@@ -1,3 +1,15 @@
+**The long, strange wait is over. Harry Kane has won a trophy**\
+`The England striker's career will no longer have a footnote`\
+https://nytimes.com/athletic/6328040/2025/05/04/harry-kane-has-won-a-trophy/
+
+**The Briefing: Chelsea 3 Liverpool 1 - Champions League boost? Were Arne Slot's side lacking sharpness?**\
+`Chelsea went into the game knowing this was a must-win for their Champions League hopes - and that beating the title winners was a huge test`\
+https://nytimes.com/athletic/6320279/2025/05/04/chelsea-liverpool-result-report-analysis/
+
+**How Warren Buffett Changed the Way Investors Think of Investing**\
+`The idea of “value investing” had long existed. But no one did it as successfully or for as long as he did.`\
+https://nytimes.com/2025/05/04/business/dealbook/warren-buffett-investing.html
+
 **Justice Dept. Investigates Minnesota Prosecutor Office Over Race Policy**\
 `The department’s civil rights division said it was investigating the Hennepin County prosecutor’s office over a policy telling staff members to be mindful of “racial disparities” in plea negotiations.`\
 https://nytimes.com/2025/05/04/us/politics/justice-dept-minnesota-prosecutors-race.html
