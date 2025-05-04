@@ -1,3 +1,7 @@
+**Trump Plays Down Talk of a Third Term, Backing Vance and Rubio**\
+`President Trump, who has frequently raised the idea of pursuing a third term in defiance of the Constitution, told “Meet the Press” that his vice president and his secretary of state were potential successors.`\
+https://nytimes.com/2025/05/04/us/politics/trump-2028-vance-rubio.html
+
 **The Briefing: Brentford 4 Man United 3 - Obi makes history, timely Mount goal… but another defeat**\
 `Manchester United lost a 16th Premier League match of the season - as Ruben Amorim made his priorities clear with his team selection`\
 https://nytimes.com/athletic/6320278/2025/05/04/brentford-4-manchester-united-3-chido-obi-amorim-mount/
