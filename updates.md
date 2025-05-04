@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6331126/2025/05/04/maple-leafs-oliver-ekman-larsson-nhl-playoffs/
 
+**Inside Oliver Ekman-Larsson's comeback from rock bottom to Maple Leafs**\
+`Ekman-Larsson's NHL career hit rock bottom in 2023. His emergence out of it is a story of injuries, self-discovery and redemption.
+`\
+https://nytimes.com/athletic/6331126/2025/05/04/maple-leafs-oliver-ekman-larsson-nhl-playoffs/
+
 **WATCH: The reason Dillon Gabriel was drafted before Shedeur Sanders**\
 `NFL Draft expert Dane Brugler on two very different draft-season stories.`\
 https://nytimes.com/athletic/6329293/2025/05/04/cleveland-browns-dillon-gabriel-shedeur-sanders-draft/
