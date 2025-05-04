@@ -1,3 +1,7 @@
+**Designers Do a Double Take at the Lettering on Pope Francis’s Tombstone**\
+`Irregularly spaced letters spelling “F R A NCISC VS” have caused a stir among typography nerds who specialize in spacing and fonts. One called them “an abomination unto design.”`\
+https://nytimes.com/2025/05/04/world/europe/pope-francis-tomb-lettering.html
+
 **‘S.N.L.’: Trump Celebrates 100 Years (Oops! Days) in Office**\
 `The Sharpie that never runs dry takes aim at interracial couples in commercials and a declaration normalizing May-December romances.`\
 https://nytimes.com/2025/05/04/arts/television/snl-trump-celebrates-100-years-oops-days-in-office.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6330629/2025/05/04/maple-leafs-panthers-nhl-playoff
 **Blackhawks and the NHL Draft Lottery: Everything to know**\
 `The Blackhawks will find out their 2025 NHL Draft position on Monday. Here's a rundown of what's at stake and the players they could take.`\
 https://nytimes.com/athletic/6326528/2025/05/04/blackhawks-nhl-draft-lottery-2025/
-
-**‘Believing’ and Belonging**\
-`We look at how people are searching for belonging.`\
-https://nytimes.com/2025/05/04/briefing/believing-faith-belonging.html
 
