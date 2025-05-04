@@ -1,3 +1,23 @@
+**The Briefing: Chelsea 3 Liverpool 1: Champions League boost? Were Arne Slot's side lacking sharpness?**\
+`Chelsea managed a 3-1 win over Liverpool on Sunday to aid their push for Champions League qualification`\
+https://nytimes.com/athletic/6320279/2025/05/04/chelsea-liverpool-result-report-analysis/
+
+**Bayern win Bundesliga title as Kane secures first career trophy**\
+`Bayern have won their 12th Bundesliga title in the last 13 years, regaining the crown from Leverkusen.`\
+https://nytimes.com/athletic/6301426/2025/05/04/bayern-munich-win-league-harry-kane-trophy/
+
+**Brighton should have been awarded penalty vs. Newcastle, Hurzeler claims**\
+`Hurzeler claimed a spot kick should have awarded for a second-half challenge by Sandro Tonali on Matt O'Riley.`\
+https://nytimes.com/athletic/6332852/2025/05/04/brighton-newcastle-penalty-hurzeler/
+
+**How Warren Buffett Changed the Way Investors Think of Investing**\
+`The idea of “value investing” had long existed. But no one did it as successfully or for as long as he did.`\
+https://nytimes.com/2025/05/04/business/dealbook/how-warren-buffett-changed-the-way-investors-think-of-investing.html
+
+**Blue Jackets Sunday Gathering: Surgery forces Mathieu Olivier to turn down Team USA invite**\
+`Olivier was recognized for his good season with an invitation to Worlds but needed surgery to repair a stretched tendon above his knuckle.`\
+https://nytimes.com/athletic/6330910/2025/05/04/blue-jackets-mathieu-olivier-team-usa-hockey/
+
 **Daryl Dike is back from injury hell: 'I can still achieve my USMNT World Cup dreams'**\
 `The striker has had two years on the sidelines but scored on the last day of the season - he is looking to the future, not back`\
 https://nytimes.com/athletic/6332315/2025/05/04/daryl-dike-interview-usmnt-west-brom/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6332670/2025/05/04/manchester-united-de-ligt-injury
 **Postecoglou says Maddison knee injury 'not looking promising'**\
 `Maddison, 28, was forced off during the second half Thursday's Europa League win over Bodo/Glimt.`\
 https://nytimes.com/athletic/6332704/2025/05/04/james-maddison-spurs-knee-njury-update/
-
-**Lowetide: How Ty Emberson's role with Oilers has evolved in playoffs**\
-`Emberson's role is somewhat unusual, but it's a valuable piece of the puzzle for the Oilers coaching staff.`\
-https://nytimes.com/athletic/6331349/2025/05/04/oilers-ty-emberson-stats-nhl-playoffs/
-
-**The Pulse: As F1 hits Miami, is it on the upswing?**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6332135/2025/05/04/as-f1s-battle-for-americas-attention-how-healthy-is-the-sport/
-
-**Trump Plays Down Talk of a Third Term, Backing Vance and Rubio**\
-`President Trump, who has frequently raised the idea of pursuing a third term in defiance of the Constitution, told “Meet the Press” that his vice president and his secretary of state were potential successors.`\
-https://nytimes.com/2025/05/04/us/politics/trump-2028-vance-rubio.html
-
-**Michele Kang's London City Lionesses promoted to WSL for first time**\
-`The club secured their promotion after avoiding defeat against second-placed Birmingham City on the season's final day.`\
-https://nytimes.com/athletic/6301639/2025/05/04/london-city-lionesses-promotion-wsl/
-
-**Trump Wavers When Asked About Due Process Rights and His Constitutional Duties**\
-`President Trump repeatedly answered “I don’t know” when asked in a TV interview whether every person on American soil was entitled to due process, as guaranteed by the Fifth Amendment.`\
-https://nytimes.com/2025/05/04/us/politics/trump-meet-the-press-interview-due-process.html
 
