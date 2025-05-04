@@ -1,3 +1,7 @@
+**'Roundball Rock' returning to NBC's NBA coverage next season**\
+`"Roundball Rock" became popular during NBC's coverage of the NBA from 1990 to 2002.`\
+https://nytimes.com/athletic/6331922/2025/05/03/roundball-rock-returns-nbc-nba/
+
 **Chiefs rookie minicamp: Josh Simmons' injury timeline, standout playmakers**\
 `Rookie minicamp has begun for Kansas City's seven NFL Draft picks and a flurry of other undrafted rookies looking to earn their shot.`\
 https://nytimes.com/athletic/6331800/2025/05/03/kansas-city-chiefs-rookie-mini-camp/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6330901/2025/05/03/jabian-osborne-notre-dame-recrui
 **Injured fan who fell at Pirates-Cubs game ‘awake, alert’**\
 `Kavan Markwood's girlfriend posted online that he “is awake and continuing to work toward making his body stronger each day.”`\
 https://nytimes.com/athletic/6331774/2025/05/03/kavan-markwood-injured-fan-pirates-cubs/
-
-**Father Whose Son Was Shot by Police Hits Deputy With Car, Killing Him**\
-`The man had viewed footage of the fatal shooting of his 18-year-old son in Cincinnati hours before deliberately crashing into a sheriff’s deputy in Hamilton County, Ohio, the authorities said.`\
-https://nytimes.com/2025/05/03/us/cincinnati-deputy-killed-crash.html
 
