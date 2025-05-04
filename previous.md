@@ -1,3 +1,7 @@
+**At Least One Dead, Multiple Injured in Houston Shootings**\
+`Police said the incident occurred at a family barbecue in the southeastern part of the city when an uninvited guest began shooting.`\
+https://nytimes.com/2025/05/04/us/at-least-one-dead-multiple-injured-in-houston-shootings.html
+
 **LeBrun: The Stars have unlocked Mikko Rantanen, playoff monster. Watch out, NHL**\
 `Rantanen had a hat trick and an assist in Game 7 against his former team, propelling the Stars to the second round.`\
 https://nytimes.com/athletic/6332221/2025/05/04/mikko-rantanen-stars-avalanche-nhl-playoffs-2025-game-7/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/04/crosswords/wordle-review-1416.html
 **These Thinkers Set the Stage for Trump the All-Powerful**\
 `The administration reaches back to a European tradition of right-wing thought that favors explicitly monarchical and even dictatorial rule.`\
 https://nytimes.com/2025/05/04/opinion/trump-schmitt-strauss-intellectuals.html
-
-**Connections Companion No. 694**\
-`Scroll down for hints and conversation about the puzzle for Monday, May 5, 2025.`\
-https://nytimes.com/2025/05/04/crosswords/connections-companion-694.html
 
