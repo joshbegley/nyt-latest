@@ -1,3 +1,8 @@
+**Mirtle: Can Maple Leafs beat Panthers? 5 keys to victory for Toronto**\
+`As the underdogs versus Florida in Round 2, Toronto has to have a few things go its way to have a chance to advance in the playoffs.
+`\
+https://nytimes.com/athletic/6330629/2025/05/04/maple-leafs-panthers-nhl-playoffs-series/
+
 **‘S.N.L.’: Trump Celebrates 100 Years (Oops! Days) in Office**\
 `The Sharpie that never runs dry takes aim at interracial couples in commercials and a declaration normalizing May-December romances.`\
 https://nytimes.com/2025/05/04/arts/television/snl-trump-celebrates-100-years-oops-days-in-office.html
