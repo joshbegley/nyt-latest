@@ -43,6 +43,11 @@ https://nytimes.com/athletic/6330629/2025/05/04/maple-leafs-panthers-nhl-playoff
 `\
 https://nytimes.com/athletic/6330629/2025/05/04/maple-leafs-panthers-nhl-playoffs-series/
 
+**Mirtle: Can Maple Leafs beat Panthers? 5 keys to victory for Toronto**\
+`As the underdogs versus Florida in Round 2, Toronto has to have a few things go its way to have a chance to advance in the playoffs.
+`\
+https://nytimes.com/athletic/6330629/2025/05/04/maple-leafs-panthers-nhl-playoffs-series/
+
 **Designers Do a Double Take at the Lettering on Pope Francis’ Tombstone**\
 `Irregularly spaced letters spelling “F R A NCISC VS” have caused a stir among typography nerds who specialize in spacing and fonts. One called them “an abomination unto design.”`\
 https://nytimes.com/2025/05/04/world/europe/pope-francis-tomb-lettering.html
