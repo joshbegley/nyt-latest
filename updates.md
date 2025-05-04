@@ -1,3 +1,7 @@
+**Sasaki continues progress for the Dodgers, despite his fastball not missing bats**\
+`The Dodgers rookie earned his first major league win — and continued one of baseball’s most anomalous trends.`\
+https://nytimes.com/athletic/6332263/2025/05/04/roki-sasaki-dodgers-fastball/
+
 **Houthi Missile Hits Near Tel Aviv Airport**\
 `At least two people were reported injured, and flights were temporarily suspended.`\
 https://nytimes.com/2025/05/04/world/middleeast/houthi-missile-tel-aviv-israel.html
