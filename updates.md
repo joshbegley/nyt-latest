@@ -1,3 +1,11 @@
+**Casper Ruud beats Jack Draper to win Madrid Open, his first ATP 1,000 title**\
+`Ruud absorbed Draper's anti-clay tennis and turned the final into a three-set battle of red dirt physicality to take the title.`\
+https://nytimes.com/athletic/6333078/2025/05/04/casper-ruud-madrid-open-jack-draper-result-analysis/
+
+**Highlights of Warren Buffett’s Life**\
+`Mr. Buffett, 94, was crowned the “Oracle of Omaha” because of smart investments he made as the chief executive of Berkshire Hathaway. He also made some mistakes.`\
+https://nytimes.com/2025/05/04/business/buffett-timeline.html
+
 **Real Madrid 3 Celta Vigo 2: Mbappe surpasses Ronaldo, Guler shines again, but defensive problems**\
 `Guillermo Rai reports from the Bernabeu as Real Madrid attempt to chase down leaders Barcelona in La Liga`\
 https://nytimes.com/athletic/6332829/2025/05/04/real-madrid-3-celta-vigo-2-mbappe-ronaldo-guler/
