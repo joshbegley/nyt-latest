@@ -1,3 +1,7 @@
+**Monday Briefing: Inside Australia’s Election**\
+`Plus, analyzing a scene in “Sinners.”`\
+https://nytimes.com/2025/05/04/briefing/australia-election-gaza-siege-ukraine-defense.html
+
 **80 Years After Dachau Concentration Camp Liberation, Witnesses Remember**\
 `The anniversary of the end of the Nazi era comes at a pivotal time for Germans. The last of the survivors, liberators and perpetrators are dying, as the far right is becoming more established.`\
 https://nytimes.com/2025/05/04/world/europe/dachau-camp-80-years-liberation.html

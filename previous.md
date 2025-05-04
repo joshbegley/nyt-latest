@@ -1,3 +1,7 @@
+**Monday Briefing: Inside Australia’s Election**\
+`Plus, analyzing a scene in “Sinners.”`\
+https://nytimes.com/2025/05/04/briefing/australia-election-gaza-siege-ukraine-defense.html
+
 **80 Years After Dachau Concentration Camp Liberation, Witnesses Remember**\
 `The anniversary of the end of the Nazi era comes at a pivotal time for Germans. The last of the survivors, liberators and perpetrators are dying, as the far right is becoming more established.`\
 https://nytimes.com/2025/05/04/world/europe/dachau-camp-80-years-liberation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6331840/2025/05/04/f1-miami-gp-lego-car-driver-para
 **Ravens' undrafted free agent class heavy on linemen and defensive backs**\
 `The undrafted free agent process is something Baltimore takes extremely seriously and puts much time and effort into. `\
 https://nytimes.com/athletic/6324511/2025/05/04/ravens-2025-undrafted-free-agents/
-
-**Who won the 2025 Kentucky Derby? Full results and payouts**\
-`Sovereignty won the 2025 Kentucky Derby on a muddy track, coming out on top in a 19-horse field.`\
-https://nytimes.com/athletic/6332930/2025/05/04/2025-kentucky-derby-full-results-payouts/
 
