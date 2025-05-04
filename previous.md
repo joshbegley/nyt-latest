@@ -2,7 +2,7 @@
 `If they lose, the Jets will face doubt and an offseason spent wondering if this core truly found that "next level."`\
 https://nytimes.com/athletic/6331576/2025/05/04/jets-blues-game-7-nhl-playoffs/
 
-**Designers Do a Double Take at the Lettering on Pope Francis’s Tombstone**\
+**Designers Do a Double Take at the Lettering on Pope Francis’ Tombstone**\
 `Irregularly spaced letters spelling “F R A NCISC VS” have caused a stir among typography nerds who specialize in spacing and fonts. One called them “an abomination unto design.”`\
 https://nytimes.com/2025/05/04/world/europe/pope-francis-tomb-lettering.html
 
@@ -10,7 +10,7 @@ https://nytimes.com/2025/05/04/world/europe/pope-francis-tomb-lettering.html
 `The Sharpie that never runs dry takes aim at interracial couples in commercials and a declaration normalizing May-December romances.`\
 https://nytimes.com/2025/05/04/arts/television/snl-trump-celebrates-100-years-oops-days-in-office.html
 
-**Trump Administration Live Updates: President Discusses Economy in TV Interview**\
+**Trump Administration Live Updates: President Casts Doubt on Due Process Rights**\
 ``\
 https://nytimes.com/live/2025/05/04/us/trump-news
 
