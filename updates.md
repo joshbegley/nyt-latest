@@ -1,3 +1,11 @@
+**2025 NHL playoff preview: Vegas Golden Knights vs. Edmonton Oilers**\
+`A battle between two teams equally equipped to win it all, this series is about as tight as it gets.`\
+https://nytimes.com/athletic/6330427/2025/05/04/nhl-playoffs-oilers-golden-knights-preview/
+
+**Lego built full-size F1 cars for the Miami GP drivers’ parade: Here's how they did it**\
+`Each of the 10 teams has a full-scale F1 car that has been faithfully reconstructed with over 400,000 Lego bricks`\
+https://nytimes.com/athletic/6331840/2025/05/04/f1-miami-gp-lego-car-driver-parade/
+
 **Ravens' undrafted free agent class heavy on linemen and defensive backs**\
 `The undrafted free agent process is something Baltimore takes extremely seriously and puts much time and effort into. `\
 https://nytimes.com/athletic/6324511/2025/05/04/ravens-2025-undrafted-free-agents/
