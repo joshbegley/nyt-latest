@@ -1,3 +1,7 @@
+**Voters Approve Incorporation of SpaceX Hub as Starbase, Texas**\
+`A South Texas community, mostly made up of SpaceX employees, voted 212 to 6 in favor of establishing a new city called Starbase.`\
+https://nytimes.com/2025/05/03/business/spacex-starbase-south-texas-vote.html
+
 **NBA playoffs takeaways: Nuggets dominate Game 7, send Clippers packing**\
 `Peyton Watson and Russell Westbrook provided the minutes and production needed for the starters to eventually turn Game 7 into a rout.`\
 https://nytimes.com/athletic/6332049/2025/05/03/nba-playoffs-takeaways-score-nuggets-clippers/
