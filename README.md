@@ -1,3 +1,15 @@
+**‘S.N.L.’: Trump Celebrates 100 Years (Oops! Days) in Office**\
+`The Sharpie that never runs dry takes aim at interracial couples in commercials and a declaration normalizing May-December romances.`\
+https://nytimes.com/2025/05/04/arts/television/snl-trump-celebrates-100-years-oops-days-in-office.html
+
+**Trump Administration Live Updates: President to Discuss Economy in TV Interview**\
+``\
+https://nytimes.com/live/2025/05/04/us/trump-news
+
+**Daniel Kahneman’s Decision: A Debate About Choice in Dying**\
+`Readers discuss an essay about the Nobel laureate’s decision to end his life at 90. Also: Questions for America.`\
+https://nytimes.com/2025/05/04/opinion/daniel-kahneman-dying-assisted-suicide.html
+
 **More American Air Defense Is on the Way to Help Ukraine**\
 `A Patriot air-defense system is moving from Israel to Ukraine, and Western allies are discussing the logistics of getting Germany or Greece to send another.`\
 https://nytimes.com/2025/05/04/world/europe/ukraine-russia-war-patriot-systems.html
@@ -26,17 +38,4 @@ https://nytimes.com/athletic/6326528/2025/05/04/blackhawks-nhl-draft-lottery-202
 **‘Believing’ and Belonging**\
 `We look at how people are searching for belonging.`\
 https://nytimes.com/2025/05/04/briefing/believing-faith-belonging.html
-
-**What we're watching in Celtics-Knicks: X-factors, predictions and more**\
-`Three writers covering this highly anticipated series got together to answer five burning questions.`\
-https://nytimes.com/athletic/6331136/2025/05/04/celtics-knicks-preview-nba-playoffs-2025/
-
-**British Police Arrest Iranian Nationals in Counterterrorism Investigations**\
-`Seven Iranians were among eight men arrested in two investigations. Some of the detained were accused of preparing a terrorist attack on an unnamed site.`\
-https://nytimes.com/2025/05/04/world/europe/british-police-arrest-iranian-nationals-counterterrorism.html
-
-**Inside Oliver Ekman-Larsson's comeback from rock bottom to Maple Leafs**\
-`Ekman-Larsson's NHL career hit rock bottom in 2023. His emergence out of it is a story of injuries, self-discovery and redemption.
-`\
-https://nytimes.com/athletic/6331126/2025/05/04/maple-leafs-oliver-ekman-larsson-nhl-playoffs/
 
