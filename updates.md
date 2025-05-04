@@ -1,3 +1,7 @@
+**Stars defeat Avalanche in Game 7 thriller, advance to Round 2: Takeaways**\
+`Mikko Rantanen had three goals and an assist as Dallas defeated Colorado to advance to the second round. `\
+https://nytimes.com/athletic/6331932/2025/05/03/avalanche-stars-nhl-playoffs-2025-game-7-takeaways/
+
 **Voters Approve Incorporation of SpaceX Hub as Starbase, Texas**\
 `A South Texas community, mostly made up of SpaceX employees, voted 212 to 6 in favor of establishing a new city called Starbase.`\
 https://nytimes.com/2025/05/03/business/spacex-starbase-south-texas-vote.html

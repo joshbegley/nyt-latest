@@ -1,3 +1,7 @@
+**Stars defeat Avalanche in Game 7 thriller, advance to Round 2: Takeaways**\
+`Mikko Rantanen had three goals and an assist as Dallas defeated Colorado to advance to the second round. `\
+https://nytimes.com/athletic/6331932/2025/05/03/avalanche-stars-nhl-playoffs-2025-game-7-takeaways/
+
 **NBA playoffs takeaways: Nuggets dominate Game 7, send Clippers packing**\
 `Peyton Watson and Russell Westbrook provided the minutes and production needed for the starters to eventually turn Game 7 into a rout.`\
 https://nytimes.com/athletic/6332049/2025/05/03/nba-playoffs-takeaways-score-nuggets-clippers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6331794/2025/05/03/kevin-gausman-blue-jays-guardian
 **Orioles call up Coby Mayo, their No. 2 prospect, to return to MLB**\
 `Mayo returns to the club after the Orioles placed Ramón Urías on the 10-day injured list with a right hamstring strain.`\
 https://nytimes.com/athletic/6331828/2025/05/03/coby-mayo-recalled-orioles/
-
-**Chas McCormick's premonition precipitates an 'incredible' day for Jake Meyers**\
-`Meyers became the first Astro to go 4-for-4 with two home runs, a double and a triple.`\
-https://nytimes.com/athletic/6331808/2025/05/03/astros-jake-meyers-chas-mccormick/
 
