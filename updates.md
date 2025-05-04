@@ -3,6 +3,15 @@
 `\
 https://nytimes.com/athletic/6331126/2025/05/04/maple-leafs-oliver-ekman-larsson-nhl-playoffs/
 
+**Rudy Gobert's role, Ant's intelligence and more takeaways from the Wolves' triumph**\
+`While the Wolves wait for an opponent, it is worth revisiting the emphatic, 4-1 wipeout of the Lakers and some of the themes that emerged.`\
+https://nytimes.com/athletic/6327778/2025/05/04/rudy-gobert-anthony-edwards-timberwolves-lakers-nba-playoffs/
+
+**Inside Oliver Ekman-Larsson's comeback from rock bottom to Maple Leafs**\
+`Ekman-Larsson's NHL career hit rock bottom in 2023. His emergence out of it is a story of injuries, self-discovery and redemption.
+`\
+https://nytimes.com/athletic/6331126/2025/05/04/maple-leafs-oliver-ekman-larsson-nhl-playoffs/
+
 **Inside Oliver Ekman-Larsson's comeback from rock bottom to Maple Leafs**\
 `Ekman-Larsson's NHL career hit rock bottom in 2023. His emergence out of it is a story of injuries, self-discovery and redemption.
 `\

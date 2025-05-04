@@ -3,6 +3,10 @@
 `\
 https://nytimes.com/athletic/6331126/2025/05/04/maple-leafs-oliver-ekman-larsson-nhl-playoffs/
 
+**Rudy Gobert's role, Ant's intelligence and more takeaways from the Wolves' triumph**\
+`While the Wolves wait for an opponent, it is worth revisiting the emphatic, 4-1 wipeout of the Lakers and some of the themes that emerged.`\
+https://nytimes.com/athletic/6327778/2025/05/04/rudy-gobert-anthony-edwards-timberwolves-lakers-nba-playoffs/
+
 **WATCH: The reason Dillon Gabriel was drafted before Shedeur Sanders**\
 `NFL Draft expert Dane Brugler on two very different draft-season stories.`\
 https://nytimes.com/athletic/6329293/2025/05/04/cleveland-browns-dillon-gabriel-shedeur-sanders-draft/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6331583/2025/05/04/f1-general-motors-cadillac-trump
 **The Sunday Read: ‘This Is the Holocaust Story I Said I Wouldn’t Write’**\
 `For years, my friend’s father asked me to recount his childhood escape from the Nazis. Why did it take me this long?`\
 https://nytimes.com/2025/05/04/podcasts/the-daily/holocaust-story-education.html
-
-**Gregg Popovich's influence at the heart of Warriors-Rockets coaching matchup**\
-`Of all the branches on the Popovich coaching tree — which includes Steve Kerr — there is no tale like that of Ime Udoka.`\
-https://nytimes.com/athletic/6331685/2025/05/04/gregg-popovich-warriors-rockets-coaches-ime-udoka/
 
