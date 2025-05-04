@@ -1,3 +1,7 @@
+**Pilot Dead After Small Plane Crashes Into Homes in Simi Valley, Calif.**\
+`Residents were in the two homes that were struck, but they were evacuated without injuries, the Ventura County Fire Department said.`\
+https://nytimes.com/2025/05/03/us/simi-valley-plane-crash.html
+
 **After brutal 53-pitch inning in last start, Blue Jays’ Kevin Gausman rebounds with brilliance**\
 `Gausman threw six shutout innings of one-hit ball against the Guardians on Saturday.`\
 https://nytimes.com/athletic/6331794/2025/05/03/kevin-gausman-blue-jays-guardians/

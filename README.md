@@ -1,3 +1,11 @@
+**Chiefs rookie minicamp: Josh Simmons' injury timeline, standout playmakers**\
+`Rookie minicamp has begun for Kansas City's seven NFL Draft picks and a flurry of other undrafted rookies looking to earn their shot.`\
+https://nytimes.com/athletic/6331800/2025/05/03/kansas-city-chiefs-rookie-mini-camp/
+
+**'Sovereignty to rule!' How NBC handled the 2025 Kentucky Derby broadcast**\
+`NBC delivered a solid Kentucky Derby broadcast, with host Ahmed Fareed unexpectedly having to sub in for a sick Mike Tirico.`\
+https://nytimes.com/athletic/6330008/2025/05/03/nbc-2025-kentucky-derby-broadcast-sovereignty-to-rule/
+
 **Pilot Dead After Small Plane Crashes Into Homes in Simi Valley, Calif.**\
 `Residents were in the two homes that were struck, but they were evacuated without injuries, the Ventura County Fire Department said.`\
 https://nytimes.com/2025/05/03/us/simi-valley-plane-crash.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6331774/2025/05/03/kavan-markwood-injured-fan-pirat
 **Father Whose Son Was Shot by Police Hits Deputy With Car, Killing Him**\
 `The man had viewed footage of the fatal shooting of his 18-year-old son in Cincinnati hours before deliberately crashing into a sheriff’s deputy in Hamilton County, Ohio, the authorities said.`\
 https://nytimes.com/2025/05/03/us/cincinnati-deputy-killed-crash.html
-
-**Bob Filner, Mayor of San Diego Who Left Amid Scandal, Dies at 82**\
-`A progressive member of Congress for two decades, he resigned as mayor after 18 women accused him of sexual harassment.`\
-https://nytimes.com/2025/05/03/us/politics/bob-filner-dead.html
-
-**We reviewed Yankee Stadium’s Austin Wells-inspired burrito so you don’t have to**\
-`At $12.28, The Wells Favvurito isn’t exorbitant by stadium standards, but it falls short of being filling`\
-https://nytimes.com/athletic/6331716/2025/05/03/yankees-austin-wells-breakfast-burrito/
 
