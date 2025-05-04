@@ -10,7 +10,7 @@ https://nytimes.com/2025/05/04/world/europe/pope-francis-tomb-lettering.html
 `The Sharpie that never runs dry takes aim at interracial couples in commercials and a declaration normalizing May-December romances.`\
 https://nytimes.com/2025/05/04/arts/television/snl-trump-celebrates-100-years-oops-days-in-office.html
 
-**Trump Administration Live Updates: President to Discuss Economy in TV Interview**\
+**Trump Administration Live Updates: President Discusses Economy in TV Interview**\
 ``\
 https://nytimes.com/live/2025/05/04/us/trump-news
 
