@@ -1,3 +1,8 @@
+**Mirtle: Can Maple Leafs beat Panthers? 5 keys to victory for Toronto**\
+`As the underdogs versus Florida in Round 2, Toronto has to have a few things go its way to have a chance to advance in the playoffs.
+`\
+https://nytimes.com/athletic/6330629/2025/05/04/maple-leafs-panthers-nhl-playoffs-series/
+
 **Trump Administration Live Updates: President Discusses Economy in TV Interview**\
 ``\
 https://nytimes.com/live/2025/05/04/us/trump-news

@@ -2,7 +2,7 @@
 `If they lose, the Jets will face doubt and an offseason spent wondering if this core truly found that "next level."`\
 https://nytimes.com/athletic/6331576/2025/05/04/jets-blues-game-7-nhl-playoffs/
 
-**Designers Do a Double Take at the Lettering on Pope Francis’s Tombstone**\
+**Designers Do a Double Take at the Lettering on Pope Francis’ Tombstone**\
 `Irregularly spaced letters spelling “F R A NCISC VS” have caused a stir among typography nerds who specialize in spacing and fonts. One called them “an abomination unto design.”`\
 https://nytimes.com/2025/05/04/world/europe/pope-francis-tomb-lettering.html
 
