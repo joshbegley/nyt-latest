@@ -1,3 +1,11 @@
+**Chiefs rookie minicamp: Josh Simmons' injury timeline, standout playmakers**\
+`Rookie minicamp has begun for Kansas City's seven NFL Draft picks and a flurry of other undrafted rookies looking to earn their shot.`\
+https://nytimes.com/athletic/6331800/2025/05/03/kansas-city-chiefs-rookie-mini-camp/
+
+**'Sovereignty to rule!' How NBC handled the 2025 Kentucky Derby broadcast**\
+`NBC delivered a solid Kentucky Derby broadcast, with host Ahmed Fareed unexpectedly having to sub in for a sick Mike Tirico.`\
+https://nytimes.com/athletic/6330008/2025/05/03/nbc-2025-kentucky-derby-broadcast-sovereignty-to-rule/
+
 **Pilot Dead After Small Plane Crashes Into Homes in Simi Valley, Calif.**\
 `Residents were in the two homes that were struck, but they were evacuated without injuries, the Ventura County Fire Department said.`\
 https://nytimes.com/2025/05/03/us/simi-valley-plane-crash.html
