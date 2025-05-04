@@ -1,3 +1,7 @@
+**Is European soccer ready to embrace the championship ring? 'You can't wear a trophy'**\
+`Championship rings are an American tradition but in Europe, some players are taking it upon themselves to immortalise their careers in gold`\
+https://nytimes.com/athletic/6266931/2025/05/04/soccer-football-championship-ring-suarez-drogba/
+
 **Is Graham Potter under pressure at West Ham?**\
 `Graham Potter looked like a man under pressure after West Ham's loss to Brighton. Is he?`\
 https://nytimes.com/athletic/6328719/2025/05/04/graham-potter-west-ham-pressure/

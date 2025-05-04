@@ -1,3 +1,7 @@
+**Is European soccer ready to embrace the championship ring? 'You can't wear a trophy'**\
+`Championship rings are an American tradition but in Europe, some players are taking it upon themselves to immortalise their careers in gold`\
+https://nytimes.com/athletic/6266931/2025/05/04/soccer-football-championship-ring-suarez-drogba/
+
 **Is Graham Potter under pressure at West Ham?**\
 `Graham Potter looked like a man under pressure after West Ham's loss to Brighton. Is he?`\
 https://nytimes.com/athletic/6328719/2025/05/04/graham-potter-west-ham-pressure/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/04/pageoneplus/no-corrections-may-4-2025.html
 **Wheeler's standouts and disappointments from 2025 U18 Worlds**\
 `A breakdown of the tournament's standouts and risers and disappointments and fallers after 29 games in 11 days in Texas.`\
 https://nytimes.com/athletic/6331215/2025/05/03/u18-worlds-2025-standouts-disappointments/
-
-**The Clippers, finally healthy, still couldn't get past first round. Where do they go from here?**\
-`After a surprising regular season and a disappointingly familiar postseason, what will Clippers decide on James Harden, Ty Lue and more?`\
-https://nytimes.com/athletic/6328367/2025/05/03/kawhi-leonard-clippers-nba-playoffs-elimination-whats-next/
 
