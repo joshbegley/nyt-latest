@@ -1,3 +1,7 @@
+**The Clippers, finally healthy, still couldn't get past first round. Where do they go from here?**\
+`After a surprising regular season and a disappointingly familiar postseason, what will Clippers decide on James Harden, Ty Lue and more?`\
+https://nytimes.com/athletic/6328367/2025/05/03/kawhi-leonard-clippers-nba-playoffs-elimination-whats-next/
+
 **Canada defeats Sweden to earn gold at second straight U18 World Championship**\
 `Canada capped a dominant tournament with a 7-0 victory over Sweden in Saturday's gold medal game. `\
 https://nytimes.com/athletic/6329794/2025/05/03/canada-sweden-u18-gold-medal-game/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6330008/2025/05/03/nbc-2025-kentucky-derby-broadcas
 **Pilot Dead After Small Plane Crashes Into Homes in Simi Valley, Calif.**\
 `Residents were in the two homes that were struck, but they were evacuated without injuries, the Ventura County Fire Department said.`\
 https://nytimes.com/2025/05/03/us/simi-valley-plane-crash.html
-
-**After brutal 53-pitch inning in last start, Blue Jays' Kevin Gausman rebounds with brilliance**\
-`Gausman threw six shutout innings of one-hit ball against the Guardians on Saturday.`\
-https://nytimes.com/athletic/6331794/2025/05/03/kevin-gausman-blue-jays-guardians/
 

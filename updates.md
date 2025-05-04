@@ -1,3 +1,7 @@
+**The Clippers, finally healthy, still couldn't get past first round. Where do they go from here?**\
+`After a surprising regular season and a disappointingly familiar postseason, what will Clippers decide on James Harden, Ty Lue and more?`\
+https://nytimes.com/athletic/6328367/2025/05/03/kawhi-leonard-clippers-nba-playoffs-elimination-whats-next/
+
 **Canada defeats Sweden to earn gold at second straight U18 World Championship**\
 `Canada capped a dominant tournament with a 7-0 victory over Sweden in Saturday's gold medal game. `\
 https://nytimes.com/athletic/6329794/2025/05/03/canada-sweden-u18-gold-medal-game/
