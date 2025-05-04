@@ -1,3 +1,16 @@
+**Inside Oliver Ekman-Larsson's comeback from rock bottom to Maple Leafs**\
+`Ekman-Larsson's NHL career hit rock bottom in 2023. His emergence out of it is a story of injuries, self-discovery and redemption.
+`\
+https://nytimes.com/athletic/6331126/2025/05/04/maple-leafs-oliver-ekman-larsson-nhl-playoffs/
+
+**WATCH: The reason Dillon Gabriel was drafted before Shedeur Sanders**\
+`NFL Draft expert Dane Brugler on two very different draft-season stories.`\
+https://nytimes.com/athletic/6329293/2025/05/04/cleveland-browns-dillon-gabriel-shedeur-sanders-draft/
+
+**Charting Blake Fiddler's path from skates with his dad to the 2025 NHL Draft**\
+`After starring for Team USA at the U18 Worlds, Fiddler could be a first-round pick in the 2025 NHL Draft.`\
+https://nytimes.com/athletic/6297022/2025/05/04/2025-nhl-draft-blake-fiddler/
+
 **I played for Gregg Popovich for one season. This is how he impacted my life**\
 `Shawnelle Scott played for Popovich during the 2000-2001 season. He is now a basketball coach and educator in New York.`\
 https://nytimes.com/athletic/6331687/2025/05/04/gregg-popovich-coach-impact-shawnelle-scott-nba/
