@@ -1,40 +1,40 @@
-**I Prayed After My Friend Was Swept Away on a Lagos Beach**\
-`Normally I talked to God without thinking. But a terrible phone call brought new intention.`\
-https://nytimes.com/2025/05/04/style/lagos-beach-death-prayer.html
+**Who Is Gregory Abel, Warren Buffett’s Successor?**\
+`Mr. Buffett won renown and made billions as one of the most successful stock pickers of all time. Mr. Abel’s strengths lie more in running businesses.`\
+https://nytimes.com/2025/05/04/business/dealbook/gregory-abel-warren-buffett-berkshire.html
 
-**What Has Happened to the American Dream?**\
-`Some Americans believe President Trump’s economic agenda will eventually deliver the dream through a stronger, made-in-the-U.S.A. economy. Others see it slipping away.`\
-https://nytimes.com/interactive/2025/05/04/us/trump-american-dream-voters.html
+**Francis Opened Discussions to Those Outside the Church Hierarchy. This Cardinal Would, Too**\
+`Cardinal Mario Grech comes from Malta, but is known to cardinals around the world for his role as the secretary general of an advisory body of bishops.`\
+https://nytimes.com/2025/05/04/world/europe/pope-candidate-cardinal-grech.html
 
-**Sasaki continues progress for the Dodgers, despite his fastball not missing bats**\
-`The Dodgers rookie earned his first major league win — and continued one of baseball’s most anomalous trends.`\
-https://nytimes.com/athletic/6332263/2025/05/04/roki-sasaki-dodgers-fastball/
+**Trump Battles Academia, but Especially the Ivy League**\
+`Beyond the politics is a brew of resentment and reverence that the president, an Ivy League graduate himself, has long harbored for a club that has never accepted him.`\
+https://nytimes.com/2025/05/04/us/politics/trump-ivy-league.html
 
-**Houthi Missile Hits Near Tel Aviv Airport**\
-`At least two people were reported injured, and flights were temporarily suspended.`\
-https://nytimes.com/2025/05/04/world/middleeast/houthi-missile-tel-aviv-israel.html
+**Biden Aides Decided Against a Cognitive Test in Early 2024, Book Says**\
+`His White House advisers considered giving him such a test to prove his fitness for a second term, but they worried it would draw new attention to his age, according to a forthcoming book.`\
+https://nytimes.com/2025/05/04/us/politics/joe-biden-cognitive-test-age.html
 
-**Luxury Condo Owners Accuse Builders of Hiding Dangerous Defects**\
-`In a lawsuit, the condo board at 432 Park Avenue says the city and potential residents were not told about the severity of early cracks in the supertall building’s exterior.`\
-https://nytimes.com/2025/05/04/nyregion/new-york-condo-tower-lawsuit.html
+**My Boss Wants to Sleep on My Couch Every Week**\
+`Boundaries, boundaries and more boundaries. Plus: boundaries.`\
+https://nytimes.com/2025/05/04/business/boss-sleepover-inappropriate.html
 
-**A Wider View Into the ‘Corner Office’**\
-`Jordyn Holman, newly at the helm of a column that interviews business leaders, has big plans for the series.`\
-https://nytimes.com/2025/05/04/insider/corner-office.html
+**The Jewish Student Who Took On Harvard**\
+`Shabbos Kestenbaum sued Harvard over accusations that it had ignored antisemitism when he was a student. His criticism has taken him to the White House and all over the world.`\
+https://nytimes.com/2025/05/04/us/shabbos-kestenbaum-harvard-lawsuit-settlement.html
 
-**‘My Heart Was in My Throat, and the Tears Were Flowing’**\
-`An emotional night at the theater, a childhood trip to Manhattan and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2025/05/04/nyregion/metropolitan-diary.html
+**With a Different Ending, ‘Don Giovanni’ Becomes a Requiem**\
+`In Berlin, the director Kirill Serebrennikov’s new production dispenses with the opera’s final sextet and leads directly into Mozart’s Requiem.`\
+https://nytimes.com/2025/05/04/arts/music/don-giovanni-requiem-komische-oper-berlin.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/05/04/crosswords/spelling-bee-forum.html
+**When One Actor Contains Multitudes: An Old Form Finds (Eerie) New Life**\
+`Online, onstage and onscreen, performers are playing multiple parts. The effect of watching someone shape-shift can be both thrilling and unnerving.`\
+https://nytimes.com/2025/05/04/movies/sinners-severance-multiple-characters.html
 
-**Denver's resilience leads it past LA and on to OKC, its biggest challenge yet**\
-`"It feels good, but we know that we have to fly to OKC," interim coach David Adelman said after Denver's 120-101 Game 7 win.`\
-https://nytimes.com/athletic/6332179/2025/05/04/nuggets-beat-clippers-game-7/
+**A Popemobile Will Ride Again, This Time Into Gaza**\
+`In his last months, Pope Francis blessed an effort to transform the vehicle he used when he visited the West Bank in 2014 into a mobile health clinic to treat Palestinian children in the Gaza Strip.`\
+https://nytimes.com/2025/05/04/world/middleeast/a-popemobile-will-ride-again-this-time-into-gaza.html
 
-**Canelo Alvarez turns to Terence Crawford next after win vs. William Scull**\
-`Alvarez and Scull combined for the fewest punches thrown in Compubox history (445).`\
-https://nytimes.com/athletic/6332235/2025/05/04/canelo-alvarez-win-william-scull-terence-crawford-next/
+**Trapped and Hungry in Mexico, Migrants Struggle to Return Home**\
+`Thousands of migrants from Venezuela and other countries are stranded in southern Mexico, forbidden to travel or work, but lacking the papers or money to go back to their home countries.`\
+https://nytimes.com/2025/05/04/world/americas/mexico-venezuela-migrants.html
 
