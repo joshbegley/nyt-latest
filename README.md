@@ -30,7 +30,7 @@ https://nytimes.com/2025/05/04/opinion/trump-vance-100-days.html
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/04/todays-new-york-times
 
-**We’ve Been Warning the World About Bukele for Years**\
+**The World Is Finally Seeing How Dangerous Bukele Really Is**\
 `Even if El Salvador’s president has ironically called himself the “coolest dictator in the world,” he’s a dictator nonetheless.`\
 https://nytimes.com/2025/05/04/opinion/el-salvador-bukele-prisons.html
 
