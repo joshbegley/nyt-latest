@@ -1,3 +1,15 @@
+**Cora Sue Collins, a Busy Child Actress in the 1930s, Dies at 98**\
+`She was in films with Greta Garbo, who became a friend, and  Myrna Loy, Bette Davis and others. She ended her career after being sexually harassed.`\
+https://nytimes.com/2025/05/04/movies/cora-sue-collins-dead.html
+
+**Amorim concerned after De Ligt injured in Man Utd's Brentford defeat**\
+`The Netherlands international couldn't continue after appearing to pick up an injury prior to Brentford's second goal of the first half.`\
+https://nytimes.com/athletic/6332670/2025/05/04/manchester-united-de-ligt-injury/
+
+**Postecoglou says Maddison knee injury 'not looking promising'**\
+`Maddison, 28, was forced off during the second half Thursday's Europa League win over Bodo/Glimt.`\
+https://nytimes.com/athletic/6332704/2025/05/04/james-maddison-spurs-knee-njury-update/
+
 **Lowetide: How Ty Emberson's role with Oilers has evolved in playoffs**\
 `Emberson's role is somewhat unusual, but it's a valuable piece of the puzzle for the Oilers coaching staff.`\
 https://nytimes.com/athletic/6331349/2025/05/04/oilers-ty-emberson-stats-nhl-playoffs/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6326945/2025/05/04/mets-danny-young-tommy-john/
 **The Briefing: Brighton 1 Newcastle 1 - Isak's late leveller, triple penalty drama and Minteh again**\
 `George Caulkin and Chris Waugh analyse the main talking points from Newcastle's draw at Brighton`\
 https://nytimes.com/athletic/6320277/2025/05/04/brighton-newcastle-analysis-premier-league/
-
-**The Briefing: Brentford 4 Man United 3 - Obi makes history, timely Mount goal… but another defeat**\
-`Manchester United lost a 16th Premier League match of the season - as Ruben Amorim made his priorities clear with his team selection`\
-https://nytimes.com/athletic/6320278/2025/05/04/brentford-4-manchester-united-3-chido-obi-amorim-mount/
-
-**Leeds chairman backs Farke after Premier League promotion**\
-`The German won the Championship title for the third time in his career in guiding Leeds back to the top flight.`\
-https://nytimes.com/athletic/6332547/2025/05/04/leeds-daniel-farke-future-marathe/
-
-**Rhubarb, Rhubarb**\
-`Serve your guests a slice of Melissa Clark’s fuchsia-striped rhubarb pound cake and watch them happily murmur among themselves.`\
-https://nytimes.com/2025/05/04/dining/rhubarb-pound-cake-spring-recipes.html
 
