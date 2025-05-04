@@ -1,3 +1,7 @@
+**'Roundball Rock' returning to NBC's NBA coverage next season**\
+`"Roundball Rock" became popular during NBC's coverage of the NBA from 1990 to 2002.`\
+https://nytimes.com/athletic/6331922/2025/05/03/roundball-rock-returns-nbc-nba/
+
 **After brutal 53-pitch inning in last start, Blue Jays' Kevin Gausman rebounds with brilliance**\
 `Gausman threw six shutout innings of one-hit ball against the Guardians on Saturday.`\
 https://nytimes.com/athletic/6331794/2025/05/03/kevin-gausman-blue-jays-guardians/
