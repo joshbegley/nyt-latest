@@ -1,7 +1,3 @@
-**After brutal 53-pitch inning in last start, Blue Jays’ Kevin Gausman rebounds with brilliance**\
-`Gausman threw six shutout innings of one-hit ball against the Guardians on Saturday.`\
-https://nytimes.com/athletic/6331794/2025/05/03/kevin-gausman-blue-jays-guardians/
-
 **Orioles call up Coby Mayo, their No. 2 prospect, to return to MLB**\
 `Mayo returns to the club after the Orioles placed Ramón Urías on the 10-day injured list with a right hamstring strain.`\
 https://nytimes.com/athletic/6331828/2025/05/03/coby-mayo-recalled-orioles/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6331716/2025/05/03/yankees-austin-wells-breakfast-b
 **Pierre Audi, Eminent Force in the Performing Arts, Dies at 67**\
 `After turning a derelict lecture hall into the daring Almeida Theater, he had a long career as a director and impresario in Europe and New York.`\
 https://nytimes.com/2025/05/03/arts/music/pierre-audi-dead.html
+
+**Force Play**\
+`Brandon Koppy’s puzzle sends us to space, and it’s a little crowded.`\
+https://nytimes.com/2025/05/03/crosswords/daily-puzzle-2025-05-04.html
 
