@@ -1,3 +1,7 @@
+**NBA playoffs takeaways: Nuggets dominate Game 7, send Clippers packing**\
+`Peyton Watson and Russell Westbrook provided the minutes and production needed for the starters to eventually turn Game 7 into a rout.`\
+https://nytimes.com/athletic/6332049/2025/05/03/nba-playoffs-takeaways-score-nuggets-clippers/
+
 **Voters Approve Incorporation of SpaceX Hub as Starbase, Texas**\
 `The early vote tally on Saturday night was “well past” the majority needed to approve the incorporation of Starbase, an election official said.`\
 https://nytimes.com/2025/05/03/business/spacex-starbase-south-texas-vote.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6331828/2025/05/03/coby-mayo-recalled-orioles/
 **Chas McCormick's premonition precipitates an 'incredible' day for Jake Meyers**\
 `Meyers became the first Astro to go 4-for-4 with two home runs, a double and a triple.`\
 https://nytimes.com/athletic/6331808/2025/05/03/astros-jake-meyers-chas-mccormick/
-
-**Sovereignty wins 151st Kentucky Derby over favorite Journalism**\
-`Sovereignty pulled ahead of Journalism on the wet, muddy track to secure jockey Junior Alvarado's first Kentucky Derby win.`\
-https://nytimes.com/athletic/6331778/2025/05/03/sovereignty-wins-kentucky-derby/
 
