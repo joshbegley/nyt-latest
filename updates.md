@@ -1,3 +1,7 @@
+**I played for Gregg Popovich for one season. This is how he impacted my life**\
+`Shawnelle Scott played for Popovich during the 2000-2001 season. He is now a basketball coach and educator in New York.`\
+https://nytimes.com/athletic/6331687/2025/05/04/gregg-popovich-coach-impact-shawnelle-scott-nba/
+
 **At Least One Dead, Multiple Injured in Houston Shootings**\
 `Police said the incident occurred at a family barbecue in the southeastern part of the city when an uninvited guest began shooting.`\
 https://nytimes.com/2025/05/04/us/houston-shootings.html
