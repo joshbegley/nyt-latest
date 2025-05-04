@@ -1,3 +1,7 @@
+**Michele Kang's London City Lionesses promoted to WSL for first time**\
+`The club secured their promotion after avoiding defeat against second-placed Birmingham City on the season's final day.`\
+https://nytimes.com/athletic/6301639/2025/05/04/london-city-lionesses-promotion-wsl/
+
 **Trump Wavers When Asked About Due Process Rights and His Constitutional Duties**\
 `President Trump repeatedly answered “I don’t know” when asked in a TV interview whether every person on American soil was entitled to due process, as guaranteed by the Fifth Amendment.`\
 https://nytimes.com/2025/05/04/us/politics/trump-meet-the-press-interview-due-process.html

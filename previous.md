@@ -1,3 +1,7 @@
+**Michele Kang's London City Lionesses promoted to WSL for first time**\
+`The club secured their promotion after avoiding defeat against second-placed Birmingham City on the season's final day.`\
+https://nytimes.com/athletic/6301639/2025/05/04/london-city-lionesses-promotion-wsl/
+
 **Trump Wavers When Asked About Due Process Rights and His Constitutional Duties**\
 `President Trump repeatedly answered “I don’t know” when asked in a TV interview whether every person on American soil was entitled to due process, as guaranteed by the Fifth Amendment.`\
 https://nytimes.com/2025/05/04/us/politics/trump-meet-the-press-interview-due-process.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6331576/2025/05/04/jets-blues-game-7-nhl-playoffs/
 **Designers Do a Double Take at the Lettering on Pope Francis’ Tombstone**\
 `Irregularly spaced letters spelling “F R A NCISC VS” have caused a stir among typography nerds who specialize in spacing and fonts. One called them “an abomination unto design.”`\
 https://nytimes.com/2025/05/04/world/europe/pope-francis-tomb-lettering.html
-
-**‘S.N.L.’: Trump Celebrates 100 Years (Oops! Days) in Office**\
-`The Sharpie that never runs dry takes aim at interracial couples in commercials and a declaration normalizing May-December romances.`\
-https://nytimes.com/2025/05/04/arts/television/snl-trump-celebrates-100-years-oops-days-in-office.html
 
