@@ -1,3 +1,7 @@
+**Canada defeats Sweden to earn gold at second straight U18 World Championship**\
+`Canada capped a dominant tournament with a 7-0 victory over Sweden in Saturday's gold medal game. `\
+https://nytimes.com/athletic/6329794/2025/05/03/canada-sweden-u18-gold-medal-game/
+
 **Stars defeat Avalanche in Game 7 thriller, advance to Round 2: Takeaways**\
 `Mikko Rantanen had three goals and an assist as Dallas defeated Colorado to advance to the second round. `\
 https://nytimes.com/athletic/6331932/2025/05/03/avalanche-stars-nhl-playoffs-2025-game-7-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/03/us/simi-valley-plane-crash.html
 **After brutal 53-pitch inning in last start, Blue Jays' Kevin Gausman rebounds with brilliance**\
 `Gausman threw six shutout innings of one-hit ball against the Guardians on Saturday.`\
 https://nytimes.com/athletic/6331794/2025/05/03/kevin-gausman-blue-jays-guardians/
-
-**Orioles call up Coby Mayo, their No. 2 prospect, to return to MLB**\
-`Mayo returns to the club after the Orioles placed Ramón Urías on the 10-day injured list with a right hamstring strain.`\
-https://nytimes.com/athletic/6331828/2025/05/03/coby-mayo-recalled-orioles/
 
