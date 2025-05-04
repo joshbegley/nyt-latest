@@ -1,3 +1,7 @@
+**Canelo Alvarez turns to Terence Crawford next after win vs. William Scull**\
+`Alvarez and Scull combined for the fewest punches thrown in Compubox history (445).`\
+https://nytimes.com/athletic/6332235/2025/05/04/canelo-alvarez-win-william-scull-terence-crawford-next/
+
 **Canelo Alvarez turns to Terrance Crawford next after win vs. William Scull**\
 `Alvarez and Scull combined for the fewest punches thrown in Compubox history (445).`\
 https://nytimes.com/athletic/6332235/2025/05/04/canelo-alvarez-win-william-scull-terrance-crawford-next/
