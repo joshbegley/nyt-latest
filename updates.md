@@ -1,3 +1,11 @@
+**Voters Approve Incorporation of SpaceX Hub as Starbase, Texas**\
+`The early vote tally on Saturday night was “well past” the majority needed to approve the incorporation of Starbase, an election official said.`\
+https://nytimes.com/2025/05/03/business/spacex-starbase-south-texas-vote.html
+
+**Katie Ledecky breaks her 9-year-old world record in 800-meter freestyle**\
+`Ledecky lowered her previous record in one of her signature events as her impressive post-Paris results continue. `\
+https://nytimes.com/athletic/6331929/2025/05/03/katie-ledecky-breaks-own-nine-year-world-record-800-meter-freestyle/
+
 **'Roundball Rock' returning to NBC's NBA coverage next season**\
 `"Roundball Rock" became popular during NBC's coverage of the NBA from 1990 to 2002.`\
 https://nytimes.com/athletic/6331922/2025/05/03/roundball-rock-returns-nbc-nba/
