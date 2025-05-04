@@ -1,3 +1,7 @@
+**Real Madrid 3 Celta Vigo 2: Mbappe surpasses Ronaldo, Guler shines again, but defensive problems**\
+`Guillermo Rai reports from the Bernabeu as Real Madrid attempt to chase down leaders Barcelona in La Liga`\
+https://nytimes.com/athletic/6332829/2025/05/04/real-madrid-3-celta-vigo-2-mbappe-ronaldo-guler/
+
 **2025 NHL playoff preview: Vegas Golden Knights vs. Edmonton Oilers**\
 `A battle between two teams equally equipped to win it all, this series is about as tight as it gets.`\
 https://nytimes.com/athletic/6330427/2025/05/04/nhl-playoffs-oilers-golden-knights-preview/
