@@ -1,3 +1,12 @@
+**British Police Arrest Iranian Nationals in Counterterrorism Investigations**\
+`Seven Iranians were among eight men arrested in two investigations. Some of the detained were accused of preparing a terrorist attack on an unnamed site.`\
+https://nytimes.com/2025/05/04/world/europe/british-police-arrest-iranian-nationals-in-counterterrorism-investigations.html
+
+**Inside Oliver Ekman-Larsson's comeback from rock bottom to Maple Leafs**\
+`Ekman-Larsson's NHL career hit rock bottom in 2023. His emergence out of it is a story of injuries, self-discovery and redemption.
+`\
+https://nytimes.com/athletic/6331126/2025/05/04/maple-leafs-oliver-ekman-larsson-nhl-playoffs/
+
 **Inside Oliver Ekman-Larsson's comeback from rock bottom to Maple Leafs**\
 `Ekman-Larsson's NHL career hit rock bottom in 2023. His emergence out of it is a story of injuries, self-discovery and redemption.
 `\
