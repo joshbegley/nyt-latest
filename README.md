@@ -1,3 +1,7 @@
+**Houthi Missile Hits Near Tel Aviv Airport**\
+`At least two people were reported injured, and flights were temporarily suspended.`\
+https://nytimes.com/2025/05/04/world/middleeast/houthi-missile-tel-aviv-israel.html
+
 **Luxury Condo Owners Accuse Builders of Hiding Dangerous Defects**\
 `In a lawsuit, the condo board at 432 Park Avenue says the city and potential residents were not told about the severity of early cracks in the supertall building’s exterior.`\
 https://nytimes.com/2025/05/04/nyregion/new-york-condo-tower-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/05/04/todays-new-york-times
 **The World Is Finally Seeing How Dangerous Bukele Really Is**\
 `Even if El Salvador’s president has ironically called himself the “coolest dictator in the world,” he’s a dictator nonetheless.`\
 https://nytimes.com/2025/05/04/opinion/el-salvador-bukele-prisons.html
-
-**'It's pretty shocking': Avalanche's torturous collapse leaves plenty of questions**\
-`"I don't know what we're going to do," Nathan MacKinnon said after Colorado's 4-2 Game 7 collapse to the rival Dallas Stars.`\
-https://nytimes.com/athletic/6332185/2025/05/04/avalanche-stars-nhl-playoffs-game-7/
 
