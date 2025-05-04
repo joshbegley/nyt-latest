@@ -1,3 +1,23 @@
+**The Briefing: Brighton 1 Newcastle 1 - Isak's late leveller, triple penalty drama and Minteh again**\
+`George Caulkin and Chris Waugh analyse the main talking points from Newcastle's draw at Brighton`\
+https://nytimes.com/athletic/6320277/2025/05/04/brighton-newcastle-analysis-premier-league/
+
+**The Briefing: Brentford 4 Man United 3: Obi makes history, timely Mount goal - but another defeat**\
+`Manchester United lost a 16th Premier League match of the season - as Ruben Amorim made his priorities clear with his team selection`\
+https://nytimes.com/athletic/6320278/2025/05/04/brentford-4-manchester-united-3-chido-obi-amorim-mount/
+
+**Leeds chairman backs Farke after Premier League promotion**\
+`The German won the Championship title for the third time in his career in guiding Leeds back to the top flight.`\
+https://nytimes.com/athletic/6332547/2025/05/04/leeds-daniel-farke-future-marathe/
+
+**Rhubarb, Rhubarb**\
+`Serve your guests a slice of Melissa Clark’s fuchsia-striped rhubarb pound cake and watch them happily murmur among themselves.`\
+https://nytimes.com/2025/05/04/dining/rhubarb-pound-cake-spring-recipes.html
+
+**The Briefing: West Ham 1 Tottenham 1 - Exactly what Spurs needed? Did Tel send a message?**\
+`Tottenham Hotspur played out a 1-1 draw against West Ham United on Sunday`\
+https://nytimes.com/athletic/6320281/2025/05/04/west-ham-tottenham-result-report-analysis/
+
 **The Briefing: West Ham 1 Tottenham 1: Exactly what Spurs needed? Did Tel send a message?**\
 `Tottenham Hotspur played out a 1-1 draw against West Ham United on Sunday`\
 https://nytimes.com/athletic/6320281/2025/05/04/west-ham-tottenham-result-report-analysis/
