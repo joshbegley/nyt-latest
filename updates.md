@@ -1,3 +1,15 @@
+**Ravens' undrafted free agent class heavy on linemen and defensive backs**\
+`The undrafted free agent process is something Baltimore takes extremely seriously and puts much time and effort into. `\
+https://nytimes.com/athletic/6324511/2025/05/04/ravens-2025-undrafted-free-agents/
+
+**Who won the 2025 Kentucky Derby? Full results and payouts**\
+`Sovereignty won the 2025 Kentucky Derby on a muddy track, coming out on top in a 19-horse field.`\
+https://nytimes.com/athletic/6332930/2025/05/04/2025-kentucky-derby-full-results-payouts/
+
+**The Briefing: Chelsea 3 Liverpool 1 - Champions League boost? Were Arne Slot's side lacking sharpness?**\
+`Chelsea went into the game knowing this was a must-win for their Champions League hopes. Beating the title winners was a huge test`\
+https://nytimes.com/athletic/6320279/2025/05/04/chelsea-liverpool-result-report-analysis/
+
 **The long, strange wait is over. Harry Kane has won a trophy**\
 `The England striker's career will no longer have a footnote`\
 https://nytimes.com/athletic/6328040/2025/05/04/harry-kane-has-won-a-trophy/
