@@ -1,3 +1,7 @@
+**After brutal 53-pitch inning in last start, Blue Jays’ Kevin Gausman rebounds with brilliance**\
+`Gausman threw six shutout innings of one-hit ball against the Guardians on Saturday.`\
+https://nytimes.com/athletic/6331794/2025/05/03/kevin-gausman-blue-jays-guardians/
+
 **Orioles call up Coby Mayo, their No. 2 prospect, to return to MLB**\
 `Mayo returns to the club after the Orioles placed Ramón Urías on the 10-day injured list with a right hamstring strain.`\
 https://nytimes.com/athletic/6331828/2025/05/03/coby-mayo-recalled-orioles/
