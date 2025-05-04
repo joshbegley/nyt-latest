@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6331126/2025/05/04/maple-leafs-oliver-ekman-larsson
 `\
 https://nytimes.com/athletic/6331126/2025/05/04/maple-leafs-oliver-ekman-larsson-nhl-playoffs/
 
+**Inside Oliver Ekman-Larsson's comeback from rock bottom to Maple Leafs**\
+`Ekman-Larsson's NHL career hit rock bottom in 2023. His emergence out of it is a story of injuries, self-discovery and redemption.
+`\
+https://nytimes.com/athletic/6331126/2025/05/04/maple-leafs-oliver-ekman-larsson-nhl-playoffs/
+
 **‘Believing’ and Belonging**\
 `We look at how people are searching for belonging.`\
 https://nytimes.com/2025/05/04/briefing/believing-faith-belonging.html
