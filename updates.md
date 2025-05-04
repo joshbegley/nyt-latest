@@ -1,3 +1,7 @@
+**Oscar Piastri wins (again), Ferrari team orders drama - Miami Grand Prix briefing**\
+`Oscar Piastri wins third successive grand prix, finishing ahead of teammate Lando Norris in a McLaren 1-2`\
+https://nytimes.com/athletic/6333192/2025/05/04/miami-grand-prix-2025-result-oscar-piastri-mclaren-ferrari/
+
 **Caitlin Clark draws loud welcome in return to Iowa for WNBA exhibition**\
 `Fans flocked to Carver-Hawkeye Arena to see the Indiana Fever star at the site where she set NCAA scoring record.`\
 https://nytimes.com/athletic/6333281/2025/05/04/caitlin-clark-returns-iowa-wnba-exhibition/

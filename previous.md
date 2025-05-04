@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6332748/2025/05/04/blue-jays-takeaways-bo-bichette/
 `Plus Zeev Buium reflects on his first taste of the NHL playoffs and Mats Zuccarello discusses his future. `\
 https://nytimes.com/athletic/6333158/2025/05/04/wild-rossi-contract-trade-nyquist-nhl/
 
-**Oscar Piastri wins again and Ferrari drama - Miami Grand Prix briefing**\
+**Oscar Piastri wins (again), Ferrari team orders drama - Miami Grand Prix briefing**\
 `Oscar Piastri wins third successive grand prix, finishing ahead of teammate Lando Norris in a McLaren 1-2`\
 https://nytimes.com/athletic/6333192/2025/05/04/miami-grand-prix-2025-result-oscar-piastri-mclaren-ferrari/
 
