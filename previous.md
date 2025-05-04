@@ -1,3 +1,11 @@
+**As Gaza Siege Grinds On, Gazan Children Go Hungry and Patients Die**\
+`The effect of Israel’s total siege has become “catastrophic,” doctors say. Food, water and medicine shortages are prompting a surge of preventable illnesses, and deaths.`\
+https://nytimes.com/2025/05/04/world/europe/israel-gaza-blockade-humanitarian-crisis.html
+
+**A Conclave Like No Other**\
+`More cardinals from more countries than ever will gather in the Sistine Chapel starting Wednesday to choose a new pope at a precarious time for the church.`\
+https://nytimes.com/2025/05/04/world/europe/papal-conclave-politics.html
+
 **The New York Times International Edition in Print for Monday, May 5, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/05/04/todays-new-york-times-international-edition
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/04/us/shabbos-kestenbaum-harvard-lawsuit-settlement.
 **With a Different Ending, ‘Don Giovanni’ Becomes a Requiem**\
 `In Berlin, the director Kirill Serebrennikov’s new production dispenses with the opera’s final sextet and leads directly into Mozart’s Requiem.`\
 https://nytimes.com/2025/05/04/arts/music/don-giovanni-requiem-komische-oper-berlin.html
-
-**When One Actor Contains Multitudes: An Old Form Finds (Eerie) New Life**\
-`Online, onstage and onscreen, performers are playing multiple parts. The effect of watching someone shape-shift can be both thrilling and unnerving.`\
-https://nytimes.com/2025/05/04/movies/sinners-severance-multiple-characters.html
-
-**A Popemobile Will Ride Again, This Time Into Gaza**\
-`In his last months, Pope Francis blessed an effort to transform the vehicle he used when he visited the West Bank in 2014 into a mobile health clinic to treat Palestinian children in the Gaza Strip.`\
-https://nytimes.com/2025/05/04/world/middleeast/a-popemobile-will-ride-again-this-time-into-gaza.html
 

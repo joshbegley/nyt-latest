@@ -1,3 +1,11 @@
+**As Gaza Siege Grinds On, Gazan Children Go Hungry and Patients Die**\
+`The effect of Israel’s total siege has become “catastrophic,” doctors say. Food, water and medicine shortages are prompting a surge of preventable illnesses, and deaths.`\
+https://nytimes.com/2025/05/04/world/europe/israel-gaza-blockade-humanitarian-crisis.html
+
+**A Conclave Like No Other**\
+`More cardinals from more countries than ever will gather in the Sistine Chapel starting Wednesday to choose a new pope at a precarious time for the church.`\
+https://nytimes.com/2025/05/04/world/europe/papal-conclave-politics.html
+
 **The New York Times International Edition in Print for Monday, May 5, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/05/04/todays-new-york-times-international-edition
