@@ -1,6 +1,6 @@
 **At Least One Dead, Multiple Injured in Houston Shootings**\
 `Police said the incident occurred at a family barbecue in the southeastern part of the city when an uninvited guest began shooting.`\
-https://nytimes.com/2025/05/04/us/at-least-one-dead-multiple-injured-in-houston-shootings.html
+https://nytimes.com/2025/05/04/us/houston-shootings.html
 
 **LeBrun: The Stars have unlocked Mikko Rantanen, playoff monster. Watch out, NHL**\
 `Rantanen had a hat trick and an assist in Game 7 against his former team, propelling the Stars to the second round.`\

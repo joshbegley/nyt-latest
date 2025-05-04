@@ -1,3 +1,7 @@
+**I played for Gregg Popovich for one season. This is how he impacted my life**\
+`Shawnelle Scott played for Popovich during the 2000-2001 season. He is now a basketball coach and educator in New York.`\
+https://nytimes.com/athletic/6331687/2025/05/04/gregg-popovich-coach-impact-shawnelle-scott-nba/
+
 **At Least One Dead, Multiple Injured in Houston Shootings**\
 `Police said the incident occurred at a family barbecue in the southeastern part of the city when an uninvited guest began shooting.`\
 https://nytimes.com/2025/05/04/us/houston-shootings.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/04/opinion/marriage-aging-love.html
 **Wordle Review No. 1,416**\
 `Scroll down for hints and conversation about the puzzle for Monday, May 5, 2025.`\
 https://nytimes.com/2025/05/04/crosswords/wordle-review-1416.html
-
-**These Thinkers Set the Stage for Trump the All-Powerful**\
-`The administration reaches back to a European tradition of right-wing thought that favors explicitly monarchical and even dictatorial rule.`\
-https://nytimes.com/2025/05/04/opinion/trump-schmitt-strauss-intellectuals.html
 
