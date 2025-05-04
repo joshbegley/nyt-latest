@@ -1,3 +1,7 @@
+**After brutal 53-pitch inning in last start, Blue Jays' Kevin Gausman rebounds with brilliance**\
+`Gausman threw six shutout innings of one-hit ball against the Guardians on Saturday.`\
+https://nytimes.com/athletic/6331794/2025/05/03/kevin-gausman-blue-jays-guardians/
+
 **Chiefs rookie minicamp: Josh Simmons' injury timeline, standout playmakers**\
 `Rookie minicamp has begun for Kansas City's seven NFL Draft picks and a flurry of other undrafted rookies looking to earn their shot.`\
 https://nytimes.com/athletic/6331800/2025/05/03/kansas-city-chiefs-rookie-mini-camp/
