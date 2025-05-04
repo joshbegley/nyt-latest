@@ -12,7 +12,7 @@ https://nytimes.com/athletic/6333151/2025/05/04/new-york-yankees-aaron-boone-wil
 
 **Texas Rangers fire offensive coordinator, put OF Leody Taveras on waivers**\
 `Only the Colorado Rockies have scored fewer runs this season than the Rangers, who are fourth in the AL West at 17-18.`\
-https://nytimes.com/athletic/6333433/2025/05/04/texas-rangers-fire-offensive-coordinator-leodys-taveras-waivers/
+https://nytimes.com/athletic/6333433/2025/05/04/texas-rangers-fire-offensive-coordinator-leody-taveras-waivers/
 
 **Shota Imanaga exits Sunday's loss with a hamstring strain as Cubs' thin pitching staff takes a hit**\
 `"We'll probably do some imaging to see what's going on," Craig Counsell said after the Cubs' 4-0 loss to the Brewers on Sunday.`\

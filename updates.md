@@ -1,3 +1,11 @@
+**Kirill Kaprizov discusses potential contract extension with Wild: 'It should be all good’**\
+`Kaprizov said Sunday he feels good about the future here: “Everyone wants to win. Me too. I like everything here.”`\
+https://nytimes.com/athletic/6332889/2025/05/04/kirill-kaprizov-wild-contract-extension-nhl/
+
+**A New Trend in Global Elections: The Anti-Trump Bump**\
+`In voting in Canada and Australia, right-wing parties that borrowed from the MAGA playbook were punished. Elsewhere, President Trump is having a more complex impact.`\
+https://nytimes.com/2025/05/04/world/canada/global-elections-trump.html
+
 **Yankees takeaways: Aaron Boone's pinch hit problem, infield hitting woes, Will Warren**\
 `In the biggest at-bat of Sunday's loss, Boone stuck with his backup catcher. Let's take a look at the other options.`\
 https://nytimes.com/athletic/6333151/2025/05/04/new-york-yankees-aaron-boone-will-warren/

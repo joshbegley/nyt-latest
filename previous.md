@@ -1,3 +1,11 @@
+**Kirill Kaprizov discusses potential contract extension with Wild: 'It should be all good’**\
+`Kaprizov said Sunday he feels good about the future here: “Everyone wants to win. Me too. I like everything here.”`\
+https://nytimes.com/athletic/6332889/2025/05/04/kirill-kaprizov-wild-contract-extension-nhl/
+
+**A New Trend in Global Elections: The Anti-Trump Bump**\
+`In voting in Canada and Australia, right-wing parties that borrowed from the MAGA playbook were punished. Elsewhere, President Trump is having a more complex impact.`\
+https://nytimes.com/2025/05/04/world/canada/global-elections-trump.html
+
 **Yankees takeaways: Aaron Boone's pinch hit problem, infield hitting woes, Will Warren**\
 `In the biggest at-bat of Sunday's loss, Boone stuck with his backup catcher. Let's take a look at the other options.`\
 https://nytimes.com/athletic/6333151/2025/05/04/new-york-yankees-aaron-boone-will-warren/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/04/us/boston-emmanuel-college-sex-trafficking.html
 **Will Hutchins, Gentle Cowboy Lawman in ‘Sugarfoot,’ Dies at 94**\
 `He starred in one of the westerns that dominated TV in the late 1950s. After losing traction in Hollywood, he became a traveling clown.`\
 https://nytimes.com/2025/05/04/obituaries/will-hutchins-dead.html
-
-**Caitlin Clark draws loud welcome in return to Iowa for WNBA exhibition**\
-`Fans flocked to Carver-Hawkeye Arena to see the Indiana Fever star at the site where she set NCAA scoring record.`\
-https://nytimes.com/athletic/6333281/2025/05/04/caitlin-clark-returns-iowa-wnba-exhibition/
-
-**Submit your Mets questions for the Tim Britton and Will Sammon mailbag**\
-`<p>We’re about a week away from the one-quarter marker of the Mets&#8217; season.`\
-https://nytimes.com/athletic/6333348/2025/05/04/mets-mailbag-britton-sammon/
 
