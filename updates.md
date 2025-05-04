@@ -1,3 +1,7 @@
+**Houthi Missile Hits Near Tel Aviv Airport**\
+`At least two people were reported injured, and flights were temporarily suspended.`\
+https://nytimes.com/2025/05/04/world/middleeast/houthi-missile-tel-aviv-israel.html
+
 **Luxury Condo Owners Accuse Builders of Hiding Dangerous Defects**\
 `In a lawsuit, the condo board at 432 Park Avenue says the city and potential residents were not told about the severity of early cracks in the supertall building’s exterior.`\
 https://nytimes.com/2025/05/04/nyregion/new-york-condo-tower-lawsuit.html
