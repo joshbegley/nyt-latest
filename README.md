@@ -1,3 +1,7 @@
+**British Police Arrest Iranian Nationals in Counterterrorism Investigations**\
+`Seven Iranians were among eight men arrested in two investigations. Some of the detained were accused of preparing a terrorist attack on an unnamed site.`\
+https://nytimes.com/2025/05/04/world/europe/british-police-arrest-iranian-nationals-in-counterterrorism-investigations.html
+
 **Inside Oliver Ekman-Larsson's comeback from rock bottom to Maple Leafs**\
 `Ekman-Larsson's NHL career hit rock bottom in 2023. His emergence out of it is a story of injuries, self-discovery and redemption.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6332046/2025/05/04/carli-lloyd-uswnt-soccer-hall-of
 **General Motors’ F1 plans unchanged despite $5bn impact from Trump’s tariffs**\
 `Cadillac confirmed it's 'committed' to an American driver, but not necessarily for 2026.`\
 https://nytimes.com/athletic/6331583/2025/05/04/f1-general-motors-cadillac-trump-tariffs-driver/
-
-**The Sunday Read: ‘This Is the Holocaust Story I Said I Wouldn’t Write’**\
-`For years, my friend’s father asked me to recount his childhood escape from the Nazis. Why did it take me this long?`\
-https://nytimes.com/2025/05/04/podcasts/the-daily/holocaust-story-education.html
 
