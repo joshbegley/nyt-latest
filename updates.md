@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Monday, May 5, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/05/04/todays-new-york-times-international-edition
+
 **Who Is Gregory Abel, Warren Buffett’s Successor?**\
 `Mr. Buffett won renown and made billions as one of the most successful stock pickers of all time. Mr. Abel’s strengths lie more in running businesses.`\
 https://nytimes.com/2025/05/04/business/dealbook/gregory-abel-warren-buffett-berkshire.html
