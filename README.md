@@ -1,3 +1,7 @@
+**Sybil Shainwald, Lawyer Who Fought for Women’s Health, Dies at 96**\
+`After taking part in a landmark case against the manufacturers of the synthetic hormone DES, she represented many other victims of harmful drugs and devices.`\
+https://nytimes.com/2025/05/04/us/sybil-shainwald-dead.html
+
 **Casper Ruud beats Jack Draper to win Madrid Open, his first ATP 1,000 title**\
 `Ruud absorbed Draper's anti-clay tennis and turned the final into a three-set battle of red dirt physicality to take the title.`\
 https://nytimes.com/athletic/6333078/2025/05/04/casper-ruud-madrid-open-jack-draper-result-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6328040/2025/05/04/harry-kane-has-won-a-trophy/
 **Justice Dept. Investigates Minnesota Prosecutor Office Over Race Policy**\
 `The department’s civil rights division said it was investigating the Hennepin County prosecutor’s office over a policy telling staff members to be mindful of “racial disparities” in plea negotiations.`\
 https://nytimes.com/2025/05/04/us/politics/justice-dept-minnesota-prosecutors-race.html
-
-**The Briefing: Chelsea 3 Liverpool 1 - Champions League boost? Were Arne Slot's side lacking sharpness?**\
-`Chelsea went into the game knowing this was a must-win for their Champions League hopes. Beating the title winners was a huge test`\
-https://nytimes.com/athletic/6320279/2025/05/04/chelsea-liverpool-result-report-analysis/
 
