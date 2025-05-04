@@ -1,3 +1,11 @@
+**Red Sox takeaways: Garrett Crochet avoids injury, but offense, bullpen sputter again**\
+`The bullpen hasn't had much margin for error with the Red Sox's inconsistent offense and they've not handled late leads well recently.`\
+https://nytimes.com/athletic/6333311/2025/05/04/red-sox-takeaways-bullpen-offense-struggles/
+
+**Miami Grand Prix: Submit your questions for our F1 mailbag**\
+`What questions do you have for our writers after the Miami Grand Prix?`\
+https://nytimes.com/athletic/6333425/2025/05/04/miami-grand-prix-f1-mailbag/
+
 **Order restored: Scheffler takes CJ Cup by 8 strokes for first win of 2025**\
 `Scheffler's tournament total of 253 ties the PGA Tour record for lowest 72-hole score.`\
 https://nytimes.com/athletic/6333378/2025/05/04/scottie-scheffler-first-win-of-2025-cj-cup/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/04/us/politics/trump-tarrio-proud-boys-pardon.html
 **Three Blue Jays takeaways: Pitch-tipping prevalence, Bo Bichette’s power and more**\
 `After poring through video, the Blue Jays seem to think that Bowden Francis isn’t giving away all his pitches. Time will tell.`\
 https://nytimes.com/athletic/6332748/2025/05/04/blue-jays-takeaways-bo-bichette/
-
-**Wild exit meetings: Rossi on contract and trade potential, Nyquist on offside goal reversal**\
-`Plus Zeev Buium reflects on his first taste of the NHL playoffs and Mats Zuccarello discusses his future. `\
-https://nytimes.com/athletic/6333158/2025/05/04/wild-rossi-contract-trade-nyquist-nhl/
-
-**Oscar Piastri wins (again), Ferrari team orders drama - Miami Grand Prix briefing**\
-`Oscar Piastri wins third successive grand prix, finishing ahead of teammate Lando Norris in a McLaren 1-2`\
-https://nytimes.com/athletic/6333192/2025/05/04/miami-grand-prix-2025-result-oscar-piastri-mclaren-ferrari/
 

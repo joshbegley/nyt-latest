@@ -1,3 +1,11 @@
+**Red Sox takeaways: Garrett Crochet avoids injury, but offense, bullpen sputter again**\
+`The bullpen hasn't had much margin for error with the Red Sox's inconsistent offense and they've not handled late leads well recently.`\
+https://nytimes.com/athletic/6333311/2025/05/04/red-sox-takeaways-bullpen-offense-struggles/
+
+**Miami Grand Prix: Submit your questions for our F1 mailbag**\
+`What questions do you have for our writers after the Miami Grand Prix?`\
+https://nytimes.com/athletic/6333425/2025/05/04/miami-grand-prix-f1-mailbag/
+
 **Order restored: Scheffler takes CJ Cup by 8 strokes for first win of 2025**\
 `Scheffler's tournament total of 253 ties the PGA Tour record for lowest 72-hole score.`\
 https://nytimes.com/athletic/6333378/2025/05/04/scottie-scheffler-first-win-of-2025-cj-cup/
