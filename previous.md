@@ -1,3 +1,7 @@
+**Sudan’s Army Says Paramilitary Forces Struck Civilian Targets**\
+`The strikes targeted an airport, a warehouse and several civilian facilities in the eastern city of Port Sudan, the army said.`\
+https://nytimes.com/2025/05/04/world/africa/sudan-war-port-sudan.html
+
 **Sybil Shainwald, Lawyer Who Fought for Women’s Health, Dies at 96**\
 `After taking part in a landmark case against the manufacturers of the synthetic hormone DES, she represented many other victims of harmful drugs and devices.`\
 https://nytimes.com/2025/05/04/us/sybil-shainwald-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6332930/2025/05/04/2025-kentucky-derby-full-results
 **The long, strange wait is over. Harry Kane has won a trophy**\
 `The England striker's career will no longer have a footnote`\
 https://nytimes.com/athletic/6328040/2025/05/04/harry-kane-has-won-a-trophy/
-
-**Justice Dept. Investigates Minnesota Prosecutor Office Over Race Policy**\
-`The department’s civil rights division said it was investigating the Hennepin County prosecutor’s office over a policy telling staff members to be mindful of “racial disparities” in plea negotiations.`\
-https://nytimes.com/2025/05/04/us/politics/justice-dept-minnesota-prosecutors-race.html
 

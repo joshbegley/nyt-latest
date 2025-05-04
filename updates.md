@@ -1,3 +1,7 @@
+**Sudan’s Army Says Paramilitary Forces Struck Civilian Targets**\
+`The strikes targeted an airport, a warehouse and several civilian facilities in the eastern city of Port Sudan, the army said.`\
+https://nytimes.com/2025/05/04/world/africa/sudan-war-port-sudan.html
+
 **Sybil Shainwald, Lawyer Who Fought for Women’s Health, Dies at 96**\
 `After taking part in a landmark case against the manufacturers of the synthetic hormone DES, she represented many other victims of harmful drugs and devices.`\
 https://nytimes.com/2025/05/04/us/sybil-shainwald-dead.html
