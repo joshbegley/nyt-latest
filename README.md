@@ -1,3 +1,7 @@
+**Days Before Conclave, Cardinals in Rome Pitch Messages to the Pews**\
+`Some papal contenders offered hints in Sunday Masses at what kind of pope they might want, or want to be.`\
+https://nytimes.com/2025/05/04/world/europe/conclave-pope-cardinals-rome.html
+
 **Cora Sue Collins, a Busy Child Actress in the 1930s, Dies at 98**\
 `She was in films with Greta Garbo, who became a friend, and  Myrna Loy, Bette Davis and others. She ended her career after being sexually harassed.`\
 https://nytimes.com/2025/05/04/movies/cora-sue-collins-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/04/us/politics/trump-meet-the-press-interview-due-pr
 **Another key lefty out for season: What it means for the Mets' bullpen**\
 `Dedniel Núñez will be activated Sunday to lengthen the Mets' bullpen.`\
 https://nytimes.com/athletic/6326945/2025/05/04/mets-danny-young-tommy-john/
-
-**The Briefing: Brighton 1 Newcastle 1 - Isak's late leveller, triple penalty drama and Minteh again**\
-`George Caulkin and Chris Waugh analyse the main talking points from Newcastle's draw at Brighton`\
-https://nytimes.com/athletic/6320277/2025/05/04/brighton-newcastle-analysis-premier-league/
 
