@@ -1,3 +1,13 @@
+**Mirtle: Can Maple Leafs beat Panthers? 5 keys to victory for Toronto**\
+`As the underdogs versus Florida in Round 2, Toronto has to have a few things go its way to have a chance to advance in the playoffs.
+`\
+https://nytimes.com/athletic/6330629/2025/05/04/maple-leafs-panthers-nhl-playoffs-series/
+
+**Inside Oliver Ekman-Larsson's comeback from rock bottom to Maple Leafs**\
+`Ekman-Larsson's NHL career hit rock bottom in 2023. His emergence out of it is a story of injuries, self-discovery and redemption.
+`\
+https://nytimes.com/athletic/6331126/2025/05/04/maple-leafs-oliver-ekman-larsson-nhl-playoffs/
+
 **Five reasons Oilers are (and aren't) better positioned for Golden Knights playoff matchup**\
 `Edmonton is expecting a different outcome than when they played Vegas in the 2023 postseason.`\
 https://nytimes.com/athletic/6331639/2025/05/04/oilers-golden-knights-nhl-playoffs-stats/
