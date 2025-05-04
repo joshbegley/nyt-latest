@@ -1,3 +1,11 @@
+**Caitlin Clark draws loud welcome in return to Iowa for WNBA exhibition**\
+`Fans flocked to Carver-Hawkeye Arena to see the Indiana Fever star at the site where she set NCAA scoring record.`\
+https://nytimes.com/athletic/6333281/2025/05/04/caitlin-clark-returns-iowa-wnba-exhibition/
+
+**Submit your Mets questions for the Tim Britton and Will Sammon mailbag**\
+`<p>We’re about a week away from the one-quarter marker of the Mets&#8217; season.`\
+https://nytimes.com/athletic/6333348/2025/05/04/mets-mailbag-britton-sammon/
+
 **Up There in Years**\
 `We can get behind Eric Rollfing’s crossword puzzle.`\
 https://nytimes.com/2025/05/04/crosswords/daily-puzzle-2025-05-05.html

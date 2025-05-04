@@ -1,3 +1,11 @@
+**Caitlin Clark draws loud welcome in return to Iowa for WNBA exhibition**\
+`Fans flocked to Carver-Hawkeye Arena to see the Indiana Fever star at the site where she set NCAA scoring record.`\
+https://nytimes.com/athletic/6333281/2025/05/04/caitlin-clark-returns-iowa-wnba-exhibition/
+
+**Submit your Mets questions for the Tim Britton and Will Sammon mailbag**\
+`<p>We’re about a week away from the one-quarter marker of the Mets&#8217; season.`\
+https://nytimes.com/athletic/6333348/2025/05/04/mets-mailbag-britton-sammon/
+
 **Up There in Years**\
 `We can get behind Eric Rollfing’s crossword puzzle.`\
 https://nytimes.com/2025/05/04/crosswords/daily-puzzle-2025-05-05.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/04/briefing/australia-election-gaza-siege-ukraine-de
 **80 Years After Dachau Concentration Camp Liberation, Witnesses Remember**\
 `The anniversary of the end of the Nazi era comes at a pivotal time for Germans. The last of the survivors, liberators and perpetrators are dying, as the far right is becoming more established.`\
 https://nytimes.com/2025/05/04/world/europe/dachau-camp-80-years-liberation.html
-
-**Sudan’s Army Says Paramilitary Forces Struck Civilian Targets**\
-`The strikes targeted an airport, a warehouse and several civilian facilities in the eastern city of Port Sudan, the army said.`\
-https://nytimes.com/2025/05/04/world/africa/sudan-war-port-sudan.html
-
-**Sybil Shainwald, Lawyer Who Fought for Women’s Health, Dies at 96**\
-`After taking part in a landmark case against the manufacturers of the synthetic hormone DES, she represented many other victims of harmful drugs and devices.`\
-https://nytimes.com/2025/05/04/us/sybil-shainwald-dead.html
 
