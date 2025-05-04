@@ -1,3 +1,11 @@
+**Casper Ruud beats Jack Draper to win Madrid Open, his first ATP 1,000 title**\
+`Ruud absorbed Draper's anti-clay tennis and turned the final into a three-set battle of red dirt physicality to take the title.`\
+https://nytimes.com/athletic/6333078/2025/05/04/casper-ruud-madrid-open-jack-draper-result-analysis/
+
+**Highlights of Warren Buffett’s Life**\
+`Mr. Buffett, 94, was crowned the “Oracle of Omaha” because of smart investments he made as the chief executive of Berkshire Hathaway. He also made some mistakes.`\
+https://nytimes.com/2025/05/04/business/buffett-timeline.html
+
 **Real Madrid 3 Celta Vigo 2: Mbappe surpasses Ronaldo, Guler shines again, but defensive problems**\
 `Guillermo Rai reports from the Bernabeu as Real Madrid attempt to chase down leaders Barcelona in La Liga`\
 https://nytimes.com/athletic/6332829/2025/05/04/real-madrid-3-celta-vigo-2-mbappe-ronaldo-guler/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/04/us/politics/justice-dept-minnesota-prosecutors-ra
 **The Briefing: Chelsea 3 Liverpool 1 - Champions League boost? Were Arne Slot's side lacking sharpness?**\
 `Chelsea went into the game knowing this was a must-win for their Champions League hopes. Beating the title winners was a huge test`\
 https://nytimes.com/athletic/6320279/2025/05/04/chelsea-liverpool-result-report-analysis/
-
-**Bayern win Bundesliga title as Kane secures first career trophy**\
-`Bayern have won their 12th Bundesliga title in the last 13 years, regaining the crown from Leverkusen.`\
-https://nytimes.com/athletic/6301426/2025/05/04/bayern-munich-win-league-harry-kane-trophy/
-
-**Brighton should have been awarded penalty vs. Newcastle, Hurzeler claims**\
-`Hurzeler claimed a spot kick should have awarded for a second-half challenge by Sandro Tonali on Matt O'Riley.`\
-https://nytimes.com/athletic/6332852/2025/05/04/brighton-newcastle-penalty-hurzeler/
 
