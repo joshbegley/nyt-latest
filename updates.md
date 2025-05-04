@@ -1,3 +1,7 @@
+**NBA playoffs takeaways: Nuggets dominate Game 7, send Clippers packing**\
+`Peyton Watson and Russell Westbrook provided the minutes and production needed for the starters to eventually turn Game 7 into a rout.`\
+https://nytimes.com/athletic/6332049/2025/05/03/nba-playoffs-takeaways-score-nuggets-clippers/
+
 **Voters Approve Incorporation of SpaceX Hub as Starbase, Texas**\
 `The early vote tally on Saturday night was “well past” the majority needed to approve the incorporation of Starbase, an election official said.`\
 https://nytimes.com/2025/05/03/business/spacex-starbase-south-texas-vote.html
