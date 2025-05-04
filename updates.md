@@ -1,3 +1,17 @@
+**Arsenal and the casual attitude that continues to cost them**\
+`A home defeat to Bournemouth was less than ideal preparation for the return leg against PSG - Arteta wants them to use their 'rage' in Paris`\
+https://nytimes.com/athletic/6331570/2025/05/04/arsenal-arteta-casual-bournemouth/
+
+**Mirtle: Can Maple Leafs beat Panthers? 5 keys to victory for Toronto**\
+`As the underdogs versus Florida in Round 2, Toronto has to have a few things go its way to have a chance to advance in the playoffs.
+`\
+https://nytimes.com/athletic/6330629/2025/05/04/maple-leafs-panthers-nhl-playoffs-series/
+
+**Inside Oliver Ekman-Larsson's comeback from rock bottom to Maple Leafs**\
+`Ekman-Larsson's NHL career hit rock bottom in 2023. His emergence out of it is a story of injuries, self-discovery and redemption.
+`\
+https://nytimes.com/athletic/6331126/2025/05/04/maple-leafs-oliver-ekman-larsson-nhl-playoffs/
+
 **Mirtle: Can Maple Leafs beat Panthers? 5 keys to victory for Toronto**\
 `As the underdogs versus Florida in Round 2, Toronto has to have a few things go its way to have a chance to advance in the playoffs.
 `\

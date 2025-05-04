@@ -6,6 +6,10 @@ https://nytimes.com/2025/05/04/world/europe/ukraine-russia-war-patriot-systems.h
 `Edmonton is expecting a different outcome than when they played Vegas in the 2023 postseason.`\
 https://nytimes.com/athletic/6331639/2025/05/04/oilers-golden-knights-nhl-playoffs-stats/
 
+**Arsenal and the casual attitude that continues to cost them**\
+`A home defeat to Bournemouth was less than ideal preparation for the return leg against PSG - Arteta wants them to use their 'rage' in Paris`\
+https://nytimes.com/athletic/6331570/2025/05/04/arsenal-arteta-casual-bournemouth/
+
 **Built for big moments, Jordan Binnington is 'locked in' for Game 7**\
 `Binnington is 2-0 in two career Game 7 playoff games, turning aside 61 of 63 shots for an astounding .968 save percentage.`\
 https://nytimes.com/athletic/6330657/2025/05/04/blues-jordan-binnington-nhl-playoffs-game-7/
@@ -35,8 +39,4 @@ https://nytimes.com/2025/05/04/world/europe/british-police-arrest-iranian-nation
 `Ekman-Larsson's NHL career hit rock bottom in 2023. His emergence out of it is a story of injuries, self-discovery and redemption.
 `\
 https://nytimes.com/athletic/6331126/2025/05/04/maple-leafs-oliver-ekman-larsson-nhl-playoffs/
-
-**Rudy Gobert's role, Ant's intelligence and more takeaways from the Wolves' triumph**\
-`While the Wolves wait for an opponent, it is worth revisiting the emphatic, 4-1 wipeout of the Lakers and some of the themes that emerged.`\
-https://nytimes.com/athletic/6327778/2025/05/04/rudy-gobert-anthony-edwards-timberwolves-lakers-nba-playoffs/
 
