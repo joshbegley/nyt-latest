@@ -1,3 +1,11 @@
+**Order restored: Scheffler takes CJ Cup by 8 strokes for first win of 2025**\
+`Scheffler's tournament total of 253 ties the PGA Tour record for lowest 72-hole score.`\
+https://nytimes.com/athletic/6333378/2025/05/04/scottie-scheffler-first-win-of-2025-cj-cup/
+
+**College Assistant Admissions Director Charged With Attempted Sex Trafficking**\
+`The authorities arrested Jacob Henriques, 29, after he had tried to solicit prospective and admitted students for sex, the Justice Department said. He worked for Emmanuel College in Boston.`\
+https://nytimes.com/2025/05/04/us/boston-emmanuel-college-sex-trafficking.html
+
 **Will Hutchins, Gentle Cowboy Lawman in ‘Sugarfoot,’ Dies at 94**\
 `He starred in one of the westerns that dominated TV in the late 1950s. After losing traction in Hollywood, he became a traveling clown.`\
 https://nytimes.com/2025/05/04/obituaries/will-hutchins-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6333158/2025/05/04/wild-rossi-contract-trade-nyquis
 **Oscar Piastri wins (again), Ferrari team orders drama - Miami Grand Prix briefing**\
 `Oscar Piastri wins third successive grand prix, finishing ahead of teammate Lando Norris in a McLaren 1-2`\
 https://nytimes.com/athletic/6333192/2025/05/04/miami-grand-prix-2025-result-oscar-piastri-mclaren-ferrari/
-
-**Children Suffer From Malnutrition as Israel’s Blockade of Gaza Continues**\
-`It has been over 60 days since Israel ordered a halt to all humanitarian aid entering Gaza. Israel says the siege will continue until Hamas releases all of its hostages.`\
-https://nytimes.com/video/world/middleeast/100000010146471/gaza-israel-middle-east-hunger.html
-
-**Monday Briefing: Inside Australia’s Election**\
-`Plus, analyzing a scene in “Sinners.”`\
-https://nytimes.com/2025/05/04/briefing/australia-election-gaza-siege-ukraine-defense.html
 
