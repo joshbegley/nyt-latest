@@ -1,3 +1,7 @@
+**Jets' season will be judged on Game 7 outcome: 'We're focused on the present'**\
+`If they lose, the Jets will face doubt and an offseason spent wondering if this core truly found that "next level."`\
+https://nytimes.com/athletic/6331576/2025/05/04/jets-blues-game-7-nhl-playoffs/
+
 **Designers Do a Double Take at the Lettering on Pope Francis’s Tombstone**\
 `Irregularly spaced letters spelling “F R A NCISC VS” have caused a stir among typography nerds who specialize in spacing and fonts. One called them “an abomination unto design.”`\
 https://nytimes.com/2025/05/04/world/europe/pope-francis-tomb-lettering.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6330657/2025/05/04/blues-jordan-binnington-nhl-play
 `As the underdogs versus Florida in Round 2, Toronto has to have a few things go its way to have a chance to advance in the playoffs.
 `\
 https://nytimes.com/athletic/6330629/2025/05/04/maple-leafs-panthers-nhl-playoffs-series/
-
-**Blackhawks and the NHL Draft Lottery: Everything to know**\
-`The Blackhawks will find out their 2025 NHL Draft position on Monday. Here's a rundown of what's at stake and the players they could take.`\
-https://nytimes.com/athletic/6326528/2025/05/04/blackhawks-nhl-draft-lottery-2025/
 
