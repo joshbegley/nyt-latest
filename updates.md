@@ -1,3 +1,7 @@
+**Lowetide: How Ty Emberson's role with the Oilers has evolved this season**\
+`Emberson's role is somewhat unusual, but it's a valuable piece of the puzzle for the Oilers coaching staff.`\
+https://nytimes.com/athletic/6331349/2025/05/04/oilers-ty-emberson-stats-nhl-playoffs/
+
 **The Pulse: As F1 hits Miami, is it on the upswing?**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6332135/2025/05/04/as-f1s-battle-for-americas-attention-how-healthy-is-the-sport/
