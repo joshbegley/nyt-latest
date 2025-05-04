@@ -1,3 +1,7 @@
+**Wild exit meetings: Rossi on contract and trade potential, Nyquist on offside goal reversal**\
+`Plus Zeev Buium reflects on his first taste of the NHL playoffs and Mats Zuccarello discusses his future. `\
+https://nytimes.com/athletic/6333158/2025/05/04/wild-rossi-contract-trade-nyquist-nhl/
+
 **Oscar Piastri wins again and Ferrari drama - Miami Grand Prix briefing**\
 `Oscar Piastri wins third successive grand prix, finishing ahead of teammate Lando Norris in a McLaren 1-2`\
 https://nytimes.com/athletic/6333192/2025/05/04/miami-grand-prix-2025-result-oscar-piastri-mclaren-ferrari/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/04/business/buffett-timeline.html
 **Real Madrid 3 Celta Vigo 2: Mbappe surpasses Ronaldo, Guler shines again, but defensive problems**\
 `Guillermo Rai reports from the Bernabeu as Real Madrid attempt to chase down leaders Barcelona in La Liga`\
 https://nytimes.com/athletic/6332829/2025/05/04/real-madrid-3-celta-vigo-2-mbappe-ronaldo-guler/
-
-**2025 NHL playoff preview: Vegas Golden Knights vs. Edmonton Oilers**\
-`A battle between two teams equally equipped to win it all, this series is about as tight as it gets.`\
-https://nytimes.com/athletic/6330427/2025/05/04/nhl-playoffs-oilers-golden-knights-preview/
 
