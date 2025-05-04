@@ -1,3 +1,7 @@
+**The Briefing: West Ham 1 Tottenham 1: Exactly what Spurs needed? Did Tel send a message?**\
+`Tottenham Hotspur played out a 1-1 draw against West Ham United on Sunday`\
+https://nytimes.com/athletic/6320281/2025/05/04/west-ham-tottenham-result-report-analysis/
+
 **Jets' season will be judged on Game 7 outcome: 'We're focused on the present'**\
 `If they lose, the Jets will face doubt and an offseason spent wondering if this core truly found that "next level."`\
 https://nytimes.com/athletic/6331576/2025/05/04/jets-blues-game-7-nhl-playoffs/
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/6331570/2025/05/04/arsenal-arteta-casual-bournemout
 **Built for big moments, Jordan Binnington is 'locked in' for Game 7**\
 `Binnington is 2-0 in two career Game 7 playoff games, turning aside 61 of 63 shots for an astounding .968 save percentage.`\
 https://nytimes.com/athletic/6330657/2025/05/04/blues-jordan-binnington-nhl-playoffs-game-7/
-
-**Mirtle: Can Maple Leafs beat Panthers? 5 keys to victory for Toronto**\
-`As the underdogs versus Florida in Round 2, Toronto has to have a few things go its way to have a chance to advance in the playoffs.
-`\
-https://nytimes.com/athletic/6330629/2025/05/04/maple-leafs-panthers-nhl-playoffs-series/
 
