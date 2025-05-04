@@ -1,3 +1,7 @@
+**Will Hutchins, Gentle Cowboy Lawman in ‘Sugarfoot,’ Dies at 94**\
+`He starred in one of the westerns that dominated TV in the late 1950s. After losing traction in Hollywood, he became a traveling clown.`\
+https://nytimes.com/2025/05/04/obituaries/will-hutchins-dead.html
+
 **Caitlin Clark draws loud welcome in return to Iowa for WNBA exhibition**\
 `Fans flocked to Carver-Hawkeye Arena to see the Indiana Fever star at the site where she set NCAA scoring record.`\
 https://nytimes.com/athletic/6333281/2025/05/04/caitlin-clark-returns-iowa-wnba-exhibition/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010146471/gaza-israel-middle-ea
 **Monday Briefing: Inside Australia’s Election**\
 `Plus, analyzing a scene in “Sinners.”`\
 https://nytimes.com/2025/05/04/briefing/australia-election-gaza-siege-ukraine-defense.html
-
-**80 Years After Dachau Concentration Camp Liberation, Witnesses Remember**\
-`The anniversary of the end of the Nazi era comes at a pivotal time for Germans. The last of the survivors, liberators and perpetrators are dying, as the far right is becoming more established.`\
-https://nytimes.com/2025/05/04/world/europe/dachau-camp-80-years-liberation.html
 

@@ -1,3 +1,7 @@
+**Will Hutchins, Gentle Cowboy Lawman in ‘Sugarfoot,’ Dies at 94**\
+`He starred in one of the westerns that dominated TV in the late 1950s. After losing traction in Hollywood, he became a traveling clown.`\
+https://nytimes.com/2025/05/04/obituaries/will-hutchins-dead.html
+
 **Oscar Piastri wins (again), Ferrari team orders drama - Miami Grand Prix briefing**\
 `Oscar Piastri wins third successive grand prix, finishing ahead of teammate Lando Norris in a McLaren 1-2`\
 https://nytimes.com/athletic/6333192/2025/05/04/miami-grand-prix-2025-result-oscar-piastri-mclaren-ferrari/
