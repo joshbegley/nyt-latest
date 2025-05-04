@@ -1,3 +1,7 @@
+**Sybil Shainwald, Lawyer Who Fought for Women’s Health, Dies at 96**\
+`After taking part in a landmark case against the manufacturers of the synthetic hormone DES, she represented many other victims of harmful drugs and devices.`\
+https://nytimes.com/2025/05/04/us/sybil-shainwald-dead.html
+
 **Casper Ruud beats Jack Draper to win Madrid Open, his first ATP 1,000 title**\
 `Ruud absorbed Draper's anti-clay tennis and turned the final into a three-set battle of red dirt physicality to take the title.`\
 https://nytimes.com/athletic/6333078/2025/05/04/casper-ruud-madrid-open-jack-draper-result-analysis/
