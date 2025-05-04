@@ -1,3 +1,15 @@
+**One Moment That Foretold It All**\
+`The most consequential day of Donald Trump’s second term came before it even began.`\
+https://nytimes.com/2025/05/04/opinion/trump-vance-100-days.html
+
+**The New York Times in Print for Sunday, May 4, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/04/todays-new-york-times
+
+**We’ve Been Warning the World About Bukele for Years**\
+`Even if El Salvador’s president has ironically called himself the “coolest dictator in the world,” he’s a dictator nonetheless.`\
+https://nytimes.com/2025/05/04/opinion/el-salvador-bukele-prisons.html
+
 **'It's pretty shocking': Avalanche's torturous collapse leaves plenty of questions**\
 `"I don't know what we're going to do," Nathan MacKinnon said after Colorado's 4-2 Game 7 collapse to the rival Dallas Stars.`\
 https://nytimes.com/athletic/6332185/2025/05/04/avalanche-stars-nhl-playoffs-game-7/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6331536/2025/05/04/leicester-southampton-worst-prem
 **Ipswich, Leicester, Southampton: Who's best placed to get promoted next season?**\
 `Which of the three relegated teams are best placed to dominate the Championship next season?`\
 https://nytimes.com/athletic/6323803/2025/05/04/will-the-three-relegated-teams-bounce-back-next-season-ipswich-leicester-southampton/
-
-**The manager of the 'other' Barcelona winning praise for his pink tuxedo**\
-`Castillo, a former midfielder for Ecuador who also had club loan spells with Everton and Wolves, manages in his country’s LigaPro division`\
-https://nytimes.com/athletic/6284456/2025/05/04/segundo-castillo-barcelona-ecuador/
-
-**How did Luton suffer successive relegations?**\
-`Luton became just the fourth team to suffer back-to-back demotions from the Premier League - this is how`\
-https://nytimes.com/athletic/6327000/2025/05/04/luton-town-relegated-league-one/
-
-**The managerial battle of Wilshere v Ramsey - how did that happen?**\
-`The former Arsenal midfielders went head to head on the final day of the season - as interim managers. Will it be first of many meetings?`\
-https://nytimes.com/athletic/6330809/2025/05/04/jack-wilshere-aaron-ramsey-managers/
 

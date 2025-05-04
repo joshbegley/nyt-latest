@@ -1,3 +1,15 @@
+**One Moment That Foretold It All**\
+`The most consequential day of Donald Trump’s second term came before it even began.`\
+https://nytimes.com/2025/05/04/opinion/trump-vance-100-days.html
+
+**The New York Times in Print for Sunday, May 4, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/04/todays-new-york-times
+
+**We’ve Been Warning the World About Bukele for Years**\
+`Even if El Salvador’s president has ironically called himself the “coolest dictator in the world,” he’s a dictator nonetheless.`\
+https://nytimes.com/2025/05/04/opinion/el-salvador-bukele-prisons.html
+
 **'It's pretty shocking': Avalanche's torturous collapse leaves plenty of questions**\
 `"I don't know what we're going to do," Nathan MacKinnon said after Colorado's 4-2 Game 7 collapse to the rival Dallas Stars.`\
 https://nytimes.com/athletic/6332185/2025/05/04/avalanche-stars-nhl-playoffs-game-7/
