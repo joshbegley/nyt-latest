@@ -3,7 +3,7 @@
 https://nytimes.com/2025/05/04/us/politics/justice-dept-minnesota-prosecutors-race.html
 
 **The Briefing: Chelsea 3 Liverpool 1 - Champions League boost? Were Arne Slot's side lacking sharpness?**\
-`Chelsea went into the game knowing this was a must-win for their Champions League hopes- and that beating the title winners was a huge test`\
+`Chelsea went into the game knowing this was a must-win for their Champions League hopes - and that beating the title winners was a huge test`\
 https://nytimes.com/athletic/6320279/2025/05/04/chelsea-liverpool-result-report-analysis/
 
 **Bayern win Bundesliga title as Kane secures first career trophy**\

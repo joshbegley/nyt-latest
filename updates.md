@@ -1,3 +1,11 @@
+**Justice Dept. Investigates Minnesota Prosecutor Office Over Race Policy**\
+`The department’s civil rights division said it was investigating the Hennepin County prosecutor’s office over a policy telling staff members to be mindful of “racial disparities” in plea negotiations.`\
+https://nytimes.com/2025/05/04/us/politics/justice-dept-minnesota-prosecutors-race.html
+
+**The Briefing: Chelsea 3 Liverpool 1 - Champions League boost? Were Arne Slot's side lacking sharpness?**\
+`Chelsea went into the game knowing this was a must-win for their Champions League hopes- and that beating the title winners was a huge test`\
+https://nytimes.com/athletic/6320279/2025/05/04/chelsea-liverpool-result-report-analysis/
+
 **The Briefing: Chelsea 3 Liverpool 1: Champions League boost? Were Arne Slot's side lacking sharpness?**\
 `Chelsea managed a 3-1 win over Liverpool on Sunday to aid their push for Champions League qualification`\
 https://nytimes.com/athletic/6320279/2025/05/04/chelsea-liverpool-result-report-analysis/

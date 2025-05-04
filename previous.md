@@ -1,5 +1,9 @@
-**The Briefing: Chelsea 3 Liverpool 1: Champions League boost? Were Arne Slot's side lacking sharpness?**\
-`Chelsea managed a 3-1 win over Liverpool on Sunday to aid their push for Champions League qualification`\
+**Justice Dept. Investigates Minnesota Prosecutor Office Over Race Policy**\
+`The department’s civil rights division said it was investigating the Hennepin County prosecutor’s office over a policy telling staff members to be mindful of “racial disparities” in plea negotiations.`\
+https://nytimes.com/2025/05/04/us/politics/justice-dept-minnesota-prosecutors-race.html
+
+**The Briefing: Chelsea 3 Liverpool 1 - Champions League boost? Were Arne Slot's side lacking sharpness?**\
+`Chelsea went into the game knowing this was a must-win for their Champions League hopes- and that beating the title winners was a huge test`\
 https://nytimes.com/athletic/6320279/2025/05/04/chelsea-liverpool-result-report-analysis/
 
 **Bayern win Bundesliga title as Kane secures first career trophy**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/04/movies/cora-sue-collins-dead.html
 **Amorim concerned after De Ligt injured in Man Utd's Brentford defeat**\
 `The Netherlands international couldn't continue after appearing to pick up an injury prior to Brentford's second goal of the first half.`\
 https://nytimes.com/athletic/6332670/2025/05/04/manchester-united-de-ligt-injury/
-
-**Postecoglou says Maddison knee injury 'not looking promising'**\
-`Maddison, 28, was forced off during the second half Thursday's Europa League win over Bodo/Glimt.`\
-https://nytimes.com/athletic/6332704/2025/05/04/james-maddison-spurs-knee-njury-update/
 
