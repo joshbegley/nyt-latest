@@ -1,3 +1,7 @@
+**‘Believing’ and Belonging**\
+`We look at how people are searching for belonging.`\
+https://nytimes.com/2025/05/04/briefing/believing-faith-belonging.html
+
 **What we're watching in Celtics-Knicks: X-factors, predictions and more**\
 `Three writers covering this highly anticipated series got together to answer five burning questions.`\
 https://nytimes.com/athletic/6331136/2025/05/04/celtics-knicks-preview-nba-playoffs-2025/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/05/04/us/houston-shootings.html
 **LeBrun: The Stars have unlocked Mikko Rantanen, playoff monster. Watch out, NHL**\
 `Rantanen had a hat trick and an assist in Game 7 against his former team, propelling the Stars to the second round.`\
 https://nytimes.com/athletic/6332221/2025/05/04/mikko-rantanen-stars-avalanche-nhl-playoffs-2025-game-7/
-
-**Carli Lloyd on price of USWNT success: 'I'm sorry I wasn't always able to give you all of me'**\
-`Lloyd was a crucial part of the USWNT's success during her career.`\
-https://nytimes.com/athletic/6332046/2025/05/04/carli-lloyd-uswnt-soccer-hall-of-fame/
 
