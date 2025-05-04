@@ -1,3 +1,7 @@
+**Denver's resilience leads it past LA and on to OKC, its biggest challenge yet**\
+`"It feels good, but we know that we have to fly to OKC," interim coach David Adelman said after Denver's 120-101 Game 7 win.`\
+https://nytimes.com/athletic/6332179/2025/05/04/nuggets-beat-clippers-game-7/
+
 **Canelo Alvarez turns to Terence Crawford next after win vs. William Scull**\
 `Alvarez and Scull combined for the fewest punches thrown in Compubox history (445).`\
 https://nytimes.com/athletic/6332235/2025/05/04/canelo-alvarez-win-william-scull-terence-crawford-next/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6331561/2025/05/04/chelsea-maresca-experience-boehl
 **Why Real Madrid fans whistle their own players**\
 `The Bernabeu is one of the most demanding stadiums in world sport. This is why the fans expect so much from their stars`\
 https://nytimes.com/athletic/6329726/2025/05/04/real-madrid-fans-whistles-mbappe-ronaldo/
-
-**Vardy as the ref, a Leicester win and lots of Southampton singing - was it really 'El Crapico'?**\
-`Leicester and Southampton are going down but their fans haven't lost their sense of humour `\
-https://nytimes.com/athletic/6331536/2025/05/04/leicester-southampton-worst-premier-league-game/
 

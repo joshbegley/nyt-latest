@@ -1,3 +1,7 @@
+**Denver's resilience leads it past LA and on to OKC, its biggest challenge yet**\
+`"It feels good, but we know that we have to fly to OKC," interim coach David Adelman said after Denver's 120-101 Game 7 win.`\
+https://nytimes.com/athletic/6332179/2025/05/04/nuggets-beat-clippers-game-7/
+
 **Canelo Alvarez turns to Terence Crawford next after win vs. William Scull**\
 `Alvarez and Scull combined for the fewest punches thrown in Compubox history (445).`\
 https://nytimes.com/athletic/6332235/2025/05/04/canelo-alvarez-win-william-scull-terence-crawford-next/
