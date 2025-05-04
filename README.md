@@ -1,3 +1,7 @@
+**'It’s pretty shocking': Avalanche's torturous collapse leaves plenty of questions to answer**\
+`"I don’t know what we’re going to do,” Nathan MacKinnon said after Colorado's 4-2 Game 7 collapse to the rival Dallas Stars.`\
+https://nytimes.com/athletic/6332185/2025/05/04/avalanche-stars-nhl-playoffs-game-7/
+
 **Youri Tielemans is now Aston Villa's most important player**\
 `Unai Emery was not a happy man in Villa's win over Fulham - but Tielemans escaped his anger after running the show. Again.`\
 https://nytimes.com/athletic/6330816/2025/05/04/youri-tielemans-aston-villa-important/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6327000/2025/05/04/luton-town-relegated-league-one/
 **The managerial battle of Wilshere v Ramsey - how did that happen?**\
 `The former Arsenal midfielders went head to head on the final day of the season - as interim managers. Will it be first of many meetings?`\
 https://nytimes.com/athletic/6330809/2025/05/04/jack-wilshere-aaron-ramsey-managers/
-
-**Is European soccer ready to embrace the championship ring? 'You can't wear a trophy'**\
-`Championship rings are an American tradition but in Europe, some players are taking it upon themselves to immortalise their careers in gold`\
-https://nytimes.com/athletic/6266931/2025/05/04/soccer-football-championship-ring-suarez-drogba/
 

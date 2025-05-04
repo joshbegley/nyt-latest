@@ -1,3 +1,7 @@
+**'Be a star': Cubs letting Pete Crow-Armstrong be himself as he blossoms into stardom**\
+`The white-hot talent slugged a big three-run homer that gave the Cubs a 4-1 lead in their eventual 6-2 win over the Brewers.`\
+https://nytimes.com/athletic/6332114/2025/05/04/cubs-win-brewers-pete-crow-armstrong-star/
+
 **Youri Tielemans is now Aston Villa's most important player**\
 `Unai Emery was not a happy man in Villa's win over Fulham - but Tielemans escaped his anger after running the show. Again.`\
 https://nytimes.com/athletic/6330816/2025/05/04/youri-tielemans-aston-villa-important/
