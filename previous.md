@@ -1,3 +1,19 @@
+**Luxury Condo Owners Accuse Builders of Hiding Dangerous Defects**\
+`In a lawsuit, the condo board at 432 Park Avenue says the city and potential residents were not told about the severity of early cracks in the supertall building’s exterior.`\
+https://nytimes.com/2025/05/04/nyregion/new-york-condo-tower-lawsuit.html
+
+**A Wider View Into the ‘Corner Office’**\
+`Jordyn Holman, newly at the helm of a column that interviews business leaders, has big plans for the series.`\
+https://nytimes.com/2025/05/04/insider/corner-office.html
+
+**‘My Heart Was in My Throat, and the Tears Were Flowing’**\
+`An emotional night at the theater, a childhood trip to Manhattan and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2025/05/04/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/05/04/crosswords/spelling-bee-forum.html
+
 **Denver's resilience leads it past LA and on to OKC, its biggest challenge yet**\
 `"It feels good, but we know that we have to fly to OKC," interim coach David Adelman said after Denver's 120-101 Game 7 win.`\
 https://nytimes.com/athletic/6332179/2025/05/04/nuggets-beat-clippers-game-7/
@@ -14,27 +30,11 @@ https://nytimes.com/2025/05/04/opinion/trump-vance-100-days.html
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/04/todays-new-york-times
 
-**We’ve Been Warning the World About Bukele for Years**\
+**The World Is Finally Seeing How Dangerous Bukele Really Is**\
 `Even if El Salvador’s president has ironically called himself the “coolest dictator in the world,” he’s a dictator nonetheless.`\
 https://nytimes.com/2025/05/04/opinion/el-salvador-bukele-prisons.html
 
 **'It's pretty shocking': Avalanche's torturous collapse leaves plenty of questions**\
 `"I don't know what we're going to do," Nathan MacKinnon said after Colorado's 4-2 Game 7 collapse to the rival Dallas Stars.`\
 https://nytimes.com/athletic/6332185/2025/05/04/avalanche-stars-nhl-playoffs-game-7/
-
-**Youri Tielemans is now Aston Villa's most important player**\
-`Unai Emery was not a happy man in Villa's win over Fulham - but Tielemans escaped his anger after running the show. Again.`\
-https://nytimes.com/athletic/6330816/2025/05/04/youri-tielemans-aston-villa-important/
-
-**'Be a star': Cubs letting Pete Crow-Armstrong be himself as he blossoms into stardom**\
-`The white-hot talent slugged a big three-run homer that gave the Cubs a 4-1 lead in their eventual 6-2 win over the Brewers.`\
-https://nytimes.com/athletic/6332114/2025/05/04/cubs-win-brewers-pete-crow-armstrong-star/
-
-**Chelsea and their experience problem**\
-`Maresca, like so many others at Stamford Bridge, is learning on the job. It's no wonder he is bemoaning their lack of know-how`\
-https://nytimes.com/athletic/6331561/2025/05/04/chelsea-maresca-experience-boehly-eghbali/
-
-**Why Real Madrid fans whistle their own players**\
-`The Bernabeu is one of the most demanding stadiums in world sport. This is why the fans expect so much from their stars`\
-https://nytimes.com/athletic/6329726/2025/05/04/real-madrid-fans-whistles-mbappe-ronaldo/
 
