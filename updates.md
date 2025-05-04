@@ -1,3 +1,7 @@
+**The Briefing: Brentford 4 Man United 3 - Obi makes history, timely Mount goal… but another defeat**\
+`Manchester United lost a 16th Premier League match of the season - as Ruben Amorim made his priorities clear with his team selection`\
+https://nytimes.com/athletic/6320278/2025/05/04/brentford-4-manchester-united-3-chido-obi-amorim-mount/
+
 **Michele Kang's London City Lionesses promoted to WSL for first time**\
 `The club secured their promotion after avoiding defeat against second-placed Birmingham City on the season's final day.`\
 https://nytimes.com/athletic/6301639/2025/05/04/london-city-lionesses-promotion-wsl/

@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6326945/2025/05/04/mets-danny-young-tommy-john/
 `George Caulkin and Chris Waugh analyse the main talking points from Newcastle's draw at Brighton`\
 https://nytimes.com/athletic/6320277/2025/05/04/brighton-newcastle-analysis-premier-league/
 
-**The Briefing: Brentford 4 Man United 3: Obi makes history, timely Mount goal - but another defeat**\
+**The Briefing: Brentford 4 Man United 3 - Obi makes history, timely Mount goal… but another defeat**\
 `Manchester United lost a 16th Premier League match of the season - as Ruben Amorim made his priorities clear with his team selection`\
 https://nytimes.com/athletic/6320278/2025/05/04/brentford-4-manchester-united-3-chido-obi-amorim-mount/
 

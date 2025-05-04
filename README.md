@@ -1,3 +1,7 @@
+**Trump Plays Down Talk of a Third Term, Backing Vance and Rubio**\
+`President Trump, who has frequently raised the idea of pursuing a third term in defiance of the Constitution, told “Meet the Press” that his vice president and his secretary of state were potential successors.`\
+https://nytimes.com/2025/05/04/us/politics/trump-2028-vance-rubio.html
+
 **Michele Kang's London City Lionesses promoted to WSL for first time**\
 `The club secured their promotion after avoiding defeat against second-placed Birmingham City on the season's final day.`\
 https://nytimes.com/athletic/6301639/2025/05/04/london-city-lionesses-promotion-wsl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6320281/2025/05/04/west-ham-tottenham-result-report
 **Jets' season will be judged on Game 7 outcome: 'We're focused on the present'**\
 `If they lose, the Jets will face doubt and an offseason spent wondering if this core truly found that "next level."`\
 https://nytimes.com/athletic/6331576/2025/05/04/jets-blues-game-7-nhl-playoffs/
-
-**Designers Do a Double Take at the Lettering on Pope Francis’ Tombstone**\
-`Irregularly spaced letters spelling “F R A NCISC VS” have caused a stir among typography nerds who specialize in spacing and fonts. One called them “an abomination unto design.”`\
-https://nytimes.com/2025/05/04/world/europe/pope-francis-tomb-lettering.html
 
