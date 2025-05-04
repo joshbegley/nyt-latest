@@ -1,3 +1,7 @@
+**Lowetide: How Ty Emberson's role with the Oilers has evolved this season**\
+`Emberson's role is somewhat unusual, but it's a valuable piece of the puzzle for the Oilers coaching staff.`\
+https://nytimes.com/athletic/6331349/2025/05/04/oilers-ty-emberson-stats-nhl-playoffs/
+
 **The Pulse: As F1 hits Miami, is it on the upswing?**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6332135/2025/05/04/as-f1s-battle-for-americas-attention-how-healthy-is-the-sport/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6332547/2025/05/04/leeds-daniel-farke-future-marath
 **Rhubarb, Rhubarb**\
 `Serve your guests a slice of Melissa Clark’s fuchsia-striped rhubarb pound cake and watch them happily murmur among themselves.`\
 https://nytimes.com/2025/05/04/dining/rhubarb-pound-cake-spring-recipes.html
-
-**The Briefing: West Ham 1 Tottenham 1 - Exactly what Spurs needed? Did Tel send a message?**\
-`Tottenham Hotspur followed up their Europa League semi-final victory with a draw away to London rivals West Ham United`\
-https://nytimes.com/athletic/6320281/2025/05/04/west-ham-tottenham-result-report-analysis/
 

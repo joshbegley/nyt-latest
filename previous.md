@@ -1,3 +1,7 @@
+**The Pulse: As F1 hits Miami, is it on the upswing?**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6332135/2025/05/04/as-f1s-battle-for-americas-attention-how-healthy-is-the-sport/
+
 **Trump Plays Down Talk of a Third Term, Backing Vance and Rubio**\
 `President Trump, who has frequently raised the idea of pursuing a third term in defiance of the Constitution, told “Meet the Press” that his vice president and his secretary of state were potential successors.`\
 https://nytimes.com/2025/05/04/us/politics/trump-2028-vance-rubio.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/04/dining/rhubarb-pound-cake-spring-recipes.html
 **The Briefing: West Ham 1 Tottenham 1 - Exactly what Spurs needed? Did Tel send a message?**\
 `Tottenham Hotspur followed up their Europa League semi-final victory with a draw away to London rivals West Ham United`\
 https://nytimes.com/athletic/6320281/2025/05/04/west-ham-tottenham-result-report-analysis/
-
-**Jets' season will be judged on Game 7 outcome: 'We're focused on the present'**\
-`If they lose, the Jets will face doubt and an offseason spent wondering if this core truly found that "next level."`\
-https://nytimes.com/athletic/6331576/2025/05/04/jets-blues-game-7-nhl-playoffs/
 

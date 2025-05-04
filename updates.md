@@ -1,3 +1,7 @@
+**The Pulse: As F1 hits Miami, is it on the upswing?**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6332135/2025/05/04/as-f1s-battle-for-americas-attention-how-healthy-is-the-sport/
+
 **Trump Plays Down Talk of a Third Term, Backing Vance and Rubio**\
 `President Trump, who has frequently raised the idea of pursuing a third term in defiance of the Constitution, told “Meet the Press” that his vice president and his secretary of state were potential successors.`\
 https://nytimes.com/2025/05/04/us/politics/trump-2028-vance-rubio.html
