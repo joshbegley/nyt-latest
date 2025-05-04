@@ -1,3 +1,7 @@
+**Days Before Conclave, Cardinals in Rome Pitch Messages to the Pews**\
+`Some papal contenders offered hints in Sunday Masses at what kind of pope they might want, or want to be.`\
+https://nytimes.com/2025/05/04/world/europe/conclave-pope-cardinals-rome.html
+
 **Cora Sue Collins, a Busy Child Actress in the 1930s, Dies at 98**\
 `She was in films with Greta Garbo, who became a friend, and  Myrna Loy, Bette Davis and others. She ended her career after being sexually harassed.`\
 https://nytimes.com/2025/05/04/movies/cora-sue-collins-dead.html

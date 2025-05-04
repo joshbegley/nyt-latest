@@ -1,3 +1,7 @@
+**Daryl Dike is back from injury hell: 'I can still achieve my USMNT World Cup dreams'**\
+`The striker has had two years on the sidelines but scored on the last day of the season - he is looking to the future, not back`\
+https://nytimes.com/athletic/6332315/2025/05/04/daryl-dike-interview-usmnt-west-brom/
+
 **Days Before Conclave, Cardinals in Rome Pitch Messages to the Pews**\
 `Some papal contenders offered hints in Sunday Masses at what kind of pope they might want, or want to be.`\
 https://nytimes.com/2025/05/04/world/europe/conclave-pope-cardinals-rome.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6301639/2025/05/04/london-city-lionesses-promotion-
 **Trump Wavers When Asked About Due Process Rights and His Constitutional Duties**\
 `President Trump repeatedly answered “I don’t know” when asked in a TV interview whether every person on American soil was entitled to due process, as guaranteed by the Fifth Amendment.`\
 https://nytimes.com/2025/05/04/us/politics/trump-meet-the-press-interview-due-process.html
-
-**Another key lefty out for season: What it means for the Mets' bullpen**\
-`Dedniel Núñez will be activated Sunday to lengthen the Mets' bullpen.`\
-https://nytimes.com/athletic/6326945/2025/05/04/mets-danny-young-tommy-john/
 
