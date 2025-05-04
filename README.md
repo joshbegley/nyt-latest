@@ -1,3 +1,11 @@
+**I Prayed After My Friend Was Swept Away on a Lagos Beach**\
+`Normally I talked to God without thinking. But a terrible phone call brought new intention.`\
+https://nytimes.com/2025/05/04/style/lagos-beach-death-prayer.html
+
+**What Has Happened to the American Dream?**\
+`Some Americans believe President Trump’s economic agenda will eventually deliver the dream through a stronger, made-in-the-U.S.A. economy. Others see it slipping away.`\
+https://nytimes.com/interactive/2025/05/04/us/trump-american-dream-voters.html
+
 **Sasaki continues progress for the Dodgers, despite his fastball not missing bats**\
 `The Dodgers rookie earned his first major league win — and continued one of baseball’s most anomalous trends.`\
 https://nytimes.com/athletic/6332263/2025/05/04/roki-sasaki-dodgers-fastball/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6332179/2025/05/04/nuggets-beat-clippers-game-7/
 **Canelo Alvarez turns to Terence Crawford next after win vs. William Scull**\
 `Alvarez and Scull combined for the fewest punches thrown in Compubox history (445).`\
 https://nytimes.com/athletic/6332235/2025/05/04/canelo-alvarez-win-william-scull-terence-crawford-next/
-
-**One Moment That Foretold It All**\
-`The most consequential day of Donald Trump’s second term came before it even began.`\
-https://nytimes.com/2025/05/04/opinion/trump-vance-100-days.html
-
-**The New York Times in Print for Sunday, May 4, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/05/04/todays-new-york-times
 
