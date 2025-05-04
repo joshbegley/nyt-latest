@@ -1,3 +1,17 @@
+**More American Air Defense Is on the Way to Help Ukraine**\
+`A Patriot air-defense system is moving from Israel to Ukraine, and Western allies are discussing the logistics of getting Germany or Greece to send another.`\
+https://nytimes.com/2025/05/04/world/europe/ukraine-russia-war-patriot-systems.html
+
+**Mirtle: Can Maple Leafs beat Panthers? 5 keys to victory for Toronto**\
+`As the underdogs versus Florida in Round 2, Toronto has to have a few things go its way to have a chance to advance in the playoffs.
+`\
+https://nytimes.com/athletic/6330629/2025/05/04/maple-leafs-panthers-nhl-playoffs-series/
+
+**Inside Oliver Ekman-Larsson's comeback from rock bottom to Maple Leafs**\
+`Ekman-Larsson's NHL career hit rock bottom in 2023. His emergence out of it is a story of injuries, self-discovery and redemption.
+`\
+https://nytimes.com/athletic/6331126/2025/05/04/maple-leafs-oliver-ekman-larsson-nhl-playoffs/
+
 **Mirtle: Can Maple Leafs beat Panthers? 5 keys to victory for Toronto**\
 `As the underdogs versus Florida in Round 2, Toronto has to have a few things go its way to have a chance to advance in the playoffs.
 `\

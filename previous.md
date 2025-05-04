@@ -1,3 +1,7 @@
+**More American Air Defense Is on the Way to Help Ukraine**\
+`A Patriot air-defense system is moving from Israel to Ukraine, and Western allies are discussing the logistics of getting Germany or Greece to send another.`\
+https://nytimes.com/2025/05/04/world/europe/ukraine-russia-war-patriot-systems.html
+
 **Five reasons Oilers are (and aren't) better positioned for Golden Knights playoff matchup**\
 `Edmonton is expecting a different outcome than when they played Vegas in the 2023 postseason.`\
 https://nytimes.com/athletic/6331639/2025/05/04/oilers-golden-knights-nhl-playoffs-stats/
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6331126/2025/05/04/maple-leafs-oliver-ekman-larsson
 **Rudy Gobert's role, Ant's intelligence and more takeaways from the Wolves' triumph**\
 `While the Wolves wait for an opponent, it is worth revisiting the emphatic, 4-1 wipeout of the Lakers and some of the themes that emerged.`\
 https://nytimes.com/athletic/6327778/2025/05/04/rudy-gobert-anthony-edwards-timberwolves-lakers-nba-playoffs/
-
-**WATCH: The reason Dillon Gabriel was drafted before Shedeur Sanders**\
-`NFL Draft expert Dane Brugler on two very different draft-season stories.`\
-https://nytimes.com/athletic/6329293/2025/05/04/cleveland-browns-dillon-gabriel-shedeur-sanders-draft/
 
