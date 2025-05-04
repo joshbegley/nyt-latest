@@ -1,3 +1,15 @@
+**Proud Boys’ Ex-Leader Thanks Trump for Pardon at Mar-a-Lago Encounter**\
+`Enrique Tarrio said he told Mr. Trump that he had saved his life by including him in a blanket grant of clemency for Jan. 6 defendants.`\
+https://nytimes.com/2025/05/04/us/politics/trump-tarrio-proud-boys-pardon.html
+
+**Three Blue Jays takeaways: Pitch-tipping prevalence, Bo Bichette’s power and more**\
+`After poring through video, the Blue Jays seem to think that Bowden Francis isn’t giving away all his pitches. Time will tell.`\
+https://nytimes.com/athletic/6332748/2025/05/04/blue-jays-takeaways-bo-bichette/
+
+**Wild exit meetings: Rossi on contract and trade potential, Nyquist on offside goal reversal**\
+`Plus Zeev Buium reflects on his first taste of the NHL playoffs and Mats Zuccarello discusses his future. `\
+https://nytimes.com/athletic/6333158/2025/05/04/wild-rossi-contract-trade-nyquist-nhl/
+
 **Oscar Piastri wins again and Ferrari drama - Miami Grand Prix briefing**\
 `Oscar Piastri wins third successive grand prix, finishing ahead of teammate Lando Norris in a McLaren 1-2`\
 https://nytimes.com/athletic/6333192/2025/05/04/miami-grand-prix-2025-result-oscar-piastri-mclaren-ferrari/

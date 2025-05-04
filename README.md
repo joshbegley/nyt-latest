@@ -1,3 +1,7 @@
+**Up There in Years**\
+`We can get behind Eric Rollfing’s crossword puzzle.`\
+https://nytimes.com/2025/05/04/crosswords/daily-puzzle-2025-05-05.html
+
 **Proud Boys’ Ex-Leader Thanks Trump for Pardon at Mar-a-Lago Encounter**\
 `Enrique Tarrio said he told Mr. Trump that he had saved his life by including him in a blanket grant of clemency for Jan. 6 defendants.`\
 https://nytimes.com/2025/05/04/us/politics/trump-tarrio-proud-boys-pardon.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/04/world/africa/sudan-war-port-sudan.html
 **Sybil Shainwald, Lawyer Who Fought for Women’s Health, Dies at 96**\
 `After taking part in a landmark case against the manufacturers of the synthetic hormone DES, she represented many other victims of harmful drugs and devices.`\
 https://nytimes.com/2025/05/04/us/sybil-shainwald-dead.html
-
-**Casper Ruud beats Jack Draper to win Madrid Open, his first ATP 1,000 title**\
-`Ruud absorbed Draper's anti-clay tennis and turned the final into a three-set battle of red dirt physicality to take the title.`\
-https://nytimes.com/athletic/6333078/2025/05/04/casper-ruud-madrid-open-jack-draper-result-analysis/
 
