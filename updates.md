@@ -1,3 +1,7 @@
+**'It's pretty shocking': Avalanche's torturous collapse leaves plenty of questions**\
+`"I don't know what we're going to do," Nathan MacKinnon said after Colorado's 4-2 Game 7 collapse to the rival Dallas Stars.`\
+https://nytimes.com/athletic/6332185/2025/05/04/avalanche-stars-nhl-playoffs-game-7/
+
 **'Be a star': Cubs letting Pete Crow-Armstrong be himself as he blossoms into stardom**\
 `The white-hot talent slugged a big three-run homer that gave the Cubs a 4-1 lead in their eventual 6-2 win over the Brewers.`\
 https://nytimes.com/athletic/6332114/2025/05/04/cubs-win-brewers-pete-crow-armstrong-star/
