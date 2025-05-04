@@ -1,3 +1,11 @@
+**2025 NHL playoff preview: Vegas Golden Knights vs. Edmonton Oilers**\
+`A battle between two teams equally equipped to win it all, this series is about as tight as it gets.`\
+https://nytimes.com/athletic/6330427/2025/05/04/nhl-playoffs-oilers-golden-knights-preview/
+
+**Lego built full-size F1 cars for the Miami GP drivers’ parade: Here's how they did it**\
+`Each of the 10 teams has a full-scale F1 car that has been faithfully reconstructed with over 400,000 Lego bricks`\
+https://nytimes.com/athletic/6331840/2025/05/04/f1-miami-gp-lego-car-driver-parade/
+
 **Ravens' undrafted free agent class heavy on linemen and defensive backs**\
 `The undrafted free agent process is something Baltimore takes extremely seriously and puts much time and effort into. `\
 https://nytimes.com/athletic/6324511/2025/05/04/ravens-2025-undrafted-free-agents/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6332852/2025/05/04/brighton-newcastle-penalty-hurze
 **How Warren Buffett Changed the Way Investors Think of Investing**\
 `The idea of “value investing” had long existed. But no one did it as successfully or for as long as he did.`\
 https://nytimes.com/2025/05/04/business/dealbook/warren-buffett-investing.html
-
-**Blue Jackets Sunday Gathering: Surgery forces Mathieu Olivier to turn down Team USA invite**\
-`Olivier was recognized for his good season with an invitation to Worlds but needed surgery to repair a stretched tendon above his knuckle.`\
-https://nytimes.com/athletic/6330910/2025/05/04/blue-jackets-mathieu-olivier-team-usa-hockey/
-
-**Daryl Dike is back from injury hell: 'I can still achieve my USMNT World Cup dreams'**\
-`The striker has had two years on the sidelines but scored on the last day of the season - he is looking to the future, not back`\
-https://nytimes.com/athletic/6332315/2025/05/04/daryl-dike-interview-usmnt-west-brom/
 
