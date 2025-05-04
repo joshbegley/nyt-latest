@@ -1,3 +1,7 @@
+**Up There in Years**\
+`We can get behind Eric Rollfing’s crossword puzzle.`\
+https://nytimes.com/2025/05/04/crosswords/daily-puzzle-2025-05-05.html
+
 **Proud Boys’ Ex-Leader Thanks Trump for Pardon at Mar-a-Lago Encounter**\
 `Enrique Tarrio said he told Mr. Trump that he had saved his life by including him in a blanket grant of clemency for Jan. 6 defendants.`\
 https://nytimes.com/2025/05/04/us/politics/trump-tarrio-proud-boys-pardon.html
