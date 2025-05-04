@@ -1,3 +1,7 @@
+**The Briefing: West Ham 1 Tottenham 1: Exactly what Spurs needed? Did Tel send a message?**\
+`Tottenham Hotspur played out a 1-1 draw against West Ham United on Sunday`\
+https://nytimes.com/athletic/6320281/2025/05/04/west-ham-tottenham-result-report-analysis/
+
 **Mirtle: Can Maple Leafs beat Panthers? 5 keys to victory for Toronto**\
 `As the underdogs versus Florida in Round 2, Toronto has to have a few things go its way to have a chance to advance in the playoffs.
 `\
