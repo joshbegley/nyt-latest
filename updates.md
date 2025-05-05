@@ -1,3 +1,15 @@
+**Israelis Protest Government’s Plan to Intensify Campaign in Gaza**\
+`Israeli spokesmen said the expanded ground operation would include “a wide attack, involving moving most of Gaza’s population,” as well as the “holding of territories” by Israeli soldiers for an indefinite period of time.`\
+https://nytimes.com/video/world/middleeast/100000010148295/israel-gaza-campaign-hamas.html
+
+**For Trump, the Constitution Is a Hindrance as He Pushes for Deportations**\
+`President Trump and his allies have portrayed their efforts to bypass due process as necessary for national security.`\
+https://nytimes.com/2025/05/05/us/politics/trump-constitution-immigration-hearings.html
+
+**Red Wings draft targets: Who could Detroit pick at No. 13?**\
+`The Red Wings' draft slot is now set, and their needs are clear. So, who could they take at No. 13?`\
+https://nytimes.com/athletic/6327267/2025/05/05/red-wings-nhl-draft-13th-pick/
+
 **What will the Senators’ offseason look like? Here is Steve Staios’ to-do list**\
 `The Athletic breaks down some of the high-profile items on the general manager's to-do list this summer.`\
 https://nytimes.com/athletic/6332030/2025/05/05/senators-steve-staios-offseason/
