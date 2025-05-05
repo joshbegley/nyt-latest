@@ -1,6 +1,18 @@
+**André Leon Talley is present at the Met Gala in spirit.**\
+`The larger-than-life former Vogue editor died in 2023 but served as inspiration for the Costume Institute show.`\
+https://nytimes.com/live/2025/05/05/style/met-gala-2025/andre-leon-talley-met-gala
+
+**Yankees' Gerrit Cole dreams of pitching again after Tommy John surgery: 'I miss playing'**\
+`Cole was once lauded for his durability. He's now been affected by elbow injuries in back-to-back seasons.`\
+https://nytimes.com/athletic/6335366/2025/05/05/yankees-gerrit-cole-tommy-john-recovery-return/
+
+**The Canadiens took a big step — and they're still in the same place**\
+`Jeff Gorton and Kent Hughes are happy with how competitive the Canadiens were this season, but they remain in a team-building phase. `\
+https://nytimes.com/athletic/6335646/2025/05/05/canadiens-nhl-offseason-free-agency/
+
 **Trump Administration Disqualifies Harvard From Future Research Grants**\
 `A letter from Linda McMahon, the education secretary, said the college leaders must demonstrate more responsible management of the university before receiving additional federal grants.`\
-https://nytimes.com/live/2025/05/05/us/trump-news/trump-harvard-research-grants
+https://nytimes.com/2025/05/05/us/politics/trump-harvard-research-grants.html
 
 **Branden Jacobs-Jenkins on Winning a Pulitzer for ‘Purpose’**\
 `“It’s the most surreal day ever,” the playwright said as he learned the news while getting ready to attend his first Met Gala.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/05/movies/tariffs-trump-voight.html
 **What We Know About Trump’s $1.5 Million-a-Head Fund-raising Dinner**\
 `The dinner is the latest high-dollar fund-raiser that MAGA Inc. has held in recent weeks.`\
 https://nytimes.com/2025/05/05/us/politics/trump-maga-inc-super-pac-dinner.html
-
-**Audra McDonald Caps a History-Making Week With a Gasp-Inducing Gown**\
-`The Broadway star, who received a record 11th Tony nomination on Thursday, wore a Harbison look inspired by the 1991 film “Daughters of the Dust.”`\
-https://nytimes.com/2025/05/05/style/audra-mcdonald-met-gala-look-daughters-of-the-dust.html
-
-**Israel Announced Plans for an ‘Intensive’ Escalation in Gaza**\
-`Also, the trial of Sean Combs began. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2025/05/05/briefing/israel-gaza-plan-trump-migrants-self-deport.html
-
-**Ravens release kicker Justin Tucker after 13 seasons**\
-`Baltimore GM Eric DeCosta and coach John Harbaugh referred to the release as a "football decision."`\
-https://nytimes.com/athletic/6335452/2025/05/05/baltimore-ravens-justin-tucker-release/
 
