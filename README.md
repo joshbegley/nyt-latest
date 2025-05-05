@@ -1,3 +1,7 @@
+**Fantasy Premier League: What we learned from FPL Gameweek 34 so far – Haaland close but champions a risk**\
+`Abdul Rehman reviews the main talking points from Gameweek 35 so far in FPL, including why we should keep faith in Brentford's forwards `\
+https://nytimes.com/athletic/6333184/2025/05/05/fantasy-premier-league-gameweek-34-haaland-salah-brentford/
+
 **Europe Makes a Pitch to Attract Scientists Shunned by the U.S.**\
 `The continent’s leaders are hoping to benefit as the Trump administration cuts support for research and threatens universities such as Harvard and Columbia with the freezing of federal funds.`\
 https://nytimes.com/2025/05/05/world/europe/eu-us-scientists-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6332897/2025/05/05/nhl-playoffs-maple-leafs-panther
 **What’s at stake in NHL Draft Lottery? Why Schaefer is No. 1 prospect, more**\
 `Behind Schaefer is a well-defined group of forwards with NHL tools and legitimate top-six potential.`\
 https://nytimes.com/athletic/6290324/2025/05/05/nhl-draft-lottery-2025-odds-rules-explained/
-
-**Pat Bryant and the 'frickin' clutch' plays that led him to the Broncos in the NFL Draft**\
-`The Illinois wide receiver selected by the Broncos in the third round had three game-winning TD catches during record-setting senior season.`\
-https://nytimes.com/athletic/6329286/2025/05/05/pat-bryant-broncos-receiver-clutch/
 
