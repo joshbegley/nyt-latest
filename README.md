@@ -1,3 +1,7 @@
+**Scoop City: Upcoming schedule for Shedeur Sanders, Aaron Rodgers**\
+`A look at what's next, plus Week 1 rookie starters for the AFC's top teams and your 2025 projection for Shedeur Sanders.`\
+https://nytimes.com/athletic/6335296/2025/05/05/nfl-offseason-schedule-for-shedeur-sanders-aaron-rodgers-scoop-city/
+
 **Did Cuomo’s ‘Message for Voters’ Violate Campaign Finance Rules?**\
 `Andrew M. Cuomo may have violated New York City  rules by using his campaign website to instruct a friendly super PAC how to help his mayoral bid.`\
 https://nytimes.com/2025/05/05/nyregion/cuomo-super-pac-violation.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/05/05/us/may-crypto-ai-maga-inc-invitation.
 **Trump Crypto Deals Provoke Senate Backlash and Calls for Investigation**\
 `Some Democrats who had supported legislation for so-called stablecoins are now demanding tougher language to prevent fraud and money laundering.`\
 https://nytimes.com/2025/05/05/us/politics/trump-crypto-senate-investigation.html
-
-**The New York Times Wins 4 Pulitzer Prizes**\
-`The New Yorker won three Pulitzers, and ProPublica was given the public service award for its coverage of the deadly consequences of state abortion bans across the country.`\
-https://nytimes.com/2025/05/05/business/media/pulitzer-prize-winners.html
 
