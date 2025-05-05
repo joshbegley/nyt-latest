@@ -1,3 +1,11 @@
+**Pakistan’s Most Powerful Man Steps Out of the Shadows to Confront India**\
+`The army chief, Gen. Syed Asim Munir, who usually works behind the scenes, has been shaping Pakistan’s tone in the crisis over Kashmir with his own tough talk.`\
+https://nytimes.com/2025/05/05/world/asia/pakistan-india-asim-munir.html
+
+**Man United might have secured Champions League football but major challenges lie ahead**\
+`It was not pretty, but United got the job done, qualifying for the Champions League for the second time in their seven-year existence`\
+https://nytimes.com/athletic/6332766/2025/05/05/manchester-united-manchester-city-womens-champions-league-qualification/
+
 **The curious case of Ruud van Nistelrooy as Leicester City manager**\
 `Van Nistelrooy's future is unclear at Leicester City - only one man will truly know what will happen, owner and chairman Khun Top`\
 https://nytimes.com/athletic/6331599/2025/05/05/ruud-van-nistelrooy-leicester-manager-future/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6332798/2025/05/05/mats-wieffer-rightback-brighton/
 **Cole Palmer hit the post. In that moment, Chelsea fans knew he was back**\
 `The playmaker’s penalty was significant, but it was his bit of magic on the touchline that had people off their seats and believing again`\
 https://nytimes.com/athletic/6332909/2025/05/05/cole-palmer-chelsea-liverpool-analysis/
-
-**Endo deserved the guard of honour (including by two players Liverpool wanted ahead of him)**\
-`The Japanese midfielder has embraced being regarded as one of Slot's 'finishers'`\
-https://nytimes.com/athletic/6332610/2025/05/05/wataru-endo-guard-of-honour-liverpool/
-
-**Newcastle fought back to draw at a top-10 team. That is more significant than you might think**\
-`It had been exactly five months since Newcastle's last league draw. For a team that either wins or loses, a point at Brighton had real value`\
-https://nytimes.com/athletic/6332308/2025/05/05/newcastle-brighton-draw-eddie-howe/
 
