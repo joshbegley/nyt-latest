@@ -1,3 +1,7 @@
+**Commanders mailbag: Are the O-line, CB upgrades enough to catch the Eagles?**\
+`Plus, is there a veteran edge rusher Washington should consider signing after not selecting one in the draft?`\
+https://nytimes.com/athletic/6325111/2025/05/05/commanders-mailbag-nfl-draft-eagles/
+
 **The New York Times International Edition in Print for Tuesday, May 6, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/05/05/todays-new-york-times-international-edition
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6333362/2025/05/05/chiefs-rookie-minicamp-brashard-
 **Panthers mailbag: Cap situation, Derrick Brown's recovery and WR pecking order**\
 `Derrick Brown discussed his recovery and when he expects to return, and does Hunter Renfrow figure into the team's plans at receiver?`\
 https://nytimes.com/athletic/6332716/2025/05/05/carolina-panthers-mailbag-salary-cap-tetaioroa-mcmillan/
-
-**A Trump Family Push for Profit on Three Continents Breaks Historical Norms**\
-`The president’s older sons, Donald Trump Jr. and Eric Trump, spent the past two weeks traveling the world and announcing deals, many of which will financially benefit their father.`\
-https://nytimes.com/2025/05/05/us/politics/eric-donald-jr-trump-family-deals.html
 

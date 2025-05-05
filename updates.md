@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Tuesday, May 6, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/05/05/todays-new-york-times-international-edition
+
 **Inside Alexander-Arnold's Liverpool exit: Deal frustration, what he told Slot and why now?**\
 `The right-back's departure from Anfield was a long time coming — this is how and why it happened`\
 https://nytimes.com/athletic/6326837/2025/05/05/trent-alexander-arnold-liverpool-exit-inside-story/
