@@ -1,3 +1,11 @@
+**Former Judges Condemn Trump Administration’s Arrest of Wisconsin Judge**\
+`Judge Hannah C. Dugan was accused of directing an undocumented immigrant to leave through a side door while federal agents waited for him.`\
+https://nytimes.com/2025/05/05/us/judges-trump-arrest-wisconsin-judge.html
+
+**Tuesday Briefing: Israel’s Plan for Gaza**\
+`Plus, a politically charged Met Gala.`\
+https://nytimes.com/2025/05/05/briefing/israel-gaza-siege-trump-migrants-cash-pope-vatica-abuse.html
+
 **Senators sign defenceman Nikolas Matinpalo to 2-year extesion**\
 `The Senators have signed restricted free agent defenceman Nikolas Matinpalo to a two-year, one-way contract extension worth $1.75 million.`\
 https://nytimes.com/athletic/6335405/2025/05/05/senators-nikolas-matinpalo-signing/
