@@ -1,4 +1,12 @@
-**Young Rockets learn tough lesson about playoff mentality, now face intriguing offseaon**\
+**Rwanda in Early Talks With U.S. to Take Expelled Migrants**\
+`Discussions with the Central African country come as the Trump administration looks for more countries willing to accept deportees as part of a sweeping crackdown.`\
+https://nytimes.com/2025/05/05/world/africa/rwanda-trump-deportees.html
+
+**No Corrections: May 5, 2025**\
+`No corrections appeared in print on Monday, May 5, 2025.`\
+https://nytimes.com/2025/05/05/pageoneplus/no-corrections-may-5-2025.html
+
+**Young Rockets learn tough lesson about playoff mentality, now face intriguing offseason**\
 `The Warriors' posteason experience won the day in Game 7, but Houston has nothing to be ashamed of from a breakthrough season.`\
 https://nytimes.com/athletic/6333971/2025/05/05/rockets-playoffs-game-7-warriors-future/
 
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/05/05/us/trump-news
 **Trent Alexander-Arnold and the end of a Liverpool fairy tale**\
 `The Scouser who won it all at Anfield is breaking his bond with the club and city - leaving great memories and some pointed regrets`\
 https://nytimes.com/athletic/6035527/2025/05/05/trent-alexander-arnold-liverpool/
-
-**Sabres' draft lottery odds and prospects to watch for Buffalo's first-round pick**\
-`For the 14th straight year, Sabres fans are stuck worrying about ping-pong balls while the NHL playoffs roll along.`\
-https://nytimes.com/athletic/6333650/2025/05/05/nhl-draft-lottery-2025-buffalo-sabres/
-
-**Cardinals takeaways: 3 encouraging performances in big series win over Mets**\
-`Michael McGreevy's relief outing and Victor Scott II's stellar catch highlighted a doubleheader sweep.`\
-https://nytimes.com/athletic/6332904/2025/05/05/cardinals-mets-victor-scott-michael-mcgreevy/
 
