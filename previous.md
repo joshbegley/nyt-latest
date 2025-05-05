@@ -1,3 +1,11 @@
+**Scoop City: Upcoming schedule for Shedeur Sanders, Aaron Rodgers**\
+`A look at what's next, plus Week 1 rookie starters for the AFC's top teams and your 2025 projection for Shedeur Sanders.`\
+https://nytimes.com/athletic/6335296/2025/05/05/nfl-offseason-schedule-for-shedeur-sanders-aaron-rodgers-scoop-city/
+
+**Did Cuomo’s ‘Message for Voters’ Violate Campaign Finance Rules?**\
+`Andrew M. Cuomo may have violated New York City  rules by using his campaign website to instruct a friendly super PAC how to help his mayoral bid.`\
+https://nytimes.com/2025/05/05/nyregion/cuomo-super-pac-violation.html
+
 **The woman who wrote the book on Black dandyism offers a primer in 7 objects.**\
 `In the basement of the Met, Prof. Monica Miller led us on a tour of dandy fashion, from André to zoot suits.`\
 https://nytimes.com/live/2025/05/05/style/met-gala-2025/the-woman-who-wrote-the-book-on-black-dandyism-offers-a-primer-in-7-objects
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/05/05/us/may-crypto-ai-maga-inc-invitation.
 **Trump Crypto Deals Provoke Senate Backlash and Calls for Investigation**\
 `Some Democrats who had supported legislation for so-called stablecoins are now demanding tougher language to prevent fraud and money laundering.`\
 https://nytimes.com/2025/05/05/us/politics/trump-crypto-senate-investigation.html
-
-**The New York Times Wins 4 Pulitzer Prizes**\
-`The New Yorker won three Pulitzers, and ProPublica was given the public service award for its coverage of the deadly consequences of state abortion bans across the country.`\
-https://nytimes.com/2025/05/05/business/media/pulitzer-prize-winners.html
-
-**Maple Leafs' Mitch Marner on becoming a dad mid-playoffs: 'I'm a lucky guy'**\
-`Dad strength? Teammates offer advice and lessons on challenge of balancing a newborn and NHL playoff hockey.`\
-https://nytimes.com/athletic/6335099/2025/05/05/maple-leafs-mitch-marner-dad-nhl-playoffs/
 
