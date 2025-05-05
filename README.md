@@ -1,4 +1,8 @@
-**Barca vs Inter champions league semi-final odds: Can Inzaghi's men silence Yamal?**\
+**Browns LB Devin Bush arrested, charged with assault and harassment**\
+`Bush, a 2019 first-round pick of the Steelers, started 10 games for Cleveland last season. `\
+https://nytimes.com/athletic/6334575/2025/05/05/browns-devin-bush-arrested-assault-harassment/
+
+**Inter vs Barca champions league semi-final odds: Can Inzaghi's men silence Yamal?**\
 `Brett Koremenos explores the best bets around Barcelona’s Champions League semi-final second-leg clash against Internazionale. 
 `\
 https://nytimes.com/athletic/6334305/2025/05/05/champions-league-semi-final-barcelona-inter-betting-preview/
@@ -34,8 +38,4 @@ https://nytimes.com/interactive/2025/05/05/books/review/mark-twain-quiz.html
 **The Bounce: Gregg Popovich, the NBA's GOAT coach, has retired. His impact will remain unmatched**\
 `Gregg Popovich is an incredibly important figure, and he’ll be missed on the sidelines. Zach Harper explains why he's the best coach ever`\
 https://nytimes.com/athletic/6334520/2025/05/05/gregg-popovich-spurs-coach-retire-nba-playoffs-the-bounce/
-
-**Listen: Are Manchester City now favourites to finish runners-up this season?**\
-`The Totally Football Show discusses whether Man City are now favourites to finish runners-up this season`\
-https://nytimes.com/athletic/6334176/2025/05/05/listen-manchester-city-second-totally-football-show/
 
