@@ -1,3 +1,7 @@
+**Word of the Day: serendipitous**\
+`This word has appeared in 63 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/05/05/learning/word-of-the-day-serendipitous.html
+
 **The New York Times in Print for Monday, May 5, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/05/todays-new-york-times
