@@ -1,3 +1,15 @@
+**Young Rockets learn tough lesson about playoff mentality, now face intriguing offseaon**\
+`The Warriors' posteason experience won the day in Game 7, but Houston has nothing to be ashamed of from a breakthrough season.`\
+https://nytimes.com/athletic/6333971/2025/05/05/rockets-playoffs-game-7-warriors-future/
+
+**College baseball week in review: Arkansas back on track with dominating sweep over Texas**\
+`Could we see postseason baseball in Coral Gables, Fla.? Will we have 14 SEC teams in the NCAA Tournament?`\
+https://nytimes.com/athletic/6333707/2025/05/05/college-baseball-arkansas-texas-clemson-florida-state/
+
+**Thompson: In Warriors' Game 7 win, Buddy Hield delivered the emphatic answer they needed**\
+`When the Warriors needed it most, Buddy Hield delivered a career night to defeat Houston and send Golden State into the second round.`\
+https://nytimes.com/athletic/6333977/2025/05/05/buddy-hield-warriors-rockets-game-7/
+
 **Minnesota nice will go out the window when Jimmy Butler, Draymond Green come to town**\
 `Wolves fans still resent the way Butler left the franchise and how Green has trash-talked them. Expect vitriol when this series tips off.`\
 https://nytimes.com/athletic/6333760/2025/05/05/jimmy-butler-draymond-green-timberwolves-warriors-playoffs/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6333650/2025/05/05/nhl-draft-lottery-2025-buffalo-s
 **Cardinals takeaways: 3 encouraging performances in big series win over Mets**\
 `Michael McGreevy's relief outing and Victor Scott II's stellar catch highlighted a doubleheader sweep.`\
 https://nytimes.com/athletic/6332904/2025/05/05/cardinals-mets-victor-scott-michael-mcgreevy/
-
-**How 2023 playoff loss to Vegas made Oilers 'battle-tested' Stanley Cup contender**\
-`The last time Edmonton faced Vegas in the playoffs, the Oilers were a very different team. That's by design.`\
-https://nytimes.com/athletic/6333486/2025/05/05/oilers-nhl-playoffs-golden-knights-round-2/
-
-**NHL Draft Lottery power rankings: Who needs it, who deserves it, who might trade it?**\
-`With eight teams still in the playoffs, it's time for the bottom half of the league to turn their attention to the bingo balls.`\
-https://nytimes.com/athletic/6333197/2025/05/05/nhl-draft-lottery-power-rankings-2025/
-
-**The Athletic FC: Why Alexander-Arnold is leaving Liverpool, Kane wins a trophy, and Vardy steps in for an injured referee**\
-`Today in TAFC: Inside Alexander-Arnold's departure from Anfield, Kane wins the Bundesliga with Bayern Munich and Vardy's comedy whistle `\
-https://nytimes.com/athletic/6334228/2025/05/05/athletic-fc-trent-alexander-arnold-harry-kane-jamie-vardy/
 
