@@ -1,3 +1,15 @@
+**Crosby, MacKinnon join Team Canada roster for 2025 World Championship**\
+`Two of the NHL's biggest stars from Nova Scotia will team up again for Team Canada this month.`\
+https://nytimes.com/athletic/6333587/2025/05/04/sidney-crosby-nathan-mackinnon-team-canada-world-championship/
+
+**Trump Says He Will Put 100% Tariff on Movies Made Outside U.S.**\
+`Declaring foreign film production a national security threat, the president said he had asked his top trade official to start the process of imposing a tax on Hollywood.`\
+https://nytimes.com/2025/05/04/business/trump-tariffs-movies.html
+
+**‘The Last of Us’ Season 2, Episode 4: Seattle Slew**\
+`This week brings an expedition full of harrowing action and emotional revelations.`\
+https://nytimes.com/2025/05/04/arts/television/the-last-of-us-season-2-episode-4-recap.html
+
 **Caitlin Clark's return to Iowa was a celebration for Hawkeyes fans, a boon for WNBA**\
 `WNBA teams, like the Fever, are playing exhibition games at stars' alma maters, a sign of tightening links between college and the pros.`\
 https://nytimes.com/athletic/6333651/2025/05/04/caitlin-clark-iowa-indiana-fever-wnba/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6333389/2025/05/04/nba-playoffs-scores-takeaways-ca
 **Lance McCullers Jr.'s return to mound shows Astros will need to be patient**\
 `The right-hander's first outing after a 915-day absence offers Houston little clarity on what to expect moving forward.`\
 https://nytimes.com/athletic/6333497/2025/05/04/lance-mccullers-jr-back-with-astros/
-
-**Yankees promote top prospect George Lombard Jr. to Double A**\
-`The Yankees are fast-tracking the shortstop. He will be the youngest player in the league when he debuts for Double-A Somerset.`\
-https://nytimes.com/athletic/6333468/2025/05/04/yankees-prospect-george-lombard-promoted/
-
-**Rom-Com**\
-`In the movies, it always works out. In real life? Not so much.`\
-https://nytimes.com/2025/05/04/podcasts/rom-com-this-american-life-nyt-audio.html
-
-**Romanian Nationalist Wins First Round of Presidential Voting**\
-`George Simion bucked a recent trend of voters around the world punishing candidates seen as friendly to President Trump.`\
-https://nytimes.com/2025/05/04/world/europe/romania-election-george-simion.html
 
