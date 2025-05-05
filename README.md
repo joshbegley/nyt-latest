@@ -1,3 +1,7 @@
+**Red Wings draft targets: Who could Detroit pick at No. 13?**\
+`The Red Wings' draft slot is now set, and their needs are clear. So, who could they take at No. 13?`\
+https://nytimes.com/athletic/6327267/2025/05/05/red-wings-nhl-draft-13th-pick/
+
 **What will the Senators’ offseason look like? Here is Steve Staios’ to-do list**\
 `The Athletic breaks down some of the high-profile items on the general manager's to-do list this summer.`\
 https://nytimes.com/athletic/6332030/2025/05/05/senators-steve-staios-offseason/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6335554/2025/05/05/kenny-atkinson-nba-coach-of-the-
 **Shah Rukh Khan, and His Jeweled Tiger’s Head, Make Their Met Debut**\
 `The global superstar is going “a little bit rapper” for his first gala appearance. He may never come back, but he’s here now.`\
 https://nytimes.com/2025/05/05/style/shah-rukh-khan-met-gala-2025-sabyasachi-mukherjee.html
-
-**André Leon Talley is present at the Met Gala in spirit.**\
-`The larger-than-life former Vogue editor died in 2023 but served as inspiration for the Costume Institute show.`\
-https://nytimes.com/live/2025/05/05/style/met-gala-2025-live-updates/andre-leon-talley-met-gala
 

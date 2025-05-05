@@ -1,3 +1,15 @@
+**What will the Senators’ offseason look like? Here is Steve Staios’ to-do list**\
+`The Athletic breaks down some of the high-profile items on the general manager's to-do list this summer.`\
+https://nytimes.com/athletic/6332030/2025/05/05/senators-steve-staios-offseason/
+
+**New York Islanders win NHL Draft Lottery after jumping up 9 spots**\
+`The Islanders had a 3.5 percent chance to win the lottery — then did.`\
+https://nytimes.com/athletic/6334836/2025/05/05/islanders-nhl-draft-lottery-results/
+
+**Signal Clone Used by Waltz Suspends Service After ‘Security Incident’**\
+`The clone, TeleMessage, was the subject of a reported hack in which the contents of some direct messages and group chats were stolen.`\
+https://nytimes.com/2025/05/05/us/politics/signal-clone-telemessage-waltz-security-breach.html
+
 **Hegseth Orders 20 Percent Cut in Four-Star Officers**\
 `Defense Secretary Pete Hegseth has already fired a raft of military leaders, many of them women and people of color, including the chairman of the Joint Chiefs of Staff.`\
 https://nytimes.com/2025/05/05/us/politics/pete-hegseth-military-cuts.html
