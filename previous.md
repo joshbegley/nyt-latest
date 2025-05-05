@@ -1,3 +1,7 @@
+**Tramell Tillman’s Arrival at the Met Was Years in the Making**\
+`The actor, who plays the cheerfully menacing Mr. Milchick in “Severance,” wore a Thom Browne ensemble partly inspired by a play he saw in Chicago.`\
+https://nytimes.com/2025/05/05/style/tramell-tillman-met-gala-look-thom-browne.html
+
 **Kenny Atkinson named NBA Coach of the Year, beats J.B. Bickerstaff**\
 `Aside from Bickerstaff, Atkinson also beat out Houston Rockets coach Ime Udoka for the honor.`\
 https://nytimes.com/athletic/6335554/2025/05/05/kenny-atkinson-nba-coach-of-the-year-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/05/style/new-york-liberty-met-gala-2025.html
 **What I'm seeing from the Capitals ahead of series vs. Hurricanes**\
 `The Capitals are well-rested heading into their second-round series against the Carolina Hurricanes.`\
 https://nytimes.com/athletic/6335478/2025/05/05/capitals-hurricanes-game-1-nhl-playoffs/
-
-**Padres' Jackson Merrill expected to come off injured list Tuesday**\
-`Merrill's expected return would come as a sizable boost for a Padres team that more than survived a recent wave of injuries.`\
-https://nytimes.com/athletic/6335153/2025/05/05/padres-jackson-merrill-expected-to-come-off-injured-list/
 

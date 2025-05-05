@@ -1,3 +1,7 @@
+**Swiss Bank Pays $510 Million Fine for Helping Clients Evade Taxes**\
+`Fallen banking giant Credit Suisse, now a part of UBS, admitted to hiding billions of dollars from the I.R.S.`\
+https://nytimes.com/2025/05/05/business/credit-suisse-fine-irs.html
+
 **Tramell Tillman’s Arrival at the Met Was Years in the Making**\
 `The actor, who plays the cheerfully menacing Mr. Milchick in “Severance,” wore a Thom Browne ensemble partly inspired by a play he saw in Chicago.`\
 https://nytimes.com/2025/05/05/style/tramell-tillman-met-gala-look-thom-browne.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/05/theater/branden-jacobs-jenkins-pulitzer-purpose.h
 **The Latest Stop on the New York Liberty’s Victory Tour? The Met Gala.**\
 `The W.N.B.A. champions Jonquel Jones, Sabrina Ionescu and Breanna Stewart worked with Sergio Hudson to create “fashion-drama-diva moments” with coordinating ensembles.`\
 https://nytimes.com/2025/05/05/style/new-york-liberty-met-gala-2025.html
-
-**What I'm seeing from the Capitals ahead of series vs. Hurricanes**\
-`The Capitals are well-rested heading into their second-round series against the Carolina Hurricanes.`\
-https://nytimes.com/athletic/6335478/2025/05/05/capitals-hurricanes-game-1-nhl-playoffs/
 

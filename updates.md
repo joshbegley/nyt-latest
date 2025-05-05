@@ -1,3 +1,7 @@
+**Tramell Tillman’s Arrival at the Met Was Years in the Making**\
+`The actor, who plays the cheerfully menacing Mr. Milchick in “Severance,” wore a Thom Browne ensemble partly inspired by a play he saw in Chicago.`\
+https://nytimes.com/2025/05/05/style/tramell-tillman-met-gala-look-thom-browne.html
+
 **Kenny Atkinson named NBA Coach of the Year, beats J.B. Bickerstaff**\
 `Aside from Bickerstaff, Atkinson also beat out Houston Rockets coach Ime Udoka for the honor.`\
 https://nytimes.com/athletic/6335554/2025/05/05/kenny-atkinson-nba-coach-of-the-year-2025/
