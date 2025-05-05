@@ -1,3 +1,7 @@
+**Pulitzer Prizes: 2025 Winners List**\
+`Here is the full list of winners and finalists.`\
+https://nytimes.com/2025/05/05/business/media/pulitzer-prize-winners-list.html
+
 **Xintong becomes China's first snooker world champion**\
 `Zhao defeated veteran three-time champion Mark Williams in Monday's final at the Crucible Theatre in Sheffield.`\
 https://nytimes.com/athletic/6334197/2025/05/05/zhao-xintong-snooker-world-championship/

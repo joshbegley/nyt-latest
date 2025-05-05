@@ -1,3 +1,7 @@
+**Pulitzer Prizes: 2025 Winners List**\
+`Here is the full list of winners and finalists.`\
+https://nytimes.com/2025/05/05/business/media/pulitzer-prize-winners-list.html
+
 **Xintong becomes China's first snooker world champion**\
 `Zhao defeated veteran three-time champion Mark Williams in Monday's final at the Crucible Theatre in Sheffield.`\
 https://nytimes.com/athletic/6334197/2025/05/05/zhao-xintong-snooker-world-championship/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6335099/2025/05/05/maple-leafs-mitch-marner-dad-nhl
 **The first Monday in May is here. This is what we’ll be watching for.**\
 `The party is always a sight to behold, but given its theme, this year’s celebration is going to be more closely watched than usual.`\
 https://nytimes.com/live/2025/05/05/style/met-gala-2025/the-first-monday-in-may-is-here-this-is-what-well-be-watching-for
-
-**Live Updates: The Met Prepares to Welcome Stars for Its Most Closely Watched Gala in Years**\
-`The party, which is masterminded by Anna Wintour and serves to inaugurate its new exhibition “Superfine,” has already raised a record $31 million for the museum’s Costume Institute.`\
-https://nytimes.com/live/2025/05/05/style/met-gala-2025
 
