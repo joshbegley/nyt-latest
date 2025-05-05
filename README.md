@@ -1,3 +1,7 @@
+**L.A. Kings GM Rob Blake will not return in 2025-26**\
+`Blake had been in his roles since April 2017, but the Kings did not win a playoff round during that time.`\
+https://nytimes.com/athletic/6330730/2025/05/05/la-kings-gm-rob-blake/
+
 **U.N. Court Drops Sudan’s Genocide Case Against U.A.E.**\
 `The International Court of Justice said it lacked jurisdiction after Sudan accused the United Arab Emirates of fueling genocide in the African country’s civil war.`\
 https://nytimes.com/2025/05/05/world/middleeast/un-court-sudan-genocide-uae.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6332826/2025/05/05/oilers-mcdavid-draisaitl-nhl-pla
 **Buy American? No Thanks, Europe Says, as Tariff Backlash Grows.**\
 `A shifting perception of the United States amid President Trump’s trade war is prompting Europeans to pivot decisively away from U.S. goods and services.`\
 https://nytimes.com/2025/05/05/business/tariffs-europe-boycott-american-goods.html
-
-**Pacers' balanced Game 1 effort is proof they should not be overlooked**\
-`While the series against Cleveland is far from over, Indiana’s win should put the league on notice.`\
-https://nytimes.com/athletic/6334255/2025/05/05/pacers-cavaliers-nba-playoffs-game-1-balance/
 

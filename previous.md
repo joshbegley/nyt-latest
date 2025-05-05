@@ -1,3 +1,7 @@
+**U.N. Court Drops Sudan’s Genocide Case Against U.A.E.**\
+`The International Court of Justice said it lacked jurisdiction after Sudan accused the United Arab Emirates of fueling genocide in the African country’s civil war.`\
+https://nytimes.com/2025/05/05/world/middleeast/un-court-sudan-genocide-uae.html
+
 **NHL playoffs second-round winners, 2025 Stanley Cup champion and more predictions**\
 `The Athletic polled its staff on who would win each second-round series, plus the conference champions, Stanley Cup winner and Conn Smythe.`\
 https://nytimes.com/athletic/6330498/2025/05/05/nhl-playoffs-2025-predictions-stanley-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/05/business/tariffs-europe-boycott-american-goods.ht
 **Pacers' balanced Game 1 effort is proof they should not be overlooked**\
 `While the series against Cleveland is far from over, Indiana’s win should put the league on notice.`\
 https://nytimes.com/athletic/6334255/2025/05/05/pacers-cavaliers-nba-playoffs-game-1-balance/
-
-**UnitedHealth’s Move to End Cyberattack Loan Lifeline Upsets Medical Providers**\
-`The company lent roughly $9 billion to practices affected by a vast cyberattack on its payment systems last year. Medical practices are now suing the health care colossus, saying it is pressuring them to repay funds.`\
-https://nytimes.com/2025/05/05/health/unitedhealth-cyberattack-loans-lawsuits.html
 
