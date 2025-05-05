@@ -1,3 +1,11 @@
+**Canadiens end-of-season notebook: Suzuki’s Olympic dreams, perspective on Laine and more**\
+`Also in this final Canadiens notebook of the season, a look at the team's pending unrestricted free agents.`\
+https://nytimes.com/athletic/6333986/2025/05/05/canadiens-nick-suzuki-patrik-laine/
+
+**Why the Met Gala's dandyism exhibition found a modern muse in Lewis Hamilton**\
+`After Sunday's Miami Grand Prix, Lewis Hamilton flew to New York for fashion and art’s biggest night.`\
+https://nytimes.com/athletic/6333616/2025/05/05/lewis-hamilton-met-gala-2025/
+
 **The Athletic college baseball Top 25: Arkansas reclaims top spot, Miami enters rankings**\
 `The Razorbacks are still two games behind Texas in the SEC, but it's hard to ignore such an emphatic sweep — even if it was in Fayetteville.`\
 https://nytimes.com/athletic/6334394/2025/05/05/college-baseball-rankings-arkansas-texas-miami/

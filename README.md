@@ -1,4 +1,12 @@
-**Canadiens end-of-season notebook: Suzuki’s Olympic dreams, perspective on Laine and more**\
+**A Reporter Takes Pause at the Career Pause**\
+`Fed up with being overworked or unfulfilled, some young people are quitting their jobs to take “mini-retirements,” a trend that caught the eye of a Times journalist.`\
+https://nytimes.com/2025/05/05/insider/mini-retirement-trend.html
+
+**MrBeast’s Latest Challenge: Writing a Novel With James Patterson**\
+`Jimmy Donaldson, known to his social media fans as MrBeast, is teaming up with the mega-best-selling thriller author.`\
+https://nytimes.com/2025/05/05/books/mrbeast-james-patterson-novel.html
+
+**Nick Suzuki’s Olympic dreams, perspective on Patrik Laine, Arber Xhekaj's growth and more**\
 `Also in this final Canadiens notebook of the season, a look at the team's pending unrestricted free agents.`\
 https://nytimes.com/athletic/6333986/2025/05/05/canadiens-nick-suzuki-patrik-laine/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/05/style/met-gala-2025-fund-raising.html
 **Golden Knights prepare for 'heavyweight' Oilers, but will the animosity from 2023 return?**\
 `Vegas isn’t typically the team to initiate physicality and bad blood, but their coach believes they thrive in that type of play.`\
 https://nytimes.com/athletic/6332108/2025/05/05/golden-knights-oilers-playoffs-2025-2023/
-
-**Rwanda in Early Talks With U.S. to Take Expelled Migrants**\
-`Discussions with the Central African country come as the Trump administration looks for more countries willing to accept deportees as part of a sweeping crackdown.`\
-https://nytimes.com/2025/05/05/world/africa/rwanda-trump-deportees.html
-
-**No Corrections: May 5, 2025**\
-`No corrections appeared in print on Monday, May 5, 2025.`\
-https://nytimes.com/2025/05/05/pageoneplus/no-corrections-may-5-2025.html
 
