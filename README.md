@@ -1,8 +1,21 @@
+**Barca vs Inter champions league semi-final odds: Can Inzaghi's men silence Yamal?**\
+`Brett Koremenos explores the best bets around Barcelona’s Champions League semi-final second-leg clash against Internazionale. 
+`\
+https://nytimes.com/athletic/6334305/2025/05/05/champions-league-semi-final-barcelona-inter-betting-preview/
+
+**NBA Playoffs picks, odds for Knicks-Celtics, Nuggets-Thunder Game 1s**\
+`Two second-round series get started in the NBA Playoffs on Monday. The Celtics and Thunder are solidly favored at home.`\
+https://nytimes.com/athletic/6333803/2025/05/05/nba-playoffs-picks-odds-how-to-watch-knicks-celtics-nuggets-thunder/
+
+**Inter to make late Martinez call ahead of Barcelona Champions League tie**\
+`Martinez, 27, appeared to sustain a muscular injury immediately before half time in Wednesday's first leg.`\
+https://nytimes.com/athletic/6326034/2025/05/05/lautaro-martinez-injury-inter-barcelona/
+
 **Ancelotti, Real Madrid reach verbal agreement over exit**\
 `An official announcement confirming Ancelotti's exit is expected before the end of the league season.`\
 https://nytimes.com/athletic/6333137/2025/05/05/carlo-ancelotti-real-madrid-exit-agreement/
 
-**Jannik Sinner 'did not want to' accept WADA case resolution agreement in doping case**\
+**Jannik Sinner 'did not want to' accept WADA resolution agreement in doping case**\
 `The world No. 1 said that he would have been happy even if he had lost his ranking before the Italian Open, his first tennis event back.`\
 https://nytimes.com/athletic/6334287/2025/05/05/jannik-sinner-tennis-comeback-italian-open-doping-ban/
 
@@ -25,16 +38,4 @@ https://nytimes.com/athletic/6334520/2025/05/05/gregg-popovich-spurs-coach-retir
 **Listen: Are Manchester City now favourites to finish runners-up this season?**\
 `The Totally Football Show discusses whether Man City are now favourites to finish runners-up this season`\
 https://nytimes.com/athletic/6334176/2025/05/05/listen-manchester-city-second-totally-football-show/
-
-**Conversations and insights about the moment.**\
-``\
-https://nytimes.com/live/2025/05/05/opinion/thepoint
-
-**A Reporter Takes Pause at the Career Pause**\
-`Fed up with being overworked or unfulfilled, some young people are quitting their jobs to take “mini-retirements,” a trend that caught the eye of a Times journalist.`\
-https://nytimes.com/2025/05/05/insider/mini-retirement-trend.html
-
-**MrBeast’s Latest Challenge: Writing a Novel With James Patterson**\
-`Jimmy Donaldson, known to his social media fans as MrBeast, is teaming up with the mega-best-selling thriller author.`\
-https://nytimes.com/2025/05/05/books/mrbeast-james-patterson-novel.html
 
