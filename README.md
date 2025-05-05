@@ -1,3 +1,7 @@
+**Judge Orders Elections Board to Certify Democrat’s Victory in Contested N.C. Race**\
+`The federal ruling on Monday was the most significant legal victory yet for Justice Allison Riggs, the Democratic incumbent in a State Supreme Court race.`\
+https://nytimes.com/2025/05/05/us/north-carolina-supreme-court-federal-ruling.html
+
 **Israelis Protest Government’s Plan to Intensify Campaign in Gaza**\
 `Israeli spokesmen said the expanded ground operation would include “a wide attack, involving moving most of Gaza’s population,” as well as the “holding of territories” by Israeli soldiers for an indefinite period of time.`\
 https://nytimes.com/video/world/middleeast/100000010148295/israel-gaza-campaign-hamas.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6332783/2025/05/05/calder-trophy-finalists-2025/
 **Swiss Bank Pays $510 Million Fine for Helping Clients Evade Taxes**\
 `The fallen banking giant Credit Suisse, now a part of UBS, admitted to hiding billions of dollars from the I.R.S.`\
 https://nytimes.com/2025/05/05/business/credit-suisse-fine-irs.html
-
-**Tramell Tillman’s Arrival at the Met Was Years in the Making**\
-`The actor, who plays the cheerfully menacing Mr. Milchick in “Severance,” wore a Thom Browne ensemble partly inspired by a play he saw in Chicago.`\
-https://nytimes.com/2025/05/05/style/tramell-tillman-met-gala-look-thom-browne.html
 
