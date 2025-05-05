@@ -1,3 +1,11 @@
+**Long Island Judge Expected to Be Named Interim U.S. Attorney in Brooklyn**\
+`President Trump, facing opposition from New York’s senior senator, will name Joseph Nocella Jr. to do the job on a temporary basis.`\
+https://nytimes.com/2025/05/05/nyregion/nocella-edny-us-attorney.html
+
+**Gluck: Joey Logano is back in the playoffs. Now he has a chance to do the funniest thing**\
+`Logano, NASCAR's most polarizing champion, won Sunday at Texas to secure a spot in the playoffs. And you know what that means.`\
+https://nytimes.com/athletic/6334804/2025/05/05/joey-logano-nascar-playoffs-texas/
+
 **Modern American Poetry: A Starter Pack**\
 `Our poetry editor recommends collections that revel in nature, family life, hard work and language.`\
 https://nytimes.com/interactive/2025/05/05/books/american-poetry.html
