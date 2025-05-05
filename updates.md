@@ -1,3 +1,8 @@
+**Inter vs Barca champions league semi-final odds: Can Inzaghi's men silence Yamal?**\
+`Brett Koremenos explores the best bets around Barcelona’s Champions League semi-final second-leg clash against Internazionale. 
+`\
+https://nytimes.com/athletic/6334305/2025/05/05/champions-league-semi-final-barcelona-inter-betting-preview/
+
 **The Windup: Atlanta's good problem**\
 `The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/6334694/2025/05/05/atlanta-braves-outfield-ronald-acuna-the-windup/

@@ -24,7 +24,7 @@ https://nytimes.com/athletic/6334694/2025/05/05/atlanta-braves-outfield-ronald-a
 
 **Bessent Pitches Skittish Investors to Bet on Trump’s Economic Plan**\
 `The Treasury secretary urged executives and entrepreneurs to look beyond the Trump administration’s trade agenda.`\
-https://nytimes.com/2025/05/05/business/bessent-pitches-skittish-investors-to-bet-on-trumps-economic-plan.html
+https://nytimes.com/2025/05/05/business/bessent-trump-trade-economy.html
 
 **All In on Asparagus**\
 `Load up on the grassy green stalks to add to lemony orzo, miso-slathered chicken and a nutty, crunchy rice bowl.`\
