@@ -1,3 +1,11 @@
+**Xintong becomes China's first snooker world champion**\
+`Zhao defeated veteran three-time champion Mark Williams in Monday's final at the Crucible Theatre in Sheffield.`\
+https://nytimes.com/athletic/6334197/2025/05/05/zhao-xintong-snooker-world-championship/
+
+**Tell Us: What Are Your Questions About the Trump Administration?**\
+`Share your questions with the On Politics newsletter.`\
+https://nytimes.com/2025/05/05/us/politics/politics-trump-questions.html
+
 **Amid Trump Cuts, Officials Resign From the National Endowment for the Arts**\
 `Senior officials announced their resignations after the Trump administration withdrew grants from arts organizations around the country.`\
 https://nytimes.com/2025/05/05/arts/national-endowment-for-the-arts-resignations.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/05/05/style/met-gala-2025/the-first-monday-in-may-
 **Live Updates: The Met Prepares to Welcome Stars for Its Most Closely Watched Gala in Years**\
 `The party, which is masterminded by Anna Wintour and serves to inaugurate its new exhibition “Superfine,” has already raised a record $31 million for the museum’s Costume Institute.`\
 https://nytimes.com/live/2025/05/05/style/met-gala-2025
-
-**‘I’m a Little Nervous Today’: Jury Selection in Sean Combs Trial Begins**\
-`Mr. Combs has pleaded not guilty to charges of racketeering and sex trafficking. Potential jurors were asked about their exposure to details of the accusations.`\
-https://nytimes.com/2025/05/05/arts/music/diddy-trial-sex-trafficking-jury-selection.html
-
-**The Trump Shooting**\
-`Doug Mills, who has covered presidents for four decades, took the now-famous photo of Donald Trump as a bullet streaked past at a campaign rally, and, rather than ducking himself, captured Trump’s reaction.`\
-https://nytimes.com/spotlight/the-trump-shooting
 
