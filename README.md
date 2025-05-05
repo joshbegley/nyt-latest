@@ -1,3 +1,7 @@
+**What Buffett’s Exit Means**\
+`Tens of thousands were on hand to see the billionaire announce his plans to retire. Their attention is already focusing on what is next for the conglomerate he built.`\
+https://nytimes.com/2025/05/05/business/dealbook/what-buffetts-exit-means.html
+
 **Why Warren Buffett’s Departure Matters**\
 `Yes, he made lots of money. But the closely watched investor amassed a following by being a conscience of capitalism, and his exit raises questions about what’s next for his company.`\
 https://nytimes.com/2025/05/05/business/dealbook/buffett-berkshire-hathaway-abel.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6334228/2025/05/05/athletic-fc-trent-alexander-arno
 **President Trump to announce Washington D.C. as 2027 NFL Draft host: Source**\
 `The announcement will come a week after D.C. Mayor Muriel Bowser announced that the Washington Commanders will return to the city.`\
 https://nytimes.com/athletic/6333892/2025/05/05/nfl-draft-2027-host-washington-president-trump/
-
-**Fantasy Premier League: What we learned from FPL Gameweek 34 so far – Haaland close but champions a risk**\
-`Abdul Rehman reviews the main talking points from Gameweek 35 so far in FPL, including why we should keep faith in Brentford's forwards `\
-https://nytimes.com/athletic/6333184/2025/05/05/fantasy-premier-league-gameweek-34-haaland-salah-brentford/
 
