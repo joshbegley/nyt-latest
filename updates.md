@@ -1,3 +1,7 @@
+**Yankees promote top prospect George Lombard Jr. to Double A**\
+`The Yankees are fast-tracking the shortstop. He will be the youngest player in the league when he debuts for Double-A Somerset.`\
+https://nytimes.com/athletic/6333468/2025/05/04/yankees-prospect-george-lombard-promoted/
+
 **Kirill Kaprizov discusses potential contract extension with Wild: 'It should be all good’**\
 `Kaprizov said Sunday he feels good about the future in Minnesota: “Everyone wants to win. Me, too. I like everything here.”`\
 https://nytimes.com/athletic/6332889/2025/05/04/kirill-kaprizov-wild-contract-extension-nhl/

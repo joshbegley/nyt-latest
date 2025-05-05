@@ -1,3 +1,7 @@
+**Yankees promote top prospect George Lombard Jr. to Double A**\
+`The Yankees are fast-tracking the shortstop. He will be the youngest player in the league when he debuts for Double-A Somerset.`\
+https://nytimes.com/athletic/6333468/2025/05/04/yankees-prospect-george-lombard-promoted/
+
 **Rom-Com**\
 `In the movies, it always works out. In real life? Not so much.`\
 https://nytimes.com/2025/05/04/podcasts/rom-com-this-american-life-nyt-audio.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6333311/2025/05/04/red-sox-takeaways-bullpen-offens
 **Miami Grand Prix: Submit your questions for our F1 mailbag**\
 `What questions do you have for our writers after the Miami Grand Prix?`\
 https://nytimes.com/athletic/6333425/2025/05/04/miami-grand-prix-f1-mailbag/
-
-**Order restored: Scheffler takes CJ Cup by 8 strokes for first win of 2025**\
-`Scheffler's tournament total of 253 ties the PGA Tour record for lowest 72-hole score.`\
-https://nytimes.com/athletic/6333378/2025/05/04/scottie-scheffler-first-win-of-2025-cj-cup/
 
