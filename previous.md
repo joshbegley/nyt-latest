@@ -1,3 +1,7 @@
+**Golden Knights prepare for 'heavyweight' Oilers, but will the animosity from 2023 return?**\
+`Vegas isn’t typically the team to initiate physicality and bad blood, but their coach believes they thrive in that type of play.`\
+https://nytimes.com/athletic/6332108/2025/05/05/golden-knights-oilers-playoffs-2025-2023/
+
 **Rwanda in Early Talks With U.S. to Take Expelled Migrants**\
 `Discussions with the Central African country come as the Trump administration looks for more countries willing to accept deportees as part of a sweeping crackdown.`\
 https://nytimes.com/2025/05/05/world/africa/rwanda-trump-deportees.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/05/business/dealbook/buffett-berkshire-hathaway-abel
 **Trump Administration Live Updates: President Pressed for U.S. Troops to Fight Cartels in Mexico**\
 ``\
 https://nytimes.com/live/2025/05/05/us/trump-news
-
-**Trent Alexander-Arnold and the end of a Liverpool fairy tale**\
-`The Scouser who won it all at Anfield is breaking his bond with the club and city - leaving great memories and some pointed regrets`\
-https://nytimes.com/athletic/6035527/2025/05/05/trent-alexander-arnold-liverpool/
 
