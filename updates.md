@@ -1,3 +1,7 @@
+**'It was all just a joke to them,' E.M. testifies in Hockey Canada trial**\
+`Woman at the heart of the Hockey Canada trial describes feeling "very vulnerable" on the night of the alleged sexual assault. `\
+https://nytimes.com/athletic/6334552/2025/05/05/hockey-canada-sexual-assault-trial-em-testifies/
+
 **The Broadway Play That Meets Our National Moment**\
 `A sense of purpose is central to surviving right now — and a great place to draw inspiration and insight is from these five Tony-nominated plays.`\
 https://nytimes.com/2025/05/05/opinion/why-these-five-broadway-shows-are-inspiring-for-america-right-now.html

@@ -1,3 +1,15 @@
+**Staple: What I'm hearing about Islanders' front-office search — and what it means for Patrick Roy's future**\
+`After 13 days, it appears that the Isles' ownership group has targeted a shorter-term approach on finding a new leader.`\
+https://nytimes.com/athletic/6332929/2025/05/05/islanders-front-office-search-urgency/
+
+**What to watch in sports this week: NBA and NHL playoffs, Champions League semis and more**\
+`There's a lot going on in sports right now. We've got you covered. Here's a national TV recommendation for each day of the forthcoming week.`\
+https://nytimes.com/athletic/6333708/2025/05/05/barcelona-inter-arsenal-psg-nba-nhl-mlb-ncaa-how-to-watch/
+
+**Travelers Face Delays as Newark Airport Chaos Enters Second Week**\
+`Weather-related delays on top of staffing shortages and runway construction have snarled travel at one of the nation’s busiest airports.`\
+https://nytimes.com/2025/05/05/nyregion/newark-airport-delays-disruptions-issues.html
+
 **'It was all just a joke to them,' E.M. testifies in Hockey Canada trial**\
 `Woman at the heart of the Hockey Canada trial describes feeling "very vulnerable" on the night of the alleged sexual assault. `\
 https://nytimes.com/athletic/6334552/2025/05/05/hockey-canada-sexual-assault-trial-em-testifies/
@@ -25,16 +37,4 @@ https://nytimes.com/video/us/politics/100000010147246/trump-offers-us-military-t
 **Trump on the Constitution: ‘I Don’t Know’**\
 `Readers react to President Trump’s answer when asked if he needed to uphold the Constitution. Also: Immigration questions; Meals on Wheels.`\
 https://nytimes.com/2025/05/05/opinion/trump-constitution.html
-
-**‘Thunderbolts*’ Axes the Asterisk to Market Its Surprise Title Reveal**\
-`A plot twist that comes in the movie’s final moments will now be front and center on billboards. The director Jake Schreier explains the rebrand.`\
-https://nytimes.com/2025/05/05/movies/thunderbolts-asterisk-title.html
-
-**Villa under-18s beat Man City 3-1 to win FA Youth Cup at Villa Park**\
-`Villa's under-18s side triumphed in front of home support at Villa Park to mark a fifth FA Youth Cup win in the club's history.`\
-https://nytimes.com/athletic/6334894/2025/05/05/aston-villa-man-city-youth-cup/
-
-**Red Light: Best playoff period ever? Who's winning the lottery?**\
-`Did Mikko Rantanen have the best playoff period ever? Plus everything you need to know about tonight's NHL Draft Lottery.`\
-https://nytimes.com/athletic/6334863/2025/05/05/nhl-playoffs-red-light-stars-jets-draft-lottery/
 

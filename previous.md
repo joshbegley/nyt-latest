@@ -1,3 +1,7 @@
+**'It was all just a joke to them,' E.M. testifies in Hockey Canada trial**\
+`Woman at the heart of the Hockey Canada trial describes feeling "very vulnerable" on the night of the alleged sexual assault. `\
+https://nytimes.com/athletic/6334552/2025/05/05/hockey-canada-sexual-assault-trial-em-testifies/
+
 **States Sue Over Trump Administration Cutbacks at H.H.S.**\
 `The lawsuit, led by New York, argues that the slashing of grants and staff at the Department of Health and Human Services amounts to the “illegal dismantling” of the agency.`\
 https://nytimes.com/2025/05/05/us/politics/states-lawsuit-trump-administration-hhs-cutbacks.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6334894/2025/05/05/aston-villa-man-city-youth-cup/
 **Red Light: Best playoff period ever? Who's winning the lottery?**\
 `Did Mikko Rantanen have the best playoff period ever? Plus everything you need to know about tonight's NHL Draft Lottery.`\
 https://nytimes.com/athletic/6334863/2025/05/05/nhl-playoffs-red-light-stars-jets-draft-lottery/
-
-**The Broadway Play That Meets Our National Moment**\
-`A sense of purpose is central to surviving right now — and a great place to draw inspiration and insight is from these five Tony-nominated plays.`\
-https://nytimes.com/2025/05/05/opinion/why-these-five-broadway-shows-are-inspiring-for-america-right-now.html
 
