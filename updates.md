@@ -1,3 +1,7 @@
+**'Love and respect': Why Marc-Andre Fleury's impact on Wild culture will live on after his retirement**\
+`Fleury gave his final exit interview Monday, and teammates spoke to his legacy. Brock Faber: "God, he had so much fun playing this game."`\
+https://nytimes.com/athletic/6334752/2025/05/05/marc-andre-fleury-wild-culture-retirement/
+
 **Why Isn’t LeBron James at the Met Gala?**\
 `Mr. James, the honorary chair of the gala, announced on X that he would no longer appear at the event.`\
 https://nytimes.com/2025/05/05/style/met-gala-2025-lebron-james.html

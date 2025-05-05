@@ -1,3 +1,7 @@
+**'Love and respect': Why Marc-Andre Fleury's impact on Wild culture will live on after his retirement**\
+`Fleury gave his final exit interview Monday, and teammates spoke to his legacy. Brock Faber: "God, he had so much fun playing this game."`\
+https://nytimes.com/athletic/6334752/2025/05/05/marc-andre-fleury-wild-culture-retirement/
+
 **Why Isn’t LeBron James at the Met Gala?**\
 `Mr. James, the honorary chair of the gala, announced on X that he would no longer appear at the event.`\
 https://nytimes.com/2025/05/05/style/met-gala-2025-lebron-james.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/05/health/trump-abortion-pill-case.html
 **Ford Says Tariffs Will Cost Company $1.5 Billion in 2025**\
 `Ford Motor also reported a sharp drop in profits in the first three months of the year.`\
 https://nytimes.com/2025/05/05/business/economy/ford-earnings-tariffs.html
-
-**David Carle signs multiyear extension to remain University of Denver head coach**\
-`Carle was linked to multiple NHL head coaching vacancies over the past few weeks.`\
-https://nytimes.com/athletic/6335317/2025/05/05/david-carle-denver-coach-nhl/
 
