@@ -1,3 +1,7 @@
+**A Timeline of Tensions Between India and Pakistan Over Kashmir**\
+`The April 22 terrorist attack in Kashmir inflamed a long-simmering conflict that could boil over into military confrontation.`\
+https://nytimes.com/2025/05/05/world/asia/india-pakistan-kashmir-history.html
+
 **Watch a Meteor Shower Made by Halley’s Comet**\
 `The Eta Aquarids will reach their peak Monday night into Tuesday morning.`\
 https://nytimes.com/2025/05/05/science/eta-aquarids-meteor-shower.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/05/arts/television/forever-plus-7-things-to-watch-on
 **Monday Briefing**\
 `The Anti-Trump bump.`\
 https://nytimes.com/2025/05/05/briefing/trump-gaza-ukraine.html
-
-**Pakistan’s Most Powerful Man Steps Out of the Shadows to Confront India**\
-`The army chief, Gen. Syed Asim Munir, who usually works behind the scenes, has been shaping Pakistan’s tone in the crisis over Kashmir with his own tough talk.`\
-https://nytimes.com/2025/05/05/world/asia/pakistan-india-asim-munir.html
 

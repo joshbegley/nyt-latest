@@ -1,3 +1,7 @@
+**A Timeline of Tensions Between India and Pakistan Over Kashmir**\
+`The April 22 terrorist attack in Kashmir inflamed a long-simmering conflict that could boil over into military confrontation.`\
+https://nytimes.com/2025/05/05/world/asia/india-pakistan-kashmir-history.html
+
 **Watch a Meteor Shower Made by Halley’s Comet**\
 `The Eta Aquarids will reach their peak Monday night into Tuesday morning.`\
 https://nytimes.com/2025/05/05/science/eta-aquarids-meteor-shower.html
