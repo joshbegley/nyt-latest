@@ -1,3 +1,11 @@
+**Israelis Protest Government’s Plan to Intensify Campaign in Gaza**\
+`Israeli spokesmen said the expanded ground operation would include “a wide attack, involving moving most of Gaza’s population,” as well as the “holding of territories” by Israeli soldiers for an indefinite period of time.`\
+https://nytimes.com/video/world/middleeast/100000010148295/israel-gaza-campaign-hamas.html
+
+**For Trump, the Constitution Is a Hindrance as He Pushes for Deportations**\
+`President Trump and his allies have portrayed their efforts to bypass due process as necessary for national security.`\
+https://nytimes.com/2025/05/05/us/politics/trump-constitution-immigration-hearings.html
+
 **Red Wings draft targets: Who could Detroit pick at No. 13?**\
 `The Red Wings' draft slot is now set, and their needs are clear. So, who could they take at No. 13?`\
 https://nytimes.com/athletic/6327267/2025/05/05/red-wings-nhl-draft-13th-pick/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/05/business/credit-suisse-fine-irs.html
 **Tramell Tillman’s Arrival at the Met Was Years in the Making**\
 `The actor, who plays the cheerfully menacing Mr. Milchick in “Severance,” wore a Thom Browne ensemble partly inspired by a play he saw in Chicago.`\
 https://nytimes.com/2025/05/05/style/tramell-tillman-met-gala-look-thom-browne.html
-
-**Kenny Atkinson named NBA Coach of the Year, beats J.B. Bickerstaff**\
-`Aside from Bickerstaff, Atkinson also beat out Houston Rockets coach Ime Udoka for the honor.`\
-https://nytimes.com/athletic/6335554/2025/05/05/kenny-atkinson-nba-coach-of-the-year-2025/
-
-**Shah Rukh Khan, and His Jeweled Tiger’s Head, Make Their Met Debut**\
-`The global superstar is going “a little bit rapper” for his first gala appearance. He may never come back, but he’s here now.`\
-https://nytimes.com/2025/05/05/style/shah-rukh-khan-met-gala-2025-sabyasachi-mukherjee.html
 
