@@ -1,3 +1,19 @@
+**‘Thunderbolts*’ Axes the Asterisk to Market Its Surprise Title Reveal**\
+`A plot twist that comes in the movie’s final moments will now be front and center on billboards. The director Jake Schreier explains the rebrand.`\
+https://nytimes.com/2025/05/05/movies/thunderbolts-asterisk-title.html
+
+**Villa under-18s beat Man City 3-1 to win FA Youth Cup at Villa Park**\
+`Villa's under-18s side triumphed in front of home support at Villa Park to mark a fifth FA Youth Cup win in the club's history.`\
+https://nytimes.com/athletic/6334894/2025/05/05/aston-villa-man-city-youth-cup/
+
+**Red Light: Best playoff period ever? Who's winning the lottery?**\
+`Did Mikko Rantanen have the best playoff period ever? Plus everything you need to know about tonight's NHL Draft Lottery.`\
+https://nytimes.com/athletic/6334863/2025/05/05/nhl-playoffs-red-light-stars-jets-draft-lottery/
+
+**Why These Five Broadway Shows Are Inspiring for America Right Now**\
+`A sense of purpose is central to surviving right now — and a great place to draw inspiration and insight is from these five Tony-nominated plays.`\
+https://nytimes.com/2025/05/05/opinion/why-these-five-broadway-shows-are-inspiring-for-america-right-now.html
+
 **L.A. Kings GM Rob Blake will not return in 2025-26**\
 `Blake had been in his roles since April 2017, but the Kings did not win a playoff round during that time.`\
 https://nytimes.com/athletic/6330730/2025/05/05/la-kings-gm-rob-blake/

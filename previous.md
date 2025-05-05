@@ -1,3 +1,19 @@
+**‘Thunderbolts*’ Axes the Asterisk to Market Its Surprise Title Reveal**\
+`A plot twist that comes in the movie’s final moments will now be front and center on billboards. The director Jake Schreier explains the rebrand.`\
+https://nytimes.com/2025/05/05/movies/thunderbolts-asterisk-title.html
+
+**Villa under-18s beat Man City 3-1 to win FA Youth Cup at Villa Park**\
+`Villa's under-18s side triumphed in front of home support at Villa Park to mark a fifth FA Youth Cup win in the club's history.`\
+https://nytimes.com/athletic/6334894/2025/05/05/aston-villa-man-city-youth-cup/
+
+**Red Light: Best playoff period ever? Who's winning the lottery?**\
+`Did Mikko Rantanen have the best playoff period ever? Plus everything you need to know about tonight's NHL Draft Lottery.`\
+https://nytimes.com/athletic/6334863/2025/05/05/nhl-playoffs-red-light-stars-jets-draft-lottery/
+
+**Why These Five Broadway Shows Are Inspiring for America Right Now**\
+`A sense of purpose is central to surviving right now — and a great place to draw inspiration and insight is from these five Tony-nominated plays.`\
+https://nytimes.com/2025/05/05/opinion/why-these-five-broadway-shows-are-inspiring-for-america-right-now.html
+
 **L.A. Kings GM Rob Blake will not return in 2025-26**\
 `Blake had been in his roles since April 2017, but the Kings did not win a playoff round during that time.`\
 https://nytimes.com/athletic/6330730/2025/05/05/la-kings-gm-rob-blake/
@@ -21,20 +37,4 @@ https://nytimes.com/video/us/politics/100000010147382/trump-alcatraz-prison-us.h
 **Submit your Notre Dame questions for Pete Sampson’s mailbag**\
 `Spring practice is finished, the transfer portal is closed and Notre Dame is surging on the recruiting trail. What's on your mind?`\
 https://nytimes.com/athletic/6334759/2025/05/05/notre-dame-football-mailbag-questions-19/
-
-**Trump Offers to Pay Immigrants Who Deport Themselves**\
-`The administration says the program to pay migrants $1,000 once their travel home is confirmed will save money because of how expensive it is to find, detain and deport people.`\
-https://nytimes.com/2025/05/05/us/politics/trump-immigrant-deportation-payments.html
-
-**Utah Jazz, coach Will Hardy agree to multiyear extension through 2031**\
-`Hardy, 37, has been with the Jazz for three seasons and became the franchise's ninth coach in 2022.`\
-https://nytimes.com/athletic/6334631/2025/05/05/utah-jazz-will-hardy-coach-extension/
-
-**Lowetide: Should Oilers' McDavid and Draisaitl play together vs. Golden Knights?**\
-`There are two items that may swing the balance in favour of running them on a line at five-on-five.`\
-https://nytimes.com/athletic/6332826/2025/05/05/oilers-mcdavid-draisaitl-nhl-playoffs-golden-knights/
-
-**Buy American? No Thanks, Europe Says, as Tariff Backlash Grows.**\
-`A shifting perception of the United States amid President Trump’s trade war is prompting Europeans to pivot decisively away from U.S. goods and services.`\
-https://nytimes.com/2025/05/05/business/tariffs-europe-boycott-american-goods.html
 
