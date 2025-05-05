@@ -1,3 +1,11 @@
+**Senators sign defenceman Nikolas Matinpalo to 2-year extesion**\
+`The Senators have signed restricted free agent defenceman Nikolas Matinpalo to a two-year, one-way contract extension worth $1.75 million.`\
+https://nytimes.com/athletic/6335405/2025/05/05/senators-nikolas-matinpalo-signing/
+
+**Trump Administration Asks Court to Dismiss Abortion Pill Case**\
+`The request echoes the position the Biden administration took in the case in January, surprising some observers.`\
+https://nytimes.com/2025/05/05/health/trump-abortion-pill-case.html
+
 **Ford Says Tariffs Will Cost Company $1.5 Billion in 2025**\
 `Ford Motor also reported a sharp drop in profits in the first three months of the year.`\
 https://nytimes.com/2025/05/05/business/economy/ford-earnings-tariffs.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/05/05/style/met-gala-2025-red-carpet-looks.
 **Meet the craftspeople who are shaping Black style across America every day.**\
 `From South Carolina to Los Angeles, these tailors, milliners and jewelers are leaving their mark on fashion.`\
 https://nytimes.com/live/2025/05/05/style/met-gala-2025/meet-the-craftspeople-who-are-shaping-black-style-across-america-every-day
-
-**Cubs' lefty Shota Imanaga placed on IL with hamstring strain**\
-`An extended absence for Imanaga would further stress a pitching staff that has been propped up by a prodigious offense.`\
-https://nytimes.com/athletic/6335356/2025/05/05/cubs-shota-imanaga-hamstring-strain-cade-horton/
-
-**Astros' Yordan Alvarez placed on IL with right hand inflammation**\
-`Alvarez was scratched from Houston's lineup on Saturday due to discomfort while hitting in the batting cage.`\
-https://nytimes.com/athletic/6335347/2025/05/05/astros-yordan-alvarez-injury/
 

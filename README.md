@@ -1,3 +1,11 @@
+**Former Judges Condemn Trump Administration’s Arrest of Wisconsin Judge**\
+`Judge Hannah C. Dugan was accused of directing an undocumented immigrant to leave through a side door while federal agents waited for him.`\
+https://nytimes.com/2025/05/05/us/judges-trump-arrest-wisconsin-judge.html
+
+**Tuesday Briefing: Israel’s Plan for Gaza**\
+`Plus, a politically charged Met Gala.`\
+https://nytimes.com/2025/05/05/briefing/israel-gaza-siege-trump-migrants-cash-pope-vatica-abuse.html
+
 **Senators sign defenceman Nikolas Matinpalo to 2-year extesion**\
 `The Senators have signed restricted free agent defenceman Nikolas Matinpalo to a two-year, one-way contract extension worth $1.75 million.`\
 https://nytimes.com/athletic/6335405/2025/05/05/senators-nikolas-matinpalo-signing/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6335002/2025/05/05/crazy-sports-turnarounds-history
 **States Are Tightening Rules for Getting Citizen-Led Proposals on the Ballot**\
 `Florida and Arkansas both recently added restrictions to the citizen amendment process, after ballot measures to expand abortion rights were successful in other states.`\
 https://nytimes.com/2025/05/05/us/politics/citizen-proposals-state-ballot.html
-
-**2025 Met Gala: Red Carpet Roundup**\
-`See the looks from fashion’s biggest night. Choose, save and share six of your favorites images.`\
-https://nytimes.com/interactive/2025/05/05/style/met-gala-2025-red-carpet-looks.html
-
-**Meet the craftspeople who are shaping Black style across America every day.**\
-`From South Carolina to Los Angeles, these tailors, milliners and jewelers are leaving their mark on fashion.`\
-https://nytimes.com/live/2025/05/05/style/met-gala-2025/meet-the-craftspeople-who-are-shaping-black-style-across-america-every-day
 

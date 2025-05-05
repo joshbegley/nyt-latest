@@ -1,3 +1,11 @@
+**Senators sign defenceman Nikolas Matinpalo to 2-year extesion**\
+`The Senators have signed restricted free agent defenceman Nikolas Matinpalo to a two-year, one-way contract extension worth $1.75 million.`\
+https://nytimes.com/athletic/6335405/2025/05/05/senators-nikolas-matinpalo-signing/
+
+**Trump Administration Asks Court to Dismiss Abortion Pill Case**\
+`The request echoes the position the Biden administration took in the case in January, surprising some observers.`\
+https://nytimes.com/2025/05/05/health/trump-abortion-pill-case.html
+
 **Ford Says Tariffs Will Cost Company $1.5 Billion in 2025**\
 `Ford Motor also reported a sharp drop in profits in the first three months of the year.`\
 https://nytimes.com/2025/05/05/business/economy/ford-earnings-tariffs.html
