@@ -1,3 +1,7 @@
+**Kirill Kaprizov discusses potential contract extension with Wild: 'It should be all good’**\
+`Kaprizov said Sunday he feels good about the future in Minnesota: “Everyone wants to win. Me, too. I like everything here.”`\
+https://nytimes.com/athletic/6332889/2025/05/04/kirill-kaprizov-wild-contract-extension-nhl/
+
 **Rom-Com**\
 `In the movies, it always works out. In real life? Not so much.`\
 https://nytimes.com/2025/05/04/podcasts/rom-com-this-american-life-nyt-audio.html
