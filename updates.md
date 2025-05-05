@@ -1,3 +1,15 @@
+**NBA title odds: Thunder, Celtics projected to be on collision course**\
+`The Oklahoma City Thunder and Boston Celtics are still the clear favorites to get to the NBA Finals. Here's how the futures odds stack up.`\
+https://nytimes.com/athletic/6334814/2025/05/05/nba-championship-odds-thunder-celtics/
+
+**Gluck: Joey Logano is back in the playoffs. Now he has a chance to do the funniest thing**\
+`Joey Logano, NASCAR's most polarizing champion, won Sunday at Texas to secure a spot in the playoffs. And you know what that means.`\
+https://nytimes.com/athletic/6334804/2025/05/05/joey-logano-nascar-playoffs-texas/
+
+**'It was all just a joke to them': E.M. testifies in Hockey Canada trial**\
+`The woman at the heart of the Hockey Canada trial described feeling "very vulnerable" on the night of the alleged sexual assault. `\
+https://nytimes.com/athletic/6334552/2025/05/05/hockey-canada-sexual-assault-trial-em-testifies/
+
 **The 50 Best Movies on Max Right Now**\
 `In addition to new Warner and HBO films, the streamer has a treasure trove of Golden Age classics, indie flicks and foreign films. Start with these.`\
 https://nytimes.com/2025/05/05/movies/best-movies-hbo-max.html

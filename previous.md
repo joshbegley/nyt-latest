@@ -1,3 +1,11 @@
+**NBA title odds: Thunder, Celtics projected to be on collision course**\
+`The Oklahoma City Thunder and Boston Celtics are still the clear favorites to get to the NBA Finals. Here's how the futures odds stack up.`\
+https://nytimes.com/athletic/6334814/2025/05/05/nba-championship-odds-thunder-celtics/
+
+**Gluck: Joey Logano is back in the playoffs. Now he has a chance to do the funniest thing**\
+`Joey Logano, NASCAR's most polarizing champion, won Sunday at Texas to secure a spot in the playoffs. And you know what that means.`\
+https://nytimes.com/athletic/6334804/2025/05/05/joey-logano-nascar-playoffs-texas/
+
 **The 50 Best Movies on Max Right Now**\
 `In addition to new Warner and HBO films, the streamer has a treasure trove of Golden Age classics, indie flicks and foreign films. Start with these.`\
 https://nytimes.com/2025/05/05/movies/best-movies-hbo-max.html
@@ -23,18 +31,10 @@ https://nytimes.com/athletic/6333708/2025/05/05/barcelona-inter-arsenal-psg-nba-
 https://nytimes.com/2025/05/05/nyregion/newark-airport-delays-disruptions-issues.html
 
 **'It was all just a joke to them': E.M. testifies in Hockey Canada trial**\
-`Woman at the heart of the Hockey Canada trial describes feeling "very vulnerable" on the night of the alleged sexual assault. `\
+`The woman at the heart of the Hockey Canada trial described feeling "very vulnerable" on the night of the alleged sexual assault. `\
 https://nytimes.com/athletic/6334552/2025/05/05/hockey-canada-sexual-assault-trial-em-testifies/
 
 **States Sue Over Trump Administration Cutbacks at H.H.S.**\
 `The lawsuit, led by New York, argues that the slashing of grants and staff at the Department of Health and Human Services amounts to the “illegal dismantling” of the agency.`\
 https://nytimes.com/2025/05/05/us/politics/states-lawsuit-trump-administration-hhs-cutbacks.html
-
-**Barca's radical high line - and why they won't change it anytime soon**\
-`Barca's high-risk approach comes with high rewards. Can it take them to the Champions League final?`\
-https://nytimes.com/athletic/6334637/2025/05/05/barcelona-high-line-champions-league/
-
-**Officer Pleads Guilty to Fatal Beating of Prisoner Seen on Camera**\
-`The corrections officer, Christopher Walrath, is one of 10 charged in the brutal beating of Robert Brooks in Marcy, N.Y. He will be sentenced to 15 years in prison.`\
-https://nytimes.com/2025/05/05/nyregion/christopher-walrath-guilty-robert-brooks.html
 
