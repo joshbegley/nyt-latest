@@ -1,3 +1,7 @@
+**The Broadway Play That Meets Our National Moment**\
+`A sense of purpose is central to surviving right now — and a great place to draw inspiration and insight is from these five Tony-nominated plays.`\
+https://nytimes.com/2025/05/05/opinion/why-these-five-broadway-shows-are-inspiring-for-america-right-now.html
+
 **States Sue Over Trump Administration Cutbacks at H.H.S.**\
 `The lawsuit, led by New York, argues that the slashing of grants and staff at the Department of Health and Human Services amounts to the “illegal dismantling” of the agency.`\
 https://nytimes.com/2025/05/05/us/politics/states-lawsuit-trump-administration-hhs-cutbacks.html
