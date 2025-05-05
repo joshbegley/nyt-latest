@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Tuesday, May 6, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/05/05/todays-new-york-times-international-edition
+
 **Inside Alexander-Arnold's Liverpool exit: Deal frustration, what he told Slot and why now?**\
 `The right-back's departure from Anfield was a long time coming — this is how and why it happened`\
 https://nytimes.com/athletic/6326837/2025/05/05/trent-alexander-arnold-liverpool-exit-inside-story/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6332716/2025/05/05/carolina-panthers-mailbag-salary
 **A Trump Family Push for Profit on Three Continents Breaks Historical Norms**\
 `The president’s older sons, Donald Trump Jr. and Eric Trump, spent the past two weeks traveling the world and announcing deals, many of which will financially benefit their father.`\
 https://nytimes.com/2025/05/05/us/politics/eric-donald-jr-trump-family-deals.html
-
-**I Brake for Robins**\
-`I wish everyone would slow down. The least we can do is to give our wild neighbors time to cross the roads we have built through the middle of their homes.`\
-https://nytimes.com/2025/05/05/opinion/spring-wildlife-safety.html
 
