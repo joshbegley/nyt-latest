@@ -1,3 +1,15 @@
+**A Reporter Takes Pause at the Career Pause**\
+`Fed up with being overworked or unfulfilled, some young people are quitting their jobs to take “mini-retirements,” a trend that caught the eye of a Times journalist.`\
+https://nytimes.com/2025/05/05/insider/mini-retirement-trend.html
+
+**MrBeast’s Latest Challenge: Writing a Novel With James Patterson**\
+`Jimmy Donaldson, known to his social media fans as MrBeast, is teaming up with the mega-best-selling thriller author.`\
+https://nytimes.com/2025/05/05/books/mrbeast-james-patterson-novel.html
+
+**Nick Suzuki’s Olympic dreams, perspective on Patrik Laine, Arber Xhekaj's growth and more**\
+`Also in this final Canadiens notebook of the season, a look at the team's pending unrestricted free agents.`\
+https://nytimes.com/athletic/6333986/2025/05/05/canadiens-nick-suzuki-patrik-laine/
+
 **Canadiens end-of-season notebook: Suzuki’s Olympic dreams, perspective on Laine and more**\
 `Also in this final Canadiens notebook of the season, a look at the team's pending unrestricted free agents.`\
 https://nytimes.com/athletic/6333986/2025/05/05/canadiens-nick-suzuki-patrik-laine/
