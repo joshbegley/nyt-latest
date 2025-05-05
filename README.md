@@ -1,3 +1,23 @@
+**Ancelotti, Real Madrid reach verbal agreement over exit**\
+`An official announcement confirming Ancelotti's exit is expected before the end of the league season.`\
+https://nytimes.com/athletic/6333137/2025/05/05/carlo-ancelotti-real-madrid-exit-agreement/
+
+**Jannik Sinner 'did not want to' accept WADA case resolution agreement in doping case**\
+`The world No. 1 said that he would have been happy even if he had lost his ranking before the Italian Open, his first tennis event back.`\
+https://nytimes.com/athletic/6334287/2025/05/05/jannik-sinner-tennis-comeback-italian-open-doping-ban/
+
+**Canucks notebook: NHL Draft Lottery odds, and the Quinn Hughes pressure point**\
+`This year, the Canucks' lack of lottery luck is overwhelmingly likely to continue.`\
+https://nytimes.com/athletic/6333940/2025/05/05/canucks-nhl-draft-lottery-quinn-hughes/
+
+**At Least 3 Killed and 5 Injured in Shooting at Arizona Restaurant**\
+`Witnesses told local news stations that the shooting took place at a Cinco de Mayo event.`\
+https://nytimes.com/2025/05/05/us/glendale-arizona-shooting.html
+
+**How Well Do You Know the Life and Works of Mark Twain?**\
+`Test your memory of this prolific American author and his era.`\
+https://nytimes.com/interactive/2025/05/05/books/review/mark-twain-quiz.html
+
 **The Bounce: Gregg Popovich, the NBA's GOAT coach, has retired. His impact will remain unmatched**\
 `Gregg Popovich is an incredibly important figure, and he’ll be missed on the sidelines. Zach Harper explains why he's the best coach ever`\
 https://nytimes.com/athletic/6334520/2025/05/05/gregg-popovich-spurs-coach-retire-nba-playoffs-the-bounce/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/05/05/insider/mini-retirement-trend.html
 **MrBeast’s Latest Challenge: Writing a Novel With James Patterson**\
 `Jimmy Donaldson, known to his social media fans as MrBeast, is teaming up with the mega-best-selling thriller author.`\
 https://nytimes.com/2025/05/05/books/mrbeast-james-patterson-novel.html
-
-**Nick Suzuki’s Olympic dreams, perspective on Patrik Laine, Arber Xhekaj's growth and more**\
-`Also in this final Canadiens notebook of the season, a look at the team's pending unrestricted free agents.`\
-https://nytimes.com/athletic/6333986/2025/05/05/canadiens-nick-suzuki-patrik-laine/
-
-**Why the Met Gala's dandyism exhibition found a modern muse in Lewis Hamilton**\
-`After Sunday's Miami Grand Prix, Lewis Hamilton flew to New York for fashion and art’s biggest night.`\
-https://nytimes.com/athletic/6333616/2025/05/05/lewis-hamilton-met-gala-2025/
-
-**The Athletic college baseball Top 25: Arkansas reclaims top spot, Miami enters rankings**\
-`The Razorbacks are still two games behind Texas in the SEC, but it's hard to ignore such an emphatic sweep — even if it was in Fayetteville.`\
-https://nytimes.com/athletic/6334394/2025/05/05/college-baseball-rankings-arkansas-texas-miami/
-
-**Mailbag: What Penguins-Mike Sullivan split means for Sidney Crosby**\
-`Sullivan's departure from Pittsburgh is making for a very interesting offseason for the Penguins. Who's the right coach to replace him?`\
-https://nytimes.com/athletic/6333900/2025/05/05/penguins-mike-sullivan-sidney-crosby-mailbag/
-
-**The Jets' Game 7 comeback win makes NHL history — and reminds us of their resilience**\
-`The Jets showed us they were a more resilient group all season. And with their series one second away from over, they pulled through again.`\
-https://nytimes.com/athletic/6333739/2025/05/05/jets-blues-nhl-game-7-comeback-win/
 
