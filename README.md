@@ -1,3 +1,23 @@
+**Utah Jazz, coach Will Hardy agree to multiyear extension through 2031**\
+`Hardy, 37, has been with the Jazz for three seasons and became the franchise's ninth coach in 2022.`\
+https://nytimes.com/athletic/6334631/2025/05/05/utah-jazz-will-hardy-coach-extension/
+
+**Lowetide: Should Oilers' McDavid and Draisaitl play together vs. Golden Knights?**\
+`There are two items that may swing the balance in favour of running them on a line at five-on-five.`\
+https://nytimes.com/athletic/6332826/2025/05/05/oilers-mcdavid-draisaitl-nhl-playoffs-golden-knights/
+
+**Buy American? No Thanks, Europe Says, as Tariff Backlash Grows.**\
+`A shifting perception of the United States amid President Trump’s trade war is prompting Europeans to pivot decisively away from U.S. goods and services.`\
+https://nytimes.com/2025/05/05/business/tariffs-europe-boycott-american-goods.html
+
+**Pacers' balanced effort leads to Game 1 win, showing they should not be overlooked**\
+`While the series against Cleveland is far from over, Indiana’s win should put the league on notice.`\
+https://nytimes.com/athletic/6334255/2025/05/05/pacers-cavaliers-nba-playoffs-game-1-balance/
+
+**UnitedHealth’s Move to End Cyberattack Loan Lifeline Upsets Medical Providers**\
+`The company lent roughly $9 billion to practices affected by a vast cyberattack on its payment systems last year. Medical practices are now suing the health care colossus, saying it is pressuring them to repay funds.`\
+https://nytimes.com/2025/05/05/health/unitedhealth-cyberattack-loans-lawsuits.html
+
 **The Windup: Atlanta's good problem**\
 `The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/6334694/2025/05/05/atlanta-braves-outfield-ronald-acuna-the-windup/
@@ -17,25 +37,4 @@ https://nytimes.com/2025/05/05/world/europe/ireland-mother-baby-home-tuam-galway
 **The Rise of the ‘Crunchy Teen’ Wellness Influencer**\
 `High schoolers are appealing to other health-conscious kids online, sometimes by expressing views in line with the “Make America Healthy Again” movement.`\
 https://nytimes.com/2025/05/05/well/teen-wellness-influencer-health-maha.html
-
-**France minister apologises to Liverpool fans for 2022 UCL final blame**\
-`The 2022 final in Paris saw supporters were trapped in dangerous bottlenecks, teargassed by police and attacked by local youths.`\
-https://nytimes.com/athletic/6334549/2025/05/05/liverpool-fans-champions-league-paris-apology/
-
-**Michigan expected to suspend Sherrone Moore 2 games: Source**\
-`Moore is expected to coach Michigan's first two games before missing games against Central Michigan and Nebraska in Week 3 and Week 4.`\
-https://nytimes.com/athletic/6334454/2025/05/05/sherrone-moore-michigan-suspension-texts/
-
-**Bowden: 5 MLB trades I'd like to see in May, including deals for Ryan Helsley and Joe Ryan**\
-`Last May, the Marlins traded Luis Arraez to the Padres. Will we get another May blockbuster? Here are five May trades that could make sense.`\
-https://nytimes.com/athletic/6334062/2025/05/05/mlb-trade-scenarios-ryan-helsley-joe-ryan-luis-robert/
-
-**Browns LB Devin Bush arrested, charged with assault and harassment**\
-`Bush, a 2019 first-round pick of the Steelers, started 10 games for Cleveland last season. `\
-https://nytimes.com/athletic/6334575/2025/05/05/browns-devin-bush-arrested-assault-harassment/
-
-**Inter vs Barca champions league semi-final odds: Can Inzaghi's men silence Yamal?**\
-`Brett Koremenos explores the best bets around Barcelona’s Champions League semi-final second-leg clash against Internazionale. 
-`\
-https://nytimes.com/athletic/6334305/2025/05/05/champions-league-semi-final-barcelona-inter-betting-preview/
 

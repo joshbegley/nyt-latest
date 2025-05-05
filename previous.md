@@ -1,4 +1,24 @@
-**France minister apologies to Liverpool fans for 2022 UCL final blame**\
+**The Windup: Atlanta's good problem**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/6334694/2025/05/05/atlanta-braves-outfield-ronald-acuna-the-windup/
+
+**Bessent Pitches Skittish Investors to Bet on Trump’s Economic Plan**\
+`The Treasury secretary urged executives and entrepreneurs to look beyond the Trump administration’s trade agenda.`\
+https://nytimes.com/2025/05/05/business/bessent-pitches-skittish-investors-to-bet-on-trumps-economic-plan.html
+
+**All In on Asparagus**\
+`Load up on the grassy green stalks to add to lemony orzo, miso-slathered chicken and a nutty, crunchy rice bowl.`\
+https://nytimes.com/2025/05/05/dining/asparagus-recipes-for-spring.html
+
+**Her Final Wish: A Home for the Son She Never Got to Hold**\
+`Chrissie Tully gave birth to a son 76 years ago in an Irish home for single mothers, shrouded in secrecy and shame. She’s still waiting for him.`\
+https://nytimes.com/2025/05/05/world/europe/ireland-mother-baby-home-tuam-galway.html
+
+**The Rise of the ‘Crunchy Teen’ Wellness Influencer**\
+`High schoolers are appealing to other health-conscious kids online, sometimes by expressing views in line with the “Make America Healthy Again” movement.`\
+https://nytimes.com/2025/05/05/well/teen-wellness-influencer-health-maha.html
+
+**France minister apologises to Liverpool fans for 2022 UCL final blame**\
 `The 2022 final in Paris saw supporters were trapped in dangerous bottlenecks, teargassed by police and attacked by local youths.`\
 https://nytimes.com/athletic/6334549/2025/05/05/liverpool-fans-champions-league-paris-apology/
 
@@ -18,24 +38,4 @@ https://nytimes.com/athletic/6334575/2025/05/05/browns-devin-bush-arrested-assau
 `Brett Koremenos explores the best bets around Barcelona’s Champions League semi-final second-leg clash against Internazionale. 
 `\
 https://nytimes.com/athletic/6334305/2025/05/05/champions-league-semi-final-barcelona-inter-betting-preview/
-
-**NBA Playoffs picks, odds for Knicks-Celtics, Nuggets-Thunder Game 1s**\
-`Two second-round series get started in the NBA Playoffs on Monday. The Celtics and Thunder are solidly favored at home.`\
-https://nytimes.com/athletic/6333803/2025/05/05/nba-playoffs-picks-odds-how-to-watch-knicks-celtics-nuggets-thunder/
-
-**Inter to make late Martinez call ahead of Barcelona Champions League tie**\
-`Martinez, 27, appeared to sustain a muscular injury immediately before half time in Wednesday's first leg.`\
-https://nytimes.com/athletic/6326034/2025/05/05/lautaro-martinez-injury-inter-barcelona/
-
-**Ancelotti, Real Madrid reach verbal agreement over exit**\
-`An official announcement confirming Ancelotti's exit is expected before the end of the league season.`\
-https://nytimes.com/athletic/6333137/2025/05/05/carlo-ancelotti-real-madrid-exit-agreement/
-
-**Jannik Sinner 'did not want to' accept WADA resolution agreement in doping case**\
-`The world No. 1 said that he would have been happy even if he had lost his ranking before the Italian Open, his first tennis event back.`\
-https://nytimes.com/athletic/6334287/2025/05/05/jannik-sinner-tennis-comeback-italian-open-doping-ban/
-
-**Canucks notebook: NHL Draft Lottery odds, and the Quinn Hughes pressure point**\
-`This year, the Canucks' lack of lottery luck is overwhelmingly likely to continue.`\
-https://nytimes.com/athletic/6333940/2025/05/05/canucks-nhl-draft-lottery-quinn-hughes/
 
