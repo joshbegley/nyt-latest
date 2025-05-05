@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6334305/2025/05/05/champions-league-semi-final-barcelona-inter-betting-preview/
 
+**Inter vs Barca champions league semi-final odds: Can Inzaghi's men silence Yamal?**\
+`Brett Koremenos explores the best bets around Barcelona’s Champions League semi-final second-leg clash against Internazionale. 
+`\
+https://nytimes.com/athletic/6334305/2025/05/05/champions-league-semi-final-barcelona-inter-betting-preview/
+
 **France minister apologies to Liverpool fans for 2022 UCL final blame**\
 `The 2022 final in Paris saw supporters were trapped in dangerous bottlenecks, teargassed by police and attacked by local youths.`\
 https://nytimes.com/athletic/6334549/2025/05/05/liverpool-fans-champions-league-paris-apology/
