@@ -14,8 +14,8 @@ https://nytimes.com/athletic/6335347/2025/05/05/astros-yordan-alvarez-injury/
 `The three-month-old operation never expanded to fulfill President Trump’s vision of housing 30,000 at the offshore U.S. base.`\
 https://nytimes.com/2025/05/05/us/politics/guantanamo-migrants-trump.html
 
-**3 key Cavs 'questionable' for Game 2 vs. Pacers; Atkinson criticizes refs**\
-`Darius Garland, De’Andre Hunter, Evan Mobley could miss Game 2, and Kenny Atkinson says Pacers "passed the line of physicality" in Game 1.`\
+**Three key Cavs 'questionable' for Game 2 vs. Pacers; Atkinson criticizes refs**\
+`Darius Garland, De’Andre Hunter, Evan Mobley could miss Game 2, and Atkinson says Pacers "passed the line of physicality" in Game 1.`\
 https://nytimes.com/athletic/6335180/2025/05/05/cavaliers-injuries-game-2-pacers/
 
 **Sean Combs Was Once Celebrated at the Met Gala. He’s Now on Trial.**\
