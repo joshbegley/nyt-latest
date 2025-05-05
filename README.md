@@ -1,3 +1,15 @@
+**Ravens to release kicker Justin Tucker after 13 seasons**\
+`Baltimore GM Eric DeCosta and coach John Harbaugh referred to the release as a "football decision."`\
+https://nytimes.com/athletic/6335452/2025/05/05/baltimore-ravens-justin-tucker-release/
+
+**18 States Sue Over Trump’s Halting of Wind Power Projects**\
+`The halt threatens jobs and holds back energy production at a time the president has claimed an “energy emergency,” state attorneys general said.`\
+https://nytimes.com/2025/05/05/climate/lawsuit-wind-power-halt-trump-energy-emergency.html
+
+**Attorney in House vs. NCAA case calls potential Trump order 'Unhelpful'**\
+`With settlement on system to pay college athletes near, lawyer criticizes Saban for “eleventh-hour self importance.”`\
+https://nytimes.com/athletic/6335582/2025/05/05/trump-saban-house-vs-ncaa-nil/
+
 **Steelers post-draft mailbag: Submit your questions to Mike DeFabo**\
 `The Steelers have a new rookie class, and Aaron Rodgers remains a free agent. What's on your mind? Mike DeFabo is here to offer answers.`\
 https://nytimes.com/athletic/6335580/2025/05/05/steelers-nfl-draft-2025-mailbag-mike-defabo/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6335397/2025/05/05/video-warriors-rockets-history-s
 **Former Judges Condemn Trump Administration’s Arrest of Wisconsin Judge**\
 `Judge Hannah C. Dugan was accused of directing an undocumented immigrant to leave through a side door while federal agents waited for him.`\
 https://nytimes.com/2025/05/05/us/judges-trump-arrest-wisconsin-judge.html
-
-**Tuesday Briefing: Israel’s Plan for Gaza**\
-`Plus, a politically charged Met Gala.`\
-https://nytimes.com/2025/05/05/briefing/israel-gaza-siege-trump-migrants-cash-pope-vatica-abuse.html
-
-**Senators sign defenceman Nikolas Matinpalo to 2-year extesion**\
-`The Senators have signed restricted free agent defenceman Nikolas Matinpalo to a two-year, one-way contract extension worth $1.75 million.`\
-https://nytimes.com/athletic/6335405/2025/05/05/senators-nikolas-matinpalo-signing/
-
-**Trump Administration Asks Court to Dismiss Abortion Pill Case**\
-`The request echoes the position the Biden administration took in the case in January, surprising some observers.`\
-https://nytimes.com/2025/05/05/health/trump-abortion-pill-case.html
 

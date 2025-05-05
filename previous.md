@@ -1,3 +1,7 @@
+**Steelers post-draft mailbag: Submit your questions to Mike DeFabo**\
+`The Steelers have a new rookie class, and Aaron Rodgers remains a free agent. What's on your mind? Mike DeFabo is here to offer answers.`\
+https://nytimes.com/athletic/6335580/2025/05/05/steelers-nfl-draft-2025-mailbag-mike-defabo/
+
 **'Love and respect': Why Marc-Andre Fleury's impact on Wild culture will live on after his retirement**\
 `Fleury gave his final exit interview Monday, and teammates spoke to his legacy. Brock Faber: "God, he had so much fun playing this game."`\
 https://nytimes.com/athletic/6334752/2025/05/05/marc-andre-fleury-wild-culture-retirement/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6335405/2025/05/05/senators-nikolas-matinpalo-signi
 **Trump Administration Asks Court to Dismiss Abortion Pill Case**\
 `The request echoes the position the Biden administration took in the case in January, surprising some observers.`\
 https://nytimes.com/2025/05/05/health/trump-abortion-pill-case.html
-
-**Ford Says Tariffs Will Cost Company $1.5 Billion in 2025**\
-`Ford Motor also reported a sharp drop in profits in the first three months of the year.`\
-https://nytimes.com/2025/05/05/business/economy/ford-earnings-tariffs.html
 
