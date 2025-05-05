@@ -1,3 +1,7 @@
+**The woman who wrote the book on Black dandyism offers a primer in 7 objects.**\
+`In the basement of the Met, Prof. Monica Miller led us on a tour of dandy fashion, from André to zoot suits.`\
+https://nytimes.com/live/2025/05/05/style/met-gala-2025/the-woman-who-wrote-the-book-on-black-dandyism-offers-a-primer-in-7-objects
+
 **Pulitzer Prizes: 2025 Winners List**\
 `Here is the full list of winners and finalists.`\
 https://nytimes.com/2025/05/05/business/media/pulitzer-prize-winners-list.html

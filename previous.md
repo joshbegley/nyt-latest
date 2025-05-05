@@ -1,3 +1,7 @@
+**The woman who wrote the book on Black dandyism offers a primer in 7 objects.**\
+`In the basement of the Met, Prof. Monica Miller led us on a tour of dandy fashion, from André to zoot suits.`\
+https://nytimes.com/live/2025/05/05/style/met-gala-2025/the-woman-who-wrote-the-book-on-black-dandyism-offers-a-primer-in-7-objects
+
 **Pulitzer Prizes: 2025 Winners List**\
 `Here is the full list of winners and finalists.`\
 https://nytimes.com/2025/05/05/business/media/pulitzer-prize-winners-list.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/05/business/media/pulitzer-prize-winners.html
 **Maple Leafs' Mitch Marner on becoming a dad mid-playoffs: 'I'm a lucky guy'**\
 `Dad strength? Teammates offer advice and lessons on challenge of balancing a newborn and NHL playoff hockey.`\
 https://nytimes.com/athletic/6335099/2025/05/05/maple-leafs-mitch-marner-dad-nhl-playoffs/
-
-**The first Monday in May is here. This is what we’ll be watching for.**\
-`The party is always a sight to behold, but given its theme, this year’s celebration is going to be more closely watched than usual.`\
-https://nytimes.com/live/2025/05/05/style/met-gala-2025/the-first-monday-in-may-is-here-this-is-what-well-be-watching-for
 
