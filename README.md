@@ -1,3 +1,11 @@
+**Submit your Notre Dame questions for Pete Sampson’s mailbag**\
+`Spring practice is finished, the transfer portal is closed and Notre Dame is surging on the recruiting trail. What's on your mind?`\
+https://nytimes.com/athletic/6334759/2025/05/05/notre-dame-football-mailbag-questions-19/
+
+**Trump Offers to Pay Immigrants Who Deport Themselves**\
+`The administration says the program to pay migrants $1,000 once their travel home is confirmed will save money because of how expensive it is to find, detain and deport people.`\
+https://nytimes.com/2025/05/05/us/politics/trump-immigrant-deportation-payments.html
+
 **Utah Jazz, coach Will Hardy agree to multiyear extension through 2031**\
 `Hardy, 37, has been with the Jazz for three seasons and became the franchise's ninth coach in 2022.`\
 https://nytimes.com/athletic/6334631/2025/05/05/utah-jazz-will-hardy-coach-extension/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/05/business/bessent-trump-trade-economy.html
 **All In on Asparagus**\
 `Load up on the grassy green stalks to add to lemony orzo, miso-slathered chicken and a nutty, crunchy rice bowl.`\
 https://nytimes.com/2025/05/05/dining/asparagus-recipes-for-spring.html
-
-**Her Final Wish: A Home for the Son She Never Got to Hold**\
-`Chrissie Tully gave birth to a son 76 years ago in an Irish home for single mothers, shrouded in secrecy and shame. She’s still waiting for him.`\
-https://nytimes.com/2025/05/05/world/europe/ireland-mother-baby-home-tuam-galway.html
-
-**The Rise of the ‘Crunchy Teen’ Wellness Influencer**\
-`High schoolers are appealing to other health-conscious kids online, sometimes by expressing views in line with the “Make America Healthy Again” movement.`\
-https://nytimes.com/2025/05/05/well/teen-wellness-influencer-health-maha.html
 
