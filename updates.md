@@ -1,3 +1,7 @@
+**Officer Pleads Guilty to Fatal Beating of Prisoner Seen on Camera**\
+`The corrections officer, Christopher Walrath, is one of 10 charged in the brutal beating of Robert Brooks in Marcy, N.Y. He will be sentenced to 15 years in prison.`\
+https://nytimes.com/2025/05/05/nyregion/christopher-walrath-guilty-robert-brooks.html
+
 **Maple Leafs lineup vs. Panthers: What we're seeing, watching heading into Game 1**\
 `The Leafs are keeping together the lineup that won Game 6 in Ottawa. But there are some big questions facing the team in Game 1.`\
 https://nytimes.com/athletic/6334341/2025/05/05/maple-leafs-lineup-panthers-nhl-playoffs/

@@ -1,3 +1,7 @@
+**Officer Pleads Guilty to Fatal Beating of Prisoner Seen on Camera**\
+`The corrections officer, Christopher Walrath, is one of 10 charged in the brutal beating of Robert Brooks in Marcy, N.Y. He will be sentenced to 15 years in prison.`\
+https://nytimes.com/2025/05/05/nyregion/christopher-walrath-guilty-robert-brooks.html
+
 **Maple Leafs lineup vs. Panthers: What we're seeing, watching heading into Game 1**\
 `The Leafs are keeping together the lineup that won Game 6 in Ottawa. But there are some big questions facing the team in Game 1.`\
 https://nytimes.com/athletic/6334341/2025/05/05/maple-leafs-lineup-panthers-nhl-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6330730/2025/05/05/la-kings-gm-rob-blake/
 **U.N. Court Drops Sudan’s Genocide Case Against U.A.E.**\
 `The International Court of Justice said it lacked jurisdiction after Sudan accused the United Arab Emirates of fueling genocide in the African country’s civil war.`\
 https://nytimes.com/2025/05/05/world/middleeast/un-court-sudan-genocide-uae.html
-
-**NHL playoffs second-round winners, 2025 Stanley Cup champion and more predictions**\
-`The Athletic polled its staff on who would win each second-round series, plus the conference champions, Stanley Cup winner and Conn Smythe.`\
-https://nytimes.com/athletic/6330498/2025/05/05/nhl-playoffs-2025-predictions-stanley-cup/
 
