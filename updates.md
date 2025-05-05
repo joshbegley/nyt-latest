@@ -1,3 +1,15 @@
+**The Bounce: Gregg Popovich, the NBA's GOAT coach, has retired. His impact will remain unmatched**\
+`Gregg Popovich is an incredibly important figure, and he’ll be missed on the sidelines. Zach Harper explains why he's the best coach ever`\
+https://nytimes.com/athletic/6334520/2025/05/05/gregg-popovich-spurs-coach-retire-nba-playoffs-the-bounce/
+
+**Listen: Are Manchester City now favourites to finish runners-up this season?**\
+`The Totally Football Show discusses whether Man City are now favourites to finish runners-up this season`\
+https://nytimes.com/athletic/6334176/2025/05/05/listen-manchester-city-second-totally-football-show/
+
+**Conversations and insights about the moment.**\
+``\
+https://nytimes.com/live/2025/05/05/opinion/thepoint
+
 **A Reporter Takes Pause at the Career Pause**\
 `Fed up with being overworked or unfulfilled, some young people are quitting their jobs to take “mini-retirements,” a trend that caught the eye of a Times journalist.`\
 https://nytimes.com/2025/05/05/insider/mini-retirement-trend.html
