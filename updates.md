@@ -1,3 +1,19 @@
+**The 50 Best Movies on Max Right Now**\
+`In addition to new Warner and HBO films, the streamer has a treasure trove of Golden Age classics, indie flicks and foreign films. Start with these.`\
+https://nytimes.com/2025/05/05/movies/best-movies-hbo-max.html
+
+**Trial in Bombing of U.S. Warship Is Postponed Until June 2026**\
+`The trial had been set to begin on Oct. 6, days before the 25th anniversary of the attack that killed 17 U.S. sailors on the destroyer Cole.`\
+https://nytimes.com/2025/05/05/us/politics/uss-cole-trial-postponed.html
+
+**What Jesse Winker's injury means for Brett Baty and the Mets**\
+`With designated hitter Jesse Winker dealing with what’s likely an oblique injury, infielder Brett Baty is rejoining the New York Mets from Triple A, league sources confirmed.`\
+https://nytimes.com/athletic/6335017/2025/05/05/jesse-winker-injury-brett-baty/
+
+**'It was all just a joke to them': E.M. testifies in Hockey Canada trial**\
+`Woman at the heart of the Hockey Canada trial describes feeling "very vulnerable" on the night of the alleged sexual assault. `\
+https://nytimes.com/athletic/6334552/2025/05/05/hockey-canada-sexual-assault-trial-em-testifies/
+
 **Staple: What I'm hearing about Islanders' front-office search — and what it means for Patrick Roy's future**\
 `After 13 days, it appears that the Isles' ownership group has targeted a shorter-term approach on finding a new leader.`\
 https://nytimes.com/athletic/6332929/2025/05/05/islanders-front-office-search-urgency/

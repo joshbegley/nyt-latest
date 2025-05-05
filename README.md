@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6333708/2025/05/05/barcelona-inter-arsenal-psg-nba-
 https://nytimes.com/2025/05/05/nyregion/newark-airport-delays-disruptions-issues.html
 
 **'It was all just a joke to them': E.M. testifies in Hockey Canada trial**\
-`Woman at the heart of the Hockey Canada trial describes feeling "very vulnerable" on the night of the alleged sexual assault. `\
+`The woman at the heart of the Hockey Canada trial described feeling "very vulnerable" on the night of the alleged sexual assault. `\
 https://nytimes.com/athletic/6334552/2025/05/05/hockey-canada-sexual-assault-trial-em-testifies/
 
 **States Sue Over Trump Administration Cutbacks at H.H.S.**\
