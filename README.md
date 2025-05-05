@@ -1,3 +1,7 @@
+**The Bounce: Gregg Popovich, the NBA's GOAT coach, has retired. His impact will remain unmatched**\
+`Gregg Popovich is an incredibly important figure, and he’ll be missed on the sidelines. Zach Harper explains why he's the best coach ever`\
+https://nytimes.com/athletic/6334520/2025/05/05/gregg-popovich-spurs-coach-retire-nba-playoffs-the-bounce/
+
 **Listen: Are Manchester City now favourites to finish runners-up this season?**\
 `The Totally Football Show discusses whether Man City are now favourites to finish runners-up this season`\
 https://nytimes.com/athletic/6334176/2025/05/05/listen-manchester-city-second-totally-football-show/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6333900/2025/05/05/penguins-mike-sullivan-sidney-cr
 **The Jets' Game 7 comeback win makes NHL history — and reminds us of their resilience**\
 `The Jets showed us they were a more resilient group all season. And with their series one second away from over, they pulled through again.`\
 https://nytimes.com/athletic/6333739/2025/05/05/jets-blues-nhl-game-7-comeback-win/
-
-**A Fantastical Parade of Mobile Sculptures Races Through Baltimore**\
-`The Baltimore Kinetic Sculpture Race attracts thousands of onlookers to its triathlon of wacky human-powered contraptions`\
-https://nytimes.com/card/2025/05/05/arts/baltimore-kinetic-sculpture-race
 
