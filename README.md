@@ -1,3 +1,15 @@
+**France minister apologies to Liverpool fans for 2022 UCL final blame**\
+`The 2022 final in Paris saw supporters were trapped in dangerous bottlenecks, teargassed by police and attacked by local youths.`\
+https://nytimes.com/athletic/6334549/2025/05/05/liverpool-fans-champions-league-paris-apology/
+
+**Michigan expected to suspend Sherrone Moore 2 games: Source**\
+`Moore is expected to coach Michigan's first two games before missing games against Central Michigan and Nebraska in Week 3 and Week 4.`\
+https://nytimes.com/athletic/6334454/2025/05/05/sherrone-moore-michigan-suspension-texts/
+
+**Bowden: 5 MLB trades I'd like to see in May, including deals for Ryan Helsley and Joe Ryan**\
+`Last May, the Marlins traded Luis Arraez to the Padres. Will we get another May blockbuster? Here are five May trades that could make sense.`\
+https://nytimes.com/athletic/6334062/2025/05/05/mlb-trade-scenarios-ryan-helsley-joe-ryan-luis-robert/
+
 **Browns LB Devin Bush arrested, charged with assault and harassment**\
 `Bush, a 2019 first-round pick of the Steelers, started 10 games for Cleveland last season. `\
 https://nytimes.com/athletic/6334575/2025/05/05/browns-devin-bush-arrested-assault-harassment/
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/6334287/2025/05/05/jannik-sinner-tennis-comeback-it
 **Canucks notebook: NHL Draft Lottery odds, and the Quinn Hughes pressure point**\
 `This year, the Canucks' lack of lottery luck is overwhelmingly likely to continue.`\
 https://nytimes.com/athletic/6333940/2025/05/05/canucks-nhl-draft-lottery-quinn-hughes/
-
-**At Least 3 Killed and 5 Injured in Shooting at Arizona Restaurant**\
-`Witnesses told local news stations that the shooting took place at a Cinco de Mayo event.`\
-https://nytimes.com/2025/05/05/us/glendale-arizona-shooting.html
-
-**How Well Do You Know the Life and Works of Mark Twain?**\
-`Test your memory of this prolific American author and his era.`\
-https://nytimes.com/interactive/2025/05/05/books/review/mark-twain-quiz.html
-
-**The Bounce: Gregg Popovich, the NBA's GOAT coach, has retired. His impact will remain unmatched**\
-`Gregg Popovich is an incredibly important figure, and he’ll be missed on the sidelines. Zach Harper explains why he's the best coach ever`\
-https://nytimes.com/athletic/6334520/2025/05/05/gregg-popovich-spurs-coach-retire-nba-playoffs-the-bounce/
 
