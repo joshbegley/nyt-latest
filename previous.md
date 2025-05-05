@@ -1,3 +1,11 @@
+**Jared Curtis, top quarterback in Class of 2026, commits to Georgia over Oregon**\
+`Curtis, a native of Nashville, Tenn., originally committed to Georgia in March 2024 but backed off that pledge in October.`\
+https://nytimes.com/athletic/6335253/2025/05/05/jared-curtis-football-recruiting-georgia-oregon-2/
+
+**WATCH: Stephen Curry and the Warriors have a long history of breaking Rockets' hearts**\
+`New players, same franchise. Curry and the Warriors will always be known as the team that crushed the Houston Rockets' dreams. `\
+https://nytimes.com/athletic/6335397/2025/05/05/video-warriors-rockets-history-steph-curry/
+
 **Former Judges Condemn Trump Administration’s Arrest of Wisconsin Judge**\
 `Judge Hannah C. Dugan was accused of directing an undocumented immigrant to leave through a side door while federal agents waited for him.`\
 https://nytimes.com/2025/05/05/us/judges-trump-arrest-wisconsin-judge.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6334346/2025/05/05/the-bat-x-fantasy-baseball-cheat
 **Pulitzer Prizes 2025: A Guide to the Winning Books and Finalists**\
 `“James,” by Percival Everett won the fiction prize, and Jason Roberts received the biography prize for “Every Living Thing.”`\
 https://nytimes.com/2025/05/05/books/pulitzer-prizes-books-winners-finalists.html
-
-**Taking a look at some of the most shocking finishes in sports history**\
-`A look at some out-of-your-mind endings that encapsulate how something that seemed to be lost was suddenly, and almost inexplicably, won.`\
-https://nytimes.com/athletic/6335002/2025/05/05/crazy-sports-turnarounds-history-comeback/
-
-**States Are Tightening Rules for Getting Citizen-Led Proposals on the Ballot**\
-`Florida and Arkansas both recently added restrictions to the citizen amendment process, after ballot measures to expand abortion rights were successful in other states.`\
-https://nytimes.com/2025/05/05/us/politics/citizen-proposals-state-ballot.html
 

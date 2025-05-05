@@ -1,3 +1,11 @@
+**Jared Curtis, top quarterback in Class of 2026, commits to Georgia over Oregon**\
+`Curtis, a native of Nashville, Tenn., originally committed to Georgia in March 2024 but backed off that pledge in October.`\
+https://nytimes.com/athletic/6335253/2025/05/05/jared-curtis-football-recruiting-georgia-oregon-2/
+
+**WATCH: Stephen Curry and the Warriors have a long history of breaking Rockets' hearts**\
+`New players, same franchise. Curry and the Warriors will always be known as the team that crushed the Houston Rockets' dreams. `\
+https://nytimes.com/athletic/6335397/2025/05/05/video-warriors-rockets-history-steph-curry/
+
 **Former Judges Condemn Trump Administration’s Arrest of Wisconsin Judge**\
 `Judge Hannah C. Dugan was accused of directing an undocumented immigrant to leave through a side door while federal agents waited for him.`\
 https://nytimes.com/2025/05/05/us/judges-trump-arrest-wisconsin-judge.html
