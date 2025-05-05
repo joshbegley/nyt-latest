@@ -1,3 +1,7 @@
+**Oil Prices Slide Further on Plans to Increase Supply**\
+`U.S. oil prices fell to around $56 a barrel after the OPEC Plus cartel said it would bring more oil to market.`\
+https://nytimes.com/2025/05/04/business/energy-environment/oil-prices.html
+
 **Lewis Hamilton’s team radio sass lays bare the big issue facing Ferrari in F1 2025**\
 `"Have a tea break!" Hamilton's radio jab doesn't expose a rift in the team, but there is a growing sense of urgency.`\
 https://nytimes.com/athletic/6333479/2025/05/04/lewis-hamilton-f1-miami-ferrari-radio-charles-leclerc/

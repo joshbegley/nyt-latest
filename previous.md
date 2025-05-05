@@ -1,3 +1,7 @@
+**Oil Prices Slide Further on Plans to Increase Supply**\
+`U.S. oil prices fell to around $56 a barrel after the OPEC Plus cartel said it would bring more oil to market.`\
+https://nytimes.com/2025/05/04/business/energy-environment/oil-prices.html
+
 **Crosby, MacKinnon join Team Canada roster for 2025 World Championship**\
 `Two of the NHL's biggest stars from Nova Scotia will team up again for Team Canada this month.`\
 https://nytimes.com/athletic/6333587/2025/05/04/sidney-crosby-nathan-mackinnon-team-canada-world-championship/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6333479/2025/05/04/lewis-hamilton-f1-miami-ferrari-
 **NBA playoffs results and takeaways: Pacers hand Cavs their first postseason loss**\
 `Donovan Mitchell notched his eighth straight playoff series opener with at least 30 points, but it wasn't enough.`\
 https://nytimes.com/athletic/6333389/2025/05/04/nba-playoffs-scores-takeaways-cavaliers-pacers-golden-state-rockets/
-
-**Lance McCullers Jr.'s return to mound shows Astros will need to be patient**\
-`The right-hander's first outing after a 915-day absence offers Houston little clarity on what to expect moving forward.`\
-https://nytimes.com/athletic/6333497/2025/05/04/lance-mccullers-jr-back-with-astros/
 
