@@ -1,3 +1,7 @@
+**How the Jets completed an incredible Game 7 comeback and beat the Blues: Takeaways**\
+`The Jets scored twice in the last two minutes of the third period to tie the game and then won it in double overtime to beat the Blues 4-3.`\
+https://nytimes.com/athletic/6333654/2025/05/04/nhl-playoffs-blues-jets-game-7-overtime/
+
 **Giants takeaways: Willy Adames is back. So is Kyle Harrison, and Logan Webb's four-seamer**\
 `Adames raised his season OPS by 73 points on Sunday. It's not too late to still say "it's still early."`\
 https://nytimes.com/athletic/6333255/2025/05/04/sf-giants-takeaways-willy-adames-kyle-harrison/

@@ -1,3 +1,7 @@
+**How the Jets completed an incredible Game 7 comeback and beat the Blues: Takeaways**\
+`The Jets scored twice in the last two minutes of the third period to tie the game and then won it in double overtime to beat the Blues 4-3.`\
+https://nytimes.com/athletic/6333654/2025/05/04/nhl-playoffs-blues-jets-game-7-overtime/
+
 **Giants takeaways: Willy Adames is back. So is Kyle Harrison, and Logan Webb's four-seamer**\
 `Adames raised his season OPS by 73 points on Sunday. It's not too late to still say "it's still early."`\
 https://nytimes.com/athletic/6333255/2025/05/04/sf-giants-takeaways-willy-adames-kyle-harrison/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/04/us/politics/trump-mexico-sheinbaum-cartels.html
 **10-Minute Challenge: ‘The Starry Night’ by van Gogh**\
 `We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
 https://nytimes.com/interactive/2025/05/04/upshot/ten-minute-challenge-starry-night.html
-
-**Lewis Hamilton’s team radio sass lays bare the big issue facing Ferrari in F1 2025**\
-`"Have a tea break!" Hamilton's radio jab doesn't expose a rift in the team, but there is a growing sense of urgency.`\
-https://nytimes.com/athletic/6333479/2025/05/04/lewis-hamilton-f1-miami-ferrari-radio-charles-leclerc/
 

@@ -1,3 +1,7 @@
+**Banged-up, bad-shooting Cavs have no answers for Pacers guards. Will they find them?**\
+`The more you dig into it, for more reasons than these, this series opener was a pretty bad one for top-seeded Cleveland.`\
+https://nytimes.com/athletic/6333744/2025/05/04/cavaliers-crushed-by-pacers-haliburton-nembhard/
+
 **How the Jets completed an incredible Game 7 comeback and beat the Blues: Takeaways**\
 `The Jets scored twice in the last two minutes of the third period to tie the game and then won it in double overtime to beat the Blues 4-3.`\
 https://nytimes.com/athletic/6333654/2025/05/04/nhl-playoffs-blues-jets-game-7-overtime/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/04/us/politics/trump-alcatraz-prison.html
 **Trump Says He Asked Mexico to Let U.S. Military In to Fight Cartels**\
 `President Trump confirmed on Sunday that he had raised the idea with his Mexican counterpart, Claudia Sheinbaum, who rejected it.`\
 https://nytimes.com/2025/05/04/us/politics/trump-mexico-sheinbaum-cartels.html
-
-**10-Minute Challenge: ‘The Starry Night’ by van Gogh**\
-`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
-https://nytimes.com/interactive/2025/05/04/upshot/ten-minute-challenge-starry-night.html
 
