@@ -1,3 +1,7 @@
+**L.A. Kings GM Rob Blake will not return in 2025-26**\
+`Blake had been in his roles since April 2017, but the Kings did not win a playoff round during that time.`\
+https://nytimes.com/athletic/6330730/2025/05/05/la-kings-gm-rob-blake/
+
 **U.N. Court Drops Sudan’s Genocide Case Against U.A.E.**\
 `The International Court of Justice said it lacked jurisdiction after Sudan accused the United Arab Emirates of fueling genocide in the African country’s civil war.`\
 https://nytimes.com/2025/05/05/world/middleeast/un-court-sudan-genocide-uae.html
