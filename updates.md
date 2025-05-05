@@ -1,3 +1,15 @@
+**The New York Times in Print for Monday, May 5, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/05/todays-new-york-times
+
+**DeepSeek. Temu. TikTok. China Tech Is Starting to Pull Ahead.**\
+`America must discard the belief that it is beating China in the innovation race.`\
+https://nytimes.com/2025/05/05/opinion/china-ai-deepseek-tiktok.html
+
+**‘Forever,’ Plus 7 Things to Watch on TV this Week**\
+`The Netflix show based on a Judy Blume book comes to streaming. And tune into E! for all the red-carpet looks of the Met Gala.`\
+https://nytimes.com/2025/05/05/arts/television/forever-plus-7-things-to-watch-on-tv-this-week.html
+
 **Monday Briefing**\
 `The Anti-Trump bump.`\
 https://nytimes.com/2025/05/05/briefing/trump-gaza-ukraine.html
