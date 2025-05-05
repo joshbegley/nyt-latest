@@ -1,3 +1,11 @@
+**Pakistan’s Most Powerful Man Steps Out of the Shadows to Confront India**\
+`The army chief, Gen. Syed Asim Munir, who usually works behind the scenes, has been shaping Pakistan’s tone in the crisis over Kashmir with his own tough talk.`\
+https://nytimes.com/2025/05/05/world/asia/pakistan-india-asim-munir.html
+
+**Man United might have secured Champions League football but major challenges lie ahead**\
+`It was not pretty, but United got the job done, qualifying for the Champions League for the second time in their seven-year existence`\
+https://nytimes.com/athletic/6332766/2025/05/05/manchester-united-manchester-city-womens-champions-league-qualification/
+
 **The curious case of Ruud van Nistelrooy as Leicester City manager**\
 `Van Nistelrooy's future is unclear at Leicester City - only one man will truly know what will happen, owner and chairman Khun Top`\
 https://nytimes.com/athletic/6331599/2025/05/05/ruud-van-nistelrooy-leicester-manager-future/
