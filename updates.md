@@ -1,3 +1,7 @@
+**Blues’ colossal collapse: How two 6-on-5 goals led to ‘brutal’ 2OT Game 7 loss to Jets**\
+`The Blues lost 4-3 in double-overtime in Game 7 against the Jets after giving up the game-tying goal with 2.2 seconds left in regulation.`\
+https://nytimes.com/athletic/6332729/2025/05/05/blues-jets-nhl-playoffs-game-7/
+
 **Cable Theft in Spain Disrupts Train Travel for Thousands, Officials Say**\
 `Oscar Puente, the transport minister, said “a serious act of sabotage” had brought some service to a halt, delaying service into Monday.`\
 https://nytimes.com/2025/05/05/world/europe/spain-sabotage-train-disruption.html

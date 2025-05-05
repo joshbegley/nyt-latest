@@ -1,3 +1,7 @@
+**Blues’ colossal collapse: How two 6-on-5 goals led to ‘brutal’ 2OT Game 7 loss to Jets**\
+`The Blues lost 4-3 in double-overtime in Game 7 against the Jets after giving up the game-tying goal with 2.2 seconds left in regulation.`\
+https://nytimes.com/athletic/6332729/2025/05/05/blues-jets-nhl-playoffs-game-7/
+
 **Cable Theft in Spain Disrupts Train Travel for Thousands, Officials Say**\
 `Oscar Puente, the transport minister, said “a serious act of sabotage” had brought some service to a halt, delaying service into Monday.`\
 https://nytimes.com/2025/05/05/world/europe/spain-sabotage-train-disruption.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6326443/2025/05/05/college-football-stats-offense-d
 **An analytics darling finds his home: Why Taylor Hall is a perfect fit in Carolina**\
 `Few players choose to dig deep into analytics. Taylor Hall is one of the few, and in Carolina he's found a GM of a similar mind.`\
 https://nytimes.com/athletic/6333685/2025/05/05/taylor-hall-carolina-hurricanes-analytics/
-
-**Tigers mailbag, part 1: What will the roster look like when Matt Vierling returns?**\
-`After the Tigers' 22-13 start, readers want to know how injury reinforcements will change the complexion of the roster in the coming weeks.`\
-https://nytimes.com/athletic/6333371/2025/05/05/detroit-tigers-mailbag-matt-vierling/
 
