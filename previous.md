@@ -1,40 +1,40 @@
-**Lewandowski back for Barcelona's Champions League semi-final second leg**\
-`Lewandowski suffered a left hamstring injury during Hansi Flick's side's 4-3 victory over Celta Vigo in La Liga last month.`\
-https://nytimes.com/athletic/6334093/2025/05/05/robert-lewandowski-barcelona-injury-return/
+**Why OL Donovan Jackson was a safe first-round NFL Draft pick for the Vikings**\
+`Former coaches see the ex-Ohio State lineman as a high-floor NFL prospect: "He’s going to be very, very, very successful.”`\
+https://nytimes.com/athletic/6329943/2025/05/05/donovan-jackson-vikings-nfl-draft-safe/
 
-**Commanders mailbag: Are the O-line, CB upgrades enough to catch the Eagles?**\
-`Plus, is there a veteran edge rusher Washington should consider signing after not selecting one in the draft?`\
-https://nytimes.com/athletic/6325111/2025/05/05/commanders-mailbag-nfl-draft-eagles/
+**Women’s Pro Baseball League strikes global media deal with Fremantle**\
+`The league is set to debut in spring 2026 with six teams.`\
+https://nytimes.com/athletic/6332869/2025/05/05/womens-pro-baseball-league-fremantle-assia-grazioli-venier/
 
-**The New York Times International Edition in Print for Tuesday, May 6, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/05/05/todays-new-york-times-international-edition
+**What is the future of 'College GameDay' after Lee Corso? Richard Deitsch's media mailbag**\
+`What will life be like for ESPN's College GameDay without Lee Corso? You have already seen it, says Richard Deitsch in his latest mailbag.`\
+https://nytimes.com/athletic/6296732/2025/05/05/what-is-college-gamedays-future-after-lee-corso-richard-deitschs-media-mailbag/
 
-**Inside Alexander-Arnold's Liverpool exit: Deal frustration, what he told Slot and why now?**\
-`The right-back's departure from Anfield was a long time coming — this is how and why it happened`\
-https://nytimes.com/athletic/6326837/2025/05/05/trent-alexander-arnold-liverpool-exit-inside-story/
+**Seahawks rookie camp Day 2: Nick Emmanwori's No. 3, Elijah Arroyo a 'big target'**\
+`Grey Zabel slots in at left guard, while second-rounder Nick Emmanwori spends time near the line of scrimmage in practice.`\
+https://nytimes.com/athletic/6332327/2025/05/05/seahawks-rookie-minicamp-day-2-nick-emmanwori/
 
-**Cardinal Erdo of Hungary Is a Favorite of Conservatives to Become Pope**\
-`The archbishop is a standard-bearer for those in the church who favor a return to traditional rules and doctrine after Pope Francis.`\
-https://nytimes.com/2025/05/05/world/europe/cardinal-erdo-of-hungary-is-a-favorite-of-conservatives-to-become-pope.html
+**Nationals outfielder James Wood tries to smoke every ball — and it’s working**\
+`"I just try and square it up...If I put a good swing on the ball, most of the time I'll be able to drive it for extra bases," Wood said.`\
+https://nytimes.com/athletic/6332116/2025/05/05/nationals-james-wood-hitting-approach/
 
-**How Brad Stevens' Butler days provided blueprint to build Celtics into champions**\
-`"He figured out a pattern of success," says Zach Hahn, who was coached at Butler by Celtics GM Brad Stevens.`\
-https://nytimes.com/athletic/6289633/2025/05/05/celtics-champions-nba-playoffs-brad-stevens-butler/
+**Randall Cunningham’s not scrambling anymore: How the 'Ultimate Weapon' found peace**\
+`The Eagles icon needed to flourish, then fail, then find himself.`\
+https://nytimes.com/athletic/6329652/2025/05/05/randall-cunningham-minister-eagles-football-peace/
 
-**Ranking the Falcons’ undrafted rookies, including 2024's most productive receiver**\
-`The Falcons signed 11 undrafted free agents. Here's our ranking based on their chances of making the 53-man roster or practice squad.`\
-https://nytimes.com/athletic/6327202/2025/05/05/falcons-undrafted-rookies-ranking-nick-nash/
+**2025 NHL Draft ranking: Schaefer, Misa lead Wheeler’s May top 64 list**\
+`Welcome to Scott Wheeler's May ranking of the top 64 prospects eligible for the 2025 NHL Draft.`\
+https://nytimes.com/athletic/6285044/2025/05/05/nhl-draft-2025-ranking-schaefer-misa-lottery/
 
-**Alexander-Arnold to leave Liverpool, expected to join Real Madrid**\
-`A deal for the right-back, 26, to join the La Liga side has now entered its final stages and is on course to be signed in the coming weeks.`\
-https://nytimes.com/athletic/5779177/2025/05/05/trent-alexander-arnold-real-madrid-transfer-liverpool-exit/
+**After rocky ending at Florida and 3 years on ESPN, Dan Mullen sees chance to win big at UNLV**\
+`"You could see the passion of football was still in him," UNLV's AD said, "it was just a matter of whether he wanted to do it again."`\
+https://nytimes.com/athletic/6329630/2025/05/05/dan-mullen-unlv-football-coach-espn/
 
-**Cowboys rookie minicamp: How Brian Schottenheimer plans to be 'really successful'**\
-`Relationship building is at the root of what Brian Schottenheimer wants to establish as Cowboys head coach.`\
-https://nytimes.com/athletic/6332794/2025/05/05/cowboys-rookie-minicamp-brian-schottenheimer-success/
+**What's next in the NFL? Aaron Rodgers' decision, Brock Purdy's contract, more tush-push talk**\
+`With the NFL Draft over, what are the top stories to follow in the next six weeks before the league takes a short summer break? `\
+https://nytimes.com/athletic/6326544/2025/05/05/nfl-top-stories-aaron-rodgers-brock-purdy-tush-push/
 
-**The Brashard Smith-Isiah Pacheco comparisons take back seat at Chiefs rookie reports to camp**\
-`With background as a receiver in college, Smith believes his experience will help "show who I am" in the Chiefs' running back room.`\
-https://nytimes.com/athletic/6333362/2025/05/05/chiefs-rookie-minicamp-brashard-smith/
+**Ten things I learned from reading Bill Belichick's book (and what it left out)**\
+`What stood out, from the Bill Belichick Travel Agency to the coach's unique pick for a ring tone. As for UNC, not much was addressed.`\
+https://nytimes.com/athletic/6333007/2025/05/05/bill-belichick-book-release-learned/
 
