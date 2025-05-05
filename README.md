@@ -1,5 +1,5 @@
 **Caitlin Clark's return to Iowa was a celebration for Hawkeyes fans, a boon for WNBA**\
-`WNBA teams, like the Fever, are playing exhibition games at stars' alma maters, a sign of tightening binds between college and the pros.`\
+`WNBA teams, like the Fever, are playing exhibition games at stars' alma maters, a sign of tightening links between college and the pros.`\
 https://nytimes.com/athletic/6333651/2025/05/04/caitlin-clark-iowa-indiana-fever-wnba/
 
 **Trump Says He Wants Alcatraz Restored as a Prison**\
@@ -18,8 +18,8 @@ https://nytimes.com/interactive/2025/05/04/upshot/ten-minute-challenge-starry-ni
 `"Have a tea break!" Hamilton's radio jab doesn't expose a rift in the team, but there is a growing sense of urgency`\
 https://nytimes.com/athletic/6333479/2025/05/04/lewis-hamilton-f1-miami-ferrari-radio-charles-leclerc/
 
-**NBA playoffs results and takeaways: Pacers beat Cavaliers 121-112**\
-`Donovan Mitchell notched his eighth straight playoff series opener with at least 30 points, surpassing Michael Jordan for the NBA record.`\
+**NBA playoffs results and takeaways: Pacers hand Cavs their first postseason loss**\
+`Donovan Mitchell notched his eighth straight playoff series opener with at least 30 points, but it wasn't enough.`\
 https://nytimes.com/athletic/6333389/2025/05/04/nba-playoffs-scores-takeaways-cavaliers-pacers-golden-state-rockets/
 
 **Lance McCullers Jr.'s return to mound shows Astros will need to be patient**\
