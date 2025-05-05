@@ -1,3 +1,7 @@
+**Trump Directs Federal Agencies to Reopen Alcatraz as a Prison**\
+`It has been more than six decades since Alcatraz, which sits in San Francisco Bay, operated as a prison. Today it is best known as a damp, frigid and nostalgic staple of tourist packages and children’s field trips.`\
+https://nytimes.com/video/us/politics/100000010147382/trump-alcatraz-prison-us.html
+
 **Submit your Notre Dame questions for Pete Sampson’s mailbag**\
 `Spring practice is finished, the transfer portal is closed and Notre Dame is surging on the recruiting trail. What's on your mind?`\
 https://nytimes.com/athletic/6334759/2025/05/05/notre-dame-football-mailbag-questions-19/
@@ -18,7 +22,7 @@ https://nytimes.com/athletic/6332826/2025/05/05/oilers-mcdavid-draisaitl-nhl-pla
 `A shifting perception of the United States amid President Trump’s trade war is prompting Europeans to pivot decisively away from U.S. goods and services.`\
 https://nytimes.com/2025/05/05/business/tariffs-europe-boycott-american-goods.html
 
-**Pacers' balanced effort leads to Game 1 win, showing they should not be overlooked**\
+**Pacers' balanced Game 1 effort is proof they should not be overlooked**\
 `While the series against Cleveland is far from over, Indiana’s win should put the league on notice.`\
 https://nytimes.com/athletic/6334255/2025/05/05/pacers-cavaliers-nba-playoffs-game-1-balance/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6334694/2025/05/05/atlanta-braves-outfield-ronald-a
 **Bessent Pitches Skittish Investors to Bet on Trump’s Economic Plan**\
 `The Treasury secretary urged executives and entrepreneurs to look beyond the Trump administration’s trade agenda.`\
 https://nytimes.com/2025/05/05/business/bessent-trump-trade-economy.html
-
-**All In on Asparagus**\
-`Load up on the grassy green stalks to add to lemony orzo, miso-slathered chicken and a nutty, crunchy rice bowl.`\
-https://nytimes.com/2025/05/05/dining/asparagus-recipes-for-spring.html
 

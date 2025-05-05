@@ -1,3 +1,11 @@
+**Trump Directs Federal Agencies to Reopen Alcatraz as a Prison**\
+`It has been more than six decades since Alcatraz, which sits in San Francisco Bay, operated as a prison. Today it is best known as a damp, frigid and nostalgic staple of tourist packages and children’s field trips.`\
+https://nytimes.com/video/us/politics/100000010147382/trump-alcatraz-prison-us.html
+
+**Pacers' balanced Game 1 effort is proof they should not be overlooked**\
+`While the series against Cleveland is far from over, Indiana’s win should put the league on notice.`\
+https://nytimes.com/athletic/6334255/2025/05/05/pacers-cavaliers-nba-playoffs-game-1-balance/
+
 **Submit your Notre Dame questions for Pete Sampson’s mailbag**\
 `Spring practice is finished, the transfer portal is closed and Notre Dame is surging on the recruiting trail. What's on your mind?`\
 https://nytimes.com/athletic/6334759/2025/05/05/notre-dame-football-mailbag-questions-19/
