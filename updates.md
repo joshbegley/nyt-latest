@@ -1,3 +1,7 @@
+**Commanders mailbag: Are the O-line, CB upgrades enough to catch the Eagles?**\
+`Plus, is there a veteran edge rusher Washington should consider signing after not selecting one in the draft?`\
+https://nytimes.com/athletic/6325111/2025/05/05/commanders-mailbag-nfl-draft-eagles/
+
 **The New York Times International Edition in Print for Tuesday, May 6, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/05/05/todays-new-york-times-international-edition
