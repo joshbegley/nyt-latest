@@ -1,3 +1,11 @@
+**Official Shot DoorDash Driver Who Asked for Directions, Police Say**\
+`The highway superintendent of the town of Chester, N.Y., was charged with felony assault after he opened fire on a delivery worker, the authorities said.`\
+https://nytimes.com/2025/05/05/nyregion/doordash-town-official-shooting.html
+
+**The 50 Best Movies on Max Right Now**\
+`In addition to new Warner and HBO films, the streamer has a treasure trove of Golden Age classics, indie flicks and foreign films. Start with these.`\
+https://nytimes.com/article/best-hbo-max-movies.html
+
 **NBA title odds: Thunder, Celtics projected to be on collision course**\
 `The Oklahoma City Thunder and Boston Celtics are still the clear favorites to get to the NBA Finals. Here's how the futures odds stack up.`\
 https://nytimes.com/athletic/6334814/2025/05/05/nba-championship-odds-thunder-celtics/

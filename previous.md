@@ -1,3 +1,7 @@
+**Official Shot DoorDash Driver Who Asked for Directions, Police Say**\
+`The highway superintendent of the town of Chester, N.Y., was charged with felony assault after he opened fire on a delivery worker, the authorities said.`\
+https://nytimes.com/2025/05/05/nyregion/doordash-town-official-shooting.html
+
 **NBA title odds: Thunder, Celtics projected to be on collision course**\
 `The Oklahoma City Thunder and Boston Celtics are still the clear favorites to get to the NBA Finals. Here's how the futures odds stack up.`\
 https://nytimes.com/athletic/6334814/2025/05/05/nba-championship-odds-thunder-celtics/
@@ -8,7 +12,7 @@ https://nytimes.com/athletic/6334804/2025/05/05/joey-logano-nascar-playoffs-texa
 
 **The 50 Best Movies on Max Right Now**\
 `In addition to new Warner and HBO films, the streamer has a treasure trove of Golden Age classics, indie flicks and foreign films. Start with these.`\
-https://nytimes.com/2025/05/05/movies/best-movies-hbo-max.html
+https://nytimes.com/article/best-hbo-max-movies.html
 
 **Trial in Bombing of U.S. Warship Is Postponed Until June 2026**\
 `The trial had been set to begin on Oct. 6, days before the 25th anniversary of the attack that killed 17 U.S. sailors on the destroyer Cole.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/05/nyregion/newark-airport-delays-disruptions-issues
 **'It was all just a joke to them': E.M. testifies in Hockey Canada trial**\
 `The woman at the heart of the Hockey Canada trial described feeling "very vulnerable" on the night of the alleged sexual assault. `\
 https://nytimes.com/athletic/6334552/2025/05/05/hockey-canada-sexual-assault-trial-em-testifies/
-
-**States Sue Over Trump Administration Cutbacks at H.H.S.**\
-`The lawsuit, led by New York, argues that the slashing of grants and staff at the Department of Health and Human Services amounts to the “illegal dismantling” of the agency.`\
-https://nytimes.com/2025/05/05/us/politics/states-lawsuit-trump-administration-hhs-cutbacks.html
 
