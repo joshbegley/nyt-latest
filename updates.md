@@ -1,3 +1,7 @@
+**Lewandowski back for Barcelona's Champions League semi-final second leg**\
+`Lewandowski suffered a left hamstring injury during Hansi Flick's side's 4-3 victory over Celta Vigo in La Liga last month.`\
+https://nytimes.com/athletic/6334093/2025/05/05/robert-lewandowski-barcelona-injury-return/
+
 **Commanders mailbag: Are the O-line, CB upgrades enough to catch the Eagles?**\
 `Plus, is there a veteran edge rusher Washington should consider signing after not selecting one in the draft?`\
 https://nytimes.com/athletic/6325111/2025/05/05/commanders-mailbag-nfl-draft-eagles/
