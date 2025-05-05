@@ -1,3 +1,7 @@
+**Caitlin Clark's return to Iowa was a celebration for Hawkeyes fans, a boon for WNBA**\
+`WNBA teams, like the Fever, are playing exhibition games at stars' alma maters, a sign of tightening binds between college and the pros.`\
+https://nytimes.com/athletic/6333651/2025/05/04/caitlin-clark-iowa-indiana-fever-wnba/
+
 **Trump Says He Wants Alcatraz Restored as a Prison**\
 `The project would be extraordinarily expensive at a time when the administration already plans to cut billions of dollars from the Justice Department’s budget.`\
 https://nytimes.com/2025/05/04/us/politics/trump-alcatraz-prison.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/04/podcasts/rom-com-this-american-life-nyt-audio.htm
 **Romanian Nationalist Wins First Round of Presidential Voting**\
 `George Simion bucked a recent trend of voters around the world punishing candidates seen as friendly to President Trump.`\
 https://nytimes.com/2025/05/04/world/europe/romania-election-george-simion.html
-
-**Kirill Kaprizov discusses potential contract extension with Wild: 'It should be all good’**\
-`Kaprizov said Sunday he feels good about the future in Minnesota: “Everyone wants to win. Me, too. I like everything here.”`\
-https://nytimes.com/athletic/6332889/2025/05/04/kirill-kaprizov-wild-contract-extension-nhl/
 

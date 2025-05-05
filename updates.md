@@ -1,3 +1,15 @@
+**Trump Says He Wants Alcatraz Restored as a Prison**\
+`The project would be extraordinarily expensive at a time when the administration already plans to cut billions of dollars from the Justice Department’s budget.`\
+https://nytimes.com/2025/05/04/us/politics/trump-alcatraz-prison.html
+
+**Trump Says He Asked Mexico to Let U.S. Military In to Fight Cartels**\
+`President Trump confirmed on Sunday that he had raised the idea with his Mexican counterpart, Claudia Sheinbaum, who rejected it.`\
+https://nytimes.com/2025/05/04/us/politics/trump-mexico-sheinbaum-cartels.html
+
+**10-Minute Challenge: ‘The Starry Night’ by van Gogh**\
+`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
+https://nytimes.com/interactive/2025/05/04/upshot/ten-minute-challenge-starry-night.html
+
 **Lewis Hamilton’s team radio sass lays bare the big issue facing Ferrari in F1 2025**\
 `"Have a tea break!" Hamilton's radio jab doesn't expose a rift in the team, but there is a growing sense of urgency`\
 https://nytimes.com/athletic/6333479/2025/05/04/lewis-hamilton-f1-miami-ferrari-radio-charles-leclerc/
