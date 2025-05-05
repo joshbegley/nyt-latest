@@ -1,3 +1,15 @@
+**Maple Leafs lineup vs. Panthers: What we're seeing, watching heading into Game 1**\
+`The Leafs are keeping together the lineup that won Game 6 in Ottawa. But there are some big questions facing the team in Game 1.`\
+https://nytimes.com/athletic/6334341/2025/05/05/maple-leafs-lineup-panthers-nhl-playoffs/
+
+**Trump Offers to Send U.S. Military to Fight Cartels in Mexico**\
+`President Trump said he asked Mexico’s president for permission to send U.S. troops to the country to fight drug cartels. President Claudia Sheinbaum rejected the offer and called for collaboration instead.`\
+https://nytimes.com/video/us/politics/100000010147246/trump-offers-us-military-to-fight-mexican-cartels.html
+
+**Trump on the Constitution: ‘I Don’t Know’**\
+`Readers react to President Trump’s answer when asked if he needed to uphold the Constitution. Also: Immigration questions; Meals on Wheels.`\
+https://nytimes.com/2025/05/05/opinion/trump-constitution.html
+
 **‘Thunderbolts*’ Axes the Asterisk to Market Its Surprise Title Reveal**\
 `A plot twist that comes in the movie’s final moments will now be front and center on billboards. The director Jake Schreier explains the rebrand.`\
 https://nytimes.com/2025/05/05/movies/thunderbolts-asterisk-title.html
