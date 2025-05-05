@@ -1,3 +1,11 @@
+**NHL announces Calder Trophy finalists — Who joins Lane Hutson in the top 3?**\
+`Macklin Celebrini of the San Jose Sharks, Lane Hutson of the Montreal Canadiens and Dustin Wolf of the Calgary Flames were announced on Monday as the finalists for the Calder Trophy, awarded to the NHL’s rookie of the year, as voted by the Professional Hockey Writers Association.`\
+https://nytimes.com/athletic/6332783/2025/05/05/calder-trophy-finalists-2025/
+
+**Swiss Bank Pays $510 Million Fine for Helping Clients Evade Taxes**\
+`The fallen banking giant Credit Suisse, now a part of UBS, admitted to hiding billions of dollars from the I.R.S.`\
+https://nytimes.com/2025/05/05/business/credit-suisse-fine-irs.html
+
 **Tramell Tillman’s Arrival at the Met Was Years in the Making**\
 `The actor, who plays the cheerfully menacing Mr. Milchick in “Severance,” wore a Thom Browne ensemble partly inspired by a play he saw in Chicago.`\
 https://nytimes.com/2025/05/05/style/tramell-tillman-met-gala-look-thom-browne.html
@@ -12,7 +20,7 @@ https://nytimes.com/2025/05/05/style/shah-rukh-khan-met-gala-2025-sabyasachi-muk
 
 **André Leon Talley is present at the Met Gala in spirit.**\
 `The larger-than-life former Vogue editor died in 2023 but served as inspiration for the Costume Institute show.`\
-https://nytimes.com/live/2025/05/05/style/met-gala-2025/andre-leon-talley-met-gala
+https://nytimes.com/live/2025/05/05/style/met-gala-2025-live-updates/andre-leon-talley-met-gala
 
 **Yankees' Gerrit Cole dreams of pitching again after Tommy John surgery: 'I miss playing'**\
 `Cole was once lauded for his durability. He's now been affected by elbow injuries in back-to-back seasons.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/05/us/politics/trump-harvard-research-grants.html
 **Branden Jacobs-Jenkins on Winning a Pulitzer for ‘Purpose’**\
 `“It’s the most surreal day ever,” the playwright said as he learned the news while getting ready to attend his first Met Gala.`\
 https://nytimes.com/2025/05/05/theater/branden-jacobs-jenkins-pulitzer-purpose.html
-
-**The Latest Stop on the New York Liberty’s Victory Tour? The Met Gala.**\
-`The W.N.B.A. champions Jonquel Jones, Sabrina Ionescu and Breanna Stewart worked with Sergio Hudson to create “fashion-drama-diva moments” with coordinating ensembles.`\
-https://nytimes.com/2025/05/05/style/new-york-liberty-met-gala-2025.html
-
-**What I'm seeing from the Capitals ahead of series vs. Hurricanes**\
-`The Capitals are well-rested heading into their second-round series against the Carolina Hurricanes.`\
-https://nytimes.com/athletic/6335478/2025/05/05/capitals-hurricanes-game-1-nhl-playoffs/
 
