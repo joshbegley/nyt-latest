@@ -1,3 +1,7 @@
+**Monday Briefing**\
+`The Anti-Trump bump.`\
+https://nytimes.com/2025/05/05/briefing/trump-gaza-ukraine.html
+
 **Pakistan’s Most Powerful Man Steps Out of the Shadows to Confront India**\
 `The army chief, Gen. Syed Asim Munir, who usually works behind the scenes, has been shaping Pakistan’s tone in the crisis over Kashmir with his own tough talk.`\
 https://nytimes.com/2025/05/05/world/asia/pakistan-india-asim-munir.html

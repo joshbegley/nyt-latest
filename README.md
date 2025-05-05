@@ -1,3 +1,15 @@
+**The New York Times in Print for Monday, May 5, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/05/todays-new-york-times
+
+**DeepSeek. Temu. TikTok. China Tech Is Starting to Pull Ahead.**\
+`America must discard the belief that it is beating China in the innovation race.`\
+https://nytimes.com/2025/05/05/opinion/china-ai-deepseek-tiktok.html
+
+**‘Forever,’ Plus 7 Things to Watch on TV this Week**\
+`The Netflix show based on a Judy Blume book comes to streaming. And tune into E! for all the red-carpet looks of the Met Gala.`\
+https://nytimes.com/2025/05/05/arts/television/forever-plus-7-things-to-watch-on-tv-this-week.html
+
 **Monday Briefing**\
 `The Anti-Trump bump.`\
 https://nytimes.com/2025/05/05/briefing/trump-gaza-ukraine.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/05/world/americas/lady-gaga-brazil-attack-threat.htm
 **The weekend Leeds took over Plymouth: Eddie Gray leading songs and a promotion party**\
 `Leeds faced Plymouth in their final game of the season and secured the Championship title amid a party atmosphere`\
 https://nytimes.com/athletic/6331712/2025/05/05/leeds-plymouth-promotion-eddie-gray/
-
-**Lucas Paqueta's yellow card, the tears and the support of his West Ham team-mates**\
-`Paqueta was left in tears after his yellow card against Tottenham Hotspur. His team-mates reassured him`\
-https://nytimes.com/athletic/6332429/2025/05/05/lucas-paqueta-yellow-card-tears-west-ham/
-
-**Amorim has to prioritise Europe but the risk is a humiliating 17th-placed finish**\
-`The United head coach named the club's youngest Premier League XI. That was understandable but the approach is not without risk`\
-https://nytimes.com/athletic/6332850/2025/05/05/manchester-united-ruben-amorim-brentford/
-
-**Wieffer was meant to be a key signing. Now he's fourth-choice right-back. What's going on?**\
-`Why the Dutchman's signing hasn't gone to plan this season`\
-https://nytimes.com/athletic/6332798/2025/05/05/mats-wieffer-rightback-brighton/
 
