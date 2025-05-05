@@ -1,3 +1,27 @@
+**Inside Alexander-Arnold's Liverpool exit: Deal frustration, what he told Slot and why now?**\
+`The right-back's departure from Anfield was a long time coming — this is how and why it happened`\
+https://nytimes.com/athletic/6326837/2025/05/05/trent-alexander-arnold-liverpool-exit-inside-story/
+
+**Cardinal Erdo of Hungary Is a Favorite of Conservatives to Become Pope**\
+`The archbishop is a standard-bearer for those in the church who favor a return to traditional rules and doctrine after Pope Francis.`\
+https://nytimes.com/2025/05/05/world/europe/cardinal-erdo-of-hungary-is-a-favorite-of-conservatives-to-become-pope.html
+
+**How Brad Stevens' Butler days provided blueprint to build Celtics into champions**\
+`"He figured out a pattern of success," says Zach Hahn, who was coached at Butler by Celtics GM Brad Stevens.`\
+https://nytimes.com/athletic/6289633/2025/05/05/celtics-champions-nba-playoffs-brad-stevens-butler/
+
+**Ranking the Falcons’ undrafted rookies, including 2024's most productive receiver**\
+`The Falcons signed 11 undrafted free agents. Here's our ranking based on their chances of making the 53-man roster or practice squad.`\
+https://nytimes.com/athletic/6327202/2025/05/05/falcons-undrafted-rookies-ranking-nick-nash/
+
+**Alexander-Arnold to leave Liverpool, expected to join Real Madrid**\
+`A deal for the right-back, 26, to join the La Liga side has now entered its final stages and is on course to be signed in the coming weeks.`\
+https://nytimes.com/athletic/5779177/2025/05/05/trent-alexander-arnold-real-madrid-transfer-liverpool-exit/
+
+**Cowboys rookie minicamp: How Brian Schottenheimer plans to be 'really successful'**\
+`Relationship building is at the root of what Brian Schottenheimer wants to establish as Cowboys head coach.`\
+https://nytimes.com/athletic/6332794/2025/05/05/cowboys-rookie-minicamp-brian-schottenheimer-success/
+
 **The Brashard Smith-Isiah Pacheco comparisons take back seat at Chiefs rookie reports to camp**\
 `With background as a receiver in college, Smith believes his experience will help "show who I am" in the Chiefs' running back room.`\
 https://nytimes.com/athletic/6333362/2025/05/05/chiefs-rookie-minicamp-brashard-smith/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/05/05/us/politics/eric-donald-jr-trump-family-deals.htm
 **I Brake for Robins**\
 `I wish everyone would slow down. The least we can do is to give our wild neighbors time to cross the roads we have built through the middle of their homes.`\
 https://nytimes.com/2025/05/05/opinion/spring-wildlife-safety.html
-
-**Inside Starbase, Elon Musk’s New City**\
-`On Saturday, local residents who mostly work for Elon Musk’s rocket company voted to create an official city for themselves: Starbase, Texas.`\
-https://nytimes.com/interactive/2025/05/05/us/elon-musk-starbase-texas.html
-
-**Economic Concerns Are Mounting, but the Fed Isn’t Cutting Rates Proactively**\
-`The U.S. central bank is set to reinforce its wait-and-see approach at its meeting this week as President Trump’s tariffs begin to bite.`\
-https://nytimes.com/2025/05/05/business/fed-interest-rates-economy.html
-
-**Gail Collins and Bret Stephens: A Last Conversation**\
-`After eight years of weekly chats, one more for the road.`\
-https://nytimes.com/2025/05/05/opinion/gail-collins-bret-stephens-last-conversation.html
-
-**As Iowa Farmers Plant, They Consider Rain, Rates, Tariffs and Trump**\
-`With high costs and low prices for their crops, soybean and corn farmers were already nervous as they planned for planting season this year. A big trade war isn’t helping.`\
-https://nytimes.com/2025/05/05/business/soy-farmers-struggle-with-trade-war.html
-
-**Farewell, Ye Mighty Dollar. Was Nice Knowing You.**\
-`It is suffering from a self-inflicted wound and the world is just starting to share the pain.`\
-https://nytimes.com/2025/05/05/opinion/weak-us-dollar.html
-
-**$3 Million Homes in California**\
-`A ranch house in Calabasas, a Tudor Revival in Orinda and a Craftsman in San Diego`\
-https://nytimes.com/2025/05/05/realestate/3-million-homes-in-california.html
 
