@@ -1,3 +1,15 @@
+**The Athletic college baseball Top 25: Arkansas reclaims top spot, Miami enters rankings**\
+`The Razorbacks are still two games behind Texas in the SEC, but it's hard to ignore such an emphatic sweep — even if it was in Fayetteville.`\
+https://nytimes.com/athletic/6334394/2025/05/05/college-baseball-rankings-arkansas-texas-miami/
+
+**Mailbag: What Penguins-Mike Sullivan split means for Sidney Crosby**\
+`Sullivan's departure from Pittsburgh is making for a very interesting offseason for the Penguins. Who's the right coach to replace him?`\
+https://nytimes.com/athletic/6333900/2025/05/05/penguins-mike-sullivan-sidney-crosby-mailbag/
+
+**The Jets' Game 7 comeback win makes NHL history — and reminds us of their resilience**\
+`The Jets showed us they were a more resilient group all season. And with their series one second away from over, they pulled through again.`\
+https://nytimes.com/athletic/6333739/2025/05/05/jets-blues-nhl-game-7-comeback-win/
+
 **A Fantastical Parade of Mobile Sculptures Races Through Baltimore**\
 `The Baltimore Kinetic Sculpture Race attracts thousands of onlookers to its triathlon of wacky human-powered contraptions`\
 https://nytimes.com/card/2025/05/05/arts/baltimore-kinetic-sculpture-race

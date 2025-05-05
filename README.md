@@ -1,3 +1,11 @@
+**Canadiens end-of-season notebook: Suzuki’s Olympic dreams, perspective on Laine and more**\
+`Also in this final Canadiens notebook of the season, a look at the team's pending unrestricted free agents.`\
+https://nytimes.com/athletic/6333986/2025/05/05/canadiens-nick-suzuki-patrik-laine/
+
+**Why the Met Gala's dandyism exhibition found a modern muse in Lewis Hamilton**\
+`After Sunday's Miami Grand Prix, Lewis Hamilton flew to New York for fashion and art’s biggest night.`\
+https://nytimes.com/athletic/6333616/2025/05/05/lewis-hamilton-met-gala-2025/
+
 **The Athletic college baseball Top 25: Arkansas reclaims top spot, Miami enters rankings**\
 `The Razorbacks are still two games behind Texas in the SEC, but it's hard to ignore such an emphatic sweep — even if it was in Fayetteville.`\
 https://nytimes.com/athletic/6334394/2025/05/05/college-baseball-rankings-arkansas-texas-miami/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/05/world/africa/rwanda-trump-deportees.html
 **No Corrections: May 5, 2025**\
 `No corrections appeared in print on Monday, May 5, 2025.`\
 https://nytimes.com/2025/05/05/pageoneplus/no-corrections-may-5-2025.html
-
-**Young Rockets learn tough lesson about playoff mentality, now face intriguing offseason**\
-`The Warriors' posteason experience won the day in Game 7, but Houston has nothing to be ashamed of from a breakthrough season.`\
-https://nytimes.com/athletic/6333971/2025/05/05/rockets-playoffs-game-7-warriors-future/
-
-**College baseball week in review: Arkansas back on track with dominating sweep over Texas**\
-`Could we see postseason baseball in Coral Gables, Fla.? Will we have 14 SEC teams in the NCAA Tournament?`\
-https://nytimes.com/athletic/6333707/2025/05/05/college-baseball-arkansas-texas-clemson-florida-state/
 
