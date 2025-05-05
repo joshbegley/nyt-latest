@@ -1,3 +1,7 @@
+**Lance McCullers Jr.'s return to mound shows Astros will need to be patient**\
+`The right-hander's first outing after a 915-day absence offers Houston little clarity on what to expect moving forward.`\
+https://nytimes.com/athletic/6333497/2025/05/04/lance-mccullers-jr-back-with-astros/
+
 **Yankees promote top prospect George Lombard Jr. to Double A**\
 `The Yankees are fast-tracking the shortstop. He will be the youngest player in the league when he debuts for Double-A Somerset.`\
 https://nytimes.com/athletic/6333468/2025/05/04/yankees-prospect-george-lombard-promoted/
