@@ -1,3 +1,7 @@
+**The Jets' Game 7 comeback win makes NHL history — and reminds us of their resilience**\
+`The Jets showed us they were a more resilient group all season. And with their series one second away from over, they pulled through again.`\
+https://nytimes.com/athletic/6333739/2025/05/05/jets-blues-nhl-game-7-comeback-win/
+
 **A Fantastical Parade of Mobile Sculptures Races Through Baltimore**\
 `The Baltimore Kinetic Sculpture Race attracts thousands of onlookers to its triathlon of wacky human-powered contraptions`\
 https://nytimes.com/card/2025/05/05/arts/baltimore-kinetic-sculpture-race
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6333977/2025/05/05/buddy-hield-warriors-rockets-gam
 **What Alexander-Arnold would bring to Real Madrid**\
 `Alexander-Arnold finally looks set to join Real Madrid this summer. How significant could it be on the pitch?`\
 https://nytimes.com/athletic/6326850/2025/05/05/trent-alexander-arnold-real-madrid-analysis/
-
-**Minnesota nice will go out the window when Jimmy Butler, Draymond Green come to town**\
-`Wolves fans still resent the way Butler left the franchise and how Green has trash-talked them. Expect vitriol when this series tips off.`\
-https://nytimes.com/athletic/6333760/2025/05/05/jimmy-butler-draymond-green-timberwolves-warriors-playoffs/
 
