@@ -1,3 +1,15 @@
+**What will the Senators’ offseason look like? Here is Steve Staios’ to-do list**\
+`The Athletic breaks down some of the high-profile items on the general manager's to-do list this summer.`\
+https://nytimes.com/athletic/6332030/2025/05/05/senators-steve-staios-offseason/
+
+**New York Islanders win NHL Draft Lottery after jumping up 9 spots**\
+`The Islanders had a 3.5 percent chance to win the lottery — then did.`\
+https://nytimes.com/athletic/6334836/2025/05/05/islanders-nhl-draft-lottery-results/
+
+**Signal Clone Used by Waltz Suspends Service After ‘Security Incident’**\
+`The clone, TeleMessage, was the subject of a reported hack in which the contents of some direct messages and group chats were stolen.`\
+https://nytimes.com/2025/05/05/us/politics/signal-clone-telemessage-waltz-security-breach.html
+
 **Hegseth Orders 20 Percent Cut in Four-Star Officers**\
 `Defense Secretary Pete Hegseth has already fired a raft of military leaders, many of them women and people of color, including the chairman of the Joint Chiefs of Staff.`\
 https://nytimes.com/2025/05/05/us/politics/pete-hegseth-military-cuts.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/05/style/shah-rukh-khan-met-gala-2025-sabyasachi-muk
 **André Leon Talley is present at the Met Gala in spirit.**\
 `The larger-than-life former Vogue editor died in 2023 but served as inspiration for the Costume Institute show.`\
 https://nytimes.com/live/2025/05/05/style/met-gala-2025-live-updates/andre-leon-talley-met-gala
-
-**Yankees' Gerrit Cole dreams of pitching again after Tommy John surgery: 'I miss playing'**\
-`Cole was once lauded for his durability. He's now been affected by elbow injuries in back-to-back seasons.`\
-https://nytimes.com/athletic/6335366/2025/05/05/yankees-gerrit-cole-tommy-john-recovery-return/
-
-**The Canadiens took a big step — and they're still in the same place**\
-`Jeff Gorton and Kent Hughes are happy with how competitive the Canadiens were this season, but they remain in a team-building phase. `\
-https://nytimes.com/athletic/6335646/2025/05/05/canadiens-nhl-offseason-free-agency/
-
-**Trump Administration Disqualifies Harvard From Future Research Grants**\
-`A letter from Linda McMahon, the education secretary, said university leaders must demonstrate more responsible management before receiving additional federal grants.`\
-https://nytimes.com/2025/05/05/us/politics/trump-harvard-research-grants.html
 

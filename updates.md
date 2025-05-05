@@ -1,5 +1,9 @@
 **Hegseth Orders 20 Percent Cut in Four-Star Officers**\
 `Defense Secretary Pete Hegseth has already fired a raft of military leaders, many of them women and people of color, including the chairman of the Joint Chiefs of Staff.`\
+https://nytimes.com/2025/05/05/us/politics/pete-hegseth-military-cuts.html
+
+**Hegseth Orders 20 Percent Cut in Four-Star Officers**\
+`Defense Secretary Pete Hegseth has already fired a raft of military leaders, many of them women and people of color, including the chairman of the Joint Chiefs of Staff.`\
 https://nytimes.com/2025/05/05/us/politics/hegseth-orders-20-percent-cut-in-four-star-officers.html
 
 **Trump Administration Disqualifies Harvard From Future Research Grants**\
