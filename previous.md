@@ -1,3 +1,15 @@
+**Headlines from The New York Times for Monday, May 5, 2025**\
+``\
+https://nytimes.com/issue/todaysheadlines/2025/05/05/todays-headlines
+
+**How New York City Routinely Fails to Pay the Nonprofits It Relies On**\
+`The city owes at least $1 billion to nonprofits for more than 7,000 unpaid invoices, according to a new report. The organizations provide critical services to vulnerable New Yorkers.`\
+https://nytimes.com/2025/05/05/nyregion/new-york-city-nonprofits.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/05/05/crosswords/spelling-bee-forum.html
+
 **Word of the Day: serendipitous**\
 `This word has appeared in 63 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/05/05/learning/word-of-the-day-serendipitous.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/05/world/asia/pakistan-india-asim-munir.html
 **Man United might have secured Champions League football but major challenges lie ahead**\
 `It was not pretty, but United got the job done, qualifying for the Champions League for the second time in their seven-year existence`\
 https://nytimes.com/athletic/6332766/2025/05/05/manchester-united-manchester-city-womens-champions-league-qualification/
-
-**The curious case of Ruud van Nistelrooy as Leicester City manager**\
-`Van Nistelrooy's future is unclear at Leicester City - only one man will truly know what will happen, owner and chairman Khun Top`\
-https://nytimes.com/athletic/6331599/2025/05/05/ruud-van-nistelrooy-leicester-manager-future/
-
-**Mentality, identity tweak and finding killer touch: How Forest can get back to their best**\
-`While last Monday's defeat prompted panic, it’s still a remarkable season in which Forest can still qualify for the Champions League`\
-https://nytimes.com/athletic/6330873/2025/05/05/nottingham-forest-form-analysis-champions-league/
-
-**Planned Attack on Lady Gaga Concert in Brazil Is Foiled, Police Say**\
-`Her free concert on Rio de Janeiro’s Copacabana Beach was not disrupted. The police said a group had planned to attack it with improvised explosives.`\
-https://nytimes.com/2025/05/05/world/americas/lady-gaga-brazil-attack-threat.html
 

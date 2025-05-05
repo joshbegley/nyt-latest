@@ -1,3 +1,15 @@
+**Headlines from The New York Times for Monday, May 5, 2025**\
+``\
+https://nytimes.com/issue/todaysheadlines/2025/05/05/todays-headlines
+
+**How New York City Routinely Fails to Pay the Nonprofits It Relies On**\
+`The city owes at least $1 billion to nonprofits for more than 7,000 unpaid invoices, according to a new report. The organizations provide critical services to vulnerable New Yorkers.`\
+https://nytimes.com/2025/05/05/nyregion/new-york-city-nonprofits.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/05/05/crosswords/spelling-bee-forum.html
+
 **Word of the Day: serendipitous**\
 `This word has appeared in 63 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/05/05/learning/word-of-the-day-serendipitous.html
