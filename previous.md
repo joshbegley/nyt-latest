@@ -1,3 +1,23 @@
+**Trump Administration Disqualifies Harvard From Future Research Grants**\
+`A letter from Linda McMahon, the education secretary, said the college leaders must demonstrate more responsible management of the university before receiving additional federal grants.`\
+https://nytimes.com/live/2025/05/05/us/trump-news/trump-harvard-research-grants
+
+**Branden Jacobs-Jenkins on Winning a Pulitzer for ‘Purpose’**\
+`“It’s the most surreal day ever,” the playwright said as he learned the news while getting ready to attend his first Met Gala.`\
+https://nytimes.com/2025/05/05/theater/branden-jacobs-jenkins-pulitzer-purpose.html
+
+**The Latest Stop on the New York Liberty’s Victory Tour? The Met Gala.**\
+`The W.N.B.A. champions Jonquel Jones, Sabrina Ionescu and Breanna Stewart worked with Sergio Hudson to create “fashion-drama-diva moments” with coordinating ensembles.`\
+https://nytimes.com/2025/05/05/style/new-york-liberty-met-gala-2025.html
+
+**What I'm seeing from the Capitals ahead of series vs. Hurricanes**\
+`The Capitals are well-rested heading into their second-round series against the Carolina Hurricanes.`\
+https://nytimes.com/athletic/6335478/2025/05/05/capitals-hurricanes-game-1-nhl-playoffs/
+
+**Padres' Jackson Merrill expected to come off injured list Tuesday**\
+`Merrill's expected return would come as a sizable boost for a Padres team that more than survived a recent wave of injuries.`\
+https://nytimes.com/athletic/6335153/2025/05/05/padres-jackson-merrill-expected-to-come-off-injured-list/
+
 **Trump Called for Movie Tariffs After a Meeting With Jon Voight**\
 `The president’s call for tariffs caused confusion in Hollywood, which has seen a steep drop-off in local film and television production.`\
 https://nytimes.com/2025/05/05/movies/tariffs-trump-voight.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/05/05/briefing/israel-gaza-plan-trump-migrants-self-dep
 **Ravens release kicker Justin Tucker after 13 seasons**\
 `Baltimore GM Eric DeCosta and coach John Harbaugh referred to the release as a "football decision."`\
 https://nytimes.com/athletic/6335452/2025/05/05/baltimore-ravens-justin-tucker-release/
-
-**18 States Sue Over Trump’s Halting of Wind Power Projects**\
-`The halt threatens jobs and holds back energy production at a time the president has claimed an “energy emergency,” state attorneys general said.`\
-https://nytimes.com/2025/05/05/climate/lawsuit-wind-power-halt-trump-energy-emergency.html
-
-**Attorney in House vs. NCAA case calls potential Trump order 'Unhelpful'**\
-`With settlement on system to pay college athletes near, lawyer criticizes Saban for “eleventh-hour self importance.”`\
-https://nytimes.com/athletic/6335582/2025/05/05/trump-saban-house-vs-ncaa-nil/
-
-**Steelers post-draft mailbag: Submit your questions to Mike DeFabo**\
-`The Steelers have a new rookie class, and Aaron Rodgers remains a free agent. What's on your mind? Mike DeFabo is here to offer answers.`\
-https://nytimes.com/athletic/6335580/2025/05/05/steelers-nfl-draft-2025-mailbag-mike-defabo/
-
-**'Love and respect': Why Marc-Andre Fleury's impact on Wild culture will live on after his retirement**\
-`Fleury gave his final exit interview Monday, and teammates spoke to his legacy. Brock Faber: "God, he had so much fun playing this game."`\
-https://nytimes.com/athletic/6334752/2025/05/05/marc-andre-fleury-wild-culture-retirement/
-
-**Why Isn’t LeBron James at the Met Gala?**\
-`Mr. James, the honorary chair of the gala, announced on X that he would no longer appear at the event.`\
-https://nytimes.com/2025/05/05/style/met-gala-2025-lebron-james.html
 
