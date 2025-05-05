@@ -1,3 +1,19 @@
+**NWSL issues disciplinary actions to Louisville's Borges and Spirit's Giráldez**\
+`The player and coach were found by the NWSL to have violated league rules beyond its initial judgements.`\
+https://nytimes.com/athletic/6335121/2025/05/05/nwsl-racing-louisville-washington-spirit-borges-giraldez/
+
+**At Least 3 Dead After Boat Overturns Near San Diego**\
+`The authorities said 17 life jackets were found but it was unknown how many people were aboard. Search and rescue efforts were suspended Monday morning.`\
+https://nytimes.com/2025/05/05/us/san-diego-boat-overturned.html
+
+**Sudan on Fire**\
+`Declan Walsh and the staff of The New York Times, won the international reporting prize for, at great peril, revealing the horrific consequences of Sudan’s civil war, one of the worst humanitarian crises in the world last year yet much ignored, and secretly driven by foreign leaders jockeying for power and profit.`\
+https://nytimes.com/spotlight/sudan-on-fire
+
+**Baltimore’s Overdose Crisis**\
+`Alissa Zhu, Nick Thieme and Jessica Gallagher, reporters for The Baltimore Banner working with The Times’s Local Investigations team, won the local reporting prize for illuminating the worst drug overdose crisis in U.S. history, in Baltimore, triggered by fentanyl but exacerbated by some treatment providers’ exploitative practices, one generation’s lifelong struggle with drugs and city leaders’ failure to forcefully respond.`\
+https://nytimes.com/spotlight/baltimores-overdose-crisis
+
 **How to watch the Yankees at Padres series: Aaron Judge's team hosts surging San Diego**\
 `Two of the best teams in baseball battle in the Bronx. Aaron Judge starts the week leading MLB in batting average, OBP and slugging.`\
 https://nytimes.com/athletic/6335047/2025/05/05/yankees-padres-how-to-watch/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/05/05/opinion/taking-the-measure-of-warren-buffett.html
 **2025 Stanley Cup odds: Panthers, Hurricanes lead the way in tight group of contenders**\
 `Florida and Carolina are at the top of a crowded Stanley Cup odds board ahead of the second round of the NHL playoffs.`\
 https://nytimes.com/athletic/6335042/2025/05/05/2025-stanley-cup-odds-panthers-hurricanes/
-
-**OpenAI Backtracks on Plans to Drop Nonprofit Control**\
-`The company will become a public benefit corporation and the nonprofit that has controlled it will be its largest shareholder.`\
-https://nytimes.com/2025/05/05/technology/openai-nonprofit.html
-
-**‘The United States vs Ulysses’ Review: The Case That Won’t Go Away**\
-`When James Joyce’s masterpiece faced banning, the American justice system came to the rescue. A new play wonders if it would today.`\
-https://nytimes.com/2025/05/05/theater/the-united-states-vs-ulysses-review-the-case-that-wont-go-away.html
-
-**Israel Bombs Yemen After Houthi Missile Struck Near Tel Aviv Airport**\
-`On Sunday, a Houthi ballistic missile evaded Israel’s multilayered aerial defenses and landed near Ben-Gurion International Airport.`\
-https://nytimes.com/2025/05/05/world/middleeast/israel-yemen-houthis-tel-aviv.html
-
-**Brian Kemp Won’t Run for Senate in Georgia, Giving Ossoff a Lift**\
-`The popular two-term governor of Georgia had been seen as the strongest potential Republican challenger to Senator Jon Ossoff, a Democrat.`\
-https://nytimes.com/2025/05/05/us/politics/brian-kemp-senate-georgia-jon-ossoff.html
 
