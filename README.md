@@ -1,3 +1,7 @@
+**Minnesota nice will go out the window when Jimmy Butler, Draymond Green come to town**\
+`Wolves fans still resent the way Butler left the franchise and how Green has trash-talked them. Expect vitriol when this series tips off.`\
+https://nytimes.com/athletic/6333760/2025/05/05/jimmy-butler-draymond-green-timberwolves-warriors-playoffs/
+
 **What Buffett’s Exit Means**\
 `Tens of thousands were on hand to see the billionaire announce his plans to retire. Their attention is already focusing on what is next for the conglomerate he built.`\
 https://nytimes.com/2025/05/05/business/dealbook/what-buffetts-exit-means.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6333197/2025/05/05/nhl-draft-lottery-power-rankings
 **The Athletic FC: Why Alexander-Arnold is leaving Liverpool, Kane wins a trophy, and Vardy steps in for an injured referee**\
 `Today in TAFC: Inside Alexander-Arnold's departure from Anfield, Kane wins the Bundesliga with Bayern Munich and Vardy's comedy whistle `\
 https://nytimes.com/athletic/6334228/2025/05/05/athletic-fc-trent-alexander-arnold-harry-kane-jamie-vardy/
-
-**President Trump to announce Washington D.C. as 2027 NFL Draft host: Source**\
-`The announcement will come a week after D.C. Mayor Muriel Bowser announced that the Washington Commanders will return to the city.`\
-https://nytimes.com/athletic/6333892/2025/05/05/nfl-draft-2027-host-washington-president-trump/
 
