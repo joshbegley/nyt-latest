@@ -1,3 +1,19 @@
+**NWSL issues disciplinary actions to Louisville's Borges and Spirit's Giráldez**\
+`The player and coach were found by the NWSL to have violated league rules beyond its initial judgements.`\
+https://nytimes.com/athletic/6335121/2025/05/05/nwsl-racing-louisville-washington-spirit-borges-giraldez/
+
+**At Least 3 Dead After Boat Overturns Near San Diego**\
+`The authorities said 17 life jackets were found but it was unknown how many people were aboard. Search and rescue efforts were suspended Monday morning.`\
+https://nytimes.com/2025/05/05/us/san-diego-boat-overturned.html
+
+**Sudan on Fire**\
+`Declan Walsh and the staff of The New York Times, won the international reporting prize for, at great peril, revealing the horrific consequences of Sudan’s civil war, one of the worst humanitarian crises in the world last year yet much ignored, and secretly driven by foreign leaders jockeying for power and profit.`\
+https://nytimes.com/spotlight/sudan-on-fire
+
+**Baltimore’s Overdose Crisis**\
+`Alissa Zhu, Nick Thieme and Jessica Gallagher, reporters for The Baltimore Banner working with The Times’s Local Investigations team, won the local reporting prize for illuminating the worst drug overdose crisis in U.S. history, in Baltimore, triggered by fentanyl but exacerbated by some treatment providers’ exploitative practices, one generation’s lifelong struggle with drugs and city leaders’ failure to forcefully respond.`\
+https://nytimes.com/spotlight/baltimores-overdose-crisis
+
 **How to watch the Yankees at Padres series: Aaron Judge's team hosts surging San Diego**\
 `Two of the best teams in baseball battle in the Bronx. Aaron Judge starts the week leading MLB in batting average, OBP and slugging.`\
 https://nytimes.com/athletic/6335047/2025/05/05/yankees-padres-how-to-watch/

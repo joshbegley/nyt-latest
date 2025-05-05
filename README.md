@@ -1,3 +1,11 @@
+**‘I’m a Little Nervous Today’: Jury Selection in Sean Combs Trial Begins**\
+`Mr. Combs has pleaded not guilty to charges of racketeering and sex trafficking. Potential jurors were asked about their exposure to details of the accusations.`\
+https://nytimes.com/2025/05/05/arts/music/diddy-trial-sex-trafficking-jury-selection.html
+
+**The Trump Shooting**\
+`Doug Mills, who has covered presidents for four decades, took the now-famous photo of Donald Trump as a bullet streaked past at a campaign rally, and, rather than ducking himself, captured Trump’s reaction.`\
+https://nytimes.com/spotlight/the-trump-shooting
+
 **NWSL issues disciplinary actions to Louisville's Borges and Spirit's Giráldez**\
 `The player and coach were found by the NWSL to have violated league rules beyond its initial judgements.`\
 https://nytimes.com/athletic/6335121/2025/05/05/nwsl-racing-louisville-washington-spirit-borges-giraldez/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/05/dining/mother-child-restaurants.html
 **Breaking News Photography**\
 `Doug Mills, who has covered presidents for four decades, took the now-famous photo of Donald Trump as a bullet streaked past at a campaign rally, and, rather than ducking himself, captured Trump’s reaction.`\
 https://nytimes.com/slideshow/2025/05/05/us/politics/breaking-news-photography.html
-
-**Taking the Measure of Warren Buffett**\
-`Where in Congress, the media or government is a leader of such principle?`\
-https://nytimes.com/2025/05/05/opinion/taking-the-measure-of-warren-buffett.html
-
-**2025 Stanley Cup odds: Panthers, Hurricanes lead the way in tight group of contenders**\
-`Florida and Carolina are at the top of a crowded Stanley Cup odds board ahead of the second round of the NHL playoffs.`\
-https://nytimes.com/athletic/6335042/2025/05/05/2025-stanley-cup-odds-panthers-hurricanes/
 
