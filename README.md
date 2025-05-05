@@ -1,4 +1,4 @@
-**Banged-up, bad-shooting Cavs have no answers for Pacers guards. Will they find them?**\
+**Banged-up, bad-shooting Cavs had no answers for Pacers guards. Will they find them?**\
 `The more you dig into it, for more reasons than these, this series opener was a pretty bad one for top-seeded Cleveland.`\
 https://nytimes.com/athletic/6333744/2025/05/04/cavaliers-crushed-by-pacers-haliburton-nembhard/
 
