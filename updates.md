@@ -1,3 +1,11 @@
+**Why Isn’t LeBron James at the Met Gala?**\
+`Mr. James, the honorary chair of the gala, announced on X that he would no longer appear at the event.`\
+https://nytimes.com/2025/05/05/style/met-gala-2025-lebron-james.html
+
+**Behind the camera, a darling of Vogue. In front: Black dandies in their finest.**\
+`To create a “Portrait of the Modern Dandy” for its doorstop of an exhibition catalog, the Met enlisted the superstar photographer Tyler Mitchell.`\
+https://nytimes.com/live/2025/05/05/style/met-gala-2025/behind-the-camera-a-darling-of-vogue-in-front-black-dandies-in-their-finest
+
 **Jared Curtis, top quarterback in Class of 2026, commits to Georgia over Oregon**\
 `Curtis, a native of Nashville, Tenn., originally committed to Georgia in March 2024 but backed off that pledge in October.`\
 https://nytimes.com/athletic/6335253/2025/05/05/jared-curtis-football-recruiting-georgia-oregon-2/
