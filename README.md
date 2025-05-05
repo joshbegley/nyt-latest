@@ -1,3 +1,7 @@
+**Word of the Day: serendipitous**\
+`This word has appeared in 63 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/05/05/learning/word-of-the-day-serendipitous.html
+
 **The New York Times in Print for Monday, May 5, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/05/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6330873/2025/05/05/nottingham-forest-form-analysis-
 **Planned Attack on Lady Gaga Concert in Brazil Is Foiled, Police Say**\
 `Her free concert on Rio de Janeiro’s Copacabana Beach was not disrupted. The police said a group had planned to attack it with improvised explosives.`\
 https://nytimes.com/2025/05/05/world/americas/lady-gaga-brazil-attack-threat.html
-
-**The weekend Leeds took over Plymouth: Eddie Gray leading songs and a promotion party**\
-`Leeds faced Plymouth in their final game of the season and secured the Championship title amid a party atmosphere`\
-https://nytimes.com/athletic/6331712/2025/05/05/leeds-plymouth-promotion-eddie-gray/
 
