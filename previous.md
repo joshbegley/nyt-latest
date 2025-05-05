@@ -1,3 +1,7 @@
+**Dodger Details: Hyeseong Kim's electrifying base running and more**\
+`Plus, struggling Michael Conforto is hitless in his past 29 at-bats. Might the Dodgers consider giving him a day off?`\
+https://nytimes.com/athletic/6333772/2025/05/04/dodgers-hyseseongk-kim-michael-conforto/
+
 **Banged-up, bad-shooting Cavs had no answers for Pacers guards. Will they find them?**\
 `The more you dig into it, for more reasons than these, this series opener was a pretty bad one for top-seeded Cleveland.`\
 https://nytimes.com/athletic/6333744/2025/05/04/cavaliers-crushed-by-pacers-haliburton-nembhard/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6333651/2025/05/04/caitlin-clark-iowa-indiana-fever
 **Trump Says He Wants Alcatraz Restored as a Prison**\
 `The project would be extraordinarily expensive at a time when the administration already plans to cut billions of dollars from the Justice Department’s budget.`\
 https://nytimes.com/2025/05/04/us/politics/trump-alcatraz-prison.html
-
-**Trump Says He Asked Mexico to Let U.S. Military In to Fight Cartels**\
-`President Trump confirmed on Sunday that he had raised the idea with his Mexican counterpart, Claudia Sheinbaum, who rejected it.`\
-https://nytimes.com/2025/05/04/us/politics/trump-mexico-sheinbaum-cartels.html
 

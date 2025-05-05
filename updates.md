@@ -1,3 +1,7 @@
+**Dodger Details: Hyeseong Kim's electrifying base running and more**\
+`Plus, struggling Michael Conforto is hitless in his past 29 at-bats. Might the Dodgers consider giving him a day off?`\
+https://nytimes.com/athletic/6333772/2025/05/04/dodgers-hyseseongk-kim-michael-conforto/
+
 **Banged-up, bad-shooting Cavs had no answers for Pacers guards. Will they find them?**\
 `The more you dig into it, for more reasons than these, this series opener was a pretty bad one for top-seeded Cleveland.`\
 https://nytimes.com/athletic/6333744/2025/05/04/cavaliers-crushed-by-pacers-haliburton-nembhard/
