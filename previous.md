@@ -1,3 +1,7 @@
+**NHL Draft Lottery power rankings: Who needs it, who deserves it, who might trade it?**\
+`With eight teams still in the playoffs, it's time for the bottom half of the league to turn their attention to the bingo balls.`\
+https://nytimes.com/athletic/6333197/2025/05/05/nhl-draft-lottery-power-rankings-2025/
+
 **The Athletic FC: Why Alexander-Arnold is leaving Liverpool, Kane wins a trophy, and Vardy steps in for an injured referee**\
 `Today in TAFC: Inside Alexander-Arnold's departure from Anfield, Kane wins the Bundesliga with Bayern Munich and Vardy's comedy whistle `\
 https://nytimes.com/athletic/6334228/2025/05/05/athletic-fc-trent-alexander-arnold-harry-kane-jamie-vardy/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6330944/2025/05/05/carlos-correa-struggles-twins/
 **What we learned about the eight NHL teams eliminated in Round 1**\
 `For some teams, the wrong will outweigh the right. For others, there are positive takeaways to build on. `\
 https://nytimes.com/athletic/6333395/2025/05/05/nhl-playoffs-what-we-learned-about-eliminated-teams/
-
-**C. Notes: Reds' Tyler Stephenson is back and in the swing**\
-`Plus Jose Trevino shares about his creative catching gear and Terry Francona makes sure all his relievers feel appreciated.`\
-https://nytimes.com/athletic/6333549/2025/05/05/reds-tyler-stephenson-returns-jose-trevino/
 

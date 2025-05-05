@@ -1,3 +1,7 @@
+**NHL Draft Lottery power rankings: Who needs it, who deserves it, who might trade it?**\
+`With eight teams still in the playoffs, it's time for the bottom half of the league to turn their attention to the bingo balls.`\
+https://nytimes.com/athletic/6333197/2025/05/05/nhl-draft-lottery-power-rankings-2025/
+
 **The Athletic FC: Why Alexander-Arnold is leaving Liverpool, Kane wins a trophy, and Vardy steps in for an injured referee**\
 `Today in TAFC: Inside Alexander-Arnold's departure from Anfield, Kane wins the Bundesliga with Bayern Munich and Vardy's comedy whistle `\
 https://nytimes.com/athletic/6334228/2025/05/05/athletic-fc-trent-alexander-arnold-harry-kane-jamie-vardy/
