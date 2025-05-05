@@ -1,3 +1,19 @@
+**2025 Stanley Cup odds: Panthers, Hurricanes lead the way in tight group of contenders**\
+`Florida and Carolina are at the top of a crowded Stanley Cup odds board ahead of the second round of the NHL playoffs.`\
+https://nytimes.com/athletic/6335042/2025/05/05/2025-stanley-cup-odds-panthers-hurricanes/
+
+**OpenAI Backtracks on Plans to Drop Nonprofit Control**\
+`The company will become a public benefit corporation and the nonprofit that has controlled it will be its largest shareholder.`\
+https://nytimes.com/2025/05/05/technology/openai-nonprofit.html
+
+**‘The United States vs Ulysses’ Review: The Case That Won’t Go Away**\
+`When James Joyce’s masterpiece faced banning, the American justice system came to the rescue. A new play wonders if it would today.`\
+https://nytimes.com/2025/05/05/theater/the-united-states-vs-ulysses-review-the-case-that-wont-go-away.html
+
+**Israel Bombs Yemen After Houthi Missile Struck Near Tel Aviv Airport**\
+`On Sunday, a Houthi ballistic missile evaded Israel’s multilayered aerial defenses and landed near Ben-Gurion International Airport.`\
+https://nytimes.com/2025/05/05/world/middleeast/israel-yemen-houthis-tel-aviv.html
+
 **Brian Kemp Won’t Run for Senate in Georgia, Giving Ossoff a Lift**\
 `The popular two-term governor of Georgia had been seen as the strongest potential Republican challenger to Senator Jon Ossoff, a Democrat.`\
 https://nytimes.com/2025/05/05/us/politics/brian-kemp-senate-georgia-jon-ossoff.html
@@ -21,20 +37,4 @@ https://nytimes.com/interactive/2025/05/05/books/american-poetry.html
 **Bear Kills Man and Dog in Southwest Florida, Officials Say**\
 `The authorities received a report on Monday about a bear encounter in an unincorporated part of Collier County just north of Everglades City, Fla.`\
 https://nytimes.com/2025/05/05/us/florida-man-dead-bear-encounter.html
-
-**Denver Broncos mailbag: Submit your questions for beat writer Nick Kosmider**\
-`Tell us what is on your mind as the Broncos prepare to hit the field in their offseason program.`\
-https://nytimes.com/athletic/6335092/2025/05/05/denver-broncos-mailbag-submission/
-
-**Official Shot DoorDash Driver Who Asked for Directions, Police Say**\
-`The highway superintendent of the town of Chester, N.Y., was charged with felony assault after he opened fire on a delivery worker, the authorities said.`\
-https://nytimes.com/2025/05/05/nyregion/doordash-town-official-shooting.html
-
-**NBA title odds: Thunder, Celtics projected to be on collision course**\
-`The Oklahoma City Thunder and Boston Celtics are still the clear favorites to get to the NBA Finals. Here's how the futures odds stack up.`\
-https://nytimes.com/athletic/6334814/2025/05/05/nba-championship-odds-thunder-celtics/
-
-**Gluck: Joey Logano is back in the playoffs. Now he has a chance to do the funniest thing**\
-`Logano, NASCAR's most polarizing champion, won Sunday at Texas to secure a spot in the playoffs. And you know what that means.`\
-https://nytimes.com/athletic/6334804/2025/05/05/joey-logano-nascar-playoffs-texas/
 
