@@ -1,3 +1,11 @@
+**Listen: Are Manchester City now favourites to finish runners-up this season?**\
+`The Totally Football Show discusses whether Man City are now favourites to finish runners-up this season`\
+https://nytimes.com/athletic/6334176/2025/05/05/listen-manchester-city-second-totally-football-show/
+
+**Conversations and insights about the moment.**\
+``\
+https://nytimes.com/live/2025/05/05/opinion/thepoint
+
 **A Reporter Takes Pause at the Career Pause**\
 `Fed up with being overworked or unfulfilled, some young people are quitting their jobs to take “mini-retirements,” a trend that caught the eye of a Times journalist.`\
 https://nytimes.com/2025/05/05/insider/mini-retirement-trend.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6333739/2025/05/05/jets-blues-nhl-game-7-comeback-w
 **A Fantastical Parade of Mobile Sculptures Races Through Baltimore**\
 `The Baltimore Kinetic Sculpture Race attracts thousands of onlookers to its triathlon of wacky human-powered contraptions`\
 https://nytimes.com/card/2025/05/05/arts/baltimore-kinetic-sculpture-race
-
-**This Year’s Met Gala Raises the Most Money in Its History**\
-`The Met’s annual fashion party has become a fund-raising juggernaut, but the lavish event comes with a price tag of its own. How much bang does it get for its buck?`\
-https://nytimes.com/2025/05/05/style/met-gala-2025-fund-raising.html
-
-**Golden Knights prepare for 'heavyweight' Oilers, but will the animosity from 2023 return?**\
-`Vegas isn’t typically the team to initiate physicality and bad blood, but their coach believes they thrive in that type of play.`\
-https://nytimes.com/athletic/6332108/2025/05/05/golden-knights-oilers-playoffs-2025-2023/
 
