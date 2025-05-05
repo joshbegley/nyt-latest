@@ -1,3 +1,7 @@
+**Israel Believes Pounding Gaza Again Will Finish Hamas. Some Are Not So Sure.**\
+`It is not clear how adding tens of thousands of soldiers will fundamentally alter a dynamic seen over 18 months of conflict.`\
+https://nytimes.com/2025/05/05/world/europe/israel-buildup-soldiers-hamas-gaza.html
+
 **Phillies takeaways: Harper and Bohm's power outage, Walker's new role, platooning Kepler**\
 `The Phillies' first and third basemen ranked second in MLB last season with an .811 OPS but have a .664 OPS (17th) this season.`\
 https://nytimes.com/athletic/6333449/2025/05/05/phillies-bryce-harper-alec-bohm-power-stats/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6285044/2025/05/05/nhl-draft-2025-ranking-schaefer-
 **After rocky ending at Florida and 3 years on ESPN, Dan Mullen sees chance to win big at UNLV**\
 `"You could see the passion of football was still in him," UNLV's AD said, "it was just a matter of whether he wanted to do it again."`\
 https://nytimes.com/athletic/6329630/2025/05/05/dan-mullen-unlv-football-coach-espn/
-
-**What's next in the NFL? Aaron Rodgers' decision, Brock Purdy's contract, more tush-push talk**\
-`With the NFL Draft over, what are the top stories to follow in the next six weeks before the league takes a short summer break? `\
-https://nytimes.com/athletic/6326544/2025/05/05/nfl-top-stories-aaron-rodgers-brock-purdy-tush-push/
 
