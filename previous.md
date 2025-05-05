@@ -1,3 +1,11 @@
+**States Sue Over Trump Administration Cutbacks at H.H.S.**\
+`The lawsuit, led by New York, argues that the slashing of grants and staff at the Department of Health and Human Services amounts to the “illegal dismantling” of the agency.`\
+https://nytimes.com/2025/05/05/us/politics/states-lawsuit-trump-administration-hhs-cutbacks.html
+
+**Barca's radical high line - and why they won't change it anytime soon**\
+`Barca's high-risk approach comes with high rewards. Can it take them to the Champions League final?`\
+https://nytimes.com/athletic/6334637/2025/05/05/barcelona-high-line-champions-league/
+
 **Officer Pleads Guilty to Fatal Beating of Prisoner Seen on Camera**\
 `The corrections officer, Christopher Walrath, is one of 10 charged in the brutal beating of Robert Brooks in Marcy, N.Y. He will be sentenced to 15 years in prison.`\
 https://nytimes.com/2025/05/05/nyregion/christopher-walrath-guilty-robert-brooks.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6334863/2025/05/05/nhl-playoffs-red-light-stars-jet
 **Why These Five Broadway Shows Are Inspiring for America Right Now**\
 `A sense of purpose is central to surviving right now — and a great place to draw inspiration and insight is from these five Tony-nominated plays.`\
 https://nytimes.com/2025/05/05/opinion/why-these-five-broadway-shows-are-inspiring-for-america-right-now.html
-
-**L.A. Kings GM Rob Blake will not return in 2025-26**\
-`Blake had been in his roles since April 2017, but the Kings did not win a playoff round during that time.`\
-https://nytimes.com/athletic/6330730/2025/05/05/la-kings-gm-rob-blake/
-
-**U.N. Court Drops Sudan’s Genocide Case Against U.A.E.**\
-`The International Court of Justice said it lacked jurisdiction after Sudan accused the United Arab Emirates of fueling genocide in the African country’s civil war.`\
-https://nytimes.com/2025/05/05/world/middleeast/un-court-sudan-genocide-uae.html
 

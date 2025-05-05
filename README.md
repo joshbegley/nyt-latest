@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6334894/2025/05/05/aston-villa-man-city-youth-cup/
 `Did Mikko Rantanen have the best playoff period ever? Plus everything you need to know about tonight's NHL Draft Lottery.`\
 https://nytimes.com/athletic/6334863/2025/05/05/nhl-playoffs-red-light-stars-jets-draft-lottery/
 
-**Why These Five Broadway Shows Are Inspiring for America Right Now**\
+**The Broadway Play That Meets Our National Moment**\
 `A sense of purpose is central to surviving right now — and a great place to draw inspiration and insight is from these five Tony-nominated plays.`\
 https://nytimes.com/2025/05/05/opinion/why-these-five-broadway-shows-are-inspiring-for-america-right-now.html
 

@@ -1,3 +1,11 @@
+**States Sue Over Trump Administration Cutbacks at H.H.S.**\
+`The lawsuit, led by New York, argues that the slashing of grants and staff at the Department of Health and Human Services amounts to the “illegal dismantling” of the agency.`\
+https://nytimes.com/2025/05/05/us/politics/states-lawsuit-trump-administration-hhs-cutbacks.html
+
+**Barca's radical high line - and why they won't change it anytime soon**\
+`Barca's high-risk approach comes with high rewards. Can it take them to the Champions League final?`\
+https://nytimes.com/athletic/6334637/2025/05/05/barcelona-high-line-champions-league/
+
 **Officer Pleads Guilty to Fatal Beating of Prisoner Seen on Camera**\
 `The corrections officer, Christopher Walrath, is one of 10 charged in the brutal beating of Robert Brooks in Marcy, N.Y. He will be sentenced to 15 years in prison.`\
 https://nytimes.com/2025/05/05/nyregion/christopher-walrath-guilty-robert-brooks.html
