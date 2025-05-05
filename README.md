@@ -1,4 +1,20 @@
-**Ravens to release kicker Justin Tucker after 13 seasons**\
+**Trump Called for Movie Tariffs After a Meeting With Jon Voight**\
+`The president’s call for tariffs caused confusion in Hollywood, which has seen a steep drop-off in local film and television production.`\
+https://nytimes.com/2025/05/05/movies/tariffs-trump-voight.html
+
+**What We Know About Trump’s $1.5 Million-a-Head Fund-raising Dinner**\
+`The dinner is the latest high-dollar fund-raiser that MAGA Inc. has held in recent weeks.`\
+https://nytimes.com/2025/05/05/us/politics/trump-maga-inc-super-pac-dinner.html
+
+**Audra McDonald Caps a History-Making Week With a Gasp-Inducing Gown**\
+`The Broadway star, who received a record 11th Tony nomination on Thursday, wore a Harbison look inspired by the 1991 film “Daughters of the Dust.”`\
+https://nytimes.com/2025/05/05/style/audra-mcdonald-met-gala-look-daughters-of-the-dust.html
+
+**Israel Announced Plans for an ‘Intensive’ Escalation in Gaza**\
+`Also, the trial of Sean Combs began. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/05/05/briefing/israel-gaza-plan-trump-migrants-self-deport.html
+
+**Ravens release kicker Justin Tucker after 13 seasons**\
 `Baltimore GM Eric DeCosta and coach John Harbaugh referred to the release as a "football decision."`\
 https://nytimes.com/athletic/6335452/2025/05/05/baltimore-ravens-justin-tucker-release/
 
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6334752/2025/05/05/marc-andre-fleury-wild-culture-r
 **Why Isn’t LeBron James at the Met Gala?**\
 `Mr. James, the honorary chair of the gala, announced on X that he would no longer appear at the event.`\
 https://nytimes.com/2025/05/05/style/met-gala-2025-lebron-james.html
-
-**Behind the camera, a darling of Vogue. In front: Black dandies in their finest.**\
-`To create a “Portrait of the Modern Dandy” for its doorstop of an exhibition catalog, the Met enlisted the superstar photographer Tyler Mitchell.`\
-https://nytimes.com/live/2025/05/05/style/met-gala-2025/behind-the-camera-a-darling-of-vogue-in-front-black-dandies-in-their-finest
-
-**Jared Curtis, top quarterback in Class of 2026, commits to Georgia over Oregon**\
-`Curtis, a native of Nashville, Tenn., originally committed to Georgia in March 2024 but backed off that pledge in October.`\
-https://nytimes.com/athletic/6335253/2025/05/05/jared-curtis-football-recruiting-georgia-oregon-2/
-
-**WATCH: Stephen Curry and the Warriors have a long history of breaking Rockets' hearts**\
-`New players, same franchise. Curry and the Warriors will always be known as the team that crushed the Houston Rockets' dreams. `\
-https://nytimes.com/athletic/6335397/2025/05/05/video-warriors-rockets-history-steph-curry/
-
-**Former Judges Condemn Trump Administration’s Arrest of Wisconsin Judge**\
-`Judge Hannah C. Dugan was accused of directing an undocumented immigrant to leave through a side door while federal agents waited for him.`\
-https://nytimes.com/2025/05/05/us/judges-trump-arrest-wisconsin-judge.html
 
