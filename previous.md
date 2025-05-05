@@ -1,3 +1,23 @@
+**THE BAT X fantasy baseball cheat sheet: Add Ezequiel Tovar, Matthew Boyd**\
+`The Athletic and THE BAT X teamed up to offer a weekly one-stop shop for fantasy managers who don't have time to scour the metrics. `\
+https://nytimes.com/athletic/6334346/2025/05/05/the-bat-x-fantasy-baseball-cheat-sheet-ezequiel-tovar/
+
+**Pulitzer Prizes 2025: A Guide to the Winning Books and Finalists**\
+`“James,” by Percival Everett won the fiction prize, and Jason Roberts received the biography prize for “Every Living Thing.”`\
+https://nytimes.com/2025/05/05/books/pulitzer-prizes-books-winners-finalists.html
+
+**Taking a look at some of the most shocking finishes in sports history**\
+`A look at some out-of-your-mind endings that encapsulate how something that seemed to be lost was suddenly, and almost inexplicably, won.`\
+https://nytimes.com/athletic/6335002/2025/05/05/crazy-sports-turnarounds-history-comeback/
+
+**States Are Tightening Rules for Getting Citizen-Led Proposals on the Ballot**\
+`Florida and Arkansas both recently added restrictions to the citizen amendment process, after ballot measures to expand abortion rights were successful in other states.`\
+https://nytimes.com/2025/05/05/us/politics/citizen-proposals-state-ballot.html
+
+**2025 Met Gala: Red Carpet Roundup**\
+`See the looks from fashion’s biggest night. Choose, save and share six of your favorites images.`\
+https://nytimes.com/interactive/2025/05/05/style/met-gala-2025-red-carpet-looks.html
+
 **Meet the craftspeople who are shaping Black style across America every day.**\
 `From South Carolina to Los Angeles, these tailors, milliners and jewelers are leaving their mark on fashion.`\
 https://nytimes.com/live/2025/05/05/style/met-gala-2025/meet-the-craftspeople-who-are-shaping-black-style-across-america-every-day
@@ -17,24 +37,4 @@ https://nytimes.com/2025/05/05/us/politics/guantanamo-migrants-trump.html
 **Three key Cavs 'questionable' for Game 2 vs. Pacers; Atkinson criticizes refs**\
 `Darius Garland, De’Andre Hunter, Evan Mobley could miss Game 2, and Atkinson says Pacers "passed the line of physicality" in Game 1.`\
 https://nytimes.com/athletic/6335180/2025/05/05/cavaliers-injuries-game-2-pacers/
-
-**Sean Combs Was Once Celebrated at the Met Gala. He’s Now on Trial.**\
-`He was lauded by Anna Wintour, was a regular guest at the gala, and his influence on the current exhibition is undeniable.`\
-https://nytimes.com/2025/05/05/style/diddy-sean-combs-met-gala.html
-
-**Trump Denies Posting Image of Himself as Pope, Laughing Off Critics**\
-`The president suggested Catholics, who have criticized the apparently A.I.-generated image, were not offended, and said that anyone who was “can’t take a joke.”`\
-https://nytimes.com/2025/05/05/us/politics/trump-pope-photo-ai.html
-
-**Scoop City: Upcoming schedule for Shedeur Sanders, Aaron Rodgers**\
-`A look at what's next, plus Week 1 rookie starters for the AFC's top teams and your 2025 projection for Shedeur Sanders.`\
-https://nytimes.com/athletic/6335296/2025/05/05/nfl-offseason-schedule-for-shedeur-sanders-aaron-rodgers-scoop-city/
-
-**Did Cuomo’s ‘Message for Voters’ Violate Campaign Finance Rules?**\
-`Andrew M. Cuomo may have violated New York City rules by using his campaign website to instruct a friendly super PAC how to help his mayoral bid.`\
-https://nytimes.com/2025/05/05/nyregion/cuomo-super-pac-violation.html
-
-**The woman who wrote the book on Black dandyism offers a primer in 7 objects.**\
-`In the basement of the Met, Prof. Monica Miller led us on a tour of dandy fashion, from André to zoot suits.`\
-https://nytimes.com/live/2025/05/05/style/met-gala-2025/the-woman-who-wrote-the-book-on-black-dandyism-offers-a-primer-in-7-objects
 
