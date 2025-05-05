@@ -1,3 +1,11 @@
+**Tigers mailbag, part 1: What will the roster look like when Matt Vierling returns?**\
+`After the Tigers' 22-13 start, readers want to know how injury reinforcements will change the complexion of the roster in the coming weeks.`\
+https://nytimes.com/athletic/6333371/2025/05/05/detroit-tigers-mailbag-matt-vierling/
+
+**Warriors' win over the Rockets means the Jimmy Butler trade was a success**\
+`"He's worth every freaking penny," Golden State owner Joe Lacob said. "That's all I can say. He's fantastic."`\
+https://nytimes.com/athletic/6334034/2025/05/05/jimmy-butler-warriors-playoffs-trade-game-7/
+
 **Your Student Loan Questions**\
 `We asked what you wanted to know about student loans. Today, we have the answers.`\
 https://nytimes.com/2025/05/05/briefing/your-student-loan-questions.html
