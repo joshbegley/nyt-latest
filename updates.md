@@ -1,3 +1,7 @@
+**A Fantastical Parade of Mobile Sculptures Races Through Baltimore**\
+`The Baltimore Kinetic Sculpture Race attracts thousands of onlookers to its triathlon of wacky human-powered contraptions`\
+https://nytimes.com/card/2025/05/05/arts/baltimore-kinetic-sculpture-race
+
 **This Year’s Met Gala Raises the Most Money in Its History**\
 `The Met’s annual fashion party has become a fund-raising juggernaut, but the lavish event comes with a price tag of its own. How much bang does it get for its buck?`\
 https://nytimes.com/2025/05/05/style/met-gala-2025-fund-raising.html

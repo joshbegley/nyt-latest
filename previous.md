@@ -1,3 +1,7 @@
+**A Fantastical Parade of Mobile Sculptures Races Through Baltimore**\
+`The Baltimore Kinetic Sculpture Race attracts thousands of onlookers to its triathlon of wacky human-powered contraptions`\
+https://nytimes.com/card/2025/05/05/arts/baltimore-kinetic-sculpture-race
+
 **This Year’s Met Gala Raises the Most Money in Its History**\
 `The Met’s annual fashion party has become a fund-raising juggernaut, but the lavish event comes with a price tag of its own. How much bang does it get for its buck?`\
 https://nytimes.com/2025/05/05/style/met-gala-2025-fund-raising.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6326850/2025/05/05/trent-alexander-arnold-real-madr
 **Minnesota nice will go out the window when Jimmy Butler, Draymond Green come to town**\
 `Wolves fans still resent the way Butler left the franchise and how Green has trash-talked them. Expect vitriol when this series tips off.`\
 https://nytimes.com/athletic/6333760/2025/05/05/jimmy-butler-draymond-green-timberwolves-warriors-playoffs/
-
-**What Buffett’s Exit Means**\
-`Tens of thousands were on hand to see the billionaire announce his plans to retire. Their attention is already focusing on what is next for the conglomerate he built.`\
-https://nytimes.com/2025/05/05/business/dealbook/what-buffetts-exit-means.html
 
