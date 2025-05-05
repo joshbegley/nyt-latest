@@ -1,3 +1,11 @@
+**Tigers mailbag, part 1: What will the roster look like when Matt Vierling returns?**\
+`After the Tigers' 22-13 start, readers want to know how injury reinforcements will change the complexion of the roster in the coming weeks.`\
+https://nytimes.com/athletic/6333371/2025/05/05/detroit-tigers-mailbag-matt-vierling/
+
+**Warriors' win over the Rockets means the Jimmy Butler trade was a success**\
+`"He's worth every freaking penny," Golden State owner Joe Lacob said. "That's all I can say. He's fantastic."`\
+https://nytimes.com/athletic/6334034/2025/05/05/jimmy-butler-warriors-playoffs-trade-game-7/
+
 **Your Student Loan Questions**\
 `We asked what you wanted to know about student loans. Today, we have the answers.`\
 https://nytimes.com/2025/05/05/briefing/your-student-loan-questions.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/05/world/europe/israel-buildup-soldiers-hamas-gaza.h
 **Phillies takeaways: Harper and Bohm's power outage, Walker's new role, platooning Kepler**\
 `The Phillies' first and third basemen ranked second in MLB last season with an .811 OPS but have a .664 OPS (17th) this season.`\
 https://nytimes.com/athletic/6333449/2025/05/05/phillies-bryce-harper-alec-bohm-power-stats/
-
-**Why OL Donovan Jackson was a safe first-round NFL Draft pick for the Vikings**\
-`Former coaches see the ex-Ohio State lineman as a high-floor NFL prospect: "He’s going to be very, very, very successful.”`\
-https://nytimes.com/athletic/6329943/2025/05/05/donovan-jackson-vikings-nfl-draft-safe/
-
-**Women’s Pro Baseball League strikes global media deal with Fremantle**\
-`The league is set to debut in spring 2026 with six teams.`\
-https://nytimes.com/athletic/6332869/2025/05/05/womens-pro-baseball-league-fremantle-assia-grazioli-venier/
 

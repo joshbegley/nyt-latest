@@ -1,3 +1,11 @@
+**Your Student Loan Questions**\
+`We asked what you wanted to know about student loans. Today, we have the answers.`\
+https://nytimes.com/2025/05/05/briefing/your-student-loan-questions.html
+
+**French Police Rescue Kidnapped Father of Crypto Entrepreneur**\
+`The Paris prosecutor’s office said seven people had been arrested in connection with the abduction last week. It did not name the freed captive or his son.`\
+https://nytimes.com/2025/05/05/world/europe/france-crypto-kidnap-father-rescue.html
+
 **This Week in Mets: What are the most encouraging aspects of their hot start?**\
 `Pete Alonso’s consistency in coming through meant fewer nights when the spotlight fell on a Juan Soto or Brandon Nimmo.`\
 https://nytimes.com/athletic/6333745/2025/05/05/mets-pete-alonso-rotation/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6329943/2025/05/05/donovan-jackson-vikings-nfl-draf
 **Women’s Pro Baseball League strikes global media deal with Fremantle**\
 `The league is set to debut in spring 2026 with six teams.`\
 https://nytimes.com/athletic/6332869/2025/05/05/womens-pro-baseball-league-fremantle-assia-grazioli-venier/
-
-**What is the future of 'College GameDay' after Lee Corso? Richard Deitsch's media mailbag**\
-`What will life be like for ESPN's College GameDay without Lee Corso? You have already seen it, says Richard Deitsch in his latest mailbag.`\
-https://nytimes.com/athletic/6296732/2025/05/05/what-is-college-gamedays-future-after-lee-corso-richard-deitschs-media-mailbag/
-
-**Seahawks rookie camp Day 2: Nick Emmanwori's No. 3, Elijah Arroyo a 'big target'**\
-`Grey Zabel slots in at left guard, while second-rounder Nick Emmanwori spends time near the line of scrimmage in practice.`\
-https://nytimes.com/athletic/6332327/2025/05/05/seahawks-rookie-minicamp-day-2-nick-emmanwori/
 

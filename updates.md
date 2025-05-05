@@ -1,3 +1,11 @@
+**Your Student Loan Questions**\
+`We asked what you wanted to know about student loans. Today, we have the answers.`\
+https://nytimes.com/2025/05/05/briefing/your-student-loan-questions.html
+
+**French Police Rescue Kidnapped Father of Crypto Entrepreneur**\
+`The Paris prosecutor’s office said seven people had been arrested in connection with the abduction last week. It did not name the freed captive or his son.`\
+https://nytimes.com/2025/05/05/world/europe/france-crypto-kidnap-father-rescue.html
+
 **This Week in Mets: What are the most encouraging aspects of their hot start?**\
 `Pete Alonso’s consistency in coming through meant fewer nights when the spotlight fell on a Juan Soto or Brandon Nimmo.`\
 https://nytimes.com/athletic/6333745/2025/05/05/mets-pete-alonso-rotation/
