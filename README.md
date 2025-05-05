@@ -1,3 +1,15 @@
+**Maple Leafs lineup vs. Panthers: What we're seeing, watching heading into Game 1**\
+`The Leafs are keeping together the lineup that won Game 6 in Ottawa. But there are some big questions facing the team in Game 1.`\
+https://nytimes.com/athletic/6334341/2025/05/05/maple-leafs-lineup-panthers-nhl-playoffs/
+
+**Trump Offers to Send U.S. Military to Fight Cartels in Mexico**\
+`President Trump said he asked Mexico’s president for permission to send U.S. troops to the country to fight drug cartels. President Claudia Sheinbaum rejected the offer and called for collaboration instead.`\
+https://nytimes.com/video/us/politics/100000010147246/trump-offers-us-military-to-fight-mexican-cartels.html
+
+**Trump on the Constitution: ‘I Don’t Know’**\
+`Readers react to President Trump’s answer when asked if he needed to uphold the Constitution. Also: Immigration questions; Meals on Wheels.`\
+https://nytimes.com/2025/05/05/opinion/trump-constitution.html
+
 **‘Thunderbolts*’ Axes the Asterisk to Market Its Surprise Title Reveal**\
 `A plot twist that comes in the movie’s final moments will now be front and center on billboards. The director Jake Schreier explains the rebrand.`\
 https://nytimes.com/2025/05/05/movies/thunderbolts-asterisk-title.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/05/world/middleeast/un-court-sudan-genocide-uae.html
 **NHL playoffs second-round winners, 2025 Stanley Cup champion and more predictions**\
 `The Athletic polled its staff on who would win each second-round series, plus the conference champions, Stanley Cup winner and Conn Smythe.`\
 https://nytimes.com/athletic/6330498/2025/05/05/nhl-playoffs-2025-predictions-stanley-cup/
-
-**The New York Nonprofit Where Generations of Artists Got Their Start**\
-`Artists Space, a downtown home for experimental art, is a consistent presence in a changing landscape`\
-https://nytimes.com/2025/05/05/t-magazine/artists-space-new-york.html
-
-**Trump Directs Federal Agencies to Reopen Alcatraz as a Prison**\
-`It has been more than six decades since Alcatraz, which sits in San Francisco Bay, operated as a prison. Today it is best known as a damp, frigid and nostalgic staple of tourist packages and children’s field trips.`\
-https://nytimes.com/video/us/politics/100000010147382/trump-alcatraz-prison-us.html
-
-**Submit your Notre Dame questions for Pete Sampson’s mailbag**\
-`Spring practice is finished, the transfer portal is closed and Notre Dame is surging on the recruiting trail. What's on your mind?`\
-https://nytimes.com/athletic/6334759/2025/05/05/notre-dame-football-mailbag-questions-19/
 
